@@ -12947,3 +12947,77 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 堂吉柯德是双人英灵，老爷子自带一个妹子</blockquote>
 妹子估计是杜尔西内娅，唐吉诃德幻想出的梦中情人，其实是隔壁村的壮实村姑。
 
+
+
+*****
+
+####  蓮華  
+##### 88120#       发表于 2022-6-1 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087016&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 21:59</a>
+
+妹子估计是杜尔西内娅，唐吉诃德幻想出的梦中情人，其实是隔壁村的壮实村姑。（不过他解包出是男性，估计 ...</blockquote>
+我看是罗西南多吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88121#       发表于 2022-6-1 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086960&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-1 21:55</a>
+
+堂吉柯德是双人英灵，老爷子自带一个妹子</blockquote>
+堂吉柯德的老搭档驴子呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JMFluorece  
+##### 88122#       发表于 2022-6-1 22:04
+
+教授这年轻版虽然发型和画风都和原来的一致，但是总感觉像长得相似的两个人，很微妙...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">果然精髓在胡子吗
+
+*****
+
+####  蓮華  
+##### 88123#       发表于 2022-6-1 22:04
+
+这莎乐美不会也要“我还是想向某人刺出小刀”了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88124#       发表于 2022-6-1 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087054&amp;ptid=1085254" target="_blank">蓮華 发表于 2022-6-1 22:02</a>
+
+我看是罗西南多吧</blockquote>
+倒不如猜是桑丘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eden_hazard  
+##### 88125#       发表于 2022-6-1 22:06
+
+也许是桑丘、驽骍难得和杜尔西内娅三缝一
+
+*****
+
+####  gpx234mqx  
+##### 88126#       发表于 2022-6-1 22:07
+
+堂吉柯德假扮大帝
+
+看来大帝真只能联动了
+
+*****
+
+####  Jamaisvu  
+##### 88127#       发表于 2022-6-1 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087097&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2022-6-1 22:06</a>
+
+也许是桑丘、驽骍难得和杜尔西内娅三缝一</blockquote>
+超越海森罗伯和超级班扬，四合一的幻灵吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（什么无极天王）
+
