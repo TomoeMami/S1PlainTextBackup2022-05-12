@@ -12913,3 +12913,37 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 大迷惑，贝伦也不过想捅飞哥一下而已
 
+
+
+*****
+
+####  exiaexa  
+##### 88117#       发表于 2022-6-1 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086705&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2022-6-1 21:38</a>
+
+查理曼画的挺好的。但我肯定不会抽。
+
+知道实际角色以前，最期待的是飞嫂。只看黑剪影本来以为是华丽的公主 ...</blockquote>
+克姐那造型，那性格，一看就是适合玩咕杀的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 88118#       发表于 2022-6-1 21:55
+
+<blockquote>Jamaisvu 发表于 2022-6-1 21:24
+嗯...二期大概是五星ruler莫里亚蒂，四星Lancer唐吉诃德，三星caster张角。（和平安京二期一样是本庄雷太的 ...</blockquote>
+堂吉柯德是双人英灵，老爷子自带一个妹子
+
+*****
+
+####  Jamaisvu  
+##### 88119#       发表于 2022-6-1 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086960&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-1 21:55</a>
+
+堂吉柯德是双人英灵，老爷子自带一个妹子</blockquote>
+妹子估计是杜尔西内娅，唐吉诃德幻想出的梦中情人，其实是隔壁村的壮实村姑。
+
