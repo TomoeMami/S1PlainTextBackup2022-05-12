@@ -12655,3 +12655,96 @@ A1的动画真的很蚌埠住，成年版查理曼（
 没看资讯 这个是平安京那种活动还是可以放着的主线</blockquote>
 2.6.5 和平安京一样
 
+
+
+*****
+
+####  exiaexa  
+##### 88097#       发表于 2022-6-1 21:00
+
+ 本帖最后由 exiaexa 于 2022-6-1 21:03 编辑 
+
+二期全是男的也太草了
+
+我就想要教皇
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便这池子，头奖高宝克姐，特攻降防魔放50冲狂
+
+查理曼和低宝克姐55开吧，这技能组303020，其中30还是个魔性特攻，看着第一反应就是伤害容易感人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88098#       发表于 2022-6-1 21:02
+
+查理曼这个1技能什么鬼...三回合两次无敌，但是无敌时封印宝具，不无敌时有五回合的NP率提升，受伤时获得王勇状态（每个提升宝具10%，最多12个，感觉没点赞好用...）
+
+二三技能倒是挺全面的，色卡、攻击、特攻、特防、暴击、NP...
+
+不过感觉没水魔总厉害啊...难道要攒石到泳装复刻吗...
+
+*****
+
+####  Jamaisvu  
+##### 88099#       发表于 2022-6-1 21:03
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 21:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085949&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-6-1 20:57</a>
+
+没看资讯 这个是平安京那种活动还是可以放着的主线</blockquote>
+有地图，应该是平安京那种外传主线。
+
+*****
+
+####  angelooo  
+##### 88100#       发表于 2022-6-1 21:06
+
+张角这技能有点意思的，不知道是不是常驻，万一是什么高贵的限定三星，那不是只能抽了？
+
+*****
+
+####  当光停止  
+##### 88101#       发表于 2022-6-1 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085720&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-1 20:47</a>
+
+什么，那个男的真的是教授？？？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/01/210708h1j1qxpyjjqytqhj.png" referrerpolicy="no-referrer">
+
+<strong>UYYVF2KBU)A9K8Q[%UNEEGP.png</strong> (203.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 21:07 上传
+
+大概是吧。能看出来是本庄雷太画的。
+
+*****
+
+####  Jamaisvu  
+##### 88102#       发表于 2022-6-1 21:09
+
+罗兰的技能挺有意思，放在对面应该会很棘手吧...宝具无敌贯通，自带无敌和100加防。
+
+三技能感觉不错，3CD，20星+集星+10NP+扣500血，以藏留下了不甘的眼泪.
+
+*****
+
+####  areklose  
+##### 88103#       发表于 2022-6-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086024&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 21:02</a>
+
+查理曼这个1技能什么鬼...三回合两次无敌，但是无敌时封印宝具，不无敌时有五回合的NP率提升，受伤时获得王 ...</blockquote>
+无敌能给别人。
+
+*****
+
+####  areklose  
+##### 88104#       发表于 2022-6-1 21:10
+
+彩光 狂背 塔喵<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
