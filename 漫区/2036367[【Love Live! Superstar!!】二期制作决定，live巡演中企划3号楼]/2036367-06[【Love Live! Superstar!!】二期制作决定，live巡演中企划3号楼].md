@@ -17698,3 +17698,17 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还是喜欢长发鱼
 
+
+
+*****
+
+####  csolfans  
+##### 8828#       发表于 2022-6-1 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56074981&amp;ptid=2036367" target="_blank">长日留痕 发表于 2022-6-1 00:31</a>
+
+心机偶像的设定也太棒了，我喜欢。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁设定是心机偶像？夏美吗
+
