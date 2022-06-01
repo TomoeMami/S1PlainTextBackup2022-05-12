@@ -17991,3 +17991,22 @@ ins更新一张老图
 大熊还没开推，总不能是本人不想开推吧………………</blockquote>
 不想开也不是没先例，哪怕是LL，也有小宫这种晚9个月才去开号的人
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 8849#       发表于 2022-6-1 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 8850#       发表于 2022-6-1 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56060009&amp;ptid=2036367" target="_blank">we89623 发表于 2022-5-30 22:42</a>
+
+不过我发了个问题是上尉好像跟哪人都不营业...不单单只是跟鲤鱼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">pay还算主动的，顶多是话不多，自己在视频里去蹭蹭求摸头什么的次数很多，和其他人营业不到一块去那是另一回事。当然，也可能是初期最闲的那段时间pay还是高中生一直要上课，作息还很健康，错过了加深交流的时机
+

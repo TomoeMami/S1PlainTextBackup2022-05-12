@@ -12348,3 +12348,24 @@ A1的动画真的很蚌埠住，成年版查理曼（
 6月下旬居然不是泳装复刻而是新活动，要过2.3，背景里那几个中国风的大概要出来了 ...</blockquote>
 是2.3的回顾，应该没有活动<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 88070#       发表于 2022-6-1 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085099&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-6-1 20:06</a>
+6月下旬居然不是泳装复刻而是新活动，要过2.3，背景里那几个中国风的大概要出来了 ...</blockquote>
+过2.3其实和活动是啥没什么关系，上一个活动要求就是过2.2。算是逐步强迫你推主线
+
+*****
+
+####  yangun22  
+##### 88071#       发表于 2022-6-1 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085159&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-1 20:10</a>
+
+是2.3的回顾，应该没有活动</blockquote>
+2.3的回顾和新活动都有的
+
