@@ -6557,3 +6557,31 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 
 这时候开放我觉得也是有想法的，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 14123#       发表于 2022-6-1 16:24
+
+谁在乎里面是不是jk啊，莎乐美自称二十后半都没影响人家火，怎么你jk观众就无条件会看了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无趣的jk不如有趣的bba才是套皮人
+
+*****
+
+####  rzrbtk  
+##### 14124#       发表于 2022-6-1 16:25
+
+我觉得今晚真的可以给莎乐美这个角色阶段性总结了，杂谈+应该会有的集金，看看到底是怎样的人<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">！
+
+之前的高增长情况，要不是有新东西（出道胃镜），要不是好时机（周末23点），今晚两者皆有一波，
+
+基本上稳冲上80万（现在已经74.6w）开始追击月之，这种事情不要呀...
+
+<img src="https://img.saraba1st.com/forum/202206/01/162401fjf6g9gbsmx4xxzx.png" referrerpolicy="no-referrer">
+
+<strong>2022-06-01.png</strong> (53.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 16:24 上传
+
