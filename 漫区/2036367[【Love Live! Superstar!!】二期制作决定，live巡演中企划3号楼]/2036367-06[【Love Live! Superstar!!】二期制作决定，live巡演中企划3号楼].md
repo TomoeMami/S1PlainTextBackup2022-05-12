@@ -17816,3 +17816,91 @@ ins更新一张老图
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 8835#       发表于 2022-6-1 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56082584&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-1 16:18</a>
+真的营业太积极了吧，反而感觉更怪了
+
+—— 来自 S1Fun</blockquote>
+和鬼塚夏美完全一致了
+
+*****
+
+####  cat1230  
+##### 8836#       发表于 2022-6-1 16:34
+
+说明对工作上心啊，拉板也是好评，有人推特还没开吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 8837#       发表于 2022-6-1 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56082098&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-1 15:38</a></blockquote>
+虽然很失礼，被提过一次后看正面真的很像井上正大<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8838#       发表于 2022-6-1 16:38
+
+可香头子
+
+<img src="https://img.saraba1st.com/forum/202206/01/163704uj88f155n1mi1bnz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D9BA8B61-5DF5-4CDD-B54A-A7E1D7577274.jpeg</strong> (974.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-1 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/163704jfd34zxx33x9xbzq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>498F5C78-39AE-446A-AE00-0DCE86F9E0EC.jpeg</strong> (789.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-1 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/163705mmeeql2nmacz5bvm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2C90FD77-A598-40AA-BF47-355928325F33.jpeg</strong> (805.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-1 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/163705waqn0q6nmeyb10j9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>137B895E-4D70-42F4-B61A-2BC43013CC80.jpeg</strong> (795.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-1 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/163802hh542weeswf55ll4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C6C072CD-0036-45D5-895F-61661967310C.jpeg</strong> (299.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-1 16:38 上传
+
+*****
+
+####  ykyin09  
+##### 8839#       发表于 2022-6-1 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56080378&amp;ptid=2036367" target="_blank"> 兔姬姬姬姬姬 发表于 2022-6-1 13:14</a>  本帖最后由 兔姬姬姬姬姬 于 2022-6-1 13:16 编辑   关于二期主视图香音幻视成巨人的梗，这两条笑死我了 附件： </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么能混进米岚来自: iPhone客户端
+
