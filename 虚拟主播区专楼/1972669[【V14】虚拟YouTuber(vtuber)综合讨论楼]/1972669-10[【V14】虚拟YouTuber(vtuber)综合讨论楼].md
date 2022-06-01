@@ -6732,3 +6732,14 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">昨天刚看串里说箱内不仲就有例子了
 
+
+
+*****
+
+####  poipanchao  
+##### 14139#       发表于 2022-6-1 19:01
+
+noah在vspo确实够不仲了
+好像只有她一个还住在关西
+这么多年在v里混熟的也就一个bora，又是外社又是外国人的，某种意义上还挺微妙的
+
