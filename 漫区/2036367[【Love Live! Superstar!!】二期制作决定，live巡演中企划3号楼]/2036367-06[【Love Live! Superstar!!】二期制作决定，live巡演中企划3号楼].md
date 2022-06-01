@@ -17904,3 +17904,30 @@ ins更新一张老图
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56080378&amp;ptid=2036367" target="_blank"> 兔姬姬姬姬姬 发表于 2022-6-1 13:14</a>  本帖最后由 兔姬姬姬姬姬 于 2022-6-1 13:16 编辑   关于二期主视图香音幻视成巨人的梗，这两条笑死我了 附件： </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么能混进米岚来自: iPhone客户端
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8840#       发表于 2022-6-1 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56082871&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-6-1 16:41</a>
+
+为什么能混进米岚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凑外国人可不得找外援
+
+*****
+
+####  a92063256  
+##### 8841#       发表于 2022-6-1 16:45
+
+高强度营业也有两种理解的方向嘛，一种理解是很心机很假<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">，还有一种是她很渴望得到支持和认同，这么想的话就会好一些。
+虽然说我自己因为官方的操作导致眼中有点梁木更偏向看法一，但是我觉得还得看看过几天的生放表现和实际唱跳水平如何再下判断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要别是表达欲旺盛，唱跳稀碎就行
+
+*****
+
+####  稀勢のささ  
+##### 8842#       发表于 2022-6-1 16:50
+
+干过那么多年 怎么也不至于稀碎吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着黑红也是红另说
+

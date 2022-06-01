@@ -6594,3 +6594,28 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">vta那个二期招募一开始也是高中生可，不过后面加了个追加经验者的厂而已，三期就和一开始一样也是高中生可
 
+
+
+*****
+
+####  獅白ぼたん  
+##### 14126#       发表于 2022-6-1 16:45
+
+定向培育的这么可能打过从数量里卷出来的，又不是考大学
+
+还不如直接抽卡
+
+*****
+
+####  古战场亡魂  
+##### 14127#       发表于 2022-6-1 16:45
+
+两天之内食杀月之。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 14128#       发表于 2022-6-1 16:46
+
+谁看jk啊，看的就是姨，不姨不看
+
