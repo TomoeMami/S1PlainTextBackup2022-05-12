@@ -13348,3 +13348,19 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 <img src="https://img.saraba1st.com/forum/202206/02/001353ltezwcqitzswrc4e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hououmon  
+##### 88154#       发表于 2022-6-2 01:18
+
+莫里亚蒂光线wwwwwww
+
+*****
+
+####  quanlix  
+##### 88155#       发表于 2022-6-2 01:19
+
+这尼玛两个新素材也太恶心了，连查理曼和飞哥老婆连再临都吃，升技能直接180,216
+
