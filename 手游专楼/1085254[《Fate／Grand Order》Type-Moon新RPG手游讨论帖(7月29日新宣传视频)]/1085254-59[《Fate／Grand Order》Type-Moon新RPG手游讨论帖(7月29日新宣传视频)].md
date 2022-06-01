@@ -12395,3 +12395,49 @@ A1的动画真的很蚌埠住，成年版查理曼（
 
 唉，新池子俩金剑，转过来万一是罗兰也不会太高兴......查理曼强度没保证就先攒石吧...
 
+
+
+*****
+
+####  alucardcz  
+##### 88075#       发表于 2022-6-1 20:37
+
+绿卡。再见了
+
+*****
+
+####  areklose  
+##### 88076#       发表于 2022-6-1 20:37
+
+50自充单体狂。第一个单体狂有这个待遇
+
+*****
+
+####  Jamaisvu  
+##### 88077#       发表于 2022-6-1 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085534&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-1 20:37</a>
+
+50自充单体狂。第一个单体狂有这个待遇</blockquote>
+金时？
+
+*****
+
+####  alucardcz  
+##### 88078#       发表于 2022-6-1 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085534&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-1 20:37</a>
+
+50自充单体狂。第一个单体狂有这个待遇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是看不起狗蛋？
+
+*****
+
+####  areklose  
+##### 88079#       发表于 2022-6-1 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085550&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 20:39</a>
+
+金时？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哎呀忘记了。应该是第一个四星吧。不过看回收率了
+
