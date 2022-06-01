@@ -14398,3 +14398,53 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56079847&amp;ptid=98922" target="_blank">蚊仔蚊仔蚊仔 发表于 2022-6-1 12:33</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨子真的不是人
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 58217#       发表于 2022-6-1 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56078573&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-6-1 11:05</a>
+
+大和应该要改回自己的本名拿出自己的梦想才配做船员吧，</blockquote>
+确实有可能，不过理由可能会是你还不够资格当御田。
+
+<img src="https://img.saraba1st.com/forum/202206/01/144013dzp1ripsii4l1r4v.jpg" referrerpolicy="no-referrer">
+
+<strong>daba59ee3d6d55fbcb533ffe28224f4a21a4dd7b.jpg</strong> (81.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 14:40 上传
+
+*****
+
+####  谁说法海不懂爱  
+##### 58218#       发表于 2022-6-1 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081269&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-6-1 14:34</a>
+
+厨子真的不是人</blockquote>
+新世界篇有独立篇章还负塑造的老船员就此一家了。
+
+*****
+
+####  和真克瓦尔  
+##### 58219#       发表于 2022-6-1 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081357&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-6-1 14:40</a>
+
+确实有可能，不过理由可能会是你还不够资格当御田。</blockquote>
+喔糙，是争屎的场面
+
+*****
+
+####  和真克瓦尔  
+##### 58220#       发表于 2022-6-1 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081372&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-6-1 14:41</a>
+
+新世界篇有独立篇章还负塑造的老船员就此一家了。</blockquote>
+两年后容貌大削，个人篇章搞成这样还不如走一开始的帅痞路线呢，尾田也许是觉得原来的方向俗套想弄得更有个性？但明显没办到。
+
