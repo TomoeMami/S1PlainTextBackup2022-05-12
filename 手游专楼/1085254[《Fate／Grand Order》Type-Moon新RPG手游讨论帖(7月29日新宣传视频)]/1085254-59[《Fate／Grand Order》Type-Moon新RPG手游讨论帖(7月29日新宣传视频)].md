@@ -13238,3 +13238,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 只能福袋买狂阶赌命了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88147#       发表于 2022-6-1 23:27
+
+剧限好哇，等下一次自选了，为什么没单Up啊艹
+

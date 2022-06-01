@@ -7068,3 +7068,25 @@ sc杂谈读到几千核心粉，除了早安可可以外基本没有万棒。一
 读内容聊聊就算sc不多也会追加，直播时间直接超三个小时往上了。
 实际上她大部分sc都是这么读出来的。因为某个契机同一时间大量投的sc内容很少重复的很多很容易就读完了的
 
+
+
+*****
+
+####  fastary  
+##### 14174#       发表于 2022-6-1 23:24
+
+vox依旧是sc的皇，en男还在赢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+莎皇一手不读SC又该被吹虹味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这个订阅和同接光播放量估计就大赚特赚了，不读sc还能赚个质的名声，倒也合算
+
+*****
+
+####  渡鸦骑士  
+##### 14175#       发表于 2022-6-1 23:26
+
+有时候在想葛叶那种直播时间超长导致sc相对密度较低，单独每个sc能得到聊聊的机会增加是不是赚sc比较好的方式。
+反正真要赚sc终归还是要花时间和投钱的人对话的。时间根本短不了。但是对于做节目效果来说信息密度就明显稀释了。
+从这点来说能拖着一万多两万多人直播十几个小时的葛叶才是异常的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
