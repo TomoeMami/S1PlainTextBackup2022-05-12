@@ -12140,3 +12140,116 @@ FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻
 这新礼装，士郎和凛换色可还行
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88049#       发表于 2022-6-1 19:50
+
+神之舌也不是开服礼装啊，果然因为太丑才被提前下架吧233
+
+*****
+
+####  Jamaisvu  
+##### 88050#       发表于 2022-6-1 19:51
+
+新的绿方块礼装是卡多克，看来他之后的剧情还不少...
+
+我的队长为什么没有礼装啊，希望以后能变成英灵实装，缝个希腊神之类的...
+
+
+
+*****
+
+####  Jamaisvu  
+##### 88051#       发表于 2022-6-1 19:52
+
+罗兰看上去是个压稿角色，立绘和宝具都一般般...（不过细看的话，笑起来还是帅的...）
+
+*****
+
+####  exiaexa  
+##### 88052#       发表于 2022-6-1 19:53
+
+草，飞哥你行不行啊
+
+一家俩口都是4
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88053#       发表于 2022-6-1 19:53
+
+飞哥的狂战老婆，挺好看的，宝具拖着大剑走过去砍一下很有压迫感。
+
+*****
+
+####  exiaexa  
+##### 88054#       发表于 2022-6-1 19:54
+
+卧槽，神代立香这个宝具演出
+
+说句暴打EXTELLA没问题吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88055#       发表于 2022-6-1 19:54
+
+查理曼好帅，而且是久违的侧颜而非正脸，抽一抽吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 88056#       发表于 2022-6-1 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下我可以等周年了
+
+*****
+
+####  Jamaisvu  
+##### 88057#       发表于 2022-6-1 19:56
+
+闪电呆毛和女教皇（预告黑影最右）应该就是二期池子了吧。
+
+*****
+
+####  黑上シグマ  
+##### 88058#       发表于 2022-6-1 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56084962&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 19:52</a>
+
+罗兰看上去是个压稿角色，立绘和宝具都一般般...（不过细看的话，笑起来还是帅的...）
+
+ ...</blockquote>
+罗兰当然是压稿，立绘早八百年前就登场了
+
+*****
+
+####  Jamaisvu  
+##### 88059#       发表于 2022-6-1 19:57
+
+啊啊啊啊，闪电呆毛哥好好看啊！看上去是个教会角色？等一下看看查理曼宝具颜色，再考虑是攒石还是充几单吧...<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 88060#       发表于 2022-6-1 19:59
+
+去掉罗兰下巴上像胡子的不明物体还是可以看的
+
+*****
+
+####  Jamaisvu  
+##### 88061#       发表于 2022-6-1 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085004&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-1 19:56</a>
+
+罗兰当然是压稿，立绘早八百年前就登场了</blockquote>
+嗯嗯，阿福幕间出现过，当时表情没在笑，看着一般，现在立绘顺眼了一些...
+
+不过宝具动画有点普通，剑兰宝具改版前的感觉...
+
