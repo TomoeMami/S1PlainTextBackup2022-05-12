@@ -6996,3 +6996,75 @@ tiktok的确是流量密码，但是要在tiktok火起来也是蛮玄学的
 
 不应该读了才陨落吗
 
+
+
+*****
+
+####  稀勢のささ  
+##### 14167#       发表于 2022-6-1 23:11
+
+不读sc 取关了👋
+
+*****
+
+####  poipanchao  
+##### 14168#       发表于 2022-6-1 23:11
+
+今天这次的量……读要死人的吧
+
+当年蝗是怎么处理的
+
+*****
+
+####  渡鸦骑士  
+##### 14169#       发表于 2022-6-1 23:14
+
+ 本帖最后由 渡鸦骑士 于 2022-6-1 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56088125&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-6-1 23:11</a>
+今天这次的量……读要死人的吧
+
+当年蝗是怎么处理的</blockquote>
+sc杂谈读到几千核心粉，除了早安可可以外基本没有万棒。一个人玩游戏的直播有时候只有几千出头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+同接甚至还不如现在kson时期。
+
+*****
+
+####  poipanchao  
+##### 14170#       发表于 2022-6-1 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56088184&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-1 23:14</a>
+
+sc杂谈读到几千核心粉，除了早安可可以外基本没有万棒。一个人玩游戏的直播有时候只有一千出头 ...</blockquote>
+不是，我是说她第一次开收益那次
+
+那次的量她读了吗，读了多久？
+
+*****
+
+####  CielChloe  
+##### 14171#       发表于 2022-6-1 23:15
+
+七日王朝终结，看热闹的都以可以散了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 14172#       发表于 2022-6-1 23:16
+
+不开sc不就能继续王朝了？
+
+*****
+
+####  渡鸦骑士  
+##### 14173#       发表于 2022-6-1 23:16
+
+ 本帖最后由 渡鸦骑士 于 2022-6-1 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56088224&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-6-1 23:15</a>
+不是，我是说她第一次开收益那次
+
+那次的量她读了吗，读了多久？</blockquote>
+哦你说这个啊，那时候有个特色叫sc杂谈，边读sc边杂谈到sc读完<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+开了这个基本看主播想播多久了。只读名字很快的。
+读内容聊聊就算sc不多也会追加，直播时间直接超三个小时往上了。
+实际上她大部分sc都是这么读出来的。因为某个契机同一时间大量投的sc内容很少重复的很多很容易就读完了的
+

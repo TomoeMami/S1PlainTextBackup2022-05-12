@@ -13220,3 +13220,21 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">60抽终于抽到妹子了 太非了60抽除了妹子一个金卡从这没出
 
+
+
+*****
+
+####  exiaexa  
+##### 88146#       发表于 2022-6-1 23:14
+
+又补了两单
+
+查理曼1+1
+
+克姐3+0
+
+罗兰1+0
+
+只能福袋买狂阶赌命了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
