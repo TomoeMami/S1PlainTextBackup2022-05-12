@@ -13066,3 +13066,73 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 看到齐格鲁特就想砍他脑袋，反正英雄不会死，大概</blockquote>
 只能说怕不是tm那帮家伙就是想来点加强版。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88131#       发表于 2022-6-1 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087215&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2022-6-1 22:13</a>
+
+小莫感太强了，没感觉。而且对近卫的画风有种莫名的缺点啥的感觉。 ...</blockquote>
+寡妇的色气不够啊
+
+*****
+
+####  xiongxingyu  
+##### 88132#       发表于 2022-6-1 22:22
+
+难得豹跳一次，10发11连夏露露3飞嫂3罗兰1，看来当初的extellalinks的首发限定大盒没白买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说看解包夏露露的三破，卡尔大帝大概率是没了，等一波extella联动吧。话说回来，连夏露露都弯道超车了，学士大人你在干什么啊，莫非是真的因为迦勒底龙娘浓度太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+570b02f09e5158b14f2d90486cca8b1.jpg
+(509.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/221531kqdhluqfcnubhl92.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 88133#       发表于 2022-6-1 22:23
+
+年轻版教授的脸好奇怪啊，下巴太尖了，突破之后的眼妆又有种Joker的感觉。不太懂为什么宝具对善特攻，技能赋予恶特性，这样用完技能之后还能触发对善特攻吗？
+
+想知道解包的那个紫色大机甲是谁，看到很多人奶是吕布，但总感觉不太像
+
+*****
+
+####  空气蛹  
+##### 88134#       发表于 2022-6-1 22:26
+
+三发十连无事发生，想到泳装快到了收手
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 88135#       发表于 2022-6-1 22:27
+
+<blockquote>保罗赫伯特 发表于 2022-6-1 22:23
+年轻版教授的脸好奇怪啊，下巴太尖了，突破之后的眼妆又有种Joker的感觉。不太懂为什么宝具对善特攻，技能 ...</blockquote>
+有人说画了眼妆后像全职猎人的西索...
+
+不过宝具动画配上那个衣服，有种鲁鲁修的感觉。
+
+宝具这不就是恶堕吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vacuumsword  
+##### 88136#       发表于 2022-6-1 22:28
+
+白方块换不了新材料，要你何用
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

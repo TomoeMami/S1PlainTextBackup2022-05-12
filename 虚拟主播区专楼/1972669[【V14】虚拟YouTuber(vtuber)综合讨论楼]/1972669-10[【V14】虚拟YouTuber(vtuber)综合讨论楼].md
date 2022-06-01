@@ -6909,3 +6909,26 @@ tiktok的确是流量密码，但是要在tiktok火起来也是蛮玄学的
 
 杂谈唐突提有能友人会让我想起金鱼的eve友啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 14156#       发表于 2022-6-1 22:23
+
+看奇观不嫌大，40w粉的虹男3D可以打1500W，voxB限一小时是近100wRMB，70w订阅的莎皇收益化怎么也得有个1kw收入吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 14157#       发表于 2022-6-1 22:28
+
+众所周知，女性的打钱能力（ ）宅男<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克罗夏  
+##### 14158#       发表于 2022-6-1 22:28
+
+莎乐美的这种杂谈和游戏直播比起来质差的有点多<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，以后还是多播游戏吧
+
