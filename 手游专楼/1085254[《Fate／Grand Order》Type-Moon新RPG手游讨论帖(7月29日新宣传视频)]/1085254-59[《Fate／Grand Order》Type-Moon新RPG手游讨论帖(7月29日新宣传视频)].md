@@ -13256,3 +13256,57 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 飞嫂对话说了布伦希尔德和这边故事的布伦希尔德长像，声音，性格都完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88149#       发表于 2022-6-1 23:42
+
+ 本帖最后由 gpx234mqx 于 2022-6-1 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56088428&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-1 23:27</a>
+
+剧限好哇，等下一次自选了，为什么没单Up啊艹
+
+更新：看了有人翻译的文本不想要了，你月脑子是不是有病</blockquote>
+飞嫂是疯癫状态
+
+和布伦还不一样
+
+还生飞哥多气呢
+
+也生齐格的气<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 88150#       发表于 2022-6-1 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56088648&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-1 23:42</a>
+
+飞嫂是疯癫状态
+
+和布伦还不一样</blockquote>
+我一开始以为飞嫂会是仇阶的，毕竟她最出名的行径就是复仇
+
+现在搞成狂阶，一切不合理的设定都可以用精神不正常来解释就很厉害
+
+她的这个逻辑太神了我无法理解<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88151#       发表于 2022-6-1 23:49
+
+<img src="https://img.saraba1st.com/forum/202206/01/234746hxs85rv52rxprqjz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220601_234725_com.excean.gspace.jpg</strong> (565.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 23:47 上传
+
+头一次这么...欧？连续金卡把我看傻了，可惜愣是没有一个saber...收工了，对一个卡池出俩五星不抱期望...
+
+四十连两个克里姆希尔德，感觉够用...希望贞德别把我抽教授的欧气吸走（这俩同职介而且配卡同色...）。
+
