@@ -7213,3 +7213,17 @@ sc超过帕特了好像，虹初收益化第一了？
 
 省一楼，鹰宫队比我想得有趣多了，而且本来就是为了乐所以以后也不会太沉重（希望），好棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 14187#       发表于 2022-6-2 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56084393&amp;ptid=1972669" target="_blank">winda 发表于 2022-6-1 18:54</a>
+
+昨天刚看串里说箱内不仲就有例子了</blockquote>
+差点忘了这事，难道是指的q和67？
+
+noah推特谢罪了，这下真的要被孤立了……
+
