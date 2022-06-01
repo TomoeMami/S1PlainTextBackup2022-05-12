@@ -12441,3 +12441,99 @@ A1的动画真的很蚌埠住，成年版查理曼（
 金时？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哎呀忘记了。应该是第一个四星吧。不过看回收率了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88080#       发表于 2022-6-1 20:41
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 20:45 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/01/203933td9o0777z9jdooz9.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h2t0qqdpekj20sg148k04.jpg</strong> (366.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:39 上传
+
+查理曼的卡面不错，wada水平在线。
+
+<img src="https://img.saraba1st.com/forum/202206/01/203933cfxbfp88bjbffy2t.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h2t0qkpgnjj20sg148n5e.jpg</strong> (345.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:39 上传
+
+近卫，头身比有点奇怪...衣服设计不错，满破表情也到位。
+
+<img src="https://img.saraba1st.com/forum/202206/01/203934cnr7u79lu27w8k9u.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h2t0qeq114j20sg148tg5.jpg</strong> (313.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:39 上传
+
+嗯，不想评价...三破什么小丑...等一下，难道这个造型是方块J（ack）的意思？
+
+
+
+*****
+
+####  angelooo  
+##### 88081#       发表于 2022-6-1 20:41
+
+查理曼这三破第一眼反派感太重了，飞嫂的配色实在素的不行，哪怕是一破带了点红也看着怪怪的，满破眼神很不错，罗兰就……跳过吧
+
+*****
+
+####  黑上シグマ  
+##### 88082#       发表于 2022-6-1 20:42
+
+10呼符出了飞哥老婆，跟了5个11连屁都没有
+
+*****
+
+####  zakki  
+##### 88083#       发表于 2022-6-1 20:44
+
+二池，张角，教授<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 88084#       发表于 2022-6-1 20:44
+
+一查尔曼一飞哥老婆，赶紧跑路<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 88085#       发表于 2022-6-1 20:46
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 20:48 编辑 
+
+靠，闪电哥真的是ruler莫里亚蒂<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+蓝光炮尺子，前置宝威UP+善特攻，攻击力一万出头......嗯，雷太的男人，开个图册吧...
+
+*****
+
+####  areklose  
+##### 88086#       发表于 2022-6-1 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对不起老婆没单UP吗？
+
+*****
+
+####  angelooo  
+##### 88087#       发表于 2022-6-1 20:47
+
+什么，那个男的真的是教授？？？
+
