@@ -862,3 +862,21 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">建议把所有内容都编辑楼顶做个整合版，这样看是真难受
 
+
+
+*****
+
+####  同态复仇  
+##### 94#       发表于 2022-6-2 07:29
+
+这不是rpg你信吗
+
+*****
+
+####  怪叔叔木易  
+##### 95#       发表于 2022-6-2 07:30
+
+看的我一阵阵的头疼
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

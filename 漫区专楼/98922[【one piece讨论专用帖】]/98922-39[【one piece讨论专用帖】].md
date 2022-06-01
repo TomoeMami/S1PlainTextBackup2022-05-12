@@ -14558,3 +14558,74 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 真要让个小屁孩当将军啊，服了
 
+
+
+*****
+
+####  Yeaha123  
+##### 58231#       发表于 2022-6-1 17:35
+
+快来个敌人阻止路飞开party
+
+*****
+
+####  SteinLee  
+##### 58232#       发表于 2022-6-1 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">那么谁来当路飞的红发和巴基呢
+
+*****
+
+####  Eric_方歌阙  
+##### 58233#       发表于 2022-6-1 23:47
+
+蛋糕岛之后最奇怪的是所有角色都没有变化，连最应该成长和展现魅力的核心配角桃之助、山治都是失败的，横向对比薇薇简直不能看。尾田是真的年纪大了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zodiac137  
+##### 58234#       发表于 2022-6-2 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56083534&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-6-1 17:30</a>
+
+真要让个小屁孩当将军啊，服了</blockquote>
+其实没什么大不了的，小孩子就是个吉祥物，门面而已
+
+底下有九侠干事，还有其他大名之类的，也够了
+
+反正怎么也比凯多底下当韭菜强
+
+*****
+
+####  逸yi  
+##### 58235#       发表于 2022-6-2 05:36
+
+呃呃
+
+*****
+
+####  和真克瓦尔  
+##### 58236#       发表于 2022-6-2 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081706&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-1 15:09</a>
+
+我恰恰觉得就山治这章的胜利是可以算正面描写的，人设完全立住了。</blockquote>
+和之国是还可以，但是身份揭秘的蛋糕岛实在太拉了…
+
+*****
+
+####  戏言学者  
+##### 58237#       发表于 2022-6-2 07:21
+
+翻页。
+
+*****
+
+####  和真克瓦尔  
+##### 58238#       发表于 2022-6-2 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081595&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-6-1 14:58</a>
+
+与其说想显得有个性，不如说跟御田的角色结构异曲同工，不合适的人设强行套过去的篇章套路引起的，委曲求 ...</blockquote>
+没完没了的复刻漫画怎么会不拉垮，回忆苦情可以，但能不能别都是一个味道，和逆转无限复读dl6一个凑性
+
