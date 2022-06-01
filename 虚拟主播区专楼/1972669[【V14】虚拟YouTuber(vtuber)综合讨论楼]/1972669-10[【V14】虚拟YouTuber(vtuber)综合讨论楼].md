@@ -6548,3 +6548,12 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 
 招素人→素人不行→招经验者→没人来→放开限制先招到人再说不然不好交代。这个逻辑我觉得很合理啊
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 14122#       发表于 2022-6-1 16:14
+
+这时候开放我觉得也是有想法的，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
