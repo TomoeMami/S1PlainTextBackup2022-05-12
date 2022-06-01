@@ -12800,3 +12800,37 @@ A1的动画真的很蚌埠住，成年版查理曼（
 
 Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
+
+
+*****
+
+####  angelooo  
+##### 88108#       发表于 2022-6-1 21:22
+
+教授这立绘怎么比CM看起来幼，CM是青年感，立绘更像少年
+
+*****
+
+####  gpx234mqx  
+##### 88109#       发表于 2022-6-1 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086179&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-1 21:10</a>
+
+彩光 狂背 塔喵</blockquote>
+来玄学极大成功教吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88110#       发表于 2022-6-1 21:24
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 21:28 编辑 
+
+嗯...二期大概是五星ruler莫里亚蒂，四星Lancer唐吉诃德，三星caster张角。
+
+卫星有娘化杂贺孙市和疑似吕布的铠甲人以及女教皇和一个粉毛妹子，三期卡池存疑？
+
+突然感觉没啥兴趣了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ruler的输出能力不太报期望，毕竟白值摆在那里，还是水伽摩好用...等着看尺教授的满破够不够惊艳吧...
+
+希望2.7的烟雾镜能画得好看点...不过广江礼威现在的画风有点怪...
+
