@@ -13021,3 +13021,48 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 （什么无极天王）
 
+
+
+*****
+
+####  kuarwbwe  
+##### 88128#       发表于 2022-6-1 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086954&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-1 21:55</a>
+
+克姐那造型，那性格，一看就是适合玩咕杀的</blockquote>
+小莫感太强了，没感觉。而且对近卫的画风有种莫名的缺点啥的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88129#       发表于 2022-6-1 22:14
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 22:16 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/01/221217npgecgcsbcstcccz.jpg" referrerpolicy="no-referrer">
+
+<strong>2E51E1FD835B8AC3EF55199DBB0C4B13.jpg</strong> (135.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 22:12 上传
+
+通关礼装，驽骍难得怎么是个驴子，桑丘装扮成他主子吗？
+
+估计后面那个兽耳娘真是马娘了，骑驴抱马<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+难不成这不是唐吉诃德，而是《唐吉诃德》？
+
+*****
+
+####  kuarwbwe  
+##### 88130#       发表于 2022-6-1 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086825&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-1 21:46</a>
+
+飞嫂这个
+
+看到齐格鲁特就想砍他脑袋，反正英雄不会死，大概</blockquote>
+只能说怕不是tm那帮家伙就是想来点加强版。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
