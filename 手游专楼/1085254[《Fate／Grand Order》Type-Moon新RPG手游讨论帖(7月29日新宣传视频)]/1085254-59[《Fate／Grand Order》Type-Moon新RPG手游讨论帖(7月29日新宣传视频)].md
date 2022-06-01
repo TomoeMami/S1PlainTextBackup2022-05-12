@@ -12895,3 +12895,21 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 飞嫂只看剪影很期待，实际很失望，本来以为是哪家公主骑士的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88116#       发表于 2022-6-1 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086705&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2022-6-1 21:38</a>
+
+查理曼画的挺好的。但我肯定不会抽。
+
+知道实际角色以前，最期待的是飞嫂。只看黑剪影本来以为是华丽的公主 ...</blockquote>
+飞嫂这个
+
+看到齐格鲁特就想砍他脑袋，反正英雄不会死，大概
+
+大迷惑，贝伦也不过想捅飞哥一下而已
+
