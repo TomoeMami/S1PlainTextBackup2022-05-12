@@ -12537,3 +12537,121 @@ A1的动画真的很蚌埠住，成年版查理曼（
 
 什么，那个男的真的是教授？？？
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88088#       发表于 2022-6-1 20:51
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085720&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-1 20:47</a>
+
+什么，那个男的真的是教授？？？</blockquote>
+二期从者解包：
+
+<img src="https://img.saraba1st.com/forum/202206/01/205508o2fzwzve053nees7.jpg" referrerpolicy="no-referrer">
+
+<strong>D33E012ACAEA73F5CB0C806117AC113E.jpg</strong> (403.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/205509viriidg39dzrviv6.jpg" referrerpolicy="no-referrer">
+
+<strong>CC6269A0834BA5E8EB322AF0432E3FED.jpg</strong> (418.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/205509qoki4ivs4kjzs0sz.jpg" referrerpolicy="no-referrer">
+
+<strong>6A204EA92EA0FEFDA502494163E51363.jpg</strong> (393.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:55 上传
+
+*****
+
+####  gpx234mqx  
+##### 88089#       发表于 2022-6-1 20:52
+
+开局一护符飞嫂<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88090#       发表于 2022-6-1 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">50抽 新出的几个礼装一样一个 金卡从者一个没出
+
+*****
+
+####  khxooo  
+##### 88091#       发表于 2022-6-1 20:56
+
+如果解包是真的话，那么这两期不需要抽了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 88092#       发表于 2022-6-1 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">对不起老婆没单UP 我麻了
+
+*****
+
+####  在海岸  
+##### 88093#       发表于 2022-6-1 20:57
+
+没看资讯 这个是平安京那种活动还是可以放着的主线
+
+*****
+
+####  gpx234mqx  
+##### 88094#       发表于 2022-6-1 20:58
+
+ 本帖最后由 gpx234mqx 于 2022-6-1 20:59 编辑 
+
+60石头咋查理曼就两宝了，还歪了个狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+概率教伟大
+
+6B828C27-23FF-4F15-BC75-85C4ECD2B9E2.png
+(1.07 MB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/205813xhwnt29h99hnt9hn.png" referrerpolicy="no-referrer">
+
+23D88E10-58AF-4399-AD27-ECA7FCAABCC8.png
+(1.04 MB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/205814lwwvp5bxmcfvsvms.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 88095#       发表于 2022-6-1 20:58
+
+张角这个实在是太那啥了，能猜中这个的我怀疑他是内部工作人员23333
+
+*****
+
+####  areklose  
+##### 88096#       发表于 2022-6-1 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085949&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-6-1 20:57</a>
+
+没看资讯 这个是平安京那种活动还是可以放着的主线</blockquote>
+2.6.5 和平安京一样
+
