@@ -779,3 +779,35 @@
 — from Xiaomi Mi 10, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
 我也150多斤呢
 
+
+
+*****
+
+####  Wanderers  
+##### 85#       发表于 2022-6-2 06:56
+
+这，不是RPG的话，精神疾病的人凑在一起就很让人崩溃的吧，愣是让我想起了类似坨氏作品里的那些神神叨叨的人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milky牛奶  
+##### 86#       发表于 2022-6-2 06:56
+
+以后上点心吧，好好治病，还好这会只是坑点钱，真要是做点坏事，骗走你的娃之类的，哭都没地方哭了
+
+*****
+
+####  利维亚的白狼  
+##### 87#       发表于 2022-6-2 06:57
+
+不过青少年时期建立的亲密关系如果不健康的话是会容易一次次陷入同样的模式欸。我也是遇到过了在我正打算过度付出的时候坚决拒绝了我的好人，才有点悟到平等的关系可能是什么样的。
+
+*****
+
+####  理念  
+##### 88#       发表于 2022-6-2 06:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56090658&amp;ptid=2072772" target="_blank">Milky牛奶 发表于 2022-6-2 06:56</a>
+以后上点心吧，好好治病，还好这会只是坑点钱，真要是做点坏事，骗走你的娃之类的，哭都没地方哭了 ...</blockquote>
++1，楼主写到那女孩问电脑电器价格还以为结局是盗走卖光呢。
+
