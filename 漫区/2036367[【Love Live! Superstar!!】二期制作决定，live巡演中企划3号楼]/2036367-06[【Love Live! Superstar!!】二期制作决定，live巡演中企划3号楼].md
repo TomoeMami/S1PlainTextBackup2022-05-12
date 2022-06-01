@@ -17768,3 +17768,15 @@ ins更新一张老图
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 8832#       发表于 2022-6-1 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56080378&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-1 13:14</a>
+
+关于二期主视图香音幻视成巨人的梗，这两条笑死我了</blockquote>
+不带那四个玩真是斯巴拉西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

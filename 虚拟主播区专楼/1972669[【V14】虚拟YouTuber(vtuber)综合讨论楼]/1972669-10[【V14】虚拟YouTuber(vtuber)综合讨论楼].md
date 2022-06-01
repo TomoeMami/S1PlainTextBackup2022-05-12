@@ -6472,3 +6472,12 @@ ngo和莎天酱这种二次元/艺能梗于日本人应该是更常识类的内�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莎乐美本来应该比vta组早出道，是实质前辈，不走vta流程也很正常啊
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14116#       发表于 2022-6-1 15:10
+
+莎皇增速下山了，兔头能活到下个礼拜了
+

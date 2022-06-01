@@ -14494,3 +14494,31 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 新世界篇有独立篇章还负塑造的老船员就此一家了。</blockquote>
 我恰恰觉得就山治这章的胜利是可以算正面描写的，人设完全立住了。
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 58225#       发表于 2022-6-1 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081706&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-1 15:09</a>
+
+我恰恰觉得就山治这章的胜利是可以算正面描写的，人设完全立住了。</blockquote>
+我保留看法，这段我感性和理性上都觉得行为逻辑不知所谓，只当没发生过。
+
+*****
+
+####  yeluffy  
+##### 58226#       发表于 2022-6-1 15:13
+
+<blockquote>仟音一心 发表于 2022-6-1 13:35
+有霸王色就比这俩强了吧。</blockquote>
+不一定，毕竟青椒也会霸王色
+
+*****
+
+####  战栗的小六  
+##### 58227#       发表于 2022-6-1 15:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面基本没有中boss了吧，鬼岛这一波叠盒子皇副以下理论上不都是被路飞一拳头秒的
+
