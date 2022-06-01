@@ -6650,3 +6650,30 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 其实食杀月之还好，食杀黑黑才是大乐子
 不知道有没有机会看到
 
+
+
+*****
+
+####  Ketestrait  
+##### 14131#       发表于 2022-6-1 17:32
+
+ 本帖最后由 Ketestrait 于 2022-6-1 17:35 编辑 
+
+日本市场的上限+黑黑摁打游戏的稳定下限在那儿，我觉得至少很长一段时间内没戏。当然实际还得看slm在bio7之后拿出什么样的东西来
+
+*****
+
+####  443421870  
+##### 14132#       发表于 2022-6-1 17:35
+
+万一一百天就钻石盾呢，要相信莎皇<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  好想吃麦乐鸡  
+##### 14133#       发表于 2022-6-1 17:39
+
+到目前为止月之还是自带护城河护体的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">这下要看引流来的乐子人给不给力了
+
