@@ -14338,3 +14338,14 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 但如果真入伙了大概就差不多吧
 
+
+
+*****
+
+####  战栗的小六  
+##### 58211#       发表于 2022-6-1 13:47
+
+大和能跟凯多正面互怼半天的表现已经比索隆山治高一截了。
+
+除非后面打补丁K Q和凯多的差距没有那么大<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不过要讨论这个无论如何也绕不开凯多秒四档路飞的那一棒子
+
