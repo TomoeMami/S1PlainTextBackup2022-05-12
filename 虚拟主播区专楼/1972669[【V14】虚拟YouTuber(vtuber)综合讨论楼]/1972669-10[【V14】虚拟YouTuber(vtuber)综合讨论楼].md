@@ -6709,3 +6709,26 @@ syl，所以我说slm“梗小鬼”，别真是月之复刻
 
 虽然现在说还有点早，但我已经迫不及待想看3D化了，机师身体能力是验证我猜想的重要一环
 
+
+
+*****
+
+####  winda  
+##### 14138#       发表于 2022-6-1 18:54
+
+<blockquote>デマやぞ
+
+というかあの箱の芸風でメンバー同士仲悪いは無理ある
+
+まあのあがボッチとか新人2人が干渉しないとか細かいのはある</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/01/185350a9fhs79sdcu3nfpf.jpg" referrerpolicy="no-referrer">
+
+<strong>20220601_184028.jpg</strong> (38.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 18:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">昨天刚看串里说箱内不仲就有例子了
+
