@@ -13136,3 +13136,45 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88137#       发表于 2022-6-1 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087438&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 22:27</a>
+
+有人说画了眼妆后像全职猎人的西索...
+
+不过宝具动画配上那个衣服，有种鲁鲁修的感觉。</blockquote>
+是挺像西索的，宝具像是在炒股<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88138#       发表于 2022-6-1 22:37
+
+<blockquote>保罗赫伯特 发表于 2022-6-1 22:35
+是挺像西索的，宝具像是在炒股</blockquote>
+不愧是数学教授，能炒得满屏红。
+
+羡慕啊～
+
+*****
+
+####  Jamaisvu  
+##### 88139#       发表于 2022-6-1 22:37
+
+克里姆希尔德好像是剧情限定，想要的还是趁现在抽抽吧。
+
+*****
+
+####  gpx234mqx  
+##### 88140#       发表于 2022-6-1 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087356&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-6-1 22:22</a>
+
+难得豹跳一次，10发11连夏露露3飞嫂3罗兰1，看来当初的extellalinks的首发限定大盒没白买三人卡面总 ...</blockquote>
+下次万圣节出学士如何啊
+
