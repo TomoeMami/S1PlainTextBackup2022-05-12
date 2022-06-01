@@ -14461,3 +14461,36 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 两年后容貌大削，个人篇章搞成这样还不如走一开始的帅痞路线呢，尾田也许是觉得原来的方向俗套想弄得更有 ...</blockquote>
 与其说想显得有个性，不如说跟御田的角色结构异曲同工，不合适的人设强行套过去的篇章套路引起的，委曲求全不就是过去独自一人的罗宾那套嘛，但当时的山治是什么人设，总不会也不该是孤立无援，待救，对自己人出重拳的公主。
 
+
+
+*****
+
+####  klzxs  
+##### 58222#       发表于 2022-6-1 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">厨子怎么就负塑造了
+
+蛋糕岛战斗上可能是窝囊了一点，但性格表现挺好的啊
+
+鬼岛这里踩爆了战斗服评价也不错
+
+*****
+
+####  仟音一心  
+##### 58223#       发表于 2022-6-1 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081269&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-6-1 14:34</a>
+
+厨子真的不是人</blockquote>
+不至于，山治的描写真的算和之国为数不多的亮点了，也明显是最花心思的。
+
+*****
+
+####  仟音一心  
+##### 58224#       发表于 2022-6-1 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081372&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-6-1 14:41</a>
+
+新世界篇有独立篇章还负塑造的老船员就此一家了。</blockquote>
+我恰恰觉得就山治这章的胜利是可以算正面描写的，人设完全立住了。
+

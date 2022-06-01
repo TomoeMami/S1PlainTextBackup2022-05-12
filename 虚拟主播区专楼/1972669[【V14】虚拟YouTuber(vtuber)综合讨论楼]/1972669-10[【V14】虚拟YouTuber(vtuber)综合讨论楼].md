@@ -6453,3 +6453,22 @@ ngo和莎天酱这种二次元/艺能梗于日本人应该是更常识类的内�
 
 冠军粉杏奴被虹再吸回去是好事，这种粉丝狗都不要
 
+
+
+*****
+
+####  CielChloe  
+##### 14114#       发表于 2022-6-1 15:01
+
+ 本帖最后由 CielChloe 于 2022-6-1 15:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56081306&amp;ptid=1972669" target="_blank">空集 发表于 2022-6-1 14:37</a>
+这云p有点太莫名了 导致我本来想防沉迷几天管人论坛都实在憋不住要说一下这段实在是抓着个例吹规律，珊瑚本 ...</blockquote>
+编辑
+
+*****
+
+####  winda  
+##### 14115#       发表于 2022-6-1 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莎乐美本来应该比vta组早出道，是实质前辈，不走vta流程也很正常啊
+
