@@ -14388,3 +14388,13 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 大和御田位的话，强度应该不用说吧，御田和雷利怎么比。
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 58216#       发表于 2022-6-1 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56079847&amp;ptid=98922" target="_blank">蚊仔蚊仔蚊仔 发表于 2022-6-1 12:33</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨子真的不是人
+
