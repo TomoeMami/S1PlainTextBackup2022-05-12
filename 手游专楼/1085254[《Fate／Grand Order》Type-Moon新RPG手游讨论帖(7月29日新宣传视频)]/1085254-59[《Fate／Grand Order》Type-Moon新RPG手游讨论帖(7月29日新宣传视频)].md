@@ -12748,3 +12748,55 @@ A1的动画真的很蚌埠住，成年版查理曼（
 
 彩光 狂背 塔喵<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88105#       发表于 2022-6-1 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086159&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-1 21:09</a>
+
+无敌能给别人。</blockquote>
+嗯，那还可以，比较灵活...也算是不负限定的强度和花样了...
+
+*****
+
+####  eden_hazard  
+##### 88106#       发表于 2022-6-1 21:12
+
+90石1个查理曼1个克姐收工。
+
+我对这章的人物没啥兴趣，下个池子也没女人，可以继续摸鱼了，希望剧情能整点让我提起精神的好活
+
+*****
+
+####  Jamaisvu  
+##### 88107#       发表于 2022-6-1 21:17
+
+<img src="https://img.saraba1st.com/forum/202206/01/211723k61k1fkkbark9n9z.jpg" referrerpolicy="no-referrer">
+
+<strong>C0D4CBBC1461771EE98F83F8CF9C038A.jpg</strong> (183.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/211724e2fupm5epv5vamfe.jpg" referrerpolicy="no-referrer">
+
+<strong>ED0D35F2DD877B69D4CF892CC39BA937.jpg</strong> (175.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/211725r3dp0300sgg2q2ga.jpg" referrerpolicy="no-referrer">
+
+<strong>A35CA5F2E676F5A8B2B69D99C6091327.jpg</strong> (200.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 21:17 上传
+
+Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
+
