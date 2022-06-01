@@ -14249,3 +14249,92 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 大和应该要改回自己的本名拿出自己的梦想才配做船员吧，</blockquote>
 大和是船员中第一个实现梦想的，就是COSPLAY御田爹
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58201#       发表于 2022-6-1 12:33
+
+<img src="https://p.sda1.dev/6/6ce5f486273bacb04513598e2680bbfc/CMP_20220601123336237.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Algie  
+##### 58202#       发表于 2022-6-1 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56079289&amp;ptid=98922" target="_blank">⊙天上天下 发表于 2022-06-01 11:54:06</a>
+后面的章节比和之国还烂应该不太可能</blockquote>就尾田现在的样子整更大的烂活只是时间问题
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  团结奋进碇真嗣  
+##### 58203#       发表于 2022-6-1 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56078504&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-1 11:02</a>
+能力效果只有一个月的时效 这设定真的太随意了
+
+既然只有一个月时效那之前用的时候还哭成智障一样为了啥…
+
+ ...</blockquote>
+应该是丸子小玉只顶一个月吧
+那个催熟忍者叫什么来着，记得催熟的时候说是不可逆的
+
+*****
+
+####  Eric_方歌阙  
+##### 58204#       发表于 2022-6-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56079289&amp;ptid=98922" target="_blank">⊙天上天下 发表于 2022-6-1 11:54</a>
+
+后面的章节比和之国还烂应该不太可能</blockquote>
+辉夜大佛篇刚结束我也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yeluffy  
+##### 58205#       发表于 2022-6-1 13:20
+
+不和路飞索隆比，所以大和山治甚平战斗力怎么排？
+
+*****
+
+####  逸yi  
+##### 58206#       发表于 2022-6-1 13:27
+
+翻页
+
+*****
+
+####  仟音一心  
+##### 58207#       发表于 2022-6-1 13:30
+
+。
+
+*****
+
+####  逸yi  
+##### 58208#       发表于 2022-6-1 13:34
+
+尾田要不还是早点退休出点脚本让别人画吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 58209#       发表于 2022-6-1 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56080449&amp;ptid=98922" target="_blank">yeluffy 发表于 2022-6-1 13:20</a>
+不和路飞索隆比，所以大和山治甚平战斗力怎么排？</blockquote>
+有霸王色就比这俩强了吧。
+
+*****
+
+####  klzxs  
+##### 58210#       发表于 2022-6-1 13:39
+
+只说鬼岛表现大和远强于索隆三治
+
+但如果真入伙了大概就差不多吧
+
