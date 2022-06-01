@@ -13247,3 +13247,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 剧限好哇，等下一次自选了，为什么没单Up啊艹
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88148#       发表于 2022-6-1 23:34
+
+飞嫂对话说了布伦希尔德和这边故事的布伦希尔德长像，声音，性格都完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
