@@ -12253,3 +12253,98 @@ FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻
 
 不过宝具动画有点普通，剑兰宝具改版前的感觉...
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88062#       发表于 2022-6-1 20:02
+
+第一期卡池3个
+
+屏幕截图 2022-06-01 195256.png
+(125.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/200144jz66yso8soedz3oq.png" referrerpolicy="no-referrer">
+
+屏幕截图 2022-06-01 195135.png
+(139.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/200146tt4gw34ccwikbtbt.png" referrerpolicy="no-referrer">
+
+屏幕截图 2022-06-01 195358.png
+(147.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/200147w8w9d2ffrdr8om7d.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 88063#       发表于 2022-6-1 20:03
+
+夏露露和飞嫂一个池子，可以直接抽爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88064#       发表于 2022-6-1 20:03
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 20:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085021&amp;ptid=1085254" target="_blank">الطائر 发表于 2022-6-1 19:59</a>
+
+去掉罗兰下巴上像胡子的不明物体还是可以看的</blockquote>
+应该是盔甲的护颈吧，做的高一点可以护喉...宝具动画可以看出下巴上并没有东西...
+
+*****
+
+####  angelooo  
+##### 88065#       发表于 2022-6-1 20:04
+
+罗兰百分百压稿，也没期待过，飞哥老婆这一身，真未亡人，从未设想过的配色，查理曼无感，剩下没出的俩也没兴趣，结论是省钱了
+
+*****
+
+####  Jamaisvu  
+##### 88066#       发表于 2022-6-1 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085056&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-6-1 20:03</a>
+
+夏露露和飞嫂一个池子，可以直接抽爆了话说cm结尾的小丑好棒啊，我就喜欢这种，不知道二池会不会落 ...</blockquote>
+就是闪电呆毛哥嘛，一定会落地的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">希望剧情里塑造的好点，恶役控狂喜。
+
+*****
+
+####  yangun22  
+##### 88067#       发表于 2022-6-1 20:06
+
+6月下旬居然不是泳装复刻而是新活动，要过2.3，背景里那几个中国风的大概要出来了
+
+*****
+
+####  kyonkoism  
+##### 88068#       发表于 2022-6-1 20:08
+
+A1的动画真的很蚌埠住，成年版查理曼（
+
+*****
+
+####  khxooo  
+##### 88069#       发表于 2022-6-1 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56085099&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-6-1 20:06</a>
+
+6月下旬居然不是泳装复刻而是新活动，要过2.3，背景里那几个中国风的大概要出来了 ...</blockquote>
+是2.3的回顾，应该没有活动<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

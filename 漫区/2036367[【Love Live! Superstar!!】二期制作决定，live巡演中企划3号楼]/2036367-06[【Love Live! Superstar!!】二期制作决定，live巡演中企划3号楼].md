@@ -17979,3 +17979,15 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非她一点个人活动都不搞
 
+
+
+*****
+
+####  星降る森  
+##### 8848#       发表于 2022-6-1 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56084479&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-1 19:02</a>
+
+大熊还没开推，总不能是本人不想开推吧………………</blockquote>
+不想开也不是没先例，哪怕是LL，也有小宫这种晚9个月才去开号的人
+
