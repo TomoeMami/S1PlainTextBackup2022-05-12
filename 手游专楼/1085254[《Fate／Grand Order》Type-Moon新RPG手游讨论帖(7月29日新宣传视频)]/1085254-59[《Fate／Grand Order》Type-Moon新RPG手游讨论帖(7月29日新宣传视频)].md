@@ -13310,3 +13310,23 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 四十连两个克里姆希尔德，感觉够用...希望贞德别把我抽教授的欧气吸走（这俩同职介而且配卡同色...）。
 
+
+
+*****
+
+####  仟音一心  
+##### 88152#       发表于 2022-6-2 00:01
+
+ 本帖最后由 仟音一心 于 2022-6-2 00:03 编辑 
+
+马娘还真的是桑丘潘沙、驽骍难得和杜尔西内娅合起来的
+
+84126B67-9CC1-48F9-8D3A-CE050A02E4B4.jpeg
+(292.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-2 00:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/02/000139p2x459x2g7hv6sq4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
