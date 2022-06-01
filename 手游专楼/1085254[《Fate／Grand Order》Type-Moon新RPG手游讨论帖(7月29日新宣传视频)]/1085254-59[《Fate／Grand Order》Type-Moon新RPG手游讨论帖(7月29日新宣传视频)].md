@@ -13178,3 +13178,36 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 难得豹跳一次，10发11连夏露露3飞嫂3罗兰1，看来当初的extellalinks的首发限定大盒没白买三人卡面总 ...</blockquote>
 下次万圣节出学士如何啊
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88141#       发表于 2022-6-1 22:39
+
+查理曼的圣骑士帝EX加np才30%，见鬼了
+
+*****
+
+####  gpx234mqx  
+##### 88142#       发表于 2022-6-1 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56087591&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 22:37</a>
+
+克里姆希尔德好像是剧情限定，想要的还是趁现在抽抽吧。</blockquote>
+对的，而且加np50，好用
+
+*****
+
+####  J-002  
+##### 88143#       发表于 2022-6-1 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">20呼符仨金剑……妹子不来……
+
+*****
+
+####  sosgame67  
+##### 88144#       发表于 2022-6-1 22:59
+
+没金时是可以考虑抽抽飞哥老婆，不过一想大部分情况我上faker也能解决，懒得搞了，30呼符1罗兰跑路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看看周年啥玩意吧..攒石攒的抽卡都没动力了
+
