@@ -13211,3 +13211,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 没金时是可以考虑抽抽飞哥老婆，不过一想大部分情况我上faker也能解决，懒得搞了，30呼符1罗兰跑路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看看周年啥玩意吧..攒石攒的抽卡都没动力了
 
+
+
+*****
+
+####  qixinno2  
+##### 88145#       发表于 2022-6-1 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">60抽终于抽到妹子了 太非了60抽除了妹子一个金卡从这没出
+
