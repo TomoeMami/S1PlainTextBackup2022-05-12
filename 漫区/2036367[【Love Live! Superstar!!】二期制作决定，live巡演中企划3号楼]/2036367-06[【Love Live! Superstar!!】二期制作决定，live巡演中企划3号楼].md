@@ -17931,3 +17931,21 @@ ins更新一张老图
 
 干过那么多年 怎么也不至于稀碎吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着黑红也是红另说
 
+
+
+*****
+
+####  lj205  
+##### 8843#       发表于 2022-6-1 16:54
+
+明明老牌偶像怎么老是看着笑的那么别扭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8844#       发表于 2022-6-1 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56082913&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-6-1 16:45</a>
+高强度营业也有两种理解的方向嘛，一种理解是很心机很假，还有一种是她很渴望得到支持和认同，这么 ...</blockquote>
+当过偶像的话，最多是唱功不行，跳一般不太可能差的。
+
