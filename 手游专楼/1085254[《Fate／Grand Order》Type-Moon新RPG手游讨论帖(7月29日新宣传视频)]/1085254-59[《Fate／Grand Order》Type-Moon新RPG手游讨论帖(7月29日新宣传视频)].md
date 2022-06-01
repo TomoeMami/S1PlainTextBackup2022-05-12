@@ -12030,3 +12030,17 @@ EF枪大公没有吸血鬼的记忆，完全是人类的记忆
 
 攻击才是最大防御<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把攻城部队都杀了就不用守城了
 
+
+
+*****
+
+####  exiaexa  
+##### 88037#       发表于 2022-6-1 14:55
+
+维护前上去种树才发现原来这个守城还有后面几关
+
+还没打就维护了，反正也没用过兽爪
+
+告辞
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
