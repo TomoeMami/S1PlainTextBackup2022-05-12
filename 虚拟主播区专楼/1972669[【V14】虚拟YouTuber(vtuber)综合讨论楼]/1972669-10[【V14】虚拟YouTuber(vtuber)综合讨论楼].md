@@ -7174,3 +7174,23 @@ vox依旧是sc的皇，en男还在赢<img src="https://static.saraba1st.com/imag
 
 <img src="https://p.sda1.dev/6/9bd81150aac480e29c2af6b9a70a6586/image.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Nichtig  
+##### 14184#       发表于 2022-6-1 23:56
+
+纯闲聊直播第一次有这水平其实我觉得也还行吧，
+
+可能是因为对标同接导致期待太高了（大概）。
+
+可以再观望几次看看闲聊力会不会涨，聊天素材准备什么的，和评论的互动的能力什么的。
+
+*****
+
+####  winda  
+##### 14185#       发表于 2022-6-1 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你虹不开会员不开sc不出生日谷的都大有人在，少个生日无所谓的
+
