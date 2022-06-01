@@ -12834,3 +12834,64 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 希望2.7的烟雾镜能画得好看点...不过广江礼威现在的画风有点怪...
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88111#       发表于 2022-6-1 21:26
+
+查理曼和FEL没啥区别
+
+5107633F-BE79-4A37-8D81-9D51AE1AE87F.jpeg
+(1.29 MB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/212604kd4fvw556jpftrwf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88112#       发表于 2022-6-1 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086485&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 21:24</a>
+
+嗯...卫星有娘化杂贺孙市和疑似吕布的铠甲人以及女教皇和一个粉毛妹子，三期卡池存疑？
+
+突然感觉没啥兴趣 ...</blockquote>
+加上卡尔大帝，这次出两个裁定不可能吧
+
+*****
+
+####  gpx234mqx  
+##### 88113#       发表于 2022-6-1 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086485&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-1 21:24</a>
+
+嗯...二期大概是五星ruler莫里亚蒂，四星Lancer唐吉诃德，三星caster张角。
+
+卫星有娘化杂贺孙市和疑似吕布 ...</blockquote>
+大帝这次莫非没有
+
+*****
+
+####  Jamaisvu  
+##### 88114#       发表于 2022-6-1 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56086616&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-1 21:32</a>
+
+大帝这次莫非没有</blockquote>
+大帝估计就只有立绘了吧...说不定将来联动fate extella时候再实装？
+
+*****
+
+####  kuarwbwe  
+##### 88115#       发表于 2022-6-1 21:38
+
+查理曼画的挺好的。但我肯定不会抽。
+
+飞嫂只看剪影很期待，实际很失望，本来以为是哪家公主骑士的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
