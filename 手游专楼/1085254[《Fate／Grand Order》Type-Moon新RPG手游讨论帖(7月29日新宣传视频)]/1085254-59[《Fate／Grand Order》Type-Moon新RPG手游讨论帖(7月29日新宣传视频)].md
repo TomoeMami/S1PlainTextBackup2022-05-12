@@ -12062,3 +12062,81 @@ EF枪大公没有吸血鬼的记忆，完全是人类的记忆
 
 悠木碧这个造型已经很久了…
 
+
+
+*****
+
+####  exiaexa  
+##### 88040#       发表于 2022-6-1 19:41
+
+草，卡多克这颜值
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 88041#       发表于 2022-6-1 19:41
+
+卡多克出来了
+
+*****
+
+####  Jamaisvu  
+##### 88042#       发表于 2022-6-1 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56021211&amp;ptid=1085254" target="_blank">الطائر 发表于 2022-5-27 23:15</a>
+
+FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻想两方面的记忆，人物介绍里写着“出处：《德古 ...</blockquote>
+弗拉德三世真的被奶中了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88043#       发表于 2022-6-1 19:43
+
+卡多克新造型还挺帅...不过我印象里这家伙挺无能的...不会是每章必备的送人头角色吧...
+
+*****
+
+####  Jamaisvu  
+##### 88044#       发表于 2022-6-1 19:43
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 19:46 编辑 
+
+克里姆希尔德来了，有点哥特萝莉风。
+
+*****
+
+####  Jamaisvu  
+##### 88045#       发表于 2022-6-1 19:44
+
+ 本帖最后由 Jamaisvu 于 2022-6-1 19:48 编辑 
+
+卡尔大帝也来了，虽然只是黑影，但是手下有阿福。
+
+可能前半段作为反派交战，后期查理曼出来救场吧。
+
+不过之前预告里的影子貌似没有卡尔...也许是以后再实装？总不能查理曼突破变卡尔吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 88046#       发表于 2022-6-1 19:46
+
+跟君11在一起的女教皇是谁，约翰娜？
+
+*****
+
+####  khxooo  
+##### 88047#       发表于 2022-6-1 19:46
+
+飞哥老婆应该会是仇阶吧
+
+*****
+
+####  exiaexa  
+##### 88048#       发表于 2022-6-1 19:49
+
+这新礼装，士郎和凛换色可还行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
