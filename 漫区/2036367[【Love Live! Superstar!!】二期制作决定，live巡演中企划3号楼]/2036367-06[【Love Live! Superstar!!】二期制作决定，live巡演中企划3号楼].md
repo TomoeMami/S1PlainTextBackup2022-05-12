@@ -17730,3 +17730,30 @@ ins更新一张老图
 由手机上传
 2022-6-1 12:46 上传
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8830#       发表于 2022-6-1 13:14
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-6-1 13:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">关于二期主视图香音幻视成巨人的梗，这两条笑死我了
+
+<img src="https://img.saraba1st.com/forum/202206/01/131558fu5dq99mjd9dm100.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/131425erdyi3adkob5uaad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 13:14 上传
+
