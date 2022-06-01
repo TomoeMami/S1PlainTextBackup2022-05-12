@@ -757,3 +757,25 @@
 
 — from Xiaomi Mi 10, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  缺失的伙伴  
+##### 83#         楼主| 发表于 2022-6-2 06:28
+
+<blockquote>最终流放 发表于 2022-6-2 05:55
+看得出你病情不轻了向你的老公表达敬意</blockquote>
+感谢国家纳入集中采购医保，我每个月药从一千降到几十
+
+*****
+
+####  缺失的伙伴  
+##### 84#         楼主| 发表于 2022-6-2 06:30
+
+<blockquote>luguozmy 发表于 2022-6-2 06:01
+哇喔，200斤17岁吗
+
+— from Xiaomi Mi 10, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+我也150多斤呢
+
