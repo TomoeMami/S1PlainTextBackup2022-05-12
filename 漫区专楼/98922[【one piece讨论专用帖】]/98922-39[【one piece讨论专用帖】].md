@@ -14349,3 +14349,17 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 除非后面打补丁K Q和凯多的差距没有那么大<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不过要讨论这个无论如何也绕不开凯多秒四档路飞的那一棒子
 
+
+
+*****
+
+####  tyauto  
+##### 58212#       发表于 2022-6-1 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56080772&amp;ptid=98922" target="_blank">战栗的小六 发表于 2022-6-1 13:47</a>
+
+大和能跟凯多正面互怼半天的表现已经比索隆山治高一截了。
+
+除非后面打补丁K Q和凯多的差距没有那么大[f:049 ...</blockquote>
+按尾田的设定强迫症入伙后肯定属性数值重制<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
