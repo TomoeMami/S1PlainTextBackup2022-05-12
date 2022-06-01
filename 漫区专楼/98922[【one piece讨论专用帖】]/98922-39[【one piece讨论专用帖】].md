@@ -14531,3 +14531,21 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 五皇名声有了，后面别打打杀杀了，整点日常多去几个岛，最后到达拉夫德鲁来个总决战得了。
 
+
+
+*****
+
+####  谢皮利男爵  
+##### 58229#       发表于 2022-6-1 15:51
+
+提到山治 那个在象岛入侵时被山治撩的粉毛妹子去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+06751b3f56f6d7aed52cf7d5ecb4ee09.png
+(40.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-1 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202206/01/155058s5562lb0031frbf9.png" referrerpolicy="no-referrer">
+
