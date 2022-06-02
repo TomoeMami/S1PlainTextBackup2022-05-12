@@ -13660,3 +13660,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 然而你强力卡补宝欧的一批 我就只能抽各种怪东西</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉!
 
+
+
+*****
+
+####  森兰丸  
+##### 88182#       发表于 2022-6-2 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">昨天忙了1天.....才刚开始推新主线....最意外的是竟然真让卡多克转正啊....还真敢这么玩？？
+
