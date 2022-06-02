@@ -1335,3 +1335,30 @@ LZ 的老公真的爱你，愿意为你这种不经过深思熟虑的事情买�
 你老公好惨，建议离婚放他一马，不想离婚请不要这么公主病，说真的没看出来什么精神疾病，只觉得你是个公主 ...</blockquote>
 因为老公替我收拾烂摊子十几年了。我又不是不想离婚，我犯病的时候尤其想离婚，净身出户。我老公也知道我想离婚。最近我朋友怀孕了也想生完孩离婚一个人过。我们没有离婚，可能是很清楚离婚不会是结束吧。对于彼此认定是灵魂伴侣的人来说，世俗的很多事情，和幸福是无关的。
 
+
+
+*****
+
+####  disjoint  
+##### 147#       发表于 2022-6-2 09:37
+
+ghg一直不是很能理解，彼此不过是陌生网友，只不过性别相同就这么死心塌地的帮助对方啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">同情心泛滥的好严重，以及泥潭真是人均精神不安定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  anubis_s08  
+##### 148#       发表于 2022-6-2 09:37
+
+感觉在看miao5<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  缺失的伙伴  
+##### 149#         楼主| 发表于 2022-6-2 09:39
+
+<blockquote>disjoint 发表于 2022-6-2 09:37
+ghg一直不是很能理解，彼此不过是陌生网友，只不过性别相同就这么死心塌地的帮助对方啊同情心泛滥的 ...</blockquote>
+我整个童年和青春期，都没有办法有一个稳定的学业跟交友，所以交友有很大问题。也有遗传的问题，我爸爸妈妈都没有朋友。我妈妈有自杀历史，外婆那一辈有人智障，所以我觉得就是遗传没跑。
+
