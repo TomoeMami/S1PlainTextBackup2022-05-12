@@ -7560,3 +7560,27 @@ syl
 御伽原江良</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">鬼叫不爱听
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14218#       发表于 2022-6-2 21:40
+
+老虹人可以不看莎皇，但是路过莎皇频道的时候，记得深深鞠一躬。
+
+<img src="https://img.saraba1st.com/forum/202206/02/214007ou9zsuoa33o6ooau.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (32.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-2 21:40 上传
+
+*****
+
+####  _Ra1nMaker  
+##### 14219#       发表于 2022-6-2 21:46
+
+闹呢，盒皇还有B站金盾，区区新人
+
