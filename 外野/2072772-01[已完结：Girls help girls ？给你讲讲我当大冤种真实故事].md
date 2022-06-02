@@ -2084,3 +2084,35 @@ lz好有钱也好舍得花钱啊……</blockquote>
 想看啥时候老公来S1发帖</blockquote>
 现充忙着生活，马上就要出门带小老弟们搞团建，有发帖的时间，早去赚钱了。
 
+
+
+*****
+
+####  Tienx  
+##### 213#       发表于 2022-6-2 18:16
+
+印象中只有信教的才会做这种事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杜微  
+##### 214#       发表于 2022-6-2 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们还真有耐心啊，这种挤牙膏还精神病的贴我都不敢多看，怕看着看着我自己暴躁起来了……
+
+*****
+
+####  缺失的伙伴  
+##### 215#         楼主| 发表于 2022-6-2 18:19
+
+<blockquote>Tienx 发表于 2022-6-2 18:16
+印象中只有信教的才会做这种事</blockquote>
+我婆婆信教，我是真的头脑不好。
+
+*****
+
+####  zihexing  
+##### 216#       发表于 2022-6-2 18:20
+
+割肉饲狗了属于是，好姐姐还是多打赏下我们这些穷坛友，至少我们还会多多赞美你
+

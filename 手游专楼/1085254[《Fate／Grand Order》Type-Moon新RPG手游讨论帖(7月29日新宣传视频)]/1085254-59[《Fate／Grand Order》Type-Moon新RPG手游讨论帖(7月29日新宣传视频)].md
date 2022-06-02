@@ -13727,3 +13727,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度感觉也一般 只能说绿卡 不行 红卡 行
 
+
+
+*****
+
+####  風卷豹  
+##### 88188#       发表于 2022-6-2 18:16
+
+夏露露不行是因为绿拐跟不上时代了，这次这么多绿，搞不好周年就是新绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
