@@ -13550,3 +13550,39 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 欧 羡慕 萌新丢了17张护符外加补了3发就一个罗兰</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我60抽只有一个寡妇 今天早上手贱又补了20抽出的夏露露
 
+
+
+*****
+
+####  alucardcz  
+##### 88171#       发表于 2022-6-2 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096489&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 14:52</a>
+
+我60抽只有一个寡妇 今天早上手贱又补了20抽出的夏露露</blockquote>
+这么欧的吗 太令人羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88172#       发表于 2022-6-2 15:18
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 88173#       发表于 2022-6-2 15:18
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 88174#       发表于 2022-6-2 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096541&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 14:57</a>
+
+这么欧的吗 太令人羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧个屁 感觉夏露露不如尺子教授强
+
