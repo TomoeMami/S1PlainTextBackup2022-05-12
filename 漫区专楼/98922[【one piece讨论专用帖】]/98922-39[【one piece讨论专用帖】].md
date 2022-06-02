@@ -14638,3 +14638,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">桃之助和御田一点也不像啊
 
+
+
+*****
+
+####  kilkilo  
+##### 58240#       发表于 2022-6-2 11:47
+
+确实跟他老爸不一样，还挺帅
+
