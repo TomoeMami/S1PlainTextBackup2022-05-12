@@ -13586,3 +13586,42 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 这么欧的吗 太令人羡慕了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧个屁 感觉夏露露不如尺子教授强
 
+
+
+*****
+
+####  alucardcz  
+##### 88175#       发表于 2022-6-2 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096886&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 15:19</a>
+
+欧个屁 感觉夏露露不如尺子教授强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么欧 都会出的
+
+*****
+
+####  areklose  
+##### 88176#       发表于 2022-6-2 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我挺想看寡妇和对不起的对手戏
+
+*****
+
+####  qixinno2  
+##### 88177#       发表于 2022-6-2 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096913&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 15:22</a>
+
+你这么欧 都会出的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有你欧 反正一宝光炮强度也就那样了 攒石头看新周年是什么卡了 坐等萌新十连满宝
+
+*****
+
+####  alucardcz  
+##### 88178#       发表于 2022-6-2 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56097012&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 15:27</a>
+
+没有你欧 反正一宝光炮强度也就那样了 攒石头看新周年是什么卡了 坐等萌新十连满宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新上次新卡已经不知道几几年了(
+
