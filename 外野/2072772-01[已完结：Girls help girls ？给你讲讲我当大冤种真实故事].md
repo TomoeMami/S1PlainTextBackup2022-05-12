@@ -1964,3 +1964,24 @@ lz好有钱也好舍得花钱啊……</blockquote>
 温饱，温饱</blockquote>
 (被窝)温(钱包)饱
 
+
+
+*****
+
+####  Roman  
+##### 203#       发表于 2022-6-2 15:43
+
+ 本帖最后由 Roman 于 2022-6-2 15:50 编辑 
+
+卧槽我网上冲浪这么多年怎么从来没遇到过lz这样的贴钱好人过<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+想了想，原来我才是贴钱的那个啊，那我明白了
+
+总结了下规律，好像是，
+
+愿意去要别人钱的总会遇到愿意给钱的
+
+而愿意给钱的总会遇到白嫖完还背刺的
+
+另外，感觉太贴吧风了，真的不是长风难度么<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

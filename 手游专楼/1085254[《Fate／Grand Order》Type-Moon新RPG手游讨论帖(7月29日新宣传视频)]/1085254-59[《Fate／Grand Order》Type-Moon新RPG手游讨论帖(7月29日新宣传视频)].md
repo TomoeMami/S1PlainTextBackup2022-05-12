@@ -13636,3 +13636,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 这次的池子不想抽查理曼，只想抽飞嫂，太有病我太喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88180#       发表于 2022-6-2 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56097045&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 15:29</a>
+
+萌新上次新卡已经不知道几几年了(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然而你强力卡补宝欧的一批 我就只能抽各种怪东西
+
