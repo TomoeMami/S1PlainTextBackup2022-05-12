@@ -14715,3 +14715,32 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 大桃子还挺帅的
 
+
+
+*****
+
+####  缺德猫  
+##### 58249#       发表于 2022-6-2 13:10
+
+桃子也太帅了，他爹也这么帅的话估计黑子会少一半。
+
+*****
+
+####  DGIL  
+##### 58250#       发表于 2022-6-2 13:14
+
+ 本帖最后由 DGIL 于 2022-6-2 13:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">尾田终于知道和之国篇的问题，除了剧情以外另外一个问题是角色颜值偏低，这大桃还挺帅，还是早就想用所有人垫桃之助
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但确实如大家所说，更像凯多
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">大和上船三天两头提御田想到人都麻了。。
+
+*****
+
+####  cdfjg  
+##### 58251#       发表于 2022-6-2 13:16
+
+完蛋，难道现在的御田传只是桃之助传的前传
+
