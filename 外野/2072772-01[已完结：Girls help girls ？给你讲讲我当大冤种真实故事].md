@@ -2197,3 +2197,23 @@ lz好有钱也好舍得花钱啊……</blockquote>
 
 楼主缺不缺保姆啊，本人精神健康活泼可爱进能陪聊退可自闭绝不打扰，给个地方吃住打点钱就行，不比女精神病划算？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  guoe  
+##### 224#       发表于 2022-6-2 23:48
+
+楼主是个好人
+
+你和200斤姑娘都是病友 就不要“互相帮助”啦 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺失的伙伴  
+##### 225#         楼主| 发表于 2022-6-2 23:49
+
+<blockquote>自主规制 发表于 2022-6-2 23:39
+楼主缺不缺保姆啊，本人精神健康活泼可爱进能陪聊退可自闭绝不打扰，给个地方吃住打点钱就行，不比女精神病 ...</blockquote>
+有阿姨了
+
