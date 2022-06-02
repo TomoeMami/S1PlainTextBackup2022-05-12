@@ -13445,3 +13445,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 大流士更恐怖</blockquote>
 劲爆大象部落<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88161#       发表于 2022-6-2 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 手贱把夏露露抽到了 寡妇还是1宝好气啊
+
