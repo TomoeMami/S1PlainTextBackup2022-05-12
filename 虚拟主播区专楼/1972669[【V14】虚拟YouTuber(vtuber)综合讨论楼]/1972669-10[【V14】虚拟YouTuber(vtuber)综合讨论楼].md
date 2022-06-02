@@ -7704,3 +7704,21 @@ cr cup估计改项目了
 
 ちょっと普通...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qesto  
+##### 14232#       发表于 2022-6-2 23:25
+
+莎皇这语气RP可能还是日本人看起来效果更好吧，国内可能没那么能get到🤔
+
+看B站切片热度也一般吧
+
+*****
+
+####  Ketestrait  
+##### 14233#       发表于 2022-6-2 23:29
+
+用お嬢様語念台词还是有趣的，观众对这点也很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
