@@ -1640,3 +1640,28 @@ NF17求指路
 太神奇了 吃药降智可逆吗</blockquote>
 我不太了解，因为我的药不降智，我是真的头脑不好
 
+
+
+*****
+
+####  牙狼GARO  
+##### 172#       发表于 2022-6-2 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56093252&amp;ptid=2072772" target="_blank">缺失的伙伴 发表于 2022-6-2 11:02</a>
+你说的这些我老公也都跟我说过呀，咨询师也说过的呀。但是，事已经做啦，钱也花啦，我也已经翻篇啦。我只 ...</blockquote>
+求求你别上路了，就当为江宁交通做贡献吧
+
+—— 来自 OnePlus LE2100, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ohi| + 1||
+
+查看全部评分
+
