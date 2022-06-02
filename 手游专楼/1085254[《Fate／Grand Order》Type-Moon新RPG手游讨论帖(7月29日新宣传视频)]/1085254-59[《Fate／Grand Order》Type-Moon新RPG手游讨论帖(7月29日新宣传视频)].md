@@ -13454,3 +13454,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 手贱把夏露露抽到了 寡妇还是1宝好气啊
 
+
+
+*****
+
+####  里村紅葉  
+##### 88162#       发表于 2022-6-2 09:54
+
+NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
