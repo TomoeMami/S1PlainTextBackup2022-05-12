@@ -7722,3 +7722,23 @@ cr cup估计改项目了
 
 用お嬢様語念台词还是有趣的，观众对这点也很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14234#       发表于 2022-6-2 23:31
+
+你虹没指派专人给ですわ小姐解决一下设备和推流的问题吗，好几次都卡卡的
+
+*****
+
+####  rzrbtk  
+##### 14235#       发表于 2022-6-2 23:38
+
+ 本帖最后由 rzrbtk 于 2022-6-2 23:40 编辑 
+
+同时看郡郡和莎天酱，两边都枪烂得我头疼！
+
+都没开sc怎么念，人在念制作人名字呢<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
