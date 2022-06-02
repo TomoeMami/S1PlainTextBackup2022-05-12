@@ -13395,3 +13395,14 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 罗伯：嗷呜呜，我要吃热狗呀！
 
+
+
+*****
+
+####  yzj134100  
+##### 88158#       发表于 2022-6-2 09:17
+
+30护肤加一发10连3个都来了<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

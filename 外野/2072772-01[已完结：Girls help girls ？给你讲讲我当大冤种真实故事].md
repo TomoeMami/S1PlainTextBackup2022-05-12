@@ -1275,3 +1275,23 @@ miao5活了?
 
 你长得很漂亮吗？
 
+
+
+*****
+
+####  Hanzong  
+##### 141#       发表于 2022-6-2 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56091333&amp;ptid=2072772" target="_blank">samesame 发表于 2022-6-2 08:50</a>
+我只想知道lz以后还往不往家里接网友2333这种事情在网络世界也不罕见啊，泥潭前几天不还出了个NF17么，虽然 ...</blockquote>
+NF17求指路
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  topnice  
+##### 142#       发表于 2022-6-2 09:21
+
+LZ 的老公真的爱你，愿意为你这种不经过深思熟虑的事情买单，是真爱。
+
