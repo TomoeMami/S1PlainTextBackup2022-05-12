@@ -1751,3 +1751,20 @@ LZ老公有躁狂症还能忍住你俩这么作，高低给整个吉尼斯世界
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">看标题完全想不到能这么离谱
 
+
+
+*****
+
+####  kemyes  
+##### 182#       发表于 2022-6-2 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这贴看下来，弄得我都有点精神病一样了
+
+*****
+
+####  蛋黄酱Release  
+##### 183#       发表于 2022-6-2 13:27
+
+我是说，有没有这样一种可能
+就是，这些都是楼主幻想出来的
+
