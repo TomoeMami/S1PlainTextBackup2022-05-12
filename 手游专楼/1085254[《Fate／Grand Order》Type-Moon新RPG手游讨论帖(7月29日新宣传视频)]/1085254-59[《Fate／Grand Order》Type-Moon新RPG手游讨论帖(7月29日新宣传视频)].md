@@ -13508,3 +13508,33 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 100多石抽到了夏露露，两个四星一个没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 88168#       发表于 2022-6-2 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56092915&amp;ptid=1085254" target="_blank">凌云三才 发表于 2022-6-2 10:38</a>
+
+有没有打了剧情的？2.65剧情大概什么水平，比2.6如何？不咋地我就SKIP了...</blockquote>
+昨天熬夜打完了，略微含剧透的我流评价（背景：个人跟这楼里的大部分常客一样，都觉得2.6写的不咋地）
+
+1.第二部主线部分，比2.6有长足提升，无论是Crypter和51区都有一定交代和补完，虽然填不上2.6的坑，但是给过渡到2.7开了个好头
+
+2.本章剧情描写，几乎是东出写作特点的collection，之前东出在一部一章、三章、五章、新宿、亚特兰蒂斯犯的一些毛病几乎被浓缩进了这一章；虽然优点也有整合，但他在2.1里展现出来的一些新的长处没有在这章体现。
+
+3.本章Trick设计和伏线回收，巧妙地圆了251神秘Archer的BUG，照顾了之前剧情中登场角色的伏线（看得出有些地方圆的方法是“后加”的设计），不过反而跟教授幕间产生了新的BUG。主线Trick设计的还算不错，最后高潮部分的对手戏还是有些看点的。
+
+整体来说要看你侧重什么部分去评价吧，对主线贡献、填坑方面肯定是265完胜的，但是如果你想追求的是描写的话，那2.6最早放出的第一部分还是不错的
+
+*****
+
+####  alucardcz  
+##### 88169#       发表于 2022-6-2 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56092125&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 09:48</a>
+
+艹 手贱把夏露露抽到了 寡妇还是1宝好气啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 萌新丢了17张护符就一个罗兰
+

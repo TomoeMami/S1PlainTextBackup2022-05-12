@@ -1857,3 +1857,28 @@ lz好有钱也好舍得花钱啊……</blockquote>
 大约是我冷无缺，朋友的朋友哪怕是闺蜜，对我来说也就是陌生人…… ...</blockquote>
 因为我朋友也是我网友呀，他们两个也有在聊天
 
+
+
+*****
+
+####  圆面包  
+##### 192#       发表于 2022-6-2 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096273&amp;ptid=2072772" target="_blank">缺失的伙伴 发表于 2022-6-2 14:40</a>
+
+因为我朋友也是我网友呀，他们两个也有在聊天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">大家花钱都好大方啊！！！
+
+要我为网友花几百块我都要再三考虑然后大概率还是不花 ！！
+
+*****
+
+####  缺失的伙伴  
+##### 193#         楼主| 发表于 2022-6-2 14:53
+
+<blockquote>圆面包 发表于 2022-6-2 14:44
+大家花钱都好大方啊！！！
+
+要我为网友花几百块我都要再三考虑然后大概率还是不花 ！！ ...</blockquote>
+对互联网投入太多真情实感是我们的缺点
+
