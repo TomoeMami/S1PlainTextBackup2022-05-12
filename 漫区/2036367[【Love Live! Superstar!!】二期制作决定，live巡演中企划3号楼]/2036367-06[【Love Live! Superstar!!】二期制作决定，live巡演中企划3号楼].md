@@ -18158,3 +18158,27 @@ ins更新一张老图
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 8858#       发表于 2022-6-2 20:04
+
+最近都在忙着排练和做宣传准备吧？哪有时间？再说本来她自己就是佛系宣传
+
+*****
+
+####  nufawneafg  
+##### 8859#       发表于 2022-6-2 20:07
+
+草进入发散成员推特环节了吗
+感觉这章我见过，不止一次<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8860#       发表于 2022-6-2 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浮游炮什么的快端上来吧 等不及了
+

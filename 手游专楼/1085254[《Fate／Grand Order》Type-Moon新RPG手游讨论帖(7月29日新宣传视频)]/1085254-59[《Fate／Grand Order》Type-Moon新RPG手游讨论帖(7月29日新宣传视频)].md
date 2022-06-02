@@ -13773,3 +13773,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 最后反过来怪拐不行，要点脸好吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88192#       发表于 2022-6-2 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">绿卡拐真的不知道能怎么设计了 感觉也就顶多加个黄金律群冲和强解耐性之类的玩意了吧
+
