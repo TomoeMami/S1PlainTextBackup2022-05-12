@@ -13782,3 +13782,29 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">绿卡拐真的不知道能怎么设计了 感觉也就顶多加个黄金律群冲和强解耐性之类的玩意了吧
 
+
+
+*****
+
+####  sosgame67  
+##### 88193#       发表于 2022-6-2 20:25
+
+嗨，给个群体充能buff的高威力泛用绿卡光炮好了嘛，辅助单独色卡的话绿卡一直是蓝卡的下位替代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 88194#       发表于 2022-6-2 20:28
+
+提个醒，C呆实装了以后回收最好那批蓝卡反而重要性大幅度下降了，新绿拐就算有得益的也是那批高自充
+
+*****
+
+####  alucardcz  
+##### 88195#       发表于 2022-6-2 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56100691&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 20:04</a>
+
+绿卡拐真的不知道能怎么设计了 感觉也就顶多加个黄金律群冲和强解耐性之类的玩意了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要个毛的黄金律 直接100群充+100缓冲 然后加个只有宝具为绿色才生效的限制
+
