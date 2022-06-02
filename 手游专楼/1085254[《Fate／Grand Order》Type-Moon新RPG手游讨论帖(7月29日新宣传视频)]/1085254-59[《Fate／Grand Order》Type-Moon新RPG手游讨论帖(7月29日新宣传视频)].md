@@ -13681,3 +13681,16 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 都是幻觉!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要幻觉
 
+
+
+*****
+
+####  v22325  
+##### 88184#       发表于 2022-6-2 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">?  
+
+怎么主角被张角抓住直接喊福尔摩斯和卡多克跑了……这局面怎么讲都要死保啊……要是个浑人直接一刀砍了立香呢
+
+记不大清楚了 这是不是第一次主角身边一个友军都没有被抓住的
+

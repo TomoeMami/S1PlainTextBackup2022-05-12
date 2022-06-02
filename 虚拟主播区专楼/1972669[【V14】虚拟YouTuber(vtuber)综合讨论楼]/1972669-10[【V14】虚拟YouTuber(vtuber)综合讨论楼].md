@@ -7424,3 +7424,33 @@ I want to fuck yelan so badly I'm gonna morb all over my subway footlong
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到藏东西了就害怕  别一藏藏到🎓了
 
+
+
+*****
+
+####  lhawp  
+##### 14206#       发表于 2022-6-2 17:04
+
+杂谈力还是比露露高不少的，至少能全程保持高语速
+当然不排除是事前大量准备的努力型选手，但这种对不少人而言也能算一个gachi点吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|非常像努力型|
+
+查看全部评分
+
+*****
+
+####  CielChloe  
+##### 14207#       发表于 2022-6-2 17:05
+
+我觉得没啥藏的了，基本上以后就是类似这几天的节奏直播游戏，甚至频率都会下降。
+有本事来个ASMR或者超美丽3D露手直播打我脸哈
+
