@@ -7495,3 +7495,14 @@ syl
 
 既然同是前偶像 那么唱跳功夫应该可以对标露露吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 14212#       发表于 2022-6-2 19:12
+
+【REBROADCAST UNARCHIVED KARAOKE】be prepared again【NIJISANJI EN | Selen Tatsuki】
+
+[https://youtu.be/2lVlbMt8Dxw](https://youtu.be/2lVlbMt8Dxw)
+
