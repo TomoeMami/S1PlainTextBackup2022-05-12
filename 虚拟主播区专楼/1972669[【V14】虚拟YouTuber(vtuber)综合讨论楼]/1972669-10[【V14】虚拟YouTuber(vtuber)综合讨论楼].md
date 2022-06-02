@@ -7884,3 +7884,41 @@ cr cup估计改项目了
 准时一个小时左右同接开始掉，我觉得观众也挺有问题的。</blockquote>
 把车开到山顶的时候就说“今天就到这了”，后面为了"Save In"又多播了十多分钟......
 
+
+
+*****
+
+####  rzrbtk  
+##### 14253#       发表于 2022-6-3 00:21
+
+ 本帖最后由 rzrbtk 于 2022-6-3 00:24 编辑 
+
+让我想起郡郡以前打游戏，从一开始一玩新游戏我就去看到后面整个系列完结才敢看，感觉那个态度真的很重要，一卡关就怒然后档改会限再无下文真的很折损兴趣，莎天酱玩得一坨最后还能说以后还想和观众一起online玩儿真是勇气可嘉，以后多玩这种涩涩的话和脏话都很多的游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，
+
+不过这个游戏力真的得锻炼一下了，感觉平时不太玩抢车球，学学月之前辈的游戏力增长吧！
+
+省一楼，我真不知道突然提很好的朋友里有一个是男人是什么意图<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 14254#       发表于 2022-6-3 00:21
+
+说完要下班直接从9w5掉到8w8，说明这7k是活人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 14255#       发表于 2022-6-3 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56103645&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-6-3 00:21</a>
+说完要下班直接从9w5掉到8w8，说明这7k是活人</blockquote>
+那剩下8w8里还有几个活人呢？你和我应该算其中两个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 14256#       发表于 2022-6-3 00:28
+
+你们觉得盒皇洗粉直播解决了多少问题？看的时候我感觉还挺好的，评论区的讨论又让我觉得隐患还在。
+

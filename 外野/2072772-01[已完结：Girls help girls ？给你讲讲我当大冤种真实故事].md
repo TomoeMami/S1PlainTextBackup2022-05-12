@@ -2263,3 +2263,12 @@ Up是怎么做到带人回家 然后你老公还支持你这种？
 
 你们一家人生活条件不错，好好吃药，好好拥抱生活，然后切断一下过于亲密的网络社交，保留距离，虽然看起来冷漠，但真的对双方都好，这是我事后最大的感悟，可怜人太多了，帮不完，过好自己的，给予力所能及的善意然后就带过去吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 230#       发表于 2022-6-3 00:24
+
+就像替身使者一样，精神病人也会互相吸引的，而且明明和正常人交流都有困难，却幻想同病相怜所以可以互相理解。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
