@@ -13703,3 +13703,27 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏露露这待遇不行啊 明明跟蛾子一样锁卡面 结果连个新宝具动画都没有
 
+
+
+*****
+
+####  exiaexa  
+##### 88186#       发表于 2022-6-2 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56098693&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 17:19</a>
+夏露露这待遇不行啊 明明跟蛾子一样锁卡面 结果连个新宝具动画都没有 ...</blockquote>
+没有新宝具动画也就算了，主要是三破模组太摸了，整张卡完成度最高的反而是一破模组
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88187#       发表于 2022-6-2 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56098889&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-2 17:34</a>
+
+没有新宝具动画也就算了，主要是三破模组太摸了，整张卡完成度最高的反而是一破模组
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度感觉也一般 只能说绿卡 不行 红卡 行
+
