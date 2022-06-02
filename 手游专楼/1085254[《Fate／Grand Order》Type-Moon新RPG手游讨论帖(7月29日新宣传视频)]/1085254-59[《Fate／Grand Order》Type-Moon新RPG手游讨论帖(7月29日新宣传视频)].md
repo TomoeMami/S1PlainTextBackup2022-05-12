@@ -13902,3 +13902,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 咕嗒一行人不认识阿福就离谱啊....1.5.2的剧情被吃了么
 
+
+
+*****
+
+####  里村紅葉  
+##### 88206#       发表于 2022-6-2 21:15
+
+这年轻教授怎么画成这样，我还以为是迦尔纳的COSPLAY<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
