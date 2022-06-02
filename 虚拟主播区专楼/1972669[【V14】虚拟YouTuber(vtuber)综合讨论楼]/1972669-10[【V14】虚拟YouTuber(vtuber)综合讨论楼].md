@@ -7306,3 +7306,12 @@ I want to fuck yelan so badly I'm gonna morb all over my subway footlong
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 这是可以说的吗？？
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14195#       发表于 2022-6-2 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然停播干嘛，被食杀的结局不会变的啊。
+
