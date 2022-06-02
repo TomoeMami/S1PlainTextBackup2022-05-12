@@ -13373,3 +13373,25 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 十连一查理曼2罗兰1b叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88157#       发表于 2022-6-2 08:58
+
+ 本帖最后由 Jamaisvu 于 2022-6-2 09:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56089096&amp;ptid=1085254" target="_blank">仟音一心 发表于 2022-6-2 00:13</a>
+
+罗兰绊礼装</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/02/085808kbsg3agsgs1o3yn3.png" referrerpolicy="no-referrer">
+
+<strong>疾驰.png</strong> (98.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-2 08:58 上传
+
+罗伯：嗷呜呜，我要吃热狗呀！
+
