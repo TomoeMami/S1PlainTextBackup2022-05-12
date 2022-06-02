@@ -2116,3 +2116,43 @@ lz好有钱也好舍得花钱啊……</blockquote>
 
 割肉饲狗了属于是，好姐姐还是多打赏下我们这些穷坛友，至少我们还会多多赞美你
 
+
+
+*****
+
+####  zeruitle  
+##### 217#       发表于 2022-6-2 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56091534&amp;ptid=2072772" target="_blank">abaan 发表于 2022-6-2 09:06</a>
+这个故事看下来给我的感觉就是精神病人间的互相吸引，一开头楼主为啥对小姑娘好在我看来就莫名其妙的，还直 ...</blockquote>
+这是什么替身使者的设定么。。。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  缺失的伙伴  
+##### 218#         楼主| 发表于 2022-6-2 18:26
+
+<blockquote>zihexing 发表于 2022-6-2 18:20
+割肉饲狗了属于是，好姐姐还是多打赏下我们这些穷坛友，至少我们还会多多赞美你 ...</blockquote>
+我完全可以请本地小姐妹喝咖啡请外地小姐妹外卖个奶茶啊，但是你心态不好，不要说什么打赏赞美什么的。我翻出来一瓶乳液没有用过，也可以送给你啊。
+
+<img src="https://img.saraba1st.com/forum/202206/02/182613yq0070t7frpqikr8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1AEFF17C-6439-4273-97BB-B8E49E361C04.jpeg</strong> (554.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-2 18:26 上传
+
+就普普通通大家一起开心一下呀
+
+*****
+
+####  缺失的伙伴  
+##### 219#         楼主| 发表于 2022-6-2 18:27
+
+唔，会不会过期了，如果真的要送我还要去看保质期
+

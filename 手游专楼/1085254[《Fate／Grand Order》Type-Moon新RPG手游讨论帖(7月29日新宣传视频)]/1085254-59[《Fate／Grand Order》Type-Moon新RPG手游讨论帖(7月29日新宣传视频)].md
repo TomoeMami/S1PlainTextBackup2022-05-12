@@ -13736,3 +13736,22 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 夏露露不行是因为绿拐跟不上时代了，这次这么多绿，搞不好周年就是新绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88189#       发表于 2022-6-2 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56099478&amp;ptid=1085254" target="_blank">風卷豹 发表于 2022-6-2 18:16</a>
+
+夏露露不行是因为绿拐跟不上时代了，这次这么多绿，搞不好周年就是新绿拐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一是3色拐呢
+
+*****
+
+####  森兰丸  
+##### 88190#       发表于 2022-6-2 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">劝张角做25仔的那个蜀将一开始以为是魏延....后来一想不对....是张松么
+
