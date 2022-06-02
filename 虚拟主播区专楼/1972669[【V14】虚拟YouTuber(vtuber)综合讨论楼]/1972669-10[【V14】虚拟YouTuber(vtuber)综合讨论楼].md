@@ -7863,3 +7863,24 @@ cr cup估计改项目了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼哥之后chat栏一堆safe笑死了
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 14251#       发表于 2022-6-3 00:11
+
+ 本帖最后由 布莱士·西伯利 于 2022-6-3 00:15 编辑 
+
+准时一个小时左右同接开始掉，我觉得观众也挺有问题的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 14252#       发表于 2022-6-3 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56103544&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-6-3 00:11</a>
+
+准时一个小时左右同接开始掉，我觉得观众也挺有问题的。</blockquote>
+把车开到山顶的时候就说“今天就到这了”，后面为了"Save In"又多播了十多分钟......
+
