@@ -13625,3 +13625,14 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 没有你欧 反正一宝光炮强度也就那样了 攒石头看新周年是什么卡了 坐等萌新十连满宝 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新上次新卡已经不知道几几年了(
 
+
+
+*****
+
+####  fireship  
+##### 88179#       发表于 2022-6-2 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这次的池子不想抽查理曼，只想抽飞嫂，太有病我太喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
