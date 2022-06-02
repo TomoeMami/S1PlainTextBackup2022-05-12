@@ -13499,3 +13499,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 暗示周年绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 88167#       发表于 2022-6-2 14:20
+
+100多石抽到了夏露露，两个四星一个没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
