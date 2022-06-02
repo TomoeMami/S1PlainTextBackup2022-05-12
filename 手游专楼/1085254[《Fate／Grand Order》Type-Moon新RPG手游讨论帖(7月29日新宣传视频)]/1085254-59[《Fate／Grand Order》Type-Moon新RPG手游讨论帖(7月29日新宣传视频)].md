@@ -13694,3 +13694,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 记不大清楚了 这是不是第一次主角身边一个友军都没有被抓住的
 
+
+
+*****
+
+####  qixinno2  
+##### 88185#       发表于 2022-6-2 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏露露这待遇不行啊 明明跟蛾子一样锁卡面 结果连个新宝具动画都没有
+
