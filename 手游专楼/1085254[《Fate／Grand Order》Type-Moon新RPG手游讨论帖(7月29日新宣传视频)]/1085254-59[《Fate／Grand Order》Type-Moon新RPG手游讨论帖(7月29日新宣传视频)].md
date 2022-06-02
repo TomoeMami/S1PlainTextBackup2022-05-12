@@ -13364,3 +13364,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 这尼玛两个新素材也太恶心了，连查理曼和飞哥老婆连再临都吃，升技能直接180,216
 
+
+
+*****
+
+####  千叶铁矢  
+##### 88156#       发表于 2022-6-2 08:41
+
+十连一查理曼2罗兰1b叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
