@@ -13406,3 +13406,42 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 —— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 88159#       发表于 2022-6-2 09:27
+
+<blockquote>Jamaisvu 发表于 2022-6-2 08:58
+罗伯：嗷呜呜，我要吃热狗呀！</blockquote>
+大流士更恐怖
+
+<img src="https://img.saraba1st.com/forum/202206/02/092732xufz6qjf1q10bat6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB70FD32-8E7B-40B9-863A-F2EAA67A1113.jpeg</strong> (268.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-2 09:27 上传
+
+<img src="https://img.saraba1st.com/forum/202206/02/092732wwszjulame3slplc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8E485EFC-2653-4406-B523-86F88333BDE2.jpeg</strong> (187.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-2 09:27 上传
+
+*****
+
+####  Jamaisvu  
+##### 88160#       发表于 2022-6-2 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56091830&amp;ptid=1085254" target="_blank">仟音一心 发表于 2022-6-2 09:27</a>
+
+大流士更恐怖</blockquote>
+劲爆大象部落<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
