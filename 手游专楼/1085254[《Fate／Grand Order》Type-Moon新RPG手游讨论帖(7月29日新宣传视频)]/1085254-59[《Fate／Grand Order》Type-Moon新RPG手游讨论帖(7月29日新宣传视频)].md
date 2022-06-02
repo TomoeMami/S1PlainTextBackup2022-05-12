@@ -13923,3 +13923,18 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 咕嗒一行人不认识阿福就离谱啊....1.5.2的剧情被吃了么</blockquote>
 按选的选项还可以不认识莫里亚蒂，大概考虑到1.5可以不打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 88208#       发表于 2022-6-2 22:26
+
+ 本帖最后由 森兰丸 于 2022-6-2 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56102292&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-6-2 22:09</a>
+
+按选的选项还可以不认识莫里亚蒂，大概考虑到1.5可以不打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">后面遇见徐福和剑刷也是一副第一次见面的样子就感觉很落寞.....明明玩家这边都这么熟悉了
+
+虽然这也是这辣鸡游戏剧情一贯的特色了
+
