@@ -13829,3 +13829,33 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 看隔壁君11厨纷纷破防，这可能是近年最惨的限定卡了吧，卡面微妙，宝具考据出错引出光速修复，宝具正脸特写 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？？？  昨天我记得还在说什么翅膀b格高 做的最好的正脸宝具。
 
+
+
+*****
+
+####  angelooo  
+##### 88198#       发表于 2022-6-2 20:52
+
+<blockquote>alucardcz 发表于 2022-6-2 20:45
+？？？  昨天我记得还在说什么翅膀b格高 做的最好的正脸宝具。</blockquote>
+当时不都在疯狂嘲笑宝具前面的城墙大片（不算错误的柱子）一转二次元尴尬特写，还两腿之间放光，君11本身的人体结构又画的很那啥
+
+*****
+
+####  qixinno2  
+##### 88199#       发表于 2022-6-2 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56101223&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 20:45</a>
+
+？？？  昨天我记得还在说什么翅膀b格高 做的最好的正脸宝具。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">君11不是夏露露啊
+
+*****
+
+####  angelooo  
+##### 88200#       发表于 2022-6-2 20:58
+
+<blockquote>alucardcz 发表于 2022-6-2 20:45
+？？？  昨天我记得还在说什么翅膀b格高 做的最好的正脸宝具。</blockquote>
+艹，才发现你说的是夏露露，毕竟强袭自由，五彩大炮看得我人都傻了
+
