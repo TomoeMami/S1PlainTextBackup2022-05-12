@@ -7637,3 +7637,17 @@ ojj的ea高规格土豆真的是……
 
 今晚对百万姐还蛮重要的。决定她以后是否可以迅速食杀兔头可能就在今晚。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 14225#       发表于 2022-6-2 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56102042&amp;ptid=1972669" target="_blank">443421870 发表于 2022-6-2 21:51</a>
+
+万一莎乐美来也能金盾呢
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+绝无可能，国内大部分观众又不吃这套<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

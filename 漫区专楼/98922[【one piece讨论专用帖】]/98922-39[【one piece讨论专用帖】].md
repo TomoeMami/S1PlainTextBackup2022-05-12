@@ -14904,3 +14904,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 不适
 
+
+
+*****
+
+####  icewolf01  
+##### 58269#       发表于 2022-6-2 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">桃子纯一个攫取胜利果实，除了当托盘以外毫无作用
+
