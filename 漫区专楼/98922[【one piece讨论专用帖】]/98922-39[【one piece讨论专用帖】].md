@@ -14753,3 +14753,38 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 这话观感还行
 
+
+
+*****
+
+####  7sevenseven  
+##### 58253#       发表于 2022-6-2 14:54
+
+动物系强大的生命力
+
+太搞笑了，整个动物系凯多团就没有仰卧起坐的
+
+*****
+
+####  谁说法海不懂爱  
+##### 58254#       发表于 2022-6-2 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096519&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-6-2 14:54</a>
+
+动物系强大的生命力
+
+太搞笑了，整个动物系凯多团就没有仰卧起坐的</blockquote>
+他甚至比五皇还活蹦乱跳。
+
+*****
+
+####  武男  
+##### 58255#       发表于 2022-6-2 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096519&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-6-2 14:54</a>
+
+动物系强大的生命力
+
+太搞笑了，整个动物系凯多团就没有仰卧起坐的</blockquote>
+狗都不吃.jpg
+

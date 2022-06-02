@@ -13538,3 +13538,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 艹 手贱把夏露露抽到了 寡妇还是1宝好气啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 萌新丢了17张护符就一个罗兰
 
+
+
+*****
+
+####  qixinno2  
+##### 88170#       发表于 2022-6-2 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56096441&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 14:49</a>
+
+欧 羡慕 萌新丢了17张护符外加补了3发就一个罗兰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我60抽只有一个寡妇 今天早上手贱又补了20抽出的夏露露
+
