@@ -1711,3 +1711,25 @@ LZ老公有躁狂症还能忍住你俩这么作，高低给整个吉尼斯世界
 
 养宠物被咬了不是很正常，这不就是把人当猫养。
 
+
+
+*****
+
+####  ㄟ(￣▽￣ㄟ)  
+##### 178#       发表于 2022-6-2 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56090359&amp;ptid=2072772" target="_blank">景田翼 发表于 2022-6-2 03:59</a>
+我不是因为这个原因说的，
+
+我只是想路上少点威胁。</blockquote>
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ㄟ(￣▽￣ㄟ)  
+##### 179#       发表于 2022-6-2 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56090440&amp;ptid=2072772" target="_blank">缺失的伙伴 发表于 2022-6-2 04:38</a>
+我觉得她日子过的很惨才会这样的</blockquote>
+我觉得你老公是真的惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
