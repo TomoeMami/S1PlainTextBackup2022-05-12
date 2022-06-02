@@ -8064,3 +8064,20 @@ syl，crcup什么说法，换游戏吗
 
 —— 来自 Xiaomi M2012K10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14271#       发表于 2022-6-3 01:07
+
+ 本帖最后由 alcoholic1000 于 2022-6-3 01:09 编辑 
+
+说到vta新人，宁宁和四叶有些时候还是挺有趣的
+
+今天aza、弦月藤士郎和むゆゆ初次会面看了几眼，不只坐牢，简直可以说成佛了
+
+むゆゆapex打得稀烂话也不说，全场气氛靠毛哥一个外国人努力活跃，5ch都看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有没有常看她的楼友，这属于常态吗？还是说黑客队没中签，直接赌气摆了？
+
