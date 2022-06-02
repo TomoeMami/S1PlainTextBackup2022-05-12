@@ -18207,3 +18207,15 @@ ins更新一张老图
 由手机上传
 2022-6-2 21:06 上传
 
+
+
+*****
+
+####  player3960  
+##### 8863#       发表于 2022-6-2 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56100538&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-06-02 19:51:09</a>
+草，鲤鱼还是没转二期主视觉图。国内日本都说鲤鱼的不满明摆出来的是有道理的 ...</blockquote>鲤鱼:二期是什么鬼，不如和我去代代木怀恋小星星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
