@@ -13481,3 +13481,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 有没有打了剧情的？2.65剧情大概什么水平，比2.6如何？不咋地我就SKIP了...
 
+
+
+*****
+
+####  v22325  
+##### 88165#       发表于 2022-6-2 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡多克这新造型……话说你终于醒了你也去啊？
+
