@@ -8021,3 +8021,46 @@ syl，我郡不会真的在跟axia玩儿akutan梗吧，大胆啊
 
 话说回来，这异军突起搞得大部分人四年职业生涯和笑话一样（夸张），不知道同事们又如何作想<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 14266#       发表于 2022-6-3 00:51
+
+早就被杏艹过一遍了，事到如今还有什么好想的……
+
+syl，crcup什么说法，换游戏吗
+
+*****
+
+####  古战场亡魂  
+##### 14267#       发表于 2022-6-3 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 14268#       发表于 2022-6-3 00:53
+
+能让观众到主播都不那么在意数字其实也挺好的...我觉得有正面意义和好处。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">虽然不太可能发生。
+
+数字高我觉得反而会给主播带来很大压力，又不是葛叶和叶这种不太在意的。所以现在压力其实来到百万姐那（无论是现在在风口浪尖，还是以后被觉得德不配位），也去到其他高订阅主播那，大家都有压力压。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">倒是不知道兔头什么感受，应该很复杂...
+
+*****
+
+####  rzrbtk  
+##### 14269#       发表于 2022-6-3 00:55
+
+郡评：“像被碾过去一样”，不过郡无所谓因为当年也碾过人。新人里比较乐观的有千草，说比起消沉更多是期待，悲观的有海妹，直接认输。总体来看越摆越开心，我琥珀宝今天每日问候又又又迟到了，根本不在意什么怪物新人。
+
+*****
+
+####  相坂君  
+##### 14270#       发表于 2022-6-3 00:58
+
+之前有人说这么多人看都不上推特趋势，现在新播了给他爱5不就上了趋势吗，还有サロメちゃん也上趋势了，这两个都是新暴涨的tag
+
+—— 来自 Xiaomi M2012K10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
