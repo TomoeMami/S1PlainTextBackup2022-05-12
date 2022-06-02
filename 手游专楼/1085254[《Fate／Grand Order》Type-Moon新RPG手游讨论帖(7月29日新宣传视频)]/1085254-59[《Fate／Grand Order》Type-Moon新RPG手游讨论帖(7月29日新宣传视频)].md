@@ -13949,3 +13949,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 不過不認識徐福及教授有點奇怪，上次平安京是默許有完成屍山血河，今次反而能不認識教授，是主線及1.5/interlude分別嗎?
 
+
+
+*****
+
+####  xiongxingyu  
+##### 88210#       发表于 2022-6-3 00:05
+
+本来想给飞嫂抽到满，毕竟故事卡池限定，结果18发11连夏露露满宝了（甚至歪了个孔明盘子+1），飞嫂还是3宝，这就有点尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
