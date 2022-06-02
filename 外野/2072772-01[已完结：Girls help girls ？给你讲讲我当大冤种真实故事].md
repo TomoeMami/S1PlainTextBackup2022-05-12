@@ -1480,3 +1480,23 @@ NF17求指路
 
 继续啊？
 
+
+
+*****
+
+####  缺失的伙伴  
+##### 163#         楼主| 发表于 2022-6-2 10:25
+
+<blockquote>lilianna233 发表于 2022-6-2 10:00
+关于 girls help girls ，姐你要是真的有爱心，你就去看看张桂梅的学校需不需要捐款，以及网上那 ...</blockquote>
+以前工作的时候每个月都给午餐计划打钱的，现在只是网上给女孩子们抽奖玩儿。有时候请喝奶茶啥的
+
+*****
+
+####  蔷薇下  
+##### 164#       发表于 2022-6-2 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56091878&amp;ptid=2072772" target="_blank">缺失的伙伴 发表于 2022-6-2 09:31</a>
+因为老公替我收拾烂摊子十几年了。我又不是不想离婚，我犯病的时候尤其想离婚，净身出户。我老公也知道我 ...</blockquote>
+嘴上说着很羡慕，其实真的很羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">上哪里能找到这种精神病老公呢
+

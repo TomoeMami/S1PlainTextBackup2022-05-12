@@ -13463,3 +13463,12 @@ Ruler教授的立绘也被解包了，初始立绘一看就是ruler嘛2333
 
 NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  清风朗月  
+##### 88163#       发表于 2022-6-2 10:20
+
+夏露露应该是Wada画过最好看的男从者了吧，这么一身蓝，宝具人型强袭自由的居然是绿宝具
+
