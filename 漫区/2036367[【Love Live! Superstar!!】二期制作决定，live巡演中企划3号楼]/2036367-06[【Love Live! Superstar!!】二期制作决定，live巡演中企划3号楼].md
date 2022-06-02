@@ -18147,3 +18147,14 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然只是自己的私心
 
+
+
+*****
+
+####  愛さ実  
+##### 8857#       发表于 2022-6-2 19:51
+
+草，鲤鱼还是没转二期主视觉图。国内日本都说鲤鱼的不满明摆出来的是有道理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
