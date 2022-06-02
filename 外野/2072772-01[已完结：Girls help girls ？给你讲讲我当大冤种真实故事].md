@@ -1006,3 +1006,80 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">感受到了各方面的扭曲
 
+
+
+*****
+
+####  天下有狗狗  
+##### 110#       发表于 2022-6-2 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 不管怎么样 楼主还是好人
+
+—— 来自 Xiaomi M2007J1SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  trackerList  
+##### 111#       发表于 2022-6-2 08:13
+
+你老公摊上你这么一个败家娘们儿真挺倒霉的
+
+*****
+
+####  缺失的伙伴  
+##### 112#         楼主| 发表于 2022-6-2 08:13
+
+<blockquote>天下有狗狗 发表于 2022-6-2 08:12
+不管怎么样 楼主还是好人
+
+</blockquote>
+看你从名字到头像，都是个可爱的人
+
+*****
+
+####  缺失的伙伴  
+##### 113#         楼主| 发表于 2022-6-2 08:14
+
+<blockquote>trackerList 发表于 2022-6-2 08:13
+你老公摊上你这么一个败家娘们儿真挺倒霉的</blockquote>
+哈哈哈，我也这么跟咨询师说。我能怎么办呢，等我老公买的起50万安乐死仪器并且支持我去死我就去死啦。可惜我只接受这种死法，他却不支持我去死。
+
+*****
+
+####  wthall  
+##### 114#       发表于 2022-6-2 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要把论坛当贴吧
+
+*****
+
+####  缺失的伙伴  
+##### 115#         楼主| 发表于 2022-6-2 08:16
+
+<blockquote>wthall 发表于 2022-6-2 08:15
+为什么要把论坛当贴吧</blockquote>
+你也可以不看不回复或者举报呀
+
+*****
+
+####  wthall  
+##### 116#       发表于 2022-6-2 08:19
+
+好的，已经举报
+
+*****
+
+####  缺失的伙伴  
+##### 117#         楼主| 发表于 2022-6-2 08:21
+
+<blockquote>wthall 发表于 2022-6-2 08:19
+好的，已经举报</blockquote>
+我是不介意删帖的，毕竟有心还是能找到小姑娘什么样子
+
+*****
+
+####  cheung0113  
+##### 118#       发表于 2022-6-2 08:21
+
+楼主两口子人真好啊
+
