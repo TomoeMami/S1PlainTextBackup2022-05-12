@@ -13755,3 +13755,21 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">劝张角做25仔的那个蜀将一开始以为是魏延....后来一想不对....是张松么
 
+
+
+*****
+
+####  exiaexa  
+##### 88191#       发表于 2022-6-2 19:22
+
+ 本帖最后由 exiaexa 于 2022-6-2 19:25 编辑 
+
+史老师不强跟绿拐有屁关系
+
+你让他先自己带个50np开一炮？
+
+绿卡能做出太公望这种万金油良心卡，你个限定处处掺毒，30魔性50对恶爆伤乐死个人
+
+最后反过来怪拐不行，要点脸好吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
