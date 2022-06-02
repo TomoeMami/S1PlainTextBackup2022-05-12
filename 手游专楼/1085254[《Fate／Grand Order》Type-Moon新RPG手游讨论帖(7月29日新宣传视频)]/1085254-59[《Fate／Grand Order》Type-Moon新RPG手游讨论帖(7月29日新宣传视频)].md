@@ -13817,3 +13817,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 看隔壁君11厨纷纷破防，这可能是近年最惨的限定卡了吧，卡面微妙，宝具考据出错引出光速修复，宝具正脸特写尴尬，强度emmm，然后厨子唯一的救命稻草主线剧情人物塑造好像也寄了233只能说厨你游角色仿佛开盲盒
 
+
+
+*****
+
+####  alucardcz  
+##### 88197#       发表于 2022-6-2 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56101095&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-2 20:33</a>
+
+看隔壁君11厨纷纷破防，这可能是近年最惨的限定卡了吧，卡面微妙，宝具考据出错引出光速修复，宝具正脸特写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？？？  昨天我记得还在说什么翅膀b格高 做的最好的正脸宝具。
+
