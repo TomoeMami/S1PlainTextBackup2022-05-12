@@ -8140,3 +8140,23 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 
 挑染二次会啊，bls联动啊啥的要说想肯定想搞，不过现在自己是什么都没法决定的
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 14276#       发表于 2022-6-3 02:20
+
+虹pex从规则上就很奇怪，えぺまつり式的分级但没有队长机制，试图平衡队伍实力但赛制非常娱乐
+我只能理解为大型mixup了，分级只是个幌子
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灵魂收割机  
+##### 14277#       发表于 2022-6-3 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56103772&amp;ptid=1972669" target="_blank">天悬星河 发表于 2022-6-3 00:38</a></blockquote>
+谔谔，等下一波了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+

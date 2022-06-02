@@ -18295,3 +18295,16 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我也喜欢鱼顶个玉桂狗白碗
 
+
+
+*****
+
+####  cxj649  
+##### 8871#       发表于 2022-6-3 03:42
+
+因为菜宝某个事情去看了几天紫吧
+
+关于他们黑鲤鱼的日常，就感觉他们是强迫症加政治正确么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很像管人圈那种ANTI（扭曲粉）串的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

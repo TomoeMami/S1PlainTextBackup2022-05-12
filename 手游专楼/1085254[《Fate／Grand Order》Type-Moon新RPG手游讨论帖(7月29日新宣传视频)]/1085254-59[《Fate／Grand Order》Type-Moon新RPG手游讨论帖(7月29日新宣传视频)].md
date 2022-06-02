@@ -13958,3 +13958,24 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 本来想给飞嫂抽到满，毕竟故事卡池限定，结果18发11连夏露露满宝了（甚至歪了个孔明盘子+1），飞嫂还是3宝，这就有点尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  久井路路  
+##### 88211#       发表于 2022-6-3 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56101095&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-06-02 20:33:34</a>
+看隔壁君11厨纷纷破防，这可能是近年最惨的限定卡了吧，卡面微妙，宝具考据出错引出光速修复，宝具正脸特写 ...</blockquote>主线君11怎么个寄法？是没写好还是只是不是ml（
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  khxooo  
+##### 88212#       发表于 2022-6-3 03:52
+
+ 本帖最后由 khxooo 于 2022-6-3 03:54 编辑 
+
+熬夜打完了，给个80分吧， 整个故事还算可以。战斗难度个人是飞嫂，毕竟最后一条血每回合充满气槽，压力还是有的，不过也没用灵脉石。不过不满意的是女的太少了，一池算是有个飞嫂这个一点红，二期完全是男的，一点抽卡欲望都么有<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
