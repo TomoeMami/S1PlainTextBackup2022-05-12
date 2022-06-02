@@ -13648,3 +13648,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 萌新上次新卡已经不知道几几年了(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然而你强力卡补宝欧的一批 我就只能抽各种怪东西
 
+
+
+*****
+
+####  alucardcz  
+##### 88181#       发表于 2022-6-2 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56097313&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-2 15:48</a>
+
+然而你强力卡补宝欧的一批 我就只能抽各种怪东西</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉!
+
