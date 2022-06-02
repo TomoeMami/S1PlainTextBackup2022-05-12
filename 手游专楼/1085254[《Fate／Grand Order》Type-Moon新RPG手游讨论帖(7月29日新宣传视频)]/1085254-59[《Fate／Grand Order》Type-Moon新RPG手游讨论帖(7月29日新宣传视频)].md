@@ -13669,3 +13669,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">昨天忙了1天.....才刚开始推新主线....最意外的是竟然真让卡多克转正啊....还真敢这么玩？？
 
+
+
+*****
+
+####  qixinno2  
+##### 88183#       发表于 2022-6-2 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56097348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-2 15:51</a>
+
+都是幻觉!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要幻觉
+

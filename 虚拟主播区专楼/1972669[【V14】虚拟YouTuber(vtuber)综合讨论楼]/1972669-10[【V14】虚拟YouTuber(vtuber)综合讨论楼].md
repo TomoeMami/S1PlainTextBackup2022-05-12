@@ -7390,3 +7390,16 @@ I want to fuck yelan so badly I'm gonna morb all over my subway footlong
 
 我也觉得很有可能想准备一个闪亮登场什么的。
 
+
+
+*****
+
+####  rzrbtk  
+##### 14203#       发表于 2022-6-2 16:40
+
+所以莎天酱心机说有吗，昨天前面太无聊就黑听了，到配色部分更是懒得看，结果今天看串发现完全高评价，最爆炸那part是借着问答搞脸超美噶吃恋距离，全都是喷水蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">...
+
+而且就算月之要跑也不是现在跑啊，这明眼人都看出来莎杂谈力都不优于ngo，我感觉将来应该就是露露那个生态位了，如果撕皮了就gbr，
+
+只要不是金鱼就行了，帮忙做封面的友人的村长真的好可怕吖，哪怕是男人都不要是eveちゃん<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
