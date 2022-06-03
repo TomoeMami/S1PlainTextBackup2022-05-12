@@ -8299,3 +8299,15 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 是不是要lol了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11312#       发表于 2022-6-4 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56113333&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-6-3 21:06</a>
+
+是不是要lol了</blockquote>
+还真是。一个小时前打了两把。
+
