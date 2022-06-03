@@ -18628,3 +18628,19 @@ ins更新一张老图
 由手机上传
 2022-6-3 20:47 上传
 
+
+
+*****
+
+####  saya1892  
+##### 8890#       发表于 2022-6-3 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108831&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-3 13:17</a>
+
+话说你这个说法可不可以给个链接或者指个地方么，我想看看</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 67&amp;pid=55809295](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2036367&amp;pid=55809295)
+
+就这个讲得比较直接点吧
+
+其实那段时间也有一些帖子会提到新人和老人之间的话题，但那时候比较上火暂离了一段时间，没怎么追着看
+
