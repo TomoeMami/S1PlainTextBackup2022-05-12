@@ -8847,3 +8847,134 @@ https://boards.4channel.org/vt/thread/25420523
 
 百万姐会帮忙宣传彩虹APEX，明言不玩APEX摆烂，为什么有这样完美的女人<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpbzpb123123  
+##### 14349#       发表于 2022-6-4 00:00
+
+不玩apex好耶好耶好耶
+
+*****
+
+####  Ketestrait  
+##### 14350#       发表于 2022-6-4 00:00
+
+结束还宣传了一波虹pex，她真的……<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 14351#       发表于 2022-6-4 00:01
+
+不玩apex但是宣传了虹apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 14352#       发表于 2022-6-4 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115157&amp;ptid=1972669" target="_blank">plok201 发表于 2022-6-4 00:00</a>
+
+百万姐会帮忙宣传彩虹APEX，明言不玩APEX摆烂，为什么有这样完美的女人 ...</blockquote>
+有了订阅收益还要收买人心。
+
+兔头还是走吧，你玩不过她的。<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 14353#       发表于 2022-6-4 00:01
+
+正解の女,太恐怖了
+
+*****
+
+####  布莱士·西伯利  
+##### 14354#       发表于 2022-6-4 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">太会了，比不过。食杀V圈吧还是。
+
+而且明天不播但是又短视频，太会了，太强了。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 14355#       发表于 2022-6-4 00:02
+
+但今天又是怂爆的一天，靠杂谈拖延，实际游戏时间可能就40分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这生化7要打到哪年啊
+
+*****
+
+####  alcoholic1000  
+##### 14356#       发表于 2022-6-4 00:02
+
+ 本帖最后由 alcoholic1000 于 2022-6-4 00:05 编辑 
+
+ウルルン、アニマル横丁
+
+和兔头差不多年纪？
+
+青の洞窟、キャンメイク，直播的尽头是带货...
+
+时常撒irl信息作鱼饵太熟练了
+
+🐴…🦄️！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 超紳士| + 1|🐴…🦄️！草|
+
+查看全部评分
+
+*****
+
+####  dfss  
+##### 14357#       发表于 2022-6-4 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115138&amp;ptid=1972669" target="_blank">超紳士 发表于 2022-6-3 23:57</a>
+为啥冰箱都要用上一代的嫁妆用到现在啊！这人其实家里很穷的吧？！但还是买青の洞窟…… ...</blockquote>
+冰箱空调这种大型白电用的久很正常啊，基本维修只要换点制冷剂就行了，我房间空调就是我爸妈结婚那会买的，到现在就只换过次氟利昂一点毛病都没有过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rzrbtk  
+##### 14358#       发表于 2022-6-4 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115191&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-6-4 00:02</a>
+
+ウルルン、アニマル横丁
+
+和兔头差不多年纪？</blockquote>
+昨天那个“毕业的年纪”感觉是真露馅了，应该是25左右，不登学在家冲浪。
+
+省一楼，月之、至少月之的杂谈是莎天酱近期内绝对超越不了的一道坎<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烯丝短尾猫  
+##### 14359#       发表于 2022-6-4 00:08
+
+莎乐美现在运营一个短视频账号没什么难度吧
+
+*****
+
+####  asdhai  
+##### 14360#       发表于 2022-6-4 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115185&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-6-4 00:02</a>
+
+但今天又是怂爆的一天，靠杂谈拖延，实际游戏时间可能就40分钟这生化7要打到哪年啊
+
+ ...</blockquote>
+事到如今还关心游戏进度干嘛，这个是重点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
