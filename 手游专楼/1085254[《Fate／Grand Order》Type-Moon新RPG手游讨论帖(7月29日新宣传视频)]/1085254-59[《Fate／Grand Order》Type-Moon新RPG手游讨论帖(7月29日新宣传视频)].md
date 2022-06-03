@@ -14183,3 +14183,33 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞嫂我用某冠位暴击猩猩铁拳暴打，超轻松的
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88231#       发表于 2022-6-4 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打完了，我就这表情
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">后续还要等年末，然后明年说不定还能来点7.5，7.8之类的，还能苟多久……
+
+*****
+
+####  森兰丸  
+##### 88232#       发表于 2022-6-4 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">飞嫂本来还期待会有多大的恨.....结果就这就这就这就这？
+
+齐格飞嘴炮几句这就娇了？就不能生前把话好好说清楚么
+
+*****
+
+####  黑上シグマ  
+##### 88233#       发表于 2022-6-4 01:34
+
+ 本帖最后由 黑上シグマ 于 2022-6-4 01:36 编辑 
+
+教授lily作为一个尺阶关底boss简直就是丢人现眼
+
+看看人老政当年一拳一个小朋友，哪像你在这儿刮痧一样
+

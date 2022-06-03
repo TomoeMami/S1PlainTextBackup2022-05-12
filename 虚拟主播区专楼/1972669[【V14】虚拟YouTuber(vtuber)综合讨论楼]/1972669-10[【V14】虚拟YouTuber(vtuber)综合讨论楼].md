@@ -9252,3 +9252,27 @@ dsw之前不是说漏嘴说活了24年balabala，被人指出来之后解释说�
 莎皇赶紧把游戏以外的牌打出来吧，吊着胃口太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 兔头的杂谈强化也赶紧来啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 14386#       发表于 2022-6-4 01:33
+
+ 本帖最后由 purdre 于 2022-6-4 01:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115822&amp;ptid=1972669" target="_blank">烯丝短尾猫 发表于 2022-6-4 01:14</a>
+
+已经有预选对象了？不过倒是在其他地方看到一个说法，莎乐美一年前在力一的深夜电台里投稿过，当时说自己是 ...</blockquote>
+真是这样的话确实顺理成章，准备了一年的地下偶像和那些一看就大脑放空两手一甩随便播的主播比起来确实立ち回り好多了，又想起了Eden组出道时的一手好牌打稀烂，每个人还各有各的烂法
+
+莎天酱定时直播抛梗养gachi宣传本社温柔训粉不打apex，简直理想的出道ムーブ，怎么看都觉得有点pro意识的
+
+*****
+
+####  盐盐盐盐盐  
+##### 14387#       发表于 2022-6-4 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115104&amp;ptid=1972669" target="_blank">超紳士 发表于 2022-6-3 23:55</a>
+ 这人怎么把青の洞窟（意面酱汁，挺贵的，一人份大概400日元以上）冷冻保存的，这冰箱还是他妈的嫁妆。你也 ...</blockquote>
+青之洞窟有冷冻食品版的吧
+
