@@ -8355,3 +8355,19 @@ cr确定改fallguys和golf it了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那么多枪民，那么多打枪主播，比赛和看糖豆人和高尔夫是吧。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 14296#       发表于 2022-6-3 16:51
+
+难道不是利好虹pex，这下无家可归的枪民有地方看打枪了
+
+*****
+
+####  Ketestrait  
+##### 14297#       发表于 2022-6-3 16:54
+
+虹pex这种水平的娱乐联欢会，枪民看得下去吗
+
