@@ -14113,3 +14113,15 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 没打过啊 我也不知道咋回事</blockquote>
 节奏榜上甚至有只解一个伊吹的攻略
 
+
+
+*****
+
+####  qixinno2  
+##### 88224#       发表于 2022-6-3 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56111609&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-3 18:20</a>
+
+节奏榜上甚至有只解一个伊吹的攻略</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可能是我太菜了
+
