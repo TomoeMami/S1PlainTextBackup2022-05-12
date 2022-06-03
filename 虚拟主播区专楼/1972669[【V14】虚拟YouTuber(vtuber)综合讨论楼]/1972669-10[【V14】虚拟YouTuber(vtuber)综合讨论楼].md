@@ -8680,3 +8680,72 @@ https://boards.4channel.org/vt/thread/25420523
 她这不说到她妈咳嗽了么，那冰箱又是咋回事……</blockquote>
 冰箱、妈妈、生活音，莎天酱预料到了所有...我认输<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 14329#       发表于 2022-6-3 23:40
+
+兔头，我们回武藏野美吧。
+
+*****
+
+####  格林卡罗尔  
+##### 14330#       发表于 2022-6-3 23:40
+
+这样的巧合还是可能会有的吧，就像昨天播GTA5指着说是apex的时候肯定猜不到B站字幕组为了转播放了一层apex的UI
+
+*****
+
+####  古战场亡魂  
+##### 14331#       发表于 2022-6-3 23:43
+
+兔头当年代言洗衣液还是洗衣粉来着我忘了。我等不及看大小姐代言冰箱了。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 14332#       发表于 2022-6-3 23:47
+
+ 本帖最后由 CielChloe 于 2022-6-3 23:48 编辑 
+
+工于心计+1，莎乐美这名字就把坏女人写脸上了，而且十有八九是老女人了，老谋深算啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 14333#       发表于 2022-6-3 23:47
+
+又来了！冰箱！
+
+*****
+
+####  格林卡罗尔  
+##### 14334#       发表于 2022-6-3 23:48
+
+アニマル横丁，不查还真不知道什么梗
+
+*****
+
+####  布莱士·西伯利  
+##### 14335#       发表于 2022-6-3 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">太强了，赢不了。食杀黑黑吧还是。
+
+知道动物横丁有一定年纪了，姑且和社差不多。
+
+*****
+
+####  rzrbtk  
+##### 14336#       发表于 2022-6-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114933&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-6-3 23:40</a>
+
+这样的巧合还是可能会有的吧，就像昨天播GTA5指着说是apex的时候肯定猜不到B站字幕组为了转播放了一层apex ...</blockquote>
+巧合是会有，但是太多巧合在一起就会让人有疑心（不是说一眼顶针），
+
+第一期那个“这只是普通的夫妻吵架程度诶~”（突然贵米娅举电锯）开始到现在，太...恰好了。
+
+当然我很尊重愿意为直播做努力的人，也爱看效果，支持。
+
