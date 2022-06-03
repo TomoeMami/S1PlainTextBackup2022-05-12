@@ -718,3 +718,22 @@ O神当初消息很少还没公布收费方式的时候，也有人想过它是�
 讨论东西是假，一遍遍强调有模拟器是真</blockquote>
 老传统了 ps4吧不让讨论ps4破解 但是对于ns破解 吧主带头讨论
 
+
+
+*****
+
+####  Jietf  
+##### 78#       发表于 2022-6-3 23:06
+
+为什么Steam不上ns
+
+*****
+
+####  龙骑士甄志丙  
+##### 79#       发表于 2022-6-3 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114587&amp;ptid=2073149" target="_blank">Jietf 发表于 2022-6-3 23:06</a>
+
+为什么Steam不上ns</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
