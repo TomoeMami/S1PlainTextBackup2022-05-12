@@ -2329,3 +2329,23 @@ Up是怎么做到带人回家 然后你老公还支持你这种？
 就像替身使者一样，精神病人也会互相吸引的，而且明明和正常人交流都有困难，却幻想同病相怜所以可以互相理 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，这就是纯纯的替身使者互相吸引…………………………
 
+
+
+*****
+
+####  缺失的伙伴  
+##### 237#         楼主| 发表于 2022-6-3 14:56
+
+<blockquote>翾鹊 发表于 2022-6-3 14:21
+确实，这就是纯纯的替身使者互相吸引…………………………</blockquote>
+对不起，替身使者真的是我不懂的梗，脱宅太久了。
+
+<img src="https://img.saraba1st.com/forum/202206/03/145648ko8eg93zzft6leje.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BC98C6A5-4B86-4846-AEC7-0BC869F888E9.jpeg</strong> (688.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-3 14:56 上传
+
