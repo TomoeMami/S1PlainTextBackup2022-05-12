@@ -822,3 +822,26 @@ O神当初消息很少还没公布收费方式的时候，也有人想过它是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  余情自取  
+##### 87#       发表于 2022-6-4 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114000&amp;ptid=2073149" target="_blank">dbyboy 发表于 2022-6-3 22:04</a>
+这话wiiu的时候说可能还能做点梦
+
+就现在ns上的游戏动辄千万销量，pc那点销量老任恐怕根本不可能去考虑损失 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可就算是两千万出头的话也只能在ns上排第七，更何况fs还要被平台抽成
+
+*****
+
+####  量子论  
+##### 88#       发表于 2022-6-4 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114324&amp;ptid=2073149" target="_blank">tlozfan 发表于 2022-6-3 22:36</a>
+
+不说我都忘了，当初岩田聪社长去世的时候，国内各个舆论场绝对不是现在一片怀念的声音。各种恶言相向污蔑 ...</blockquote>
+竟然还有这样的事，楼主这样的索索真是恶心得丧心病狂
+

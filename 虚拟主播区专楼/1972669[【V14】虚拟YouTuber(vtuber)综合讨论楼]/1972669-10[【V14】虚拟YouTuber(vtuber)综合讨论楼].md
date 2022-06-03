@@ -9276,3 +9276,15 @@ dsw之前不是说漏嘴说活了24年balabala，被人指出来之后解释说�
  这人怎么把青の洞窟（意面酱汁，挺贵的，一人份大概400日元以上）冷冻保存的，这冰箱还是他妈的嫁妆。你也 ...</blockquote>
 青之洞窟有冷冻食品版的吧
 
+
+
+*****
+
+####  超紳士  
+##### 14388#       发表于 2022-6-4 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115276&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-6-4 00:12</a>
+
+更好奇这人以前做什么的了...如此准备充足，以前到底是做什么的。</blockquote>
+昨天gtav开头那台词现场看到现场读，嘴皮子我估计是声优转生。
+
