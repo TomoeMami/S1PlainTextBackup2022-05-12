@@ -14964,3 +14964,42 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 来了来了，又一位尾田钦定的“日后名扬天下的和之国将军”，不知道和“人人都喜欢御田”是不是一个意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 58275#       发表于 2022-6-3 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108214&amp;ptid=98922" target="_blank">mashav 发表于 2022-6-3 12:20</a>
+
+哪位好哥哥给讲讲世界会议和海军本部那边是啥剧情，忘记了</blockquote>
+会议上废除了七武海，之后海军派出了军队追捕蛇姬鹰眼等人
+
+同时革命军为了救走大熊与海军本部发生了战斗
+
+现在不清楚的是七武海，微微以及萨博的情况
+
+*****
+
+####  谁说法海不懂爱  
+##### 58276#       发表于 2022-6-3 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108510&amp;ptid=98922" target="_blank">csd 发表于 2022-6-3 12:49</a>
+
+来了来了，又一位尾田钦定的“日后名扬天下的和之国将军”，不知道和“人人都喜欢御田”是不是一个意思[f:0 ...</blockquote>
+要看尾田是要实写还是虚写了，搞成背景板，N年后提下成就或者日后剧情扯文戏方面还好，要像御田那般用力抬轿子的话，不好说，真的不好说。
+
+*****
+
+####  mashav  
+##### 58277#       发表于 2022-6-3 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108555&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-3 12:53</a>
+会议上废除了七武海，之后海军派出了军队追捕蛇姬鹰眼等人
+
+同时革命军为了救走大熊与海军本部发生了战斗
+
+ ...</blockquote>
+感谢感谢
+
