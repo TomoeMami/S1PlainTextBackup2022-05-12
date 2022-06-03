@@ -8466,3 +8466,14 @@ https://boards.4channel.org/vt/thread/25420523
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">明天CR杯变fallguys+golf it，整了半天图什么呢
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14306#       发表于 2022-6-3 23:12
+
+ 本帖最后由 古战场亡魂 于 2022-6-3 23:14 编辑 
+
+练习赛也是流量啊。
+
