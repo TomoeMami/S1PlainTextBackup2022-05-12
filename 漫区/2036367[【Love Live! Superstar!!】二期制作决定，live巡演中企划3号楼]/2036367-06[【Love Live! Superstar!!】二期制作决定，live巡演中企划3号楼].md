@@ -18409,3 +18409,12 @@ ins更新一张老图
 由手机上传
 2022-6-3 10:59 上传
 
+
+
+*****
+
+####  li463900160  
+##### 8880#       发表于 2022-6-3 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> FC光淘宝就卖了1000本有的，剩下的1000估计就是别的店特+日本人买了，或者是FC没计入销量
+
