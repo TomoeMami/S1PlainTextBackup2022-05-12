@@ -2317,3 +2317,15 @@ Up是怎么做到带人回家 然后你老公还支持你这种？
 看楼主的vlog 感觉楼主挺好看的，眉目有点长泽雅美的感觉</blockquote>
 哎呀妈呀你咋那么会夸，太感动了🥲我寻思妹人看呢
 
+
+
+*****
+
+####  翾鹊  
+##### 236#       发表于 2022-6-3 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56103681&amp;ptid=2072772" target="_blank">仟音一心 发表于 2022-6-3 00:24</a>
+
+就像替身使者一样，精神病人也会互相吸引的，而且明明和正常人交流都有困难，却幻想同病相怜所以可以互相理 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，这就是纯纯的替身使者互相吸引…………………………
+
