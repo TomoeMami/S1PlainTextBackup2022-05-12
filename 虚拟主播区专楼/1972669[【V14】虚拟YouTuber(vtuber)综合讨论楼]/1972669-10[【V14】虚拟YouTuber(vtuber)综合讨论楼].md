@@ -9241,3 +9241,14 @@ dsw之前不是说漏嘴说活了24年balabala，被人指出来之后解释说�
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+
+*****
+
+####  percy1234  
+##### 14385#       发表于 2022-6-4 01:22
+
+明明初配信回顾的那次杂谈回就已经很养了，为什么楼里只是草草带过<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+莎皇赶紧把游戏以外的牌打出来吧，吊着胃口太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+兔头的杂谈强化也赶紧来啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -774,3 +774,20 @@ O神当初消息很少还没公布收费方式的时候，也有人想过它是�
 
 索索慢慢受着吧，好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redwolfwlm  
+##### 84#       发表于 2022-6-4 01:25
+
+这楼主还在啊
+
+给大家科普一下
+
+这个楼主当年聪哥去世之后再各大论坛叫好
+
+连隔壁TGFC都被人整楼喷
+
+这么多年了还这么恶心也是厉害
+
