@@ -8371,3 +8371,25 @@ cr确定改fallguys和golf it了。
 
 虹pex这种水平的娱乐联欢会，枪民看得下去吗
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14298#       发表于 2022-6-3 17:00
+
+虹apex如果接在cr apex后面还能收一波热度。
+
+现在就有点搞了。
+
+要不你虹也改成糖豆人吧，反正本质社内团建。
+
+*****
+
+####  Ketestrait  
+##### 14299#       发表于 2022-6-3 17:03
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h2v5xtl6kkj20xw0j1jwk.jpg" referrerpolicy="no-referrer">
+
+父兄家长会并感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
