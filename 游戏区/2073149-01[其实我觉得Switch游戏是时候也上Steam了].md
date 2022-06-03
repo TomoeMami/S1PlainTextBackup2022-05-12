@@ -672,3 +672,49 @@ O神当初消息很少还没公布收费方式的时候，也有人想过它是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mega39算吗
 
+
+
+*****
+
+####  碧琟  
+##### 73#       发表于 2022-6-3 22:52
+
+要用资本家的头脑来想问题。
+
+*****
+
+####  龙骑士甄志丙  
+##### 74#       发表于 2022-6-3 22:54
+
+台式机已经几乎没有品牌机存在的意义了，笔记本还有，手机更是打得你死我活，这就是因为一旦考虑便携，软件就没法解决所有问题了
+
+手机的安卓系统都越来越封闭，天天改系统，掌机更是这样了
+
+过去看小说我都拿psp看，现在拿手机看，从来都不拿pc看小说，完全不是一个味
+
+*****
+
+####  zeroed  
+##### 75#       发表于 2022-6-3 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">为什么战神不上NS
+
+*****
+
+####  干将莫邪  
+##### 76#       发表于 2022-6-3 22:58
+
+我是觉得游戏才是游戏机最好的广告。好多人吐槽NS是三坟是塞尔达启动器，先不说这个说法的正确性，卖这么多恰恰说明第一方独占展现出的作用啊。
+
+微软主业在PC，每个windows系统的PC都是他的阵地，游戏上PC是带来其他额外收益的。索尼跟着趟什么浑水啊，就为了多卖个200w套？那人以后何必买机子呢，电脑真高清画面还能打mod。
+
+*****
+
+####  ffmzsj  
+##### 77#       发表于 2022-6-3 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56113752&amp;ptid=2073149" target="_blank">nancygreenlife 发表于 2022-6-3 21:42</a>
+
+讨论东西是假，一遍遍强调有模拟器是真</blockquote>
+老传统了 ps4吧不让讨论ps4破解 但是对于ns破解 吧主带头讨论
+
