@@ -18418,3 +18418,12 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> FC光淘宝就卖了1000本有的，剩下的1000估计就是别的店特+日本人买了，或者是FC没计入销量
 
+
+
+*****
+
+####  cybernetics31  
+##### 8881#       发表于 2022-6-3 12:49
+
+马内甲说过的，签字那张图大概就一半，光fc就得小2000了。壁吧也说fc的发货时间是不会包含在首周里头，所以2000数据很好了已经。
+

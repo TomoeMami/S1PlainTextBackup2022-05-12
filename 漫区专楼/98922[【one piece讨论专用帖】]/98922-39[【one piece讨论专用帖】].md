@@ -14955,3 +14955,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 哪位好哥哥给讲讲世界会议和海军本部那边是啥剧情，忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csd  
+##### 58274#       发表于 2022-6-3 12:49
+
+来了来了，又一位尾田钦定的“日后名扬天下的和之国将军”，不知道和“人人都喜欢御田”是不是一个意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

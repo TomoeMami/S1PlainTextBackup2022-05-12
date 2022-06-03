@@ -14043,3 +14043,12 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 结果被夏露露爆杀（双重意义），光速送掉，整一个大 ...</blockquote>
 把厨子骗进来杀啊，要卡面没卡面要强度没强度宝具还搞出乌龙，主线剧情就这，今年白情真是罪大恶极23333
 
+
+
+*****
+
+####  qixinno2  
+##### 88218#       发表于 2022-6-3 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没用就过了 这玩意瞎打还想令咒爆破呢 结果令咒用光GG了
+

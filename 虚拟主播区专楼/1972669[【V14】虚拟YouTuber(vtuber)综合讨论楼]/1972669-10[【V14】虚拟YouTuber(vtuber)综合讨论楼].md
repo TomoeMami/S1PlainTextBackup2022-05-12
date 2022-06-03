@@ -8262,3 +8262,27 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 
 我想在不久的将来正常交付，但我无法告诉你学校各个班级的确切日期和时间。 除非我很抱歉。 到货我会再报告的！ 我在这里过得很好，请爱自己。</blockquote>
 
+
+
+*****
+
+####  ヒトニナル  
+##### 14287#       发表于 2022-6-3 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">娱乐娱乐，观众和主播总得有一方是乐的吧，我怎么觉得现在双方都在坐大牢呢
+
+*****
+
+####  lhawp  
+##### 14288#       发表于 2022-6-3 12:48
+
+<img src="https://img.saraba1st.com/forum/202206/03/124752g9d4zrbk0opkw080.png" referrerpolicy="no-referrer">
+
+<strong>FUS_TiyUUAAx3n3.png</strong> (66.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-3 12:47 上传
+
+就是社内团建而已（
+
