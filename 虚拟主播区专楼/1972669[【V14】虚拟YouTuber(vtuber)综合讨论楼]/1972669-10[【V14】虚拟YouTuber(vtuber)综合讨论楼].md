@@ -8433,3 +8433,13 @@ cr确定改fallguys和golf it了。
 
 不过他这个每次都是单独比较一场直播，随机性比我的那份还大。
 
+
+
+*****
+
+####  Porsche  
+##### 14303#       发表于 2022-6-3 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108176&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2022-6-3 12:17</a></blockquote>
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
