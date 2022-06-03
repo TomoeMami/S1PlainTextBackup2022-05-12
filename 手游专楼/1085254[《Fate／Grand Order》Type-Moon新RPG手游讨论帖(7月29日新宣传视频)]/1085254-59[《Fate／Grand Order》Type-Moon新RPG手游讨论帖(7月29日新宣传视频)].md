@@ -14052,3 +14052,17 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没用就过了 这玩意瞎打还想令咒爆破呢 结果令咒用光GG了
 
+
+
+*****
+
+####  exiaexa  
+##### 88219#       发表于 2022-6-3 15:56
+
+打完了，怎么说呢，没意思（指不有趣）大概就是最中肯的评价了
+
+阿出你不想写东西可以去咬打火机
+
+对角色又没有热情又整不出花活，搞得跟交公粮一样图个啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
