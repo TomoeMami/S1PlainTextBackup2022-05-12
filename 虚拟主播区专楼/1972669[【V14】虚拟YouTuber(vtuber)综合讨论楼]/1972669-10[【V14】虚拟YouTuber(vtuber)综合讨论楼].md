@@ -8212,3 +8212,16 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 更别说还有不少会打的根本没来参加
 这么多小废物的情况下坐牢逃不掉的
 
+
+
+*****
+
+####  rzrbtk  
+##### 14283#       发表于 2022-6-3 11:31
+
+ 本帖最后由 rzrbtk 于 2022-6-3 11:39 编辑 
+
+弦月最近没干劲得很明显啊
+
+我不管，郡郡玩得很开心，分组很棒<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
