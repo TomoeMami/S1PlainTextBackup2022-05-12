@@ -8529,3 +8529,154 @@ https://boards.4channel.org/vt/thread/25420523
 
 这招不错诶。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 14311#       发表于 2022-6-3 23:30
+
+ 本帖最后由 poipanchao 于 2022-6-3 23:32 编辑 
+
+可怕的女人
+
+这么心机，月之赢不了啊……
+
+*****
+
+####  lhawp  
+##### 14312#       发表于 2022-6-3 23:31
+
+生活音配信，她为什么这么懂啊
+
+*****
+
+####  格林卡罗尔  
+##### 14313#       发表于 2022-6-3 23:31
+
+脑袋果然是缺根筋的，这种时候跑去弄冰箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 14314#       发表于 2022-6-3 23:31
+
+怎么吓成这样，我冰箱门没关，我不玩了！
+
+游戏内外都是恶臭的味道了
+
+撒娇好可爱，她太懂直播了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 14315#       发表于 2022-6-3 23:32
+
+我草，一次生活音，又上9w了，本来还以为都要下来了，才7w多一点。
+
+*****
+
+####  古战场亡魂  
+##### 14316#       发表于 2022-6-3 23:33
+
+这直播水平太高了，玩不过她<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 14317#       发表于 2022-6-3 23:33
+
+好可怕的养，好可怕的媚，郡郡上播稳一下我心可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，说莎天酱没活了真是对不起
+
+而且这个忘关冰箱，独居疑惑？妈妈不在？
+
+*****
+
+####  第五秋  
+##### 14318#       发表于 2022-6-3 23:35
+
+草，游戏里也在说冰箱
+
+这下meta了
+
+*****
+
+####  古战场亡魂  
+##### 14319#       发表于 2022-6-3 23:36
+
+这肯定是事先准备的啊，哪有这么巧的，这下神回了。
+
+*****
+
+####  超紳士  
+##### 14320#       发表于 2022-6-3 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114844&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-3 23:33</a>
+
+好可怕的养，好可怕的媚，郡郡上播稳一下我心可以吗，说莎天酱没活了真是对不起
+
+而且这个忘关冰箱 ...</blockquote>
+她这不说到她妈咳嗽了么，那冰箱又是咋回事……
+
+*****
+
+####  plok201  
+##### 14321#       发表于 2022-6-3 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">百万姐全都算到了，这下入脑了
+
+*****
+
+####  Ketestrait  
+##### 14322#       发表于 2022-6-3 23:37
+
+这冰箱事件一定是设计好的吧，工于心计！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpbzpb123123  
+##### 14323#       发表于 2022-6-3 23:37
+
+听她鼓捣冰箱里东西的时候嘟嘟囔囔说的话就能看出是剧本 但是效果确实好
+
+*****
+
+####  稀勢のささ  
+##### 14324#       发表于 2022-6-3 23:38
+
+她98年的 月之算了吧
+
+*****
+
+####  carroy  
+##### 14325#       发表于 2022-6-3 23:38
+
+有被媚到<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+这个节目效果也太好了
+太强了 噶起了
+前面怕怕瑟瑟<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">tskr
+
+*****
+
+####  心垂万刃  
+##### 14326#       发表于 2022-6-3 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">太可怕了这女人
+
+*****
+
+####  古战场亡魂  
+##### 14327#       发表于 2022-6-3 23:39
+
+这个冰箱梗可以用到毕业。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 14328#       发表于 2022-6-3 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56114883&amp;ptid=1972669" target="_blank">超紳士 发表于 2022-6-3 23:36</a>
+
+她这不说到她妈咳嗽了么，那冰箱又是咋回事……</blockquote>
+冰箱、妈妈、生活音，莎天酱预料到了所有...我认输<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">。
+
