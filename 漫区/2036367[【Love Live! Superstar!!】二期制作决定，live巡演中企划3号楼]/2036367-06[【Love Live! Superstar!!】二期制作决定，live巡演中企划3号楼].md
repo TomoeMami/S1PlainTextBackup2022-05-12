@@ -18427,3 +18427,17 @@ ins更新一张老图
 
 马内甲说过的，签字那张图大概就一半，光fc就得小2000了。壁吧也说fc的发货时间是不会包含在首周里头，所以2000数据很好了已经。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8882#       发表于 2022-6-3 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56100538&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-6-2 19:51</a>
+
+草，鲤鱼还是没转二期主视觉图。国内日本都说鲤鱼的不满明摆出来的是有道理的
+
+—— 来自 S1 ...</blockquote>
+话说你这个说法可不可以给个链接或者指个地方么，我想看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
