@@ -18441,3 +18441,14 @@ ins更新一张老图
 —— 来自 S1 ...</blockquote>
 话说你这个说法可不可以给个链接或者指个地方么，我想看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8883#       发表于 2022-6-3 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108831&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-3 13:17</a>
+话说你这个说法可不可以给个链接或者指个地方么，我想看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加人的时候5ch确实有这种内容   要找估计不太容易
+
