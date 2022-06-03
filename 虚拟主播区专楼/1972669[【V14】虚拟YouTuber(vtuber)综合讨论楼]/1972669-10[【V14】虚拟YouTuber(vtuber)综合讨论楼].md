@@ -9230,3 +9230,14 @@ dsw之前不是说漏嘴说活了24年balabala，被人指出来之后解释说�
 
 我是觉得莎天酱的后期感挺强的，比起月之那种天生型还是有差距，但是这种算计型做虚拟主播够了吗，完全够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烯丝短尾猫  
+##### 14384#       发表于 2022-6-4 01:14
+
+已经有预选对象了？不过倒是在其他地方看到一个说法，莎乐美一年前在力一的深夜电台里投稿过，当时说自己是个地下偶像，干啥啥不行。然后力一给了个“去模仿大小姐”的建议，正好莎乐美说自己也是在一年前开始模仿的，不知道是不是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
