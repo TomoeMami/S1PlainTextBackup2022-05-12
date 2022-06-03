@@ -14077,3 +14077,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 
 君士坦丁十一氏退场的是有点潦草了，没有战斗关卡，也没有剧情cg，就几笔交带一下草草了事
 
+
+
+*****
+
+####  alucardcz  
+##### 88221#       发表于 2022-6-3 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108518&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-3 12:49</a>
+
+TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没用就过了 这玩意瞎打还想令咒爆破呢 结果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？？ 借个伊吹用脚打就过了你怎么回事
+
