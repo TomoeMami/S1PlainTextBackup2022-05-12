@@ -14021,3 +14021,25 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 整个角色就意义不明，打到17章笑得停不下来
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 88216#       发表于 2022-6-3 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然还是王道征途莎乐美吧
+
+*****
+
+####  angelooo  
+##### 88217#       发表于 2022-6-3 12:09
+
+<blockquote>exiaexa 发表于 2022-6-3 11:02
+太乐了
+
+还以为君11吃到提前预热，是个多重要的关键角色
+
+结果被夏露露爆杀（双重意义），光速送掉，整一个大 ...</blockquote>
+把厨子骗进来杀啊，要卡面没卡面要强度没强度宝具还搞出乌龙，主线剧情就这，今年白情真是罪大恶极23333
+
