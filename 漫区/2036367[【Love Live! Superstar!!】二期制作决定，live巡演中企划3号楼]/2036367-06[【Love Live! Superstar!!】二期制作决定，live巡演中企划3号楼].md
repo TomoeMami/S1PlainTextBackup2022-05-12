@@ -18581,3 +18581,16 @@ ins更新一张老图
 
 2022-6-3 17:22 上传
 
+
+
+*****
+
+####  愛さ実  
+##### 8887#       发表于 2022-6-3 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108831&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-3 13:17</a>
+话说你这个说法可不可以给个链接或者指个地方么，我想看看</blockquote>
+在5ch拉版看到的，哪个帖子忘了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
