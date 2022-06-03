@@ -14089,3 +14089,15 @@ NM，60连只有罗兰，不要什么来什么<img src="https://static.saraba1st
 TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没用就过了 这玩意瞎打还想令咒爆破呢 结果 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？？ 借个伊吹用脚打就过了你怎么回事
 
+
+
+*****
+
+####  qixinno2  
+##### 88222#       发表于 2022-6-3 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56111016&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-3 17:14</a>
+
+？？？ 借个伊吹用脚打就过了你怎么回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没打过啊 我也不知道咋回事
+
