@@ -585,3 +585,25 @@ PC 还缺一个 iOS 模拟器，最接近的方案是虚拟机加特定版本XCo
 
 上PC是为了赚钱，不上PC也是为了赚钱
 
+
+
+*****
+
+####  jiaos_99  
+##### 64#       发表于 2022-6-3 22:23
+
+对于索索来说只要提到跨pc就已经算讽刺了，做出这么大牺牲顺拐一嘴别的平台怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请其他平台粉丝不要不识抬举
+
+—— 来自 Xiaomi M2007J1SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大鹅  
+##### 65#       发表于 2022-6-3 22:29
+
+NS的账号系统就能看出，任天堂主机不会抛弃用户的积累了，不再是每代从头开始了。eshop也会成为STEAM一样的生态。
+
+为什么要上PC啊？
+
+NS卖的是独占+便携；微软卖订阅；PC卖体验。PS卖信仰。
+
