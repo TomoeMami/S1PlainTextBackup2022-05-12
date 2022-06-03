@@ -14125,3 +14125,26 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 节奏榜上甚至有只解一个伊吹的攻略</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可能是我太菜了
 
+
+
+*****
+
+####  qixinno2  
+##### 88225#       发表于 2022-6-3 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">借了个暗狐瞎JB打过了 队尾挂个黑杯妖兰压轴挺好使
+
+*****
+
+####  白金口袋  
+##### 88226#       发表于 2022-6-3 19:44
+
+整个活动的唯一价值就是引出最后的外星人实验体这个点，剩下全是浮云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88227#       发表于 2022-6-3 19:48
+
+逛B站时看到一个19年的DIY查理曼，竟然和官方的差不多，而且一技能比现在这个好用不少，叠王勇太麻烦了，还是纯黄金律好：【【FGO】自制查理曼，白情不出我自己出！-哔哩哔哩】 https://b23.tv/ApkCKos
+
