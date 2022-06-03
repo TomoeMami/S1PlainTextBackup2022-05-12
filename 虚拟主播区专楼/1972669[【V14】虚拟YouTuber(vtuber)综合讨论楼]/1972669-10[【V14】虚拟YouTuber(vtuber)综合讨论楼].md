@@ -8346,3 +8346,12 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 
 cr确定改fallguys和golf it了。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14295#       发表于 2022-6-3 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那么多枪民，那么多打枪主播，比赛和看糖豆人和高尔夫是吧。
+
