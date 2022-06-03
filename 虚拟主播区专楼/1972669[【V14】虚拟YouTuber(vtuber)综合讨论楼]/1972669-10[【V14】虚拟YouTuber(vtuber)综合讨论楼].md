@@ -8402,3 +8402,34 @@ cr确定改fallguys和golf it了。
 
 被妹带飞了，怎么这组也是外国人来带气氛的
 
+
+
+*****
+
+####  free  
+##### 14301#       发表于 2022-6-3 18:53
+
+[https://twitter.com/HaranoOni/status/1532648311252869120](https://twitter.com/HaranoOni/status/1532648311252869120)
+
+<img src="https://img.saraba1st.com/forum/202206/03/185350bmozaggbpgboaboy.jpg" referrerpolicy="no-referrer">
+
+<strong>菠萝鬼.jpg</strong> (493.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-3 18:53 上传
+
+*****
+
+####  NBXX  
+##### 14302#       发表于 2022-6-3 18:57
+
+[https://boards.4channel.org/vt/thread/25420523](https://boards.4channel.org/vt/thread/25420523)
+
+ salome's audience 
+<img src="https://p.sda1.dev/6/97938f449bdf69e8e03f5e0a751cf926/1654247677068.png" referrerpolicy="no-referrer">
+
+4chan也有人做了观众抽样的重合统计。
+
+不过他这个每次都是单独比较一场直播，随机性比我的那份还大。
+
