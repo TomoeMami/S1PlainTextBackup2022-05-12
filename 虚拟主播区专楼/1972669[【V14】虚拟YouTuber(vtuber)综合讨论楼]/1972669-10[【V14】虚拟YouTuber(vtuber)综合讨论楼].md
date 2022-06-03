@@ -8443,3 +8443,17 @@ cr确定改fallguys和golf it了。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108176&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2022-6-3 12:17</a></blockquote>
 哭了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 14304#       发表于 2022-6-3 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112010&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-6-3 18:57</a>
+
+https://boards.4channel.org/vt/thread/25420523
+
+ salome's audience </blockquote>
+但是兔头有那么多人看salome有点意外...
+

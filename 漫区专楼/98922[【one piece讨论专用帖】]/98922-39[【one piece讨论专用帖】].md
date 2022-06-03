@@ -15066,3 +15066,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 萨博估计跟艾斯一样被抓了，五黄团去打新顶上战争，来个完美对称
 
+
+
+*****
+
+####  klzxs  
+##### 58284#       发表于 2022-6-3 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我能想到的最糟的可能性是像大熊一样被改造了
+
