@@ -9209,3 +9209,24 @@ dsw之前不是说漏嘴说活了24年balabala，被人指出来之后解释说�
 
 我现在真是憋得难受，超想公布中之人的猜测，但想想还是算了，所以又要退V综一段时间了，但愿日本的特定厨给力点。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 14382#       发表于 2022-6-4 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115579&amp;ptid=1972669" target="_blank">wuaistage1 发表于 2022-6-4 00:46</a>
+虹EN那个天堂鸟是姛营业路线么？看了几个B站切片 怎么评论区全是妹子</blockquote>
+因为nijien观众整体女性观众比较多，据说占了八九成
+不过就算放到nijisanji整体，国内观众好像也是女性偏多
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  purdre  
+##### 14383#       发表于 2022-6-4 01:04
+
+我是觉得莎天酱的后期感挺强的，比起月之那种天生型还是有差距，但是这种算计型做虚拟主播够了吗，完全够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
