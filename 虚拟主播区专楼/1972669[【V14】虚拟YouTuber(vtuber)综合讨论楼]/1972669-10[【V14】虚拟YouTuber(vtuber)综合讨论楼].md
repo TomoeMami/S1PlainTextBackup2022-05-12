@@ -8169,3 +8169,16 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 
 <img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h2usgoyjc9j20rp06m43b.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 14279#       发表于 2022-6-3 09:42
+
+ 本帖最后由 ヒトニナル 于 2022-6-3 09:43 编辑 
+
+虹pex只是像えぺまつり外伝一样抽签分组罢了，其他一切都不像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+编辑：仔细一想连抽签制度都不一样，虹pex真的很随意
+
