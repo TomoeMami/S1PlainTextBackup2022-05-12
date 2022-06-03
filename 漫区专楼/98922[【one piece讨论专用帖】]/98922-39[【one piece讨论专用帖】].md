@@ -15075,3 +15075,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我能想到的最糟的可能性是像大熊一样被改造了
 
+
+
+*****
+
+####  cdfjg  
+##### 58285#       发表于 2022-6-3 20:00
+
+可能说萨博杀了薇薇公主，然后在逃中。
+
