@@ -8477,3 +8477,55 @@ https://boards.4channel.org/vt/thread/25420523
 
 练习赛也是流量啊。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14307#       发表于 2022-6-3 23:21
+
+一个时代要过去了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/03/231849nklee99cvlejrlms.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220603231729488.jpg</strong> (9.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-3 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202206/03/231850katnipnepgczc2p2.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220603231737948.jpg</strong> (6.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-3 23:18 上传
+
+*****
+
+####  rzrbtk  
+##### 14308#       发表于 2022-6-3 23:22
+
+ 本帖最后由 rzrbtk 于 2022-6-3 23:25 编辑 
+
+莎天酱玩到生化7最恐怖的一段了，吓得发出鸟叫这一点好口了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">.....
+
+今天不愧是大家都渐渐摸清怎样的人了，缓慢数据下山中（义务8串），而且我因为自推全休了还在看<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，真好啊
+
+感到了母爱，莎乐美妈妈...
+
+*****
+
+####  古战场亡魂  
+##### 14309#       发表于 2022-6-3 23:28
+
+致命空枪太严重了。
+
+*****
+
+####  布莱士·西伯利  
+##### 14310#       发表于 2022-6-3 23:30
+
+这招不错诶。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
