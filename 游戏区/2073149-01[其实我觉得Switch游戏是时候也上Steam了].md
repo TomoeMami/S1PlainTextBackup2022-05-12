@@ -1,0 +1,587 @@
+
+
+*****
+
+####  nilren  
+##### 1#       楼主       发表于 2022-6-3 18:58
+
+前几天用模拟器试了试Switch，居然发现流畅度还不错。然后就惊闻众所周知的索尼独家IP蜘蛛侠都能上PC了，看着PC我陷入了沉思建议任天堂也趁早吧
+
+愿意给键鼠/ 手柄兼容操作的就在Steam上卖
+
+愿意独占就独占给Switch
+
+价格都一样，多赚一份钱，向索尼学习，大家都有的玩有的赚，还没法出二手。何乐而不为呢。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 19战斗力 -15
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tengshuo980| + 1|荣耀归于pcgmer|
+| 光阴忤逆|-1||
+| 猫不萌|-2||
+| BigLittle1999|-1|欢乐多|
+| nozomitech|-1|这水平真的不大行|
+| 花枝鱿鱼面|-2|欢乐多|
+| 小张翔|-1|好评加鹅|
+| tlozfan|-1||
+| kaga1920|-1|欢乐多|
+| ruits|-1|为什么不上手机|
+| fffsuper|-1||
+| 食粪者|-1|欢乐少|
+| g54088|-2|好评加鹅|
+| wowheyyy|-1|欢乐多|
+| 伊迪潘宫森|-1|好评加鹅|
+| 乱吃食cat| + 2|好评加鹅|
+| LRS2376852435|-1||
+| Sutrid|-1||
+| 萨格摩多桑| + 1||
+
+查看全部评分
+
+*****
+
+####  whzfjk  
+##### 2#       发表于 2022-6-3 18:59
+
+lz火星，能上的都能上
+
+*****
+
+####  节艾司  
+##### 3#       发表于 2022-6-3 19:01
+
+我觉得应该等索尼做出Playstation for PC，上这个，并且经由XBOX发行
+
+*****
+
+####  hamartia  
+##### 4#       发表于 2022-6-3 19:02
+
+梦境档案
+
+市场实体最多NS卡流通，论坛有人玩STEAM，我买了PS4版
+
+我们都获得了自己想要的
+
+*****
+
+####  硫黄  
+##### 5#       发表于 2022-6-3 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我甚至相信日本会打游戏的人里，有NS的比有电脑的人多
+
+*****
+
+####  鸡翼大绅士  
+##### 6#       发表于 2022-6-3 19:05
+
+想任天堂死就直说，不用这么拐弯抹角的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 1||
+
+查看全部评分
+
+*****
+
+####  shiko  
+##### 7#       发表于 2022-6-3 19:05
+
+任天堂为什么要学索尼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Dashuaibi  
+##### 8#       发表于 2022-6-3 19:05
+
+虽然用户体验上我也觉得上steam好，但上pc属于任天堂脑子被驴踢的操作
+
+首先是ns的普及率应该特别高了，pc用户最多持有的主机应该就是ns
+
+出了便捷谁还买ns版游戏？
+
+没了任天堂独占谁去买ns那垃圾机能主机？卖这机器产生的利润一点都不少。
+
+30%分成白白让给g胖？考虑开发成本，少了这分成利润可能直接腰斩
+
+*****
+
+####  mjzs07  
+##### 9#       发表于 2022-6-3 19:06
+
+确实任天堂显得狭隘了 这点不如索尼
+
+*****
+
+####  aberen  
+##### 10#       发表于 2022-6-3 19:08
+
+本任豚就喜欢独占，不爱跟人分享<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芷雅居  
+##### 11#       发表于 2022-6-3 19:08
+
+为什么不用steam启动yuzu<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  美式咖啡  
+##### 12#       发表于 2022-6-3 19:09
+
+确实，还是索尼格局大，任任小作坊暂时上不了
+
+*****
+
+####  Nea  
+##### 13#       发表于 2022-6-3 19:10
+
+感觉不如JimRyan……格局<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫坤  
+##### 14#       发表于 2022-6-3 19:10
+
+O神当初消息很少还没公布收费方式的时候，也有人想过它是单机就好了，然后就有卫兵出来教育**产市场不适合单机，你是不是想米哈游死云云。我就没别的意思，你们继续讨论，任天堂肯定不会干蠢事。
+
+*****
+
+####  shudushimo  
+##### 15#       发表于 2022-6-3 19:13
+
+任天堂的游戏上PC了销量也不见得好吧，毕竟大多数PC玩家没见过主机一个像素小游戏卖四五百的阵仗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spyps  
+##### 16#       发表于 2022-6-3 19:14
+
+ 主要是yuzu mod不方便吧。除了异度2我也没其他希望上PC的独占了。
+
+*****
+
+####  赤尸藏人  
+##### 17#       发表于 2022-6-3 19:16
+
+为什么不用steam启动ryujinx
+
+因为控制器不匹配
+
+*****
+
+####  鸡翼大绅士  
+##### 18#       发表于 2022-6-3 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112174&amp;ptid=2073149" target="_blank">shudushimo 发表于 2022-6-3 19:13</a>
+任天堂的游戏上PC了销量也不见得好吧，毕竟大多数PC玩家没见过主机一个像素小游戏卖四五百的阵仗 ...</blockquote>
+哪个ns第一方是像素小游戏？
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 19#       发表于 2022-6-3 19:17
+
+你们是不是忘了英伟达神盾？
+
+*****
+
+####  雨中曲  
+##### 20#       发表于 2022-6-3 19:17
+
+两家本质都是给客户提供内容服务。任天堂更注重打造品牌质量营销，Valve更关注玩家体验极致需求。对客户价值的尊重，才是最大的护城河
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  otakun  
+##### 21#       发表于 2022-6-3 19:18
+
+难道不是很多steam 游戏上Switch 吗
+
+*****
+
+####  katern  
+##### 22#       发表于 2022-6-3 19:18
+
+还是索尼有远见，知道把独占搬到pc赚两份钱，有白皮领导果然不一样，格局和任天堂这种岛国公司不是一个等级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不应  
+##### 23#       发表于 2022-6-3 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想，因为游戏都是基于ns开发的，原味移植上了PC的画质估计也就那样了，毕竟不是人人都和卡婊一样还给你做一个高清补丁
+
+*****
+
+####  Uranus  
+##### 24#       发表于 2022-6-3 19:21
+
+jim跳槽到任天堂就很有可能了
+
+*****
+
+####  Ceraldur  
+##### 25#       发表于 2022-6-3 19:21
+
+等
+
+「任天堂社长接受采访表示业务核心可能不再是家用游戏机」的时候
+
+*****
+
+####  满满一大杯  
+##### 26#       发表于 2022-6-3 19:30
+
+能搞平台搭护城河收租，干嘛非得要向别人付佣金……
+
+*****
+
+####  pf67  
+##### 27#       发表于 2022-6-3 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112146&amp;ptid=2073149" target="_blank">猫坤 发表于 2022-6-3 19:10</a>
+O神当初消息很少还没公布收费方式的时候，也有人想过它是单机就好了，然后就有卫兵出来教育**产市场不适合 ...</blockquote>
+都是挣钱嘛，不寒碜
+
+但是作**还立牌坊那就另说了
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stackoverflow  
+##### 28#       发表于 2022-6-3 19:39
+
+主要还是switch机能太孱弱导致全平台游戏体验跟pc版差太多，之前玩真女神5就难受得要死，不会再考虑在switch上玩任何非独占游戏了。如果任天堂的游戏上pc，谁还买它的机器，这不是自废武功么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然我希望所有游戏都能上pc，但基本不可能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost-star  
+##### 29#       发表于 2022-6-3 19:44
+
+要上老任也会做自己的平台，白给别人抽成？
+
+*****
+
+####  clover293  
+##### 30#       发表于 2022-6-3 19:48
+
+上PC估计也会是一些非本社的合作IP。类似于以前零那种。
+
+
+
+*****
+
+####  干将莫邪  
+##### 31#       发表于 2022-6-3 19:55
+
+没了独占一点吸引力都没了，我是没明白为啥索尼会这样。任天堂目前看来是清醒的，楼主这是想任天堂死吧
+
+*****
+
+####  封面杀手  
+##### 32#       发表于 2022-6-3 20:00
+
+ 本帖最后由 封面杀手 于 2022-6-3 20:05 编辑 
+
+实际用PC玩游戏的群体可能还不够老任塞牙缝
+
+*****
+
+####  Midnight.Coup  
+##### 33#       发表于 2022-6-3 20:01
+
+ 本帖最后由 Midnight.Coup 于 2022-6-3 20:03 编辑 
+
+倒是希望御三家能把WiiU/X360/PS3及之前的独占老游戏弄上PC，折腾模拟器终归是不得已的。老游戏能被重置/重制/虫豸的终归是少数
+世嘉，街机，MSX，PC98 这些更早的平台就不指望了
+老 电影 电视 动画 漫画 游戏 里最方便能看的应该是电影了
+
+*****
+
+####  SorroFrost  
+##### 34#       发表于 2022-6-3 20:04
+
+小作坊比不过隔壁两家家大业大
+
+*****
+
+####  Lunamos  
+##### 35#       发表于 2022-6-3 20:05
+
+说起来模拟器可以触发经典双向问句
+
+- 都有模拟器了为什么还不上PC？
+
+- 都有模拟器了还用得着你上PC？
+
+*****
+
+####  whzfjk  
+##### 36#       发表于 2022-6-3 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112684&amp;ptid=2073149" target="_blank">Lunamos 发表于 2022-6-3 20:05</a>
+
+说起来模拟器可以触发经典双向问句
+
+- 都有模拟器了为什么还不上PC？
+
+- 都有模拟器了还用得着你上PC？ ...</blockquote>
+上 Steam = 异世界新渠道正规曝光
+
+*****
+
+####  Midnight.Coup  
+##### 37#       发表于 2022-6-3 20:10
+
+ 本帖最后由 Midnight.Coup 于 2022-6-3 20:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112684&amp;ptid=2073149" target="_blank">Lunamos 发表于 2022-6-3 20:05</a>
+说起来模拟器可以触发经典双向问句
+
+- 都有模拟器了为什么还不上PC？
+
+- 都有模拟器了还用得着你上PC？ ...</blockquote>
+PC 还缺一个 iOS 模拟器，最接近的方案是虚拟机加特定版本XCode然而GPU性能堪忧，不知道有没有 Mac OS X 10.X 直通GPU的方案。之前心血来潮想玩下 无尽之剑和红警3前传，然后<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 果子的封闭设备本质上都是主机（暴论
+
+*****
+
+####  当代撸迅  
+##### 38#       发表于 2022-6-3 20:25
+
+任天堂就算上pc，也肯定是经营自己的平台，而不是上steam给人抽成
+
+*****
+
+####  当代撸迅  
+##### 39#       发表于 2022-6-3 20:25
+
+任天堂就算上pc，也肯定是经营自己的平台，而不是上steam给人抽成
+
+*****
+
+####  任天鼠smash  
+##### 40#       发表于 2022-6-3 20:32
+
+你先把索尼为什么要上PC的理由先搞懂
+
+*****
+
+####  Quelaan  
+##### 41#       发表于 2022-6-3 20:33
+
+我支持一切游戏上PC
+
+*****
+
+####  fffsuper  
+##### 42#       发表于 2022-6-3 20:33
+
+s1有贴，ns主机利润47%，游戏利润50%，不做主机，上pc利润损失47%+50%*30%=62%。即使全平台销量增强一倍也得不偿失
+
+<img src="https://img.saraba1st.com/forum/202206/03/203303i1bavba3v9nr4m1x.png" referrerpolicy="no-referrer">
+
+<strong>ExponentAsset-67230fdbfbaa7fa1374df03948e97b2c.png</strong> (37.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-3 20:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oskneo  
+##### 43#       发表于 2022-6-3 20:35
+
+其实pc也不用，直接上云吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ruits  
+##### 44#       发表于 2022-6-3 20:35
+
+PC或者高配PC不是人人都有，而青少年手机普及率更高，建议都上手机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tlozfan  
+##### 45#       发表于 2022-6-3 20:39
+
+不懂，有那么破防吗？索尼把独占ip放到pc上，索索就立刻大规模宣传在市的任天堂的模拟器。真让人笑掉大牙。
+
+*****
+
+####  满满一大杯  
+##### 46#       发表于 2022-6-3 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112735&amp;ptid=2073149" target="_blank">Midnight.Coup 发表于 2022-6-3 20:10</a>
+
+PC 还缺一个 iOS 模拟器，最接近的方案是虚拟机加特定版本XCode然而GPU性能堪忧，不知道有没有 Mac OS X  ...</blockquote>
+而且还有换代完全不考虑向下兼容的传统，主机实锤（
+
+*****
+
+####  nilren  
+##### 47#         楼主| 发表于 2022-6-3 20:46
+
+玛德
+
+我明明是在讽刺索尼，你们居然还扣我祭扫，还有王法嘛，还有法律嘛。
+
+*****
+
+####  tlozfan  
+##### 48#       发表于 2022-6-3 21:07
+
+ 本帖最后由 tlozfan 于 2022-6-3 21:10 编辑 
+
+又来我不是索索了，头像和昵称都是老熟人了，历史回复和发言都可以看。泥潭一些扭曲索索真的巨魔得紧。
+
+*****
+
+####  JudgmentEye  
+##### 49#       发表于 2022-6-3 21:11
+
+<blockquote>引用第15楼spyps于2022-06-03 19:14发表的  :
+
+主要是yuzu mod不方便吧。除了异度2我也没其他希望上PC的独占了。</blockquote>
+右键打开mod文件夹，mod扔进去，哪里不方便？
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+*****
+
+####  NeverCU  
+##### 50#       发表于 2022-6-3 21:16
+
+其实异界锁链和一些冷门IP上pc挺好的，有些游戏不是质量问题不火，而是受众太挑
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  liangyi345  
+##### 51#       发表于 2022-6-3 21:26
+
+强烈建议yuzu弄个模拟器联机功能看看带外挂的喷喷马车马造是什么体验
+
+*****
+
+####  rr1984  
+##### 52#       发表于 2022-6-3 21:28
+
+不太懂，索尼背刺你们🔒🐶，为啥你们不去冲你们的索尼爸爸，而是想把隔壁拉下水呢。这也太忠诚了吧
+
+*****
+
+####  rr1984  
+##### 53#       发表于 2022-6-3 21:30
+
+<blockquote>rr1984 发表于 2022-6-3 21:28
+不太懂，索尼背刺你们🔒🐶，为啥你们不去冲你们的索尼爸爸，而是想把隔壁拉下水呢。这也太忠诚了吧 ...</blockquote>
+不过索索的独占第一大作战神上了pc也才卖了八十万，何必躺这浑水呢
+
+*****
+
+####  TANA  
+##### 54#       发表于 2022-6-3 21:33
+
+🔒🐶救世剑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 55#       发表于 2022-6-3 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56113341&amp;ptid=2073149" target="_blank">tlozfan 发表于 2022-6-3 21:07</a>
+又来我不是索索了，头像和昵称都是老熟人了，历史回复和发言都可以看。泥潭一些扭曲索索真的巨魔得紧。 ...</blockquote>
+我记得楼主是在岩田聪社长去世大家都在缅怀的时候发anti帖子的独醒侠，老面孔了，真当人不记得了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruits  
+##### 56#       发表于 2022-6-3 21:39
+
+讲道理，任天堂上PC还会这么用心做游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，几年前看DC死前Sega出的几款游戏都是下了大功夫的。再看看现在卡普空，反正都能卖，每一次都感觉偷工减料。
+
+*****
+
+####  nancygreenlife  
+##### 57#       发表于 2022-6-3 21:42
+
+讨论东西是假，一遍遍强调有模拟器是真
+
+*****
+
+####  rr1984  
+##### 58#       发表于 2022-6-3 21:42
+
+既然要向索尼学习。阿索怎么也得首发同步pc并且大赚一笔，向阿任好好证明一下吧。不然怎么让隔壁拜你为师啊。
+
+*****
+
+####  ——啧  
+##### 59#       发表于 2022-6-3 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112639&amp;ptid=2073149" target="_blank">Midnight.Coup 发表于 2022-6-3 20:01</a>
+倒是希望御三家能把WiiU/X360/PS3及之前的独占老游戏弄上PC，折腾模拟器终归是不得已的。老游戏能被重置/重 ...</blockquote>
+附议，好多老的优秀游戏随着时间不断流失在时代中真的有点不舍……好多游戏我在以后想起来的时候也想能玩到啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 60#       发表于 2022-6-3 22:01
+
+恨不得一切游戏都能上pc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chilno  
+##### 61#       发表于 2022-6-3 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝可梦这种不思进取的玩意儿也就罢了
+
+红绿帽子之类的上pc玩法都少一大截啊
+
+*****
+
+####  dbyboy  
+##### 62#       发表于 2022-6-3 22:04
+
+这话wiiu的时候说可能还能做点梦
+
+就现在ns上的游戏动辄千万销量，pc那点销量老任恐怕根本不可能去考虑损失现在的利润率上pc
+
+老头环就算长卖到2kw套，放ns游戏里也就前五的水平
+
+*****
+
+####  qwwsong  
+##### 63#       发表于 2022-6-3 22:05
+
+上PC是为了赚钱，不上PC也是为了赚钱
+
