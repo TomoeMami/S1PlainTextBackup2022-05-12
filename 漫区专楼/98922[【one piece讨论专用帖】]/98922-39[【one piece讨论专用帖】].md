@@ -15035,3 +15035,25 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 这一话其实观感不错，特别是小玉那里，但到了最后偏偏出现御田，桃之助还说要追随他的身影。。。我心想和之国这不完犊子了。。
 
+
+
+*****
+
+####  zxzx7753  
+##### 58281#       发表于 2022-6-3 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56108579&amp;ptid=98922" target="_blank">mashav 发表于 2022-6-3 12:55</a>
+
+感谢感谢</blockquote>
+有点不同  革命军不是打了海军本部  是袭击了有大将镇守的世界会议  然后印象里还有第二天报纸上说萨博死了
+
+*****
+
+####  sfqjsml  
+##### 58282#       发表于 2022-6-3 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56111464&amp;ptid=98922" target="_blank">zxzx7753 发表于 2022-6-3 18:03</a>
+
+有点不同  革命军不是打了海军本部  是袭击了有大将镇守的世界会议  然后印象里还有第二天报纸上说萨博死 ...</blockquote>
+好像没有谁明说萨博死了，但革命军各位的反应看起来都很像
+

@@ -8256,3 +8256,19 @@ nb有活动是肯定有活动的，因为绯赤去东京了。估计又是一次
 NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶上什么敏感日子，所以待会mea的直播可能都不会有 ...</blockquote>
 是肯定没有转播的。今天在直播间试了下，大表情都发不了。
 
+
+
+*****
+
+####  yywzjsw  
+##### 11307#       发表于 2022-6-3 18:07
+
+突然发现なな画的好好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 11308#       发表于 2022-6-3 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">好像背景图也换了新的诶。
+
