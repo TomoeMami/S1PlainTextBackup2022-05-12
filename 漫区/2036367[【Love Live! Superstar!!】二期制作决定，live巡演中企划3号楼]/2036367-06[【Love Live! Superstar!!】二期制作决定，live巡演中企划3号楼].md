@@ -18362,3 +18362,50 @@ ins更新一张老图
 
 这个包含了吧。感觉不可能有4000吧，2000都烧高香了
 
+
+
+*****
+
+####  lj205  
+##### 8878#       发表于 2022-6-3 10:53
+
+ 本帖最后由 lj205 于 2022-6-3 10:56 编辑 
+
+我这次走全特算上帮群里代的，总计30本，这其中FC占了10本
+
+数字某些销量厨可能不满意，但是肯定是超出了公司预期，否则不可能只开了一次100签名挂就啥都没
+
+*****
+
+####  仟音一心  
+##### 8879#       发表于 2022-6-3 10:59
+
+二一ドロ老师的不插电live
+
+<img src="https://img.saraba1st.com/forum/202206/03/105914ewovzc46no668nwz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>22B8F7FC-E8AE-4F87-B835-7F5F667CB92B.jpeg</strong> (473.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-3 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202206/03/105921f5yel77vz444yzb2.gif" referrerpolicy="no-referrer">
+
+<strong>553718DD-DBA0-452C-A56B-308394DFC4E6.gif</strong> (251.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-3 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202206/03/105921sgy5xs1yicz5t91g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B7B88F18-34E8-4EAE-AA64-078F522A58B6.jpeg</strong> (213.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-3 10:59 上传
+
