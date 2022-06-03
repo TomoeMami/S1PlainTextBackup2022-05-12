@@ -8978,3 +8978,73 @@ https://boards.4channel.org/vt/thread/25420523
  ...</blockquote>
 事到如今还关心游戏进度干嘛，这个是重点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plok201  
+##### 14361#       发表于 2022-6-4 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生化系列慢慢玩，说不定想着慢下来接RE4的工商，莎乐美，恐怖如斯
+
+*****
+
+####  布莱士·西伯利  
+##### 14362#       发表于 2022-6-4 00:12
+
+更好奇这人以前做什么的了...如此准备充足，以前到底是做什么的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 14363#       发表于 2022-6-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115246&amp;ptid=1972669" target="_blank">asdhai 发表于 2022-6-4 00:09</a>
+
+事到如今还关心游戏进度干嘛，这个是重点吗</blockquote>
+我性子急，看到人拖进度就会イライラする
+
+而且在生理期前莎乐美明明是个笑对电锯砍手的狂人，这几天的变化我是很不适应的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qesto  
+##### 14364#       发表于 2022-6-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115191&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-6-4 00:02</a>
+
+ウルルン、アニマル横丁
+
+和兔头差不多年纪？</blockquote>
+都已经直播提男性朋友了
+
+角都断了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 14365#       发表于 2022-6-4 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115289&amp;ptid=1972669" target="_blank">qesto 发表于 2022-6-4 00:13</a>
+
+都已经直播提男性朋友了
+
+角都断了</blockquote>
+只提了男性友人，把过激独角兽杀掉
+
+然后剩下相对温和的，大养特养
+
+这才是正解
+
+*****
+
+####  Junchoon  
+##### 14366#       发表于 2022-6-4 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115284&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-6-4 00:13</a>
+
+我性子急，看到人拖进度就会イライラする
+
+而且在生理期前莎乐美明明是个笑对电锯砍手的狂人，这几天的变 ...</blockquote>
+跌丝袜拿不拿武器、拿武器打不打架，完全是两个人格......
+
