@@ -8457,3 +8457,12 @@ https://boards.4channel.org/vt/thread/25420523
  salome's audience </blockquote>
 但是兔头有那么多人看salome有点意外...
 
+
+
+*****
+
+####  winda  
+##### 14305#       发表于 2022-6-3 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">明天CR杯变fallguys+golf it，整了半天图什么呢
+
