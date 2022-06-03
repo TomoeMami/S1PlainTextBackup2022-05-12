@@ -18672,3 +18672,16 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她企划宣传本来就挺摸的，真烂了寄了也没啥蜇，最多官方推特评论区问候下企划祖宗罢了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8893#       发表于 2022-6-4 02:22
+
+ 本帖最后由 aoaoaodedede 于 2022-6-4 02:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115983&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-4 01:39</a>
+
+她企划宣传本来就挺摸的，真烂了寄了也没啥蜇，最多官方推特评论区问候下企划祖宗罢了 ...</blockquote>
+也不能这么说，万一可可剧情整烂活让老粉退坑了就不好了，不可能说是完全没有影响，而这一点目前说实话我个人很难向好的方向期待。
+

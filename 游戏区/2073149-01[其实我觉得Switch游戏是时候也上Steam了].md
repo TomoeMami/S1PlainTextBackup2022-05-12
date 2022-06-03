@@ -845,3 +845,186 @@ O神当初消息很少还没公布收费方式的时候，也有人想过它是�
 不说我都忘了，当初岩田聪社长去世的时候，国内各个舆论场绝对不是现在一片怀念的声音。各种恶言相向污蔑 ...</blockquote>
 竟然还有这样的事，楼主这样的索索真是恶心得丧心病狂
 
+
+
+*****
+
+####  allenz3  
+##### 89#       发表于 2022-6-4 01:52
+
+别钓了，任豚只喜欢马赛克的
+
+*****
+
+####  鸡翼大绅士  
+##### 90#       发表于 2022-6-4 01:58
+
+ 本帖最后由 鸡翼大绅士 于 2022-6-4 02:02 编辑 
+
+蟑螂真几把贱，被他们爹背刺屁都不敢放一个，黑屁任天堂立马就钻出来了
+
+
+
+*****
+
+####  TANA  
+##### 91#       发表于 2022-6-4 02:01
+
+ 本帖最后由 TANA 于 2022-6-4 03:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115898&amp;ptid=2073149" target="_blank">redwolfwlm 发表于 2022-6-4 01:25</a>
+
+这楼主还在啊
+
+给大家科普一下
+
+这个楼主当年聪哥去世之后再各大论坛叫好</blockquote>
+被喷得气急败坏后在S1排遗
+
+<img src="https://img.saraba1st.com/forum/202206/04/015836gimkq2zxq2uu0bbi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5304016B-76A6-45CC-88F0-8973D52F4E91.jpeg</strong> (303.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 01:58 上传
+
+然后被人揭露了真相
+
+<img src="https://img.saraba1st.com/forum/202206/04/020010u7qkl2sqgm5m7751.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FE9D4986-D627-41E8-B2D0-B0FC608D85DB.jpeg</strong> (118.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 02:00 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/022002f50l3p00s0lfp13n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F9D5D953-7BB5-4AF4-940E-31B04818292B.jpeg</strong> (61.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 02:20 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/022002by7w3vbhhvhyavhw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>20A065F1-0909-4CD2-BEAB-D363CC09DB4D.jpeg</strong> (62.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 02:20 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/030700gpeq4i05f2pi4xfv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DA25F246-A52C-44FD-B3DE-AD42A2705536.jpeg</strong> (62.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 03:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/020823rrxntcnznt8rgxon.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EDDD3C62-13B2-4F4F-8010-B1B819B1E6D0.jpeg</strong> (245.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/021052y4dfkjzq4qppjt4w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D8333DD3-7389-4062-AAD9-28338C3BF6BB.jpeg</strong> (110.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 02:10 上传
+
+岩田社长是2015.7.11号去世的，头七都还没过呢，任天堂7.13号发的讣告
+
+大家是13号才得知社长死讯的，TGFC的铁任黑们都能管住嘴说几句客套话
+
+但这人可是在当天第一时间就在各论坛带头叫好的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 1|整理辛苦|
+
+查看全部评分
+
+*****
+
+####  量子论  
+##### 92#       发表于 2022-6-4 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116112&amp;ptid=2073149" target="_blank">TANA 发表于 2022-6-4 02:01</a>
+
+被喷得气急败坏后在S1排遗</blockquote>
+真是恶心得丧心病狂啊
+
+*****
+
+####  量子论  
+##### 93#       发表于 2022-6-4 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115898&amp;ptid=2073149" target="_blank">redwolfwlm 发表于 2022-6-4 01:25</a>
+
+这楼主还在啊
+
+给大家科普一下
+
+这个楼主当年聪哥去世之后再各大论坛叫好</blockquote>
+多谢科普，楼主这样的极端索索真是恶心到极致了
+
+*****
+
+####  Mires  
+##### 94#       发表于 2022-6-4 02:29
+
+Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目前的话基本上不可能上，除非又出现一个Wiiu一样的宝石机，然而这个概率无限接近于0，历史告诉我们，有马里奥和塞尔达的主机也可能宝石，但是有宝可梦的主机绝对死不了
+
+*****
+
+####  量子论  
+##### 95#       发表于 2022-6-4 02:30
+
+ 本帖最后由 量子论 于 2022-6-4 02:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56113690&amp;ptid=2073149" target="_blank">蓮華 发表于 2022-6-3 21:36</a>
+
+我记得楼主是在岩田聪社长去世大家都在缅怀的时候发anti帖子的独醒侠，老面孔了，真当人不记得了 ...</blockquote>
+幸亏还有你们记得，没经历过以前的主机/掌机时代，NS世代才了解的岩田聪社长，有成功也有失败，但自始至终保持着一颗玩家之心，带来了简单纯粹的快乐，让游戏走进更多人的生活，让玩家与开发者之间的距离变得更近……
+
+这样为游戏奉献一生的人都能被黑，算是见识到有些索索能极端到什么程度了
+
+*****
+
+####  为了mf注册  
+##### 96#       发表于 2022-6-4 02:30
+
+楼主下一次发帖标题：我经历了一场史无前例的网暴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水野貴弘  
+##### 97#       发表于 2022-6-4 02:48
+
+当时TGFC的索索任黑队友都觉得这逼是真的恶心透顶了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Q版胖子  
+##### 98#       发表于 2022-6-4 03:00
+
+楼主又成了极端索索，不带这么玩的
+
+*****
+
+####  蓮華  
+##### 99#       发表于 2022-6-4 03:12
+
+互联网有记忆，不错
+
