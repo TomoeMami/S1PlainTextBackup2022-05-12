@@ -8160,3 +8160,12 @@ aza那队简直了，我看aza已经是拖着哑掉的嗓子在那带节奏了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56103772&amp;ptid=1972669" target="_blank">天悬星河 发表于 2022-6-3 00:38</a></blockquote>
 谔谔，等下一波了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 14278#       发表于 2022-6-3 09:17
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h2usgoyjc9j20rp06m43b.jpg" referrerpolicy="no-referrer">
+
