@@ -18737,3 +18737,14 @@ ins更新一张老图
 就是坐怀里了。一是左腿去哪了，pay也不可能全挡完；二是最开始鲨鱼的手还搭在鲤鱼右腿上，如果俩腿在一 ...</blockquote>
 证据还有sayu的头发后侧的阴影和鲤鱼左侧的头发被sayu的背蹭动了，可以说是确实坐在怀里了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 8898#       发表于 2022-6-4 13:07
+
+下次直播提问：浅谈一下小百合练习休息时坐你怀里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
