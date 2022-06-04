@@ -899,3 +899,52 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 论整烂活还是国家队会整，以为这个活就够烂了结果还有更烂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tairano  
+##### 90#       发表于 2022-6-5 00:03
+
+怎么肥肥还在因为蝈蝈的胖胖而ptsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+说真的，至今没搞懂蝈蝈的肥肥有啥好发疯的，不就是一自我感动的舔狗认清现实最后成长了的剧情吗
+
+
+
+*****
+
+####  ads147147  
+##### 91#       发表于 2022-6-5 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125775&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-4 23:21</a>
+我至今还不理解围绕这剧发病的，除了莓那段有点惨，其他真没给我一点触动能代入的。 ...</blockquote>
+难得早间配了个不是bitch胜似bitch的角色，主要是心满胖子三人这段很怪，完全无法理解作者想要表达什么。
+
+既没有挖深世界观，也没推进剧情，感觉就是把一个自己想到的角色人设硬生生塞进去。心是那种传统母爱角色，胖子是那种传统爱妻角色，然后满就是那种浪子回头的仔激发心的母性到上床，胖子爱妻爱到放手。就角色互动完全没有化学反应在里面，角色互动的出演也充斥着问号，这种问号触发了更多不满。
+
+这片子就是把包办婚姻，滥交，巨大组织阴谋啥的各种反乌托邦元素一一塞给每个角色，然后出演完固定戏份就可以删了，事实上这片子也是这样干的，反个屁乌托邦，连eva都没抄完就准备top了，1984和美丽新世界在外星人登场的那一刹那就消失的干干净净。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  呆呆兽二号  
+##### 92#       发表于 2022-6-5 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56126294&amp;ptid=2073274" target="_blank">ads147147 发表于 2022-6-5 00:03</a>
+
+难得早间配了个不是bitch胜似bitch的角色，主要是心满胖子三人这段很怪，完全无法理解作者想要表达什么。 ...</blockquote>
+就是造梗呗，我也说了，我其实很喜欢满心这种CP，但是具体的描绘上问题太大了，说服力不足。
+
+这剧显然没有明确大纲意图，想一出是一出。
+
+此外我觉得这男的长得也不是很帅，胖子要是减减肥也还能看。
+
+*****
+
+####  フリーレン  
+##### 93#       发表于 2022-6-5 00:09
+
+矢吹老婆也算是找了個半業內人了（？），他第二任老婆和篠原健太老婆是姐妹，所以常能看到兩家人一起慶祝
+
