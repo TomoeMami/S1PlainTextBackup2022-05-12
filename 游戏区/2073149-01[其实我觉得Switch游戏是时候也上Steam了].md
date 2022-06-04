@@ -1591,3 +1591,28 @@ s1的人体堂爱好者也太多了吧</blockquote>
 想要一切游戏都上pc有什么错</blockquote>
 还是直接上手机吧
 
+
+
+*****
+
+####  哈露尼娅  
+##### 152#       发表于 2022-6-4 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124472&amp;ptid=2073149" target="_blank">22174559 发表于 2022-6-4 21:47</a>
+
+还是直接上手机吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我觉得手机上的云游戏发展的完全不够充分，直接上手机还是太扯了
+
+但不可否认的是某些类型的游戏手机上体验意外的不错，比如16年我在平板和手机上玩的狂野飙车<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sandro  
+##### 153#       发表于 2022-6-4 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124315&amp;ptid=2073149" target="_blank">shiko 发表于 2022-6-4 21:32</a>
+为什么无关？
+
+主机卖的好的时候几百万火纹粉可能无关轻重，但是主机更新换代或者干脆次世代失利 ...</blockquote>
+为啥这几个游戏和ns硬件有关？
+
