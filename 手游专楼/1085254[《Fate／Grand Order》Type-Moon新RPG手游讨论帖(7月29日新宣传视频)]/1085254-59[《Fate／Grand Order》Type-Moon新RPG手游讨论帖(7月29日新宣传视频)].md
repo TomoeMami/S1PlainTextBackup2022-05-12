@@ -14325,3 +14325,24 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88242#       发表于 2022-6-4 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56118051&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-6-4 11:07</a>
+
+叠盒子的话倒是没多强，这么供能宝具连发也对齐格飞造成不了太大威胁，这个齐格飞又没啥外部加成，和第一 ...</blockquote>
+君11这宝具有毛病啊
+
+留了一个门洞没法防御
+
+*****
+
+####  森兰丸  
+##### 88243#       发表于 2022-6-4 14:07
+
+通了....徐福不是说御主有复数人么....最后也只找到个被检体E啊
+
