@@ -19060,3 +19060,34 @@ ins更新一张老图
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8934#       发表于 2022-6-4 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是少了个角色
+
+*****
+
+####  lj205  
+##### 8935#       发表于 2022-6-4 18:41
+
+空气外套笑死
+
+*****
+
+####  ads147147  
+##### 8936#       发表于 2022-6-4 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120526&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-4 15:25</a>
+说到底现在不知道企划到底想怎么走，星团这企划一开始公布没多久就宣布要制作TV动画的，结果这么长时间过 ...</blockquote>
+挣钱不寒蝉，就是这手法让人摸不着头脑。
+
+动画体验就是把当年缪那套再来一遍，就是这起起伏伏过山车直接把我从低谷甩出去了，可恋党被摔的粉粉碎，写的还不如人家bd歌。
+
+现在巡演也是，一股涸泽而渔的味道，感觉真的很多不对劲。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
