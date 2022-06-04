@@ -616,3 +616,32 @@ CTMD精制炖屎
 
 要是画基佬把绿心给绿了感觉还更有创意，呵呵
 
+
+
+*****
+
+####  最强惠酱  
+##### 65#       发表于 2022-6-4 19:42
+
+但是有一说一，比起肥肥还是这样ntr的比较好，我嫉妒<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 66#       发表于 2022-6-4 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120076&amp;ptid=2073274" target="_blank">千恋万花 发表于 2022-6-4 14:27</a>
+https://www.pixiv.net/artworks/67903080</blockquote>
+虽然很乐，但是肥仔不会这样做才会变成这样的败犬的。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ky怪  
+##### 67#       发表于 2022-6-4 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
