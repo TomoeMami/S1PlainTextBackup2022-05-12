@@ -1149,3 +1149,23 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 尤其看财报索尼第一方占总销量14% ...</blockquote>
 这倒也是，至少我最初纯粹是为了独占才买的PS4，后来才是为了主机玩的方便。
 
+
+
+*****
+
+####  kimmmmmm  
+##### 110#       发表于 2022-6-4 09:13
+
+当年世嘉也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201122C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 111#       发表于 2022-6-4 09:22
+
+看了帖子才知道原来是个远古沙壁
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
