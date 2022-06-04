@@ -10045,3 +10045,16 @@ syl，最后15kill3219dmg 杀爽了
 
 额，虚空看直播这种事情我好像在B站看见过，看来还是国服比较领先<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 14464#       发表于 2022-6-5 00:43
+
+看切片发现今天king和towa这次对抗还挺有意思的
+
+两人都适度地拿2434和hololive出来当梗
+
+曾几何时にじホロ也是可以快乐联动的
+
