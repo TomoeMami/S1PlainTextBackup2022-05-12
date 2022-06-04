@@ -18799,3 +18799,16 @@ ins更新一张老图
 说到底现在不知道企划到底想怎么走，星团这企划一开始公布没多久就宣布要制作TV动画的，结果这么长时间过 ...</blockquote>
 (我甚至一集动画都没看
 
+
+
+*****
+
+####  寒风夜  
+##### 8903#       发表于 2022-6-4 16:38
+
+ 本帖最后由 寒风夜 于 2022-6-4 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120526&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-4 15:25</a>
+
+说到底现在不知道企划到底想怎么走，星团这企划一开始公布没多久就宣布要制作TV动画的，结果这么长时间过 ...</blockquote>
+完全没变革呢，中期跟没活了一样又拿出废校
+

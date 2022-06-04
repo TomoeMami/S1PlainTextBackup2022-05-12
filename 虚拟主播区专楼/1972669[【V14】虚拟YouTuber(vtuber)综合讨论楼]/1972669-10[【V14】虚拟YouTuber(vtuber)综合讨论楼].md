@@ -9670,3 +9670,13 @@ V圈四年如人间四世，不要跨时代关公战秦琼<img src="https://stat
 </blockquote>
 呃呃，立本人的作息
 
+
+
+*****
+
+####  hulaoda007  
+##### 14425#       发表于 2022-6-4 16:33
+
+觉得百万姐靠的是V实际的倦怠期和自身的努力布局，吸收前人经验走出这条路的。之前的要么走到倦怠期V圈也没扩张，要么是不够努力继承前人倦怠。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+数字不是一切，但努力真的有回报。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
