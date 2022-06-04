@@ -957,3 +957,14 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 我记得还有suzumu拿kemu这段黑历史威胁kemu给他当枪手的，kemu的黑历史不在于出轨，在于不愿意给矢吹道歉（应该是矢吹前妻带kemu上门道歉结果因为kemu的态度把矢吹气到了）
 
+
+
+*****
+
+####  BT有理  
+##### 95#       发表于 2022-6-5 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56126294&amp;ptid=2073274" target="_blank">ads147147 发表于 2022-6-5 00:03</a>
+难得早间配了个不是bitch胜似bitch的角色，主要是心满胖子三人这段很怪，完全无法理解作者想要表达什么。 ...</blockquote>
+不理解吗，不就是明着踩肥宅<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
