@@ -14301,3 +14301,15 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 
 130抽三个罗兰和一个....欧罗巴<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你奶奶个腿
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88240#       发表于 2022-6-4 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116951&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-4 08:53</a>
+
+源为朝哪有那么强，射掉小木舟的箭变成大炮</blockquote>
+叠盒子的话倒是没多强，这么供能宝具连发也对齐格飞造成不了太大威胁，这个齐格飞又没啥外部加成，和第一章的对不起没差，倒是君十一丢人丢大发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

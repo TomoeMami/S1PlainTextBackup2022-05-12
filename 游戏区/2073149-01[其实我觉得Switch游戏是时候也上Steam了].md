@@ -1276,3 +1276,14 @@ ns和steam的4399    99%共用吧
 
 你不是直肠子，你就是根直肠<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chizuru  
+##### 123#       发表于 2022-6-4 11:08
+
+<blockquote>Mires 发表于 2022-6-4 02:29
+Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目前的话基本上不可能上，除非又出现一个Wiiu一样的 ...</blockquote>
+wiiu遗产移植ns大部分都卖比初版好。还有马车8这种怪物销量。基本原封不动原价还能卖两次，销量还好还能填补软件阵容不足。如果当时上pc，起码就没ns什么事了
+
