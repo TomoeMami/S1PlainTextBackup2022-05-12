@@ -14434,3 +14434,17 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 地上的血管人是啥玩意</blockquote>
 那个什么大卫布鲁克林吧，幸存的记录者。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88250#       发表于 2022-6-4 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56121568&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-4 17:12</a>
+
+检体E是小树枝的话
+
+地上的血管人是啥玩意</blockquote>
+话说我发现手术台上有个树枝后的第一反应是：哪位褪色者的卢恩忘了捡啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1397,3 +1397,14 @@ wiiu遗产移植ns大部分都卖比初版好。还有马车8这种怪物销量�
 我还想要一切游戏不止都上PC，还都要免DRM。Steam这种还要绑个账号和强制下载平台的显然就不及itch（GOG ...</blockquote>
 那是我理解错了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ppa11  
+##### 134#       发表于 2022-6-4 17:59
+
+<blockquote>tlozfan 发表于 2022-6-3 22:36
+不说我都忘了，当初岩田聪社长去世的时候，国内各个舆论场绝对不是现在一片怀念的声音。各种恶言相向污蔑 ...</blockquote>
+我印象中，那时候索索刷的最多的就是俩，一个聪哥姨夫诸葛司马懿梗，一个就是yygq(
+
