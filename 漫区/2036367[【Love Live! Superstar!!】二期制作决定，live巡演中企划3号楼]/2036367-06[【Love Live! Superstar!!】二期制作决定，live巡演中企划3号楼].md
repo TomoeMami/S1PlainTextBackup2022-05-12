@@ -18925,3 +18925,74 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8918#       发表于 2022-6-4 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打铁今天嗓子不太好，咋回事
+
+*****
+
+####  iuhehc  
+##### 8919#       发表于 2022-6-4 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8920#       发表于 2022-6-4 17:43
+
+哇！
+
+*****
+
+####  寒风夜  
+##### 8921#       发表于 2022-6-4 17:43
+
+ 本帖最后由 寒风夜 于 2022-6-4 17:46 编辑 
+
+好惨好惨 ...那20场摧太狠了，最开始的嗓音大抵是回不来了 
+
+*****
+
+####  qty  
+##### 8922#       发表于 2022-6-4 17:46
+
+这手聪明啊，直接降调改舒缓风，直接避开高音
+
+*****
+
+####  iuhehc  
+##### 8923#       发表于 2022-6-4 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56121892&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-6-4 17:43</a>
+好惨好惨 ...那20场摧太狠了，最开始的嗓音大抵是回不来了</blockquote>
+也不是多少次的问题，她每次都很挤嗓，1巡就有发问题，就现在改唱法还来得及
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 8924#       发表于 2022-6-4 17:48
+
+我就猜到今天会有不插电形式的演出！！！小星星吼啊！！！！！！！！！！
+
+*****
+
+####  寒风夜  
+##### 8925#       发表于 2022-6-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56121920&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-4 17:46</a>
+
+也不是多少次的问题，她每次都很挤嗓，1巡就有发问题，就现在改唱法还来得及
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">速速找老师
+
