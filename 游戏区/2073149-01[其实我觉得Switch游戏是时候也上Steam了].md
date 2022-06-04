@@ -1691,3 +1691,16 @@ s1的人体堂爱好者也太多了吧</blockquote>
 泥潭任豚除 ...</blockquote>
 看了半天也没发现谁扣你帽子啊，被迫害妄想症？
 
+
+
+*****
+
+####  Rainwedell  
+##### 161#       发表于 2022-6-4 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125866&amp;ptid=2073149" target="_blank">鸡翼大绅士 发表于 2022-6-4 23:29</a>
+看了半天也没发现谁扣你帽子啊，被迫害妄想症？</blockquote>
+昨天看就有点不明所以，今天看编辑完破防打滚可还行。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

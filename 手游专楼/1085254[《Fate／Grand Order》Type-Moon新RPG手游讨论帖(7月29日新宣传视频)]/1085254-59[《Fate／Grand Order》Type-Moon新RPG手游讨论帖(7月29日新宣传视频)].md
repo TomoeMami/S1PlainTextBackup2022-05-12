@@ -14729,3 +14729,19 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 （马里斯比利：我不到啊，看见2017年历史没了就慌了，然后出门转转找了几个看起来不同凡响、能拯救世界的家伙就领回来了。感觉我手气还不错，之前随随便便就抽了个UR魔术王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88267#       发表于 2022-6-4 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125186&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-4 22:43</a>
+
+山羊兔那个迦勒底始作俑者说还是挺靠谱的</blockquote>
+这个吗：[https://www.bilibili.com/video/BV1s34y147Fh](https://www.bilibili.com/video/BV1s34y147Fh)
+
+简单看了一下，虽然结局很离谱，不过推理过程还不错。
+
+如果是迦勒底这个只会sodayo的老福，看完后估计就该当真了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
