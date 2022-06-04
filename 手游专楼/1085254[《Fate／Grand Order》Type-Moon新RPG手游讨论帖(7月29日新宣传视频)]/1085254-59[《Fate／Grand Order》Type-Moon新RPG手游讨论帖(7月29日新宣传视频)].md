@@ -14490,3 +14490,29 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 话说在人类文明百年后，一大堆古代英雄在废墟上征战厮杀，怎么有种诡秘之主的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88253#       发表于 2022-6-4 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56122946&amp;ptid=1085254" target="_blank">zakki 发表于 2022-6-4 19:25</a>
+
+目前的猜测：2.65的时间是2117年，并且2.65的所在地是迦勒底亚斯内部，大卫布鲁布克是迦勒底亚斯内模拟出的 ...</blockquote>
+布鲁布克的死亡时间应该是2117年，因为他提到太阳能摩托车已经过时了。
+
+但是迦勒底所在世界2017年就白纸化了。
+
+也许是因为老所长停滞了迦勒底亚斯一百年的时间对2017年灾难进行观测？
+
+（有种港漫《武神终极》里面邪恶白武男停止时间一千年研究白军浪一百万匹海虎爆破拳破绽的既视感...）
+
+或者说时间差异是因为迦勒底所在世界本身就是一条异闻带？地球本身的主世界逃不过2117年必灭的结局，老所长发现后就备份了迦勒底，然后引来空想树让异闻带的存在和延续合理化？
+
+所以盖提亚才会说“因为在这里，你们才是邪恶的。但是，对于生存来说，善与恶没有优劣之分。”
+
+嗯，以上都是瞎奶和口胡，不过这么一看第二部的剧情还真有很高的可看性，蘑菇宝刀未老啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">期待2.7，想看看世界的真相和抽烟雾镜了。
+
+（不过有一说一，我每次代充完重开游戏看第二部OP，戴维特在悬崖上那个侧颜总是让人心动，但是一想到剧情立绘那个高桥脸...南丁你杀了我吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
