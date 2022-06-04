@@ -9484,3 +9484,41 @@ dsw直播时间太晚了，到现在也没看过，每次想看都因为健康�
 
 该叫上皇了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14408#       发表于 2022-6-4 13:53
+
+ 本帖最后由 古战场亡魂 于 2022-6-4 13:55 编辑 
+
+之前你楼有人说莎皇错过了向天皇求教的时机。
+
+我倒是认为是兔头错过了承认莎皇实力和传位的时机。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+等委员长休息回来，莎皇早百万了。已经成功食杀。委员长已经被莎皇塞进冰箱里了。
+
+<img src="https://img.saraba1st.com/forum/202206/04/135423vnmoqp9qzqmlmczc.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220604135400541.jpg</strong> (10.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 13:54 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/135424v2blbfz3vfky3cbu.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220604135407872.jpg</strong> (7.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 13:54 上传
+
+*****
+
+####  空集  
+##### 14409#       发表于 2022-6-4 13:57
+
+从洗衣机到冰箱了意思是
+
