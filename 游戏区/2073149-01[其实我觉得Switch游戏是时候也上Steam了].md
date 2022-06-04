@@ -1087,3 +1087,38 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 作为玩家那当然希望能上pc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多个选择总归是好事
 当然想是一回事，除非ns和第一方卖不动，不然实在看不到有啥可能性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GomezS  
+##### 106#       发表于 2022-6-4 08:56
+
+ 本帖最后由 GomezS 于 2022-6-4 08:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/04/085342n3cy5svry6d29wrv.png" referrerpolicy="no-referrer">
+
+<strong>BF203BF9-8E07-45F9-B68B-7A05273D5C2A.png</strong> (49.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-4 08:53 上传
+
+都在讨论任天堂，关键是索尼也没真挣到大钱啊
+
+21年 八千万美金，全价游戏换算下来也就130万份
+
+还不如找个老游戏出个NS版赚的多
+
+*****
+
+####  量子大蛇  
+##### 107#       发表于 2022-6-4 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116974&amp;ptid=2073149" target="_blank">GomezS 发表于 2022-6-4 08:56</a>
+
+都在讨论任天堂，关键是索尼也没真挣到大钱啊
+
+21年 八千万美金，全价游戏换算下来也就130万份</blockquote>
+可能和育碧一样的心态，蚊子腿再小也是肉，育碧才是牛逼，和杉果合作用百度网盘卖古早游戏，那个短命的战斧主机他们也上，也不知道才赚几个钱。
+
