@@ -10036,3 +10036,12 @@ syl，最后15kill3219dmg 杀爽了
 
 跌丝袜待机室这1千多人“病得不轻”啊，在那虚空看直播......
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 14463#       发表于 2022-6-5 00:38
+
+额，虚空看直播这种事情我好像在B站看见过，看来还是国服比较领先<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
