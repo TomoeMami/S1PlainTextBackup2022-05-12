@@ -1028,3 +1028,39 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 
 互联网有记忆，不错
 
+
+
+*****
+
+####  纯狐娘娘  
+##### 100#       发表于 2022-6-4 08:02
+
+楼主在岩田聪的那时候是真的恶心
+
+*****
+
+####  shinnfin  
+##### 101#       发表于 2022-6-4 08:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+好奇在任天堂赚的盆满钵满的今天    楼主是不是气的夜不能寐
+
+*****
+
+####  SorroFrost  
+##### 102#       发表于 2022-6-4 08:07
+
+ 本帖最后由 SorroFrost 于 2022-6-4 08:11 编辑 
+
+要不把楼主塞到ns第一方上PC的时候吧，还有自己被自己背刺的时候就不要搁这转移注意力和矛盾了，先解决自己麻烦再说吧
+
+*****
+
+####  无色辉火  
+##### 103#       发表于 2022-6-4 08:11
+
+看了直呼索索好可怜<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
