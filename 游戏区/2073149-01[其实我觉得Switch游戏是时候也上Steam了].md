@@ -1064,3 +1064,16 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  立派的首陀罗  
+##### 104#       发表于 2022-6-4 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116112&amp;ptid=2073149" target="_blank">TANA 发表于 2022-6-4 02:01</a>
+被喷得气急败坏后在S1排遗</blockquote>
+考虑到我在互联网上看过的东西，我怀疑会有奇怪的人跳出来宣称lz是帆船的任任
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
