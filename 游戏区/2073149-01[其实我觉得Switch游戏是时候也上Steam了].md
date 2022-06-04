@@ -1169,3 +1169,31 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  海腹川背  
+##### 112#       发表于 2022-6-4 09:37
+
+ns和steam的4399    99%共用吧
+
+*****
+
+####  760194962  
+##### 113#       发表于 2022-6-4 09:38
+
+按主角的描述 不是已经上了吗 优化还不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  redwolfwlm  
+##### 114#       发表于 2022-6-4 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116112&amp;ptid=2073149" target="_blank">TANA 发表于 2022-6-4 02:01</a>
+
+被喷得气急败坏后在S1排遗</blockquote>
+惊了，看到你截图才发现当年他还投诉过我的
+
