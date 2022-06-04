@@ -580,3 +580,21 @@ kemu这事儿泥潭不知道有点不可思议
 有啥好YYGQ的 旧的不去新的不来，说不定人家娶的新老婆JK美少女家庭美满人生赢家呢 ...</blockquote>
 矢吹老师这种级别的jk.不jk 都是人生赢家
 
+
+
+*****
+
+####  7776169  
+##### 62#       发表于 2022-6-4 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56122250&amp;ptid=2073274" target="_blank">UnhappyTails 发表于 2022-6-4 18:16</a>
+
+kemu这事儿泥潭不知道有点不可思议
+
+以及矢吹可不是什么肥宅舔狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我记得当年有人找来出包的后记还是什么采访之类的
+
+说了一下老湿当时只能带着女儿回去找父母照顾了，不过好歹也熬过去了。
+
+我倒是想不到后来居然再结婚了，还生了个孩子
+
