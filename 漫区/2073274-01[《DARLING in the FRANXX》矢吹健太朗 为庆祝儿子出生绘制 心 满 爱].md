@@ -876,3 +876,17 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 我说的是整个剧情的pstd，心满太不过是其中的一换罢了</blockquote>
 我至今还不理解围绕这剧发病的，除了莓那段有点惨，其他真没给我一点触动能代入的。
 
+
+
+*****
+
+####  LOLITA  
+##### 88#       发表于 2022-6-4 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125775&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-4 23:21</a>
+
+我至今还不理解围绕这剧发病的，除了莓那段有点惨，其他真没给我一点触动能代入的。 ...</blockquote>
+这剧我一直没明白是拍给谁看的，说是制作组自嗨吧，也不像，恶心观众吧，也没法全恶心到。
+
+真的想好好制作出名作吧，又明显力不从心<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
