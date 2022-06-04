@@ -18757,3 +18757,16 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 8900#       发表于 2022-6-4 14:34
+
+隔壁大家一起追飞机都被说是霸凌入队。
+
+这边要是可可真霸凌2度，这企划也别当动画存在了，单推挺好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
