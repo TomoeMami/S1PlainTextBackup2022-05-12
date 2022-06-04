@@ -9974,3 +9974,17 @@ syl，最后15kill3219dmg 杀爽了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">在这之前我以为短视频会是官方出品的音mad特攻一下欧美
 
+
+
+*****
+
+####  长谷川红叶  
+##### 14458#       发表于 2022-6-4 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56122699&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-4 19:59</a>
+
+为什么莎天酱吃汉堡就是和夜见过不去啊
+
+省一楼，むゆゆ喜提まゆゆ二次点赞！</blockquote>
+不是说围棋职业选手在和AI对练以后，也会下出一些看似天马行空，但却能在十几手后取得效果的“AI软件招法”吗？在看不到的地方，不会真的有什么“虹人基因补完计划”吧？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

@@ -780,3 +780,19 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 —— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 80#       发表于 2022-6-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124662&amp;ptid=2073274" target="_blank">ads147147 发表于 2022-6-4 22:04</a>
+
+这样做了肯定是死胖子赶紧死远点，人家百年好合。总比让胖子一直当好人哭着退出还当证婚人好。
+
+—— 来 ...</blockquote>
+这样就彻底没什么人给胖子说话了。
+
+真待见胖子还不如让他减个肥在一起呢。
+
