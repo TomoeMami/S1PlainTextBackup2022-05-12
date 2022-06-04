@@ -14313,3 +14313,15 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 源为朝哪有那么强，射掉小木舟的箭变成大炮</blockquote>
 叠盒子的话倒是没多强，这么供能宝具连发也对齐格飞造成不了太大威胁，这个齐格飞又没啥外部加成，和第一章的对不起没差，倒是君十一丢人丢大发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88241#       发表于 2022-6-4 11:22
+
+飞嫂才是章节最后BOSS吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">最后一条血等于每回合随机点一个人退场
+还有老公强制前排拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
