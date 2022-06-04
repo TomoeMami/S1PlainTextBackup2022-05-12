@@ -9863,3 +9863,12 @@ syl，king掉了
 说了上届最协夜见这队基本全程就是欧巴夜见2打3的，hayun在最协都有一打二的能力，被低估挺多的 ...</blockquote>
 到现在也不明白为啥hayun玩胖子，小福玩瓦鸡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 14447#       发表于 2022-6-4 21:01
+
+小魔王一人偷了3000伤害<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
