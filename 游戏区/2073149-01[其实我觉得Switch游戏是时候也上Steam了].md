@@ -1077,3 +1077,13 @@ Wiiu那个时候如果上Pc，游戏销量应该可以翻倍或者更多。目�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  赤星ビスコ  
+##### 105#       发表于 2022-6-4 08:50
+
+作为玩家那当然希望能上pc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多个选择总归是好事
+当然想是一回事，除非ns和第一方卖不动，不然实在看不到有啥可能性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
