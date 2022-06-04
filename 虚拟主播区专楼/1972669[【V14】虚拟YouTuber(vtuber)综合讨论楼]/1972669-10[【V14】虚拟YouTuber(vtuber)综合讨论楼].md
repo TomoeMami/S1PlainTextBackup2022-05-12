@@ -9736,3 +9736,12 @@ V圈四年如人间四世，不要跨时代关公战秦琼<img src="https://stat
 
 lisa我的糖豆人超人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14432#       发表于 2022-6-4 18:46
+
+糖豆人的观赏性还是不如apex。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
