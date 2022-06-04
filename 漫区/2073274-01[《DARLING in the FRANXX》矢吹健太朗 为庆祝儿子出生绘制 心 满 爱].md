@@ -767,3 +767,16 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 我也搞不懂了，胖子和人家本来也不是什么情侣关系啊，就一失败的舔狗怎么搞的被人牛了似的
 
+
+
+*****
+
+####  最强惠酱  
+##### 79#       发表于 2022-6-4 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124823&amp;ptid=2073274" target="_blank">yangun22 发表于 2022-6-4 22:15</a>
+我也搞不懂了，胖子和人家本来也不是什么情侣关系啊，就一失败的舔狗怎么搞的被人牛了似的 ...</blockquote>
+不如说便宜了胖子吧<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

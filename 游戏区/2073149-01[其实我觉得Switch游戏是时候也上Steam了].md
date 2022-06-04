@@ -1669,3 +1669,12 @@ s1的人体堂爱好者也太多了吧</blockquote>
 哪个ns第一方是像素小游戏？</blockquote>
 免费的跳绳
 
+
+
+*****
+
+####  奥F特  
+##### 159#       发表于 2022-6-4 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任天堂为啥要给steam送钱 
+
