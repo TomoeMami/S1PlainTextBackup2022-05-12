@@ -18788,3 +18788,14 @@ ins更新一张老图
 
 现在一期动画这样，我感觉可能不少人把感情寄托到三次元方向上了吧，个人感觉加人的消息出来的时候国内大家普遍持反对意见或许有这方面的原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 8902#       发表于 2022-6-4 15:51
+
+<blockquote>aoaoaodedede 发表于 2022-6-4 15:25
+说到底现在不知道企划到底想怎么走，星团这企划一开始公布没多久就宣布要制作TV动画的，结果这么长时间过 ...</blockquote>
+(我甚至一集动画都没看
+
