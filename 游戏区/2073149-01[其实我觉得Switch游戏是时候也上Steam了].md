@@ -1647,3 +1647,25 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 3a画质4k60帧画面不糊秒读盘随便打mod抽卡佣兵任务垃圾游戏嗼可以上风灵月影解决的泥潭第一jrpg谁不想要
 
+
+
+*****
+
+####  JudgmentEye  
+##### 157#       发表于 2022-6-4 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112082&amp;ptid=2073149" target="_blank">硫黄 发表于 2022-6-3 19:04</a>
+
+其实我甚至相信日本会打游戏的人里，有NS的比有电脑的人多</blockquote>
+11区会打游戏的人里，除了巨硬的主机，有另两家主机的都比有电脑的人多
+
+*****
+
+####  JudgmentEye  
+##### 158#       发表于 2022-6-4 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56112199&amp;ptid=2073149" target="_blank">鸡翼大绅士 发表于 2022-6-3 19:16</a>
+
+哪个ns第一方是像素小游戏？</blockquote>
+免费的跳绳
+
