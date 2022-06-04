@@ -14382,3 +14382,19 @@ TMD 这通古斯最后没倍卡打着这么蛋疼的么 2.65我连令咒都没�
 
 联想到声优是寺岛拓笃，很难不怀疑让罗兰背刺个阿福就能手撕冠位啥的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 88246#       发表于 2022-6-4 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120749&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-4 15:50</a>
+
+刚才看了个别人总结的罗兰奇迹能力，感觉有点意思：
+
+（1）代价可以自己来选择
+
+（2）但是付出的代价如果量不 ...</blockquote>
+还是有点区别，隔壁那个是先用后付款，用了才知道要多少，而且不能退货。还是这边的比较良心，先出价，钱不够不给干活，但也不会白坑你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
