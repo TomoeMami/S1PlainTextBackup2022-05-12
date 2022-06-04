@@ -685,3 +685,23 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 矢吹老师用这对当贺图，也是心大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shiko  
+##### 71#       发表于 2022-6-4 21:19
+
+我也挺喜欢心满的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无视最后一集脑瘫的琼瑶发言的话
+
+比起什么迫害小胖，还是心心心满满满更加傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  宵神乐  
+##### 72#       发表于 2022-6-4 21:21
+
+矢吹老湿太巨魔了
+
