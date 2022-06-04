@@ -14547,3 +14547,22 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 但是迦勒底所在世界2017年就白纸化 ...</blockquote>
 你其实搞错了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么是2117年的原因是迦勒底亚斯最远观测的时间是100年后，所以2017白纸化的时候迦勒底亚斯内最远的时间正好是2117年，与其说是2017年白纸化，不如说是先有的迦勒底亚斯白纸化，再反向输入到地球的。其实整个2.0可以算是迦勒底亚斯对地球的侵略，当然这些都是猜测
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88257#       发表于 2022-6-4 20:51
+
+ 本帖最后由 Jamaisvu 于 2022-6-4 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56123611&amp;ptid=1085254" target="_blank">zakki 发表于 2022-6-4 20:26</a>
+
+你其实搞错了一点为什么是2117年的原因是迦勒底亚斯最远观测的时间是100年后，所以2017白纸化的时 ...</blockquote>
+大概明白了，迦勒底被模因污染后直接跨越时间轴反向影响现实世界，熟悉的SCP工具人造反套路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也许老所长的计划是：利用地球白纸化前于2017年被发现的外星人E，召唤出异星神，进而引来空想树，然后让“地球遭到迦勒底亚斯反噬而白纸化”的世界线成为异闻带，最终被事象剪定，与泛人类史彻底隔绝。
+
+不过感觉有点治标不治本，果然我不是救世主的料，还是别胡思乱想了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+感觉2.6.5的三国争霸就是个添头，给谁写都行，重点只是让最后的51区机密和人理保障行动搭上线......期待一个量大管饱的2.7<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

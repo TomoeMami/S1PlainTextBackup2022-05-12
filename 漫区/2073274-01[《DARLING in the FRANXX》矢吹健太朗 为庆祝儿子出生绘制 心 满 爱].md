@@ -670,3 +670,18 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 另外kemu/中村INE/堀江晶太个人生涯还是受了不小影响的，不然他应该早就出道了，现在只能当个作曲
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 70#       发表于 2022-6-4 20:55
+
+ 本帖最后由 保罗赫伯特 于 2022-6-4 20:58 编辑 
+
+呃，唤醒了不好的回忆啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肥宅被ntr那段剧情让人觉得恶心，主要还是因为整个过程中他表现的像一个真黄漫苦主一样智障，这种人物会出现在一部表番里就很违和<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+矢吹老师用这对当贺图，也是心大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

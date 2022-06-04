@@ -9837,3 +9837,29 @@ syl，king掉了
 
 德龙居然在玩瓦鸡，惊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 14444#       发表于 2022-6-4 20:52
+
+ハユン3800伤害，第二名，带飞啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 14445#       发表于 2022-6-4 20:55
+
+说了上届最协夜见这队基本全程就是欧巴夜见2打3的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，hayun在最协都有一打二的能力，被低估挺多的
+
+*****
+
+####  Suzutsuki  
+##### 14446#       发表于 2022-6-4 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56123896&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-6-4 20:55</a>
+
+说了上届最协夜见这队基本全程就是欧巴夜见2打3的，hayun在最协都有一打二的能力，被低估挺多的 ...</blockquote>
+到现在也不明白为啥hayun玩胖子，小福玩瓦鸡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
