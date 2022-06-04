@@ -832,3 +832,47 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 怎么同样的贴，nga比s1的恶意还大，是不是当年的ptsd患者都跑路了？ ...</blockquote>
 当年猴区也是方丈高楼，受到的刺激不比泥潭轻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 84#       发表于 2022-6-4 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125575&amp;ptid=2073274" target="_blank">LOLITA 发表于 2022-6-4 23:07</a>
+
+动画婆罗门基本都有舔狗经历，应该是和胖子共情了吧</blockquote>
+让他当证婚人（还真同意当了）有点生草。
+
+还有就是前面扯的，这对的情感发展深度不太够。
+
+*****
+
+####  呆呆兽二号  
+##### 85#       发表于 2022-6-4 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125616&amp;ptid=2073274" target="_blank">aptx8285144 发表于 2022-6-4 23:11</a>
+
+当年猴区也是方丈高楼，受到的刺激不比泥潭轻</blockquote>
+胖子这形象，不是主角，一看就知道成不了啊。
+
+*****
+
+####  aptx8285144  
+##### 86#       发表于 2022-6-4 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125702&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-4 23:17</a>
+
+胖子这形象，不是主角，一看就知道成不了啊。</blockquote>
+我说的是整个剧情的pstd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，心满太不过是其中的一换罢了
+
+*****
+
+####  呆呆兽二号  
+##### 87#       发表于 2022-6-4 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125761&amp;ptid=2073274" target="_blank">aptx8285144 发表于 2022-6-4 23:20</a>
+
+我说的是整个剧情的pstd，心满太不过是其中的一换罢了</blockquote>
+我至今还不理解围绕这剧发病的，除了莓那段有点惨，其他真没给我一点触动能代入的。
+

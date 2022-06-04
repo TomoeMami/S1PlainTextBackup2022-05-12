@@ -10005,3 +10005,25 @@ syl，最后15kill3219dmg 杀爽了
 
 并且对无论百万姐做什么都要安一个神机妙算的想法感到不满。
 
+
+
+*****
+
+####  fastary  
+##### 14460#       发表于 2022-6-4 23:11
+
+今天没怎么坐牢，三个人有说有笑还挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+还是喜欢看他团建……谢谢男主播愿意参加虹派<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 14461#       发表于 2022-6-4 23:17
+
+“神机妙算”就像“月之mk2”、“虹女超梦”、”田角陆老婆“一样是个梗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+省一楼，我郡也好久没参加过这么没负担的大会了，虽说肯定有人坐牢不开心（比如发15张牛肉卷的主办），但还是感谢主办<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
