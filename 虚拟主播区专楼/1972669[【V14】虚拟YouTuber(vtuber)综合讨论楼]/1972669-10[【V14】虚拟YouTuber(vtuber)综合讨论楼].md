@@ -9763,3 +9763,14 @@ lisa我的糖豆人超人<img src="https://static.saraba1st.com/image/smiley/fac
 
 省一楼，むゆゆ喜提まゆゆ二次点赞！
 
+
+
+*****
+
+####  Kokichi  
+##### 14435#       发表于 2022-6-4 19:23
+
+ojj画了个饼。
+一二位都是赛前不被看好实际练习赛里顺位不错的队伍，还是希望把apex补上啊。
+<img src="https://p.sda1.dev/6/a51ba8ee8a8af2f793c6782310f23a1c/CMP_20220604202155834.jpg" referrerpolicy="no-referrer">
+

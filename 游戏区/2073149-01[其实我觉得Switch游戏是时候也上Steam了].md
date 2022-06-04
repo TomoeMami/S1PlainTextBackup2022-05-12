@@ -1480,3 +1480,14 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 麻布仔什么的是不是要跨PC了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新田義史  
+##### 142#       发表于 2022-6-4 19:24
+
+嘻嘻，平时硬件软件卖不过的时候一口一句不在同个赛道上，现在又来类比了
+
+你索爹贪那点钱背刺索索是你索爹的事情，越想围任救索，你索爹跨得越勤快<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
