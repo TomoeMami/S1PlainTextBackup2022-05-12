@@ -1385,3 +1385,15 @@ wiiu遗产移植ns大部分都卖比初版好。还有马车8这种怪物销量�
 
 其实得益于设计上就追求更少的多边形，NS绝大多数第一方游戏无论是掌机还是接电视观感都是说得过去的。
 
+
+
+*****
+
+####  哈露尼娅  
+##### 133#       发表于 2022-6-4 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56119506&amp;ptid=2073149" target="_blank">满满一大杯 发表于 2022-6-4 13:26</a>
+
+我还想要一切游戏不止都上PC，还都要免DRM。Steam这种还要绑个账号和强制下载平台的显然就不及itch（GOG ...</blockquote>
+那是我理解错了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+

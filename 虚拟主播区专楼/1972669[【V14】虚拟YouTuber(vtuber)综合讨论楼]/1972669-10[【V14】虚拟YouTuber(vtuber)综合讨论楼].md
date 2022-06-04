@@ -9641,3 +9641,12 @@ selly因为家里的事缺席今天的cr杯，找的ib代打
 
 而且中之人还没暴露呢，稍微打扮打扮颜值想输大监督有点难度。
 
+
+
+*****
+
+####  Ketestrait  
+##### 14422#       发表于 2022-6-4 15:14
+
+V圈四年如人间四世，不要跨时代关公战秦琼<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
