@@ -18770,3 +18770,21 @@ ins更新一张老图
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8901#       发表于 2022-6-4 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120131&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-4 14:34</a>
+
+隔壁大家一起追飞机都被说是霸凌入队。
+
+这边要是可可真霸凌2度，这企划也别当动画存在了，单推挺好。</blockquote>
+说到底现在不知道企划到底想怎么走，星团这企划一开始公布没多久就宣布要制作TV动画的，结果这么长时间过去了，一期动画呈现给观众的是个那样的剧情，我是因为星团动画入坑的，不知道之前一直见证着这个企划成长的老粉们是怎么看待动画这种表现的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我一直觉得Lovelive有个很关键的点是那个MediaMix，三次元二次元一样也不能少。
+
+现在一期动画这样，我感觉可能不少人把感情寄托到三次元方向上了吧，个人感觉加人的消息出来的时候国内大家普遍持反对意见或许有这方面的原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
