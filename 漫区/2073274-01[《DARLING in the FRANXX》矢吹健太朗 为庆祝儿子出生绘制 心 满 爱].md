@@ -796,3 +796,39 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 真待见胖子还不如让他减个肥在一起呢。
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 81#       发表于 2022-6-4 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124823&amp;ptid=2073274" target="_blank">yangun22 发表于 2022-6-4 22:15</a>
+
+我也搞不懂了，胖子和人家本来也不是什么情侣关系啊，就一失败的舔狗怎么搞的被人牛了似的 ...</blockquote>
+是的，哪怕许诺也是一直做搭档。
+
+这胖子人好，被人同情很正常。但是不应该骂这女的。。。
+
+*****
+
+####  LOLITA  
+##### 82#       发表于 2022-6-4 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125485&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-4 23:02</a>
+
+是的，哪怕许诺也是一直做搭档。
+
+这胖子人好，被人同情很正常。但是不应该骂这女的。。。 ...</blockquote>
+动画婆罗门基本都有舔狗经历，应该是和胖子共情了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 83#       发表于 2022-6-4 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124378&amp;ptid=2073274" target="_blank">兔姬姬姬姬姬 发表于 2022-6-4 21:38</a>
+
+怎么同样的贴，nga比s1的恶意还大，是不是当年的ptsd患者都跑路了？ ...</blockquote>
+当年猴区也是方丈高楼，受到的刺激不比泥潭轻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
