@@ -10027,3 +10027,12 @@ syl，最后15kill3219dmg 杀爽了
 
 省一楼，我郡也好久没参加过这么没负担的大会了，虽说肯定有人坐牢不开心（比如发15张牛肉卷的主办），但还是感谢主办<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 14462#       发表于 2022-6-4 23:50
+
+跌丝袜待机室这1千多人“病得不轻”啊，在那虚空看直播......
+
