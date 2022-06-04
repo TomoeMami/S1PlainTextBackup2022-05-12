@@ -19247,3 +19247,73 @@ ins更新一张老图
 
 今天🐟就是5人final的感觉。我
 
+
+
+*****
+
+####  仟音一心  
+##### 8955#       发表于 2022-6-4 20:07
+
+哭得梨花带🐟
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705buuegrrnujjxknzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>62979D85-4EB4-4B35-96D9-A80755746856.jpeg</strong> (173.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705ut6t86jm5g78k8g8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2A9A81DD-901D-4132-AB8C-53754F76E0F0.jpeg</strong> (170.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705iuju35i8aji1z8u1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A2B86621-F36C-405B-B8BA-62DC32465700.jpeg</strong> (245.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705jgv1mk9q5bk0k2ik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2AEF0C2D-E568-4B04-AE37-195D0430A532.jpeg</strong> (141.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705z6i7iyv7i1cz08i1.png" referrerpolicy="no-referrer">
+
+<strong>C9B93B1C-0502-4806-BF3A-2E4385B8098A.png</strong> (125.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/200705qdn81zewd8xb488j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>05C1D456-599A-4978-8179-CBC36792A9F2.jpeg</strong> (258.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:07 上传
+
+*****
+
+####  starring  
+##### 8956#       发表于 2022-6-4 20:09
+
+没看成day1只好等复盘，明天day2真就5人的final无论怎样都要看成<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
