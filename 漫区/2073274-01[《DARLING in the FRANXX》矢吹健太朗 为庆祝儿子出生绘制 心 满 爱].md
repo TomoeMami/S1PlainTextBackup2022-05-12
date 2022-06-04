@@ -968,3 +968,15 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 难得早间配了个不是bitch胜似bitch的角色，主要是心满胖子三人这段很怪，完全无法理解作者想要表达什么。 ...</blockquote>
 不理解吗，不就是明着踩肥宅<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 96#       发表于 2022-6-5 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56127480&amp;ptid=2073274" target="_blank">BT有理 发表于 2022-6-5 01:48</a>
+
+不理解吗，不就是明着踩肥宅</blockquote>
+但是换过来说，多少人会放着美少女不要，去和一个对自己好的丑女坚守的。
+

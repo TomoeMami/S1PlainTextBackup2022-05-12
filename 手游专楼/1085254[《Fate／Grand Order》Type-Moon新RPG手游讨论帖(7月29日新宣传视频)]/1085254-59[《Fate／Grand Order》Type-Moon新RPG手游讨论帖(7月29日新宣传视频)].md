@@ -14745,3 +14745,27 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 如果是迦勒底这个只会sodayo的老福，看完后估计就该当真了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88268#       发表于 2022-6-5 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125186&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-4 22:43</a>
+山羊兔那个迦勒底始作俑者说还是挺靠谱的</blockquote>
+现在的剧情如果没有反转，老所长基本上是一切的元凶了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 88269#       发表于 2022-6-5 02:00
+
+ 本帖最后由 保罗赫伯特 于 2022-6-5 02:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56125186&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-4 22:43</a>
+
+山羊兔那个迦勒底始作俑者说还是挺靠谱的</blockquote>
+看了一下那个视频，前面的部分感觉还蛮有道理，最后提到老所长的计划中途被真正的幕后黑手抢班了，同时表示自己对于幕后黑手是谁的看法和五年前一样。出于好奇，看了一下他2017年做的视屏，那时候他推断出的幕后黑手是达芬奇，一大理由是她故意让古达逃过雷夫的炸弹，成为唯一的御主（棋子）。这个推论现在看起来就不太靠谱了，毕竟达芬奇已经被麻婆掏心了啊，总不能说她连自己的死都计算到了，最后附身小达芬奇诈尸吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按现在的情况分析，有杀了老所长嫌疑的戴比特更有可能是幕后黑手吧，而且也很有可能和51区的“外星人”有关<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

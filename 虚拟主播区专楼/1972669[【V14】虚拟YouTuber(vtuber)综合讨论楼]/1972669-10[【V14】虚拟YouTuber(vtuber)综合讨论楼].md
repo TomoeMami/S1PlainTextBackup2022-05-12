@@ -10085,3 +10085,17 @@ syl，最后15kill3219dmg 杀爽了
 
 黑黑千重组三排！版本回滚了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 14468#       发表于 2022-6-5 03:29
+
+ 本帖最后由 NBXX 于 2022-6-5 03:46 编辑 
+
+<img src="https://p.sda1.dev/6/938c45c29a92b1cc23a5820b0bc32a25/2_HK2RU269I_XHO~XO~I6~5.png" referrerpolicy="no-referrer">
+[https://vrabi.net/channel/UCgIfLpQvelloDi8I0Ycbwpg](https://vrabi.net/channel/UCgIfLpQvelloDi8I0Ycbwpg)
+
+vrabi最近两天的直播开始上线了观众来源统计分析<img src="https://p.sda1.dev/6/0ab87ad4b79017e017a4fb0d6b263153/CMP_20220605034547212.png" referrerpolicy="no-referrer">
+

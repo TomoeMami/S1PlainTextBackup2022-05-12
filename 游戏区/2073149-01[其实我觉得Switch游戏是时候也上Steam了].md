@@ -1735,3 +1735,17 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 当对自称玩家的一些人来说，游戏最重要的评价标准是画面，那作为“玩家”可太可悲了
 
+
+
+*****
+
+####  ppa11  
+##### 165#       发表于 2022-6-5 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116779&amp;ptid=2073149" target="_blank">立派的首陀罗 发表于 2022-6-4 08:16</a>
+
+考虑到我在互联网上看过的东西，我怀疑会有奇怪的人跳出来宣称lz是帆船的任任
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">这题我会，你说的一定是学缝纫
+
