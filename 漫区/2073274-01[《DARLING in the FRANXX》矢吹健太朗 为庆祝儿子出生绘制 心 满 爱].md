@@ -745,3 +745,16 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 —— 来自 Xiaomi 2106118C, Android 12上的  ...</blockquote>
 这么做了只有把她彻底逼到敌对面啊。
 
+
+
+*****
+
+####  ads147147  
+##### 77#       发表于 2022-6-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124399&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-4 21:39</a>
+这么做了只有把她彻底逼到敌对面啊。</blockquote>
+这样做了肯定是死胖子赶紧死远点，人家百年好合。总比让胖子一直当好人哭着退出还当证婚人好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -14626,3 +14626,41 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 （不过现在日本推理小说界各种猎奇新本格已经品鉴的够多了，蘑菇有功夫还是老老实实打磨月球史吧）
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88261#       发表于 2022-6-4 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124450&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-4 21:44</a>
+
+不知道明年的这个时候咱能不能再回冬木……</blockquote>
+有始有终，万一最后真的确定奥尔加玛丽的死才导致异星神入侵，那回去救一下也算是首尾呼应。
+
+顺便还能给看板娘找点面子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这么一想，异星神使徒三人组里某两位的人选就很好理解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88262#       发表于 2022-6-4 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人理的守护者黑呆和红A
+
+*****
+
+####  zakki  
+##### 88263#       发表于 2022-6-4 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124558&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-4 21:55</a>
+懂了懂了，从特异点F结尾奥尔加玛丽的灵魂被迦勒底亚斯吸收，异星神相关的布局就开始了。
+
+教授作为异星使 ...</blockquote>
+感觉你好像也没太懂我说的意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+异闻带是啥怎么产生的我解释不了，但目前可以推测的是，异闻带的产生是在2117年的白纸化后的世界产生的，然后可能逆输入到了地球。
+
+这推测里有一堆东西没法解释，可能这部分就是老所长插手的部分。但我更倾向于，老所长对奥尔加玛丽有做过什么，为什么奥尔加玛丽就能成为检体e，这里面肯定有原因，老所长不太可能是白纸化，异闻带，空想树之类东西的幕后黑手
+
