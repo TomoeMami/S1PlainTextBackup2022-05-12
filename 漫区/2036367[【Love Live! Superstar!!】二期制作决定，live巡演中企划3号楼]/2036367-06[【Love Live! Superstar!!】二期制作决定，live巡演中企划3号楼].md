@@ -19014,3 +19014,49 @@ ins更新一张老图
 
 5人斗舞新鲜，NOFI开始的乐队介绍也不错
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8928#       发表于 2022-6-4 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么调戏新人环节
+
+*****
+
+####  cybernetics31  
+##### 8929#       发表于 2022-6-4 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">今天就这样了，明天不得哭死
+
+*****
+
+####  qty  
+##### 8930#       发表于 2022-6-4 18:26
+
+为啥又掉眼泪啊？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8931#       发表于 2022-6-4 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一股final live的感觉
+
+*****
+
+####  cybernetics31  
+##### 8932#       发表于 2022-6-4 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">可不就当final看嘛
+
+*****
+
+####  iuhehc  
+##### 8933#       发表于 2022-6-4 18:29
+
+某层面上确实final
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
