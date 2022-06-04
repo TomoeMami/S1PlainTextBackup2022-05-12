@@ -19199,3 +19199,22 @@ ins更新一张老图
 
 今天好能哭阿，是因为这次是最后五个人了吗，我们观众也只能思考到这个层级了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8950#       发表于 2022-6-4 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56122994&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-4 19:31</a>
+
+今天好能哭阿，是因为这次是最后五个人了吗，我们观众也只能思考到这个层级了 ...</blockquote>
+或者准确说可能是五人主场的最后俩场Live了，之后虽然还有拼盘，但毕竟不是主场
+
+*****
+
+####  lj205  
+##### 8951#       发表于 2022-6-4 19:39
+
+最后纸片还是五角星
+
