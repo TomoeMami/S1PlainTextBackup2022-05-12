@@ -1580,3 +1580,14 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  22174559  
+##### 151#       发表于 2022-6-4 21:47
+
+<blockquote>哈露尼娅 发表于 2022-6-4 10:51
+想要一切游戏都上pc有什么错</blockquote>
+还是直接上手机吧
+

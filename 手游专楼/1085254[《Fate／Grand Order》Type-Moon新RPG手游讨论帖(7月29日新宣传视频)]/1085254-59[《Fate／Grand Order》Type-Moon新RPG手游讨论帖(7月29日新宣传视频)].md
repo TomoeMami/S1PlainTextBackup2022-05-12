@@ -14585,3 +14585,12 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 具体异星神的正体什么的只有个模糊的猜测就不说了，上面说的都是讨论下来感觉比较合理的猜测，不过猜测说到底也只是猜测，图一乐罢了。如果蘑菇真能处理好2.0这个内幕与核心剧情，这个核心诡计甚至可以算是在adv里都非常强的核心诡计了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88259#       发表于 2022-6-4 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不知道明年的这个时候咱能不能再回冬木……
+
