@@ -1549,3 +1549,34 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 楼主是不是在A9VG的有个ID叫 葱哥的诡计？
 
+
+
+*****
+
+####  Mires  
+##### 148#       发表于 2022-6-4 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56123311&amp;ptid=2073149" target="_blank">chizuru 发表于 2022-6-4 20:03</a>
+我觉得本质还是公司决策层的属性，看雷吉最近的回忆可知，任天堂的过去任天堂的决策还是以京都开发者为主 ...</blockquote>
+单纯从商业来考虑的话，如果下代游戏机可以大卖，那么坚持独占，不但可以使游戏的销量回到该有的水平，还可以顺便赚卖游戏机的钱，跨pc并不是最优解。所以我才觉得只有下一代大暴死，游戏的销量受到极大抑制，才有可能考虑跨平台，然而考虑到任天堂在掌机领域的统治能力，只要继续出有宝可梦独占的掌机，暴死的概率无限趋近于0。
+
+*****
+
+####  whzfjk  
+##### 149#       发表于 2022-6-4 21:30
+
+魔女2和3估计会是很好的观察对象
+
+*****
+
+####  shiko  
+##### 150#       发表于 2022-6-4 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56122789&amp;ptid=2073149" target="_blank">sandro 发表于 2022-6-4 19:09</a>
+先把火纹和塞尔达无双这种跟ns硬件没关系的游戏跨pc吧</blockquote>
+为什么无关？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+主机卖的好的时候几百万火纹粉可能无关轻重，但是主机更新换代或者干脆次世代失利的时候，还会毫不犹豫的买主机的肯定不会是几千万的动森用户，而是火纹粉异度粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
