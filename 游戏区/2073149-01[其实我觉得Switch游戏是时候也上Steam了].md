@@ -1678,3 +1678,16 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任天堂为啥要给steam送钱 
 
+
+
+*****
+
+####  鸡翼大绅士  
+##### 160#       发表于 2022-6-4 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56115958&amp;ptid=2073149" target="_blank">左凉川 发表于 2022-6-4 01:35</a>
+泥潭任天堂精神股东真多毕竟2022年了，还能玩下去720p30游戏的人肯定被pua得非常透吧。
+
+泥潭任豚除 ...</blockquote>
+看了半天也没发现谁扣你帽子啊，被迫害妄想症？
+

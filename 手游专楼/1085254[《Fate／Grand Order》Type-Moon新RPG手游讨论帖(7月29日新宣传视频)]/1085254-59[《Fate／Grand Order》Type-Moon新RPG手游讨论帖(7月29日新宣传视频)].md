@@ -14703,3 +14703,29 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 好吧，这个脑洞太傻了，因为白纸化和异星神究竟有没有关系真的不好说。纯粹写着玩的，大家千万别当真，就当图一乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88266#       发表于 2022-6-4 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124734&amp;ptid=1085254" target="_blank">zakki 发表于 2022-6-4 22:08</a>
+
+感觉你好像也没太懂我说的意思啊不过无所谓，本来就是猜测，每个人观点都不同才能有更好观点碰撞 ...</blockquote>
+唉，我脑子一直不好使<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">主要是觉得老所长在第七章动画里老神在在地面对2.7负责人戴比特，一脸淡定的自杀，就好像预计到会发生什么似的，看起来很可靠。
+
+结果FGO第二部完结时根本没提老所长的计划，他纯粹是自我感觉良好，对自己女儿掌控的迦勒底未来充满希望，实际上全靠咕哒拯救世界，然后蘑菇接受采访时说那段是小太刀右京自己发挥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+异闻带的定义是有官方设定的，简单地说就是历史分支的残渣，因为未来过于稳定没有希望所以被事象剪定了，给宇宙省点电。
+
+目前产生的这七个异闻带能独立存在是因为空想树的存在，自宇宙而来，从地脉充能，给本应断电的异闻带历史续命。
+
+因为空想树能将行星初始化，所以白纸化应该是它们的杰作。
+
+异星神能在2.5诞生好像是因为2.6的空想树被烧了，所以他们究竟是不是一路人也不好说。
+
+现在有个问题就是白纸化/空想树/异闻带、异星神、异星巫女这几个东西到底有没有关系，老所长究竟认为自己在保障什么。
+
+（马里斯比利：我不到啊，看见2017年历史没了就慌了，然后出门转转找了几个看起来不同凡响、能拯救世界的家伙就领回来了。感觉我手气还不错，之前随随便便就抽了个UR魔术王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
