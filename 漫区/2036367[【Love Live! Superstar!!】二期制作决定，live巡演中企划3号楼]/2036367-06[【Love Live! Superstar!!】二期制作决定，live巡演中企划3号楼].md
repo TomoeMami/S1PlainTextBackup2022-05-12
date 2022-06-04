@@ -18725,3 +18725,15 @@ ins更新一张老图
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  a92063256  
+##### 8897#       发表于 2022-6-4 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56117716&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-6-4 10:32</a>
+
+就是坐怀里了。一是左腿去哪了，pay也不可能全挡完；二是最开始鲨鱼的手还搭在鲤鱼右腿上，如果俩腿在一 ...</blockquote>
+证据还有sayu的头发后侧的阴影和鲤鱼左侧的头发被sayu的背蹭动了，可以说是确实坐在怀里了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
