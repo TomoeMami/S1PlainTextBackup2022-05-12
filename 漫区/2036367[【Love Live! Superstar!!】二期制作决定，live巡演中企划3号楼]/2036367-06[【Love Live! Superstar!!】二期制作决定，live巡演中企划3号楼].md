@@ -19317,3 +19317,38 @@ ins更新一张老图
 
 没看成day1只好等复盘，明天day2真就5人的final无论怎样都要看成<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8957#       发表于 2022-6-4 20:14
+
+<img src="https://img.saraba1st.com/forum/202206/04/201435priiy22k2lxzxxfk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E831DFA4-EC29-4A48-96A2-DAC869720C6C.jpeg</strong> (439.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:14 上传
+
+<img src="https://img.saraba1st.com/forum/202206/04/201435l8kza62mjm9cfhdm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8A1F5281-943E-4B64-9C2C-AB22854B6210.jpeg</strong> (360.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-4 20:14 上传
+
+*****
+
+####  csolfans  
+##### 8958#       发表于 2022-6-4 20:15
+
+ 本帖最后由 csolfans 于 2022-6-4 20:18 编辑 
+<blockquote>兔姬姬姬姬姬 发表于 2022-6-4 17:42
+打铁今天嗓子不太好，咋回事</blockquote>
+是感觉有点不可逆，哎不知道说啥好
+

@@ -9774,3 +9774,33 @@ ojj画了个饼。
 一二位都是赛前不被看好实际练习赛里顺位不错的队伍，还是希望把apex补上啊。
 <img src="https://p.sda1.dev/6/a51ba8ee8a8af2f793c6782310f23a1c/CMP_20220604202155834.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 14436#       发表于 2022-6-4 20:14
+
+这虹apex第一场就好多人掉线啊，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 14437#       发表于 2022-6-4 20:14
+
+今天apex服务器还是无事死亡
+
+*****
+
+####  Ketestrait  
+##### 14438#       发表于 2022-6-4 20:16
+
+第一把就全员掉线还行，司会的钱包没事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kokichi  
+##### 14439#       发表于 2022-6-4 20:18
+
+司会声音都发抖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
