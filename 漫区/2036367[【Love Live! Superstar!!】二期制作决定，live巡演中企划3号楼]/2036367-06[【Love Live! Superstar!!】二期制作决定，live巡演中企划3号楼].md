@@ -18851,3 +18851,38 @@ ins更新一张老图
 
 今天开场有点不一样，看看会有啥
 
+
+
+*****
+
+####  qty  
+##### 8909#       发表于 2022-6-4 17:22
+
+声音是有点问题，乐队伴奏声音快把人声盖过去了
+
+*****
+
+####  ViyViy  
+##### 8910#       发表于 2022-6-4 17:26
+
+星是不是企划第十年宣布的新企划来着，decade了属于是，那就是能造一个有高人气的角色就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 8911#       发表于 2022-6-4 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典二连
+
+*****
+
+####  aoaoaodedede  
+##### 8912#       发表于 2022-6-4 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56121698&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-4 17:26</a>
+
+星是不是企划第十年宣布的新企划来着，decade了属于是，那就是能造一个有高人气的角色就算成功 ...</blockquote>
+萌百说是9周年FES Day2公布的
+
