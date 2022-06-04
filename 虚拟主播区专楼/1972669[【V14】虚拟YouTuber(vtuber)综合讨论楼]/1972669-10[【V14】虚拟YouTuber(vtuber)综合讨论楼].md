@@ -9420,3 +9420,14 @@ V综能这么热烈的讨论一名主播，作为虹女可以说是完全超规�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定有人お気持ち，不如说什么事情都可以お気持ち
 
+
+
+*****
+
+####  rzrbtk  
+##### 14402#       发表于 2022-6-4 12:49
+
+叶师已化身斯国一机器
+
+[【にじさんじ切り抜き】雑談タイムでサロメ嬢をベタ褒めする叶切り抜き【叶/壱百満天原サロメ/にじさんじ】 - YouTube](https://www.youtube.com/watch?v=U4YX_tUxRdc)
+

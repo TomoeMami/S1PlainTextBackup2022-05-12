@@ -1296,3 +1296,14 @@ wiiu遗产移植ns大部分都卖比初版好。还有马车8这种怪物销量�
 
 手滑了，下次扣回去
 
+
+
+*****
+
+####  ギナ  
+##### 125#       发表于 2022-6-4 12:48
+
+老任真要上PC那百分百也是自己搞个新平台，让g胖抽成这种事想都别想<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
