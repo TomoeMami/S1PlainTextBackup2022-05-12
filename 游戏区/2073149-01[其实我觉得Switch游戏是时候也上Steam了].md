@@ -1246,3 +1246,24 @@ ns和steam的4399    99%共用吧
 —— 来自 S1Fun ...</blockquote>
 你还是手慢了啊
 
+
+
+*****
+
+####  TANA  
+##### 120#       发表于 2022-6-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56116752&amp;ptid=2073149" target="_blank">shinnfin 发表于 2022-6-4 08:05</a>
+
+好奇在任天堂赚的盆满钵满的今天    楼主是不是气的夜不能寐 ...</blockquote>
+那可不，否则何至于破防到和zest们一起拿着喇叭到处宣传NS有模拟器呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  哈露尼娅  
+##### 121#       发表于 2022-6-4 10:51
+
+想要一切游戏都上pc有什么错<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
