@@ -705,3 +705,43 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 矢吹老湿太巨魔了
 
+
+
+*****
+
+####  Onelooker  
+##### 73#       发表于 2022-6-4 21:35
+
+像满这种想ntr男一的搁别的剧里面基本都活不长
+
+很难揣度jzgg的编排
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 74#       发表于 2022-6-4 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呆呆兽二号  
+##### 75#       发表于 2022-6-4 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56120076&amp;ptid=2073274" target="_blank">千恋万花 发表于 2022-6-4 14:27</a>
+
+https://www.pixiv.net/artworks/67903080</blockquote>
+胖子不会这样的，OOC了。
+
+*****
+
+####  呆呆兽二号  
+##### 76#       发表于 2022-6-4 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56123107&amp;ptid=2073274" target="_blank">ads147147 发表于 2022-6-4 19:45</a>
+
+虽然很乐，但是肥仔不会这样做才会变成这样的败犬的。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的  ...</blockquote>
+这么做了只有把她彻底逼到敌对面啊。
+
