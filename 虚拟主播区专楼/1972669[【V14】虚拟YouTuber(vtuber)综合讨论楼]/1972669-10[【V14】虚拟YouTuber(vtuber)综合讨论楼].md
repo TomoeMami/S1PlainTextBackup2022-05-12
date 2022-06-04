@@ -9346,3 +9346,12 @@ V综能这么热烈的讨论一名主播，作为虹女可以说是完全超规�
 
 莎皇带货能力可太强了，也就在日本了，换国内已经拼多多百亿补贴安排上了。
 
+
+
+*****
+
+####  Ketestrait  
+##### 14395#       发表于 2022-6-4 10:56
+
+油男之前谈到slm的时候就说，这样的人材，enkr需要慎重对待，别乱打牌，透出一股对enkr的不信任<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
