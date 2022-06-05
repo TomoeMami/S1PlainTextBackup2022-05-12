@@ -8320,3 +8320,28 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 35号啥活动？
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11314#       发表于 2022-6-6 00:45
+
+这图太适合做表情包了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/06/004344tbsm151zzim0iii9.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220606001257171.jpg</strong> (54.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202206/06/004357w5cywok4080yymbk.jpg" referrerpolicy="no-referrer">
+
+<strong>FUfKSOLUAAA4WcU.jpg</strong> (325.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 00:43 上传
+
