@@ -962,3 +962,19 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">出个2季就得了行不，别拉长战线了
 
+
+
+*****
+
+####  凡人  
+##### 9075#       发表于 2022-6-5 18:56
+
+得，我变成我们，证实了一期就是香音传了，虽然从这视觉图来看就没打算藏过。
+
+*****
+
+####  cybernetics31  
+##### 9076#       发表于 2022-6-5 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新人黄毛好棒读，怎么这一年级的声线比老五人还显老啊喂
+
