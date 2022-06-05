@@ -1315,3 +1315,22 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 看了几个不插电视频下面都在说小百合嗓子怎么怎么的，发生啥事了，是唱受伤了吗，能恢复不
 
+
+
+*****
+
+####  lj205  
+##### 9097#       发表于 2022-6-5 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnrealApartheid  
+##### 9098#       发表于 2022-6-5 21:16
+
+我倒没啥意见
+就是很担心第一季唐可可的家人伏笔都没收，甚至连声优也没有
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
