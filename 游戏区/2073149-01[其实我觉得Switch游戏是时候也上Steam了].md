@@ -1844,3 +1844,16 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  HazukiShion  
+##### 175#       发表于 2022-6-5 11:53
+
+我觉得任天堂的新游戏要上PC，只有当上PC这件事对任天堂的基础业务(即软硬件一体)没法造成什么影响甚至反而还有促进的情况下才有可能发生。
+
+举例来说就是，任天堂的新游戏上PC后，不仅没有导致任天堂硬件和软件的减少，反而促进了这两者的增长，并且增长的速度是超过了不上PC的情况的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+至于这种事情发生的前提，大家可以想想在满足什么条件的情况下，即使任天堂的新游戏都推出PC版，你还是会选择购买任天堂的硬件，并且在这个硬件上游玩所有的这些游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
