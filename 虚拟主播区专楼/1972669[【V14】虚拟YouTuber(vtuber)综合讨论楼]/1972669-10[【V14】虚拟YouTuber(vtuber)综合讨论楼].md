@@ -10860,3 +10860,38 @@ nazumimi又出啥事了
 
 本来我就觉得这是小红奇迹之夜那种人造奇观了，如果同一人换个设定rp加上炒作就能造奇观的话感觉能拍一集黑镜了都<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 14549#       发表于 2022-6-5 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56139153&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-6-5 23:35</a>
+nazumimi又出啥事了
+
+我就知道之前吵过一次</blockquote>
+回看了一下，nzn拉了个五人箱内联动，等的时候和mimi一边拼vspo全家福的拼图一边闲聊。
+
+零点左右nzn说自己做了个噩梦，梦见蓝鸟账号被人偷了，把各种直播主之间的对话发出去了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">樱花妹好可怕。
+
+*****
+
+####  Suzutsuki  
+##### 14550#       发表于 2022-6-5 23:45
+
+qb等会有联动，露娜现在是啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 14551#       发表于 2022-6-5 23:47
+
+露娜应该是被noah霸凌殴打
+
+在家里养伤没法直播
+
