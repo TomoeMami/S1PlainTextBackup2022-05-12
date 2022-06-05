@@ -19603,3 +19603,30 @@ Ni老师安心地去了
 ——  ...</blockquote>
 当日票那是器材位置的，立见都卖完了
 
+
+
+*****
+
+####  iuhehc  
+##### 8971#       发表于 2022-6-5 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56131370&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-5 12:39</a>
+当日票那是器材位置的，立见都卖完了</blockquote>
+所以说那边吵这个就直接忽略很多因素了，就是单纯想拱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 8972#       发表于 2022-6-5 13:20
+
+专楼好像又出BUG了
+
+*****
+
+####  iuhehc  
+##### 8973#       发表于 2022-6-5 14:08
+
+这是又卡页了吗
+
