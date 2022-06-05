@@ -19500,3 +19500,15 @@ ins更新一张老图
 
 2022-6-5 02:34 上传
 
+
+
+*****
+
+####  adw667  
+##### 8964#       发表于 2022-6-5 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56123570&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-4 20:23</a>
+
+笑了，这线上问卷怎么已经把新四人加上了，问题人家今天又没演出</blockquote>
+毕竟五个人的FMT都能当成自己的发布会了那在五人限定演出的调查问卷里插一脚也是理所应当不是<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+

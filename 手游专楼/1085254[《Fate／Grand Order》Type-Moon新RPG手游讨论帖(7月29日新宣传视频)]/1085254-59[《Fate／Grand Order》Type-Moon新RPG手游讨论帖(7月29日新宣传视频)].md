@@ -14769,3 +14769,18 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 按现在的情况分析，有杀了老所长嫌疑的戴比特更有可能是幕后黑手吧，而且也很有可能和51区的“外星人”有关<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 88270#       发表于 2022-6-5 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">赖为朝说t0有点勉强吧
+
+一他是被张角调整了好久才有这个出力。
+
+二他是超高消耗的从者，以至于后面4连发都要靠塔来供能，一断就死。
+
+FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御主负担，出力更是稳定。
+
