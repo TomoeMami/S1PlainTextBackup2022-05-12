@@ -1749,3 +1749,12 @@ s1的人体堂爱好者也太多了吧</blockquote>
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">这题我会，你说的一定是学缝纫
 
+
+
+*****
+
+####  书行  
+##### 166#       发表于 2022-6-5 08:30
+
+现在微软火力全开对准索尼，索尼自己都乱了阵脚，各种瞎眼策略。然后索尼爱好者非得把任天堂拉下水来档子弹是吧
+
