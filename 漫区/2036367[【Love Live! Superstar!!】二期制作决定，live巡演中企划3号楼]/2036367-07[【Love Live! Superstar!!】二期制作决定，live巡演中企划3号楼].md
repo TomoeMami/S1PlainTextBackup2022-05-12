@@ -1334,3 +1334,24 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cybernetics31  
+##### 9099#       发表于 2022-6-5 22:03
+
+企划实相点就赶紧把岩井映美里姐姐位置安排上，反正拉拉路人一水的im家的，还会上海话，要啥自行车
+
+*****
+
+####  aoaoaodedede  
+##### 9100#       发表于 2022-6-5 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56137294&amp;ptid=2036367" target="_blank">UnrealApartheid 发表于 2022-6-5 21:16</a>
+
+我倒没啥意见
+
+就是很担心第一季唐可可的家人伏笔都没收，甚至连声优也没有</blockquote>
+伏笔是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我真的觉得他们动画制作组就没多么对剧情上心，不用期待那个了，就当不存在就行，第二季没给可可添加更多的“伏笔”就可以了
+
