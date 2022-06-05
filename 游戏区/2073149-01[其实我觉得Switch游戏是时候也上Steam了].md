@@ -1802,3 +1802,12 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  mio1943  
+##### 171#       发表于 2022-6-5 10:48
+
+看看mhr上steam卖了多少销量，一堆人嫌弃画面差、价格贵，就任天堂的游戏那不是吃力不讨好，何必呢？
+
