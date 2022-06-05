@@ -10490,3 +10490,35 @@ mafu无限期休止活动了，粽子还是太急了，晚三个月线下坐下�
 
 我也是被Noah的老皮吸引去看的，结果后来换了新L2D。。。<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 14507#       发表于 2022-6-5 20:40
+
+vspo这波新皮下来我觉得最好的还是hnn和mimi。
+
+八云那套也不错，可惜和mimi旧的那套要素冲突了。
+
+*****
+
+####  _Ra1nMaker  
+##### 14508#       发表于 2022-6-5 20:42
+
+感觉不是很对味，猫耳什么的已经太泛滥了
+
+*****
+
+####  Suzutsuki  
+##### 14509#       发表于 2022-6-5 20:45
+
+不太行，最近vsp的新衣服还是喜欢花芽姐那个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 14510#       发表于 2022-6-5 20:48
+
+有点微妙
+
