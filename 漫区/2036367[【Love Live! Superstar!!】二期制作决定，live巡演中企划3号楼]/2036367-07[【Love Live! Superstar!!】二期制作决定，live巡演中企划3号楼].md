@@ -790,3 +790,91 @@ TVアニメ「ラブライブ！スーパースター!!」2期 PVです。
 
 2022-6-5 18:11 上传
 
+
+
+*****
+
+####  we89623  
+##### 9057#       发表于 2022-6-5 18:13
+
+土妹子的镜头贯穿其他三人
+
+*****
+
+####  saya1892  
+##### 9058#       发表于 2022-6-5 18:15
+
+DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的可可一样
+
+*****
+
+####  离心  
+##### 9059#       发表于 2022-6-5 18:17
+
+又出翻页bug的话请大家稍微等一下，等二期开了直接走新楼。正好把其他四个人加上去。
+
+*****
+
+####  仟音一心  
+##### 9060#       发表于 2022-6-5 18:18
+
+彩妹在现场
+
+<img src="https://img.saraba1st.com/forum/202206/05/181818xk81c9kzvlt2lkkm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BD755810-7691-4273-941C-1B5EA25E4D1C.jpeg</strong> (170.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:18 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/181818fz9vaa9bur9fyq2b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A19ED17C-C1D1-4645-8E5C-FFB8F44036B7.jpeg</strong> (228.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:18 上传
+
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9061#       发表于 2022-6-5 18:18
+
+二期看来是香音传和土妹子传<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9062#       发表于 2022-6-5 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135165&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-5 18:13</a>
+
+土妹子的镜头贯穿其他三人</blockquote>
+懂了，这波是等效的2期生Leader<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 9063#       发表于 2022-6-5 18:20
+
+樱小路动起来好多了，果然是主香音传副樱小路传吗。四季的声音也太沉了，要是这是整活声线还好，要是一直维持这低音也太怪了。
+
+*****
+
+####  iuhehc  
+##### 9064#       发表于 2022-6-5 18:21
+
+看了这个pv反而感觉更提不起兴趣热情什么的了
+
+*****
+
+####  ViyViy  
+##### 9065#       发表于 2022-6-5 18:22
+
+真就照着宣绘演……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
