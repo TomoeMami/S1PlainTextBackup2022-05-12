@@ -19865,3 +19865,12 @@ ED1B4B32-5409-4F78-9EF2-0CB89AEE79DA.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这刚出道就10场比同系列其他多了多少次..说啥也不行了
 
+
+
+*****
+
+####  starring  
+##### 9000#       发表于 2022-6-5 16:14
+
+pay不但台风好对歌也有自己的表现，冈山场的dears，solo还有day1经常加入一些自己的小变化<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
