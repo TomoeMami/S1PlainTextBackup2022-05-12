@@ -10231,3 +10231,20 @@ noah是不是新衣回不见了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 14480#       发表于 2022-6-5 13:45
+
+<blockquote>グウェル・オス・ガール / Gwelu Os Gar 【にじさんじ】
+
+1 時間前
+
+にじさんじカスタムの感想＆裏話をさせて頂きます。
+
+今日振り返るために一番最初に企画を相談し始めたチャットをさかのぼってみたら、約１年前でした。とても積もる話がありそうです。</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
