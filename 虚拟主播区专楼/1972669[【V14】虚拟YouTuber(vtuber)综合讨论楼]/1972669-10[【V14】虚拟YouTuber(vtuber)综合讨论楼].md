@@ -10248,3 +10248,42 @@ noah是不是新衣回不见了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  義賊  
+##### 14481#       发表于 2022-6-5 13:55
+
+其余都是小事 人设崩了是大事
+
+*****
+
+####  古战场亡魂  
+##### 14482#       发表于 2022-6-5 13:56
+
+<img src="https://img.saraba1st.com/forum/202206/05/135607xu15m59rk7brr7hr.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220605135528030.jpg</strong> (86.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 13:56 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  義賊  
+##### 14483#       发表于 2022-6-5 13:56
+
+路线问题出道以来就要想好不能动摇了 
+
+*****
+
+####  Kokichi  
+##### 14484#       发表于 2022-6-5 13:58
+
+今天九点
+之前旅团提noah也有点小心翼翼的，不会最后要指望abo吧……
+
