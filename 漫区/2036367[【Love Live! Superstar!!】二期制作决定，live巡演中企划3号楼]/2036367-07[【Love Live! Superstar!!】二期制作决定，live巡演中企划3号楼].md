@@ -1465,3 +1465,23 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  iuhehc  
+##### 9104#       发表于 2022-6-5 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56137932&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-5 22:03</a>
+企划实相点就赶紧把岩井映美里姐姐位置安排上，反正拉拉路人一水的im家的，还会上海话，要啥自行车 ...</blockquote>
+岩井映美里被虹那边找去了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9105#       发表于 2022-6-5 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来nako返图背景里那人是nagi。。。
+

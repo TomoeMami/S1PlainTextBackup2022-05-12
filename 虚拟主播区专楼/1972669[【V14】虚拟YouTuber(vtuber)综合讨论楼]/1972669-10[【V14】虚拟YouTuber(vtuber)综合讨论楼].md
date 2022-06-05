@@ -10642,3 +10642,52 @@ omg
 
 最让我<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">，真的像，不过这两个尖叫声很不一样而且德比电脑没这么拉吧
 
+
+
+*****
+
+####  OldGlory  
+##### 14524#       发表于 2022-6-5 22:22
+
+是德比那也太悲哀了，建议虹女全体自杀砍掉重练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 14525#       发表于 2022-6-5 22:23
+
+最近的证据越来越多了，我不好说。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  carroy  
+##### 14526#       发表于 2022-6-5 22:24
+
+要是莎皇真是德比的话
+彩虹这波整活是玩砸了
+还是绝好调彩虹再崛起
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 14527#       发表于 2022-6-5 22:24
+
+是德比的话，也太虚拟了。
+
+这下连跳槽去隔壁的操作都不用做，原地就tm换皮转生了。
+
+*****
+
+####  _Ra1nMaker  
+##### 14528#       发表于 2022-6-5 22:28
+
+真是的话绝对是绝世好活吧，谁说一个中之人不能扮演多个角色呢，反正多个中之人扮演同一个角色的事也有过了，这就是vtb吧
+
+*****
+
+####  rzrbtk  
+##### 14529#       发表于 2022-6-5 22:28
+
+是德比的话绝对比是哪个黄油声优转生什么的更有意思啊，同一人物只要用更大众化的形象和噱头就可以轻松把以前遥不可及的liver超越（包括努力了四年的自己），都可以直接做百物语核心故事了
+
