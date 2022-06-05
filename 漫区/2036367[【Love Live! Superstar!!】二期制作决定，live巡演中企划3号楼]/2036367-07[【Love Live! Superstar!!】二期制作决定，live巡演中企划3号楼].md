@@ -1106,3 +1106,32 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 由手机上传
 2022-6-5 19:29 上传
 
+
+
+*****
+
+####  ViyViy  
+##### 9086#       发表于 2022-6-5 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果京吹真的很需要他，星二结束后就没他了吧，三和剧场换班子，我倒是很想看看这能请什么“神仙”来救火
+
+*****
+
+####  aoaoaodedede  
+##### 9087#       发表于 2022-6-5 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56136072&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-5 19:33</a>
+
+如果京吹真的很需要他，星二结束后就没他了吧，三和剧场换班子，我倒是很想看看这能请什么“神仙” ...</blockquote>
+编剧的事没那么冲突吧
+
+*****
+
+####  寒风夜  
+##### 9088#       发表于 2022-6-5 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56136072&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-5 19:33</a>
+
+如果京吹真的很需要他，星二结束后就没他了吧，三和剧场换班子，我倒是很想看看这能请什么“神仙” ...</blockquote>
+编剧接活就不冲突的
+
