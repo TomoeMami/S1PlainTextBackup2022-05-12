@@ -1079,3 +1079,22 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 在这楼里又复习了一遍kemu的黑历史<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  红楼白衣  
+##### 106#       发表于 2022-6-5 15:39
+
+堀江晶太不应该被描述成“天才高中生音乐人”之类的么
+
+*****
+
+####  7776169  
+##### 107#       发表于 2022-6-5 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56129453&amp;ptid=2073274" target="_blank">新月祥 发表于 2022-6-5 10:19</a>
+
+据说西连寺春菜是以矢吹老湿前妻为原型的，前妻出轨导致西连寺春菜出场越来越少，请问这个是真的吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正按照那件事的时间线来看，春菜确实是几乎没什么戏份了（
+
