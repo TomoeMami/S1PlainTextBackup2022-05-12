@@ -19742,3 +19742,65 @@ ED1B4B32-5409-4F78-9EF2-0CB89AEE79DA.jpeg
 
 <img src="https://img.saraba1st.com/forum/202206/05/153713rlewcyqtgylftegw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8986#       发表于 2022-6-5 15:43
+
+小百合这首solo现在这表现放正儿八经演艺圈就是车祸现场了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8987#       发表于 2022-6-5 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哎，掐着嗓子唱不就只能这样
+
+*****
+
+####  蜜梨柑  
+##### 8988#       发表于 2022-6-5 15:44
+
+2nd完了赶紧去找医生看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 8989#       发表于 2022-6-5 15:45
+
+ 本帖最后由 csolfans 于 2022-6-5 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56133445&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-5 15:43</a>
+
+小百合这首solo现在这表现放正儿八经演艺圈就是车祸现场了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">勾八万代害的
+
+*****
+
+####  寒风夜  
+##### 8990#       发表于 2022-6-5 15:45
+
+寄，用伤力
+
+*****
+
+####  starring  
+##### 8991#       发表于 2022-6-5 15:49
+
+说多也没用，sayu现在需要的是音乐老师学习发声技巧
+而且她的状态有点薛定谔时好时坏
+
+*****
+
+####  stygian  
+##### 8992#       发表于 2022-6-5 15:50
+
+休息？不存在的
+
+二期配音录歌，九人合练，FMT排练，三巡排练
+
