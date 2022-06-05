@@ -11054,3 +11054,29 @@ syl，德比3D回有露露有宫助，buff太多，胜之不武
 
 彩虹聪明点现在应该已经请人写歌了。歌名我都想好了，莎乐美 in 冷冻柜。
 
+
+
+*****
+
+####  好想吃麦乐鸡  
+##### 14568#       发表于 2022-6-6 02:17
+
+存活千年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  ヒトニナル  
+##### 14569#       发表于 2022-6-6 02:25
+
+Alice in 冷凍庫是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不得找橙星？
+
+*****
+
+####  本间日阳  
+##### 14570#       发表于 2022-6-6 02:59
+
+v综才开始讨论德比论啊。
+我单纯觉得这个假设要是成真会非常有趣。
+

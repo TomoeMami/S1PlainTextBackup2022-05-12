@@ -1607,3 +1607,29 @@ beチェック
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">看别人说了才发现，夏美的刘海好丑啊，之前注意力都被她的辫子给吸引过去了
 
+
+
+*****
+
+####  cxj649  
+##### 9115#       发表于 2022-6-6 02:47
+
+90名無しで叶える物語(たこやき)2022/06/05(日) 19:54:33.58ID:6c8VtExu
+
+アホみたいな衣装でサンバ踊って全国一位ってのがなぁ…
+
+クゥクゥに対して「日本と台湾のいいところが融合した奇跡の歌声」みたいな評価が劇中で下されたら絶対違和感あると思うけどそれと同じような感じだわ
+
+91名無しで叶える物語(SB-iPhone)2022/06/05(日) 19:54:37.64ID:6x+xlFRn
+
+A-RISEや聖雪がライバルは「まぁ、そんなもんかな」と作劇上の嘘も許容出来るけど、サニパが優勝は真顔で「ナイナイ」と否定したくなるな
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9116#       发表于 2022-6-6 03:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到德不配位
+
