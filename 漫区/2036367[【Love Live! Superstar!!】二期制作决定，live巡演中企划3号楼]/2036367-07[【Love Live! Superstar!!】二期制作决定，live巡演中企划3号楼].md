@@ -350,3 +350,76 @@ Sayu变坚强了
 由手机上传
 2022-6-5 17:41 上传
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9029#       发表于 2022-6-5 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">”
+
+*****
+
+####  iuhehc  
+##### 9030#       发表于 2022-6-5 17:43
+
+好家伙pv
+还以为会在fmt公布的..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9031#       发表于 2022-6-5 17:44
+
+pv来了
+
+*****
+
+####  lj205  
+##### 9032#       发表于 2022-6-5 17:44
+
+可可声音已经完全是鲤鱼声线了
+
+*****
+
+####  寒风夜  
+##### 9033#       发表于 2022-6-5 17:44
+
+还以为要其他场放呢..
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9034#       发表于 2022-6-5 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">变成“我们”了
+
+*****
+
+####  ViyViy  
+##### 9035#       发表于 2022-6-5 17:45
+
+这也就前三集的内容吧…？
+
+*****
+
+####  稀勢のささ  
+##### 9036#       发表于 2022-6-5 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鉴定为寄
+
+*****
+
+####  aoaoaodedede  
+##### 9037#       发表于 2022-6-5 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56134882&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-5 17:45</a>
+
+这也就前三集的内容吧…？</blockquote>
+一期的PV差不多涉及的是第一集左右的剧情吧，这PV没看清楚，还是等官方发出来仔细看看
+
