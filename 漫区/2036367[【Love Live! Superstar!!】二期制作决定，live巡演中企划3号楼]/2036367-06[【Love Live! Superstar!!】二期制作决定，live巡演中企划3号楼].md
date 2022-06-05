@@ -19579,3 +19579,27 @@ Ni老师安心地去了
 由手机上传
 2022-6-5 12:18 上传
 
+
+
+*****
+
+####  Enakina  
+##### 8969#       发表于 2022-6-5 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56130934&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-5 12:09</a>
+一边落选祭 一边还当日票 只要拱一下不就这样了嘛 我是觉得虹的动画加持效果比星好太多了
+
+——  ...</blockquote>
+虹主要5th开俩小场也太离谱了，4th好歹都开了大阪巨蛋了。僧多肉少，不落才怪。除了是为了逼你复数购买cd我也想不出来别的理由了，虽然碟卖的也挺一般的就是了。不出意外后面应该要追加个大的
+
+*****
+
+####  lj205  
+##### 8970#       发表于 2022-6-5 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56130934&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-5 12:09</a>
+一边落选祭 一边还当日票 只要拱一下不就这样了嘛 我是觉得虹的动画加持效果比星好太多了
+
+——  ...</blockquote>
+当日票那是器材位置的，立见都卖完了
+
