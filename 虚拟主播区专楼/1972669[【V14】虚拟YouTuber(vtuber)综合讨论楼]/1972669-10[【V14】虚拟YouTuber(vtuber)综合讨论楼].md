@@ -10314,3 +10314,12 @@ vox这小孩还是好好学学king专心打游戏吧，养gachi这种小屁孩�
 
 时间也差不多一年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdhai  
+##### 14488#       发表于 2022-6-5 15:26
+
+我看直播数据也没变差，问题不大。阴湿人的风评要是有用也不至于一点用没有。
+
