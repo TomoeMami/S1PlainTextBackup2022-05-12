@@ -168,3 +168,41 @@
 
 毕竟是2nd的追加场，就没期待会改歌单，只是屑运营连半点希望都不给
 
+
+
+*****
+
+####  csolfans  
+##### 9013#       发表于 2022-6-5 16:54
+
+<img src="https://img.saraba1st.com/forum/202206/05/165449uf4qk6f8q4ff4u6q.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220605165430.png</strong> (57.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 16:54 上传
+
+QQ图片20220605165435.jpg
+(116.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/165446es28oddo6lyek2oy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 9014#       发表于 2022-6-5 16:55
+
+鲤鱼又要哭半场吗？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9015#       发表于 2022-6-5 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
