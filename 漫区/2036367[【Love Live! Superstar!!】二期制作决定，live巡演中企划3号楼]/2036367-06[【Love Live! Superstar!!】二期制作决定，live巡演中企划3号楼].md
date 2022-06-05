@@ -19845,3 +19845,23 @@ ED1B4B32-5409-4F78-9EF2-0CB89AEE79DA.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子状态一直都好棒，爱了
 
+
+
+*****
+
+####  iuhehc  
+##### 8998#       发表于 2022-6-5 16:05
+
+看现在的pay酱这更称的算星企划“淘到的宝”，台风越来越稳了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  寒风夜  
+##### 8999#       发表于 2022-6-5 16:09
+
+ 本帖最后由 寒风夜 于 2022-6-5 16:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这刚出道就10场比同系列其他多了多少次..说啥也不行了
+

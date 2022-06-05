@@ -10366,3 +10366,20 @@ Noah咋了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mondo今天到日本，看看vspo和虹里有多少人会和他off会的
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 14494#       发表于 2022-6-5 16:05
+
+-     
+
+             
+
+        
+
+嗯男缺乏同担观众心情的勇气和责任感，还是需要向日本先进的文化交际和社交能力学习一个。
+
+学会在需要有人背锅的时候神秘的没人背锅。
+
