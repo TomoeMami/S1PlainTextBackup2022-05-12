@@ -19539,3 +19539,16 @@ ins更新一张老图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕这虹星打架真是直球啊  大概也算提纯的一环了
 
+
+
+*****
+
+####  iuhehc  
+##### 8967#       发表于 2022-6-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56129812&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-5 10:49</a>
+5厕这虹星打架真是直球啊  大概也算提纯的一环了</blockquote>
+一边落选祭 一边还当日票 只要拱一下不就这样了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我是觉得虹的动画加持效果比星好太多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
