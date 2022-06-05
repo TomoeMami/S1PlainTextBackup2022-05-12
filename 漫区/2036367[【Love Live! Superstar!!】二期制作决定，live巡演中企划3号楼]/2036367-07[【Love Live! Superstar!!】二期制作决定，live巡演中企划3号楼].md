@@ -575,3 +575,218 @@ TVアニメ「ラブライブ！スーパースター!!」2期 PVです。
 
 啊，看pv看完一点激情都没有... 也就这样了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9047#       发表于 2022-6-5 18:02
+
+日语不好，有大佬能翻译一下上上楼的＜ストーリー＞写了些啥么
+
+*****
+
+####  仟音一心  
+##### 9048#       发表于 2022-6-5 18:03
+
+<img src="https://img.saraba1st.com/forum/202206/05/180209pppemzawuu92ajt6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0A3BE17A-833F-45ED-9D85-750C279179C5.jpeg</strong> (91.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180209ephxhoxxi7mmrilq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C17AE145-AC03-4D63-BAFE-B263372A2700.jpeg</strong> (121.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180220u5jji7kk0ytqqlkp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>95E8BFEF-94AE-4CFC-ABCF-E550ECB1EBCD.jpeg</strong> (176.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180220pxx7ci6hdm00fi6w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A15544E1-3100-439B-B76C-02CA6A518598.jpeg</strong> (263.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180234a2jrtsj0mmm2m0mm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5CA3BA46-E917-49AD-8554-EAAF9771FC7B.jpeg</strong> (128.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180234rqnen77q517ekzjm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF3FA652-0121-47FB-9451-14F283542355.jpeg</strong> (207.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180249olu3ijcl934cj3fo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0D47400-77E9-4761-A3D8-2A9A1AE1FE17.jpeg</strong> (111.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180249lllkpj258qqk8jnh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D7E3D381-2E65-4EBB-8DC8-F2610E104E35.jpeg</strong> (134.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180249v45hncltykq5ty0o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9369FDF6-7FCE-4190-B5FB-B552250549A4.jpeg</strong> (161.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180308s22muqf11nzm0qqz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E1AE96F3-2714-4A3B-8B05-4B8128FAD882.jpeg</strong> (152.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180308bp5nhue8qthty55q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9DF904FA-EAC1-4E30-9D63-7B55487EE063.jpeg</strong> (132.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180317g82y2m8o8opamcyf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F2439BA7-5DD3-4D38-89F6-DEC5C55647E9.jpeg</strong> (116.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/180317w5emq5qmkjqxsgj8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9FBBB621-4A9E-4373-A6CE-FC6F25FD6258.jpeg</strong> (171.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:03 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9049#       发表于 2022-6-5 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这pv是怎么做到一点也不吸引人去看的，顺便pv里四季的声音我不太行
+
+*****
+
+####  凡人  
+##### 9050#       发表于 2022-6-5 18:05
+
+我之前还有点疑惑为什么之前官方的图也没看见四季穿白大褂，可同人里经常看见，结果只能说画师们太懂京极了
+
+*****
+
+####  寒风夜  
+##### 9051#       发表于 2022-6-5 18:07
+
+就听听歌吧，家人们<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayangsu  
+##### 9052#       发表于 2022-6-5 18:09
+
+这pv做的，看完pv完全没有看第二季的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  寒风夜  
+##### 9053#       发表于 2022-6-5 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135081&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-5 18:04</a>
+
+这pv是怎么做到一点也不吸引人去看的，顺便pv里四季的声音我不太行</blockquote>
+剪的乱？
+
+*****
+
+####  仟音一心  
+##### 9054#       发表于 2022-6-5 18:11
+
+北原老师说得真好
+
+<img src="https://img.saraba1st.com/forum/202206/05/181129qacyftftm1f7fmvx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C7E2B25-0C3E-49DB-98A3-02984EE2D3A0.jpeg</strong> (118.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 18:11 上传
+
+*****
+
+####  starring  
+##### 9055#       发表于 2022-6-5 18:11
+
+结尾突然放二期pv，感觉像还没有从live的余韵走出来就被运营当头一棒敲醒
+
+*****
+
+####  仟音一心  
+##### 9056#       发表于 2022-6-5 18:11
+
+<img src="https://img.saraba1st.com/forum/202206/05/181147kc7q1ap6i3jucqay.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>63BDFC6F-0546-4076-9B83-EF4610D1B234.jpeg</strong> (299.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/181147xw8nygtwywwd72hw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1EB3E03B-D978-4000-8C44-4E312FA08D87.jpeg</strong> (225.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 18:11 上传
+
