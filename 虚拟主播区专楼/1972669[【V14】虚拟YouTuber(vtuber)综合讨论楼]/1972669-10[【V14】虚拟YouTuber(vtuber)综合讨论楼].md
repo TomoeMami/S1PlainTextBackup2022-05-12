@@ -10305,3 +10305,12 @@ vox这小孩还是好好学学king专心打游戏吧，养gachi这种小屁孩�
 
 与其指望abo不如指望紫色小女孩快点复出……
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 14487#       发表于 2022-6-5 15:07
+
+时间也差不多一年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
