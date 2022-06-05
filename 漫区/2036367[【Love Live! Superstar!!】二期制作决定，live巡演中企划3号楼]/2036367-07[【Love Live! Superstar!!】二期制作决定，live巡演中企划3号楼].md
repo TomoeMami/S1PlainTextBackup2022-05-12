@@ -1550,3 +1550,14 @@ beチェック
 
 都吐槽这比赛逼格低了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9110#       发表于 2022-6-6 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大赛越弄越露怯，毕竟纯虚构还设定成全国内卷，职业赛都见不到这么夸张的设定，货不对板的东西拿出来可不就是被笑的。
+
+又想起那个管人素人卖个人专辑首日五位数销量的笑话。
+
