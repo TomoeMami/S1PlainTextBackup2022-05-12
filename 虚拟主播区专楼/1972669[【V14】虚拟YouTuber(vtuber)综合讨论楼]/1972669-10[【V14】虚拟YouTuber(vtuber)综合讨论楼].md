@@ -11027,3 +11027,14 @@ syl，德比3D回有露露有宫助，buff太多，胜之不武
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+
+*****
+
+####  好想吃麦乐鸡  
+##### 14565#       发表于 2022-6-6 01:40
+
+想了一下莎皇目前的风格和大部分团建活动确实不太兼容<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是既然会参fes还是有回旋余地在的 给点力啊资历前辈们能否借势就看这一手了
+
+ -- 傲娇地来自 Stage1未知客户端
+

@@ -1598,3 +1598,12 @@ beチェック
 就连着两天不换歌单然后散场直接给二期pv，这企划实在是一点都不尊重她们5人 ...</blockquote>
 勉强算个人了，不用五人去介绍。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9114#       发表于 2022-6-6 01:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">看别人说了才发现，夏美的刘海好丑啊，之前注意力都被她的辫子给吸引过去了
+
