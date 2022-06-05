@@ -10184,3 +10184,12 @@ I hope he gets therapy or something because this is really worrying.</blockquote
 
 英文看不懂，能不能换成日语
 
+
+
+*****
+
+####  purdre  
+##### 14475#       发表于 2022-6-5 13:15
+
+经典的主播和观众共依存的毛病
+
