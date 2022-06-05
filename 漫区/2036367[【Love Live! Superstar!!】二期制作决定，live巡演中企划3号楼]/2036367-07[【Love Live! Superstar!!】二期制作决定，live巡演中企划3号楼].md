@@ -1027,3 +1027,82 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 就一打工人剧本肯定被干涉不少，与其摆烂花田大师还是早点跑吧
 
+
+
+*****
+
+####  ads147147  
+##### 9082#       发表于 2022-6-5 19:24
+
+花田真想跑还有人拦得住么，又不是不能活了。
+
+拿出点真本事啊花田。京极也是，有本事就别瞎改花田剧本。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 9083#       发表于 2022-6-5 19:26
+
+ 本帖最后由 寒风夜 于 2022-6-5 19:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跑路他也不是没搞过啊，穿越宇宙的少女就
+
+*****
+
+####  蜜梨柑  
+##### 9084#       发表于 2022-6-5 19:29
+
+花田：没办法，他们给的实在太多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9085#       发表于 2022-6-5 19:29
+
+<img src="https://img.saraba1st.com/forum/202206/05/192619frfy7hwcts7n766b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BE541275-446E-4249-8AED-484C7F2B33D3.jpeg</strong> (381.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/192619e2ao90oq9j0qppff.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BDE816B5-40DF-4DEF-BD93-5BE3B5E4C42D.jpeg</strong> (210.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/192628i4j6gbd3ily69s3j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E65AF040-DB20-4FE1-8DAE-7627597EDE95.jpeg</strong> (331.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/192628o5g5bgjhccgg5qbh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7524BA43-1147-4870-BEF7-687C2DA529DC.jpeg</strong> (510.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/192940ajuu3311cccci4zz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6D704814-7CB2-4FD2-BFD7-9D9818D79536.jpeg</strong> (266.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 19:29 上传
+
