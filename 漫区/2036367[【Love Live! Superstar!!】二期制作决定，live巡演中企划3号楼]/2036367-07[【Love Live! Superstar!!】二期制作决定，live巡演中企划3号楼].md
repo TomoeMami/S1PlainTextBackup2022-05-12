@@ -878,3 +878,33 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 真就照着宣绘演……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 9066#       发表于 2022-6-5 18:24
+
+星团的fl真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+第三年还来一次啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9067#       发表于 2022-6-5 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135265&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-5 18:22</a>
+
+真就照着宣绘演……？</blockquote>
+不然那图是只放着看的么，好歹是斋藤敦史画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9068#       发表于 2022-6-5 18:28
+
+"我们”  …  指香音和土妹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
