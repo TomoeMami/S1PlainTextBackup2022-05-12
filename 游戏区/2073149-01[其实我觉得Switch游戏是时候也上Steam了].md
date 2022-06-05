@@ -1811,3 +1811,23 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 看看mhr上steam卖了多少销量，一堆人嫌弃画面差、价格贵，就任天堂的游戏那不是吃力不讨好，何必呢？
 
+
+
+*****
+
+####  精英级自演乙  
+##### 172#       发表于 2022-6-5 11:01
+
+楼里先别急，又不是真的上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sandro  
+##### 173#       发表于 2022-6-5 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56129692&amp;ptid=2073149" target="_blank">shiko 发表于 2022-6-5 10:41</a>
+我不都解释了一遍了吗
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+你这是厂家利益考虑，和硬件的独特性有啥关系
+
