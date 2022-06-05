@@ -1016,3 +1016,16 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 爱情这个不见得就是讲强弱好坏的。满这种类型很容易激起女性的母性，特别心这种。要说问题还是这点呈现的很不好，他为啥这种个性给的理由太牵强了。
 
+
+
+*****
+
+####  we89623  
+##### 100#       发表于 2022-6-5 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56128554&amp;ptid=2073274" target="_blank">呆呆兽二号 发表于 2022-6-5 08:11</a>
+他们和成年人不沾边啊。
+
+爱情这个不见得就是讲强弱好坏的。满这种类型很容易激起女性的母性，特别心这种 ...</blockquote>
+他们不是成年人，观众是。
+
