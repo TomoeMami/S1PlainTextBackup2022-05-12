@@ -1561,3 +1561,29 @@ beチェック
 
 又想起那个管人素人卖个人专辑首日五位数销量的笑话。
 
+
+
+*****
+
+####  cxj649  
+##### 9111#       发表于 2022-6-6 00:34
+
+ 本帖最后由 cxj649 于 2022-6-6 00:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56139648&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-6 00:30</a>
+
+这大赛越弄越露怯，毕竟纯虚构还设定成全国内卷，职业赛都见不到这么夸张的设定，货不对板的东西拿 ...</blockquote>
+这次对手团也有点拉，所以更生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一想到需要9人甚至还可能下一年12人才能打败，生草的很啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9112#       发表于 2022-6-6 00:38
+
+其实我有个不希望是真的的想法
+
+我现在怀疑一期动画是故意不塑造好团队感的，然后让二期动画更顺理成章的加人进Liella!
+
+毕竟从一期动画里你根本不觉得Liella!只要这5个人就好了。
+
