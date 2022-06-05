@@ -10175,3 +10175,12 @@ I hope he gets therapy or something because this is really worrying.</blockquote
 
 我的评价是真有病赶紧治 没病的话我希望他得病
 
+
+
+*****
+
+####  poipanchao  
+##### 14474#       发表于 2022-6-5 13:01
+
+英文看不懂，能不能换成日语
+

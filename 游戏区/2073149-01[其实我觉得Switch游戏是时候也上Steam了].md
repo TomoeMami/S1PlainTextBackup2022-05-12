@@ -1889,3 +1889,39 @@ s1的人体堂爱好者也太多了吧</blockquote>
 任天堂自己开始卖高端显卡，和AN并称御三家</blockquote>
 显卡又玩不了游戏，怎么说也得造整机吧。系统也得自己搞一套，不然不是成套牌PC了，那样怎么收权利金？然后还得保证能塞进移动平台，竞争优势不能丢。
 
+
+
+*****
+
+####  dumplingpro  
+##### 179#       发表于 2022-6-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56131043&amp;ptid=2073149" target="_blank">hisousihou 发表于 2022-6-5 12:17</a>
+
+最后就是街机游戏应该全都上pc，玩个勾8转圈音游驾驶舱开高达，全都老老实实键鼠加手柄
+
+—— 来自  ...</blockquote>
+其实已经上了，现在比较新的街机大都没有专用基板了，其实里面就是一台高配PC，记得有人搞到过一个发现是双路1080。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JudgmentEye  
+##### 180#       发表于 2022-6-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56130710&amp;ptid=2073149" target="_blank">HazukiShion 发表于 2022-6-5 11:53</a>
+
+我觉得任天堂的新游戏要上PC，只有当上PC这件事对任天堂的基础业务(即软硬件一体)没法造成什么影响甚至反而 ...</blockquote>
+老任挖到威震天，开发出太阳能电池供电vr眼镜一体机，机能吊打黄老板全家
+
+
+
+*****
+
+####  JudgmentEye  
+##### 181#       发表于 2022-6-5 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56131039&amp;ptid=2073149" target="_blank">ultraseven 发表于 2022-6-5 12:17</a>
+
+任天堂自己开始卖高端显卡，和AN并称御三家</blockquote>
+牙膏厂：三巨头有四个是传统
+
