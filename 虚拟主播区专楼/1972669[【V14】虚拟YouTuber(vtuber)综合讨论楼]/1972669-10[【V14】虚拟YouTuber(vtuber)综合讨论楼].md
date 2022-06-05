@@ -10937,3 +10937,27 @@ qb等会有联动，露娜现在是啥情况<img src="https://static.saraba1st.c
 
 hnn能不能联动完dbd回去继续apex排位
 
+
+
+*****
+
+####  asdhai  
+##### 14557#       发表于 2022-6-6 00:02
+
+真是德比的话，那其实这波整活甚至还没打破自己的记录<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同接好像都没超过自己的3D回
+
+*****
+
+####  poipanchao  
+##### 14558#       发表于 2022-6-6 00:02
+
+ 本帖最后由 poipanchao 于 2022-6-6 00:03 编辑 
+
+主要是看noah前世信息似乎真不是坏女人的料
+
+考虑到年纪也不小了……
+
+只能当脾气不好的老女人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl，德比3D回有露露有宫助，buff太多，胜之不武
+
