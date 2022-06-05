@@ -10140,3 +10140,38 @@ enna锐评经济舱飞机餐<img src="https://static.saraba1st.com/image/smiley/
       
 如果repo是对的，我评价是看似sugar daddy的小白脸。
 
+
+
+*****
+
+####  wuzhengkai  
+##### 14473#       发表于 2022-6-5 12:43
+
+转自4chan <blockquote>Ok, I watched the whole thing and THIS GUY IS INSANE.
+
+&gt;The part that's hurting me more than anything else is the fact that ever since then, I've noticed that something that we've had has felt very different.
+
+&gt;On that stream where I laid down my boundaries, I said I was just an entertainer and that you were just "fans" and that line has been sticking in my head... and I know others in Nijisanji don't feel the same way and some of them encouraged me not to see it this way, but I can't see you as just "fans".
+
+&gt;I've tried really hard to think about the bigger picture and that as we grow there will be so many of you that it'll be impossible to treat you all like family, but I don't think I can do that.
+
+&gt;I genuinely don't think I'm capable of having an experience where there's any distance, where I act like I don't love you because I really do.
+
+&gt;When I said those things I was under so much pressure that I said quite a few things I don't think I meant. I wanted to make the situation go away because I wanted to protect myself and you as well.
+
+&gt;I don't think any fanbase wants to be associated with a really negative name and I wanted to say things that would draw away the criticism and make sure people saw you as the really wonderful bunch that I know that you are.
+
+&gt;What we have has always been a little bit different to what other people have, whether it's streamers or other celebrities, and I feel like... there has to be a middle ground, right? There has to be! I can't sacrifice how incredible it's felt to feel like I genuinely knew you. I can't get rid of that because this is so much more than a job to me now!
+
+&gt;I went into this wanting to have a bigger audience to stream to, and I got that, but what I didn't expect to find was a family that I felt I could go to when I was upset. I mean, look at me right now! This is the most vulnerable I've been in front of anybody in a long time and it's you I choose to do that with because I feel like I genuinely trust you.
+
+&gt;When I look at chat and see the amount of hearts, that feels real to me! ...I'm a mess. If you as a kind and supportive audience can look to me as a source of warmth, love, happiness, and comfort... then, if someone wants to call that a parasocial relationship, so be it. I don't want that to go away because that feeling is so important to me. This is not just a job anymore, this is just my life.
+
+&gt;When I was doing my karaoke after-party, I said I felt as if I owed you my life, and I feel that I do. I really feel I do. I really don't want the feeling that we have on these streams to change at all because not only was it soothing and made you feel loved... it made me feel loved as well, perhaps more than I have in a very very long time.
+
+&gt;I've had conversations with some friends and some people were surprised that I prioritized you all just as much as my real friends. Some people thought that was weird and I can see why. My real life has to be... well, that's the thing, THIS is my real life now... I wake up in the morning to stream and I go to bed at night so that I will get enough sleep to be fully awake for my next stream, that is my life now and I've never been happier for that to be my life now.
+
+I hope he gets therapy or something because this is really worrying.</blockquote>
+
+我的评价是真有病赶紧治 没病的话我希望他得病
+

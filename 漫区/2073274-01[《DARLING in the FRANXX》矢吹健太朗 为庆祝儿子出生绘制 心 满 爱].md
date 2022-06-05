@@ -1070,3 +1070,12 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 
 但是代入广的喜好，他喜欢02这样野性能和他一起去冲破禁锢的人，是非常合理的。
 
+
+
+*****
+
+####  花礫  
+##### 105#       发表于 2022-6-5 12:47
+
+在这楼里又复习了一遍kemu的黑历史<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
