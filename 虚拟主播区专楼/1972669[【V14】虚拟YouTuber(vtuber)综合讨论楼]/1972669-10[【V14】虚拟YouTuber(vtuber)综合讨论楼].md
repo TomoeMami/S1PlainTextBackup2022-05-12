@@ -10829,3 +10829,34 @@ MD，记错时间血亏一个亿！
 
 积极意义什么的只会存在于V圈老人的幻想中啦，现在的观众只会当场爆炸好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 14546#       发表于 2022-6-5 23:32
+
+女主角倒还好……
+看了nazumimi的直播repo真的眼前一黑，说实话感觉在现在的vspo上闻到了两年前维阿的味道。
+
+*****
+
+####  poipanchao  
+##### 14547#       发表于 2022-6-5 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56139122&amp;ptid=1972669" target="_blank">Kokichi 发表于 2022-6-5 23:32</a>
+
+女主角倒还好……
+
+看了nazumimi的直播repo真的眼前一黑，说实话感觉在现在的vspo上闻到了两年前维阿的味道 ...</blockquote>
+nazumimi又出啥事了
+
+我就知道之前吵过一次
+
+*****
+
+####  fastary  
+##### 14548#       发表于 2022-6-5 23:35
+
+本来我就觉得这是小红奇迹之夜那种人造奇观了，如果同一人换个设定rp加上炒作就能造奇观的话感觉能拍一集黑镜了都<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
