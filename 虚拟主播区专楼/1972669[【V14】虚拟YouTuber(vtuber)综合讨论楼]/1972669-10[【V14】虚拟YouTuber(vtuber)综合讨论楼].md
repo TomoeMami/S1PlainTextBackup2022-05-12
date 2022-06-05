@@ -10561,3 +10561,26 @@ hendy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
          
 enkr反应好快啊，fes那么快就把百万姐安上去了。
 
+
+
+*****
+
+####  Kokichi  
+##### 14515#       发表于 2022-6-5 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">vspo箱推无事死亡（）
+
+*****
+
+####  帆刈叶  
+##### 14516#       发表于 2022-6-5 21:26
+
+Noah能不能成为第二个Ksnksio，潜质已经有了
+
+*****
+
+####  天下雨  
+##### 14517#       发表于 2022-6-5 21:28
+
+去年歌谣祭也把伊甸安进去的，虹现在宣传策略就这样，除了vta三人组可能太糊了吧，狼性！
+
