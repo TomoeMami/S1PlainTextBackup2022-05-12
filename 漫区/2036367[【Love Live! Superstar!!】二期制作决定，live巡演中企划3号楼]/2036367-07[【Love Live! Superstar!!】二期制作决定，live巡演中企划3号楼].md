@@ -1355,3 +1355,113 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 就是很担心第一季唐可可的家人伏笔都没收，甚至连声优也没有</blockquote>
 伏笔是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我真的觉得他们动画制作组就没多么对剧情上心，不用期待那个了，就当不存在就行，第二季没给可可添加更多的“伏笔”就可以了
 
+
+
+*****
+
+####  仟音一心  
+##### 9101#       发表于 2022-6-5 22:16
+
+<img src="https://img.saraba1st.com/forum/202206/05/221618vllilzjleb1iissb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C47DB9E8-BCF0-477C-BF5F-4135DAEE3FD9.jpeg</strong> (205.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221618czdmplbz16p6rk7o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59072F71-3393-4905-88EC-9A3F190FB0C1.jpeg</strong> (168.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221618ovz2p2qvhi7h3hp2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>81EE29B4-EB44-49CE-B523-1EB515DD4564.jpeg</strong> (202.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221629smtfr1zfaz4efaza.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C2635E2B-FCD8-4F8E-99CD-3A6E30C6619A.jpeg</strong> (541.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221629oz90lvg4ic2fccir.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>03459A65-6365-41B4-A3E4-F1B593931574.jpeg</strong> (652.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221641yksy4qz2hj7hzyyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4A33107F-B0DF-4CF1-9478-CE29F702EF68.jpeg</strong> (590.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221641d134if3303ez0uvl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>47FE3AC4-2652-448B-B6D8-FB4762786F8F.jpeg</strong> (791.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221654dcqjxuaakwxc9ej9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D1D5A3CA-3AAD-4AAE-9EE8-DAF47B60F531.jpeg</strong> (169.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202206/05/221654xs1sl8fxbvl4odxb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8229C8A8-E706-4EDD-B0AB-FFD06CC19177.jpeg</strong> (153 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-5 22:16 上传
+
+*****
+
+####  lj205  
+##### 9102#       发表于 2022-6-5 22:17
+
+90分钟生放，80分钟读信然后老人新人尬吹，我宁愿看她们5人带货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnrealApartheid  
+##### 9103#       发表于 2022-6-5 22:19
+
+ 本帖最后由 UnrealApartheid 于 2022-6-5 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56137944&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-06-05 22:03:37</a>
+
+伏笔是什么，我真的觉得他们动画制作组就没多么对剧情上心，不用期待那个了，就当不存在就行，第二季没给 ...</blockquote>
+我希望可可的家人第二季会有戏份，这就足够了
+
+学习成绩不好就要跟着家人一起回国，这个问题是可可总要面对的，我是不希望第二季把这个忘掉了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
