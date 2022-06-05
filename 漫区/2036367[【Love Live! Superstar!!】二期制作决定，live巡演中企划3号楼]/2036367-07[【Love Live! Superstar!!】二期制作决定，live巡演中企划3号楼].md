@@ -908,3 +908,35 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9069#       发表于 2022-6-5 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">楼上好像真相了，种种迹象表明第三年还要加人，如果第三年说人齐了然后变成我们那还好说，但这第二年就变了……
+
+*****
+
+####  ads147147  
+##### 9070#       发表于 2022-6-5 18:37
+
+土妹要是能复活香音的裤袜状态，我就不黑加人了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 9071#       发表于 2022-6-5 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前两集的剧情都能猜个大概了  后面不知道能不能玩出啥花样来 
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9072#       发表于 2022-6-5 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">所以香音最早的裤袜设定没了是因为要给土妹子让设定？！运营我要鲨了你口牙
+
