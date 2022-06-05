@@ -10348,3 +10348,21 @@ vox这小孩还是好好学学king专心打游戏吧，养gachi这种小屁孩�
 
 Noah咋了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14492#       发表于 2022-6-5 15:57
+
+早就说了小年轻不行，vtuber的最终版本答案是姨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+比起虹en4期轮流犯病，我看5期30+都挺安定的
+
+*****
+
+####  winda  
+##### 14493#       发表于 2022-6-5 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mondo今天到日本，看看vspo和虹里有多少人会和他off会的
+

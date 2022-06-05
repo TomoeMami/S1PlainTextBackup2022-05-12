@@ -19804,3 +19804,44 @@ ED1B4B32-5409-4F78-9EF2-0CB89AEE79DA.jpeg
 
 二期配音录歌，九人合练，FMT排练，三巡排练
 
+
+
+*****
+
+####  lj205  
+##### 8993#       发表于 2022-6-5 15:52
+
+其实我觉得打铁已经开始用新唱法了，就是还不习惯导致各种不稳定
+
+*****
+
+####  csolfans  
+##### 8994#       发表于 2022-6-5 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">起码以后9人优点就是不用再折磨小百合
+
+*****
+
+####  DarthAka  
+##### 8995#       发表于 2022-6-5 16:00
+
+说实在的，这种4保1甚至未来8保1的企划，巡演期间应该有声乐指导一直跟着保持状态，好比运动员要有随身训练师一样，就现在这么搞能撑三季动画？还是说这辈子就小百合这一个角色了？
+
+*****
+
+####  aoaoaodedede  
+##### 8996#       发表于 2022-6-5 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56133554&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-5 15:54</a>
+
+起码以后9人优点就是不用再折磨小百合</blockquote>
+个人认为，一巡那个歌单是主要问题，2nd的歌单就好了不少。
+一巡歌单毕竟是根据动画来的，动画是香音中心化过度，然后Live肯定也是以sayu这边为主，要是二期动画还是香音传，那3rd恐怕还是那样
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8997#       发表于 2022-6-5 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子状态一直都好棒，爱了
+
