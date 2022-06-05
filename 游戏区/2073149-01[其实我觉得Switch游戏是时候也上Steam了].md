@@ -1831,3 +1831,16 @@ s1的人体堂爱好者也太多了吧</blockquote>
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 你这是厂家利益考虑，和硬件的独特性有啥关系
 
+
+
+*****
+
+####  shiko  
+##### 174#       发表于 2022-6-5 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56129986&amp;ptid=2073149" target="_blank">sandro 发表于 2022-6-5 11:02</a>
+你这是厂家利益考虑，和硬件的独特性有啥关系</blockquote>
+跟硬件销量有关啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
