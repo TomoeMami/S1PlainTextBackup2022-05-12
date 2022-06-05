@@ -1789,3 +1789,16 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  shiko  
+##### 170#       发表于 2022-6-5 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124574&amp;ptid=2073149" target="_blank">sandro 发表于 2022-6-4 21:57</a>
+为啥这几个游戏和ns硬件有关？</blockquote>
+我不都解释了一遍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
