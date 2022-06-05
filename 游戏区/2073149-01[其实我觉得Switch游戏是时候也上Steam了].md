@@ -1774,3 +1774,18 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 无法理解站队，两者皆是
 
+
+
+*****
+
+####  pf67  
+##### 169#       发表于 2022-6-5 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124868&amp;ptid=2073149" target="_blank">JudgmentEye 发表于 2022-6-4 22:19</a>
+3a画质4k60帧画面不糊秒读盘随便打mod抽卡佣兵任务垃圾游戏嗼可以上风灵月影解决的泥潭第一jrpg谁不想要 ...</blockquote>
+要是这种游戏是隔一段时间就自动从石头里蹦出来给大家玩
+
+想必大家也不会在专楼里喷你了
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
