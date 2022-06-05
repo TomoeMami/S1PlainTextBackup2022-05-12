@@ -10787,3 +10787,45 @@ MD，记错时间血亏一个亿！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能是德比鲁啊 完全不一样的好吧
 
+
+
+*****
+
+####  gaiadc  
+##### 14541#       发表于 2022-6-5 23:10
+
+下次开播的时候已经百万了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想吃麦乐鸡  
+##### 14542#       发表于 2022-6-5 23:13
+
+投不是同一人一票<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">如果真的是的话从虚拟的角度来讲挺v的是个里程碑式的好活 但是不少主播想到莎皇诞生的过程会自己先崩溃吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  carroy  
+##### 14543#       发表于 2022-6-5 23:15
+
+サロメ下班光速发推说不要碰lozer
+配虑的鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你也不想引来🔥吧
+
+*****
+
+####  长谷川红叶  
+##### 14544#       发表于 2022-6-5 23:16
+
+还是别了吧。
+真的成真，我都不好说是积极意义还是讽刺意味更多一些了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 14545#       发表于 2022-6-5 23:18
+
+积极意义什么的只会存在于V圈老人的幻想中啦，现在的观众只会当场爆炸好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
