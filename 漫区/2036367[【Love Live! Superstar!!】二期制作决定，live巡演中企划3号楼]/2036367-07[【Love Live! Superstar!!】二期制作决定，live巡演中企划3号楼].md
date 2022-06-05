@@ -940,3 +940,25 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">所以香音最早的裤袜设定没了是因为要给土妹子让设定？！运营我要鲨了你口牙
 
+
+
+*****
+
+####  ads147147  
+##### 9073#       发表于 2022-6-5 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135470&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-5 18:40</a>
+所以香音最早的裤袜设定没了是因为要给土妹子让设定？！运营我要鲨了你口牙 ...</blockquote>
+不太可能是让位，毕竟官方版权绘都有两个人黑丝图。
+
+但是没黑丝真的让我好想杀了这个官方。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 9074#       发表于 2022-6-5 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">出个2季就得了行不，别拉长战线了
+
