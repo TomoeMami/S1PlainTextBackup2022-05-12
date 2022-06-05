@@ -978,3 +978,43 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新人黄毛好棒读，怎么这一年级的声线比老五人还显老啊喂
 
+
+
+*****
+
+####  cybernetics31  
+##### 9077#       发表于 2022-6-5 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是花田的话就已经🪣去京吹3片场了
+
+*****
+
+####  梶原ひかり  
+##### 9078#       发表于 2022-6-5 19:04
+
+一期制作委员会里没有不许摸
+
+二期 不许摸：I‘m Back
+
+<img src="https://img.saraba1st.com/forum/202206/05/190420skil54rkaub8rvqr.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-5 19:04 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9079#       发表于 2022-6-5 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时还说武士道你终于爬了，结果
+
+*****
+
+####  cybernetics31  
+##### 9080#       发表于 2022-6-5 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了，这下更没啥期待了，搅屎棍武士道咋又来了
+

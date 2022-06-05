@@ -10383,3 +10383,15 @@ Noah咋了
 
 学会在需要有人背锅的时候神秘的没人背锅。
 
+
+
+*****
+
+####  天天座理世  
+##### 14495#       发表于 2022-6-5 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56133471&amp;ptid=1972669" target="_blank">qwera3469 发表于 2022-6-5 15:46</a>
+
+Noah咋了</blockquote>
+贴了聊天记录发到推特，找人联动对面隔了三四天才回复，虽然打码了，但被认出是QP和露娜。
+
