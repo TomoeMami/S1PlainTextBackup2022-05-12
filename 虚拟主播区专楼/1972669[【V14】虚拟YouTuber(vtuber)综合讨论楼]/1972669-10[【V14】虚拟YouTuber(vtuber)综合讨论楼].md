@@ -10764,3 +10764,26 @@ omg
 哦，今天也上10w了诶。确实直播看着看着就看下去了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">希望这样子可以持续久一点，也改变业界一些规律。
 
+
+
+*****
+
+####  Ketestrait  
+##### 14538#       发表于 2022-6-5 23:00
+
+下周预计要休两天（明天休），速查德比下周的直播安排<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 14539#       发表于 2022-6-5 23:03
+
+MD，记错时间血亏一个亿！
+
+*****
+
+####  andeloz  
+##### 14540#       发表于 2022-6-5 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能是德比鲁啊 完全不一样的好吧
+
