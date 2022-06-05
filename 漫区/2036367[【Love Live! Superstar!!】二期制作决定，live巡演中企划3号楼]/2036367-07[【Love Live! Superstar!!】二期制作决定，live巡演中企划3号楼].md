@@ -1018,3 +1018,12 @@ DAY2的小星星太厉害了，感情和DAY1完全不一样，就像是3话的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了，这下更没啥期待了，搅屎棍武士道咋又来了
 
+
+
+*****
+
+####  starring  
+##### 9081#       发表于 2022-6-5 19:21
+
+就一打工人剧本肯定被干涉不少，与其摆烂花田大师还是早点跑吧
+

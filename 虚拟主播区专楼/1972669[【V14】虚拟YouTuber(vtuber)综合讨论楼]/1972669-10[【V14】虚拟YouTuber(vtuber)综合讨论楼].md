@@ -10395,3 +10395,19 @@ Noah咋了
 Noah咋了</blockquote>
 贴了聊天记录发到推特，找人联动对面隔了三四天才回复，虽然打码了，但被认出是QP和露娜。
 
+
+
+*****
+
+####  Alfie劉  
+##### 14496#       发表于 2022-6-5 19:15
+
+本来看郡道直播睡着了，结果被杀猪一样的哭声吵醒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 14497#       发表于 2022-6-5 19:18
+
+gamelu上fes舞台，嘉宾里有帕特姐，那edens 3d也快了
+
