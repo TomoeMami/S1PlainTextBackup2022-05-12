@@ -1111,3 +1111,15 @@ jzgg点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  風卷豹  
+##### 109#       发表于 2022-6-5 17:39
+
+心满这条线太的处理反而是最正常的一part，因为在心看来，太是那种能够自立有了目标能坚定去做的小学生，说要跟他一直做搭档也是哄他；直到发现了满这只脆弱的迷途羔羊，母性大发觉得自己必须照顾满，这个选择是符合她充满母性的人设的（先不谈这个人设观感好不好）。
+问题出在满，这个人前面几集还在因为纠结广被叫做小基佬，突然就这么被动接受心，甚至火速结婚生育的过程中也远远没有心那么主动，以至于最后失忆真爱桥段心心心满满满突兀无比。
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
