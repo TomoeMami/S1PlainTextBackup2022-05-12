@@ -1878,3 +1878,14 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 —— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  HazukiShion  
+##### 178#       发表于 2022-6-5 13:00
+
+<blockquote>ultraseven 发表于 2022-6-5 12:17
+任天堂自己开始卖高端显卡，和AN并称御三家</blockquote>
+显卡又玩不了游戏，怎么说也得造整机吧。系统也得自己搞一套，不然不是成套牌PC了，那样怎么收权利金？然后还得保证能塞进移动平台，竞争优势不能丢。
+
