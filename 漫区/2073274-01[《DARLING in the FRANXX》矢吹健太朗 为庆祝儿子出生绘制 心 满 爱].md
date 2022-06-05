@@ -1029,3 +1029,17 @@ https://www.pixiv.net/artworks/67903080</blockquote>
 爱情这个不见得就是讲强弱好坏的。满这种类型很容易激起女性的母性，特别心这种 ...</blockquote>
 他们不是成年人，观众是。
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 101#       发表于 2022-6-5 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56128688&amp;ptid=2073274" target="_blank">we89623 发表于 2022-6-5 08:41</a>
+
+他们不是成年人，观众是。</blockquote>
+我认为分析人物行为应该从他们的身份立场出发，而不是强行以观众审美带入。
+
+而这剧没做好具体人物处理，是另一回事。
+
