@@ -19667,3 +19667,42 @@ Ni老师安心地去了
 
 没救了，这次买pia的网速也不行只能开最低画质保证流畅度<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 8978#       发表于 2022-6-5 15:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2nd 的final…………哎
+
+*****
+
+####  starring  
+##### 8979#       发表于 2022-6-5 15:16
+
+还提了两次2nd final
+
+*****
+
+####  stygian  
+##### 8980#       发表于 2022-6-5 15:20
+
+这几天日子敏感，梯子都不太行，主梯子炸了备用梯子慢如龟
+
+我都放弃e+看qq频道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8981#       发表于 2022-6-5 15:20
+
+日常没默契
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8982#       发表于 2022-6-5 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2ndfinal
+
