@@ -1857,3 +1857,24 @@ s1的人体堂爱好者也太多了吧</blockquote>
 
 至于这种事情发生的前提，大家可以想想在满足什么条件的情况下，即使任天堂的新游戏都推出PC版，你还是会选择购买任天堂的硬件，并且在这个硬件上游玩所有的这些游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ultraseven  
+##### 176#       发表于 2022-6-5 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56130710&amp;ptid=2073149" target="_blank">HazukiShion 发表于 2022-6-5 11:53</a>
+
+我觉得任天堂的新游戏要上PC，只有当上PC这件事对任天堂的基础业务(即软硬件一体)没法造成什么影响甚至反而 ...</blockquote>
+任天堂自己开始卖高端显卡，和AN并称御三家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 177#       发表于 2022-6-5 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最后就是街机游戏应该全都上pc，玩个勾8转圈音游驾驶舱开高达，全都老老实实键鼠加手柄
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
