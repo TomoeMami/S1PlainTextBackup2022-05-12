@@ -1814,3 +1814,28 @@ CelticWhite
 烂铁别期望了吧，个人观点，我觉得鲤鱼Live的好几首歌都比一专的CD要好，我就不觉得他们唱片公司负责这个 ...</blockquote>
 发歌也是增加曝光度的一个方法，鲤鱼现在的COS业务也没办法发展，可能能曝光尽量曝光
 
+
+
+*****
+
+####  saya1892  
+##### 9132#       发表于 2022-6-6 12:42
+
+<img src="https://img.saraba1st.com/forum/202206/06/124200gfr31lilu0ilb049.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (12.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 12:42 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9133#       发表于 2022-6-6 12:48
+
+现在除了已经solo出道的鲤鱼，其她四人都不是solo出道的时候。
+Nagi的发展更偏向演艺届，nako除了事务所原因比起歌唱在配音方面的潜力更大，pay现在的人气大概率撑起来。最后是打铁，去年就有人提过趁现在LL企划的红利出道，不过以她现在的状态很可能变成录音室战神，尤其这两天的状态感觉比年初还要差。
+
