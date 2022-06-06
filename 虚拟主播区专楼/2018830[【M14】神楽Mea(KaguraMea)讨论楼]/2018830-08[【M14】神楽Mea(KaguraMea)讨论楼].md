@@ -8496,3 +8496,29 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 苔本真的遭不住，上次3d我都没看，还是看的切片
 
+
+
+*****
+
+####  呓亘  
+##### 11328#       发表于 2022-6-6 13:35
+
+请主播善待事业民和独角兽....
+
+*****
+
+####  古战场亡魂  
+##### 11329#       发表于 2022-6-6 13:36
+
+ 本帖最后由 古战场亡魂 于 2022-6-6 13:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">苔本又不是没好活，去年那个犬山制作人和偶像mea的苔本不挺好的吗。
+
+精彩片段都熟了也就留在fafa频道了而不是联合投稿也不知道为啥<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+超天酱那个也是好活，现在也没熟。多人联动里好活也不少，只是熟肉少。
+
+和苔本没关系，你们只是见不得舞mea罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕苔苔不在，换成组长直播间你们也是看不惯的。
+
