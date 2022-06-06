@@ -1851,3 +1851,13 @@ Nagi的发展更偏向演艺届，nako除了事务所原因比起歌唱在配音
 Nagi的发展更偏向演艺届，nako除了事务所原 ...</blockquote>
 可能是比较功利性的想法，但小百合趁着现在这红利出道肯定比几年后效果好。现在可以说整个llsp企划，她一个人是吃到最大加成的。也极大的体现到了她的个人活动上，平时的个人内容的回复数都可见一斑。虽然未来她的核心位置肯定不会变，但有了新人这种效果肯定会削减的，更别提现在还有捧土妹子的趋势了。不知道她那边的运营是怎么想的，不过她的个人写真集也快了，没准就想着拿这个试试水呢
 
+
+
+*****
+
+####  adw667  
+##### 9135#       发表于 2022-6-6 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135992&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-5 19:29</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这几张图都不是壁纸的尺寸好气啊
+
