@@ -1861,3 +1861,16 @@ Nagi的发展更偏向演艺届，nako除了事务所原 ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56135992&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-5 19:29</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这几张图都不是壁纸的尺寸好气啊
 
+
+
+*****
+
+####  starring  
+##### 9136#       发表于 2022-6-6 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56145582&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-6 13:19</a>
+可能是比较功利性的想法，但小百合趁着现在这红利出道肯定比几年后效果好。现在可以说整个llsp企划，她一 ...</blockquote>
+现在的红利带起的效果是好，如果solo出道梦带来正面的变化就更好。
+只是看着打铁现在的状态，出道了只会更忙不觉得会有更多时间锻炼唱功，说个不好听的话，一巡那个强度没能锻炼出来以后更忙的话就更加不用想，只会白白消耗年轻的资本。
+当然，还是希望打铁能够solo出道，未来的发展也会更广
+
