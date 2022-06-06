@@ -14867,3 +14867,15 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 保罗羁绊那么难刷么 夏露露那羁绊跟火箭一样 推主线时挂后面打一关升1绊第二关2绊第四关就3绊了 4绊 ...</blockquote>
 不是难刷，是我心里膈应，到现在才捏着鼻子给她刷5羁绊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88279#       发表于 2022-6-7 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56153511&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-7 00:09</a>
+
+不是难刷，是我心里膈应，到现在才捏着鼻子给她刷5羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这么不喜欢可还行
+
