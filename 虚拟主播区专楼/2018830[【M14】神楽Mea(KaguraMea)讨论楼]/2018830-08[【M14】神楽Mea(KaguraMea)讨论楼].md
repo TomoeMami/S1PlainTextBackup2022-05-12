@@ -8372,3 +8372,18 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 果然明天要搞这联动了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11318#       发表于 2022-6-6 09:47
+
+<img src="https://img.saraba1st.com/forum/202206/06/094658upcaazhxaxamchfr.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220606094619871.jpg</strong> (73.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 09:46 上传
+
