@@ -15258,3 +15258,15 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 以藏跟谁大战一场怎么就死了
 
+
+
+*****
+
+####  klzxs  
+##### 58304#       发表于 2022-6-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152689&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-6-6 22:49</a>
+
+以藏跟谁大战一场怎么就死了</blockquote>
+拖住了两个cp0后和一个cp0一换一了
+

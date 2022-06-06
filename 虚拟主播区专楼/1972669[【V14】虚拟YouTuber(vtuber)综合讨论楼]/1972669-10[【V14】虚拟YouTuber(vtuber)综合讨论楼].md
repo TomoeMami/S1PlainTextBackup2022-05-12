@@ -11433,3 +11433,12 @@ vrabi最近两天的直播开始上线了观众来源统计分析 ...</blockquot
 
 看了眼slm的聊天室，又开始虚空看直播了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14603#       发表于 2022-6-6 22:52
+
+德比现在正在播，疑似证据越来越多了。
+
