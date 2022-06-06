@@ -14784,3 +14784,14 @@ traum这个特异点应该就是迦勒底亚斯那个地球仪内部的模拟世
 
 FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御主负担，出力更是稳定。
 
+
+
+*****
+
+####  空气蛹  
+##### 88271#       发表于 2022-6-6 15:57
+
+草，这18节原来可以上自己人的，用剧情助战这四个打了好几次没打过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
