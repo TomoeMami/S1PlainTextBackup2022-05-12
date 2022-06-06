@@ -11248,3 +11248,14 @@ hnn新衣装的时候专门讲了和ibg成员配对的小装饰，noah新衣和h
 
 莎乐美要是德比的话，也太有戏剧性了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 14586#       发表于 2022-6-6 17:28
+
+ 本帖最后由 天天座理世 于 2022-6-6 17:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看了cheeky补档才发现kmt钻石要保级才喊上了他和vdk来帮忙。你们这些直播主就这么用18岁天才少年的吗？
+

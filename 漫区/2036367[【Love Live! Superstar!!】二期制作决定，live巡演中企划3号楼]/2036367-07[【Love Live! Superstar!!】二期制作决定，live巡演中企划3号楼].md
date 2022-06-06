@@ -1960,3 +1960,12 @@ Nagi的发展更偏向演艺届，nako除了事务所原 ...</blockquote>
 
 破站转播大阪场的fmt，只要100还带字幕，价钱可以
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9144#       发表于 2022-6-6 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">延迟一小时，有字幕，更便宜，我觉得可以
+
