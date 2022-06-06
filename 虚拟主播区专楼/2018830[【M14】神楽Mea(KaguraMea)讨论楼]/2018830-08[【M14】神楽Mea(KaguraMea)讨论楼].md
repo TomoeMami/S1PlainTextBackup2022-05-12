@@ -8582,3 +8582,19 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 新歌？
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11335#       发表于 2022-6-6 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 11336#       发表于 2022-6-6 22:29
+
+我觉得是啊b没播跑外面来看的人
+

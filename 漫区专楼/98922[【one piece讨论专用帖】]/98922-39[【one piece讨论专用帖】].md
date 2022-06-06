@@ -15229,3 +15229,23 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 现在是不是云喷子太多了，桃子长大，锦卫门复活都大吃一惊
 
+
+
+*****
+
+####  膜诃不思议  
+##### 58301#       发表于 2022-6-6 22:21
+
+绿牛要去和之国<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  athena_1982  
+##### 58302#       发表于 2022-6-6 22:24
+
+九侠里最有人气的两个挂了。
+
+我不能接受！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
