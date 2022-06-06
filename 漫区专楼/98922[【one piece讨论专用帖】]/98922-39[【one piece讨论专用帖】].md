@@ -15361,3 +15361,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 草，为什么死这两个人？！
 
+
+
+*****
+
+####  Acatv  
+##### 58314#       发表于 2022-6-7 00:47
+
+锦卫门出场时被罗随便就切了 在德岛毫无战绩 到了和之国，感觉凯多对他造成的伤害还不如罗和明哥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
