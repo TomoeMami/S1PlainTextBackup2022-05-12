@@ -11388,3 +11388,19 @@ https://vrabi.net/channel/UCgIfLpQvelloDi8I0Ycbwpg
 vrabi最近两天的直播开始上线了观众来源统计分析 ...</blockquote>
 求助，点进去没有找到入口...<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 14599#       发表于 2022-6-6 21:39
+
+ 本帖最后由 NBXX 于 2022-6-6 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56151749&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-6 21:29</a>
+
+求助，点进去没有找到入口...</blockquote>
+[一键跳转](https://vrabi.net/video/e0fcOkvVcDI#:~:text=%E3%83%A1%E3%83%B3%E3%83%90%E3%83%BC%E7%8E%87-,%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E5%8F%82%E5%8A%A0%E8%80%85%E5%85%B1%E6%9C%89%E7%8E%87,-%E3%82%B0%E3%83%AB%E3%83%BC%E3%83%97%E5%88%A5)
+
+点进直播详情页，在页面的最下方
+<img src="https://p.sda1.dev/6/b9ee18195f5af8f39ae75f929011a130/123214.gif" referrerpolicy="no-referrer">
+
