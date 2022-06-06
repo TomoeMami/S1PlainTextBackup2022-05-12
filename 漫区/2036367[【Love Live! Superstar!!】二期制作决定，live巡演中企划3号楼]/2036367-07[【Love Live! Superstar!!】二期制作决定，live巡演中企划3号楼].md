@@ -2215,3 +2215,12 @@ CelticWhite老师也补上了
 
   说实话可可剧情我是觉得不好处理的，如果给你来个像恋恋的个人回那种，那还不如不写，要是整那种苦大仇深的剧情，万一写出问题了，也麻烦。尤其要注意的一点是可可的个人回如果涉及到可可的家事，那么写得好，大家都高兴，写不好，那就可能会有很多的问题，整烂活的程度不一样，问题的麻烦程度和复杂性也不一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  we89623  
+##### 9163#       发表于 2022-6-7 07:26
+
+艹 五厕拉板为啥每次都要发一串恋恋卖剩下的悲报...是不是已经是拉板保留节目了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
