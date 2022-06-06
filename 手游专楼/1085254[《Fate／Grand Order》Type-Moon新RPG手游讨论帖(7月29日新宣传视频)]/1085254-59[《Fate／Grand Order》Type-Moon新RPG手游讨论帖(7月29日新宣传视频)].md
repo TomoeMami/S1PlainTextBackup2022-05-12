@@ -14795,3 +14795,17 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  khxooo  
+##### 88272#       发表于 2022-6-6 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56147588&amp;ptid=1085254" target="_blank">空气蛹 发表于 2022-6-6 15:57</a>
+
+草，这18节原来可以上自己人的，用剧情助战这四个打了好几次没打过
+
+—— 来自 OnePlus GM1910, And ...</blockquote>
+后面不是空了两个位置吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
