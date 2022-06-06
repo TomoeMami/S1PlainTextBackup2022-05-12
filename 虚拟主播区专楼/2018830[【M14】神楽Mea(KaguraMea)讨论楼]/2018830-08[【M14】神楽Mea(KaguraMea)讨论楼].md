@@ -8433,3 +8433,30 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 我将停止呼吸，直到收到双飞小视频
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11323#       发表于 2022-6-6 10:52
+
+ 本帖最后由 古战场亡魂 于 2022-6-6 10:55 编辑 
+
+当初约的时候你楼又不是不在盯着，有存档的好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/06/105150hyciw77eic717eyo.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220606104943502.jpg</strong> (30.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 10:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/06/105151pylbimvzlbx5yzkv.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220606105000193.jpg</strong> (24.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 10:51 上传
+
