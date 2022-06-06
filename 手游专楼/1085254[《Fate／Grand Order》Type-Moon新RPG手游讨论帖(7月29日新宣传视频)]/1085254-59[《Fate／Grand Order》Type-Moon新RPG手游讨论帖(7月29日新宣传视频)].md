@@ -14829,3 +14829,12 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sosgame67  
+##### 88275#       发表于 2022-6-6 22:04
+
+我记得年初说过今年要开2.7？就这么卡关键剧情半年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
