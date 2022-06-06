@@ -1904,3 +1904,50 @@ Nagi的发展更偏向演艺届，nako除了事务所原 ...</blockquote>
 鲤鱼三单感觉完全没提这事儿，希望今年能有。唐可可加成效果现在还在，别动画整烂了搞出负效果。 ...</blockquote>
 你还别说，要是一期动画那个第七集多来几次，可可的人气真不好说会是个什么样，唱白脸的工具人罢了。
 
+
+
+*****
+
+####  lj205  
+##### 9140#       发表于 2022-6-6 16:55
+
+草，那个抖音短视频的BGM怎么一堆人在嗨？鲤鱼根本就不知道歌词是个啥单纯挑了首旋律好的用
+
+非追究歌词的话她之前还用过豆荚猫一首极其黄的歌<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9141#       发表于 2022-6-6 16:55
+
+鲤鱼选的合鲤bgm歌词
+
+<img src="https://img.saraba1st.com/forum/202206/06/165529u9b9hbh9102ex59q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>14F03140-9232-44F5-A37E-D2EFC84F832E.jpeg</strong> (65.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-6 16:55 上传
+
+<img src="https://img.saraba1st.com/forum/202206/06/165529azv5znvrveku2wr5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EABCCCF8-E468-4273-9733-D422595D94C9.jpeg</strong> (112.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-6 16:55 上传
+
+*****
+
+####  仟音一心  
+##### 9142#       发表于 2022-6-6 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56148468&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-6 16:55</a>
+草，那个抖音短视频的BGM怎么一堆人在嗨？鲤鱼根本就不知道歌词是个啥单纯挑了首旋律好的用
+
+非追究歌词的话 ...</blockquote>
+日常抠糖吃别计较了，反正高兴不了多久了。
+

@@ -11230,3 +11230,12 @@ hnn新衣装的时候专门讲了和ibg成员配对的小装饰，noah新衣和h
  ...</blockquote>
 你这样一说莎乐美的直播封面风格和露露很像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黄色禁区  
+##### 14584#       发表于 2022-6-6 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果真是德比，那再看那个莎乐美/鹿鸣馆切子/鹰宫笑声对比的视频就太有趣了。当然体感上百万姐和德比还是差蛮多的，只能说又多了点梗吧。
+
