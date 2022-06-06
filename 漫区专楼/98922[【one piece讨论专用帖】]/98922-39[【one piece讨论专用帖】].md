@@ -15270,3 +15270,46 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 以藏跟谁大战一场怎么就死了</blockquote>
 拖住了两个cp0后和一个cp0一换一了
 
+
+
+*****
+
+####  华丽の蝴蝶  
+##### 58305#       发表于 2022-6-6 23:00
+
+以藏死我能说服自己，阿修罗童子是咋死的？
+
+*****
+
+####  plok201  
+##### 58306#       发表于 2022-6-6 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56144962&amp;ptid=98922" target="_blank">uswhzh 发表于 2022-6-6 12:39</a>
+
+现在是不是云喷子太多了，桃子长大，锦卫门复活都大吃一惊。桃子被抓痛揍死不服输不说，成天说路飞战败要投 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起云喷子，说不定只是大家真的不记得了
+
+和之国篇章拉太长了，很多东西都变成，哦，还有这事啊，都忘记了
+
+特别是那堆配角的，最惨还是和之国这些角色出彩的太少了，更容易忘记<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uswhzh  
+##### 58307#       发表于 2022-6-6 23:06
+
+<blockquote>plok201 发表于 2022-6-6 23:02
+比起云喷子，说不定只是大家真的不记得了
+
+和之国篇章拉太长了，很多东西都变成，哦，还有这事啊 ...</blockquote>
+确实
+
+*****
+
+####  klzxs  
+##### 58308#       发表于 2022-6-6 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">桃之助最大的错误是他是御田的儿子
+
+还有他揩了娜美和罗宾的油
+
