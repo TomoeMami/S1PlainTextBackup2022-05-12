@@ -1751,3 +1751,33 @@ A-RISEや聖雪がライバルは「まぁ、そんなもんかな」と作劇�
 
 怎样都好，烂铁搞快点今年给我把鲤鱼三单吐出来，最好贴个好点的动画<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9127#       发表于 2022-6-6 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56143773&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-6 11:27</a>
+
+怎样都好，烂铁搞快点今年给我把鲤鱼三单吐出来，最好贴个好点的动画 ...</blockquote>
+烂铁别期望了吧，个人观点，我觉得鲤鱼Live的好几首歌都比一专的CD要好，我就不觉得他们唱片公司负责这个一专有多用心，不如指望Horipro给鲤鱼多找点活<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9128#       发表于 2022-6-6 11:49
+
+CelticWhite
+
+就一个人没顶章鱼
+
+<img src="https://img.saraba1st.com/forum/202206/06/114859i2r4gywfj2wd4igr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9F19EDEA-13E4-4BD3-8F7D-D0E331B3835D.jpeg</strong> (217.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-6 11:48 上传
+
