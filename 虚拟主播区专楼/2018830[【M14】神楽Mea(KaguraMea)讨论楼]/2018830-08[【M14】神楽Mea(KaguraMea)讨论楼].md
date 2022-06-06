@@ -8598,3 +8598,22 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 我觉得是啊b没播跑外面来看的人
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11337#       发表于 2022-6-6 22:43
+
+ 本帖最后由 古战场亡魂 于 2022-6-6 22:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152441&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-6-6 22:29</a>
+
+我觉得是啊b没播跑外面来看的人</blockquote>
+上场直播也没阿b转播，1800？现在2000出头。
+
+之前有转播的时候1600？
+
+跑去油管跑不了几个，100多个撑死了。wow，财酱直接打了797.1刀。
+
+看到推上有人妻说孩子在mea歌声里睡着了。我好怕mea突然怪叫啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

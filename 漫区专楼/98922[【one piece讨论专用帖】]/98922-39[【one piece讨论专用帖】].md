@@ -15249,3 +15249,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 我不能接受！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58303#       发表于 2022-6-6 22:49
+
+以藏跟谁大战一场怎么就死了
+
