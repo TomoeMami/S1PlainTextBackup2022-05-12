@@ -1781,3 +1781,24 @@ CelticWhite
 由手机上传
 2022-6-6 11:48 上传
 
+
+
+*****
+
+####  靡宜  
+##### 9129#       发表于 2022-6-6 11:58
+
+<blockquote>aoaoaodedede 发表于 2022-6-6 11:44
+烂铁别期望了吧，个人观点，我觉得鲤鱼Live的好几首歌都比一专的CD要好，我就不觉得他们唱片公司负责这个 ...</blockquote>
+是真的，手机里好几首我都直接替换live源了
+
+*****
+
+####  D麦林  
+##### 9130#       发表于 2022-6-6 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56144033&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-6 11:44</a>
+烂铁别期望了吧，个人观点，我觉得鲤鱼Live的好几首歌都比一专的CD要好，我就不觉得他们唱片公司负责这个 ...</blockquote>
+烂铁CD源的录音问题我7年前入坑无印的时候大家就在车了
+车到现在还是做成这样只能证明烂铁能力就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
