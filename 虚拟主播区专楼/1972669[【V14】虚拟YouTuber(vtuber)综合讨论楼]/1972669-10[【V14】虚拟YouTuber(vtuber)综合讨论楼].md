@@ -11424,3 +11424,12 @@ vrabi最近两天的直播开始上线了观众来源统计分析 ...</blockquot
 
 难怪第一次她念出来的时候，评论直接刷爆了
 
+
+
+*****
+
+####  Ketestrait  
+##### 14602#       发表于 2022-6-6 21:58
+
+看了眼slm的聊天室，又开始虚空看直播了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
