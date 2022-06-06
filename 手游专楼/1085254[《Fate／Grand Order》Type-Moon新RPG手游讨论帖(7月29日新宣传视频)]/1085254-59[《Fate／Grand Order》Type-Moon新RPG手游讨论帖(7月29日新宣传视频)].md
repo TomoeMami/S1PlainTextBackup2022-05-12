@@ -14818,3 +14818,14 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 
 想要个冷静**系奥利弗和罗兰组成热血漫男一男二
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88274#       发表于 2022-6-6 21:17
+
+说起来，是不是要在51区的地下室里过万圣节和圣诞节了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
