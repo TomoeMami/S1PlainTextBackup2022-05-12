@@ -11214,3 +11214,19 @@ noah还住在关西，跟vspo那群线下都可以串门的离太远了。唯一
 
 hnn新衣装的时候专门讲了和ibg成员配对的小装饰，noah新衣和hnn的缎带贝雷帽也可以拿出来展现社内贴贴能量的……结果现在无论旅团还是社内都尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  克罗夏  
+##### 14583#       发表于 2022-6-6 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56147276&amp;ptid=1972669" target="_blank">Nichtig 发表于 2022-6-6 15:37</a>
+
+德比说真的成立的话 
+
+能不能接着脑补一个“帮忙做封面做待机动画的好朋友三角优华说”
+
+ ...</blockquote>
+你这样一说莎乐美的直播封面风格和露露很像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
