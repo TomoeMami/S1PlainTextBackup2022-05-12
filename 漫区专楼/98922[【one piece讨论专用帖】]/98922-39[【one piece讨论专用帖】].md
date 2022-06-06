@@ -15324,3 +15324,21 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 尾田哪怕多休休刊也好，别再搞和之国这种水平的篇章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qzfjnv  
+##### 58310#       发表于 2022-6-7 00:22
+
+和草帽团不熟的都死了是吧，反观锦皇由于和草帽团熟的不能再熟所以脸接霸缠贴块邦迪就好了
+
+*****
+
+####  chaoslee  
+##### 58311#       发表于 2022-6-7 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152814&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2022-6-6 23:00</a>
+以藏死我能说服自己，阿修罗童子是咋死的？</blockquote>
+被假御田捅了一刀然后炸死的
+
