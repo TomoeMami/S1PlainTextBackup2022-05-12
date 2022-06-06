@@ -11277,3 +11277,19 @@ kmt提前叫到了dex但dex要过一小时才能到。所以vdk召唤来cheeky�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kmt被cheeky猎排队干了，又到最后的保级局了
 
+
+
+*****
+
+####  rzrbtk  
+##### 14589#       发表于 2022-6-6 18:14
+
+郡郡是不是被诅咒了啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 14590#       发表于 2022-6-6 18:17
+
+组长开局手里就4宝，等着翻盘。你郡运气不好。
+
