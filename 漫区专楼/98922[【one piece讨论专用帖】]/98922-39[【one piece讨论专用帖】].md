@@ -15220,3 +15220,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 看楼上才想起来原来是大半年前的内容<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  uswhzh  
+##### 58300#       发表于 2022-6-6 12:39
+
+现在是不是云喷子太多了，桃子长大，锦卫门复活都大吃一惊
+
