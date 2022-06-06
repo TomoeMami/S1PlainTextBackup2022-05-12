@@ -11167,3 +11167,31 @@ v综才开始讨论德比论啊。
 
 就是不带noah是吧，社内孤立了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Nichtig  
+##### 14578#       发表于 2022-6-6 15:37
+
+德比说真的成立的话 
+
+能不能接着脑补一个“帮忙做封面做待机动画的好朋友三角优华说”
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 14579#       发表于 2022-6-6 15:40
+
+有如漫区造假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Suny08  
+##### 14580#       发表于 2022-6-6 15:40
+
+按我云vspo 切片的经历来看，noah社内多人联动不管线上还是线下一直都很自闭啊，感觉都不怎么说话的，基本都是beni lisa hnn 花芽妹这几个玩的比较疯
+
