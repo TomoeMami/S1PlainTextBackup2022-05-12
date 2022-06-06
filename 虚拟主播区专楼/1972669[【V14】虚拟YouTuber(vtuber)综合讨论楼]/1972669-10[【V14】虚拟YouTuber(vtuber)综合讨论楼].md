@@ -11333,3 +11333,23 @@ kmt提前叫到了dex但dex要过一小时才能到。所以vdk召唤来cheeky�
 
 noah新衣服没有卷发不对味啊
 
+
+
+*****
+
+####  carroy  
+##### 14595#       发表于 2022-6-6 20:22
+
+ 本帖最后由 carroy 于 2022-6-6 20:30 编辑 
+
+kaede：我会在2434毁灭之前一直在的
+
+mito：和2434殉情派吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+弹幕：根据情况可能会无理心中也说不定啊
+
+[无理心中：逼着对方和自己双双去自杀（情死）。（むりやりにする心中。同意しない相手を殺して自分も自殺すること。）]
+
+笑死我了
+
