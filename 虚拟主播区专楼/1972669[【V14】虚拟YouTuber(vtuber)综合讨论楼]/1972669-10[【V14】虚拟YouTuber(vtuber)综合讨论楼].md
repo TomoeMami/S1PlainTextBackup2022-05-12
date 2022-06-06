@@ -11158,3 +11158,12 @@ v综才开始讨论德比论啊。
 
 明明已经接受只能当黑客生命粉的现实了，看他明言今年fes不参加还是会觉得很难接受………
 
+
+
+*****
+
+####  poipanchao  
+##### 14577#       发表于 2022-6-6 15:30
+
+就是不带noah是吧，社内孤立了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
