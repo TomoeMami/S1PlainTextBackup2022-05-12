@@ -8641,3 +8641,20 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 今天有点梦回5小时。官号没转播可惜了。
 
+
+
+*****
+
+####  往世雷书  
+##### 11340#       发表于 2022-6-7 06:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152609&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-6 22:43</a>
+上场直播也没阿b转播，1800？现在2000出头。
+
+之前有转播的时候1600？
+
+跑去油管跑不了几个，100多个撑死了 ...</blockquote>
+797.1是什么数字吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
