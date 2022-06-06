@@ -8522,3 +8522,18 @@ NB要是有直播肯定早就发预告了，而且最近几天因为可能正赶
 
 哪怕苔苔不在，换成组长直播间你们也是看不惯的。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11330#       发表于 2022-6-6 16:36
+
+<img src="https://img.saraba1st.com/forum/202206/06/163608trm44drw9wblibdy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-6 16:36 上传
+
