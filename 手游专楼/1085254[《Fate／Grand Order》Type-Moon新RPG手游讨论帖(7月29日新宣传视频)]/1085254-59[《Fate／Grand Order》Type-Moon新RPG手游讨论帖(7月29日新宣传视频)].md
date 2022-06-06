@@ -14838,3 +14838,12 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 
 我记得年初说过今年要开2.7？就这么卡关键剧情半年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88276#       发表于 2022-6-6 22:12
+
+5星保罗终于5羁绊了，这个估计是我最久5羁绊的5星了，可以塞仓库了。
+
