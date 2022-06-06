@@ -2044,3 +2044,12 @@ Nagi的发展更偏向演艺届，nako除了事务所原 ...</blockquote>
 
 昨天有人没顶章鱼，今天有人没拍抖音，下一样也少一个是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9149#       发表于 2022-6-6 18:40
+
+是不是佩佩那边管得很严？跟鲤鱼的合照真是少得可怜……还是说她想独占鲤鱼所以完全不发<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
