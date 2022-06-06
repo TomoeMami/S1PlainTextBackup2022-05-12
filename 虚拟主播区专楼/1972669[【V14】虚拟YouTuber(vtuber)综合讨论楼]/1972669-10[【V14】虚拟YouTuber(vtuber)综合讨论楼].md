@@ -11268,3 +11268,12 @@ hnn新衣装的时候专门讲了和ibg成员配对的小装饰，noah新衣和h
 
 kmt提前叫到了dex但dex要过一小时才能到。所以vdk召唤来cheeky就只打一小时，加了两把分换人了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的是好脾气。
 
+
+
+*****
+
+####  天天座理世  
+##### 14588#       发表于 2022-6-6 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kmt被cheeky猎排队干了，又到最后的保级局了
+
