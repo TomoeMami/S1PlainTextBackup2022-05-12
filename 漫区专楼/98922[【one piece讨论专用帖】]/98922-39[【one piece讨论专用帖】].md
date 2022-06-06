@@ -15202,3 +15202,21 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 可惜了，感觉没jb御田这一话挺好的，小玉真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 58298#       发表于 2022-6-6 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56126790&amp;ptid=98922" target="_blank">jy000129 发表于 2022-6-5 00:43</a>
+桃之助催熟是哪一话的内容，我一点印象都没有</blockquote>
+1021结尾 1023登场
+
+*****
+
+####  陈玉礼  
+##### 58299#       发表于 2022-6-6 11:10
+
+看楼上才想起来原来是大半年前的内容<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
