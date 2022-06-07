@@ -11974,3 +11974,19 @@ Syl，虹元id这个Xia Ekavira，
 
 油管又在管制ASMR？
 
+
+
+*****
+
+####  nian1538  
+##### 14661#       发表于 2022-6-7 18:01
+
+ 本帖最后由 nian1538 于 2022-6-7 18:08 编辑 
+
+目前有数个个人势/小企业被ban的报告，很多中小管人为了规避风险已经隐藏ASMR录像
+[有说法](https://www.itmedia.co.jp/news/articles/2206/07/news127.html)称和[Youtube未成年人新规](https://support.google.com/youtube/answer/2801999?hl=en#zippy=%2Ccontent-featuring-minors)相关，但也有人表示该条款2年前已经有了
+
+至于大企业，虹似乎已经得到消息，[向主播提出了暂时隐藏ASMR录像的建议](https://twitter.com/onomachi_haruka/status/1534062669288046592)
+
+杏方面目前只有拉米早间直播时被观众告知的样子
+
