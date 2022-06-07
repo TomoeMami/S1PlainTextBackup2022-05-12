@@ -2781,3 +2781,14 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 如果最近有二单投票就算是动用中华炮也必须把可可抬到首位，我怕第二季播完之后真没机会了。 ...</blockquote>
 以前的投票是怎么的规则？看板娘那种还好，如果是要买票的估计难抬吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  we89623  
+##### 9207#       发表于 2022-6-7 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56167187&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-6-7 23:13</a>
+以前的投票是怎么的规则？看板娘那种还好，如果是要买票的估计难抬吧 ...</blockquote>
+以往拉拉数字单曲选举都是网上免费投的
+
