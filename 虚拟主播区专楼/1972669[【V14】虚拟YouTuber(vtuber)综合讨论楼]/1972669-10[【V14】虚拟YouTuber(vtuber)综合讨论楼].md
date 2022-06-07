@@ -11888,3 +11888,12 @@ vspo卖的挺莫名其妙的
 
 3d回在tiktok开直播带货有没有搞头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14652#       发表于 2022-6-7 16:10
+
+委员长没有第一时间出来恭喜。已经写入莎兵仇恨教育。
+

@@ -2572,3 +2572,21 @@ Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作�
 我从新四人短片到杂志资料一个没看，可以描述一下差别有多小吗，不会在演唱会上颜色都分不清的那种吧[f:037 ...</blockquote>
 隔壁有人发对比图，我是觉得演唱会上是肯定分不清的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9188#       发表于 2022-6-7 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">等一个第二季瞎搞剧情可可人气大幅下跌最后live上2打1打不过香哥哥
+
+*****
+
+####  靡宜  
+##### 9189#       发表于 2022-6-7 16:22
+
+<blockquote>稀勢のささ 发表于 2022-6-7 16:15
+等一个第二季瞎搞剧情可可人气大幅下跌最后live上2打1打不过香哥哥</blockquote>
+虽然有道理，但是这种事情不要啊
+
