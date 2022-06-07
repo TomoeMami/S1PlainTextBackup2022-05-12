@@ -2333,3 +2333,12 @@ CelticWhite老师也补上了
 可推，买最贵的谷，在国内背最多的锅，推还莫得个人回和edsolo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纠正一下，个人回可以预期的寄
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9173#       发表于 2022-6-7 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以可可赶快跑路吧，正好今天高考赶得上，来个越级高考
+
