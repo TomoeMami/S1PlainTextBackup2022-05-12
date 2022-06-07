@@ -12357,3 +12357,24 @@ salome首次社内联动可不可以选口了
 
 事实上虹上位和老前辈本来就很少carry后辈和底边一直都是小圈子自己玩自己的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在虹做独狼很正常，只要有数字就有一堆人拥护
 
+
+
+*****
+
+####  rzrbtk  
+##### 14700#       发表于 2022-6-7 22:41
+
+这就不得不提唯一一个被莎天酱回复两次的前辈帕特兰了，第一次联动就她吧，刚好上一个被说又独又皇的豆猫也跟帕特处得不错
+
+
+
+*****
+
+####  lancasterliang  
+##### 14701#       发表于 2022-6-7 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56166748&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-7 22:41</a>
+
+这就不得不提唯一一个被莎天酱回复两次的前辈帕特兰了，第一次联动就她吧，刚好上一个被说又独又皇的豆猫也 ...</blockquote>
+就直接来个个大小姐打小钢珠的节目罢
+

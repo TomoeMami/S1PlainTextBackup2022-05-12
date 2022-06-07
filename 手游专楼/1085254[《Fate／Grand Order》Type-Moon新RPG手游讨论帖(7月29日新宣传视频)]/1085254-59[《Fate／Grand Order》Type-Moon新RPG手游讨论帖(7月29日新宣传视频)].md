@@ -14933,3 +14933,37 @@ FGO近期最糟糕的从者可能就是君十一了：
 宝具出错，天子守国门，但是天 ...</blockquote>
 其他我都知道，居然还有声优这事，可以说是被集火了，其实预热时候每天的守城战就已经很搞了，大多数人上来第一件事就是把系统君11扔后面然后换强力蓝光炮上来杀光对面，再加上其他的破事，我原本以为之前的五星班扬已经够夸张了，君11这张卡搞成这样简直就像是某种社会实验一样23333
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88283#       发表于 2022-6-7 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56166240&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-7 22:03</a>
+
+其他我都知道，居然还有声优这事，可以说是被集火了，其实预热时候每天的守城战就已经很搞了，大多数人上 ...</blockquote>
+好像是6月初爆料的，今天看到有UP谈论神尾的事，我就搜了一下：
+[https://www.bilibili.com/video/BV1gY4y157yx](https://www.bilibili.com/video/BV1gY4y157yx) 这个视频的置顶有详情：
+ <blockquote>1.四月底被friday拍到和一个现年25岁（年下15岁）的地下偶像同居恋爱，以下称这个女生为“正牌女友”。正牌女友在被拍到当天还是第二天就发了推特道歉，说“我还很不成熟”云云。神尾晋一郎没有任何发言。
+
+2.一个现年20岁的女网红自己投稿给youtuberコレコレ，有神尾晋一郎和她yp的聊天记录。她说一次神尾去大阪，跟正牌女友说自己只是出差，结果还顺路yp。聊天记录里有酒店和房间的具体信息。并且神尾对这个女网红说自己在东京和自己的“妹妹”同居。</blockquote>
+
+...虽然梅林经常当着阿周那的面说一些老生常谈的话，但声优还是会影响角色的，比如紫式部。
+
+我本人喜欢狂气的角色，所以2.4马嘶一出场就当成墙头了。结果因为铃木达央出轨，导致我现在都快把马嘶当空气了...（其实主要原因是平时用不到。）
+
+总之，祸不单行吧，君士坦丁十一世简直从正式登场就是个灾难，哪怕制作组里有个买买提二世，也不至于搞成这样吧。
+
+只能说成名画师摸鱼+过渡五星强度+剧情不知所云+声优突然出轨，才弄出这么个东西，运营和时运的责任一半一半吧。
+
+君11评价最好的时候搞不好是白情失忆当迈克尔那里，毕竟没露下半身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在只希望女教皇实装时不要绑定君十一......不过池子里的皇女也没有张口闭口卡多克，应该没问题吧...
+
+（结果实装时加个“因为君十一强烈的思念所以女教皇才会在现实中登场”的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+东出的拉郎配真的是一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+其实樱井的CP塑造水平也是不相伯仲。看来想复刻高中生和古代王的恋情确实不容易，还是要跟菌老板多加学习<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
