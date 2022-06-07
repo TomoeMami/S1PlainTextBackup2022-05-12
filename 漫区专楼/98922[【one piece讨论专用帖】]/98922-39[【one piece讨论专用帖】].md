@@ -15398,3 +15398,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 原来尾田炸弹真的能炸死人
 以藏又是怎么死的。被cp0打死了吗，死的也太不值了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 58318#       发表于 2022-6-7 08:22
+
+说起来凯多棒子打死的只有公务员么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
