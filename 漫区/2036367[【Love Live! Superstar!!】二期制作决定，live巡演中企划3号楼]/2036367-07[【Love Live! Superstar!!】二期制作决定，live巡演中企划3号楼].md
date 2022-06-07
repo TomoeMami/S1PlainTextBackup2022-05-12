@@ -2445,3 +2445,91 @@ CelticWhite老师也补上了
 有区别，当然不是同一个颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我把官网上的应援色以RGB值提取出来，转换到CIELAB色彩空间，再根据CIEDE2000色差公式计算，如果我没算错，那么四季和可可的颜色可能是缪水虹星四团里<strong>团内</strong>色差最小的一组
 
+
+
+*****
+
+####  仟音一心  
+##### 9181#       发表于 2022-6-7 15:06
+
+<img src="https://img.saraba1st.com/forum/202206/07/150524upwmmmhskaf8xp4a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>07F38488-A110-44FA-A5EA-326792927436.jpeg</strong> (771.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202206/07/150532z3c7xbqvbs7vv8ny.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9B07D718-042C-45C4-84A0-12DDC3409226.jpeg</strong> (244.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202206/07/150540jb9z6zi636mcalzg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>93B40CF9-04C7-4F47-9650-627EAD3972AB.jpeg</strong> (277.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:05 上传
+
+Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作品。 
+
+*****
+
+####  仟音一心  
+##### 9182#       发表于 2022-6-7 15:08
+
+<img src="https://img.saraba1st.com/forum/202206/07/150759ib688bf2j8f0bj7t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CFF71D3F-BC4C-42D3-AECF-BFCB7BEE9361.jpeg</strong> (813.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:07 上传
+
+舞台上不哭的Nagi
+
+<img src="https://img.saraba1st.com/forum/202206/07/150817um1tytjkas1jry5a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1C4325DB-58D8-4AC7-AD19-7F798BC47D42.jpeg</strong> (218.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:08 上传
+
+<img src="https://img.saraba1st.com/forum/202206/07/150817byfyznahe6636qh2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>06706B17-E4E4-436B-A907-515AA734CE4D.jpeg</strong> (310.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:08 上传
+
+<img src="https://img.saraba1st.com/forum/202206/07/150817ftl1fvwb0ru1fgwh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>538A8501-296C-4F47-A2C3-08ACFDC37A5C.jpeg</strong> (287.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 15:08 上传
+
+*****
+
+####  仟音一心  
+##### 9183#       发表于 2022-6-7 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56160015&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-7 14:37</a>
+有区别，当然不是同一个颜色，个人计算过一些，四季和可可的应援色的色差是9人Liella!里最小的，其 ...</blockquote>
+留给后辈的应援色真的不多了，等分了小组还得再加三种小组应援色。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

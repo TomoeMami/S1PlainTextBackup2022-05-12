@@ -11770,3 +11770,35 @@ vspo没钱没技术有人气
 
 调色盘终于有人接盘了，一定要好好的<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 14639#       发表于 2022-6-7 15:01
+
+虹女第一块金盾，恭喜了啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 14640#       发表于 2022-6-7 15:02
+
+vspo运营发推了，回应还挺快的
+
+
+
+*****
+
+####  Ryuuseigun  
+##### 14641#       发表于 2022-6-7 15:06
+
+莎皇驾到铛哒铛🏃‍♂️🧎‍♂️👠👠旧时代遗老统统闪开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 14642#       发表于 2022-6-7 15:07
+
+这调色盘买了干嘛，拆了，中之人换皮重新出道比继续偶像活动强吧。
+
