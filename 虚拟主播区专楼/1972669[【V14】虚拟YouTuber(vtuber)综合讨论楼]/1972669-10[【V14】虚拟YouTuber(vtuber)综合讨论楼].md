@@ -12098,3 +12098,22 @@ slm发表感言，感谢运营，感谢粉丝，感谢构建起V圈世界的所�
 
 这感言会不会有点钦定的味道<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 14673#       发表于 2022-6-7 20:40
+
+ 本帖最后由 Ketestrait 于 2022-6-7 20:47 编辑 
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h2zyn4ilj6j20xt0j1n01.jpg" referrerpolicy="no-referrer">
+
+小魔王这画全家福最难得的是人物关系和梗、特征都把握得很好<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+syl
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h2zyvts6euj20gh0ajq7k.jpg" referrerpolicy="no-referrer">
+
+莎皇，她真的...<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+

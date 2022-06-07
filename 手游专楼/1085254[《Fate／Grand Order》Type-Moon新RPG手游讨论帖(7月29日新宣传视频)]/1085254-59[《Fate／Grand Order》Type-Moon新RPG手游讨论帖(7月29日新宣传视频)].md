@@ -14893,3 +14893,28 @@ FA里的飞哥虽然也是高消耗，但好歹有龙心能自己供能减轻御
 急需一个大蜜若黑的设定佬来个黑料大合集
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88281#       发表于 2022-6-7 20:48
+
+ 本帖最后由 Jamaisvu 于 2022-6-7 20:49 编辑 
+
+FGO近期最糟糕的从者可能就是君十一了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">：
+
+卡面拉胯，小短腿，纯真颜；
+
+宝具出错，天子守国门，但是天子没脖子，守的是伊斯坦布尔；
+
+强度不行，周回和高难都很难混进去，一眼定位，公台炮弹；
+
+人设崩坏，毫无历史上的悲壮感，看见美女就走不动道，复权领域复的是女教皇的权，还拿当昏君开玩笑，哪怕是异闻带也不能这么摆烂吧，还有嘲讽勇敢老骑士唐吉诃德不存在，却忘了自己身边的女教皇也和幻灵差不多；
+
+剧情破格，明明是一域之主，连个BOSS战也没有，成了查理曼和源为朝的垫脚石；
+
+声优出轨，神尾晋一郎一边和小15岁女友同居一边艹粉。
+
+大概就这么多吧...话说回来，从者设定里那个EX宝具是不是根本没出现过啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
