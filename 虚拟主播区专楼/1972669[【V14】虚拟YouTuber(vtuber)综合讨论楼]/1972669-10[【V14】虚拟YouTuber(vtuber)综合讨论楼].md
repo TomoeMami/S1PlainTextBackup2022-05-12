@@ -12444,3 +12444,12 @@ salome首次社内联动可不可以选口了
 
 莎皇今晚这来了句和卢卡斯实况者battle真是神句，评论里就有人说莫非第一个和莎皇联动的竟是卢卡斯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 14708#       发表于 2022-6-8 00:14
+
+最后5分钟的养gachi阶段，很难不长角
+
