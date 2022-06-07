@@ -2645,3 +2645,31 @@ Fmt出大招吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9194#       发表于 2022-6-7 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56164376&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-7 19:35</a>
+
+或许她们私下早就熟了，但现在还是好抗拒反感这种营业啊哎..距离感就好怪..
+
+—— 来自 S1Fun ...</blockquote>
+如果企划准备整一个5+4人的Liella!，那么现在这样也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  仟音一心  
+##### 9195#       发表于 2022-6-7 19:44
+
+Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9196#       发表于 2022-6-7 19:47
+
+到时会宣布二单吗
+
