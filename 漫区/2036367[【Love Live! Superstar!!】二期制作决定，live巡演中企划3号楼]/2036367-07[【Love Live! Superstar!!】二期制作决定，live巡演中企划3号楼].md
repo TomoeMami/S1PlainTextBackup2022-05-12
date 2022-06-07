@@ -2673,3 +2673,19 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 
 到时会宣布二单吗
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9197#       发表于 2022-6-7 19:52
+
+假如现在搞二单，粉丝之间估计又会有一场大战<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9198#       发表于 2022-6-7 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨 又不是没战过 
+

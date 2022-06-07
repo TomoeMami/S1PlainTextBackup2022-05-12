@@ -12048,3 +12048,22 @@ Syl，虹元id这个Xia Ekavira，
 
 kmt这昨天cheeky今天1tappy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14669#       发表于 2022-6-7 19:52
+
+蹭生化7的才是傻子呢。
+
+强的又不是生化7，强的是莎皇。
+
+小v真的要发展就是要找准一条赛道然后一路跑下去。
+
+天天播打apex、valorant、日麻的不说了。
+
+目前看到的有天天播原神的、天天播第五人格的、天天播游戏王的。
+
+甚至还有天天同时试听解说真人棒球比赛的。
+
