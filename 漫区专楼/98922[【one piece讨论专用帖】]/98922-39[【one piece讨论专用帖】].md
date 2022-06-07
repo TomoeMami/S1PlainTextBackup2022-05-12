@@ -15597,3 +15597,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 1053后尾田休刊一个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  犀利  
+##### 58340#       发表于 2022-6-7 14:12
+
+我觉得歇个一年半载也行。
+
