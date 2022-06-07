@@ -2299,3 +2299,18 @@ CelticWhite老师也补上了
 
 只是相对的，一个从小跳舞的青梅竹马，一个跨国来追梦的中国人，一个童星，一个开学校的大小姐（破产ver），香音弹吉他还会失声的人确实挺普通的。现在这个“普通”的接力棒大概率要给黑丝土妹子，真的，很难有什么好的期待。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9170#       发表于 2022-6-7 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56155191&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-7 08:44</a>
+当然说了是“强行当做普通人”，堪比假面骑士片场一个“普通人”捡了一个腰带带上就骑士踢解决一个怪人的 ...</blockquote>
+说实话我有点想到缪了，相比香音，穗乃果的设定就没有太多没有涉及到作词作曲这样的职能，当然穗乃果的人气貌似也不是最高的，会不会这种职能在一个角色身上的堆叠会有助于人气塑造<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不如说现在星团这动画是苦了其他人的推了
+
+二期动画…没有期待就不会被伤害
+
