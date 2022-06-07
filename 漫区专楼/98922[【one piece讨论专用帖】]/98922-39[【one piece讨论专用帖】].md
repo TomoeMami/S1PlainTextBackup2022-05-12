@@ -15606,3 +15606,16 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 我觉得歇个一年半载也行。
 
+
+
+*****
+
+####  7sevenseven  
+##### 58341#       发表于 2022-6-7 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56124630&amp;ptid=98922" target="_blank">エリ 发表于 2022-6-4 22:01</a>
+我估计接下去的大篇章应该不会超过3个了
+
+和之国完结后叙述完世界线，鉴于大和上船，要跟着五黄团游历世界， ...</blockquote>
+算了吧，之后混战肯定升级，而尾田现在连和之国这种混战都画不好
+
