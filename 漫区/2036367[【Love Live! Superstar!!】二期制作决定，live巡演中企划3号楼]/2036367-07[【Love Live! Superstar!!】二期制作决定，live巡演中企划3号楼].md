@@ -2250,3 +2250,13 @@ CelticWhite老师也补上了
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 9166#       发表于 2022-6-7 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152972&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-6 23:17</a></blockquote>
+不愧是你啊立德<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
