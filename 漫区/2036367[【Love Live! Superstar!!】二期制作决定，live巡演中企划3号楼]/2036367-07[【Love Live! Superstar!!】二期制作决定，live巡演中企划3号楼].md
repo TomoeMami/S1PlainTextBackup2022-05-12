@@ -2431,3 +2431,17 @@ CelticWhite老师也补上了
 
 这新人的应援色跟五老星的应援色有什么区别？我反正不是色盲
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9180#       发表于 2022-6-7 14:37
+
+ 本帖最后由 aoaoaodedede 于 2022-6-7 14:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56159499&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-7 13:58</a>
+
+这新人的应援色跟五老星的应援色有什么区别？我反正不是色盲</blockquote>
+有区别，当然不是同一个颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我把官网上的应援色以RGB值提取出来，转换到CIELAB色彩空间，再根据CIEDE2000色差公式计算，如果我没算错，那么四季和可可的颜色可能是缪水虹星四团里<strong>团内</strong>色差最小的一组
+
