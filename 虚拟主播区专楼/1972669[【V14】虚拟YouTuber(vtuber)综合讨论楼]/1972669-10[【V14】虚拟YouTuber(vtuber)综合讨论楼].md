@@ -11913,3 +11913,55 @@ vspo卖的挺莫名其妙的
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer"> 什么破网还风怒
 
+
+
+*****
+
+####  noHentai  
+##### 14655#       发表于 2022-6-7 17:10
+
+看起来是整个日本国内V圈观众厚积薄发的一次体现吧，没怎么关注salome但似乎海外观众成分一般？
+
+不管怎么说这个速度毫无疑问是有相当一部分虹外观众的，能否引流到其他liver并稳固成为箱推可能是田角最近一段时间的一大课题。
+
+不过上市前来了这么个天降UR，田角大概现在做梦都能笑醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/316a4326d3e70867e5652192e6500bed/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/494e1044ceb6afa25604854b2d6cd68a/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  midearth  
+##### 14656#       发表于 2022-6-7 17:12
+
+关键这记录基本不可能破了
+
+*****
+
+####  nian1538  
+##### 14657#       发表于 2022-6-7 17:13
+
+Youtube又在对ASMR管人出手了
+
+*****
+
+####  alcoholic1000  
+##### 14658#       发表于 2022-6-7 17:16
+
+维阿 star不算虹女是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+Syl，虹元id这个Xia Ekavira，
+
+塔是Detri，能唱能演奏的一人乐队
+[https://www.youtube.com/watch?v=gssC1KSp3jU](https://www.youtube.com/watch?v=gssC1KSp3jU)
+
+才3.2万订阅，同期已经蹭en男起飞
+
+感觉吃亏在语言不过关
+
+*****
+
+####  noHentai  
+##### 14659#       发表于 2022-6-7 17:19
+
+<img src="https://p.sda1.dev/6/3edd844867dde5954f256063a2bcd9d1/image.png" referrerpolicy="no-referrer">
+
