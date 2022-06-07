@@ -2342,3 +2342,13 @@ CelticWhite老师也补上了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以可可赶快跑路吧，正好今天高考赶得上，来个越级高考
 
+
+
+*****
+
+####  ViyViy  
+##### 9174#       发表于 2022-6-7 10:08
+
+我是希望可可个人回有所改变和成长的，但是身兼企划传统的机场任务几乎是不可能见到了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田要不安排在最后一集吧，真给可可跑了，剧场版去上海唱
+
