@@ -12435,3 +12435,12 @@ salome首次社内联动可不可以选口了
 
 黑客在逆凸提到最近看了致性别为蒙娜丽莎的你，然后原作者给他画了fa……这下有官方代餐了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小鸟游泉  
+##### 14707#       发表于 2022-6-8 00:08
+
+莎皇今晚这来了句和卢卡斯实况者battle真是神句，评论里就有人说莫非第一个和莎皇联动的竟是卢卡斯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
