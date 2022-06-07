@@ -11897,3 +11897,19 @@ vspo卖的挺莫名其妙的
 
 委员长没有第一时间出来恭喜。已经写入莎兵仇恨教育。
 
+
+
+*****
+
+####  更喜欢狗是吗  
+##### 14653#       发表于 2022-6-7 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer"> 恭喜虹女第一块金盾 期待以后给大家讲讲彩虹第一块女金盾的含金量
+
+*****
+
+####  更喜欢狗是吗  
+##### 14654#       发表于 2022-6-7 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer"> 什么破网还风怒
+
