@@ -12471,3 +12471,13 @@ salome首次社内联动可不可以选口了
 
 配信battle那一段确实神来之笔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 14711#       发表于 2022-6-8 07:37
+
+vshojo招日本成员在秋叶原包了块大广告牌还行。
+秋叶原现在别的不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
