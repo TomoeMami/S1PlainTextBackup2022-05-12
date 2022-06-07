@@ -2610,3 +2610,27 @@ Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作�
 
 Fmt出大招吗
 
+
+
+*****
+
+####  仟音一心  
+##### 9192#       发表于 2022-6-7 18:53
+
+明天终于是我们二期生首次亮相的直播！！！💫
+
+兴奋过头了，担心今晚睡不着了😂(就像小学生明天出去远足的那种心情一样)
+
+欢迎为Liella应援的插图和留言！
+
+明天20时〜直播！期待期待
+
+<img src="https://img.saraba1st.com/forum/202206/07/185334na4z46lg4y7x057z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF233464-C8BE-4435-A21F-F46340E0C736.jpeg</strong> (196.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 18:53 上传
+
