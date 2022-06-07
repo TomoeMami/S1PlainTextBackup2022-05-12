@@ -14996,3 +14996,28 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 飞嫂这个病娇状态，黑暗的台词直接套进来也毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88286#       发表于 2022-6-7 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们都被磁场强者**了么
+
+*****
+
+####  Jamaisvu  
+##### 88287#       发表于 2022-6-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56167377&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-7 23:33</a>
+
+你们都被磁场强者**了么</blockquote>
+因为海虎最近比较火嘛，设定时髦酷炫，剧情剑走偏锋，人设霸道狂气，非常迎合现在这个上下限阈值都越来越高的氛围，下有屎尿屁猎奇，上有大统领帝皇。
+
+不过废狗和海虎确实不太好联动玩梗，氛围都不一样，我都说不好哪边更唯心<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+其实如果拿小贝玩圆头四的话，倒是挺有延展性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（阿格规文：我知道贝狄威尔你是正统的还剑派，所以我给你找来了四个接受狮子王祝福的大只佬...）
+
