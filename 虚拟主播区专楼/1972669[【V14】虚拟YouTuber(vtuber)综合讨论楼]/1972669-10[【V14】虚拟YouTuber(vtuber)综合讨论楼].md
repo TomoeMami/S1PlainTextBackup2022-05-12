@@ -11633,3 +11633,12 @@ https://youtu.be/mi4Q5EdXaEk
 
 看数据百万姐的观众可能女粉没多少，主要还是女v的观众，我倾向于带货这么成功应该是男粉给女友或者妈买的
 
+
+
+*****
+
+####  Ketestrait  
+##### 14622#       发表于 2022-6-7 14:01
+
+slm的切片转发、二创、日程表点赞数在2w～6万区间，而指甲油那条推2小时点赞有差不多8万，也许有一批非观众<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
