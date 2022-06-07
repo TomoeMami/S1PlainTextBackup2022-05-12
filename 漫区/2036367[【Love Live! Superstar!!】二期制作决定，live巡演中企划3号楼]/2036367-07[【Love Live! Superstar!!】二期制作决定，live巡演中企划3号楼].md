@@ -2533,3 +2533,15 @@ Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作�
 有区别，当然不是同一个颜色，个人计算过一些，四季和可可的应援色的色差是9人Liella!里最小的，其 ...</blockquote>
 留给后辈的应援色真的不多了，等分了小组还得再加三种小组应援色。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9184#       发表于 2022-6-7 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56160015&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-7 14:37</a>
+
+有区别，当然不是同一个颜色，个人计算过一些，四季和可可的应援色的色差是9人Liella!里最小的，其 ...</blockquote>
+那还真是用心了，谢谢他们啊
+
