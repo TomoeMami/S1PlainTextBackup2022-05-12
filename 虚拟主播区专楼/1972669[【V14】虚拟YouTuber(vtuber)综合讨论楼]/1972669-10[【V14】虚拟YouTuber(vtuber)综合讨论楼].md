@@ -12144,3 +12144,35 @@ syl
 
 莎皇太会了，这怎么玩得过她
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14677#       发表于 2022-6-7 21:12
+
+莎皇展现了自己能力，现在开始展示自己的德行了。兔头还是赶快禅让吧。
+
+讲道理休息是一码事，又不是不能用推特了，对着本社第一位女性百万粉视而不见多少有点不合适。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 14678#       发表于 2022-6-7 21:13
+
+这是真天皇了，已经手握生杀大权了
+
+*****
+
+####  rzrbtk  
+##### 14679#       发表于 2022-6-7 21:14
+
+不回推又咋的，我郡还没关注莎乐美呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">！
+
+*****
+
+####  好想吃麦乐鸡  
+##### 14680#       发表于 2022-6-7 21:16
+
+这下好女人了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">能蹭到的民那桑抓紧机会快上啊 过了这村就没这店了
+
