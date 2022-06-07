@@ -12080,3 +12080,12 @@ kmt这昨天cheeky今天1tappy<img src="https://static.saraba1st.com/image/smile
 
 这和定型文似的○○samaarigatou
 
+
+
+*****
+
+####  Ketestrait  
+##### 14671#       发表于 2022-6-7 20:28
+
+slm发表感言，感谢运营，感谢粉丝，感谢构建起V圈世界的所有前人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
