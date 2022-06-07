@@ -14976,3 +14976,23 @@ FGO近期最糟糕的从者可能就是君十一了：
 
 XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于睡梦与酒宴的伊斯玛仪不是你的对手。 但你偏偏要让我把一直逃避的失败接纳。 愚蠢的家伙，你已把真正的雄狮苏醒了。 但现在还缺个黑暗役....... 有人提供一个吗，也不需要是舔狗。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88285#       发表于 2022-6-7 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56167069&amp;ptid=1085254" target="_blank">kisskick 发表于 2022-6-7 23:03</a>
+
+XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于睡梦与酒宴的伊斯玛仪不是你的对手。 但你偏偏要 ...</blockquote>
+齐格飞...齐格飞...<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+今天，我手震（指拖着巴鲁姆克行走）<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">。
+为什么会这样，我付出一切，却得不到想要的一点爱...<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+为何上天你要给我这种痛苦？我究竟做错什么？我到底做错什么了？！<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+齐格飞！齐格飞！我真是好恨你啊！你为何要这样对我？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+呜哇，齐格飞！呱！吔！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+飞嫂这个病娇状态，黑暗的台词直接套进来也毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
