@@ -2751,3 +2751,12 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 由手机上传
 2022-6-7 21:23 上传
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9204#       发表于 2022-6-7 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">好歹来个单曲c位吧可可，真的是2期可能有的个人回大崩概率挺高的，不想后面全是debuff
+
