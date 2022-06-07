@@ -15628,3 +15628,14 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 休吧 好好反省和之国为啥这么烂
 
+
+
+*****
+
+####  20002000  
+##### 58343#       发表于 2022-6-7 15:58
+
+希望他能翻一翻早期的one piece，学习一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -2545,3 +2545,19 @@ Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作�
 有区别，当然不是同一个颜色，个人计算过一些，四季和可可的应援色的色差是9人Liella!里最小的，其 ...</blockquote>
 那还真是用心了，谢谢他们啊
 
+
+
+*****
+
+####  iuhehc  
+##### 9185#       发表于 2022-6-7 15:56
+
+我从新四人短片到杂志资料一个没看，可以描述一下差别有多小吗，不会在演唱会上颜色都分不清的那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9186#       发表于 2022-6-7 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正明天生放我也不看了，看菜宝单口相声唠嗑多好
+
