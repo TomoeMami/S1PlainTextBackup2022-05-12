@@ -12067,3 +12067,16 @@ kmt这昨天cheeky今天1tappy<img src="https://static.saraba1st.com/image/smile
 
 甚至还有天天同时试听解说真人棒球比赛的。
 
+
+
+*****
+
+####  carroy  
+##### 14670#       发表于 2022-6-7 20:00
+
+ 本帖最后由 carroy 于 2022-6-7 20:02 编辑 
+
+サロメ开始回恭喜推了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这和定型文似的○○samaarigatou
+
