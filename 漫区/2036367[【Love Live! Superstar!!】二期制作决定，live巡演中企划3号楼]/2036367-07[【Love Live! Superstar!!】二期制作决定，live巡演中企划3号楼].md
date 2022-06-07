@@ -2233,3 +2233,20 @@ CelticWhite老师也补上了
 
 6cƠᴗƠ∂  拉板这个可可表情绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9165#       发表于 2022-6-7 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56154451&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-7 02:55</a>
+毕竟第一季是香音传，而且我觉得香音-&gt;小百合-&gt;香音形成了闭环的相互反哺，香音人气一骑绝尘我也不感到意 ...</blockquote>
+严格说，其他人不是没有反哺，只是效果明显没有强行当做普通人追梦来设计的香音要来的强（nako和nagi都有点脱离个人经历，只保留了一点点的特长连接，街舞和芭蕾，父母jpg，结果上就是角色关系纯靠中之人发挥了。）
+
+从写作思路来说，定死成长为主题的话，肯定是起点最低的香音为主心骨，但是星1里很多操作充满了你TM这样设计是不是太极端了的味道。和过去缪水比都有点莫名其妙，相比温柔的虹就更凸显脚本的用力过猛，出演过剩。
+
+从第二季pv来看，这种创作思路是不会变的，甚至很可能土妹子传再来一次。我只能期望，9人平均分12集，没那么多时间拿去用力过猛把角色干废了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
