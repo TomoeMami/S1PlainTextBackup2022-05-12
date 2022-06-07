@@ -2698,3 +2698,22 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">数字单能把老人轮完再投票不
 
+
+
+*****
+
+####  Enakina  
+##### 9200#       发表于 2022-6-7 21:02
+
+就算宣布二单，也不会投票的，不然对新人太不公平了（虽然我完全不在乎新人就是了）。真出二单还是香音c可能性更大
+
+*****
+
+####  aoaoaodedede  
+##### 9201#       发表于 2022-6-7 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56165405&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-7 21:02</a>
+
+就算宣布二单，也不会投票的，不然对新人太不公平了（虽然我完全不在乎新人就是了）。真出二单还是香音c可 ...</blockquote>
+我反正觉得这事就没办法有所谓公平的解决办法，就说如果直接让香音C，那运营确实想一路香音传玩到底了
+
