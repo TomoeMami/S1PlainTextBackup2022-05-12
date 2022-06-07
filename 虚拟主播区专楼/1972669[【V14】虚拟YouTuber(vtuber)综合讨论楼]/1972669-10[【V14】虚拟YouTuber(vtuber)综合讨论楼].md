@@ -12462,3 +12462,12 @@ salome首次社内联动可不可以选口了
 
 在字幕组动态下翻到的，黛灰怎么也没想到竟会是自己同事......
 
+
+
+*****
+
+####  Ketestrait  
+##### 14710#       发表于 2022-6-8 01:05
+
+配信battle那一段确实神来之笔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
