@@ -2561,3 +2561,14 @@ Pay子这张“伙伴增加了”，还原了めざし@mezashiozsn 老师的作�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正明天生放我也不看了，看菜宝单口相声唠嗑多好
 
+
+
+*****
+
+####  a92063256  
+##### 9187#       发表于 2022-6-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56161144&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-7 15:56</a>
+我从新四人短片到杂志资料一个没看，可以描述一下差别有多小吗，不会在演唱会上颜色都分不清的那种吧[f:037 ...</blockquote>
+隔壁有人发对比图，我是觉得演唱会上是肯定分不清的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
