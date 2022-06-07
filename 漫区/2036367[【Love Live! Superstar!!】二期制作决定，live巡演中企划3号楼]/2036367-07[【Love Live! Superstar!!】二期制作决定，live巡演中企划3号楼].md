@@ -2769,3 +2769,15 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 
 要是翻页暂时没问题，我觉得没必要开新楼，继续这个楼的氛围就可以了
 
+
+
+*****
+
+####  靡宜  
+##### 9206#       发表于 2022-6-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56165633&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-7 21:20</a>
+
+如果最近有二单投票就算是动用中华炮也必须把可可抬到首位，我怕第二季播完之后真没机会了。 ...</blockquote>
+以前的投票是怎么的规则？看板娘那种还好，如果是要买票的估计难抬吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
