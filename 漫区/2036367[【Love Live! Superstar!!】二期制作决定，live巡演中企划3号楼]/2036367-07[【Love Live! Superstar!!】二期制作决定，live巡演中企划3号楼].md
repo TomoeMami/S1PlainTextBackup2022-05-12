@@ -2260,3 +2260,28 @@ CelticWhite老师也补上了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56152972&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-6 23:17</a></blockquote>
 不愧是你啊立德<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9167#       发表于 2022-6-7 08:35
+
+<img src="https://img.saraba1st.com/forum/202206/07/083518rjcclcnlnze6rl23.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4E8675F1-C8FE-4153-A1E7-70289CC68C41.jpeg</strong> (42.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-7 08:35 上传
+
+*****
+
+####  aoaoaodedede  
+##### 9168#       发表于 2022-6-7 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56154962&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-7 08:11</a>
+严格说，其他人不是没有反哺，只是效果明显没有强行当做普通人追梦来设计的香音要来的强（nako和nagi都有 ...</blockquote>
+如果把香音当做“普通人追梦”，那么她在一期动画里本身的设定就完全不“普通”，主vocal，作词，作曲，这可不是啥普通人追梦啊
+

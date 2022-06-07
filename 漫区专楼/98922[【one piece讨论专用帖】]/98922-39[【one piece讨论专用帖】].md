@@ -15407,3 +15407,12 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 说起来凯多棒子打死的只有公务员么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈玉礼  
+##### 58319#       发表于 2022-6-7 08:32
+
+人物生死全靠一张嘴是吧，画面完全不算数<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
