@@ -11802,3 +11802,35 @@ vspo运营发推了，回应还挺快的
 
 这调色盘买了干嘛，拆了，中之人换皮重新出道比继续偶像活动强吧。
 
+
+
+*****
+
+####  越动天下  
+##### 14643#       发表于 2022-6-7 15:13
+
+以前天天想谁是虹女第一块金盾 现在都被一脚踢开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大小姐驾到 统统闪开 syl
+vspo好事
+
+*****
+
+####  a37356205  
+##### 14644#       发表于 2022-6-7 15:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚看到篇文章，把写实画风的虚拟主播单列一类，称作仿生人
+
+*****
+
+####  Suny08  
+##### 14645#       发表于 2022-6-7 15:16
+
+<img src="https://img.saraba1st.com/forum/202206/07/151602dcw08cg3xg0wwckg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A89C3CD9-979F-4B3C-81F6-B04BDDF870E3.jpeg</strong> (506.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-7 15:16 上传
+
+新人速度好快
+
