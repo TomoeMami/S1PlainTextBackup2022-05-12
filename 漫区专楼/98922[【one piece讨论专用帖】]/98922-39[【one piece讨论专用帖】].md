@@ -15416,3 +15416,20 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 人物生死全靠一张嘴是吧，画面完全不算数<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 58320#       发表于 2022-6-7 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">死人太少也是海贼的一个问题
+
+很难有紧迫感
+
+九侠留一半我觉得就差不多了
+
+锦卫门和其他几个重要性不一样，活下来也算可以理解
+
+像小菊伤这么重死了也正常吧
+
