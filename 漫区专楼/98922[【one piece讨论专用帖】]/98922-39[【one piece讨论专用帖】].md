@@ -15510,3 +15510,37 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 还有好多坑没填
 
+
+
+*****
+
+####  逸yi  
+##### 58330#       发表于 2022-6-7 12:01
+
+ 本帖最后由 逸yi 于 2022-6-7 12:02 编辑 
+
+可以出后传前传一大堆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 隔壁龙球貌似准备复活沙鲁了 跳跳系民工漫的宿命
+
+*****
+
+####  klzxs  
+##### 58331#       发表于 2022-6-7 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">200话也得画5年呢
+
+*****
+
+####  赤魔法师  
+##### 58332#       发表于 2022-6-7 12:05
+
+看得出和之国尾田是真的画累了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该花一个月思考D到底是什么了
+
+*****
+
+####  陈玉礼  
+##### 58333#       发表于 2022-6-7 12:09
+
+和之国收尾的时候能不能把天狗的身份明牌一下 还是说以前已经明牌过了？
+
