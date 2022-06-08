@@ -15550,3 +15550,37 @@ PU2很弱呢
 
 这飞嫂根本就是被会长攻略之后的辉夜，2.65发糖之后智商呈断崖式下跌，甚至出现了幼儿化的症状<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88335#       发表于 2022-6-9 00:02
+
+说起飞嫂，选古贺葵真是捡到鬼了
+歇斯底里得非常彻底，nmd打剧情的时候红卡那声音，我一度以为是不是我手机外放坏了，全程在破音
+
+当年破音姬都没让我怀疑过是我的设备问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 88336#       发表于 2022-6-9 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">eod的堂吉诃德+赫克托尔的性格大概就是我想像的堂吉诃德了
+
+再来个狂阶,宝具红单体,触发巨大特攻后眩晕切换到后三排
+
+这赛马娘桑丘的看着确实有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88337#       发表于 2022-6-9 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-8 22:56</a>
+
+欧羡慕 张角有个猫用 以后友情就能出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为怪东西专精竟然没出教授和张角我不服 难道这俩很强么
+

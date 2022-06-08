@@ -4860,3 +4860,26 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 由手机上传
 2022-6-8 23:51 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9433#       发表于 2022-6-9 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这自拍水平  有进步
+
+*****
+
+####  iuhehc  
+##### 9434#       发表于 2022-6-9 00:06
+
+ 本帖最后由 iuhehc 于 2022-6-9 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182839&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-8 23:43</a>
+不懂日语，能请教一下那段具体说了啥吗</blockquote>
+经一起海选的朋友介绍看到觉得小百合很耀眼，心想那个孩子一定会通过的，我该怎么办，海选结果决定是打铁的时候就觉得，啊果然是那个人啊
+
+差不多这样之类的？我没看第二遍记得不太清楚，应该很快就有熟肉的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
