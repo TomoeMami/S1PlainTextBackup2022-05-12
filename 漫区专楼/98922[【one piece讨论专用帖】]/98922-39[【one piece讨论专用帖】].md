@@ -16196,3 +16196,28 @@ ONEPIECE は最終章へ突入します。
 
 救人，做药，还抗了一阵子奎恩
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58397#       发表于 2022-6-9 01:53
+
+配合路飞5月5日的生日，赏金来个55亿5555万5555吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58398#       发表于 2022-6-9 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182904&amp;ptid=98922" target="_blank">thomaszyj 发表于 2022-6-8 23:49</a>
+整个和之国最大的问题就在于九侠的戏份安排，其实被凯多灭掉以后退场是最好的安排。那一次不仰卧起坐的话， ...</blockquote>
+九虾多拿几个人头，窃取胜利果实名正言顺多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tornadoDA  
+##### 58399#       发表于 2022-6-9 05:06
+
+火影后期犯的病海贼要变本加厉的犯，犯到粉丝都不买账，作者亲爹毁剧情，重要配角沦为杂鱼，搞宿命论，就看最后会不会也搞个辉夜家族出来，一个想象中浩大的忍者世界塌缩成一场家庭闹剧，不过好在海贼那么多个岛屿也刻画过了，再差劲也不会太小家子气
+

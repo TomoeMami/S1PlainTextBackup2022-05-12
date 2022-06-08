@@ -4928,3 +4928,14 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 每次看pay的自拍我就想笑
 
+
+
+*****
+
+####  长日留痕  
+##### 9439#       发表于 2022-6-9 02:42
+
+土妹子当小立德感觉还不错。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
