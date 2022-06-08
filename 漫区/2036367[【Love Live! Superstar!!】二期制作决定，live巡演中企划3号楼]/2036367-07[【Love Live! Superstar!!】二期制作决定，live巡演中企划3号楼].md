@@ -4486,3 +4486,23 @@ ABC的fc甚至连魔法都不用，直接连上就能开，很方便
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这种喜欢角色更多一点的将来就要坐大牢了，在它企划眼里就是跪着要饭的
 
+
+
+*****
+
+####  Enakina  
+##### 9409#       发表于 2022-6-8 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181841&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-8 22:18</a>
+铃原这一波捞了不少好感，拉板已经在哀嚎大批伊達おじ要转成のんおじ
+
+说实话这些人智商真的不高，几个月前 ...</blockquote>
+铃原有种小百合2.0的感觉，运营感觉也要推她，不知道能不能起来
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9410#       发表于 2022-6-8 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

@@ -12848,3 +12848,20 @@ slm：本来今天想整点活的，结果被运营阻止了<img src="https://st
 
 德比说又一力证！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 14746#       发表于 2022-6-8 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">STAFF毙企划是你虹基操了
+
+*****
+
+####  布莱士·西伯利  
+##### 14747#       发表于 2022-6-8 22:34
+
+阿胜这个奥赛罗好有趣...应该是真的有奥赛罗然后奥赛罗自己有动捕...
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">enkr逐渐和偶像公司特有黑企业接近了？
+
