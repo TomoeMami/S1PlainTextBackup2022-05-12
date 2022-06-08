@@ -15584,3 +15584,22 @@ PU2很弱呢
 欧羡慕 张角有个猫用 以后友情就能出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为怪东西专精竟然没出教授和张角我不服 难道这俩很强么
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88338#       发表于 2022-6-9 00:10
+
+肯花20年报仇就证明生前还是满意的，只是听见是自杀才以为不爱，现在知道爱了那不爽翻了，所以265过后连英灵座本体的狂战标准肯定都得大反转吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 88339#       发表于 2022-6-9 00:19
+
+抽飞嫂出了半裸男，无氪没石头了，还想抽唐吉诃德，起码这个歪的几率小点，飞嫂下次自选吧，家里CP就切嗣太太一对，其他都只有一半，气死偶咧！<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+古贺葵第一次认识是红烧天堂的TAMA，那个鬼叫给我留下了深刻印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
