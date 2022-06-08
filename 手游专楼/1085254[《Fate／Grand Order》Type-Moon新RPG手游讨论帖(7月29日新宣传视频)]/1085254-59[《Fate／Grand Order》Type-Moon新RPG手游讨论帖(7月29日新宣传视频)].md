@@ -15156,3 +15156,35 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 飞田展男+新井里美，是卡缪+花园丽
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88303#       发表于 2022-6-8 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177101&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-6-8 17:31</a>
+张角是剧情限定么？是的话补个5宝了</blockquote>
+常驻
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  quanlix  
+##### 88304#       发表于 2022-6-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177101&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-6-8 17:31</a>
+
+张角是剧情限定么？是的话补个5宝了</blockquote>
+池子结束进友情，不用强抽
+
+*****
+
+####  KOBI  
+##### 88305#       发表于 2022-6-8 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">430石堂吉诃德
+
+然后还歪盘子。。虽然我是对教授没兴趣但也不至于这样吧
+
