@@ -15858,3 +15858,25 @@ WT就算了，能死两个不错了
 
 桃之助要是能立刻和玉田一族撇清关系，并当众承认真名飞鸟桃之助那我就相信整个和之国篇所有的不合理其实都是小魔女在后面作祟。要是能再画点小魔女的彩蛋那把他当做信子的跨世纪大作也不是不行，劝尾田好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 58363#       发表于 2022-6-8 19:13
+
+休載期間明けの7月25日(月)発売
+
+『週刊少年ジャンプ』34号より
+
+ONEPIECE は最終章へ突入します。
+<img src="https://p.sda1.dev/6/4b3d5ddc6ad52f4f2b0b5e534f3b81dc/20220608_191212.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/6efebb98e9ce80feae12bba5daf924a0/20220608_191216.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  陶矢  
+##### 58364#       发表于 2022-6-8 19:18
+
+真的最终章了呀，这下不烂尾都不行了，让我想到搞笑漫画日和里的剑圣大和<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
