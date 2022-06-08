@@ -4242,3 +4242,51 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 另外，既然都是海选同一批，一期生先上了打铁和青山，那么可以说铃原至少在海选的时候唱歌跳舞等的表现是不如她俩的，说以期待1stlive有打铁一样亮眼表现的可能性感觉就很低了。
 
+
+
+*****
+
+####  ayangsu  
+##### 9382#       发表于 2022-6-8 21:12
+
+反正目前看来铃原颜最能打，彩属实有点小失望<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9383#       发表于 2022-6-8 21:13
+
+两边楼的大伙都真香了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9384#       发表于 2022-6-8 21:16
+
+我无所谓，别给一期生拖后腿就是
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9385#       发表于 2022-6-8 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不香的又不会跳出来说，再说还没有看到她们的唱跳实力
+
+*****
+
+####  iuhehc  
+##### 9386#       发表于 2022-6-8 21:19
+
+不觉得真香，打心底抗拒加人，也就那样，香不起来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 9387#       发表于 2022-6-8 21:21
+
+<img src="https://p.sda1.dev/6/34f7359b2b3b9f9d74260c1ba41de6ce/20220608_212103.jpg" referrerpolicy="no-referrer">
+
