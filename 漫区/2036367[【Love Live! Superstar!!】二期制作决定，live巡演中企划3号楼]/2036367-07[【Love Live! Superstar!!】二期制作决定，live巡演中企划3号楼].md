@@ -4061,3 +4061,135 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星团一直续是吧
 
+
+
+*****
+
+####  iuhehc  
+##### 9361#       发表于 2022-6-8 20:52
+
+什么Liella48
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  竹筷  
+##### 9362#       发表于 2022-6-8 20:53
+
+我其实一直感觉星这企划有点学Q娃，每年出点新东西让话题度跟新鲜度一直有，当然现在运营操作得好不好就不说了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9363#       发表于 2022-6-8 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那这样真成二次元女团了
+
+*****
+
+####  lj205  
+##### 9364#       发表于 2022-6-8 20:53
+
+这次下来印象最深的是大熊，印象最无感依然是前偶像
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9365#       发表于 2022-6-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180457&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-6-8 20:53</a>
+我其实一直感觉星这企划有点学Q娃，每年出点新东西让话题度跟新鲜度一直有，当然现在运营操作得好不好就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉之前放卫星的LTB更适合这种模式
+
+*****
+
+####  稀勢のささ  
+##### 9366#       发表于 2022-6-8 20:55
+
+なぎ「いっそ落ちてた方が良いキャラ貰えた可能性...」  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟楼友一个想法
+
+*****
+
+####  iuhehc  
+##### 9367#       发表于 2022-6-8 20:56
+
+新4人都挺无感的，但是看放海选视频这操作来看 土妹传 开演！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 9368#       发表于 2022-6-8 20:57
+
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 9369#       发表于 2022-6-8 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180479&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 20:54</a>
+
+感觉之前放卫星的LTB更适合这种模式</blockquote>
+上次看日本那边星粉丝年龄段饼图，小朋友跟叔叔阿姨占比还真挺多的，而且全员一年级这种设定确实很适合每季动画升年级来塞东西
+
+*****
+
+####  寒风夜  
+##### 9370#       发表于 2022-6-8 20:58
+
+ 本帖最后由 寒风夜 于 2022-6-8 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在看来，拉拉是不是多少有点被校园偶像卡住了（毕业）
+
+*****
+
+####  starring  
+##### 9371#       发表于 2022-6-8 20:59
+
+新四人只有铃原第一次看上去挺亮眼，大熊有成为整活担当的潜力，另外两个没什么印象
+
+*****
+
+####  稀勢のささ  
+##### 9372#       发表于 2022-6-8 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180545&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 20:57</a>
+
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鈴原动起来好看 彩是cjb 没了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9373#       发表于 2022-6-8 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明校园偶像才是灵魂
+
+*****
+
+####  ViyViy  
+##### 9374#       发表于 2022-6-8 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不学隔壁整大学篇吧，大学学园偶像那也是学园偶像
+
+*****
+
+####  ads147147  
+##### 9375#       发表于 2022-6-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180545&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 20:57</a>
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗</blockquote>
+铃原（土妹子役）是sayu青山那批海选扣下来的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a92063256  
+##### 9376#       发表于 2022-6-8 21:01
+
+生放完了香不起来还是香不起来，就是格外的感觉到运营的逆天程度
+
