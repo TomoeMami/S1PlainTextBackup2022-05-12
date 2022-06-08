@@ -4193,3 +4193,52 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 生放完了香不起来还是香不起来，就是格外的感觉到运营的逆天程度
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9377#       发表于 2022-6-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180604&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-8 21:00</a>
+
+铃原（土妹子役）是sayu青山那批海选扣下来的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅 ...</blockquote>
+好家伙，真就往海选落选那个猜想发展了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 9378#       发表于 2022-6-8 21:06
+
+二期有人是被青山挤下来的话属于塞翁失马了
+
+*****
+
+####  aoaoaodedede  
+##### 9379#       发表于 2022-6-8 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180518&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-8 20:56</a>
+
+新4人都挺无感的，但是看放海选视频这操作来看 土妹传 开演！
+
+—— 来自 S1Fun ...</blockquote>
+感觉有点这方面的苗头，再看那个PV，说不定二期动画是二人传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9380#       发表于 2022-6-8 21:07
+
+怎么香哦………………企划这样了都，谁知道它后面还有啥操作
+
+*****
+
+####  cat1230  
+##### 9381#       发表于 2022-6-8 21:12
+
+12星座说更加可能了，也就是海选还有1位要雪藏2年以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，既然都是海选同一批，一期生先上了打铁和青山，那么可以说铃原至少在海选的时候唱歌跳舞等的表现是不如她俩的，说以期待1stlive有打铁一样亮眼表现的可能性感觉就很低了。
+
