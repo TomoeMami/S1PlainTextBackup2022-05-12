@@ -3004,3 +3004,18 @@ IMG_8682(20220608-115528).PNG
 不过五人读心 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">乐了
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 9229#       发表于 2022-6-8 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56172901&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-8 12:54</a>
+太智障了，不过想想当年水团强行不让缪水互动，现在的切割处理居然还不是最草台的。
+
+—— 来自 Xiaomi 210 ...</blockquote>
+同感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
