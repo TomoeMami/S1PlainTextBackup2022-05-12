@@ -15051,3 +15051,35 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有5分钟   虽然我也没石了
 
+
+
+*****
+
+####  sosgame67  
+##### 88291#       发表于 2022-6-8 16:57
+
+日服大概会有新一波b服难民？不过这群家伙基本是3分钟热度一周都坚持不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88292#       发表于 2022-6-8 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1护符挑战失败 教授再见了
+
+*****
+
+####  sosgame67  
+##### 88293#       发表于 2022-6-8 17:04
+
+2池开了，不知道和之前的拆包数据是否一样，强度拉跨就省石头等周年了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88294#       发表于 2022-6-8 17:10
+
+堂吉诃德卡面摸的透彻啊？
+
+怕不是活动从者强性拉上去的
+

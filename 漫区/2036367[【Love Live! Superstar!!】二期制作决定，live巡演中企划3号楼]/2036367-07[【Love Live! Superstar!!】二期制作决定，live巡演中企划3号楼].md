@@ -2988,3 +2988,19 @@ IMG_8682(20220608-115528).PNG
 插播一条 说是2nd现地的</blockquote>
 混进了🐟
 
+
+
+*****
+
+####  adw667  
+##### 9228#       发表于 2022-6-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56171934&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-8 12:01</a>
+
+轮整活还是佩服这运营
+
+这是前半五人读信1小时，后半新人亮相15分钟，工商时间15分钟吧
+
+不过五人读心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">乐了
+
