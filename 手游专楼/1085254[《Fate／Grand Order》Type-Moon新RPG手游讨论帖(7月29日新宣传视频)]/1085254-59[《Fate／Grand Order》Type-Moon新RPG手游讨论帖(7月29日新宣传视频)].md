@@ -15541,3 +15541,12 @@ PU2很弱呢
 
 这次已经抽不动了，下次还是选一个吧，玩得好一手先抑后扬
 
+
+
+*****
+
+####  xiongxingyu  
+##### 88334#       发表于 2022-6-8 23:53
+
+这飞嫂根本就是被会长攻略之后的辉夜，2.65发糖之后智商呈断崖式下跌，甚至出现了幼儿化的症状<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

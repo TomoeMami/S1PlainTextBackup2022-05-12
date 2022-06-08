@@ -16172,3 +16172,27 @@ ONEPIECE は最終章へ突入します。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  绝赞販売中  
+##### 58395#       发表于 2022-6-8 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182708&amp;ptid=98922" target="_blank">angelooo 发表于 2022-6-8 23:32</a>
+最新情报我们的新将军又去调戏草帽团的小姐姐们了，那两个人的头七过了没
+
+不想杀角色的话干脆和以前一样 ...</blockquote>
+这就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">尾田就是什么他都要.上次干这种蠢事风评全无的还是猩猩.死了那么多人，日常都画不起来了.像龙珠一样干脆淡化死亡或者像鬼灭一样坦然面对死亡他都做不到，缝合在一起就是这种难以理解的剧情了.
+另外按照情报来看，可能刚好头七就在耍流氓了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">另外对于桃子来说他爹妈死了可能也才刚过百日
+
+*****
+
+####  klzxs  
+##### 58396#       发表于 2022-6-8 23:57
+
+乌索普在和之国是有点水
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">乔巴绝对是mvp之一啊
+
+救人，做药，还抗了一阵子奎恩
+
