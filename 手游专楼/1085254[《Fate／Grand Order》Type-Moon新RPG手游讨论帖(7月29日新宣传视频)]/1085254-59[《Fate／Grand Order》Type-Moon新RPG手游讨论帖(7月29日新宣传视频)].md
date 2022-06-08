@@ -15236,3 +15236,29 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 原来张角竟然是常驻吗<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88312#       发表于 2022-6-8 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177803&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 18:21</a>
+
+就，对小教授这卡面挺失望的，初始就不能不画眼影吗，搞个纯良（？）外貌的再配个干净点的校园背景，结果和 ...</blockquote>
+画师对眼影有着莫名的执着，看上去确实怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+模组倒是还不错，做了两套普攻和宝具，初始宝具动画还有种神探伽利略的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 88313#       发表于 2022-6-8 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177126&amp;ptid=1085254" target="_blank">longrider 发表于 2022-6-8 17:33</a>
+
+堂吉诃德这CV 
+
+飞田展男+新井里美，是卡缪+花园丽</blockquote>
+懂了，宝具骑枪创人是致敬z高达的西瓜冰突刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
