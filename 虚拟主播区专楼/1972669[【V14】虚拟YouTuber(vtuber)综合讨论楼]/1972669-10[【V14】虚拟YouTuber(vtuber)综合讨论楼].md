@@ -12740,3 +12740,12 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 
 就如同娱乐公司的偶像练习生而已<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 14734#       发表于 2022-6-8 16:09
+
+直播员是合同工我倒知道，确实不是正式编制没道理拿呢…
+
