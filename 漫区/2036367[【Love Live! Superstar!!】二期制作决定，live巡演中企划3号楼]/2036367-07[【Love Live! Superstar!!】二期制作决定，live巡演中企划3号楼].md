@@ -3271,3 +3271,184 @@ B站评论没见有攻击新人的，但是全都在说不要攻击新人了；�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 9261#       发表于 2022-6-8 19:53
+
+绘森反倒是感觉拉了，还是发型不行
+
+*****
+
+####  ads147147  
+##### 9262#       发表于 2022-6-8 19:53
+
+红毛这个本音，一股兔的味道。好，挺王候选
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cat1230  
+##### 9263#       发表于 2022-6-8 19:54
+
+新人颜值很顶啊，比照片好看
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 9264#       发表于 2022-6-8 19:54
+
+草，前偶像出来，群里有人喊贾玲
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9265#       发表于 2022-6-8 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颜值最高的突然变成土妹子了
+
+*****
+
+####  寒风夜  
+##### 9266#       发表于 2022-6-8 19:55
+
+ 本帖最后由 寒风夜 于 2022-6-8 19:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179050&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 19:51</a>
+
+紫吧团建</blockquote>
+我以前看发这些的都是看皮套人的，v紫合流了属于是，还有发名字的，这些人是不是以为很潮啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9267#       发表于 2022-6-8 19:55
+
+绘森彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我咋觉得她真人和照片差距有点大啊 大熊倒还好 
+
+*****
+
+####  稀勢のささ  
+##### 9268#       发表于 2022-6-8 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">反转了 我早就是铃原单推了
+
+*****
+
+####  寒风夜  
+##### 9269#       发表于 2022-6-8 19:56
+
+确实比照片彳亍
+
+*****
+
+####  ykyin09  
+##### 9270#       发表于 2022-6-8 19:56
+
+红毛这校服能不能扣一下扣子，虽然说是官设但是看着好难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+*****
+
+####  努斯万克  
+##### 9271#       发表于 2022-6-8 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179133&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-8 19:56</a>
+
+反转了 我早就是铃原单推了</blockquote>
+一开始我就是铃原单推了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9272#       发表于 2022-6-8 19:57
+
+果然前辈称呼是不存在的
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9273#       发表于 2022-6-8 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辈先
+
+*****
+
+####  努斯万克  
+##### 9274#       发表于 2022-6-8 19:59
+
+中国威胁佬
+
+*****
+
+####  竹筷  
+##### 9275#       发表于 2022-6-8 19:59
+
+绘森彩有点国字脸的感觉
+
+*****
+
+####  ads147147  
+##### 9276#       发表于 2022-6-8 19:59
+
+鲤鱼被先辈suki击沉了。
+
+生放就把仙贝禁止玩了，那花田的烂活怎么玩呢。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 9277#       发表于 2022-6-8 20:00
+
+铃原这五官长得真的挺端正的，除了牙有点乱真没什么太大短板了
+
+*****
+
+####  lj205  
+##### 9278#       发表于 2022-6-8 20:00
+
+好吧，鲤鱼这当前辈爽飞天了吧
+
+*****
+
+####  cxj649  
+##### 9279#       发表于 2022-6-8 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179116&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-6-8 19:55</a>
+
+我以前看发这些的都是看皮套人的，v紫合流了属于是，还有发名字的，这些人是不是以为很潮啊 ...</blockquote>
+真要合流反而不会了，现在这波还没V圈成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9280#       发表于 2022-6-8 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9281#       发表于 2022-6-8 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179111&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 19:55</a>
+
+颜值最高的突然变成土妹子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实照片上就能看出来吧 动起来还要更好倒是没想到
+
+*****
+
+####  凡人  
+##### 9282#       发表于 2022-6-8 20:02
+
+什么叫二期c位的含金量啊
+

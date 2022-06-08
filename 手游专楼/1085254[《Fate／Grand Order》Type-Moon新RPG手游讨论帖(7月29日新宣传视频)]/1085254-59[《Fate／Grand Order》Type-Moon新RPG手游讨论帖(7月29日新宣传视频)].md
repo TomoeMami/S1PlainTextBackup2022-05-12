@@ -15335,3 +15335,22 @@ don don don donki x 1
 
 我又要落井下石了，不考虑强度的话，白峰的大白鹅卡面摸成什么样了，川口的张角又是什么样，换了个片场继续被吊打哈哈
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88319#       发表于 2022-6-8 19:56
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 19:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56178674&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 19:28</a>
+
+我又要落井下石了，不考虑强度的话，白峰的大白鹅卡面摸成什么样了，川口的张角又是什么样，换了个片场继续 ...</blockquote>
+官漫mortalis:stella和turas réalta吗？我感觉白峰的画风更美型一些，毕竟乙女向画师，画过刀男。不过珀西瓦尔确实从一到四毫无惊喜，就是个高达在那里杵着。
+
+张角虽然画风古旧，但惊艳之处着实不少。
+
+记得白峰是因为身体不好，所以画得很慢。而且貌似跟看过FGOM的川口相比，并不太了解原作设定，没啥创新甚至有些OOC...
+
+当然最著名的还是给汉化组留的白屏作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
