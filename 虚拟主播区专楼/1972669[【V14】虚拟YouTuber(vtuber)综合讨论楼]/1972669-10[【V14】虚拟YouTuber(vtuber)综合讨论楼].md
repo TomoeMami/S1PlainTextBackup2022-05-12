@@ -12625,3 +12625,12 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 从iwaiwa的角度，enkr真的做大了，但主播地位没变，这才会出现公司员工膨胀但员工没股份吧？
 看来虹没半年了。话说因为笑一桑去虹做stf的那个人岂不是现在反而比笑一桑红利高？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 14723#       发表于 2022-6-8 12:01
+
+冒个泡，你们真的相信月之那批创业元老一点期权都没有，也太把他们当傻子了吧？
+
