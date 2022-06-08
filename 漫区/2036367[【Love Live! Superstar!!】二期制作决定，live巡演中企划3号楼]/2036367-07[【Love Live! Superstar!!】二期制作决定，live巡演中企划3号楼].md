@@ -3597,3 +3597,124 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yevvet  
+##### 9301#       发表于 2022-6-8 20:21
+
+绘森彩大饼脸啊。反倒是土妹和红毛真人好好看
+
+*****
+
+####  yevvet  
+##### 9302#       发表于 2022-6-8 20:21
+
+ 本帖最后由 yevvet 于 2022-6-8 20:27 编辑 
+
+绘森彩给我一种低配版纺木吏佐的感觉。
+
+*****
+
+####  一绪  
+##### 9303#       发表于 2022-6-8 20:23
+
+大熊比公式照好看多了，公式照拍的真是一言难尽
+
+*****
+
+####  a92063256  
+##### 9304#       发表于 2022-6-8 20:23
+
+绘森这是发型原因吗？显得有些胖
+
+*****
+
+####  cybernetics31  
+##### 9305#       发表于 2022-6-8 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">im和贤pro家的声音不错 彩真的，，，，，
+
+*****
+
+####  starring  
+##### 9306#       发表于 2022-6-8 20:28
+
+鲤鱼的态度太明显了好有趣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9307#       发表于 2022-6-8 20:29
+
+这就开始成分调查了，草
+
+*****
+
+####  努斯万克  
+##### 9308#       发表于 2022-6-8 20:29
+
+铃原越看越可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一绪  
+##### 9309#       发表于 2022-6-8 20:29
+
+我要被玲原击坠了我艹！
+
+*****
+
+####  iuhehc  
+##### 9310#       发表于 2022-6-8 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9311#       发表于 2022-6-8 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有人都真香了
+
+*****
+
+####  lj205  
+##### 9312#       发表于 2022-6-8 20:32
+
+前偶像还是没调动我
+
+红毛我觉得发型拖累，大熊感觉后面可以跟NAGI玩开
+
+土妹子是可以
+
+不过我觉得五老星整体看起来比新四军还年轻………………
+
+*****
+
+####  ads147147  
+##### 9313#       发表于 2022-6-8 20:32
+
+铃原是挺香的，但是问题一直都不是cv不是吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 9314#       发表于 2022-6-8 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭反应真的，，，，，
+
+*****
+
+####  iuhehc  
+##### 9315#       发表于 2022-6-8 20:32
+
+反正我是还不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

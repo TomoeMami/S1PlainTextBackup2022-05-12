@@ -15418,3 +15418,40 @@ PU2很弱呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及能与其相提并论的新宿阵容：老头，刺青半裸男，和无头男+狼
 
+
+
+*****
+
+####  angelooo  
+##### 88325#       发表于 2022-6-8 20:20
+
+<blockquote>Jamaisvu 发表于 2022-6-8 20:14
+白峰第一次负责FGO相关画作应该是白情印度双子那个神性特攻礼装，我当时很喜欢就直接换了。
+
+不过很遗憾他 ...</blockquote>
+这倒是你游画师正常操作了，卡面摸鱼贺图出力，给我印象最深刻的是石田的兔子王，这可是五星，卡面突出一个摸字，我看到贺图的兔女郎画那么好看再看那敷衍得不行的满破气得饭都要吃不下了233
+
+*****
+
+####  Jamaisvu  
+##### 88326#       发表于 2022-6-8 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179629&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-8 20:15</a>
+
+推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+
+以及能与其相提并论的新宿阵容： ...</blockquote>
+这章的最终BOSS是福尔摩斯的宿敌掺杂了其他存在；
+
+这章里有一个反派役通过让自己失忆隐藏在主角团中，真相揭露后打了一架就退场；
+
+这章有个讨人喜欢的女角色，队友有一个法国女和一个叫什么II世的生物；
+
+这章的卡池里有配卡三蓝的最终BOSS、带着坐骑的绿宝具幻灵和一个绿宝具中国从者；
+
+这章最后出现了一个失踪已久的前文伏笔；
+
+这章是东出佑一郎负责的；
+
+请问这是哪一章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
