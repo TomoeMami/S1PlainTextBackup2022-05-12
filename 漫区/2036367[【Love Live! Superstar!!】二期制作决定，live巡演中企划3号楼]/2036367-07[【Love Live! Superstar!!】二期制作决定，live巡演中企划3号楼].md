@@ -4807,3 +4807,56 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 要变铃原打铁おじ会爆炸的吧，变我估计不会变 大概是1+1吧 就刚刚生放海选vtr那段后对打铁的感想，那发言我就感觉挺沉重的说实话，就感觉那个角色就是往那个方向写的
 
+
+
+*****
+
+####  csolfans  
+##### 9431#       发表于 2022-6-8 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182801&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-8 23:40</a>
+
+要变铃原打铁おじ会爆炸的吧，变我估计不会变 大概是1+1吧 就刚刚生放海选vtr那段后对打铁的感想，那发言我 ...</blockquote>
+不懂日语，能请教一下那段具体说了啥吗
+
+*****
+
+####  仟音一心  
+##### 9432#       发表于 2022-6-8 23:51
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103zwlbmb59wiupq95z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A35A7F87-B091-4B03-A779-28727DC3E0F3.jpeg</strong> (223.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103e2212t1rrgl2626m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2204167B-227F-474B-BB18-BD3ED84218B1.jpeg</strong> (210.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103aao8l1keih4ayy8a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0F04E072-604E-4FB8-B1D2-CCC094E833CF.jpeg</strong> (665.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103uq00gxehfxqx0e3w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E94747EB-878F-488E-979E-8EA93B7C27BF.jpeg</strong> (316.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
