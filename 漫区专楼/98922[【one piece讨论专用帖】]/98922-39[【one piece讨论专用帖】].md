@@ -15936,3 +15936,23 @@ ONEPIECE は最終章へ突入します。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  小野寺熊介  
+##### 58371#       发表于 2022-6-8 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不出意外最后最终章肯定也是大场面，而且规模恐怕是顶上三倍，和之国两倍保底……
+
+大船团是肯定会出来的，然后是黑胡子，这俩基本上是板上钉钉的，除此之外可能还有伊姆一方的势力
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在这个点上，肯定还有红团和革命军的戏份，最终章人数真是多到一想就非常非常非常可怕的地步。
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">以我对尾田现在的信心，真的很难对他抱以信赖处理好这么多人这么多势力了……
+
+*****
+
+####  逸yi  
+##### 58372#       发表于 2022-6-8 21:25
+
+所以能开新楼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
