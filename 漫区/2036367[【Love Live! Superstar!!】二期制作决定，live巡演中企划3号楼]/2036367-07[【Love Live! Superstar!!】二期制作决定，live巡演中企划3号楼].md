@@ -4703,3 +4703,88 @@ ABC的fc甚至连魔法都不用，直接连上就能开，很方便
 
 不过我还奇怪为什么一巡这么把小百合往死里用，原来如此啊，一年用废一个，来年还有
 
+
+
+*****
+
+####  仟音一心  
+##### 9425#       发表于 2022-6-8 23:23
+
+北原
+
+<img src="https://img.saraba1st.com/forum/202206/08/232226n5w5j75jluawko91.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3C4885DB-FC48-4BF8-833E-B3CA6FD4111B.jpeg</strong> (150.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232236n4x6lcaxi3b784ao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>35E13E25-8FD7-4865-A12C-D55C7EDD4AF1.jpeg</strong> (62.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232242vy65lh3n6rfhdtft.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>19835D2E-8BB7-43B9-A241-FC55C5BC2AD8.jpeg</strong> (191.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232249py8wurw0wryouryg.png" referrerpolicy="no-referrer">
+
+<strong>41FDBEBF-0ECB-4ADA-A5BE-A869B3FD0DE2.png</strong> (97.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232249m6x7qziqeq2zn6fe.png" referrerpolicy="no-referrer">
+
+<strong>581E62BF-4837-41CA-ABEE-1385E988761C.png</strong> (102.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232259guvydopvszmrx4yy.png" referrerpolicy="no-referrer">
+
+<strong>22E25810-EA0E-4203-B5BD-D90C31BE8C47.png</strong> (118.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+*****
+
+####  lj205  
+##### 9426#       发表于 2022-6-8 23:25
+
+水煮鱼又玩了，果然还是大人的世界好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9427#       发表于 2022-6-8 23:25
+
+nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9428#       发表于 2022-6-8 23:31
+
+企划要是真的把目标变成铃原，小百合没准就可以解放出来了。那之前奶的出道可以安排一下了吗。
+突然想起来你们仨还一家事务所来着，三期生的立德不是阿波罗的我不看啊
+
