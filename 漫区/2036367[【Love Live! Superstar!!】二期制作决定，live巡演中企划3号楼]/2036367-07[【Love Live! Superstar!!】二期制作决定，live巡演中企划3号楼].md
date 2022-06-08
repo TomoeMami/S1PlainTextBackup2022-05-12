@@ -3452,3 +3452,95 @@ B站评论没见有攻击新人的，但是全都在说不要攻击新人了；�
 
 什么叫二期c位的含金量啊
 
+
+
+*****
+
+####  ads147147  
+##### 9283#       发表于 2022-6-8 20:07
+
+土妹子传，堂堂连载。
+
+说起来与其说漂亮，不如说青春感很重啊，一个个都像是刚出炉的jk。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 9284#       发表于 2022-6-8 20:07
+
+系列传统前辈禁止，敬语禁止<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9285#       发表于 2022-6-8 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看到画画想起来了，不知道新4人有没有新画伯定位
+
+*****
+
+####  Enakina  
+##### 9286#       发表于 2022-6-8 20:08
+
+这二期c的含金量的确很高了，我是完全在看她了
+
+*****
+
+####  li463900160  
+##### 9287#       发表于 2022-6-8 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了，一瞬间所有群从绘森推变成了铃原推
+
+*****
+
+####  ads147147  
+##### 9288#       发表于 2022-6-8 20:09
+
+说话又怯生生的，要是这是演的就更有趣了（不是）
+
+怎么又是命运w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 9289#       发表于 2022-6-8 20:09
+
+彩妹有那么多推嘛，我还以为都是弹幕反串的草
+
+*****
+
+####  cybernetics31  
+##### 9290#       发表于 2022-6-8 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法啊 彩妹这照片差距有点大啊
+
+*****
+
+####  Enakina  
+##### 9291#       发表于 2022-6-8 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179489&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-6-8 20:09</a>
+彩妹有那么多推嘛，我还以为都是弹幕反串的草</blockquote>
+草，不是反串？原来真的那么多推的吗
+
+*****
+
+####  努斯万克  
+##### 9292#       发表于 2022-6-8 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179522&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-8 20:10</a>
+
+草，不是反串？原来真的那么多推的吗</blockquote>
+必然反串
+
+*****
+
+####  ViyViy  
+##### 9293#       发表于 2022-6-8 20:12
+
+我反正不信的。今晚有一成都是多了
+

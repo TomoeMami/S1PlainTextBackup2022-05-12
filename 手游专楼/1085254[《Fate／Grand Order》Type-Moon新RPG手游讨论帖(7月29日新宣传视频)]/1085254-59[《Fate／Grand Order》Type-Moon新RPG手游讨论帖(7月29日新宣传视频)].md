@@ -15354,3 +15354,16 @@ don don don donki x 1
 
 当然最著名的还是给汉化组留的白屏作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88320#       发表于 2022-6-8 20:00
+
+<blockquote>Jamaisvu 发表于 2022-6-8 19:56
+官漫mortalis:stella和turas réalta吗？我感觉白峰的画风更美型一些，毕竟乙女向画师，画过刀男。
+
+不过 ...</blockquote>
+漫画一开始是这样的，大家都疯狂吐槽川口的崩坏画面，但随着川口这边剧情推进和白峰的缓慢更新，形势整个反了过来，不说漫画的话，大白鹅的卡面确实摸的可以，我当时觉得这最多就一个三星水平，然后发现是白峰画的我眼珠子都掉了，毕竟白峰的官漫唯一可称道的就是画风了
+
