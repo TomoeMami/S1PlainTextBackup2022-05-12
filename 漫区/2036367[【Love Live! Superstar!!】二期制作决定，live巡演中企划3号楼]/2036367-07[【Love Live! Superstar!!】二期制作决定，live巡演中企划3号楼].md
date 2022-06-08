@@ -2834,3 +2834,34 @@ IMG_8682(20220608-115528).PNG
 直接看那个屋子就得了，平常那个5人屋子就不可能坐下9人，如果今天晚上还是以前那个屋子，那估计下半估计就4人单独了。那可就太乐了，真不熟好吧（我居然有点期待这一幕发生）
 应该不会因为不舍的租大仓库所以直接分两波吧，那简直就离谱到家了
 
+
+
+*****
+
+####  ViyViy  
+##### 9211#       发表于 2022-6-8 12:23
+
+这一副我照顾你感受又一定要加的样子是真的不知道该什么表情
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9212#       发表于 2022-6-8 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有毒吧，居然还不是一起上场
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9213#       发表于 2022-6-8 12:27
+
+翻页
+
+*****
+
+####  cybernetics31  
+##### 9214#       发表于 2022-6-8 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会整可以不用整啊，这运营操作
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过晚上菜宝也不播，不知道看啥了
+
