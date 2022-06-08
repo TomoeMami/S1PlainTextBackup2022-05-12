@@ -2929,3 +2929,12 @@ IMG_8682(20220608-115528).PNG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不如复刻得彻底一点，二次元疯狂联动，三次元切割放送（我要看到血流成河.jpg）
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9223#       发表于 2022-6-8 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">读一小时信也是够狠只能说，日本人这么喜欢听读信吗
+
