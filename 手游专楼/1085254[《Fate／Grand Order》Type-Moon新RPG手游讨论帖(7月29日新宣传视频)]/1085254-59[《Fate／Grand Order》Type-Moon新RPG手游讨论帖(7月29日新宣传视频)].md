@@ -15127,3 +15127,14 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 盘子都加了一个
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88300#       发表于 2022-6-8 17:22
+
+唐吉诃德是故事限<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
