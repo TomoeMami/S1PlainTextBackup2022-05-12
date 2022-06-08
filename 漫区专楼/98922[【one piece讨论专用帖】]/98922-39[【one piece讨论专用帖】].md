@@ -15956,3 +15956,21 @@ ONEPIECE は最終章へ突入します。
 
 所以能开新楼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saturnus  
+##### 58373#       发表于 2022-6-8 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180783&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-8 21:12</a>
+这么一看德岛和和国的故事真的能压缩下水分</blockquote>
+你忘了又臭又长的鱼人岛了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满月诗篇  
+##### 58374#       发表于 2022-6-8 21:37
+
+终章起码也要5年20多卷吧
+

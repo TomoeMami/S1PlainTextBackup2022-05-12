@@ -4350,3 +4350,64 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yevvet  
+##### 9395#       发表于 2022-6-8 21:32
+
+绘森彩这大骨架真不像是樱花妹
+
+*****
+
+####  iuhehc  
+##### 9396#       发表于 2022-6-8 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181077&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 21:28</a>
+香不香就看每个人的重视点在哪里吧，我是因为受不了企划的pua，受不了运营在这之前经营的5人团的氛围，一期 ...</blockquote>
+同感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 9397#       发表于 2022-6-8 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181140&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-6-8 21:32</a>
+绘森彩这大骨架真不像是樱花妹</blockquote>
+真实了，实际效果比鲤鱼还壮我是没想到的
+篮球中锋的含金量吗
+
+*****
+
+####  cybernetics31  
+##### 9398#       发表于 2022-6-8 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩妹子这壮硕的脸庞…………
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说还是转老五人的个人推吧，我得去查查这ab 的fc咋搞，青山发色有点戳xp 
+
+*****
+
+####  qty  
+##### 9399#       发表于 2022-6-8 21:39
+
+新人颜值只能说比预想的要亮眼，但真要比的话还是比不过老五人，尤其是pay，鲤鱼青山可以说以后年龄上去了颜值会下降，pay跟这几个新人差不多都是刚毕业的jk，现在就能压她们一头，以后差距恐怕越来越大。
+
+*****
+
+####  we89623  
+##### 9400#       发表于 2022-6-8 21:41
+
+艹 没看生放，听说石锤还有三期生？ 真假？
+
+*****
+
+####  ads147147  
+##### 9401#       发表于 2022-6-8 21:42
+
+动画二期是土妹子传应该是坐实了，17号看星2的要有点心理准备。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
