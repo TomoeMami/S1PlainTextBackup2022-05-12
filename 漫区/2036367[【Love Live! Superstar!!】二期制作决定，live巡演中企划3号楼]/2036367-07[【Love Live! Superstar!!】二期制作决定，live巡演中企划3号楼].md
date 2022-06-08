@@ -2897,3 +2897,35 @@ IMG_8682(20220608-115528).PNG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来晚上是要看下生放的了，起码前面还是那5个
 
+
+
+*****
+
+####  ads147147  
+##### 9219#       发表于 2022-6-8 12:54
+
+太智障了，不过想想当年水团强行不让缪水互动，现在的切割处理居然还不是最草台的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 9220#       发表于 2022-6-8 12:56
+
+只是初次9人活动的意思吧，见是肯定见了
+
+*****
+
+####  lj205  
+##### 9221#       发表于 2022-6-8 12:58
+
+草我才看到官方骚操作
+
+*****
+
+####  甘蓝巧克力  
+##### 9222#       发表于 2022-6-8 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不如复刻得彻底一点，二次元疯狂联动，三次元切割放送（我要看到血流成河.jpg）
+

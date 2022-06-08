@@ -15708,3 +15708,73 @@ K这个角色多打打补丁人气应该很高的，白毛棕皮帅哥，尾田�
 
 哦对是两个月太久了我都记错了
 
+
+
+*****
+
+####  Freemasons  
+##### 58351#       发表于 2022-6-7 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56163731&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-7 18:41</a>
+索隆见到死神没死
+
+剩下两个无关的人死了
+
+哦对是两个月太久了我都记错了</blockquote>
+卧槽 让你这么一说，索隆打完烬看到的死神是啥？后来解释了吗？
+
+*****
+
+####  sdh45e6  
+##### 58352#       发表于 2022-6-7 23:54
+
+该花一个月思考D到底是什么了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suljo  
+##### 58353#       发表于 2022-6-8 01:54
+
+建议直接从香波地岛重画，雷利直接把所有历史和盘托出，出个两话全文字小说版，然后就完结得了
+
+—— 来自 realme RMX3461, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  icecry  
+##### 58354#       发表于 2022-6-8 06:32
+
+<blockquote>逸yi 发表于 2022-6-7 12:01
+可以出后传前传一大堆 隔壁龙球貌似准备复活沙鲁了 跳跳系民工漫的宿命 ...</blockquote>
+龙珠粉还能心理安慰，不是鸟山新手画的不算
+
+*****
+
+####  谢皮利男爵  
+##### 58355#       发表于 2022-6-8 10:13
+
+9侠应该全死 分阶段死
+
+第一波让圣母小菊段手而亡 以显凯多威严 猫狗力战杰克一死一伤 伤的被凯多扑刀 靠船王含金量也上来了
+
+第二波酒天丸被炸 以藏被指枪噶 雷藏福禄寿一换一 死前掉落水卷轴被GOD拾取扑灭大火
+
+第三波传次郎为保护日和被大蛇跟火前坊的合体技击杀 日和抽刀复仇 锦皇受棒击坚持挺到胜利看到小桃变大桃后含笑咽气
+
+河松没想好怎么死 从开战到最后太没存在感了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 58356#       发表于 2022-6-8 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">翻一下
+
+*****
+
+####  Freemasons  
+##### 58357#       发表于 2022-6-8 12:55
+
+盲猜绿牛是长着巨大牛牛的幻兽种花仙子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -15030,3 +15030,15 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 稀奇了，2池没有开，我还想要马娘呢
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88289#       发表于 2022-6-8 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56172780&amp;ptid=1085254" target="_blank">大巨傻 发表于 2022-6-8 12:47</a>
+
+稀奇了，2池没有开，我还想要马娘呢</blockquote>
+你在说什么怪话？要开也是今天5点的事
+
