@@ -12767,3 +12767,12 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 
 这类不大可能直接给股份，一般都是期权或者股权代持
 
+
+
+*****
+
+####  poipanchao  
+##### 14737#       发表于 2022-6-8 20:49
+
+啊菜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -3977,3 +3977,87 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 感觉还是海选出原石。感觉就是不一样
 
+
+
+*****
+
+####  cybernetics31  
+##### 9350#       发表于 2022-6-8 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这vtr被打铁和青山刷掉很正常 但是运营这操作，，，，，，
+
+还是觉得新四人颜值还是不如老五人  nagi优势太大了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9351#       发表于 2022-6-8 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 9352#       发表于 2022-6-8 20:44
+
+什么星第一年营收差临时加人说不攻自破了
+
+*****
+
+####  yevvet  
+##### 9353#       发表于 2022-6-8 20:45
+
+那肯定还得有三期吧
+
+*****
+
+####  凡人  
+##### 9354#       发表于 2022-6-8 20:46
+
+笑死，我猜三期还有一个海选的要藏两年
+
+*****
+
+####  cxj649  
+##### 9355#       发表于 2022-6-8 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180264&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-8 20:42</a>
+
+合着企划还吸取教训了是吧，不再晾两三年，就晾一年</blockquote>
+就怕雨野第二，这波可没动画复活战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 9356#       发表于 2022-6-8 20:48
+
+其实比较在意的是non酱这个昵称<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道那边已经有一个non酱了，拉拉和武士道关系也挺深的，又弄一个non酱出来很容易混淆啊。
+
+*****
+
+####  寒风夜  
+##### 9357#       发表于 2022-6-8 20:48
+
+只能说迷了
+
+*****
+
+####  cybernetics31  
+##### 9358#       发表于 2022-6-8 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁菜宝她们等的更久 没啥拉 这破运营就是zz
+
+*****
+
+####  lj205  
+##### 9359#       发表于 2022-6-8 20:49
+
+那这样是不是还真的有毕业设定？
+
+*****
+
+####  稀勢のささ  
+##### 9360#       发表于 2022-6-8 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星团一直续是吧
+
