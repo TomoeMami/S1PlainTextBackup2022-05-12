@@ -2881,3 +2881,19 @@ IMG_8682(20220608-115528).PNG
 
 破案了，Nagi转推说初次9人集合
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9217#       发表于 2022-6-8 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那集体照那时候难不成是合成的？
+
+*****
+
+####  cybernetics31  
+##### 9218#       发表于 2022-6-8 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来晚上是要看下生放的了，起码前面还是那5个
+
