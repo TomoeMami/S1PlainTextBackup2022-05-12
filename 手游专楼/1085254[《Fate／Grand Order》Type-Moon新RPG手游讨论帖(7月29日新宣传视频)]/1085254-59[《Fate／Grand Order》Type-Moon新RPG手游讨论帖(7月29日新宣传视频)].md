@@ -15262,3 +15262,26 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 飞田展男+新井里美，是卡缪+花园丽</blockquote>
 懂了，宝具骑枪创人是致敬z高达的西瓜冰突刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88314#       发表于 2022-6-8 18:45
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 18:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/08/184407qk6j2r8nzq6injki.jpg" referrerpolicy="no-referrer">
+
+<strong>1654685034471.jpg</strong> (269.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 18:44 上传
+
+雷太的尺教授贺图。
+
+我也是只喜欢初始立绘，能看出是莫里亚蒂，后面两个小丑毫无美感...满破不错，但一想到剧情里那个下劣跳梁就觉得中二...
+
+这件拼图大衣挺有趣的，如果能出周边就好了...
+
