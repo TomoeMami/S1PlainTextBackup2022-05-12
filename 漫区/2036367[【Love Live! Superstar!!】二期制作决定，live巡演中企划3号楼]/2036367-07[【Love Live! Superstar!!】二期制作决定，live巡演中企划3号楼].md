@@ -2792,3 +2792,24 @@ Nako:如果一巡BD的making全拍的是我们干饭怎么办<img src="https://s
 以前的投票是怎么的规则？看板娘那种还好，如果是要买票的估计难抬吧 ...</blockquote>
 以往拉拉数字单曲选举都是网上免费投的
 
+
+
+*****
+
+####  starring  
+##### 9208#       发表于 2022-6-8 12:01
+
+轮整活还是佩服这运营<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这是前半五人读信1小时，后半新人亮相15分钟，工商时间15分钟吧
+不过五人读心90分钟我也愿意看
+
+IMG_8682(20220608-115528).PNG
+(548.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 12:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/120143n6zc22ug3dafzdmw.png" referrerpolicy="no-referrer">
+

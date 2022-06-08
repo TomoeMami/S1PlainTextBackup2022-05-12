@@ -12614,3 +12614,14 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 
 直播员也配有期权？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 14722#       发表于 2022-6-8 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">iwaiwa怎么天天阴阳怪气的。
+从iwaiwa的角度，enkr真的做大了，但主播地位没变，这才会出现公司员工膨胀但员工没股份吧？
+看来虹没半年了。话说因为笑一桑去虹做stf的那个人岂不是现在反而比笑一桑红利高？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
