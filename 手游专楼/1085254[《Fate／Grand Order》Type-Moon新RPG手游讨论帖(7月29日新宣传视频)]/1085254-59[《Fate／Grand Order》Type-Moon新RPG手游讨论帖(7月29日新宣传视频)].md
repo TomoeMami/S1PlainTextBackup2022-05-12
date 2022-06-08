@@ -15285,3 +15285,31 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 
 这件拼图大衣挺有趣的，如果能出周边就好了...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88315#       发表于 2022-6-8 18:57
+
+看到有人给ruler莫里亚蒂起了个外号：茉莉，莫里亚蒂•liliy<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我自己是管他叫幼教的，不过茉莉不错，挺好听，有种年轻小受的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 88316#       发表于 2022-6-8 18:58
+
+ 本帖最后由 eilot 于 2022-6-8 18:59 编辑 
+
+90石
+
+張角 x 2
+
+don don don donki x 1
+
+海盜船長 x 1
+
+沒石了
+

@@ -3035,3 +3035,28 @@ IMG_8682(20220608-115528).PNG
 
 草，这个座位排法真就<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9232#       发表于 2022-6-8 18:52
+
+风怒
+
+*****
+
+####  starring  
+##### 9233#       发表于 2022-6-8 18:58
+
+5+4的排位比穿插着坐好了，起码不会左右尴尬
+
+*****
+
+####  iuhehc  
+##### 9234#       发表于 2022-6-8 19:01
+
+鲤鱼这个内八太吸引我的视线了草
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
