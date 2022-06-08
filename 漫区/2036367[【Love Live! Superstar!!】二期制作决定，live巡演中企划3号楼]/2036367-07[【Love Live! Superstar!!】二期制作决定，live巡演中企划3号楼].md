@@ -4439,3 +4439,17 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 9月份live上表演再看看唱歌跳舞的能力如何，全员平均值或者以上就皆大欢喜。虽然依然不会加推，不过起码不用担心五老星会受大影响
 
+
+
+*****
+
+####  a92063256  
+##### 9405#       发表于 2022-6-8 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181194&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-8 21:35</a>
+
+彩妹子这壮硕的脸庞…………
+
+所以说还是转老五人的个人推吧，我得去查查这ab 的fc咋搞，青山 ...</blockquote>
+ABC的fc甚至连魔法都不用，直接连上就能开，很方便
+

@@ -16007,3 +16007,19 @@ ONEPIECE は最終章へ突入します。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  angelooo  
+##### 58378#       发表于 2022-6-8 22:03
+
+进终章又不是几个月之内就完结，这种超巨大的长篇不搞个几年完结不了的，顺便我第一次看到“最终之海·新世界篇”的宣传是在差不多2年后开场那里，现在距离那时候都多少年了才刚进终章呢23333
+
+*****
+
+####  owada  
+##### 58379#       发表于 2022-6-8 22:07
+
+最终章,然后分个二十篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

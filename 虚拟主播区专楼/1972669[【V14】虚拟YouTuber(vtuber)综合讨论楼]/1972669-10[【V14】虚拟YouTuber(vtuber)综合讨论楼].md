@@ -12794,3 +12794,19 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 
 上次关注 V 还是因为沙皇，这次又来了个莎皇，彩虹的时代到来了吗
 
+
+
+*****
+
+####  Ketestrait  
+##### 14740#       发表于 2022-6-8 22:06
+
+slm：本来今天想整点活的，结果被运营阻止了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 14741#       发表于 2022-6-8 22:08
+
+什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，直播お気持ち？
+
