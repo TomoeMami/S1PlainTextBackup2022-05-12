@@ -4556,3 +4556,28 @@ ABC的fc甚至连魔法都不用，直接连上就能开，很方便
 四保一，三保一，二保一，其他人推真是倒了八辈子霉遇上这么个企划</blockquote>
 要命的是保了半天才发现上面是把那个一当消耗品，保到最后结果还是被用废了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9416#       发表于 2022-6-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182339&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-8 22:58</a>
+
+与其去检讨小百合，还不如检讨一下策划一巡那个歌单安排</blockquote>
+一巡的歌单直接受一期动画的影响，一期动画是什么情况，那Live相对应的就是什么样
+
+*****
+
+####  ads147147  
+##### 9417#       发表于 2022-6-8 23:05
+
+保1？消耗品1还差不多。
+
+用废一个再抓来一个。如果星2后面马上说3期，然后继续来个20场巡演后再加3人，这个企划也该说拜拜了。
+
+只能说，感谢这个企划让我认识了田中仁和河村监督了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
