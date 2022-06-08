@@ -4788,3 +4788,22 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 企划要是真的把目标变成铃原，小百合没准就可以解放出来了。那之前奶的出道可以安排一下了吗。
 突然想起来你们仨还一家事务所来着，三期生的立德不是阿波罗的我不看啊
 
+
+
+*****
+
+####  csolfans  
+##### 9429#       发表于 2022-6-8 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182584&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-8 23:21</a>
+
+原本卡农在宣传中只是一个喜欢唱歌的普通女孩子，不知为何突然就变成了唱歌天赋最为拔尖的超人，那帖其实主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">往好点想起码sayu解放了，不过大阪这两天感觉sayu唱法也在逐渐改变了，没感觉错的话
+
+*****
+
+####  iuhehc  
+##### 9430#       发表于 2022-6-8 23:40
+
+要变铃原打铁おじ会爆炸的吧，变我估计不会变 大概是1+1吧 就刚刚生放海选vtr那段后对打铁的感想，那发言我就感觉挺沉重的说实话，就感觉那个角色就是往那个方向写的
+
