@@ -15367,3 +15367,54 @@ don don don donki x 1
 不过 ...</blockquote>
 漫画一开始是这样的，大家都疯狂吐槽川口的崩坏画面，但随着川口这边剧情推进和白峰的缓慢更新，形势整个反了过来，不说漫画的话，大白鹅的卡面确实摸的可以，我当时觉得这最多就一个三星水平，然后发现是白峰画的我眼珠子都掉了，毕竟白峰的官漫唯一可称道的就是画风了
 
+
+
+*****
+
+####  qixinno2  
+##### 88321#       发表于 2022-6-8 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三发十连就一个堂吉诃德 连一个张角都没抽到 没石头了
+
+*****
+
+####  gpx234mqx  
+##### 88322#       发表于 2022-6-8 20:05
+
+意思意思抽了2把，4星1<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+还有230石，等泳装了
+
+PU2很弱呢
+
+*****
+
+####  Jamaisvu  
+##### 88323#       发表于 2022-6-8 20:14
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179217&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 20:00</a>
+
+漫画一开始是这样的，大家都疯狂吐槽川口的崩坏画面，但随着川口这边剧情推进和白峰的缓慢更新，形势整个 ...</blockquote>
+白峰第一次负责FGO相关画作应该是白情印度双子那个神性特攻礼装，我当时很喜欢就直接换了。
+
+不过很遗憾他竟然以大白鹅这种立绘正式踏入月世界<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+其实珀西瓦尔实装贺图画得还是蛮好的，如果能替换下现在这个满破就更赞了：
+
+<img src="https://img.saraba1st.com/forum/202206/08/201554b7z8d5wde6dbwlt8.jpg" referrerpolicy="no-referrer">
+
+<strong>388b7b1d834941b3fedb76704b2b03e5151a3ed7_raw.jpg</strong> (440.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 20:15 上传
+
+*****
+
+####  黑上シグマ  
+##### 88324#       发表于 2022-6-8 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及能与其相提并论的新宿阵容：老头，刺青半裸男，和无头男+狼
+
