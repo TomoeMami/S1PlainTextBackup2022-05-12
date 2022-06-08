@@ -3179,3 +3179,95 @@ B站评论没见有攻击新人的，但是全都在说不要攻击新人了；�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 9250#       发表于 2022-6-8 19:46
+
+今天聊的还挺开心，就是一讲二期某个人就开始放空
+
+好吧，马上就要来了
+
+*****
+
+####  寒风夜  
+##### 9251#       发表于 2022-6-8 19:48
+
+点进了秋叶原2，好家伙 精彩啊
+
+*****
+
+####  iuhehc  
+##### 9252#       发表于 2022-6-8 19:48
+
+马上要来了吧….
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  努斯万克  
+##### 9253#       发表于 2022-6-8 19:49
+
+为啥那么多刷绘森彩的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9254#       发表于 2022-6-8 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为另外三个俩不认识一个查无此人
+
+*****
+
+####  qty  
+##### 9255#       发表于 2022-6-8 19:50
+
+我去，铃原这颜值
+
+*****
+
+####  Enakina  
+##### 9256#       发表于 2022-6-8 19:51
+
+最顶的居然是铃原，好漂亮
+
+*****
+
+####  ads147147  
+##### 9257#       发表于 2022-6-8 19:51
+
+弹幕一下子梦回当年，都回来了（呕）
+
+土妹子扮相真的不错。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9258#       发表于 2022-6-8 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179006&amp;ptid=2036367" target="_blank">努斯万克 发表于 2022-6-8 19:49</a>
+
+为啥那么多刷绘森彩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫吧团建
+
+*****
+
+####  lj205  
+##### 9259#       发表于 2022-6-8 19:51
+
+土妹子还可以
+
+*****
+
+####  iuhehc  
+##### 9260#       发表于 2022-6-8 19:52
+
+哎…不知道说什么好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
