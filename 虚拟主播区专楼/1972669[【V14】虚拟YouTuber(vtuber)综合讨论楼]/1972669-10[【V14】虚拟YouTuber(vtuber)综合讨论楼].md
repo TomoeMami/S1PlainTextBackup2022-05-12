@@ -12481,3 +12481,38 @@ salome首次社内联动可不可以选口了
 vshojo招日本成员在秋叶原包了块大广告牌还行。
 秋叶原现在别的不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 14712#       发表于 2022-6-8 09:02
+
+ 本帖最后由 NBXX 于 2022-6-8 09:06 编辑 
+
+更新了两个资料
+
+ANYCOLOR
+
+2022年6月8日 8時00分
+
+東京証券取引所グロース市場への上場に伴う当社決算情報等のお知らせ
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/pdf.gif" referrerpolicy="no-referrer">
+
+140120220607572854.pdf
+(448.81 KB, 下载次数: 0)
+
+2022-6-8 09:00 上传
+
+点击文件名下载附件
+
+[https://irbank.net/5032/140120220607572854](https://irbank.net/5032/140120220607572854)
+<img src="https://p.sda1.dev/6/6a2a546d74ad1c11b1ca4d948edd0986/image.png" referrerpolicy="no-referrer">
+
+エニーカラー：事業計画及び成長可能性に関する事項 2022年6月
+[https://www.nikkei.com/nkd/disclosure/tdnr/dju06m/](https://www.nikkei.com/nkd/disclosure/tdnr/dju06m/)
+<img src="https://p.sda1.dev/6/487e3e86820d260ff5bc9c0ee33bdca6/image.png" referrerpolicy="no-referrer">
+
+这个PPT跟之前上市材料的内容差不多
+
