@@ -15502,3 +15502,42 @@ PU2很弱呢
 三发十连就一个堂吉诃德 连一个张角都没抽到 没石头了</blockquote>
 欧羡慕 张角有个猫用 以后友情就能出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88331#       发表于 2022-6-8 23:10
+
+飞嫂加大量语音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+飞哥真爱，破坏力惊人<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+不输给隔壁那对夫妻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88332#       发表于 2022-6-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-8 22:56</a>
+
+欧羡慕 张角有个猫用 以后友情就能出</blockquote>
+友情池抽抽就有了不用急
+
+先准备好大量灰<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 88333#       发表于 2022-6-8 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182461&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-8 23:10</a>
+
+飞嫂加大量语音
+
+飞哥真爱，破坏力惊人</blockquote>
+这操作给我看傻了，合着之前所谓冷暴力全特么骗人的，御主一撮合直接缴械了
+
+这次已经抽不动了，下次还是选一个吧，玩得好一手先抑后扬
+
