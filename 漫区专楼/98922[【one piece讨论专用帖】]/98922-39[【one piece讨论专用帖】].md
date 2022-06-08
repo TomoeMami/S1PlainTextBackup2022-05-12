@@ -16023,3 +16023,12 @@ ONEPIECE は最終章へ突入します。
 
 最终章,然后分个二十篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 58380#       发表于 2022-6-8 22:17
+
+提醒下，和之国篇画了三年半。
+

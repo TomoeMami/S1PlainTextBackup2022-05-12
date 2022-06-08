@@ -12810,3 +12810,23 @@ slm：本来今天想整点活的，结果被运营阻止了<img src="https://st
 
 什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，直播お気持ち？
 
+
+
+*****
+
+####  Ketestrait  
+##### 14742#       发表于 2022-6-8 22:12
+
+ 本帖最后由 Ketestrait 于 2022-6-8 22:14 编辑 
+
+然后唐突开始烤香肠長く太く続けるために<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，说好的不整活呢
+
+*****
+
+####  alcoholic1000  
+##### 14743#       发表于 2022-6-8 22:19
+
+虚拟主播考完虚拟肉当然可以直接吃了
+
+（就算口腔溃疡）
+
