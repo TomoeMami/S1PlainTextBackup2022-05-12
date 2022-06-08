@@ -4883,3 +4883,14 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  csolfans  
+##### 9435#       发表于 2022-6-9 00:37
+
+<blockquote>iuhehc 发表于 2022-6-9 00:06
+经一起海选的朋友介绍看到觉得小百合很耀眼，心想那个孩子一定会通过的，我该怎么办，海选结果决定是打铁 ...</blockquote>
+有了【【中字】Liella二期生4人入坑LL的契机-哔哩哔哩】 https://b23.tv/DDsaBnj
+
