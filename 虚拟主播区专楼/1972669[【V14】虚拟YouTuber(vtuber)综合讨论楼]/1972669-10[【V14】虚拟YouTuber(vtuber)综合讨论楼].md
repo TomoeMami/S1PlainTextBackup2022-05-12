@@ -12874,3 +12874,26 @@ slm：本来今天想整点活的，结果被运营阻止了<img src="https://st
 
 感觉莎天酱吃东西会加杂谈力，嘴变快好多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 14749#       发表于 2022-6-8 22:55
+
+原以为今天是纪念收米回，没想到全程都在养gachi
+
+*****
+
+####  Ketestrait  
+##### 14750#       发表于 2022-6-8 22:57
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h3189krtmkj20xn0iw0uu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 14751#       发表于 2022-6-8 22:59
+
+先发一首Queen吧
+

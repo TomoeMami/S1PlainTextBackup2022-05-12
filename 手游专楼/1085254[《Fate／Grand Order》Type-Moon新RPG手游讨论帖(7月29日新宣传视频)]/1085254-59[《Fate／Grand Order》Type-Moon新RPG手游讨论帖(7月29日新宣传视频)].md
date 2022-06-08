@@ -15481,3 +15481,24 @@ PU2很弱呢
 以及能与其相提并论的新宿阵容： ...</blockquote>
 给个标签
 
+
+
+*****
+
+####  yzj134100  
+##### 88329#       发表于 2022-6-8 22:51
+
+两个10连来了教授和赛马娘，这期就这样吧
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 88330#       发表于 2022-6-8 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179278&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-8 20:01</a>
+
+三发十连就一个堂吉诃德 连一个张角都没抽到 没石头了</blockquote>
+欧羡慕 张角有个猫用 以后友情就能出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
