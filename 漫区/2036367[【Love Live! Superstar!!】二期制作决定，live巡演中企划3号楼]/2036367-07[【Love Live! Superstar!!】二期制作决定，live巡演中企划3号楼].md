@@ -4411,3 +4411,12 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  saverok  
+##### 9402#       发表于 2022-6-8 21:47
+
+前偶像这一拳打死牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

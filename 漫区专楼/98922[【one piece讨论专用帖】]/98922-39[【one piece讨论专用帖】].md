@@ -15974,3 +15974,23 @@ ONEPIECE は最終章へ突入します。
 
 终章起码也要5年20多卷吧
 
+
+
+*****
+
+####  Algie  
+##### 58375#       发表于 2022-6-8 21:42
+
+这最终章进入得太草率了，简直有种摆烂的感觉，亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Algie  
+##### 58376#       发表于 2022-6-8 21:44
+
+这最终章进入得太草率了，简直有种摆烂的感觉，亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
