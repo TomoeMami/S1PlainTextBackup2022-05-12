@@ -12527,3 +12527,26 @@ https://youtu.be/cBGy7mU3zkg
 
 ankr还做了视频介绍
 
+
+
+*****
+
+####  毛头小希  
+##### 14714#       发表于 2022-6-8 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56169548&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-6-8 09:02</a>
+
+更新了两个资料
+
+ANYCOLOR
+
+2022年6月8日 8時00分</blockquote>
+这曲线还蛮有意思的，5期出道以后曲线波动就变得激烈起来了，比年一管爆款4期还激烈
+
+*****
+
+####  小鸟游泉  
+##### 14715#       发表于 2022-6-8 09:37
+
+莎皇今晚做的应该是110万感言了吧…
+
