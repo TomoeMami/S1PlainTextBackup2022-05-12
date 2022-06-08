@@ -12663,3 +12663,35 @@ Anycolor従業員はほぼ全員かな？株持ってたけど、ライバーが
 冒个泡，你们真的相信月之那批创业元老一点期权都没有，也太把他们当傻子了吧？ ...</blockquote>
 招股书里没有阿花的名字啊，不就是没有
 
+
+
+*****
+
+####  winda  
+##### 14727#       发表于 2022-6-8 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56171916&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-6-8 12:01</a>
+冒个泡，你们真的相信月之那批创业元老一点期权都没有，也太把他们当傻子了吧？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报告书上新株主有反社事业部长安圣光都没阿花，怎么会有呢
+
+*****
+
+####  古战场亡魂  
+##### 14728#       发表于 2022-6-8 13:39
+
+<img src="https://img.saraba1st.com/forum/202206/08/133919mdz26zdgzz2qdn3j.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220608133854227.jpg</strong> (39.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 13:39 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/133939x2i2pztri9cplhgr.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220608133926182.jpg</strong> (11.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 13:39 上传
+
