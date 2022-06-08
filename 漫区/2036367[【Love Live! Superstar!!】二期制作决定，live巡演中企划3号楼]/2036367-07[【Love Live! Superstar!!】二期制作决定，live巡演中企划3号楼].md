@@ -3108,3 +3108,74 @@ IMG_8682(20220608-115528).PNG
 
 B站评论没见有攻击新人的，但是全都在说不要攻击新人了；弹幕，评论一堆攻击鱼的某吧人在团建，但是没人阻止<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 9241#       发表于 2022-6-8 19:22
+
+鲤鱼染这发色说实话有点不好看，显脸大
+
+*****
+
+####  starring  
+##### 9242#       发表于 2022-6-8 19:22
+
+果然例行背刺就是好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9243#       发表于 2022-6-8 19:23
+
+爱咋咋，能闹到天上去也算是本事，wakuwaku
+
+*****
+
+####  稀勢のささ  
+##### 9244#       发表于 2022-6-8 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丈育偶像太多了
+
+*****
+
+####  lj205  
+##### 9245#       发表于 2022-6-8 19:26
+
+弹幕关了吧
+
+*****
+
+####  iuhehc  
+##### 9246#       发表于 2022-6-8 19:29
+
+ 本帖最后由 iuhehc 于 2022-6-8 19:31 编辑 
+
+在油管看也挺好的
+前半看的挺开心的想到后半不知道怎么样有点糟心
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 9247#       发表于 2022-6-8 19:31
+
+预告开始就群魔乱舞了
+
+*****
+
+####  寒风夜  
+##### 9248#       发表于 2022-6-8 19:32
+
+蓝原那看的，就没弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9249#       发表于 2022-6-8 19:32
+
+佩宝这个海豚笑太草了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

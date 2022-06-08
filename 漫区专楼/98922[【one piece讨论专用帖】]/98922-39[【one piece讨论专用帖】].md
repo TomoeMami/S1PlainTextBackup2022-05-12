@@ -15880,3 +15880,12 @@ ONEPIECE は最終章へ突入します。
 
 真的最终章了呀，这下不烂尾都不行了，让我想到搞笑漫画日和里的剑圣大和<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 58365#       发表于 2022-6-8 19:24
+
+希望这次至少剧情角色加减法协调一点吧。
+
