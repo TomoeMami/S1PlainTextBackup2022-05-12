@@ -4506,3 +4506,31 @@ ABC的fc甚至连魔法都不用，直接连上就能开，很方便
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9411#       发表于 2022-6-8 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182141&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-8 22:40</a>
+
+铃原有种小百合2.0的感觉，运营感觉也要推她，不知道能不能起来</blockquote>
+到时候明年是不是还有会有小百合3.0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说句实话如果运营打算一年专门只推一个（等效）Leader，那这运营就真有他的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 9412#       发表于 2022-6-8 22:46
+
+四保一，三保一，二保一，其他人推真是倒了八辈子霉遇上这么个企划<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9413#       发表于 2022-6-8 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">至少现在还没传出洗脚婢这种说法
+

@@ -12865,3 +12865,12 @@ slm：本来今天想整点活的，结果被运营阻止了<img src="https://st
 阿胜这个奥赛罗好有趣...应该是真的有奥赛罗然后奥赛罗自己有动捕...
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">enkr逐渐和偶像公司特有黑企业接近了？
 
+
+
+*****
+
+####  rzrbtk  
+##### 14748#       发表于 2022-6-8 22:42
+
+感觉莎天酱吃东西会加杂谈力，嘴变快好多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
