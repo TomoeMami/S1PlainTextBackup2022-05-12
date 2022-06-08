@@ -4420,3 +4420,22 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 前偶像这一拳打死牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 9403#       发表于 2022-6-8 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181281&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-8 21:41</a>
+
+艹 没看生放，听说石锤还有三期生？ 真假？</blockquote>
+没实锤，但就目前来看概率也不小吧 
+
+*****
+
+####  starring  
+##### 9404#       发表于 2022-6-8 21:58
+
+9月份live上表演再看看唱歌跳舞的能力如何，全员平均值或者以上就皆大欢喜。虽然依然不会加推，不过起码不用担心五老星会受大影响
+
