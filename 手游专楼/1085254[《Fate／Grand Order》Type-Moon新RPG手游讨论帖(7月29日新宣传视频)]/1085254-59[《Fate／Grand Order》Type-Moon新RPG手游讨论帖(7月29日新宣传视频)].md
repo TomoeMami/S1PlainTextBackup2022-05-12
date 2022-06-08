@@ -15455,3 +15455,29 @@ PU2很弱呢
 
 请问这是哪一章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88327#       发表于 2022-6-8 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179743&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 20:20</a>
+
+这倒是你游画师正常操作了，卡面摸鱼贺图出力，给我印象最深刻的是石田的兔子王，这可是五星，卡面突出一 ...</blockquote>
+有些画师到了FGO真的是日复一日、肉眼可见的摸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以我仔细端详了罗兰的立绘后不由得感叹，幸好是压稿<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 88328#       发表于 2022-6-8 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179629&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-8 20:15</a>
+
+推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+
+以及能与其相提并论的新宿阵容： ...</blockquote>
+给个标签
+

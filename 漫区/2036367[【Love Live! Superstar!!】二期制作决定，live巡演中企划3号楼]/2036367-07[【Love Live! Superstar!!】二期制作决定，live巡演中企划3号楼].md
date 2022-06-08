@@ -3718,3 +3718,262 @@ nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  猫灰灰  
+##### 9316#       发表于 2022-6-8 20:34
+
+这哪能香得起来呢，好没意思
+
+*****
+
+####  ces轴承仨  
+##### 9317#       发表于 2022-6-8 20:34
+
+我还是感觉不咋香。有这么容易就沦陷了吗。。
+
+*****
+
+####  yevvet  
+##### 9318#       发表于 2022-6-8 20:34
+
+也不是特别香。四个新人还是没有比nagi好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 9319#       发表于 2022-6-8 20:35
+
+问题还是官方，你tm直接一开始9个上不行吗
+
+*****
+
+####  Enakina  
+##### 9320#       发表于 2022-6-8 20:35
+
+果然，她一起参加的公招
+公招见过打铁？
+
+*****
+
+####  qty  
+##### 9321#       发表于 2022-6-8 20:35
+
+铃原是海选的啊
+
+*****
+
+####  starring  
+##### 9322#       发表于 2022-6-8 20:35
+
+这就真相了，还真是海选候补
+
+*****
+
+####  cybernetics31  
+##### 9323#       发表于 2022-6-8 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi这发色 真的不错 真香那还是五人香啊  啊 铃原妹子说公募的事了
+
+*****
+
+####  li463900160  
+##### 9324#       发表于 2022-6-8 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi颜值没的说，但是嗓子太粗了，比较劣势
+
+*****
+
+####  lj205  
+##### 9325#       发表于 2022-6-8 20:36
+
+居然就直接说了
+
+*****
+
+####  Enakina  
+##### 9326#       发表于 2022-6-8 20:36
+
+乐了，真就被雪藏了
+
+*****
+
+####  ads147147  
+##### 9327#       发表于 2022-6-8 20:37
+
+海选候补，真的是乐子了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 9328#       发表于 2022-6-8 20:37
+
+乐..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a92063256  
+##### 9329#       发表于 2022-6-8 20:38
+
+这...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9330#       发表于 2022-6-8 20:38
+
+好青涩<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 9331#       发表于 2022-6-8 20:38
+
+还敢放vtr，运营你觉得很感动？？？
+
+*****
+
+####  一绪  
+##### 9332#       发表于 2022-6-8 20:38
+
+官方蓄谋已久啊。。。
+
+*****
+
+####  cybernetics31  
+##### 9333#       发表于 2022-6-8 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 什么破运营
+
+*****
+
+####  Enakina  
+##### 9334#       发表于 2022-6-8 20:38
+
+太青涩了，这不可能打赢青山的
+
+*****
+
+####  名津流  
+##### 9335#       发表于 2022-6-8 20:39
+
+说是雪藏了一年
+
+换个角度来说，人家愿意等你企划一年没去干别的，也算真爱了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9336#       发表于 2022-6-8 20:39
+
+感觉这角色发型反而是加成了，vtr里看起来有点大饼脸
+
+*****
+
+####  lj205  
+##### 9337#       发表于 2022-6-8 20:39
+
+那二期就是土妹子专咯
+
+那张图果然就是队长传队长
+
+*****
+
+####  竹筷  
+##### 9338#       发表于 2022-6-8 20:39
+
+感觉就是说企划一开始就是打算加人的
+
+*****
+
+####  a92063256  
+##### 9339#       发表于 2022-6-8 20:39
+
+就真给人家放了一年？真不能理解运营怎么想的了
+
+*****
+
+####  Enakina  
+##### 9340#       发表于 2022-6-8 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180157&amp;ptid=2036367" target="_blank">名津流 发表于 2022-6-8 20:39</a>
+说是雪藏了一年
+
+换个角度来说，人家愿意等你企划一年没去干别的，也算真爱了 ...</blockquote>
+就个新人，能找到什么活，又不是家里有矿。不如说一年还愿意要你，才不赖了吧
+
+*****
+
+####  稀勢のささ  
+##### 9341#       发表于 2022-6-8 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这待遇完全不一样 
+
+*****
+
+####  离心  
+##### 9342#       发表于 2022-6-8 20:40
+
+好!三期生确定了
+
+*****
+
+####  starring  
+##### 9343#       发表于 2022-6-8 20:40
+
+笑死，这是运营主动提供乐子给观众拱火
+
+*****
+
+####  Enakina  
+##### 9344#       发表于 2022-6-8 20:41
+
+土妹子毕竟成神好吧，这buff叠的，我看的今天像三捧一
+
+*****
+
+####  cxj649  
+##### 9345#       发表于 2022-6-8 20:41
+
+这有啥的，虹也是萌P说过R3组冷藏2-3年了，她们18年定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9346#       发表于 2022-6-8 20:41
+
+好，我要之前那个喷我不可能海选留人的那位向我道歉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 9347#       发表于 2022-6-8 20:42
+
+救命，可可颜色和那个太像了吧都看不出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 9348#       发表于 2022-6-8 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着企划还吸取教训了是吧，不再晾两三年，就晾一年
+
+*****
+
+####  yevvet  
+##### 9349#       发表于 2022-6-8 20:42
+
+感觉还是海选出原石。感觉就是不一样
+
