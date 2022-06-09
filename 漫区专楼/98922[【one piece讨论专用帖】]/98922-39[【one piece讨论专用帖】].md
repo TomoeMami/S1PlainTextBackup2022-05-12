@@ -16311,3 +16311,22 @@ ONEPIECE は最終章へ突入します。
 
 笑傲江湖里梁发被砍脑袋，师兄师妹转头就穿新衣服去游山玩水了，师傅伪君子徒弟大多数狼心狗肺也是没办法，我看这和之国也一样，狗屁的名门正派
 
+
+
+*****
+
+####  SteinLee  
+##### 58406#       发表于 2022-6-9 11:13
+
+绿牛应该是人人果实幻兽种·千手柱间果实，最后篇章如果wt还记得圆伏笔的话，估计是让绿牛去解释恶魔果实，说不定真的和大树有关
+
+*****
+
+####  武男  
+##### 58407#       发表于 2022-6-9 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187037&amp;ptid=98922" target="_blank">陶矢 发表于 2022-6-9 10:53</a>
+
+笑傲江湖里梁发被砍脑袋，师兄师妹转头就穿新衣服去游山玩水了，师傅伪君子徒弟大多数狼心狗肺也是没办法， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">华山派就这样啊，气宗对同门赶尽杀绝还想教好下一代是不是活在梦里，李世民这种天降猛男都摆不平后续影响呢。
+

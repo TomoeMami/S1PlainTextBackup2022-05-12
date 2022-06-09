@@ -5131,3 +5131,39 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 另外我等星期六去b站买fmt的票，看看到时候序号多少，估一下b站卖了多少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9460#       发表于 2022-6-9 11:13
+
+b站卖多少到时候直接看同接不就好了，b站卖的票编号不是连续的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9461#       发表于 2022-6-9 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本fmt 那边看壁吧讨论不乐观啊
+
+*****
+
+####  aoaoaodedede  
+##### 9462#       发表于 2022-6-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187463&amp;ptid=2036367" target="_blank">player3960 发表于 2022-6-9 11:11</a>
+
+光口头上香不香的，日本那边先把fmt的票多卖点出去再说吧，现在票卖的不是很乐观啊，这11场填满可不是个容 ...</blockquote>
+B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有好几个同期售票的，那样就不好从票号估计fmt在B站究竟有多少人买了
+
+*****
+
+####  player3960  
+##### 9463#       发表于 2022-6-9 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187537&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-9 11:15</a>
+
+B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有好几个同期售票的，那样就不好从票号估计fmt在 ...</blockquote>
+就按楼上说的看同接也行，到时候b站数据应该有人统计的
+
