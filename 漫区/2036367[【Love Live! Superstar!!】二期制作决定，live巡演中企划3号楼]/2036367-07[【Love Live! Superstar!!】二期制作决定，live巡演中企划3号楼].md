@@ -5041,3 +5041,30 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为不香的人除掉跑路说不了话，还有一些故意反串的垃圾外，要么不说话，要么说得很委婉
 
+
+
+*****
+
+####  cybernetics31  
+##### 9451#       发表于 2022-6-9 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就淹没在dd们的发言里头了
+
+*****
+
+####  starring  
+##### 9452#       发表于 2022-6-9 10:47
+
+现在剩下的都是真香，或者还在挣扎的五人原教旨主义，另外就是涌入一批新观众
+
+*****
+
+####  iuhehc  
+##### 9453#       发表于 2022-6-9 10:47
+
+ 本帖最后由 iuhehc 于 2022-6-9 10:50 编辑 
+
+真香的没直播前早就接受得差不多了，直播露面只是给个台阶名正言顺香不是吗。破防的早就跑路了，无感的都懒得去评价香不香这个话题，我就是原教旨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
