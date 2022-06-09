@@ -13745,3 +13745,24 @@ OBENTZ
 
 昨天比较虚无加学英文光看标题劝退一批人，同接终于降下来了，爆火未必全是好事，还是细水长流吧
 
+
+
+*****
+
+####  CielChloe  
+##### 14837#       发表于 2022-6-10 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56195921&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-6-9 19:06</a>
+把人推特管起来到时候魂号お気持ち这锅谁背啊</blockquote>
+お気持ち乃管人特色，不得不品尝。
+况且说不定已经发了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 14838#       发表于 2022-6-10 00:07
+
+坏了，记错时间了，现在才发现莎皇播完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+光把rust挂后台了（主播服玩这个挺有意思的）
+
