@@ -13273,3 +13273,12 @@ YouTubeにて無料配信
 
 反正我要是田角我看到一堆商家在莎皇下面求着免费带货不来和虹谈工商我也不爽的，要想控制住莎皇首先得把这个工商带货的渠道给掐死吧，她再这样带货带下去还得了
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14788#       发表于 2022-6-9 19:06
+
+把人推特管起来到时候魂号お気持ち这锅谁背啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
