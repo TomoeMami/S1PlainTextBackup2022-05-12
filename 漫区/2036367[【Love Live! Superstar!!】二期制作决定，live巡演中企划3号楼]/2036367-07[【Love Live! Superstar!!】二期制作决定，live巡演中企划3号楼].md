@@ -4988,3 +4988,12 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56183532&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-9 00:54</a></blockquote>
 他最好换一下口红色号或者学学什么叫笑不露齿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9445#       发表于 2022-6-9 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以5ch那边是啥反应
+
