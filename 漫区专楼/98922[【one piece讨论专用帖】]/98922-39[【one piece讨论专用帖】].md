@@ -16330,3 +16330,15 @@ ONEPIECE は最終章へ突入します。
 笑傲江湖里梁发被砍脑袋，师兄师妹转头就穿新衣服去游山玩水了，师傅伪君子徒弟大多数狼心狗肺也是没办法， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">华山派就这样啊，气宗对同门赶尽杀绝还想教好下一代是不是活在梦里，李世民这种天降猛男都摆不平后续影响呢。
 
+
+
+*****
+
+####  TIZI  
+##### 58408#       发表于 2022-6-9 12:19
+
+我记得最早是不是有个4档会烧寿命的设定啊
+开个4档都会烧寿命尼卡果实还不要直接升天啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
