@@ -13899,3 +13899,12 @@ slm又转发了小魔王最后的完成图
 
 说到底vtuber卖的还是人物关系，谁和谁好、谁和谁不好，谁和谁一起玩，谁怎么评价谁这些玩意。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RAFano  
+##### 14852#       发表于 2022-6-10 01:27
+
+油管最近严打asmr ，很多频道为了规避都把存档隐藏了
+

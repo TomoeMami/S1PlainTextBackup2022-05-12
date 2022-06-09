@@ -8900,3 +8900,20 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
 是我没说清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还没到查对方历史战绩的地步
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11366#       发表于 2022-6-10 01:22
+
+ 本帖最后由 古战场亡魂 于 2022-6-10 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56200316&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2022-6-10 01:12</a>
+
+是我没说清楚luna也是早上上号了才凑巧看见mea也在玩的还没到查对方历史战绩的地步 ...</blockquote>
+抛开你的粉丝滤镜，你再想想，她三个号，加了mea的号首胜都不打，登号干嘛。我看见你nga发的了，7号说了一次经常能看到，9号又说一次，她自己两小号几天没动，天天登着玩是吧。
+
+私人号的事情也不适合直播说啊，国内外因为私人号炎上多少回。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算了，较真这个也没意思，你以后也别搬运这些东西了。
+
+真搬等luna同志说点有用的再说吧。
+
