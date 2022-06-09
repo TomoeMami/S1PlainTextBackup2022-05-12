@@ -2988,3 +2988,2033 @@ IMG_8682(20220608-115528).PNG
 插播一条 说是2nd现地的</blockquote>
 混进了🐟
 
+
+
+*****
+
+####  adw667  
+##### 9228#       发表于 2022-6-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56171934&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-8 12:01</a>
+
+轮整活还是佩服这运营
+
+这是前半五人读信1小时，后半新人亮相15分钟，工商时间15分钟吧
+
+不过五人读心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">乐了
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 9229#       发表于 2022-6-8 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56172901&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-8 12:54</a>
+太智障了，不过想想当年水团强行不让缪水互动，现在的切割处理居然还不是最草台的。
+
+—— 来自 Xiaomi 210 ...</blockquote>
+同感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  稀勢のささ  
+##### 9230#       发表于 2022-6-8 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裂垃圾67的工商环节nako给FM画了BD曲的饼（大概
+
+*****
+
+####  lj205  
+##### 9231#       发表于 2022-6-8 18:52
+
+草，这个座位排法真就<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 9232#       发表于 2022-6-8 18:52
+
+风怒
+
+*****
+
+####  starring  
+##### 9233#       发表于 2022-6-8 18:58
+
+5+4的排位比穿插着坐好了，起码不会左右尴尬
+
+*****
+
+####  iuhehc  
+##### 9234#       发表于 2022-6-8 19:01
+
+鲤鱼这个内八太吸引我的视线了草
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  稀勢のささ  
+##### 9235#       发表于 2022-6-8 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以NAGI是把头发染的更黑了吗
+
+*****
+
+####  iuhehc  
+##### 9236#       发表于 2022-6-8 19:04
+
+这她气质挺好的黑发很正经的样子（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 9237#       发表于 2022-6-8 19:06
+
+草，空气新人
+
+*****
+
+####  lj205  
+##### 9238#       发表于 2022-6-8 19:08
+
+鲤鱼这坐姿豪放啊，你穿着裙子呢喂
+
+
+
+*****
+
+####  D麦林  
+##### 9239#       发表于 2022-6-8 19:18
+
+今天这弹幕环境真是前所未有的恶劣
+
+*****
+
+####  a92063256  
+##### 9240#       发表于 2022-6-8 19:21
+
+B站评论没见有攻击新人的，但是全都在说不要攻击新人了；弹幕，评论一堆攻击鱼的某吧人在团建，但是没人阻止<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qty  
+##### 9241#       发表于 2022-6-8 19:22
+
+鲤鱼染这发色说实话有点不好看，显脸大
+
+*****
+
+####  starring  
+##### 9242#       发表于 2022-6-8 19:22
+
+果然例行背刺就是好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9243#       发表于 2022-6-8 19:23
+
+爱咋咋，能闹到天上去也算是本事，wakuwaku
+
+*****
+
+####  稀勢のささ  
+##### 9244#       发表于 2022-6-8 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丈育偶像太多了
+
+*****
+
+####  lj205  
+##### 9245#       发表于 2022-6-8 19:26
+
+弹幕关了吧
+
+*****
+
+####  iuhehc  
+##### 9246#       发表于 2022-6-8 19:29
+
+ 本帖最后由 iuhehc 于 2022-6-8 19:31 编辑 
+
+在油管看也挺好的
+前半看的挺开心的想到后半不知道怎么样有点糟心
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 9247#       发表于 2022-6-8 19:31
+
+预告开始就群魔乱舞了
+
+*****
+
+####  寒风夜  
+##### 9248#       发表于 2022-6-8 19:32
+
+蓝原那看的，就没弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9249#       发表于 2022-6-8 19:32
+
+佩宝这个海豚笑太草了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  lj205  
+##### 9250#       发表于 2022-6-8 19:46
+
+今天聊的还挺开心，就是一讲二期某个人就开始放空
+
+好吧，马上就要来了
+
+*****
+
+####  寒风夜  
+##### 9251#       发表于 2022-6-8 19:48
+
+点进了秋叶原2，好家伙 精彩啊
+
+*****
+
+####  iuhehc  
+##### 9252#       发表于 2022-6-8 19:48
+
+马上要来了吧….
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  努斯万克  
+##### 9253#       发表于 2022-6-8 19:49
+
+为啥那么多刷绘森彩的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9254#       发表于 2022-6-8 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为另外三个俩不认识一个查无此人
+
+*****
+
+####  qty  
+##### 9255#       发表于 2022-6-8 19:50
+
+我去，铃原这颜值
+
+*****
+
+####  Enakina  
+##### 9256#       发表于 2022-6-8 19:51
+
+最顶的居然是铃原，好漂亮
+
+*****
+
+####  ads147147  
+##### 9257#       发表于 2022-6-8 19:51
+
+弹幕一下子梦回当年，都回来了（呕）
+
+土妹子扮相真的不错。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9258#       发表于 2022-6-8 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179006&amp;ptid=2036367" target="_blank">努斯万克 发表于 2022-6-8 19:49</a>
+
+为啥那么多刷绘森彩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫吧团建
+
+*****
+
+####  lj205  
+##### 9259#       发表于 2022-6-8 19:51
+
+土妹子还可以
+
+*****
+
+####  iuhehc  
+##### 9260#       发表于 2022-6-8 19:52
+
+哎…不知道说什么好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  Enakina  
+##### 9261#       发表于 2022-6-8 19:53
+
+绘森反倒是感觉拉了，还是发型不行
+
+*****
+
+####  ads147147  
+##### 9262#       发表于 2022-6-8 19:53
+
+红毛这个本音，一股兔的味道。好，挺王候选
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cat1230  
+##### 9263#       发表于 2022-6-8 19:54
+
+新人颜值很顶啊，比照片好看
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 9264#       发表于 2022-6-8 19:54
+
+草，前偶像出来，群里有人喊贾玲
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9265#       发表于 2022-6-8 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颜值最高的突然变成土妹子了
+
+*****
+
+####  寒风夜  
+##### 9266#       发表于 2022-6-8 19:55
+
+ 本帖最后由 寒风夜 于 2022-6-8 19:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179050&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 19:51</a>
+
+紫吧团建</blockquote>
+我以前看发这些的都是看皮套人的，v紫合流了属于是，还有发名字的，这些人是不是以为很潮啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9267#       发表于 2022-6-8 19:55
+
+绘森彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我咋觉得她真人和照片差距有点大啊 大熊倒还好 
+
+*****
+
+####  稀勢のささ  
+##### 9268#       发表于 2022-6-8 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">反转了 我早就是铃原单推了
+
+*****
+
+####  寒风夜  
+##### 9269#       发表于 2022-6-8 19:56
+
+确实比照片彳亍
+
+*****
+
+####  ykyin09  
+##### 9270#       发表于 2022-6-8 19:56
+
+红毛这校服能不能扣一下扣子，虽然说是官设但是看着好难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+*****
+
+####  努斯万克  
+##### 9271#       发表于 2022-6-8 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179133&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-8 19:56</a>
+
+反转了 我早就是铃原单推了</blockquote>
+一开始我就是铃原单推了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9272#       发表于 2022-6-8 19:57
+
+果然前辈称呼是不存在的
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9273#       发表于 2022-6-8 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辈先
+
+*****
+
+####  努斯万克  
+##### 9274#       发表于 2022-6-8 19:59
+
+中国威胁佬
+
+*****
+
+####  竹筷  
+##### 9275#       发表于 2022-6-8 19:59
+
+绘森彩有点国字脸的感觉
+
+*****
+
+####  ads147147  
+##### 9276#       发表于 2022-6-8 19:59
+
+鲤鱼被先辈suki击沉了。
+
+生放就把仙贝禁止玩了，那花田的烂活怎么玩呢。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 9277#       发表于 2022-6-8 20:00
+
+铃原这五官长得真的挺端正的，除了牙有点乱真没什么太大短板了
+
+*****
+
+####  lj205  
+##### 9278#       发表于 2022-6-8 20:00
+
+好吧，鲤鱼这当前辈爽飞天了吧
+
+*****
+
+####  cxj649  
+##### 9279#       发表于 2022-6-8 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179116&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-6-8 19:55</a>
+
+我以前看发这些的都是看皮套人的，v紫合流了属于是，还有发名字的，这些人是不是以为很潮啊 ...</blockquote>
+真要合流反而不会了，现在这波还没V圈成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9280#       发表于 2022-6-8 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9281#       发表于 2022-6-8 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179111&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 19:55</a>
+
+颜值最高的突然变成土妹子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实照片上就能看出来吧 动起来还要更好倒是没想到
+
+*****
+
+####  凡人  
+##### 9282#       发表于 2022-6-8 20:02
+
+什么叫二期c位的含金量啊
+
+
+
+*****
+
+####  ads147147  
+##### 9283#       发表于 2022-6-8 20:07
+
+土妹子传，堂堂连载。
+
+说起来与其说漂亮，不如说青春感很重啊，一个个都像是刚出炉的jk。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 9284#       发表于 2022-6-8 20:07
+
+系列传统前辈禁止，敬语禁止<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9285#       发表于 2022-6-8 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看到画画想起来了，不知道新4人有没有新画伯定位
+
+*****
+
+####  Enakina  
+##### 9286#       发表于 2022-6-8 20:08
+
+这二期c的含金量的确很高了，我是完全在看她了
+
+*****
+
+####  li463900160  
+##### 9287#       发表于 2022-6-8 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了，一瞬间所有群从绘森推变成了铃原推
+
+*****
+
+####  ads147147  
+##### 9288#       发表于 2022-6-8 20:09
+
+说话又怯生生的，要是这是演的就更有趣了（不是）
+
+怎么又是命运w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 9289#       发表于 2022-6-8 20:09
+
+彩妹有那么多推嘛，我还以为都是弹幕反串的草
+
+*****
+
+####  cybernetics31  
+##### 9290#       发表于 2022-6-8 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法啊 彩妹这照片差距有点大啊
+
+*****
+
+####  Enakina  
+##### 9291#       发表于 2022-6-8 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179489&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-6-8 20:09</a>
+彩妹有那么多推嘛，我还以为都是弹幕反串的草</blockquote>
+草，不是反串？原来真的那么多推的吗
+
+*****
+
+####  努斯万克  
+##### 9292#       发表于 2022-6-8 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179522&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-8 20:10</a>
+
+草，不是反串？原来真的那么多推的吗</blockquote>
+必然反串
+
+*****
+
+####  ViyViy  
+##### 9293#       发表于 2022-6-8 20:12
+
+我反正不信的。今晚有一成都是多了
+
+
+
+*****
+
+####  稀勢のささ  
+##### 9294#       发表于 2022-6-8 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有什么推不推的   最多听过有一个爱营业的
+
+*****
+
+####  starring  
+##### 9295#       发表于 2022-6-8 20:17
+
+不愧是双N，气氛调动得很合时
+
+*****
+
+####  Enakina  
+##### 9296#       发表于 2022-6-8 20:17
+
+第一感觉还是铃原最亮眼，仔细看看朱音也不错
+大熊不是很感冒，绘森有点失望
+不过的确比公式照强就是了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9297#       发表于 2022-6-8 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新的画伯确定了
+
+*****
+
+####  竹筷  
+##### 9298#       发表于 2022-6-8 20:19
+
+大熊声音很好听，性格跟脸也不错，有被戳到
+
+*****
+
+####  qty  
+##### 9299#       发表于 2022-6-8 20:20
+
+nakonagi真是星团父母，这对话全靠她俩带了，另外那仨在一边附和
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9300#       发表于 2022-6-8 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yevvet  
+##### 9301#       发表于 2022-6-8 20:21
+
+绘森彩大饼脸啊。反倒是土妹和红毛真人好好看
+
+*****
+
+####  yevvet  
+##### 9302#       发表于 2022-6-8 20:21
+
+ 本帖最后由 yevvet 于 2022-6-8 20:27 编辑 
+
+绘森彩给我一种低配版纺木吏佐的感觉。
+
+*****
+
+####  一绪  
+##### 9303#       发表于 2022-6-8 20:23
+
+大熊比公式照好看多了，公式照拍的真是一言难尽
+
+*****
+
+####  a92063256  
+##### 9304#       发表于 2022-6-8 20:23
+
+绘森这是发型原因吗？显得有些胖
+
+*****
+
+####  cybernetics31  
+##### 9305#       发表于 2022-6-8 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">im和贤pro家的声音不错 彩真的，，，，，
+
+*****
+
+####  starring  
+##### 9306#       发表于 2022-6-8 20:28
+
+鲤鱼的态度太明显了好有趣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9307#       发表于 2022-6-8 20:29
+
+这就开始成分调查了，草
+
+*****
+
+####  努斯万克  
+##### 9308#       发表于 2022-6-8 20:29
+
+铃原越看越可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一绪  
+##### 9309#       发表于 2022-6-8 20:29
+
+我要被玲原击坠了我艹！
+
+*****
+
+####  iuhehc  
+##### 9310#       发表于 2022-6-8 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9311#       发表于 2022-6-8 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有人都真香了
+
+*****
+
+####  lj205  
+##### 9312#       发表于 2022-6-8 20:32
+
+前偶像还是没调动我
+
+红毛我觉得发型拖累，大熊感觉后面可以跟NAGI玩开
+
+土妹子是可以
+
+不过我觉得五老星整体看起来比新四军还年轻………………
+
+*****
+
+####  ads147147  
+##### 9313#       发表于 2022-6-8 20:32
+
+铃原是挺香的，但是问题一直都不是cv不是吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 9314#       发表于 2022-6-8 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭反应真的，，，，，
+
+*****
+
+####  iuhehc  
+##### 9315#       发表于 2022-6-8 20:32
+
+反正我是还不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  猫灰灰  
+##### 9316#       发表于 2022-6-8 20:34
+
+这哪能香得起来呢，好没意思
+
+*****
+
+####  ces轴承仨  
+##### 9317#       发表于 2022-6-8 20:34
+
+我还是感觉不咋香。有这么容易就沦陷了吗。。
+
+*****
+
+####  yevvet  
+##### 9318#       发表于 2022-6-8 20:34
+
+也不是特别香。四个新人还是没有比nagi好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 9319#       发表于 2022-6-8 20:35
+
+问题还是官方，你tm直接一开始9个上不行吗
+
+*****
+
+####  Enakina  
+##### 9320#       发表于 2022-6-8 20:35
+
+果然，她一起参加的公招
+公招见过打铁？
+
+*****
+
+####  qty  
+##### 9321#       发表于 2022-6-8 20:35
+
+铃原是海选的啊
+
+*****
+
+####  starring  
+##### 9322#       发表于 2022-6-8 20:35
+
+这就真相了，还真是海选候补
+
+*****
+
+####  cybernetics31  
+##### 9323#       发表于 2022-6-8 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi这发色 真的不错 真香那还是五人香啊  啊 铃原妹子说公募的事了
+
+*****
+
+####  li463900160  
+##### 9324#       发表于 2022-6-8 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi颜值没的说，但是嗓子太粗了，比较劣势
+
+*****
+
+####  lj205  
+##### 9325#       发表于 2022-6-8 20:36
+
+居然就直接说了
+
+*****
+
+####  Enakina  
+##### 9326#       发表于 2022-6-8 20:36
+
+乐了，真就被雪藏了
+
+*****
+
+####  ads147147  
+##### 9327#       发表于 2022-6-8 20:37
+
+海选候补，真的是乐子了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 9328#       发表于 2022-6-8 20:37
+
+乐..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a92063256  
+##### 9329#       发表于 2022-6-8 20:38
+
+这...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9330#       发表于 2022-6-8 20:38
+
+好青涩<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 9331#       发表于 2022-6-8 20:38
+
+还敢放vtr，运营你觉得很感动？？？
+
+*****
+
+####  一绪  
+##### 9332#       发表于 2022-6-8 20:38
+
+官方蓄谋已久啊。。。
+
+*****
+
+####  cybernetics31  
+##### 9333#       发表于 2022-6-8 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 什么破运营
+
+*****
+
+####  Enakina  
+##### 9334#       发表于 2022-6-8 20:38
+
+太青涩了，这不可能打赢青山的
+
+*****
+
+####  名津流  
+##### 9335#       发表于 2022-6-8 20:39
+
+说是雪藏了一年
+
+换个角度来说，人家愿意等你企划一年没去干别的，也算真爱了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9336#       发表于 2022-6-8 20:39
+
+感觉这角色发型反而是加成了，vtr里看起来有点大饼脸
+
+*****
+
+####  lj205  
+##### 9337#       发表于 2022-6-8 20:39
+
+那二期就是土妹子专咯
+
+那张图果然就是队长传队长
+
+*****
+
+####  竹筷  
+##### 9338#       发表于 2022-6-8 20:39
+
+感觉就是说企划一开始就是打算加人的
+
+*****
+
+####  a92063256  
+##### 9339#       发表于 2022-6-8 20:39
+
+就真给人家放了一年？真不能理解运营怎么想的了
+
+*****
+
+####  Enakina  
+##### 9340#       发表于 2022-6-8 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180157&amp;ptid=2036367" target="_blank">名津流 发表于 2022-6-8 20:39</a>
+说是雪藏了一年
+
+换个角度来说，人家愿意等你企划一年没去干别的，也算真爱了 ...</blockquote>
+就个新人，能找到什么活，又不是家里有矿。不如说一年还愿意要你，才不赖了吧
+
+*****
+
+####  稀勢のささ  
+##### 9341#       发表于 2022-6-8 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这待遇完全不一样 
+
+*****
+
+####  离心  
+##### 9342#       发表于 2022-6-8 20:40
+
+好!三期生确定了
+
+*****
+
+####  starring  
+##### 9343#       发表于 2022-6-8 20:40
+
+笑死，这是运营主动提供乐子给观众拱火
+
+*****
+
+####  Enakina  
+##### 9344#       发表于 2022-6-8 20:41
+
+土妹子毕竟成神好吧，这buff叠的，我看的今天像三捧一
+
+*****
+
+####  cxj649  
+##### 9345#       发表于 2022-6-8 20:41
+
+这有啥的，虹也是萌P说过R3组冷藏2-3年了，她们18年定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9346#       发表于 2022-6-8 20:41
+
+好，我要之前那个喷我不可能海选留人的那位向我道歉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 9347#       发表于 2022-6-8 20:42
+
+救命，可可颜色和那个太像了吧都看不出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 9348#       发表于 2022-6-8 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着企划还吸取教训了是吧，不再晾两三年，就晾一年
+
+*****
+
+####  yevvet  
+##### 9349#       发表于 2022-6-8 20:42
+
+感觉还是海选出原石。感觉就是不一样
+
+
+
+*****
+
+####  cybernetics31  
+##### 9350#       发表于 2022-6-8 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这vtr被打铁和青山刷掉很正常 但是运营这操作，，，，，，
+
+还是觉得新四人颜值还是不如老五人  nagi优势太大了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9351#       发表于 2022-6-8 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 9352#       发表于 2022-6-8 20:44
+
+什么星第一年营收差临时加人说不攻自破了
+
+*****
+
+####  yevvet  
+##### 9353#       发表于 2022-6-8 20:45
+
+那肯定还得有三期吧
+
+*****
+
+####  凡人  
+##### 9354#       发表于 2022-6-8 20:46
+
+笑死，我猜三期还有一个海选的要藏两年
+
+*****
+
+####  cxj649  
+##### 9355#       发表于 2022-6-8 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180264&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-8 20:42</a>
+
+合着企划还吸取教训了是吧，不再晾两三年，就晾一年</blockquote>
+就怕雨野第二，这波可没动画复活战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 9356#       发表于 2022-6-8 20:48
+
+其实比较在意的是non酱这个昵称<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道那边已经有一个non酱了，拉拉和武士道关系也挺深的，又弄一个non酱出来很容易混淆啊。
+
+*****
+
+####  寒风夜  
+##### 9357#       发表于 2022-6-8 20:48
+
+只能说迷了
+
+*****
+
+####  cybernetics31  
+##### 9358#       发表于 2022-6-8 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁菜宝她们等的更久 没啥拉 这破运营就是zz
+
+*****
+
+####  lj205  
+##### 9359#       发表于 2022-6-8 20:49
+
+那这样是不是还真的有毕业设定？
+
+*****
+
+####  稀勢のささ  
+##### 9360#       发表于 2022-6-8 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星团一直续是吧
+
+
+
+*****
+
+####  iuhehc  
+##### 9361#       发表于 2022-6-8 20:52
+
+什么Liella48
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  竹筷  
+##### 9362#       发表于 2022-6-8 20:53
+
+我其实一直感觉星这企划有点学Q娃，每年出点新东西让话题度跟新鲜度一直有，当然现在运营操作得好不好就不说了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9363#       发表于 2022-6-8 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那这样真成二次元女团了
+
+*****
+
+####  lj205  
+##### 9364#       发表于 2022-6-8 20:53
+
+这次下来印象最深的是大熊，印象最无感依然是前偶像
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9365#       发表于 2022-6-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180457&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-6-8 20:53</a>
+我其实一直感觉星这企划有点学Q娃，每年出点新东西让话题度跟新鲜度一直有，当然现在运营操作得好不好就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉之前放卫星的LTB更适合这种模式
+
+*****
+
+####  稀勢のささ  
+##### 9366#       发表于 2022-6-8 20:55
+
+なぎ「いっそ落ちてた方が良いキャラ貰えた可能性...」  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟楼友一个想法
+
+*****
+
+####  iuhehc  
+##### 9367#       发表于 2022-6-8 20:56
+
+新4人都挺无感的，但是看放海选视频这操作来看 土妹传 开演！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 9368#       发表于 2022-6-8 20:57
+
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 9369#       发表于 2022-6-8 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180479&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-8 20:54</a>
+
+感觉之前放卫星的LTB更适合这种模式</blockquote>
+上次看日本那边星粉丝年龄段饼图，小朋友跟叔叔阿姨占比还真挺多的，而且全员一年级这种设定确实很适合每季动画升年级来塞东西
+
+*****
+
+####  寒风夜  
+##### 9370#       发表于 2022-6-8 20:58
+
+ 本帖最后由 寒风夜 于 2022-6-8 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在看来，拉拉是不是多少有点被校园偶像卡住了（毕业）
+
+*****
+
+####  starring  
+##### 9371#       发表于 2022-6-8 20:59
+
+新四人只有铃原第一次看上去挺亮眼，大熊有成为整活担当的潜力，另外两个没什么印象
+
+*****
+
+####  稀勢のささ  
+##### 9372#       发表于 2022-6-8 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180545&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 20:57</a>
+
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鈴原动起来好看 彩是cjb 没了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9373#       发表于 2022-6-8 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明校园偶像才是灵魂
+
+*****
+
+####  ViyViy  
+##### 9374#       发表于 2022-6-8 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不学隔壁整大学篇吧，大学学园偶像那也是学园偶像
+
+*****
+
+####  ads147147  
+##### 9375#       发表于 2022-6-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180545&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 20:57</a>
+啊，这么热闹啊，今天晚上有事生放没看多少，有啥亮点，乐子吗</blockquote>
+铃原（土妹子役）是sayu青山那批海选扣下来的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a92063256  
+##### 9376#       发表于 2022-6-8 21:01
+
+生放完了香不起来还是香不起来，就是格外的感觉到运营的逆天程度
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 9377#       发表于 2022-6-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180604&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-8 21:00</a>
+
+铃原（土妹子役）是sayu青山那批海选扣下来的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅 ...</blockquote>
+好家伙，真就往海选落选那个猜想发展了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 9378#       发表于 2022-6-8 21:06
+
+二期有人是被青山挤下来的话属于塞翁失马了
+
+*****
+
+####  aoaoaodedede  
+##### 9379#       发表于 2022-6-8 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180518&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-8 20:56</a>
+
+新4人都挺无感的，但是看放海选视频这操作来看 土妹传 开演！
+
+—— 来自 S1Fun ...</blockquote>
+感觉有点这方面的苗头，再看那个PV，说不定二期动画是二人传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9380#       发表于 2022-6-8 21:07
+
+怎么香哦………………企划这样了都，谁知道它后面还有啥操作
+
+*****
+
+####  cat1230  
+##### 9381#       发表于 2022-6-8 21:12
+
+12星座说更加可能了，也就是海选还有1位要雪藏2年以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，既然都是海选同一批，一期生先上了打铁和青山，那么可以说铃原至少在海选的时候唱歌跳舞等的表现是不如她俩的，说以期待1stlive有打铁一样亮眼表现的可能性感觉就很低了。
+
+
+
+*****
+
+####  ayangsu  
+##### 9382#       发表于 2022-6-8 21:12
+
+反正目前看来铃原颜最能打，彩属实有点小失望<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9383#       发表于 2022-6-8 21:13
+
+两边楼的大伙都真香了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9384#       发表于 2022-6-8 21:16
+
+我无所谓，别给一期生拖后腿就是
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9385#       发表于 2022-6-8 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不香的又不会跳出来说，再说还没有看到她们的唱跳实力
+
+*****
+
+####  iuhehc  
+##### 9386#       发表于 2022-6-8 21:19
+
+不觉得真香，打心底抗拒加人，也就那样，香不起来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 9387#       发表于 2022-6-8 21:21
+
+<img src="https://p.sda1.dev/6/34f7359b2b3b9f9d74260c1ba41de6ce/20220608_212103.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 9388#       发表于 2022-6-8 21:23
+
+ 本帖最后由 Enakina 于 2022-6-8 21:26 编辑 
+
+我虽然对铃原挺感兴趣的了，但离真香感觉还差远了。当然在我已经有如此抵触的心理下，新人或者说铃原要是还能让我真的发自内心的喜欢上，那可就太厉害了。不过以后真要有那么大的魅力，应该早就把“前朝遗老”杀的不敢出声了。
+很难的啦（）
+
+*****
+
+####  lj205  
+##### 9389#       发表于 2022-6-8 21:25
+
+前偶像看着比鲤鱼壮实多
+
+*****
+
+####  甘蓝巧克力  
+##### 9390#       发表于 2022-6-8 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了直播只想创死企划，没有真香，一期生毕业直接跑路再也不回来，真以为都是企划的孝子舔狗啊
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 9391#       发表于 2022-6-8 21:28
+
+香不香就看每个人的重视点在哪里吧，我是因为受不了企划的pua，受不了运营在这之前经营的5人团的氛围，一期动画那个样子之后我把对星团的感情基本上都放在三次元上了，现在来这一出，我是不会轻易真香的。
+
+新cv们努不努力，好不好看，唱的好不好，新角色好不好不是我在根本上很难真香的原因。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9392#       发表于 2022-6-8 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是真搞出三年级后直接毕业的操作肯定跑路
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9393#       发表于 2022-6-8 21:31
+
+翻页
+
+*****
+
+####  一个陆仁贾  
+##### 9394#       发表于 2022-6-8 21:31
+
+运营果然是傻x<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  yevvet  
+##### 9395#       发表于 2022-6-8 21:32
+
+绘森彩这大骨架真不像是樱花妹
+
+*****
+
+####  iuhehc  
+##### 9396#       发表于 2022-6-8 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181077&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-8 21:28</a>
+香不香就看每个人的重视点在哪里吧，我是因为受不了企划的pua，受不了运营在这之前经营的5人团的氛围，一期 ...</blockquote>
+同感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 9397#       发表于 2022-6-8 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181140&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-6-8 21:32</a>
+绘森彩这大骨架真不像是樱花妹</blockquote>
+真实了，实际效果比鲤鱼还壮我是没想到的
+篮球中锋的含金量吗
+
+*****
+
+####  cybernetics31  
+##### 9398#       发表于 2022-6-8 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩妹子这壮硕的脸庞…………
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说还是转老五人的个人推吧，我得去查查这ab 的fc咋搞，青山发色有点戳xp 
+
+*****
+
+####  qty  
+##### 9399#       发表于 2022-6-8 21:39
+
+新人颜值只能说比预想的要亮眼，但真要比的话还是比不过老五人，尤其是pay，鲤鱼青山可以说以后年龄上去了颜值会下降，pay跟这几个新人差不多都是刚毕业的jk，现在就能压她们一头，以后差距恐怕越来越大。
+
+*****
+
+####  we89623  
+##### 9400#       发表于 2022-6-8 21:41
+
+艹 没看生放，听说石锤还有三期生？ 真假？
+
+*****
+
+####  ads147147  
+##### 9401#       发表于 2022-6-8 21:42
+
+动画二期是土妹子传应该是坐实了，17号看星2的要有点心理准备。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  saverok  
+##### 9402#       发表于 2022-6-8 21:47
+
+前偶像这一拳打死牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iuhehc  
+##### 9403#       发表于 2022-6-8 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181281&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-8 21:41</a>
+
+艹 没看生放，听说石锤还有三期生？ 真假？</blockquote>
+没实锤，但就目前来看概率也不小吧 
+
+*****
+
+####  starring  
+##### 9404#       发表于 2022-6-8 21:58
+
+9月份live上表演再看看唱歌跳舞的能力如何，全员平均值或者以上就皆大欢喜。虽然依然不会加推，不过起码不用担心五老星会受大影响
+
+
+
+*****
+
+####  a92063256  
+##### 9405#       发表于 2022-6-8 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181194&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-8 21:35</a>
+
+彩妹子这壮硕的脸庞…………
+
+所以说还是转老五人的个人推吧，我得去查查这ab 的fc咋搞，青山 ...</blockquote>
+ABC的fc甚至连魔法都不用，直接连上就能开，很方便
+
+
+
+*****
+
+####  player3960  
+##### 9406#       发表于 2022-6-8 22:14
+
+看完生放，只能说9个人气氛还不错。
+
+加推是不可能加推的，继续当我的单推人就好，免得被运营PUA…
+
+因为看样子好像蛮多好评，看来运营又成功了，那一定下次还敢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saya1892  
+##### 9407#       发表于 2022-6-8 22:18
+
+铃原这一波捞了不少好感，拉板已经在哀嚎大批伊達おじ要转成のんおじ
+
+说实话这些人智商真的不高，几个月前已经有人开始在重新检讨小百合唱功问题的时候这些人在里面只会来回车轱辘话
+
+
+
+*****
+
+####  ViyViy  
+##### 9408#       发表于 2022-6-8 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这种喜欢角色更多一点的将来就要坐大牢了，在它企划眼里就是跪着要饭的
+
+
+
+*****
+
+####  Enakina  
+##### 9409#       发表于 2022-6-8 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181841&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-8 22:18</a>
+铃原这一波捞了不少好感，拉板已经在哀嚎大批伊達おじ要转成のんおじ
+
+说实话这些人智商真的不高，几个月前 ...</blockquote>
+铃原有种小百合2.0的感觉，运营感觉也要推她，不知道能不能起来
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9410#       发表于 2022-6-8 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 9411#       发表于 2022-6-8 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182141&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-8 22:40</a>
+
+铃原有种小百合2.0的感觉，运营感觉也要推她，不知道能不能起来</blockquote>
+到时候明年是不是还有会有小百合3.0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说句实话如果运营打算一年专门只推一个（等效）Leader，那这运营就真有他的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 9412#       发表于 2022-6-8 22:46
+
+四保一，三保一，二保一，其他人推真是倒了八辈子霉遇上这么个企划<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9413#       发表于 2022-6-8 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">至少现在还没传出洗脚婢这种说法
+
+
+
+*****
+
+####  csolfans  
+##### 9414#       发表于 2022-6-8 22:58
+
+<blockquote>saya1892 发表于 2022-6-8 22:18
+铃原这一波捞了不少好感，拉板已经在哀嚎大批伊達おじ要转成のんおじ
+
+说实话这些人智商真的不高，几个月前 ...</blockquote>
+与其去检讨小百合，还不如检讨一下策划一巡那个歌单安排
+
+*****
+
+####  qty  
+##### 9415#       发表于 2022-6-8 22:59
+
+<blockquote>甘蓝巧克力 发表于 2022-6-8 22:46
+四保一，三保一，二保一，其他人推真是倒了八辈子霉遇上这么个企划</blockquote>
+要命的是保了半天才发现上面是把那个一当消耗品，保到最后结果还是被用废了
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 9416#       发表于 2022-6-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182339&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-8 22:58</a>
+
+与其去检讨小百合，还不如检讨一下策划一巡那个歌单安排</blockquote>
+一巡的歌单直接受一期动画的影响，一期动画是什么情况，那Live相对应的就是什么样
+
+*****
+
+####  ads147147  
+##### 9417#       发表于 2022-6-8 23:05
+
+保1？消耗品1还差不多。
+
+用废一个再抓来一个。如果星2后面马上说3期，然后继续来个20场巡演后再加3人，这个企划也该说拜拜了。
+
+只能说，感谢这个企划让我认识了田中仁和河村监督了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  长日留痕  
+##### 9418#       发表于 2022-6-8 23:12
+
+绘森彩怎么感觉比鲤鱼姐还高？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9419#       发表于 2022-6-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182472&amp;ptid=2036367" target="_blank">长日留痕 发表于 2022-6-8 23:12</a>
+绘森彩怎么感觉比鲤鱼姐还高？</blockquote>
+鱼弯膝盖了
+
+*****
+
+####  仟音一心  
+##### 9420#       发表于 2022-6-8 23:14
+
+<img src="https://img.saraba1st.com/forum/202206/08/231337cjm0t3bh5433zube.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5B4DF215-F964-449E-9713-42B2E9AFEB5E.jpeg</strong> (244.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231342t3tb35cix4ic3gik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>47E940C3-489B-458E-9A73-75BF05482529.jpeg</strong> (200.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231352ftazay9ykj6j86ng.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F8E16064-1A6B-489A-B4B4-556221CA27BD.jpeg</strong> (176.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231359k1e1tdd31d1kc8g1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D726108A-305F-4A49-92A5-030ED8091701.jpeg</strong> (191.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231359gtczohtj1m1hhdqh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F7A6F5A4-5DD7-490A-90AB-25E1DCA06FEB.jpeg</strong> (174.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231411tamfatxbfl8sals7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>36696F48-37C0-4C78-9C80-C5B31FED69DD.jpeg</strong> (163.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/231411c698t6ylxtlg8qze.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0EA50455-7D88-4AF0-8946-476DDDFF7F49.jpeg</strong> (164.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:14 上传
+
+
+
+*****
+
+####  稀勢のささ  
+##### 9421#       发表于 2022-6-8 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕就起了鈴原串跟彩串 回复量3倍杀
+
+*****
+
+####  qty  
+##### 9422#       发表于 2022-6-8 23:15
+
+<blockquote>长日留痕 发表于 2022-6-8 23:12
+绘森彩怎么感觉比鲤鱼姐还高？</blockquote>
+站位比较靠前吧
+
+*****
+
+####  lj205  
+##### 9423#       发表于 2022-6-8 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">自拍还是让鲤贝仙好好教教吧
+
+*****
+
+####  saya1892  
+##### 9424#       发表于 2022-6-8 23:21
+
+原本卡农在宣传中只是一个喜欢唱歌的普通女孩子，不知为何突然就变成了唱歌天赋最为拔尖的超人，那帖其实主要是在反攻倒算这个问题
+
+伊達おじ只会重复说打铁努力的样子多么令人心动，结果有人就指出「你说的话对别人的推不公平」「我们对这个没兴趣」
+
+不过我还奇怪为什么一巡这么把小百合往死里用，原来如此啊，一年用废一个，来年还有
+
+
+
+*****
+
+####  仟音一心  
+##### 9425#       发表于 2022-6-8 23:23
+
+北原
+
+<img src="https://img.saraba1st.com/forum/202206/08/232226n5w5j75jluawko91.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3C4885DB-FC48-4BF8-833E-B3CA6FD4111B.jpeg</strong> (150.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232236n4x6lcaxi3b784ao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>35E13E25-8FD7-4865-A12C-D55C7EDD4AF1.jpeg</strong> (62.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232242vy65lh3n6rfhdtft.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>19835D2E-8BB7-43B9-A241-FC55C5BC2AD8.jpeg</strong> (191.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232249py8wurw0wryouryg.png" referrerpolicy="no-referrer">
+
+<strong>41FDBEBF-0ECB-4ADA-A5BE-A869B3FD0DE2.png</strong> (97.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232249m6x7qziqeq2zn6fe.png" referrerpolicy="no-referrer">
+
+<strong>581E62BF-4837-41CA-ABEE-1385E988761C.png</strong> (102.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/232259guvydopvszmrx4yy.png" referrerpolicy="no-referrer">
+
+<strong>22E25810-EA0E-4203-B5BD-D90C31BE8C47.png</strong> (118.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:22 上传
+
+*****
+
+####  lj205  
+##### 9426#       发表于 2022-6-8 23:25
+
+水煮鱼又玩了，果然还是大人的世界好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9427#       发表于 2022-6-8 23:25
+
+nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9428#       发表于 2022-6-8 23:31
+
+企划要是真的把目标变成铃原，小百合没准就可以解放出来了。那之前奶的出道可以安排一下了吗。
+突然想起来你们仨还一家事务所来着，三期生的立德不是阿波罗的我不看啊
+
+
+
+*****
+
+####  csolfans  
+##### 9429#       发表于 2022-6-8 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182584&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-8 23:21</a>
+
+原本卡农在宣传中只是一个喜欢唱歌的普通女孩子，不知为何突然就变成了唱歌天赋最为拔尖的超人，那帖其实主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">往好点想起码sayu解放了，不过大阪这两天感觉sayu唱法也在逐渐改变了，没感觉错的话
+
+*****
+
+####  iuhehc  
+##### 9430#       发表于 2022-6-8 23:40
+
+要变铃原打铁おじ会爆炸的吧，变我估计不会变 大概是1+1吧 就刚刚生放海选vtr那段后对打铁的感想，那发言我就感觉挺沉重的说实话，就感觉那个角色就是往那个方向写的
+
+
+
+*****
+
+####  csolfans  
+##### 9431#       发表于 2022-6-8 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182801&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-8 23:40</a>
+
+要变铃原打铁おじ会爆炸的吧，变我估计不会变 大概是1+1吧 就刚刚生放海选vtr那段后对打铁的感想，那发言我 ...</blockquote>
+不懂日语，能请教一下那段具体说了啥吗
+
+*****
+
+####  仟音一心  
+##### 9432#       发表于 2022-6-8 23:51
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103zwlbmb59wiupq95z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A35A7F87-B091-4B03-A779-28727DC3E0F3.jpeg</strong> (223.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103e2212t1rrgl2626m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2204167B-227F-474B-BB18-BD3ED84218B1.jpeg</strong> (210.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103aao8l1keih4ayy8a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0F04E072-604E-4FB8-B1D2-CCC094E833CF.jpeg</strong> (665.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202206/08/235103uq00gxehfxqx0e3w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E94747EB-878F-488E-979E-8EA93B7C27BF.jpeg</strong> (316.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-8 23:51 上传
+
+
+
+*****
+
+####  稀勢のささ  
+##### 9433#       发表于 2022-6-9 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这自拍水平  有进步
+
+*****
+
+####  iuhehc  
+##### 9434#       发表于 2022-6-9 00:06
+
+ 本帖最后由 iuhehc 于 2022-6-9 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182839&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-8 23:43</a>
+不懂日语，能请教一下那段具体说了啥吗</blockquote>
+经一起海选的朋友介绍看到觉得小百合很耀眼，心想那个孩子一定会通过的，我该怎么办，海选结果决定是打铁的时候就觉得，啊果然是那个人啊
+
+差不多这样之类的？我没看第二遍记得不太清楚，应该很快就有熟肉的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  csolfans  
+##### 9435#       发表于 2022-6-9 00:37
+
+<blockquote>iuhehc 发表于 2022-6-9 00:06
+经一起海选的朋友介绍看到觉得小百合很耀眼，心想那个孩子一定会通过的，我该怎么办，海选结果决定是打铁 ...</blockquote>
+有了【【中字】Liella二期生4人入坑LL的契机-哔哩哔哩】 https://b23.tv/DDsaBnj
+
+
+
+*****
+
+####  stygian  
+##### 9436#       发表于 2022-6-9 00:51
+
+怎么连五人毕业都蹦出来了，结丘一季崩不够你们还觉得运营大人能让花田及他的后任一直写到第四五六七八季也整个liella48是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+喷运营傻逼就好好喷，贷款吃屎不可取
+
+
+
+*****
+
+####  仟音一心  
+##### 9437#       发表于 2022-6-9 00:54
+
+<img src="https://img.saraba1st.com/forum/202206/09/005425w7q718sq4qs4qqlt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>08DDAD4D-4C55-44E2-9490-566C4850CFAA.jpeg</strong> (132.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 00:54 上传
+
+*****
+
+####  CharlieZ-  
+##### 9438#       发表于 2022-6-9 01:01
+
+每次看pay的自拍我就想笑
+
+
+
+*****
+
+####  长日留痕  
+##### 9439#       发表于 2022-6-9 02:42
+
+土妹子当小立德感觉还不错。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  starring  
+##### 9440#       发表于 2022-6-9 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56183561&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-6-9 01:01</a>
+每次看pay的自拍我就想笑</blockquote>
+自拍水平提高了一点，去年那些自拍简直是pay黑拍的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  depthlee  
+##### 9441#       发表于 2022-6-9 08:36
+
+到底思维发生了怎样的发酵才能出现鼻勾ww这也太跳跃了
+
+
+
+*****
+
+####  名津流  
+##### 9442#       发表于 2022-6-9 08:46
+
+如果弄成liella48的话，学园偶像就是三年毕业一批再加一批人，新人第一次见面就给你整一句“接下来的三年也请多多指教了哦”来提醒你将来有一天也会毕业，就问你破不破防
+
+*****
+
+####  we89623  
+##### 9443#       发表于 2022-6-9 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182495&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-8 23:14</a>
+
+5厕就起了鈴原串跟彩串 回复量3倍杀</blockquote>
+讲道理，太 “专业” 了只会给人油滑的演戏感，有点用力过度了。
+
+
+
+*****
+
+####  adw667  
+##### 9444#       发表于 2022-6-9 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56183532&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-9 00:54</a></blockquote>
+他最好换一下口红色号或者学学什么叫笑不露齿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 9445#       发表于 2022-6-9 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以5ch那边是啥反应
+
+
+
+*****
+
+####  adw667  
+##### 9446#       发表于 2022-6-9 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56184877&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-9 08:50</a>
+
+讲道理，太 “专业” 了只会给人油滑的演戏感，有点用力过度了。</blockquote>
+只会卡哇伊的女声优已经品鉴得够多了，还是多来点西明日香这样的疯子吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  adw667  
+##### 9447#       发表于 2022-6-9 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说到辈先我还是忘不了矢作纱友里
+

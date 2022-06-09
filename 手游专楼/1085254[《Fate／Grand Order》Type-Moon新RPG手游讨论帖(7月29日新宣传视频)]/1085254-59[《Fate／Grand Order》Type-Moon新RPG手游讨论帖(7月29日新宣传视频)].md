@@ -15042,3 +15042,621 @@ XX,你一开始就应该用你最强的宝具把我杀掉。 无疑，沉溺于�
 稀奇了，2池没有开，我还想要马娘呢</blockquote>
 你在说什么怪话？要开也是今天5点的事
 
+
+
+*****
+
+####  alucardcz  
+##### 88290#       发表于 2022-6-8 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有5分钟   虽然我也没石了
+
+
+
+*****
+
+####  sosgame67  
+##### 88291#       发表于 2022-6-8 16:57
+
+日服大概会有新一波b服难民？不过这群家伙基本是3分钟热度一周都坚持不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88292#       发表于 2022-6-8 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1护符挑战失败 教授再见了
+
+*****
+
+####  sosgame67  
+##### 88293#       发表于 2022-6-8 17:04
+
+2池开了，不知道和之前的拆包数据是否一样，强度拉跨就省石头等周年了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88294#       发表于 2022-6-8 17:10
+
+堂吉诃德卡面摸的透彻啊？
+
+怕不是活动从者强性拉上去的
+
+
+
+*****
+
+####  里村紅葉  
+##### 88295#       发表于 2022-6-8 17:12
+
+出了一个faker一个姑姑，人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  仰望神的括约肌  
+##### 88296#       发表于 2022-6-8 17:12
+
+15号白方商店加新素材
+
+*****
+
+####  alucardcz  
+##### 88297#       发表于 2022-6-8 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56176803&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-6-8 17:12</a>
+
+15号白方商店加新素材</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 白方块居然真的有用了？
+
+*****
+
+####  angelooo  
+##### 88298#       发表于 2022-6-8 17:15
+
+雷太的老，毛病又犯了，这乱成一团的背景......堂吉柯德满破不错，张角满破构图幻视陈宫，这是为什么23333
+
+*****
+
+####  exiaexa  
+##### 88299#       发表于 2022-6-8 17:15
+
+歪麻了跑路
+盘子都加了一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88300#       发表于 2022-6-8 17:22
+
+唐吉诃德是故事限<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  密特里奈斯  
+##### 88301#       发表于 2022-6-8 17:31
+
+张角是剧情限定么？是的话补个5宝了
+
+*****
+
+####  longrider  
+##### 88302#       发表于 2022-6-8 17:33
+
+堂吉诃德这CV 
+
+飞田展男+新井里美，是卡缪+花园丽
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88303#       发表于 2022-6-8 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177101&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-6-8 17:31</a>
+张角是剧情限定么？是的话补个5宝了</blockquote>
+常驻
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  quanlix  
+##### 88304#       发表于 2022-6-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177101&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-6-8 17:31</a>
+
+张角是剧情限定么？是的话补个5宝了</blockquote>
+池子结束进友情，不用强抽
+
+*****
+
+####  KOBI  
+##### 88305#       发表于 2022-6-8 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">430石堂吉诃德
+
+然后还歪盘子。。虽然我是对教授没兴趣但也不至于这样吧
+
+
+
+*****
+
+####  黑上シグマ  
+##### 88306#       发表于 2022-6-8 17:50
+
+极大沉船
+
+*****
+
+####  xiongxingyu  
+##### 88307#       发表于 2022-6-8 17:51
+
+15发11连教授2宝赛驴娘1宝，看来这期还没到还债的时候，估计下个卡池得冲着天井去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 88308#       发表于 2022-6-8 17:58
+
+堂吉柯德满破真的不错，真有意境。
+
+
+
+*****
+
+####  angelooo  
+##### 88309#       发表于 2022-6-8 18:21
+
+就，对小教授这卡面挺失望的，初始就不能不画眼影吗，搞个纯良（？）外貌的再配个干净点的校园背景，结果和后两破一样，整个背景糊成一团还一样中二，这张整体除了没有过于死亡的配色之外没比伊吹那张好多少，满破更是摸鱼，就差把宝具画面直接拿来用了，被弓阶本体的满破吊打，这样就算了，这卡池另两张卡，堂吉柯德你说他摸吧，每张卡他的盔甲越来越破，但马娘穿得越来越华丽，就很有意思，更别提满破意境构图都很赞，张角初始刚抽出来因为西装有点摸不着头脑，满破有点撞陈宫满破，但眼神就很有戏，你同一个池子的三四星的满破都比你这五星强，你让我说什么好，于是开完堂吉柯德和张角的图鉴就跑了
+
+*****
+
+####  Jamaisvu  
+##### 88310#       发表于 2022-6-8 18:25
+
+唐吉诃德的卡面有点意思，身上的盔甲不断破败，相随的马娘逐渐梦幻，有种冒险归来、复归常人的感觉。
+
+意境上和狂阿周那的卡面很相像。
+
+*****
+
+####  Jamaisvu  
+##### 88311#       发表于 2022-6-8 18:26
+
+原来张角竟然是常驻吗<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 88312#       发表于 2022-6-8 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177803&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 18:21</a>
+
+就，对小教授这卡面挺失望的，初始就不能不画眼影吗，搞个纯良（？）外貌的再配个干净点的校园背景，结果和 ...</blockquote>
+画师对眼影有着莫名的执着，看上去确实怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+模组倒是还不错，做了两套普攻和宝具，初始宝具动画还有种神探伽利略的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 88313#       发表于 2022-6-8 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56177126&amp;ptid=1085254" target="_blank">longrider 发表于 2022-6-8 17:33</a>
+
+堂吉诃德这CV 
+
+飞田展男+新井里美，是卡缪+花园丽</blockquote>
+懂了，宝具骑枪创人是致敬z高达的西瓜冰突刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 88314#       发表于 2022-6-8 18:45
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 18:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/08/184407qk6j2r8nzq6injki.jpg" referrerpolicy="no-referrer">
+
+<strong>1654685034471.jpg</strong> (269.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 18:44 上传
+
+雷太的尺教授贺图。
+
+我也是只喜欢初始立绘，能看出是莫里亚蒂，后面两个小丑毫无美感...满破不错，但一想到剧情里那个下劣跳梁就觉得中二...
+
+这件拼图大衣挺有趣的，如果能出周边就好了...
+
+
+
+*****
+
+####  Jamaisvu  
+##### 88315#       发表于 2022-6-8 18:57
+
+看到有人给ruler莫里亚蒂起了个外号：茉莉，莫里亚蒂•liliy<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我自己是管他叫幼教的，不过茉莉不错，挺好听，有种年轻小受的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 88316#       发表于 2022-6-8 18:58
+
+ 本帖最后由 eilot 于 2022-6-8 18:59 编辑 
+
+90石
+
+張角 x 2
+
+don don don donki x 1
+
+海盜船長 x 1
+
+沒石了
+
+
+
+*****
+
+####  angelooo  
+##### 88317#       发表于 2022-6-8 19:03
+
+<blockquote>Jamaisvu 发表于 2022-6-8 18:57
+看到有人给ruler莫里亚蒂起了个外号：茉莉，莫里亚蒂•liliy
+
+我自己是管他叫幼教的，不过茉莉不错 ...</blockquote>
+茉莉挺好的23333
+
+
+
+*****
+
+####  angelooo  
+##### 88318#       发表于 2022-6-8 19:28
+
+我又要落井下石了，不考虑强度的话，白峰的大白鹅卡面摸成什么样了，川口的张角又是什么样，换了个片场继续被吊打哈哈
+
+
+
+*****
+
+####  Jamaisvu  
+##### 88319#       发表于 2022-6-8 19:56
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 19:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56178674&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 19:28</a>
+
+我又要落井下石了，不考虑强度的话，白峰的大白鹅卡面摸成什么样了，川口的张角又是什么样，换了个片场继续 ...</blockquote>
+官漫mortalis:stella和turas réalta吗？我感觉白峰的画风更美型一些，毕竟乙女向画师，画过刀男。不过珀西瓦尔确实从一到四毫无惊喜，就是个高达在那里杵着。
+
+张角虽然画风古旧，但惊艳之处着实不少。
+
+记得白峰是因为身体不好，所以画得很慢。而且貌似跟看过FGOM的川口相比，并不太了解原作设定，没啥创新甚至有些OOC...
+
+当然最著名的还是给汉化组留的白屏作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  angelooo  
+##### 88320#       发表于 2022-6-8 20:00
+
+<blockquote>Jamaisvu 发表于 2022-6-8 19:56
+官漫mortalis:stella和turas réalta吗？我感觉白峰的画风更美型一些，毕竟乙女向画师，画过刀男。
+
+不过 ...</blockquote>
+漫画一开始是这样的，大家都疯狂吐槽川口的崩坏画面，但随着川口这边剧情推进和白峰的缓慢更新，形势整个反了过来，不说漫画的话，大白鹅的卡面确实摸的可以，我当时觉得这最多就一个三星水平，然后发现是白峰画的我眼珠子都掉了，毕竟白峰的官漫唯一可称道的就是画风了
+
+
+
+*****
+
+####  qixinno2  
+##### 88321#       发表于 2022-6-8 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三发十连就一个堂吉诃德 连一个张角都没抽到 没石头了
+
+*****
+
+####  gpx234mqx  
+##### 88322#       发表于 2022-6-8 20:05
+
+意思意思抽了2把，4星1<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+还有230石，等泳装了
+
+PU2很弱呢
+
+*****
+
+####  Jamaisvu  
+##### 88323#       发表于 2022-6-8 20:14
+
+ 本帖最后由 Jamaisvu 于 2022-6-8 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179217&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 20:00</a>
+
+漫画一开始是这样的，大家都疯狂吐槽川口的崩坏画面，但随着川口这边剧情推进和白峰的缓慢更新，形势整个 ...</blockquote>
+白峰第一次负责FGO相关画作应该是白情印度双子那个神性特攻礼装，我当时很喜欢就直接换了。
+
+不过很遗憾他竟然以大白鹅这种立绘正式踏入月世界<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+其实珀西瓦尔实装贺图画得还是蛮好的，如果能替换下现在这个满破就更赞了：
+
+<img src="https://img.saraba1st.com/forum/202206/08/201554b7z8d5wde6dbwlt8.jpg" referrerpolicy="no-referrer">
+
+<strong>388b7b1d834941b3fedb76704b2b03e5151a3ed7_raw.jpg</strong> (440.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 20:15 上传
+
+*****
+
+####  黑上シグマ  
+##### 88324#       发表于 2022-6-8 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及能与其相提并论的新宿阵容：老头，刺青半裸男，和无头男+狼
+
+
+
+*****
+
+####  angelooo  
+##### 88325#       发表于 2022-6-8 20:20
+
+<blockquote>Jamaisvu 发表于 2022-6-8 20:14
+白峰第一次负责FGO相关画作应该是白情印度双子那个神性特攻礼装，我当时很喜欢就直接换了。
+
+不过很遗憾他 ...</blockquote>
+这倒是你游画师正常操作了，卡面摸鱼贺图出力，给我印象最深刻的是石田的兔子王，这可是五星，卡面突出一个摸字，我看到贺图的兔女郎画那么好看再看那敷衍得不行的满破气得饭都要吃不下了233
+
+*****
+
+####  Jamaisvu  
+##### 88326#       发表于 2022-6-8 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179629&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-8 20:15</a>
+
+推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+
+以及能与其相提并论的新宿阵容： ...</blockquote>
+这章的最终BOSS是福尔摩斯的宿敌掺杂了其他存在；
+
+这章里有一个反派役通过让自己失忆隐藏在主角团中，真相揭露后打了一架就退场；
+
+这章有个讨人喜欢的女角色，队友有一个法国女和一个叫什么II世的生物；
+
+这章的卡池里有配卡三蓝的最终BOSS、带着坐骑的绿宝具幻灵和一个绿宝具中国从者；
+
+这章最后出现了一个失踪已久的前文伏笔；
+
+这章是东出佑一郎负责的；
+
+请问这是哪一章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 88327#       发表于 2022-6-8 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179743&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-8 20:20</a>
+
+这倒是你游画师正常操作了，卡面摸鱼贺图出力，给我印象最深刻的是石田的兔子王，这可是五星，卡面突出一 ...</blockquote>
+有些画师到了FGO真的是日复一日、肉眼可见的摸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以我仔细端详了罗兰的立绘后不由得感叹，幸好是压稿<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 88328#       发表于 2022-6-8 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179629&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-8 20:15</a>
+
+推上都在吐槽这次的PU阵容：老头，老头，和年轻时候的老头
+
+以及能与其相提并论的新宿阵容： ...</blockquote>
+给个标签
+
+
+
+*****
+
+####  yzj134100  
+##### 88329#       发表于 2022-6-8 22:51
+
+两个10连来了教授和赛马娘，这期就这样吧
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 88330#       发表于 2022-6-8 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56179278&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-8 20:01</a>
+
+三发十连就一个堂吉诃德 连一个张角都没抽到 没石头了</blockquote>
+欧羡慕 张角有个猫用 以后友情就能出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  gpx234mqx  
+##### 88331#       发表于 2022-6-8 23:10
+
+飞嫂加大量语音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+飞哥真爱，破坏力惊人<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+不输给隔壁那对夫妻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88332#       发表于 2022-6-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-8 22:56</a>
+
+欧羡慕 张角有个猫用 以后友情就能出</blockquote>
+友情池抽抽就有了不用急
+
+先准备好大量灰<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 88333#       发表于 2022-6-8 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182461&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-8 23:10</a>
+
+飞嫂加大量语音
+
+飞哥真爱，破坏力惊人</blockquote>
+这操作给我看傻了，合着之前所谓冷暴力全特么骗人的，御主一撮合直接缴械了
+
+这次已经抽不动了，下次还是选一个吧，玩得好一手先抑后扬
+
+
+
+*****
+
+####  xiongxingyu  
+##### 88334#       发表于 2022-6-8 23:53
+
+这飞嫂根本就是被会长攻略之后的辉夜，2.65发糖之后智商呈断崖式下跌，甚至出现了幼儿化的症状<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  exiaexa  
+##### 88335#       发表于 2022-6-9 00:02
+
+说起飞嫂，选古贺葵真是捡到鬼了
+歇斯底里得非常彻底，nmd打剧情的时候红卡那声音，我一度以为是不是我手机外放坏了，全程在破音
+
+当年破音姬都没让我怀疑过是我的设备问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 88336#       发表于 2022-6-9 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">eod的堂吉诃德+赫克托尔的性格大概就是我想像的堂吉诃德了
+
+再来个狂阶,宝具红单体,触发巨大特攻后眩晕切换到后三排
+
+这赛马娘桑丘的看着确实有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88337#       发表于 2022-6-9 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-8 22:56</a>
+
+欧羡慕 张角有个猫用 以后友情就能出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为怪东西专精竟然没出教授和张角我不服 难道这俩很强么
+
+
+
+*****
+
+####  DARKGRAY  
+##### 88338#       发表于 2022-6-9 00:10
+
+肯花20年报仇就证明生前还是满意的，只是听见是自杀才以为不爱，现在知道爱了那不爽翻了，所以265过后连英灵座本体的狂战标准肯定都得大反转吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 88339#       发表于 2022-6-9 00:19
+
+抽飞嫂出了半裸男，无氪没石头了，还想抽唐吉诃德，起码这个歪的几率小点，飞嫂下次自选吧，家里CP就切嗣太太一对，其他都只有一半，气死偶咧！<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+古贺葵第一次认识是红烧天堂的TAMA，那个鬼叫给我留下了深刻印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  黑上シグマ  
+##### 88340#       发表于 2022-6-9 00:20
+
+遗憾的是飞哥没有追加对飞嫂语音
+
+今年肯定没戏，明年泳装活动出个飞嫂吧，正好飞哥有灵衣，我要看这俩人秀恩爱
+
+
+
+*****
+
+####  希望之花  
+##### 88341#       发表于 2022-6-9 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">堂吉诃德二宝，勉强可以上场了
+
+主要这家伙是小时候第一本完整啃完的外国名著，改成马娘元素+卡密油声优简直好得不行
+
+
+
+*****
+
+####  黑上シグマ  
+##### 88342#       发表于 2022-6-9 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说君11和堂吉诃德单挑那里修正了，之前明明说是单挑，战斗动画却是君11指挥大部队开炮www
+
+
+
+*****
+
+####  風卷豹  
+##### 88343#       发表于 2022-6-9 08:57
+
+改了也没啥用，君11这次就是全面垫脚石，论气概和人物描写垫给唐吉坷德，论战力垫给夏露露和源为朝，论CP垫给飞哥飞嫂，甚至立绘也是这次最摸的那档<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UNISONIA  
+##### 88344#       发表于 2022-6-9 09:13
+
+这次的设定担当大概是：
+
+东出：君11、夏露露、罗兰、飞嫂、小教授、堂吉诃德
+
+水濑：张角
+
+樱井：杂贺、为朝
+
+月球的杂贺孙市设定估计和哈桑一样是个称号了，代代相传的
+

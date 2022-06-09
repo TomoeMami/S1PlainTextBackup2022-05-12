@@ -15840,3 +15840,397 @@ WT就算了，能死两个不错了
 
 索隆的事情讲不清楚其实也好理解 为了下个篇章开挂做准备
 
+
+
+*****
+
+####  mashav  
+##### 58361#       发表于 2022-6-8 18:36
+
+补充情报看麻了，WT是该休息下…
+
+
+
+*****
+
+####  SY.Autumnman  
+##### 58362#       发表于 2022-6-8 19:00
+
+桃之助要是能立刻和玉田一族撇清关系，并当众承认真名飞鸟桃之助那我就相信整个和之国篇所有的不合理其实都是小魔女在后面作祟。要是能再画点小魔女的彩蛋那把他当做信子的跨世纪大作也不是不行，劝尾田好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Piano-Forest  
+##### 58363#       发表于 2022-6-8 19:13
+
+休載期間明けの7月25日(月)発売
+
+『週刊少年ジャンプ』34号より
+
+ONEPIECE は最終章へ突入します。
+<img src="https://p.sda1.dev/6/4b3d5ddc6ad52f4f2b0b5e534f3b81dc/20220608_191212.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/6efebb98e9ce80feae12bba5daf924a0/20220608_191216.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  陶矢  
+##### 58364#       发表于 2022-6-8 19:18
+
+真的最终章了呀，这下不烂尾都不行了，让我想到搞笑漫画日和里的剑圣大和<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 58365#       发表于 2022-6-8 19:24
+
+希望这次至少剧情角色加减法协调一点吧。
+
+
+
+*****
+
+####  Yeaha123  
+##### 58366#       发表于 2022-6-8 21:03
+
+最终章也可以画个20年
+
+*****
+
+####  free  
+##### 58367#       发表于 2022-6-8 21:09
+
+<img src="https://img.saraba1st.com/forum/202206/08/210929tidi591xqmiqxwmk.jpg" referrerpolicy="no-referrer">
+
+<strong>OP.jpg</strong> (301.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-8 21:09 上传
+
+
+
+*****
+
+####  赤魔法师  
+##### 58368#       发表于 2022-6-8 21:12
+
+这么一看德岛和和国的故事真的能压缩下水分
+
+*****
+
+####  苟富贵daze  
+##### 58369#       发表于 2022-6-8 21:14
+
+和之国篇真的是又臭又长<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火华火华火  
+##### 58370#       发表于 2022-6-8 21:17
+
+和之国这最后又变成开明君主制了，我还以为尾田把御田和桃之助画的这么惹人厌能搞一次走向共和
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  小野寺熊介  
+##### 58371#       发表于 2022-6-8 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不出意外最后最终章肯定也是大场面，而且规模恐怕是顶上三倍，和之国两倍保底……
+
+大船团是肯定会出来的，然后是黑胡子，这俩基本上是板上钉钉的，除此之外可能还有伊姆一方的势力
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在这个点上，肯定还有红团和革命军的戏份，最终章人数真是多到一想就非常非常非常可怕的地步。
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">以我对尾田现在的信心，真的很难对他抱以信赖处理好这么多人这么多势力了……
+
+*****
+
+####  逸yi  
+##### 58372#       发表于 2022-6-8 21:25
+
+所以能开新楼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  saturnus  
+##### 58373#       发表于 2022-6-8 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56180783&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-8 21:12</a>
+这么一看德岛和和国的故事真的能压缩下水分</blockquote>
+你忘了又臭又长的鱼人岛了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满月诗篇  
+##### 58374#       发表于 2022-6-8 21:37
+
+终章起码也要5年20多卷吧
+
+
+
+*****
+
+####  Algie  
+##### 58375#       发表于 2022-6-8 21:42
+
+这最终章进入得太草率了，简直有种摆烂的感觉，亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Algie  
+##### 58376#       发表于 2022-6-8 21:44
+
+这最终章进入得太草率了，简直有种摆烂的感觉，亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Algie  
+##### 58377#       发表于 2022-6-8 21:52
+
+暴论：海贼王这种完结方式算是腰斩了（确信）
+
+毕竟之前大家说海贼烂尾的时候有人说这叫烂腰呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  angelooo  
+##### 58378#       发表于 2022-6-8 22:03
+
+进终章又不是几个月之内就完结，这种超巨大的长篇不搞个几年完结不了的，顺便我第一次看到“最终之海·新世界篇”的宣传是在差不多2年后开场那里，现在距离那时候都多少年了才刚进终章呢23333
+
+*****
+
+####  owada  
+##### 58379#       发表于 2022-6-8 22:07
+
+最终章,然后分个二十篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 58380#       发表于 2022-6-8 22:17
+
+提醒下，和之国篇画了三年半。
+
+
+
+*****
+
+####  24k纯帅  
+##### 58381#       发表于 2022-6-8 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56181825&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-8 22:17</a>
+
+提醒下，和之国篇画了三年半。</blockquote>
+提醒下, 只要没出航就还是和之国篇
+
+*****
+
+####  赤魔法师  
+##### 58382#       发表于 2022-6-8 22:18
+
+还有一百五十话 能画四年
+
+*****
+
+####  yeluffy  
+##### 58383#       发表于 2022-6-8 22:56
+
+最终章，怎么也得和之国差不多两倍时间吧，6年吧
+
+*****
+
+####  绝赞販売中  
+##### 58384#       发表于 2022-6-8 23:05
+
+和国篇让我确信尾田性格有缺陷.排除憨批殿下，其实很多人都是铺垫到了该发盒饭但是他舍不得.角色有自己的剧情逻辑，该怎么样顺理成章会怎么样.尾田就是自己的喜恶在作怪.
+同样的情节反复打怪，鬼灭始终能给人紧张感就是你觉得角色会有危机.海贼最被津津乐道的就是前期，后面成了套路知道主角团不会死也就算了，配角团也是.然后稀里糊涂弄死两个人来凑数.自然观感大幅度下滑.我甚至都感受到当年千神支配打工魔王的感觉了
+
+*****
+
+####  icewolf01  
+##### 58385#       发表于 2022-6-8 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56170304&amp;ptid=98922" target="_blank">谢皮利男爵 发表于 2022-6-8 10:13</a>
+
+9侠应该全死 分阶段死
+
+第一波让圣母小菊段手而亡 以显凯多威严 猫狗力战杰克一死一伤 伤的被凯多扑刀 靠船 ...</blockquote>
+河松？和狐狸一起回去守灵就行了，反正没什么存在感
+
+*****
+
+####  plok201  
+##### 58386#       发表于 2022-6-8 23:17
+
+最终章5年保底吧，甚至感觉这个最终章是转移大家讨论和之国结局的手段，现在比起讨论和之国的坑，大家都在畅想要怎么搞结局了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 58387#       发表于 2022-6-8 23:20
+
+一。
+
+*****
+
+####  仟音一心  
+##### 58388#       发表于 2022-6-8 23:20
+
+②。
+
+
+
+*****
+
+####  angelooo  
+##### 58389#       发表于 2022-6-8 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182414&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2022-6-8 23:05</a>
+
+和国篇让我确信尾田性格有缺陷.排除憨批殿下，其实很多人都是铺垫到了该发盒饭但是他舍不得.角色有自己的剧 ...</blockquote>
+最新情报我们的新将军又去调戏草帽团的小姐姐们了，那两个人的头七过了没
+
+不想杀角色的话干脆和以前一样别杀了，现在人死了还在整这些搞笑日常，到底死了有什么意义
+
+*****
+
+####  klzxs  
+##### 58390#       发表于 2022-6-8 23:35
+
+本来也都知道要收尾了
+
+一般也就猜测终章前还有个巨人国会是单独篇章
+
+现在看来是整合在一起了
+
+目前读者比较关心的一个是绿牛一个是新赏金吧
+
+*****
+
+####  uponutopia  
+##### 58391#       发表于 2022-6-8 23:39
+
+坑挖那么多一个没填，这就最终章了？ <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 酱铺一个时代的终结，由OP的烂尾给它立上墓碑
+
+*****
+
+####  yeluffy  
+##### 58392#       发表于 2022-6-8 23:40
+
+打败四皇加有尼卡果实，路飞怎么也得上50亿赏金了吧
+
+
+
+*****
+
+####  thomaszyj  
+##### 58393#       发表于 2022-6-8 23:48
+
+整个和之国最大的问题就在于九侠的戏份安排，其实被凯多灭掉以后退场是最好的安排。那一次不仰卧起坐的话，之后的戏份安排会更加简洁清晰，不会为了九侠牺牲其他人。
+
+打个比方，德雷克+阿普打cp0，本来可以描写成两大超新星的全力一战，结果直接略过，阿普的重低音和德雷克兽人大招都没用就没戏份了，最后把人头给了以藏。
+
+霍金斯明明还藏有塔罗牌的大招，也没展现就输了。草帽团的乌索普，乔巴，布鲁克三人划水，一个干部都没有(蛮霸者不算，和小兵一起直接被秒)。而九侠这边，分别是杰克，长子，堪十郎，雷藏的对手，和一个cp0，五个干部级别的人头，简直是浪费。这些分出来给草帽团和超新星的话，会多有意思。
+
+只能说和之国主次完全不分，以往篇章中草帽团是战斗主力，在和之国这种总体站，居然有三个人当了拉拉队，之前仔细刻画的超新星，其中两个也没啥表现。反倒是九侠，从头贯穿至尾，全程高光。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  thomaszyj  
+##### 58394#       发表于 2022-6-8 23:49
+
+整个和之国最大的问题就在于九侠的戏份安排，其实被凯多灭掉以后退场是最好的安排。那一次不仰卧起坐的话，之后的戏份安排会更加简洁清晰，不会为了九侠牺牲其他人。
+
+打个比方，德雷克+阿普打cp0，本来可以描写成两大超新星的全力一战，结果直接略过，阿普的重低音和德雷克兽人大招都没用就没戏份了，最后把人头给了以藏。
+
+霍金斯明明还藏有塔罗牌的大招，也没展现就输了。草帽团的乌索普，乔巴，布鲁克三人划水，一个干部都没有(蛮霸者不算，和小兵一起直接被秒)。而九侠这边，分别是杰克，长子，堪十郎，雷藏的对手，和一个cp0，五个干部级别的人头，简直是浪费。这些分出来给草帽团和超新星的话，会多有意思。
+
+只能说和之国主次完全不分，以往篇章中草帽团是战斗主力，在和之国这种总体站，居然有三个人当了拉拉队，之前仔细刻画的超新星，其中两个也没啥表现。反倒是九侠，从头贯穿至尾，全程高光。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  绝赞販売中  
+##### 58395#       发表于 2022-6-8 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182708&amp;ptid=98922" target="_blank">angelooo 发表于 2022-6-8 23:32</a>
+最新情报我们的新将军又去调戏草帽团的小姐姐们了，那两个人的头七过了没
+
+不想杀角色的话干脆和以前一样 ...</blockquote>
+这就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">尾田就是什么他都要.上次干这种蠢事风评全无的还是猩猩.死了那么多人，日常都画不起来了.像龙珠一样干脆淡化死亡或者像鬼灭一样坦然面对死亡他都做不到，缝合在一起就是这种难以理解的剧情了.
+另外按照情报来看，可能刚好头七就在耍流氓了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">另外对于桃子来说他爹妈死了可能也才刚过百日
+
+*****
+
+####  klzxs  
+##### 58396#       发表于 2022-6-8 23:57
+
+乌索普在和之国是有点水
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">乔巴绝对是mvp之一啊
+
+救人，做药，还抗了一阵子奎恩
+
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58397#       发表于 2022-6-9 01:53
+
+配合路飞5月5日的生日，赏金来个55亿5555万5555吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58398#       发表于 2022-6-9 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56182904&amp;ptid=98922" target="_blank">thomaszyj 发表于 2022-6-8 23:49</a>
+整个和之国最大的问题就在于九侠的戏份安排，其实被凯多灭掉以后退场是最好的安排。那一次不仰卧起坐的话， ...</blockquote>
+九虾多拿几个人头，窃取胜利果实名正言顺多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tornadoDA  
+##### 58399#       发表于 2022-6-9 05:06
+
+火影后期犯的病海贼要变本加厉的犯，犯到粉丝都不买账，作者亲爹毁剧情，重要配角沦为杂鱼，搞宿命论，就看最后会不会也搞个辉夜家族出来，一个想象中浩大的忍者世界塌缩成一场家庭闹剧，不过好在海贼那么多个岛屿也刻画过了，再差劲也不会太小家子气
+
+
+
+*****
+
+####  天使的日曜日  
+##### 58400#       发表于 2022-6-9 08:47
+
+果然随随便便就搪塞过去了
+以前路飞打赢boss倒下去还会解释一下，太累啊，新能力对身体负荷太大啊
+现在觉醒尼卡形态打赢海上皇帝一点副作用都没有？
+还有索隆那边看到死神后就一直躺到结尾生死不明，受伤那么重也没提一下，死神是什么也还不知道
+直接过渡到七天后两人活蹦乱跳恢复原状<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
