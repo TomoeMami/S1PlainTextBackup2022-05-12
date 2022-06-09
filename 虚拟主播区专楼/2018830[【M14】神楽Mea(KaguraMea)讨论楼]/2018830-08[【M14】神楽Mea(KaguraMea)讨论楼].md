@@ -8843,3 +8843,19 @@ ybbybb
 
 看了下fafa的切片，原来你们那天说的整活是这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11362#       发表于 2022-6-9 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56199145&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2022-6-9 23:05</a>
+
+雨音月奈刚才说她今天早上又看见mea在打lol，看来这吊人下播后也没闲着（</blockquote>
+不用转发luna说的东西了，mea打不打lol都看得见，直播完打了一把狐狸匹配而已。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+讲道理那是她的私人账号，反正我们这些粉丝说说就算了，大家心照不宣。
+
+luna同志作为直播员讲这个真的不好。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
