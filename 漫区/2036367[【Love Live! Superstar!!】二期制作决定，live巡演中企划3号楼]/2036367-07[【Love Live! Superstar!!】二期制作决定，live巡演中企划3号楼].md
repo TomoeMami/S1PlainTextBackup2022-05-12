@@ -5319,3 +5319,33 @@ Liella! 2期生 卷中写真特辑
 
 看这样子，越来越感觉官方的运营思路是5+4人的Liella!了
 
+
+
+*****
+
+####  ads147147  
+##### 9474#       发表于 2022-6-9 14:44
+
+那啥，阿b的fmt链接谁发一下，我用国际版app找半天没看到买票点。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 9475#       发表于 2022-6-9 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56191387&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-9 14:44</a>
+
+那啥，阿b的fmt链接谁发一下，我用国际版app找半天没看到买票点。。
+
+—— 来自 Xiaomi 2106118C, Android  ...</blockquote>
+[https://live.bilibili.com/blackboard/activity-1lovelive2022I.html](https://live.bilibili.com/blackboard/activity-1lovelive2022I.html)
+
+*****
+
+####  lj205  
+##### 9476#       发表于 2022-6-9 14:45
+
+我觉得到动画开播前暂时按5+4宣传，因为4个人那边需要单独曝光增加观众对她们的印象，毕竟到动画开播前，星团的演出还是5人名义
+
