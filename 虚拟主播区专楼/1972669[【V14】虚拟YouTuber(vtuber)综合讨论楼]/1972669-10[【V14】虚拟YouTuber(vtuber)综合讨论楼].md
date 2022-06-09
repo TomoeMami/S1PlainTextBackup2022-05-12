@@ -13574,3 +13574,51 @@ bora大亏noah梦幻阵容
 卫生习惯可见一斑</blockquote>
 蛀了九颗牙的现身说法……一天刷两次还用漱口水仍然改变不了，牙医说我牙质天生就不好，没办法
 
+
+
+*****
+
+####  Ketestrait  
+##### 14819#       发表于 2022-6-9 22:51
+
+ 本帖最后由 Ketestrait 于 2022-6-9 22:54 编辑 
+
+小魔王终于画到最后一人slm了，然后slm就出现在了评论栏，将同接推上一万，这就是德配其位吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl
+
+小魔王已经准确掌握了烤香肠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  古战场亡魂  
+##### 14820#       发表于 2022-6-9 22:54
+
+ 本帖最后由 古战场亡魂 于 2022-6-9 22:57 编辑 
+
+然后画了莎皇昨天吃的烤肠。只能说还不够会玩，你画个莎皇坐在椅子上身前摆个冰柜和烧烤摊，烤烤肠多好。
+
+
+
+*****
+
+####  Ketestrait  
+##### 14821#       发表于 2022-6-9 22:58
+
+<blockquote>ご協力いただいたにじさんじの皆様
+
+@オリバー・エバンス / Oliver Evans 【にじさんじ】
+
+@Petra Gurin【NIJISANJI EN】  
+
+ぜひチャンネルをご覧になってくださいですわ</blockquote>
+
+嗯？？今天这个英语学习还得到了教授和Petra的协助，是怎么个学法<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 14822#       发表于 2022-6-9 22:58
+
+虽然停两周活动有点太严了，不过在推上晒dc截图抱怨同箱同事确实是犯大错，被孤立也很正常…
+
