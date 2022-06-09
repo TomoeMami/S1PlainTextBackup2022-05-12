@@ -13030,3 +13030,20 @@ Rain drops。
 
 惊闻田角已经700亿日元身家了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 14766#       发表于 2022-6-9 11:02
+
+<img src="https://img.saraba1st.com/forum/202206/09/110143jh6eepl66e66n9zs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B847FFA4-3D61-4DED-8379-99747E0382F5.jpeg</strong> (449.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-9 11:01 上传
+
+初值定在了4810，目前上午收盘涨到了5470，又涨了15%
+

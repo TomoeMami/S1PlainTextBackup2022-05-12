@@ -5083,3 +5083,51 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Totokei  
+##### 9455#       发表于 2022-6-9 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187173&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-9 10:59</a>
+反正昨晚下来，除了铃原好软，好大和抚子以外啥也没记住。彩妹妹被发型拖后腿了，难怪之前各种营业。
+
+不过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以第三季凑满了12人再放
+
+*****
+
+####  starring  
+##### 9456#       发表于 2022-6-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187173&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-9 10:59</a>
+反正昨晚下来，除了铃原好软，好大和抚子以外啥也没记住。彩妹妹被发型拖后腿了，难怪之前各种营业。
+
+不过 ...</blockquote>
+答案是弄个9人ver.始空，三期12人ver.
+既不用重新编曲又能重新卖两次
+
+*****
+
+####  cybernetics31  
+##### 9457#       发表于 2022-6-9 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画现在debuff堆满，指望不了staff的，本身就被企划带上了脚链
+
+*****
+
+####  光宗薫  
+##### 9458#       发表于 2022-6-9 11:11
+
+红蓝居然都是中性声线，所以明明是百合却有种bl的感觉
+
+*****
+
+####  player3960  
+##### 9459#       发表于 2022-6-9 11:11
+
+光口头上香不香的，日本那边先把fmt的票多卖点出去再说吧，现在票卖的不是很乐观啊，这11场填满可不是个容易事。
+
+另外我等星期六去b站买fmt的票，看看到时候序号多少，估一下b站卖了多少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

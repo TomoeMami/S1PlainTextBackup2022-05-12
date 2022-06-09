@@ -15660,3 +15660,13 @@ PU2很弱呢
 
 月球的杂贺孙市设定估计和哈桑一样是个称号了，代代相传的
 
+
+
+*****
+
+####  johnkamsar  
+##### 88345#       发表于 2022-6-9 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">教授眼影好特么怪….
+顺便两个教授会互相吐槽
+
