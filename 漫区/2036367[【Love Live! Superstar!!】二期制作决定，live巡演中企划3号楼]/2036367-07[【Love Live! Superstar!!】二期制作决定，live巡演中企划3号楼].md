@@ -5227,3 +5227,60 @@ B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有
 星信「ニコ生すげえ！キャ ...</blockquote>
 ニコニコ：你们这些家伙，总让我产生了自己没凉的错觉
 
+
+
+*****
+
+####  D麦林  
+##### 9470#       发表于 2022-6-9 13:45
+
+ 本帖最后由 D麦林 于 2022-6-9 13:48 编辑 
+
+谁让油管没有赛后评分环节 现在连点踩都不显示了 要斗好评率可不只有ニコニコ了吗
+
+不过话又说回来了 满足数字斗蛐蛐爱好者又不会让他们多掏钱 反过来却真能满足大金主和广告商
+搞商业这块还是谷哥上道
+
+*****
+
+####  仟音一心  
+##### 9471#       发表于 2022-6-9 13:49
+
+PayD
+
+<img src="https://img.saraba1st.com/forum/202206/09/134918pa9penbxmaxpnxwa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>13520CC1-ABEF-4DA2-8B42-9CEE2CEF54B9.jpeg</strong> (534.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/09/134925pofpxl7y9o9od7l9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C937BD7-5709-4F63-AB2E-ED1AE47AFE3E.jpeg</strong> (617.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/09/134932t9z85q92825q50kz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>27598FC2-D000-439B-8560-172C0A3F978E.jpeg</strong> (688.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/09/134938q84ldape44ynelv5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>06649755-294E-4C82-9339-226CDB919D1A.jpeg</strong> (656.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 13:49 上传
+
