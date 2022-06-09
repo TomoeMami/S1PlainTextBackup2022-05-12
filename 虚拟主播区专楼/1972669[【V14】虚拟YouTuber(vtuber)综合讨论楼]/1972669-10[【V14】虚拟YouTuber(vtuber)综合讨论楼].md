@@ -13622,3 +13622,35 @@ syl
 
 虽然停两周活动有点太严了，不过在推上晒dc截图抱怨同箱同事确实是犯大错，被孤立也很正常…
 
+
+
+*****
+
+####  zhangruiy  
+##### 14823#       发表于 2022-6-9 23:11
+
+莎皇最近这表现是开始引流了？
+
+*****
+
+####  帆刈叶  
+##### 14824#       发表于 2022-6-9 23:11
+
+真倒霉啊，我还是倾向于发里垢开错号了
+
+Noah要不就和ABO绑定吧，效果挺好的，远离勾心斗角的女人箱。或者找Nrk这种痴女组合也行，当初sio出事Nrk都还帮说话，更别说这点误爆了。
+
+*****
+
+####  rzrbtk  
+##### 14825#       发表于 2022-6-9 23:18
+
+伊甸2/5了，我预感莎天酱接下来将会和两个枪男APEX，最后和豆猫一起画画<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 14826#       发表于 2022-6-9 23:19
+
+ABO明天就和师匠旧情复燃了呢，Noah是谁不是很熟呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

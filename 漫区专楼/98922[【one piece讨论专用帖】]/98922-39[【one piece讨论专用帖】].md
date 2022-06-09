@@ -16553,3 +16553,14 @@ ONEPIECE は最終章へ突入します。
 战前作为光月的象征拉人，战斗中被凯多逮 ...</blockquote>
 尾田对高光的理解可能和一般人不一样，他想表现桃之助的仁德，然后画成了右倾投降主义。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 58428#       发表于 2022-6-9 23:11
+
+ 本帖最后由 谁说法海不懂爱 于 2022-6-9 23:13 编辑 
+
+看你楼对桃的描述，我还以为看了不一样的海贼王.先把那个望之不似人君的德性改改吧。不上不下的，年龄还不如一开始就设定得大点，这个最终章会怎么展现这个和国最伟大将军的伟大之处我还挺好奇的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -5678,3 +5678,12 @@ mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如�
 mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如果是live版的鲤鱼姐配上轻音部我就有点爽。然 ...</blockquote>
 个人觉得reply歌出来的时候和我想的有点不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过词还是很好的
 
+
+
+*****
+
+####  lj205  
+##### 9507#       发表于 2022-6-9 23:12
+
+没看过bml ，一般一个人是唱几首？
+
