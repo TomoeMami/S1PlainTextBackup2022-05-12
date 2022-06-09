@@ -5603,3 +5603,25 @@ pay酱164</blockquote>
  啊，pay有这么高了啊，这是啥时候的数据</blockquote>
 刚成团的时候她就164呀，那会就有人在说只有她和鲤鱼站一起不突兀
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9500#       发表于 2022-6-9 22:13
+
+ 本帖最后由 aoaoaodedede 于 2022-6-9 22:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198481&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2022-6-9 22:12</a>
+
+刚成团的时候她就164呀，那会就有人在说只有她和鲤鱼站一起不突兀</blockquote>
+我记得一直好像说是158来着，刚看了看萌百，上面写的也是158，这个164除非是最近的测量身高，要么就是之前大家以为的那个身高是错的
+
+*****
+
+####  奥柏伦亲王  
+##### 9501#       发表于 2022-6-9 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198495&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-9 22:13</a>
+ 我记得一直好像说是158来着，刚看了看萌百，上面写的也是158，这个164除非是最近的测量身高，要么就是之前 ...</blockquote>
+对我刚才又去查了下写的是158……也不排除我记错了？但总觉得一开始介绍身高的时候就提过她164<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算了既然没根据那可能真的是我搞混了，不好意思误导了
+
