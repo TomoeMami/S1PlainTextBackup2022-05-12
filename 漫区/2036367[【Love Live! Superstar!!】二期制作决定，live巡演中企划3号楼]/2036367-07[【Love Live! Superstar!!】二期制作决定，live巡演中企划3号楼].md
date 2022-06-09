@@ -5625,3 +5625,12 @@ pay酱164</blockquote>
  我记得一直好像说是158来着，刚看了看萌百，上面写的也是158，这个164除非是最近的测量身高，要么就是之前 ...</blockquote>
 对我刚才又去查了下写的是158……也不排除我记错了？但总觉得一开始介绍身高的时候就提过她164<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算了既然没根据那可能真的是我搞混了，不好意思误导了
 
+
+
+*****
+
+####  lj205  
+##### 9502#       发表于 2022-6-9 22:29
+
+佩佩158，不排除去年练舞又长高了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

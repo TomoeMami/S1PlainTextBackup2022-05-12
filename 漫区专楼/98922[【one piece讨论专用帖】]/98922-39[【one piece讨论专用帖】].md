@@ -16493,3 +16493,31 @@ ONEPIECE は最終章へ突入します。
 
 多给点高光时刻，大家顶多纠结一下年龄问题，不至于那么难受，现在真的像跳出来抢胜利果实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 58424#       发表于 2022-6-9 22:20
+
+ 本帖最后由 klzxs 于 2022-6-9 22:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">桃之助真的还可以了
+
+打是不能打，但需要他做的他都做到了
+
+战前作为光月的象征拉人，战斗中被凯多逮到了也没泄气，带着路飞去战场
+
+收尾拉住了鬼岛，以及战斗结束后的总结
+
+只说功劳比起很多角色都要多了
+
+不过可能就像楼上说的那样吧，没什么高光
+
+*****
+
+####  朗姆酒hentai  
+##### 58425#       发表于 2022-6-9 22:28
+
+ 狗屎和之国快点结束吧
+
