@@ -5645,3 +5645,36 @@ pay酱164</blockquote>
 对我刚才又去查了下写的是158……也不排除我记错了？但总觉得一开始介绍身高的时候就提过她164算 ...</blockquote>
 164是老王是身高，老王是全企划第二高，仅次于鲤鱼。
 
+
+
+*****
+
+####  starring  
+##### 9504#       发表于 2022-6-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198547&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2022-6-9 22:16</a>
+
+对我刚才又去查了下写的是158……也不排除我记错了？但总觉得一开始介绍身高的时候就提过她164算 ...</blockquote>
+之前直播有提到158好像是初中还是高中的身高，后来一直没有测量
+
+不过目测是长高了，比nako还高一点点
+
+*****
+
+####  靡宜  
+##### 9505#       发表于 2022-6-9 22:47
+
+<blockquote>aoaoaodedede 发表于 2022-6-9 22:02
+有点遗憾啊，个人对鲤鱼这边最喜欢几首曲子都不是MV曲或者是tie的单曲</blockquote>
+mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如果是live版的鲤鱼姐配上轻音部我就有点爽。然后是reply，这个单独听感觉差点，live听得有点可以
+
+*****
+
+####  aoaoaodedede  
+##### 9506#       发表于 2022-6-9 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198931&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-6-9 22:47</a>
+
+mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如果是live版的鲤鱼姐配上轻音部我就有点爽。然 ...</blockquote>
+个人觉得reply歌出来的时候和我想的有点不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过词还是很好的
+
