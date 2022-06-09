@@ -4997,3 +4997,15 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以5ch那边是啥反应
 
+
+
+*****
+
+####  adw667  
+##### 9446#       发表于 2022-6-9 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56184877&amp;ptid=2036367" target="_blank">we89623 发表于 2022-6-9 08:50</a>
+
+讲道理，太 “专业” 了只会给人油滑的演戏感，有点用力过度了。</blockquote>
+只会卡哇伊的女声优已经品鉴得够多了，还是多来点西明日香这样的疯子吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
