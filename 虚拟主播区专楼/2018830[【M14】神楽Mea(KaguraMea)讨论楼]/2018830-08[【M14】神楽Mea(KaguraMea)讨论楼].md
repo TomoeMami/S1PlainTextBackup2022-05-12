@@ -8859,3 +8859,12 @@ ybbybb
 
 luna同志作为直播员讲这个真的不好。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 11363#       发表于 2022-6-10 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我一直以为luna聊的是直播号
+
