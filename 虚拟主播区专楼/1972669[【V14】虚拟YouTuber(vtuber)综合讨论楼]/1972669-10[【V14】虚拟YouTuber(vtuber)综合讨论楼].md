@@ -13174,3 +13174,14 @@ YouTubeにて無料配信
 
 今晚有エマレイ德龙的渋カスタム
 
+
+
+*****
+
+####  古战场亡魂  
+##### 14779#       发表于 2022-6-9 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这几天又看到vtuber晒自己胸透的，有vup晒自己彩超的。只能说想要流量想疯了。不谈什么第一个天才第二个庸才第三个蠢材的问题。
+
+也不看看莎皇背后的资本。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
