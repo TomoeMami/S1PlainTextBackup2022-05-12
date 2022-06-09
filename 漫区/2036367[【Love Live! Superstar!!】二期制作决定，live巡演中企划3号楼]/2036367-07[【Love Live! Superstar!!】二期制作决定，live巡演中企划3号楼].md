@@ -4939,3 +4939,14 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 9440#       发表于 2022-6-9 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56183561&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-6-9 01:01</a>
+每次看pay的自拍我就想笑</blockquote>
+自拍水平提高了一点，去年那些自拍简直是pay黑拍的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
