@@ -5009,3 +5009,12 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 讲道理，太 “专业” 了只会给人油滑的演戏感，有点用力过度了。</blockquote>
 只会卡哇伊的女声优已经品鉴得够多了，还是多来点西明日香这样的疯子吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 9447#       发表于 2022-6-9 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说到辈先我还是忘不了矢作纱友里
+
