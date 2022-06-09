@@ -5732,3 +5732,33 @@ mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如�
 
 nagi这个头发果然是黑色带点蓝，好看，真顶<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 9511#       发表于 2022-6-10 00:29
+
+<blockquote>aoaoaodedede 发表于 2022-6-9 22:51
+个人觉得reply歌出来的时候和我想的有点不一样，不过词还是很好的</blockquote>
+我就是那种，个人live一路听下来的时候，边看歌词边听reply特别有感触，比直接听cd要🤧
+
+*****
+
+####  靡宜  
+##### 9512#       发表于 2022-6-10 00:31
+
+<blockquote>aoaoaodedede 发表于 2022-6-9 22:51
+个人觉得reply歌出来的时候和我想的有点不一样，不过词还是很好的</blockquote>
+我就是那种，个人live一路听下来的时候，边看歌词边听reply特别有感触，可能我有点滤镜，就是那种在诉说着自己的感觉，比直接听cd要🤧
+
+*****
+
+####  靡宜  
+##### 9513#       发表于 2022-6-10 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198979&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-9 22:51</a>
+
+个人觉得reply歌出来的时候和我想的有点不一样，不过词还是很好的</blockquote>
+我就是那种，个人live一路听下来的时候，边看歌词边听reply特别有感触，可能有点滤镜，就是有那种诉说自己的感觉。比直接听cd要<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">捏
+

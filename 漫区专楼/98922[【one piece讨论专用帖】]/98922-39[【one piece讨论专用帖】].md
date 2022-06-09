@@ -16590,3 +16590,17 @@ ONEPIECE は最終章へ突入します。
 
 桃子真的不错了，8岁小P孩而已，说桃之助必须死的都是LSP们的玩笑话罢了怎么还真有人当真了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58431#       发表于 2022-6-10 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56199916&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-6-10 00:17</a>
+
+https://www.bilibili.com/video/B ... 2d4e2c66b60cd6b56b1
+
+大和的怪异感，你楼也算说了不少了，这视频虽 ...</blockquote>
+这个视频笑死我了，投币了
+
