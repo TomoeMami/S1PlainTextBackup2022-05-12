@@ -5018,3 +5018,26 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说到辈先我还是忘不了矢作纱友里
 
+
+
+*****
+
+####  CharlieZ-  
+##### 9448#       发表于 2022-6-9 10:34
+
+昨天完了之后真香的人变多了吗，反正我是感觉差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9449#       发表于 2022-6-9 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看见漂亮点/有整活潜力的声优就开舔罢了，肯现在就为这四人花钱的还是少数
+
+*****
+
+####  甘蓝巧克力  
+##### 9450#       发表于 2022-6-9 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为不香的人除掉跑路说不了话，还有一些故意反串的垃圾外，要么不说话，要么说得很委婉
+
