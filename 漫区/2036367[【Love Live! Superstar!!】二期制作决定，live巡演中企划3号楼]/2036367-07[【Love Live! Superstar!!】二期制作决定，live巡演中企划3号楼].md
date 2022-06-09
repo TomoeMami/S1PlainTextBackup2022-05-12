@@ -5284,3 +5284,38 @@ PayD
 由手机上传
 2022-6-9 13:49 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 9472#       发表于 2022-6-9 14:36
+
+略快
+
+【杂志】
+
+ヤングジャンプ 2022 No.29
+
+发售时间：6月16日
+
+售价：410日元
+
+Liella! 2期生 卷中写真特辑 
+
+<img src="https://img.saraba1st.com/forum/202206/09/143618hffk1fpzvkfec0wb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4FC433CF-6B94-40C9-A922-EB94949300C9.jpeg</strong> (522.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-9 14:36 上传
+
+*****
+
+####  aoaoaodedede  
+##### 9473#       发表于 2022-6-9 14:40
+
+看这样子，越来越感觉官方的运营思路是5+4人的Liella!了
+
