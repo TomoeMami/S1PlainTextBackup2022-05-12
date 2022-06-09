@@ -5358,3 +5358,14 @@ Liella! 2期生 卷中写真特辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">开播后也得过很久才能看到演出吧。。。怎么也得等oped发售
 
+
+
+*****
+
+####  iuhehc  
+##### 9478#       发表于 2022-6-9 15:11
+
+我还真希望能5+4用一期生二期生名义活动，虽然不可能，总感觉二期要炒香音土妹的cp
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
