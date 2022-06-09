@@ -13368,3 +13368,21 @@ QQ图片20220609200922.png
 还以为这事没后续了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/b57afa15917a3c354692fb1b48915e70/34f27b53c50f9454.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 14796#       发表于 2022-6-9 20:51
+
+今天noah刚发了日程表，运营管的也太迟了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 14797#       发表于 2022-6-9 20:53
+
+关两周然后回来仍然被孤立是吧
+
+到现在还没有把露娜和noah按着头和解这也能算是炎上对策吗
+

@@ -5485,3 +5485,13 @@ Liella! 2期生 卷中写真特辑
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 9489#       发表于 2022-6-9 20:53
+
+今天没赶上广播和XR WORLD演出<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+话说今天这个歌单大概在BML上也会这么排，到时发型服装都跟团队那边差很远，好奇会怎么安排
+
