@@ -5552,3 +5552,23 @@ solo参加了线上Live热唱四首🤣<img src="https://p.sda1.dev/6/3a5cf210e9
 
 —— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  chichengjerry  
+##### 9495#       发表于 2022-6-9 21:56
+
+<blockquote>aoaoaodedede 发表于 2022-6-9 21:30
+确实，听了鲤鱼的live之后喜欢上的这首</blockquote>
+FC Event投票前五的就这首没唱了，但是吸引路人的拼盘一般会唱tie曲和mv曲，感觉还是难听到
+
+*****
+
+####  奥柏伦亲王  
+##### 9496#       发表于 2022-6-9 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56197667&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-6-9 21:07</a>
+ pay酱最近是不是长高了。看着感觉有160了</blockquote>
+pay酱164
+
