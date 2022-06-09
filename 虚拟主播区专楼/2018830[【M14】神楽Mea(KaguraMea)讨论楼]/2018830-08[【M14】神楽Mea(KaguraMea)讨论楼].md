@@ -8891,3 +8891,12 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
 有些东西还是分分清比较好。
 
+
+
+*****
+
+####  汇聚群光  
+##### 11365#       发表于 2022-6-10 01:12
+
+是我没说清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还没到查对方历史战绩的地步
+

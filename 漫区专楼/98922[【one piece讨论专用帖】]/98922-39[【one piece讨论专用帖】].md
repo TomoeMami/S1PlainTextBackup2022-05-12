@@ -16604,3 +16604,22 @@ https://www.bilibili.com/video/B ... 2d4e2c66b60cd6b56b1
 大和的怪异感，你楼也算说了不少了，这视频虽 ...</blockquote>
 这个视频笑死我了，投币了
 
+
+
+*****
+
+####  klzxs  
+##### 58432#       发表于 2022-6-10 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大和能活是因为她够强吧
+
+毕竟才能在那里，凯老师能留肯定还是想留
+
+虽然已经是很夸张的待遇了，但不至于动真格的去杀人
+
+对百兽的手下而言大和大概只是个麻烦的少爷
+
+凯老师和大和的具体纠葛应该不那么清楚
+
+到最后了那些人也没想过她是敌方阵营的
+
