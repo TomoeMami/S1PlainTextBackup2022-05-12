@@ -5762,3 +5762,15 @@ nagi这个头发果然是黑色带点蓝，好看，真顶<img src="https://stat
 个人觉得reply歌出来的时候和我想的有点不一样，不过词还是很好的</blockquote>
 我就是那种，个人live一路听下来的时候，边看歌词边听reply特别有感触，可能有点滤镜，就是有那种诉说自己的感觉。比直接听cd要<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">捏
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9514#       发表于 2022-6-10 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56200061&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-6-10 00:34</a>
+
+我就是那种，个人live一路听下来的时候，边看歌词边听reply特别有感触，可能有点滤镜，就是有那种诉说自 ...</blockquote>
+啊这，是编辑功能出问题了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

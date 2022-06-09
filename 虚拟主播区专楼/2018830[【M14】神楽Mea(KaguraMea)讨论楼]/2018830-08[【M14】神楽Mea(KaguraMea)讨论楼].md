@@ -8868,3 +8868,26 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我一直以为luna聊的是直播号
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11364#       发表于 2022-6-10 00:42
+
+ 本帖最后由 古战场亡魂 于 2022-6-10 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56200005&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-6-10 00:27</a>
+
+草，我一直以为luna聊的是直播号</blockquote>
+顺带luna同志直播用小号18天没玩了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+加mea私人账号的第二个小号7天没玩了，和mea就玩了一把还是十几天前的。
+
+然后她前世几百级的第三个账号改名藏起来了。
+
+讲道理真不用每次直播都拿opgg的情报来糊弄观众。
+
+你也玩凑巧遇上说说也就算了，或者私底下打个联机也没问题，现在搁着查历史战绩天天给b站观众汇报呢。凑阿夸同志在犬山凸待的时候说mea在打游戏，那也是mea用着直播号的。
+
+有些东西还是分分清比较好。
+
