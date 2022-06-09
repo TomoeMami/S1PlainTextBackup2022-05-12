@@ -5687,3 +5687,14 @@ mv曲比较喜欢轻音部的ambition，不过感觉那时候有点早了，如�
 
 没看过bml ，一般一个人是唱几首？
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9508#       发表于 2022-6-9 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198807&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-9 22:37</a>
+ 164是老王是身高，老王是全企划第二高，仅次于鲤鱼。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">确实应该是和老王搞混了…
+
