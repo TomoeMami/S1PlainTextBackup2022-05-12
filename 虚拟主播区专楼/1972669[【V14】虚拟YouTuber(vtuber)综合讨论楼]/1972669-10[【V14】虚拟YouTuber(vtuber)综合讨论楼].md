@@ -13512,3 +13512,28 @@ syl，noah咱们走，不跟这群小废物一起了
 
 丽是你vspo这几个月中位数同接第一 ema第二 胡桃和hnn差不多吧 基本这几个人应该算第一梯队吧 至于对箱功能那就不是我知道的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 14812#       发表于 2022-6-9 22:01
+
+露娜算是hnn一手带出来的。刚出道感觉一身的debuff，目光全被艾玛吸完了，还好人有趣，又有hnn和其他几个前辈愿意带<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kokichi  
+##### 14813#       发表于 2022-6-9 22:03
+
+闹大了之后箱外联动更有顾虑了……noah没什么特有的关系网，说是社外基本也就是各路大会的原队友。箱外原来更接近人脉转一圈两边都熟人不方便开口，现在真休止了为照顾自家粉丝观感可能就全冷处理了。
+
+最大的功能大概是apex枪力排面，公认有猎实力的大师。要是休止完引退去holo组出三人女大师vspo就没什么必要自称esport箱了。
+
+*****
+
+####  FCCHua  
+##### 14814#       发表于 2022-6-9 22:05
+
+未免也太快进了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

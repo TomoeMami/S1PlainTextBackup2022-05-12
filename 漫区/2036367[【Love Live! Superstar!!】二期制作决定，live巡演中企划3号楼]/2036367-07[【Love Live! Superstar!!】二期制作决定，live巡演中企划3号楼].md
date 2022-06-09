@@ -5572,3 +5572,34 @@ FC Event投票前五的就这首没唱了，但是吸引路人的拼盘一般会
  pay酱最近是不是长高了。看着感觉有160了</blockquote>
 pay酱164
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9497#       发表于 2022-6-9 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198263&amp;ptid=2036367" target="_blank">chichengjerry 发表于 2022-6-9 21:56</a>
+
+FC Event投票前五的就这首没唱了，但是吸引路人的拼盘一般会唱tie曲和mv曲，感觉还是难听到 ...</blockquote>
+有点遗憾啊，个人对鲤鱼这边最喜欢几首曲子都不是MV曲或者是tie的单曲
+
+*****
+
+####  aoaoaodedede  
+##### 9498#       发表于 2022-6-9 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198311&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2022-6-9 21:59</a>
+
+pay酱164</blockquote>
+啊，pay有这么高了啊，这是啥时候的数据
+
+*****
+
+####  奥柏伦亲王  
+##### 9499#       发表于 2022-6-9 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198369&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-9 22:03</a>
+ 啊，pay有这么高了啊，这是啥时候的数据</blockquote>
+刚成团的时候她就164呀，那会就有人在说只有她和鲤鱼站一起不突兀
+
