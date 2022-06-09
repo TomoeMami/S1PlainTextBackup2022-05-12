@@ -13203,3 +13203,12 @@ YouTubeにて無料配信
 
 郡郡早在一年前就发过脑ct和手骨图（骨裂）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14782#       发表于 2022-6-9 17:56
+
+查了下东证国内连个etf都买不到，真是狗都不看，当不了田角股东了。
+
