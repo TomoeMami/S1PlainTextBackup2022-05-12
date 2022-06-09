@@ -16234,3 +16234,35 @@ ONEPIECE は最終章へ突入します。
 还有索隆那边看到死神后就一直躺到结尾生死不明，受伤那么重也没提一下，死神是什么也还不知道
 直接过渡到七天后两人活蹦乱跳恢复原状<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  gs2-d2up  
+##### 58401#       发表于 2022-6-9 10:26
+
+尾田对于死亡是不是有PTSD以至于不能严肃认真地直面死亡？
+
+*****
+
+####  angelooo  
+##### 58402#       发表于 2022-6-9 10:29
+
+<blockquote>gs2-d2up 发表于 2022-6-9 10:26
+尾田对于死亡是不是有PTSD以至于不能严肃认真地直面死亡？</blockquote>
+我看这20几年来他在各种回忆里杀人杀得爽得很，所以这个说法不成立
+
+*****
+
+####  缺德猫  
+##### 58403#       发表于 2022-6-9 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56184852&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-6-9 08:47</a>
+
+果然随随便便就搪塞过去了
+
+以前路飞打赢boss倒下去还会解释一下，太累啊，新能力对身体负荷太大啊
+
+现在觉醒 ...</blockquote>
+索隆就是雷利镜像啊，雷利绰号冥王，索隆濒死见死神又手持阎王，感觉是为下次升级搞铺垫。
+
