@@ -5068,3 +5068,18 @@ nagi这黑发真顶啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 9454#       发表于 2022-6-9 10:59
+
+反正昨晚下来，除了铃原好软，好大和抚子以外啥也没记住。彩妹妹被发型拖后腿了，难怪之前各种营业。
+
+不过众所周知，cv本来就是你拉最不拉的地方了，问题不一直是不做人的运营和大人们操弄的动画么。花田京极，拿出点真本事啊，别糊弄了。
+
+说起来缪水虹都插入一单了，星你这个一单就5人到底怎么插，也搞一次sif？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
