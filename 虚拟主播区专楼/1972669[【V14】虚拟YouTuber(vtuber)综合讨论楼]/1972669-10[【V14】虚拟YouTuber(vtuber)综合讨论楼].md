@@ -13230,3 +13230,16 @@ YouTubeにて無料配信
 
 什么薇娅直播间
 
+
+
+*****
+
+####  lxdascc  
+##### 14785#       发表于 2022-6-9 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56194979&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-6-9 18:08</a>
+什么玩意，跌丝袜发推希望大家推荐个椅子，然后一群卖椅子的在跌丝袜推特下“激战正酣”（推荐自家椅子）.. ...</blockquote>
+发个回复就不知道有多少人看，堪比几百万日元的宣传了直接
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
