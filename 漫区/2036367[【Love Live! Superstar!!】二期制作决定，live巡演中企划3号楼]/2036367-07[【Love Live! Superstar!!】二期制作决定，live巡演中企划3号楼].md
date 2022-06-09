@@ -5634,3 +5634,14 @@ pay酱164</blockquote>
 
 佩佩158，不排除去年练舞又长高了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9503#       发表于 2022-6-9 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198547&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2022-6-9 22:16</a>
+对我刚才又去查了下写的是158……也不排除我记错了？但总觉得一开始介绍身高的时候就提过她164算 ...</blockquote>
+164是老王是身高，老王是全企划第二高，仅次于鲤鱼。
+
