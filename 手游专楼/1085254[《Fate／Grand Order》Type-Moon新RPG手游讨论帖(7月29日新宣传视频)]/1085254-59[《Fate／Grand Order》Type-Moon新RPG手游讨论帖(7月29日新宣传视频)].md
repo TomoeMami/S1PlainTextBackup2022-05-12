@@ -15634,3 +15634,12 @@ PU2很弱呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说君11和堂吉诃德单挑那里修正了，之前明明说是单挑，战斗动画却是君11指挥大部队开炮www
 
+
+
+*****
+
+####  風卷豹  
+##### 88343#       发表于 2022-6-9 08:57
+
+改了也没啥用，君11这次就是全面垫脚石，论气概和人物描写垫给唐吉坷德，论战力垫给夏露露和源为朝，论CP垫给飞哥飞嫂，甚至立绘也是这次最摸的那档<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
