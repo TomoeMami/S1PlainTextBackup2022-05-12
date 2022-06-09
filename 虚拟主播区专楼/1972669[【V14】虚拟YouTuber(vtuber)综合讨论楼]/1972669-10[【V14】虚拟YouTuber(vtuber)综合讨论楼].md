@@ -13291,3 +13291,17 @@ YouTubeにて無料配信
 
 如果胃皇直接绕过2434跟商家合作带货，2434会直接开除她吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 14790#       发表于 2022-6-9 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56195776&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-6-9 18:58</a>
+
+反正我要是田角我看到一堆商家在莎皇下面求着免费带货不来和虹谈工商我也不爽的，要想控制住莎皇首先得把这 ...</blockquote>
+原本写了一堆反驳你，但发现槽点实在太多。
+
+照你这逻辑，凛前辈的5副HORI手柄，德龙的巴黎世家和GUCCI大概都够得上“违约”的......
+
