@@ -16462,3 +16462,14 @@ ONEPIECE は最終章へ突入します。
 大船团是肯定会出 ...</blockquote>
 比顶上更大规模的战斗也就这样了。可能尾田眼里，一个九侠能顶大将或者两个白团番队队长或者七武海吧。
 
+
+
+*****
+
+####  wingzerocos  
+##### 58421#       发表于 2022-6-9 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56194753&amp;ptid=98922" target="_blank">梦·花火 发表于 2022-6-9 17:57</a>
+说真的，以前海贼不死人打完后开宴会还能打从心底里替他们开心现在死了两个人再看到他们开宴会就有些怪怪的 ...</blockquote>
+按前几话的说法，平民笑着对他们武士来说就是死得其所吧。这两个跟草帽团也不熟。
+
