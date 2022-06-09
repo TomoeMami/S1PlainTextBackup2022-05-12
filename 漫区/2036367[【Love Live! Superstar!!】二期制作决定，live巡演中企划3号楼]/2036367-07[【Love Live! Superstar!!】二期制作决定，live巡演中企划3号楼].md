@@ -5526,3 +5526,17 @@ BML鲤鱼能不能来首cherish，蛮中意这首的
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 附议，太喜欢这首了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9493#       发表于 2022-6-9 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56197649&amp;ptid=2036367" target="_blank">player3960 发表于 2022-6-9 21:05</a>
+
+BML鲤鱼能不能来首cherish，蛮中意这首的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+确实，听了鲤鱼的live之后喜欢上的这首
+
