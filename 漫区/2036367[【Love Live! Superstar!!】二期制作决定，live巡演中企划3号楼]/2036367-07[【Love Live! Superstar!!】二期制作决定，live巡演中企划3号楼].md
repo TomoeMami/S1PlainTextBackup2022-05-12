@@ -5495,3 +5495,21 @@ Liella! 2期生 卷中写真特辑
 今天没赶上广播和XR WORLD演出<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 话说今天这个歌单大概在BML上也会这么排，到时发型服装都跟团队那边差很远，好奇会怎么安排
 
+
+
+*****
+
+####  player3960  
+##### 9490#       发表于 2022-6-9 21:05
+
+BML鲤鱼能不能来首cherish，蛮中意这首的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yevvet  
+##### 9491#       发表于 2022-6-9 21:07
+
+pay酱最近是不是长高了。看着感觉有160了
+
