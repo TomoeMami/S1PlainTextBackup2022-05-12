@@ -5167,3 +5167,22 @@ B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有
 B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有好几个同期售票的，那样就不好从票号估计fmt在 ...</blockquote>
 就按楼上说的看同接也行，到时候b站数据应该有人统计的
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9464#       发表于 2022-6-9 11:26
+
+无论香不香不都是五老星这边的老粉 又没拉到新粉  跑一波之后FM不寄才比较怪<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9465#       发表于 2022-6-9 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56187574&amp;ptid=2036367" target="_blank">player3960 发表于 2022-6-9 11:16</a>
+
+就按楼上说的看同接也行，到时候b站数据应该有人统计的</blockquote>
+同接的数据B站并没有直接公开吧
+
