@@ -5540,3 +5540,15 @@ BML鲤鱼能不能来首cherish，蛮中意这首的
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 确实，听了鲤鱼的live之后喜欢上的这首
 
+
+
+*****
+
+####  仟音一心  
+##### 9494#       发表于 2022-6-9 21:43
+
+リスアニ！LIVE XR World Vol.01
+solo参加了线上Live热唱四首🤣<img src="https://p.sda1.dev/6/3a5cf210e9ef99c18dde63d2b1aecf81/CMP_20220609214302050.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
