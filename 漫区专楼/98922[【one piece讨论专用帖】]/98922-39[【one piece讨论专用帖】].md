@@ -16537,3 +16537,19 @@ ONEPIECE は最終章へ突入します。
 战前作为光月的象征拉人，战斗中被凯多逮 ...</blockquote>
 桃之助比前几个岛的公主贡献大多了，单亡国出海成立流亡政府寻找援军救国这一点前几任公主就比不了，付出的代价也大（20年生命），主要是他爹和仰卧起坐的九侠风评太差，所以他也好不了
 
+
+
+*****
+
+####  neverlands  
+##### 58427#       发表于 2022-6-9 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56198582&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-9 22:20</a>
+
+桃之助真的还可以了
+
+打是不能打，但需要他做的他都做到了
+
+战前作为光月的象征拉人，战斗中被凯多逮 ...</blockquote>
+尾田对高光的理解可能和一般人不一样，他想表现桃之助的仁德，然后画成了右倾投降主义。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
