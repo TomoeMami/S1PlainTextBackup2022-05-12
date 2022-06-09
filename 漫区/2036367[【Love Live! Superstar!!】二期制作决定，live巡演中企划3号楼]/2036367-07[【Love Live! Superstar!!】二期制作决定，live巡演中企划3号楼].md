@@ -5214,3 +5214,16 @@ B站那边要注意有没有同期售票的，比如鲤鱼的Live那时候就有
 星信「ニコ生すげえ！キャストすげえ！」→ファンミ売れない 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 9469#       发表于 2022-6-9 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56188501&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-9 11:57</a>
+虹信「ニコ生すげえ！アニメすげえ！」→cd買わない、ナンバリングでキャパ縮小
+
+星信「ニコ生すげえ！キャ ...</blockquote>
+ニコニコ：你们这些家伙，总让我产生了自己没凉的错觉
+
