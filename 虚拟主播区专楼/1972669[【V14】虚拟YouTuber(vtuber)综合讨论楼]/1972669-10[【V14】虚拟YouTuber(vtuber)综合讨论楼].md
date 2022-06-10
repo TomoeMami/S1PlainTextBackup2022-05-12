@@ -14262,3 +14262,29 @@ https://kotowaka.com/internet/fabyoru/
 
 会继续直播吗
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14888#       发表于 2022-6-10 18:26
+
+【UNDATING GAME】Who will win her heart? ✨ ☆⭒NIJISANJI EN ✧ Millie Parfait ☆⭒
+[https://www.youtube.com/watch?v=4EzUx9qADL0](https://www.youtube.com/watch?v=4EzUx9qADL0)
+
+<img src="https://img.saraba1st.com/forum/202206/10/180930eif9o9osnoapz55z.png" referrerpolicy="no-referrer">
+
+<strong>【UNDATING GAME】Who will win her heart? ✨ ☆⭒NIJISANJI EN ✧ Millie Parfait .png</strong> (100.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 18:09 上传
+
+好活！很难想象是临时组局，埋梗密集程度和快赶上一场脱口秀了，
+
+Millie策划，Elira的valley girl，Pomu的妈（婆？）宝男角色，Sonny的Chad
+
+再加上Fulgur当捧哏功力深厚（之前虹en的几场有趣的联动都有他在，他有一定控场能力，基本上能顾及到每个人，nerd梗多又善于自嘲，有他就有联动效果buff）
+
+欧美The Bachelor之类的相亲综艺层出不穷，虹en这个有计划做成系列企划可以恶搞的太多了
+
