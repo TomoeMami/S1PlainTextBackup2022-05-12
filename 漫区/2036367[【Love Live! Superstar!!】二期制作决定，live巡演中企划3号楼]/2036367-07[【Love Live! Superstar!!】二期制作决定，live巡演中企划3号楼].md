@@ -6430,3 +6430,15 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 那么我想指名批评紫吧小吧C君：这么跳干吗，虹那边灯那事也要炸，所以“实名”无理由黑鲤鱼干吗， ...</blockquote>
 那人也是牛逼了，好多人线下欢迎会见过他的，好像他组织的。真就在这实名冲浪，也不怕哪天翻车了
 
+
+
+*****
+
+####  cxj649  
+##### 9578#       发表于 2022-6-10 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211723&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-10 20:32</a>
+
+那人也是牛逼了，好多人线下欢迎会见过他的，好像他组织的。真就在这实名冲浪，也不怕哪天翻车了 ...</blockquote>
+这不，虹那边就有灯那事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
