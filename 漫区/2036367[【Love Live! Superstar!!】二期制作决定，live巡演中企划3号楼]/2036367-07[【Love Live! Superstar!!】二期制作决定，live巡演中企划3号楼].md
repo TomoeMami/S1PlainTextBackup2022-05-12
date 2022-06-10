@@ -6541,3 +6541,42 @@ V圈乐子人要么是从对日V及其字幕组的圣像破坏里走过来的，
 谢谢兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 还是让色图蒙蔽我的双眼吧
 
+
+
+*****
+
+####  星降る森  
+##### 9588#       发表于 2022-6-10 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56209078&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-6-10 17:27</a>
+
+@cybernetics31
+
+fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那么多吧。看不懂这个数据，要么 ...</blockquote>
+次周基本全是路人销量了，600多，那首周路人也不会少于这个，应该就是没计入FC，挺不错了，反正看经纪人对销量很满意，可以了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推粉丝数仅次于鲤鱼的鬼头（62万），第一本累积2000出头第二本直接没上榜，完全水下（&lt;1187），声优写真集破万的也就3个，如果staff说的是真的那已经超出预期了
+
+*****
+
+####  Karin11974  
+##### 9589#       发表于 2022-6-10 21:09
+
+天降赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/10/210857tar20fv80zf92092.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>_10-6-2022_21637_twitter.com.jpeg</strong> (199.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 21:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9590#       发表于 2022-6-10 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜没可能贴上青梅buff了
+
