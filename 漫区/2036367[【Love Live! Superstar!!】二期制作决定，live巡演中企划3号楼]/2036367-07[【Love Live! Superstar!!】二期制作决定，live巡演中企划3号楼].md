@@ -5965,3 +5965,12 @@ FC出货晚没有计入第一周，第二周加了600，与经纪人说的2K+不
 是数ins那个视频里的吧</blockquote>
 fc的，说要签的比这个多一倍，数了数照片大概1k本
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9533#       发表于 2022-6-10 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鱼，不要写出腱鞘炎啊
+
