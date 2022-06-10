@@ -6162,3 +6162,31 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 有一点疑惑
 有坛友能说一下最近为什么风向是这个样子的么，按我的理解，二期生出来之后粉丝群体相对主要的矛盾应该是一期生粉丝和接纳了二期生的粉丝或者是二期生新吸引的粉丝之间的问题，而事实上，我所说的这个矛盾看起来就没有发展大了，反而是鲤鱼又成了争论的中心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我没有仔细观察，但是这个风向至少从前天秋叶原2播放生放送那里就开始了
 
+
+
+*****
+
+####  nufawneafg  
+##### 9552#       发表于 2022-6-10 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56210567&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-10 19:02</a>
+有一点疑惑
+
+有坛友能说一下最近为什么风向是这个样子的么，按我的理解，二期生出来之后粉丝群体相对主要的 ...</blockquote>
+我觉得是渠道问题，那人也说了“有不少mmr恶堕”，有很多人通过贴吧先入为主了而已，多少有点这个心态
+<img src="https://p.sda1.dev/6/9714defc82ffe8c5852ada0085f45eb1/CMP_20220610190834966.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 9553#       发表于 2022-6-10 19:10
+
+感觉还是不知道什么地方引流，热度比主吧，大数据首页推送太厉害了
+
+*****
+
+####  优妮可  
+##### 9554#       发表于 2022-6-10 19:12
+
+楼抽点了，有些人不知道，
+
