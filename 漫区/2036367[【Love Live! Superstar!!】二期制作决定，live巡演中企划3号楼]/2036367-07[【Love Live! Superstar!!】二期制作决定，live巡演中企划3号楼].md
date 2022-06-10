@@ -6855,3 +6855,40 @@ pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似
 拉个excel，名字丢进去做个列表，然后excel生成随机数</blockquote>
 倒是考虑过，那干脆泥潭和群分开抽吧，反正这帖子里来来回回就这么几个人，还是简单的
 
+
+
+*****
+
+####  普之舜舜  
+##### 9619#       发表于 2022-6-10 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213856&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 23:09</a>
+倒是考虑过，那干脆泥潭和群分开抽吧，反正这帖子里来来回回就这么几个人，还是简单的 ...</blockquote>
+qq群的话qq群有抽奖助手，这个也可以用
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lj205| + 1|谢|
+
+查看全部评分
+
+*****
+
+####  aoaoaodedede  
+##### 9620#       发表于 2022-6-10 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213458&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-10 22:39</a>
+
+pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似乎太难顶可以学秀那样挑染几簇白色，妥妥的真 ...</blockquote>
+懂了，这叫走coser的路，让coser无路可走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实我觉得coser都不一定能完美驾驭不常见的头发颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

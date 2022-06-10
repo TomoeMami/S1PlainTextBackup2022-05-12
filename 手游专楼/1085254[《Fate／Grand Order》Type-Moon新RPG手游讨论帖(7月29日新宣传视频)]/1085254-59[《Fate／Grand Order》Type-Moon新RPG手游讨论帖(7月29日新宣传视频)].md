@@ -15768,3 +15768,12 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 旧剑其实还好，反正下水道也呆惯了，飞哥这一波强化最大的受害者其实是小莫，两边都是30冲，小莫只有50魔 ...</blockquote>
 30充进不了周回队没有任何意义 小莫宝具的20充重要性无法替代 当然现在红炮剑都是被呆毛按在地上摩擦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88355#       发表于 2022-6-10 23:16
+
+呆毛现在有术的那一个没有龙属性，差异化出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
