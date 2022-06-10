@@ -15679,3 +15679,12 @@ PU2很弱呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 三个罗兰了 
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88347#       发表于 2022-6-10 14:55
+
+噫，种好一阵子蓝果了才想到每天不刷3次图是拿不到绿方块的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
