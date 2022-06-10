@@ -16638,3 +16638,14 @@ https://www.bilibili.com/video/B ... 2d4e2c66b60cd6b56b1
 
 而且凯多大蛇珠玉在前，我要是和之国子民我估计也觉得桃之助是文景再世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Acatv  
+##### 58434#       发表于 2022-6-10 07:53
+
+看讨论不少人觉得霍金斯真的挂了 看最后的分镜是很像<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+尾田不会真的就这么放弃了一个超新星吧
+
