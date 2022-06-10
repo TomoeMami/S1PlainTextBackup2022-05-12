@@ -6580,3 +6580,50 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜没可能贴上青梅buff了
 
+
+
+*****
+
+####  musicat  
+##### 9591#       发表于 2022-6-10 21:26
+
+路人会根据封面去买写真？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9592#       发表于 2022-6-10 21:27
+
+莫非运营方针是让新人去和老人营业来快速转化老粉丝？那应该挺有效果的吧，挺好
+
+*****
+
+####  D麦林  
+##### 9593#       发表于 2022-6-10 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56212449&amp;ptid=2036367" target="_blank">musicat 发表于 2022-6-10 21:26</a>
+
+路人会根据封面去买写真？</blockquote>
+挺正常的吧 像那种中年大叔逛书店看到一本写真是美女又露得多直接就买回去养眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+路人买这种东西可不就看第一眼眼缘吗
+
+*****
+
+####  starring  
+##### 9594#       发表于 2022-6-10 21:30
+
+六月的直播资讯：
+
+6.20 第6回红薯协会
+
+6.22 18：00（北京时间）第6回浪漫配信
+
+6.22 19：00（北京时间）Liyuu FC直播6.22 19：00（北京时间）虹咲生放送，怎么你们三都撞在一天
+
+6.27 19：00（北京时间）第5回创造俱乐部
+
+6.29 19：00（北京时间）第5回再长8cm
+
+有条件的朋友可以看看
+
