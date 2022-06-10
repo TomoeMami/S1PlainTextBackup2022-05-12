@@ -6190,3 +6190,32 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 楼抽点了，有些人不知道，
 
+
+
+*****
+
+####  lj205  
+##### 9555#       发表于 2022-6-10 19:13
+
+你说那个时间点，毕竟是二期生刚登场，然后那伙人又去直播间团建，热度当然整个就上来了，不用理会就是
+
+你们在隔壁对线无所谓，就不用也把这些东西搬到这来讨论
+
+*****
+
+####  普之舜舜  
+##### 9556#       发表于 2022-6-10 19:13
+
+ 本帖最后由 普之舜舜 于 2022-6-10 19:16 编辑 
+
+贴吧推送的确很怪，喜欢推荐一些争议性的话题。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">没必要为此事关注太多。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 9557#       发表于 2022-6-10 19:21
+
+不怎么看那边，看了一下，这不是纯纯吃了屎还要吐在别的地方的二极管吗，什么屎壳郎，干嘛要汴那么多
+

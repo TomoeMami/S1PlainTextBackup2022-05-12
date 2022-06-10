@@ -15715,3 +15715,12 @@ PU2很弱呢
 反正五星剑已经卷得没边了所以多一个四星也无所谓？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 88350#       发表于 2022-6-10 19:11
+
+comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
