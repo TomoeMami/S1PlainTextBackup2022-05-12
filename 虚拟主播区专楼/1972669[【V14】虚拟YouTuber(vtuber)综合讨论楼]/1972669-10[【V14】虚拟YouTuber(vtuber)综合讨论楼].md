@@ -14319,3 +14319,40 @@ seeds24h看起来几乎都是3D节目
 
 [https://twitter.com/midori_2434/status/1535216454970351616](https://twitter.com/midori_2434/status/1535216454970351616)
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 14892#       发表于 2022-6-10 20:26
+
+复活。
+[https://youtu.be/UZpcLq2yiDE](https://youtu.be/UZpcLq2yiDE)
+
+<img src="https://img.saraba1st.com/forum/202206/10/202420f666e4pg6tgrsreg.jpg" referrerpolicy="no-referrer">
+
+<strong>20220610_202343.jpg</strong> (396.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 20:24 上传
+
+*****
+
+####  格林卡罗尔  
+##### 14893#       发表于 2022-6-10 20:27
+
+[https://twitter.com/Vspo77/status/1535230454462177281?s=20&amp;t=nVfWgztxeq0j98_y6iR_Ww](https://twitter.com/Vspo77/status/1535230454462177281?s=20&amp;t=nVfWgztxeq0j98_y6iR_Ww)
+
+<img src="https://img.saraba1st.com/forum/202206/10/202643a4znl2iila4zmzml.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220610202633.png</strong> (802.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 20:26 上传
+
+还有追记的
+
+这第一条真是笑死，原来这个阶段了还有看不明白情况的
+

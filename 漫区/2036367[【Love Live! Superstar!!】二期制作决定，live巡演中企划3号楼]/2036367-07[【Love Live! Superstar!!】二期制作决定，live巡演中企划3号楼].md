@@ -6353,3 +6353,80 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 由手机上传
 2022-6-10 20:17 上传
 
+
+
+*****
+
+####  stygian  
+##### 9571#       发表于 2022-6-10 20:22
+
+这时又要搬出著名川菜厨师陈彦川的厉外拉同理论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9572#       发表于 2022-6-10 20:25
+
+其实v吧对🐟真的还好，没有那么一边倒，
+
+圈吧甚至还有人对此表示过不解，这两个地方算是很刻薄的了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+就我个人观察，虽然紫吧用着v吧话术，但意识形态更接近虹-P1字幕组那一系的旧时代贵物群体来着
+
+*****
+
+####  lj205  
+##### 9573#       发表于 2022-6-10 20:27
+
+那难怪她们那天能很快互动起来
+
+*****
+
+####  lj205  
+##### 9574#       发表于 2022-6-10 20:29
+
+<img src="https://img.saraba1st.com/forum/202206/10/202905uvkpp8pjffs9apak.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E37FA57E-094D-4EA4-A6C9-ED3B4331DD31.jpeg</strong> (123.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 20:29 上传
+
+*****
+
+####  cxj649  
+##### 9575#       发表于 2022-6-10 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211131&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-6-10 19:45</a>
+
+哪里是什么老五人粉丝和新四人粉丝矛盾
+
+也是托了大部分人还算常识人的福
+
+喷新四人的真就屈指可数</blockquote>
+我在V圈的混邪乐子人朋友对鲤鱼也没什么太多恶意，所以作为过来人就觉得现在L圈这种有点搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 9576#       发表于 2022-6-10 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211614&amp;ptid=2036367" target="_blank">ddy2811 发表于 2022-6-10 20:25</a>
+
+其实v吧对🐟真的还好，没有那么一边倒，
+
+圈吧甚至还有人对此表示过不解，这两个地方算是很刻薄的了
+
+ ...</blockquote>
+对的，V圈人对鲤鱼观感反而还行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9577#       发表于 2022-6-10 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211409&amp;ptid=2036367" target="_blank">cxj649 发表于 2022-6-10 20:10</a>
+那么我想指名批评紫吧小吧C君：这么跳干吗，虹那边灯那事也要炸，所以“实名”无理由黑鲤鱼干吗， ...</blockquote>
+那人也是牛逼了，好多人线下欢迎会见过他的，好像他组织的。真就在这实名冲浪，也不怕哪天翻车了
+
