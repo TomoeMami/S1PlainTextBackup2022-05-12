@@ -6313,3 +6313,43 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 就是单纯的恶意而已，这一年多还愈来愈壮大了，完全不需要任何和理由，不需要是否正当，只要能扩大影响和败坏路人那就都是好理由和借口。
 但说实话只要鲤鱼本人自己心态够好，那些人就算是闹上天也基本无法对她造成任何伤害。受疫情影响，国内的活动基本遥遥无期，恶心的无非是国内的正常人和让国内这个圈子越来越混沌罢了。我还挺好奇，本事有多少，能让这个环境变得多恶劣呢。起码就现在这三脚猫功夫，完全不够，还比不上人家v圈一根毛呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 9568#       发表于 2022-6-10 20:10
+
+ 本帖最后由 cxj649 于 2022-6-10 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211302&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-6-10 20:01</a>
+
+就是单纯的恶意而已，这一年多还愈来愈壮大了，完全不需要任何和理由，不需要是否正当，只要能扩大影响和败 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么我想指名批评紫吧小吧C君：这么跳干吗，虹那边灯那事也要炸，所以“实名”无理由黑鲤鱼干吗，坏自己名誉吗？，我作为V圈过来人觉得这人很快会吃瘪了
+
+是没混过V圈和动漫婆罗门圈是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9569#       发表于 2022-6-10 20:16
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+说点明天的预想吧……全程talk也挺无聊的……希望有游戏环节
+
+*****
+
+####  仟音一心  
+##### 9570#       发表于 2022-6-10 20:17
+
+缘，妙不可言
+
+<img src="https://img.saraba1st.com/forum/202206/10/201736ryy9184ty9iybh1e.png" referrerpolicy="no-referrer">
+
+<strong>2E881FCB-A1F9-43F4-97E4-41E3664A3154.png</strong> (122.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-10 20:17 上传
+

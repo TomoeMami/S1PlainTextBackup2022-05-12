@@ -16791,3 +16791,16 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58448#       发表于 2022-6-10 20:11
+
+太乐了
+
+老师：和之国的英雄史要从光月御田讲起！
+
+大和：要感谢父母赐予的强健体魄！
+
