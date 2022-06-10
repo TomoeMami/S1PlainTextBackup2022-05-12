@@ -15757,3 +15757,14 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 </blockquote>
 确定是杂贺吗，她以前有在fgom或剧情里提及吗
 
+
+
+*****
+
+####  eyeego  
+##### 88354#       发表于 2022-6-10 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211256&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-6-10 19:56</a>
+旧剑其实还好，反正下水道也呆惯了，飞哥这一波强化最大的受害者其实是小莫，两边都是30冲，小莫只有50魔 ...</blockquote>
+30充进不了周回队没有任何意义 小莫宝具的20充重要性无法替代 当然现在红炮剑都是被呆毛按在地上摩擦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

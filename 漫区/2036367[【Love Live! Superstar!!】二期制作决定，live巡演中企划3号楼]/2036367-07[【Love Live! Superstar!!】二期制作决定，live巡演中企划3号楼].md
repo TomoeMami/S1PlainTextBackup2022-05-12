@@ -6749,3 +6749,52 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Karin11974  
+##### 9608#       发表于 2022-6-10 22:34
+
+[https://www.bilibili.com/video/BV1tA411Y7o1?share_source=copy_web](https://www.bilibili.com/video/BV1tA411Y7o1?share_source=copy_web)
+
+还是这个失业偶像时期的长棕发最好看
+
+*****
+
+####  ayangsu  
+##### 9609#       发表于 2022-6-10 22:35
+
+确实还是棕色好看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9610#       发表于 2022-6-10 22:39
+
+pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似乎太难顶可以学秀那样挑染几簇白色，妥妥的真人ver.星团
+
+*****
+
+####  普之舜舜  
+##### 9611#       发表于 2022-6-10 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213458&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-10 22:39</a>
+pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似乎太难顶可以学秀那样挑染几簇白色，妥妥的真 ...</blockquote>
+笑死，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么五颜六色头发的偶像组合呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  普之舜舜  
+##### 9612#       发表于 2022-6-10 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213458&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-10 22:39</a>
+pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似乎太难顶可以学秀那样挑染几簇白色，妥妥的真 ...</blockquote>
+笑死，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么五颜六色头发的偶像组合呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

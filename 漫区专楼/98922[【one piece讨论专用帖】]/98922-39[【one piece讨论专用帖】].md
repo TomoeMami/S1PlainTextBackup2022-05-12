@@ -16813,3 +16813,16 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 大和这角色最失败的是登场居然不是篇章开头，而是打干部时硬加进去
 
+
+
+*****
+
+####  天下至贱  
+##### 58450#       发表于 2022-6-10 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56201533&amp;ptid=98922" target="_blank">Acatv 发表于 2022-6-10 07:53</a>
+看讨论不少人觉得霍金斯真的挂了 看最后的分镜是很像
+
+尾田不会真的就这么放弃了一个超新星吧 ...</blockquote>
+半仙就这么退场么…我还挺难过的。
+
