@@ -5862,3 +5862,16 @@ B55E9377-F0E3-4ADA-8FA3-DD285D847772.gif
 
 之前说过每过1000本就拿一本来抽，那我就按3000算吧，周末做个链接拿给潭里还有Q群兄弟抽
 
+
+
+*****
+
+####  普之舜舜  
+##### 9522#       发表于 2022-6-10 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56200331&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-10 01:14</a>
+你这是卡翻页了，一页的前两楼会被吞，第三楼出现后才会把前两楼吐出来，所以你一开始会看不到自 ...</blockquote>
+卡bug这个功能🐶叔到现在都没修好，不可能又要换楼了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
