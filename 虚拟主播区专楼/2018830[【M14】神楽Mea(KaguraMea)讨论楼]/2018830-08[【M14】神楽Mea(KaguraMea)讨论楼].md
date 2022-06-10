@@ -8935,3 +8935,12 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
 油管同接2000了，只能说犬山那边连续四天一场联动加3天切片投稿帮大忙了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KL25001  
+##### 11369#       发表于 2022-6-11 00:25
+
+吊羊，我的唱歌机器<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
