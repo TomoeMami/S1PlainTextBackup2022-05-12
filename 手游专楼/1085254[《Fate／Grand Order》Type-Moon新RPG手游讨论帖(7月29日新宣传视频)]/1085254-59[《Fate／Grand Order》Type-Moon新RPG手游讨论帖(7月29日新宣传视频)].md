@@ -15724,3 +15724,36 @@ PU2很弱呢
 
 comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 88351#       发表于 2022-6-10 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56209919&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-10 18:18</a>
+
+老福早几年就该给这50充，现在才给也不知道图个啥</blockquote>
+旧剑其实还好，反正下水道也呆惯了，飞哥这一波强化最大的受害者其实是小莫，两边都是30冲，小莫只有50魔放和呆毛特攻，而呆毛脸全员龙属性，被飞哥双特攻，飞哥现在又多了3T的30A，小莫真就除了5星身板和那一点点暴击之外没有任何优势<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88352#       发表于 2022-6-10 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么到底还有哪个剑光炮没自充呢
+
+*****
+
+####  先手必胜  
+##### 88353#       发表于 2022-6-10 21:10
+
+<blockquote>UNISONIA 发表于 2022-6-9 09:13
+这次的设定担当大概是：
+
+东出：君11、夏露露、罗兰、飞嫂、小教授、堂吉诃德
+
+水濑：张角
+</blockquote>
+确定是杂贺吗，她以前有在fgom或剧情里提及吗
+
