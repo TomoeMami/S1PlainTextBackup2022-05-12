@@ -14083,3 +14083,26 @@ lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/
 
 不过我还以为是流行到被忘记出处的网络语，结果看一眼虹楼是跟棒子类似的键政区用词……劳伦明知故用的话是低情商、见过就用了没想到出处是低智商<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可长点心吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 14870#       发表于 2022-6-10 12:10
+
+在一个环境里呆久了就容易麻木失去警戒心，就像海对面NBA有时会有人失言说出辱黄辱犹的词汇但不会辱黑一样，大概条子平时都是上5ch速报看新闻的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 14871#       发表于 2022-6-10 12:13
+
+有韩国股东吗没有就safe捏，要是那天乳滑了那就要跌停了吧
+
+*****
+
+####  ヒトニナル  
+##### 14872#       发表于 2022-6-10 12:18
+
+怎么能这么蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
