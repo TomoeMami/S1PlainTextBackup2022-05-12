@@ -6442,3 +6442,28 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 那人也是牛逼了，好多人线下欢迎会见过他的，好像他组织的。真就在这实名冲浪，也不怕哪天翻车了 ...</blockquote>
 这不，虹那边就有灯那事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9579#       发表于 2022-6-10 20:45
+
+ 本帖最后由 稀勢のささ 于 2022-6-10 20:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实吧 比烂的话之前紫吧那群人对🐟至少还是发散出来的 就是尖锐点  对无中生有的泼脏水其实是不欢迎的  这波之后就变味儿了
+
+*****
+
+####  星降る森  
+##### 9580#       发表于 2022-6-10 20:49
+
+鲤鱼写真集次周619，往好了想就是2600多本大都是路人买的，FC不是O榜协力店没法直接反映成绩，有点可惜就是了
+
+*****
+
+####  仟音一心  
+##### 9581#       发表于 2022-6-10 20:51
+
+能不能别再聊紫吧那帮魔怔人了
+
