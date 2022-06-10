@@ -14439,3 +14439,12 @@ vspo这事有这么严重？
 
 你们说的话都被slm吸收活用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 14902#       发表于 2022-6-10 23:22
+
+莎天酱如果在看讨论版的话真的应该改善她的直播环境，这卡的啊...
+
