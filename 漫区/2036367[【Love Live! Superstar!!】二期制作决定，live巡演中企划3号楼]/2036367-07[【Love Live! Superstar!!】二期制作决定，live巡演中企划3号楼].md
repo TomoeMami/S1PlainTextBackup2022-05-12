@@ -6116,3 +6116,49 @@ tmd我服了隔壁那人了 一天三次
 S1的专楼不受欢迎者制度现在看无比优越</blockquote>
 什么时候有第三次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9547#       发表于 2022-6-10 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56210413&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-10 18:51</a>
+什么时候有第三次了</blockquote>
+now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9548#       发表于 2022-6-10 18:54
+
+我看你们好多人回他，那他不就兴奋吗？冷处理掉不就好了呗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9549#       发表于 2022-6-10 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56210469&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 18:54</a>
+我看你们好多人回他，那他不就兴奋吗？冷处理掉不就好了呗</blockquote>
+“凡有血气，皆有争心”嘛可惜没人读下面那句
+“故利不可强，思义为愈”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9550#       发表于 2022-6-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56210469&amp;ptid=2036367" target="_blank">lj205 发表于 2022-06-10 18:54:37</a>
+我看你们好多人回他，那他不就兴奋吗？冷处理掉不就好了呗</blockquote>陪他耍耍呗，看他是不是真有货，到底还是个黑屁小鬼，留着看猴戏不错<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 9551#       发表于 2022-6-10 19:02
+
+有一点疑惑
+有坛友能说一下最近为什么风向是这个样子的么，按我的理解，二期生出来之后粉丝群体相对主要的矛盾应该是一期生粉丝和接纳了二期生的粉丝或者是二期生新吸引的粉丝之间的问题，而事实上，我所说的这个矛盾看起来就没有发展大了，反而是鲤鱼又成了争论的中心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我没有仔细观察，但是这个风向至少从前天秋叶原2播放生放送那里就开始了
+
