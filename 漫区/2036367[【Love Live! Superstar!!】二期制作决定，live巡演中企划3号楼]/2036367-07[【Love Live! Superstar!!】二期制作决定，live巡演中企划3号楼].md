@@ -6892,3 +6892,30 @@ pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似
 
 其实我觉得coser都不一定能完美驾驭不常见的头发颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9621#       发表于 2022-6-10 23:43
+
+渣技术纯娱乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这种程度的金发还行，pay的五官没那么欧美系发色再浅一点就hold不住（还是原来的发色好看
+
+未标题-1.jpg
+(78.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 23:42 上传
+
+<img src="https://img.saraba1st.com/forum/202206/10/234242ryk2stsfxv8xkttd.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 9622#       发表于 2022-6-10 23:48
+
+纯个人盲猜，鱼这个估计是2nd fl特地染的，上次真掉色，结果有说挺像裤裤色，这次就整个裤裤色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
