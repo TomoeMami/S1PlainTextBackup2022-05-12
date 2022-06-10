@@ -6024,3 +6024,26 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说白了，这写真拍的不行，也就核心粉会买，以前的鱼自己拍的cos写真都比这强
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9538#       发表于 2022-6-10 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56209078&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-6-10 17:27</a>
+
+@cybernetics31
+
+fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那么多吧。看不懂这个数据，要么 ...</blockquote>
+  楼里不知道有没有懂coser出写真集销量的，不过我有个想法是鲤鱼66万粉丝中有大量的不是她做声优偶像或者是歌手吸引来的，coser吸引的粉丝的消费习惯应该和偶像厨的消费习惯不一样吧。
+
+  而且确实个人觉得这个写真还真不如鲤鱼以前的cos照，只能说硬是要搞这个风格的写真集，粉丝能不能接受也是个问题
+
+*****
+
+####  lj205  
+##### 9539#       发表于 2022-6-10 17:45
+
+还行吧，有几张我挺喜欢的，扔手表里天天看，这次加上数字版的总共买了10本
+
