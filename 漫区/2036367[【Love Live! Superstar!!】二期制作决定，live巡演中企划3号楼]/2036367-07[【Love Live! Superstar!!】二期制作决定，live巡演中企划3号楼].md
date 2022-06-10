@@ -5875,3 +5875,12 @@ B55E9377-F0E3-4ADA-8FA3-DD285D847772.gif
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 9523#       发表于 2022-6-10 12:07
+
+1号楼200页，2号楼161页，3号楼315页后才出bug算撑得久了
+

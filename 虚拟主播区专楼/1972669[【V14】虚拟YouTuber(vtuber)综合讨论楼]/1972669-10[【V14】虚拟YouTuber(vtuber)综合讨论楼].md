@@ -14072,3 +14072,14 @@ lisa是跟在火病后面笑了吧</blockquote>
 
 lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 14869#       发表于 2022-6-10 12:03
+
+毕竟辱的是韩，也可以当做是无恶意的失言，没那么严重。
+
+不过我还以为是流行到被忘记出处的网络语，结果看一眼虹楼是跟棒子类似的键政区用词……劳伦明知故用的话是低情商、见过就用了没想到出处是低智商<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可长点心吧
+
