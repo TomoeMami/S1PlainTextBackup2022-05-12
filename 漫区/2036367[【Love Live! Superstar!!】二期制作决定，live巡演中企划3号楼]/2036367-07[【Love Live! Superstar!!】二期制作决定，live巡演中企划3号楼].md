@@ -6724,3 +6724,28 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 这发色显脸大的明显
 
+
+
+*****
+
+####  yevvet  
+##### 9605#       发表于 2022-6-10 22:24
+
+但是如果pay酱染个金发绝对比现在好看
+
+*****
+
+####  lj205  
+##### 9606#       发表于 2022-6-10 22:28
+
+佩佩染金发，那鲤鱼狂喜
+
+*****
+
+####  普之舜舜  
+##### 9607#       发表于 2022-6-10 22:31
+
+我感觉是原来的黑发好看，快进到为此事打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
