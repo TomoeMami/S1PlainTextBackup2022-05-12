@@ -16709,3 +16709,85 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 桃之助这个小淫贼就这么钦定最好的将军了，哈哈哈哈哈哈哈哈
 
+
+
+*****
+
+####  武男  
+##### 58441#       发表于 2022-6-10 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56204362&amp;ptid=98922" target="_blank">触手皇帝 发表于 2022-6-10 11:44</a>
+
+桃之助这个小淫贼就这么钦定最好的将军了，哈哈哈哈哈哈哈哈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉比他爹好，他爷爷也挺白给的
+
+*****
+
+####  jxzeroga0  
+##### 58442#       发表于 2022-6-10 11:53
+
+对桃之助没什么意见，除了小色鬼这个搞笑设定各种戏份作用还可以了，主要还是有个拉胯的老爹。大和设定混太多崩了就当看不见，只求她少念叨几句御田就行，目前看有了大桃子尾田也不会再让路飞往御田标签靠了。
+
+休刊近两个月，看看最终章还能有什么乐子了。这话秒恢复开宴会一堆事情不交代，根本没眼看了，感觉是真的凑合着往结局狂奔了。
+
+*****
+
+####  klzxs  
+##### 58443#       发表于 2022-6-10 11:58
+
+凯多不是<strong>想</strong>杀大和，是必要时<strong>会</strong>杀大和
+
+平时大概也就是起冲突了凯多揍她一顿就完事了
+
+直到鬼岛决战才是真格的对抗
+
+大和虽然不乐意，但应该也觉得自己是百兽团的一员
+
+艾斯来鬼岛闹的时候也是她出面阻止的
+
+设定我是觉得还好，凯多大和我觉得最不自然的是凯多对大和的待遇
+
+他对待大和很明显比对待其他人苛刻的多
+
+不说三灾六子这些核心干部了，对路飞这种敌人也是惜才的
+
+可对大和就特别狠? 说不出为什么
+
+*****
+
+####  韶华白首  
+##### 58444#       发表于 2022-6-10 12:08
+
+最终章
+
+<img src="https://img.saraba1st.com/forum/202206/10/120843bef08n272sc4ofgx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AFBBD796-A2FE-4131-90AC-E440A7BB6C19.jpeg</strong> (186.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-10 12:08 上传
+
+*****
+
+####  逸yi  
+##### 58445#       发表于 2022-6-10 12:31
+
+呃呃
+
+*****
+
+####  gg326  
+##### 58446#       发表于 2022-6-10 13:11
+
+ 本帖最后由 gg326 于 2022-6-10 13:15 编辑 
+
+看到八岁英杰笑出声，都没做什么落地就当了将军，最高光的托鬼岛，还是因为凯多死活也不放下岛再和路宝打，非要拉到都城上空，愣是让桃之助混了个大功劳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 58447#       发表于 2022-6-10 13:23
+
+呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
