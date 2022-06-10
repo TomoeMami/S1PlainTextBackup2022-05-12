@@ -14213,3 +14213,18 @@ https://kotowaka.com/internet/fabyoru/
 
 至于说话不把门好像也是上辈子带过来的习惯了，ova君时代就有一些语录的样子
 
+
+
+*****
+
+####  lhawp  
+##### 14883#       发表于 2022-6-10 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56206828&amp;ptid=1972669" target="_blank">死体残留 发表于 2022-6-10 14:46</a>
+https://kotowaka.com/internet/fabyoru/
+
+其实就和红脖子差不多的意思吧</blockquote>
+こないだ委員長の配信見てたらコメントで「ファビョる」とか言ってる奴いて、今時言うやついるんだと驚いた。あとそれを楓ちゃんが読んじゃって「ファビョるって何？」つったら委員長がいやーちょっとわかんないですねーみたいにとぼけてて笑っちゃった。
+
+ネットリテラシーの差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
