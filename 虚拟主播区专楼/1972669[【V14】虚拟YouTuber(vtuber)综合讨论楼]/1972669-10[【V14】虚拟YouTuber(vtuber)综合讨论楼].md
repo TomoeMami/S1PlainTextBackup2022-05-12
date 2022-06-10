@@ -14195,3 +14195,21 @@ https://kotowaka.com/internet/fabyoru/
 
 癫火病是吧
 
+
+
+*****
+
+####  毛头小希  
+##### 14882#       发表于 2022-6-10 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56204648&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-10 12:03</a>
+
+毕竟辱的是韩，也可以当做是无恶意的失言，没那么严重。
+
+不过我还以为是流行到被忘记出处的网络语，结果看 ...</blockquote>
+不长心眼是红色条子特色了
+
+据说在小黄片事件之前他聊天室就有观众提醒过他电脑桌面容易被泄露，但他没当一回事，然后（摊手）
+
+至于说话不把门好像也是上辈子带过来的习惯了，ova君时代就有一些语录的样子
+
