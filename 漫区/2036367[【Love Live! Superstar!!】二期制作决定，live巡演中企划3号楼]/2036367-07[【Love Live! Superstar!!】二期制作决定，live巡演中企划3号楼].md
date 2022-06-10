@@ -6056,3 +6056,31 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 水煮鱼上分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9541#       发表于 2022-6-10 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56209342&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-10 17:44</a>
+楼里不知道有没有懂coser出写真集销量的，不过我有个想法是鲤鱼66万粉丝中有大量的不是她做声优偶像或 ...</blockquote>
+主要是一般写真集你得露啊，说难听点要考虑实用性啊
+比较保守的写真集再加上本来就作为细分领域，基本上受众就很限定了
+关于twi，去年a岛还在的时候里面就讨论过这个问题，点点手指看美图和真金白银消费是搁着厚障壁的
+其实这也是个符合预期的数字，只不过大伙看返图先入为主了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9542#       发表于 2022-6-10 18:38
+
+翻页
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9543#       发表于 2022-6-10 18:38
+
+翻页
+
