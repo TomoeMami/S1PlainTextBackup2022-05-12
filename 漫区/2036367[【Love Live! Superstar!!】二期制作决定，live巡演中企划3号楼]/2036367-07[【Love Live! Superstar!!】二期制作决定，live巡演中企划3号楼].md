@@ -5893,3 +5893,21 @@ B55E9377-F0E3-4ADA-8FA3-DD285D847772.gif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该换换吧………………
 
+
+
+*****
+
+####  lj205  
+##### 9525#       发表于 2022-6-10 12:48
+
+等后面严重影响再换吧？我觉得暂时还凑合<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 9526#       发表于 2022-6-10 12:49
+
+FC出货晚没有计入第一周，第二周加了600，与经纪人说的2K+不符，那看来是不计入销量了
+
+总体差不多5K？
+

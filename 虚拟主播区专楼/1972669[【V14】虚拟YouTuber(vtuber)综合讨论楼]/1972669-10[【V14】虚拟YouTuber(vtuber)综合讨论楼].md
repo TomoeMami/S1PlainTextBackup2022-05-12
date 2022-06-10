@@ -14125,3 +14125,15 @@ lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/
 有韩国股东吗没有就safe捏，要是那天乳滑了那就要跌停了吧</blockquote>
 别急，就算乳了，b站会全方面的消灾。不然vr直接被一网打尽多蠢啊。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 14875#       发表于 2022-6-10 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56205015&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-6-10 12:29</a>
+
+别急，就算乳了，b站会全方面的消灾。不然vr直接被一网打尽多蠢啊。</blockquote>
+一句话，我相信叔叔 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
