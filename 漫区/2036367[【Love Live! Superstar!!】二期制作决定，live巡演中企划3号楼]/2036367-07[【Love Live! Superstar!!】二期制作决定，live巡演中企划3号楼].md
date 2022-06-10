@@ -5928,3 +5928,22 @@ FC出货晚没有计入第一周，第二周加了600，与经纪人说的2K+不
 
 不过经纪人从没说过fc那边卖了2000本啊，不知道哪得出这个数字就一直在传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9529#       发表于 2022-6-10 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56205415&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 12:54</a>
+
+不过经纪人从没说过fc那边卖了2000本啊，不知道哪得出这个数字就一直在传</blockquote>
+看他们有些人的分析逻辑好像是从FC里经纪人发的文章，图片推出来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 9530#       发表于 2022-6-10 13:09
+
+是数ins那个视频里的吧
+

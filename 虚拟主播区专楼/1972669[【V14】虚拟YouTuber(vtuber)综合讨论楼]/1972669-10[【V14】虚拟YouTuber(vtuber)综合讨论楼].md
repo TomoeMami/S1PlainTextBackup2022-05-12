@@ -14137,3 +14137,14 @@ lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/
 别急，就算乳了，b站会全方面的消灾。不然vr直接被一网打尽多蠢啊。</blockquote>
 一句话，我相信叔叔 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 14876#       发表于 2022-6-10 13:06
+
+ 本帖最后由 purdre 于 2022-6-10 13:07 编辑 
+
+用这种5ch词汇的键政侠指不定哪天就辱其他国家了，之前和同期联动说看女生泳装是内見就已经有点要烧的苗头了，结果这次箱外联动直接辱韩，我看离第三次炎上也不远了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
