@@ -14106,3 +14106,22 @@ lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/
 
 怎么能这么蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zhanghw8866  
+##### 14873#       发表于 2022-6-10 12:22
+
+看新闻只看5ch速报<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 14874#       发表于 2022-6-10 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56204786&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-6-10 12:13</a>
+
+有韩国股东吗没有就safe捏，要是那天乳滑了那就要跌停了吧</blockquote>
+别急，就算乳了，b站会全方面的消灾。不然vr直接被一网打尽多蠢啊。
+
