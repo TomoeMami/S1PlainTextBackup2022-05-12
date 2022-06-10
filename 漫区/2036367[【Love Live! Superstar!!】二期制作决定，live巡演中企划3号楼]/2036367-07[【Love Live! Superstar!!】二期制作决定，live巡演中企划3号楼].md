@@ -6693,3 +6693,34 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 我也觉得这个发色挺好看的，就是对打光要求很高
 
+
+
+*****
+
+####  nufawneafg  
+##### 9601#       发表于 2022-6-10 22:07
+
+我也觉得不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+甜咸之争堂堂连载
+
+*****
+
+####  ViyViy  
+##### 9602#       发表于 2022-6-10 22:13
+
+在想鲤鱼能完整出个可可COS的机会有多大，现在这样浅染一下不够劲，展现一下专业水平，live上最靓滴仔（然后把妆哭花）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 9603#       发表于 2022-6-10 22:22
+
+各有各的审美嘛，我是觉得还行，反正咱也干涉不了她们染什么发色不是
+
+*****
+
+####  caicaistar  
+##### 9604#       发表于 2022-6-10 22:22
+
+这发色显脸大的明显
+
