@@ -14166,3 +14166,23 @@ lr不会变成哈吉咩那样的玩具吧<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想之前劳伦还和axia，hayun上大师，现在就狠狠得辱韩，v生的节目效果max
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14879#       发表于 2022-6-10 14:46
+
+《电竞选手的异世界转生～因为太怕痛就全点攻击了》
+
+*****
+
+####  死体残留  
+##### 14880#       发表于 2022-6-10 14:46
+
+https://kotowaka.com/internet/fabyoru/
+
+其实就和红脖子差不多的意思吧
+
+搞笑的事下面sns举例还有个kemt的例子
+
