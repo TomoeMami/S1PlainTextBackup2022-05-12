@@ -14027,3 +14027,12 @@ lisa是跟在火病后面笑了吧<img src="https://static.saraba1st.com/image/s
 lisa是跟在火病后面笑了吧</blockquote>
 是的，不懂什么意思但是不笑又不太捧场的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 14864#       发表于 2022-6-10 10:57
+
+既有点同情劳伦倒霉又有点感慨难道这就是竞男特有的口不择言()
+
