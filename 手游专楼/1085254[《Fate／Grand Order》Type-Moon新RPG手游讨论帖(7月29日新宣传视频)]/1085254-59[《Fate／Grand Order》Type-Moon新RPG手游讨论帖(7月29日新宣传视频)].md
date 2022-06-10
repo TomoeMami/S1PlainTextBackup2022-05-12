@@ -15699,3 +15699,19 @@ PU2很弱呢
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  exiaexa  
+##### 88349#       发表于 2022-6-10 18:18
+
+ 本帖最后由 exiaexa 于 2022-6-10 18:19 编辑 
+
+老福早几年就还给这50充，现在才给也不知道图个啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+飞哥这个除了能嘲讽旧剑是真的意义不明……
+反正五星剑已经卷得没边了所以多一个四星也无所谓？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
