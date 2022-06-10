@@ -6228,3 +6228,39 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 某些人明显就是想趁9人生放送制造矛盾，管你是不是正常发言一律歪曲成黑点，越是回复这群人就跳得越欢
 
+
+
+*****
+
+####  a92063256  
+##### 9559#       发表于 2022-6-10 19:37
+
+我看他们那边就很喜欢编些话来反复复读，复读的多了再加上他们喜欢四处团建就引来更多的没脑子的借机发散恶意
+
+*****
+
+####  渡辺梨加  
+##### 9560#       发表于 2022-6-10 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56209342&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-10 17:44</a>
+楼里不知道有没有懂coser出写真集销量的，不过我有个想法是鲤鱼66万粉丝中有大量的不是她做声优偶像或 ...</blockquote>
+日本女星写真集，除了坂道系之外，能卖1w本就算大卖了。一般写真女星、声优都是几千本。
+
+*****
+
+####  甘蓝巧克力  
+##### 9561#       发表于 2022-6-10 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9562#       发表于 2022-6-10 19:40
+
+单纯以此为乐的sb而已。
+当年水在国内火的时候，烂事不比现在少。当初更多体现在厄介小鬼了，还嘲讽正常的粉丝。后面水国内环境为啥变好了？因为慢慢在国内变凉了呗。
+虹感觉一直没啥太大烂事，但说句可能被虹粉车的话，因为虹在国内就没真的火过，不过也不是坏事就是了。
+星如今虽然形式不同，但和当年一个意思。看的人多了，烂人也就多了。按照经验来看，等沉淀个几年，也就没啥了。毕竟东西那么多，你让他们一直对一个保持关注了都是为难人了。
+比如……看看远方的v吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
