@@ -15777,3 +15777,15 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 呆毛现在有术的那一个没有龙属性，差异化出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88356#       发表于 2022-6-11 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56212226&amp;ptid=1085254" target="_blank">先手必胜 发表于 2022-6-10 21:10</a>
+
+确定是杂贺吗，她以前有在fgom或剧情里提及吗</blockquote>
+暂时都是猜测，没有任何石锤，但是日本历史里玩枪最出名的算是杂贺，所以都往这个身份猜。
+
