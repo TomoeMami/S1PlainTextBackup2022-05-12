@@ -6627,3 +6627,28 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 有条件的朋友可以看看
 
+
+
+*****
+
+####  qty  
+##### 9595#       发表于 2022-6-10 21:36
+
+鲤鱼还是尽早把头发染回去吧，现在这个发色真是越看越难看，土黄土黄没光泽，还把脸衬的更大了，不知道怎么考虑的要染这样一个发色。
+
+*****
+
+####  仟音一心  
+##### 9596#       发表于 2022-6-10 21:40
+
+ニ一ドロ老师
+
+<img src="https://img.saraba1st.com/forum/202206/10/214051nw7mhw9wg9g7e9co.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B1EF9F01-66F7-49B0-BDFA-1C1397188536.jpeg</strong> (177.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-10 21:40 上传
+
