@@ -6652,3 +6652,24 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 由手机上传
 2022-6-10 21:40 上传
 
+
+
+*****
+
+####  lj205  
+##### 9597#       发表于 2022-6-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56212573&amp;ptid=2036367" target="_blank">qty 发表于 2022-6-10 21:36</a>
+
+鲤鱼还是尽早把头发染回去吧，现在这个发色真是越看越难看，土黄土黄没光泽，还把脸衬的更大了，不知道怎么 ...</blockquote>
+舞台上效果挺好的
+
+*****
+
+####  竹筷  
+##### 9598#       发表于 2022-6-10 21:49
+
+我觉得这个发色好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
