@@ -6821,3 +6821,37 @@ pay染金，打铁染橙，鲤鱼和nagi保持现在这样，要nako染白发似
 
 本来打算开抽奖抽鲤鱼写真集，结果发现完全没搞懂怎么弄，有无坛友可以指点一二？
 
+
+
+*****
+
+####  ads147147  
+##### 9616#       发表于 2022-6-10 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213542&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 22:45</a>
+
+本来打算开抽奖抽鲤鱼写真集，结果发现完全没搞懂怎么弄，有无坛友可以指点一二？ ...</blockquote>
+拉个excel，名字丢进去做个列表，然后excel生成随机数
+
+*****
+
+####  普之舜舜  
+##### 9617#       发表于 2022-6-10 23:07
+
+ 本帖最后由 普之舜舜 于 2022-6-10 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213808&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-10 23:05</a>
+拉个excel，名字丢进去做个列表，然后excel生成随机数</blockquote>
+我记得微博好像有个抽奖助手吧？我去问问去，等我下
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 9618#       发表于 2022-6-10 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56213808&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-10 23:05</a>
+
+拉个excel，名字丢进去做个列表，然后excel生成随机数</blockquote>
+倒是考虑过，那干脆泥潭和群分开抽吧，反正这帖子里来来回回就这么几个人，还是简单的
+
