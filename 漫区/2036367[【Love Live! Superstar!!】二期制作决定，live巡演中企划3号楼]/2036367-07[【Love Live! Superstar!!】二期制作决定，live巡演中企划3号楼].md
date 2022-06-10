@@ -6293,3 +6293,23 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 正好有人把星团加人风波和缪水之争比较 可你一比较就发现两边不一样的了
 那边无非就是愿意接受水的和不愿意的矛盾 哪有现在这样这么集中的针对某一特定成员的恶意
 
+
+
+*****
+
+####  starring  
+##### 9566#       发表于 2022-6-10 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211122&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 19:44</a>
+
+草，明天会有YURA的吧？会有吧？</blockquote>
+别抱太大期待，能唱特典歌就算惊喜，说不定五首特典+Tu Tu Tu一场换一首
+
+*****
+
+####  Enakina  
+##### 9567#       发表于 2022-6-10 20:01
+
+就是单纯的恶意而已，这一年多还愈来愈壮大了，完全不需要任何和理由，不需要是否正当，只要能扩大影响和败坏路人那就都是好理由和借口。
+但说实话只要鲤鱼本人自己心态够好，那些人就算是闹上天也基本无法对她造成任何伤害。受疫情影响，国内的活动基本遥遥无期，恶心的无非是国内的正常人和让国内这个圈子越来越混沌罢了。我还挺好奇，本事有多少，能让这个环境变得多恶劣呢。起码就现在这三脚猫功夫，完全不够，还比不上人家v圈一根毛呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
