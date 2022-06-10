@@ -15688,3 +15688,14 @@ PU2很弱呢
 
 噫，种好一阵子蓝果了才想到每天不刷3次图是拿不到绿方块的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88348#       发表于 2022-6-10 18:05
+
+人没了想起强化了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

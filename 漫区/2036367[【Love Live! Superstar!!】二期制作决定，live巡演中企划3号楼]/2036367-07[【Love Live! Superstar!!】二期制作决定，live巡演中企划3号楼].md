@@ -6047,3 +6047,12 @@ fc传的是2000+，要是fc没计入O榜那算卖的很好，但感觉不到那�
 
 还行吧，有几张我挺喜欢的，扔手表里天天看，这次加上数字版的总共买了10本
 
+
+
+*****
+
+####  lj205  
+##### 9540#       发表于 2022-6-10 18:07
+
+水煮鱼上分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
