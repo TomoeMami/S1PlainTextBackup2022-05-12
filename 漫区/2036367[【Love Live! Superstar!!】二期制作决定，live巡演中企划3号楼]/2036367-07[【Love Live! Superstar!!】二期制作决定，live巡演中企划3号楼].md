@@ -6467,3 +6467,77 @@ now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 能不能别再聊紫吧那帮魔怔人了
 
+
+
+*****
+
+####  仟音一心  
+##### 9582#       发表于 2022-6-10 20:52
+
+<img src="https://img.saraba1st.com/forum/202206/10/205208xcrwxrclxrwx7w32.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>44FCD777-6EBF-4965-AC93-03F5425BAC32.jpeg</strong> (336.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-10 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202206/10/205208lgtttoootv4myqo3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7CAE6523-7198-40D6-BFDF-BEF6A46925F0.jpeg</strong> (17.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-10 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202206/10/205221mr2wnblh1zhry6bq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EBD58FB3-FBB2-43B9-BB11-F7B8FB250878.jpeg</strong> (436.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-10 20:52 上传
+
+*****
+
+####  lj205  
+##### 9583#       发表于 2022-6-10 20:53
+
+连三九吕老师都无法吸引你们的目光<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9584#       发表于 2022-6-10 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9585#       发表于 2022-6-10 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211680&amp;ptid=2036367" target="_blank">cxj649 发表于 2022-6-10 20:29</a>
+
+我在V圈的混邪乐子人朋友对鲤鱼也没什么太多恶意，所以作为过来人就觉得现在L圈这种有点搞笑的 ...</blockquote>
+V圈乐子人要么是从对日V及其字幕组的圣像破坏里走过来的，要么入坑时已经是国V版本了，紫吧人的开团点对他们而言可谓迷惑甚至踩雷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 9586#       发表于 2022-6-10 20:58
+
+我觉得这写真集销量还行啊。声优大部分都是这个水平的
+
+*****
+
+####  nufawneafg  
+##### 9587#       发表于 2022-6-10 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56211669&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-10 20:29</a></blockquote>
+谢谢兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+还是让色图蒙蔽我的双眼吧
+
