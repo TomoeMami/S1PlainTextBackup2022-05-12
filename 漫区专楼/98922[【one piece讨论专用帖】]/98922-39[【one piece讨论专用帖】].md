@@ -17023,3 +17023,14 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 此科比非彼克比</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">重生之我在海军当大将
 
+
+
+*****
+
+####  赤魔法师  
+##### 58468#       发表于 2022-6-11 19:32
+
+大伙也不是真要讨论主要是图个氛围
+
+就在这个楼吧
+
