@@ -8810,3 +8810,19 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 看完今天的FMT觉得运营爱咋搞就咋搞，被背刺那么多次有抗性了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9809#       发表于 2022-6-11 23:57
+
+不得不说运营这种pua还挺厉害的 就欺负粉丝舍不得切割只能继续爆金币 顺便还被提纯了（指对自己的推<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 9810#       发表于 2022-6-12 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这位鲤友骚话骚过头了捏
+
