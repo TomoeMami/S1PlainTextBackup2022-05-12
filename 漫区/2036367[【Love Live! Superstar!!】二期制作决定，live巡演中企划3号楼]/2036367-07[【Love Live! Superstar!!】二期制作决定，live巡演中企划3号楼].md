@@ -8759,3 +8759,40 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 看不出是耍聪明还是恶意，总之是个傻逼没错</blockquote>
 那货删了………………不管了
 
+
+
+*****
+
+####  lj205  
+##### 9804#       发表于 2022-6-11 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226243&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-11 23:29</a>
+
+那货删了………………不管了</blockquote>
+看他微博貌似还是真推鲤鱼，结果说那么无脑的话也是佩服，“难怪没有女朋友”
+
+*****
+
+####  csolfans  
+##### 9805#       发表于 2022-6-11 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226243&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-11 23:29</a>
+
+那货删了………………不管了</blockquote>
+看了一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼的FC他也开了，周边也买了不少。应该不是黑粉，感觉只是单纯的情商低
+
+*****
+
+####  cybernetics31  
+##### 9806#       发表于 2022-6-11 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微博上有翻译的大佬，说是叔叔家字幕没法精准是系统界面原因
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，原来是fc粉丝群里的大佬，叔叔系统不行啊
+
+*****
+
+####  奥柏伦亲王  
+##### 9807#       发表于 2022-6-11 23:41
+
+是那个阴阳特典曲的二逼吗，太蠢了
+
