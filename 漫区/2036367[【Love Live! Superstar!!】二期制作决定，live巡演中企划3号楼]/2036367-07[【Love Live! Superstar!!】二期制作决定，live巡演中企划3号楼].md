@@ -7060,3 +7060,19 @@ b开播就去b看了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9638#       发表于 2022-6-11 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有新歌的话明天买一场
+
+*****
+
+####  caicaistar  
+##### 9639#       发表于 2022-6-11 15:03
+
+鱼的发色回去了，好多了
+
