@@ -6964,3 +6964,21 @@ P染金发倒是自然，鲤鱼现在这个发色不大行，还是黑色好看�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">果然 fmt当日券，，，，，哎 活动太多 粉丝钱包还是受不了
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9627#       发表于 2022-6-11 11:25
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-6-11 11:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">以现在的体量肯定还是撑不起这么多场fmt的
+
+*****
+
+####  player3960  
+##### 9628#       发表于 2022-6-11 11:26
+
+不要怕，b站转播的第一场卖完了，起码我们看的时候不会太空，后面几场就管不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
