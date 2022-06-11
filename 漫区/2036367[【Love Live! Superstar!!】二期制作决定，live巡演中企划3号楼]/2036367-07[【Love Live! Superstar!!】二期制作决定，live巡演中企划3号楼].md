@@ -8856,3 +8856,12 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">答案是省电模式
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9815#       发表于 2022-6-12 00:15
+
+talk环节的sayu都快查无此人了
+
