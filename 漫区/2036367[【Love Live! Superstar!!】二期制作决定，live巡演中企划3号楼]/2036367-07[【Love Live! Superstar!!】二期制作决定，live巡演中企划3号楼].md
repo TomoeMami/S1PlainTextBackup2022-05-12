@@ -8796,3 +8796,17 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 是那个阴阳特典曲的二逼吗，太蠢了
 
+
+
+*****
+
+####  starring  
+##### 9808#       发表于 2022-6-11 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56224308&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-6-11 20:38</a>
+
+我以为还在这楼的都接受现实了不过运营做的确实不地道，说好的只在talk环节出场，这不搞的没 ...</blockquote>
+还在这楼活跃的反而五人推，单人推的多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+看完今天的FMT觉得运营爱咋搞就咋搞，被背刺那么多次有抗性了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
