@@ -8944,3 +8944,22 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
 吊羊，我的唱歌机器<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11370#       发表于 2022-6-11 22:16
+
+ 本帖最后由 古战场亡魂 于 2022-6-11 22:17 编辑 
+
+乐了，30分钟9个部分分，所谓的vcp就3分钟多。估计也就是把那个原创曲放一遍。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/11/221349u9uoftfz6e9y32yy.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220611220518973.jpg</strong> (11.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-11 22:13 上传
+
