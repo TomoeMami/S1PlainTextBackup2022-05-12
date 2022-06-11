@@ -17107,3 +17107,43 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  火华火华火  
+##### 58478#       发表于 2022-6-12 01:20
+
+ 本帖最后由 火华火华火 于 2022-6-12 01:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226868&amp;ptid=98922" target="_blank">修罗王 发表于 2022-6-12 00:26</a>
+看完和之国回想了一下蛋糕岛，似乎还是相当不错的篇章，除了山治的战力没啥体现和路飞有点仰卧起坐也没啥特 ...</blockquote>
+只要我接下来画的更烂，大家就会觉得我之前画的还行
+蛋糕岛被喷我觉得可能是因为山治又复刻了一波罗宾，整的草帽团一点长进都没有
+还有主角光环拉满，被抓住的路飞喷大妈大妈一点反应都没有，旁边还有娜美，我要是大妈直接卸掉娜美一条腿然后和路飞说你接着喷，当时看到那简直了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  EVANCE  
+##### 58479#       发表于 2022-6-12 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56204586&amp;ptid=98922" target="_blank">klzxs 发表于 2022-06-10 11:58:43</a>
+凯多不是杀大和
+
+平时大概也就是起冲突了凯多揍她一顿就完事了
+
+直到鬼岛决战才是真格的对抗
+
+大和虽然不乐意 ...</blockquote>亲生的和外姓人肯定不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像政老爷对贾宝玉，对亲生的情绪应该是会复杂一些、大一些，更何况大和还是独女
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  klzxs  
+##### 58480#       发表于 2022-6-12 01:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说起来海贼里面还有活着的母亲角色吗 除了大妈
+
+想了想不是完全不提过就是死掉了
+
