@@ -8564,3 +8564,19 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 今天少了贴吧那群人果然清爽多了，还是收费的看着舒服。
 
+
+
+*****
+
+####  lj205  
+##### 9795#       发表于 2022-6-11 23:09
+
+鲤鱼今天自拍课白教了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9796#       发表于 2022-6-11 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘛，比pay当初cd扭曲强
+
