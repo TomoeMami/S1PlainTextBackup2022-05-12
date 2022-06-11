@@ -14532,3 +14532,17 @@ vspo这事有这么严重？
 
 不相信的人的观点：游戏能力不同、直播环境不同（网络/电脑/椅子）、声音不同；
 
+
+
+*****
+
+####  希波兰多的诗歌  
+##### 14912#       发表于 2022-6-11 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56216925&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-11 08:47</a>
+
+简单来说就是认为扮演“莎乐美”和“德比鲁”的人实际上是同一个人。
+
+相信的人的观点：笑声相似、喷嚏声 ...</blockquote>
+谢谢！我其实是好奇德比有多惨，因为莎天酱也惨惨的（但是为我带来了100万点的笑容<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
