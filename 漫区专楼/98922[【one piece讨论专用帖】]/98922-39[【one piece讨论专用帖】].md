@@ -16918,3 +16918,14 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 克比三年前还没果实，不可能不吃饭，</blockquote>
 此科比非彼克比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 58458#       发表于 2022-6-11 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56219776&amp;ptid=98922" target="_blank">今天不守尸 发表于 2022-6-11 13:04</a>
+绿牛不是克比？这直升机都已经明示了吧</blockquote>
+克比是大佐
+
