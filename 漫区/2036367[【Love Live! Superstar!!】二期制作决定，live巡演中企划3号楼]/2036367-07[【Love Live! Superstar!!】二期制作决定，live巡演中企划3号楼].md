@@ -8883,3 +8883,34 @@ talk环节的sayu都快查无此人了
 
 一脸懵逼我错过了甚么
 
+
+
+*****
+
+####  saya1892  
+##### 9818#       发表于 2022-6-12 03:28
+
+ 本帖最后由 saya1892 于 2022-6-12 03:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226627&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-12 00:02</a>
+
+不过今天第一场总有种打铁不是很活跃的错觉，感觉比平时安静</blockquote>
+嗓子状况感觉很不乐观，开头自介唱名的时候发音部位跟平时不一样，靠后，听起来有点虚，接近混声。（平常是直接喊的，就是俗称的大白嗓）
+
+唱的时候就更不用说了，主持也是nako来担任。
+
+拉板现在议论纷纷。
+
+*****
+
+####  cat1230  
+##### 9819#       发表于 2022-6-12 04:49
+
+<blockquote>引用第9816楼nufawneafg于2022-06-12 01:00发表的  :
+
+本帖最后由 nufawneafg 于 2022-6-12 01:31 编辑 一脸懵逼我错过了甚么，草......</blockquote>
+@nufawneafg
+
+我都怀疑他是故意想引起鲤鱼注意了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
