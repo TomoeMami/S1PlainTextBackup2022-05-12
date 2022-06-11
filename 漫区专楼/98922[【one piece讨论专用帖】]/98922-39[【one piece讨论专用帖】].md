@@ -17034,3 +17034,12 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 就在这个楼吧
 
+
+
+*****
+
+####  inconolast  
+##### 58469#       发表于 2022-6-11 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">04年的帖子，这已经是互联网文物了，门户网站跟bbs时代的古董了
+
