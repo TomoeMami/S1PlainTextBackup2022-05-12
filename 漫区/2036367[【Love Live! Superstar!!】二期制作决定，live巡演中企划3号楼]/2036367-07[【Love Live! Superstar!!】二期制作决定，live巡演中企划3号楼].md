@@ -8399,3 +8399,24 @@ talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤
 
 答案是始まりは君の空(9人ver.)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9778#       发表于 2022-6-11 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223302&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-11 18:57</a>
+
+之前拉拉的出道单曲都远早于TV动画，包括始まりは君の空</blockquote>
+现在已经不传统了，我觉得没必要以以前出道单曲来对比这个，楼上说的九人版的始まりは君の空也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9779#       发表于 2022-6-11 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223302&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-11 18:57</a>
+之前拉拉的出道单曲都远早于TV动画，包括始まりは君の空</blockquote>
+但是现在这个星二期明显没时间了，离开播就一个月了。
+
