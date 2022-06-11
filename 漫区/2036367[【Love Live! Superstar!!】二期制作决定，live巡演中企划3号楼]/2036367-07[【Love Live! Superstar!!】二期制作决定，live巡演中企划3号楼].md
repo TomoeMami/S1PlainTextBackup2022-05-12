@@ -8458,3 +8458,21 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱咋咋 指不定哪天就不想看了
 
+
+
+*****
+
+####  lj205  
+##### 9784#       发表于 2022-6-11 20:10
+
+怎么感觉你们破防比我还严重？该说马上转单推的我做了正确的选择吗？
+
+*****
+
+####  player3960  
+##### 9785#       发表于 2022-6-11 20:12
+
+没有的，我也单推感觉好的很，什么团队爱我早就都拿去都喂狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
