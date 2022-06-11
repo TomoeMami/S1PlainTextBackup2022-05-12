@@ -8353,3 +8353,49 @@ talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤
 还是说会有四人出道单曲，但是目前不管 ...</blockquote>
 传统不传统的，有什么意义么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  型月重工  
+##### 9773#       发表于 2022-6-11 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223186&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-11 18:45</a>
+传统不传统的，有什么意义么，现在这个样子算的上有多传统</blockquote>
+始まりは君の空 已经过时了，现在是九人的liella，没有一个新的出道曲主题立不住啊.
+
+*****
+
+####  仟音一心  
+##### 9774#       发表于 2022-6-11 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223273&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-11 18:54</a>
+始まりは君の空 已经过时了，现在是九人的liella，没有一个新的出道曲主题立不住啊. ...</blockquote>
+那应该是动画之后吧
+
+*****
+
+####  型月重工  
+##### 9775#       发表于 2022-6-11 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223287&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-11 18:56</a>
+那应该是动画之后吧</blockquote>
+之前拉拉的出道单曲都远早于TV动画，包括始まりは君の空
+
+*****
+
+####  寒风夜  
+##### 9776#       发表于 2022-6-11 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223302&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-11 18:57</a>
+
+之前拉拉的出道单曲都远早于TV动画，包括始まりは君の空</blockquote>
+动画整这么快咋办嘛
+
+*****
+
+####  nufawneafg  
+##### 9777#       发表于 2022-6-11 19:00
+
+答案是始まりは君の空(9人ver.)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
