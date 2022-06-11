@@ -8433,3 +8433,28 @@ talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9781#       发表于 2022-6-11 19:20
+
+LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive! ～What a Wonderful Dream!!～with Yuigaoka Girls Band」要在B站播出
+
+真有他的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，感觉不会是投稿视频
+
+*****
+
+####  一绪  
+##### 9782#       发表于 2022-6-11 19:48
+
+猜一个出道曲在FMT最后一天公布 
+
+*****
+
+####  稀勢のささ  
+##### 9783#       发表于 2022-6-11 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱咋咋 指不定哪天就不想看了
+
