@@ -17052,3 +17052,58 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 快20年的国宝级专楼啊，卡了都舍不得换
 
+
+
+*****
+
+####  沼蝇  
+##### 58471#       发表于 2022-6-11 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56225129&amp;ptid=98922" target="_blank">inconolast 发表于 2022-6-11 21:51</a>
+04年的帖子，这已经是互联网文物了，门户网站跟bbs时代的古董了</blockquote>
+卧槽这话感觉大和和桃子怎么有一种cp感呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 58472#       发表于 2022-6-11 22:53
+
+还有赤犬这是被藤虎搞怕了啊，一顿哔哔绿牛
+
+*****
+
+####  千叶铁矢  
+##### 58473#       发表于 2022-6-11 22:55
+
+凯多和大妈家一直躺底下吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 58474#       发表于 2022-6-11 23:02
+
+呃呃
+
+*****
+
+####  inconolast  
+##### 58475#       发表于 2022-6-12 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后果然又卡翻页了
+
+*****
+
+####  修罗王  
+##### 58476#       发表于 2022-6-12 00:26
+
+看完和之国回想了一下蛋糕岛，似乎还是相当不错的篇章，除了山治的战力没啥体现和路飞有点仰卧起坐也没啥特别槽点了，但印象中当时风评也不是特别好
+
+*****
+
+####  火华火华火  
+##### 58477#       发表于 2022-6-12 01:18
+
+这么多编剧，助手，就没有一个人和尾田说说你这画的啥啊，尤其最新一画抽签弄死两个，死的一点价值和意义都没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
