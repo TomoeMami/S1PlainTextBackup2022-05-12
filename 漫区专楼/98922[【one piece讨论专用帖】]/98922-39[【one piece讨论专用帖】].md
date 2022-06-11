@@ -16948,3 +16948,30 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 阿修罗和以藏是咋死的，最后发生了啥啊为啥阿普这背叛者没被打趴啊，和之国这一路看完怎么一点印象都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 半仙这倒霉蛋也不知道说他是有骨气好还是没骨气好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉萨乌姆  
+##### 58461#       发表于 2022-6-11 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221616&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-6-11 16:11</a>
+克比三年前还没果实，不可能不吃饭，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他是说做直升机掉下去那个科比啊
+
+*****
+
+####  仟音一心  
+##### 58462#       发表于 2022-6-11 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221784&amp;ptid=98922" target="_blank">今天不守尸 发表于 2022-6-11 16:30</a>
+此科比非彼克比</blockquote>
+草，地狱笑话
+
+*****
+
+####  Supermangunv3  
+##### 58463#       发表于 2022-6-11 18:05
+
+话说之后可以开一个最终章专楼了吧，这卡楼卡的……
+

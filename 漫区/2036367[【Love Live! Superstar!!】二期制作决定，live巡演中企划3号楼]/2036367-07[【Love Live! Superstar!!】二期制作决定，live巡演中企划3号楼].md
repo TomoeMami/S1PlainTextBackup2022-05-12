@@ -8294,3 +8294,21 @@ talk部分比前几天生放送要放开一些了还不错
 
 talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 9768#       发表于 2022-6-11 18:05
+
+ 本帖最后由 iuhehc 于 2022-6-11 18:12 编辑 
+
+洗粉先洗粉先<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我先5了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9769#       发表于 2022-6-11 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次b站转播到底有多少人买票，有无数字哥
+
