@@ -17012,3 +17012,14 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 参照海虎对白首男那样 平常一言不合就揍 但是五极式的冰雪只传给了首男没传给次男 次男是自己后面领悟的
 
+
+
+*****
+
+####  24k纯帅  
+##### 58467#       发表于 2022-6-11 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221784&amp;ptid=98922" target="_blank">今天不守尸 发表于 2022-6-11 16:30</a>
+此科比非彼克比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">重生之我在海军当大将
+
