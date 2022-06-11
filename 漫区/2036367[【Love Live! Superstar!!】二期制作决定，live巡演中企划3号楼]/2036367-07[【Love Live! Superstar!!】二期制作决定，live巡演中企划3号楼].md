@@ -7532,3 +7532,173 @@ sayu的消失
 
 彩妹挺健谈啊，以后估计是类似nako的角色
 
+
+
+*****
+
+####  JustW_2  
+##### 9684#       发表于 2022-6-11 16:15
+
+说到大阪环球，就想到北京环球又关了，悲
+
+*****
+
+####  stygian  
+##### 9685#       发表于 2022-6-11 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221552&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-11 16:04</a>
+
+？日本人不是吃茶泡饭吗？为啥（除了中国人外）其他几人那么惊讶？
+
+草，鲤鱼，不要再说厕所了w
+
+ ...</blockquote>
+pay是拿外面卖的瓶装茶直接倒进去的
+
+乍一听很怪不过细想也不是不可以，只是有点反常识而已
+
+*****
+
+####  仟音一心  
+##### 9686#       发表于 2022-6-11 16:16
+
+<img src="https://img.saraba1st.com/forum/202206/11/161549svc0hvpizigq6wz0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DF9D7CA5-BDE8-40B7-B5A2-BF833312906A.jpeg</strong> (56.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161549iyo4olornzcjnu6q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3B3BCEE4-EA15-447B-9F5E-2BD42C0A7BD2.jpeg</strong> (136.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161549uqo1y5j0qswmmsjq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E9EFE540-1F3E-426F-B00C-E52EC61B04C9.jpeg</strong> (163.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161550y217nax7t77ezaz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>187CEFE1-EDDB-49FE-8D17-E75FAA6B1100.jpeg</strong> (116.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161550zp09pi9zxovioipq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FEF1714D-FEE2-4AA7-B182-25D3130B6219.jpeg</strong> (158.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161550q2bcxzcyolcfouxl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>94ABFE4B-7826-484E-AD99-E8154E1E573A.jpeg</strong> (130.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/161550byv62zx6e2brxm1c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2D499764-24BE-4636-ACD2-68915C26182E.jpeg</strong> (175.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 16:15 上传
+
+*****
+
+####  奥柏伦亲王  
+##### 9687#       发表于 2022-6-11 16:16
+
+这fmt场面好凌乱草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9688#       发表于 2022-6-11 16:16
+
+ 本帖最后由 lj205 于 2022-6-11 16:18 编辑 
+
+原来罪魁祸首是NAGI
+
+*****
+
+####  JustW_2  
+##### 9689#       发表于 2022-6-11 16:18
+
+鲤鱼直接举着台本还行）
+
+*****
+
+####  lj205  
+##### 9690#       发表于 2022-6-11 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221659&amp;ptid=2036367" target="_blank">stygian 发表于 2022-6-11 16:15</a>
+
+pay是拿外面卖的瓶装茶直接倒进去的
+
+乍一听很怪不过细想也不是不可以，只是有点反常识而已 ...</blockquote>
+我以为啥茶都可以<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  JustW_2  
+##### 9691#       发表于 2022-6-11 16:20
+
+<blockquote>lj205 发表于 2022-6-11 16:18
+我以为啥茶都可以</blockquote>
+虽然日本卖的瓶装茶不太一样，但类比拿康师傅绿茶倒进米饭里，还是很怪的（）
+
+*****
+
+####  靡宜  
+##### 9692#       发表于 2022-6-11 16:20
+
+鲤鱼姐这solo小紧张
+
+*****
+
+####  JustW_2  
+##### 9693#       发表于 2022-6-11 16:20
+
+卡页
+
+*****
+
+####  stygian  
+##### 9694#       发表于 2022-6-11 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221681&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-11 16:18</a>
+
+我以为啥茶都可以</blockquote>
+至少放糖那些不行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 9695#       发表于 2022-6-11 16:23
+
+草，大龄鲤鱼，高中生活已经淡忘
+
