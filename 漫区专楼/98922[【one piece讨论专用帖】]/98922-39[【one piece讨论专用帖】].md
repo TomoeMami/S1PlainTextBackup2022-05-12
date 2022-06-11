@@ -16975,3 +16975,40 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 话说之后可以开一个最终章专楼了吧，这卡楼卡的……
 
+
+
+*****
+
+####  仟音一心  
+##### 58464#       发表于 2022-6-11 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56222764&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-6-11 18:05</a>
+话说之后可以开一个最终章专楼了吧，这卡楼卡的……</blockquote>
+这楼留着也有好处，可能是漫区还活跃的楼中建楼最早的，算历史见证了。
+
+*****
+
+####  7sevenseven  
+##### 58465#       发表于 2022-6-11 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56222764&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-6-11 18:05</a>
+话说之后可以开一个最终章专楼了吧，这卡楼卡的……</blockquote>
+除非这楼被关了，只有一个新帖
+否则不太可能
+
+*****
+
+####  阿拉纳克  
+##### 58466#       发表于 2022-6-11 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56204586&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-10 11:58</a>
+
+凯多不是想杀大和，是必要时会杀大和
+
+平时大概也就是起冲突了凯多揍她一顿就完事了
+
+直到鬼岛决战才是真格的 ...</blockquote>
+大概是东亚式长子教育？
+
+参照海虎对白首男那样 平常一言不合就揍 但是五极式的冰雪只传给了首男没传给次男 次男是自己后面领悟的
+
