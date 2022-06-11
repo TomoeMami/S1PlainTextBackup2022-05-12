@@ -8045,3 +8045,121 @@ CelticWhite老师神速
 
 导播毫无疑问是个合鲤推捏
 
+
+
+*****
+
+####  仟音一心  
+##### 9738#       发表于 2022-6-11 17:32
+
+<img src="https://img.saraba1st.com/forum/202206/11/173235ndrcduyql47zzn1d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>01AFAD11-AB18-4EA0-A9C9-FDF75F9A98DD.jpeg</strong> (197.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/173235uw9qqgjsohq1zh2g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ABBCD15C-490A-4CD6-8B68-895BC1A20000.jpeg</strong> (197.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 17:32 上传
+
+*****
+
+####  稀勢のささ  
+##### 9739#       发表于 2022-6-11 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这总不能是我合鲤人最后的晚餐吧
+
+*****
+
+####  lj205  
+##### 9740#       发表于 2022-6-11 17:34
+
+草，字幕完全不见了
+
+*****
+
+####  iuhehc  
+##### 9741#       发表于 2022-6-11 17:36
+
+e+的tututu放那个4个人在后面就很尬我觉得，看到这我都想掀桌子了..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 9742#       发表于 2022-6-11 17:36
+
+突突突！！！！！！！！！！！
+
+但是为啥是9人？
+
+*****
+
+####  ViyViy  
+##### 9743#       发表于 2022-6-11 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着叔叔只提供聊天环节的字幕
+
+*****
+
+####  JustW_2  
+##### 9744#       发表于 2022-6-11 17:37
+
+伴舞艹
+
+*****
+
+####  aoaoaodedede  
+##### 9745#       发表于 2022-6-11 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56222418&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-11 17:36</a>
+
+合着叔叔只提供聊天环节的字幕</blockquote>
+宣传页上只写了talk环节有字幕
+
+*****
+
+####  cybernetics31  
+##### 9746#       发表于 2022-6-11 17:39
+
+哎，这也没办法，迟早要上的
+
+*****
+
+####  lj205  
+##### 9747#       发表于 2022-6-11 17:39
+
+这是让4个新人最近距离看看前辈的和声实力吗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9748#       发表于 2022-6-11 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">付费的弹幕也能吵起来
+
+*****
+
+####  JustW_2  
+##### 9749#       发表于 2022-6-11 17:40
+
+突然又有字幕了
+
+*****
+
+####  lj205  
+##### 9750#       发表于 2022-6-11 17:41
+
+个人并不是很喜欢这个安排
+
+翘首以盼的5人突突突，变成这样
+
