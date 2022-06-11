@@ -7234,3 +7234,150 @@ b开播就去b看了
 
 不愧是被赋予百变更衣人偶称号的女人，一个星期变两次发色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9657#       发表于 2022-6-11 15:45
+
+前偶像真的有18岁吗，看着感觉20大好几的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 9658#       发表于 2022-6-11 15:45
+
+阿b这字幕难道是手动换行的吗，怎么还会发愣的（）
+
+*****
+
+####  ads147147  
+##### 9659#       发表于 2022-6-11 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56221354&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-11 15:45</a>
+前偶像真的有18岁吗，看着感觉20大好几的感觉</blockquote>
+感觉是发型问题。
+
+这次字幕打轴真的好多问题。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 9660#       发表于 2022-6-11 15:46
+
+Nagi居然是c位，不愧是会长<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cat1230  
+##### 9661#       发表于 2022-6-11 15:49
+
+没怎么看过fmt，怎么还是读信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 9662#       发表于 2022-6-11 15:50
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946j8558ojqs0pz4ivo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DD8A9BDB-0D3D-4185-91B4-7671D370E86A.jpeg</strong> (184.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946qugoy7u0pag6gatt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DA484E06-DA19-4199-B18D-FED24878D042.jpeg</strong> (262.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946antn3n9111n1fyyo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D9F638FA-EEA2-4E64-A652-DD44FC77555B.jpeg</strong> (186.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946xvo1tc29o539ve3e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59A9533D-18E6-4F3E-9B7F-0C5F7FEFA2F6.jpeg</strong> (191.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946przle2tegcnbbfel.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E2DB3855-5766-44C9-9CC3-C5D8AC470399.jpeg</strong> (180.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154946m71ikc10ess817ie.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BDDCB6F4-0B01-48C5-BF60-6F2C98462952.jpeg</strong> (204.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154947e1y71yxx734s3xrz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>60E9A99F-BD17-4E60-A07B-96220725519D.jpeg</strong> (299.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154947eh9uqmaqudnq842v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C1D81211-0900-4188-8490-92F0CF7DC61A.jpeg</strong> (247.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202206/11/154947smyv2mi3s32bv96v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B1EFF7D3-7AC4-47D6-B319-03F183A3458F.jpeg</strong> (242.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 15:49 上传
+
+*****
+
+####  JustW_2  
+##### 9663#       发表于 2022-6-11 15:50
+
+奇妙的发型
+
+*****
+
+####  lj205  
+##### 9664#       发表于 2022-6-11 15:51
+
+草，没有隔板，鲤鱼终于可以自由上手了
+
