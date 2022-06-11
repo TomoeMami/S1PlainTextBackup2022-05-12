@@ -6991,3 +6991,72 @@ P染金发倒是自然，鲤鱼现在这个发色不大行，还是黑色好看�
 
 看有几首新歌吧
 
+
+
+*****
+
+####  iuhehc  
+##### 9630#       发表于 2022-6-11 14:42
+
+ 本帖最后由 iuhehc 于 2022-6-11 14:44 编辑 
+
+现在有看e+的吗 这个站位看起来好像5+4啊草 
+感觉那两个粉色还是有区别的但是和可可像的那个颜色真的很难分辨啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9631#       发表于 2022-6-11 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不然怎么站？四个人插在五人中间吗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9632#       发表于 2022-6-11 14:46
+
+顺便前偶像台风还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9633#       发表于 2022-6-11 14:46
+
+翻页
+
+*****
+
+####  cat1230  
+##### 9634#       发表于 2022-6-11 14:48
+
+等啊B开播，有字幕真好啊
+
+*****
+
+####  lj205  
+##### 9635#       发表于 2022-6-11 14:49
+
+在躺着，群里都开始聊了，不过我还是等着破站吧
+
+*****
+
+####  仟音一心  
+##### 9636#       发表于 2022-6-11 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56220316&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-6-11 13:52</a>
+看有几首新歌吧</blockquote>
+我猜最多一两首新歌，没有新歌的可能性也很大。
+
+*****
+
+####  iuhehc  
+##### 9637#       发表于 2022-6-11 14:52
+
+b开播就去b看了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
