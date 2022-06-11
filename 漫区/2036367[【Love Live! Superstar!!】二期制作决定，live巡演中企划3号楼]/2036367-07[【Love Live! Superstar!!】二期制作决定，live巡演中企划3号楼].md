@@ -8022,3 +8022,26 @@ CelticWhite老师神速
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  竹筷  
+##### 9735#       发表于 2022-6-11 17:23
+
+什么合鲤导播
+
+*****
+
+####  player3960  
+##### 9736#       发表于 2022-6-11 17:25
+
+只给合鲤牵手镜头还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 9737#       发表于 2022-6-11 17:25
+
+导播毫无疑问是个合鲤推捏
+
