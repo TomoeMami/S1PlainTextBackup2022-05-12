@@ -8420,3 +8420,16 @@ talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤
 之前拉拉的出道单曲都远早于TV动画，包括始まりは君の空</blockquote>
 但是现在这个星二期明显没时间了，离开播就一个月了。
 
+
+
+*****
+
+####  iuhehc  
+##### 9780#       发表于 2022-6-11 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223336&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-6-11 19:00</a>
+答案是始まりは君の空(9人ver.)</blockquote>
+我都不敢想了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
