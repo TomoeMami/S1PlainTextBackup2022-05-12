@@ -8731,3 +8731,31 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 哎，鱼微博回复………………</blockquote>
 看不出是耍聪明还是恶意，总之是个傻逼没错
 
+
+
+*****
+
+####  caicaistar  
+##### 9801#       发表于 2022-6-11 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226111&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-11 23:18</a>
+
+哎，鱼微博回复………………</blockquote>
+？没刷着，发生什么事了
+
+*****
+
+####  优妮可  
+##### 9802#       发表于 2022-6-11 23:29
+
+他删评了，总之没那块应援布跳脸离谱
+
+*****
+
+####  cybernetics31  
+##### 9803#       发表于 2022-6-11 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56226152&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-11 23:21</a>
+看不出是耍聪明还是恶意，总之是个傻逼没错</blockquote>
+那货删了………………不管了
+
