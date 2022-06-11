@@ -7948,3 +7948,77 @@ CelticWhite老师神速
 
 心脏在粤东，媳妇满天空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_2  
+##### 9726#       发表于 2022-6-11 17:12
+
+这嗓子what happened
+
+*****
+
+####  稀勢のささ  
+##### 9727#       发表于 2022-6-11 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经这样很久了
+
+*****
+
+####  ads147147  
+##### 9728#       发表于 2022-6-11 17:16
+
+还得养嗓子，这状态下个月就2期了。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 9729#       发表于 2022-6-11 17:17
+
+我刚才完全疯了
+
+*****
+
+####  lj205  
+##### 9730#       发表于 2022-6-11 17:18
+
+其实唱媳妇的时候鲤鱼也有点放不开，第一次演出加上动作多吧
+
+*****
+
+####  iuhehc  
+##### 9731#       发表于 2022-6-11 17:18
+
+可能就是一个场次换一次solo曲了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  竹筷  
+##### 9732#       发表于 2022-6-11 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56222236&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-11 17:18</a>
+
+其实唱媳妇的时候鲤鱼也有点放不开，第一次演出加上动作多吧</blockquote>
+熟练度问题吧，毕竟这首是第一次live
+
+*****
+
+####  player3960  
+##### 9733#       发表于 2022-6-11 17:21
+
+能听到可可这首已经满足了，以后还唱不唱都难说了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9734#       发表于 2022-6-11 17:23
+
+导播很懂啊w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
