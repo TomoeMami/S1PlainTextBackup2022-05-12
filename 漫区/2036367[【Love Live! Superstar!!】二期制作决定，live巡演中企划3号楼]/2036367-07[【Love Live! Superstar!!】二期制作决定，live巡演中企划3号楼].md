@@ -8865,3 +8865,12 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 talk环节的sayu都快查无此人了
 
+
+
+*****
+
+####  csolfans  
+##### 9816#       发表于 2022-6-12 00:47
+
+那人在微博道歉了
+
