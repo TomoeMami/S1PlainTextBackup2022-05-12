@@ -8505,3 +8505,51 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9789#       发表于 2022-6-11 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">本来想着bd曲+全卷购入曲6+5正好一场一首，但看repo今天两场歌单是一样的？
+
+*****
+
+####  仟音一心  
+##### 9790#       发表于 2022-6-11 20:56
+
+夜场合鲤糖：未来如风时两人丝巾反了，又换回来了。
+
+*****
+
+####  player3960  
+##### 9791#       发表于 2022-6-11 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56224476&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-06-11 20:53:41</a>
+本来想着bd曲+全卷购入曲6+5正好一场一首，但看repo今天两场歌单是一样的？</blockquote>乐观点，说不定小星星可能被换成其他二三人曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 9792#       发表于 2022-6-11 20:58
+
+<img src="https://img.saraba1st.com/forum/202206/11/205822ho1t5oso5bw7owt1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>29E6EEF6-5340-4918-8C08-813D9B3A5A44.jpeg</strong> (236.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-11 20:58 上传
+
+*****
+
+####  lj205  
+##### 9793#       发表于 2022-6-11 21:00
+
+买了明天的票，希望明天有不一样的整活
+好像还没看到第二场的talk和游戏环节内容
+
