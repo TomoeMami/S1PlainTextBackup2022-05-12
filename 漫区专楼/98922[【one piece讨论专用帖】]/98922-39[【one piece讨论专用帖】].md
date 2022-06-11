@@ -16938,3 +16938,13 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 就算在和之国本土，御田的地位也远不如刀神龙马啊
 
+
+
+*****
+
+####  azbhg1  
+##### 58460#       发表于 2022-6-11 18:00
+
+阿修罗和以藏是咋死的，最后发生了啥啊为啥阿普这背叛者没被打趴啊，和之国这一路看完怎么一点印象都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+半仙这倒霉蛋也不知道说他是有骨气好还是没骨气好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

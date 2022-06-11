@@ -8271,3 +8271,26 @@ e+的tututu放那个4个人在后面就很尬我觉得，看到这我都想掀�
 
 真就9人突突突，这设计真睿智，新人上去放背景板呗，看的真的尬
 
+
+
+*****
+
+####  starring  
+##### 9765#       发表于 2022-6-11 17:52
+
+talk部分比前几天生放送要放开一些了还不错
+
+*****
+
+####  甘蓝巧克力  
+##### 9766#       发表于 2022-6-11 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">都是脱敏治疗，以后可能还有更睿智的操作，骂就完事了
+
+*****
+
+####  lj205  
+##### 9767#       发表于 2022-6-11 17:57
+
+talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
