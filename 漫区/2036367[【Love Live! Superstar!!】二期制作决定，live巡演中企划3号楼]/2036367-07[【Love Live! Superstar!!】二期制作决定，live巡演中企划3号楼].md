@@ -7180,3 +7180,57 @@ b开播就去b看了
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9650#       发表于 2022-6-11 15:33
+
+带延迟的字幕
+
+*****
+
+####  ads147147  
+##### 9651#       发表于 2022-6-11 15:34
+
+等会，鲤鱼好像没有自我介绍？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 9652#       发表于 2022-6-11 15:35
+
+我去，这大立牌
+
+*****
+
+####  lj205  
+##### 9653#       发表于 2022-6-11 15:38
+
+破站清晰度非常可以
+字幕出来的时候我还愣了一下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9654#       发表于 2022-6-11 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">凑活看了 反正叔叔就今天的
+
+*****
+
+####  JustW_2  
+##### 9655#       发表于 2022-6-11 15:39
+
+鲤鱼发色怎么又变回去了
+
+*****
+
+####  lj205  
+##### 9656#       发表于 2022-6-11 15:41
+
+不愧是被赋予百变更衣人偶称号的女人，一个星期变两次发色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
