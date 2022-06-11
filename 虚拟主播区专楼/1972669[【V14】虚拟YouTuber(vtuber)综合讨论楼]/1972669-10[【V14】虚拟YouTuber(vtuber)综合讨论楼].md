@@ -14640,3 +14640,21 @@ rust的赌博店里全是赌狗
 
 已经完全是小钢珠的形状了
 
+
+
+*****
+
+####  Suzutsuki  
+##### 14918#       发表于 2022-6-11 12:20
+
+花芽姐还是有意思，一堆坏人围着面不改色继续赌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 14919#       发表于 2022-6-11 12:26
+
+rust里已经只剩赌狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一堆萌音主播聚众赌博是真的草生
+
