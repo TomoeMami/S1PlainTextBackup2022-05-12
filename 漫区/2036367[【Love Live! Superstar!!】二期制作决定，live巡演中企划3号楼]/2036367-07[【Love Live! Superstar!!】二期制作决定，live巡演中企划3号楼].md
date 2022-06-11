@@ -8329,3 +8329,27 @@ talk没有了自欺欺人板效果好了不少，特别是喜欢body交流的鲤
 
 あs
 
+
+
+*****
+
+####  型月重工  
+##### 9771#       发表于 2022-6-11 18:43
+
+ 本帖最后由 型月重工 于 2022-6-11 18:48 编辑 
+
+不是，我有个问题..
+既然九人了难道不应该出一首九人的出道单曲吗？
+或者也许是二期四人出道单曲，但是目前不管是九人还是四人都没影，啥都没有直接上TV动画说不过去吧. ...明显不符合拉拉传统，首先对新人不公平，其次对旧人无法割舍过去从而迎来新局面.
+
+*****
+
+####  aoaoaodedede  
+##### 9772#       发表于 2022-6-11 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56223172&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-11 18:43</a>
+不是，我有个问题..
+既然九人了难道不应该出一首九人的出道单曲吗？
+还是说会有四人出道单曲，但是目前不管 ...</blockquote>
+传统不传统的，有什么意义么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
