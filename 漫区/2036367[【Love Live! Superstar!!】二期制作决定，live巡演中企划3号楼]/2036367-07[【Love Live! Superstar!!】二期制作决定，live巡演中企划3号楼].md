@@ -8826,3 +8826,33 @@ LVJ在B站说前一阵子的那个「Love Live! Superstar!! Liella! 2nd LoveLive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这位鲤友骚话骚过头了捏
 
+
+
+*****
+
+####  starring  
+##### 9811#       发表于 2022-6-12 00:01
+
+预言一个，7月pay，9月打铁的生日event如果有邀请其她队员，大概率是8人，尤其打铁和铃原还是同一事务所
+
+*****
+
+####  lj205  
+##### 9812#       发表于 2022-6-12 00:02
+
+不过今天第一场总有种打铁不是很活跃的错觉，感觉比平时安静
+
+*****
+
+####  lj205  
+##### 9813#       发表于 2022-6-12 00:04
+
+卡翻页了又
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9814#       发表于 2022-6-12 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">答案是省电模式
+
