@@ -9593,3 +9593,12 @@ R3那边雪藏得更久
 R3那边雪藏得更久</blockquote>
 如果你真的试图和r3比的话，会更绝望的。
 
+
+
+*****
+
+####  cybernetics31  
+##### 9881#       发表于 2022-6-12 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">r3多少是有手游被坑久了的原因…………
+
