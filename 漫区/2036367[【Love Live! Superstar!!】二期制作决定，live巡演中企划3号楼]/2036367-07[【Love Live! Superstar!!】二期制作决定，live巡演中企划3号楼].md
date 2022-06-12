@@ -9480,3 +9480,20 @@ woc还真是
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yevvet  
+##### 9869#       发表于 2022-6-12 20:46
+
+日常怀疑鲤鱼不止167.8。绘森彩和鲤鱼差了不止5cm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9870#       发表于 2022-6-12 20:50
+
+不太懂已经见过面为啥是雷点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+按理说越早见越好啊
+
