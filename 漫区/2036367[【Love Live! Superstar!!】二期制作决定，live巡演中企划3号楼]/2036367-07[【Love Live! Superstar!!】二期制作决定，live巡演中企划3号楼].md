@@ -9214,3 +9214,37 @@ live前 抽到第一印象 这几位说一年前见的面，，，，，，<img 
 
 雪藏1年真是乐了，脸被打得啪啪响<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9846#       发表于 2022-6-12 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">区区一年   还有素人的话后面得有两年的
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9847#       发表于 2022-6-12 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以是已经进行了一年的训练吗？
+
+*****
+
+####  aoaoaodedede  
+##### 9848#       发表于 2022-6-12 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234254&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-12 18:50</a>
+雪藏1年真是乐了，脸被打得啪啪响</blockquote>
+打脸打的最痛是应该是说销量不好怎么怎么样的人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9849#       发表于 2022-6-12 18:57
+
+那我要说一句如果一开始就定下来加人，第一期写成这样真不行啊花田
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
