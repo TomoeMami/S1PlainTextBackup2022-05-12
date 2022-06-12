@@ -9399,3 +9399,46 @@ Kuma被直接击沉
 
 这鲤鱼吧，后面还牵着佩佩的手
 
+
+
+*****
+
+####  iuhehc  
+##### 9862#       发表于 2022-6-12 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56235103&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-12 19:51</a>
+这鲤鱼吧，后面还牵着佩佩的手</blockquote>
+woc还真是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愛さ実  
+##### 9863#       发表于 2022-6-12 19:57
+
+ 本帖最后由 愛さ実 于 2022-6-12 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56235103&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-12 19:51</a>
+这鲤鱼吧，后面还牵着佩佩的手</blockquote>
+太细了lj老师<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">。仔细一看红圈那手是nako的，确实是鱼牵着pay的手
+
+<img src="https://img.saraba1st.com/forum/202206/12/195803zccg81bjpkdgegfd.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2954.JPG</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2022-6-12 19:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9864#       发表于 2022-6-12 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56235103&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-12 19:51</a>
+
+这鲤鱼吧，后面还牵着佩佩的手</blockquote>
+还真牵手，用放大镜看图<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
