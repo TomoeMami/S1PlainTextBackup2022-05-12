@@ -9783,3 +9783,17 @@ liella鬼屋之旅2要来了
 
 草但是我想看她们蹦极<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 9898#       发表于 2022-6-13 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56239370&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-12 22:43</a>
+
+入队后情报里都有提到，记得是一期的回顾特刊？生放也有来着。
+
+r3出演其他项目都是可以的，as游戏的配音 ...</blockquote>
+尤其是星1恋来了一波AS栞子剧情复刻，那么……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
