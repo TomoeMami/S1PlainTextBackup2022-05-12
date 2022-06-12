@@ -9602,3 +9602,26 @@ R3那边雪藏得更久</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">r3多少是有手游被坑久了的原因…………
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9882#       发表于 2022-6-12 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56237313&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-6-12 21:25</a>
+
+星的运营就是在气死粉丝的道路上前行的，就这样还有些粉丝帮着PUA不想被PUA的粉丝 ...</blockquote>
+只能说不同粉丝的着眼点不一样，或许有些确实是被PUA后选择妥协的，或许有些一开始入坑的方向或者喜欢的角度就不会被运营PUA的，但是我也觉得如果持有这些看法的粉丝指责受不了PUA的粉丝实在是挺无语的。
+
+*****
+
+####  竹筷  
+##### 9883#       发表于 2022-6-12 22:18
+
+ 本帖最后由 竹筷 于 2022-6-12 22:20 编辑 
+
+老实说我认为所谓的“雪藏”一年跟R3的情况是完全不一样，老五人也是20年就开始入企划的，也就是说这一年的准备期也是在合同里的，实际上已经是开始拿工资训练了。R3的情况是合同肯定没有禁止“雪藏”期间参加其他企划。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
