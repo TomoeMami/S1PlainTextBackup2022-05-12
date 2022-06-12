@@ -9526,3 +9526,40 @@ woc还真是
 
 翻页
 
+
+
+*****
+
+####  ads147147  
+##### 9874#       发表于 2022-6-12 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56236527&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-6-12 20:50</a>
+
+不太懂已经见过面为啥是雷点
+
+按理说越早见越好啊</blockquote>
+单纯的觉得运营下限没那么低的时候，发现他们真的可以这么低。
+
+*****
+
+####  甘蓝巧克力  
+##### 9875#       发表于 2022-6-12 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 9876#       发表于 2022-6-12 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56236862&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-12 21:06</a>
+有可能是彩报高了</blockquote>
+樱花妹都喜欢往矮了报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 9877#       发表于 2022-6-12 21:30
+
+R3那边雪藏得更久
+
