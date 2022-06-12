@@ -912,3 +912,15 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 燃起来了
 
+
+
+*****
+
+####  godless2020  
+##### 108#       发表于 2022-6-13 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243090&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 02:58</a>
+
+可能故事里要说，诸葛亮的亮是“孔明”以讹传讹附会出来的，真实的卧龙，是诸葛空和诸葛明两个人，两个合在 ...</blockquote>
+类似拉达冈和玛丽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
