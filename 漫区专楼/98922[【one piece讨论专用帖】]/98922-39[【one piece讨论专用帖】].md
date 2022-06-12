@@ -17245,3 +17245,21 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Supermangunv3  
+##### 58490#       发表于 2022-6-12 14:16
+
+<img src="https://img.saraba1st.com/forum/202206/12/141544mpqbnye5n6b6kyle.jpg" referrerpolicy="no-referrer">
+
+<strong>30134B6A8B63E39E73E73153DAE0E7C4.jpg</strong> (122.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 14:15 上传
+
+这毒舌老外的审美挺离谱……
+
