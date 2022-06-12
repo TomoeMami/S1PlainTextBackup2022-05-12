@@ -9651,3 +9651,80 @@ r3那三情况还是很不同的，受影响比较大的主要还是菜宝
 
 话说R3很早就预定（？）之类的说法是在哪个访谈还是节目上说过，我想去看看原文
 
+
+
+*****
+
+####  cybernetics31  
+##### 9887#       发表于 2022-6-12 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56238931&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-12 22:29</a>
+话说R3很早就预定（？）之类的说法是在哪个访谈还是节目上说过，我想去看看原文 ...</blockquote>
+访谈里头，这三选上是18年
+
+*****
+
+####  lj205  
+##### 9888#       发表于 2022-6-12 22:36
+
+<img src="https://img.saraba1st.com/forum/202206/12/223558zz9r3aq0arisi93s.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220612223517.jpg</strong> (186.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-12 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/223558xy6d8ipdy6688j98.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220612223523.jpg</strong> (186.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-12 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/223558bfyrltv6t6d6kfzg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220612223528.jpg</strong> (189.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-12 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/223558aimwcjjso9bsjycc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220612223534.jpg</strong> (545.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-12 22:35 上传
+
+*****
+
+####  凡人  
+##### 9889#       发表于 2022-6-12 22:41
+
+一期早就知道有二期了，二期也早就知道有三期了，三期也...
+
+*****
+
+####  甘蓝巧克力  
+##### 9890#       发表于 2022-6-12 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">不知道一期是什么时候知道和二期汇流的，如果早就私下在一起一年那看外景烧烤读信真是无语凝噎
+
+*****
+
+####  ads147147  
+##### 9891#       发表于 2022-6-12 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56238931&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-12 22:29</a>
+话说R3很早就预定（？）之类的说法是在哪个访谈还是节目上说过，我想去看看原文 ...</blockquote>
+入队后情报里都有提到，记得是一期的回顾特刊？生放也有来着。
+
+r3出演其他项目都是可以的，as游戏的配音其实也是很早就跟进了，甚至哪怕游戏炸了也还能捞到一次复活币成功逆转复活。
+
+反正都毫无忌惮的提了，说明运营确实觉得自己整的是好活（好吧，我fmt也掏钱了，我是傻子），现在悲观意识都是一步步铺垫出来的，仿佛让我重新体验了当年as的主线，一样烂的味道扑面而来，我也不想凭空贷款。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
