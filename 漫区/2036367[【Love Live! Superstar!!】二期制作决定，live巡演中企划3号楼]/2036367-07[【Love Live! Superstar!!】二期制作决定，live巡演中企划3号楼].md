@@ -9625,3 +9625,29 @@ R3那边雪藏得更久</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 9884#       发表于 2022-6-12 22:24
+
+r3那三情况还是很不同的，受影响比较大的主要还是菜宝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对新4人的访谈越来越有兴趣了
+
+*****
+
+####  iuhehc  
+##### 9885#       发表于 2022-6-12 22:27
+
+为啥会拿她们和r3比啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 就不是一种情况啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 9886#       发表于 2022-6-12 22:29
+
+话说R3很早就预定（？）之类的说法是在哪个访谈还是节目上说过，我想去看看原文
+
