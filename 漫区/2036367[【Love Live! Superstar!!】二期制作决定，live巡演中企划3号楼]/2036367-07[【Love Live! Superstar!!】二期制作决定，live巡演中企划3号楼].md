@@ -9014,3 +9014,49 @@ talk环节的sayu都快查无此人了
 
 又卡翻页了？
 
+
+
+*****
+
+####  仟音一心  
+##### 9828#       发表于 2022-6-12 16:23
+
+Shooting Voice
+
+勇気のカケラ
+
+常夏✩サンシャイン
+
+だから僕らは鳴らすんだ！
+
+Dreaming Energy
+
+未来は風のように
+
+トゥ トゥ トゥ!
+
+<img src="https://img.saraba1st.com/forum/202206/12/162300kz31vkxu4lnxrrff.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>26F914C5-50A7-42DC-8F1C-4A131581723B.jpeg</strong> (310.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 16:23 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/162308xocuzzh8j3308cjo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>93AB304C-09BB-4625-894F-275E28492CAD.jpeg</strong> (417.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 16:23 上传
+
+*****
+
+####  lj205  
+##### 9829#       发表于 2022-6-12 16:32
+
+这每场都奖励吃的，真不怕吃胖吗？
+
