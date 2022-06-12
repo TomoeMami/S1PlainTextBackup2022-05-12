@@ -15079,3 +15079,16 @@ syl，粉碎不仲传闻！
 接下来一个半小时SEEDs欢快气氛的卡拉OK大会了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">然后就最后一个了。不过多人柴卡居然没有玩鼻毛真拳梗。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 14962#       发表于 2022-6-12 16:41
+
+ 本帖最后由 格林卡罗尔 于 2022-6-12 16:44 编辑 
+
+草，这便当4000日元？都还不错，第二个看起来清淡点
+
+身体的距离是心的距离（确信）
+
