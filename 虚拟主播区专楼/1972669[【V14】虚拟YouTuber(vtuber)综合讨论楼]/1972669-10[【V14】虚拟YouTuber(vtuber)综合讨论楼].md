@@ -14999,3 +14999,12 @@ sbrt和mondo，之前有过一个3天4个组的rust活动，不过当时好多�
 
 月之…
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 14955#       发表于 2022-6-12 13:10
+
+最茶番的企划来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
