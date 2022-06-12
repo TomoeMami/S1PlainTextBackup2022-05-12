@@ -8951,3 +8951,30 @@ talk环节的sayu都快查无此人了
 嗓子状况感觉很不乐观，开头自介唱名的时候发音部位跟平时不一样，靠后，听起来有点虚，接近混声。（平常 ...</blockquote>
 但是有一说一live部分还行
 
+
+
+*****
+
+####  仟音一心  
+##### 9823#       发表于 2022-6-12 09:02
+
+有人在官方抖音中毫不掩饰地贴贴，不用说是谁。
+
+<img src="https://img.saraba1st.com/forum/202206/12/090201db6512c21xhzbqq1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02A3F71D-2774-416D-A2EC-187CC1043E56.jpeg</strong> (323.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/090208exaqft74q7qsgstt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C266D1E3-4E57-459B-96E5-EACD91F07A98.jpeg</strong> (321.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 09:02 上传
+
