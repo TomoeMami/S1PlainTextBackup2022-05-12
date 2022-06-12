@@ -15008,3 +15008,19 @@ sbrt和mondo，之前有过一个3天4个组的rust活动，不过当时好多�
 
 最茶番的企划来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  帆刈叶  
+##### 14956#       发表于 2022-6-12 13:11
+
+想起上次一群人一起唱Get wild的时候了 ，阿菜......
+
+*****
+
+####  布莱士·西伯利  
+##### 14957#       发表于 2022-6-12 13:11
+
+SEEDs一期最开心了SEEDs一期。
+
