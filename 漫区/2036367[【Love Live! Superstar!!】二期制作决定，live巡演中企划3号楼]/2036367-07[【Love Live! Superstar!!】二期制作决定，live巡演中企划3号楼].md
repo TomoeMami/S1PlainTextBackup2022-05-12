@@ -9563,3 +9563,14 @@ woc还真是
 
 R3那边雪藏得更久
 
+
+
+*****
+
+####  nufawneafg  
+##### 9878#       发表于 2022-6-12 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56237270&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-6-12 21:24</a>
+单纯的觉得运营下限没那么低的时候，发现他们真的可以这么低。</blockquote>
+加人的那个消息一出来的时候，就完全偏离我的预期了，所以也就不去幻想什么可能性了。可能就抽的比较开，只想看他要把lovelive这个ip带到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
