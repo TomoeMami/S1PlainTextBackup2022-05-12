@@ -9755,3 +9755,13 @@ r3出演其他项目都是可以的，as游戏的配音其实也是很早就跟�
 
 话说大熊就不开推了？
 
+
+
+*****
+
+####  D麦林  
+##### 9895#       发表于 2022-6-12 23:47
+
+把玩神秘当成一种特色感觉也挺合适的
+和本人的性格甚至角色的人设也莫名的搭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
