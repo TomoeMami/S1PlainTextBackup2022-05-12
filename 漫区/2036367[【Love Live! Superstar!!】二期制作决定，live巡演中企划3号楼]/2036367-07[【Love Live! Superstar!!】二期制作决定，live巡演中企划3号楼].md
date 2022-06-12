@@ -9272,3 +9272,34 @@ live前 抽到第一印象 这几位说一年前见的面，，，，，，<img 
 
 也有一点点可能动画制作组并不知道加人。。。。。。。。总之企划sb<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 9852#       发表于 2022-6-12 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234400&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-12 19:05</a>
+
+引用一下我之前在楼里说过的猜想，我觉得有些地方是故意的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">故意不是猪b么，就是写的不行
+
+*****
+
+####  iuhehc  
+##### 9853#       发表于 2022-6-12 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234400&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-12 19:05</a>
+引用一下我之前在楼里说过的猜想，我觉得有些地方是故意的</blockquote>
+要真是这么回事，这样做的效果都被20几场巡演打没了，运营真的是…….
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9854#       发表于 2022-6-12 19:20
+
+运营过于会整烂活以致我开始期待下一个烂活会是什么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+引用别处看到的话，虹咲那边staff在努力排掉每一个雷，星这边则是努力引爆每一个雷
+
