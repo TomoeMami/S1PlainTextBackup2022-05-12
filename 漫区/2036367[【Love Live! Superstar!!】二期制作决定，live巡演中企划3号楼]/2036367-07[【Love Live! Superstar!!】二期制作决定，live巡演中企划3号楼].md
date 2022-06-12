@@ -9303,3 +9303,64 @@ live前 抽到第一印象 这几位说一年前见的面，，，，，，<img 
 运营过于会整烂活以致我开始期待下一个烂活会是什么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 引用别处看到的话，虹咲那边staff在努力排掉每一个雷，星这边则是努力引爆每一个雷
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9855#       发表于 2022-6-12 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234578&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-12 19:20</a>
+
+要真是这么回事，这样做的效果都被20几场巡演打没了，运营真的是…….
+
+—— 来自 S1Fun ...</blockquote>
+二三次元的割裂感这不就体现出来了，你让因为动画不行而转移重心到三次元的粉丝怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 9856#       发表于 2022-6-12 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了热度不择手段运营司马了
+
+*****
+
+####  寒风夜  
+##### 9857#       发表于 2022-6-12 19:25
+
+咱们不懂的脑回路就是了
+
+*****
+
+####  仟音一心  
+##### 9858#       发表于 2022-6-12 19:28
+
+北原朋萌老师的现场打印
+
+Yabu特地说了若菜四季个人简介中的名句：
+
+すきなもの…？メイ…
+
+（喜欢的东西…？芽衣…）
+
+Kuma被直接击沉
+
+<img src="https://img.saraba1st.com/forum/202206/12/192825jwhi9ppfitb9pmiw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F6BF424B-8ACB-4FA2-9B5C-7B3D8C287146.jpeg</strong> (70.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202206/12/192825njbxxjrvzrtbjme5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7ADD8189-4D93-4FCA-9C50-36B2381FFC64.jpeg</strong> (148.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-12 19:28 上传
+
