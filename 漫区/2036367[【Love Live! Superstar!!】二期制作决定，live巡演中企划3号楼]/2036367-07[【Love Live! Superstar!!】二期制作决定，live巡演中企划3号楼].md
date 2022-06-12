@@ -9145,3 +9145,72 @@ Dreaming Energy
 
 这个环节其实是拔刺吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 9838#       发表于 2022-6-12 18:44
+
+新四人一年前就见过了 ，，，，，，，，，，所以，，，，，草，，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9839#       发表于 2022-6-12 18:44
+
+草，真就雪藏一年。
+
+*****
+
+####  aoaoaodedede  
+##### 9840#       发表于 2022-6-12 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234183&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-12 18:44</a>
+新四人一年前就见过了 ，，，，，，，，，，所以，，，，，草，，，，，， ...</blockquote>
+话说原话是啥
+
+
+
+*****
+
+####  lj205  
+##### 9841#       发表于 2022-6-12 18:47
+
+那一期应该也知道会有二期吧
+
+*****
+
+####  cybernetics31  
+##### 9842#       发表于 2022-6-12 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234205&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-12 18:46</a>
+
+话说原话是啥</blockquote>
+live前 抽到第一印象 这几位说一年前见的面，，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 9843#       发表于 2022-6-12 18:49
+
+早就计划好的是吧，那二期寄的几率稍微得低了那么点儿对不？（99%→98.9%）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+花田大尊师，加油啊。
+
+所以一期真的故意把角色写的各玩各的？
+
+*****
+
+####  稀勢のささ  
+##### 9844#       发表于 2022-6-12 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9845#       发表于 2022-6-12 18:50
+
+雪藏1年真是乐了，脸被打得啪啪响<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
