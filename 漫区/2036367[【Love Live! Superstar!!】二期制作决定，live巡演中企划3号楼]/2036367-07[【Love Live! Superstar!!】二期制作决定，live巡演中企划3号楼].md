@@ -9497,3 +9497,32 @@ woc还真是
 不太懂已经见过面为啥是雷点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 按理说越早见越好啊
 
+
+
+*****
+
+####  cybernetics31  
+##### 9871#       发表于 2022-6-12 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56236427&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-6-12 20:46</a>
+日常怀疑鲤鱼不止167.8。绘森彩和鲤鱼差了不止5cm</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有可能是彩报高了
+
+*****
+
+####  JustW_2  
+##### 9872#       发表于 2022-6-12 21:09
+
+<blockquote>nufawneafg 发表于 2022-6-12 20:50
+不太懂已经见过面为啥是雷点
+
+按理说越早见越好啊</blockquote>
+看问题的角度不同。企划一开始就定好了分批加人，那么从团的角度来看，越早见越容易磨合，二期生默默无闻的时间也好过点。但从策划的角度来看，如果很早就见过了，那么第一季动画等等的全方面隐瞒就很膈应了，一开始就是这盘大棋，但只有fan蒙在鼓里。
+
+*****
+
+####  JustW_2  
+##### 9873#       发表于 2022-6-12 21:09
+
+翻页
+
