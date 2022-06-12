@@ -17224,3 +17224,24 @@ wt本来就是设定狂魔，两年前的剧情wt自己从初中就开始构思�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前还活着的母亲，只能想起黑帮超新星的老婆，大妈，还有风车村老板娘。第二个生死未卜，另外两个我也觉得不到结局不好说。
 
+
+
+*****
+
+####  azbhg1  
+##### 58488#       发表于 2022-6-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56228605&amp;ptid=98922" target="_blank">icewolf01 发表于 2022-6-12 09:35</a>
+
+阿修罗挡炸弹，以藏对CP0，虽然死了也不奇怪但死得毫无意义</blockquote>
+那阿普呢，为啥没被收拾掉还能在这蹦跶啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 58489#       发表于 2022-6-12 14:06
+
+这人不早在sbs还是在哪里就说了母亲是冒险的反义词吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
