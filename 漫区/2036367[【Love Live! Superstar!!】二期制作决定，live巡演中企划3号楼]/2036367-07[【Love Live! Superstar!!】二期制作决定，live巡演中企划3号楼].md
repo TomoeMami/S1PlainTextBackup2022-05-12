@@ -8940,3 +8940,14 @@ talk环节的sayu都快查无此人了
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  csolfans  
+##### 9822#       发表于 2022-6-12 08:36
+
+<blockquote>saya1892 发表于 2022-6-12 03:28
+嗓子状况感觉很不乐观，开头自介唱名的时候发音部位跟平时不一样，靠后，听起来有点虚，接近混声。（平常 ...</blockquote>
+但是有一说一live部分还行
+
