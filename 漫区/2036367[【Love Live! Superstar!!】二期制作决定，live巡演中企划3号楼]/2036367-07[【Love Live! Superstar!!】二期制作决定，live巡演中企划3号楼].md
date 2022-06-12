@@ -9127,3 +9127,21 @@ Dreaming Energy
 
 这个环节都不知道是迫害NAKO还是迫害鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 9836#       发表于 2022-6-12 18:34
+
+鲤鱼那个k笑死我了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 9837#       发表于 2022-6-12 18:39
+
+这个环节其实是拔刺吧
+
