@@ -9248,3 +9248,27 @@ live前 抽到第一印象 这几位说一年前见的面，，，，，，<img 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9850#       发表于 2022-6-12 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234330&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-12 18:57</a>
+
+那我要说一句如果一开始就定下来加人，第一期写成这样真不行啊花田
+
+—— 来自 S1Fun ...</blockquote>
+引用一下我之前在楼里说过的猜想，我觉得有些地方是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>我现在怀疑一期动画是故意不塑造好团队感的，然后让二期动画更顺理成章的加人进Liella!
+
+毕竟从一期动画里你根本不觉得Liella!只要这5个人就好了。</blockquote>
+
+*****
+
+####  cybernetics31  
+##### 9851#       发表于 2022-6-12 19:07
+
+也有一点点可能动画制作组并不知道加人。。。。。。。。总之企划sb<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
