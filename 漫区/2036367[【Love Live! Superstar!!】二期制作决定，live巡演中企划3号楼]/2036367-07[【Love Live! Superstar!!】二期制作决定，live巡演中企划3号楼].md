@@ -9574,3 +9574,22 @@ R3那边雪藏得更久
 单纯的觉得运营下限没那么低的时候，发现他们真的可以这么低。</blockquote>
 加人的那个消息一出来的时候，就完全偏离我的预期了，所以也就不去幻想什么可能性了。可能就抽的比较开，只想看他要把lovelive这个ip带到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9879#       发表于 2022-6-12 21:54
+
+…………<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都习惯运营拉了
+
+*****
+
+####  ads147147  
+##### 9880#       发表于 2022-6-12 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56237424&amp;ptid=2036367" target="_blank">stygian 发表于 2022-6-12 21:30</a>
+
+R3那边雪藏得更久</blockquote>
+如果你真的试图和r3比的话，会更绝望的。
+
