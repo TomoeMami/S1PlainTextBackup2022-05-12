@@ -14965,3 +14965,19 @@ sbrt和mondo，之前有过一个3天4个组的rust活动，不过当时好多�
 
 社是咖喱大叔，全社指定咖喱专门评鉴师，一级证。
 
+
+
+*****
+
+####  Suzutsuki  
+##### 14951#       发表于 2022-6-12 11:04
+
+鱼鱼和小玫瑰竟然在玩冒险岛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 14952#       发表于 2022-6-12 11:06
+
+月之不要吓我<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
