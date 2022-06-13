@@ -3133,3 +3133,25 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 别说历史了，拿演义标准要求他还原都是自作多情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  edenpenn  
+##### 330#       发表于 2022-6-13 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56253834&amp;ptid=2075355" target="_blank">lly778 发表于 2022-6-13 19:45</a>
+中文名应该是苍天陨落</blockquote>
+感觉直接苍天已死更棒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  医生狼多  
+##### 331#         楼主| 发表于 2022-6-13 20:43
+
+官译反正要再过几天 先用这个代着了
+
