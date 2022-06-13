@@ -10306,3 +10306,42 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 鲤鱼还真会画油画啊
 
+
+
+*****
+
+####  cxj649  
+##### 9937#       发表于 2022-6-13 23:43
+
+槽点；连4V现在都不在意鲤鱼那些破事了，现在反而天朝某些人黑的多点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 9938#       发表于 2022-6-13 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56256382&amp;ptid=2036367" target="_blank">qty 发表于 2022-6-13 23:40</a>
+鲤鱼还真会画油画啊</blockquote>
+好歹专业是美术设计类的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 9939#       发表于 2022-6-13 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56256382&amp;ptid=2036367" target="_blank">qty 发表于 2022-6-13 23:40</a>
+
+鲤鱼还真会画油画啊</blockquote>
+好像是第一次 + 临摹吧
+
+*****
+
+####  qty  
+##### 9940#       发表于 2022-6-13 23:48
+
+<blockquote>aoaoaodedede 发表于 2022-6-13 23:45
+好像是第一次 + 临摹吧</blockquote>
+原来如此
+

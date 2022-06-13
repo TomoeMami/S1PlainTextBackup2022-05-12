@@ -101,3 +101,12 @@ BIG MOM的儿女们除了佩罗斯佩罗还都在水里？
 
 说到底罗宾本来就不是需要保护的主
 
+
+
+*****
+
+####  百世诸侯  
+##### 58511#       发表于 2022-6-13 23:41
+
+巴基凭啥四皇，因为报业大亨把基德和罗炒作成了巴基的手下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
