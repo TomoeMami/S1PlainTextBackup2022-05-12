@@ -2420,3 +2420,42 @@ PV里这个腐龙肯定是伪货了，
 守护灵系统应该会保留，但武器种类可能和仁王系列有较 ...</blockquote>
 参考光荣的其他三国作品，法术可以改改曹操传的用，威名系统里有侠客、贼王、暗杀者，忍术可以改成暗杀术。
 
+
+
+*****
+
+####  clover293  
+##### 263#       发表于 2022-6-13 13:26
+
+还做到赤壁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">做完伐董差不多了吧
+
+*****
+
+####  afer  
+##### 264#       发表于 2022-6-13 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248405&amp;ptid=2075355" target="_blank">barry.allen 发表于 2022-6-13 13:07</a>
+这直接抄的IGN油土鳖频道说明，油土鳖的错误标识已经改回去了</blockquote>
+<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就临时工
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FerMonster  
+##### 265#       发表于 2022-6-13 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245321&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:00</a>
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+第一个高潮应该是虎牢关吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FerMonster  
+##### 266#       发表于 2022-6-13 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245519&amp;ptid=2075355" target="_blank">cloudcc 发表于 2022-6-13 10:11</a>
+三部可以从黄巾到诸葛出芦，赤壁大战到白帝托孤，星落五丈原到姜维奇谋</blockquote>
+我觉得能出很多部，把三国演义做成游戏就行了，第一部暂且到虎牢关。
+这个ip能做一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
