@@ -3244,3 +3244,21 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 现在说法是微软搞了宣发限制不过我没搞懂这个做法的意义到底是啥，平台不都放出来了吗 ...</blockquote>
 那是因为微软自己不小心给放出来了
 
+
+
+*****
+
+####  godoway  
+##### 339#       发表于 2022-6-13 22:16
+
+话说仁王1里面，威廉是说英文的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+......不过几乎不可能发生就是了
+
+*****
+
+####  fault  
+##### 340#       发表于 2022-6-13 22:19
+
+2023年不会无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
