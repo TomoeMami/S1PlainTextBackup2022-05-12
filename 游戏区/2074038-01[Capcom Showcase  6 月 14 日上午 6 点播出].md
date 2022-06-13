@@ -893,3 +893,25 @@ bio4re就是挂羊头卖狗肉，本质是3.5借尸还魂吧</blockquote>
 
 但是17号6点我还是会爬起来看的
 
+
+
+*****
+
+####  415452356  
+##### 116#       发表于 2022-6-14 06:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56257700&amp;ptid=2074038" target="_blank">灰色的狐狸 发表于 2022-6-14 06:51</a>
+
+皮大衣都是3.5的。。。</blockquote>
+  成品如果还是2r3r那套就真的是太没劲了，而且我还真觉得十有八九会做成这样
+
+*****
+
+####  灰色的狐狸  
+##### 117#       发表于 2022-6-14 07:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56257723&amp;ptid=2074038" target="_blank">415452356 发表于 2022-6-14 06:59</a>
+
+成品如果还是2r3r那套就真的是太没劲了，而且我还真觉得十有八九会做成这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">谁知道呢
+
