@@ -2895,3 +2895,62 @@ A：原创主角叫“龙”</blockquote>
 这官推怎么到现在都没发过一条推这么奇葩的</blockquote>
 可能真是微软宣发限制期48小时?我早上睡醒后查kt的推一点动静都没……没想到现在还没进一步情报
 
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 308#       发表于 2022-6-13 18:53
+
+好急啊，一直在等中文预告片
+
+*****
+
+####  不应  
+##### 309#       发表于 2022-6-13 18:58
+
+暗耻这次说不定打算靠这系列多卖几份，做成系列又不是不可能，这一作到讨董结束刚好算是一个不错的时间点。
+
+*****
+
+####  dragrass  
+##### 310#       发表于 2022-6-13 18:59
+
+ 本帖最后由 dragrass 于 2022-6-13 19:03 编辑 
+
+其实一直挺期待kt美工做个建模严肃点的三国游戏的
+
+但是b站评论区怎么开始反思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+光荣做三国游戏这件事还值得破防？
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  laoz  
+##### 311#       发表于 2022-6-13 18:59
+
+<blockquote>医生狼多 发表于 2022-6-13 18:50
+可能真是微软宣发限制期48小时?我早上睡醒后查kt的推一点动静都没……没想到现在还没进一步情报 ...</blockquote>
+全世界只有xbox和媒体发了pv，kt日推当没事发生过，就忍者组转了xbox的推，官推只能转发个gif没发过一条自己的推，太卑微了，大概是里面真的有什么py吧
+
+*****
+
+####  奥F特  
+##### 312#       发表于 2022-6-13 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251980&amp;ptid=2075355" target="_blank">关二爷 发表于 2022-6-13 17:25</a>
+感觉日本对三国的认知比大陆晚10年
+
+所以光荣现在对三国的认知大约是易中天横行的年代 ...</blockquote>
+光荣上世纪八十年代就开始做三国题材游戏了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 313#       发表于 2022-6-13 19:02
+
+[https://www.bilibili.com/video/B ... a0db3d5cfc69d0d7bd3](https://www.bilibili.com/video/BV1Tv4y1G7AY?vd_source=5dbb2b78e74b2a0db3d5cfc69d0d7bd3)
+
+根据分析最少有4到5种武器<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
