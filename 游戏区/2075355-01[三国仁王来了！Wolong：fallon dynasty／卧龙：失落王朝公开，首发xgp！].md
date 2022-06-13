@@ -1758,3 +1758,54 @@ nice！
 真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
 放心，丞相在黄巾之乱时还是小屁孩吧…
 
+
+
+*****
+
+####  黑修士  
+##### 196#       发表于 2022-6-13 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246155&amp;ptid=2075355" target="_blank">popchong 发表于 2022-6-13 10:48</a>
+
+如果开头那个是水镜先生，那定位可能类似仁王2里的果心居士吧，没准是什么上古大妖怪的化身 ...</blockquote>
+同样套路玩两次的话就太水了。
+
+虽然对KT的剧本不抱太高的期待，但从水镜的造型及台词“我找到你了，永恒灵药的持有者“来看，是反派的可能性确实不低。
+
+*****
+
+####  天天那个啥  
+##### 197#       发表于 2022-6-13 10:55
+
+是从PV来看，开头boss是黄巾，然后是吕布，我觉得还是很无双的
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  popchong  
+##### 198#       发表于 2022-6-13 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246272&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 10:54</a>
+
+同样套路玩两次的话就太水了。
+
+虽然对KT的剧本不抱太高的期待，但从水镜的造型及台词“我找到你了，永恒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">永恒灵药是长生不老药的话，那水镜先生真实身份可以是徐福
+
+*****
+
+####  医生狼多  
+##### 199#         楼主| 发表于 2022-6-13 10:59
+
+kt好像也没咋搞pv欺诈的活
+
+*****
+
+####  黑修士  
+##### 200#       发表于 2022-6-13 11:00
+
+从主角是自捏的无名小卒设定来看的话，肯定会有教武艺和法术的老师傅。
+
+王越童渊左慈于吉甚至南华老仙都可以安排上了。
+
