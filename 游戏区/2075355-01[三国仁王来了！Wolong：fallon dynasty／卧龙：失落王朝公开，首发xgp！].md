@@ -2665,3 +2665,74 @@ A：原创主角叫“龙”</blockquote>
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qianoooo  
+##### 286#       发表于 2022-6-13 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250648&amp;ptid=2075355" target="_blank">内鬼来干我呀 发表于 2022-6-13 16:00</a>
+现在大家都在猜
+
+但是日本那边还没公布任何消息</blockquote>
+微软买断所有发布会厂商宣发通稿48小时 所有平台登陆细节什么都要发布会48小时后公布
+
+*****
+
+####  内鬼来干我呀  
+##### 287#       发表于 2022-6-13 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250740&amp;ptid=2075355" target="_blank">andychen 发表于 2022-6-13 16:06</a>
+
+多半被微软买断了全球宣发，和之前仁王1一样
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买断全球宣发连个官网和推特账号也没得吗
+
+*****
+
+####  致远星  
+##### 288#       发表于 2022-6-13 16:13
+
+非常期待
+
+*****
+
+####  andychen  
+##### 289#       发表于 2022-6-13 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250830&amp;ptid=2075355" target="_blank">内鬼来干我呀 发表于 2022-6-13 16:13</a>
+买断全球宣发连个官网和推特账号也没得吗</blockquote>
+官方推特账号有，只是上面也没新料
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  不灭钻石  
+##### 290#       发表于 2022-6-13 16:15
+
+说句实话，这pv看着就很不吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 291#       发表于 2022-6-13 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250830&amp;ptid=2075355" target="_blank">内鬼来干我呀 发表于 2022-6-13 16:13</a>
+
+买断全球宣发连个官网和推特账号也没得吗</blockquote>
+英文官推有，日本官推和官网都没有，中文这边也没任何宣发出现，我也奇怪到现在还见不到日文版PV
+
+*****
+
+####  内鬼来干我呀  
+##### 292#       发表于 2022-6-13 16:18
+
+来个中文PV 英文版PV太怪了
+
+日文版都比英文好
+
+而且英文版很多意思很奇怪
+
