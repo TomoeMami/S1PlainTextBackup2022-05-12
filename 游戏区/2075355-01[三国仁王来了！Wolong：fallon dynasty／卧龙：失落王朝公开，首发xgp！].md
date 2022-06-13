@@ -1648,3 +1648,113 @@ nice！
 蒋干盗来的，我猜9月吧</blockquote>
 按KT这些年的宣发节奏，TGS期间会放一个新PV，同时开几天试玩的可能性确实很大。
 
+
+
+*****
+
+####  黑修士  
+##### 185#       发表于 2022-6-13 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245983&amp;ptid=2075355" target="_blank">wzh5555 发表于 2022-6-13 10:38</a>
+
+从目前这个描述，故事的矛盾核心可能就是“长生不老”吧，也不知道会不会对黄巾和太平道有更具体的描写，把 ...</blockquote>
+可能只是一个解释主角无限复活的设定，就像仁王1、2的瑟夏和灵剑。
+
+*****
+
+####  kxh007458  
+##### 186#       发表于 2022-6-13 10:46
+
+<blockquote>水边井 发表于 2022-6-13 10:30
+这pv怎么看起来多少有点日式中国风
+
+—— 来自 HUAWEI NOH-AL10, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+因为是日本人做的？
+
+*****
+
+####  黑修士  
+##### 187#       发表于 2022-6-13 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245369&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-13 10:03</a>
+
+商标挺早就注册了:
+
+商願2019-119939
+
+商標：臥龍</blockquote>
+不出意外的话估计是2023年3月~5月期间发售。体量应该和仁王初代差不多。
+
+*****
+
+####  popchong  
+##### 188#       发表于 2022-6-13 10:48
+
+如果开头那个是水镜先生，那定位可能类似仁王2里的果心居士吧，没准是什么上古大妖怪的化身
+
+*****
+
+####  光宗薫  
+##### 189#       发表于 2022-6-13 10:50
+
+仁王2我打的很烦躁，路又绕，怪又多，并不好玩。反倒是1代至少地图还没那么丧心病狂，感觉还行
+所以三国仁王我不期待
+不过从弃暗投明的角度来说，我十分欢迎，假如轨迹和p6能首发上pc，明天我就把ps5卖了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  叶雾  
+##### 190#       发表于 2022-6-13 10:50
+
+我既然能蒋干盗来消息，说明忍者组内是有中国人的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+其实还认识在法老控的中国人，但是他啥都不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  citan8808  
+##### 191#       发表于 2022-6-13 10:51
+
+故事感觉怎么编都会被喷，系统弄好玩点算了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  vuder  
+##### 192#       发表于 2022-6-13 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245749&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:23</a>
+假设赤壁作为本作决战的话肯定是曹操当boss最合适吧</blockquote>
+决战肯定是砍堕落吕布还要说么…
+
+十常侍，张角，董卓，孙策，吕布已经铁定会在boss名单里了
+
+*****
+
+####  wzh5555  
+##### 193#       发表于 2022-6-13 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246089&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 10:44</a>
+
+可能只是一个解释主角无限复活的设定，就像仁王1、2的瑟夏和灵剑。</blockquote>
+嗯，不过我主要在意的是张角吃的那个代替灵石的东西的核心矛盾是不是还和灵石（只是变强）一样。
+
+*****
+
+####  山岚夜雨  
+##### 194#       发表于 2022-6-13 10:52
+
+我觉得这预告看完那咧嘴龙，明显故事就是魔幻风格，所以反而不怕魔改
+
+*****
+
+####  vuder  
+##### 195#       发表于 2022-6-13 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244926&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 09:32</a>
+真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
+放心，丞相在黄巾之乱时还是小屁孩吧…
+

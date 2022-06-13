@@ -689,3 +689,15 @@ ns跑个新作都只能到540p 反正现在都上pc了我想玩掌机版为啥�
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  saberserker  
+##### 70#       发表于 2022-6-13 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244886&amp;ptid=2075362" target="_blank">TANA 发表于 2022-6-13 09:29</a></blockquote>
+钢铁侠烧命，微软烧钱，没毛病
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
