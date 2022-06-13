@@ -1613,3 +1613,964 @@ nice！
 
 —— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  只吃干拌面  
+##### 181#       发表于 2022-6-13 10:38
+
+希望多公布一点历史人物的人设，这个奉先看起来不咋地
+
+*****
+
+####  wzh5555  
+##### 182#       发表于 2022-6-13 10:38
+
+从目前这个描述，故事的矛盾核心可能就是“长生不老”吧，也不知道会不会对黄巾和太平道有更具体的描写，把长生不老和黄老之术联系起来。
+
+不过从这个角度写黄巾貌似暗荣还没干过吧？
+
+*****
+
+####  citan8808  
+##### 183#       发表于 2022-6-13 10:39
+
+场景搞亮点啊
+
+*****
+
+####  黑修士  
+##### 184#       发表于 2022-6-13 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244471&amp;ptid=2075355" target="_blank">叶雾 发表于 2022-6-13 08:58</a>
+
+蒋干盗来的，我猜9月吧</blockquote>
+按KT这些年的宣发节奏，TGS期间会放一个新PV，同时开几天试玩的可能性确实很大。
+
+
+
+*****
+
+####  黑修士  
+##### 185#       发表于 2022-6-13 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245983&amp;ptid=2075355" target="_blank">wzh5555 发表于 2022-6-13 10:38</a>
+
+从目前这个描述，故事的矛盾核心可能就是“长生不老”吧，也不知道会不会对黄巾和太平道有更具体的描写，把 ...</blockquote>
+可能只是一个解释主角无限复活的设定，就像仁王1、2的瑟夏和灵剑。
+
+*****
+
+####  kxh007458  
+##### 186#       发表于 2022-6-13 10:46
+
+<blockquote>水边井 发表于 2022-6-13 10:30
+这pv怎么看起来多少有点日式中国风
+
+—— 来自 HUAWEI NOH-AL10, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+因为是日本人做的？
+
+*****
+
+####  黑修士  
+##### 187#       发表于 2022-6-13 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245369&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-13 10:03</a>
+
+商标挺早就注册了:
+
+商願2019-119939
+
+商標：臥龍</blockquote>
+不出意外的话估计是2023年3月~5月期间发售。体量应该和仁王初代差不多。
+
+*****
+
+####  popchong  
+##### 188#       发表于 2022-6-13 10:48
+
+如果开头那个是水镜先生，那定位可能类似仁王2里的果心居士吧，没准是什么上古大妖怪的化身
+
+*****
+
+####  光宗薫  
+##### 189#       发表于 2022-6-13 10:50
+
+仁王2我打的很烦躁，路又绕，怪又多，并不好玩。反倒是1代至少地图还没那么丧心病狂，感觉还行
+所以三国仁王我不期待
+不过从弃暗投明的角度来说，我十分欢迎，假如轨迹和p6能首发上pc，明天我就把ps5卖了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  叶雾  
+##### 190#       发表于 2022-6-13 10:50
+
+我既然能蒋干盗来消息，说明忍者组内是有中国人的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+其实还认识在法老控的中国人，但是他啥都不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  citan8808  
+##### 191#       发表于 2022-6-13 10:51
+
+故事感觉怎么编都会被喷，系统弄好玩点算了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  vuder  
+##### 192#       发表于 2022-6-13 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245749&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:23</a>
+假设赤壁作为本作决战的话肯定是曹操当boss最合适吧</blockquote>
+决战肯定是砍堕落吕布还要说么…
+
+十常侍，张角，董卓，孙策，吕布已经铁定会在boss名单里了
+
+*****
+
+####  wzh5555  
+##### 193#       发表于 2022-6-13 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246089&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 10:44</a>
+
+可能只是一个解释主角无限复活的设定，就像仁王1、2的瑟夏和灵剑。</blockquote>
+嗯，不过我主要在意的是张角吃的那个代替灵石的东西的核心矛盾是不是还和灵石（只是变强）一样。
+
+*****
+
+####  山岚夜雨  
+##### 194#       发表于 2022-6-13 10:52
+
+我觉得这预告看完那咧嘴龙，明显故事就是魔幻风格，所以反而不怕魔改
+
+*****
+
+####  vuder  
+##### 195#       发表于 2022-6-13 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244926&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 09:32</a>
+真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
+放心，丞相在黄巾之乱时还是小屁孩吧…
+
+
+
+*****
+
+####  黑修士  
+##### 196#       发表于 2022-6-13 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246155&amp;ptid=2075355" target="_blank">popchong 发表于 2022-6-13 10:48</a>
+
+如果开头那个是水镜先生，那定位可能类似仁王2里的果心居士吧，没准是什么上古大妖怪的化身 ...</blockquote>
+同样套路玩两次的话就太水了。
+
+虽然对KT的剧本不抱太高的期待，但从水镜的造型及台词“我找到你了，永恒灵药的持有者“来看，是反派的可能性确实不低。
+
+*****
+
+####  天天那个啥  
+##### 197#       发表于 2022-6-13 10:55
+
+是从PV来看，开头boss是黄巾，然后是吕布，我觉得还是很无双的
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  popchong  
+##### 198#       发表于 2022-6-13 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246272&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 10:54</a>
+
+同样套路玩两次的话就太水了。
+
+虽然对KT的剧本不抱太高的期待，但从水镜的造型及台词“我找到你了，永恒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">永恒灵药是长生不老药的话，那水镜先生真实身份可以是徐福
+
+*****
+
+####  医生狼多  
+##### 199#         楼主| 发表于 2022-6-13 10:59
+
+kt好像也没咋搞pv欺诈的活
+
+*****
+
+####  黑修士  
+##### 200#       发表于 2022-6-13 11:00
+
+从主角是自捏的无名小卒设定来看的话，肯定会有教武艺和法术的老师傅。
+
+王越童渊左慈于吉甚至南华老仙都可以安排上了。
+
+
+
+*****
+
+####  Demi.Albertini  
+##### 201#       发表于 2022-6-13 11:03
+
+那个龙肯定腐化了嘛，对应标题里的fallen~
+
+*****
+
+####  红魔馆的糖  
+##### 202#       发表于 2022-6-13 11:04
+
+近期有测试的话，不会是主机限定吧<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+Pc的话demo直接扒下来了
+
+*****
+
+####  宛若青空  
+##### 203#       发表于 2022-6-13 11:06
+
+从商标注册时间来看，其实也做了挺长时间了。
+
+*****
+
+####  kangkangsama  
+##### 204#       发表于 2022-6-13 11:06
+
+仁王2早期pv也就秀吉道三这种吧，后面才一步步放出朝仓浅井信长。实际三国能到哪还不知道。
+
+*****
+
+####  hkguty  
+##### 205#       发表于 2022-6-13 11:08
+
+这次能不能慢慢做，别一部就飞跃式地从黄巾之乱讲到三国归晋
+
+*****
+
+####  霸王向小受  
+##### 206#       发表于 2022-6-13 11:08
+
+必首发，希望少点仁王的刷刷刷要素<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  医生狼多  
+##### 207#         楼主| 发表于 2022-6-13 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246452&amp;ptid=2075355" target="_blank">红魔馆的糖 发表于 2022-6-13 11:04</a>
+近期有测试的话，不会是主机限定吧
+
+Pc的话demo直接扒下来了</blockquote>
+基本都是主机限定
+
+*****
+
+####  巴特爱素子  
+##### 208#       发表于 2022-6-13 11:17
+
+<blockquote>洛克萨斯 发表于 2022-6-13 10:00
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+第一个高潮怕不就是虎牢关
+
+*****
+
+####  巴特爱素子  
+##### 209#       发表于 2022-6-13 11:18
+
+<blockquote>Demi.Albertini 发表于 2022-6-13 11:03
+那个龙肯定腐化了嘛，对应标题里的fallen~</blockquote>
+没有关系 那时候的汉朝确实衰落了
+
+*****
+
+####  巴特爱素子  
+##### 210#       发表于 2022-6-13 11:19
+
+<blockquote>popchong 发表于 2022-6-13 10:57
+永恒灵药是长生不老药的话，那水镜先生真实身份可以是徐福</blockquote>
+道教也炼丹啊
+
+
+
+*****
+
+####  蕾丝控  
+##### 211#       发表于 2022-6-13 11:20
+
+盲猜一手真正的不死药是和氏璧，玉玺不是摔坏了，而是每次被吃掉一点点。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 212#       发表于 2022-6-13 11:20
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕后boss，本作终战是五丈原的可能
+
+KT是日企，没有那么多禁区
+
+*****
+
+####  ドロロ  
+##### 213#       发表于 2022-6-13 11:21
+
+准备买个xss了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lly778  
+##### 214#       发表于 2022-6-13 11:21
+
+失落王朝应该不是正式译名。
+
+*****
+
+####  nessaj  
+##### 215#       发表于 2022-6-13 11:22
+
+[OHHHHHHHHHHHH]
+
+激动的跳起来了
+
+
+
+*****
+
+####  关二爷  
+##### 216#       发表于 2022-6-13 11:22
+
+买爆！
+
+*****
+
+####  jf8350143  
+##### 217#       发表于 2022-6-13 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黄巾之乱的话直接弄到18路讨董卓，董胖当boss正好
+
+真要时间线做的很后的话，boss当然是背锅王曹老板来了
+
+真要让孔明变boss 也会编一个理由的，比如曹操传里就是替刘备挡刀把本来要附身刘备的邪恶吸到自己身上
+
+*****
+
+####  关二爷  
+##### 218#       发表于 2022-6-13 11:23
+
+丞相本来不就是会法术
+
+*****
+
+####  黑修士  
+##### 219#       发表于 2022-6-13 11:25
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢
+
+<img src="https://img.saraba1st.com/forum/202206/13/112435p8pcc30klw813pp3.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (25.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-13 11:24 上传
+
+*****
+
+####  jf8350143  
+##### 220#       发表于 2022-6-13 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246734&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 11:20</a>
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕 ...</blockquote>
+但是龙出现的时候是董卓火烧洛阳，那会孔明还是个小屁孩呢
+
+从仁王来看不像是会对历史做这种程度的魔改
+
+*****
+
+####  洛克萨斯  
+##### 221#       发表于 2022-6-13 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246687&amp;ptid=2075355" target="_blank">巴特爱素子 发表于 2022-6-13 11:17</a>
+
+第一个高潮怕不就是虎牢关</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太短了，黄巾到虎牢关，而且诸侯联军很多摸鱼的，真正出力还是孙坚和曹操（被暴打）
+
+
+
+*****
+
+####  chris1987  
+##### 222#       发表于 2022-6-13 11:33
+
+腐化的卧龙，到让我感觉有点像曹操传里的蓝线。。
+
+*****
+
+####  jf8350143  
+##### 223#       发表于 2022-6-13 11:35
+
+我倒是觉得卧龙是主角，只不过这部是前传，副标题就是王朝陨落，所以讲的是东汉在黄巾和董胖轮流祸祸下一蹶不振的前期故事，大概就是到曹老板赢下官渡权倾朝野结束
+
+续作换个副标题，开始正式讲村夫的故事
+
+*****
+
+####  Firvox  
+##### 224#       发表于 2022-6-13 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243121&amp;ptid=2075355" target="_blank">bad_alloc 发表于 2022-6-13 03:02</a>
+黑皮黄毛涩谷系辣妹waifu黄月英安排上</blockquote>
+打一段再来点RAP是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orcher1945  
+##### 225#       发表于 2022-6-13 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242859&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 02:41</a>
+
+主角是个拿剑的战士啊，怎么会是孔明  八成原创人物</blockquote>
+黄巾之乱爆发的时候诸葛亮才3岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，肯定不是诸葛亮，有可能孔明是个中后期重要角色。
+
+*****
+
+####  ネコカイザー  
+##### 226#       发表于 2022-6-13 11:40
+
+我想到一个有趣的事情 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得国内肯定有团队在做三国的魂like，这下翻大车了
+
+
+
+*****
+
+####  绚烂航迹云  
+##### 227#       发表于 2022-6-13 11:43
+
+<blockquote>引用第218楼黑修士于2022-06-13 11:25发表的  :
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+是的，三国的卧龙！没错，就是我：陆毅
+
+<img src="https://lh3.googleusercontent.com/proxy/ND-2xqAzPMePTgiFu25N4vL00ZOJt4RAqZoBkv-aCedDAzEZQHZRWsjotEfI__EzdeZULMx4Xxe1dCCip1Llbc-C9g9E3LQlMCHyoMCQ5KySydIa" id="aimg_nGF46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  otaku21126  
+##### 228#       发表于 2022-6-13 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246851&amp;ptid=2075355" target="_blank">jf8350143 发表于 2022-6-13 11:25</a>
+但是龙出现的时候是董卓火烧洛阳，那会孔明还是个小屁孩呢
+
+从仁王来看不像是会对历史做这种程度的魔改 ...</blockquote>
+西军为打关原勾结境外势力，战神为苍生着想从柔弱之人状态振作起来坚定意志反戈一击、淀殿为守大阪不惜将浪人改造成妖鬼、秀赖是个灵石人根本不存在，这还不够颠覆吗？
+
+顺便刚才想了一下，其实让张角魔化，也可能触发外国人人生三件事。现在不比从前了，现在的三件事划线非常宽泛，张角是农民起义性质，其人体恤民情，划线切入角度非常多。
+
+*****
+
+####  医生狼多  
+##### 229#         楼主| 发表于 2022-6-13 11:49
+
+唯一有龙是火烧洛阳那里吧，可能是指汉室
+
+*****
+
+####  天邪鬼  
+##### 230#       发表于 2022-6-13 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247109&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 11:40</a>
+我想到一个有趣的事情 
+
+我觉得国内肯定有团队在做三国的魂like，这下翻大车了 ...</blockquote>
+那不该高兴吗？可以搞碰瓷营销了
+“小日本的魂味三国谁玩？有国产魂味三国不玩玩日本产的？你汉奸吧！”
+反正小粉红大概率不玩这些游戏，能骗一个是一个
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  廖化  
+##### 231#       发表于 2022-6-13 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246734&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 11:20</a>
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕 ...</blockquote>
+泻药，有色到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+钱给你赶快做！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 232#       发表于 2022-6-13 11:52
+
+和同一个发布会的永劫无间一比，我觉得卧龙还是没那么土的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sissii  
+##### 233#       发表于 2022-6-13 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+金城武!金城武!
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  barry.allen  
+##### 234#       发表于 2022-6-13 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245321&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:00</a>
+
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">诸侯讨董和官渡不算么？
+
+哪怕以皇叔主视角赤壁也只是最大高潮，肯定不是第一个
+
+*****
+
+####  放大镜  
+##### 235#       发表于 2022-6-13 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+如果按竹中直人市村正亲的标准来选角，平移到国内不是请不动就是请不起……
+
+*****
+
+####  rp1993  
+##### 236#       发表于 2022-6-13 11:58
+
+不是汉末么，做到讨伐完董卓就不错了吧。
+
+*****
+
+####  wtyrambo  
+##### 237#       发表于 2022-6-13 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一口气做完了也不是不可能，魔改下轩辕剑5的剧本，诸葛亮被魔王附身穷兵黩武频繁发起北伐，导致民不聊生，最终在五丈原在魏延的协助下实施了封魔仪式削弱了魔王的力量并让主角讨伐，从此天下大势已定。然后要出2就搞搞中间补充点野史之类的。
+
+*****
+
+####  lly778  
+##### 238#       发表于 2022-6-13 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+据说有教主夫人
+
+
+
+*****
+
+####  xlsthsj  
+##### 239#       发表于 2022-6-13 12:10
+
+牛逼疯了，梦中情游
+
+*****
+
+####  赤井稻妻  
+##### 240#       发表于 2022-6-13 12:10
+
+说起xgp我就头疼，那天看忍龙3入库了，想下下不成，倒是荣耀战魂因为是育碧平台所以能下，服了
+
+
+
+*****
+
+####  minysun  
+##### 241#       发表于 2022-6-13 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245637&amp;ptid=2075355" target="_blank">seedees3 发表于 2022-6-13 10:17</a>
+看这热度，国区百万销量稳了</blockquote>
+中国人那么精明有xgp pgp白嫖真买断的人数不会很多的，不过帮微软拉个几万新订阅用户应该还是挺稳的
+
+*****
+
+####  tengshuo980  
+##### 242#       发表于 2022-6-13 12:22
+
+感觉不一定是一口气做完三国主线，可能这作剧情做到赤壁之战就挺合适的
+
+
+
+*****
+
+####  巴特爱素子  
+##### 243#       发表于 2022-6-13 12:23
+
+<blockquote>Sissii 发表于 2022-6-13 11:52
+金城武!金城武!
+
+—— 来自 OnePlus IN2020, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+明智左马介前世吗
+
+*****
+
+####  暗之精灵  
+##### 244#       发表于 2022-6-13 12:31
+
+说到不死药，是不是和秦始皇和徐福又能扯上关系，然后徐福又可以和日本扯上关系，再加上东汉与委奴国王，曹魏和邪马台的关系，主角是个日本人也未可知啊
+
+
+
+*****
+
+####  不应  
+##### 245#       发表于 2022-6-13 12:34
+
+暗耻的三国不就是经典的曹魏霸道，蜀汉王道，东吴卖萌。没什么偏向的
+
+*****
+
+####  iceplatinum  
+##### 246#       发表于 2022-6-13 12:35
+
+我比较担心质量会不会就是最终幻想起源这样的，小成本的仁王。
+
+*****
+
+####  laoz  
+##### 247#       发表于 2022-6-13 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247941&amp;ptid=2075355" target="_blank">iceplatinum 发表于 2022-6-13 12:35</a>
+我比较担心质量会不会就是最终幻想起源这样的，小成本的仁王。</blockquote>
+这个是自家的项目，现在巨硬又塞了钱进来，怎么也不会跟抠门se那样的外包作一样
+
+*****
+
+####  wzh5555  
+##### 248#       发表于 2022-6-13 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246734&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 11:20</a>
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕 ...</blockquote>
+主角的力量（守护灵这类）估计是正统黄龙，用丹药催出来的算腐龙。
+
+可以共存。
+
+
+
+*****
+
+####  wzh5555  
+##### 249#       发表于 2022-6-13 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247890&amp;ptid=2075355" target="_blank">暗之精灵 发表于 2022-6-13 12:31</a>
+
+说到不死药，是不是和秦始皇和徐福又能扯上关系，然后徐福又可以和日本扯上关系，再加上东汉与委奴国王，曹 ...</blockquote>
+应该不至于格局这么小，真要攀关系完全可以反向攀，例如239年前后卑弥呼来访，主角或主角的子女随她去了日本，变成阿龙龙之一族的祖先。
+
+又例如仁王2大岳丸可能是扶余东渡民，那么主角和扶余或东渡民这些可以扯上点关系。
+
+
+
+*****
+
+####  afer  
+##### 250#       发表于 2022-6-13 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这都不用说华人了，IGN尼玛就没个亚洲编辑么？
+<img src="https://p.sda1.dev/6/c5c6c15f0948eca19bc385acc94181ba/4532d41d9cea8dac.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑修士  
+##### 251#       发表于 2022-6-13 12:56
+
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较大差异。
+
+目前剑、枪可以确定，黄巾力士的重武器（狼牙锤？）应该也是可以掉落的。但像锁镰之类的可能不会出现了。
+
+技能树方面，忍术阴阳多半也会换不少。
+
+*****
+
+####  afer  
+##### 252#       发表于 2022-6-13 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247076&amp;ptid=2075355" target="_blank">orcher1945 发表于 2022-6-13 11:38</a>
+黄巾之乱爆发的时候诸葛亮才3岁，肯定不是诸葛亮，有可能孔明是个中后期重要角色。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">然而问题题目叫卧龙
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzh5555  
+##### 253#       发表于 2022-6-13 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248255&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 12:56</a>
+
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较 ...</blockquote>
+看别人的转的文字介绍里还提到，战斗系统有5个段位，可能是不用上中下，改用对马岛类的了
+
+*****
+
+####  bm7号  
+##### 254#       发表于 2022-6-13 13:00
+
+这龙看着像从隔壁蓝反T穿越过来的，尾巴朝前一副龙蝇的样子。
+
+*****
+
+####  wzh5555  
+##### 255#       发表于 2022-6-13 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248311&amp;ptid=2075355" target="_blank">bm7号 发表于 2022-6-13 13:00</a>
+
+这龙看着像从隔壁蓝反T穿越过来的，尾巴朝前一副龙蝇的样子。</blockquote>
+PV里这个腐龙肯定是伪货了，
+
+真龙应该是标题、以及主角爆气后眼睛里的圆环龙，两者基本一致
+
+
+
+*****
+
+####  黑修士  
+##### 256#       发表于 2022-6-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248310&amp;ptid=2075355" target="_blank">wzh5555 发表于 2022-6-13 13:00</a>
+
+看别人的转的文字介绍里还提到，战斗系统有5个段位，可能是不用上中下，改用对马岛类的了 ...</blockquote>
+确实，再用剑道的上中下段构就不合适了。另外武器种类可能会比想象中的少。
+
+本作は魔物がばっこする後漢時代のダークファンタジーで、名もなき民兵が生き残りをかけて戦うストーリーが描かれる。プレイヤーは、中国武術に基づいた剣術で凶暴な生物や敵兵を退けながら、内なる真の力を目覚めさせ、困難に打ち勝とうとしている。
+
+*****
+
+####  barry.allen  
+##### 257#       发表于 2022-6-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248252&amp;ptid=2075355" target="_blank">afer 发表于 2022-6-13 12:56</a>
+
+这都不用说华人了，IGN尼玛就没个亚洲编辑么？</blockquote>
+这直接抄的IGN油土鳖频道说明，油土鳖的错误标识已经改回去了
+
+*****
+
+####  hypnossz86  
+##### 258#       发表于 2022-6-13 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说标识里面的windows怎么理解...不是steam或者epic，只在微软商店？
+
+*****
+
+####  老黑305  
+##### 259#       发表于 2022-6-13 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">期待忍龙组会整出怎样炫酷的“武术”招式
+
+*****
+
+####  宵神乐  
+##### 260#       发表于 2022-6-13 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248429&amp;ptid=2075355" target="_blank">hypnossz86 发表于 2022-6-13 13:09</a>
+话说标识里面的windows怎么理解...不是steam或者epic，只在微软商店？</blockquote>
+不用想应该是全平台ns独不占
+
+
+
+*****
+
+####  74235zzz  
+##### 261#       发表于 2022-6-13 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242931&amp;ptid=2075355" target="_blank">Cloudslin 发表于 2022-6-13 02:46</a>
+感兴趣，但求求别整仁王那种黑咕隆咚的地图了。</blockquote>
+这组就这样了，ff起源那游戏有的地图比仁王还黑
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  巴特爱素子  
+##### 262#       发表于 2022-6-13 13:22
+
+<blockquote>黑修士 发表于 2022-6-13 12:56
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较 ...</blockquote>
+参考光荣的其他三国作品，法术可以改改曹操传的用，威名系统里有侠客、贼王、暗杀者，忍术可以改成暗杀术。
+
+
+
+*****
+
+####  clover293  
+##### 263#       发表于 2022-6-13 13:26
+
+还做到赤壁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">做完伐董差不多了吧
+
+*****
+
+####  afer  
+##### 264#       发表于 2022-6-13 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248405&amp;ptid=2075355" target="_blank">barry.allen 发表于 2022-6-13 13:07</a>
+这直接抄的IGN油土鳖频道说明，油土鳖的错误标识已经改回去了</blockquote>
+<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就临时工
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FerMonster  
+##### 265#       发表于 2022-6-13 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245321&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:00</a>
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+第一个高潮应该是虎牢关吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FerMonster  
+##### 266#       发表于 2022-6-13 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245519&amp;ptid=2075355" target="_blank">cloudcc 发表于 2022-6-13 10:11</a>
+三部可以从黄巾到诸葛出芦，赤壁大战到白帝托孤，星落五丈原到姜维奇谋</blockquote>
+我觉得能出很多部，把三国演义做成游戏就行了，第一部暂且到虎牢关。
+这个ip能做一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  woshenc  
+##### 267#       发表于 2022-6-13 13:52
+
+期待光荣脱裤魔忍者组捏的貂蝉...<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  longrider  
+##### 268#       发表于 2022-6-13 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248288&amp;ptid=2075355" target="_blank">afer 发表于 2022-6-13 12:58</a>
+
+然而问题题目叫卧龙
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没有问题
+
+A：原创主角叫“龙”
+
+B：那诸葛亮在哪里？
+
+A：还在家里卧着呢
+
+*****
+
+####  longrider  
+##### 269#       发表于 2022-6-13 13:57
+
+主角“龙”从黄巾打到曹操屠徐州，救起一个逃难男孩传给他毕生功力然后沉睡
+
+再醒来已经是五丈原之后，卧龙传人姜维为复兴汉室魔化变腐龙
+
+真龙vs腐龙
+
+
+
+*****
+
+####  不会武术  
+##### 270#       发表于 2022-6-13 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244447&amp;ptid=2075355" target="_blank">悲叹的夜想曲 发表于 2022-6-13 08:56</a>
+主角肯定和仁王2一样原创，但是剧情会把三国人物串起来
+
+都叫卧龙了，丞相要么是和主角一边，要么就是幕后黑 ...</blockquote>
+历史虚无主义，可别把steam xbox商店 psn打包全强了
+
+
+
+*****
+
+####  关二爷  
+##### 271#       发表于 2022-6-13 14:16
+
+我觉得主角暗示水镜？卧龙的师傅
+
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 272#       发表于 2022-6-13 14:36
+
+会不会骑马
+长朔模组要比仁王长枪帅才行啊。
+
+
+
+*****
+
+####  TTAA  
+##### 273#       发表于 2022-6-13 14:51
+
+这代主角是不是能跳了？
+
+
+
+*****
+
+####  悲叹的夜想曲  
+##### 274#       发表于 2022-6-13 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56249126&amp;ptid=2075355" target="_blank">不会武术 发表于 2022-6-13 14:10</a>
+
+历史虚无主义，可别把steam xbox商店 psn打包全强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">历史虚无主义这棒子还是收收吧，本身就是虚构的，一不是史，二不输出观点。照这样说市面上所有的三国题材的小说都可以拿去烧了
+
+
+
+*****
+
+####  afer  
+##### 275#       发表于 2022-6-13 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248952&amp;ptid=2075355" target="_blank">longrider 发表于 2022-6-13 13:54</a>
+没有问题
+
+A：原创主角叫“龙”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">诸葛宅男是吧
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  十字骷髅高达  
+##### 276#       发表于 2022-6-13 15:43
+
+求求kt做的亮一点，对玩家的眼睛好一点
+

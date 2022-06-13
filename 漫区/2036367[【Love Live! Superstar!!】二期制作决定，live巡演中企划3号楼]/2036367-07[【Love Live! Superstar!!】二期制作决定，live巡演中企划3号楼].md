@@ -9821,3 +9821,193 @@ liella鬼屋之旅2要来了</blockquote>
 
 这个怎么选出来的？TT那个收音我听不清楚
 
+
+
+*****
+
+####  仟音一心  
+##### 9901#       发表于 2022-6-13 10:23
+
+居然是这个配对
+
+<img src="https://img.saraba1st.com/forum/202206/13/102312an29w5ri44l9l9aa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E183EBF1-8A10-4F8E-9EED-776115F3E1CD.jpeg</strong> (469.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 10:23 上传
+
+*****
+
+####  仟音一心  
+##### 9902#       发表于 2022-6-13 11:00
+
+全企划各应援色官方名称
+
+<img src="https://img.saraba1st.com/forum/202206/13/110000mqwt2tjvgnegfgtg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D19490EE-D6E2-48D0-806A-0E075173EDD8.jpeg</strong> (230.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 11:00 上传
+
+*****
+
+####  愛さ実  
+##### 9903#       发表于 2022-6-13 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244439&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-13 08:56</a>
+这个怎么选出来的？TT那个收音我听不清楚</blockquote>
+10组翻了。和上次差不多，备选蹦极和鬼屋，大家选。
+那视频的收音真的烂，不能说是短视频平台就不在意视频质量啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  D麦林  
+##### 9904#       发表于 2022-6-13 12:48
+
+感觉是不是拿哪个staff的老古董手机录的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 9905#       发表于 2022-6-13 13:10
+
+《致富经》
+
+<img src="https://img.saraba1st.com/forum/202206/13/131037no5542do5kdi82dk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1BB60D2C-A470-4DED-95B2-3015A3B3F14F.jpeg</strong> (144.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 13:10 上传
+
+
+
+*****
+
+####  lj205  
+##### 9906#       发表于 2022-6-13 13:42
+
+草，致富经可以
+
+我甚至打算什么时候回海南然后去拍定安地瓜给她看
+
+
+
+*****
+
+####  仟音一心  
+##### 9907#       发表于 2022-6-13 14:07
+
+CelticWhite
+
+<img src="https://img.saraba1st.com/forum/202206/13/140709ntbyr1pt5w02vlov.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5B4FB931-A79D-44EC-BF2D-4565743F65EB.jpeg</strong> (673.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 14:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/13/140718fxkdoex84xeks0ds.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0B31CD14-3673-483C-9674-82254335FC2D.jpeg</strong> (264.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 14:07 上传
+
+
+
+*****
+
+####  星降る森  
+##### 9908#       发表于 2022-6-13 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56237424&amp;ptid=2036367" target="_blank">stygian 发表于 2022-6-12 21:30</a>
+
+R3那边雪藏得更久</blockquote>
+R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的，你不信他and more是另一回事啊，和星这个一开始拿5人宣传的完全不一样
+
+
+
+*****
+
+####  星降る森  
+##### 9909#       发表于 2022-6-13 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234426&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-12 19:07</a>
+
+也有一点点可能动画制作组并不知道加人。。。。。。。。总之企划sb</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">动画OP气球是9色，虽然在这之前被当成强行联系
+
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9910#       发表于 2022-6-13 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">后面如果变成12人了第一季又去找12证明是吧，牵强附会
+
+
+
+*****
+
+####  ViyViy  
+##### 9911#       发表于 2022-6-13 14:43
+
+12人当然是去二期找证明啦
+
+反正一期OP说我觉得站不住脚。
+
+
+
+*****
+
+####  D麦林  
+##### 9912#       发表于 2022-6-13 14:59
+
+关键是花田知不知道要加人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+一期好多安排有点带货任务的感觉 总有大人的事情影响了制作的感觉
+
+总不能上头给花田塞CD带货任务但就不告诉他其实之后还要加人吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+还是说他知道但是上头严令禁止他提前透露
+
+
+
+*****
+
+####  lj205  
+##### 9913#       发表于 2022-6-13 15:10
+
+怎么可能不知道加人
+
+说起来明天广播是不是新人上了？那从下周开始广播就是新四军是吧？
+
+
+
+*****
+
+####  cybernetics31  
+##### 9914#       发表于 2022-6-13 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正花田连访谈都没，咋猜都行
+

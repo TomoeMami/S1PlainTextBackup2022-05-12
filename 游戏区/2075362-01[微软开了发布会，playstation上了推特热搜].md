@@ -663,3 +663,121 @@ ns跑个新作都只能到540p 反正现在都上pc了我想玩掌机版为啥�
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JudgmentEye  
+##### 68#       发表于 2022-6-13 10:38
+
+<blockquote>引用第64楼GomezS于2022-06-13 10:21发表的  :
+
+引用:JudgmentEye 发表于 2022-6-13 09:03p5本质是ps3游戏，ns降点分......</blockquote>
+那是脱光社做的啊，atlus自己那点技术也就ps3早期水平
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+*****
+
+####  JudgmentEye  
+##### 69#       发表于 2022-6-13 10:40
+
+<blockquote>引用第63楼minysun于2022-06-13 10:19发表的  :
+
+引用:Tackstone 发表于 2022-6-13 10:11为了日本本土市场那就应该投任。而且x......</blockquote>
+放心，指望p6用虚幻5想多了，atlus那点技术力玩完真5还看不出来吗
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+
+
+*****
+
+####  saberserker  
+##### 70#       发表于 2022-6-13 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244886&amp;ptid=2075362" target="_blank">TANA 发表于 2022-6-13 09:29</a></blockquote>
+钢铁侠烧命，微软烧钱，没毛病
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  山岚夜雨  
+##### 71#       发表于 2022-6-13 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245544&amp;ptid=2075362" target="_blank">宵神乐 发表于 2022-6-13 10:12</a>
+不知道天天为日本市场干啥，就那弹丸之地
+开发游戏还得迎合他们的装机量？ ...</blockquote>
+谁让日本有很多好的游戏公司呢，那些公司肯定要考虑国内的销量啊，真正的走向国际的还是少数
+
+*****
+
+####  日日日日日野  
+##### 72#       发表于 2022-6-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243364&amp;ptid=2075362" target="_blank">SergeGlenn 发表于 2022-6-13 03:45</a>
+
+我在外网还真没看出来这种氛围，泥潭倒是。。。</blockquote>
+废话，一个守望先锋2，一个暗黑4，这两个都是重点介绍，NGA不兴奋才怪
+
+
+
+*****
+
+####  豚丝阿姐  
+##### 73#       发表于 2022-6-13 11:14
+
+<blockquote>纯战士 发表于 2022-6-13 09:31
+话说，到底发生了什么？索尼忽然这么悲观？</blockquote>
+p5或者说p系列全进了xgp，我个人立场这和判了sie（至少ps5）死刑没区别
+
+*****
+
+####  豚丝阿姐  
+##### 74#       发表于 2022-6-13 11:18
+
+<blockquote>宵神乐 发表于 2022-6-13 10:12
+不知道天天为日本市场干啥，就那弹丸之地
+
+开发游戏还得迎合他们的装机量？ ...</blockquote>
+日本是游戏行业的超级大国，纽时说的
+
+
+
+*****
+
+####  liekong  
+##### 75#       发表于 2022-6-13 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244905&amp;ptid=2075362" target="_blank">asuss 发表于 2022-6-13 09:31</a>
+等等，这是说XBOX要寄了吗？</blockquote>
+没错，某个红色的笑到最后
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  ——啧  
+##### 76#       发表于 2022-6-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245372&amp;ptid=2075362" target="_blank">leafS 发表于 2022-6-13 10:03</a>
+要拉拢日本玩家我觉得把APEX加入XGP然后限定独占内容更有戏</blockquote>
+快进到巨硬收购EA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  拉莱耶妇联主任  
+##### 77#       发表于 2022-6-13 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246499&amp;ptid=2075362" target="_blank">日日日日日野 发表于 2022-6-13 11:07</a>
+
+废话，一个守望先锋2，一个暗黑4，这两个都是重点介绍，NGA不兴奋才怪</blockquote>
+你这也属于瞎扯了，现在那边油棕还有几个暴崽，，，，
+
