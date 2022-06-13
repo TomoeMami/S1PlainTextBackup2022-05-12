@@ -992,3 +992,32 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 但是就算这样也没必要把名字定成卧龙
 
+
+
+*****
+
+####  kuglv  
+##### 115#       发表于 2022-6-13 08:40
+
+简单，主角是初代卧龙，游戏结尾失踪或者死亡，孔明继承了卧龙这个称号就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  医生狼多  
+##### 116#         楼主| 发表于 2022-6-13 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244088&amp;ptid=2075355" target="_blank">今天不守尸 发表于 2022-6-13 08:21</a>
+很感兴趣，希望不要又是黑糊糊红彤彤的那种画面了</blockquote>
+看pv感觉跑不了了黑糊糊红彤彤了(
+
+*****
+
+####  ff2077  
+##### 117#       发表于 2022-6-13 08:41
+
+看了预告，画面还是仁王那套杂乱不堪黑不溜秋的风格啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
