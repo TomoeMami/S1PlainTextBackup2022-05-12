@@ -1197,3 +1197,41 @@ b站有传4k的【IGN】《卧龙：堕落王朝》公布预告
 真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曹魏视角 尤其司马懿 确实能当boss吧 
 
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 138#       发表于 2022-6-13 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244890&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 09:29</a>
+
+为什么打击感要往血源靠啊，忍者组当然要努力往大哥的名作靠啊，重振大哥昔日荣光还得看小小弟！ ...</blockquote>
+山际真晃（血缘制作人）去年2月底离职，2021年10月8日公开表示已加入Team NINJA
+
+*****
+
+####  格林达姆  
+##### 139#       发表于 2022-6-13 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243959&amp;ptid=2075355" target="_blank">冷泉夜月 发表于 2022-6-13 08:03</a>
+这IGN也太草台了吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真就一臭打游戏的，懂个鸡儿三国
+
+*****
+
+####  洛克萨斯  
+##### 140#       发表于 2022-6-13 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245093&amp;ptid=2075355" target="_blank">Ayre不发糖哟 发表于 2022-6-13 09:43</a>
+
+山际真晃（血缘制作人）去年2月底离职，2021年10月8日公开表示已加入Team NINJA ...</blockquote>
+我知道他在，我的意思是血源的打击感不如忍者组昔日荣光啊，当然要往大哥的名作靠拢！
+
+*****
+
+####  Demi.Albertini  
+##### 141#       发表于 2022-6-13 09:49
+
+永恒丹田持有者，那不就是不死者嘛
+
