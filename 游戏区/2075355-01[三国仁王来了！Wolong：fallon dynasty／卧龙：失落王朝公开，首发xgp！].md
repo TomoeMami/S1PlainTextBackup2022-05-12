@@ -3191,3 +3191,29 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 话说到现在除了游戏简介啥信息都没有，一般不都会有配套的公关稿和采访的么，起码敲定一下是不是真的能捏人啊，这对我来说很重要
 
+
+
+*****
+
+####  edenpenn  
+##### 335#       发表于 2022-6-13 21:27
+
+ 本帖最后由 edenpenn 于 2022-6-13 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56254964&amp;ptid=2075355" target="_blank">jf8350143 发表于 2022-6-13 21:20</a>
+
+那标题连起来就是“卧龙：苍天已死”
+
+这仿佛是村夫投了黄巾一样的标题真的合适吗</blockquote>
+挺合适的，“苍天已死”也是拉开三国故事序幕的一句话，反正按坛友们的分析卧龙只是个称号，而且苍天已死后妖魔横行不挺合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 336#         楼主| 发表于 2022-6-13 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56254964&amp;ptid=2075355" target="_blank">jf8350143 发表于 2022-6-13 21:20</a>
+那标题连起来就是“卧龙：苍天已死”
+
+这仿佛是村夫投了黄巾一样的标题真的合适吗</blockquote>
+现在说法是微软搞了宣发限制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我没搞懂这个做法的意义到底是啥，平台不都放出来了吗
+
