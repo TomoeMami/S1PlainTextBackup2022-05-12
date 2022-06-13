@@ -9797,3 +9797,18 @@ liella鬼屋之旅2要来了
 r3出演其他项目都是可以的，as游戏的配音 ...</blockquote>
 尤其是星1恋来了一波AS栞子剧情复刻，那么……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9899#       发表于 2022-6-13 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56240706&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-13 00:11</a>
+liella鬼屋之旅2要来了</blockquote>
+日本那边现在也应该是各种雨吧。
+
+说起来那个蹦极flag，不会强行抓2期的也去吧w。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -924,3 +924,30 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 可能故事里要说，诸葛亮的亮是“孔明”以讹传讹附会出来的，真实的卧龙，是诸葛空和诸葛明两个人，两个合在 ...</blockquote>
 类似拉达冈和玛丽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冷泉夜月  
+##### 109#       发表于 2022-6-13 08:03
+
+<img src="https://img.saraba1st.com/forum/202206/13/080311ypmg1ouuff1vsi4c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220613_080201_com.twitter.android.jpg</strong> (240.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-13 08:03 上传
+
+这IGN也太草台了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 110#       发表于 2022-6-13 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243368&amp;ptid=2075355" target="_blank">萱时令 发表于 2022-6-13 03:46</a>
+
+啊这 魂的那套打塑料袋不算好吧</blockquote>
+血源的打击感和其它魂不在同一个水平，卡肉、震屏、敌人受击反馈、大姨妈出血都齐，再加上厚重的动作表现，怎么样都比仁王砍纸强吧。
+
