@@ -3217,3 +3217,19 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 这仿佛是村夫投了黄巾一样的标题真的合适吗</blockquote>
 现在说法是微软搞了宣发限制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我没搞懂这个做法的意义到底是啥，平台不都放出来了吗
 
+
+
+*****
+
+####  放大镜  
+##### 337#       发表于 2022-6-13 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251980&amp;ptid=2075355" target="_blank">关二爷 发表于 2022-6-13 17:25</a>
+
+感觉日本对三国的认知比大陆晚10年
+
+所以光荣现在对三国的认知大约是易中天横行的年代 ...</blockquote>
+戏服在身还是注意下形象吧，怎么还拿网红当国际巨星了？正经的顾问工作排队都排不到易老师好吗。
+
+就最近几张三国帖的表现来看，泥潭部分网友真不一定干得过襟川阳一本人。
+
