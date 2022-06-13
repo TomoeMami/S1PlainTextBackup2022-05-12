@@ -1466,3 +1466,79 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 三国正统在光荣！
 
+
+
+*****
+
+####  hypnossz86  
+##### 165#       发表于 2022-6-13 10:15
+
+这次pc应该同步了吧
+能自捏就首发
+
+*****
+
+####  京吹病人  
+##### 166#       发表于 2022-6-13 10:16
+
+龍!
+
+*****
+
+####  天天那个啥  
+##### 167#       发表于 2022-6-13 10:16
+
+主角站哪边不是问题，反正按仁王看哪怕反派也是有闪光点和自己的坚持的，不会和历史形象(或者说大众认知中的历史形象)差太多。而光荣的历史观一向是大家都有自己的坚持与选择，不是简单的黑白之分(除去人见人黑的董先生等少数人)。
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seedees3  
+##### 168#       发表于 2022-6-13 10:17
+
+看这热度，国区百万销量稳了
+
+*****
+
+####  upisud18  
+##### 169#       发表于 2022-6-13 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245472&amp;ptid=2075355" target="_blank">屌丶哲 发表于 2022-6-13 10:08</a>
+ 司马家怎么说，司马家</blockquote>
+可以联动一个批里批里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarkDuck  
+##### 170#       发表于 2022-6-13 10:19
+
+nice！
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 171#       发表于 2022-6-13 10:19
+
+仁王根本没坏人吧，邪恶的只有零食
+
+—— 来自 nubia NX709J, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ashice  
+##### 172#       发表于 2022-6-13 10:20
+
+不知道单手剑和单手刀会不会区分开来做两套动作模组
+
+另外最好还是别像起源那样aaab搓武技好一些吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  内鬼来干我呀  
+##### 173#       发表于 2022-6-13 10:22
+
+说什么我也只用青龙偃月刀
+
+这可是中国人的浪漫
+
