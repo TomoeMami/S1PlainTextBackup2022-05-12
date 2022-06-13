@@ -15833,3 +15833,12 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 我还真漏看了张角这句……不过既然是破戒僧那是下间相关的概率就挺小了，大概率是杉谷善住坊什么的
 
+
+
+*****
+
+####  sosgame67  
+##### 88361#       发表于 2022-6-13 23:13
+
+飞哥强化了也还是没法上岗啊，白值硬伤在那儿而且五星剑内卷的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
