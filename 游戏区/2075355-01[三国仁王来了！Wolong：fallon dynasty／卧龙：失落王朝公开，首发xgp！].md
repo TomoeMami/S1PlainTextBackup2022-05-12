@@ -3173,3 +3173,21 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 最大的期待就是想和董白（无论是三国志人设还是无双人设都行）百合
 
+
+
+*****
+
+####  jf8350143  
+##### 334#       发表于 2022-6-13 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56254502&amp;ptid=2075355" target="_blank">edenpenn 发表于 2022-6-13 20:37</a>
+
+感觉直接苍天已死更棒
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+那标题连起来就是“卧龙：苍天已死”
+
+这仿佛是村夫投了黄巾一样的标题真的合适吗
+
+话说到现在除了游戏简介啥信息都没有，一般不都会有配套的公关稿和采访的么，起码敲定一下是不是真的能捏人啊，这对我来说很重要
+
