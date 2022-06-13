@@ -1855,3 +1855,84 @@ Pc的话demo直接扒下来了
 
 必首发，希望少点仁王的刷刷刷要素<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 207#         楼主| 发表于 2022-6-13 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246452&amp;ptid=2075355" target="_blank">红魔馆的糖 发表于 2022-6-13 11:04</a>
+近期有测试的话，不会是主机限定吧
+
+Pc的话demo直接扒下来了</blockquote>
+基本都是主机限定
+
+*****
+
+####  巴特爱素子  
+##### 208#       发表于 2022-6-13 11:17
+
+<blockquote>洛克萨斯 发表于 2022-6-13 10:00
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+第一个高潮怕不就是虎牢关
+
+*****
+
+####  巴特爱素子  
+##### 209#       发表于 2022-6-13 11:18
+
+<blockquote>Demi.Albertini 发表于 2022-6-13 11:03
+那个龙肯定腐化了嘛，对应标题里的fallen~</blockquote>
+没有关系 那时候的汉朝确实衰落了
+
+*****
+
+####  巴特爱素子  
+##### 210#       发表于 2022-6-13 11:19
+
+<blockquote>popchong 发表于 2022-6-13 10:57
+永恒灵药是长生不老药的话，那水镜先生真实身份可以是徐福</blockquote>
+道教也炼丹啊
+
+
+
+*****
+
+####  蕾丝控  
+##### 211#       发表于 2022-6-13 11:20
+
+盲猜一手真正的不死药是和氏璧，玉玺不是摔坏了，而是每次被吃掉一点点。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 212#       发表于 2022-6-13 11:20
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕后boss，本作终战是五丈原的可能
+
+KT是日企，没有那么多禁区
+
+*****
+
+####  ドロロ  
+##### 213#       发表于 2022-6-13 11:21
+
+准备买个xss了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lly778  
+##### 214#       发表于 2022-6-13 11:21
+
+失落王朝应该不是正式译名。
+
+*****
+
+####  nessaj  
+##### 215#       发表于 2022-6-13 11:22
+
+[OHHHHHHHHHHHH]
+
+激动的跳起来了
+
