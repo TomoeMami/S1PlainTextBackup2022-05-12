@@ -1309,3 +1309,160 @@ pv最后不就是虎牢关吕布</blockquote>
 
 油土鳖视频已经看不见了，新闻还能搜到
 
+
+
+*****
+
+####  barry.allen  
+##### 150#       发表于 2022-6-13 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243078&amp;ptid=2075355" target="_blank">神杀赛利卡 发表于 2022-6-13 02:58</a>
+
+想起了扭三，卧龙，当然是卧着的龙，结合失落王朝来看，是汉朝皇子复国的故事。 ...</blockquote>
+秦殇续作《汉殇》是吧
+
+
+
+*****
+
+####  kanpachi  
+##### 151#       发表于 2022-6-13 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245321&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:00</a>
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+光荣世界的曹操不是对标信长么，仁王的信长那么白曹操怎么可能黑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 152#         楼主| 发表于 2022-6-13 10:03
+
+商标挺早就注册了:
+商願2019-119939
+商標：臥龍
+出願日：令和1(2019)年 9月 10日
+登録日：令和2(2020)年 9月 11日
+権利者：株式会社コーエーテクモゲームス
+
+【商品及び役務の区分並びに指定商品又は指定役務】
+
+電子計算機用プログラム，その他の電子応用機械器具及びその部品，ダウンロード可能な家庭用テレビゲーム機用のプログラム，その他の家庭用テレビゲーム機用プログラム，携帯用液晶画面ゲーム機用のプログラムを記憶させた電子回路及びＣＤ－ＲＯＭ，レコード，インターネットを利用して受信し及び保存することができる音楽ファイル，インターネットを利用して受信し及び保存することができる画像ファイル，録画済ビデオディスク及びビデオテープ，電子出版物，携帯電話用ストラップ，業務用テレビゲーム機用プログラム
+然后这个是新年的关键词:
+安田的2022年关键词——Rise of Team NINJA
+Team NINJA首次以“三国志”为舞台的动作游戏制作中，敬请期待。
+
+*****
+
+####  bwsusaga  
+##### 153#       发表于 2022-6-13 10:04
+
+仁王系列向来有站阵营的习惯，一代西军老乌龟，二代直接和猴子相杀
+
+你们觉的暗耻是魏粉还是蜀粉？
+
+看标题卧龙，主角好像是蜀汉阵营，
+
+但堕落王朝这几个字，明显指的是汉，蜀又是继承者，
+
+黑孔明倒不会，
+
+但姜维最后为了得胜吞灵石变身成大妖的画面已经在我脑子里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  barry.allen  
+##### 154#       发表于 2022-6-13 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243245&amp;ptid=2075355" target="_blank">415452356 发表于 2022-6-13 03:20</a>
+
+pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角可以拿来炼丹？毕竟一看就还是仁王2半妖阿秀天 ...</blockquote>
+那个英文直译过来是不朽丹田
+
+日文里有“丹田”这个词，游戏具体是个啥只能等进一步消息了
+
+*****
+
+####  Ayre不发糖哟  
+##### 155#       发表于 2022-6-13 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245369&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-13 10:03</a>
+
+商标挺早就注册了:
+
+商願2019-119939
+
+商標：臥龍</blockquote>
+对，就是这个注册<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  内鬼来干我呀  
+##### 156#       发表于 2022-6-13 10:08
+
+其实无双的信长和曹操塑造不一样的
+
+信长白很多...但是光荣是薯粉没跑
+
+*****
+
+####  屌丶哲  
+##### 157#       发表于 2022-6-13 10:08
+
+司马家怎么说，司马家
+
+*****
+
+####  martinhe  
+##### 158#       发表于 2022-6-13 10:10
+
+丞相做boss不就是曹操传幻想线的精神续作，三国游戏老炮哪个不爱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  janet_ddr  
+##### 159#       发表于 2022-6-13 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242981&amp;ptid=2075355" target="_blank">popchong 发表于 2022-6-13 02:49</a></blockquote>
+这图，要是把名字去掉，说是只狼DLC都行吧？
+
+*****
+
+####  内鬼来干我呀  
+##### 160#       发表于 2022-6-13 10:11
+
+其实无双和演义一样 成王败寇 善恶靠边站 （本来就是改编的）
+
+但是仁王善恶很明确的
+
+*****
+
+####  cloudcc  
+##### 161#       发表于 2022-6-13 10:11
+
+三部可以从黄巾到诸葛出芦，赤壁大战到白帝托孤，星落五丈原到姜维奇谋
+
+*****
+
+####  天天那个啥  
+##### 162#       发表于 2022-6-13 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244926&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 09:32</a>
+真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
+光荣：窝早在曹操传就把孔明做成boss了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cloudcc  
+##### 163#       发表于 2022-6-13 10:11
+
+做个5年3作
+
+*****
+
+####  woshenc  
+##### 164#       发表于 2022-6-13 10:12
+
+三国正统在光荣！
+
