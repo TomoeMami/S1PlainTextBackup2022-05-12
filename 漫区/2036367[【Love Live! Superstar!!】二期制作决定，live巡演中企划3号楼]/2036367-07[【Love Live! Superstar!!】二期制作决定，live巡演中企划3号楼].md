@@ -9932,3 +9932,15 @@ CelticWhite
 由手机上传
 2022-6-13 14:07 上传
 
+
+
+*****
+
+####  星降る森  
+##### 9908#       发表于 2022-6-13 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56237424&amp;ptid=2036367" target="_blank">stygian 发表于 2022-6-12 21:30</a>
+
+R3那边雪藏得更久</blockquote>
+R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的，你不信他and more是另一回事啊，和星这个一开始拿5人宣传的完全不一样
+
