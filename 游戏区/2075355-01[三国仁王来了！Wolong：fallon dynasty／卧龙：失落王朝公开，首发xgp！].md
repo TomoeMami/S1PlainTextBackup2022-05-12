@@ -3099,3 +3099,22 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 </blockquote>
 港真，三国志从平衡性讲蜀国也得强人多，毕竟地盘最少，早期剧本，刘备ai一个不留神就玩完了
 
+
+
+*****
+
+####  hyakusiki  
+##### 327#       发表于 2022-6-13 19:59
+
+暗耻有能力进行详尽的历史考据不妨碍它无双系列疯狂**历史，指望能忠于史实的还是洗洗睡吧
+
+*****
+
+####  jyhldlagen  
+##### 328#       发表于 2022-6-13 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56253076&amp;ptid=2075355" target="_blank">龙骑士尹志平 发表于 2022-6-13 18:47</a>
+
+是徐荣，和吕布一伙，前期干黄巾，干曹孙，后在临潼即将战死，死前误入始皇陵，祖龙残存意识告诉徐荣中国 ...</blockquote>
+本传：龙骑士尹志平传
+
