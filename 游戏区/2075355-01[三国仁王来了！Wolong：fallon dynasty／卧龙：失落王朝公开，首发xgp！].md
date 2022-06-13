@@ -1542,3 +1542,74 @@ nice！
 
 这可是中国人的浪漫
 
+
+
+*****
+
+####  wswad436710  
+##### 174#       发表于 2022-6-13 10:23
+
+好，三国仁王终于有消息了。明年有的刷了。
+
+*****
+
+####  洛克萨斯  
+##### 175#       发表于 2022-6-13 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245366&amp;ptid=2075355" target="_blank">kanpachi 发表于 2022-6-13 10:02</a>
+
+光荣世界的曹操不是对标信长么，仁王的信长那么白曹操怎么可能黑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">假设赤壁作为本作决战的话肯定是曹操当boss最合适吧
+
+*****
+
+####  洛克萨斯  
+##### 176#       发表于 2022-6-13 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245693&amp;ptid=2075355" target="_blank">Ashice 发表于 2022-6-13 10:20</a>
+
+不知道单手剑和单手刀会不会区分开来做两套动作模组
+
+另外最好还是别像起源那样aaab搓武技好一些吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无双组都能把刀和剑做出不同风格，忍者组怎么可能不行
+
+*****
+
+####  内鬼来干我呀  
+##### 177#       发表于 2022-6-13 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245763&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:24</a>
+
+无双组都能把刀和剑做出不同风格，忍者组怎么可能不行</blockquote>
+别小看无双组 人家动作设计也是独一份的了 其他无双没几个能做出这种动作了
+
+*****
+
+####  Ashice  
+##### 178#       发表于 2022-6-13 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245763&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:24</a>
+
+无双组都能把刀和剑做出不同风格，忍者组怎么可能不行</blockquote>
+主要是看到一个群里讨论说剑有可能偷懒直接套仁王的太刀模组
+
+再想想仁王2里每种动作模组好像确实都有两种不同的武器，比如大锤大斧，就觉得都是单手轻武器可能就改改伤害倾向算同模了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水边井  
+##### 179#       发表于 2022-6-13 10:30
+
+这pv怎么看起来多少有点日式中国风<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天邪鬼  
+##### 180#       发表于 2022-6-13 10:31
+
+卧龙和堕落王朝怎么看着都像是敌人的描述啊？
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

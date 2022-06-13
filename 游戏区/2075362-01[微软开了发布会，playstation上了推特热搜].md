@@ -642,3 +642,24 @@ p5本质是ps3游戏，ns降点分辨率还会跑不动？
 ----STAGE1 Mobile</blockquote>
 p5s都上了（虽然掌机有点糊），本传总不会比无双吃性能吧
 
+
+
+*****
+
+####  死神香蕉  
+##### 66#       发表于 2022-6-13 10:25
+
+俗话说的好，拉达冈就是玛莉卡
+
+*****
+
+####  任天索尼子  
+##### 67#       发表于 2022-6-13 10:25
+
+ 本帖最后由 任天索尼子 于 2022-6-13 10:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245515&amp;ptid=2075362" target="_blank">Tackstone 发表于 2022-6-13 10:11</a>
+为了日本本土市场那就应该投任。而且xss说实话势头在日本很不错。</blockquote>
+ns跑个新作都只能到540p 反正现在都上pc了我想玩掌机版为啥不收个二手win掌机还能跑720p呢。日厂的优化平常泥潭没少批判啊。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
