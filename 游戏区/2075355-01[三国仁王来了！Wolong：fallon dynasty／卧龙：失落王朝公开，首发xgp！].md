@@ -3118,3 +3118,18 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 是徐荣，和吕布一伙，前期干黄巾，干曹孙，后在临潼即将战死，死前误入始皇陵，祖龙残存意识告诉徐荣中国 ...</blockquote>
 本传：龙骑士尹志平传
 
+
+
+*****
+
+####  Leliel  
+##### 329#       发表于 2022-6-13 20:06
+
+ 本帖最后由 Leliel 于 2022-6-13 20:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无双不就是谁的传就捧谁，老陈寿行为了
+
+而且吧，对着一个继承仁王衣钵的游戏
+
+别说历史了，拿演义标准要求他还原都是自作多情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
