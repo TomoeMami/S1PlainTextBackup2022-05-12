@@ -2552,3 +2552,25 @@ A：还在家里卧着呢
 历史虚无主义，可别把steam xbox商店 psn打包全强了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">历史虚无主义这棒子还是收收吧，本身就是虚构的，一不是史，二不输出观点。照这样说市面上所有的三国题材的小说都可以拿去烧了
 
+
+
+*****
+
+####  afer  
+##### 275#       发表于 2022-6-13 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248952&amp;ptid=2075355" target="_blank">longrider 发表于 2022-6-13 13:54</a>
+没有问题
+
+A：原创主角叫“龙”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">诸葛宅男是吧
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  十字骷髅高达  
+##### 276#       发表于 2022-6-13 15:43
+
+求求kt做的亮一点，对玩家的眼睛好一点
+
