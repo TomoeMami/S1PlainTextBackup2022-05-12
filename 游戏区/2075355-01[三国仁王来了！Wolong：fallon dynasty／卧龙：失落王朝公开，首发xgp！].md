@@ -2468,3 +2468,34 @@ PV里这个腐龙肯定是伪货了，
 
 期待光荣脱裤魔忍者组捏的貂蝉...<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  longrider  
+##### 268#       发表于 2022-6-13 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248288&amp;ptid=2075355" target="_blank">afer 发表于 2022-6-13 12:58</a>
+
+然而问题题目叫卧龙
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没有问题
+
+A：原创主角叫“龙”
+
+B：那诸葛亮在哪里？
+
+A：还在家里卧着呢
+
+*****
+
+####  longrider  
+##### 269#       发表于 2022-6-13 13:57
+
+主角“龙”从黄巾打到曹操屠徐州，救起一个逃难男孩传给他毕生功力然后沉睡
+
+再醒来已经是五丈原之后，卧龙传人姜维为复兴汉室魔化变腐龙
+
+真龙vs腐龙
+
