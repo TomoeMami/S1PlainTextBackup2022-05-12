@@ -9821,3 +9821,49 @@ liella鬼屋之旅2要来了</blockquote>
 
 这个怎么选出来的？TT那个收音我听不清楚
 
+
+
+*****
+
+####  仟音一心  
+##### 9901#       发表于 2022-6-13 10:23
+
+居然是这个配对
+
+<img src="https://img.saraba1st.com/forum/202206/13/102312an29w5ri44l9l9aa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E183EBF1-8A10-4F8E-9EED-776115F3E1CD.jpeg</strong> (469.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 10:23 上传
+
+*****
+
+####  仟音一心  
+##### 9902#       发表于 2022-6-13 11:00
+
+全企划各应援色官方名称
+
+<img src="https://img.saraba1st.com/forum/202206/13/110000mqwt2tjvgnegfgtg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D19490EE-D6E2-48D0-806A-0E075173EDD8.jpeg</strong> (230.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-13 11:00 上传
+
+*****
+
+####  愛さ実  
+##### 9903#       发表于 2022-6-13 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244439&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-13 08:56</a>
+这个怎么选出来的？TT那个收音我听不清楚</blockquote>
+10组翻了。和上次差不多，备选蹦极和鬼屋，大家选。
+那视频的收音真的烂，不能说是短视频平台就不在意视频质量啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

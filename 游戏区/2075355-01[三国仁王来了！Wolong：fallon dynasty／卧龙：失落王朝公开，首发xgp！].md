@@ -2129,3 +2129,51 @@ KT是日企，没有那么多禁区
 
 —— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  barry.allen  
+##### 234#       发表于 2022-6-13 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245321&amp;ptid=2075355" target="_blank">洛克萨斯 发表于 2022-6-13 10:00</a>
+
+三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">诸侯讨董和官渡不算么？
+
+哪怕以皇叔主视角赤壁也只是最大高潮，肯定不是第一个
+
+*****
+
+####  放大镜  
+##### 235#       发表于 2022-6-13 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+如果按竹中直人市村正亲的标准来选角，平移到国内不是请不动就是请不起……
+
+*****
+
+####  rp1993  
+##### 236#       发表于 2022-6-13 11:58
+
+不是汉末么，做到讨伐完董卓就不错了吧。
+
+*****
+
+####  wtyrambo  
+##### 237#       发表于 2022-6-13 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一口气做完了也不是不可能，魔改下轩辕剑5的剧本，诸葛亮被魔王附身穷兵黩武频繁发起北伐，导致民不聊生，最终在五丈原在魏延的协助下实施了封魔仪式削弱了魔王的力量并让主角讨伐，从此天下大势已定。然后要出2就搞搞中间补充点野史之类的。
+
+*****
+
+####  lly778  
+##### 238#       发表于 2022-6-13 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+据说有教主夫人
+
