@@ -1235,3 +1235,77 @@ b站有传4k的【IGN】《卧龙：堕落王朝》公布预告
 
 永恒丹田持有者，那不就是不死者嘛
 
+
+
+*****
+
+####  mimighost  
+##### 142#       发表于 2022-6-13 09:53
+
+ign大乌龙，简介直接写背景设定为幕府日本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  barry.allen  
+##### 143#       发表于 2022-6-13 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242886&amp;ptid=2075355" target="_blank">refiver 发表于 2022-6-13 02:43</a>
+
+三国仁王有舅舅透露了，但是我忘记是在哪儿看到的了
+
+很多人也都知道</blockquote>
+今年还是去年某次光特官方直播活动，社长亲自说的，就提了一句忍者组在开发三国游戏，不是舅舅党。
+
+*****
+
+####  粉刷月季  
+##### 144#       发表于 2022-6-13 09:56
+
+能一次做完吗，又来3个dlc
+
+*****
+
+####  遗尿  
+##### 145#       发表于 2022-6-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244928&amp;ptid=2075355" target="_blank">kanpachi 发表于 2022-6-13 09:32</a>
+pv最后不就是虎牢关吕布</blockquote>
+说不定是拿着方天画戟的魏延<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 146#         楼主| 发表于 2022-6-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245255&amp;ptid=2075355" target="_blank">barry.allen 发表于 2022-6-13 09:55</a>
+今年还是去年某次光特官方直播活动，社长亲自说的，就提了一句忍者组在开发三国游戏，不是舅舅党。 ...</blockquote>
+安田在年初给fami通写的新年期望之类的就说已经在做一个三国游戏了
+
+*****
+
+####  内鬼来干我呀  
+##### 147#       发表于 2022-6-13 10:00
+
+3个dlc肯定的 现在游戏 还想一次做完 天真！
+
+*****
+
+####  洛克萨斯  
+##### 148#       发表于 2022-6-13 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三国第一个高潮部分是赤壁吧，感觉这作做到赤壁击退曹操大魔王比较合适？
+
+*****
+
+####  barry.allen  
+##### 149#       发表于 2022-6-13 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245309&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-13 09:59</a>
+
+安田在年初给fami通写的新年期望之类的就说已经在做一个三国游戏了</blockquote>
+我查了查，我说的是21年10月的
+
+【シブサワ・コウ40周年記念番組　秋の陣】直播活动上社长说的。
+
+油土鳖视频已经看不见了，新闻还能搜到
+
