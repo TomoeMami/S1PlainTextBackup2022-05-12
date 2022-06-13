@@ -9965,3 +9965,14 @@ R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">后面如果变成12人了第一季又去找12证明是吧，牵强附会
 
+
+
+*****
+
+####  ViyViy  
+##### 9911#       发表于 2022-6-13 14:43
+
+12人当然是去二期找证明啦
+
+反正一期OP说我觉得站不住脚。
+
