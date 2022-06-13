@@ -769,3 +769,15 @@ p5或者说p系列全进了xgp，我个人立场这和判了sie（至少ps5）�
 要拉拢日本玩家我觉得把APEX加入XGP然后限定独占内容更有戏</blockquote>
 快进到巨硬收购EA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉莱耶妇联主任  
+##### 77#       发表于 2022-6-13 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246499&amp;ptid=2075362" target="_blank">日日日日日野 发表于 2022-6-13 11:07</a>
+
+废话，一个守望先锋2，一个暗黑4，这两个都是重点介绍，NGA不兴奋才怪</blockquote>
+你这也属于瞎扯了，现在那边油棕还有几个暴崽，，，，
+

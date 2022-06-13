@@ -2499,3 +2499,16 @@ A：还在家里卧着呢
 
 真龙vs腐龙
 
+
+
+*****
+
+####  不会武术  
+##### 270#       发表于 2022-6-13 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244447&amp;ptid=2075355" target="_blank">悲叹的夜想曲 发表于 2022-6-13 08:56</a>
+主角肯定和仁王2一样原创，但是剧情会把三国人物串起来
+
+都叫卧龙了，丞相要么是和主角一边，要么就是幕后黑 ...</blockquote>
+历史虚无主义，可别把steam xbox商店 psn打包全强了
+
