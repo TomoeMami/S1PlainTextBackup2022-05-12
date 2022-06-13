@@ -2840,3 +2840,19 @@ A：原创主角叫“龙”</blockquote>
 
 仁王2我觉得技能装备都挺有趣的
 
+
+
+*****
+
+####  关二爷  
+##### 303#       发表于 2022-6-13 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251760&amp;ptid=2075355" target="_blank">不见不散 发表于 2022-6-13 17:12</a>
+
+光荣是蜀粉吗？我觉得蜀粉做不出那么恶心的晋剧情…
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+感觉日本对三国的认知比大陆晚10年
+
+所以光荣现在对三国的认知大约是易中天横行的年代
+
