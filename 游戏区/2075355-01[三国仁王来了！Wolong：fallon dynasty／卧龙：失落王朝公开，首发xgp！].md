@@ -3018,3 +3018,39 @@ A：原创主角叫“龙”</blockquote>
 </blockquote>
 毕竟是自己人的历史，光荣看来可能只是喜好程度的区别，在国内很多人眼里没让季汉续下去就是亡天下的前奏……
 
+
+
+*****
+
+####  suzakushi  
+##### 319#       发表于 2022-6-13 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251980&amp;ptid=2075355" target="_blank">关二爷 发表于 2022-6-13 17:25</a>
+感觉日本对三国的认知比大陆晚10年
+
+所以光荣现在对三国的认知大约是易中天横行的年代 ...</blockquote>
+光荣的考据比你想得讲究得多，不知你懂不懂三国，但可以看出你肯定不了解光荣。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ChrisSnake  
+##### 320#       发表于 2022-6-13 19:27
+
+开预购了吗 开了就打钱
+
+*****
+
+####  crosz1985  
+##### 321#       发表于 2022-6-13 19:27
+
+DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  内鬼来干我呀  
+##### 322#       发表于 2022-6-13 19:30
+
+光荣有一个自己的历史研究所 大河剧历史顾问都要找光荣
+
