@@ -3054,3 +3054,27 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 光荣有一个自己的历史研究所 大河剧历史顾问都要找光荣
 
+
+
+*****
+
+####  ChrisSnake  
+##### 323#       发表于 2022-6-13 19:32
+
+<img src="https://img.saraba1st.com/forum/202206/13/193136qe6e7i5eey8iwgu8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FF0E28DF-6117-4194-A0DE-31F84F3A2875.jpeg</strong> (308.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-13 19:31 上传
+
+臣本布衣 遇见了只狼 是不是这么个展开
+
+*****
+
+####  Demi.Albertini  
+##### 324#       发表于 2022-6-13 19:41
+
+神子=幼年汉献帝……主角是曹操！
+
