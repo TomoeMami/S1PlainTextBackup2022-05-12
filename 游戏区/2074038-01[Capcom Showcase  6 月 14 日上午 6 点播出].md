@@ -847,3 +847,49 @@ re4结束就只剩5分钟了吧，还能公布个啥呢
 
 巧舟龙信小萝莉，一个都没有，你也配叫showcase？
 
+
+
+*****
+
+####  医生狼多  
+##### 111#       发表于 2022-6-14 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56257664&amp;ptid=2074038" target="_blank">rainsheep 发表于 2022-6-14 06:39</a>
+可以放实机啊，生化4明年3月就上，完全可以多放点实机</blockquote>
+而卡表选择复读老pv拖时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BigLittle1999  
+##### 112#       发表于 2022-6-14 06:48
+
+其实卡普空那几个新作早被黑客透光了，还非得藏着掖着搞个预告的预告干啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 113#       发表于 2022-6-14 06:48
+
+  bio4re就是挂羊头卖狗肉，本质是3.5借尸还魂吧
+
+*****
+
+####  灰色的狐狸  
+##### 114#       发表于 2022-6-14 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56257694&amp;ptid=2074038" target="_blank">415452356 发表于 2022-6-14 06:48</a>
+
+bio4re就是挂羊头卖狗肉，本质是3.5借尸还魂吧</blockquote>
+皮大衣都是3.5的。。。
+
+*****
+
+####  天宮奏  
+##### 115#       发表于 2022-6-14 06:51
+
+我是傻逼
+
+但是17号6点我还是会爬起来看的
+
