@@ -2788,3 +2788,12 @@ A：原创主角叫“龙”</blockquote>
 但是日本那边还没公布任何消息</blockquote>
 去推上看了一眼，光荣官号连视频都没有，置顶还是火纹无双<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  izayoi39  
+##### 298#       发表于 2022-6-13 17:03
+
+感觉这作最多做到官渡之战左右吧，从黄巾开始做到虎牢关有点短，做到赤壁又有点长了
+
