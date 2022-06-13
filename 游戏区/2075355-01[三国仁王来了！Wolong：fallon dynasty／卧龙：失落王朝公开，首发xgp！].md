@@ -1066,3 +1066,31 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 最近会有测试版</blockquote>
 请问是那里的消息，最近是多斤近啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  悲叹的夜想曲  
+##### 123#       发表于 2022-6-13 08:56
+
+主角肯定和仁王2一样原创，但是剧情会把三国人物串起来
+
+都叫卧龙了，丞相要么是和主角一边，要么就是幕后黑手最后的大BOSS
+
+*****
+
+####  嵐色羽空  
+##### 124#       发表于 2022-6-13 08:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">自定义主角就可以了，我要用大乃乃双马尾在三国乱杀
+
+*****
+
+####  叶雾  
+##### 125#       发表于 2022-6-13 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244392&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-13 08:52</a>
+
+请问是那里的消息，最近是多斤近啊</blockquote>
+蒋干盗来的，我猜9月吧
+

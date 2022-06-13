@@ -9812,3 +9812,12 @@ liella鬼屋之旅2要来了</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 9900#       发表于 2022-6-13 08:56
+
+这个怎么选出来的？TT那个收音我听不清楚
+
