@@ -3262,3 +3262,14 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 2023年不会无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  火华火华火  
+##### 341#       发表于 2022-6-13 22:51
+
+主角先加入黄巾军，然后发现张角干什么见不得人的事然后反叛的感觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
