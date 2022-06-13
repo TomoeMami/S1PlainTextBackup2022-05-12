@@ -2000,3 +2000,49 @@ KT是日企，没有那么多禁区
 第一个高潮怕不就是虎牢关</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太短了，黄巾到虎牢关，而且诸侯联军很多摸鱼的，真正出力还是孙坚和曹操（被暴打）
 
+
+
+*****
+
+####  chris1987  
+##### 222#       发表于 2022-6-13 11:33
+
+腐化的卧龙，到让我感觉有点像曹操传里的蓝线。。
+
+*****
+
+####  jf8350143  
+##### 223#       发表于 2022-6-13 11:35
+
+我倒是觉得卧龙是主角，只不过这部是前传，副标题就是王朝陨落，所以讲的是东汉在黄巾和董胖轮流祸祸下一蹶不振的前期故事，大概就是到曹老板赢下官渡权倾朝野结束
+
+续作换个副标题，开始正式讲村夫的故事
+
+*****
+
+####  Firvox  
+##### 224#       发表于 2022-6-13 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243121&amp;ptid=2075355" target="_blank">bad_alloc 发表于 2022-6-13 03:02</a>
+黑皮黄毛涩谷系辣妹waifu黄月英安排上</blockquote>
+打一段再来点RAP是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orcher1945  
+##### 225#       发表于 2022-6-13 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242859&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 02:41</a>
+
+主角是个拿剑的战士啊，怎么会是孔明  八成原创人物</blockquote>
+黄巾之乱爆发的时候诸葛亮才3岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，肯定不是诸葛亮，有可能孔明是个中后期重要角色。
+
+*****
+
+####  ネコカイザー  
+##### 226#       发表于 2022-6-13 11:40
+
+我想到一个有趣的事情 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得国内肯定有团队在做三国的魂like，这下翻大车了
+
