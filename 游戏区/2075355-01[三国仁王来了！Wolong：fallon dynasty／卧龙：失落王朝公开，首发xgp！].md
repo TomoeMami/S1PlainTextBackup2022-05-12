@@ -1021,3 +1021,48 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  陈玉礼  
+##### 118#       发表于 2022-6-13 08:44
+
+黑糊糊红彤彤是忍组祖传特色，不爽不要玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渺小小  
+##### 119#       发表于 2022-6-13 08:48
+
+有没有火凤燎原联动dlc啊？我诸葛大锤没锤用算什么卧龙~
+
+*****
+
+####  tornadoDA  
+##### 120#       发表于 2022-6-13 08:49
+
+画面不要想啥了，做不出宫崎英高的那种画面的，希望游戏系统有所简化，难度曲线更加合理
+
+
+
+*****
+
+####  1a不解释  
+##### 121#       发表于 2022-6-13 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243524&amp;ptid=2075355" target="_blank">叶雾 发表于 2022-6-13 05:09</a>
+最近会有测试版</blockquote>
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 122#         楼主| 发表于 2022-6-13 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243524&amp;ptid=2075355" target="_blank">叶雾 发表于 2022-6-13 05:09</a>
+最近会有测试版</blockquote>
+请问是那里的消息，最近是多斤近啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

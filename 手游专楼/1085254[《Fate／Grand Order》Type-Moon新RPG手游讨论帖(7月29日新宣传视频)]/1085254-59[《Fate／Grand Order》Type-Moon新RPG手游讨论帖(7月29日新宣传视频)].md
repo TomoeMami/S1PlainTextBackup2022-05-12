@@ -15798,3 +15798,17 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 根据任务，难道开狩猎拖时间？
 
+
+
+*****
+
+####  UNISONIA  
+##### 88358#       发表于 2022-6-13 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56212226&amp;ptid=1085254" target="_blank">先手必胜 发表于 2022-6-10 21:10</a>
+
+确定是杂贺吗，她以前有在fgom或剧情里提及吗</blockquote>
+是猜测，剧情里虽然有一定暗示但是没有明确的线索（跟月球为朝一样也是创作里的角色，所以能在这章出现），而且这次没有上次康11一样在奇怪的地方泄露缩写称呼
+
+卫星确实是老卫星，16年还是17年gudaguda里借信长之口间接提过
+
