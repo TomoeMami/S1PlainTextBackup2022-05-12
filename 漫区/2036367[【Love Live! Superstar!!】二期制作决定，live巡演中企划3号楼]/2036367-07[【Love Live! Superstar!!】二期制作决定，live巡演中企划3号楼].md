@@ -9956,3 +9956,12 @@ R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的�
 也有一点点可能动画制作组并不知道加人。。。。。。。。总之企划sb</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">动画OP气球是9色，虽然在这之前被当成强行联系
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9910#       发表于 2022-6-13 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">后面如果变成12人了第一季又去找12证明是吧，牵强附会
+
