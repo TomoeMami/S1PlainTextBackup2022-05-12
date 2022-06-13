@@ -15274,3 +15274,20 @@ mysta周六B限……看来是一个月来一个人，好像比本社勤快(
 
 吉原彼岸花这品味就很不咋地【
 
+
+
+*****
+
+####  NBXX  
+##### 14982#       发表于 2022-6-14 00:42
+
+[https://www.moguravr.com/game-play-ai-vtuber/](https://www.moguravr.com/game-play-ai-vtuber/)
+
+コメントを拾いながらゲームをプレイする人工知能VTuber「じっきょロイド」の育成番組がスタート
+<img src="https://assets.moguravr.com/uploads/2022/06/202206131500328000.jpg" referrerpolicy="no-referrer">
+<img src="https://assets.moguravr.com/uploads/2022/06/202206131501886000.jpg" referrerpolicy="no-referrer">
+
+读取评论指示来完成直播的AI Vtuber。
+
+想起之前还有个NLP语言培养方面的Vtuber 紡ネン
+
