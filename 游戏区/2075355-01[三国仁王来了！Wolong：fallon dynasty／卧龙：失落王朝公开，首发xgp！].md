@@ -2874,3 +2874,24 @@ A：原创主角叫“龙”</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这官推怎么到现在都没发过一条推这么奇葩的
 
+
+
+*****
+
+####  龙骑士尹志平  
+##### 306#       发表于 2022-6-13 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251767&amp;ptid=2075355" target="_blank">刑部姬真可爱 发表于 2022-6-13 17:12</a>
+
+懂了，主角是陈辽，没人能通过我的剑围</blockquote>
+是徐荣，和吕布一伙，前期干黄巾，干曹孙，后在临潼即将战死，死前误入始皇陵，祖龙残存意识告诉徐荣中国历史每个朝代都要有龙，汉是苍龙（苍天），张角炼黄龙（黄天）妄图代汉，后双龙两败俱伤，同归于尽，为了结束乱世，需要找到真龙。 从始皇陵出来，徐荣想投奔老乡公孙度，路过真定，遇上赵云，后机缘巧合代替赵云身份跟公孙瓒，后跟刘备，结识卧龙，并告知卧龙历史真相，期间balabala，白帝城托孤，刘备看出孔明龙气，要孔明代汉，孔明不忍，鞠躬尽瘁，星落五丈原，卧龙升天，从晋至隋均无真龙守护，中华大地分崩离析，直到李二出现，李二找到凤代龙，王朝再次得到守护。系列第一部：卧龙：堕落王朝，第二部：龙灭：黑暗大地，第三部：涅槃：大地新生，前传：祖龙：历史起点。
+
+*****
+
+####  医生狼多  
+##### 307#         楼主| 发表于 2022-6-13 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56252634&amp;ptid=2075355" target="_blank">laoz 发表于 2022-6-13 18:10</a>
+这官推怎么到现在都没发过一条推这么奇葩的</blockquote>
+可能真是微软宣发限制期48小时?我早上睡醒后查kt的推一点动静都没……没想到现在还没进一步情报
+
