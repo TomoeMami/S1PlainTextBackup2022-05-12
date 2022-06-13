@@ -2797,3 +2797,35 @@ A：原创主角叫“龙”</blockquote>
 
 感觉这作最多做到官渡之战左右吧，从黄巾开始做到虎牢关有点短，做到赤壁又有点长了
 
+
+
+*****
+
+####  不见不散  
+##### 299#       发表于 2022-6-13 17:05
+
+啊，这个就是五百万大作吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  不见不散  
+##### 300#       发表于 2022-6-13 17:12
+
+光荣是蜀粉吗？我觉得蜀粉做不出那么恶心的晋剧情…
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  刑部姬真可爱  
+##### 301#       发表于 2022-6-13 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251315&amp;ptid=2075355" target="_blank">Kyo.C 发表于 2022-6-13 16:45</a>
+
+有没有可能，主角根本是站在吕布这一边？先讨伐黄巾，再面临十八路诸侯围攻，最后白门楼脱出未遂。吕布+貂 ...</blockquote>
+懂了，主角是陈辽，没人能通过我的剑围<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
