@@ -970,3 +970,25 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 很感兴趣，希望不要又是黑糊糊红彤彤的那种画面了
 
+
+
+*****
+
+####  edenpenn  
+##### 113#       发表于 2022-6-13 08:27
+
+性感<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jf8350143  
+##### 114#       发表于 2022-6-13 08:30
+
+村夫在黄巾之乱事情还是个小孩子，所以起个名字叫卧龙还挺奇怪的
+
+主角也只是个无名的士兵，唯一能想到的联系就是主角是水镜先生的徒弟，孔明的大师兄。
+
+但是就算这样也没必要把名字定成卧龙
+
