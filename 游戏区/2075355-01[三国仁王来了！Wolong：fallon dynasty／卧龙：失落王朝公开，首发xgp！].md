@@ -2193,3 +2193,21 @@ KT是日企，没有那么多禁区
 
 说起xgp我就头疼，那天看忍龙3入库了，想下下不成，倒是荣耀战魂因为是育碧平台所以能下，服了
 
+
+
+*****
+
+####  minysun  
+##### 241#       发表于 2022-6-13 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245637&amp;ptid=2075355" target="_blank">seedees3 发表于 2022-6-13 10:17</a>
+看这热度，国区百万销量稳了</blockquote>
+中国人那么精明有xgp pgp白嫖真买断的人数不会很多的，不过帮微软拉个几万新订阅用户应该还是挺稳的
+
+*****
+
+####  tengshuo980  
+##### 242#       发表于 2022-6-13 12:22
+
+感觉不一定是一口气做完三国主线，可能这作剧情做到赤壁之战就挺合适的
+
