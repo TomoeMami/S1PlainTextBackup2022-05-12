@@ -2349,3 +2349,50 @@ PV里这个腐龙肯定是伪货了，
 
 真龙应该是标题、以及主角爆气后眼睛里的圆环龙，两者基本一致
 
+
+
+*****
+
+####  黑修士  
+##### 256#       发表于 2022-6-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248310&amp;ptid=2075355" target="_blank">wzh5555 发表于 2022-6-13 13:00</a>
+
+看别人的转的文字介绍里还提到，战斗系统有5个段位，可能是不用上中下，改用对马岛类的了 ...</blockquote>
+确实，再用剑道的上中下段构就不合适了。另外武器种类可能会比想象中的少。
+
+本作は魔物がばっこする後漢時代のダークファンタジーで、名もなき民兵が生き残りをかけて戦うストーリーが描かれる。プレイヤーは、中国武術に基づいた剣術で凶暴な生物や敵兵を退けながら、内なる真の力を目覚めさせ、困難に打ち勝とうとしている。
+
+*****
+
+####  barry.allen  
+##### 257#       发表于 2022-6-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248252&amp;ptid=2075355" target="_blank">afer 发表于 2022-6-13 12:56</a>
+
+这都不用说华人了，IGN尼玛就没个亚洲编辑么？</blockquote>
+这直接抄的IGN油土鳖频道说明，油土鳖的错误标识已经改回去了
+
+*****
+
+####  hypnossz86  
+##### 258#       发表于 2022-6-13 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说标识里面的windows怎么理解...不是steam或者epic，只在微软商店？
+
+*****
+
+####  老黑305  
+##### 259#       发表于 2022-6-13 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">期待忍龙组会整出怎样炫酷的“武术”招式
+
+*****
+
+####  宵神乐  
+##### 260#       发表于 2022-6-13 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248429&amp;ptid=2075355" target="_blank">hypnossz86 发表于 2022-6-13 13:09</a>
+话说标识里面的windows怎么理解...不是steam或者epic，只在微软商店？</blockquote>
+不用想应该是全平台ns独不占
+
