@@ -2540,3 +2540,15 @@ A：还在家里卧着呢
 
 这代主角是不是能跳了？
 
+
+
+*****
+
+####  悲叹的夜想曲  
+##### 274#       发表于 2022-6-13 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56249126&amp;ptid=2075355" target="_blank">不会武术 发表于 2022-6-13 14:10</a>
+
+历史虚无主义，可别把steam xbox商店 psn打包全强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">历史虚无主义这棒子还是收收吧，本身就是虚构的，一不是史，二不输出观点。照这样说市面上所有的三国题材的小说都可以拿去烧了
+

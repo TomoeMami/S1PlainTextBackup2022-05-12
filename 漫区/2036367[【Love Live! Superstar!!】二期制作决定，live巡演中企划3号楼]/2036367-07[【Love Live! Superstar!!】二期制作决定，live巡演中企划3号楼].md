@@ -9976,3 +9976,18 @@ R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的�
 
 反正一期OP说我觉得站不住脚。
 
+
+
+*****
+
+####  D麦林  
+##### 9912#       发表于 2022-6-13 14:59
+
+关键是花田知不知道要加人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+一期好多安排有点带货任务的感觉 总有大人的事情影响了制作的感觉
+
+总不能上头给花田塞CD带货任务但就不告诉他其实之后还要加人吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+还是说他知道但是上头严令禁止他提前透露
+
