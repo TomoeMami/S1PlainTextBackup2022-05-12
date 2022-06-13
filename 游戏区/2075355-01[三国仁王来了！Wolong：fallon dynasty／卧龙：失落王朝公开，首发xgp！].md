@@ -1162,3 +1162,38 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 —— 来自 Xiaomi 22021211RC, Andro ...</blockquote>
 pv最后不就是虎牢关吕布
 
+
+
+*****
+
+####  医生狼多  
+##### 134#         楼主| 发表于 2022-6-13 09:36
+
+重看了下播片，可惜吕布不是屁股下巴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 135#         楼主| 发表于 2022-6-13 09:37
+
+b站有传4k的【IGN】《卧龙：堕落王朝》公布预告
+[https://www.bilibili.com/video/BV1Gv4y1G7b7](https://www.bilibili.com/video/BV1Gv4y1G7b7)
+
+*****
+
+####  shimotsuki14  
+##### 136#       发表于 2022-6-13 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243959&amp;ptid=2075355" target="_blank">冷泉夜月 发表于 2022-6-13 08:03</a>
+这IGN也太草台了吧？</blockquote>
+不是第一天了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥F特  
+##### 137#       发表于 2022-6-13 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244926&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 09:32</a>
+真敢把丞相做成boss怕不是乳化帽子戴断脖子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曹魏视角 尤其司马懿 确实能当boss吧 
+
