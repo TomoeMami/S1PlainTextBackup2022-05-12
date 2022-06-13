@@ -940,3 +940,12 @@ bio4re就是挂羊头卖狗肉，本质是3.5借尸还魂吧</blockquote>
 
 我tm谢谢你，卡表<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ultraseven  
+##### 121#       发表于 2022-6-14 07:47
+
+果然会免送的生化7升级不了ps5版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
