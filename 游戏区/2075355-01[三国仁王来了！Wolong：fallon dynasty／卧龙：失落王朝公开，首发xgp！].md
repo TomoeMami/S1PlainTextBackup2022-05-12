@@ -2396,3 +2396,27 @@ PV里这个腐龙肯定是伪货了，
 话说标识里面的windows怎么理解...不是steam或者epic，只在微软商店？</blockquote>
 不用想应该是全平台ns独不占
 
+
+
+*****
+
+####  74235zzz  
+##### 261#       发表于 2022-6-13 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56242931&amp;ptid=2075355" target="_blank">Cloudslin 发表于 2022-6-13 02:46</a>
+感兴趣，但求求别整仁王那种黑咕隆咚的地图了。</blockquote>
+这组就这样了，ff起源那游戏有的地图比仁王还黑
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  巴特爱素子  
+##### 262#       发表于 2022-6-13 13:22
+
+<blockquote>黑修士 发表于 2022-6-13 12:56
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较 ...</blockquote>
+参考光荣的其他三国作品，法术可以改改曹操传的用，威名系统里有侠客、贼王、暗杀者，忍术可以改成暗杀术。
+
