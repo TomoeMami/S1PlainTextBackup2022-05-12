@@ -745,3 +745,16 @@ p5或者说p系列全进了xgp，我个人立场这和判了sie（至少ps5）�
 开发游戏还得迎合他们的装机量？ ...</blockquote>
 日本是游戏行业的超级大国，纽时说的
 
+
+
+*****
+
+####  liekong  
+##### 75#       发表于 2022-6-13 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56244905&amp;ptid=2075362" target="_blank">asuss 发表于 2022-6-13 09:31</a>
+等等，这是说XBOX要寄了吗？</blockquote>
+没错，某个红色的笑到最后
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

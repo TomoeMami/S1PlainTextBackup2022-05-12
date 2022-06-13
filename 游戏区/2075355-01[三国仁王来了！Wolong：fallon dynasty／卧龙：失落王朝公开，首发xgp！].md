@@ -1936,3 +1936,67 @@ KT是日企，没有那么多禁区
 
 激动的跳起来了
 
+
+
+*****
+
+####  关二爷  
+##### 216#       发表于 2022-6-13 11:22
+
+买爆！
+
+*****
+
+####  jf8350143  
+##### 217#       发表于 2022-6-13 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黄巾之乱的话直接弄到18路讨董卓，董胖当boss正好
+
+真要时间线做的很后的话，boss当然是背锅王曹老板来了
+
+真要让孔明变boss 也会编一个理由的，比如曹操传里就是替刘备挡刀把本来要附身刘备的邪恶吸到自己身上
+
+*****
+
+####  关二爷  
+##### 218#       发表于 2022-6-13 11:23
+
+丞相本来不就是会法术
+
+*****
+
+####  黑修士  
+##### 219#       发表于 2022-6-13 11:25
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢
+
+<img src="https://img.saraba1st.com/forum/202206/13/112435p8pcc30klw813pp3.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (25.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-13 11:24 上传
+
+*****
+
+####  jf8350143  
+##### 220#       发表于 2022-6-13 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246734&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 11:20</a>
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕 ...</blockquote>
+但是龙出现的时候是董卓火烧洛阳，那会孔明还是个小屁孩呢
+
+从仁王来看不像是会对历史做这种程度的魔改
+
+*****
+
+####  洛克萨斯  
+##### 221#       发表于 2022-6-13 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246687&amp;ptid=2075355" target="_blank">巴特爱素子 发表于 2022-6-13 11:17</a>
+
+第一个高潮怕不就是虎牢关</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太短了，黄巾到虎牢关，而且诸侯联军很多摸鱼的，真正出力还是孙坚和曹操（被暴打）
+
