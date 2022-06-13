@@ -9944,3 +9944,15 @@ CelticWhite
 R3那边雪藏得更久</blockquote>
 R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的，你不信他and more是另一回事啊，和星这个一开始拿5人宣传的完全不一样
 
+
+
+*****
+
+####  星降る森  
+##### 9909#       发表于 2022-6-13 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56234426&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-12 19:07</a>
+
+也有一点点可能动画制作组并不知道加人。。。。。。。。总之企划sb</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">动画OP气球是9色，虽然在这之前被当成强行联系
+
