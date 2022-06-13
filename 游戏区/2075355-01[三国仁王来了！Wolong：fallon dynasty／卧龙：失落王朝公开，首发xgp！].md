@@ -2767,3 +2767,24 @@ A：原创主角叫“龙”</blockquote>
 
 一个个都骂仁王，那这个急速换皮+中国特色+首发XGP的估计更敷衍离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kyo.C  
+##### 296#       发表于 2022-6-13 16:45
+
+有没有可能，主角根本是站在吕布这一边？先讨伐黄巾，再面临十八路诸侯围攻，最后白门楼脱出未遂。吕布+貂蝉殒命白门楼，托付给主角后事。
+
+*****
+
+####  廖化  
+##### 297#       发表于 2022-6-13 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250648&amp;ptid=2075355" target="_blank">内鬼来干我呀 发表于 2022-6-13 16:00</a>
+
+现在大家都在猜
+
+但是日本那边还没公布任何消息</blockquote>
+去推上看了一眼，光荣官号连视频都没有，置顶还是火纹无双<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
