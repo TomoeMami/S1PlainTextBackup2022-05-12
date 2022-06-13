@@ -2954,3 +2954,46 @@ A：原创主角叫“龙”</blockquote>
 
 根据分析最少有4到5种武器<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武神吕布  
+##### 314#       发表于 2022-6-13 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56251980&amp;ptid=2075355" target="_blank">关二爷 发表于 2022-6-13 17:25</a>
+
+感觉日本对三国的认知比大陆晚10年
+
+所以光荣现在对三国的认知大约是易中天横行的年代 ...</blockquote>
+说明你压根不玩暗耻的三国游戏。
+
+最新的三国志14，金色个性蜀国自己占了半壁江山。
+
+暗耻自己的手游三国志霸道，最顶级的卡接近一半都是蜀国的。
+
+暗耻只不过不像国内那么多脑残蜀粉一样二极管，吹蜀就得踩别人。暗耻是大家都牛只不过蜀最牛。
+
+*****
+
+####  龙骑士甄志丙  
+##### 315#       发表于 2022-6-13 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56253215&amp;ptid=2075355" target="_blank">dragrass 发表于 2022-6-13 18:59</a>
+
+其实一直挺期待kt美工做个建模严肃点的三国游戏的
+
+但是b站评论区怎么开始反思了</blockquote>
+这就是新世代.jpg
+
+反过来也证明koei拉胯久了，没情怀了
+
+*****
+
+####  ts1abaras  
+##### 316#       发表于 2022-6-13 19:07
+
+山际真晃在血源诅咒中主要做什么的？
+
+—— 来自 Xiaomi MI 8 SE, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
