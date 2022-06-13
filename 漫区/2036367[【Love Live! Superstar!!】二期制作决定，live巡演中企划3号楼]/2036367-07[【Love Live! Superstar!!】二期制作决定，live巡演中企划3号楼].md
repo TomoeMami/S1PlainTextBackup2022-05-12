@@ -10228,3 +10228,12 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奇怪，一群人生怕他们日本爹不知道呢
 
+
+
+*****
+
+####  lj205  
+##### 9929#       发表于 2022-6-13 22:38
+
+鲤鱼发百年庆祝还有918在那边都掀不起风浪，就这算得了啥
+
