@@ -2856,3 +2856,12 @@ A：原创主角叫“龙”</blockquote>
 
 所以光荣现在对三国的认知大约是易中天横行的年代
 
+
+
+*****
+
+####  医生狼多  
+##### 304#         楼主| 发表于 2022-6-13 18:00
+
+<img src="https://p.sda1.dev/6/9ee9939ba00f40fdf43f945f73e5d024/CMP_20220613175942289.jpg" referrerpolicy="no-referrer">
+
