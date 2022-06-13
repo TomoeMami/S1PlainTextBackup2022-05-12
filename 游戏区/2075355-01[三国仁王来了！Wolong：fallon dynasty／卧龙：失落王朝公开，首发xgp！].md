@@ -2574,3 +2574,22 @@ A：原创主角叫“龙”</blockquote>
 
 求求kt做的亮一点，对玩家的眼睛好一点
 
+
+
+*****
+
+####  Booorunestud  
+##### 277#       发表于 2022-6-13 15:47
+
+既然这么多聊火凤的，那就从黄巾乱做到白门楼吕布死挺好，不然三国前半没有哪个可以安心收尾的节点了
+
+*****
+
+####  415452356  
+##### 278#       发表于 2022-6-13 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56249610&amp;ptid=2075355" target="_blank">TTAA 发表于 2022-6-13 14:51</a>
+
+这代主角是不是能跳了？</blockquote>
+  怕不是pv动起来猛如虎还能踩头跳，实际游戏还是那样
+
