@@ -1128,3 +1128,37 @@ pv里面说主角有长生不老药，怀疑不是字面意思，而是指主角
 
 惊了，没想到真来了
 
+
+
+*****
+
+####  小米稀饭-  
+##### 130#       发表于 2022-6-13 09:28
+
+所以主角是皇室后裔么，灭黄巾、讨董卓、杀曹贼，中兴东汉王朝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 131#       发表于 2022-6-13 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么打击感要往血源靠啊，忍者组当然要努力往大哥的名作靠啊，重振大哥昔日荣光还得看小小弟！
+
+*****
+
+####  ネコカイザー  
+##### 132#       发表于 2022-6-13 09:32
+
+真敢把丞相做成boss怕不是乳化帽子戴断脖子 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kanpachi  
+##### 133#       发表于 2022-6-13 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243273&amp;ptid=2075355" target="_blank">有点追求 发表于 2022-6-13 03:26</a>
+卧龙三国能做到虎牢关这个前期的高潮桥段吗？不过这开发速度有点快啊
+
+—— 来自 Xiaomi 22021211RC, Andro ...</blockquote>
+pv最后不就是虎牢关吕布
+
