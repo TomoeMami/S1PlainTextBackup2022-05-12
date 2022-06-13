@@ -701,3 +701,25 @@ ns跑个新作都只能到540p 反正现在都上pc了我想玩掌机版为啥�
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  山岚夜雨  
+##### 71#       发表于 2022-6-13 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245544&amp;ptid=2075362" target="_blank">宵神乐 发表于 2022-6-13 10:12</a>
+不知道天天为日本市场干啥，就那弹丸之地
+开发游戏还得迎合他们的装机量？ ...</blockquote>
+谁让日本有很多好的游戏公司呢，那些公司肯定要考虑国内的销量啊，真正的走向国际的还是少数
+
+*****
+
+####  日日日日日野  
+##### 72#       发表于 2022-6-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56243364&amp;ptid=2075362" target="_blank">SergeGlenn 发表于 2022-6-13 03:45</a>
+
+我在外网还真没看出来这种氛围，泥潭倒是。。。</blockquote>
+废话，一个守望先锋2，一个暗黑4，这两个都是重点介绍，NGA不兴奋才怪
+
