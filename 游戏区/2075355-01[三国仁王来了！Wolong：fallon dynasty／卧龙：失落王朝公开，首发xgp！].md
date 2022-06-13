@@ -2638,3 +2638,30 @@ A：原创主角叫“龙”</blockquote>
 
 希望这作的地图设计能好点
 
+
+
+*****
+
+####  andychen  
+##### 284#       发表于 2022-6-13 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250648&amp;ptid=2075355" target="_blank">内鬼来干我呀 发表于 2022-6-13 16:00</a>
+现在大家都在猜
+
+但是日本那边还没公布任何消息</blockquote>
+多半被微软买断了全球宣发，和之前仁王1一样
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  andychen  
+##### 285#       发表于 2022-6-13 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56249126&amp;ptid=2075355" target="_blank">不会武术 发表于 2022-6-13 14:10</a>
+历史虚无主义，可别把steam xbox商店 psn打包全强了</blockquote>
+三国无双的胡逼剧本那么多也没见出啥事
+卧龙直接是架空世界了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
