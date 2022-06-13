@@ -15190,3 +15190,12 @@ mysta周六B限……看来是一个月来一个人，好像比本社勤快(
 
 虽然我郡今年大病不断，但对比过去的生日总觉得今年的郡很从容，希望活久一点<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gaiadc  
+##### 14973#       发表于 2022-6-13 23:30
+
+莎皇这读空气直播，效果完全不行啊，三马鹿直播这游戏可是相当有意思的
+

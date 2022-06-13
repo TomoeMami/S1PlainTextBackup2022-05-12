@@ -3282,3 +3282,29 @@ DLC会像仁王2那样去其它朝代吗？想想就硬了<img src="https://stat
 
 诸葛村夫年轻在外闯荡时被打残废功的故事，结局时接上皇叔来接村夫
 
+
+
+*****
+
+####  匿名用户  
+##### 343#       发表于 2022-6-13 23:26
+
+仔细看了下官方文档中提到的 game feature，感觉系统和仁王相比说不定差别还挺大的。
+
+<strong>Overcome adversity through unique new strategies, including battle styles based on the “Five Phases.”</strong>
+
+Five Phases 可能是指“五行”，也许是合并忍术和阴阳术后的东西。
+
+<strong>the Chinese martial arts gracefully change pace as they shift between offensive and defensive maneuvers.</strong>
+
+官方文档中两次提到了 Chinese martial arts，我看国内媒体现在暂译为“武术”。
+
+也许这个就替代了仁王中的“上、中、下”段，而变为了后面接着描述的“攻势、守势”？
+
+*****
+
+####  415452356  
+##### 344#       发表于 2022-6-13 23:26
+
+  这次袁绍的形象应该不会又是三句不离名族吧，仁王2的今川当时第一眼还是很惊艳的，一股邪气
+
