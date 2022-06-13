@@ -10064,3 +10064,12 @@ R3严格来说不能算藏，毕竟虹还叫PDP的时候就告诉你and more的�
 昨天的FMT新4人说的第一次见面是一年前最终选拔，大概率从一开始就决定分批加人。按时间推断的话一年前这个时候剧本肯定写好制作了一部份，然后裂广播里Nagi说没跟二期生有多少交流，大概就是只知道有这件事，别的都不清楚。
 不过事情都落地成盒再猜也没用，知道运营喜欢pua粉丝就够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 9918#       发表于 2022-6-13 16:39
+
+今天看了两个FMT的切片之后居然起了去补全片的心思，我有罪<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

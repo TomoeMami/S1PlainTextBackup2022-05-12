@@ -2756,3 +2756,14 @@ A：原创主角叫“龙”</blockquote>
 这会打不打姓隼的了？</blockquote>
 来自邪马台的神秘武者，真正意义上的隼人<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  封面杀手  
+##### 295#       发表于 2022-6-13 16:34
+
+ 本帖最后由 封面杀手 于 2022-6-13 16:37 编辑 
+
+一个个都骂仁王，那这个急速换皮+中国特色+首发XGP的估计更敷衍离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
