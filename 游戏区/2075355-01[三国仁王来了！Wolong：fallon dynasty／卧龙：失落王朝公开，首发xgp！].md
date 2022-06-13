@@ -2736,3 +2736,23 @@ A：原创主角叫“龙”</blockquote>
 
 而且英文版很多意思很奇怪
 
+
+
+*****
+
+####  nage560  
+##### 293#       发表于 2022-6-13 16:23
+
+这开发效率无敌了，看来以后当无双那样做了。以后会有封神仁王，西游仁王，水浒仁王吗？
+
+*****
+
+####  毛利提督  
+##### 294#       发表于 2022-6-13 16:26
+
+ 本帖最后由 毛利提督 于 2022-6-13 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56250668&amp;ptid=2075355" target="_blank">碎镜子 发表于 2022-6-13 16:01</a>
+
+这会打不打姓隼的了？</blockquote>
+来自邪马台的神秘武者，真正意义上的隼人<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
