@@ -2046,3 +2046,86 @@ KT是日企，没有那么多禁区
 
 我觉得国内肯定有团队在做三国的魂like，这下翻大车了
 
+
+
+*****
+
+####  绚烂航迹云  
+##### 227#       发表于 2022-6-13 11:43
+
+<blockquote>引用第218楼黑修士于2022-06-13 11:25发表的  :
+
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+是的，三国的卧龙！没错，就是我：陆毅
+
+<img src="https://lh3.googleusercontent.com/proxy/ND-2xqAzPMePTgiFu25N4vL00ZOJt4RAqZoBkv-aCedDAzEZQHZRWsjotEfI__EzdeZULMx4Xxe1dCCip1Llbc-C9g9E3LQlMCHyoMCQ5KySydIa" id="aimg_nGF46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  otaku21126  
+##### 228#       发表于 2022-6-13 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246851&amp;ptid=2075355" target="_blank">jf8350143 发表于 2022-6-13 11:25</a>
+但是龙出现的时候是董卓火烧洛阳，那会孔明还是个小屁孩呢
+
+从仁王来看不像是会对历史做这种程度的魔改 ...</blockquote>
+西军为打关原勾结境外势力，战神为苍生着想从柔弱之人状态振作起来坚定意志反戈一击、淀殿为守大阪不惜将浪人改造成妖鬼、秀赖是个灵石人根本不存在，这还不够颠覆吗？
+
+顺便刚才想了一下，其实让张角魔化，也可能触发外国人人生三件事。现在不比从前了，现在的三件事划线非常宽泛，张角是农民起义性质，其人体恤民情，划线切入角度非常多。
+
+*****
+
+####  医生狼多  
+##### 229#         楼主| 发表于 2022-6-13 11:49
+
+唯一有龙是火烧洛阳那里吧，可能是指汉室
+
+*****
+
+####  天邪鬼  
+##### 230#       发表于 2022-6-13 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247109&amp;ptid=2075355" target="_blank">ネコカイザー 发表于 2022-6-13 11:40</a>
+我想到一个有趣的事情 
+
+我觉得国内肯定有团队在做三国的魂like，这下翻大车了 ...</blockquote>
+那不该高兴吗？可以搞碰瓷营销了
+“小日本的魂味三国谁玩？有国产魂味三国不玩玩日本产的？你汉奸吧！”
+反正小粉红大概率不玩这些游戏，能骗一个是一个
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  廖化  
+##### 231#       发表于 2022-6-13 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246734&amp;ptid=2075355" target="_blank">otaku21126 发表于 2022-6-13 11:20</a>
+
+先往最危险的方向推测一下，宣传绘已经表明，龙是腐化的妖怪，所以不排除诸葛亮是被腐化龙附身引起战乱的幕 ...</blockquote>
+泻药，有色到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+钱给你赶快做！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 232#       发表于 2022-6-13 11:52
+
+和同一个发布会的永劫无间一比，我觉得卧龙还是没那么土的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sissii  
+##### 233#       发表于 2022-6-13 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56246835&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 11:25</a>
+按惯例...那么《卧龙》会请哪些个演员来当脸模呢</blockquote>
+金城武!金城武!
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

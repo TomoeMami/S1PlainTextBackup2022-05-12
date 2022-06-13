@@ -758,3 +758,14 @@ p5或者说p系列全进了xgp，我个人立场这和判了sie（至少ps5）�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ——啧  
+##### 76#       发表于 2022-6-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56245372&amp;ptid=2075362" target="_blank">leafS 发表于 2022-6-13 10:03</a>
+要拉拢日本玩家我觉得把APEX加入XGP然后限定独占内容更有戏</blockquote>
+快进到巨硬收购EA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
