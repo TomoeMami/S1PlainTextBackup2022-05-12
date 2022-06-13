@@ -2282,3 +2282,70 @@ KT是日企，没有那么多禁区
 
 又例如仁王2大岳丸可能是扶余东渡民，那么主角和扶余或东渡民这些可以扯上点关系。
 
+
+
+*****
+
+####  afer  
+##### 250#       发表于 2022-6-13 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这都不用说华人了，IGN尼玛就没个亚洲编辑么？
+<img src="https://p.sda1.dev/6/c5c6c15f0948eca19bc385acc94181ba/4532d41d9cea8dac.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑修士  
+##### 251#       发表于 2022-6-13 12:56
+
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较大差异。
+
+目前剑、枪可以确定，黄巾力士的重武器（狼牙锤？）应该也是可以掉落的。但像锁镰之类的可能不会出现了。
+
+技能树方面，忍术阴阳多半也会换不少。
+
+*****
+
+####  afer  
+##### 252#       发表于 2022-6-13 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56247076&amp;ptid=2075355" target="_blank">orcher1945 发表于 2022-6-13 11:38</a>
+黄巾之乱爆发的时候诸葛亮才3岁，肯定不是诸葛亮，有可能孔明是个中后期重要角色。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">然而问题题目叫卧龙
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzh5555  
+##### 253#       发表于 2022-6-13 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248255&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-13 12:56</a>
+
+从PV来看会有爆（bian）种（shen）系统。99武器2.0？
+
+守护灵系统应该会保留，但武器种类可能和仁王系列有较 ...</blockquote>
+看别人的转的文字介绍里还提到，战斗系统有5个段位，可能是不用上中下，改用对马岛类的了
+
+*****
+
+####  bm7号  
+##### 254#       发表于 2022-6-13 13:00
+
+这龙看着像从隔壁蓝反T穿越过来的，尾巴朝前一副龙蝇的样子。
+
+*****
+
+####  wzh5555  
+##### 255#       发表于 2022-6-13 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56248311&amp;ptid=2075355" target="_blank">bm7号 发表于 2022-6-13 13:00</a>
+
+这龙看着像从隔壁蓝反T穿越过来的，尾巴朝前一副龙蝇的样子。</blockquote>
+PV里这个腐龙肯定是伪货了，
+
+真龙应该是标题、以及主角爆气后眼睛里的圆环龙，两者基本一致
+
