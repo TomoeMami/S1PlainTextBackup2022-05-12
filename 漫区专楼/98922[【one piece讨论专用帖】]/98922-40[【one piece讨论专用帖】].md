@@ -779,3 +779,15 @@ image.png
 和之国也只是设定强行打不进而已，根本禁不起任何推敲，说空军太少打不进空岛还好理解，和之国不就有个瀑布 ...</blockquote>
 因为那个瀑布，被小马哥一人就灭了整个大妈海贼团
 
+
+
+*****
+
+####  blckfyre  
+##### 58568#       发表于 2022-6-15 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56270425&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2022-6-14 23:44</a>
+
+也不是这样说。先不说凯多就在和之国蹲了好多年，就说和之国本身一堆人可以砍趴老沙的。赤鞘九侠能成长起 ...</blockquote>
+那汤姆直接把设计图给有既懂古代文字又有冥王的御田保管不就好了
+
