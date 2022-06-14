@@ -15842,3 +15842,16 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 飞哥强化了也还是没法上岗啊，白值硬伤在那儿而且五星剑内卷的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88362#       发表于 2022-6-14 08:08
+
+看他们热火朝天的批判菌鸽鸽
+返回去爬了下去年的楼
+
+他们怎么就非要跟绿过不去，这水平还不如去年
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
