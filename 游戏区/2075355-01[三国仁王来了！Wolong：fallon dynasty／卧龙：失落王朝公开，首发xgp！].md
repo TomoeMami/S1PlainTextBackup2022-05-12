@@ -3333,3 +3333,33 @@ Five Phases 可能是指“五行”，也许是合并忍术和阴阳术后的�
 
 差不多该明白自己是老东西了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天邪鬼  
+##### 347#       发表于 2022-6-14 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56256252&amp;ptid=2075355" target="_blank">匿名用户 发表于 2022-6-13 23:26</a>
+仔细看了下官方文档中提到的 game feature，感觉系统和仁王相比说不定差别还挺大的。
+
+Overcome adversity  ...</blockquote>
+怎么看着真成只狼了？五行可以说是忍义手道具
+至于攻式守式，说不定就是挡反
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天邪鬼  
+##### 348#       发表于 2022-6-14 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56256252&amp;ptid=2075355" target="_blank">匿名用户 发表于 2022-6-13 23:26</a>
+仔细看了下官方文档中提到的 game feature，感觉系统和仁王相比说不定差别还挺大的。
+
+Overcome adversity  ...</blockquote>
+怎么看着真成只狼了？五行可以说是忍义手道具
+至于攻式守式，说不定就是挡反
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
