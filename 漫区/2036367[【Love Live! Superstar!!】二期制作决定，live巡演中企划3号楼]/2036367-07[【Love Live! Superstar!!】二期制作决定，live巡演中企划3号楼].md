@@ -10390,3 +10390,29 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 你这有七情六欲的凡人的当然比不过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 ←这个逻辑吧大概
 
+
+
+*****
+
+####  愛さ実  
+##### 9945#       发表于 2022-6-14 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56258846&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-14 09:27</a>
+每天看着拉板吹鱼和拉厕的温度差真有一种极度的荒诞感
+
+拉板那边都吹上天了，拉厕最近简直可以改名李 ...</blockquote>
+拉厕是哪？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  靡宜  
+##### 9946#       发表于 2022-6-14 10:32
+
+<blockquote>愛さ実 发表于 2022-6-14 10:27
+拉厕是哪？
+
+—— 来自 S1Fun</blockquote>
+女厕吧，最近特别多
+
