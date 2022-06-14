@@ -15398,3 +15398,19 @@ boss再多打一会就十万了，简单难度全责<img src="https://static.sar
 
 这最终Boss毫无观赏性，就突突突完事了？这波卡婊全责没问题！
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14993#       发表于 2022-6-14 23:45
+
+<blockquote>本当に男だったら良かったのに</blockquote>
+[https://files.catbox.moe/o83or4.mp4](https://files.catbox.moe/o83or4.mp4)
+
+Masae姐贵（yugo）饮酒配信喝了20杯伏特加后崩溃撕皮...同期和同事在discord狂弹消息，甚至数次进配信让她停止喝酒结束配信
+
+你虹当初但凡阻拦一下，给安排个安洁那种风格的女v皮，或者走小绿路线
+
+按照现在en虹女粉反捧女v的操作早起飞了，至于憋屈成这样
+
