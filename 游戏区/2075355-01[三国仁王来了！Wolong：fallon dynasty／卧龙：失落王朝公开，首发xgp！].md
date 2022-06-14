@@ -3372,3 +3372,14 @@ Overcome adversity  ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来到时候肯定又有人要吐槽一遍说三国那些万人大战被做成了村长打架
 
+
+
+*****
+
+####  ieahgiergn  
+##### 350#       发表于 2022-6-14 12:52
+
+<blockquote>izayoi39 发表于 2022-6-13 17:03
+感觉这作最多做到官渡之战左右吧，从黄巾开始做到虎牢关有点短，做到赤壁又有点长了 ...</blockquote>
+像楼上说的，做到吕布白门楼殒命，官渡之前，挺好；然后留待续作
+
