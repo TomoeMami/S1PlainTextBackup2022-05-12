@@ -10562,3 +10562,21 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 薮岛20年进的im ，有活肯定能接的，无非疫情新人cv确实比较难。颜值这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说老五人平均值太高了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9957#       发表于 2022-6-14 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56261856&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-14 12:39</a>
+
+薮岛20年进的im ，有活肯定能接的，无非疫情新人cv确实比较难。颜值这种只能说老五人平均值太高了 ...</blockquote>
+说起CV，之前在微博上看到有人介绍长崎行男（星一期动画的音响监督）的一本新书
+
+埋もれない声優になる!
+
+按博主的介绍好像疫情下新人声优不好过啊
+
+有兴趣的坛友可以去读读原书，我自己还远不能阅读全日语的原书，就没去看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
