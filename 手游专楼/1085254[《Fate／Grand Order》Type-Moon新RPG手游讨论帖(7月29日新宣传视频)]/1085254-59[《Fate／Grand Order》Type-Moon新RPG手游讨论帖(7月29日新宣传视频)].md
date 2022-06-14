@@ -15896,3 +15896,14 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 再配个大象pu，无敌了
 
+
+
+*****
+
+####  exiaexa  
+##### 88367#       发表于 2022-6-14 17:47
+
+那么问题来了，大象要怎么强化才能用
+我甚至怀疑大部分人都记不住大象的技能
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

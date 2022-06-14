@@ -10804,3 +10804,16 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 这方面有点羡慕飞狗，女武神除了junna是职业歌手，其她四人的配音工作都不少也都solo出道<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 9978#       发表于 2022-6-14 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56266152&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-14 17:34</a>
+水和星这批声优更想偶像，跟企划绑定得太紧企划以外的配音工作不会太多（也有大环境下女性声优人数增加的原 ...</blockquote>
+挨打桑和爱奈是比较多的，杏树好像是手游舞台剧多
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
