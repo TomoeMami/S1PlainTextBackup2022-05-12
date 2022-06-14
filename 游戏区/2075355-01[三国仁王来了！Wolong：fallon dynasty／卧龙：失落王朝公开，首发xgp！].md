@@ -3732,3 +3732,30 @@ http://t.cn/A6aviyPF
 —— 来自 OnePlus KB2005, Android 12 ...</blockquote>
 有没有续作应该主要看销量如何
 
+
+
+*****
+
+####  土路生優里  
+##### 380#       发表于 2022-6-15 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271113&amp;ptid=2075355" target="_blank">Rary 发表于 2022-6-15 01:20</a>
+有没有续作应该主要看销量如何</blockquote>
+这倒是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainsheep  
+##### 381#       发表于 2022-6-15 01:22
+
+【【IGN独家】《卧龙：苍天陨落》开发者专访-哔哩哔哩】 https://b23.tv/7GaCcMF
+
+*****
+
+####  popchong  
+##### 382#       发表于 2022-6-15 01:32
+
+可以跳，可以捏人，有可以自由探索的小箱庭，故事聚焦三国前期。
+
