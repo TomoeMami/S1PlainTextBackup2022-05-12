@@ -699,3 +699,23 @@ image.png
 
 喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，冥王本体就在和之国那老沙世界政府汤姆师傅连带着弗兰奇这帮找设计图不成小丑了。
 
+
+
+*****
+
+####  Cranberries  
+##### 58559#       发表于 2022-6-14 21:56
+
+巴基是漫画里面很常见的欧皇角色，jo7波克洛克也是一路欧到尾。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cranberries  
+##### 58560#       发表于 2022-6-14 21:57
+
+黑胡子-五黄
+
+红发-巴基
+
+一对是追梦狂魔，一对是欢喜冤家。
+

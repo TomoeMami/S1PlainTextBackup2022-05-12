@@ -10912,3 +10912,37 @@ nako这个明显是holy pig不给力了 没资源只能靠拼试音 现在星又
 
 双N广播又背刺打铁身高了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9988#       发表于 2022-6-14 22:00
+
+听译：浅野凛-
+
+裂啦日记#68回
+
+sayu平常排练时常用的大背包上的小包拉链坏了，就算拉上拉链下面也会开个洞。
+
+被pay宝吐槽“确实经常开着呢w。”，被nako吐槽“之前Liella广播也你也说过鞋子破过洞吧，开的洞也太多了吧你（关西腔）。”
+
+在广播节目收录当天的早晨，sayu跑着的时候听到“嘣！”的一声，回头看发现是自己的水掉出来了w。
+
+虽然想换，但因为这个包是高一时候就在用了，还能装很多东西，而且去LL试镜时也背了这个包，充满了回忆所以很爱惜也舍不得换新的。
+
+被nako建议这个包就放家里，因为是黑色的包，nako还建议往上装些装饰放家里就好看了。
+
+sayu也被酱nagi吐槽过“你这包寿终正寝了，麻溜滴换个新的！”（请脑补nagi的口气）
+
+经过今天的日记环节，sayu决定要不辛苦钱包，换个新包了。之后被新视觉图的香音所感染，新包想换成白色的w。
+
+BE4A0647-92FF-4B60-A610-7B83FCADA245.jpeg
+(244.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-14 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/220102sp44h4h4x0rfzz4o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
