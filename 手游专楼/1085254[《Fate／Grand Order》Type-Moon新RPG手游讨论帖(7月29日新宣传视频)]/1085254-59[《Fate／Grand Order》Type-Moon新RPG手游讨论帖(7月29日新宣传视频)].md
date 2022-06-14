@@ -15939,3 +15939,12 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">50群冲直接变强
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88371#       发表于 2022-6-14 22:09
+
+确实，多给我方散（充）财（能）的话强度就一下子上来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
