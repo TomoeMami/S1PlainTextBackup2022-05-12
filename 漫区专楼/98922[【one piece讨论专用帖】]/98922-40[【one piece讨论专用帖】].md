@@ -227,3 +227,25 @@ PS.教私塾的蛇首女妖怎么没的我也忘了，果然和之国太长了
 
 和之国也只是设定强行打不进而已，根本禁不起任何推敲，说空军太少打不进空岛还好理解，和之国不就有个瀑布嘛，和之国这一章的人物剧情细想都不行，尾田为了强行吹自己的武士爹和祖国，已经不要任何逻辑了
 
+
+
+*****
+
+####  肉搏光头  
+##### 58522#       发表于 2022-6-14 14:50
+
+海贼王世界原有的世界格局根本容不下和之国的存在，不过估计都最后一章了，尾田也不会打补丁，就当是这样吧。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neverlands  
+##### 58523#       发表于 2022-6-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56261544&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-14 12:10</a>
+首先不知道方法的话基本就进不去和之国
+
+强行进入也很容易被击退，大妈团两次尝试都被一脚踢下去了
+
+ ...</blockquote>
+九侠里最厉害的不是锦卫门么，准四皇实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

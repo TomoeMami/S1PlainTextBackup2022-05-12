@@ -10580,3 +10580,21 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 有兴趣的坛友可以去读读原书，我自己还远不能阅读全日语的原书，就没去看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9958#       发表于 2022-6-14 14:58
+
+CelticWhite老师的青山姐版《呐喊》→《な喊》
+
+<img src="https://img.saraba1st.com/forum/202206/14/145830hbwvzlncoba3lbrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3D14440D-FB61-445E-B437-3DE13BCCF593.jpeg</strong> (170.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 14:58 上传
+
