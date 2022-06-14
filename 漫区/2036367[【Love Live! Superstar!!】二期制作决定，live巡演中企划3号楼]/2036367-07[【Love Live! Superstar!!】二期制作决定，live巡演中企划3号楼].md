@@ -10722,3 +10722,37 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 老五人里除了nako不是都有小活么，手游配音sayu和pay都接到过吧，而且这种问题更直接的应该是和事务所有 ...</blockquote>
 签的卖身契吧，谁懂呢
 
+
+
+*****
+
+####  Karin11974  
+##### 9970#       发表于 2022-6-14 16:56
+
+说是声优，实质上有几个是真朝声优发展的，话都不用说太明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蜜梨柑  
+##### 9971#       发表于 2022-6-14 16:57
+
+拿张长期饭票不也挺好的
+
+*****
+
+####  yevvet  
+##### 9972#       发表于 2022-6-14 16:59
+
+大熊这身高虚报的樱花妹是真的爱往低了报。已知二期生鞋跟比一期高了一厘米。青山姐155，大熊比她高了一个脑门。pay158，大熊比她高了一个头顶。绘森彩163，大熊比她矮了一点点。可公式身高却是156。你看绘森彩和大熊像差了7厘米吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+001D4343-328F-46A6-B752-978F1C10D118.jpeg
+(95.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-14 16:58 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/165835bhxgngcmmnnvjiig.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
