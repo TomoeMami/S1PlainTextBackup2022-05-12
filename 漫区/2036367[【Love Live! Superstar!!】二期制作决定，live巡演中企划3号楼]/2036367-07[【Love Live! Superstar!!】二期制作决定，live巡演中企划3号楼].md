@@ -10657,3 +10657,33 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 又进入稳定翻页bug的时候了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 9964#       发表于 2022-6-14 16:36
+
+专楼命运多舛啊，这次用了将近一万楼才出bug已经比之前强不少了
+
+*****
+
+####  cxj649  
+##### 9965#       发表于 2022-6-14 16:37
+
+<blockquote>cat1230 发表于 2022-6-14 15:40
+@saya1892
+
+我一直以为你们说的拉厕就是5ch，原来不是吗？
+
+</blockquote>
+5厕是拉板，那边是正面评论多
+
+*****
+
+####  nufawneafg  
+##### 9966#       发表于 2022-6-14 16:37
+
+日本人要能整明白合作博弈这道理就见鬼了
+纯从企划出发我把你整成大忙人那我的控制力会被削弱的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
