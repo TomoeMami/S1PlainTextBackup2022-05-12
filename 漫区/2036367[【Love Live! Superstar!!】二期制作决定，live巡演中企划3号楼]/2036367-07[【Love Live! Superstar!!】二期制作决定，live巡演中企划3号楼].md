@@ -10847,3 +10847,12 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 要有算命能力，为什么要问鲤鱼，不如问问5年后我自己在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 多少有点蓝色药丸的意思了
 
+
+
+*****
+
+####  优妮可  
+##### 9982#       发表于 2022-6-14 18:36
+
+鲤鱼应该不用担心吧，五年后b站还在，她接个b站的节目，或者给阿b出品的动画游戏配音也不难
+
