@@ -15327,3 +15327,12 @@ ANYCOLOR
 2022年４月期 通期決算説明資料  2022年６月14日
 <img src="https://p.sda1.dev/6/b300ac80cd8486fe0ace52c6f270cb39/image.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14985#       发表于 2022-6-14 16:10
+
+ankr扛着这两天东证十米高台跳爆拉，田角yyds。
+
