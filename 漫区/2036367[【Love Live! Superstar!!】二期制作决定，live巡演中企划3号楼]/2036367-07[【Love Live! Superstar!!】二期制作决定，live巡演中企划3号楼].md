@@ -10817,3 +10817,16 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  型月重工  
+##### 9979#       发表于 2022-6-14 18:06
+
+星团这饭票估计也就5年，你们说30岁的鲤鱼会回国吗？ 
+
+之前拉板就有日本人说鲤鱼是大熊猫，之后要还回去的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
