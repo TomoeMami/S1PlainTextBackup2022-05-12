@@ -10881,3 +10881,14 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 由手机上传
 2022-6-14 19:10 上传
 
+
+
+*****
+
+####  cybernetics31  
+##### 9985#       发表于 2022-6-14 19:20
+
+nako这个明显是holy pig不给力了 没资源只能靠拼试音 现在星又忙 试音比不过很正常
+
+5年啥的5年后再说吧 谁只能这破企划5年后会咋样 17年虹出来的时候谁能想到22年的情况呢，，，，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+

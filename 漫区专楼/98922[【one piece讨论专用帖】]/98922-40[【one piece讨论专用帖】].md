@@ -425,3 +425,58 @@ PS.教私塾的蛇首女妖怎么没的我也忘了，果然和之国太长了
 
 巴基大神干什么都不影响他成为四皇，因为他的定位就是小人物影响大历史的模板，顶上给他设计那一套剧情就是往这个方向发展的，他最后对五黄改革世界的作用可能会大于红发
 
+
+
+*****
+
+####  绝赞販売中  
+##### 58540#       发表于 2022-6-14 19:20
+
+以前说赏金是危害程度，路宝低一点可以理解.路宝都是尼卡了哥仨还一个价.
+然后巴基这是又越狱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">因佩尔顿对巴基来说就是家了想来就来想走就走.比路宝还传奇
+
+*****
+
+####  klzxs  
+##### 58541#       发表于 2022-6-14 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56267379&amp;ptid=98922" target="_blank">azbhg1 发表于 2022-6-14 19:14</a>
+
+这情报。。。天狗山是谁啊
+
+以及我现在只关心吧唧大神到底干了啥</blockquote>
+小玉身边那个天狗
+
+*****
+
+####  SteinLee  
+##### 58542#       发表于 2022-6-14 19:23
+
+绿牛，使用寄生种子
+
+image.png
+(51.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-14 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/192304c1a4g58y0x04yrda.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azbhg1  
+##### 58543#       发表于 2022-6-14 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56267472&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2022-6-14 19:20</a>
+以前说赏金是危害程度，路宝低一点可以理解.路宝都是尼卡了哥仨还一个价.
+然后巴基这是又越狱了因佩 ...</blockquote>
+有提到吧唧大神又进去了吗
+
+*****
+
+####  sandrock  
+##### 58544#       发表于 2022-6-14 19:28
+
+那按照这个趋势 巴基以后当上海贼王也是非常有可能的事了。。。
+
