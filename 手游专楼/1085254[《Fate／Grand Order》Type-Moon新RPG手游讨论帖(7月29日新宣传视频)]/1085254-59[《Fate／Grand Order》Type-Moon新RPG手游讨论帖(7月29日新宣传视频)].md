@@ -15855,3 +15855,17 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 他们怎么就非要跟绿过不去，这水平还不如去年
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 88363#       发表于 2022-6-14 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56258011&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-14 08:08</a>
+
+看他们热火朝天的批判菌鸽鸽
+
+返回去爬了下去年的楼</blockquote>
+因为绿帽和迦皇帽子最好批斗啊，其他的点261还没爆，等过两个月263翻译完国服蘑菇孝子的战斗大概会更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

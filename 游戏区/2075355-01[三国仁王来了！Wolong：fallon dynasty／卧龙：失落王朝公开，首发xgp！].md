@@ -3317,3 +3317,19 @@ Five Phases 可能是指“五行”，也许是合并忍术和阴阳术后的�
 
 竟然是拼音，绝了，牛逼啊
 
+
+
+*****
+
+####  哈露尼娅  
+##### 346#       发表于 2022-6-14 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56253215&amp;ptid=2075355" target="_blank">dragrass 发表于 2022-6-13 18:59</a>
+
+其实一直挺期待kt美工做个建模严肃点的三国游戏的
+
+但是b站评论区怎么开始反思了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说明阿b现在是小朋友居多啊
+
+差不多该明白自己是老东西了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
