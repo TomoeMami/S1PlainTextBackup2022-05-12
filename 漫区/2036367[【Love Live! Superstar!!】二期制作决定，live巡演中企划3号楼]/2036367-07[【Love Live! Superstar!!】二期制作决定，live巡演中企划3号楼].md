@@ -10756,3 +10756,22 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 <img src="https://img.saraba1st.com/forum/202206/14/165835bhxgngcmmnnvjiig.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 9973#       发表于 2022-6-14 17:12
+
+拉拉这饭票又不是永久制，早点有其他可持续发展挺好
+
+*****
+
+####  D麦林  
+##### 9974#       发表于 2022-6-14 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265382&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-14 16:46</a>
+老五人里除了nako不是都有小活么，手游配音sayu和pay都接到过吧，而且这种问题更直接的应该是和事务所有 ...</blockquote>
+我是说 说是小活可是太小了也不好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+最好当然是去那种当红手游配点新角色什么的
+
