@@ -10892,3 +10892,14 @@ nako这个明显是holy pig不给力了 没资源只能靠拼试音 现在星又
 
 5年啥的5年后再说吧 谁只能这破企划5年后会咋样 17年虹出来的时候谁能想到22年的情况呢，，，，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 9986#       发表于 2022-6-14 20:18
+
+着眼于现在吧家人们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
