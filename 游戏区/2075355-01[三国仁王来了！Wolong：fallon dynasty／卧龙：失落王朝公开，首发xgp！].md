@@ -3647,3 +3647,88 @@ TeamNINJA最新暗黑三国诛死游戏 #卧龙# 预计在2023年登陆PS5 / PS4
 
 这配音好耳熟啊
 
+
+
+*****
+
+####  医生狼多  
+##### 375#         楼主| 发表于 2022-6-15 01:15
+
+TEAM NINJA 暗黑三国动作 RPG 新作《卧龙：苍天陨落》中文配音版预告公开。2023年发售，登陆 PS5／PS4／Xbox Series X|S／Xbox One／Steam / Windows Store 平台。《仁王》制作人 安田文彦 及《血源诅咒》制作人 山际真晃 合作打造。  
+
+本作为《仁王》系列开发团队 Team NINJA 倾情打造的暗黑三国诛死游戏。
+
+以东汉末年的中原大地为舞台，玩家将化身无名义勇兵，
+运用融合了中华武术精髓的剑戟动作，踏破妖魔横行之乱世。
+此外，本作还设计了崭新的战略要素，帮助玩家克服逆境。
+
+攻防一体的中华武术动作
+行云流水之剑戟动作，尽显中华武术之精髓；
+化解攻击于千钧一发，体验战斗于生死一瞬。
+
+三国乱世之下的黑暗奇幻题材
+化身无名义勇兵，踏破妖魔横行之乱世。
+结合“三国”与黑暗奇幻元素的原创故事即将展开。
+
+挑战逆境的全新战略
+打倒强敌来激励士气，唤醒潜藏体内的力量。
+通过以“逆境”为主题的崭新攻略方式，享受攻克难关的成就感。
+http://t.cn/A6aviyPF
+
+*****
+
+####  土路生優里  
+##### 376#       发表于 2022-6-15 01:18
+
+这中文翻译叫苍天陨落，难道说这一部只到黄巾,续作再往后讲故事吗
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainsheep  
+##### 377#       发表于 2022-6-15 01:19
+
+可以跳了
+
+*****
+
+####  宛若青空  
+##### 378#       发表于 2022-6-15 01:19
+
+ 本帖最后由 宛若青空 于 2022-6-15 01:20 编辑 
+
+中文和日语后半句宣传语不太一样
+
+中文：妖邪乱世，龙跃在渊
+
+日文：乱世の闇に、龍が目覚める。
+
+<img src="https://img.saraba1st.com/forum/202206/15/011855voktrkmjrymo9tkk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FA9ABB6C-6885-42E1-B772-F36AF604FB6C.jpeg</strong> (342.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 01:18 上传
+
+<img src="https://img.saraba1st.com/forum/202206/15/011855b1bn1yy3fsflnxpe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A560325F-B2B9-4740-BF26-CB57EB670F1A.jpeg</strong> (296.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 01:18 上传
+
+*****
+
+####  Rary  
+##### 379#       发表于 2022-6-15 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271099&amp;ptid=2075355" target="_blank">土路生優里 发表于 2022-6-15 01:18</a>
+
+这中文翻译叫苍天陨落，难道说这一部只到黄巾,续作再往后讲故事吗
+
+—— 来自 OnePlus KB2005, Android 12 ...</blockquote>
+有没有续作应该主要看销量如何
+
