@@ -10366,3 +10366,16 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 每天看着拉板吹鱼和拉厕的温度差真有一种极度的荒诞感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 拉板那边都吹上天了，拉厕最近简直可以改名李玉洁真爱bot，[del]喜欢的天天来顶[/del]
 
+
+
+*****
+
+####  型月重工  
+##### 9943#       发表于 2022-6-14 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56258846&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-14 09:27</a>
+每天看着拉板吹鱼和拉厕的温度差真有一种极度的荒诞感
+
+拉板那边都吹上天了，拉厕最近简直可以改名李 ...</blockquote>
+要不在去紫吧平衡一下<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
