@@ -923,3 +923,37 @@ image.png
 从创作的角度来看五黄打败了世界最强已经不需要再设计什么同级别的对手了，加上 ...</blockquote>
 是指大新闻的程度，后面没有抖出来的设定多着呢。
 
+
+
+*****
+
+####  Supermangunv3  
+##### 58582#       发表于 2022-6-15 06:20
+
+<img src="https://img.saraba1st.com/forum/202206/15/062028hgd7lypyvv0df3jd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220615_061422_com.weico.international.jpg</strong> (133.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 06:20 上传
+
+*****
+
+####  Supermangunv3  
+##### 58583#       发表于 2022-6-15 06:22
+
+<blockquote>银翼的维罗西 发表于 2022-6-15 02:21
+巴基大神这个我觉得还好吧
+
+从创作的角度来看五黄打败了世界最强已经不需要再设计什么同级别的对手了，加上 ...</blockquote>
+对我来说是救了和之国这坨shit的程度。
+
+*****
+
+####  Yeaha123  
+##### 58584#       发表于 2022-6-15 06:26
+
+真东海帝皇
+
