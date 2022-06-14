@@ -957,3 +957,17 @@ image.png
 
 真东海帝皇
 
+
+
+*****
+
+####  fmchar  
+##### 58585#       发表于 2022-6-15 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271412&amp;ptid=98922" target="_blank">ef6270 发表于 2022-6-15 02:28</a>
+
+海军是不是有点什么强迫症，三大将七武海四皇，反正一定要凑足数量。</blockquote>
+海军有强迫症X
+
+尾田有强迫症V
+
