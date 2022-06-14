@@ -674,3 +674,12 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四皇巴基都上热搜了，可怕
 
+
+
+*****
+
+####  icecry  
+##### 58556#       发表于 2022-6-14 21:33
+
+巴基不就是学龙珠撒旦么...我是不太喜欢这种桥段
+
