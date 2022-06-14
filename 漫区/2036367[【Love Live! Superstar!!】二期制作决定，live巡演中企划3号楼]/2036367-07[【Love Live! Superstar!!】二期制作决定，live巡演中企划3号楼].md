@@ -10506,3 +10506,59 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 铃原还是很可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 9952#       发表于 2022-6-14 12:33
+
+绘森彩说2期4个人已经出去恰过饭了，可能冷藏期间确实是一起训练的吧
+
+如果有给她们安排训练课程的话就还算是练习生
+
+不知道给不给出去接活，她们应该没有R3那么松散吧
+
+*****
+
+####  starring  
+##### 9953#       发表于 2022-6-14 12:33
+
+绘森笑起来好僵硬，薮岛换了发型好看不少
+
+*****
+
+####  仟音一心  
+##### 9954#       发表于 2022-6-14 12:34
+
+广播加入
+
+<img src="https://img.saraba1st.com/forum/202206/14/123438rr0euqxg5c34iiix.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>777787A5-7D20-4B82-9766-AFC5BB794A32.jpeg</strong> (103.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 12:34 上传
+
+*****
+
+####  csolfans  
+##### 9955#       发表于 2022-6-14 12:35
+
+ 本帖最后由 csolfans 于 2022-6-14 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56260276&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-14 10:59</a>
+
+朱茵也是团子被害协会成员
+
+顺便，我还是要说，二期颜值确实不太能打</blockquote>
+之前定妆图简直分岭线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过还是得等一年后才定型的
+
+*****
+
+####  cybernetics31  
+##### 9956#       发表于 2022-6-14 12:39
+
+薮岛20年进的im ，有活肯定能接的，无非疫情新人cv确实比较难。颜值这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说老五人平均值太高了
+
