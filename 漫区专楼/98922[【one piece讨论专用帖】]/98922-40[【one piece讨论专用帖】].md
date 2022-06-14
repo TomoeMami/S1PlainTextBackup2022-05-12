@@ -249,3 +249,12 @@ PS.教私塾的蛇首女妖怎么没的我也忘了，果然和之国太长了
  ...</blockquote>
 九侠里最厉害的不是锦卫门么，准四皇实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  久保由利香  
+##### 58524#       发表于 2022-6-14 15:36
+
+巴基看来是打退了当初的围剿才被当成四皇的，有一手啊
+

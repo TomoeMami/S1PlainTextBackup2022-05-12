@@ -15304,3 +15304,26 @@ SYL哪怕是主播也会想试错，试试哪些适合自己哪些不适合，�
 
 虽然也有可能只是胸有成竹，尽管没试过但知道自己的优势。
 
+
+
+*****
+
+####  NBXX  
+##### 14984#       发表于 2022-6-14 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56169548&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-6-8 09:02</a>
+
+更新了两个资料
+
+ANYCOLOR
+
+2022年6月8日 8時00分</blockquote>
+今天又更新了两个资料
+[https://ssl4.eir-parts.net/doc/5032/tdnet/2143230/00.pdf](https://ssl4.eir-parts.net/doc/5032/tdnet/2143230/00.pdf)
+
+2022年４月期 決算短信〔日本基準〕（非連結） 2022年６月14日
+[https://ssl4.eir-parts.net/doc/5032/tdnet/2143232/00.pdf](https://ssl4.eir-parts.net/doc/5032/tdnet/2143232/00.pdf)
+
+2022年４月期 通期決算説明資料  2022年６月14日
+<img src="https://p.sda1.dev/6/b300ac80cd8486fe0ace52c6f270cb39/image.png" referrerpolicy="no-referrer">
+
