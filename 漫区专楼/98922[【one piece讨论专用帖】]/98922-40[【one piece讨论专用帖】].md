@@ -556,3 +556,112 @@ image.png
 由手机上传
 2022-6-14 20:39 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 58552#       发表于 2022-6-14 20:43
+
+<blockquote>团结奋进碇真嗣 发表于 2022-6-14 20:16
+玉田爹不是被药死了吗，既然没死傻儿子跳舞的时候怎么不出来出出主意</blockquote>
+活着也没啥用，有凯多在打不赢也出不了什么主意。
+
+寿喜烧＝天狗山飞彻的暗示非常之多
+
+首先寿喜烧没有明确死了
+
+<img src="https://img.saraba1st.com/forum/202206/14/203127xlazdhieoelhhs8n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>367BE701-2F13-4305-BB8E-903C2C0647A2.jpeg</strong> (92.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:31 上传
+
+天狗山飞彻的介绍是美少女木偶（木芥子）收藏家
+
+<img src="https://img.saraba1st.com/forum/202206/14/203302nmiy6apv003yzzxr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F13B2121-4A2C-4A2B-8EB6-FB1520EA835E.jpeg</strong> (159.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:33 上传
+
+与寿喜烧的行为一致
+
+<img src="https://img.saraba1st.com/forum/202206/14/203317hitzlvutdqlqwutt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>349E6AA2-EEC0-4768-A558-C81AA8A228F3.jpeg</strong> (97.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:33 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/203317ri1dj8pete12fd1i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EEC2042B-4AF5-4914-B7FF-6D87E6B5F41B.jpeg</strong> (125.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:33 上传
+
+更不用说声优都是大友龙三郎（故意没写寿喜烧的声优，听出来的）
+
+还有一个是天狗山的生命卡由58岁修正为81岁
+
+*****
+
+####  朗姆酒hentai  
+##### 58553#       发表于 2022-6-14 20:46
+
+尾田你可千万别致敬鸟山明啊，巴基要是当上海贼王那我真的绷不住了
+
+*****
+
+####  仟音一心  
+##### 58554#       发表于 2022-6-14 20:46
+
+此外还有一个暗示是御田处理山猪事件时有一个祈祷师，这人就是吃下了狮子smile果实的霍尔德姆，声优也相同。
+
+<img src="https://img.saraba1st.com/forum/202206/14/204628ukzkizg3k9lxkf3z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EDED6E33-B7F6-4BAF-A24B-B60949A9E1EB.jpeg</strong> (56.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/204628p88hhs000uh5mjrm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1C700F66-02F2-4192-B120-75D7659BE69A.jpeg</strong> (66.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/204646xqspffgd5psjqk4z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E49C24BB-A118-430B-8D0A-483B667D9291.jpeg</strong> (76.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/204646abzhxyxa2jrmpfjp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4037C561-1597-4207-8225-D6DC783C8555.jpeg</strong> (58.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 20:46 上传
+
