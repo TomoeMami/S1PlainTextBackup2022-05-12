@@ -10775,3 +10775,32 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 我是说 说是小活可是太小了也不好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 最好当然是去那种当红手游配点新角色什么的
 
+
+
+*****
+
+####  starring  
+##### 9975#       发表于 2022-6-14 17:34
+
+水和星这批声优更想偶像，跟企划绑定得太紧企划以外的配音工作不会太多（也有大环境下女性声优人数增加的原因）水那边不太熟悉，但经常看到在cast表的好像只有逢田姐。不过具体还是得看事务所的安排
+
+*****
+
+####  aoaoaodedede  
+##### 9976#       发表于 2022-6-14 17:37
+
+ 本帖最后由 aoaoaodedede 于 2022-6-14 17:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265914&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-6-14 17:20</a>
+
+我是说 说是小活可是太小了也不好
+
+最好当然是去那种当红手游配点新角色什么的 ...</blockquote>
+真要是当红手游，那活可能就有点大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9977#       发表于 2022-6-14 17:39
+
+这方面有点羡慕飞狗，女武神除了junna是职业歌手，其她四人的配音工作都不少也都solo出道<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
