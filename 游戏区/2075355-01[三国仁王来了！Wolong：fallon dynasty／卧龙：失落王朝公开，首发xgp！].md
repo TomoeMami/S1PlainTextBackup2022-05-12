@@ -3574,3 +3574,14 @@ koei拉胯久了仁王怎么出来的说白了就是跟风小鬼和手游小鬼�
 
 怎么两天过去了，光荣自己宣发的一点都没放。
 
+
+
+*****
+
+####  医生狼多  
+##### 369#         楼主| 发表于 2022-6-15 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56270816&amp;ptid=2075355" target="_blank">宛若青空 发表于 2022-6-15 00:33</a>
+怎么两天过去了，光荣自己宣发的一点都没放。</blockquote>
+希望白天有消息，可能是没到48小时(
+
