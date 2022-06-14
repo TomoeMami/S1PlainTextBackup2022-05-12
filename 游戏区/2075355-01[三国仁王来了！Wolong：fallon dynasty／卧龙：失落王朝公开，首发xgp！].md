@@ -3883,3 +3883,153 @@ steam页面没有中文配音
 确实没明说，先编辑了
 但我觉得应该会有，只是削减对节奏的影响?
 
+
+
+*****
+
+####  医生狼多  
+##### 394#         楼主| 发表于 2022-6-15 01:52
+
+steam页面没标记有中配，估计是给pv专门做的
+
+*****
+
+####  415452356  
+##### 395#       发表于 2022-6-15 01:53
+
+  这访谈其实等于什么都没讲，非常典型的日式话术了。
+
+  安田这人是不是采访的时候没睡醒，怎么疯狂吊眼
+
+*****
+
+####  415452356  
+##### 396#       发表于 2022-6-15 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271261&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 01:50</a>
+
+确实没明说，先编辑了
+
+但我觉得应该会有，只是削减对节奏的影响?</blockquote>
+  这玩意只要存在就会对节奏进行或多或少的影响，真要放开手脚去做的话第一时间就应该把这玩意删掉
+
+*****
+
+####  makece  
+##### 397#       发表于 2022-6-15 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271225&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 01:41</a>
+
+黄巾时诸葛亮连小伙都算不上吧
+
+我真觉得更适合火哥(</blockquote>
+我意思是诸葛亮的外形一直在这个年龄段，隆中对时谎报了年龄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 398#       发表于 2022-6-15 01:58
+
+IGN这翻译怎么乱七八糟的，“妖魔”翻成“恶魔”，“死にゲー”翻成“类魂游戏”，只能说不愧是一开始还把东汉末期背景搞错成日本封建时期的IGN了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 399#       发表于 2022-6-15 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271276&amp;ptid=2075355" target="_blank">415452356 发表于 2022-6-15 01:53</a>
+
+这访谈其实等于什么都没讲，非常典型的日式话术了。
+
+  安田这人是不是采访的时候没睡醒，怎么疯狂吊眼 ...</blockquote>
+古今中外卖游戏的有什么实机都没有的前期访谈能够言之有物的讲出来个具体游戏印象么。。。
+
+*****
+
+####  医生狼多  
+##### 400#         楼主| 发表于 2022-6-15 02:01
+
+反正在招测试了，9月前不知道能不能公测一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 401#       发表于 2022-6-15 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271298&amp;ptid=2075355" target="_blank">宛若青空 发表于 2022-6-15 01:58</a>
+
+IGN这翻译怎么乱七八糟的，“妖魔”翻成“恶魔”，“死にゲー”翻成“类魂游戏”，只能说不愧是一开始还把 ...</blockquote>
+  毕竟多边形招的人，别忘了当年的IGN中国MHR评测，魂小鬼浓度爆表
+
+*****
+
+####  chaucerling  
+##### 402#       发表于 2022-6-15 02:09
+
+前期指黄巾之乱到三国分立前？
+
+*****
+
+####  415452356  
+##### 403#       发表于 2022-6-15 02:14
+
+  我感觉不做到赤壁之战就断掉会很尴尬，但也不可能说只做到虎牢关，感觉应该是前期成名，就是从黄巾一直到虎牢关的关卡会有比较细致的描写，后面就加速变成无双那种打完一场大战役就跳到下一个这样。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 404#       发表于 2022-6-15 02:17
+
+话说制作人有时说wolong，有时是garyu
+
+*****
+
+####  吃我大dio  
+##### 405#       发表于 2022-6-15 02:22
+
+武术？仙侠！
+
+结合中文pv的“不死丹田”和主角与黄巾兵对战时浑身金线加心口处的金球来看。这游戏的战斗和养成系统或许是围绕着上中下三大丹田和经脉展开 ，之前提过的五行对应五气朝元，结合在一起是内丹，张角手里拿着的金丹是外丹。光荣《抱朴子》之类的道教典籍没少看啊，这回古典仙侠游戏了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+忍者组教你做仙侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shudushimo  
+##### 406#       发表于 2022-6-15 02:25
+
+感觉日本人脑子有点转不过来，日本人做的中国背景的游戏，日语起名居然是ウォーロン フォールン ダイナスティ，简直是故意给阅读增加难度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bm7号  
+##### 407#       发表于 2022-6-15 02:38
+
+到目前为止甚至没有任何吸引我购买的信息。
+
+*****
+
+####  JoelBirch  
+##### 408#       发表于 2022-6-15 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271397&amp;ptid=2075355" target="_blank">shudushimo 发表于 2022-6-15 02:25</a>
+感觉日本人脑子有点转不过来，日本人做的中国背景的游戏，日语起名居然是ウォーロン フォールン ダイナステ ...</blockquote>
+现代日语常规操作，以后只会越来越多，除非天降猛男让日本用回汉字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 409#       发表于 2022-6-15 03:16
+
+希望别要耐力条了，这次能跳了是不是终于玩家也能飞燕了
+
+*****
+
+####  ybfelix  
+##### 410#       发表于 2022-6-15 04:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271463&amp;ptid=2075355" target="_blank">JoelBirch 发表于 2022-6-15 02:45</a>
+
+现代日语常规操作，以后只会越来越多，除非天降猛男让日本用回汉字 ...</blockquote>
+感觉也是为了统一念法吧。可能有市场部pencil pusher计算过有多少人不识字，念不出来，这会影响多少个百分比的曝光率之类…
+
