@@ -178,3 +178,15 @@ PS.教私塾的蛇首女妖怎么没的我也忘了，果然和之国太长了
 
 和国到底是有啥让五老头认为打不进去的
 
+
+
+*****
+
+####  wingzerocos  
+##### 58518#       发表于 2022-6-14 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56260058&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2022-6-14 10:47</a>
+
+和国到底是有啥让五老头认为打不进去的</blockquote>
+地形问题没法大军靠近吧。开国应该会改变和国地形所以才围着海军以防万一。
+
