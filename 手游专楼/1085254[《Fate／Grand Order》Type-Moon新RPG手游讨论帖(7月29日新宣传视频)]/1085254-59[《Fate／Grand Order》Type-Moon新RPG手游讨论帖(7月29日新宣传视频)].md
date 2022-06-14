@@ -15907,3 +15907,17 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 我甚至怀疑大部分人都记不住大象的技能
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 88368#       发表于 2022-6-14 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56266315&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-06-14 17:47:12</a>
+那么问题来了，大象要怎么强化才能用
+我甚至怀疑大部分人都记不住大象的技能
+ ...</blockquote>三技能加个自身赋予即死
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
