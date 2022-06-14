@@ -15382,3 +15382,19 @@ rust直播服又死了<img src="https://static.saraba1st.com/image/smiley/face20
 [https://m.bilibili.com/video/BV17U4y1X7bx](https://m.bilibili.com/video/BV17U4y1X7bx)
 上节目也算好宣传吧…
 
+
+
+*****
+
+####  HinataY  
+##### 14991#       发表于 2022-6-14 23:06
+
+boss再多打一会就十万了，简单难度全责<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最高峰99551四舍五入也算10万吧
+
+*****
+
+####  Junchoon  
+##### 14992#       发表于 2022-6-14 23:09
+
+这最终Boss毫无观赏性，就突突突完事了？这波卡婊全责没问题！
+

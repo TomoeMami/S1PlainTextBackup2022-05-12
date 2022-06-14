@@ -15948,3 +15948,12 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 确实，多给我方散（充）财（能）的话强度就一下子上来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 88372#       发表于 2022-6-14 23:07
+
+自充50~80，寶具後群充20，再加NP率
+
