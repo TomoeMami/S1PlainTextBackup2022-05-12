@@ -3835,3 +3835,51 @@ steam页面没有中文配音
 
   说不定是无双里面永远第一关就被挨打的张曼成之类的角色
 
+
+
+*****
+
+####  AR971GP04  
+##### 390#       发表于 2022-6-15 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271199&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 01:35</a>
+
+能跳了
+
+不是开放世界
+
+还是有精力条系统，看来不往ffo方向走</blockquote>
+没明说有没有耐力条吧
+
+
+
+*****
+
+####  Rary  
+##### 391#       发表于 2022-6-15 01:44
+
+能捏女性主角吗？
+
+*****
+
+####  umbasa  
+##### 392#       发表于 2022-6-15 01:48
+
+<blockquote>makece 发表于 2022-6-15 01:40
+中配台词是“找到你了，拥有不死丹田之人啊”
+
+看英文还以为是不死药，看中文似乎就是主角体质特殊？
+
+而且如 ...</blockquote>
+回答是内丹。看预告里面张角不就嗑药以后变肿了吗？这个就很有只狼里面变若水的意思了
+
+*****
+
+####  医生狼多  
+##### 393#         楼主| 发表于 2022-6-15 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271236&amp;ptid=2075355" target="_blank">AR971GP04 发表于 2022-6-15 01:43</a>
+没明说有没有耐力条吧</blockquote>
+确实没明说，先编辑了
+但我觉得应该会有，只是削减对节奏的影响?
+
