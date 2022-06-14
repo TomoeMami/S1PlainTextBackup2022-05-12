@@ -3442,3 +3442,27 @@ Overcome adversity  ...</blockquote>
 
 标题应该是fallen不是fallon
 
+
+
+*****
+
+####  titra  
+##### 357#       发表于 2022-6-14 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56253274&amp;ptid=2075355" target="_blank">龙骑士甄志丙 发表于 2022-6-13 19:04</a>
+
+这就是新世代.jpg
+
+反过来也证明koei拉胯久了，没情怀了</blockquote>
+koei拉胯久了仁王怎么出来的说白了就是跟风小鬼和手游小鬼多了
+
+*****
+
+####  龙骑士甄志丙  
+##### 358#       发表于 2022-6-14 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56264532&amp;ptid=2075355" target="_blank">titra 发表于 2022-6-14 15:52</a>
+
+koei拉胯久了仁王怎么出来的说白了就是跟风小鬼和手游小鬼多了</blockquote>
+因为koei拉垮了，Tecmo没有，所以仁王出来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
