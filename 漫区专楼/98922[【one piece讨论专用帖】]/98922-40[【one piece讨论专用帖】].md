@@ -207,3 +207,14 @@ PS.教私塾的蛇首女妖怎么没的我也忘了，果然和之国太长了
 
 这是以往的国家都比不了的
 
+
+
+*****
+
+####  火华火华火  
+##### 58520#       发表于 2022-6-14 13:46
+
+但海贼里面军队就是充门面的，啥易守难攻的地形，空降两个大将进去就拿下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
