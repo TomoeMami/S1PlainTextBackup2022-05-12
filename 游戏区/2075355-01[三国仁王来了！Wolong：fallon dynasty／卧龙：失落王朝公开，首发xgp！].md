@@ -3585,3 +3585,65 @@ koei拉胯久了仁王怎么出来的说白了就是跟风小鬼和手游小鬼�
 怎么两天过去了，光荣自己宣发的一点都没放。</blockquote>
 希望白天有消息，可能是没到48小时(
 
+
+
+*****
+
+####  宛若青空  
+##### 370#       发表于 2022-6-15 01:03
+
+ 本帖最后由 宛若青空 于 2022-6-15 01:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56270989&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 00:59</a>
+
+希望白天有消息，可能是没到48小时(</blockquote>
+
+来了来了，真的是有微软宣发期限啊
+
+#WoLong#妖邪乱世，龙跃在渊！
+
+前天Xbox&amp;Bethesda游戏发布会上亮相的《Wo Long: Fallen Dynasty》(卧龙：苍天陨落)大家是否已经看到了呢？今天为玩家们带来了中文配音预告片，大家一睹为快吧！
+
+TeamNINJA最新暗黑三国诛死游戏 #卧龙# 预计在2023年登陆PS5 / PS4 / Xbox X|S / X1 / Xbox Game Pass / Steam / Windows商店。游戏支持简体中文，详情会于今后陆续公布。
+[游戏官网](http://t.cn/A6XsrGNB)
+
+<img src="https://img.saraba1st.com/forum/202206/15/010316a88apaj86jd3nana.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D43D7D8E-1FEC-409A-8CCA-056A0BDD662B.jpeg</strong> (555.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 01:03 上传
+
+*****
+
+####  嘉术2015  
+##### 371#       发表于 2022-6-15 01:07
+
+中配来了！！！
+
+*****
+
+####  医生狼多  
+##### 372#         楼主| 发表于 2022-6-15 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271016&amp;ptid=2075355" target="_blank">宛若青空 发表于 2022-6-15 01:03</a>
+来了来了，真的是有微软宣发期限啊</blockquote>
+刚好等到想睡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 373#         楼主| 发表于 2022-6-15 01:09
+
+ 本帖最后由 医生狼多 于 2022-6-15 01:10 编辑 
+
+苍天陨落，总觉得主角和黄巾跑不了关系?
+发现楼里坛友已经有提到过
+
+*****
+
+####  寂长无星夜  
+##### 374#       发表于 2022-6-15 01:09
+
+这配音好耳熟啊
+
