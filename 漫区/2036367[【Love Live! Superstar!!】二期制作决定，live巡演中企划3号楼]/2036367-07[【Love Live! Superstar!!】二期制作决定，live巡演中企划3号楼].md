@@ -10354,3 +10354,15 @@ syl，原来大阪day2下午场真有人带小孩过来啊<img src="https://stat
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉板怎么开始磕pay彩了
 
+
+
+*****
+
+####  saya1892  
+##### 9942#       发表于 2022-6-14 09:27
+
+ 本帖最后由 saya1892 于 2022-6-14 09:28 编辑 
+
+每天看着拉板吹鱼和拉厕的温度差真有一种极度的荒诞感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+拉板那边都吹上天了，拉厕最近简直可以改名李玉洁真爱bot，[del]喜欢的天天来顶[/del]
+
