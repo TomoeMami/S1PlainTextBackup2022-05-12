@@ -897,3 +897,16 @@ image.png
 
 —— 來自 asus ASUS_I01WD, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  littlezoo  
+##### 58580#       发表于 2022-6-15 06:06
+
+<blockquote>moooooonlight 发表于 2022-6-15 05:50
+红土大**分五裂！
+
+—— 來自 asus ASUS_I01WD, Android 11上的 S1Next-鵝版 v2.5.4</blockquote>
+这敏感词让我喷了一显示器可乐….
+
