@@ -3487,3 +3487,17 @@ koei拉胯久了仁王怎么出来的说白了就是跟风小鬼和手游小鬼�
 别了 忍者组要是做出只狼来只能全体切腹了</blockquote>
   确实，硫酸脸气的亲自过来帮他们介错
 
+
+
+*****
+
+####  战场公主希维尔  
+##### 361#       发表于 2022-6-14 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56256252&amp;ptid=2075355" target="_blank">匿名用户 发表于 2022-06-13 23:26:13</a>
+仔细看了下官方文档中提到的 game feature，感觉系统和仁王相比说不定差别还挺大的。
+
+官方文档中两次提到 ...</blockquote>想到了天地之门，PSP 最喜欢的原创游戏。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

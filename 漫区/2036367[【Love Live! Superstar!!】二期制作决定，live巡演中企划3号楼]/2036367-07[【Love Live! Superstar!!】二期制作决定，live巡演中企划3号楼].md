@@ -10687,3 +10687,38 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 日本人要能整明白合作博弈这道理就见鬼了
 纯从企划出发我把你整成大忙人那我的控制力会被削弱的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 9967#       发表于 2022-6-14 16:44
+
+不过老五人里的四个个人活动都在稳步推进吧，也没绑太死的样子,打铁pay有接手游，nagi和鲤鱼是另外的路线....
+
+可惜了唯一一个能刷番人的现在毫无进展....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9968#       发表于 2022-6-14 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56264997&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-6-14 16:20</a>
+
+突发奇想
+
+官方其实是不是应该有意地去让企划成员在活动间歇期去接一些有曝光度的小活
+
+比如去一些其他动画里 ...</blockquote>
+老五人里除了nako不是都有小活么，手游配音sayu和pay都接到过吧，而且这种问题更直接的应该是和事务所有关系吧，企划还能管这么宽么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9969#       发表于 2022-6-14 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265382&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-6-14 16:46</a>
+
+老五人里除了nako不是都有小活么，手游配音sayu和pay都接到过吧，而且这种问题更直接的应该是和事务所有 ...</blockquote>
+签的卖身契吧，谁懂呢
+
