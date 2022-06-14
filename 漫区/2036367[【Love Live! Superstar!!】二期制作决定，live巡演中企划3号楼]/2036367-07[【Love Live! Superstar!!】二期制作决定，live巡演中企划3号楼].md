@@ -10614,3 +10614,15 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  adw667  
+##### 9960#       发表于 2022-6-14 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56260936&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-14 11:33</a>
+
+这个颜值应该不是拍摄和化妆问题了吧....二期生的颜值的确..很普通</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">毕竟有青山这个颜值和整活的天花板
+
