@@ -15363,3 +15363,12 @@ ankr扛着这两天东证十米高台跳爆拉，田角yyds。
 
 原来おばくん才放出来两个礼拜就又进去了，薪王是不是该交接了
 
+
+
+*****
+
+####  Kokichi  
+##### 14989#       发表于 2022-6-14 21:49
+
+rust直播服又死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
