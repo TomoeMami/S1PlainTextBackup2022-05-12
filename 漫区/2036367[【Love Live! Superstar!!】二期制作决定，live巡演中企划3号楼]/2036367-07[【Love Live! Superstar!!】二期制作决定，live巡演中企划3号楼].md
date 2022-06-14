@@ -10626,3 +10626,34 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 这个颜值应该不是拍摄和化妆问题了吧....二期生的颜值的确..很普通</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">毕竟有青山这个颜值和整活的天花板
 
+
+
+*****
+
+####  ads147147  
+##### 9961#       发表于 2022-6-14 16:03
+
+青山的破格确实显而易见。话说是拍摄问题么，总觉得两位门牙有点突，是不是去整一下比较好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  D麦林  
+##### 9962#       发表于 2022-6-14 16:20
+
+突发奇想
+
+官方其实是不是应该有意地去让企划成员在活动间歇期去接一些有曝光度的小活
+
+比如去一些其他动画里面配些非主要重要角色啊 或者去搞点手游配音啥的
+
+毕竟从水水开始就有人嘴你拉找来的是纯偶像不声优 这么搞改善下形象 还能多拉流量 还好多给点锻炼机会 一举多得啊
+
+*****
+
+####  D麦林  
+##### 9963#       发表于 2022-6-14 16:29
+
+又进入稳定翻页bug的时候了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
