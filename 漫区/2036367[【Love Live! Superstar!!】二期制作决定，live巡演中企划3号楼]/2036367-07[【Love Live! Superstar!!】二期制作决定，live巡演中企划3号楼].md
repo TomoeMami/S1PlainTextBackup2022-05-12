@@ -10830,3 +10830,20 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 9980#       发表于 2022-6-14 18:29
+
+鲤鱼还是有希望配手游的吧，啥时候捞一个原神的角色就好了。
+
+*****
+
+####  nufawneafg  
+##### 9981#       发表于 2022-6-14 18:32
+
+要有算命能力，为什么要问鲤鱼，不如问问5年后我自己在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+多少有点蓝色药丸的意思了
+
