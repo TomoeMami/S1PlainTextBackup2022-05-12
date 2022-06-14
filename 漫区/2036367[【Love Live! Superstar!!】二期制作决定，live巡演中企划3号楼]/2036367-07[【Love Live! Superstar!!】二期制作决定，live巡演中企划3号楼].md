@@ -10856,3 +10856,28 @@ CelticWhite老师的青山姐版《呐喊》→《な喊》
 
 鲤鱼应该不用担心吧，五年后b站还在，她接个b站的节目，或者给阿b出品的动画游戏配音也不难
 
+
+
+*****
+
+####  player3960  
+##### 9983#       发表于 2022-6-14 19:05
+
+比起五年后鲤鱼事业怎么样，我比较担心那时候国际形势怎么样，万一我们和对岸变成和现在俄乌一样，怕不是…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 9984#       发表于 2022-6-14 19:10
+
+<img src="https://img.saraba1st.com/forum/202206/14/191042ocnra9u83zadxa9n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E1BE51A4-0C90-41AC-B841-166A5D8E625E.jpeg</strong> (353.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-14 19:10 上传
+
