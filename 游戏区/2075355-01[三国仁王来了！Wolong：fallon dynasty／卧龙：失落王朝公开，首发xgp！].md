@@ -3403,3 +3403,17 @@ Overcome adversity  ...</blockquote>
 
 我觉得“卧龙”不一定只是个称号，有可能就是字面意义，说孔明的真身本就是一条龙之类，主人公没准也是没爹没妈，然后打着打着发现自己是龙族。
 
+
+
+*****
+
+####  makece  
+##### 353#       发表于 2022-6-14 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56261669&amp;ptid=2075355" target="_blank">天邪鬼 发表于 2022-6-14 12:23</a>
+
+怎么看着真成只狼了？五行可以说是忍义手道具
+
+至于攻式守式，说不定就是挡反</blockquote>
+别了 忍者组要是做出只狼来只能全体切腹了
+
