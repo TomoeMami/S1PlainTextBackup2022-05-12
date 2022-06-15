@@ -2060,3 +2060,22 @@ ee
 
 我觉得巴基当上四皇应该是帮助革命军拯救熊出了力吧，大概会引出革命军这条线
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 58689#       发表于 2022-6-15 21:19
+
+植物系的话，天敌不就是火啊冰啊之类的么，还好跟赤犬是同一阵营，不然岂不是被岩浆吊起来打。
+
+*****
+
+####  武男  
+##### 58690#       发表于 2022-6-15 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282282&amp;ptid=98922" target="_blank">sandrock 发表于 2022-6-15 19:58</a>
+
+同样是植物系，乌索普怎么这么弟弟</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">大神有霸王色运气就够了，不过绿牛是本身有实力，下手比狗子还要极端得多，狗子对待被俘虏的海贼好像也没他这么狠啊。可能是藤虎脾气太好了，绿牛那性格不惯着其他人？
+
