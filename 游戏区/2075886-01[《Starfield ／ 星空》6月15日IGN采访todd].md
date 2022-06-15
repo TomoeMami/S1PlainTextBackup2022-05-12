@@ -1104,3 +1104,30 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 有辐射4那味儿了 ...</blockquote>
 原画是出现了车的，不清楚为什么没展示
 
+
+
+*****
+
+####  aruruu  
+##### 94#       发表于 2022-6-15 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277872&amp;ptid=2075886" target="_blank">naclken. 发表于 2022-6-15 14:53</a>
+万一可以开飞船，可以狗斗
+
+但是到了地面上依然不能开车……
+
+有辐射4那味儿了 ...</blockquote>
+有一张冰原的原画，出现了多轮的雪地车，还有夜晚新亚特兰蒂斯原画出现过小型飞行器，载具应该会有的。。。吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  茛菪  
+##### 95#       发表于 2022-6-15 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273382&amp;ptid=2075886" target="_blank">qty 发表于 2022-6-15 10:04</a>
+
+希望主城的规模做大点，不求做成夜之城那样的规模，起码也要比诺维格瑞大吧，目前杯赛做过的最大的城市应该 ...</blockquote>
+最大的肯定是滚2的某个城市（Daggerfall Sentinel Wayrest三选一）。不算老滚2的话应该是Vivec最大。
+

@@ -1679,3 +1679,77 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 绿牛这是仿沙鲁吧
 
+
+
+*****
+
+####  DGIL  
+##### 58651#       发表于 2022-6-15 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下等一下。。这刚倒就封4皇会不会太快了？
+
+这巴基是政府捧来平衡的巴？
+
+绿牛这一波应该算打了个措手不及巴。两人刚被暴捶，虽然绿牛直接打应该也打得过但是应该不会这样虐菜吧？
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">尼卡果实不加赏金么？
+
+罗和基德又是什么定位？草帽一伙的人？
+
+*****
+
+####  死神狙击手  
+##### 58652#       发表于 2022-6-15 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278807&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-15 15:51</a>
+
+绿牛有点bug</blockquote>
+这一幕其实新暗行御史第十卷有个差不多的，而且画得更好
+
+*****
+
+####  DGIL  
+##### 58653#       发表于 2022-6-15 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277727&amp;ptid=98922" target="_blank">武男 发表于 2022-6-15 14:42</a>
+
+又不是贴吧版海贼王，海军不会这么无聊派一个大将去专门搞这个工作吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">看看新闻王摩根斯，想捧谁就能捧红，作为一个领域强者，虽应不及大将但是应该有自己的本事
+
+*****
+
+####  quanlix  
+##### 58654#       发表于 2022-6-15 16:33
+
+等一个三皇组团干爆黑胡子
+
+*****
+
+####  武男  
+##### 58655#       发表于 2022-6-15 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278807&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-15 15:51</a>
+
+绿牛有点bug</blockquote>
+好像绿牛是不大想理他们，不过他们死缠不休才把他们整成这样的？估计是要保留战斗力去找路飞他们吧。
+
+*****
+
+####  死神狙击手  
+##### 58656#       发表于 2022-6-15 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279187&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-15 16:14</a>
+
+这不是户愚吕
+
+上个版本的人用完就被乱打
+
+好惨</blockquote>
+户愚吕起码官方认证还是比当时的飞影强一点。
+
+*****
+
+####  逸yi  
+##### 58657#       发表于 2022-6-15 16:39
+
+翻页
+
