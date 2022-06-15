@@ -16292,3 +16292,42 @@ FZ也用过同样的说法（指花散），语义上这个翻译也没什么问
 [ ...</blockquote>
 FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用词习惯罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟一般作家不至于用这么直白的荤话吧，又不是中原五绿...
 
+
+
+*****
+
+####  exiaexa  
+##### 88398#       发表于 2022-6-15 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277288&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 14:09</a>
+FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用词习惯罢了毕竟一般作家不至于用这么 ...</blockquote>
+阿菌是属于那种，有一颗搞黄色的心
+但是词汇实在是太匮乏了，干脆就直接把车轮甩你脸上
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88399#       发表于 2022-6-15 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277313&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-15 14:11</a>
+
+阿菌是属于那种，有一颗搞黄色的心
+
+但是词汇实在是太匮乏了，干脆就直接把车轮甩你脸上
+
+ ...</blockquote>
+问题在于狮嫁这段出现在手游。
+
+哪怕是全年龄galgame，暗示某个角色受过非人虐待也没问题（指FSN新星），毕竟受众也是应该经历过不搞黄色就没法生存的那个时代（？），ADV搞点限制级内容是常态。
+
+但是在已经培育了一帮迦勒底皇帝的手机游戏里面，搞这种NTR剧情，就很...刺激<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+（蘑菇：反正你们也做不到全处全收了，那就更彻底些吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+蘑菇其实一直有着大肆描写黑深残的兴趣，男人的忠义，女人的贞洁，都可以为了营造黑暗的气氛随意嘲弄破坏，反正只要迎着光明的未来一路走过去人定胜天，中间的荆棘路再怎么不可名状也无所谓。
+
+而他在商业化妥协严重的这个时代坚持如此随心随意的创作，还能持续地吃着顶流红利，
+
+我愿称其为二次元暴君<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+

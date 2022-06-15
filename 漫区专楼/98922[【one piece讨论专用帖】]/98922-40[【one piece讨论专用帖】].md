@@ -1548,3 +1548,24 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 平时一般认为皇副也就比大将弱一点点</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是受伤状态吧，参考顶上的话就是皇副分心跟大将打的话就是非残即退场，马尔科带一堆队长和七武海一起围殴也拿残血的狗子没办法。不过后续大将风评不断降低，有很大的锅在藤虎上面，他没啥逼格，不是被小丑密谋杀害就是被J突船，还有一起推鸟笼。
 
+
+
+*****
+
+####  sfqjsml  
+##### 58639#       发表于 2022-6-15 14:18
+
+直接拿皇副给新大将垫脚有点半圆的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 58640#       发表于 2022-6-15 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276704&amp;ptid=98922" target="_blank">angelooo 发表于 2022-6-15 13:28</a>
+
+这漫画的通缉令摄影师的战斗力是谜</blockquote>
+尾田有设定过这专门拍照的人，动画中也有。
+<img src="https://nimg.ws.126.net/?url=http%3A%2F%2Fcrawl.ws.126.net%2F0895940711c7809ea4cf0538aec48e1c.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg" referrerpolicy="no-referrer">
+<img src="https://nimg.ws.126.net/?url=http%3A%2F%2Fcrawl.ws.126.net%2F090f5c4e3dd4cd1b2769253959aecdfa.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg" referrerpolicy="no-referrer">
+
