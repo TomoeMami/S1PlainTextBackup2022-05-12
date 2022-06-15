@@ -1138,3 +1138,58 @@ image.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273922&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-6-15 10:42</a></blockquote>
 还有路飞VS巴基呢
 
+
+
+*****
+
+####  死神狙击手  
+##### 58603#       发表于 2022-6-15 11:26
+
+巴基当四皇最严重的问题其实是“重复”
+
+十年前，尾田讲了一个笑话，某某人吃了一个10斤的汉堡，XXXX
+
+大家哈哈一笑
+
+然后今天他又讲了一个笑话。某某人吃了一个500斤的肉夹馍,XXXX
+
+……
+
+更糟糕的是，这样的话大家预判他几年后可能会讲一个1吨的春卷的笑话。。。
+
+*****
+
+####  河水  
+##### 58604#       发表于 2022-6-15 11:27
+
+尼卡果实把五皇变成搞笑角色来加战力，巴基大人本来就是搞笑角色，从根本上就赢了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 58605#       发表于 2022-6-15 11:28
+
+赏金
+
+<img src="https://img.saraba1st.com/forum/202206/15/112815ljjffbvbvdahathu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A1CA7AD0-A011-4C0D-8114-3A9A1C7D02E4.jpeg</strong> (388.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 11:28 上传
+
+绿牛
+
+<img src="https://img.saraba1st.com/forum/202206/15/112852di2ugu998gn933i8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6B6D4319-C340-45DF-918D-1D3E0EB28DFF.jpeg</strong> (835 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 11:28 上传
+
