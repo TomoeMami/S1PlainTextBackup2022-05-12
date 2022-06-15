@@ -16393,3 +16393,33 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 樱井就...写男人间的对手戏很gay，写男女CP就霸总配玛丽苏...其实黄雷的人设好像也有点这个趋势，不过很克制...只能说大妈不愧是FGO编剧组第一个露怯的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88405#       发表于 2022-6-15 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么强化的是bb帝王花和里里丝
+
+*****
+
+####  quanlix  
+##### 88406#       发表于 2022-6-15 17:04
+
+劲哦，4个强化本
+
+*****
+
+####  凌云三才  
+##### 88407#       发表于 2022-6-15 17:05
+
+结果大象没强化，真能整蛊
+
+*****
+
+####  qixinno2  
+##### 88408#       发表于 2022-6-15 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">证明大象技能完美 不需要强化
+

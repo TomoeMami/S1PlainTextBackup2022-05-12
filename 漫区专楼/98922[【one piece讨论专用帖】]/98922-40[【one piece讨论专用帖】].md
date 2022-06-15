@@ -1785,3 +1785,59 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 大将这么吊早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 海贼窃国鱼肉百姓几十年不闻不问，残局屁颠屁颠跑过来提KPI了，除暴安良不见人影，剪除政敌我重拳出击
 
+
+
+*****
+
+####  武男  
+##### 58661#       发表于 2022-6-15 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279811&amp;ptid=98922" target="_blank">uponutopia 发表于 2022-6-15 16:55</a>
+
+大将这么吊早干嘛去了 海贼窃国鱼肉百姓几十年不闻不问，残局屁颠屁颠跑过来提KPI了，除暴安良不见 ...</blockquote>
+喷这个的话可以先喷多弗朗明哥，要是战国知道自己干儿子被七武海给干了，会不会喊卡普就这样压着我。。
+
+*****
+
+####  火华火华火  
+##### 58662#       发表于 2022-6-15 17:03
+
+<img src="https://img.saraba1st.com/forum/202206/15/170003ou30xmx0utzat0h0.jpg" referrerpolicy="no-referrer">
+
+<strong>F9DF1AD771817F8536082B23D738ADA5.jpg</strong> (324.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 17:00 上传
+
+我三哥戏耍巨兵海贼团团长，差点干掉四皇草帽海贼团顶尖战力索隆，推进城与四皇路飞合力阻击麦哲伦，顶上之战在卡普，战国等一众海军高手眼皮底下救下艾斯
+这战绩混个皇副一点问题都没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  火华火华火  
+##### 58663#       发表于 2022-6-15 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279811&amp;ptid=98922" target="_blank">uponutopia 发表于 2022-6-15 16:55</a>
+大将这么吊早干嘛去了 海贼窃国鱼肉百姓几十年不闻不问，残局屁颠屁颠跑过来提KPI了，除暴安良不见 ...</blockquote>
+按理说海军海贼战力差太多了，早就该指挥大军犁庭扫穴了，还能让四皇在新世纪割据？
+只能说战国觉得多一事不如少一事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  触手皇帝  
+##### 58664#       发表于 2022-6-15 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276840&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-15 13:37</a>
+
+对岸论坛看到的一个当年连载时的“泄露”
+
+透露了七武海解散和巴基做四皇
+
+有点意思发上来</blockquote>
+万一沙鳄鱼真的是女人<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
