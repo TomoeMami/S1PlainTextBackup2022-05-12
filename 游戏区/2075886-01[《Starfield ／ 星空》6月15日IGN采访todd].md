@@ -1015,3 +1015,33 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 现在的游戏几乎没有继承最初游戏的一丝设计.
 
+
+
+*****
+
+####  ttks  
+##### 88#       发表于 2022-6-15 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277872&amp;ptid=2075886" target="_blank">naclken. 发表于 2022-6-15 14:53</a>
+
+万一可以开飞船，可以狗斗
+
+但是到了地面上依然不能开车……
+
+有辐射4那味儿了 ...</blockquote>
+你看预告片里有车吗？
+
+多半就是这样，反正有喷气背包，做车不如靠飞来的省事
+
+讲真，主城看起来也不大
+
+*****
+
+####  看脸  
+##### 89#       发表于 2022-6-15 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278111&amp;ptid=2075886" target="_blank">ttks 发表于 2022-6-15 15:08</a>
+
+你看预告片里有车吗？</blockquote>
+游戏设计中的通勤时间是固定的，预告片里没出现车，说明只能靠喷气背包，既然只能慢腾腾的飞，说明可活动区域小。。。<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">而且地面也不能开飞船，总之跌落神坛
+
