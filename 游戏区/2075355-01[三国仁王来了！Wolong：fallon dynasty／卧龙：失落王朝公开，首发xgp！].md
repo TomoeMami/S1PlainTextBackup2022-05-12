@@ -4055,3 +4055,18 @@ IGN这翻译怎么乱七八糟的，“妖魔”翻成“恶魔”，“死に�
 
 妖魔横行，主角会点道法五行也不奇怪
 
+
+
+*****
+
+####  amanohanei  
+##### 413#       发表于 2022-6-15 09:52
+
+ 本帖最后由 amanohanei 于 2022-6-15 09:53 编辑 
+
+话说光荣的话来点无双的农业重金属BGM吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+我还挺喜欢无双的BGM的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+访谈BGM挺有那味的，多来点
+
