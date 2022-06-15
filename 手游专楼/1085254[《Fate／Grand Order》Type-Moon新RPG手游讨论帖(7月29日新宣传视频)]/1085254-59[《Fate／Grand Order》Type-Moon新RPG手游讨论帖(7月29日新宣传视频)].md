@@ -16532,3 +16532,12 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 强化这么分配也太奇葩了吧，难道要打完再加强化？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88420#       发表于 2022-6-15 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">莉莉丝算是CCC最大赢家了吧 三个强化本 就差个宝具本了
+

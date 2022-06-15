@@ -72,3 +72,12 @@ hnn这个t台突击真就一首歌下播，好热闹啊<img src="https://static.
 <img src="https://p.sda1.dev/6/1027783a61ec00e89c28388882a2a480/CMP_20220615195349959.jpg" referrerpolicy="no-referrer">
 新rust赛
 
+
+
+*****
+
+####  poipanchao  
+##### 15007#       发表于 2022-6-15 19:20
+
+回来一看怎么met的solo都万棒了，有什么buff吗
+
