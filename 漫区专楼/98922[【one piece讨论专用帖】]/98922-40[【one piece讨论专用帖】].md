@@ -1620,3 +1620,15 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 这人就和wt当年创造的瞬移木工一样就是个带有梗性质的人物，怎么还纠结开战斗力了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能处刑海贼王的也是大将级吧
 
+
+
+*****
+
+####  huosoliton  
+##### 58646#       发表于 2022-6-15 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276936&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2022-6-15 13:43</a>
+
+k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢复伤势.而且queen真的是拖后腿给厨子破防 ...</blockquote>
+还是锦卫门厉害，被凯多霸缠爆锤，打完了还活蹦乱跳。k和q还古代种呢，一个星期了还没恢复。
+

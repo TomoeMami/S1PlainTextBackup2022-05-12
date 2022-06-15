@@ -1088,3 +1088,19 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 毕竟天地无缝往返对一款单机游戏而言,确实不一定有多大的玩法价值,但对一款太空探索类科幻游戏,实在太有人文意义了.
 
+
+
+*****
+
+####  tuiskusuomaa  
+##### 93#       发表于 2022-6-15 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277872&amp;ptid=2075886" target="_blank">naclken. 发表于 2022-6-15 14:53</a>
+
+万一可以开飞船，可以狗斗
+
+但是到了地面上依然不能开车……
+
+有辐射4那味儿了 ...</blockquote>
+原画是出现了车的，不清楚为什么没展示
+
