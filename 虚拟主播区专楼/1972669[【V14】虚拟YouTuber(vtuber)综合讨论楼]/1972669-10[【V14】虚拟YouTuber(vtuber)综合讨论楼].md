@@ -15463,3 +15463,14 @@ Masae姐贵（yugo）饮酒配信喝了20杯伏特加后崩溃撕皮...同期和
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  rzrbtk  
+##### 14999#       发表于 2022-6-15 10:28
+
+5期精神不安定度+1，逐渐追上与4期的距离了...！
+
+省一楼，作为lgbtq+友好群体，那当然是要支持旗下V的性别认同啊<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
