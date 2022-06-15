@@ -16377,3 +16377,19 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太好了，终于能看到国内品了过期1年的屎了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88404#       发表于 2022-6-15 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277683&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-15 14:39</a>
+
+我倒觉得平台无所谓，确实是环境有区别，国内这种宣誓所有权拒绝一切环保色的环境大概确实是独一份
+
+261 ...</blockquote>
+是的，比如HF线最后大战麻婆，哪怕士郎内心活动“我开始喜欢这个名叫言峰绮礼的男人了”，我也只能感受到燃和强者间惺惺相惜，腐向的遐想倒没多少。
+
+樱井就...写男人间的对手戏很gay，写男女CP就霸总配玛丽苏...其实黄雷的人设好像也有点这个趋势，不过很克制...只能说大妈不愧是FGO编剧组第一个露怯的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1767,3 +1767,21 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 这巴基是政府捧来平衡的巴？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看贴吧翻译好像是绿牛不大想理他们，不过死缠不休，不把他们收拾了就很没面子。说不定QK还有什么负面buff吧。狗子让他别乱来是怕他下手太狠了？
 
+
+
+*****
+
+####  火华火华火  
+##### 58659#       发表于 2022-6-15 16:52
+
+烬这太惨了，装了一和之国，结果被佐龙和绿牛秒了两次
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  uponutopia  
+##### 58660#       发表于 2022-6-15 16:55
+
+大将这么吊早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 海贼窃国鱼肉百姓几十年不闻不问，残局屁颠屁颠跑过来提KPI了，除暴安良不见人影，剪除政敌我重拳出击
+
