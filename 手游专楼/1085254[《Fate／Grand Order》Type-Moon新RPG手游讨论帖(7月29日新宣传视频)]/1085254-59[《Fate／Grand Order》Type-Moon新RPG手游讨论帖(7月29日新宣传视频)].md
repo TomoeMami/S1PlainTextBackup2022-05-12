@@ -16523,3 +16523,12 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 反正在运营眼中，四星那个概率已经够好抽了 ...</blockquote>
 个人觉得最好的解决方式是学隔壁母猪链接那样，每10抽给10个可以换当期角色的道具，凑够300就换一个。如果保底前抽到当期角色就马上清零，转换成qp，抽到当期UP后就不在获得。当然更多的是摆就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88419#       发表于 2022-6-15 19:06
+
+强化这么分配也太奇葩了吧，难道要打完再加强化？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
