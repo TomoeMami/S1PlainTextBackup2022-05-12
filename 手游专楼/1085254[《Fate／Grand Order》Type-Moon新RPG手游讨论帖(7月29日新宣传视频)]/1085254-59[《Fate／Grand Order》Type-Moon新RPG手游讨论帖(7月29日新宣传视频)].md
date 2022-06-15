@@ -16331,3 +16331,12 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 我愿称其为二次元暴君<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  yangun22  
+##### 88400#       发表于 2022-6-15 14:26
+
+蘑菇管你中国阿宅心灵有多脆弱啊，日本去年有带节奏的基本直接被当傻逼无视掉的，只能说国内创作环境太差，上有老爷下有巨婴，一边说着不喜欢被人管一边要去给作者划红线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
