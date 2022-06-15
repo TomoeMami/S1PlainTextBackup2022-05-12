@@ -971,3 +971,30 @@ image.png
 
 尾田有强迫症V
 
+
+
+*****
+
+####  赤魔法师  
+##### 58586#       发表于 2022-6-15 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271383&amp;ptid=98922" target="_blank">Acatv 发表于 2022-6-15 02:21</a>
+
+尾田让御田爹活到现在 不会显得剧情更诡异吗 合着全家没有一个正常人是吧 ...</blockquote>
+问就是之前失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 58587#       发表于 2022-6-15 08:41
+
+<img src="https://img.saraba1st.com/forum/202206/15/084044fewsdex2288wswee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 08:40 上传
+
+来看看巴基皇帝麾下真正的皇副吧：bigmom+雷鸣八卦，未来海军大将克比在后面陪笑
+
