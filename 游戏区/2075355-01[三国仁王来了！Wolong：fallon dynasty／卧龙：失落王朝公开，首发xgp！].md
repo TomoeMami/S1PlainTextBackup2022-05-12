@@ -4672,3 +4672,38 @@ kt这次国内宣发和本地化狠狠发力，诚意真的足
 【#卧龙将推出中文配音# 怪物取材自山海经】日前，日本光荣特库摩宣布了《仁王》系列工作室 Team NINJA 的 ...</blockquote>
 “扭转乾坤为主题的策略元素”怎么和动作游戏结合啊
 
+
+
+*****
+
+####  黑修士  
+##### 468#       发表于 2022-6-15 19:46
+
+话说中文配音都有了，自捏的主角不会还是哑巴吧。难道会分男女各自配音一套台词<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 469#       发表于 2022-6-15 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282084&amp;ptid=2075355" target="_blank">shudushimo 发表于 2022-6-15 19:43</a>
+
+“扭转乾坤为主题的策略元素”怎么和动作游戏结合啊</blockquote>
+无双那套？打倒某某小BOSS决定是否发动我方计策/阻止敌方计谋之类的？
+
+*****
+
+####  医生狼多  
+##### 470#         楼主| 发表于 2022-6-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282126&amp;ptid=2075355" target="_blank">黑修士 发表于 2022-6-15 19:46</a>
+话说中文配音都有了，自捏的主角不会还是哑巴吧。难道会分男女各自配音一套台词 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无名小卒是个哑巴也很合理吧
+
+*****
+
+####  TTAA  
+##### 471#       发表于 2022-6-15 19:52
+
+难道说地图关卡设计不再是以前魂类一个篝火一个复活点那种了？还有之前提到的士气系统也挺迷的，真就无双那个模式吗
+

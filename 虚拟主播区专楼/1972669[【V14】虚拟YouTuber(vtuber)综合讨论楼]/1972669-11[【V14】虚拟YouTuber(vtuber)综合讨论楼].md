@@ -91,3 +91,14 @@ hnn这个t台突击真就一首歌下播，好热闹啊<img src="https://static.
 met我看的那次3D回往后好像一直有万棒潜力。
 加点buff就能上的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15009#       发表于 2022-6-15 19:41
+
+ 本帖最后由 Ketestrait 于 2022-6-15 19:44 编辑 
+
+met前两个月周日早安杂谈就有六七千观众了，不算奥数魔刃俨然774第一人，rust开了之后直接上万<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
