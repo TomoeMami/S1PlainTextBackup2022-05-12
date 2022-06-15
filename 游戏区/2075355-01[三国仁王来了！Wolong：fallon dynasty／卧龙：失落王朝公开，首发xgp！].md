@@ -4757,3 +4757,19 @@ kt这次国内宣发和本地化狠狠发力，诚意真的足
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好，牛逼！
 
+
+
+*****
+
+####  edenpenn  
+##### 478#       发表于 2022-6-15 20:53
+
+急，感觉身上有赤兔马在爬
+
+*****
+
+####  shimotsuki14  
+##### 479#       发表于 2022-6-15 20:54
+
+early 2023，好急，好急啊……
+

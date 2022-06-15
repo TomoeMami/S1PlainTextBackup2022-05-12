@@ -16616,3 +16616,17 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 1个才对  无课歪9个基本不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 88428#       发表于 2022-6-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282604&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-15 20:25</a>
+
+9个不恶心  万一歪出一个的可能性不是没有  这样运营不是血亏
+
+1个才对  无课歪9个基本不可能 ...</blockquote>
+折中一下，7周年发7个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
