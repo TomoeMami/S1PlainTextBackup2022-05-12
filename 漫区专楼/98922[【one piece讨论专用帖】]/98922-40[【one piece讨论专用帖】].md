@@ -1087,3 +1087,28 @@ image.png
 
 当年yxh到底是如何想到这一层的呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hamartia  
+##### 58599#       发表于 2022-6-15 09:56
+
+<blockquote>仟音一心 发表于 2022-6-15 09:43
+戏服熬出头了</blockquote>
+要不是这一出，还在游戏区玩机器人大战呢
+
+论戏服抄底的可持续性
+
+*****
+
+####  Algie  
+##### 58600#       发表于 2022-6-15 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56272796&amp;ptid=98922" target="_blank">klzxs 发表于 2022-06-15 09:21:45</a>
+巴基的果实如果能觉醒，那才是真正的世界第一剑豪（对物限定）
+
+没有东西分解不了 ...</blockquote>巴基和罗的能力实际上重复了，觉醒要是分解别人那不就是罗平a一个room的事吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
