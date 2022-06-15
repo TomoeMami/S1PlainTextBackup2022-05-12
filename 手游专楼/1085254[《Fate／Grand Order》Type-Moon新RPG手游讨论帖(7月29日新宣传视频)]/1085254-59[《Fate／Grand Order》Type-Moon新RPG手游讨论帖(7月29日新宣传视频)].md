@@ -16441,3 +16441,40 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 这次抽飞嫂真是噩梦了。我已经看到泳装得未来。。
 
+
+
+*****
+
+####  areklose  
+##### 88411#       发表于 2022-6-15 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">up得是大象。菜成狗得也是大象。活动也是大象。为什么偏偏不强化大象
+
+*****
+
+####  Jamaisvu  
+##### 88412#       发表于 2022-6-15 17:50
+
+CCC四人组强化，难不成预示着又要出FE相关的活动了吗？2.6的糖果藤蔓是不是该落地了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+圣杯战线的卡池持续到月底，不过2.3通关才能进入的活动也是这个月吧，估计下周三开幕？大概率是五星徐福吧...
+
+大象池其实也不错，刚经历两轮限定五星男人，银根紧缩，可以省钱了...今年的泳装四星黑锅不知道是什么样的腥风血雨呢<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 88413#       发表于 2022-6-15 17:53
+
+大象缺的是技能本吗？大象最需要的是一个白值本把攻击力先提个2000点再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88414#       发表于 2022-6-15 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56280727&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-6-15 17:53</a>
+
+大象缺的是技能本吗？大象最需要的是一个白值本把攻击力先提个2000点再说话说数据组里一定有樱厨吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有那么一种可能 她都缺？
+
