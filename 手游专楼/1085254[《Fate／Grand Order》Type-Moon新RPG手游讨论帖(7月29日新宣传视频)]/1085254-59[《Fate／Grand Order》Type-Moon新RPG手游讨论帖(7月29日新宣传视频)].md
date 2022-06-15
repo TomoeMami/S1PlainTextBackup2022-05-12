@@ -16642,3 +16642,12 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 折中一下，7周年发7个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1-8区别不大
 
+
+
+*****
+
+####  areklose  
+##### 88430#       发表于 2022-6-15 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能再折中一下，每周任务送一个盘子碎片，7个合成一个整得。盘子100抽送一个。然后一个盘子能换四星
+

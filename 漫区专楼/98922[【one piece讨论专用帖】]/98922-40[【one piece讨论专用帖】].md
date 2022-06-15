@@ -2079,3 +2079,27 @@ ee
 同样是植物系，乌索普怎么这么弟弟</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">大神有霸王色运气就够了，不过绿牛是本身有实力，下手比狗子还要极端得多，狗子对待被俘虏的海贼好像也没他这么狠啊。可能是藤虎脾气太好了，绿牛那性格不惯着其他人？
 
+
+
+*****
+
+####  武男  
+##### 58691#       发表于 2022-6-15 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56283327&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2022-6-15 21:19</a>
+
+植物系的话，天敌不就是火啊冰啊之类的么，还好跟赤犬是同一阵营，不然岂不是被岩浆吊起来打。 ...</blockquote>
+这难说吧，斑爷带九尾都被初代给镇压了，不过绿牛这鸟人看起来脾气不算太好，对上海贼可能没有藤虎这么摸？狗子让他别惹事，是觉得他会连俘虏都不带回来？
+
+*****
+
+####  大天  
+##### 58692#       发表于 2022-6-15 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56283175&amp;ptid=98922" target="_blank">free 发表于 2022-6-15 21:08</a>
+
+怎么今天哪都在说巴基是洛克斯的儿子
+
+我觉得巴基当上四皇应该是帮助革命军拯救熊出了力吧，大概会 ...</blockquote>
+巴基不是靠虚张声势吗，这样的小丑通常能窃取最后的胜利果实。
+
