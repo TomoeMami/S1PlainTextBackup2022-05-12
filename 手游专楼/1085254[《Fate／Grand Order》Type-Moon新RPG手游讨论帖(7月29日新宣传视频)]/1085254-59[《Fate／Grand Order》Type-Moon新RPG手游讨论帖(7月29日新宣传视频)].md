@@ -16695,3 +16695,15 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 3个月一个五星？YLS要亏到坐公交了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你看错了 一周一个盘子碎片 七周才能合出一个盘子 十个盘子才能换一个五星
 
+
+
+*****
+
+####  khxooo  
+##### 88435#       发表于 2022-6-15 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284580&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-15 22:49</a>
+
+你看错了 一周一个盘子碎片 七周才能合出一个盘子 十个盘子才能换一个五星 ...</blockquote>
+也不是不可以？这样可以更大程度的增加客户的粘合度<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
