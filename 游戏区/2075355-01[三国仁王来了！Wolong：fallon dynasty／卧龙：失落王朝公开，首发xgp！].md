@@ -4723,3 +4723,14 @@ kt这次国内宣发和本地化狠狠发力，诚意真的足
 
 越来越期待了，希望策略成分不要变成鸡肋
 
+
+
+*****
+
+####  医生狼多  
+##### 474#         楼主| 发表于 2022-6-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282242&amp;ptid=2075355" target="_blank">嘉术2015 发表于 2022-6-15 19:54</a>
+这次的本地化能比真三8好吗</blockquote>
+358当时本地化是不是成梗了？我记得有个寸步不让啥的?
+
