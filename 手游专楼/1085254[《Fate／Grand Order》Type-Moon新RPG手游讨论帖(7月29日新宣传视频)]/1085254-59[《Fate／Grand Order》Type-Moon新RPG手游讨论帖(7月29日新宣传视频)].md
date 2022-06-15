@@ -16368,3 +16368,12 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">其实他要真下手了也行啊 被开发后狮子死了 欲求不满的色茄子
 
+
+
+*****
+
+####  枪聆弹语  
+##### 88403#       发表于 2022-6-15 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太好了，终于能看到国内品了过期1年的屎了
+

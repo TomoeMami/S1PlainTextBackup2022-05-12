@@ -1601,3 +1601,22 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 破案了，红发当初要和五老星谈的某个海贼就是巴基<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈玉礼  
+##### 58644#       发表于 2022-6-15 15:13
+
+这人就和wt当年创造的瞬移木工一样就是个带有梗性质的人物，怎么还纠结开战斗力了
+
+*****
+
+####  武男  
+##### 58645#       发表于 2022-6-15 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278192&amp;ptid=98922" target="_blank">陈玉礼 发表于 2022-6-15 15:13</a>
+
+这人就和wt当年创造的瞬移木工一样就是个带有梗性质的人物，怎么还纠结开战斗力了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能处刑海贼王的也是大将级吧
+
