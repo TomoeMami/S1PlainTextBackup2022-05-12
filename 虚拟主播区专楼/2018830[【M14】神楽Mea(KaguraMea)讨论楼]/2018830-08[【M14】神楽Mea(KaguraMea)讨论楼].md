@@ -9040,3 +9040,272 @@ luna同志作为直播员讲这个真的不好。<img src="https://static.saraba
 
  确实有点偶像味了
 
+
+
+*****
+
+####  十九号大侠  
+##### 11378#       发表于 2022-6-14 12:23
+
+又赚了个3D服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  十九号大侠  
+##### 11379#       发表于 2022-6-14 12:24
+
+又赚了个3D服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MrHPQ  
+##### 11380#       发表于 2022-6-14 12:25
+
+爱抖露，，，
+
+*****
+
+####  肥到终点  
+##### 11381#       发表于 2022-6-14 14:06
+
+按这视线来看吊人居然是第二高的
+
+*****
+
+####  gongge666  
+##### 11382#       发表于 2022-6-14 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56262990&amp;ptid=2018830" target="_blank">肥到终点 发表于 2022-6-14 14:06</a>
+
+按这视线来看吊人居然是第二高的</blockquote>
+这要真是身高看这目光，身高差距不是一般的大，这黄毛起码在看比自己矮10公分的人，团长在看比自己高10公分的人
+
+*****
+
+####  肥到终点  
+##### 11383#       发表于 2022-6-14 14:12
+
+ 本帖最后由 肥到终点 于 2022-6-14 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56263036&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-6-14 14:09</a>
+
+这要真是身高看这目光，身高差距不是一般的大，这黄毛起码在看比自己矮10公分的人，团长在看比自己高10公 ...</blockquote>
+180.170.160？
+
+还是再降格一下到170.160.150
+
+150也太矮了
+
+我记得之前好像吊人有切片说过身高155~160左右
+
+*****
+
+####  古战场亡魂  
+##### 11384#       发表于 2022-6-14 14:14
+
+犬山设定158，组长设定156，mea设定157。但是联动的时候mea是明显比组长高的。
+
+*****
+
+####  肥到终点  
+##### 11385#       发表于 2022-6-14 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56263109&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-14 14:14</a>
+
+犬山设定158，组长设定156，mea设定157。但是联动的时候mea是明显比组长高的。 ...</blockquote>
+找到切片了
+[https://www.bilibili.com/video/B ... 4a032f52b7b9ecb3363](https://www.bilibili.com/video/BV1xJ411W7Ko?spm_id_from=333.337.search-card.all.click&amp;vd_source=b3ab89c066c1f4a032f52b7b9ecb3363)
+
+给ptr道歉那期
+
+说希望身高160，应该是160+希望矮一点
+
+*****
+
+####  古战场亡魂  
+##### 11386#       发表于 2022-6-14 15:34
+
+ 本帖最后由 古战场亡魂 于 2022-6-14 15:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56263183&amp;ptid=2018830" target="_blank">肥到终点 发表于 2022-6-14 14:22</a>
+
+找到切片了
+[https://www.bilibili.com/video/BV1xJ411W7Ko?spm_id_from=333.337.search-card.all.click&amp;v](https://www.bilibili.com/video/BV1xJ411W7Ko?spm_id_from=333.337.search-card.all.click&amp;v) ...</blockquote>
+mea说的模棱两可的东西多了去了。单人直播身高怎么设定都行。
+
+这种多人最后还是要调试成本人身高差不多才行。
+
+要不然站位和距离会变的很奇怪。
+
+希望身高160，也可以解成本来157。
+
+*****
+
+####  斗斗一号  
+##### 11387#       发表于 2022-6-14 16:14
+
+这套3D看着还不错
+
+*****
+
+####  黒長直姫  
+##### 11388#       发表于 2022-6-14 16:58
+
+ 本帖最后由 黒長直姫 于 2022-6-14 17:00 编辑 
+
+太感动了 我居然是在Q群看到人发的  还有人传播 
+
+我羊还没过气！
+
+32461884F42A7956350CFB457635A5A2.jpg
+(307.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-14 16:57 上传
+
+<img src="https://img.saraba1st.com/forum/202206/14/165753sd122jz9sic7vz82.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|关注V友吧谢谢喵|
+
+查看全部评分
+
+*****
+
+####  古战场亡魂  
+##### 11389#       发表于 2022-6-14 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是明开暗引那套。
+
+你要说这流量有用吧也没多有用。
+
+要说没用吧，确实有那么些点击。
+
+不过不在官号上也就那样。
+
+官号现在运营可太保守了，之前啥都敢上，现在啥都不敢上。
+
+*****
+
+####  黒長直姫  
+##### 11390#       发表于 2022-6-14 17:10
+
+只能说活着就好 主播自己都不整活了 
+
+*****
+
+####  古战场亡魂  
+##### 11391#       发表于 2022-6-14 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265756&amp;ptid=2018830" target="_blank">黒長直姫 发表于 2022-6-14 17:10</a>
+
+只能说活着就好 主播自己都不整活了</blockquote>
+怎么就不整活了，你但凡能去墙外看一眼，都知道活多的不得了。
+
+*****
+
+####  古战场亡魂  
+##### 11392#       发表于 2022-6-14 17:14
+
+ 本帖最后由 古战场亡魂 于 2022-6-14 17:22 编辑 
+
+官组保守到能把小夜子的歌词 好想死  翻译成 好想离开。
+
+我只能说真的已经在往b站番剧区发展了。实在不行上日文字幕，然后加中文cc字幕得了。
+
+*****
+
+####  游山赫乃丈丶  
+##### 11393#       发表于 2022-6-14 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">好 又赚了一套3D皮 然而这女人基本不吧皮拿出来穿
+
+*****
+
+####  黒長直姫  
+##### 11394#       发表于 2022-6-14 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265792&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-14 17:12</a>
+
+怎么就不整活了，你但凡能去墙外看一眼，都知道活多的不得了。</blockquote>
+啊 我的我的
+
+*****
+
+####  clvan_  
+##### 11395#       发表于 2022-6-14 17:48
+
+这3d最后大概率也带不走，能不能赚两套live2d新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 11396#       发表于 2022-6-14 18:12
+
+ 本帖最后由 古战场亡魂 于 2022-6-14 18:24 编辑 
+
+live2d也用不上着sony啊，mea自己品味还行啊，拿曲绘自己做衣服就是了。
+
+最近出的那套多发型内外三套的衣服实用性可高了，还能用来玩梗。这1年限定的玩意，真是一眼看到头。
+
+3d偶像皮不是自己的，歌不是自己的，除非mea把自己卖给sony。
+
+这一年就算是个人素质提升了，唱歌不知道会不会有老师教，这舞蹈反正确实已经学到了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 11397#       发表于 2022-6-14 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56265820&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-14 17:14</a>
+官组保守到能把小夜子的歌词 好想死  翻译成 好想离开。
+
+我只能说真的已经在往b站番剧区发展了。实在不行上 ...</blockquote>
+也还行吧，现在新观众追捧炒作的v，把庄司的东西都放上来估计要被说爹像儿子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古战场亡魂  
+##### 11398#       发表于 2022-6-14 18:51
+
+<blockquote>往世雷书 发表于 2022-6-14 18:19
+也还行吧，现在新观众追捧炒作的v，把庄司的东西都放上来估计要被说爹像儿子
+
+—— 来自 S1Fun ...</blockquote>
+和新观众没关系，连老观众都满足不了吧。实在不行把fa fa账号上的某些好的单人投稿或者和犬山的稿子改成和官组的联合投稿算了。
+
+*****
+
+####  rosevalley46  
+##### 11399#       发表于 2022-6-14 19:03
+
+反正到目前索尼这个团你麻还是不亏的
+
+*****
+
+####  肚子疼了  
+##### 11400#       发表于 2022-6-14 21:15
+
+？？？这不是个漫才企划么，怎么开始学偶像唱跳了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yywzjsw  
+##### 11401#       发表于 2022-6-15 08:59
+
+底层女偶像不就是搞笑角色（
+
