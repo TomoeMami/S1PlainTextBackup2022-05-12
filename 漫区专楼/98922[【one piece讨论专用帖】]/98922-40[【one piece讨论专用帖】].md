@@ -1290,3 +1290,26 @@ image.png
 —— 来自 S1Fun</blockquote>
 阿金是one piece
 
+
+
+*****
+
+####  死神狙击手  
+##### 58616#       发表于 2022-6-15 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275341&amp;ptid=98922" target="_blank">hamartia 发表于 2022-6-15 11:59</a>
+
+仁侠人物之前有了，就是藤虎
+
+原田芳雄那不就是贼经典的《追捕》的史村警长</blockquote>
+追捕不就是因为最后那老头没法逮捕，一堆顶罪的人才需要当场正法么。这才是任侠。
+
+藤虎的秩序范畴更多。
+
+*****
+
+####  hkguty  
+##### 58617#       发表于 2022-6-15 12:18
+
+应该是无赖吧？或者是自作主张的想要偷偷上岛把草帽全杀了，这样可能还挺有意思
+

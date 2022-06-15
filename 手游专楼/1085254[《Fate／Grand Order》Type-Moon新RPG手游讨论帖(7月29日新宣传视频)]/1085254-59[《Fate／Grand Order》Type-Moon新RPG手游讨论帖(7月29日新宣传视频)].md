@@ -16092,3 +16092,17 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 奶一个下午圣杯战线UP大象和水BB，因为一个常驻角色肯定撑不起流水，水BB也好久没UP了，这俩也都是CCC体系 ...</blockquote>
 现在5星不是都没有双up了吗
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88384#       发表于 2022-6-15 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275512&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-15 12:08</a>
+
+现在5星不是都没有双up了吗</blockquote>
+我的锅<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（不过个别选择强迫症可能会更纠结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
