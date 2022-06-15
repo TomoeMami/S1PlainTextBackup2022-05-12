@@ -16565,3 +16565,19 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">奶一口周年一人发一个盘子让99%的人干瞪眼
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88423#       发表于 2022-6-15 20:00
+
+下棋第一天的难度感觉比以前的平均水平低了，看人说AI变智能了，完全没体会到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88424#       发表于 2022-6-15 20:04
+
+主要是对面等级低 直接吃了对面斯卡哈的一发宝具竟然没打死我
+
