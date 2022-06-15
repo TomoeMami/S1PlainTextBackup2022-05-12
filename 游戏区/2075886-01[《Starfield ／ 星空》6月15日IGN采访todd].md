@@ -962,3 +962,56 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸接踵摩肩,那才有大都市繁华地带的烟火气呐. ...</blockquote>
 原来兄弟鬼不鬼数人头的太nb了。。。那育碧大革命赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  naclken.  
+##### 84#       发表于 2022-6-15 14:53
+
+万一可以开飞船，可以狗斗
+
+但是到了地面上依然不能开车……
+
+有辐射4那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  codecloud  
+##### 85#       发表于 2022-6-15 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277840&amp;ptid=2075886" target="_blank">BK10 发表于 2022-6-15 14:50</a>
+
+原来兄弟鬼不鬼数人头的太nb了。。。那育碧大革命赢麻了</blockquote>
+数人头?兄弟.2077新手村出门体感好,仅仅是因为人多?是因为任务\剧情和环境结合完美.
+
+一个城中村的中下层屌丝,下楼就是黑白混淆的世界,打黑拳赛,吃大排档,进黑诊所,然后钻进大佬停在路边的高档汽车,开始了野鸡变凤凰的幻想之旅.一条龙服务完美的把一个小混混的日常给融入了城市的喧嚣中.
+
+这种真实流畅的剧情安排和环境的融合度是千篇一律的ai脚本能比拟的?
+
+*****
+
+####  ttks  
+##### 86#       发表于 2022-6-15 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277616&amp;ptid=2075886" target="_blank">codecloud 发表于 2022-6-15 14:35</a>
+
+所以说,你在一个设计上就没考虑过剧情的多人互动游戏里追求和ai的互动是图啥...
+
+这个游戏最大的矛盾就是 ...</blockquote>
+我怎么记得当年这游戏最初众筹的时候就是打着单机旗号做卖点的？
+
+最初好像就是新的单机自由枪骑兵啊？要知道作为网游那时已经有eve了
+
+*****
+
+####  codecloud  
+##### 87#       发表于 2022-6-15 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277960&amp;ptid=2075886" target="_blank">ttks 发表于 2022-6-15 14:58</a>
+
+我怎么记得当年这游戏最初众筹的时候就是打着单机旗号做卖点的？</blockquote>
+因为就我所知,这游戏就至少全新重做过3遍了...甚至引擎都换过两次<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+现在的游戏几乎没有继承最初游戏的一丝设计.
+

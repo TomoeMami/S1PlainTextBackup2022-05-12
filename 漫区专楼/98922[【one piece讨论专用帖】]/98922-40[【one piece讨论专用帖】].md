@@ -1592,3 +1592,12 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 所以这家伙的战斗力到底是什么级别的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是贴吧版海贼王，海军不会这么无聊派一个大将去专门搞这个工作吧
 
+
+
+*****
+
+####  csd  
+##### 58643#       发表于 2022-6-15 14:50
+
+破案了，红发当初要和五老星谈的某个海贼就是巴基<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
