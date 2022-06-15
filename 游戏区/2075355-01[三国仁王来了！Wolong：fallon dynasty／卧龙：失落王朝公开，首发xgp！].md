@@ -4734,3 +4734,26 @@ kt这次国内宣发和本地化狠狠发力，诚意真的足
 这次的本地化能比真三8好吗</blockquote>
 358当时本地化是不是成梗了？我记得有个寸步不让啥的?
 
+
+
+*****
+
+####  FTFTd  
+##### 475#       发表于 2022-6-15 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">会是哪个时期的曹操呢
+
+*****
+
+####  豚丝阿姐  
+##### 476#       发表于 2022-6-15 20:47
+
+日本人才懂三国游戏啊
+
+*****
+
+####  丹德里恩  
+##### 477#       发表于 2022-6-15 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好，牛逼！
+
