@@ -1485,3 +1485,21 @@ image.png
 
 k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢复伤势.而且queen真的是拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">给厨子破防还不如黑玛利亚和大和，至少能让厨子飙血.厨子纯粹是打他累瘫了
 
+
+
+*****
+
+####  bard  
+##### 58634#       发表于 2022-6-15 13:52
+
+巴基是第一个搞笑角色，当个四皇没问题
+
+感觉后面得正义三打一，黑胡子危
+
+*****
+
+####  owada  
+##### 58635#       发表于 2022-6-15 13:55
+
+提前恭喜海贼王巴基了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
