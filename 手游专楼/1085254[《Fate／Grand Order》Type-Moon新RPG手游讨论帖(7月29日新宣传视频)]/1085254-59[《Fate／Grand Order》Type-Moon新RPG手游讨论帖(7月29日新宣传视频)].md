@@ -16000,3 +16000,15 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 大象其实不弱了，就是技能组太过于万金油，攻击白值又不够高，往上有红卡新贵暗狐，往下有老牌4星战神海妈，出场率被严重挤压了而已。单看宝具和技能其实算是很强了，光炮宝具前置30减防后置回血加一回合无敌（一堆后置减防、色卡down的哭晕在厕所），一技能20群冲20领导力每回合5星，二技能1回合嘲讽减伤加3回合30攻，三技能一回合无敌加30黄金律（副作用的技能封印基本无视，最后一个放就是了），就这还是完全没被强化过的状态。光看这技能组怎么不比某些2022年了开了强化本还挂着4星技能组的5星强得多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88377#       发表于 2022-6-15 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56272147&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-6-15 08:23</a>
+大象其实不弱了，就是技能组太过于万金油，攻击白值又不够高，往上有红卡新贵暗狐，往下有老牌4星战神海妈 ...</blockquote>
+你说的很对，可是她atk不过万，还是个系数1.0的mc
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
