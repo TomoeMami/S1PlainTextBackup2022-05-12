@@ -2283,3 +2283,12 @@ ee
 四皇现在还有什么逼格呀，绿牛单手团灭皇团中层全员，我看这海军是养寇自重，还吹什么打不进和之国笑死人 ...</blockquote>
 K和Q已经不是中层了，算领导班子了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  丢了五块钱  
+##### 58710#       发表于 2022-6-16 00:36
+
+现在这个世界上有人能比五皇强吗，绿牛开局送人头是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

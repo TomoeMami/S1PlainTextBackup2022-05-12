@@ -16717,3 +16717,22 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 怎么日服楼都有讨论国服节奏的，我还以为点错了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 顺便我去采访了下几个玩国服的朋友，他们表示，我们就是见不到一点自己带入主角不顺，菌类没让我们爽，就是恶心人，马修非常绿茶（这点我就非常不理解了。。。）
 
+
+
+*****
+
+####  alucardcz  
+##### 88437#       发表于 2022-6-16 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56285307&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-15 23:59</a>
+
+也不是不可以？这样可以更大程度的增加客户的粘合度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而yls肯定觉得没这个必要
+
+*****
+
+####  qixinno2  
+##### 88438#       发表于 2022-6-16 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这种兑换的五星是没有羁绊的 还是要真金白银的去氪才有羁绊
+
