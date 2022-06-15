@@ -1965,3 +1965,12 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 乌索普咋就不会用寄生植物呢
 
+
+
+*****
+
+####  Freemasons  
+##### 58678#       发表于 2022-6-15 18:50
+
+大密宝是one piece，巴基的四分五裂恰好是one piece的反面，细思恐极<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

@@ -62,3 +62,13 @@ hnn这个t台突击真就一首歌下播，好热闹啊<img src="https://static.
 
 好像数据是好了些。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 15006#       发表于 2022-6-15 18:54
+
+<img src="https://p.sda1.dev/6/1027783a61ec00e89c28388882a2a480/CMP_20220615195349959.jpg" referrerpolicy="no-referrer">
+新rust赛
+

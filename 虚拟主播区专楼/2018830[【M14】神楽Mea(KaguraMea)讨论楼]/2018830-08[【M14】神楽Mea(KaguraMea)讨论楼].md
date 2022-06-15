@@ -9327,3 +9327,12 @@ live2d也用不上着sony啊，mea自己品味还行啊，拿曲绘自己做衣�
 
 mea在一堆底边里面，他会有什么感谢吗
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11404#       发表于 2022-6-15 19:00
+
+[https://www.sony-semicon.co.jp/i ... =sns_j_tw_220615_01](https://www.sony-semicon.co.jp/info/2022/2022061501.html?cid=sns_j_tw_220615_01)
+
