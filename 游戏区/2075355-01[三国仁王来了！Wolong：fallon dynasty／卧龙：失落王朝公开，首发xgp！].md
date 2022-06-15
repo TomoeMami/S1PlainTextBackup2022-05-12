@@ -4833,3 +4833,14 @@ early 2023，好急，好急啊……
 这次会是啥理由，喝张角的符水喝坏了，所以要杀黄巾报仇吗 ...</blockquote>
 残兵之首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 485#         楼主| 发表于 2022-6-16 00:12
+
+今晚发布会的采访应该是杉果做的
+
+【《卧龙：苍天陨落》中文配音确认！怪物灵感源自《山海经》，动作设计参考中华武术-哔哩哔哩】 https://b23.tv/Ui40WdZ
+
