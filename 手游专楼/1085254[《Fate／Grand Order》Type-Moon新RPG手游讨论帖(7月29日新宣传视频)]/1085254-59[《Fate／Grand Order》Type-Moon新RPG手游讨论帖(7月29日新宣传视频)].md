@@ -16049,3 +16049,46 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 奶一个下午圣杯战线UP大象和水BB，因为一个常驻角色肯定撑不起流水，水BB也好久没UP了，这俩也都是CCC体系 ...</blockquote>
 现在保底池的机制不能如此pick up吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88381#       发表于 2022-6-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56274930&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-15 11:34</a>
+
+讲真261已经算2.6里问题最小的了，而且又不是狮子真的把马修艹了，绿个毛呢绿 ...</blockquote>
+我感觉这次节奏比预期大的原因除了菌类恶趣味冲击力大，BGO的翻译也有点拱火，翻译成“你今晚就好好等着吧”甚至“你今晚洗干净等着我”都不至于那么浮想联翩，非得“碧玉破瓜”，没轻没重的...
+
+<img src="https://img.saraba1st.com/forum/202206/15/115013jqrboq333al83z3o.jpg" referrerpolicy="no-referrer">
+
+<strong>ekQ2q-elv5KuT1kShs-87.jpg</strong> (31.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 11:50 上传
+
+其实阿B的翻译一直喜欢搞事情，之前B漫翻译中电锯人的大力、辉夜的情到深处，都有种乐子人搞黑粉营销的感觉...
+
+*****
+
+####  Jamaisvu  
+##### 88382#       发表于 2022-6-15 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275258&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-6-15 11:54</a>
+
+现在保底池的机制不能如此pick up吧</blockquote>
+啊对，我疏忽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了一下之前凯撒的圣杯战线，UP大王和神祖，是日替召唤，看了双UP剧毒池已成绝唱。
+
+（运营：我得感觉出个四星常驻月癌<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  khxooo  
+##### 88383#       发表于 2022-6-15 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275087&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 11:43</a>
+奶一个下午圣杯战线UP大象和水BB，因为一个常驻角色肯定撑不起流水，水BB也好久没UP了，这俩也都是CCC体系 ...</blockquote>
+现在5星不是都没有双up了吗
+
