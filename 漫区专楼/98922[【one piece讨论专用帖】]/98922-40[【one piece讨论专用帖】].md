@@ -1974,3 +1974,22 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 大密宝是one piece，巴基的四分五裂恰好是one piece的反面，细思恐极<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sandrock  
+##### 58679#       发表于 2022-6-15 19:58
+
+同样是植物系，乌索普怎么这么弟弟
+
+*****
+
+####  武男  
+##### 58680#       发表于 2022-6-15 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56280861&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2022-6-15 18:01</a>
+
+主要这个大将是新提上来没多久的，意思是海军这种水平的储备干部可能还有很多 ...</blockquote>
+正是因为比桃兔这些更强才能直升大将吧
+
