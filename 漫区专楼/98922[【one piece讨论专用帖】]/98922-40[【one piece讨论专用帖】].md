@@ -1753,3 +1753,17 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 翻页
 
+
+
+*****
+
+####  武男  
+##### 58658#       发表于 2022-6-15 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279400&amp;ptid=98922" target="_blank">DGIL 发表于 2022-6-15 16:28</a>
+
+等一下等一下。。这刚倒就封4皇会不会太快了？
+
+这巴基是政府捧来平衡的巴？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看贴吧翻译好像是绿牛不大想理他们，不过死缠不休，不把他们收拾了就很没面子。说不定QK还有什么负面buff吧。狗子让他别乱来是怕他下手太狠了？
+
