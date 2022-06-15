@@ -16541,3 +16541,18 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">莉莉丝算是CCC最大赢家了吧 三个强化本 就差个宝具本了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88421#       发表于 2022-6-15 19:24
+
+<blockquote>khxooo 发表于 2022-6-15 18:25
+个人觉得最好的解决方式是学隔壁母猪链接那样，每10抽给10个可以换当期角色的道具，凑够300就换一个。如 ...</blockquote>
+好主意，盘子这玩意的获取难度对一般人来说不是一般的大。如果可以把抽卡的累计次数实体化、攒起来、垫保底，不仅利好图鉴党，还可以有效地减少十连打水漂的挫败感。
+
+不过CY的人物制作难度和FGO不是一个级别的，慷慨程度也不能一概而论...
+
+还是老老实实等着周年发五星自选吧...希望下次可以选限定...
+
