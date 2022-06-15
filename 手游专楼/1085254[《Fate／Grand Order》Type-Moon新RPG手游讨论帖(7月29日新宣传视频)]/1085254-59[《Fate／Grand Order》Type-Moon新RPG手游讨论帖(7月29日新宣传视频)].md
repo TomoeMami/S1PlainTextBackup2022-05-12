@@ -16592,3 +16592,27 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 奶一口周年一人发一个盘子让99%的人干瞪眼</blockquote>
 这太恶心了，不要啊
 
+
+
+*****
+
+####  里村紅葉  
+##### 88426#       发表于 2022-6-15 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282480&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-15 20:14</a>
+
+这太恶心了，不要啊</blockquote>
+比发1个更恶心的是发9个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88427#       发表于 2022-6-15 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282560&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-15 20:21</a>
+
+比发1个更恶心的是发9个</blockquote>
+9个不恶心  万一歪出一个的可能性不是没有  这样运营不是血亏
+
+1个才对  无课歪9个基本不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

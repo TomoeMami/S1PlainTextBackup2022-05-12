@@ -122,3 +122,14 @@ met前两个月周日早安杂谈就有六七千观众了，不算奥数魔刃�
 
 看了下也就在做车库
 
+
+
+*****
+
+####  Ketestrait  
+##### 15012#       发表于 2022-6-15 20:24
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h3973vixrej207m079gnu.jpg" referrerpolicy="no-referrer">
+
+met的日朝总是比她打枪看的人更多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
