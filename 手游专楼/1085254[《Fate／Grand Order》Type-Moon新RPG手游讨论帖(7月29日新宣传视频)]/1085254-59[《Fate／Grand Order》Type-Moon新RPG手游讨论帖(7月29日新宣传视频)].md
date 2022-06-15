@@ -16478,3 +16478,35 @@ CCC四人组强化，难不成预示着又要出FE相关的活动了吗？2.6的
 大象缺的是技能本吗？大象最需要的是一个白值本把攻击力先提个2000点再说话说数据组里一定有樱厨吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有那么一种可能 她都缺？
 
+
+
+*****
+
+####  areklose  
+##### 88415#       发表于 2022-6-15 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56280747&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-15 17:54</a>
+
+有没有那么一种可能 她都缺？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">群充变成30NP，30宝威， 30攻， 30蓝。
+
+*****
+
+####  Jamaisvu  
+##### 88416#       发表于 2022-6-15 18:08
+
+ 本帖最后由 Jamaisvu 于 2022-6-15 18:10 编辑 
+
+这次圣杯战线的副标题有点意思，Moonsault Operation，月面空翻行动。
+
+一个胖大象，CV演过假面骑士555，陪档配过假面骑士电王，很容易想到卡面来打那边去...
+
+Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank！Yeah！
+
+*****
+
+####  Jamaisvu  
+##### 88417#       发表于 2022-6-15 18:09
+
+另外我刚发现大象宝具的英文是Ganesh Impact，差点幻视成某爆款手游2333
+
