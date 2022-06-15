@@ -16423,3 +16423,12 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">证明大象技能完美 不需要强化
 
+
+
+*****
+
+####  angelooo  
+##### 88409#       发表于 2022-6-15 17:13
+
+大象没强化那说明2.4回忆的时候狂那不会强化了23333
+

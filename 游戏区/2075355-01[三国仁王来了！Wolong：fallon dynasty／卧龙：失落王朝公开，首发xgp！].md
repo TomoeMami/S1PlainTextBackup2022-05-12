@@ -4494,3 +4494,16 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 
 黄天当立！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天邪鬼  
+##### 452#       发表于 2022-6-15 17:17
+
+一说到八奇我就又想到那个恶搞
+“云海深处，本为山峦”
+“八奇，赵本山”
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

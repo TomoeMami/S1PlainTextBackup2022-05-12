@@ -1841,3 +1841,26 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 有点意思发上来</blockquote>
 万一沙鳄鱼真的是女人<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦·花火  
+##### 58665#       发表于 2022-6-15 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56274824&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-6-15 11:28</a>
+赏金
+
+绿牛</blockquote>
+这绿牛一脸杂鱼相啊
+
+*****
+
+####  uponutopia  
+##### 58666#       发表于 2022-6-15 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279933&amp;ptid=98922" target="_blank">武男 发表于 2022-6-15 17:01</a>
+
+喷这个的话可以先喷多弗朗明哥，要是战国知道自己干儿子被七武海给干了，会不会喊卡普就这样压着我。。 ...</blockquote>
+早就品鉴过了十年前德岛就这桥段，不过又来一次随口吐槽而已
+
