@@ -1632,3 +1632,21 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢复伤势.而且queen真的是拖后腿给厨子破防 ...</blockquote>
 还是锦卫门厉害，被凯多霸缠爆锤，打完了还活蹦乱跳。k和q还古代种呢，一个星期了还没恢复。
 
+
+
+*****
+
+####  仟音一心  
+##### 58647#       发表于 2022-6-15 15:51
+
+绿牛有点bug
+
+<img src="https://img.saraba1st.com/forum/202206/15/155140aw5cutw5rcm5pqe5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>312FE835-B96A-4A8E-A731-C70F3730F882.jpeg</strong> (924.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 15:51 上传
+

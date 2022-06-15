@@ -28,3 +28,12 @@ https://m.bilibili.com/video/BV17U4y1X7bx
 上节目也算好宣传吧…</blockquote>
 喷了，这个清音せら是个玩NGS（和其他）的主播啊，我还看过几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 15003#       发表于 2022-6-15 15:58
+
+又在听月兔虚拟梦，真是太好太有月之味的一砖了，虽然一直嘴无意义但还是感谢主流出道
+

@@ -4428,3 +4428,38 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 <blockquote>“卧龙”的含义指的就是主角，提到卧龙，大部分三国爱好者想到的就是诸葛亮，但是忍者组选择这个标题的含义是象徵着英雄们还不为人知的时候，主角就是那些还未成名的英雄之一。</blockquote>
 这段我还挺在意的，有可能最后打完boss然后剧情一系列机缘巧合，然后主角决定化名或者获得新的名字，一下子变成三国当中比较知名的人物。这种感觉还挺好玩的，“赵云”就不错，毕竟也有传言赵云是女性，这样无论玩家捏的是男是女都能圆上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫夜戎  
+##### 446#       发表于 2022-6-15 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56271107&amp;ptid=2075355" target="_blank">宛若青空 发表于 2022-6-15 01:19</a>
+
+中文和日语后半句宣传语不太一样
+
+中文：妖邪乱世，龙跃在渊</blockquote>
+后半句属于是翻译胡乱地化用成语了，不过一般人的理解可能跟这个翻译是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以反而可能没错
+
+前半句才是自由发挥过多了，当然，不知道这个翻译是多大权限，也有可能是看过剧情大纲或者参与了剧情翻译之后译出来的。
+
+*****
+
+####  医生狼多  
+##### 447#         楼主| 发表于 2022-6-15 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278706&amp;ptid=2075355" target="_blank">莫夜戎 发表于 2022-6-15 15:44</a>
+这段我还挺在意的，有可能最后打完boss然后剧情一系列机缘巧合，然后主角决定化名或者获得新的名字，一下 ...</blockquote>
+<img src="https://p.sda1.dev/6/ec3cd56da17a335d1eeea8a0ff923936/CMP_20220615155906668.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kuglv  
+##### 448#       发表于 2022-6-15 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278706&amp;ptid=2075355" target="_blank">莫夜戎 发表于 2022-6-15 15:44</a>
+
+这段我还挺在意的，有可能最后打完boss然后剧情一系列机缘巧合，然后主角决定化名或者获得新的名字，一下 ...</blockquote>
+燎原火是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
