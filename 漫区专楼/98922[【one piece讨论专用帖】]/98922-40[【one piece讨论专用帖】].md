@@ -1503,3 +1503,48 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 提前恭喜海贼王巴基了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武男  
+##### 58636#       发表于 2022-6-15 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276624&amp;ptid=98922" target="_blank">エリ 发表于 2022-6-15 13:23</a>
+
+看情报说绿牛上岛秒了king和queen？
+
+目前赏金最高的2个皇副级的都不经1个大将打
+
+那海军一直搞什么四皇七武 ...</blockquote>
+受伤状态吧，不过没有四皇的话，那参考顶上之战，马尔科还有七武海拿残血狗子没办法，只有红发才停得了他。
+
+*****
+
+####  火华火华火  
+##### 58637#       发表于 2022-6-15 14:09
+
+<img src="https://img.saraba1st.com/forum/202206/15/140920duw3fmf9ma99zwa2.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220615_140838.jpg</strong> (240.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-15 14:09 上传
+
+原来这句话说的是巴基，说不定鹰眼也加入巴基一伙了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  武男  
+##### 58638#       发表于 2022-6-15 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276742&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-15 13:31</a>
+
+两人早就半死不活了哪是一回事
+
+平时一般认为皇副也就比大将弱一点点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是受伤状态吧，参考顶上的话就是皇副分心跟大将打的话就是非残即退场，马尔科带一堆队长和七武海一起围殴也拿残血的狗子没办法。不过后续大将风评不断降低，有很大的锅在藤虎上面，他没啥逼格，不是被小丑密谋杀害就是被J突船，还有一起推鸟笼。
+

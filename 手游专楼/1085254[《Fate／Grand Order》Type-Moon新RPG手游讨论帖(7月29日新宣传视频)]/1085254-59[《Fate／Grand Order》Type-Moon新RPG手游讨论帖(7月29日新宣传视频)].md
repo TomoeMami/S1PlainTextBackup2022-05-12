@@ -16269,3 +16269,26 @@ FZ也用过同样的说法（指花散），语义上这个翻译也没什么问
 不好意思我没有恶意的咨询一下，请问你几岁了，或者说请问你第一部接触的菌鸽鸽作品是啥，用r18来给菌鸽鸽挽尊也太艹了，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88396#       发表于 2022-6-15 14:00
+
+你们是不是走错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88397#       发表于 2022-6-15 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277111&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-15 13:55</a>
+
+？
+
+不好意思我没有恶意的咨询一下，请问你第一部接触的菌鸽鸽作品是啥，用r18来给菌鸽鸽挽尊也太艹了，
+
+[ ...</blockquote>
+FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用词习惯罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟一般作家不至于用这么直白的荤话吧，又不是中原五绿...
+
