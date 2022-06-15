@@ -1873,3 +1873,40 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 
 笑了，除非后续剧情出来是百兽团全员被海楼石镣铐捆住被秒才有点合理性
 
+
+
+*****
+
+####  wuwo2  
+##### 58668#       发表于 2022-6-15 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275729&amp;ptid=98922" target="_blank">火华火华火 发表于 2022-6-15 12:24</a>
+这四个里面还是巴基最有压迫感
+
+—— 来自 S1Fun</blockquote>
+怎么感觉红发的脸越来越宽，越来越有夏亚范儿了。
+
+*****
+
+####  tornadoDA  
+##### 58669#       发表于 2022-6-15 17:42
+
+大将本来就和四皇一个等级，为啥有人不明白呢，红狗追着白残团打，一拳一个七武海时还不明白吗
+
+*****
+
+####  HMC  
+##### 58670#       发表于 2022-6-15 17:46
+
+茶渡+柱间？
+
+*****
+
+####  武男  
+##### 58671#       发表于 2022-6-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56280196&amp;ptid=98922" target="_blank">uponutopia 发表于 2022-6-15 17:16</a>
+
+早就品鉴过了十年前德岛就这桥段，不过又来一次随口吐槽而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过按赤犬对猴子说的话来看，他们可能觉得和之国已经跟凯多勾结起来了，特别提到了武士的力量。
+
