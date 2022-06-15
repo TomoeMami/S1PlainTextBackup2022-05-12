@@ -9336,3 +9336,17 @@ mea在一堆底边里面，他会有什么感谢吗
 
 [https://www.sony-semicon.co.jp/i ... =sns_j_tw_220615_01](https://www.sony-semicon.co.jp/info/2022/2022061501.html?cid=sns_j_tw_220615_01)
 
+
+
+*****
+
+####  病態極端  
+##### 11405#       发表于 2022-6-15 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56281599&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-15 19:00</a>
+
+技术测试员了属于。
+
+https://www.sony-semicon.co.jp/i ... =sns_j_tw_220615_01</blockquote>
+這演示挺好的，如果不用動補服就能3D，說不定愛小姐天天播3D
+

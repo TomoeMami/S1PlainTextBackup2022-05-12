@@ -2146,3 +2146,14 @@ ee
 
 绿牛那么冲，不知道会不会被和之国人民群众扔臭鸡蛋
 
+
+
+*****
+
+####  绝赞販売中  
+##### 58698#       发表于 2022-6-15 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278688&amp;ptid=98922" target="_blank">huosoliton 发表于 2022-6-15 15:43</a>
+还是锦卫门厉害，被凯多霸缠爆锤，打完了还活蹦乱跳。k和q还古代种呢，一个星期了还没恢复。 ...</blockquote>
+锦皇不能比，和之国最强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了凯多和堪皇其他人都不配跟锦皇对位
+
