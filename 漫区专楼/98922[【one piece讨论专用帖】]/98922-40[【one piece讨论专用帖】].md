@@ -2170,3 +2170,35 @@ ee
 
 当年3个小毛头被1个大将打的四处乱窜，现在3个30亿合起来把1个大将揍的鼻青脸肿？
 
+
+
+*****
+
+####  saturnus  
+##### 58700#       发表于 2022-6-15 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56283827&amp;ptid=98922" target="_blank">陶矢 发表于 2022-6-15 21:51</a>
+说起来我记得和之国一开始有起承转合的报幕小人是不是后来就没出现过？</blockquote>
+报幕的一直是日和/小紫，目前看情报本话并不一定是和之国最终章
+
+*****
+
+####  少年包工头  
+##### 58701#       发表于 2022-6-15 22:45
+
+绿牛有点惹人厌啊
+
+*****
+
+####  武男  
+##### 58702#       发表于 2022-6-15 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284361&amp;ptid=98922" target="_blank">hagane 发表于 2022-6-15 22:32</a>
+
+罗宾再被抓走新四皇也太掉份了吧
+
+所以剧情是香波地岛的镜像？
+
+当年3个小毛头被1个大将打的四处乱窜，现在3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说不定跟狗子当初追黑胡子一样，过了招以后，都离开和之国了。。
+

@@ -16683,3 +16683,15 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 比发1个更恶心的是发9个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快发，我手上正好就只有1个盘子
 
+
+
+*****
+
+####  qixinno2  
+##### 88434#       发表于 2022-6-15 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284398&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-15 22:34</a>
+
+3个月一个五星？YLS要亏到坐公交了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你看错了 一周一个盘子碎片 七周才能合出一个盘子 十个盘子才能换一个五星
+
