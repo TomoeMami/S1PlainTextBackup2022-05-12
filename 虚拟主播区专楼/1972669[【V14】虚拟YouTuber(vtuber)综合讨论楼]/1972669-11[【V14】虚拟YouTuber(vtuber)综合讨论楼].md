@@ -48,3 +48,17 @@ https://m.bilibili.com/video/BV17U4y1X7bx
 
 hnn这个t台突击真就一首歌下播，好热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15005#       发表于 2022-6-15 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276648&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-6-15 13:24</a>
+
+喷了，这个清音せら是个玩NGS（和其他）的主播啊，我还看过几次</blockquote>
+-     
+
+好像数据是好了些。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
