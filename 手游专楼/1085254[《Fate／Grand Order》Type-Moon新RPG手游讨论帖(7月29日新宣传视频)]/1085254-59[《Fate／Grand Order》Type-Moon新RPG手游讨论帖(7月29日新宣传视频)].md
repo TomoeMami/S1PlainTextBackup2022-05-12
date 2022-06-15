@@ -16660,3 +16660,26 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想屁吃 我看最多能三个月能换一个盘子 5个盘子能换开服前两年的非剧情限定四星
 
+
+
+*****
+
+####  khxooo  
+##### 88432#       发表于 2022-6-15 22:34
+
+ 本帖最后由 khxooo 于 2022-6-15 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56283489&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-15 21:27</a>
+
+能不能再折中一下，每周任务送一个盘子碎片，7个合成一个整得。盘子100抽送一个。然后一个盘子能换 ...</blockquote>
+3个月一个五星？YLS要亏到坐公交了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 88433#       发表于 2022-6-15 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56282560&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-15 20:21</a>
+
+比发1个更恶心的是发9个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快发，我手上正好就只有1个盘子
+
