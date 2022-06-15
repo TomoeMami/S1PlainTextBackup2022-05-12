@@ -4463,3 +4463,25 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 这段我还挺在意的，有可能最后打完boss然后剧情一系列机缘巧合，然后主角决定化名或者获得新的名字，一下 ...</blockquote>
 燎原火是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫夜戎  
+##### 449#       发表于 2022-6-15 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56278981&amp;ptid=2075355" target="_blank">kuglv 发表于 2022-6-15 16:01</a>
+
+燎原火是吧</blockquote>
+没看过燎原火，竟然已经有人想出过这个情节了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 450#         楼主| 发表于 2022-6-15 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279038&amp;ptid=2075355" target="_blank">莫夜戎 发表于 2022-6-15 16:05</a>
+没看过燎原火，竟然已经有人想出过这个情节了</blockquote>
+剧透火凤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈某比你想多了一点
+一开始是燎原火被刘备误以为赵云，400多话后才发现真赵云另有其人
+
