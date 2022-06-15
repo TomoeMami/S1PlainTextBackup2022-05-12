@@ -940,3 +940,25 @@ R星不是堆了不少随机事件吗<img src="https://static.saraba1st.com/imag
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  codecloud  
+##### 82#       发表于 2022-6-15 14:47
+
+ 本帖最后由 codecloud 于 2022-6-15 14:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277666&amp;ptid=2075886" target="_blank">BK10 发表于 2022-6-15 14:38</a>
+
+Gta5鬼城怎么得出的结论。。。有行人有交通系统有车辆这是鬼城？星际公民里几个大城市除了建筑不就是啥都 ...</blockquote>
+gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸接踵摩肩,那才有大都市繁华地带的烟火气呐.当然,出了新手村之后的2077,也同一个鸟样了
+
+*****
+
+####  BK10  
+##### 83#       发表于 2022-6-15 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277802&amp;ptid=2075886" target="_blank">codecloud 发表于 2022-6-15 14:47</a>
+gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸接踵摩肩,那才有大都市繁华地带的烟火气呐. ...</blockquote>
+原来兄弟鬼不鬼数人头的太nb了。。。那育碧大革命赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

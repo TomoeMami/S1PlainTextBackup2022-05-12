@@ -1580,3 +1580,15 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 尾田有设定过这专门拍照的人，动画中也有。</blockquote>
 所以这家伙的战斗力到底是什么级别的
 
+
+
+*****
+
+####  武男  
+##### 58642#       发表于 2022-6-15 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277582&amp;ptid=98922" target="_blank">angelooo 发表于 2022-6-15 14:33</a>
+
+所以这家伙的战斗力到底是什么级别的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是贴吧版海贼王，海军不会这么无聊派一个大将去专门搞这个工作吧
+

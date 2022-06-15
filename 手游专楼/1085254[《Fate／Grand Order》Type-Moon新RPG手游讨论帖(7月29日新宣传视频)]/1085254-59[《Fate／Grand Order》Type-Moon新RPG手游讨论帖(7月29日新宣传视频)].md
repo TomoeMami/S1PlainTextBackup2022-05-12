@@ -16359,3 +16359,12 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 至于阿菌，就像我上面说的，他就是单纯的有一颗搞黄色的心，真写痴汉樱井都能把他个纯种直男按在地上暴打，苍银剑帝才几页就已经gay到爆，阿菌怎么写都只能给你整出直男好兄弟12345
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88402#       发表于 2022-6-15 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">其实他要真下手了也行啊 被开发后狮子死了 欲求不满的色茄子
+
