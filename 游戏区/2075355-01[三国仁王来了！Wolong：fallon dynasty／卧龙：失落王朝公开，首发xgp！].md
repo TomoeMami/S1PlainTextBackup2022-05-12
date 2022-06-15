@@ -4844,3 +4844,14 @@ early 2023，好急，好急啊……
 
 【《卧龙：苍天陨落》中文配音确认！怪物灵感源自《山海经》，动作设计参考中华武术-哔哩哔哩】 https://b23.tv/Ui40WdZ
 
+
+
+*****
+
+####  DelayNoMore  
+##### 486#       发表于 2022-6-16 00:49
+
+中文配音不太行啊，那老头说话像个中年人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
