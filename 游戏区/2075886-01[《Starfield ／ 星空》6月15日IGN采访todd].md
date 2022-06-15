@@ -1158,3 +1158,19 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 搞不好真没有车 搞不好星球表面开船也只能固定起落点间移动 船只能在太空自由驾驶
 
+
+
+*****
+
+####  白左  
+##### 99#       发表于 2022-6-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276591&amp;ptid=2075886" target="_blank">ralfli 发表于 2022-6-15 13:21</a>
+
+听起来很有趣，找了几个视频瞻仰了一下觉得有点太硬核了……这么一对比，更像是生化危机和僵尸计划的区别 ...</blockquote>
+是的，太空工程师基本满足一切幻想，你甚至可以建造贯穿整个星球的地球大炮（带的动的话），戴森球，死星
+
+这游戏就是有这样的可能性
+
+但是游戏并不是有可能性就好玩的……所以这游戏一直很冷门<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

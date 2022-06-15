@@ -102,3 +102,23 @@ met我看的那次3D回往后好像一直有万棒潜力。
 
 met前两个月周日早安杂谈就有六七千观众了，不算奥数魔刃俨然774第一人，rust开了之后直接上万<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15010#       发表于 2022-6-15 20:11
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h396rim7vwj20gq1fqn1n.jpg" referrerpolicy="no-referrer">
+
+一劳永逸<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15011#       发表于 2022-6-15 20:19
+
+怎么还涨到1W5了，上一次正常播到万棒可能还要追溯到跟masanori/arip的壁联动了吧
+
+看了下也就在做车库
+
