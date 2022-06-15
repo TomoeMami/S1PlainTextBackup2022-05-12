@@ -803,3 +803,16 @@ mechwarrior是吧？最近玩5代玩了五六十个小时。也不知道说的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  BK10  
+##### 73#       发表于 2022-6-15 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276599&amp;ptid=2075886" target="_blank">codecloud 发表于 2022-6-15 13:21</a>
+星际公民登陆行星的过程其实很快.2.3分钟足够了
+
+无缝登陆行星的重点在于这是太空探索类游戏最浪漫的元素. ...</blockquote>
+只能说考虑一下开发时间成本b社技术力还有主机性能这些事情，星际公民配置要求很高，而且可以死磕这技术几年游戏本体现在还基本是空壳
+

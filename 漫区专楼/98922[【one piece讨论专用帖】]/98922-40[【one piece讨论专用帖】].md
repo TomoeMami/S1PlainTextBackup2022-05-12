@@ -1346,3 +1346,110 @@ image.png
 
 红发：你们笑什么呀，严肃点，我们这是海贼呢
 
+
+
+*****
+
+####  housan2003  
+##### 58621#       发表于 2022-6-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275729&amp;ptid=98922" target="_blank">火华火华火 发表于 2022-6-15 12:24</a>
+
+这四个里面还是巴基最有压迫感
+
+—— 来自 S1Fun</blockquote>
+“猜猜看，四皇里边后边剧情谁最先笑不出来？”“这不是明摆着的么？”
+
+*****
+
+####  klzxs  
+##### 58622#       发表于 2022-6-15 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273305&amp;ptid=98922" target="_blank">Algie 发表于 2022-6-15 10:00</a>
+
+巴基和罗的能力实际上重复了，觉醒要是分解别人那不就是罗平a一个room的事吗？
+
+  -- 来自 能手机投票的 St ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">罗的能力太无赖了……
+
+*****
+
+####  刹那の劍  
+##### 58623#       发表于 2022-6-15 12:50
+
+赏金看不懂，更不知道寿喜烧怎么圆了
+
+*****
+
+####  天使的日曜日  
+##### 58624#       发表于 2022-6-15 12:51
+
+这几张图透都是情报剧透里的
+真就没有其他内容吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  saturnus  
+##### 58625#       发表于 2022-6-15 12:56
+
+基德名字中间是C？这是什么意思？
+
+*****
+
+####  赤魔法师  
+##### 58626#       发表于 2022-6-15 13:09
+
+照片什么时候拍的
+
+这挡脸的怎么通缉
+
+*****
+
+####  エリ  
+##### 58627#       发表于 2022-6-15 13:23
+
+看情报说绿牛上岛秒了king和queen？
+
+目前赏金最高的2个皇副级的都不经1个大将打
+
+那海军一直搞什么四皇七武海平衡个卵啊，也就是除了四皇本皇外的其余人都不对大将构成威胁
+
+那三大将带屠魔令集中一次不就能灭掉一皇，元帅亲征就更稳
+
+你一年扫一皇，四年也就扫平了
+
+*****
+
+####  tyauto  
+##### 58628#       发表于 2022-6-15 13:27
+
+现四皇
+
+红发
+
+红发的哥们
+
+红发的准女婿
+
+黑胡子：“现在金盆洗手退出江湖还来得及吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 58629#       发表于 2022-6-15 13:28
+
+<blockquote>赤魔法师 发表于 2022-6-15 13:09
+照片什么时候拍的
+
+这挡脸的怎么通缉</blockquote>
+这漫画的通缉令摄影师的战斗力是谜
+
+*****
+
+####  angelooo  
+##### 58630#       发表于 2022-6-15 13:29
+
+<blockquote>saturnus 发表于 2022-6-15 12:56
+基德名字中间是C？这是什么意思？</blockquote>
+就是船长打头字母
+

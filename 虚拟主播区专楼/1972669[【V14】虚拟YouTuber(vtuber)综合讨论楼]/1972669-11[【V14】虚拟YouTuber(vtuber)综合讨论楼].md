@@ -14,3 +14,17 @@
 
 也不该怪观众和enkr就是了。
 
+
+
+*****
+
+####  Ketestrait  
+##### 15002#       发表于 2022-6-15 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56269216&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-6-14 21:56</a>
+
+https://m.bilibili.com/video/BV17U4y1X7bx
+
+上节目也算好宣传吧…</blockquote>
+喷了，这个清音せら是个玩NGS（和其他）的主播啊，我还看过几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
