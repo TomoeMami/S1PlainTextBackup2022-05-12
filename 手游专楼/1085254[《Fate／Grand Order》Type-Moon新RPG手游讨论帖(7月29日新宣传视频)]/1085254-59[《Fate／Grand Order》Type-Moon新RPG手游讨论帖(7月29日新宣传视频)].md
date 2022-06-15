@@ -16198,3 +16198,49 @@ FZ也用过同样的说法（指花散），语义上这个翻译也没什么问
 
 昨天失智扔了个十连，就一个四星礼装，立马冷静了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">于是安慰自己说下次飞嫂进什么活动池再补吧，还能抽限定礼装...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88393#       发表于 2022-6-15 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276437&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-6-15 13:11</a>
+
+FZ也用过同样的说法（指花散），语义上这个翻译也没什么问题</blockquote>
+找了一下出处：
+不意间，Saber觉得寒气逼人，这寒气将她从思绪中带回了现实。
+  
+  那是Archer的视线。
+  
+  这名黄金之Servant从刚才开始就将Saber交由Rider应对。自己则坐在一边悠然地喝着酒。他那双深红色的眸子。不知何时细细地打量起她来。
+  
+  他不说话，光从他的目光里也看不出他有什么意图，但那目光中却带着**的味道，仿佛蛇爬上身体一般，使人感到屈辱和不快。
+  
+  “……Archer，你为什么看我？”
+  
+  “啊，我只是在欣赏你苦恼的表情。”
+  
+  Archer的微笑意外的温柔，但又让人感到无比恐惧。
+  
+  “仿佛是在卧榻上散花的处女般的表情，我喜欢。”
+  
+  “你……”
+  
+  对Saber而言这是不可原谅的愚弄。她毫不犹豫地将杯子摔碎在地，脸上充满了不可遏止的愤怒。
+
+——————————
+
+不过以上剧情并没有什么节奏，反而催生了金剑党这一产物...
+
+一方面老虚是个R18脚本家，创作一个毫无现代道德观的原始兽性王者作为小说中势均力敌的恶役也说得过去，况且saber也进行了激烈的抗议，勉强维持住了王对王的面子；
+另一方面就是看脸了，双王党有不少无视女方心情恰颜值糖的存在...
+
+2.6的这个白狮子，首先是长相难以接受，其次他非常猥琐地在那里自说自话，马修还一副欲拒还休的态度，给人一种夫妻之实虽无、夫妻之名已定的感觉。
+
+单就给本子提供素材来看，后者更直白<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+（突然很想让FGO实装个“对未亡人”特攻的宝具，看看打在马修身上如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+（咕麻子：她已经是个寡妇了，我不能让她再守活寡<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">）
+

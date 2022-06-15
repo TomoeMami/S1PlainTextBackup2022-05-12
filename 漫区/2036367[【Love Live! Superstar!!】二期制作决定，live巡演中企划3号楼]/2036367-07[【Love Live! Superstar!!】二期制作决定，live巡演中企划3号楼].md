@@ -11073,3 +11073,30 @@ https://note.com/ttt14124/n/n8fded5c8aca8</blockquote>
 
 [https://maribl0g.wordpress.com/2 ... -tourism-musings-9/](https://maribl0g.wordpress.com/2022/05/15/is-three-september-events-with-my-oshi-in-them-business-or-tourism-musings-9/)
 
+
+
+*****
+
+####  仟音一心  
+##### 9997#       发表于 2022-6-15 13:42
+
+CelticWhite：日常被播放键挡脸的立德
+
+<img src="https://img.saraba1st.com/forum/202206/15/134240lc8e67x8f5dd1g6i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>010E1786-D87A-4FC9-92CA-249C32C83BB7.jpeg</strong> (163.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202206/15/134250ymq1kdt1y0aomm3q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>871E725C-25C0-4D88-9A27-257EB70A302B.jpeg</strong> (361.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 13:42 上传
+
