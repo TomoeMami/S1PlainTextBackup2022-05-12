@@ -11050,3 +11050,26 @@ BE4A0647-92FF-4B60-A610-7B83FCADA245.jpeg
 由手机上传
 2022-6-15 10:14 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9996#       发表于 2022-6-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273320&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-15 10:00</a>
+
+粪坑逛多了，忘记了这才是正常人会有的感想
+
+https://note.com/ttt14124/n/n8fded5c8aca8</blockquote>
+看到这个，我想起以前找到的英文博客，可以看看，挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[https://maribl0g.wordpress.com/2 ... ing-into-musings-2/](https://maribl0g.wordpress.com/2022/03/25/a-sorter-out-of-date-a-sorter-that-takes-days-and-a-sort-of-thing-or-two-im-getting-into-musings-2/)
+
+上面这一篇有这个博主喜欢鲤鱼的一些理由，挺有意思的
+
+下面这俩篇有这个博主对Liella加人的一些看法
+[https://maribl0g.wordpress.com/2 ... a-minute-musings-7/](https://maribl0g.wordpress.com/2022/04/29/may-is-my-favourite-month-nagi-has-my-favourite-lore-liella-is-my-fa-oh-hang-on-a-minute-musings-7/)
+
+[https://maribl0g.wordpress.com/2 ... -tourism-musings-9/](https://maribl0g.wordpress.com/2022/05/15/is-three-september-events-with-my-oshi-in-them-business-or-tourism-musings-9/)
+

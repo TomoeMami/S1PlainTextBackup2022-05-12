@@ -16012,3 +16012,17 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 你说的很对，可是她atk不过万，还是个系数1.0的mc
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88378#       发表于 2022-6-15 11:34
+
+<blockquote>exiaexa 发表于 2022-6-14 08:08
+看他们热火朝天的批判菌鸽鸽
+
+返回去爬了下去年的楼
+</blockquote>
+讲真261已经算2.6里问题最小的了，而且又不是狮子真的把马修艹了，绿个毛呢绿
+
