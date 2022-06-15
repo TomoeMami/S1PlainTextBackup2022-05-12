@@ -16707,3 +16707,13 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 你看错了 一周一个盘子碎片 七周才能合出一个盘子 十个盘子才能换一个五星 ...</blockquote>
 也不是不可以？这样可以更大程度的增加客户的粘合度<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  巴裘拉  
+##### 88436#       发表于 2022-6-16 00:15
+
+怎么日服楼都有讨论国服节奏的，我还以为点错了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+顺便我去采访了下几个玩国服的朋友，他们表示，我们就是见不到一点自己带入主角不顺，菌类没让我们爽，就是恶心人，马修非常绿茶（这点我就非常不理解了。。。）
+
