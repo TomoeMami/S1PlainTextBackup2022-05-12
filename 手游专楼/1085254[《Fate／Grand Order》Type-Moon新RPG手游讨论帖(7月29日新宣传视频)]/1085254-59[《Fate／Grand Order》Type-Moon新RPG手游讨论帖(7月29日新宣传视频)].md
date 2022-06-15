@@ -16651,3 +16651,12 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能再折中一下，每周任务送一个盘子碎片，7个合成一个整得。盘子100抽送一个。然后一个盘子能换四星
 
+
+
+*****
+
+####  qixinno2  
+##### 88431#       发表于 2022-6-15 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想屁吃 我看最多能三个月能换一个盘子 5个盘子能换开服前两年的非剧情限定四星
+

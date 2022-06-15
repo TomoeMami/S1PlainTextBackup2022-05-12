@@ -4773,3 +4773,25 @@ kt这次国内宣发和本地化狠狠发力，诚意真的足
 
 early 2023，好急，好急啊……
 
+
+
+*****
+
+####  宛若青空  
+##### 480#       发表于 2022-6-15 21:32
+
+确认有中配太好了，这次看起来各方面对中国玩家诚意十足
+
+最后突然抱拳礼笑到，不过东汉三国时应该是揖礼吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  天邪鬼  
+##### 481#       发表于 2022-6-15 21:34
+
+我记得无双大蛇的时候就有很多山海经上的妖魔了，不过都是杂兵脸
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
