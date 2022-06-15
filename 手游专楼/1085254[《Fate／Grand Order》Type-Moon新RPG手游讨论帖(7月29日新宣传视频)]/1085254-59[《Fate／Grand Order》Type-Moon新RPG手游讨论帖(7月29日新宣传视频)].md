@@ -16510,3 +16510,16 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 另外我刚发现大象宝具的英文是Ganesh Impact，差点幻视成某爆款手游2333
 
+
+
+*****
+
+####  khxooo  
+##### 88418#       发表于 2022-6-15 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276432&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 13:11</a>
+对对，因为换池子清保底，为了换四星影响五星就得不偿失了...
+
+反正在运营眼中，四星那个概率已经够好抽了 ...</blockquote>
+个人觉得最好的解决方式是学隔壁母猪链接那样，每10抽给10个可以换当期角色的道具，凑够300就换一个。如果保底前抽到当期角色就马上清零，转换成qp，抽到当期UP后就不在获得。当然更多的是摆就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
