@@ -16158,3 +16158,43 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 目前来看今年一个池子里有复数up4星的都没给过单独up了，估计是换up4星会影响到5星的保底，估计今年泳装估计没有4星的单独up了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88390#       发表于 2022-6-15 13:11
+
+ 本帖最后由 Jamaisvu 于 2022-6-15 13:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276283&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-6-15 12:58</a>
+
+目前来看今年一个池子里有复数up4星的都没给过单独up了，估计是换up4星会影响到5星的保底，估计今年泳装估 ...</blockquote>
+对对，因为换池子清保底，为了换四星影响五星就得不偿失了...
+
+反正在运营眼中，四星那个概率已经够好抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑不黑锅无所谓，氪金大头还是看五星。
+
+要是能搞个保底独立于卡池继承就好了，不过会影响流水，可能性较低...
+
+*****
+
+####  UNISONIA  
+##### 88391#       发表于 2022-6-15 13:11
+
+ 本帖最后由 UNISONIA 于 2022-6-15 13:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275259&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 11:54</a>
+
+我感觉这次节奏比预期大的原因除了菌类恶趣味冲击力大，BGO的翻译也有点拱火，翻译成“你今晚就好好等着吧 ...</blockquote>
+FZ也用过同样的说法（指花散），语义上这个翻译也没什么问题
+
+*****
+
+####  Jamaisvu  
+##### 88392#       发表于 2022-6-15 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276273&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-15 12:58</a>
+
+他影响我抽飞嫂了，不敢碰双up</blockquote>
+我也是想多抽几宝飞嫂，但是想起罗兰那个羁绊礼装就很抗拒...
+
+昨天失智扔了个十连，就一个四星礼装，立马冷静了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">于是安慰自己说下次飞嫂进什么活动池再补吧，还能抽限定礼装...
+

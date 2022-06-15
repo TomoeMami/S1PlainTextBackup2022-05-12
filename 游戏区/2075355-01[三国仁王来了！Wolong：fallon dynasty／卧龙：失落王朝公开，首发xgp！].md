@@ -4321,3 +4321,24 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  makece  
+##### 435#       发表于 2022-6-15 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56274097&amp;ptid=2075355" target="_blank">维克塔利昂 发表于 2022-6-15 10:52</a>
+
+没有精力…可千万别打铁啊…
+
+—— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这已经说偏闪避了应该没有多少打铁这种原地硬刚的系统了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 436#       发表于 2022-6-15 13:19
+
+那就是just回咯，本质和打铁没啥区别
+
