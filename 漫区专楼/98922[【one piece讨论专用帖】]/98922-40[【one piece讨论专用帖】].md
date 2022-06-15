@@ -1569,3 +1569,14 @@ k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢
 <img src="https://nimg.ws.126.net/?url=http%3A%2F%2Fcrawl.ws.126.net%2F0895940711c7809ea4cf0538aec48e1c.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg" referrerpolicy="no-referrer">
 <img src="https://nimg.ws.126.net/?url=http%3A%2F%2Fcrawl.ws.126.net%2F090f5c4e3dd4cd1b2769253959aecdfa.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 58641#       发表于 2022-6-15 14:33
+
+<blockquote>仟音一心 发表于 2022-6-15 14:18
+尾田有设定过这专门拍照的人，动画中也有。</blockquote>
+所以这家伙的战斗力到底是什么级别的
+

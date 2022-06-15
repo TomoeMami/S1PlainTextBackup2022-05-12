@@ -16340,3 +16340,22 @@ FSN或者月姬？...另外上面这段是老虚写的FZ，我只是说一下用
 
 蘑菇管你中国阿宅心灵有多脆弱啊，日本去年有带节奏的基本直接被当傻逼无视掉的，只能说国内创作环境太差，上有老爷下有巨婴，一边说着不喜欢被人管一边要去给作者划红线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88401#       发表于 2022-6-15 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56277427&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 14:19</a>
+问题在于狮嫁这段出现在手游。
+
+哪怕是全年龄galgame，暗示某个角色受过非人虐待也没问题（指FSN新星）， ...</blockquote>
+我倒觉得平台无所谓，确实是环境有区别，国内这种宣誓所有权拒绝一切环保色的环境大概确实是独一份
+
+261刚出的时候这个桥段别说推特，连粪坑都没几个追着这桥段骂的，想了想只能说茄子在11区大概真没这么重要
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于阿菌，就像我上面说的，他就是单纯的有一颗搞黄色的心，真写痴汉樱井都能把他个纯种直男按在地上暴打，苍银剑帝才几页就已经gay到爆，阿菌怎么写都只能给你整出直男好兄弟12345
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
