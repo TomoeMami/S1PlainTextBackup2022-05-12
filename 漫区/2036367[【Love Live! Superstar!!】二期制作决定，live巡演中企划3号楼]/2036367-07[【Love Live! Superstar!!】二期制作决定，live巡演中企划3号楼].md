@@ -11032,3 +11032,21 @@ BE4A0647-92FF-4B60-A610-7B83FCADA245.jpeg
 
 此人自述2020跳坑到IMAS两年没参加现场活动了，然后2022年2月底喜欢上星动画，对LL系列动画有喜欢的地方也有讨厌的地方，对星也是一样。但是5人组合、新设校的从零开始，还有跟之前作品不同的登场人物等新鲜的地方很多。然后就是喜欢上座右铭是「择日不如撞日」，爱着学园偶像，直率开朗，非常可爱的唐可可，然后回坑了。喜欢Tiny Stars。
 
+
+
+*****
+
+####  仟音一心  
+##### 9995#       发表于 2022-6-15 10:14
+
+合鲤人泥浆老师
+
+<img src="https://img.saraba1st.com/forum/202206/15/101453pfsqnb9e9stmtktm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>811A565D-D87B-4B13-A485-7A6E84B2F88A.jpeg</strong> (215.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-15 10:14 上传
+

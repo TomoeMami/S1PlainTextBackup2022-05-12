@@ -4100,3 +4100,17 @@ IGN这翻译怎么乱七八糟的，“妖魔”翻成“恶魔”，“死に�
 试玩版看来比预料的早啊，祝大家早日“一败涂地”</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">已经玩上了吗，有没有不违反协议能说的内容
 
+
+
+*****
+
+####  黑修士  
+##### 416#       发表于 2022-6-15 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273278&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 09:58</a>
+
+已经玩上了吗，有没有不违反协议能说的内容</blockquote>
+还没呢，但内部测试的小道消息已经在到处传了。
+
+之前估计是9月，现在看来会更早。
+
