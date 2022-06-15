@@ -16106,3 +16106,26 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 （不过个别选择强迫症可能会更纠结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  khxooo  
+##### 88385#       发表于 2022-6-15 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275631&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 12:16</a>
+我的锅疏忽了，今年新年暗狐卡池之后就再也没有双五星卡池了，什么莱妮丝事件簿、监狱塔，都是各U ...</blockquote>
+但是结果就是可能暂时没有四星单UP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88386#       发表于 2022-6-15 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275820&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-15 12:30</a>
+
+但是结果就是可能暂时没有四星单UP了</blockquote>
+这个也是看运营心情的，比如faker和大黑天都是单up，这次的唐吉诃德也是。
+
+不过罗兰的存在很可能就是为了恶心抽查理曼的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
