@@ -16026,3 +16026,14 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 </blockquote>
 讲真261已经算2.6里问题最小的了，而且又不是狮子真的把马修艹了，绿个毛呢绿
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88379#       发表于 2022-6-15 11:43
+
+奶一个下午圣杯战线UP大象和水BB，因为一个常驻角色肯定撑不起流水，水BB也好久没UP了，这俩也都是CCC体系的人物，
+
+更大的原因是这样运营就能把相同职介的常驻和限定五星放在一个池子里来恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15474,3 +15474,19 @@ Masae姐贵（yugo）饮酒配信喝了20杯伏特加后崩溃撕皮...同期和
 
 省一楼，作为lgbtq+友好群体，那当然是要支持旗下V的性别认同啊<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AloissiolA  
+##### 15000#       发表于 2022-6-15 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56270640&amp;ptid=1972669" target="_blank">lhawp 发表于 2022-6-15 00:11</a>
+
+说不定是自身性别认知相关的问题？TA有说过想当女性V么</blockquote>
+公开的自我认知是non-binary，ins和twi爆破之前都是以男性化装扮为主，所以可能是偏FtM或FtX
+
+但本身不想被二元性别束缚的nb却一直要因为自己的生理性别被攻击和贴标签就是很难受的事情
+
+至于是运营安排还是个人意愿，只能说这人看着就不像会去投当时并行的ethryia带皮试音的
+
