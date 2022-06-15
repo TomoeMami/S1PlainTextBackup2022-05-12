@@ -16037,3 +16037,15 @@ comike这是100场纪念吗，型月直接拉帮结派来撑场子了<img src="h
 
 更大的原因是这样运营就能把相同职介的常驻和限定五星放在一个池子里来恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 88380#       发表于 2022-6-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56275087&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-15 11:43</a>
+
+奶一个下午圣杯战线UP大象和水BB，因为一个常驻角色肯定撑不起流水，水BB也好久没UP了，这俩也都是CCC体系 ...</blockquote>
+现在保底池的机制不能如此pick up吧
+
