@@ -700,3 +700,12 @@ mechwarrior是吧？最近玩5代玩了五六十个小时。也不知道说的�
 不能直接突入大气层属实拉垮。陶德之前还说因为现在技术成熟了才做这么一款游戏，看来还是不够成熟。 ...</blockquote>
 地面显然是祖传引擎，太空部分估计魔改太多到两边不兼容了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ichihatsu  
+##### 64#       发表于 2022-6-15 12:59
+
+感觉宇宙中能不能随意出舱和星球内能不能绕圈飞都不太保准
+
