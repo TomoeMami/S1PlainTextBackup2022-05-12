@@ -1476,3 +1476,12 @@ image.png
 有点意思发上来
 [https://www.ptt.cc/bbs/ONE_PIECE/M.1302823195.A.F20.html](https://www.ptt.cc/bbs/ONE_PIECE/M.1302823195.A.F20.html)
 
+
+
+*****
+
+####  绝赞販売中  
+##### 58633#       发表于 2022-6-15 13:43
+
+k和q都是被打败，索山是脱力.七天恢复体力可是kq估计没有恢复伤势.而且queen真的是拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">给厨子破防还不如黑玛利亚和大和，至少能让厨子飙血.厨子纯粹是打他累瘫了
+

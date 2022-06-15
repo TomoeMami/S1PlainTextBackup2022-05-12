@@ -4362,3 +4362,39 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 
 总算不学大菠萝了吗，强调ACT体验本来就不应该搞这种刷词缀堆某几种输出手段的套路，鼓励玩家爱用什么招就随意用什么招多好
 
+
+
+*****
+
+####  黑修士  
+##### 439#       发表于 2022-6-15 13:45
+
+推荐这篇 古伦加斯特NOTE 给4gamer访谈的译文
+
+[https://www.bilibili.com/read/cv17109323](https://www.bilibili.com/read/cv17109323)
+
+*****
+
+####  医生狼多  
+##### 440#         楼主| 发表于 2022-6-15 13:47
+
+可以捏性别
+
+4gamer：会和仁王2一样有角色创造系统吗？
+
+安田：会的，可以调整包括性别，外貌等各类内容。
+
+*****
+
+####  宛若青空  
+##### 441#       发表于 2022-6-15 13:51
+
+捏人系统是从仁王2继承过来的，可以期待下美少女了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 442#       发表于 2022-6-15 13:52
+
+忍龙都入土多久了别念叨了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
