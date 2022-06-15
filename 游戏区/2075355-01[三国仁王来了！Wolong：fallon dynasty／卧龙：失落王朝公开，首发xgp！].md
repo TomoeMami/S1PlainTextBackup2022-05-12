@@ -4820,3 +4820,16 @@ early 2023，好急，好急啊……
 这次会是啥理由，喝张角的符水喝坏了，所以要杀黄巾报仇吗 ...</blockquote>
 残兵 天聋地哑
 
+
+
+*****
+
+####  医生狼多  
+##### 484#         楼主| 发表于 2022-6-15 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284011&amp;ptid=2075355" target="_blank">jf8350143 发表于 2022-6-15 22:03</a>
+话说仁王2主角哑巴的理由是被人捅了一刀喉咙
+
+这次会是啥理由，喝张角的符水喝坏了，所以要杀黄巾报仇吗 ...</blockquote>
+残兵之首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
