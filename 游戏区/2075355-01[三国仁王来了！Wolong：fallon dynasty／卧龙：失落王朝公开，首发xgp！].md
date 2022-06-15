@@ -4407,3 +4407,14 @@ ffo需要派生前置，取消，不能自动回，主动回，玩起来憨了�
 
 好想被狠狠地一败涂地啊
 
+
+
+*****
+
+####  Kazepollar  
+##### 444#       发表于 2022-6-15 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276920&amp;ptid=2075355" target="_blank">汪达 发表于 2022-6-15 13:42</a>
+ 总算不学大菠萝了吗，强调ACT体验本来就不应该搞这种刷词缀堆某几种输出手段的套路，鼓励玩家爱用什么招就 ...</blockquote>
+仁王2的配装可基本都是爽快与操作感兼顾的，应该也是有慢慢改进的趋势
+
