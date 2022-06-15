@@ -2271,3 +2271,15 @@ ee
 
 毕竟已经有个藤虎给赤犬唱反调了，另一个是亲赤派也很正常
 
+
+
+*****
+
+####  エリ  
+##### 58709#       发表于 2022-6-16 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284632&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-6-15 22:54</a>
+
+四皇现在还有什么逼格呀，绿牛单手团灭皇团中层全员，我看这海军是养寇自重，还吹什么打不进和之国笑死人 ...</blockquote>
+K和Q已经不是中层了，算领导班子了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
