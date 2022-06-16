@@ -16803,3 +16803,12 @@ AE不就是克制下四的吗...为了证明宝具伤害能打爆逆克制应该
 
 艹。。。。。。我准备留个巴御前最后杀 结果他直接结束了。。。。。吐了  金箱不要了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88445#       发表于 2022-6-16 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了箱子竟然要想法设法不能杀了这几个菜B
+
