@@ -335,3 +335,20 @@ met原来是幼龙啊。vgaming真是人才辈出。
 莎皇这游戏选择，绝体绝命2？</blockquote>
 563玩的效果很好啊 至少我喜欢看
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15034#       发表于 2022-6-16 21:41
+
+ 本帖最后由 alcoholic1000 于 2022-6-16 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56296638&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-16 21:24</a>
+
+【閲覧注意】#不幸話グランプリ with 星川サラ【にじさんじ郡道美玲】 - YouTube，如果他人的不幸是蜜之味 ...</blockquote>
+完全是地狱笑话集，那个去了风俗店还保有童贞但失去了処◯的老哥大爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+还有几个投稿，观众在评论区狂丢同事名字这点也很好笑
+
+下痢ペダ这个赢了，人生就是屎尿屁！（而且文笔很好）
+

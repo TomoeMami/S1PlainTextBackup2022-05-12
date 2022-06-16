@@ -16887,3 +16887,15 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 为了箱子竟然要想法设法不能杀了这几个菜B</blockquote>
 同感，最后就剩一个象神了，AI还特别莽，不乖乖守家，非要冲上来打，也许是想考验玩家的伤害控制能力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88453#       发表于 2022-6-16 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56296775&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-16 21:34</a>
+
+同感，最后就剩一个象神了，AI还特别莽，不乖乖守家，非要冲上来打，也许是想考验玩家的伤害控制能力吧[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说杀光就结束真是太脑残了   好歹把强敌也算进去啊
+
