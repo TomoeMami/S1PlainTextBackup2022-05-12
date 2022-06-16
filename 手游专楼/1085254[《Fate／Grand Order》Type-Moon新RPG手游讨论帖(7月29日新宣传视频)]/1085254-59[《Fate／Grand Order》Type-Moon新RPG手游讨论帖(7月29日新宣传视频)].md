@@ -16753,3 +16753,12 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 属性相克也能打死
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88440#       发表于 2022-6-16 11:37
+
+叠起来肯定是强的，就是叠得太慢了，建议出宝具本时红卡UP也改成叠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
