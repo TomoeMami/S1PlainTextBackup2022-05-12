@@ -390,3 +390,12 @@ met原来是幼龙啊。vgaming真是人才辈出。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要红的时候会发生很多事。
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15039#       发表于 2022-6-17 00:10
+
+途中接管道漏水换掉市长的水真是太乐了，这游戏自由度也太高了，这种脑洞我不知有多少玩家试出来过…莎乐美真是如有神助
+
