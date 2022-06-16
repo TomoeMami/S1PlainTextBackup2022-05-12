@@ -1195,3 +1195,15 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 有一张冰原的原画，出现了多轮的雪地车，还有夜晚新亚特兰蒂斯原画出现过小型飞行器，载具应该会有的。。 ...</blockquote>
 一醒来在雪地车上，Hey, you. You’re finally awake. You were trying to cross the <strong>atmosphere</strong>, right? Walked right into that <strong>Constellation</strong> ambush, same as us, and that <strong>space</strong> <strong>pirate</strong> over there.
 
+
+
+*****
+
+####  dumplingpro  
+##### 102#       发表于 2022-6-16 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56273191&amp;ptid=2075886" target="_blank">ralfli 发表于 2022-6-15 09:51</a>
+
+小时候玩FFIX的时候幻想着续作可以操作飞空艇无缝飞进城镇或迷宫降落，引来无数NPC的瞻仰，就和CG动画里 ...</blockquote>
+精英危机？
+

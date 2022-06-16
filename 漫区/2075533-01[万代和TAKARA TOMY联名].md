@@ -654,3 +654,22 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 
 万代那DX超合金的关节？两条腿的都没整明白呢，还要搞四条腿的？
 
+
+
+*****
+
+####  ladiesman802  
+##### 63#       发表于 2022-6-16 13:23
+
+出剑装考虑买一个
+
+*****
+
+####  虫之诗歌  
+##### 64#       发表于 2022-6-16 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56289395&amp;ptid=2075533" target="_blank">Azrael_0 发表于 2022-6-16 11:30</a>
+
+万代那DX超合金的关节？两条腿的都没整明白呢，还要搞四条腿的？</blockquote>
+就是超合金，没DX，上一个可以参考的对象是超合金横滨78和之后的超合金福冈牛，DX超合金分出去做小飞机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
