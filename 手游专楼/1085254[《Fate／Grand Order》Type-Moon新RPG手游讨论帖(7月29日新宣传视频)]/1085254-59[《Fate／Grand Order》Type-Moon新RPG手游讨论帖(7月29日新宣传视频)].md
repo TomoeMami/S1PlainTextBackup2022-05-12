@@ -16736,3 +16736,20 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这种兑换的五星是没有羁绊的 还是要真金白银的去氪才有羁绊
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88439#       发表于 2022-6-16 07:52
+
+ 本帖最后由 gpx234mqx 于 2022-6-16 07:53 编辑 
+
+帝王花超加强
+
+大河巨兽10加100%宝具威力
+
+带黑杯就是180%
+
+属性相克也能打死
+
