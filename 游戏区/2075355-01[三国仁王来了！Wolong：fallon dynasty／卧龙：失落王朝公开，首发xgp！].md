@@ -4966,3 +4966,14 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 就好像这次pv，明明没有任何人说最后出现的人是吕布，但大家就是能从武 ...</blockquote>
 吕布能不能死一死，我取而代之和貂蝉你侬我侬啊
 
+
+
+*****
+
+####  死宅真恶心  
+##### 497#       发表于 2022-6-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284830&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-15 23:11</a>
+残兵之首</blockquote>
+东瀛剑客三船漂流到中国，没有守护灵言语不通只能当哑巴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
