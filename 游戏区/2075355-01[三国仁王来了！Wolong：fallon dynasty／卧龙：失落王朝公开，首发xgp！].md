@@ -4875,3 +4875,19 @@ early 2023，好急，好急啊……
 
 PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头角色，我觉得这味道还挺对的
 
+
+
+*****
+
+####  天邪鬼  
+##### 489#       发表于 2022-6-16 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56285713&amp;ptid=2075355" target="_blank">DelayNoMore 发表于 2022-6-16 00:49</a>
+中文配音不太行啊，那老头说话像个中年人
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 S1Next-鹅版 ...</blockquote>
+我感觉中配两个pv的表现都有所不同。杉果采访的就很有苍老的感觉，不知道是加了效果器还是啥
+我担心的反而是翻译质量，就像上面的寸步不让。别到时候中配还要用三国杀语音包才能玩
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
