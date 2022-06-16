@@ -16762,3 +16762,35 @@ Elephant！Tank！Best Match！Are you ready？肉弾のMoonsault！ElephantTank
 
 叠起来肯定是强的，就是叠得太慢了，建议出宝具本时红卡UP也改成叠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88441#       发表于 2022-6-16 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56286625&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-16 07:52</a>
+
+帝王花超加强
+
+大河巨兽10加100%宝具威力</blockquote>
+AE不就是克制下四的吗...为了证明宝具伤害能打爆逆克制应该去打个剑枪弓吧...
+
+*****
+
+####  Jamaisvu  
+##### 88442#       发表于 2022-6-16 17:12
+
+帝王花如果再加强的话，感觉可以把二技能改成“仅解除增殖状态”或者“解除无限增殖和增殖状态，之后赋予自身一层增殖状态”，保证自身增殖buff不断档。
+
+*****
+
+####  Jamaisvu  
+##### 88443#       发表于 2022-6-16 17:18
+
+帝王花高光本应该是秋叶原百重塔的高难，敌人都是下四，打五个纹章就能单挑过去。
+
+比如这样：
+
+【【FGO伊贺同心组】花花单挑秋叶原百重塔高难~回家之前都算特异点修复-哔哩哔哩】 [https://b23.tv/9oCDyLQ](https://b23.tv/9oCDyLQ)
+
