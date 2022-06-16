@@ -4855,3 +4855,14 @@ early 2023，好急，好急啊……
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  医生狼多  
+##### 487#         楼主| 发表于 2022-6-16 09:26
+
+果然有人整活了
+
+希望这回“三国”作品的中配素质也寸步不让！！#卧龙将推出中文配音# http://t.cn/A6aPfqbF ​​​
+
