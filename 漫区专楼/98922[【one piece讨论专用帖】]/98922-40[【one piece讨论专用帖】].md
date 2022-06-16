@@ -2366,3 +2366,15 @@ K和Q应该是拷着海楼石的吧，不然没几个能打的来看守不是随
 
 按赤橙黄绿青蓝紫排大奖实力是赤犬&gt;黄猿&gt;绿牛&gt;青雉&gt;藤虎？
 
+
+
+*****
+
+####  武男  
+##### 58720#       发表于 2022-6-16 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56288739&amp;ptid=98922" target="_blank">tyauto 发表于 2022-6-16 10:47</a>
+
+按赤橙黄绿青蓝紫排大奖实力是赤犬&gt;黄猿&gt;绿牛&gt;青雉&gt;藤虎？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡哥不是都跟狗子打了生死之战嘛，还不能证明自己的实力啊
+
