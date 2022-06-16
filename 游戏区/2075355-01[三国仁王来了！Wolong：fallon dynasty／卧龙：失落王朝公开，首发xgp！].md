@@ -4977,3 +4977,16 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 残兵之首</blockquote>
 东瀛剑客三船漂流到中国，没有守护灵言语不通只能当哑巴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天邪鬼  
+##### 498#       发表于 2022-6-17 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56297934&amp;ptid=2075355" target="_blank">Cerc 发表于 2022-6-16 22:59</a>
+吕布能不能死一死，我取而代之和貂蝉你侬我侬啊</blockquote>
+吕布：不行，因为你就是貂蝉。貂蝉，屌残啊！
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
