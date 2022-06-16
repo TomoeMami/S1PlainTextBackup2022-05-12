@@ -2345,3 +2345,15 @@ K和Q应该是拷着海楼石的吧，不然没几个能打的来看守不是随
 
 团队太强了就有一点不好，谁都不服谁 也就是我够强 压的住他们。
 
+
+
+*****
+
+####  武男  
+##### 58718#       发表于 2022-6-16 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56285712&amp;ptid=98922" target="_blank">天下至贱 发表于 2022-6-16 00:49</a>
+
+桃子还真是整个家族最正常的一个了…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说啥来着了，他爷爷问题更大
+
