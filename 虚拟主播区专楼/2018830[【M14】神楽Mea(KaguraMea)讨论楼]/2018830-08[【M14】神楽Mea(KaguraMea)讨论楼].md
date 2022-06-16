@@ -9404,3 +9404,24 @@ https://www.sony-semicon.co.jp/i ... =sns_j_tw_220615_01</blockquote>
 
 阿咩的休息日
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11412#       发表于 2022-6-16 16:18
+
+动静也没多大，稿子倒是挺多。
+
+暑假要忙是吧，要发新歌是吧，要参加各个活动是吧，要独立办活动？
+
+<img src="https://img.saraba1st.com/forum/202206/16/161101gmrnzodz67vof8co.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220616160900551.jpg</strong> (9.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-16 16:11 上传
+
+[https://www.galpo.info/feature/208/list/5301](https://www.galpo.info/feature/208/list/5301)
+
