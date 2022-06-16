@@ -4918,3 +4918,24 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 
 说起来仁王2的翻译质量是有点水的，这次多下点心思吧
 
+
+
+*****
+
+####  吃我大dio  
+##### 493#       发表于 2022-6-16 21:05
+
+<blockquote>医生狼多 发表于 2022-6-16 18:24
+话说水镜会不会是boss之一?这配音完全感觉不出啥正派</blockquote>
+这中文pv里的配音老师郭政建就是94版老三国里司马徽的配音
+
+*****
+
+####  医生狼多  
+##### 494#         楼主| 发表于 2022-6-16 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56296343&amp;ptid=2075355" target="_blank">吃我大dio 发表于 2022-6-16 21:05</a>
+这中文pv里的配音老师郭政建就是94版老三国里司马徽的配音</blockquote>
+我是指台词和表演上看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+主要刚好火凤燎原那边真赵云刚干掉了水镜，可以对上了(
+
