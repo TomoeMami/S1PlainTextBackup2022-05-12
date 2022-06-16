@@ -4900,3 +4900,12 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 
 话说水镜会不会是boss之一?这配音完全感觉不出啥正派<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wtyrambo  
+##### 491#       发表于 2022-6-16 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来死亡的汉字是一败涂地
+
