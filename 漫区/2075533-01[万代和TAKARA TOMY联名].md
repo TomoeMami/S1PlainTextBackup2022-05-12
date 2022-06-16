@@ -748,3 +748,12 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">能出套战舰系列好像也不错？
 
+
+
+*****
+
+####  ALENTR  
+##### 72#       发表于 2022-6-17 01:37
+
+多美如能木马起头，系列化高达载具，也算量大管饱的好事。
+
