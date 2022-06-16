@@ -4909,3 +4909,12 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来死亡的汉字是一败涂地
 
+
+
+*****
+
+####  Leliel  
+##### 492#       发表于 2022-6-16 20:13
+
+说起来仁王2的翻译质量是有点水的，这次多下点心思吧
+

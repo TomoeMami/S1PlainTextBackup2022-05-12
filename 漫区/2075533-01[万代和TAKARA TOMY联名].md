@@ -702,3 +702,14 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 
 多美卡白色木马，草<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  王留美  
+##### 68#       发表于 2022-6-16 20:19
+
+多美卡这边出了木马外还有其他商品，不知道是不是其他的敢达舰船，还是MS？
+
+这样看起来超合金那边应该也会有替换武装
+
