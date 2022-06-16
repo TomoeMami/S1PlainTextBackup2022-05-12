@@ -16875,3 +16875,15 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 我没有啊（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你有我没有的更多
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88452#       发表于 2022-6-16 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56295481&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-16 19:59</a>
+
+为了箱子竟然要想法设法不能杀了这几个菜B</blockquote>
+同感，最后就剩一个象神了，AI还特别莽，不乖乖守家，非要冲上来打，也许是想考验玩家的伤害控制能力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -324,3 +324,14 @@ met原来是幼龙啊。vgaming真是人才辈出。
 
 [【閲覧注意】#不幸話グランプリ with 星川サラ【にじさんじ郡道美玲】 - YouTube](https://www.youtube.com/watch?v=QEynIgt3uyw)，如果他人的不幸是蜜之味，那这个直播就是蜂蜜沐浴<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">，在炎上被骂删档前决定细细品味<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  11512  
+##### 15033#       发表于 2022-6-16 21:38
+
+<blockquote>古战场亡魂 发表于 2022-6-16 20:39
+莎皇这游戏选择，绝体绝命2？</blockquote>
+563玩的效果很好啊 至少我喜欢看
+
