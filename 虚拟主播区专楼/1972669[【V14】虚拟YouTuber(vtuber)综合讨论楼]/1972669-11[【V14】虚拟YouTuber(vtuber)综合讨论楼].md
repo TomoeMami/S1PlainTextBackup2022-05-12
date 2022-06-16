@@ -287,3 +287,12 @@ met原来是幼龙啊。vgaming真是人才辈出。
 
 有必要那么麻烦吗，直接嫁给staff或者娶了staff不就完了吗。
 
+
+
+*****
+
+####  lhawp  
+##### 15029#       发表于 2022-6-16 17:49
+
+熊猫人的抽卡直播真的是艺术<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
