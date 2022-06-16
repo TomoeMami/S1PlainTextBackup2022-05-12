@@ -381,3 +381,12 @@ met原来是幼龙啊。vgaming真是人才辈出。
 
 ……莎乐美这玩个游戏还真同步在游戏里说地震的时候，现实里日本真有地震了
 
+
+
+*****
+
+####  hulaoda007  
+##### 15038#       发表于 2022-6-17 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要红的时候会发生很多事。
+
