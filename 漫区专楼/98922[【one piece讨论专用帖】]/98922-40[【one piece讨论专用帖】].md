@@ -2492,3 +2492,14 @@ cp0想杀海军灭口，绿牛这脾气能忍？没准来抓罗宾的cp0会被�
 
 我觉得按照WT的套路 绿牛又是个好人。
 
+
+
+*****
+
+####  7sevenseven  
+##### 58732#       发表于 2022-6-16 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56284632&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-6-15 22:54</a>
+四皇现在还有什么逼格呀，绿牛单手团灭皇团中层全员，我看这海军是养寇自重，还吹什么打不进和之国笑死人 ...</blockquote>
+本来四皇和三xx的差距就那么大，大妈能一拳干翻queen呢
+
