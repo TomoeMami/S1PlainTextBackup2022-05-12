@@ -2519,3 +2519,12 @@ cp0想杀海军灭口，绿牛这脾气能忍？没准来抓罗宾的cp0会被�
 
 和之国只剩下几话了吧？wt还要歇菜，绿牛估计过来跟路飞吹两句就走了
 
+
+
+*****
+
+####  free  
+##### 58735#       发表于 2022-6-16 16:45
+
+宴会开不开了，还是说这边吃席那边就打上了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
