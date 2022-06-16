@@ -4891,3 +4891,12 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 
 —— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  医生狼多  
+##### 490#         楼主| 发表于 2022-6-16 18:24
+
+话说水镜会不会是boss之一?这配音完全感觉不出啥正派<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
