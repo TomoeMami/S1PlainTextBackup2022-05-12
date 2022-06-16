@@ -673,3 +673,14 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 万代那DX超合金的关节？两条腿的都没整明白呢，还要搞四条腿的？</blockquote>
 就是超合金，没DX，上一个可以参考的对象是超合金横滨78和之后的超合金福冈牛，DX超合金分出去做小飞机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hamartia  
+##### 65#       发表于 2022-6-16 16:27
+
+很好的诠释了何谓大失所望
+
+就索斯来说，近期我喜欢的机种是歼灭棘龙，可端上来的又是长牙狮这番茄炒蛋一样的大众脸
+
