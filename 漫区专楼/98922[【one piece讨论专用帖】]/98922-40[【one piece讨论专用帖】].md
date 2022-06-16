@@ -2450,3 +2450,12 @@ cp0想杀海军灭口，绿牛这脾气能忍？没准来抓罗宾的cp0会被�
 
 看了完整情报图   绿牛明显是友方   最后那张走过的路花草全长出来了   之前和之国寸草不生的   参考之前大将那些离谱的buff范围  说明绿牛是给净化buff的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cdfjg  
+##### 58728#       发表于 2022-6-16 14:24
+
+绿牛在圣地跟革命军打也敢遍地开花吗
+
