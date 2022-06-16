@@ -16812,3 +16812,17 @@ AE不就是克制下四的吗...为了证明宝具伤害能打爆逆克制应该
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了箱子竟然要想法设法不能杀了这几个菜B
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88446#       发表于 2022-6-16 20:28
+
+感觉确实变智能了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+守家的大象会主动来偷袭我打巴太太的人了
+然后边路蛋糕直接偷家逼她回去
+也就五根狮子毛，没拿到也不要紧啦
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
