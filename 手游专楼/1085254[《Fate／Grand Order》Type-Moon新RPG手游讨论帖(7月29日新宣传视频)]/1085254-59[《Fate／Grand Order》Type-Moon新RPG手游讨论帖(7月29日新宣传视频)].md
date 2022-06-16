@@ -16794,3 +16794,12 @@ AE不就是克制下四的吗...为了证明宝具伤害能打爆逆克制应该
 
 【【FGO伊贺同心组】花花单挑秋叶原百重塔高难~回家之前都算特异点修复-哔哩哔哩】 [https://b23.tv/9oCDyLQ](https://b23.tv/9oCDyLQ)
 
+
+
+*****
+
+####  alucardcz  
+##### 88444#       发表于 2022-6-16 18:51
+
+艹。。。。。。我准备留个巴御前最后杀 结果他直接结束了。。。。。吐了  金箱不要了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
