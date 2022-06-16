@@ -2528,3 +2528,15 @@ cp0想杀海军灭口，绿牛这脾气能忍？没准来抓罗宾的cp0会被�
 
 宴会开不开了，还是说这边吃席那边就打上了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武男  
+##### 58736#       发表于 2022-6-16 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56292885&amp;ptid=98922" target="_blank">plok201 发表于 2022-6-16 16:22</a>
+
+四皇和手下那些人实力差距真的大，如果来个海贼天梯图，凯多大妈算3090的话，那堆中层也就1070吧 ...</blockquote>
+你要这么说的话，中将和大将的差距就更惊人了
+
