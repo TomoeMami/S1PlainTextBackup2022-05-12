@@ -2357,3 +2357,12 @@ K和Q应该是拷着海楼石的吧，不然没几个能打的来看守不是随
 桃子还真是整个家族最正常的一个了…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说啥来着了，他爷爷问题更大
 
+
+
+*****
+
+####  tyauto  
+##### 58719#       发表于 2022-6-16 10:47
+
+按赤橙黄绿青蓝紫排大奖实力是赤犬&gt;黄猿&gt;绿牛&gt;青雉&gt;藤虎？
+
