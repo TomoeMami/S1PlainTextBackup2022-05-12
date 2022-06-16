@@ -219,3 +219,12 @@ met原来是幼龙啊。vgaming真是人才辈出。
 
 首页随手点开的aza切片提到黛灰steam显示APEX差不多有1400小时…………我该吐槽他怎么恰独食不播还是该谢谢他为观众着想不带着大家坐牢啊
 
+
+
+*****
+
+####  KaboomMirai  
+##### 15021#       发表于 2022-6-16 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
