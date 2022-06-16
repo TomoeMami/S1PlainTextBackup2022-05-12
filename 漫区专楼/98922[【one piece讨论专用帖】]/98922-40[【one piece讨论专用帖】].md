@@ -2378,3 +2378,30 @@ K和Q应该是拷着海楼石的吧，不然没几个能打的来看守不是随
 按赤橙黄绿青蓝紫排大奖实力是赤犬&gt;黄猿&gt;绿牛&gt;青雉&gt;藤虎？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡哥不是都跟狗子打了生死之战嘛，还不能证明自己的实力啊
 
+
+
+*****
+
+####  死神狙击手  
+##### 58721#       发表于 2022-6-16 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56288739&amp;ptid=98922" target="_blank">tyauto 发表于 2022-6-16 10:47</a>
+
+按赤橙黄绿青蓝紫排大奖实力是赤犬&gt;黄猿&gt;绿牛&gt;青雉&gt;藤虎？</blockquote>
+猿雉犬是桃太郎了三大手下。
+
+*****
+
+####  SBRrunner  
+##### 58722#       发表于 2022-6-16 12:07
+
+<img src="https://img.saraba1st.com/forum/202206/16/120700ypeuzv4mou66o6up.jpg" referrerpolicy="no-referrer">
+
+<strong>8XN}OS0}XCA6P_OB$(DU9LO.jpg</strong> (143.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-16 12:07 上传
+
+四皇之间的战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
