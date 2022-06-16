@@ -16899,3 +16899,25 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 同感，最后就剩一个象神了，AI还特别莽，不乖乖守家，非要冲上来打，也许是想考验玩家的伤害控制能力吧[f ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说杀光就结束真是太脑残了   好歹把强敌也算进去啊
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88454#       发表于 2022-6-16 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56296967&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-16 21:46</a>
+
+只能说杀光就结束真是太脑残了   好歹把强敌也算进去啊</blockquote>
+本意是想照顾练度较低的玩家吧，但这个机制是挺僵硬的，改成打完之后可以自己选择继续挑战金箱子或者直接结束，就灵活多了
+
+*****
+
+####  alucardcz  
+##### 88455#       发表于 2022-6-16 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56297147&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-16 21:57</a>
+
+本意是想照顾练度较低的玩家吧，但这个机制是挺僵硬的，改成打完之后可以自己选择继续挑战金箱子或者直接 ...</blockquote>
+没关系吧？ 都打完了  剩下的又不会动 直接上去踢三角吗死他不就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
