@@ -1183,3 +1183,15 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 就b社那破引擎，你们居然还想有车来自: iPhone客户端
 
+
+
+*****
+
+####  rattled121  
+##### 101#       发表于 2022-6-16 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56279539&amp;ptid=2075886" target="_blank">aruruu 发表于 2022-6-15 16:37</a>
+
+有一张冰原的原画，出现了多轮的雪地车，还有夜晚新亚特兰蒂斯原画出现过小型飞行器，载具应该会有的。。 ...</blockquote>
+一醒来在雪地车上，Hey, you. You’re finally awake. You were trying to cross the <strong>atmosphere</strong>, right? Walked right into that <strong>Constellation</strong> ambush, same as us, and that <strong>space</strong> <strong>pirate</strong> over there.
+
