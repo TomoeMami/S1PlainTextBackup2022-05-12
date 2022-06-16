@@ -2405,3 +2405,14 @@ K和Q应该是拷着海楼石的吧，不然没几个能打的来看守不是随
 
 四皇之间的战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Freemasons  
+##### 58723#       发表于 2022-6-16 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56287632&amp;ptid=98922" target="_blank">巴基 发表于 2022-6-16 09:28</a>
+是时候选个皇副了。你们说是和绿藻头五五开的卡巴基好呢还是肥婆好呢 还是差点全灭草帽。因为草帽卑鄙的多 ...</blockquote>
+所有海贼团里你们是最像公司的，应该按照小偷公司的配置来，一个总经理四十八个副总经理<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
