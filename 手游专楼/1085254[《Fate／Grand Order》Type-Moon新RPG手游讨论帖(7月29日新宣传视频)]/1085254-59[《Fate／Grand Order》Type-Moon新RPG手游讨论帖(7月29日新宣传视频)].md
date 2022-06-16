@@ -16826,3 +16826,52 @@ AE不就是克制下四的吗...为了证明宝具伤害能打爆逆克制应该
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qixinno2  
+##### 88447#       发表于 2022-6-16 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉一样弱智 完全是跑出来送 在无敌的王哈面前就是个送NP的
+
+*****
+
+####  alucardcz  
+##### 88448#       发表于 2022-6-16 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56295915&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-16 20:32</a>
+
+感觉一样弱智 完全是跑出来送 在无敌的王哈面前就是个送NP的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还有王哈了 太欧了
+
+*****
+
+####  qixinno2  
+##### 88449#       发表于 2022-6-16 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56295932&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-16 20:33</a>
+
+你怎么还有王哈了 太欧了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 我一共就那么几个五星 这也能叫欧的么
+
+*****
+
+####  alucardcz  
+##### 88450#       发表于 2022-6-16 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56295978&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-16 20:36</a>
+
+TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有啊（
+
+*****
+
+####  qixinno2  
+##### 88451#       发表于 2022-6-16 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56296012&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-16 20:38</a>
+
+我没有啊（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你有我没有的更多
+
