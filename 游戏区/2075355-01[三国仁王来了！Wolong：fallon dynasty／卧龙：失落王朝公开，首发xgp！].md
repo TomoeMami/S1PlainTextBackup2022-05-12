@@ -4939,3 +4939,16 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 我是指台词和表演上看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 主要刚好火凤燎原那边真赵云刚干掉了水镜，可以对上了(
 
+
+
+*****
+
+####  天邪鬼  
+##### 495#       发表于 2022-6-16 22:32
+
+有没有可能这次主角还是影武者呢。
+就好像这次pv，明明没有任何人说最后出现的人是吕布，但大家就是能从武器，架势，和头盔上认出这是吕布。那主角戴上同样的面具，同样的武器，同样的架势，不也能成为吕布了
+实在不行来个幻化也好啊
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
