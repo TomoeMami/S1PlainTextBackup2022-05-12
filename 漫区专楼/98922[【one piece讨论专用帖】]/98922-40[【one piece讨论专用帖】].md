@@ -3084,3 +3084,19 @@ cp0要杀德雷克灭口，我觉得算是把海军和政府的对立抬到明�
 
 为啥都认为皇副是mr3，不应该是亚尔丽塔吗？
 
+
+
+*****
+
+####  icewolf01  
+##### 58789#       发表于 2022-6-17 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311935&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-6-17 21:49</a>
+
+巴基和路飞的孽缘，
+
+路索娜第一个对付的boss，
+
+伟大航路同时出航</blockquote>
+一切都是香克斯的阴谋
+
