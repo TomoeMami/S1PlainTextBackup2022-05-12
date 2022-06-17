@@ -604,3 +604,12 @@ kamito、トナカイト、ギルくん
 
 IOSYS的まろん做的这个slm音MAD质量挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15059#       发表于 2022-6-17 21:52
+
+绿仙这下是要专心音乐活动了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
