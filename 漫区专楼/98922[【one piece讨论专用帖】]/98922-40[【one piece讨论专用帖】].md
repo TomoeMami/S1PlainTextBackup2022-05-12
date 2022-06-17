@@ -2733,3 +2733,24 @@ K和Q扔去了监狱，应该就是海楼石拷上了吧。绿牛带不走草帽
 
 提这可能性也是因为这话有一格绿牛在看路飞新的悬赏照
 
+
+
+*****
+
+####  wingzerocos  
+##### 58757#       发表于 2022-6-17 09:10
+
+ 本帖最后由 wingzerocos 于 2022-6-17 09:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56300558&amp;ptid=98922" target="_blank">klzxs 发表于 2022-6-17 08:40</a>
+
+看到一种可能性
+
+路飞现在的悬赏照是尼卡形态
+
+绿牛碰到路飞不一定认得出 ...</blockquote>
+那他怕不是也没记住路飞的名字，过来了先在宴会上跟路飞勾肩搭背happy一晚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟他抓个和之国路人问路“海贼在哪？”，路人肯定会回答“听说已经出海了，兄弟来参加宴会吗？”
+
+倒是基德有点危，只能指望绿牛没带齐悬赏。
+
+以及政府看起来不想公开尼卡形态，路飞这赏金应该是没算上尼卡的。
+
