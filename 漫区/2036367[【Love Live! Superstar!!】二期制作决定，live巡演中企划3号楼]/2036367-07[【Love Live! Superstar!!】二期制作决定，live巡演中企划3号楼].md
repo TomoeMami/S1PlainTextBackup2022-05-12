@@ -11369,3 +11369,14 @@ CelticWhite
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 10010#       发表于 2022-6-17 08:00
+
+nagi的减肥经验应该在全系列推广（不是）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
