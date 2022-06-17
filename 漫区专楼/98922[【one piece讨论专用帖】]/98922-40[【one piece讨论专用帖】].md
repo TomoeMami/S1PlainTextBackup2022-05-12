@@ -3112,3 +3112,30 @@ cp0要杀德雷克灭口，我觉得算是把海军和政府的对立抬到明�
 目前皇副都是脑子清楚的
 巴基旁边只有3整天吐槽巴基
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 58791#       发表于 2022-6-18 01:32
+
+老人给打当前版本补丁的话，别说皇副了，当大将都没问题，就看wt吹不吹了XD
+
+亚尔丽塔当年就是“伤害无效化”的特性，强度升级到当前版本完全可以让索隆砍不动（相比脑残粉的无敌，滑滑可以理解为攻击一定会偏斜）
+
+mr.3当年打海底监狱副本就能当T抗尾王麦哲伦(并不)，强度升级到当前版本可以让山治完全踢不动(可能高密度觉醒蜡不怕火甚至还会反弹攻击)
+
+搞不好人家还是幻兽种人人果实坎朵神（candle）形态呢XD（什么鬼
+
+*****
+
+####  超紳士  
+##### 58792#       发表于 2022-6-18 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56308674&amp;ptid=98922" target="_blank">SNOWIMEA 发表于 2022-6-17 17:15</a>
+
+给我四皇一个面子
+
+—— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+你别说，还真象样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
