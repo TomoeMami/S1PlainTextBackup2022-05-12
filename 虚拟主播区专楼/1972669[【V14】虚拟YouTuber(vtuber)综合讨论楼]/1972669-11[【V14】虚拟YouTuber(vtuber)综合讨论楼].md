@@ -660,3 +660,17 @@ drm的c team昨天因为时间快到了服务器关了就做不了事，最后�
 
 syl: 这么看pomu跟kiara简直是命中注定
 
+
+
+*****
+
+####  purdre  
+##### 15064#       发表于 2022-6-18 06:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56314174&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-6-18 02:53</a>
+
+喷了pomu这被开 这中之人我之前还听说过
+
+syl: 这么看pomu跟kiara简直是命中注定 ...</blockquote>
+看了下都是些年轻时候做的蠢事，也不稀奇了
+
