@@ -1,0 +1,596 @@
+
+
+*****
+
+####  wyhman  
+##### 1#       楼主       发表于 2022-6-17 22:55
+
+全国一卷数学打破了2003年数据帝葛大爷创造的平均68的纪录。 ​​​​
+
+*****
+
+####  dmasdfdmazz  
+##### 2#       发表于 2022-6-17 22:57
+
+我去，
+
+*****
+
+####  wyhman  
+##### 3#         楼主| 发表于 2022-6-17 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312662&amp;ptid=2076445" target="_blank">dmasdfdmazz 发表于 2022-6-17 22:57</a>
+
+我去，</blockquote>
+南京一些高中老师预测南京考55
+
+*****
+
+####  greenpea  
+##### 4#       发表于 2022-6-17 22:59
+
+满分150吗，高考平均分能这么低<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh  
+##### 5#       发表于 2022-6-17 23:00
+
+这是事故吧？
+
+*****
+
+####  北原凛  
+##### 6#       发表于 2022-6-17 23:00
+
+新一卷？那可有点恐怖了，不知道我上高中时候会咋样，不会是未来十年最简单的一张吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wyhman  
+##### 7#         楼主| 发表于 2022-6-17 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312696&amp;ptid=2076445" target="_blank">jaewoongh 发表于 2022-6-17 23:00</a>
+
+这是事故吧？</blockquote>
+有人骂有人捧，为什么骂不谈了，捧的人表示这是在为未来储备真正的人才
+
+*****
+
+####  ladiesman802  
+##### 8#       发表于 2022-6-17 23:01
+
+听说是为了选拔真正的人才？这一届高三还挺惨的，就是英语还算简单
+
+*****
+
+####  wyhman  
+##### 9#         楼主| 发表于 2022-6-17 23:02
+
+ 本帖最后由 wyhman 于 2022-6-17 23:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 6战斗力 -10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 二月十日|-2|这什么中年油腻大叔，收收味吧.|
+| 崩坏世界|-2|啥玩意啊|
+| 隆江猪脚饭|-2|说的啥B|
+| ge1|-2|恶心到了|
+| _68_|-1|思路广|
+| 希波兰多的诗歌|-1|收收味|
+
+查看全部评分
+
+*****
+
+####  wyhman  
+##### 10#         楼主| 发表于 2022-6-17 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312714&amp;ptid=2076445" target="_blank">ladiesman802 发表于 2022-6-17 23:01</a>
+
+听说是为了选拔真正的人才？这一届高三还挺惨的，就是英语还算简单</blockquote>
+嗯 有这说法 反正我是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TTAA  
+##### 11#       发表于 2022-6-17 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也算是疫情带来的影响了，网课、生活作息的影响等等
+
+*****
+
+####  東京急行  
+##### 12#       发表于 2022-6-17 23:02
+
+上这么久网课，尤其是数学这种极度依赖熟练度的学科，我觉得应该不用意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh  
+##### 13#       发表于 2022-6-17 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312708&amp;ptid=2076445" target="_blank">wyhman 发表于 2022-6-17 23:01</a>
+
+有人骂有人捧，为什么骂不谈了，捧的人表示这是在为未来储备真正的人才 ...</blockquote>
+平均分这么低说明整张卷子的梯度出了问题，要么就是长期网课导致老师们认为的送分题变成了中段题目
+
+*****
+
+####  ryj  
+##### 14#       发表于 2022-6-17 23:04
+
+广东是单独出卷的吗？
+
+*****
+
+####  致远星总书记  
+##### 15#       发表于 2022-6-17 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">反正是看排名，不加深难度难道只看谁细节把握的好吗？就我个人来说，我高中时对大家考简单的题目很不喜欢
+
+*****
+
+####  Vneeto  
+##### 16#       发表于 2022-6-17 23:07
+
+那么苦难
+
+*****
+
+####  Nefertiti  
+##### 17#       发表于 2022-6-17 23:08
+
+只要不是所有人都50分不然考难点不是好事么
+
+*****
+
+####  hyx272  
+##### 18#       发表于 2022-6-17 23:08
+
+都是好事.jpg反正又没60分及格的说法
+
+*****
+
+####  罗克萨斯  
+##### 19#       发表于 2022-6-17 23:09
+
+这是考生太菜了，还是试题太变态了？
+
+*****
+
+####  越动天下  
+##### 20#       发表于 2022-6-17 23:09
+
+ 本帖最后由 越动天下 于 2022-6-17 23:11 编辑 
+
+去年新高考一卷简单了吧 我老师原来还在说高考数学不会再特别难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道第一次八省联考的数学平均分多少 感觉可以对比一下 还有这个平均分怎么看的
+
+*****
+
+####  CR2  
+##### 21#       发表于 2022-6-17 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312742&amp;ptid=2076445" target="_blank">ryj 发表于 2022-6-17 23:04</a>
+广东是单独出卷的吗？</blockquote>
+全国甲卷？
+
+—— 来自 Xiaomi 2201122C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  A队勇夺TI10  
+##### 22#       发表于 2022-6-17 23:12
+
+能正态分布么……
+
+*****
+
+####  skgaminger1988  
+##### 23#       发表于 2022-6-17 23:14
+
+那数学中等的人真是挺惨的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝赞販売中  
+##### 24#       发表于 2022-6-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312742&amp;ptid=2076445" target="_blank">ryj 发表于 2022-6-17 23:04</a>
+广东是单独出卷的吗？</blockquote>
+全国卷，而且八省联考数学广东排名第二仅次江苏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等看江苏消息了
+
+*****
+
+####  处男鉴黄师  
+##### 25#       发表于 2022-6-17 23:15
+
+03年是考前卷子被偷才用的备用卷（估计葛大爷觉得正常情况备用卷不会用到就瞎j8出的），今年又是什么原因？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s1-5-5  
+##### 26#       发表于 2022-6-17 23:17
+
+草，看了卷子还觉得只是偏难，这看起来和疫情共同作用有点严重啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北原凛  
+##### 27#       发表于 2022-6-17 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312718&amp;ptid=2076445" target="_blank">wyhman 发表于 2022-6-17 23:02</a>
+你还是处男吗？  还是的话要加油了  现在正常点的初中生都不是处了</blockquote>
+？你要不要看看你在说什么
+
+—— 来自 HUAWEI STF-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  naclken.  
+##### 28#       发表于 2022-6-17 23:21
+
+从测验设计的角度来说
+
+平均分50也算失败了吧……
+
+平均分75应该是区分度最高的状态
+
+*****
+
+####  ❃✽✾✶✻✼  
+##### 29#       发表于 2022-6-17 23:22
+
+<blockquote>致远星总书记 发表于 2022-6-17 23:06
+反正是看排名，不加深难度难道只看谁细节把握的好吗？就我个人来说，我高中时对大家考简单的题目很 ...</blockquote>
+出题好不好是看区分度的
+
+*****
+
+####  Лилия  
+##### 30#       发表于 2022-6-17 23:25
+
+这…确实是教学事故了啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  wyhman  
+##### 31#         楼主| 发表于 2022-6-17 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312889&amp;ptid=2076445" target="_blank">北原凛 发表于 2022-6-17 23:20</a>
+
+？你要不要看看你在说什么
+
+—— 来自 HUAWEI STF-AL10, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+实事求是
+
+*****
+
+####  格林达姆  
+##### 32#       发表于 2022-6-17 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">现在满分多少，往年平均分又是多少啊
+
+*****
+
+####  11116等  
+##### 33#       发表于 2022-6-17 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312875&amp;ptid=2076445" target="_blank">s1-5-5 发表于 2022-6-17 23:17</a>
+草，看了卷子还觉得只是偏难，这看起来和疫情共同作用有点严重啊</blockquote>
+和去年高考卷一对比难度就更大了，毕竟去年新高考一卷数学还是蛮简单的，今年考生都抱着比较轻松的心态去考，结果碰到这个卷
+
+—— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  ShawElA  
+##### 34#       发表于 2022-6-17 23:33
+
+全国卷数学平均分就是50上下浮动，手头只有文科的数据，印象中理科也是一样。先随便贴两张，想看哪年我再贴<img src="https://p.sda1.dev/6/ad9a47979faa490e918224367875b848/CMP_20220617233131929.png" referrerpolicy="no-referrer">
+
+*****
+
+####  问题修士  
+##### 35#       发表于 2022-6-17 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312991&amp;ptid=2076445" target="_blank">ShawElA 发表于 2022-6-17 23:33</a>
+
+全国卷数学平均分就是50上下浮动，手头只有文科的数据，印象中理科也是一样。先随便贴两张，想看哪年我再贴 ...</blockquote>
+貌似听到过个说法，
+
+高考各科，甚至连语文的平均分都是在及格线之下的
+
+*****
+
+####  ShawElA  
+##### 36#       发表于 2022-6-17 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313008&amp;ptid=2076445" target="_blank">问题修士 发表于 2022-6-17 23:35</a>
+貌似听到过个说法，
+
+高考各科，甚至连语文的平均分都是在及格线之下的</blockquote>
+确实是这样的。
+syl，网上九成以上关于高考平均分的言论都是张口就来，各种“我当年如何如何”连聊天记录都不如。
+
+*****
+
+####  chupacabra  
+##### 37#       发表于 2022-6-17 23:39
+
+今年新一卷数学确实很难哦，以往全国1较平稳
+不知道是不是因为江苏加入干的好事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 38#       发表于 2022-6-17 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312694&amp;ptid=2076445" target="_blank">greenpea 发表于 2022-6-17 22:59</a>
+满分150吗，高考平均分能这么低</blockquote>
+不要小看了广东数学的实力！就是可以这么低！
+
+*****
+
+####  长日留痕  
+##### 39#       发表于 2022-6-17 23:47
+
+高考数学强者都在s1。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ancerise  
+##### 40#       发表于 2022-6-17 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312991&amp;ptid=2076445" target="_blank">ShawElA 发表于 2022-6-17 23:33</a>
+
+全国卷数学平均分就是50上下浮动，手头只有文科的数据，印象中理科也是一样。先随便贴两张，想看哪年我再贴 ...</blockquote>
+广东在全国卷里面不应该靠前？
+
+*****
+
+####  dren_zheng  
+##### 41#       发表于 2022-6-18 00:02
+
+高考不是实际看排名吗？大家平均20分，你能21那就是比别人厉害啊，为啥大家说是事故？
+
+话说，高考难度算是年经了吧，很多时候都是一年容易一年难，反复调整难度的结果就是反复横跳
+
+------------
+
+哦，回想了下，当年高考时，分数是按分布区域算的排名分，不是简单的总分累加，那时难度真的相对不重要
+
+*****
+
+####  搞不好是洗衣粉  
+##### 42#       发表于 2022-6-18 00:05
+
+网易游戏：要么氪霸，要么等于不氪
+
+新一卷数学：要么学霸，要么等于没学
+
+什么网易策划<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 43#       发表于 2022-6-18 00:10
+
+这么难的话，区分度很低啊，中等和差生。变成语文英语区分考生了
+
+*****
+
+####  s1-5-5  
+##### 44#       发表于 2022-6-18 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313027&amp;ptid=2076445" target="_blank">ShawElA 发表于 2022-6-17 23:39</a>
+ 确实是这样的。 syl，网上九成以上关于高考平均分的言论都是张口就来，各种“我当年如何如何”连聊天记录 ...</blockquote>
+我只记得肯定是远不到75的，但是50属实没想到过
+
+*****
+
+####  Spin-Up  
+##### 45#       发表于 2022-6-18 00:16
+
+我记得每年考研数学平均分也是这个数？
+自暴自弃的，缺考的，还是看分布，平均分不能说明问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  北原凛  
+##### 46#       发表于 2022-6-18 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312956&amp;ptid=2076445" target="_blank">wyhman 发表于 2022-6-17 23:28</a>
+实事求是</blockquote>
+您初中时候就失去童贞了？
+
+—— 来自 HUAWEI STF-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShawElA  
+##### 47#       发表于 2022-6-18 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313163&amp;ptid=2076445" target="_blank">Ancerise 发表于 2022-6-17 23:52</a>
+广东在全国卷里面不应该靠前？</blockquote>
+广东未合并一二本前在一卷省份中一本录取率排中间，而广东一本线基本和其他省份持平，因此广东数学平均分并不会与大多省份有显著差异。
+顺便一说教育发达所以平均分高也属于典型谬传，各省教育厅都出过试卷分析，其中会附带本省作答情况统计，比较卷的几个省份差距很小。
+
+*****
+
+####  HB21SautoworksR  
+##### 48#       发表于 2022-6-18 00:24
+
+我只关心我的高考监考费什么时候发，去年的份还没见到呢
+
+*****
+
+####  ShawElA  
+##### 49#       发表于 2022-6-18 00:25
+
+ 本帖最后由 ShawElA 于 2022-6-18 00:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313326&amp;ptid=2076445" target="_blank">zhongjie 发表于 2022-6-18 00:10</a>
+这么难的话，区分度很低啊，中等和差生。变成语文英语区分考生了</blockquote>
+这就扯了，数学平均分常年不如语文英语，但区分度从来都是吊打，语文英语很多题目区分度趋近于零，甚至出现过负数区分度的题目，而数学题目区分度很多都有0.5。
+题目的难易度对区分度的影响远小于学科。
+
+*****
+
+####  jctc  
+##### 50#       发表于 2022-6-18 00:25
+
+出题太难没有区分度 
+
+*****
+
+####  wyhman  
+##### 51#         楼主| 发表于 2022-6-18 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313403&amp;ptid=2076445" target="_blank">北原凛 发表于 2022-6-18 00:20</a>
+
+您初中时候就失去童贞了？
+
+—— 来自 HUAWEI STF-AL10, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这不很正常？为什么要大惊小怪
+
+*****
+
+####  ShawElA  
+##### 52#       发表于 2022-6-18 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313376&amp;ptid=2076445" target="_blank">Spin-Up 发表于 2022-6-18 00:16</a>
+我记得每年考研数学平均分也是这个数？
+自暴自弃的，缺考的，还是看分布，平均分不能说明问题 ...</blockquote>
+分布比平均分还稳，年年都是人数高峰偏左的正偏态分布，接近零分的相对数量不多。
+
+*****
+
+####  mixtycomeon  
+##### 53#       发表于 2022-6-18 00:38
+
+广东高考？这也不是敏感词啊。还有为啥高和考断开了？
+
+*****
+
+####  gane1010  
+##### 54#       发表于 2022-6-18 00:39
+
+匪夷所思啊  这分数
+
+*****
+
+####  萌臀  
+##### 55#       发表于 2022-6-18 00:46
+
+整体分高利好学渣，整体分低利好学霸
+
+*****
+
+####  电波系腑海林  
+##### 56#       发表于 2022-6-18 01:01
+
+泥潭人到了半夜确实思维容易发散
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我就再氪一单  
+##### 57#       发表于 2022-6-18 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那不是好事吗，拉不开差距了
+
+*****
+
+####  南极洲  
+##### 58#       发表于 2022-6-18 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313258&amp;ptid=2076445" target="_blank">dren_zheng 发表于 2022-6-18 00:02</a>
+
+高考不是实际看排名吗？大家平均20分，你能21那就是比别人厉害啊，为啥大家说是事故？
+
+话说，高考难度算是 ...</blockquote>
+难度太高会把分数区间压缩导致区分度太低, 随机性大增.
+
+本来正常难度甲90, 乙70
+
+碰上这种难度高的, 结果甲60, 乙55.
+
+本来甲比乙要高出很多的结果最后分数看起来差不多.
+
+然后大部分人都挤在这个压缩后的分数段里, 一个选择题随机瞎蒙的对错都能成为决定因素.
+
+*****
+
+####  Tomorrow_D  
+##### 59#       发表于 2022-6-18 01:11
+
+2003年不是葛军命题
+
+*****
+
+####  dren_zheng  
+##### 60#       发表于 2022-6-18 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313729&amp;ptid=2076445" target="_blank">南极洲 发表于 2022-6-18 01:07</a>
+
+难度太高会把分数区间压缩导致区分度太低, 随机性大增.
+
+本来正常难度甲90, 乙70</blockquote>
+哦，我还以为大家说的是，因为某科评价低（比如数学50），其他科容易（比如语文评价90），容易的科目分数高在总分里占比大，放大了影响力
+
+话说，现在高考仍然是全部科目的原始分数直接累加吗？
+
+
+
+*****
+
+####  Vzero  
+##### 61#       发表于 2022-6-18 01:22
+
+<blockquote>wyhman 发表于 2022-6-17 23:01
+有人骂有人捧，为什么骂不谈了，捧的人表示这是在为未来储备真正的人才 ...</blockquote>
+高考数学这点东西没法筛选真正的人才的
+
+*****
+
+####  Tomorrow_D  
+##### 62#       发表于 2022-6-18 01:24
+
+ 本帖最后由 Tomorrow_D 于 2022-6-18 01:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312991&amp;ptid=2076445" target="_blank">ShawElA 发表于 2022-6-17 23:33</a>
+
+全国卷数学平均分就是50上下浮动，手头只有文科的数据，印象中理科也是一样。先随便贴两张，想看哪年我再贴 ...</blockquote>
+文数平均分往往比理数要低，而且低不少。虽然文数相对简单，但是大量文科生数学是薄弱项
+
+甘肃省2013和2019年的数据（全国课标2卷）：
+
+2013年
+
+理数均分74.00
+
+文数均分53.24
+
+2019年
+
+理数均分82.67
+
+文数均分65.51
+
+当然新高考文理合卷，所以平均分肯定要被文科生拉下来一些。不过今年的新1卷确实难，中档题多送分题少。
+
