@@ -17020,3 +17020,24 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">垃圾箱子不拿了 直接突脸全杀了
 
+
+
+*****
+
+####  alucardcz  
+##### 88466#       发表于 2022-6-17 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56310338&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-17 19:43</a>
+
+垃圾箱子不拿了 直接突脸全杀了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/17/195911ecc8w9015jx4mx5f.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (534.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-17 19:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了。还有2个箱子我还来得及拿吗 是电脑送的快还是我先拿到箱子
+
