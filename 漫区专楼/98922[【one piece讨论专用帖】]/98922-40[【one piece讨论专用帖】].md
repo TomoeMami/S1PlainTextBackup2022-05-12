@@ -2796,3 +2796,16 @@ faedab64034f78f0ae30f72a3c310a55b3191c2b.jpg
 
 稻草神棍都比他讨喜<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 58761#       发表于 2022-6-17 11:45
+
+话说有没有达人来科普下绿牛这个角色的影视原型？
+
+大将的性格其实跟电影原型还挺像的
+
+PS：大约霍金斯的确死了。。。
+
