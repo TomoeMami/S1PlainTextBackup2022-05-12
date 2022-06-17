@@ -16930,3 +16930,15 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 强敌算进去也没用啊，箱子在他背后，你打死后直接过关也拿不了箱子啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88457#       发表于 2022-6-17 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56306389&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-6-17 14:26</a>
+
+强敌算进去也没用啊，箱子在他背后，你打死后直接过关也拿不了箱子啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对哦。。艹
+

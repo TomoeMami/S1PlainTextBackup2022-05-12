@@ -486,3 +486,12 @@ https://www.bilibili.com/video/B ... 2bdf7 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继boss的富野节后有了后继者么
 [https://www.bilibili.com/video/BV13W411X7UD](https://www.bilibili.com/video/BV13W411X7UD)
 
+
+
+*****
+
+####  poipanchao  
+##### 15048#       发表于 2022-6-17 15:11
+
+第二个有几句直接放进正片也没啥违和…
+
