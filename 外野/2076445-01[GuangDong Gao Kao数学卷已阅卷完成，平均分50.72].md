@@ -641,3 +641,30 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 <img src="https://img.saraba1st.com/forum/202206/18/013719t64z6r99zw0u66i4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  南极洲  
+##### 66#       发表于 2022-6-18 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313780&amp;ptid=2076445" target="_blank">dren_zheng 发表于 2022-6-18 01:14</a>
+
+哦，我还以为大家说的是，因为某科评价低（比如数学50），其他科容易（比如语文评价90），容易的科目分数 ...</blockquote>
+你说的这种情况也是存在的
+
+比如正常情况甲数学比乙高10分, 乙在语文英语上高10分.
+
+双方高考分数在一个水平上.
+
+但是数学太难甲领先不了乙10分了, 那么甲总分就会吃亏.
+
+除非甲是那种数学前1%的高手. 否则数学单科优势的中间人群算总分是会吃亏的.
+
+*****
+
+####  孤独探戈  
+##### 67#       发表于 2022-6-18 02:56
+
+看了一眼还以为很难，其实这卷子篩人有点水平，如果是思维僵化和填鸭式的做题家会完蛋。但是懂得举一反三，思维灵活的人难度不会太高。
+

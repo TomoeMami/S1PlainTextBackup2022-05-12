@@ -649,3 +649,14 @@ IOSYS的まろん做的这个slm音MAD质量挺高的<img src="https://static.sa
 drm的c team昨天因为时间快到了服务器关了就做不了事，最后挤在基地里玩休学旅行rp，分房间，躲老师查寝，偷窥女生寝室都复刻玩了一遍。
 就是最后sqla直接把nrk怼在房间角落床上有点顶不住，玩得好开啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 15063#       发表于 2022-6-18 02:53
+
+喷了pomu这被开 这中之人我之前还听说过
+
+syl: 这么看pomu跟kiara简直是命中注定
+
