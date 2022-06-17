@@ -11586,3 +11586,15 @@ YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5
 刚好昨天重温了马三角BD making1，打铁和铃果的出道经历很像，都是因为喜欢唱歌和各自的系列去参加海选并且脱颖而出，素人出道唱歌配音的天赋都很高。
 飞狗给铃果的资源挺不错一年一张单曲，爱马仕马娘pjsk这些热门ip 都参加了，真希望烂铁也能给打铁多一些资源
 
+
+
+*****
+
+####  player3960  
+##### 10025#       发表于 2022-6-17 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56307955&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-17 16:24</a>
+
+刚好昨天重温了马三角BD making1，打铁和铃果的出道经历很像，都是因为喜欢唱歌和各自的系列去参加海选并 ...</blockquote>
+要烂铁给资源也要打铁签烂铁solo出道吧，那到时候打铁岂不是鲤鱼在烂铁的后辈了，乱套了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
