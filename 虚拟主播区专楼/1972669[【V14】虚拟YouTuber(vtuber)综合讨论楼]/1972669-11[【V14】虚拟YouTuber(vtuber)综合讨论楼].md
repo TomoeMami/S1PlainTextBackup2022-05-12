@@ -504,3 +504,14 @@ https://www.bilibili.com/video/B ... 2bdf7 ...</blockquote>
 
 要是luxiem比obsydia先有新衣服那田角陆你**死了
 
+
+
+*****
+
+####  winda  
+##### 15050#       发表于 2022-6-17 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这明明是麓貴隆的good business sense
+
+现在海外直营就剩个en，唯一主C还得陪着大部队排队丢不丢人
+
