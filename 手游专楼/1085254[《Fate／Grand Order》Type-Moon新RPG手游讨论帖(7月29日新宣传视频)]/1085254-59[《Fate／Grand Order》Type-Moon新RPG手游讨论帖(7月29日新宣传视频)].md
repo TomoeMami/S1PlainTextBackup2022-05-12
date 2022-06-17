@@ -17138,3 +17138,15 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 不用王哈就能解决你这问题</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我角色少啊 没什么能用的
 
+
+
+*****
+
+####  alucardcz  
+##### 88475#       发表于 2022-6-17 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311118&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-17 20:44</a>
+
+主要我角色少啊 没什么能用的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了我也是（
+
