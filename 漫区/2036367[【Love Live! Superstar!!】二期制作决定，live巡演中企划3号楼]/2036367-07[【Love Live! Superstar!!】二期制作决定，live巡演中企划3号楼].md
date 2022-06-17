@@ -11645,3 +11645,18 @@ YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5
 
 JUVENILE推荐鲤鱼养观叶植物，好养又治愈，既不用经常浇水，基本也不会有虫害，定期通风晒太阳对自身生活也有好处，结果鲤鱼居然选择May'n推荐的打棒球，因为比起植物更喜欢会动的活物，如果植物会动就好了。</blockquote>
 
+
+
+*****
+
+####  caicaistar  
+##### 10030#       发表于 2022-6-18 00:35
+
+<img src="https://img.saraba1st.com/forum/202206/18/003444rh8h3hj6171mfrih.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (119.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 00:34 上传
+
