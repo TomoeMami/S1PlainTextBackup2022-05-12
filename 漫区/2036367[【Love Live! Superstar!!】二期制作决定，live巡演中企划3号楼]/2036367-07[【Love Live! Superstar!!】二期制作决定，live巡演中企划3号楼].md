@@ -11523,3 +11523,16 @@ YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5
 YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5000销量</blockquote>
 榜单可能不计，但是资本从来逐利，卖的不行谁会吃力不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不说5000，4000多基本稳的
 
+
+
+*****
+
+####  iuhehc  
+##### 10019#       发表于 2022-6-17 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56304932&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-6-17 12:43</a>
+可是蓝的白的都是无糖的啊（</blockquote>
+但都是代糖吧，热量也不低，别说功能饮料了，就是长期喝一般无糖汽水都会胖
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
