@@ -11474,3 +11474,21 @@ nagi的减肥经验应该在全系列推广（不是）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜宝老是晚上一罐魔爪，隔天没活就白天睡觉的，瘦不下来的
 
+
+
+*****
+
+####  D麦林  
+##### 10014#       发表于 2022-6-17 12:33
+
+但是 是无糖的魔爪啊 应该不会导致变胖吧
+
+*****
+
+####  cybernetics31  
+##### 10015#       发表于 2022-6-17 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56304777&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-6-17 12:33</a>
+但是 是无糖的魔爪啊 应该不会导致变胖吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是只喝无糖的
+

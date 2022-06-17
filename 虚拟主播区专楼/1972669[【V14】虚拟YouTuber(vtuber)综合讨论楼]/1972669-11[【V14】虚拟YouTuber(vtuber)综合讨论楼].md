@@ -452,3 +452,16 @@ slm那里没有明显震感，是评论栏说地震她才知道地震了的
 
 也就个帕青哥风云录能比一下了，可惜管人没法播这个，除非可以用修改和加速齿轮...
 
+
+
+*****
+
+####  CielChloe  
+##### 15045#       发表于 2022-6-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56302350&amp;ptid=1972669" target="_blank">小鸟游泉 发表于 2022-6-17 10:27</a>
+https://www.bilibili.com/video/B ... 2bdf7abfeafd75022e9
+
+https://www.bilibili.com/video/B ... 2bdf7 ...</blockquote>
+这个必须强烈推荐，要是莎乐美真能给高达作品配次音，那也算是实现一个梦想了吧（做梦中<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
