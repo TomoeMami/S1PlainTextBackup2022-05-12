@@ -11492,3 +11492,22 @@ nagi的减肥经验应该在全系列推广（不是）
 但是 是无糖的魔爪啊 应该不会导致变胖吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是只喝无糖的
 
+
+
+*****
+
+####  D麦林  
+##### 10016#       发表于 2022-6-17 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56304879&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-17 12:39</a>
+
+她老婆蓝魔爪女朋友白魔爪又不是只喝无糖的</blockquote>
+可是蓝的白的都是无糖的啊（
+
+*****
+
+####  lj205  
+##### 10017#       发表于 2022-6-17 12:51
+
+YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5000销量
+

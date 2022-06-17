@@ -465,3 +465,14 @@ https://www.bilibili.com/video/B ... 2bdf7abfeafd75022e9
 https://www.bilibili.com/video/B ... 2bdf7 ...</blockquote>
 这个必须强烈推荐，要是莎乐美真能给高达作品配次音，那也算是实现一个梦想了吧（做梦中<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 15046#       发表于 2022-6-17 12:41
+
+因为地震多发，日本人地域位置真是太容易暴露了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过以莎乐美演技的pro程度，除非震感大到影响直播，不然她能装作没事人一样你信不信，所以其实没什么参考价值。
+
