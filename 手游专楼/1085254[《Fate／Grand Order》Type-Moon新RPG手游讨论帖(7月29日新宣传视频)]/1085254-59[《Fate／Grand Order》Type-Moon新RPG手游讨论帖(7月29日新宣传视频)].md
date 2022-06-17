@@ -16960,3 +16960,12 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">一把费好长时间，就算有石头也不想打了……
 
+
+
+*****
+
+####  alucardcz  
+##### 88460#       发表于 2022-6-17 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">地图越来越大了 难道这模式在日本深受好评?
+

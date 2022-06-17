@@ -5002,3 +5002,16 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 就好像这次pv，明明没有任何人说最后出现的人是吕布，但大家就是能从武 ...</blockquote>
 有提到能拿武将装备和武器，自己搞cos是没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 500#         楼主| 发表于 2022-6-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56299138&amp;ptid=2075355" target="_blank">天邪鬼 发表于 2022-6-17 01:23</a>
+吕布：不行，因为你就是貂蝉。貂蝉，屌残啊！
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 S1Next-鹅版 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/89e1c6e328ed847d300e7f7f8e7669fc/CMP_20220617172305312.jpg" referrerpolicy="no-referrer">
+
