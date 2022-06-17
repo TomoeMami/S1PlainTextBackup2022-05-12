@@ -16989,3 +16989,16 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 有白方块的现在这点素材实在没动力斗智斗勇，直接过关走人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88463#       发表于 2022-6-17 18:59
+
+<blockquote>保罗赫伯特 发表于 2022-6-17 17:49
+这次怎么不能查看箱子里的奖励内容了，看狂那守门，还以为金箱子里是金蛋X5，结果一打开是黑兽脂
+
+宝 ...</blockquote>
+我看到是这玩意直接吐了，告辞
+
