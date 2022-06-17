@@ -17086,3 +17086,17 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 太弱智了 难度全在怎么能让对面不死
 
+
+
+*****
+
+####  qixinno2  
+##### 88470#       发表于 2022-6-17 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56310765&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-17 20:15</a>
+
+低星立功了 本来我还想上什么低星
+
+太弱智了 难度全在怎么能让对面不死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强无敌 我就上了王哈和梵高 几回合我王哈就突到对面脸上了 还想着拿俩箱子 结果这帮弱智直接往我身上撞 感觉真不如以前的打着舒服
+
