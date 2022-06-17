@@ -17168,3 +17168,24 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 最主要狂那那里，经常不小心将狂那拉进来，导致压力有点大<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88478#       发表于 2022-6-17 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311833&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-17 21:39</a>
+
+最主要狂那那里，经常不小心将狂那拉进来，导致压力有点大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这怎么拉出来的  又不会动 注意别连线就行了
+
+*****
+
+####  khxooo  
+##### 88479#       发表于 2022-6-17 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311849&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-17 21:41</a>
+这怎么拉出来的  又不会动 注意别连线就行了</blockquote>
+最主要我比对方更莽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
