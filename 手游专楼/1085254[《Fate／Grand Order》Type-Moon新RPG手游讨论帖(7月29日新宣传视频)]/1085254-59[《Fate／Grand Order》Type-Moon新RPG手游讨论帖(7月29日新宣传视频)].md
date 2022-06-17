@@ -16921,3 +16921,12 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 本意是想照顾练度较低的玩家吧，但这个机制是挺僵硬的，改成打完之后可以自己选择继续挑战金箱子或者直接 ...</blockquote>
 没关系吧？ 都打完了  剩下的又不会动 直接上去踢三角吗死他不就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 88456#       发表于 2022-6-17 14:26
+
+强敌算进去也没用啊，箱子在他背后，你打死后直接过关也拿不了箱子啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
