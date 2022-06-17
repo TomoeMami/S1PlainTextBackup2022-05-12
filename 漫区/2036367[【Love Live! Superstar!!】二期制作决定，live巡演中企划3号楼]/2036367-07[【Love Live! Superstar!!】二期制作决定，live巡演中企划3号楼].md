@@ -11574,3 +11574,15 @@ YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nagi 活源源不断，nako………………
 
+
+
+*****
+
+####  starring  
+##### 10024#       发表于 2022-6-17 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56306969&amp;ptid=2036367" target="_blank">DarthAka 发表于 2022-6-17 15:13</a>
+小百合和隔壁铃果生涯挺像的，正好小5岁，马三角正好是16年的片子……这几天找了几首鱼最近的歌，是真不错 ...</blockquote>
+刚好昨天重温了马三角BD making1，打铁和铃果的出道经历很像，都是因为喜欢唱歌和各自的系列去参加海选并且脱颖而出，素人出道唱歌配音的天赋都很高。
+飞狗给铃果的资源挺不错一年一张单曲，爱马仕马娘pjsk这些热门ip 都参加了，真希望烂铁也能给打铁多一些资源
+
