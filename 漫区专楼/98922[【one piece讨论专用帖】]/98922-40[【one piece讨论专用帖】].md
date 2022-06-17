@@ -2717,3 +2717,19 @@ K和Q扔去了监狱，应该就是海楼石拷上了吧。绿牛带不走草帽
 
 路飞又不是没有以前的悬赏照，真要这么展开过于欢乐喜剧人了，除非故意的
 
+
+
+*****
+
+####  klzxs  
+##### 58756#       发表于 2022-6-17 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56300611&amp;ptid=98922" target="_blank">陈玉礼 发表于 2022-6-17 08:44</a>
+
+路飞又不是没有以前的悬赏照，真要这么展开过于欢乐喜剧人了，除非故意的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">海贼里面部分人是这样的
+
+像路飞艾斯萨博，一辈子不看报纸，不然可能早相认了
+
+提这可能性也是因为这话有一格绿牛在看路飞新的悬赏照
+
