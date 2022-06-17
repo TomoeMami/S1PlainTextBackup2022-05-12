@@ -17189,3 +17189,14 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 这怎么拉出来的  又不会动 注意别连线就行了</blockquote>
 最主要我比对方更莽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 88480#       发表于 2022-6-17 22:40
+
+暫時只得戰場3拿到金箱，因為狂周就在下方必經之路，可以順便殺，但奈何上方之路的大象不停衝出來，守在上方泳裝聖女一拳一隻
+
+當守好下方之路時，上方的大象也快死光，連敵方MASTER都衝下來被包圍...
+

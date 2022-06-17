@@ -3100,3 +3100,15 @@ cp0要杀德雷克灭口，我觉得算是把海军和政府的对立抬到明�
 伟大航路同时出航</blockquote>
 一切都是香克斯的阴谋
 
+
+
+*****
+
+####  7sevenseven  
+##### 58790#       发表于 2022-6-17 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312072&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2022-6-17 22:02</a>
+为啥都认为皇副是mr3，不应该是亚尔丽塔吗？</blockquote>
+目前皇副都是脑子清楚的
+巴基旁边只有3整天吐槽巴基
+
