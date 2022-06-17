@@ -16969,3 +16969,14 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">地图越来越大了 难道这模式在日本深受好评?
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88461#       发表于 2022-6-17 17:49
+
+这次怎么不能查看箱子里的奖励内容了，看狂那守门，还以为金箱子里是金蛋X5，结果一打开是黑兽脂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+宝箱分布的也太零散了，要拿完又得多拖延几个回合<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
