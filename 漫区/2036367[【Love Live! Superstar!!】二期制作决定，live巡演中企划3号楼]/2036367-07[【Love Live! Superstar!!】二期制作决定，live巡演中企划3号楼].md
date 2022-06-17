@@ -11511,3 +11511,15 @@ nagi的减肥经验应该在全系列推广（不是）
 
 YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5000销量
 
+
+
+*****
+
+####  老1.5  
+##### 10018#       发表于 2022-6-17 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56305035&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-17 12:51</a>
+
+YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5000销量</blockquote>
+榜单可能不计，但是资本从来逐利，卖的不行谁会吃力不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不说5000，4000多基本稳的
+
