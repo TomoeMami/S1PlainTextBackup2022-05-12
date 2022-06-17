@@ -16980,3 +16980,12 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 宝箱分布的也太零散了，要拿完又得多拖延几个回合<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 88462#       发表于 2022-6-17 18:38
+
+有白方块的现在这点素材实在没动力斗智斗勇，直接过关走人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
