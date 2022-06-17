@@ -428,3 +428,16 @@ slm那里没有明显震感，是评论栏说地震她才知道地震了的
 
 虽然黑客今天有线下3d联动我很高兴但一想到疯狂刷存在的cp厨就不想看了……
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15043#       发表于 2022-6-17 10:27
+
+[https://www.bilibili.com/video/B ... 2bdf7abfeafd75022e9](https://www.bilibili.com/video/BV16t4y1H7C1?share_source=copy_web&amp;vd_source=06c0f170154c92bdf7abfeafd75022e9)
+
+[https://www.bilibili.com/video/B ... 2bdf7abfeafd75022e9](https://www.bilibili.com/video/BV1pU4y1X7Bv?share_source=copy_web&amp;vd_source=06c0f170154c92bdf7abfeafd75022e9)
+
+转两个莎乐美的好活，这台词节选的太乐了，真是强化人间特有的精神不安定…
+
