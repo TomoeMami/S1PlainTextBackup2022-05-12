@@ -17200,3 +17200,19 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 當守好下方之路時，上方的大象也快死光，連敵方MASTER都衝下來被包圍...
 
+
+
+*****
+
+####  ggyy0088  
+##### 88481#       发表于 2022-6-17 22:53
+
+B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 88482#       发表于 2022-6-17 22:58
+
+这圣杯战线难度全在回收宝箱上了，好不容易一路砍瓜切菜冲到宝箱面前了，后面的大象拼了老命冲上来送死。我的B叔都已经贴到你们master脸上了，你们不想着回防，拼命打我的教授干什么。教授：“弱者为何要战斗”，“住手吧，凭你是打不过我的”，“告诉我，MC，我到底还要杀掉多少大象才能拿到那个宝箱”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
