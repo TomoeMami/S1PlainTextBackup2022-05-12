@@ -17100,3 +17100,41 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 太弱智了 难度全在怎么能让对面不死 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强无敌 我就上了王哈和梵高 几回合我王哈就突到对面脸上了 还想着拿俩箱子 结果这帮弱智直接往我身上撞 感觉真不如以前的打着舒服
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88471#       发表于 2022-6-17 20:30
+
+越来越麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 88472#       发表于 2022-6-17 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56310848&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-17 20:20</a>
+
+强无敌 我就上了王哈和梵高 几回合我王哈就突到对面脸上了 还想着拿俩箱子 结果这帮弱智直接往我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用王哈就能解决你这问题
+
+*****
+
+####  qixinno2  
+##### 88473#       发表于 2022-6-17 20:43
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 88474#       发表于 2022-6-17 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311017&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-17 20:35</a>
+
+不用王哈就能解决你这问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我角色少啊 没什么能用的
+
