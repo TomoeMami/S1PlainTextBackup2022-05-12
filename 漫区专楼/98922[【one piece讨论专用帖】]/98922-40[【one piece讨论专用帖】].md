@@ -3006,3 +3006,28 @@ PS：大约霍金斯的确死了。。。
 不如想想结局的剧情，最终boss是黑胡子还是依姆？海军最后是誓死维护天龙人还是知道历史真相后倒戈 ...</blockquote>
 cp0要杀德雷克灭口，我觉得算是把海军和政府的对立抬到明面上了
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 58782#       发表于 2022-6-17 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  云间莼鲈  
+##### 58783#       发表于 2022-6-17 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276840&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-6-15 13:37</a>
+
+对岸论坛看到的一个当年连载时的“泄露”
+
+透露了七武海解散和巴基做四皇
+
+有点意思发上来</blockquote>
+这个我记得是一个和尾田闹翻的助手泄露出来的（有些海贼粉丝扒过），后来报警处理了。
+

@@ -11598,3 +11598,23 @@ YJ说写真集再版，然后出版前也多次增印，看来加上fc确实有5
 刚好昨天重温了马三角BD making1，打铁和铃果的出道经历很像，都是因为喜欢唱歌和各自的系列去参加海选并 ...</blockquote>
 要烂铁给资源也要打铁签烂铁solo出道吧，那到时候打铁岂不是鲤鱼在烂铁的后辈了，乱套了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10026#       发表于 2022-6-17 17:13
+
+还寄望烂铁？鲤鱼三单今年有没有信都是个问题
+
+*****
+
+####  starring  
+##### 10027#       发表于 2022-6-17 17:18
+
+ 本帖最后由 starring 于 2022-6-17 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56308600&amp;ptid=2036367" target="_blank">player3960 发表于 2022-6-17 17:10</a>
+
+要烂铁给资源也要打铁签烂铁solo出道吧，那到时候打铁岂不是鲤鱼在烂铁的后辈了，乱套了 ...</blockquote>
+脑抽了记成打铁的资源是烂铁给的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
