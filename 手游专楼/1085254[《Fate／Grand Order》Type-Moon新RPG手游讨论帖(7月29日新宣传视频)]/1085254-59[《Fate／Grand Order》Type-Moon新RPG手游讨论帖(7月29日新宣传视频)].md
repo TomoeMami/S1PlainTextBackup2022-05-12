@@ -17060,3 +17060,29 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mdzz 难度全在怎么让对面不死光了
 
+
+
+*****
+
+####  qixinno2  
+##### 88468#       发表于 2022-6-17 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56310522&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-17 19:59</a>
+
+那么问题来了。还有2个箱子我还来得及拿吗 是电脑送的快还是我先拿到箱子
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉对面会死的快 简直有病 一堆菜B也敢冲我王哈和梵高的脸
+
+*****
+
+####  alucardcz  
+##### 88469#       发表于 2022-6-17 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56310696&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-17 20:10</a>
+
+感觉对面会死的快 简直有病 一堆菜B也敢冲我王哈和梵高的脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">低星立功了 本来我还想上什么低星
+
+太弱智了 难度全在怎么能让对面不死
+
