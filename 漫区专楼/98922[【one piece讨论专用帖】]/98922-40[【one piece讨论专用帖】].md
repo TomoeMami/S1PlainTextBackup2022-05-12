@@ -2848,3 +2848,28 @@ PS：大约霍金斯的确死了。。。
 但其实吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯多打不死一个锦皇还不大崩坏，近海之王打残四皇，吧唧都当上四皇了哦，你要是想玩皇将斗虎扑和贴吧不都得是嘛，何必在S1搞这种呢，搞得多委屈一样。要斗兽就斗兽，怎么还扯到世界观上，战斗力出点不如读者意能跟和之国这篇的种种问题比？
 
+
+
+*****
+
+####  Supermangunv3  
+##### 58765#       发表于 2022-6-17 12:52
+
+<img src="https://img.saraba1st.com/forum/202206/17/125206bdev4bxklqxnki5u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220617_125144_com.zhihu.android.jpg</strong> (200.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-17 12:52 上传
+
+*****
+
+####  死神狙击手  
+##### 58766#       发表于 2022-6-17 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56304962&amp;ptid=98922" target="_blank">武男 发表于 2022-6-17 12:46</a>
+凯多打不死一个锦皇还不大崩坏，近海之王打残四皇，吧唧都当上四皇了哦，你要是想玩皇将斗虎扑和贴 ...</blockquote>
+你在说啥？我就是看到今天皇将粉圈，附议本楼前面说的如果皇将平级，为何要搞平衡的回帖
+
