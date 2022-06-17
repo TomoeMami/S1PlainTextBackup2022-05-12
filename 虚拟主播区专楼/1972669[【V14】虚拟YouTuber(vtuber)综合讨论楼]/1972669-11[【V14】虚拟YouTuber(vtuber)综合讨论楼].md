@@ -558,3 +558,20 @@ https://www.bilibili.com/video/B ... 2bdf7 ...</blockquote>
 看来eden的3D排上了这事不假？可惜lr又歇了…
 syl，月之脸肥肥腿也肥肥但真的（相对）没料，没什么好脱的吧！
 
+
+
+*****
+
+####  FCCHua  
+##### 15055#       发表于 2022-6-17 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+6/23(木) 20:00～ #ぶいすぽ激ロー 👑
+KING OF 口角 2022 ✨
+口角を一番天井に突き刺すのは誰だ⁉
+🏆挑戦者
+橘ひなの、英リサ、神成きゅぴ、藍沢エマ
+叶（にじさんじ）
+👄口角審査員
+kamito、トナカイト、ギルくん
+
