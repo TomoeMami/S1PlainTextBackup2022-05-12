@@ -17150,3 +17150,21 @@ TMD 我一共就那么几个五星 这也能叫欧的么</blockquote>
 主要我角色少啊 没什么能用的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了我也是（
 
+
+
+*****
+
+####  khxooo  
+##### 88476#       发表于 2022-6-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56311215&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-17 20:52</a>
+巧了我也是（</blockquote>
+黑狗，杨贵妃，没有角色用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 88477#       发表于 2022-6-17 21:39
+
+最主要狂那那里，经常不小心将狂那拉进来，导致压力有点大<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

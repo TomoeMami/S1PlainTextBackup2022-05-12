@@ -593,3 +593,14 @@ kamito、トナカイト、ギルくん
 
 感觉最后都会输给giru
 
+
+
+*****
+
+####  Ketestrait  
+##### 15058#       发表于 2022-6-17 21:39
+
+[https://youtu.be/nHhh0oCZqJE](https://youtu.be/nHhh0oCZqJE)
+
+IOSYS的まろん做的这个slm音MAD质量挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
