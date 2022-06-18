@@ -12225,3 +12225,16 @@ Sayu"宫城是海外～"
 女版雷易吗？</blockquote>
 之前三丽鸥公开录音时大家选出来的，今天再说一遍而已
 
+
+
+*****
+
+####  lj205  
+##### 10079#       发表于 2022-6-18 22:16
+
+ 本帖最后由 lj205 于 2022-6-18 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56322126&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-18 21:57</a>
+
+之前三丽鸥公开录音时大家选出来的，今天再说一遍而已</blockquote>
+我知道，就是刚好想到这个梗而已
+
