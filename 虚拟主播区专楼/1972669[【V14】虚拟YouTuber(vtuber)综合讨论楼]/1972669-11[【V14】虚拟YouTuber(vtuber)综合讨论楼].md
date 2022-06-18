@@ -744,3 +744,12 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 是为了不播时也让观众有个念想，拿捏了
 
+
+
+*****
+
+####  死体残留  
+##### 15072#       发表于 2022-6-18 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这动画有编辑过么
+
