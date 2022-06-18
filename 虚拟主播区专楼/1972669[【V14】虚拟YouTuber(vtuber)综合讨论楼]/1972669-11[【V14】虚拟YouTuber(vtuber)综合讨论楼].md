@@ -778,3 +778,25 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 节目效果吧，
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15076#       发表于 2022-6-18 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319108&amp;ptid=1972669" target="_blank">死体残留 发表于 2022-6-18 17:06</a>
+
+这动画有编辑过么</blockquote>
+开播的倒计时倒是挺用心做了一段效果…但是现在过了首播后也就看不到那个了
+
+*****
+
+####  越动天下  
+##### 15077#       发表于 2022-6-18 18:38
+
+ 本帖最后由 越动天下 于 2022-6-18 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319900&amp;ptid=1972669" target="_blank">小鸟游泉 发表于 2022-6-18 18:35</a>
+开播的倒计时倒是挺用心做了一段效果…但是现在过了首播后也就看不到那个了 ...</blockquote>
+你说的不会是油管自带的那个倒计时功能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那个是油管自己做的吧 你可以多看看 油管做这些东西还蛮不错的 还变化了很多次
+
