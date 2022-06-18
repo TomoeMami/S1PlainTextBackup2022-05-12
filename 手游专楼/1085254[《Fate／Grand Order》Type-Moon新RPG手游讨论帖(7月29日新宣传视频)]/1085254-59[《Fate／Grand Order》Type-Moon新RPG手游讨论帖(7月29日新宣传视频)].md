@@ -17245,3 +17245,12 @@ B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="htt
 迦尔纳强度是真的鸡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88485#       发表于 2022-6-18 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等2.4估计能跟大象一起得到个强化吧
+
