@@ -9662,3 +9662,29 @@ fafa在今天凌晨的直播里说mea前天晚上的推限里有一些会引发�
 
 别对着谜语发散了。推限但凡有爆点，早就有人剪辑翻译好了。
 
+
+
+*****
+
+####  路人庚  
+##### 11435#       发表于 2022-6-18 14:31
+
+前天忙着加班基本没怎么听，点进去的时候听了会在聊学生时期的泳衣的事情就关了，如果有录播可以再回头听下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过大的也就是这个了呗，至于会有啥争议，不就是早就聊过的那些
+
+<img src="https://img.saraba1st.com/forum/202206/18/143100ybs3b5hacalza35c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ADBF41B2-EFB3-43A0-BF44-DF3B58333407.jpeg</strong> (205.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 14:31 上传
+
+*****
+
+####  肚子疼了  
+##### 11436#       发表于 2022-6-18 14:35
+
+除非麻将妹是个独角兽，不然结婚也就p大点事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
