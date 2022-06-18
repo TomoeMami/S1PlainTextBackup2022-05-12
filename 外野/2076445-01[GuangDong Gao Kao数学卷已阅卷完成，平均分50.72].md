@@ -1114,3 +1114,22 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 广东用的又不是难的全国新一卷
 
+
+
+*****
+
+####  Jumbohard  
+##### 108#       发表于 2022-6-18 12:25
+
+所以这么久了都没人搬个辟谣出来吗…还讨论得津津有味的。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/18/122423o16cxe6c6m61co6r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-06-18-12-23-23-00_df198e732186825c8df26e3c5a10d7cd.jpg</strong> (586.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 12:24 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
