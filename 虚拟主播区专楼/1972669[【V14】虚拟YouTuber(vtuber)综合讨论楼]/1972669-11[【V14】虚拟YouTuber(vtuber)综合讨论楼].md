@@ -837,3 +837,22 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 她应该不是专职的直播员，但大概田角也下了kpi，所以就算不直播也得发点东西，非要都来品鉴一番大可不必。
 她自己都说了不要抱有什么期待，就是传个游戏实况，不过确实看不出编辑了啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15081#       发表于 2022-6-18 22:36
+
+<img src="https://img.saraba1st.com/forum/202206/18/223534woobegmmhbrve6uz.bmp" id="aimg_1040030" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>JI504K14CQ]Z}F8I}F7Z)E8.bmp</strong> (131.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 22:35 上传
+
+大的要来了？？！！<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+还以为他彻底摆了，没想到其实还在搞大企划，感觉又能噶了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
