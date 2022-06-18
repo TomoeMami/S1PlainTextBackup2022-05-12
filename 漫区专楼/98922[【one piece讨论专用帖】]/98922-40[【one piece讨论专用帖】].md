@@ -3311,3 +3311,21 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 大妈长子糖果人也消失了。斯慕吉那批也没交代。
 
+
+
+*****
+
+####  klzxs  
+##### 58811#       发表于 2022-6-18 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319104&amp;ptid=98922" target="_blank">caster 发表于 2022-6-18 17:06</a>
+
+我觉得就是人太多了忘了，或者没页面画了吧。
+
+大妈长子糖果人也消失了。斯慕吉那批也没交代。 ...</blockquote>
+新闻王有提到cp0最后的消息是看到了大妈团的船
+
+杰克先不提，我觉得至少长子是捞走了
+
+大妈凯多可能也一起
+
