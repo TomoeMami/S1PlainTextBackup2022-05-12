@@ -1207,3 +1207,21 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 小时候玩FFIX的时候幻想着续作可以操作飞空艇无缝飞进城镇或迷宫降落，引来无数NPC的瞻仰，就和CG动画里 ...</blockquote>
 精英危机？
 
+
+
+*****
+
+####  白左  
+##### 103#       发表于 2022-6-19 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56276591&amp;ptid=2075886" target="_blank">ralfli 发表于 2022-6-15 13:21</a>
+
+听起来很有趣，找了几个视频瞻仰了一下觉得有点太硬核了……这么一对比，更像是生化危机和僵尸计划的区别 ...</blockquote>
+说来也巧，刚提到过气工程师，鸡盒恰好看到又有人2220年了还在[分享过气工程师的小视频](https://www.gcores.com/videos/152627)
+
+这种高自由度搭造游戏另一个优点大概就是虽然玩起来很硬核但是拍小短片非常舒适吧<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+比方说想象（YY）一下短片中的剧情如果是自己亲自来从头到尾无缝体验一番是怎样的
+
+说来这游戏剧情mod似乎没怎么见到，能称得上“剧情”的好像只有官方自带的教程性质的一个场景地图
+

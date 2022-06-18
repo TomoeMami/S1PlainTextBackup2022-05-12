@@ -72,9 +72,9 @@
     "newtitle": "[千年戦争アイギス 4.0（？）]"
   },
   "1972669": {
-    "totalreply": 15092,
+    "totalreply": 15093,
     "title": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1655570420,
+    "lastedit": 1655571620,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]"
@@ -272,10 +272,10 @@
     "active": true
   },
   "2068729": {
-    "totalreply": 42071,
+    "totalreply": 42074,
     "title": "[【B58】VUP综合讨论楼]",
     "newtitle": "[【B58】VUP综合讨论楼]",
-    "lastedit": 1655571031,
+    "lastedit": 1655571631,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -304,10 +304,10 @@
     "active": true
   },
   "2069809": {
-    "totalreply": 242,
+    "totalreply": 243,
     "title": "[【2022年618预热】分享购物清单和推荐好物]",
     "newtitle": "[【2022年618预热】分享购物清单和推荐好物]",
-    "lastedit": 1655571029,
+    "lastedit": 1655571628,
     "category": "外野",
     "active": true
   },
@@ -2560,10 +2560,10 @@
     "active": true
   },
   "2074554": {
-    "totalreply": 13054,
+    "totalreply": 13057,
     "title": "[【A31】A-SOUL讨论楼（6.12 20：00 向晚生日会）]",
     "newtitle": "[【A31】A-SOUL讨论楼（6.12 20：00 向晚生日会）]",
-    "lastedit": 1655571140,
+    "lastedit": 1655571738,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2709,7 +2709,7 @@
     "newtitle": "[游戏开发是否正在变得越来越跨学科？]",
     "lastedit": 1654966318,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2074669": {
     "totalreply": 65,
@@ -3880,10 +3880,10 @@
     "active": true
   },
   "2075886": {
-    "totalreply": 102,
+    "totalreply": 103,
     "title": "[《Starfield ／ 星空》6月15日IGN采访todd]",
     "newtitle": "[《Starfield ／ 星空》6月15日IGN采访todd]",
-    "lastedit": 1655357639,
+    "lastedit": 1655571687,
     "category": "游戏区",
     "active": true
   },
@@ -4720,10 +4720,10 @@
     "active": true
   },
   "2076420": {
-    "totalreply": 368,
+    "totalreply": 369,
     "title": "[鹅乌专楼#7，又双叒叕的直接塞]",
     "newtitle": "[鹅乌专楼#7，又双叒叕的直接塞]",
-    "lastedit": 1655570520,
+    "lastedit": 1655571801,
     "category": "外野",
     "active": true
   },
@@ -4800,10 +4800,10 @@
     "active": true
   },
   "2076469": {
-    "totalreply": 96,
+    "totalreply": 98,
     "title": "[上海金山这边好像有啥厂爆炸了？]",
     "newtitle": "[上海金山这边好像有啥厂爆炸了？]",
-    "lastedit": 1655569324,
+    "lastedit": 1655571717,
     "category": "外野",
     "active": true
   },
@@ -4864,10 +4864,10 @@
     "active": true
   },
   "2076518": {
-    "totalreply": 149,
+    "totalreply": 150,
     "title": "[赛雷话金居然解封了？]",
     "newtitle": "[赛雷话金居然解封了？]",
-    "lastedit": 1655566925,
+    "lastedit": 1655571724,
     "category": "外野",
     "active": true
   },
@@ -4920,19 +4920,27 @@
     "active": true
   },
   "2076555": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[比特币失守20000美元]",
     "newtitle": "[比特币失守20000美元]",
-    "lastedit": 1655571185,
+    "lastedit": 1655571725,
     "category": "外野",
     "active": true
   },
   "2076595": {
-    "totalreply": 64,
+    "totalreply": 66,
     "title": "[中国的教材决不能动辄欧风美雨、“言必称希腊”]",
     "newtitle": "[中国的教材决不能动辄欧风美雨、“言必称希腊”]",
-    "lastedit": 1655571185,
+    "lastedit": 1655571726,
     "category": "外野",
+    "active": true
+  },
+  "2076404": {
+    "totalreply": 61,
+    "title": "[统计一下这波XGP里的奸商？]",
+    "newtitle": "[统计一下这波XGP里的奸商？]",
+    "lastedit": 1655571827,
+    "category": "游戏区",
     "active": true
   }
 }
