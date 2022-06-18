@@ -3139,3 +3139,14 @@ mr.3当年打海底监狱副本就能当T抗尾王麦哲伦(并不)，强度升�
 —— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 你别说，还真象样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kangkangsama  
+##### 58793#       发表于 2022-6-18 09:26
+
+ 本帖最后由 kangkangsama 于 2022-6-18 09:27 编辑 
+
+现在来看小马哥是不是老四皇皇副除贝克曼以外逼格最好的了，面对大将有高光，吃瘪不是1v2就是被偷袭。不死鸟也比翼龙糯米时髦多了。
+
