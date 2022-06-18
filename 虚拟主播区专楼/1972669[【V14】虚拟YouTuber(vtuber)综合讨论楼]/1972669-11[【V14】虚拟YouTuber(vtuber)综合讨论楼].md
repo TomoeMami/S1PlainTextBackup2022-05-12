@@ -1010,3 +1010,52 @@ vjuan第一cp最新mv来喽，喜欢她们的天天来看哦
 
 俗话说失去过才懂珍惜，很难不让人怀疑是pua的一种
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15096#       发表于 2022-6-19 01:41
+
+<img src="https://img.saraba1st.com/forum/202206/19/014030j652kezjgtjqf655.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>プロジェクトV【日テレ×VTuber】@7:3イベント開催！ プロジェクトV【日テレ×VTuber.jpeg</strong> (323.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-19 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202206/19/014029yxairvrvav5avvyr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>プロジェクトV【日テレ×VTuber】@7:3イベント開催！ -B.jpeg</strong> (330.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-19 01:40 上传
+
+ <blockquote>#サマボヤ 公演『前半パート』
+
+のプログラムはこちら🎤
+
+①夏色まつり×中川翔子
+
+②ROF-MAO
+
+③獅白ぼたん×桃鈴ねね×大空スバル
+
+　×乃木坂46
+
+④YuNi×May J.
+
+⑤大空スバル
+
+#サマボヤ 公演『後半パート』
+
+のプログラムはこちら🎤
+
+⑥.LIVE×中川翔子
+
+⑦あにまーれ×ハニーストラップ
+
+⑧ミライアカリ×電脳少女シロ</blockquote>
+
