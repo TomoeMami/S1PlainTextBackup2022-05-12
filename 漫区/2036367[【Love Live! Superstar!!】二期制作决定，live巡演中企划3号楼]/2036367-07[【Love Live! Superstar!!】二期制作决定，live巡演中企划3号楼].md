@@ -12211,3 +12211,17 @@ Sayu"宫城是海外～"
 
 草，士大夫太温柔了，就该不让她们吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 10078#       发表于 2022-6-18 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56321537&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-18 21:17</a>
+
+草，魅力是脸
+
+女版雷易吗？</blockquote>
+之前三丽鸥公开录音时大家选出来的，今天再说一遍而已
+
