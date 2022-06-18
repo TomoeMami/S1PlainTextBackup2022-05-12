@@ -11897,3 +11897,46 @@ SOLO又不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.pn
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 10050#       发表于 2022-6-18 15:54
+
+这场比起大阪太淡寡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+游戏题目调动不起来
+
+
+
+*****
+
+####  stygian  
+##### 10051#       发表于 2022-6-18 15:56
+
+每次演出都要车嗓子我真是累了
+
+APOLLO BAY是不是真的就当自己拉拉附属了，旗下艺人好好照顾啊
+
+*****
+
+####  老1.5  
+##### 10052#       发表于 2022-6-18 15:58
+
+这场nako的live状态好像也一般
+
+*****
+
+####  saya1892  
+##### 10053#       发表于 2022-6-18 15:59
+
+今天未来如风很离谱，感觉好几个人都唱走音了
+
+*****
+
+####  lj205  
+##### 10054#       发表于 2022-6-18 16:01
+
+做为鱼推的我都不想给鲤鱼今天的MC开脱了，真就是混<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
