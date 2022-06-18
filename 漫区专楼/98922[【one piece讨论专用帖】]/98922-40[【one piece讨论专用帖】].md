@@ -3272,3 +3272,15 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 翻页
 
+
+
+*****
+
+####  zxzx7753  
+##### 58808#       发表于 2022-6-18 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56316097&amp;ptid=98922" target="_blank">kangkangsama 发表于 2022-6-18 11:15</a>
+
+卡二输的是不会流樱不会霸缠被雷鸣八卦直接带走版本的王路飞吧</blockquote>
+主要走回避流的  防御一般血条太短了
+

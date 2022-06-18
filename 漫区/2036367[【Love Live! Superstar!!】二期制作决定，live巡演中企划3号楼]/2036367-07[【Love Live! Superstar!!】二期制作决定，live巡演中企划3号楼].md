@@ -11984,3 +11984,12 @@ talk没仔细看，不过也不知道是台本让鲤鱼混的还是鲤鱼自己�
 
 鲨鱼就是大白嗓，今天感觉全是硬唱上去的。没有技巧，全是感情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 10060#       发表于 2022-6-18 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周末嘛，摸了，正常
+
