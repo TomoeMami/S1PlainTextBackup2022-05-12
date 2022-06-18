@@ -803,3 +803,29 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 数学分高了 最后用不上没用的
 
+
+
+*****
+
+####  superkidx  
+##### 82#       发表于 2022-6-18 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313820&amp;ptid=2076445" target="_blank">Vzero 发表于 2022-6-18 01:22</a>
+
+高考数学这点东西没法筛选真正的人才的</blockquote>
+如果直接分出8090分 和 不及格 两档 我觉得比起平时那种分层更有意义
+
+因为考60 70的人基本上要不可能成为这行业人才
+
+*****
+
+####  barry.allen  
+##### 83#       发表于 2022-6-18 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312708&amp;ptid=2076445" target="_blank">wyhman 发表于 2022-6-17 23:01</a>
+
+有人骂有人捧，为什么骂不谈了，捧的人表示这是在为未来储备真正的人才 ...</blockquote>
+但凡有点常识的人都知道。好卷子是能让分数反应出学生水平高低，不是分越低越好。
+
+这妥妥的出题事故，不是事故也是有问题出题
+
