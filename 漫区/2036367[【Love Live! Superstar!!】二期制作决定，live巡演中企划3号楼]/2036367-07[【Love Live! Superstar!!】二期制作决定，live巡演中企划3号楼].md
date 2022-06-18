@@ -12060,3 +12060,28 @@ MC可以练，Talk还是看台本好不好玩。倒是今天Live状态有点一�
 
 除来东京感觉是啥 鱼:“哈根达斯好便宜”
 
+
+
+*****
+
+####  名津流  
+##### 10067#       发表于 2022-6-18 19:43
+
+fmt要有什么组做熟肉就好了，生肉倒是有人发网盘
+
+*****
+
+####  lj205  
+##### 10068#       发表于 2022-6-18 19:47
+
+草原来那些水果不是真水果难怪吃货兴趣不大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 10069#       发表于 2022-6-18 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56320463&amp;ptid=2036367" target="_blank">名津流 发表于 2022-6-18 19:43</a>
+fmt要有什么组做熟肉就好了，生肉倒是有人发网盘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">烧烤摊有做，不过要过几天才有网盘链接
+
