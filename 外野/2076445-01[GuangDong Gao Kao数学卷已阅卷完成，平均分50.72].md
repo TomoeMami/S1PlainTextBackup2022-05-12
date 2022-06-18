@@ -1230,3 +1230,31 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 卷子还没批完呢
 
+
+
+*****
+
+####  kula01  
+##### 116#       发表于 2022-6-18 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56317086&amp;ptid=2076445" target="_blank">dren_zheng 发表于 2022-6-18 12:58</a>
+
+不至于吧？
+
+我说平均分20，有说不是纺锤形吗？你是怎么理解成就一个21吃鸡的？
+
+我换个关键字大家平均130 ...</blockquote>
+哦
+
+*****
+
+####  ladiesman802  
+##### 117#       发表于 2022-6-18 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56317032&amp;ptid=2076445" target="_blank">DualShock4 发表于 2022-6-18 12:53</a>
+
+意思里以前选的都是虚假的人材
+
+—— 来自 samsung SM-P205, Android 11上的 S1Next-鹅版 v2.5.2- ...</blockquote>
+水分太多
+
