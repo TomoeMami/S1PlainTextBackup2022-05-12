@@ -1387,3 +1387,17 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 一般试卷难 后面会把各题各步骤赋分标准改动的 到后面步骤尽量写得多的基础扎实的分数不会特别差
 
+
+
+*****
+
+####  ladiesman802  
+##### 128#       发表于 2022-6-18 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56318371&amp;ptid=2076445" target="_blank">lightdog 发表于 2022-6-18 15:36</a>
+
+其实靠高考分数上985211的人确实不能算正常人，不是有天赋就是有超出常人的耐心……
+
+ ...</blockquote>
+我就是211毕业，我不认为有天赋，顶多英语有130的水平，其他都是及格线上下
+
