@@ -1469,3 +1469,12 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 我记得当年英语120多，语文平时100，高考好运考了121，数学可能90多，其他忘了。最后比重本线高10几分 ...</blockquote>
 我是总分539，然后当年一本投档线都有五百零几还是五百一十几<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rhocas  
+##### 135#       发表于 2022-6-18 21:06
+
+[https://www.guancha.cn/politics/2022_06_18_645268.shtml](https://www.guancha.cn/politics/2022_06_18_645268.shtml)辟谣了
+
