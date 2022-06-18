@@ -800,3 +800,18 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 开播的倒计时倒是挺用心做了一段效果…但是现在过了首播后也就看不到那个了 ...</blockquote>
 你说的不会是油管自带的那个倒计时功能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那个是油管自己做的吧 你可以多看看 油管做这些东西还蛮不错的 还变化了很多次
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15078#       发表于 2022-6-18 18:48
+
+看楼友说pomu被特到了，去翻了一下感叹如下：
+
+1.姨真好！
+
+2.不愧是佛州儿女
+
+3.居然也是麻里子单推人<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
