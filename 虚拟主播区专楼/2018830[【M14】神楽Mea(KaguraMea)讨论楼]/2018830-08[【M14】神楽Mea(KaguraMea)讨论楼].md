@@ -9688,3 +9688,14 @@ fafa在今天凌晨的直播里说mea前天晚上的推限里有一些会引发�
 
 除非麻将妹是个独角兽，不然结婚也就p大点事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11437#       发表于 2022-6-18 14:42
+
+<blockquote>肚子疼了 发表于 2022-6-18 14:35
+除非麻将妹是个独角兽，不然结婚也就p大点事</blockquote>
+我到没啥事，指原可能人要麻了。
+
