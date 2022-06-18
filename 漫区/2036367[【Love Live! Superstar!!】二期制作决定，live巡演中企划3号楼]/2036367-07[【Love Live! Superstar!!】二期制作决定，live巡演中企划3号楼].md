@@ -12513,3 +12513,15 @@ Nako则说不是团子哦，而是眼睛～
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  长日留痕  
+##### 10092#       发表于 2022-6-19 04:17
+
+pay酱的banana真是太乐了。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+现在看来四位新人里绘森彩喜欢发推，大熊甚至推特都没开只是为了符合自己的角色人设吧，可能是企划方的要求。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

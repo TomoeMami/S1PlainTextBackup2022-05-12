@@ -1559,3 +1559,26 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 我以前错误的想法都是被这些人误导了！
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  比乐  
+##### 143#       发表于 2022-6-19 03:37
+
+高考已经过去十天了，至今半夜还能被那两小时吓醒
+
+*****
+
+####  长日留痕  
+##### 144#       发表于 2022-6-19 03:55
+
+有没有可能自己觉得自己挺菜也能考上211 985是因为投胎投了个好地方呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ztgmeteor  
+##### 145#       发表于 2022-6-19 04:34
+
+满分750，我记得我那一届山东一本理科线是587<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

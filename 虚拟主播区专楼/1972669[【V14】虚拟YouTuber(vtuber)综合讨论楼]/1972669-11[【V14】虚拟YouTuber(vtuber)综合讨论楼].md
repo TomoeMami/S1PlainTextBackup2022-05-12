@@ -1059,3 +1059,34 @@ vjuan第一cp最新mv来喽，喜欢她们的天天来看哦
 
 ⑧ミライアカリ×電脳少女シロ</blockquote>
 
+
+
+*****
+
+####  fastary  
+##### 15097#       发表于 2022-6-19 02:23
+
+我cp没有不仲啊（指正
+
+他们就是…………因为路线和交际圈变得一年也不见得有一两次机会同框而已<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+真不仲我还死心了，刚官宣老朋友要卖转头就各走各路才最意难平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我要是饭屋凑齐了才入坑没准这会儿还在开开心心舞饭屋3p<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 15098#       发表于 2022-6-19 02:35
+
+<blockquote>alcoholic1000 发表于 2022-6-19 01:41
+</blockquote>
+分组故意的吧，人气差距过分了
+
+*****
+
+####  盐盐盐盐盐  
+##### 15099#       发表于 2022-6-19 02:46
+
+holo这feat的档次，排面真大
+
