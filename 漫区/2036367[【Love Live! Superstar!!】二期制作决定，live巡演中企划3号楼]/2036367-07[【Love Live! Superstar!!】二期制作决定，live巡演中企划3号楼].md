@@ -12392,3 +12392,14 @@ Nako则说不是团子哦，而是眼睛～
 
 草，香蕉舞笑死，特别是佩佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 10085#       发表于 2022-6-18 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56322980&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-18 23:08</a>
+草，香蕉舞笑死，特别是佩佩</blockquote>
+鲤sayunon三人偶像包袱太重了
+
