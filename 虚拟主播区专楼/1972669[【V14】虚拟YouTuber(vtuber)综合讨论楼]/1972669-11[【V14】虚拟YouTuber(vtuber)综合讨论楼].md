@@ -815,3 +815,15 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 3.居然也是麻里子单推人<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15079#       发表于 2022-6-18 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319930&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-6-18 18:38</a>
+
+你说的不会是油管自带的那个倒计时功能吧 那个是油管自己做的吧 你可以多看看 油管做这些东西还蛮 ...</blockquote>
+本人当时出现在聊天里说搞了一段杀手风格的了，也可能是选了个风格类似的吧
+
