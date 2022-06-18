@@ -1070,3 +1070,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 —— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  diohanmilton  
+##### 104#       发表于 2022-6-18 11:35
+
+大家难等于都不难。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
