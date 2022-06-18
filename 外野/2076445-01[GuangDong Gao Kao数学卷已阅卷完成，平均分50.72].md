@@ -1146,3 +1146,61 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kula01  
+##### 110#       发表于 2022-6-18 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313258&amp;ptid=2076445" target="_blank">dren_zheng 发表于 2022-6-18 00:02</a>
+
+高考不是实际看排名吗？大家平均20分，你能21那就是比别人厉害啊，为啥大家说是事故？
+
+话说，高考难度算是 ...</blockquote>
+合理的形状是纺锥形的吧。你让所有人都20分，全国就一个21的吃鸡。。然后呢？
+
+剩下的下一盘再选一个吃鸡？
+
+*****
+
+####  DualShock4  
+##### 111#       发表于 2022-6-18 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312714&amp;ptid=2076445" target="_blank">ladiesman802 发表于 2022-6-17 23:01</a>
+听说是为了选拔真正的人才？这一届高三还挺惨的，就是英语还算简单</blockquote>
+意思里以前选的都是虚假的人材<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-P205, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  dren_zheng  
+##### 112#       发表于 2022-6-18 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56317023&amp;ptid=2076445" target="_blank">kula01 发表于 2022-6-18 12:52</a>
+
+合理的形状是纺锥形的吧。你让所有人都20分，全国就一个21的吃鸡。。然后呢？
+
+剩下的下一盘再选一个吃鸡 ...</blockquote>
+不至于吧？
+
+我说平均分20，有说不是纺锤形吗？你是怎么理解成就一个21吃鸡的？
+
+我换个关键字大家平均130，你能131就是比别人强，你是不是还要继续杠一下
+
+要完美纺锤形，平均多少分才合适，你提提意见呗
+
+*****
+
+####  齐天大圣孙悟空  
+##### 113#       发表于 2022-6-18 13:00
+
+<blockquote>孤独探戈 发表于 2022-6-18 11:25
+不知道你看过这张卷子没有，这种卷子妙就妙在刷题填鸭式背题型没用。举个简单例子就像你学习一直在写一个 ...</blockquote>
+我过了一遍选择题，做还是会做，但太花时间。我觉得更多考验心算速度和反应时间。选择题耗时太长，考场上心态就崩了。
+
+我同意秃头咪蒙说的，中学数学深度太低，技巧性和反应速度要求太高。难度在数学外了属于是。
+
+当然作为选拔来说，其实怎么都行。毕竟注意力，反应速度，想象力，记忆力在这个年龄段大概率是正相关。应考的人太多了，随便怎么选拔，结果都一样。
+
