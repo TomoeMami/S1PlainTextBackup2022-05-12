@@ -11940,3 +11940,22 @@ APOLLO BAY是不是真的就当自己拉拉附属了，旗下艺人好好照顾�
 
 做为鱼推的我都不想给鲤鱼今天的MC开脱了，真就是混<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10055#       发表于 2022-6-18 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 今天的MC不是pay吗
+
+*****
+
+####  aoaoaodedede  
+##### 10056#       发表于 2022-6-18 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56318578&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-18 16:01</a>
+
+做为鱼推的我都不想给鲤鱼今天的MC开脱了，真就是混</blockquote>
+talk没仔细看，不过也不知道是台本让鲤鱼混的还是鲤鱼自己摸鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
