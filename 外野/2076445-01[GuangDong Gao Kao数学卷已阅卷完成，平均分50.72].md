@@ -1545,3 +1545,17 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
  ...</blockquote>
 为啥我觉得自己挺菜的，没看出差别呀，应该要限定到中等985以上吧
 
+
+
+*****
+
+####  lightdog  
+##### 142#       发表于 2022-6-19 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56323358&amp;ptid=2076445" target="_blank">羽川易 发表于 2022-6-18 23:47</a>
+为啥我觉得自己挺菜的，没看出差别呀，应该要限定到中等985以上吧</blockquote>
+您说得对~
+几百万人高考故意考砸以便避开985211的录取，确实让社会感到困扰。
+我以前错误的想法都是被这些人误导了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
