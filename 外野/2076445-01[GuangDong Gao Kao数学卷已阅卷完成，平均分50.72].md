@@ -1081,3 +1081,15 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  梦消失  
+##### 105#       发表于 2022-6-18 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56315571&amp;ptid=2076445" target="_blank">Burzum 发表于 2022-6-18 10:21</a>
+
+这就是命题事故，有什么可洗的</blockquote>
+高考没有及格线没有通过率，没有送分的义务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
