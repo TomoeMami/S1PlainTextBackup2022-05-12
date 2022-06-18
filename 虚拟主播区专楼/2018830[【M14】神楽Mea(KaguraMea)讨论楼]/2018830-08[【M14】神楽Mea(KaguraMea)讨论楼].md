@@ -10351,3 +10351,74 @@ mea真是和物语干上了。
 
 声音没18年清脆了。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11509#       发表于 2022-6-18 23:41
+
+ 本帖最后由 古战场亡魂 于 2022-6-18 23:44 编辑 
+
+算了，反正今天楼里杏浓度跑不掉了。那就再加点就是了。
+
+*****
+
+####  やト  
+##### 11510#       发表于 2022-6-18 23:42
+
+这是杏的EN？
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 11511#       发表于 2022-6-18 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还未死
+
+*****
+
+####  ashero  
+##### 11512#       发表于 2022-6-18 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56323306&amp;ptid=2018830" target="_blank">やト 发表于 2022-6-18 23:42</a>
+
+这是杏的EN？</blockquote>
+杏en和杏男人联动提了嘴robenightmea 也就那样了
+
+*****
+
+####  2111X  
+##### 11513#       发表于 2022-6-18 23:46
+
+商业互粉罢了
+
+*****
+
+####  甘栗No.007  
+##### 11514#       发表于 2022-6-18 23:48
+
+robenightmea的热度还挺高？
+
+*****
+
+####  ashero  
+##### 11515#       发表于 2022-6-18 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56323365&amp;ptid=2018830" target="_blank">甘栗No.007 发表于 2022-6-18 23:48</a>
+
+robenightmea的热度还挺高？</blockquote>
+鬼佬挺喜欢（小范围）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1||
+
+查看全部评分
+
