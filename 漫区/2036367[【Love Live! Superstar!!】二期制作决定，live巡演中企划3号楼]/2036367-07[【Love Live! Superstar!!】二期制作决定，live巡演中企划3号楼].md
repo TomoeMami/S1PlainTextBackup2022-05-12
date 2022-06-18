@@ -11706,3 +11706,29 @@ JUVENILE推荐鲤鱼养观叶植物，好养又治愈，既不用经常浇水，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 10034#       发表于 2022-6-18 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313492&amp;ptid=2036367" target="_blank">caicaistar 发表于 2022-6-18 00:35</a></blockquote>
+白老师这张更早
+
+8D6A089A-61F7-458C-881D-DE94C0CE9461.jpeg
+(164 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202206/18/135629skc1l273v0zk07x5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10035#       发表于 2022-6-18 13:58
+
+看到MTV有线上配信，7月9日
+
