@@ -11959,3 +11959,28 @@ APOLLO BAY是不是真的就当自己拉拉附属了，旗下艺人好好照顾�
 做为鱼推的我都不想给鲤鱼今天的MC开脱了，真就是混</blockquote>
 talk没仔细看，不过也不知道是台本让鲤鱼混的还是鲤鱼自己摸鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10057#       发表于 2022-6-18 16:12
+
+ 本帖最后由 csolfans 于 2022-6-18 16:15 编辑 
+
+今天sayu嗓子也是照旧吗但是我看不少人说今天比上星期好，没看也不清楚啥情况
+
+*****
+
+####  lj205  
+##### 10058#       发表于 2022-6-18 16:16
+
+不插电下个月放出来，连翻唱都有
+
+*****
+
+####  太阳寺太守  
+##### 10059#       发表于 2022-6-18 16:21
+
+鲨鱼就是大白嗓，今天感觉全是硬唱上去的。没有技巧，全是感情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
