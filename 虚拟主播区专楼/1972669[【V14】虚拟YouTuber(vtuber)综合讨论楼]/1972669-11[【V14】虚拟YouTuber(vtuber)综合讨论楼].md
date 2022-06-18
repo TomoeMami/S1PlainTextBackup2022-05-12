@@ -871,3 +871,22 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 虽然目前动画和日剧业界感觉职业脚本家写原创也容易翻车就是了……不知道舞台剧领域是如何
 
+
+
+*****
+
+####  Dualist彩  
+##### 15083#       发表于 2022-6-18 23:22
+
+虽然但是，还是宣传一下
+
+vjuan第一cp最新mv来喽，喜欢她们的天天来看哦
+
+<img src="https://img.saraba1st.com/forum/202206/18/232159zhbfg9ll1q0tltzw.jpg" referrerpolicy="no-referrer">
+
+<strong>CMP_20220618224839225.jpg</strong> (78.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 23:21 上传
+
