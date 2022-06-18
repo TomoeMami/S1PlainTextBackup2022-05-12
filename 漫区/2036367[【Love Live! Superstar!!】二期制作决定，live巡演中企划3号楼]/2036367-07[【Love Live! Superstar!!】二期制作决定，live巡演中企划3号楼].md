@@ -11879,3 +11879,21 @@ JUVENILE推荐鲤鱼养观叶植物，好养又治愈，既不用经常浇水，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">sayu这场状态不错，唱法明显换了
 
+
+
+*****
+
+####  lj205  
+##### 10048#       发表于 2022-6-18 15:33
+
+SOLO又不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 10049#       发表于 2022-6-18 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">嗓子啊嗓子啊这嗓子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

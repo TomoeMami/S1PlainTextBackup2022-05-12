@@ -1326,3 +1326,15 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当年也是高考数学不及格，原来是正常人水平啊，那我释然了
 
+
+
+*****
+
+####  lightdog  
+##### 123#       发表于 2022-6-18 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56318323&amp;ptid=2076445" target="_blank">影子都没有了 发表于 2022-6-18 15:31</a>
+我当年也是高考数学不及格，原来是正常人水平啊，那我释然了</blockquote>
+其实靠高考分数上985211的人确实不能算正常人，不是有天赋就是有超出常人的耐心……
+<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+

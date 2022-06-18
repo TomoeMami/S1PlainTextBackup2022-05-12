@@ -9728,3 +9728,31 @@ fafa在今天凌晨的直播里说mea前天晚上的推限里有一些会引发�
 我到没啥事，指原可能人要麻了。</blockquote>
 反正只剩半年了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11440#       发表于 2022-6-18 15:30
+
+<img src="https://img.saraba1st.com/forum/202206/18/153032ealqj6lkrjuje6o5.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220618152953290.jpg</strong> (74.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 15:30 上传
+
+*****
+
+####  时间在我手中  
+##### 11441#       发表于 2022-6-18 15:36
+
+链接：[https://pan.baidu.com/s/1sTl_Slh4ke3AM3bZBkuhiw](https://pan.baidu.com/s/1sTl_Slh4ke3AM3bZBkuhiw) 
+
+提取码：lufk 
+
+--来自百度网盘超级会员V5的分享
+
+不如自己听一下是什么内容
+
