@@ -12011,3 +12011,18 @@ MC可以练，Talk还是看台本好不好玩。倒是今天Live状态有点一�
 
 唱歌部分鲤鱼和nagi 稳定发挥，这场连佩佩似乎都有点不在状态
 
+
+
+*****
+
+####  lj205  
+##### 10063#       发表于 2022-6-18 17:30
+
+<img src="https://img.saraba1st.com/forum/202206/18/173008pu2l3uul8booorf1.png" referrerpolicy="no-referrer">
+
+<strong>A8172328-45DA-41C8-A94E-645F362C098A.png</strong> (421.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-18 17:30 上传
+

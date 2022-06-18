@@ -753,3 +753,12 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这动画有编辑过么
 
+
+
+*****
+
+####  qesto  
+##### 15073#       发表于 2022-6-18 17:21
+
+有日版为什么要播英语版啊，这么想要EN粉吗
+
