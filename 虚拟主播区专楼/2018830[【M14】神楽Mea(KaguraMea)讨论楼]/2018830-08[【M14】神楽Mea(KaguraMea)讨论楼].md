@@ -9835,3 +9835,28 @@ fafa在今天凌晨的直播里说mea前天晚上的推限里有一些会引发�
 
 守口如瓶神乐咩
 
+
+
+*****
+
+####  路人庚  
+##### 11451#       发表于 2022-6-18 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">聊完就唱这个china曲让我有点慌（
+
+*****
+
+####  ashero  
+##### 11452#       发表于 2022-6-18 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主播有史以来第一次那么扭捏的肉猪 以往都是随随便便就丢出来的
+
+*****
+
+####  yywzjsw  
+##### 11453#       发表于 2022-6-18 21:39
+
+ 本帖最后由 yywzjsw 于 2022-6-18 21:40 编辑 
+
+今晚好娇弱的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
