@@ -686,3 +686,14 @@ syl: 这么看pomu跟kiara简直是命中注定 ...</blockquote>
 大家好，我是始皇，其实我并没有休眠，我在油管有百万订阅，我现在需要大家的支持。事成后我将直接复活，带 ...</blockquote>
 等孩子上幼儿园了必将荣耀归来
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15066#       发表于 2022-6-18 11:59
+
+[https://www.youtube.com/watch?v=8hTM3x7OZDE](https://www.youtube.com/watch?v=8hTM3x7OZDE)
+
+绿桑谈到桃桃的3D的时候用的是“赶不上”而不是“没有”。
+
