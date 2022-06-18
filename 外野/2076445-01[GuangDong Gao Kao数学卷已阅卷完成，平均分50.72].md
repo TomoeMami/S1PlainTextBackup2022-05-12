@@ -697,3 +697,25 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 其他省市大学招生是吧全国卷广东卷放一起的吧？这是要把生源留在省内保4年后的劳动力吗？
 
+
+
+*****
+
+####  我就再氪一单  
+##### 71#       发表于 2022-6-18 08:15
+
+我认识的某个去年目标清北考不上就二战的艺术生考生（大雾）今年真的复读重考
+
+跟他确认过
+
+他说1卷确实难
+
+还有确实要庆幸他的目标学校不是维也纳艺术学院<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  思考者的迷  
+##### 72#       发表于 2022-6-18 08:19
+
+江西单独命题的时候这不是常态么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
