@@ -881,3 +881,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 这就是命题事故，有什么可洗的
 
+
+
+*****
+
+####  千羽宸  
+##### 89#       发表于 2022-6-18 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312737&amp;ptid=2076445" target="_blank">jaewoongh 发表于 2022-6-17 23:04</a>
+平均分这么低说明整张卷子的梯度出了问题，要么就是长期网课导致老师们认为的送分题变成了中段题目 ...</blockquote>
+有没有可能卷子没问题，学生自己的问题
+
