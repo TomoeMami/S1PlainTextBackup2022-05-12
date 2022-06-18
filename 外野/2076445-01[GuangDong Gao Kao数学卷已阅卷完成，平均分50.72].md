@@ -1447,3 +1447,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 —— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 我记错了。广东和一堆卷王省份一起考，谁想的。
 
+
+
+*****
+
+####  战星辰  
+##### 133#       发表于 2022-6-18 20:47
+
+为啥题难天天成话题，题简单不会。
+作为18年国一还是国二那个除了计算量啥也没的屎卷受害者，当年就没见网上有啥情绪的。
+粗看了一下国一数学，就是历史一般难度啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
