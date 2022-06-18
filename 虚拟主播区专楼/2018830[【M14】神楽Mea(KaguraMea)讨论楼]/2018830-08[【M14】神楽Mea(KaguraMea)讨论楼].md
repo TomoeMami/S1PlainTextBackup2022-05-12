@@ -10024,3 +10024,121 @@ syl 炎上的基础不得是没凉，现在国内看的都没有了还烧呢
 
 官组不发是吧，呵呵，事业民憋不住了要，只有meaqua才能给麻麻涨粉，不发就是给麻麻掉粉，官组能不能干，不能干就滚捏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 11473#       发表于 2022-6-18 23:05
+
+除了能让这几个楼里老逼车轱辘阴阳怪气几句还能有什么水花溅出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主播发完癫下播了
+
+*****
+
+####  Klience  
+##### 11474#       发表于 2022-6-18 23:06
+
+除了合唱应该还有其他东西吧
+
+*****
+
+####  mishidexieyu  
+##### 11475#       发表于 2022-6-18 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">不是事业民对吸不吸血也无所谓，屌人终于能和自己心心念念的女人再联动一次挺好的
+说起来bfm转生国内特攻的白雪之后是不是再也没和以前旧友明面上联络过，这次翻出来和夸下次想见到和bfm的
+
+*****
+
+####  路人庚  
+##### 11476#       发表于 2022-6-18 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这简直都可以套用“死去的〇〇〇〇突然开始攻击我”句式了
+
+*****
+
+####  璃絵和花瑠  
+##### 11477#       发表于 2022-6-18 23:07
+
+别在这里发癫。
+
+*****
+
+####  clvan_  
+##### 11478#       发表于 2022-6-18 23:08
+
+新尝试说的是月底，周年的活。和投视频是两件事
+
+*****
+
+####  mishidexieyu  
+##### 11479#       发表于 2022-6-18 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">莫名想到之前什么胃镜之类的别的v的烂活，她能整出什么new try我是真想不出来
+
+*****
+
+####  汇聚群光  
+##### 11480#       发表于 2022-6-18 23:09
+
+貌似还有一个比合唱更大的活，mea今天就是不透露任何信息
+
+*****
+
+####  肚子疼了  
+##### 11481#       发表于 2022-6-18 23:10
+
+瓜子可乐已经准备好了，啥时候开始<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 11482#       发表于 2022-6-18 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56322965&amp;ptid=2018830" target="_blank">mishidexieyu 发表于 2022-6-18 23:07</a>
+
+不是事业民对吸不吸血也无所谓，屌人终于能和自己心心念念的女人再联动一次挺好的
+
+说起来bfm转生国 ...</blockquote>
+好像没有 白雪自己都开始冲自己来整活了 不过有次玩apex的时候有提到过毕业那晚？和黄兔子通话了一个晚上来着
+
+*****
+
+####  Lotis  
+##### 11483#       发表于 2022-6-18 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56322966&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-6-18 23:07</a>
+
+不是，主要是说好的新尝试呢，new try呢？这也不新啊这简直都可以套用“死去的〇〇〇〇突然 ...</blockquote>
+新尝试之前说是在月底，估计还没到时间
+
+*****
+
+####  aisakahammer  
+##### 11484#       发表于 2022-6-18 23:11
+
+别急
+
+*****
+
+####  clvan_  
+##### 11485#       发表于 2022-6-18 23:11
+
+她自己都说别抱什么期待，说不定就是3d视频3d联动什么的，反正对她自频道来说没什么不是新尝试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 11486#       发表于 2022-6-18 23:11
+
+emmmmmmm
+
+*****
+
+####  时间在我手中  
+##### 11487#       发表于 2022-6-18 23:13
+
+果然前几天joogy问到的是真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
