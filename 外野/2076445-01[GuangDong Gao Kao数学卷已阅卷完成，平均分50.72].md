@@ -1133,3 +1133,16 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  牛尾宪辅  
+##### 109#       发表于 2022-6-18 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56316666&amp;ptid=2076445" target="_blank">hyddx 发表于 2022-6-18 12:17</a>
+广东用的又不是难的全国新一卷</blockquote>
+广东用的是新高考一卷啊
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
