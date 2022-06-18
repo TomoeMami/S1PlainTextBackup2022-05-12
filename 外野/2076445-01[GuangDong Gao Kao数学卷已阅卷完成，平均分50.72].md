@@ -677,3 +677,23 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 现在还是标准分吗？如果是的话高低没问题啊
 
+
+
+*****
+
+####  牛尾宪辅  
+##### 69#       发表于 2022-6-18 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56314668&amp;ptid=2076445" target="_blank">zz1zz 发表于 2022-6-18 08:01</a>
+现在还是标准分吗？如果是的话高低没问题啊</blockquote>
+不是了，语数英就是原始分。剩下三科是赋分制
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sdhgak1234  
+##### 70#       发表于 2022-6-18 08:10
+
+其他省市大学招生是吧全国卷广东卷放一起的吧？这是要把生源留在省内保4年后的劳动力吗？
+
