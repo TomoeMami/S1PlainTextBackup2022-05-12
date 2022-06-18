@@ -1093,3 +1093,24 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 这就是命题事故，有什么可洗的</blockquote>
 高考没有及格线没有通过率，没有送分的义务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nessaj  
+##### 106#       发表于 2022-6-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313442&amp;ptid=2076445" target="_blank">wyhman 发表于 2022-6-18 00:26</a>
+这不很正常？为什么要大惊小怪</blockquote>
+你是教会学校出身，小小年纪就被神父刚了吗。
+可怜的孩子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hyddx  
+##### 107#       发表于 2022-6-18 12:17
+
+广东用的又不是难的全国新一卷
+

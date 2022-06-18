@@ -17233,3 +17233,15 @@ B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="htt
 
 今次機制所有棋子都有各自行動力，根本就是叫AI不停狂衝下來，而我方就要考慮是否行動，以免分散/集中敵人
 
+
+
+*****
+
+####  exiaexa  
+##### 88484#       发表于 2022-6-18 12:15
+
+今天唯一的感觉就是
+
+迦尔纳强度是真的鸡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
