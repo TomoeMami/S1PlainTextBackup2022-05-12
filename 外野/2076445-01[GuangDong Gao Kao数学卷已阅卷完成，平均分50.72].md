@@ -1275,3 +1275,34 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 这届广州考生受很大影响吧？
 
+
+
+*****
+
+####  黑暗剑  
+##### 119#       发表于 2022-6-18 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56314713&amp;ptid=2076445" target="_blank">我就再氪一单 发表于 2022-6-18 08:15</a>
+
+我认识的某个去年目标清北考不上就二战的艺术生考生（大雾）今年真的复读重考
+
+跟他确认过
+
+他说1卷确实难</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">其实分数线越低艺考生优势越大
+
+艺术院校的招生简章就是文化线在一本线1.0/0.8等分档，总体压得越低分，艺术生文化分比例越高
+
+倒是网络艺考的形式需要改进，去年今年招进来的学生艺术院校老师吐槽苗子很差了
+
+*****
+
+####  这不科学  
+##### 120#       发表于 2022-6-18 14:56
+
+考生：希望数学高考能韦神附体<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+考卷：好的，韦神已经附身到考题上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卷出风格了啊，这笔双减更有效果
+

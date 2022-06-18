@@ -9699,3 +9699,32 @@ fafa在今天凌晨的直播里说mea前天晚上的推限里有一些会引发�
 除非麻将妹是个独角兽，不然结婚也就p大点事</blockquote>
 我到没啥事，指原可能人要麻了。
 
+
+
+*****
+
+####  路人庚  
+##### 11438#       发表于 2022-6-18 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实既然是新的尝试，那就是之前没做过的事，而且是视频，那就是录好了的东西
+
+用排除法把之前做过的事情都排除掉的话，也许只剩下，玩一些从来没尝试过的游戏类型，或者超美丽3D了，结合“内容也许会有争议”这个条件，其实也就是视频中做的事情会有争议
+
+那么也就是：
+
+1、可能游戏内容有争议，但管人界玩这种游戏还挺少的，就算有，也很难想象你咩姐会有兴趣（我是想不出你咩姐玩钢铁雄心、美国末日2等，这种可能会吵起来的游戏的场景
+
+2、超美丽3D引起争议，但普通的超美丽3D做饭大概不会有什么，也许你咩姐其实想兑现的是当年说的录一个超美丽3D打小钢珠的视频罢（这大概算是比较有争议的了
+
+3、<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">又或者是录了个超美丽3D vlog跑去厕所转了一圈散心呢（不过会提前意识到会有争议这一点估计也不会真的放出这种东西罢
+
+*****
+
+####  肚子疼了  
+##### 11439#       发表于 2022-6-18 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56317928&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-18 14:42</a>
+
+我到没啥事，指原可能人要麻了。</blockquote>
+反正只剩半年了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
