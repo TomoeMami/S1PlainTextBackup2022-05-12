@@ -1458,3 +1458,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 作为18年国一还是国二那个除了计算量啥也没的屎卷受害者，当年就没见网上有啥情绪的。
 粗看了一下国一数学，就是历史一般难度啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战星辰  
+##### 134#       发表于 2022-6-18 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56321079&amp;ptid=2076445" target="_blank">ladiesman802 发表于 2022-6-18 20:38</a>
+我记得当年英语120多，语文平时100，高考好运考了121，数学可能90多，其他忘了。最后比重本线高10几分 ...</blockquote>
+我是总分539，然后当年一本投档线都有五百零几还是五百一十几<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
