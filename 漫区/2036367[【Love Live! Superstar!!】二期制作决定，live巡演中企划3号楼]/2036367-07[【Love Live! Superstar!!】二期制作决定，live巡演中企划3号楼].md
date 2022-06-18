@@ -12038,3 +12038,16 @@ MC可以练，Talk还是看台本好不好玩。倒是今天Live状态有点一�
 唱歌部分鲤鱼和nagi 稳定发挥，这场连佩佩似乎都有点不在状态</blockquote>
 确实今天听live就感觉鲤鱼和渚一直在C<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">（鲤鱼是真厉害，续航久唱功稳）其它3人都有点平时不怎么有的失误，难道是今天Talk环节没拿到奖励食物？
 
+
+
+*****
+
+####  lj205  
+##### 10065#       发表于 2022-6-18 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319446&amp;ptid=2036367" target="_blank">老1.5 发表于 2022-6-18 17:44</a>
+确实今天听live就感觉鲤鱼和渚一直在C（鲤鱼是真厉害，续航久唱功稳）其它3人都有点平时不怎么有 ...</blockquote>
+鱼前面也有些失误其实
+
+今天就觉得5人都不是很兴奋，看夜场反馈吧
+

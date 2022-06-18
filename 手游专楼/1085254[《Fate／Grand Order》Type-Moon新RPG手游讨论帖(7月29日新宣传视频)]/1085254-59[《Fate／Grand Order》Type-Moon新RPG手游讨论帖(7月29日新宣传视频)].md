@@ -17284,3 +17284,17 @@ B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="htt
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天挺简单的  金箱在下面 靠送的花嫁就能撸掉
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88488#       发表于 2022-6-18 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319315&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-18 17:29</a>
+
+今天挺简单的  金箱在下面 靠送的花嫁就能撸掉</blockquote>
+花嫁打布姐轻轻松松，倒是lip有点难搞，行动点多，加了暴击buff之后伤害也高，把我王姐和梅林都送走了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 今天怎么送的又是树根这种早就溢出的素材，送点金蛋啊，秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
