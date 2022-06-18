@@ -1478,3 +1478,24 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 [https://www.guancha.cn/politics/2022_06_18_645268.shtml](https://www.guancha.cn/politics/2022_06_18_645268.shtml)辟谣了
 
+
+
+*****
+
+####  ladiesman802  
+##### 136#       发表于 2022-6-18 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56321238&amp;ptid=2076445" target="_blank">战星辰 发表于 2022-6-18 20:53</a>
+
+我是总分539，然后当年一本投档线都有五百零几还是五百一十几（辽宁2018）当年没有复读可惜了，因 ...</blockquote>
+539也不差啊，我当年好像540多
+
+*****
+
+####  kzf  
+##### 137#       发表于 2022-6-18 21:29
+
+不可能吧，记得以前的说法是一般批卷的时候会即时统计均分的，均分低了往后会适当宽松些，所以无论卷子简单与否，均分都是接近的，当然已经批完的就不算在内了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
