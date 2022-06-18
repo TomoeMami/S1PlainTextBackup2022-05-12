@@ -17326,3 +17326,12 @@ syl 今天怎么送的又是树根这种早就溢出的素材，送点金蛋啊�
 花嫁打布姐轻轻松松，倒是lip有点难搞，行动点多，加了暴击buff之后伤害也高，把我王姐和梅林都送走了[f: ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 黑狗3红直接一条命
 
+
+
+*****
+
+####  khxooo  
+##### 88491#       发表于 2022-6-18 18:14
+
+相对昨天简单很多，布姐哟反而是靠妖高搞掂的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
