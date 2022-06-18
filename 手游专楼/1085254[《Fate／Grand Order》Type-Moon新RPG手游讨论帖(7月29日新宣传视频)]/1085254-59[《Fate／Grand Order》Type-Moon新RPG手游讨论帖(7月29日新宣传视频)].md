@@ -17254,3 +17254,16 @@ B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="htt
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等2.4估计能跟大象一起得到个强化吧
 
+
+
+*****
+
+####  johnkamsar  
+##### 88486#       发表于 2022-6-18 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56316649&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-18 12:15</a>
+今天唯一的感觉就是
+
+迦尔纳强度是真的鸡</blockquote>
+应该没上fufu，差别太大了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
