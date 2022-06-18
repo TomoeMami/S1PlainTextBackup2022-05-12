@@ -892,3 +892,54 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 平均分这么低说明整张卷子的梯度出了问题，要么就是长期网课导致老师们认为的送分题变成了中段题目 ...</blockquote>
 有没有可能卷子没问题，学生自己的问题
 
+
+
+*****
+
+####  密特里奈斯  
+##### 90#       发表于 2022-6-18 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312783&amp;ptid=2076445" target="_blank">Nefertiti 发表于 2022-6-17 23:08</a>
+
+只要不是所有人都50分不然考难点不是好事么</blockquote>
+对擅长数学的人来说，可能优势就是从20分变成10分了
+
+感觉还是长期网课导致的学生刷题量不够
+
+
+
+*****
+
+####  密特里奈斯  
+##### 91#       发表于 2022-6-18 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56312991&amp;ptid=2076445" target="_blank">ShawElA 发表于 2022-6-17 23:33</a>
+
+全国卷数学平均分就是50上下浮动，手头只有文科的数据，印象中理科也是一样。先随便贴两张，想看哪年我再贴 ...</blockquote>
+我印象里是60来着
+
+*****
+
+####  密特里奈斯  
+##### 92#       发表于 2022-6-18 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56314790&amp;ptid=2076445" target="_blank">thisism 发表于 2022-6-18 08:27</a>
+
+有啥问题。卷子难还能高分的自然能拉差距，甚至还可能发现一些偏门的有趣人。
+
+别又是什么大家一个分不歧视 ...</blockquote>
+有问题的是中端，对大牛来说反而是好事
+
+比如本来平均分75的题难度出到了50，就说明大概有25分从送分题难度变成了中位难度，这对中位区间的考生来说会压缩分差，平时考120的和100的这次分别100和90
+
+但是满分因为满分只有150的……那当然高兴了
+
+*****
+
+####  ShawElA  
+##### 93#       发表于 2022-6-18 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56315687&amp;ptid=2076445" target="_blank">密特里奈斯 发表于 2022-6-18 10:34</a>
+我印象里是60来着</blockquote>
+理科是60左右，总之都不高，文理合卷后来个50也就是比十年前难了一点
+
