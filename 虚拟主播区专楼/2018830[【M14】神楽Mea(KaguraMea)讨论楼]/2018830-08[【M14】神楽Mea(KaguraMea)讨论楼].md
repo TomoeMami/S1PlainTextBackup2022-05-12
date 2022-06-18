@@ -10321,3 +10321,33 @@ mea真是和物语干上了。
 
 我他么笑死
 
+
+
+*****
+
+####  JY要塞  
+##### 11505#       发表于 2022-6-18 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要人活得够久，就什么东西都能见识到
+
+*****
+
+####  雪风utopia  
+##### 11506#       发表于 2022-6-18 23:37
+
+呃呃
+
+*****
+
+####  甘栗No.007  
+##### 11507#       发表于 2022-6-18 23:39
+
+主播总算“聪明”了一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 11508#       发表于 2022-6-18 23:40
+
+声音没18年清脆了。
+
