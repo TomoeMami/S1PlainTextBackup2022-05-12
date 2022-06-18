@@ -1009,3 +1009,30 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 1.首先， ...</blockquote>
 有一说一数学难不存在让数学差的人上不了好大学……大家都差，无非是区分度不足让中档学生发挥不出优势罢了
 
+
+
+*****
+
+####  lightdog  
+##### 99#       发表于 2022-6-18 11:02
+
+看排名不就是看分数差额？
+几十万人都挤在40到60分之间，这排名的意义在哪？
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ysys  
+##### 100#       发表于 2022-6-18 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56315739&amp;ptid=2076445" target="_blank">密特里奈斯 发表于 2022-6-18 10:39</a>
+
+有问题的是中端，对大牛来说反而是好事
+
+比如本来平均分75的题难度出到了50，就说明大概有25分从送分题难 ...</blockquote>
+对大牛来说反而更容易拉开差距了
+
+高考的难度对于牛人的困境就是满分也就那么多
+
+偏科一点的很吃亏
+
