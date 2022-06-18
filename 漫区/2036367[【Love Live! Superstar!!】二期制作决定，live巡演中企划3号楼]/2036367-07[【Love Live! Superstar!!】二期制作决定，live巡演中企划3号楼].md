@@ -12500,3 +12500,16 @@ Nako则说不是团子哦，而是眼睛～
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  愛さ実  
+##### 10091#       发表于 2022-6-19 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56323733&amp;ptid=2036367" target="_blank">caicaistar 发表于 2022-6-19 00:31</a>
+听了小百合solo，之前还觉得是不用假声的问题，现在觉得是气息的问题，前一个音节还有气，后一个就虚了，而 ...</blockquote>
+就是换声点衔接不流畅。因为小百合之前一直就这么唱，拿真声硬顶，已经形成肌肉记忆了。现在小百合已经在尝试换声点提前了，但这东西不是一蹴而就的，而且各个声区的音色统一是件特别困难的事，所以就感觉断断续续的。今天听下来感觉小百合的混声比例已经大幅增加了，起码证明唱法在愈加科学，当然到哪天唱法才成熟可能就说不准了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
