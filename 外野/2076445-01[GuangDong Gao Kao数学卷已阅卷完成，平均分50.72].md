@@ -829,3 +829,16 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 这妥妥的出题事故，不是事故也是有问题出题
 
+
+
+*****
+
+####  ShawElA  
+##### 84#       发表于 2022-6-18 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313841&amp;ptid=2076445" target="_blank">Tomorrow_D 发表于 2022-6-18 01:24</a>
+文数平均分往往比理数要低，而且低不少。虽然文数相对简单，但是大量文科生数学是薄弱项
+
+甘肃省2013和201 ...</blockquote>
+是我草率了，不仅理科比文科高，而且一卷比二三卷高，16年以后比16年之前高，18年理科一卷甚至有87.15的平均分。15年及之前理科各卷还在65分上下游走(你这个13年74.00不知道什么情况，我这看到13年理科二卷是69.27)，16年开始平均都能有80分的平均分。<img src="https://p.sda1.dev/6/3195dc7ee59be427f4997d359357b0c4/IMG_20220618_090951.jpg" referrerpolicy="no-referrer">
+
