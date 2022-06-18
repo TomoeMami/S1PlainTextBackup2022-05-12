@@ -9911,3 +9911,116 @@ rh还能啥<img src="https://static.saraba1st.com/image/smiley/face2017/090.png"
 
 b站这边不搬的话能有什么节奏。
 
+
+
+*****
+
+####  2111X  
+##### 11461#       发表于 2022-6-18 22:53
+
+千万不要出现在官组号上<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草牛  
+##### 11462#       发表于 2022-6-18 22:53
+
+已切割，就算有节奏也不关我事，主播自己做事自己担<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 11463#       发表于 2022-6-18 22:53
+
+ 我放屁了 收回
+
+*****
+
+####  依旧ing  
+##### 11464#       发表于 2022-6-18 22:54
+
+fafa说官组不发
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  路人庚  
+##### 11465#       发表于 2022-6-18 22:54
+
+其实我也有猜是3D live联动，没想到就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 11466#       发表于 2022-6-18 22:54
+
+能有什么节奏，现在贷款吃屎的是谁我不好说，还能说话吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠|-1||
+
+查看全部评分
+
+*****
+
+####  yywzjsw  
+##### 11467#       发表于 2022-6-18 22:55
+
+海外限定<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 11468#       发表于 2022-6-18 22:58
+
+如果是海外限定能否为夸夸平 反，夸夸已经由吸血鬼转职奶妈了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠|-1|收收味，外面有楼|
+
+查看全部评分
+
+*****
+
+####  专业划水人员  
+##### 11469#       发表于 2022-6-18 22:58
+
+其他v和杏联动发视频也是海外限定，就烧你卡库拉咩啊？
+
+*****
+
+####  LIPP  
+##### 11470#       发表于 2022-6-18 23:00
+
+刚才念sc的时候把 都跳过了
+syl 炎上的基础不得是没凉，现在国内看的都没有了还烧呢
+
+*****
+
+####  路人庚  
+##### 11471#       发表于 2022-6-18 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂不懂最古之巫妖王的含金量啊，这下不得不烧了
+
+*****
+
+####  Dualist彩  
+##### 11472#       发表于 2022-6-18 23:01
+
+官组不发是吧，呵呵，事业民憋不住了要，只有meaqua才能给麻麻涨粉，不发就是给麻麻掉粉，官组能不能干，不能干就滚捏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

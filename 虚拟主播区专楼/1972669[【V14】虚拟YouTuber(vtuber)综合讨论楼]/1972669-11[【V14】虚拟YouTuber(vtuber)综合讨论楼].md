@@ -856,3 +856,18 @@ hitman播完同时完成刺杀king的伟业，很适合了。
 
 还以为他彻底摆了，没想到其实还在搞大企划，感觉又能噶了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15082#       发表于 2022-6-18 22:50
+
+谷歌表格的补充说明：由发案者的黛灰选拔脚本负责人，ankr运营负责谈稿酬和ddl，会优先考虑有舞台剧或动画的脚本经验者
+
+感觉还挺真格的，好期待啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+黑客多多少少还是有点人气吧，要是能钓到有名的pro脚本家就好了<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+虽然目前动画和日剧业界感觉职业脚本家写原创也容易翻车就是了……不知道舞台剧领域是如何
+
