@@ -17298,3 +17298,31 @@ B叔王哈从下路扫图到上路连宝箱带master一个不留就<img src="htt
 
 syl 今天怎么送的又是树根这种早就溢出的素材，送点金蛋啊，秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88489#       发表于 2022-6-18 18:07
+
+ 本帖最后由 exiaexa 于 2022-6-18 18:08 编辑 
+
+下路花嫁单挑
+
+中路B叔杀穿
+
+至于拿皇和LIP，神祖表示什么花里胡哨的
+
+3t2次的无敌在战线里挺好使，自己性能又爆炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88490#       发表于 2022-6-18 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56319584&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-18 17:58</a>
+
+花嫁打布姐轻轻松松，倒是lip有点难搞，行动点多，加了暴击buff之后伤害也高，把我王姐和梅林都送走了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 黑狗3红直接一条命
+
