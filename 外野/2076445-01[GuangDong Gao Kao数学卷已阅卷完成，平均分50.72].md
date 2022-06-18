@@ -1401,3 +1401,49 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
  ...</blockquote>
 我就是211毕业，我不认为有天赋，顶多英语有130的水平，其他都是及格线上下
 
+
+
+*****
+
+####  战星辰  
+##### 129#       发表于 2022-6-18 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56320886&amp;ptid=2076445" target="_blank">ladiesman802 发表于 2022-6-18 20:21</a>
+我就是211毕业，我不认为有天赋，顶多英语有130的水平，其他都是及格线上下 ...</blockquote>
+怎么我语数外综都及格线+25分也就上了个二本呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  onEgoOdmAn  
+##### 130#       发表于 2022-6-18 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56320886&amp;ptid=2076445" target="_blank">ladiesman802 发表于 2022-6-18 20:21</a>
+
+我就是211毕业，我不认为有天赋，顶多英语有130的水平，其他都是及格线上下 ...</blockquote>
+做题家没必要发牢骚嘛......
+
+只要下面的“垫脚石”够多，总能送你进985211的！
+<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 131#       发表于 2022-6-18 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56321026&amp;ptid=2076445" target="_blank">战星辰 发表于 2022-6-18 20:34</a>
+
+怎么我语数外综都及格线+25分也就上了个二本呀</blockquote>
+我记得当年英语120多，语文平时100，高考好运考了121，数学可能90多，其他忘了。最后比重本线高10几分
+
+*****
+
+####  hyddx  
+##### 132#       发表于 2022-6-18 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56316958&amp;ptid=2076445" target="_blank">牛尾宪辅 发表于 2022-6-18 12:46</a>
+
+广东用的是新高考一卷啊
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我记错了。广东和一堆卷王省份一起考，谁想的。
+
