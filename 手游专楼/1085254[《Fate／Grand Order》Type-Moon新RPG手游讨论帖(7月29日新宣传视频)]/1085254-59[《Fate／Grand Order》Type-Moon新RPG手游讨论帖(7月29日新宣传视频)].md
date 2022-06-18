@@ -17351,3 +17351,15 @@ syl 今天怎么送的又是树根这种早就溢出的素材，送点金蛋啊�
 
 水B：现在我是真的亲女儿了（这次要是有复刻池子就是疯狂迫害大象了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88494#       发表于 2022-6-18 20:24
+
+我B叔就捡个箱子对面lip就急吼吼冲过来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+本来还在想那个扣3000的地形效果怎么解决的，这下不用想了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
