@@ -977,3 +977,35 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 是时候搬出来开方乘10神器了 
 
+
+
+*****
+
+####  ysys  
+##### 97#       发表于 2022-6-18 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313258&amp;ptid=2076445" target="_blank">dren_zheng 发表于 2022-6-18 00:02</a>
+
+高考不是实际看排名吗？大家平均20分，你能21那就是比别人厉害啊，为啥大家说是事故？
+
+话说，高考难度算是 ...</blockquote>
+区分度很重要的
+
+全都0分，全都满分，那就没意义了
+
+要让分数区间相对合理一点才行
+
+*****
+
+####  ysys  
+##### 98#       发表于 2022-6-18 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56313918&amp;ptid=2076445" target="_blank">牛尾宪辅 发表于 2022-6-18 01:36</a>
+
+刚刚考完高考几天的广东考生来现身说法一下。
+
+0.广东高考是语数英新高考一卷，另外三科省内命题。
+
+1.首先， ...</blockquote>
+有一说一数学难不存在让数学差的人上不了好大学……大家都差，无非是区分度不足让中档学生发挥不出优势罢了
+
