@@ -191,3 +191,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">王哈竟然开场就被莉莉丝踢死了 这踢人带强解也太屌了 什么时候来个强化我的莉莉丝也能这样啊
 
+
+
+*****
+
+####  khxooo  
+##### 88520#       发表于 2022-6-20 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331687&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-19 21:13</a>
+王哈竟然开场就被莉莉丝踢死了 这踢人带强解也太屌了 什么时候来个强化我的莉莉丝也能这样啊 ...</blockquote>
+用杰克换了莉莉丝的一条血，最后B叔收人头。
+
