@@ -12525,3 +12525,31 @@ pay酱的banana真是太乐了。<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 10093#       发表于 2022-6-19 08:39
+
+早睡早起的Pay子帮没推特的大熊发了自拍
+
+<img src="https://img.saraba1st.com/forum/202206/19/083927vvn0no8xzzqupzyn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CEF3E8B4-A131-4B0A-A186-5918C9574A68.jpeg</strong> (381.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-19 08:39 上传
+
+*****
+
+####  仟音一心  
+##### 10094#       发表于 2022-6-19 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56324486&amp;ptid=2036367" target="_blank">长日留痕 发表于 2022-6-19 04:17</a>
+pay酱的banana真是太乐了。
+现在看来四位新人里绘森彩喜欢发推，大熊甚至推特都没开只是为了符合自 ...</blockquote>
+企划方怎么可能提这种要求？LL这么好的平台，就为了所谓人设妨碍你一个人的自我宣传，有毛病吧。
+
