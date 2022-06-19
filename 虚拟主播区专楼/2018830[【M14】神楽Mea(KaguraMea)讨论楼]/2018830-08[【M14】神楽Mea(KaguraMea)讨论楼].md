@@ -10553,3 +10553,12 @@ robenightmea的热度还挺高？</blockquote>
 
 覺得放個合唱就能吸粉的人有點太樂觀了吧。之前貼如月的時候，反正效果是微乎其微
 
+
+
+*****
+
+####  kenjjj  
+##### 11530#       发表于 2022-6-19 10:48
+
+涨1000粉就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
