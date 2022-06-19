@@ -12553,3 +12553,24 @@ pay酱的banana真是太乐了。
 现在看来四位新人里绘森彩喜欢发推，大熊甚至推特都没开只是为了符合自 ...</blockquote>
 企划方怎么可能提这种要求？LL这么好的平台，就为了所谓人设妨碍你一个人的自我宣传，有毛病吧。
 
+
+
+*****
+
+####  caicaistar  
+##### 10095#       发表于 2022-6-19 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56324125&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-6-19 01:39</a>
+
+就是换声点衔接不流畅。因为小百合之前一直就这么唱，拿真声硬顶，已经形成肌肉记忆了。现在小百合已经在 ...</blockquote>
+不只是换气点的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">我猜甚至都不是腹式呼吸
+
+好在小百合嗓音好听，中气又足，问题也不是很难改，真要哪天唱法成熟了，应该会很棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10096#       发表于 2022-6-19 09:43
+
+佩佩这张说不出的微妙<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
