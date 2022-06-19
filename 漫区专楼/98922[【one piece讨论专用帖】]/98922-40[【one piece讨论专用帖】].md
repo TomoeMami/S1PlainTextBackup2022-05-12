@@ -3440,3 +3440,18 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 第一次登场时，感觉是五常大佬聚在一起，有坐着说话的有站着沉思的，看起 ...</blockquote>
 该看B站阿金的五老星真传了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  火华火华火  
+##### 58821#       发表于 2022-6-19 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56329406&amp;ptid=98922" target="_blank">DGIL 发表于 2022-6-19 17:58</a>
+你们说老沙拉着M1不知道捣鼓出什么没有？ 不然再见到M3会尴尬么M3：哎哟，这不是沙鳄吗？两 ...</blockquote>
+下次见面应该是
+唉三哥，好久没联系了，我小沙，咱好哥们好久没聚了，吃个饭，就香波地大饭店，您赏光就行
+哎对，您那皇团最近还招人不，您看我这简历当个干部，唉，行，麻烦您问一下小丑皇巴基，谢谢您嘞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
