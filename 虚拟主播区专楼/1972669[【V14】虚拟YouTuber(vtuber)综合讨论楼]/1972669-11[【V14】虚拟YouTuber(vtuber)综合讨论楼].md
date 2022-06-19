@@ -1157,3 +1157,14 @@ syl 这次打键王好多kr人啊
 
 玩乐一整天回家准备看管，打开通知栏就看到月之，到底是家人关系还是因特网过敏了还是咋的哦……昨天播挺好的啊？
 
+
+
+*****
+
+####  越动天下  
+##### 15106#       发表于 2022-6-19 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56007666&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-5-27 00:18</a>
+老样子 感觉预测的差不多 你刀子能拿下顶流的数据也是靠深夜 看你虹女了 虽然我的想法还是变成lize吧 当 ...</blockquote>
+学习刀子数据的方法感觉还蛮到位的 看好下一个女刀子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
