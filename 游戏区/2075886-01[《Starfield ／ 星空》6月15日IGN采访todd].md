@@ -1246,3 +1246,14 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 一个星球就一两个城市能去的，做不做无缝也一样，我觉得杯赛还不如就做两个星系，把每个星球都填满点
 
+
+
+*****
+
+####  火华火华火  
+##### 106#       发表于 2022-6-19 23:09
+
+这说来说去感觉到最后就是天外世界加太空战斗加建房子<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
