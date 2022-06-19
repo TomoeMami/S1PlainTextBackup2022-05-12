@@ -130,3 +130,32 @@
 就很蛋疼 无所谓出不出的那种随便出 真的很想要的那种各种抽不到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了 羡慕
 
+
+
+*****
+
+####  qixinno2  
+##### 88514#       发表于 2022-6-19 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331045&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-19 20:29</a>
+
+别说了 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉可以祈祷周年新角色是个微妙的怪东西了 看我到时候怪东西抽卡率UP 再来个一发十连入魂
+
+*****
+
+####  areklose  
+##### 88515#       发表于 2022-6-19 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随缘代表还是想要。像我。教授池子一个都不想给
+
+*****
+
+####  alucardcz  
+##### 88516#       发表于 2022-6-19 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331137&amp;ptid=1085254" target="_blank">areklose 发表于 2022-6-19 20:36</a>
+
+随缘代表还是想要。像我。教授池子一个都不想给</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我 3石就抽 结果一个都没
+
