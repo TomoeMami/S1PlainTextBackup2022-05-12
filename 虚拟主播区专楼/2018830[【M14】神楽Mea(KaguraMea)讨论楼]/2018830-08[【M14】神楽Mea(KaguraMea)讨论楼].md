@@ -11262,3 +11262,14 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 行了行了 今晚估计不会有什么事 该干嘛干嘛去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 11593#       发表于 2022-6-19 21:39
+
+忙到刚刚才有空听完了曲子，ending感还是蛮强的（虽然曲子本身也确实是ed<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不得不令人感叹，确实是回不去了（回想起了当年每天可以闲出屎，高强度冲浪看虚拟人的日子，真是回不去了，不禁泪流满面，虽然这眼泪是为整天加班的自己而流<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -1225,3 +1225,15 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 说来这游戏剧情mod似乎没怎么见到，能称得上“剧情”的好像只有官方自带的教程性质的一个场景地图
 
+
+
+*****
+
+####  TheCyrodiil  
+##### 104#       发表于 2022-6-19 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56272728&amp;ptid=2075886" target="_blank">jf8350143 发表于 2022-06-15 09:16:23</a>
+为啥要太空无缝落地？有什么特别的好处吗？</blockquote>没有特别的好处，但贝塞没做就会变不不可或缺的一部分，从而推导出贝塞垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
