@@ -11211,3 +11211,12 @@ mea说了倒计时的事情，首播的时候倒计时美国大片一样，星�
 
 其他人联动唱歌都是蹲点的 只能看出职业素养不怎么样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 11588#       发表于 2022-6-19 20:59
+
+点赞数比播放量高就很离谱
+

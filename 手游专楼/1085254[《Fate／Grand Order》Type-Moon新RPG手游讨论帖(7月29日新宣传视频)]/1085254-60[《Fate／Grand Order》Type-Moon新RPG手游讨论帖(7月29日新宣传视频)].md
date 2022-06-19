@@ -170,3 +170,15 @@
 咸鱼佬如我到现在一把都没打</blockquote>
 小心太咸导致忘记打了，毕竟7张呼符。
 
+
+
+*****
+
+####  alucardcz  
+##### 88518#       发表于 2022-6-19 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331273&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-19 20:46</a>
+
+小心太咸导致忘记打了，毕竟7张呼符。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你面对的可是课佬 7张护符真不在乎（
+
