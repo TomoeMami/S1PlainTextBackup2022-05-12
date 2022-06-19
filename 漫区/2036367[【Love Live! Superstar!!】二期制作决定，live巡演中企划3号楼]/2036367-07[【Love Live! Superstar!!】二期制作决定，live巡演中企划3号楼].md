@@ -12991,3 +12991,14 @@ EB591A26-79DC-4FE2-8F0F-E4EAC9837584.gif
 KU-KA-KI</blockquote>
 3 K党是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 10128#       发表于 2022-6-20 01:09
+
+KA-KI-KU KE-KO(N)，好像有点冷<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
