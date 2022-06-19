@@ -92,3 +92,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 果然我是怪东西专精 一发十连水BB到手
 
+
+
+*****
+
+####  alucardcz  
+##### 88511#       发表于 2022-6-19 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330325&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-19 19:34</a>
+
+艹 果然我是怪东西专精 一发十连水BB到手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 羡慕死了
+
+萌新all in无事发生
+
