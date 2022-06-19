@@ -1168,3 +1168,13 @@ syl 这次打键王好多kr人啊
 老样子 感觉预测的差不多 你刀子能拿下顶流的数据也是靠深夜 看你虹女了 虽然我的想法还是变成lize吧 当 ...</blockquote>
 学习刀子数据的方法感觉还蛮到位的 看好下一个女刀子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15107#       发表于 2022-6-19 22:43
+
+那看来你虹运营坚持面对英文粉丝也是当然的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+日本，你虹总粉丝圈就这么大，爆发式增长很快就摸到边了
+

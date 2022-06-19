@@ -11298,3 +11298,44 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 ごず基本是杏御用mix
 
+
+
+*****
+
+####  ashero  
+##### 11597#       发表于 2022-6-19 22:50
+
+ 本帖最后由 ashero 于 2022-6-19 22:51 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/19/225150rbwii2f7zji77bek.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220619225110.png</strong> (15.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-19 22:51 上传
+
+我超 辣
+
+*****
+
+####  古战场亡魂  
+##### 11598#       发表于 2022-6-19 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56332890&amp;ptid=2018830" target="_blank">ashero 发表于 2022-6-19 22:50</a>
+
+【神楽めあ 推特回复】
+
+内容：@nana_kaguraaa 
+
+时间：2022-06-19 14:46:07 UTC</blockquote>
+帮你补个图
+
+<img src="https://img.saraba1st.com/forum/202206/19/225131l01c4b1jrsit1ix4.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220619225110140.jpg</strong> (20.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-19 22:51 上传
+
