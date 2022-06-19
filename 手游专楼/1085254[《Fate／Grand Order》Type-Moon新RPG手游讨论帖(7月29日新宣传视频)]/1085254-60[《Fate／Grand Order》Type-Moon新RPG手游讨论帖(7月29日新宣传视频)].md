@@ -63,3 +63,14 @@
 
 全员满血状态为了拿个银箱子重开了3局。。
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88508#       发表于 2022-6-19 18:57
+
+水BB后面那个银箱子是逼人打两遍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
