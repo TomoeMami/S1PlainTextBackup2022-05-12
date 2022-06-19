@@ -74,3 +74,12 @@
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88509#       发表于 2022-6-19 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼佬如我到现在一把都没打
+
