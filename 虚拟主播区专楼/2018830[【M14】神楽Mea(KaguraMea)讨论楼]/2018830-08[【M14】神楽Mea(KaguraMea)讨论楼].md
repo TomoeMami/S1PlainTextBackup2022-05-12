@@ -10855,3 +10855,14 @@ mea投的合唱也多了去了。
 
 连体人只会狗叫捏
 
+
+
+*****
+
+####  十九号大侠  
+##### 11558#       发表于 2022-6-19 15:54
+
+这连体人看到了不得脑补啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
