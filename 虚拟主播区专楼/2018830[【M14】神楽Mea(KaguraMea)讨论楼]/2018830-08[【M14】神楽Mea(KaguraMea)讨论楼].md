@@ -11176,3 +11176,38 @@ QQ图片20220619202759.png
 
 mea说了倒计时的事情，首播的时候倒计时美国大片一样，星际战舰，当时就绷不住了。
 
+
+
+*****
+
+####  Klience  
+##### 11585#       发表于 2022-6-19 20:44
+
+那个倒计时 我还以为是eva的广告插了进来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 11586#       发表于 2022-6-19 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330914&amp;ptid=2018830" target="_blank">璃絵和花瑠 发表于 2022-6-19 20:21</a>
+
+虽然但是，果然还是别在这里发癫。
+
+没必要为了一群生活比各位如意的女人魔怔成这样。 ...</blockquote>
+错误的 没比要因为一个没法在中国播的主播发癫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 11587#       发表于 2022-6-19 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331017&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-19 20:27</a>
+
+你知道我为什么要叫你们别发颠了吗。
+
+因为抓着转发非常容易被打脸。批评连体人不是自己变成暗黑连体人把脸 ...</blockquote>
+有什么好送弹药的
+
+其他人联动唱歌都是蹲点的 只能看出职业素养不怎么样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

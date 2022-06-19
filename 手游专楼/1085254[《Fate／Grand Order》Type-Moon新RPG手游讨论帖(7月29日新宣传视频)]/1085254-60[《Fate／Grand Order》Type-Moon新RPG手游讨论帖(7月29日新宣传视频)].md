@@ -159,3 +159,14 @@
 随缘代表还是想要。像我。教授池子一个都不想给</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我 3石就抽 结果一个都没
 
+
+
+*****
+
+####  khxooo  
+##### 88517#       发表于 2022-6-19 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330225&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-19 19:24</a>
+咸鱼佬如我到现在一把都没打</blockquote>
+小心太咸导致忘记打了，毕竟7张呼符。
+
