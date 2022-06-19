@@ -11273,3 +11273,19 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 不得不令人感叹，确实是回不去了（回想起了当年每天可以闲出屎，高强度冲浪看虚拟人的日子，真是回不去了，不禁泪流满面，虽然这眼泪是为整天加班的自己而流<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 11594#       发表于 2022-6-19 21:45
+
+工作累了好好犒劳下自己吧 虽然我工作了几年从来就没有加过班 准时5点半下班走人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 11595#       发表于 2022-6-19 21:52
+
+我就没听，今晚和人打csgo社区服开开心心美滋滋，语音开麦嘴臭黑屁样样精通，不比看没兴趣的玩意儿开心多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
