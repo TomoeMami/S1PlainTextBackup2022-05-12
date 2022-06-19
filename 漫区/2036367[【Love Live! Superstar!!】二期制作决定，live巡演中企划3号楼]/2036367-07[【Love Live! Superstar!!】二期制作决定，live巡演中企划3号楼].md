@@ -12972,3 +12972,22 @@ EB591A26-79DC-4FE2-8F0F-E4EAC9837584.gif
 
 二期生看好大熊和朱茵
 
+
+
+*****
+
+####  lj205  
+##### 10126#       发表于 2022-6-19 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> KU-KA-KI
+
+*****
+
+####  老1.5  
+##### 10127#       发表于 2022-6-19 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56332449&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-19 22:12</a>
+
+KU-KA-KI</blockquote>
+3 K党是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

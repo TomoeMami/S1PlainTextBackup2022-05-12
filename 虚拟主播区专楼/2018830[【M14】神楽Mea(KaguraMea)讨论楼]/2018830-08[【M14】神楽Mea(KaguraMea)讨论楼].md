@@ -11289,3 +11289,12 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 我就没听，今晚和人打csgo社区服开开心心美滋滋，语音开麦嘴臭黑屁样样精通，不比看没兴趣的玩意儿开心多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 11596#       发表于 2022-6-19 22:20
+
+ごず基本是杏御用mix
+
