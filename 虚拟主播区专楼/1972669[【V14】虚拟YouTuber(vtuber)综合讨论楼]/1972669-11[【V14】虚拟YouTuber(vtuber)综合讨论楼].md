@@ -1122,3 +1122,20 @@ holo这feat的档次，排面真大
 
 syl 这次打键王好多kr人啊
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15103#       发表于 2022-6-19 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56329361&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-6-19 17:53</a>
+
+但涨速下降得挺快的，看长期趋势，能保持高频度直播的葛皇很可能重新超回来 ...</blockquote>
+-      
+
+      
+
+      
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看百万姐未来如何努力了...之前考验了V圈的极限，现在要考验百万姐的极限了。
+
