@@ -10753,3 +10753,15 @@ mea投的合唱也多了去了。
 卧槽萨尔还处于活跃状态啊
 我的我自叹不如，不是这事儿我都不会登陆回来s1，我觉得我不配称为粉丝
 
+
+
+*****
+
+####  Thrall12345  
+##### 11548#       发表于 2022-6-19 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56326318&amp;ptid=2018830" target="_blank">-MUON- 发表于 2022-6-19 11:45</a>
+
+不论哪边都是一个味，令人感慨</blockquote>
+现在那边又涌入了不知名状的烂活 还是这边好看
+
