@@ -12843,3 +12843,26 @@ wink这方面鱼可真专业啊<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 10119#       发表于 2022-6-19 19:04
+
+打铁这场声音回来了
+
+*****
+
+####  iuhehc  
+##### 10120#       发表于 2022-6-19 19:05
+
+诶现场的tututu真好听，就是不想看画面
+
+*****
+
+####  老1.5  
+##### 10121#       发表于 2022-6-19 19:10
+
+这场蛮好的，Talk有趣，Live状态大家伙也比昨天好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

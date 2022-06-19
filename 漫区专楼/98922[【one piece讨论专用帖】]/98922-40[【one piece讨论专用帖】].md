@@ -3415,3 +3415,14 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 他走过的地方一地的花花草草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是来恢复被污染的和之国生态的？和国那些开设工厂的地方
 
+
+
+*****
+
+####  Freemasons  
+##### 58819#       发表于 2022-6-19 19:05
+
+五老星也是刻画得比较失败的角色
+第一次登场时，感觉是五常大佬聚在一起，有坐着说话的有站着沉思的，看起来很有派头
+结果出场这么多次到现在，合着您五位连个正经的会议桌都没有，每次都坐几个站几个，也不去外面处理政务，就跟几只鸡一样圈在窝里走来走去，偶尔去主子那里下个跪领任务，连个王路飞的悬赏令都搞不定，还不如五个木偶，木偶都比这种连体婴儿强<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
