@@ -106,3 +106,27 @@
 
 萌新all in无事发生
 
+
+
+*****
+
+####  qixinno2  
+##### 88512#       发表于 2022-6-19 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330666&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-19 20:04</a>
+
+太欧了 羡慕死了
+
+萌新all in无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就很蛋疼 无所谓出不出的那种随便出 真的很想要的那种各种抽不到
+
+*****
+
+####  alucardcz  
+##### 88513#       发表于 2022-6-19 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330966&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-19 20:24</a>
+
+就很蛋疼 无所谓出不出的那种随便出 真的很想要的那种各种抽不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了 羡慕
+
