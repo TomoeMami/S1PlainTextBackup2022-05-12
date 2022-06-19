@@ -12711,3 +12711,19 @@ E8048771-9BBF-4836-80A8-5DBB276375D3.jpeg
 
 <img src="https://img.saraba1st.com/forum/202206/19/162315vaw2nqhcs2azc60n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10107#       发表于 2022-6-19 17:31
+
+nagi:我真的不知道选哪个场景，只能硬选了
+
+*****
+
+####  starring  
+##### 10108#       发表于 2022-6-19 17:31
+
+才看到下周三的打铁匠不简单是生放送，怎么你们的生放送都扎堆这一天<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
