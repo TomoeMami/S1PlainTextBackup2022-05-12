@@ -3357,3 +3357,22 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 最精彩的是幕间播放的大新闻，五老星摆pose通缉令打榜，真上岛了啥玩意</blockquote>
 这话是哪一话来着，翻了翻找不到了
 
+
+
+*****
+
+####  DGIL  
+##### 58815#       发表于 2022-6-19 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">M3：哎哟，这不是沙鳄吗？两年没见那么拉了。
+
+世界大乱，不知道废除七武海后不知道发生了些什么事，巴基七武海，女帝 鹰眼呢小白胡子呢？
+
+倍加庞克的科学成果有没有展示
+
+革命军也不知道如何
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正五老星依然无能狂怒，然后什么也改变不了，什么也做不成就会发脾气
+
+还是新闻王目前独领**
+

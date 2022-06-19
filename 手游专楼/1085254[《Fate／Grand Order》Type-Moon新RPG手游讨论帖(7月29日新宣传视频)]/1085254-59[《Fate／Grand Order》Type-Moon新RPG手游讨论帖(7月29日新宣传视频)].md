@@ -17416,3 +17416,20 @@ BB这回真的是大赢家。吉娜可既没有强化本，也没有改模，更
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">居然出了BB卡池…算是为数不多想要的，算了冲了……
 
+
+
+*****
+
+####  alucardcz  
+##### 88500#       发表于 2022-6-19 17:51
+
+<img src="https://img.saraba1st.com/forum/202206/19/175043tkk0ecdcupdsd0t1.jpg" referrerpolicy="no-referrer">
+
+<strong>2222.jpg</strong> (449.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-19 17:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作孽啊  干什么呢  就个银箱子为什么不让我拿？？？
+

@@ -1099,3 +1099,15 @@ holo这feat的档次，排面真大
 
 才知道...百万姐食杀葛叶了。已经是虹V货真价实的一姐了。
 
+
+
+*****
+
+####  CielChloe  
+##### 15101#       发表于 2022-6-19 17:53
+
+ 本帖最后由 CielChloe 于 2022-6-19 17:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56328192&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-6-19 15:33</a>
+才知道...百万姐食杀葛叶了。已经是虹V货真价实的一姐了。</blockquote>
+但涨速下降得挺快的，看长期趋势，能保持高频度直播的葛皇很可能重新超回来
+
