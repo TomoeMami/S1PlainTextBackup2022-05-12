@@ -3388,3 +3388,30 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 你们说老沙拉着M1不知道捣鼓出什么没有？ 不然再见到M3会尴尬么M3：哎哟，这不是沙鳄吗？两 ...</blockquote>
 再这样下去怕不是新闻王快成最自由的人了，还不局限于海上。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DGIL  
+##### 58817#       发表于 2022-6-19 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56329703&amp;ptid=98922" target="_blank">ef6270 发表于 2022-6-19 18:31</a>
+
+再这样下去怕不是新闻王快成最自由的人了，还不局限于海上。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">确实，。。。看完我觉得新闻王吊炸了
+
+目前看来，快活又自由，谁都不屌，有一定实力，遇到麻烦就带着员工愉快跑路，
+
+他的新闻影响全世界的人，想捧谁就捧谁
+
+*****
+
+####  DGIL  
+##### 58818#       发表于 2022-6-19 18:44
+
+ 本帖最后由 DGIL 于 2022-6-19 18:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这绿牛怕不是来搞绿化的？给他绕着和国走一圈绿化就完成了吧？
+
+他走过的地方一地的花花草草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是来恢复被污染的和之国生态的？和国那些开设工厂的地方
+
