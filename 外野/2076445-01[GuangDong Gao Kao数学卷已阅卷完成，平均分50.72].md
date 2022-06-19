@@ -1637,3 +1637,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 有没有可能自己觉得自己挺菜也能考上211 985是因为投胎投了个好地方呢。 ...</blockquote>
 考区在荷兰
 
+
+
+*****
+
+####  cloudian  
+##### 151#       发表于 2022-6-19 09:27
+
+平均分这么低啊……
+
+—— 来自 OnePlus PGKM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
