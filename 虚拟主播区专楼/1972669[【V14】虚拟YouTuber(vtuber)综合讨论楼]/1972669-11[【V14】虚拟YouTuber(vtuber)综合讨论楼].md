@@ -1111,3 +1111,14 @@ holo这feat的档次，排面真大
 才知道...百万姐食杀葛叶了。已经是虹V货真价实的一姐了。</blockquote>
 但涨速下降得挺快的，看长期趋势，能保持高频度直播的葛皇很可能重新超回来
 
+
+
+*****
+
+####  fastary  
+##### 15102#       发表于 2022-6-19 19:20
+
+看管厕有人在骂相羽被炎的事，但我搜了下啥也没看到啊，有看5ch的老哥知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+syl 这次打键王好多kr人啊
+
