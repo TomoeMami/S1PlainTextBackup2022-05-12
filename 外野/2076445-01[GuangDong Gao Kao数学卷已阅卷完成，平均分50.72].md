@@ -1648,3 +1648,16 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 —— 来自 OnePlus PGKM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ShawElA  
+##### 152#       发表于 2022-6-19 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56324700&amp;ptid=2076445" target="_blank">xlsswx 发表于 2022-6-19 07:07</a>
+语数英任何一科考试考成均分50，都是重大事故，出题题组长要回去吃自己。考试最重要的是区分度，符合考纲和 ...</blockquote>
+首先，难度和区分度没什么关系，难度系数低于0.1的题目，区分度既可高达0.8，亦可不满0.1。(可以看34楼的图，第20题和第21题)
+其次，平均分50左右的高考数学试卷有很多张，这些卷子解答题区分度能有0.7，客观题甚至稳过0.8，这是很优秀的数据。
+此外，数学是主三科唯一一门敢公开分半信度的，数据每年也都在0.8以上，十分平稳。
+
