@@ -3376,3 +3376,15 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 还是新闻王目前独领**
 
+
+
+*****
+
+####  ef6270  
+##### 58816#       发表于 2022-6-19 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56329406&amp;ptid=98922" target="_blank">DGIL 发表于 2022-6-19 17:58</a>
+
+你们说老沙拉着M1不知道捣鼓出什么没有？ 不然再见到M3会尴尬么M3：哎哟，这不是沙鳄吗？两 ...</blockquote>
+再这样下去怕不是新闻王快成最自由的人了，还不局限于海上。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
