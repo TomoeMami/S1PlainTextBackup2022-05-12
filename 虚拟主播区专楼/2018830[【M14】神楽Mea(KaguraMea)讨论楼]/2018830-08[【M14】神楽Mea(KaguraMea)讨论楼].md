@@ -10800,3 +10800,19 @@ mea投的合唱也多了去了。
 
 连体人听不懂日语（
 
+
+
+*****
+
+####  Klience  
+##### 11552#       发表于 2022-6-19 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56327354&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-19 13:44</a>
+
+原来lol大号账号名字改了，倒是不难找。
+
+首先输入已知的21年日服登顶的路人王账号。
+
+翻翻匹配战绩发现只波 ...</blockquote>
+教你个更简单的 手机下载opgg 然后收藏关注的人 如果那个人改id的话 点开收藏过的人就能看到这人最新的id是什么
+
