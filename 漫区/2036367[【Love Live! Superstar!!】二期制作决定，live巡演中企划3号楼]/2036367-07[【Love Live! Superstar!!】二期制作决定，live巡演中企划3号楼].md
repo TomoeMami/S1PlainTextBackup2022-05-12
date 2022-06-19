@@ -12672,3 +12672,15 @@ Liyuu：性格悪いな
 
 其实鲤鱼现在的体力，跑1公里应该问题不大
 
+
+
+*****
+
+####  老1.5  
+##### 10105#       发表于 2022-6-19 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56327946&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-19 15:04</a>
+
+其实鲤鱼现在的体力，跑1公里应该问题不大</blockquote>
+看是什么配速吧，如果是体测的速度可能还是八达岭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且1km体测算是长距离冲刺跑，对心肺要求也着实不小
+
