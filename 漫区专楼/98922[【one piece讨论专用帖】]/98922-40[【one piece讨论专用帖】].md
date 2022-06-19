@@ -3426,3 +3426,17 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 第一次登场时，感觉是五常大佬聚在一起，有坐着说话的有站着沉思的，看起来很有派头
 结果出场这么多次到现在，合着您五位连个正经的会议桌都没有，每次都坐几个站几个，也不去外面处理政务，就跟几只鸡一样圈在窝里走来走去，偶尔去主子那里下个跪领任务，连个王路飞的悬赏令都搞不定，还不如五个木偶，木偶都比这种连体婴儿强<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58820#       发表于 2022-6-19 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56330039&amp;ptid=98922" target="_blank">Freemasons 发表于 2022-6-19 19:05</a>
+
+五老星也是刻画得比较失败的角色
+
+第一次登场时，感觉是五常大佬聚在一起，有坐着说话的有站着沉思的，看起 ...</blockquote>
+该看B站阿金的五老星真传了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
