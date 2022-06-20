@@ -527,3 +527,25 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 可以先点硬币那个ex增伤 提升挺明显</blockquote>
 硬币，不够，我B叔明明已经5宝10羁绊了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88550#       发表于 2022-6-20 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343231&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 19:22</a>
+
+硬币，不够，我B叔明明已经5宝10羁绊了</blockquote>
+先开NP才不够，先点是够的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 88551#       发表于 2022-6-20 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343231&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 19:22</a>
+
+硬币，不够，我B叔明明已经5宝10羁绊了</blockquote>
+只是120幣，我的B叔，4寶10絆已經能開有餘，是開了其他技能嗎?
+
