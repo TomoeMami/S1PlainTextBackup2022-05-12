@@ -1606,3 +1606,12 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 去给哈寂灭的好嫌点踩了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">（玩笑），郡郡——！！
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15149#       发表于 2022-6-20 22:13
+
+早该抄抄the first take了，两年前就有liver说可以搞
+
