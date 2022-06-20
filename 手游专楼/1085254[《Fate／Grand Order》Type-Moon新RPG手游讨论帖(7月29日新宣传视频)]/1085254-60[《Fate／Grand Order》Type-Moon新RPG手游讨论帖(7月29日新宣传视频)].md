@@ -581,3 +581,12 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 打到后半段，一边拿御主绕场溜仅存的lip，一边拿查理曼和小教授打帝王花，可算是把箱子拿完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88555#       发表于 2022-6-21 01:32
+
+这场机龙冲下去和咕哒换位再后退之后那俩就宕机了，轻松拿齐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
