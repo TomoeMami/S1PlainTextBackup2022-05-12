@@ -1396,3 +1396,15 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 不想加discord这里也会发
 [https://forum.holopirates.moe/](https://forum.holopirates.moe/)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15127#       发表于 2022-6-20 15:04
+
+就当我日常唱衰吧。
+说到大活动。
+虹en官号在那边倒计时。目前三个人影都是虹en男的样子。
+从6开始倒数来着。为什么是六<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
