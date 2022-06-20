@@ -257,3 +257,12 @@
 
 下面BB守的寶箱就算了，B叔行得太前，直接被反殺...
 
+
+
+*****
+
+####  v22325  
+##### 88526#       发表于 2022-6-20 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伽摩打莉莉丝挺好使，待在绿卡点上等她过来一次宝具一次暴击直接干死
+
