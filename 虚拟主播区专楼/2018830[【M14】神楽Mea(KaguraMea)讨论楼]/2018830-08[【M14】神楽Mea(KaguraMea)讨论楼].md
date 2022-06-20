@@ -11767,3 +11767,16 @@ yysy，和野男人的切片看着真的乐的。好像回到了当初mmr的时�
 
 那倒不至于，4周年必定留档。有本事她4周年也删档歌回。
 
+
+
+*****
+
+####  Mr.shelter  
+##### 11636#       发表于 2022-6-20 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56337823&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-20 11:54</a>
+我估计你楼里一堆不认识这位是谁。</blockquote>
+超，她们两原来认识吗....哦我想起来好像挺早有个联动里有圣女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+什么时候搞个双人联动
+
