@@ -11648,3 +11648,25 @@ Q5：为什么连体人天天招魂联动 给你主子林檎小姐的秽土转�
 
 2022-6-20 11:59 上传
 
+
+
+*****
+
+####  依旧ing  
+##### 11624#       发表于 2022-6-20 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56337447&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-20 11:31</a>
+这个我在油管看过过了，英文区的肉日文区的肉你翻译成中文还好说。
+
+繁中区的肉直接转的话，如果没协商好， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这么恐怖的吗，下次不转繁中了
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 11625#       发表于 2022-6-20 12:07
+
+劣迹挺多的，还是要稍微留个心眼
+
