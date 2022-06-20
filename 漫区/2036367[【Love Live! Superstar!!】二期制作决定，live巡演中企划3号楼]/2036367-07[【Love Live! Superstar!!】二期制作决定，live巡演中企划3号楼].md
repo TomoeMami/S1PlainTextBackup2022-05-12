@@ -13369,3 +13369,17 @@ Nagi水蓝色指甲油是Nako送的生日礼物
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ll和imas联动（确信）
 
+
+
+*****
+
+####  D麦林  
+##### 10139#       发表于 2022-6-20 20:54
+
+ 本帖最后由 D麦林 于 2022-6-20 20:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343502&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-6-20 19:48</a>
+ll和imas联动（确信）</blockquote>
+我感觉从二次元角度来讲堇和李阿姆的互动可能还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个是苦于社交媒体没人关注的 一个是苦于老在社交媒体上搞出炎上的
+
