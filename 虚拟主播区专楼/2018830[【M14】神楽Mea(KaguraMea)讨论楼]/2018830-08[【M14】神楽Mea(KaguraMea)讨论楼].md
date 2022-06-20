@@ -11427,3 +11427,19 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 这种事情还是要一起配合才有意思，别急。
 
+
+
+*****
+
+####  htgz111  
+##### 11608#       发表于 2022-6-20 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56331718&amp;ptid=2018830" target="_blank">ShyCrazydog 发表于 2022-6-19 21:16</a>
+
+我真建议你们别老把精力放在粉丝身上。你们很多人现在给我的感觉比起不爽大亏，不如说更害怕连体人因此来跳 ...</blockquote>
+从你分类讨论粉丝群体又是“毒唯”又是“连体人”的时候就已经落入双标狗crew的陷阱里了 本身粉丝就不应该被竖切成毒不毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后你在这虚空打靶说没有连体人跳脸 不妨看看几个搬运工底下crew怎么披着“连体人”皮拉踩的
+
+你看不见或者选择性看不见不代表不存在 眼可以瞎 心瞎了就是真的盲人了
+

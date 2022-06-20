@@ -202,3 +202,15 @@
 王哈竟然开场就被莉莉丝踢死了 这踢人带强解也太屌了 什么时候来个强化我的莉莉丝也能这样啊 ...</blockquote>
 用杰克换了莉莉丝的一条血，最后B叔收人头。
 
+
+
+*****
+
+####  qixinno2  
+##### 88521#       发表于 2022-6-20 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56334440&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 01:55</a>
+
+用杰克换了莉莉丝的一条血，最后B叔收人头。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是B叔好使 可惜这次限制太大了 只能进攻一次
+
