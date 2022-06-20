@@ -1353,3 +1353,13 @@ ngo读柠檬，同接死了一样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">初期没看出来，后来看感觉到了和星川ァ一样的味道。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15123#       发表于 2022-6-20 11:13
+
+你虹liver怎么感觉气氛不稳起来了……
+明明之前毕业那波都没这样的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
