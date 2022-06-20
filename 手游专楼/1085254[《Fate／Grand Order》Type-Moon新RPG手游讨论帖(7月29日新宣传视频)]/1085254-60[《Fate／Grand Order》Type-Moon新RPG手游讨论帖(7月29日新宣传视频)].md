@@ -382,3 +382,25 @@
 好消息我寄了 对面组团自鲨拦都拦不住</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 对面就跟疯狗一样过来送 所以我都放弃箱子直接见一个杀一个了
 
+
+
+*****
+
+####  alucardcz  
+##### 88537#       发表于 2022-6-20 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342223&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-20 17:50</a>
+
+是的 对面就跟疯狗一样过来送 所以我都放弃箱子直接见一个杀一个了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5万多血 我绿卡开头还是秒了 这就很尴尬
+
+*****
+
+####  qixinno2  
+##### 88538#       发表于 2022-6-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 17:51</a>
+
+5万多血 我绿卡开头还是秒了 这就很尴尬</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天那个马大我用水泥绿卡开头差1000+血把她打死 费半天劲结果拿到那箱子就是垃圾指环 贼蛋疼
+
