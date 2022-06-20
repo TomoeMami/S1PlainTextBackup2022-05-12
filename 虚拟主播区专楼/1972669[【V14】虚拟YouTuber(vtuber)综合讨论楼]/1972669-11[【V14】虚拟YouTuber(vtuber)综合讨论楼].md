@@ -1408,3 +1408,20 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 虹en官号在那边倒计时。目前三个人影都是虹en男的样子。
 从6开始倒数来着。为什么是六<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 15128#       发表于 2022-6-20 15:14
+
+<img src="https://img.saraba1st.com/forum/202206/20/151043ex8kf8zim2uqz5fq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A43F34B1-3429-4CD6-8B3C-162CB0568973.jpeg</strong> (216.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-20 15:10 上传
+
+月之休止影响还是挺大的，周五就开始暴跌了，你公司再怎么说分摊风险，90%以上的管人观众都只会看头部那几个人，头部一出事那公司就跟着寄
+
