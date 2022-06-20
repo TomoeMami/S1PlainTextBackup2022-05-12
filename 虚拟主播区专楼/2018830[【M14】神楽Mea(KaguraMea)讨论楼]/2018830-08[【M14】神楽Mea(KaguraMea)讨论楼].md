@@ -11837,3 +11837,26 @@ yysy，和野男人的切片看着真的乐的。好像回到了当初mmr的时�
 
 这次唱完事情也就过去了 过一段时间自然就平静了
 
+
+
+*****
+
+####  时间在我手中  
+##### 11642#       发表于 2022-6-20 18:05
+
+ 本帖最后由 时间在我手中 于 2022-6-20 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342258&amp;ptid=2018830" target="_blank">Thrall12345 发表于 2022-6-20 17:53</a>
+
+主要是真的太好笑了 没忍住 不好意思啦
+
+而且正常的讨论不是也能做到的吗 上面聊那么多
+
+这次唱完事情也就 ...</blockquote>
+你也配自称正常讨论吗，老东西上年纪了一股子倚老卖老的狗样子是装给谁看呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+对比你楼几个包括我在内沾点的，也没到你这种人人喊打的过街老鼠的地步，所以就别出来宣扬你的大脑升级笑话了。
+
+如果要说有什么事情的话，大概就是你这种死狗像个跳梁小丑一样到处乱串，还有脸滚回去倪哥谭自我感觉良好的自我高潮一波了，殊不知你这种垃圾就是纯纯的神憎鬼厌，知道你那点破事的人恨不得往你头上直接吐上几口浓痰啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有这时间在这里逆练九阴九阳建议你这种弱智还是赶紧滚去练一下次男道或者辟邪剑法学习一下，这样言论里面满溢而出的太监味道就很符合功法运行路线了
+

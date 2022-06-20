@@ -404,3 +404,25 @@
 5万多血 我绿卡开头还是秒了 这就很尴尬</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天那个马大我用水泥绿卡开头差1000+血把她打死 费半天劲结果拿到那箱子就是垃圾指环 贼蛋疼
 
+
+
+*****
+
+####  alucardcz  
+##### 88539#       发表于 2022-6-20 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342308&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-20 17:56</a>
+
+昨天那个马大我用水泥绿卡开头差1000+血把她打死 费半天劲结果拿到那箱子就是垃圾指环 贼蛋疼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天箱子损失的有点多  不过也不打算重打一边了
+
+*****
+
+####  qixinno2  
+##### 88540#       发表于 2022-6-20 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342355&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 18:00</a>
+
+今天箱子损失的有点多  不过也不打算重打一边了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正作为咸鱼真的觉得这次的改动不咋地 还是B叔无双适合我
+
