@@ -275,3 +275,14 @@
 
 得，花花是个守金箱子的
 
+
+
+*****
+
+####  alucardcz  
+##### 88528#       发表于 2022-6-20 17:39
+
+我吃饱没事把黑狗ex攻击增伤升满了 伤害变态啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+宝具带走满血莉莉丝 2红+ex带走满血Passionlip <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
