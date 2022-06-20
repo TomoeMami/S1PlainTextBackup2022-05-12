@@ -549,3 +549,16 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 硬币，不够，我B叔明明已经5宝10羁绊了</blockquote>
 只是120幣，我的B叔，4寶10絆已經能開有餘，是開了其他技能嗎?
 
+
+
+*****
+
+####  alucardcz  
+##### 88552#       发表于 2022-6-20 20:05
+
+ 本帖最后由 alucardcz 于 2022-6-20 20:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343231&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 19:22</a>
+
+硬币，不够，我B叔明明已经5宝10羁绊了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下我也不够 差10  怪了
+
