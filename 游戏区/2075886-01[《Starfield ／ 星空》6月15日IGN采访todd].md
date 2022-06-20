@@ -1287,3 +1287,22 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 这种游戏适合网游啊感觉
 
+
+
+*****
+
+####  白左  
+##### 110#       发表于 2022-6-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56333311&amp;ptid=2075886" target="_blank">ArowRocher 发表于 2022-6-19 23:24</a>
+
+这个游戏的优点和缺点就是没有安全措施，加上这游戏原始社会级的生产力搓了半天搓出来的飞船剐蹭一下就要 ...</blockquote>
+只有打上护盾mod才敢出去浪.jpg
+
+*****
+
+####  哇库哇库  
+##### 111#       发表于 2022-6-20 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星空不知道，但看下来星际公民给人感觉是个宗教产品。
+

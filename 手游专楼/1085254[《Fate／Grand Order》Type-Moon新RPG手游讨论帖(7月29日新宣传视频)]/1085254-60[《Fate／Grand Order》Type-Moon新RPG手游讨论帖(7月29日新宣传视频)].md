@@ -286,3 +286,99 @@
 
 宝具带走满血莉莉丝 2红+ex带走满血Passionlip <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88529#       发表于 2022-6-20 17:41
+
+<img src="https://img.saraba1st.com/forum/202206/20/174059o56qqmeym8q5kxv6.jpg" referrerpolicy="no-referrer">
+
+<strong>333.jpg</strong> (569.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-20 17:40 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后我是不是寄了。。。对面要死光了还有那么多箱子
+
+*****
+
+####  qixinno2  
+##### 88530#       发表于 2022-6-20 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342100&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 17:39</a>
+
+我吃饱没事把黑狗ex攻击增伤升满了 伤害变态啊
+
+宝具带走满血莉莉丝 2红+ex带走满血Passionlip [f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌 好羡慕有黑狗的人
+
+
+
+*****
+
+####  alucardcz  
+##### 88531#       发表于 2022-6-20 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342119&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-20 17:41</a>
+
+无敌 好羡慕有黑狗的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑狗不是白送的吗
+
+*****
+
+####  alucardcz  
+##### 88532#       发表于 2022-6-20 17:45
+
+ 本帖最后由 alucardcz 于 2022-6-20 17:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 真寄了 2个人还组团打我黑狗 还让我行动2回合。。。绿红蓝也把对面全杀了。。。。我哭了
+
+*****
+
+####  alucardcz  
+##### 88533#       发表于 2022-6-20 17:45
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 88534#       发表于 2022-6-20 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342137&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 17:42</a>
+
+黑狗不是白送的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我弱智为了石头选了大公
+
+*****
+
+####  alucardcz  
+##### 88535#       发表于 2022-6-20 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342184&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-20 17:46</a>
+
+我弱智为了石头选了大公</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/20/174853zvx1qvyqpryt4ykq.jpg" referrerpolicy="no-referrer">
+
+<strong>333333.jpg</strong> (554.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-20 17:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息我寄了 对面组团自鲨拦都拦不住
+
+*****
+
+####  qixinno2  
+##### 88536#       发表于 2022-6-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342214&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 17:49</a>
+
+好消息我寄了 对面组团自鲨拦都拦不住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 对面就跟疯狗一样过来送 所以我都放弃箱子直接见一个杀一个了
+
