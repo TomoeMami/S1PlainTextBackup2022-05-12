@@ -463,3 +463,35 @@ B叔攻击力感觉不是很够，只能喂圣杯了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD行动力不够了 不然我要用骂死他神拳打爆BB啊
 
+
+
+*****
+
+####  alucardcz  
+##### 88544#       发表于 2022-6-20 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342720&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 18:34</a>
+
+B叔攻击力感觉不是很够，只能喂圣杯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">可以先点硬币那个ex增伤 提升挺明显
+
+*****
+
+####  alucardcz  
+##### 88545#       发表于 2022-6-20 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342756&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-20 18:37</a>
+
+TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还有梵高 欧羡慕
+
+*****
+
+####  qixinno2  
+##### 88546#       发表于 2022-6-20 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342862&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 18:46</a>
+
+你怎么还有梵高 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟我是怪角色出货率很高的非酋
+
