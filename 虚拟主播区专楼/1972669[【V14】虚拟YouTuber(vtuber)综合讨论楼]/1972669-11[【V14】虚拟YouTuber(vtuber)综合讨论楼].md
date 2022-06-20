@@ -1520,3 +1520,12 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 说起身内不幸我想起来小夜了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 15139#       发表于 2022-6-20 17:21
+
+你虹股票和委员长关系不大吧，无非是击鼓传花到了一个价位，该降了。
+
