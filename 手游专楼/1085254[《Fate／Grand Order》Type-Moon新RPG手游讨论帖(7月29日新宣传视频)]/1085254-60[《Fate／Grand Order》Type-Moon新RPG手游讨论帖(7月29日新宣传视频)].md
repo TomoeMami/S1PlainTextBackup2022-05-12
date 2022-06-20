@@ -439,3 +439,27 @@
 今天箱子损失的有点多  不过也不打算重打一边了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好 差一点对面就幢死了 
 
+
+
+*****
+
+####  khxooo  
+##### 88542#       发表于 2022-6-20 18:34
+
+B叔攻击力感觉不是很够，只能喂圣杯了
+
+*****
+
+####  qixinno2  
+##### 88543#       发表于 2022-6-20 18:37
+
+<img src="https://img.saraba1st.com/forum/202206/20/183636ie2orbbo93o3xoho.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-20 18:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD行动力不够了 不然我要用骂死他神拳打爆BB啊
+
