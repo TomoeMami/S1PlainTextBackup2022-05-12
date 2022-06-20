@@ -11960,3 +11960,12 @@ yysy，和野男人的切片看着真的乐的。好像回到了当初mmr的时�
 
 之前推播里说的挺明白的，其实就是同样的感觉罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  やト  
+##### 11653#       发表于 2022-6-21 07:21
+
+ 毕竟大部分毕业就是换工作而已，仪式感太足了
+
