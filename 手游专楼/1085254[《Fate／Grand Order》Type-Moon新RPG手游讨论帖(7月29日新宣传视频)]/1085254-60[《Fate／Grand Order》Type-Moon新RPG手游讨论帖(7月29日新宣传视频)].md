@@ -214,3 +214,12 @@
 用杰克换了莉莉丝的一条血，最后B叔收人头。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是B叔好使 可惜这次限制太大了 只能进攻一次
 
+
+
+*****
+
+####  承尘  
+##### 88522#       发表于 2022-6-20 10:34
+
+每次福袋都赌水b没有一次中的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
