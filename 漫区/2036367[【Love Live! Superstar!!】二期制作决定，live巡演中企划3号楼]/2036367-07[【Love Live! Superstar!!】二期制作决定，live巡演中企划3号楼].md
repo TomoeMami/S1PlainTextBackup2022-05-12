@@ -13168,3 +13168,20 @@ E87EB3BD-4B7F-43E8-A72A-8B3A4C957BB6.jpeg
 
 CelticWhite
 
+
+
+*****
+
+####  saya1892  
+##### 10131#       发表于 2022-6-20 16:42
+
+[https://shindanmaker.com/1127447](https://shindanmaker.com/1127447)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+りー語
+
+診断結果
+
+りー「お先に、伊達！」
+
