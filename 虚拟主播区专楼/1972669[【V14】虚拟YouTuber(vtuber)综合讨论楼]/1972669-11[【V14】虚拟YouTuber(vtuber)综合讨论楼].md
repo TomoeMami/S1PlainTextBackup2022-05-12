@@ -1460,3 +1460,36 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 感觉不如king，股价权重（）
 月之有说的这么明白吗，家人去了？
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 15133#       发表于 2022-6-20 15:53
+
+不是，真有那么夸张吗头牌请几天假就能让股价暴跌<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 15134#       发表于 2022-6-20 15:56
+
+ 本帖最后由 rzrbtk 于 2022-6-20 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56340662&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-6-20 15:46</a>
+
+感觉不如king，股价权重（）
+
+月之有说的这么明白吗，家人去了？</blockquote>
+当然没有，但是禁止明面repo的理由的“那个人”=兔爹感强烈，难不成是前男友（，
+
+突然取消原有直播预定—tc否定手麻强调个人私生活原因—社区说是情绪不稳，
+
+反正我的猜测要不家人身体问题（不一定无了）要不AOOD大复发，总不能真二胎吧。
+
+*****
+
+####  IDIDIDID  
+##### 15135#       发表于 2022-6-20 15:57
+
+那与其真的身内不幸还不如只是单纯的小男友劈腿，起码人没事。
+
