@@ -11454,3 +11454,12 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  时间在我手中  
+##### 11610#       发表于 2022-6-20 09:54
+
+有的弱智不用把自己套到什么立场上面，大家见到你这司马东西就喷纯粹是因为你萨尔就是个纯种垃圾，这么喜欢和感知树狗叫那套把戏一样的逻辑建议赶紧重回字幕组夺回你当初要的自主大权<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">22年了你这老东西金币暴不出几个，狗叫声强度倒是见长啊。
+
