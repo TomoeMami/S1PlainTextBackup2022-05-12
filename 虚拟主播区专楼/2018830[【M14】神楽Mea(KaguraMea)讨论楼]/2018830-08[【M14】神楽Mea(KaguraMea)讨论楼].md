@@ -11463,3 +11463,33 @@ s1的坛友们说为何要自己找屎吃很没有说服力啊
 
 有的弱智不用把自己套到什么立场上面，大家见到你这司马东西就喷纯粹是因为你萨尔就是个纯种垃圾，这么喜欢和感知树狗叫那套把戏一样的逻辑建议赶紧重回字幕组夺回你当初要的自主大权<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">22年了你这老东西金币暴不出几个，狗叫声强度倒是见长啊。
 
+
+
+*****
+
+####  凛子也想要五个  
+##### 11611#       发表于 2022-6-20 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56334958&amp;ptid=2018830" target="_blank">Thrall12345 发表于 2022-6-20 07:15</a>
+懂了 再看看上面那个长文 不难理解为啥那么急
+
+实际上大概她们两个也就是突然想起来还能在油管上发翻唱而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事总觉得缺了谁
+原来是萨尔觉得连体说不过跑这里来换家了啊
+被我找到了嗷
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，事不大，也就是某人被夸坦突然创了一下而已，对你而言不算事嗷
+自己知道自己做得不地道就不要到处去装可怜了哭诉自己被喷了，没人信的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  凛子也想要五个  
+##### 11612#       发表于 2022-6-20 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56335150&amp;ptid=2018830" target="_blank">htgz111 发表于 2022-6-20 08:04</a>
+从你分类讨论粉丝群体又是“毒唯”又是“连体人”的时候就已经落入双标狗crew的陷阱里了 本身粉丝就不应 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">crew选择性眼瞎有什么稀奇的，不选择眼瞎还能叫crew吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
