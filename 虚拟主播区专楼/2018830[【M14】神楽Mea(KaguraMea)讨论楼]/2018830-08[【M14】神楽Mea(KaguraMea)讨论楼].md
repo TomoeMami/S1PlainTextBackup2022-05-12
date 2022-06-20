@@ -11912,3 +11912,15 @@ yysy，和野男人的切片看着真的乐的。好像回到了当初mmr的时�
 
 管人粉真tm害人啊
 
+
+
+*****
+
+####  时间在我手中  
+##### 11648#       发表于 2022-6-20 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343597&amp;ptid=2018830" target="_blank">Lotis 发表于 2022-6-20 19:56</a>
+
+6人的3d都到位了，NB是该来点新曲或者小live了（前几天的谜语人多半就是是合唱不用想了 ...</blockquote>
+摆手，只能说这种建立初期就说过的饼谈不上啥大的···看看具体如何再说吧
+

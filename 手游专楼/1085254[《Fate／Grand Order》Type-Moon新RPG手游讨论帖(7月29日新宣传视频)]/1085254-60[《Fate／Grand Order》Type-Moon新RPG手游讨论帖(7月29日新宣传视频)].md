@@ -562,3 +562,22 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 硬币，不够，我B叔明明已经5宝10羁绊了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下我也不够 差10  怪了
 
+
+
+*****
+
+####  khxooo  
+##### 88553#       发表于 2022-6-20 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56343493&amp;ptid=1085254" target="_blank">eilot 发表于 2022-6-20 19:47</a>
+
+只是120幣，我的B叔，4寶10絆已經能開有餘，是開了其他技能嗎?</blockquote>
+开1吧，20NP对B叔作用不大，我是当时没有想通，先开了2的。
+
+*****
+
+####  保罗赫伯特  
+##### 88554#       发表于 2022-6-20 20:22
+
+打到后半段，一边拿御主绕场溜仅存的lip，一边拿查理曼和小教授打帝王花，可算是把箱子拿完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
