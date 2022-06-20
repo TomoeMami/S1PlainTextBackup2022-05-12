@@ -1328,3 +1328,28 @@ ngo读柠檬，同接死了一样
 
 直接一步到位直接在油管请假不就完了吗。
 
+
+
+*****
+
+####  毛头小希  
+##### 15121#       发表于 2022-6-20 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56333634&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-19 23:54</a>
+
+而且郡郡见完面了依然很喜欢，帕特兰一定真人也脸好身材火辣吧！
+
+省一楼，女v要吸女粉，除了走铝铜路线，还 ...</blockquote>
+那个官方的虹人私服企划，pt姐那条开胸连衣裙不脸好身材辣可是不敢穿的……
+
+她自己说不是应募而是被挖角进的彩虹
+
+所以记得还有人猜是不是哪个虹staff在柏青哥店挖了个金发辣妹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 15122#       发表于 2022-6-20 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">初期没看出来，后来看感觉到了和星川ァ一样的味道。
+
