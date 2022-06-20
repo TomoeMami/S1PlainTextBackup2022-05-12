@@ -495,3 +495,24 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 你怎么还有梵高 欧羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟我是怪角色出货率很高的非酋
 
+
+
+*****
+
+####  eilot  
+##### 88547#       发表于 2022-6-20 18:57
+
+將妖精高文和B叔的EX攻擊升到一半，傷害好明顯提高
+
+今次主角站在中間位置，開局就被兩隻追殺...寶箱已經忘了回收，戰鬥好緊湊
+
+*****
+
+####  exiaexa  
+##### 88548#       发表于 2022-6-20 18:58
+
+今日感想
+
+红A不愧是注水肌肉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
