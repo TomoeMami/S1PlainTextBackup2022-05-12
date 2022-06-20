@@ -1383,3 +1383,16 @@ ngo读柠檬，同接死了一样
 
 syl，集美管的太宽了，想找个不删档歌回在B站的留档都难……
 
+
+
+*****
+
+####  NBXX  
+##### 15126#       发表于 2022-6-20 14:33
+
+不留档歌回这里会存
+[https://discord.holopirates.moe/](https://discord.holopirates.moe/)
+
+不想加discord这里也会发
+[https://forum.holopirates.moe/](https://forum.holopirates.moe/)
+
