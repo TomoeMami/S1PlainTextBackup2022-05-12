@@ -3527,3 +3527,16 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 1052话开头不是说不会开国吗
 
+
+
+*****
+
+####  火华火华火  
+##### 58829#       发表于 2022-6-20 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56341302&amp;ptid=98922" target="_blank">dewey 发表于 2022-6-20 16:36</a>
+记得以前打莫利亚的时候 莫利亚说自己败给里凯多 意识到活人不靠谱 死人才靠谱 所以大家说他是不是给同伴出 ...</blockquote>
+莫利亚是挑战凯多船员被杀光了，漫画里有提
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

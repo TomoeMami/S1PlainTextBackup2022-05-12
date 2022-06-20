@@ -516,3 +516,14 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 红A不愧是注水肌肉
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88549#       发表于 2022-6-20 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342851&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-20 18:45</a>
+可以先点硬币那个ex增伤 提升挺明显</blockquote>
+硬币，不够，我B叔明明已经5宝10羁绊了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
