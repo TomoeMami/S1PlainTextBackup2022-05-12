@@ -1306,3 +1306,12 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星空不知道，但看下来星际公民给人感觉是个宗教产品。
 
+
+
+*****
+
+####  桧川直巳  
+##### 112#       发表于 2022-6-20 18:14
+
+cod打火星人里面f35跟着舰队单机入轨我觉得是cod最好的播片，堪比战地弹射f18
+
