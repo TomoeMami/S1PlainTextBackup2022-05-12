@@ -1315,3 +1315,15 @@ gta5和2077比,还真就是鬼城.特别是2077新手村那一片的人声鼎沸
 
 cod打火星人里面f35跟着舰队单机入轨我觉得是cod最好的播片，堪比战地弹射f18
 
+
+
+*****
+
+####  ArowRocher  
+##### 113#       发表于 2022-6-20 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342194&amp;ptid=2075886" target="_blank">白左 发表于 2022-6-20 17:47</a>
+
+只有打上护盾mod才敢出去浪.jpg</blockquote>
+再就是生产力太低了，一个人焊飞船真是孤独的想死......N次开个新档玩不下去了。
+
