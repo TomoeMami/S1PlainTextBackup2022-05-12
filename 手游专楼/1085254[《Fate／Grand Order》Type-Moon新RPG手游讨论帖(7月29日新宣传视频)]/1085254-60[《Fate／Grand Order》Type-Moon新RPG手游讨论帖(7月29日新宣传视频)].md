@@ -241,3 +241,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">肯定是辣个女人了
 
+
+
+*****
+
+####  eilot  
+##### 88525#       发表于 2022-6-20 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56334440&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-20 01:55</a>
+
+用杰克换了莉莉丝的一条血，最后B叔收人头。</blockquote>
+今次B叔的位置起始太遠，拿了回避後再行到一半，已經打死了莉莉絲
+
+今次都是妖精高文和迦摩各打了一條血，迦摩死了一次...強敵由支援的泳裝賢狐個人解決
+
+下面BB守的寶箱就算了，B叔行得太前，直接被反殺...
+
