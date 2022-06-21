@@ -2093,3 +2093,16 @@ syl vta一期也已经有人退出了
 
 消失的这么快，很难不怀疑已经被别人挖了
 
+
+
+*****
+
+####  fastary  
+##### 15198#       发表于 2022-6-22 00:09
+
+依稀记得首播都看了的，没哪个感觉比较有潜力<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+因为出道会删旧档最近看标题补了点剩下四个男的录播，都是还挺健谈能听但没有记忆点的水平……两个自己研究作曲的还算有点意思
+
+这vta就嗯杂谈也不怕正式出道没话聊了，游戏力也没得看，唱两句也没有，真的有意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
