@@ -13649,3 +13649,25 @@ nagi：（花絮）希望不要拍到奇怪的画面
 这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
 看第二期pv已经是。可能是音响监督菜宝被收买了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10158#       发表于 2022-6-21 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56359025&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-6-21 23:42</a>
+
+看第二期pv已经是。可能是音响监督菜宝被收买了</blockquote>
+长崎行男觉得很淦，菜宝那是音响协力
+
+*****
+
+####  老1.5  
+##### 10159#       发表于 2022-6-21 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358925&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-21 23:30</a>
+
+这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
+长大了，变声期（确信<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
