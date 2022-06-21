@@ -1899,3 +1899,73 @@ mybora<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 
 看起来都好土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15178#       发表于 2022-6-21 17:20
+
+这个新人一脸千草……
+太憨了。
+
+*****
+
+####  IDIDIDID  
+##### 15179#       发表于 2022-6-21 17:22
+
+vta新人感觉不如十八线小黄油……立绘……
+
+*****
+
+####  alcoholic1000  
+##### 15180#       发表于 2022-6-21 17:25
+
+立绘简陋是对的，VTA时期立绘拉，正式出道后立绘精致带来的提升感才会更强烈
+
+
+
+*****
+
+####  winda  
+##### 15181#       发表于 2022-6-21 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新时代vtuber蛊毒就由ankr来运营了
+syl 这次vspo新人还会像ema和snmy一样过会再出一个么
+
+*****
+
+####  winda  
+##### 15182#       发表于 2022-6-21 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355133&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-6-21 17:25</a>
+立绘简陋是对的，VTA时期立绘拉，正式出道后立绘精致带来的提升感才会更强烈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下先斗宁的负升级，嗯，大概吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|不同意，宁宁的立绘最好看|
+
+查看全部评分
+
+*****
+
+####  poipanchao  
+##### 15183#       发表于 2022-6-21 17:26
+
+应该会
+我感觉甚至有可能出三个
+
+*****
+
+####  IDIDIDID  
+##### 15184#       发表于 2022-6-21 17:28
+
+什么虚拟akb，出道证件照往丑了拍甚至往丑了修，后面慢慢ps+整容跟上制造养成感是吧
+
