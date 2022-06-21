@@ -5085,3 +5085,29 @@ STEAM出商店页面了，发行日期:2023 EARLY
 其实我更想知道什么时候能玩到 ...</blockquote>
 仁王1.2的试玩节奏是怎样
 
+
+
+*****
+
+####  センコウ  
+##### 508#       发表于 2022-6-21 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358910&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-21 23:28</a>
+
+仁王1.2的试玩节奏是怎样</blockquote>
+仁王1的试玩非常非常早,几乎在正式发售前一年
+
+系统基本和成品天差地别了,初期的绿条管理简直是地狱,不小心空了基本就等于死
+
+*****
+
+####  黑修士  
+##### 509#       发表于 2022-6-21 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358910&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-21 23:28</a>
+
+仁王1.2的试玩节奏是怎样</blockquote>
+印象里都有三次以上的限时试玩，每次提供两三个关卡，非单挑的关卡不一定完整，但多少也有半张地图。
+
+节奏大致是宣发期开始不久后，发售前几个月，即将发售前这种阶段。
+

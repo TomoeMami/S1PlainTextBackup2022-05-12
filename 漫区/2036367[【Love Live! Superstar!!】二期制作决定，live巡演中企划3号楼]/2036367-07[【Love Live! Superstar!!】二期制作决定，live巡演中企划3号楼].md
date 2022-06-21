@@ -13638,3 +13638,14 @@ nagi：（花絮）希望不要拍到奇怪的画面
 
 这期广播听完，感觉可可已经变声成鲤鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 10157#       发表于 2022-6-21 23:42
+
+<blockquote>lj205 发表于 2022-6-21 23:30
+这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
+看第二期pv已经是。可能是音响监督菜宝被收买了
+
