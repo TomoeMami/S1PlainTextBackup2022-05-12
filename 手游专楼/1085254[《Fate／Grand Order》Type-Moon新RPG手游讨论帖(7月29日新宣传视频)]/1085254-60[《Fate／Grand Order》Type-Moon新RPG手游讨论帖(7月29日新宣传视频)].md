@@ -590,3 +590,14 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 这场机龙冲下去和咕哒换位再后退之后那俩就宕机了，轻松拿齐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 88556#       发表于 2022-6-21 09:11
+
+我是打到剩大王的时候，两边夹击大王bb，ai为了保bb开始发呆，于是随便绕地图捡完箱子收工
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
