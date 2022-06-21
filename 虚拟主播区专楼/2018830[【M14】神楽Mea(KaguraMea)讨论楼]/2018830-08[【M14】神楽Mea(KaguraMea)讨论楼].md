@@ -11978,3 +11978,16 @@ yysy，和野男人的切片看着真的乐的。好像回到了当初mmr的时�
 
 现在也挺好的，咩找个好男人嫁了也不错
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 11655#       发表于 2022-6-21 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56346711&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2022-6-21 00:44</a>
+突然想起，mea曾经评论过，管人粉丝毕业哭丧很虚假。不知道看到一堆人所谓的复活是不是也是同种感觉。[f:03 ...</blockquote>
+一直都如此，此事平平无奇。
+
+你看上面某T开头数字结尾的都（自称）似了多少回了。
+
