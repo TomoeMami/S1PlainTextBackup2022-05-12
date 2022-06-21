@@ -2075,3 +2075,12 @@ vta二期招的都是配信经验者也不上课吧，多点人就算跑几个�
 
 syl vta一期也已经有人退出了
 
+
+
+*****
+
+####  winda  
+##### 15196#       发表于 2022-6-21 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一期的涼宮颯，就这么消失了，档都没了，一点痕迹不留
+
