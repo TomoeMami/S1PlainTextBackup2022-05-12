@@ -750,3 +750,49 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 谢谢，另外问一下最中心那个银箱子里是什么，就那个箱子没拿到，如果不是什么好东西就不管了，这打的太漫 ...</blockquote>
 齿轮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88571#       发表于 2022-6-21 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355989&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-21 18:38</a>
+
+齿轮</blockquote>
+那算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 88572#       发表于 2022-6-21 18:45
+
+杨贵妃和金钻头杀疯了，杨贵妃顶着逆克制将杀生院给干掉，将后面来的人一个个全杀了。金钻头不用说了，对面混沌恶+职介克制，就是张纸，最浪费时间的是大象磨死伽摩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 88573#       发表于 2022-6-21 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355689&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-21 18:10</a>
+
+李师傅好样子  这次居然一动不动 （是bug了吗？）</blockquote>
+不是BUG吧，很明显就是没有去到活动范围，一旦接近那个铜箱子就追过来了。
+
+*****
+
+####  alucardcz  
+##### 88574#       发表于 2022-6-21 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56356083&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-21 18:47</a>
+
+不是BUG吧，很明显就是没有去到活动范围，一旦接近那个铜箱子就追过来了。 ...</blockquote>
+银箱子？
+
+*****
+
+####  yyzcacxg  
+##### 88575#       发表于 2022-6-21 18:48
+
+这关助战的吉娜可强阿，右边站在水伽摩旁边挂机，在对方回合宝具连发带着水伽摩一起A完了。左边雪B始皇帝无双直接杀穿拿完箱子
+
