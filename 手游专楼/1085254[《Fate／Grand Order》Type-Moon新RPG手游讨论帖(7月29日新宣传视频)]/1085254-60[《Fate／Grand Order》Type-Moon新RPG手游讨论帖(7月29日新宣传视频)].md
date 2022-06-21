@@ -828,3 +828,14 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 妖高这个模式好用，打着打着血量2w了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单放左路，右路就靠b叔砍翻了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88579#       发表于 2022-6-21 20:20
+
+难度其实还行，毕竟对面不会一口气全部冲过来送，可以慢慢把宝箱拿齐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
