@@ -819,3 +819,12 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 体感最后一关最难搞得是月癌BB，行动点贼多，技能还能ban掉我方角色的特定色卡，宝具又攒的快，左路的人头 ...</blockquote>
 泳装马达：弱体无效警告<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 88578#       发表于 2022-6-21 19:40
+
+妖高这个模式好用，打着打着血量2w了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单放左路，右路就靠b叔砍翻了
+
