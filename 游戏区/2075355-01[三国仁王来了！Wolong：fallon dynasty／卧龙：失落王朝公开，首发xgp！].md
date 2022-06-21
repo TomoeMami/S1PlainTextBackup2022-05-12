@@ -5111,3 +5111,17 @@ STEAM出商店页面了，发行日期:2023 EARLY
 
 节奏大致是宣发期开始不久后，发售前几个月，即将发售前这种阶段。
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 510#       发表于 2022-6-22 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358952&amp;ptid=2075355" target="_blank">センコウ 发表于 2022-6-21 23:33</a>
+
+仁王1的试玩非常非常早,几乎在正式发售前一年
+
+系统基本和成品天差地别了,初期的绿条管理简直是地狱,不小 ...</blockquote>
+最早的试玩有手感最好的收刀
+

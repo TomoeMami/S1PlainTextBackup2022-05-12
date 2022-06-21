@@ -13671,3 +13671,15 @@ nagi：（花絮）希望不要拍到奇怪的画面
 这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
 长大了，变声期（确信<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10160#       发表于 2022-6-21 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358925&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-21 23:30</a>
+
+这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
+我感觉其实还好，可可的萌音还是有一些的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
