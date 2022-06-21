@@ -13683,3 +13683,165 @@ nagi：（花絮）希望不要拍到奇怪的画面
 这期广播听完，感觉可可已经变声成鲤鱼了</blockquote>
 我感觉其实还好，可可的萌音还是有一些的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 10161#       发表于 2022-6-22 02:37
+
+ 本帖最后由 名津流 于 2022-6-22 02:40 编辑 
+
+ytb上那个用赛马娘式的角色属性列表来展示星团的ペンギン家臣団昨晚终于更新了5人里最后一位的恋
+
+原视频作者地址：[https://www.youtube.com/channel/UCtSWRovfAd9KBVcGUgx4BvQ](https://www.youtube.com/channel/UCtSWRovfAd9KBVcGUgx4BvQ)
+
+B站的搬运熟肉合集：[https://www.bilibili.com/video/BV1La411L7rW](https://www.bilibili.com/video/BV1La411L7rW) （最新的nagi这期up主还没搬运）
+
+这位UP只听译了原作者在视频里的简评（推荐将图和简评搭配起来看），而这玩意最有意思的应该还是角色五维图和技能之类的画面上没翻译的信息，所以总结一下：
+
+<img src="https://img.saraba1st.com/forum/202206/22/023119v0zrwkrrh6rwb303.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (236.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 02:31 上传
+
+<strong>流丽的青叶 小百合</strong>
+
+在激烈的公开招募中取胜的仙台出身的少女。以与生俱来的歌声和万众瞩目的超凡魅力为武器，继承前辈们编织的物语，在满是光辉的星之舞台上驰骋，是【liella的领导者】。
+
+唱歌——A
+
+精神——B
+
+智力——B
+
+幽默——B+
+
+舞蹈——B
+
+金色（传说）技能：无限成长曲线（被动）
+
+普通技能：魅惑的歌声（增益）、受气角色（被动）、领导精神（被动）、魅力性（被动）
+
+负面技能：哭包
+
+<img src="https://img.saraba1st.com/forum/202206/22/023120lfqbtb2skqhz3b8s.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (236.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 02:31 上传
+
+<strong>天蓝色的更衣人偶 liyuu</strong>
+
+上海来的时尚cosplayer。以不屈的精神跨越语言的障壁，不擅长的舞蹈也轻松搞定了的努力家。突然蹦出来的亮眼词常常引得全场爆笑，是【liella的起爆器】。
+
+唱歌——B+
+
+精神——B+
+
+智力——A
+
+幽默——A+
+
+舞蹈——B
+
+金色（传说）技能：火球般的直球（增益）、通向世界之桥（被动）
+
+普通技能：时髦头目（增益）、我行我素（恢复）、开门者（被动）
+
+负面技能：哭包
+
+<img src="https://img.saraba1st.com/forum/202206/22/023120m3a66waq150z1jej.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (238.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 02:31 上传
+
+<strong>倾国的麒麟儿 pay</strong>
+
+艺龄最年长、而年龄最年幼的一员。其异国风情的美貌赋予liella一抹独特的色彩。以稳定感超群的唱功和年轻鲜活的舞蹈，为团队带来活力与气势，是【liella的加速器】。
+
+唱歌——A+
+
+精神——C+
+
+智力——B+
+
+幽默——B
+
+舞蹈——A
+
+金色（传说）技能：未来的歌姬（增益）
+
+普通技能：元气十足（增益）、安定感（被动）、开门者（被动）、内行老手（被动）
+
+负面技能：谢罪癖
+
+<img src="https://img.saraba1st.com/forum/202206/22/023120p72ho37zootw3lb3.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (236.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 02:31 上传
+
+<strong>飞燕的妖精 nako</strong>
+
+关西出身的声优。作为liella成员，以舞蹈吸引观众眼球，并对此引以为豪的舞姬。身怀温暖的慈爱之心、关西人的秘密武器，凭借犀利的吐槽为团队增添欢快的气息，是【liella的润滑油】。
+
+唱歌——B
+
+精神——B+
+
+智力——B+
+
+幽默——A
+
+舞蹈——S
+
+金色（传说）技能：Ace of Dance（增益）
+
+普通技能：MC巧者（增益）、慈爱的精神（恢复）、天使的笑颜（被动）、正统派声优（被动）、吐槽的诀窍（被动）
+
+<img src="https://img.saraba1st.com/forum/202206/22/023121ghapyur6ijjjbsia.jpg" referrerpolicy="no-referrer">
+
+<strong>05.jpg</strong> (216.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 02:31 上传
+
+<strong>玲珑的舞踏者 nagi</strong>
+
+在公开招募中胜出的外貌端庄的才女，以如丝般顺滑的舞蹈吸引着粉丝的芭蕾舞演员，无论如何都不会动摇的钢铁精神和清晰的头脑来掌控着团队，是【liella的顶梁柱】。
+
+唱歌——B+
+
+精神——A+
+
+智力——A+
+
+幽默——A
+
+舞蹈——A
+
+金色（传说）技能：芭蕾舞团首席（增益）
+
+普通技能：MC巧者（增益）、有才之人（增益）、钢铁意志（被动）、无穷尽的耐力（恢复）、装傻的诀窍（被动）
+
+*****
+
+####  iuhehc  
+##### 10162#       发表于 2022-6-22 03:24
+
+虽然不是很想认真看待这种图，但现在小百合ボーカル这项还真排不了A<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
