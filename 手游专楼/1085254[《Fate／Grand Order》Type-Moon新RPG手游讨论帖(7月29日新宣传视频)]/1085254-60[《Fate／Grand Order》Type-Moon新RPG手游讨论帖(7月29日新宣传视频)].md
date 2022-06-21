@@ -913,3 +913,17 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来还想用接着直接撞死BB 结果对面老李来回横跳太麻烦了 直接打死过了
 
+
+
+*****
+
+####  eilot  
+##### 88587#       发表于 2022-6-21 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56357402&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-21 20:52</a>
+
+打完了，最强的助战是谁不好说
+
+但是最菜的绝对是红A</blockquote>
+紅A還是能不扣一條血條情況下，一個人殺了伊麗沙伯，原本紅A是準備回收下面寶箱，她自己衝上來，將UBW轉成藍色殺了一條血槽，下回合再UBW殺剩下一條，之後就是再回收寶箱，沒時間上去幫手
+
