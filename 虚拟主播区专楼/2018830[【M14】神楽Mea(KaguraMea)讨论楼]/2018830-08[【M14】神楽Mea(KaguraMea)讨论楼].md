@@ -12045,3 +12045,18 @@ nb那个我都没怎么看了，是真无聊感觉
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野头四是吧
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11662#       发表于 2022-6-21 15:28
+
+<img src="https://img.saraba1st.com/forum/202206/21/152810gfykx4ydknhy5fjk.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220621152735989.jpg</strong> (14.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-21 15:28 上传
+
