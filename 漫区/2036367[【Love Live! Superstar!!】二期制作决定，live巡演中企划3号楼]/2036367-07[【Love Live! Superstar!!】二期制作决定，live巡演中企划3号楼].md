@@ -13500,3 +13500,21 @@ CelticWhite可堇和可堇
 
 在海鲜市场300多淘了一本一巡场刊，情感上觉得还是值了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 10150#       发表于 2022-6-21 19:23
+
+wb：百合粥不加糖 <blockquote>今天的日记是合鲤糖和鲤鱼段子结合。大阪FMT的たこパティエ过于好吃，二期生连上家族和事务所的份一顿爆买。鲤鱼说留意一下发现在大阪活动的时候，每天都会吃章鱼丸子，一周前的2nd大阪场也在吃，每人一盒12个，nagi还补充是正式表演前吃[允悲]鲤鱼说这次买了很多551蓬莱的肉包，特别好吃，之前2nd大阪场看到nagi买了才知道。nagi说每次活动都会留有买土产的时间，大家都会买买买，只有合鲤两人不买，nagi每次在大阪都会买551的肉包，2nd的时候鲤鱼看到了，觉得特别好吃，突然合鲤就消失了，然后两人买了一堆肉包回来[允悲](什么小情侣私奔买肉包[doge]nagi还说551的粽子也不错，鲤鱼直接一个我谢谢你nagi，太好吃了。nagi说粉丝在sns上留言551不止肉包好吃，粽子也好吃，nagi就想着既然大家推荐了，那就买吧。鲤鱼听了直接开始锐评粉丝:什么？为什么没有人给我留言说这些，这样真的好吗🙃</blockquote>
+
+3033EFA8-D837-4645-A667-63F65AFDE842.jpeg
+(195.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-21 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202206/21/192331rfozmi8muufp8xof.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
