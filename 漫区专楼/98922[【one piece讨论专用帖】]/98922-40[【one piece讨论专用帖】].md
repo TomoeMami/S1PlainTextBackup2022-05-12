@@ -3879,3 +3879,15 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 大和这个画女硬说男从登场我就在等一个解释，结果一路下来好像都 ...</blockquote>
 有啊 厨子飚鼻血了 绿藻和草帽早就是众所周知的不举男了所以无所谓
 
+
+
+*****
+
+####  摸鱼先锋  
+##### 58859#       发表于 2022-6-21 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355312&amp;ptid=98922" target="_blank">百世诸侯 发表于 2022-6-21 17:38</a>
+
+说到薇薇，前一阵子重看了一遍扉页故事，这张图太有感觉了，标题既可以指那一话去救山治，也是扉页 ...</blockquote>
+太想看薇薇世界会议后的剧情了
+
