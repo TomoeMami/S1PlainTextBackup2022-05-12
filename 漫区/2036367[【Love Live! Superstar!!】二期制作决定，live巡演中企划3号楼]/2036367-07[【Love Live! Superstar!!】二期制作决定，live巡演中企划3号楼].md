@@ -13529,3 +13529,24 @@ nagi：（花絮）希望不要拍到奇怪的画面
 
 鱼：糟了
 
+
+
+*****
+
+####  老1.5  
+##### 10152#       发表于 2022-6-21 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56356657&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-6-21 19:46</a>
+
+nagi：（花絮）希望不要拍到奇怪的画面
+
+鱼：糟了</blockquote>
+鲤鱼的入侵造成本来清新淡雅的百合成为了浓油赤酱的百合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 10153#       发表于 2022-6-21 19:58
+
+生抽变成老抽
+
