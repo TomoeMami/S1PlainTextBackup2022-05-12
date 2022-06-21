@@ -3773,3 +3773,37 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, And ...</blockquote>
 心理男，身体女，南+有浴室无烟雾遮挡版<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武男  
+##### 58850#       发表于 2022-6-21 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56351422&amp;ptid=98922" target="_blank">plok201 发表于 2022-6-21 12:28</a>
+
+御田如果战斗力是薇薇那个等级，然后从来没出过海那还好，单看御田死那场戏是没问题的
+
+但是御田自己有能力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面我就说了御田是个男公主的剧情，所以才别扭，要是薇薇战斗力是能够跟沙鳄互角，那么观感就是另外一回事了。
+
+虽然以锦皇的标准看，御田多少带点脆皮的属性。
+
+*****
+
+####  posthoc  
+##### 58851#       发表于 2022-6-21 17:17
+
+最近攒了四年份的海贼一口气补完了。御田跳舞这事本身我觉得毫无问题，这就是对一个男人的“终极侮辱”，让一个受人敬仰的英雄彻底失去尊严。观感极差就对了，读者看着膈应漫画中的国民看着更膈应。跳舞那段御田去黑老大他家蹭饭的剧情我很喜欢，平淡的话语背后是坚不可摧的信任，虽然不能了解他的苦衷，但知道他是什么样的人，所以不需要解释也会相信他支持他。
+
+但是跳舞的原因实在是太蠢了…………神tm凯多保证5年后造好船就滚蛋……为什么会信？而且说到底本来就是开船来的海贼为什么要再造船才能走？
+
+而且因为给御田（以及武士）的实力吹的很强，所以救人这个理由也站不住脚，你能早25年把凯多干翻的话救下的人不是更多，这么多年民不聊生的饿都饿死多少人了。
+
+*****
+
+####  银翼的维罗西  
+##### 58852#       发表于 2022-6-21 17:19
+
+薇薇小天使犯了什么错要和御田这个大钢笔相对比，就薇薇被枪打伤后教导五黄要懂得适时低头御田一辈子都难以望其项背<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

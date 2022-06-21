@@ -1854,3 +1854,48 @@ vta不是被莎皇证明屁用没有吗，哪来这么多人报名啊
 
 vspo新人来了，有点突然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 15174#       发表于 2022-6-21 17:10
+
+哈？这彩虹社发的什么病？这么多人......
+
+*****
+
+####  alcoholic1000  
+##### 15175#       发表于 2022-6-21 17:14
+
+<img src="https://img.saraba1st.com/forum/202206/21/170258jvvbbsrwffowwfs0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【🏫アカデミー2期生によるYouTube配信開始！】.jpeg</strong> (622.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-21 17:02 上传
+
+补个图
+
+不明白VTA为什么反而扩张了，针对一般管人观众转化为有黏性的粉丝这个过程来说，其中一个比较重要的点难道不就是“新鲜感”和“神秘感”吗？这种情绪引起好奇，好奇又带来探究欲，继而转变为关注。
+
+VTA可能是想要走“养成感”这个方向？但据一期的成果而言，管人学院能够为liver带来的转变与提升似乎是非常有限的（尤其与娱乐行业成熟的练习生培训相比），指望1d升级live2d，仅仅只从视觉上进行重塑带来的冲击感是非常有限的，而到3D披露这个周期又太长，一年足够一个普通管人公司死24次了。
+
+感觉不会带来惊喜感的企划，就不会让观众产生期待
+
+*****
+
+####  poipanchao  
+##### 15176#       发表于 2022-6-21 17:15
+
+vspo这个新人能不能买定离手
+mybora<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 15177#       发表于 2022-6-21 17:15
+
+看起来都好土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
