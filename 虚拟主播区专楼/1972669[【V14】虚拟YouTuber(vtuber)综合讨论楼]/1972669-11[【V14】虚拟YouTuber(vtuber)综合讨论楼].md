@@ -1788,3 +1788,33 @@ vta不是被莎皇证明屁用没有吗，哪来这么多人报名啊
 
 出男的才是真道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么可能有那种 技巧用过一次就不灵了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15167#       发表于 2022-6-21 16:31
+
+ 本帖最后由 渡鸦骑士 于 2022-6-21 16:33 编辑 
+
+总觉得彩虹这家稀释品牌价值……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 15168#       发表于 2022-6-21 16:31
+
+ 本帖最后由 fastary 于 2022-6-21 16:36 编辑 
+
+讲道理enkr不是正转型艺人事务所吗，vta这个人数了不如快进到学杰尼斯junior搞点同接投票斗虫然后根据人气出道好了(
+
+不过junior出道是几年一次也有人气高等十年的，你vta嘛……
+
+*****
+
+####  poipanchao  
+##### 15169#       发表于 2022-6-21 16:36
+
+观众基数不够吧
+话说j家没出道的那些可以上前辈的节目吗？不懂男偶像
+

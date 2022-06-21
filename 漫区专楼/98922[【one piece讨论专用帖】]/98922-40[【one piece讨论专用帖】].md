@@ -3759,3 +3759,17 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 大和只是cos御田，和性别认知关系不大
 
+
+
+*****
+
+####  Gerald1  
+##### 58849#       发表于 2022-6-21 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56351234&amp;ptid=98922" target="_blank">灌水机 发表于 2022-6-21 12:12</a>
+
+所以大和到底是儿子还是女儿
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, And ...</blockquote>
+心理男，身体女，南+有浴室无烟雾遮挡版<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
