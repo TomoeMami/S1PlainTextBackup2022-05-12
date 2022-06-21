@@ -2033,3 +2033,12 @@ vta男有一种现充闲云野鹤感我很喜欢，可惜啊
 
 兜帽有点死喷的味道，说不定是谁的老熟人
 
+
+
+*****
+
+####  winda  
+##### 15192#       发表于 2022-6-21 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VSPO两前X段喷喷主播noa和snmy都是apex大师，喷喷和apex也不矛盾嘛
+
