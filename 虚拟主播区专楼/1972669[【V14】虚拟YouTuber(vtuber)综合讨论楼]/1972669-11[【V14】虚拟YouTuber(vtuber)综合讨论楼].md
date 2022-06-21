@@ -1717,3 +1717,12 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 Selen: Enna只懂普通话，我在她面前说粤语她的表现就像是WTF R U SAYING？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 15158#       发表于 2022-6-21 15:01
+
+selen这个三语混合直播也太难听懂了 但是真的很乐
+
