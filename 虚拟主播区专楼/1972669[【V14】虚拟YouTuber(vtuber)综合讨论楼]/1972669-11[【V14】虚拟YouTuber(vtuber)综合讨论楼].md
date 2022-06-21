@@ -1726,3 +1726,33 @@ Selen: Enna只懂普通话，我在她面前说粤语她的表现就像是WTF R 
 
 selen这个三语混合直播也太难听懂了 但是真的很乐
 
+
+
+*****
+
+####  死体残留  
+##### 15159#       发表于 2022-6-21 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">vta二期还是真多人啊
+
+*****
+
+####  midearth  
+##### 15160#       发表于 2022-6-21 16:13
+
+中文还是不够地道，
+
+*****
+
+####  空集  
+##### 15161#       发表于 2022-6-21 16:15
+
+这一下又下17个 一期啥时候转正完都不知道 真就养蛊么 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 15162#       发表于 2022-6-21 16:16
+
+vta不是被莎皇证明屁用没有吗，哪来这么多人报名啊
+
