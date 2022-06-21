@@ -5015,3 +5015,22 @@ PV配音是郭政建吧，他配过很多立场偏反派、带点邪气的老头
 —— 来自 HUAWEI TAH-AN00m, Android 10上的 S1Next-鹅版 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/89e1c6e328ed847d300e7f7f8e7669fc/CMP_20220617172305312.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 501#       发表于 2022-6-21 20:02
+
+STEAM出商店页面了，发行日期:2023 EARLY
+
+*****
+
+####  彩虹肥宅  
+##### 502#       发表于 2022-6-21 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56297934&amp;ptid=2075355" target="_blank">Cerc 发表于 2022-6-16 22:59</a>
+
+吕布能不能死一死，我取而代之和貂蝉你侬我侬啊</blockquote>
+怕不是貂蝉也死了，然后来自彼岸的相会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
