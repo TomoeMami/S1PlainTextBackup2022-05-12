@@ -3695,3 +3695,14 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 能有几人有这胆量和气魄
 
+
+
+*****
+
+####  灌水机  
+##### 58843#       发表于 2022-6-21 12:12
+
+所以大和到底是儿子还是女儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
