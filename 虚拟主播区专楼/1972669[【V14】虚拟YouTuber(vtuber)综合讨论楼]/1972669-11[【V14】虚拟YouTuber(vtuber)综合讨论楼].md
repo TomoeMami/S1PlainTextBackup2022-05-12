@@ -1838,3 +1838,19 @@ vta不是被莎皇证明屁用没有吗，哪来这么多人报名啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不过17人还是太多了吧 应该有一半左右会退出
 
+
+
+*****
+
+####  fastary  
+##### 15172#       发表于 2022-6-21 17:02
+
+看了眼一期剩下几个人最近直播的播放量，唯一妹子6k+四个男人2k上下，感觉出新男人也是下一个瓦(初期)，不过瓦现在好像也不能算糊……
+
+*****
+
+####  FCCHua  
+##### 15173#       发表于 2022-6-21 17:04
+
+vspo新人来了，有点突然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
