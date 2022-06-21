@@ -854,3 +854,46 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般啊<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 88581#       发表于 2022-6-21 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56357297&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-06-21 20:42:38</a></blockquote>茉莉是善特攻，恶赋予
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  不垃圾屌丝  
+##### 88582#       发表于 2022-6-21 20:52
+
+明天应该是2.3回顾吧
+五倍血量政哥哥，五倍血量虞奶奶夫妻，十倍血量洛阳铜人阵？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 88583#       发表于 2022-6-21 20:52
+
+ 本帖最后由 exiaexa 于 2022-6-21 20:54 编辑 
+
+打完了，最强的助战是谁不好说
+
+但是最菜的绝对是红A
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便真就跟大象毫无关联是吧（指强化
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 88584#       发表于 2022-6-21 20:59
+
+会有嬴政强化本吗，如果有的话，希望给技能加个出星<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
