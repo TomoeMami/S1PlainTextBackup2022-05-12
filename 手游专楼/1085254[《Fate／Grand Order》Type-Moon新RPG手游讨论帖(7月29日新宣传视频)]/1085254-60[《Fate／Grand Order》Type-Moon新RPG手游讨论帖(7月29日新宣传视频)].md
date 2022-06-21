@@ -698,3 +698,15 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 一个伝承結晶</blockquote>
 艹 这么恶心？ 我直接杀穿了 md要重打了
 
+
+
+*****
+
+####  森兰丸  
+##### 88567#       发表于 2022-6-21 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355550&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-21 17:57</a>
+
+你是不是站在那效果格子上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓变就变吧...这次我组队打了...BB每次只会变吉娜可....靠兔呆爆杀就行了
+
