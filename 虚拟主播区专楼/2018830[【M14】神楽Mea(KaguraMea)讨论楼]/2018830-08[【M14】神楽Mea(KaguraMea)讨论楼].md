@@ -12016,3 +12016,14 @@ nb那个我都没怎么看了，是真无聊感觉
 
 野男人太多了，而且各有神通，我不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cushaw  
+##### 11659#       发表于 2022-6-21 12:49
+
+总得有一个野男人，那为什么不能是我呢？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
