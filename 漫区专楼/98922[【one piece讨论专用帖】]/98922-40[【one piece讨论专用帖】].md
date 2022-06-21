@@ -3833,3 +3833,15 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 大和去男澡堂，还有转场打凯多时候生肉里路宝喊的是大和男，相当于把自己当成御田一样连性别也认知为男还不算lgbt？
 
+
+
+*****
+
+####  灌水机  
+##### 58855#       发表于 2022-6-21 19:12
+
+所以认知男生理女就能去男澡堂了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大和这个画女硬说男从登场我就在等一个解释，结果一路下来好像都觉得正常，都没人吐槽的
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

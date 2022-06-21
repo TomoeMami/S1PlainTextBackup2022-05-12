@@ -807,3 +807,15 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 体感最后一关最难搞得是月癌BB，行动点贼多，技能还能ban掉我方角色的特定色卡，宝具又攒的快，左路的人头都给她收割完了，这就是作为敌方时的强度啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88577#       发表于 2022-6-21 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56356122&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-21 18:50</a>
+
+体感最后一关最难搞得是月癌BB，行动点贼多，技能还能ban掉我方角色的特定色卡，宝具又攒的快，左路的人头 ...</blockquote>
+泳装马达：弱体无效警告<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
