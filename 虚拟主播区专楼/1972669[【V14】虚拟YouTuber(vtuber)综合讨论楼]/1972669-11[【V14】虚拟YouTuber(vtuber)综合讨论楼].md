@@ -2106,3 +2106,22 @@ syl vta一期也已经有人退出了
 
 这vta就嗯杂谈也不怕正式出道没话聊了，游戏力也没得看，唱两句也没有，真的有意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15199#       发表于 2022-6-22 00:53
+
+听久了宁宁声音包括性格都幻听成莉泽。
+
+*****
+
+####  死体残留  
+##### 15200#       发表于 2022-6-22 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56359342&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-22 00:09</a>
+依稀记得首播都看了的，没哪个感觉比较有潜力半年看不到出道希望感觉也学不到啥东西就跑了也很正常 ...</blockquote>
+roko还行吧，平均左右，还能整活出道应该能去到千草水平
+vta课程单调同感，重点是话题这个是会消耗的，就怕之后没东西杂谈，就好像现在委员长一样
+

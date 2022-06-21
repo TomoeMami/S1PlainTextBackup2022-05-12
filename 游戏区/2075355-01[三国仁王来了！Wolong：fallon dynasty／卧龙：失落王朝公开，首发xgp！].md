@@ -5140,3 +5140,12 @@ STEAM出商店页面了，发行日期:2023 EARLY
 
 —— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  popchong  
+##### 512#       发表于 2022-6-22 00:57
+
+所以500万是不是已经变成社内meme了，没有500w，每个新作都有可能是500w
+
