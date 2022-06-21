@@ -3730,3 +3730,23 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 亚尔丽塔当年就是“伤害无效化 ...</blockquote>
 滑滑果实这玩意觉醒了之后，如果可以改变一定范围内所有物体的摩擦系数，那又是一个物理法则级别的无敌果实。全部摩擦力设为0，那大家也不用打架了，动都动不了。
 
+
+
+*****
+
+####  绝赞販売中  
+##### 58846#       发表于 2022-6-21 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56351234&amp;ptid=98922" target="_blank">灌水机 发表于 2022-6-21 12:12</a>
+所以大和到底是儿子还是女儿
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, And ...</blockquote>
+凯多女儿，但她性别认知是男.LGBT角色了
+
+*****
+
+####  renkan119  
+##### 58847#       发表于 2022-6-21 13:47
+
+大和哪来的性别认知男啊 要说lgbt小菊更适合点
+
