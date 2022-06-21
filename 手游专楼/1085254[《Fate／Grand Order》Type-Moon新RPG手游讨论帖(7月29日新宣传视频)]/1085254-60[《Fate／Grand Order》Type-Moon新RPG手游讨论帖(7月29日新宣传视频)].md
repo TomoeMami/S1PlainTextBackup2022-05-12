@@ -897,3 +897,19 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 会有嬴政强化本吗，如果有的话，希望给技能加个出星<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88585#       发表于 2022-6-21 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">始皇给个大量出星或者持续出星 无敌变成对肃正防御一回合我感觉就很OK
+
+*****
+
+####  qixinno2  
+##### 88586#       发表于 2022-6-21 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来还想用接着直接撞死BB 结果对面老李来回横跳太麻烦了 直接打死过了
+
