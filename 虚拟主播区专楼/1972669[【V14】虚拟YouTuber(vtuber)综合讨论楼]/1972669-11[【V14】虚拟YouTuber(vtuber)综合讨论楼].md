@@ -1708,3 +1708,12 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Ketestrait  
+##### 15157#       发表于 2022-6-21 14:54
+
+Selen: Enna只懂普通话，我在她面前说粤语她的表现就像是WTF R U SAYING？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
