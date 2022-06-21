@@ -727,3 +727,15 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">李师傅好样子  这次居然一动不动 （是bug了吗？）
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88569#       发表于 2022-6-21 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355570&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-6-21 17:59</a>
+
+一个伝承結晶</blockquote>
+谢谢，另外问一下最中心那个银箱子里是什么，就那个箱子没拿到，如果不是什么好东西就不管了，这打的太漫长了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
