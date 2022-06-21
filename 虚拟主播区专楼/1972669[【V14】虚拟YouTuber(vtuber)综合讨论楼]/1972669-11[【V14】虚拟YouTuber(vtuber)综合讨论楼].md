@@ -2084,3 +2084,12 @@ syl vta一期也已经有人退出了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一期的涼宮颯，就这么消失了，档都没了，一点痕迹不留
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15197#       发表于 2022-6-21 23:25
+
+消失的这么快，很难不怀疑已经被别人挖了
+
