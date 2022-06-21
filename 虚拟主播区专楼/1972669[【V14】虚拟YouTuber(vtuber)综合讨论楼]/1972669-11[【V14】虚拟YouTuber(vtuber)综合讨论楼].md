@@ -1673,3 +1673,12 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 彩虹的vta似乎要开直播说说他们这个企划回答征集到的问题的样子（看来是真的没人去）
 
+
+
+*****
+
+####  free  
+##### 15154#       发表于 2022-6-21 14:03
+
+中间那个是96猫，左右俩是电音部的，这是不是电音部第一次参加这种V圈节目<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
