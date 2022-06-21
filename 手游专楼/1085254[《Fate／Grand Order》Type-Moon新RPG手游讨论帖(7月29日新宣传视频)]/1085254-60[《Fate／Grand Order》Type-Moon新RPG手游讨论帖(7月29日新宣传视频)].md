@@ -927,3 +927,14 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 但是最菜的绝对是红A</blockquote>
 紅A還是能不扣一條血條情況下，一個人殺了伊麗沙伯，原本紅A是準備回收下面寶箱，她自己衝上來，將UBW轉成藍色殺了一條血槽，下回合再UBW殺剩下一條，之後就是再回收寶箱，沒時間上去幫手
 
+
+
+*****
+
+####  sin.yugi  
+##### 88588#       发表于 2022-6-22 01:24
+
+之前说的下旬新活动大概要下周29号了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
