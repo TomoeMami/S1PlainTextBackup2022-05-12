@@ -1969,3 +1969,24 @@ syl 这次vspo新人还会像ema和snmy一样过会再出一个么
 
 什么虚拟akb，出道证件照往丑了拍甚至往丑了修，后面慢慢ps+整容跟上制造养成感是吧
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15185#       发表于 2022-6-21 17:30
+
+ 本帖最后由 渡鸦骑士 于 2022-6-21 17:33 编辑 
+
+扪心自问一下，你虹的立绘。
+至少出道的那三个我觉得花里胡哨的完全谈不上惊喜感<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+宁宁的，也不知道她本人怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看起来没什么想法的样子
+
+*****
+
+####  fastary  
+##### 15186#       发表于 2022-6-21 17:35
+
+没有打榜投票我不承认是养蛊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

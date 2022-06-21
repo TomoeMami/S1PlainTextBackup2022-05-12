@@ -3807,3 +3807,20 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 薇薇小天使犯了什么错要和御田这个大钢笔相对比，就薇薇被枪打伤后教导五黄要懂得适时低头御田一辈子都难以望其项背<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 58853#       发表于 2022-6-21 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">说到薇薇，前一阵子重看了一遍扉页故事，这张图太有感觉了，标题既可以指那一话去救山治，也是扉页薇薇的想法啊，尾田太会了
+
+<img src="https://img.saraba1st.com/forum/202206/21/173815m1nnfbbbn42u4cnd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-21 17:38 上传
+
