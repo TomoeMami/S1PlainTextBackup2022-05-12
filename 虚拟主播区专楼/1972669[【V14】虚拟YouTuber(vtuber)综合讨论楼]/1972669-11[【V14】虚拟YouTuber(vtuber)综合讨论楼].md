@@ -1697,3 +1697,14 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 华裔二代现状.mp4
 
+
+
+*****
+
+####  IL282  
+##### 15156#       发表于 2022-6-21 14:42
+
+粤语完全听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
