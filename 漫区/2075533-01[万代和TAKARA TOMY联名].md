@@ -757,3 +757,15 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 
 多美如能木马起头，系列化高达载具，也算量大管饱的好事。
 
+
+
+*****
+
+####  king520kyo  
+##### 73#       发表于 2022-6-21 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56289395&amp;ptid=2075533" target="_blank">Azrael_0 发表于 2022-6-16 11:30</a>
+
+万代那DX超合金的关节？两条腿的都没整明白呢，还要搞四条腿的？</blockquote>
+超合金是超合金 之前的超合金横滨78都用齿轮关节了
+
