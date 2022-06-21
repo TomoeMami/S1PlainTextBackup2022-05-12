@@ -645,3 +645,56 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 这cost也太少了。。。
 
+
+
+*****
+
+####  森兰丸  
+##### 88561#       发表于 2022-6-21 17:22
+
+++这狗屁圣杯战线打得我恶心死了....BB3条命开场强行把你变成1头猪....玩你妹啊
+
+*****
+
+####  保罗赫伯特  
+##### 88562#       发表于 2022-6-21 17:47
+
+有无剧透，今天金箱子里是什么
+
+*****
+
+####  森兰丸  
+##### 88563#       发表于 2022-6-21 17:50
+
+又试了次...右路靠摩根....左路靠兔呆和吉娜可组队...直接杀爆了
+
+*****
+
+####  alucardcz  
+##### 88564#       发表于 2022-6-21 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355097&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-6-21 17:22</a>
+
+++这狗屁圣杯战线打得我恶心死了....BB3条命开场强行把你变成1头猪....玩你妹啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是站在那效果格子上了
+
+*****
+
+####  森兰丸  
+##### 88565#       发表于 2022-6-21 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355419&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-21 17:47</a>
+
+有无剧透，今天金箱子里是什么</blockquote>
+一个伝承結晶
+
+*****
+
+####  alucardcz  
+##### 88566#       发表于 2022-6-21 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355570&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-6-21 17:59</a>
+
+一个伝承結晶</blockquote>
+艹 这么恶心？ 我直接杀穿了 md要重打了
+
