@@ -2064,3 +2064,14 @@ syl fps游戏的视频集锦快搬上来吧
 vta二期招的都是配信经验者也不上课吧，多点人就算跑几个也无所谓，主要还是虹现在没有直接出道的公开招募名额了（莎乐美本身进虹比vta还早），想进虹只能走vta这路子
 顺便先斗宁我觉得出道后立绘是三人组最好看的，实际人气也是最高的，有什么不好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 15195#       发表于 2022-6-21 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹那个新企划是什么来的啊 实习乐团是要表达什么
+
+syl vta一期也已经有人退出了
+
