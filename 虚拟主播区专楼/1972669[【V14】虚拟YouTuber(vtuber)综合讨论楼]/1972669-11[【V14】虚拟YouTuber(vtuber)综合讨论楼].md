@@ -1827,3 +1827,14 @@ vta不是被莎皇证明屁用没有吗，哪来这么多人报名啊
 
 德龙真的不是烂铁家大小姐吗……财团b的广告用真人视频系列都让她来唱op的草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 15171#       发表于 2022-6-21 16:55
+
+回想起seeds时期了，不过vta直播固定时间内容太固定了，而且还不能打游戏联动，如果复刻seeds的话还是好活的，说是上课就不能搞点文化祭部活节目什么的么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不过17人还是太多了吧 应该有一半左右会退出
+
