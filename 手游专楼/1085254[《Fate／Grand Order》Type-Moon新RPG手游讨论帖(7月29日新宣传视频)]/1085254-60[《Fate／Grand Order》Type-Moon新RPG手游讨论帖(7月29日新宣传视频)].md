@@ -839,3 +839,18 @@ TMD行动力不够了 不然我要用骂死他神拳打爆BB啊</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88580#       发表于 2022-6-21 20:42
+
+ 本帖最后由 保罗赫伯特 于 2022-6-21 20:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56356331&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-21 19:11</a>
+
+泳装马达：弱体无效警告，金钻头：恶特攻警告</blockquote>
+失策了，没像前几天一样用小教授，他技能可以降低恶属性从者的蓝卡攻击耐性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般啊<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
