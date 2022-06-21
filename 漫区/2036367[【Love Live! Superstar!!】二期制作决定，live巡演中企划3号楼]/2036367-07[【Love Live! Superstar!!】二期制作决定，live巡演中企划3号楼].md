@@ -13424,3 +13424,15 @@ NAGI种红薯太草了，村里大妈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人说了等二期开啊
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 10145#       发表于 2022-6-21 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56348468&amp;ptid=2036367" target="_blank">adw667 发表于 2022-6-21 09:02</a>
+
+最近带有二期生的切片越来越多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">可以试着自带屏蔽或者跳过，我已经把自身的肉体屏蔽发挥到极致了
+
