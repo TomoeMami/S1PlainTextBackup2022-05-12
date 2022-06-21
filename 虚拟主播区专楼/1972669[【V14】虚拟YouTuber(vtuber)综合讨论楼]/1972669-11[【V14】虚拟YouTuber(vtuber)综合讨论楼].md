@@ -1990,3 +1990,12 @@ syl 这次vspo新人还会像ema和snmy一样过会再出一个么
 
 没有打榜投票我不承认是养蛊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 15187#       发表于 2022-6-21 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">至少要分频道吧 现在在官方频道播太缺少积极性了吧
+
