@@ -1682,3 +1682,18 @@ syl，集美管的太宽了，想找个不删档歌回在B站的留档都难…�
 
 中间那个是96猫，左右俩是电音部的，这是不是电音部第一次参加这种V圈节目<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15155#       发表于 2022-6-21 14:34
+
+ 本帖最后由 Ketestrait 于 2022-6-21 14:36 编辑 
+
+[https://youtu.be/dcL3j8OJzQw](https://youtu.be/dcL3j8OJzQw)
+
+【I SPEAK CHINESE BUT I CAN'T READ】chinglish time【NIJISANJI EN | Selen Tatsuki】
+
+华裔二代现状.mp4
+
