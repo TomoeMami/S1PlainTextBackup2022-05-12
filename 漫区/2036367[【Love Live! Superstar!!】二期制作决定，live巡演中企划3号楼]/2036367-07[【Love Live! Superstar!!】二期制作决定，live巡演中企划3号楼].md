@@ -14158,3 +14158,15 @@ FV2xvhwaMAAS7Rl.jpg
 
 最近这指甲颜色还真统一
 
+
+
+*****
+
+####  老1.5  
+##### 10191#       发表于 2022-6-22 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56371635&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-22 21:31</a>
+
+难说，虹快结束然后星马上接上，可能话题还是不少的，不知道这次有没有找菜宝翻译，其实看鲤鱼的fc直播感觉 ...</blockquote>
+适应大环境嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还是很欣慰的，保留自己的特色，也能去适应不同的文化氛围
+
