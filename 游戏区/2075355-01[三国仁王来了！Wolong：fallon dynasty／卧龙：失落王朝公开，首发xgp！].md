@@ -5167,3 +5167,25 @@ STEAM出商店页面了，发行日期:2023 EARLY
 
   仁王1的a测三段架势残心切换后的效果和b测正式版区别很大，尤其是下段
 
+
+
+*****
+
+####  SFFYLTL  
+##### 515#       发表于 2022-6-22 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56358952&amp;ptid=2075355" target="_blank">センコウ 发表于 2022-6-21 23:33</a>
+仁王1的试玩非常非常早,几乎在正式发售前一年
+
+系统基本和成品天差地别了,初期的绿条管理简直是地狱,不小 ...</blockquote>
+最早的e3预告看起来本来是想搞一对一互秒，结果真身出来成了大菠萝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  abbccc200  
+##### 516#       发表于 2022-6-22 08:40
+
+仁王1的α测我觉得是最好玩的，不过要是按那难度出销量可能一半都不到
+
