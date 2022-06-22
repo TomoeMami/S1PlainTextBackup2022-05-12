@@ -12332,3 +12332,15 @@ nb那个我都没怎么看了，是真无聊感觉
 5人匹配根本没有所谓心态问题。</blockquote>
 我又没笃定她是因为玩lol才心态爆炸的，第11677楼也只是猜测<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我说她周日和周一没闲着是指她这两天又是投翻唱又是发推，完全没有离开观众视野的意思
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11687#       发表于 2022-6-22 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56370319&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2022-6-22 20:04</a>
+
+我又没笃定她是因为玩lol才心态爆炸的，第11677楼也只是猜测我说她周日和周一没闲着是指她这两天 ...</blockquote>
+你不猜lol，还不是再猜心态爆炸，求你别猜了。静静的等着就好了。
+
