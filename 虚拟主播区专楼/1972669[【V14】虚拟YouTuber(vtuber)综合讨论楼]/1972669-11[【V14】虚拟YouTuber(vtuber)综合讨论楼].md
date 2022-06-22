@@ -2320,3 +2320,31 @@ youtu.be/E8Bke4RbSqE
 
 补个暴露tag
 
+
+
+*****
+
+####  fastary  
+##### 15215#       发表于 2022-6-22 20:21
+
+在新时代的虹当歌势真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+我为什么推的不是歌势（没有说希望黑客开始唱歌的意思
+
+*****
+
+####  死体残留  
+##### 15216#       发表于 2022-6-22 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这三人 蜜蜂没退估计就是上小红位置了
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不过她那个想法官方也没可能给她资源吧
+
+*****
+
+####  fastary  
+##### 15217#       发表于 2022-6-22 20:27
+
+bsyl 补了下今天vta新男人的录播
+
+音色很普男  喜欢纯文学和烟酒赌的抖M配上这么个可爱型的娃娃脸……立绘太普了说实话没有感受到反差萌<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
