@@ -859,3 +859,19 @@ JK原教旨主义者表示无法接受<img src="https://static.saraba1st.com/ima
 
 说到底，我觉得《JK女子攻兵》是非常不错的一部作品，战斗分镜可以把藤本吊着打，机器设计也很有意思，越战梗也有趣。但我个人挺不喜欢“你喜欢A肯定是因为a,b,c等几个原因吧？我给你推荐一个有a,b,c的全面上位替代品的B，所以去喜欢B吧”的安利模式。首先读者喜欢A并不一定是因为a,b,c这些原因，而且哪怕有全方位的替代品也不意味着B更应该被喜欢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我认为藤本和松本是不同的，仅此而已。
 
+
+
+*****
+
+####  astrayl  
+##### 62#       发表于 2022-6-22 08:08
+
+这坑终于有人填了？有资源合集吗
+
+*****
+
+####  astrayl  
+##### 63#       发表于 2022-6-22 08:08
+
+风怒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
