@@ -13924,3 +13924,12 @@ nagi的舞蹈不能排S？<img src="https://static.saraba1st.com/image/smiley/fa
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56364017&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-6-22 12:32</a></blockquote>
 前任大和抚子和现任大和抚子
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10170#       发表于 2022-6-22 15:56
+
+nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声优吧（
+
