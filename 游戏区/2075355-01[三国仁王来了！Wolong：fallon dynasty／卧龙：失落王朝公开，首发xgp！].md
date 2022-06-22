@@ -5201,3 +5201,12 @@ STEAM出商店页面了，发行日期:2023 EARLY
 仁王1的α测我觉得是最好玩的，不过要是按那难度出销量可能一半都不到</blockquote>
   a测那个难度哪怕是act老手都要喝一壶的
 
+
+
+*****
+
+####  sosgame67  
+##### 518#       发表于 2022-6-22 09:38
+
+仁王1a测那个怨灵鬼放到正式版里绝对是劝退利器..什么你说正式版一样劝退？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
