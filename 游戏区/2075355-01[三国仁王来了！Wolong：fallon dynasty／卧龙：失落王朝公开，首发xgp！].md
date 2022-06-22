@@ -5306,3 +5306,17 @@ STEAM出商店页面了，发行日期:2023 EARLY
 游戏有z轴，所以大概率和跳有关。攻守兼备，说明带有攻击判定。
 懂了是jc，风路取消。
 
+
+
+*****
+
+####  415452356  
+##### 527#       发表于 2022-6-22 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367327&amp;ptid=2075355" target="_blank">碎镜子 发表于 2022-6-22 16:48</a>
+
+核心动作。
+
+残心是取消兼回耐动作，由于没有精力条节奏变快，可知大概率是一个取消性能更强的取消动 ...</blockquote>
+  我觉得说不定是类似ffo那样，有个可以自我循环的资源？
+

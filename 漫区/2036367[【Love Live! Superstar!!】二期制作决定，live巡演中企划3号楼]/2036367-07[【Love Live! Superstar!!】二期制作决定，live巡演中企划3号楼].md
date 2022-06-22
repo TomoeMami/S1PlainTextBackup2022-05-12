@@ -13933,3 +13933,33 @@ nagi的舞蹈不能排S？<img src="https://static.saraba1st.com/image/smiley/fa
 
 nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声优吧（
 
+
+
+*****
+
+####  cat1230  
+##### 10171#       发表于 2022-6-22 16:09
+
+<blockquote>引用第10169楼奥柏伦亲王于2022-06-22 15:56发表的  :
+
+nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声优吧（</blockquote>
+@奥柏伦亲王
+
+本来志不在此，所以不算缺点<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 10172#       发表于 2022-6-22 16:53
+
+又卡了吧？
+
+*****
+
+####  lj205  
+##### 10173#       发表于 2022-6-22 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
