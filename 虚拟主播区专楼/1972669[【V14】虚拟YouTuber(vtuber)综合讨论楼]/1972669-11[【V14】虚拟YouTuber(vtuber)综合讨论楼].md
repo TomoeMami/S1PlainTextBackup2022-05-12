@@ -2478,3 +2478,23 @@ VTuberグループ「にじさんじ」に所属する、
 
 2022-6-22 23:07 上传
 
+
+
+*****
+
+####  winda  
+##### 15228#       发表于 2022-6-22 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">从trinity之后ankr再推音乐组合的反应大概就剩一句“哦”了
+
+已经能感受到工业化流程了
+
+*****
+
+####  noHentai  
+##### 15229#       发表于 2022-6-22 23:29
+
+搞组合可是写进财报说明的，跟VTA一起都算战略之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但这歌不错，而且小红虽然生唱水平不怎么，但偶尔能录一些非常不错的作品出来，比如reflexion那张专辑里的那首，个人感觉是教科书级别的演绎。
+
