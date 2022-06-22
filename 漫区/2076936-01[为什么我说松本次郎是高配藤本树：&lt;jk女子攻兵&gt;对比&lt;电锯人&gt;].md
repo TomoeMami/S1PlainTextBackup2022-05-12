@@ -886,3 +886,12 @@ JK原教旨主义者表示无法接受<img src="https://static.saraba1st.com/ima
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Bojenkins  
+##### 65#       发表于 2022-6-22 09:14
+
+jk女子攻兵的确更勇也更有底气，但还是想问下拿它当作刻奇标杆来棒打藤本树是不是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉有些人真是反刻奇反到近乎刻奇的地步了
+
