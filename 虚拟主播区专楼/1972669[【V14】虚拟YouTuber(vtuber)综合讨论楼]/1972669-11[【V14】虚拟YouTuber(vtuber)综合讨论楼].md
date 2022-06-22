@@ -2579,3 +2579,12 @@ syl，看hnn的说法应该又是一个接力？等出道再公布下一个？
 
 这策略什么毛病啊，紫宫就因为这策略热度差了一大截
 
+
+
+*****
+
+####  IDIDIDID  
+##### 15237#       发表于 2022-6-23 00:51
+
+这个深渊组最大的问题是chima音域大到能把剩下俩全吃了，别到时候live eq没弄好就只能听见一个人的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
