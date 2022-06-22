@@ -2431,3 +2431,50 @@ levi走刚动完手术，就算能安排也得延后了，难不成要主业摸�
 其实我随便补过几个录播现在都还没能把名字和音色对上，感觉都差不多 ...</blockquote>
 不高啊，就普通帅哥音素人，出不了道这样
 
+
+
+*****
+
+####  fastary  
+##### 15226#       发表于 2022-6-22 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56371960&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-22 21:55</a>
+
+不高啊，就普通帅哥音素人，出不了道这样</blockquote>
+草，那圣来还是相对最有可能出道的意思是其他几个是普音素人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+有一说一看人搞自编曲还挺好奇各位歌力的，玩点旧游戏和稍微开个腔普通主播也在干应该不是不行吧，vta时期非要只展示(锻炼)杂谈力真的有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+17人全员素人，好大逃杀啊……
+
+*****
+
+####  alcoholic1000  
+##### 15227#       发表于 2022-6-22 23:07
+
+<blockquote>Nornis
+
+VTuberグループ「にじさんじ」に所属する、
+
+町田ちま / 戌亥とこ / 朝日南アカネの女性3人組ボーカルユニット。
+
+3人にしか作り出せないハーモニーを届けるため、2022年6月にユニットとして活動開始。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202206/22/230721qwwky4xswkkqkk6k.png" referrerpolicy="no-referrer">
+
+<strong>Nornis VTuberグループ.png</strong> (950.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202206/22/230720j0rvior0iggv70kq.png" referrerpolicy="no-referrer">
+
+<strong>Nornis VTuberグループ-2.png</strong> (241.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 23:07 上传
+
