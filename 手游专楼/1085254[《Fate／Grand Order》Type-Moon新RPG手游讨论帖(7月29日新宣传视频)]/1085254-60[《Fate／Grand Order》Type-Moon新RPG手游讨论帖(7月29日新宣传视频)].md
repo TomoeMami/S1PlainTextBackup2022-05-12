@@ -1072,3 +1072,14 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说，都是好事
 
+
+
+*****
+
+####  khxooo  
+##### 88603#       发表于 2022-6-22 23:36
+
+ 本帖最后由 khxooo 于 2022-6-22 23:37 编辑 
+
+卑呆梅26回合过了项羽茶壶本了，这次回忆算是最简单的一次了。
+
