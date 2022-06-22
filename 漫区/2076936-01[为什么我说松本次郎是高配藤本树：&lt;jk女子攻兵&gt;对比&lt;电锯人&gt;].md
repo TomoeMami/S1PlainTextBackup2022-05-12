@@ -875,3 +875,14 @@ JK原教旨主义者表示无法接受<img src="https://static.saraba1st.com/ima
 
 风怒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 64#       发表于 2022-6-22 08:53
+
+感谢推荐，很有趣
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
