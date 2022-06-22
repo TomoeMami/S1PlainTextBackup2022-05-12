@@ -12248,3 +12248,20 @@ nb那个我都没怎么看了，是真无聊感觉
 
 破防应该不至于 也只是一把上单波比3/10 一把ad泽丽4/10 应该不会破防吧 不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11681#       发表于 2022-6-22 18:21
+
+这个就不追直播了，等切片吧。反正也不出场。
+
+<img src="https://img.saraba1st.com/forum/202206/22/182101h2f4gpszna8mvcsz.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220622182039169.jpg</strong> (93.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 18:21 上传
+
