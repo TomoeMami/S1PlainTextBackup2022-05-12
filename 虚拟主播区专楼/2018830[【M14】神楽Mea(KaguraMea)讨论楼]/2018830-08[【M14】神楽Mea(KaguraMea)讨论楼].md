@@ -12316,3 +12316,19 @@ nb那个我都没怎么看了，是真无聊感觉
 
 你猜她嗓子没好都还算靠谱点。
 
+
+
+*****
+
+####  汇聚群光  
+##### 11686#       发表于 2022-6-22 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56370153&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-6-22 19:56</a>
+
+求求你不要在对着虚空脑补了。
+
+三天内就昨天打了三把lol。2负一胜。
+
+5人匹配根本没有所谓心态问题。</blockquote>
+我又没笃定她是因为玩lol才心态爆炸的，第11677楼也只是猜测<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我说她周日和周一没闲着是指她这两天又是投翻唱又是发推，完全没有离开观众视野的意思
+

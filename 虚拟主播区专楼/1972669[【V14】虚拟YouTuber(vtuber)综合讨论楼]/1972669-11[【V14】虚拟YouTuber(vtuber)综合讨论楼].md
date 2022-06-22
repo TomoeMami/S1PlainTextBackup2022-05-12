@@ -2275,3 +2275,31 @@ VTA也算是没有办法的办法吧，想要即战力但又不想放弃素人�
 
 目前这几位都是健谈素人的感觉，倉持好强的现充味啊
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 15212#       发表于 2022-6-22 20:00
+
+ 本帖最后由 SuntoryNomu 于 2022-6-22 20:07 编辑 
+
+江良剪了个短发也太T了吧
+
+然而是嘘
+
+*****
+
+####  NBXX  
+##### 15213#       发表于 2022-6-22 20:03
+
+New Project Teaser #3
+
+youtu.be/OQlTRMmHza8
+
+2022/6/23 0:00
+
+youtu.be/E8Bke4RbSqE
+<img src="https://p.sda1.dev/6/77e17940edbca4b10d654aca2bdfb9f3/2__UV_B~3WDZH__AX9F8P_V.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/87f6fd9a153f116070731c6f47ddf7d1/image.png" referrerpolicy="no-referrer">
+
