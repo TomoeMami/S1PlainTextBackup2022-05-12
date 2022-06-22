@@ -5425,3 +5425,15 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
 喘气a测确实是打空就喘气，而不跟现在一样有个限压阀
 
+
+
+*****
+
+####  SFFYLTL  
+##### 537#       发表于 2022-6-22 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56362275&amp;ptid=2075355" target="_blank">barry.allen 发表于 2022-6-22 10:33</a>
+
+仁王1 demo到正式版改了好多次，游戏区demo都有个特别高的讨论楼，但好像现在找不到了 ...</blockquote>
+第一个demo恶意满满，或者说tn组完全不知道玩家的口味：仇恨不会断，小兵伤害巨高甚至可以追进boss房。现在想来倒也是蛮刺激的。
+
