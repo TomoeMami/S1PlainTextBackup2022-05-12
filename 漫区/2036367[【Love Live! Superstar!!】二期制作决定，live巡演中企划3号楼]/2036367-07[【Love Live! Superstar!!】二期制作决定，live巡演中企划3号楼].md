@@ -13997,3 +13997,12 @@ nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声
 
 说多了都伤心，holypeak 做个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10178#       发表于 2022-6-22 18:00
+
+nako偶像的活接不到，CV的活也接不到，你们就这样对待liella的母亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

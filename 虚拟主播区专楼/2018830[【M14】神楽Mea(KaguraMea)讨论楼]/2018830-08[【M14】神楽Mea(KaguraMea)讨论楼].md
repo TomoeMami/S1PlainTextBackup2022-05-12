@@ -12239,3 +12239,12 @@ nb那个我都没怎么看了，是真无聊感觉
 
 听说是情侣名
 
+
+
+*****
+
+####  Klience  
+##### 11680#       发表于 2022-6-22 17:53
+
+破防应该不至于 也只是一把上单波比3/10 一把ad泽丽4/10 应该不会破防吧 不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
