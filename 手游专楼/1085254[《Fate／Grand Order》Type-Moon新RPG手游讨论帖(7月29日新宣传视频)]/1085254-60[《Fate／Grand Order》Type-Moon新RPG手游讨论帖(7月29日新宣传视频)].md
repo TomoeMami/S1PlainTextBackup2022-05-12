@@ -1083,3 +1083,14 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 卑呆梅26回合过了项羽茶壶本了，这次回忆算是最简单的一次了。
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88604#       发表于 2022-6-23 00:07
+
+被李大师打成傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
