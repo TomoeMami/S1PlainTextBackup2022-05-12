@@ -920,3 +920,14 @@ jk女子攻兵的确更勇也更有底气，但还是想问下拿它当作刻奇
 
 你们能不能不要把艺评哪一套话术玩到漫画头上来·····为什么要从商业化严重的日漫里头去思索人生本质以至探究社会思潮？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  风扇解压  
+##### 68#       发表于 2022-6-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367564&amp;ptid=2076936" target="_blank">寒蝉 发表于 2022-6-22 17:04</a>
+你们能不能不要把艺评哪一套话术玩到漫画头上来·····为什么要从商业化严重的日漫里头去思索人生本质以 ...</blockquote>
+也不是不行
+

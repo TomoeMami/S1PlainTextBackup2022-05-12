@@ -1003,3 +1003,12 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 新活动估计是要实装蓝高达源为朝了
 
+
+
+*****
+
+####  里村紅葉  
+##### 88596#       发表于 2022-6-22 17:27
+
+圣杯战线抄作业打了2关不想打了，遭了什么罪来FGO还要打秃洞的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

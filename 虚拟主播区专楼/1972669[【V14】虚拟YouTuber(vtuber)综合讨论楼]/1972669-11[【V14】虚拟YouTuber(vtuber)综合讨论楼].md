@@ -2245,3 +2245,12 @@ pquote]
 
 vspo新人的apex剪辑发了，有无锐评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 15209#       发表于 2022-6-22 17:29
+
+只看剪辑新人定位和跟枪可以了，最后片段玩的地平线，保底比艾玛要强
+

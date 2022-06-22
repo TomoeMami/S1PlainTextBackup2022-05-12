@@ -5320,3 +5320,37 @@ STEAM出商店页面了，发行日期:2023 EARLY
 残心是取消兼回耐动作，由于没有精力条节奏变快，可知大概率是一个取消性能更强的取消动 ...</blockquote>
   我觉得说不定是类似ffo那样，有个可以自我循环的资源？
 
+
+
+*****
+
+####  kemyes  
+##### 528#       发表于 2022-6-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367380&amp;ptid=2075355" target="_blank">415452356 发表于 2022-6-22 16:52</a>
+
+我觉得说不定是类似ffo那样，有个可以自我循环的资源？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">既然动作设定是中国武功，那少不了【气】这种资源吧
+
+*****
+
+####  ae云岚  
+##### 529#       发表于 2022-6-22 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56359268&amp;ptid=2075355" target="_blank">bad_alloc 发表于 2022-6-22 00:03</a>
+
+第一个试玩杰洛特打空绿条直接原地喘，敌方伤害也巨高，不过玩起来还挺带感的
+
+—— 来自 Xiaomi 2201121 ...</blockquote>
+现在也是精力条打空不能动原地喘气啊
+
+*****
+
+####  bad_alloc  
+##### 530#       发表于 2022-6-22 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367926&amp;ptid=2075355" target="_blank">ae云岚 发表于 2022-6-22 17:27</a>
+
+现在也是精力条打空不能动原地喘气啊</blockquote>
+alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
+
