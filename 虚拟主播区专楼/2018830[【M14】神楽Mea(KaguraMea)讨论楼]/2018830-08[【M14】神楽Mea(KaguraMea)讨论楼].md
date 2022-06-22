@@ -12359,3 +12359,22 @@ nb那个我都没怎么看了，是真无聊感觉
 
 2022-6-22 22:16 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11689#       发表于 2022-6-22 22:45
+
+ 本帖最后由 古战场亡魂 于 2022-6-22 22:48 编辑 
+
+嗓子还真的没好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">syl
+
+<img src="https://img.saraba1st.com/forum/202206/22/224851fn50lb0zf8fgp0f4.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220622224816111.jpg</strong> (56.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-22 22:48 上传
+
