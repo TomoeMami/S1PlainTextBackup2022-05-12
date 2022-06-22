@@ -895,3 +895,19 @@ JK原教旨主义者表示无法接受<img src="https://static.saraba1st.com/ima
 
 jk女子攻兵的确更勇也更有底气，但还是想问下拿它当作刻奇标杆来棒打藤本树是不是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉有些人真是反刻奇反到近乎刻奇的地步了
 
+
+
+*****
+
+####  chengdidi  
+##### 66#         楼主| 发表于 2022-6-22 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56360512&amp;ptid=2076936" target="_blank">limboc 发表于 2022-6-22 07:52</a>
+
+“被大叔驾驶的JK机器人=由大叔当中之人的JK管人”是在整活啦，因为不整活就没人理我嘛！
+
+“JK机 ...</blockquote>
+虽然但是，刻奇和媚俗不一样啊。
+
+然后我承认这么写有钓鱼成分<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
