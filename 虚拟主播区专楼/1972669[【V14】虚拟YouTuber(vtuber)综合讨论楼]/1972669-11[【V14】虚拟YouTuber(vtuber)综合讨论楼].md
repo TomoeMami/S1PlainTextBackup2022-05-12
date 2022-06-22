@@ -2211,3 +2211,14 @@ bsyl <blockquote>つなの前世はおそらく簪音織（TwitchでVALOメイ�
 vspo新人大概特定到了
 [https://www.youtube.com/channel/UCzO6PgOyDIeYIBxcs494uvg](https://www.youtube.com/channel/UCzO6PgOyDIeYIBxcs494uvg)
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15206#       发表于 2022-6-22 12:06
+
+这声音夹得估计正式出道也认不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还挺能说话的大概会前途光明吧
+
