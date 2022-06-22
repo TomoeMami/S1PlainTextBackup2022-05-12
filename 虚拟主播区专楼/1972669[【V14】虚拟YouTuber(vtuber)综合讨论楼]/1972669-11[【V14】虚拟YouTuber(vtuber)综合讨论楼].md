@@ -2400,3 +2400,21 @@ levi走刚动完手术，就算能安排也得延后了，难不成要主业摸�
 
 圣来都出道不了其他男人再如何也就看着乐一下吧
 
+
+
+*****
+
+####  fastary  
+##### 15224#       发表于 2022-6-22 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56371100&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-22 20:54</a>
+
+levi走刚动完手术，就算能安排也得延后了，难不成要主业摸鱼的琥珀宝上吗。
+
+省一楼，因为聊被美少女欺负那 ...</blockquote>
+郡gachi对圣来评价这么高吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+其实我随便补过几个录播现在都还没能把名字和音色对上，感觉都差不多吧……
+
+刚刚从新往旧听了下，确实圣来的声音是挺池面的
+
