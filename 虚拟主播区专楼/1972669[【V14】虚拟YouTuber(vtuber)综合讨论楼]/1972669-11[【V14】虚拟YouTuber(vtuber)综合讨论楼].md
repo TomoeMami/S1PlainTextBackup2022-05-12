@@ -2588,3 +2588,23 @@ syl，看hnn的说法应该又是一个接力？等出道再公布下一个？
 
 这个深渊组最大的问题是chima音域大到能把剩下俩全吃了，别到时候live eq没弄好就只能听见一个人的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 15238#       发表于 2022-6-23 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56374423&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 00:03</a>
+
+你虹出歌还特意出个英文版本。
+
+完全是憋足了劲想要英文观众。
+
+然而这边的en出的歌还一堆日文，令人唏嘘</blockquote>
+官方曲/官方平台的原创曲/liver原创曲，把这些全都混为一谈看运营的方向也是有点，
+
+之前出的周年曲中日韩英都有，主市场是欧米的ENliver原创曲是日语，又讨好谁呢，总不能说死神出道曲是日语标题还和日本女人合唱是在媚日吧，
+
+就算是日常唱衰也能不能来点实例，我宁愿你说妹龙说粤语是讨好港友，虽然她从小开始就说但可能楼友不在意。
+
