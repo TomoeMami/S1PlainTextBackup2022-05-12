@@ -947,3 +947,15 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 这次战线实在太大规模了，本来还想把BB的特殊台词都看看，重打太麻烦了
 
+
+
+*****
+
+####  levy320  
+##### 88590#       发表于 2022-6-22 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355097&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-6-21 17:22</a>
+
+++这狗屁圣杯战线打得我恶心死了....BB3条命开场强行把你变成1头猪....玩你妹啊 ...</blockquote>
+赵政打爆一切。
+
