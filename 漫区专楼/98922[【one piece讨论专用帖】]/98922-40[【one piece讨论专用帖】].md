@@ -3978,3 +3978,17 @@ op里出场过的夫妻好像都比较惨吧
 
 卡彭小两口非常恩爱呀。后面标题页连载还见了小姨子和老丈人。
 
+
+
+*****
+
+####  modkingr  
+##### 58870#       发表于 2022-6-22 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56365463&amp;ptid=98922" target="_blank">posthoc 发表于 2022-6-22 14:27</a>
+
+卡彭小两口非常恩爱呀。后面标题页连载还见了小姨子和老丈人。
+
+太阳海贼团那俩人鱼感情也挺好，不过蛋糕岛 ...</blockquote>
+甚平肯定是安顿好所有兄弟再来帮路飞的，不然他在蛋糕岛的 断后 就没有意义了
+
