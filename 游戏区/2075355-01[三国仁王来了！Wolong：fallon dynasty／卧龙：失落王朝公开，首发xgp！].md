@@ -5210,3 +5210,17 @@ STEAM出商店页面了，发行日期:2023 EARLY
 
 仁王1a测那个怨灵鬼放到正式版里绝对是劝退利器..什么你说正式版一样劝退？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  barry.allen  
+##### 519#       发表于 2022-6-22 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56360790&amp;ptid=2075355" target="_blank">SFFYLTL 发表于 2022-6-22 08:35</a>
+
+最早的e3预告看起来本来是想搞一对一互秒，结果真身出来成了大菠萝
+
+—— 来自 Xiaomi M2012K11AC ...</blockquote>
+仁王1 demo到正式版改了好多次，游戏区demo都有个特别高的讨论楼，但好像现在找不到了
+
