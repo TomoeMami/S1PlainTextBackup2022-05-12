@@ -4003,3 +4003,12 @@ op里出场过的夫妻好像都比较惨吧
 
 这次和之国给我的感觉真是剩下的超新星们破格严重，大仙不知道会不会就这样草草退场，德雷克和阿普就没给多少笔墨，基拉和基德其实比起两年前破格严重。。尽管这次硬把基德赏金提到路飞等级。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  posthoc  
+##### 58872#       发表于 2022-6-23 01:41
+
+稻草人的能力搞起剧情杀来可以很恶心人，早点退场挺好的。想象一下比如山治打他然后他说我这条命是娜美的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
