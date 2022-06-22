@@ -2608,3 +2608,93 @@ syl，看hnn的说法应该又是一个接力？等出道再公布下一个？
 
 就算是日常唱衰也能不能来点实例，我宁愿你说妹龙说粤语是讨好港友，虽然她从小开始就说但可能楼友不在意。
 
+
+
+*****
+
+####  CielChloe  
+##### 15239#       发表于 2022-6-23 02:16
+
+ 本帖最后由 CielChloe 于 2022-6-23 02:18 编辑 
+
+chima显然会继续担当高音和声的定位，因为除了唱功之外其他部分相比两位队友她还是有些稚嫩，需要有人带着继续成长。
+倒是床我原以为会走单人路线，果然靠一个人的流量还是不够啊。。。
+茜的生唱问题主要也就是气短，这是出道时的印象，现在应该好多了吧
+
+*****
+
+####  空集  
+##### 15240#       发表于 2022-6-23 02:22
+
+不如问en女也在说中文了是不是和嗯男换粉很多的表现，虽说原本就会说但是作为节目播如果主力面向观众是欧美的话还挺不好理解的。
+
+
+
+*****
+
+####  alcoholic1000  
+##### 15241#       发表于 2022-6-23 02:40
+
+en这个部连带周边辐射圈媚中都挺明显的，一个是本身成员就亚裔居多，reimu和fulgur是中国二次元产品的忠实受众；
+
+另一个是表明坚决不禁语言的立场之后中文互动特别多（本社的中文观众未必不多，只是更多习惯了用日语互动，甚至上个月还看到了条子惊讶于有中国观众的clip），加上中文圈尤其B站数据很显眼，VR还活着，诸多原因导致了这种情况吧。
+
+甚至昨天fnn生日一群主播（包括虹社外）聊了半天中文，或许也可以认为是一种特殊的ファンサービス
+
+*****
+
+####  rzrbtk  
+##### 15242#       发表于 2022-6-23 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56374423&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 00:03</a>
+
+你虹出歌还特意出个英文版本。
+
+完全是憋足了劲想要英文观众。
+
+然而这边的en出的歌还一堆日文，令人唏嘘</blockquote>
+导师不信我的数据让我回去重做，我不信楼友的数据还是我自己回去做，我是不是有点惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">；
+
+是首播数字和正好一个月后单人直播数据（看图选的可能有错）对比，
+
+<img src="https://img.saraba1st.com/forum/202206/23/024254dlrepopp2pcalaxo.png" referrerpolicy="no-referrer">
+
+<strong>2022-06-23 (2).png</strong> (64.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 02:42 上传
+
+<img src="https://img.saraba1st.com/forum/202206/23/024302qfrqxpxfeafby6ar.png" referrerpolicy="no-referrer">
+
+<strong>000081.png</strong> (53.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 02:43 上传
+
+<img src="https://img.saraba1st.com/forum/202206/23/024342rz008v7jqvjycg7z.png" referrerpolicy="no-referrer">
+
+<strong>000082.png</strong> (46.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 02:43 上传
+
+说莎乐美是虹信造神我是认的，但就算是蝗一波也要允许别人吹首月流水吧！
+
+*****
+
+####  吃咸菜的  
+##### 15243#       发表于 2022-6-23 04:35
+
+ 本帖最后由 吃咸菜的 于 2022-6-23 04:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56375744&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-23 02:46</a>
+导师不信我的数据让我回去重做，我不信楼友的数据还是我自己回去做，我是不是有点惨啊；
+
+是首播数 ...</blockquote>
+什么反向手机厂对比图，拿负数段凑长度是吧？不仔细看还以为虹人第二次播有杏人一半同接呢
+建议负数段再长一点，虹杏差距就不到10%了
+
+<img src="https://p.sda1.dev/6/2d7ceb88747cc140e5463249b13ec9cb/e61b0374ed934513aecd10a6a6467c0c.jpeg" referrerpolicy="no-referrer">
+
