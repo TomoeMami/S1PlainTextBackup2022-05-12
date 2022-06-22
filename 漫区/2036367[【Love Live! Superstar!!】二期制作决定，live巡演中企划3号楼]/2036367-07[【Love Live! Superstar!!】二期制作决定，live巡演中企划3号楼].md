@@ -13963,3 +13963,19 @@ nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10174#       发表于 2022-6-22 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不影响接活  (指朗读剧
+
+*****
+
+####  cybernetics31  
+##### 10175#       发表于 2022-6-22 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nako还是没活啊，给点作用啊，holy pig！
+
