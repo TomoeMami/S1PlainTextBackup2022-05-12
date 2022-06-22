@@ -14111,3 +14111,16 @@ FV2xvhwaMAAS7Rl.jpg
 
 <img src="https://img.saraba1st.com/forum/202206/22/202133w1zy19f1geygey5e.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 10186#       发表于 2022-6-22 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56369525&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-22 19:18</a>
+今天吃了两个水果味的羊羹，边吃边说甜过头，然后那个表情过于实诚然而最后还是说了おいしい不是说 ...</blockquote>
+说出来自己都笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
