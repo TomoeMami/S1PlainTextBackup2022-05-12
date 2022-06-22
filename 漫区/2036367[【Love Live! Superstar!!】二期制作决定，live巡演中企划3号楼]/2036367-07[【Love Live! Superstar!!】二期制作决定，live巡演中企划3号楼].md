@@ -14006,3 +14006,12 @@ nagio如果说有啥明显缺点的话可能就只有配音不行不适合做声
 
 nako偶像的活接不到，CV的活也接不到，你们就这样对待liella的母亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 10179#       发表于 2022-6-22 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">鱼晚上fc发型，果然得长发发展
+

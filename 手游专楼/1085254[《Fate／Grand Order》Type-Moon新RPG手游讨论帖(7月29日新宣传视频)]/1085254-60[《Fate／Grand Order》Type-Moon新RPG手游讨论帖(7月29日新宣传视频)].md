@@ -1021,3 +1021,14 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 新活动居然是八犬传，怪不得2.65徐福莫名其妙突然que了一下马琴，看来这个卫星是要落地了，看活动名源氏高达也得落地，估计八犬是没机会单独落地了，大概率作为幻灵直接缝到曲亭马琴里了。
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88598#       发表于 2022-6-22 18:33
+
+用现在的配置打2.3的回忆关卡比开荒的时候爽太多了，基本是秒杀<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+5倍血量那几关就先不碰了，茶壶也不是刚需<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
