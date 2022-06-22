@@ -5354,3 +5354,25 @@ STEAM出商店页面了，发行日期:2023 EARLY
 现在也是精力条打空不能动原地喘气啊</blockquote>
 alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
+
+
+*****
+
+####  sughiy  
+##### 531#       发表于 2022-6-22 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367926&amp;ptid=2075355" target="_blank">ae云岚 发表于 2022-6-22 17:27</a>
+
+现在也是精力条打空不能动原地喘气啊</blockquote>
+我记得alpha测试精力打空后，不需要敌人攻击自己就会大喘气。只有下段的闪避可以残心，所以切段闪避的理念更明显。视角是非魂系的，但因为在大型boss的情况下视角会变得非常阴间，所以改成了魂系。
+
+*****
+
+####  sughiy  
+##### 532#       发表于 2022-6-22 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56367926&amp;ptid=2075355" target="_blank">ae云岚 发表于 2022-6-22 17:27</a>
+
+现在也是精力条打空不能动原地喘气啊</blockquote>
+我记得alpha测试精力打空后，不需要敌人攻击自己就会大喘气。只有下段的闪避可以残心，所以切段闪避的理念更明显。视角是非魂系的，但因为在大型boss的情况下视角会变得非常阴间，所以改成了魂系。
+
