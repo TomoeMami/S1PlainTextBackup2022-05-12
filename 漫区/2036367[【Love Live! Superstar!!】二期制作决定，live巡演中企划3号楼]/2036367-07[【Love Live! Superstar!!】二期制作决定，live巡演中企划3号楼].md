@@ -14053,3 +14053,24 @@ nako偶像的活接不到，CV的活也接不到，你们就这样对待liella�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 10183#       发表于 2022-6-22 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56368984&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-6-22 18:41</a>
+
+鱼晚上fc发型，果然得长发发展</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">长啥样啊，没进FC，好奇
+
+*****
+
+####  lj205  
+##### 10184#       发表于 2022-6-22 19:18
+
+今天吃了两个水果味的点心（？），边吃边说甜过头，然后那个表情过于实诚<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+下个月那么跃跃欲试，应该有好吃的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
