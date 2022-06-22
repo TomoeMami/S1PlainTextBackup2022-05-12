@@ -5189,3 +5189,15 @@ STEAM出商店页面了，发行日期:2023 EARLY
 
 仁王1的α测我觉得是最好玩的，不过要是按那难度出销量可能一半都不到
 
+
+
+*****
+
+####  415452356  
+##### 517#       发表于 2022-6-22 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56360825&amp;ptid=2075355" target="_blank">abbccc200 发表于 2022-6-22 08:40</a>
+
+仁王1的α测我觉得是最好玩的，不过要是按那难度出销量可能一半都不到</blockquote>
+  a测那个难度哪怕是act老手都要喝一壶的
+

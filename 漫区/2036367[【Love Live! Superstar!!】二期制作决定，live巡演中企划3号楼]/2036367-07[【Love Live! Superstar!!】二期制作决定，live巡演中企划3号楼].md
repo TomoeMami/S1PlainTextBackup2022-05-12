@@ -13883,3 +13883,12 @@ nagi的舞蹈不能排S？<img src="https://static.saraba1st.com/image/smiley/fa
 
 鲤鱼精神力S没问题，最困难的时期都挺过来
 
+
+
+*****
+
+####  ViyViy  
+##### 10166#       发表于 2022-6-22 09:05
+
+即兴配音对现在的鱼来说还是有点难度？一问一答环节听得出在调整了但只调出了一句比较接近的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

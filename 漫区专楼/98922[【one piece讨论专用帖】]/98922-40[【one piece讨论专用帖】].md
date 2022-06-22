@@ -3958,3 +3958,14 @@ king和queen是被索隆三治打出岛外了，一下捞不到吧
 
 ......
 
+
+
+*****
+
+####  灌水机  
+##### 58868#       发表于 2022-6-22 09:06
+
+op里出场过的夫妻好像都比较惨吧
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
