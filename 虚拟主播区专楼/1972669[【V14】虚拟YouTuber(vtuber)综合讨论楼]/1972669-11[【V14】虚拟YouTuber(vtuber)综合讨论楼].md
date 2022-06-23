@@ -3460,3 +3460,26 @@ https://realsound.jp/tech/2022/06/post-1059808.html
 
 小护士那是自己喜欢玩，莎皇这是工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DBD这手游也找了不少大物工商了，但我觉得不太行
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15310#       发表于 2022-6-23 19:03
+
+ 本帖最后由 alcoholic1000 于 2022-6-23 19:05 编辑 
+
+lisa只是当前阶段的最爱，他还最喜欢过葉子西西りりむ星川めと，都有一段单方面热恋期（？）总结下来就是喜欢一戳一蹦跶那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Syl，真的很希望回归叶星版本，再续前缘骗点切片帮星宝冲个金盾呗
+
+*****
+
+####  poipanchao  
+##### 15311#       发表于 2022-6-23 19:07
+
+你数数几个gamers，甚至把西西算进来（）
+星叶我记得是经纪人撮合的？
+met哪有这个频率，而且人家好歹也是老朋友了，还不如说丽
+Lisa这种突然冒出来，瞬间玩到一起去的还满特别的
+
