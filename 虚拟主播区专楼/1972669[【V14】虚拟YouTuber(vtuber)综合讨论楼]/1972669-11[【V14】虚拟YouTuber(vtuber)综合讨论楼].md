@@ -3227,3 +3227,12 @@ syl， ...</blockquote>
 
 那葛又不一样了 当然他自己也特别厉害 但是我认为他的联动同接是更厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 社内反而帮助更大吧 算了还是互利吧 syl同上 也觉得是对以前的总结 比如时间我觉得学习了刀 对于直播时的表现那就不在我的讨论了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 15287#       发表于 2022-6-23 13:16
+
+看不懂楼友在涛些什么.jpg
+
