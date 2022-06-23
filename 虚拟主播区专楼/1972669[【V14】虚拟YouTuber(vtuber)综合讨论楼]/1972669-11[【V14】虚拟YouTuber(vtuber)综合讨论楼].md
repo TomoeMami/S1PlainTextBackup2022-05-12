@@ -3350,3 +3350,32 @@ syl， ...</blockquote>
 这位管人出道前也有个瓜我一看 ...</blockquote>
 你虹确实不一样了啊，能给人家这么强大的信心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15298#       发表于 2022-6-23 17:14
+
+如果就出个要卖谷的新原创曲都要预热六天enkr真的可以去死了= =
+
+*****
+
+####  IDIDIDID  
+##### 15299#       发表于 2022-6-23 17:16
+
+<img src="https://img.saraba1st.com/forum/202206/23/171645t8t9z8p38f2gtgzg.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (820.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 17:16 上传
+
+*****
+
+####  poipanchao  
+##### 15300#       发表于 2022-6-23 17:18
+
+过气二哥当封面，这杂志含金量不太行啊
+
