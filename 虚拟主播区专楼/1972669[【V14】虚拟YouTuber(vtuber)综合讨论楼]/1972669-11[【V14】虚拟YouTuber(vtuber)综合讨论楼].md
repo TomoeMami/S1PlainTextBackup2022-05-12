@@ -2961,3 +2961,26 @@ syl，vspo那个新人疑似特定对象不算很夹吧，夹子音感觉还得�
 
 syl，虽然图和数据很粗糙但是，”留存率“和”斜率“不是一个东西啊，我真的没有数字造假<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bluebaby  
+##### 15263#       发表于 2022-6-23 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56379104&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-23 11:19</a>
+是啊，我非常认可“挑两场直播谈留存“是很扯淡的，在此之上的寻找规律、组合对比也是很扯淡的。
+
+syl， ...</blockquote>
+他的意思应该是你想说明留存率，肯定是多点作图，没有哪个数据图会只有两点做线，是你的图其实不直接反应留存率，应该是每次直播/首播，纵坐标为百分比，多次直播做折线，你这个图两次直播点一连其实是单纯的同接变化图。
+
+*****
+
+####  winda  
+##### 15264#       发表于 2022-6-23 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378960&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-6-23 11:12</a>
+以chima组队有什么好奇怪的吗，你意思是按狼性虹的一贯做法chima小红不配吗？虹现在策略早就是头部带底边的 ...</blockquote>
+yysy，双马尾组虽然不比crowns，加个柴卡也是有点名气的组合了
+akn包括歌谣祭mc以及别人杂谈里当声乐指导，也算是积分刷够混出头了
+
