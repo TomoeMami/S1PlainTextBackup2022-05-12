@@ -3287,3 +3287,16 @@ syl， ...</blockquote>
 
 因为立绘所以初配信标题写了关西的闪闪但其实完全没接触过fate，好蹭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15293#       发表于 2022-6-23 16:18
+
+パディ・ライアン
+
+这位就是教授啊……。没想到是正经接到过战国无双5角色的声优。
+
+5月1号光速和事务所解除契约，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
