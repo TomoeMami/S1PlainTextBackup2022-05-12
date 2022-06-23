@@ -5495,3 +5495,14 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道是把吸魂加回来么
 
+
+
+*****
+
+####  医生狼多  
+##### 543#         楼主| 发表于 2022-6-23 14:58
+
+[https://www.bilibili.com/read/cv17236085](https://www.bilibili.com/read/cv17236085)
+
+《卧龙：苍天陨落》fami通访谈翻译
+
