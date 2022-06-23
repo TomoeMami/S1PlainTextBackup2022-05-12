@@ -3679,3 +3679,31 @@ https://youtu.be/oW-RlZu_wg4 大小姐开播了desuwa</blockquote>
 
 现在看来虹杏这一年出新人直接用组合名去避免“X期生”，估计也有之后各种看人气插队塞资源的考虑，没有前辈后辈自然也就没有先来后到啦，大家凭本事吃饭。
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 15331#       发表于 2022-6-24 00:17
+
+绝体绝命都市是视频游戏实况主的定番了，救不救得了无非是实况者水平问题而已吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天衣亚弥  
+##### 15332#       发表于 2022-6-24 00:18
+
+en有3d棚吗？话说回来成员地理位置分布又是什么情况？
+
+*****
+
+####  freemanbright  
+##### 15333#       发表于 2022-6-24 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56388928&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-6-23 23:29</a>
+
+你虹给男团发资源太快啦
+
+https://www.youtube.com/channel/UCUIj5cliImxsRVLHl0DanvQ/featured</blockquote>
+这是youtube自己生成的topic, 不是建的频道，前几期都有的：[https://www.youtube.com/channel/UCr7qbRH5uTBWUmwBbhkYrHQ/](https://www.youtube.com/channel/UCr7qbRH5uTBWUmwBbhkYrHQ/)
+
