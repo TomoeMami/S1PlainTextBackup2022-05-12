@@ -3707,3 +3707,12 @@ en有3d棚吗？话说回来成员地理位置分布又是什么情况？
 https://www.youtube.com/channel/UCUIj5cliImxsRVLHl0DanvQ/featured</blockquote>
 这是youtube自己生成的topic, 不是建的频道，前几期都有的：[https://www.youtube.com/channel/UCr7qbRH5uTBWUmwBbhkYrHQ/](https://www.youtube.com/channel/UCr7qbRH5uTBWUmwBbhkYrHQ/)
 
+
+
+*****
+
+####  fastary  
+##### 15334#       发表于 2022-6-24 00:33
+
+en五期好像离的不远，四期两个英一个瑞一个澳一个美，时差好像最大十小时来着？出道就聊过线下和联动比较难的事了。enkr有提过国外设3D棚的事吗，感觉还远着呢
+
