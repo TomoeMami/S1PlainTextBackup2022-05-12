@@ -12450,3 +12450,35 @@ nb那个我都没怎么看了，是真无聊感觉
 
 唐突长文，是要和et再续前缘？
 
+
+
+*****
+
+####  やト  
+##### 11698#       发表于 2022-6-23 10:08
+
+  这是心里留了一个传音石，苦等多年未果。   我大学分手的EX之前和说如果10年后大家都还单身就复合，然后在10周年前一个月她结婚了，然后我疯了一段时间，和千里这个苦等2年也有微妙的类似。
+
+  所以自己过好自己生活就行，我跟你讲，MEA还是很有趣，有空找点切片看看。
+
+*****
+
+####  千里夜雨  
+##### 11699#       发表于 2022-6-23 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56377468&amp;ptid=2018830" target="_blank">肥到终点 发表于 2022-6-23 09:43</a>
+唐突长文，是要和et再续前缘？</blockquote>
+跟我合作的人一大排，你心里只装了个et，你怎么不锁死呢？
+
+*****
+
+####  千里夜雨  
+##### 11700#       发表于 2022-6-23 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56377880&amp;ptid=2018830" target="_blank">やト 发表于 2022-6-23 10:08</a>
+这是心里留了一个传音石，苦等多年未果。   我大学分手的EX之前和说如果10年后大家都还单身就复合，然后 ...</blockquote>
+以后应该没空了
+我以前是9/5.5/5的工时，
+以后就是can only beat one的生活了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+所以zaz就劝我珍惜最后能摸的时候，而不是珍惜他用来给大家干活
+
