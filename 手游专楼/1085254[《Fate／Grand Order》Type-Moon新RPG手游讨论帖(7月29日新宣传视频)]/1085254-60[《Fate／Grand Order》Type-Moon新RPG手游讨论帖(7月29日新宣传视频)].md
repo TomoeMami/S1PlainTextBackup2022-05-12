@@ -1181,3 +1181,17 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 就是项羽AI改成集中输出血量少的人，C呆经常被三连打光肃正，要稍微盯着点适当给个无敌
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88611#       发表于 2022-6-24 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56373928&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-22 23:36</a>
+
+卑呆梅26回合过了项羽茶壶本了，这次回忆算是最简单的一次了。
+
+回想了一下，如果先打死项羽，左上角老芥的 ...</blockquote>
+兰陵王哭了，好闺蜜就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
