@@ -5550,3 +5550,14 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
 前边那位坛友还不习惯流转，我是觉得可以循序渐进
 
+
+
+*****
+
+####  医生狼多  
+##### 548#         楼主| 发表于 2022-6-23 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56386405&amp;ptid=2075355" target="_blank">猫坤 发表于 2022-6-23 20:11</a>
+流转二不是可以直接扫键转回原来的段么</blockquote>
+流转二不能原地tp吧？
+
