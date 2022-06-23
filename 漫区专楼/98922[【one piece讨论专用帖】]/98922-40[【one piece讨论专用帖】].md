@@ -4012,3 +4012,17 @@ op里出场过的夫妻好像都比较惨吧
 
 稻草人的能力搞起剧情杀来可以很恶心人，早点退场挺好的。想象一下比如山治打他然后他说我这条命是娜美的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DGIL  
+##### 58873#       发表于 2022-6-23 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56375508&amp;ptid=98922" target="_blank">posthoc 发表于 2022-6-23 01:41</a>
+
+稻草人的能力搞起剧情杀来可以很恶心人，早点退场挺好的。想象一下比如山治打他然后他说我这条命是娜美的[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他就应该种一颗在桃之助身上
+
+不过海贼王是不会这样使用能力的啦~<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
