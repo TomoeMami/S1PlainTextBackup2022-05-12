@@ -14305,3 +14305,16 @@ FV2xvhwaMAAS7Rl.jpg
 
 QQ群的抽奖是谁都能抽的吗？还是必须群里的人才可以？
 
+
+
+*****
+
+####  adw667  
+##### 10196#       发表于 2022-6-23 09:12
+
+ 本帖最后由 adw667 于 2022-6-23 09:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56373425&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-6-22 23:06</a>
+
+第三期等星播个三集再录吧，感觉上次录得太早了虹二才播一集都没啥好讲的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">官方赶紧出个剧场版或者番外让这两个角色碰个头好不好
+
