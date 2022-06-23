@@ -14296,3 +14296,12 @@ FV2xvhwaMAAS7Rl.jpg
 
 第三期等星播个三集再录吧，感觉上次录得太早了虹二才播一集都没啥好讲的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10195#       发表于 2022-6-23 08:32
+
+QQ群的抽奖是谁都能抽的吗？还是必须群里的人才可以？
+
