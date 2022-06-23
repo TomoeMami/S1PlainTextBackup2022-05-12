@@ -12505,3 +12505,25 @@ nb那个我都没怎么看了，是真无聊感觉
 
 他能听懂个几把<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你要无聊爹月底找点玩意儿给你整
 
+
+
+*****
+
+####  千里夜雨  
+##### 11703#       发表于 2022-6-23 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378028&amp;ptid=2018830" target="_blank">やト 发表于 2022-6-23 10:16</a>
+无所谓啊，当个普通观众就好，就是有时候无聊需要打发时间的时候，看看MEA。碎片时间看切片也不错啊，补 ...</blockquote>
+因为还没开始忙，现在听你说因为我很忙这话挺怪的hhhh
+
+*****
+
+####  千里夜雨  
+##### 11704#       发表于 2022-6-23 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378113&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-6-23 10:21</a>
+他能听懂个几把你要无聊爹月底找点玩意儿给你整</blockquote>
+你说得对，我听不懂日文
+你咩姐要是是个英语主播那就没问题了。
+没事，我看着接，谁先来我接谁，投哪都行，觉得太无聊我就拒搞
+
