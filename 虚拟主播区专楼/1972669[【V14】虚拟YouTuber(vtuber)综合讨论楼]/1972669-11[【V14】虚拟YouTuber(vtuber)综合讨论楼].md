@@ -3404,3 +3404,21 @@ syl， ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个模放封面enkr不觉得丢人吗
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15304#       发表于 2022-6-23 17:42
+
+看了眼管厕。
+yugo把和staff的对话都放出来了啊。
+压力真不小的样子。
+
+*****
+
+####  CielChloe  
+##### 15305#       发表于 2022-6-23 17:45
+
+同接低点就低点吧，sky当年也被叫做“第五护士”，在我看来边洗边养，尽快固化基本盘才是王道
+
