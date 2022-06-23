@@ -12560,3 +12560,14 @@ nb那个我都没怎么看了，是真无聊感觉
 
 你楼最近怎么流行诈尸啊，萨尔这种僵尸和千里这种homo都爬出来了，说好的麻将妹单人的小麻信息搬运楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千里夜雨  
+##### 11708#       发表于 2022-6-23 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56380240&amp;ptid=2018830" target="_blank">璃絵和花瑠 发表于 2022-6-23 12:25</a>
+无事发生。另外认识这个关系很多时候并不是双向的，你是谁做了什么大家都清楚，而……。 ...</blockquote>
+我要是大战米孝子能战到永封那这论坛我也不会注册第二个号的，你放心好了。泥潭有没啥我特别放不下的社交关系。
+
