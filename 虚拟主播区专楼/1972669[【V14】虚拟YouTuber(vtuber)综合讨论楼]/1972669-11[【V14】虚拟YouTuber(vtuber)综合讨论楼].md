@@ -3309,3 +3309,44 @@ syl， ...</blockquote>
 
 3G太快啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 15295#       发表于 2022-6-23 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56383382&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 16:18</a>
+
+パディ・ライアン
+
+这位就是教授啊……。没想到是正经接到过战国无双5角色的声优。
+
+5月1号光速和事务所解除 ...</blockquote>
+太火星了，之前声优事务所发阴阳公告就已经小炎过一波了（非常小的程度）
+
+这位管人出道前也有个瓜我一看发现当时竟然还稍微围观过，当然并不是他本人犯了什么错
+
+按声优事务所的说法不仅是单纯的退出而且（至少一段时间内）是不会再涉足声优界了
+
+本来我还觉得如果哪年哪月教授毕业了还能找点他的作品代餐一下，现在是难了
+
+*****
+
+####  fastary  
+##### 15296#       发表于 2022-6-23 16:38
+
+宇佐美这声音比昨天那位还普，感觉是纯地音。据说喜欢唱歌，难以想象……除此之外没什么特别的，fps也是人菜瘾大，最后花了好几分钟介绍自己喜欢吃毛豆和薄荷感觉不是很有节目效果……
+
+*****
+
+####  渡鸦骑士  
+##### 15297#       发表于 2022-6-23 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56383608&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-6-23 16:33</a>
+
+太火星了，之前声优事务所发阴阳公告就已经小炎过一波了（非常小的程度）
+
+这位管人出道前也有个瓜我一看 ...</blockquote>
+你虹确实不一样了啊，能给人家这么强大的信心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

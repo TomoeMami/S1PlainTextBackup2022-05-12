@@ -12551,3 +12551,12 @@ nb那个我都没怎么看了，是真无聊感觉
 跟我合作的人一大排，你心里只装了个et，你怎么不锁死呢？</blockquote>
 因为之前你俩的即兴homo演出shock到我了
 
+
+
+*****
+
+####  肚子疼了  
+##### 11707#       发表于 2022-6-23 16:39
+
+你楼最近怎么流行诈尸啊，萨尔这种僵尸和千里这种homo都爬出来了，说好的麻将妹单人的小麻信息搬运楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
