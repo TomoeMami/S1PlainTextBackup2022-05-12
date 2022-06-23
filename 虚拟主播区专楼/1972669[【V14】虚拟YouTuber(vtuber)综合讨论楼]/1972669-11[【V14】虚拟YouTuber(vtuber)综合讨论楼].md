@@ -3272,3 +3272,18 @@ syl， ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">出现了 直播喝洗发水（只尝味道不吞下去）真狠啊
 
+
+
+*****
+
+####  fastary  
+##### 15292#       发表于 2022-6-23 16:06
+
+御子柴仁，很顺耳的爽朗现充帅哥音(虽然我听不惯关西腔)，对音乐有研究、喜欢游戏是金游，感觉还挺王道的，不知道会不会是枪男候补(不过没提段位估计只是人菜瘾大吧)
+
+因为目前展示的只有杂谈所以对他们提学舞蹈的话题真的没有一点实感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+据说一期生都挺会打枪的，什么时候放出来瞅瞅啊，纯杂谈对非杂谈势又不是必要素养<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+因为立绘所以初配信标题写了关西的闪闪但其实完全没接触过fate，好蹭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
