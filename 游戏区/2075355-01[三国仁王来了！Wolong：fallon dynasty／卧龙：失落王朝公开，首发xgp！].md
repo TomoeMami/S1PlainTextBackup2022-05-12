@@ -5616,3 +5616,16 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FFO职业适应性和职业证我觉得更加重量级，我打了这玩意快100小时，快一半的时间是在跟魔界花和狮鹫约会
 
+
+
+*****
+
+####  tornadoDA  
+##### 554#       发表于 2022-6-24 01:19
+
+<blockquote>zqqwe 发表于 2022-6-23 23:24
+其实残心系统保留取消硬直和切段获得buff的奖励，去除耐力要素，对游戏性是完全没有负面影响的。
+
+流转可以 ...</blockquote>
+pc可以开风灵月影刷东西
+
