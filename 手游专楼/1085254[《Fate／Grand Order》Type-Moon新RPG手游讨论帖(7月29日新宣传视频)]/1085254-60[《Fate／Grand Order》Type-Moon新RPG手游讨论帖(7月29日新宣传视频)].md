@@ -1113,3 +1113,45 @@ syl 这次的金箱子，除了最后一天的结晶，给的素材都很一般�
 
 在国内经常以“妖刀村正？你听过村雨吗？”的形式出现于各种网文、通俗娱乐读物，但也没几个人认认真真写这东西为什么厉害的的村雨，就出自八犬传里面吧
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88607#       发表于 2022-6-23 21:15
+
+ 本帖最后由 gpx234mqx 于 2022-6-23 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56383241&amp;ptid=1085254" target="_blank">kisskick 发表于 2022-6-23 16:08</a>
+
+在国内经常以“妖刀村正？你听过村雨吗？”的形式出现于各种网文、通俗娱乐读物，但也没几个人认认真真写这 ...</blockquote>
+Bastard暗黑破坏神的忍者王卡拉的武器就是村雨啊
+
+反而村正没听说过
+
+*****
+
+####  gpx234mqx  
+##### 88608#       发表于 2022-6-23 21:18
+
+杀生院和B叔挺到最后
+
+道具全拿光
+
+C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
+(982.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202206/23/211822l3v39a0hvetz4hg4.png" referrerpolicy="no-referrer">
+
+08683ADC-7090-4C81-8958-538B8A47F7A4.png
+(609.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-23 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202206/23/211823p1ct4y7jwsm7yics.png" referrerpolicy="no-referrer">
+
