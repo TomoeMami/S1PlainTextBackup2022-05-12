@@ -2804,3 +2804,35 @@ liver会什么语言，用什么语言来吸引观 ...</blockquote>
 
 你就揪着一个”歌有英文版本“的点，就开始谈”运营方向“、”令人唏嘘“，对成员的了解也限于”没什么接触点“，很难不觉得云啊，楼友。
 
+
+
+*****
+
+####  rzrbtk  
+##### 15251#       发表于 2022-6-23 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378002&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 10:14</a>
+
+只是我觉得拿莎乐美和这些靠着箱推拿个出道同接的比有点不公平。
+
+怎么看也要拿那些有破圈趋势的liver来比 ...</blockquote>
+<strong>你虹特有的同接蒸发现象.png</strong>
+
+*****
+
+####  渡鸦骑士  
+##### 15252#       发表于 2022-6-23 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378278&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-23 10:29</a>
+
+我觉得云的地方：
+
+“特意出个英文版本-en出的歌还一堆日文”，官方曲/liver自选曲有什么可“方向对比” ...</blockquote>
+我唏嘘的是明明是en却在出日文歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+运营方向又没什么好说的。这三个人平时也不怎么唱英文歌也是不争的事实啊。从她们的喜好到她们观众的受众都是偏向于日文歌的。
+
+我觉得最无法理解的，就是你们会觉得这个组合可能是chima作为构建的核心或者说，拉人的主体。运营看着chima关系好，歌也唱的不错，所以选个茜一起组合。这也很正常我能理解啊。
+
+我说有英文版本也就想表达一下你虹运营有这个想法。至于你们解读出什么来关我什么事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
