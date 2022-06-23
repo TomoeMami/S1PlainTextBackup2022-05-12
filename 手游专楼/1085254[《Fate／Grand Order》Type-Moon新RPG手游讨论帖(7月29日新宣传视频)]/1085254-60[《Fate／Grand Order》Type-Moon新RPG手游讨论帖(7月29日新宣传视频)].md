@@ -1155,3 +1155,15 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://img.saraba1st.com/forum/202206/23/211823p1ct4y7jwsm7yics.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 88609#       发表于 2022-6-23 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56383241&amp;ptid=1085254" target="_blank">kisskick 发表于 2022-6-23 16:08</a>
+
+在国内经常以“妖刀村正？你听过村雨吗？”的形式出现于各种网文、通俗娱乐读物，但也没几个人认认真真写这 ...</blockquote>
+村雨不是村正千人斩以后追加免洗功能的限定版吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
