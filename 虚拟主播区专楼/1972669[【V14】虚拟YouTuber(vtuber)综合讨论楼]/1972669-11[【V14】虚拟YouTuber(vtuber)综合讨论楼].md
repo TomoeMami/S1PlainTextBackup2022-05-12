@@ -3483,3 +3483,16 @@ Syl，真的很希望回归叶星版本，再续前缘骗点切片帮星宝冲�
 met哪有这个频率，而且人家好歹也是老朋友了，还不如说丽
 Lisa这种突然冒出来，瞬间玩到一起去的还满特别的
 
+
+
+*****
+
+####  rzrbtk  
+##### 15312#       发表于 2022-6-23 19:23
+
+ 本帖最后由 rzrbtk 于 2022-6-23 19:26 编辑 
+
+虽然看起来像是在说星川坏话但我真的是褒义，星川的cp关系性里一般是观众爱得比较深<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不如说所有管人都这样，骗得我好狠<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">！
+
