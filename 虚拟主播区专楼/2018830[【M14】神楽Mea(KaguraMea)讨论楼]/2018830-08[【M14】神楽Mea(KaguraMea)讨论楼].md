@@ -12539,3 +12539,15 @@ nb那个我都没怎么看了，是真无聊感觉
 不认识的人呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我是不懂你们的熟人社会什么的啊，不过至少还是知道你是谁做了什么的。不是在外野封了一年么，提前放出来了？
 
+
+
+*****
+
+####  肥到终点  
+##### 11706#       发表于 2022-6-23 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56377886&amp;ptid=2018830" target="_blank">千里夜雨 发表于 2022-6-23 10:08</a>
+
+跟我合作的人一大排，你心里只装了个et，你怎么不锁死呢？</blockquote>
+因为之前你俩的即兴homo演出shock到我了
+
