@@ -2836,3 +2836,30 @@ liver会什么语言，用什么语言来吸引观 ...</blockquote>
 
 我说有英文版本也就想表达一下你虹运营有这个想法。至于你们解读出什么来关我什么事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃咸菜的  
+##### 15253#       发表于 2022-6-23 10:44
+
+ 本帖最后由 吃咸菜的 于 2022-6-23 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56377661&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-23 09:55</a>
+抬头就说了是“同接蒸发图”，只是为了说明第一次和一个月后的对比降幅不是哪家特有的，我第一张图都附了 ...</blockquote>
+你用变化率都是0.9多，差了5%，换成留存率就是高出70%了。都是一份数据，这结论可差远了
+何况你这图表按高度变化率都是虹比杏跌的少了，你不觉得有问题吗？
+
+*****
+
+####  rzrbtk  
+##### 15254#       发表于 2022-6-23 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378519&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2022-6-23 10:44</a>
+
+你用变化率都是0.9多，差了5%，换成留存率就是高出70%了。都是一份数据，这结论可差远了
+
+何况你这表按高 ...</blockquote>
+我觉得有问题啊，用"初次直播-一个月后单次直播"是看不出东西的，是用来反映楼友“特有的同接蒸发”，
+
+错误的定义当然会导致错误的结论，我没有数字造假哈<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
