@@ -3261,3 +3261,14 @@ syl， ...</blockquote>
 
 不知道是vta选拔标准还是排练过，目前初配信都能侃半小时没出现过本社那种“虹味事故”(大概)
 
+
+
+*****
+
+####  死体残留  
+##### 15291#       发表于 2022-6-23 15:53
+
+ 本帖最后由 死体残留 于 2022-6-23 15:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">出现了 直播喝洗发水（只尝味道不吞下去）真狠啊
+
