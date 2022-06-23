@@ -3245,3 +3245,19 @@ syl， ...</blockquote>
 
 郡gachi好难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 15289#       发表于 2022-6-23 14:04
+
+呃呃，2022年6月虹杏大战是否……
+
+*****
+
+####  fastary  
+##### 15290#       发表于 2022-6-23 14:09
+
+不知道是vta选拔标准还是排练过，目前初配信都能侃半小时没出现过本社那种“虹味事故”(大概)
+
