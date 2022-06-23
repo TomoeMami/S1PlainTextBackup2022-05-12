@@ -3716,3 +3716,19 @@ https://www.youtube.com/channel/UCUIj5cliImxsRVLHl0DanvQ/featured</blockquote>
 
 en五期好像离的不远，四期两个英一个瑞一个澳一个美，时差好像最大十小时来着？出道就聊过线下和联动比较难的事了。enkr有提过国外设3D棚的事吗，感觉还远着呢
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15335#       发表于 2022-6-24 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56389554&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-24 00:33</a>
+
+en五期好像离的不远，四期两个英一个瑞一个澳一个美，时差好像最大十小时来着？出道就聊过线下和联动比较难 ...</blockquote>
+自建3D棚开销太高了，不是一个en部能承担得起的，而且还需要工作人员的配置和绑骨调试
+
+我记得的mori还是kiara说过，就连租用成品棚也非常昂贵，最合适的还是飞日本
+
+Syl，en成员在四期前基本上集中在CA和阿美，四期多了土澳日本和欧洲区的分布
+
