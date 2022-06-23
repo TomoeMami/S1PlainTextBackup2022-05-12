@@ -2863,3 +2863,30 @@ liver会什么语言，用什么语言来吸引观 ...</blockquote>
 
 错误的定义当然会导致错误的结论，我没有数字造假哈<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 15255#       发表于 2022-6-23 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378414&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 10:37</a>
+
+我唏嘘的是明明是en却在出日文歌啊
+
+运营方向又没什么好说的。这三个人平时也不怎么唱英文歌也是不 ...</blockquote>
+有什么可唏嘘的啊？ina也唱日文歌啊？也唏嘘？
+
+*****
+
+####  rzrbtk  
+##### 15256#       发表于 2022-6-23 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56378414&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 10:37</a>
+
+我唏嘘的是明明是en却在出日文歌啊
+
+运营方向又没什么好说的。这三个人平时也不怎么唱英文歌也是不 ...</blockquote><blockquote>我觉得最<strong>无法理解的</strong>，就是你们会觉得这个组合可能是chima作为构建的核心或者说，拉人的主体。运营看着chima关系好，歌也唱的不错，所以选个茜一起组合。这也很正常<strong>我能理解啊</strong>。</blockquote>
+
+楼友的中文水平无疑给我的“解读”增加了困难。
+
