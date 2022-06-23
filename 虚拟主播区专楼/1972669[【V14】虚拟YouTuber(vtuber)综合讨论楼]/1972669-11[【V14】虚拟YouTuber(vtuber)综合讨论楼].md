@@ -3451,3 +3451,12 @@ https://realsound.jp/tech/2022/06/post-1059808.html
 二哥有新女人了啊，Lisa
 我感觉是第一次见他这么喜欢跟一个女v一起玩
 
+
+
+*****
+
+####  ヒトニナル  
+##### 15309#       发表于 2022-6-23 18:55
+
+小护士那是自己喜欢玩，莎皇这是工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DBD这手游也找了不少大物工商了，但我觉得不太行
+
