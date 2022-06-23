@@ -3064,3 +3064,49 @@ zsyl，专业观众敢于下判断，slm半年后ngo完成体水平就差不多�
 肯定没什么关系呀 就是单纯的回调罢了 syl要从几个月看的意思是别总是一次直播看 今天晚上又没holo ...</blockquote>
 这个讨论我从头到尾就没看懂 还是一个道理讨论同接要把时间拉长 到时候又高了了 又拉出来分析了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 15271#       发表于 2022-6-23 12:03
+
+ 本帖最后由 CielChloe 于 2022-6-23 12:08 编辑 
+
+“管人文学”阅读理解：
+莎宝最近的童话新编中，定制的金皮卡头巾，暗喻特别定制的皮套，头巾过于合适而不再能戴其他东西，是指皮对中之人的束缚；妈妈叮嘱小金帽要礼仪端正，不然打翻王水会腐蚀金子，则是一种商业价值受损的象征；小金帽沉迷于挖金子，也暗合延迟出道；最后在外婆家的情节，用了诸多直播梗，小金帽似乎就是指莎宝…
+
+我编不下去了，以上全胡诌（叠甲过
+
+*****
+
+####  渡鸦骑士  
+##### 15272#       发表于 2022-6-23 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56379769&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-23 11:54</a>
+
+说得虹liver好像很听话一样，不是自己想主流出道的人能拿到这个位置几乎不可能，床续上次的虹砖事故之后 ...</blockquote>
+这点上确实不知道阿床是怎么想的。按理说阿床早早就sololive了，livebd也卖得出数据，找个唱片公司签约出个专完全不是什么问题。到现在反而是组合出道。
+
+呜啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 15273#       发表于 2022-6-23 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56379746&amp;ptid=1972669" target="_blank">黑皇帝 发表于 2022-6-23 11:53</a>
+道理我都懂，但是作为toko单推，看见她组合出道甚至好像不是c位，心情怎么就这么复杂呢
+ ...</blockquote>
+从这次宣传图看，也很难说谁是C，千麻在中间，但也站最远。
+toko不是单独出道确实是有种意难平
+
+*****
+
+####  天悬星河  
+##### 15274#       发表于 2022-6-23 12:10
+
+想要维持高浓度演技一小时限定的游戏<strong>直播</strong>系列的节目效果还是有点难了，游戏力还进一步缩窄了游戏选择范围。这种风格其实本来常见于有剪辑的实况视频
+
+目前倾向于认为生化7系列的热潮是天时地利人和的一次奇迹，马后炮的说生7后想续热度选有知名度的恐游会好一些
+
