@@ -5561,3 +5561,14 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 流转二不是可以直接扫键转回原来的段么</blockquote>
 流转二不能原地tp吧？
 
+
+
+*****
+
+####  asakura20005  
+##### 549#       发表于 2022-6-23 21:51
+
+提前切段后再用流转二不就可以回到原段位了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
