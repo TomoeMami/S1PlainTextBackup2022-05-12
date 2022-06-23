@@ -1167,3 +1167,17 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 在国内经常以“妖刀村正？你听过村雨吗？”的形式出现于各种网文、通俗娱乐读物，但也没几个人认认真真写这 ...</blockquote>
 村雨不是村正千人斩以后追加免洗功能的限定版吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 88610#       发表于 2022-6-23 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56370076&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-22 19:51</a>
+
+这次茶壶本老李和始皇帝比较简单，始皇帝我是用了两化令咒给黑贞充能，但是如果肯刷发牌的话，再配合拐应该 ...</blockquote>
+刚打完，挺稳的
+
+就是项羽AI改成集中输出血量少的人，C呆经常被三连打光肃正，要稍微盯着点适当给个无敌
+
