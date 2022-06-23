@@ -3030,3 +3030,37 @@ slm能高同接保持一个月已经相当恐怖了，到现在还能保持4w+�
 
 （没发现郡噶吃老哥是反讽，没幽默感了，对不起...）
 
+
+
+*****
+
+####  黑皇帝  
+##### 15268#       发表于 2022-6-23 11:53
+
+道理我都懂，但是作为toko单推，看见她组合出道甚至好像不是c位，心情怎么就这么复杂呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 15269#       发表于 2022-6-23 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56379042&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-23 11:16</a>
+
+嗯，我试着说清楚点……
+
+我觉得不可能是说虹运营给了chima一个机会去选择自己希望的人来组成组合来出道。
+
+ ...</blockquote>
+说得虹liver好像很听话一样，不是自己想主流出道的人能拿到这个位置几乎不可能，床续上次的虹砖事故之后第一次官方曲，你觉得她会”嗯嗯虹需要我那我就上了捏“吗，那这种反差也确实令人唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">...
+
+zsyl，专业观众敢于下判断，slm半年后ngo完成体水平就差不多了
+
+*****
+
+####  越动天下  
+##### 15270#       发表于 2022-6-23 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56342525&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-6-20 18:16</a>
+肯定没什么关系呀 就是单纯的回调罢了 syl要从几个月看的意思是别总是一次直播看 今天晚上又没holo ...</blockquote>
+这个讨论我从头到尾就没看懂 还是一个道理讨论同接要把时间拉长 到时候又高了了 又拉出来分析了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
