@@ -2984,3 +2984,49 @@ syl， ...</blockquote>
 yysy，双马尾组虽然不比crowns，加个柴卡也是有点名气的组合了
 akn包括歌谣祭mc以及别人杂谈里当声乐指导，也算是积分刷够混出头了
 
+
+
+*****
+
+####  rzrbtk  
+##### 15265#       发表于 2022-6-23 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56379226&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-6-23 11:26</a>
+
+他的意思应该是你想说明留存率，肯定是多点作图，没有哪个数据图会只有两点做线，是你的图其实不直接反应 ...</blockquote>
+要自己解释梗还是挺不好意思的<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">，
+
+楼友1对slm单次直播数字发表言论”<strong>特有</strong>的同接蒸发“，我作图表示虹杏新人如果都<strong>只</strong>取”出道回-一月后单次直播“的数字那么大家都大差不差，楼友2认为这种采样方式以及由此得出的结论是不对的，
+
+那我确实认同哈！
+
+*****
+
+####  fastary  
+##### 15266#       发表于 2022-6-23 11:36
+
+为什么虹出谷半热半冷黑客也放话说任enkr出我还是没有黑客谷买<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tohellwithit  
+##### 15267#       发表于 2022-6-23 11:37
+
+ 本帖最后由 tohellwithit 于 2022-6-23 11:39 编辑 
+
+slm能高同接保持一个月已经相当恐怖了，到现在还能保持4w+换个游戏播说不定还能回到8w，前所未有的成绩
+
+“同接蒸发”本来就伪命题
+
+你杏这时候都跌到日常直播5k—1w+不等，然后播个半年一年观众群稳定了才谈增长的
+
+不过说回来了，之前nbxx的前五次直播分析，留存率也并没有夸张到哪去就是普通的高
+
+起码前几次是依靠吸引新观众保持高同接的，说不定现在也只是路人看到绝体绝命都市就不想来看了，而不是已有的slm粉丝离去呢
+
+很想看slm一整个月的评论留存率
+
+还想看未来出道的新人v能学slm这样子，直播时间短稳定且准备精良，会不会影响留存率
+
+（没发现郡噶吃老哥是反讽，没幽默感了，对不起...）
+
