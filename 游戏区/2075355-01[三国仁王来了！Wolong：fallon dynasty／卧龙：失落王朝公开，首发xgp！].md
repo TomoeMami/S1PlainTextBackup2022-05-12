@@ -5572,3 +5572,17 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  barry.allen  
+##### 550#       发表于 2022-6-23 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56387784&amp;ptid=2075355" target="_blank">asakura20005 发表于 2022-6-23 21:51</a>
+
+提前切段后再用流转二不就可以回到原段位了
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2- ...</blockquote>
+提前切断和武器出招速度也有关系，出招长的好切，有的出招特别快有有点费劲了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

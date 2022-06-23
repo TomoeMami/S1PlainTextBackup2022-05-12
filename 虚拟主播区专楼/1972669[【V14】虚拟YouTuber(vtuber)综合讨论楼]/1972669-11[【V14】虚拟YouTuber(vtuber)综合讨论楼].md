@@ -3603,3 +3603,14 @@ chima组合出道还挺为她高兴 毕竟论时长可能是我这一年多实�
 
 早点玩mc不比这个强。
 
+
+
+*****
+
+####  CielChloe  
+##### 15324#       发表于 2022-6-23 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56387126&amp;ptid=1972669" target="_blank">11512 发表于 2022-6-23 21:02</a>
+https://youtu.be/oW-RlZu_wg4 大小姐开播了desuwa</blockquote>
+是突击MC吗？现在已经看不到了
+
