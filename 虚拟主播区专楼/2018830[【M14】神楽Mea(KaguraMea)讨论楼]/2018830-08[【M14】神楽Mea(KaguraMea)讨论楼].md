@@ -12482,3 +12482,26 @@ nb那个我都没怎么看了，是真无聊感觉
 以后就是can only beat one的生活了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 所以zaz就劝我珍惜最后能摸的时候，而不是珍惜他用来给大家干活
 
+
+
+*****
+
+####  やト  
+##### 11701#       发表于 2022-6-23 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56377921&amp;ptid=2018830" target="_blank">千里夜雨 发表于 2022-6-23 10:10</a>
+
+以后应该没空了
+
+我以前是9/5.5/5的工时，
+
+以后就是can only beat one的生活了</blockquote>
+无所谓啊，当个普通观众就好，就是有时候无聊需要打发时间的时候，看看MEA。碎片时间看切片也不错啊，补录像怕你时间不够了，因为你很忙。能听懂就好，不要太在意细节。
+
+*****
+
+####  时间在我手中  
+##### 11702#       发表于 2022-6-23 10:21
+
+他能听懂个几把<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你要无聊爹月底找点玩意儿给你整
+
