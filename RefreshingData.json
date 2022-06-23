@@ -184,10 +184,10 @@
     "active": true
   },
   "2051666": {
-    "totalreply": 13891,
+    "totalreply": 13893,
     "title": "[『异度神剑 3 ／ Xenoblade 3』宣传视频公开！2022年9月发售！…]",
     "newtitle": "[『异度神剑3 ／ Xenoblade3』PV3公开！7月29日发售2楼新情报]",
-    "lastedit": 1656021628,
+    "lastedit": 1656027238,
     "category": "游戏区",
     "active": true
   },
@@ -1112,10 +1112,10 @@
     "active": true
   },
   "2074554": {
-    "totalreply": 19612,
+    "totalreply": 19615,
     "title": "[【A31】A-SOUL讨论楼（6.12 20：00 向晚生日会）]",
     "newtitle": "[【A31】A-SOUL讨论楼（6.12 20：00 向晚生日会）]",
-    "lastedit": 1656021739,
+    "lastedit": 1656027189,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2805,7 +2805,7 @@
     "newtitle": "[飞机延误，男子因48小时核酸报告过期3分钟无法登机]",
     "lastedit": 1655421221,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2075725": {
     "totalreply": 61,
@@ -4872,10 +4872,10 @@
     "active": true
   },
   "2077473": {
-    "totalreply": 140,
+    "totalreply": 141,
     "title": "[jg通报父女黄码看病闯卡被拦后＊＊]",
     "newtitle": "[jg通报父女黄码看病闯卡被拦后＊＊]",
-    "lastedit": 1656026530,
+    "lastedit": 1656027233,
     "category": "外野",
     "active": true
   },
@@ -4976,10 +4976,10 @@
     "active": true
   },
   "2077541": {
-    "totalreply": 347,
+    "totalreply": 349,
     "title": "[【B59】VUP综合讨论楼]",
     "newtitle": "[【B59】VUP综合讨论楼]",
-    "lastedit": 1656026529,
+    "lastedit": 1656027181,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -5048,10 +5048,18 @@
     "active": false
   },
   "2076747": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[steam夏促将于6.24凌晨1点开始，至7.8]",
     "newtitle": "[steam夏促将于6.24凌晨1点开始，至7.8]",
-    "lastedit": 1656026026,
+    "lastedit": 1656027128,
+    "category": "游戏区",
+    "active": true
+  },
+  "2077450": {
+    "totalreply": 62,
+    "title": "[打到最终boss前就不想打了]",
+    "newtitle": "[打到最终boss前就不想打了]",
+    "lastedit": 1656027131,
     "category": "游戏区",
     "active": true
   }
