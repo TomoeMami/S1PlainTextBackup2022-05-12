@@ -4026,3 +4026,16 @@ op里出场过的夫妻好像都比较惨吧
 
 不过海贼王是不会这样使用能力的啦~<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 58874#       发表于 2022-6-23 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还记得蛋糕岛当时岛上同时有克隆的科技和修改记忆的果实，我还猜想会有什么特别复杂的计谋
+
+结果什么都没有
+
+op的能力是很花，运用还是不会太复杂
+

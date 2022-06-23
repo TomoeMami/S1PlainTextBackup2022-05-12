@@ -12527,3 +12527,15 @@ nb那个我都没怎么看了，是真无聊感觉
 你咩姐要是是个英语主播那就没问题了。
 没事，我看着接，谁先来我接谁，投哪都行，觉得太无聊我就拒搞
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 11705#       发表于 2022-6-23 12:25
+
+ 本帖最后由 璃絵和花瑠 于 2022-6-23 12:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56376855&amp;ptid=2018830" target="_blank">千里夜雨 发表于 2022-6-23 09:02</a>
+不认识的人呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我是不懂你们的熟人社会什么的啊，不过至少还是知道你是谁做了什么的。不是在外野封了一年么，提前放出来了？
+
