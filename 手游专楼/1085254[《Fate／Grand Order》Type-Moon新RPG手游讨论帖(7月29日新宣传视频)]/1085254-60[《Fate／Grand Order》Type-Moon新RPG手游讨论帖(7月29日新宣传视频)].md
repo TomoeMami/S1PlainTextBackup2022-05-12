@@ -1384,3 +1384,15 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 魔伊最新话巨侠要杀樱证道了 手雷 机枪 地雷真的很好用啊 什么时候出魔伊联动二期活动送个巨侠卡啊 ...</blockquote>
 这种卡白送估计yls脑子被踢了，当然是高贵的限定五星啦
 
+
+
+*****
+
+####  khxooo  
+##### 88630#       发表于 2022-6-25 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56401668&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-24 21:12</a>
+
+这种卡白送估计yls脑子被踢了，当然是高贵的限定五星啦</blockquote>
+送狂樱那不是更好？
+

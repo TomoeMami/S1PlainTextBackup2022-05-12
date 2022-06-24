@@ -14807,3 +14807,33 @@ Liella!2期生の初顔合わせは1年前
 
 大家不用郁闷，明年在加3人，12星座不可避。
 
+
+
+*****
+
+####  型月重工  
+##### 10240#       发表于 2022-6-25 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56403657&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-24 23:59</a>
+一年换加一届一直续 前面的到时间直接毕业  多大个事</blockquote>
+那起码小百合还得唱2-3年呢。
+
+*****
+
+####  稀勢のささ  
+##### 10241#       发表于 2022-6-25 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56403701&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-25 00:03</a>
+
+那起码小百合还得唱2-3年呢。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">第二季搞个铃原传不就得了 直接开摸
+
+*****
+
+####  型月重工  
+##### 10242#       发表于 2022-6-25 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56403709&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-6-25 00:04</a>
+第二季搞个铃原传不就得了 直接开摸</blockquote>
+宣传图那么大的香音你觉得可能吗。
+
