@@ -14848,3 +14848,23 @@ Liella!2期生の初顔合わせは1年前
 
 我这种角色派的还得忍着给勾八运营送钱买谷。我有罪。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 10244#       发表于 2022-6-25 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56403553&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-24 23:45</a>
+说的是初次跟二期生见面，但我不认为她们之前不知道会加人，又不是军事机密，加人这么大的事怎么可能藏的住 ...</blockquote>
+以运营的智障程度，我还真觉得他们能做出瞒住这种事；又忍不住猜想鲤鱼写下“五人的绊”时究竟是什么心情写下的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 10245#       发表于 2022-6-25 03:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鲤鱼的签名活动永远抽不中…………
+
