@@ -14523,3 +14523,12 @@ ytb上那个用赛马娘式的角色属性列表来展示星团的ペンギン�
 
 nagi为什么这么被低估，每次都很稳啊，声音也不夹，听着很舒服
 
+
+
+*****
+
+####  lj205  
+##### 10209#       发表于 2022-6-24 18:31
+
+鲤鱼跟MAY'N的小剧场笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
