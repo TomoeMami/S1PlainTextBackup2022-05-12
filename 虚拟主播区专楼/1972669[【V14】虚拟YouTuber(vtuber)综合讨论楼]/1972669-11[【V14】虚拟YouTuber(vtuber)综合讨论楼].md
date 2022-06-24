@@ -3853,3 +3853,15 @@ https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
 
 其实也是管人观众老乐子了。以前多拉中之人是某50岁歌手的桥段还蛮好笑的，也确实像。
 
+
+
+*****
+
+####  kangkangsama  
+##### 15347#       发表于 2022-6-24 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56393276&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-24 11:19</a>
+
+声质是像的，但我觉得主播只要不是完全地声（德比地声更低），这种高音营业声都挺接近，lulu和小泉萌香他 ...</blockquote>
+主要还是想做做梦，是真的那就太虹太种了。本身她之前也有玩票的前科。再说你虹火爆新人一路以来大多不是独狗就是小团体，这么个团爱女菩萨也没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
