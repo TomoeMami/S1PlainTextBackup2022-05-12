@@ -14480,3 +14480,17 @@ QQ群的抽奖是谁都能抽的吗？还是必须群里的人才可以？
 伊利诺伊州自然资源部助理渔业主管凯文·艾恩斯表示：“‘鲤鱼’这个名字太刺耳了，人们甚至都不会尝试。但它健康、干净，而且味道很好。”据悉，鲤鱼的英文carp有“找茬儿”的意思，而它的新名字 “copi”是英文单词“丰富”(copious)的缩写，意指美国中部地区丰富的鳙鱼、银鱼、草鱼和黑鲤。 (任筱楠)</blockquote>
 痛失美国市场<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 10205#       发表于 2022-6-24 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56360154&amp;ptid=2036367" target="_blank">名津流 发表于 2022-6-22 02:37</a>
+
+ytb上那个用赛马娘式的角色属性列表来展示星团的ペンギン家臣団昨晚终于更新了5人里最后一位的恋
+
+原视频作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼和nagi的唱歌也太被低估了，现在旧5人里小百合应该是唱歌最拉的那个.......
+

@@ -3891,3 +3891,24 @@ https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
 
 我宣布selen是你虹最好的主播
 
+
+
+*****
+
+####  poipanchao  
+##### 15351#       发表于 2022-6-24 13:11
+
+noah关了两个礼拜吧，新人也有了，老东西该被孤立了
+
+*****
+
+####  rzrbtk  
+##### 15352#       发表于 2022-6-24 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56394057&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2022-6-24 12:06</a>
+
+主要还是想做做梦，是真的那就太虹太种了。本身她之前也有玩票的前科。再说你虹火爆新人一路以来大多不是 ...</blockquote>
+那确实要乐肯定是中之人德比说更乐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+syl，太期待ngo的3D了，自认没活的3D直播能干出什么事<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
