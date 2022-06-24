@@ -14688,3 +14688,19 @@ Liella!2期生の初顔合わせは1年前
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在圈子里说不定又开始岁月史书整一家亲了，说一期生二期生分开看成两个团大概还要被冲
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10226#       发表于 2022-6-24 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔家的东西上货是真的慢 4月变6月底
+
+*****
+
+####  老1.5  
+##### 10227#       发表于 2022-6-24 23:11
+
+反正我不care了，我专心推阿渚和鱼，虽然是大龄新秀（相对而言）但是她俩自身的气质我就蛮喜欢。至于企划就是一个壳罢了，各自通过这个平台发展个人事业才是重头。偶像企划向来一代新人换旧人，可是人又有几年青春功夫拿来推一个又一个新团？不好意思做不到，我还就是因为鱼才再来搞拉拉相关，不然早忙忘了LL。大人的世界很复杂，但是人总可以让自己过简单一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
