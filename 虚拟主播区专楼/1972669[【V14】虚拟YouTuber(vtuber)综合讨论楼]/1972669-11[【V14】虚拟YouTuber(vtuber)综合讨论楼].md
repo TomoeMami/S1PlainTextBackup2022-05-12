@@ -3865,3 +3865,29 @@ https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
 声质是像的，但我觉得主播只要不是完全地声（德比地声更低），这种高音营业声都挺接近，lulu和小泉萌香他 ...</blockquote>
 主要还是想做做梦，是真的那就太虹太种了。本身她之前也有玩票的前科。再说你虹火爆新人一路以来大多不是独狗就是小团体，这么个团爱女菩萨也没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 15348#       发表于 2022-6-24 12:20
+
+胡桃被关了多久来着，怎么就回来了
+
+*****
+
+####  CielChloe  
+##### 15349#       发表于 2022-6-24 12:22
+
+所以为啥突然又开始讨论德比说，是单纯火星还是那边又有啥新节奏了？
+懒得爬5ch，有无二手屎<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 15350#       发表于 2022-6-24 12:24
+
+哇selen这个400k的桌面宠物
+
+我宣布selen是你虹最好的主播
+
