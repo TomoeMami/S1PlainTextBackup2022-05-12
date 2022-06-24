@@ -4324,3 +4324,70 @@ vspoになりました
 
 看来vspo第一个稳定万棒选手有戏了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 15396#       发表于 2022-6-24 21:13
+
+这下旅团面试了
+
+*****
+
+####  alcoholic1000  
+##### 15397#       发表于 2022-6-24 21:14
+
+叛忍二号机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道你虹早点把KR划成一等民她还会不会跑
+
+*****
+
+####  克罗夏  
+##### 15398#       发表于 2022-6-24 21:15
+
+还能和你虹联动吗？
+
+*****
+
+####  越动天下  
+##### 15399#       发表于 2022-6-24 21:15
+
+yysy打枪不会和你虹联动我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 乐
+
+*****
+
+####  Suzutsuki  
+##### 15400#       发表于 2022-6-24 21:15
+
+胡桃刚被关禁闭回来，最强的盟友bora来了
+
+*****
+
+####  noHentai  
+##### 15401#       发表于 2022-6-24 21:16
+
+你虹这个复仇者联盟真是兵强马壮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15402#       发表于 2022-6-24 21:16
+
+KR现在出个谷都费劲，这不是跑得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15403#       发表于 2022-6-24 21:16
+
+又不是第一个跑的了，yuya不是照样跟yqqx联动
+
+*****
+
+####  Junchoon  
+##### 15404#       发表于 2022-6-24 21:18
+
+哈？跌丝袜一个月出道纪念就播了10分钟，继“史无前例”的百万纪念回后，我又见识到了难以言表的操作......
+

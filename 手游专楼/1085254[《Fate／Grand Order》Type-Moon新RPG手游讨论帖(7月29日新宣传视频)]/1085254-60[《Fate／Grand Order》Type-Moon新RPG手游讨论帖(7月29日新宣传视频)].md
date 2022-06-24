@@ -1373,3 +1373,14 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔伊最新话巨侠要杀樱证道了 手雷 机枪 地雷真的很好用啊 什么时候出魔伊联动二期活动送个巨侠卡啊
 
+
+
+*****
+
+####  angelooo  
+##### 88629#       发表于 2022-6-24 21:12
+
+<blockquote>qixinno2 发表于 2022-6-24 20:33
+魔伊最新话巨侠要杀樱证道了 手雷 机枪 地雷真的很好用啊 什么时候出魔伊联动二期活动送个巨侠卡啊 ...</blockquote>
+这种卡白送估计yls脑子被踢了，当然是高贵的限定五星啦
+
