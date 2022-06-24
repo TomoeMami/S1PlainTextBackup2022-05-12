@@ -1248,3 +1248,25 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 好羡慕有2宝狂娜的人啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你有无敌的水b无敌的那谁和那谁啊
 
+
+
+*****
+
+####  qixinno2  
+##### 88617#       发表于 2022-6-24 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399644&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 18:39</a>
+
+你有无敌的水b无敌的那谁和那谁啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">水B不是公认的水枪么 无敌个毛线 
+
+*****
+
+####  alucardcz  
+##### 88618#       发表于 2022-6-24 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399736&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-24 18:48</a>
+
+水B不是公认的水枪么 无敌个毛线</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌的是锁卡  宝具是啥 谁在意啊（
+
