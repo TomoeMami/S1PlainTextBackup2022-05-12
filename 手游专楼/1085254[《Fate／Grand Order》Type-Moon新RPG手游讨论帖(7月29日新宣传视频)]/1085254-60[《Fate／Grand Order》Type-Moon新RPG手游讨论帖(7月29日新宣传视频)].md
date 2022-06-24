@@ -1407,3 +1407,15 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 水B不是公认的水枪么 无敌个毛线</blockquote>
 當你有5寶100級的水B就不會這麼說了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 88632#       发表于 2022-6-25 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56401668&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-24 21:12</a>
+
+这种卡白送估计yls脑子被踢了，当然是高贵的限定五星啦</blockquote>
+當然是高貴的限定五星禮裝才對
+
