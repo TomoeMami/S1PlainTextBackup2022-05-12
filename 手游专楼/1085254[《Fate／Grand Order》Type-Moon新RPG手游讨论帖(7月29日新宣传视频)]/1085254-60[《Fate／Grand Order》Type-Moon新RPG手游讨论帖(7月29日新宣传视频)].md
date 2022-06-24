@@ -1318,3 +1318,25 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 翻页
 
+
+
+*****
+
+####  alucardcz  
+##### 88624#       发表于 2022-6-24 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399824&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-24 18:56</a>
+
+你的羁绊（氪金）还不够多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起这个 我常买的礼品卡店关了 以后福袋子都不知道怎么买了
+
+*****
+
+####  qixinno2  
+##### 88625#       发表于 2022-6-24 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399991&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 19:11</a>
+
+说起这个 我常买的礼品卡店关了 以后福袋子都不知道怎么买了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么欧根本不需要福袋去赌脸
+
