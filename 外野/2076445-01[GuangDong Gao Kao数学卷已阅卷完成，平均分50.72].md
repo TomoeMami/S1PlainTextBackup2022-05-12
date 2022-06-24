@@ -1670,3 +1670,14 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 
 出分啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/3cea829b711c1e671b9f11511d45817e/u=2979503875,1352810671&amp;fm=70&amp;app=139&amp;f=PNG?w=445&amp;h=452&amp;s=30F7C832FADE4ECC2CBAAFCC0300F0BF.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一直都是宝器  
+##### 154#       发表于 2022-6-24 14:33
+
+150满分平均50？！
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
