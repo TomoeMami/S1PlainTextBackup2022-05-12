@@ -4431,3 +4431,14 @@ slm表示开这10分钟直播是因为觉得在今天工商直播里谈这个“
 
 towa，别搁这吸血鬼生存者了，麦克风的事情……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15410#       发表于 2022-6-24 21:32
+
+其实个人角度讲我觉得1个月就开始纪念有收金压力之嫌（ry
+
+当然slm这第一个月波澜万丈也是该提一下，毕竟是一段难以复现的梦幻经历
+
