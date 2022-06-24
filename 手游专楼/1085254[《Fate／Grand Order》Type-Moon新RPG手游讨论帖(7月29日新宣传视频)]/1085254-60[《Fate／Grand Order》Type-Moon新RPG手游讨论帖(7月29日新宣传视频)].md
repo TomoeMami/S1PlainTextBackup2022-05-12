@@ -1270,3 +1270,51 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 水B不是公认的水枪么 无敌个毛线</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌的是锁卡  宝具是啥 谁在意啊（
 
+
+
+*****
+
+####  qixinno2  
+##### 88619#       发表于 2022-6-24 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399755&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 18:50</a>
+
+无敌的是锁卡  宝具是啥 谁在意啊（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">锁卡也没啥用了吧 如今不都各种光炮洗地么 谁还用指令卡啊
+
+*****
+
+####  alucardcz  
+##### 88620#       发表于 2022-6-24 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399797&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-24 18:54</a>
+
+锁卡也没啥用了吧 如今不都各种光炮洗地么 谁还用指令卡啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我我我  可她不出啊  萌新都all in了 整整38发！
+
+
+
+*****
+
+####  qixinno2  
+##### 88621#       发表于 2022-6-24 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399803&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 18:55</a>
+
+我我我  可她不出啊  萌新都all in了 整整38发！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的羁绊（氪金）还不够多
+
+*****
+
+####  qixinno2  
+##### 88622#       发表于 2022-6-24 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  qixinno2  
+##### 88623#       发表于 2022-6-24 18:59
+
+翻页
+
