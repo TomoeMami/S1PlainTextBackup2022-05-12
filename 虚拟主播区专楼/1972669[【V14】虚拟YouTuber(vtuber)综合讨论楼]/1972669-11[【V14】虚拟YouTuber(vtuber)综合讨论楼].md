@@ -4229,3 +4229,98 @@ ngo的大腿好色啊
 
 这次珊瑚3D回的编排真的超棒，起承转合，结构完整，全程无冷场，真好啊…真好啊…<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15384#       发表于 2022-6-24 21:02
+
+[https://www.youtube.com/watch?v=XazyhnymUQo](https://www.youtube.com/watch?v=XazyhnymUQo)
+
+原梗
+[https://www.nicovideo.jp/watch/sm29067729](https://www.nicovideo.jp/watch/sm29067729)
+
+顺便我自己很喜欢的一个Im@s改版。
+
+*****
+
+####  Suzutsuki  
+##### 15385#       发表于 2022-6-24 21:04
+
+vspo猫猫同接5w了，艾玛的时候是多少来着
+
+*****
+
+####  FCCHua  
+##### 15386#       发表于 2022-6-24 21:04
+
+正好无缝衔接看vspo新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 15387#       发表于 2022-6-24 21:05
+
+半天不说话，gkd！
+
+*****
+
+####  Suzutsuki  
+##### 15388#       发表于 2022-6-24 21:05
+
+？？？bora！！！！
+
+*****
+
+####  蓬莱广告  
+##### 15389#       发表于 2022-6-24 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我感觉看不进其他人了
+
+*****
+
+####  FCCHua  
+##### 15390#       发表于 2022-6-24 21:07
+
+这个声音未免太...
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 15391#       发表于 2022-6-24 21:08
+
+刚听感觉有点星川那个模板的感觉
+
+*****
+
+####  Suzutsuki  
+##### 15392#       发表于 2022-6-24 21:08
+
+bora这声音感觉跟这猫猫皮不太搭啊
+
+*****
+
+####  poipanchao  
+##### 15393#       发表于 2022-6-24 21:08
+
+还没出声的第一下呼吸我就认出了……
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kokichi  
+##### 15394#       发表于 2022-6-24 21:08
+
+vspoになりました
+草
+
+*****
+
+####  越动天下  
+##### 15395#       发表于 2022-6-24 21:10
+
+看来vspo第一个稳定万棒选手有戏了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
