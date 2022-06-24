@@ -3822,3 +3822,12 @@ https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
 声质是像的，但我觉得主播只要不是完全地声（德比地声更低），这种高音营业声都挺接近，lulu和小泉萌香他姐其实也有点。
 当然也可能我因为没法认同直播环境方面问题所以主观上就不很认同德比说<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15344#       发表于 2022-6-24 11:29
+
+怎么还有认真讨论这个的……
+
