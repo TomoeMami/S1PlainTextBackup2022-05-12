@@ -4442,3 +4442,21 @@ towa，别搁这吸血鬼生存者了，麦克风的事情……<img src="https:
 
 当然slm这第一个月波澜万丈也是该提一下，毕竟是一段难以复现的梦幻经历
 
+
+
+*****
+
+####  Kokichi  
+##### 15411#       发表于 2022-6-24 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说bora日语已经很好了，但要假装初配信实在勉强。
+
+*****
+
+####  FCCHua  
+##### 15412#       发表于 2022-6-24 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56401697&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-6-24 21:13</a>
+这下旅团面试了，怪不得敢那么调侃hnn和lisa</blockquote>
+草，真的是hanabana面试
+
