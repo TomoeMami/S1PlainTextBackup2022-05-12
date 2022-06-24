@@ -3741,3 +3741,17 @@ Syl，en成员在四期前基本上集中在CA和阿美，四期多了土澳日�
 
 瑞典那位还没确定现在是不是在那边，一直没透露他现在的所在地。
 
+
+
+*****
+
+####  11512  
+##### 15337#       发表于 2022-6-24 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56388712&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-6-23 23:11</a>
+
+是突击MC吗？现在已经看不到了</blockquote>
+便乗ですわ～
+
+25:28 メイン企画还是可以看看的 很有意思
+
