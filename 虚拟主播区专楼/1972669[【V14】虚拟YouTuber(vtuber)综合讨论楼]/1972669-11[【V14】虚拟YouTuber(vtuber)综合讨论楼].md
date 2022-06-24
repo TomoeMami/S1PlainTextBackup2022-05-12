@@ -4590,3 +4590,27 @@ bora能跨社和mmr联动yixiama
 
 vspo全员银盾了，不容易
 
+
+
+*****
+
+####  rzrbtk  
+##### 15426#       发表于 2022-6-25 00:42
+
+推特试图跟b站比智能推送是吧
+
+<img src="https://img.saraba1st.com/forum/202206/25/004212spe17m6ulusmcu7a.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 024 - 推文 _ Twitter - twitter.com.png</strong> (16.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-25 00:42 上传
+
+*****
+
+####  hlazd  
+##### 15427#       发表于 2022-6-25 00:45
+
+bora这个真是有点意料之外又情理之中。。。
+
