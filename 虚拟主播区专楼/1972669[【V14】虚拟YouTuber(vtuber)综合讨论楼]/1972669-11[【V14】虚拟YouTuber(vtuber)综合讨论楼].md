@@ -3966,3 +3966,45 @@ syl，太期待ngo的3D了，自认没活的3D直播能干出什么事<img src="
 
 这位好有干劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15359#       发表于 2022-6-24 14:55
+
+插播一条
+
+絵文字の使い方が同じ
+
+<img src="https://img.saraba1st.com/forum/202206/24/145414v0sh8bn0o26162o0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>絵文字の使い方が同じ .jpeg</strong> (351.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-24 14:54 上传
+
+韓国語訛りのアイオン
+
+<img src="https://img.saraba1st.com/forum/202206/24/145432mjtw88ms4hu22hi2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>韓国語訛りのアイオン .jpeg</strong> (319.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-24 14:54 上传
+
+これもう確定でいいか？
+
+*****
+
+####  格林卡罗尔  
+##### 15360#       发表于 2022-6-24 14:55
+
+ 本帖最后由 格林卡罗尔 于 2022-6-24 14:59 编辑 
+
+看了下noah录播，说是两周间和家人在一起，rust相关似乎也不太了解的样子
+
+syl 保留节目终于来了，从韩国箱哈弟箱到今天每次出新枪女都会被猜测的那个女人
+
