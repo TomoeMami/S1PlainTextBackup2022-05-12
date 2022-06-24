@@ -4084,3 +4084,14 @@ bora一天不复出，每个枪女都逃不过的宿命
 顺便
 <img src="https://p.sda1.dev/6/e52f407cf27d78c57d282cda36e77dfb/CMP_20220624165701453.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15367#       发表于 2022-6-24 16:15
+
+有自己的脸很像败犬女主的自觉，很不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+其实声音比起幼女或是正太比较像普通dk啦……
+
