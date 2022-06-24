@@ -3810,3 +3810,15 @@ https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
 康康哥觉得像吗，我是感觉一耳掐的声音都那样…莎乐美那种半空气发声还更靠近兔（也可能是rp吧 ...</blockquote>
 这个基本上相似度很高了，更别说这还是两年前她自己不小心没掐住恶魔声线出来的自然腔，那会莎皇还不存在。
 
+
+
+*****
+
+####  rzrbtk  
+##### 15343#       发表于 2022-6-24 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56392973&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2022-6-24 11:01</a>
+这个基本上相似度很高了，更别说这还是两年前她自己不小心没掐住恶魔声线出来的自然腔，那会莎皇还不存在 ...</blockquote>
+声质是像的，但我觉得主播只要不是完全地声（德比地声更低），这种高音营业声都挺接近，lulu和小泉萌香他姐其实也有点。
+当然也可能我因为没法认同直播环境方面问题所以主观上就不很认同德比说<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

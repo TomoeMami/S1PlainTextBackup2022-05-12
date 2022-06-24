@@ -5659,3 +5659,14 @@ pc可以开风灵月影刷东西
  切段流转那是基本中的基本了 高阶残心取消和段位控制弹刀才难按，不过会用这种技巧的人基本上是为了 ...</blockquote>
 打错了，是紫电取消<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏侯妙才  
+##### 558#       发表于 2022-6-24 11:15
+
+[https://www.bilibili.com/read/cv17245672](https://www.bilibili.com/read/cv17245672)
+
+卧龙：苍天陨落——Denfaminicogamer媒体的访谈，穿插了很多光荣和忍者组的历史和小故事，蛮有意思的，社长夫妻很牛啊
+
