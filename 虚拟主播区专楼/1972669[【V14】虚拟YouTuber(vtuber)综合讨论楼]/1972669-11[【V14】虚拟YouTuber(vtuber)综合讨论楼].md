@@ -3788,3 +3788,14 @@ Syl，en成员在四期前基本上集中在CA和阿美，四期多了土澳日�
 
 https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗
 
+
+
+*****
+
+####  rzrbtk  
+##### 15341#       发表于 2022-6-24 10:48
+
+<blockquote>kangkangsama 发表于 2022-6-24 10:30
+https://youtu.be/5eEzOJAEErg 20‘03 有人鉴定过这个吗</blockquote>
+康康哥觉得像吗，我是感觉一耳掐的声音都那样…莎乐美那种半空气发声还更靠近兔（也可能是rp吧
+
