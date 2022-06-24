@@ -1226,3 +1226,25 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88615#       发表于 2022-6-24 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399366&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 18:15</a>
+
+简单总结下3关 第1关安徒生 无敌贯通首红秒了 第2关2炮秒了  第3关 秒 光炮 秒(我发现少个狐狸狂娜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好羡慕有2宝狂娜的人啊
+
+*****
+
+####  alucardcz  
+##### 88616#       发表于 2022-6-24 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56399622&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-24 18:38</a>
+
+好羡慕有2宝狂娜的人啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你有无敌的水b无敌的那谁和那谁啊
+
