@@ -5629,3 +5629,22 @@ alpha测是自己打空自己的精力条就开始喘了，是我表述不清楚
 流转可以 ...</blockquote>
 pc可以开风灵月影刷东西
 
+
+
+*****
+
+####  碎镜子  
+##### 555#       发表于 2022-6-24 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56386570&amp;ptid=2075355" target="_blank">医生狼多 发表于 2022-6-23 20:23</a>
+ 流转二不能原地tp吧？</blockquote>
+也可以，你可以出招的时候 先切到其他段位在切回来。不过一般都是先提前切上位，然后中下流转。
+
+*****
+
+####  碎镜子  
+##### 556#       发表于 2022-6-24 08:04
+
+切段流转那是基本中的基本了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+高阶残心取消和段位控制弹刀才难按，不过会用这种技巧的人基本上是为了观赏性打了。
+
