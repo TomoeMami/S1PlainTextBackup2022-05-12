@@ -12729,3 +12729,14 @@ nb那个我都没怎么看了，是真无聊感觉
 
 啊，顺便发张无责任P图（
 
+
+
+*****
+
+####  Klience  
+##### 11724#       发表于 2022-6-24 23:23
+
+[https://www.bilibili.com/video/B ... fe64df322a63ccaed0c](https://www.bilibili.com/video/BV14f4y1f79h?spm_id_from=333.337.search-card.all.click&amp;vd_source=feb81bfaea074fe64df322a63ccaed0c)
+
+有在日的小伙伴去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

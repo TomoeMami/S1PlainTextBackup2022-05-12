@@ -14704,3 +14704,33 @@ Liella!2期生の初顔合わせは1年前
 
 反正我不care了，我专心推阿渚和鱼，虽然是大龄新秀（相对而言）但是她俩自身的气质我就蛮喜欢。至于企划就是一个壳罢了，各自通过这个平台发展个人事业才是重头。偶像企划向来一代新人换旧人，可是人又有几年青春功夫拿来推一个又一个新团？不好意思做不到，我还就是因为鱼才再来搞拉拉相关，不然早忙忘了LL。大人的世界很复杂，但是人总可以让自己过简单一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10228#       发表于 2022-6-24 23:22
+
+<blockquote>iuhehc 发表于 2022-6-24 22:58
+不是纯嗓子问题，她技巧也不行现在，之前是觉得打铁有天赋可以往上提提这种程度，也没有说唱功厉害这种级 ...</blockquote>
+唉一言难尽，她也才刚开始
+
+*****
+
+####  愛さ実  
+##### 10229#       发表于 2022-6-24 23:23
+
+楼里怎么突然这么丧，这情报很难接受吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+之前二期生说第一次见面是一年前的时候，就能感觉一二期见面不会很晚了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 10230#       发表于 2022-6-24 23:25
+
+<blockquote>甘蓝巧克力 发表于 2022-6-24 23:01
+现在圈子里说不定又开始岁月史书整一家亲了，说一期生二期生分开看成两个团大概还要被冲 ...</blockquote>
+一家亲的话看看就好啦，三团跨年live之前也说一家人，现在可能会被叫星符号之类的称呼了。
+
