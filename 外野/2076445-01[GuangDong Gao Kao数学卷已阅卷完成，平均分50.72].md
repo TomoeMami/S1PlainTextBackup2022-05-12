@@ -1661,3 +1661,12 @@ s1初中童贞毕业的人应该比高考数学145+的人少的多<img src="http
 其次，平均分50左右的高考数学试卷有很多张，这些卷子解答题区分度能有0.7，客观题甚至稳过0.8，这是很优秀的数据。
 此外，数学是主三科唯一一门敢公开分半信度的，数据每年也都在0.8以上，十分平稳。
 
+
+
+*****
+
+####  ShawElA  
+##### 153#       发表于 2022-6-24 14:18
+
+出分啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/3cea829b711c1e671b9f11511d45817e/u=2979503875,1352810671&amp;fm=70&amp;app=139&amp;f=PNG?w=445&amp;h=452&amp;s=30F7C832FADE4ECC2CBAAFCC0300F0BF.jpg" referrerpolicy="no-referrer">
+
