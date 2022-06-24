@@ -14613,3 +14613,44 @@ Liella!2期生の初顔合わせは1年前
 
 所以是第一次见面还是第一次得知要加人呢
 
+
+
+*****
+
+####  型月重工  
+##### 10218#       发表于 2022-6-24 22:44
+
+ 本帖最后由 型月重工 于 2022-6-24 22:49 编辑 
+
+话说小百合嗓子的问题真的很严重吗？ 贴吧讨论都说要捂耳朵的节奏了...<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+另外鲤鱼这个外国人唱的还这么稳也挺稀有的啊....
+
+*****
+
+####  starring  
+##### 10219#       发表于 2022-6-24 22:47
+
+早就打过预防针，看到消息的时候内心甚至没有半点起伏，五人推继续做，至于Liella那不过是她们所在的一个组合罢了。
+
+每天都听她们的歌的大半年将近一年，这两三天只听R3的3首solo和25时的歌，热情被磨灭了该去D下一个团<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 10220#       发表于 2022-6-24 22:48
+
+本来就是对鲤鱼感兴趣才回的ll这坑，可惜因为动画又难看，运营又zz,团队还加人，看来各方面都不能有多余的期待。还是坚持初心只关注鲤鱼就好，不怕时间和钱包不够用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 10221#       发表于 2022-6-24 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402961&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-24 22:44</a>
+
+话说小百合嗓子的问题真的很严重吗？ 贴吧讨论都说要捂耳朵的节奏了... 不是之前都夸小百合唱功厉害 ...</blockquote>
+改变唱法的阵痛期，熟练起来后就不会那样（前提是打铁的嗓子能撑到那个时候
+
