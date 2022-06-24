@@ -14541,3 +14541,21 @@ nagi为什么这么被低估，每次都很稳啊，声音也不夹，听着很�
 
 来自微博：Liella 1st 巡演中的某一天被告知第二天要跟二期生初次见面 
 
+
+
+*****
+
+####  cybernetics31  
+##### 10211#       发表于 2022-6-24 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402409&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-24 22:00</a>
+来自微博：Liella 1st 巡演中的某一天被告知第二天要跟二期生初次见面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">………………
+
+*****
+
+####  lj205  
+##### 10212#       发表于 2022-6-24 22:10
+
+除了爆粗口说不出啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

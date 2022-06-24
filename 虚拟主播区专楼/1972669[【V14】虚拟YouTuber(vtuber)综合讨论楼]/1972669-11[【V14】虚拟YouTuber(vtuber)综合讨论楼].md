@@ -4471,3 +4471,31 @@ towa，别搁这吸血鬼生存者了，麦克风的事情……<img src="https:
 
 话说有一个问题，如果bora再跟towa和selly组队，算不算同一个队伍要+2分
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15414#       发表于 2022-6-24 22:01
+
+<blockquote>葉加瀬 冬雪 ⚗️
+
+@Hakase_Fuyuki
+
+明日のSMC組コラボ　
+
+重要告知アリです🥳　よろしくねん
+
+翻译推文
+
+下午9:50 · 2022年6月24日·Twitter for iPhone</blockquote>
+
+SMC联动重大告知，感觉会是大的
+
+*****
+
+####  Suzutsuki  
+##### 15415#       发表于 2022-6-24 22:05
+
+露娜也是前辈了，しのみや先輩，好不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
