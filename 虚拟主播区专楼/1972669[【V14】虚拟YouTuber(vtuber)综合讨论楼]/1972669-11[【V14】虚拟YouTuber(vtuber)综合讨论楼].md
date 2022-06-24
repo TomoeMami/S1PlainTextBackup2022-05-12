@@ -4071,3 +4071,16 @@ bora一天不复出，每个枪女都逃不过的宿命
 
 想起juvvel了
 
+
+
+*****
+
+####  Kokichi  
+##### 15366#       发表于 2022-6-24 15:57
+
+<img src="https://p.sda1.dev/6/d810d8a928ac5a8919bca8e0611c62e5/Screenshot_20220624_165320.jpg" referrerpolicy="no-referrer">
+新人……
+
+顺便
+<img src="https://p.sda1.dev/6/e52f407cf27d78c57d282cda36e77dfb/CMP_20220624165701453.jpg" referrerpolicy="no-referrer">
+
