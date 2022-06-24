@@ -14532,3 +14532,12 @@ nagi为什么这么被低估，每次都很稳啊，声音也不夹，听着很�
 
 鲤鱼跟MAY'N的小剧场笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10210#       发表于 2022-6-24 22:00
+
+来自微博：Liella 1st 巡演中的某一天被告知第二天要跟二期生初次见面 
+
