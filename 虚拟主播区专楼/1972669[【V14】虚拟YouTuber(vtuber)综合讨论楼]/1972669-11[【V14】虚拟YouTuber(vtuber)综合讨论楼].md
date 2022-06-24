@@ -4053,3 +4053,21 @@ bora一天不复出，每个枪女都逃不过的宿命
 
 其实水平不算太低，但在未来丹之后首播让一切变得索然无味
 
+
+
+*****
+
+####  fastary  
+##### 15364#       发表于 2022-6-24 15:35
+
+皮：贵公子 声线：男大姐ぽい…
+
+*****
+
+####  死体残留  
+##### 15365#       发表于 2022-6-24 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">luxiem为什么又要开个频道
+
+想起juvvel了
+
