@@ -4008,3 +4008,23 @@ syl，太期待ngo的3D了，自认没活的3D直播能干出什么事<img src="
 
 syl 保留节目终于来了，从韩国箱哈弟箱到今天每次出新枪女都会被猜测的那个女人
 
+
+
+*****
+
+####  poipanchao  
+##### 15361#       发表于 2022-6-24 15:02
+
+bora一天不复出，每个枪女都逃不过的宿命
+
+*****
+
+####  fastary  
+##### 15362#       发表于 2022-6-24 15:10
+
+枪男还能出剪辑，歌势甚至不能开腔，enkr罪大恶极x2<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+声音是很舒服那种池面音，让我想起我常听的一个奥术直播主<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+爱好有点现充风格也挺阳角的，这届vta现充好多啊x
+
