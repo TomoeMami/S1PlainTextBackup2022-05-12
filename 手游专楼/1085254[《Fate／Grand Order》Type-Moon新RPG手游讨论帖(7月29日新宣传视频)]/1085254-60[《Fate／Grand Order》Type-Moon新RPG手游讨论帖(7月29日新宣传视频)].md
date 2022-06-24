@@ -1352,3 +1352,15 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 你这么欧根本不需要福袋去赌脸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没你欧 所以必须附带
 
+
+
+*****
+
+####  qixinno2  
+##### 88627#       发表于 2022-6-24 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56400335&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-24 19:41</a>
+
+没你欧 所以必须附带</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我这纯血非洲人欧个屁
+
