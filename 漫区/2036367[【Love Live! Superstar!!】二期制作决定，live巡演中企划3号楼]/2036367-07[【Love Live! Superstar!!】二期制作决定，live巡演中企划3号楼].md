@@ -14654,3 +14654,37 @@ Liella!2期生の初顔合わせは1年前
 话说小百合嗓子的问题真的很严重吗？ 贴吧讨论都说要捂耳朵的节奏了... 不是之前都夸小百合唱功厉害 ...</blockquote>
 改变唱法的阵痛期，熟练起来后就不会那样（前提是打铁的嗓子能撑到那个时候
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 10222#       发表于 2022-6-24 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">资本到后期连虚幻的泡泡都不愿维持，赤裸裸地告诉你它要抢钱到要让观众跪着献钱，漫威是这样，拉拉也是这样<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 10223#       发表于 2022-6-24 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402961&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-24 22:44</a>
+
+话说小百合嗓子的问题真的很严重吗？ 贴吧讨论都说要捂耳朵的节奏了... 不是之前都夸小百合唱功厉害 ...</blockquote>
+不是纯嗓子问题，她技巧也不行现在，之前是觉得打铁有天赋可以往上提提这种程度，也没有说唱功厉害这种级别，夸厉害的应该是觉得素人能做到出道那会的表现很厉害
+现在说难听点，要是放日娱韩娱那种就是专门做一个车祸合集挂出来做黑历史被各家粉群嘲的程度
+
+*****
+
+####  优妮可  
+##### 10224#       发表于 2022-6-24 22:59
+
+干脆当成裂啦两个团好了，这样想会不会好受点，官方都叫一期生二期生了。
+
+*****
+
+####  甘蓝巧克力  
+##### 10225#       发表于 2022-6-24 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在圈子里说不定又开始岁月史书整一家亲了，说一期生二期生分开看成两个团大概还要被冲
+
