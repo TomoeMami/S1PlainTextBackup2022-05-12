@@ -14559,3 +14559,48 @@ nagi为什么这么被低估，每次都很稳啊，声音也不夹，听着很�
 
 除了爆粗口说不出啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  型月重工  
+##### 10213#       发表于 2022-6-24 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402409&amp;ptid=2036367" target="_blank">starring 发表于 2022-6-24 22:00</a>
+
+来自微博：Liella 1st 巡演中的某一天被告知第二天要跟二期生初次见面</blockquote>
+什么意思 不是说一年前就已经见过了吗？
+
+*****
+
+####  仟音一心  
+##### 10214#       发表于 2022-6-24 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402579&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-24 22:12</a>
+什么意思 不是说一年前就已经见过了吗？</blockquote>
+一年前是二期生之间的见面
+
+*****
+
+####  型月重工  
+##### 10215#       发表于 2022-6-24 22:15
+
+ 本帖最后由 型月重工 于 2022-6-24 22:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56402594&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-6-24 22:13</a>
+
+一年前是二期生之间的见面</blockquote>
+Liella!2期生の初顔合わせは1年前
+
+这句话不是一期生说的？
+
+去查了下，的确说的是二期生之间见面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10216#       发表于 2022-6-24 22:19
+
+我现在只能说是二期生毕竟看好大熊和朱茵发展，但做为唯五我依然是不接受，大家各饭各的吧
+
+本来也就决定今后只推鲤鱼一个，她不好就做她后盾，她好就一起开心。饭那么多年偶像，资本什么个样子我是早就一清二楚，所以抽离的也快。但做为她本人，也算是真正接触到大人的世界，以后这种事肯定还不少，慢慢调整吧
+
