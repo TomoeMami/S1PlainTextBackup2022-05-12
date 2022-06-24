@@ -14494,3 +14494,14 @@ ytb上那个用赛马娘式的角色属性列表来展示星团的ペンギン�
 原视频作 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼和nagi的唱歌也太被低估了，现在旧5人里小百合应该是唱歌最拉的那个.......
 
+
+
+*****
+
+####  愛さ実  
+##### 10206#       发表于 2022-6-24 16:07
+
+虽然不想说，但现在确实是听感不好。以前小百合声音主打的一个清澈感，现在固然有高强度用嗓的原因，以后嗓子养好了唱法科学了但声音能不能回到刚出道的状态我个人还是比较悲观的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
