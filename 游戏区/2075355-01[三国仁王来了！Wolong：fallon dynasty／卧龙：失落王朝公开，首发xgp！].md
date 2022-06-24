@@ -5648,3 +5648,14 @@ pc可以开风灵月影刷东西
 切段流转那是基本中的基本了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 高阶残心取消和段位控制弹刀才难按，不过会用这种技巧的人基本上是为了观赏性打了。
 
+
+
+*****
+
+####  碎镜子  
+##### 557#       发表于 2022-6-24 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56390732&amp;ptid=2075355" target="_blank">碎镜子 发表于 2022-6-24 08:04</a>
+ 切段流转那是基本中的基本了 高阶残心取消和段位控制弹刀才难按，不过会用这种技巧的人基本上是为了 ...</blockquote>
+打错了，是紫电取消<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
