@@ -4391,3 +4391,43 @@ KR现在出个谷都费劲，这不是跑得好<img src="https://static.saraba1s
 
 哈？跌丝袜一个月出道纪念就播了10分钟，继“史无前例”的百万纪念回后，我又见识到了难以言表的操作......
 
+
+
+*****
+
+####  rzrbtk  
+##### 15405#       发表于 2022-6-24 21:21
+
+感觉对kr跑路人的反应都是“好跑”，关系好的说不定可以学千首播留言
+
+*****
+
+####  Ketestrait  
+##### 15406#       发表于 2022-6-24 21:21
+
+slm表示开这10分钟直播是因为觉得在今天工商直播里谈这个“私事”不太好，所以提前开个十分钟说聊一聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 15407#       发表于 2022-6-24 21:23
+
+我已经迫不及待想看bora联动了，第一个会联动谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 15408#       发表于 2022-6-24 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56401837&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-6-24 21:21</a>
+
+slm表示开这10分钟直播是因为觉得在今天工商直播里谈这个“私事”不太好，所以提前开个十分钟说聊一聊[f:06 ...</blockquote>
+这个我觉得100%是经纪人的锅，自己V出道满月给忘了，硬是撞了工商......
+
+*****
+
+####  渡鸦骑士  
+##### 15409#       发表于 2022-6-24 21:30
+
+towa，别搁这吸血鬼生存者了，麦克风的事情……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
