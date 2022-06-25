@@ -14983,3 +14983,12 @@ Liella!2期生の初顔合わせは1年前
 吃东西差点呛到</blockquote>
 实不相瞒，我也...我还纳闷，这么有意境的歌跟土下座有啥关系
 
+
+
+*****
+
+####  lj205  
+##### 10257#       发表于 2022-6-25 19:47
+
+蓝光签名会落了情绪特别低落，下午的FMT都提不起劲看，周一晚我就不吃那个柠檬了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
