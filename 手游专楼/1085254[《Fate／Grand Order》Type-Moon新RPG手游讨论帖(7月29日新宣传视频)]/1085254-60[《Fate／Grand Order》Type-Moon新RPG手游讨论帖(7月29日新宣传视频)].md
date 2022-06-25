@@ -1428,3 +1428,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 水B一技能加了个乘区 已经脱离水枪范畴了吧 就是这2技能cd还是太长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88634#       发表于 2022-6-25 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">然而一宝伤害还是水
+
