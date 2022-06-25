@@ -1448,3 +1448,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 加攻提升挺大但还是不够，爆不动90+非狂关底
 
+
+
+*****
+
+####  qixinno2  
+##### 88636#       发表于 2022-6-25 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 那安徒生礼装本 如果队里有杀生院 第二本书就会从人鱼公主变成空白的人鱼公主2
+
