@@ -4741,3 +4741,12 @@ Zan-Live可以直接抓事后的录播档。</blockquote>
 
 bora盛赞vspo运营，终于感受到运营也能起点作用了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 15439#       发表于 2022-6-25 22:41
+
+莎皇这四万的都不到了，这绝体绝命2真不能再播了。
+
