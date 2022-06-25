@@ -4763,3 +4763,12 @@ bora盛赞vspo运营，终于感受到运营也能起点作用了吗<img src="ht
 
 19年下半8组三人同期迎来二周年，smc是周边+3Dlive热热闹闹了，希望bls不会变成唯一当天三人联动都凑不出来的组<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 15441#       发表于 2022-6-25 23:15
+
+现在的apex真就十局里八局都有挂啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
