@@ -14928,3 +14928,21 @@ Liella!2期生の初顔合わせは1年前
 
 鲤鱼吃醋了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 10252#       发表于 2022-6-25 15:43
+
+怎么说呢，现在就是对急着营业的新人好反感啊.. 想到这个pua运营fmt有时都觉得只能无能狂怒不想买了，
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  甘蓝巧克力  
+##### 10253#       发表于 2022-6-25 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">白嫖企划解决一切，钱就推鱼个人，完美
+
