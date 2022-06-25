@@ -4807,3 +4807,44 @@ syl
 
 及时止损还行，看来还是很在意的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  percy1234  
+##### 15445#       发表于 2022-6-26 00:00
+
+安慰一下日本网络遗老罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15446#       发表于 2022-6-26 00:01
+
+tuna昨天6W今天2W，订阅杀到17W前面就是紫宫
+
+等一个开枪和一个联动吧
+
+联动第一人怎么想也是noah
+
+*****
+
+####  zerouuz  
+##### 15447#       发表于 2022-6-26 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">slm需要赶紧搞生化8才行
+
+*****
+
+####  Suny08  
+##### 15448#       发表于 2022-6-26 00:08
+
+莎皇自己不在意运营也会让她在意的。syl，感觉现在周年纪念越来越同质了，全是谷子加minilive这一套，前几天夜见说把钱准备好就猜到了，然后纪念liver再发首歌，全是一模一样的流程，总觉得有点在混的感觉
+
+*****
+
+####  Suzutsuki  
+##### 15449#       发表于 2022-6-26 00:10
+
+但是tuna回答棉花糖想和谁联动，她说的是艾玛和露娜。不过也无所谓了，能搞快点开始打枪就行
+

@@ -13107,3 +13107,19 @@ nb那个我都没怎么看了，是真无聊感觉
 
 真的是不怕死。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 11766#       发表于 2022-6-26 00:04
+
+看了一下，有热心的en区观众已经加了时间戳了。好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 11767#       发表于 2022-6-26 00:12
+
+对直播来说30岁还好吧，秦川都28了，当然管人里算年纪大的
+
