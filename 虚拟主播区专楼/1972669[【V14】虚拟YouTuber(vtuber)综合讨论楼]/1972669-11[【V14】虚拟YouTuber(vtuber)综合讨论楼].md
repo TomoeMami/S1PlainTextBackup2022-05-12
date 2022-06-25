@@ -4750,3 +4750,16 @@ bora盛赞vspo运营，终于感受到运营也能起点作用了吗<img src="ht
 
 莎皇这四万的都不到了，这绝体绝命2真不能再播了。
 
+
+
+*****
+
+####  fastary  
+##### 15440#       发表于 2022-6-25 23:07
+
+还有一个月左右bls就三周年了，上次联动还是去年8月补办的二周年纪念……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+甚至去年有个人连纪念回都没搞就简单杂了个谈（指指点点）
+
+19年下半8组三人同期迎来二周年，smc是周边+3Dlive热热闹闹了，希望bls不会变成唯一当天三人联动都凑不出来的组<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
