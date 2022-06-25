@@ -14890,3 +14890,14 @@ Liella!2期生の初顔合わせは1年前
 推上中奖报告好像挺多的？下次换个片假名霓虹id试试</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">明明下面读音也写了片假…………以后还是用汉字或者片假试试吧……
 
+
+
+*****
+
+####  a92063256  
+##### 10248#       发表于 2022-6-25 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56405859&amp;ptid=2036367" target="_blank">lj205 发表于 2022-6-25 09:43</a>
+明明下面读音也写了片假…………以后还是用汉字或者片假试试吧…… ...</blockquote>
+我抽中那次是直接用日文汉字写的名字，鲤鱼直接念了对应的中文读音
+
