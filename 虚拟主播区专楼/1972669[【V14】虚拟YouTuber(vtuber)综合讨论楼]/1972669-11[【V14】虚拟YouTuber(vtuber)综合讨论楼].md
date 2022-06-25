@@ -4772,3 +4772,18 @@ bora盛赞vspo运营，终于感受到运营也能起点作用了吗<img src="ht
 
 现在的apex真就十局里八局都有挂啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15442#       发表于 2022-6-25 23:24
+
+这是新常态，提前适应为将来更多的3万2万1万做好准备<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+syl
+
+报：绝体绝命2直播到此结束<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+再报：今后会上传绝体绝命2其他路线的游戏视频<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
