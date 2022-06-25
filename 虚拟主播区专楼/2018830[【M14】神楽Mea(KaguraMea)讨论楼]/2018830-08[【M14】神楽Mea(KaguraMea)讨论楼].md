@@ -13082,3 +13082,28 @@ nb那个我都没怎么看了，是真无聊感觉
 
 观感怎么好我觉得最大原因是通过一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 11763#       发表于 2022-6-25 23:43
+
+这游戏又没那么难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">设计而言没有什么特别极限的地方就是了
+
+*****
+
+####  古战场亡魂  
+##### 11764#       发表于 2022-6-25 23:44
+
+有本事下次联动是双子传说，下下次联动是逃出生天。
+
+*****
+
+####  古战场亡魂  
+##### 11765#       发表于 2022-6-25 23:48
+
+夕刻身体是真的厉害，快30了还能天天播，没事还弄耐久企划。
+
+真的是不怕死。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
