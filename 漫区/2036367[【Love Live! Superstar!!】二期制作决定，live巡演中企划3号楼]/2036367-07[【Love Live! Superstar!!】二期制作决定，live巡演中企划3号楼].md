@@ -14969,3 +14969,17 @@ Liella!2期生の初顔合わせは1年前
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 10256#       发表于 2022-6-25 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56410143&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-25 16:37</a>
+
+打铁这个today tomorrow together 给我听成 today tomorrow 土下座
+
+吃东西差点呛到</blockquote>
+实不相瞒，我也...我还纳闷，这么有意境的歌跟土下座有啥关系
+
