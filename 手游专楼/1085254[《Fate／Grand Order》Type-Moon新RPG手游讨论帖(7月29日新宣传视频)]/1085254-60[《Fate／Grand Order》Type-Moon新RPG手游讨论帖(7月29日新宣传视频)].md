@@ -1457,3 +1457,25 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 那安徒生礼装本 如果队里有杀生院 第二本书就会从人鱼公主变成空白的人鱼公主2
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88637#       发表于 2022-6-25 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56413496&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-25 21:36</a>
+
+笑死 那安徒生礼装本 如果队里有杀生院 第二本书就会从人鱼公主变成空白的人鱼公主2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而一回合就打爆了，我就没见他写书
+
+*****
+
+####  qixinno2  
+##### 88638#       发表于 2022-6-25 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56413581&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-25 21:41</a>
+
+然而一回合就打爆了，我就没见他写书</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">羡慕大佬
+
