@@ -14879,3 +14879,14 @@ Liella!2期生の初顔合わせは1年前
 鲤鱼的签名活动永远抽不中…………</blockquote>
 推上中奖报告好像挺多的？下次换个片假名霓虹id试试
 
+
+
+*****
+
+####  lj205  
+##### 10247#       发表于 2022-6-25 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56405301&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-6-25 08:27</a>
+推上中奖报告好像挺多的？下次换个片假名霓虹id试试</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">明明下面读音也写了片假…………以后还是用汉字或者片假试试吧……
+
