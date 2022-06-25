@@ -1437,3 +1437,14 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">然而一宝伤害还是水
 
+
+
+*****
+
+####  acuman  
+##### 88635#       发表于 2022-6-25 12:37
+
+一宝足够去狂本虐菜了
+
+加攻提升挺大但还是不够，爆不动90+非狂关底
+
