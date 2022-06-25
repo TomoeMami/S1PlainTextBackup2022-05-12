@@ -4687,3 +4687,21 @@ tere
 
 阿B那边还在播片着，还请不要上传到任何网站
 
+
+
+*****
+
+####  Ketestrait  
+##### 15435#       发表于 2022-6-25 20:57
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h3ksat3jx7j20np0dcmzf.jpg" referrerpolicy="no-referrer">
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h3ksaxffdyj20nt0dctaw.jpg" referrerpolicy="no-referrer">
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h3ksb16v5qj20no0dc0v3.jpg" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h3ksb6pgurj20nr0dcgnm.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h3ksbbi3mtj20nq0dcac7.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h3ksbf7gtyj20ns0dcmz7.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h3ksbl7s4uj20nr0dcad1.jpg" referrerpolicy="no-referrer">
+
+重大告知之3周年live上还会有重大告知
+
