@@ -4052,3 +4052,15 @@ op的能力是很花，运用还是不会太复杂
 结果什 ...</blockquote>
 生物科技线倒是海贼故事里最重要的伏线，像恶魔果实的原理，海王类和海兽的关系，各种各样的克隆人，是后期的爆点
 
+
+
+*****
+
+####  athena_1982  
+##### 58876#       发表于 2022-6-25 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56357885&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-6-21 21:38</a>
+
+换个话题，唯一能对路娜cp产生威胁的也就是微微了，女帝就是工具人……</blockquote>
+不会的，薇薇有官配的寇沙，那个可是寇布拉点过头的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
