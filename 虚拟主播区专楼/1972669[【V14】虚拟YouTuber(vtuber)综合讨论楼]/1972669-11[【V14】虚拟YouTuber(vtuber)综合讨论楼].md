@@ -4705,3 +4705,30 @@ tere
 
 重大告知之3周年live上还会有重大告知
 
+
+
+*****
+
+####  noHentai  
+##### 15436#       发表于 2022-6-25 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56412013&amp;ptid=1972669" target="_blank">kakera9576 发表于 2022-6-25 20:01</a>
+
+IMAGINARY WORLD feat.RIM &amp; te’resa 录屏
+
+**** 本内容被作者隐藏 ****</blockquote>
+Zan-Live可以直接抓事后的录播档。
+
+*****
+
+####  kakera9576  
+##### 15437#       发表于 2022-6-25 21:14
+
+ 本帖最后由 kakera9576 于 2022-6-25 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56413066&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-6-25 21:13</a>
+
+Zan-Live可以直接抓事后的录播档。</blockquote>
+事后录播档好像是要另外买票ww
+
+这个等出了票再说了，到时也不是我一个人有档了
+

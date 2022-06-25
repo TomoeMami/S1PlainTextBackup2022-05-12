@@ -12895,3 +12895,20 @@ nb那个我都没怎么看了，是真无聊感觉
 
 真要打到结局了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11742#       发表于 2022-6-25 21:14
+
+好厉害的英文烤肉人。
+
+<img src="https://img.saraba1st.com/forum/202206/25/211305b3lf9vfv163ef7zd.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220625211240022.jpg</strong> (6.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-25 21:13 上传
+
