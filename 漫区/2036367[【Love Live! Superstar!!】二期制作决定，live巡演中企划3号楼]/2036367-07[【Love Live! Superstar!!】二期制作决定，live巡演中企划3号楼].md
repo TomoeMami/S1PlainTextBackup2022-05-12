@@ -15378,3 +15378,28 @@ pay这是完全没用CD的声线去唱堇的BD曲<img src="https://static.saraba
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 10282#       发表于 2022-6-26 21:07
+
+复盘今天live部分，鲤鱼的状态不错，纪实文学和day1的合唱的部分音量比平时要高一些。反倒是pay有点不在状态，舞蹈和唱歌的力度都比平时弱了很多，solo曲有两个地方的音调也压低了跟这歌轻快的风格也不搭
+
+*****
+
+####  仟音一心  
+##### 10283#       发表于 2022-6-26 21:09
+
+星动画之后要不要也出个异世界官方动画啊？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 10284#       发表于 2022-6-26 21:12
+
+水是异世界冒险，星就是转生恶役大小姐吧（）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
