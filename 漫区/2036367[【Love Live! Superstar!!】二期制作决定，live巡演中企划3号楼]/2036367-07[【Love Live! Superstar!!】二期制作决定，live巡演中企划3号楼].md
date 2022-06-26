@@ -15351,3 +15351,17 @@ pay这是完全没用CD的声线去唱堇的BD曲<img src="https://static.saraba
 
 9号晚上有生放
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10280#       发表于 2022-6-26 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56420811&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-6-26 15:57</a>
+
+日韩就喜欢搞这种，中国艺人遇到这种情况要不单膝下跪要不就站一边（要不整个人趴地上），这种文化差异也能 ...</blockquote>
+同感，文化差异，风俗习惯不同还是可以理解的，极其偶然出现个一两次大家可能理解理解就差不多了。
+
+还是希望企划方在处理文化差异的时候整点好活，最好不要利用文化差异制造一些不太受国人待见的所谓综艺桥段。不过现在这运营，可不敢对他报太大的期望
+
