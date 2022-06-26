@@ -1488,3 +1488,15 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 刚才闲来无事翻了一下Wiki，发现五星弓还没有绿卡单体宝具，正好源氏代表人物的宝具都是绿的，那我就顺便奶一个下周三新五星弓阶源为朝的宝具是绿单体吧（新绿拐出来之前可以省钱了...）
 
+
+
+*****
+
+####  khxooo  
+##### 88640#       发表于 2022-6-27 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56424435&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-26 21:54</a>
+
+刚才闲来无事翻了一下Wiki，发现五星弓还没有绿卡单体宝具，正好源氏代表人物的宝具都是绿的，那我就顺便奶 ...</blockquote>
+除了骑金时和两个牛肉丸，其他的不都是红的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
