@@ -1479,3 +1479,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 然而一回合就打爆了，我就没见他写书</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">羡慕大佬
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88639#       发表于 2022-6-26 21:54
+
+刚才闲来无事翻了一下Wiki，发现五星弓还没有绿卡单体宝具，正好源氏代表人物的宝具都是绿的，那我就顺便奶一个下周三新五星弓阶源为朝的宝具是绿单体吧（新绿拐出来之前可以省钱了...）
+
