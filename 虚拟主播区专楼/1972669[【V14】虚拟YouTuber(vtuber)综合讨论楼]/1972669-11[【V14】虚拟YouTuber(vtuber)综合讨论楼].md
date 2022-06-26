@@ -4946,3 +4946,23 @@ holo纪念live的优秀经验罢了。（笑）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是不如看やみえん和たけぉ打情骂俏
 
+
+
+*****
+
+####  fastary  
+##### 15459#       发表于 2022-6-27 00:13
+
+ 本帖最后由 fastary 于 2022-6-27 00:17 编辑 
+
+ymen我每次想当黑客代餐看都觉得没那味看一会儿就调台了，而且也不想看男主播和女主播打情骂俏= =老实说看推真不觉得ymen有在谈，甚至黑客也没在卖(就是老觉得偶像是不是真在追啊)，但是跳脸cp厨实在过于碍眼……
+
+tnnd，这么大个管人圈有没有人有趣对独角兽又友好的男管人啊，要不我去看星算了
+
+*****
+
+####  winda  
+##### 15460#       发表于 2022-6-27 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要谈不也是健屋和黛灰么，相羽往后稍稍
+
