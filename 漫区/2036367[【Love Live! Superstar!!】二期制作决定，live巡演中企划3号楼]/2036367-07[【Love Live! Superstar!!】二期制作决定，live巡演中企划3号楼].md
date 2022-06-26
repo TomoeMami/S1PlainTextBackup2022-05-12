@@ -15261,3 +15261,42 @@ FMT也结束了，接下来是动画二期宣传期，应该可以开新楼了�
 
 看你们意见了是等到2期播了再开，还是fmt结束就开，如果你们都同意fmt结束就开的话我明天就开了
 
+
+
+*****
+
+####  csolfans  
+##### 10271#       发表于 2022-6-26 15:43
+
+<blockquote>player3960 发表于 2022-6-26 15:27
+虽然意义不同，不过整这活真的容易踩国人的雷
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+今天fmt整了什么活
+
+*****
+
+####  lj205  
+##### 10272#       发表于 2022-6-26 15:45
+
+鲤鱼壁咚搞得大熊紧张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 10273#       发表于 2022-6-26 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56420691&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-6-26 15:43</a>
+
+今天fmt整了什么活</blockquote>
+大概就是前几场有个“感受大地”的活，实际就是跟土下座一样。今天开场介绍完后有建议大家一起搞一次，当然是面朝观众。鲤鱼肉眼可见的不情愿，最后就简单用单膝意思了一下
+
+*****
+
+####  csolfans  
+##### 10274#       发表于 2022-6-26 15:51
+
+<blockquote>老1.5 发表于 2022-6-26 15:49
+大概就是前几场有个“感受大地”的活，实际就是跟土下座一样。今天开场介绍完后有建议大家一起搞一次，当 ...</blockquote>
+……
+
