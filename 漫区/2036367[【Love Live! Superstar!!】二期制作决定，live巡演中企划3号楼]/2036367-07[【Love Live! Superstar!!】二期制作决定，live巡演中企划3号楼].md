@@ -15365,3 +15365,16 @@ pay这是完全没用CD的声线去唱堇的BD曲<img src="https://static.saraba
 
 还是希望企划方在处理文化差异的时候整点好活，最好不要利用文化差异制造一些不太受国人待见的所谓综艺桥段。不过现在这运营，可不敢对他报太大的期望
 
+
+
+*****
+
+####  愛さ実  
+##### 10281#       发表于 2022-6-26 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56420656&amp;ptid=2036367" target="_blank">平安名すみれ 发表于 2022-6-26 15:40</a>
+看你们意见了是等到2期播了再开，还是fmt结束就开，如果你们都同意fmt结束就开的话我明天就开了 ...</blockquote>
+可以，卡页确实挺烦的。反正就我们这帮人，在哪聊不是聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
