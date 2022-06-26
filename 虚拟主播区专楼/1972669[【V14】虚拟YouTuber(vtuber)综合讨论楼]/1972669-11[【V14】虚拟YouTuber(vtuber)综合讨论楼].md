@@ -4926,3 +4926,14 @@ holo纪念live的优秀经验罢了。（笑）
 决赛老两位，考拉赢了！
 我们是冠军，恭喜“二连”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15457#       发表于 2022-6-26 23:24
+
+我不行了我受不了了管厕居然都出现以为黑客和偶像真在谈的路人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+杀了我吧我不想当独角兽管人痴了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
