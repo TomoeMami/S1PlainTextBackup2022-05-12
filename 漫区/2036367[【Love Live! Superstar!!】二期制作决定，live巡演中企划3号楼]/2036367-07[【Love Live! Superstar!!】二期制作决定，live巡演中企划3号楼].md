@@ -15324,3 +15324,12 @@ FMT也结束了，接下来是动画二期宣传期，应该可以开新楼了�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 10277#       发表于 2022-6-26 16:31
+
+pay这是完全没用CD的声线去唱堇的BD曲<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
