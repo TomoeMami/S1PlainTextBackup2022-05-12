@@ -15311,3 +15311,16 @@ FMT也结束了，接下来是动画二期宣传期，应该可以开新楼了�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  普之舜舜  
+##### 10276#       发表于 2022-6-26 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56420656&amp;ptid=2036367" target="_blank">平安名すみれ 发表于 2022-6-26 15:40</a>
+看你们意见了是等到2期播了再开，还是fmt结束就开，如果你们都同意fmt结束就开的话我明天就开了 ...</blockquote>
+可以，没问题哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡页给人整的难受，早点换也好
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
