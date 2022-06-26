@@ -4988,3 +4988,15 @@ tnnd，这么大个管人圈有没有人有趣对独角兽又友好的男管人�
 
 黑客和护士、未来人这种是真关系好而且cp厨嗑也不会说在谈的互动我就接受良好也能跟着叫贴贴，项羽那种仗着黑客不在乎梦女老喜欢拉他贴贴然后路人又入脑大呼在谈的模式我实在是……不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lancasterliang  
+##### 15463#       发表于 2022-6-27 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56425766&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-27 00:13</a>
+
+ymen我每次想当黑客代餐看都觉得没那味看一会儿就调台了，而且也不想看男主播和女主播打情骂俏= =老实说看 ...</blockquote>
+花生？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
