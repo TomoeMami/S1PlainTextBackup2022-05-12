@@ -4870,3 +4870,16 @@ emaluna好歹是真正的第一次联动
 
 有效防止嘴秃瓢问题
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15452#       发表于 2022-6-26 08:04
+
+holo纪念live的优秀经验罢了。（笑）
+
+接下来说不定就是无限收录地狱了。
+
+哦虹早就有liver不怎么播的情况了那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
