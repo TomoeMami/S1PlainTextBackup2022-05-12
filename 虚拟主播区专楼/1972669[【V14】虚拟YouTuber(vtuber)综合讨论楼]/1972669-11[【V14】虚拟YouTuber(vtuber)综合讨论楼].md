@@ -5079,3 +5079,12 @@ syl
 
 暗示口了归来必将引起一阵腥风血雨<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 15472#       发表于 2022-6-27 13:09
+
+每次都是我郡外出的时候触发口了事件，我命令我郡比完赛就去荷兰旅游半年助力口了打赢复活赛（不过音声其实一直有出啦
+
