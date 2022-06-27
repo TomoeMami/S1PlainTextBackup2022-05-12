@@ -5164,3 +5164,16 @@ syl
 
 つな要是能稳住这波，vspo就站稳了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15481#       发表于 2022-6-27 20:38
+
+勉强给了个中文译名“月奈”，虽然是强行翻的
+
+我看还算好听以后多用用
+
+这身法明显比bora时代强，没少苦练
+
