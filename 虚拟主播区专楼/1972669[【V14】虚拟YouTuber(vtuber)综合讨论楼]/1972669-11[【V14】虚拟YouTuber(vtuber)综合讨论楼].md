@@ -5148,3 +5148,19 @@ syl
 
 つな是不是比bora时代还强了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 15479#       发表于 2022-6-27 20:26
+
+莎乐美德比说我一开始还不信，现在我越来越来信了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 15480#       发表于 2022-6-27 20:29
+
+つな要是能稳住这波，vspo就站稳了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
