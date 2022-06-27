@@ -1659,3 +1659,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 最艹的是不会卖肉就别想着卖肉啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 88655#       发表于 2022-6-27 17:00
+
+平景清的问题是卡面完蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">至于人设缝合，现在对型月写手团的考据还抱有期望只是三流玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
