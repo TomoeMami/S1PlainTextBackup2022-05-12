@@ -13329,3 +13329,73 @@ emmmmmmm 四周年上居然还有男人啊……
 
 2022-6-27 23:02 上传
 
+
+
+*****
+
+####  离心  
+##### 11789#       发表于 2022-6-27 23:03
+
+恭喜四周年，虽然好久没看了，但还是希望你能快快乐乐的度过每一天
+
+*****
+
+####  yywzjsw  
+##### 11790#       发表于 2022-6-27 23:03
+
+3个活动，刚刚还投了首歌，罪恶王冠的op
+
+
+
+*****
+
+####  iuhehc  
+##### 11791#       发表于 2022-6-27 23:04
+
+恭喜四周年，然后这个黑白照都什么活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 11792#       发表于 2022-6-27 23:05
+
+<img src="https://img.saraba1st.com/forum/202206/27/230519u99kb3bbusxw3kyb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2FFC0432-6B16-49BD-AC5D-0E667CC36FAB.jpeg</strong> (29.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-27 23:05 上传
+
+*****
+
+####  病態極端  
+##### 11793#       发表于 2022-6-27 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56438126&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-6-27 23:02</a></blockquote>
+尊
+
+*****
+
+####  路人庚  
+##### 11794#       发表于 2022-6-27 23:08
+
+所以原来之前聊露出度的原因是这个（噗
+
+这大概是你咩姐截至目前露出度最高的一件官方pv衣服了（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/27/230851u3zegggl3o3lo0cw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BC081FC1-C149-4628-B023-16B982B3B60E.jpeg</strong> (128.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-27 23:08 上传
+
+*****
+
+####  yywzjsw  
+##### 11795#       发表于 2022-6-27 23:11
+
+没原版涩（会不会出谷子
+

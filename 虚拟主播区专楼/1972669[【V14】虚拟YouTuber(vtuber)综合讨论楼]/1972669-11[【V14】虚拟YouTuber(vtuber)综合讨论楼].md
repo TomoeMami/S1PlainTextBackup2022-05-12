@@ -5343,3 +5343,14 @@ tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 15499#       发表于 2022-6-27 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56401623&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-6-24 21:10</a>
+看来vspo第一个稳定万棒选手有戏了</blockquote>
+必然是王好吧 
+
