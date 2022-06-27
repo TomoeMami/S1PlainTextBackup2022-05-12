@@ -1512,3 +1512,29 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 刚才闲来无事翻了一下Wiki，发现五星弓还没有绿卡单体宝具，正好源氏代表人物的宝具都是绿的，那我就顺便奶 ...</blockquote>
 光妈：？
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88642#       发表于 2022-6-27 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56425651&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-27 00:02</a>
+
+除了骑金时和两个牛肉丸，其他的不都是红的吗？</blockquote>
+不好意思，只想到了打过源平之战的义经......源赖光不是一个时代的就给忘了...
+
+*****
+
+####  Jamaisvu  
+##### 88643#       发表于 2022-6-27 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56427078&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-27 08:25</a>
+
+光妈：？</blockquote>
+失误了，没有源赖光，给忘了...
+
+不过源平之战那几位（牛肉丸、泳装牛若、平景清）都是绿卡，赖光和四天王是红卡，应该也能区分开...
+
+其实就是想奶一下绿卡单体<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
