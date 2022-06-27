@@ -5099,3 +5099,16 @@ syl
 
 虹社有绯闻的除了葛尊还有啥？好想看爆料<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">莉光郡神Crossick莉莉天狗这种摆到台面上的不管是不是营业都算了。
 
+
+
+*****
+
+####  hulaoda007  
+##### 15474#       发表于 2022-6-27 13:50
+
+柴卡童田说？
+
+甚至柴柴在种24里也直球回避最近好像想谈恋爱的克雷雅提出的关于社内恋爱的话题。
+
+以及我觉得还是葛千比较甜。
+
