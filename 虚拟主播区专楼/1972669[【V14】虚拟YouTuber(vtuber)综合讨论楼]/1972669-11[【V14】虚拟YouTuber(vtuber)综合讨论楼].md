@@ -5388,3 +5388,26 @@ tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com
 
 跌丝袜的热度应该是结束了，短视频过50w播放都艰难......
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15503#       发表于 2022-6-28 00:42
+
+……是什么让你们这一个月来对数据的大小标准感知变得这么奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当社比是跳水到一半没错，但横向放到整个市场对比不还是顶尖吗，有几个播游戏平A能稳定这数字的？
+
+*****
+
+####  _Ra1nMaker  
+##### 15504#       发表于 2022-6-28 00:47
+
+如果再等一个月之后还是现在这数字才能吹稳定吧？
+
+*****
+
+####  Ketestrait  
+##### 15505#       发表于 2022-6-28 00:47
+
+说了要尽快适应新常态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
