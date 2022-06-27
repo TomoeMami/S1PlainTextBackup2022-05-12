@@ -5278,3 +5278,14 @@ syl
 
 合理怀疑整合后krid已经没有运营了，谷子需要liver自力，官方商店也找不到krid相关
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15493#       发表于 2022-6-27 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56437066&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-6-27 21:27</a>
+现在虹kr和id不都整合进本社了嘛，有好起来吗？</blockquote>
+您好那个叫放弃，不叫整合<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
