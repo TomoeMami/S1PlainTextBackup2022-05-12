@@ -15571,3 +15571,19 @@ bug
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  stygian  
+##### 10302#       发表于 2022-6-27 10:25
+
+鲤语其实我感觉有不少计算成分，不过可爱就完事了
+
+*****
+
+####  ViyViy  
+##### 10303#       发表于 2022-6-27 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小姑娘们这么爱吃，以后星架空就搞美食番吧，结丘九杰
+

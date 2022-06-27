@@ -5000,3 +5000,21 @@ tnnd，这么大个管人圈有没有人有趣对独角兽又友好的男管人�
 ymen我每次想当黑客代餐看都觉得没那味看一会儿就调台了，而且也不想看男主播和女主播打情骂俏= =老实说看 ...</blockquote>
 花生？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15464#       发表于 2022-6-27 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56426309&amp;ptid=1972669" target="_blank">lancasterliang 发表于 2022-6-27 01:52</a>
+
+花生？</blockquote>
+没有人形我入脑不起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能对花生入脑那恐怕也无法忽视狸猫吧…大概
+
+syl
+
+还是看了花絮集，其实还好，跑起来憋的两句就ymen而言也是夹了的，safe<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+细究的话只要还在说标准语其实都应该是在rp黛灰的，off时会撒娇还哼歌，这么一想这人好あざとい啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
