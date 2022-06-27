@@ -5177,3 +5177,12 @@ syl
 
 这身法明显比bora时代强，没少苦练
 
+
+
+*****
+
+####  ヒトニナル  
+##### 15482#       发表于 2022-6-27 20:43
+
+你虹这个ソープスクール德比拿HO1黛灰拿HO2就好笑，光明正大的德比虐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
