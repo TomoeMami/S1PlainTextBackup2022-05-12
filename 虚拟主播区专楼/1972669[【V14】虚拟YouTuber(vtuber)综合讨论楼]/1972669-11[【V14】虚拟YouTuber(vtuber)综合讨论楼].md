@@ -5218,3 +5218,19 @@ syl
 
 别尬黑，毕业直播有4W的
 
+
+
+*****
+
+####  lhawp  
+##### 15487#       发表于 2022-6-27 21:26
+
+所以虹KR运营什么时候直播个切腹啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 15488#       发表于 2022-6-27 21:27
+
+现在虹kr和id不都整合进本社了嘛，有好起来吗？
+
