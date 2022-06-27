@@ -15525,3 +15525,15 @@ bug
 
 不懂日语，问下所谓鲤语有什么特点吗？ 感觉其他成员学鲤鱼说话好好玩，感觉像是外国人说中文的那种错误音调？
 
+
+
+*****
+
+####  老1.5  
+##### 10299#       发表于 2022-6-27 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56425909&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-27 00:31</a>
+
+不懂日语，问下所谓鲤语有什么特点吗？ 感觉其他成员学鲤鱼说话好好玩，感觉像是外国人说中文的那种错误音 ...</blockquote>
+我的理解一是鱼经常用短词凑成句子，比如“nako , nako ,快看，老婆”。二是往往伴随鱼叫，比如“哦吼”“啊~~”，三是用中文逻辑形成的日语语句，比如习惯性在形容词和名词之间加”の“，四是说话语调很好玩（憨），各方面加起来就很有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
