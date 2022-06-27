@@ -15560,3 +15560,14 @@ bug
 
 2022-6-27 09:42 上传
 
+
+
+*****
+
+####  愛さ実  
+##### 10301#       发表于 2022-6-27 09:55
+
+そまクゥ、さすクゥ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">印象比较深的鲤略语
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
