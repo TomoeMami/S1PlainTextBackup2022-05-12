@@ -1556,3 +1556,27 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 究竟要长草到什么时候啊？日服是不需要收入了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88646#       发表于 2022-6-27 11:23
+
+<blockquote>qixinno2 发表于 2022-6-27 09:42
+有没有一种可能 你说的那三个都是一个人</blockquote>
+姑且算两个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+其实我估计以后出了源义经（或者什么冠位骑，源义经•成吉思汗），也可能是绿光炮（或者绿单体）。
+
+（牛若丸的设定构成是东出，平景清有可能是樱井写的...不知道完全体义经本尊是什么样子...）
+
+*****
+
+####  Jamaisvu  
+##### 88647#       发表于 2022-6-27 11:25
+
+<blockquote>levy320 发表于 2022-6-27 10:21
+究竟要长草到什么时候啊？日服是不需要收入了吗？</blockquote>
+29号生放送，应该是当天晚上开八犬传活动吧。
+
