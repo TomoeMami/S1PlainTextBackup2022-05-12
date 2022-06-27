@@ -5246,3 +5246,14 @@ syl
 你虹这个ソープスクール德比拿HO1黛灰拿HO2就好笑，光明正大的德比虐</blockquote>
 每次黑客跑团都有好多人鬼哭狼嚎模组和HO，但是只有山脉和鸣铃家勉强补完了其他都没时间看完，百度也找不到模组主要剧情，看动态好像是国内也很有名的模组，请问你知道这次又是什么阴间设定吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 15490#       发表于 2022-6-27 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56437177&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-27 21:37</a>
+每次黑客跑团都有好多人鬼哭狼嚎模组和HO，但是只有山脉和鸣铃家勉强补完了其他都没时间看完，百度也找不 ...</blockquote>
+这个模组主要讲的校园霸凌，PC是初中老师，HO1过去是被霸凌者HO2过去是霸凌者（HO2的霸凌对象不是HO1），HO3和自杀女生有暧昧关系，HO4是自杀女生的哥哥/姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很典型的日式模组，突出一个人际关系的瞎几把乱
+
