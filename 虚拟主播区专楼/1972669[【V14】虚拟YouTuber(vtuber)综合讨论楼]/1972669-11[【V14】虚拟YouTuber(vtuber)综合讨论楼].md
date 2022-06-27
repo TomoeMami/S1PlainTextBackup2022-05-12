@@ -5234,3 +5234,15 @@ syl
 
 现在虹kr和id不都整合进本社了嘛，有好起来吗？
 
+
+
+*****
+
+####  fastary  
+##### 15489#       发表于 2022-6-27 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56436489&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-6-27 20:43</a>
+
+你虹这个ソープスクール德比拿HO1黛灰拿HO2就好笑，光明正大的德比虐</blockquote>
+每次黑客跑团都有好多人鬼哭狼嚎模组和HO，但是只有山脉和鸣铃家勉强补完了其他都没时间看完，百度也找不到模组主要剧情，看动态好像是国内也很有名的模组，请问你知道这次又是什么阴间设定吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
