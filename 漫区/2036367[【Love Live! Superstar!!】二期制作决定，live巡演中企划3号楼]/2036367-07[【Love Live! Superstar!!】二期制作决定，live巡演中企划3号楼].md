@@ -15587,3 +15587,26 @@ bug
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小姑娘们这么爱吃，以后星架空就搞美食番吧，结丘九杰
 
+
+
+*****
+
+####  平安名すみれ  
+##### 10304#         楼主| 发表于 2022-6-27 11:01
+
+新楼开了，欢迎大家过去建设
+
+*****
+
+####  saya1892  
+##### 10305#       发表于 2022-6-27 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56428452&amp;ptid=2036367" target="_blank">stygian 发表于 2022-6-27 10:25</a>
+
+鲤语其实我感觉有不少计算成分，不过可爱就完事了</blockquote>
+一开始肯定会想要纠正不正宗的日语，但是很受欢迎所以决定继续按这个路线走下去了吧
+
+其实鱼也经常会看网络反馈把タン食う食う之类的流行语吸收进来
+
+发个推都要给经纪人审核的情况下，那些对宅很严格或者用手指人还能继续演下去肯定都是计算过的啊
+
