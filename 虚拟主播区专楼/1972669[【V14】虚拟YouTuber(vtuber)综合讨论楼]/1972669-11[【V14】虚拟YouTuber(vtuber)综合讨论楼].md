@@ -5289,3 +5289,41 @@ syl
 现在虹kr和id不都整合进本社了嘛，有好起来吗？</blockquote>
 您好那个叫放弃，不叫整合<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15494#       发表于 2022-6-27 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56437745&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-6-27 22:28</a>
+
+合理怀疑整合后krid已经没有运营了，谷子需要liver自力，官方商店也找不到krid相关 ...</blockquote>
+ID我不知道，KR当年的运营其实就是本社有几个联络人员
+
+就连周年那次bora的单曲都是她自己录的发给日本，也没什么指示之类的，自由发挥
+
+（可能是本社的人远程联络好录音室让她去的，记不清了）
+
+箱管理基本是那几个大哥大姐在搞，bora釜山人所以特别离群
+
+现在的统和说白只是把名头去掉，估计体制应该没有任何区别
+
+*****
+
+####  Suzutsuki  
+##### 15495#       发表于 2022-6-27 22:44
+
+tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15496#       发表于 2022-6-27 22:46
+
+月奈火箭20W了，磨一磨到30W就看到hnn的尾气了
+
+空降TOP啊简直是
+
+该不仲了
+

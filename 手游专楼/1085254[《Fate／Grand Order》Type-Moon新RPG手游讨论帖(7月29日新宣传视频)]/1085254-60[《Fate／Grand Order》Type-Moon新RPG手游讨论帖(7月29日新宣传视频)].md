@@ -1774,3 +1774,30 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 平景清泳装希望能有礼装那个水平<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88664#       发表于 2022-6-27 22:43
+
+<blockquote>acuman 发表于 2022-6-27 21:40
+水夏确实是……真的辣眼睛
+
+最气人的是强度还很高
+
+我一个强度党抽也不是不抽也不是 ...</blockquote>
+我是科黛厨所以抽了还百级金芙芙拉满了，强度什么的我不是很在意，但搞出这种卡面我只能说苍月nmsl
+
+*****
+
+####  acuman  
+##### 88665#       发表于 2022-6-27 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56437907&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-27 22:43</a>
+
+我是科黛厨所以抽了还百级金芙芙拉满了，强度什么的我不是很在意，但搞出这种卡面我只能说苍月nmsl ...</blockquote>
+震惊，居然是科黛厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+请问是厨史实吗，还是剧情
+
