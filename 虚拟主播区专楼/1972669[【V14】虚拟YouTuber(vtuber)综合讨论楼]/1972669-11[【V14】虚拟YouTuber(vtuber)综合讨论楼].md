@@ -5018,3 +5018,21 @@ syl
 
 细究的话只要还在说标准语其实都应该是在rp黛灰的，off时会撒娇还哼歌，这么一想这人好あざとい啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 15465#       发表于 2022-6-27 11:12
+
+ 本帖最后由 越动天下 于 2022-6-27 11:17 编辑 
+
+<img src="https://p.sda1.dev/6/aa1d104089034e004c6617e5cb936e07/CMP_20220627111002056.jpg" referrerpolicy="no-referrer"> 什么时候复活呀 感觉官司明年都不一定打的完
+
+*****
+
+####  布莱士·西伯利  
+##### 15466#       发表于 2022-6-27 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">口了回来能涨多少粉…？
+
