@@ -5354,3 +5354,19 @@ tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com
 看来vspo第一个稳定万棒选手有戏了</blockquote>
 必然是王好吧 
 
+
+
+*****
+
+####  poipanchao  
+##### 15500#       发表于 2022-6-27 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56438088&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2022-6-27 23:00</a>
+
+今天月奈在播的时候，去vspo的5ch串看了看，不是已经开始叫王了吗</blockquote>
+仔细看看，在串里“王”一直特指hnn啊，别是看岔了
+
+感觉串里今天好多玩梗
+
+“感觉不如noah”、“感觉不如hnn”
+
