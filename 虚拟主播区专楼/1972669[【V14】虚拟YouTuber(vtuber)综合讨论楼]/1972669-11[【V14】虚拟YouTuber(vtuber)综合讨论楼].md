@@ -5269,3 +5269,12 @@ syl
 这个模组主要讲的校园霸凌，PC是初中老师，HO1过去是被霸凌者HO2过去是霸凌者（HO2的霸凌对象不是HO1）， ...</blockquote>
 谢谢！典型被霸凌者的人rp霸凌者<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">怪不得这么多人表示震惊
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15492#       发表于 2022-6-27 22:28
+
+合理怀疑整合后krid已经没有运营了，谷子需要liver自力，官方商店也找不到krid相关
+
