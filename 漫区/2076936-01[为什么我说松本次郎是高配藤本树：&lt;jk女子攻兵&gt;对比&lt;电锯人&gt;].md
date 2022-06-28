@@ -1004,3 +1004,16 @@ jk女子攻兵的确更勇也更有底气，但还是想问下拿它当作刻奇
 
 顺带一问还有什么类似女子攻兵的作品嘛 我中毒有点深<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Racyjackman  
+##### 75#       发表于 2022-6-28 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56445032&amp;ptid=2076936" target="_blank">wiwiwcwc 发表于 2022-6-28 14:22</a>
+虽然我也很喜欢女子攻兵这部作品 但是感觉吹一踩一行为不可取
+
+藤本连载的平台Jump很难给予他这么大创作的自 ...</blockquote>
+松本次郎的《地狱的爱丽丝》《末世杀手》都有汉化，还有短篇《如果我是独裁者的话》也挺有意思的
+

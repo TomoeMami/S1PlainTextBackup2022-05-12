@@ -5984,3 +5984,12 @@ VTA生「下ネタメインの配信したら女性社員の方によく思わ�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说黄段子被女性stf教训了一个小时也太好笑了吧。
 
+
+
+*****
+
+####  Ketestrait  
+##### 15564#       发表于 2022-6-28 14:49
+
+“他所から運営できる人”环顾V圈是指的第一箱杏还是新兴王者vspo，但人家日子过得舒坦怕是不愿来日薄西山的你虹啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
