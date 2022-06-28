@@ -6213,3 +6213,16 @@ syl 不如早点让运营拉到公式番组上一上让desuwa有个和人联动�
 我有预感搞不好还挺极端</blockquote>
 似乎不如杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15586#       发表于 2022-6-28 22:04
+
+歌力跟以前差不多吧
+
+用第二语言唱歌还是有一定debuff的
+
+前世加起来也就难得唱过几首韩语歌
+
