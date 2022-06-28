@@ -5939,3 +5939,39 @@ fes那个就更难了，本身就是强调现地的企划，不可能专门复�
 
 虽然也不是不能理解...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 15560#       发表于 2022-6-28 13:12
+
+<blockquote>2022/6ではっっっきりとわかっただろ
+現状のえにから運営のにじさんじの限界がここだ
+サロメの扱いもこれが限界
+他所から運営できる人引っ張ってこないとここからにじさんじが上に行くことはないわ
+運営の限界なんだから発展なんてするわけねえ
+
+・緑「“なんかやる”なんてタイトルは誰も見にこない。それが許されるの葛葉と叶だけ。
+運営さんとかが…参考資料を纏めてくれる事があるんだけど、、これ参考にしてください！って持ってきたのが葛葉の切り抜きだったw いやそれ…葛葉だから伸びてるんじゃ…」
+https://youtu.be/RbmStYoUQcE
+
+めあ衛門「卒業勢の建築壊されるとファンが騒ぐから海外勢は運営からJP鯖で建築禁止されてる」
+めあ衛門「夏祭りの日は運営に『なにもこの日はないです！』って聞いてたのにゆめお先輩のライブが入ってた」
+
+VTA生「下ネタメインの配信したら女性社員の方によく思われなくて50分くらい説教された」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是现状啦，莎皇也就出个一个月纪念和工商撞一起，小事
+
+*****
+
+####  rzrbtk  
+##### 15561#       发表于 2022-6-28 13:17
+
+在坏的意义上很一视同仁啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 15562#       发表于 2022-6-28 13:17
+
+往钱和流量上靠我觉得还蛮明显的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
