@@ -5621,3 +5621,14 @@ enkr：狼性运营的事怎么能叫区别对待呢<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我觉得确实是虹v不行，你看木口海外除了cn也没毕业的，cn毕业也不是营业上出问题，cover给海外的支援也少得可怜，唯一值得称道的是给了en一期家用3d，但也是过了非常久，而en一期都算是开天辟地的一期了。
 
+
+
+*****
+
+####  rzrbtk  
+##### 15528#       发表于 2022-6-28 11:05
+
+虹最能表现出资源倾斜的就是那个死了又活了的day1day2，当时心想“我天不上舞台不配过周年是吧我郡好歹是虹女前十<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">”，结果之后郡郡会限说自己就是不想唱歌跳舞就爱做握手女奴，那我也没办法，总不能骂病弱阿姨不爱运动吧。
+现在对“在虹不做偶像死路一条”这个观点就不认同，五元算虹里吃工商饭最多的人之一，根本不偶像，但人家角色特性强。其他你虹公认不遇的到底有谁，圭利？可大活现在也是他上啊。
+syl，要跟myth比“行”，那“不行”的v太多了
+
