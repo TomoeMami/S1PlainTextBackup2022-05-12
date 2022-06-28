@@ -1906,3 +1906,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88675#       发表于 2022-6-28 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2.65感觉完全没兴趣看，反正也就只能看懂个大概，C过去算了……
+
