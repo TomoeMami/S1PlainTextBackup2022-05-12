@@ -5493,3 +5493,14 @@ syl，上一个有名的跳板论是开闭，秋搞的白绿紫蓝顺便证明�
 
 那只能祝你虹输送的人才越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 15514#       发表于 2022-6-28 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56440855&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-28 09:19</a>
+那只能祝你虹输送的人才越来越多了</blockquote>
+楼友真的是，又云又爱讨论，说一堆错漏百出的话等人反驳，没话说了就吐个口水走了，下次继续。能不能给回你的楼友知识付费啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。
+
