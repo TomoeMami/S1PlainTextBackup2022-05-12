@@ -5547,3 +5547,23 @@ syl，上一个有名的跳板论是开闭，秋搞的白绿紫蓝顺便证明�
 
 cn全家毕业是因为原则问题不得不切割好吧怎么你杏人连杏都云的啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 15520#       发表于 2022-6-28 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56441179&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-6-28 09:43</a>
+虹真的是资源不足而不是区别对待吗</blockquote>
+作为订阅倒数但是谷照样出（比郡郡频率都高），音声照样有头图，有工商，周年庆有歌唱，基本上3D确定排上了，每次就是发新衣服新live2D的时候才动一下的东堂琥珀的粉丝的我认为，呃，该有的都有啊
+
+*****
+
+####  fastary  
+##### 15521#       发表于 2022-6-28 09:57
+
+enkr：狼性运营的事怎么能叫区别对待呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+与其说有资源不给，不如说废物enkr运营光薅top粉的羊毛就能搞到没资源(心思)管其他人了，en也是爆如刘雪梅才开始推的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
