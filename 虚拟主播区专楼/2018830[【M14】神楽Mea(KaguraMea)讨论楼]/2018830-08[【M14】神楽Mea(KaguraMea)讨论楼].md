@@ -13534,3 +13534,15 @@ emmmmmmm 四周年上居然还有男人啊……</blockquote>
 
 これが生き残るための、俺の足搔きだ！
 
+
+
+*****
+
+####  追风小星星  
+##### 11811#       发表于 2022-6-28 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56438126&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-6-27 23:02</a></blockquote>
+起名“狗蛋”好养活的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
