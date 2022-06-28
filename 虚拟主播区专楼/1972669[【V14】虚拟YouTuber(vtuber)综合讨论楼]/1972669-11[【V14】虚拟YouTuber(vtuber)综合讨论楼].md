@@ -5435,3 +5435,13 @@ tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com
 
 再怎么狼性也不能把kr和id好的留下剩下的踢走啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是vta干的活
 
+
+
+*****
+
+####  poipanchao  
+##### 15508#       发表于 2022-6-28 08:29
+
+那肯定是好事啊，去更好的地方了还不好吗
+剩下的还在永世轮回枝江…哦不是彩虹地狱呢
+
