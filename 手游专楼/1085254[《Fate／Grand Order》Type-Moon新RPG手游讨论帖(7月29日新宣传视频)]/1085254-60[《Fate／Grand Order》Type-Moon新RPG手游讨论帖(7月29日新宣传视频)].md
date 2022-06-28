@@ -1872,3 +1872,17 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 不过10个也没区别 不如一张护符
 
+
+
+*****
+
+####  qixinno2  
+##### 88672#       发表于 2022-6-28 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56448250&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-28 18:31</a>
+
+巧了我也没打 外加我一直以为是送1个茶壶
+
+不过10个也没区别 不如一张护符 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是的 根本没屁用 上次的那堆壶一直等个羁绊高的本没用 结果到时间没了 这次就干脆懒得弄了
+
