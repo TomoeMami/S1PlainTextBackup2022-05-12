@@ -5476,3 +5476,20 @@ tuna播完，67来了，今天还挺幸福<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  rzrbtk  
+##### 15512#       发表于 2022-6-28 09:15
+
+虹最早期的时候通风口就自曝被staff说过“跳板论”，这是坚持初心哈，有v的地方就有彩虹人。
+syl，上一个有名的跳板论是开闭，秋搞的白绿紫蓝顺便证明了资源再怎么倒腾该走还是走，绿一人吃所有最后脱退团直接无了，蓝独立准备上行结果绿死忠成员走了，白紫几个美颜top倒是团内关系好愿意留下奶人。一直认为毕业原因是成员本身占大头（除了直接公告被开的）
+
+*****
+
+####  渡鸦骑士  
+##### 15513#       发表于 2022-6-28 09:19
+
+那只能祝你虹输送的人才越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
