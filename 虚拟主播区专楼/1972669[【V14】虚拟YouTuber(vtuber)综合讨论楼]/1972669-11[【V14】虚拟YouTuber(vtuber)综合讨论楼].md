@@ -5730,3 +5730,53 @@ tuna昨天同接最高有4W7来着？不过打枪这玩意儿，同接掉得也�
 如果所有活动要运营都喂饭的话那liver要交换些什么，魂号上交吗，v圈本来就是一个不限制于自箱的大的体系 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喂饭没有，管得倒比别家严多了，v圈唯一禁止vc箱没想到是彩虹吧
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15540#       发表于 2022-6-28 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56443083&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-28 11:46</a>
+直播活动全靠v自由发挥运营只负责包装主流出道出音声周边接工商那跟不限制艺人直播活动的偶像事务所有什 ...</blockquote>
+无关，日本那，可能不对，但据我所知有些电视节目是电视台制作人自己决定要做什么，有些则是艺人提出意见希望做什么，然后电视台决定帮忙去做。
+
+
+
+*****
+
+####  rzrbtk  
+##### 15541#       发表于 2022-6-28 12:01
+
+<blockquote>fastary 发表于 2022-6-28 11:46
+直播活动全靠v自由发挥运营只负责包装主流出道出音声周边接工商那跟不限制艺人直播活动的偶像事务所有什 ...</blockquote>
+那你也得v自己本身愿意动/接活啊，你觉得是虹不想给黛灰活还是黛灰自己不想接呢，nijiquiz又不是谁都能上的
+
+*****
+
+####  rzrbtk  
+##### 15542#       发表于 2022-6-28 12:04
+
+<blockquote>winda 发表于 2022-6-28 11:54
+喂饭没有，管得倒比别家严多了，v圈唯一禁止vc箱没想到是彩虹吧</blockquote>
+要怎么定义喂饭呢，liver躺着然后给你专属综艺定制大活动画op吗，那确实无，又不是神椿。
+
+*****
+
+####  渡鸦骑士  
+##### 15543#       发表于 2022-6-28 12:07
+
+vc是什么缩写<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15544#       发表于 2022-6-28 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56442581&amp;ptid=1972669" target="_blank">空集 发表于 2022-6-28 11:15</a>
+开个别的话题吧  bora转生这个高数据根本原因到底是前世还是vspo现在箱力已经有点东西？ ...</blockquote>
+应该跟箱力关系不大，同时段还有vspo全队valo，ema杂谈分流
+月奈好歹是横跨三大箱，cr编外的女人，名声在外
+今年圣皇练出来的时候还经常被拉出来当牌打，刷了点存在
+各种buff拉满才有的高同接
+
