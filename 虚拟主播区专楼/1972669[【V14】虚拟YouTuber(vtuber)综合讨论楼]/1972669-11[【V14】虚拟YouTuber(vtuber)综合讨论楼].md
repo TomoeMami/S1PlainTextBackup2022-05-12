@@ -6199,3 +6199,17 @@ syl 不如早点让运营拉到公式番组上一上让desuwa有个和人联动�
 
 阿喵喵做主办真的很不错！
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15585#       发表于 2022-6-28 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56448782&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-6-28 19:25</a>
+
+つな今天还要开歌回，
+
+我有预感搞不好还挺极端</blockquote>
+似乎不如杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
