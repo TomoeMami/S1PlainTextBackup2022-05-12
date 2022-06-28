@@ -1825,3 +1825,27 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 三倍血量确实比以前五倍的简单，人阵营也吃摩根特攻
 
+
+
+*****
+
+####  alucardcz  
+##### 88668#       发表于 2022-6-28 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56447858&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-6-28 17:49</a>
+
+三个高难回忆关卡都打完了，茶壶+30
+
+三倍血量确实比以前五倍的简单，人阵营也吃摩根特攻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 是30个？ 我还以为3个  
+
+*****
+
+####  保罗赫伯特  
+##### 88669#       发表于 2022-6-28 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56447927&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-28 17:57</a>
+
+什么 是30个？ 我还以为3个</blockquote>
+一关10个啊，总共30
+
