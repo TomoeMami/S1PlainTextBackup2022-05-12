@@ -1895,3 +1895,14 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 虽然打完了高难不过最后是3令咒逃课了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 88674#       发表于 2022-6-28 22:45
+
+原来你们都打回忆本的么，我三期都咸了，每天上线一次种树<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
