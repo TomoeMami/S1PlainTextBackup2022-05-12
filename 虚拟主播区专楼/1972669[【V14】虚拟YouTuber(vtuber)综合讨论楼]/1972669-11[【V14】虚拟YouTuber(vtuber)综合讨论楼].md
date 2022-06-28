@@ -5928,3 +5928,14 @@ fes那个就更难了，本身就是强调现地的企划，不可能专门复�
 
 顺便我说圭利不遇也是因为他某次企划抢不过别的活动只派了两个staff另一个主办还冠了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15559#       发表于 2022-6-28 13:09
+
+要说狼性，虹en还有条规定（在kawaii的Neena那边得知的，在Mizuchi那里得到验证），联动对象的CCV不得低于100
+
+虽然也不是不能理解...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
