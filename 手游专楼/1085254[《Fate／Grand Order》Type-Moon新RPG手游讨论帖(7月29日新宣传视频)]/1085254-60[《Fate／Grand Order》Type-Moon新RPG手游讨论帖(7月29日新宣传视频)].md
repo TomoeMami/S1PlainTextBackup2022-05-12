@@ -1858,3 +1858,17 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜鸡仰望 超级本根本没打 
 
+
+
+*****
+
+####  alucardcz  
+##### 88671#       发表于 2022-6-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56448087&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-28 18:14</a>
+
+菜鸡仰望 超级本根本没打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了我也没打 外加我一直以为是送1个茶壶
+
+不过10个也没区别 不如一张护符
+
