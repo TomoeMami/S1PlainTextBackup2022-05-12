@@ -5666,3 +5666,37 @@ bora这个大概是听过的人都来看的级别吧，枪打的又好，又有�
 
 tuna昨天同接最高有4W7来着？不过打枪这玩意儿，同接掉得也快，稳定后能有艾玛水平就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15533#       发表于 2022-6-28 11:30
+
+拉人出组合算不算？哦这就是开live发歌出谷全包括了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 15534#       发表于 2022-6-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56442688&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-28 11:22</a>
+不是说在虹不做偶像就死路一条，问题是你虹现在日常就是发歌开live出谷接工商，除了一年？一度的棒球和麻将 ...</blockquote>
+如果所有活动要运营都喂饭的话那liver要交换些什么，魂号上交吗，v圈本来就是一个不限制于自箱的大的体系，v自身的争取肯定也重要啊，如果虹自己推那悠星亲女儿不是郡而是露易丝，饭屋打派随便换成晴这样。
+
+*****
+
+####  越动天下  
+##### 15535#       发表于 2022-6-28 11:33
+
+不是打枪掉的快 是刚刚播肯定高 大家都来看看 看了一下昨天走向趋势和同接的浮动 对比一下几个月前单排上大师的直播走向趋势和同接浮动 就应该明白了
+
+*****
+
+####  死体残留  
+##### 15536#       发表于 2022-6-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56442688&amp;ptid=1972669" target="_blank">fastary 发表于 2022-6-28 11:22</a>
+不是说在虹不做偶像就死路一条，问题是你虹现在日常就是发歌开live出谷接工商，除了一年？一度的棒球和麻将 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">fes和2434之日吧 以前不是吹虹运营活动干预的少的？怎么现在就嫌运营出力不够了
+
