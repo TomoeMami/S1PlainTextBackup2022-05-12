@@ -665,3 +665,12 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 来信提问，tiktok的外出版shooting choice中，鲤鱼和nagi选了鬼屋，emorin和yabu选了蹦 ...</blockquote>
 好啊，建议到时候分两队，鱼这么喜欢鬼屋就去鬼屋队，我已经迫不及待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 62#       发表于 2022-6-29 00:00
+
+让我们康康上次鬼屋谁吓到胃疼谁吓到爬出来的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
