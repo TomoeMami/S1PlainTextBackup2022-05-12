@@ -1886,3 +1886,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 不过10个也没区别 不如一张护符 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是的 根本没屁用 上次的那堆壶一直等个羁绊高的本没用 结果到时间没了 这次就干脆懒得弄了
 
+
+
+*****
+
+####  sosgame67  
+##### 88673#       发表于 2022-6-28 19:46
+
+虽然打完了高难不过最后是3令咒逃课了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
