@@ -5861,3 +5861,28 @@ syl，bora毕业前会限diss运营确实够直球的
 
 而且我又不是专指黑客，实际上就是积极在推出组合和发歌，但是综艺企划还有官方牵头的联动之类相比就少啊，总不至于番组是妨碍liver活动出歌不是吧……之前麻将大会不是挺多好评的吗，fes副舞台有些企划也不是平时不能做的吧
 
+
+
+*****
+
+####  FCCHua  
+##### 15553#       发表于 2022-6-28 12:40
+
+ 本帖最后由 FCCHua 于 2022-6-28 12:45 编辑 
+
+昨天艾玛不是在玩游戏吗，valo那边队里有met和reid，妹妹和都都日常被遗忘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 15554#       发表于 2022-6-28 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56443849&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-6-28 12:40</a>
+
+昨天艾玛不是在玩游戏吗，valo那边队里有met和reid，妹妹和都都日常被遗忘 ...</blockquote>
+ema杂谈是弄混了（可能是因为刚看了切片），昨天是DQ来着
+
+met和reid也是vspo！
+
+话说回来我十分想看tuna、luna不仲
+
