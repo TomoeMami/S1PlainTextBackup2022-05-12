@@ -5718,3 +5718,15 @@ tuna昨天同接最高有4W7来着？不过打枪这玩意儿，同接掉得也�
 如果所有活动要运营都喂饭的话那liver要交换些什么，魂号上交吗，v圈本来就是一个不限制于自箱的大的体系 ...</blockquote>
 直播活动全靠v自由发挥运营只负责包装主流出道出音声周边接工商那跟不限制艺人直播活动的偶像事务所有什么本质区别吗，希望能在内容提供上牵头做点什么怎么就快进到所有活动都由运营指定了，别这么二极管行吗。
 
+
+
+*****
+
+####  winda  
+##### 15539#       发表于 2022-6-28 11:54
+
+ 本帖最后由 winda 于 2022-6-28 11:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56442842&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-6-28 11:30</a>
+如果所有活动要运营都喂饭的话那liver要交换些什么，魂号上交吗，v圈本来就是一个不限制于自箱的大的体系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喂饭没有，管得倒比别家严多了，v圈唯一禁止vc箱没想到是彩虹吧
+
