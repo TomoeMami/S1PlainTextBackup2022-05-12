@@ -5504,3 +5504,22 @@ syl，上一个有名的跳板论是开闭，秋搞的白绿紫蓝顺便证明�
 那只能祝你虹输送的人才越来越多了</blockquote>
 楼友真的是，又云又爱讨论，说一堆错漏百出的话等人反驳，没话说了就吐个口水走了，下次继续。能不能给回你的楼友知识付费啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 15515#       发表于 2022-6-28 09:31
+
+懂了，虹留不住人不是因为运营拉胯，是直播员把虹当跳板，都怪直播员
+
+*****
+
+####  rzrbtk  
+##### 15516#       发表于 2022-6-28 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56441026&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-6-28 09:31</a>
+懂了，虹留不住人不是因为运营拉胯，是直播员把虹当跳板，都怪直播员</blockquote>
+公司资源不足和公司搞事直接导致毕业又不同，千鸟运营搞事和小箱v回去打工怎么会一样。
+桐生毕业你们会“怪直播员”吗，毕业回说清楚了粉丝直接开看无缝转生啊。
+
