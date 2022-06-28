@@ -13745,3 +13745,27 @@ jimmy老师这两张真不错
 
 竟然还有模仿蝙蝠妹这个节目<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 11835#       发表于 2022-6-29 04:00
+
+<img src="https://img.saraba1st.com/forum/202206/28/125954wn7j4rzzqud5rczd.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2022-06-28 at 12.59.33 PM.png</strong> (18.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 03:59 上传
+
+这个同接认真的吗
+
+*****
+
+####  时间在我手中  
+##### 11836#       发表于 2022-6-29 04:22
+
+睡觉，拼图一堆这种白色块的属实地狱
+
