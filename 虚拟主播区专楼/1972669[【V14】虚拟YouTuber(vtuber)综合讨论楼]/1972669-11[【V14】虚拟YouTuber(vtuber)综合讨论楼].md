@@ -5975,3 +5975,12 @@ VTA生「下ネタメインの配信したら女性社員の方によく思わ�
 
 往钱和流量上靠我觉得还蛮明显的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15563#       发表于 2022-6-28 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说黄段子被女性stf教训了一个小时也太好笑了吧。
+
