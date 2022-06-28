@@ -13716,3 +13716,14 @@ jimmy老师这两张真不错
 
 这人太多了有点吵
 
+
+
+*****
+
+####  十九号大侠  
+##### 11832#       发表于 2022-6-29 00:40
+
+这起码还要100分钟去了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
