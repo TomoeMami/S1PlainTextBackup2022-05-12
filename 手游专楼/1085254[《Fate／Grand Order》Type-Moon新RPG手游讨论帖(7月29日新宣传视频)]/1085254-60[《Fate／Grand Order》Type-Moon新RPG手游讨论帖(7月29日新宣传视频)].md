@@ -2055,3 +2055,70 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 
 这是派遣系统吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88684#       发表于 2022-6-29 19:51
+
+没了？ 高达呢？4星都没？
+
+*****
+
+####  黑上シグマ  
+##### 88685#       发表于 2022-6-29 19:51
+
+我的萝卜呢？我那么大个源氏萝卜呢？
+
+*****
+
+####  Jamaisvu  
+##### 88686#       发表于 2022-6-29 19:53
+
+ 本帖最后由 Jamaisvu 于 2022-6-29 19:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/29/195923dt040m2h4dsyh0l0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220629_195914.jpg</strong> (329.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:59 上传
+
+曲亭马琴，《八犬传》的作者，也是老卫星了吧，之前阿荣提到过，也说了是性转。
+
+不过活动名字都带弓张月了，却没有源为朝...这是要硬拖到大家把他忘了吗...就和咕哒咕哒那群男人似的...？
+
+*****
+
+####  khxooo  
+##### 88687#       发表于 2022-6-29 19:53
+
+没想到不是源为朝，难道是2.7才放出来？
+
+*****
+
+####  exiaexa  
+##### 88688#       发表于 2022-6-29 19:55
+
+加油啊，骑狗的大姐姐，我石头能不能用出去就看你脱掉和服大不大了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88689#       发表于 2022-6-29 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463213&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-29 19:53</a>
+
+没想到不是源为朝，难道是2.7才放出来？</blockquote>
+可能和柴田胜家、明智光秀一起实装吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88690#       发表于 2022-6-29 19:58
+
+怀疑马琴的宝具只有一个动画，因为演示的时候小人是黑发黑衣，开宝具后却是红发白衣，还有比较精致的特写...可能偷工减料了吧...
+
