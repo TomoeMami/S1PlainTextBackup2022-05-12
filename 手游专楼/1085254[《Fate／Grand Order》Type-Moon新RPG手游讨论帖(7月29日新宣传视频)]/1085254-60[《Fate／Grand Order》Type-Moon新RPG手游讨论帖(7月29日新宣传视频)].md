@@ -2270,3 +2270,15 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 
 两发十连出了，上来一看果然强度感人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88705#       发表于 2022-6-29 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463605&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-6-29 20:18</a>
+
+两发十连出了，上来一看果然强度感人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了  还是要羡慕一下
+
