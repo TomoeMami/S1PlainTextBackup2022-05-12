@@ -2375,3 +2375,50 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 萌新竟然没豹跳么 完全不想扔石头</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得先告诉我怎么在不抽卡的前提下出货 我看好你 你一定会欧的
 
+
+
+*****
+
+####  angelooo  
+##### 88716#       发表于 2022-6-29 21:11
+
+我甚至连生放送都忘了，再下去怕是连日服都要弃了OTZ，这新来的卡面花里胡哨的都什么呀，过了过了
+
+*****
+
+####  qixinno2  
+##### 88717#       发表于 2022-6-29 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56464370&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-29 21:09</a>
+
+你得先告诉我怎么在不抽卡的前提下出货 我看好你 你一定会欧的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也不准备抽 而且刚出完水BB 我想再出五星又要扔进去几百石当祭品
+
+*****
+
+####  angelooo  
+##### 88718#       发表于 2022-6-29 21:14
+
+<blockquote>Jamaisvu 发表于 2022-6-29 19:33
+苍月和石田...总感觉这俩家伙是电脑作画，复制粘贴的，这脑袋似曾相识啊...
+
+（小教授这个怪谈造型真的 ...</blockquote>
+把这个小教授和苍月的设计放一起是公开处刑吧，但我还是会换科黛，等一个背景（虽然已经不抱什么期望了
+
+*****
+
+####  exiaexa  
+##### 88719#       发表于 2022-6-29 21:16
+
+MD这个开局俄里翁是真的有病
+
+过不过全看脸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88720#       发表于 2022-6-29 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还好 一次过 我甚至第一回合就把毅力用了 还好对面没暴击
+
