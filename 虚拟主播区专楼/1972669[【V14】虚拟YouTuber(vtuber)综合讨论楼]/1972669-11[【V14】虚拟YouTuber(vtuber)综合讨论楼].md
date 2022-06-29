@@ -6343,3 +6343,12 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 
 艾玛新冠了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15597#       发表于 2022-6-30 00:33
+
+到底是素人不掐所以没辨识度还是人不行，虹男我看的也不多但是声线基本都能记个大致印象，vta这几个特意想记也是听完就忘= =
+

@@ -2494,3 +2494,21 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 不过你们估计不太抽男人</blockquote>
 那是高达不是人吧23333
 
+
+
+*****
+
+####  闪亮的彗星  
+##### 88729#       发表于 2022-6-30 00:37
+
+<img src="https://img.saraba1st.com/forum/202206/30/003448mhg3u34v42fo84so.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2q-7jnoKmT1kSb8-eq.jpg</strong> (25.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-30 00:34 上传
+
+虽然退坑很久了，但还是想纪念一下，希望盾外女友前面两个字能早日去掉
+
