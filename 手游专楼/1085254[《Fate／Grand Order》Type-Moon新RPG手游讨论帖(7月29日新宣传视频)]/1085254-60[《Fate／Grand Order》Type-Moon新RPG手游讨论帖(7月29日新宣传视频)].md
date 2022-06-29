@@ -1915,3 +1915,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2.65感觉完全没兴趣看，反正也就只能看懂个大概，C过去算了……
 
+
+
+*****
+
+####  白金口袋  
+##### 88676#       发表于 2022-6-29 12:16
+
+圣杯战线勉强在结束前打完了，road to seven时间实在是不够<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
