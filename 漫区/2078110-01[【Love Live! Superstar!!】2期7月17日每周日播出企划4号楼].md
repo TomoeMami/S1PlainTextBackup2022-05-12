@@ -738,3 +738,30 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 要是像轻音那样只加一个人，给人观感会不会就好很多，还方便凑cp，最小的更是能被大家宠上天 ...</blockquote>
 感觉还是五人原理罢了。kon一二季之间并没有那么多活动，星一二季要是连播肯定没事。
 
+
+
+*****
+
+####  仟音一心  
+##### 69#       发表于 2022-6-29 13:57
+
+酸菜鱼
+
+<img src="https://img.saraba1st.com/forum/202206/29/135716a6u9viuiiu4iujbk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2C5C854F-DABC-4BDE-A8C5-1A7FF4368009.jpeg</strong> (167.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-29 13:57 上传
+
+<img src="https://img.saraba1st.com/forum/202206/29/135723t77thskaqtqolfbb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1330893A-194C-4877-8349-DBC397220B72.jpeg</strong> (182.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-6-29 13:57 上传
+
