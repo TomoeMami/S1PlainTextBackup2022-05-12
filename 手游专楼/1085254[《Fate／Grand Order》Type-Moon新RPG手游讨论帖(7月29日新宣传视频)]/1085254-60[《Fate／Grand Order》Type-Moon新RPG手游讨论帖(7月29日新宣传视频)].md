@@ -1924,3 +1924,12 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 圣杯战线勉强在结束前打完了，road to seven时间实在是不够<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 88677#       发表于 2022-6-29 12:29
+
+回忆本圣杯战线都没怎么打，2.6.5打到莎乐美挂点就没兴趣往后推了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
