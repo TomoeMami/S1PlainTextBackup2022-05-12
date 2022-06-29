@@ -1933,3 +1933,74 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 回忆本圣杯战线都没怎么打，2.6.5打到莎乐美挂点就没兴趣往后推了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88678#       发表于 2022-6-29 19:32
+
+<img src="https://img.saraba1st.com/forum/202206/29/193059fdx0rf7rmmj7trmj.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502221318.jpg</strong> (246.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:30 上传
+
+肉肉这个黑狗画的...乍一看还以为是游星尖兵...
+
+*****
+
+####  Jamaisvu  
+##### 88679#       发表于 2022-6-29 19:33
+
+ 本帖最后由 Jamaisvu 于 2022-6-29 19:34 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/29/193241xjndj3dj2ej3h3jd.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502342124.jpg</strong> (242.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202206/29/193242p32cy7jder3mc33e.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502345577.jpg</strong> (180.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:32 上传
+
+苍月和石田...总感觉这俩家伙是电脑作画，复制粘贴的，这脑袋似曾相识啊...
+
+（小教授这个怪谈造型真的好看，要不是角色塑造有点low，就可能换他的卡了...）
+
+*****
+
+####  Jamaisvu  
+##### 88680#       发表于 2022-6-29 19:36
+
+ 本帖最后由 Jamaisvu 于 2022-6-29 19:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202206/29/193514ogl0xeo4l0o4g2qs.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502471796.jpg</strong> (186.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:35 上传
+
+坂本这回没失手，莱妮丝画得很好看，我都怀疑是不是压稿<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202206/29/193515k4a7jclzj8iy780p.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502479283.jpg</strong> (184.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:35 上传
+
+白衣秀士梅林...这个角度差点以为是梅莉...
+
