@@ -6313,3 +6313,15 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 
 顺便这是什么事件<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15594#       发表于 2022-6-29 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56461009&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-6-29 17:06</a>
+
+顺便这是什么事件</blockquote>
+大概是说一部分liver的抖音账号被盗了然后挪作私用的事情吧
+
