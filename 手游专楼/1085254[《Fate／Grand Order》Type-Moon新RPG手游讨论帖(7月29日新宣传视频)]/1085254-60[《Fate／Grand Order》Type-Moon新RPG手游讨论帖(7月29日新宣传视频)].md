@@ -2282,3 +2282,40 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 两发十连出了，上来一看果然强度感人吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了  还是要羡慕一下
 
+
+
+*****
+
+####  exiaexa  
+##### 88706#       发表于 2022-6-29 20:32
+
+这俩强化，两个人特攻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88707#       发表于 2022-6-29 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么北师傅没有强化 她不配吗
+
+*****
+
+####  exiaexa  
+##### 88708#       发表于 2022-6-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463554&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-29 20:14</a>
+
+两单算个球，我直接天井</blockquote>
+那还是你狠
+
+我补了两单以后，贤者时间思考了一下直接放弃了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 88709#       发表于 2022-6-29 20:34
+
+呼符全白给，嘛不脱的话也没所谓了，不丢石头了。
+
