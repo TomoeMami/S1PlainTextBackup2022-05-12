@@ -6352,3 +6352,58 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 
 到底是素人不掐所以没辨识度还是人不行，虹男我看的也不多但是声线基本都能记个大致印象，vta这几个特意想记也是听完就忘= =
 
+
+
+*****
+
+####  Longinus_  
+##### 15598#       发表于 2022-6-30 02:00
+
+ 本帖最后由 Longinus_ 于 2022-6-30 02:01 编辑 
+
+嗯女二期大概是要有新衣服或者周年活动了
+
+rosemi搞了个arg
+
+开了一个半年后的杂谈准备室
+
+封面上带了链接指向一个二维码，扫了进去是个可以登录的网站 [https://ministryofsupernaturalaffairs.info/](https://ministryofsupernaturalaffairs.info/)
+
+指向了三个推特 [https://twitter.com/MOSNA_INFO](https://twitter.com/MOSNA_INFO) [https://twitter.com/602Employee](https://twitter.com/602Employee) [https://twitter.com/human_of_dcity](https://twitter.com/human_of_dcity)
+
+从推特上的信息看得到密码
+
+登进去看有张海报
+
+写了7月1日到3日有演出
+
+不过准备的几个推特还有在更新所以可以等一手新信息 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 格林卡罗尔| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  格林卡罗尔  
+##### 15599#       发表于 2022-6-30 05:00
+
+为什么我账号602密码hatsuhirokarada换着大小写输怎么都不对<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wuzhengkai  
+##### 15600#       发表于 2022-6-30 05:57
+
+笑死 pomu今天这个five dates神回了
+
