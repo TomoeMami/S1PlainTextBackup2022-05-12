@@ -6325,3 +6325,12 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 顺便这是什么事件</blockquote>
 大概是说一部分liver的抖音账号被盗了然后挪作私用的事情吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 15595#       发表于 2022-6-29 20:08
+
+王霸山这试玩版爵爵子又刚了快24小时了，能不能来个人劝下她防止突然倒下啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

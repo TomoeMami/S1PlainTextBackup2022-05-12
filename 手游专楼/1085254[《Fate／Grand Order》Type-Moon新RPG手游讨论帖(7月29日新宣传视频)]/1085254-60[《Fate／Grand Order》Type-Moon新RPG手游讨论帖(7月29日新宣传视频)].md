@@ -2122,3 +2122,52 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 
 怀疑马琴的宝具只有一个动画，因为演示的时候小人是黑发黑衣，开宝具后却是红发白衣，还有比较精致的特写...可能偷工减料了吧...
 
+
+
+*****
+
+####  alucardcz  
+##### 88691#       发表于 2022-6-29 20:05
+
+蓝卡双特攻？
+
+*****
+
+####  alucardcz  
+##### 88692#       发表于 2022-6-29 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463238&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-29 19:55</a>
+
+加油啊，骑狗的大姐姐，我石头能不能用出去就看你脱掉和服大不大了
+
+ ...</blockquote>
+卡面出来了 根本就不脱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 88693#       发表于 2022-6-29 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">两发十一连出了
+
+*****
+
+####  exiaexa  
+##### 88694#       发表于 2022-6-29 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463450&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-29 20:08</a>
+
+卡面出来了 根本就不脱</blockquote>
+晚了，1单1宝直接跑路
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88695#       发表于 2022-6-29 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463475&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-29 20:09</a>
+
+晚了，1单1宝直接跑路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
