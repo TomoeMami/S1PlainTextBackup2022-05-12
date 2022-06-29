@@ -727,3 +727,14 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 要是像轻音那样只加一个人，给人观感会不会就好很多，还方便凑cp，最小的更是能被大家宠上天 ...</blockquote>
 9人是你拉传统人数，要么再加3个凑成12个，就能均分CP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 68#       发表于 2022-6-29 13:09
+
+<blockquote>lucksolo 发表于 2022-6-29 12:30
+要是像轻音那样只加一个人，给人观感会不会就好很多，还方便凑cp，最小的更是能被大家宠上天 ...</blockquote>
+感觉还是五人原理罢了。kon一二季之间并没有那么多活动，星一二季要是连播肯定没事。
+
