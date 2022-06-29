@@ -2004,3 +2004,54 @@ C7D2BE18-045E-49D2-808F-90A31B49F7AE.png
 
 白衣秀士梅林...这个角度差点以为是梅莉...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88681#       发表于 2022-6-29 19:38
+
+<img src="https://img.saraba1st.com/forum/202206/29/193706l5506kkx0f35nnf2.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502486437.jpg</strong> (170.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:37 上传
+
+宇宙凛也算是功高劳苦，可惜我没有。
+
+<img src="https://img.saraba1st.com/forum/202206/29/193707uhnj7gferypjnfsf.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502491068.jpg</strong> (195.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:37 上传
+
+左边这个我差点以为是新角色，注意到纹身后才想起来是望月千代女...
+
+（其实太公望也没第一时间认出来...）
+
+*****
+
+####  Jamaisvu  
+##### 88682#       发表于 2022-6-29 19:43
+
+<img src="https://img.saraba1st.com/forum/202206/29/193918jq5e6asagzgpuvq0.jpg" referrerpolicy="no-referrer">
+
+<strong>1656502496131.jpg</strong> (301.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 19:39 上传
+
+Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的老虞（因为画师的缘故差点以为是卑弥呼...话说这衣服是没后背吗，都到股沟了，老虞你是打算随时褪皮重生吗？），2.4的章西女王，2.5的凯尼斯，2.5.5的渡边纲，2.6的哈贝喵，2.6.5的查理曼。
+
+*****
+
+####  rooarr  
+##### 88683#       发表于 2022-6-29 19:47
+
+这是派遣系统吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
