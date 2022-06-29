@@ -2422,3 +2422,28 @@ MD这个开局俄里翁是真的有病
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还好 一次过 我甚至第一回合就把毅力用了 还好对面没暴击
 
+
+
+*****
+
+####  acuman  
+##### 88721#       发表于 2022-6-29 21:31
+
+有二期池的，已经抽了的上当了
+
+不过你们估计不太抽男人
+
+*****
+
+####  gpx234mqx  
+##### 88722#       发表于 2022-6-29 21:35
+
+马琴不是本尊，是儿媳妇啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88723#       发表于 2022-6-29 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么派遣还要消耗素材的 1跟骨头也让人不爽啊
+

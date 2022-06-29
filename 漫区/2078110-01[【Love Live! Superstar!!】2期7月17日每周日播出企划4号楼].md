@@ -808,3 +808,13 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 
 打铁写真9月底发售，初动5000没问题
 
+
+
+*****
+
+####  长日留痕  
+##### 73#       发表于 2022-6-29 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56454866&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-6-29 10:33</a></blockquote>
+就是本人，就是本人.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
