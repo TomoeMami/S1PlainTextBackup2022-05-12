@@ -2319,3 +2319,19 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 
 呼符全白给，嘛不脱的话也没所谓了，不丢石头了。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88710#       发表于 2022-6-29 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463548&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-29 20:14</a>
+
+你还漏了白值很低</blockquote>
+马琴攻击力10723，是ATK倒数第二的五星R，仅高于梅芙...
+
+枪龙马攻击力10753，高于枪狐和艾蕾，还有50自充，高下立判（并不）
+
+不过这种把色卡buff分散在不同技能的设计，大概真的是同一设计师吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
