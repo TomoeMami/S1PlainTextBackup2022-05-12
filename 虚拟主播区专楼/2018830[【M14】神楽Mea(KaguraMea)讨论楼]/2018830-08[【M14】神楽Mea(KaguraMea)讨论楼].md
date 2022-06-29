@@ -13811,3 +13811,24 @@ jimmy老师这两张真不错
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滑水的黄兔子
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11841#       发表于 2022-6-29 12:47
+
+ 本帖最后由 古战场亡魂 于 2022-6-29 12:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56456491&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-6-29 12:14</a>
+
+滑水的黄兔子</blockquote>
+别尬黑，这是组长离开前的进度……拼图游戏，两个男人陪完全程，一个话少全力输出，一个话多在划水。
+
+<img src="https://img.saraba1st.com/forum/202206/29/124719xp79pqazhqqm5agc.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220629124707717.jpg</strong> (44.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-29 12:47 上传
+

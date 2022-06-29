@@ -715,3 +715,15 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 
 要是像轻音那样只加一个人，给人观感会不会就好很多，还方便凑cp，最小的更是能被大家宠上天
 
+
+
+*****
+
+####  老1.5  
+##### 67#       发表于 2022-6-29 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56456710&amp;ptid=2078110" target="_blank">lucksolo 发表于 2022-6-29 12:30</a>
+
+要是像轻音那样只加一个人，给人观感会不会就好很多，还方便凑cp，最小的更是能被大家宠上天 ...</blockquote>
+9人是你拉传统人数，要么再加3个凑成12个，就能均分CP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
