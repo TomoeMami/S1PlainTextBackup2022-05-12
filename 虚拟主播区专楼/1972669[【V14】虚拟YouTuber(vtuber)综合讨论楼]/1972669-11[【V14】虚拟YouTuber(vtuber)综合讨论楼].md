@@ -6334,3 +6334,12 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 
 王霸山这试玩版爵爵子又刚了快24小时了，能不能来个人劝下她防止突然倒下啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  影山银  
+##### 15596#       发表于 2022-6-29 22:25
+
+艾玛新冠了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
