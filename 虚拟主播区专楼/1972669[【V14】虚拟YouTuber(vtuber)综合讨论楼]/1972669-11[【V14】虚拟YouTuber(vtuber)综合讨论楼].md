@@ -6272,3 +6272,14 @@ syl 不如早点让运营拉到公式番组上一上让desuwa有个和人联动�
 
 hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候比lisa晚，现在订阅已经超过lisa了
 
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 15591#       发表于 2022-6-29 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56454934&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-6-29 10:37</a>
+盒皇也超过兔头了</blockquote>
+超过有几天了
+
