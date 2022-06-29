@@ -2171,3 +2171,102 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 晚了，1单1宝直接跑路</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  exiaexa  
+##### 88696#       发表于 2022-6-29 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463485&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-6-29 20:10</a>
+
+欧 羡慕</blockquote>
+上面那个两发就出的不比我强
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88697#       发表于 2022-6-29 20:11
+
+ 本帖最后由 Jamaisvu 于 2022-6-29 20:13 编辑 
+
+三回合50蓝魔放，还有20宝威，伤害肯定不错，但是回收不太行吧，NP获得率0.41%，宝具4hit...
+
+大概是rider阶的枪龙马？
+
+*****
+
+####  黑上シグマ  
+##### 88698#       发表于 2022-6-29 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463492&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-29 20:10</a>
+
+上面那个两发就出的不比我强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这是RP守恒，我上次教授莉莉极大暴死
+
+*****
+
+####  alucardcz  
+##### 88699#       发表于 2022-6-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463492&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-29 20:10</a>
+
+上面那个两发就出的不比我强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面那个自从转生后一直就欧 没什么好惊讶的（
+
+*****
+
+####  alucardcz  
+##### 88700#       发表于 2022-6-29 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463510&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-29 20:11</a>
+
+三回合50蓝魔放，还有20宝威，伤害肯定不错，但是回收不太行吧，NP获得率0.41%，宝具4hit...
+
+大概是rider ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还漏了白值很低
+
+*****
+
+####  exiaexa  
+##### 88701#       发表于 2022-6-29 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463523&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-6-29 20:12</a>
+
+这是RP守恒，我上次教授莉莉极大暴死</blockquote>
+谁不是呢
+
+两单爆死
+
+挣扎了一下懒得补单了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 88702#       发表于 2022-6-29 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56463549&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-29 20:14</a>
+
+谁不是呢
+
+两单爆死
+
+挣扎了一下懒得补单了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">两单算个球，我直接天井
+
+*****
+
+####  alucardcz  
+##### 88703#       发表于 2022-6-29 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度卡面双寄  这卡池我3石都不准备给了（
+
+*****
+
+####  里村紅葉  
+##### 88704#       发表于 2022-6-29 20:18
+
+两发十连出了，上来一看果然强度感人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
