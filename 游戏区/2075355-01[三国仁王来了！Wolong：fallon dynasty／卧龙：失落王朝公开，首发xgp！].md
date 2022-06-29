@@ -5670,3 +5670,17 @@ pc可以开风灵月影刷东西
 
 卧龙：苍天陨落——Denfaminicogamer媒体的访谈，穿插了很多光荣和忍者组的历史和小故事，蛮有意思的，社长夫妻很牛啊
 
+
+
+*****
+
+####  sxs200801  
+##### 559#       发表于 2022-6-29 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56266082&amp;ptid=2075355" target="_blank">Processed 发表于 2022-6-14 17:30</a>
+
+我不看好卧龙会把三个架势砍成两个，这个要是砍下来整个战斗的底层机制都得大改
+
+一方面三个架势对应三个按 ...</blockquote>
+两个架势+跳跃 原本的系统 补套跳跃派生就行了
+
