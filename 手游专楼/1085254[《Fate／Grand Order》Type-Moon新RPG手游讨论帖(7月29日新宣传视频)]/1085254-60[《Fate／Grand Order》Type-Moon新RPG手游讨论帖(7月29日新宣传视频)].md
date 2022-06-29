@@ -2447,3 +2447,19 @@ MD这个开局俄里翁是真的有病
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么派遣还要消耗素材的 1跟骨头也让人不爽啊
 
+
+
+*****
+
+####  qixinno2  
+##### 88724#       发表于 2022-6-29 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我点了 感觉上当了 什么垃圾玩意
+
+*****
+
+####  eden_hazard  
+##### 88725#       发表于 2022-6-29 21:58
+
+花了19个11连才出没石头了，周年要出新绿拐就完了
+

@@ -818,3 +818,17 @@ emorin笔下的不良少女yabu。画的是参加选拔时初次见到的形象�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56454866&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-6-29 10:33</a></blockquote>
 就是本人，就是本人.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 74#       发表于 2022-6-29 21:58
+
+6月29日 on SALE 🤍Liyuu First Concert 2022🤍
+「Fo(u)r YuU」 Blu-ray 
+能一起实现那么多真的很开心！
+<img src="https://p.sda1.dev/6/4b80808ce1984eb18912ce11f8d6f75f/CMP_20220629215816360.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
