@@ -2335,3 +2335,43 @@ Fes主视觉图：真女主玛修，2.1的萨列里，2.2的斯卡蒂，2.3的�
 
 不过这种把色卡buff分散在不同技能的设计，大概真的是同一设计师吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88711#       发表于 2022-6-29 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下卡面，跳，等周年……
+
+*****
+
+####  qixinno2  
+##### 88712#       发表于 2022-6-29 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新竟然没豹跳么 完全不想扔石头
+
+*****
+
+####  quanlix  
+##### 88713#       发表于 2022-6-29 21:06
+
+现在怎么玩命往福袋里塞地雷
+
+*****
+
+####  保罗赫伯特  
+##### 88714#       发表于 2022-6-29 21:08
+
+这个活动可以直接跳过了，草，长了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88715#       发表于 2022-6-29 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56464101&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-6-29 20:49</a>
+
+萌新竟然没豹跳么 完全不想扔石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得先告诉我怎么在不抽卡的前提下出货 我看好你 你一定会欧的
+
