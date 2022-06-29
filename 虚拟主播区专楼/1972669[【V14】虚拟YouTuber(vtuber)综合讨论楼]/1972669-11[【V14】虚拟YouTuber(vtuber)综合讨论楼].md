@@ -6283,3 +6283,33 @@ hendy自从播了rust后同接都很不错啊，当时庆祝20万订阅的时候
 盒皇也超过兔头了</blockquote>
 超过有几天了
 
+
+
+*****
+
+####  Ketestrait  
+##### 15592#       发表于 2022-6-29 17:02
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h3p80eacayj20rb0ien1c.jpg" referrerpolicy="no-referrer">
+
+明明是先行打棘龙你虹官号放个爵爵子封面是几个意思，卡婊该扣广告费了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 15593#       发表于 2022-6-29 17:06
+
+<blockquote>にじさんじ公式🌈🕒
+
+@nijisanji_app
+
+【不正アクセスに関するご報告】
+
+当社ライバーの一部SNSアカウントにつきまして、第三者により不正にアクセスされている事実が発覚しております。
+
+本件につきまして、お詫び申し上げますと共に、引き続き対象アカウントの復旧作業及び原因の究明を行ってまいります。
+
+午後7:30 · 2022年6月28日 </blockquote>
+
+顺便这是什么事件<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
