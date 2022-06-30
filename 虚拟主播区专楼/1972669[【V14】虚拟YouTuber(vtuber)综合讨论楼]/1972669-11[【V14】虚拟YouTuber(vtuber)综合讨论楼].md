@@ -6495,3 +6495,14 @@ hnn好快的行动力，这就约上了<img src="https://static.saraba1st.com/im
 
 果然67来个能指挥的队友，发挥还是不错的
 
+
+
+*****
+
+####  poipanchao  
+##### 15607#       发表于 2022-6-30 21:58
+
+刚才luna好像不小心透露出私下有跟reid、bo排valo……
+
+还有就是月奈私下确实应该跟selly学过selly了
+
