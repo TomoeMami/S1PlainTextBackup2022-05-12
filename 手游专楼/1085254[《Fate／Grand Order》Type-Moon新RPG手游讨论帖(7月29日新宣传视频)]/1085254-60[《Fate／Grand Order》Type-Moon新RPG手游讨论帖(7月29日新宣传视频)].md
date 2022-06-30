@@ -2718,3 +2718,44 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">想着趁灵脉石过期前把2.65C过去，结果后面连着一整章都是几回合击退10，麻烦的绷不住了，放弃
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88747#       发表于 2022-6-30 11:24
+
+这次活动还挺细节，根据玩家的剧情进度有不同差分：
+
+<img src="https://img.saraba1st.com/forum/202206/30/111504iu0jcjjx0uvlg9xc.jpg" referrerpolicy="no-referrer">
+
+<strong>1656558803138.jpg</strong> (228.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 11:15 上传
+
+1.未通关非灵长长存圈和2.6.5，在彷徨海由老福布置任务
+
+<img src="https://img.saraba1st.com/forum/202206/30/111503g69p9gz8fb8xf98o.jpg" referrerpolicy="no-referrer">
+
+<strong>1656558813862.jpg</strong> (95.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 11:15 上传
+
+2.通关非灵长长存圈，未通关2.6.5，在鹦鹉螺号上由老福布置任务。
+
+<img src="https://img.saraba1st.com/forum/202206/30/111505lsl07fi2lcdka80s.jpg" referrerpolicy="no-referrer">
+
+<strong>1656558820750.jpg</strong> (280.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 11:15 上传
+
+3.通关非灵长长存圈和2.6.5，在鹦鹉螺号上由紫苑布置任务。
+
+虽说是为了防剧透，不过反而让人感觉老福归来的日子不远了，要不之后每个活动都整这么一出多麻烦啊...
+
