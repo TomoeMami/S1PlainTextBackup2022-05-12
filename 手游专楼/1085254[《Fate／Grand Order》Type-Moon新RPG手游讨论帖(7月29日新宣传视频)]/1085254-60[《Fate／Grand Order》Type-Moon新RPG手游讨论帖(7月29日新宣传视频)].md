@@ -2607,3 +2607,35 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 最艹的是这章的核心内容就是人类对神灵的反抗，结果人类勇气的光辉屁用没有，弑神还得看菌鸽鸽的家底
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88737#       发表于 2022-6-30 09:12
+
+<blockquote>exiaexa 发表于 2022-6-30 09:06
+这我就不同意了，作为一个萝卜片爱好者，我觉得252最狗屎的地方是
+
+七重连英灵炮这种人类勇气的光辉拿来轻 ...</blockquote>
+哈哈是的，剧情第一次黑枪动态cg的时候我还觉得挺帅，后来放了一次又一次的时候我已经笑不活了
+
+*****
+
+####  khxooo  
+##### 88738#       发表于 2022-6-30 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56467979&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-30 09:01</a>
+回想了一下，11区的ntr底线这么多年了大概还是柴门环，印象里没见到比这个更近的关于ntr或者非处女相关的炎 ...</blockquote>
+我认为是没被碰过，而且当时马修是失忆，在日本人眼里看来没什么大问题。柴门可不是这样，主动在主角面前谈及这东西，对于死宅来说这不能忍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过听说推特那边也是有点反应的。
+
+*****
+
+####  UNISONIA  
+##### 88739#       发表于 2022-6-30 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56464690&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-6-29 21:35</a>
+
+马琴不是本尊，是儿媳妇啊</blockquote>
+精神是马琴本人，只有肉体是儿媳妇，这么说起来确实有点伦理（x
+
