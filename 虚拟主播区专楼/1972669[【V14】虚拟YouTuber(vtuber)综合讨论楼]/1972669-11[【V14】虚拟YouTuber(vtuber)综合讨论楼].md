@@ -6506,3 +6506,21 @@ hnn好快的行动力，这就约上了<img src="https://static.saraba1st.com/im
 
 还有就是月奈私下确实应该跟selly学过selly了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15608#       发表于 2022-6-30 22:12
+
+602号员工居然回了观众的回复，看来这是观众参与型企划
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FCCHua  
+##### 15609#       发表于 2022-6-30 22:13
+
+hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
