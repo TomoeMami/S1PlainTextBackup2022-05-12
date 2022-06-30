@@ -2839,3 +2839,15 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 2022-6-30 13:37 上传
 
+
+
+*****
+
+####  kuarwbwe  
+##### 88750#       发表于 2022-6-30 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56468093&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-30 09:12</a>
+
+哈哈是的，剧情第一次黑枪动态cg的时候我还觉得挺帅，后来放了一次又一次的时候我已经笑不活了 ...</blockquote>
+你可以理解成樱井特色。毕竟大妈写的东西不复制粘贴了那才是稀奇的事情。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
