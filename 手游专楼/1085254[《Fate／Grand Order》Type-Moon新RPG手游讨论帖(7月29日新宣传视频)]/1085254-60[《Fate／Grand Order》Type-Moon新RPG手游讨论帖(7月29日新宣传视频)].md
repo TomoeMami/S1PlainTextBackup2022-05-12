@@ -2759,3 +2759,12 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 虽说是为了防剧透，不过反而让人感觉老福归来的日子不远了，要不之后每个活动都整这么一出多麻烦啊...
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88748#       发表于 2022-6-30 12:00
+
+无门槛活动也得分一二部背景，现在还多个舰内，归不归来没多大影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
