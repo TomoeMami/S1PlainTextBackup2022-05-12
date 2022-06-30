@@ -612,3 +612,15 @@ gog首先是老游戏解决方案平台，其次才是新游戏的零售，定�
 
 epic唯一的优势抽成少和少上供比起销量来说完全没意义，抽的再少销量只有steam零头谁和你玩
 
+
+
+*****
+
+####  920619lqy  
+##### 66#       发表于 2022-6-30 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56474958&amp;ptid=2078588" target="_blank">豚丝阿姐 发表于 2022-6-30 05:24</a>
+
+平心而论，蒸汽上的鲨臂游戏比epic只多不少，比如那堆国产瑟琴</blockquote>
+其实我觉得他说的是育碧游戏
+
