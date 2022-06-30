@@ -2851,3 +2851,14 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 哈哈是的，剧情第一次黑枪动态cg的时候我还觉得挺帅，后来放了一次又一次的时候我已经笑不活了 ...</blockquote>
 你可以理解成樱井特色。毕竟大妈写的东西不复制粘贴了那才是稀奇的事情。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88751#       发表于 2022-6-30 18:45
+
+<blockquote>kuarwbwe 发表于 2022-6-30 18:35
+你可以理解成樱井特色。毕竟大妈写的东西不复制粘贴了那才是稀奇的事情。 ...</blockquote>
+但赫炎的大公爵喝彩那里我没觉得奇怪啊，不过男主每次都是一招秒确实就是那味
+
