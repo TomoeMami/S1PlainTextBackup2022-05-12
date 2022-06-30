@@ -2709,3 +2709,12 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 七重连英灵炮这种人类勇气的光辉拿来轻 ...</blockquote>
 想想252吹的人类勇气——带路党人类双子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88746#       发表于 2022-6-30 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">想着趁灵脉石过期前把2.65C过去，结果后面连着一整章都是几回合击退10，麻烦的绷不住了，放弃
+
