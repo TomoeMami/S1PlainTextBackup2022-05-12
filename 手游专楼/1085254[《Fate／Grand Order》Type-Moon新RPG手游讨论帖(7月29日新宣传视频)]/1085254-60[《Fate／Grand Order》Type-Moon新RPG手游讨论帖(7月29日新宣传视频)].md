@@ -2695,3 +2695,17 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
  ...</blockquote>
 对狗子有人性=对玩家没人性，狗子你就忍了吧23333
 
+
+
+*****
+
+####  sosgame67  
+##### 88745#       发表于 2022-6-30 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56468025&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-30 09:06</a>
+
+这我就不同意了，作为一个萝卜片爱好者，我觉得252最狗屎的地方是
+
+七重连英灵炮这种人类勇气的光辉拿来轻 ...</blockquote>
+想想252吹的人类勇气——带路党人类双子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
