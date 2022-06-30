@@ -6431,3 +6431,16 @@ username是employee2232
 【APEX】渋ハルかすたむ! ! w/菅沼千紗さん、ひな一の【ぶいすぽ/八雲べに】
 hnn好快的行动力，这就约上了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 15603#       发表于 2022-6-30 11:06
+
+[https://www.youtube.com/watch?v=f_z75k285L0](https://www.youtube.com/watch?v=f_z75k285L0)
+
+【キズナアイ6周年】アイちゃんお誕生日おめでとう！
+
+不是都休止了怎么还6周年，不知道会不会有动画的消息呢
+
