@@ -2768,3 +2768,74 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 无门槛活动也得分一二部背景，现在还多个舰内，归不归来没多大影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 88749#       发表于 2022-6-30 13:38
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725u0aazc3atdyx5ts7.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_10_1.gif</strong> (14.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725xmhkr4y3mr1k889f.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_20_1.gif</strong> (13.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725r4jd1cyqjp1rpjzd.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_30_1.gif</strong> (12.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725lvv8vi0v2oeqvn0c.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_40_1.gif</strong> (15.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725qeeh6eejctyrghgj.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_50_1.gif</strong> (24.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133725eaffia2abkns1rbs.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_60_1.gif</strong> (20.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133726w2k2krz4g4hq5xq3.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_70_1.gif</strong> (11.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
+<img src="https://img.saraba1st.com/forum/202206/30/133726ujhqt5tj5uhp4tfq.gif" referrerpolicy="no-referrer">
+
+<strong>run_dog_80_1.gif</strong> (12.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-6-30 13:37 上传
+
