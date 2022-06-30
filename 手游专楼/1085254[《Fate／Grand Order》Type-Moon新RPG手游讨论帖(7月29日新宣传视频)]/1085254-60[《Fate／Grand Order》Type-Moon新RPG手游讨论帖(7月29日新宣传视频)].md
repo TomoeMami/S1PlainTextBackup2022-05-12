@@ -2921,3 +2921,29 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 该看看剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 88756#       发表于 2022-7-1 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56479047&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-30 23:59</a>
+
+只要不在选项里藏什么路过的迦勒底人，一切好说，照顾读者的阅读体验总归是好事。
+
+（在此得批评一下星空 ...</blockquote>
+虚数大海战看劇情重要程度應該會放到interlude
+
+但想不到太公望編會那麼快就復活，而且更能打多一次領星星
+
+*****
+
+####  保罗赫伯特  
+##### 88757#       发表于 2022-7-1 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56468312&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-6-30 09:29</a>
+
+奶一个 你看这个源为朝这么蓝 说不定是新绿拐</blockquote>
+这要是绿拐，比大部分输出都要高大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

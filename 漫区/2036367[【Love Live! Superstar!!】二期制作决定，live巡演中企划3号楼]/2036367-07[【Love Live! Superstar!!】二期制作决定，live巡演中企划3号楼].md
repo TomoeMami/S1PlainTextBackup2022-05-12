@@ -15621,3 +15621,38 @@ bug
 明明下面读音也写了片假…………以后还是用汉字或者片假试试吧…… ...</blockquote>
 看了下，日语的汉字也会中，下次错不了
 
+
+
+*****
+
+####  唧喳姬  
+##### 10307#       发表于 2022-7-1 04:15
+
+ 本帖最后由 唧喳姬 于 2022-7-1 04:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56425909&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-6-27 00:31</a>
+
+不懂日语，问下所谓鲤语有什么特点吗？ 感觉其他成员学鲤鱼说话好好玩，感觉像是外国人说中文的那种错误音 ...</blockquote>
+鲤语教学    
+  
+日宅：Liyuu文法博大精深 
+[https://www.jizhazha.com/jv1561](https://www.jizhazha.com/jv1561)
+
+日宅：说说你们喜欢的Liyuu发言 
+[https://www.jizhazha.com/jv1090](https://www.jizhazha.com/jv1090)
+
+<img src="https://img.saraba1st.com/forum/202207/01/041400qbelvhw0jrewye7h.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220701040820.png</strong> (117.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-1 04:14 上传
+
+<img src="https://img.saraba1st.com/forum/202207/01/041604jbcjgm7w5a1jcdgm.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220701040909.png</strong> (69.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-1 04:16 上传
+

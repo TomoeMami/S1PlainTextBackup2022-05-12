@@ -772,3 +772,14 @@ AMD之前自己吹逼是能耗比+50%，更关键的是无限缓存+3D堆叠（�
 你现在买张显卡的钱大概够你买台XSX顺带开三年XGP了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">xsx也能打耶路撒冷mod？买pc就不能开xgp？
 
+
+
+*****
+
+####  FanKiE  
+##### 71#       发表于 2022-7-1 05:41
+
+我现在单纯是没钱才玩主机，谁能给我发七千块红包我立刻买PC，已经受够了输入延迟帧数上限这些乌七八糟的东西<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
