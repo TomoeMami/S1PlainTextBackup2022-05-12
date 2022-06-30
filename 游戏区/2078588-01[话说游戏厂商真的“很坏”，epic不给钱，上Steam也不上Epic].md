@@ -572,3 +572,23 @@ G胖甚至没进战斗，转头疑惑地一瞅「你干啥呢，跳舞给我看�
 按照其乐统计的数据(直接搜epic独占就可以搜到帖子，因为严禁转载就不贴链接了)，epic的独占的数据是在逐年 ...</blockquote>
 看了一下，真是感謝epic拿下一堆鬱碧game，多多少少減緩了steam商店污染<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  豚丝阿姐  
+##### 62#       发表于 2022-6-30 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56465317&amp;ptid=2078588" target="_blank">victorxu 发表于 2022-6-29 22:20</a>
+现实就是虽然Epic声音很大，但撇开堡垒和虚幻，没有多少人在Epic上买游戏，甚至没有多少人在Epic上玩游戏， ...</blockquote>
+我只在epic上买过ff7re和kh全家桶，但是现在ff7re上蒸汽了，我估计不会再给epic充钱了，毕竟朋友们都是玩蒸汽
+
+*****
+
+####  豚丝阿姐  
+##### 63#       发表于 2022-6-30 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56466761&amp;ptid=2078588" target="_blank">猫不萌 发表于 2022-6-30 01:17</a>
+epic不是瞧不起独立游戏吗，说实话之前有新闻说独立游戏上不了epic的事</blockquote>
+大部分独立游戏是电子垃圾，免费都不值得玩
+
