@@ -2862,3 +2862,17 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 你可以理解成樱井特色。毕竟大妈写的东西不复制粘贴了那才是稀奇的事情。 ...</blockquote>
 但赫炎的大公爵喝彩那里我没觉得奇怪啊，不过男主每次都是一招秒确实就是那味
 
+
+
+*****
+
+####  kuarwbwe  
+##### 88752#       发表于 2022-6-30 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56474506&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-6-30 18:45</a>
+
+但赫炎的大公爵喝彩那里我没觉得奇怪啊，不过男主每次都是一招秒确实就是那味 ...</blockquote>
+前者本来也不算复制粘贴，实际上在她的作品里，用的好的时候读起来是很精彩的。
+
+一般吐槽她复制粘贴基本都是漆黑的每章开头这种，各种一招秒战斗描写这种。反正就是重复的文本往上堆就完事了，直接快进也不会有损失。
+
