@@ -2534,3 +2534,20 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 只能说时间点卡得太好，日服拱得一手好火，看国服二次破防不可避
 
+
+
+*****
+
+####  exiaexa  
+##### 88732#       发表于 2022-6-30 08:47
+
+跟你游有关的创作团队都是些脑回路在30年前的人了
+
+所以255国内才会突然冒出个武藏的破梗，要知道倒退30多年，在队友的泪水/八嘎声中冲向敌人可是经典桥段
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+马修这个事儿也差不多，那个年代的恋爱就是喜欢整一波多折，中间冒出个黄毛、失忆、分手那都是家常便饭
+
+反正新世代观众和老世代作家总有一个要背锅
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
