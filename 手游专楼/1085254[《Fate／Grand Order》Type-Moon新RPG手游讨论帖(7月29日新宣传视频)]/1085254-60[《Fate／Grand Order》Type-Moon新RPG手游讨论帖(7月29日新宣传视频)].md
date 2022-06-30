@@ -2639,3 +2639,20 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 马琴不是本尊，是儿媳妇啊</blockquote>
 精神是马琴本人，只有肉体是儿媳妇，这么说起来确实有点伦理（x
 
+
+
+*****
+
+####  exiaexa  
+##### 88740#       发表于 2022-6-30 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56468107&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-6-30 09:12</a>
+
+我认为是没被碰过，而且当时马修是失忆，在日本人眼里看来没什么大问题。柴门可不是这样，主动在主角面前 ...</blockquote>
+光是没碰过级别也太低了，不提别的，sao和天使龙就乐疯了好吗
+
+顺便这破事儿当初推特明确是没有炎上的
+
+反而是一群人拿公式NTR开涮
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
