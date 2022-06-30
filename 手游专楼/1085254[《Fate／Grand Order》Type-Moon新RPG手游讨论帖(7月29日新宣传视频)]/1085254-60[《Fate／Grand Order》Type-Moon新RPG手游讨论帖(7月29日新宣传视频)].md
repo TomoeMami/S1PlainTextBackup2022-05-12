@@ -2910,3 +2910,14 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 （话说虚数大海战好像至今没复刻过，不知道八犬传的下半段是强行加一个新五星还是复刻梵高...水怪活动的四星刻章是摩根的武器，然后pu2卡池就是摩根...）
 
+
+
+*****
+
+####  zore  
+##### 88755#       发表于 2022-7-1 00:01
+
+看了改变人类历史的jpg兴致上来了
+
+该看看剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
