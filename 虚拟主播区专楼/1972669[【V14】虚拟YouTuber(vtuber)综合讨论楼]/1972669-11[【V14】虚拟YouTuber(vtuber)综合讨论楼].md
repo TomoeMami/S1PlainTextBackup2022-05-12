@@ -6581,3 +6581,12 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 这个6月数据都很景气呀 同接上w的都有30个了【去除没播5次后】 不错
 
+
+
+*****
+
+####  CielChloe  
+##### 15616#       发表于 2022-7-1 00:49
+
+早就说养老直播养就得了，我评价算是解锁七成功力吧。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
