@@ -6554,3 +6554,30 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Junchoon  
+##### 15613#       发表于 2022-6-30 23:50
+
+之前隔壁还有人说跌丝袜听多了有点吵，结果今天这声线......
+
+*****
+
+####  qesto  
+##### 15614#       发表于 2022-6-30 23:51
+
+本🦄也可以在slm这里长角吗<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+虽然虹女总有点令角角不安💦💦
+
+*****
+
+####  越动天下  
+##### 15615#       发表于 2022-6-30 23:53
+
+ 本帖最后由 越动天下 于 2022-6-30 23:56 编辑 
+
+这个6月数据都很景气呀 同接上w的都有30个了【去除没播5次后】 不错
+

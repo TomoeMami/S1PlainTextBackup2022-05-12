@@ -2890,3 +2890,23 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 1.未通关非灵长长存圈和2.6.5，在彷徨海由老福布置任 ...</blockquote>
 这次活动剧情差分多的吓人，各几步就一个差分点，甚至讲到降临者时还有通关虚数海的差分
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88754#       发表于 2022-6-30 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56477115&amp;ptid=1085254" target="_blank">我不太会吹 发表于 2022-6-30 21:42</a>
+
+这次活动剧情差分多的吓人，各几步就一个差分点，甚至讲到降临者时还有通关虚数海的差分 ...</blockquote>
+只要不在选项里藏什么路过的迦勒底人，一切好说，照顾读者的阅读体验总归是好事。
+
+（在此得批评一下星空，154莫名其妙就塞进来一个哪吒，鬼知道什么时候加入的...）
+
+不过我经常怀疑到底有没有那种在手游里追求沉浸阅读体验的玩家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前就有不显示满破卡面的选项（但能看三破），接着开始锁灵基突破，现在又贴心地弄出剧情进度差分。
+
+话说上次超级班扬的活动条件是通关特异点F，不知道新玩家是不是在罗曼医生的指挥下进的密西西比河<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（话说虚数大海战好像至今没复刻过，不知道八犬传的下半段是强行加一个新五星还是复刻梵高...水怪活动的四星刻章是摩根的武器，然后pu2卡池就是摩根...）
+
