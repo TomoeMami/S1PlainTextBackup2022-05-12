@@ -6599,3 +6599,15 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 10万同接感觉兜不住，磨到3 4万开养gachi是8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 15618#       发表于 2022-7-1 01:22
+
+ 本帖最后由 CielChloe 于 2022-7-1 01:23 编辑 
+
+其实反而是一开始的10w同接让我很意外
+因为从一开始我对莎宝的判断，她不是特别擅长临场制造直播效果型的，游戏力最多算一般樱花妹水平，还是按她喜欢的节奏玩些喜欢的游戏，比较能发挥她的特长。
+
