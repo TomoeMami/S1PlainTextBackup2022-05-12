@@ -2551,3 +2551,20 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 反正新世代观众和老世代作家总有一个要背锅
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 88733#       发表于 2022-6-30 08:53
+
+ 本帖最后由 sosgame67 于 2022-6-30 08:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56467817&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-6-30 08:47</a>
+
+跟你游有关的创作团队都是些脑回路在30年前的人了
+
+所以255国内才会突然冒出个武藏的破梗，要知道倒退30多年 ...</blockquote>
+252单纯是烂的地方太多，武藏那个大笨蛋只是最明显最突出的一点，肯定被人揪着这点批斗啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+类似情况还有巨人的艾伦139话摆烂戏水、辉夜的摄影师宣言，烂的要命的地方其实都很多，但是有了一个meme的烂场景，在网络上才是彻底救不回来了
+
