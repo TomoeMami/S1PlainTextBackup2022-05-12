@@ -6477,3 +6477,12 @@ hnn好快的行动力，这就约上了<img src="https://static.saraba1st.com/im
 
 据说是rosemi
 
+
+
+*****
+
+####  Suzutsuki  
+##### 15605#       发表于 2022-6-30 20:19
+
+哈弟这赛前宣传也太多了，搞了半天还不宣传队伍，真拖啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
