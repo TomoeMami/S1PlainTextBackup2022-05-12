@@ -6486,3 +6486,12 @@ hnn好快的行动力，这就约上了<img src="https://static.saraba1st.com/im
 
 哈弟这赛前宣传也太多了，搞了半天还不宣传队伍，真拖啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 15606#       发表于 2022-6-30 21:37
+
+果然67来个能指挥的队友，发挥还是不错的
+
