@@ -2876,3 +2876,17 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 一般吐槽她复制粘贴基本都是漆黑的每章开头这种，各种一招秒战斗描写这种。反正就是重复的文本往上堆就完事了，直接快进也不会有损失。
 
+
+
+*****
+
+####  我不太会吹  
+##### 88753#       发表于 2022-6-30 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56469765&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-30 11:24</a>
+
+这次活动还挺细节，根据玩家的剧情进度有不同差分：
+
+1.未通关非灵长长存圈和2.6.5，在彷徨海由老福布置任 ...</blockquote>
+这次活动剧情差分多的吓人，各几步就一个差分点，甚至讲到降临者时还有通关虚数海的差分
+
