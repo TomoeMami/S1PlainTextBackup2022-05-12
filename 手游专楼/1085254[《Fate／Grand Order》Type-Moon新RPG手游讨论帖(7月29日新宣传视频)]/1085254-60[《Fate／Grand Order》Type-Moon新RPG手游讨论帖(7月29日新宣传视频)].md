@@ -2568,3 +2568,42 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 类似情况还有巨人的艾伦139话摆烂戏水、辉夜的摄影师宣言，烂的要命的地方其实都很多，但是有了一个meme的烂场景，在网络上才是彻底救不回来了
 
+
+
+*****
+
+####  angelooo  
+##### 88734#       发表于 2022-6-30 09:01
+
+252最烂的不是希腊机神一个个吹上天然后剧情里黑枪一枪一个吗，每次都差不多这样真的别吹了别吹了.jpg唯一能看的队长部分又因为2.6贝屑塑造得和垃圾一样也变得很尴尬，只会复读大笨蛋的怕不是有很大一部分是玩梗小鬼吧
+
+*****
+
+####  exiaexa  
+##### 88735#       发表于 2022-6-30 09:01
+
+回想了一下，11区的ntr底线这么多年了大概还是柴门环，印象里没见到比这个更近的关于ntr或者非处女相关的炎上
+
+对比起来玛修连谈恋爱标准都没到，想逼11区人民炎上，怎么也得订婚日来一句"全迦就你没上过了"这种程度
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 88736#       发表于 2022-6-30 09:06
+
+ 本帖最后由 exiaexa 于 2022-6-30 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56467886&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-6-30 08:53</a>
+
+252单纯是烂的地方太多，武藏那个大笨蛋只是最明显最突出的一点，肯定被人揪着这点批斗啊
+
+类似情况 ...</blockquote>
+这我就不同意了，作为一个萝卜片爱好者，我觉得252最狗屎的地方是
+
+七重连英灵炮这种人类勇气的光辉拿来轻清杂，而把黑枪这傻逼玩意儿拿来当必杀用
+
+真就披着个萝卜片的皮，精髓一点没学到
+
+最艹的是这章的核心内容就是人类对神灵的反抗，结果人类勇气的光辉屁用没有，弑神还得看菌鸽鸽的家底
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
