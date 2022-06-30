@@ -747,3 +747,17 @@ AMD的RDNA3，或者AMD版DLSS咯。
 AMD之前自己吹逼是能耗比+50%，更关键的是无限缓存+3D堆叠（类似5800x3D ...</blockquote>
 炒粉再低分辨率场景是陀屎。
 
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 69#       发表于 2022-7-1 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56477463&amp;ptid=2078692" target="_blank">dumplingpro 发表于 2022-6-30 22:03</a>
+
+AMD的RDNA3，或者AMD版DLSS咯。
+
+AMD之前自己吹逼是能耗比+50%，更关键的是无限缓存+3D堆叠（类似5800x3D ...</blockquote>
+问下<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这类产品有近视人士的解决方案么。
+
