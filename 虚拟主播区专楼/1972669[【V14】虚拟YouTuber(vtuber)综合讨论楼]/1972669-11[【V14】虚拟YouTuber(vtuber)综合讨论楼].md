@@ -6536,3 +6536,21 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 这是什么养噶配信吗
 角 长了出来🦄
 
+
+
+*****
+
+####  FCCHua  
+##### 15611#       发表于 2022-6-30 23:24
+
+这个声线我爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IL282  
+##### 15612#       发表于 2022-6-30 23:27
+
+这个声线非常惊喜，点进直播给我整懵了
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
