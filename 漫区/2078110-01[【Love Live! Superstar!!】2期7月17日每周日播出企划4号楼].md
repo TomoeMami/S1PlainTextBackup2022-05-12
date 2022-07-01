@@ -1224,3 +1224,16 @@ pay那个生日会是7点（JST）开始吧，鲤鱼那个是8点（JST）开始
 
 来信问鲤鱼第一次cos的角色是谁，鲤鱼回答其实我在很多地方都提过，你最好去check一下 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 98#       发表于 2022-7-1 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56489618&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-1 20:41</a>
+来信问鲤鱼第一次cos的角色是谁，鲤鱼回答其实我在很多地方都提过，你最好去check一下  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">“你到底有没有在关注我的活动啊！”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

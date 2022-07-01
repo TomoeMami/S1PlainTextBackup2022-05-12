@@ -3008,3 +3008,26 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方管人
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88762#       发表于 2022-7-1 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56488212&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-1 18:25</a>
+
+官推出了个奇怪的剪影猜谜，八点揭晓。
+
+周年庆还有一个月吧，不至于是新角色，估计是某个英灵的新衣服了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/01/204431hab6mjqqzsr34ava.png" referrerpolicy="no-referrer">
+
+<strong>1656679299863.png</strong> (77.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-1 20:44 上传
+
+kono kama da！
+
