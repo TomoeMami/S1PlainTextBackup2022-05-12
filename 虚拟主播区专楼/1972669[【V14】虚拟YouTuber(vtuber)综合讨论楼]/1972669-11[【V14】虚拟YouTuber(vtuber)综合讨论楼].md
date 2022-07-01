@@ -6624,3 +6624,16 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 希望明天发的预定表能看到周年纪念和50万纪念，要是顺便有新衣装就好了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 15620#       发表于 2022-7-1 11:50
+
+甸组一周年周边收米已经开始了，但是这回没像半周年那样专门搞个公布直播，不晓得是最近太忙没时间搞还是真搞不起来<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+当然距离真·一周年还差个十来天
+
+正想说最近没什么特别想看的，阿喵喵的水上乐园企划都可以补好久了
+
