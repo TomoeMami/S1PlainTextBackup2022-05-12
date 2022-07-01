@@ -1204,3 +1204,14 @@ pay那个生日会是7点（JST）开始吧，鲤鱼那个是8点（JST）开始
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56488834&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-1 19:22</a></blockquote>
 后面这张图是个啥事
 
+
+
+*****
+
+####  仟音一心  
+##### 96#       发表于 2022-7-1 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56489035&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-1 19:46</a>
+后面这张图是个啥事</blockquote>
+手滑不小心传上来的，无关
+
