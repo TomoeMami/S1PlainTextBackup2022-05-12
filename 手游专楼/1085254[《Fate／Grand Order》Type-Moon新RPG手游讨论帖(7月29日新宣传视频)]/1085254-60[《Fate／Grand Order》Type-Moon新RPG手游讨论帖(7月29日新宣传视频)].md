@@ -2947,3 +2947,16 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 奶一个 你看这个源为朝这么蓝 说不定是新绿拐</blockquote>
 这要是绿拐，比大部分输出都要高大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 88758#       发表于 2022-7-1 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56469765&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-6-30 11:24</a>
+这次活动还挺细节，根据玩家的剧情进度有不同差分：
+
+1.未通关非灵长长存圈和2.6.5，在彷徨海由老福布置任 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">应该是前几年活动和主线矛盾导致后面注重了吧…..
+
