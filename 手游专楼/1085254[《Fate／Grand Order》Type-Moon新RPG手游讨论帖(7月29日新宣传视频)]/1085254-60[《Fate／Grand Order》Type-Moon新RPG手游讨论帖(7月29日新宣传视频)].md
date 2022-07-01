@@ -3047,3 +3047,32 @@ kono Kama da！
 
 右边的徽章，从上到下大概是雷帝（大象）、萨列里（红黑面具）、皇女（Viy）、？？？（可能是阿维斯布隆？）、莫扎特（骚紫面具）。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88764#       发表于 2022-7-1 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56489643&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-1 20:43</a>
+
+kono Kama da！
+
+（不仔细看还以为是redrop画风的志度内...）</blockquote>
+这孩子笑得这么开心，脚边还有个Q版黑影，感觉应该是冬装版水伽摩。
+
+*****
+
+####  Jamaisvu  
+##### 88765#       发表于 2022-7-1 22:07
+
+<img src="https://img.saraba1st.com/forum/202207/01/220701qjigrvarrjvxvrsu.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h3rqkntstej20tn0goadr.jpg</strong> (143.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-1 22:07 上传
+
+苍月，你自裁罢！（无慈悲）
+
