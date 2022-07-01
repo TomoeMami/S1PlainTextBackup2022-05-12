@@ -2960,3 +2960,29 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 1.未通关非灵长长存圈和2.6.5，在彷徨海由老福布置任 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">应该是前几年活动和主线矛盾导致后面注重了吧…..
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88759#       发表于 2022-7-1 18:25
+
+ 本帖最后由 Jamaisvu 于 2022-7-1 18:28 编辑 
+
+<img src="https://img.saraba1st.com/forum/202207/01/182211cll343ag65rbx3wl.png" referrerpolicy="no-referrer">
+
+<strong>1656670878107.png</strong> (235.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-1 18:22 上传
+
+官推出了个奇怪的剪影猜谜，八点揭晓。
+
+周年庆还有一个月吧，不至于是新角色，估计是某个英灵的新衣服了。
+
+搞这么神秘干啥？当天放出当天揭晓，难道是FES每日预热？
+
+手爪兽耳，带小动物，也许是曲亭马琴的庆典礼装？现在放出用以提升卡池热度？
+
