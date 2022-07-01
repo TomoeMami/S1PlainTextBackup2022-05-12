@@ -2986,3 +2986,16 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 手爪兽耳，带小动物，也许是曲亭马琴的庆典礼装？现在放出用以提升卡池热度？
 
+
+
+*****
+
+####  千叶铁矢  
+##### 88760#       发表于 2022-7-1 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56488212&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-1 18:25</a>
+官推出了个奇怪的剪影猜谜，八点揭晓。
+
+周年庆还有一个月吧，不至于是新角色，估计是某个英灵的新衣服了 ...</blockquote>
+是尼亚<img src="https://static.saraba1st.com/image/smiley/carton2017/243.png" referrerpolicy="no-referrer">
+
