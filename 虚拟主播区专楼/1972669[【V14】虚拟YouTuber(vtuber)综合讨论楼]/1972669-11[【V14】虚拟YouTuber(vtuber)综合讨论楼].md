@@ -6766,3 +6766,33 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 之前设定是海女吧，现在打游戏打多了就白了 初始服也变白了很多
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 15632#       发表于 2022-7-2 02:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 15633#       发表于 2022-7-2 02:20
+
+WTF………叶手办消息出来那会儿en男解展望刘雪梅，本社粉还在冷嘲热讽年功序列呢，这下狼性了(
+
+*****
+
+####  Ryuuseigun  
+##### 15634#       发表于 2022-7-2 04:12
+
+只能说确实是前人栽树后人劈柴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天天座理世  
+##### 15635#       发表于 2022-7-2 04:55
+
+一眼77gl，牌佬已经都找到cy画师画皮了。
+
