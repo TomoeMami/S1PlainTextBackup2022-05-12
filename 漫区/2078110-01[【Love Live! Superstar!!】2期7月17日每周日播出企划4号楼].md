@@ -1098,3 +1098,38 @@ pay想和鲤酱多多在一起
 
 开水该烧还得烧
 
+
+
+*****
+
+####  plazum  
+##### 86#       发表于 2022-7-1 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56459464&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-6-29 15:23</a>
+
+《我鲤鱼百万粉丝之上》</blockquote>
+曾经献唱ED的关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 87#       发表于 2022-7-1 12:05
+
+鲤鱼今晚做客的节目是直播，和鷲崎健的节目一样会出镜
+
+*****
+
+####  仟音一心  
+##### 88#       发表于 2022-7-1 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56483440&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-1 12:03</a>
+曾经献唱ED的关系</blockquote>
+我就是知道这层关系才玩的这个梗。
+
+*****
+
+####  优妮可  
+##### 89#       发表于 2022-7-1 12:14
+
+所以pay的生日活动到不了吧
+
