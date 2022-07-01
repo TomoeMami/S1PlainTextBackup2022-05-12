@@ -3076,3 +3076,14 @@ kono Kama da！
 
 苍月，你自裁罢！（无慈悲）
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88766#       发表于 2022-7-2 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2.65就结尾来说还挺成功的，留个想要让人继续的悬念
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">仔细想想我心中的里版FGO学的也是这一套路，留个悬念然后四处撒网不收
+
