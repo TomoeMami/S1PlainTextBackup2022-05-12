@@ -6732,3 +6732,12 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 逐渐漂白是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15629#       发表于 2022-7-1 23:53
+
+为什么黑变白，你们彩虹是不是肤色歧视啊
+
