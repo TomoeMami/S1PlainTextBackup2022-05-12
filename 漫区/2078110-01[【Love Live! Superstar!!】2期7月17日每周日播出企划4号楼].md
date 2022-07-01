@@ -1152,3 +1152,13 @@ pay那个生日会是7点（JST）开始吧，鲤鱼那个是8点（JST）开始
 直播前肯定还要对稿，时间上来不及。
 看到pay生日event特设网页有一栏是movie，浅浅期待一下会有花絮
 
+
+
+*****
+
+####  alexwu  
+##### 92#       发表于 2022-7-1 14:27
+
+三次元唐可可，但是是老师
+[https://www.bilibili.com/video/BV1JB4y1W7Qu](https://www.bilibili.com/video/BV1JB4y1W7Qu)
+
