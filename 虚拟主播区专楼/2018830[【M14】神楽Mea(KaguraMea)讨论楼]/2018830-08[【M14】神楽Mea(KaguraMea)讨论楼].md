@@ -14014,3 +14014,16 @@ jimmy老师这两张真不错
 
 比较好奇，enako和咩有多熟，玩个mc关系就这么好了吗
 
+
+
+*****
+
+####  ashero  
+##### 11861#       发表于 2022-7-1 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56475192&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-6-30 19:51</a>
+比较好奇，enako和咩有多熟，玩个mc关系就这么好了吗</blockquote>
+应该没多熟 但是你咩喜欢舔 礼节性
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
