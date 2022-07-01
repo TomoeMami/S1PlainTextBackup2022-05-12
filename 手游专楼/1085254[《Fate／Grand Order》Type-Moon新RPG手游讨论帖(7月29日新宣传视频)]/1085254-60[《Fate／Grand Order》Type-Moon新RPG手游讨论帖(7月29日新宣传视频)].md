@@ -3031,3 +3031,19 @@ smdrr如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2
 
 kono kama da！
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88763#       发表于 2022-7-1 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56489643&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-1 20:43</a>
+
+kono Kama da！
+
+（不仔细看还以为是redrop画风的志度内...）</blockquote>
+左边的徽章，从上到下大概是狂塔（魔猪）、贝爷（双剑）、比利（牛仔帽和弹孔）、武藏（俱利伽罗天象）。
+
+右边的徽章，从上到下大概是雷帝（大象）、萨列里（红黑面具）、皇女（Viy）、？？？（可能是阿维斯布隆？）、莫扎特（骚紫面具）。
+
