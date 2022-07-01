@@ -6655,3 +6655,33 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 叶山的新衣还是很带劲的，感觉不错。
 
+
+
+*****
+
+####  rzrbtk  
+##### 15623#       发表于 2022-7-1 19:02
+
+ 本帖最后由 rzrbtk 于 2022-7-1 19:05 编辑 
+
+日清さんから #日清焼そばUFO の案件をいただいたので、「新しい罪」を作りました
+
+#モンスター焼そばパン
+
+#新しい罪
+
+#PR
+
+[https://twitter.com/MitoTsukino/status/1542825346701180928](https://twitter.com/MitoTsukino/status/1542825346701180928)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+最后是不是阿花的手啊（看着不像）
+
+*****
+
+####  FCCHua  
+##### 15624#       发表于 2022-7-1 19:07
+
+叶山新衣服真不错
+
