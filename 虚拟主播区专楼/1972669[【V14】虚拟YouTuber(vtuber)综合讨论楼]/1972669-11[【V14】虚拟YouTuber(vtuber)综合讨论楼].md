@@ -6712,3 +6712,14 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 <img src="https://p.sda1.dev/6/4909a665e8a9265d0f78c73f8dbf82ab/image.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/2f2478abf5ddaa6c8edaec295a3001ce/image.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15627#       发表于 2022-7-1 23:34
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-1 23:39 编辑 
+
+感觉改了好-----多啊。嘴巴其实变化蛮大的，舒服了很多。说起来大变化红楚蟹女方也类似，虽然爱园那个原型完全看不见了。
+
