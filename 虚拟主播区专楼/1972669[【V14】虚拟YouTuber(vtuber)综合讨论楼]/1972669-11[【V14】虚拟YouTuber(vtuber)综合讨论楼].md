@@ -6741,3 +6741,28 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 
 为什么黑变白，你们彩虹是不是肤色歧视啊
 
+
+
+*****
+
+####  小鸟游泉  
+##### 15630#       发表于 2022-7-2 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56489067&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-7-1 19:49</a>
+
+-      
+
+         
+
+     </blockquote>
+解禁实写的人能玩的花样自然是不在一个层次上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  死体残留  
+##### 15631#       发表于 2022-7-2 00:09
+
+之前设定是海女吧，现在打游戏打多了就白了 初始服也变白了很多
+
