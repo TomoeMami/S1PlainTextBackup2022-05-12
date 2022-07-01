@@ -1215,3 +1215,12 @@ pay那个生日会是7点（JST）开始吧，鲤鱼那个是8点（JST）开始
 后面这张图是个啥事</blockquote>
 手滑不小心传上来的，无关
 
+
+
+*****
+
+####  仟音一心  
+##### 97#       发表于 2022-7-1 20:41
+
+来信问鲤鱼第一次cos的角色是谁，鲤鱼回答其实我在很多地方都提过，你最好去check一下 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
