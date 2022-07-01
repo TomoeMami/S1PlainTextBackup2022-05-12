@@ -6611,3 +6611,16 @@ hnn最后一局可算是带妹了，不容易<img src="https://static.saraba1st.
 其实反而是一开始的10w同接让我很意外
 因为从一开始我对莎宝的判断，她不是特别擅长临场制造直播效果型的，游戏力最多算一般樱花妹水平，还是按她喜欢的节奏玩些喜欢的游戏，比较能发挥她的特长。
 
+
+
+*****
+
+####  fastary  
+##### 15619#       发表于 2022-7-1 10:10
+
+ 本帖最后由 fastary 于 2022-7-1 10:15 编辑 
+
+黑客剧情结束一年了，回归一年了，新衣装发布也一年了……去年看他回归直播定下"每周1杂谈2游戏直播；每月1企划"还觉得未来光明的我肯定不会想到后来会被调整和抑郁创得渣渣都不剩吧，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+希望明天发的预定表能看到周年纪念和50万纪念，要是顺便有新衣装就好了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

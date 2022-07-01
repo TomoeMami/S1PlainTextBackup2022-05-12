@@ -1026,3 +1026,12 @@ jk女子攻兵的确更勇也更有底气，但还是想问下拿它当作刻奇
 
 刚看完地狱的爱丽丝，中段3~4卷那里很精彩，但是结尾大战那里简直想快进<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 77#       发表于 2022-7-1 10:19
+
+这不还是以喷代撩那一套手法吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">漫画不错推荐大家看看，楼主的长篇艺评花10秒滚动完直接快进到围观楼下吵架才是正解
+
