@@ -7096,3 +7096,81 @@ myy提的企划没通过，enkr提的折中方案myy觉得不对味，所以应�
 
 黑客这种自带企划能力的冷酷低音炮真的就是只要他想就能红，你虹运营pua能力不行啊……
 
+
+
+*****
+
+####  winda  
+##### 15666#       发表于 2022-7-2 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑染组也凑不齐了啊，彩虹这vta刚爆了17人口该控制下了
+
+*****
+
+####  alcoholic1000  
+##### 15667#       发表于 2022-7-2 21:56
+
+原来挣扎了一年还是毕业了...
+
+zaking提到黑客的apex时长仅次于葛king，他瓦的熟练度应该私下玩了不少，只是不播。虹观众希望他带来更多内容，粉丝想要他出周边开sc上舞台，公司希望他贩卖关系性，中之人又不愿这么做，想把黛灰这个号维持一个相对的“高质量内容创作者”的形象，但状况又不支持他继续维持（或者期待带来的负担太大），最终给黛灰了一个善始善终。
+
+这种阐释，感觉你虹的myy和们开闭myy还挺相似的
+
+*****
+
+####  stmule  
+##### 15668#       发表于 2022-7-2 21:57
+
+<img src="https://p.sda1.dev/6/f9baaf1672b2be4099df8d112d56ecee/CMP_20220702215639411.jpg" referrerpolicy="no-referrer">
+
+海苔男和海苔男合唱？
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rzrbtk  
+##### 15669#       发表于 2022-7-2 21:57
+
+<blockquote>格林卡罗尔 发表于 2022-7-2 21:27
+以前和现在的虹运营显然是完全不一样的，毙企划的标准也不一样</blockquote>
+部分在黛灰玉玉休养期间也有在搞，总不能不同经纪人不同命吧，不过郡道也说过前马内甲合不来（。
+
+黛灰不想做的是真一点不做，图灵爱和fwaklive我不信关系好的几位没劝他来几句，黛灰的热门组合各有别的绑，只好猜偶像化惹
+
+*****
+
+####  noHentai  
+##### 15670#       发表于 2022-7-2 22:01
+
+那句话怎么说的来着？
+
+“新时代的船已经无法承载我这种旧时代的灵魂”
+
+不管是对liver还是对旧粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心垂万刃  
+##### 15671#       发表于 2022-7-2 22:06
+
+5.30小红帽
+6.30梅丽莎
+7.30黛灰
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一月一个啊，毕业都要排队的吗？
+
+*****
+
+####  布莱士·西伯利  
+##### 15672#       发表于 2022-7-2 22:07
+
+-   
+
+   
+
+   
+
+myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">涉及主播创作自由的一些限制和强制要求吧。
+
+不过myy好像也会继续在V圈活动。
+
