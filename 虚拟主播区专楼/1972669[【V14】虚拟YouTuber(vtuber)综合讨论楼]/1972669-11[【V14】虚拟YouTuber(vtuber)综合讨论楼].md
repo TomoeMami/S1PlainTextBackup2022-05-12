@@ -7220,3 +7220,12 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 
 真要变成你虹特有的毕业接力？
 
+
+
+*****
+
+####  rzrbtk  
+##### 15678#       发表于 2022-7-2 23:02
+
+19年就是彩虹不得不还的债<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">，VTA的大人数出道多少也是为这个准备的吧，已经有几位我看中（能力）的了，如果出道继续凉的话也该考虑下教学方案是不是有问题了
+
