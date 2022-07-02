@@ -6886,3 +6886,58 @@ rosemi这arg有新进展了，彩虹数字部分是ascii
 
 【全熟】Finana的嚴肅談話【Finana Ryugu】[https://www.bilibili.com/video/BV17Z4y1e79L?share_source=copy_web](https://www.bilibili.com/video/BV17Z4y1e79L?share_source=copy_web)
 
+
+
+*****
+
+####  free  
+##### 15643#       发表于 2022-7-2 20:11
+
+[https://www.youtube.com/watch?v=dE-9WZaW3Gs](https://www.youtube.com/watch?v=dE-9WZaW3Gs)
+
+hachi这个新衣服真是一股新入职社畜感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/02/201036tlcz0uy4c076ab4w.jpg" referrerpolicy="no-referrer">
+
+<strong>hachi.jpg</strong> (26.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-2 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202207/02/201041y975yhi77sosymhm.jpg" referrerpolicy="no-referrer">
+
+<strong>？？.jpg</strong> (214.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-2 20:10 上传
+
+*****
+
+####  fastary  
+##### 15644#       发表于 2022-7-2 20:11
+
+enkr我杀了你……
+
+*****
+
+####  poipanchao  
+##### 15645#       发表于 2022-7-2 20:17
+
+欢迎来到反虹阵营<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15646#       发表于 2022-7-2 20:17
+
+我说同接怎么这么高 黛<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Paisley  
+##### 15647#       发表于 2022-7-2 20:19
+
+楼友要坚强地活下去...
+
