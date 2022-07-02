@@ -7309,3 +7309,12 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 
 因为发现主播自己也很黏观众，离开虹的还会继续直播。所以没啥感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 15687#       发表于 2022-7-2 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在跑路的倒也不是生死不管的底边，都是或多或少有点资源的中坚，虽然最后可能底边一样吃不上饭，但是这样跑一批也算加快资源流动了
+
