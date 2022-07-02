@@ -7335,3 +7335,72 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 
 顺便买热搜的nmsl
 
+
+
+*****
+
+####  free  
+##### 15689#       发表于 2022-7-3 02:04
+
+[https://twitter.com/VShojoOfficial/status/1543285476949463041](https://twitter.com/VShojoOfficial/status/1543285476949463041)
+
+[🔔 ANNOUCEMENT 🔔]
+
+Please welcome our newest members and the NEXT steps for VShojo!!
+
+🍕 
+
+@ksononair
+
+🍭 
+
+@AmemiyaNazuna
+
+Debut Streams:
+
+July 16th
+
+*****
+
+####  hulaoda007  
+##### 15690#       发表于 2022-7-3 02:05
+
+我倒觉得还会继续做v。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过看看吧。
+
+
+
+*****
+
+####  Suny08  
+##### 15691#       发表于 2022-7-3 02:28
+
+头部一死底下人想到的是吃鲸落还是挺真实的了，职场还是职场
+
+*****
+
+####  poipanchao  
+##### 15692#       发表于 2022-7-3 02:29
+
+不是职场难道是大家庭吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 15693#       发表于 2022-7-3 02:44
+
+vshojoJP能不能接下来把金鱼和盐给招了 那可就太有意思了
+
+*****
+
+####  越动天下  
+##### 15694#       发表于 2022-7-3 02:52
+
+😨😨😨😨😨😨😨😨这是可以招的人吗  那建议毕业的人全上得了
+
+*****
+
+####  winda  
+##### 15695#       发表于 2022-7-3 02:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现实点说，虹和点什么流量能和杏比，这退役选手vshojo怎么可能会要
+
