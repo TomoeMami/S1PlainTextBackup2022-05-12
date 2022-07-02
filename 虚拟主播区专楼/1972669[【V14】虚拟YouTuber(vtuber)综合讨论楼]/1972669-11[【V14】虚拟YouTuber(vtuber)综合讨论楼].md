@@ -6844,3 +6844,22 @@ WTF………叶手办消息出来那会儿en男解展望刘雪梅，本社粉还
 
 虹出粘土人不能再频繁一点吗，要是标准改成了金盾可能才会出那黑客毕业也捞不到一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15641#       发表于 2022-7-2 14:14
+
+<img src="https://img.saraba1st.com/forum/202207/02/132550rnkk33ned3ynp246.jpg" referrerpolicy="no-referrer">
+
+<strong>angelKatrinaArticle.jpg</strong> (538.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-2 13:25 上传
+
+rosemi这arg有新进展了，彩虹数字部分是ascii
+
+不过美国人看到paste就会自动补全成pastebin，就像国人看到一串字符会自觉加上磁力连接前缀吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
