@@ -3105,3 +3105,12 @@ kono Kama da！
 
 想到一个巨缺德的场景。从者a：“我们的敌人是中国的top从者，有明一代自开国之后最上位从者！”第二天，a：“努尔哈赤！”
 
+
+
+*****
+
+####  khxooo  
+##### 88769#       发表于 2022-7-2 19:06
+
+90是剑，那么90+又是枪了，YLS是不是有病？TM90+全是枪，就硬抬呆毛是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
