@@ -1530,3 +1530,12 @@ xr live liella部分已经有人上传，两首歌
 
 鲤鱼被人当靶子当枪使没啥意外的，流量大了一点，粉丝多了一点，总容易被一些人看上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 120#       发表于 2022-7-2 21:30
+
+一个粉丝不多转发不多评论也不多的流量号跟他认真你就输了。压根没人看的号啊。
+
