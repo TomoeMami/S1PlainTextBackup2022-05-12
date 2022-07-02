@@ -6833,3 +6833,14 @@ WTF………叶手办消息出来那会儿en男解展望刘雪梅，本社粉还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我知道，是指是不是特地为了阴影找77gl替fumi画新皮的。fumi那两个皮其实不太好看。
 
+
+
+*****
+
+####  fastary  
+##### 15640#       发表于 2022-7-2 11:18
+
+头部福利也是要考虑年功序列的嘛，对于本社粉来说自然是“那种事情不要啊！en男出粘土人什么的，至少要等本社一军都出完再说吧！”<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+虹出粘土人不能再频繁一点吗，要是标准改成了金盾可能才会出那黑客毕业也捞不到一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
