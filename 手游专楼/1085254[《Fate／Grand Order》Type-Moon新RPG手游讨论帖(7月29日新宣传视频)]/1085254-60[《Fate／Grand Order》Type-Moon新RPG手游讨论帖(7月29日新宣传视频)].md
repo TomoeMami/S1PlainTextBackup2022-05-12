@@ -3087,3 +3087,12 @@ kono Kama da！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">仔细想想我心中的里版FGO学的也是这一套路，留个悬念然后四处撒网不收
 
+
+
+*****
+
+####  angelooo  
+##### 88767#       发表于 2022-7-2 11:52
+
+这感觉是水夹馍初始，太可爱了……以及苍月你去死吧这句话我已经不想再说了
+
