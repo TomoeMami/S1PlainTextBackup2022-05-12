@@ -1505,3 +1505,19 @@ xr live liella部分已经有人上传，两首歌
 
 我直接评论喷了，转发都是给他带流量，也可以给看到的人直接看到这傻逼XJB编
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 117#       发表于 2022-7-2 20:58
+
+不知道是不是在隔壁看到的那张图，初看一眼没认出来是营销号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 118#       发表于 2022-7-2 21:01
+
+这种带一堆TAG发”新闻“的一般都营销号，居然还@鲤鱼的账号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
