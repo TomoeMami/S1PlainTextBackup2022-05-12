@@ -1521,3 +1521,12 @@ xr live liella部分已经有人上传，两首歌
 
 这种带一堆TAG发”新闻“的一般都营销号，居然还@鲤鱼的账号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 119#       发表于 2022-7-2 21:09
+
+鲤鱼被人当靶子当枪使没啥意外的，流量大了一点，粉丝多了一点，总容易被一些人看上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
