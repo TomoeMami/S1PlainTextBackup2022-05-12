@@ -1389,3 +1389,39 @@ QQ截图20220701233119.png
 
 Nagi的访谈
 
+
+
+*****
+
+####  仟音一心  
+##### 106#       发表于 2022-7-2 18:37
+
+明天
+
+<img src="https://img.saraba1st.com/forum/202207/02/183726snszqw7zct2ztlt7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BD2BFC1C-38F0-465D-8074-EEA1FE6D6F79.jpeg</strong> (478.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-2 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202207/02/183732i9kqq3zyyib5i4ny.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6F82C194-3EC5-4319-8D81-C470386E0A32.jpeg</strong> (349.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-2 18:37 上传
+
+*****
+
+####  starring  
+##### 107#       发表于 2022-7-2 18:38
+
+xr live liella部分已经有人上传，两首歌
+
+这灯光打得好乱，每到C位镜头都背光看不清表情<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
