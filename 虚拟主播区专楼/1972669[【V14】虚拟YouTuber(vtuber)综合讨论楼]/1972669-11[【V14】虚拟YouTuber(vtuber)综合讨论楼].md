@@ -7186,3 +7186,12 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 我超！so！
 <img src="https://p.sda1.dev/6/32666a28573a4eb151067f2117d65afd/image.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 15674#       发表于 2022-7-2 22:31
+
+原来昨天的あの伝是送别会……
+
