@@ -1632,3 +1632,14 @@ xr live liella部分已经有人上传，两首歌
 天仓零不是漫区前版主么，s1出去的多少带点巨魔血统</blockquote>
 啥？那个营销号是他？
 
+
+
+*****
+
+####  乙山法純  
+##### 129#       发表于 2022-7-3 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56502826&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-3 07:13</a>
+啥？那个营销号是他？</blockquote>
+jpbeta么，简介后面写着
+
