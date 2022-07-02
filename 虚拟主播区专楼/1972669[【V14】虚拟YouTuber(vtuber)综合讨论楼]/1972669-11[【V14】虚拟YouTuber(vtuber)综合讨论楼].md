@@ -7195,3 +7195,19 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 
 原来昨天的あの伝是送别会……
 
+
+
+*****
+
+####  usanakai  
+##### 15675#       发表于 2022-7-2 22:46
+
+下一个会是谁呢
+
+*****
+
+####  OldGlory  
+##### 15676#       发表于 2022-7-2 22:49
+
+不就铲弟圭利绿仙这些人吗，一个一个来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
