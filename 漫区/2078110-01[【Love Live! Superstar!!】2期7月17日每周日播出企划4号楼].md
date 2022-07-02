@@ -1489,3 +1489,19 @@ xr live liella部分已经有人上传，两首歌
 居然还有营销号拿鲤鱼刷热度，搞不明白</blockquote>
 发生什么了
 
+
+
+*****
+
+####  cybernetics31  
+##### 115#       发表于 2022-7-2 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连圈榜咋算就xjb编的营销号 不用管 转发都没多少的，，，，，
+
+*****
+
+####  lj205  
+##### 116#       发表于 2022-7-2 20:50
+
+我直接评论喷了，转发都是给他带流量，也可以给看到的人直接看到这傻逼XJB编
+
