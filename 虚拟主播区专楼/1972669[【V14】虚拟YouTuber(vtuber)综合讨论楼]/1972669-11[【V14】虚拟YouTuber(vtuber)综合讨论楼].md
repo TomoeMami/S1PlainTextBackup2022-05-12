@@ -6806,3 +6806,19 @@ WTF………叶手办消息出来那会儿en男解展望刘雪梅，本社粉还
 醒来，看到海牛还在打游戏。
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">…
 
+
+
+*****
+
+####  ヒトニナル  
+##### 15637#       发表于 2022-7-2 08:52
+
+77gl老早的上色不是这样的，给cy画图画多了已经完全是他们美术的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 15638#       发表于 2022-7-2 08:55
+
+可是，手办化不从兔到king一直就是头部福利吗（
+
