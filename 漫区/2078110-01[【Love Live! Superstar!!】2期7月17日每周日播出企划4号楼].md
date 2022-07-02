@@ -1620,3 +1620,15 @@ xr live liella部分已经有人上传，两首歌
 
 天仓零我咋记得是漫区前版主
 
+
+
+*****
+
+####  cat1230  
+##### 128#       发表于 2022-7-3 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56502772&amp;ptid=2078110" target="_blank">乙山法純 发表于 2022-7-3 06:34</a>
+
+天仓零不是漫区前版主么，s1出去的多少带点巨魔血统</blockquote>
+啥？那个营销号是他？
+
