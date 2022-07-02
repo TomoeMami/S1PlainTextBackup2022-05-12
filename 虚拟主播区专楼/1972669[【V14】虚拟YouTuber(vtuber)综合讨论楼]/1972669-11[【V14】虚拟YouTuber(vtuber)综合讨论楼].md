@@ -6863,3 +6863,26 @@ rosemi这arg有新进展了，彩虹数字部分是ascii
 
 不过美国人看到paste就会自动补全成pastebin，就像国人看到一串字符会自觉加上磁力连接前缀吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15642#       发表于 2022-7-2 14:21
+
+<img src="https://img.saraba1st.com/forum/202207/02/141725swc6cyzqw18aahrr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220702141650.png</strong> (145.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-2 14:17 上传
+
+顺便在4ch翻了一下finana的这事，发了这推后ban了trap这个词，被/vt/大骂SJW，两天后迅速滑跪，educate yourself也成了梗
+
+前因后果有完整翻译
+
+【熟切】關於Finana禁掉兩個聊天室關鍵詞的原因【Finana Ryugu】[https://www.bilibili.com/video/BV1JY4y1n78h?share_source=copy_web](https://www.bilibili.com/video/BV1JY4y1n78h?share_source=copy_web)
+
+【全熟】Finana的嚴肅談話【Finana Ryugu】[https://www.bilibili.com/video/BV17Z4y1e79L?share_source=copy_web](https://www.bilibili.com/video/BV17Z4y1e79L?share_source=copy_web)
+
