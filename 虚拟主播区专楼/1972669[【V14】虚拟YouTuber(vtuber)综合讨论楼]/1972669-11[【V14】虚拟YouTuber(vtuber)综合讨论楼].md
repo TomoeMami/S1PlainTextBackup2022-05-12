@@ -7300,3 +7300,12 @@ myy说没有被运营冷落，但提到了在契约上产生了分歧。<img src
 
 从露露毕业开始就已经心硬化了，你虹毕业接力去年就已经打好预防针了，而且现在也不看了，反而毫无波动，只想说句前程似锦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15686#       发表于 2022-7-2 23:42
+
+因为发现主播自己也很黏观众，离开虹的还会继续直播。所以没啥感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
