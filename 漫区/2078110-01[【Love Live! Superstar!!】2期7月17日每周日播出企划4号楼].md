@@ -1425,3 +1425,21 @@ xr live liella部分已经有人上传，两首歌
 
 这灯光打得好乱，每到C位镜头都背光看不清表情<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 108#       发表于 2022-7-2 19:32
+
+就现在看来，这xr啥的live也没见得有多高级
+
+*****
+
+####  player3960  
+##### 109#       发表于 2022-7-2 19:36
+
+拼盘live就是图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
