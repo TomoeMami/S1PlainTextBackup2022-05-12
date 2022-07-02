@@ -6822,3 +6822,14 @@ WTF………叶手办消息出来那会儿en男解展望刘雪梅，本社粉还
 
 可是，手办化不从兔到king一直就是头部福利吗（
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15639#       发表于 2022-7-2 09:13
+
+-    
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我知道，是指是不是特地为了阴影找77gl替fumi画新皮的。fumi那两个皮其实不太好看。
+
