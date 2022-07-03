@@ -3271,3 +3271,87 @@ kono Kama da！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哟西，两发11连出了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88784#       发表于 2022-7-3 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56508952&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-3 18:14</a>
+
+oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
+啊，是赤鬼使，肃然起敬<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">幸好大卫是三星外加满羁绊了。
+
+（话说乃村健次也是FA里狮子劫界离的CV...不知道和小莫会不会有特殊对话）
+
+不过梅林曾经说过，不要把克劳德和岸边露伴联系到一起。所以抽卡还是量力而行吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+总之恭喜出货啦<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 88785#       发表于 2022-7-3 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509032&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-3 18:21</a>
+
+啊，是赤鬼使，肃然起敬一向玩不来投技角色...我爱用大爷幸好大卫是三星外加满羁绊了。
+
+（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你往上看
+
+*****
+
+####  gpx234mqx  
+##### 88786#       发表于 2022-7-3 18:23
+
+30石头礼装全了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 88787#       发表于 2022-7-3 18:24
+
+难怪打不死飞哥，宝具才B+，可以和飞哥血铠一拼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+也就能打打宙斯盾和核潜艇
+
+*****
+
+####  alucardcz  
+##### 88788#       发表于 2022-7-3 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这剧情本怎么做的跟高难一样 翻车了  羁绊混子队翻车了
+
+*****
+
+####  angelooo  
+##### 88789#       发表于 2022-7-3 18:26
+
+关键尬吹太高了严重影响观感，完全不想抽，啥，常驻，那更随意了
+
+*****
+
+####  Jamaisvu  
+##### 88790#       发表于 2022-7-3 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509064&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-3 18:24</a>
+
+难怪打不死飞哥，宝具才B+，可以和飞哥血铠一拼
+
+也就能打打宙斯盾和核潜艇</blockquote>
+六维属性那里写的是宝具A，强化本预定上了。
+
+（君11：我的城墙也是B+，EX宝具什么时候安排一下？）
+
+*****
+
+####  alucardcz  
+##### 88791#       发表于 2022-7-3 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56497795&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-2 19:06</a>
+
+90是剑，那么90+又是枪了，YLS是不是有病？TM90+全是枪，就硬抬呆毛是吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？  90+不是311术狂吗 
+
