@@ -3966,3 +3966,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 不过你这么一提醒，我突然觉得老福换个马甲再当一次周年从者的可能简直高到不能再高了。（当然肯定不是今年）
 
+
+
+*****
+
+####  exiaexa  
+##### 88848#       发表于 2022-7-4 00:24
+
+去试了一下，源为朝还是二破模组最顺眼，动作看得最清楚
+
+顺便这个模组实在是给立绘丢人
+
+你这钢普拉不抛光就算了咋还整了个全套磨砂
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
