@@ -3929,3 +3929,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 不过小芬奇刚出的时候还是挺唬人的
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88845#       发表于 2022-7-3 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装毕竟在周年后面，先期待周年，周年期望破灭后再谈泳装
+
