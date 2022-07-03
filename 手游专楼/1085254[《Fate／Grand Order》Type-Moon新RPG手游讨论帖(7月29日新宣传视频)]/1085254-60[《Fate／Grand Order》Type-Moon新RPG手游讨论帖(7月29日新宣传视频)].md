@@ -3378,3 +3378,45 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊 前排都活不下来  令咒都救不了（除了直接3发）
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最后一怒之下上了全主力 痛失无数羁绊点
 
+
+
+*****
+
+####  qw7608290  
+##### 88794#       发表于 2022-7-3 18:40
+
+活动主线关卡整这么难，恶心人好玩是吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88795#       发表于 2022-7-3 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 竟然抽到了 40抽出了源为朝 雪山樱狼王+1 
+
+*****
+
+####  霧谷藤乃  
+##### 88796#       发表于 2022-7-3 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宝具看上去很猛啊，可惜我不抽男从者
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这次活动这么难么，没活动卡就一直放着没动
+
+*****
+
+####  quanlix  
+##### 88797#       发表于 2022-7-3 18:46
+
+剧情看的犯恶心，俩新人一个都不想抽，另外看隔壁说源为朝满破语音提到关羽，俄里翁和闪闪了，估计关羽要落地了，不过关羽有啥跟弓有关的事迹吗？
+
+*****
+
+####  alucardcz  
+##### 88798#       发表于 2022-7-3 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509242&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-3 18:41</a>
+
+艹 竟然抽到了 40抽出了源为朝 雪山樱狼王+1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 欧洲人太令人羡慕了 萌新毛都没有 上个new不知道是几几年了
+
