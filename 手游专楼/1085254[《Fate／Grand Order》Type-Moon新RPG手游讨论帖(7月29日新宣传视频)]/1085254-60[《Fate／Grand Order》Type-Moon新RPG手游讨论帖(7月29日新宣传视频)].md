@@ -3952,3 +3952,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 不过小芬奇刚出的时候还是挺唬人的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最菜的不是老福吗
 
+
+
+*****
+
+####  acuman  
+##### 88847#       发表于 2022-7-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56513357&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 23:53</a>
+
+最菜的不是老福吗</blockquote>
+什么，老福是周年从者。不得不承认我已经把他给忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过你这么一提醒，我突然觉得老福换个马甲再当一次周年从者的可能简直高到不能再高了。（当然肯定不是今年）
+
