@@ -7744,3 +7744,26 @@ vspo的两个？换过画师的感觉都不太行啊
 
 热知识，按现有销量周榜，rof-mao专辑再过两三个月就会超过葛叶，抱团总比单人出道好
 
+
+
+*****
+
+####  NBXX  
+##### 15727#       发表于 2022-7-3 16:27
+
+ 本帖最后由 NBXX 于 2022-7-3 16:29 编辑 
+
+[https://gofile.io/d/KEvngU](https://gofile.io/d/KEvngU)
+
+【動画配信】xR ARTISTS SUPER FES 2022 DAY1.mp4
+<img src="https://p.sda1.dev/6/a230bd813932bd0f9b0ca23f8b4bff07/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 15728#       发表于 2022-7-3 16:29
+
+“抱团总比单人出道好”
+
+前提是你抱到了正确的团
+
