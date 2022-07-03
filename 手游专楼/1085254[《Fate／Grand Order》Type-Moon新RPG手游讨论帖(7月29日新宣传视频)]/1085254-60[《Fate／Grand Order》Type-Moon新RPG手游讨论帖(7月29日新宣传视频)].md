@@ -3531,3 +3531,85 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 秩序特攻，50红，40宝威，50充</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打的过现在不会智障的祖师爷吗
 
+
+
+*****
+
+####  angelooo  
+##### 88808#       发表于 2022-7-3 19:32
+
+<blockquote>alucardcz 发表于 2022-7-3 18:27
+？  90+不是311术狂吗</blockquote>
+他猜的，结果yls不按常理出牌
+
+*****
+
+####  exiaexa  
+##### 88809#       发表于 2022-7-3 19:33
+
+ 本帖最后由 exiaexa 于 2022-7-3 19:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509629&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 19:23</a>
+
+打的过现在不会智障的祖师爷吗</blockquote>
+按了下我的手工计算器
+
+憋到关底，大家的特攻对象都正确的话，比祖师爷高5000
+
+不憋的话被反打0.7-2.2w
+
+给个宝具本就全程压着祖师爷，主要是弓阶第二的atk太优秀了
+
+反正就是个关底战神
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 88810#       发表于 2022-7-3 19:35
+
+被最后一条血的强化解除阴了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eilot  
+##### 88811#       发表于 2022-7-3 19:36
+
+寶具是全體及自帶無敵貫通及防無視，技能還有必中及根性，就是用來當BOSS
+
+*****
+
+####  alucardcz  
+##### 88812#       发表于 2022-7-3 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509761&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-3 19:33</a>
+
+按了下我的手工计算器
+
+憋到关底，大家的特攻对象都正确的话，比祖师爷高5000
+
+不憋的话被反打0.7-2.2w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到隔壁还有人说什么色卡buff稀释 不懂 但觉吊
+
+*****
+
+####  xiongxingyu  
+##### 88813#       发表于 2022-7-3 19:38
+
+源氏高达这白值、这技能、这宝具，放哪个职阶不是超一流打手，奈何偏偏生在了弓阶。“收手吧，阿源，外面都是挂逼，你打不过的。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 88814#       发表于 2022-7-3 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509812&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 19:37</a>
+
+看到隔壁还有人说什么色卡buff稀释 不懂 但觉吊</blockquote>
+你不要乱讲，隔壁明明在说不如奥伯龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我个多核人没那么多红魔放，随他们去吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
