@@ -3114,3 +3114,32 @@ kono Kama da！
 
 90是剑，那么90+又是枪了，YLS是不是有病？TM90+全是枪，就硬抬呆毛是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88770#       发表于 2022-7-3 17:21
+
+源为朝实装啦！是弓阶红光炮，无敌贯通+无视防御+秩序特攻+水边地形红卡UP
+
+<img src="https://img.saraba1st.com/forum/202207/03/172041nazhuqq877nsuusc.png" referrerpolicy="no-referrer">
+
+<strong>1656839952520.png</strong> (241.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-3 17:20 上传
+
+<img src="https://img.saraba1st.com/forum/202207/03/172042yxjdofo07bdoofdj.png" referrerpolicy="no-referrer">
+
+<strong>1656839957798.png</strong> (212.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-3 17:20 上传
+
+非常帅的五星高达。
+
+（希望没有把存货都扔马琴上的人...一个活动俩新五有点骗氪啊...）
+

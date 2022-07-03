@@ -7803,3 +7803,15 @@ juvvel：确实
 作为称职的资本家，你给超级矿工跪下了。你求他拿上超级镐头去挖矿，你许诺跟他五五开分成，如有必要，你还可以只拿 100 个单位中的 40，他拿 60，折成股份也行。
 你甚至允许他每天只挖半天矿，另外半天可以兼职做厨师。至于那个可怜的包身工，谁叫他不努力呢，是吧。</blockquote>
 
+
+
+*****
+
+####  rzrbtk  
+##### 15732#       发表于 2022-7-3 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56508044&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-7-3 16:51</a>
+
+反正谷是一定得卖是吧</blockquote>
+小夜作为失踪系神秘美少女在想什么她不说观众怎么知道，反正看前阵子的liver说法，生日谷是能拒绝掉的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
