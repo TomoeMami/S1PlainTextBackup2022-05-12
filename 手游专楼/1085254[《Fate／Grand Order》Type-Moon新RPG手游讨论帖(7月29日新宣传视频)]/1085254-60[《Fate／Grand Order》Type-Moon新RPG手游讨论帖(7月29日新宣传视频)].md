@@ -3737,3 +3737,54 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 源氏高达这白值、这技能、这宝具，放哪个职阶不是超一流打手，奈何偏偏生在了弓阶。“收手吧，阿源，外面都 ...</blockquote>
 上三现在强者太多了，他放剑枪也不太行，源高达放下四绝对强力
 
+
+
+*****
+
+####  我不太会吹  
+##### 88826#       发表于 2022-7-3 21:04
+
+结果关羽根本就是听译错了，更乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88827#       发表于 2022-7-3 21:06
+
+ 本帖最后由 Jamaisvu 于 2022-7-3 21:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509283&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-3 18:46</a>
+
+剧情看的犯恶心，俩新人一个都不想抽，另外看隔壁说源为朝满破语音提到关羽，俄里翁和闪闪了，估计关羽要落 ...</blockquote>
+四处转了一下，这个满破语音好像有歧义：
+
+この一撃、この一射を持って、舰を/関羽、英雄を/英雄王、鬼を/オリオン、打倒するものなり、我が名は源為朝、解き放つ！
+
+舰を(kanuo)关羽(kanuu) 
+
+英雄を(auuo)英雄王(auo)
+
+鬼を(oniuo)俄里翁(orion)
+
+应该只是说他以前射过的东西，船啊鬼啊平家BOY啊，指名道姓的挑衅不符合机器人的冷静形象吧（另外单独没说闪闪本名也很奇怪），要不然太招黑了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88828#       发表于 2022-7-3 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56511139&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-3 21:06</a>
+
+四处转了一下，这个满破语音好像有歧义：
+
+この一撃、この一射を持って、舰を/関羽、英雄を/英雄王、鬼を ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？ 除了英雄王那读音有点像之外 上面和下面可以说完全不同怎么听错的？
+
+*****
+
+####  angelooo  
+##### 88829#       发表于 2022-7-3 21:09
+
+<blockquote>kisskick 发表于 2022-7-3 19:58
+我这好像出了什么故障，怎么全是中间黑线？</blockquote>
+不要在意，这破论坛只要引用的回复里有删除线，这一页上所有的回复就都有了，翻页就好了
+

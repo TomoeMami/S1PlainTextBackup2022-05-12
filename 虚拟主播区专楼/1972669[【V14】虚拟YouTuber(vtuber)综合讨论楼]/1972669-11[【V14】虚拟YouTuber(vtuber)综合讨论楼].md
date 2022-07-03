@@ -7932,3 +7932,18 @@ c18b6285f5d99461d03649d5368dcb27#f4a654ccba27276572c3509213a5c7b7#4025447352#xR 
 
 男选盒女选莎，老害选月之
 
+
+
+*****
+
+####  Ketestrait  
+##### 15745#       发表于 2022-7-3 21:02
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h3u1eoh7hgj20xv0iytcq.jpg" referrerpolicy="no-referrer">
+
+博士新单曲封面里的夜见和加贺美工业
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h3u1f42l0ij20xv0izgq9.jpg" referrerpolicy="no-referrer">
+
+SMC完全动画MV新原创曲
+
