@@ -7956,3 +7956,12 @@ SMC完全动画MV新原创曲
 
 一个多小时的live，多出来的时间全是带货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 15747#       发表于 2022-7-3 21:26
+
+有进步了，至少两年后终于愿意用本音唱歌了
+
