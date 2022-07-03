@@ -3839,3 +3839,29 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周年角色强不强无所谓，但希望是个大柰妹子
 
+
+
+*****
+
+####  areklose  
+##### 88835#       发表于 2022-7-3 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能把街机得女梅林和提妈搬过来吗，我真的很馋这两个
+
+*****
+
+####  qixinno2  
+##### 88836#       发表于 2022-7-3 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能做个梦 周年角色直接白送人手一个啊
+
+*****
+
+####  黑上シグマ  
+##### 88837#       发表于 2022-7-3 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56511483&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-3 21:32</a>
+
+怎么感觉是故意碰瓷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不存在的，也就日语听力不行的家伙才会听错
+
