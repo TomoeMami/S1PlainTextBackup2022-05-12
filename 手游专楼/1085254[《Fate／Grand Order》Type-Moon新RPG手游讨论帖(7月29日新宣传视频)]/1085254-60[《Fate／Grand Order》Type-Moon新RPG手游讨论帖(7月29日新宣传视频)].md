@@ -3885,3 +3885,19 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 这一年出了3个剑3个骑2个他2个外星人，某些狂职阶应该清楚自己的下水道地位了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88840#       发表于 2022-7-3 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在武内脸从者在我这儿已经是高质量级别了，周年会是武内画的么
+
+*****
+
+####  保罗赫伯特  
+##### 88841#       发表于 2022-7-3 23:09
+
+按照之前实装杀狐，村正这些反派的传统，周年直接实装奥尔加.玛丽所长吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
