@@ -3938,3 +3938,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装毕竟在周年后面，先期待周年，周年期望破灭后再谈泳装
 
+
+
+*****
+
+####  alucardcz  
+##### 88846#       发表于 2022-7-3 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56513027&amp;ptid=1085254" target="_blank">acuman 发表于 2022-7-3 23:28</a>
+
+周年角色最菜的就是两个达芬奇吧，我还都抽了
+
+不过小芬奇刚出的时候还是挺唬人的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最菜的不是老福吗
+
