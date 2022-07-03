@@ -7456,3 +7456,14 @@ inui不想出道我是没印象，但是她念叨solo专和第二次sololive是�
 
 作为上市企业你虹越来越有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15701#       发表于 2022-7-3 10:33
+
+sena新皮总觉得不如老皮
+
+vspo的两个？换过画师的感觉都不太行啊
+
