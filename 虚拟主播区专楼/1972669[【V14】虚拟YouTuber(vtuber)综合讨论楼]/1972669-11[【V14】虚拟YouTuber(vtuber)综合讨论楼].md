@@ -8015,3 +8015,14 @@ SMC完全动画MV新原创曲
 
 dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Longinus_  
+##### 15752#       发表于 2022-7-3 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">dtto毕业之前就说要不要加个职业队
+
+这下真去sz咯
+
