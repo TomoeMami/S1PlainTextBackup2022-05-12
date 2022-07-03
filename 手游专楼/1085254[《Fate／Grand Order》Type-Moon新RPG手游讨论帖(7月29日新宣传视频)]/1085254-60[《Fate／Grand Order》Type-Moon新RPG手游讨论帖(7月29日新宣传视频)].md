@@ -3143,3 +3143,45 @@ kono Kama da！
 
 （希望没有把存货都扔马琴上的人...一个活动俩新五有点骗氪啊...）
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 88771#       发表于 2022-7-3 17:28
+
+一发十连出了
+等等，常驻？
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  不垃圾屌丝  
+##### 88772#       发表于 2022-7-3 17:53
+
+宝具还真是月光炮<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 88773#       发表于 2022-7-3 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">all in 无事发生 出了2张5星礼装 这合理吗
+
+*****
+
+####  alucardcz  
+##### 88774#       发表于 2022-7-3 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">擦  还真是常驻  突出一个亏中亏 
+
+*****
+
+####  gpx234mqx  
+##### 88775#       发表于 2022-7-3 17:59
+
+机器人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
