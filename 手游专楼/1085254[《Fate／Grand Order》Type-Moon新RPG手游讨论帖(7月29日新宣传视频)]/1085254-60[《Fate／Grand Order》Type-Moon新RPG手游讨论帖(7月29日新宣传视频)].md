@@ -3699,3 +3699,30 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然还有哈贝喵没满宝的么
 
+
+
+*****
+
+####  J-002  
+##### 88824#       发表于 2022-7-3 20:15
+
+<img src="https://img.saraba1st.com/forum/202207/03/201335dzsfzfi9szqysqfs.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220703201318.jpg</strong> (293.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-3 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202207/03/201335fzark4qd2kuidz55.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220703201212.jpg</strong> (221.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-3 20:13 上传
+
+靠哈贝喵和大英雄的牺牲让主队全员幸存，没轮到压阵的爷爷出来
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">进3面时的debuff简直是给哈贝喵量身定做的，三个技能正好清掉三个人的强化无效，然后一炮清场顺便把自己即死了
+

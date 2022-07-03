@@ -7886,3 +7886,33 @@ xR ARTISTS SUPER FES 2022 day2
 
 c18b6285f5d99461d03649d5368dcb27#f4a654ccba27276572c3509213a5c7b7#4025447352#xR ARTISTS SUPER FES 2022 day2.mp4
 
+
+
+*****
+
+####  rzrbtk  
+##### 15740#       发表于 2022-7-3 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509934&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-7-3 19:46</a>
+
+我连那天诈尸推是不是她本人发的都表示怀疑
+
+以前她也有长期不播的时候，但是推上转fa还是很勤的， ...</blockquote>
+小夜现在做的事看着旗插满但作为旁观者看就是一直以来的行为加强版，播得少、突然出预告、出完预告偶尔会鸽、不播期间搞失踪，换个人绝对是毕业暗示，小夜就...我不清楚。
+
+*****
+
+####  Suzutsuki  
+##### 15741#       发表于 2022-7-3 20:12
+
+我的妈，Dtto这皮好好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 15742#       发表于 2022-7-3 20:16
+
+哦哦，虹甲终于来了
+
+看了一下，有IB，不错，实力派（虽然游戏是个运气游戏就是了）
+
