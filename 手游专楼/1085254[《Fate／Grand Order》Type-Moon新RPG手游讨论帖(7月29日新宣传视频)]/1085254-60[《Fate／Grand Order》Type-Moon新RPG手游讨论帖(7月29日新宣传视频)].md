@@ -3230,3 +3230,44 @@ kono Kama da！
 缺点：未来可期
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88780#       发表于 2022-7-3 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">常驻等歪是最大骗局
+
+*****
+
+####  Jamaisvu  
+##### 88781#       发表于 2022-7-3 18:11
+
+ 本帖最后由 Jamaisvu 于 2022-7-3 18:15 编辑 
+
+好像源为朝的宝具也只有一个动画...
+
+在B站看的演示，宝具动画是天空出现月食，然后投射光束到源为朝身上，其沐浴光芒后变成红色的三破模型，张弓搭箭，正脸特写，对着屏幕射一箭，红色核爆...
+
+我不太喜欢这方面的偷工减料，小太阳旧宝具啊、枪源赖光啊、紫式部啊，还有这次的马琴和源八郎。
+
+像水BB那样更新的机会不知道有没有...暂且还是先省省吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 88782#       发表于 2022-7-3 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56508324&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-3 17:21</a>
+
+源为朝实装啦！是常驻五星弓阶红光炮，宝具：轰沉•弓张月，无敌贯通+无视防御+秩序特攻+[水边]地形红卡20u ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">oh，CV是blazblue里的tager，我最爱用的角色……
+
+*****
+
+####  黑上シグマ  
+##### 88783#       发表于 2022-7-3 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哟西，两发11连出了
+

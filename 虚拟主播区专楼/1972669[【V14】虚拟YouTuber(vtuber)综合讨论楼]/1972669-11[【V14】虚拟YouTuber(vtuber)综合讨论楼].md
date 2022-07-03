@@ -7824,3 +7824,12 @@ juvvel：确实
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">juvvel这种自发组的运营弃子拿来和rofmao亲儿子比过分了，倒是sakuyui这官推组合待遇和黑黑rofmao比差距也出来了
 
+
+
+*****
+
+####  NBXX  
+##### 15734#       发表于 2022-7-3 18:17
+
+<img src="https://p.sda1.dev/6/281972aa79362fb85ff4b26c5ee940bd/_UJ@Q_T81W~_4KY9O4~IVQS.png" referrerpolicy="no-referrer">
+
