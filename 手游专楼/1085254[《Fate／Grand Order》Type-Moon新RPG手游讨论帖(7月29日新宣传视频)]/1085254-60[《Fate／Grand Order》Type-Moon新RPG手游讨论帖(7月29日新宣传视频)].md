@@ -3830,3 +3830,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">让辈前听到还不把你给拆了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88834#       发表于 2022-7-3 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周年角色强不强无所谓，但希望是个大柰妹子
+
