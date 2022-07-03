@@ -8026,3 +8026,15 @@ dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face20
 
 这下真去sz咯
 
+
+
+*****
+
+####  CielChloe  
+##### 15753#       发表于 2022-7-3 22:26
+
+ 本帖最后由 CielChloe 于 2022-7-3 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56511694&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-7-3 21:44</a>
+主播哪国人？</blockquote>
+向美洲区观众普及日文教育吗？真大和魂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
