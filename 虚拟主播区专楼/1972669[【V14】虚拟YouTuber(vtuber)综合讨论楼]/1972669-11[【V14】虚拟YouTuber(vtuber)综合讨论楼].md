@@ -7485,3 +7485,12 @@ vspo的两个？换过画师的感觉都不太行啊
 
 彩虹哥不转毕业动态顶多也就会被小骂一下，但是偏偏选择在本社人刚宣布毕业还没过一小时就来爆嗯男金币，真的是拱火鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 15704#       发表于 2022-7-3 11:55
+
+不爆en男金币还能干什么？黑客粉丝能打几个一百万啊？
+
