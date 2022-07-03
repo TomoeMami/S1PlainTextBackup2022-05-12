@@ -7627,3 +7627,41 @@ vspo的两个？换过画师的感觉都不太行啊
 
 怎么连虹楼都能云<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">阴湿虹人日常写自推repo盖的楼还是远比黑泥要多的
 
+
+
+*****
+
+####  真飞鸟i  
+##### 15717#       发表于 2022-7-3 13:41
+
+各处随便看了下，b站，微博，qq群里面虹本社粉丝都在大骂en男女粉，不过en男女粉回击的倒是不多。不太清楚是什么情况啊。
+虹本社粉丝和en男女粉的关系是逆向的以前杏本社和crew的关系吗？总之阿夸一定没有错-总之en男一定有错这样？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  winda  
+##### 15718#       发表于 2022-7-3 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jp粉在官号en谷宣传下闹也挺乐的，怎么不见在本社推发生日谷宣传的时候闹啊
+
+*****
+
+####  poipanchao  
+##### 15719#       发表于 2022-7-3 13:47
+
+那么问题来了，有没有十年夸厨说下楼友是不是连crew都云了
+
+*****
+
+####  rzrbtk  
+##### 15720#       发表于 2022-7-3 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56506093&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-7-3 13:27</a>
+
+你看小夜，消失了大半年，突然要卖谷了诈尸出来发个推然后继续不见人
+
+下次再见估计也是毕业公告了 ...</blockquote>
+小夜那个3D预定当周突然消失又不太一样，真一开始沟通好要走就应该学唯一无3D的十万粉好姐妹了
+
