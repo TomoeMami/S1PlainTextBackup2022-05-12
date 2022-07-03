@@ -7705,3 +7705,33 @@ vspo的两个？换过画师的感觉都不太行啊
 
 我觉得她不是不想一个人主流出道，固然出于我的偏见和猜想，但是一个艺人她要出第二场sololive，要出自己的solo专，一个人主流出道肯定是最方便便利的方式。她现在三人团体出道了，强调想要自己的第二次sololive还有solo专还能是什么意思……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AloissiolA  
+##### 15724#       发表于 2022-7-3 15:34
+
+ 本帖最后由 AloissiolA 于 2022-7-3 15:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56507224&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-7-3 15:25</a>
+
+偶像化更是……，我有说是黛灰说的吗？我都没提他……我就说虹肯定不会放弃偶像化的。这也要被怼？我云我背 ...</blockquote>
+这段有那么难理解？记者问你“作为组合和作为个人的目标分别是什么”，她回答“作为组合产出更多的歌，作为个人希望有第二次个人live，个人砖和活久一点”，到你这就是念叨自己想单人出道了，看来你是地狱三头狗的一个头？你自己希望她单人出道和“设身处地”妄想她想单人出道一样吗宝。
+
+[https://youtu.be/cIASljsIlvA?t=885](https://youtu.be/cIASljsIlvA?t=885)
+
+自述自己并不是拒绝和其他人组合只是自己从来不怎么主动提出组合的片段，这也没多难找啊
+
+*****
+
+####  渡鸦骑士  
+##### 15725#       发表于 2022-7-3 15:36
+
+ 本帖最后由 渡鸦骑士 于 2022-7-3 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56507287&amp;ptid=1972669" target="_blank">AloissiolA 发表于 2022-7-3 15:34</a>
+
+记者问你“你个人的目标是什么”，她回答“个人目标是第二次个人live和个人砖”，到你这就是念叨自己想单 ...</blockquote>
+原来如此，我替三头犬发言了是吧。但是我从来都是说，我觉得，我认为啊。
+
+那么我说的再正式点：我推测，“inui有想单人出道”的这个可能性。而不是“不想出道”，没这个可能性。可以吧？
+
