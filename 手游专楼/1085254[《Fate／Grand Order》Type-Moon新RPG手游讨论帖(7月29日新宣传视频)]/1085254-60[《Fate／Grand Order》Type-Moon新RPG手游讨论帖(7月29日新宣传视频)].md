@@ -3441,3 +3441,65 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 按照拿皇那会的情况应该过一年开宝具本
 
+
+
+*****
+
+####  alucardcz  
+##### 88801#       发表于 2022-7-3 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509339&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-3 18:52</a>
+
+花里胡哨的菜B角色+1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有new说话底气都足了 萌新都不敢接话
+
+*****
+
+####  Jamaisvu  
+##### 88802#       发表于 2022-7-3 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509283&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-3 18:46</a>
+
+剧情看的犯恶心，俩新人一个都不想抽，另外看隔壁说源为朝满破语音提到关羽，俄里翁和闪闪了，估计关羽要落 ...</blockquote><blockquote>太守韩馥曰：“吾有上将潘凤，可斩华雄。”绍急令出战。潘凤手提大斧上马。去不多时，飞马来报：“潘凤又被华雄斩了。”众皆失色。绍曰：“可惜吾上将颜良、文丑未至！得一人在此，何惧华雄！”言未毕，阶下一人大呼出曰：“小将愿往斩华雄头，献于帐下！”
+
+众视之，见其人身长九尺，髯长二尺，丹凤眼，卧蚕眉，面如重枣，声如巨钟，立于帐前。绍问何人。公孙瓒曰：“此刘玄德之弟关羽也。”
+
+绍问现居何职。瓒曰：“跟随刘玄德充马<strong>弓手</strong>。”帐上袁术大喝曰：“汝欺吾众诸侯无大将也？量一弓手，安敢乱言！与我打出！”曹操急止之曰：“公路息怒。此人既出大言，必有勇略；试教出马，如其不胜，责之未迟。”
+
+袁绍曰：“使一弓手出战，必被华雄所笑。”操曰：“此人仪表不俗，华雄安知他是弓手？”关公曰：“如不胜，请斩某头。”操教酾热酒一杯，与关公饮了上马。关公曰：“酒且斟下，某去便来。”
+
+出帐提刀，飞身上马。众诸侯听得关外鼓声大振，喊声大举，如天摧地塌，岳撼山崩，众皆失惊。正欲探听，鸾铃响处，马到中军，云长提华雄之头，掷于地上。其酒尚温。</blockquote>
+近战弓兵关云长<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88803#       发表于 2022-7-3 19:05
+
+ 本帖最后由 Jamaisvu 于 2022-7-3 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509283&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-3 18:46</a>
+
+剧情看的犯恶心，俩新人一个都不想抽，另外看隔壁说源为朝满破语音提到关羽，俄里翁和闪闪了，估计关羽要落 ...</blockquote>
+另外跟弓箭有关的就是刮骨疗毒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关公因为过于疲惫，不幸中了黑色高级流矢，为此神医华佗提出的治疗条件是...那请砍开头颅罢
+
+*****
+
+####  qixinno2  
+##### 88804#       发表于 2022-7-3 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509402&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 18:58</a>
+
+有new说话底气都足了 萌新都不敢接话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明显我现在越欧周年死的越惨 到时实装无敌拐只能看你们豹跳
+
+*****
+
+####  KOBI  
+##### 88805#       发表于 2022-7-3 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为朝高达又当了把工具人
+
+倒是马琴老爷。。。这塑造真的没问题吗？
+
