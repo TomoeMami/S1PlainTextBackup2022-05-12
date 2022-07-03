@@ -3613,3 +3613,42 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 反正我个多核人没那么多红魔放，随他们去吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88815#       发表于 2022-7-3 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正我弓阶就三个五星 闪闪 周黑鸭和刚抽到的源为朝 就好蛋疼
+
+*****
+
+####  alucardcz  
+##### 88816#       发表于 2022-7-3 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509892&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-3 19:43</a>
+
+反正我弓阶就三个五星 闪闪 周黑鸭和刚抽到的源为朝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧洲人吗 居然还有闪闪
+
+*****
+
+####  qixinno2  
+##### 88817#       发表于 2022-7-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509902&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 19:43</a>
+
+这就是欧洲人吗 居然还有闪闪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我怎么有什么你都喊欧 明明你的五星比我多多了
+
+*****
+
+####  alucardcz  
+##### 88818#       发表于 2022-7-3 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509951&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-3 19:47</a>
+
+艹 我怎么有什么你都喊欧 明明你的五星比我多多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错觉 我喊的都是我没的 就是这么巧
+

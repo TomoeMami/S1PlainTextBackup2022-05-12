@@ -7842,3 +7842,15 @@ juvvel：确实
 
 郡郡决赛这么帅，我觉得我认为我推测，帕特兰应该会爱上她<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">！
 
+
+
+*****
+
+####  Porsche  
+##### 15736#       发表于 2022-7-3 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56508333&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-7-3 17:22</a>
+小夜作为失踪系神秘美少女在想什么她不说观众怎么知道，反正看前阵子的liver说法，生日谷是能拒绝掉的[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我连那天诈尸推是不是她本人发的都表示怀疑
+以前她也有长期不播的时候，但是推上转fa还是很勤的，自从那次中止公告之后连fa都不转了彻底玩一个消失，这次诈尸之后也依旧没有再转过任何一张fa
+
