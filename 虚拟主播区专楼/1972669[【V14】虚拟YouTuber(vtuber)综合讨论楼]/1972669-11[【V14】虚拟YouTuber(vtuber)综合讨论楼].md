@@ -7441,3 +7441,18 @@ vshojoJP能不能接下来把金鱼和盐给招了 那可就太有意思了
 OD组相关。
 [https://www.bilibili.com/video/BV1pL4y1w7RV](https://www.bilibili.com/video/BV1pL4y1w7RV)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15700#       发表于 2022-7-3 09:50
+
+和毕业这件事无关，但是虹楼连续几页的伤风悲秋我看的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关于他们提到的偶像化。倒不如说你虹不可能放弃偶像化头部高人气主播的，之前几场演唱会明显投入越大收入越高。
+
+inui不想出道我是没印象，但是她念叨solo专和第二次sololive是写在采访里的，我觉得她不会不想自己一个人出道。
+
+作为上市企业你虹越来越有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
