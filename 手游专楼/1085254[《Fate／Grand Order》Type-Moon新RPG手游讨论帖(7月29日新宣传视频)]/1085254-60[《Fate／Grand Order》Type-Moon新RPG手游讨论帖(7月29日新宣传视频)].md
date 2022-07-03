@@ -3874,3 +3874,14 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 今年也就暗狐和巴姐是大欧派，其他不是贫的就是男的<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 88839#       发表于 2022-7-3 22:58
+
+朋友说我杀狐技能没点满，我为了怼她开图鉴才发现1年没出过新5星杀了，杀狐之前的新5星杀甚至还是19年出的迦摩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这一年出了3个剑3个骑2个他2个外星人，某些狂职阶应该清楚自己的下水道地位了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
