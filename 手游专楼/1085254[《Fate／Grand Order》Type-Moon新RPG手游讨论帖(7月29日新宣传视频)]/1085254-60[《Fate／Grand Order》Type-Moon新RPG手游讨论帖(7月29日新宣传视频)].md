@@ -3420,3 +3420,24 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 艹 竟然抽到了 40抽出了源为朝 雪山樱狼王+1</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 欧洲人太令人羡慕了 萌新毛都没有 上个new不知道是几几年了
 
+
+
+*****
+
+####  qixinno2  
+##### 88799#       发表于 2022-7-3 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509294&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 18:47</a>
+
+艹 欧洲人太令人羡慕了 萌新毛都没有 上个new不知道是几几年了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花里胡哨的菜B角色+1
+
+*****
+
+####  wolegequaaa  
+##### 88800#       发表于 2022-7-3 18:58
+
+五星红卡弓光炮倒数第二，起码比阿周那强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按照拿皇那会的情况应该过一年开宝具本
+
