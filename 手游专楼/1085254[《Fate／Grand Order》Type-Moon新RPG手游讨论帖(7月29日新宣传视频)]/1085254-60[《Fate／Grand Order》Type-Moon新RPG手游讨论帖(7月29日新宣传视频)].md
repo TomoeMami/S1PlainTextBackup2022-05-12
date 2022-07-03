@@ -3185,3 +3185,48 @@ kono Kama da！
 
 机器人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88776#       发表于 2022-7-3 18:00
+
+ 本帖最后由 Jamaisvu 于 2022-7-3 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56508324&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-3 17:21</a>
+
+源为朝实装啦！是弓阶红光炮，宝具：轰沉•弓张月，无敌贯通+无视防御+秩序特攻+[水边]地形红卡20up。</blockquote>
+八犬传完了就是周年庆，按照之前的规律：一周年达芬奇，二周年福尔摩斯，三周年斯卡蒂，四周年达芬奇liliy，五周年阿尔托莉雅caster，六周年光之高扬斯卡娅。
+
+七周年要不是新绿拐（五六周年的角色是没铺垫的，按这个思路的话可能不是徐福，而且目前好像周年庆没有东方角色，过年才有...），要不就是剧情上比较重要的人物，比如紫苑（这个我抽爆！没有的话把队长复活或者up第十死祖也行啊！<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">）
+
+所以说，要克制，毕竟是常驻，大不了等歪...周年庆完了还有泳装复刻和新泳装<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 88777#       发表于 2022-7-3 18:05
+
+30 石
+
+一隻燕青和一隻無頭騎士...
+
+沒石了
+
+*****
+
+####  yzj134100  
+##### 88778#       发表于 2022-7-3 18:05
+
+原来是常驻，不过一发出不亏
+
+*****
+
+####  exiaexa  
+##### 88779#       发表于 2022-7-3 18:09
+
+特点：长得帅，贼他妈帅，帅得无话可说
+
+缺点：未来可期
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

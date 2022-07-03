@@ -7815,3 +7815,12 @@ juvvel：确实
 反正谷是一定得卖是吧</blockquote>
 小夜作为失踪系神秘美少女在想什么她不说观众怎么知道，反正看前阵子的liver说法，生日谷是能拒绝掉的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 15733#       发表于 2022-7-3 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">juvvel这种自发组的运营弃子拿来和rofmao亲儿子比过分了，倒是sakuyui这官推组合待遇和黑黑rofmao比差距也出来了
+
