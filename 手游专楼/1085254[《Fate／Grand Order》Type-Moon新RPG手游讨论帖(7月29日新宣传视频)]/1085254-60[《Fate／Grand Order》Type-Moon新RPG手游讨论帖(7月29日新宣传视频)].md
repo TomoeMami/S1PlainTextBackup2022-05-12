@@ -3355,3 +3355,26 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 90是剑，那么90+又是枪了，YLS是不是有病？TM90+全是枪，就硬抬呆毛是吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？  90+不是311术狂吗 
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88792#       发表于 2022-7-3 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509078&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 18:25</a>
+
+这剧情本怎么做的跟高难一样 翻车了  羁绊混子队翻车了</blockquote>
+马琴那关吗，我也翻车了几次，最后都上令咒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88793#       发表于 2022-7-3 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509164&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-3 18:34</a>
+
+马琴那关吗，翻车了几次，最后我都上令咒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊 前排都活不下来  令咒都救不了（除了直接3发）
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最后一怒之下上了全主力 痛失无数羁绊点
+
