@@ -3517,3 +3517,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 50np活动一人一炮流完全没问题，就看关底放谁了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88807#       发表于 2022-7-3 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509598&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-3 19:19</a>
+
+看具体数据算了下，源为朝素质还可以
+
+秩序特攻，50红，40宝威，50充</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打的过现在不会智障的祖师爷吗
+
