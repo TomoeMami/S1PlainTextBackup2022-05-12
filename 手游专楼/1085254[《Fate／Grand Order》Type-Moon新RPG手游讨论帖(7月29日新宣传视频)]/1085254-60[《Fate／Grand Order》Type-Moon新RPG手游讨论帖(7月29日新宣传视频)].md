@@ -3726,3 +3726,14 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">进3面时的debuff简直是给哈贝喵量身定做的，三个技能正好清掉三个人的强化无效，然后一炮清场顺便把自己即死了
 
+
+
+*****
+
+####  千叶铁矢  
+##### 88825#       发表于 2022-7-3 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509830&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-7-3 19:38</a>
+源氏高达这白值、这技能、这宝具，放哪个职阶不是超一流打手，奈何偏偏生在了弓阶。“收手吧，阿源，外面都 ...</blockquote>
+上三现在强者太多了，他放剑枪也不太行，源高达放下四绝对强力
+
