@@ -7947,3 +7947,12 @@ c18b6285f5d99461d03649d5368dcb27#f4a654ccba27276572c3509213a5c7b7#4025447352#xR 
 
 SMC完全动画MV新原创曲
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15746#       发表于 2022-7-3 21:14
+
+一个多小时的live，多出来的时间全是带货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

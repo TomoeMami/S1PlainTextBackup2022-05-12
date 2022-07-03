@@ -3788,3 +3788,15 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 我这好像出了什么故障，怎么全是中间黑线？</blockquote>
 不要在意，这破论坛只要引用的回复里有删除线，这一页上所有的回复就都有了，翻页就好了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88830#       发表于 2022-7-3 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56511166&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 21:08</a>
+
+？？ 除了英雄王那读音有点像之外 上面和下面可以说完全不同怎么听错的？ ...</blockquote>
+可能是尬吹剧情真的起作用了，搞得玩家听语音都开始产生幻听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14027,3 +14027,14 @@ jimmy老师这两张真不错
 
 —— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  pei23333  
+##### 11862#       发表于 2022-7-3 21:11
+
+怎么了摸了这么久
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
