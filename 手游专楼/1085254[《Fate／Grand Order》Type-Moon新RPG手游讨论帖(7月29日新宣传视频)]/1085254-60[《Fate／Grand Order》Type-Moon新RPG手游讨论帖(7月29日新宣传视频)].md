@@ -3671,3 +3671,31 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 错觉 我喊的都是我没的 就是这么巧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新
 
+
+
+*****
+
+####  acuman  
+##### 88821#       发表于 2022-7-3 20:01
+
+不如弓凛闪闪，还是等关羽吧
+
+小日本不给关二爷整个强度爆炸的单体弓说不过去啊
+
+*****
+
+####  exiaexa  
+##### 88822#       发表于 2022-7-3 20:01
+
+别说了，真正的3宝哈贝喵非洲人在这里
+
+90+我哈贝喵甚至不能稳定清掉第一面
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 88823#       发表于 2022-7-3 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然还有哈贝喵没满宝的么
+
