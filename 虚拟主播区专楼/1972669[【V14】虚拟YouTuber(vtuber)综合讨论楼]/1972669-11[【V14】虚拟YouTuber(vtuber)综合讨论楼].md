@@ -7568,3 +7568,53 @@ vspo的两个？换过画师的感觉都不太行啊
 
 虹楼也就有人毕业的时候冒出来一堆人伤春悲秋热闹得不行，多少也是有点滑稽的
 
+
+
+*****
+
+####  winda  
+##### 15712#       发表于 2022-7-3 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹都这么多人了，怎么看得过来，大部分人也就出道和毕业看两回的事
+
+*****
+
+####  OldGlory  
+##### 15713#       发表于 2022-7-3 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56505924&amp;ptid=1972669" target="_blank">AloissiolA 发表于 2022-7-3 13:11</a>
+
+ーー今後3人で活動することも多くなるとは思いますが、「Nornis」としての、またはライバー個人としてイ ...</blockquote>
+这种场面话就算了吧，看都不看
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 越动天下| + 1|这说的真没问题|
+| FCCHua|-1||
+
+查看全部评分
+
+*****
+
+####  AloissiolA  
+##### 15714#       发表于 2022-7-3 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56505977&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-7-3 13:16</a>
+
+虹楼也就有人毕业的时候冒出来一堆人伤春悲秋热闹得不行，多少也是有点滑稽的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那是，一堆明显平时也没怎么看的也就毕业的时候出来感叹两句其实也不会怎么关心，像云宝这种前因后果都不知道就毕业了出来指点几句江山的真的有点好笑捏
+
+*****
+
+####  Porsche  
+##### 15715#       发表于 2022-7-3 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看小夜，消失了大半年，突然要卖谷了诈尸出来发个推然后继续不见人
+下次再见估计也是毕业公告了
+
