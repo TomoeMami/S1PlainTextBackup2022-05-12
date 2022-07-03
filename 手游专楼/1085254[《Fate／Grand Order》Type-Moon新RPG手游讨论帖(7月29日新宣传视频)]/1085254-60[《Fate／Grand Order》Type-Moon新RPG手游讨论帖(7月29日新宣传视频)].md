@@ -3901,3 +3901,31 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 按照之前实装杀狐，村正这些反派的传统，周年直接实装奥尔加.玛丽所长吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 88842#       发表于 2022-7-3 23:21
+
+比起周年，泳装大莱莱应该更靠谱吧
+
+总不能比去年泳装更拉
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sin.yugi  
+##### 88843#       发表于 2022-7-3 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这活动不是开三周吗，PU2这么急周日就开卡池了怎么回事？一般都是等到下周3的吧
+
+*****
+
+####  acuman  
+##### 88844#       发表于 2022-7-3 23:28
+
+周年角色最菜的就是两个达芬奇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我还都抽了
+
+不过小芬奇刚出的时候还是挺唬人的
+
