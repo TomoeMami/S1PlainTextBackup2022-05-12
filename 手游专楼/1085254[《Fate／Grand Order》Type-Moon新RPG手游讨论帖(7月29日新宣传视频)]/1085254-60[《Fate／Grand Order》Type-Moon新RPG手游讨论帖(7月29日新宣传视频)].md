@@ -3865,3 +3865,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 怎么感觉是故意碰瓷</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不存在的，也就日语听力不行的家伙才会听错
 
+
+
+*****
+
+####  khxooo  
+##### 88838#       发表于 2022-7-3 22:43
+
+今年也就暗狐和巴姐是大欧派，其他不是贫的就是男的<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
