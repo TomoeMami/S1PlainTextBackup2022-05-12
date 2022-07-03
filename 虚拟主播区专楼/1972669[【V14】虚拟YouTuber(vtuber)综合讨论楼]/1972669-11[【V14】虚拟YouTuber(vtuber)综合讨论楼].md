@@ -7854,3 +7854,22 @@ juvvel：确实
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我连那天诈尸推是不是她本人发的都表示怀疑
 以前她也有长期不播的时候，但是推上转fa还是很勤的，自从那次中止公告之后连fa都不转了彻底玩一个消失，这次诈尸之后也依旧没有再转过任何一张fa
 
+
+
+*****
+
+####  FCCHua  
+##### 15737#       发表于 2022-7-3 19:58
+
+ 本帖最后由 FCCHua 于 2022-7-3 20:00 编辑 
+
+麻将之后定番的甲子园它来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+老板娘没有再出场好可惜
+
+*****
+
+####  死体残留  
+##### 15738#       发表于 2022-7-3 19:59
+
+还以为有凛的 结果还是旧面孔多啊 
+

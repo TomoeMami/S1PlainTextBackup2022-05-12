@@ -3652,3 +3652,22 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 艹 我怎么有什么你都喊欧 明明你的五星比我多多了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错觉 我喊的都是我没的 就是这么巧
 
+
+
+*****
+
+####  kisskick  
+##### 88819#       发表于 2022-7-3 19:58
+
+我这好像出了什么故障，怎么全是中间黑线？
+
+*****
+
+####  qixinno2  
+##### 88820#       发表于 2022-7-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56509973&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-3 19:49</a>
+
+错觉 我喊的都是我没的 就是这么巧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新
+
