@@ -7965,3 +7965,18 @@ SMC完全动画MV新原创曲
 
 有进步了，至少两年后终于愿意用本音唱歌了
 
+
+
+*****
+
+####  Ketestrait  
+##### 15748#       发表于 2022-7-3 21:37
+
+ 本帖最后由 Ketestrait 于 2022-7-3 21:40 编辑 
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h3u2fifow8j20xq0iy43k.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h3u2j0bey8j20xv0iydmm.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h3u2fpe96fj20xu0iz40m.jpg" referrerpolicy="no-referrer">
+
+置き土産居然是有声漫画，夜见你这配音掐得比平时还过分十倍啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
