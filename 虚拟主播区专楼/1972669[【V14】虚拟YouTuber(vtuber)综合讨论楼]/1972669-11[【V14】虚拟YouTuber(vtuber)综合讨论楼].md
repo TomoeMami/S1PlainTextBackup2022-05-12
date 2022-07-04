@@ -8167,3 +8167,22 @@ rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.s
 
 まだ見えると思うよ～
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15767#       发表于 2022-7-4 22:50
+
+<img src="https://img.saraba1st.com/forum/202207/04/224917a2p888e2o3f2qhoe.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220704224859.png</strong> (112.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-4 22:49 上传
+
+赤坂明和しろまんた在rust主播服卖画维生，这是部分展示用的
+
+左边的屋子是工作屋
+
