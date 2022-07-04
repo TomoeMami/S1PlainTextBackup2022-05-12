@@ -8096,3 +8096,14 @@ dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face20
 
 rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  carroy  
+##### 15760#       发表于 2022-7-4 16:35
+
+下午又跌了两个点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一天跌了将近10%
+
