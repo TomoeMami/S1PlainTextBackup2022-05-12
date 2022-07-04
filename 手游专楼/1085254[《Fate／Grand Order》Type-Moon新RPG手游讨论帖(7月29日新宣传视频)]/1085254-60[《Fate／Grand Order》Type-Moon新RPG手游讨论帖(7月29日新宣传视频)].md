@@ -4025,3 +4025,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 打完的感想：老头和萝卜的印象还没有狗狗深<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 88854#       发表于 2022-7-4 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56512969&amp;ptid=1085254" target="_blank">sin.yugi 发表于 2022-7-3 23:24</a>
+
+这活动不是开三周吗，PU2这么急周日就开卡池了怎么回事？一般都是等到下周3的吧 ...</blockquote>
+因为周日出能登顶，这周出的话基本上撞上友商别的卡池了
+
+顺带一提东出氏在第二部写的常驻五星皇女和脚后跟是明显在环境中偏弱了也硬是没给强化的……
+
