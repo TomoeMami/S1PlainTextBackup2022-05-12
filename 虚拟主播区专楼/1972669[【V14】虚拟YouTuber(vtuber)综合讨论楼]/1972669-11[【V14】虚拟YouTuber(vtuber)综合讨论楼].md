@@ -8138,3 +8138,12 @@ rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.s
 ピーナッツくんワンマンライブ「Walk Through the Stars Tour」@渋谷Spotify O-EAST
 [https://www.youtube.com/watch?v=X0EimdiiYe4](https://www.youtube.com/watch?v=X0EimdiiYe4)
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15764#       发表于 2022-7-4 21:02
+
+这次是豆猫去啊...
+
