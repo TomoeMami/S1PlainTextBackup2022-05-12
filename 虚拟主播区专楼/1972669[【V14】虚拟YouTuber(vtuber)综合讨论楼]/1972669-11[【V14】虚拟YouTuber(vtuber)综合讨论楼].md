@@ -8147,3 +8147,23 @@ rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.s
 
 这次是豆猫去啊...
 
+
+
+*****
+
+####  fastary  
+##### 15765#       发表于 2022-7-4 22:46
+
+突然想到个有意思的，新时代的v圈好像黛灰这是第一次有著名男v毕业……
+
+也不知道会不会成为第二个和道明寺一样被时不时招个魂的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+要是能变成业界传说被记住也不算是白在彩虹干三年<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 15766#       发表于 2022-7-4 22:47
+
+まだ見えると思うよ～
+
