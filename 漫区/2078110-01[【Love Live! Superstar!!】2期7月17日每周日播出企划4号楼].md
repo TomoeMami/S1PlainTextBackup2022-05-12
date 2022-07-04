@@ -1847,3 +1847,23 @@ XR这机位走位让我有种莫名的不快感
 说真的那段话简直究极巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不知道那人是不是真的巨魔 如果是的话我认为是出类拔萃的巨魔了
 
+
+
+*****
+
+####  lj205  
+##### 138#       发表于 2022-7-4 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56519933&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-4 15:13</a>
+开播前都没有团队活动，打铁今晚有直播（AB社的FC），Nagi今晚有A+G的广播（本月的主持人） ...</blockquote>
+不是有生放吗？
+
+*****
+
+####  starring  
+##### 139#       发表于 2022-7-4 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56522037&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-4 17:24</a>
+不是有生放吗？</blockquote>
+只记得周六MTV线上播放，完全忘了生放送<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
