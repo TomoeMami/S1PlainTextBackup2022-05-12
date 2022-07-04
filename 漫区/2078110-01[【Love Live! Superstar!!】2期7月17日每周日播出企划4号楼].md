@@ -2024,3 +2024,14 @@ nagio会说中文，好耶
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">nako………………辣鸡hp 
 
+
+
+*****
+
+####  ads147147  
+##### 148#       发表于 2022-7-4 22:27
+
+nako真的没消息了？不应该啊。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
