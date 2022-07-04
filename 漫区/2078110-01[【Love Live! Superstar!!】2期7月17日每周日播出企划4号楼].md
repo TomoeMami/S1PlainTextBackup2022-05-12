@@ -1952,3 +1952,66 @@ nagio会说中文，好耶
 
 主要我对她之前说以前想参加自卫队的想法印象深，加上她上的大学和专业，所以就会有延伸，单纯个人闲着没事过度解读而已
 
+
+
+*****
+
+####  仟音一心  
+##### 146#       发表于 2022-7-4 21:13
+
+<img src="https://img.saraba1st.com/forum/202207/04/211246a0kv60jffkccffss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4F2AC4DD-AE6F-4CCF-9BD4-327C48220F65.jpeg</strong> (219.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/04/211255igj5h4s56q0wqs6o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3C37F287-E3B7-4D75-AD9B-183657DB66DF.jpeg</strong> (384.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/04/211255hx44vd4lt4x4j2ni.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>33A8AC01-E30A-4252-B990-C4CC345EE912.jpeg</strong> (262.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/04/211255q49qq1arnrsn4qan.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>67B527FF-38CD-4003-8AAD-03F12A4AB4A8.jpeg</strong> (286.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/04/211255lmdv0nu9u9pb8ecb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>354806A0-ABE3-4D4C-8CEE-8F8AF58827F8.jpeg</strong> (274.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/04/211313ajyo2211xwgzxa23.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7500113A-47DC-4110-BA6B-AC4596013254.jpeg</strong> (175.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-4 21:13 上传
+
+五老星除了一个都很忙
+
