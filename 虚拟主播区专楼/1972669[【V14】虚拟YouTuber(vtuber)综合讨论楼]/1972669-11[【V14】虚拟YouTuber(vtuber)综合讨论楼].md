@@ -8078,3 +8078,12 @@ dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face20
 
 算了，我跟myui和解了，就让你们最后卖个大的吧，反正这个月最多也就再一次bls联动了，一个月后什么cp都be了我也眼不见心不烦了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 15758#       发表于 2022-7-4 11:39
+
+黑客一己之力让虹股票一上午跌了7%，虹棒都救不回来嘻嘻，听说人多风险小是吧
+
