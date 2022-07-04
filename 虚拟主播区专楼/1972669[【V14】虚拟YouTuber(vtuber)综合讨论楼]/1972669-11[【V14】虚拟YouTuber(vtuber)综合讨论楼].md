@@ -8087,3 +8087,12 @@ dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face20
 
 黑客一己之力让虹股票一上午跌了7%，虹棒都救不回来嘻嘻，听说人多风险小是吧
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15759#       发表于 2022-7-4 12:20
+
+rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
