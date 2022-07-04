@@ -1825,3 +1825,14 @@ XR这机位走位让我有种莫名的不快感
 
 到动画开播前都有啥活动啊？
 
+
+
+*****
+
+####  starring  
+##### 136#       发表于 2022-7-4 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56519294&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-4 14:21</a>
+到动画开播前都有啥活动啊？</blockquote>
+开播前都没有团队活动，打铁今晚有直播（AB社的FC），Nagi今晚有A+G的广播（本月的主持人）
+
