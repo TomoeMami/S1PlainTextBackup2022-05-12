@@ -8069,3 +8069,12 @@ dtto你也是死神？<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fastary  
+##### 15757#       发表于 2022-7-4 11:20
+
+算了，我跟myui和解了，就让你们最后卖个大的吧，反正这个月最多也就再一次bls联动了，一个月后什么cp都be了我也眼不见心不烦了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
