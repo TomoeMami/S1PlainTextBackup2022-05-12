@@ -3980,3 +3980,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 你这钢普拉不抛光就算了咋还整了个全套磨砂
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大巨傻  
+##### 88849#       发表于 2022-7-4 07:58
+
+美服白方块，qp与种火极级本实装。
+
