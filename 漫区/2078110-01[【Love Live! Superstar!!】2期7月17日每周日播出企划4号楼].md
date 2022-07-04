@@ -2035,3 +2035,12 @@ nako真的没消息了？不应该啊。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 149#       发表于 2022-7-4 23:10
+
+在准备FC和写真集应该
+
