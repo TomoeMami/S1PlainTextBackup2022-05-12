@@ -1867,3 +1867,12 @@ XR这机位走位让我有种莫名的不快感
 不是有生放吗？</blockquote>
 只记得周六MTV线上播放，完全忘了生放送<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 140#       发表于 2022-7-4 19:00
+
+nagio会说中文，好耶
+
