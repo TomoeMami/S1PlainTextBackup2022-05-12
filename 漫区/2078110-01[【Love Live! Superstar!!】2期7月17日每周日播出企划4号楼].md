@@ -1937,3 +1937,18 @@ nagio会说中文，好耶
 
 我倒是觉得可能不一定是研究中国，一个是没怎么感觉到nagi对中国有很浓厚的兴趣（当然老哥们能找到信息反驳我也行），二个是从最早的LLD那个海选合格者采访里，nagi在大概在高三就有想往演艺圈发展的想法（[https://www.bilibili.com/read/cv11976660](https://www.bilibili.com/read/cv11976660)），所以我倾向于认为nagi并没有把学的专业优先到就业那个程度，所以我感觉就是普通完成学业选修那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 145#       发表于 2022-7-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56524062&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-4 20:30</a>
+随便聊聊（角度刁钻，轻喷轻喷）
+
+我倒是觉得可能不一定是研究中国，一个是没怎么感觉到nagi对中国 ...</blockquote>
+到没所谓
+
+主要我对她之前说以前想参加自卫队的想法印象深，加上她上的大学和专业，所以就会有延伸，单纯个人闲着没事过度解读而已
+
