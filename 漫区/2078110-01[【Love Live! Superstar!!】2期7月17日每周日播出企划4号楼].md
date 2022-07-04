@@ -1903,3 +1903,19 @@ nagio会说中文，好耶
 9月30日将举行伊达小百合20岁生日的BirthdayParty粉丝活动，地点为丰州PIT，开场18:00，开演19:00。
 明天公开伊达小百合写真集活动详情，预计地点为仙台。
 
+
+
+*****
+
+####  老1.5  
+##### 143#       发表于 2022-7-4 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56523623&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-4 19:42</a>
+
+“我是日本人”
+
+“我不是日本人”
+
+不过既然想要学中文，加上专业，看来当时是考虑研究中国？</blockquote>
+现在的nagi：中国女生搞百合（意味深）有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
