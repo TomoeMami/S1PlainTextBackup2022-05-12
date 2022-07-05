@@ -2044,3 +2044,14 @@ nako真的没消息了？不应该啊。
 
 在准备FC和写真集应该
 
+
+
+*****
+
+####  player3960  
+##### 150#       发表于 2022-7-5 07:56
+
+想加入自卫队，KTV唱君之代，学国际关系，nagi这个浓度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
