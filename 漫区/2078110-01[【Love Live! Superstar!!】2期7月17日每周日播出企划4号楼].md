@@ -2121,3 +2121,12 @@ nako真的没消息了？不应该啊。
 
 一巡BD偷跑了今天应该会有人上传，自己买的可能要8月才到<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 157#       发表于 2022-7-5 11:06
+
+不是说日本邮政1号恢复对中国的运输吗？怎么到现在都没消息，我一堆东西压着
+
