@@ -2562,3 +2562,12 @@ song for all
 
 草，东京追加场，SNP场上唱她们在场下跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 176#       发表于 2022-7-5 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初见就触发了nako的保护欲
+
