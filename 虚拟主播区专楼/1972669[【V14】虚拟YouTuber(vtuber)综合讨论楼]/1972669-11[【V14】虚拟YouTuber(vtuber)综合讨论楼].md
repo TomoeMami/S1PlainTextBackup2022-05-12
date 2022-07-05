@@ -8282,3 +8282,22 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 不过b运营也挺sb的，转en不转本社肯定会被烧的
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 15778#       发表于 2022-7-5 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56535635&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-7-5 18:56</a>
+
+黛灰宣布毕业后过了大概半小时B号顺势发了luxiem的谷子动态</blockquote>
+谢谢，这真是有点恶意了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 15779#       发表于 2022-7-5 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">话说永ban不是不能开新号的么，有人解说下和裁狗ban不能开新号是什么区别
+
