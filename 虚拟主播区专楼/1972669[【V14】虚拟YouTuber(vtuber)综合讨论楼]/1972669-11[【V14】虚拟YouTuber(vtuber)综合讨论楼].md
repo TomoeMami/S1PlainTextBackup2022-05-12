@@ -8330,3 +8330,19 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 真空管人偶的フェルミ也终于转生了啊，快2年半了
 
+
+
+*****
+
+####  AloissiolA  
+##### 15783#       发表于 2022-7-5 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56535958&amp;ptid=1972669" target="_blank">死体残留 发表于 2022-7-5 19:30</a>
+
+话说永ban不是不能开新号的么，有人解说下和裁狗ban不能开新号是什么区别 ...</blockquote>
+首先，是不是永ban还得等铲自己说。
+
+其次，永ban只是你这个人不能再自己创频道了，而别人创建的频道，而你只是作为绝大多数时间出现的”嘉宾“”主持人“就可以完全绕过这个限制。国外比如Keemstar就靠当DramaAlert的”主持人“而不是自己创建DramaAlert频道的方式避开了对他的永久ban
+
+假如现在那家八卦管人团Bakudan决定开一个节目给鸣神，然后他就往他们频道上丢视频，那Youtube的ban对他就是没有作用的
+
