@@ -2190,3 +2190,14 @@ making偷跑，看打铁自己说的，只能说合鲤大概是锁死了<img src
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宫城花絮有之前MC说过的千堇在后台跳小星星
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 164#       发表于 2022-7-5 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56527746&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-5 08:28</a>
+ 可能性不大，配音cast又没有藏很深的必要，你当电锯人呐现在都没出cv情报 ...</blockquote>
+如果配一般的小配角或龙套的话就不会公布了，不过我也觉得这个可能不大，配音也是个僧多粥少的活
+
