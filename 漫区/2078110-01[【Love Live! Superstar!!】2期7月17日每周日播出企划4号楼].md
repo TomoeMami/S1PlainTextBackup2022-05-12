@@ -2087,3 +2087,14 @@ nako真的没消息了？不应该啊。
   -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
 什么青山大佐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 154#       发表于 2022-7-5 09:48
+
+青山的颜确实也挺适合演这些年流行的霓虹女特务或者国军女特务w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
