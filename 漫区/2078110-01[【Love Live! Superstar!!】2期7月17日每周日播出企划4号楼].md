@@ -2695,3 +2695,13 @@ song for all
 由手机上传
 2022-7-5 21:47 上传
 
+
+
+*****
+
+####  starring  
+##### 178#       发表于 2022-7-6 00:09
+
+三个making都看完了，不会组织什么漂亮的话语，只想说她们五人一路努力下来的样子真的令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+看到花絮里她们说五人的关系超越朋友，是伙伴是家人，就对运营草率加人的做法感到恼火，还有对桑尼趴现在快要变成弃子感到不满
+
