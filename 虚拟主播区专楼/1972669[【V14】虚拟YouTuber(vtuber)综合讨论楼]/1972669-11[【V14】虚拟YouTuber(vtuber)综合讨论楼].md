@@ -8368,3 +8368,12 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 现在嗯女双人联动也能上万了么，还是中文小语种直播
 
+
+
+*****
+
+####  死体残留  
+##### 15786#       发表于 2022-7-6 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">中文什么时候是小语种了
+
