@@ -8377,3 +8377,14 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">中文什么时候是小语种了
 
+
+
+*****
+
+####  IL282  
+##### 15787#       发表于 2022-7-6 01:10
+
+不是,哪次中文直播同接低了
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
