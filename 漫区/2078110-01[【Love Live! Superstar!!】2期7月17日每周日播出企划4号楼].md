@@ -2295,3 +2295,34 @@ syl，外野这贴喷了
 
 艺人也是人，有政治取向再正常不过，至少青山从来不讲这些，人家心里想什么别人管不着。
 
+
+
+*****
+
+####  仟音一心  
+##### 171#       发表于 2022-7-5 19:40
+
+听译：百合粥不加糖
+
+<img src="https://img.saraba1st.com/forum/202207/05/194008q1lupubl9bwbvn3l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1F90A19B-4ADF-4623-81CE-E985BCA4803F.jpeg</strong> (278.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-5 19:40 上传
+
+从四季喜欢单人露营转到kuma也想尝试，non酱说kuma很喜欢一个人行动，kuma说自己是不是不太会读空气，大家都否认了。nako说原来non酱眼里kuma喜欢自己行动啊，non酱说倒不如说经常自言自语要去哪。kuma说二期生四个人一起聊天的机会很多，non yabu emorin三个人总是聊得很嗨，但是自己总是不知道怎么插话，因此苦恼找non酱谈过心。non酱说kuma是特别安静的人，震惊sayu nako，因为两人都觉得kuma会是很活泼好动那种人。kuma说这种事很常有，周围的人通常对自己的第一印象都是孤狼，但是一旦搭上话，开始交流后印象就变了。sayu问一个人也能很淡定吗，kuma说没问题，有时候果然还是很喜欢一个人。sayu nako表示非常理解。
+
+话题让sayu转到大家体验一人活动都到过什么程度。non酱说自己还挺多的，前段时间一个人去吃了寿司，sayu nako又震惊了，而且坐的还不是单人吧台位，因为店比较空，一个人坐了四人桌，被夸厉害。nako体验过一个人唱k吃拉面吃烤肉，一个人去游乐园觉得会太寂寞了。结果kuma说自己一个人去过。和朋友一起去很开心，但是会不停地聊天，基本不会注意周围，一个人去就会注意到很多景色，是一种享受方式。sayu问会感受到很多东西吗，比如听到什么，kuma说很多，边吃东西边感受。大家都觉得这种一人打发时间很享受的样子。sayu提议不如体验下四个人全都孤狼，寂寞了就集合。
+
+<img src="https://img.saraba1st.com/forum/202207/05/193953py5zjvg95ata9s9a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AA8FA893-40B3-45B0-82B9-0D02DE54B0AC.jpeg</strong> (281.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-5 19:39 上传
+
