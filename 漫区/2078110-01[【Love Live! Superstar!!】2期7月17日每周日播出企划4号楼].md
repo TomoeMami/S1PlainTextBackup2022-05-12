@@ -2210,3 +2210,12 @@ making偷跑，看打铁自己说的，只能说合鲤大概是锁死了<img src
 
 叔叔家上架鲤鱼写真，价格不错，没有特典
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 166#       发表于 2022-7-5 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道什么时候才能拿到fc特典的鱼写真，叔叔家的可可趴趴都延期了只拿到了鱼t
+
