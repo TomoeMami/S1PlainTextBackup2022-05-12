@@ -8216,3 +8216,22 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  FCCHua  
+##### 15771#       发表于 2022-7-5 18:12
+
+ 本帖最后由 FCCHua 于 2022-7-5 18:19 编辑 
+
+[https://youtu.be/MYZwBx8s8rw](https://youtu.be/MYZwBx8s8rw)
+真白再出道系列，只能说有个新频道总比一直等着强，希望原频道还能回来吧，应该还没超过诗子频道被ban时长的记录<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北山玖公  
+##### 15772#       发表于 2022-7-5 18:15
+
+真白也太惨了，原频道几十万订阅直接清0，以前的视频多半也没了吧。
+
