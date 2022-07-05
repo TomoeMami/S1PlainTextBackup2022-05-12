@@ -8397,3 +8397,16 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 Enna：我们俩都是加拿大人，所以中文其实不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 15789#       发表于 2022-7-6 02:05
+
+我觉得他说的没什么问题 提升确实不大（时间因素不考虑）
+如果感觉对比月中位数同接还算是刚刚站在中位数上一点点 并没有什么提升 比如reimu五月1386 大概高一些 当然应该看出时间的因素 而拿出selen六月的4130 对比下午3点的感觉也没有什么特别大提升 可能还是时间问题 拉到中国的黄金时间同接就会上升不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/b1d79b5f11d04942f3baa1d690a8defc/CMP_20220706020357582.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
