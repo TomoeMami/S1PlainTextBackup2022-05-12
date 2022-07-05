@@ -8204,3 +8204,15 @@ rrm一直很恶心。所以才能和光狐朋狗友。<img src="https://static.s
 
 这aza找的谁啊 感觉不太说话
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15770#       发表于 2022-7-5 15:15
+
+obsydia一周年庆典开头先把diamond city点了
+https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1nA&amp;s=19
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
