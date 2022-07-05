@@ -8310,3 +8310,14 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">100废铁就能买到すみれ的大好き音声，我怎么就不是主播
 
+
+
+*****
+
+####  winda  
+##### 15781#       发表于 2022-7-5 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56535212&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-7-5 18:20</a>
+所以铲弟为啥被封，有什么说法吗？</blockquote>
+かわいいは壊せる这游戏一发ban<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
