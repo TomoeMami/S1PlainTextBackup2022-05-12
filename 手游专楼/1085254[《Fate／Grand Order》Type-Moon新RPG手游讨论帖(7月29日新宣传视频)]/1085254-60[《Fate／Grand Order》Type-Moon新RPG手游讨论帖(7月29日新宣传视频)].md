@@ -4069,3 +4069,14 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 来波强化本吧 多久没强化活动了 都是活动时给几个角色强化</blockquote>
 北斋强化，宝威攻击黄金律一起加了，将特攻倍率也提上去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 88858#       发表于 2022-7-5 23:43
+
+估计是把去年泳装的池子给复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+算一下八犬传到20号，剩下10天周年预热（今年周年活动在7月31号），8月周年+3周新泳装，9月2.4回顾+过2.4活动，10月2.5回顾+过2.5活动，11月2.6回顾+过2.6活动，最后12月2.7和新年预热，其他时间挤一挤可以搞一些百万dl，幕间本，2.7预热之类的长草活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
