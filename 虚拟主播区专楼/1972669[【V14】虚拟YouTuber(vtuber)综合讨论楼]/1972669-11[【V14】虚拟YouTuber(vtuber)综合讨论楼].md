@@ -8301,3 +8301,12 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">话说永ban不是不能开新号的么，有人解说下和裁狗ban不能开新号是什么区别
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15780#       发表于 2022-7-5 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">100废铁就能买到すみれ的大好き音声，我怎么就不是主播
+
