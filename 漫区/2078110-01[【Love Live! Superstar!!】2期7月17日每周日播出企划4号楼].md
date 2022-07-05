@@ -2073,3 +2073,17 @@ nako真的没消息了？不应该啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能性不大，配音cast又没有藏很深的必要，你当电锯人呐现在都没出cv情报
 
+
+
+*****
+
+####  adw667  
+##### 153#       发表于 2022-7-5 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56527556&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-5 07:56</a>
+
+想加入自卫队，KTV唱君之代，学国际关系，nagi这个浓度
+
+  -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
+什么青山大佐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
