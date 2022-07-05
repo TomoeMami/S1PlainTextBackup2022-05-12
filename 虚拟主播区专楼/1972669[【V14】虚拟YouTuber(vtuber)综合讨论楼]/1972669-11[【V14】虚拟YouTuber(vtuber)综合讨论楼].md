@@ -8321,3 +8321,12 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 所以铲弟为啥被封，有什么说法吗？</blockquote>
 かわいいは壊せる这游戏一发ban<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pansherry  
+##### 15782#       发表于 2022-7-5 21:00
+
+真空管人偶的フェルミ也终于转生了啊，快2年半了
+
