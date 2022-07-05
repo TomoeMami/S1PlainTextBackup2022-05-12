@@ -8346,3 +8346,16 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 假如现在那家八卦管人团Bakudan决定开一个节目给鸣神，然后他就往他们频道上丢视频，那Youtube的ban对他就是没有作用的
 
+
+
+*****
+
+####  fastary  
+##### 15784#       发表于 2022-7-5 23:15
+
+今夜我就是饭屋mmr<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+听fwgs两个人开玩笑要黛灰留下来又说毕竟是mayu的选择应该尊重，就觉得黛灰一个月不到就会“死亡”的实感突然一口气涌了上来……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+呜呜呜呜呜呜呜呜呜感觉以后会因为lost感太强还是去追ymen了，虽然一直觉得根本没法代餐
+
