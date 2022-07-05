@@ -4057,3 +4057,15 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来波强化本吧 多久没强化活动了 都是活动时给几个角色强化 
 
+
+
+*****
+
+####  khxooo  
+##### 88857#       发表于 2022-7-5 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56537622&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-5 21:57</a>
+
+来波强化本吧 多久没强化活动了 都是活动时给几个角色强化</blockquote>
+北斋强化，宝威攻击黄金律一起加了，将特攻倍率也提上去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
