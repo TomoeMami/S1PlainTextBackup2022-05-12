@@ -8254,3 +8254,22 @@ https://twitter.com/MOSNA_INFO/status/1544108798889050114?t=qnbGhdLg7jvTJlOGrre1
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 15775#       发表于 2022-7-5 18:51
+
+批站虹社运营和解解们出了什么矛盾，直接关闭评论区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15776#       发表于 2022-7-5 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56535575&amp;ptid=1972669" target="_blank">酒瓶止迁 发表于 2022-7-5 18:51</a>
+
+批站虹社运营和解解们出了什么矛盾，直接关闭评论区了</blockquote>
+黛灰宣布毕业后过了大概半小时B号顺势发了luxiem的谷子动态
+
