@@ -4048,3 +4048,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 明天竟然有维护，是想干啥
 
+
+
+*****
+
+####  qixinno2  
+##### 88856#       发表于 2022-7-5 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来波强化本吧 多久没强化活动了 都是活动时给几个角色强化 
+
