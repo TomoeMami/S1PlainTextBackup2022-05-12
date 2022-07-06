@@ -4254,3 +4254,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 说明官方已经放弃北斋了，也别强化了，不如重做一张卡算了22333
 
+
+
+*****
+
+####  qixinno2  
+##### 88876#       发表于 2022-7-6 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥玩意 进去更新100多结果就一个北斋池子和活动低难本
+
