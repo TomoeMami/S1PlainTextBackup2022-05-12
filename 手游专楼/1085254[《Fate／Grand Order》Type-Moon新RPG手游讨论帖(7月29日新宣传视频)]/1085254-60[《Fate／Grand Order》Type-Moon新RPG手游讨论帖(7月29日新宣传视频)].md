@@ -4341,3 +4341,28 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我用源大炮打的 只能说没宝具本的一宝伤害太水了 不然能3T的 懒得费劲直接令咒复活轰过去了
 
+
+
+*****
+
+####  vacuumsword  
+##### 88885#       发表于 2022-7-6 19:44
+
+这个连地图和赠送四星都没有的垃圾活动居然开了三个卡池。不知道是不是第一回。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 88886#       发表于 2022-7-6 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56549689&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-6 19:22</a>
+
+我用源大炮打的 只能说没宝具本的一宝伤害太水了 不然能3T的 懒得费劲直接令咒复活轰过去了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕new
+
+[https://www.bilibili.com/video/BV1bt4y1b7NB](https://www.bilibili.com/video/BV1bt4y1b7NB)
+
+萌新甚至吃饱没事还录了个像 赶紧帮忙点个赞（
+
