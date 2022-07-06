@@ -4285,3 +4285,22 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 你再看看一括</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">干嘛用的
 
+
+
+*****
+
+####  里村紅葉  
+##### 88879#       发表于 2022-7-6 17:58
+
+我一括要下10个G<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88880#       发表于 2022-7-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56548601&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-6 17:58</a>
+
+我一括要下10个G</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大也就比我多2。5g
+
