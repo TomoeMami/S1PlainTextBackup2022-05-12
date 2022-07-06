@@ -4366,3 +4366,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 萌新甚至吃饱没事还录了个像 赶紧帮忙点个赞（
 
+
+
+*****
+
+####  qixinno2  
+##### 88887#       发表于 2022-7-6 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56549975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-6 19:47</a>
+
+羡慕new
+
+https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点了 羡慕有杀生院的
+

@@ -14300,3 +14300,15 @@ b博
 
 回不去了你这肥婆！
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11890#       发表于 2022-7-6 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56547911&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-7-6 17:12</a>
+
+来阿b了，明天能播播吗，非要那天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">b站番剧周四更新的放周三更新了，你觉得为啥？？
+
