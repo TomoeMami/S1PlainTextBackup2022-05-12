@@ -8436,3 +8436,27 @@ Enna：我们俩都是加拿大人，所以中文其实不是很好<img src="htt
 现在sc第一看趋势不是虹en男嘛？今年上半年就没落下过前五。
 只能说历史总是惊人的相似<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 15793#       发表于 2022-7-6 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56539722&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-7-6 02:05</a>
+
+我觉得他说的没什么问题 提升确实不大（时间因素不考虑）
+
+如果感觉对比月中位数同接还算是刚刚站在中位数上 ...</blockquote>
+我觉得还是因为国内因素的原因，这两位在CN最近人气也越来越高。
+
+假设用EN男浓度简单代一下CN浓度（
+
+以相手のメンバー数据表示来自其他频道的粉丝，对6月21日和7月6日selen频道的两次学中文，就可以看到观众结构的变化。
+
+6月21日：
+<img src="https://p.sda1.dev/6/4948330f849cbe63fb2ac32ae2c4047d/下载 _1_.jpeg" referrerpolicy="no-referrer">
+
+7月6日：
+<img src="https://p.sda1.dev/6/4e75b44492de19f665524471d7217a49/下载.jpeg" referrerpolicy="no-referrer">
+
