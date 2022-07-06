@@ -4211,3 +4211,27 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 一直都是綁學妹的衣服也是麻煩，終於等到技1能強化，只是紅卡加強???3色加強也好吧...而且叫學妹做紅卡打手，也已經錯配吧，除非被動技加強NP率吧
 
+
+
+*****
+
+####  alucardcz  
+##### 88871#       发表于 2022-7-6 17:04
+
+就开了个北斋up？ 也没强化。什么意思
+
+*****
+
+####  alucardcz  
+##### 88872#       发表于 2022-7-6 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼 一扩下载7g？？？？
+
+*****
+
+####  exiaexa  
+##### 88873#       发表于 2022-7-6 17:09
+
+哪怕开个强化本都算他努力过了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
