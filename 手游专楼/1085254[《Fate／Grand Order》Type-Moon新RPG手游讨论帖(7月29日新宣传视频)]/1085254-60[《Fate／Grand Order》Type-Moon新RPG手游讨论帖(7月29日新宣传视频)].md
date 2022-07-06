@@ -4121,3 +4121,17 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 翻页
 
+
+
+*****
+
+####  exiaexa  
+##### 88864#       发表于 2022-7-6 11:30
+
+其实FGO有个不太好的地方就是失败了不返ap，所以导致打主线成本变高了
+
+不知道是技术不行还是刻意这么干，然后就是主线助战真的弱智
+
+到底是谁拍板主线要上难度的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
