@@ -14321,3 +14321,16 @@ b博
 
 今天下的早啊
 
+
+
+*****
+
+####  往世雷书  
+##### 11892#       发表于 2022-7-7 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56548741&amp;ptid=2018830" target="_blank">rubinliu 发表于 2022-7-6 18:07</a>
+唉，不知不觉4年过去了，从18岁的小麻变成如今22岁的老咩了</blockquote>
+不是17到21吗，怎么多了一年
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
