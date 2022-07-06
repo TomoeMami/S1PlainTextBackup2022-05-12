@@ -4412,3 +4412,41 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 只能说明你还不是真正的萌新
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于真正的大佬都是5宝的哪有什么1宝 例如某位无课限定5星5宝的（
 
+
+
+*****
+
+####  areklose  
+##### 88891#       发表于 2022-7-6 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56550310&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-6 20:19</a>
+
+醒醒 只能说明你还不是真正的萌新
+
+至于真正的大佬都是5宝的哪有什么1宝 例如某位无课限定5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">你说的是王姐吗
+
+*****
+
+####  alucardcz  
+##### 88892#       发表于 2022-7-6 20:31
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 88893#       发表于 2022-7-6 20:31
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 88894#       发表于 2022-7-6 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56550398&amp;ptid=1085254" target="_blank">areklose 发表于 2022-7-6 20:26</a>
+
+你说的是王姐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">懂的都懂
+
