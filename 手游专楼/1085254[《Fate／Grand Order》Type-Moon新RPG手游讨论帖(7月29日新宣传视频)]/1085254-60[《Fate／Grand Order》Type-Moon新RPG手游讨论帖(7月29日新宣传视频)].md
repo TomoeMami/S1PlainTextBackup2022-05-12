@@ -4179,3 +4179,19 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 明明这时候你给神祖上一堆buff来强打宙斯也没啥影响，玩家体验上只会更爽，只能说型月就好这口吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88868#       发表于 2022-7-6 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实 我本来以为那关应该是神祖能随便爽爆好骗人抽卡 结果就一个开场解除对面那堆BUFF的碍事工具人
+
+*****
+
+####  sosgame67  
+##### 88869#       发表于 2022-7-6 12:27
+
+只能说樱井的剧情助战设定脑子都有点问题，153的武藏单挑变成第一时间换人踢走，252茄子加了一堆buff没法主动送还是要绑死换人服（但是boss强度反而几何级上升，那年头还没c呆呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
