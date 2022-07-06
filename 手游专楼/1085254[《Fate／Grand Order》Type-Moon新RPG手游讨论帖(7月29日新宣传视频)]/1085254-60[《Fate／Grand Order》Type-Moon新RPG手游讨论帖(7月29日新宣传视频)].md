@@ -4235,3 +4235,22 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 哪怕开个强化本都算他努力过了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 88874#       发表于 2022-7-6 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56547868&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-6 17:09</a>
+
+哪怕开个强化本都算他努力过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他还是努力过了 至少把我的缓存全清了  直接重下7g
+
+*****
+
+####  angelooo  
+##### 88875#       发表于 2022-7-6 17:19
+
+说明官方已经放弃北斋了，也别强化了，不如重做一张卡算了22333
+
