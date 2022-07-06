@@ -4481,3 +4481,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 高难把仓管二宝北斋拉出来打了一把，手感还行，但是没强化单卡池这个操作是真心迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 88897#       发表于 2022-7-7 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗示省钱等周年
+
