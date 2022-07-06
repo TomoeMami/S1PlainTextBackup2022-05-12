@@ -4313,3 +4313,22 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好久没有院院了 怎么伤害那么高。  宝具居然能50万一个人。。。。。。。。低难轻松3t
 
+
+
+*****
+
+####  qixinno2  
+##### 88882#       发表于 2022-7-6 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56549062&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-6 18:31</a>
+
+好久没有院院了 怎么伤害那么高。  宝具居然能50万一个人。。。。。。。。低难轻松3t ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">羡慕有杀生院的
+
+*****
+
+####  khxooo  
+##### 88883#       发表于 2022-7-6 19:16
+
+太岁体验本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
