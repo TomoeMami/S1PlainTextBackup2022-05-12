@@ -3145,3 +3145,22 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 由手机上传
 2022-7-6 22:51 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 206#       发表于 2022-7-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56551423&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-6 21:31</a>
+
+剧本早写完了，没有磨的机会了，能咋办嘛</blockquote>
+剧本改不了，画面总可以多磨一磨吧，像一期动画的作画也不是很稳定吧，也有些地方感觉是比较省的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 207#       发表于 2022-7-6 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能做完不错了还打磨画面呢
+
