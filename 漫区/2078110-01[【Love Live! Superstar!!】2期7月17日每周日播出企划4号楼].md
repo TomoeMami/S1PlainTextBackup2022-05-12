@@ -3186,3 +3186,12 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 我觉得现在大概率录音已经完事了，前半也肯定完全做好，没什么可调的了。反正星团二三次元分的挺明显的，不如抱着图一乐的心态<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 210#       发表于 2022-7-7 00:36
+
+反正最差也不会比官方下场代打的兽娘2差，期待值降到最低说不定哪集做得好还能来个惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
