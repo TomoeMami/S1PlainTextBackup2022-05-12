@@ -2990,3 +2990,27 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 **,745　Pile　Girls Trip in Hawaii (16/01/27)
 * (1187部以下) 　鬼頭明里　Lumiere (21/12/08)
 
+
+
+*****
+
+####  lj205  
+##### 195#       发表于 2022-7-6 14:45
+
+鲤鱼演唱会蓝光初动1119，不算FC销量，还不错
+
+*****
+
+####  saya1892  
+##### 196#       发表于 2022-7-6 14:50
+
+这算店家私货吗
+
+<img src="https://img.saraba1st.com/forum/202207/06/145015e0l0w1cqjjlr21ll.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (108.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-6 14:50 上传
+
