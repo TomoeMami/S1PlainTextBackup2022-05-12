@@ -4135,3 +4135,14 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 到底是谁拍板主线要上难度的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acuman  
+##### 88865#       发表于 2022-7-6 11:39
+
+老咸鱼、老白嫖体力根本不值钱，仓库里一堆堆的苹果
+
+新玩家、养一堆120的非常缺
+
