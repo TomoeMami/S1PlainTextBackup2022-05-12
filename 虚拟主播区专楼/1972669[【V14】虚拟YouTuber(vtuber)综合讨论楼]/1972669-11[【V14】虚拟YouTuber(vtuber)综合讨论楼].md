@@ -8460,3 +8460,23 @@ Enna：我们俩都是加拿大人，所以中文其实不是很好<img src="htt
 7月6日：
 <img src="https://p.sda1.dev/6/4e75b44492de19f665524471d7217a49/下载.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 15794#       发表于 2022-7-6 11:15
+
+ 本帖最后由 越动天下 于 2022-7-6 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56541710&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-7-6 09:55</a>
+我觉得还是因为国内因素的原因，这两位在CN最近人气也越来越高。
+
+假设用EN男浓度简单代一下CN浓度（
+
+以相 ...</blockquote>
+<img src="https://p.sda1.dev/6/10a7f581953471254f18a7ab7fb30676/CMP_20220706111801440.jpg" referrerpolicy="no-referrer">这个是reimu的6月那次 也是差不多的 和这次selen很多的en男来源基本差不多 而且你看selen上一次的来自嗯男也不少（前排8个也是5个嗯男） 而且相同时间基本其他的直播都没有这样嗯男很多 所以我不认为是整体的变化（当然我不否认在中国越来越有人气）更多是学中文的一个特色罢了 而这个特色在晚上的时间就更体现了
+
+syl在和中国大部分的任何粉丝讨论数据 基本都是在云 说的一些我根本听不懂的话<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
