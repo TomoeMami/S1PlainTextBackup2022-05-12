@@ -4332,3 +4332,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 太岁体验本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88884#       发表于 2022-7-6 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我用源大炮打的 只能说没宝具本的一宝伤害太水了 不然能3T的 懒得费劲直接令咒复活轰过去了
+
