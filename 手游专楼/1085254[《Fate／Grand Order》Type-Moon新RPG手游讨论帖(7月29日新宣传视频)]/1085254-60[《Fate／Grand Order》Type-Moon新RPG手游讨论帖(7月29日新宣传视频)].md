@@ -4380,3 +4380,35 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点了 羡慕有杀生院的
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88888#       发表于 2022-7-6 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56549975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-6 19:47</a>
+
+羡慕new
+
+https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大佬太强了，总能掏出真萌新掏不出的角色
+
+*****
+
+####  acuman  
+##### 88889#       发表于 2022-7-6 20:18
+
+爱酱都能给三个结晶，你是个锤子的萌新<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88890#       发表于 2022-7-6 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56550266&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-6 20:14</a>
+
+大佬太强了，总能掏出真萌新掏不出的角色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 只能说明你还不是真正的萌新
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于真正的大佬都是5宝的哪有什么1宝 例如某位无课限定5星5宝的（
+
