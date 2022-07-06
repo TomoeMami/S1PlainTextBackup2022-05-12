@@ -3014,3 +3014,15 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 2022-7-6 14:50 上传
 
+
+
+*****
+
+####  lj205  
+##### 197#       发表于 2022-7-6 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56545909&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-7-6 14:50</a>
+
+这算店家私货吗</blockquote>
+群众喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
