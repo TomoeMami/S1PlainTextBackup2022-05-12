@@ -3164,3 +3164,16 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能做完不错了还打磨画面呢
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 208#       发表于 2022-7-6 23:33
+
+ 本帖最后由 aoaoaodedede 于 2022-7-6 23:35 编辑 
+
+这不是降低要求了吗，这动画总共才几个方面，要是剧情，作画都不亮眼，总不会全指望音乐了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过多的不说，要是星二期动画能整一个Eutopia那种水平的插曲出来那也还算可以了。
+
