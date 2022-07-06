@@ -8426,3 +8426,13 @@ Enna：我们俩都是加拿大人，所以中文其实不是很好<img src="htt
 
 在阿B的一个6月sc排行榜视频下面，看到有杏奴（冠军粉？）在用蝗和润姨巅峰时候的sc来踩莎乐美的，还说什么同接高但是sc低说明同接水分大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 15792#       发表于 2022-7-6 09:50
+
+现在sc第一看趋势不是虹en男嘛？今年上半年就没落下过前五。
+只能说历史总是惊人的相似<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
