@@ -4195,3 +4195,19 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 只能说樱井的剧情助战设定脑子都有点问题，153的武藏单挑变成第一时间换人踢走，252茄子加了一堆buff没法主动送还是要绑死换人服（但是boss强度反而几何级上升，那年头还没c呆呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 88870#       发表于 2022-7-6 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56543992&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-7-6 12:27</a>
+
+只能说樱井的剧情助战设定脑子都有点问题，153的武藏单挑变成第一时间换人踢走，252茄子加了一堆buff没法主 ...</blockquote>
+再之前最終戰時開場綁了學妹和老福也是搞事吧，雖然學妹配了4星加防禮裝某程度反而能更穩...
+
+對A組隊長時前3人都是考慮如何去送死的，但前提學妹是自帶一次根性
+
+一直都是綁學妹的衣服也是麻煩，終於等到技1能強化，只是紅卡加強???3色加強也好吧...而且叫學妹做紅卡打手，也已經錯配吧，除非被動技加強NP率吧
+
