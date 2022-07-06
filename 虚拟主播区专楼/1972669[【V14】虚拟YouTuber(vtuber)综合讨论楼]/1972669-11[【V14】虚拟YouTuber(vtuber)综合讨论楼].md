@@ -8410,3 +8410,19 @@ Enna：我们俩都是加拿大人，所以中文其实不是很好<img src="htt
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CielChloe  
+##### 15790#       发表于 2022-7-6 09:30
+
+冷知识，全球粤语人口上亿，和日语人口是一个数量级的
+
+*****
+
+####  两仪式29  
+##### 15791#       发表于 2022-7-6 09:35
+
+在阿B的一个6月sc排行榜视频下面，看到有杏奴（冠军粉？）在用蝗和润姨巅峰时候的sc来踩莎乐美的，还说什么同接高但是sc低说明同接水分大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
