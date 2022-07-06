@@ -4263,3 +4263,25 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥玩意 进去更新100多结果就一个北斋池子和活动低难本
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88877#       发表于 2022-7-6 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56548159&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-6 17:29</a>
+
+啥玩意 进去更新100多结果就一个北斋池子和活动低难本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你再看看一括
+
+*****
+
+####  qixinno2  
+##### 88878#       发表于 2022-7-6 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56548206&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-6 17:32</a>
+
+你再看看一括</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">干嘛用的
+
