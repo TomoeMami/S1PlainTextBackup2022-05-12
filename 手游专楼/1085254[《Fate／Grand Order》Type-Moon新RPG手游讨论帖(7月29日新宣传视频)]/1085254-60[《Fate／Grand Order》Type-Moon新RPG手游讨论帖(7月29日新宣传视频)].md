@@ -4304,3 +4304,12 @@ oh，CV是blazblue里的tager，我最爱用的角色……</blockquote>
 我一括要下10个G</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大也就比我多2。5g
 
+
+
+*****
+
+####  alucardcz  
+##### 88881#       发表于 2022-7-6 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好久没有院院了 怎么伤害那么高。  宝具居然能50万一个人。。。。。。。。低难轻松3t
+
