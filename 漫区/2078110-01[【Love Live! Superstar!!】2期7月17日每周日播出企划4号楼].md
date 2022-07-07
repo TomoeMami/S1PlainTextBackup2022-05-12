@@ -3195,3 +3195,12 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 反正最差也不会比官方下场代打的兽娘2差，期待值降到最低说不定哪集做得好还能来个惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 211#       发表于 2022-7-7 09:02
+
+我没别的要求 只要两集可可个人回不过分吧
+
