@@ -8658,3 +8658,23 @@ syl在和中国大部分的任何粉丝讨论数据 基本都是在云 说的一
 
 我又要来说些难听的了，阿菜是脱离苦海，狼性的虹社运营就不觉得是甩掉包袱？论商业价值，童田是很鸡肋的，如果不是rd大概不会到22年才毕业。“大家都有光明的未来”
 
+
+
+*****
+
+####  winda  
+##### 15812#       发表于 2022-7-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56566620&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-7-8 00:25</a>
+我又要来说些难听的了，阿菜是脱离苦海，狼性的虹社运营就不觉得是甩掉包袱？论商业价值，童田是很鸡肋的， ...</blockquote>
+办了两期live就被打断腿的rd:我一专守国门仅次于拼盘专的时候怎么不见这么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 15813#       发表于 2022-7-8 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56566656&amp;ptid=1972669" target="_blank">winda 发表于 2022-7-8 00:30</a>
+办了两期live就被打断腿的rd:我一专守国门仅次于拼盘专的时候怎么不见这么说 ...</blockquote>
+所以说是rd的原因，可rd的销量又不能全算阿菜的功劳吧，而且专辑这东西我真不觉的有多赚
+
