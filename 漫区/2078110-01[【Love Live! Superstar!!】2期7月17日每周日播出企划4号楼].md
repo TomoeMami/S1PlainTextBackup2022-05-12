@@ -3255,3 +3255,20 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 就花田这神经刀，言多必失阿，两集岂不是全败完了？更别说必定是追机这种对人物没啥好处的无聊桥段。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 217#       发表于 2022-7-7 09:52
+
+盲猜333分组:
+
+可堇夏
+
+香恋希
+
+千芽四季
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">主要是通过配色来分的
+
