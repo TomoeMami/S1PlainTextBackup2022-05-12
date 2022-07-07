@@ -3376,3 +3376,12 @@ TOP人气角色组一个队里
 
 靠，玛莎怎么把我box和特典拆成两个订单号了…因为a-on是个亚克力板的关系吗，那个被拆出来的特典还无法申请喵急便…
 
+
+
+*****
+
+####  老1.5  
+##### 228#       发表于 2022-7-7 18:50
+
+星动画就当图一乐得了，没有不敬，主要三次元确实香喷喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
