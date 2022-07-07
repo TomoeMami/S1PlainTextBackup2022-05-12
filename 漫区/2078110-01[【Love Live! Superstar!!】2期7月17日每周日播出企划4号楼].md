@@ -3469,3 +3469,21 @@ TOP人气角色组一个队里
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常吧  虽然屌用没有但五厕的串比另外四个加起来都多
 
+
+
+*****
+
+####  iuhehc  
+##### 237#       发表于 2022-7-7 22:55
+
+看打铁大叔的购买力的时候
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adw667  
+##### 238#       发表于 2022-7-7 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">大概就是猫和老鼠新版和旧版画风的区别
+
