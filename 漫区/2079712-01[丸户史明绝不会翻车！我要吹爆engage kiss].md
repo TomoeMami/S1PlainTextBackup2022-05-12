@@ -632,3 +632,14 @@ jzgg+a1+游戏改代表着什么不用我多说了吧<img src="https://static.sa
 
 就你丸户哥哥还能暴鲨别人呢？还是个手游宣传片<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_2  
+##### 68#       发表于 2022-7-7 19:34
+
+<blockquote>MONSTERS 发表于 2022-7-7 13:50
+这两部你们毒奶得这么激动，反观这季原创三（？）巨头里剩下那个天冲人偶完全没人看好的样子啊 ...</blockquote>
+只看第一集比较无聊，也没太多好唠的
+
