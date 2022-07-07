@@ -3299,3 +3299,27 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 五四分之后主要是老歌还能继续唱，也不用作更大范围的改编
 
+
+
+*****
+
+####  player3960  
+##### 221#       发表于 2022-7-7 10:03
+
+让我选肯定是5+4，不过不大可能。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+所以我猜：鱼 non nako，
+
+         青山 kuma yabu，
+
+          打铁 pay 彩
+
+个人按声线分的，新人唱歌啥样还不知道，纯靠平时说话推测的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 222#       发表于 2022-7-7 10:04
+
+哪怕不是分成54老歌也能唱啊，想啥呢。
+
