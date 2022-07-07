@@ -592,3 +592,12 @@ a1搞这个还真不如日升jpg
 只要开头存在土鳖怪兽和小怪基本都不会好到哪里去
 —— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CamphorLife  
+##### 64#       发表于 2022-7-7 15:13
+
+jzgg+a1+游戏改代表着什么不用我多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
