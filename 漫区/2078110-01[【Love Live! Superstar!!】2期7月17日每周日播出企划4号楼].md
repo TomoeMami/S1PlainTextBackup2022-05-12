@@ -3385,3 +3385,12 @@ TOP人气角色组一个队里
 
 星动画就当图一乐得了，没有不敬，主要三次元确实香喷喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  漫漫来  
+##### 229#       发表于 2022-7-7 19:28
+
+可可不可能跟香音一个组的，跟堇或者恋的概率更大
+

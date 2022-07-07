@@ -623,3 +623,12 @@ jzgg+a1+游戏改代表着什么不用我多说了吧<img src="https://static.sa
 都是a1的拿出来对比不是很正常，倒是宿命回响和这个也完全不是一个类型的，就是有人往上拐 ...</blockquote>
 对比宿命主要是后半段手游环节挺像 还有说网管的  不过网管毕竟是老番了
 
+
+
+*****
+
+####  leommoo  
+##### 67#       发表于 2022-7-7 19:25
+
+就你丸户哥哥还能暴鲨别人呢？还是个手游宣传片<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
