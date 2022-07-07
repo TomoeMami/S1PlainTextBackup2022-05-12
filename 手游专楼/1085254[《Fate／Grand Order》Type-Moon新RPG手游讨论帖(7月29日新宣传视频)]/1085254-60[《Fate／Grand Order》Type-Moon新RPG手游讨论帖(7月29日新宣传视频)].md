@@ -4510,3 +4510,15 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼就我一个人礼装没出了吗
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88900#       发表于 2022-7-7 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56561293&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-7 16:45</a>
+
+你楼就我一个人礼装没出了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对的，我都掉了两张了
+
