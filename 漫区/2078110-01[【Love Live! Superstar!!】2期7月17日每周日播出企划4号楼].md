@@ -3436,3 +3436,16 @@ TOP人气角色组一个队里
 
 2022-7-7 21:25 上传
 
+
+
+*****
+
+####  愛さ実  
+##### 234#       发表于 2022-7-7 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56564732&amp;ptid=2078110" target="_blank">离心 发表于 2022-7-7 21:25</a>
+新商品图？感觉这人设好看一点了</blockquote>
+幼一点了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
