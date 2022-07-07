@@ -711,3 +711,38 @@ ED视频已经流出了？哪里可以看？
 我觉得这片除了作画和女性角色人设好，其他地方都非常难看剧情尬出天际，男主恶心度爆表…愣是没想 ...</blockquote>
 其实老实说作画的精致感我是感觉不如隔壁的，这片真正的看点还是看官方能不能整活，否则男主吃软饭厚脸皮性格和后宫设定下来就没啥悬念性了
 
+
+
+*****
+
+####  三月的老虎  
+##### 75#         楼主| 发表于 2022-7-7 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56552401&amp;ptid=2079712" target="_blank">nerugigannte 发表于 2022-7-6 22:45</a>
+
+这部也不够媚啊，大部分全tm花动作戏上了，球球软色情上下点功夫好吗。现在的动画都怎么了？xx魔女第一集连 ...</blockquote>
+后面打到一半就开始超瑟琴地kiss，然后就是女人为男主打架
+
+“真的是 到处都有狐狸精在勾引人耶”
+
+这还不算媚宅吗？又不是说非得卖肉才算媚宅
+
+*****
+
+####  Harlaus  
+##### 76#       发表于 2022-7-7 21:23
+
+开局整烂活挺好，就怕男主扮猪吃老虎回归俗套，四五集后没热度，完结毫无波澜，最后避雷专楼里没人投票<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三月的老虎  
+##### 77#         楼主| 发表于 2022-7-7 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56564717&amp;ptid=2079712" target="_blank">Harlaus 发表于 2022-7-7 21:23</a>
+
+开局整烂活挺好，就怕男主扮猪吃老虎回归俗套，四五集后没热度，完结毫无波澜，最后避雷专楼里没人投票[f:0 ...</blockquote>
++1 不怕恶评如潮，只怕无人问津
+
+不过扮猪吃老虎的情节还是会有的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
