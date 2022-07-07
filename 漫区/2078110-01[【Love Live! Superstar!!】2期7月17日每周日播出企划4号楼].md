@@ -3487,3 +3487,12 @@ TOP人气角色组一个队里
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">大概就是猫和老鼠新版和旧版画风的区别
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 239#       发表于 2022-7-7 23:17
+
+看了开箱和making视频之后突然想买一巡的bdbox了，有靠谱某宝店么，还是说老样子走日亚？屈指一算有三年没在日亚上买过东西了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
