@@ -816,3 +816,17 @@ ED视频已经流出了？哪里可以看？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  xiangcaihtr  
+##### 83#       发表于 2022-7-8 00:53
+
+ 本帖最后由 xiangcaihtr 于 2022-7-8 00:59 编辑 
+
+这里大概没人看过丸户给氪元素写的女性向动画脚本吧，那部也是全方面无聊得要死，整个企划也是悄无声息地就没声音了
+比起这部甚至还没有露骨的媚（女）宅成分
+
+只能说丸户写tv动画还不如麻枝准呢，麻枝准至少会戏里戏外一起给大家表演猴戏不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
