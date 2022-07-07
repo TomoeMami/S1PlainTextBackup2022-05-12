@@ -3394,3 +3394,12 @@ TOP人气角色组一个队里
 
 可可不可能跟香音一个组的，跟堇或者恋的概率更大
 
+
+
+*****
+
+####  ViyViy  
+##### 230#       发表于 2022-7-7 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">让可可当红蓝的灯泡，坐大牢
+
