@@ -667,3 +667,26 @@ ED 男主顯示平時會打小鋼珠 輸光前
 
 最後男主左右各勾著一個人
 
+
+
+*****
+
+####  魔皇崩裂拳  
+##### 71#       发表于 2022-7-7 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56564022&amp;ptid=2079712" target="_blank">10th_Mystery 发表于 2022-7-7 20:11</a>
+
+金毛登場 女二乳搖
+
+ED 男主顯示平時會打小鋼珠 輸光前
+
+女一女二日常爭男主</blockquote>
+ED视频已经流出了？哪里可以看？
+
+*****
+
+####  二月十日  
+##### 72#       发表于 2022-7-7 20:26
+
+我觉得这片除了作画和女性角色人设好，其他地方都非常难看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
