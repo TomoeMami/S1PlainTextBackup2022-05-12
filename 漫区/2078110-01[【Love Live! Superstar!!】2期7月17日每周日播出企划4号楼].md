@@ -3323,3 +3323,16 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 哪怕不是分成54老歌也能唱啊，想啥呢。
 
+
+
+*****
+
+####  iuhehc  
+##### 223#       发表于 2022-7-7 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56555557&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-7-7 10:04</a>
+哪怕不是分成54老歌也能唱啊，想啥呢。</blockquote>
+看到tututu那种了没，没准老歌会让9个人一起唱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
