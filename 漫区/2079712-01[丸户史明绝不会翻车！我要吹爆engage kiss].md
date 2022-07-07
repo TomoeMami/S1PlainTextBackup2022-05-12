@@ -779,3 +779,17 @@ ED视频已经流出了？哪里可以看？
 
 感觉制作组就像是照着教科书在讲故事，应该不太会大崩的。。。不过只看第一集也看不出什么就是了
 
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 80#       发表于 2022-7-7 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56564717&amp;ptid=2079712" target="_blank">Harlaus 发表于 2022-7-7 21:23</a>
+开局整烂活挺好，就怕男主扮猪吃老虎回归俗套，四五集后没热度，完结毫无波澜，最后避雷专楼里没人投票[f:0 ...</blockquote>
+这么渣的设定没点实力平衡反而影响观感了。
+又渣又没实力，这套20年前也不流行吧。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
