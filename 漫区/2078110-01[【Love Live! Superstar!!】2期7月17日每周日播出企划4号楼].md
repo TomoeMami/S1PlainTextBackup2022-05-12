@@ -3272,3 +3272,30 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">主要是通过配色来分的
 
+
+
+*****
+
+####  iuhehc  
+##### 218#       发表于 2022-7-7 09:57
+
+能不能直接分成老五新四
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 219#       发表于 2022-7-7 09:59
+
+鲤鱼姐不是给你介绍了kukanon嘛w，可香希挺好的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a92063256  
+##### 220#       发表于 2022-7-7 09:59
+
+五四分之后主要是老歌还能继续唱，也不用作更大范围的改编
+
