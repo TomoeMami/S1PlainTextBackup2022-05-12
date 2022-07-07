@@ -3213,3 +3213,36 @@ nagi这个爱国浓度的确不要在探讨下去了为好
 
 对二期没有啥想法呢，赶紧跳到10月份开3rd吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 213#       发表于 2022-7-7 09:25
+
+个人感觉，星2剧本好起来的可能性小于星3虹3出联合tv版，混团互动。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 214#       发表于 2022-7-7 09:27
+
+日常排恋
+<img src="https://p.sda1.dev/6/524d5c22cc7de9bf7c66eeb6210b4214/CMP_20220707092714834.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 215#       发表于 2022-7-7 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56555142&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-7 09:25</a>
+
+个人感觉，星2剧本好起来的可能性小于星3虹3出联合tv版，混团互动。
+
+—— 来自 Xiaomi 2106118C, Android  ...</blockquote>
+别了吧，可不敢拖前辈团的后腿，特别是虹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
