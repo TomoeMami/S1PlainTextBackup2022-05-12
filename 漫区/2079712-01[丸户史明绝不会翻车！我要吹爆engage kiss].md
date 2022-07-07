@@ -763,3 +763,19 @@ ED视频已经流出了？哪里可以看？
 这还不 ...</blockquote>
 可问题恰恰是它是在卖肉，但卖得不够精彩
 
+
+
+*****
+
+####  三月的老虎  
+##### 79#         楼主| 发表于 2022-7-7 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56552398&amp;ptid=2079712" target="_blank">LRS2376852435 发表于 2022-7-6 22:45</a>
+
+虽然A1这季俩原创都不看好，但我还是希望丸户这部能反杀隔壁石蒜</blockquote>
+这么多楼下来了居然都没人意识到我写的剧情编排那段暗指的就是石蒜<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+不过我倒是觉得石蒜到完结都会很四平八稳就是了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+感觉制作组就像是照着教科书在讲故事，应该不太会大崩的。。。不过只看第一集也看不出什么就是了
+
