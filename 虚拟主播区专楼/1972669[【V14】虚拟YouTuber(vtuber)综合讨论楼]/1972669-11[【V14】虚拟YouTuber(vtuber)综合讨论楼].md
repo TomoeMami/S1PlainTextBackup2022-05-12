@@ -8631,3 +8631,19 @@ syl在和中国大部分的任何粉丝讨论数据 基本都是在云 说的一
 
 让我想起我在j+推的sexy zone……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 15809#       发表于 2022-7-7 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">童田明治属于是20年死了，到22年才埋，恭喜阿菜脱离苦海
+
+*****
+
+####  rzrbtk  
+##### 15810#       发表于 2022-7-7 23:24
+
+阿菜直播没看懂！感觉信息浓度跟童田回归差不多（也就是约等于无）
+
