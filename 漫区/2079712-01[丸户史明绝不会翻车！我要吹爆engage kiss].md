@@ -601,3 +601,25 @@ a1搞这个还真不如日升jpg
 
 jzgg+a1+游戏改代表着什么不用我多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woaiakiha  
+##### 65#       发表于 2022-7-7 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56552401&amp;ptid=2079712" target="_blank">nerugigannte 发表于 2022-7-6 22:45</a>
+
+这部也不够媚啊，大部分全tm花动作戏上了，球球软色情上下点功夫好吗。现在的动画都怎么了？xx魔女第一集连 ...</blockquote>
+第一集后半段标准手游广告环节<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaiakiha  
+##### 66#       发表于 2022-7-7 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56555673&amp;ptid=2079712" target="_blank">nerugigannte 发表于 2022-7-7 10:14</a>
+
+都是a1的拿出来对比不是很正常，倒是宿命回响和这个也完全不是一个类型的，就是有人往上拐 ...</blockquote>
+对比宿命主要是后半段手游环节挺像 还有说网管的  不过网管毕竟是老番了
+
