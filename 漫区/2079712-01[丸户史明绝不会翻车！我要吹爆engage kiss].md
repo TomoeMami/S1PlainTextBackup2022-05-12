@@ -793,3 +793,15 @@ ED视频已经流出了？哪里可以看？
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  支仓爱理  
+##### 81#       发表于 2022-7-7 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56558686&amp;ptid=2079712" target="_blank">MONSTERS 发表于 2022-7-7 13:50</a>
+
+这两部你们毒奶得这么激动，反观这季原创三（？）巨头里剩下那个天冲人偶完全没人看好的样子啊 ...</blockquote>
+因为第一集太无聊了吧 
+
