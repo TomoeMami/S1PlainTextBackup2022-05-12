@@ -8849,3 +8849,14 @@ S1卡得外野都进不去了
 
 就知道有人要搬西西那个过来。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15829#       发表于 2022-7-8 14:58
+
+enkr终于开始搞虚拟演员，而正合适的某半pro演员的家伙马上就要离开了…我好恨<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+虽然以enkr的架势很可能后续要加入见面会和角色曲之类的东西所以黑客很有可能本来也不会参加就是了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
