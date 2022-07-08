@@ -8894,3 +8894,31 @@ hachi最近同届好高啊 个人势普通歌会5000 在个人势里已经是翘
 
 但是在我印象里hachi最有热度的时候歌回同接是有好几次上万的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  carroy  
+##### 15834#       发表于 2022-7-8 23:00
+
+莎小姐这个绝体绝命都市（全部俺）
+效果音还整的挺好的
+虽然有时候人物说话和主播吐槽声音混一起了（
+
+怎么还有新声线
+这个正太音好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小鸟游泉  
+##### 15835#       发表于 2022-7-8 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56579000&amp;ptid=1972669" target="_blank">carroy 发表于 2022-7-8 23:00</a>
+
+莎小姐这个绝体绝命都市（全部俺）
+
+效果音还整的挺好的
+
+虽然有时候人物说话和主播吐槽声音混一起了（</blockquote>
+后半段注意力完全被“游戏音”夺走了…她这声音，感觉声优说越来越有真实性了，正太音和坏警察的配音都非常新鲜
+
