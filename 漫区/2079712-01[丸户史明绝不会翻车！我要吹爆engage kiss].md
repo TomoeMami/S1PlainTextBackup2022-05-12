@@ -830,3 +830,17 @@ ED视频已经流出了？哪里可以看？
 
 只能说丸户写tv动画还不如麻枝准呢，麻枝准至少会戏里戏外一起给大家表演猴戏不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yuruki  
+##### 84#       发表于 2022-7-8 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56565570&amp;ptid=2079712" target="_blank">三月的老虎 发表于 2022-7-7 22:41</a>
+这么多楼下来了居然都没人意识到我写的剧情编排那段暗指的就是石蒜
+
+不过我倒是觉得石蒜到完结都会 ...</blockquote>
+注意到了啊，而且外面直接吐槽百合样板戏，改图玩得飞起，你这力度不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过立场我是非常支持的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
