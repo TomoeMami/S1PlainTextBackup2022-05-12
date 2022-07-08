@@ -856,3 +856,26 @@ ED视频已经流出了？哪里可以看？
 这里大概没人看过丸户给氪元素写的女性向动画脚本吧，那部也是全方面无聊得要死，整个企划也是悄无声息地就 ...</blockquote>
 麻子先写出教室危机这个还能一步步回收伏笔的作品，再考虑他的tv动画上限有没有比老贼强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  profh2  
+##### 86#       发表于 2022-7-8 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56554581&amp;ptid=2079712" target="_blank">やト 发表于 2022-7-7 08:29</a>
+比烂也烂不过国家队啊</blockquote>
+这话不要说早了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三月的老虎  
+##### 87#         楼主| 发表于 2022-7-8 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56566822&amp;ptid=2079712" target="_blank">xiangcaihtr 发表于 2022-7-8 00:53</a>
+
+这里大概没人看过丸户给氪元素写的女性向动画脚本吧，那部也是全方面无聊得要死，整个企划也是悄无声息地就 ...</blockquote>
+麻子就别比了，我记得教室危机跟夏洛特是同一时间段播出的吧，教室危机进入主线后观感一路飙升，反观夏洛特，孰高孰低一目了然好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+丸户几个动画化拥有的制作资源基本上都是没有麻枝准来得丰厚的，麻子也就是在PA社还能刷刷猴戏，出了PA社怕不是连这都整不了了。
+
