@@ -4576,3 +4576,15 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">发个剪影还以为是什么，结果就这……
 
+
+
+*****
+
+####  khxooo  
+##### 88906#       发表于 2022-7-9 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56578665&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-8 22:25</a>
+
+发个剪影还以为是什么，结果就这……</blockquote>
+为什么要对这些剪影有期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
