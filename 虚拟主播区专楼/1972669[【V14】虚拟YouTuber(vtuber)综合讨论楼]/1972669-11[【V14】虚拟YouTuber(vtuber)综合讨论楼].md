@@ -8761,3 +8761,12 @@ ankr真的是有点倒霉，好不容易憋了个轻小说+漫画的大企划，
 
 ankr真的是有点倒霉，好不容易憋了个轻小说+漫画的大企划，结果碰上这种大事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  マドマコ  
+##### 15821#       发表于 2022-7-8 11:55
+
+ankr真的是有点倒霉，好不容易憋了个轻小说+漫画的大企划，结果碰上这种大事，讨论度低了好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
