@@ -4588,3 +4588,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 发个剪影还以为是什么，结果就这……</blockquote>
 为什么要对这些剪影有期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88907#       发表于 2022-7-9 00:47
+
+第三张了，礼装掉率还可以
+
