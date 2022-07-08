@@ -8745,3 +8745,19 @@ dtto这什么管人痴用algs转播间，边看比赛边聊v最协
 
 这会虹杏至少JP都避风头去了，只有vspo的日本人在播，vspo最强
 
+
+
+*****
+
+####  マドマコ  
+##### 15819#       发表于 2022-7-8 11:51
+
+ankr真的是有点倒霉，好不容易憋了个轻小说+漫画的大企划，结果碰上这种大事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  マドマコ  
+##### 15820#       发表于 2022-7-8 11:51
+
+ankr真的是有点倒霉，好不容易憋了个轻小说+漫画的大企划，结果碰上这种大事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
