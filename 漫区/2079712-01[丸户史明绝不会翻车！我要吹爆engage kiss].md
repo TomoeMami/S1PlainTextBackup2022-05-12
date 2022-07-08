@@ -844,3 +844,15 @@ ED视频已经流出了？哪里可以看？
 注意到了啊，而且外面直接吐槽百合样板戏，改图玩得飞起，你这力度不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 不过立场我是非常支持的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aptx8285144  
+##### 85#       发表于 2022-7-8 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56566822&amp;ptid=2079712" target="_blank">xiangcaihtr 发表于 2022-7-8 00:53</a>
+
+这里大概没人看过丸户给氪元素写的女性向动画脚本吧，那部也是全方面无聊得要死，整个企划也是悄无声息地就 ...</blockquote>
+麻子先写出教室危机这个还能一步步回收伏笔的作品，再考虑他的tv动画上限有没有比老贼强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
