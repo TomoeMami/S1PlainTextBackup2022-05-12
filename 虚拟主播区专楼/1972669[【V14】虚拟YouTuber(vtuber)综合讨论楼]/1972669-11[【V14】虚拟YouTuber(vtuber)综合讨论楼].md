@@ -8878,3 +8878,19 @@ enkr终于开始搞虚拟演员，而正合适的某半pro演员的家伙马上�
 
 hachi最近同届好高啊 个人势普通歌会5000 在个人势里已经是翘楚了 。。也算是一种天道酬勤 
 
+
+
+*****
+
+####  宫宝兔丁  
+##### 15832#       发表于 2022-7-8 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">本厨厨限定复活到vi武田下播
+
+*****
+
+####  渡鸦骑士  
+##### 15833#       发表于 2022-7-8 22:59
+
+但是在我印象里hachi最有热度的时候歌回同接是有好几次上万的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
