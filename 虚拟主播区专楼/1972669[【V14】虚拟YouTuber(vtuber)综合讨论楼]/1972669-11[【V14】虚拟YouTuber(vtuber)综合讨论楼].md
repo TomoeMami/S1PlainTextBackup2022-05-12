@@ -8931,3 +8931,12 @@ hachi最近同届好高啊 个人势普通歌会5000 在个人势里已经是翘
 
 麻醉医昨天晚上开了一小时skeb约稿，没看到，好可惜……
 
+
+
+*****
+
+####  free  
+##### 15837#       发表于 2022-7-9 13:35
+
+hachi不是个人势，背后是reality，作为歌势的资源也不少了，就是liveunion其他几个一直火不起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
