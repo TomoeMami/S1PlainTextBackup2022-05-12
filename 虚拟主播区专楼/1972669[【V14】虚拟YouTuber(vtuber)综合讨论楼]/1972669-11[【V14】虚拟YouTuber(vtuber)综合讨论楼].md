@@ -9487,3 +9487,62 @@ lize努力守住你虹最后一批净土（然后失败），ssk趁机凑齐game
 
 毫不意外，甚至因为要藏声线，比我期望的还要不稳，但不出我意料本身让我很高兴<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烯丝短尾猫  
+##### 15895#       发表于 2022-7-9 22:30
+
+这选曲爱了
+
+*****
+
+####  rzrbtk  
+##### 15896#       发表于 2022-7-9 22:30
+
+合理怀疑没选红莲华只是因为唱不上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，选曲很不给自己留后路啊；
+
+听着很开心就是了，唱不上去的直接开念<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 15897#       发表于 2022-7-9 22:31
+
+只是尾音像说明不了什么，我觉得她各种声音都像一个人，但都还不敢确定呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhawp  
+##### 15898#       发表于 2022-7-9 22:33
+
+这首god knows还真的有点像德比
+
+*****
+
+####  Junchoon  
+##### 15899#       发表于 2022-7-9 22:35
+
+声线逐渐开始维持不住了，不过我觉得她本音肯定也很不错。
+
+*****
+
+####  alcoholic1000  
+##### 15900#       发表于 2022-7-9 22:36
+
+ 本帖最后由 alcoholic1000 于 2022-7-9 22:38 编辑 
+<blockquote>歌声でまじでサロメでび説濃くなってきた</blockquote>
+推上很多人也觉得<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+过10w了，任务完成
+
+
+
+*****
+
+####  qesto  
+##### 15901#       发表于 2022-7-9 22:40
+
+感觉是在努力的维持声线，但是德比的声音已经藏不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
