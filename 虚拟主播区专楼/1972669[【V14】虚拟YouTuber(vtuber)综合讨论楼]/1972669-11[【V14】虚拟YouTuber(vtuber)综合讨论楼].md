@@ -9426,3 +9426,64 @@ lize努力守住你虹最后一批净土（然后失败），ssk趁机凑齐game
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">莎小姐这声线……
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 15888#       发表于 2022-7-9 22:20
+
+一种循环。
+
+8.26原创曲
+
+<img src="https://img.saraba1st.com/forum/202207/09/221945jdzxcbksfy0k85dy.png" referrerpolicy="no-referrer">
+
+<strong>-257ff022a3549f91.png</strong> (120.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-9 22:19 上传
+
+*****
+
+####  Suzutsuki  
+##### 15889#       发表于 2022-7-9 22:21
+
+选曲神！
+
+*****
+
+####  lhawp  
+##### 15890#       发表于 2022-7-9 22:24
+
+她真的好会养
+
+*****
+
+####  心垂万刃  
+##### 15891#       发表于 2022-7-9 22:24
+
+儿歌选手，而且这气息真的是惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 15892#       发表于 2022-7-9 22:26
+
+选曲爱了，虽然刚看完hnn的歌回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克罗夏  
+##### 15893#       发表于 2022-7-9 22:28
+
+你楼还没人提?这唱起来尾音更像德比了啊
+
+*****
+
+####  CielChloe  
+##### 15894#       发表于 2022-7-9 22:28
+
+毫不意外，甚至因为要藏声线，比我期望的还要不稳，但不出我意料本身让我很高兴<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
