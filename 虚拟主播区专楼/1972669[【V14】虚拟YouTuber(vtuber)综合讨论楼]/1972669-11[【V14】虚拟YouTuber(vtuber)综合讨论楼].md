@@ -9335,3 +9335,14 @@ ID是不是在污染卡池啊，en女是不是被挤出去了
 
 不光尤德里克，语部纺，乃至于梦月roa都不在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15880#       发表于 2022-7-9 20:32
+
+ 本帖最后由 Ketestrait 于 2022-7-9 20:33 编辑 
+
+口了去年我记得也不在的，甲子园的事前说明应该都提过参加的是当前处于活动状态并同意授权的主播；今年应该就黛灰情况比较特殊进行了特别说明
+
