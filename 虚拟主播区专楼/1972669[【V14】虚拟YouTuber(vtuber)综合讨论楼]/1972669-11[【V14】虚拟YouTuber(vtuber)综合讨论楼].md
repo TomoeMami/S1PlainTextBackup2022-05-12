@@ -9168,3 +9168,37 @@ en男人气总选举是吧，谁没被选谁尴尬
 
 不知道为啥感觉king私下和小熊猫有交往。感觉到俩人其实来电。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15865#       发表于 2022-7-9 19:20
+
+ 本帖最后由 格林卡罗尔 于 2022-7-9 19:22 编辑 
+
+红乳首要进随机轮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 海外势有点多啊，我记得去年海外势基本是随机出来的
+
+*****
+
+####  Ketestrait  
+##### 15866#       发表于 2022-7-9 19:21
+
+上次最协里有一轮观战最后决赛圈king队时小熊猫那葛葉頑張って喊得可甜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhawp  
+##### 15867#       发表于 2022-7-9 19:26
+
+EN女完全没人选也太真实了
+
+*****
+
+####  Ketestrait  
+##### 15868#       发表于 2022-7-9 19:28
+
+海外女就只有KR小魔王一个进了指名，说明这很平等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
