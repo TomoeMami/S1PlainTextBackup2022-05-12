@@ -9024,3 +9024,39 @@ lize不想玩辣<img src="https://static.saraba1st.com/image/smiley/face2017/066
 
 King还是那个King<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15848#       发表于 2022-7-9 18:41
+
+谢谢你，葛叶；；
+
+*****
+
+####  越动天下  
+##### 15849#       发表于 2022-7-9 18:42
+
+ 本帖最后由 越动天下 于 2022-7-9 18:44 编辑 
+
+抢莎其实还好 我预想是三个抢莎 没想到去抢vox了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 都忘了这个数据人 inui抢在之前想到 还真的想到是第二轮抢
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 15850#       发表于 2022-7-9 18:43
+
+King选女人，必须会唱歌！
+
+*****
+
+####  布莱士·西伯利  
+##### 15851#       发表于 2022-7-9 18:44
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-9 18:48 编辑 
+
+倒是没想到熊猫主要后补是846。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不对，上次是社长早早选846。
+
