@@ -9096,3 +9096,52 @@ king选的有点意外啊，我还想了想ルカ是谁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前想抢光君没抢到，这次终于抢走了。
 
+
+
+*****
+
+####  poipanchao  
+##### 15856#       发表于 2022-7-9 19:01
+
+en是不是有点多，或者说en男
+太温暖了
+
+*****
+
+####  Suny08  
+##### 15857#       发表于 2022-7-9 19:03
+
+大部分虹女都可以认定为嗯妹，平常看的不少
+
+*****
+
+####  Ketestrait  
+##### 15858#       发表于 2022-7-9 19:03
+
+熊猫人在努力表演自己是en的fan girl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15859#       发表于 2022-7-9 19:05
+
+请给en男一点尊重 我觉得二轮没有抢就已经给面子了 syl mysta抢了吗 怎么不抢他
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ketestrait  
+##### 15860#       发表于 2022-7-9 19:08
+
+快了，en男要被抢完了
+
+*****
+
+####  布莱士·西伯利  
+##### 15861#       发表于 2022-7-9 19:08
+
+拉流量吧。看虹甲子园的感觉和平时看en的其实是两批人。
+
+sasa还蛮温暖的，都选gamers。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
