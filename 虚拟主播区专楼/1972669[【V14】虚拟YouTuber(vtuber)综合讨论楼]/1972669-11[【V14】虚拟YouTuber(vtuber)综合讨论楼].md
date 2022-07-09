@@ -9145,3 +9145,26 @@ en是不是有点多，或者说en男
 
 sasa还蛮温暖的，都选gamers。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 15862#       发表于 2022-7-9 19:10
+
+en男人气总选举是吧，谁没被选谁尴尬
+
+*****
+
+####  _Ra1nMaker  
+##### 15863#       发表于 2022-7-9 19:13
+
+看EN男的东南亚女观众们会对甲子园还有这几个女V有兴趣吗
+
+*****
+
+####  布莱士·西伯利  
+##### 15864#       发表于 2022-7-9 19:18
+
+不知道为啥感觉king私下和小熊猫有交往。感觉到俩人其实来电。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
