@@ -9001,3 +9001,26 @@ sakuyui不愧是你们<img src="https://static.saraba1st.com/image/smiley/face20
 
 lize不想玩辣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 15845#       发表于 2022-7-9 18:32
+
+第一轮抢头牌第二轮开始抢熟人，早就说了是这样的
+
+*****
+
+####  qesto  
+##### 15846#       发表于 2022-7-9 18:37
+
+抢莎皇也太数字了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 15847#       发表于 2022-7-9 18:37
+
+King还是那个King<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
