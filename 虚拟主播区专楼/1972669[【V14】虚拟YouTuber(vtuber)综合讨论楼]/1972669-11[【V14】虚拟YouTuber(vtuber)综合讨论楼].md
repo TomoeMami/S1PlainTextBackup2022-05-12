@@ -9060,3 +9060,39 @@ King选女人，必须会唱歌！
 
 倒是没想到熊猫主要后补是846。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不对，上次是社长早早选846。
 
+
+
+*****
+
+####  winda  
+##### 15852#       发表于 2022-7-9 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选莎皇就算了，还把莎皇名字写错，标准数字厨的形象出来了
+
+*****
+
+####  格林卡罗尔  
+##### 15853#       发表于 2022-7-9 18:55
+
+ 本帖最后由 格林卡罗尔 于 2022-7-9 18:58 编辑 
+
+king选的有点意外啊，我还想了想ルカ是谁
+
+リゼ开始被评论栏怀疑コウガール了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15854#       发表于 2022-7-9 18:58
+
+你葵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉根据三次的推特点赞推同接还蛮准的 （虽然一大堆不准的例子）
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  布莱士·西伯利  
+##### 15855#       发表于 2022-7-9 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前想抢光君没抢到，这次终于抢走了。
+
