@@ -9202,3 +9202,65 @@ EN女完全没人选也太真实了
 
 海外女就只有KR小魔王一个进了指名，说明这很平等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15869#       发表于 2022-7-9 19:30
+
+ 本帖最后由 格林卡罗尔 于 2022-7-9 19:33 编辑 
+
+好多第一次见的ID人x
+
+syl king这队的萝莉浓度超标了
+
+*****
+
+####  Ketestrait  
+##### 15870#       发表于 2022-7-9 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56585867&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-7-9 19:18</a>
+
+不知道为啥感觉king私下和小熊猫有交往。感觉到俩人其实来电。
+
+为啥牛姨这人选里要有安洁。</blockquote>
+牛姨安洁也是老相好了啊，当初再加一个爱园三人一起翻唱的爆ru音头，完全符合珠穆朗玛的方针<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 15871#       发表于 2022-7-9 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这加海外组是去年开始的吗  一堆不认识的
+
+*****
+
+####  poipanchao  
+##### 15872#       发表于 2022-7-9 19:37
+
+ 本帖最后由 poipanchao 于 2022-7-9 19:39 编辑 
+
+为什么不是king抽尊妈，有黑幕吧
+ID是不是在污染卡池啊，en女是不是被挤出去了
+
+*****
+
+####  Ketestrait  
+##### 15873#       发表于 2022-7-9 19:38
+
+去年开始海外组就加入了，当时因为OBSYDIA是在选秀大会后才出道，还是追加手动分配给各个学校的
+
+*****
+
+####  布莱士·西伯利  
+##### 15874#       发表于 2022-7-9 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是。
+
+油组还蛮男高的，皇女的组队也讨喜。豆猫不知道为啥没带劳伦。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说尊出来的时候King是不是没说话。
+
