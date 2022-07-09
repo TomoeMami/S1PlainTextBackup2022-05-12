@@ -9669,3 +9669,21 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Ketestrait  
+##### 15916#       发表于 2022-7-9 23:34
+
+初回buff而已，马上就要跌落神坛了，不要太放在心上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小鸟游泉  
+##### 15917#       发表于 2022-7-9 23:38
+
+讨论唱功其实方向偏了，你们看了的扪心自问，这像不像看完了一场推的偶像的live<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+那种感动和满足感不是唱的好坏来决定的，日本那边的讨论里在说的娱乐感才是重点，真的是娱乐的天才<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
