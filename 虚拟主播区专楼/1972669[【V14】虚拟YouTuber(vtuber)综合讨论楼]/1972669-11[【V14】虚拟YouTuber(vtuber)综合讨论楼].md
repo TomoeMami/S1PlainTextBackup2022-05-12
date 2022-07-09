@@ -9346,3 +9346,39 @@ ID是不是在污染卡池啊，en女是不是被挤出去了
 
 口了去年我记得也不在的，甲子园的事前说明应该都提过参加的是当前处于活动状态并同意授权的主播；今年应该就黛灰情况比较特殊进行了特别说明
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15881#       发表于 2022-7-9 21:02
+
+<img src="https://img.saraba1st.com/forum/202207/09/204353o19hkjpdkzwz1dds.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>#にじさんじ甲子園2022.jpeg</strong> (346.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-9 20:43 上传
+
+今年人多只选择征得同意的liver，楼友没认真看
+
+这次选秀有意思的点挺多的，挑印象深刻的记一下：
+
+提到如果期间有新人出道会自由分配（七八月确实该出了）；
+
+さくゆい抢vox，葛叶选luca，抽选环节几个人靠剪影目押，发言也感觉看了不少clip；
+
+豆猫从选人到赌地区都能看出来渴望数字、非常想赢，不知能否借甲子园夺回豆皇称呼；
+
+社长闷声发大财，地区选人都大赢特赢，衬托出轮盘中梦追翔时无语凝噎的节目效果更强烈；
+
+lize努力守住你虹最后一批净土（然后失败），ssk趁机凑齐gamers+机台倒挺意外的
+
+*****
+
+####  rzrbtk  
+##### 15882#       发表于 2022-7-9 21:04
+
+三年连续西西队的郡道美玲，主打一个忠诚<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
