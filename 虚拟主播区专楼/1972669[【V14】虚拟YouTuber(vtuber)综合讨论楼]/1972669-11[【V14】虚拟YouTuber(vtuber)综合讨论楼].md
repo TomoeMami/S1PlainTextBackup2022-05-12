@@ -9687,3 +9687,18 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 
 那种感动和满足感不是唱的好坏来决定的，日本那边的讨论里在说的娱乐感才是重点，真的是娱乐的天才<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 15918#       发表于 2022-7-9 23:55
+
+<img src="https://img.saraba1st.com/forum/202207/09/235459g2kssieywy6mm3lw.png" referrerpolicy="no-referrer">
+
+<strong>みすみのはらわた - 【お誕生会＆重大発表！】はっぴーばーすでー配信！ [XgGWNoJOsiw.png</strong> (122.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-9 23:54 上传
+
