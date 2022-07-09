@@ -9603,3 +9603,32 @@ syl，虽然唱得烂，但是调动观众情绪的能力真是还可以的，�
 
 对于夹子选手唱歌我只想说不夹了再评价<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  midearth  
+##### 15909#       发表于 2022-7-9 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56588665&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-7-9 22:47</a>
+没想到这首演歌尽是今天唱的最好的一首。</blockquote>
+因为可以不用高音吧
+
+*****
+
+####  rzrbtk  
+##### 15910#       发表于 2022-7-9 22:54
+
+莎乐美每次直播最后必会抽一段时间总结直播然后感谢观众陪伴，倒不是说养，就感觉，服务态度？直播反馈？很好，新人这种地方真不错惹，值得珍惜。
+
+syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看中的宅宅友
+
+*****
+
+####  HinataY  
+##### 15911#       发表于 2022-7-9 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56588742&amp;ptid=1972669" target="_blank">midearth 发表于 2022-7-9 22:52</a>
+因为可以不用高音吧</blockquote>
+啊，演歌怎么不需要高音了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">只有我觉得这也是一种养吗？明明天城也hold的住
+
