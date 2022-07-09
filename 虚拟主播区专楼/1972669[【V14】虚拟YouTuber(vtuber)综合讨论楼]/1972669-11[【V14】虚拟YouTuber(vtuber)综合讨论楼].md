@@ -9394,3 +9394,19 @@ lize努力守住你虹最后一批净土（然后失败），ssk趁机凑齐game
 社倒是葛叶，社长，sasa都在抢，还蛮受欢迎的。然后可能有人没注意到，但皇女凑齐了OD组。
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以...尤德里克其实有人去征意见然后没同意？
 
+
+
+*****
+
+####  Suzutsuki  
+##### 15884#       发表于 2022-7-9 22:06
+
+莎乐美唱得像个小学生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  midearth  
+##### 15885#       发表于 2022-7-9 22:08
+
+莎皇唱的有点惨，还是多做low tension吧
+
