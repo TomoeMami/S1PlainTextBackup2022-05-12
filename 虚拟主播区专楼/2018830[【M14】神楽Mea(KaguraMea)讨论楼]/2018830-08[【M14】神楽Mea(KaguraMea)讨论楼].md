@@ -14421,3 +14421,14 @@ b站番剧周四更新的放周三更新了，你觉得为啥？？</blockquote>
 
 只能说叔叔的活动是真的烂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 11900#       发表于 2022-7-9 22:18
+
+到时候可以退款吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

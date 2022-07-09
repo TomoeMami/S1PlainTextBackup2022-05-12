@@ -9410,3 +9410,19 @@ lize努力守住你虹最后一批净土（然后失败），ssk趁机凑齐game
 
 莎皇唱的有点惨，还是多做low tension吧
 
+
+
+*****
+
+####  Junchoon  
+##### 15886#       发表于 2022-7-9 22:14
+
+这声线还唱rap，嗯......
+
+*****
+
+####  carroy  
+##### 15887#       发表于 2022-7-9 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">莎小姐这声线……
+
