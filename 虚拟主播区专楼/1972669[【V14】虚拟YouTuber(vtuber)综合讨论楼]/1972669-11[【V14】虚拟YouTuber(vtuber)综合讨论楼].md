@@ -9743,3 +9743,24 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 说起来很好奇乌贼和azuma有没有看种24…<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 桃桃也说在做3d了，种一马上就全3d了。
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 15923#       发表于 2022-7-10 16:07
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-10 16:10 编辑 
+
+诶...？今晚7点会直播说理由...
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+1.jpg
+(211.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-10 16:07 上传
+
+<img src="https://img.saraba1st.com/forum/202207/10/160734xfeiy0138qlfiiyy.jpg" referrerpolicy="no-referrer">
+
