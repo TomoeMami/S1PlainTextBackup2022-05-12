@@ -4606,3 +4606,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 2.6.5的从者原来全是女性？今天的任务要打女性敌人，2.6.5的从者全是目标<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 88909#       发表于 2022-7-11 02:12
+
+但还有打七阶从者的任务啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
