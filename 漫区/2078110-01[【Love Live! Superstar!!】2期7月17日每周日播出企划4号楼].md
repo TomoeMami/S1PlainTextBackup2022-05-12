@@ -4597,3 +4597,17 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 由手机上传
 2022-7-11 16:40 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 360#       发表于 2022-7-11 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56608600&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-11 16:21</a>
+
+@aoaoaodedede
+
+1019やっぱシャドーハウスおもしれぇわ 我看最新是这个贴，发帖日7.9的啊</blockquote>
+啊这，我看鱼串的更新应该是没太多延迟的
+
