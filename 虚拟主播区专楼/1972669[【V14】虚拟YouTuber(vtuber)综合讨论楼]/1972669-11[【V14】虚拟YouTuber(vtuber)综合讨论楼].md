@@ -10181,3 +10181,14 @@ enkr你可长点心吧……
 
 17日东京本社配信，内容会是啥<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CielChloe  
+##### 15961#       发表于 2022-7-12 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56613422&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-7-12 00:20</a>
+本来是跟马内甲说不参加虹甲的，结果由于“伝達の齟齬”导致主办方以为会参加，那么这问题是出在传达的哪个 ...</blockquote>
+现在这热度，你不想参加也得参加，staff锅背好，为虹甲同接创新高，这是必要的牺牲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
