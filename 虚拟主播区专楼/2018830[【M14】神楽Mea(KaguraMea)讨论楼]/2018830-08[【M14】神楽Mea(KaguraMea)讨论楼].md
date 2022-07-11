@@ -14587,3 +14587,15 @@ b博还行
 
 明天联动？参加洛天依生日活动可能性？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashero  
+##### 11918#       发表于 2022-7-11 22:20
+
+是猫猫 
+ live2d摄像头设定升级了下  流畅度up
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
