@@ -10047,3 +10047,51 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 
 不过野手的能力没数值显示的那么高
 
+
+
+*****
+
+####  alcoholic1000  
+##### 15952#       发表于 2022-7-11 20:15
+
+ 本帖最后由 alcoholic1000 于 2022-7-11 20:18 编辑 
+
+<img src="https://img.saraba1st.com/forum/202207/11/201348u0hk41l7kjz1jn22.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園】王立ヘルエスタ高校2022、始動します！【にじさんじ:リゼ・ヘル.png</strong> (244.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-11 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202207/11/201348lh22nzfe3bpg24ch.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園】王立ヘルエスタ高校2022、始動します！【にじさんじ:リゼ・ヘル.png</strong> (228.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-11 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202207/11/201348drz722mv79e1h2jm.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園】王立ヘルエスタ高校2022、始動します！【にじさんじ:リゼ・ヘル.png</strong> (222.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-11 20:13 上传
+
+皇女在静冈一发抽出这个，算是小瑕不掩瑜
+
+爆笑，lize直接把角色捏好直播调出来用了
+
+*****
+
+####  布莱士·西伯利  
+##### 15953#       发表于 2022-7-11 20:18
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-11 20:19 编辑 
+
+Lize对兔头的模型早有准备。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+加了草完美了。
+
