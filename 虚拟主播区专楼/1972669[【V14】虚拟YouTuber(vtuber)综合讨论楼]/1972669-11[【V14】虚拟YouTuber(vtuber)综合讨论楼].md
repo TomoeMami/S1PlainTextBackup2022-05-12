@@ -9895,3 +9895,29 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 
 就日本现在fps的市场，虹再出20个打枪主播都不会饱和，只能说别急
 
+
+
+*****
+
+####  poipanchao  
+##### 15937#       发表于 2022-7-11 16:02
+
+枪男已经品鉴的太多了
+需要的是枪女！
+今年出的枪女严格意义上就哈弟箱的那个吧
+月奈是复活
+
+*****
+
+####  winda  
+##### 15938#       发表于 2022-7-11 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在一期只有一个还在vta楞播的笨比了，数据好反倒被针对是吧
+
+*****
+
+####  渡鸦骑士  
+##### 15939#       发表于 2022-7-11 16:06
+
+也有可能是最好的压轴……单人出道？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
