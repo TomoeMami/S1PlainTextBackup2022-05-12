@@ -10170,3 +10170,14 @@ Lize对兔头的模型早有准备。<img src="https://static.saraba1st.com/imag
 
 enkr你可长点心吧……
 
+
+
+*****
+
+####  Ketestrait  
+##### 15960#       发表于 2022-7-12 00:20
+
+本来是跟马内甲说不参加虹甲的，结果由于“伝達の齟齬”导致主办方以为会参加，那么这问题是出在传达的哪个环节上呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+17日东京本社配信，内容会是啥<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
