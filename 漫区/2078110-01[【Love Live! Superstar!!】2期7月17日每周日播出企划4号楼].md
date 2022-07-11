@@ -4517,3 +4517,21 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  黑雪姫  
+##### 355#       发表于 2022-7-11 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56606742&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-11 13:58</a>
+
+问问坛友https://nozomi.2ch.sc/lovelive/
+
+之前看拉板因为没梯子推荐我上这个镜像站？当时还正常的，现在进 ...</blockquote>
+2CH在17年就已经改名叫5CH了。
+
+[https://fate.5ch.net/lovelive/](https://fate.5ch.net/lovelive/)
+
+这个才是拉板
+
