@@ -9965,3 +9965,32 @@ syl，vta最近的直播，M男哥数据一骑绝尘啊，不愧是我一眼看�
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gaiadc  
+##### 15944#       发表于 2022-7-11 18:22
+
+豆猫第二抽还不错，不过他没开
+
+*****
+
+####  fastary  
+##### 15945#       发表于 2022-7-11 18:24
+
+ 本帖最后由 fastary 于 2022-7-11 18:26 编辑 
+
+以前我天天抱怨enkr大搞主流偶像忽略就想搞直播的人，黑客毕业以后反而看开了，甚至开始期待新男人唱歌卖腐养gachi一条龙<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+倒是微博事到如今开始喷enkr老是惦记他那男子偶像团体看着有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尤其是还不少人对枪男味逆反到说得出来vta时期皮比较好看，我服的
+
+*****
+
+####  Ketestrait  
+##### 15946#       发表于 2022-7-11 18:26
+
+豆猫，绝体绝命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
