@@ -4505,3 +4505,15 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 今天第一次从首页进了叽喳渣发现键政浓度还挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 大翻译运动有这一半功力早就大成功了
 
+
+
+*****
+
+####  cat1230  
+##### 354#       发表于 2022-7-11 13:58
+
+问问坛友https://nozomi.2ch.sc/lovelive/
+之前看拉板因为没梯子推荐我上这个镜像站？当时还正常的，现在进去怎么最新帖都是几天前的，感觉帖子更新和2ch不同步啊，是我打开方式不对吗？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
