@@ -3505,3 +3505,993 @@ TOP人气角色组一个队里
 
 全在淘宝找的代购，就收到鱼的一专，其它的都没发货。钱付了，东西又没到手，空空的感觉。
 
+
+
+*****
+
+####  saya1892  
+##### 241#       发表于 2022-7-8 16:12
+
+周榜前十了
+
+<img src="https://img.saraba1st.com/forum/202207/08/161232rya9n86vyv9ke9yv.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (317.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 16:12 上传
+
+*****
+
+####  靡宜  
+##### 242#       发表于 2022-7-8 16:15
+
+在榜！
+
+*****
+
+####  lj205  
+##### 243#       发表于 2022-7-8 16:37
+
+卧槽，为什么今天才说？？！还好没事！
+
+<img src="https://img.saraba1st.com/forum/202207/08/163658omne6vx6bhs6hvm5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5EB78E16-4824-4549-A755-E790F04830B0.jpeg</strong> (98.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 16:36 上传
+
+*****
+
+####  cybernetics31  
+##### 244#       发表于 2022-7-8 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎…………
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 245#       发表于 2022-7-8 16:39
+
+没事就好
+
+*****
+
+####  寒风夜  
+##### 246#       发表于 2022-7-8 16:41
+
+呃
+
+*****
+
+####  player3960  
+##### 247#       发表于 2022-7-8 16:45
+
+真是多灾多难啊，可别留下什么后遗症<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 248#       发表于 2022-7-8 16:54
+
+这什么事啊。。。
+
+*****
+
+####  奥柏伦亲王  
+##### 249#       发表于 2022-7-8 16:54
+
+真吓人，好好休息，别有什么大碍就好
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 250#       发表于 2022-7-8 16:57
+
+同车的还有小百合和pay，生放没了
+
+*****
+
+####  优妮可  
+##### 251#       发表于 2022-7-8 17:01
+
+bml可能也危，希望早日康复吧
+
+*****
+
+####  rexzhanghao  
+##### 252#       发表于 2022-7-8 17:08
+
+tm怎么这几天一堆各种意义上的炸裂事件
+
+*****
+
+####  稀勢のささ  
+##### 253#       发表于 2022-7-8 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 254#       发表于 2022-7-8 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">希望没什么大问题
+
+*****
+
+####  奥柏伦亲王  
+##### 255#       发表于 2022-7-8 17:11
+
+小百合前几天是不是还直播来着？感觉同车几个人情况也不大一样吧，应该整体上都不太严重，希望如此
+
+*****
+
+####  starring  
+##### 256#       发表于 2022-7-8 17:12
+
+被吓到了，既然staff说没受到大伤那应该可以放心，要好好休养
+
+*****
+
+####  优妮可  
+##### 257#       发表于 2022-7-8 17:13
+
+<img src="https://img.saraba1st.com/forum/202207/08/171307ygagayjzyauszaox.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220708_170951.jpg</strong> (16.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 17:13 上传
+
+唉，感觉不妙
+
+*****
+
+####  七堂伽蓝  
+##### 258#       发表于 2022-7-8 17:17
+
+还能发V，说明不在ICU，但是要养伤
+
+*****
+
+####  cybernetics31  
+##### 259#       发表于 2022-7-8 17:18
+
+应该没事，淤伤啥的好好休息就是了。身体优先，鱼还能wang sa冲浪应该就没啥事。
+
+*****
+
+####  老1.5  
+##### 260#       发表于 2022-7-8 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56575034&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-8 17:13</a>
+
+唉，感觉不妙</blockquote>
+感觉鱼可能是膝盖脚踝手腕这些部位可能出现软组织伤吧，可能伴随淤青和皮外伤。。。小百合应该没什么大问题，pay宝不清楚。哎
+
+*****
+
+####  lj205  
+##### 261#       发表于 2022-7-8 17:23
+
+希望这个一些时间不要太久………………唯一一点只能从打铁那个笑脸判断不至于太严重吧……
+
+*****
+
+####  starring  
+##### 262#       发表于 2022-7-8 17:37
+
+小百合和pay也发通告了
+
+437DA0F7-D98A-4B47-84A4-DFE6D6E95CE4.jpeg
+(194.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 17:37 上传
+
+<img src="https://img.saraba1st.com/forum/202207/08/173740fzvu0z4m4rv52le2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+891BC9D1-09E7-4123-8BCE-B5EC8AE8A3CD.jpeg
+(56.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 17:37 上传
+
+<img src="https://img.saraba1st.com/forum/202207/08/173740lk6q6bz6f1qm516z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 263#       发表于 2022-7-8 17:49
+
+可别是骨折什么的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 264#       发表于 2022-7-8 17:54
+
+都写了是淤伤啥的了，趁这机会好好休息，就是希望鱼别有心理压力啥的
+
+*****
+
+####  aoaoaodedede  
+##### 265#       发表于 2022-7-8 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56575680&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-8 17:54</a>
+
+都写了是淤伤啥的了，趁这机会好好休息，就是希望鱼别有心理压力啥的</blockquote>
+压力啥的真不好说，对鲤鱼来说接下来比较重要的可能是bmlsp，只能希望鲤鱼早日康复了
+
+*****
+
+####  黑雪姫  
+##### 266#       发表于 2022-7-8 19:15
+
+鱼这个其他症状是啥。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 267#       发表于 2022-7-8 19:50
+
+我艹，平安就好，希望心里不要出压力吧
+
+*****
+
+####  JustW_2  
+##### 268#       发表于 2022-7-8 19:55
+
+就算看上去只是淤伤，最好也还是多休养修养吧，否则可不是小事，尤其是对运动量大的人来说←作为一个腿受过严重伤的人的经验之谈
+
+*****
+
+####  musicat  
+##### 269#       发表于 2022-7-8 19:57
+
+这都啥啊，我X
+
+*****
+
+####  lj205  
+##### 270#       发表于 2022-7-8 22:36
+
+……………………哪个傻逼买了热搜
+
+
+
+*****
+
+####  cybernetics31  
+##### 271#       发表于 2022-7-8 22:39
+
+我估计不是买的热搜…………纯粹就营销号蹭罢了…………
+
+*****
+
+####  lj205  
+##### 272#       发表于 2022-7-8 22:54
+
+她有啥可蹭的？
+
+*****
+
+####  优妮可  
+##### 273#       发表于 2022-7-8 22:56
+
+四字转移注意的吧
+
+*****
+
+####  cybernetics31  
+##### 274#       发表于 2022-7-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56578962&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-8 22:56</a>
+四字转移注意的吧</blockquote>
+………………不至于，不至于
+
+*****
+
+####  caicaistar  
+##### 275#       发表于 2022-7-8 23:09
+
+看了下...全是水军 这个节骨眼上热搜 让人吓一跳<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 276#       发表于 2022-7-8 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56578962&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-8 22:56</a>
+四字转移注意的吧</blockquote>
+感觉就是上面买的，现在才第32，没看出有故意要冲热搜的意思。毕竟今天哪个新闻都没有安倍这个大。
+
+*****
+
+####  lj205  
+##### 277#       发表于 2022-7-8 23:20
+
+现在28了
+
+*****
+
+####  aoaoaodedede  
+##### 278#       发表于 2022-7-8 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56579160&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-8 23:15</a>
+
+感觉就是上面买的，现在才第32，没看出有故意要冲热搜的意思。毕竟今天哪个新闻都没有安倍这个大。 ...</blockquote>
+文娱那个热搜排第四了，这是啥操作，有点摸不着头脑
+
+*****
+
+####  Enakina  
+##### 279#       发表于 2022-7-8 23:27
+
+怕不是仇家给卖的吧，这个节骨眼上，不安です
+
+*****
+
+####  优妮可  
+##### 280#       发表于 2022-7-8 23:27
+
+文娱那个最高冲到第三了，上面要买买什么车祸，买bml不更好？
+
+*****
+
+####  starring  
+##### 281#       发表于 2022-7-8 23:29
+
+这热搜莫名其妙，而且已经吸引了一堆贵物
+
+*****
+
+####  cat1230  
+##### 282#       发表于 2022-7-8 23:34
+
+这上热搜也太怪了，不过掉下来也很快就是了。
+
+*****
+
+####  lj205  
+##### 283#       发表于 2022-7-8 23:36
+
+还真在新留言里发现些内娱废物，草
+
+*****
+
+####  aoaoaodedede  
+##### 284#       发表于 2022-7-8 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56578939&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-8 22:54</a>
+
+她有啥可蹭的？</blockquote>
+话说回来，上次说O榜的那个微博不就是拿鲤鱼当例子吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 285#       发表于 2022-7-8 23:47
+
+还好现在是大半夜，明天应该就下去了
+
+*****
+
+####  cybernetics31  
+##### 286#       发表于 2022-7-9 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56579397&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-8 23:37</a>
+话说回来，上次说O榜的那个微博不就是拿鲤鱼当例子吗</blockquote>
+那个没掀起啥波澜…………没啥
+
+*****
+
+####  lj205  
+##### 287#       发表于 2022-7-9 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">草…………不是静养吗……怎么还在冲浪……
+
+*****
+
+####  aoaoaodedede  
+##### 288#       发表于 2022-7-9 00:40
+
+热搜也算是热闹吧，这不多看几眼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 289#       发表于 2022-7-9 00:44
+
+太闲了，所以连续冲浪。今天超话也好多人留言，鲤鱼姐也刷了几次超话
+
+*****
+
+####  lj205  
+##### 290#       发表于 2022-7-9 00:48
+
+也好吧，这个时候看看家乡话的祝福可能更有安慰效果
+
+*****
+
+####  黑雪姫  
+##### 291#       发表于 2022-7-9 07:18
+
+我个人认为3人多多少少都有问题，所致生放才停的，如果只有鲤鱼有问题，生放应该不会停的，之前nako新冠生放也没停啊..其他四人也正常直播。跟别说这次九人了，少一个人也无所谓。
+
+*****
+
+####  ViyViy  
+##### 292#       发表于 2022-7-9 07:55
+
+就是9人ver刚启动第二次生放就缺人运营觉得不行吧，而且不像新冠，轻微皮外伤调节时间会快一些。
+
+*****
+
+####  雪城穗乃香  
+##### 293#       发表于 2022-7-9 08:09
+
+不能上生放很可能是脸伤到了
+
+以前曾经有段时间没事会在油管上搜日本车祸集锦看，日本市区大多是小街道不太容易发生高速事故，路口鬼探头是严重事故里比较常见的了。
+
+日本那氛围肯定是全员安全带，不大可能是追尾导致撞到前挡和饰板，过路口时被车辆从侧面撞击的可能性大一点，公告看来鲤鱼似乎伤得重一点，估计是鲤鱼坐在前排了吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 294#       发表于 2022-7-9 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说叔叔sp 国内咋还不卖票？这没多少时间了啊。7月番不宣就算了，自己搞的活动也不宣传下卖票？
+
+*****
+
+####  lj205  
+##### 295#       发表于 2022-7-9 09:12
+
+本来愉快的周末……哎…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还是耐心等待她回来吧
+
+今晚一个是二期PV一个就是不插电
+
+*****
+
+####  iuhehc  
+##### 296#       发表于 2022-7-9 19:38
+
+ 本帖最后由 iuhehc 于 2022-7-9 19:40 编辑 
+
+新pv决定期待值
+
+就加几个镜头无语
+
+*****
+
+####  ViyViy  
+##### 297#       发表于 2022-7-9 19:40
+
+好像就多了几个新画面而已。。？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 298#       发表于 2022-7-9 19:41
+
+新，但没完全新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 299#       发表于 2022-7-9 19:42
+
+ 本帖最后由 寒风夜 于 2022-7-9 19:44 编辑 
+
+跟第一季放pv那会差不多，第二个pv就加几个，虹也差不多，不如说你拉pv都这样
+
+*****
+
+####  iuhehc  
+##### 300#       发表于 2022-7-9 19:45
+
+行了，二期力捧海选新人，都不用看
+
+
+
+*****
+
+####  稀勢のささ  
+##### 301#       发表于 2022-7-9 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不一定 依我看是新老两位至尊大战
+
+*****
+
+####  Piano-Forest  
+##### 302#       发表于 2022-7-9 19:51
+
+新PV：[https://youtu.be/B7qcheTzLFQ](https://youtu.be/B7qcheTzLFQ)
+
+*****
+
+####  aoaoaodedede  
+##### 303#       发表于 2022-7-9 19:53
+
+我还是觉得是二人转的可能性大一点，毕竟主视觉图那么大一个香音在那里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 304#       发表于 2022-7-9 19:58
+
+封面那么大一个加农炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 305#       发表于 2022-7-9 20:04
+
+看不出个所以然来，反正我觉得还是香音传没跑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 306#       发表于 2022-7-9 20:10
+
+ 本帖最后由 aoaoaodedede 于 2022-7-9 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56586169&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-9 19:45</a>
+
+行了，二期力捧海选新人，都不用看</blockquote>
+其实一期动画也是类似的，抛开前三集给人的错觉，一期动画被人说是香音传也足以看出其比较明显的倾向性，原本如果不加人，当时我预测二期动画或许很难写成香音过度中心化的情况，但是现在加人了，尤其是有来自Apollo Bay的参加过海选的人，以一期动画的整体表现来估计，二期动画倾向于“海选（等效）Leader”角色也就不足为怪了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 307#       发表于 2022-7-9 20:27
+
+等会的不插电油管能重播吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 308#       发表于 2022-7-9 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56586658&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-9 20:27</a>
+等会的不插电油管能重播吗</blockquote>
+不是在abema放吗？要买票的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 309#       发表于 2022-7-9 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56586840&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-9 20:40</a>
+不是在abema放吗？要买票的
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的，搞错了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 310#       发表于 2022-7-9 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">不插电版的小星星真好啊
+
+*****
+
+####  lj205  
+##### 311#       发表于 2022-7-9 21:28
+
+PV没看，没兴趣
+
+*****
+
+####  靡宜  
+##### 312#       发表于 2022-7-9 21:28
+
+太有意思了，真不错
+
+*****
+
+####  靡宜  
+##### 313#       发表于 2022-7-9 21:28
+
+太有意思了，真不错
+
+*****
+
+####  a92063256  
+##### 314#       发表于 2022-7-9 21:31
+
+挺好的，相同的歌不同的体验
+
+*****
+
+####  lj205  
+##### 315#       发表于 2022-7-9 21:32
+
+太强了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 316#       发表于 2022-7-9 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哇，这歌真不错
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 317#       发表于 2022-7-9 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便问一下，虽然过了很久了，楼里有没有万代fes day1的liella部分录播（或者整个day1录播指个路也行）
+
+*****
+
+####  lj205  
+##### 318#       发表于 2022-7-9 21:35
+
+太短了！！！！！！！！！！！！！！！！！！！！！！！！！11
+
+*****
+
+####  starring  
+##### 319#       发表于 2022-7-9 21:35
+
+翻唱星巡之歌太好听了吧
+
+*****
+
+####  老1.5  
+##### 320#       发表于 2022-7-9 21:38
+
+ 本帖最后由 老1.5 于 2022-7-9 21:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56587615&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-9 21:34</a>
+
+顺便问一下，虽然过了很久了，楼里有没有万代fes day1的liella部分录播（或者整个day1录播指个路也 ...</blockquote>
+万南Day 1 吗，我有熟肉，稍等我分享一下
+[https://pan.baidu.com/s/10nFWALOJaLkbykScri1Xwg](https://pan.baidu.com/s/10nFWALOJaLkbykScri1Xwg)    提取码：2279
+
+只有liella部分的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 兔姬姬姬姬姬| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  cybernetics31  
+##### 321#       发表于 2022-7-9 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求个fan meeting 的熟肉资源…………发现nas就存了个东京的…………
+
+*****
+
+####  lj205  
+##### 322#       发表于 2022-7-9 21:43
+
+看着鲤鱼好像很不习惯这种表演方式<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 323#       发表于 2022-7-9 21:45
+
+FMT只来得及存了大阪2天，东京Day2和名古屋Day2, 名古屋Day1 上传的时候正好在出差，想着回来存也来得及，没想到这个BAN的如此之快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 324#       发表于 2022-7-9 21:48
+
+不插电版的私のsymphony真不错，梦回一单发售live
+
+*****
+
+####  lj205  
+##### 325#       发表于 2022-7-9 22:00
+
+居然没有安可部分
+
+*****
+
+####  csolfans  
+##### 326#       发表于 2022-7-9 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56588017&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-9 22:00</a>
+
+居然没有安可部分</blockquote>
+刚刚好一小时，还删了1，2，3
+
+*****
+
+####  lj205  
+##### 327#       发表于 2022-7-9 22:06
+
+这么棒的LIVE居然还有人嫌弃
+
+*****
+
+####  老1.5  
+##### 328#       发表于 2022-7-9 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56588086&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-9 22:06</a>
+
+这么棒的LIVE居然还有人嫌弃</blockquote>
+怎么说呢，心态不一样。有人就是喜欢正常live那种嗨的感觉，虽然不插电不是他的菜，但是终归还是喜欢liella才会去支持。而且我们这线上嘛，就当夜深了静静听音乐，体感还是不一样的
+
+*****
+
+####  靡宜  
+##### 329#       发表于 2022-7-9 22:16
+
+<blockquote>lj205 发表于 2022-7-9 21:43
+看着鲤鱼好像很不习惯这种表演方式</blockquote>
+那时候估计是想着2nd fl吧
+
+*****
+
+####  lj205  
+##### 330#       发表于 2022-7-9 22:21
+
+希望能出BD或者CD吧
+
+
+
+*****
+
+####  starring  
+##### 331#       发表于 2022-7-9 22:39
+
+同希望以后能出不插电的CD，最好还能再办不插电live
+
+*****
+
+####  奥柏伦亲王  
+##### 332#       发表于 2022-7-9 23:14
+
+这不插电演的太绝了，难怪第二天满场。另外感觉小百合坐下来唱歌发声没什么问题，所以现在live不稳定主要还是肺活量和气息控制的问题吧，声带应该是挺好的
+
+*****
+
+####  aoaoaodedede  
+##### 333#       发表于 2022-7-9 23:24
+
+不懂唱歌，不过坛友们（还包括其他地方的）为啥有时候喜欢把这种非实时的Live录播拿来研究唱功啊，声音状态之类的，我感觉没有太多的可参考性<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 334#       发表于 2022-7-9 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56589061&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-7-9 23:14</a>
+
+这不插电演的太绝了，难怪第二天满场。另外感觉小百合坐下来唱歌发声没什么问题，所以现在live不稳定主要还 ...</blockquote>
+（现地佬说是修过
+
+*****
+
+####  愛さ実  
+##### 335#       发表于 2022-7-9 23:41
+
+不说非实时的录播了，即使是实时的，也可以有back-up，autotune，垫音等n种方法来修。所以说唱功这东西，只能说日久见真章
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 336#       发表于 2022-7-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56589210&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-7-9 23:25</a>
+
+（现地佬说是修过</blockquote>
+mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算我没说
+
+*****
+
+####  iuhehc  
+##### 337#       发表于 2022-7-10 01:27
+
+ 本帖最后由 iuhehc 于 2022-7-10 02:02 编辑 
+
+个人是把爱豆和歌手分开的，爱豆的表演舞台肯定是追求完美，毕竟他们何必给更多人听到瑕疵（包装），真要研究唱功这种后期过的都没有参考价值，包括之前的live也是。一般听众看过几百场打歌live都不一定听出来，好奇的就把inst消一下都不用找舞台细节，简单和cd对比一下，盲目吹唱功直接忽视。除非现场不用麦开清唱或者直播手机麦，就现在的技术水平都能把LMR做到骗倒很多观众耳朵的程度了，所以不要太认真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 338#       发表于 2022-7-10 01:42
+
+音频工程确实是一门学问
+不过纯外行人胡诌感觉弄到时域频谱里面可能会清晰很多，本质音高调整都是在频域上的能量调整，调了总会有能量损失
+以前也试过 过spleeter以后再过一遍DFT也扔进到过audition现有的轮子里。
+结论是我一个门外汉又没有人给我钱我这么大费周章考虑这个干什么，音乐水平也就止步找找基频数数泛音了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+现在音频合成技术这么发达，也许过不了几年真就像外野说的一样抵制真人演出了，还得怀念不完美的真人表演呢<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 339#       发表于 2022-7-10 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56590252&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-10 01:42</a>
+
+音频工程确实是一门学问
+
+不过纯外行人胡诌感觉弄到时域频谱里面可能会清晰很多，本质音高调整都是在频域上 ...</blockquote>
+（小杠一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 340#       发表于 2022-7-10 02:11
+
+ 本帖最后由 nufawneafg 于 2022-7-10 02:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56590348&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-10 02:00</a>
+（小杠一下，轻喷轻喷），我觉得这个思路从头开始就达不到目的，Live现场本身应该都会对麦克风输入 ...</blockquote>
+这就属于知识盲区了，这个方法的理论建立在事出反常必有妖上，频谱图太漂亮太理想就不太是那么回事，和cd源交叉比对嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 341#       发表于 2022-7-10 10:25
+
+结木由奈 将客串暴太郎战队第20话的播音员
+
+<img src="https://img.saraba1st.com/forum/202207/10/102527s22gu92i39qiaups.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A5170B0E-760E-4D1E-AC3D-956140DD816C.jpeg</strong> (237.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-10 10:25 上传
+
+*****
+
+####  lj205  
+##### 342#       发表于 2022-7-10 15:19
+
+欧皇nako 一次两张UR
+
+*****
+
+####  HGCG3  
+##### 343#       发表于 2022-7-10 16:12
+
+“大家来看啊”
+
+*****
+
+####  lj205  
+##### 344#       发表于 2022-7-10 17:42
+
+破站上2ND大阪场？就是这票价谁会买<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 345#       发表于 2022-7-10 17:53
+
+炒冷饭嘛，我还是感觉这个转播的运营不太懂国内观众最需要什么
+
+*****
+
+####  奥柏伦亲王  
+##### 346#       发表于 2022-7-10 18:04
+
+在国内卖直播回放属于脑子有点水了
+
+*****
+
+####  cat1230  
+##### 347#       发表于 2022-7-10 18:29
+
+反正没成本，试试呗，肯定没下次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 348#       发表于 2022-7-10 18:44
+
+我觉得他们的逻辑是这样：当时售票没针对大陆地区，现在特地开放了大陆地区而且MC还自带字幕，我还按原价卖，大家一定觉得赚了，肯定有市场！
+
+毕竟日本人
+
+*****
+
+####  愛さ実  
+##### 349#       发表于 2022-7-10 18:47
+
+ 本帖最后由 愛さ実 于 2022-7-10 18:51 编辑 
+
+上次其实发过动态，被吐槽过。
+看这意思单纯是和结丘乐队的公演没在阿b上过要补上。猜测以后上阿b的策略大概也是这样，同类型的至少在阿b上一场。
+
+<img src="https://img.saraba1st.com/forum/202207/10/184756eqv7spoqq6l7s7p9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3246.PNG</strong> (449.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-10 18:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 350#       发表于 2022-7-10 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56597256&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-10 18:44</a>
+
+我觉得他们的逻辑是这样：当时售票没针对大陆地区，现在特地开放了大陆地区而且MC还自带字幕，我还按原价卖 ...</blockquote>
+所以我才觉得他们运营可能不太懂国内观众最想要什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别的不说，fmt就转播一场。eplus播的，怎么这里就不转播了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 351#       发表于 2022-7-10 19:18
+
+<img src="https://img.saraba1st.com/forum/202207/10/191821k0exrhne0fmb0409.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2EBE7113-8FFF-4E3B-A258-2A20323EC4F1.jpeg</strong> (462.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-10 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202207/10/191828ih8kdkwu3221k1cq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7E7C81DF-DA9A-404F-896D-5193E9A938FD.jpeg</strong> (587.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-10 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202207/10/191835raigbvugvpzjl9mv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>28479D19-32D8-4634-B63D-68852BF8DEB3.jpeg</strong> (789.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-10 19:18 上传
+
+*****
+
+####  cybernetics31  
+##### 352#       发表于 2022-7-10 22:40
+
+熟肉合集：[https://www.aliyundrive.com/s/NMHfLzbJ2ew](https://www.aliyundrive.com/s/NMHfLzbJ2ew)
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有fmt大阪第一天啊…………
+
