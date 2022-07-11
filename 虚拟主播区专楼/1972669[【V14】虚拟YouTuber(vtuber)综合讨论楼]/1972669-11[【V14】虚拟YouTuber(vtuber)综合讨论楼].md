@@ -10151,3 +10151,22 @@ Lize对兔头的模型早有准备。<img src="https://static.saraba1st.com/imag
 
 感觉科乐美做手脚了，是不是专门发的直播版，每年都这样也太离谱了
 
+
+
+*****
+
+####  carroy  
+##### 15959#       发表于 2022-7-11 23:23
+
+ 本帖最后由 carroy 于 2022-7-11 23:26 编辑 
+
+本来虹甲莎小姐不准备出场的
+
+有团体比赛这方面的心理阴影
+
+又是运营联络出问题了吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+这算在直播里第三次直球说运营吧
+
+enkr你可长点心吧……
+
