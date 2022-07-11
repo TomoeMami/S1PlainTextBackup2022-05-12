@@ -4626,3 +4626,15 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 但还有打七阶从者的任务啊</blockquote>
 从者的任务我是在2.6.5做完的，但是女性要求是15个，远超上面从者的要求数，我重新确认了几次，的确剩下女性这个要求，而且2.6.5的从者全部显示是目标。或者你先完成上面几个要求，再打2.6.5的free 试试。
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88911#       发表于 2022-7-11 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56601764&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-7-11 02:12</a>
+
+但还有打七阶从者的任务啊</blockquote>
+2.65那些也都算啊，我任务都做完了
+
