@@ -4535,3 +4535,17 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 
 这个才是拉板
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 356#       发表于 2022-7-11 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56606742&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-11 13:58</a>
+
+问问坛友https://nozomi.2ch.sc/lovelive/
+
+之前看拉板因为没梯子推荐我上这个镜像站？当时还正常的，现在进 ...</blockquote>
+没有吧，点开帖子，里面内容的同步性好像还可以，没感觉很滞后
+
