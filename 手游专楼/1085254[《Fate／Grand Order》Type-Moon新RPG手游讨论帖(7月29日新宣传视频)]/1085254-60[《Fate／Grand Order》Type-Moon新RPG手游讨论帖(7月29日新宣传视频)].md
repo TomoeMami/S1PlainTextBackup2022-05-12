@@ -4647,3 +4647,14 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 那就是那些大众脸可能男女都带吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 88913#       发表于 2022-7-11 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56604928&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-7-11 11:38</a>
+那就是那些大众脸可能男女都带吧</blockquote>
+估计是懒得区分，全部都有男性和女性的特性。
+
