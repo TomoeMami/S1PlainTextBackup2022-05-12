@@ -10363,3 +10363,16 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 slm亲手绘制低气压的本质<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15975#       发表于 2022-7-12 16:45
+
+草，因为dbd大会时的队伍成员明天联动(levi拉的人)，月樱+饭屋+dbd队+にじクイ碰巧达成了黑客牛郎四天连续联动，推上有牛郎粉骂黑客对牛郎使いすぎ、没节操<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+人都要没了，别急.jpg
+
+syl  看到有人在说黑客定海外联动那天好几个en的日程表写了雪山人狼，如果真的是的话能在最后满足我看黑客en男联动的好奇心了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

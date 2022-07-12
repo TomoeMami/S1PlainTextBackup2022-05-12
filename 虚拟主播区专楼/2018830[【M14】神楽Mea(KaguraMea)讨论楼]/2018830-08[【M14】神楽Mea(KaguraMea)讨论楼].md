@@ -14685,3 +14685,12 @@ b博还行
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 11927#       发表于 2022-7-12 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">别叫，还料理呢，只配下锅的小羊。
+
