@@ -4964,3 +4964,46 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 之前说有其它症状就感觉不妙<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 396#       发表于 2022-7-12 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 397#       发表于 2022-7-12 18:32
+
+加油吧...！广播都取消的话估计是软组织受伤了，可能涉及到跳舞的膝关节踝关节，因此要降低对于腿脚的消耗，最好就是静养。放心，大家伙都不会走的
+
+*****
+
+####  愛さ実  
+##### 398#       发表于 2022-7-12 18:36
+
+ 本帖最后由 愛さ実 于 2022-7-12 18:38 编辑 
+
+这关头<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真服了。现在损失更大，不知道咋想的，太小家子气了
+
+*****
+
+####  奥柏伦亲王  
+##### 399#       发表于 2022-7-12 18:39
+
+哎，不知道说什么
+
+*****
+
+####  player3960  
+##### 400#       发表于 2022-7-12 18:40
+
+唉～有时候真烦日本这些含糊其辞的公告……
+
+鱼啊，我整个七月都没有精神食粮了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
