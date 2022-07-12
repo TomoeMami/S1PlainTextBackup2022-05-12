@@ -4727,3 +4727,26 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 
 不过现在很难说什么什么推测有多么靠谱，也只能等鱼的消息呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 369#       发表于 2022-7-12 12:34
+
+明天不是有FC直播吗，如果没取消或延迟就证明恢复得不错
+
+*****
+
+####  lj205  
+##### 370#       发表于 2022-7-12 12:35
+
+一般人要回来前似乎都会提前发个消息说一下，鲤鱼这到现在还是静悄悄<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 371#       发表于 2022-7-12 12:36
+
+每天还会冲浪的，不慌，明天fc直播也没说取消，更不慌了
+
