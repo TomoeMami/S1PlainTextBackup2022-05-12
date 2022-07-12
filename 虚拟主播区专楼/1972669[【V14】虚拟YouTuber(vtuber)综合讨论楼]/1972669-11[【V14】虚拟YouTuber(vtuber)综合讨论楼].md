@@ -10548,3 +10548,30 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 我记不太清了，vta一期什么地方说的全员素人来着？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">一期招募啊 只有二期补充是收经验者的吧
 
+
+
+*****
+
+####  fastary  
+##### 15992#       发表于 2022-7-13 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56625216&amp;ptid=1972669" target="_blank">死体残留 发表于 2022-7-13 00:00</a>
+
+一期招募啊 只有二期补充是收经验者的吧</blockquote>
+明明一期生出来时还小蹲了一下有没有特定的，如果只招素人的话我应该不会惦记这个才对。
+
+特地去翻了一下三期招募的专栏里面的应募条件，第一期只是不需要为经验者，只有第二期是经验者限定，所以其实没问题<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+一期：これまでの経験は不問です。学ぶ姿勢のある方を募集します。
+
+追加(二期)：YouTube等の配信プラットフォームでの配信経験がある方。
+
+三期：学生（高校生も可）、未経験問わず、学ぶ姿勢のある方。
+
+*****
+
+####  fastary  
+##### 15993#       发表于 2022-7-13 00:32
+
+除非一期生出来的时候有谁提过都是素人，不过好像印象中没吧？倒是二期出来的时候哪个一期生好像提了一句都是素人……
+
