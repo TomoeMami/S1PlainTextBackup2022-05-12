@@ -10352,3 +10352,14 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 至于另外的敲打运营之类的发散，虽然我也觉得很有趣，但还请大家当成无根据的阴谋论便好。
 
+
+
+*****
+
+####  Ketestrait  
+##### 15974#       发表于 2022-7-12 14:37
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h444vmyb69j20jj15o7c8.jpg" referrerpolicy="no-referrer">
+
+slm亲手绘制低气压的本质<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
