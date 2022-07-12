@@ -10476,3 +10476,21 @@ vspo终于又有官方大活动了<img src="https://static.saraba1st.com/image/s
 
 话说这新组合还没出道呢组合推+组合频道就安排上了，enkr想大搞特搞偶像之心真是藏都不藏<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 15985#       发表于 2022-7-12 20:15
+
+诺宝社内联动旅团联动多起来了，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 15986#       发表于 2022-7-12 20:17
+
+<blockquote>毛头小希 发表于 2022-7-12 11:48
+VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质量（喂）都提升了一截吧，不是还被戏称百鬼夜行[f: ...</blockquote>
+确实云，杏开中人号收钱也好引流也好不也需要暗戳戳啊，中人号自个联动出谷子都没人会管你。
+
