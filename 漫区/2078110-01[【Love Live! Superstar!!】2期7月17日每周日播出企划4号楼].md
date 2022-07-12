@@ -4712,3 +4712,18 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 368#       发表于 2022-7-12 12:23
+
+其实要是鱼能发发动态，发发日常，粉丝也不会想太多了。
+
+不过鱼现在除去那个通知发的消息以外，上一批的消息是2号发的。
+
+等久了，鱼又是遇上那么个事，很难不让粉丝担心，推和5ch鱼串也有粉丝表示担心之类的吧。
+
+不过现在很难说什么什么推测有多么靠谱，也只能等鱼的消息呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
