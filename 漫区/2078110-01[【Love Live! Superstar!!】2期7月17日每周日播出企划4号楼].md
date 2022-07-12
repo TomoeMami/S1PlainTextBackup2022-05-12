@@ -4857,3 +4857,63 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 384#       发表于 2022-7-12 18:14
+
+可能是脚上淤伤啥的，这种情况也确实没办法参加吧，让她好好休息吧
+
+*****
+
+####  JustW_2  
+##### 385#       发表于 2022-7-12 18:15
+
+只需要露脸的活动也推了还是推的活动都是需要跳的
+
+*****
+
+####  iuhehc  
+##### 386#       发表于 2022-7-12 18:16
+
+瘀伤有很多办法遮掉的，不太可能像淤了这，广播都没办法录
+
+*****
+
+####  cat1230  
+##### 387#       发表于 2022-7-12 18:16
+
+星团的活动没了就没了，BML这个太惨了，个人solo的大型live啊，太太可惜了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nufawneafg  
+##### 388#       发表于 2022-7-12 18:17
+
+先只推了一个月的应该不到伤筋动骨的程度...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+静静心吧
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  优妮可  
+##### 389#       发表于 2022-7-12 18:18
+
+我有点急说实话，甚至乱想发微博的都不是鱼本人了。唉，我去冷静一下
+
+*****
+
+####  愛さ実  
+##### 390#       发表于 2022-7-12 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56621331&amp;ptid=2078110" target="_blank">JustW_2 发表于 2022-7-12 18:15</a>
+只需要露脸的活动也推了还是推的活动都是需要跳的</blockquote>
+广播都推了。我真急了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
