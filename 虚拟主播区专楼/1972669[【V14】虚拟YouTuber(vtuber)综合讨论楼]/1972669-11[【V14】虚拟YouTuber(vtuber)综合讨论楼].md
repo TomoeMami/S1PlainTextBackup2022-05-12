@@ -10260,3 +10260,13 @@ ib在直播里点评了下莎乐美的推特都能引起炎上，这实在烫手
 「だから変わったらどんどん何回もしつこく聞いた方がいいのかなとは思うんですけど…まあ仕方ないよね、入ったり出ていったりする人もいますからそればっかりは仕方ない」</blockquote>转载，来源是这个：[https://www.youtube.com/watch?v=DHlvSJLZDqY&amp;t=4655s](https://www.youtube.com/watch?v=DHlvSJLZDqY&amp;t=4655s)
 大公司病啊~
 
+
+
+*****
+
+####  hulaoda007  
+##### 15967#       发表于 2022-7-12 08:36
+
+两三年是有点久。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+笑一桑是不是指什么都色有过分拿工作导致供不应求的意思？哪怕主播增多了？
+
