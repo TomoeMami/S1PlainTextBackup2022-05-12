@@ -5108,3 +5108,19 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 事务所不公布详情肯定也不会让本人现在透露更多情况，再多猜测也没用，粉丝难受鲤鱼本人也肯定难受。只希望她能尽早康复，能健康地参加八月的summer sonic <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 412#       发表于 2022-7-12 19:46
+
+还要再推的话不如把详情说清楚，这样含糊大家都难受哇
+
+*****
+
+####  桥田至  
+##### 413#       发表于 2022-7-12 19:49
+
+八成脚骨折了走不了路，否则就算是破相了起码广播能录吧？ 现在广播都录不了明显是腿脚不方便。现在只能等着急没用
+
