@@ -10514,3 +10514,17 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 看开出来的那个妥妥的经验者
 
+
+
+*****
+
+####  毛头小希  
+##### 15989#       发表于 2022-7-12 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56622741&amp;ptid=1972669" target="_blank">空集 发表于 2022-7-12 20:17</a>
+
+确实云，杏开中人号收钱也好引流也好不也需要暗戳戳啊，中人号自个联动出谷子都没人会管你。 ...</blockquote>
+草，是我见识不够
+
+受教受教<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
