@@ -5007,3 +5007,21 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  寒风夜  
+##### 401#       发表于 2022-7-12 18:55
+
+啊这...
+
+*****
+
+####  愛さ実  
+##### 402#       发表于 2022-7-12 18:58
+
+诶……原本很期待的纯五老星最后（大概）的live，整成这样。还是动画二期的节点，这时停止活动真的伤中伤。只怨资本家一点安全远见都没<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
