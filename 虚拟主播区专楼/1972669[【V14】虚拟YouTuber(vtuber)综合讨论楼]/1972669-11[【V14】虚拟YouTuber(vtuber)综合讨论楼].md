@@ -10494,3 +10494,12 @@ vspo终于又有官方大活动了<img src="https://static.saraba1st.com/image/s
 VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质量（喂）都提升了一截吧，不是还被戏称百鬼夜行[f: ...</blockquote>
 确实云，杏开中人号收钱也好引流也好不也需要暗戳戳啊，中人号自个联动出谷子都没人会管你。
 
+
+
+*****
+
+####  死体残留  
+##### 15987#       发表于 2022-7-12 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">vta一期不是都是素人么 怎么开出来的
+
