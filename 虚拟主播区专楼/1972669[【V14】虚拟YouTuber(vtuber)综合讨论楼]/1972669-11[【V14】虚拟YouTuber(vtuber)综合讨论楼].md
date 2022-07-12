@@ -10465,3 +10465,14 @@ vspo终于又有官方大活动了<img src="https://static.saraba1st.com/image/s
 女性プロをゲストにお迎えし、ぶいすぽメンバーが3チームに分かれて闘います🔥
 実況解説にも豪華ゲストをお呼びして、イベントを盛り上げていただきますので、お見逃しなく😤
 
+
+
+*****
+
+####  fastary  
+##### 15984#       发表于 2022-7-12 19:58
+
+管厕怎么云雀的魂都有了，真就vta无人理にじさんじ大家盯…
+
+话说这新组合还没出道呢组合推+组合频道就安排上了，enkr想大搞特搞偶像之心真是藏都不藏<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
