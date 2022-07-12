@@ -4917,3 +4917,50 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 391#       发表于 2022-7-12 18:22
+
+伤势比粉丝猜想的都要严重，bml取消参演实在太遗憾，无论是她们还是粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 392#       发表于 2022-7-12 18:23
+
+<img src="https://img.saraba1st.com/forum/202207/12/182215vjijfkr6od677krn.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3260.PNG</strong> (120.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-12 18:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 393#       发表于 2022-7-12 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 394#       发表于 2022-7-12 18:27
+
+啊，结果还是取消了。。这么严重？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  只等待明天  
+##### 395#       发表于 2022-7-12 18:30
+
+之前说有其它症状就感觉不妙<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
