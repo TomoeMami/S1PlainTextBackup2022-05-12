@@ -5036,3 +5036,21 @@ BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 吊着真的担心啊
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 404#       发表于 2022-7-12 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56621931&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-12 18:58</a>
+诶……原本很期待的纯五老星最后（大概）的live，整成这样。还是动画二期的节点，这时停止活动真的伤中伤。 ...</blockquote>
+之后我记得有个音乐节也是5人出演来着
+
+*****
+
+####  老1.5  
+##### 405#       发表于 2022-7-12 19:15
+
+还有8月底的summer sonic ，5人还有机会的。
+
