@@ -4784,3 +4784,76 @@ mtv unplugged也修，有什么必要吗<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼~伟大的复活
 
+
+
+*****
+
+####  iuhehc  
+##### 376#       发表于 2022-7-12 18:03
+
+鲤鱼fc直播也取消了..这状况感觉BML也不太行了
+
+*****
+
+####  cybernetics31  
+##### 377#       发表于 2022-7-12 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这下我真的担心了…………
+
+*****
+
+####  愛さ実  
+##### 378#       发表于 2022-7-12 18:04
+
+<img src="https://img.saraba1st.com/forum/202207/12/180408seeeobxle8byf1wz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3259.PNG</strong> (589.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-12 18:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ayangsu  
+##### 379#       发表于 2022-7-12 18:05
+
+伤的挺严重啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 380#       发表于 2022-7-12 18:06
+
+这下动画播出后要是有生放可能也参加不了，到底什么伤啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡辺梨加  
+##### 381#       发表于 2022-7-12 18:07
+
+BML都不参加了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 382#       发表于 2022-7-12 18:08
+
+7月活动全推了，这可不是什么轻伤了……
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  愛さ実  
+##### 383#       发表于 2022-7-12 18:12
+
+真的想喷人了，这么严重不只是什么“瘀伤及其他症状”吧。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+以后坐公共交通能不能分开坐，万一真出什么事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
