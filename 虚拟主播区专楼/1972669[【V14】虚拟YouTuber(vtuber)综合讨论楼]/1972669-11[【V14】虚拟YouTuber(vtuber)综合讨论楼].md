@@ -10503,3 +10503,14 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">vta一期不是都是素人么 怎么开出来的
 
+
+
+*****
+
+####  poipanchao  
+##### 15988#       发表于 2022-7-12 20:54
+
+经历欺诈呗
+
+看开出来的那个妥妥的经验者
+
