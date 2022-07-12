@@ -10537,3 +10537,14 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 我记不太清了，vta一期什么地方说的全员素人来着？
 
+
+
+*****
+
+####  死体残留  
+##### 15991#       发表于 2022-7-13 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56625195&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-12 23:58</a>
+我记不太清了，vta一期什么地方说的全员素人来着？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">一期招募啊 只有二期补充是收经验者的吧
+
