@@ -10528,3 +10528,12 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 受教受教<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15990#       发表于 2022-7-12 23:58
+
+我记不太清了，vta一期什么地方说的全员素人来着？
+
