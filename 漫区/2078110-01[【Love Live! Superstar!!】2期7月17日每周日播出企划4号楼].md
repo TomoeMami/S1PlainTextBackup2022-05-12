@@ -5340,3 +5340,15 @@ nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是�
 
 —— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 433#       发表于 2022-7-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56634290&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-13 17:44</a>
+
+不是，都没几天第二季就播，这时候不应该宣传力度全开吗？ 比如声优倒数啥的，怎么现在静悄悄的？ 与其说鲤 ...</blockquote>
+估计是这件事打乱了整个二期动画的三次元宣传吧，而且一开始这就是与三个人紧密相关的事（这里面是包括了Leader的）
+
