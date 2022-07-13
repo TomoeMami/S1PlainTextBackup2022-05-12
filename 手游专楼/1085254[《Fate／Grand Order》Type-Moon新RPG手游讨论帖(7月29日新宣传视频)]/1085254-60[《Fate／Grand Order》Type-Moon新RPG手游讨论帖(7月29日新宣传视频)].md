@@ -5164,3 +5164,57 @@ ssy：夹馍，你也来啦
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行 打完1001的俩幕间凑够了170 又混了10个石头
 
+
+
+*****
+
+####  qixinno2  
+##### 88960#       发表于 2022-7-13 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636662&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:09</a>
+
+怪了。。我怎么没自选？ 我不可能选了个2宝的啊
+
+是以前的自选你没拿？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">去年那个不限时自选啊 之前的限时的我选的孔明
+
+*****
+
+####  alucardcz  
+##### 88961#       发表于 2022-7-13 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636692&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:11</a>
+
+去年那个不限时自选啊 之前的限时的我选的孔明</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那都是8月的东西了你怎么回事
+
+*****
+
+####  qixinno2  
+##### 88962#       发表于 2022-7-13 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636756&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:16</a>
+
+那都是8月的东西了你怎么回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一直没用啊 结果为了石头选了大公 只能说后悔
+
+*****
+
+####  alucardcz  
+##### 88963#       发表于 2022-7-13 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636782&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:17</a>
+
+一直没用啊 结果为了石头选了大公 只能说后悔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后悔什么 大公强啊 我都喂圣杯了
+
+*****
+
+####  qixinno2  
+##### 88964#       发表于 2022-7-13 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636789&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:18</a>
+
+后悔什么 大公强啊 我都喂圣杯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不如我歪出来的三宝金钻头好使 还不如选梅芙黑狗之类的
+
