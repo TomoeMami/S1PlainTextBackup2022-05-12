@@ -4966,3 +4966,16 @@ ssy：夹馍，你也来啦
 第一个五星艾蕾</blockquote>
 我第一个五星是艳后<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88941#       发表于 2022-7-13 20:30
+
+ 本帖最后由 gpx234mqx 于 2022-7-13 20:31 编辑 
+
+开始统计了？
+
+我数了下80个五星
+

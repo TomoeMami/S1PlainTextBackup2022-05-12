@@ -5486,3 +5486,16 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 今天什么日子，她们都发穿浴衣的照片（不过pay那套是袴裙
 
+
+
+*****
+
+####  愛さ実  
+##### 439#       发表于 2022-7-13 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635968&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-13 20:12</a>
+今天什么日子，她们都发穿浴衣的照片（不过pay那套是袴裙</blockquote>
+没啥日子，今天ab社集体拍浴衣写真
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
