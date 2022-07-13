@@ -4667,3 +4667,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 感觉fgo变成收菜游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88915#       发表于 2022-7-13 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">太垃圾 连菜都懒得收
+
