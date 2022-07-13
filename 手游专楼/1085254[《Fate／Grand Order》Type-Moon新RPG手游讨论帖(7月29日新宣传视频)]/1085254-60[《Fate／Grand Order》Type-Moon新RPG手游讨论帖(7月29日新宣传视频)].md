@@ -4658,3 +4658,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 那就是那些大众脸可能男女都带吧</blockquote>
 估计是懒得区分，全部都有男性和女性的特性。
 
+
+
+*****
+
+####  千叶铁矢  
+##### 88914#       发表于 2022-7-13 07:53
+
+感觉fgo变成收菜游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
