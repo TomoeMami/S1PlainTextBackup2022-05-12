@@ -5310,3 +5310,22 @@ nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是�
 
 孩子真善良
 
+
+
+*****
+
+####  黑雪姫  
+##### 430#       发表于 2022-7-13 17:44
+
+不是，都没几天第二季就播，这时候不应该宣传力度全开吗？ 比如声优倒数啥的，怎么现在静悄悄的？ 与其说鲤鱼停摆了不如说整个LIELLA都停摆了... 我寻思唐可可的角色定位也不是雷达啊。 跳过就跳过呗又不影响大局...  我看拉板日本人也有反映这情况。
+
+*****
+
+####  老1.5  
+##### 431#       发表于 2022-7-13 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56634290&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-13 17:44</a>
+
+不是，都没几天第二季就播，这时候不应该宣传力度全开吗？ 比如声优倒数啥的，怎么现在静悄悄的？ 与其说鲤 ...</blockquote>
+看见雷达我还愣了半天是啥，原来是leader<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

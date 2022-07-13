@@ -4750,3 +4750,24 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 新的木桩，来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88924#       发表于 2022-7-13 17:42
+
+抽了90（+4）发，四个金卡，一个雪山樱，以下含晒（？）：
+
+<img src="https://img.saraba1st.com/forum/202207/13/173057bv8bememmwl84mmm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220713_172954_com.excean.gspace.jpg</strong> (539.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-13 17:30 上传
+
+第一个是金圈，第二个银转金，第三个卡背不对。
+
+武后携拷问组闺蜜华美罗夫人是来组团消遣洒家的嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

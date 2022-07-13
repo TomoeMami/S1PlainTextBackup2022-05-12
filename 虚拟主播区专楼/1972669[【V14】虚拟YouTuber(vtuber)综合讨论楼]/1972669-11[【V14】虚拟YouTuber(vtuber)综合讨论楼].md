@@ -10786,3 +10786,16 @@ syl，二期暂时男女top都是ダウナー系（当社比），跟分析莎�
 
 你虹当时社长皮刚出也被嫌弃过，除了宝三家高度好评基本上是传统了，无须过于介怀
 
+
+
+*****
+
+####  fastary  
+##### 16011#       发表于 2022-7-13 17:46
+
+在录播评论栏和直播通知推下面闹还真逼一个快毕业的人出来道歉改计划了，你们有病吧！！！要是搞到我饭屋联动缺一回我就当场转fwgs推的anti啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+syl
+
+讲真，只是因为逆反就可以睁眼说瞎话到自己都信了挺好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
