@@ -5244,3 +5244,19 @@ nagi说没准自己左手很弱，甚至可能受伤，nako说我看你胳膊状
 
 nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是有希望的，虽然nako瓶盖都拧不开，但是pay自己直播时也没拧开。</blockquote>
 
+
+
+*****
+
+####  cat1230  
+##### 425#       发表于 2022-7-13 08:58
+
+<blockquote>引用第422楼kria于2022-07-13 06:44发表的  :
+
+司机事故明黑她出不到live</blockquote>
+@kria
+
+啥意思呀
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
