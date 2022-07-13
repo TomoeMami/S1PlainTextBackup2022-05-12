@@ -4715,3 +4715,15 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 哪位能给个合法群的群号谢谢……QQ被封了7天</blockquote>
 708286973
 
+
+
+*****
+
+####  spector  
+##### 88920#       发表于 2022-7-13 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56632185&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-13 15:08</a>
+
+708286973</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">谢谢！
+
