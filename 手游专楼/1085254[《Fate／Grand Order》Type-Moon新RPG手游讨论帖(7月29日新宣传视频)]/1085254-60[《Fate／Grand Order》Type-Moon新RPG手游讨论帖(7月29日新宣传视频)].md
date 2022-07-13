@@ -5218,3 +5218,56 @@ ssy：夹馍，你也来啦
 后悔什么 大公强啊 我都喂圣杯了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不如我歪出来的三宝金钻头好使 还不如选梅芙黑狗之类的
 
+
+
+*****
+
+####  alucardcz  
+##### 88965#       发表于 2022-7-13 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636804&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:19</a>
+
+感觉不如我歪出来的三宝金钻头好使 还不如选梅芙黑狗之类的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这选择就不对  后面2个都是欧证 那肯定选欧症啊 
+
+顺便我看了看  我选的白枪呆
+
+*****
+
+####  qixinno2  
+##### 88966#       发表于 2022-7-13 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636843&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:21</a>
+
+你这选择就不对  后面2个都是欧证 那肯定选欧症啊 
+
+顺便我看了看  我选的白枪呆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望今年再发一张 或者给个机会让我重选一个
+
+*****
+
+####  黑上シグマ  
+##### 88967#       发表于 2022-7-13 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">112
+
+*****
+
+####  alucardcz  
+##### 88968#       发表于 2022-7-13 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636875&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-13 21:23</a>
+
+112</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 不愧是欧洲大佬 萌新不算重复的只有65个
+
+*****
+
+####  alucardcz  
+##### 88969#       发表于 2022-7-13 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636858&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:22</a>
+
+希望今年再发一张 或者给个机会让我重选一个</blockquote>
+胆子大点 不如桃一下能选限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
