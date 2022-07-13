@@ -4805,3 +4805,29 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 不开门呐，麻烦和群里说一声……</blockquote>
 你再加加，跟群里说了一嘴，管理员说没看到加群提示
 
+
+
+*****
+
+####  qixinno2  
+##### 88928#       发表于 2022-7-13 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了下自己的100石 滚了 还是看看周年出什么了
+
+*****
+
+####  angelooo  
+##### 88929#       发表于 2022-7-13 19:47
+
+ssy：夹馍，你也来啦
+
+*****
+
+####  alucardcz  
+##### 88930#       发表于 2022-7-13 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635641&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 19:46</a>
+
+看了下自己的100石 滚了 还是看看周年出什么了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 你怎么还有100石
+
