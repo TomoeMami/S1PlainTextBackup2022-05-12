@@ -10861,3 +10861,14 @@ ranun当时也凑了个広川恵一算是比较端水？然而最好听出道曲
 
 红特G还是相对不太致命又比较好消的对左，整体不拉
 
+
+
+*****
+
+####  fastary  
+##### 16018#       发表于 2022-7-13 22:54
+
+说毕业前到60w就改60人凸待还真改了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+要是能达到100w然后因为凸待来不齐100人而无法毕业就好了（做梦
+
