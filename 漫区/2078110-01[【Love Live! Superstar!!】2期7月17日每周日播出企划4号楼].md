@@ -5361,3 +5361,14 @@ nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是�
 
 先等动画质量吧，开播后宣传也不是不行
 
+
+
+*****
+
+####  cat1230  
+##### 435#       发表于 2022-7-13 20:01
+
+b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心心买票了，结果。。。买个屁<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

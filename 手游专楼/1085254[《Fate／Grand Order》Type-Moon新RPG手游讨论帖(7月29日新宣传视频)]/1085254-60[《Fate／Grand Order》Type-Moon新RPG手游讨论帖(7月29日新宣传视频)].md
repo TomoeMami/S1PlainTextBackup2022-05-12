@@ -4831,3 +4831,35 @@ ssy：夹馍，你也来啦
 看了下自己的100石 滚了 还是看看周年出什么了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 你怎么还有100石
 
+
+
+*****
+
+####  qixinno2  
+##### 88931#       发表于 2022-7-13 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635669&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 19:48</a>
+
+羡慕 你怎么还有100石</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">100石对非洲人来说就是三发绿方块十连
+
+*****
+
+####  alucardcz  
+##### 88932#       发表于 2022-7-13 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635724&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 19:53</a>
+
+100石对非洲人来说就是三发绿方块十连</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲  欧了那么多new还有100石 萌新刚刚又all in了 无事发生
+
+*****
+
+####  qixinno2  
+##### 88933#       发表于 2022-7-13 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635739&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 19:54</a>
+
+你不对劲  欧了那么多new还有100石 萌新刚刚又all in了 无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪来的那么多NEW 今年开始到现在只有四个啊
+
