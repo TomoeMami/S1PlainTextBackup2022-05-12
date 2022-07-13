@@ -5345,3 +5345,45 @@ ssy：夹馍，你也来啦
 我19年一年才5个五星20年也只有9个 纯粹是去年比较奇怪而已</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你应该把重复的也进去看看一共几个 
 
+
+
+*****
+
+####  qixinno2  
+##### 88977#       发表于 2022-7-13 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637256&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:48</a>
+
+你应该把重复的也进去看看一共几个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而我重复的没几个啊 基本都是一宝
+
+*****
+
+####  alucardcz  
+##### 88978#       发表于 2022-7-13 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637325&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:53</a>
+
+然而我重复的没几个啊 基本都是一宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你骗人 你可是有2宝王姐的人
+
+*****
+
+####  qixinno2  
+##### 88979#       发表于 2022-7-13 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637335&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:53</a>
+
+你骗人 你可是有2宝王姐的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你不是也有 而且你还有2宝芭娜娜
+
+*****
+
+####  alucardcz  
+##### 88980#       发表于 2022-7-13 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637369&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:56</a>
+
+你不是也有 而且你还有2宝芭娜娜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真这样那差的可能就多了 非萌小太阳和贞德都歪成4宝了
+
