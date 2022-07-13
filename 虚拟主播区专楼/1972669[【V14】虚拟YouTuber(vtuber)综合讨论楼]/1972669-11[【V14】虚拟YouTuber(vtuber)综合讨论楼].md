@@ -10799,3 +10799,16 @@ syl
 
 讲真，只是因为逆反就可以睁眼说瞎话到自己都信了挺好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 16012#       发表于 2022-7-13 20:29
+
+所以有时看微博粉丝对主播方向有意见转到控诉公司全责的时候就觉得，是真不知道粉丝混战也比较给压力的吗...？
+
+syl，看了VOLTACTION出道曲，PV质量和曲不错，花里胡哨的剪影微微有点P5味，歌对于术力口来说也算短了，但不难听，毕竟是RON嘛，
+
+ranun当时也凑了个広川恵一算是比较端水？然而最好听出道曲依然是 god sees all （我评）
+
