@@ -5329,3 +5329,14 @@ nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是�
 不是，都没几天第二季就播，这时候不应该宣传力度全开吗？ 比如声优倒数啥的，怎么现在静悄悄的？ 与其说鲤 ...</blockquote>
 看见雷达我还愣了半天是啥，原来是leader<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  光宗薫  
+##### 432#       发表于 2022-7-13 17:55
+
+果然车祸体型最大的受伤最严重
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
