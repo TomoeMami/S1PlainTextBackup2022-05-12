@@ -4694,3 +4694,12 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来一波强化本救一下菜B卡啊
 
+
+
+*****
+
+####  spector  
+##### 88918#       发表于 2022-7-13 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">哪位能给个合法群的群号谢谢……QQ被封了7天
+
