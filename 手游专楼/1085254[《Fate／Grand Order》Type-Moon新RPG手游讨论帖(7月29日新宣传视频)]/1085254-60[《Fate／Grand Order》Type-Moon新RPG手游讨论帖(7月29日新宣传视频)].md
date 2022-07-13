@@ -5076,3 +5076,91 @@ ssy：夹馍，你也来啦
 什么叫4星扔下去？4星不算今年7个月就一个班杨难道你看不出吗[f:2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">四星我都当不存在的 毕竟基本没什么用
 
+
+
+*****
+
+####  gpx234mqx  
+##### 88951#       发表于 2022-7-13 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636431&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:52</a>
+
+你的自选呢 我这呆毛还是抽村正时歪出来的 彩光剑就很心跳</blockquote>
+自选拿了金时
+
+*****
+
+####  alucardcz  
+##### 88952#       发表于 2022-7-13 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636445&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:54</a>
+
+四星我都当不存在的 毕竟基本没什么用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没毛病 我也当4星不存在  区别不大  new1比new5 天上地下的差距
+
+*****
+
+####  qixinno2  
+##### 88953#       发表于 2022-7-13 21:02
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 88954#       发表于 2022-7-13 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636452&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-13 20:54</a>
+
+自选拿了金时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">自选哪来的金时
+
+*****
+
+####  qixinno2  
+##### 88955#       发表于 2022-7-13 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636480&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 20:56</a>
+
+没毛病 我也当4星不存在  区别不大  new1比new5 天上地下的差距</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只NEW了四个啊 大公是自选的 真想给当时贪石头自选了大公的自己两拳
+
+*****
+
+####  gpx234mqx  
+##### 88956#       发表于 2022-7-13 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636570&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:03</a>
+
+自选哪来的金时</blockquote>
+那大概是小艾吧
+
+*****
+
+####  qixinno2  
+##### 88957#       发表于 2022-7-13 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636612&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-13 21:06</a>
+
+那大概是小艾吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88958#       发表于 2022-7-13 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636596&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:05</a>
+
+只NEW了四个啊 大公是自选的 真想给当时贪石头自选了大公的自己两拳 ...</blockquote>
+怪了。。我怎么没自选？ 我不可能选了个2宝的啊
+
+是以前的自选你没拿？
+
+*****
+
+####  qixinno2  
+##### 88959#       发表于 2022-7-13 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行 打完1001的俩幕间凑够了170 又混了10个石头
+
