@@ -4979,3 +4979,69 @@ ssy：夹馍，你也来啦
 
 我数了下80个五星
 
+
+
+*****
+
+####  qixinno2  
+##### 88942#       发表于 2022-7-13 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635970&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 20:12</a>
+
+鲜明对比  非洲人这次真的落下了悔恨的泪水</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">欧 羡慕 骑莫 魔王信长 大班扬 罗兰 尼基都是我没有的
+
+*****
+
+####  qixinno2  
+##### 88943#       发表于 2022-7-13 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635970&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 20:12</a>
+
+鲜明对比  非洲人这次真的落下了悔恨的泪水</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">顺便你敢把四星扔下去晒你的五星么
+
+*****
+
+####  qixinno2  
+##### 88944#       发表于 2022-7-13 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636176&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-13 20:30</a>
+
+开始统计了？
+
+我数了下80个五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇 五星是我的2倍还多6个
+
+*****
+
+####  qixinno2  
+##### 88945#       发表于 2022-7-13 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636043&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-13 20:18</a>
+
+我第一个五星是艳后</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高贵的红卡杀光炮 CV还是钉宫
+
+*****
+
+####  gpx234mqx  
+##### 88946#       发表于 2022-7-13 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636314&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:43</a>
+
+欧皇 五星是我的2倍还多6个</blockquote>
+至今没出呆毛傻巴
+
+*****
+
+####  alucardcz  
+##### 88947#       发表于 2022-7-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636307&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:43</a>
+
+顺便你敢把四星扔下去晒你的五星么</blockquote>
+你是不是2。。这是今年所有的new<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么叫4星扔下去？
+
