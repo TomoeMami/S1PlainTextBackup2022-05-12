@@ -5429,3 +5429,21 @@ ssy：夹馍，你也来啦
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">竟然不是只有主线的么
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 88986#       发表于 2022-7-13 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼大佬开始暴晒，真萌新瑟瑟发抖
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">迦摩想了半天还是放了，反正手里也没斯卡蒂，全力等周年了
+
+*****
+
+####  qixinno2  
+##### 88987#       发表于 2022-7-13 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而目前五星最少的还是我
+
