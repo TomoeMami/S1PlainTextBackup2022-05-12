@@ -10600,3 +10600,14 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 感觉毕业的都是想带粉丝一起再就业，对粉丝和主播也不是坏事。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 15997#       发表于 2022-7-13 11:25
+
+"亡くなったと同じ感じよ、ひまからすると、だっていないだもん。もうなんか…死んだよ本当に、どっかで楽しくやってるけど、にじさんじのライバーとしてはもう死んじゃったみたいなもんよ"
+
+阿葵如此坚持皮魂合一才是本人，令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
