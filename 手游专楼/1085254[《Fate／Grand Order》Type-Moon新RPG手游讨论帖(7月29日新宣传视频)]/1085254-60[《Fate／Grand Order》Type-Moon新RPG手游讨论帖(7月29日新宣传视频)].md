@@ -5271,3 +5271,15 @@ ssy：夹馍，你也来啦
 希望今年再发一张 或者给个机会让我重选一个</blockquote>
 胆子大点 不如桃一下能选限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 88970#       发表于 2022-7-13 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636936&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:27</a>
+
+欧羡慕 不愧是欧洲大佬 萌新不算重复的只有65个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狗萌新比我多那么多
+
