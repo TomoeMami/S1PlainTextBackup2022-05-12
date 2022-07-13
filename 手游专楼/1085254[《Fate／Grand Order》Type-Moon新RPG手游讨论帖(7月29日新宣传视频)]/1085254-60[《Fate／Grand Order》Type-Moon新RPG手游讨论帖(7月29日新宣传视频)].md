@@ -4863,3 +4863,76 @@ ssy：夹馍，你也来啦
 你不对劲  欧了那么多new还有100石 萌新刚刚又all in了 无事发生</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪来的那么多NEW 今年开始到现在只有四个啊
 
+
+
+*****
+
+####  qixinno2  
+##### 88934#       发表于 2022-7-13 20:00
+
+<img src="https://img.saraba1st.com/forum/202207/13/195938wg3aje0uwjukjuuu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (376.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-13 19:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">非洲人总共只有37个五星
+
+*****
+
+####  khxooo  
+##### 88935#       发表于 2022-7-13 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635818&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:00</a>
+非洲人总共只有37个五星</blockquote>
+你够我非？我入坑比你早，才38只<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88936#       发表于 2022-7-13 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635818&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 20:00</a>
+
+非洲人总共只有37个五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 这 前2排里11个是我都没的（
+
+*****
+
+####  qixinno2  
+##### 88937#       发表于 2022-7-13 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635889&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-13 20:06</a>
+
+你够我非？我入坑比你早，才38只</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/13/200810m7e6z6o05xt60e6x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-13 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202207/13/200817b2a4oszao48fs0pi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-13 20:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一个五星艾蕾
+
+*****
+
+####  qixinno2  
+##### 88938#       发表于 2022-7-13 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56635907&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 20:07</a>
+
+太欧了 这 前2排里11个是我都没的（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">但你有我没有的更多啊
+
