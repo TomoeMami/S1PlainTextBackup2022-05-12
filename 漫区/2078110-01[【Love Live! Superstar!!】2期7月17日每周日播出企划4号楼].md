@@ -5260,3 +5260,17 @@ nako现在开始征集自己掰手腕能赢的人，其实感觉和pay比还是�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  kria  
+##### 426#       发表于 2022-7-13 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56627130&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-13 08:58</a>
+
+@kria
+
+啥意思呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">禁句來真是要我說出來...
+
