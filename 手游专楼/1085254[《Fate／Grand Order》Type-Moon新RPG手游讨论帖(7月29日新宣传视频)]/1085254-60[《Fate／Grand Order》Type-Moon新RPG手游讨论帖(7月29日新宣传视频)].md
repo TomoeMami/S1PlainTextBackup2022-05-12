@@ -4793,3 +4793,15 @@ https://www.bilibili.com/video/BV1bt4y1b7NB</blockquote>
 又给周年垫了一单.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 88927#       发表于 2022-7-13 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56634465&amp;ptid=1085254" target="_blank">spector 发表于 2022-7-13 17:58</a>
+
+不开门呐，麻烦和群里说一声……</blockquote>
+你再加加，跟群里说了一嘴，管理员说没看到加群提示
+
