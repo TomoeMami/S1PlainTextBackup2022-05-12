@@ -10812,3 +10812,43 @@ syl，看了VOLTACTION出道曲，PV质量和曲不错，花里胡哨的剪影�
 
 ranun当时也凑了个広川恵一算是比较端水？然而最好听出道曲依然是 god sees all （我评）
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16013#       发表于 2022-7-13 20:57
+
+<img src="https://img.saraba1st.com/forum/202207/13/205505mgmpu68mbxbcf76p.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園】始動!! 加賀美大附属高校【にじさんじ:加賀美ハヤト】-1.png.png</strong> (214.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-13 20:55 上传
+
+社长第三抽合计440星，一个不算太拉的捕手，一个红特G，整体面板还行
+
+*****
+
+####  fastary  
+##### 16014#       发表于 2022-7-13 20:58
+
+为什么出道曲这么喜欢rap<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+整体来说还行，但是总觉得有些杂乱，感觉不如之前玩过的众偶像音游主题曲（i7、歌王etc）……耐听<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16015#       发表于 2022-7-13 20:59
+
+社长抽的卡平凡，不过A组的监督不太强，想追上不难
+
+*****
+
+####  Suny08  
+##### 16016#       发表于 2022-7-13 21:00
+
+440应该历史倒二了，比舞元第一年就高40
+

@@ -5045,3 +5045,34 @@ ssy：夹馍，你也来啦
 
 什么叫4星扔下去？
 
+
+
+*****
+
+####  qixinno2  
+##### 88948#       发表于 2022-7-13 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636388&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-13 20:48</a>
+
+至今没出呆毛傻巴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的自选呢 我这呆毛还是抽村正时歪出来的 彩光剑就很心跳
+
+*****
+
+####  gpx234mqx  
+##### 88949#       发表于 2022-7-13 20:54
+
+我今年才4个new五星
+
+*****
+
+####  qixinno2  
+##### 88950#       发表于 2022-7-13 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636390&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 20:49</a>
+
+你是不是2。。这是今年所有的new
+
+什么叫4星扔下去？4星不算今年7个月就一个班杨难道你看不出吗[f:2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">四星我都当不存在的 毕竟基本没什么用
+
