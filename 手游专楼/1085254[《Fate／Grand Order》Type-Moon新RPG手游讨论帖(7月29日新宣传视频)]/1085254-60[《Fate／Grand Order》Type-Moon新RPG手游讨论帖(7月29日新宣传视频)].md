@@ -5283,3 +5283,65 @@ ssy：夹馍，你也来啦
 欧羡慕 不愧是欧洲大佬 萌新不算重复的只有65个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狗萌新比我多那么多
 
+
+
+*****
+
+####  alucardcz  
+##### 88971#       发表于 2022-7-13 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636986&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:30</a>
+
+狗萌新比我多那么多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是搞错了什么 我是开服老萌新 比你早了2年
+
+*****
+
+####  qixinno2  
+##### 88972#       发表于 2022-7-13 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637134&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:40</a>
+
+你是不是搞错了什么 我是开服老萌新 比你早了2年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狗萌新五星比我多28个 这个仇我记下了
+
+*****
+
+####  khxooo  
+##### 88973#       发表于 2022-7-13 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56636612&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-13 21:06</a>
+
+那大概是小艾吧</blockquote>
+？？？？？？？？你再想清楚一点？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 88974#       发表于 2022-7-13 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637170&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:43</a>
+
+狗萌新五星比我多28个 这个仇我记下了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照你半年5个的水平 大概也就多8个
+
+*****
+
+####  qixinno2  
+##### 88975#       发表于 2022-7-13 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637200&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-13 21:44</a>
+
+按照你半年5个的水平 大概也就多8个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我19年一年才5个五星20年也只有9个 纯粹是去年比较奇怪而已
+
+*****
+
+####  alucardcz  
+##### 88976#       发表于 2022-7-13 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56637228&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-13 21:47</a>
+
+我19年一年才5个五星20年也只有9个 纯粹是去年比较奇怪而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你应该把重复的也进去看看一共几个 
+
