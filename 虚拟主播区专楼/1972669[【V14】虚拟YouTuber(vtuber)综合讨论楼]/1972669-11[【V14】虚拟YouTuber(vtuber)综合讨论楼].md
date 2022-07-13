@@ -10611,3 +10611,32 @@ VTA二期比一期不管是凝聚力还是整体水平还是临时立绘的质�
 
 阿葵如此坚持皮魂合一才是本人，令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 15998#       发表于 2022-7-13 11:51
+
+美园聪怎么没了，换了个英文名的……还能改名出道的吗
+
+*****
+
+####  毛头小希  
+##### 15999#       发表于 2022-7-13 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56629648&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-13 11:51</a>
+
+美园聪怎么没了，换了个英文名的……还能改名出道的吗</blockquote>
+セラフ・ダズルガーデン
+
+ダズル=耀眼的、美的
+
+ガーデン=園
+
+セラフ=智天使，引申為聡
+
+从别的地方看到的
+
+可以这很虚拟
+
