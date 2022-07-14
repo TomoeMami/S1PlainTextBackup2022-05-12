@@ -5548,3 +5548,12 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 延期感觉会亏吧，场地器材人员安排啥的都下本了，硬着头皮上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老1.5  
+##### 445#       发表于 2022-7-14 23:29
+
+延期亏损挺大的，而且艺人档期又要重新商量，很麻烦。反正没两天了，叔叔不至于太背吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
