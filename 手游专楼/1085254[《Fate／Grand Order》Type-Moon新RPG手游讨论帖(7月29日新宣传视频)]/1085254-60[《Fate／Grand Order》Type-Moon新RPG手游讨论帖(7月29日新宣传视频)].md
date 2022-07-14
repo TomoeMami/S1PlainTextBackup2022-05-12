@@ -5479,3 +5479,12 @@ ssy：夹馍，你也来啦
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  黑上シグマ  
+##### 88991#       发表于 2022-7-14 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这辈子都不会全图鉴的，什么阿福啦NS精啦有多远滚多远
+
