@@ -5539,3 +5539,12 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 赶紧延期，要不亏死
 
+
+
+*****
+
+####  cat1230  
+##### 444#       发表于 2022-7-14 23:10
+
+延期感觉会亏吧，场地器材人员安排啥的都下本了，硬着头皮上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
