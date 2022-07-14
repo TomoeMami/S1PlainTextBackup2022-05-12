@@ -11047,3 +11047,14 @@ en男优遇说应 ...</blockquote>
 
 前几天还看到有人说抽出了4个天才，两个二年的，两个三年的
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16036#       发表于 2022-7-14 23:37
+
+感觉大叔的推文还是太直球了缺乏现实感，还是莎乐美的比较有适度的油腻感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
