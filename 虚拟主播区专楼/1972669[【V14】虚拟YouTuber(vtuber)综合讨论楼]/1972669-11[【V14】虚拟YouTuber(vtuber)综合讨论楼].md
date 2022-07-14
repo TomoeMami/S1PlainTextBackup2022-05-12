@@ -10881,3 +10881,23 @@ ranun当时也凑了个広川恵一算是比较端水？然而最好听出道曲
 
 德比的日程表怎么都要夜见帮忙做了，是不是当莎乐美太忙了本体号经营不过来了，看来一姐不好当啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 16020#       发表于 2022-7-14 16:49
+
+感觉霓虹疫情又严重了，nijifes是不是什么玄学武器啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  两仪式29  
+##### 16021#       发表于 2022-7-14 16:49
+
+虽然直播时间确实没有重合，但是印象中莎乐美直播的日子，晚间档有几次德比也直播了的。考虑到德比的嗓子是战损状态，实在很难能想象同一天连开两场直播<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
