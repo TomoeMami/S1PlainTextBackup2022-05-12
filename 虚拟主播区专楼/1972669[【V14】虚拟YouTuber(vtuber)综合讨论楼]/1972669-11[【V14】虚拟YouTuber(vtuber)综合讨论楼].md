@@ -11027,3 +11027,14 @@ en男优遇说应 ...</blockquote>
 
 另外，虽然我也很想开玩笑是虹甲特供版，但大家都开挂等于还是看运气，总不可能整个培养阶段都全程脚本，完全想不出这么做的必要性，本来这种随机性强的游戏就会出现各种意想不到的发展
 
+
+
+*****
+
+####  Ketestrait  
+##### 16034#       发表于 2022-7-14 20:48
+
+油男这竟然有个天才，但是3年级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我第一次见到高年级里出天才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
