@@ -5488,3 +5488,14 @@ ssy：夹馍，你也来啦
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这辈子都不会全图鉴的，什么阿福啦NS精啦有多远滚多远
 
+
+
+*****
+
+####  空气蛹  
+##### 88992#       发表于 2022-7-14 13:31
+
+草，报box就都开始上浮了
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
