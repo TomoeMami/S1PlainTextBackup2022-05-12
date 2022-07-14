@@ -11038,3 +11038,12 @@ en男优遇说应 ...</blockquote>
 
 我第一次见到高年级里出天才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gaiadc  
+##### 16035#       发表于 2022-7-14 20:52
+
+前几天还看到有人说抽出了4个天才，两个二年的，两个三年的
+
