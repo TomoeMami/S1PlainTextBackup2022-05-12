@@ -10951,3 +10951,48 @@ ranun当时也凑了个広川恵一算是比较端水？然而最好听出道曲
 
 en男优遇说应该不存在
 
+
+
+*****
+
+####  Suny08  
+##### 16028#       发表于 2022-7-14 19:44
+
+<blockquote>格林卡罗尔 发表于 2022-7-14 19:38
+给了转生除了yugo只有vox，其他的算是二三号位，像是shu只有52星以后还可能被新生转生替代。
+
+en男优遇说应 ...</blockquote>
+还有社长那边 也是把王牌捕b给的ike 吧，感觉占比已经很高了，现在开的5队里有三队ace 都是嗯男
+
+*****
+
+####  alcoholic1000  
+##### 16029#       发表于 2022-7-14 19:48
+
+油男搞流媒体这么多年，怎么播数据高他不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/14/194657avlkyl6gygjgjzi5.png" referrerpolicy="no-referrer">
+
+<strong>速報】帝国立コーヴァス高校、1年目新入生★数ランキング歴代2位にランクイン！.png.png</strong> (312.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-14 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202207/14/194707oi2w2whnb9j3lik2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>転生OB米田選手を獲得.jpeg</strong> (441.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-14 19:47 上传
+
+米田已经不用说了，蓝特也都很够看
+
+*****
+
+####  渡鸦骑士  
+##### 16030#       发表于 2022-7-14 19:48
+
+你虹这肯定脚本安排好了吧（开玩笑）
+
