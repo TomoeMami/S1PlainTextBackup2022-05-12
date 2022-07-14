@@ -5555,3 +5555,37 @@ ssy：夹馍，你也来啦
 
 另外去年的泳装还准备不准备复刻了
 
+
+
+*****
+
+####  alucardcz  
+##### 88999#       发表于 2022-7-15 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56651591&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-7-15 00:24</a>
+
+攒了1000多石和100多护肤了....就等泳装了....
+
+另外去年的泳装还准备不准备复刻了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">大佬又要表演5宝限定了吗
+
+*****
+
+####  森兰丸  
+##### 89000#       发表于 2022-7-15 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56651702&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-15 00:40</a>
+
+大佬又要表演5宝限定了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">都过去1年多了....早就过了时效....萌新该玩点新捏他了
+
+*****
+
+####  alucardcz  
+##### 89001#       发表于 2022-7-15 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56651745&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-7-15 00:46</a>
+
+都过去1年多了....早就过了时效....萌新该玩点新捏他了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太震撼 忘不掉啊
+
