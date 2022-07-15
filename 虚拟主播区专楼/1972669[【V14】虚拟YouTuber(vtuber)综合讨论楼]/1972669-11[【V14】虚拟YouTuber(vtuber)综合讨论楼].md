@@ -11207,3 +11207,21 @@ vspo的3d真是能拖一年是一年，23年秋天都不一定；有进出海外
 
 伪装成loading的现场实演<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  Ketestrait  
+##### 16050#       发表于 2022-7-15 20:35
+
+突然开始打牌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  winda  
+##### 16051#       发表于 2022-7-15 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真白玩游戏王，nrk玩vg和游戏王，结果最后还是找了柴卡，mnnt真不熟
+
