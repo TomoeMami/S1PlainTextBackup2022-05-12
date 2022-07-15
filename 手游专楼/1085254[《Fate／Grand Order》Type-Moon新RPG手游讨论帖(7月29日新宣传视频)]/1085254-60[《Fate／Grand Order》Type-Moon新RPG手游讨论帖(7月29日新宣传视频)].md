@@ -5589,3 +5589,12 @@ ssy：夹馍，你也来啦
 都过去1年多了....早就过了时效....萌新该玩点新捏他了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太震撼 忘不掉啊
 
+
+
+*****
+
+####  qixinno2  
+##### 89002#       发表于 2022-7-15 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 总感觉池子里的伽摩在骗我扔石头啊 好想去抽
+
