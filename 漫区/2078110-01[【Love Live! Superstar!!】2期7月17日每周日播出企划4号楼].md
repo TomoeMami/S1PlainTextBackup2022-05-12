@@ -5605,3 +5605,14 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Karin11974  
+##### 450#       发表于 2022-7-15 15:57
+
+真骨折的话对以后跳舞也有影响吧，不要成了系列第二个瘸子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
