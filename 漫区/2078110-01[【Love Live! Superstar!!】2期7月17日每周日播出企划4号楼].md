@@ -5557,3 +5557,15 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 延期亏损挺大的，而且艺人档期又要重新商量，很麻烦。反正没两天了，叔叔不至于太背吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kria  
+##### 446#       发表于 2022-7-15 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56649368&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-14 21:21</a>
+
+内田弟感染新冠了，BML SP参演再少一人，干脆延期吧</blockquote>
+变了 vtuber live 雄马每次吃女声优陪睡因果报应
+
