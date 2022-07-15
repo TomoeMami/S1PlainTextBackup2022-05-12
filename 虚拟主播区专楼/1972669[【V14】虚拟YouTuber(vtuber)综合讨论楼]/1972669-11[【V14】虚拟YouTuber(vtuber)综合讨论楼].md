@@ -11117,3 +11117,21 @@ en男优遇说应 ...</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202207/15/162907fpydolxyeldymx55.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16041#       发表于 2022-7-15 17:43
+
+悲报：豆猫高校，地区首轮败退
+
+*****
+
+####  gaiadc  
+##### 16042#       发表于 2022-7-15 17:47
+
+豆猫的战场决策还不错，不至于血压上升
+
+8表的流打不是好选择，不过本人也知道是在赌
+
