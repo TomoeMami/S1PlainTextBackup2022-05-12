@@ -5712,3 +5712,36 @@ google再抽风怕不是信用卡战士都当不了了
 
 翻页
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89014#       发表于 2022-7-15 23:40
+
+ 本帖最后由 Jamaisvu 于 2022-7-15 23:45 编辑 
+
+今天预告的两套英灵礼装都挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/15/232757bmf5ppjbj4rju6af.jpg" referrerpolicy="no-referrer">
+
+<strong>1657898784865.jpg</strong> (449.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-15 23:27 上传
+
+5.5平安京风格的妖兰，挺精致的，choco老师的画工一贯地令人安心。
+
+<img src="https://img.saraba1st.com/forum/202207/15/232759knhhwtbeoe1tghtj.jpg" referrerpolicy="no-referrer">
+
+<strong>1657898788268.jpg</strong> (424.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-15 23:27 上传
+
+2.5风格的机神土方，视觉上很有冲击力，余湖裕辉老师曾经画过真魔神zero的漫画，画起机设来依然得心应手。
+
+（看剪影的时候我以为是四只手机器人，还当是项羽呢...没想到是土方。据说土方宝具好像借鉴了机战OG的大地神？）
+
