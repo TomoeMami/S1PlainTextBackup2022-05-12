@@ -5718,3 +5718,27 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 462#       发表于 2022-7-15 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56660756&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-15 18:56</a>
+历代好像确实没人点理工这方面的技能，这次一下来了俩
+
+  -- 来自 能搜索的 Stage1官方 Android客户 ...</blockquote>
+不至于吧，至少虹的璃奈应该算是吧
+
+*****
+
+####  lj205  
+##### 463#       发表于 2022-7-15 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56660756&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-15 18:56</a>
+历代好像确实没人点理工这方面的技能，这次一下来了俩
+
+  -- 来自 能搜索的 Stage1官方 Android客户 ...</blockquote>
+那也不会，隔壁不是做了即时面具？那可不简单
+
