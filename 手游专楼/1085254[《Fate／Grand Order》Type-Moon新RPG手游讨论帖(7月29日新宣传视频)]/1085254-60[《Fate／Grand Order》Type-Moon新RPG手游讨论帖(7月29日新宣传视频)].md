@@ -5632,3 +5632,30 @@ TMD 总感觉池子里的伽摩在骗我扔石头啊 好想去抽</blockquote>
 这两天准备就上线签到了 不然我怕忍不住去点池子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正你3石就能搞定 有什么好怕的
 
+
+
+*****
+
+####  qixinno2  
+##### 89006#       发表于 2022-7-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56656578&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-15 13:15</a>
+
+反正你3石就能搞定 有什么好怕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狗萌新污蔑我这纯血非洲人
+
+*****
+
+####  exiaexa  
+##### 89007#       发表于 2022-7-15 13:41
+
+怕什么怕，一起来当信用卡战士啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 89008#       发表于 2022-7-15 13:46
+
+观察了一年还是不知道办什么信用卡好，代充摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
