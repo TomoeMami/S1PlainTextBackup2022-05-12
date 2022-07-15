@@ -11250,3 +11250,30 @@ vspo的3d真是能拖一年是一年，23年秋天都不一定；有进出海外
 
 田角！？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16055#       发表于 2022-7-15 21:02
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h47wv6krt4j20xp0irmyx.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h47wvcg4ojj20xu0iyju9.jpg" referrerpolicy="no-referrer">
+
+重大发表：小说漫画化
+
+*****
+
+####  布莱士·西伯利  
+##### 16056#       发表于 2022-7-15 21:02
+
+小说宣传，夏芽是立派的轻小说作家了。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">还有漫画？！感觉夏芽是正确使用虹资源的做法。
+
+*****
+
+####  carroy  
+##### 16057#       发表于 2022-7-15 21:09
+
+ed真是好品
+
