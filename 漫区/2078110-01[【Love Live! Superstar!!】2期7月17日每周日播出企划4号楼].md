@@ -5707,3 +5707,14 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 可可技术力算不算系列top级<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 461#       发表于 2022-7-15 18:56
+
+历代好像确实没人点理工这方面的技能，这次一下来了俩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
