@@ -5668,3 +5668,17 @@ TMD 总感觉池子里的伽摩在骗我扔石头啊 好想去抽</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家境贫寒 
 
+
+
+*****
+
+####  UNISONIA  
+##### 89010#       发表于 2022-7-15 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56656899&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-15 13:46</a>
+
+观察了一年还是不知道办什么信用卡好，代充摆烂了</blockquote>
+原生JCB&gt;非原生JCB&gt;跨区
+
+主要现在日元跌了以后好像还是日元最低？美卡正常的卡还是要79.99刀吧
+
