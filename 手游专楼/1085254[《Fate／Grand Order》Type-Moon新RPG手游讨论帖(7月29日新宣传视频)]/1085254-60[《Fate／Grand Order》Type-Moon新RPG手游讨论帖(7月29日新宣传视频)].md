@@ -5682,3 +5682,33 @@ TMD 总感觉池子里的伽摩在骗我扔石头啊 好想去抽</blockquote>
 
 主要现在日元跌了以后好像还是日元最低？美卡正常的卡还是要79.99刀吧
 
+
+
+*****
+
+####  里村紅葉  
+##### 89011#       发表于 2022-7-15 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56657890&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-7-15 15:09</a>
+
+原生JCB&gt;非原生JCB&gt;跨区
+
+主要现在日元跌了以后好像还是日元最低？美卡正常的卡还是要79.99刀吧 ...</blockquote>
+不知道开哪个银行的，常用的浦发好像没有JCB，其他银行的评价众说纷纭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 89012#       发表于 2022-7-15 16:24
+
+google再抽风怕不是信用卡战士都当不了了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  UNISONIA  
+##### 89013#       发表于 2022-7-15 16:42
+
+翻页
+
