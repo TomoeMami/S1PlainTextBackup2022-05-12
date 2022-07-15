@@ -5742,3 +5742,59 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
   -- 来自 能搜索的 Stage1官方 Android客户 ...</blockquote>
 那也不会，隔壁不是做了即时面具？那可不简单
 
+
+
+*****
+
+####  player3960  
+##### 464#       发表于 2022-7-15 19:24
+
+对哦，忘了天王寺，只记得她用纸板画面具，忘了还有个电子屏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 465#       发表于 2022-7-15 19:30
+
+结女的入学式在稳田神社斜坡上的旧青山医院旧址
+
+涩谷宫下公园屋顶 
+
+<img src="https://img.saraba1st.com/forum/202207/15/193019rooo9zoo89okowuw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9707206D-762D-462D-BFE0-769E96DA4701.jpeg</strong> (542.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-15 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202207/15/193026mqojqdtletaglqgt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3E36FCE2-DE07-4A75-9801-9576CAC6B1D6.jpeg</strong> (669.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-15 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202207/15/193026ur3fyuuu63vbdlpv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A9987E25-1CD4-4FBF-901D-748E1C26DF29.jpeg</strong> (669.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-15 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202207/15/193035r1tjzjjyia1alzn5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4187D66E-BA62-45C5-A229-649C3BC876AA.jpeg</strong> (488.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-15 19:30 上传
+
