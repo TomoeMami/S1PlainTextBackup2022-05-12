@@ -11398,3 +11398,24 @@ sskパンパカパンダ高校 第一抽超级大暴死
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个三角优华，巴布太郎加入vshojojp
 
+
+
+*****
+
+####  Ketestrait  
+##### 16069#       发表于 2022-7-16 15:02
+
+ 本帖最后由 Ketestrait 于 2022-7-16 15:07 编辑 
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h48s8atl1vj20xv0j1n3a.jpg" referrerpolicy="no-referrer">
+
+从现在开始你就是Vox Yashiro了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 16070#       发表于 2022-7-16 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得数据还行。
+ヴァシロ？！
+
