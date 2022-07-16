@@ -11707,3 +11707,45 @@ W型嘴，高压瞪眼什么的全继承了
 找到了。。
 [https://www.youtube.com/watch?v=UZpcLq2yiDE](https://www.youtube.com/watch?v=UZpcLq2yiDE)
 
+
+
+*****
+
+####  Achlys  
+##### 16098#       发表于 2022-7-16 21:42
+
+ 本帖最后由 Achlys 于 2022-7-16 21:45 编辑 
+
+风怒
+
+*****
+
+####  Achlys  
+##### 16099#       发表于 2022-7-16 21:43
+
+ 本帖最后由 Achlys 于 2022-7-16 21:44 编辑 
+
+l2d师
+
+IMG_20220716_144008.jpg
+(127.08 KB, 下载次数: )
+
+下载附件
+
+2022-7-16 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202207/16/214202ngkgze40g044ge0v.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 16100#       发表于 2022-7-16 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56673231&amp;ptid=1972669" target="_blank">icecry 发表于 2022-7-16 21:40</a>
+找到了。。
+
+https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
+<img src="https://p.sda1.dev/6/23f56e9db2760773f8793e937ccc3ada/CMP_20220716214646374.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
