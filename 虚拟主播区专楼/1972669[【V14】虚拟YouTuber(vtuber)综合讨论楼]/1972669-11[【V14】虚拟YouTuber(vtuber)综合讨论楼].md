@@ -11333,3 +11333,24 @@ ed真是好品
 有没有人能详细介绍下67的轶事，最近完整看了几场感觉坏女人雷达有报警倾向，此前就对放置孤立Noah略有耳闻 ...</blockquote>
 硬要说的话noah挂人那事的对应可能算，和QP一起连休直接把对挂人有所怀疑的人的目光从箱外转移到她们两个身上，也让这事糊弄过去难度升高。虽然之后运营还得特地说明挂的人在箱内让我又怀疑这手段是不是真的有效<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 16063#       发表于 2022-7-16 14:25
+
+【ご報告】
+この度VShojo Japan @VShojoJP に、Strategy Advisorとしてジョインすることとなりました！
+VShojoのタレントファーストな考え方にとても共感しています！
+VShojoメンバーのデビュー配信は明日12:00～です！
+応援よろしくお願いします🙏
+草，不愧是iwaiwa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 16064#       发表于 2022-7-16 14:27
+
+什么日本V圈再就业中心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
