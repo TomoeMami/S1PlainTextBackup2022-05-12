@@ -11930,3 +11930,12 @@ Zsyl，不算什么大事，三世的2.0也不是自己开窗披露的，不要�
 
 Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混得比原先好么<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 16118#       发表于 2022-7-17 00:50
+
+虹kr有任何留下来的价值吗
+
