@@ -11430,3 +11430,12 @@ sskパンパカパンダ高校 第一抽超级大暴死
 
 初配信开唱水平又高确实很吸睛<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Paisley  
+##### 16072#       发表于 2022-7-16 18:43
+
+现在出道都要自带乐队了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
