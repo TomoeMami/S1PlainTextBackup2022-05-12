@@ -11389,3 +11389,12 @@ sskパンパカパンダ高校 第一抽超级大暴死
 
 还是不够惨，作为今年吃瘪担当，一个红特都没，投手还有夺三振，可以说开局不利<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 16068#       发表于 2022-7-16 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个三角优华，巴布太郎加入vshojojp
+
