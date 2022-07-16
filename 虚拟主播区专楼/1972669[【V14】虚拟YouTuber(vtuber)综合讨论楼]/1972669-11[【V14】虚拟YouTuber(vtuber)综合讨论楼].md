@@ -11321,3 +11321,15 @@ ed真是好品
 有没有人能详细介绍下67的轶事，最近完整看了几场感觉坏女人雷达有报警倾向，此前就对放置孤立Noah略有耳闻 ...</blockquote>
 没看出坏女人，倒是noah孤狼社内不仲从艾玛她们出道前就看得出来。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16062#       发表于 2022-7-16 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56665615&amp;ptid=1972669" target="_blank">蓬莱广告 发表于 2022-7-16 03:25</a>
+
+有没有人能详细介绍下67的轶事，最近完整看了几场感觉坏女人雷达有报警倾向，此前就对放置孤立Noah略有耳闻 ...</blockquote>
+硬要说的话noah挂人那事的对应可能算，和QP一起连休直接把对挂人有所怀疑的人的目光从箱外转移到她们两个身上，也让这事糊弄过去难度升高。虽然之后运营还得特地说明挂的人在箱内让我又怀疑这手段是不是真的有效<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
