@@ -11419,3 +11419,14 @@ sskパンパカパンダ高校 第一抽超级大暴死
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得数据还行。
 ヴァシロ？！
 
+
+
+*****
+
+####  fastary  
+##### 16071#       发表于 2022-7-16 18:35
+
+虽然总说vta不能开腔打游戏纯杂谈能搞出啥，不过如果真是特长的话果然还是保留到出道直播威力才大……
+
+初配信开唱水平又高确实很吸睛<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
