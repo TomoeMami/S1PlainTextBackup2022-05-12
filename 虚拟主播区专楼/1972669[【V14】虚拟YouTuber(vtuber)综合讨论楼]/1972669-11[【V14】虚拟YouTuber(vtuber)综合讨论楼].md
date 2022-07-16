@@ -11908,3 +11908,25 @@ syl 三世新衣服，啊这<img src="https://static.saraba1st.com/image/smiley/
 
 说起来你楼怎么没人提这个，king捏人时把三世未公开新衣服溜出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/81aa858a0f406362a444661dc5e2f044/IMG_20220717_002548_289.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16116#       发表于 2022-7-17 00:34
+
+ 本帖最后由 alcoholic1000 于 2022-7-17 00:36 编辑 
+
+楼友可以这样考虑：他们不是把首发一年级给了en男，而是把首发一年级给了数字<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+Syl，发现Inlaid（新人的出道曲）的录制和其他版权都在Nijisanji，并没有代理发行
+
+Zsyl，不算什么大事，三世的2.0也不是自己开窗披露的，不要用2022的眼光看待还活在2018的管人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  两仪式29  
+##### 16117#       发表于 2022-7-17 00:38
+
+Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混得比原先好么<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
