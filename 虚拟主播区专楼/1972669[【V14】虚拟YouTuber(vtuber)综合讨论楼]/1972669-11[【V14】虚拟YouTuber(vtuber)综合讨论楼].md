@@ -11819,3 +11819,35 @@ https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
 
 不过ymen套皮的话作为黛灰特色的池面低音炮、rp和人际关系（联动）基本上都不会再有……好像也没啥意思
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16109#       发表于 2022-7-16 23:13
+
+ 本帖最后由 alcoholic1000 于 2022-7-16 23:15 编辑 
+
+<img src="https://img.saraba1st.com/forum/202207/16/230132ps239h5ajxg5gojo.png" referrerpolicy="no-referrer">
+
+<strong>【DEBUT STREAM】 ✨Hello there, 드디어 과인이 왔다. 【서천해:Seo Cheon Hae】.png.png</strong> (159.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202207/16/231204tz7cdcbcy7wcw0ch.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>이름 | 한치호 .jpeg</strong> (622.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 23:12 上传
+
+虹元KR成员反抗军+1
+
+서천해/Seo Cheon Hae=한치호（ハン・チホ / 韓淄蝴 / Han Chiho）
+
+刚首播结束，这位也是找亲妈（第二套）画了转世后的皮
+[https://www.youtube.com/channel/UCzuTyYpY0G7Y7qUiB0K-obQ](https://www.youtube.com/channel/UCzuTyYpY0G7Y7qUiB0K-obQ)
+
