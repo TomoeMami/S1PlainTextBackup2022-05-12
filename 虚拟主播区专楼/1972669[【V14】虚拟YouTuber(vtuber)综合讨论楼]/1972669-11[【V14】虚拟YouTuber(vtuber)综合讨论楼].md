@@ -11464,3 +11464,14 @@ sskパンパカパンダ高校 第一抽超级大暴死
 
 感觉这个暴死了
 
+
+
+*****
+
+####  fastary  
+##### 16076#       发表于 2022-7-16 19:14
+
+初配信就不装了，好勇<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+vta时期就是这个混沌状态应该很多人都有心理准备了吧，不过有勇气在初配信就透露出来我还是很佩服的
+
