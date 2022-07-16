@@ -11475,3 +11475,16 @@ sskパンパカパンダ高校 第一抽超级大暴死
 
 vta时期就是这个混沌状态应该很多人都有心理准备了吧，不过有勇气在初配信就透露出来我还是很佩服的
 
+
+
+*****
+
+####  fastary  
+##### 16077#       发表于 2022-7-16 19:52
+
+前半还挺虚无的，小提琴一上来感觉整个就高评价了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+别说，四个人有两个音乐gachi势我还挺想看enkr认真搞男团能有什么效果的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+(删除)半周年纪念曲比en好听就是胜利(删除)
+
