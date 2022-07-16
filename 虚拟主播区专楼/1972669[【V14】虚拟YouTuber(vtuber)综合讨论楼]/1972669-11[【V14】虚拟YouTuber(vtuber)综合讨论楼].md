@@ -11991,3 +11991,30 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 谢拉到虹以后感觉比做谢拉的时候开心，而且成绩其实也比谢拉时候好吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢啦那会在b站是超新星级别的，和mea差不多热度
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16124#       发表于 2022-7-17 02:21
+
+比overidea时开心是真的，换四年前我怎么都想不到一辈子没联动过几个人的谢拉会和这个天天爽拉各路联动的企鹅是同一人物
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  winda  
+##### 16125#       发表于 2022-7-17 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56675586&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-7-17 01:01</a>
+谢拉到虹以后感觉比做谢拉的时候开心，而且成绩其实也比谢拉时候好吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en厉害的是en男又不是en女，一般凑数系en女论地位和当初的b站一霸没法比
+
+*****
+
+####  FlinN  
+##### 16126#       发表于 2022-7-17 05:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧阳靠换皮加接风嗯男俨然成为另一霸，能证明他很强吗
+
