@@ -11871,3 +11871,14 @@ https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
 
 不过整体比en男两首没那么有口水歌？的感觉，唱得好像也好一些，可能是日文听起来没英文那么容易听出重复吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 16112#       发表于 2022-7-17 00:14
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h49818kttyj206h03pab9.jpg" referrerpolicy="no-referrer">
+
+经过长达3个小时的表演，King终于正式开始游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
