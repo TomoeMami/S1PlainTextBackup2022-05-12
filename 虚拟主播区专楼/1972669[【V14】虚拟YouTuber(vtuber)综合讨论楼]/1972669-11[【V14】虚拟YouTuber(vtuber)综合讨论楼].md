@@ -11860,3 +11860,14 @@ https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
 
 论戏多留人还得是你king<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16111#       发表于 2022-7-17 00:08
+
+新人出道曲完整版也还是“好听，但没记忆点”的感觉
+
+不过整体比en男两首没那么有口水歌？的感觉，唱得好像也好一些，可能是日文听起来没英文那么容易听出重复吧
+
