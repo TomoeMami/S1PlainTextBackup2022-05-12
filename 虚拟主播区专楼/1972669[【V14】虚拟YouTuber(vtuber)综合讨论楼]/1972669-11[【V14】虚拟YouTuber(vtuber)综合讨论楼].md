@@ -11508,3 +11508,12 @@ vta时期就是这个混沌状态应该很多人都有心理准备了吧，不�
 
 二期看下来觉得VTA出身的人卖点之一是（不止是同期间的）人际关系
 
+
+
+*****
+
+####  winda  
+##### 16080#       发表于 2022-7-16 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">奏斗apexs7大师，valo钻石，不上不下的段位，分类到一般枪男里
+
