@@ -11979,3 +11979,15 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 
 虽然enkr想走偶像路线，不过目前还是“虹味”反而会显得比较有特点，二期的抖M君也是这样
 
+
+
+*****
+
+####  OldGlory  
+##### 16123#       发表于 2022-7-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56675586&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-7-17 01:01</a>
+
+谢拉到虹以后感觉比做谢拉的时候开心，而且成绩其实也比谢拉时候好吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢啦那会在b站是超新星级别的，和mea差不多热度
+
