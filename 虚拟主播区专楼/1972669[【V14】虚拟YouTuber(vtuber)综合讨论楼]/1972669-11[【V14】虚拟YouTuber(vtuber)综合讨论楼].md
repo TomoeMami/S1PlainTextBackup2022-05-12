@@ -11354,3 +11354,38 @@ VShojoメンバーのデビュー配信は明日12:00～です！
 
 什么日本V圈再就业中心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  永远喜欢  
+##### 16065#       发表于 2022-7-16 14:43
+
+<img src="https://img.saraba1st.com/forum/202207/16/144422hbhh33jkxee995yy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 14:44 上传
+
+这很多人呀 坐等qfmf了
+
+*****
+
+####  alcoholic1000  
+##### 16066#       发表于 2022-7-16 14:46
+
+sskパンパカパンダ高校 第一抽超级大暴死
+
+パンパカパンダ高校 第二抽有个赤見内185被ssk骂星数诈欺
+
+パンパカパンダ高校 三抽没有转生，有个带夺三振和调子极端的100佐藤，一个内气42，合计498
+
+*****
+
+####  gaiadc  
+##### 16067#       发表于 2022-7-16 14:49
+
+还是不够惨，作为今年吃瘪担当，一个红特都没，投手还有夺三振，可以说开局不利<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
