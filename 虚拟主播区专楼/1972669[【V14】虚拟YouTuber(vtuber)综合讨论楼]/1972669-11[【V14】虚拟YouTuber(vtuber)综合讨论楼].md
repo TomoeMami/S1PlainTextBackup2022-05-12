@@ -11623,3 +11623,87 @@ W型嘴，高压瞪眼什么的全继承了
 
 感受到了亲妈的爱
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 16091#       发表于 2022-7-16 21:30
+
+这不完全100%复活嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16092#       发表于 2022-7-16 21:31
+
+ 本帖最后由 alcoholic1000 于 2022-7-16 21:38 编辑 
+
+我超葛叶怎么哑成这样了，火畜这不立刻冲了enkr
+
+<img src="https://img.saraba1st.com/forum/202207/16/212758rbg7b3pxtab3tagp.png" referrerpolicy="no-referrer">
+
+<strong>【 パワプロ2022 】魔導学校神速高校始動【 #にじさんじ甲子園 】-1.png.png</strong> (167.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202207/16/212758yy2ihlfuxijjdxkc.png" referrerpolicy="no-referrer">
+
+<strong>【 パワプロ2022 】魔導学校神速高校始動【 #にじさんじ甲子園 】-2.png.png</strong> (187.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 21:27 上传
+
+神速高校 第一抽 源田285蓝特如图，共计637星居第四
+
+*****
+
+####  poipanchao  
+##### 16093#       发表于 2022-7-16 21:31
+
+不知道有没有楼友有同感
+
+三角小姐露脸直播的时候感觉咬字都差了，黑听的时候难懂了很多（我就是因为这个原因不看了）
+
+这皮套回去怎么感觉好像连咬字都复活了，黑听完全没问题
+
+*****
+
+####  icecry  
+##### 16094#       发表于 2022-7-16 21:31
+
+话说苏姐后来转生了没？
+
+*****
+
+####  Ketestrait  
+##### 16095#       发表于 2022-7-16 21:31
+
+さいね三姉妹再集结？不过这种个人势最常见的人一动就全身扭的live2d说实话看着挺难受的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+有一说一，不管再披什么皮，那个露露也回不来了。“もう死んだようなもんよ” by 葵中堂
+
+*****
+
+####  poipanchao  
+##### 16096#       发表于 2022-7-16 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56673144&amp;ptid=1972669" target="_blank">icecry 发表于 2022-7-16 21:31</a>
+
+话说苏姐后来转生了没？</blockquote>
+全部转生好了，三姐妹连顺序都没变
+
+*****
+
+####  icecry  
+##### 16097#       发表于 2022-7-16 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56673193&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-7-16 21:36</a>
+
+全部转生好了，三姐妹连顺序都没变</blockquote>
+找到了。。
+[https://www.youtube.com/watch?v=UZpcLq2yiDE](https://www.youtube.com/watch?v=UZpcLq2yiDE)
+
