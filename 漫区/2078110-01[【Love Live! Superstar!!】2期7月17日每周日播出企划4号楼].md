@@ -6060,3 +6060,43 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 
 可可生快！不管伤哪，永远支持🐟！
 
+
+
+*****
+
+####  lj205  
+##### 481#       发表于 2022-7-16 23:52
+
+就不能是住院？发照片都要经过事务所允许
+
+*****
+
+####  稀勢のささ  
+##### 482#       发表于 2022-7-16 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是在医院没法化妆
+
+*****
+
+####  aoaoaodedede  
+##### 483#       发表于 2022-7-16 23:58
+
+我寻思猜鱼住院了也不是啥好事啊
+
+*****
+
+####  player3960  
+##### 484#       发表于 2022-7-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56674894&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-07-16 23:53:29</a>
+可能是在医院没法化妆</blockquote>没法化妆，谷子没带，这张照片是之前b站发的那个视频吧，我记得是鲤鱼说早就拍好了忘发了，问大家想不想看想看就发出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑雪姫  
+##### 485#       发表于 2022-7-17 00:00
+
+昨天拍那个泥猴桃背景来说不像是在医院
+
