@@ -5869,3 +5869,20 @@ b站BML门票开售了，比我预期的便宜好多啊，本来应该开开心�
 鲤鱼还给奇异果推点赞</blockquote>
 修养？工商！
 
+
+
+*****
+
+####  lj205  
+##### 470#       发表于 2022-7-16 10:40
+
+<img src="https://img.saraba1st.com/forum/202207/16/103940wvayqlyj0nyqslwz.png" referrerpolicy="no-referrer">
+
+<strong>0EEEADE1-ACEF-4A84-A0C1-637733DA1615.png</strong> (493.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-16 10:39 上传
+
+8月11的公司团建还有的新环节安排
+
