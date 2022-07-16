@@ -11526,3 +11526,14 @@ vta时期就是这个混沌状态应该很多人都有心理准备了吧，不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">小提琴..海夜叉神
 
+
+
+*****
+
+####  Junchoon  
+##### 16082#       发表于 2022-7-16 20:51
+
+彩虹社突然发了B限通知，这是又和B站完成PY交易了？
+
+话说凛前辈好久没来了......
+
