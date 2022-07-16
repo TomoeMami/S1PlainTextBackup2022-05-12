@@ -11808,3 +11808,14 @@ https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
 
 感情好是好事啊。
 
+
+
+*****
+
+####  fastary  
+##### 16108#       发表于 2022-7-16 22:54
+
+人还没毕业呢已经开始畅想等半年ymen会不会也忍不住回来套皮了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+不过ymen套皮的话作为黛灰特色的池面低音炮、rp和人际关系（联动）基本上都不会再有……好像也没啥意思
+
