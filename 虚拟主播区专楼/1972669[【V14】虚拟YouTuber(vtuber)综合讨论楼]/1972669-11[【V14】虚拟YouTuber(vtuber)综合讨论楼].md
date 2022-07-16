@@ -11882,3 +11882,29 @@ https://www.youtube.com/watch?v=UZpcLq2yiDE</blockquote>
 
 经过长达3个小时的表演，King终于正式开始游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 16113#       发表于 2022-7-17 00:24
+
+嗯男现在几乎全是队里王牌，笑死，所有人都这么默契的把转生头牌给en我是真不信是凑巧啊
+
+*****
+
+####  FCCHua  
+##### 16114#       发表于 2022-7-17 00:28
+
+ 本帖最后由 FCCHua 于 2022-7-17 00:30 编辑 
+
+sky和星川终究还是来b限了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+syl 三世新衣服，啊这<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ryuuseigun  
+##### 16115#       发表于 2022-7-17 00:29
+
+说起来你楼怎么没人提这个，king捏人时把三世未公开新衣服溜出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/81aa858a0f406362a444661dc5e2f044/IMG_20220717_002548_289.jpg" referrerpolicy="no-referrer">
+
