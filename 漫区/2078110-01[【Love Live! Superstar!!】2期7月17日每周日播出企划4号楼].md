@@ -7902,3 +7902,12 @@ QQ图片20220717194656.jpg
 
 毕竟在拉板堇推眼里，堇完美无瑕，你个可可不仅不倒贴，还对堇态度差简直罪大恶极，完全忘了当年是堇先瞧不起学园偶像让可可不爽堇的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Erikas  
+##### 668#       发表于 2022-7-17 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日推上有人考证出土妹子住在原宿的高级公寓了
+

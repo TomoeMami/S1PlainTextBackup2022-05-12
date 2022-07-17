@@ -15211,3 +15211,85 @@ syl，直播间上面那个图好看啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想不起来nagisa是谁还行
 
+
+
+*****
+
+####  斗斗一号  
+##### 11991#       发表于 2022-7-17 20:50
+
+mea不敢看切片，能一起回顾切片就更有意思了
+
+*****
+
+####  yywzjsw  
+##### 11992#       发表于 2022-7-17 20:51
+
+这tm哪清楚了（记得的不看，不记得的看
+
+*****
+
+####  路人庚  
+##### 11993#       发表于 2022-7-17 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不好她一个都猜不到
+
+草，秒关<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么是顶级黑历史啊
+
+*****
+
+####  stageKK  
+##### 11994#       发表于 2022-7-17 20:51
+
+这是哪期？完全没印象啊
+
+*****
+
+####  stageKK  
+##### 11995#       发表于 2022-7-17 20:52
+
+草，怎么还急眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 11996#       发表于 2022-7-17 20:52
+
+ 本帖最后由 yywzjsw 于 2022-7-17 20:53 编辑 
+
+老早的了，18年的吧
+
+*****
+
+####  SNOWIMEA  
+##### 11997#       发表于 2022-7-17 20:52
+
+草，这个我听了好多次
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  路人庚  
+##### 11998#       发表于 2022-7-17 20:53
+
+ 本帖最后由 路人庚 于 2022-7-17 20:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“那时候我还很瘦”
+
+（⬆️这句我是引用的弹幕里的玩让子弹飞梗，不是你咩姐说的
+
+*****
+
+####  斗斗一号  
+##### 11999#       发表于 2022-7-17 20:53
+
+笑得太开心了
+
+*****
+
+####  stageKK  
+##### 12000#       发表于 2022-7-17 20:54
+
+“那时候我还很瘦”，你这肥羊！
+
