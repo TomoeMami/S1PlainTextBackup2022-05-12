@@ -12027,3 +12027,15 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 
 露露的新皮质量挺好的，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16128#       发表于 2022-7-17 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56675743&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-7-17 01:22</a>
+
+谢啦那会在b站是超新星级别的，和mea差不多热度</blockquote>
+我知道，但总觉得在B站的成绩十分水。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
