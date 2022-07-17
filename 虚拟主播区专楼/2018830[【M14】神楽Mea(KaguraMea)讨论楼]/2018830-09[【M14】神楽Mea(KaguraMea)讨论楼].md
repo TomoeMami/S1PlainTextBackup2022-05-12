@@ -248,3 +248,35 @@
 
 男粉？
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 12032#       发表于 2022-7-17 21:51
+
+ 本帖最后由 璃絵和花瑠 于 2022-7-17 21:52 编辑 
+
+男粉？……还是remake罢？
+
+*****
+
+####  路人庚  
+##### 12033#       发表于 2022-7-17 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一个自己调音的男粉唱的可以，不过没抽到（不过男粉还是用刚刚那个节目效果也行
+
+*****
+
+####  stageKK  
+##### 12034#       发表于 2022-7-17 21:56
+
+没有对比就没有伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 12035#       发表于 2022-7-17 22:00
+
+来了男粉
+
