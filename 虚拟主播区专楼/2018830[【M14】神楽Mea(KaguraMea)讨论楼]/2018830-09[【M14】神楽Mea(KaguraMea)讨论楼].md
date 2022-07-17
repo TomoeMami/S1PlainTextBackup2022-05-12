@@ -820,3 +820,26 @@ emmmmmmmmmmmmmmmmmm
 
 开心<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 12104#       发表于 2022-7-17 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">36个提督，这一对一电话估计要打3个半小时力
+
+*****
+
+####  yywzjsw  
+##### 12105#       发表于 2022-7-17 23:01
+
+5*36=180正好3小时，加上5个2分钟
+
+*****
+
+####  黒長直姫  
+##### 12106#       发表于 2022-7-17 23:02
+
+还一个小时截止呢 现在想聊还可以充值2000
+

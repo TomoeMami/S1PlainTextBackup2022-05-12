@@ -8088,3 +8088,22 @@ magnet:?xt=urn:btih:11014c23d387b2017abfa7d2e9d92067d322de9d
 
 四季那个玩意竟然还能同步神经，我愿称之为拉拉科技力最高表现
 
+
+
+*****
+
+####  Totokei  
+##### 687#       发表于 2022-7-17 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56684205&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-17 20:22</a>
+
+还有一点。前几代2季e1都没前情回顾吧..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">硬要说的话穗乃果的迪士尼歌剧也算前情回顾
+
+*****
+
+####  plazum  
+##### 688#       发表于 2022-7-17 23:05
+
+Five Japanese can win！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
