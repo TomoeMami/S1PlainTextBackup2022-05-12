@@ -14981,3 +14981,81 @@ syl，直播间上面那个图好看啊
 
 学拼音了呀
 
+
+
+*****
+
+####  斗斗一号  
+##### 11961#       发表于 2022-7-17 20:20
+
+这下是不是要加大班了。。
+
+*****
+
+####  路人庚  
+##### 11962#       发表于 2022-7-17 20:23
+
+要跟阿宅打2小时电话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 11963#       发表于 2022-7-17 20:24
+
+本来想问她些话的 但感觉她都回答了 已经没什么想说了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 11964#       发表于 2022-7-17 20:24
+
+才发现奖品还有小肥羊火锅底料 草
+
+*****
+
+####  掉头学姐  
+##### 11965#       发表于 2022-7-17 20:26
+
+我还以为会直播连麦呢
+
+*****
+
+####  十九号大侠  
+##### 11966#       发表于 2022-7-17 20:27
+
+直播连麦不怕炸弹人啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黒長直姫  
+##### 11967#       发表于 2022-7-17 20:27
+
+直播连mic早几百年不就ban了
+
+*****
+
+####  KL25001  
+##### 11968#       发表于 2022-7-17 20:27
+
+没有直播连麦啊，无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过也挺好，说不定听阿宅连麦更无聊
+
+*****
+
+####  yywzjsw  
+##### 11969#       发表于 2022-7-17 20:28
+
+ 本帖最后由 yywzjsw 于 2022-7-17 20:29 编辑 
+
+万一上了的人没梯子咋办（<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 11970#       发表于 2022-7-17 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这些提督都不像是没梯子的
+

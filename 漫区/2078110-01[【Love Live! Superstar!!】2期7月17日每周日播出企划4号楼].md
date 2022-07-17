@@ -7811,3 +7811,40 @@ QQ图片20220717194656.jpg
 我有预感，⭐二期绝对会咬一个超级打火机，我能感受到staff在靠亢奋的演出支撑或者说掩盖灵感的枯竭和剧情 ...</blockquote>
 已经被逼到开局是体育片的第二季模板了，先回顾，让对手吹逼下自己团，然后安排新人登场，新人开始加入犹豫，展示下我们体育系的底力，新人被征服加入。只能说京极是不忘初心，但缪那种蜜汁笑点，抖梗灵性的第二季开局完全看不到了。
 
+
+
+*****
+
+####  寒风夜  
+##### 660#       发表于 2022-7-17 20:22
+
+还有一点。前几代2季e1都没前情回顾吧..
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 661#       发表于 2022-7-17 20:22
+
+<img src="https://img.saraba1st.com/forum/202207/17/202154uyfsfna0y1nsd0dz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 20:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可堇人的终极梦想大概就是可可能对堇娇羞一回吧
+
+*****
+
+####  aoaoaodedede  
+##### 662#       发表于 2022-7-17 20:23
+
+感觉这一季动画怕真是有人调侃的“香樱传”了……
+
+不寄希望其他人能在拉人上有什么显著的作用了
+
+也不寄希望于所谓“团队感”了，毕竟现在的Liella!怎么看都更像一个社团<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
