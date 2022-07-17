@@ -8455,3 +8455,36 @@ twi:Deadnooodles
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 717#       发表于 2022-7-18 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688222&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-17 23:56</a>
+并不是“赢比赛更重要”而是“学园偶像要传递梦想和希望”，如果完全不带普通新生玩的话那就成了一群大佬 ...</blockquote>
+嘴上说传递梦想和希望，实际上全是比赛冲，比赛打，赢不了就哭呀洗，没大赛活不下去，完全看不到偶像以外的追求（堇和夏美可能还好点，虽然追的东西可能比大赛夺冠还让人失去梦想）。
+
+这点上虹阐述的一直很好，大家当偶像的时候也有别的事要做，星怎么就不好好学点。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 718#       发表于 2022-7-18 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688222&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-17 23:56</a>
+并不是“赢比赛更重要”而是“学园偶像要传递梦想和希望”，如果完全不带普通新生玩的话那就成了一群大佬 ...</blockquote>
+一期12话kanon：苦压西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 719#       发表于 2022-7-18 00:30
+
+想发点长篇感想了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

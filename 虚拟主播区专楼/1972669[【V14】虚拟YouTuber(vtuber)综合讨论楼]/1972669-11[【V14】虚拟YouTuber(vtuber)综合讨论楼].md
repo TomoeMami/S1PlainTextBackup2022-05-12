@@ -12317,3 +12317,14 @@ kenon这下肯定被看直播的人们记住了，那“可疑”特设网页直
 
 但黛灰这边就有很多活正因为是v搞的所以显得神回……最近越发觉得他毕业以后不当v真的很浪费啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 16157#       发表于 2022-7-18 00:24
+
+去shoto今天的b站直播看了下，数据好猛啊，n倍杀自己twitch老家
+
+话说泥潭没看见有人聊他的，还有vox之类的en男也是。那么大部队都在哪发病的？求指个路，去观察下生态<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
