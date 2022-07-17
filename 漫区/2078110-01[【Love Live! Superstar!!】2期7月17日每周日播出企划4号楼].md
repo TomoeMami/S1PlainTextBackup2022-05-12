@@ -7228,3 +7228,177 @@ https://twitter.com/kamatamanankotu/status/1548601020171055105</blockquote>
 
 from Liyuu
 
+
+
+*****
+
+####  凡人  
+##### 607#       发表于 2022-7-17 18:41
+
+香音传第二季1/12，樱小路算是一二期C位交接吧，其他二期生会继续让香音拉吗。我还是挺喜欢花田式笑话，四季往斜上方突破了我的预想。
+
+*****
+
+####  Piano-Forest  
+##### 608#       发表于 2022-7-17 18:41
+
+ 本帖最后由 Piano-Forest 于 2022-7-17 18:43 编辑 
+
+【💫CD情報①💫】
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+💫OP主題歌
+
+「WE WILL!!」
+
+8/3（水）発売✨
+
+ジャケットを公開🎉
+
+SPOT＆試聴動画も公開しました🎶
+
+🎥SPOT
+[https://youtu.be/1_QA2eoJWwk](https://youtu.be/1_QA2eoJWwk)
+
+🎥試聴動画
+[https://youtu.be/nSiUNjl3x20](https://youtu.be/nSiUNjl3x20)
+
+INDEXはこちら💿
+[https://www.lovelive-anime.jp/yuigaoka/music/cd18.php](https://www.lovelive-anime.jp/yuigaoka/music/cd18.php)
+<img src="https://p.sda1.dev/6/1b3074de110b484517b1df7f1896f4e9/20220717_183944.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/d6c95f25e8cfe420248d0dacd84eedf6/20220717_183947.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/21846e06c249456a04ba7105403b378b/20220717_183948.jpg" referrerpolicy="no-referrer">
+
+【💫CD情報②💫】
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+💫挿入歌シングル第一弾
+
+8/17（水）発売✨
+
+第1話挿入歌
+
+「Welcome to 僕らのセカイ」を収録♪
+
+【A盤】のジャケットも公開💐
+
+商品情報はこちら
+
+▶️[https://www.lovelive-anime.jp/yuigaoka/music/cd20.php](https://www.lovelive-anime.jp/yuigaoka/music/cd20.php)
+<img src="https://p.sda1.dev/6/329b70baa923488e6266814141aec0ef/20220717_184235.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 609#       发表于 2022-7-17 18:45
+
+只能说如果彻底转型搞笑番不整烂活花田还有翻身希望
+
+暂时先保留丫呼吸权吧，虽然不抱任何希望
+
+*****
+
+####  lj205  
+##### 610#       发表于 2022-7-17 18:45
+
+OP那衣服如果是皮衣的质感那还可以，问题是官方是不会舍得花钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 611#       发表于 2022-7-17 18:47
+
+6卷，共12话
+
+💫Blu-ray💫
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+Blu-rayシリーズ、9/28より発売決定🎉
+
+かのん&amp;きな子が飾る第1巻ジャケットを初公開🎸
+
+早期特典が貰える8/21までのご予約がオススメです🎁
+
+第2～6巻収録内容や法人特典なども要チェック📝
+
+詳細→[https://www.lovelive-anime.jp/yuigaoka/bd/](https://www.lovelive-anime.jp/yuigaoka/bd/)
+<img src="https://p.sda1.dev/6/79117cc0f4519ea478b218678aebaa5c/20220717_184615.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/b6947e0bd14cc951e4ce3ce1cff18d0c/bd07.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/ed1393913689d1c52405dba50a2aee3e/20220717_184623.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/12c6b658c48d9076b4629def1712ff02/20220717_184625.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/802e44f11f497c06b8502d9d203d95af/20220717_184626.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 612#       发表于 2022-7-17 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">个人直白的体验就是寄了。完全没变化的香音传，顺便土妹子传交接。比第一季第一集还舍弃故事逻辑，不知道在赶什么的叙事节奏，建议花田京极开创校园偶像喜剧片这个赛道，绝对无敌。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  仟音一心  
+##### 613#       发表于 2022-7-17 18:49
+
+甚至懒得改一下构图
+
+<img src="https://img.saraba1st.com/forum/202207/17/184852vwk49kb666wiz8k4.png" referrerpolicy="no-referrer">
+
+<strong>87213EAA-BD5E-469E-A5F6-79E5F45B20B0.png</strong> (44.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:48 上传
+
+A9C9713B-46F0-4516-B299-2996EFDD1A68.jpeg
+(37.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202207/17/184857rqdvqvnyyzzlxnnv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 614#       发表于 2022-7-17 18:49
+
+💫新規ビジュアル公開💫
+
+TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニング楽曲衣装のイラストを初公開❗✨
+
+今後こちらのイラストはグッズや様々なところで展開していきますのでぜひぜひチェックしてくださいね💖
+<img src="https://p.sda1.dev/6/396db80bbd33e24e78da07912116ee23/20220717_184801.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 615#       发表于 2022-7-17 18:51
+
+啊这。。9月28发售啊，虹那会bd才发售第3卷，榨干ll人了
+
+*****
+
+####  灼眼的夏娜酱  
+##### 616#       发表于 2022-7-17 18:51
+
+尴尬，还想着看生放，结果下午一觉睡到六点二十<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在生肉有看的地方吗？
+
