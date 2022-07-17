@@ -12128,3 +12128,27 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">我能唱衰吗
 
+
+
+*****
+
+####  free  
+##### 16137#       发表于 2022-7-17 19:34
+
+管人下乡，让我想起了小时候小区里放露天电影了
+
+<img src="https://img.saraba1st.com/forum/202207/17/193424bqxeqyd2sd4pe667.jpg" referrerpolicy="no-referrer">
+
+<strong>露天演出.jpg</strong> (339.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 19:34 上传
+
+*****
+
+####  lhawp  
+##### 16138#       发表于 2022-7-17 19:39
+
+一段时间没看，怎么感觉理芽变可爱了好多
+

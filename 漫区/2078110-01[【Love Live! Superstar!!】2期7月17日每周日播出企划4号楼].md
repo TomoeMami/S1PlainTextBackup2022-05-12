@@ -7626,3 +7626,122 @@ TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニン
 
 其实现在也没很多人想看模板化组团流程了，还不如一出来就是组好的团，然后拍沙吊日常（对，又是偶像大师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  iuhehc  
+##### 643#       发表于 2022-7-17 19:31
+
+感觉这一期香千可香不太会出现了，官方要卖土香cp
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 644#       发表于 2022-7-17 19:32
+
+<img src="https://img.saraba1st.com/forum/202207/17/193155qr3riszm7mcw5hrd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (663.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 19:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上衣明明还行，但是这裙子实在是……有点欣赏不来，不知道实际穿上身会咋样
+
+*****
+
+####  iuhehc  
+##### 645#       发表于 2022-7-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683431&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-17 19:32</a>
+上衣明明还行，但是这裙子实在是……有点欣赏不来，不知道实际穿上身会咋样
+
+ ...</blockquote>
+这鞋子保不准又是找个鞋套套上去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rexzhanghao  
+##### 646#       发表于 2022-7-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683385&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-17 19:29</a>
+
+其实现在也没很多人想看模板化组团流程了，还不如一出来就是组好的团，然后拍沙吊日常（对，又是偶像大师[f ...</blockquote>
+等百万动画呗
+
+*****
+
+####  寒风夜  
+##### 647#       发表于 2022-7-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683385&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-17 19:29</a>
+
+其实现在也没很多人想看模板化组团流程了，还不如一出来就是组好的团，然后拍沙吊日常（对，又是偶像大师[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">确实，流程太特么多多多了，这拉人流程真不如一开始组好了再。
+
+*****
+
+####  老1.5  
+##### 648#       发表于 2022-7-17 19:33
+
+可香不是第一季就... ...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 649#       发表于 2022-7-17 19:33
+
+可香不是第一季就... ...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 650#       发表于 2022-7-17 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683385&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-17 19:29</a>
+
+其实现在也没很多人想看模板化组团流程了，还不如一出来就是组好的团，然后拍沙吊日常（对，又是偶像大师[f ...</blockquote>
+等等，坛友你咋又开了个新号...
+
+*****
+
+####  仟音一心  
+##### 651#       发表于 2022-7-17 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683313&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-17 19:21</a>
+越来越感觉ll被校园框住了</blockquote>
+水团有《幻日的夜羽》了，虹团有《红莲的剑姬》了，星团要不走异世界得了，反正live一样开。
+
+*****
+
+####  寒风夜  
+##### 652#       发表于 2022-7-17 19:40
+
+ 本帖最后由 寒风夜 于 2022-7-17 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683476&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 19:35</a>
+
+水团有《幻日的夜羽》了，虹团有《红莲的剑姬》了，星团要不走异世界得了，反正live一样开。 ...</blockquote>
+真是打江山容易守江山难啊。
+
+*****
+
+####  JustW_3  
+##### 653#       发表于 2022-7-17 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683474&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-17 19:34</a>
+等等，坛友你咋又开了个新号...</blockquote>
+外野爱讨论被小黑屋了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 654#       发表于 2022-7-17 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推特上看可堇人发疯（褒义）还是挺乐的，坐等发图了
+
