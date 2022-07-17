@@ -8058,3 +8058,33 @@ magnet:?xt=urn:btih:11014c23d387b2017abfa7d2e9d92067d322de9d
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秒星何必用蒜，隔壁shine post就行
 
+
+
+*****
+
+####  starring  
+##### 684#       发表于 2022-7-17 22:50
+
+看完第一集熟肉，对话台词好怪，好几段都有点问非所答
+
+二季从一开始就没抱有期待，结果还是做成这个样子，三癞子干脆直接做12个4分钟Live，剩下的资源都投入别的片场，花田大师还是赶紧跑专心去做京吹3<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 685#       发表于 2022-7-17 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56686640&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-17 22:24</a>
+
+所以叔叔那边是连港澳台都没有了么
+
+—— 来自 S1Fun</blockquote>
+要看明天，动画疯也要明天
+
+*****
+
+####  凡人  
+##### 686#       发表于 2022-7-17 22:57
+
+四季那个玩意竟然还能同步神经，我愿称之为拉拉科技力最高表现
+
