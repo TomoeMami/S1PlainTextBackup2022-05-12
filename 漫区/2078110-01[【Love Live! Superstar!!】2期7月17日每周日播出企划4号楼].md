@@ -7920,3 +7920,15 @@ QQ图片20220717194656.jpg
 
 其实我也挺希望可可对堇态度好点的，毕竟经过第一季第十话后两人已经冰释前嫌了，第二季在摆臭脸真的说不过去了，对可可自身人气也不是好事。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 670#       发表于 2022-7-17 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56684695&amp;ptid=2078110" target="_blank">tagerto 发表于 2022-7-17 20:46</a>
+
+毕竟在拉板堇推眼里，堇完美无瑕，你个可可不仅不倒贴，还对堇态度差简直罪大恶极，完全忘了当年是堇先瞧不 ...</blockquote>
+典型看一个问题只站在一方角度嘛，当时7集我记得贴吧氛围也差不多，虽然我也觉得7集当时的剧情算是用力过猛了点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

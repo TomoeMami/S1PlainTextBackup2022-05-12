@@ -122,3 +122,26 @@
 
 这也坚持设定是吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12016#       发表于 2022-7-17 21:23
+
+失忆系主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 12017#       发表于 2022-7-17 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大概是你咩姐不想再播游戏的原因（自己觉得自己太蠢了
+
+*****
+
+####  stageKK  
+##### 12018#       发表于 2022-7-17 21:27
+
+痴汉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
