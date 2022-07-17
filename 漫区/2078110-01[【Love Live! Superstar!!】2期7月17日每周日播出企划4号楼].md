@@ -6872,3 +6872,219 @@ from Liyuu
 
 要唱歌啦
 
+
+
+*****
+
+####  JustW_3  
+##### 568#       发表于 2022-7-17 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离谱的节奏
+
+五人live拉新人
+
+*****
+
+####  寒风夜  
+##### 569#       发表于 2022-7-17 18:22
+
+我错了 居然有live
+
+*****
+
+####  iuhehc  
+##### 570#       发表于 2022-7-17 18:22
+
+这跟一期第一集比完全被暴打了感觉
+
+
+
+*****
+
+####  稀勢のささ  
+##### 571#       发表于 2022-7-17 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么玩意
+
+*****
+
+####  Aunn  
+##### 572#       发表于 2022-7-17 18:22
+
+前半挺好的，这Bpart什么玩意儿
+
+*****
+
+####  JustW_3  
+##### 573#       发表于 2022-7-17 18:23
+
+虽然知道要解释为什么加人、新人为什么加入，但这节奏好tm赶，而且live更加工具化了
+
+*****
+
+####  JustW_3  
+##### 574#       发表于 2022-7-17 18:24
+
+第一集已经成六人了
+
+*****
+
+####  hgcg-ix  
+##### 575#       发表于 2022-7-17 18:24
+
+“我不会放你跑的啦” ​​​​
+
+*****
+
+####  Franc  
+##### 576#       发表于 2022-7-17 18:24
+
+这节奏让我有一种第一集就要入4个的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 577#       发表于 2022-7-17 18:25
+
+唉……
+
+*****
+
+####  JustW_3  
+##### 578#       发表于 2022-7-17 18:25
+
+香音和新人的ed，香音solo
+
+*****
+
+####  iuhehc  
+##### 579#       发表于 2022-7-17 18:25
+
+ 本帖最后由 iuhehc 于 2022-7-17 18:28 编辑 
+
+比一期写的还要赶，虽然在这上面追求逻辑也没什么用，想不明白这个剧情
+
+*****
+
+####  寒风夜  
+##### 580#       发表于 2022-7-17 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56682731&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-17 18:22</a>
+
+这跟一期第一集比完全被暴打了感觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比那集更快版
+
+*****
+
+####  大哀之君  
+##### 581#       发表于 2022-7-17 18:25
+
+没看懂弹幕发什么疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hgcg-ix  
+##### 582#       发表于 2022-7-17 18:25
+
+夹脚（Ver.星团） ​​​​
+
+<img src="https://img.saraba1st.com/forum/202207/17/182454umtr9upofdozndct.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202207/17/182507cznvj5u5vzwy55vz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202207/17/182519knx3o36donzowcc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202207/17/182546vxpajawaqudwplhh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 18:25 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 583#       发表于 2022-7-17 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了让土妹子入团已经放弃逻辑了
+
+*****
+
+####  梶原ひかり  
+##### 584#       发表于 2022-7-17 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">香音已经掌握传销方法了...一期的裂啦成员也发现了冠军拼图缺少四个人
+
+*****
+
+####  ykyin09  
+##### 585#       发表于 2022-7-17 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田已经放飞自我抛弃逻辑了，接下来当搞笑番看算了吧
+
+*****
+
+####  寒风夜  
+##### 586#       发表于 2022-7-17 18:27
+
+这怎么看都是对着3次元写 直接开摆了
+
+*****
+
+####  稀勢のささ  
+##### 587#       发表于 2022-7-17 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田：我不好说
+
+*****
+
+####  cat1230  
+##### 588#       发表于 2022-7-17 18:28
+
+属于完全粉丝向，会动会说话就行，剧情约等于无<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕大部分都是不满，可以理解。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 589#       发表于 2022-7-17 18:29
+
+若菜四季アニメ前のイメージ「私に構わないで😒」
+
+実際のアニメの若菜四季「ファイトー💪😯」
+
+おもしろすぎるだろ…
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 590#       发表于 2022-7-17 18:30
+
+这样我反而希望直接摆吧，9个人也赢不了加人加到12吧，现在心态是看个乐了
+
+*****
+
+####  稀勢のささ  
+##### 591#       发表于 2022-7-17 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看看远处的3次元吧 哦豁 暂时没得看
+
