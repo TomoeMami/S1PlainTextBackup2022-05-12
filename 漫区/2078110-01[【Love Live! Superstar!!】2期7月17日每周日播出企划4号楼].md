@@ -7799,3 +7799,15 @@ QQ图片20220717194656.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 659#       发表于 2022-7-17 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683163&amp;ptid=2078110" target="_blank">府南河的姜太公 发表于 2022-7-17 19:09</a>
+
+我有预感，⭐二期绝对会咬一个超级打火机，我能感受到staff在靠亢奋的演出支撑或者说掩盖灵感的枯竭和剧情 ...</blockquote>
+已经被逼到开局是体育片的第二季模板了，先回顾，让对手吹逼下自己团，然后安排新人登场，新人开始加入犹豫，展示下我们体育系的底力，新人被征服加入。只能说京极是不忘初心，但缪那种蜜汁笑点，抖梗灵性的第二季开局完全看不到了。
+
