@@ -12080,3 +12080,18 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 
 <img src="https://img.saraba1st.com/forum/202207/17/115042cal6x6wcgwgcnn65.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16133#       发表于 2022-7-17 12:23
+
+ 本帖最后由 Ketestrait 于 2022-7-17 12:26 编辑 
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h49t4s57r9j20xr0iywka.jpg" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h49t3gidn5j20xl0j20xr.jpg" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h49t3jay9pj20xt0ixte6.jpg" referrerpolicy="no-referrer">
+
+牛姨第二抽，血泪的抉择！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
