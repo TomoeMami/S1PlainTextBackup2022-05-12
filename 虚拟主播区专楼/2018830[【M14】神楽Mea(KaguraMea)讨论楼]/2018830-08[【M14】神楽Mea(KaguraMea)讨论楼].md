@@ -14896,3 +14896,35 @@ b博还行
 
 大航海要破200了
 
+
+
+*****
+
+####  黒長直姫  
+##### 11950#       发表于 2022-7-17 20:01
+
+你别急
+
+*****
+
+####  斗斗一号  
+##### 11951#       发表于 2022-7-17 20:04
+
+虽然这首歌已经听吐了，但因为是mea，又听了一遍
+
+syl，直播间上面那个图好看啊
+
+*****
+
+####  璃絵和花瑠  
+##### 11952#       发表于 2022-7-17 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">低估了啊嗯。
+
+*****
+
+####  掉头学姐  
+##### 11953#       发表于 2022-7-17 20:09
+
+但她这首105好媚啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
