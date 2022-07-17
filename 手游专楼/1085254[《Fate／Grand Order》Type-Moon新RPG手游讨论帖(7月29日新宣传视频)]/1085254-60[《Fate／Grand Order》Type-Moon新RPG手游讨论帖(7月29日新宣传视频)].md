@@ -5763,3 +5763,22 @@ google再抽风怕不是信用卡战士都当不了了
 
 这次1001的幕间不错
 
+
+
+*****
+
+####  miro112233  
+##### 89017#       发表于 2022-7-17 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下周三八犬传活动结束还差10天就到周年了，估计给点蚊子腿直接周年预热了，感觉整个7月都在长草
+
+*****
+
+####  黑上シグマ  
+##### 89018#       发表于 2022-7-17 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56658013&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-15 15:20</a>
+
+不知道开哪个银行的，常用的浦发好像没有JCB，其他银行的评价众说纷纭 ...</blockquote>
+中行遗像猫你值得拥有
+
