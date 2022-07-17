@@ -14837,3 +14837,35 @@ b博还行
 
 热爱105度的你可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能安排你咩姐来一首孤勇者或者最伟大的作品啊（
 
+
+
+*****
+
+####  clvan_  
+##### 11943#       发表于 2022-7-17 19:22
+
+过气主播只能唱过气热曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cushaw  
+##### 11944#       发表于 2022-7-17 19:25
+
+这么在意数字不如向叔叔借点阴兵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黒長直姫  
+##### 11945#       发表于 2022-7-17 19:26
+
+真是吃X都赶不上X的
+
+*****
+
+####  黒長直姫  
+##### 11946#       发表于 2022-7-17 19:26
+
+草了 你咩这直播预约 看着是2W 点进去变1W9还行
+

@@ -7601,3 +7601,28 @@ TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニン
 
 还没看正片，看你们还有别处的发言，这第一集就寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 640#       发表于 2022-7-17 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越来越感觉ll被校园框住了
+
+*****
+
+####  JustW_3  
+##### 641#       发表于 2022-7-17 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683178&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 19:10</a>
+完全没必要，一个拉人的一个被拉的有什么好对照的？</blockquote>
+嗯……表现香音家的饮品真的好喝？（×）
+
+*****
+
+####  JustW_3  
+##### 642#       发表于 2022-7-17 19:29
+
+其实现在也没很多人想看模板化组团流程了，还不如一出来就是组好的团，然后拍沙吊日常（对，又是偶像大师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
