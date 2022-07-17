@@ -7955,3 +7955,20 @@ QQ图片20220717194656.jpg
 
 可可总是单方面对堇态度不好真的不是好事，要是堇对可可也是这态度就没啥问题。关键老是单方面，看的的确让人尴尬，不知道傻逼花田是不是故意的还是没意识到。这种塑造真对可可人气没正没意义 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 674#       发表于 2022-7-17 21:49
+
+<img src="https://img.saraba1st.com/forum/202207/17/214846dr9ozl5yurkh9i9u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 21:48 上传
+
+https://twitter.com/umeaoki/status/1548663597454491648
+
