@@ -7088,3 +7088,143 @@ from Liyuu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看看远处的3次元吧 哦豁 暂时没得看
 
+
+
+*****
+
+####  Enakina  
+##### 592#       发表于 2022-7-17 18:31
+
+不看的挺乐的吗，完全达到了我心中的“预期”了，你们在期待什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Franc  
+##### 593#       发表于 2022-7-17 18:31
+
+感觉这集下来表情包挺多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 594#       发表于 2022-7-17 18:31
+
+就这样吧，别再出一个恋回就行
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 595#       发表于 2022-7-17 18:31
+
+看完，喘不过气的节奏，新歌是惊喜但是不抓耳，曲风可能是想往原宿路线靠
+
+鲤鱼的ZERO还有蓝毛的道具让我笑了一下
+
+土妹配音听的我脑袋疼（有点接受不了尾音那个频率），香土可堇锁死的感觉
+
+后面不追了，等评价再慢慢补吧
+
+*****
+
+####  stygian  
+##### 596#       发表于 2022-7-17 18:31
+
+完全走这个路子也不是不行，就怕你后面还整烂活
+
+然而这是花田，不整活基本不可能<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+妈的
+
+*****
+
+####  寒风夜  
+##### 597#       发表于 2022-7-17 18:33
+
+ 本帖最后由 寒风夜 于 2022-7-17 18:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">转型颜艺搞笑番也比1那硬凑“大”的要行..不过怎么可能安稳下来呢
+
+*****
+
+####  JustW_3  
+##### 598#       发表于 2022-7-17 18:33
+
+值得一提的是编剧没把可可回上海这茬子忘了，有可可个人回的希望多了点
+
+*****
+
+####  Franc  
+##### 599#       发表于 2022-7-17 18:33
+
+会有追飞机吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 600#       发表于 2022-7-17 18:35
+
+ 本帖最后由 笋狐 于 2022-7-17 18:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么东西啊，套模板复读机懒得吐槽，这一个个的和打了兴奋剂一样，我好像不久前看过这种观感的作品，草，这不隔壁特利迦么
+
+
+
+*****
+
+####  iuhehc  
+##### 601#       发表于 2022-7-17 18:35
+
+要是不加人的话大把篇幅补可恋剧情吧，现在要加人要写新人磨合，留一话去写追飞机，花田能写成什么鬼样，不如不写
+
+*****
+
+####  黑雪姫  
+##### 602#       发表于 2022-7-17 18:36
+
+可可回国这伏笔竟然没丢，估计这季肯定要搞事。
+
+*****
+
+####  姜饼人  
+##### 603#       发表于 2022-7-17 18:36
+
+有鬼裤衩那味了，没拼音没剧情就发疯来救
+
+*****
+
+####  Piano-Forest  
+##### 604#       发表于 2022-7-17 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56682318&amp;ptid=2078110" target="_blank">Piano-Forest 发表于 2022-7-17 17:43</a>
+
+https://twitter.com/kamatamanankotu/status/1548601020171055105</blockquote>
+<img src="https://p.sda1.dev/6/855ba86f1ea459fbf23341c9a75833ec/20220717_183125.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Franc  
+##### 605#       发表于 2022-7-17 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56682885&amp;ptid=2078110" target="_blank">Piano-Forest 发表于 2022-7-17 18:36</a></blockquote>
+这图，可堇稳了
+
+*****
+
+####  JustW_3  
+##### 606#       发表于 2022-7-17 18:38
+
+秒で終わった～いいなぁ～
+ふわふわしてる💭
+
+2期 第1話ようやく始まりましたね🍨
+一緒に見てくれて嬉しいです、ありがとうございます♪
+来週も楽しみ🤍
+
+#Liella #lovelive
+
+from Liyuu
+
