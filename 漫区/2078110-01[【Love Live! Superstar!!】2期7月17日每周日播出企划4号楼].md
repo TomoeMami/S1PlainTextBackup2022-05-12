@@ -8514,3 +8514,30 @@ twi:Deadnooodles
 
 一点个人感想，写了不少，还是期待打脸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 722#       发表于 2022-7-18 01:02
+
+12集，让我猜猜既然回到传统了那用一半来讲新人入队磨合，我觉得那种争吵回会塞到可可戏份那里去，吵起来、解决用个两集，合宿日常用个一集，再来个凸显主角作用性的一集，准备大赛用个一两集，差不多了吧
+
+再往坏处想，说不定二期压根没有可可回这种东西呢，等着三期吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tiro_finale  
+##### 723#       发表于 2022-7-18 01:02
+
+这第一集就瞄了好几次进度条......
+
+*****
+
+####  ads147147  
+##### 724#       发表于 2022-7-18 01:08
+
+把偶像部完全等同于liella，本身就是射箭画靶的做法，因为我们是九人团了，所以后辈加入一定要一起和前辈跳舞打比赛，之于第二组合或者后勤人员，经理人都是不可能出现的选项，哪怕这才是正常社团应该有的角色。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
