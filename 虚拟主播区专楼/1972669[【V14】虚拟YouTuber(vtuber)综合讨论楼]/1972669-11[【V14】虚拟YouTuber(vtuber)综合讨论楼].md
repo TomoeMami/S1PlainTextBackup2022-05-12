@@ -12328,3 +12328,12 @@ kenon这下肯定被看直播的人们记住了，那“可疑”特设网页直
 
 话说泥潭没看见有人聊他的，还有vox之类的en男也是。那么大部队都在哪发病的？求指个路，去观察下生态<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16158#       发表于 2022-7-18 00:41
+
+豆瓣什么情况不知道，除此之外en男系年一v观众发病大部分在抖音B站(熟肉评论区)和微博吧
+
