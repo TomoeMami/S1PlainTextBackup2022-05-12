@@ -12039,3 +12039,10 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 谢啦那会在b站是超新星级别的，和mea差不多热度</blockquote>
 我知道，但总觉得在B站的成绩十分水。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 16129#       发表于 2022-7-17 08:49
+
