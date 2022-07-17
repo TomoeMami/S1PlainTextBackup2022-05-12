@@ -7559,3 +7559,45 @@ TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニン
 
 转型成无厘头喜剧×学园偶尔有没有搞头？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 635#       发表于 2022-7-17 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683076&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-17 18:58</a>
+有意对照吧</blockquote>
+完全没必要，一个拉人的一个被拉的有什么好对照的？
+
+*****
+
+####  ViyViy  
+##### 636#       发表于 2022-7-17 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683167&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 19:09</a>
+
+转型成无厘头喜剧×学园偶像有没有搞头？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先这几个人得先变个僵尸
+
+*****
+
+####  老1.5  
+##### 637#       发表于 2022-7-17 19:17
+
+要是成无厘头喜剧偶像那我可太喜欢看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少第一集里边这个夹脚装置已经给我乐得不行了
+
+*****
+
+####  稀勢のささ  
+##### 638#       发表于 2022-7-17 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又看了几眼还是觉得两首歌的衣服都难看  不知道到时候实物如何
+
+*****
+
+####  starring  
+##### 639#       发表于 2022-7-17 19:19
+
+还没看正片，看你们还有别处的发言，这第一集就寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
