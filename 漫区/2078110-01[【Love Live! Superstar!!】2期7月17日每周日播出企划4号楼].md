@@ -8714,3 +8714,28 @@ op还是稳定水准，确实没有第一集惊艳，但还挺耐听的。打歌
 可可剧场版再回上海吧，我看二期动画是回不去了
 追飞机役是民警还是香音还是鬼？
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 740#       发表于 2022-7-18 06:40
+
+堇自己都没觉得有问题，甚至挺乐在其中
+可可从各种行动中也能看出不是个没情商的人
+
+不知道大家在担心什么
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 741#       发表于 2022-7-18 06:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688649&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-18 00:36</a>
+看完熟肉了，感觉就和没看之前在各个地方了解的差不太多…
+
+要把它当纯无厘头搞笑番去看，那还是有的欢乐的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可在第一季拍照把香音截出来放大，也没下文了
+
