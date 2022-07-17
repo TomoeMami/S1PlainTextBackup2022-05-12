@@ -7451,3 +7451,111 @@ TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニン
 甚至懒得改一下构图</blockquote>
 有意对照吧
 
+
+
+*****
+
+####  ads147147  
+##### 623#       发表于 2022-7-17 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683037&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-17 18:54</a>
+
+我的看法是再看几集再说。上一季前三集很行，后来都知道发生啥了。三集定律啊家人们，这个铁律不能忘啊[f:0 ...</blockquote>
+三集之后又要献祭谁的妈啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+难道是家里拍电报：可可，母危，速归。然后可可跑回家被强制结婚。
+
+*****
+
+####  水莲寺流歌  
+##### 624#       发表于 2022-7-17 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">有种定死了大纲让往里面塞东西的僵硬感
+
+*****
+
+####  黑雪姫  
+##### 625#       发表于 2022-7-17 19:01
+
+这明显就是上头有任务，锅肯定不全是京极和花田
+
+算了，这季能给可可个人回+主C曲就满足了，其他无所谓了。
+
+*****
+
+####  沙茶酱  
+##### 626#       发表于 2022-7-17 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683042&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-17 18:55</a>
+
+本来想看看5厕的评价结果全在摆屁股</blockquote>
+就我看到的群，几乎都在讨论“这星团二期，感觉不如虹团啊”、“虹团二期我看不下去，还是花田写的有趣”、“这逻辑有问题啊”、“逻辑还好，搞笑一点而已”。我觉得比起动画本身，更多是屁股在哪里的问题了。不过，我觉得本来就是一家，何必分虹厨星厨，这花田写得好不好，感觉大家自己可以判断出来的，不是屁股可以遮掩
+
+*****
+
+####  JustW_3  
+##### 627#       发表于 2022-7-17 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只看第一集花田不好背太多锅，答案定好了让你编过程，篇幅还没什么发挥余地，换谁谁也得摆。但我以为自己预期挺低了，实际下来还是比我预期还低，哪怕保持A part那样呢
+
+*****
+
+####  iuhehc  
+##### 628#       发表于 2022-7-17 19:04
+
+看5ch更乐了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 629#       发表于 2022-7-17 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管在哪里都是xx厨厨比xx厨更有乐子
+
+*****
+
+####  lj205  
+##### 630#       发表于 2022-7-17 19:06
+
+我觉得star宣言比OP好听
+
+
+
+*****
+
+####  寒风夜  
+##### 631#       发表于 2022-7-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683111&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-17 19:03</a>
+
+只看第一集花田不好背太多锅，答案定好了让你编过程，篇幅还没什么发挥余地，换谁谁也得摆。但我以 ...</blockquote>
+对着剧本跑任务了属于是
+
+*****
+
+####  stygian  
+##### 632#       发表于 2022-7-17 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683110&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-7-17 19:03</a>
+
+就我看到的群，几乎都在讨论“这星团二期，感觉不如虹团啊”、“虹团二期我看不下去，还是花田写的有趣” ...</blockquote>
+华语圈还好一些，拉板真的就是纯屁股大战，スレ里一堆一眼就能看出来是串子的
+
+*****
+
+####  府南河的姜太公  
+##### 633#       发表于 2022-7-17 19:09
+
+我有预感，⭐二期绝对会咬一个超级打火机，我能感受到staff在靠亢奋的演出支撑或者说掩盖灵感的枯竭和剧情的单薄与同质化。我觉得很多人能看出来⭐能挖掘的东西就这样了，而在所有的套路和模板用尽后必会物极必反，staff绝对会爆发咬个超级打火机。
+
+—— 来自 Xiaomi M2003J15SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 634#       发表于 2022-7-17 19:09
+
+转型成无厘头喜剧×学园偶尔有没有搞头？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
