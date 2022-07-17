@@ -8606,3 +8606,36 @@ twi:Deadnooodles
 
 第一集看完，观感很怪。首先想要新人加入的理由给的不明不白，花田本集并没有给一个能说服我的理由；另外就如前几楼说的那样本集可可形象塑造有点不太好，一开始和平安民堇互掐还可以看做是可堇的糖，结果后面一直怼堇感觉就有点过了，没必要非得把平安民堇整得跟唐可可的宿敌一样，两人的矛盾有那么大吗？不过本集live水平还行，还挖了可可回上海这么一个坑，不知道后面会不会追飞机。总得来说，当乐子番看估计观感不差
 
+
+
+*****
+
+####  愛さ実  
+##### 731#       发表于 2022-7-18 01:35
+
+是不是编剧组理解的中国式つんつん<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 732#       发表于 2022-7-18 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688995&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-18 01:17</a>
+其实说到打比赛 我就一直有一个没想清楚的问题，那就是对于Liella!老5个角色来说，打Lovelive大赛的动力 ...</blockquote>
+可可是为了lovelive和snp去的日本/香音一开始是为了可可后面输了就开始哭压西/堇为了涨粉/千为了陪香音（？）可拉千也有因为千能提升liella实力/恋嘛老套点就是想为学校打个名气
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 733#       发表于 2022-7-18 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689110&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-18 01:35</a>
+是不是编剧组理解的中国式つんつん，（从鱼和菜宝的节目中）理解到在中国就是要相互拌嘴互损才是好 ...</blockquote>
+参考うにゃ老师画的可堇来写都好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
