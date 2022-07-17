@@ -8639,3 +8639,41 @@ twi:Deadnooodles
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 734#       发表于 2022-7-18 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689116&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-18 01:37</a>
+可可是为了lovelive和snp去的日本/香音一开始是为了可可后面输了就开始哭压西/堇为了涨粉/千为了陪香音（ ...</blockquote>
+其实感觉作为非第一发起人和非原生爱好的Leader，很容易表现出为了比赛而比赛的参赛原因<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 735#       发表于 2022-7-18 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689051&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-18 01:25</a>
+别转移话题，按你这套逻辑入部这个事本身就是牵强附会——既然都是SOLO还入个什么部？实际上田中仁版的R3 ...</blockquote>
+我的意思是，拉拉大赛这种玩意本身就很扯淡，都是射箭画靶，不管是入队还是参赛都是很扯淡的，因为学院偶像本身都是扯淡的东西。
+但是要让这些扯淡的东西具有说服力，星虹已经走上了完全不同的两条路。虹是用奇幻色彩的方式讲童话般自我实现的故事，星这里是用努力友情奋斗去搞大赛踏踏开，踏踏开中就自我实现了。
+
+从模式上确实是半斤八两，但是最终完成度呢？总不能说你大纲和我大纲半斤八两，所以你的成品就和我的成品一个水平吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 736#       发表于 2022-7-18 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689157&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-18 01:45</a>
+其实感觉作为非第一发起人和非原生爱好的Leader，很容易表现出为了比赛而比赛的参赛原因 ...</blockquote>
+这个鲤鱼和菜宝第一次生放的时候就念了大纲稿子啊，虽然怀揣的目的各不相同，但是最后都汇聚在一起，走上了学院偶像之路。
+
+可见花田的大纲确实很好，但是最终给出来的故事就很不对味。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
