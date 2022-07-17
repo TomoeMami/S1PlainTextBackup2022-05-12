@@ -6350,3 +6350,26 @@ kuku生日快乐
 
 有没有都不好说吧，星这边早就算不上多“传统”了，按传统惯例来分析不一定会对
 
+
+
+*****
+
+####  仟音一心  
+##### 505#       发表于 2022-7-17 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56678546&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-17 11:43</a>
+可可这套刻板印象太多………还不如上僵尸………可千两人的LOOK最朴素………………
+
+ ...</blockquote>
+看了下群里投可可这套的还不少……
+
+*****
+
+####  lj205  
+##### 506#       发表于 2022-7-17 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56679334&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 12:57</a>
+
+看了下群里投可可这套的还不少……</blockquote>
+要我说三套都设计的不咋样
+
