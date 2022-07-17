@@ -14797,3 +14797,12 @@ b博还行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不掉下85万就是胜利好吧
 
+
+
+*****
+
+####  黒長直姫  
+##### 11939#       发表于 2022-7-17 17:11
+
+今晚能多100舰就是赢麻了
+
