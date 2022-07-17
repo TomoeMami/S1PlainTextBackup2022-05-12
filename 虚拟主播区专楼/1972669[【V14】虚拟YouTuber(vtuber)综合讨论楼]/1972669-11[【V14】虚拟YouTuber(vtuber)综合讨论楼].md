@@ -12095,3 +12095,18 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 
 牛姨第二抽，血泪的抉择！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16134#       发表于 2022-7-17 14:39
+
+想省事+补充没听出来的部分跑去b看切片熟肉结果好多地方翻错反而更加心累了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+要是一两句话就在弹幕指正了，多人联动五分钟错了两位数以上的部分实在忍不了关了网页……
+
+syl 
+
+虽然时间是凑巧不过刚好在男团新人出道第二天整种味新人出道的活，这下enkr反抗军正统在黛灰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
