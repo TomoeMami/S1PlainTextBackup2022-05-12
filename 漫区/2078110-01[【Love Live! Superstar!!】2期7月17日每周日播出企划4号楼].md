@@ -7995,3 +7995,50 @@ https://twitter.com/umeaoki/status/1548663597454491648
 
 从第一集来看可堇绑定更紧了，至于互动方式应该是花田觉得这样写好吧
 
+
+
+*****
+
+####  iuhehc  
+##### 678#       发表于 2022-7-17 22:24
+
+所以叔叔那边是连港澳台都没有了么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 679#       发表于 2022-7-17 22:27
+
+[https://twitter.com/KISAYU_/status/1548663879126814720](https://twitter.com/KISAYU_/status/1548663879126814720)
+
+【お知らせ】
+
+「ラブライブ！スーパースター!!」2期も1期に引き続きデザインワークスとして衣装・私服・エンドカード等を制作させて頂きました🌟1話挿入歌「Welcome to 僕らのセカイ」の衣装もデザインしました。きな子ちゃんを夢へ誘う案内人をイメージした衣装です。
+<img src="https://p.sda1.dev/6/c53726e74a45d1cfa0a63c5117aab2bd/20220717_222713.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 680#       发表于 2022-7-17 22:29
+
+喵萌的熟肉出了
+
+magnet:?xt=urn:btih:11014c23d387b2017abfa7d2e9d92067d322de9d
+
+*****
+
+####  凡人  
+##### 681#       发表于 2022-7-17 22:30
+
+<img src="https://img.saraba1st.com/forum/202207/17/222946wlxvavqll8md7r1d.png" referrerpolicy="no-referrer">
+
+<strong>kuka.png</strong> (244.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-17 22:29 上传
+
+可香微存
+
