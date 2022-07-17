@@ -12046,3 +12046,19 @@ Bora这种有底气的主动转生还能理解，底边韩V离开虹真的能混
 ####  SuntoryNomu  
 ##### 16129#       发表于 2022-7-17 08:49
 
+
+
+*****
+
+####  ヒトニナル  
+##### 16130#       发表于 2022-7-17 09:25
+
+谢拉现在比以前开心&amp;数字没以前好这两件事是可以共存的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心垂万刃  
+##### 16131#       发表于 2022-7-17 09:29
+
+没了钱少事多的cn观众可不更开心吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -6224,3 +6224,15 @@ kuku生日快乐
 
 烫裤裤生日快乐喔
 
+
+
+*****
+
+####  名津流  
+##### 496#       发表于 2022-7-17 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56674484&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-16 23:20</a>
+
+鲤鱼可可生日发推用的图是去年拍的，而且还特意说明了，我觉得高概率还真可能伤到脸了 ...</blockquote>
+虽然不合时宜，但是我竟然开始期待小鸟游式的眼罩娘或者绫波丽式的绷带娘起来了
+
