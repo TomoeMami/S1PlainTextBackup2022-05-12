@@ -6254,3 +6254,14 @@ kuku生日快乐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天能听到几首新歌呢
 
+
+
+*****
+
+####  player3960  
+##### 499#       发表于 2022-7-17 10:27
+
+保底一首新歌，直接九人曲还是先五人曲过渡就不道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
