@@ -7859,3 +7859,46 @@ QQ图片20220717194656.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉板看的少，一期的时候有专门开串抱怨吗，有种积怨爆发的感觉
 
+
+
+*****
+
+####  tagerto  
+##### 664#       发表于 2022-7-17 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56684559&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-17 20:40</a>
+
+【悲報】可可のすみれ弄り、元通りになる
+
+拉板看的少，一期的时候有专门开串抱怨吗，有种积怨爆发 ...</blockquote>
+毕竟拉板堇推最多，正常<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 665#       发表于 2022-7-17 20:43
+
+不是说拉板还有个专门anti可可的楼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 666#       发表于 2022-7-17 20:46
+
+可可对民警撂狠话，明日香也对真嗣撂狠话；
+
+可可是外国来日本的傲娇，明日香也是外国来日本的傲娇；
+
+可可在民警面前给家人打外语电话，明日香也在真嗣面前打家人的外语电话；
+
+可可喜欢的是香音但是被官方推可堇，明日香喜欢的是加持但是官方推的是香嗣；
+
+所以，可可就是明日香，到时候要分给剑剑（夏美（不是
+
+*****
+
+####  tagerto  
+##### 667#       发表于 2022-7-17 20:46
+
+毕竟在拉板堇推眼里，堇完美无瑕，你个可可不仅不倒贴，还对堇态度差简直罪大恶极，完全忘了当年是堇先瞧不起学园偶像让可可不爽堇的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
