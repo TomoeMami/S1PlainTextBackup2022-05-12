@@ -8541,3 +8541,36 @@ twi:Deadnooodles
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qratosone  
+##### 725#       发表于 2022-7-18 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688512&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 00:22</a>
+嘴上说传递梦想和希望，实际上全是比赛冲，比赛打，赢不了就哭呀洗，没大赛活不下去，完全看不到偶像以外 ...</blockquote>
+虹设定上就是不参加比赛，根本没有可比性——顺带一提田中仁没有设定包袱，写R3B入团也就那么回事…
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 726#       发表于 2022-7-18 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688943&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 01:08</a>
+把偶像部完全等同于liella，本身就是射箭画靶的做法，因为我们是九人团了，所以后辈加入一定要一起和前辈跳 ...</blockquote>
+其实说到打比赛 我就一直有一个没想清楚的问题，那就是对于Liella!老5个角色来说，打Lovelive大赛的动力是什么，又是因为什么才参加Lovelive大赛，Lovelive对她们来说又意味着什么？
+
+*****
+
+####  qratosone  
+##### 727#       发表于 2022-7-18 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56688943&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 01:08</a>
+把偶像部完全等同于liella，本身就是射箭画靶的做法，因为我们是九人团了，所以后辈加入一定要一起和前辈跳 ...</blockquote>
+醒醒，虹也没有你说的这些东西，就爷自己勉强算个经理人
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
