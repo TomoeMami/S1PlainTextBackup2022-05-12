@@ -12283,3 +12283,37 @@ kenon这下肯定被看直播的人们记住了，那“可疑”特设网页直
 
 右脑小姐这同接涨的，只能管人痴还是多，就吃套皮这一套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16153#       发表于 2022-7-17 23:22
+
+我觉得从slm做的这几个工商节目过程来看，不给两倍广告费对不起莎小姐消耗的脑细胞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 16154#       发表于 2022-7-17 23:22
+
+开上机体之后同接已经恢复到当年的露露水平了，服了。
+
+*****
+
+####  poipanchao  
+##### 16155#       发表于 2022-7-17 23:25
+
+一套皮，msm同接直接暴涨到8K……
+
+就很亲切是吧……
+
+*****
+
+####  fastary  
+##### 16156#       发表于 2022-7-17 23:29
+
+其实ymen时期很多企划包括os团的在内都很一股三流ytber的感觉我不是很感兴趣
+
+但黛灰这边就有很多活正因为是v搞的所以显得神回……最近越发觉得他毕业以后不当v真的很浪费啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
