@@ -7848,3 +7848,14 @@ QQ图片20220717194656.jpg
 
 也不寄希望于所谓“团队感”了，毕竟现在的Liella!怎么看都更像一个社团<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 663#       发表于 2022-7-17 20:40
+
+【悲報】可可のすみれ弄り、元通りになる
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉板看的少，一期的时候有专门开串抱怨吗，有种积怨爆发的感觉
+
