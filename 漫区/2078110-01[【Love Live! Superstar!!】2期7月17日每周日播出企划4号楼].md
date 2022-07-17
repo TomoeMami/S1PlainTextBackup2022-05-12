@@ -8574,3 +8574,35 @@ twi:Deadnooodles
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 728#       发表于 2022-7-18 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689013&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-18 01:19</a>
+醒醒，抬杠抬得昏了头把隔壁虹团也绕进去了——除了爷勉强算个经理人之外虹也没有你说的这些东西，R3B入 ...</blockquote>
+虹也是射箭打靶啊，但是入部后的大合唱都是有铺垫的，平时都是个唱个，组合也是有一定组建逻辑。缪和水没有小组结成但是也有年纪组的曲子，星这边就做的特别僵硬。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qratosone  
+##### 729#       发表于 2022-7-18 01:25
+
+ 本帖最后由 qratosone 于 2022-7-18 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689038&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 01:22</a>
+虹也是射箭打靶啊，但是入部后的大合唱都是有铺垫的，平时都是个唱个，组合也是有一定组建逻辑。缪和水没 ...</blockquote>
+别转移话题，按你这套逻辑入部这个事本身就是牵强附会——既然都是SOLO还入个什么部？更何况按照游戏原案R3B这仨人原本就应该以独立的对手团形式活动，雨野剧情写的飞马，但田中仁也一样是在规避问题罢了
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  三尖酸努努  
+##### 730#       发表于 2022-7-18 01:27
+
+第一集看完，观感很怪。首先想要新人加入的理由给的不明不白，花田本集并没有给一个能说服我的理由；另外就如前几楼说的那样本集可可形象塑造有点不太好，一开始和平安民堇互掐还可以看做是可堇的糖，结果后面一直怼堇感觉就有点过了，没必要非得把平安民堇整得跟唐可可的宿敌一样，两人的矛盾有那么大吗？不过本集live水平还行，还挖了可可回上海这么一个坑，不知道后面会不会追飞机。总得来说，当乐子番看估计观感不差
+
