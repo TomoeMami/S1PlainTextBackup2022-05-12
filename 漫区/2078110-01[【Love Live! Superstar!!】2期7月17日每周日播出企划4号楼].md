@@ -7972,3 +7972,26 @@ QQ图片20220717194656.jpg
 
 https://twitter.com/umeaoki/status/1548663597454491648
 
+
+
+*****
+
+####  cybernetics31  
+##### 675#       发表于 2022-7-17 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于人气啥的，反正都➕4人，低就低呗
+
+*****
+
+####  qratosone  
+##### 676#       发表于 2022-7-17 22:18
+
+熟肉还没出吗
+
+*****
+
+####  JustW_3  
+##### 677#       发表于 2022-7-17 22:18
+
+从第一集来看可堇绑定更紧了，至于互动方式应该是花田觉得这样写好吧
+

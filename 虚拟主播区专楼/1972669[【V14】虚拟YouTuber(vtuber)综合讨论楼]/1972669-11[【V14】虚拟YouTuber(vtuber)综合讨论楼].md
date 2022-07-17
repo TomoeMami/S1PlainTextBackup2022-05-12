@@ -12197,3 +12197,22 @@ myy这是放飞自我了？
 
 肯定不少就是了
 
+
+
+*****
+
+####  carroy  
+##### 16144#       发表于 2022-7-17 22:10
+
+运营的企划<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+看起来莎小姐已经软体不安定了……
+
+*****
+
+####  fastary  
+##### 16145#       发表于 2022-7-17 22:16
+
+即使是搞gijisanji这种一发企划也坚持塞进了纯纯rp势角色……这就是rp势的讲究吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然有初配信结束就不会再播的底气，但是废品酱论rp确实比最近几批虹硬塞人设的新人要强太多了
+
