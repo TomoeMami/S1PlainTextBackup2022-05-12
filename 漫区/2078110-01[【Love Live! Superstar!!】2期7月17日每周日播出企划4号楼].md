@@ -8042,3 +8042,19 @@ magnet:?xt=urn:btih:11014c23d387b2017abfa7d2e9d92067d322de9d
 
 可香微存
 
+
+
+*****
+
+####  索兰塔.织姬  
+##### 682#       发表于 2022-7-17 22:40
+
+看完第一集后的感想：蒜必秒星<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 683#       发表于 2022-7-17 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秒星何必用蒜，隔壁shine post就行
+
