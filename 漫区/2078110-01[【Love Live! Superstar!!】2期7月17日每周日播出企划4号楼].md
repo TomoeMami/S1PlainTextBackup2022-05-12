@@ -8739,3 +8739,15 @@ op还是稳定水准，确实没有第一集惊艳，但还挺耐听的。打歌
 要把它当纯无厘头搞笑番去看，那还是有的欢乐的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可在第一季拍照把香音截出来放大，也没下文了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 742#       发表于 2022-7-18 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56689675&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-7-18 06:40</a>
+堇自己都没觉得有问题，甚至挺乐在其中
+可可从各种行动中也能看出不是个没情商的人</blockquote>
+大伙也没怎么担心剧中的可堇怎么样，都是一个观感的问题，这第一集对可堇关系处理的也就那样，可能会让一些在意的人感觉不太好
+
