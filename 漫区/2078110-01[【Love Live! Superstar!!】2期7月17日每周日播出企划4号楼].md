@@ -8107,3 +8107,87 @@ magnet:?xt=urn:btih:11014c23d387b2017abfa7d2e9d92067d322de9d
 
 Five Japanese can win！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ces轴承仨  
+##### 689#       发表于 2022-7-17 23:12
+
+忙到现在。找找熟肉。希望第一集不查。。
+
+*****
+
+####  仟音一心  
+##### 690#       发表于 2022-7-17 23:14
+
+7.18薮岛朱音生日
+
+<img src="https://img.saraba1st.com/forum/202207/17/231431yhdzhlvcdepviwvw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A7178F1D-D8E0-43EB-AD4B-018C70CD446A.jpeg</strong> (188.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-17 23:14 上传
+
+
+
+*****
+
+####  光宗薫  
+##### 691#       发表于 2022-7-17 23:15
+
+这要是个路人看了第一集，一定会觉得唐可可就是个巨婴
+
+要是可堇对掐本来没啥事，就是欢喜冤家，一对活跃气氛的大活宝
+
+问题是堇写的特别正经，特别宽容，反而显得可可无理取闹了
+
+而且莫名其妙的，可堇关系就倒车了，这唐可可是出车祸失忆了咋的，就这还带三次元逆输入的吗
+
+*****
+
+####  Totokei  
+##### 692#       发表于 2022-7-17 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看过生肉的群友都给出了好怪的评价，等熟肉出来了看了一遍也是感觉很怪
+
+首先是前几分钟五人组都张口闭口就是要赢，给人一种过于功利的观感，虽然也插了一句可可回国的伏笔但目前也只是堇和可可之间的秘密和其他三人无关吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+然后就是招新人的过程中对土妹子过于殷勤，如果有铺垫土妹子是个超级潜力股还好，现在看起来土妹子就是普通人难以理解为什么五人组一直追逐她甚至搞私人live
+
+不过我隐隐感觉花田在五人组躺在天台那段对话已经给出过答案了
+
+开始的时候招不到新人索性就想维持五人继续活动，堇说的“那不就只是自我满足了吗，我听说的学园偶像可不是这样”感觉就是相比自我满足要赢拉拉更加重要<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+有点刚好和虹反过来了（x
+
+*****
+
+####  ces轴承仨  
+##### 693#       发表于 2022-7-17 23:18
+
+你们这说的。我这累了两天的。还看不看第一集了。。。
+
+*****
+
+####  Enakina  
+##### 694#       发表于 2022-7-17 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56687678&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-7-17 23:18</a>
+你们这说的。我这累了两天的。还看不看第一集了。。。</blockquote>
+看啊，不带脑子看的话，轻松愉快
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Franc  
+##### 695#       发表于 2022-7-17 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56687678&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-7-17 23:18</a>
+你们这说的。我这累了两天的。还看不看第一集了。。。</blockquote>
+看吧，有歌听
+
