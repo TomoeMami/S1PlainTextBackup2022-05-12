@@ -6416,3 +6416,29 @@ kuku生日快乐
 
 鲤鱼可能带着颈托呢，软组织伤不那么容易好
 
+
+
+*****
+
+####  普之舜舜  
+##### 510#       发表于 2022-7-17 15:37
+
+可可生日快乐
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  普之舜舜  
+##### 511#       发表于 2022-7-17 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56678546&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-17 11:43</a>
+可可这套刻板印象太多………还不如上僵尸………可千两人的LOOK最朴素………………
+
+ ...</blockquote>
+提醒下，把那个屏幕上栏的标志裁掉哈
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
