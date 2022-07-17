@@ -280,3 +280,165 @@
 
 来了男粉
 
+
+
+*****
+
+####  路人庚  
+##### 12036#       发表于 2022-7-17 22:00
+
+东京夏日相会可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，两眼一黑环节了（
+
+*****
+
+####  Mr.shelter  
+##### 12037#       发表于 2022-7-17 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 12038#       发表于 2022-7-17 22:01
+
+ 本帖最后由 iuhehc 于 2022-7-17 22:06 编辑 
+
+这能合唱啊呜
+
+*****
+
+####  clvan_  
+##### 12039#       发表于 2022-7-17 22:01
+
+草，这歌选的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stageKK  
+##### 12040#       发表于 2022-7-17 22:01
+
+两眼一黑了，这自己都忍不住了哈哈哈哈哈或
+
+*****
+
+####  斗斗一号  
+##### 12041#       发表于 2022-7-17 22:01
+
+男粉实在是
+
+*****
+
+####  路人庚  
+##### 12042#       发表于 2022-7-17 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，你咩姐应该很喜欢这个环节
+
+*****
+
+####  雪风utopia  
+##### 12043#       发表于 2022-7-17 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 12044#       发表于 2022-7-17 22:03
+
+ 本帖最后由 iuhehc 于 2022-7-17 22:04 编辑 
+
+笑死，她笑得没停下来过
+
+*****
+
+####  Eutopia  
+##### 12045#       发表于 2022-7-17 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 12046#       发表于 2022-7-17 22:03
+
+憋不住了
+
+*****
+
+####  古战场亡魂  
+##### 12047#       发表于 2022-7-17 22:03
+
+这技巧也没有感情也缺乏的我真的绷不住了。
+
+*****
+
+####  路人庚  
+##### 12048#       发表于 2022-7-17 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐感受到了由衷的喜悦
+
+*****
+
+####  黒長直姫  
+##### 12049#       发表于 2022-7-17 22:05
+
+这个环节没开始之前我不知道那么好笑
+
+*****
+
+####  路人庚  
+##### 12050#       发表于 2022-7-17 22:06
+
+fafa来力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 12051#       发表于 2022-7-17 22:06
+
+fafa爆杀
+
+*****
+
+####  yywzjsw  
+##### 12052#       发表于 2022-7-17 22:07
+
+男人不行（
+
+*****
+
+####  十九号大侠  
+##### 12053#       发表于 2022-7-17 22:07
+
+好好好
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  二岩枫  
+##### 12054#       发表于 2022-7-17 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男粉被爆杀啊
+
+*****
+
+####  雪风utopia  
+##### 12055#       发表于 2022-7-17 22:07
+
+男人不行👋
+
+*****
+
+####  笋狐  
+##### 12056#       发表于 2022-7-17 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这差距，费拉不堪，费拉不堪啊（扶额）
+
+*****
+
+####  路人庚  
+##### 12057#       发表于 2022-7-17 22:10
+
+这下不得不贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
