@@ -7402,3 +7402,52 @@ TVアニメ 「ラブライブ！スーパースター!!」 2期 オープニン
 
 现在生肉有看的地方吗？
 
+
+
+*****
+
+####  老1.5  
+##### 617#       发表于 2022-7-17 18:54
+
+我的看法是再看几集再说。上一季前三集很行，后来都知道发生啥了。三集定律啊家人们，这个铁律不能忘啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当搞笑番看着还蛮轻松的
+
+*****
+
+####  稀勢のささ  
+##### 618#       发表于 2022-7-17 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来想看看5厕的评价结果全在摆屁股
+
+*****
+
+####  ViyViy  
+##### 619#       发表于 2022-7-17 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反向三集定律是吧，花田京极这一副上头有任务的样子，不做得无厘头点估计都不知道怎么做了
+
+*****
+
+####  寒风夜  
+##### 620#       发表于 2022-7-17 18:55
+
+还有真就香音土妹子传
+
+*****
+
+####  寒风夜  
+##### 621#       发表于 2022-7-17 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56683037&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-17 18:54</a>
+
+我的看法是再看几集再说。上一季前三集很行，后来都知道发生啥了。三集定律啊家人们，这个铁律不能忘啊[f:0 ...</blockquote>
+确实够生草啊...
+
+*****
+
+####  JustW_3  
+##### 622#       发表于 2022-7-17 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56682980&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 18:49</a>
+甚至懒得改一下构图</blockquote>
+有意对照吧
+
