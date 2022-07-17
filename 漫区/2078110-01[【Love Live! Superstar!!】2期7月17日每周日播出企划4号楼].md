@@ -8439,3 +8439,19 @@ twi:Deadnooodles
 这次巴哈也没买么</blockquote>
 都说了明天
 
+
+
+*****
+
+####  ads147147  
+##### 716#       发表于 2022-7-18 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56687906&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-17 23:33</a>
+感觉粉丝向太严重了，节奏过快，路人看绝对是有点不明所以的。
+这样看这季主要是想巩固粉丝群体吗？ ...</blockquote>
+粉丝要求1不加人（不可能），2不去大赛（不可能），3可恋给点（看样子可堇拉满，也不可能）。4不要香音传（似乎也不可能，或者变成香樱传），5不要功利参赛搞哭呀洗（待定）
+
+那还有什么想看的吗？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
