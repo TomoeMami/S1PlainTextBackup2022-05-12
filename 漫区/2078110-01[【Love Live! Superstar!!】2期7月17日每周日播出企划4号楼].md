@@ -8291,3 +8291,58 @@ CelticWhite
 由手机上传
 2022-7-17 23:29 上传
 
+
+
+*****
+
+####  gzfantasy  
+##### 702#       发表于 2022-7-17 23:33
+
+OP2一股赶工编曲+混音的味道。
+
+一年级的各位的人设实在过于离地了。
+
+不过如果不太介意这点的话，第一集其实还挺欢乐的。
+
+可堇的互动我倒觉得是糖，而不是关系倒退。
+
+*****
+
+####  愛さ実  
+##### 703#       发表于 2022-7-17 23:33
+
+感觉粉丝向太严重了，节奏过快，路人看绝对是有点不明所以的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这样看这季主要是想巩固粉丝群体吗？那就别整烂活了，来点粉丝爱看的。（所以粉丝爱看什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gzfantasy  
+##### 704#       发表于 2022-7-17 23:34
+
+另外问问，网红是哪里的口音？
+
+*****
+
+####  JustW_3  
+##### 705#       发表于 2022-7-17 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56687783&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-17 23:25</a>
+CelticWhite</blockquote>
+和我看到这一幕时脑内作图一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 706#       发表于 2022-7-17 23:38
+
+熟肉看完了，人物塑造得好浮夸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吵得耳朵嗡嗡的。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 707#       发表于 2022-7-17 23:38
+
+熟肉看完了，人物塑造得好浮夸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吵得耳朵嗡嗡的。
+
