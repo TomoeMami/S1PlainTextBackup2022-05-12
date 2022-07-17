@@ -6658,3 +6658,217 @@ from Liyuu
 
 香音中之人漏出来了要
 
+
+
+*****
+
+####  稀勢のささ  
+##### 539#       发表于 2022-7-17 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉业绩是吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 540#       发表于 2022-7-17 18:11
+
+肥仔！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Franc  
+##### 541#       发表于 2022-7-17 18:12
+
+可堇含量蛮多的
+
+*****
+
+####  hgcg-ix  
+##### 542#       发表于 2022-7-17 18:13
+
+唐可可怎么这么会做手工
+
+*****
+
+####  ykyin09  
+##### 543#       发表于 2022-7-17 18:13
+
+鬼妹的名片好像有个二维码？
+
+*****
+
+####  JustW_3  
+##### 544#       发表于 2022-7-17 18:14
+
+就会长不在一个班（）
+
+*****
+
+####  离心  
+##### 545#       发表于 2022-7-17 18:14
+
+会长你是真的不穿音乐科衣服了是吧
+
+*****
+
+####  JustW_3  
+##### 546#       发表于 2022-7-17 18:14
+
+可堇gif预感
+
+*****
+
+####  ykyin09  
+##### 547#       发表于 2022-7-17 18:15
+
+这块牌子还在啊
+
+*****
+
+####  稀勢のささ  
+##### 548#       发表于 2022-7-17 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PV还剩多少
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 549#       发表于 2022-7-17 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没人报名的理由居然这么有理有据
+
+*****
+
+####  JustW_3  
+##### 550#       发表于 2022-7-17 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">意料之中的理由，硬实力冠军
+
+*****
+
+####  ViyViy  
+##### 551#       发表于 2022-7-17 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可：能别报菜名吗，这样我真的很尴尬
+
+*****
+
+####  寒风夜  
+##### 552#       发表于 2022-7-17 18:17
+
+情节飞快
+
+*****
+
+####  hgcg-ix  
+##### 553#       发表于 2022-7-17 18:18
+
+唐可可有时候不像上海人，像义乌人
+
+怎么什么横幅都有
+
+*****
+
+####  JustW_3  
+##### 554#       发表于 2022-7-17 18:18
+
+按这个节奏感觉第一集就要加人了
+
+*****
+
+####  cxj649  
+##### 555#       发表于 2022-7-17 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56682634&amp;ptid=2078110" target="_blank">hgcg-ix 发表于 2022-7-17 18:13</a>
+
+唐可可怎么这么会做手工</blockquote>
+历代灰毛都是负责做衣服的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 556#       发表于 2022-7-17 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">开心不起来
+
+*****
+
+####  噪音仓唯  
+##### 557#       发表于 2022-7-17 18:19
+
+看不到泷奈射中千束我要死了
+
+看好风希向挺王发起冲锋
+
+*****
+
+####  iuhehc  
+##### 558#       发表于 2022-7-17 18:19
+
+香音传来了
+
+*****
+
+####  JustW_3  
+##### 559#       发表于 2022-7-17 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">香哥哥继续上分
+
+*****
+
+####  JustW_3  
+##### 560#       发表于 2022-7-17 18:21
+
+？？？什么怪东西
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 561#       发表于 2022-7-17 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么鬼
+
+*****
+
+####  寒风夜  
+##### 562#       发表于 2022-7-17 18:21
+
+这纯粹是照着3次元的要求写吧
+
+*****
+
+####  ykyin09  
+##### 563#       发表于 2022-7-17 18:21
+
+这下真希卡利了
+
+*****
+
+####  hgcg-ix  
+##### 564#       发表于 2022-7-17 18:21
+
+蓝毛是别的动画片过来的吗
+
+*****
+
+####  JustW_3  
+##### 565#       发表于 2022-7-17 18:21
+
+夹脚（星团ver）
+
+*****
+
+####  JustW_3  
+##### 566#       发表于 2022-7-17 18:21
+
+这啥啊，直接看live
+
+*****
+
+####  Franc  
+##### 567#       发表于 2022-7-17 18:21
+
+要唱歌啦
+

@@ -14806,3 +14806,23 @@ b博还行
 
 今晚能多100舰就是赢麻了
 
+
+
+*****
+
+####  若风之景  
+##### 11940#       发表于 2022-7-17 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+*****
+
+####  yywzjsw  
+##### 11941#       发表于 2022-7-17 18:20
+
+总督得有几个吧（
+
