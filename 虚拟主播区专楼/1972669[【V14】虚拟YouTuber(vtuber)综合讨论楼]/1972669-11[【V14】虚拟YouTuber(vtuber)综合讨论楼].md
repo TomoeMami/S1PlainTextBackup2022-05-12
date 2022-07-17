@@ -12225,3 +12225,16 @@ myy这是放飞自我了？
 
 ゼニから哈哈哈哈哈哈，myy还是牛逼啊
 
+
+
+*****
+
+####  fastary  
+##### 16147#       发表于 2022-7-17 22:38
+
+悲伤故事的结局却是“本社”爆破简直是天才的构思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+最后还特意强调了是看莎皇出道回的灵感，与新人出道无关并没有讽刺enkr偶像化之类的意思
+
+但是对比之下不管本人怎么想的，确实有点讽刺意味就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
