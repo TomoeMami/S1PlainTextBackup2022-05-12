@@ -9456,3 +9456,17 @@ yabu确实好看滴，主要是发型问题，五官和性格都很中意<img sr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一集倒是不难看，两个小想法：可堇的互动像是中二病的森凸，都是看起来幼稚，实际上成熟的人设。但不互怼啊，这两人设互怼起来才好玩。科技夹脚后剧情一下子开始魔幻，是制作组有意为之？如果这样想，那确实挺乐的。
 
+
+
+*****
+
+####  yicihanshu  
+##### 806#       发表于 2022-7-19 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56698122&amp;ptid=2078110" target="_blank">ykyin09 发表于 2022-7-18 18:34</a>
+虹2都放完快一个月还只在港澳台，星2不会也一直放港澳台吧</blockquote>
+邦r两个剧场版叔叔从发售就扔港澳台到现在大陆没动静，这还是叔叔自己代理的游戏，反正游戏已经是觉得没戏了，歌都早加完了
+讲真的，偶像番被卡挺长时间了，半年了基本
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
