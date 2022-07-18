@@ -8802,3 +8802,37 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 
 我看你们之前一个两个都说放低期望，现在反应一个比一个大，到底放低了多少？我除了节奏快点歌不够抓耳外，其他还好，可堇互动就是普通的欢喜冤家拌嘴，堇就是个宠溺对方随便你怎么闹都没关系的态度
 
+
+
+*****
+
+####  starring  
+##### 748#       发表于 2022-7-18 09:32
+
+本来被运营背刺了几次就很难不带恶意去看待，结果第一集做出来的效果差强人意自然就多争议。
+在我看来s2e1比s1e5差点，但没到e7e8的程度，觉得台词设计方面的问题比较大
+
+*****
+
+####  老1.5  
+##### 749#       发表于 2022-7-18 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56690678&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-18 09:20</a>
+
+我看你们之前一个两个都说放低期望，现在反应一个比一个大，到底放低了多少？我除了节奏快点歌不够抓耳外， ...</blockquote>
+可堇这段本来就没什么问题，所谓问题其实就是部分单人推和cp党的自我观念过度发散，本来没啥的。一期第十集可的确对堇认可，但可可认可的主要是堇的能力以及她对学园偶像的态度。后续发展还有的写，两人关系还没发展完全。作为动画主推CP之一，CP热度有多好使资方清楚的很，看了一集就急吼吼的没意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 750#       发表于 2022-7-18 09:39
+
+<img src="https://img.saraba1st.com/forum/202207/18/093923poglr6etlaaoca0t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C43B6632-FE46-4CD6-8A0A-EF3370DE3C6F.jpeg</strong> (121.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 09:39 上传
+
