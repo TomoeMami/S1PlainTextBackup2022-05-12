@@ -5838,3 +5838,14 @@ google再抽风怕不是信用卡战士都当不了了
 比如FGO，反面例子就是鲁鲁修那个手游，没区压根没法氪
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AeonsTorn  
+##### 89024#       发表于 2022-7-18 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56664527&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-15 23:40</a>
+今天预告的两套英灵礼装都挺好看的</blockquote>
+这土方看着像是忍杀的藤木户来串场了
+
