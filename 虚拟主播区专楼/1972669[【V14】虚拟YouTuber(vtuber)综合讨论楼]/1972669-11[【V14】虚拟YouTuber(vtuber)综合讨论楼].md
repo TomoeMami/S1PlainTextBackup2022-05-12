@@ -12676,3 +12676,12 @@ xqc那直播风格当杏的套皮男主播我觉得可能会死得很惨
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹杏菠菜看短视频都不许的，xqc来只会当底边
 
+
+
+*****
+
+####  北山玖公  
+##### 16193#       发表于 2022-7-18 18:46
+
+xqc最适合的可能是b站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
