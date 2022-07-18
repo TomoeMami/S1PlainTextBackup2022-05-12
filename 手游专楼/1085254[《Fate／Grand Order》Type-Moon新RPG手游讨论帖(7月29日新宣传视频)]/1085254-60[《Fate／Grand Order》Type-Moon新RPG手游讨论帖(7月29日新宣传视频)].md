@@ -5803,3 +5803,38 @@ google再抽风怕不是信用卡战士都当不了了
 不知道开哪个银行的，常用的浦发好像没有JCB，其他银行的评价众说纷纭 ...</blockquote>
 遗像猫确实是最稳定、兼容性最好的
 
+
+
+*****
+
+####  vacuumsword  
+##### 89021#       发表于 2022-7-18 16:20
+
+谷歌上一波干跨区之后我就转苹果了。ls说的遗像猫还能氪？需要折腾谷歌定位么？
+
+*****
+
+####  黑上シグマ  
+##### 89022#       发表于 2022-7-18 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56696496&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2022-7-18 16:20</a>
+
+谷歌上一波干跨区之后我就转苹果了。ls说的遗像猫还能氪？需要折腾谷歌定位么？ ...</blockquote>
+不需要，我今天刚在安卓手机上用遗像猫课过其他东西
+
+*****
+
+####  exiaexa  
+##### 89023#       发表于 2022-7-18 16:25
+
+实际上开个visa就可以了吧
+
+我自己就是建行的visa，境外支付卡，没有别的乱七八糟的业务
+
+谷歌商店被锁了美服，因为有没用完的费用谷歌就锁商店了
+
+原则上只要厂商接受全球支付就可以用
+
+比如FGO，反面例子就是鲁鲁修那个手游，没区压根没法氪
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
