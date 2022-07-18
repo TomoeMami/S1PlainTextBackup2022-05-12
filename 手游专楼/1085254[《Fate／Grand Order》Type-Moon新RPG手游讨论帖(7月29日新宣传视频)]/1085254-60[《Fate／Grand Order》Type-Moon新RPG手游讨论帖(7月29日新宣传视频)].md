@@ -5849,3 +5849,17 @@ google再抽风怕不是信用卡战士都当不了了
 今天预告的两套英灵礼装都挺好看的</blockquote>
 这土方看着像是忍杀的藤木户来串场了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89025#       发表于 2022-7-18 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56697209&amp;ptid=1085254" target="_blank">AeonsTorn 发表于 2022-7-18 17:13</a>
+
+这土方看着像是忍杀的藤木户来串场了</blockquote>
+毕竟一个画师嘛，既画过忍杀还画过马春花<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+既然是机装，其实可以像合金装备的雷电（以及FGO的妖兰）那样做个金属面罩（或者口罩），脸的右边写个“新”，左边写个“选”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
