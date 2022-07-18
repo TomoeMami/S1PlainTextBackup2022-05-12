@@ -12383,3 +12383,12 @@ myy昨天那个女皮是京子画的。<img src="https://static.saraba1st.com/im
 cr一哥金盾了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/ad9f93bb4e8b38c54e8c03b81b8588b3/563ddec4389971a6.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16164#       发表于 2022-7-18 11:27
+
+我的理解是cover ankr都不如kanauru 建议kanauru自己开个箱
+
