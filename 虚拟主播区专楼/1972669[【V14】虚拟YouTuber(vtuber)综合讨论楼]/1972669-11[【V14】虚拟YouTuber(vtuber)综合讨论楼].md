@@ -12458,3 +12458,12 @@ yagoo对男皮的审美一向神秘，你们又不是不知道<img src="https://
 
 但是以前的皮也没丑到这种地步啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 16171#       发表于 2022-7-18 14:41
+
+Corpse我记得被虹嗯男蹭过好几次的吧，好像是Luca的关系，要真是corpse那我觉得holo第一块钻石盾要诞生了，这低音炮可比盒给力多了
+
