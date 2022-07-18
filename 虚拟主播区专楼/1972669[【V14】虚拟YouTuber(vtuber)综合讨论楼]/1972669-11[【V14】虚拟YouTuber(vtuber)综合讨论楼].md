@@ -12729,3 +12729,12 @@ Rion前两天才报告热中症了 还要搞组合节目
 
 这盘曲风还挺丰富
 
+
+
+*****
+
+####  Ketestrait  
+##### 16197#       发表于 2022-7-18 23:00
+
+悲报：直播开始前10分钟莎小姐的人机接口（iphone）找不到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
