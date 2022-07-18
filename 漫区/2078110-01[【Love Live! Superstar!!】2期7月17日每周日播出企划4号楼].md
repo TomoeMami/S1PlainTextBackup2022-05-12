@@ -8892,3 +8892,32 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 
 嗯，当年我也是这么想赤坂明能把石弥关系往回拉的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 757#       发表于 2022-7-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691424&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 10:17</a>
+大棒甜枣才是正确的冤家互动的方式，就算明日香三天两头嘲讽真嗣，痞子不还是第一时间安排她吃瘪让真嗣雄 ...</blockquote>
+就是这个感觉，长期下来剧情里这种关系真不见得是啥好事
+
+*****
+
+####  ViyViy  
+##### 758#       发表于 2022-7-18 10:24
+
+等到可可回国剧情肯定会往回“拉”的，花田这上帝视角就是盘算着还是没完全解决两人关系，还需要一个事件，真是一撅屁股都知道要放什么屁。。。
+
+但是说白了这一年期间杂志广播什么的也没找过多少补，其实双方形象还是那个样，除了最近Myfavorite的一个小短篇。动画视听效果比纯文字和音声要强又让一些人开始发病了。
+
+*****
+
+####  starring  
+##### 759#       发表于 2022-7-18 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691424&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 10:17</a>
+大棒甜枣才是正确的冤家互动的方式，就算明日香三天两头嘲讽真嗣，痞子不还是第一时间安排她吃瘪让真嗣雄 ...</blockquote>
+石弥欢喜冤家的关系中间插了一个子安燕，结果全完蛋了，要是花田大师也在可堇中加插鬼夏完蛋几率极高<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
