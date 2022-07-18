@@ -12557,3 +12557,26 @@ Corpse今天早些时候还在和Nyanners和她小男友一起玩
 
 不过去年夏Corpse被特定挺狠的，不知道是否缓过来了
 
+
+
+*****
+
+####  Suny08  
+##### 16181#       发表于 2022-7-18 15:33
+
+我看微博上说是有个可能是shu 和elira 原来那个社团的，本来以为是去en6期的结果杏星en出了，这下子是不是shu 要嫉妒死了，自己没去成holo结果自己朋友去成了
+
+*****
+
+####  alcoholic1000  
+##### 16182#       发表于 2022-7-18 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56695904&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-18 15:33</a>
+
+我看微博上说是有个可能是shu 和elira 原来那个社团的，本来以为是去en6期的结果杏星en出了，这下子是不是s ...</blockquote>
+Chimon Ch. 赤虎チモン吗，你楼我和黑客老姐最开始猜5期成员他就在候选名单了，同一时期锁推，Hanamori出身，似乎是中国人。
+
+之后vt有人说他去en当staff了，但没什么可靠证据
+
+他本身没有优秀到能被holo选中，进候选名单也是因为整个nijiEN都是Hanamori的小圈子
+
