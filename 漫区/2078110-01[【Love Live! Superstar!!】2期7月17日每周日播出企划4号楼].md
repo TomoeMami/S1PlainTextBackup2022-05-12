@@ -9378,3 +9378,31 @@ yabu确实好看滴，主要是发型问题，五官和性格都很中意<img sr
 
 “没错就是我钟岚珠哒！”<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 798#       发表于 2022-7-18 23:02
+
+本三次元饭倒是对剧情毫无感觉，花田随便你怎么整活好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然如果能编出点好桥段来也算赚了。
+
+第一话比较在意几个点，non酱和emorin总觉得配出来的声音怪怪的，台词密度太高，两首歌（算上香音的考斯特就是三首）都没有一季开头几首歌抓耳，可能要多听几次，以及歌中鲤鱼这条音轨的响度有点低啊，特别是跟pay的连在一起，反差好明显
+
+*****
+
+####  lj205  
+##### 799#       发表于 2022-7-18 23:08
+
+插1还是挺对我喜好的，一直在循环，舞也很欢快，想看到现场版
+
+*****
+
+####  qratosone  
+##### 800#       发表于 2022-7-18 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691930&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-18 10:52</a>
+
+确实，如果按降低预期的标准来看的话这集还过得去所以个个都说降低预期降低预期其实还是期待有隔壁 ...</blockquote>
+先天限制太多的情况下最终成品水平很难往上提的，隔壁的栞子入队回整个就是恋回复刻，无非就是设定包袱更低所以轻拿轻放没彻底崩而已
+

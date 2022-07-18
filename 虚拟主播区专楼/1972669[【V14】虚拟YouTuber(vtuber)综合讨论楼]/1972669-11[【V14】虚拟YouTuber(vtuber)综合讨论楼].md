@@ -12738,3 +12738,16 @@ Rion前两天才报告热中症了 还要搞组合节目
 
 悲报：直播开始前10分钟莎小姐的人机接口（iphone）找不到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  你谁  
+##### 16198#       发表于 2022-7-18 23:04
+
+ 本帖最后由 你谁 于 2022-7-18 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56700773&amp;ptid=1972669" target="_blank">灵思之风jacke 发表于 2022-7-18 22:41</a>
+
+这盘曲风还挺丰富</blockquote>
+一直在等这个呢 听了おつかれベイビーズ的毎日就感觉不错 好舒服的吉他
+
