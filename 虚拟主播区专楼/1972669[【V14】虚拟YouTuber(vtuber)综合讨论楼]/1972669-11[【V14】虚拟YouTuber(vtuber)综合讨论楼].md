@@ -12604,3 +12604,19 @@ Chimon Ch. 赤虎チモン吗，你楼我和黑客老姐最开始猜5期成员�
 杏女跟新皇联动，新皇碾压盒皇
 虹杏老害一起面如死灰
 
+
+
+*****
+
+####  fastary  
+##### 16185#       发表于 2022-7-18 16:02
+
+说起来虽然voltaction立绘出来的时候好多人吐槽一股杏星的糊味儿但首播完订阅就比uproar高了w
+
+*****
+
+####  AKili  
+##### 16186#       发表于 2022-7-18 16:06
+
+这批en星男估计首播完订阅也超uproar了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
