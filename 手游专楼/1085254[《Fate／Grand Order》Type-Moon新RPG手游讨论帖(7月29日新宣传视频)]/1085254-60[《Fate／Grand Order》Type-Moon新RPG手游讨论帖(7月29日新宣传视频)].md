@@ -5791,3 +5791,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 看任务要求，狩猎？
 
+
+
+*****
+
+####  UNISONIA  
+##### 89020#       发表于 2022-7-18 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56658013&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-15 15:20</a>
+
+不知道开哪个银行的，常用的浦发好像没有JCB，其他银行的评价众说纷纭 ...</blockquote>
+遗像猫确实是最稳定、兼容性最好的
+
