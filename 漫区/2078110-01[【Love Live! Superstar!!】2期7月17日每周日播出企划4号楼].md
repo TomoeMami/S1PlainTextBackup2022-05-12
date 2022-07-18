@@ -9320,3 +9320,41 @@ yabu确实好看滴，主要是发型问题，五官和性格都很中意<img sr
 
 挺好的，像后宫或芳文社动画第二季只加一个新人实在是没什么意思，引起的化学反应太少，虹团R3在动画说实话也是过于小圈子自闭，4+5热热闹闹无脑追完想必是极好的
 
+
+
+*****
+
+####  ykyin09  
+##### 792#       发表于 2022-7-18 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么菜宝还是音响协力
+
+*****
+
+####  adw667  
+##### 793#       发表于 2022-7-18 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56700682&amp;ptid=2078110" target="_blank">ykyin09 发表于 2022-7-18 22:34</a>
+
+怎么菜宝还是音响协力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这是星2期唯一的看点好吧
+
+*****
+
+####  cxj649  
+##### 794#       发表于 2022-7-18 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56700682&amp;ptid=2078110" target="_blank">ykyin09 发表于 2022-7-18 22:34</a>
+
+怎么菜宝还是音响协力</blockquote>
+这么看来，小星星估计有菜宝的参与<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 795#       发表于 2022-7-18 22:40
+
+虽然但是，如果没有菜宝，可可的中文是不是能正常一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
