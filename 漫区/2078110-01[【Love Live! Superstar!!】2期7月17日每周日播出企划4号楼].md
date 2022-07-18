@@ -9155,3 +9155,17 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ViyViy  
+##### 776#       发表于 2022-7-18 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56694504&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-18 13:51</a>
+
+我觉得所谓的回上海会被很简单糊弄过去，可回的雷说不定不是大人的事情
+
+—— 来自 S1Fun ...</blockquote>
+不写回国写别的冲突对现在的staff们要求太高了，真这么下笔十有八九恋回复刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
