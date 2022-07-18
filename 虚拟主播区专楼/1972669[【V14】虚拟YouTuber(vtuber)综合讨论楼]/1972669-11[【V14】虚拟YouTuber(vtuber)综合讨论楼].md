@@ -12522,3 +12522,38 @@ Corpse我记得被虹嗯男蹭过好几次的吧，好像是Luca的关系，要�
 
 不如说这么烂的皮更是为这出闹剧增添了一个乐子
 
+
+
+*****
+
+####  Ketestrait  
+##### 16179#       发表于 2022-7-18 15:18
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h4b3rboh4lj20xv0j1n1x.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/TUUgsaHEMUE?t=2400](https://youtu.be/TUUgsaHEMUE?t=2400)
+
+Virtual to LIVE Covered by Obsydia
+
+*****
+
+####  alcoholic1000  
+##### 16180#       发表于 2022-7-18 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56695070&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-18 14:41</a>
+
+Corpse我记得被虹嗯男蹭过好几次的吧，好像是Luca的关系，要真是corpse那我觉得holo第一块钻石盾要诞生了， ...</blockquote>
+Luca关系的应该是Sykkuno？我也没怎么看他，确实是Corpse圈子的实况主。
+
+Corpse今天早些时候还在和Nyanners和她小男友一起玩
+
+<img src="https://img.saraba1st.com/forum/202207/18/151717kw96dh4epdb22z8b.png" referrerpolicy="no-referrer">
+
+<strong>CorpseNyanners.png</strong> (276.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-18 15:17 上传
+
+不过去年夏Corpse被特定挺狠的，不知道是否缓过来了
+
