@@ -9427,3 +9427,14 @@ yabu确实好看滴，主要是发型问题，五官和性格都很中意<img sr
 
 其他人还不好说，第一话这剧情土妹子分明是刚进大都市就被坑蒙拐骗入部的嘛
 
+
+
+*****
+
+####  愛さ実  
+##### 803#       发表于 2022-7-18 23:36
+
+不能带脑子去看，带脑子看剧情一堆bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以听听歌看看美少女行了，真不用这么纠结
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
