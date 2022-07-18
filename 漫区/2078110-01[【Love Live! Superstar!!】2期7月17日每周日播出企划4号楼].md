@@ -8869,3 +8869,26 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 可堇这一段只能说暂时还好，但是还是感觉平衡性不好把握，就像一期7集我初看觉得没啥，但是看到那种观点之后还是感觉剧情似有点点不妥（而我好友则在吐槽那一集跟踪恋和在恋家里捣蛋的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 不过有些类似剧情一次还好，几次都是这样就不一定好了，个人观点，这种互损拌嘴的CP一没写平衡就总有点感觉变成单向的欺负了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 755#       发表于 2022-7-18 10:10
+
+刚才补了熟肉，只想说新五人曲不错，希望live上别改成九人版的，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 756#       发表于 2022-7-18 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691123&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-18 09:57</a>
+
+可堇这一段只能说暂时还好，但是还是感觉平衡性不好把握，就像一期7集我初看觉得没啥，但是看到那种观点之 ...</blockquote>
+大棒甜枣才是正确的冤家互动的方式，就算明日香三天两头嘲讽真嗣，痞子不还是第一时间安排她吃瘪让真嗣雄起一下（当然后面开始精神变态就是另一回事了）。
+
+可堇这边可可单方面输出已经到了过分的程度，堇只有真拿你没办法一直忍着，也不反驳，这种关系很不健康，如果花田还能给篇幅把这种状态往回拉，观感可能会好不少。
+
+嗯，当年我也是这么想赤坂明能把石弥关系往回拉的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
