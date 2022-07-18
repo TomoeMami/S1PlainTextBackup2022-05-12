@@ -12751,3 +12751,28 @@ Rion前两天才报告热中症了 还要搞组合节目
 这盘曲风还挺丰富</blockquote>
 一直在等这个呢 听了おつかれベイビーズ的毎日就感觉不错 好舒服的吉他
 
+
+
+*****
+
+####  Ketestrait  
+##### 16199#       发表于 2022-7-19 01:21
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h4bl594fu0j20xg0irjwy.jpg" referrerpolicy="no-referrer">
+
+社長、一年目夏甲子園出場<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+魔物魔物还是魔物<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|再来个投手就爽了|
+
+查看全部评分
+
