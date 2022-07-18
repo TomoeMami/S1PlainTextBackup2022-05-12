@@ -8921,3 +8921,25 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 大棒甜枣才是正确的冤家互动的方式，就算明日香三天两头嘲讽真嗣，痞子不还是第一时间安排她吃瘪让真嗣雄 ...</blockquote>
 石弥欢喜冤家的关系中间插了一个子安燕，结果全完蛋了，要是花田大师也在可堇中加插鬼夏完蛋几率极高<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 760#       发表于 2022-7-18 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691549&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-18 10:25</a>
+
+石弥欢喜冤家的关系中间插了一个子安燕，结果全完蛋了，要是花田大师也在可堇中加插鬼夏完蛋几率极高[f:0 ...</blockquote>
+简直可以预见
+
+*****
+
+####  ads147147  
+##### 761#       发表于 2022-7-18 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691527&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-18 10:24</a>
+
+等到可可回国剧情肯定会往回“拉”的，花田这上帝视角就是盘算着还是没完全解决两人关系，还需要一个事件， ...</blockquote>
+所以说，在校园 偶像 单元 喜剧这个分类下，着实无敌。甚至可以这样互动到毕业。而且实际上也很适合偶像这种需要贴标签的产业。不过很明显，staff不满足于写单元剧，他们要搞正剧，要ttk，那就只能祝他们好运了。
+
