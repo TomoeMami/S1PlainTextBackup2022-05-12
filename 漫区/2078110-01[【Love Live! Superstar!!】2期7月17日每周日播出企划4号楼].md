@@ -9293,3 +9293,21 @@ OP给二期生戏份的操作就像前任在那疯狂发“在吗在吗”
 
 鱼发了团子合照，看来情况一切向好。
 
+
+
+*****
+
+####  player3960  
+##### 789#       发表于 2022-7-18 22:14
+
+难得的第一张和二期生的单独合照，还是二期我唯一有点眼缘的yabu，蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  老1.5  
+##### 790#       发表于 2022-7-18 22:15
+
+yabu确实好看滴，主要是发型问题，五官和性格都很中意<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
