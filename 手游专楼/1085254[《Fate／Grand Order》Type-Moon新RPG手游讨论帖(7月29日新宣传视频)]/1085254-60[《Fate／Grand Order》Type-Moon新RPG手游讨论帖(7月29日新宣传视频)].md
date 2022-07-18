@@ -5863,3 +5863,14 @@ google再抽风怕不是信用卡战士都当不了了
 
 既然是机装，其实可以像合金装备的雷电（以及FGO的妖兰）那样做个金属面罩（或者口罩），脸的右边写个“新”，左边写个“选”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 89026#       发表于 2022-7-18 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56696496&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2022-7-18 16:20</a>
+谷歌上一波干跨区之后我就转苹果了。ls说的遗像猫还能氪？需要折腾谷歌定位么？ ...</blockquote>
+跨区目前为止只锁余额不锁信用卡的
+

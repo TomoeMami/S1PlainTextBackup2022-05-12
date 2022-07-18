@@ -12685,3 +12685,12 @@ xqc那直播风格当杏的套皮男主播我觉得可能会死得很惨
 
 xqc最适合的可能是b站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FlinN  
+##### 16194#       发表于 2022-7-18 21:06
+
+Rion前两天才报告热中症了 还要搞组合节目
+
