@@ -9111,3 +9111,25 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 
 看了熟肉感觉这集还行吧，本来也不指望能它能考一百分那种，至于衣服丑的，还是等真人还原之后再评价了。
 
+
+
+*****
+
+####  ddy2811  
+##### 772#       发表于 2022-7-18 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56691424&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 10:17</a>
+
+大棒甜枣才是正确的冤家互动的方式，就算明日香三天两头嘲讽真嗣，痞子不还是第一时间安排她吃瘪让真嗣雄 ...</blockquote>
+听说是离婚了就把对应的角色往死里整，不知真假<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 773#       发表于 2022-7-18 12:58
+
+可堇我就是等可回那个炸弹 堇来拆
+这种效果就像怼四五集然后第十集突然涨停的可堇一样 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
