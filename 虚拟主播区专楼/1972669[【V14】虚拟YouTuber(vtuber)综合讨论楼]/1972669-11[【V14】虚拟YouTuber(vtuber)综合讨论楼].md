@@ -12580,3 +12580,27 @@ Chimon Ch. 赤虎チモン吗，你楼我和黑客老姐最开始猜5期成员�
 
 他本身没有优秀到能被holo选中，进候选名单也是因为整个nijiEN都是Hanamori的小圈子
 
+
+
+*****
+
+####  毛头小希  
+##### 16183#       发表于 2022-7-18 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56695904&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-18 15:33</a>
+
+我看微博上说是有个可能是shu 和elira 原来那个社团的，本来以为是去en6期的结果杏星en出了，这下子是不是s ...</blockquote>
+不管是不是，就算真是，不出意外过一阵子看看杏星蒽的人气就没什么好嫉妒的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+他还能是想接近杏女才报的杏不成？
+
+*****
+
+####  poipanchao  
+##### 16184#       发表于 2022-7-18 15:47
+
+呵呵，等星en大红大紫你们就知道错了
+
+杏女跟新皇联动，新皇碾压盒皇
+虹杏老害一起面如死灰
+
