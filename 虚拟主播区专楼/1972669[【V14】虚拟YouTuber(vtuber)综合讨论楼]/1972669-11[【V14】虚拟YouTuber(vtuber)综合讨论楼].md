@@ -12392,3 +12392,12 @@ cr一哥金盾了<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 我的理解是cover ankr都不如kanauru 建议kanauru自己开个箱
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16165#       发表于 2022-7-18 12:35
+
+咲唯这个难道是sasaki拔牙之后去旅行的时候拍的？
+
