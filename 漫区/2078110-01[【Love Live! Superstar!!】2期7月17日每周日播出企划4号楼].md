@@ -9001,3 +9001,95 @@ op可以看出香音愈发往团队领袖女强人那方面靠，可可要被新
 
 二期生外景去迪斯尼，一期生去富士急，可恶，给我带一期生去玩跳楼机啊
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 768#       发表于 2022-7-18 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56692062&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-18 11:01</a>
+剧情期待不可能的事情确实是没法避免的，但是插1没打出乌托邦那种惊艳感，感觉不应该。或许乌托邦还是有 ...</blockquote>
+不见得Eutopia只是国人特攻，油管LL官号里Eutopia用了14天达成百万播放，是个挺不错的数字了
+
+*****
+
+####  仟音一心  
+##### 769#       发表于 2022-7-18 11:34
+
+二期团建
+
+<img src="https://img.saraba1st.com/forum/202207/18/113347tev3nltiuslgr3nt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BA9CACCC-2CD3-4B05-BAA3-A371DAD699B9.jpeg</strong> (570.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113349yaspngp7h46iinsv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>557584C0-B7AA-4AC8-ABFF-D9A06030D837.jpeg</strong> (623.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113350fdbd0pdzb1ssd78f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9821ECAE-81E9-447C-86F2-3A69D5BB6A98.jpeg</strong> (788.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113413zm89ski4z1a7kdkq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>35A8251C-6888-4FCC-95B1-9E70F47F9E96.jpeg</strong> (623.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113413y8iibnkncci8lunl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A870804B-B24E-45ED-BA6E-34656AF62B56.jpeg</strong> (597.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113413js595sf9thz7swtt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6954A6D2-FAEA-4F43-A658-43014E8C72FA.jpeg</strong> (553.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202207/18/113435s8c5wgsewxi1z8gq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5EBA1693-A6DA-4E28-8194-43053B428611.jpeg</strong> (940.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:34 上传
+
+周一官漫
+
+<img src="https://img.saraba1st.com/forum/202207/18/113456f91tjdm1yy9ddvmd.png" referrerpolicy="no-referrer">
+
+<strong>6035B10B-B57B-48DE-A4D6-EA6ACE7E76AE.png</strong> (164.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-18 11:34 上传
+
