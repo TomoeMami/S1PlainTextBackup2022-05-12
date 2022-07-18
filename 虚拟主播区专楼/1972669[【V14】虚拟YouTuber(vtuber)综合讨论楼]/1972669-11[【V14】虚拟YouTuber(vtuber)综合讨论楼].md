@@ -12410,3 +12410,33 @@ cr一哥金盾了<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 说来原神之女最近是不是几个版本没玩了，一直在塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16167#       发表于 2022-7-18 13:15
+
+<img src="https://img.saraba1st.com/forum/202207/18/131321v0k3dtrmmqvhmh3f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>holostar-en.jpeg</strong> (696.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-18 13:13 上传
+
+有Corpse这事儿保真吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  purdre  
+##### 16168#       发表于 2022-7-18 13:18
+
+ 本帖最后由 purdre 于 2022-7-18 13:19 编辑 
+
+刚刚看到杏en男的丑得震撼了我十分钟
+
+虹EN男二期也就看起来廉价，还没到挑战我审美下限的程度，这杏男的冲击力有点太强了
+
+歇了下感觉蓝色和戴面罩的那个还行，另外两个就...
+
