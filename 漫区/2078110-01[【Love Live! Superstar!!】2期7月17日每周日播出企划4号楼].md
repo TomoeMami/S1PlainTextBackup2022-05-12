@@ -10274,3 +10274,36 @@ S1才是中国5CH<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 还有楼上某位从之前专楼发言来看肯定是可推，鲤鱼推。但为啥这几天画风变了谁知道呢。
 
+
+
+*****
+
+####  优妮可  
+##### 875#       发表于 2022-7-19 14:26
+
+贴吧那个星团吧主嘛，疯狂的洗像反串黑似的
+
+*****
+
+####  cybernetics31  
+##### 876#       发表于 2022-7-19 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56706538&amp;ptid=2078110" target="_blank">alexwu 发表于 2022-7-19 12:33</a>
+完了，两边都不接纳是吧，亚细亚孤儿了</blockquote>
+她在我眼里就是个纯正的日本宅女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 877#       发表于 2022-7-19 14:27
+
+花田在拉拉里的吃瘪役我想想。
+
+nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专门花了一集写宇宙第一偶像，效果还算可以。
+
+善子，基本局限于自称被吐槽，自己也自觉喜欢的东西太中二了，第二季专属集是和梨子养狗这种算得上想当不错的喜剧集。
+
+怎么到了堇这边就就有点怪怪的。不管是maki还是丸子或者梨子也没这样盯着cp角色互动的，而且可明明还写了可香后面就和不存在一样，搞不懂，搞不懂。
+
+（我可恋真的没有一点可能性吗，我想推花田下山哦。）
+
