@@ -9575,3 +9575,16 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 咱要不直接回上海学完了再回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看上去挺美的，还不耽误最后一搏，就是二年级的时候不小心八个人冠军了很尴尬就是了。#关系户老九冠军
 
+
+
+*****
+
+####  ads147147  
+##### 815#       发表于 2022-7-19 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56702840&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-19 07:57</a>
+我突然发现个事儿，可可这个高二（日）才上完第一学期就要被生拉硬拽回去读高三（中），这是不是有年级差啊 ...</blockquote>
+在霓虹捞个东大或者其他同等级的大学国内也认啊，按可可现在设定，不是一般的卷王，不需要执迷于国内大学的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
