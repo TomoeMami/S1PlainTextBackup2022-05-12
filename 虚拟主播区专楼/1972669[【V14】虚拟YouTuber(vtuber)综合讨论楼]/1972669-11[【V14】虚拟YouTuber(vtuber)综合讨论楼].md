@@ -12831,3 +12831,13 @@ Rion前两天才报告热中症了 还要搞组合节目
 
 昨天安洁和ib这丑陋的大人约会……还有没被发现却旁观了始终的甲斐田，实在是太有戏剧性了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16204#       发表于 2022-7-19 11:35
+
+说起来knk似乎是当年bora的第一个社外联动对象？（然后不仲了）
+结果成了月奈也是他第一个
+
