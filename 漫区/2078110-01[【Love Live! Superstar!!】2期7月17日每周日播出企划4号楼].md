@@ -9867,3 +9867,26 @@ mezashi老师第一集的四格还给可可补了粉丝找她要签名，粉丝�
 
 岚珠写砸了好歹有复活甲，可可可没有。
 
+
+
+*****
+
+####  player3960  
+##### 839#       发表于 2022-7-19 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56705786&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-19 11:42</a>
+
+草了才反应过来一件事情，一期第十集花田用了个算过得去的理由来说明堇为什么会这么高调，而且作为受害方还 ...</blockquote>
+不同吧，可可除了对堇严苛外，对别人对团队都无愧啊。就她这个雷，除非到时候输的原因是她自己，不然真没觉有什么活不活该的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 840#       发表于 2022-7-19 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56702544&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-19 06:01</a>
+动画第一季中的liella没有展现出一个统一的、有说服力的、简单易懂的核心动机。香音，在前11集能唱 ...</blockquote>
+总结：抛开剧情不谈，这集还是合格的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
