@@ -907,3 +907,14 @@ emmmmmmmmmmmmmmmmmm
 
 犬山搞的杀？
 
+
+
+*****
+
+####  路人庚  
+##### 12113#       发表于 2022-7-19 19:43
+
+热爱105度的你居然是你咩姐自己找的曲子，拜托字幕组做的视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（来自fafa的直播聊幕后故事
+
