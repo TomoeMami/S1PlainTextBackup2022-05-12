@@ -9939,3 +9939,26 @@ mezashi老师第一集的四格还给可可补了粉丝找她要签名，粉丝�
 该怎么说呢，老这么写留下坏印象的也不仅仅是单推观众，其它观众也留下了，日积月累到后面形成讨厌大于喜 ...</blockquote>
 赶脚就是变相辱华建议封杀所有拉拉系列
 
+
+
+*****
+
+####  alexwu  
+##### 846#       发表于 2022-7-19 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56706266&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-19 12:14</a>
+
+菜宝哪是中国女人啊…………</blockquote>
+完了，两边都不接纳是吧，亚细亚孤儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 847#       发表于 2022-7-19 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56706201&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-19 12:09</a>
+让我想起了5厕看到的一个评论说中国女人就是这样，结果举的例子是菜宝 ...</blockquote>
+草，之前法元破防了家里蹲，现在都要被开除日籍了嘛，实惨
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
