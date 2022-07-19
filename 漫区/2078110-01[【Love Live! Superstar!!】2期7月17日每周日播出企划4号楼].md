@@ -10810,3 +10810,14 @@ s1没有，直接发尼哥坛吧，或者新开一楼</blockquote>
 
 不如说死宅+偶像厨还是阳角才是少数。
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 922#       发表于 2022-7-20 03:16
+
+惊了，可堇斗嘴都能说是80吗，不是为了营造欢喜冤家的感觉嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 第一集没人加新生主动入的原因感觉有点牵强，一般这种知名社团会有不少人抢着加入吧，可能是怕如果人来的太多，搞面试淘汰制显得有点太现实了，会破坏观感？想了想，主要原因应该还是编剧想走的路线，要一个一个的收服新人，就和上一季的剧情一样<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
