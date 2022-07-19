@@ -10554,3 +10554,13 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 
 隐约觉得这种样式应该是泡沫经济时代传到我国的，然后流行一段时间就寄了。
 
+
+
+*****
+
+####  cybernetics31  
+##### 899#       发表于 2022-7-19 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从宅女的角度看菜宝搭衣品味明显更合适吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时也不知道可可能这么火
+
