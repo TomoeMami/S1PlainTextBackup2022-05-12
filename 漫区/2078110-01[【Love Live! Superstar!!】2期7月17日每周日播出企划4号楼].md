@@ -10573,3 +10573,14 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 
 我喜欢前三集的可可。还有在同人老师漫画中的可堇。
 
+
+
+*****
+
+####  黑雪姫  
+##### 901#       发表于 2022-7-19 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56710999&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-7-19 18:00</a>
+我喜欢前三集的可可。还有在同人老师漫画中的可堇。</blockquote>
+第一季前三集的可可塑造简直是神，张弛有度，如果一直这么保持下去基本其他角色不用玩的。可惜..
+
