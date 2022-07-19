@@ -12920,3 +12920,20 @@ bora和knk不仲是什么说法</blockquote>
 
 现在社长西西会师决赛的可能性大增
 
+
+
+*****
+
+####  poipanchao  
+##### 16213#       发表于 2022-7-19 20:04
+
+领先太多，耽误king夺冠之路被运营施压了
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 16214#       发表于 2022-7-19 20:08
+
+喷了，这也行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

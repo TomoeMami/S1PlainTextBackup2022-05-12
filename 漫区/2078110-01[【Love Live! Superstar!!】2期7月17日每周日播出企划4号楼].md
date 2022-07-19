@@ -10646,3 +10646,15 @@ Pay彩排被自己的表演棒砸到头，然后被鲤鱼调戏了<img src="http
 草，你怎么也转生了</blockquote>
 讨论bank进去了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">先整个小号泄泄火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 908#       发表于 2022-7-19 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56711875&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-19 19:16</a>
+
+Pay彩排被自己的表演棒砸到头，然后被鲤鱼调戏了什么屑鱼</blockquote>
+好强的画面感，嚯嚯~嚯嚯<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">（这个麻将脸加上捂嘴动作大概就还原了
+
