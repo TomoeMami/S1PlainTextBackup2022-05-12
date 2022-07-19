@@ -12884,3 +12884,12 @@ bora和knk不仲是什么说法</blockquote>
 
 我怕要SAN Check（特别是一堆手那个）所以没敢看，当年道明寺我都只看了一点出道直播的剪辑
 
+
+
+*****
+
+####  Ketestrait  
+##### 16209#       发表于 2022-7-19 19:09
+
+油男犯下重大错误，连续没存档退出直接全员数值down了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
