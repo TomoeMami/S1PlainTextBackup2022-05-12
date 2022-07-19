@@ -10307,3 +10307,75 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 
 （我可恋真的没有一点可能性吗，我想推花田下山哦。）
 
+
+
+*****
+
+####  ads147147  
+##### 878#       发表于 2022-7-19 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708013&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-19 14:27</a>
+
+她在我眼里就是个纯正的日本宅女</blockquote>
+菜宝那个，小时候的成长轨迹太过于中国人，哪怕是读日本人学校，大环境决定了菜宝喜欢的东西和中国的同年龄阶段的人差不多，所以我一直当菜宝是中国人来着，特别是菜宝现在一直穿的大红碎花衣服，正经樱花妹那会那么搭衣服（兔子：？）
+
+*****
+
+####  老1.5  
+##### 879#       发表于 2022-7-19 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708015&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-19 14:27</a>
+
+花田在拉拉里的吃瘪役我想想。
+
+nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专门花了一集写宇宙 ...</blockquote>
+可恋今天看到个离谱说法。大概就是香音很香但是终归是开咖啡店的，堇终归是神社的女儿，小千继续她的舞蹈梦，只有恋和可学习都很好，可以考进同一所大学然后搞姛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属于是战未来了，格局打开
+
+*****
+
+####  ads147147  
+##### 880#       发表于 2022-7-19 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708075&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-19 14:32</a>
+
+可恋今天看到个离谱说法。大概就是香音很香但是终归是开咖啡店的，堇终归是神社的女儿，小千继续她的舞蹈 ...</blockquote>
+一起考上东大就结婚是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 881#       发表于 2022-7-19 14:35
+
+ 本帖最后由 Enakina 于 2022-7-19 14:41 编辑 
+
+不知道有没有科学的解释，不过体感上不管什么圈子，如果退坑的话，总是喜欢回头狠狠的踩一脚，当初有多喜欢，以后就会骂的多狠，也算是种有趣的现象了
+
+*****
+
+####  ViyViy  
+##### 882#       发表于 2022-7-19 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708075&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-19 14:32</a>
+
+可恋今天看到个离谱说法。大概就是香音很香但是终归是开咖啡店的，堇终归是神社的女儿，小千继续她的舞蹈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要把恋恋的钢琴和花滑好手吃了啊喂
+
+*****
+
+####  仟音一心  
+##### 883#       发表于 2022-7-19 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708075&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-19 14:32</a>
+可恋今天看到个离谱说法。大概就是香音很香但是终归是开咖啡店的，堇终归是神社的女儿，小千继续她的舞蹈 ...</blockquote>
+中之人也只有这俩上过大学。
+
+*****
+
+####  黑雪姫  
+##### 884#       发表于 2022-7-19 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708118&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-19 14:35</a>
+不知道有没有科学的解释，不过体感上不管什么圈子，如果退坑的话，总是喜欢回头狠狠的踩一脚，当初有多喜欢 ...</blockquote>
+醒醒，别擅自替人退圈。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 
+我还等着鲤鱼王者归来呢。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
