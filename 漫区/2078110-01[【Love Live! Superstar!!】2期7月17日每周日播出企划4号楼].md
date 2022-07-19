@@ -10238,3 +10238,39 @@ s1牢骚两句得了，就不要继续带这个节奏了，属于消解自己的
 
 实在不行这段时间关论坛贴吧吧，实际上阿b那边评论都算还可以，玩超人阿光的梗排第一呢（好吧，现在是奥尔加梗）
 
+
+
+*****
+
+####  老1.5  
+##### 872#       发表于 2022-7-19 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707581&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-7-19 13:55</a>
+
+看了下拉板，日本人那边一样，估计是瘪的太久了，上季第十话后再这么玩是个厨都受不了，不管是可厨还是堇 ...</blockquote>
+阴湿日本死宅自己憋着发癫，他们什么态度重要么。他们要骂骂花田去，去他社媒底下开冲，又不是角色从纸片里面蹦出来拿枪指着花田逼他这么写的，动不动开动画角色跟个撒泼怨妇一样<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">那边从一期开始还一直有唐可可无爱串呢，周边不照样爽卖，想太多了兄弟
+
+*****
+
+####  iuhehc  
+##### 873#       发表于 2022-7-19 14:11
+
+有点想知道现在看星只看动画和动画真人都看的观众比例是多少
+
+*****
+
+####  型月重工  
+##### 874#       发表于 2022-7-19 14:13
+
+ 本帖最后由 型月重工 于 2022-7-19 14:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707690&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-19 14:05</a>
+
+花田是端水不行，但是有些人借题发挥的能力我也是自叹不如。
+
+实在不行这段时间关论坛贴吧吧，实际上阿b那 ...</blockquote>
+你别说S1才是啥都敢讲的地方，因为管理员不管，像贴吧这种带节奏的发言都会被删的，更别说B站了。
+
+S1才是中国5CH<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+还有楼上某位从之前专楼发言来看肯定是可推，鲤鱼推。但为啥这几天画风变了谁知道呢。
+
