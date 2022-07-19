@@ -12946,3 +12946,19 @@ bora和knk不仲是什么说法</blockquote>
 
 油男这声控追分也太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 16216#       发表于 2022-7-19 21:36
+
+ACHILLES阿喵喵郡郡两连top，总排名前进一位，做梦一样<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16217#       发表于 2022-7-19 21:39
+
+打了14局，ib精神也到极限了，现在一副想吐的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
