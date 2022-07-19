@@ -10533,3 +10533,24 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708061&amp;ptid=2078110" target="_blank"> ads147147 发表于 2022-7-19 14:31</a> 引用:cybernetics31 发表于 2022-7-19 14:27 她在我眼里就是个纯正的日本宅女 菜宝那个，小时候的成长轨迹太过于中国人，哪怕是读日本人学校，大环境决定了菜宝喜欢的东西和中国的同年龄阶段的人差不多，所以我一直当菜宝是中国人来着，特别是菜宝现在一直穿的大红碎花衣服，正经樱花妹那会那么搭衣服（兔子：？） </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">广东人也不这么搭衣服啊来自: iPhone客户端
 
+
+
+*****
+
+####  黑雪姫  
+##### 897#       发表于 2022-7-19 15:41
+
+菜宝那个我觉得大概率是因为之前的事被阴角家里蹲记仇了而已..
+
+*****
+
+####  ads147147  
+##### 898#       发表于 2022-7-19 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56709011&amp;ptid=2078110" target="_blank">ykyin09 发表于 2022-7-19 15:38</a>
+
+广东人也不这么搭衣服啊</blockquote>
+广dong东bei大妹子jpg
+
+隐约觉得这种样式应该是泡沫经济时代传到我国的，然后流行一段时间就寄了。
+
