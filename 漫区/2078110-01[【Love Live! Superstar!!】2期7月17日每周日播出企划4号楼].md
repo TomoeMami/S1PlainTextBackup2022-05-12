@@ -9700,3 +9700,26 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">企划声音难听棒读的不差她一个…………
 
+
+
+*****
+
+####  player3960  
+##### 828#       发表于 2022-7-19 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56704882&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-07-19 10:50:42</a>
+企划声音难听棒读的不差她一个…………</blockquote>有我皮乐大先辈在这垫底，后辈们放开了随便浪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 829#       发表于 2022-7-19 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56703273&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-19 08:58</a>
+如果隔壁虹两集是端水大师，第一季冷落的第二季就疯狂加戏，顺便塞些喜闻乐见的东西。
+
+星这边就是变本加厉 ...</blockquote>
+虹那边整体散发着staff对作品的爱，哪怕是相对没那么满意的r3的剧情，也不会给你整阴间活。星不能跟虹对比，会显得更加不幸<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
