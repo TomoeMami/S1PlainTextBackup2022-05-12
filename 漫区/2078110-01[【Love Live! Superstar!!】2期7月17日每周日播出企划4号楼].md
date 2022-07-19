@@ -10145,3 +10145,68 @@ s1牢骚两句得了，就不要继续带这个节奏了，属于消解自己的
 
 可能知道二期会有什么事情发生？所以让我们别跑光了？
 
+
+
+*****
+
+####  ads147147  
+##### 866#       发表于 2022-7-19 13:52
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 867#       发表于 2022-7-19 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707373&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-7-19 13:41</a>
+
+从隔壁过来围观一下
+
+这就是嗷的一声疯特了的现场吗
+
+这一集才讲了多少内容 不至于吧 ...</blockquote>
+看了下拉板，日本人那边一样，估计是瘪的太久了，上季第十话后再这么玩是个厨都受不了，不管是可厨还是堇厨都遭罪。 可不单单是第一集，而是整个一季的延伸...
+
+*****
+
+####  nufawneafg  
+##### 868#       发表于 2022-7-19 13:55
+
+ 本帖最后由 nufawneafg 于 2022-7-19 14:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707450&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-7-19 13:46</a>
+
+我也发散一下。
+
+之前是不是有人说鲤鱼姐在二期播放前有过几次暗示。
+
+可能知道二期会有什么事情发生？所以让 ...</blockquote>
+你这种级别的发散没有上面的无脑
+
+真正像他这种级别的无脑发散应该是这样式的：
+
+因不满LL制作组制作方向，鲤鱼潜入花田宅偷改故事脚本，恶化所有角色的故事设定
+
+意图在于毁掉曾经影响自己童年现在已经变了味的企划，花田因潜心吹三，并未发现，鲤鱼由此得逞
+
+不就是闭眼胡说这谁都会啊，我这还乐一些
+
+这个潘多拉魔盒我还是建议同志们不要上头打开
+
+*****
+
+####  愛さ実  
+##### 869#       发表于 2022-7-19 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707450&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-7-19 13:46</a>
+我也发散一下。
+
+之前是不是有人说鲤鱼姐在二期播放前有过几次暗示。
+
+可能知道二期会有什么事情发生？所以让 ...</blockquote>
+草，那时说后面进入了活动密集期可能好久不能在阿b直播，所以叫粉丝别跑。
+以后要不要所有直播逐字逐句分析，是不是在暗示？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+差不多得了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
