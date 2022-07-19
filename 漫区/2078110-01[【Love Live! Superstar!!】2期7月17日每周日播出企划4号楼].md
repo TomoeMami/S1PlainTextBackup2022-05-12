@@ -9605,3 +9605,35 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 土妹子就是天选之人，组织上决定好了，需要吟诗的那种
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 818#       发表于 2022-7-19 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56702840&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-19 07:57</a>
+我突然发现个事儿，可可这个高二（日）才上完第一学期就要被生拉硬拽回去读高三（中），这是不是有年级差啊 ...</blockquote>
+按可可的学力，哪边的高考都能随便整个名校吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 819#       发表于 2022-7-19 08:58
+
+如果隔壁虹两集是端水大师，第一季冷落的第二季就疯狂加戏，顺便塞些喜闻乐见的东西。
+
+星这边就是变本加厉的卖捆绑cp，摆出一副我知道你们想看什么，但是我就不给的心态。甚至观众关心的话题直接强硬的盖过去，好像什么事都没发生一样。
+
+抱着这种态度，能走多远呢，拭目以待。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 820#       发表于 2022-7-19 08:59
+
+@Deadnooodles
+<img src="https://p.sda1.dev/6/87a2dd498bf360af15939658a041ef5b/CMP_20220719085849260.jpg" referrerpolicy="no-referrer">
+
