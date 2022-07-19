@@ -918,3 +918,16 @@ emmmmmmmmmmmmmmmmmm
 
 （来自fafa的直播聊幕后故事
 
+
+
+*****
+
+####  掉头学姐  
+##### 12114#       发表于 2022-7-19 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56712175&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-7-19 19:43</a>
+热爱105度的你居然是你咩姐自己找的曲子，拜托字幕组做的视频
+
+（来自fafa的直播聊幕后故事 ...</blockquote>
+被我老婆吐槽太过时了
+
