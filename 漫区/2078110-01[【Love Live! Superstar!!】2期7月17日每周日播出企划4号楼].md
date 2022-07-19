@@ -10564,3 +10564,12 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从宅女的角度看菜宝搭衣品味明显更合适吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时也不知道可可能这么火
 
+
+
+*****
+
+####  ces轴承仨  
+##### 900#       发表于 2022-7-19 18:00
+
+我喜欢前三集的可可。还有在同人老师漫画中的可堇。
+
