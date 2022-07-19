@@ -13081,3 +13081,18 @@ king这几次虹甲上黛灰就争取完投，状态不好都头铁不换人
 
 感觉也挺执念的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16228#       发表于 2022-7-20 01:15
+
+饭屋最后一次联动黑客说希望大家不要多提黛灰让饭屋在大家心里不灭就好，葛叶也偷偷排了一把饭屋自定义，莎乐美那边又做了一次整活的交接(看repo还是莎乐美主动联系的视频留言)………我真的破防了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+最后的一个月，除了他自己决定的企划和联动之外也有很多以前联动过的组合主动最后再聚一次，月樱、虹谜、声剧组都为他送上了告别
+
+虽然听着可能有点太吹捧和矫情，但我现在是真心这么想的
+
+“正因为黛灰如此爱着V界，所以才会被V的大家所爱”
+
