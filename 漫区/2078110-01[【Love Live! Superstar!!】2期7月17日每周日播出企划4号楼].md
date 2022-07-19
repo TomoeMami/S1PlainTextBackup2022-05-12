@@ -9671,3 +9671,32 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 铃原本身就素人出身嘛，另外两个都是事务所声优，彩妹之前也是偶像老手。可能配音问题就是海选没打过sayu的原因之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看天赋
 
+
+
+*****
+
+####  寒风夜  
+##### 825#       发表于 2022-7-19 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56702544&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-19 06:01</a>
+
+动画第一季中的liella没有展现出一个统一的、有说服力的、简单易懂的核心动机。香音，在前11集能唱 ...</blockquote>
+横批：乱七八糟
+
+*****
+
+####  ViyViy  
+##### 826#       发表于 2022-7-19 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56702864&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-19 08:03</a>
+
+在霓虹捞个东大或者其他同等级的大学国内也认啊，按可可现在设定，不是一般的卷王，不需要执迷于国内大学 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我就是突然发现可可可以做到不劝而归还能参考+回归再拼一把，需要处理的只有再融入的问题；害挺新鲜的。
+
+*****
+
+####  cybernetics31  
+##### 827#       发表于 2022-7-19 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">企划声音难听棒读的不差她一个…………
+
