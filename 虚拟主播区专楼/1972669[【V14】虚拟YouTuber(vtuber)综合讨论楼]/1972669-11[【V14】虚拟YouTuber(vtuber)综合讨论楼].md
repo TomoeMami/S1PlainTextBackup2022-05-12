@@ -12962,3 +12962,14 @@ ACHILLES阿喵喵郡郡两连top，总排名前进一位，做梦一样<img src=
 
 打了14局，ib精神也到极限了，现在一副想吐的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16218#       发表于 2022-7-19 21:45
+
+延長14回裏サヨナラ勝ち<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+再打下去感觉油男要当场吐血了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
