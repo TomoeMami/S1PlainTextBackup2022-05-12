@@ -9962,3 +9962,43 @@ mezashi老师第一集的四格还给可可补了粉丝找她要签名，粉丝�
 
 —— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 848#       发表于 2022-7-19 12:42
+
+突然想到一个问题，s1e10里没有名气的liella仅仅出席地区大赛，堇当C位就被全校人80，现在不但有名气还要冲冠军的情况下，土妹子得怎样做不会被冲（看预告土妹子连日常训练都跟不上）<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+再次觉得堇才是这剧最大的炸药桶，明面暗面都有随时爆炸的问题
+
+*****
+
+####  黑雪姫  
+##### 849#       发表于 2022-7-19 12:43
+
+ 本帖最后由 黑雪姫 于 2022-7-19 12:47 编辑 
+
+但愿可可不要像当时隔壁动画播放时未央给观众的观感就好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一部靠角色吃饭的偶像番把角色塑造成人人厌也是壮举。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但未央有死忠可以把她推向冠军，可可有吗？有中华炮倒是 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 850#       发表于 2022-7-19 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56706174&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-19 12:07</a>
+
+我都感觉花田是不是为了乳化故意的。就是苦了可推。</blockquote>
+好了差不多得了，真的辱了的话，这楼里都是罕见了<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 851#       发表于 2022-7-19 12:45
+
+最有可能的难道不是：编剧觉得这么写欢喜冤家非常让人dokidoki吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，毕竟写幼驯染也有些用力过猛
+
