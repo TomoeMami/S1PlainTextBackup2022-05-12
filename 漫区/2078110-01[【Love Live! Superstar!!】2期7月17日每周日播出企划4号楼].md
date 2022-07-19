@@ -10512,3 +10512,14 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 哪怕仅看拉拉方面我也没见泥潭比其他论坛自由多少</blockquote>
 我上面某些发言原封不动发NGA星团专楼里了，然后现在我那边被禁言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  三尖酸努努  
+##### 895#       发表于 2022-7-19 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708551&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-19 15:06</a>
+我上面某些发言原封不动发NGA星团专楼里了，然后现在我那边被禁言了 ...</blockquote>
+我觉得单纯是活久见今天心情好所以没封你，我之前在拉拉专楼发言就被封过
+
