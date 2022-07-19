@@ -9751,3 +9751,15 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 鱼可以了，配的比棒读的强多了
 
+
+
+*****
+
+####  老1.5  
+##### 833#       发表于 2022-7-19 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56705163&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-19 11:08</a>
+
+个人感觉青山配的其实比林原糟糕多了，虽然已经一年后好了不少但是还是不太行，素人选太多了，还不如杂鱼 ...</blockquote>
+鲤鱼还好吧，第一季配的就挺好的，作为一个非母语且初次涉足配音的人来说我觉得没什么可多指摘的，连5ch那帮阴湿都能接受并喜欢。中文发音这茬只能说是独特的要求了，正常说中文明显不是这个味儿<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
