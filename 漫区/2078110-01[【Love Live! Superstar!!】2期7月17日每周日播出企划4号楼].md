@@ -10610,3 +10610,12 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708395&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-19 14:54</a></blockquote>
 这上原亚衣还是三上悠亚来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老1.5  
+##### 904#       发表于 2022-7-19 19:16
+
+Pay彩排被自己的表演棒砸到头，然后被鲤鱼调戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

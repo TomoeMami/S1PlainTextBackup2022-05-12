@@ -12893,3 +12893,19 @@ bora和knk不仲是什么说法</blockquote>
 
 油男犯下重大错误，连续没存档退出直接全员数值down了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 16210#       发表于 2022-7-19 19:12
+
+油男这也太惨了，虽然是自己的问题
+
+*****
+
+####  Suny08  
+##### 16211#       发表于 2022-7-19 19:16
+
+基本等于半年进度归零
+
