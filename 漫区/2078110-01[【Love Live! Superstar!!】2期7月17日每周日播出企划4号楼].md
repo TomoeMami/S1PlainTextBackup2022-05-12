@@ -9588,3 +9588,20 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 816#       发表于 2022-7-19 08:15
+
+霓虹和国内高中教学大纲有不小差异，以数学为例：
+<img src="https://p.sda1.dev/6/a5fb8b8776236da65f5394c4fefe76ee/CMP_20220719081540859.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  索兰塔.织姬  
+##### 817#       发表于 2022-7-19 08:17
+
+土妹子就是天选之人，组织上决定好了，需要吟诗的那种
+
