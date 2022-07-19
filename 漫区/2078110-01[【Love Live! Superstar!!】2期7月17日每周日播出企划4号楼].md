@@ -10523,3 +10523,13 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 我上面某些发言原封不动发NGA星团专楼里了，然后现在我那边被禁言了 ...</blockquote>
 我觉得单纯是活久见今天心情好所以没封你，我之前在拉拉专楼发言就被封过
 
+
+
+*****
+
+####  ykyin09  
+##### 896#       发表于 2022-7-19 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708061&amp;ptid=2078110" target="_blank"> ads147147 发表于 2022-7-19 14:31</a> 引用:cybernetics31 发表于 2022-7-19 14:27 她在我眼里就是个纯正的日本宅女 菜宝那个，小时候的成长轨迹太过于中国人，哪怕是读日本人学校，大环境决定了菜宝喜欢的东西和中国的同年龄阶段的人差不多，所以我一直当菜宝是中国人来着，特别是菜宝现在一直穿的大红碎花衣服，正经樱花妹那会那么搭衣服（兔子：？） </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">广东人也不这么搭衣服啊来自: iPhone客户端
+
