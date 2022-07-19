@@ -10775,3 +10775,24 @@ s1没有，直接发尼哥坛吧，或者新开一楼</blockquote>
 
 发发牢骚，但是真的是烦了，从第一季到现在，翻来覆去就这几个破论点。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 919#       发表于 2022-7-19 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56714947&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-19 23:35</a>
+
+我这两天论坛看到贴吧然后连QQ群都不得安稳，某些人差不多得了，什么都80，不过就是嘴臭互损而已，有些人不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是多看看推特和微博里的一般人评论吧
+
+*****
+
+####  lj205  
+##### 920#       发表于 2022-7-19 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56714984&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-19 23:40</a>
+答案是回声室效应，论坛这种地方会不断强化黑泥，观点越是极端越会得到回应，让人以为实际情况就 ...</blockquote>
+我也不想划线，但是现在看到这样翻来覆去说个没完的，我觉得不是蠢就是坏，要么人云亦云还觉得自己老有想法，要么就是故意起哄当乐子
+

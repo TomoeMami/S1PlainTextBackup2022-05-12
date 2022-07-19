@@ -13025,3 +13025,18 @@ ACHILLES阿喵喵郡郡两连top，总排名前进一位，做梦一样<img src=
 
 谢谢myy的整活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  carroy  
+##### 16223#       发表于 2022-7-19 23:41
+
+ 本帖最后由 carroy 于 2022-7-19 23:49 编辑 
+
+莎小姐这个活整挺好杂谈也太虚无了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+想了想平常推上memo写挺好的
+
+看来今后是不会特别开杂谈回了
+
