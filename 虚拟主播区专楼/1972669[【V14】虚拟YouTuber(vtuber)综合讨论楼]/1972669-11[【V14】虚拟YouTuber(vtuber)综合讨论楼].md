@@ -12841,3 +12841,26 @@ Rion前两天才报告热中症了 还要搞组合节目
 说起来knk似乎是当年bora的第一个社外联动对象？（然后不仲了）
 结果成了月奈也是他第一个
 
+
+
+*****
+
+####  Suzutsuki  
+##### 16205#       发表于 2022-7-19 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56705679&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-7-19 11:35</a>
+
+说起来knk似乎是当年bora的第一个社外联动对象？（然后不仲了）
+
+结果成了月奈也是他第一个 ...</blockquote>
+bora和knk不仲是什么说法<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16206#       发表于 2022-7-19 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56706251&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2022-7-19 12:13</a>
+bora和knk不仲是什么说法</blockquote>
+管人惯例，后续没联动就是不仲
+
