@@ -10379,3 +10379,35 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 醒醒，别擅自替人退圈。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 
 我还等着鲤鱼王者归来呢。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 885#       发表于 2022-7-19 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707996&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-19 14:26</a>
+
+贴吧那个星团吧主嘛，疯狂的洗像反串黑似的</blockquote>
+那人不第一季就疯狂洗
+
+*****
+
+####  型月重工  
+##### 886#       发表于 2022-7-19 14:48
+
+我问一下，现在有多少人之前是因为可可喜欢鲤鱼而变成现在喜欢鲤鱼而喜欢可可的？
+
+别跟我说什么我在鲤鱼COSER时期就喜欢了，我是不信。至少在这栋楼里。
+
+*****
+
+####  三尖酸努努  
+##### 887#       发表于 2022-7-19 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56707804&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-7-19 14:13</a>
+你别说S1才是啥都敢讲的地方，因为管理员不管，像贴吧这种带节奏的发言都会被删的，更别说B站了。
+
+S1才是 ...</blockquote>
+只是漫区不怎么管而已，看下外野就知道S1离5ch差得远了，要我说bangumi都比泥潭更有资格当中国的5ch
+
