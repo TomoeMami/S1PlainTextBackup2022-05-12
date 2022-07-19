@@ -10482,3 +10482,33 @@ nico，大多数时候是孤芳自赏，很少有人去怼她，然后花田专�
 
 屁，五厕拉板敢明面团建开楼各团信者大战，泥潭泥吧敢吗。都装的表面友好。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  三尖酸努努  
+##### 892#       发表于 2022-7-19 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708397&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-7-19 14:55</a>
+我只说在拉拉方面啦，你非要较真说拿涉政衡量那我也没话说啦。</blockquote>
+哪怕仅看拉拉方面我也没见泥潭比其他论坛自由多少
+
+*****
+
+####  nufawneafg  
+##### 893#       发表于 2022-7-19 15:05
+
+ 本帖最后由 nufawneafg 于 2022-7-19 15:07 编辑 
+
+表面友好是为了维持起码的互相尊重不产生社会极端事件，日本人只会过过嘴瘾到了推上都换一副面孔，中国人不管三七二十一激得不行了到现实上就要约架干的
+各种例子在前头呢，你要是为了自己的爽快把别人尤其是自己喜欢的事物往火坑里推，真差不多得了
+
+*****
+
+####  黑雪姫  
+##### 894#       发表于 2022-7-19 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56708490&amp;ptid=2078110" target="_blank">三尖酸努努 发表于 2022-7-19 15:02</a>
+哪怕仅看拉拉方面我也没见泥潭比其他论坛自由多少</blockquote>
+我上面某些发言原封不动发NGA星团专楼里了，然后现在我那边被禁言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
