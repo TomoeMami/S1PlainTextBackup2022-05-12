@@ -9646,3 +9646,12 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">表现不足以说服众人被反噬是活该的
 
+
+
+*****
+
+####  aricks  
+##### 822#       发表于 2022-7-19 10:19
+
+土妹子的声音配的真的好难受啊，特别最后冲上屋顶那段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
