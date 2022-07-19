@@ -9655,3 +9655,19 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 
 土妹子的声音配的真的好难受啊，特别最后冲上屋顶那段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 823#       发表于 2022-7-19 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铃原配音水平的确一般般 芽衣 四季感觉好很多
+
+*****
+
+####  老1.5  
+##### 824#       发表于 2022-7-19 10:36
+
+铃原本身就素人出身嘛，另外两个都是事务所声优，彩妹之前也是偶像老手。可能配音问题就是海选没打过sayu的原因之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看天赋
+
