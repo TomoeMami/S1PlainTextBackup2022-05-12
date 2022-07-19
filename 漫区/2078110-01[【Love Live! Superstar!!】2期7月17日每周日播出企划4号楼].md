@@ -9637,3 +9637,12 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 @Deadnooodles
 <img src="https://p.sda1.dev/6/87a2dd498bf360af15939658a041ef5b/CMP_20220719085849260.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 821#       发表于 2022-7-19 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">表现不足以说服众人被反噬是活该的
+
