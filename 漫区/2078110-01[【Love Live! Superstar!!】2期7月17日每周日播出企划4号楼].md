@@ -9763,3 +9763,78 @@ Lovelive确实不是一部讲竞争讲向上的番，当然，不是说成员们
 个人感觉青山配的其实比林原糟糕多了，虽然已经一年后好了不少但是还是不太行，素人选太多了，还不如杂鱼 ...</blockquote>
 鲤鱼还好吧，第一季配的就挺好的，作为一个非母语且初次涉足配音的人来说我觉得没什么可多指摘的，连5ch那帮阴湿都能接受并喜欢。中文发音这茬只能说是独特的要求了，正常说中文明显不是这个味儿<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 834#       发表于 2022-7-19 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56705324&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-7-19 11:17</a>
+
+鲤鱼还好吧，第一季配的就挺好的，作为一个非母语且初次涉足配音的人来说我觉得没什么可多指摘的，连5ch ...</blockquote>
+最正常的可能还是鲤鱼rap的那段，毕竟明确说是自由发挥了。
+
+可可的问题是经常出来些很奇怪的语法和词语，估计菜宝也头疼这种台词怎么解释给鲤鱼。
+
+*****
+
+####  仟音一心  
+##### 835#       发表于 2022-7-19 11:29
+
+CelticWhite
+
+<img src="https://img.saraba1st.com/forum/202207/19/112208zdto52ppssaayyot.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8B819620-2359-4A40-9E85-D713BE9ABCEC.jpeg</strong> (554.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-19 11:22 上传
+
+OekakiFnyanky
+
+<img src="https://img.saraba1st.com/forum/202207/19/112710mj29nvvze1z1ggj1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>434626CC-9B1B-47F8-9E6A-802A25B5D47A.jpeg</strong> (528.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-19 11:27 上传
+
+北原朋萌：没人来的原因。
+
+香音：在竹下通街道上突然唱歌疯狂跳舞的怪人。
+
+恋：行使权力停止社团活动，穷凶极恶的学生会长。
+
+堇：试图咒杀知道自己秘密的人。
+
+可可：高喊自由进行激进的示威活动。
+
+千砂都：无需说明，激重幼驯染。
+
+twi：KitaharaTomoe 
+
+<img src="https://img.saraba1st.com/forum/202207/19/112825rs7qa6h6hn858a5q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BC70D91D-24B3-4A78-B000-C7BF8178BDAD.jpeg</strong> (242.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-19 11:28 上传
+
+twi：mezashiozsn
+
+<img src="https://img.saraba1st.com/forum/202207/19/112934f10zivgzkkk3k3ky.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B2B70794-A04A-4B77-9E59-84818FFE97E6.jpeg</strong> (235 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-19 11:29 上传
+

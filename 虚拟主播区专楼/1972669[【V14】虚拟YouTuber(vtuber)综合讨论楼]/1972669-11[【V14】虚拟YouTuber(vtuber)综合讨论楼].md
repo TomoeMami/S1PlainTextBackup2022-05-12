@@ -12819,3 +12819,15 @@ Rion前两天才报告热中症了 还要搞组合节目
 
 德比今天嗓子不行把下午和夜见的联动推了，但是莎乐美那边看样子挺正常的12点播，感觉这么久了，这俩人一人说也讲的通，不是一人说也讲的通，真的感觉太默契了，一点把柄都抓不到的，感觉真的只能等一个全社联动穿帮了，不然永远没结果
 
+
+
+*****
+
+####  小鸟游泉  
+##### 16203#       发表于 2022-7-19 11:29
+
+[https://www.youtube.com/watch?v=mrXRO0061zY](https://www.youtube.com/watch?v=mrXRO0061zY)
+[https://www.youtube.com/watch?v=Wj-iYY2ewVs](https://www.youtube.com/watch?v=Wj-iYY2ewVs)
+
+昨天安洁和ib这丑陋的大人约会……还有没被发现却旁观了始终的甲斐田，实在是太有戏剧性了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
