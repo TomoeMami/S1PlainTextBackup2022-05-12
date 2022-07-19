@@ -12937,3 +12937,12 @@ bora和knk不仲是什么说法</blockquote>
 
 喷了，这也行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16215#       发表于 2022-7-19 21:23
+
+油男这声控追分也太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

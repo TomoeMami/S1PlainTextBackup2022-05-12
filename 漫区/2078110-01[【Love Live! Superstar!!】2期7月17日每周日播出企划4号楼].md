@@ -10708,3 +10708,12 @@ s1没有，直接发尼哥坛吧，或者新开一楼</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永恒的王牌  
+##### 913#       发表于 2022-7-19 21:32
+
+前三集的可可能看出对学园偶像的热情和对他人的温柔，之后这些倒不是没有，但是印象都被和堇拌嘴毒舌化盖过去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
