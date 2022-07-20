@@ -10938,3 +10938,12 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 
 我看下集预告和标题也不像有人入队，这次不会是2集一组走完入队流程吧，那岂不是还会有人8集才入队，更别说碰上老大难的还要再拉扯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 933#       发表于 2022-7-20 10:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">已经对拉人这标准流程烦了..
+
