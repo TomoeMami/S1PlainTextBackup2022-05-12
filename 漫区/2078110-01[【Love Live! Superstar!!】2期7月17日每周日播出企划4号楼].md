@@ -11030,3 +11030,13 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 说可堇的，sif游戏里泳池剧情听听，可可还主动约堇玩滑道</blockquote>
 TV以外的可堇都挺好，像是杂志上刊登的短篇，广播剧之类
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 942#       发表于 2022-7-20 13:10
+
+关键是sif也未必大家都去玩啊，Lovelive Days也未必都会去看，看到的觉得还行，那没看到的就是没看到了。
+而且虽然LL是跨媒体企划，但有些时候各个媒介之间都有一定的割裂感，这时候大概还是影响力最大的那个媒介对角色的塑造在大家心里占主导位置，所以我觉得动画还是关键<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

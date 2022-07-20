@@ -13367,3 +13367,22 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每个月都有人毕业，正好有新人出道有什么奇怪的，那vta新人是不是还是给梅丽莎冲喜的
 
+
+
+*****
+
+####  毛头小希  
+##### 16256#       发表于 2022-7-20 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56720751&amp;ptid=1972669" target="_blank">winda 发表于 2022-7-20 12:57</a>
+
+每个月都有人毕业，正好有新人出道有什么奇怪的，那vta新人是不是还是给梅丽莎冲喜的 ...</blockquote>
+还真别说，金凤花出来的时候那边就有人说是给老罗灭火的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 16257#       发表于 2022-7-20 13:14
+
+塔吧那个黑发塔是真的么
+
