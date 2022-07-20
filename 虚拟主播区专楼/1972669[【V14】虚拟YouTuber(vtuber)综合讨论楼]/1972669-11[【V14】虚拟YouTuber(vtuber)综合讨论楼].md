@@ -13323,3 +13323,12 @@ syl
 
 刚好就在黑客要走的这个月一口气出了十个新人，很难不让人有种拿新人出道冲喜的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16251#       发表于 2022-7-20 12:04
+
+王子的人设真的很像我喜欢的那一款BL漫画DK攻所以去看了下画师妈，然后发现是卡多的角色设计……………
+
