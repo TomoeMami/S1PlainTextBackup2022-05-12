@@ -13332,3 +13332,13 @@ syl
 
 王子的人设真的很像我喜欢的那一款BL漫画DK攻所以去看了下画师妈，然后发现是卡多的角色设计……………
 
+
+
+*****
+
+####  lor  
+##### 16252#       发表于 2022-7-20 12:12
+
+照这么说黑客比之前毕业的每一个都对虹打击最大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你虹又不是隔壁，抓住甲子园的热度和暑假抓紧出太正常了。
+这期感觉会不如纯男成功但是能打开新客群，褐色大姐姐我可太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
