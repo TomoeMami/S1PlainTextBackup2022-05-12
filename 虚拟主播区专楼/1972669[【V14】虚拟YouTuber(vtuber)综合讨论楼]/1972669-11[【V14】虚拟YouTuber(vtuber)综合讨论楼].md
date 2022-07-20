@@ -13466,3 +13466,33 @@ Aia Amare=？（说越南语的Vtuber没那么多，应该可以找到）</block
 
 就一句话真能特准吗，不如等首播完再来
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16265#       发表于 2022-7-20 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56722531&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-20 15:33</a>
+
+就一句话真能特准吗，不如等首播完再来</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/20/160122qr9n3dn3mgbluisz.png" referrerpolicy="no-referrer">
+
+<strong>@QuinnBenet.png</strong> (50.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-20 16:01 上传
+
+不能作为证据，但这人实在太好乐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+什么自爆卡车一拖三
+
+*****
+
+####  rzrbtk  
+##### 16266#       发表于 2022-7-20 16:05
+
+彩虹宁宁也没什么，彩虹delta不必出现哈！
+
