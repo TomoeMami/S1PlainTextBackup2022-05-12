@@ -1006,3 +1006,14 @@ emmmmmmmmmmmmmmmmmm
 英国那个，要人去吗？还是连线那种</blockquote>
 她连坐飞机来中国都怕怎么可能去英国，樱花妹的不安会让她心脏爆炸的
 
+
+
+*****
+
+####  clvan_  
+##### 12123#       发表于 2022-7-20 16:55
+
+ 本帖最后由 clvan_ 于 2022-7-20 16:58 编辑 
+
+破案了，是staff二人组去英国，剩下六个人都在手机里呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
