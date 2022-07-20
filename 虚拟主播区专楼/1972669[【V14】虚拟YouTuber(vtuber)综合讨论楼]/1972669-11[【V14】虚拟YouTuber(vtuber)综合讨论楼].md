@@ -13140,3 +13140,25 @@ king这几次虹甲上黛灰就争取完投，状态不好都头铁不换人
 
 也可能是2女4男，那个眼罩可能是八美肉可能是设定上的伪娘。不过牛B了一次六个，组合曲得是啥样
 
+
+
+*****
+
+####  NBXX  
+##### 16233#       发表于 2022-7-20 08:43
+
+应该左边三个女的右边三个男的。
+https://prtimes.jp/main/html/rd/p/000000463.000030865.html
+看个人设定推断的。
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dclara1  
+##### 16234#       发表于 2022-7-20 08:49
+
+蓝毛是男的，人设是cheerful guy还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过感觉有潜力，有生态位的
+

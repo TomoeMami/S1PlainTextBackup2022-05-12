@@ -10821,3 +10821,14 @@ s1没有，直接发尼哥坛吧，或者新开一楼</blockquote>
 
 syl 第一集没人加新生主动入的原因感觉有点牵强，一般这种知名社团会有不少人抢着加入吧，可能是怕如果人来的太多，搞面试淘汰制显得有点太现实了，会破坏观感？想了想，主要原因应该还是编剧想走的路线，要一个一个的收服新人，就和上一季的剧情一样<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 923#       发表于 2022-7-20 08:48
+
+打铁怎么当谜语人了，到底啥事这么开心<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
