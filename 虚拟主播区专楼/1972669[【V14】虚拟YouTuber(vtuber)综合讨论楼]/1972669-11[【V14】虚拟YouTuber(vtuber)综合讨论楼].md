@@ -13419,3 +13419,32 @@ vs
 
 Elira，Millie，Enna和Ike在线下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16261#       发表于 2022-7-20 14:30
+
+ 本帖最后由 alcoholic1000 于 2022-7-20 14:34 编辑 
+
+惯例的那个：
+ <blockquote>Maria Marionette =Himechin 🇦🇺 颜出唱见，已锁推，EN&amp;JP&amp;CN
+
+Scarle Yonaguni=AmiYoshiko 🇺🇸 颜出油管主，虹观众，宣布暂时离开但很快会再相见，内容以女性向手游和动漫方向的创作为主，EN&amp;ES（出现在Fulgur首播的配音名单中）
+
+Kyo Kaneko=Quinn Benet 🇺🇸 颜出油管主，虹观众，宣布暂时离开但很快会再相见，内容以XX挑战、恶作剧，discord meme比赛为主，EN
+
+Ren Zotto=Jordan Sweeto 🇦🇺 金盾颜出油管主，宣布暂时离开参与其他企划（这人也有可能在holo starEN），内容以歌曲创作视频创作为主，EN
+
+Aster Arcadia=Xignia Krulcifer Vtuber，宣布暂时离开参与其他企划，EN
+
+Aia Amare=？（说越南语的Vtuber没那么多，应该可以找到）</blockquote>
+
+*****
+
+####  Suny08  
+##### 16262#       发表于 2022-7-20 14:30
+
+感觉比较假，这才停止活动的，声音也不像，话说塔吧咋变成这样子了，全是虹en
+
