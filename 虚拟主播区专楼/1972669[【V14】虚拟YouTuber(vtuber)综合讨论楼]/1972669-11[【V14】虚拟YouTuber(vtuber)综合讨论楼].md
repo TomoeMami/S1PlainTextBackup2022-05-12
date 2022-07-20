@@ -13404,3 +13404,18 @@ syl
 
 不是说我要证明我的感觉是对的，但是我去查了下，金凤花是3月底出道，但连续有liver毕业是5.6.7月的事啊
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16260#       发表于 2022-7-20 14:28
+
+&gt;度假拜访朋友，恰巧有其他NijiEN成员在场
+
+vs
+
+&gt;和NijiEN成员出去玩
+
+Elira，Millie，Enna和Ike在线下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
