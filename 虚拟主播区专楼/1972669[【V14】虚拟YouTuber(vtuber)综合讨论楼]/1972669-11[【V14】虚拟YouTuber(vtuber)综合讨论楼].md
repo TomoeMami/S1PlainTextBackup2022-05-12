@@ -13519,3 +13519,21 @@ Aia Amare=？（说越南语的Vtuber没那么多，应该可以找到）</block
 但是还是单人
 箱什么的 不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 16269#       发表于 2022-7-20 21:44
+
+有人知道为啥150万纪念的视频私享了？
+
+*****
+
+####  lhawp  
+##### 16270#       发表于 2022-7-20 21:49
+
+Maria的皮挺好看的
+
+看了下塔，感觉风格有点像Pomu……
+
