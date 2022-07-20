@@ -10917,3 +10917,15 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看可香人一片哀嚎不由得一声叹息，没办法，你挂上的人背负祖训，那三集才是星这个动画任务最重的一幕，奈何花田也是真敢爆种。
 
+
+
+*****
+
+####  lj205  
+##### 931#       发表于 2022-7-20 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56717838&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-20 09:39</a>
+
+后知后觉，从s2的bd封面来推测，不会是一个人拉一个新人入团吧？然后考虑到5比4，大概会有一个新人是两个人 ...</blockquote>
+这还要猜，从宣传海报上那超大比例的香音就看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
