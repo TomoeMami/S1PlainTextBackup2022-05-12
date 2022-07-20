@@ -11289,3 +11289,30 @@ Nako历时4个多月把fc的标题憋出来了，估计年底前就能上线了�
 大家的活动都在如火如荼的开展，只有鲤鱼……哎………………希望8月的活动都能赶上 ...</blockquote>
 毕竟休渔期没法安排<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 963#       发表于 2022-7-20 22:22
+
+8月21那个户外演唱会的安排，接近中午时段
+
+<img src="https://img.saraba1st.com/forum/202207/20/222155ancu6pl6mqoymw8c.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2q-eavmK1iT3cSip-wh.jpg</strong> (57.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-20 22:21 上传
+
+*****
+
+####  player3960  
+##### 964#       发表于 2022-7-20 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56727370&amp;ptid=2078110" target="_blank">lj205 发表于 2022-07-20 21:38:08</a>
+大家的活动都在如火如荼的开展，只有鲤鱼……哎………………希望8月的活动都能赶上 ...</blockquote>鲤鱼单推难受额，动画都不想看，每天没事就在鱼的推和微博巡视希望她更新点啥…<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
