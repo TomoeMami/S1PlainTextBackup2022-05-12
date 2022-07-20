@@ -13351,3 +13351,19 @@ syl
 
 不是说因为有人毕业而出新人而是因为有人要7月毕业所以把两组新人出道也都放在7月的意思。当然也只是说给人这种感觉而已，没说enkr就是这么想的。
 
+
+
+*****
+
+####  Ketestrait  
+##### 16254#       发表于 2022-7-20 12:54
+
+不如说在看到甲子园规则里特意写了一条选秀后出道的由主办方分配的时候，就基本确定7月内肯定会有新人出道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 16255#       发表于 2022-7-20 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每个月都有人毕业，正好有新人出道有什么奇怪的，那vta新人是不是还是给梅丽莎冲喜的
+

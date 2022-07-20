@@ -11008,3 +11008,14 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Enakina  
+##### 940#       发表于 2022-7-20 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56720465&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2022-7-20 12:38</a>
+说点题外话，这几天的水生放送，小宫和小林都说，《幻日夜羽》企划当初公布的时候连上面的大人物都来了，然 ...</blockquote>
+怎么说呢，我觉得水fl是准没戏的，哪怕她们自己都觉得快来了。现在水fl的话，拉拉基本算凉一大半了。企划想法估计是就这么吊着，偶尔开开live，就挺好的。夜羽那个外传明显就是长期续命的证明了
+
