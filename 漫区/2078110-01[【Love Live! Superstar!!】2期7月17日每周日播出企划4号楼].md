@@ -10972,3 +10972,21 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  离心  
+##### 936#       发表于 2022-7-20 11:34
+
+按照ll历代传统，红蓝青梅必打包入队，用脚趾都能想怎么入队了。
+
+*****
+
+####  player3960  
+##### 937#       发表于 2022-7-20 11:36
+
+既然是香音传了，可可这季要是的爆雷，让香哥哥拆好不好，我还是蛮乐见的，贯彻到底啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
