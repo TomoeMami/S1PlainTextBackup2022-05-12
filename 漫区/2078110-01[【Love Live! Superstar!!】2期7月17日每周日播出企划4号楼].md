@@ -11249,3 +11249,12 @@ CelticWhite</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202207/20/211811zatedpdqgalaqg1l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 959#       发表于 2022-7-20 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">大家的活动都在如火如荼的开展，只有鲤鱼……哎………………希望8月的活动都能赶上
+
