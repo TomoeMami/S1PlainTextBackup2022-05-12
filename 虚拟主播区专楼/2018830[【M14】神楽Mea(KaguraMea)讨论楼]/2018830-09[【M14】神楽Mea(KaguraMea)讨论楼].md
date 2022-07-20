@@ -1035,3 +1035,23 @@ emmmmmmmmmmmmmmmmmm
 
 以我小学水平的英语看了半天，貌似这英国的音乐节没有线上是吗？
 
+
+
+*****
+
+####  秋游刃  
+##### 12126#       发表于 2022-7-20 18:11
+
+好像是的，只有线下。
+
+*****
+
+####  Cushaw  
+##### 12127#       发表于 2022-7-20 18:13
+
+ 本帖最后由 Cushaw 于 2022-7-20 18:15 编辑 
+
+看样子只能等着被英伦摇滚薄纱了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+等会儿，好像没有当地表演者<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
