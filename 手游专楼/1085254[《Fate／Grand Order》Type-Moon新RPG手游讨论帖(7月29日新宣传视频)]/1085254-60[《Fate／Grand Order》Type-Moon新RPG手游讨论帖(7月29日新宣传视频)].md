@@ -5935,3 +5935,14 @@ google再抽风怕不是信用卡战士都当不了了
 
 下周末就周年了，当然是开摆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89033#       发表于 2022-7-20 17:47
+
+这么无聊当然是去贴吧pvp啊
+国服怎么还不开2.6，我想看血流成河.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
