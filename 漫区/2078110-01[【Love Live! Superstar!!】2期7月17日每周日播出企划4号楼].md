@@ -10929,3 +10929,12 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 后知后觉，从s2的bd封面来推测，不会是一个人拉一个新人入团吧？然后考虑到5比4，大概会有一个新人是两个人 ...</blockquote>
 这还要猜，从宣传海报上那超大比例的香音就看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 932#       发表于 2022-7-20 10:38
+
+我看下集预告和标题也不像有人入队，这次不会是2集一组走完入队流程吧，那岂不是还会有人8集才入队，更别说碰上老大难的还要再拉扯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
