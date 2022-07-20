@@ -11329,3 +11329,12 @@ Nako历时4个多月把fc的标题憋出来了，估计年底前就能上线了�
   -- 来自 有消息 ...</blockquote>
 近期鲤友的鲤鱼能量确实严重不足，各种考古，还考到9年前了
 
+
+
+*****
+
+####  cybernetics31  
+##### 966#       发表于 2022-7-21 00:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼9年前的cos视频都挖出来了
+
