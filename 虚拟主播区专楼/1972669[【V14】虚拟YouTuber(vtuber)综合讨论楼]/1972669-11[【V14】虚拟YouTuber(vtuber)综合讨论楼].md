@@ -13185,3 +13185,21 @@ https://prtimes.jp/main/html/rd/p/000000463.000030865.html
 
 听声音我支持褐色皮肤的大姐姐，但是按v圈深色皮肤有点debuff的推论emmm
 
+
+
+*****
+
+####  fastary  
+##### 16238#       发表于 2022-7-20 09:12
+
+en和本社分开看的话其实频率也远比19组下饺子低多了，en5期人气没那么高也基本都上了30w订阅(比eden组高)，出en6挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+可惜伪娘不是我的菜，蹲最右那位了<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dybang  
+##### 16239#       发表于 2022-7-20 09:18
+
+比上期强点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改nijikr风了
+
