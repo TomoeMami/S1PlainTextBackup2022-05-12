@@ -13203,3 +13203,50 @@ en和本社分开看的话其实频率也远比19组下饺子低多了，en5期�
 
 比上期强点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改nijikr风了
 
+
+
+*****
+
+####  poipanchao  
+##### 16240#       发表于 2022-7-20 09:30
+
+这个人偶看宣传图还行，怎么立绘这么不行
+一眼看去三个女人还不如男的顺眼…
+
+*****
+
+####  毛头小希  
+##### 16241#       发表于 2022-7-20 09:31
+
+ 本帖最后由 毛头小希 于 2022-7-20 09:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56717493&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-20 09:12</a>
+
+en和本社分开看的话其实频率也远比19组下饺子低多了，en5期人气没那么高也基本都上了30w订阅(比eden组高)， ...</blockquote>
+草，身为豆猫推觉得被一把刀戳到心口
+
+只能说EN那种没有隔阂随意往来的民风还是有好处的
+
+出了个爆款大家就都能被带飞
+
+只要不是盒皇那样的gachi犯病基本随便联没问题
+
+嗯男出之前还有人说虹嗯女要完蛋了，实际上数据反而比以前还要好
+
+不过这回说是三男三女，三个男里面两个都那么中性，剩下那个保不准还是个憨憨，还是太阴盛阳衰了啊……
+
+咳咳我说的这个阴盛阳衰是跟名义上的三男三女做对比的，说是平衡混合团实际上一堆女+疑似女+一个男的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 16242#       发表于 2022-7-20 09:37
+
+草 阴盛阳衰这词能用在彩虹上我是没想过的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 16243#       发表于 2022-7-20 09:39
+
+那个蓝毛正太是不是就是那个hanamori 的华裔？我看名字是中文
+

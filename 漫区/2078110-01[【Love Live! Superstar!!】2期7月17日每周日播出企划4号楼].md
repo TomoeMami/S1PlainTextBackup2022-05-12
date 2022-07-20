@@ -10899,3 +10899,12 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 土妹子那个就是故意这样安排的，这次第一集的情节算是高度复刻第一季了，结构都差不多，致敬自己嘛肯定是 ...</blockquote>
 这种致敬自己的方法可能会让人觉得你做动画的有点不尊重俩个角色，被一期动画前三集“骗”进来的可香推，在之后逐渐被拆的七零八落，然后相似的剧情竟然被二期动画拿去成人之美了，我的评价是真有它的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 929#       发表于 2022-7-20 09:39
+
+后知后觉，从s2的bd封面来推测，不会是一个人拉一个新人入团吧？然后考虑到5比4，大概会有一个新人是两个人来拉？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">纯猜测，全靠香音来拉的可能性最大
+
