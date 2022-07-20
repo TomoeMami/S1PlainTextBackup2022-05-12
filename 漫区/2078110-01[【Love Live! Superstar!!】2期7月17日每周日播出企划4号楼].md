@@ -10947,3 +10947,17 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">已经对拉人这标准流程烦了..
 
+
+
+*****
+
+####  梶原ひかり  
+##### 934#       发表于 2022-7-20 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56718644&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-20 10:38</a>
+
+我看下集预告和标题也不像有人入队，这次不会是2集一组走完入队流程吧，那岂不是还会有人8集才入队，更别说 ...</blockquote>
+樱小路应该是二期资质最差的..然后是最主要角色 很可能就她给两集打一个先锋 
+
+展现下进入裂裂后的成长 然后另外三个人就一集..水团 缪斯 早期三人组都要三集左右 才进入下一个环节
+
