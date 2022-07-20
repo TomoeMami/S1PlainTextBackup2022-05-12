@@ -11051,3 +11051,14 @@ TV以外的可堇都挺好，像是杂志上刊登的短篇，广播剧之类
 同时有多种感官体验的动画
 给人留下的体验当然是单纯的声音/图像/文字不能比的
 
+
+
+*****
+
+####  黑雪姫  
+##### 944#       发表于 2022-7-20 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56720790&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-20 13:00</a>
+TV以外的可堇都挺好，像是杂志上刊登的短篇，广播剧之类</blockquote>
+TV之外可堇写的好不就是证明了花田的锅稳稳的吗，毕竟动画之外的剧本不是他写的。
+
