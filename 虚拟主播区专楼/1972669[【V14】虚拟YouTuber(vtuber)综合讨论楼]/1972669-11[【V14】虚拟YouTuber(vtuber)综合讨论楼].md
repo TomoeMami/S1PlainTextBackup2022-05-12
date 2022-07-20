@@ -13122,3 +13122,12 @@ king这几次虹甲上黛灰就争取完投，状态不好都头铁不换人
 [https://www.youtube.com/watch?v=ekwnJHHK_o0](https://www.youtube.com/watch?v=ekwnJHHK_o0)
 <img src="https://i.imgur.com/qIyNks9.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 16231#       发表于 2022-7-20 08:22
+
+请问一下刚刚出道的那个四人男团还有温度嘛.png
+
