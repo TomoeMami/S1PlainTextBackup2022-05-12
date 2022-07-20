@@ -13395,3 +13395,12 @@ syl
 
 正太的声音我甚至一开始以为是旁白。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16259#       发表于 2022-7-20 14:18
+
+不是说我要证明我的感觉是对的，但是我去查了下，金凤花是3月底出道，但连续有liver毕业是5.6.7月的事啊
+
