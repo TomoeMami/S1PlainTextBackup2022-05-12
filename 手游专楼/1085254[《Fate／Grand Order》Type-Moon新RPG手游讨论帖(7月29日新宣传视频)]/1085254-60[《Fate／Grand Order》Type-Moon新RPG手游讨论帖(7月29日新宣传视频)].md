@@ -5981,3 +5981,21 @@ google再抽风怕不是信用卡战士都当不了了
 261节奏虽然猛太弱智了，我要看262车阿瓦隆之庭
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 89038#       发表于 2022-7-20 23:51
+
+看国服一个个信誓旦旦说263有补完就很乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk86  
+##### 89039#       发表于 2022-7-20 23:59
+
+应该来s1看，去年2.6从1黑到3带着没发售的月姬一道黑
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
