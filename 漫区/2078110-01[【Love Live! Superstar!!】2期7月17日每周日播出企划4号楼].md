@@ -11114,3 +11114,14 @@ TV之外可堇写的好不就是证明了花田的锅稳稳的吗，毕竟动画
 心心想念2nd live场刊终于发货，海鲜市场现在都能原价买到了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原价是多少，看到一个最便宜的是200
 
+
+
+*****
+
+####  starring  
+##### 951#       发表于 2022-7-20 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56723132&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-20 16:18</a>
+原价是多少，看到一个最便宜的是200</blockquote>
+230元预定，在海鲜市场见过220全新的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
