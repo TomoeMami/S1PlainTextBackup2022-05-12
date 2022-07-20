@@ -13250,3 +13250,23 @@ en和本社分开看的话其实频率也远比19组下饺子低多了，en5期�
 
 那个蓝毛正太是不是就是那个hanamori 的华裔？我看名字是中文
 
+
+
+*****
+
+####  qesto  
+##### 16244#       发表于 2022-7-20 09:41
+
+这个伪娘正太的声音也太不伪娘正太了吧
+
+*****
+
+####  fastary  
+##### 16245#       发表于 2022-7-20 09:49
+
+去听了声音，萎了。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+两个男音很……普。还有一个怎么听都是女魂(问题是yugo那完全是反例啊怎么还会有女魂男皮)<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+中性少年声音既不中性也不少年，王子的声音也不王子，怎么会这样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
