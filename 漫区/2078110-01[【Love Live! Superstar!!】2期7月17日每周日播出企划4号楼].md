@@ -11258,3 +11258,23 @@ CelticWhite</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">大家的活动都在如火如荼的开展，只有鲤鱼……哎………………希望8月的活动都能赶上
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 960#       发表于 2022-7-20 21:50
+
+nako：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 961#       发表于 2022-7-20 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56727524&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-20 21:50</a>
+nako：</blockquote>
+Nako历时4个多月把fc的标题憋出来了，估计年底前就能上线了吧
+

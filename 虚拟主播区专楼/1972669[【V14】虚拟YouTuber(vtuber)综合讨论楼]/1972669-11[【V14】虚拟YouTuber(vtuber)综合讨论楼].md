@@ -13537,3 +13537,30 @@ Maria的皮挺好看的
 
 看了下塔，感觉风格有点像Pomu……
 
+
+
+*****
+
+####  gaiadc  
+##### 16271#       发表于 2022-7-20 21:52
+
+好消息：葛皇第二年抽卡数值堪比去年熊猫
+
+坏消息：7个新生9个红特，3个带エラー<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kreis  
+##### 16272#       发表于 2022-7-20 21:53
+
+king这节目效果，拉满了
+
+*****
+
+####  alcoholic1000  
+##### 16273#       发表于 2022-7-20 21:56
+
+自己玩都没见过这么多红特，尤其是还有对左投手G、回復F、エラーエラーエラー<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+对面自带魔物了
+
