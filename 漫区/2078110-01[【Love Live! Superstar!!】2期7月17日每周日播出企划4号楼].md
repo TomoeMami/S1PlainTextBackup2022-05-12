@@ -10887,3 +10887,15 @@ syl 第一集没人加新生主动入的原因感觉 ...</blockquote>
 第二季目标明确压力大，没人就更着急，当然夸大演出成分 ...</blockquote>
 土妹子那个就是故意这样安排的，这次第一集的情节算是高度复刻第一季了，结构都差不多，致敬自己嘛肯定是最不容易出错的（至少监督会这样觉得）。可→香和香→樱的对应也算为数不多的亮点了，但是，就做的特生硬，到底是工期紧还是故意这样的效果，摸不准。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 928#       发表于 2022-7-20 09:22
+
+ 本帖最后由 aoaoaodedede 于 2022-7-20 09:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56717550&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-20 09:16</a>
+土妹子那个就是故意这样安排的，这次第一集的情节算是高度复刻第一季了，结构都差不多，致敬自己嘛肯定是 ...</blockquote>
+这种致敬自己的方法可能会让人觉得你做动画的有点不尊重俩个角色，被一期动画前三集“骗”进来的可香推，在之后逐渐被拆的七零八落，然后相似的剧情竟然被二期动画拿去成人之美了，我的评价是真有它的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
