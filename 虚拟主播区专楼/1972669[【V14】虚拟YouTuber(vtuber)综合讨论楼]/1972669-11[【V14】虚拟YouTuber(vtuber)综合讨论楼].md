@@ -13106,3 +13106,19 @@ king这几次虹甲上黛灰就争取完投，状态不好都头铁不换人
 6期来了啊 这次皮好不错
 五女一男
 
+
+
+*****
+
+####  D-JoeII  
+##### 16230#       发表于 2022-7-20 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56716872&amp;ptid=1972669" target="_blank">死体残留 发表于 2022-7-20 08:08</a>
+
+6期来了啊 这次皮好不错
+
+五女一男</blockquote>
+我覺得是3女3男
+[https://www.youtube.com/watch?v=ekwnJHHK_o0](https://www.youtube.com/watch?v=ekwnJHHK_o0)
+<img src="https://i.imgur.com/qIyNks9.png" referrerpolicy="no-referrer">
+
