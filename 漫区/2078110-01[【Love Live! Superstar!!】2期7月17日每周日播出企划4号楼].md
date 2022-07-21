@@ -11622,3 +11622,23 @@ Fan Book Second
 话说她们有用过练习服表演过吗？还挺想看看的，如果是我没看到的话能给个链吗 ...</blockquote>
 什么叫“练习服”
 
+
+
+*****
+
+####  ViyViy  
+##### 992#       发表于 2022-7-21 17:24
+
+ 本帖最后由 ViyViy 于 2022-7-21 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56737238&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-21 17:15</a>
+
+什么叫“练习服”</blockquote>
+就……动画里天台练习的那一套？好像正确的说法是常服？我看了下tbA店官方的立牌周边，一期的时候天台和平时练习的这套衣服就叫练习服ver，我就跟着叫了
+
+*****
+
+####  lj205  
+##### 993#       发表于 2022-7-21 17:26
+
+没有
+
