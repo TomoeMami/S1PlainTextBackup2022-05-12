@@ -6163,3 +6163,21 @@ google再抽风怕不是信用卡战士都当不了了
 
 不用天天做傻逼的日常了
 
+
+
+*****
+
+####  exiaexa  
+##### 89054#       发表于 2022-7-21 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56732495&amp;ptid=1085254" target="_blank">sk86 发表于 2022-7-21 11:30</a>
+我觉得没有蘑菇剧本，fgo也可以卸载，号也能卖了
+
+不用天天做傻逼的日常了 ...</blockquote>
+不开玩笑的话，如果你不是跟我们一样的乐子人
+我觉得你现在就可以卸了，终章云一下剧情完事儿
+
+阿菌有可能碰的除了终章就只有个薛定谔的月姬联动
+薛定谔的苍银肯定是樱井干活阿菌改一改，2.7怎么看都是三田可能性更高
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
