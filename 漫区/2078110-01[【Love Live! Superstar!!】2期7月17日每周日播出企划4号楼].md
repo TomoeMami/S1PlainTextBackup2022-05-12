@@ -11412,3 +11412,26 @@ NiiDORO677901
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么看休息也挺好的，日本人这是彻底摆了啊
 
+
+
+*****
+
+####  寒风夜  
+##### 974#       发表于 2022-7-21 10:40
+
+日本人不是早摆了
+
+*****
+
+####  ViyViy  
+##### 975#       发表于 2022-7-21 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此摆非彼摆哇，这次变异的不是说上强度了？
+
+*****
+
+####  starring  
+##### 976#       发表于 2022-7-21 10:47
+
+去年就摆了，今年只不过是轮回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
