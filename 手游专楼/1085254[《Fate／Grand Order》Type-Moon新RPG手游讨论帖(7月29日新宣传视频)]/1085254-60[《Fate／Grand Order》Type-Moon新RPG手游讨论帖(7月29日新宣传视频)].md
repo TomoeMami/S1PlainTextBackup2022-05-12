@@ -6232,3 +6232,14 @@ google再抽风怕不是信用卡战士都当不了了
 因为我在跑外勤太无聊了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 89060#       发表于 2022-7-21 14:15
+
+<blockquote>alucardcz 发表于 2022-7-21 13:20
+多了这么多回复我还以为出了什么新情报。 你们怎么回事</blockquote>
+周年前惯例躺平一周怎么可能会有新情报23333两边都在躺平不就只能化身乐子人
+
