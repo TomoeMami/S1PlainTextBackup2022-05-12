@@ -6352,3 +6352,35 @@ google再抽风怕不是信用卡战士都当不了了
 第二次带了个泳装巴御前，没触发</blockquote>
 随机的，我棉被+伊吹一样触发了。
 
+
+
+*****
+
+####  alucardcz  
+##### 89071#       发表于 2022-7-21 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56737687&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-21 17:45</a>
+
+感觉关底彩蛋单泳装拉不满
+
+我第一次带了个泳装梅芙，触发了
+
+第二次带了个泳装巴御前，没触发</blockquote>
+不是看脸的吗?
+
+我常年巴那那队。。第1把就触发了
+
+*****
+
+####  qixinno2  
+##### 89072#       发表于 2022-7-21 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四发十连骑莫2宝 其他毛都没出 弓呆 我的弓呆
+
+*****
+
+####  khxooo  
+##### 89073#       发表于 2022-7-21 19:11
+
+一次6骨，可以的，这次不嫖羁绊礼装了，嫖那个骨头加成礼装。
+
