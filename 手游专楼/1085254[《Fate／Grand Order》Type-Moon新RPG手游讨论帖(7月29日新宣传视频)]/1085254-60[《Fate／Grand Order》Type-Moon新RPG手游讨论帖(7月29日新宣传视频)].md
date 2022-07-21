@@ -6199,3 +6199,17 @@ google再抽风怕不是信用卡战士都当不了了
 
 以及这楼不是还很开心的当海豹吗，我还以为都是乐子人
 
+
+
+*****
+
+####  里村紅葉  
+##### 89057#       发表于 2022-7-21 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56733049&amp;ptid=1085254" target="_blank">sk86 发表于 2022-7-21 12:07</a>
+
+蘑菇应该和1.0一样负责写2.6，2.7和可能的终章，把自己埋的伏笔收回
+
+以及这楼不是还很开心的当海豹吗，我 ...</blockquote>
+海豹跟乐子人又不冲突<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
