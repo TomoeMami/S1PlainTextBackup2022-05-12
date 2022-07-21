@@ -11503,3 +11503,28 @@ Fan Book Second
 说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？ ...</blockquote>
 动画是吊带，三次元是那种上面肉色下面白色的拼接式裤袜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LSP如是说道
 
+
+
+*****
+
+####  player3960  
+##### 983#       发表于 2022-7-21 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56735138&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-07-21 14:45:33</a>
+动画是吊带，三次元是那种上面肉色下面白色的拼接式裤袜LSP如是说道</blockquote>其实想的话也有那种上半是吊带图案的拼接裤袜，不过多半还是为了健全考虑吊带被ban了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说最后的几场fmt，pay一出场就穿的这种拼接裤袜，而不是以前的过膝袜，也不知道是为了方便换装，还是过膝袜太容易掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  老1.5  
+##### 984#       发表于 2022-7-21 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56735344&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-21 15:02</a>
+
+其实想的话也有那种上半是吊带图案的拼接裤袜，不过多半还是为了健全考虑吊带被ban了
+
+话说最后的几 ...</blockquote>
+应该是容易掉，之前穿长筒袜Pay需要经常提袜子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
