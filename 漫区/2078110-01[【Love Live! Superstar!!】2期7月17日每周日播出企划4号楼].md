@@ -11560,3 +11560,27 @@ Fan Book Second
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56735582&amp;ptid=2078110" target="_blank"> 仟音一心 发表于 2022-7-21 15:21</a> 引用:ads147147 发表于 2022-7-21 14:31 说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？ ... 想看吊带的话，隔壁有逢田姐。  其实这款不是真的吊带。附件： </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逢田姐真的年纪越大人越好看，现在感觉比水水早期好看不少来自: iPhone客户端
 
+
+
+*****
+
+####  ads147147  
+##### 987#       发表于 2022-7-21 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56735582&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-21 15:21</a>
+想看吊带的话，隔壁有逢田姐。
+
+其实这款不是真的吊带。</blockquote>
+腿环也不错啦，这次二期可可加了腿环真的hs。
+
+逢田姐越来越漂亮了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 988#       发表于 2022-7-21 16:00
+
+插曲1里她们穿的袜夹，不知道三次元能不能还原，我太想看了
+
