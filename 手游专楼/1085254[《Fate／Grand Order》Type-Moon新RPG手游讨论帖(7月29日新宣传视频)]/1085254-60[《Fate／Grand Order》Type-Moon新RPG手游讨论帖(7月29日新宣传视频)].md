@@ -6130,3 +6130,16 @@ google再抽风怕不是信用卡战士都当不了了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 89051#       发表于 2022-7-21 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56731502&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2022-7-21 10:29</a>
+问题就出在这个垫的问题上，月r学姐线也能明显看出他对公主的偏心，但并没有因此就把学姐和诺艾尔给 ...</blockquote>
+这就是阿菌自作孽不可活了
+剧本赶dead line是这样的，角色能保一个算一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
