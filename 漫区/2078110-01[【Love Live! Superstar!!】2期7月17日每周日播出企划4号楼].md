@@ -11491,3 +11491,15 @@ Fan Book Second
 
 说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？
 
+
+
+*****
+
+####  老1.5  
+##### 982#       发表于 2022-7-21 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56734971&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-21 14:31</a>
+
+说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？ ...</blockquote>
+动画是吊带，三次元是那种上面肉色下面白色的拼接式裤袜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LSP如是说道
+
