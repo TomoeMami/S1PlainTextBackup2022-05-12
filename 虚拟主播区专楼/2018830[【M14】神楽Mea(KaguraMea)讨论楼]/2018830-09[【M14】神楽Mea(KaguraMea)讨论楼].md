@@ -1107,3 +1107,15 @@ emmmmmmmmmmmmmmmmmm
 推特上回复的不是花芽妹吗，在他们还是个人势的时候就认识了啊。</blockquote>
 推特昨天说话的是姐姐，之前认识的是妹妹
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12133#       发表于 2022-7-21 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56736422&amp;ptid=2018830" target="_blank">TiHaru 发表于 2022-7-21 16:21</a>
+
+推特昨天说话的是姐姐，之前认识的是妹妹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我一直把她们姐妹关系认反了。
+

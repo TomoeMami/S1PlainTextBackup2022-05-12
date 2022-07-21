@@ -6263,3 +6263,14 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">例如我 当年就觉得摩根肯定留了一手
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89063#       发表于 2022-7-21 16:31
+
+现在想想还是不要诈尸的好，留了那么多后手结果屁用都没有也太掉价了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
