@@ -11550,3 +11550,13 @@ Fan Book Second
 
 其实这款不是真的吊带。
 
+
+
+*****
+
+####  ykyin09  
+##### 986#       发表于 2022-7-21 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56735582&amp;ptid=2078110" target="_blank"> 仟音一心 发表于 2022-7-21 15:21</a> 引用:ads147147 发表于 2022-7-21 14:31 说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？ ... 想看吊带的话，隔壁有逢田姐。  其实这款不是真的吊带。附件： </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逢田姐真的年纪越大人越好看，现在感觉比水水早期好看不少来自: iPhone客户端
+
