@@ -13632,3 +13632,18 @@ avex能不能不搞管人了，几个团全半死不活的，搞个VMA的live连
 
 2022-7-21 12:09 上传
 
+
+
+*****
+
+####  gaiadc  
+##### 16278#       发表于 2022-7-21 18:57
+
+抽卡数值最低
+
+夏甲一轮游
+
+合宿一年级一个技能没学到
+
+属实地狱开局<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
