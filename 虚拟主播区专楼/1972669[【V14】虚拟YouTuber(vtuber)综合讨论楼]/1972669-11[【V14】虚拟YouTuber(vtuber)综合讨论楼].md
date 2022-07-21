@@ -13699,3 +13699,12 @@ Vox合宿アベヒ＋ロボヒ，秋季地区一胜一负抽签进春甲
 
 运gamer，不服不行<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gaiadc  
+##### 16284#       发表于 2022-7-22 00:31
+
+虽然幸运进了春甲，但是最重要的书店没抽到，还是亏了
+
