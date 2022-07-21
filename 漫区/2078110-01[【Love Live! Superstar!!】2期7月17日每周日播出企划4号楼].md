@@ -11706,3 +11706,15 @@ Fan Book Second
 问题是粉丝全是社畜，连学生粉都没几个</blockquote>
 忘了育儿所有小朋友粉丝吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 1001#       发表于 2022-7-21 22:25
+
+我突然感觉现行三团是不是就是这么分工的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+水水面向全部年龄层
+星搞点让家长放心的东西
+虹搞点小朋友顶不住的东西
+
