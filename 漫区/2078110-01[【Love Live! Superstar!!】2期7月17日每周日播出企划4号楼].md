@@ -11457,3 +11457,12 @@ ba5免疫逃逸，得过之前的一样可以再来一次。
 
 外野那个BA5症状看着也是恐怖，希望她们都健康吧
 
+
+
+*****
+
+####  ViyViy  
+##### 979#       发表于 2022-7-21 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">可可的figma可动好像延期到9月了，又是漫长的等待，OP服趴趴也是。
+
