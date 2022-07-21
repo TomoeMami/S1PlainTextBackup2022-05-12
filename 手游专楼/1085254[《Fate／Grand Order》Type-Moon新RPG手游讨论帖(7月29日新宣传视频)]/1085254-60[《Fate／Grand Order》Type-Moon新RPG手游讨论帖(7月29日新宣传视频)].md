@@ -6308,3 +6308,31 @@ google再抽风怕不是信用卡战士都当不了了
 挺好的，但是如果最后没有仪式剑和不忘之灰的话，YLS你还是去大气层外躺着吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89068#       发表于 2022-7-21 17:42
+
+最后一波跳了个弓皇女出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+居然白送材料<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 89069#       发表于 2022-7-21 17:45
+
+感觉关底彩蛋单泳装拉不满
+
+我第一次带了个泳装梅芙，触发了
+
+第二次带了个泳装巴御前，没触发
+
+第三次谁都没带，触发了
+
+等你们验证
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
