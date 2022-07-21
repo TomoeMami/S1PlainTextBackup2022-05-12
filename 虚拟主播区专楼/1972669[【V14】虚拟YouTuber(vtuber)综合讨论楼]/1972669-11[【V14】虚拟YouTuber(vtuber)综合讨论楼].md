@@ -13656,3 +13656,15 @@ avex能不能不搞管人了，几个团全半死不活的，搞个VMA的live连
 
 但是秋季拼死鏖战勇夺两胜，レオス回避成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16280#       发表于 2022-7-21 21:14
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h4euxvc69zj20xz0j5wk6.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h4euxykswbj20xy0j043v.jpg" referrerpolicy="no-referrer">
+
+姐妹一生一起走，谁先过关谁是狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
