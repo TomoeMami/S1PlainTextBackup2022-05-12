@@ -6420,3 +6420,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 骷髅兵是死灵和人阵营，所以狩猎本用伊吹童子刷挺好用的，伊吹双杀狐六加成，一面暴击，二三面光炮，伊吹三技能和杀狐二技能都能增伤，一宝也够用了。
 
+
+
+*****
+
+####  khxooo  
+##### 89078#       发表于 2022-7-21 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56739996&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-21 20:45</a>
+
+草，我就当了回核酸志愿者他就给我开狩猎了，损失了几小时的体力233</blockquote>
+我今天刚做完志愿者，明天我们自己村又来大规模核酸，又要整天都没时间了，看今晚能不能肝完70多个青铜苹果吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
