@@ -6116,3 +6116,17 @@ google再抽风怕不是信用卡战士都当不了了
 反正就是个垫，都可以垫
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rollingusagi  
+##### 89050#       发表于 2022-7-21 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56731188&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-07-21 10:08:44</a>
+这可不能乱讲，阿菌在奥博龙的问题上那是真用心了的
+
+你在他其他作品里很少见到他对男性角色这么用力的刻画 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题就出在这个垫的问题上，月r学姐线也能明显看出他对公主的偏心，但并没有因此就把学姐和诺艾尔给垫了，说白了这就是态度有问题，我甚至觉得他现在写fgo就纯靠追星的动力了不然连笔都懒得动
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
