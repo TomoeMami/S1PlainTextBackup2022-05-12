@@ -6089,3 +6089,30 @@ google再抽风怕不是信用卡战士都当不了了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  UNISONIA  
+##### 89048#       发表于 2022-7-21 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56730980&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2022-7-21 09:53</a>
+
+学姐线别的不说，至少各个角色还是有头有尾的，诺艾尔就是故事写完整了的芭万希，通完月r才能感觉到蘑菇现 ...</blockquote>
+是的，Noel虽然剧情地位上是工具人，但是动机、过往经历、心理描写什么的都是很完整的
+
+*****
+
+####  exiaexa  
+##### 89049#       发表于 2022-7-21 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56730980&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2022-7-21 09:53</a>
+
+学姐线别的不说，至少各个角色还是有头有尾的，诺艾尔就是故事写完整了的芭万希，通完月r才能感觉到蘑菇现 ...</blockquote>
+这可不能乱讲，阿菌在奥博龙的问题上那是真用心了的
+
+你在他其他作品里很少见到他对男性角色这么用力的刻画，重点是也没整出什么奇怪的菌式三观
+
+反正就是个垫，都可以垫
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
