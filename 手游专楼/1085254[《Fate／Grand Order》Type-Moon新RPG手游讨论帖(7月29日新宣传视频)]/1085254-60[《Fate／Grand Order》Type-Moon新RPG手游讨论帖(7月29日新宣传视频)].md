@@ -6181,3 +6181,21 @@ google再抽风怕不是信用卡战士都当不了了
 薛定谔的苍银肯定是樱井干活阿菌改一改，2.7怎么看都是三田可能性更高
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 89055#       发表于 2022-7-21 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有星空呢 第二部宣传pv还打着他的名字呢 一章没有就这么摸了？
+
+*****
+
+####  sk86  
+##### 89056#       发表于 2022-7-21 12:07
+
+蘑菇应该和1.0一样负责写2.6，2.7和可能的终章，把自己埋的伏笔收回
+
+以及这楼不是还很开心的当海豹吗，我还以为都是乐子人
+
