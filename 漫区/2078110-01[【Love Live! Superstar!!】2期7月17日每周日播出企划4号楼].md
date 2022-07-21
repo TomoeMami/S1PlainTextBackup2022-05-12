@@ -11435,3 +11435,16 @@ NiiDORO677901
 
 去年就摆了，今年只不过是轮回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 977#       发表于 2022-7-21 11:39
+
+ba5免疫逃逸，得过之前的一样可以再来一次。
+
+只能说在不把人民当人的政府里，霓虹到是一直初心不改。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
