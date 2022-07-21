@@ -1137,3 +1137,15 @@ emmmmmmmmmmmmmmmmmm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">105度这歌，感觉嗓音粗了很多…已经回不到过去了
 
+
+
+*****
+
+####  记莫更寂寞  
+##### 12136#       发表于 2022-7-21 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56741445&amp;ptid=2018830" target="_blank">上坂蓮華 发表于 2022-7-21 22:29</a>
+
+105度这歌，感觉嗓音粗了很多…已经回不到过去了</blockquote>
+肥了，也好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
