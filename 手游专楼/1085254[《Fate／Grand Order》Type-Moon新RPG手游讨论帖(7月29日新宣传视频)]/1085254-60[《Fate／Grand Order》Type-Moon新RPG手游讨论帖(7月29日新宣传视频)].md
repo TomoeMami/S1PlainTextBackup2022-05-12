@@ -6254,3 +6254,12 @@ google再抽风怕不是信用卡战士都当不了了
 
 日服这时候还有不少在期待摩根反转呢，然后被236再气一次<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 89062#       发表于 2022-7-21 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">例如我 当年就觉得摩根肯定留了一手
+

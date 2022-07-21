@@ -1095,3 +1095,15 @@ emmmmmmmmmmmmmmmmmm
 什么时候和花芽姐搭上的关系啊</blockquote>
 推特上回复的不是花芽妹吗，在他们还是个人势的时候就认识了啊。
 
+
+
+*****
+
+####  TiHaru  
+##### 12132#       发表于 2022-7-21 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56732601&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-7-21 11:38</a>
+
+推特上回复的不是花芽妹吗，在他们还是个人势的时候就认识了啊。</blockquote>
+推特昨天说话的是姐姐，之前认识的是妹妹
+
