@@ -6213,3 +6213,22 @@ google再抽风怕不是信用卡战士都当不了了
 以及这楼不是还很开心的当海豹吗，我 ...</blockquote>
 海豹跟乐子人又不冲突<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 89058#       发表于 2022-7-21 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多了这么多回复我还以为出了什么新情报。 你们怎么回事
+
+*****
+
+####  exiaexa  
+##### 89059#       发表于 2022-7-21 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56734059&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-21 13:20</a>
+多了这么多回复我还以为出了什么新情报。 你们怎么回事</blockquote>
+因为我在跑外勤太无聊了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
