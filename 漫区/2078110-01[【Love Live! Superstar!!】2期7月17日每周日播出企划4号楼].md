@@ -11528,3 +11528,25 @@ Fan Book Second
 话说最后的几 ...</blockquote>
 应该是容易掉，之前穿长筒袜Pay需要经常提袜子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 985#       发表于 2022-7-21 15:21
+
+<blockquote>ads147147 发表于 2022-7-21 14:31
+说起来，nof这个歌，是穿长筒袜还是吊袜来着？怎么总有穿吊袜的记忆，是三次元的live穿的吊袜？ ...</blockquote>
+想看吊带的话，隔壁有逢田姐。
+
+<img src="https://img.saraba1st.com/forum/202207/21/152052olm48jbjobi26ua2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>68DBF3ED-380F-4FAB-8304-B3FA16CFADD9.jpeg</strong> (583.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-21 15:20 上传
+
+其实这款不是真的吊带。
+
