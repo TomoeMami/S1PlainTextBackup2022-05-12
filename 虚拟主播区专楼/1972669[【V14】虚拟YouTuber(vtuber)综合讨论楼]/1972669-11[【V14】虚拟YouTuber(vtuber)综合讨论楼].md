@@ -13582,3 +13582,26 @@ avex能不能不搞管人了，几个团全半死不活的，搞个VMA的live连
 
 编辑
 
+
+
+*****
+
+####  FCCHua  
+##### 16276#       发表于 2022-7-21 11:14
+
+ 本帖最后由 FCCHua 于 2022-7-21 11:16 编辑 
+
+<strong>自腹企画やります！！！！
+7/24〔日〕19時より
+初企画！
+アリーナBO3 3ステージ
+挑戦者が
+クリアしたら100万円獲得💰
+詳細は画像参照
+挑戦者
+渋谷ハルさん　@ ShibuyaHAL 
+橘ひなのさん　@ hinano_tachiba7 
+ハセシンさん　@ HASESHIN_Rush 
+#無職あれるから100万円奪え</strong>
+谢谢你，alelu，终于又能看到hnn玩apex了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
