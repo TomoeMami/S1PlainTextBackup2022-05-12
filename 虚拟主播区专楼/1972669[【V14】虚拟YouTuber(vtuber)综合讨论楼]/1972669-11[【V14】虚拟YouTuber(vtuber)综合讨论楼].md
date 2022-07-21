@@ -13688,3 +13688,14 @@ avex能不能不搞管人了，几个团全半死不活的，搞个VMA的live连
 
 msm女士：关于右脑酱如果有人想用vtuber这个称呼我管不着，不过从我的角度出发是不这么认为的
 
+
+
+*****
+
+####  Ketestrait  
+##### 16283#       发表于 2022-7-22 00:10
+
+Vox合宿アベヒ＋ロボヒ，秋季地区一胜一负抽签进春甲
+
+运gamer，不服不行<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

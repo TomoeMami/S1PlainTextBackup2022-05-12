@@ -6441,3 +6441,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们骨头还有人吃么，我都700+了
 
+
+
+*****
+
+####  khxooo  
+##### 89080#       发表于 2022-7-22 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56742517&amp;ptid=1085254" target="_blank">新吾 发表于 2022-7-21 23:56</a>
+
+你们骨头还有人吃么，我都700+了</blockquote>
+有，那堆3星吃起来根本就是狗，刷了60多次，掉的凶骨全吃完了。
+
