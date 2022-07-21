@@ -6075,3 +6075,17 @@ google再抽风怕不是信用卡战士都当不了了
 我给你们开个被视奸锁隐期间的传送门
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rollingusagi  
+##### 89047#       发表于 2022-7-21 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56730308&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-07-21 08:53:39</a>
+有一说一，去年连着月R一起开了算是你楼最有趣的一次预见了
+
+发售前鬼知道点6的毛病会在月RCiel线大量发生 ...</blockquote>学姐线别的不说，至少各个角色还是有头有尾的，诺艾尔就是故事写完整了的芭万希，通完月r才能感觉到蘑菇现在对fgo有多不上心，2.6敷衍的地方太多了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
