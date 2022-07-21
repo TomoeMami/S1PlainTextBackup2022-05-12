@@ -11660,3 +11660,12 @@ Fan Book Second
 
 动画里那套练习服不健全不可能有<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 996#       发表于 2022-7-21 18:03
+
+为啥演唱会都要保持健全…………搞不懂……我看其他主流偶像团都没这样
+

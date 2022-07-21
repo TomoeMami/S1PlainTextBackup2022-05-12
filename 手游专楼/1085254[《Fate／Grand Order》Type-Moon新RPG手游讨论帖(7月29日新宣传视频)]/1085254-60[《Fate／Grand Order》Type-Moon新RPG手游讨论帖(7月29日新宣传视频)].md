@@ -6336,3 +6336,19 @@ google再抽风怕不是信用卡战士都当不了了
 等你们验证
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 89070#       发表于 2022-7-21 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56737687&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-21 17:45</a>
+
+感觉关底彩蛋单泳装拉不满
+
+我第一次带了个泳装梅芙，触发了
+
+第二次带了个泳装巴御前，没触发</blockquote>
+随机的，我棉被+伊吹一样触发了。
+
