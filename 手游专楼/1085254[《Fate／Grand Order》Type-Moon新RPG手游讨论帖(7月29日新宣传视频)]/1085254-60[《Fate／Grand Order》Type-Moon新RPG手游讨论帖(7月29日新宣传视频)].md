@@ -6274,3 +6274,37 @@ google再抽风怕不是信用卡战士都当不了了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  exiaexa  
+##### 89064#       发表于 2022-7-21 17:01
+
+当时我的想法是，摩根从座上跑回来跟呆毛来个快乐的姐妹圣枪雨
+
+结果确实有人下来了，但来的是圣剑精，不知道该说什么好
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 89065#       发表于 2022-7-21 17:02
+
+紧张刺激的狩猎活动 and 弓呆复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89066#       发表于 2022-7-21 17:03
+
+突然开了狩猎？
+
+*****
+
+####  exiaexa  
+##### 89067#       发表于 2022-7-21 17:09
+
+挺好的，但是如果最后没有仪式剑和不忘之灰的话，YLS你还是去大气层外躺着吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
