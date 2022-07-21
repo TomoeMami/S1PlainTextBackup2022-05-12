@@ -13647,3 +13647,12 @@ avex能不能不搞管人了，几个团全半死不活的，搞个VMA的live连
 
 属实地狱开局<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16279#       发表于 2022-7-21 20:44
+
+但是秋季拼死鏖战勇夺两胜，レオス回避成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
