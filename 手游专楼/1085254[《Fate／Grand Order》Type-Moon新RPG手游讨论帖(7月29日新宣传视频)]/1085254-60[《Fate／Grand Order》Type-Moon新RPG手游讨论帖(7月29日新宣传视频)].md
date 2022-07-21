@@ -6432,3 +6432,12 @@ google再抽风怕不是信用卡战士都当不了了
 草，我就当了回核酸志愿者他就给我开狩猎了，损失了几小时的体力233</blockquote>
 我今天刚做完志愿者，明天我们自己村又来大规模核酸，又要整天都没时间了，看今晚能不能肝完70多个青铜苹果吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 89079#       发表于 2022-7-21 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们骨头还有人吃么，我都700+了
+
