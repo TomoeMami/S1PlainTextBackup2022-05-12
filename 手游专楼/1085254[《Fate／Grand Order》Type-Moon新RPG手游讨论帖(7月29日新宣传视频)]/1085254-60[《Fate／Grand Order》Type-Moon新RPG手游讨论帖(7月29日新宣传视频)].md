@@ -6048,3 +6048,12 @@ google再抽风怕不是信用卡战士都当不了了
 
 发售前鬼知道点6的毛病会在月RCiel线大量发生啊
 
+
+
+*****
+
+####  sosgame67  
+##### 89045#       发表于 2022-7-21 09:32
+
+去年不是随着章节开放风评一路直下么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">261大家都知道是序章以为大的要来，262大家都以为摩根不会就这么犬死一定有后手，263的一 本 道剧情推进加上蘑菇的网站日记更新让大家把火力从怒喷dw废物到了蘑菇和dw半斤八两，加上nga一直视奸本楼和无脑吹捧2.6搞得孽力回馈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
