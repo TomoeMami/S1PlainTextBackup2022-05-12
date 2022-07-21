@@ -11678,3 +11678,20 @@ Fan Book Second
 
 可能是因为nhk教育台首播吧，或许企划是准备扩充更低年龄段方向上的粉丝？
 
+
+
+*****
+
+####  lj205  
+##### 998#       发表于 2022-7-21 18:41
+
+问题是粉丝全是社畜，连学生粉都没几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 999#       发表于 2022-7-21 18:50
+
+这就不好说了，外人没有数据，也没办法分析企划这一步值不值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+硬是要说，子供向动画也有对应的盈利点吧，就不知道企划现在为子供向做出的改变能不能让企划“未来可期”吧
+
