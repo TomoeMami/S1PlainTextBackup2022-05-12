@@ -12268,3 +12268,12 @@ https://github.com/master-of-forums/master-of-forums
 鲤鱼有说她对配音有兴趣啊，就是好像对小动物之类的配音比较感兴趣</blockquote>
 喜羊羊灰太狼日配音响协力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 1047#       发表于 2022-7-22 22:32
+
+看事务所给不给资源吧，毕竟旗下cv也不少
+

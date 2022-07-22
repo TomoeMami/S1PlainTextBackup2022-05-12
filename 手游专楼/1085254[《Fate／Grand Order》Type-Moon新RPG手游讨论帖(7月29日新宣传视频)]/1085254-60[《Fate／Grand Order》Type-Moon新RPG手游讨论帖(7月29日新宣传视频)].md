@@ -6685,3 +6685,15 @@ google再抽风怕不是信用卡战士都当不了了
 想多了　　明明是满宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">满宝带盘是本楼萌新（自称）海豹专属
 
+
+
+*****
+
+####  alucardcz  
+##### 89104#       发表于 2022-7-22 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755805&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-22 22:29</a>
+
+满宝带盘是本楼萌新（自称）海豹专属</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了 你怕不是忘了限定5宝无课大佬了（这不怪我 不是我提的
+
