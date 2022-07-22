@@ -11929,3 +11929,28 @@ CelticWhite
 
 2022-7-22 16:51 上传
 
+
+
+*****
+
+####  黑雪姫  
+##### 1018#       发表于 2022-7-22 19:42
+
+碧蓝航线 哈尔滨 的声优确认为 #法元明菜#
+
+<img src="http://wx2.sinaimg.cn/mw690/9b09ff11gy1h4fxppo7tkj21mf0q77bz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1019#       发表于 2022-7-22 19:46
+
+<img src="https://img.saraba1st.com/forum/202207/22/194653flin2hhan32tl2bw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>91CF8B51-4435-4E8C-B523-9264E1CE8DE3.jpeg</strong> (472.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 19:46 上传
+
