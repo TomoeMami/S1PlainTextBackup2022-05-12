@@ -14002,3 +14002,23 @@ crvalo，纸面上看优胜在シスコ队和cpt队里二选一。
 
 你们评了半天中人颜值也不发照片是8
 
+
+
+*****
+
+####  IL282  
+##### 16310#       发表于 2022-7-22 22:26
+
+盒皇b限打派也太冷场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 16311#       发表于 2022-7-22 22:30
+
+vox除了营业内容和骚话不会别的嘛，咋子哥跟selen打了三回派也不是这么个场面，说好的阳角呢
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

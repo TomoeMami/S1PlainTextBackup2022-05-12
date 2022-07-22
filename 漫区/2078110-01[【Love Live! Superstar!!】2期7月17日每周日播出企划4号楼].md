@@ -12256,3 +12256,15 @@ https://github.com/master-of-forums/master-of-forums
 大熊的推在哪里？</blockquote>
 没说推特，现在就她没开
 
+
+
+*****
+
+####  老1.5  
+##### 1046#       发表于 2022-7-22 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755381&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-22 22:01</a>
+
+鲤鱼有说她对配音有兴趣啊，就是好像对小动物之类的配音比较感兴趣</blockquote>
+喜羊羊灰太狼日配音响协力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

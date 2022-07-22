@@ -6659,3 +6659,29 @@ google再抽风怕不是信用卡战士都当不了了
 这不是下礼拜生放看不着了吗</blockquote>
 都隔那么多天了说不定已经复出了呢（
 
+
+
+*****
+
+####  khxooo  
+##### 89101#       发表于 2022-7-22 22:26
+
+和凶骨完全不是一个掉率，不刷了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89102#       发表于 2022-7-22 22:28
+
+泥潭最非，看着各位出货真羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89103#       发表于 2022-7-22 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755115&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-22 21:45</a>
+
+想多了　　明明是满宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">满宝带盘是本楼萌新（自称）海豹专属
+
