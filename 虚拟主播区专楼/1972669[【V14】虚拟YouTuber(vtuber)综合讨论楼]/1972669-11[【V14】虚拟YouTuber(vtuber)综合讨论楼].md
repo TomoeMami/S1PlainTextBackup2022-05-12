@@ -13794,3 +13794,12 @@ Aia Amare=LaDeathMachine 🇺🇸 一个coser/时尚穿搭Youtuber。于几天�
 
 Zsyl，这位兄弟，Quinn在21年刚做了脑部手术（Occipital Nerve Decompression Surgery，他自述原因是神经系统生长中与肌肉纠缠相互穿插造成的长期严重偏头痛，需要手术把神经重新从肌肉中剥离，此外还有early-onset arthritis关节炎和一些其他手术，不了解任何病理相关内容，欢迎指正）。他提到希望在大学前把手术完成，猜测他年龄应相对比较小，人还挺乐观的，Gay bro+1。
 
+
+
+*****
+
+####  Suny08  
+##### 16291#       发表于 2022-7-22 17:43
+
+纯靠6期妹子把嗯女颜值拉起来了，感觉前三期还能看的就谢拉和rosemi 
+
