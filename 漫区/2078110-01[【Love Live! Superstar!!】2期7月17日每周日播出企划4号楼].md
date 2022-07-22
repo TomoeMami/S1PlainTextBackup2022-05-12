@@ -12008,3 +12008,20 @@ DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
 
 真搞噱头的话会请的吧，但鲤鱼其实一直没打算往声优这方面靠也是满可惜的
 
+
+
+*****
+
+####  starring  
+##### 1025#       发表于 2022-7-22 20:23
+
+星五人里明确有往声优方面发展的只有nako和pay吧，只不过这两人现在接到配音的活都没几个
+
+*****
+
+####  JustW_3  
+##### 1026#       发表于 2022-7-22 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56741811&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-21 22:57</a></blockquote>
+<img src="https://p.sda1.dev/6/f2e7f129e62d137312aa68d3113c1f8c/CMP_20220722202817666.jpg" referrerpolicy="no-referrer">
+
