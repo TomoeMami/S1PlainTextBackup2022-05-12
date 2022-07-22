@@ -13744,3 +13744,53 @@ Vox合宿アベヒ＋ロボヒ，秋季地区一胜一负抽签进春甲
 
 leos 3d来了 endn组3d要快了 不知道条子是不是还要禁闭
 
+
+
+*****
+
+####  FCCHua  
+##### 16288#       发表于 2022-7-22 17:23
+
+炎上流星群的t台好久不见<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 16289#       发表于 2022-7-22 17:24
+
+体感光速（不）
+
+QQ图片20220722172400.jpg
+(327.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-22 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/172427lt7q8eiij1ij9eaz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16290#       发表于 2022-7-22 17:28
+
+ 本帖最后由 alcoholic1000 于 2022-7-22 17:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56721765&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-7-20 14:30</a>
+
+惯例的那个：</blockquote><blockquote>Aster Arcadia=XigneoN/Xignia Krulcifer 🇺🇸亚裔，曾专注于VRChat的Youtuber/Twitch主播。曾以“Sexy Sunday” （NSFW的虚拟脱衣舞俱乐部）内容著称，于2021年转生为vtuber，他和VSHOJO的Zentreya有非常不错的关系。此外这里是Sexy Sunday的观众对他写的檄文：[https://www.twitlonger.com/show/n_1ss021b](https://www.twitlonger.com/show/n_1ss021b)（关于Xig的内容非常多，甚至在B站能找到很多翻译版，这里不赘述了）
+
+Aia Amare=LaDeathMachine 🇺🇸 一个coser/时尚穿搭Youtuber。于几天前删除了全部内容，Instagram可以查看（现已锁号），97年生越南裔</blockquote>
+顺便：
+
+<img src="https://img.saraba1st.com/forum/202207/22/160325u28ldsvtajv11j2d.png" referrerpolicy="no-referrer">
+
+<strong>nice-opsec-bro.png</strong> (61.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-22 16:03 上传
+
+干得漂亮，兄弟
+
+Zsyl，这位兄弟，Quinn在21年刚做了脑部手术（Occipital Nerve Decompression Surgery，他自述原因是神经系统生长中与肌肉纠缠相互穿插造成的长期严重偏头痛，需要手术把神经重新从肌肉中剥离，此外还有early-onset arthritis关节炎和一些其他手术，不了解任何病理相关内容，欢迎指正）。他提到希望在大学前把手术完成，猜测他年龄应相对比较小，人还挺乐观的，Gay bro+1。
+
