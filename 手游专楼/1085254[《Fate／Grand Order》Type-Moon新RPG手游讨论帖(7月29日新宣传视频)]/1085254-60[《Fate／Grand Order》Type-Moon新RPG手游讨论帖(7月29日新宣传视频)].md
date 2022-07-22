@@ -6489,3 +6489,14 @@ google再抽风怕不是信用卡战士都当不了了
 
 活久了什么都能碰到，later家的泳装武藏竟然没延期，这不科学
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89085#       发表于 2022-7-22 17:31
+
+居然缺剑饼干了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
