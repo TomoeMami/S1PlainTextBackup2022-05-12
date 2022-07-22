@@ -6462,3 +6462,12 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 昨天四发十连只有俩骑莫 今天不死心一发单抽出了弓呆 周年出啥都跟我没关系了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89082#       发表于 2022-7-22 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还可以用330抽解决问题！何况欧皇必然不会保底
+
