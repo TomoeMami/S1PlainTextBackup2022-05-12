@@ -13857,3 +13857,19 @@ yugo也还行，就是不知道能不能算妹子
 主播怪不得狂练瓦，原来是要参加这次的cr杯<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 syl 你们说的不是一回事吧？分别指的中之人和皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16296#       发表于 2022-7-22 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56752031&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-7-22 17:58</a>
+那是你审美独特吧（喜欢loli？）
+
+本家虹女偶尔都会被说太素（世怜女）或者风格奇葩（爱园和京子初始皮）
+
+ ...</blockquote>
+我本来觉着楼友说的是中之人颜值
+但看你发了那么长一段我也不敢确定是不是了…
+
