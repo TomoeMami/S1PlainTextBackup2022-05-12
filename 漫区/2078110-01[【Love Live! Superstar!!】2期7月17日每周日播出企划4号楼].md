@@ -12295,3 +12295,71 @@ https://github.com/master-of-forums/master-of-forums
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tie动画这个只能是看运气了 毕竟开播前就知道会起飞的那些还轮不上🐟
 
+
+
+*****
+
+####  名津流  
+##### 1050#       发表于 2022-7-23 02:14
+
+关于给别的作品配音，我还是在上个楼里就提过的想法：
+
+隔壁《电锯人》后面（估计得到第二季的时候）不是会出现有中文台词的角色吗（光熙和她的跟班“尸体在说话”），制作方要有心选个会纯正中文的CV来陪中文台词的话，这个还挺适合鱼的（台词少，作品名气大，鱼自己也看过作品出过cos）
+
+
+
+*****
+
+####  黑雪姫  
+##### 1051#       发表于 2022-7-23 02:23
+
+可香党感觉可以趋势了。
+有人说土妹子就是来替代可可的我觉得有一定道理。
+我看这是要全面否定前三集。
+
+<img src="https://p.sda1.dev/6/8473d7dd3b888558f81d7b6a84aac076/CMP_20220723022240698.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1052#       发表于 2022-7-23 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56758165&amp;ptid=2078110" target="_blank">名津流 发表于 2022-7-23 02:14</a>
+
+关于给别的作品配音，我还是在上个楼里就提过的想法：
+
+隔壁《电锯人》后面（估计得到第二季的时候）不是会 ...</blockquote>
+我也觉得有可能，但毕竟电锯人这个关注度，估计一堆事务所推人，现在就想horipro能不能弄个试镜的机会
+
+*****
+
+####  愛さ実  
+##### 1053#       发表于 2022-7-23 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56758209&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-23 02:23</a>
+可香党感觉可以趋势了。
+有人说土妹子就是来替代可可的我觉得有一定道理。
+我看这是要全面否定前三集。</blockquote>
+一日升素材复用老传统了；二咋又拿一星期前讨论烂的再说一遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑雪姫  
+##### 1054#       发表于 2022-7-23 04:10
+
+ 本帖最后由 黑雪姫 于 2022-7-23 05:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56758282&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-23 02:46</a>
+一日升素材复用老传统了；二咋又拿一星期前讨论烂的再说一遍没内容可以不发，想拉屎请自行 ...</blockquote>
+我想了下，拉拉全系列TV动画什么时候用过这么明显且大量的兼用卡？没有吧...? 
+又不是把缪二单Snow halation的PV在TV里在演一遍。
+也不是水一单君のこころは辉いてるかい的PV在TV里复刻一次。
+更不是福田在拍种三或者GPX新作...
+既然不是数字单曲的PV转TV，又跟旧高父没关系，更何况拉拉从来没有TV之间大量使用兼用卡的传统。
+就算不说阴谋论，但就这作画态度也是有问题的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+当年种命我可是一星期一集追完的，而且作为胶佬，怎么说也算半个三赖子厨，日升什么尿性我清楚着呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
