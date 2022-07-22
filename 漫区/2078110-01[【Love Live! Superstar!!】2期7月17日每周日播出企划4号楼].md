@@ -11748,3 +11748,22 @@ twi@Namgic_
 
 <img src="https://p.sda1.dev/6/255046fc2187089b5c52f2cc69e3605f/CMP_20220721225752032.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1005#       发表于 2022-7-22 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56741395&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-7-21 22:25</a>
+我突然感觉现行三团是不是就是这么分工的
+水水面向全部年龄层
+星搞点让家长放心的东西</blockquote>
+水水：tv高达
+虹虹：ova剧场高达
+星星：胶达
+
+突然豁然开朗。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
