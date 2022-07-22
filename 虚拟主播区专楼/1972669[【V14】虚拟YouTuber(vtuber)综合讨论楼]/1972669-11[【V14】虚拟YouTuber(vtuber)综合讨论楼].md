@@ -13950,3 +13950,27 @@ crvalo，纸面上看优胜在シスコ队和cpt队里二选一。
 
 快住手，グウェル<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 16305#       发表于 2022-7-22 20:55
+
+<blockquote>毛头小希 发表于 2022-7-22 17:58
+那是你审美独特吧（喜欢loli？）
+
+本家虹女偶尔都会被说太素（世怜女）或者风格奇葩（爱园和京子初始皮）
+
+ ...</blockquote>
+呃呃 除了pako画拉了 其他的皮有啥问号，论画师咖位都平均颇高，还是说你是那种会觉得wada画的不好的
+
+*****
+
+####  布莱士·西伯利  
+##### 16306#       发表于 2022-7-22 20:56
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-22 21:00 编辑 
+
+3D（2D）配信。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
