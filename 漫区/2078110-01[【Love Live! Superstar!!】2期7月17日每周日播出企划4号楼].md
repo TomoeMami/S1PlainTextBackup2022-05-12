@@ -12170,3 +12170,61 @@ DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
 
 <img src="https://img.saraba1st.com/forum/202207/22/213706rmg523l02uzc6h9g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1037#       发表于 2022-7-22 21:53
+
+ 本帖最后由 aoaoaodedede 于 2022-7-22 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56754915&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-22 21:33</a>
+是…………这都能看出来？</blockquote>
+那条帖末尾有个1x1像素的gif图（就是下面这个链接）
+https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif
+
+顺着jsdelivr找被加速的github仓库就知道了（而且代码里也有上面这个链接，那大概就这个脚本了）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://github.com/master-of-forums/master-of-forums
+
+*****
+
+####  lj205  
+##### 1038#       发表于 2022-7-22 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56754984&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-22 21:37</a>
+
+身变同一水平线</blockquote>
+草，莫名喜感
+
+*****
+
+####  Enakina  
+##### 1039#       发表于 2022-7-22 21:56
+
+国内二游突出一个人少b事多，就比如二字，每隔几天就会撕起来中配和日配，你要真让她一个人配个双语，怕不是要被两波人集火了，而且我始终觉得她就不会往声优发展
+倒是小百合前几天有个采访，意思好像是会发展声优的感觉<img src="https://p.sda1.dev/6/f7ca43e8efc8766830c91a8fb385e210/CMP_20220722215626389.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1040#       发表于 2022-7-22 21:58
+
+打铁声音好，第一季表现也不错，确实可以往这方面发展，走前辈小鹿的路子也不错。
+
+*****
+
+####  aoaoaodedede  
+##### 1041#       发表于 2022-7-22 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755301&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-22 21:56</a>
+国内二游突出一个人少b事多，就比如二字，每隔几天就会撕起来中配和日配，你要真让她一个人配个双语，怕不 ...</blockquote>
+小百合这里我觉得是歌手这边可能还不方便出道，其他方向也只有声优稍微合适一点了
+
+*****
+
+####  ykyin09  
+##### 1042#       发表于 2022-7-22 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56753278&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-22 19:46</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大熊越来越可爱了咋回事捏，加推了
+

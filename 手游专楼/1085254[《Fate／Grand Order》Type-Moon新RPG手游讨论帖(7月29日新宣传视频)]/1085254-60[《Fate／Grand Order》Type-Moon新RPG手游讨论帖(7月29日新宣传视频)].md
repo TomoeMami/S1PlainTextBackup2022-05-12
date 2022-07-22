@@ -6598,3 +6598,42 @@ google再抽风怕不是信用卡战士都当不了了
 也许是欧洲人大鲨特鲨的开始，26石4护符按本楼海豹标准2宝起步</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了　　明明是满宝
 
+
+
+*****
+
+####  qixinno2  
+##### 89095#       发表于 2022-7-22 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坐等到时萌新表演一发单抽出货
+
+*****
+
+####  alucardcz  
+##### 89096#       发表于 2022-7-22 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755224&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-22 21:53</a>
+
+坐等到时萌新表演一发单抽出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在３石１护符　大奥都清完了　你猜我沉哪了
+
+*****
+
+####  qixinno2  
+##### 89097#       发表于 2022-7-22 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755268&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-22 21:55</a>
+
+我现在３石１护符　大奥都清完了　你猜我沉哪了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我大奥刚打了一半左右 实在懒得费劲了 话说你竟然没有弓呆的么
+
+*****
+
+####  alucardcz  
+##### 89098#       发表于 2022-7-22 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755314&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-22 21:57</a>
+
+我大奥刚打了一半左右 实在懒得费劲了 话说你竟然没有弓呆的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了　我弓呆甚至是２宝的　当然ａｌｌ　ｉｎ迦摩了
+
