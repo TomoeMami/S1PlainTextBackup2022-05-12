@@ -11793,3 +11793,17 @@ FMT也有反馈说有带小孩来看的甚至一家三口
 
 另外记得很久之前有人提过小千在小孩子里有人气
 
+
+
+*****
+
+####  老1.5  
+##### 1008#       发表于 2022-7-22 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56745020&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-7-22 09:45</a>
+
+但之前裂垃圾真的有保育園（不是幼稚園）老师来信说小朋友在看星的，三丽鸥也有10岁的幼女先辈来现场
+
+FMT也 ...</blockquote>
+毕竟是千妈妈，孩子很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
