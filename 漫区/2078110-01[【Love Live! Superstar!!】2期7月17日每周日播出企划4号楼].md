@@ -12025,3 +12025,29 @@ DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56741811&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-21 22:57</a></blockquote>
 <img src="https://p.sda1.dev/6/f2e7f129e62d137312aa68d3113c1f8c/CMP_20220722202817666.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1027#       发表于 2022-7-22 20:32
+
+感觉搞噱头估计也怕鲤鱼目前能力不够好吧，想上有名的游戏，得经得住用户群体的考验，不然感觉对双方都不见得是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国人在日本专门搞声优这行的好像也没几个出名的吧，更别说鲤鱼这种本来就没以声优为目标的，感觉很难在日本声优这个方向混<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1028#       发表于 2022-7-22 20:34
+
+碧蓝航线找过不少LL：
+彩 鹿 森森森 奇卡 灯 146阿卡林 未梦 还有今天的麻圆菜宝
+
+*****
+
+####  ViyViy  
+##### 1029#       发表于 2022-7-22 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就咱们这挑剔的玩家们，还是别让鱼遭罪了吧
+

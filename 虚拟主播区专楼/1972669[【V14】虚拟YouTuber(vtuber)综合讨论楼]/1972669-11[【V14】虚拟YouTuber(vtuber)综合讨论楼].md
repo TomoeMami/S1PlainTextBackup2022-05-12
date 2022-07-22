@@ -13934,3 +13934,19 @@ syl 你们说的不是一回事吧？分别指的中之人和皮<img src="https:
 <img src="https://p.sda1.dev/6/155b63e4d045e717c2e66c9069f0f479/CMP_20220722205928423.jpg" referrerpolicy="no-referrer">
 crvalo，纸面上看优胜在シスコ队和cpt队里二选一。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16303#       发表于 2022-7-22 20:35
+
+我宣布グウェル是你虹T0的好活王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 16304#       发表于 2022-7-22 20:39
+
+快住手，グウェル<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
