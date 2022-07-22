@@ -13718,3 +13718,20 @@ Vox合宿アベヒ＋ロボヒ，秋季地区一胜一负抽签进春甲
 武士道这次拿邦邦这个IP出来招中之人了。看来确实是要vtb化运营了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 就是直播干什么呢
 
+
+
+*****
+
+####  Suny08  
+##### 16286#       发表于 2022-7-22 14:05
+
+<img src="https://img.saraba1st.com/forum/202207/22/140421g34c9yq2p3jsvxnp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B03AD928-EBC5-4AB4-9FEF-235DA68668D1.jpeg</strong> (116.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-22 14:04 上传
+
+莎乐美大姨妈来了，你德比也不播了是吧
+
