@@ -11963,3 +11963,48 @@ CelticWhite
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 1021#       发表于 2022-7-22 20:11
+
+<blockquote>黑雪姫 发表于 2022-7-22 19:42
+碧蓝航线 哈尔滨 的声优确认为 #法元明菜#</blockquote>
+伊曼纽尔·佩萨格诺 CV麻圆
+
+前两个音节也是“艾玛”
+
+<img src="https://img.saraba1st.com/forum/202207/22/201128mt12ltrqh81kllll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>01035895-4122-4773-A844-C1188673190D.jpeg</strong> (259.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 20:11 上传
+
+*****
+
+####  lj205  
+##### 1022#       发表于 2022-7-22 20:12
+
+DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
+
+国内游戏配音能不能也找找鱼啊
+
+*****
+
+####  黑雪姫  
+##### 1023#       发表于 2022-7-22 20:13
+
+我要求不搞，鲤鱼啥时候能混个O神饭票 中日一人配那种<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1024#       发表于 2022-7-22 20:19
+
+真搞噱头的话会请的吧，但鲤鱼其实一直没打算往声优这方面靠也是满可惜的
+
