@@ -12363,3 +12363,13 @@ https://github.com/master-of-forums/master-of-forums
 当年种命我可是一星期一集追完的，而且作为胶佬，怎么说也算半个三赖子厨，日升什么尿性我清楚着呢。
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1055#       发表于 2022-7-23 07:11
+
+什么可香？就一季香千那个力度，加上二季那个海报不早料到了？
+但是改不了可可在名单里排第二的位置
+
