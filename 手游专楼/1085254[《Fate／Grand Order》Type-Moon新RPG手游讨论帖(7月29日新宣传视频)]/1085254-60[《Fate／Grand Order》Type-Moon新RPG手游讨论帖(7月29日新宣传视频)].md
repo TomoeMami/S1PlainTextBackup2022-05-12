@@ -6586,3 +6586,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我到时表演绿方块魔术让你们见识下什么是纯血非洲人
 
+
+
+*****
+
+####  alucardcz  
+##### 89094#       发表于 2022-7-22 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56754145&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-22 20:42</a>
+
+也许是欧洲人大鲨特鲨的开始，26石4护符按本楼海豹标准2宝起步</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了　　明明是满宝
+
