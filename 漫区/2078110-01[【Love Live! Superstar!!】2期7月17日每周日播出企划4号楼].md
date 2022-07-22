@@ -12228,3 +12228,31 @@ https://github.com/master-of-forums/master-of-forums
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56753278&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-22 19:46</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大熊越来越可爱了咋回事捏，加推了
 
+
+
+*****
+
+####  lj205  
+##### 1043#       发表于 2022-7-22 22:01
+
+鲤鱼有说她对配音有兴趣啊，就是好像对小动物之类的配音比较感兴趣
+
+*****
+
+####  仟音一心  
+##### 1044#       发表于 2022-7-22 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755359&amp;ptid=2078110" target="_blank">ykyin09 发表于 2022-7-22 22:00</a>
+大熊越来越可爱了咋回事捏，加推了</blockquote>
+大熊的推在哪里？
+
+*****
+
+####  ykyin09  
+##### 1045#       发表于 2022-7-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755414&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-22 22:03</a>
+
+大熊的推在哪里？</blockquote>
+没说推特，现在就她没开
+
