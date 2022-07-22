@@ -6512,3 +6512,15 @@ google再抽风怕不是信用卡战士都当不了了
 艹 昨天四发十连只有俩骑莫 今天不死心一发单抽出了弓呆 周年出啥都跟我没关系了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怖如斯 欧洲人可怕
 
+
+
+*****
+
+####  qixinno2  
+##### 89087#       发表于 2022-7-22 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56752058&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-22 17:59</a>
+
+恐怖如斯 欧洲人可怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人最后的欧气
+
