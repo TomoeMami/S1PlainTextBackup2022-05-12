@@ -11767,3 +11767,16 @@ twi@Namgic_
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 1006#       发表于 2022-7-22 08:12
+
+采访的时候大多数人说自己初遇拉拉不都是小学中学的时候看电视（鲤鱼是同学安利，菜宝应该是看动新杂志），面向托儿所的偶像片也太抽象了，再说就算是面向托儿所，写q娃的田中也比长期青春向的花田来的熟练。
+
+这两天b站也挺多调侃星2是面向托儿所，太草了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
