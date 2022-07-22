@@ -11807,3 +11807,49 @@ FMT也有反馈说有带小孩来看的甚至一家三口
 FMT也 ...</blockquote>
 毕竟是千妈妈，孩子很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1009#       发表于 2022-7-22 11:04
+
+【7月29日発売書籍表紙トリプル初公開】
+
+「LoveLive! Days ラブライブ！総合マガジンVol.30」は千砂都＆四季！
+
+「電撃G’s magazine９月号」はかのん＆恋＆きな子！
+
+「ラブライブ!スーパースター!! SECOND FAN BOOK」はノンフィクション!!衣装の5人！
+
+ぜひ3冊ゲットしてください💕
+<img src="https://p.sda1.dev/6/cd28caff7e79cde69cce8f1e4eb739b2/20220722_110335.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/13cf5db4a6250031bbf46d3edde05bda/20220722_110337.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/8773d949f58ad09584c0da5607489d93/20220722_110338.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1010#       发表于 2022-7-22 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56741395&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-7-21 22:25</a>
+
+我突然感觉现行三团是不是就是这么分工的
+
+水水面向全部年龄层
+
+星搞点让家长放心的东西</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1011#       发表于 2022-7-22 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56745020&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-7-22 09:45</a>
+
+但之前裂垃圾真的有保育園（不是幼稚園）老师来信说小朋友在看星的，三丽鸥也有10岁的幼女先辈来现场
+
+FMT也 ...</blockquote>
+不愧是千妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
