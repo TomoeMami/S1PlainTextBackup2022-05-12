@@ -6533,3 +6533,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 得，李依阳了
 
+
+
+*****
+
+####  alucardcz  
+##### 89089#       发表于 2022-7-22 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56752293&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-22 18:18</a>
+
+非洲人最后的欧气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也配叫非洲人？　不　你不配！
+
