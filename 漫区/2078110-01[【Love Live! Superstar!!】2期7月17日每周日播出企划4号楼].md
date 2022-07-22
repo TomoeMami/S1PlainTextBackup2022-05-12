@@ -12076,3 +12076,16 @@ DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
 
 与其期待给游戏配音，不如先期待下鲤鱼啥时候贴个动画搞个人的三单啊，全是LL的歌不得劲啊。百万动画属实是一般，另外一个奇幻怪盗更不咋地，搞个靠谱的动画就好了，同是COSER转歌手，要是能捞一个Akari唱的ED那种大热动画就起飞了，虽然这片儿都没能在国内正式播出orz但优秀的质量还是火了啊。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1033#       发表于 2022-7-22 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56753348&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-22 19:52</a>
+9个人看着就是拥挤</blockquote>
+有点好奇，话说坛友发这条帖是浏览器用油猴之类的加了
+论坛大师（Master of Forums）
+这个脚本吗
+
