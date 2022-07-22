@@ -12373,3 +12373,21 @@ https://github.com/master-of-forums/master-of-forums
 什么可香？就一季香千那个力度，加上二季那个海报不早料到了？
 但是改不了可可在名单里排第二的位置
 
+
+
+*****
+
+####  ViyViy  
+##### 1056#       发表于 2022-7-23 07:35
+
+都是拿来给立德成长之路的奠基石罢了
+
+安啦，我是不信这狗运营在动画再也不搞可香的长戏码了，就等着吊着你到最后给你来个初心的感动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1057#       发表于 2022-7-23 07:38
+
+就干脆别带脑子看得了，不要分析，分析会给自己找难受
+
