@@ -11903,3 +11903,14 @@ CelticWhite
 由手机上传
 2022-7-22 14:15 上传
 
+
+
+*****
+
+####  lj205  
+##### 1016#       发表于 2022-7-22 14:37
+
+下一期YJ 9人封面封底和内容，目前来说三次元这边对外宣传主要还是9人、5+4的形式（广播除外），看看这次会不会跟二次元那样打乱组合吧
+
+为了鲤鱼，还是买份电子版吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
