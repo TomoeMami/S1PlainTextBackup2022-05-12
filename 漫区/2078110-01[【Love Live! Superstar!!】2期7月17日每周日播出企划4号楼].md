@@ -12089,3 +12089,84 @@ DMM买了YJ，扣了120PT，然后返180PT，约等于不要钱
 论坛大师（Master of Forums）
 这个脚本吗
 
+
+
+*****
+
+####  仟音一心  
+##### 1034#       发表于 2022-7-22 21:31
+
+找出图中的青山会长
+
+<img src="https://img.saraba1st.com/forum/202207/22/213107iucziaqqkq4izzpq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BA379A38-4A24-492F-A59B-7574D3C01626.jpeg</strong> (300.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/213107uursz9w6qs3pu0wx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BCF5C6BC-39F4-4D2A-9EB7-BF7ABBE85A96.jpeg</strong> (285.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/213107v9faa16c8cz9981z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>50D7CC69-5FCC-4D3A-A744-E004E26880E6.jpeg</strong> (352.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/213108wooxpc2zifj5p8oz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>91710FA7-E3DF-4B91-843C-93271FD327B7.jpeg</strong> (282.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/213108ineenus7tr7uayyu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8A36ADE9-2099-4ED2-951B-A49838531AE7.jpeg</strong> (389 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-22 21:31 上传
+
+*****
+
+####  cybernetics31  
+##### 1035#       发表于 2022-7-22 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56754574&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-22 21:10</a>
+有点好奇，话说坛友发这条帖是浏览器用油猴之类的加了
+论坛大师（Master of Forums）
+这个脚本吗</blockquote>
+是…………这都能看出来？
+
+*****
+
+####  仟音一心  
+##### 1036#       发表于 2022-7-22 21:37
+
+身变同一水平线
+
+6F882B78-3352-49A6-A73D-97E2C18BDA7D.jpeg
+(414.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-22 21:37 上传
+
+<img src="https://img.saraba1st.com/forum/202207/22/213706rmg523l02uzc6h9g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
