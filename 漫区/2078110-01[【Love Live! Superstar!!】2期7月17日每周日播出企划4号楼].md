@@ -11873,3 +11873,15 @@ apb封面团结<img src="https://static.saraba1st.com/image/smiley/face2017/048.
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 1014#       发表于 2022-7-22 13:42
+
+这张lldays封面好怪啊
+我粗一看感觉透视比例匀称到诡异 像是3D的
+细看这个线条又应该是手绘的
+也许是用3D建模打草稿那种？
+
