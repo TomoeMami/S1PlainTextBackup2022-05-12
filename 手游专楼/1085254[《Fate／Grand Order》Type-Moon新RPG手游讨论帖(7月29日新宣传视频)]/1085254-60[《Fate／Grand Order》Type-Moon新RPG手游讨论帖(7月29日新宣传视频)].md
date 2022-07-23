@@ -7049,3 +7049,14 @@ TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockqu
 
 这概念图要是灵衣多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yason  
+##### 89138#       发表于 2022-7-24 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56769108&amp;ptid=1085254" target="_blank">zore 发表于 2022-7-23 22:49</a>
+这概念图要是灵衣多好啊</blockquote>
+就这群废物的产能，算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
