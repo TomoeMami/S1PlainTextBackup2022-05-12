@@ -14352,3 +14352,16 @@ Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1
 为什么那么关心皮啊，magni首播真的很有意思啊，中之人决定皮的顺眼程度</blockquote>
 因为一般群众都是看皮的 没好皮就没数字 magni要是顶着这皮能打出大数字我是服气的 目前看有那么1%可能
 
+
+
+*****
+
+####  dclara1  
+##### 16343#       发表于 2022-7-24 06:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56760311&amp;ptid=1972669" target="_blank">aritaatsu222 发表于 2022-7-23 10:56</a>
+女子组和nina早就装不下去了，昨天鸟下播直接在推特阴阳啰</blockquote>
+Ethyria不是从第一天开始就母慈女孝吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
