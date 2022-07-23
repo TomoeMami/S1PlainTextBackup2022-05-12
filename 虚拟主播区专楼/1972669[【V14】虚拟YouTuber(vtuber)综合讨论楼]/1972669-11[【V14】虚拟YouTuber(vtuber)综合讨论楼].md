@@ -14022,3 +14022,12 @@ vox除了营业内容和骚话不会别的嘛，咋子哥跟selen打了三回派
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fastary  
+##### 16312#       发表于 2022-7-23 09:38
+
+没去看塔信息，刷推看到杏星en出道开播了就点进去听了两耳朵，差点给我夹出来了()
+
