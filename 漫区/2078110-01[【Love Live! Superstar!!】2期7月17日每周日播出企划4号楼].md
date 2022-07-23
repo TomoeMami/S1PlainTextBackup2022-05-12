@@ -12784,3 +12784,38 @@ CelticWhite
 看B站各种考古鲤鱼的视频才知道原来以前还有个SP家族这样的组合，她还是成员，不过虽然这官号B站能搜到内容 ...</blockquote>
 那个SP家族应该是B站搞的吧，微博没有注销，还可以考古（http://weibo.com/u/6861483326），B站那个官号不知道什么时候注销的（好像是去年？），之前在这个视频（https://www.bilibili.com/video/BV1RJ411k732）下面有看到零星评论讨论一些原因，也看不清楚是为什么
 
+
+
+*****
+
+####  Enakina  
+##### 1088#       发表于 2022-7-23 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56768701&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-23 22:24</a>
+那个SP家族应该是B站搞的吧，微博没有注销，还可以考古（http://weibo.com/u/6861483326），B站那个官号 ...</blockquote>
+那个投稿里的大校，大陆，彤彤在鲤鱼一单和二单的协力里也有出现过。不过一专就没了，是一些别的超电的staff名字了
+
+*****
+
+####  starring  
+##### 1089#       发表于 2022-7-23 22:39
+
+pay今天参加了杏树的单独event，还有自拍技术提升了的自拍照<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/23/223811j0qjmi0rqmmcyyd0.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220723223456.png</strong> (108.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-23 22:38 上传
+
+FYWxdGdaQAE3z4G.jpg
+(625.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-23 22:38 上传
+
+<img src="https://img.saraba1st.com/forum/202207/23/223817ylx1rugdds2yabug.jpg" referrerpolicy="no-referrer">
+

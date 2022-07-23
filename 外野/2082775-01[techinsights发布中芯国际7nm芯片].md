@@ -730,3 +730,16 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 有，按之前那个披露，刚到可用</blockquote>
 根据跟进的检测支持推断，应该不止。
 
+
+
+*****
+
+####  饿梦  
+##### 75#       发表于 2022-7-23 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766788&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-23 20:31</a>
+文中说行业研究机构TechInsights发现瓷砖厂使用了7nm工艺，整一颗挖矿的芯片，然后说遥遥领先14nm技术。
+
+ ...</blockquote>
+再有情有义不是自己人就不是自己人
+
