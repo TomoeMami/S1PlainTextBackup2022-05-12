@@ -14049,3 +14049,22 @@ vox除了营业内容和骚话不会别的嘛，咋子哥跟selen打了三回派
 
 lazulight中之人都还可以啊
 
+
+
+*****
+
+####  毛头小希  
+##### 16315#       发表于 2022-7-23 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56752507&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-22 18:34</a>
+
+我是在说魂啦……主要嗯女中之人感觉都太……路人脸了，和维阿差距好大 ...</blockquote>
+草完全是我未曾设想的道路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我是属于那种除了人品上的大瓜几乎不关心中之人的V观众，纯纸片人性恋，中之人不管是貌若天仙还是掉SAN深潜者我都不在乎
+
+所以一看说颜值我下意识只想到皮的颜值
+
+是我跨频聊天了，唔该唔该
+那么关心中之人颜值直接看偶像啊看什么V
+
