@@ -14107,3 +14107,18 @@ lazulight中之人都还可以啊
 没很密切关注虹en那边的推特互动，不过大致观测一下的感觉他们好喜欢讲family和互撩啥的，看直播repo好像随 ...</blockquote>
 女子组和nina早就装不下去了，昨天鸟下播直接在推特阴阳啰
 
+
+
+*****
+
+####  dclara1  
+##### 16320#       发表于 2022-7-23 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56755823&amp;ptid=1972669" target="_blank">IL282 发表于 2022-7-22 22:30</a>
+vox除了营业内容和骚话不会别的嘛，咋子哥跟selen打了三回派也不是这么个场面，说好的阳角呢
+
+—— 来自 On ...</blockquote>
+vox在b站好拘谨
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
