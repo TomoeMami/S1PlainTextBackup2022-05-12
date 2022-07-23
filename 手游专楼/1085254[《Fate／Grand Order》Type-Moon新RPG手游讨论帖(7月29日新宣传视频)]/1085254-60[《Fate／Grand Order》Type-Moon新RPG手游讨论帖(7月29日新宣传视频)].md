@@ -6746,3 +6746,18 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟有人玩废狗日常刷本开声音
 
+
+
+*****
+
+####  exiaexa  
+##### 89110#       发表于 2022-7-23 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56760451&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-23 11:06</a>
+
+竟有人玩废狗日常刷本开声音</blockquote>
+我在刷蛇2U啊
+
+不开声音经常就放置play到息屏了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
