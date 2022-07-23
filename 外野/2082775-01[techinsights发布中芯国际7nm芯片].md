@@ -718,3 +718,15 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 国内有做光刻胶的，好像还不错。</blockquote>
 有，按之前那个披露，刚到可用
 
+
+
+*****
+
+####  lynnnnnnn  
+##### 74#       发表于 2022-7-23 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56768612&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-23 22:18</a>
+
+有，按之前那个披露，刚到可用</blockquote>
+根据跟进的检测支持推断，应该不止。
+

@@ -12756,3 +12756,31 @@ CelticWhite
 
 疫情以后线下活动又难办，直播也搞得这么火，这种依靠线下的活动也许就砍了
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1085#       发表于 2022-7-23 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子越来越好看了
+
+*****
+
+####  iuhehc  
+##### 1086#       发表于 2022-7-23 22:24
+
+ 本帖最后由 iuhehc 于 2022-7-23 22:26 编辑 
+
+新op到现在只听了两遍，还没什么印象，反正土和黄粉毛给我的感觉都挺棒读，既然都c了那唱跳总得能拿一个出手吧
+同样是海选组的角色，恋真是倒霉个人回被写成那样
+
+*****
+
+####  aoaoaodedede  
+##### 1087#       发表于 2022-7-23 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56768397&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-23 22:04</a>
+看B站各种考古鲤鱼的视频才知道原来以前还有个SP家族这样的组合，她还是成员，不过虽然这官号B站能搜到内容 ...</blockquote>
+那个SP家族应该是B站搞的吧，微博没有注销，还可以考古（http://weibo.com/u/6861483326），B站那个官号不知道什么时候注销的（好像是去年？），之前在这个视频（https://www.bilibili.com/video/BV1RJ411k732）下面有看到零星评论讨论一些原因，也看不清楚是为什么
+
