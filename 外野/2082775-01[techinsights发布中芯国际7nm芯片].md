@@ -619,3 +619,17 @@ ASML的员工们请注意：你们还有不到三年的时间来改求职简历�
 
 14都才刚出货就来个7，感觉过于丁真
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 65#       发表于 2022-7-23 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765113&amp;ptid=2082775" target="_blank">山鬼 发表于 2022-7-23 18:17</a>
+回复热度已经说明，有些事情势必被某群人忽视冷处理，进来跳脚啊，快来说这是假的
+
+  -- 来自 能搜 ...</blockquote>
+耗材殖人震怒，说是假的，但战忽局也纷纷说是假的
+我想了想，我也说是假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
