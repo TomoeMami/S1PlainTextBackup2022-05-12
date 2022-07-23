@@ -6906,3 +6906,29 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">现在0石0呼符 感觉良好
 
+
+
+*****
+
+####  exiaexa  
+##### 89125#       发表于 2022-7-23 20:12
+
+MD我越来越好奇萌新的仓库了
+
+到底是什么仓库稳定20eQP
+
+我常年见底，现在手里的6000w都是刻意留着的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89126#       发表于 2022-7-23 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766424&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-23 20:12</a>
+
+MD我越来越好奇萌新的仓库了
+
+到底是什么仓库稳定20eQP</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得去年周年刷羁绊抽卡吗   这全是在钱本完成的 刷了多少钱我都不记得了 至少50亿起步
+
