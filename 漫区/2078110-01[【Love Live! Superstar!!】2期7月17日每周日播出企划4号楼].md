@@ -12542,3 +12542,14 @@ https://github.com/master-of-forums/master-of-forums
 
 <img src="https://img.saraba1st.com/forum/202207/23/150332vz5ppbzz9pcw9p4i.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 1072#       发表于 2022-7-23 18:56
+
+<blockquote>starring 发表于 2022-7-23 12:49
+之前350淘了一本，两个月前TB有一间店卖420现在还挂着链接，海鲜市场现在一本都找不到 ...</blockquote>
+有点离谱啊……我前段时间200收了本一巡的，这么薄迫真有种上当的感觉
+
