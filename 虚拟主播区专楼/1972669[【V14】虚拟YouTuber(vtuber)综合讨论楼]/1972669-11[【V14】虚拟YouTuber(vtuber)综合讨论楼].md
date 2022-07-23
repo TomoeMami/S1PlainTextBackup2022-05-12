@@ -14222,3 +14222,33 @@ sky好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">皇女那棒球好像不妙啊。
 
+
+
+*****
+
+####  死体残留  
+##### 16329#       发表于 2022-7-23 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">感谢楼友的毒奶
+
+*****
+
+####  Ketestrait  
+##### 16330#       发表于 2022-7-23 21:25
+
+草，皇女这都9回下半直下5分逆转再见了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 16331#       发表于 2022-7-23 21:26
+
+9局下要被NHNR-&gt;3分弹+2分再见timely<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16332#       发表于 2022-7-23 21:29
+
+Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

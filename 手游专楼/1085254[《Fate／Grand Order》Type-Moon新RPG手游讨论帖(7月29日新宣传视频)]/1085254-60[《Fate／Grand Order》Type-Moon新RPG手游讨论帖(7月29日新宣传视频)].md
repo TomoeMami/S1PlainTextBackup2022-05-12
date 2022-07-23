@@ -6962,3 +6962,17 @@ TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockqu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这下周年难办了，只能期望运营多送了
 
+
+
+*****
+
+####  qixinno2  
+##### 89130#       发表于 2022-7-23 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56767576&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-23 21:14</a>
+
+忍不住丢了20发护符下去，几乎全是礼装，其中4张是5星垃圾礼装，然而最后一次居然出了骑呆
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

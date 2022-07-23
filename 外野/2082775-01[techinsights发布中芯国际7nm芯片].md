@@ -654,3 +654,19 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 
 看不了啊
 
+
+
+*****
+
+####  Rafale  
+##### 68#       发表于 2022-7-23 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766788&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-23 20:31</a>
+文中说行业研究机构TechInsights发现瓷砖厂使用了7nm工艺，整一颗挖矿的芯片，然后说遥遥领先14nm技术。
+
+ ...</blockquote>
+有点太小看techinsights了，密度还是不会弄错的
+<img src="https://p.sda1.dev/6/1775da8feb4e034849c209607db6afa8/CMP_20220723212430437.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/6077a9bfee4caddc85b87639f56f5def/CMP_20220723212430493.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/2ed8cc68f04a52530a93cbba9261fde0/CMP_20220723212430561.jpg" referrerpolicy="no-referrer">
+
