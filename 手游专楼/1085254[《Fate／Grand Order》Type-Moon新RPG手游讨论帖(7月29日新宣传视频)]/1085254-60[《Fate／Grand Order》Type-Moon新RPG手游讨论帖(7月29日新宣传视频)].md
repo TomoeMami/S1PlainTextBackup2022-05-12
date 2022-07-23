@@ -6761,3 +6761,12 @@ google再抽风怕不是信用卡战士都当不了了
 不开声音经常就放置play到息屏了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 89111#       发表于 2022-7-23 17:57
+
+贝壳还没有保底，刷NM呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
