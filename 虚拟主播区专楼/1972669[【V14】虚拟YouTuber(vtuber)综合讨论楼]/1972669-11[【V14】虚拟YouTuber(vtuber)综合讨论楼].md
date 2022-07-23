@@ -14095,3 +14095,15 @@ lazulight中之人都还可以啊
 
 大家庭这种东西人少了不行，人多了也不行，只要继续招人，所谓大家庭终将走向解体。
 
+
+
+*****
+
+####  aritaatsu222  
+##### 16319#       发表于 2022-7-23 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56759909&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-23 10:21</a>
+
+没很密切关注虹en那边的推特互动，不过大致观测一下的感觉他们好喜欢讲family和互撩啥的，看直播repo好像随 ...</blockquote>
+女子组和nina早就装不下去了，昨天鸟下播直接在推特阴阳啰
+

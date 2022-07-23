@@ -6725,3 +6725,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 围观各种海豹大佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89108#       发表于 2022-7-23 10:59
+
+你游啥时候才能出一个，屏蔽某个角色声音的功能
+
+刷了一小时龙牙，古贺葵这克姐真的太可怕了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
