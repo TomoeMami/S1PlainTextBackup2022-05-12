@@ -6932,3 +6932,22 @@ MD我越来越好奇萌新的仓库了
 到底是什么仓库稳定20eQP</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得去年周年刷羁绊抽卡吗   这全是在钱本完成的 刷了多少钱我都不记得了 至少50亿起步
 
+
+
+*****
+
+####  qixinno2  
+##### 89127#       发表于 2022-7-23 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊
+
+*****
+
+####  alucardcz  
+##### 89128#       发表于 2022-7-23 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766578&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-23 20:21</a>
+
+TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羁绊刷起来  我不信你全从者15了
+
