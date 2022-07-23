@@ -6862,3 +6862,38 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是被＃套到了，还是当初想抽就抽爽啊，现在这快一＃只能等周年释放了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89121#       发表于 2022-7-23 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56760355&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-23 10:59</a>
+
+你游啥时候才能出一个，屏蔽某个角色声音的功能
+
+刷了一小时龙牙，古贺葵这克姐真的太可怕了
+
+ ...</blockquote>
+配的太用力了，杀猪一样的叫声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89122#       发表于 2022-7-23 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765431&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-23 18:45</a>
+太欧了居然有地方用钱 非萌钱早就20亿爆中爆了</blockquote>
+你的被动技能呢，随便点一下就花光了。
+
+*****
+
+####  alucardcz  
+##### 89123#       发表于 2022-7-23 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765883&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-23 19:27</a>
+
+你的被动技能呢，随便点一下就花光了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 拉满了
+
