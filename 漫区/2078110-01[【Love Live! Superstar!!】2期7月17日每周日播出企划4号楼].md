@@ -12447,3 +12447,34 @@ https://github.com/master-of-forums/master-of-forums
 感谢之前楼友指路，200块淘到了本二巡场刊，现在想收本一巡的，问下大概多少钱能收到 ...</blockquote>
 之前350淘了一本，两个月前TB有一间店卖420现在还挂着链接，海鲜市场现在一本都找不到<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1064#       发表于 2022-7-23 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56761765&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-23 12:49</a>
+
+之前350淘了一本，两个月前TB有一间店卖420现在还挂着链接，海鲜市场现在一本都找不到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">这么贵？刚刚270买了本我还嫌有点贵
+
+*****
+
+####  starring  
+##### 1065#       发表于 2022-7-23 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56761824&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-23 12:54</a>
+这么贵？刚刚270买了本我还嫌有点贵</blockquote>
+一巡的场刊350淘的，二巡那本我是预订，今天才到手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1066#       发表于 2022-7-23 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56761551&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-23 12:34</a>
+看着分镜意图是互换，以前的被拉者转变为拉人者...不过这也是够摸鱼的..</blockquote>
+整了个最搞人心态的方法来“互换”，只能说制作动画的staff对动画是真的没有什么厨力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不多聊这个东西了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
