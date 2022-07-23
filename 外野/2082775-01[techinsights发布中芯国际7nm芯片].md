@@ -633,3 +633,24 @@ ASML的员工们请注意：你们还有不到三年的时间来改求职简历�
 耗材殖人震怒，说是假的，但战忽局也纷纷说是假的
 我想了想，我也说是假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roger_goodell  
+##### 66#       发表于 2022-7-23 21:16
+
+昨天泥潭已经有一个相关讨论帖，我看删了，还以为不给再进一步讨论这个
+
+*****
+
+####  套路设计师  
+##### 67#       发表于 2022-7-23 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766051&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-23 19:44</a>
+
+http://translate.ltaaa.cn/mobile/article/20185</blockquote>
+要付费？
+
+看不了啊
+

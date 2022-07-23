@@ -6951,3 +6951,14 @@ MD我越来越好奇萌新的仓库了
 TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羁绊刷起来  我不信你全从者15了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89129#       发表于 2022-7-23 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍不住丢了20发护符下去，几乎全是礼装，其中4张是5星垃圾礼装，然而最后一次居然出了骑呆
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这下周年难办了，只能期望运营多送了
+
