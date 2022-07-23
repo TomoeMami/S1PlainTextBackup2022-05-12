@@ -6801,3 +6801,22 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又想种树了，主要我技能没升的太多，懒得打……
 
+
+
+*****
+
+####  alucardcz  
+##### 89115#       发表于 2022-7-23 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765260&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-23 18:29</a>
+
+又想种树了，主要我技能没升的太多，懒得打……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打啥 不就一个狩猎本
+
+*****
+
+####  qixinno2  
+##### 89116#       发表于 2022-7-23 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都是打一次拿完兽脚后就开始刷QP本 没QP了
+
