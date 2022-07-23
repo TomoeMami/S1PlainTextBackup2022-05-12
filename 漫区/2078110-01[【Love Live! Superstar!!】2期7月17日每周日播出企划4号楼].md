@@ -12650,3 +12650,34 @@ https://github.com/master-of-forums/master-of-forums
 
 铃原这照的和事务所那个照片有的一比了
 
+
+
+*****
+
+####  老1.5  
+##### 1076#       发表于 2022-7-23 21:43
+
+铃原只有校服造型比较喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1077#       发表于 2022-7-23 21:45
+
+我思考了很久也没搞懂Ltuber是什么玩意，单纯的为了避嫌Vtuber？
+
+拉拉活动好像确实是有个仿油管网页，live啥的都会投稿上去，如果lvb指的是拉拉专属的网站，夏美完全不知道学院偶像感觉也不对头。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 1078#       发表于 2022-7-23 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56767259&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-23 20:57</a>
+………………新人的样貌…………真的……一般</blockquote>
+别慌，故意拍丑的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
