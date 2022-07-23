@@ -14340,3 +14340,15 @@ Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1
 
 周日再来个梅开三度<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16342#       发表于 2022-7-24 04:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765417&amp;ptid=1972669" target="_blank">stars 发表于 2022-7-23 18:44</a>
+
+为什么那么关心皮啊，magni首播真的很有意思啊，中之人决定皮的顺眼程度</blockquote>
+因为一般群众都是看皮的 没好皮就没数字 magni要是顶着这皮能打出大数字我是服气的 目前看有那么1%可能
+
