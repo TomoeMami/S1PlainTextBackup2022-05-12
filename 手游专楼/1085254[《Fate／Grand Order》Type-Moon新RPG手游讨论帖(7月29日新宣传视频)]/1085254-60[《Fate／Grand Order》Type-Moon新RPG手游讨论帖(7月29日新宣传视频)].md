@@ -6820,3 +6820,15 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都是打一次拿完兽脚后就开始刷QP本 没QP了
 
+
+
+*****
+
+####  alucardcz  
+##### 89117#       发表于 2022-7-23 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765352&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-23 18:38</a>
+
+我都是打一次拿完兽脚后就开始刷QP本 没QP了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了居然有地方用钱 非萌钱早就20亿爆中爆了
+
