@@ -14288,3 +14288,26 @@ Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1
 
 看V不在意皮那我还看啥V，我直接去看露脸主播不好吗，娱乐程度不必V强百倍<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16337#       发表于 2022-7-23 23:53
+
+手搓捕A，重铸虹女荣耀
+
+*****
+
+####  Ketestrait  
+##### 16338#       发表于 2022-7-23 23:56
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h4hamx18mwj20wu0f6ash.jpg" referrerpolicy="no-referrer">
+
+悲报：首战抽到了konami的抑制力，昨天一回逆转社长7分的大和高中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4hau8dv8wj20xf0inwk0.jpg" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h4hauc7z55j20ut0es0wg.jpg" referrerpolicy="no-referrer">
+
+喜报：凛先辈，捕手A升格<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
