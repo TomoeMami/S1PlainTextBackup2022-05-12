@@ -12502,3 +12502,14 @@ https://github.com/master-of-forums/master-of-forums
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹团先有企划积累人气然后在大家的期待下出动画，是充满厨力的制作的原因吗
 
+
+
+*****
+
+####  Enakina  
+##### 1069#       发表于 2022-7-23 13:47
+
+虹的采访里监督还是编剧说过，既然京极监督亲自去负责了llsp，单独让我操刀虹，可能意思就是有他去做传统的ll，那我就可以大胆去做了
+
+虽然一直爱骂花田，但我从来不觉得动画做不好是花田的错，花田也不过是一个按要求交工的打工人罢了，一期公式书，花田连留言都没有，你还能指望啥
+
