@@ -14311,3 +14311,21 @@ Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1
 
 喜报：凛先辈，捕手A升格<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zebra8888cz  
+##### 16339#       发表于 2022-7-24 00:01
+
+皇女今天一堆脑死选择，只能说运气实在太顶了，基德基德
+
+*****
+
+####  gaiadc  
+##### 16340#       发表于 2022-7-24 00:05
+
+老实说皇女玩的挺菜的，8个监督里独一档的那种，但是人家运气好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+心疼豆猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
