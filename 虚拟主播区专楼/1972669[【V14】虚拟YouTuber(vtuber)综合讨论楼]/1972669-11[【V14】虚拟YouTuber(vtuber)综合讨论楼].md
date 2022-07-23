@@ -14131,3 +14131,47 @@ vox在b站好拘谨
 
 为什么那么关心皮啊，magni首播真的很有意思啊，中之人决定皮的顺眼程度
 
+
+
+*****
+
+####  毛头小希  
+##### 16322#       发表于 2022-7-23 19:13
+
+记得去年伊甸组刚出道没多久拿的第一个工商就是PokerChase
+
+当时的雷先生：我的获胜奖励就是在游戏里实装！
+
+游戏staff：我们考虑考虑
+
+<img src="https://img.saraba1st.com/forum/202207/23/191211p37fmzga1aat8cnf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220723191138.png</strong> (86.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-23 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/23/191211waoy7lb7f7d030do.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220723191133.png</strong> (86.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-23 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202207/23/191211vwesdbq7b313o0s7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220723190843.png</strong> (89.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-23 19:12 上传
+
+*****
+
+####  死体残留  
+##### 16323#       发表于 2022-7-23 19:16
+
+成濑这工商冠军好爽啊
+

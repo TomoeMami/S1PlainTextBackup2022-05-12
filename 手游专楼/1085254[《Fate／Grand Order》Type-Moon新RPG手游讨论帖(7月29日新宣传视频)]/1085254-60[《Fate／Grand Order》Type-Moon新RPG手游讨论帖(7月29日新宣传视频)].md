@@ -6853,3 +6853,12 @@ google再抽风怕不是信用卡战士都当不了了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿着那几个石头去扔黑骑呆 果然毛都没出
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89120#       发表于 2022-7-23 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是被＃套到了，还是当初想抽就抽爽啊，现在这快一＃只能等周年释放了
+
