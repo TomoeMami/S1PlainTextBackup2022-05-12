@@ -12690,3 +12690,21 @@ https://github.com/master-of-forums/master-of-forums
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到底土妹有什么魅力可以说服我她值得做为二期C位
 
+
+
+*****
+
+####  cat1230  
+##### 1080#       发表于 2022-7-23 22:04
+
+看B站各种考古鲤鱼的视频才知道原来以前还有个SP家族这样的组合，她还是成员，不过虽然这官号B站能搜到内容，搜索界面也有组合全名，但点开看发现此账号已经注销，谁知道这组合为啥没了的么？
+
+
+
+*****
+
+####  starring  
+##### 1081#       发表于 2022-7-23 22:06
+
+只有等live亮相展示歌舞能力才知道符不符合二期C的定位
+

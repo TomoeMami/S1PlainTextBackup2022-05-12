@@ -670,3 +670,19 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 <img src="https://p.sda1.dev/6/6077a9bfee4caddc85b87639f56f5def/CMP_20220723212430493.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/2ed8cc68f04a52530a93cbba9261fde0/CMP_20220723212430561.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lynnnnnnn  
+##### 69#       发表于 2022-7-23 22:06
+
+国内有做光刻胶的，好像还不错。
+
+*****
+
+####  nvis  
+##### 70#       发表于 2022-7-23 22:07
+
+抄台积电那可真NB了，米国那垃圾技术可是抄不来台积电的
+
