@@ -12708,3 +12708,51 @@ https://github.com/master-of-forums/master-of-forums
 
 只有等live亮相展示歌舞能力才知道符不符合二期C的定位
 
+
+
+*****
+
+####  adw667  
+##### 1082#       发表于 2022-7-23 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765669&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-23 19:05</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这拍得像上世纪港台歌曲MV一样，特别是上次迪士尼团建返图那谁穿了牛仔裤完全像是穿越来的一样
+
+*****
+
+####  仟音一心  
+##### 1083#       发表于 2022-7-23 22:17
+
+CelticWhite
+
+<img src="https://img.saraba1st.com/forum/202207/23/221706ulecfqc3ldnnjoe3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>52889921-9917-4F40-8A24-87CE2291DC5A.jpeg</strong> (354.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-23 22:17 上传
+
+推特涨粉表
+
+<img src="https://img.saraba1st.com/forum/202207/23/221727tzmpvkp5przrs8ov.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF6539F9-4DD7-4C02-8FDD-F3E8F795EF12.jpeg</strong> (187.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-23 22:17 上传
+
+*****
+
+####  nufawneafg  
+##### 1084#       发表于 2022-7-23 22:18
+
+下面都是没啥凭据的想法
+
+给我的感觉来说这个SP家族与其说是一个紧密的有活动方向的组合，不如说是阿b牵头的一个松散的签约up主团体，临时安了个名
+
+疫情以后线下活动又难办，直播也搞得这么火，这种依靠线下的活动也许就砍了
+

@@ -686,3 +686,35 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 
 抄台积电那可真NB了，米国那垃圾技术可是抄不来台积电的
 
+
+
+*****
+
+####  狭义文具爱好者  
+##### 71#       发表于 2022-7-23 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56767039&amp;ptid=2082775" target="_blank">samta 发表于 2022-7-23 20:44</a>
+
+哦，外销的，那的确有点灰色地带的意思。</blockquote>
+看了一下，好像这个矿机公司是郑州的
+
+*****
+
+####  tillnight  
+##### 72#       发表于 2022-7-23 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56765969&amp;ptid=2082775" target="_blank">samta 发表于 2022-7-23 19:36</a>
+
+挖矿现在已经是违法了吧，都算不得灰色地带了。</blockquote>
+制造、销售矿机可不违法，违法的是规模挖矿和虚拟币交易。
+
+*****
+
+####  机吉斯卡  
+##### 73#       发表于 2022-7-23 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56768436&amp;ptid=2082775" target="_blank">lynnnnnnn 发表于 2022-7-23 22:06</a>
+
+国内有做光刻胶的，好像还不错。</blockquote>
+有，按之前那个披露，刚到可用
+
