@@ -14270,3 +14270,12 @@ Konami看到舆论不利，连忙改后台数据<img src="https://static.saraba1
 
 皇女也一胜抽签进春甲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16335#       发表于 2022-7-23 23:31
+
+中坚了。感觉白井逆转开始都蛮顺的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
