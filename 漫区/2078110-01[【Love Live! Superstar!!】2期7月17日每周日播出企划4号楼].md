@@ -13006,3 +13006,115 @@ FYWxdGdaQAE3z4G.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">money money money
 
+
+
+*****
+
+####  hgcg-ix  
+##### 1113#       发表于 2022-7-24 18:11
+
+9人体制后
+
+恋和千的存在感直线下降
+
+*****
+
+####  JustW_3  
+##### 1114#       发表于 2022-7-24 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这校风不太ok啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1115#       发表于 2022-7-24 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集阿堇回怼多了之后观感好了点
+
+*****
+
+####  JustW_3  
+##### 1116#       发表于 2022-7-24 18:14
+
+可堇都快彻底绑定了）
+
+土妹子这个人剧情线感觉像是各种缝合
+
+*****
+
+####  离心  
+##### 1117#       发表于 2022-7-24 18:14
+
+我懂了，这一季ll输了的原因了
+
+*****
+
+####  JustW_3  
+##### 1118#       发表于 2022-7-24 18:15
+
+ 本帖最后由 JustW_3 于 2022-7-24 18:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么京吹剧情
+
+*****
+
+####  iuhehc  
+##### 1119#       发表于 2022-7-24 18:15
+
+ 本帖最后由 iuhehc 于 2022-7-24 18:20 编辑 
+
+一笔带过！不赢了，开摆开摆，合着全在偷偷卷啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  寒风夜  
+##### 1120#       发表于 2022-7-24 18:16
+
+减负是吧
+
+*****
+
+####  JustW_3  
+##### 1121#       发表于 2022-7-24 18:16
+
+为啥自己也开摆，我多少没看懂
+
+*****
+
+####  离心  
+##### 1122#       发表于 2022-7-24 18:19
+
+<blockquote>JustW_3 发表于 2022-7-24 18:16
+为啥自己也开摆，我多少没看懂</blockquote>
+为了加人和不给新人压力吧
+
+*****
+
+####  tjshibc21  
+##### 1123#       发表于 2022-7-24 18:19
+
+太卷辣
+
+*****
+
+####  离心  
+##### 1124#       发表于 2022-7-24 18:20
+
+新人这棒读啊……
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1125#       发表于 2022-7-24 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔这纠结优胜纠结了一集，果然lovelive害人
+
+*****
+
+####  ykyin09  
+##### 1126#       发表于 2022-7-24 18:21
+
+这不是第一季可可抱香音复刻
+
