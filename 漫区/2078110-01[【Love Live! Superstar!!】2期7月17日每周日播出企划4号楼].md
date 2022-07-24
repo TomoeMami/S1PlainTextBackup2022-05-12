@@ -15202,3 +15202,12 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 什么 萨你怕也要加人？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫夜戎  
+##### 1312#       发表于 2022-7-25 01:06
+
+看起来两话一个新角色，最后两话描写下决赛。加新角色只是单纯为了凑剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
