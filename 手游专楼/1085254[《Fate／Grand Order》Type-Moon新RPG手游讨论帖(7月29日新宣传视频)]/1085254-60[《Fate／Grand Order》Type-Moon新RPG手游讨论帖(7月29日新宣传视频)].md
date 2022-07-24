@@ -7148,3 +7148,25 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起这个 这次周年能实装一个账号系统吗  2022年了还只能引继码  还不能多端末游玩。
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89147#       发表于 2022-7-24 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781460&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-24 20:20</a>
+
+比起这个 这次周年能实装一个账号系统吗  2022年了还只能引继码  还不能多端末游玩。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">白日做梦
+
+*****
+
+####  Jamaisvu  
+##### 89148#       发表于 2022-7-24 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781218&amp;ptid=1085254" target="_blank">シャル 发表于 2022-7-24 20:09</a>
+
+街机加诺亚尼莫船长了</blockquote>
+街机是尼莫，那么我就奶一下，手游七周年也得出个相关的让人物，也就是尼莫的master，紫苑！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

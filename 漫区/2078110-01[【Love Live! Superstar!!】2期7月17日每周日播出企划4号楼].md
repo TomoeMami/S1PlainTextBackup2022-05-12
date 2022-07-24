@@ -14213,3 +14213,56 @@ s1e12的非常苦压西到后来为了新人觉得小摆也没问题，虽然最
 
 只不过弄巧成拙了，一期断的地方让不少观众形成错觉了而已
 
+
+
+*****
+
+####  qratosone  
+##### 1221#       发表于 2022-7-24 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781629&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-24 20:28</a>
+
+不带脑子看不是指放弃思考里面的逻辑？因为新人而放弃高强度训练，这份重量和为了帮助liella的大家这么一 ...</blockquote>
+姑且不说回国事件至今没有明牌，可可自己第一季开头就说了学园偶像重在参与，然后第十集还强调了不想让其他人顾虑自己，还扯什么“来就是为了赢”？
+
+*****
+
+####  qratosone  
+##### 1222#       发表于 2022-7-24 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781646&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-24 20:29</a>
+
+我的意思倒也不是直接对标运动番</blockquote>
+一整个半年番的量，真要做赛季制的话总篇幅还是比较挤，除非开局直接所有人一集入队，否则还是不太够
+
+*****
+
+####  JustW_3  
+##### 1223#       发表于 2022-7-24 20:36
+
+ 本帖最后由 JustW_3 于 2022-7-24 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781422&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:19</a>
+为什么你们一定要觉得现实中的人的想法都是一成不变的？这就是你们所谓的“脑子”么？S2E1虽然进度赶火车 ...</blockquote>
+第一季前三集香音的成长算变化吧，为什么大家都给好评？为什么这一集觉得不能带脑子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想不通这个你就还是别想了，变化也分合理顺畅的变化和突兀生硬的变化。远的不讲，上一集五位前辈复读成绩、夺冠、优胜次数少吗
+
+*****
+
+####  iuhehc  
+##### 1224#       发表于 2022-7-24 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781685&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:30</a>
+姑且不说回国事件至今没有明牌，可可自己第一季开头就说了学园偶像重在参与，然后第十集还强调了不想让其 ...</blockquote>
+无视拿不到成绩就可能要回去这种事情吗，拉人这段剧情就这经得起认真推敲？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qratosone  
+##### 1225#       发表于 2022-7-24 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781794&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-24 20:36</a>
+
+第一季前三集香音的成长算变化吧，为什么大家都给好评？为什么这一集觉得不能带脑子？想不通这个 ...</blockquote>
+你们就没有发现“复读成绩、夺冠、优胜”本身就是走弯路的表现么？
+
