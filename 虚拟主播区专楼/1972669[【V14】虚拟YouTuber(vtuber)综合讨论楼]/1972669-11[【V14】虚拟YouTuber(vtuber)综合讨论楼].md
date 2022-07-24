@@ -14567,3 +14567,21 @@ ema新衣，エロ（
 
 说起来杏星en特出来了吗，看订阅那个很屌的油管主是不是猜错了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16360#       发表于 2022-7-24 23:14
+
+豆猫二年级入学抽，全员70以下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哭了，舞元后继有人<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zebra8888cz  
+##### 16361#       发表于 2022-7-24 23:14
+
+豆猫彻底烂掉了 新生没一个超80
+
