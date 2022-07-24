@@ -14266,3 +14266,116 @@ s1e12的非常苦压西到后来为了新人觉得小摆也没问题，虽然最
 第一季前三集香音的成长算变化吧，为什么大家都给好评？为什么这一集觉得不能带脑子？想不通这个 ...</blockquote>
 你们就没有发现“复读成绩、夺冠、优胜”本身就是走弯路的表现么？
 
+
+
+*****
+
+####  ads147147  
+##### 1226#       发表于 2022-7-24 20:41
+
+又开始了，大赛吵架的轮回，我敢说花田不是不知道这样扯淡会吵架，怕不是真被按着头要写这些玩意了，不如多去关注下新来的紫毛女士吧（说起来真的很光美画风，上次sp也是光美画风，难道是故意的。）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 1227#       发表于 2022-7-24 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56780690&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-24 19:49</a>
+吐槽一个观点，其他地方看到好几个人说不参加lovelive更好，不要靠近lovelive之类的观点。
+
+我寻思剧情本身 ...</blockquote>
+我认为去掉lovelive没什么意义，没必要拍两个虹团。但有了lovelive，怎么处理这种架空竞技就是问题了。
+
+同样花田大老师写的京吹tv也讨论了与这集相通的问题：是要和谐愉快的社团生活还是残酷认真地追求成绩？但相比之下旧五人从上一季结尾倒向后者还是这一集倒向前者，都不能说让人信服。
+
+*****
+
+####  lj205  
+##### 1228#       发表于 2022-7-24 20:42
+
+其实我觉得争的不是合理性，诟病的只是转的太生硬，而且对前面的苦呀西有些唏嘘，还有就是可可回国危机还在（民警没事就老提）
+
+*****
+
+####  JustW_3  
+##### 1229#       发表于 2022-7-24 20:43
+
+ 本帖最后由 JustW_3 于 2022-7-24 20:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781856&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:39</a>
+你们就没有发现“复读成绩、夺冠、优胜”本身就是走弯路的表现么？</blockquote>
+那这一集结尾又走回去了，你的意思是这一季的主旨是改掉这个问题？
+
+那我倒是觉得也行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">复刻久二年滑铁卢是吧，等第三期新生加入后久三年夺冠
+
+*****
+
+####  Enakina  
+##### 1230#       发表于 2022-7-24 20:45
+
+一些问题非要去找解释是能找到，无非强行点罢了。但观众看的舒不舒服，期不期待是骗不了人的，现在好多人对每周的动画不是期待而是害怕，这已经很能说明问题了……
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 1231#       发表于 2022-7-24 20:45
+
+反正Liella!已经社团化了，同时Liella!对lovelive的态度还是感觉很灵活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（这里面香音负主要责任），还是希望动画别老是在讲对参赛的态度之类的问题（就是希望把对大赛的态度之类的稳定下来），这方面讨论的越多，争议可能越大
+
+*****
+
+####  长日留痕  
+##### 1232#       发表于 2022-7-24 20:47
+
+看星团总是打破常规这一点来看，说不定之后真的会不夺冠呢。（当然是不可能的啦）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1233#       发表于 2022-7-24 20:48
+
+星团幼儿音担当是不是土妹？
+
+*****
+
+####  JustW_3  
+##### 1234#       发表于 2022-7-24 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781882&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 20:41</a>
+又开始了，大赛吵架的轮回，我敢说花田不是不知道这样扯淡会吵架，怕不是真被按着头要写这些玩意了，不如多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">紫毛是个惊喜，如果编剧能把握住机会的话可以整不少好活
+
+*****
+
+####  离心  
+##### 1235#       发表于 2022-7-24 20:48
+
+真不夺冠我愿称星团为神作<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1236#       发表于 2022-7-24 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781953&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-24 20:45</a>
+一些问题非要去找解释是能找到，无非强行点罢了。但观众看的舒不舒服，期不期待是骗不了人的，现在好多人对 ...</blockquote>
+想起星一kuka回延期几个星期时 和朋友天天刷第二话等，现在就..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW_3  
+##### 1237#       发表于 2022-7-24 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781999&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-7-24 20:47</a>
+看星团总是打破常规这一点来看，说不定之后真的会不夺冠呢。（当然是不可能的啦） ...</blockquote>
+星一年 距离全国大赛只差一步
+星二年 激进方针导致了滑铁卢
+星三年 天才新人加入终于夺冠
+
+星团企划写给花田与京吹的一封情书
+
