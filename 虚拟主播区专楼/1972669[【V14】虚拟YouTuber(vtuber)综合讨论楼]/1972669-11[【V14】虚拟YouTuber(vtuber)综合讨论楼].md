@@ -14434,3 +14434,17 @@ axel日语好像挺好的，立绘还算顺眼怎么机体动起来看不出来�
 
 盒皇金盾
 
+
+
+*****
+
+####  Ketestrait  
+##### 16350#       发表于 2022-7-24 16:15
+
+ 本帖最后由 Ketestrait 于 2022-7-24 16:17 编辑 
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4i346ycsnj20xu0j1794.jpg" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4i349zp3rj20xu0izq80.jpg" referrerpolicy="no-referrer">
+
+速报：牛姨9回下半连追4分，延长再见本垒打，第二年夏无魔物挺进甲子园<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
