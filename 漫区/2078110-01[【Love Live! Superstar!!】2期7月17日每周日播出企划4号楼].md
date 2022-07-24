@@ -12880,3 +12880,129 @@ FYWxdGdaQAE3z4G.jpg
 
 要来了
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1097#       发表于 2022-7-24 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欢迎欢迎
+
+*****
+
+####  JustW_3  
+##### 1098#       发表于 2022-7-24 18:01
+
+ 本帖最后由 JustW_3 于 2022-7-24 18:03 编辑 
+
+可可：我终于不是垫底了
+
+竟然没有土妹子约定俗成的体力强设定
+
+*****
+
+####  ykyin09  
+##### 1099#       发表于 2022-7-24 18:04
+
+这个没关系也太标准了
+
+*****
+
+####  hgcg-ix  
+##### 1100#       发表于 2022-7-24 18:04
+
+“没关系没关系” ​​​​
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1101#       发表于 2022-7-24 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么快就让center了？（
+
+*****
+
+####  JustW_3  
+##### 1102#       发表于 2022-7-24 18:04
+
+？？直接center是什么意思
+
+*****
+
+####  iuhehc  
+##### 1103#       发表于 2022-7-24 18:05
+
+第二集就给c位啊哦哟哦哟哦哟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  离心  
+##### 1104#       发表于 2022-7-24 18:06
+
+艹，四季这发明
+
+*****
+
+####  JustW_3  
+##### 1105#       发表于 2022-7-24 18:06
+
+工科生你正常点！
+
+*****
+
+####  hgcg-ix  
+##### 1106#       发表于 2022-7-24 18:07
+
+蓝毛呸喽呸喽
+
+*****
+
+####  iuhehc  
+##### 1107#       发表于 2022-7-24 18:07
+
+复刻来咯！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW_3  
+##### 1108#       发表于 2022-7-24 18:07
+
+这剧情既视感已经有点过于强了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1109#       发表于 2022-7-24 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">越来越感觉希柰子在复刻第一季的可可了
+
+*****
+
+####  ykyin09  
+##### 1110#       发表于 2022-7-24 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一集就给你们复刻小星星
+
+
+
+*****
+
+####  iuhehc  
+##### 1111#       发表于 2022-7-24 18:09
+
+第三集名字是不是キーカー？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW_3  
+##### 1112#       发表于 2022-7-24 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">money money money
+
