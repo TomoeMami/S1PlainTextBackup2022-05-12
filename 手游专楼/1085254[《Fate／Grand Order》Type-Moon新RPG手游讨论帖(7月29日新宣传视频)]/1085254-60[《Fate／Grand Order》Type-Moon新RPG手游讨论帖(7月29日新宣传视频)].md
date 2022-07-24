@@ -7170,3 +7170,71 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 街机加诺亚尼莫船长了</blockquote>
 街机是尼莫，那么我就奶一下，手游七周年也得出个相关的让人物，也就是尼莫的master，紫苑！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89149#       发表于 2022-7-24 20:52
+
+ 本帖最后由 Jamaisvu 于 2022-7-24 20:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781712&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-24 20:32</a>
+
+街机是尼莫，那么我就奶一下，手游七周年也得出个相关的让人物，也就是尼莫的master，紫苑！ ...</blockquote>
+一般来说，FGO周年从者要么是和主线息息相关的迦勒底常驻NPC，比如大小达芬奇、福尔摩斯，要不就是关系游戏主流体系的核心拐，比如斯卡蒂、C呆、杀狐。
+
+七周年也算个关键节点，七这个数字更是有重要含义，那么我奶一下周年从者既是重要NPC也是新绿拐！
+
+—————————————————————————
+
+（以下都是脑洞DIY，不具备合理性，见笑）
+
+目前蓝拐是Caster，红拐是Assassin，那么绿拐也从四骑士里挑。村正（士郎）是saber，远坂凛（伊斯塔）是archer，那么紫苑就是Rider好了！
+
+（完全没说服力...韦伯和樱都对不上...）
+
+参考村正的一阶立绘，现在武内崇摸鱼摸得厉害，所以紫苑初始立绘就先用现在的阿特拉斯校服双马尾吧...
+
+一破致敬下经典造型，月姬格斗的帽子麻花辫；
+
+三破么...大成状态下，可以穿上奥西里斯之砂那身古埃及裙装，但是保有自身意识，睁着眼，有表情。（皮肤黑或白无所谓，村正三破也是黑皮了...）
+
+满破随意，继续搞情怀的话可以弄一个吸血紫苑在小巷子里面仰望月光的卡面。
+
+技能嘛...（不会编了，抄一下阿院校服...）
+
+一技能，模造黑枪：我方单体50绿魔放+无敌+无敌贯通。
+
+二技能，以太光纤：我方单体50NP+弱体解除+出星率UP。
+
+三技能，赤砂的赦罪：（50暴击星以上可用）消除50以上的暴击星+每消除一颗为我方单体增加1NP+减少技能冷却两回合。
+
+宝具是拿着奥西里斯之砂的那个机器人，“三尖碑之赫尔墨斯”，动画直接用夜下降生的四气超杀就行。
+
+（空想终止的分割线）
+
+————————————
+
+虽然感觉不大可能，但是想想还是蛮激动的。跨年剧情里连卡奥斯教授都跑出来了，月世界经典人物进入FGO应该也不远了吧<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+（但是我估计月姬联动可能要在第二部完结后才来了，哪怕因为蘑菇封笔退坑的人说不定也会因此跑回来，续命宝具了属于...）
+
+*****
+
+####  里村紅葉  
+##### 89150#       发表于 2022-7-24 20:54
+
+来个人王吧，7年了衫田在你游还是一个可用角色都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89151#       发表于 2022-7-24 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56782173&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-24 20:54</a>
+
+来个人王吧，7年了衫田在你游还是一个可用角色都没有</blockquote>
+人王也好，毕竟是武内崇画的，人气也爆表。
+
+希望语音里能加个铃村健一的背后灵啥的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

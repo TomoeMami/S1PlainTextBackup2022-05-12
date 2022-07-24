@@ -14379,3 +14379,87 @@ s1e12的非常苦压西到后来为了新人觉得小摆也没问题，虽然最
 
 星团企划写给花田与京吹的一封情书
 
+
+
+*****
+
+####  nufawneafg  
+##### 1238#       发表于 2022-7-24 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56782075&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-24 20:50</a>
+
+星一年 距离全国大赛只差一步
+
+星二年 激进方针导致了滑铁卢
+
+星三年 天才新人加入终于夺冠</blockquote>
+别情书，害怕
+
+不如把这个看成花田写给拉拉企划的绝笔信
+
+一些关键问题企划你定个调，我一个打工人是真没招了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1239#       发表于 2022-7-24 20:55
+
+有一说一，花田在星团这里真能写出京吹那水平的剧本我做梦都能笑醒。可惜不能，我对动画倒不害怕，还蛮期待的。也许我是例外？虽说有时看的也气但至少还是乐呵的。没踩到我雷。不出意外会追完
+
+*****
+
+####  Piano-Forest  
+##### 1240#       发表于 2022-7-24 20:57
+
+💫CD情報💫
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+💫ED主題歌
+
+「追いかける夢の先で」
+
+8/10（水）発売✨
+
+ジャケット、SPOT、CW曲も聴ける試聴動画を公開🎉
+
+🎥SPOT
+[https://youtu.be/2LSuo68l6Uw](https://youtu.be/2LSuo68l6Uw)
+
+🎥試聴動画
+[https://youtu.be/rZYxfgTqaeQ](https://youtu.be/rZYxfgTqaeQ)
+
+INDEXはこちら💿
+[https://www.lovelive-anime.jp/yuigaoka/music/cd19.php](https://www.lovelive-anime.jp/yuigaoka/music/cd19.php)
+<img src="https://p.sda1.dev/6/0c97bfed740b1edd41b704d587c52ba9/20220724_205543.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/0e312b7ac29d17e723535b018f1590dd/20220724_205546.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/79ff24d9d6d1588a9f021ab7f3dcc4ac/20220724_205547.jpg" referrerpolicy="no-referrer">
+
+💫Blu-ray💫
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+Blu-rayシリーズは9/28より発売🎉
+
+早期特典の「全巻収納BOX」のデザインを初公開🎁
+
+OP主題歌衣装を着用した9人が描かれています🎤
+
+8/21迄にご予約された全員にプレゼント！お見逃しなく✨
+
+詳細→[https://www.lovelive-anime.jp/yuigaoka/bd/](https://www.lovelive-anime.jp/yuigaoka/bd/)
+<img src="https://p.sda1.dev/6/5a741ee17b2c1f41ecf1043c12d2487a/20220724_205649.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 1241#       发表于 2022-7-24 20:58
+
+ 本帖最后由 qratosone 于 2022-7-24 20:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781922&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-24 20:43</a>
+
+那这一集结尾又走回去了，你的意思是这一季的主旨是改掉这个问题？
+
+那我倒是觉得也行复刻久二年 ...</blockquote>
+你们在讨论所谓逻辑的时候都是完全忽视所有背景的么？提醒一句，LL世界观下学园偶像部一直是以学生社团的形式存在的，一个正常的学生社团必然要涉及到新陈代谢问题。夺冠当然要追求，但是为了夺冠让其他的一切都靠边站，连拉新都彻底放弃，从价值观导向上看就明显是不对的。花田再怎么跑火车，起码这两集一直在反复地强调这一点（而且还是明着用台词说出来的），在基调上至少没有犯错误。
+
