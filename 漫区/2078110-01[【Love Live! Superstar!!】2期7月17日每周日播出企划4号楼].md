@@ -13316,3 +13316,152 @@ LL本届冠军出场？终于到了solo偶像也能参加LL的时代了吗
 
 问题：新人棒读问题有点大；既视感和钦定感优点重；角色互动模式比之前更加固化
 
+
+
+*****
+
+####  JustW_3  
+##### 1151#       发表于 2022-7-24 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779245&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-24 18:29</a>
+
+还有可可的复刻画面？土妹子台词多太灾难了，第一集我看的就脑疼</blockquote>
+复刻了香音早上起来看到某人晨跑后加入的桥段
+
+*****
+
+####  Enakina  
+##### 1152#       发表于 2022-7-24 18:32
+
+还是理解不来，土妹子多大魅力，愿意为了她一个人修改第一季那么不甘心的苦呀洗，闹着玩呢吗
+
+*****
+
+####  aoaoaodedede  
+##### 1153#       发表于 2022-7-24 18:35
+
+等着熟肉，好奇这一集是不是也不用带脑子看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1154#       发表于 2022-7-24 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779276&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-24 18:32</a>
+还是理解不来，土妹子多大魅力，愿意为了她一个人修改第一季那么不甘心的苦呀洗，闹着玩呢吗 ...</blockquote>
+不带脑子看的话应该就没问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 1155#       发表于 2022-7-24 18:35
+
+引用一下隔壁战队台词对本话评价：
+
+<img src="https://img.saraba1st.com/forum/202207/24/183530lo3yvd3eeqxzo3jy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BB313683-85B4-4AC9-A24D-1BA338DE03D4.jpeg</strong> (98.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/183530cxprnugfqxnjhfuh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A9F2534D-41C1-493C-AF49-A21BFB5FBCB9.jpeg</strong> (79.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/183530dkxmutljp45zkujp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>04DC259B-B84D-45AA-AEC7-5E0636F65551.jpeg</strong> (100.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:35 上传
+
+*****
+
+####  lj205  
+##### 1156#       发表于 2022-7-24 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就是因为这种强推我对土妹印象越来越差，至今完全没有可以说服人的地方
+
+*****
+
+####  黑雪姫  
+##### 1157#       发表于 2022-7-24 18:35
+
+大人的事你们不需要了解die死<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 1158#       发表于 2022-7-24 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">3次元倒逼2次元了，然后也没活了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1159#       发表于 2022-7-24 18:38
+
+大概是想给电视机前的小学女生们造梦吧，开局咩都无，结尾大明星！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 1160#       发表于 2022-7-24 18:38
+
+有什么不理解的，无外乎就是所谓的“大人事情”呗
+
+*****
+
+####  离心  
+##### 1161#       发表于 2022-7-24 18:38
+
+与其说是土妹子多大魅力，不如说为什么她们这么执着要加人（好像恋说了这个事，等熟肉出了再看）不过素材重用是真的难顶，四人除了笔墨不多的夏美，牺牲了老五星的观感。新人观感好了不少，芽衣观感好多了
+
+*****
+
+####  aoaoaodedede  
+##### 1162#       发表于 2022-7-24 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779311&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-24 18:35</a>
+就是因为这种强推我对土妹印象越来越差，至今完全没有可以说服人的地方 ...</blockquote>
+我倒是在想是不是企划想写一个真真意义上的“普通人”，然后整一个大家推着她成长的故事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 1163#       发表于 2022-7-24 18:38
+
+强推只会让人越来越反感，这动画感动不起来，真就先天残缺了新星团<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 1164#       发表于 2022-7-24 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779348&amp;ptid=2078110" target="_blank">离心 发表于 2022-7-24 18:38</a>
+
+与其说是土妹子多大魅力，不如说为什么她们这么执着要加人（好像恋说了这个事，等熟肉出了再看）不过素材重 ...</blockquote>
+让新生们也可以享受学园偶像的魅力而不是自己当老害搞小圈子……吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 1165#       发表于 2022-7-24 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779348&amp;ptid=2078110" target="_blank">离心 发表于 2022-7-24 18:38</a>
+
+与其说是土妹子多大魅力，不如说为什么她们这么执着要加人（好像恋说了这个事，等熟肉出了再看）不过素材重 ...</blockquote>
+红毛不对着偶像发癫时真正常...
+
