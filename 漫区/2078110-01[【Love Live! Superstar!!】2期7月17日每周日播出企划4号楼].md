@@ -14670,3 +14670,81 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 可可的梦想就是当学园偶像，在日复一日学习生活中脱离出来，做出成绩显然是和家长谈判时开出的条件。当然在上一季结尾有没有一起一转库亚西就不知道了。
 
+
+
+*****
+
+####  ads147147  
+##### 1263#       发表于 2022-7-24 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783024&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-24 21:34</a>
+啊敌团不能是solo吗，要是solo的话会很有意思
+
+九打一还不一定打得赢</blockquote>
+什么锺岚珠大战虹女团w，要是真能掏出EUTOPIA级别的曲子，我可以原谅星2期。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  死宅真恶心  
+##### 1264#       发表于 2022-7-24 21:54
+
+怎么还有个大时代专区的韭菜… 
+
+*****
+
+####  aoaoaodedede  
+##### 1265#       发表于 2022-7-24 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783394&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 21:50</a>
+什么锺岚珠大战虹女团w，要是真能掏出EUTOPIA级别的曲子，我可以原谅星2期。
+
+—— 来自 Xiaomi 2106118C ...</blockquote>
+能拿出Eutopia那种水平的给敌团，又是一个人，感觉这可能性太低了
+
+*****
+
+####  ads147147  
+##### 1266#       发表于 2022-7-24 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783282&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-7-24 21:45</a>
+相比起大家来说，感觉可可并没有那么注重优胜，更还是享受这份经历来的，嘴臭民警也是这个道理，不想让大 ...</blockquote>
+现在对于香音来说，夺冠才是自我实现的一部分。可可这种当上偶像脱离机械式的学习状态 再给大家传递美好的动机很难说香音已经完全继承了，要是可香还有进一步互动说不定还能再把这个问题处理掉，可是现在，我不抱希望。
+
+可堇现在的绑定状态挺奇怪的，而且很明显堇已经理解到了可可的想法，但是可可又一股与你无瓜的态度，谁家欢喜冤家这个样子。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  老1.5  
+##### 1267#       发表于 2022-7-24 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783282&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-7-24 21:45</a>
+
+相比起大家来说，感觉可可并没有那么注重优胜，更还是享受这份经历来的，嘴臭民警也是这个道理，不想让大 ...</blockquote>
+她真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 1268#       发表于 2022-7-24 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783394&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 21:50</a>
+
+什么锺岚珠大战虹女团w，要是真能掏出EUTOPIA级别的曲子，我可以原谅星2期。
+
+—— 来自 Xiaomi 2106118C ...</blockquote>
+万一呢，这不好说是吧
+
+*****
+
+####  lj205  
+##### 1269#       发表于 2022-7-24 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783523&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 21:55</a>
+
+现在对于香音来说，夺冠才是自我实现的一部分。可可这种当上偶像脱离机械式的学习状态 再给大家传递美好 ...</blockquote>
+可可应该是觉得民警老提太烦了？
+
