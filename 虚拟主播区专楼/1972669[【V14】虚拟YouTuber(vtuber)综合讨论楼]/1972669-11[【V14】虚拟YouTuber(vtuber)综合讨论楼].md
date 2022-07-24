@@ -14516,3 +14516,12 @@ axel日语好像挺好的，立绘还算顺眼怎么机体动起来看不出来�
 
 alelu这企划有意思，同接也不错，期待下次<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 16355#       发表于 2022-7-24 20:10
+
+为什么感觉脸变憨憨了。或者说为啥要变回这个憨憨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

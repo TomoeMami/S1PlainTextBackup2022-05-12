@@ -14033,3 +14033,108 @@ LL是个比赛，赢就是赢输就是输，你再怎么颠覆设定都不可能
 其实问题就在于这是个偶像番，如果纯竞赛运动模式就会有各种内部的不甘甚至 ...</blockquote>
 纯竞赛模式需要详细描写赛制，然后一场一场打下去，这样篇幅肯定不够——正经运动番都是半年番起步的。
 
+
+
+*****
+
+####  nufawneafg  
+##### 1205#       发表于 2022-7-24 20:10
+
+ 本帖最后由 nufawneafg 于 2022-7-24 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781220&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:09</a>
+
+纯竞赛模式需要详细描写赛制，然后一场一场打下去，这样篇幅肯定不够——正经运动番都是半年番起步的。 ...</blockquote>
+是这样的，
+
+不过我已经把两期动画当分割放送看了，某种意义上也算是半年番，只不过断的位置很具有迷惑性，不讲武德
+
+*****
+
+####  iuhehc  
+##### 1206#       发表于 2022-7-24 20:10
+
+ 本帖最后由 iuhehc 于 2022-7-24 20:18 编辑 
+
+预选赛输了苦压西苦压西，为了大家来年一定要赢比赛！
+然后看新入生有想法了——招不到人但为了赢比赛还是五个人吧——香音开始输出：还是想要新人——新人跟不上——因为看起来很辛苦更招不到人——算了我们也不一定要赢小摆一下——新人：加把劲骑士——啊果然我们还是想赢
+
+s1e12的非常苦压西到后来为了新人觉得小摆也没问题，虽然最后还是卷回来了，但是观感就很不行啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 1207#       发表于 2022-7-24 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781241&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-24 20:10</a>
+预选赛输了苦压西苦压西，为了大家来年一定要赢比赛！
+然后看新入生有想法了——招不到人但为了赢比赛还是 ...</blockquote>
+这种逻辑说多了就有点晕了
+
+*****
+
+####  saya1892  
+##### 1208#       发表于 2022-7-24 20:12
+
+土妹子的长台词还是不行……比可可1期名言那句差太多了
+
+*****
+
+####  寒风夜  
+##### 1209#       发表于 2022-7-24 20:13
+
+ 本帖最后由 寒风夜 于 2022-7-24 20:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">嗨呀，还是喜欢爱马仕（职业偶像）那样啊
+
+*****
+
+####  lj205  
+##### 1210#       发表于 2022-7-24 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了新人就是这么拼，你们还抱怨什么
+
+*****
+
+####  iuhehc  
+##### 1211#       发表于 2022-7-24 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781265&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-24 20:12</a>
+这种逻辑说多了就有点晕了</blockquote>
+所以还是得不带什么脑子看才行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1212#       发表于 2022-7-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781293&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-24 20:13</a>
+
+嗨呀，还是喜欢爱马仕那样啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人当偶像是工作好吧，比赛和工作就是两回事儿
+
+*****
+
+####  寒风夜  
+##### 1213#       发表于 2022-7-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781363&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-24 20:16</a>
+
+人当偶像是工作好吧，比赛和工作就是两回事儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对啊 就是职业的
+
+*****
+
+####  qratosone  
+##### 1214#       发表于 2022-7-24 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781334&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-24 20:15</a>
+
+所以还是得不带什么脑子看才行
+
+—— 来自 S1Fun</blockquote>
+为什么你们一定要觉得现实中的人的想法都是一成不变的？这就是你们所谓的“脑子”么？S2E1虽然进度赶火车，但最起码“学园偶像的初心是大家一起参与”这个主旨是贯彻到位了，这集再怎么反复摇摆也没有偏离这个主旨。所以你们所谓的“脑子”指的就是“我们要不惜一切代价取得胜利”？那可可要不要直接转后勤？
+
