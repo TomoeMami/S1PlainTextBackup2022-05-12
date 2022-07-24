@@ -14138,3 +14138,78 @@ s1e12的非常苦压西到后来为了新人觉得小摆也没问题，虽然最
 —— 来自 S1Fun</blockquote>
 为什么你们一定要觉得现实中的人的想法都是一成不变的？这就是你们所谓的“脑子”么？S2E1虽然进度赶火车，但最起码“学园偶像的初心是大家一起参与”这个主旨是贯彻到位了，这集再怎么反复摇摆也没有偏离这个主旨。所以你们所谓的“脑子”指的就是“我们要不惜一切代价取得胜利”？那可可要不要直接转后勤？
 
+
+
+*****
+
+####  qratosone  
+##### 1215#       发表于 2022-7-24 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781235&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-24 20:10</a>
+
+是这样的，
+
+不过我已经把两期动画当分割放送看了，某种意义上也算是半年番，只不过断的位置很具有迷惑性， ...</blockquote>
+“半年番起步”不代表只有一季半年番，实际上像黑篮或者排球少年这样的比赛型运动番都是一拍拍好几季的，总篇幅直接奔着年番去了。换成偶像这边，别说LL了，就算爱马仕都没这么多动画篇幅。
+
+*****
+
+####  lj205  
+##### 1216#       发表于 2022-7-24 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781422&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:19</a>
+
+为什么你们一定要觉得现实中的人的想法都是一成不变的？这就是你们所谓的“脑子”么？S2E1虽然进度赶火车 ...</blockquote>
+这就是一个冲突点了，第一季明明那么不甘心苦呀西，第二季为了推新人故意安排没人愿意加入然后大家老带新，不是不接受，就是太暴力，甚至演出都那么偷懒
+
+而且这两集民警一直在提可可回国的事，那她这样算不算小丑？
+
+*****
+
+####  qratosone  
+##### 1217#       发表于 2022-7-24 20:27
+
+ 本帖最后由 qratosone 于 2022-7-24 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781529&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-24 20:23</a>
+
+这就是一个冲突点了，第一季明明那么不甘心苦呀西，第二季为了推新人故意安排没人愿意加入然后大家老带新 ...</blockquote>
+你们是不是记错了，整个第一季除了最后一集之外就基本上没提夺冠的事，然后最后一集从头到尾只在最后几分钟提了一句苦呀西，前半集的香音还觉得能走到这一步已经挺满足了。然后第一季第十集的时候可可就在强调不想因为自己的事情拖累大家，现在也是一样
+
+*****
+
+####  iuhehc  
+##### 1218#       发表于 2022-7-24 20:28
+
+ 本帖最后由 iuhehc 于 2022-7-24 20:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781422&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:19</a>
+为什么你们一定要觉得现实中的人的想法都是一成不变的？这就是你们所谓的“脑子”么？S2E1虽然进度赶火车 ...</blockquote>
+不带脑子看不是指放弃思考里面的逻辑？因为新人而放弃高强度训练，这份重量和为了帮助liella的大家这么一比，不冲突？可可来不就是为了snp和拿出成绩？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 1219#       发表于 2022-7-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781605&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:27</a>
+
+你们是不是记错了，整个第一季除了最后一集之外就基本上没提夺冠的事，然后最后一集从头到尾只在最后几分 ...</blockquote>
+那最后一集那句苦呀西不就是一句承上启下的作用吗？前半集她满足了，算是对第一季的结束，后半她苦呀西，那就转到后面星团的目标
+
+*****
+
+####  nufawneafg  
+##### 1220#       发表于 2022-7-24 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781480&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:21</a>
+
+“半年番起步”不代表只有一季半年番，实际上像黑篮或者排球少年这样的比赛型运动番都是一拍拍好几季的， ...</blockquote>
+我的意思倒也不是直接对标运动番
+
+说分割放送的言下之意其实和你差不多，就是星的主旨其实还算连续，没那么割裂
+
+就是大家一起当学园偶像嘛，用中途加人体现我们这玩意是开放的可传承的
+
+只不过弄巧成拙了，一期断的地方让不少观众形成错觉了而已
+

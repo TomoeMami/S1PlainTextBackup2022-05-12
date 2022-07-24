@@ -7139,3 +7139,12 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 街机实装诺亚尼莫，司马街机
 
+
+
+*****
+
+####  alucardcz  
+##### 89146#       发表于 2022-7-24 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起这个 这次周年能实装一个账号系统吗  2022年了还只能引继码  还不能多端末游玩。
+
