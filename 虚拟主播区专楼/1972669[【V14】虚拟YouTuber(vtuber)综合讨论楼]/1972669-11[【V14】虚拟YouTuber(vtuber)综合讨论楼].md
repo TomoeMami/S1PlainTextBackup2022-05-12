@@ -14416,3 +14416,12 @@ axel日语好像挺好的，立绘还算顺眼怎么机体动起来看不出来�
 
 四个人首播都结束了，最高还是regis的9w订阅，感觉杏星en反攻虹en的大计是没法完成了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（除非先发新衣服整个容
 
+
+
+*****
+
+####  winda  
+##### 16348#       发表于 2022-7-24 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皇女这听指示厨了还能搞点子王属实有点顶不住，作为连续三年的继投监督这么菜不应该啊
+
