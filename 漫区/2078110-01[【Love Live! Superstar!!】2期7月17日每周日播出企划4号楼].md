@@ -14513,3 +14513,49 @@ OP主題歌衣装を着用した9人が描かれています🎤
 你们在讨论所谓逻辑的时候都是完全忽视所有背景的么？提醒一句，LL世界观下学园偶像部一直是以学生社团的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">社团和偶像团混在一起是lovelive系列的原点，但问题是解释不了社团招新和偶像团加人为什么要混在一起，如果这能混在一起，那以后是不是老人够三年就毕业、新人源源不断，这看粉丝儿买不买账了，我倒是无所谓
 
+
+
+*****
+
+####  老1.5  
+##### 1248#       发表于 2022-7-24 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56782330&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 21:01</a>
+
+你这话说的，真接受不了的人直接就不听不看不关心了，为什么要“害怕”？说白了，现在策划加四人的节奏放 ...</blockquote>
+毕竟眼里已经有梁木了，那还说啥呢。哪怕花田真的开C，写的再神总有人会以9人破坏了原5人为由发表反对意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 1249#       发表于 2022-7-24 21:14
+
+就配音这事我太佩服鲤鱼了，一个非日语母语的中国人第一次配音竟然不怎么棒读也算天赋了。
+
+*****
+
+####  JustW_3  
+##### 1250#       发表于 2022-7-24 21:16
+
+鲤鱼比上一季又进步了，中文台词几乎没违和感
+
+*****
+
+####  Piano-Forest  
+##### 1251#       发表于 2022-7-24 21:16
+
+[https://twitter.com/suzuki_mi_ho_/status/1551156552736055296](https://twitter.com/suzuki_mi_ho_/status/1551156552736055296)
+
+ラブライブ！スーパースター!!2期
+
+2話からのＥＤ
+
+作画監督をさせて頂きました。
+
+髪型、お衣装…とびきりキュートな9人🍓
+
+1期同様、皆さまに愛されるＥＤになりますように…！
+
+お疲れ様でした。
+<img src="https://p.sda1.dev/6/1e243f021403cd7b1be09ff8858361b7/20220724_211555.jpg" referrerpolicy="no-referrer">
+
