@@ -7238,3 +7238,14 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 希望语音里能加个铃村健一的背后灵啥的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 89152#       发表于 2022-7-24 21:44
+
+船长三破是变成诺亚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+兽和冠位都是俩游戏分啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

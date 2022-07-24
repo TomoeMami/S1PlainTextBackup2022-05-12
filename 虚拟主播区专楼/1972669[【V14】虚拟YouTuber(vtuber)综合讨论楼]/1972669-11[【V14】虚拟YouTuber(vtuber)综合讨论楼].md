@@ -14536,3 +14536,16 @@ ema新衣，エロ（
 <img src="https://p.sda1.dev/6/531d46cbb4dc15c3a3186050bd2ed18f/IMG_20220724_214801.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/820140cb6b0d08e05cef6a1e4d5a9a63/IMG_20220724_214751.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16357#       发表于 2022-7-24 21:49
+
+ 本帖最后由 Ketestrait 于 2022-7-24 21:50 编辑 
+
+豆猫这也太惨了，练习赛不胜，特训不成功，合宿1年级一个蓝特都没，闻者伤心见者落泪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下振れを一身に背負う男<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
