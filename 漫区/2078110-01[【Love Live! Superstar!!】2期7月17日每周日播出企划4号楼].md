@@ -15123,3 +15123,56 @@ OP主題歌衣装を着用した9人が描かれています🎤
 当然理想状态是用夺冠的荣誉装饰青春
 但是现在就是找不到这个理想动机啊戏里戏外都找不到啊，所以大家才会绕着大赛兜过来兜过去，前后矛盾不知所云的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 1305#       发表于 2022-7-25 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786129&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-25 00:30</a>
+
+你不觉得，到底是应该降低训练强度和目标以吸引新生，还是应该坚持夺冠目标但是要冒着招不到新人的 ...</blockquote>
+其实这么看来，前两集的主题算是连起来了——不应该为了短期目标而放弃初心。
+
+一方面，学园偶像活动的目标是让大家都能参与，都能感受学园偶像的魅力（恋恋还补上了一条让学园偶像在学校生根发芽，维系传承），所以为了夺冠而放弃招新是不可取的；另一方面，学园偶像的魅力之一就是大家一起通过努力取得成功，所以为了招新而降低训练强度也是不可取的。这样一来这个主题就写得比较完整了——而且所有内容都是通过台词明确地说出来的，没有谜语人。至少以目前这两集来看，花田还是吸取了第一季的教训的。
+
+当然，这个前提是上头要求必须按入队回模式写——如果实际上可以写虹团模式一集所有新人全入队，那就是花田自己人菜瘾大了。
+
+*****
+
+####  plazum  
+##### 1306#       发表于 2022-7-25 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786230&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-25 00:39</a>
+
+完了，触及四轱辘爱抖露和拉拉大赛的底层矛盾了
+
+到底是享受同好享受舞台享受青春呢，还是夺冠享受荣誉呢
+
+ ...</blockquote>
+不，我认为不只是love live，也不只是动画，我觉得对于任何一个社团，乃至任何一个兴趣爱好组织，在招收新人的时候，应该采取什么样的方针，都是会遇到的问题
+
+*****
+
+####  nufawneafg  
+##### 1307#       发表于 2022-7-25 00:47
+
+ 本帖最后由 nufawneafg 于 2022-7-25 00:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786283&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-25 00:44</a>
+不，我认为不只是love live，也不只是动画，我觉得对于任何一个社团，乃至任何一个兴趣爱好组织，在招收 ...</blockquote>
+啊这，要上升到社会角度看的话那......
+草，难不成星二真是社会实验动画<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1308#       发表于 2022-7-25 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786261&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-25 00:42</a>
+
+其实这么看来，前两集的主题算是连起来了——不应该为了短期目标而放弃初心。
+
+一方面，学园偶像活动的目 ...</blockquote>
+即便是从现实的角度来看，也是陆续入队的可能性更大吧，再说了，虹团虽然是新人一次性入队，但是那都是第九集了（左右，记不清了），人家早就混熟了，入队只不过是一个形式而已，虹团第一季不也是套路式的一人一集吗
+
