@@ -14549,3 +14549,12 @@ ema新衣，エロ（
 
 下振れを一身に背負う男<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  gaiadc  
+##### 16358#       发表于 2022-7-24 22:22
+
+豆猫是唯一一个毕业生既没抽到书店也没抽到器材的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

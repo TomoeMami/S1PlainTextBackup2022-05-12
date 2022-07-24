@@ -14821,3 +14821,47 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 2022-7-24 22:17 上传
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1277#       发表于 2022-7-24 22:21
+
+这集可堇好像没什么争议啊，看来可以放心看了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1278#       发表于 2022-7-24 22:22
+
+呃，看完熟肉，我有个疑问，为什么这训练不能因人而异呢？为什么一定要刚入团的人和老成员搞一样的训练强度呢？莫非是为了所谓的集体感和团队感吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 1279#       发表于 2022-7-24 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56784055&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-24 22:22</a>
+呃，看完熟肉，我有个疑问，为什么这训练不能因人而异呢？为什么一定要刚入团的人和老成员搞一样的训练强度 ...</blockquote>
+新人多练练少练练都能理解，前辈还得配合新人降强度就有点奇怪了
+
+*****
+
+####  黑雪姫  
+##### 1280#       发表于 2022-7-24 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56784032&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-7-24 22:21</a>
+这集可堇好像没什么争议啊，看来可以放心看了</blockquote>
+我觉得只是观众习惯了而已。
+可可这集依然还在怼堇。
+
+*****
+
+####  aoaoaodedede  
+##### 1281#       发表于 2022-7-24 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56784094&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-24 22:24</a>
+新人多练练少练练都能理解，前辈还得配合新人降强度就有点奇怪了</blockquote>
+不仅自降强度，而且还在剧情里想过修改目标<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
