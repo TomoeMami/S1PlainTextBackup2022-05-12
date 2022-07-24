@@ -7258,3 +7258,12 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 89154#       发表于 2022-7-24 22:57
+
+开宝具先放个生命树图，而且有个技能叫ゾハールの輝石，ゾハール就是zohar，光辉之书的意思。诺亚这卡巴拉味挺重的
+
