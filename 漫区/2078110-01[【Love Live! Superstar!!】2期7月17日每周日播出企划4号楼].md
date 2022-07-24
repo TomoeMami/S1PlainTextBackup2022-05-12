@@ -14973,3 +14973,45 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  plazum  
+##### 1292#       发表于 2022-7-25 00:03
+
+感觉这第二集的剧情还挺有深度的……
+
+而且这ED的内啥味儿也太重了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 1293#       发表于 2022-7-25 00:07
+
+那星二能搞点巨大萝卜吗 有的话我觉得也可以不用在意剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 1294#       发表于 2022-7-25 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56785838&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-25 00:03</a>
+感觉这第二集的剧情还挺有深度的……
+
+而且这ED的内啥味儿也太重了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">可否细说
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有说合理的有说不合理的，这是第一个见到说有深度的
+
+*****
+
+####  qratosone  
+##### 1295#       发表于 2022-7-25 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56785457&amp;ptid=2078110" target="_blank">glennq 发表于 2022-7-24 23:36</a>
+
+一起练只是说在同一个场地练，不代表也要同样的训练强度吧。真的从现实逻辑考虑的话，给新人一个循序渐进 ...</blockquote>
+正经社团番新人都是一批一批进的——现在就一个新生，真这么搞的话给新生的压力一样大，实际上就在这集小千就说了“要是还有别的新生来就好了”。
+
+目前看来有可能是被歌曲限制了，如果没有加人阶段的Live的话直接像虹团一期一样，直接招新之后收上四个申请表，后面再具体描写人物，这样就省事多了。
+
