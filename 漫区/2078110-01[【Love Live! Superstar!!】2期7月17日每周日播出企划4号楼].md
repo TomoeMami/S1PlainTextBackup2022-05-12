@@ -14463,3 +14463,53 @@ OP主題歌衣装を着用した9人が描かれています🎤
 那我倒是觉得也行复刻久二年 ...</blockquote>
 你们在讨论所谓逻辑的时候都是完全忽视所有背景的么？提醒一句，LL世界观下学园偶像部一直是以学生社团的形式存在的，一个正常的学生社团必然要涉及到新陈代谢问题。夺冠当然要追求，但是为了夺冠让其他的一切都靠边站，连拉新都彻底放弃，从价值观导向上看就明显是不对的。花田再怎么跑火车，起码这两集一直在反复地强调这一点（而且还是明着用台词说出来的），在基调上至少没有犯错误。
 
+
+
+*****
+
+####  qratosone  
+##### 1242#       发表于 2022-7-24 21:01
+
+ 本帖最后由 qratosone 于 2022-7-24 21:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56781953&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-24 20:45</a>
+
+一些问题非要去找解释是能找到，无非强行点罢了。但观众看的舒不舒服，期不期待是骗不了人的，现在好多人对 ...</blockquote>
+你这话说的，真接受不了的人直接就不听不看不关心了，为什么要“害怕”？说白了，现在策划加四人的节奏放在这里，就算花田先辈真的爆种把动画真拍成京吹，“害怕”的人一样不会少就是了。
+
+*****
+
+####  寒风夜  
+##### 1243#       发表于 2022-7-24 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">紫毛简直幻视偶活
+
+*****
+
+####  lj205  
+##### 1244#       发表于 2022-7-24 21:04
+
+紫毛大好啊，不行我就叛变呗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1245#       发表于 2022-7-24 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">棒读好多…………
+
+*****
+
+####  稀勢のささ  
+##### 1246#       发表于 2022-7-24 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">部团招新来的人水平不够可以不上啊 可惜这是拉拉
+
+*****
+
+####  JustW_3  
+##### 1247#       发表于 2022-7-24 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56782274&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 20:58</a>
+你们在讨论所谓逻辑的时候都是完全忽视所有背景的么？提醒一句，LL世界观下学园偶像部一直是以学生社团的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">社团和偶像团混在一起是lovelive系列的原点，但问题是解释不了社团招新和偶像团加人为什么要混在一起，如果这能混在一起，那以后是不是老人够三年就毕业、新人源源不断，这看粉丝儿买不买账了，我倒是无所谓
+
