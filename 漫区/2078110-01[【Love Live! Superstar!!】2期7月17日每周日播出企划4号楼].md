@@ -13752,3 +13752,69 @@ ED换发型
 
 別把，可可父母双全，姐姐还宠。咋复刻恋回那种屑父和nt剧情啊
 
+
+
+*****
+
+####  ViyViy  
+##### 1184#       发表于 2022-7-24 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779666&amp;ptid=2078110" target="_blank">离心 发表于 2022-7-24 19:02</a>
+
+別把，可可父母双全，姐姐还宠。咋复刻恋回那种屑父和nt剧情啊</blockquote>
+误会误会，我说的是那糟糕的逻辑，不是全套复刻人物关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1185#       发表于 2022-7-24 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779657&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-24 19:01</a>
+不过作为敌团（？）只记得香音不记得liella也算是看穿本质了吗……</blockquote>
+确实。
+
+大概的花田也想弄什么既是伙伴也是对手，但是团体内不能搞小队伍干脆就加敌团，反正都是不露血条还能帮大人物处理声优过剩没地方安排的问题。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 1186#       发表于 2022-7-24 19:04
+
+ED CW歌可以，总算有新曲风了
+
+*****
+
+####  寒风夜  
+##### 1187#       发表于 2022-7-24 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我去
+
+*****
+
+####  cybernetics31  
+##### 1188#       发表于 2022-7-24 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 1189#       发表于 2022-7-24 19:09
+
+还行嘛这集，观感比上一集好，新人描写还挺好的。我还是坚持等这季完结再综合评议
+
+*****
+
+####  Uгd  
+##### 1190#       发表于 2022-7-24 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">前两天我看了。
+
+第二季我看的不敢动不敢动。一不敢评论，二不敢多看，三不敢细想。
+
+TMD，星团第二季怎么就变成了这个样子.JPG
+
+把第一季的感动还给我。
+
