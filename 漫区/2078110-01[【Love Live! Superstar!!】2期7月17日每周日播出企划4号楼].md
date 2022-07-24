@@ -13465,3 +13465,119 @@ LL本届冠军出场？终于到了solo偶像也能参加LL的时代了吗
 与其说是土妹子多大魅力，不如说为什么她们这么执着要加人（好像恋说了这个事，等熟肉出了再看）不过素材重 ...</blockquote>
 红毛不对着偶像发癫时真正常...
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1166#       发表于 2022-7-24 18:42
+
+第一季前三集好评是吧，那我们第二季致敬一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1167#       发表于 2022-7-24 18:43
+
+建议结丘整个学园偶像同好会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  寒风夜  
+##### 1168#       发表于 2022-7-24 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还是这加人逆天啊
+
+*****
+
+####  仟音一心  
+##### 1169#       发表于 2022-7-24 18:44
+
+谜之少女：结那
+
+<img src="https://img.saraba1st.com/forum/202207/24/184411de2y8y61monynth2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4D88DBF9-85A6-47E6-A21B-82AA9CC0A446.jpeg</strong> (234.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/184411hzcwd7p48wgepp8q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B510B641-96D3-4BB4-B0F0-21194D82C8EC.jpeg</strong> (169.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/184411ks10mzz0hmavn8m8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0BF7F4CE-1C08-48ED-873A-C8F013D3FF13.jpeg</strong> (207.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/184412znlqwp2mohnnh6n6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>362F8D86-C1C4-4B42-BF47-3D52E18DF2A1.jpeg</strong> (337.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:44 上传
+
+*****
+
+####  ViyViy  
+##### 1170#       发表于 2022-7-24 18:46
+
+这个solo应该是去年亚军吧？看对香音这么“执着”，估计是在想为什么自己亚军却没被snp“印象深刻”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iuhehc  
+##### 1171#       发表于 2022-7-24 18:46
+
+ed图 堇可丽饼复仇了XD
+
+<img src="https://img.saraba1st.com/forum/202207/24/184706m6lq79jz377r9tqf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1014.JPG</strong> (514.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-24 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/184707teze2xupeosa7xyy.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1013.JPG</strong> (797.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-24 18:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 1172#       发表于 2022-7-24 18:46
+
+这位的话我可以<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1173#       发表于 2022-7-24 18:49
+
+可惜的是星二目前的歌没有特别戳我的。ed可爱但不耐听，等第三集的大太阳了
+
