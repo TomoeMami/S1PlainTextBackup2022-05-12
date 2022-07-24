@@ -752,3 +752,32 @@ http://translate.ltaaa.cn/mobile/article/20185</blockquote>
 
 techinsights是顶尖的反向厂，和很多公司有合作
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 77#       发表于 2022-7-24 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56764721&amp;ptid=2082775" target="_blank">不思者嗷呜 发表于 2022-7-23 17:45</a>
+啥时候能军用 多久能民用</blockquote>
+军用要个屁的14nm，140nm都不一定有
+
+*****
+
+####  深渊魔王  
+##### 78#       发表于 2022-7-24 09:28
+
+<blockquote>OldGlory 发表于 2022-7-23 20:58
+14都才刚出货就来个7，感觉过于丁真</blockquote>
+好像14和7用到的硬件是一样的
+
+*****
+
+####  keithmoon  
+##### 79#       发表于 2022-7-24 09:30
+
+<blockquote>犭央犭茶湖水牛 发表于 2022-7-24 09:25
+军用要个屁的14nm，140nm都不一定有</blockquote>
+数字电路不至于，模拟电路140纳米倒是随便整
+
