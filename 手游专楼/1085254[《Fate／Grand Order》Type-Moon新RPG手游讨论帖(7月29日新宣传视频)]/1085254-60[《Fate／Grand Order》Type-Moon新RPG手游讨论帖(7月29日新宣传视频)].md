@@ -7114,3 +7114,28 @@ TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockqu
 
 syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明明需求量也挺大的，可能是觉得画一堆胚胎太精神污染了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 89144#       发表于 2022-7-24 20:09
+
+街机加诺亚尼莫船长了
+
+屏幕截图 2022-07-24 200759.png
+(180.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-24 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/200918ttn2y2f42ffjwjeh.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89145#       发表于 2022-7-24 20:09
+
+街机实装诺亚尼莫，司马街机
+
