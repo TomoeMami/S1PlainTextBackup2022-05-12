@@ -586,3 +586,17 @@ Steam确实被干掉了啊，Error Code 104
 不开加速器大概率弹个118出来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实严谨点都不能说大概率， 直连没弹出118一共就两三次
 
+
+
+*****
+
+####  abeabe  
+##### 64#       发表于 2022-7-24 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56768520&amp;ptid=2082732" target="_blank">你谁 发表于 2022-7-23 22:13</a>
+
+巧了 我也去了三个地方 武汉 恩施 还有我老家 都没有连上  大概是我运气差吧
+
+—— 来自 Xiaomi M ...</blockquote>
+人和人的悲欢是不能相通的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
