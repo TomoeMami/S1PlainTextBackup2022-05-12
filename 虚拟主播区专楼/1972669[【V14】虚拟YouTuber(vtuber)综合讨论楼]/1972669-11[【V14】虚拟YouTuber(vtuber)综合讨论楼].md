@@ -14401,3 +14401,18 @@ LACK.jpg
 
 至少比没画上去的强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16347#       发表于 2022-7-24 12:50
+
+ 本帖最后由 fastary 于 2022-7-24 12:54 编辑 
+
+听完了magni的后半，感觉rp和声线确实值得高评价（讨厌蘑菇这点个人加分），ppt制作也很用心，除此之外就没什么亮点……不过初配信一般都这样
+
+axel日语好像挺好的，立绘还算顺眼怎么机体动起来看不出来眼睛在看哪啊，嘴和身体也多动症<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+四个人首播都结束了，最高还是regis的9w订阅，感觉杏星en反攻虹en的大计是没法完成了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（除非先发新衣服整个容
+
