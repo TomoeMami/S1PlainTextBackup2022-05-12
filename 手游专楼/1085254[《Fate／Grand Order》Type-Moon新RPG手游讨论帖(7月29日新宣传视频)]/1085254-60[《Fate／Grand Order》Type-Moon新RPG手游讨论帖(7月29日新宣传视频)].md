@@ -7249,3 +7249,12 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 兽和冠位都是俩游戏分啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 89153#       发表于 2022-7-24 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
