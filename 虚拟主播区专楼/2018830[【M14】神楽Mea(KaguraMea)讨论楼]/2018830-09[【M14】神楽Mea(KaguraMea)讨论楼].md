@@ -1205,3 +1205,16 @@ emmmmmmmmmmmmmmmmmm
 
 听说有些新鲜事，有啥repo吗
 
+
+
+*****
+
+####  ashero  
+##### 12143#       发表于 2022-7-24 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56772524&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-7-24 08:35</a>
+听说有些新鲜事，有啥repo吗</blockquote>
+和海苔男出去在有单间的地方吃饭 海苔男上厕所的时候模仿跌丝袜大声到海苔男在厕所都听得到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
