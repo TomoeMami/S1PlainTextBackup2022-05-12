@@ -15074,3 +15074,52 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 我觉得像你说的先把几个新人都先招进来可能剧本安排上更合理一点，也就没必要安排第二集这样的剧情了
 
+
+
+*****
+
+####  plazum  
+##### 1301#       发表于 2022-7-25 00:30
+
+ 本帖最后由 plazum 于 2022-7-25 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56785886&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-25 00:07</a>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">可否细说
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有说合理的有说不合理的，这是第一个见到说有深度的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你不觉得，到底是应该降低训练强度和目标以吸引新生，还是应该坚持夺冠目标但是要冒着招不到新人的风险，真的是一个很值得思考的问题吗
+
+*****
+
+####  qratosone  
+##### 1302#       发表于 2022-7-25 00:32
+
+ 本帖最后由 qratosone 于 2022-7-25 00:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786121&amp;ptid=2078110" target="_blank">glennq 发表于 2022-7-25 00:29</a>
+
+小千那句话确实也能算是一个补丁，可能花田的原意是这样的吧，但按正常逻辑来说，新人一加入就跟二年级一 ...</blockquote>
+实际上这个问题也确实是星特有的，前两代不会出现这种老人实力与新人差距过大的情况。接下来看有没有阶段Live——如果按照“有阶段Live”的标准评价的话，那这两集花田做得不错，因为有阶段Live就必须安排一个一个加人。而如果没有的话，那就纯属花田自己人菜瘾大瞎搞了
+
+*****
+
+####  iuhehc  
+##### 1303#       发表于 2022-7-25 00:35
+
+ 本帖最后由 iuhehc 于 2022-7-25 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786066&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-25 00:24</a>
+
+有深度就是指那种“大智若愚”的感觉吗
+
+你们觉得我剧情硬伤多，到处都是逻辑问题，但其实都是伏笔[f ...</blockquote>
+原来还能这样看 先悟为敬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 1304#       发表于 2022-7-25 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786129&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-25 00:30</a>
+你不觉得，到底是应该降低训练强度和目标以吸引新生，还是应该坚持夺冠目标但是要冒着招不到新人的 ...</blockquote>
+完了，触及四轱辘爱抖露和拉拉大赛的底层矛盾了
+到底是享受同好享受舞台享受青春呢，还是夺冠享受荣誉呢
+当然理想状态是用夺冠的荣誉装饰青春
+但是现在就是找不到这个理想动机啊戏里戏外都找不到啊，所以大家才会绕着大赛兜过来兜过去，前后矛盾不知所云的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
