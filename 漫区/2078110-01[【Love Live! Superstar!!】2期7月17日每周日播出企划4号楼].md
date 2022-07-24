@@ -14559,3 +14559,26 @@ OP主題歌衣装を着用した9人が描かれています🎤
 お疲れ様でした。
 <img src="https://p.sda1.dev/6/1e243f021403cd7b1be09ff8858361b7/20220724_211555.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 1252#       发表于 2022-7-24 21:20
+
+土妹子这声音真有点不行，修了音感觉也跟一期有差距。
+
+*****
+
+####  稀勢のささ  
+##### 1253#       发表于 2022-7-24 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 OP之前恋连一句台词都没有
+
+*****
+
+####  老1.5  
+##### 1254#       发表于 2022-7-24 21:29
+
+鲤鱼配音没啥说的，日本宅也承认配的好的程度。第二季进步也很明显（菜宝的指导很棒哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
