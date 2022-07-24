@@ -1185,3 +1185,23 @@ emmmmmmmmmmmmmmmmmm
 
 感觉只是普通的狗蛋联动多加了一个会限要求而已（
 
+
+
+*****
+
+####  ashero  
+##### 12141#       发表于 2022-7-24 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56770054&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-7-23 23:45</a>
+感觉只是普通的狗蛋联动多加了一个会限要求而已（</blockquote>
+聊得够久 棉花糖质量可以 提了些平时不会提的 观感不错的 水果铺含量极高
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 12142#       发表于 2022-7-24 08:35
+
+听说有些新鲜事，有啥repo吗
+
