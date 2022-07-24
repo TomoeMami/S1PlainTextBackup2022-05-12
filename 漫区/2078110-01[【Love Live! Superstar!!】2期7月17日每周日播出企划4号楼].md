@@ -14894,3 +14894,58 @@ OP主題歌衣装を着用した9人が描かれています🎤
 其实我觉得这两集剧本上最大的逻辑问题在于，对于“学园偶像是社团活动”这个设定，只有有利用价值的时候拿 ...</blockquote>
 感觉有道理，Liella!时而是一个社团，时而是一个传统的偶像团，其意义也是灵活自由的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 1285#       发表于 2022-7-24 23:22
+
+ 本帖最后由 qratosone 于 2022-7-24 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56784714&amp;ptid=2078110" target="_blank">glennq 发表于 2022-7-24 22:58</a>
+
+其实我觉得这两集剧本上最大的逻辑问题在于，对于“学园偶像是社团活动”这个设定，只有有利用价值的时候拿 ...</blockquote>
+实际上初代剧场版最后是表现过社团的性质的——接手学园偶像部的妹妹们在给新生开宣讲会。而放在星团这边，整个社团一共就一期生五个人，一方面分不出人力单独照顾新生，另一方面也不能把新生扔在一边不管，自然只能先拉进来一起练了。
+
+*****
+
+####  靡宜  
+##### 1286#       发表于 2022-7-24 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783523&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 21:55</a>
+
+现在对于香音来说，夺冠才是自我实现的一部分。可可这种当上偶像脱离机械式的学习状态 再给大家传递美好 ...</blockquote>
+感觉与你无瓜主要还是想装出自己不在意，让民警也不要用在意也不会去跟其他人说。不过可能确实写的不太好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 1287#       发表于 2022-7-24 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56783942&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-7-24 22:16</a>
+
+就不能往可可也担心到时候可能要走所以不敢和大家特别是堇搞得太亲密那方面想？
+
+就非要竖个靶子往那输出才 ...</blockquote>
+正确的，可能会是那种老套路，甩脸强行不亲近<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 1288#       发表于 2022-7-24 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56785243&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-7-24 23:25</a>
+
+感觉与你无瓜主要还是想装出自己不在意，让民警也不要用在意也不会去跟其他人说。不过可能确实写的不太好 ...</blockquote>
+不光是“与你无关”而是“与任何人都无关”，可可S1E10已经表现过不希望队友迁就自己，现在只是这个态度的重新强调罢了。
+
+*****
+
+####  靡宜  
+##### 1289#       发表于 2022-7-24 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56785312&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-24 23:27</a>
+
+不光是“与你无关”而是“与任何人都无关”，可可S1E10已经表现过不希望队友迁就自己，现在只是这个态度 ...</blockquote>
+是的
+
