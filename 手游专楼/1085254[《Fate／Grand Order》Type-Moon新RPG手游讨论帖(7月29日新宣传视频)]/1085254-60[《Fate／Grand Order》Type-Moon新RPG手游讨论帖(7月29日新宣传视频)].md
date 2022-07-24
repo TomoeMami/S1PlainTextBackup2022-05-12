@@ -7100,3 +7100,17 @@ TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockqu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你们难道没发现这次狩猎本给的素材，都是已经给了你素材礼装的那些？
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89143#       发表于 2022-7-24 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56778758&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-24 17:46</a>
+
+你们难道没发现这次狩猎本给的素材，都是已经给了你素材礼装的那些？ ...</blockquote>
+那就是说后面会有结晶和盘子了，好哎<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明明需求量也挺大的，可能是觉得画一堆胚胎太精神污染了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
