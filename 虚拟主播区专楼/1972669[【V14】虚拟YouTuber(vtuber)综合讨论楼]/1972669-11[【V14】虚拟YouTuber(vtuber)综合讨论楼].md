@@ -14707,3 +14707,12 @@ ema新衣，エロ（
 
 豆猫操作不算差的，我还是觉得最菜的话皇女牛姨挑一个，但没办法别人运气好
 
+
+
+*****
+
+####  Ketestrait  
+##### 16372#       发表于 2022-7-25 05:28
+
+牛姨2020的时候第一次玩荣冠就三年夏甲夺冠，也是有强运属性的人，不能比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

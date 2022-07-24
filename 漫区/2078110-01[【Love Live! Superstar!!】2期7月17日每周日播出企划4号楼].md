@@ -15281,3 +15281,41 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 话说拉拉是不是没有真正的那种冰山臭脸属性的角色啊，就就像隔壁円香那种类型...的
 
+
+
+*****
+
+####  yicihanshu  
+##### 1316#       发表于 2022-7-25 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786345&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-25 00:53</a>
+所以底层矛盾就是把“学员偶像部”和“liella”概念做了统一，而且没解释为什么要统一，所以才有了这个矛盾 ...</blockquote>
+就建议机械降神解决这个问题
+直接抽卡得出结论，就得是9个人多一个少一个都不行。
+哦，后面还说不定第三年加人是吧，那等死吧
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  靡宜  
+##### 1317#       发表于 2022-7-25 02:04
+
+<blockquote>yicihanshu 发表于 2022-7-25 01:53
+就建议机械降神解决这个问题
+
+直接抽卡得出结论，就得是9个人多一个少一个都不行。
+
+哦，后面还说不定第三 ...</blockquote>
+反正都加了，从另一个层面来讲，第三季再加三个续一下命也能接受，倒不如说，请务必加😄
+
+*****
+
+####  JustW_3  
+##### 1318#       发表于 2022-7-25 05:49
+
+ 本帖最后由 JustW_3 于 2022-7-25 05:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786283&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-25 00:44</a>
+不，我认为不只是love live，也不只是动画，我觉得对于任何一个社团，乃至任何一个兴趣爱好组织，在招收 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田自己写的京吹系列剧本都把这件事揉开掰碎说烂了，可以说是全系列一直在重点讨论的问题之一，这一集也是过去经验的迁移或者是路径依赖罢了，但真要在lovelive里深入探讨这些东西还是不可能，除非真是写情书
+
