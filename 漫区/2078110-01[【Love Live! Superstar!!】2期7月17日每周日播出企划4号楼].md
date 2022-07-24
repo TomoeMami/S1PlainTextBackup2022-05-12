@@ -12837,3 +12837,19 @@ FYWxdGdaQAE3z4G.jpg
 
 能跟师傅合照一张嘛
 
+
+
+*****
+
+####  寒风夜  
+##### 1092#       发表于 2022-7-24 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今天又有什么血压操作呢...看2话预告，红毛那动作好像拎着什么东西....
+
+*****
+
+####  aoaoaodedede  
+##### 1093#       发表于 2022-7-24 11:09
+
+现在是有点怕二期动画更新了，实在是期待不起来
+
