@@ -14448,3 +14448,14 @@ axel日语好像挺好的，立绘还算顺眼怎么机体动起来看不出来�
 
 速报：牛姨9回下半连追4分，延长再见本垒打，第二年夏无魔物挺进甲子园<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16351#       发表于 2022-7-24 17:47
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h4i5tlz8d9j20xu0j3aen.jpg" referrerpolicy="no-referrer">
+
+与此同时熊猫人（ry
+

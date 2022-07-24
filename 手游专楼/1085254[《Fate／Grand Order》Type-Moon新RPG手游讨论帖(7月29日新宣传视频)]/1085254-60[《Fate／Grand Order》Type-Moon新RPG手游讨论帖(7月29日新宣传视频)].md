@@ -7091,3 +7091,12 @@ TMD 周年什么时候开始啊 看着骑呆没石头抽我好痛苦啊</blockqu
 
 怎么是羽毛啊，这个月送的素材也有羽毛，重复了啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89142#       发表于 2022-7-24 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你们难道没发现这次狩猎本给的素材，都是已经给了你素材礼装的那些？
+
