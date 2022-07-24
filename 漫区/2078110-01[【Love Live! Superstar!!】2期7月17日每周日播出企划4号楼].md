@@ -13581,3 +13581,174 @@ ed图 堇可丽饼复仇了XD
 
 可惜的是星二目前的歌没有特别戳我的。ed可爱但不耐听，等第三集的大太阳了
 
+
+
+*****
+
+####  lj205  
+##### 1174#       发表于 2022-7-24 18:53
+
+真就复刻个没完，一点创意都没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1175#       发表于 2022-7-24 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，再怎么复刻总不可能把s1的恋剧情也复刻吧
+
+*****
+
+####  寒风夜  
+##### 1176#       发表于 2022-7-24 18:55
+
+吃回来了是吧
+
+*****
+
+####  仟音一心  
+##### 1177#       发表于 2022-7-24 18:56
+
+EDcard
+
+<img src="https://img.saraba1st.com/forum/202207/24/185623ne22fnjfefwvx2jh.png" referrerpolicy="no-referrer">
+
+<strong>FDEC43B6-C6F7-4E4C-89C5-5F5977BBB5D0.png</strong> (243.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:56 上传
+
+*****
+
+####  ads147147  
+##### 1178#       发表于 2022-7-24 18:56
+
+<img src="https://p.sda1.dev/6/bf00a6896d40c0461b13c3dc9dda066e/CMP_20220724185538557.jpg" referrerpolicy="no-referrer">
+
+虽然sunnypa没加人，但是有新敌团也不错，又来一个不亮血条的boss不也挺好。戳到我xp点了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 1179#       发表于 2022-7-24 18:57
+
+ED换发型
+
+<img src="https://img.saraba1st.com/forum/202207/24/185654abkkz0wkhff0hkuh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D49CCEF9-00FC-40C0-9E69-EC62BB560F15.jpeg</strong> (222.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185709svso0yoondoovwyz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C0C7610C-44DC-481A-9AC3-53CE9AD936FF.jpeg</strong> (190.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185709owzwbq6zadql4ogq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3180F449-EE05-4BEB-A913-3D977BC2B5E0.jpeg</strong> (228.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185726t1sarcibs77iq67j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>05D028A2-CABA-4BDA-AD54-1E0C42CA29C3.jpeg</strong> (212.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185726bvzc7vasrc3lusgk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>840CF6A0-7ACC-4F8A-8687-CE516B11C918.jpeg</strong> (229.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185726v6h4w4n22w4nv10h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8D2C9A62-01E1-4339-BCAC-C12241407BDB.jpeg</strong> (229.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185748o7f7njggnn4czry7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8E5830EA-79CC-4E86-8A43-53F8E76D176C.jpeg</strong> (228.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185748m1mi0yz23in0yvv0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>38F7AF58-6579-473E-8170-ED2A97D8296B.jpeg</strong> (220.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202207/24/185748zy4jfyif9fgqfi8n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F61C3D5A-B797-4D75-9E9B-248BE5565A17.jpeg</strong> (228.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-24 18:57 上传
+
+*****
+
+####  ViyViy  
+##### 1180#       发表于 2022-7-24 19:00
+
+可香对应土妹子，香千回对应红蓝，堇回对应带主播，它这要还觉得恋回没问题那是真的逆天
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD，你不会把恋回给可可再玩一次吧，这下可恋了（草）
+
+*****
+
+####  JustW_3  
+##### 1181#       发表于 2022-7-24 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56779598&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-24 18:56</a>
+虽然sunnypa没加人，但是有新敌团也不错，又来一个不亮血条的boss不也挺好。戳到我xp点了。
+
+—— 来自 X ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过作为敌团（？）只记得香音不记得liella也算是看穿本质了吗……
+
+*****
+
+####  ces轴承仨  
+##### 1182#       发表于 2022-7-24 19:02
+
+别。你这一说万一恋回真给可可。。。。那太可怕了
+
+*****
+
+####  离心  
+##### 1183#       发表于 2022-7-24 19:02
+
+別把，可可父母双全，姐姐还宠。咋复刻恋回那种屑父和nt剧情啊
+
