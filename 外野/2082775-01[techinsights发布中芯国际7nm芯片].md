@@ -805,3 +805,14 @@ n+1和n+2早就有了，在业内也算常识了吧。
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 82#       发表于 2022-7-24 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56772913&amp;ptid=2082775" target="_blank">keithmoon 发表于 2022-7-24 09:30</a>
+数字电路不至于，模拟电路140纳米倒是随便整</blockquote>
+反正asic堆呗。真要快加法器乘法器开始就优化<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
