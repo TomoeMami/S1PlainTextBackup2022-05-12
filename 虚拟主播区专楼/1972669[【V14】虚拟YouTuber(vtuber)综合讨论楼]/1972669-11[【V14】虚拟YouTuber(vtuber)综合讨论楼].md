@@ -14788,3 +14788,13 @@ lz那只能说运气爆炸好了，这青特运已经无敌了
 
 出道曲标配也就罢了，这种首播之后基本就可以宣告扫进垃圾桶的背景设定pv除了开头炫一下到底有什么标配的必要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 16379#       发表于 2022-7-25 09:20
+
+点进粉毛的看了眼……
+你是en没错吧，怎么我点进去不是日语歌就是日语子我就介绍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
