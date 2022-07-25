@@ -15753,3 +15753,21 @@ YJ定位青年杂志
 
 鲤鱼特技是日本语，难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1358#       发表于 2022-7-25 16:23
+
+也不意外，毕竟中国人，总不能写特技是中文吧
+
+*****
+
+####  奥柏伦亲王  
+##### 1359#       发表于 2022-7-25 16:23
+
+第二集观感比第一集好（个人感受），不过这要建立在彻底开摆的前提下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么逻辑合理性戏份分配不知道的，抠糖就完事了
+
+当然我也对non和土妹子不满意，碍眼
+
