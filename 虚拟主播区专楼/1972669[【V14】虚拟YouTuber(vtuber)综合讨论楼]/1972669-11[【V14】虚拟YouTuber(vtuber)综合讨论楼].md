@@ -15458,3 +15458,14 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16440#       发表于 2022-7-25 22:44
+
+说到有想法花心思，黛灰最后这个月企划连发很有诚意了吧，个人是觉得都很值得一看的，时间也不长，推荐楼友补补捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+说来频道不注销的好处就是订阅不会清空，要是能像语部那样不更新也会涨订阅，最终达成金盾那一天就好了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
