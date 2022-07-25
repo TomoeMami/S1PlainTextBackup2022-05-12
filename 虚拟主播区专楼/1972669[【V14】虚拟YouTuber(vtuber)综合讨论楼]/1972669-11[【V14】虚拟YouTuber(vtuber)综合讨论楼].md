@@ -15484,3 +15484,33 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 社长：長嶋さん？わたくしも引こう<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16442#       发表于 2022-7-25 23:21
+
+莎小姐在节奏天国里打棒球都还隔空喊话豆猫：監督見てますか～<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16443#       发表于 2022-7-25 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56800478&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-7-25 23:16</a>
+
+上振れ連発、Konami this is for you！
+
+社长：長嶋さん？わたくしも引こう ...</blockquote>
+一路喜讯，就看春甲能不能捧土了
+
+不知道社长和牛家王霸山哪校能率先拿到金特
+
+*****
+
+####  purdre  
+##### 16444#       发表于 2022-7-25 23:28
+
+这棒球和昨天的形成极大反差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
