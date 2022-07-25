@@ -15326,3 +15326,33 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 然后二轮对手rankB，看能不能突破二轮了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16427#       发表于 2022-7-25 21:09
+
+<img src="https://img.saraba1st.com/forum/202207/25/210904k6eaqs6iz9s5qss0.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園】#4　にじさんじ高校2022！！IKZ！！！【椎名唯華:にじさんじ】..png</strong> (172.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 21:09 上传
+
+まじか
+
+*****
+
+####  Ketestrait  
+##### 16428#       发表于 2022-7-25 21:09
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h4jha39v5tj20x60iptdz.jpg" referrerpolicy="no-referrer">
+
+甲子園の母　×
+
+甲子園の神　〇
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
