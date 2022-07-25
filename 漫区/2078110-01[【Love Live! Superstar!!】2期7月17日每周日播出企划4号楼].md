@@ -15857,3 +15857,34 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 嗯…不能否认这种可能性
 
+
+
+*****
+
+####  ads147147  
+##### 1368#       发表于 2022-7-25 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56796993&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-7-25 18:09</a>
+拉板讨论到可可回发展认为可能会有什么可可回不了国都是堇的错之类的台词
+
+或者堇说「像平常一样说是我的错 ...</blockquote>
+看起来很土，但是意外的算是好活？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 1369#       发表于 2022-7-25 18:17
+
+预告的那张
+
+20220725181532.jpg
+(306.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 18:16 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/181646o9lzfxf99c1ub1z5.jpg" referrerpolicy="no-referrer">
+
