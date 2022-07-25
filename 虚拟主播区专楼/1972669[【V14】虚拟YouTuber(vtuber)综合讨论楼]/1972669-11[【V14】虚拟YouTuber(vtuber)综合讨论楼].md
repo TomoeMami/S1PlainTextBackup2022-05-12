@@ -14963,3 +14963,33 @@ vox堪称虹en里天时地利人和极致了，en男T0的皮+东亚爆款的磁�
 
 我第一次知道vox是无意中看到铁老鼠的访谈的一个切片，听他聊了几句就觉得这人有东西。这种第一印象还是很少见的。那时候是今年年初，应该还没到成为大爆款的时候
 
+
+
+*****
+
+####  fastary  
+##### 16397#       发表于 2022-7-25 11:58
+
+<blockquote>dclara1 发表于 2022-7-25 11:40
+站在男观众角度我觉得vox很独特的一点是真的想法很多，以至于很肯花心思琢磨把话说有趣。这点大部分人拍 ...</blockquote>
+这也算爱卖的一环吧，确实从说话内容和饭撒还有炒cp之类能看出来他在各方面都花了心思，主要是我自己都没有看多少这方面没法客观给出评价。不过说实话他努力把话说有趣是挺好，但本人水平或者说en天性收不住也很麻烦的，国内因为他暴言惹来一堆黑也不只一次了，昨天厕妹还因为一句“shatter like china”快进到虹因为乳了退出国内呢
+
+*****
+
+####  wuzhengkai  
+##### 16398#       发表于 2022-7-25 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56784497&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-24 22:48</a>
+
+说起来杏星en特出来了吗，看订阅那个很屌的油管主是不是猜错了</blockquote>
+就是professor lando啊
+
+*****
+
+####  winda  
+##### 16399#       发表于 2022-7-25 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56786626&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-25 01:35</a>
+豆猫操作不算差的，我还是觉得最菜的话皇女牛姨挑一个，但没办法别人运气好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫公式战前瞩目选手不选内气前辈保魔物技能的操作在虹甲一群魔物信徒中实属辣的特立独行了，就这荣冠水平还要给ssk当指示厨么，人设崩完了啊
+
