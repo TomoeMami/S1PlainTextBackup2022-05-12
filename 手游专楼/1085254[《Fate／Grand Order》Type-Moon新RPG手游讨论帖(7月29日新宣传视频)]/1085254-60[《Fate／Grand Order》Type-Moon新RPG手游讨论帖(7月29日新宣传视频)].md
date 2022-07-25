@@ -7335,3 +7335,46 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 体感平均每次能有一两个吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 89161#       发表于 2022-7-25 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789554&amp;ptid=1085254" target="_blank">areklose 发表于 2022-7-25 10:34</a>
+周年直播啥时候？是在这个星期日吧？虽然下个月才是周年</blockquote>
+其实周年一直是30号 只不过月球历过得实在太随心所欲每年都不在同一天而已<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89162#       发表于 2022-7-25 20:00
+
+ 本帖最后由 Jamaisvu 于 2022-7-25 20:10 编辑 
+
+井盖本前两面的海盗，道满貌似可以稳定即死。
+
+也就是今天的本可以是宝石翁道满+奥伯龙+光炮，一面道满宝具，二面道满三技能+奥宝一技能，三面道满一技能+奥宝三技能给打手+衣服加攻。
+
+我试了一下，助战找奥伯龙，我自己的二宝奥伯龙当打手，双重梦之终结（其实就是100红魔放+宝具翻倍）加持下，对面的水怪马就剩一万血左右，提前摸一下就行...
+
+...不过还是大英雄处理第三面最好用...
+
+<img src="https://img.saraba1st.com/forum/202207/25/200901d1hm2es1xj2g6lns.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220725_200832_com.excean.gspace.jpg</strong> (587.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 20:09 上传
+
+不用衣服技能，道满用一三技能，奥伯龙用全部技能，大英雄开个NP被动和三技能并升到70级，就能一炮清场了。
+
+*****
+
+####  khxooo  
+##### 89163#       发表于 2022-7-25 20:32
+
+如果没猜错，剩下的估计就是齿轮、八连、黑灰中选两个了。
+
