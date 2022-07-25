@@ -15812,3 +15812,14 @@ YJ定位青年杂志
 
 特技是日语因为鲤鱼是中国人，那么菜宝的特技到底是写中文还是日语？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 1364#       发表于 2022-7-25 17:34
+
+这是给声优自己写的吧，鱼这个一股简历写特长那栏的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

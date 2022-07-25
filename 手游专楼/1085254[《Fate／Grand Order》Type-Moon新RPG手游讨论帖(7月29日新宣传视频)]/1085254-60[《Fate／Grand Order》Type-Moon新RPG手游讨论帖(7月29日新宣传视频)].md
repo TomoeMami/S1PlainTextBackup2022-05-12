@@ -7300,3 +7300,15 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 明年可以改成2023再发一次</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用改了，明年大概已经完了
 
+
+
+*****
+
+####  exiaexa  
+##### 89158#       发表于 2022-7-25 17:36
+
+阿贞补宝成功，总算没有让我继续给周年垫刀
+
+顺便井盖加马角是什么魔鬼组合
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
