@@ -16019,3 +16019,19 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 我懂了，可可是小学男生吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 1380#       发表于 2022-7-25 20:21
+
+ 本帖最后由 黑雪姫 于 2022-7-25 20:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56798433&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-7-25 20:03</a>
+看下5厕，怎么黑可可的比天朝这边少多了
+
+看了这串
+
+第2話の時点で可可がすみれの名前を呼んだ回数ｗ ...</blockquote>
+因为可可是中国人(虽然是中日混血)所以会收受到国内更高的关注更严的要求，而对日本人看来估计就是每个系列都要有一个外国人血统的偶像而已。
+
