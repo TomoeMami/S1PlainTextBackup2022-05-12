@@ -15313,3 +15313,16 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 具体得看下个月谁走，绿色走的话凑不出三人组好像
 
+
+
+*****
+
+####  Ketestrait  
+##### 16426#       发表于 2022-7-25 20:15
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h4jfjlj6mvg20hu0a0x6v.gif" referrerpolicy="no-referrer">
+
+西西春甲初战告捷<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，
+
+然后二轮对手rankB，看能不能突破二轮了
+
