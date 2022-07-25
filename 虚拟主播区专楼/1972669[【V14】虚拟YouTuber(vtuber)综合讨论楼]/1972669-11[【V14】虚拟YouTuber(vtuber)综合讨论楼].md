@@ -15568,3 +15568,12 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 刚听见社长说明天有跟黛灰的联动<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16451#       发表于 2022-7-26 06:55
+
+日思夜想居然真给我盼到最后的kgmy联动了，我圆满了(升天)
+
