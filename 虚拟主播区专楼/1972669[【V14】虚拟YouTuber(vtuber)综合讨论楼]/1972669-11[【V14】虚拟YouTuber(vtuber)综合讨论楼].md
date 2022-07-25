@@ -14828,3 +14828,42 @@ dnd……不会打算跑团吧<img src="https://static.saraba1st.com/image/smile
 
 Nen的内战第一枪估计会在Maria和Rosemi之间产生吧
 
+
+
+*****
+
+####  poipanchao  
+##### 16383#       发表于 2022-7-25 10:01
+
+难道第一枪不是已经开了吗？
+楼友之前发的那些不仲都是假的吗
+
+*****
+
+####  alcoholic1000  
+##### 16384#       发表于 2022-7-25 10:03
+
+<img src="https://img.saraba1st.com/forum/202207/25/100223xppk4nj724kvj7ot.png" referrerpolicy="no-referrer">
+
+<strong>omg.png</strong> (80.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 10:02 上传
+
+我超，challenger
+
+*****
+
+####  Suny08  
+##### 16385#       发表于 2022-7-25 10:07
+
+这不标准pc 电竞男，这个lol王者不是韩服的含金量也就这样吧
+
+*****
+
+####  rzrbtk  
+##### 16386#       发表于 2022-7-25 10:09
+
+前辈认证撸友兼派友兼瓦友就是这位吧…？
+
