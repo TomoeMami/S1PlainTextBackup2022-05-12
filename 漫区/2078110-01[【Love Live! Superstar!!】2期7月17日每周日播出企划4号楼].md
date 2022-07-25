@@ -16035,3 +16035,41 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 第2話の時点で可可がすみれの名前を呼んだ回数ｗ ...</blockquote>
 因为可可是中国人(虽然是中日混血)所以会收受到国内更高的关注更严的要求，而对日本人看来估计就是每个系列都要有一个外国人血统的偶像而已。
 
+
+
+*****
+
+####  starring  
+##### 1381#       发表于 2022-7-25 21:31
+
+ 本帖最后由 starring 于 2022-7-25 21:37 编辑 
+
+pay这次的照片，有点幻视成阿兔嘭（有时像麻园有时像杏树，这次又像阿兔嘭，pay其实是百变怪吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+FYg6s83agAALDDR.jpg
+(761.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/213104pblryh32bhlry333.jpg" referrerpolicy="no-referrer">
+
+FYg6u5iagAAUJ3C.jpg
+(796.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/213111stcabnm9g9m9pbbw.jpg" referrerpolicy="no-referrer">
+
+FYhAAzqaIAAiPo8.jpg
+(389.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 21:37 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/213730ow106xmrr0fc1z5m.jpg" referrerpolicy="no-referrer">
+

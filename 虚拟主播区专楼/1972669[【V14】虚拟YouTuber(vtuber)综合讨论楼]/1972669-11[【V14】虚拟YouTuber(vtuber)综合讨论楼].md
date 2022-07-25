@@ -15356,3 +15356,31 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kreis  
+##### 16429#       发表于 2022-7-25 21:31
+
+涝的涝死，旱的旱死，彩虹社连大型团建都这么铁血
+
+*****
+
+####  lhawp  
+##### 16430#       发表于 2022-7-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56799170&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-7-25 21:09</a>
+
+まじか
+
+开香槟了</blockquote>
+太可怕了，一个人顶豆猫队6个
+
+*****
+
+####  Suny08  
+##### 16431#       发表于 2022-7-25 21:39
+
+说实话king还是有机会的，感觉每年西西都成大魔王了，这下子king又是主人公位了
+
