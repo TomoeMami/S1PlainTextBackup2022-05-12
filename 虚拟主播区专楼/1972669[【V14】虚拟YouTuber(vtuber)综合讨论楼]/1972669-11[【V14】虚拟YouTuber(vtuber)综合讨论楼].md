@@ -14743,3 +14743,16 @@ ema新衣，エロ（
 
 rosebuds也觉得是rosemi那一挂的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16376#       发表于 2022-7-25 08:32
+
+ 本帖最后由 格林卡罗尔 于 2022-7-25 08:35 编辑 
+
+声线稳定下来应该会和rosemi有所区别吧，而且rosemi的年下感不是那么容易学的，之后大概会变成一般萌声主的感觉
+
+草，时间表只标了JST是什么路数
+
