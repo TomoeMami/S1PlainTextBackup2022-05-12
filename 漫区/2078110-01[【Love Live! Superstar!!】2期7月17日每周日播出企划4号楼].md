@@ -15771,3 +15771,35 @@ YJ定位青年杂志
 
 当然我也对non和土妹子不满意，碍眼
 
+
+
+*****
+
+####  Erikas  
+##### 1360#       发表于 2022-7-25 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蓝毛整活不断还挺好玩的
+话说土妹的发型就不能想想办法吗，本来发色就不太好看了，还剪个蘑菇头一样的平刘海看着非常闷
+
+*****
+
+####  plazum  
+##### 1361#       发表于 2022-7-25 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56795185&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-7-25 16:19</a>
+
+鲤鱼特技是日本语，难蚌</blockquote>
+樱花妹：果然是外来的和尚好念经啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1362#       发表于 2022-7-25 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56794710&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-7-25 15:50</a>
+
+你明显记错了，不光是爷和步女士，虹团初始成员一开始就都在，根本没有“入队”这回事，然后第四集开头爱 ...</blockquote>
+如果我没记错的话，雪菜摘牌之前的偶像部只有五个人吧
+
+而且我那里说的入队指的是入队（新成员）或者归队（原有成员）这个概念，而不是说剧情上和入队有什么关系
+
