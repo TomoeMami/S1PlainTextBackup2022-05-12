@@ -15393,3 +15393,19 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 主角位，当然是一年无转生的强豪社长啦
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16433#       发表于 2022-7-25 21:51
+
+别急，现在五里0-4，强豪之路坎坷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16434#       发表于 2022-7-25 21:57
+
+楼友刚说完一出满垒直追两分，好奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
