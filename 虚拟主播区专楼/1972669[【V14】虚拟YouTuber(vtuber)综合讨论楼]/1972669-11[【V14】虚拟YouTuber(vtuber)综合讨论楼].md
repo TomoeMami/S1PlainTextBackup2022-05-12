@@ -15134,3 +15134,22 @@ Ren，金盾转生，原创曲开场，质量很高，高评价，但后面讲�
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16411#       发表于 2022-7-25 12:39
+
+shu最开始也投了虹本社被地址卡档了，他看管资历不短估计两边都有投，搞不好是真正招收多性别之前就申请了holoEN赤虎一直有说法是在nijiEN当stf，介于Noor也在stf班组我觉得可能性不是完全没有......
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202207/25/123749rfzn5cm2vkffg8t0.png" referrerpolicy="no-referrer">
+
+<strong>rankings.png</strong> (475.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 12:37 上传
+
