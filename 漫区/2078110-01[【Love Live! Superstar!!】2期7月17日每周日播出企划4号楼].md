@@ -15417,3 +15417,12 @@ OP主題歌衣装を着用した9人が描かれています🎤
 不知道花田是不是准备把“都是堇的问题 ...</blockquote>
 确实，像可堇关系这个建立的整个路程，看过来就感觉有点割裂，时好时坏或者跳跃，难不成非得有人去做什么长篇大论来圆情节发展，或者是以一些看起来很复杂的角度去看待这种关系的发展，感情变化的变扭之处，才能让广大粉丝理解吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 1329#       发表于 2022-7-25 11:06
+
+你以为二季是9人，实际上还是5人，香，樱，可堇，千恋，红蓝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
