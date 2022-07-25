@@ -15279,3 +15279,17 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 不过即使这样虹蒽箱推力还是NB的，怕不是这两天就有人要过20w了
 
+
+
+*****
+
+####  D-JoeII  
+##### 16423#       发表于 2022-7-25 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789279&amp;ptid=1972669" target="_blank">撕叁 发表于 2022-7-25 10:14</a>
+
+这位还是vshojo的zen的前男友</blockquote>
+順着你的話去4chan看下還發現原來有人留了Zen本音的記錄草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+聽她講兩句都社恐成那樣怪不得要用機械語音代為發言
+
