@@ -15409,3 +15409,19 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 楼友刚说完一出满垒直追两分，好奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 16435#       发表于 2022-7-25 22:00
+
+所以gbr最后说的有想做的事还是当套皮主播是吧
+
+*****
+
+####  Ketestrait  
+##### 16436#       发表于 2022-7-25 22:08
+
+柴卡三振功亏一篑，社长可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
