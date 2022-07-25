@@ -15532,3 +15532,12 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 那还不是因为不够强，要是simple,Zywoo,Niko套皮不随便乱杀，主要fps坐牢观感太差了
 
+
+
+*****
+
+####  Ketestrait  
+##### 16447#       发表于 2022-7-26 00:38
+
+社长及时换人打断konami的诅咒，5:0完胜强豪校突破春甲第二轮<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
