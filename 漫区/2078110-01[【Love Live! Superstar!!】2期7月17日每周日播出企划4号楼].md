@@ -15974,3 +15974,33 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 预告的那张</blockquote>
 小百合这个笑容太灿烂了，简直都可以拿去拜年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 1377#       发表于 2022-7-25 19:51
+
+嘉宾给pay立了个FLAG，近期唱初音未来的消失。staff听到了吗，赶紧让孩子唱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/25/195141o536hzpxvkpglu36.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220725195114.png</strong> (102.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 19:51 上传
+
+*****
+
+####  愛さ実  
+##### 1378#       发表于 2022-7-25 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56798300&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-25 19:51</a>
+嘉宾给pay立了个FLAG，近期唱初音未来的消失。staff听到了吗，赶紧让孩子唱
+
+ ...</blockquote>
+毕竟是那个翻唱初音未来的消失的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
