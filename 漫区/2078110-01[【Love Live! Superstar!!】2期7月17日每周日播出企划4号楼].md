@@ -15346,3 +15346,61 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能绑定出场不错了 恋这集我就记得说了句啥正经的话就啥都没了
 
+
+
+*****
+
+####  寒风夜  
+##### 1322#       发表于 2022-7-25 10:23
+
+5人时也没写出啥花来啊
+
+*****
+
+####  ViyViy  
+##### 1323#       发表于 2022-7-25 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就花田现在的笔力，角色言多必失，说几句正经话我觉得是赚了
+
+不知道花田是不是准备把“都是堇的问题”这个奇怪的无厘头贯彻到个人回搞触动点，还是那个问题，前面写得无理取闹和低观感到时候真有人买账吗，蓝鸟上都开始有点小风浪了喂
+
+*****
+
+####  名津流  
+##### 1324#       发表于 2022-7-25 10:26
+
+虽然看你们讨论说，如果真的开摆变成享受lovelive享受青春反倒是觉得这季动画能看了的
+
+但涉及竞或者含有比赛要素的作品，我印象里就没见过真的有作品里敢在提到了有“努力争冠”和“养生休闲”两种对立选项时，最后一致选择后者的吧？
+
+剧情套路都是从一开始的 消极态度/不利局面 渐渐变成“打麻将真TM开心啊”的真香展开
+
+*****
+
+####  寒风夜  
+##### 1325#       发表于 2022-7-25 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789435&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-25 10:26</a>
+
+就花田现在的笔力，角色言多必失，说几句正经话我觉得是赚了
+
+不知道花田是不是准备把“都是堇的问题 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定没喜欢这样的
+
+*****
+
+####  名津流  
+##### 1326#       发表于 2022-7-25 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789276&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-7-25 10:14</a>
+
+这两话基本上可可只要出场就和堇绑定，第二话甚至早上五点都是可堇一起，我觉得就是编剧没有精力或 ...</blockquote>
+早上五点这两冤家居然同时一起出现，不是应该很合适编成两人昨晚睡一起的假药吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  aoaoaodedede  
+##### 1327#       发表于 2022-7-25 10:29
+
+所以我听说要加人之后就预感这二期动画剧情不怎么样了，一期动画的烂摊子再加上4个新角色再加上香音传，这剧情就不可能好看
+
