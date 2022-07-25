@@ -15219,3 +15219,14 @@ Syl，
 
 比起一年跑路，我真的很担心fulgur和kyo中途噶掉，我还挺喜欢他俩的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  撕叁  
+##### 16418#       发表于 2022-7-25 13:29
+
+那正义支持wolfychu去杏en
+
+不知道为啥kyo很戳我笑点，不管是声带发育过度型正太还是脑残（物理）
+
