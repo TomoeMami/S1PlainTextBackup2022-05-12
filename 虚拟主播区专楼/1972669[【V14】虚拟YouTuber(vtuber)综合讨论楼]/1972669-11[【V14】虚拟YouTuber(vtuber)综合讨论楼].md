@@ -15469,3 +15469,18 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 说来频道不注销的好处就是订阅不会清空，要是能像语部那样不更新也会涨订阅，最终达成金盾那一天就好了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16441#       发表于 2022-7-25 23:16
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h4jkvy6de5j20sd0f1adq.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h4jkw33jpij20lw0catat.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h4jkw7zf20j20qt0g2wir.jpg" referrerpolicy="no-referrer">
+
+上振れ連発、Konami this is for you！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+社长：長嶋さん？わたくしも引こう<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
