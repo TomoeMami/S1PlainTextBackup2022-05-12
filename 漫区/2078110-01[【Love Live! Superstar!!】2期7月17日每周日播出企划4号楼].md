@@ -16004,3 +16004,18 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cxj649  
+##### 1379#       发表于 2022-7-25 20:03
+
+看下5厕，怎么黑可可的比天朝这边少多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了这串
+
+第2話の時点で可可がすみれの名前を呼んだ回数ｗｗｗｗｗｗｗｗ
+
+我懂了，可可是小学男生吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
