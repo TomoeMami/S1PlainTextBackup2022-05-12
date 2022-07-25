@@ -14716,3 +14716,14 @@ ema新衣，エロ（
 
 牛姨2020的时候第一次玩荣冠就三年夏甲夺冠，也是有强运属性的人，不能比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16373#       发表于 2022-7-25 08:02
+
+虽然我早就接受昔驯染地滑了的事实，但是看到最后一个月各种只组过一次的组合都复活了还是会遗憾为什么PP组不能再复活一次呢……明明也是刚出道时还算重要的一场联动<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+3manlive的原因社长也没时间去他生前葬，明明前段时间还在直播提到是黑客推荐的游戏，关系没到避之不及的地步最后话都说不上一回<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
