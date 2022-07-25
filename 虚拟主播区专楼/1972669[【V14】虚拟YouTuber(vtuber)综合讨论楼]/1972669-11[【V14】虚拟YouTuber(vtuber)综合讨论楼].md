@@ -15514,3 +15514,12 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 这棒球和昨天的形成极大反差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天下雨  
+##### 16445#       发表于 2022-7-25 23:46
+
+这一年新人看下来，枪男在你虹真是最吃初始debuff
+
