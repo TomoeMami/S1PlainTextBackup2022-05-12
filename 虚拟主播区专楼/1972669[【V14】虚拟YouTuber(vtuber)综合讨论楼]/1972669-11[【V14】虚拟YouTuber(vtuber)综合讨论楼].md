@@ -14810,3 +14810,21 @@ lz那只能说运气爆炸好了，这青特运已经无敌了
 白毛是那个越南的啊
 dnd……不会打算跑团吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16381#       发表于 2022-7-25 09:52
+
+听pv还以为是女的，普通说话倒是很正常的男声，这下舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我真看腻了这人均大家庭心理辅导的小动画了，什么时候快进到四分五裂啊<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 16382#       发表于 2022-7-25 09:57
+
+Nen的内战第一枪估计会在Maria和Rosemi之间产生吧
+
