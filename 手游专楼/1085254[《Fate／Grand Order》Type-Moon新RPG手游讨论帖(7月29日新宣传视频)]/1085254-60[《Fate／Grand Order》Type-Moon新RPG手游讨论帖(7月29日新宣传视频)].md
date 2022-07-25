@@ -7324,3 +7324,14 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 阿贞补宝成功，总算没有让我继续给周年垫刀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89160#       发表于 2022-7-25 18:30
+
+井盖掉落波动有点大啊，带三张概率礼装的情况下，有时候掉三四个，有时候一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+体感平均每次能有一两个吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

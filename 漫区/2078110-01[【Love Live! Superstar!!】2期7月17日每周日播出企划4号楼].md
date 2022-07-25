@@ -15888,3 +15888,14 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 <img src="https://img.saraba1st.com/forum/202207/25/181646o9lzfxf99c1ub1z5.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  氯化磷君  
+##### 1370#       发表于 2022-7-25 18:30
+
+其实楼里争论的问题也是吹学常见议题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过花田要是照抄京吹那整个故事题材都变了，说到底大家是来看学园偶像快快乐乐跳舞的不是来看两拨人斗争的，这种吃力还不讨好的事情花田肯定不干。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
