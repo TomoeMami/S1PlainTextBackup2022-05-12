@@ -15962,3 +15962,15 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  plazum  
+##### 1376#       发表于 2022-7-25 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56797110&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-25 18:17</a>
+
+预告的那张</blockquote>
+小百合这个笑容太灿烂了，简直都可以拿去拜年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
