@@ -15498,3 +15498,16 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 1335#       发表于 2022-7-25 13:41
+
+红毛你的嘴巴可以再硬一点，我们不生气的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+恭喜唐女士卸任后勤部部长，这样您又可以回到第一季的只剩热情了
+可堇互动和ED都是灾难啊，谁说这集的亮点是这个的
+ED我得多听几个人唱才能搞清楚到底是歌不行还是人不行
+可香这集跌停了属于是
+
