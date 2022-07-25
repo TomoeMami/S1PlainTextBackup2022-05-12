@@ -15178,3 +15178,44 @@ Syl，
 
 1rosemi还是过了，小玫瑰是属于五音不全的，maria 人唱歌至少不会跑调，就是不知道什么时候能看到maria跳舞了，没有宅舞妹妹看我好急
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16415#       发表于 2022-7-25 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791793&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-25 12:42</a>
+
+跑去jordan频道听了下最近的翻唱，不带电音其实也不错，安心了。倒是金盾订阅播放量三个月没有10w，怪不得 ...</blockquote>
+他能金盾就是靠老婆 他老婆才是真大物 他算是附带的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 2|草那套皮从0开始是否也算一种有担当.|
+
+查看全部评分
+
+*****
+
+####  fastary  
+##### 16416#       发表于 2022-7-25 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56792001&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-7-25 12:54</a>
+
+听起来是会在出道一周年以前发件新衣服然后跑路的样子嘛</blockquote>
+看歌列表挺健全的(好多以女朋友为女主的小甜情歌)，有点萌萌……虹现在对歌势也挺优待的了，音乐梦满足之前数据不太差的话感觉不会跑<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16417#       发表于 2022-7-25 13:08
+
+比起一年跑路，我真的很担心fulgur和kyo中途噶掉，我还挺喜欢他俩的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
