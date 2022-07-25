@@ -15404,3 +15404,16 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 所以我听说要加人之后就预感这二期动画剧情不怎么样了，一期动画的烂摊子再加上4个新角色再加上香音传，这剧情就不可能好看
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1328#       发表于 2022-7-25 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789435&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-25 10:26</a>
+就花田现在的笔力，角色言多必失，说几句正经话我觉得是赚了
+
+不知道花田是不是准备把“都是堇的问题 ...</blockquote>
+确实，像可堇关系这个建立的整个路程，看过来就感觉有点割裂，时好时坏或者跳跃，难不成非得有人去做什么长篇大论来圆情节发展，或者是以一些看起来很复杂的角度去看待这种关系的发展，感情变化的变扭之处，才能让广大粉丝理解吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
