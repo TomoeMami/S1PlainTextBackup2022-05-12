@@ -15703,3 +15703,35 @@ YJ定位青年杂志
 
 整个虹团两季动画里，只有二期R3B是按照传统LL模式长线写入队的，然后号称yyds的田中仁，在整整六集动画的铺垫下，果不其然地把栞子入队回写成了纯白开水版的恋回复刻，连带着后来的岚珠回也显得莫名其妙。
 
+
+
+*****
+
+####  仟音一心  
+##### 1353#       发表于 2022-7-25 16:05
+
+官方身高
+
+9CF61DA9-DD15-4E30-A3C8-F41B904B1883.jpeg
+(83.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/160522zyeou8u1odhunyef.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1354#       发表于 2022-7-25 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">0.8没有了……特技是日语可以
+
+*****
+
+####  1096beam  
+##### 1355#       发表于 2022-7-25 16:09
+
+其实完全可以先上车再塑造角色，只有土妹子是真心想当偶像的，红为了追星蓝为了乐子黄为了钱，最后七八集的时候摆一个九人星型，观感不就一下子上去了
+
