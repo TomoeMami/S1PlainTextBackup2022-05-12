@@ -15823,3 +15823,17 @@ YJ定位青年杂志
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 1365#       发表于 2022-7-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56794151&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-25 15:18</a>
+
+等会，夏美呢
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
