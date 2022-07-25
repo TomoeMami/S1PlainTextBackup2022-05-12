@@ -7378,3 +7378,17 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 如果没猜错，剩下的估计就是齿轮、八连、黑灰中选两个了。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89164#       发表于 2022-7-25 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56798759&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-25 20:32</a>
+
+如果没猜错，剩下的估计就是齿轮、八连、黑灰中选两个了。</blockquote>
+还有书页吧，也是有掉落礼装的。
+
+目前还没有狂本和弓本的狩猎，估计是石头人掉八连、机器兵掉齿轮了。
+
