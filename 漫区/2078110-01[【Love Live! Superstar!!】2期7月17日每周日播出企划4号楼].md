@@ -15899,3 +15899,17 @@ CEO和money（忘了还有个夏美<img src="https://static.saraba1st.com/image/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  老1.5  
+##### 1371#       发表于 2022-7-25 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56796993&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-7-25 18:09</a>
+
+拉板讨论到可可回发展认为可能会有什么可可回不了国都是堇的错之类的台词
+
+或者堇说「像平常一样说是我的错 ...</blockquote>
+这还真有可能，蛮有感觉的还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
