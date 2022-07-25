@@ -15442,3 +15442,30 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 要强调九人是一个团结友爱的团，不能搞分年级训练和参赛成员选拔这些正常社团操作，但招新还是像社团一样随意
 
+
+
+*****
+
+####  仟音一心  
+##### 1331#       发表于 2022-7-25 12:23
+
+每周官漫
+
+7BE9AFB3-CC14-44BF-BE6A-2FADC636BDAF.jpeg
+(163.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202207/25/122314e22cbqqz72o2vuvx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 1332#       发表于 2022-7-25 12:24
+
+ 本帖最后由 黑雪姫 于 2022-7-25 12:29 编辑 
+
+可堇这个怕不是水一的菊南套路加强变种版。就是跨度太大不怕观众没等反转就跑光了吗？更何况上季第10话已经转来一次...<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

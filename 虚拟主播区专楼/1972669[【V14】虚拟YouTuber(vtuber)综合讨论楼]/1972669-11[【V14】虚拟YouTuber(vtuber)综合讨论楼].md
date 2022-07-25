@@ -15083,3 +15083,54 @@ Ren，金盾转生，原创曲开场，质量很高，高评价，但后面讲�
 结果两边都出完了还是没有 ...</blockquote>
 假的
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16407#       发表于 2022-7-25 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791320&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-7-25 12:11</a>
+
+虽然说30分钟debut看不出什么东西 但这期整体上还是令人失望的 可以说六个人加起来不如评论轨的Selen+Knox ...</blockquote>
+听完maria这cover看来不是紧张是唱歌真的就1 rosemi水平
+
+*****
+
+####  adamtheo  
+##### 16408#       发表于 2022-7-25 12:24
+
+杏星EN蓝毛特定之后发现推上发过是去年3月投的简历，那shu可能是真没选上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 2|bzml是？|
+
+查看全部评分
+
+*****
+
+####  fastary  
+##### 16409#       发表于 2022-7-25 12:25
+
+回头再听了一遍ren出道曲感觉有点不对，怎么单人和组合出道曲都这么大的电音，别是mfmf那种不拉电音修不好听的“歌势”吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+本来昨天听音源觉得不错，看到有人批各唱各的还电音拉满好像也有道理，只能等个人歌回开腔见真章了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两仪式29  
+##### 16410#       发表于 2022-7-25 12:25
+
+虹en现在箱感还是挺强的，估计箱推也算多吧，只要别暴雷，感觉这批新人吃个保底还是不难的。
+
+不像jp现在新人如果没有特别突出的特色，出道没几天就直接淹没在人群里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
