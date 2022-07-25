@@ -15559,3 +15559,12 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 社长这红特要消10多次才能消完吧，奖杯已经寄往西西家里了
 
+
+
+*****
+
+####  Ketestrait  
+##### 16450#       发表于 2022-7-26 02:09
+
+刚听见社长说明天有跟黛灰的联动<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
