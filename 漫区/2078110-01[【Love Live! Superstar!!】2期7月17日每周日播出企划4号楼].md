@@ -15735,3 +15735,21 @@ YJ定位青年杂志
 
 其实完全可以先上车再塑造角色，只有土妹子是真心想当偶像的，红为了追星蓝为了乐子黄为了钱，最后七八集的时候摆一个九人星型，观感不就一下子上去了
 
+
+
+*****
+
+####  长日留痕  
+##### 1356#       发表于 2022-7-25 16:12
+
+立德是根据身高来排的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  奥柏伦亲王  
+##### 1357#       发表于 2022-7-25 16:19
+
+鲤鱼特技是日本语，难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
