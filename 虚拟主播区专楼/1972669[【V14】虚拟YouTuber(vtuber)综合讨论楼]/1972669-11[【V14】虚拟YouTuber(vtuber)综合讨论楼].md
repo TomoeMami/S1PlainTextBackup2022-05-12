@@ -14993,3 +14993,22 @@ vox堪称虹en里天时地利人和极致了，en男T0的皮+东亚爆款的磁�
 豆猫操作不算差的，我还是觉得最菜的话皇女牛姨挑一个，但没办法别人运气好 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫公式战前瞩目选手不选内气前辈保魔物技能的操作在虹甲一群魔物信徒中实属辣的特立独行了，就这荣冠水平还要给ssk当指示厨么，人设崩完了啊
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16400#       发表于 2022-7-25 12:02
+
+想法很多指整天不是数字纪念asmr就是玩烂梗游戏吗 可能确实适合互联网烂梗人
+
+*****
+
+####  purdre  
+##### 16401#       发表于 2022-7-25 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791116&amp;ptid=1972669" target="_blank">winda 发表于 2022-7-25 11:59</a>
+
+豆猫公式战前瞩目选手不选内气前辈保魔物技能的操作在虹甲一群魔物信徒中实属辣的特立独行了，就 ...</blockquote>
+他的人设不就是没玩过游戏（荣冠）的云指示厨么，有什么崩的
+

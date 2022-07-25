@@ -15426,3 +15426,19 @@ OP主題歌衣装を着用した9人が描かれています🎤
 
 你以为二季是9人，实际上还是5人，香，樱，可堇，千恋，红蓝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 1330#       发表于 2022-7-25 12:05
+
+ 本帖最后由 JustW_3 于 2022-7-25 12:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56789441&amp;ptid=2078110" target="_blank">名津流 发表于 2022-7-25 10:26</a>
+虽然看你们讨论说，如果真的开摆变成享受lovelive享受青春反倒是觉得这季动画能看了的
+
+但涉及竞或者含有比 ...</blockquote>
+上一季结尾已经库亚西了，这季播前想必不少人做好了看竞技片的准备，招新、新人不适应和制订目标也是常规套路，可惜一方面表现得比起一般竞技片差口气，一方面偶像团体和社团的不兼容问题被放大了
+
+要强调九人是一个团结友爱的团，不能搞分年级训练和参赛成员选拔这些正常社团操作，但招新还是像社团一样随意
+
