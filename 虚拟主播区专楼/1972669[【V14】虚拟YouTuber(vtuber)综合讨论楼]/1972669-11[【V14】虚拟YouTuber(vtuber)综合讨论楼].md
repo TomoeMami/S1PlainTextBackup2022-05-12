@@ -15447,3 +15447,14 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 
 说实话这场赢了那就过分了，秋天地区赢了11月神宫大会，运气好能一把3,4个青特，打个一两把别人不用玩了
 
+
+
+*****
+
+####  Ketestrait  
+##### 16439#       发表于 2022-7-25 22:34
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h4jjq2rxfcj20ug0h3jx5.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
