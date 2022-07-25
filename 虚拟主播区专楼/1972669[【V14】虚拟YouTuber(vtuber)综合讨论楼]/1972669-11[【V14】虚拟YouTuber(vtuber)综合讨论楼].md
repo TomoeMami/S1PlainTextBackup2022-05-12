@@ -15012,3 +15012,74 @@ vox堪称虹en里天时地利人和极致了，en男T0的皮+东亚爆款的磁�
 豆猫公式战前瞩目选手不选内气前辈保魔物技能的操作在虹甲一群魔物信徒中实属辣的特立独行了，就 ...</blockquote>
 他的人设不就是没玩过游戏（荣冠）的云指示厨么，有什么崩的
 
+
+
+*****
+
+####  winda  
+##### 16402#       发表于 2022-7-25 12:11
+
+ 本帖最后由 winda 于 2022-7-25 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791271&amp;ptid=1972669" target="_blank">purdre 发表于 2022-7-25 12:08</a>
+他的人设不就是没玩过游戏（荣冠）的云指示厨么，有什么崩的</blockquote>
+同为成功模式老玩家还以为豆猫和老板娘一样，是明知道装傻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">没想到是真菜啊
+那这指示厨不是随便拉个liver都能演了，要你个老玩家作甚
+
+*****
+
+####  wuzhengkai  
+##### 16403#       发表于 2022-7-25 12:11
+
+虽然说30分钟debut看不出什么东西 但这期整体上还是令人失望的 可以说六个人加起来不如评论轨的Selen+Knox有趣
+
+Maria，澳洲rosemi，从色系讲话风格都差不多，唱歌可能因为太紧张了没唱好吧，不过在rosemi经常摆烂的现在还是谨慎看好一下，皮下跟pomu也挺类似，不知道同样是偶像厨会不会产生化学反应 6/10
+
+Kyo，我听了10分钟直接mute了，这声音你认真的吗，其他也平平无奇，不打分了，反正我跳过
+
+Aia，很令人惊奇地是这一批人最有趣的一个，这么个文静皮却是一种恶女vibe，很有意思，而且完全不紧张，八股文ppt上的各类喜好也可以说是这期唯一比较based的一位。 唯一可能的隐患是讲了很多gender fluidity之类的东西，slides上都列了些不明所谓的东西，考虑到之前finana的drama 目前的舆论环境下有可能暴雷 8/10
+
+Aster，开会去了基本没看，感觉平平无奇的枪男/撸男？不知道能不能和selen有一些打枪上的化学反应
+
+Scarle，令人失望，首先是直播网络极差，其次皮很色但live2d感觉调的很烂，再次是这个喜好我真的是不知道说什么好，4/10 （只看debut质量可以说1/10）
+
+Ren，金盾转生，原创曲开场，质量很高，高评价，但后面讲话感觉一般，live2d看上去憨憨的还蛮可爱的，爱好等等就很nomie，感觉是Niji EN男里音乐担当 7/10 （单论debut 9/10）
+
+*****
+
+####  alcoholic1000  
+##### 16404#       发表于 2022-7-25 12:14
+
+我也是因为铁鼠电台里的vox讲电影头头是道，措施用语也比较得体有趣才开始看他，可惜后来vox没有成为en大监督，技巧都用来写asmr台本......说到底女性观众给的甜头太多了。其他有几个男v驱赶ガチ恋、拒绝fujobait挺明显的，已经走上不同的道路了
+
+*****
+
+####  fastary  
+##### 16405#       发表于 2022-7-25 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791092&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-7-25 11:58</a>
+
+就是professor lando啊</blockquote><blockquote>有Corpse这事儿保真吗￼
+
+（搞音乐的油管主，靠amongus起飞，脑控粉丝的能力与mafumafu相当）</blockquote>
+我说的这个↑
+
+回头翻了下前面才发现其实没过几层就被否了，我没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+结果两边都出完了还是没有赤虎，en道明寺是吧(指一堆是不是粉的人看到出男v就开始招魂)
+
+说起来shu还提过去报名杏结果没杏星en才来虹，不知道看到杏星en现在这样子是什么感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 16406#       发表于 2022-7-25 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791388&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-25 12:16</a>
+
+我说的这个↑
+
+回头翻了下前面才发现其实没过几层就被否了，我没注意到
+
+结果两边都出完了还是没有 ...</blockquote>
+假的
+
