@@ -16740,3 +16740,14 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 1438#       发表于 2022-7-26 23:00
+
+三千人分还掉了，不会真的还有可香党还在坚持以为自己不会破防吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

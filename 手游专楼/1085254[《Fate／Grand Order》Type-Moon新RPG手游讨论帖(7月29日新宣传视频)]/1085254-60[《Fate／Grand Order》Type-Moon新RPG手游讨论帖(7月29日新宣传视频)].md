@@ -7539,3 +7539,16 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 萌新现在只想要个狂娜 拉120级</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没有狂娜的非洲人好羡慕
 
+
+
+*****
+
+####  exiaexa  
+##### 89178#       发表于 2022-7-26 22:50
+
+对了，友情提醒一下楼里的信用卡战士们
+这两天谷歌有纪念活动，10倍积分，建议提前氪金
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+任务好像是自己开的，我是今天领的任务明天结束
+
