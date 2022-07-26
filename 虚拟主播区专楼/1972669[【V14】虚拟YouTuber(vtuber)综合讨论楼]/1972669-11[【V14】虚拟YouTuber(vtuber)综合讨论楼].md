@@ -15695,3 +15695,12 @@ Maria明说自己是华裔了啊
 
 ミミ这两个星期除了睡觉吃饭就是猛汉吗，属实vspo 猛汉第一人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 16463#       发表于 2022-7-26 14:46
+
+rosemi的既视感真的好强，这么seiso正能量的vibe跟中二病人设完全不沾边嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
