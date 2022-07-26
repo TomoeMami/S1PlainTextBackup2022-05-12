@@ -16588,3 +16588,22 @@ CelticWhite
 
 我也觉得最多是hori那个团建活动的宣发和具体细节吧，其他的多少有点远了
 
+
+
+*****
+
+####  iuhehc  
+##### 1425#       发表于 2022-7-26 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811829&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-26 18:56</a>
+
+什么？！动画在油管上有吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/26/194440u0ppzggg4g9g244g.png" referrerpolicy="no-referrer">
+
+<strong>][4XSO_)]%PCG[2BWH@KX)W.png</strong> (114.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-26 19:44 上传
+
