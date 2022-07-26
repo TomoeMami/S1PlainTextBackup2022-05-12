@@ -16617,3 +16617,15 @@ CelticWhite
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56812527&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-26 19:44</a></blockquote>
 原来是直播啊，不过也够牛B了，话说是收费的吗
 
+
+
+*****
+
+####  iuhehc  
+##### 1427#       发表于 2022-7-26 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56812935&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-26 20:18</a>
+
+原来是直播啊，不过也够牛B了，话说是收费的吗</blockquote>
+不是，只是有ip限制
+
