@@ -15715,3 +15715,18 @@ rosemi的既视感真的好强，这么seiso正能量的vibe跟中二病人设�
 
 草，定粉丝名想当宠物的比当骑士的多
 
+
+
+*****
+
+####  IL282  
+##### 16465#       发表于 2022-7-26 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56807773&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-7-26 14:53</a>
+说不定明天打开apex一看是大师，就完全走向不同的方向了虽然不太想变这样就是了
+
+草，定粉丝名想当宠 ...</blockquote>
+最高白金，安心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -16368,3 +16368,16 @@ CelticWhite
 
 迷之台词加棒读，能听懂才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 1401#       发表于 2022-7-26 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56808016&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-26 15:09</a>
+原来日本人还会听不懂吗</blockquote>
+批土妹棒读那里还有说油管自动字幕读取可可台词比钱妹台词还要准确的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
