@@ -16849,3 +16849,16 @@ fc在哪里说了？只看到一条明天有好事公布的消息
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 1448#       发表于 2022-7-27 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56816768&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-27 01:11</a>
+还没全好啊那活动是不是能开了呢。希望全好了在开活动，免得有后遗症
+
+----发送自 Xiaomi Redmi K20 ...</blockquote>
+肯定是全好了再开始活动，但这样看8月头的活动就难说了
+
