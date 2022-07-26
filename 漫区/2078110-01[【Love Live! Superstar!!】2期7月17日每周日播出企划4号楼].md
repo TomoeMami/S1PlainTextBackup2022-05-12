@@ -16838,3 +16838,14 @@ fc在哪里说了？只看到一条明天有好事公布的消息
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cat1230  
+##### 1447#       发表于 2022-7-27 01:11
+
+还没全好啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那活动是不是能开了呢。希望全好了在开活动，免得有后遗症
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
