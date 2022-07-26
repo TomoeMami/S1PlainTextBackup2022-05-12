@@ -16222,3 +16222,17 @@ S01E07E08不好啊，恋的逻辑很弱智啊，甚至还出现了矫传圣旨�
 星一7、8两话不就是经典的xx误认为家人不喜欢xx然后用各种各样的理由针对加入或者喜欢xx的主角团最后发现家 ...</blockquote>
 这个最弱智的是搞半天原来只是东西没找齐，就自顾自的乱来，这不毁才有鬼了
 
+
+
+*****
+
+####  ads147147  
+##### 1393#       发表于 2022-7-26 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56802935&amp;ptid=2078110" target="_blank">plazum 发表于 2022-7-26 09:18</a>
+S01E07E08不好啊，恋的逻辑很弱智啊，甚至还出现了矫传圣旨这种剧情</blockquote>
+是这样，单独领出来赏析，确实写不错，很多台词铿锵有力，感人肺腑。音乐也不能说差，该有的钢琴哭效果也有。
+但是组合在一起就是滑稽戏。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
