@@ -16803,3 +16803,14 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 果然明天不是回归的消息但也一定是好消息吧……</blockquote>
 哪里说不是回归消息了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1444#       发表于 2022-7-27 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56816026&amp;ptid=2078110" target="_blank">黑雪姫 发表于 2022-7-26 23:54</a>
+哪里说不是回归消息了</blockquote>
+在FC里说的
+
