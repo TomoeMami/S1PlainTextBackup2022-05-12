@@ -16359,3 +16359,12 @@ CelticWhite
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来日本人还会听不懂吗
 
+
+
+*****
+
+####  cybernetics31  
+##### 1400#       发表于 2022-7-26 15:25
+
+迷之台词加棒读，能听懂才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
