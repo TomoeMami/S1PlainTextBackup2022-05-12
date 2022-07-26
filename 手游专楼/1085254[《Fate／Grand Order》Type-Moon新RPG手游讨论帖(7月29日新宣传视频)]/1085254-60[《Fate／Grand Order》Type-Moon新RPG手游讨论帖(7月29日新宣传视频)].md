@@ -7552,3 +7552,17 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 任务好像是自己开的，我是今天领的任务明天结束
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89179#       发表于 2022-7-26 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56815118&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-26 22:50</a>
+
+对了，友情提醒一下楼里的信用卡战士们
+
+这两天谷歌有纪念活动，10倍积分，建议提前氪金</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而我废狗移去IOS那边了，傻逼玩意儿到现在都还是废物引继码不能多端末登录
+
