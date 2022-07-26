@@ -15792,3 +15792,17 @@ ssk这转运了？一个月不到3场练习赛了
 
 感觉她一直心态挺好的，不像皇女和豆猫直播紧张度拉满
 
+
+
+*****
+
+####  Junchoon  
+##### 16472#       发表于 2022-7-26 19:08
+
+*****
+
+####  Suzutsuki  
+##### 16473#       发表于 2022-7-26 19:09
+
+crvalo那当然是看67这队了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
