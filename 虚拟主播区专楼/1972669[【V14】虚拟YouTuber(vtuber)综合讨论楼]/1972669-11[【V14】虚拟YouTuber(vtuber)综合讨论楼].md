@@ -15642,3 +15642,16 @@ PV风格也可能是为了配合曲风做得五彩斑斓轻飘飘的，以往华
 我也记得是跟葵那次
 结果本间桑又成抹布了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  你谁  
+##### 16458#       发表于 2022-7-26 11:32
+
+ 本帖最后由 你谁 于 2022-7-26 11:33 编辑 
+
+你要说订阅的扭转 那可能确实是和你葵（不要cue葵了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">） 同接那他一直在领先（后面订阅领先其实感觉是应当的） 而且冥府组当时一开始应该是搭上ark 订阅高了 
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
