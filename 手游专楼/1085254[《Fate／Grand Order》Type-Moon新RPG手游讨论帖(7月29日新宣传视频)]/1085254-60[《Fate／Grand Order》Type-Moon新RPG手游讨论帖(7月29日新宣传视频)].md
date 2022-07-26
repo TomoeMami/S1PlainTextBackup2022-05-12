@@ -7515,3 +7515,15 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 萌新好久没出货了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一看就是在积攒欧气 看好你随便抽抽满宝周年从者
 
+
+
+*****
+
+####  alucardcz  
+##### 89176#       发表于 2022-7-26 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811334&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-26 18:23</a>
+
+一看就是在积攒欧气 看好你随便抽抽满宝周年从者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新现在只想要个狂娜 拉120级
+
