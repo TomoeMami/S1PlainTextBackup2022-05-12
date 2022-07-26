@@ -16681,3 +16681,30 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 不是，只是有ip限制</blockquote>
 草，那跟niconico生放送还挺像的
 
+
+
+*****
+
+####  仟音一心  
+##### 1433#       发表于 2022-7-26 21:52
+
+[[中字/liella日记]生日被喊'尚未'的pay子很高兴-哔哩哔哩] [https://b23.tv/D2ZNnQl](https://b23.tv/D2ZNnQl)
+
+<img src="https://img.saraba1st.com/forum/202207/26/215147sdpvyq1zyzbyjlqw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>956A7F78-DE28-41FD-A31C-FC613F2FBDF6.jpeg</strong> (131.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-26 21:51 上传
+
+*****
+
+####  iuhehc  
+##### 1434#       发表于 2022-7-26 21:52
+
+ 本帖最后由 iuhehc 于 2022-7-26 21:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56814199&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-26 21:43</a></blockquote>
+这季这样下去保不准创平均新低
+
