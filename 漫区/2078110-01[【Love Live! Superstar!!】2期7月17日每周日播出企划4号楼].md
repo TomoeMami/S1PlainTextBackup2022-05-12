@@ -16825,3 +16825,16 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 在FC里说的</blockquote>
 在FC里说那大概率跟拉拉没关系，可能是三单，不过能公布新专那大概身体也往好的地方发展吧。
 
+
+
+*****
+
+####  愛さ実  
+##### 1446#       发表于 2022-7-27 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56816233&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-27 00:07</a>
+在FC里说的</blockquote>
+fc在哪里说了？只看到一条明天有好事公布的消息
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

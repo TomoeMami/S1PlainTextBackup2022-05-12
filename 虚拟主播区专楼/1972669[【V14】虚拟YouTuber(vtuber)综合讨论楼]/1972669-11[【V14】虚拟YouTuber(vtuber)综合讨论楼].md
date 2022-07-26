@@ -16001,3 +16001,14 @@ Wokka team 0W0L
 这下德龙得偿所愿了，她之前就参与唱过队歌，应该不少队迷眼熟
 另外欢迎阿葵来到甲子园！<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16489#       发表于 2022-7-27 00:46
+
+富婆是这样的，说飞德国就飞德国，一整个高配哈哥
+
+Syl，希望将来nijiEN3D化之后，有把Pomu和Nina锁在在房间一整天互相折磨并且折磨观众的节目
+
