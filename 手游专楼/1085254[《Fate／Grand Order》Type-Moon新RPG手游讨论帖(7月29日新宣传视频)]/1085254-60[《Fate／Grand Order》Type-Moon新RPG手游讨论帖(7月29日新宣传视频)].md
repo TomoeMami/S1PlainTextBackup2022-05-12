@@ -7471,3 +7471,47 @@ NMD明天的高级素材能不能给个实用点的
  ...</blockquote>
 明天要是没八联结晶，我要怀疑ch是在故意整人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89172#       发表于 2022-7-26 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56809288&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-26 16:27</a>
+
+欧皇怕什么  8月1号 5张护符都已经直接5宝了  甚至还没算周年福利</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新再说自己吧
+
+*****
+
+####  alucardcz  
+##### 89173#       发表于 2022-7-26 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811312&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-26 18:21</a>
+
+萌新再说自己吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好久没出货了
+
+*****
+
+####  qixinno2  
+##### 89174#       发表于 2022-7-26 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56810465&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-26 17:26</a>
+
+是空手组合技（鬼柳点赞）
+
+syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，都是用不着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次周年我要还是能白嫖成功 那YLS就是唯一真神（期间限定）
+
+*****
+
+####  qixinno2  
+##### 89175#       发表于 2022-7-26 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811316&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-26 18:22</a>
+
+萌新好久没出货了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一看就是在积攒欧气 看好你随便抽抽满宝周年从者
+
