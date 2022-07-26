@@ -7443,3 +7443,15 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 
 syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，都是用不着的材料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89170#       发表于 2022-7-26 17:34
+
+NMD明天的高级素材能不能给个实用点的
+
+不然通过狩猎本攒狗粮计划就要彻底失败了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
