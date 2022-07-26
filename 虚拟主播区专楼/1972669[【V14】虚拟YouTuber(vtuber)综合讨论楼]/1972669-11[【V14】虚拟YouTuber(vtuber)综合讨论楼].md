@@ -15763,3 +15763,14 @@ valo这游戏不是一个级别，完全就是个人秀了，比apex差距还大
 cr杯，秀也是大腿秀，v基本都是打烟的角色，队伍语音还突出一个杂乱
 轮到valo的时候完全不想看，不如apex一根
 
+
+
+*****
+
+####  Ketestrait  
+##### 16469#       发表于 2022-7-26 17:11
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h4kg0lb2txj20xk0iugp9.jpg" referrerpolicy="no-referrer">
+
+お茶飲むな<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
