@@ -16760,3 +16760,24 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 
 这几天看看合鲤文，太好玩了，有鲤鱼futa的，还有拿晋江文换个人名就发但是打铁变成风情万种女人的
 
+
+
+*****
+
+####  lj205  
+##### 1440#       发表于 2022-7-26 23:27
+
+果然明天不是回归的消息<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">但也一定是好消息吧……
+
+
+
+*****
+
+####  老1.5  
+##### 1441#       发表于 2022-7-26 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56815345&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-26 23:07</a>
+
+这几天看看合鲤文，太好玩了，有鲤鱼futa的，还有拿晋江文换个人名就发但是打铁变成风情万种女人的 ...</blockquote>
+在哪看啊，睡前读物急需<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
