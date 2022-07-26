@@ -15955,3 +15955,29 @@ kamito妹妹和67hnn这两队互送一次暴打的<img src="https://static.sarab
 
 fw和hanjou打喷，别笑死我，嘛不过hanjou没套皮不用担心叫错名字真好呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 16486#       发表于 2022-7-26 23:16
+
+ 本帖最后由 FCCHua 于 2022-7-26 23:18 编辑 
+
+补下看到的训练赛结果<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+Day1 
+Cpt[3-0] Clutch / 13-6 B / 13-7 A / 13-6 F 
+Daruma[2-1] Mother / 4-13 B / 13-3 A / 13-8 F 
+Vanilla[1-2] Cisco / 8-13 I / 4-13 B / 13-10 A 
+24:00～ 
+Wokka[0-0] Jasper/ 0-0 / 0-0 / 0-0 
+
+Cpt team 3W0L 
+Francisco team 2W1L 
+Daruma team 2W1L 
+Mother team 1W2L 
+Vanilla team 1W2L 
+Clutch team 0W3L 
+Jasper team 0W0L 
+Wokka team 0W0L
+
