@@ -15806,3 +15806,12 @@ ssk这转运了？一个月不到3场练习赛了
 
 crvalo那当然是看67这队了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 16474#       发表于 2022-7-26 19:15
+
+牛姨在参加甲子园应该不会第一时间播XB3了，有点可惜（虽然我防剧透应该也不会第一时间看了）
+

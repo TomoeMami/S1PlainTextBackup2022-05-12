@@ -16516,3 +16516,32 @@ CelticWhite
 可能不止是宣布复出了</blockquote>
 想不出啥好消息，这几周缺广播什么的得去录了，还有一些个人，事务所，企划的活动也要去弄。如果是什么新活动的话那也太忙了
 
+
+
+*****
+
+####  黑雪姫  
+##### 1417#       发表于 2022-7-26 19:12
+
+会不会COS间谍过家家啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 1418#       发表于 2022-7-26 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811846&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-26 18:58</a>
+想不出啥好消息，这几周缺广播什么的得去录了，还有一些个人，事务所，企划的活动也要去弄。如果是什么新 ...</blockquote>
+吃这行饭的总不能歇业在家是好消息吧……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  竹筷  
+##### 1419#       发表于 2022-7-26 19:16
+
+希望是三单贴一个十月新番上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
