@@ -16708,3 +16708,24 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56814199&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-26 21:43</a></blockquote>
 这季这样下去保不准创平均新低
 
+
+
+*****
+
+####  cybernetics31  
+##### 1435#       发表于 2022-7-26 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用报不准，肯定新低
+
+*****
+
+####  老1.5  
+##### 1436#       发表于 2022-7-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56814320&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-26 21:52</a>
+
+这季这样下去保不准创平均新低</blockquote>
+嗯。。。也难说，看后面吧。樱小路这两三集确实没啥大意思，主要角色本身就无趣，写出来的东西也无趣，还疯狂复刻名场面，关键复刻了也被原版爆成渣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，观众都不瞎的。看看后面拉其它三人能不能整出点有意思的了，那风评还能扭转一些。
+
+当然你京极和花田要真押宝在可回，那观众们就看你们能整出些啥便是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
