@@ -15675,3 +15675,14 @@ Maria明说自己是华裔了啊
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  IL282  
+##### 16461#       发表于 2022-7-26 14:12
+
+这不仅是华裔啊，是Enna老乡啊，Shanghainess啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
