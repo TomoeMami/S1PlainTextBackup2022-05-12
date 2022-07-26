@@ -16648,3 +16648,36 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖啡星人。</blockquote>
 外星偶像组合？难怪叫星团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 1430#       发表于 2022-7-26 21:41
+
+我现在可能变成动画的死黑子了，看到第二集比第一集评分还要低能开心的笑出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1431#       发表于 2022-7-26 21:43
+
+<img src="https://img.saraba1st.com/forum/202207/26/214356idf99kjl1lbx3fpp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>29A10F9F-F4F5-4C78-B250-BDBC5AB7C4E1.jpeg</strong> (136.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-26 21:43 上传
+
+*****
+
+####  plazum  
+##### 1432#       发表于 2022-7-26 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56812987&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-26 20:24</a>
+
+不是，只是有ip限制</blockquote>
+草，那跟niconico生放送还挺像的
+
