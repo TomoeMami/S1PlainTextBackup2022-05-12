@@ -16484,3 +16484,35 @@ CelticWhite
 居然明天要宣布什么消息吗？我以为康复之后发个公告就得投入工作去了。</blockquote>
 可能不止是宣布复出了
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1414#       发表于 2022-7-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56808369&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-26 15:33</a>
+ 批土妹棒读那里还有说油管自动字幕读取可可台词比钱妹台词还要准确的  —— 来自 S1Fun ...</blockquote>
+你鲤鱼姐发音是相当的好，只是说得慢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1415#       发表于 2022-7-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56808369&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-26 15:33</a>
+
+批土妹棒读那里还有说油管自动字幕读取可可台词比钱妹台词还要准确的
+
+—— 来自 S1Fun ...</blockquote>
+什么？！动画在油管上有吗？
+
+*****
+
+####  优妮可  
+##### 1416#       发表于 2022-7-26 18:58
+
+<blockquote>老1.5 发表于 2022-7-26 18:47
+可能不止是宣布复出了</blockquote>
+想不出啥好消息，这几周缺广播什么的得去录了，还有一些个人，事务所，企划的活动也要去弄。如果是什么新活动的话那也太忙了
+
