@@ -16012,3 +16012,12 @@ Wokka team 0W0L
 
 Syl，希望将来nijiEN3D化之后，有把Pomu和Nina锁在在房间一整天互相折磨并且折磨观众的节目
 
+
+
+*****
+
+####  rzrbtk  
+##### 16490#       发表于 2022-7-27 00:50
+
+想了下将来郡道毕业有没有像最近的黛灰粉这样爽吃断头饭的机会，发现好像至少得死者苏生五人以上，还是好好播算了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
