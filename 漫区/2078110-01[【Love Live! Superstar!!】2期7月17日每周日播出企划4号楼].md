@@ -16545,3 +16545,12 @@ CelticWhite
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 1420#       发表于 2022-7-26 19:26
+
+要猜就猜大的，宣布三单+年内2nd live，第二本写真，开设nico收费频道（实现其中一个也好<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
