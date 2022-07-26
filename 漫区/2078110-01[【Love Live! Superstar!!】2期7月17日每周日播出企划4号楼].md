@@ -16792,3 +16792,14 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 在哪看啊，睡前读物急需</blockquote>
 微博和Lofter就有
 
+
+
+*****
+
+####  黑雪姫  
+##### 1443#       发表于 2022-7-26 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56815609&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-26 23:27</a>
+果然明天不是回归的消息但也一定是好消息吧……</blockquote>
+哪里说不是回归消息了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
