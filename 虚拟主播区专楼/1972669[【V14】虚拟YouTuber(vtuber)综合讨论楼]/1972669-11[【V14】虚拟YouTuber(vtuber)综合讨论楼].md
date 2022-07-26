@@ -15946,3 +15946,12 @@ kamito妹妹和67hnn这两队互送一次暴打的<img src="https://static.sarab
 
 上张图daruma队处理不了bob，这张图花芽队处理不了daruma。和前几届一样的daruma个人秀。
 
+
+
+*****
+
+####  aritaatsu222  
+##### 16485#       发表于 2022-7-26 22:35
+
+fw和hanjou打喷，别笑死我，嘛不过hanjou没套皮不用担心叫错名字真好呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

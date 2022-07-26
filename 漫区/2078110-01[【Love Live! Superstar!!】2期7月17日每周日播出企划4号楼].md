@@ -16729,3 +16729,14 @@ nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖
 
 当然你京极和花田要真押宝在可回，那观众们就看你们能整出些啥便是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1437#       发表于 2022-7-26 22:37
+
+从爆出加人的那个晚上开始，我就准备看二期的笑话了，只能说好死，不过暂时不想半场开香槟，先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
