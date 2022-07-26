@@ -16306,3 +16306,17 @@ F2832ADD-99E3-4467-BC87-ACE3F943D888.jpeg
 
 有个抛弃妻女的爹，去世前什么也不交代的娘，什么都知道什么都不说的乐子人理事长，服侍叶月家那么久一问三不知的女仆，剩下一条说不了话的老狗，自己固执还被按上选择性失忆，恋这角色真是灾难，越看越像真飞鸟<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plazum  
+##### 1397#       发表于 2022-7-26 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56803754&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-26 10:12</a>
+
+这个最弱智的是搞半天原来只是东西没找齐，就自顾自的乱来，这不毁才有鬼了 ...</blockquote>
+更弱智的是理事长知情不报，作壁上观
+
+橘前辈！你为什么只是看着！难道你真的背叛我们了吗？！[OMO](https://zh.moegirl.org.cn/为什么在一旁看着！难道你真的背叛了吗)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
