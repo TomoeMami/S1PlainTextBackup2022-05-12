@@ -16177,3 +16177,25 @@ FYhAAzqaIAAiPo8.jpg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  plazum  
+##### 1389#       发表于 2022-7-26 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56802118&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-26 07:58</a>
+
+角色互动和心态变化上，剧本确实表现的很好，但是众所周知问题一直不在这上面，s1e7e8不也描写的很好台词 ...</blockquote>
+S01E07E08不好啊，恋的逻辑很弱智啊，甚至还出现了矫传圣旨这种剧情
+
+*****
+
+####  plazum  
+##### 1390#       发表于 2022-7-26 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56801775&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-7-26 05:13</a>
+
+问题就在于星里的偶像部不可能真的按社团的方式运转。比如入部标准有没有，可不可以分年级安排训练表，参 ...</blockquote>
+所以我倒数第二段不是说了LoveLive系列中的学园偶像这个概念的问题了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
