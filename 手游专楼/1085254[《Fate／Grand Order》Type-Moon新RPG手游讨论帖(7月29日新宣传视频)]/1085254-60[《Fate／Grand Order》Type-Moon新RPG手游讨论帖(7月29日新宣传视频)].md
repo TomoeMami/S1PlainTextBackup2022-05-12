@@ -7527,3 +7527,15 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 一看就是在积攒欧气 看好你随便抽抽满宝周年从者</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新现在只想要个狂娜 拉120级
 
+
+
+*****
+
+####  qixinno2  
+##### 89177#       发表于 2022-7-26 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56811496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-26 18:35</a>
+
+萌新现在只想要个狂娜 拉120级</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没有狂娜的非洲人好羡慕
+
