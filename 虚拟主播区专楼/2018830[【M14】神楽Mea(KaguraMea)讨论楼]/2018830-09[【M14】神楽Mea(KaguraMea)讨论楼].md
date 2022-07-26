@@ -1287,3 +1287,14 @@ fafa还是房导</blockquote>
 
 ip是可以找商务登记的，猜这个没太大意义
 
+
+
+*****
+
+####  路人庚  
+##### 12151#       发表于 2022-7-26 22:40
+
+稍微补了一下，跟苔苔的会限联动里聊的东西确实都基本是幕后故事之类的，确实比普通联动聊的内容稍微深层一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说虽然不能搬到b站，那字幕组能考虑直接在油管做cc字幕么（
+
