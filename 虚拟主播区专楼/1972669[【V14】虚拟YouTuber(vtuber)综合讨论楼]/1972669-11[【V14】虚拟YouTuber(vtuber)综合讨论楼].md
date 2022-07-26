@@ -15981,3 +15981,23 @@ Clutch team 0W3L
 Jasper team 0W0L 
 Wokka team 0W0L
 
+
+
+*****
+
+####  Porsche  
+##### 16487#       发表于 2022-7-27 00:30
+
+一言不合来到德国，在autobahn上飙极速，又亲自下场跑了北环的硬核樱花妹，羡慕到吐血<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 16488#       发表于 2022-7-27 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56813424&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-7-26 20:56</a>
+太排场了</blockquote>
+能把一向不怎么团结的央联六只球队叫到一起搞联动的enkr，究竟用了什么神秘力量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下德龙得偿所愿了，她之前就参与唱过队歌，应该不少队迷眼熟
+另外欢迎阿葵来到甲子园！<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
