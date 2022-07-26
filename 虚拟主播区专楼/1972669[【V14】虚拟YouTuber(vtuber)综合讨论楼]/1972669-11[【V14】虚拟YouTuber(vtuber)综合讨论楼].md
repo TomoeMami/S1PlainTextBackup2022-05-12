@@ -15704,3 +15704,14 @@ Maria明说自己是华裔了啊
 
 rosemi的既视感真的好强，这么seiso正能量的vibe跟中二病人设完全不沾边嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16464#       发表于 2022-7-26 14:53
+
+说不定明天打开apex一看是大师，就完全走向不同的方向了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不太想变这样就是了
+
+草，定粉丝名想当宠物的比当骑士的多
+
