@@ -15740,3 +15740,26 @@ rosemi的既视感真的好强，这么seiso正能量的vibe跟中二病人设�
 crvalo没一个队想看的…
 valo这游戏不是一个级别，完全就是个人秀了，比apex差距还大
 
+
+
+*****
+
+####  Suny08  
+##### 16467#       发表于 2022-7-26 16:40
+
+其实水平相当的话valo比赛观赏性绝对是独一档的，比什么刀撸星际ow吃鸡要强多了，但cr这种职业配一般主播的配置太坐牢了，就变成两边的大哥打bot，这样子组确实吃鸡类的或者ow这些的会好一些
+
+*****
+
+####  poipanchao  
+##### 16468#       发表于 2022-7-26 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56809570&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-7-26 16:40</a>
+其实水平相当的话valo比赛观赏性绝对是独一档的，比什么刀撸星际ow吃鸡要强多了，但cr这种职业配一般主播的 ...</blockquote>
+我的个人体感
+高端局，职业赛的比赛效果  valo秒了apex
+低端局，虐菜秀局的爽快感  apex秒了valo
+
+cr杯，秀也是大腿秀，v基本都是打烟的角色，队伍语音还突出一个杂乱
+轮到valo的时候完全不想看，不如apex一根
+
