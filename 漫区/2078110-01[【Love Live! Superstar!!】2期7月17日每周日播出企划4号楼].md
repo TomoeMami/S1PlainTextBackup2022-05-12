@@ -16629,3 +16629,22 @@ CelticWhite
 原来是直播啊，不过也够牛B了，话说是收费的吗</blockquote>
 不是，只是有ip限制
 
+
+
+*****
+
+####  仟音一心  
+##### 1428#       发表于 2022-7-26 20:40
+
+nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖啡星人。
+
+*****
+
+####  老1.5  
+##### 1429#       发表于 2022-7-26 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56813234&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-26 20:40</a>
+
+nagi是红薯星人，pay子是梅干星人，sayu是刘海星人，鲤鱼是咖啡星人。</blockquote>
+外星偶像组合？难怪叫星团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
