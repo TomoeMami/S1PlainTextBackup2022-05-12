@@ -7429,3 +7429,17 @@ syl 不太明白为什么没有人工生命体的掉落概率加成礼装，明�
 0石0呼符 我已经天下无敌了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇怕什么  8月1号 5张护符都已经直接5宝了  甚至还没算周年福利
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89169#       发表于 2022-7-26 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56809076&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-26 16:16</a>
+
+0石0呼符 我已经天下无敌了</blockquote>
+是空手组合技<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">（鬼柳点赞）
+
+syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，都是用不着的材料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
