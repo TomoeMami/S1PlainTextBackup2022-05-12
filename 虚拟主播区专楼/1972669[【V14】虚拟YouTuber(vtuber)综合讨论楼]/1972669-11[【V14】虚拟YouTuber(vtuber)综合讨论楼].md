@@ -15841,3 +15841,66 @@ hh突然上传了个像是经济问题讨论的节目确实会吓一跳呢<img s
 
 完全不想看crvalo，已经看到了hnn从今天坐牢到比赛结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16478#       发表于 2022-7-26 20:56
+
+ 本帖最后由 alcoholic1000 于 2022-7-26 20:57 编辑 
+
+<img src="https://img.saraba1st.com/forum/202207/26/205542vzq6gz4ijthi5skh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>マ！？ #にじセリーグコラボ    .jpeg</strong> (228.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-26 20:55 上传
+
+太排场了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+ <blockquote>【 #にじセリーグコラボ 応援 #にじさんじ ライバー組合せまとめ】敬称略
+
+●読売ジャイアンツ
+
+×イブラヒム,リゼ・ヘルエスタ
+
+●東京ヤクルトスワローズ
+
+×剣持刀也,アルス・アルマル
+
+●横浜DeNAベイスターズ
+
+×社築,西園チグサ
+
+●中日ドラゴンズ
+
+×レオス・ヴィンセント,相羽ういは
+
+●阪神タイガース
+
+×葛葉,本間ひまわり
+
+●広島東洋カープ
+
+×シェリン・バーガンディ,樋口楓</blockquote>
+
+*****
+
+####  Suny08  
+##### 16479#       发表于 2022-7-26 20:57
+
+这下中之人暴露咯
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|你○ノ美兎和我委员长有什么关系.|
+
+查看全部评分
+
