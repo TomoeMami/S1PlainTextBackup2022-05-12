@@ -15913,3 +15913,36 @@ hh突然上传了个像是经济问题讨论的节目确实会吓一跳呢<img s
 
 怎么点进去就看到花芽队被虐杀……
 
+
+
+*****
+
+####  Suzutsuki  
+##### 16481#       发表于 2022-7-26 21:21
+
+kamito妹妹和67hnn这两队互送一次暴打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 16482#       发表于 2022-7-26 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56813735&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-7-26 21:15</a>
+
+怎么点进去就看到花芽队被虐杀……</blockquote>
+上把67队被虐杀了，1:1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16483#       发表于 2022-7-26 21:22
+
+能不能给虹甲A组施放一张“均运卡”啊，这上下运差的也太多了
+
+*****
+
+####  Kokichi  
+##### 16484#       发表于 2022-7-26 21:29
+
+上张图daruma队处理不了bob，这张图花芽队处理不了daruma。和前几届一样的daruma个人秀。
+
