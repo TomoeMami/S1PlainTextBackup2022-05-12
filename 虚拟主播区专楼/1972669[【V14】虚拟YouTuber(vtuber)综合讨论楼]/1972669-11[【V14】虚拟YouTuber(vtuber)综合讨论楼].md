@@ -16070,3 +16070,25 @@ Syl，希望将来nijiEN3D化之后，有把Pomu和Nina锁在在房间一整天�
 
 黑客断头饭也是粉丝的断头饭啊
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16496#       发表于 2022-7-27 14:20
+
+ 本帖最后由 wuzhengkai 于 2022-7-27 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56813321&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-7-26 20:47</a>
+
+不知道该怎么解释但maria给我一种维阿的感觉</blockquote>
+有群友说是英语模块加强的koxia 后者我没看过
+
+如果是说直播很虚无的话确实有点这个意思
+
+*****
+
+####  硫黄  
+##### 16497#       发表于 2022-7-27 14:28
+
+黛灰这个真的蚌埠住了
+

@@ -17187,3 +17187,16 @@ syl
 
 各社の豊富なリソースを活用し、新たにダイナミックなエンターテインメントコミュニティを創造してまいります。
 
+
+
+*****
+
+####  lj205  
+##### 1483#       发表于 2022-7-27 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56823403&amp;ptid=2078110" target="_blank">stygian 发表于 2022-7-27 14:16</a>
+鱼还是太正经了，juvenile做的这种东西用慵懒调半唱半白来唱最好
+
+QQ音乐哪里买求指引下，我愣是没找到，实 ...</blockquote>
+还需要慢慢来，但是中间那段确实很有感觉
+
