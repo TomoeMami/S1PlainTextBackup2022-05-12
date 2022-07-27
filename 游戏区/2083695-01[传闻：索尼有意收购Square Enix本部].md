@@ -501,3 +501,16 @@ SE骑墙两头输出不是更优解？
 
 sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当Xbox跟azure云服务扯上关系，已经预示了索索的惨败
 
+
+
+*****
+
+####  大暴死  
+##### 63#       发表于 2022-7-27 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56825791&amp;ptid=2083695" target="_blank">GMJ 发表于 2022-7-27 16:58</a>
+微软：7个E就能终结战争？当我掏不起么？先来你10倍压压惊</blockquote>
+虽然但是，应该是100倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

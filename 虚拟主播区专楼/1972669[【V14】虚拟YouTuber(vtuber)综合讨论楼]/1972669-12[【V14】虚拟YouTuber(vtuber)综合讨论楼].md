@@ -174,3 +174,21 @@ myy这还差一半人呢，岂不是还要播5小时起.....
 金属棒子是这样的，只要打到甜点就能飞出去
 所以很多人进了职棒换成木的都不习惯了
 
+
+
+*****
+
+####  Ketestrait  
+##### 16519#       发表于 2022-7-27 21:54
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h4lttoawrxj20x10ivtdy.jpg" referrerpolicy="no-referrer">
+
+投手可以组成ヘルエスタ寸前三銃士了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  OldGlory  
+##### 16520#       发表于 2022-7-27 21:55
+
+那么黛灰知道有一个叫弥希miki的后辈因为和他联动被黛灰粉烧了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
