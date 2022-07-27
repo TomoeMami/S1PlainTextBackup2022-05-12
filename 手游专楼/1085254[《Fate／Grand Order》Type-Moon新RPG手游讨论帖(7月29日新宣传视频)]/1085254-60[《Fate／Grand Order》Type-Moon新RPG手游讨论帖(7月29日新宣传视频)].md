@@ -7724,3 +7724,53 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说国服妖兰获得了限定技能本 日服干脆直接就照原样给个技能本算了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89195#       发表于 2022-7-27 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827697&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-7-27 19:21</a>
+
+没想啥期望 想了个大活 周年从者新绿拐狮子头 宝具动画跟新娘马修手拉手放黑枪礼炮
+
+马修新娘灵衣 卡 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/27/193600sah58awvsstwwjot.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220727_193537.jpg</strong> (109.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-27 19:36 上传
+
+*****
+
+####  Jamaisvu  
+##### 89196#       发表于 2022-7-27 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827697&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-7-27 19:21</a>
+
+没想啥期望 想了个大活 周年从者新绿拐狮子头 宝具动画跟新娘马修手拉手放黑枪礼炮
+
+马修新娘灵衣 卡 ...</blockquote>
+我现在只希望手游赶紧出个自己的第六兽和冠位骑跟那个破街机划清界线<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 89197#       发表于 2022-7-27 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827720&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-27 19:23</a>
+
+话说国服妖兰获得了限定技能本 日服干脆直接就照原样给个技能本算了 ...</blockquote>
+三技能无限np续杯，这个要能实装确实爽
+
+*****
+
+####  vacuumsword  
+##### 89198#       发表于 2022-7-27 19:39
+
+给加个溢出体力自动种苹果得了。现在手动种就是脱裤子放屁
+
