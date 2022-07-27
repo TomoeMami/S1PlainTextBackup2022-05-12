@@ -302,3 +302,38 @@ mxmk都不在乎黛灰了那黛灰为什么还要因为不知道mxmk两年前被
 
 hnn在的队伍从昨天到今天第一局都是慢热输掉，后面两局再慢慢追，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 16530#       发表于 2022-7-28 00:11
+
+myy那边怎么还没有到项羽，我等了好久......
+
+
+
+*****
+
+####  OldGlory  
+##### 16531#       发表于 2022-7-28 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56830726&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-27 23:54</a>
+
+mxmk都不在乎黛灰了那黛灰为什么还要因为不知道mxmk两年前被他粉开过团而被阴阳呢？
+
+短暂开了个团马上被锁 ...</blockquote>
+mxmk不在乎所以我也不能在乎吗？什么逻辑？
+
+而且我在v综发个回复算什么在乎，真在乎应该直接去nga走廊直球开团吧。
+
+*****
+
+####  高等黑暗  
+##### 16532#       发表于 2022-7-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56830888&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-7-28 00:11</a>
+
+myy那边怎么还没有到项羽，我等了好久......</blockquote>
+不见得会去 明天有blues联动 今天先上个香明天联动不知道怎么面对了
+
