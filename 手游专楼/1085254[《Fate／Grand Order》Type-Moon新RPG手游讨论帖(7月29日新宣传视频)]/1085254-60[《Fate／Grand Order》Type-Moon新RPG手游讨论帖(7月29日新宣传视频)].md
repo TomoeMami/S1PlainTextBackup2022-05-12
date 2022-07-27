@@ -7826,3 +7826,21 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看NGA的解包好像是国服把三破的三技能代码删了 现在只有一二破的三技能
 [https://b23.tv/jRTY70s](https://b23.tv/jRTY70s)
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89204#       发表于 2022-7-27 20:14
+
+ 本帖最后由 Jamaisvu 于 2022-7-27 20:19 编辑 
+
+妖兰好像还有个bug，就是有时候变身之后的宝具仍然是蓝单体，哪怕动画是变龙放光炮，但伤害是对单的，甚至能回NP。
+
+*****
+
+####  qixinno2  
+##### 89205#       发表于 2022-7-27 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 国服的妖兰才是完全体 到时可以用那个灵衣了
+
