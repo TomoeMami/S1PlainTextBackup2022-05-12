@@ -16092,3 +16092,23 @@ Syl，希望将来nijiEN3D化之后，有把Pomu和Nina锁在在房间一整天�
 
 黛灰这个真的蚌埠住了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16498#       发表于 2022-7-27 14:45
+
+看了十分钟感觉maria确实不会是枪女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+apex纯纯的背景板
+
+*****
+
+####  你谁  
+##### 16499#       发表于 2022-7-27 14:47
+
+维阿味还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 什么时候去看看
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
