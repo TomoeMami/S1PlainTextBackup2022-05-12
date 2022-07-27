@@ -370,3 +370,18 @@ mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人�
 应该是弥人踩头，人多就是硬道理
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16535#       发表于 2022-7-28 01:00
+
+<blockquote>poipanchao 发表于 2022-7-28 00:52
+恩……我觉得按照现在nga的势力分布来看
+
+应该是弥人踩头，人多就是硬道理
+
+ ...</blockquote>
+按这件事发生时的势力也是弥人踩头啊，问题是过去两年半了诶，两年半了！事到如今因为有粉夸一句他照顾后辈就能想起当年的梁木，我真的无语
+
