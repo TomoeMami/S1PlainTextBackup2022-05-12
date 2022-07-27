@@ -17441,3 +17441,16 @@ pay生日event上弹唱的原创曲于8月15日公开，曲名征集中
 
 躺着的那张合鲤太有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  竹筷  
+##### 1496#       发表于 2022-7-27 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56830591&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-27 23:41</a>
+躺着的那张合鲤太有感觉</blockquote>
+最喜欢的一张<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -274,3 +274,20 @@ syl黑客这个月企划确实还可以
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fastary  
+##### 16528#       发表于 2022-7-27 23:54
+
+ 本帖最后由 fastary 于 2022-7-27 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56830456&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-7-27 23:28</a>
+
+别翻了，我记得是黛灰粉联动当天直接走廊里开团然后锁了
+
+而且mxmk为啥要在乎黛灰毕业呢，能给个有力 ...</blockquote>
+mxmk都不在乎黛灰了那黛灰为什么还要因为不知道mxmk两年前被他粉开过团而被阴阳呢？
+
+短暂开了个团马上被锁了的梁子能记两年半甚至上升到主播本身，你们弥人心眼太小了吧<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
