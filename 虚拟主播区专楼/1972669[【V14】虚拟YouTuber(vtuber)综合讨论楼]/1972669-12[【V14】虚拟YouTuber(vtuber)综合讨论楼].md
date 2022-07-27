@@ -251,3 +251,14 @@ syl，月奈回来以后感觉嗓子不如以前了
 我还特意去翻了下nga那时候的vr楼，讨论只有两三页也没有黛灰粉去黑屁mxmk，只有我跑去辩解了两句没到“黛灰粉试图炎上mxmk”那么严重<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 [https://bbs.nga.cn/read.php?tid=18016552&amp;page=554](https://bbs.nga.cn/read.php?tid=18016552&amp;page=554)
 
+
+
+*****
+
+####  OldGlory  
+##### 16526#       发表于 2022-7-27 23:28
+
+别翻了，我记得是黛灰粉联动当天直接走廊里开团然后锁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且mxmk为啥要在乎黛灰毕业呢，能给个有力一点的理由吗
+
