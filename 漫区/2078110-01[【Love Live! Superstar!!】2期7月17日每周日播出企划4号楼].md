@@ -17126,3 +17126,32 @@ Juvenile写给鲤鱼的几首歌都很对自己口味，这次的新歌也不例
 
 就是这混音<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 1478#       发表于 2022-7-27 12:53
+
+b站30秒试听我差点以为是哪个饮料的广告曲。要不喜茶搞个联名款柠檬水用这曲吧
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 1479#       发表于 2022-7-27 12:54
+
+Horipro集团控股股份有限公司,以在中国本土及亚洲开展业务为目的,腾讯音乐娱乐集团(Tencent Music Entertainment Group/简称TME)及与Earnest股份有限公司战略合作,启动了HT Entertainment股份有限公司。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难怪qq音乐了
+
+*****
+
+####  aoaoaodedede  
+##### 1480#       发表于 2022-7-27 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56822327&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-7-27 12:54</a>
+Horipro集团控股股份有限公司,以在中国本土及亚洲开展业务为目的,腾讯音乐娱乐集团(Tencent Music Entertai ...</blockquote>
+原来如此，话说这个信息在哪能找到
+
