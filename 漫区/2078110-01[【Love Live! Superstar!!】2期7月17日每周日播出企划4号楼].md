@@ -17078,3 +17078,19 @@ QQ音乐上写的HT Entertainment这个唱片公司，随便搜了一下，它�
 可惜了 没法爆金币</blockquote>
 qq音乐这歌两块钱，鱼能拿多少
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1472#       发表于 2022-7-27 11:57
+
+别指望普通歌手能直接从歌里分得多少钱
+
+*****
+
+####  lj205  
+##### 1473#       发表于 2022-7-27 11:59
+
+不过总算有中文歌了，谢谢经济公司，喜茶不考虑联动吗？这么适合夏天的歌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
