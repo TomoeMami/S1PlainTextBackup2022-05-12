@@ -207,3 +207,13 @@ myy这还差一半人呢，岂不是还要播5小时起.....
 
 那你知道mxmk说联动黛灰组负责剪辑她可以烤然后十来分钟切片拿去拖了大半年才给出来吗，我怀疑mxmk都不一定在乎他毕业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 16522#       发表于 2022-7-27 22:45
+
+mother队真的抗压，第一局被对面一号位无双之后硬拿回两局。
+<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">sumire和nazuna几个残局的超水平发挥看的好紧张。
+
