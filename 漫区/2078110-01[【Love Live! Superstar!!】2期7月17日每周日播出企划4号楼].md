@@ -17117,3 +17117,12 @@ qq音乐这歌两块钱，鱼能拿多少
 
 Juvenile写给鲤鱼的几首歌都很对自己口味，这次的新歌也不例外，听一次就记住旋律了（忘带耳机上班只能脑内循环<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1477#       发表于 2022-7-27 12:40
+
+就是这混音<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
