@@ -97,3 +97,40 @@
 
 2022-7-27 20:13 上传
 
+
+
+*****
+
+####  Ketestrait  
+##### 16510#       发表于 2022-7-27 20:20
+
+皇女连续险胜，真的旱的旱死涝的涝死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16511#       发表于 2022-7-27 20:23
+
+最离谱的是，甲子园那么大，这些人打本垒打和打着玩一样
+
+*****
+
+####  poipanchao  
+##### 16512#       发表于 2022-7-27 20:26
+
+今年是不是要保送虹女<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16513#       发表于 2022-7-27 20:27
+
+风大，王立赫露艾斯塔第三战对B开局又是三分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 16514#       发表于 2022-7-27 20:27
+
+三场场场都auto本垒打，简直系统护身<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
