@@ -17200,3 +17200,16 @@ syl
 QQ音乐哪里买求指引下，我愣是没找到，实 ...</blockquote>
 还需要慢慢来，但是中间那段确实很有感觉
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1484#       发表于 2022-7-27 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56822367&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-27 12:56</a>
+
+原来如此，话说这个信息在哪能找到</blockquote>
+找到一篇文章
+[ホリプロ×TME×Earnestによる新会社“HT Entertainment”始動　日本のエンタメ産業における国際化の発展目指す](https://realsound.jp/2022/07/post-1081767.html)：[https://realsound.jp/2022/07/post-1081767.html](https://realsound.jp/2022/07/post-1081767.html)
+
