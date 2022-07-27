@@ -192,3 +192,18 @@ myy这还差一半人呢，岂不是还要播5小时起.....
 
 那么黛灰知道有一个叫弥希miki的后辈因为和他联动被黛灰粉烧了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16521#       发表于 2022-7-27 22:34
+
+他们联动的时候黛灰在国内才几个粉，小范围内有粉表达了对她选题的不满也叫烧啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+何况他帮助和关心的是同事本人的心理状态，又不是超人连外野的黑屁都能配虑在内
+
+你就是那种看到夸某人很关心身边的人就会去阴阳一句他怎么不帮一把远方亲戚的人？还是说弥人小心眼到就为这个对黛灰怀恨在心到今天？
+
+那你知道mxmk说联动黛灰组负责剪辑她可以烤然后十来分钟切片拿去拖了大半年才给出来吗，我怀疑mxmk都不一定在乎他毕业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
