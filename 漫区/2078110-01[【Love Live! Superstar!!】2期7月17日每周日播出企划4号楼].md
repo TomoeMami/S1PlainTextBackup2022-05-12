@@ -17244,3 +17244,12 @@ QQ音乐这么坑爹，我在酷狗买的<img src="https://static.saraba1st.com/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kata魂  
+##### 1488#       发表于 2022-7-27 19:03
+
+我这边购买倒是扣的2块钱，不知道是不是会员的原因
+

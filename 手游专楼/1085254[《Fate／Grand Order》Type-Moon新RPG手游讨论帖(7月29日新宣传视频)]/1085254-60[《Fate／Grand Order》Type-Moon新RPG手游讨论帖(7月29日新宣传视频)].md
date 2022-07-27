@@ -7659,3 +7659,25 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 今天的阴间本和昨天一样都可以用妖兰刷，一面带NP礼装（我用的是机娘玛尔达那张）一技能充能放单体宝具，二面三技能变身+双杀狐红buff，三面杀狐充能减冷却+自身一三技能+衣服加攻，二宝打三十多万应该没问题。
 
+
+
+*****
+
+####  exiaexa  
+##### 89189#       发表于 2022-7-27 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827405&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-27 18:55</a>
+
+通用礼装突破材料不可能的 太强了  给你个通用从者宝具材料好不好（扣一点 再加个限制只能对着1宝使用）[f ...</blockquote>
+一年给四个，新人一年攒一张满破宝石翁，完美
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89190#       发表于 2022-7-27 19:03
+
+七周年新展望么...虽然已经有种苹果这个保存体力的机制，但是每日三次的通关奖励绿方块任务还得做。
+
+为了更加便利，我奶一个“每天前三次副本可扫荡”好了...
+
