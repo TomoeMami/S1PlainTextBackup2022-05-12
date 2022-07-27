@@ -7803,3 +7803,26 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 什么限定技能本 详细点</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服妖兰三技能不会变成三破时的效果 哪怕用三破状态也是100充 现在可以妖兰杀狐加任意50拐和CD服无脑三连
 
+
+
+*****
+
+####  alucardcz  
+##### 89202#       发表于 2022-7-27 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827969&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-27 19:47</a>
+
+国服妖兰三技能不会变成三破时的效果 哪怕用三破状态也是100充 现在可以妖兰杀狐加任意50拐和CD服 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥意思  特有的bug？
+
+*****
+
+####  qixinno2  
+##### 89203#       发表于 2022-7-27 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56828109&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-27 20:02</a>
+
+啥意思  特有的bug？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看NGA的解包好像是国服把三破的三技能代码删了 现在只有一二破的三技能
+[https://b23.tv/jRTY70s](https://b23.tv/jRTY70s)
+
