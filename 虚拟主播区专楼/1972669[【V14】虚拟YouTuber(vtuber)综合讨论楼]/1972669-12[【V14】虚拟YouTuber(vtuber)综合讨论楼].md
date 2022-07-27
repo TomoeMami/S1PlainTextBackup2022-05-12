@@ -134,3 +134,24 @@
 
 三场场场都auto本垒打，简直系统护身<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 16515#       发表于 2022-7-27 20:51
+
+皇女和myy两窗同时开 感觉情绪要出bug了…
+9点还有力一和ngo的电台
+
+*****
+
+####  fastary  
+##### 16516#       发表于 2022-7-27 20:52
+
+这都几个被他弄哭的好妹妹了，呜呜呜你这个罪恶的男人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+来的本社海外的后辈十有八九都说出道初期受了他很多帮助……真的是人望很高也很会照顾人的人，呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+往好处想至少v们私下想联系还是都能联系的！没有我们那么绝望！<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
