@@ -1390,3 +1390,12 @@ ip是可以找商务登记的，猜这个没太大意义
 
 讲话就好好讲，我还以为她冠了，原来是洋葱<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 12162#       发表于 2022-7-27 16:50
+
+只要完整打完疫苗基本没啥大事
+
