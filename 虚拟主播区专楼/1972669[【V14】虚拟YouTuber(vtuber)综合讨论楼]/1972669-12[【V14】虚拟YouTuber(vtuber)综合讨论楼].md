@@ -69,3 +69,14 @@
 
 反正黛老师辞职了，再炎也就烧这几小时了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aritaatsu  
+##### 16508#       发表于 2022-7-27 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">葛爆杀，感觉只有他的part值票价，舞台设计选曲台风都赢得彻底
+
+然后心中暗暗的想fw要是solo表现力不会输的，他在rfm裡真不行
+

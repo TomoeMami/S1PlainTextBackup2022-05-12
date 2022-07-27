@@ -7774,3 +7774,32 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 给加个溢出体力自动种苹果得了。现在手动种就是脱裤子放屁
 
+
+
+*****
+
+####  czs13  
+##### 89199#       发表于 2022-7-27 19:43
+
+发错
+
+*****
+
+####  alucardcz  
+##### 89200#       发表于 2022-7-27 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827720&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-27 19:23</a>
+
+话说国服妖兰获得了限定技能本 日服干脆直接就照原样给个技能本算了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么限定技能本 详细点
+
+*****
+
+####  qixinno2  
+##### 89201#       发表于 2022-7-27 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827929&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-27 19:44</a>
+
+什么限定技能本 详细点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服妖兰三技能不会变成三破时的效果 哪怕用三破状态也是100充 现在可以妖兰杀狐加任意50拐和CD服无脑三连
+
