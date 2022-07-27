@@ -17412,3 +17412,14 @@ pay生日event上弹唱的原创曲于8月15日公开，曲名征集中
 由手机上传
 2022-7-27 19:50 上传
 
+
+
+*****
+
+####  starring  
+##### 1493#       发表于 2022-7-27 22:16
+
+刚刚理解错了信息<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">抓屏了pay生日event原创曲的视频，截取了音频，有需要的楼友可以私信我（禁止外传
+
+可以看出pay弹唱的时候非常紧张，手不停地抖，声音也是。不过这曲子真不错，如果日后再打磨一下出单曲就好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
