@@ -17233,3 +17233,14 @@ QQ音乐哪里买求指引下，我愣是没找到，实 ...</blockquote>
 我草，太恶心了，QQ音乐卖2块，然后扣我3块</blockquote>
 原来不只有我是这样，买的时候显示20个乐币，实际账单扣30个
 
+
+
+*****
+
+####  player3960  
+##### 1487#       发表于 2022-7-27 18:07
+
+QQ音乐这么坑爹，我在酷狗买的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
