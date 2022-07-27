@@ -7844,3 +7844,12 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 国服的妖兰才是完全体 到时可以用那个灵衣了
 
+
+
+*****
+
+####  J-002  
+##### 89206#       发表于 2022-7-27 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这德行还好意思嘲讽日本程序员？人家从0到1出错，你另存为都能出错
+

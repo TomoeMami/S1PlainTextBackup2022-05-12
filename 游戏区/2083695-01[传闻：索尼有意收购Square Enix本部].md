@@ -492,3 +492,12 @@ SE骑墙两头输出不是更优解？
 
 真要买FF14，那它买命运2是图什么呢，图也许可以气到巨硬和动视吗
 
+
+
+*****
+
+####  dev2ce  
+##### 62#       发表于 2022-7-27 21:02
+
+sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当Xbox跟azure云服务扯上关系，已经预示了索索的惨败
+
