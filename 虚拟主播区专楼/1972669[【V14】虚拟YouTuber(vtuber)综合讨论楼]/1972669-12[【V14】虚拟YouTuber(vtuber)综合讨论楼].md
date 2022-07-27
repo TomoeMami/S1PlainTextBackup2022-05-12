@@ -291,3 +291,14 @@ mxmk都不在乎黛灰了那黛灰为什么还要因为不知道mxmk两年前被
 
 短暂开了个团马上被锁了的梁子能记两年半甚至上升到主播本身，你们弥人心眼太小了吧<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 16529#       发表于 2022-7-28 00:00
+
+ 本帖最后由 FCCHua 于 2022-7-28 00:08 编辑 
+
+hnn在的队伍从昨天到今天第一局都是慢热输掉，后面两局再慢慢追，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
