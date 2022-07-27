@@ -17213,3 +17213,12 @@ QQ音乐哪里买求指引下，我愣是没找到，实 ...</blockquote>
 找到一篇文章
 [ホリプロ×TME×Earnestによる新会社“HT Entertainment”始動　日本のエンタメ産業における国際化の発展目指す](https://realsound.jp/2022/07/post-1081767.html)：[https://realsound.jp/2022/07/post-1081767.html](https://realsound.jp/2022/07/post-1081767.html)
 
+
+
+*****
+
+####  lj205  
+##### 1485#       发表于 2022-7-27 17:36
+
+我草，太恶心了，QQ音乐卖2块，然后扣我3块
+

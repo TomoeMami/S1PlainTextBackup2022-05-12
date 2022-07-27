@@ -7578,3 +7578,15 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  exiaexa  
+##### 89181#       发表于 2022-7-27 17:31
+
+好消息：不是齿轮，有煌星
+
+坏消息：TM的是书页
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
