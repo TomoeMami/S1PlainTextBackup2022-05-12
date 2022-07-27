@@ -155,3 +155,22 @@
 
 往好处想至少v们私下想联系还是都能联系的！没有我们那么绝望！<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 16517#       发表于 2022-7-27 21:10
+
+myy这还差一半人呢，岂不是还要播5小时起.....
+
+*****
+
+####  Porsche  
+##### 16518#       发表于 2022-7-27 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56828362&amp;ptid=1972669" target="_blank">gaiadc 发表于 2022-7-27 20:23</a>
+最离谱的是，甲子园那么大，这些人打本垒打和打着玩一样</blockquote>
+金属棒子是这样的，只要打到甜点就能飞出去
+所以很多人进了职棒换成木的都不习惯了
+
