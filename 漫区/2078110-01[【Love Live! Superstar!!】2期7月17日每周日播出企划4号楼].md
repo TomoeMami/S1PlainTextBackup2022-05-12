@@ -17222,3 +17222,14 @@ QQ音乐哪里买求指引下，我愣是没找到，实 ...</blockquote>
 
 我草，太恶心了，QQ音乐卖2块，然后扣我3块
 
+
+
+*****
+
+####  starring  
+##### 1486#       发表于 2022-7-27 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56826370&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-27 17:36</a>
+我草，太恶心了，QQ音乐卖2块，然后扣我3块</blockquote>
+原来不只有我是这样，买的时候显示20个乐币，实际账单扣30个
+
