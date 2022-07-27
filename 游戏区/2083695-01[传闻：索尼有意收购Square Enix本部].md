@@ -514,3 +514,17 @@ sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rainsheep  
+##### 64#       发表于 2022-7-27 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56829469&amp;ptid=2083695" target="_blank">大暴死 发表于 2022-7-27 21:56</a>
+
+虽然但是，应该是100倍吧
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+先出的是75亿收b社的消息
+

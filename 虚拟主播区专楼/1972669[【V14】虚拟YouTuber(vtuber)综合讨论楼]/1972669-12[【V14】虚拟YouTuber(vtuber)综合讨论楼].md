@@ -217,3 +217,25 @@ myy这还差一半人呢，岂不是还要播5小时起.....
 mother队真的抗压，第一局被对面一号位无双之后硬拿回两局。
 <img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">sumire和nazuna几个残局的超水平发挥看的好紧张。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16523#       发表于 2022-7-27 22:53
+
+mxmk被烧是因为烤肉拖了半年吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16524#       发表于 2022-7-27 22:59
+
+我们回B综<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl，月奈回来以后感觉嗓子不如以前了
+
+耐力也大减
+
+小男友轻点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

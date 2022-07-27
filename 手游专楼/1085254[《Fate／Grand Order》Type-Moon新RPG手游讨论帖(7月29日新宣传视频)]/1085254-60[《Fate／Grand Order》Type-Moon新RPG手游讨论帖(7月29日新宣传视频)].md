@@ -7870,3 +7870,12 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还有宝具本图标
 
+
+
+*****
+
+####  alucardcz  
+##### 89208#       发表于 2022-7-27 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来明天是杀生院？  3护符你别不知好歹
+
