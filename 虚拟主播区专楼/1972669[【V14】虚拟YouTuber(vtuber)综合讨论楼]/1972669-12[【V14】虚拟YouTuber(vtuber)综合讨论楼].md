@@ -239,3 +239,15 @@ syl，月奈回来以后感觉嗓子不如以前了
 
 小男友轻点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16525#       发表于 2022-7-27 23:02
+
+↑那理亏的也不是黛灰粉吧，至于过了两年还梁木在心这个时候跑出来刺一句吗<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+我还特意去翻了下nga那时候的vr楼，讨论只有两三页也没有黛灰粉去黑屁mxmk，只有我跑去辩解了两句没到“黛灰粉试图炎上mxmk”那么严重<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+[https://bbs.nga.cn/read.php?tid=18016552&amp;page=554](https://bbs.nga.cn/read.php?tid=18016552&amp;page=554)
+

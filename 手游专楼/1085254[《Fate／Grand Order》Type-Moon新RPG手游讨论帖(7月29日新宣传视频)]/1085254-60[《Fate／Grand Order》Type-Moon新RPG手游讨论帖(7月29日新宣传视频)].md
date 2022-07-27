@@ -7879,3 +7879,17 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来明天是杀生院？  3护符你别不知好歹
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89209#       发表于 2022-7-27 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56828901&amp;ptid=1085254" target="_blank">J-002 发表于 2022-7-27 21:07</a>
+
+就这德行还好意思嘲讽日本程序员？人家从0到1出错，你另存为都能出错 ...</blockquote>
+bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就是上市公司的水平嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前把一些英文换成中文，换完之后一堆字符的位置都歪了，怎么这点事都做不好呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
