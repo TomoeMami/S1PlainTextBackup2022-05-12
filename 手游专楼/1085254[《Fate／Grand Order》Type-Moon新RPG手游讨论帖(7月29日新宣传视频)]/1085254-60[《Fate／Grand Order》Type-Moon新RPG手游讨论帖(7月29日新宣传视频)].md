@@ -7681,3 +7681,46 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 为了更加便利，我奶一个“每天前三次副本可扫荡”好了...
 
+
+
+*****
+
+####  alucardcz  
+##### 89191#       发表于 2022-7-27 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827478&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-27 19:03</a>
+
+七周年新展望么...虽然已经有种苹果这个保存体力的机制，但是每日三次的通关奖励绿方块任务还得做。
+
+为了更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如直接种苹果给绿方块
+
+*****
+
+####  Jamaisvu  
+##### 89192#       发表于 2022-7-27 19:20
+
+对了，我上次和人聊天，想了一个特别恶毒的FGO更新内容<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+圣杯战线常驻化，奖励缩水，每周刷新一次，通关全部七个关卡后奖励圣杯碎片一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（放心，只是毒奶罢了，运营没病是不会干这种恶心人还减少长草期内容的事...）
+
+*****
+
+####  仰望神的括约肌  
+##### 89193#       发表于 2022-7-27 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想啥期望 想了个大活 周年从者新绿拐狮子头 宝具动画跟新娘马修手拉手放黑枪礼炮
+
+马修新娘灵衣 卡面跟狮子头满破卡面搭配成情侣照
+
+街机落地独占人王+泳装艾蕾
+
+*****
+
+####  qixinno2  
+##### 89194#       发表于 2022-7-27 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说国服妖兰获得了限定技能本 日服干脆直接就照原样给个技能本算了
+

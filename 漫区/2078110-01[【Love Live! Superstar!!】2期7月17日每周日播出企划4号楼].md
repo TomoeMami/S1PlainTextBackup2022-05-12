@@ -17264,3 +17264,27 @@ QQ音乐这么坑爹，我在酷狗买的<img src="https://static.saraba1st.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  a92063256  
+##### 1490#       发表于 2022-7-27 19:22
+
+我qq音乐用微信支付是付了两块钱，我没开会员
+
+*****
+
+####  starring  
+##### 1491#       发表于 2022-7-27 19:23
+
+pay生日event上弹唱的原创曲于8月15日公开，曲名征集中
+
+<img src="https://img.saraba1st.com/forum/202207/27/192324kozhzha4kd6edd84.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5D5A398A-BEA4-4041-BCD5-7300676D3325.jpeg</strong> (178.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-27 19:23 上传
+
