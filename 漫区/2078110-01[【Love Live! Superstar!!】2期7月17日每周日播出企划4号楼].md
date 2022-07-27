@@ -16972,3 +16972,40 @@ YonYon
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 1461#       发表于 2022-7-27 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是三单了，鱼就是唱而已
+
+*****
+
+####  仟音一心  
+##### 1462#       发表于 2022-7-27 10:53
+
+<img src="https://img.saraba1st.com/forum/202207/27/105306fqxxn0r4fxwvvf3x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2ACA9E61-CBE4-4AB6-AD10-BD8CD94B4F7D.jpeg</strong> (205.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-27 10:53 上传
+
+*****
+
+####  aoaoaodedede  
+##### 1463#       发表于 2022-7-27 10:56
+
+QQ音乐上写的HT Entertainment这个唱片公司，随便搜了一下，它那个地址好像也是Horipro的地址，感觉可能是Horipro的子公司，这歌估计和JUVENILE去年合作的ミラールージュ那歌情况差不多
+
+*****
+
+####  离心  
+##### 1464#       发表于 2022-7-27 10:59
+
+艹，网抑云输麻了
+
