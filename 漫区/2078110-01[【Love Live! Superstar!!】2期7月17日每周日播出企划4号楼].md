@@ -16932,3 +16932,25 @@ qq音乐偷跑还行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么是qq音乐偷跑
 
+
+
+*****
+
+####  player3960  
+##### 1457#       发表于 2022-7-27 10:30
+
+好听，难得的中文歌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saya1892  
+##### 1458#       发表于 2022-7-27 10:38
+
+YonYon
+
+本名、鄭 映恩。コトバセレクトのフロントマン。ライブ時にはボーカルを務める。10年前に韓国から日本へ来日し、2008年からソロボーカルとして活動を始め、現在はコトバセレクトのバンドボーカルとして活動している。そのかたわら、クラブではHOUSEを軸に2012年6月からDJ YonYonとして活動を開始。8月には自身のパーティー「FEET OFF THE FLOOR」を立ち上げ、無名DJのラインナップにも関わらず、第２回目にしてWOMBの平日デイイベントに約600名を集めるという大成功を収めた。
+
+这人还会中文？
+

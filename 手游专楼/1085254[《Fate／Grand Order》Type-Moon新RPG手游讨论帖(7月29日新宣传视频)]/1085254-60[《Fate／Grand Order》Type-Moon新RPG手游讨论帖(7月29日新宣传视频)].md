@@ -7566,3 +7566,15 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 这两天谷歌有纪念活动，10倍积分，建议提前氪金</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而我废狗移去IOS那边了，傻逼玩意儿到现在都还是废物引继码不能多端末登录
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89180#       发表于 2022-7-27 10:35
+
+【《Fate/EXTRA》重制版《Fate/EXTRA Record》最新宣传影片-哔哩哔哩】 https://b23.tv/3oPLmGu
+原来这东西还是有动静的啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
