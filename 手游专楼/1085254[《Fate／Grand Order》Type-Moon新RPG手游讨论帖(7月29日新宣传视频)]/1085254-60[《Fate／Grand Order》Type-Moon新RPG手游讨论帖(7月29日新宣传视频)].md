@@ -7619,3 +7619,43 @@ syl 这次狩猎开始搞两种素材搭配了啊，今天是黑兽脂+齿轮，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我奶一口其中一项福利是保底从330变成320 
 
+
+
+*****
+
+####  exiaexa  
+##### 89185#       发表于 2022-7-27 18:53
+
+通用礼装突破材料和通用硬币2选1吧
+
+我就不用考虑给王姐6宝了，礼装突破材料能拯救大量过期礼装
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89186#       发表于 2022-7-27 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">通用礼装好啊 黑杯就差一个满破
+
+*****
+
+####  alucardcz  
+##### 89187#       发表于 2022-7-27 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827382&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-27 18:53</a>
+
+通用礼装突破材料和通用硬币2选1吧
+
+我就不用考虑给王姐6宝了，礼装突破材料能拯救大量过期礼装
+
+ ...</blockquote>
+通用礼装突破材料不可能的 太强了  给你个通用从者宝具材料好不好（扣一点 再加个限制只能对着1宝使用）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89188#       发表于 2022-7-27 18:58
+
+今天的阴间本和昨天一样都可以用妖兰刷，一面带NP礼装（我用的是机娘玛尔达那张）一技能充能放单体宝具，二面三技能变身+双杀狐红buff，三面杀狐充能减冷却+自身一三技能+衣服加攻，二宝打三十多万应该没问题。
+
