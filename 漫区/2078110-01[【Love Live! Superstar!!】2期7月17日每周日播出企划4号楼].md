@@ -17094,3 +17094,26 @@ qq音乐这歌两块钱，鱼能拿多少
 
 不过总算有中文歌了，谢谢经济公司，喜茶不考虑联动吗？这么适合夏天的歌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 1474#       发表于 2022-7-27 12:31
+
+8月初好像有个铃木爱理的动漫歌曲活动，h社的团建，还有个音乐节，不知道能赶上哪个
+
+*****
+
+####  lj205  
+##### 1475#       发表于 2022-7-27 12:36
+
+中间那段太抓我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">come with me~ come with me~ come with me~ come with me~
+
+*****
+
+####  starring  
+##### 1476#       发表于 2022-7-27 12:39
+
+Juvenile写给鲤鱼的几首歌都很对自己口味，这次的新歌也不例外，听一次就记住旋律了（忘带耳机上班只能脑内循环<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
