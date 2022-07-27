@@ -437,3 +437,29 @@ mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人�
 
 syl 郡道什么人半夜来排凸待
 
+
+
+*****
+
+####  暮星弥空  
+##### 16540#       发表于 2022-7-28 07:10
+
+ 本帖最后由 暮星弥空 于 2022-7-28 07:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56831169&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-28 01:00</a>
+按这件事发生时的势力也是弥人踩头啊，问题是过去两年半了诶，两年半了！事到如今因为有粉夸一句他照顾后 ...</blockquote>
+老荣耀就是个喜欢引战和恶心人的东西，请你不要把他当成弥人<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天球仪观测者  
+##### 16541#       发表于 2022-7-28 07:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老荣耀你又在帆船辣
+
+*****
+
+####  lhawp  
+##### 16542#       发表于 2022-7-28 07:15
+
+久违地听到了月之的声音，这夜算是熬得值了
+
