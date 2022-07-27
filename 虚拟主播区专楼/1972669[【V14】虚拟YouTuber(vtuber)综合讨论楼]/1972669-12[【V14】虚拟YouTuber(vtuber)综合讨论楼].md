@@ -353,3 +353,20 @@ mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人�
 
 事情都过去两年半两边都没人再提过这事了事到如今我夸黛灰一句照顾后辈你就非要跳出来刺一句可是他都不知道后辈因为和他联动被炎过耶，这还不算在乎啊？你去nga走廊直球开团倒是看看大家跟着你骂黛粉还是觉得你没事找事啊？
 
+
+
+*****
+
+####  poipanchao  
+##### 16534#       发表于 2022-7-28 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56831087&amp;ptid=1972669" target="_blank">fastary 发表于 2022-7-28 00:47</a>
+
+mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人家记两年那不就是皇上不急太监急
+
+事情都 ...</blockquote>
+恩……我觉得按照现在nga的势力分布来看
+
+应该是弥人踩头，人多就是硬道理
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
