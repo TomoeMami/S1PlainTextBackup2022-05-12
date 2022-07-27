@@ -337,3 +337,19 @@ mxmk不在乎所以我也不能在乎吗？什么逻辑？
 myy那边怎么还没有到项羽，我等了好久......</blockquote>
 不见得会去 明天有blues联动 今天先上个香明天联动不知道怎么面对了
 
+
+
+*****
+
+####  fastary  
+##### 16533#       发表于 2022-7-28 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56830901&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-7-28 00:12</a>
+
+mxmk不在乎所以我也不能在乎吗？什么逻辑？
+
+而且我在v综发个回复算什么在乎，真在乎应该直接去nga走廊直 ...</blockquote>
+mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人家记两年那不就是皇上不急太监急<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+事情都过去两年半两边都没人再提过这事了事到如今我夸黛灰一句照顾后辈你就非要跳出来刺一句可是他都不知道后辈因为和他联动被炎过耶，这还不算在乎啊？你去nga走廊直球开团倒是看看大家跟着你骂黛粉还是觉得你没事找事啊？
+
