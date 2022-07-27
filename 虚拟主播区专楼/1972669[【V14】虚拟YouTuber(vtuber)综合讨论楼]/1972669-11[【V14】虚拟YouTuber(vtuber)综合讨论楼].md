@@ -16021,3 +16021,12 @@ Syl，希望将来nijiEN3D化之后，有把Pomu和Nina锁在在房间一整天�
 
 想了下将来郡道毕业有没有像最近的黛灰粉这样爽吃断头饭的机会，发现好像至少得死者苏生五人以上，还是好好播算了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16491#       发表于 2022-7-27 08:54
+
+看到黑客搞生前葬还有僧侣粉丝给他搞通夜式，真是什V什粉…(褒义)
+
