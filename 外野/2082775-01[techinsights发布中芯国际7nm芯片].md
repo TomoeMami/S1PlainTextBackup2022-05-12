@@ -879,3 +879,17 @@ n+1和n+2早就有了，在业内也算常识了吧。
 军用要个屁的14nm，140nm都不一定有</blockquote>
 倒不是不需要，而是目前还没必要，高级制程对缩小体积降低功耗还是有好处的，单兵开挂不香嘛……
 
+
+
+*****
+
+####  wqmq2008  
+##### 89#       发表于 2022-7-28 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834865&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-28 11:27</a>
+
+微博都在疯传28NM工程样机出炉</blockquote>
+非浸没的arf duv，做不了28，65还行
+
+65稳定下来应该得两三年，乐观估计2027左右全国产能到7nm（指有能力），估计那时候能稳产28nm
+

@@ -569,3 +569,32 @@ Aia从Noctyx才知道Vtuber？大姐简历真敢投啊
 
 在和叶的凸待里提到rof-mao好像是被staff带走了，不过那几个基本这几天都有单独联动配信，感觉来也没啥必要
 
+
+
+*****
+
+####  fastary  
+##### 16554#       发表于 2022-7-28 11:44
+
+ 本帖最后由 fastary 于 2022-7-28 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834222&amp;ptid=1972669" target="_blank">Alumoberyl 发表于 2022-7-28 10:50</a>
+
+楼友还是把OldGlory拉黑吧，恶心人的东西走到哪里都是这样的</blockquote>
+说的也是，眼不见心不烦<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+差点以为弥人真记这仇了，忘了楼里还有那种就喜欢黑屁的傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+syl
+
+关系性厨真的不行，不过叶来的时候也说本来大家想昨天排练抽空打个电话来的，觉得氛围上不合适所以罢了……
+
+主要是akn都来了fw不可能不会想来，结果rfm刚开完live就被stf“绑架”走搞神秘企划去了，完全没机会来撞上公司安排确实很遗憾呀…哎反正enkr也不差因为这个被骂两句，无所谓了
+
+*****
+
+####  poipanchao  
+##### 16555#       发表于 2022-7-28 11:44
+
+比如免费的位置本来是黛灰，他死都不肯去被运营恨上了？
+黛灰这也是风光大葬了，应该没啥遗憾了
+
