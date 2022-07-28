@@ -912,3 +912,32 @@ King， 直面S
 
 开打变A了
 
+
+
+*****
+
+####  rzrbtk  
+##### 16584#       发表于 2022-7-29 00:11
+
+即使相对一期，vta二期的即战力高了不少，我还是觉得有些人会没法长期做下去，才一个月就微微有点感觉疲软了…而且佐伯居然是冷门真的无法理解观众喜好
+
+*****
+
+####  撕叁  
+##### 16585#       发表于 2022-7-29 00:12
+
+<blockquote>IL282 发表于 2022-7-28 14:16
+kyo是黑人嘛，为啥4chan老哥说他是nigger
+
+—— 来自 OnePlus IN2025, Android 12上 ...</blockquote>
+因为他明明是白人讲话却有点blaccent
+
+*****
+
+####  Ketestrait  
+##### 16586#       发表于 2022-7-29 00:16
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h4n3jahe8uj20xt0iyafj.jpg" referrerpolicy="no-referrer">
+
+king，获得捕手+2<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
