@@ -8060,3 +8060,15 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官推这几天一直在发的剪影都是什么啊，今儿的有点像阴阳师？
 
+
+
+*****
+
+####  alucardcz  
+##### 89224#       发表于 2022-7-28 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56838239&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-28 15:48</a>
+
+周年菜还要等几天才端上来啊，今年还搞什么十大么……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必须搞 什么减半 大成功还得算进去
+
