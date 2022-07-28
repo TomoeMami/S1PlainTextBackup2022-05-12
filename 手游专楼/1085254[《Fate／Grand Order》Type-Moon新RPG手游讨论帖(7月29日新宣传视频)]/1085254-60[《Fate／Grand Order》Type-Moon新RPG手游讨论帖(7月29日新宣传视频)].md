@@ -8107,3 +8107,15 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀生院不知好歹 不要了不要了
 
+
+
+*****
+
+####  qixinno2  
+##### 89229#       发表于 2022-7-28 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56839771&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-28 17:27</a>
+
+杀生院不知好歹 不要了不要了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在攒欧气了么 2石的非洲人好羡慕啊
+
