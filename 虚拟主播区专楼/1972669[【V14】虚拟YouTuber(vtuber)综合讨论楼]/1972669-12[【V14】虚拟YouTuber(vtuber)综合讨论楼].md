@@ -686,3 +686,20 @@ kyo是黑人嘛，为啥4chan老哥说他是nigger<img src="https://static.sarab
 
 4chan不是只要是个男的都会被叫泥哥么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16563#       发表于 2022-7-28 15:30
+
+ 本帖最后由 alcoholic1000 于 2022-7-28 15:38 编辑 
+
+彩虹官网进行了重置：[https://www.nijisanji.jp/](https://www.nijisanji.jp/)
+
+靠前位置增加了近期瞩目企划的概要（EVENT CALENDAR），
+
+原本メンバー改成了TALENTS，成员预览部分变成了立绘按订阅前二十顺序滚动出现（先前是随机出现一个liver）；
+
+维阿成员依旧没有更新
+
