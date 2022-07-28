@@ -8173,3 +8173,12 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不用你的氪金魔法
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89236#       发表于 2022-7-28 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏难得没什么课金的想法，反正就是一个随缘
+
