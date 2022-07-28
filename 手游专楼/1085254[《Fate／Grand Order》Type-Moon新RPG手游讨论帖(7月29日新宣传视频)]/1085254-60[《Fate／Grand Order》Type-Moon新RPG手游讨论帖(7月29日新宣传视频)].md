@@ -7976,3 +7976,27 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 突然想到一个可能，7周年的所有强化本，所有人都能打，毕竟之前回忆章节都开放了所有从者的幕间，强化本给打也不是不可能？
 
+
+
+*****
+
+####  eilot  
+##### 89217#       发表于 2022-7-28 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56837196&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-28 14:27</a>
+
+突然想到一个可能，7周年的所有强化本，所有人都能打，毕竟之前回忆章节都开放了所有从者的幕间，强化本给 ...</blockquote>
+這也好
+
+開放全部幕間及強化本，就當成送石活動之一，送石能送少一些
+
+*****
+
+####  sosgame67  
+##### 89218#       发表于 2022-7-28 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56833700&amp;ptid=1085254" target="_blank">YIIIIIno 发表于 2022-7-28 10:15</a>
+
+国服用了下杀狐，感觉作为红拐还是差点意思，只能算是红拐里面的红爆拐，起飞人数太少。奶一个七周年真·红 ...</blockquote>
+朋友你在日服楼说这是不是晚了一年<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
