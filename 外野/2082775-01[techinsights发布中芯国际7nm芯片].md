@@ -845,3 +845,37 @@ n+1和n+2早就有了，在业内也算常识了吧。
 啥时候能军用 多久能民用</blockquote>
 军用不需要这个，民用，这不就是民用吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  logiccat  
+##### 86#       发表于 2022-7-28 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56766023&amp;ptid=2082775" target="_blank">jasoncoop 发表于 2022-7-23 19:42</a>
+
+都用到矿机上了，民用也能用，就是有些应用范围恐怕还兜不住
+
+军用芯片根本不是一个标准，不追求制程，可 ...</blockquote>
+那未必，矿机是利润高，可以承受比较高的成本，良率不需要很高
+
+*****
+
+####  lvseqiji  
+##### 87#       发表于 2022-7-28 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834865&amp;ptid=2082775" target="_blank">机吉斯卡 发表于 2022-7-28 11:27</a>
+
+微博都在疯传28NM工程样机出炉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">浸润式应该还在研发阶段吧，用适用的制程来叫光刻机鬼知道是哪种
+
+*****
+
+####  logiccat  
+##### 88#       发表于 2022-7-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56772875&amp;ptid=2082775" target="_blank">犭央犭茶湖水牛 发表于 2022-7-24 09:25</a>
+
+军用要个屁的14nm，140nm都不一定有</blockquote>
+倒不是不需要，而是目前还没必要，高级制程对缩小体积降低功耗还是有好处的，单兵开挂不香嘛……
+

@@ -539,3 +539,33 @@ Aia从Noctyx才知道Vtuber？大姐简历真敢投啊
 渋ハルカスタム
 赤坂这b人真是apex魂
 
+
+
+*****
+
+####  lhawp  
+##### 16551#       发表于 2022-7-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834594&amp;ptid=1972669" target="_blank">两仪式29 发表于 2022-7-28 11:11</a>
+吐槽下，一大早在阿B的黛灰转播间看得好好的，突然一群人开始带节奏说什么ankr不让罗浮猫来参加黛灰生前葬 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是这样的吗 昨天开live那几位好像就knkn去了
+
+*****
+
+####  两仪式29  
+##### 16552#       发表于 2022-7-28 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834963&amp;ptid=1972669" target="_blank">lhawp 发表于 2022-7-28 11:33</a>
+
+难道不是这样的吗 昨天开live那几位好像就knkn去了</blockquote>
+刚开完live，太累，熟人完全可以私下再联系啊
+
+所以为啥叶就可以去，其他人不让去？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16553#       发表于 2022-7-28 11:39
+
+在和叶的凸待里提到rof-mao好像是被staff带走了，不过那几个基本这几天都有单独联动配信，感觉来也没啥必要
+
