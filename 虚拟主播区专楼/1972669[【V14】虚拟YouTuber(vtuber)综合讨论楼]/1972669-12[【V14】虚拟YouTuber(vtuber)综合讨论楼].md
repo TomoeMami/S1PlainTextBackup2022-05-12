@@ -703,3 +703,16 @@ kyo是黑人嘛，为啥4chan老哥说他是nigger<img src="https://static.sarab
 
 维阿成员依旧没有更新
 
+
+
+*****
+
+####  IL282  
+##### 16564#       发表于 2022-7-28 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56837701&amp;ptid=1972669" target="_blank">pikamee 发表于 2022-7-28 15:08</a>
+4chan不是只要是个男的都会被叫泥哥么</blockquote>
+主要直接给冠了一个Nigger Friend Experience，实在没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
