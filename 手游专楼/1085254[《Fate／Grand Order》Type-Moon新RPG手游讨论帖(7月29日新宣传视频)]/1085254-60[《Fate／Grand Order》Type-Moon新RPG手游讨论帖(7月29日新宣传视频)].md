@@ -8191,3 +8191,22 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想说三发11连捞到泳装巴御前赶紧跑路，结果后面还出了水院，这运气能延续到周年么……
 
+
+
+*****
+
+####  qixinno2  
+##### 89238#       发表于 2022-7-28 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  alucardcz  
+##### 89239#       发表于 2022-7-28 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56843455&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-28 21:39</a>
+
+刚想说三发11连捞到泳装巴御前赶紧跑路，结果后面还出了水院，这运气能延续到周年么…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人 可怕
+
