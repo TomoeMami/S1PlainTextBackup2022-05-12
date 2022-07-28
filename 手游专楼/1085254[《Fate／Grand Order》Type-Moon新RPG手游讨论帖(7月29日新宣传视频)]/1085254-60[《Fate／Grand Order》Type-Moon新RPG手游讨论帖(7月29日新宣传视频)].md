@@ -8135,3 +8135,25 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一个狩猎是两天的。看了看水院的up里没带紫式部，等明天的水阿比池子出来后对比下再抽了
 
+
+
+*****
+
+####  areklose  
+##### 89232#       发表于 2022-7-28 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56841031&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-28 18:59</a>
+
+最后一个狩猎是两天的。看了看水院的up里没带紫式部，等明天的水阿比池子出来后对比下再抽了 ...</blockquote>
+没有水阿比池子。这次泳装妇科都是缺斤少两得。同期得另外一个都没。例如狐狸，尼禄 武藏。。四星也缺。例如莉莉丝什么
+
+*****
+
+####  alucardcz  
+##### 89233#       发表于 2022-7-28 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56841031&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-28 18:59</a>
+
+最后一个狩猎是两天的。看了看水院的up里没带紫式部，等明天的水阿比池子出来后对比下再抽了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 今天是最后一个up
+
