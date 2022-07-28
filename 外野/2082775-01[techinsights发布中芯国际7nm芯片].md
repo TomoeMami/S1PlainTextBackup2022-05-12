@@ -974,3 +974,17 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 但你没有euv，怎么验证迭代euv光刻胶呢。</blockquote>
 没有EUV光刻机不代表没有EUV光源，光刻胶又不是一定要装到光刻机上验证
 
+
+
+*****
+
+####  机吉斯卡  
+##### 98#       发表于 2022-7-28 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56835120&amp;ptid=2082775" target="_blank">wqmq2008 发表于 2022-7-28 11:44</a>
+
+非浸没的arf duv，做不了28，65还行
+
+65稳定下来应该得两三年，乐观估计2027左右全国产能到7nm（指有能力 ...</blockquote>
+浸没的听说也在弄，反正慢慢来就是
+
