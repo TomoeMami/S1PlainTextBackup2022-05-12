@@ -8072,3 +8072,38 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 周年菜还要等几天才端上来啊，今年还搞什么十大么……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必须搞 什么减半 大成功还得算进去
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89225#       发表于 2022-7-28 17:23
+
+好神秘啊，除了一个维护公告啥都没有<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  YIIIIIno  
+##### 89226#       发表于 2022-7-28 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56837348&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-7-28 14:39</a>
+
+朋友你在日服楼说这是不是晚了一年</blockquote>
+这不日服还没周年呢么，XJB奶一下罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89227#       发表于 2022-7-28 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟这可是手游标配的1付费石单抽都能当福利的那个礼装GO啊
+
+*****
+
+####  alucardcz  
+##### 89228#       发表于 2022-7-28 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀生院不知好歹 不要了不要了
+
