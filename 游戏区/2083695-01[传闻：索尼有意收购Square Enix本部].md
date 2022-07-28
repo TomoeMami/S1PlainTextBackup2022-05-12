@@ -528,3 +528,21 @@ sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.
 —— 来自 Xiaomi M2102K1C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 先出的是75亿收b社的消息
 
+
+
+*****
+
+####  竹隐达  
+##### 65#       发表于 2022-7-28 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">全是欧米高层的索尼收购SE，那种事情不要啊！
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  冰狼芬里尔  
+##### 66#       发表于 2022-7-28 08:46
+
+理论上索尼其实是美国公司吧
+
