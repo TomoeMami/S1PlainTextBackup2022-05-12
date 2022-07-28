@@ -7953,3 +7953,17 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 周年只想优化一下抽卡体验。例如该死的四星单UP有没有通过其他方式补偿回来。罗兰和克嫂在一个池子是我今年最大的噩梦。
 
+
+
+*****
+
+####  alucardcz  
+##### 89215#       发表于 2022-7-28 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56836524&amp;ptid=1085254" target="_blank">eilot 发表于 2022-7-28 13:28</a>
+
+不要太貪心
+
+所有角色都能出幕間及強化就足夠了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这叫不贪心?你这是要了yls的命！
+
