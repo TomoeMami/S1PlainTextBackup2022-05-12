@@ -8032,3 +8032,31 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 至於技覺或寶具強化對遊戲平衡是甚麼來?吃得嗎?
 
+
+
+*****
+
+####  alucardcz  
+##### 89221#       发表于 2022-7-28 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56837306&amp;ptid=1085254" target="_blank">eilot 发表于 2022-7-28 14:36</a>
+
+這也好
+
+開放全部幕間及強化本，就當成送石活動之一，送石能送少一些</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全图鉴的大佬反手就给你一个耳光
+
+*****
+
+####  霧谷藤乃  
+##### 89222#       发表于 2022-7-28 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周年菜还要等几天才端上来啊，今年还搞什么十大么……
+
+*****
+
+####  霧谷藤乃  
+##### 89223#       发表于 2022-7-28 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官推这几天一直在发的剪影都是什么啊，今儿的有点像阴阳师？
+
