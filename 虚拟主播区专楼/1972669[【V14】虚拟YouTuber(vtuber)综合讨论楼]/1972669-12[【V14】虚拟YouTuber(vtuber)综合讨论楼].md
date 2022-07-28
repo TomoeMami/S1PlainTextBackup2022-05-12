@@ -598,3 +598,29 @@ syl
 比如免费的位置本来是黛灰，他死都不肯去被运营恨上了？
 黛灰这也是风光大葬了，应该没啥遗憾了
 
+
+
+*****
+
+####  毛头小希  
+##### 16556#       发表于 2022-7-28 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56835133&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-7-28 11:44</a>
+
+比如免费的位置本来是黛灰，他死都不肯去被运营恨上了？
+
+黛灰这也是风光大葬了，应该没啥遗憾了 ...</blockquote>
+草不要真的把这个让人浮想联翩的猜想说出来啊，我从罗浮猫结成那天就拼命不去想的事情都被你唤醒了<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+不过不知道黛灰这几场生前葬的香火钱累计超tskk的记录没有
+
+早上看到串搬运那边说是快超了
+
+还是希望能手下留情一些给周末3D的豆猫留点关注度
+
+豆猫最近真的霉运连天
+
+包括这个3D安排的日期也有点那什么
+
+不过看看其他人我觉得他别生病我就满足了
+
