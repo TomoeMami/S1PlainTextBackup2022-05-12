@@ -521,3 +521,21 @@ Aia从Noctyx才知道Vtuber？大姐简历真敢投啊
 按这件事发生时的势力也是弥人踩头啊，问题是过去两年半了诶，两年半了！事到如今因为有粉夸一句他照顾后 ...</blockquote>
 楼友还是把OldGlory拉黑吧，恶心人的东西走到哪里都是这样的
 
+
+
+*****
+
+####  两仪式29  
+##### 16549#       发表于 2022-7-28 11:11
+
+吐槽下，一大早在阿B的黛灰转播间看得好好的，突然一群人开始带节奏说什么ankr不让罗浮猫来参加黛灰生前葬，开始骂，是真的有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kokichi  
+##### 16550#       发表于 2022-7-28 11:12
+
+<img src="https://p.sda1.dev/6/7134fe0dc812a9c1fac46d9e7bcb8497/CMP_20220728121025800.jpg" referrerpolicy="no-referrer">
+渋ハルカスタム
+赤坂这b人真是apex魂
+
