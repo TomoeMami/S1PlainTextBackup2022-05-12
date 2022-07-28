@@ -913,3 +913,17 @@ n+1和n+2早就有了，在业内也算常识了吧。
 倒不是不需要，而是目前还没必要，高级制程对缩小体积降低功耗还是有好处的，单兵开挂不香嘛…… ...</blockquote>
 稳定性差啊，太小容易震一震就凉凉
 
+
+
+*****
+
+####  profh2  
+##### 92#       发表于 2022-7-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56835120&amp;ptid=2082775" target="_blank">wqmq2008 发表于 2022-7-28 11:44</a>
+
+非浸没的arf duv，做不了28，65还行
+
+65稳定下来应该得两三年，乐观估计2027左右全国产能到7nm（指有能力 ...</blockquote>
+65nm工艺足够覆盖绝大部分的工业及生产力芯片（非移动设备）了，初步缓解卡脖子问题
+
