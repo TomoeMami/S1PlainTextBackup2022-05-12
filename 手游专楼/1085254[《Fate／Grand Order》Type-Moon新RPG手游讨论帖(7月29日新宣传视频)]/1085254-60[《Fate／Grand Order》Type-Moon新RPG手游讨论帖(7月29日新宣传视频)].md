@@ -8157,3 +8157,19 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 最后一个狩猎是两天的。看了看水院的up里没带紫式部，等明天的水阿比池子出来后对比下再抽了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 今天是最后一个up
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89234#       发表于 2022-7-28 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么会这样！这也太可恶了，雷太画风虽然不算喜欢，但水着寡妇还是想要的啊
+
+*****
+
+####  qixinno2  
+##### 89235#       发表于 2022-7-28 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不用你的氪金魔法
+
