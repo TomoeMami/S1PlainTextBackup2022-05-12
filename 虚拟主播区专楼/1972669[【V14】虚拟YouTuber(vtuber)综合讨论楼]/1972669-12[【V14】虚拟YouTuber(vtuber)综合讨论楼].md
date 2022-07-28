@@ -770,3 +770,19 @@ myy直播间这气氛沉寂的，仿佛在等最后的爆发......
 
 mother队看的好爽<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">真没想到能拿下优胜候补的シスコ队
 
+
+
+*****
+
+####  fastary  
+##### 16571#       发表于 2022-7-28 23:01
+
+我不行了这ed我……啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 16572#       发表于 2022-7-28 23:09
+
+看到有人趁着myy还在新页面的时候，截图新页面了。
+
