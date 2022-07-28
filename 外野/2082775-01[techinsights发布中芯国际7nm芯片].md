@@ -1058,3 +1058,15 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 美国网站上大字标题：抄台积电的，那这样看来成品可能不错，毕竟美国三板斧就是首先中国的不行，如果中国的 ...</blockquote>
 因为高端如7nm芯片刨去研发专利金融成本只算工厂电及工资，那利润得8成以上（就算算上那些如in两家利润都6成多呢，虽然矿机芯片到不了那卖设计的价格）。所以良率低一半，造一片扔两片练手都是能把价格打下来的。so那三条都部分真的，但也够慌的了。
 
+
+
+*****
+
+####  zerocount  
+##### 106#       发表于 2022-7-28 14:51
+
+[https://bbs.saraba1st.com/2b/thread-2017719-1-1.html](https://bbs.saraba1st.com/2b/thread-2017719-1-1.html)
+
+虽然不知道有关无关
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
