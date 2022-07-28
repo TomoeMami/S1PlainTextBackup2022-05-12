@@ -1088,3 +1088,15 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 
 别说7nm，就是能大量产12nm都是好事好吧
 
+
+
+*****
+
+####  profh2  
+##### 109#       发表于 2022-7-28 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56836254&amp;ptid=2082775" target="_blank">飞侠小黑 发表于 2022-7-28 13:09</a>
+
+ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不是它一个，和ASML是不是一个好公司没有关系。何 ...</blockquote>
+你看那作者的身份，应该就是ASML在华的员工，屁股文章
+
