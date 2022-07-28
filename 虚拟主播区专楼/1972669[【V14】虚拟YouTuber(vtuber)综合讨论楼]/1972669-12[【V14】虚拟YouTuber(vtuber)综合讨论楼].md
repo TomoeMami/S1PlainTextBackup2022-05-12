@@ -884,3 +884,20 @@ hnn打cpt队，1v4<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 葛皇虽然玩的整活，但是这个从一垒盗到三垒看的是真爽
 
+
+
+*****
+
+####  Suny08  
+##### 16581#       发表于 2022-7-28 23:33
+
+我一直挺看好king这队，甚至我觉得正赛西西也不一定打得过king，绝对的保小组第二争第一，另外豆猫我也挺看好的，这么多魔物后两年绝对起飞好吧，说不定正赛就把皇女和社长宰了
+
+*****
+
+####  Kokichi  
+##### 16582#       发表于 2022-7-28 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">daruma13-3cpt，我奶了个啥。
+今天vspo都是高光，枪民落泪了。
+

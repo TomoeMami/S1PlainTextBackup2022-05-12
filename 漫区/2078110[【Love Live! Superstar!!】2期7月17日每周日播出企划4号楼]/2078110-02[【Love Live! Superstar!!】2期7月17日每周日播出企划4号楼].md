@@ -124,3 +124,21 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
  ...</blockquote>
 意难平
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1512#       发表于 2022-7-28 23:35
+
+第二季再不给个人回说不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1513#       发表于 2022-7-28 23:37
+
+鲤鱼的中文教室和菜宝的中文教室，很好奇风格会变成什么样w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
