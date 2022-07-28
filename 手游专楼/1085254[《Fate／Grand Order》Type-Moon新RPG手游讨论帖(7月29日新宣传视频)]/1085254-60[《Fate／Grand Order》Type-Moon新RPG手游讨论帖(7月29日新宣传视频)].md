@@ -7967,3 +7967,12 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 所有角色都能出幕間及強化就足夠了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这叫不贪心?你这是要了yls的命！
 
+
+
+*****
+
+####  khxooo  
+##### 89216#       发表于 2022-7-28 14:27
+
+突然想到一个可能，7周年的所有强化本，所有人都能打，毕竟之前回忆章节都开放了所有从者的幕间，强化本给打也不是不可能？
+

@@ -1031,3 +1031,19 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 
 给矿老13699一张卡，有利可图，立马量产出货
 
+
+
+*****
+
+####  两个字  
+##### 103#       发表于 2022-7-28 14:23
+
+矿老板推动科技发展了，属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 104#       发表于 2022-7-28 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">挖矿救国是吧
+
