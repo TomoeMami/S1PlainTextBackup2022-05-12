@@ -481,3 +481,12 @@ hnn居然去凸待了<img src="https://static.saraba1st.com/image/smiley/face201
  mxmk都不在乎了你在乎有什么意义？正主都忘了粉丝还要替人家记两年那不就是皇上不急太监急 事情都 ...</blockquote>
 给大家科普正确的历史记忆不就是意义了吗，你看楼上就有以为mxmk烤肉不积极才被烧的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 16545#       发表于 2022-7-28 08:03
+
+那我正确记忆一下，当时是阿弥弥和myy联动的时候接话能力有点ky，才导致被烧的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为当时我在看而且个人观感也不是太好，所以有点印象。虽然我记得其实没有烧的很严重。
+
