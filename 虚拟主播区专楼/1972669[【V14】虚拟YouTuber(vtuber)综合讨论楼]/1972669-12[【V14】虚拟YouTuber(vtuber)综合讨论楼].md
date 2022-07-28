@@ -646,3 +646,23 @@ syl
 
 比较有意思的一点是，作为一个坚持不开sc的异类，确在离开时创造了社内多项sc记录<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  你谁  
+##### 16559#       发表于 2022-7-28 12:22
+
+不是很正常 我唯一的印象就是黑客3d会有sc 刚刚看了一下都是2年前了 停sc的时间也差不多  
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  两仪式29  
+##### 16560#       发表于 2022-7-28 12:29
+
+另外这次凸待我虽然只看了一小部分，给我感觉比较有意思的一点是，很多人再拼命触及黛灰rp外的东西，比如毕业以后联系方式啦之类的话题，感觉黛灰自己也有点绷不住了，开始还回应说这些不适合放到台面上来讲，后来好像也无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
