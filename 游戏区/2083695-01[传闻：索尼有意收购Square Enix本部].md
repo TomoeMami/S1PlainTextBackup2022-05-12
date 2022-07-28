@@ -564,3 +564,21 @@ sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就游戏阵容来看我觉得SEGA跟索尼更亲
 
+
+
+*****
+
+####  唯美924  
+##### 69#       发表于 2022-7-28 10:52
+
+ 本帖最后由 唯美924 于 2022-7-28 10:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">收了再说嘛，真收了能不能让SE复活一下SCEJ的那些老日式IP啊，荒野兵器亚克传承啥的
+
+*****
+
+####  jakelee1985  
+##### 70#       发表于 2022-7-28 11:00
+
+SE现在出一个FF都要五六年，索尼哪有那么多钱给你耗，现在FF单平台又不是什么惊人销量
+

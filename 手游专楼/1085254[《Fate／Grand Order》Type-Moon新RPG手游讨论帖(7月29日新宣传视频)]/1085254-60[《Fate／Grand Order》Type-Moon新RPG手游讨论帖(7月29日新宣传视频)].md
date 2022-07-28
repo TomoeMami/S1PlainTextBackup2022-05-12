@@ -7921,3 +7921,15 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 近来出了那么多绿宝具，但凡脑子正常点今年也该出绿拐了
 
+
+
+*****
+
+####  里村紅葉  
+##### 89212#       发表于 2022-7-28 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56834038&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-28 10:39</a>
+
+近来出了那么多绿宝具，但凡脑子正常点今年也该出绿拐了</blockquote>
+你游运营脑子什么时候正常过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
