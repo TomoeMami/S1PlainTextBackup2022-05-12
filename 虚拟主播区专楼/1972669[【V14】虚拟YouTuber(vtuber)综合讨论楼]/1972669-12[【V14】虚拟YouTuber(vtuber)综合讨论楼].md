@@ -716,3 +716,21 @@ kyo是黑人嘛，为啥4chan老哥说他是nigger<img src="https://static.sarab
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 16565#       发表于 2022-7-28 19:51
+
+天开司这新mv动画好神啊，一看制作人是老熟人了，不愧是你（）
+
+*****
+
+####  IL282  
+##### 16566#       发表于 2022-7-28 19:54
+
+Maria直接种5个小时田耐久可还行
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
