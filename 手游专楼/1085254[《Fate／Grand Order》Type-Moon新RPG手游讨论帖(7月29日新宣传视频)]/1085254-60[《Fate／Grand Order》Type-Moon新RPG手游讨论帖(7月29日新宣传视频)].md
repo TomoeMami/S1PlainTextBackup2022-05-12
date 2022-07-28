@@ -8210,3 +8210,15 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 刚想说三发11连捞到泳装巴御前赶紧跑路，结果后面还出了水院，这运气能延续到周年么…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人 可怕
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89240#       发表于 2022-7-28 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56843528&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-28 21:45</a>
+
+欧洲人 可怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">感觉月底里版FGO对魔忍RPG的就要还债了，只不过视情况可以选择不下池
+
