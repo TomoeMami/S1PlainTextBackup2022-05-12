@@ -7933,3 +7933,14 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 近来出了那么多绿宝具，但凡脑子正常点今年也该出绿拐了</blockquote>
 你游运营脑子什么时候正常过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 89213#       发表于 2022-7-28 13:28
+
+不要太貪心
+
+所有角色都能出幕間及強化就足夠了
+
