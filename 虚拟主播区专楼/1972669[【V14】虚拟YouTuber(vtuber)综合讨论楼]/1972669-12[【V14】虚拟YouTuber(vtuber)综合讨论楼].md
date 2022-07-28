@@ -901,3 +901,14 @@ hnn打cpt队，1v4<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">daruma13-3cpt，我奶了个啥。
 今天vspo都是高光，枪民落泪了。
 
+
+
+*****
+
+####  Ketestrait  
+##### 16583#       发表于 2022-7-28 23:45
+
+King， 直面S
+
+开打变A了
+

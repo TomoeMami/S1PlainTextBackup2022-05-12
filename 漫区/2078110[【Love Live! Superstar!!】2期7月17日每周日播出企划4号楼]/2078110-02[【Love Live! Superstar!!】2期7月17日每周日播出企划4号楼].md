@@ -142,3 +142,14 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  竹筷  
+##### 1514#       发表于 2022-7-28 23:41
+
+可可这个中文讲座意外的好正经
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
