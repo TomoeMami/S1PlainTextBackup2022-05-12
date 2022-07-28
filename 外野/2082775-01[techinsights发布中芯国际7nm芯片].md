@@ -816,3 +816,32 @@ n+1和n+2早就有了，在业内也算常识了吧。
 数字电路不至于，模拟电路140纳米倒是随便整</blockquote>
 反正asic堆呗。真要快加法器乘法器开始就优化<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  机吉斯卡  
+##### 83#       发表于 2022-7-28 11:27
+
+微博都在疯传28NM工程样机出炉
+
+*****
+
+####  飞侠小黑  
+##### 84#       发表于 2022-7-28 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56763878&amp;ptid=2082775" target="_blank">asuss 发表于 2022-7-23 16:30</a>
+
+美国网站上大字标题：抄台积电的，那这样看来成品可能不错，毕竟美国三板斧就是首先中国的不行，如果中国的 ...</blockquote>
+还能通过国家安全这个问题把中国行的公司给制裁掉 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞侠小黑  
+##### 85#       发表于 2022-7-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56764721&amp;ptid=2082775" target="_blank">不思者嗷呜 发表于 2022-7-23 17:45</a>
+
+啥时候能军用 多久能民用</blockquote>
+军用不需要这个，民用，这不就是民用吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
