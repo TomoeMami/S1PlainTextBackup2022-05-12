@@ -1070,3 +1070,12 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 虽然不知道有关无关
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千里夜雨  
+##### 107#       发表于 2022-7-28 15:08
+
+草，矿老板是中芯的恩人
+

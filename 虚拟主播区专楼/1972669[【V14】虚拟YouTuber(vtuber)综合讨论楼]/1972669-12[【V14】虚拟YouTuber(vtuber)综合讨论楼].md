@@ -677,3 +677,12 @@ kyo是黑人嘛，为啥4chan老哥说他是nigger<img src="https://static.sarab
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  pikamee  
+##### 16562#       发表于 2022-7-28 15:08
+
+4chan不是只要是个男的都会被叫泥哥么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
