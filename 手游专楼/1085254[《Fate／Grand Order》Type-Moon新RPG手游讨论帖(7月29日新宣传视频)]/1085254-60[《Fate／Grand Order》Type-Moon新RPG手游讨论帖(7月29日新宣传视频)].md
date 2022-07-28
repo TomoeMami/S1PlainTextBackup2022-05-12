@@ -8222,3 +8222,12 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 欧洲人 可怕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">感觉月底里版FGO对魔忍RPG的就要还债了，只不过视情况可以选择不下池
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89241#       发表于 2022-7-28 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下对魔忍池子预告，自家俩原SR角色降格成HR、R了，最想要的孤路最多30连就能拿到了。看来劫难还是在正牌这里了
+
