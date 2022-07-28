@@ -819,3 +819,68 @@ king县大赛前一轮以中坚校对上满面板强A队，黛灰和luca（两�
 
 <img src="https://p.sda1.dev/6/7daf70091575a99d4ef93633f19091ad/Screenshotter--YouTube--254’43” _2_.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16576#       发表于 2022-7-28 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56844567&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2022-7-28 23:16</a>
+
+结束了...
+
+不过myy结尾提了嘴未来可能在另一个虚拟世界再见。估计重新套皮会很快吧？还是我误解了？ ...</blockquote>
+应该指的是本体吧，再遇也不再是黛灰了
+
+黛灰这次毕业回跟露露还挺像的
+
+*****
+
+####  fastary  
+##### 16577#       发表于 2022-7-28 23:24
+
+结尾他说的是即使看到了和我很像的人也不要在ta那里找寻我，前方什么都不会有，“黛灰”就只是“黛灰”
+
+ed后的信是说从“黛灰的世界”还有联系上liver们所在虚拟世界的方法，但连接观众所在的“现实世界”是不可能的了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1||
+
+查看全部评分
+
+*****
+
+####  lhawp  
+##### 16578#       发表于 2022-7-28 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56844526&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-7-28 23:13</a>
+
+king县大赛前一轮以中坚校对上满面板强A队，黛灰和luca（两大主力）都是蓝脸
+
+这种情况下八里2出赌魔物追5点 ...</blockquote>
+啊这，真不愧是主角
+
+刚看了下已经进甲子园了
+
+*****
+
+####  FCCHua  
+##### 16579#       发表于 2022-7-28 23:28
+
+hnn打cpt队，1v4<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16580#       发表于 2022-7-28 23:29
+
+葛皇虽然玩的整活，但是这个从一垒盗到三垒看的是真爽
+
