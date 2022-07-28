@@ -8182,3 +8182,12 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏难得没什么课金的想法，反正就是一个随缘
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89237#       发表于 2022-7-28 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想说三发11连捞到泳装巴御前赶紧跑路，结果后面还出了水院，这运气能延续到周年么……
+

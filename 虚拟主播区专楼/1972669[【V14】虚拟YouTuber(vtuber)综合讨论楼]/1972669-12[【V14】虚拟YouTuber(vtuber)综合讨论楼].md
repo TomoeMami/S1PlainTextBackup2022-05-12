@@ -761,3 +761,12 @@ Maria直接种5个小时田耐久可还行
 
 myy直播间这气氛沉寂的，仿佛在等最后的爆发......
 
+
+
+*****
+
+####  Kokichi  
+##### 16570#       发表于 2022-7-28 21:40
+
+mother队看的好爽<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">真没想到能拿下优胜候补的シスコ队
+
