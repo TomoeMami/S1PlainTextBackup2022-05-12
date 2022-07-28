@@ -8119,3 +8119,19 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 杀生院不知好歹 不要了不要了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在攒欧气了么 2石的非洲人好羡慕啊
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89230#       发表于 2022-7-28 18:55
+
+为什么最后一个狩猎关卡过了五点还在啊，昨天就急匆匆地刷完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89231#       发表于 2022-7-28 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一个狩猎是两天的。看了看水院的up里没带紫式部，等明天的水阿比池子出来后对比下再抽了
+
