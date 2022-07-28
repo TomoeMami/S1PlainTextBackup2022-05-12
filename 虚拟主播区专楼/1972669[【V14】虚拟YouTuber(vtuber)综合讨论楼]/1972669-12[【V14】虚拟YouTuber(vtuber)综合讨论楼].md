@@ -490,3 +490,14 @@ hnn居然去凸待了<img src="https://static.saraba1st.com/image/smiley/face201
 
 那我正确记忆一下，当时是阿弥弥和myy联动的时候接话能力有点ky，才导致被烧的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为当时我在看而且个人观感也不是太好，所以有点印象。虽然我记得其实没有烧的很严重。
 
+
+
+*****
+
+####  IL282  
+##### 16546#       发表于 2022-7-28 09:41
+
+Aia从Noctyx才知道Vtuber？大姐简历真敢投啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
