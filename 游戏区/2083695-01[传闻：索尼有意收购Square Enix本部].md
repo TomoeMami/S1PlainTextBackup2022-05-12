@@ -546,3 +546,21 @@ sie还是早点卖身苹果比较实际一点<img src="https://static.saraba1st.
 
 理论上索尼其实是美国公司吧
 
+
+
+*****
+
+####  边缘中心  
+##### 67#       发表于 2022-7-28 09:22
+
+ 本帖最后由 边缘中心 于 2022-7-28 09:23 编辑 
+
+光是ff14现在的收入，索尼那小家子气愿意开多少价？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 68#       发表于 2022-7-28 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就游戏阵容来看我觉得SEGA跟索尼更亲
+

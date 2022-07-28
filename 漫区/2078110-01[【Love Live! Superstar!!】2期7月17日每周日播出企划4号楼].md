@@ -17474,3 +17474,12 @@ pay生日event上弹唱的原创曲于8月15日公开，曲名征集中
 
 躺着的鱼莫名涩气啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1499#       发表于 2022-7-28 09:29
+
+打铁的写真集名字确定了，算是成年前的一个纪念？
+
