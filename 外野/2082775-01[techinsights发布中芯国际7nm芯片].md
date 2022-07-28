@@ -988,3 +988,15 @@ ASML本身就是中美竞争的牺牲品，中美打架，倒霉的公司也不�
 65稳定下来应该得两三年，乐观估计2027左右全国产能到7nm（指有能力 ...</blockquote>
 浸没的听说也在弄，反正慢慢来就是
 
+
+
+*****
+
+####  RookieTnT  
+##### 99#       发表于 2022-7-28 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56764178&amp;ptid=2082775" target="_blank">Buke 发表于 2022-7-23 16:56</a>
+
+半保密，那首批出货为啥是给矿老板</blockquote>
+矿老板有钱啊. 
+
