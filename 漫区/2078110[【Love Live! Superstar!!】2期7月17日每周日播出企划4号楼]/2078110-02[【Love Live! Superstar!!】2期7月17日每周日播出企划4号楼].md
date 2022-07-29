@@ -361,3 +361,15 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 不过星团允许一开始就可以开始个人活动，可能也是因为只有三年期，企划就是给提供个平台，这三年能吃多少红利就看各家事务所的造化，但是目前来看ap社还是把控整个企划话语权
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1537#       发表于 2022-7-29 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56848083&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-29 09:46</a>
+
+不过星团允许一开始就可以开始个人活动，可能也是因为只有三年期，企划就是给提供个平台，这三年能吃多少红 ...</blockquote>
+ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经有四个人了，香音中心化的写法也让ab赚麻了，如果二期动画果真是香樱传，那更是赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

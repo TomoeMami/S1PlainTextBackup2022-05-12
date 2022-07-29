@@ -657,3 +657,14 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 更衣人偶那堆疯传的gif已经够深夜动画了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是贴贴/百合的初次胜利？证明其meme传播力度不弱于bg与色气肉体
 
+
+
+*****
+
+####  白玫瑰之夜  
+##### 72#       发表于 2022-7-29 10:08
+
+四集看下来只能说da作为一个要应对各种情况的组织，给手下人配置的装备也忒单一了，不知道后面在这方面的描写会不会多点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
