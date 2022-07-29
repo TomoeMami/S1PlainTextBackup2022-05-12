@@ -8314,3 +8314,15 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是没有8了，现在再不变就没机会了
 
+
+
+*****
+
+####  alucardcz  
+##### 89250#       发表于 2022-7-29 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56851964&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-29 13:49</a>
+
+怕不是没有8了，现在再不变就没机会了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 8的时候估计第2部主线还没出完呢
+
