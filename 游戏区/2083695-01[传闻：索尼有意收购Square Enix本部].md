@@ -659,3 +659,14 @@ a9鲁迅哥辟谣了
 求仁得仁继续看野村尬演可以说是FF厨福报了</blockquote>
 虽然…但是…野村实际执导的ff就只有7r第一章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 79#       发表于 2022-7-30 04:52
+
+<blockquote>stary 发表于 2022-7-27 17:53
+干脆继续合并吧，就叫SSE</blockquote>
+被收购的要放在前面SES
+

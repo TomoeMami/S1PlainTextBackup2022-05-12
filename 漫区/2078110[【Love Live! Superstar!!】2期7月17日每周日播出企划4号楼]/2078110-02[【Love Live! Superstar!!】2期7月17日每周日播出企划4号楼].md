@@ -720,3 +720,16 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">之前还跟nagi一起直球喷一期的78集了  太狂了
 
+
+
+*****
+
+####  iuhehc  
+##### 1572#       发表于 2022-7-30 01:53
+
+ 本帖最后由 iuhehc 于 2022-7-30 02:57 编辑 
+
+官推发的那个唐可可中文讲座募集tag里，就没几条能看的 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
