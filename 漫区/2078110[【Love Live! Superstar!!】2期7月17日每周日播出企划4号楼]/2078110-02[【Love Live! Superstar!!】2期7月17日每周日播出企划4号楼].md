@@ -236,3 +236,14 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://img.saraba1st.com/forum/202204/29/013447ifafdsecq48098vw.png" referrerpolicy="no-referrer">
 <img src="https://img.saraba1st.com/forum/202204/29/013509lwvi1v8lw98bmlms.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1523#       发表于 2022-7-29 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847051&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-29 08:31</a>
+对于我来说动画第一季对于要加二期生的铺垫是不够的，如果确认二期生真是这个时间节点且铁了心要加人，为何 ...</blockquote>
+你最后这句话不成立的，该说就是决定要分期加人的，如果明年再来个三期，那明年毕业后我又可以告别这个企划了，这就是他们对星团的创新模式
+
