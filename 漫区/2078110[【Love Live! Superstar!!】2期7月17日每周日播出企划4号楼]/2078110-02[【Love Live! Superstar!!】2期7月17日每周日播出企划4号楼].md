@@ -682,3 +682,14 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  靡宜  
+##### 1568#       发表于 2022-7-29 18:40
+
+ 本帖最后由 靡宜 于 2022-7-29 18:42 编辑 
+<blockquote>player3960 发表于 2022-7-29 10:34
+这种访谈也就看个乐了，虽然蛮想知道鲤鱼当初写五人の绊到底图个啥，不过算了，我又不推其他8个人，5人还是 ...</blockquote>鲤鱼姐比较勇，驳嘴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
