@@ -693,3 +693,12 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 <blockquote>player3960 发表于 2022-7-29 10:34
 这种访谈也就看个乐了，虽然蛮想知道鲤鱼当初写五人の绊到底图个啥，不过算了，我又不推其他8个人，5人还是 ...</blockquote>鲤鱼姐比较勇，驳嘴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1569#       发表于 2022-7-29 21:58
+
+佩佩赞了鲤鱼的新歌推，孩子真是<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
