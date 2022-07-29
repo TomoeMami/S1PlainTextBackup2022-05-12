@@ -8258,3 +8258,24 @@ umb也阳了，嘉宾又少一个</blockquote>
 
 另外希望信长千万别出事，他可是生放送的欢乐源泉啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 89244#       发表于 2022-7-29 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56850595&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-29 12:17</a>
+
+唉，非得搞线下吗...如果弄个聊天室分框直播效果也不会差太多吧（并不，精神状态不一样）。
+
+不过凹酱还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是不是打错了1.19确诊 7.25复工 怎么能叫就呢
+
+*****
+
+####  alucardcz  
+##### 89245#       发表于 2022-7-29 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印象
+
