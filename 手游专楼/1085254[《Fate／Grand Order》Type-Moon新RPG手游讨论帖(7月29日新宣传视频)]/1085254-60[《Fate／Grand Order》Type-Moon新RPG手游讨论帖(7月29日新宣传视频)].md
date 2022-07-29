@@ -8424,3 +8424,12 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 你游7年了第一次变图标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89261#       发表于 2022-7-29 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">呆毛王继续加强的话，我今年的自选就选她了！
+
