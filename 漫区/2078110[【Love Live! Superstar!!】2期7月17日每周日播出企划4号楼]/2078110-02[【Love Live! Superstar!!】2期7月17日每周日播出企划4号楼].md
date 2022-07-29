@@ -344,3 +344,20 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单推三次元中之人还好说，但二次元真是倒了大霉
 
+
+
+*****
+
+####  starring  
+##### 1535#       发表于 2022-7-29 09:42
+
+不要去猜测运营的想法，会变得不幸<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+加人的事现在甚至以后发出什么消息都当成乐子来看，不然每次都一惊一乍会受不了
+
+*****
+
+####  lj205  
+##### 1536#       发表于 2022-7-29 09:46
+
+不过星团允许一开始就可以开始个人活动，可能也是因为只有三年期，企划就是给提供个平台，这三年能吃多少红利就看各家事务所的造化，但是目前来看ap社还是把控整个企划话语权
+
