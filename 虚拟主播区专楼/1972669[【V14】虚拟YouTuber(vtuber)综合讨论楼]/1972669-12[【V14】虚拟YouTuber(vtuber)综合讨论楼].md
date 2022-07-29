@@ -1436,3 +1436,53 @@ VTA在读男学生数据第二好的长发哥虽然确实自身有一定特色�
 
 萌木可能做过的事的猜想都被巴布太郎推翻了，现在看gbr毕业只会觉得是换个地方摆
 
+
+
+*****
+
+####  毛头小希  
+##### 16629#       发表于 2022-7-29 21:40
+
+ 本帖最后由 毛头小希 于 2022-7-29 21:46 编辑 
+
+这是一口气冲到了第二名啊，被验者都是富婆吗……
+
+搬一段我在隔壁虫楼说过的话
+
+“前面还有一周年还有前辈毕业还有各种大活动还以为debuff已经叠满了结果还是这么能打”
+
+顺便把图也贴了吧反正上面也有老哥贴了
+
+FY1kCsDagAApyRv.jpg
+(32.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-29 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202207/29/214552cw2rbbtbbjq42s45.jpg" referrerpolicy="no-referrer">
+
+QQ截图20220729213111.jpg
+(61.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-29 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202207/29/214552aznyorrjyi0dt9yg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 16630#       发表于 2022-7-29 21:42
+
+<img src="https://img.saraba1st.com/forum/202207/29/214231kg9vx6i3ztvtng62.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-29 21:42 上传
+
+防疫第一V
+
