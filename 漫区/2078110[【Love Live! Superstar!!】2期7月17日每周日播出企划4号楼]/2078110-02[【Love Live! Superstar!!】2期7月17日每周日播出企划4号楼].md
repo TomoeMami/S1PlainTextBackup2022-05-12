@@ -410,3 +410,36 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 你星实质三次元女团，说得好听点算它2.99次元好了，就是加人加成这个样子只能说企划水平堪忧，资源也堪忧，本来后来的人就在积累上有劣势，结果水平是肉眼可见的拉，真是不知道要怎么才能招人喜欢。
 
+
+
+*****
+
+####  寒风夜  
+##### 1542#       发表于 2022-7-29 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849208&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-7-29 11:00</a>
+
+你星实质三次元女团，说得好听点算它2.99次元好了，就是加人加成这个样子只能说企划水平堪忧，资源也堪忧， ...</blockquote>
+草台草台
+
+*****
+
+####  ads147147  
+##### 1543#       发表于 2022-7-29 11:06
+
+业界草台论，资本一抓就死，一放就活。
+
+自由度低就各种草台激怒粉丝群的操作。真应该听四格步梦的话：去找肥秋吧jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 1544#       发表于 2022-7-29 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849184&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-29 10:58</a>
+
+没完全传达就有点逆天了..这又不是只有真人部分的企划</blockquote>
+可是怎么解释宣发的割裂感，那只能说是草台，要么难不成是故意为之
+
