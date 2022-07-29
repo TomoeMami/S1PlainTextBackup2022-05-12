@@ -710,3 +710,16 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 蒜也就图一乐的爆米花片，不够让人感到原创的不可预料性和对剧情发展的期待感，目前契丹在我心中强过石蒜[f ...</blockquote>
 蛋tv部分烩饼精致统一，好得很啊
 
+
+
+*****
+
+####  remediosOlOOOO  
+##### 77#       发表于 2022-7-29 20:18
+
+ 本帖最后由 remediosOlOOOO 于 2022-7-29 20:19 编辑 
+
+怎么还有说电光机王的，电光机王真有萝卜啊，我要是河豚，想看贴贴为啥不去看突击莉莉啊，有贴贴还有作画<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
