@@ -186,3 +186,38 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 问题是她至今都没有表现出任何可以让人信服的素质，还是说打铁太出色符合香音天才的设定，她则是符合素人一点点成长的设定
 那这样真是5老带新
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1518#       发表于 2022-7-29 08:31
+
+说起来我对用x期生来形容她们还是有点抵触的，这给我带来的感觉就好像Liella!会无穷分期一样，但是现在官方渠道以x期生来区分她们越来越多见了，好像也没有什么更好的区分方法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 1519#       发表于 2022-7-29 08:31
+
+对于我来说动画第一季对于要加二期生的铺垫是不够的，如果确认二期生真是这个时间节点且铁了心要加人，为何铺垫如此少？所以我猜测应该是做两套方案，先把初定人选先拿在手上，后面看一期的效果再决定是否加人。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 1520#       发表于 2022-7-29 08:35
+
+这个访谈，虽然一直在说自己不足和能力不够，不过一些地方还是能读出一点不甘心的意味，错觉吗
+
+*****
+
+####  adw667  
+##### 1521#       发表于 2022-7-29 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847049&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-29 08:31</a>
+
+说起来我对用x期生来形容她们还是有点抵触的，这给我带来的感觉就好像Liella!会无穷分期一样，但是现在官方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">避而不谈就完事了，现在有那四位的视频我基本不看的
+
