@@ -153,3 +153,12 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  优妮可  
+##### 1515#       发表于 2022-7-29 08:05
+
+二期决定的挺早的呀，是官方故意不泄露二期，还是觉得圆不过来故意让铃原这样说
+
