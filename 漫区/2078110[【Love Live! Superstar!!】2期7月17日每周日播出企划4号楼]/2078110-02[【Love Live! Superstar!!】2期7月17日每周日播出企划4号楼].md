@@ -373,3 +373,14 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 不过星团允许一开始就可以开始个人活动，可能也是因为只有三年期，企划就是给提供个平台，这三年能吃多少红 ...</blockquote>
 ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经有四个人了，香音中心化的写法也让ab赚麻了，如果二期动画果真是香樱传，那更是赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1538#       发表于 2022-7-29 10:34
+
+这种访谈也就看个乐了，虽然蛮想知道鲤鱼当初写五人の绊到底图个啥，不过算了，我又不推其他8个人，5人还是9人的团队爱也无所谓，cp什么的有糖就磕，无糖独美，也没啥深究的必要<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+另外，我记得当时说海选出来的人必须签apb，那它在企划里话语权好像一开始就很大啊，现在双c是海选确定的强推也就算了，别以后搞个吃相太难看，排挤它社的人就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

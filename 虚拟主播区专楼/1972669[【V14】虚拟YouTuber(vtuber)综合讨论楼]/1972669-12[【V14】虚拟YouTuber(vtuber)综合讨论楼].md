@@ -1023,3 +1023,12 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在在nga走廊开贴反倒是招黑好么
 
+
+
+*****
+
+####  Alumoberyl  
+##### 16594#       发表于 2022-7-29 10:39
+
+平平淡淡不也挺好的吗，像之前7月初他刚说完预定月底毕业，微博就有人买热搜，一堆营销号，那个时候上微博搜关键字，搜出来的简直不能看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
