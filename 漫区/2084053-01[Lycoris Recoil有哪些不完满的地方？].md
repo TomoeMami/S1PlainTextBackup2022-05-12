@@ -699,3 +699,14 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 
 应该反过来问：有哪些“圆满”的地方？
 
+
+
+*****
+
+####  隼雷  
+##### 76#       发表于 2022-7-29 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56843860&amp;ptid=2084053" target="_blank">naynaydes 发表于 2022-7-28 22:14</a>
+蒜也就图一乐的爆米花片，不够让人感到原创的不可预料性和对剧情发展的期待感，目前契丹在我心中强过石蒜[f ...</blockquote>
+蛋tv部分烩饼精致统一，好得很啊
+
