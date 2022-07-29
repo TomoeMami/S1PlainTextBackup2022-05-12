@@ -1325,3 +1325,36 @@ VTA在读男学生数据第二好的长发哥虽然确实自身有一定特色�
 
 2022-7-29 20:19 上传
 
+
+
+*****
+
+####  暮星弥空  
+##### 16618#       发表于 2022-7-29 20:21
+
+在某软件看漫画时突然弹出黛的脸，点进去看评论还是觉得国内一般网民对虚拟主播还是很大的偏见<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuntoryNomu  
+##### 16619#       发表于 2022-7-29 20:27
+
+#羽渕やむ
+
+#新人Vtuber
+
+<img src="https://img.saraba1st.com/forum/202207/29/202518rr0y0x048x0nat4a.jpg" referrerpolicy="no-referrer">
+
+<strong>20220729_202448.jpg</strong> (334.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-29 20:25 上传
+
+*****
+
+####  asdhai  
+##### 16620#       发表于 2022-7-29 20:29
+
+那不是废话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人和管人痴是个什么形象要有个数
+
