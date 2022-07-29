@@ -8326,3 +8326,74 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 怕不是没有8了，现在再不变就没机会了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 8的时候估计第2部主线还没出完呢
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89251#       发表于 2022-7-29 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按在日本热度我觉得苟到10绰绰有余
+
+*****
+
+####  UNISONIA  
+##### 89252#       发表于 2022-7-29 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56852332&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-29 14:18</a>
+
+想少了 8的时候估计第2部主线还没出完呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准今年年底就给你终章咯
+
+魔夜联动和冬木什么的可以以后再补，先宙之外了
+
+*****
+
+####  UNISONIA  
+##### 89253#       发表于 2022-7-29 14:31
+
+翻页
+
+*****
+
+####  UNISONIA  
+##### 89254#       发表于 2022-7-29 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56852435&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-29 14:26</a>
+
+按在日本热度我觉得苟到10绰绰有余</blockquote>
+看看这去年和今年上半年的决算内容吧，利益基本上回到第一部末期水平了（甚至今年上半年还略有不如）
+
+当然要活下去应该还是绰绰有余的，只是业内有几个手游是因为活不下去了才关的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89255#       发表于 2022-7-29 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.7 2.75 第二部终章起码能混3年
+
+*****
+
+####  alucardcz  
+##### 89256#       发表于 2022-7-29 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56852496&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-7-29 14:30</a>
+
+没准今年年底就给你终章咯
+
+魔夜联动和冬木什么的可以以后再补，先宙之外了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情提示 马上8月了
+
+*****
+
+####  UNISONIA  
+##### 89257#       发表于 2022-7-29 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56852566&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-29 14:34</a>
+
+友情提示 马上8月了</blockquote>
+点7这明摆着是11、12月才会出，没必要急。当年也没几个人料到巴比伦尼亚后面直接跟着第一部终章的
+
+还不如担心下今年因为road to 7的原因绝大部分活动都不会复刻了，甚至可能包括泳装和gudaguda
+
