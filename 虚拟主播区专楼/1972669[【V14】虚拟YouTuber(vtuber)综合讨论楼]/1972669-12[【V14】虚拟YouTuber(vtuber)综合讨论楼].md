@@ -1163,3 +1163,14 @@ B站这个翻译的也不错
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  poipanchao  
+##### 16604#       发表于 2022-7-29 14:05
+
+属于被时代抛弃的老害了
+眼里只有mc和杂谈
+或者说一开始就对游戏没兴趣吧
+
