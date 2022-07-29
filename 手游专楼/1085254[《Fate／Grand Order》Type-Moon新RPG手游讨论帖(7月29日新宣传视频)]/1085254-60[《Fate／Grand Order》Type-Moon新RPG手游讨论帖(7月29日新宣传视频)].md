@@ -8490,3 +8490,14 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 你这是不是打错了1.19确诊 7.25复工 怎么能叫就呢</blockquote>
 不好意思，7.19确诊的，这就改。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89268#       发表于 2022-7-29 16:55
+
+新APP图标撤了FGO的标题然后画个大盾牌也太雷了，什么审美...
+
+话说我是直接用ourplay加速器玩的，内部图标并没变<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
