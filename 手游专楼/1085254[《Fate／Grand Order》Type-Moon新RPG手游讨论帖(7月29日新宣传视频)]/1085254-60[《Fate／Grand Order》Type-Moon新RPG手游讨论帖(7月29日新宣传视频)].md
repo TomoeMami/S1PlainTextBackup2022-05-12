@@ -8542,3 +8542,17 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 盘子都能换出两个up了，这什么究极呆毛单推人
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 89273#       发表于 2022-7-30 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56855349&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-29 18:03</a>
+
+4000/120=33.33
+
+盘子都能换出两个up了，这什么究极呆毛单推人</blockquote>
+90币一个，（4000-180）/90=42.44，至少43个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

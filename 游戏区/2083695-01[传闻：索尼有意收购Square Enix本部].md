@@ -648,3 +648,14 @@ bilibili贴吧的一条回复： <blockquote>索尼肯定今年有大交易，�
 
 a9鲁迅哥辟谣了
 
+
+
+*****
+
+####  边缘中心  
+##### 78#       发表于 2022-7-30 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56850245&amp;ptid=2083695" target="_blank">MrBloom 发表于 2022-7-29 11:56</a>
+求仁得仁继续看野村尬演可以说是FF厨福报了</blockquote>
+虽然…但是…野村实际执导的ff就只有7r第一章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
