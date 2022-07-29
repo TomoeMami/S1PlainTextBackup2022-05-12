@@ -8397,3 +8397,12 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 还不如担心下今年因为road to 7的原因绝大部分活动都不会复刻了，甚至可能包括泳装和gudaguda
 
+
+
+*****
+
+####  里村紅葉  
+##### 89258#       发表于 2022-7-29 14:42
+
+这个7周年加上去感觉棉被的衣服又厚了一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
