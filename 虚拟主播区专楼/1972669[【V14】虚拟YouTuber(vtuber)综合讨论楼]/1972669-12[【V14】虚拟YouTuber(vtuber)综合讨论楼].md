@@ -1228,3 +1228,12 @@ B站这个翻译的也不错
 
 任黑开什么玩笑，apex节目效果不如卡比一毛，柴卡玩儿卡比可以剪一百个💢
 
+
+
+*****
+
+####  winda  
+##### 16611#       发表于 2022-7-29 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太虹本位了，这么看不起一般直播主团体的，你看列举的主播圈里的评均数据不好看吗？这就是观众的选择
+
