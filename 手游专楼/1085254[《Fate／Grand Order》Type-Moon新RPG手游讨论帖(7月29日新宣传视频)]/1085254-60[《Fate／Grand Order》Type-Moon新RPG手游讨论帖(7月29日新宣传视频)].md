@@ -8467,3 +8467,14 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 呆毛王1宝的仰望大佬
 
+
+
+*****
+
+####  空气蛹  
+##### 89266#       发表于 2022-7-29 16:34
+
+很急，迫不及待想抽卡了
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
