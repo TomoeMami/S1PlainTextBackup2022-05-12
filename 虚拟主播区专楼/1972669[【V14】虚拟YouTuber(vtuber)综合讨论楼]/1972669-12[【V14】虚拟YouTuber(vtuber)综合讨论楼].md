@@ -1237,3 +1237,19 @@ B站这个翻译的也不错
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太虹本位了，这么看不起一般直播主团体的，你看列举的主播圈里的评均数据不好看吗？这就是观众的选择
 
+
+
+*****
+
+####  rzrbtk  
+##### 16612#       发表于 2022-7-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849452&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-7-29 11:13</a>
+
+吵
+
+相对来说皮没有那么好看
+
+在直播中体现的跟别的VTA生的关系性几乎没有（虽然其他VTA生偶尔会提到他）</blockquote>
+在等未来丹和日下部的时候听了会儿别的男的感觉，佐伯这个又高情绪聊天又爱玩儿有趣尬梗的至少不该最底边，不过现在看还太早，还得等半年...
+
