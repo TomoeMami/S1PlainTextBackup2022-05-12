@@ -671,3 +671,14 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 十二星座就是三个，算上蛇夫座4个，也就是恋会不会有CP的区别吧
 
+
+
+*****
+
+####  ads147147  
+##### 1567#       发表于 2022-7-29 18:05
+
+二期不是已经把恋分给小千了吗，二期孤独终老的明显是夏美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
