@@ -274,3 +274,21 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 写完又有种感觉，是不是一期的优秀太超出所有人预料了，事到如今连运营都觉得拿出这样一个二期有点怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 1527#       发表于 2022-7-29 09:10
+
+我倒觉得一直用一期生和二期生这个称呼，单纯是因为未来还有三期生而已
+
+*****
+
+####  nufawneafg  
+##### 1528#       发表于 2022-7-29 09:16
+
+还真是这样...
+不过我还是持保留意见，从表现看依然是登门槛式的甚至是lowballing式的花招...说好听是花招说不好听是伎俩，没啥意思
+内生动力是明确甚至有人已初见端倪，但是这种表现形式实在不高明
+
