@@ -1548,3 +1548,14 @@ Nornis新歌好夏天啊，suki<img src="https://static.saraba1st.com/image/smil
 
 油男这比赛怎么总是这么生死一线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16637#       发表于 2022-7-30 00:04
+
+油男夏县大会第三轮，被直接0-8，
+
+油男从一年级不保存退出吃惩罚以后，不能说急转直下，但无论学校还是监督状态都有点颓啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
