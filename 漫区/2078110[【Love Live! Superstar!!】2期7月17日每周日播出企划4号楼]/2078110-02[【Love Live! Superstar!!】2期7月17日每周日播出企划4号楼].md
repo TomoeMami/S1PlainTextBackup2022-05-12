@@ -481,3 +481,47 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 别惊喜了，惊吓还差不多，至少国内不少人没感到惊喜吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 1550#       发表于 2022-7-29 11:22
+
+惊喜是指医治粉丝低血压吗
+
+*****
+
+####  lj205  
+##### 1551#       发表于 2022-7-29 11:23
+
+我觉得吧，说白还是日本人自以为是那种性格弄的，我觉得我弄的很好，粉丝肯定很感动
+
+说不定可可也是这么安排的，毕竟一期就她的事没解决，所以solo ed就不安排，拖到第二期当成给恋那样地雷安排，最后引爆才算正式入团，大家一定很感动（草，不要这样啊
+
+*****
+
+####  凡人  
+##### 1552#       发表于 2022-7-29 11:23
+
+ 本帖最后由 凡人 于 2022-7-29 11:25 编辑 
+
+写信人估计就是三期C了，到时候先放个和铃原一起组队相互鼓励的VTR，再来个现场读信，香樱X传堂堂连载
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1553#       发表于 2022-7-29 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849539&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-29 11:17</a>
+
+秋还有皮套人，看看还有什么大活</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">22/7真的算皮套人吗
+
+*****
+
+####  长日留痕  
+##### 1554#       发表于 2022-7-29 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说句实话真有三期生的话可以开始宣传了，企划不要再遮遮掩掩恶心人了。
+
