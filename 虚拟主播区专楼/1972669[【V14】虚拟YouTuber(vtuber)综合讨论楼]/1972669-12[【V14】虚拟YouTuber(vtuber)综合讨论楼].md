@@ -1147,3 +1147,19 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 偏执一点有何不可呢<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 16603#       发表于 2022-7-29 12:57
+
+https://note.com/tomoatx/n/n1093b087ef34
+にじさんじの切り抜きをYouTubeで投稿して全部で1200万円稼いだ話
+
+这个写的太搞了，值得一看。
+【我不再投稿NIJISANJI二创剪辑的故事【转载翻译】-哔哩哔哩】 https://b23.tv/jn7frNf
+B站这个翻译的也不错
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
