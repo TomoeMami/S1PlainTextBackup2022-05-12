@@ -1519,3 +1519,12 @@ QQ截图20220729213111.jpg
 
 确实这两年大量的转生让我对v毕业已经毫无波澜了，对于任何人毕业自己也不会有什么感慨了
 
+
+
+*****
+
+####  Kokichi  
+##### 16634#       发表于 2022-7-29 22:42
+
+mother队2-1jas队，kmt绝好调，全队稳健连携高光<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">大狙对决看爽了。
+
