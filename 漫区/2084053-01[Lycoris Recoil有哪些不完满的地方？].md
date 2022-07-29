@@ -625,3 +625,16 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 
 不知道欸，我只知道四集了发展快的不是剧情而事角色感情，感觉是部卖角色的片子，看看可爱美少女贴贴打打枪得了，我对它的上限真的就是4s电光机王
 
+
+
+*****
+
+####  ahoge2004  
+##### 69#       发表于 2022-7-29 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56844825&amp;ptid=2084053" target="_blank">mhss 发表于 2022-7-28 23:38</a>
+车站那里一地铁持枪JK，外面还一堆放哨+封条说明早有准备
+
+但是都准备成这样了却没能提前预料到对方准备了炸 ...</blockquote>
+就非常的现实
+
