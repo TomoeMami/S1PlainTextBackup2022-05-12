@@ -8279,3 +8279,22 @@ umb也阳了，嘉宾又少一个</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印象
 
+
+
+*****
+
+####  qixinno2  
+##### 89246#       发表于 2022-7-29 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56851514&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-29 13:14</a>
+
+app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印象</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没有 头一次变图标 七周年要来大的了
+
+*****
+
+####  vacuumsword  
+##### 89247#       发表于 2022-7-29 13:36
+
+当然是road to 7啦。真不觉得运营整得出大活
+
