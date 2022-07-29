@@ -8240,3 +8240,21 @@ bgo刚才更新还修复了助战只有三组备选的bug，这草台程度就�
 
 umb也阳了，嘉宾又少一个
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89243#       发表于 2022-7-29 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849733&amp;ptid=1085254" target="_blank">quanlix 发表于 2022-7-29 11:27</a>
+
+umb也阳了，嘉宾又少一个</blockquote>
+唉，非得搞线下吗...如果弄个聊天室分框直播效果也不会差太多吧（并不，精神状态不一样）。
+
+不过凹酱还年轻，应该无大碍。我查了一下，黑泽朋世2020.10.9确诊新冠的，10.19就出院了。罗宾的声优山口由里子2022.1.19确诊的，7.25就复工了。
+
+现在治疗手段已经成熟了，大概一周就能出院，还好还好。
+
+另外希望信长千万别出事，他可是生放送的欢乐源泉啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

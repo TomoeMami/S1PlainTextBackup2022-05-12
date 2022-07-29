@@ -631,3 +631,12 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1563#       发表于 2022-7-29 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如nako刚刚推特放的自拍
+
