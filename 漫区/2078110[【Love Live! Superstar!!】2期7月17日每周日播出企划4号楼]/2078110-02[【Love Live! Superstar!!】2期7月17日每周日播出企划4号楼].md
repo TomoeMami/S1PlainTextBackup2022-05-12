@@ -733,3 +733,14 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1573#       发表于 2022-7-30 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56861083&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-29 23:47</a>
+ 之前还跟nagi一起直球喷一期的78集了  太狂了</blockquote>
+是什么时候的事，没印象了求指教
+
