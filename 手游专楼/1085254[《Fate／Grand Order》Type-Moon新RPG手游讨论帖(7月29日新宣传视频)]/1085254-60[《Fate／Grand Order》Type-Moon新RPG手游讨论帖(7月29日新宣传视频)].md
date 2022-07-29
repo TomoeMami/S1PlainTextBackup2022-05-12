@@ -8406,3 +8406,12 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 这个7周年加上去感觉棉被的衣服又厚了一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89259#       发表于 2022-7-29 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">奶一口棉被王获得真正的无敌的二次宝具本 宝具倍率提升 释放后自带一回合对肃正防御和强化解除耐性
+
