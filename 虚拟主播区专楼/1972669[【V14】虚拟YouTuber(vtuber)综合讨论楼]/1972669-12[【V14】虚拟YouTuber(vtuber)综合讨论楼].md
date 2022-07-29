@@ -1032,3 +1032,19 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 平平淡淡不也挺好的吗，像之前7月初他刚说完预定月底毕业，微博就有人买热搜，一堆营销号，那个时候上微博搜关键字，搜出来的简直不能看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16595#       发表于 2022-7-29 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56848186&amp;ptid=1972669" target="_blank">两仪式29 发表于 2022-7-29 09:52</a>
+
+有点好奇这位老姐是怎么看待黛灰毕业的真实原因的，是像很多ylg一样痛骂ankr呢，还是觉得liver自身原因更 ...</blockquote>
+如果纯因为压力太大的话2周年那会儿就该离开了，而且主线完结后除了保持黛灰的人设外也没什么rp强度，两年都过来了怎么也不至于9月说还有很多事想做到11月就突然崩溃。更何况一直都说感谢enkr的他不可能为了掩饰压力的原因在最后提到是跟运营有关，甩锅给运营动摇大量观众。
+
+老实说我都不知道哪来的论据证明他这个都有点撕破脸皮意味的毕业理由背后肯定有其它的真实原因？<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+我以前也总是骂ankr放养他这种没法用偶像路线推的liver，不过他的体量我也不觉得enkr会轻易放手甚至逼退。他说过现在去应征vta应该不会被选上，也说了最后一个月的很多企划本来都要放弃的，但同时也用行动表明他真的是虹箱推希望虹能越来越好。就如他所言理解为“新时代的ankr没问题只是会限制他作为黛灰想做的事，他不愿意妥协顺应也不想就此摆烂，运营也不可能为了他一人改变就整体而言更有利的发展策略，只好选择和平分手”，又有何不可呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
