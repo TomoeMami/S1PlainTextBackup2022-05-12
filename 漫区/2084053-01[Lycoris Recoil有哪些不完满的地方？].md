@@ -668,3 +668,14 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Jimlee079  
+##### 73#       发表于 2022-7-29 10:12
+
+剧情逻辑过于沙雕
+
+但是一集一个meme，从op的踢ass到第四集的sakana<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了完全不觉得亏
+
