@@ -221,3 +221,18 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 说起来我对用x期生来形容她们还是有点抵触的，这给我带来的感觉就好像Liella!会无穷分期一样，但是现在官方 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">避而不谈就完事了，现在有那四位的视频我基本不看的
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1522#       发表于 2022-7-29 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847051&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-29 08:31</a>
+
+对于我来说动画第一季对于要加二期生的铺垫是不够的，如果确认二期生真是这个时间节点且铁了心要加人，为何 ...</blockquote>
+铺垫这个我觉得没啥好说的，有人能找到OP那个球的“铺垫”，那我也能从“二期动画制作决定”里找到相反的“无铺垫”，我更怀疑是“二期生”或者“加人”的计划没有完全传达给运营的每个staff，所以整出了挺大的割裂感，总不会是故意搞人心态的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+[二期动画制作决定](https://www.bilibili.com/video/BV1Cf4y1M76T)截几个图
+<img src="https://img.saraba1st.com/forum/202204/29/013447ifafdsecq48098vw.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202204/29/013509lwvi1v8lw98bmlms.png" referrerpolicy="no-referrer">
+
