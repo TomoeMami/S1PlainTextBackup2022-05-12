@@ -629,3 +629,13 @@ SE：索尼给我们报价了，太好了，快拿着邮件给微软看，让他
 
 还收不收呀<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  撒撒  
+##### 76#       发表于 2022-7-29 16:04
+
+bilibili贴吧的一条回复： <blockquote>索尼肯定今年有大交易，这个不是空穴来风，领英上周大法刚刚聘了个反垄大律师，只是棒基这个体量根本用不上这种，起码要六十亿以上的交易，不过现在都是谣传，年底前就见分晓了，并购是肯定有的，不会无缘无故入职这种类型的律师。
+[https://tieba.baidu.com/p/7949912316](https://tieba.baidu.com/p/7949912316)  9L</blockquote>
+
