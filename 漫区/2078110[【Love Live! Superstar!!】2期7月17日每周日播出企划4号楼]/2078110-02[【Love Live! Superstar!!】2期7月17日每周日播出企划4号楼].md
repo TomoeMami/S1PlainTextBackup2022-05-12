@@ -711,3 +711,12 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是鱼好，直接了当就更符合我的xp 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1571#       发表于 2022-7-29 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">之前还跟nagi一起直球喷一期的78集了  太狂了
+
