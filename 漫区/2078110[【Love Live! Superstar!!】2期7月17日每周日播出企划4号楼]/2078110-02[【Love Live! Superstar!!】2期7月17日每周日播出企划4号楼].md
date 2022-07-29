@@ -384,3 +384,29 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 另外，我记得当时说海选出来的人必须签apb，那它在企划里话语权好像一开始就很大啊，现在双c是海选确定的强推也就算了，别以后搞个吃相太难看，排挤它社的人就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 1539#       发表于 2022-7-29 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可教中文的那两句片假名的部分谁可以再用罗马音标一遍吗，大致读了下好像挺大佐的
+
+*****
+
+####  寒风夜  
+##### 1540#       发表于 2022-7-29 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847198&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-29 08:45</a>
+
+铺垫这个我觉得没啥好说的，有人能找到OP那个球的“铺垫”，那我也能从“二期动画制作决定”里找到相反的 ...</blockquote>
+没完全传达就有点逆天了..这又不是只有真人部分的企划
+
+*****
+
+####  奥柏伦亲王  
+##### 1541#       发表于 2022-7-29 11:00
+
+你星实质三次元女团，说得好听点算它2.99次元好了，就是加人加成这个样子只能说企划水平堪忧，资源也堪忧，本来后来的人就在积累上有劣势，结果水平是肉眼可见的拉，真是不知道要怎么才能招人喜欢。
+
