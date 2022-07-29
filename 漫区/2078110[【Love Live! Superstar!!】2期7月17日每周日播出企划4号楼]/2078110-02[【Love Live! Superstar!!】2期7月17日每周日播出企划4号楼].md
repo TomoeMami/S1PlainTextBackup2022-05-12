@@ -702,3 +702,12 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 佩佩赞了鲤鱼的新歌推，孩子真是<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 1570#       发表于 2022-7-29 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是鱼好，直接了当就更符合我的xp 
+
