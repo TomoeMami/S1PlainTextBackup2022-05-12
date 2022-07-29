@@ -591,3 +591,12 @@ SE现在出一个FF都要五六年，索尼哪有那么多钱给你耗，现在F
 
 SE：索尼给我们报价了，太好了，快拿着邮件给微软看，让他出双倍
 
+
+
+*****
+
+####  zeroed  
+##### 72#       发表于 2022-7-29 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内消息称SE中国分公司已被索尼并购
+

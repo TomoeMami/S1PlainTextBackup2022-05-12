@@ -569,3 +569,16 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 其实人的问题是其次，搁这种操作下来，除非是有层次级的优势，那是谁也落不着好
 
+
+
+*****
+
+####  alexwu  
+##### 1559#       发表于 2022-7-29 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849837&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-29 11:33</a>
+我在想如果五老星中的四个跟二期的中之人互换  加人后不知道会是个什么观感 ...</blockquote>
+那就要看你是喜欢各期都均匀的拉还是像五老这样至少曾经燃烧过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
