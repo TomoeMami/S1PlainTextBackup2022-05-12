@@ -600,3 +600,23 @@ SE：索尼给我们报价了，太好了，快拿着邮件给微软看，让他
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内消息称SE中国分公司已被索尼并购
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 73#       发表于 2022-7-29 11:53
+
+本部呢本部呢
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MrBloom  
+##### 74#       发表于 2022-7-29 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56822873&amp;ptid=2083695" target="_blank">iceplatinum 发表于 2022-7-27 13:31</a>
+我不想玩电影叙事的FF</blockquote>
+求仁得仁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">继续看野村尬演可以说是FF厨福报了
+
