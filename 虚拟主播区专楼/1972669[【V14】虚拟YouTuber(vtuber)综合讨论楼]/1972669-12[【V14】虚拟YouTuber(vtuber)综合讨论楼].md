@@ -1136,3 +1136,14 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 黛灰一直以来都是坚持自我从来不去迎合观众的，所以他能干脆地放弃干脆的离开确实也不难理解。
 
+
+
+*****
+
+####  Paisley  
+##### 16602#       发表于 2022-7-29 12:43
+
+ 本帖最后由 Paisley 于 2022-7-29 12:47 编辑 
+
+偏执一点有何不可呢<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

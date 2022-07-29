@@ -640,3 +640,12 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如nako刚刚推特放的自拍
 
+
+
+*****
+
+####  离心  
+##### 1564#       发表于 2022-7-29 12:41
+
+越来越觉得liyuu不干偶像了可以去干摄影师……日本这摄影师啊……
+
