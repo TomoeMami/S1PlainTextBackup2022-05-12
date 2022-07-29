@@ -8433,3 +8433,19 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">呆毛王继续加强的话，我今年的自选就选她了！
 
+
+
+*****
+
+####  UNISONIA  
+##### 89262#       发表于 2022-7-29 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们呆毛王怎么都没满的（去年拿了4000多个呆毛王硬币的路过）
+
+*****
+
+####  黑上シグマ  
+##### 89263#       发表于 2022-7-29 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆毛王1宝的仰望大佬
+
