@@ -1559,3 +1559,26 @@ Nornis新歌好夏天啊，suki<img src="https://static.saraba1st.com/image/smil
 
 油男从一年级不保存退出吃惩罚以后，不能说急转直下，但无论学校还是监督状态都有点颓啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16638#       发表于 2022-7-30 00:33
+
+追到8:9然后一个魔物反超了，油男，永远在绝境求生<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 16639#       发表于 2022-7-30 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56850239&amp;ptid=1972669" target="_blank">两仪式29 发表于 2022-7-29 11:55</a>
+
+其实我倒完全不是想和你争什么，只是从我的角度来讲，反而更能接受黛灰是因为长期压力rp不下去了才选择离 ...</blockquote>
+说实话，“黛灰”确实是比较偏执到甚至显得(对粉丝)有点冷酷的……他说自己很怕由爱生恨的反转anti那种事所以从一开始就保持着距离不想观众爱上自己，后面连粉丝名和标志都也全都取消了。走剧情各种插刀子、完结前可以憋一个月铺垫最后的结局，如果不是观众创造了奇迹恐怕他原本就做好故事结局即毕业的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+现实说“背叛以前的自己”显得中二是因为人总要生活和赚钱所以不得不妥协一些事，ymn作为“黛灰”不开sc会员不出音声周边这么久，怎么说呢，因为给人种随时都能抽身的感觉所以反而很有说服力？
+
+至于粉丝……也不是接不接受的问题，只能说大家都认同他做出这种选择很符合一贯风格，没有反对的正当理由所以不得不告诉自己要接受罢了
+
