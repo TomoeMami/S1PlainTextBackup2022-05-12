@@ -443,3 +443,41 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 没完全传达就有点逆天了..这又不是只有真人部分的企划</blockquote>
 可是怎么解释宣发的割裂感，那只能说是草台，要么难不成是故意为之
 
+
+
+*****
+
+####  nufawneafg  
+##### 1545#       发表于 2022-7-29 11:12
+
+既要又要是这样的
+草台倒也不能说草台，企划能把这采访放出来，那是还自我感觉良好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 1546#       发表于 2022-7-29 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急 345期都在路上了 铺垫 铺个屁 总之别急
+
+*****
+
+####  凡人  
+##### 1547#       发表于 2022-7-29 11:14
+
+动画组肯定早就知道了，一季没戏份是为了和宣传上配合，明显高层的计划就是一期二期三，这样分期推出给你惊喜
+
+*****
+
+####  寒风夜  
+##### 1548#       发表于 2022-7-29 11:17
+
+秋还有皮套人，看看还有什么大活<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1549#       发表于 2022-7-29 11:17
+
+别惊喜了，惊吓还差不多，至少国内不少人没感到惊喜吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

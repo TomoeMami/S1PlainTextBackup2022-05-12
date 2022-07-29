@@ -1071,3 +1071,30 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 只是今天习惯性打开v版突然意识到童田和梅丽莎毕业第一时间有人跑去走廊搬新闻，黛灰轰轰烈烈搞了一个月引到嗯男姐凑热闹哭丧，又回想起当年还会一看到符合条件的走廊求推荐贴就进去认真回复的自己，有些感慨罢了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 16598#       发表于 2022-7-29 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56845163&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-7-29 00:11</a>
+
+即使相对一期，vta二期的即战力高了不少，我还是觉得有些人会没法长期做下去，才一个月就微微有点感觉疲软 ...</blockquote>
+吵
+
+相对来说皮没有那么好看
+
+在直播中体现的跟别的VTA生的关系性几乎没有（虽然其他VTA生偶尔会提到他）
+
+嘛一周只能播30分钟纯杂谈是会容易整不出活
+
+虽然我完全没看一期生不知道他们之前大半年是怎么过来的
+
+*****
+
+####  两仪式29  
+##### 16599#       发表于 2022-7-29 11:18
+
+另外感觉黛灰相比之前比较大牌的露露和gbr，确实有很大的不一样。露露和gbr可以说是本色演出，撕皮以后也没啥违和感，粉丝甚至可以无缝去推中之人。黛灰这个某种意义上对粉丝还是有点残忍的就是了，这个角色没了就是真的没了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
