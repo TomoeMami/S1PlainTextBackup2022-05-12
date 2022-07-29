@@ -1582,3 +1582,26 @@ Nornis新歌好夏天啊，suki<img src="https://static.saraba1st.com/image/smil
 
 至于粉丝……也不是接不接受的问题，只能说大家都认同他做出这种选择很符合一贯风格，没有反对的正当理由所以不得不告诉自己要接受罢了
 
+
+
+*****
+
+####  Ketestrait  
+##### 16640#       发表于 2022-7-30 00:46
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h4oa0yfclrj20xv0j1gp6.jpg" referrerpolicy="no-referrer">
+
+从0:8到17:9<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|看傻了XP|
+
+查看全部评分
+
