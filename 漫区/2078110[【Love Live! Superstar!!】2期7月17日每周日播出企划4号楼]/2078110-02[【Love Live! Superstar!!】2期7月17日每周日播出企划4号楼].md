@@ -312,3 +312,35 @@ nako的事务所在干嘛<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是那句话，推中之人，早日远离企划pua 
 
+
+
+*****
+
+####  优妮可  
+##### 1531#       发表于 2022-7-29 09:31
+
+真要加人，求求你再海选一次吧，不会三期的人要从虚拟那边落选的人挑吧
+
+*****
+
+####  Enakina  
+##### 1532#       发表于 2022-7-29 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847840&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-29 09:31</a>
+真要加人，求求你再海选一次吧，不会三期的人要从虚拟那边落选的人挑吧</blockquote>
+你还不如说连结了non和小百合那个女孩去了V呢，non，sayu我换了个样子来找你了啊（大嘘）
+
+*****
+
+####  cybernetics31  
+##### 1533#       发表于 2022-7-29 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们不提我都忘了秋季还有v………………麻了
+
+*****
+
+####  甘蓝巧克力  
+##### 1534#       发表于 2022-7-29 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单推三次元中之人还好说，但二次元真是倒了大霉
+

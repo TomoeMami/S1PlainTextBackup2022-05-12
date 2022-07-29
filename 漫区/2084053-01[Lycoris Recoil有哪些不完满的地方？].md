@@ -638,3 +638,22 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 但是都准备成这样了却没能提前预料到对方准备了炸 ...</blockquote>
 就非常的现实
 
+
+
+*****
+
+####  普罗茶  
+##### 70#       发表于 2022-7-29 09:38
+
+不多提ep3的透视问题了。至少目前表现来看，某种意义上是爆米花式的美少女百合“爽”片。当然能理解这降低了观看门槛，才能有目前如此的人气，不过我个人还是想要设计上更巧妙的的片子。
+
+*****
+
+####  nerugigannte  
+##### 71#       发表于 2022-7-29 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56846945&amp;ptid=2084053" target="_blank">JustW_3 发表于 2022-7-29 08:18</a>
+
+更衣人偶那堆疯传的gif已经够深夜动画了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是贴贴/百合的初次胜利？证明其meme传播力度不弱于bg与色气肉体
+
