@@ -1098,3 +1098,23 @@ kzh的队伍本来一般但是这次拿到捕手B之后的确挺强了
 
 另外感觉黛灰相比之前比较大牌的露露和gbr，确实有很大的不一样。露露和gbr可以说是本色演出，撕皮以后也没啥违和感，粉丝甚至可以无缝去推中之人。黛灰这个某种意义上对粉丝还是有点残忍的就是了，这个角色没了就是真的没了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 16600#       发表于 2022-7-29 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849232&amp;ptid=1972669" target="_blank">两仪式29 发表于 2022-7-29 11:01</a>
+
+所以作为对黛灰了解很深的观众你能不能来分析推测下到底有啥特别的企划内容是呆在2434没法实现的呢？
+
+我 ...</blockquote>
+他自己是只说过被ankr毙过很多企划书，也有很多做到一半放弃的企划
+
+不过绿仙有看过repo说企划书交上去拖很久没有回应最后就放弃做了，神田也说声剧那个企划拖了两年才得以实现<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+另外你真的可以仔细看一眼他的油库里毕业解说的，原话就有说“感觉这样下去会逐渐背叛一直以来的自己”，不是离开2434才能实现ymn想做的事，而是留在2434无法满足他想让“黛灰”去做的那些事
+
+【【官方熟肉/油库里解说】にじさんじ的黛灰宣布活动终止？！理由是？今后会变成什么样呢？-哔哩哔哩】 [https://b23.tv/OqGDHBD](https://b23.tv/OqGDHBD)
+

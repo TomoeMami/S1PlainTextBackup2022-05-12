@@ -525,3 +525,47 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说句实话真有三期生的话可以开始宣传了，企划不要再遮遮掩掩恶心人了。
 
+
+
+*****
+
+####  寒风夜  
+##### 1555#       发表于 2022-7-29 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56849771&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-29 11:29</a>
+
+22/7真的算皮套人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不算..
+
+*****
+
+####  稀勢のささ  
+##### 1556#       发表于 2022-7-29 11:33
+
+ 本帖最后由 稀勢のささ 于 2022-7-29 11:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在想如果五老星中的四个跟二期的中之人互换  加人后不知道会是个什么观感
+
+*****
+
+####  starring  
+##### 1557#       发表于 2022-7-29 11:36
+
+比起运营的屑操作，都来看看nako吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+171C4C42-1806-41E9-A3E8-B5766EFE9FD6.jpeg
+(241.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-29 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202207/29/113614wc0e7ew7ql0mxl9c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 1558#       发表于 2022-7-29 11:37
+
+其实人的问题是其次，搁这种操作下来，除非是有层次级的优势，那是谁也落不着好
+
