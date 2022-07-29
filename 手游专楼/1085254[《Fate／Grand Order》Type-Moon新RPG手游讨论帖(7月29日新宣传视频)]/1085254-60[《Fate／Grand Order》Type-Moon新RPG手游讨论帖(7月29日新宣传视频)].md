@@ -8298,3 +8298,19 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 
 当然是road to 7啦。真不觉得运营整得出大活
 
+
+
+*****
+
+####  qixinno2  
+##### 89248#       发表于 2022-7-29 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得不大没准官方觉得很大呢
+
+*****
+
+####  黑上シグマ  
+##### 89249#       发表于 2022-7-29 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是没有8了，现在再不变就没机会了
+
