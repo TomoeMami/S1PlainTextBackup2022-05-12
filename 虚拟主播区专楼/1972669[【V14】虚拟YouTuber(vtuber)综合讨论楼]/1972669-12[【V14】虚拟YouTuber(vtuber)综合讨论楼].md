@@ -1275,3 +1275,14 @@ VTA在读男学生数据第二好的长发哥虽然确实自身有一定特色�
 
 说到底莎皇那种能solo上位的都是少见的天才，大部分人还是要靠点拉关系的
 
+
+
+*****
+
+####  Ketestrait  
+##### 16614#       发表于 2022-7-29 18:20
+
+[https://www.youtube.com/watch?v=H6OOa9_wIy0&amp;t=1371s](https://www.youtube.com/watch?v=H6OOa9_wIy0&amp;t=1371s)
+
+大概版权管理越来越严，现在虹里要开歌回得提前上报，中途回应观众点歌也是不行得
+
