@@ -10148,3 +10148,27 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 我最开始听到的说法是周年从者是月球老人，没定好，具体看有没有做完
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89396#       发表于 2022-7-31 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56872719&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-7-30 22:25</a>
+
+地球姬是从月姬半月版时期，官方就一直在各种投票和角色表里独立出来的“另一个女主角”，被描述为“本篇 ...</blockquote>
+之前月姬MBTL附赠的电子设定集里有简单的设定，大体上就是准朱月吧。
+
+贴吧找了张图：
+
+<img src="https://img.saraba1st.com/forum/202207/31/012408g0bnpgwwhjbbwwpr.jpg" referrerpolicy="no-referrer">
+
+<strong>B774A675494539B409EA2924AB2250E0.jpg</strong> (88.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 01:24 上传
+
+我大概是把ARC理解为朱月的待夺舍转世灵童，或者做减求空的对象啥的...将属于type-moon月之王的因果（真祖、死祖）甩给ARC，待ARC完全继承这力量后自己化为崭新的type-earth...
+
