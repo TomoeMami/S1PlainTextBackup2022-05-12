@@ -938,3 +938,14 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 日本这情况，得每人来一次了。虽然得了的话完全不意外，但还是希望能避开吧
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1592#       发表于 2022-7-30 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56862941&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-30 07:55</a>
+ 唧喳喳那里我记得有个有关的翻译可以看看 https://www.jizhazha.com/jv1630 好像只翻译了一部分，也可以 ...</blockquote>
+草，直球辱骂了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
