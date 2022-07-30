@@ -902,3 +902,14 @@ JP现在这疫情下发烧基本就是感染新冠<img src="https://static.sarab
 JP现在这疫情下发烧基本就是感染新冠</blockquote>
 同松岡沒分別<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1588#       发表于 2022-7-30 20:34
+
+现在的问题不是什么时候得新冠，是多久得一次新冠，现在b25，后面还有呢
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
