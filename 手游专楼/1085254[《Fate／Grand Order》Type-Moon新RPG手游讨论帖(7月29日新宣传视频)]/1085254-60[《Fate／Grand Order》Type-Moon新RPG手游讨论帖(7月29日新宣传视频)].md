@@ -9389,3 +9389,31 @@ syl 这怎么只给一张礼装兑换票，一次性给完两张票得了，早�
 
 zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来一个规律，街机先出的角色到手机端一定会有所变化，可能是为了差异化营销吧。周年会出什么变得更难猜了，学弟，人王，提妈，紫苑都是热门选项，不过感觉很有可能是之后剧情里的反派角色，靠谱点猜是麻婆，离谱一点直接实装奥阿加玛丽<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89335#       发表于 2022-7-30 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866874&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-30 14:51</a>
+
+可以在新活动中一起复课(卡池)啊</blockquote>
+很有可能。
+
+上次恐龙活动后半段开了个道满池，这次出了浴衣灵衣也要开...同理...
+
+*****
+
+####  Jamaisvu  
+##### 89336#       发表于 2022-7-30 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866952&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 14:59</a>
+
+紫色老太婆和大眼的素材礼装的本还真挺有难度的，初见想放几个后排蹭羁绊的，结果翻车了。打老太婆的时候主 ...</blockquote>
+麻婆的话应该就是红光炮的AE了，三使徒分别三个色卡，都是光炮...
+
+不过反派四人组如果算上杀狐，三色光炮也已经齐了...
+
+但如果异星神是强迫症的话，麻婆大概率就是红宝具了...
+
