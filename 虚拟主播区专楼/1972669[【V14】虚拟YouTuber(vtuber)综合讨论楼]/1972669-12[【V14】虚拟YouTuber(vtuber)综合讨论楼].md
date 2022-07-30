@@ -1648,3 +1648,14 @@ Nornis新歌好夏天啊，suki<img src="https://static.saraba1st.com/image/smil
 
 selen歌回好好笑
 
+
+
+*****
+
+####  IL282  
+##### 16644#       发表于 2022-7-30 09:19
+
+我嘞个大槽Daft Punk 
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
