@@ -929,3 +929,12 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">只能习惯了，但是没事当然是最好......
 
+
+
+*****
+
+####  Enakina  
+##### 1591#       发表于 2022-7-30 22:09
+
+日本这情况，得每人来一次了。虽然得了的话完全不意外，但还是希望能避开吧
+
