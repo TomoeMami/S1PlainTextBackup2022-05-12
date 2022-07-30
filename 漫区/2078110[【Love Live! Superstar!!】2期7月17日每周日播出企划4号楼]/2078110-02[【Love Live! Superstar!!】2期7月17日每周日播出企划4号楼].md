@@ -786,3 +786,12 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 上不了推，募集了啥？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想也知道会是什么内容吧
 
+
+
+*****
+
+####  lj205  
+##### 1577#       发表于 2022-7-30 11:31
+
+应该还是会有中国staff审稿的，问题不大，不过能留言还是多留言吧
+
