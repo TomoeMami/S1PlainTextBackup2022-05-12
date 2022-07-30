@@ -1823,3 +1823,20 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 67，hnn队加油明天把开始2场拿下，能去打个第三争夺战也挺好的，我记得第三的奖品是烤肉来着吧 ...</blockquote>
 其实感觉今天第一局本来可以赢得，领先几分全浪没了然后被翻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16661#       发表于 2022-7-30 23:43
+
+ 本帖最后由 布莱士·西伯利 于 2022-7-30 23:46 编辑 
+
+[https://www.bilibili.com/video/BV17a411S7ma](https://www.bilibili.com/video/BV17a411S7ma)
+
+魔界ノりりむ X 星川サラ
+
+^p^ Poe~
+
+（rrm还是很努力的，毕竟翻唱出的其实算很勤了）
+
