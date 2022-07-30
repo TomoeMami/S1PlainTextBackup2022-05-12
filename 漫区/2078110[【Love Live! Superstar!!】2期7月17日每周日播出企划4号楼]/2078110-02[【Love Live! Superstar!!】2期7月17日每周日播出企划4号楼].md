@@ -858,3 +858,26 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 由手机上传
 2022-7-30 19:50 上传
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1583#       发表于 2022-7-30 20:05
+
+小百合危<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 1584#       发表于 2022-7-30 20:06
+
+sayu发烧，明天Nako上
+
+*****
+
+####  starring  
+##### 1585#       发表于 2022-7-30 20:08
+
+JP现在这疫情下发烧基本就是感染新冠<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
