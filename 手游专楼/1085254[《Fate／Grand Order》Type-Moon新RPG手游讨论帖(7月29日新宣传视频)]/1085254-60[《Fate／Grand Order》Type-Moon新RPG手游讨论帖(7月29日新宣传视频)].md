@@ -9222,3 +9222,64 @@ choco、redrop、三轮、raita
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  alucardcz  
+##### 89322#       发表于 2022-7-30 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866619&amp;ptid=1085254" target="_blank">承尘 发表于 2022-7-30 14:29</a>
+
+阿哲，那周年会是什么
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先奶一口提妈人王2选1
+
+*****
+
+####  空气蛹  
+##### 89323#       发表于 2022-7-30 14:34
+
+请务必是提妈<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 89324#       发表于 2022-7-30 14:34
+
+ 本帖最后由 Jamaisvu 于 2022-7-30 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866561&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-30 14:24</a>
+
+我只在意女梅林会是新红拐吗</blockquote>
+不太可能吧，虽然街机的C阶版技能和男梅林差不多，但这做成新红拐，那么杀狐的保质期也太短了吧，才一年...国服那边刚抽完的也会闹的...
+
+北极有个阿瓦隆看起来确实像是辅助宝具：【【FGO·1080P】泳装 女梅林-哔哩哔哩】 [https://b23.tv/o5JKJ15](https://b23.tv/o5JKJ15)
+
+（这个正面动画做的太好看了吧）不过没有放buff或debuff或伤害画面，暂且未知...
+
+（而且杀狐看了宝具谁想得到是拐啊...）
+
+看看明天的周年从者和梅莉哪个更像拐吧...我觉得梅莉可以当个冷却拐，C狐那样的。或者代替梅林在卑梅C体系的位置，技能弄一个全体强化解除抗性，宝具提供个一回合对肃正防御？
+
+*****
+
+####  Jamaisvu  
+##### 89325#       发表于 2022-7-30 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866647&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-30 14:32</a>
+
+我先奶一口提妈人王2选1</blockquote>
+我也奶一下提妈吧，这代表着街机手游两个异闻带的世界线收束，是好兆头...
+
+（不过还是挺想要月姬那边的人物的...）
+
+*****
+
+####  霧谷藤乃  
+##### 89326#       发表于 2022-7-30 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这泳装感觉像是情趣内衣啊，不过我喜欢
+
