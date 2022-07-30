@@ -8556,3 +8556,86 @@ app图标多了个7。。。。。 以前周年有过数字吗？ 没什么印�
 盘子都能换出两个up了，这什么究极呆毛单推人</blockquote>
 90币一个，（4000-180）/90=42.44，至少43个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89274#       发表于 2022-7-30 08:39
+
+早上起来竟然有40多MB更新，一看原来是英灵梦装提前实装了...随便拉几张吐槽下：
+
+中国异闻带的这个泳装武藏也太怪异了，小山这个审美感觉得看看医生，哪有旗袍配敝膝的说法？！这两个防晒袖更是什么鬼？古代民国现代三合一了吗...<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+不过作为剑圣拿一下干将莫邪倒是没啥问题，那边的红A坐下，你拿的是赝品没有版权费。
+
+（话说武藏不是在英灵座DATA LOST了吗，这算不算赚死人钱...）
+
+<img src="https://img.saraba1st.com/forum/202207/30/082625qrsmmc8kum3cnrnn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_081420.jpg</strong> (299.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:26 上传
+
+兰丸X这身是没想到，之前我还真的往奥伯龙那个方向猜了...
+
+FGO也算是面面俱到，连赠送英灵都给足了面子。
+
+（其实之前就有迷之女主XX和谜之偶像X的纪念礼装了）
+
+<img src="https://img.saraba1st.com/forum/202207/30/083000ci7p050i0sb58aap.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_081711.jpg</strong> (296.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:30 上传
+
+妖崔和皇女这两张画的真好看，妖崔确实一副刁蛮郡主的样子。倒是皇女这个包子头.看着有点像<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/30/083045pt3m3673xrt7rx3t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_081723.jpg</strong> (294.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:30 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/083046v0tsvh200zecaqhl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_081827.jpg</strong> (302.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:30 上传
+
+......其实岁三那个机装一出来就隐约感觉不对，没想到2.5真整了个太空风格...我记得土著们是好好穿着希腊服饰的，怎么迦勒底这帮子人整得和宇宙出舱似的...乍一看还以为是小王子三破...
+
+<img src="https://img.saraba1st.com/forum/202207/30/083521fulgbxlcl7buy7lg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_083457.jpg</strong> (265.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:35 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/083522u3vq1z1p0q9n31eh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_083508.jpg</strong> (289.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:35 上传
+
+另外这次的玛修在一众牛鬼神蛇中格外好看...我一开始预选了泡馍，然后决定有道满选道满，没有就找个好看点的。本来是看上妖兰了，画得很华丽。但其实妖兰那身十二单在礼装上根本看不到后面...突然感觉玛修确实格外好看...
+
+<img src="https://img.saraba1st.com/forum/202207/30/083303mifgzwawdcfh7gcg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220730_081812.jpg</strong> (304.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 08:33 上传
+
