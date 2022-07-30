@@ -9562,3 +9562,39 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 加雷斯是新的四星泳装从者吧...灵衣是医神、燕青和道满...</blockquote>
 那还有的救，看灵基再临能不能变可爱一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希望之花  
+##### 89353#       发表于 2022-7-30 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866779&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 14:43</a>
+
+容我KY一下：
+
+虽然阿瓦隆女士的笑容非常甜美：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个表情倒是挺常见的，不过刚才Q群里传的是和另外一个游戏图标的梗图
+
+*****
+
+####  Jamaisvu  
+##### 89354#       发表于 2022-7-30 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867349&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 15:38</a>
+
+那还有的救，看灵基再临能不能变可爱一些</blockquote>
+加雷斯自己的四张卡面还行吧，土妹子到元气骑士...不过之前英灵巡游的卡面倒挺好看的，有意境。
+
+<img src="https://img.saraba1st.com/forum/202207/30/154219wbp3wkd0zrbnxewx.png" referrerpolicy="no-referrer">
+
+<strong>英灵巡游：加雷斯.png</strong> (142.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 15:42 上传
+
+泳装（？）版本好像是要走登山露营风格，猜不出再临会变成什么衣服...
+
+希望能有龙女仆托尔那么可爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
