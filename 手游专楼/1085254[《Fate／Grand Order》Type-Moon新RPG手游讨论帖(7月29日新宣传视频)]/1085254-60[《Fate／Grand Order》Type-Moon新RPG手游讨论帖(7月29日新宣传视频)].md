@@ -9734,3 +9734,43 @@ nga看到的不知真假舅舅<img src="https://static.saraba1st.com/image/smile
 但是图个啥呢，就为了让真正的纯种月姬粉破防？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 89365#       发表于 2022-7-30 16:34
+
+因为今年是型月20周年+fgo7周年呗，7在型月意义还是特殊的，干脆就来个大的
+
+再说其他FGO内的重要人物全部被主线卡的死死的，麻婆有大番茄的仇，人王和加拉哈德还是谜语人，至于奥尔加大总统，不会真有人觉得终章前能出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89366#       发表于 2022-7-30 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867851&amp;ptid=1085254" target="_blank">虎克别音 发表于 2022-7-30 16:24</a>
+
+地球姬变成从者，不就变成盖亚向阿赖耶识投降？从者是阿赖耶识专属，用来保护人类的吧。 ...</blockquote>
+地球姬本质上是type-moon朱月死在地球上后、利用后代ARC借尸还魂，重新成为的UO，但却是地球UO，type-earth。
+
+当抑止力盖亚认为必要时，就会其制造出以月之王为蓝本的名为真祖的族群，其为自然调停者、星之触觉，盖亚的对人类直接自卫手段。
+
+被制造出的真祖既是灵长之敌也是自然的调停者，因此阿赖耶对其保持着否定且容忍的态度。
+
+万中之一的可能性，如果真出了，会不会是因为异星神的威胁过于严重，导致人类侧和地球侧的两大抑止力联手，让地球盖亚的意志以从者的身份现界？毕竟朱月也算个夹在盖亚和阿赖耶识中间的中立角色。
+
+......但是这种美式王道剧情也太狗血了，燃不起来...还是满怀期望地认为这绝对不可能的吧...
+
+*****
+
+####  Jamaisvu  
+##### 89367#       发表于 2022-7-30 16:39
+
+<blockquote>保罗赫伯特 发表于 2022-7-30 16:25
+我还记得2.6之前，舅舅说摩根是枪兵，大概是异世界舅舅
+
+真是朱月也太重量级了，不过想想仇凛这种宇 ...</blockquote>
+X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经不计较了...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
