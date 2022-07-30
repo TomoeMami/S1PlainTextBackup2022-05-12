@@ -9598,3 +9598,32 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 
 希望能有龙女仆托尔那么可爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 89355#       发表于 2022-7-30 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看说法，明天朱月落地
+
+*****
+
+####  khxooo  
+##### 89356#       发表于 2022-7-30 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867472&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2022-7-30 15:50</a>
+
+看说法，明天朱月落地</blockquote>
+那个基本上可以否了吧，官方都石锤是术阶了，还说是P阶。
+
+*****
+
+####  alucardcz  
+##### 89357#       发表于 2022-7-30 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867488&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-30 15:51</a>
+
+那个基本上可以否了吧，官方都石锤是术阶了，还说是P阶。</blockquote>
+什么 官方是石锤过术阶？ 啥时候的事情 今天？
+
