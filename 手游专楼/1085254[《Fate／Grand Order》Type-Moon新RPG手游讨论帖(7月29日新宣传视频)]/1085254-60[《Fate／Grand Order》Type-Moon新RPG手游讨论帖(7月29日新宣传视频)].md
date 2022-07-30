@@ -9804,3 +9804,47 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 幸好之前存的比较多...<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">希望够用吧...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89371#       发表于 2022-7-30 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56868071&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 16:42</a>
+
+大C呆好像就是盖亚派系的，但是也从者化了</blockquote>
+羁绊6：
+
+阿尔托莉雅·卡斯特完成了在妖精国的使命，消散了。
+
+将肉体献给圣剑，化作圣剑本身的她，
+
+今后将成为帮助『对抗对星球威胁之人』的人理辅助装置。
+
+其名为阿尔托莉雅·阿瓦隆。
+
+灵基第三阶段的形态是被召唤而来的她的本来面貌，而灵基第一、第二形态则是造就了她的“过去某人”的存在方式……并非是作为乐园妖精的记录，而是她把作为预言之子旅行的春日记忆……进行模拟后的产物。。
+
+——————————
+
+星之内海中做出的人理辅助装置，目的是对抗星球级别的威胁。
+
+看来异星神真的很危险啊，2.7的第五祖大蜘蛛好像也是异星神，奥尔特星云的UO，侵略地球的途中顺便吃了来帮忙的水星UO......
+
+这么一想情况确实很紧急，那就派ARC救一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 89372#       发表于 2022-7-30 17:07
+
+我才刚知道，我在的群原来以前不知道妖精骑士写作谭林
+
+*****
+
+####  sosgame67  
+##### 89373#       发表于 2022-7-30 17:10
+
+攒石党无所畏惧，有保底后不到一井连抽卡都没动力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
