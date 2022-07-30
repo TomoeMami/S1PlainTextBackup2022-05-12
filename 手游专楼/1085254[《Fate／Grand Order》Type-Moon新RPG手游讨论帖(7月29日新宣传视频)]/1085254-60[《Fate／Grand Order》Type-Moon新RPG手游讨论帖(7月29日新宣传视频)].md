@@ -9857,3 +9857,24 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看我2石过周年庆
 
+
+
+*****
+
+####  芭德薇  
+##### 89375#       发表于 2022-7-30 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867814&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 16:21</a>
+
+可信度不咋地的剧透，怀疑上面那个时间是创建文件的时间...
+
+地球姬莫名其妙跑FGO里干啥？和主线没啥关 ...</blockquote>
+这个界面是discord吧，如果没ps过的话那就是26号那天截的图，当时可能有小规模传播过，但是看到的人不一定信所以没有进一步散播，但今天官方放出来两个能对上的，然后之前看到的人就有对外转发的理由了。
+
+*****
+
+####  eden_hazard  
+##### 89376#       发表于 2022-7-30 17:27
+
+昨天充了3单，今天看到梅莉之后立刻又充了5单。现在代充还不如买水果卡划算
+
