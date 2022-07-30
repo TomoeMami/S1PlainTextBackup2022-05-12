@@ -890,3 +890,15 @@ JP现在这疫情下发烧基本就是感染新冠<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这是给谁惹上了
 
+
+
+*****
+
+####  kria  
+##### 1587#       发表于 2022-7-30 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56870354&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-30 20:08</a>
+
+JP现在这疫情下发烧基本就是感染新冠</blockquote>
+同松岡沒分別<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
