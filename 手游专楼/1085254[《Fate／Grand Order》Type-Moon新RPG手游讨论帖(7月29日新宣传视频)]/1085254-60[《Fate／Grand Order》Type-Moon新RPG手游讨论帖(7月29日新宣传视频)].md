@@ -8751,3 +8751,19 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 耗3回合，打一发宝具干掉她触发战续，重复4次，没难度啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我理解有误 以为是要一回合宝具伤害达到多少 耗过去了
 
+
+
+*****
+
+####  zore  
+##### 89286#       发表于 2022-7-30 11:40
+
+为什么总感觉武藏礼装的头像是抠图抠下来贴上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89287#       发表于 2022-7-30 11:44
+
+第一张选了兰丸，这张真的惊艳到我了，剩下那张在伽摩和妖兰中烦恼。
+
