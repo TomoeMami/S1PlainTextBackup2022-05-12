@@ -9417,3 +9417,86 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 
 但如果异星神是强迫症的话，麻婆大概率就是红宝具了...
 
+
+
+*****
+
+####  khxooo  
+##### 89337#       发表于 2022-7-30 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867052&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 15:09</a>
+麻婆的话应该就是红光炮的AE了，三使徒分别三个色卡，都是光炮...
+
+不过反派四人组如果算上杀狐，三色光 ...</blockquote>
+那我石头就能留给梅莉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89338#       发表于 2022-7-30 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866952&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 14:59</a>
+
+紫色老太婆和大眼的素材礼装的本还真挺有难度的，初见想放几个后排蹭羁绊的，结果翻车了。打老太婆的时候主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是白给的吗  老太婆 三藏cba cab 白给 纯浪费时间  大眼 珀西瓦尔 cab c狐 也是纯白给。。
+
+*****
+
+####  qb0079  
+##### 89339#       发表于 2022-7-30 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅莉都来了，周年是不是粉丝先落地啊
+
+*****
+
+####  exiaexa  
+##### 89340#       发表于 2022-7-30 15:17
+
+医生：是时候连夜复活了
+
+明天就相聚迦勒底
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 89341#       发表于 2022-7-30 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-30 15:11</a>
+
+不是白给的吗  老太婆 三藏cba cab 白给 纯浪费时间  大眼 珀西瓦尔 cab c狐 也是纯白给。。 ...</blockquote>
+我没术阶打手，上的狂阶直接给打死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89342#       发表于 2022-7-30 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反业
+
+*****
+
+####  alucardcz  
+##### 89343#       发表于 2022-7-30 15:19
+
+再翻
+
+*****
+
+####  J-002  
+##### 89344#       发表于 2022-7-30 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">为什么只能选两张……
+
+*****
+
+####  alucardcz  
+##### 89345#       发表于 2022-7-30 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867132&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 15:18</a>
+
+我没术阶打手，上的狂阶直接给打死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以用金钻头
+
