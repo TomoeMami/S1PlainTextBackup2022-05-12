@@ -8831,3 +8831,83 @@ ReDrop，你！是！我！的！神！<img src="https://static.saraba1st.com/im
 伽摩梦装的设计图：</blockquote>
 ReDrop的售后真的不必Choco差<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 89290#       发表于 2022-7-30 12:23
+
+妖兰可惜了，卡面大小限制了，显得特别别扭
+
+*****
+
+####  Jamaisvu  
+##### 89291#       发表于 2022-7-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56865113&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-30 12:12</a>
+
+ReDrop的售后真的不必Choco差</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/30/121544zeaqvyyq89o9w1qa.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Qd3th-63llZ2sT3cSp0-xc.jpg</strong> (186.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/121545c2od2hyohwondtwx.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2p-4rt6Z1cT3cS11m-1gs.jpg</strong> (460.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/121650dq4wqr2020j2oerw.png" referrerpolicy="no-referrer">
+
+<strong>1659154597318.png</strong> (259.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:16 上传
+
+choco的官方本子之前还特意在推特上给中国玩家发了虎穴的购买地址：[https://news.toranoana.jp/lp/aocs?lang=chs](https://news.toranoana.jp/lp/aocs?lang=chs)​
+
+真的是不遗余力地推销亲女儿啊。
+
+<img src="https://img.saraba1st.com/forum/202207/30/122002lfcanl8fcf86cgyk.jpg" referrerpolicy="no-referrer">
+
+<strong>1657812533107.jpg</strong> (263.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:20 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/122003w3eomewu0yolkjkm.jpg" referrerpolicy="no-referrer">
+
+<strong>1657812529174.jpg</strong> (308.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:20 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/122313ymhw7l9bmbhxtmt7.png" referrerpolicy="no-referrer">
+
+<strong>1659154932503.png</strong> (392 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/122313xzd2o6uzmsmm2c4d.png" referrerpolicy="no-referrer">
+
+<strong>1659154975893.png</strong> (452.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:23 上传
+
+推特上的图也更新的相当勤快，哪怕是用磁性画板也要时不时画上几笔，实属画师之鉴了。
+
