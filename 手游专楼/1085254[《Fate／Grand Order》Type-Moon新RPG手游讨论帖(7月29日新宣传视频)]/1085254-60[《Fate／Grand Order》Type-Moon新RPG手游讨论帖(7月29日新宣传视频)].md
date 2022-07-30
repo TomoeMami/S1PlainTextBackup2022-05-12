@@ -10074,3 +10074,19 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随意 反正躺平了
 
+
+
+*****
+
+####  khxooo  
+##### 89389#       发表于 2022-7-30 19:32
+
+如果不是C呆这样级别的拐，我估计不会抽了，心都被梅莉盗走了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 89390#       发表于 2022-7-30 19:33
+
+上周提前充了2单，现在一看怕是不够用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
