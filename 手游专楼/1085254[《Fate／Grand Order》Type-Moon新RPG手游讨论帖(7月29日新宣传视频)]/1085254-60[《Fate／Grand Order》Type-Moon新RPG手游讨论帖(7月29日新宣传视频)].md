@@ -8911,3 +8911,30 @@ choco的官方本子之前还特意在推特上给中国玩家发了虎穴的购
 
 推特上的图也更新的相当勤快，哪怕是用磁性画板也要时不时画上几笔，实属画师之鉴了。
 
+
+
+*****
+
+####  alucardcz  
+##### 89292#       发表于 2022-7-30 12:51
+
+武藏为什么是黑皮..有毛病?
+
+*****
+
+####  gpx234mqx  
+##### 89293#       发表于 2022-7-30 12:56
+
+说的好，我就选这个了
+
+助战咋没人放梦装
+
+117E83EA-79B8-4F3D-81A2-83A69821FBB4.jpeg
+(781.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 12:55 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/125536s753iw5xlllo35xl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
