@@ -913,3 +913,19 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 1589#       发表于 2022-7-30 21:16
+
+总感觉她们都是迟早的事………………只希望不要留下后遗症<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 1590#       发表于 2022-7-30 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">只能习惯了，但是没事当然是最好......
+
