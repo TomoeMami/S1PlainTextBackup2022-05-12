@@ -10027,3 +10027,12 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 日文名是こおろぎさとみ</blockquote>
 小新他妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89385#       发表于 2022-7-30 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼装武藏那双刀村正给她打的
+
