@@ -1693,3 +1693,17 @@ selen和铁老鼠一样喜欢唱musical，然而段位差距<img src="https://st
 
 说身体不适明显就这个原因
 
+
+
+*****
+
+####  小鸟游泉  
+##### 16648#       发表于 2022-7-30 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56863884&amp;ptid=1972669" target="_blank">高等黑暗 发表于 2022-7-30 10:11</a>
+
+这还用猜吗？上周日本一周96w确诊
+
+说身体不适明显就这个原因</blockquote>
+罗仑、空星和野良猫这几个阳的时候都有发报告，西西要真是阳了估计不会模糊不说的吧
+
