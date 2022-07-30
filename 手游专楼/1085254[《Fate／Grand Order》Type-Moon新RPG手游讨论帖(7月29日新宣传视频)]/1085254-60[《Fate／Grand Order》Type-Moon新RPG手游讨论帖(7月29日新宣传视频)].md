@@ -8938,3 +8938,45 @@ choco的官方本子之前还特意在推特上给中国玩家发了虎穴的购
 
 <img src="https://img.saraba1st.com/forum/202207/30/125536s753iw5xlllo35xl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89294#       发表于 2022-7-30 13:01
+
+售后最好的几个
+
+choco、redrop、三轮、raita
+
+发起病一本接一本不得了的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说起来最近近卫似乎尝试给飞哥克姐做一下售后，但是自己战斗力太渣了完全不如三轮的西哥布姐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gulant  
+##### 89295#       发表于 2022-7-30 13:03
+
+武藏为什么是黑皮，什么鬼。
+
+*****
+
+####  Jamaisvu  
+##### 89296#       发表于 2022-7-30 13:05
+
+话说伽摩的梦装其实是assassin阶的...兑换页面名字后的括号里有职阶...我看带着个小黑影就下意识地以为是泳装版了...
+
+不过也对，泡摩的话头上应该戴着花环...
+
+*****
+
+####  Jamaisvu  
+##### 89297#       发表于 2022-7-30 13:08
+
+泳装武藏在中国  ×
+
+广州武藏穿泳装  ？
+
