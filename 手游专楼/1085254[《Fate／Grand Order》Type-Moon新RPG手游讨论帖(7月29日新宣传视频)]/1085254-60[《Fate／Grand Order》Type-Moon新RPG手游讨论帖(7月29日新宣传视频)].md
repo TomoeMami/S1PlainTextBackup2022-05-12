@@ -9965,3 +9965,14 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 医神这身休闲装也不错，但是原皮已经够好看了，难分秋色啊...不过有新衣服肯定要换上～
 
+
+
+*****
+
+####  rollingusagi  
+##### 89379#       发表于 2022-7-30 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">真要落地公主的话那就再次证明蘑菇的话不能信，之前还承诺月姬重制没出完之前不会联动月姬的角色
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
