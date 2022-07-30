@@ -8696,3 +8696,12 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 
 细看了一下，突然发现不是是我想的那种透视，只是纯粹的火柴人罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89280#       发表于 2022-7-30 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大体看了下，暂时没有特别喜欢的
+
