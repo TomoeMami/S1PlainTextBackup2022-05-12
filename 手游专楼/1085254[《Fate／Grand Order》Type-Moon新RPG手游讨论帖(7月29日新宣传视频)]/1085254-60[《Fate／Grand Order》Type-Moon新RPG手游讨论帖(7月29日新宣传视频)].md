@@ -9009,3 +9009,31 @@ choco、redrop、三轮、raita
 由手机上传
 2022-7-30 13:15 上传
 
+
+
+*****
+
+####  gpx234mqx  
+##### 89299#       发表于 2022-7-30 13:20
+
+第二张选皇女还是妖崔呢
+
+*****
+
+####  Jamaisvu  
+##### 89300#       发表于 2022-7-30 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56865709&amp;ptid=1085254" target="_blank">gulant 发表于 2022-7-30 13:03</a>
+
+武藏为什么是黑皮，什么鬼。</blockquote>
+有人说是为了cos红A<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+白毛，黑皮，干将莫邪，有剑阶的版本，为了救人甘愿牺牲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzxa  
+##### 89301#       发表于 2022-7-30 13:27
+
+看下夏活出哪个
+
