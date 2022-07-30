@@ -9976,3 +9976,33 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  char0311131  
+##### 89380#       发表于 2022-7-30 18:34
+
+看直播漏看了奥罗拉cv，是谁呢？
+
+*****
+
+####  DARKGRAY  
+##### 89381#       发表于 2022-7-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56869072&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2022-7-30 18:21</a>
+
+真要落地公主的话那就再次证明蘑菇的话不能信，之前还承诺月姬重制没出完之前不会联动月姬的角色
+
+  ...</blockquote>
+把MB和本篇分开看即可解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89382#       发表于 2022-7-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56869190&amp;ptid=1085254" target="_blank">char0311131 发表于 2022-7-30 18:34</a>
+看直播漏看了奥罗拉cv，是谁呢？</blockquote>
+日文名是こおろぎさとみ
+
