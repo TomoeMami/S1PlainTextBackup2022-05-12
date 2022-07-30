@@ -1766,3 +1766,12 @@ selen和铁老鼠一样喜欢唱musical，然而段位差距<img src="https://st
 奶一口释迦队vs cpt队，这两队肉眼可见的强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 syl 主播还得是icebox＋viper，赢的轻松
 
+
+
+*****
+
+####  Suzutsuki  
+##### 16655#       发表于 2022-7-30 22:39
+
+67这队前三局输哈弟要背大锅，好歹在队伍里也是top3，角色球员hnn表现那么好，67发挥差点就差了，老大哥之一软了就不好打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
