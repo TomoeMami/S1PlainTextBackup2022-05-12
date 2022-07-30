@@ -758,3 +758,31 @@ https://www.jizhazha.com/jv1630
 好像只翻译了一部分，也可以看看原串
 https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 
+
+
+*****
+
+####  cat1230  
+##### 1575#       发表于 2022-7-30 11:21
+
+<blockquote>引用第1571楼iuhehc于2022-07-30 01:53发表的  :
+
+本帖最后由 iuhehc 于 2022-7-30 02:57 编辑 官推发的那个唐可可中文讲座募集t......</blockquote>
+@iuhehc
+
+上不了推，募集了啥？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1576#       发表于 2022-7-30 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56864561&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-30 11:21</a>
+
+@iuhehc
+
+上不了推，募集了啥？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想也知道会是什么内容吧
+
