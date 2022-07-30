@@ -1795,3 +1795,19 @@ cpt队被cisco队掀了，绝好调的clutch队被daruma队狙击了<img src="ht
 syl hnn这个角色可以算开发出来了，之前从来没玩过
 <img src="https://p.sda1.dev/6/92b49e350be14ddd4b8a396c1fef49ed/41e487204f302f1a.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 16658#       发表于 2022-7-30 23:20
+
+67，hnn队加油明天把开始2场拿下，能去打个第三争夺战也挺好的，我记得第三的奖品是烤肉来着吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 16659#       发表于 2022-7-30 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nrk，vanilla这队大赛也太软脚虾了，1-4还都是大比分被带走
+
