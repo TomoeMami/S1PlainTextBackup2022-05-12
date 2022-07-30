@@ -8820,3 +8820,14 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 
 ReDrop，你！是！我！的！神！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 89289#       发表于 2022-7-30 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56865051&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 12:06</a>
+伽摩梦装的设计图：</blockquote>
+ReDrop的售后真的不必Choco差<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
