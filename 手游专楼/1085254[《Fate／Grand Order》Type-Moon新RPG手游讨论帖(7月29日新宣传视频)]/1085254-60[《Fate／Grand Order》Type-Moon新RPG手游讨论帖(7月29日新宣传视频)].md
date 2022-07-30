@@ -10118,3 +10118,24 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 地球姬和FGO早就产生过交集，她在MB Cross FGO的漫画《MELTY BLOOD 小巷子噩梦》后期（大约是2016年秋冬的连载，彼时FGO尚在第一部末期）出场，一度想要剪除迦勒底存在的记录带，被紫苑和希娅莉姆姐妹劝说后暂时失去了兴趣。有兴趣可以找来看一下，恐怕她就算实装，剧情中的定位也不会是纯粹的友军。
 
+
+
+*****
+
+####  alucardcz  
+##### 89393#       发表于 2022-7-30 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一真是地球姬 那肯定不是拐了吧？ 总不能地球姬是个拐吧（
+
+*****
+
+####  alucardcz  
+##### 89394#       发表于 2022-7-30 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867989&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-7-30 16:34</a>
+
+因为今年是型月20周年+fgo7周年呗，7在型月意义还是特殊的，干脆就来个大的
+
+再说其他FGO内的重要人物全部被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以先来啊  c呆a狐不都是提前先来的
+
