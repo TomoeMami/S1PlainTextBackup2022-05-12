@@ -9848,3 +9848,12 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 攒石党无所畏惧，有保底后不到一井连抽卡都没动力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89374#       发表于 2022-7-30 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看我2石过周年庆
+
