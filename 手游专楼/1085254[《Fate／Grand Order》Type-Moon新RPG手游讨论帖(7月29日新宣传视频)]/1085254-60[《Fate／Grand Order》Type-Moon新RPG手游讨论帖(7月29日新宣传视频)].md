@@ -8664,3 +8664,35 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 
 日语盲这时候最惨了，一堆花里胡哨的状态不知道什么意思。杀鸡带个回血然后蓝卡光炮炸就完了，杀师匠挨宝具掉血0…
 
+
+
+*****
+
+####  الطائر  
+##### 89278#       发表于 2022-7-30 10:03
+
+穿汉服的妖崔太可爱了，但是高跟鞋…… 
+
+<img src="https://img.saraba1st.com/forum/202207/30/100216ncatsxjvvslv5ll8.jpg" referrerpolicy="no-referrer">
+
+<strong>FY4OdhIUIAAb2kt.jpg</strong> (751.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 10:02 上传
+
+[https://twitter.com/tearofbrier/status/1553195009226067968](https://twitter.com/tearofbrier/status/1553195009226067968)
+
+*****
+
+####  YIIIIIno  
+##### 89279#       发表于 2022-7-30 10:05
+
+ 本帖最后由 YIIIIIno 于 2022-7-30 10:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56863279&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-30 08:58</a>
+
+为什么我觉得马修这腿巨别扭</blockquote>
+透视错误，PP和大腿连不上了，怕不是武内摸鱼直接复制粘贴过来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+细看了一下，突然发现不是是我想的那种透视，只是纯粹的火柴人罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
