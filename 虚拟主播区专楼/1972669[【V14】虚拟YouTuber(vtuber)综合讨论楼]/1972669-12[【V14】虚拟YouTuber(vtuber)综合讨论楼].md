@@ -1811,3 +1811,15 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nrk，vanilla这队大赛也太软脚虾了，1-4还都是大比分被带走
 
+
+
+*****
+
+####  FCCHua  
+##### 16660#       发表于 2022-7-30 23:33
+
+ 本帖最后由 FCCHua 于 2022-7-30 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56873608&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2022-7-30 23:20</a>
+67，hnn队加油明天把开始2场拿下，能去打个第三争夺战也挺好的，我记得第三的奖品是烤肉来着吧 ...</blockquote>
+其实感觉今天第一局本来可以赢得，领先几分全浪没了然后被翻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
