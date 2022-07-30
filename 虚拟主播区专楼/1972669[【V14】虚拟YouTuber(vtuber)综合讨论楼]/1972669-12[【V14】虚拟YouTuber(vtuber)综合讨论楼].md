@@ -1754,3 +1754,15 @@ selen和铁老鼠一样喜欢唱musical，然而段位差距<img src="https://st
 
 丽姐队真是一路掀翻对手……看傻了
 
+
+
+*****
+
+####  FCCHua  
+##### 16654#       发表于 2022-7-30 21:28
+
+ 本帖最后由 FCCHua 于 2022-7-30 21:29 编辑 
+
+奶一口释迦队vs cpt队，这两队肉眼可见的强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 主播还得是icebox＋viper，赢的轻松
+
