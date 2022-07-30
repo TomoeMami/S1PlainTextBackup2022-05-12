@@ -10139,3 +10139,12 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 再说其他FGO内的重要人物全部被 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以先来啊  c呆a狐不都是提前先来的
 
+
+
+*****
+
+####  kisskick  
+##### 89395#       发表于 2022-7-31 00:50
+
+我最开始听到的说法是周年从者是月球老人，没定好，具体看有没有做完
+
