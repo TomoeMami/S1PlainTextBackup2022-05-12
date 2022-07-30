@@ -9894,3 +9894,74 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 斯卡蒂是冰雪女神，冬泳应该很合适<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望小山不要犯病弄个黑皮斯卡蒂...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89378#       发表于 2022-7-30 17:55
+
+ 本帖最后由 Jamaisvu 于 2022-7-30 17:59 编辑 
+
+转一下目前放出的泳装立绘：
+
+两位从者
+
+<img src="https://img.saraba1st.com/forum/202207/30/174739v86mmdauz128r258.png" referrerpolicy="no-referrer">
+
+<strong>1659174416209.png</strong> (120.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/174739v4wxpjlav1aiq1im.png" referrerpolicy="no-referrer">
+
+<strong>1659174418815.png</strong> (97.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 17:47 上传
+
+梅莉相当惊艳，不愧是梦魔。如果不是查了资料发现梅林是男梦魔和人类公主生的，我都要怀疑这个pretender指的是梅林的梦魔母亲伪装成孩子来迦勒底消暑...
+
+（也许是异世界梅莉的妈妈？）
+
+加雷斯这身衣服还挺可爱的，背后可能是冲浪板？和小莫一起玩吗？这身衣服挺宽大的，很像游泳前在泳装外面套的那种宽松连衣裙，很元气的感觉，好感度upup。
+
+（直播时给手提箱一个镜头，吓得我以为是南丁出泳装...）
+
+三套灵衣：
+
+<img src="https://img.saraba1st.com/forum/202207/30/174740im4joc4je6jee4gv.png" referrerpolicy="no-referrer">
+
+<strong>1659174421389.png</strong> (140.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/174740eixefo8ixai25fer.png" referrerpolicy="no-referrer">
+
+<strong>1659174423960.png</strong> (123.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202207/30/174741a7442as9zz4uxw4d.png" referrerpolicy="no-referrer">
+
+<strong>1659174426466.png</strong> (121.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 17:47 上传
+
+道满这身细看还是挺漂亮的，不知道卡面有什么新活儿...（像闪闪的王之相伴礼装那样酥胸半露邀人共饮就很好...）
+
+我对道满的喜爱其实是掺了一些对夏油杰的厨力进去的，无刘海发型+和服造型更像夏油了...代餐真好吃<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+燕青高马尾太漂亮了，之前那个虎视眈眈的礼装也不错，可以算是中国系从者的看板郎了。
+
+医神这身休闲装也不错，但是原皮已经够好看了，难分秋色啊...不过有新衣服肯定要换上～
+
