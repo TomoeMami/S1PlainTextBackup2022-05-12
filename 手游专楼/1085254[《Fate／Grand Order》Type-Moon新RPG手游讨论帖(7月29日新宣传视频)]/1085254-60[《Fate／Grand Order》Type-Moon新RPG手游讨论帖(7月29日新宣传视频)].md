@@ -10006,3 +10006,24 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 看直播漏看了奥罗拉cv，是谁呢？</blockquote>
 日文名是こおろぎさとみ
 
+
+
+*****
+
+####  我不太会吹  
+##### 89383#       发表于 2022-7-30 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56869258&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-30 18:39</a>
+
+日文名是こおろぎさとみ</blockquote>
+百度下是兴梠里美？
+
+*****
+
+####  char0311131  
+##### 89384#       发表于 2022-7-30 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56869258&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-30 18:39</a>
+日文名是こおろぎさとみ</blockquote>
+小新他妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
