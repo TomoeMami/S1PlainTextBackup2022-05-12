@@ -828,3 +828,17 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 1581#       发表于 2022-7-30 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56862163&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-7-30 01:53</a>
+
+官推发的那个唐可可中文讲座募集tag里，就没几条能看的 
+
+—— 来自 S1Fun ...</blockquote>
+这不经典嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计就走个表面工程，真要弄还是内部搞
+

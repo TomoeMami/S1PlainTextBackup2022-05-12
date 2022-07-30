@@ -9774,3 +9774,33 @@ nga看到的不知真假舅舅<img src="https://static.saraba1st.com/image/smile
 真是朱月也太重量级了，不过想想仇凛这种宇 ...</blockquote>
 X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经不计较了...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89368#       发表于 2022-7-30 16:41
+
+其实月姬方的角色落地真有可能，过年时期尼禄卡奥斯就从彷徨海走出来了，周年期间再出个二十七祖也没啥...
+
+*****
+
+####  保罗赫伯特  
+##### 89369#       发表于 2022-7-30 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867851&amp;ptid=1085254" target="_blank">虎克别音 发表于 2022-7-30 16:24</a>
+
+地球姬变成从者，不就变成盖亚向阿赖耶识投降？从者是阿赖耶识专属，用来保护人类的吧。 ...</blockquote>
+大C呆好像就是盖亚派系的，但是也从者化了
+
+*****
+
+####  Jamaisvu  
+##### 89370#       发表于 2022-7-30 16:44
+
+去淘宝看了下代充，MA的旅行直接把FGO代充下架了，可能前几天460一单买的人太多把小姐姐累坏了...
+
+贴吧的老姐姐也没上新货，月下的小铺只有福袋了...另外一家我常用的代充500一单了...
+
+幸好之前存的比较多...<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">希望够用吧...
+
