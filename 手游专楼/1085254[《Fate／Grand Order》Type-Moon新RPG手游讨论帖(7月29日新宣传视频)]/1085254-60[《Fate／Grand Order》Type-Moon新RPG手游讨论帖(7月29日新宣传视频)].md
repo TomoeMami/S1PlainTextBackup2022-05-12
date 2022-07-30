@@ -9334,3 +9334,58 @@ choco、redrop、三轮、raita
 
 去年的泳装不复刻了？我还等着补水夹馍啊.....
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89330#       发表于 2022-7-30 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866779&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 14:43</a>
+
+容我KY一下：
+
+虽然阿瓦隆女士的笑容非常甜美：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个表情，隔壁游戏图标上有啊
+
+*****
+
+####  alucardcz  
+##### 89331#       发表于 2022-7-30 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866846&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-7-30 14:49</a>
+
+去年的泳装不复刻了？我还等着补水夹馍啊.....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊
+
+*****
+
+####  廖化  
+##### 89332#       发表于 2022-7-30 14:56
+
+七年了，冬木三骑是哪个狗还没有灵衣我就不点名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（狗厨一败涂地<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Jamaisvu  
+##### 89333#       发表于 2022-7-30 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866859&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-30 14:50</a>
+
+这个表情，隔壁游戏图标上有啊</blockquote>
+我超，円<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 89334#       发表于 2022-7-30 14:59
+
+紫色老太婆和大眼的素材礼装的本还真挺有难度的，初见想放几个后排蹭羁绊的，结果翻车了。打老太婆的时候主C还给打死了，靠一堆拐拖成了持久战，两边都是刮痧+厚盾，硬生生地把她刮死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 这怎么只给一张礼装兑换票，一次性给完两张票得了，早想好要梅林和妖兰了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来一个规律，街机先出的角色到手机端一定会有所变化，可能是为了差异化营销吧。周年会出什么变得更难猜了，学弟，人王，提妈，紫苑都是热门选项，不过感觉很有可能是之后剧情里的反派角色，靠谱点猜是麻婆，离谱一点直接实装奥阿加玛丽<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
