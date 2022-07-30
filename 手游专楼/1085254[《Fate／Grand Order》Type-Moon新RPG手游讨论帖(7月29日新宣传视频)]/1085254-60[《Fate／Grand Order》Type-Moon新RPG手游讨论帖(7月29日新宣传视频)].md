@@ -8705,3 +8705,49 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大体看了下，暂时没有特别喜欢的
 
+
+
+*****
+
+####  qixinno2  
+##### 89281#       发表于 2022-7-30 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老太婆这本怎么打 不管机制强杀么
+
+*****
+
+####  黑上シグマ  
+##### 89282#       发表于 2022-7-30 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56863933&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-30 10:17</a>
+
+大体看了下，暂时没有特别喜欢的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">今年就这些了
+
+*****
+
+####  霧谷藤乃  
+##### 89283#       发表于 2022-7-30 10:30
+
+翻页……
+
+*****
+
+####  黑上シグマ  
+##### 89284#       发表于 2022-7-30 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56863974&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-30 10:21</a>
+
+老太婆这本怎么打 不管机制强杀么</blockquote>
+耗3回合，打一发宝具干掉她触发战续，重复4次，没难度啊
+
+*****
+
+####  qixinno2  
+##### 89285#       发表于 2022-7-30 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56864119&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-30 10:36</a>
+
+耗3回合，打一发宝具干掉她触发战续，重复4次，没难度啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我理解有误 以为是要一回合宝具伤害达到多少 耗过去了
+
