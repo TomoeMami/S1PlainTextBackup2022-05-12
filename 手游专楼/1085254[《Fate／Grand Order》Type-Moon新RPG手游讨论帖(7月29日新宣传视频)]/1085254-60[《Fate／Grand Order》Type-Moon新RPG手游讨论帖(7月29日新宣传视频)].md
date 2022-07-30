@@ -9053,3 +9053,26 @@ choco、redrop、三轮、raita
 
 尼玛这次7周年不是女梅林说不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89304#       发表于 2022-7-30 14:00
+
+奥伯龙的声优丰永利行也新冠确诊了...希望2.6其他的声优别出事...
+
+*****
+
+####  Jamaisvu  
+##### 89305#       发表于 2022-7-30 14:02
+
+街机真的反哺过手游什么原封不动的东西吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89306#       发表于 2022-7-30 14:09
+
+北极圈搞泳装？认真的吗？！
+
