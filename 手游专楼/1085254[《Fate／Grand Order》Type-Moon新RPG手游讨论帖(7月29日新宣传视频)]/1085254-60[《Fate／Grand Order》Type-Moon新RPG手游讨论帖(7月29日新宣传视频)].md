@@ -9174,3 +9174,51 @@ choco、redrop、三轮、raita
 看名字是叫“梅莉•阿瓦隆”？</blockquote>
 是Lady Avalon吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89317#       发表于 2022-7-30 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866514&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-30 14:19</a>
+
+是Lady Avalon吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">惭愧，下意识以为名字没改。看来是要保持神秘感啊，你说是吧，科莱恩小姐？
+
+*****
+
+####  Jamaisvu  
+##### 89318#       发表于 2022-7-30 14:22
+
+泳装直接出新卡而不是旧卡翻新，这也是头一遭啊...期待提亚马特也换个身份落地<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89319#       发表于 2022-7-30 14:24
+
+ 本帖最后由 alucardcz 于 2022-7-30 14:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56866528&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 14:21</a>
+
+惭愧，下意识以为名字没改。看来是要保持神秘感啊，你说是吧，科莱恩小姐？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只在意女梅林会是新红拐吗
+
+*****
+
+####  空气蛹  
+##### 89320#       发表于 2022-7-30 14:25
+
+草，我的止氪计划要失败了
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  承尘  
+##### 89321#       发表于 2022-7-30 14:29
+
+阿哲，那周年会是什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
