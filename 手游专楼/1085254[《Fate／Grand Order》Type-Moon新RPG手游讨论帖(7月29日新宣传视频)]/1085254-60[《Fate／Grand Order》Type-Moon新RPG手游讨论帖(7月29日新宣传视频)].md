@@ -9627,3 +9627,15 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 那个基本上可以否了吧，官方都石锤是术阶了，还说是P阶。</blockquote>
 什么 官方是石锤过术阶？ 啥时候的事情 今天？
 
+
+
+*****
+
+####  khxooo  
+##### 89358#       发表于 2022-7-30 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867566&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-30 15:59</a>
+
+什么 官方是石锤过术阶？ 啥时候的事情 今天？</blockquote>
+嗯，是我先入为主了
+
