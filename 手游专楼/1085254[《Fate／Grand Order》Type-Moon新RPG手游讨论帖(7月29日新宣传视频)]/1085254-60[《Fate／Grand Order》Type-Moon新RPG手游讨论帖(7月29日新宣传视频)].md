@@ -9639,3 +9639,15 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 什么 官方是石锤过术阶？ 啥时候的事情 今天？</blockquote>
 嗯，是我先入为主了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89359#       发表于 2022-7-30 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867420&amp;ptid=1085254" target="_blank">希望之花 发表于 2022-7-30 15:44</a>
+
+这个表情倒是挺常见的，不过刚才Q群里传的是和另外一个游戏图标的梗图 ...</blockquote>
+不玩原神，给忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过确实很像派蒙，虽然一个魅惑，一个可爱。
+
