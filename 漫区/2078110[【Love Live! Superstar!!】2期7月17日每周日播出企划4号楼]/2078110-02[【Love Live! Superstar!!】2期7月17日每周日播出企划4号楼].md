@@ -813,3 +813,18 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 
 重在参与
 
+
+
+*****
+
+####  iuhehc  
+##### 1580#       发表于 2022-7-30 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56864561&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-30 11:21</a>
+@iuhehc
+
+上不了推，募集了啥？</blockquote>
+那个tag被恶意刷了一堆无关的东西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
