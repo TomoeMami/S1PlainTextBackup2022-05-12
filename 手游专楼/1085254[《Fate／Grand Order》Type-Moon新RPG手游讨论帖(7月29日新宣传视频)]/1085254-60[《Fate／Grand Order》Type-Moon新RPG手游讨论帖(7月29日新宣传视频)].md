@@ -10058,3 +10058,19 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 不过蘑菇貌似不想慢悠悠地让谜语人推进主线，这次看样子会安排一个重量级的周年角色...拭目以待吧。
 
+
+
+*****
+
+####  alucardcz  
+##### 89387#       发表于 2022-7-30 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到 周年不如出个新武藏 提前回来（
+
+*****
+
+####  qixinno2  
+##### 89388#       发表于 2022-7-30 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随意 反正躺平了
+
