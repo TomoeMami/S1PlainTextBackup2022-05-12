@@ -8767,3 +8767,56 @@ FGO也算是面面俱到，连赠送英灵都给足了面子。
 
 第一张选了兰丸，这张真的惊艳到我了，剩下那张在伽摩和妖兰中烦恼。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89288#       发表于 2022-7-30 12:06
+
+伽摩梦装的设计图：
+
+<img src="https://img.saraba1st.com/forum/202207/30/120508nfd2x3sw5psdxtqx.jpg" referrerpolicy="no-referrer">
+
+<strong>1659153875883.jpg</strong> (494.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-30 12:05 上传
+
+印章详情：
+
+<img src="https://img.saraba1st.com/forum/202207/30/120517f1waqz7vl7ztnvbw.png" referrerpolicy="no-referrer">
+
+<strong>1659153823583.png</strong> (139.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-30 12:05 上传
+
+未使用极大化版（误）：
+
+<img src="https://img.saraba1st.com/forum/202207/30/120533it0754ct01zf00sj.jpg" referrerpolicy="no-referrer">
+
+<strong>1659153878642.jpg</strong> (352.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-30 12:05 上传
+
+贺图：
+
+<img src="https://img.saraba1st.com/forum/202207/30/120548pjs8ssak66dazgsa.jpg" referrerpolicy="no-referrer">
+
+<strong>1659153887142.jpg</strong> (398.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-30 12:05 上传
+
+ReDrop，你！是！我！的！神！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
