@@ -1775,3 +1775,23 @@ syl 主播还得是icebox＋viper，赢的轻松
 
 67这队前三局输哈弟要背大锅，好歹在队伍里也是top3，角色球员hnn表现那么好，67发挥差点就差了，老大哥之一软了就不好打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 16656#       发表于 2022-7-30 22:47
+
+cpt队被cisco队掀了，绝好调的clutch队被daruma队狙击了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这次好精彩啊。
+
+*****
+
+####  FCCHua  
+##### 16657#       发表于 2022-7-30 22:47
+
+ 本帖最后由 FCCHua 于 2022-7-30 22:49 编辑 
+
+好吧，毒奶了，cpt队和释迦队第五局都输了
+syl hnn这个角色可以算开发出来了，之前从来没玩过
+<img src="https://p.sda1.dev/6/92b49e350be14ddd4b8a396c1fef49ed/41e487204f302f1a.jpg" referrerpolicy="no-referrer">
+
