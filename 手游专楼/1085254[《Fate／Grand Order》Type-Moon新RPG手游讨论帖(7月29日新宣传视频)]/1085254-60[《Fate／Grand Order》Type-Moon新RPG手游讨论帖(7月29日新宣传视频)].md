@@ -9878,3 +9878,19 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 昨天充了3单，今天看到梅莉之后立刻又充了5单。现在代充还不如买水果卡划算
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89377#       发表于 2022-7-30 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56868563&amp;ptid=1085254" target="_blank">芭德薇 发表于 2022-7-30 17:27</a>
+
+这个界面是discord吧，如果没ps过的话那就是26号那天截的图，当时可能有小规模传播过，但是看到的人不一 ...</blockquote>
+原来如此...我是今天刚看到，伪阶目前有单体和光炮了，出个辅助也挺均匀的...
+
+不过除了伊吹外都不太厨...希望有惊艳的立绘吧...
+
+斯卡蒂是冰雪女神，冬泳应该很合适<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望小山不要犯病弄个黑皮斯卡蒂...
+
