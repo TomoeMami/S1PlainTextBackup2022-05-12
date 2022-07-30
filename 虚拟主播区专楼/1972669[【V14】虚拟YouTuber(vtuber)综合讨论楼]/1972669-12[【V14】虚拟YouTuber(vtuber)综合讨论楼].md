@@ -1668,3 +1668,14 @@ selen歌回好好笑
 
 selen和铁老鼠一样喜欢唱musical，然而段位差距<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 16646#       发表于 2022-7-30 09:43
+
+哆啦A梦哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
