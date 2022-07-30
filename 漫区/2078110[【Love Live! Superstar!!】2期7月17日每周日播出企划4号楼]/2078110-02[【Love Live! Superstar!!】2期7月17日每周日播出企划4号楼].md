@@ -744,3 +744,17 @@ ab手里有Leader和二期生的等效Leader，在superstar这个企划里已经
  之前还跟nagi一起直球喷一期的78集了  太狂了</blockquote>
 是什么时候的事，没印象了求指教
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1574#       发表于 2022-7-30 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56862824&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-7-30 07:23</a>
+是什么时候的事，没印象了求指教</blockquote>
+唧喳喳那里我记得有个有关的翻译可以看看
+https://www.jizhazha.com/jv1630
+好像只翻译了一部分，也可以看看原串
+https://fate.5ch.net/test/read.cgi/lovelive/1652798367
+
