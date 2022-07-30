@@ -9533,3 +9533,32 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 
 明天大概是2.7的主要人物
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89350#       发表于 2022-7-30 15:32
+
+忘了吐槽了，加雷斯的灵衣太爷们了吧，怎么不搞得可爱一点<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89351#       发表于 2022-7-30 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867293&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-30 15:32</a>
+
+忘了吐槽了，加雷斯的灵衣太爷们了吧，怎么不搞得可爱一点</blockquote>
+加雷斯是新的四星泳装从者吧...灵衣是医神、燕青和道满...
+
+*****
+
+####  保罗赫伯特  
+##### 89352#       发表于 2022-7-30 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867330&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 15:36</a>
+
+加雷斯是新的四星泳装从者吧...灵衣是医神、燕青和道满...</blockquote>
+那还有的救，看灵基再临能不能变可爱一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
