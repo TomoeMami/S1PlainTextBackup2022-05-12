@@ -9651,3 +9651,86 @@ zsyl 直接出了泳装版梅莉啊，ch真是自由啊。不过也能看出来�
 这个表情倒是挺常见的，不过刚才Q群里传的是和另外一个游戏图标的梗图 ...</blockquote>
 不玩原神，给忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过确实很像派蒙，虽然一个魅惑，一个可爱。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89360#       发表于 2022-7-30 16:21
+
+<img src="https://img.saraba1st.com/forum/202207/30/161509tosc981fc8b1f8si.jpg" referrerpolicy="no-referrer">
+
+<strong>01CF781838509C899795579D5D0D96C5.jpg</strong> (72.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-30 16:15 上传
+
+可信度不咋地的剧透，怀疑上面那个时间是创建文件的时间...
+
+地球姬莫名其妙跑FGO里干啥？和主线没啥关系，也不像拐。
+
+（宝具千年城，我方全体对肃正防御一回合？）
+
+难道说2.7最终BOSS真是大蜘蛛，ARC亲临才压制得住？
+
+如果我是运营，重量级联动，比如魔夜啊、月姬啊，肯定要放在第二部完结、蘑菇在主线方面封笔之后，用来强行续命，骗老月厨回坑......如果为了在这种普通周年活动博个彩头，放出战力天花板，也太不可思议了...
+
+*****
+
+####  acuman  
+##### 89361#       发表于 2022-7-30 16:21
+
+nga看到的不知真假舅舅<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+泳装
+
+狂：伊吹
+
+术：武后
+
+伪：旧梅
+
+仇：绘里濑
+
+剑：加雷斯
+
+杀：瓦尔基里
+
+尺：斯卡蒂
+
+周年：地球姬
+
+三星徐福
+
+*****
+
+####  虎克别音  
+##### 89362#       发表于 2022-7-30 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56867814&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-30 16:21</a>
+
+可信度不咋地的剧透，怀疑上面那个时间是创建文件的时间...
+
+地球姬莫名其妙跑FGO里干啥？和主线没啥关 ...</blockquote>
+地球姬变成从者，不就变成盖亚向阿赖耶识投降？从者是阿赖耶识专属，用来保护人类的吧。
+
+*****
+
+####  保罗赫伯特  
+##### 89363#       发表于 2022-7-30 16:25
+
+我还记得2.6之前，舅舅说摩根是枪兵，大概是异世界舅舅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真是朱月也太重量级了，不过想想仇凛这种宇宙级别的都能落地，好像也没那么夸张嘛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89364#       发表于 2022-7-30 16:27
+
+虽然就现在FGO的战力来说，落地个朱月不算个啥
+
+但是图个啥呢，就为了让真正的纯种月姬粉破防？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
