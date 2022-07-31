@@ -2685,3 +2685,14 @@ Liella要多打拉扯，拉扯知道吗？
 
 我现在觉得当时一季5集后立马转可堇，公布加人后立马转单推，看到海报立马决定不追动画只听歌的各种决定都太对了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1766#       发表于 2022-8-1 01:47
+
+ 本帖最后由 稀勢のささ 于 2022-8-1 01:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这季动画目前个人就对夏美的观感好点   但想到她后面的剧情多半还是那一套就越追越没劲 点名批评香哥哥 都第二季了居然还在那做 “我没自信了 哎我振作起来了“的仰卧起坐 真就要成长第四五六次啊
+
