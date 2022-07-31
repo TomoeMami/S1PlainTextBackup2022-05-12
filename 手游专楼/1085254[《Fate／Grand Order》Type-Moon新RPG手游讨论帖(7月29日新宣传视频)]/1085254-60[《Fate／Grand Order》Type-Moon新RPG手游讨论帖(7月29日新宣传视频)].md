@@ -10192,3 +10192,22 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 寺岛拓笃也阳了，生放送又少一人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">日本好危险啊，希望大家好好戴口罩吧...
 
+
+
+*****
+
+####  alucardcz  
+##### 89399#       发表于 2022-7-31 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个周年公布以后主线全语音(
+
+*****
+
+####  黑上シグマ  
+##### 89400#       发表于 2022-7-31 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879590&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 14:50</a>
+
+等一个周年公布以后主线全语音(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还嫌这破游戏体积不够大是吧
+
