@@ -2186,3 +2186,51 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TRIScRE  
+##### 1718#       发表于 2022-7-31 19:41
+
+这集起码看的很欢乐
+
+*****
+
+####  ads147147  
+##### 1719#       发表于 2022-7-31 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883035&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-7-31 19:36</a>
+是我放的很低了么，我感觉这集还行啊，看到处都在骂的，不是很敢评价了。 ...</blockquote>
+第三集是可香残党最后的哀嚎，后面反正第一季也没有可以鞭尸可香的地方了，或许大家的氛围会好点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 1720#       发表于 2022-7-31 19:44
+
+可香党还嚎嚎，恋厨早就陷入沉默了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  renkan119  
+##### 1721#       发表于 2022-7-31 19:46
+
+这土妹是香音出门就会刷新的npc吗 怎么不管香音几点出门都能刚好遇上
+
+*****
+
+####  优妮可  
+##### 1722#       发表于 2022-7-31 19:46
+
+这几集看来就那种不上不下的水平，当然挑毛病还是不少。不至于很逆天就是了，它要是可以这样稳到完结我也能接受，毕竟放低期待了，快进到3rd吧
+
+*****
+
+####  稀勢のささ  
+##### 1723#       发表于 2022-7-31 19:47
+
+谁让恋连个能绑的角色都没有  也不知道这季演完能说上几句台词  
+

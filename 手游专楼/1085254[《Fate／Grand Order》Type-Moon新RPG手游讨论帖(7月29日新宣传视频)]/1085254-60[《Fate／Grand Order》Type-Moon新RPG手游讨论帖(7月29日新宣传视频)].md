@@ -12864,3 +12864,61 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 什么 这是名人？</blockquote>
 你看一下他的往期评测就知道了啊，各种计算器脑补发言<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 89676#       发表于 2022-7-31 19:41
+
+200多发4宝，这回终于豹跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89677#       发表于 2022-7-31 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883124&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-7-31 19:41</a>
+
+200多发4宝，这回终于豹跳了接下来看看每日一抽能不能抽满了，反正5星礼装也还没满。话说地球姬100 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 卡面负分水平  看看3破
+
+*****
+
+####  霧谷藤乃  
+##### 89678#       发表于 2022-7-31 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下周年日替池子有水着紫式部，不过太多没感的，还是抽今年的泳装吧
+
+*****
+
+####  exiaexa  
+##### 89679#       发表于 2022-7-31 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883124&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-7-31 19:41</a>
+
+200多发4宝，这回终于豹跳了接下来看看每日一抽能不能抽满了，反正5星礼装也还没满。话说地球姬100 ...</blockquote>
+看情况，你玩单核我不清楚
+
+你玩多核我建议你省钱去补队友的宝
+
+她自己2-3宝管够
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89680#       发表于 2022-7-31 19:48
+
+艹，我才发现我幕间离拿10石就差1个本
+
+*****
+
+####  alucardcz  
+##### 89681#       发表于 2022-7-31 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883158&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 19:44</a>
+
+看了下周年日替池子有水着紫式部，不过太多没感的，还是抽今年的泳装吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨呀 能还我个500石吗 我抽我抽
+
