@@ -1939,3 +1939,12 @@ mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 牛姨2月29日特训四连，ノビ+1→重い球→重い球→アベレージヒッター全部成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 16671#       发表于 2022-7-31 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间去吃饭了，不知道香草哥这队bind 0%胜率破了没有
+

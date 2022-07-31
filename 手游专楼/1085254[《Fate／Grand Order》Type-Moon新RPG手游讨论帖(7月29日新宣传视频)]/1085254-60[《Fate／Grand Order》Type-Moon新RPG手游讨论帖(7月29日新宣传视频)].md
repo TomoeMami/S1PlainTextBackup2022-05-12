@@ -11965,3 +11965,178 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 大概就是彬彬有礼衣品出众的芥雏子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">？
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89584#       发表于 2022-7-31 18:10
+
+福袋摩根<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+公主先抽个二宝放着吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  霧谷藤乃  
+##### 89585#       发表于 2022-7-31 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后续补到5个11连，结果公主徐福各一…徐福还是限定的样子？不继续下池了，留着泳装……
+
+*****
+
+####  黑上シグマ  
+##### 89586#       发表于 2022-7-31 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881786&amp;ptid=1085254" target="_blank">白金口袋 发表于 2022-7-31 18:08</a>
+
+10张呼符公主到手，徐福有缘再见吧
+
+无损过关进入泳装待机模式</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">徐福会进友情池的
+
+*****
+
+####  Jamaisvu  
+##### 89587#       发表于 2022-7-31 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881770&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 18:07</a>
+
+公主这个atk，80级加1000刚过万
+
+我感觉她在忽悠我补宝具</blockquote>
+一技能对方全体减20防，自己攻击+30，姑且算一回合50攻击力吧。
+
+二技能宝威20。
+
+被动原初之I在宝具召唤出千年城后有30红魔放。
+
+这么一看自buff力度还是挺高的？在红卡体系下应该不弱吧...
+
+*****
+
+####  霧谷藤乃  
+##### 89588#       发表于 2022-7-31 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881816&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 18:11</a>
+
+徐福会进友情池的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早说我就省90石头了……
+
+*****
+
+####  Jamaisvu  
+##### 89589#       发表于 2022-7-31 18:12
+
+话说周年只是buff了绿卡但是没有出新绿拐，那么阿瓦隆女士的定位应该没跑了吧...
+
+*****
+
+####  exiaexa  
+##### 89590#       发表于 2022-7-31 18:13
+
+ 本帖最后由 exiaexa 于 2022-7-31 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881823&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-31 18:11</a>
+
+一技能对方全体减20防，自己攻击+30，姑且算一回合50攻击力吧。
+
+二技能宝威20。
+
+被动原初之I在宝具召唤出 ...</blockquote>
+现在这个技能组对我这种多核派来说2宝只配打第一面啊，还很可能要补刀
+
+好处是3技能还有个对队友的群充
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 89591#       发表于 2022-7-31 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">草草草....公主还真的让我吃保底了
+
+怕了....余下的石头留给梅莉了
+
+*****
+
+####  白金口袋  
+##### 89592#       发表于 2022-7-31 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881816&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 18:11</a>
+
+徐福会进友情池的</blockquote>
+真不知道，多谢多谢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89593#       发表于 2022-7-31 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881832&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 18:12</a>
+
+早说我就省90石头了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己不看公告怪我咯？
+
+*****
+
+####  空气蛹  
+##### 89594#       发表于 2022-7-31 18:16
+
+草，叶卫兵续费不成功，当天就吃井，中间歪了一个福利多<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 89595#       发表于 2022-7-31 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881848&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-7-31 18:13</a>
+
+草草草....公主还真的让我吃保底了
+
+怕了....余下的石头留给梅莉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了 10连1宝  7xx石变成18石了还是1宝
+
+*****
+
+####  天王寺凯伊姆  
+##### 89596#       发表于 2022-7-31 18:17
+
+十三连三宝加上一个大公和大公望，没办法，现在不搞个多宝就是有点不够看，更别说ex阶了
+
+*****
+
+####  森兰丸  
+##### 89597#       发表于 2022-7-31 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881893&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:16</a>
+
+像我就不一样了 10连1宝  7xx石变成18石了还是1宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">之后几天还会送石头....萌新当然还要继续的吧
+
+*****
+
+####  千叶铁矢  
+##### 89598#       发表于 2022-7-31 18:19
+
+800石4宝+2呆毛1皇女1拉二<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这是怎么了
+
+*****
+
+####  alucardcz  
+##### 89599#       发表于 2022-7-31 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881910&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-7-31 18:18</a>
+
+之后几天还会送石头....萌新当然还要继续的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我晚上闹钟3点起来最后一战 不出就不要了 
+
+*****
+
+####  sosgame67  
+##### 89600#       发表于 2022-7-31 18:20
+
+2宝跑路，等泳装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
