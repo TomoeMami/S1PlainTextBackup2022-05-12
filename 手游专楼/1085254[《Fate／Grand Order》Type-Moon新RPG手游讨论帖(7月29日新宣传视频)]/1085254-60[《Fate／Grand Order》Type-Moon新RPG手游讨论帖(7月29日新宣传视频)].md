@@ -13034,3 +13034,23 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89693#       发表于 2022-7-31 20:28
+
+<blockquote>漆黑之花 发表于 2022-7-31 20:19
+突然间想到奥尔加会不会是某个星球的UO
+
+—— 来自 S1Fun</blockquote>
+有猜测是奥尔特星云（Oort Cloud）那边的UO，水星UO的设定好像和type-Mercury本体一起被这个异星怪物吃掉了...
+
+*****
+
+####  alucardcz  
+##### 89694#       发表于 2022-7-31 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有在虚空造本了  
+
