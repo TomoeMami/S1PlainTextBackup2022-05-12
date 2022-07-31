@@ -10937,3 +10937,167 @@ NMD这福袋池子是真的有病
 全人物大佬直接发一井</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全人物大佬还在意什么井吗
 
+
+
+*****
+
+####  exiaexa  
+##### 89477#       发表于 2022-7-31 17:11
+
+看了一眼，我亏了39*3=117个石
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89478#       发表于 2022-7-31 17:13
+
+2个？ 不会真的那个+徐福吧。。
+
+*****
+
+####  霧谷藤乃  
+##### 89479#       发表于 2022-7-31 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">徐福啊，舅舅为真？
+
+*****
+
+####  Jamaisvu  
+##### 89480#       发表于 2022-7-31 17:13
+
+三星徐福？舅舅是真的啊！<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89481#       发表于 2022-7-31 17:13
+
+真的是徐福。。还真是3星
+
+*****
+
+####  exiaexa  
+##### 89482#       发表于 2022-7-31 17:14
+
+卧槽，遇到真舅舅了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89483#       发表于 2022-7-31 17:15
+
+舅舅是真的。。。。。。。。
+
+*****
+
+####  霧谷藤乃  
+##### 89484#       发表于 2022-7-31 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是啊……
+
+*****
+
+####  Jamaisvu  
+##### 89485#       发表于 2022-7-31 17:16
+
+公主...我的公主...
+
+月癌但是特殊演出...太美了吧...
+
+宝具空想具现化，好像是场地魔法？对战背景画面直接变成千年城了！
+
+攻击动作还是双模组！
+
+我TM直接化身梅莲所罗门！抽爆抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89486#       发表于 2022-7-31 17:18
+
+月姬粉棺材板真的压不住了
+
+fate成功夺舍，type-fate的梗成真了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eden_hazard  
+##### 89487#       发表于 2022-7-31 17:18
+
+舅舅真厉害！
+
+可以提前恭喜艾蕾成为备战2023泳装最早的从者了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闽明  
+##### 89488#       发表于 2022-7-31 17:18
+
+第二部演完就能关服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89489#       发表于 2022-7-31 17:18
+
+<img src="https://img.saraba1st.com/forum/202207/31/171811y6ztei93p9epah69.jpg" referrerpolicy="no-referrer">
+
+<strong>01CF781838509C899795579D5D0D96C5.jpg</strong> (72.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:18 上传
+
+这么看这张舅舅情报是完全属实的了...不知道谁是第二个五星泳装呢...
+
+*****
+
+####  qixinno2  
+##### 89490#       发表于 2022-7-31 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">非洲人希望能届到公主
+
+
+
+*****
+
+####  ネロ  
+##### 89491#       发表于 2022-7-31 17:19
+
+公主居然落地了
+
+这游戏看来真的药丸了
+
+*****
+
+####  angelooo  
+##### 89492#       发表于 2022-7-31 17:19
+
+艹，舅舅真的从异世界回来了
+
+*****
+
+####  霧谷藤乃  
+##### 89493#       发表于 2022-7-31 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">型月正统在哪不早就清楚了么
+
+*****
+
+####  炙热之狐  
+##### 89494#       发表于 2022-7-31 17:19
+
+挖槽，那泳装难不成真的是……感觉一下子没期望了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AbigailWilliams  
+##### 89495#       发表于 2022-7-31 17:20
+
+黔驴技穷<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
