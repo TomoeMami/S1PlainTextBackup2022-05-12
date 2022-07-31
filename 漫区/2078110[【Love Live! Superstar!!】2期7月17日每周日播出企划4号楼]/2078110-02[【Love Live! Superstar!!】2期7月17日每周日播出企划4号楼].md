@@ -1086,3 +1086,55 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 就瞟到个上映会sayu nagi2带4 没意思
 
+
+
+*****
+
+####  iuhehc  
+##### 1607#       发表于 2022-7-31 17:02
+
+笑了，年底3rd
+
+*****
+
+####  starring  
+##### 1608#       发表于 2022-7-31 17:02
+
+ 本帖最后由 starring 于 2022-7-31 17:06 编辑 
+
+新情报果然是3rd live，12月到3到七城市塞满一月，二月空窗，其它都是半月连场
+
+QQ截图20220731170408.png
+(148.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:05 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/170519mouam9a2uhmq2tuv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 1609#       发表于 2022-7-31 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">14场 1月8连
+
+*****
+
+####  ads147147  
+##### 1610#       发表于 2022-7-31 17:03
+
+怎么不来20场<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cat1230  
+##### 1611#       发表于 2022-7-31 17:03
+
+好狠啊，3rd又是日期拉满了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

@@ -10721,3 +10721,219 @@ NMD这福袋池子是真的有病
 
 妖兰 超人熊卡池就3个人。。。。。。。。。我不会抽中罗马吧。。不要啊
 
+
+
+*****
+
+####  exiaexa  
+##### 89456#       发表于 2022-7-31 17:00
+
+ 本帖最后由 exiaexa 于 2022-7-31 17:01 编辑 
+
+狂那摩根武藏在一个池子，乐死了
+
+我已经预感到各种要狂那出摩根/武藏
+
+然后贴吧撕逼了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好的，ex6走起，只要不是奥伯龙我就稳赚，都能+1
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyzcacxg  
+##### 89457#       发表于 2022-7-31 17:00
+
+这EX6，打扰了，奥伯龙拜拜
+
+*****
+
+####  alucardcz  
+##### 89458#       发表于 2022-7-31 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在想是赌3宝狂娜  还是 赌妖兰
+
+*****
+
+####  alucardcz  
+##### 89459#       发表于 2022-7-31 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880839&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 17:00</a>
+
+狂那摩根武藏在一个池子，乐死了
+
+我已经预感到各种要狂那出摩根/武藏
+
+然后贴吧撕逼了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新有点想赌一个3宝狂娜  会翻车吗
+
+*****
+
+####  sosgame67  
+##### 89460#       发表于 2022-7-31 17:03
+
+狂那和摩根全2宝的还是安心extra6吧，非奥博隆都不是雷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  exiaexa  
+##### 89461#       发表于 2022-7-31 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880863&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:02</a>
+
+萌新有点想赌一个3宝狂娜  会翻车吗</blockquote>
+只要你另外两个不是0宝就稳赚啊
+
+武藏跟摩根0到1和1到2大概是，蹲仓库和勉强出门的区别
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89462#       发表于 2022-7-31 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880881&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-7-31 17:03</a>
+
+狂那和摩根全2宝的还是安心extra6吧，非奥博隆都不是雷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3宝才能120级！
+
+*****
+
+####  alucardcz  
+##### 89463#       发表于 2022-7-31 17:04
+
+翻页
+
+*****
+
+####  exiaexa  
+##### 89464#       发表于 2022-7-31 17:04
+
+卧槽，居然加在最终再临里
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+提醒一下，你游现在从者编号已经350了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89465#       发表于 2022-7-31 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880886&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 17:03</a>
+
+只要你另外两个不是0宝就稳赚啊
+
+武藏跟摩根0到1和1到2大概是，蹲仓库和勉强出门的区别</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那决定抽这个了。。出狂娜就狂娜120  出王姐就王姐120  只要不出武藏就是血亏
+
+*****
+
+####  霧谷藤乃  
+##### 89466#       发表于 2022-7-31 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么总来这种给石头，这对我男性皆杀玩家好麻烦啊
+
+*****
+
+####  Jamaisvu  
+##### 89467#       发表于 2022-7-31 17:05
+
+<img src="https://img.saraba1st.com/forum/202207/31/170553cvijrwr9faaytras.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220731_170444_tv.danmaku.bili.jpg</strong> (371.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:05 上传
+
+再临奖励来了，这不得发六百多石头？
+
+*****
+
+####  alucardcz  
+##### 89468#       发表于 2022-7-31 17:06
+
+等等  周年从者呢
+
+*****
+
+####  alucardcz  
+##### 89469#       发表于 2022-7-31 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先开始祈祷 tmd千万别出水武藏
+
+*****
+
+####  Jamaisvu  
+##### 89470#       发表于 2022-7-31 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880903&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 17:04</a>
+
+卧槽，居然加在最终再临里
+
+提醒一下，你游现在从者编号已经350了</blockquote>
+最多915个圣晶石。
+
+图册里有几个兽是不算的吧...
+
+限定一星的信胜和安满破只给金方块。
+
+*****
+
+####  シャル  
+##### 89471#       发表于 2022-7-31 17:08
+
+好事情，剑1我只有一个剑式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+七分之六没有，抽到那个都好
+
+*****
+
+####  exiaexa  
+##### 89472#       发表于 2022-7-31 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880934&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-31 17:07</a>
+
+最多915个圣晶石。
+
+图册里有几个兽是不算的吧...</blockquote>
+应该是踢掉活动从者了，活动从者给金方块我直接翻的mooncell，不知道他们有没有踢掉不能用的
+
+*****
+
+####  alucardcz  
+##### 89473#       发表于 2022-7-31 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880946&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 17:08</a>
+
+应该是踢掉活动从者了</blockquote>
+写了 活动给金方块
+
+*****
+
+####  黑上シグマ  
+##### 89474#       发表于 2022-7-31 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全人物大佬直接发一井
+
+*****
+
+####  miro112233  
+##### 89475#       发表于 2022-7-31 17:09
+
+全图鉴直接一井还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89476#       发表于 2022-7-31 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880950&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 17:08</a>
+
+全人物大佬直接发一井</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全人物大佬还在意什么井吗
+
