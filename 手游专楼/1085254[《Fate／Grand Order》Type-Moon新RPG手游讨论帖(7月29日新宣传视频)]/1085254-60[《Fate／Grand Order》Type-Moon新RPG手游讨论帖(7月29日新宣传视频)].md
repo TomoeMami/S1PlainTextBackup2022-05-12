@@ -12629,3 +12629,121 @@ NMD怎么又是12月，又要催命过圣诞是吧
 这时候收手多好啊 现在只剩1石了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿叶体谅你们，还留了点石头之后才发
 
+
+
+*****
+
+####  yyzcacxg  
+##### 89653#       发表于 2022-7-31 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来准备去试用本领了呼符再开抽，结果2面开了宝具没清掉一看白字直接把我劝退了
+
+*****
+
+####  angelooo  
+##### 89654#       发表于 2022-7-31 19:12
+
+没两头恰就是好事啊（还没听语音不清楚具体情况）
+
+就当是这次发的石头白送的一宝跑了，万一梅丽是绿拐就艹了
+
+*****
+
+####  alucardcz  
+##### 89655#       发表于 2022-7-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882565&amp;ptid=1085254" target="_blank">yyzcacxg 发表于 2022-7-31 19:05</a>
+
+你们抽卡前都不去试用本打一打的么？好歹给一张呼符呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一眼隔壁说强度无敌  没想到是云万家
+
+*****
+
+####  qixinno2  
+##### 89656#       发表于 2022-7-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882629&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 19:09</a>
+
+阿叶体谅你们，还留了点石头之后才发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">啊 痛啊
+
+*****
+
+####  在海岸  
+##### 89657#       发表于 2022-7-31 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最让我郁闷的是福袋出了最不想要的那个平景清升宝具……狂福袋不香吗
+
+*****
+
+####  exiaexa  
+##### 89658#       发表于 2022-7-31 19:15
+
+又是100w下去，我他妈终于哈贝喵5宝了
+
+再也不用看莉莉和小安了艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89659#       发表于 2022-7-31 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说QP本到底要怎么6加成冲浪
+
+*****
+
+####  alucardcz  
+##### 89660#       发表于 2022-7-31 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882752&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:18</a>
+
+话说QP本到底要怎么6加成冲浪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏 请
+
+*****
+
+####  exiaexa  
+##### 89661#       发表于 2022-7-31 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882711&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:15</a>
+
+看了一眼隔壁说强度无敌  没想到是云万家</blockquote>
+现在外面乐得很
+
+什么3黑杯爆破的，爆杀暗狐的，W奥伯龙的
+
+我觉得脑子没有大病真的不会这么吹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89662#       发表于 2022-7-31 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882761&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 19:18</a>
+
+现在外面乐得很
+
+什么3黑杯爆破的，爆杀暗狐的，W奥伯龙的</blockquote>
+[https://bbs.nga.cn/read.php?tid= ... #pid628981150Anchor](https://bbs.nga.cn/read.php?tid=32882941&amp;_ff=540&amp;page=e#pid628981150Anchor)
+
+总结
+
+1：红光炮的唯一神，即使伤害较低但瑕不掩瑜，比仇凛更值得抽满的存在。
+
+看看这个！ 懂不懂红卡唯一神的价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89663#       发表于 2022-7-31 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882777&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:19</a>
+
+https://bbs.nga.cn/read.php?tid=32882941&amp;_ff=540&amp;page=e#pid628981150Anchor
+
+总结</blockquote>
+我特么第一次见到伤害较低瑕不掩瑜的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

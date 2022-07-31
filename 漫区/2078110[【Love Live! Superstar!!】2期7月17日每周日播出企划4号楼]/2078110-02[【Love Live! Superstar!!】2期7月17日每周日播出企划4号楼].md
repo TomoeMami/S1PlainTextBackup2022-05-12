@@ -1970,3 +1970,50 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 —— 来自 Xiaomi 2106118C ...</blockquote>
 真要说的话，可香一期动画第三集后就变味了，可可单向的激推香音就差没魔怔了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1698#       发表于 2022-7-31 19:10
+
+[https://twitter.com/kamatamanankotu/status/1553692661869350912](https://twitter.com/kamatamanankotu/status/1553692661869350912)
+<img src="https://p.sda1.dev/6/20a11299174d1d3f8946614a5e581bbb/20220731_190844.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1699#       发表于 2022-7-31 19:12
+
+哈哈哈哈😄不看果然是正确选择
+
+*****
+
+####  ces轴承仨  
+##### 1700#       发表于 2022-7-31 19:13
+
+虽然没看。但看你们说没有大太阳。还行。
+
+*****
+
+####  稀勢のささ  
+##### 1701#       发表于 2022-7-31 19:16
+
+ 本帖最后由 稀勢のささ 于 2022-7-31 19:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">优胜候补？什么CJB
+
+音乐科也是CJB 一年下来啥成绩没有
+
+*****
+
+####  aoaoaodedede  
+##### 1702#       发表于 2022-7-31 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882728&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-31 19:16</a>
+
+优胜候补？什么CJB
+
+音乐科也是CJB 一年下来啥成绩没有</blockquote>
+或许人家音乐科忙着学业呢，才没心思整你这社团活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
