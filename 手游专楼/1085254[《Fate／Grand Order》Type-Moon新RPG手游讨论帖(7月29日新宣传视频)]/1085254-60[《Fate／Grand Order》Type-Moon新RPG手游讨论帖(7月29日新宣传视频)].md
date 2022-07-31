@@ -13249,3 +13249,101 @@ DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁的厨力党多少沾点那什么  没强度也要吹成顶尖 各种虚空造本
 
+
+
+*****
+
+####  exiaexa  
+##### 89713#       发表于 2022-7-31 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884554&amp;ptid=1085254" target="_blank">areklose 发表于 2022-7-31 21:06</a>
+
+但鹤小姐就30宝威实在不够看。</blockquote>
+？
+
+鹤保底20-40攻30宝威都算没法看了吗
+
+更别说上面那个阵容奥伯龙杀狐没一个有攻击buff
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 89714#       发表于 2022-7-31 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884597&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 21:09</a>
+
+隔壁的厨力党多少沾点那什么  没强度也要吹成顶尖 各种虚空造本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如造个拐 对MC阶加100魔放100充能100攻击100宝威好不好
+
+*****
+
+####  areklose  
+##### 89715#       发表于 2022-7-31 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884617&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:10</a>
+
+？
+
+鹤保底20-40攻30宝威都算没法看了吗
+
+更别说上面那个阵容奥伯龙杀狐没一个有攻击buff</blockquote>
+哦，对。忘记了攻击了。
+
+*****
+
+####  exiaexa  
+##### 89716#       发表于 2022-7-31 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884597&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 21:09</a>
+
+隔壁的厨力党多少沾点那什么  没强度也要吹成顶尖 各种虚空造本</blockquote>
+虚空造本都无所谓了
+
+主要是公主那个特攻有毒，普通怪物是没有混沌特性的
+
+也就是说公主要打关底那怎么也得是个人，最好是个狂
+
+问题是现在的FGO关底根本不是问题，这解决了个寂寞
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89717#       发表于 2022-7-31 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁不能看了啊 全都在云  还有什么看这技能组能不强吗 我认为排fgo里强度榜前5肯定没问题    
+
+*****
+
+####  保罗赫伯特  
+##### 89718#       发表于 2022-7-31 21:16
+
+厨力卡不也挺好，不逼着人抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89719#       发表于 2022-7-31 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884727&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:15</a>
+
+虚空造本都无所谓了
+
+主要是公主那个特攻有毒，普通怪物是没有混沌特性的
+
+也就是说公主要打关底那怎么也得 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid=32884238&amp;_ff=540&amp;page=2](https://bbs.nga.cn/read.php?tid=32884238&amp;_ff=540&amp;page=2)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这28楼
+
+*****
+
+####  alucardcz  
+##### 89720#       发表于 2022-7-31 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884760&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-7-31 21:16</a>
+
+厨力卡不也挺好，不逼着人抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大胆 你居然敢说是厨力卡  明明是红卡的神
+
