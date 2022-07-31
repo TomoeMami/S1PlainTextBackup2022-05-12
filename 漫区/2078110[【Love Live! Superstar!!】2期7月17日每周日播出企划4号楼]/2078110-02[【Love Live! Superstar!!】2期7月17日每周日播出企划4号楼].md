@@ -2647,3 +2647,14 @@ Liella要多打拉扯，拉扯知道吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  愛さ実  
+##### 1762#       发表于 2022-8-1 00:12
+
+确实，单纯从比赛出发肯定人少比人多占优，人越多越乱。偶像都一堆人单纯是资本给观众不同的キャラ选择罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
