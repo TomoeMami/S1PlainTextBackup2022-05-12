@@ -10316,3 +10316,26 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 算了，先奶一个neko ARC<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89411#       发表于 2022-7-31 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">七周年不发777石头我个人不是太认可
+
+*****
+
+####  exiaexa  
+##### 89412#       发表于 2022-7-31 15:48
+
+ 本帖最后由 exiaexa 于 2022-7-31 15:49 编辑 
+
+奥伯龙真的是2.6牌面
+
+这专属BGM remix压轴效果太强了
+
+前面因为炎灾兽灾BGM时回想起的各种傻逼情节，都被这压轴爽到忘了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
