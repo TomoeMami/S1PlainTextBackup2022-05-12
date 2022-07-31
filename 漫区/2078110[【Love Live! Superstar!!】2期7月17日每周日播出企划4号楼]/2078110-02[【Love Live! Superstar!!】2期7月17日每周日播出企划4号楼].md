@@ -1494,3 +1494,206 @@ QQ截图20220731170408.png
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 1650#       发表于 2022-7-31 18:21
+
+初三solo，难道真的是三期生。提前露脸？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  qratosone  
+##### 1651#       发表于 2022-7-31 18:22
+
+不知道该骂谁了
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 1652#       发表于 2022-7-31 18:23
+
+最后结局还要强行香樱构图踩可香一脚。。。我说不出话了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1653#       发表于 2022-7-31 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉歌一般……等会再听下
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1654#       发表于 2022-7-31 18:24
+
+风怒
+
+*****
+
+####  离心  
+##### 1655#       发表于 2022-7-31 18:24
+
+艹可可赛车还行
+
+*****
+
+####  tjshibc21  
+##### 1656#       发表于 2022-7-31 18:24
+
+这剧情 这歌都插入时机都不评价了
+
+这端水还行不行了 阿恋3集了 说了几句台词
+
+*****
+
+####  寒风夜  
+##### 1657#       发表于 2022-7-31 18:24
+
+这集倒是挺正常.
+
+*****
+
+####  凡人  
+##### 1658#       发表于 2022-7-31 18:25
+
+好消息 花田终于知道给三期生铺垫了
+
+*****
+
+####  ads147147  
+##### 1659#       发表于 2022-7-31 18:25
+
+说明代代木fes没作假，初三紫发女人爆杀6人裂。
+
+太过于合理。
+
+v总无缝切水水夏日祭草w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 1660#       发表于 2022-7-31 18:25
+
+前半就写日常互动我都觉得看得挺舒服的，后半段又扯起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  1096beam  
+##### 1661#       发表于 2022-7-31 18:25
+
+这集谁最小丑呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1：恋女士
+
+2：sp
+
+3：CEO
+
+*****
+
+####  ffz  
+##### 1662#       发表于 2022-7-31 18:26
+
+懂了，这期被初中生爆杀，等明年大佬入学带飞就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1663#       发表于 2022-7-31 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">CEO最强！CEO最强！
+
+*****
+
+####  水莲寺流歌  
+##### 1664#       发表于 2022-7-31 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是等恋个人回吧（如果有的话）不然9个人里还人气最低就尴尬了
+
+*****
+
+####  离心  
+##### 1665#       发表于 2022-7-31 18:27
+
+下集红蓝绑定入队了，ceo恐怕也是78入队了
+
+*****
+
+####  ads147147  
+##### 1666#       发表于 2022-7-31 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882008&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-7-31 18:25</a>
+这集谁最小丑呢？
+
+1：恋女士
+
+2：sp</blockquote>
+感觉还对可香有些许期待的我最小丑。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 1667#       发表于 2022-7-31 18:27
+
+懂了，把初中生拉进来就能打过sp了，这波不慌，sp还想二连冠，必让她有来无回
+
+*****
+
+####  寒风夜  
+##### 1668#       发表于 2022-7-31 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">紫毛这曲风，偶活星白银莉莉是吧
+
+*****
+
+####  ads147147  
+##### 1669#       发表于 2022-7-31 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882033&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-31 18:27</a>
+懂了，把初中生拉进来就能打过sp了，这波不慌，sp还想二连冠，必让她有来无回 ...</blockquote>
+sp今年拿完二连冠就跑路了。
+
+除非今年的设计就是9人夺冠，sp失去二连冠，把这个目标传给香音，然后三期拉粉毛入队踏踏开。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 1670#       发表于 2022-7-31 18:29
+
+风怒
+
+*****
+
+####  仟音一心  
+##### 1671#       发表于 2022-7-31 18:30
+
+岚栞的女儿
+
+578388DF-5D2E-40AA-AF52-2C289F1DD804.jpeg
+(193.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/183007vxa2txggl1mm4w2m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

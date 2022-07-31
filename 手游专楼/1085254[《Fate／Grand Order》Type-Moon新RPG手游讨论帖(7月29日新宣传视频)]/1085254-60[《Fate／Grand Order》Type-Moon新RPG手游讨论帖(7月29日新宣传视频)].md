@@ -12140,3 +12140,87 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 2宝跑路，等泳装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 89601#       发表于 2022-7-31 18:22
+
+抽了3个十连试水结果出了欧罗巴，反正没什么月姬情怀，还是跑路吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 89602#       发表于 2022-7-31 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881789&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-07-31 18:09:21</a>
+可能是FGO世界线死祖们没发展起来，公主没按着朱月安排的路线成长，被宝石翁照顾成了正常的好姑娘吧？ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可是听语音这就是那个喜欢着志贵的公主
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 89603#       发表于 2022-7-31 18:23
+
+<img src="https://img.saraba1st.com/forum/202207/31/182310b93t95yfs50792tr.jpg" referrerpolicy="no-referrer">
+
+<strong>55555555555544.jpg</strong> (343.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 18:23 上传
+
+这怎么能丑成这样？？？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89604#       发表于 2022-7-31 18:23
+
+送的全换回去了，还没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 89605#       发表于 2022-7-31 18:24
+
+500石二宝公主，不错 日服沉船好久了终于运气开始【平衡了】
+
+*****
+
+####  仰望神的括约肌  
+##### 89606#       发表于 2022-7-31 18:24
+
+还剩600石等夏活 废狗终于也有60帧了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  霧谷藤乃  
+##### 89607#       发表于 2022-7-31 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……这满破图的确有点绷不住，让我冷静暂时没有下池子冲动了
+
+*****
+
+####  exiaexa  
+##### 89608#       发表于 2022-7-31 18:28
+
+公主这个三技能，群充有30，多核人狂喜
+
+现在压力来到暗狐这边，得拉宝具等级打第二面了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89609#       发表于 2022-7-31 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882005&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 18:25</a>
+
+……这满破图的确有点绷不住，让我冷静暂时没有下池子冲动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满破不吊打3破？ 你看看这强化界面丑上天了
+
