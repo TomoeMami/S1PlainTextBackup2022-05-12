@@ -10172,3 +10172,14 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 我大概是把ARC理解为朱月的待夺舍转世灵童，或者做减求空的对象啥的...将属于type-moon月之王的因果（真祖、死祖）甩给ARC，待ARC完全继承这力量后自己化为崭新的type-earth...
 
+
+
+*****
+
+####  承尘  
+##### 89397#       发表于 2022-7-31 11:33
+
+运营敢在昨天公布梅莉，相比是对周年从者的人气或者强度很有自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下午等着看热闹了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
