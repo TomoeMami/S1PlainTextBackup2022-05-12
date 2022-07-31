@@ -13858,3 +13858,29 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 术呆还血统近呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 89767#       发表于 2022-7-31 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886147&amp;ptid=1085254" target="_blank">克图格亚 发表于 2022-7-31 22:49</a>
+
+福袋狂2武藏加一，另两个都是new可惜不中。一气之下抽个十连公主加一成三宝了，靠，明天再抽个十连有种给我 ...</blockquote>
+怎么都是武藏 这福袋有问题！
+
+*****
+
+####  保罗赫伯特  
+##### 89768#       发表于 2022-7-31 23:07
+
+福袋符合墨菲定律，来的往往都是最不想要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89769#       发表于 2022-7-31 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我还福袋想抽武藏的2宝呢，结果来的是banana的4宝
+
