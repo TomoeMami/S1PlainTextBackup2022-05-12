@@ -13016,3 +13016,21 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好想化身磁场颠佬
 
+
+
+*****
+
+####  kiralzb  
+##### 89691#       发表于 2022-7-31 20:12
+
+试用了一波就知道是情怀卡，其他可以拉满，宝具就算了，不如等泳装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漆黑之花  
+##### 89692#       发表于 2022-7-31 20:19
+
+突然间想到奥尔加会不会是某个星球的UO
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
