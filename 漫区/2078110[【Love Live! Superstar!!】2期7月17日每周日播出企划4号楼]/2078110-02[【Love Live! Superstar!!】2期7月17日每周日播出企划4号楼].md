@@ -1319,3 +1319,54 @@ QQ截图20220731170408.png
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1629#       发表于 2022-7-31 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881672&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-31 17:59</a>
+
+你看这疫情，能坐满场次我感觉就是上天保佑了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在这样子西武巨蛋能坐满我是不信的，如果能出声至少不会太惨
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1630#       发表于 2022-7-31 18:02
+
+铃原这棒读真有点难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1631#       发表于 2022-7-31 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881686&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-31 18:00</a>
+现在这样子西武巨蛋能坐满我是不信的，如果能出声至少不会太惨</blockquote>
+可能有点语义错误，我是说巡演能不被取消其中的一些场次就是老天保佑了。
+
+坐满更不可能了。现在本子感染数怎么压都压不住，鬼知道半年后会发生什么。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1632#       发表于 2022-7-31 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听多了感觉op还行
+
+*****
+
+####  ads147147  
+##### 1633#       发表于 2022-7-31 18:08
+
+啊，你以为的二期拉拉：再次败北
+真正的二期：夺冠，然后目指二连冠。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

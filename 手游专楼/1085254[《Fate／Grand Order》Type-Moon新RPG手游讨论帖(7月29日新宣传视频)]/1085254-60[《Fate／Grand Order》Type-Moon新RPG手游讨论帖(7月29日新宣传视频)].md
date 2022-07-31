@@ -11879,3 +11879,89 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 150抽没出，留了600石头等夏活了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89575#       发表于 2022-7-31 18:03
+
+今日，我手震……今日，我心痛……为什么会这样？我付出一切，却得不到想要的一点爱……为何上天你要给我这种痛苦？我究竟做错什么？我到底做错什么了？公主。公主…我…我…我…我真是好很爱你的，为何你要这样对我呀？呜哇呀——！！月月…月月啊呀！！！！呱！吔！哇！呀！ 
+
+*****
+
+####  sosgame67  
+##### 89576#       发表于 2022-7-31 18:04
+
+福袋new巴姐，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89577#       发表于 2022-7-31 18:05
+
+如果公主二技能的冷却是6而不是7，就能复刻下BGO专属妖兰的无尽法力巨龙光炮了...可惜，强度还是差点...白值也不高...
+
+而且卡面看着好像除了短发也没啥情怀...突然有点冷静了...<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 89578#       发表于 2022-7-31 18:06
+
+零破居然不是echoArc吗，我还挺喜欢那个萝莉形态的，还有这眼神这么温柔，这应该是公主本体意识了和朱月没啥关系
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yyzcacxg  
+##### 89579#       发表于 2022-7-31 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试用本打了下，月癌低宝是真不太行，上午PCR刚吃井，这地球姬就拜拜了先
+
+*****
+
+####  exiaexa  
+##### 89580#       发表于 2022-7-31 18:07
+
+公主这个atk，80级加1000刚过万
+
+我感觉她在忽悠我补宝具
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 89581#       发表于 2022-7-31 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881715&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 18:03</a>
+
+今日，我手震……今日，我心痛……为什么会这样？我付出一切，却得不到想要的一点爱……为何上天你要给我这 ...</blockquote>
+你需要献祭一只婆妈鲸才可以赢下这月球之战口牙！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去MBAACC里用地球姬殴打一会儿罗亚或者学姐试试？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 89582#       发表于 2022-7-31 18:08
+
+10张呼符公主到手，徐福有缘再见吧
+
+无损过关进入泳装待机模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89583#       发表于 2022-7-31 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881752&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2022-7-31 18:06</a>
+
+零破居然不是echoArc吗，我还挺喜欢那个萝莉形态的，还有这眼神这么温柔，这应该是公主本体意识了和朱月没 ...</blockquote>
+可能是FGO世界线死祖们没发展起来，公主没按着朱月安排的路线成长，被宝石翁照顾成了正常的好姑娘吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+大概就是彬彬有礼衣品出众的芥雏子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">？
+
