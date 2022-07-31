@@ -10427,3 +10427,122 @@ MBTL的新角色是玛修和猫ARC...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了 最新情报（
 
+
+
+*****
+
+####  exiaexa  
+##### 89421#       发表于 2022-7-31 16:40
+
+NMD怎么还是3倍
+
+明明以前开到过5倍
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89422#       发表于 2022-7-31 16:44
+
+结晶大批发
+
+*****
+
+####  Jamaisvu  
+##### 89423#       发表于 2022-7-31 16:44
+
+送传承结晶了，不错，解决了被动升不满的问题。
+
+*****
+
+####  alucardcz  
+##### 89424#       发表于 2022-7-31 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">惯例的强化本
+
+*****
+
+####  Jamaisvu  
+##### 89425#       发表于 2022-7-31 16:45
+
+又强化本了，有个金外星人...奶一个团长？
+
+*****
+
+####  黑上シグマ  
+##### 89426#       发表于 2022-7-31 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抢救绿卡
+
+*****
+
+####  alucardcz  
+##### 89427#       发表于 2022-7-31 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880658&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 16:46</a>
+
+抢救绿卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毛毛雨   难道是暗示新绿拐要来了
+
+*****
+
+####  Jamaisvu  
+##### 89428#       发表于 2022-7-31 16:47
+
+三绿连携给星数从10变为20...额，感觉还是杯水车薪啊...
+
+*****
+
+####  exiaexa  
+##### 89429#       发表于 2022-7-31 16:47
+
+绿卡终于加强了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89430#       发表于 2022-7-31 16:48
+
+绿卡首发的色卡buff也强化了，后面的卡+20%暴击率，周年绿拐没跑了吧...
+
+
+
+*****
+
+####  alucardcz  
+##### 89431#       发表于 2022-7-31 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880676&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 16:47</a>
+
+绿卡终于加强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等于没强加 首率全卡20%暴 越等于0   3绿20星。。我绿卡还缺星吗（
+
+*****
+
+####  alucardcz  
+##### 89432#       发表于 2022-7-31 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三色combo
+
+*****
+
+####  exiaexa  
+##### 89433#       发表于 2022-7-31 16:49
+
+这要等计算器了
+
+有星三红，没星绿蓝红？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89434#       发表于 2022-7-31 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880686&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 16:48</a>
+
+等于没强加 首率全卡20%暴 越等于0   3绿20星。。我绿卡还缺星吗（</blockquote>
+你回早了，没星的时候可以去拼绿蓝红
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
