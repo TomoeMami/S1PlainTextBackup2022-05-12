@@ -2012,3 +2012,12 @@ lize感觉太迷信前辈了，打又打不出去，游击也还得练<img src="
 
 跌丝袜，一周生化复刻......
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 16678#       发表于 2022-7-31 22:33
+
+抽空看了眼noah的瓦比赛，不说起什么大作用了，好几次连敌人都没看到就死了，同接也挺低的，这种瓦能快乐起来么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2521,3 +2521,15 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 草；笑喷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1751#       发表于 2022-7-31 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885325&amp;ptid=2078110" target="_blank">lj205 发表于 2022-7-31 21:50</a>
+
+卧槽，跪求到时演唱会不要出现那个充气跳舞人</blockquote>
+可可的充气人偶外形太恶意了
+

@@ -13724,3 +13724,34 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 满破宝石双杀狐能三连，黑杯怎么三连的？减cd衣服？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不是已经自问自答了
 
+
+
+*****
+
+####  exiaexa  
+##### 89754#       发表于 2022-7-31 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885589&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 22:06</a>
+刚刚去隔壁开战了  1面4万2面6万居然说够用 饼干本都要翻</blockquote>
+放弃吧
+已经有人拿着把太公道满暗狐都踩了一遍了
+道中伤害不足对他们大概不算个啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89755#       发表于 2022-7-31 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885748&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 22:17</a>
+
+你也是有满级满破黑杯的人了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没呢啊 还不能领
+
+*****
+
+####  AbigailWilliams  
+##### 89756#       发表于 2022-7-31 22:37
+
+都开始扯淡红宝具仇凛了，哪个世界线的fgo啊……
+
