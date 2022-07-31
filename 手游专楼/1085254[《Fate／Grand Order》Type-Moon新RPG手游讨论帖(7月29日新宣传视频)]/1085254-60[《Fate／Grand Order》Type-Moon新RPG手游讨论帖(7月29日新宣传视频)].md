@@ -10398,3 +10398,32 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 老芥这衣品简直像是从碧蓝航线跑出来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89418#       发表于 2022-7-31 16:31
+
+ 本帖最后由 Jamaisvu 于 2022-7-31 16:34 编辑 
+
+MBTL的新角色是玛修和猫ARC...
+
+这么说FGO的角色会陆续加入吗？我还指望新出个格斗IP呢...
+
+话说我一直用BBCF的MAI当斯卡哈的代餐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">招式和武器太像了。
+
+*****
+
+####  黑上シグマ  
+##### 89419#       发表于 2022-7-31 16:37
+
+正片开始了
+
+*****
+
+####  alucardcz  
+##### 89420#       发表于 2022-7-31 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了 最新情报（
+
