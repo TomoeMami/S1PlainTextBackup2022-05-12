@@ -10369,3 +10369,15 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 居然cos周年礼装狂周，信长同学在职业cosplayer的道路上越走越远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 89416#       发表于 2022-7-31 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880132&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-07-31 15:56:55</a>
+有s1的日服群吗，周年凑个热闹</blockquote>708286973
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
