@@ -12468,3 +12468,57 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 被假图和傻刁群友骗了 没注意看以为是狂 没补狂福袋亏死 allin2宝发现是个玩具
 
+
+
+*****
+
+####  alucardcz  
+##### 89635#       发表于 2022-7-31 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882295&amp;ptid=1085254" target="_blank">天王寺凯伊姆 发表于 2022-7-31 18:48</a>
+
+千年城进下一关就没了啊，那个3技能就挺搞笑的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我错了我错了 刚刚试了下有的 但是没特效了
+
+*****
+
+####  黑上シグマ  
+##### 89636#       发表于 2022-7-31 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882295&amp;ptid=1085254" target="_blank">天王寺凯伊姆 发表于 2022-7-31 18:48</a>
+
+千年城进下一关就没了啊，那个3技能就挺搞笑的</blockquote>
+效果还在，背景没了罢了
+
+*****
+
+####  vacuumsword  
+##### 89637#       发表于 2022-7-31 18:51
+
+780石一宝，溜了。福袋想要摩根二宝，结果阿周那四宝了
+
+*****
+
+####  alucardcz  
+##### 89638#       发表于 2022-7-31 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882318&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-7-31 18:49</a>
+
+被假图和傻刁群友骗了 没注意看以为是狂 没补狂福袋亏死 allin2宝发现是个玩具 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1宝黑杯第3面14万 你算算5宝多少  能有24万就不是玩具了！
+
+*****
+
+####  exiaexa  
+##### 89639#       发表于 2022-7-31 18:54
+
+哦对了，记得开60帧，要手动开高画质
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 89640#       发表于 2022-7-31 18:55
+
+这满破界面给3个石头的框直接把画面遮了个大半<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这UI尼玛就不能自己看一下
+

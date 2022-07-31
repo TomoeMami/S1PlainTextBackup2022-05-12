@@ -1948,3 +1948,14 @@ mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间去吃饭了，不知道香草哥这队bind 0%胜率破了没有
 
+
+
+*****
+
+####  Kokichi  
+##### 16672#       发表于 2022-7-31 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881847&amp;ptid=1972669" target="_blank">winda 发表于 2022-7-31 18:13</a>
+中间去吃饭了，不知道香草哥这队bind 0%胜率破了没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破了，最后一局掀了wokka队
+

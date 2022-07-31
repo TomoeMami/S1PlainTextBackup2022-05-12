@@ -1857,3 +1857,64 @@ cw曲还可以
 由手机上传
 2022-7-31 18:49 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 1688#       发表于 2022-7-31 18:50
+
+<img src="https://img.saraba1st.com/forum/202207/31/185023eekt632676zme0tg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90CC0269-122A-47E9-85E8-366FD7C0E4C5.jpeg</strong> (226.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-31 18:50 上传
+
+*****
+
+####  ads147147  
+##### 1689#       发表于 2022-7-31 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882310&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-7-31 18:49</a>
+讲道理掌握虹团核心科技场地魔法实在过于犯规，liella的动画live不知道是不是为了好还原，真的是……很素 ...</blockquote>
+京极的运镜，真的不适合这样的舞台设计。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 1690#       发表于 2022-7-31 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882310&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-7-31 18:49</a>
+
+讲道理掌握虹团核心科技场地魔法实在过于犯规，liella的动画live不知道是不是为了好还原，真的是……很素 ...</blockquote>
+为了还原吧
+
+*****
+
+####  ads147147  
+##### 1691#       发表于 2022-7-31 18:52
+
+说起朴素舞台，酒井还是得吹的，水水的live效果就很好。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  离心  
+##### 1692#       发表于 2022-7-31 18:57
+
+不过ceo咋入队啊，你第一集的live不看就算了，第三集的也不看？后续要打补丁说她其实是在的？而且看下来大概率是贫穷孩子早当家的设定。怎么去享受塔诺西……难绷，真学恋恋一期后天降老爸来解决啊……
+
+*****
+
+####  starring  
+##### 1693#       发表于 2022-7-31 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882326&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-31 18:50</a></blockquote>
+第三集也要在可香人的坟头跳舞吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
