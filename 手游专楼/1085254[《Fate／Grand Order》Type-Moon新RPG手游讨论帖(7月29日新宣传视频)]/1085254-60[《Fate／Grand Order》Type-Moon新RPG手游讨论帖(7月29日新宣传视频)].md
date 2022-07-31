@@ -11294,3 +11294,196 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算我能拿1084石
 
+
+
+*****
+
+####  alucardcz  
+##### 89518#       发表于 2022-7-31 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881245&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 17:29</a>
+
+算了算我能拿1084石</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  miro112233  
+##### 89519#       发表于 2022-7-31 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881201&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-31 17:27</a>
+
+不说这么多有的没的，就说是不是绿拐吧</blockquote>
+还是看看泳装CBA是不是绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89520#       发表于 2022-7-31 17:31
+
+草 进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  廖化  
+##### 89521#       发表于 2022-7-31 17:31
+
+不懂月姬，求大佬科普下这个公主
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  khxooo  
+##### 89522#       发表于 2022-7-31 17:31
+
+我来抽徐福的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tttabc1  
+##### 89523#       发表于 2022-7-31 17:32
+
+虽然没有完全还原mbaacc但终于落地了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89524#       发表于 2022-7-31 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蘑菇这不会是才动笔开写吧
+
+*****
+
+####  khxooo  
+##### 89525#       发表于 2022-7-31 17:32
+
+不过既然梅莉是伪装者，那么究竟是不是本人就要打个问号了。
+
+*****
+
+####  空气蛹  
+##### 89526#       发表于 2022-7-31 17:33
+
+这个送石头是怎么算的哦
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 89527#       发表于 2022-7-31 17:33
+
+第一发十连就出了公主 爽爽爽
+
+*****
+
+####  khxooo  
+##### 89528#       发表于 2022-7-31 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881270&amp;ptid=1085254" target="_blank">廖化 发表于 2022-7-31 17:31</a>
+
+不懂月姬，求大佬科普下这个公主
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+可以认为是老芥的上位版
+
+*****
+
+####  alucardcz  
+##### 89529#       发表于 2022-7-31 17:33
+
+草 百充？？
+
+*****
+
+####  exiaexa  
+##### 89530#       发表于 2022-7-31 17:34
+
+最终再临是大头
+
+然后rt奖励100，新加了任务给了120，签到给了10护符
+
+应该就是这些了
+
+*****
+
+####  qixinno2  
+##### 89531#       发表于 2022-7-31 17:34
+
+<img src="https://img.saraba1st.com/forum/202207/31/173422au2sm2b4d225osue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (330.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:34 上传
+
+*****
+
+####  霧谷藤乃  
+##### 89532#       发表于 2022-7-31 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等，我才发现，今年是没有自选从者了？
+
+*****
+
+####  里村紅葉  
+##### 89533#       发表于 2022-7-31 17:35
+
+ 本帖最后由 里村紅葉 于 2022-7-31 17:36 编辑 
+
+弓1这四个我居然全都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+六选一赌水荚膜成功啦！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89534#       发表于 2022-7-31 17:35
+
+啊。。。。。福袋水武藏  草
+
+*****
+
+####  黑上シグマ  
+##### 89535#       发表于 2022-7-31 17:36
+
+70连出公主了，OKOK
+
+*****
+
+####  qixinno2  
+##### 89536#       发表于 2022-7-31 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">补二宝失败 公主啊 公主
+
+*****
+
+####  Jamaisvu  
+##### 89537#       发表于 2022-7-31 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881336&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:35</a>
+
+啊。。。。。福袋水武藏  草</blockquote>
+这福袋会读心的，你要反着奶啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89538#       发表于 2022-7-31 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽这77连徐福就1宝是什么水平
+
+*****
+
+####  exiaexa  
+##### 89539#       发表于 2022-7-31 17:39
+
+卧槽这个公主技能什么鬼
+
+爆杀梅林也就算了，这是直接把FGO输出拉高了整整一个台阶
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

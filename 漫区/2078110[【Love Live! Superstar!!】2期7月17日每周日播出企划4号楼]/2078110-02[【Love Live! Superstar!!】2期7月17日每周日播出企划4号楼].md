@@ -1193,3 +1193,46 @@ QQ截图20220731170408.png
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 1617#       发表于 2022-7-31 17:31
+
+意料之中，我一直估计的是10-20场左右的样子。
+
+话说烂铁你把Liyuu的2nd也安排一下呗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 1618#       发表于 2022-7-31 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881124&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-31 17:21</a>
+赌团运是吧</blockquote>
+运营对二期动画很有自信的样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cat1230  
+##### 1619#       发表于 2022-7-31 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881267&amp;ptid=2078110" target="_blank">player3960 发表于 2022-7-31 17:31</a>
+
+意料之中，我一直估计的是10-20场左右的样子。
+
+话说烂铁你把Liyuu的2nd也安排一下呗？</blockquote>
+鲤鱼赶不及吧，手头就刚发的3单且日语版还没出，新歌无了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1620#       发表于 2022-7-31 17:39
+
+虽然千叶距离东京不远，但是8号结束live后9号都没有时间给鲤鱼办生日event了吧
+

@@ -1930,3 +1930,12 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 
 mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16670#       发表于 2022-7-31 17:33
+
+牛姨2月29日特训四连，ノビ+1→重い球→重い球→アベレージヒッター全部成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
