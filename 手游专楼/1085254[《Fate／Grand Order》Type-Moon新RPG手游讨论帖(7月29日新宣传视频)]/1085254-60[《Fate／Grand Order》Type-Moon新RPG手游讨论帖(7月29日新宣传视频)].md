@@ -14130,3 +14130,38 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 反正 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们老想着梅莉小姐售后 万一人家自己是个打手呢
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89798#       发表于 2022-8-1 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">92发又歪了，光头惨到飞起
+
+*****
+
+####  alucardcz  
+##### 89799#       发表于 2022-8-1 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56887399&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-8-1 00:53</a>
+
+92发又歪了，光头惨到飞起</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道有没有人会搬运这充满希望的录像
+
+*****
+
+####  黑上シグマ  
+##### 89800#       发表于 2022-8-1 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头JFK48达成
+
+*****
+
+####  花枝鱿鱼面  
+##### 89801#       发表于 2022-8-1 00:58
+
+JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
