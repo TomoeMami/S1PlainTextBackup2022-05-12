@@ -1236,3 +1236,42 @@ QQ截图20220731170408.png
 
 虽然千叶距离东京不远，但是8号结束live后9号都没有时间给鲤鱼办生日event了吧
 
+
+
+*****
+
+####  lj205  
+##### 1621#       发表于 2022-7-31 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1622#       发表于 2022-7-31 17:42
+
+<img src="https://img.saraba1st.com/forum/202207/31/174258cq62mm6qzlnllnfq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B6B812AB-A4FD-4205-8624-9B8E14CB07E5.jpeg</strong> (154.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-31 17:42 上传
+
+*****
+
+####  cybernetics31  
+##### 1623#       发表于 2022-7-31 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 1624#       发表于 2022-7-31 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881373&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-7-31 17:38</a>
+鲤鱼赶不及吧，手头就刚发的3单且日语版还没出，新歌无了啊</blockquote>
+那个又不是三单，没有实体单曲，还是feat别人的
+

@@ -11487,3 +11487,189 @@ NMD怎么又是12月，又要催命过圣诞是吧
 爆杀梅林也就算了，这是直接把FGO输出拉高了整整一个台阶
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ネロ  
+##### 89540#       发表于 2022-7-31 17:40
+
+两个十连出了
+
+给了672石，看能出个几宝
+
+*****
+
+####  angelooo  
+##### 89541#       发表于 2022-7-31 17:40
+
+这么多福袋挑一定会new的啊，我再也不信什么只有XXX不是new就行这种鬼话啦！
+
+*****
+
+####  alucardcz  
+##### 89542#       发表于 2022-7-31 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881404&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 17:40</a>
+
+这么多福袋挑一定会new的啊，我再也不信什么只有XXX不是new就行这种鬼话啦！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不不不 我不要new啊 我要3宝狂娜和魔跟  出谁我都能120了。。。现在 就tmd一个草
+
+*****
+
+####  ayanamilin  
+##### 89543#       发表于 2022-7-31 17:41
+
+五星礼装啥时能换啊？找了一圈没看到在哪里换。
+
+*****
+
+####  麻花疼  
+##### 89544#       发表于 2022-7-31 17:41
+
+百充牛逼
+
+*****
+
+####  LrGsite  
+##### 89545#       发表于 2022-7-31 17:41
+
+等一下啊，女梅林呢
+
+*****
+
+####  黑上シグマ  
+##### 89546#       发表于 2022-7-31 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881404&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 17:40</a>
+
+这么多福袋挑一定会new的啊，我再也不信什么只有XXX不是new就行这种鬼话啦！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没有那种福袋啊，全是缺一个之类的，然后我没抽的基本都是我不要的（
+
+*****
+
+####  v22325  
+##### 89547#       发表于 2022-7-31 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">整整百抽才出  吓死我了 还以为这都能黑
+
+*****
+
+####  cckuku  
+##### 89548#       发表于 2022-7-31 17:44
+
+公主的满破丑的我相识
+
+*****
+
+####  霧谷藤乃  
+##### 89549#       发表于 2022-7-31 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护符出了…还得抽徐福……
+
+*****
+
+####  闽明  
+##### 89550#       发表于 2022-7-31 17:44
+
+大约8个十连出了，可以安心等夏活了
+
+
+
+*****
+
+####  空气蛹  
+##### 89551#       发表于 2022-7-31 17:44
+
+给了780石，先去把之前抽的拉到满破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  闽明  
+##### 89552#       发表于 2022-7-31 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881420&amp;ptid=1085254" target="_blank">LrGsite 发表于 2022-7-31 17:41</a>
+
+等一下啊，女梅林呢</blockquote>
+夏活
+
+*****
+
+####  シャル  
+##### 89553#       发表于 2022-7-31 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881270&amp;ptid=1085254" target="_blank">廖化 发表于 2022-7-31 17:31</a>
+
+不懂月姬，求大佬科普下这个公主
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+地球UO
+
+*****
+
+####  alucardcz  
+##### 89554#       发表于 2022-7-31 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">不开心了 我只是想拉一个120的从者 为什么就不让我拉
+
+*****
+
+####  上坂莲华  
+##### 89555#       发表于 2022-7-31 17:47
+
+10个10连抽到了地球，剩下两单储备等梅莉了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89556#       发表于 2022-7-31 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881420&amp;ptid=1085254" target="_blank">LrGsite 发表于 2022-7-31 17:41</a>
+
+等一下啊，女梅林呢</blockquote>
+在泳装啊？你在说什么怪话
+
+*****
+
+####  qixinno2  
+##### 89557#       发表于 2022-7-31 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然太嚣张被制裁了 抽光石头也没2宝
+
+*****
+
+####  tttabc1  
+##### 89558#       发表于 2022-7-31 17:47
+
+说起来FGO这个球姬是朱月套公主皮么？还是单纯公主本人
+
+*****
+
+####  gpx234mqx  
+##### 89559#       发表于 2022-7-31 17:49
+
+738石头
+
+7成五星有的
+
+17882A08-E7F1-4955-85E0-42CF5AA0C0C2.png
+(733.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:49 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/174903wenetdqnnrrtenps.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LrGsite  
+##### 89560#       发表于 2022-7-31 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881504&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 17:47</a>
+
+在泳装啊？你在说什么怪话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">石头要被抽干了
+
