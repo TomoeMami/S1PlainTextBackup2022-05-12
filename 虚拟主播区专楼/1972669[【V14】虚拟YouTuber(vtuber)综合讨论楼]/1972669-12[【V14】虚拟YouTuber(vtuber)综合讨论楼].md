@@ -1862,3 +1862,24 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 
 [【original anime MV】I’m Your Treasure Box ＊あなたは マリンせんちょうを たからばこからみつけた。【hololive/宝鐘マリン】 - YouTube](https://www.youtube.com/watch?v=vV-5W7SFHDc)
 
+
+
+*****
+
+####  毛头小希  
+##### 16664#       发表于 2022-7-31 13:05
+
+听说杏蒽男意外还是挺能打的，而且还是皮不好的那两位比较强，这叫塞翁失马焉知非福吗？
+
+有点想去瞅两眼长下巴的那位了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+至于另一位…………我还需要做点心理准备
+
+<img src="https://img.saraba1st.com/forum/202207/31/130518yoa8zocd5opcc7xm.png" referrerpolicy="no-referrer">
+
+<strong>AoZO6Pw.png</strong> (157.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 13:05 上传
+
