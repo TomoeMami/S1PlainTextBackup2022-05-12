@@ -13952,3 +13952,70 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在继续增加呢
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89778#       发表于 2022-7-31 23:33
+
+徐福居然是蓝拐，两个虞姬一个红一个绿，你怎么拐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 89779#       发表于 2022-7-31 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886525&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 23:24</a>
+
+2单变2宝，等泳装了还是找几个大佬5宝的比较靠谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都2了不如直接5了吧（
+
+*****
+
+####  alucardcz  
+##### 89780#       发表于 2022-7-31 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886533&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 23:25</a>
+
+五呼符毛都没出 GG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都寄了你怎么还抽
+
+*****
+
+####  rooarr  
+##### 89781#       发表于 2022-7-31 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886627&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 23:33</a>
+都2了不如直接5了吧（</blockquote>
+不值得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89782#       发表于 2022-7-31 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886644&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 23:35</a>
+
+不值得</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么说其实2也不值啊（
+
+*****
+
+####  exiaexa  
+##### 89783#       发表于 2022-7-31 23:37
+
+看在徐福兢兢业业搞笑的份上
+
+给了三个结晶，希望你继承豆爸的衣钵，作为三星拐努力加班
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 89784#       发表于 2022-7-31 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
