@@ -13844,3 +13844,17 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 福袋狂2武藏加一，另两个都是new可惜不中。一气之下抽个十连公主加一成三宝了，靠，明天再抽个十连有种给我四宝五宝。
 
+
+
+*****
+
+####  シャル  
+##### 89766#       发表于 2022-7-31 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886057&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 22:43</a>
+
+阿菌:搞笑角色你不要过来给亲戚丢人啊啊啊啊</blockquote>
+真远房亲戚<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+术呆还血统近呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
