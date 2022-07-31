@@ -10546,3 +10546,178 @@ NMD怎么还是3倍
 你回早了，没星的时候可以去拼绿蓝红
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89435#       发表于 2022-7-31 16:51
+
+这强行抬绿卡的样子也太过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来运营也确定无药可救，只能直接改机制了吗...
+
+*****
+
+####  sosgame67  
+##### 89436#       发表于 2022-7-31 16:51
+
+绿卡暴击还是不如红卡阿..系数不改这个暴击机制依然吃亏<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89437#       发表于 2022-7-31 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睡了一会起来怎么还没到正菜……
+
+*****
+
+####  黑上シグマ  
+##### 89438#       发表于 2022-7-31 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以用野生路人的宝具了
+
+*****
+
+####  alucardcz  
+##### 89439#       发表于 2022-7-31 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880704&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 16:49</a>
+
+你回早了，没星的时候可以去拼绿蓝红</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他不是说不管卡的顺序 效果全吃吗  那当然还是红绿蓝啊
+
+*****
+
+####  Jamaisvu  
+##### 89440#       发表于 2022-7-31 16:52
+
+非好友能用宝具了...这么一看好友除了多几十友情点和固定在刷新池中外，也没啥特别之处了？
+
+*****
+
+####  alucardcz  
+##### 89441#       发表于 2022-7-31 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么感觉没什么变化 战线和高难有点用 但大多数时候还是宝具3连  宝具又不吃这效果
+
+*****
+
+####  exiaexa  
+##### 89442#       发表于 2022-7-31 16:54
+
+恭喜你们常驻4缺1的，对我0提升
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2030惨遭遗弃，肯主任迷之上位
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89443#       发表于 2022-7-31 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">5星礼装自选 但就7种 有宝石黑杯
+
+*****
+
+####  黑上シグマ  
+##### 89444#       发表于 2022-7-31 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁要啊
+
+*****
+
+####  alucardcz  
+##### 89445#       发表于 2022-7-31 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">md 没用啊  不如给我5星从者自选
+
+*****
+
+####  Jamaisvu  
+##### 89446#       发表于 2022-7-31 16:55
+
+<img src="https://img.saraba1st.com/forum/202207/31/165526a7qn73dyu7q7wnnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220731_165423_tv.danmaku.bili.jpg</strong> (477.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 16:55 上传
+
+自选五星礼装...我先选黑杯吧，差三张满破呢...
+
+*****
+
+####  yyzcacxg  
+##### 89447#       发表于 2022-7-31 16:55
+
+黑杯4=1，爽到
+
+*****
+
+####  qixinno2  
+##### 89448#       发表于 2022-7-31 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行 终于能满破黑杯了
+
+*****
+
+####  シャル  
+##### 89449#       发表于 2022-7-31 16:57
+
+全满破了
+
+可惜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89450#       发表于 2022-7-31 16:57
+
+NMD这福袋池子是真的有病
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 89451#       发表于 2022-7-31 16:57
+
+白送宝石黑白，说厚道算厚道，但对我们这种开服氪金玩家来说，意义基本上是就为0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89452#       发表于 2022-7-31 16:58
+
+<img src="https://img.saraba1st.com/forum/202207/31/165744wqzw9iwi0005zdet.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220731_165731_tv.danmaku.bili.jpg</strong> (396.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 16:57 上传
+
+又是按时间分的福袋...这么看以后都是这种分类了？好挤啊...
+
+*****
+
+####  黑上シグマ  
+##### 89453#       发表于 2022-7-31 16:59
+
+狂2神池！
+
+*****
+
+####  Jamaisvu  
+##### 89454#       发表于 2022-7-31 16:59
+
+要我说，干脆弄个大黑暗锅，保底四星限定，抽完之后给个全五星自选券得了.
+
+*****
+
+####  alucardcz  
+##### 89455#       发表于 2022-7-31 17:00
+
+妖兰 超人熊卡池就3个人。。。。。。。。。我不会抽中罗马吧。。不要啊
+
