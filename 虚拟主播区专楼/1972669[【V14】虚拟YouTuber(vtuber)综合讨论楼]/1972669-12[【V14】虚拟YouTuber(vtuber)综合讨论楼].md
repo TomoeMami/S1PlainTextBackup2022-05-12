@@ -1921,3 +1921,12 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 看了眼工商
 感觉莎小姐接话的时机抓的不是很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 16669#       发表于 2022-7-31 16:06
+
+mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

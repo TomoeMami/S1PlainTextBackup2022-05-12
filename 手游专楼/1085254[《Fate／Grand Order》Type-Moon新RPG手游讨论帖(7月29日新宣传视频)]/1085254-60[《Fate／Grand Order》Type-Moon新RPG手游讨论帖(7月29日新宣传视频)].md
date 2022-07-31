@@ -10360,3 +10360,12 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 有s1的日服群吗，周年凑个热闹
 
+
+
+*****
+
+####  xiongxingyu  
+##### 89415#       发表于 2022-7-31 16:02
+
+居然cos周年礼装狂周，信长同学在职业cosplayer的道路上越走越远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
