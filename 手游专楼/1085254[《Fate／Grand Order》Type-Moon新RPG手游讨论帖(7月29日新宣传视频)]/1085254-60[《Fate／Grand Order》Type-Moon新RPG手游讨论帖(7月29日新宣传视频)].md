@@ -14019,3 +14019,29 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89785#       发表于 2022-7-31 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头怕不是今天的工资全得砸进去
+
+*****
+
+####  霧谷藤乃  
+##### 89786#       发表于 2022-7-31 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不止是今天的工资
+
+*****
+
+####  保罗赫伯特  
+##### 89787#       发表于 2022-7-31 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886536&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 23:26</a>
+
+光头目前35发11连1宝爆死中</blockquote>
+光头指的是今天生放送上的那个主持人？
+
