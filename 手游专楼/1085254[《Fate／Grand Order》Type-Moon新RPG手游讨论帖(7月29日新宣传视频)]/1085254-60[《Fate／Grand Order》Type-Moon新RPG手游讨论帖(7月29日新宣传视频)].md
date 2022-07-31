@@ -10258,3 +10258,61 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 游戏内情报大概17点？
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89406#       发表于 2022-7-31 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879642&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 14:55</a>
+
+可以学cy那种下载模式啊（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你说这个谁懂啊
+
+*****
+
+####  Jamaisvu  
+##### 89407#       发表于 2022-7-31 15:24
+
+<img src="https://img.saraba1st.com/forum/202207/31/152342zkjd8j8rqpr98nkr.png" referrerpolicy="no-referrer">
+
+<strong>1659252188725.png</strong> (77.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 15:23 上传
+
+不知道这次YLS怎么变着花样发石头<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 89408#       发表于 2022-7-31 15:26
+
+今天还有mbtl情报
+
+*****
+
+####  霧谷藤乃  
+##### 89409#       发表于 2022-7-31 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 15:19</a>
+
+正片:15:30～17:30
+
+游戏内情报大概17点？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等最后再看了，FGO生放人还是多
+
+*****
+
+####  Jamaisvu  
+##### 89410#       发表于 2022-7-31 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879888&amp;ptid=1085254" target="_blank">kisskick 发表于 2022-7-31 15:26</a>
+
+今天还有mbtl情报</blockquote>
+月姬R还有什么可以出的人物吗，是不是该回归一些老人物了，比如紫...
+
+算了，先奶一个neko ARC<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
