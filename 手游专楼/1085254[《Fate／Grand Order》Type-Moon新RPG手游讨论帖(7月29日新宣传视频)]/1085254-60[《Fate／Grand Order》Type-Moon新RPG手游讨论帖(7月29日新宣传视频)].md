@@ -13142,3 +13142,77 @@ fnaye
 
 翻页
 
+
+
+*****
+
+####  qixinno2  
+##### 89704#       发表于 2022-7-31 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884095&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 20:38</a>
+
+你还能没剑？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">五星剑只有棉被和今年新出的那俩
+
+*****
+
+####  exiaexa  
+##### 89705#       发表于 2022-7-31 20:54
+
+太拼了
+
+现在吹点是公主+狂那+奥伯龙+沙狐无视阵容三连
+
+他们甚至不愿意带鹤小姐一起玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89706#       发表于 2022-7-31 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这换人阵容有毛用啊 不是跟妖兰差不多么
+
+*****
+
+####  gpx234mqx  
+##### 89707#       发表于 2022-7-31 20:56
+
+120连出了
+
+DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
+(995.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 20:56 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/205615fytyk1ryxrvi9115.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 89708#       发表于 2022-7-31 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884325&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 20:54</a>
+
+太拼了
+
+现在吹点是公主+狂那+奥伯龙+沙狐无视阵容三连</blockquote>
+鹤小姐除非打双核，否则太蠢
+
+*****
+
+####  exiaexa  
+##### 89709#       发表于 2022-7-31 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884370&amp;ptid=1085254" target="_blank">areklose 发表于 2022-7-31 20:56</a>
+
+鹤小姐除非打双核，否则太蠢</blockquote>
+你没搞懂问题在哪儿
+
+为了解决多核下公主队友伤害不足，用上了换人，都上换人了那用谁不是用
+
+反正都放弃治疗了那带上鹤小姐一起玩不更好吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
