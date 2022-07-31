@@ -10183,3 +10183,12 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89398#       发表于 2022-7-31 14:37
+
+寺岛拓笃也阳了，生放送又少一人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">日本好危险啊，希望大家好好戴口罩吧...
+
