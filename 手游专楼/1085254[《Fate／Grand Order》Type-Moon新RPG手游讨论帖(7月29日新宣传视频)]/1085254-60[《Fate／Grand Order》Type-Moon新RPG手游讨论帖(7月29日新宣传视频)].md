@@ -13440,3 +13440,161 @@ DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
 突然想起来公主落地了，秋叶就不知道猴年马月套个什么身份落了，当年还是秋叶开启的妹控xp ...</blockquote>
 狂阶 红赤朱吗
 
+
+
+*****
+
+####  exiaexa  
+##### 89731#       发表于 2022-7-31 21:39
+
+ 本帖最后由 exiaexa 于 2022-7-31 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884951&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 21:28</a>
+
+强度有没有定论啊，保底了我在想要不要抽个二宝</blockquote>
+这么说吧
+
+①如果你用她打单核
+
+她能触发特攻，2~3宝伤害管够，因为宝具倍率和特攻倍率是同时被宝具等级提升的
+
+她触发不了特攻的场合，5宝120大概率要看对面的脸色，吃到个天地人0.9蛋都碎了
+
+那么问题来了，她能特攻多少人呢
+
+首先对面必须是个从者，所有小怪都是没有秩序混沌这类特性的
+
+②多核情况下
+
+2宝下自带50攻20宝威伤害管够，因为多核她只配打第一面
+
+三技能要开必须先开宝具，同时因为没有能给予队友的BUFF，所以剩下来的钱我建议你给队友提升宝具
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89732#       发表于 2022-7-31 21:40
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 89733#       发表于 2022-7-31 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884951&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 21:28</a>
+
+强度有没有定论啊，保底了我在想要不要抽个二宝</blockquote>
+寄了  <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+抽不抽2宝看你自己了 反正你都课了（
+
+*****
+
+####  霧谷藤乃  
+##### 89734#       发表于 2022-7-31 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885123&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-31 21:39</a>
+
+狂阶 红赤朱吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂阶泛用，挺好（
+
+*****
+
+####  gpx234mqx  
+##### 89735#       发表于 2022-7-31 21:43
+
+你们都说地球姫攻击低，但是她已经是月癌最高攻击了好吧
+
+339CCA77-0635-4B65-97A4-0D5CD2918722.png
+(752.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/214253qrnm5rcpq5e0wwqm.png" referrerpolicy="no-referrer">
+
+A6A3F2F3-D615-4288-8428-17C8BCF00E11.png
+(823.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/214255ap6polyznk8o0073.png" referrerpolicy="no-referrer">
+
+776270D4-1AEE-4561-A143-D88A11A4F90B.png
+(814.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/214256yczmi88ni4cd4a4b.png" referrerpolicy="no-referrer">
+
+D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
+(763.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/214258vdz888d3qt7th4qd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 89736#       发表于 2022-7-31 21:43
+
+两个5星强化的那天正好都有对应的职介up 不是都给你暗示的明明白白了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89737#       发表于 2022-7-31 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885184&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-7-31 21:43</a>
+
+你们都说地球姫攻击低，但是她已经是月癌最高攻击了好吧</blockquote>
+所以说都在骂月癌啊，0.94迫真雪上加霜，坑你没商量
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89738#       发表于 2022-7-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885205&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:44</a>
+所以说都在骂月癌啊，0.94迫真雪上加霜，坑你没商量</blockquote>
+所以说唯一神就是唯一神，明确知道怎样可以恶心玩家和逼氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89739#       发表于 2022-7-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885126&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:39</a>
+
+这么说吧
+
+①如果你用她打单核
+
+她能触发特攻，2~3宝伤害管够，因为宝具倍率和特攻倍率是同时被宝具等级提升 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说 1宝带满破满级黑杯 对比 2宝10几级的活动礼装 哪个伤害高
+
+*****
+
+####  alucardcz  
+##### 89740#       发表于 2022-7-31 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885126&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:39</a>
+
+这么说吧
+
+①如果你用她打单核
+
+她能触发特攻，2~3宝伤害管够，因为宝具倍率和特攻倍率是同时被宝具等级提升 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">md 隔壁说2宝 地球姬+王姐+奥宝就能畅游所有本  12面地球姬 3面王姐
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我一试 乖乖 这伤害连最高级饼干本都会翻车
+
