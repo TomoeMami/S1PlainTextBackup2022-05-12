@@ -13884,3 +13884,39 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我还福袋想抽武藏的2宝呢，结果来的是banana的4宝
 
+
+
+*****
+
+####  rooarr  
+##### 89770#       发表于 2022-7-31 23:17
+
+总比我的嬴政＋1强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89771#       发表于 2022-7-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886459&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 23:17</a>
+
+总比我的嬴政＋1强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主几宝了
+
+*****
+
+####  里村紅葉  
+##### 89772#       发表于 2022-7-31 23:19
+
+又丢了10个呼符，出了这个池子的第三个大姐<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89773#       发表于 2022-7-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886105&amp;ptid=1085254" target="_blank">シャル 发表于 2022-7-31 22:47</a>
+
+三分之一都没中啊</blockquote>
+我国服还是1300石强抽回来的，中间歪了5个五星，当时我真的就相信了，有缘分这东西的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

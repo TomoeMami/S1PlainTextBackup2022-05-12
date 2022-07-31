@@ -2578,3 +2578,27 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 裂啦都第二年还能拿新人特别奖，这新人期有点长啊。紫毛现在的人设仔细看，首先是有点自闭，两次和香音聊了个头看见其他人过来就闪了，其次你是怎么知道香音家地址的，天降青梅和跟踪狂必须得占一个,要是后者的话就是薇恩不敢在其他人在的时候和香音搭话，于是在领奖后跟了香音一路直到其他人都解散了才敢搭话，更自闭了。
 
+
+
+*****
+
+####  仟音一心  
+##### 1756#       发表于 2022-7-31 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885885&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-7-31 22:27</a>
+草；笑喷</blockquote>
+<img src="https://p.sda1.dev/6/f657767ce36201c5c6bc9e466d428d37/CMP_20220731231219662.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  竹筷  
+##### 1757#       发表于 2022-7-31 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886198&amp;ptid=2078110" target="_blank">凡人 发表于 2022-7-31 22:54</a>
+裂啦都第二年还能拿新人特别奖，这新人期有点长啊。紫毛现在的人设仔细看，首先是有点自闭，两次和香音聊了 ...</blockquote>
+戳啦，因为新成员跟老成员之前默契不够被评委减分了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
