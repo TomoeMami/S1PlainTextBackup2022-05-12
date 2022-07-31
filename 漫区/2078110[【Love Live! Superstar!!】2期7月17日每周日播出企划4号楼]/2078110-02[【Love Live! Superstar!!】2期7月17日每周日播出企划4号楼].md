@@ -949,3 +949,21 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
  唧喳喳那里我记得有个有关的翻译可以看看 https://www.jizhazha.com/jv1630 好像只翻译了一部分，也可以 ...</blockquote>
 草，直球辱骂了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1593#       发表于 2022-7-31 09:06
+
+我非常好奇今晚能因为什么吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1594#       发表于 2022-7-31 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么期待，至少插入曲要好听点，二期到现在就一个cw曲能听
+
