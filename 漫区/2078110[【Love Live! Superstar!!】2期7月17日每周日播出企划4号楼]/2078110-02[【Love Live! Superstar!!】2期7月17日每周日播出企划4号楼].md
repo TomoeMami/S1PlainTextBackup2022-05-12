@@ -2602,3 +2602,24 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 1758#       发表于 2022-7-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886083&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-7-31 22:45</a>
+
+今日可香，“女孩子闭着眼睛你应该知道她想要啥了吧”这三话可堇也绑的太死了，什么连体婴，两人间 ...</blockquote>
+这个画面配上这个台词可太扭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田，京极：这里我明示了
+
+*****
+
+####  索兰塔.织姬  
+##### 1759#       发表于 2022-7-31 23:22
+
+Liella要多打拉扯，拉扯知道吗？
+
+还有版本的强势英雄要练起来，不要场场被别人抓成狗
+

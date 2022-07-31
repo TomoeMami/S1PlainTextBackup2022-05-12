@@ -13920,3 +13920,35 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 三分之一都没中啊</blockquote>
 我国服还是1300石强抽回来的，中间歪了5个五星，当时我真的就相信了，有缘分这东西的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 89774#       发表于 2022-7-31 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886467&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 23:18</a>
+公主几宝了</blockquote>
+2单变2宝，等泳装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89775#       发表于 2022-7-31 23:25
+
+五呼符毛都没出 GG
+
+*****
+
+####  黑上シグマ  
+##### 89776#       发表于 2022-7-31 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头目前35发11连1宝爆死中
+
+*****
+
+####  霧谷藤乃  
+##### 89777#       发表于 2022-7-31 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在继续增加呢
+
