@@ -10339,3 +10339,24 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 前面因为炎灾兽灾BGM时回想起的各种傻逼情节，都被这压轴爽到忘了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 89413#       发表于 2022-7-31 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56880060&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 15:48</a>
+
+奥伯龙真的是2.6牌面
+
+这专属BGM remix压轴效果太强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的6周年从者 虚假的6周年从者.jpg
+
+*****
+
+####  千叶铁矢  
+##### 89414#       发表于 2022-7-31 15:56
+
+有s1的日服群吗，周年凑个热闹
+
