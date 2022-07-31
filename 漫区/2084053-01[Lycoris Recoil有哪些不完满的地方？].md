@@ -891,3 +891,12 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集看完烂片雷达轰隆作响有什么头绪吗？
 
+
+
+*****
+
+####  acejoe  
+##### 94#       发表于 2022-7-31 21:37
+
+唯一翻盘可能，这一集是黑人老哥自导自演，
+

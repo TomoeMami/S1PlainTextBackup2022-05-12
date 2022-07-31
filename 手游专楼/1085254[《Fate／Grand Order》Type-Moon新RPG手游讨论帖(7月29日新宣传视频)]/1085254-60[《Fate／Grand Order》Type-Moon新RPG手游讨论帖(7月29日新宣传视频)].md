@@ -13389,3 +13389,54 @@ DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
 我，全部石头，沉船</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然还有没出的么 我以为只有我俩抽干石头只有一个的最惨了
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 89726#       发表于 2022-7-31 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884951&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-7-31 21:28</a>
+强度有没有定论啊，保底了我在想要不要抽个二宝</blockquote>
+想上班高宝资源拉满或许能上
+
+*****
+
+####  acuman  
+##### 89727#       发表于 2022-7-31 21:35
+
+公主不拉到满中满只能虐菜
+
+强度角度最佳选择是不抽然后抱好友的5宝120级2000金芙芙，组不绑定衣服不重名。
+
+在最不缺厨力玩家的你游找满配公主可太简单了
+
+何况现在有史诗级强化，非好友也能放宝具
+
+*****
+
+####  eyeego  
+##### 89728#       发表于 2022-7-31 21:36
+
+老实说这buff量是没问题的 就是2技能cd下了点毒不让你带奥宝 然后这个职介不是高宝打白字基本很吃力
+当然不排除过几天梅丽小姐售后服务直接把公主抬成红卡杠把子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 89729#       发表于 2022-7-31 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884954&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 21:28</a>
+竟然还有没出的么 我以为只有我俩抽干石头只有一个的最惨了</blockquote>
+所以说不要在我面前提非这个字，因为你们没一个够我非<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 89730#       发表于 2022-7-31 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884920&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 21:26</a>
+
+突然想起来公主落地了，秋叶就不知道猴年马月套个什么身份落了，当年还是秋叶开启的妹控xp ...</blockquote>
+狂阶 红赤朱吗
+
