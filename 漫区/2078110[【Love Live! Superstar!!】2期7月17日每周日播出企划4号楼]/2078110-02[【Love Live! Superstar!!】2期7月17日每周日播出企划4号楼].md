@@ -2364,3 +2364,39 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 北原打印机
 
+
+
+*****
+
+####  tagerto  
+##### 1736#       发表于 2022-7-31 20:42
+
+鬼夏这集在送外卖赚钱，是因为上集炒股破产了吗，但是日本可以当未成年人干这种体力活工作吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 1737#       发表于 2022-7-31 20:48
+
+不就一次日经普跌，为什么就破产，不能是技术性调整<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不会加了杠杆吧
+
+*****
+
+####  saya1892  
+##### 1738#       发表于 2022-7-31 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882854&amp;ptid=2078110" target="_blank">qty 发表于 2022-7-31 19:24</a>
+
+紫毛这歌感觉有点硬凹高级感的意思，实际听起来并不是很抓人，效果和岚珠那首比起来差了点意思 ...</blockquote>
+她声线其实不太适合这种歌，不够华丽
+
+话说鲤鱼这首裂啦之歌完全就没有用可可声线吧
+
+*****
+
+####  离心  
+##### 1739#       发表于 2022-7-31 20:52
+
+这告诉我们好孩子不要玩股票，ceo你好温柔
+
