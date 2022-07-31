@@ -2280,3 +2280,35 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">忙得没看生放
 
+
+
+*****
+
+####  ads147147  
+##### 1729#       发表于 2022-7-31 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883163&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-7-31 19:44</a>
+可香党还嚎嚎，恋厨早就陷入沉默了</blockquote>
+现在还有恋厨吗？哦我就是啊，那没啥好说的。到时候和夏美绑在一起吧，或许这两苦命人在一起还有点感觉。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 1730#       发表于 2022-7-31 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883475&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-31 20:02</a>
+
+现在还有恋厨吗？哦我就是啊，那没啥好说的。到时候和夏美绑在一起吧，或许这两苦命人在一起还有点感觉。 ...</blockquote>
+别绑，星的CP多少都有点吓人的，用力过猛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氯化磷君  
+##### 1731#       发表于 2022-7-31 20:10
+
+这几集给我最大的印象是ceo居然真是个非常努力搞事业赚钱的人
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

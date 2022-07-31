@@ -13007,3 +13007,12 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天真是倒霉的一天 隔壁水星井了 隔壁苍井又歪了 这里700石1宝 福袋3中2 居然还寄了。。
 
+
+
+*****
+
+####  qixinno2  
+##### 89690#       发表于 2022-7-31 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好想化身磁场颠佬
+
