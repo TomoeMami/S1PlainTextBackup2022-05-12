@@ -1851,3 +1851,14 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 
 只要不在彩虹下面干，连出歌都行是吧
 
+
+
+*****
+
+####  rzrbtk  
+##### 16663#       发表于 2022-7-31 12:02
+
+涩晴大制作！因为我没有情怀所以我觉得比マリン出航好
+
+[【original anime MV】I’m Your Treasure Box ＊あなたは マリンせんちょうを たからばこからみつけた。【hololive/宝鐘マリン】 - YouTube](https://www.youtube.com/watch?v=vV-5W7SFHDc)
+
