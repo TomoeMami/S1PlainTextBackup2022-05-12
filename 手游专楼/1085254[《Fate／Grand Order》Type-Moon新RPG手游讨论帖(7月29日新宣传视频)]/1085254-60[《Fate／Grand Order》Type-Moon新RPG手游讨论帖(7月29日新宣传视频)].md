@@ -12368,3 +12368,103 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 试了下带黑杯 1 10万 2 10万 3 14万 打不过极级训练本  （
 
+
+
+*****
+
+####  alucardcz  
+##### 89625#       发表于 2022-7-31 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882174&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 18:38</a>
+
+不行，这个公主试了下不好玩
+
+这是单核人的玩具，对队友输出0提升，跟暗狐狸在一起问题出在暗狐狸那儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我试了切面固有结界不继承  单核伤害不如同样打白字的c狗  1宝清不了训练本 （
+
+*****
+
+####  alucardcz  
+##### 89626#       发表于 2022-7-31 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快来人救救我 告诉我怎么回到过去  我就不应该抽什么2宝。  10连1宝收手等泳装不好吗
+
+*****
+
+####  exiaexa  
+##### 89627#       发表于 2022-7-31 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882204&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:40</a>
+
+我试了切面固有结界不继承  单核伤害不如同样打白字的c狗  1宝清不了训练本 （ ...</blockquote>
+千年城可以带走的吧，QP本T2还是能开3技能加NP的，但是公主头上没有标志
+
+估计是程序漏了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89628#       发表于 2022-7-31 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882230&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 18:43</a>
+
+千年城可以带走的吧，QP本T2还是能开3技能加NP的，但是公主头上没有标志
+
+估计是程序漏了？
+
+ ...</blockquote>
+背景都没了啊  我在去试一把
+
+*****
+
+####  alucardcz  
+##### 89629#       发表于 2022-7-31 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882230&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 18:43</a>
+
+千年城可以带走的吧，QP本T2还是能开3技能加NP的，但是公主头上没有标志
+
+估计是程序漏了？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦 我错了 有的
+
+*****
+
+####  kiralzb  
+##### 89630#       发表于 2022-7-31 18:48
+
+看到公主落地马上登陆抽卡了，单抽卷30多抽就出了，还有特殊召唤演出，登场介绍还会切换灵基，真排面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说送了好多石啊，我fgo 账户从未如此富有过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 89631#       发表于 2022-7-31 18:48
+
+又是保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年有问题啊
+
+*****
+
+####  天王寺凯伊姆  
+##### 89632#       发表于 2022-7-31 18:48
+
+千年城进下一关就没了啊，那个3技能就挺搞笑的
+
+*****
+
+####  承尘  
+##### 89633#       发表于 2022-7-31 18:48
+
+打体验本送的护符二宝了，yls my friend好评<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  在海岸  
+##### 89634#       发表于 2022-7-31 18:49
+
+被假图和傻刁群友骗了 没注意看以为是狂 没补狂福袋亏死 allin2宝发现是个玩具
+

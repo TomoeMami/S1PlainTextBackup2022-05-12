@@ -1769,3 +1769,91 @@ sp今年拿完二连冠就跑路了。
 
 现在局面扑朔迷离了，萨尼帕三连总决两连冠的话就是LL历史最强团了，不可能；裂啦今年赢了明年又赢两连冠踩前辈，也不太可能，第三季输了更烂，我能想到的就是山王写法裂啦拼断腿过了萨尼帕然后输给路人了。
 
+
+
+*****
+
+####  ads147147  
+##### 1680#       发表于 2022-7-31 18:44
+
+如果45是红蓝，6过渡，那逆天的78集就是ceo的了，那种事情真的不要啊，ceo变成恋恋什么的。
+
+ceo已经是最正常的角色了，真的不要让ceo崩了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  离心  
+##### 1681#       发表于 2022-7-31 18:45
+
+八成是这样了这期过了sp然后输决赛了，苦呀洗之后剑指第三年了
+
+*****
+
+####  ads147147  
+##### 1682#       发表于 2022-7-31 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882095&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-31 18:31</a>
+没空看生肉，这一集是个啥情况，观感咋样</blockquote>
+和前两集真的是卧龙凤雏。
+
+初三女人的歌舞真的不错，都快成唯一亮点了（ceo算另一个亮点）。
+
+不如看看水水烟花大会吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 1683#       发表于 2022-7-31 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882242&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-31 18:44</a>
+
+如果45是红蓝，6过渡，那逆天的78集就是ceo的了，那种事情真的不要啊，ceo变成恋恋什么的。
+
+ceo已经是最正 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么变，编个她家也有人嘎了？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1684#       发表于 2022-7-31 18:48
+
+cw曲还可以
+
+*****
+
+####  1096beam  
+##### 1685#       发表于 2022-7-31 18:49
+
+讲道理掌握虹团核心科技场地魔法实在过于犯规，liella的动画live不知道是不是为了好还原，真的是……很素
+
+*****
+
+####  ads147147  
+##### 1686#       发表于 2022-7-31 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882274&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-7-31 18:46</a>
+怎么变，编个她家也有人嘎了？</blockquote>
+这么喜欢钱，真的变成结丘蝙蝠侠也不奇怪啊
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 1687#       发表于 2022-7-31 18:50
+
+<img src="https://img.saraba1st.com/forum/202207/31/184955ie53o63j8gee9003.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F4BE9F96-2850-40A3-8527-01AB17EC9287.jpeg</strong> (474.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-31 18:49 上传
+
