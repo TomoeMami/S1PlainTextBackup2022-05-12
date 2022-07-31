@@ -1275,3 +1275,47 @@ QQ截图20220731170408.png
 鲤鱼赶不及吧，手头就刚发的3单且日语版还没出，新歌无了啊</blockquote>
 那个又不是三单，没有实体单曲，还是feat别人的
 
+
+
+*****
+
+####  cat1230  
+##### 1625#       发表于 2022-7-31 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881510&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-7-31 17:47</a>
+
+那个又不是三单，没有实体单曲，还是feat别人的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为日语版后出是因为要搞成3单
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1626#       发表于 2022-7-31 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望明年3月能解禁出声吧，不然到时候人凑不满又闷
+
+*****
+
+####  仟音一心  
+##### 1627#       发表于 2022-7-31 17:57
+
+<img src="https://img.saraba1st.com/forum/202207/31/175710tp8b0bw7eqzavzwl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DD9D7778-9ABC-4838-B37C-C99420B71672.jpeg</strong> (51.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-31 17:57 上传
+
+*****
+
+####  ads147147  
+##### 1628#       发表于 2022-7-31 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881592&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-7-31 17:52</a>
+希望明年3月能解禁出声吧，不然到时候人凑不满又闷</blockquote>
+你看这疫情，能坐满场次我感觉就是上天保佑了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

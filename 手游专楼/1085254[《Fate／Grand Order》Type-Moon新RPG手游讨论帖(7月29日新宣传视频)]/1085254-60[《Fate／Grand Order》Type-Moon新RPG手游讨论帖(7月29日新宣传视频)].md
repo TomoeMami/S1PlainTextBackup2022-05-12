@@ -11673,3 +11673,209 @@ NMD怎么又是12月，又要催命过圣诞是吧
 在泳装啊？你在说什么怪话</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">石头要被抽干了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89561#       发表于 2022-7-31 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881270&amp;ptid=1085254" target="_blank">廖化 发表于 2022-7-31 17:31</a>
+
+不懂月姬，求大佬科普下这个公主
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+吸血鬼/死徒的原型—真祖的最后一人，是月球UO（ulimate one，原初之一，最强个体）type-moon朱红之月在地球上所留的后代+备份，有朝一日待朱月取回力量在其身上复活后会变成地球UO type-earth。
+
+很久以前被圣堂教会的祭祀ROA欺骗吸了她的血，结果被ROA分走了力量，陷入吸血冲动后大肆屠杀其他真祖，而罗亚因为与公主产生联系获得了无限转生的力量。为了弥补过失，公主化费千年不断追杀ROA的宿主...有一天她遇到了一个有直死之魔眼的少年，然后...《月姬》的故事就开始了。
+
+性格方面就是天真而元气，有上位者的慈爱和非人类的残忍，愿意和善良的少年谈一段甜甜的恋爱，也可以因为殊途而相爱相杀。
+
+很久以前蘑菇在访谈里曾经说过月世界的战力前三名，ARC＞原初恶魔＞根源式。
+
+算是TM这个社团的处女作女主吧，老月厨的信仰和心头肉。
+
+...其实我也不算老月厨，上面的介绍有个大概印象就行...有兴趣可以去B站补补月姬R的录播...
+
+*****
+
+####  alucardcz  
+##### 89562#       发表于 2022-7-31 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881513&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 17:47</a>
+
+果然太嚣张被制裁了 抽光石头也没2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 萌新的120级大梦又寄了
+
+*****
+
+####  ネロ  
+##### 89563#       发表于 2022-7-31 17:51
+
+80连4宝，结果110连歪了个伽拉忒亚
+
+最后石头用完死活不出5宝了
+
+*****
+
+####  壳壳牛  
+##### 89564#       发表于 2022-7-31 17:52
+
+卧槽公主这牌面，抽卡演出拉满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89565#       发表于 2022-7-31 17:52
+
+谁来说说地球姬强度 气晕了  没看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 89566#       发表于 2022-7-31 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881577&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:52</a>
+
+谁来说说地球姬强度 气晕了  没看</blockquote>
+7CD的100自充红卡带特攻光炮，你还需要什么
+
+*****
+
+####  areklose  
+##### 89567#       发表于 2022-7-31 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881577&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:52</a>
+
+谁来说说地球姬强度 气晕了  没看</blockquote>
+100充能，配合W狐狸能3连发。宝具开了之后常驻30魔放。1技能加攻击 2技能加宝威。输出不错。其他附加不说了。只说输出充能
+
+*****
+
+####  Jamaisvu  
+##### 89568#       发表于 2022-7-31 17:54
+
+新卡面：
+
+地球姬：
+
+<img src="https://img.saraba1st.com/forum/202207/31/175338q738wh8bx07wr0d7.png" referrerpolicy="no-referrer">
+
+<strong>1659261111550.png</strong> (92.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175339xtbe3bkigzy5kkni.png" referrerpolicy="no-referrer">
+
+<strong>1659261113942.png</strong> (79.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175340utp6gezcgrz0ptgg.png" referrerpolicy="no-referrer">
+
+<strong>1659261116297.png</strong> (106.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175341k222kotjpl24zfjf.png" referrerpolicy="no-referrer">
+
+<strong>1659261118588.png</strong> (98.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+徐福姬：
+
+<img src="https://img.saraba1st.com/forum/202207/31/175342md8lfzj1dq8qobjm.png" referrerpolicy="no-referrer">
+
+<strong>1659261160727.png</strong> (109.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175342xobjjekhhi6b9gfo.png" referrerpolicy="no-referrer">
+
+<strong>1659261163035.png</strong> (92.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175343qzstd0ttic72i0tq.png" referrerpolicy="no-referrer">
+
+<strong>1659261165275.png</strong> (125.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/175344o31j6j6gji0ezvvi.png" referrerpolicy="no-referrer">
+
+<strong>1659261167948.png</strong> (106.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:53 上传
+
+*****
+
+####  qixinno2  
+##### 89569#       发表于 2022-7-31 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881577&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:52</a>
+
+谁来说说地球姬强度 气晕了  没看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具后强制换背景
+
+*****
+
+####  exiaexa  
+##### 89570#       发表于 2022-7-31 17:55
+
+450石2宝+徐福满宝+周年礼装满破
+
+收工收工，输出不够以后再补
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89571#       发表于 2022-7-31 17:55
+
+ 本帖最后由 Jamaisvu 于 2022-7-31 17:56 编辑 
+
+话说徐福二技能怎么是蓝卡buff<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过三技能这个强化解除耐性倒是可以给杀虞用一下。
+
+*****
+
+####  miro112233  
+##### 89572#       发表于 2022-7-31 17:57
+
+武内什么时候能收收那个B滤镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷助战的时候看到路人的泳装茄子满破差点把我手机吓甩出去
+
+*****
+
+####  Jamaisvu  
+##### 89573#       发表于 2022-7-31 18:00
+
+地球姬的宝具是场地变成千年城三回合（附带混沌特攻光炮和给活在当下的从者回NP），被动“原初的I”效果是在千年城中自身三色色卡都+30%，算是无法解除的强化了吧...
+
+不知道尼禄祭那个水贞狂信豹人的高难会不会覆盖地形？如果千年城设置为总置于最顶层就厉害了...
+
+*****
+
+####  里村紅葉  
+##### 89574#       发表于 2022-7-31 18:00
+
+150抽没出，留了600石头等夏活了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
