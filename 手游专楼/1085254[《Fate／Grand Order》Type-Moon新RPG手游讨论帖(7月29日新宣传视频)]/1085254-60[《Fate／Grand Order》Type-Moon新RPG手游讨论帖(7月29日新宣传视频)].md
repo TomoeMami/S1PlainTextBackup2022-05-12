@@ -12747,3 +12747,56 @@ https://bbs.nga.cn/read.php?tid=32882941&amp;_ff=540&amp;page=e#pid628981150Anch
 我特么第一次见到伤害较低瑕不掩瑜的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 89664#       发表于 2022-7-31 19:24
+
+挺好，想用的堆满资源还是挺好用的，也没强到必须要用的程度
+
+*****
+
+####  angelooo  
+##### 89665#       发表于 2022-7-31 19:24
+
+卧槽这测评是来害人的吧，胡说八道也要有个限度
+
+*****
+
+####  qixinno2  
+##### 89666#       发表于 2022-7-31 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882760&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:18</a>
+
+水武藏 请</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD不要说我没有的卡
+
+*****
+
+####  angelooo  
+##### 89667#       发表于 2022-7-31 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882752&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:18</a>
+
+话说QP本到底要怎么6加成冲浪</blockquote>
+我也是水武藏，如果你有花嫁甚至可以让自己的C呆下班
+
+*****
+
+####  alucardcz  
+##### 89668#       发表于 2022-7-31 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882885&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:26</a>
+
+TMD不要说我没有的卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我啊  tmd水武藏2宝了 谁要啊
+
+*****
+
+####  alucardcz  
+##### 89669#       发表于 2022-7-31 19:28
+
+什么。。。地球姬5宝3面14万？ 我带满破黑杯居然=满宝的伤害？
+

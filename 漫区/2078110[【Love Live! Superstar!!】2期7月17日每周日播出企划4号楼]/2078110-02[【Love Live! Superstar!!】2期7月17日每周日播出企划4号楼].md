@@ -2017,3 +2017,92 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 音乐科也是CJB 一年下来啥成绩没有</blockquote>
 或许人家音乐科忙着学业呢，才没心思整你这社团活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 1703#       发表于 2022-7-31 19:24
+
+紫毛这歌感觉有点硬凹高级感的意思，实际听起来并不是很抓人，效果和岚珠那首比起来差了点意思
+
+*****
+
+####  ads147147  
+##### 1704#       发表于 2022-7-31 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882728&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-31 19:16</a>
+优胜候补？什么CJB
+
+音乐科也是CJB 一年下来啥成绩没有</blockquote>
+不是完美贯彻这是什么都没有的学校嘛。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 1705#       发表于 2022-7-31 19:24
+
+香音发夹——恋应援色
+
+可可发箍——希奈子应援色
+
+堇发箍——香音应援色
+
+千砂都发饰——可可应援色
+
+恋发带——千砂都应援色
+
+希奈子发饰——堇应援色
+
+<img src="https://img.saraba1st.com/forum/202207/31/192439n9357kw0s08wx8wl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3D2E4DB0-6297-4E48-B325-7CB3D2D452E9.jpeg</strong> (254.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-7-31 19:24 上传
+
+*****
+
+####  老1.5  
+##### 1706#       发表于 2022-7-31 19:25
+
+没有大太阳那不是皆大欢喜呀？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知足常乐知足常乐
+
+*****
+
+####  ads147147  
+##### 1707#       发表于 2022-7-31 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882854&amp;ptid=2078110" target="_blank">qty 发表于 2022-7-31 19:24</a>
+紫毛这歌感觉有点硬凹高级感的意思，实际听起来并不是很抓人，效果和岚珠那首比起来差了点意思 ...</blockquote>
+初3的solo舞台要啥自行车。不过岚珠那个有舞台装置buff，效果会更好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 1708#       发表于 2022-7-31 19:27
+
+<img src="https://img.saraba1st.com/forum/202207/31/192714r060ox3x8op880wx.jpg" referrerpolicy="no-referrer">
+
+<strong>116863094b36acaf1347a52039d98d1003e99cca.jpg</strong> (108.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202207/31/192707gkiy4itndknt47yt.jpg" referrerpolicy="no-referrer">
+
+<strong>58854fafa40f4bfb4365ac88464f78f0f6361838.jpg</strong> (249.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 19:27 上传
+
+虽然但是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
