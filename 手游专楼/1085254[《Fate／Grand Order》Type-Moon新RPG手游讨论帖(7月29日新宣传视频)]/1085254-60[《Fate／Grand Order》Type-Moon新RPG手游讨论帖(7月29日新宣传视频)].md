@@ -14165,3 +14165,29 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 —— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89802#       发表于 2022-8-1 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连红尼禄ばいす都来看了
+
+*****
+
+####  黑上シグマ  
+##### 89803#       发表于 2022-8-1 01:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">98发4宝了！！！
+
+*****
+
+####  花枝鱿鱼面  
+##### 89804#       发表于 2022-8-1 01:08
+
+四星点名状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+尾田居然之前都没抽到过白猫啊
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
