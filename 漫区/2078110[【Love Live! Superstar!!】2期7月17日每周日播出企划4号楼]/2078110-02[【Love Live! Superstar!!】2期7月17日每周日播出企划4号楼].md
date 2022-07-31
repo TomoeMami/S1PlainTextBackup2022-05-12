@@ -2234,3 +2234,49 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 谁让恋连个能绑的角色都没有  也不知道这季演完能说上几句台词  
 
+
+
+*****
+
+####  竹筷  
+##### 1724#       发表于 2022-7-31 19:51
+
+没有大太阳，没有复刻代代木结婚，可香还能有肢体互动。我塔马直接开香槟庆祝。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 1725#       发表于 2022-7-31 19:52
+
+<blockquote>ads147147 发表于 2022-7-31 19:43
+第三集是可香残党最后的哀嚎，后面反正第一季也没有可以鞭尸可香的地方了，或许大家的氛围会好点
+
+ ...</blockquote>
+对比后面的剧情，可香有个星三集高光已经挺不错了，香千这集才有点交流，可恋存在于歌里，可堇情况也不好。
+
+*****
+
+####  csolfans  
+##### 1726#       发表于 2022-7-31 19:53
+
+夏美这个角色或许比想象中正常多
+
+*****
+
+####  adw667  
+##### 1727#       发表于 2022-7-31 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882198&amp;ptid=2078110" target="_blank">凡人 发表于 2022-7-31 18:40</a>
+
+现在局面扑朔迷离了，萨尼帕三连总决两连冠的话就是LL历史最强团了，不可能；裂啦今年赢了明年又赢两连冠踩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贷个款，到时候是天降神兽男吊打sp和星团
+
+*****
+
+####  JustW_3  
+##### 1728#       发表于 2022-7-31 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">忙得没看生放
+

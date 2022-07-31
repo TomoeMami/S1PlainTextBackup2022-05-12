@@ -12922,3 +12922,88 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 看了下周年日替池子有水着紫式部，不过太多没感的，还是抽今年的泳装吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨呀 能还我个500石吗 我抽我抽
 
+
+
+*****
+
+####  angelooo  
+##### 89682#       发表于 2022-7-31 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883142&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:42</a>
+
+有一说一 卡面负分水平  看看3破</blockquote>
+我切一破了，短发好看，但模组这姿势太别扭了艹
+
+*****
+
+####  KOBI  
+##### 89683#       发表于 2022-7-31 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">星之气息的部分涉及了亚丽。
+
+但钢陆那种行星死亡后诞生的精灵到底算啥啊。。。玩灵骨的丢人玩意吗（
+
+*****
+
+####  alucardcz  
+##### 89684#       发表于 2022-7-31 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883278&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 19:50</a>
+
+我切一破了，短发好看，但模组这姿势太别扭了艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想用0破的，，，但是这红的，，，眼睛都要瞎了 等会上个图
+
+*****
+
+####  alucardcz  
+##### 89685#       发表于 2022-7-31 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883278&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 19:50</a>
+
+我切一破了，短发好看，但模组这姿势太别扭了艹</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202207/31/195352ns17jwcvjcjskz0w.png" referrerpolicy="no-referrer">
+
+<strong>33334444.png</strong> (47.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 19:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这0破看着难受吗  有点水平啊 
+
+*****
+
+####  qixinno2  
+##### 89686#       发表于 2022-7-31 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能回档到我刚抽完第一发十连的时候
+
+*****
+
+####  alucardcz  
+##### 89687#       发表于 2022-7-31 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883340&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:54</a>
+
+能不能回档到我刚抽完第一发十连的时候</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了 我也想回去  md 应该先试一下才去冲2宝。。现在突出一个后悔
+
+*****
+
+####  eilot  
+##### 89688#       发表于 2022-7-31 19:56
+
+11張符中了月姬
+
+徐福就看不到
+
+結束這回合
+
+*****
+
+####  alucardcz  
+##### 89689#       发表于 2022-7-31 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天真是倒霉的一天 隔壁水星井了 隔壁苍井又歪了 这里700石1宝 福袋3中2 居然还寄了。。
+

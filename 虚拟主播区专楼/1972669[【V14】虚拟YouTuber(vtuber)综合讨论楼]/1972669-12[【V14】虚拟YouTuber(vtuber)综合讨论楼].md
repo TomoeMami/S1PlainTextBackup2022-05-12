@@ -1959,3 +1959,22 @@ mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/fa
 中间去吃饭了，不知道香草哥这队bind 0%胜率破了没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破了，最后一局掀了wokka队
 
+
+
+*****
+
+####  free  
+##### 16673#       发表于 2022-7-31 19:54
+
+[https://twitter.com/HoshinoMea_info/status/1553681878263255041](https://twitter.com/HoshinoMea_info/status/1553681878263255041)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202207/31/195445k9d2t42ci92d2mgf.jpg" referrerpolicy="no-referrer">
+
+<strong>mair.jpg</strong> (159.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 19:54 上传
+
