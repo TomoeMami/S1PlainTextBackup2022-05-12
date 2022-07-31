@@ -14191,3 +14191,36 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 —— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89805#       发表于 2022-8-1 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">102发11连搞定了
+
+*****
+
+####  黑上シグマ  
+##### 89806#       发表于 2022-8-1 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">102发11连，光头的战斗结束了
+
+*****
+
+####  花枝鱿鱼面  
+##### 89807#       发表于 2022-8-1 01:14
+
+出狱了
+一尾田=102发十连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gpx234mqx  
+##### 89808#       发表于 2022-8-1 01:18
+
+攻击力的确残疾，不带黑圣杯，双狐buff都打不死第三面的
+
