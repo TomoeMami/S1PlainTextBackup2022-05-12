@@ -13650,3 +13650,25 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 满级黑杯哪怕扣掉活动礼装的atk也 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚去隔壁开战了  1面4万2面6万居然说够用 饼干本都要翻
 
+
+
+*****
+
+####  alucardcz  
+##### 89746#       发表于 2022-7-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885454&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 21:57</a>
+
+满破黑杯2400攻击80宝威 怕是三宝都没这提升大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在很后悔把600多石丢去抽2宝而且还无事发生 怎么办 有后悔药吗
+
+*****
+
+####  alucardcz  
+##### 89747#       发表于 2022-7-31 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885454&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 21:57</a>
+
+满破黑杯2400攻击80宝威 怕是三宝都没这提升大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也是有满级满破黑杯的人了（
+
