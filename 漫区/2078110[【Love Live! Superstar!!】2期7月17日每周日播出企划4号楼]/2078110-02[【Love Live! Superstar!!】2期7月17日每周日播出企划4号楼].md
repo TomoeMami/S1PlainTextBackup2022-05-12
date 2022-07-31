@@ -992,3 +992,25 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 台上大太阳，台下可可为香樱做嫁衣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1598#       发表于 2022-7-31 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56876544&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-31 09:51</a>
+
+台上大太阳，台下可可为香樱做嫁衣</blockquote>
+这边建议再进一步，来个小星星变调或者重填词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 1599#       发表于 2022-7-31 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56876544&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-31 09:51</a>
+
+台上大太阳，台下可可为香樱做嫁衣</blockquote>
+临行密密缝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
