@@ -1987,3 +1987,28 @@ mother队wokka队拿下啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 蓝莓这是自己成立了个经纪公司吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在要把演出经纪权收回来？
 
+
+
+*****
+
+####  Ketestrait  
+##### 16675#       发表于 2022-7-31 22:20
+
+皇女第二年夏县大会三回战，对手D，落后全场，9回2出满垒追至3:4最后功亏一篑翻车<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16676#       发表于 2022-7-31 22:27
+
+lize感觉太迷信前辈了，打又打不出去，游击也还得练<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+堆这么多心力，毕业看能不能职业了回来报恩消红特
+
+*****
+
+####  Junchoon  
+##### 16677#       发表于 2022-7-31 22:29
+
+跌丝袜，一周生化复刻......
+

@@ -13672,3 +13672,55 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 满破黑杯2400攻击80宝威 怕是三宝都没这提升大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也是有满级满破黑杯的人了（
 
+
+
+*****
+
+####  シャル  
+##### 89748#       发表于 2022-7-31 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885239&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 21:46</a>
+
+话说 1宝带满破满级黑杯 对比 2宝10几级的活动礼装 哪个伤害高</blockquote>
+必须120级这攻击才能看看
+
+*****
+
+####  zore  
+##### 89749#       发表于 2022-7-31 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NP100还行
+
+我赖光的天鼓呢
+
+*****
+
+####  yzj134100  
+##### 89750#       发表于 2022-7-31 22:23
+
+400石时2宝，送了800石结果啥都没，泳装可以pass了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克图格亚  
+##### 89751#       发表于 2022-7-31 22:24
+
+满破宝石双杀狐能三连，黑杯怎么三连的？减cd衣服？
+
+*****
+
+####  gulant  
+##### 89752#       发表于 2022-7-31 22:25
+
+200多石头两个新的都齐了，收集用，不追宝，剩下的700多石头等梅莉
+
+*****
+
+####  alucardcz  
+##### 89753#       发表于 2022-7-31 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885862&amp;ptid=1085254" target="_blank">克图格亚 发表于 2022-7-31 22:24</a>
+
+满破宝石双杀狐能三连，黑杯怎么三连的？减cd衣服？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不是已经自问自答了
+
