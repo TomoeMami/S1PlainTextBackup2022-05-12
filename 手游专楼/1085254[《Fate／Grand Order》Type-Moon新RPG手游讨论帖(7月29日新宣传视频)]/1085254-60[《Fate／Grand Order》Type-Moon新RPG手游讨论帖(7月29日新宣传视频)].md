@@ -10211,3 +10211,29 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 等一个周年公布以后主线全语音(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还嫌这破游戏体积不够大是吧
 
+
+
+*****
+
+####  alucardcz  
+##### 89401#       发表于 2022-7-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879618&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-7-31 14:53</a>
+
+你还嫌这破游戏体积不够大是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以学cy那种下载模式啊（
+
+*****
+
+####  eyeego  
+##### 89402#       发表于 2022-7-31 15:05
+
+说起来宝具全屏这是第几年了 还没有全部改完吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89403#       发表于 2022-7-31 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生放正菜一般是几点？
+
