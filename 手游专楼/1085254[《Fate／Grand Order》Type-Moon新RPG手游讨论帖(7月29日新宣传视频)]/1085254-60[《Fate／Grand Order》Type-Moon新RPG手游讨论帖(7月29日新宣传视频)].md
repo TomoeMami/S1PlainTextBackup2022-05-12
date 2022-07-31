@@ -14224,3 +14224,13 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 攻击力的确残疾，不带黑圣杯，双狐buff都打不死第三面的
 
+
+
+*****
+
+####  希望之花  
+##### 89809#       发表于 2022-8-1 01:34
+
+福袋选了一个雷都没有的EXTRA，结果NEW了奥博隆，血赚
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地球姬没出，歪了个高达源为朝，也不亏
+

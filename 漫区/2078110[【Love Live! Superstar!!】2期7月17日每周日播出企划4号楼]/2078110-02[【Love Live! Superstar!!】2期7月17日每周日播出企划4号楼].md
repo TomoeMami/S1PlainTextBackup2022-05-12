@@ -2676,3 +2676,12 @@ Liella要多打拉扯，拉扯知道吗？
 
 可可到底要不爽民警到什么时候，如果网红后面是为了出名之类的理由入队她不怼网红还光接着怼堇我是get不到这毫无成长的cp是所谓的欢喜冤家<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1765#       发表于 2022-8-1 01:35
+
+我现在觉得当时一季5集后立马转可堇，公布加人后立马转单推，看到海报立马决定不追动画只听歌的各种决定都太对了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
