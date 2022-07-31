@@ -12224,3 +12224,147 @@ NMD怎么又是12月，又要催命过圣诞是吧
 ……这满破图的确有点绷不住，让我冷静暂时没有下池子冲动了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满破不吊打3破？ 你看看这强化界面丑上天了
 
+
+
+*****
+
+####  alucardcz  
+##### 89610#       发表于 2022-7-31 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882048&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 18:28</a>
+
+公主这个三技能，群充有30，多核人狂喜
+
+现在压力来到暗狐这边，得拉宝具等级打第二面了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我测试了下 1宝双狐白字6万多。单核选手 寄 
+
+
+
+*****
+
+####  空气蛹  
+##### 89611#       发表于 2022-7-31 18:30
+
+还是氪金石头有羁绊，充了一单二宝跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 89612#       发表于 2022-7-31 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882076&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:30</a>
+
+我测试了下 1宝双狐白字6万多。单核选手 寄</blockquote>
+无所谓，多核她只配打第一面
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89613#       发表于 2022-7-31 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882076&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:30</a>
+
+我测试了下 1宝双狐白字6万多。单核选手 寄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">没石头了 心痛
+
+*****
+
+####  alucardcz  
+##### 89614#       发表于 2022-7-31 18:32
+
+翻页
+
+*****
+
+####  阿提拉  
+##### 89615#       发表于 2022-7-31 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送的石头抽到四宝，倒数第二张护符五宝，这个周年赚了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 89616#       发表于 2022-7-31 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们送的石头都能4宝5宝 萌新我7xx石1宝而且没有歪一个5星
+
+*****
+
+####  承尘  
+##### 89617#       发表于 2022-7-31 18:33
+
+300石一宝，四星全明星<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qixinno2  
+##### 89618#       发表于 2022-7-31 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">目前我和萌新最非么
+
+*****
+
+####  承尘  
+##### 89619#       发表于 2022-7-31 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882119&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:33</a>
+为什么你们送的石头都能4宝5宝 萌新我7xx石1宝而且没有歪一个5星</blockquote>
+啊对了我也福袋水武藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑上シグマ  
+##### 89620#       发表于 2022-7-31 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就抽1宝不抽了，剩的石等泳装
+
+*****
+
+####  qixinno2  
+##### 89621#       发表于 2022-7-31 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">有没有时间机器 我想打一小时前的我一顿
+
+*****
+
+####  exiaexa  
+##### 89622#       发表于 2022-7-31 18:38
+
+不行，这个公主试了下不好玩
+
+这是单核人的玩具，对队友输出0提升，跟暗狐狸在一起问题出在暗狐狸那儿
+
+好处是解放大脑随便组队都能开炮
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89623#       发表于 2022-7-31 18:39
+
+<blockquote>rollingusagi 发表于 2022-7-31 18:23
+可是听语音这就是那个喜欢着志贵的公主
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+“喜欢有直死之魔眼的家伙”，嗯，不搞ML可能是为了照顾老月厨心情？
+
+不过我看了下杀式的语音，好像没提黑桐干也？但是提了下橙子...
+
+*****
+
+####  alucardcz  
+##### 89624#       发表于 2022-7-31 18:39
+
+试了下带黑杯 1 10万 2 10万 3 14万 打不过极级训练本  （
+

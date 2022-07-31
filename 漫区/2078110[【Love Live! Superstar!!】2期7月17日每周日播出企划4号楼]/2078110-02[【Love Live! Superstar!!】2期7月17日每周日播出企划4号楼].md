@@ -1697,3 +1697,75 @@ sp今年拿完二连冠就跑路了。
 
 <img src="https://img.saraba1st.com/forum/202207/31/183007vxa2txggl1mm4w2m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 1672#       发表于 2022-7-31 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882031&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-31 18:27</a>
+
+感觉还对可香有些许期待的我最小丑。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是双人c大太阳不错了
+
+*****
+
+####  ViyViy  
+##### 1673#       发表于 2022-7-31 18:31
+
+有没有可能liella真的是无冠团，冲击波<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然这个劲敌的年纪设定应该是不可能无冠的
+
+*****
+
+####  aoaoaodedede  
+##### 1674#       发表于 2022-7-31 18:31
+
+没空看生肉，这一集是个啥情况，观感咋样
+
+*****
+
+####  水莲寺流歌  
+##### 1675#       发表于 2022-7-31 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">初中生天神下凡一打六
+
+*****
+
+####  离心  
+##### 1676#       发表于 2022-7-31 18:33
+
+<blockquote>aoaoaodedede 发表于 2022-7-31 18:31
+没空看生肉，这一集是个啥情况，观感咋样</blockquote>
+我的观感是和前二集没啥子区别，新人的歌到还不错，最后的lielia之歌有惊喜
+
+*****
+
+####  aoaoaodedede  
+##### 1677#       发表于 2022-7-31 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882101&amp;ptid=2078110" target="_blank">水莲寺流歌 发表于 2022-7-31 18:32</a>
+初中生天神下凡一打六</blockquote>
+啥地方的人卧虎藏龙，搁这儿整降维打击了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 1678#       发表于 2022-7-31 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882095&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-31 18:31</a>
+
+没空看生肉，这一集是个啥情况，观感咋样</blockquote>
+我看着是较为正常的一集
+
+*****
+
+####  凡人  
+##### 1679#       发表于 2022-7-31 18:40
+
+现在局面扑朔迷离了，萨尼帕三连总决两连冠的话就是LL历史最强团了，不可能；裂啦今年赢了明年又赢两连冠踩前辈，也不太可能，第三季输了更烂，我能想到的就是山王写法裂啦拼断腿过了萨尼帕然后输给路人了。
+
