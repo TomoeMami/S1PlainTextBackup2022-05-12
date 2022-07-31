@@ -13636,3 +13636,17 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">满破黑杯2400攻击80宝威 怕是三宝都没这提升大
 
+
+
+*****
+
+####  alucardcz  
+##### 89745#       发表于 2022-7-31 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885388&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 21:53</a>
+
+肯定是黑杯啊，2宝提升一般默认30%左右，哪怕算上特攻再提升25%也就1.5
+
+满级黑杯哪怕扣掉活动礼装的atk也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚去隔壁开战了  1面4万2面6万居然说够用 饼干本都要翻
+
