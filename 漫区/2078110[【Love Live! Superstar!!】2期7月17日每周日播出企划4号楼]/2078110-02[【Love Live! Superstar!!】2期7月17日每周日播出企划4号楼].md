@@ -2707,3 +2707,16 @@ Liella要多打拉扯，拉扯知道吗？
 
 家里没钱只能当youtuber挣钱养家，被鸽了韭菜还得打工挣钱，为了火加入liella被可可爆批，结果最后发现有苦衷众人和解让CEO站C其他8人backdancer<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Erikas  
+##### 1768#       发表于 2022-8-1 07:26
+
+ 本帖最后由 Erikas 于 2022-8-1 07:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在纠结没事，别到最后突然说什么不参加lovelive也挺好的就行
+
+话说高中生自己开不了fx口座的，ceo这设定很受限啊
+
