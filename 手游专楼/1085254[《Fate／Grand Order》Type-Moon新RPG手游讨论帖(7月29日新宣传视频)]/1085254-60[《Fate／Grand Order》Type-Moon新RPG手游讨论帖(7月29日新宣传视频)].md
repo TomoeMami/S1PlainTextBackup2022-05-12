@@ -13054,3 +13054,56 @@ nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有在虚空造本了  
 
+
+
+*****
+
+####  eden_hazard  
+##### 89695#       发表于 2022-7-31 20:30
+
+我大号送了543石第26个11连才出货，第27个出了二宝，福袋摩根+3
+
+小号送的459石头和以前之后各种凑的石头护符石片加一起全沉了
+
+*****
+
+####  Jamaisvu  
+##### 89696#       发表于 2022-7-31 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56883278&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 19:50</a>
+
+我切一破了，短发好看，但模组这姿势太别扭了艹</blockquote>
+初始和三破都是混沌善，应该更接近星球意志的那一面。
+
+一破短发是中立善，设定上是月姬R某个路线三年后的公主，是偏向天真烂漫吸血公主的一面。
+
+我也喜欢短发造型，看着舒服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+一破太红了，和梅林满破一个滤镜照的相吗...三破看着跟摩根或C呆似的，长礼裙拿星之内海的长武器...
+
+*****
+
+####  alucardcz  
+##### 89697#       发表于 2022-7-31 20:34
+
+强化本。。居然只有2个5星。。。。。。。。。没意思
+
+这周年庆典结束了（
+
+*****
+
+####  qixinno2  
+##### 89698#       发表于 2022-7-31 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">非洲人没有那俩五星
+
+*****
+
+####  alucardcz  
+##### 89699#       发表于 2022-7-31 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884064&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 20:35</a>
+
+非洲人没有那俩五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还能没剑？
+
