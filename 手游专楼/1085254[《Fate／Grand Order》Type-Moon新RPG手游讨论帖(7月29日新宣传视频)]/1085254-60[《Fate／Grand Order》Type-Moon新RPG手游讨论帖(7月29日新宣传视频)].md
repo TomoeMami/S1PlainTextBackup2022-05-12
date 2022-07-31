@@ -13755,3 +13755,92 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 
 都开始扯淡红宝具仇凛了，哪个世界线的fgo啊……
 
+
+
+*****
+
+####  シャル  
+##### 89757#       发表于 2022-7-31 22:40
+
+地球姫竟然和虞美人没对话<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+看来果然不是一条线上的
+
+*****
+
+####  黑上シグマ  
+##### 89758#       发表于 2022-7-31 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次强化本对象全员里唯独差红阎魔、阿福、杂碎双子和泳装梅芙这四个剑，别五星四星强化本好死不死就这几个……
+
+*****
+
+####  alucardcz  
+##### 89759#       发表于 2022-7-31 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885946&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 22:33</a>
+
+放弃吧
+
+已经有人拿着把太公道满暗狐都踩了一遍了
+
+道中伤害不足对他们大概不算个啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚还看到个公主+双奥  说有活动50礼装就能3连  第3面伤害高达22万
+
+我寻思。第1第2面难道直接跳过了
+
+*****
+
+####  khxooo  
+##### 89760#       发表于 2022-7-31 22:42
+
+福袋武藏，看来摩根和我真的八字不合，无论多少次都没能将她请来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  exiaexa  
+##### 89761#       发表于 2022-7-31 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886024&amp;ptid=1085254" target="_blank">シャル 发表于 2022-7-31 22:40</a>
+地球姫竟然和虞美人没对话
+
+看来果然不是一条线上的</blockquote>
+阿菌:搞笑角色你不要过来给亲戚丢人啊啊啊啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89762#       发表于 2022-7-31 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886051&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-31 22:42</a>
+
+福袋武藏，看来摩根和我真的八字不合，无论多少次都没能将她请来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本楼你已经是第3个还是第4福袋武藏的了。突出一个不想要的就偏偏来
+
+*****
+
+####  シャル  
+##### 89763#       发表于 2022-7-31 22:45
+
+福袋想要齐哥，掉了嫁王new，也不错啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 89764#       发表于 2022-7-31 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886051&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-31 22:42</a>
+
+福袋武藏，看来摩根和我真的八字不合，无论多少次都没能将她请来 ...</blockquote>
+三分之一都没中啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克图格亚  
+##### 89765#       发表于 2022-7-31 22:49
+
+福袋狂2武藏加一，另两个都是new可惜不中。一气之下抽个十连公主加一成三宝了，靠，明天再抽个十连有种给我四宝五宝。
+
