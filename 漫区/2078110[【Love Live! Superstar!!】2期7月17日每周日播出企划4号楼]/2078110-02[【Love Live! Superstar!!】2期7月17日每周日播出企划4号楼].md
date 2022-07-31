@@ -1918,3 +1918,55 @@ cw曲还可以
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882326&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-7-31 18:50</a></blockquote>
 第三集也要在可香人的坟头跳舞吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1694#       发表于 2022-7-31 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公园那段贴的还是可可不是土妹子，你们可香党就偷着乐吧
+
+*****
+
+####  ads147147  
+##### 1695#       发表于 2022-7-31 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882459&amp;ptid=2078110" target="_blank">starring 发表于 2022-7-31 18:58</a>
+第三集也要在可香人的坟头跳舞吗</blockquote>
+香樱可是双向奔赴，可香这种香音看镜头，可可贴上去的怎么配和香樱比<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Piano-Forest  
+##### 1696#       发表于 2022-7-31 19:08
+
+💫CD情報💫
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+第1話挿入歌/第3話挿入歌
+
+「Welcome to 僕らのセカイ / Go!! リスタート」
+
+8/17発売✨
+
+第3話盤ジャケ他公開🎉
+<img src="https://p.sda1.dev/6/4c1ad6956b4f25bb3fe1610dc6d388e7/20220731_190750.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/e6f6abf4bab3e4c4741fbe4d9584a720/20220731_190753.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/f836b3b11e82f5eebeef8ca0e7504738/20220731_190758.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1697#       发表于 2022-7-31 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882528&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-7-31 19:02</a>
+
+香樱可是双向奔赴，可香这种香音看镜头，可可贴上去的怎么配和香樱比
+
+—— 来自 Xiaomi 2106118C ...</blockquote>
+真要说的话，可香一期动画第三集后就变味了，可可单向的激推香音就差没魔怔了
+

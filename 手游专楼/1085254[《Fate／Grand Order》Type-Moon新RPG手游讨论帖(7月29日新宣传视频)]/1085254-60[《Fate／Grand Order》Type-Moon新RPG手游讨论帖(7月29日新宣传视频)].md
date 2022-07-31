@@ -12522,3 +12522,110 @@ NMD怎么又是12月，又要催命过圣诞是吧
 
 这满破界面给3个石头的框直接把画面遮了个大半<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这UI尼玛就不能自己看一下
 
+
+
+*****
+
+####  在海岸  
+##### 89641#       发表于 2022-7-31 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882353&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 18:52</a>
+
+1宝黑杯第3面14万 你算算5宝多少  能有24万就不是玩具了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有个SB转了个假图我真以为是狂，540-&gt;0钻没升宝具……
+
+*****
+
+####  alucardcz  
+##### 89642#       发表于 2022-7-31 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种测试之后我感觉今天晚上3点不用闹钟起来了。。这2宝完全没用啊。。（好气 
+
+*****
+
+####  alucardcz  
+##### 89643#       发表于 2022-7-31 19:00
+
+翻页
+
+*****
+
+####  在海岸  
+##### 89644#       发表于 2022-7-31 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">以后还是先进楼看一眼好了，急着打xb3信了傻刁群友的邪，被国服云玩家坑惨了
+
+*****
+
+####  qixinno2  
+##### 89645#       发表于 2022-7-31 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这时候收手多好啊 现在只剩1石了
+
+*****
+
+####  alucardcz  
+##### 89646#       发表于 2022-7-31 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882431&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-7-31 18:56</a>
+
+有个SB转了个假图我真以为是狂，540-&gt;0钻没升宝具……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小意思 我7xx--&gt; 18  也没提升宝具等级
+
+*****
+
+####  KOBI  
+##### 89647#       发表于 2022-7-31 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">没事，这是技术性调整，还有套皮人（？）和泳装CBA
+
+拐到位了一定会支楞起来的！
+
+*****
+
+####  風卷豹  
+##### 89648#       发表于 2022-7-31 19:05
+
+两个十连2宝上头了，用光几百个石头也没出第三个。拿去种火本试了一下，呃呃呃……家人们，还是看看远处的阿瓦隆女士吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  yyzcacxg  
+##### 89649#       发表于 2022-7-31 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们抽卡前都不去试用本打一打的么？好歹给一张呼符呢
+
+*****
+
+####  exiaexa  
+##### 89650#       发表于 2022-7-31 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882565&amp;ptid=1085254" target="_blank">yyzcacxg 发表于 2022-7-31 19:05</a>
+
+你们抽卡前都不去试用本打一打的么？好歹给一张呼符呢</blockquote>
+可是，打不打都要抽2宝啊，有什么区别
+
+只不过影响后续补不补
+
+等到手了谁还用试玩测试
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 89651#       发表于 2022-7-31 19:08
+
+公主的场地buff是标在右上的
+
+*****
+
+####  霧谷藤乃  
+##### 89652#       发表于 2022-7-31 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882520&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:02</a>
+
+这时候收手多好啊 现在只剩1石了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿叶体谅你们，还留了点石头之后才发
+
