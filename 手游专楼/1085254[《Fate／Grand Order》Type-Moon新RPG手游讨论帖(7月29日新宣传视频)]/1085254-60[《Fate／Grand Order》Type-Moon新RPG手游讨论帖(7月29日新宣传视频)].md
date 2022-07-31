@@ -13216,3 +13216,36 @@ DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
 反正都放弃治疗了那带上鹤小姐一起玩不更好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 89710#       发表于 2022-7-31 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884414&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 20:59</a>
+
+你没搞懂问题在哪儿
+
+为了解决多核下公主队友伤害不足，用上了换人，都上换人了那用谁不是用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但鹤小姐就30宝威实在不够看。
+
+*****
+
+####  alucardcz  
+##### 89711#       发表于 2022-7-31 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884325&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 20:54</a>
+
+太拼了
+
+现在吹点是公主+狂那+奥伯龙+沙狐无视阵容三连</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后吹的人没一个人日服玩家？
+
+*****
+
+####  alucardcz  
+##### 89712#       发表于 2022-7-31 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁的厨力党多少沾点那什么  没强度也要吹成顶尖 各种虚空造本
+
