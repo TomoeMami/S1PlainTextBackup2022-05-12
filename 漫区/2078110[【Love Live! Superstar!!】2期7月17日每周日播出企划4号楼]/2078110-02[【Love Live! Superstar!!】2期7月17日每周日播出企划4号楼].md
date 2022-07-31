@@ -967,3 +967,19 @@ JP现在这疫情下发烧基本就是感染新冠</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么期待，至少插入曲要好听点，二期到现在就一个cw曲能听
 
+
+
+*****
+
+####  ViyViy  
+##### 1595#       发表于 2022-7-31 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">它要真的找什么理由让其它人干看着然后双人舞我就佩服它一秒钟
+
+*****
+
+####  lj205  
+##### 1596#       发表于 2022-7-31 09:24
+
+当然是大太阳感天动地
+
