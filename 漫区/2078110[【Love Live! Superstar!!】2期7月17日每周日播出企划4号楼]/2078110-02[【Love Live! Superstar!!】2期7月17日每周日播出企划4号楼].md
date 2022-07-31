@@ -2696,3 +2696,14 @@ Liella要多打拉扯，拉扯知道吗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这季动画目前个人就对夏美的观感好点   但想到她后面的剧情多半还是那一套就越追越没劲 点名批评香哥哥 都第二季了居然还在那做 “我没自信了 哎我振作起来了“的仰卧起坐 真就要成长第四五六次啊
 
+
+
+*****
+
+####  dd950728  
+##### 1767#       发表于 2022-8-1 04:24
+
+设定里有说过CEO家境吗？不会复刻nicoX堇吧
+
+家里没钱只能当youtuber挣钱养家，被鸽了韭菜还得打工挣钱，为了火加入liella被可可爆批，结果最后发现有苦衷众人和解让CEO站C其他8人backdancer<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

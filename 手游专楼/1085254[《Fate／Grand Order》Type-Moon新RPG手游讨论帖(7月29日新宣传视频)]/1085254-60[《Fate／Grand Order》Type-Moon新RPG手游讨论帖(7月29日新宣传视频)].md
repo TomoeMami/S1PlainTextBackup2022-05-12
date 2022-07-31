@@ -14234,3 +14234,42 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 福袋选了一个雷都没有的EXTRA，结果NEW了奥博隆，血赚
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地球姬没出，歪了个高达源为朝，也不亏
 
+
+
+*****
+
+####  DARKGRAY  
+##### 89810#       发表于 2022-8-1 02:11
+
+看见卡面没变疑惑了一瞬间，想起是大象，悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  colamitsuyo  
+##### 89811#       发表于 2022-8-1 02:54
+
+周年新增的绿卡选卡特效会改变每张指令卡上暴击星数字的颜色，看着眼睛好难受<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネロ  
+##### 89812#       发表于 2022-8-1 03:18
+
+ 本帖最后由 ネロ 于 2022-8-1 03:31 编辑 
+
+用凌晨翻页送的100石成功捞出了最后一张
+
+这就是公主大人对月姬遗老的怜悯吗
+
+好在是纯靠周年各种送的800多石成功白嫖的满宝
+
+不然最后一宝卡了将近600石真要吐血，特别是歪了手办娘的时候
+
+<img src="https://img.saraba1st.com/forum/202208/01/031711aws5w388vosh3g8s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-08-01-03-09-20-238_com.aniplex.fategrandorder.jpg</strong> (320.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 03:17 上传
+
