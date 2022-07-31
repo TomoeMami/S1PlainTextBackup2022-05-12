@@ -12800,3 +12800,67 @@ TMD不要说我没有的卡</blockquote>
 
 什么。。。地球姬5宝3面14万？ 我带满破黑杯居然=满宝的伤害？
 
+
+
+*****
+
+####  sosgame67  
+##### 89670#       发表于 2022-7-31 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882862&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 19:24</a>
+
+卧槽这测评是来害人的吧，胡说八道也要有个限度</blockquote>
+nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个评测风向符合nga脑补有人捧场<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大部分评测都突出一个离谱
+
+
+
+*****
+
+####  alucardcz  
+##### 89671#       发表于 2022-7-31 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882984&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-7-31 19:32</a>
+
+nga那评测？这兄台一直云发言扯淡评测惯了，也就偶尔几个评测风向符合nga脑补有人捧场大部分评测 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 这是名人？
+
+*****
+
+####  qixinno2  
+##### 89672#       发表于 2022-7-31 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882888&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-7-31 19:26</a>
+
+我也是水武藏，如果你有花嫁甚至可以让自己的C呆下班</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有
+
+*****
+
+####  qixinno2  
+##### 89673#       发表于 2022-7-31 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882908&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:27</a>
+
+萌新我啊  tmd水武藏2宝了 谁要啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你忘了之前那武藏冲浪的时光了么
+
+*****
+
+####  alucardcz  
+##### 89674#       发表于 2022-7-31 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882995&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 19:33</a>
+
+你忘了之前那武藏冲浪的时光了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不记得了 蓝卡是什么能吃吗
+
+*****
+
+####  sosgame67  
+##### 89675#       发表于 2022-7-31 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882986&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 19:32</a>
+
+什么 这是名人？</blockquote>
+你看一下他的往期评测就知道了啊，各种计算器脑补发言<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

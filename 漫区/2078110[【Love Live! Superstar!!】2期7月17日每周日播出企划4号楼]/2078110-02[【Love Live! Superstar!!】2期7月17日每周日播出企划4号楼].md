@@ -2106,3 +2106,83 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 虽然但是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1709#       发表于 2022-7-31 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882903&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-7-31 19:27</a>
+虽然但是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和隔壁百百痛衣国内同款30多块钱一样，卧龙凤雏了属于是
+
+*****
+
+####  黑雪姫  
+##### 1710#       发表于 2022-7-31 19:31
+
+不看了， 啥时候有可可回在捡起来，没有这动画不看也罢。
+
+
+
+*****
+
+####  starring  
+##### 1711#       发表于 2022-7-31 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882854&amp;ptid=2078110" target="_blank">qty 发表于 2022-7-31 19:24</a>
+
+紫毛这歌感觉有点硬凹高级感的意思，实际听起来并不是很抓人，效果和岚珠那首比起来差了点意思 ...</blockquote>
+岚珠的Eutopia从演出到曲子都太强比不过
+
+紫毛这曲子总觉得听过一下子又想不起是哪首，起初觉得有点像あらかねの器，听了一下又完全不是
+
+*****
+
+####  优妮可  
+##### 1712#       发表于 2022-7-31 19:36
+
+是我放的很低了么，我感觉这集还行啊，看到处都在骂的，不是很敢评价了。
+
+*****
+
+####  优妮可  
+##### 1713#       发表于 2022-7-31 19:36
+
+ 本帖最后由 优妮可 于 2022-7-31 19:37 编辑 
+
+编辑
+
+*****
+
+####  qty  
+##### 1714#       发表于 2022-7-31 19:37
+
+<blockquote>ads147147 发表于 2022-7-31 19:25
+初3的solo舞台要啥自行车。不过岚珠那个有舞台装置buff，效果会更好。
+
+—— 来自 Xiaomi 2106118C, Andr ...</blockquote>
+不是，就是歌的问题，乌托邦给人感觉一下子气氛就起来了，歌曲高潮的时候人的情绪也同时到了高潮，紫毛这个，就给人感觉她很想唱出某种高级感，但我听着就是有些寡淡，get不到它的旋律和节奏，也就进入不了歌曲的气氛。
+
+*****
+
+####  三明治  
+##### 1715#       发表于 2022-7-31 19:37
+
+先不说冠军候补cjb的事，对面这歌和演出也没多突出啊，什么as岚珠
+
+*****
+
+####  寒风夜  
+##### 1716#       发表于 2022-7-31 19:38
+
+我也感觉还行...虽然有些地方还是略魔幻
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1717#       发表于 2022-7-31 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
