@@ -14045,3 +14045,19 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 光头目前35发11连1宝爆死中</blockquote>
 光头指的是今天生放送上的那个主持人？
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89788#       发表于 2022-7-31 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头51发11连终于2宝了
+
+*****
+
+####  黑上シグマ  
+##### 89789#       发表于 2022-7-31 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始收束，53发3宝
+

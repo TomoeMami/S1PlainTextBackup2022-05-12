@@ -2623,3 +2623,27 @@ Liella要多打拉扯，拉扯知道吗？
 
 还有版本的强势英雄要练起来，不要场场被别人抓成狗
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1760#       发表于 2022-7-31 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886416&amp;ptid=2078110" target="_blank">竹筷 发表于 2022-7-31 23:13</a>
+戳啦，因为新成员跟老成员之前默契不够被评委减分了
+
+—— 来自 S1Fun</blockquote>
+艹，这观点，想起我之前给一期12集打不过snp找的“合理”解释<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 1761#       发表于 2022-7-31 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56886860&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-7-31 23:55</a>
+艹，这观点，想起我之前给一期12集打不过snp找的“合理”解释：看一期Liella!那个团队关系，有啥 ...</blockquote>
+还算合理吧，人少出错的情况确实会比人多小<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
