@@ -2429,3 +2429,12 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 这集Liella之歌可可和堇宛如米国66号公路边上的性感网袜酒吧女郎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
 
+
+
+*****
+
+####  lj205  
+##### 1743#       发表于 2022-7-31 21:50
+
+卧槽，跪求到时演唱会不要出现那个充气跳舞人
+

@@ -13598,3 +13598,41 @@ D03FE67C-68D5-4F19-9AD6-CE0A46A8D6E0.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">md 隔壁说2宝 地球姬+王姐+奥宝就能畅游所有本  12面地球姬 3面王姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我一试 乖乖 这伤害连最高级饼干本都会翻车
 
+
+
+*****
+
+####  exiaexa  
+##### 89741#       发表于 2022-7-31 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56885239&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 21:46</a>
+
+话说 1宝带满破满级黑杯 对比 2宝10几级的活动礼装 哪个伤害高</blockquote>
+肯定是黑杯啊，2宝提升一般默认30%左右，哪怕算上特攻再提升25%也就1.6
+
+满级黑杯哪怕扣掉活动礼装的atk也有实打实的2000攻，全增益算上都快能翻倍了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 89742#       发表于 2022-7-31 21:55
+
+新指令卡系统有数值解包吗，我怎么随便打打星就这么多？没有绿串和混色串
+
+*****
+
+####  千叶铁矢  
+##### 89743#       发表于 2022-7-31 21:56
+
+ 本帖最后由 千叶铁矢 于 2022-7-31 22:00 编辑 
+
+编辑
+
+*****
+
+####  qixinno2  
+##### 89744#       发表于 2022-7-31 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">满破黑杯2400攻击80宝威 怕是三宝都没这提升大
+
