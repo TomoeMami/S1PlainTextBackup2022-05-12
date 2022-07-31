@@ -875,3 +875,19 @@ meme传播对人气有巨大影响的例子并不少：tiktok带火的东万，�
 
 哪里不完满？没有真枪实弹（的交合画面）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Vacuolar  
+##### 92#       发表于 2022-7-31 21:22
+
+目前来说作为一个卖角色的低期望纯看美少女的动画没啥地方特别让人失望，然后被一些深谙红黑流量的人吹完美。
+
+*****
+
+####  Nagoya  
+##### 93#       发表于 2022-7-31 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集看完烂片雷达轰隆作响有什么头绪吗？
+

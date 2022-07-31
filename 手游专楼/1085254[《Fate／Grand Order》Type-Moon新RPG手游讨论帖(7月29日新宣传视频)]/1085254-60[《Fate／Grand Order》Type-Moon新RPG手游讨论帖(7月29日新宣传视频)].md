@@ -13347,3 +13347,45 @@ DB5394B4-E595-4C2A-878F-759461CE6562.jpeg
 厨力卡不也挺好，不逼着人抽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大胆 你居然敢说是厨力卡  明明是红卡的神
 
+
+
+*****
+
+####  miro112233  
+##### 89721#       发表于 2022-7-31 21:20
+
+我觉得论实战可能还不如水BB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少人家能进混沌恶暴击队
+
+*****
+
+####  khxooo  
+##### 89722#       发表于 2022-7-31 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882146&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-7-31 18:36</a>
+目前我和萌新最非么</blockquote>
+我，全部石头，沉船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89723#       发表于 2022-7-31 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来公主落地了，秋叶就不知道猴年马月套个什么身份落了，当年还是秋叶开启的妹控xp
+
+*****
+
+####  rooarr  
+##### 89724#       发表于 2022-7-31 21:28
+
+强度有没有定论啊，保底了我在想要不要抽个二宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89725#       发表于 2022-7-31 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56884834&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-7-31 21:21</a>
+
+我，全部石头，沉船</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然还有没出的么 我以为只有我俩抽干石头只有一个的最惨了
+
