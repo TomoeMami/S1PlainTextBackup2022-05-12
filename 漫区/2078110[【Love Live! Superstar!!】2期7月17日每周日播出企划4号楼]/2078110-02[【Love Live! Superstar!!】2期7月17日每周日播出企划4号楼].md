@@ -1171,3 +1171,25 @@ QQ截图20220731170408.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么鬼，西武？这…………
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1615#       发表于 2022-7-31 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">赌团运是吧
+
+*****
+
+####  ads147147  
+##### 1616#       发表于 2022-7-31 17:29
+
+这个安排，既熟悉又陌生。
+
+如果10月v团还要搞什么动画live的，真是前所未有的好时代呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+按照这个进度，明年3rd弄完，追加两场，4月底三期生，明年水3播完接档星3，星三播完可以接有土鳖人或者虹，真是每天都能看到爱生活的好时代呢
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

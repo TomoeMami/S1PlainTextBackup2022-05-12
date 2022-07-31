@@ -11101,3 +11101,196 @@ fate成功夺舍，type-fate的梗成真了
 
 黔驴技穷<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 89496#       发表于 2022-7-31 17:20
+
+舅舅都对了。那么今年泳装十分期待
+
+*****
+
+####  Jamaisvu  
+##### 89497#       发表于 2022-7-31 17:20
+
+不知道1600石能抽几个公主...实在不行我顶着500一单的压力再氪点...地球姬啊那可是...哪怕TM真要放弃FGO跑路我也得给他们氪几张机票...<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 89498#       发表于 2022-7-31 17:20
+
+用送的抽一抽吧，反正真的要死也不见得是坏处啊
+
+*****
+
+####  areklose  
+##### 89499#       发表于 2022-7-31 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881086&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-7-31 17:18</a>
+
+这么看这张舅舅情报是完全属实的了...不知道谁是第二个五星泳装呢...</blockquote>
+斯卡蒂吧，估计
+
+*****
+
+####  rollingusagi  
+##### 89500#       发表于 2022-7-31 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">rnm奈虚蘑菇！！！你要是敢把公主写崩我跟你没完！！！
+
+*****
+
+####  シャル  
+##### 89501#       发表于 2022-7-31 17:22
+
+<img src="https://img.saraba1st.com/forum/202207/31/172235g33m3393vvnmlhfl.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-07-31 171858.png</strong> (216.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-31 17:22 上传
+
+地球姫好看，课课课
+
+*****
+
+####  qixinno2  
+##### 89502#       发表于 2022-7-31 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">真唯一想要的卡 TMD抽爆
+
+*****
+
+####  我不太会吹  
+##### 89503#       发表于 2022-7-31 17:25
+
+泳装大概就是樱井专场了，有点慌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89504#       发表于 2022-7-31 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该楼内各海豹欧皇大显神通了
+
+*****
+
+####  Jamaisvu  
+##### 89505#       发表于 2022-7-31 17:26
+
+接下来没什么指望，大概....话说有珠什么时候来啊...
+
+*****
+
+####  alucardcz  
+##### 89506#       发表于 2022-7-31 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要去抽3狂福袋  tmd  千万别出水武藏 
+
+*****
+
+####  里村紅葉  
+##### 89507#       发表于 2022-7-31 17:27
+
+不说这么多有的没的，就说是不是绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89508#       发表于 2022-7-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881201&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-7-31 17:27</a>
+
+不说这么多有的没的，就说是不是绿拐吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几率很小 怎么看都是打手啊
+
+*****
+
+####  exiaexa  
+##### 89509#       发表于 2022-7-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881092&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 17:19</a>
+
+型月正统在哪不早就清楚了么</blockquote>
+以前都想着最多联动个月姬
+
+谁知道type真就直接降临了
+
+唯一的装逼点都没了，纯种月姬粉怕是真的绷不住了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89510#       发表于 2022-7-31 17:27
+
+<blockquote>里村紅葉 发表于 2022-7-31 17:27
+不说这么多有的没的，就说是不是绿拐吧</blockquote>
+为了强推绿卡，其实徐福才是绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89511#       发表于 2022-7-31 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881198&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-7-31 17:26</a>
+
+我要去抽3狂福袋  tmd  千万别出水武藏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果断毒奶你一口排空我的非气
+
+*****
+
+####  空气蛹  
+##### 89512#       发表于 2022-7-31 17:28
+
+叶卫兵续费
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  angelooo  
+##### 89513#       发表于 2022-7-31 17:28
+
+<blockquote>Jamaisvu 发表于 2022-7-31 17:26
+接下来没什么指望，大概....话说有珠什么时候来啊...</blockquote>
+公主都能来，有珠落地这事慌个p，迟早23333
+
+*****
+
+####  シャル  
+##### 89514#       发表于 2022-7-31 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56881207&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-7-31 17:27</a>
+
+以前都想着最多联动个月姬
+
+谁知道type真就直接降临了</blockquote>
+普通形态职介是毒妇，没法加的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89515#       发表于 2022-7-31 17:29
+
+NMD怎么又是12月，又要催命过圣诞是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89516#       发表于 2022-7-31 17:29
+
+翻页
+
+*****
+
+####  黑上シグマ  
+##### 89517#       发表于 2022-7-31 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算我能拿1084石
+
