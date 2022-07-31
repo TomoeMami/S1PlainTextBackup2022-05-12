@@ -10237,3 +10237,24 @@ X那一波宇宙人我都是当搞笑角色看的，所以战斗力方面已经�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生放正菜一般是几点？
 
+
+
+*****
+
+####  qixinno2  
+##### 89404#       发表于 2022-7-31 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我只关心能发多少石头和能不能抽到东西
+
+*****
+
+####  alucardcz  
+##### 89405#       发表于 2022-7-31 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56879715&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-7-31 15:06</a>
+
+生放正菜一般是几点？</blockquote>
+正片:15:30～17:30
+
+游戏内情报大概17点？
+

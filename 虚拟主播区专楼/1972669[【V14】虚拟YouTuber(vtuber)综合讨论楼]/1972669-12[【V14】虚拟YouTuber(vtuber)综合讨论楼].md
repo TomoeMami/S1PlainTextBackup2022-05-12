@@ -1911,3 +1911,13 @@ syl hnn这个角色可以算开发出来了，之前从来没玩过
 
 官台是正常的，只能开两台然后静音这边听官台声音了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  carroy  
+##### 16668#       发表于 2022-7-31 15:17
+
+看了眼工商
+感觉莎小姐接话的时机抓的不是很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
