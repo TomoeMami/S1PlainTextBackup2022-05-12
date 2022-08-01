@@ -3737,3 +3737,19 @@ nako fc 9月1开放
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 1870#       发表于 2022-8-1 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900470&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-1 22:02</a>
+看来日本人真的很吃花田这套“欢喜冤家”不是吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1N ...</blockquote>
+基本不吃好吗，上5chan看看就知道了。声优肯定要帮着圆，难道还直播骂花田？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说到这个，选的场景真算是“面面俱到”，恋这个没几句台词的也选了个场景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
