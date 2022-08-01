@@ -15591,3 +15591,13 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 现在一天给四张素材兑换券了，虽然是多了不少，但是用不上就很鸡肋啊，不如多发点白箱子，再把商店里的素材扩充一下，一些低星素材用量出奇的大，却还是只给100个，实在是不够啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 89935#       发表于 2022-8-2 02:10
+
+福袋直接跳过，唯一性价比高的狂2对我不是刚需，然后我有点想要的全都有雷，直接戒氪
+然后被BGO读心逼了一单才出A狐，四舍五入还是等于氪了福袋
+
