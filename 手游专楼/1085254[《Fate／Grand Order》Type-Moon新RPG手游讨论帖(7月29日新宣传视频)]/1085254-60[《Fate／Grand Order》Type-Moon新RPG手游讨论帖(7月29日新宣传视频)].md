@@ -14354,3 +14354,77 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 但是他要求是完成7/30的任务，不知道怎么完成了</blockquote>
 打那天新发的掉落礼装任务 好像是剑龙娘那一批
 
+
+
+*****
+
+####  凌云三才  
+##### 89821#       发表于 2022-8-1 10:53
+
+那么问题来了，公主看上去难堪大任，暗狐队的最佳主手到底什么时候能实装呢，带灵活20群充的红泛用光炮
+
+*****
+
+####  gpx234mqx  
+##### 89822#       发表于 2022-8-1 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56887465&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-8-1 01:02</a>
+
+98发4宝了！！！</blockquote>
+看看人家
+
+深受打击
+
+2986EBA9-90A5-42D4-B2CC-26423F4C5401.jpeg
+(511.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/115117lr5z5q543dneq405.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+63E72A89-C947-4A6A-B93D-3C2B108064B5.jpeg
+(908.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/115118x0j0k8fp040f3rmj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6E36FD70-0E20-4743-A15B-72CE15A8265E.jpeg
+(677 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/115118g30650bkb9au0t65.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+32753A22-DEC8-4A68-BA78-86F5DC0657A5.jpeg
+(553.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/115119s79ii7hz4vma7igv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 89823#       发表于 2022-8-1 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56889753&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-8-1 09:36</a>
+
+但是他要求是完成7/30的任务，不知道怎么完成了</blockquote>
+打之前的4个任务
+
+*****
+
+####  黑上シグマ  
+##### 89824#       发表于 2022-8-1 12:13
+
+翻页
+
