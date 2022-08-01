@@ -3781,3 +3781,28 @@ nako fc 9月1开放
 打xb3拖到现在才看了第三集，看的时候有很多想说的，看完了又不太想说了。就是这个香音传真的别拍了 ...</blockquote>
 反正只要想写，大概总有办法再搞一次次的“还没完，还不够，还能再成长”的类似戏码，包括大赛取胜也是的，想要她输，再天降强队强人就行了，反正是一个设定的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 1874#       发表于 2022-8-1 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">似曾相识，起点流主角，配角上限远不如主角，中期开始被甩开，主角后期没有伙伴被一个又一个天降大佬打到自闭但最后还是一路冲击登临道尊佛祖境界
+
+*****
+
+####  cxj649  
+##### 1875#       发表于 2022-8-1 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900590&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-1 22:13</a>
+
+基本不吃好吗，上5chan看看就知道了。声优肯定要帮着圆，难道还直播骂花田？
+
+说到这个，选的场景 ...</blockquote>
+5CH上已经把 恶口 这属性看成天朝人特点了，可可岚珠都是
+
+所以其实大部分对可可的恶口习惯了，虽然不吃但介于可瑾每话都有互相喊名字
+
+所以对可可意见是天朝这边大点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

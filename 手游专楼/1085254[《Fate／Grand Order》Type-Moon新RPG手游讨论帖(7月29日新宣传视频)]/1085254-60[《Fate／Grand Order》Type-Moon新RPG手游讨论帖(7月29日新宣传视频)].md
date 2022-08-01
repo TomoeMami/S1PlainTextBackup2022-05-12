@@ -15351,3 +15351,51 @@ np红绿蓝
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我选哪个都离满破很远，估计开个图鉴
 
+
+
+*****
+
+####  alucardcz  
+##### 89911#       发表于 2022-8-1 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新选了个宝石 然并没有什么意义  7张 还差3张
+
+*****
+
+####  exiaexa  
+##### 89912#       发表于 2022-8-1 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 21:09</a>
+
+是不是意味着以后圣杯战线要常开了 不然谁打ex啊</blockquote>
+这不挺好的
+
+没有战线我都快忘了还有单挑型从者这玩意儿了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89913#       发表于 2022-8-1 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  alucardcz  
+##### 89914#       发表于 2022-8-1 23:06
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 89915#       发表于 2022-8-1 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901218&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 23:06</a>
+
+这不挺好的
+
+没有战线我都快忘了还有单挑型从者这玩意儿了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后开个新爬塔 一楼限定一个从者（
+
