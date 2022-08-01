@@ -3661,3 +3661,34 @@ nako fc 9月1开放
 叔叔主导的番有啥热门作品么，完全没印象。</blockquote>
 最近来说的话，B站在平家物语那个番的制作委员会里，当然主导是肯定不可能的
 
+
+
+*****
+
+####  cxj649  
+##### 1863#       发表于 2022-8-1 20:33
+
+【悲報】葉月恋ちゃん、缶バッジの価格が新キャラを下回る<img src="https://i.imgur.com/YCcXnQC.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1864#       发表于 2022-8-1 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899290&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 20:28</a>
+
+最近来说的话，B站在平家物语那个番的制作委员会里，当然主导是肯定不可能的。
+
+要说主导的话，反正鲤鱼出 ...</blockquote>
+我追番，那片刚出的时候好像噱头是矢吹老湿的人设，剧情完全不大行，类似小时候看的圣少女，但是差太多了。那时候也不知道歌是鲤鱼唱的，反正片儿不行也就没兴趣听OPED了
+
+*****
+
+####  竹筷  
+##### 1865#       发表于 2022-8-1 20:40
+
+叔叔家的阿波连同学其实还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
