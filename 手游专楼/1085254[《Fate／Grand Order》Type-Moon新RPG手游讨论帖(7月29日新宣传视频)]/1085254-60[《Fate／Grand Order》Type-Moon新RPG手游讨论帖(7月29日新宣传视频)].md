@@ -15278,3 +15278,17 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 89905#       发表于 2022-8-1 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900077&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-8-1 21:28</a>
+
+现在三色出卡应该是绿红蓝或者绿蓝红了吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20%等于0（
+

@@ -2167,3 +2167,14 @@ syl
 
 偶尔会有要跑不跑和要破不破的感觉，不过氛围上听着水平还是很不错的，不知道是不是听说前世开过live所以有“这人肯定唱的很好”的滤镜
 
+
+
+*****
+
+####  Ketestrait  
+##### 16689#       发表于 2022-8-1 21:46
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h4rln365o0j20wi0i6wjp.jpg" referrerpolicy="no-referrer">
+
+確率おかしい<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
