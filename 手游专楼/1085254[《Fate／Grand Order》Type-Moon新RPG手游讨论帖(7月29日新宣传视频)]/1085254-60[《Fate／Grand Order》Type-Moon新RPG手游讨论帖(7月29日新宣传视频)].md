@@ -15408,3 +15408,36 @@ np红绿蓝
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别吧 我宁可打三遍圣杯战线也不想打一次百重塔 太弱智了
 
+
+
+*****
+
+####  areklose  
+##### 89917#       发表于 2022-8-1 23:24
+
+福袋还没氪，看了一下代充价格，2000日元代充都能开140？
+
+*****
+
+####  alucardcz  
+##### 89918#       发表于 2022-8-1 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901413&amp;ptid=1085254" target="_blank">areklose 发表于 2022-8-1 23:24</a>
+
+福袋还没氪，看了一下代充价格，2000日元代充都能开140？</blockquote>
+你自己买礼品卡啊  1k 50不到
+
+*****
+
+####  rooarr  
+##### 89919#       发表于 2022-8-1 23:27
+
+qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89920#       发表于 2022-8-1 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现就剩21个圣杯了，感觉都没怎么用，摩根也才刚103…开了3个技能结果硬币都不够升到120了
+
