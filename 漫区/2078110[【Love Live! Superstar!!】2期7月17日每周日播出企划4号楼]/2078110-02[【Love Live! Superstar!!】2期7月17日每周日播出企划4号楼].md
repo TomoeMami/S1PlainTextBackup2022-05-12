@@ -2926,3 +2926,12 @@ Butterfly Wingはアイドル衣装というより舞台衣装のようなイメ
 外文书店在黄浦区，那不远。</blockquote>
 如果楼里有想买周边的我可以代购下，反正我不会离开上海。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1789#       发表于 2022-8-1 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早点的话还行 现在想买的早都买了
+

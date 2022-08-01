@@ -14428,3 +14428,15 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 翻页
 
+
+
+*****
+
+####  alucardcz  
+##### 89825#       发表于 2022-8-1 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56888753&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-8-1 08:11</a>
+
+说起来现在都是差二面伤害，buff累加和奥博龙的超级加倍三面根本不缺伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼隔壁还在云各种无敌
+
