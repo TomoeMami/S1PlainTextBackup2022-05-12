@@ -14342,3 +14342,15 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 任务还在</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">但是他要求是完成7/30的任务，不知道怎么完成了
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 89820#       发表于 2022-8-1 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56889753&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-8-1 09:36</a>
+
+但是他要求是完成7/30的任务，不知道怎么完成了</blockquote>
+打那天新发的掉落礼装任务 好像是剑龙娘那一批
+
