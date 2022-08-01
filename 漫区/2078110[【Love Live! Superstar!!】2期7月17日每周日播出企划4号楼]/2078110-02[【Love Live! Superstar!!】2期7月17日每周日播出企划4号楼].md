@@ -3806,3 +3806,14 @@ nako fc 9月1开放
 
 所以对可可意见是天朝这边大点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  竹筷  
+##### 1876#       发表于 2022-8-1 23:11
+
+嘴臭这个属性可以说是动画一开始就有的不忘初心了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

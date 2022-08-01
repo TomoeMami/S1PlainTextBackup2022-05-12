@@ -15399,3 +15399,12 @@ np红绿蓝
 没有战线我都快忘了还有单挑型从者这玩意儿了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后开个新爬塔 一楼限定一个从者（
 
+
+
+*****
+
+####  qixinno2  
+##### 89916#       发表于 2022-8-1 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别吧 我宁可打三遍圣杯战线也不想打一次百重塔 太弱智了
+
