@@ -15335,3 +15335,19 @@ np红绿蓝
 只能说唯一神刀法太屌了 2技能要是6CD简直无敌了 艹TMD唯一神</blockquote>
 等一张减CD礼装，会不会出呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 89909#       发表于 2022-8-1 22:42
+
+选了黑杯，然后到了万恶的4等一的时间了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89910#       发表于 2022-8-1 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我选哪个都离满破很远，估计开个图鉴
+

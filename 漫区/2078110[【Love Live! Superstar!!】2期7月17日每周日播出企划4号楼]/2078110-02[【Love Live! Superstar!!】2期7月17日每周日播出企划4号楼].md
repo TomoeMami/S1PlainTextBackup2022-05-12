@@ -3769,3 +3769,15 @@ nako fc 9月1开放
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打xb3拖到现在才看了第三集，看的时候有很多想说的，看完了又不太想说了。就是这个香音传真的别拍了，我都不想数香音受挫再振作几轮了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1873#       发表于 2022-8-1 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900920&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-1 22:39</a>
+
+打xb3拖到现在才看了第三集，看的时候有很多想说的，看完了又不太想说了。就是这个香音传真的别拍了 ...</blockquote>
+反正只要想写，大概总有办法再搞一次次的“还没完，还不够，还能再成长”的类似戏码，包括大赛取胜也是的，想要她输，再天降强队强人就行了，反正是一个设定的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
