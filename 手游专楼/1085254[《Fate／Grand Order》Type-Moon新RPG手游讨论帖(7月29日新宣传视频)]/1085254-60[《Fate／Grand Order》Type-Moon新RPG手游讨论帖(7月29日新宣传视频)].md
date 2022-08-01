@@ -14309,3 +14309,12 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 另外公主对队友0增伤，真就只能充np<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 89817#       发表于 2022-8-1 09:15
+
+fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定为常置吗？多点一下感觉更累<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
