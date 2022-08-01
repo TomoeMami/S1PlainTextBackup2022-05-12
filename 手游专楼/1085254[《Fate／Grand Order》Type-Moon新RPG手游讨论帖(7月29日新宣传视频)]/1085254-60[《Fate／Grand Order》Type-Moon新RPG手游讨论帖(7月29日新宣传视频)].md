@@ -14940,3 +14940,131 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 1宝也可以这样6加成打钱本  公主12面 王姐3面    公主要点出20np的被动
 
+
+
+*****
+
+####  alucardcz  
+##### 89873#       发表于 2022-8-1 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898708&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-8-1 19:38</a>
+
+1宝双狐黑圣杯的伤害还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行个鸡儿  3面14万  被c狗吊起来打的水平
+
+*****
+
+####  alucardcz  
+##### 89874#       发表于 2022-8-1 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898349&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 19:07</a>
+
+一宝也行 可以自出公主和那四星伪装者借哈贝喵6加成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该自给自足了 借什么人 
+
+*****
+
+####  qixinno2  
+##### 89875#       发表于 2022-8-1 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898735&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:40</a>
+
+行个鸡儿  3面14万  被c狗吊起来打的水平</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快去抽满宝
+
+*****
+
+####  gpx234mqx  
+##### 89876#       发表于 2022-8-1 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898735&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:40</a>
+
+行个鸡儿  3面14万  被c狗吊起来打的水平</blockquote>
+14万问题不大啊
+
+法老这是16万吧
+
+微信图片_20220801194323.jpg
+(712.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 19:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/194347xblnbe0bkqlk33l0.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89877#       发表于 2022-8-1 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898771&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 19:43</a>
+
+快去抽满宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽他干什么 我又没情怀 只看的见强度 顺便5宝双狐不带礼装14-16万
+
+*****
+
+####  qixinno2  
+##### 89878#       发表于 2022-8-1 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898782&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:44</a>
+
+抽他干什么 我又没情怀 只看的见强度 顺便5宝双狐不带礼装14-16万</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">去升120喂金芙芙啊 立马提升到18W+
+
+*****
+
+####  alucardcz  
+##### 89879#       发表于 2022-8-1 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898777&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-8-1 19:44</a>
+
+14万问题不大啊
+
+法老这是16万吧</blockquote>
+都牺牲一个礼装位了我要带个公主拖后腿做什么？ 莫名其妙 厨力不要跟过来扯强度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89880#       发表于 2022-8-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898801&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 19:45</a>
+
+去升120喂金芙芙啊 立马提升到18W+</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不配  然后你先想想升120的条件
+
+
+
+*****
+
+####  qixinno2  
+##### 89881#       发表于 2022-8-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898821&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:47</a>
+
+不配</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说唯一神刀法太屌了 2技能要是6CD简直无敌了 艹TMD唯一神
+
+*****
+
+####  alucardcz  
+##### 89882#       发表于 2022-8-1 19:48
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 89883#       发表于 2022-8-1 19:49
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 89884#       发表于 2022-8-1 19:49
+
+再再翻
+
