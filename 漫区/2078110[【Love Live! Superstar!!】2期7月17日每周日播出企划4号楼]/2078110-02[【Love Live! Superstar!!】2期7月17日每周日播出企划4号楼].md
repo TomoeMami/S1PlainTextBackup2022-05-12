@@ -3379,3 +3379,30 @@ nagi自己整活吧
 
 同事务所，也是烂铁的大桥彩香今年tie了一个史上最强魔王转生村民A，也一般般吧
 
+
+
+*****
+
+####  老1.5  
+##### 1838#       发表于 2022-8-1 17:50
+
+有的贴就不错了，还没到那程度呢，心态放平
+
+*****
+
+####  Enakina  
+##### 1839#       发表于 2022-8-1 17:54
+
+然后质量不用期待了，似乎是做平职的那个公司
+
+*****
+
+####  iuhehc  
+##### 1840#       发表于 2022-8-1 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897431&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-1 17:54</a>
+然后质量不用期待了，似乎是做平职的那个公司</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平职那个啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -14769,3 +14769,17 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 说起来，一开始传的是狂阶，要真是狂倒是泛用不少
 
+
+
+*****
+
+####  alucardcz  
+##### 89858#       发表于 2022-8-1 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897347&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-8-1 17:48</a>
+
+宝具加np只能给特定的“活人”从者，技能防强化解除只能给善特性从者，突出一个精挑细选
+
+说起来， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒  要是狂 那可能真的就是红卡之神了
+
