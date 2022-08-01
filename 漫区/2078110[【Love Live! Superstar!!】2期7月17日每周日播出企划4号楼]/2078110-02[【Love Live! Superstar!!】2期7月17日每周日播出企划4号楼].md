@@ -3082,3 +3082,12 @@ nagi自己整活吧
 
 推没细看，原来不止一个吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1803#       发表于 2022-8-1 14:38
+
+不止一个也只是猜测，主要是今天这个是面向国内的，但是她在推上也宣传，毕竟日本是主市场，所以会让人觉得面向日本那边应该还会有消息。但是结合之前她发新歌也是面向国内，但也是两边宣传，那这个确实就…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
