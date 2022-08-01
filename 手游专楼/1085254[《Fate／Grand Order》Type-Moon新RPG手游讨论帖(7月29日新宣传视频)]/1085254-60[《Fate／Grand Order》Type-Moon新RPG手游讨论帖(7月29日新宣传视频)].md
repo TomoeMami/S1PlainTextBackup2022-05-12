@@ -14899,3 +14899,44 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一宝也行 可以自出公主和那四星伪装者借哈贝喵6加成
 
+
+
+*****
+
+####  alucardcz  
+##### 89869#       发表于 2022-8-1 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898283&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-8-1 19:02</a>
+
+二宝公主能6加成打qp本第一面，我居然觉得还不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2宝公主可以用隔壁吹的那个 公主王姐奥师傅的队伍   勉强够打qp本  6加成
+
+*****
+
+####  alucardcz  
+##### 89870#       发表于 2022-8-1 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去试试 1宝可以不可以
+
+*****
+
+####  gpx234mqx  
+##### 89871#       发表于 2022-8-1 19:38
+
+1宝双狐黑圣杯的伤害还行
+
+*****
+
+####  alucardcz  
+##### 89872#       发表于 2022-8-1 19:39
+
+<img src="https://img.saraba1st.com/forum/202208/01/193916zz5rz458is5f3usu.png" referrerpolicy="no-referrer">
+
+<strong>333333333333.png</strong> (145.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 19:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 1宝也可以这样6加成打钱本  公主12面 王姐3面    公主要点出20np的被动
+
