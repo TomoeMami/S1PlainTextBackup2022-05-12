@@ -3033,3 +3033,31 @@ nagi自己整活吧
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 1799#       发表于 2022-8-1 14:01
+
+你们6个人就不要再整五角星了啊，你看看这种一个角对应两个人再加上之前的剧情就很难不吐取而代之的黑泥好吧
+
+<img src="https://img.saraba1st.com/forum/202208/01/140001x0lzr4uxsuxuv0zz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220801135526.png</strong> (23.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 14:00 上传
+
+*****
+
+####  愛さ実  
+##### 1800#       发表于 2022-8-1 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56893933&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 13:58</a>
+话说鲤鱼今天的好消息不会只有A店这个吧</blockquote>
+不会，这人上微博偷偷视奸不说话，应该是想着晚点一股脑发了。推也说了不止一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
