@@ -14827,3 +14827,44 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 看一眼盒子的入手顺  配吗！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪不配了 不是全员菜狗有没有都区别不大的那种么
 
+
+
+*****
+
+####  exiaexa  
+##### 89863#       发表于 2022-8-1 18:44
+
+公主现在的出路就是祈祷多强化出几个太公望这样的自充+特攻+团队buff战神，把队友的综合素质拉起来
+
+比如这次大公就不错，虽然没有自充但是在有50np的礼装就可以上场
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89864#       发表于 2022-8-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898078&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 18:44</a>
+
+公主现在的出路就是祈祷多强化出几个太公望这样的自充+特攻+团队buff战神，把队友的综合素质拉起来
+
+比如这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是如果带了50np礼装那面对可能就是狂那队伍了
+
+*****
+
+####  J-002  
+##### 89865#       发表于 2022-8-1 18:47
+
+<img src="https://img.saraba1st.com/forum/202208/01/184732mtrdtiwd3dieetj1.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220801184703.jpg</strong> (327.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 18:47 上传
+
+靠再临低星凑出的最后一个十连终于来了……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">我又不厨月姬我抽个鬼啊……
+
