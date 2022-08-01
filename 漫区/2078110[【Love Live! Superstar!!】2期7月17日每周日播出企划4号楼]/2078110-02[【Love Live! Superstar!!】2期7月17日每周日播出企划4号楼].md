@@ -3176,3 +3176,12 @@ nagi自己整活吧
 
 最近的就是这周五的初辣鸡了，等周四通告吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 1813#       发表于 2022-8-1 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日本直接摆了，鱼现在呆家里不复出其实也挺好的
+
