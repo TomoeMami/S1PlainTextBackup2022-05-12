@@ -3003,3 +3003,33 @@ nagi自己整活吧
 看微博好像广州a店也有的</blockquote>
 其他店都只是卖周边没有展出
 
+
+
+*****
+
+####  adw667  
+##### 1796#       发表于 2022-8-1 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56889688&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-1 09:32</a></blockquote>
+什么真岛吾郎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1797#       发表于 2022-8-1 13:58
+
+话说鲤鱼今天的好消息不会只有A店这个吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 1798#       发表于 2022-8-1 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56882092&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-7-31 18:31</a>
+有没有可能liella真的是无冠团，冲击波
+
+虽然这个劲敌的年纪设定应该是不可能无冠的 ...</blockquote>
+像宝可梦一样，陪跑几期动画，最后来个另类冠军？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
