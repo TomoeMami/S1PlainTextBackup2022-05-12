@@ -15165,3 +15165,28 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 什么年代了，怎么还开衣服技能的你这个数据太水了，除了衣服跟你都一样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了  不开衣服技能不太行 会剩丝血   但是我羁绊钱本的礼装都是10几级左右的  你可以带件有攻击力的说不定就打暴了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89895#       发表于 2022-8-1 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是把目光看向中旬的泳装吧，不知道活动会送哪个……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">顺带啥时候把以前的活动全放出来啊，我缺很多活动卡啊
+
+*****
+
+####  qixinno2  
+##### 89896#       发表于 2022-8-1 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装爱出什么出什么 已经无所谓了
+
+*****
+
+####  areklose  
+##### 89897#       发表于 2022-8-1 20:23
+
+这绿卡改的还行。。。这几天用得感觉
+

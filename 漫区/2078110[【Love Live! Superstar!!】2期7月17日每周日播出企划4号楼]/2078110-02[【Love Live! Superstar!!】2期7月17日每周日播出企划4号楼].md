@@ -3590,3 +3590,74 @@ nako fc 9月1开放
 
 叔叔主导的番有啥热门作品么，完全没印象。
 
+
+
+*****
+
+####  lj205  
+##### 1860#       发表于 2022-8-1 20:27
+
+打铁感染的可能是BA5变种，希望不要影响到她的嗓子和肺，nako得了两次目前来看就是2nd的时候气有点短但是似乎还好，BA5这个可猛多了
+
+
+
+*****
+
+####  仟音一心  
+##### 1861#       发表于 2022-8-1 20:27
+
+<img src="https://img.saraba1st.com/forum/202208/01/202633ft8nh8dnvt5oca86.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4A8350ED-87F8-4610-8D37-1F33E33A3475.jpeg</strong> (253.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 20:26 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/202643c6wt3l8vl2pp2w63.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4488F238-DA7B-4E5B-A929-AB91A206B73D.jpeg</strong> (266.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 20:26 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/202655wce2kn39l3ilivi1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A65B1FF1-C5D6-432C-BA83-AF27D2DB81C5.jpeg</strong> (252.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 20:26 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/202702xn6vuqpnn7qna5tn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5E66CA24-32D3-42E2-AA46-1195BC991EE9.jpeg</strong> (256.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/202709kcxq2jqu2kr6sz26.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>76736BE4-0348-4BA3-9EB0-016B9EB77981.jpeg</strong> (248.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 20:27 上传
+
+*****
+
+####  aoaoaodedede  
+##### 1862#       发表于 2022-8-1 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899205&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-1 20:20</a>
+
+叔叔主导的番有啥热门作品么，完全没印象。</blockquote>
+最近来说的话，B站在平家物语那个番的制作委员会里，当然主导是肯定不可能的
+
