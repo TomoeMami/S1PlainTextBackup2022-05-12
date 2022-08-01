@@ -2803,3 +2803,44 @@ Liella要多打拉扯，拉扯知道吗？
 
 下单匡威，希望不要太难穿
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1776#       发表于 2022-8-1 12:04
+
+小百合确诊新冠了
+[https://apollobay.jp/news/%E4%BC ... %E3%82%8B%E3%81%94/](https://apollobay.jp/news/%E4%BC%8A%E9%81%94%E3%81%95%E3%82%86%E3%82%8A%E3%81%AE%E6%96%B0%E5%9E%8B%E3%82%B3%E3%83%AD%E3%83%8A%E3%82%A6%E3%82%A4%E3%83%AB%E3%82%B9%E6%84%9F%E6%9F%93%E3%81%AB%E9%96%A2%E3%81%99%E3%82%8B%E3%81%94/)
+
+*****
+
+####  aoaoaodedede  
+##### 1777#       发表于 2022-8-1 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1778#       发表于 2022-8-1 12:06
+
+[https://twitter.com/KISAYU_/status/1553747164924219392](https://twitter.com/KISAYU_/status/1553747164924219392)
+
+Butterfly Wingはアイドル衣装というより舞台衣装のようなイメージで自分だけの世界、Liella!とはまた違う色を意識しました。
+<img src="https://p.sda1.dev/6/71e0ea8138ed0938c4321def8cbfd0a5/20220801_120515.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1779#       发表于 2022-8-1 12:06
+
+.
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1780#       发表于 2022-8-1 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">寄
+
