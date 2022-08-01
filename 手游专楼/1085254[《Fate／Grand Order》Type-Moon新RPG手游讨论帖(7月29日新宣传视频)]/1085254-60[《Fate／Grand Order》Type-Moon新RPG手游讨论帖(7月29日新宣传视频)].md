@@ -14519,3 +14519,17 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 但是欧者永欧那真的是不存在的，常氪金的谁没中过千石一宝，情况不对直接告辞才是正道
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 89832#       发表于 2022-8-1 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56895010&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 15:18</a>
+
+一般来说，我见过的氪金量大的，算上我自己基本都是高于官方出率
+
+但是欧者永欧那真的是不存在的，常氪金的 ...</blockquote>
+萌新他自己就是欧者永欧那种的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
