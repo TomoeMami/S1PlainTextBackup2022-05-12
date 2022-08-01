@@ -3725,3 +3725,15 @@ nako fc 9月1开放
 特别是第一集刚吹完水平高结果到了第三集自己血条没亮呢就没了这什么青铜王者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 把锅甩给新生我是认可的，建议这位还是去东方声剧圈子锻炼锻炼
 
+
+
+*****
+
+####  ads147147  
+##### 1869#       发表于 2022-8-1 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899276&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-1 20:27</a></blockquote>
+看来日本人真的很吃花田这套“欢喜冤家”不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

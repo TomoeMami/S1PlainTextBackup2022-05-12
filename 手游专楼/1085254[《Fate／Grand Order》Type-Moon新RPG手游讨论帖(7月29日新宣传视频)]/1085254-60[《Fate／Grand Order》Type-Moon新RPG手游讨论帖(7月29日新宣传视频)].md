@@ -15292,3 +15292,23 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20%等于0（
 
+
+
+*****
+
+####  katun  
+##### 89906#       发表于 2022-8-1 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900077&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-8-1 21:28</a>
+
+现在三色出卡应该是绿红蓝或者绿蓝红了吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+伤害绿蓝红
+
+打星蓝红绿
+
+np红绿蓝
+
+反正最没用→最有用的顺序就是了
+
