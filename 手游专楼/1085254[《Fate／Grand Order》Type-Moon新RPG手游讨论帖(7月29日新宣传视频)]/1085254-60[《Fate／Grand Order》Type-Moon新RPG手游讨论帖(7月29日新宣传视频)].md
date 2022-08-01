@@ -15582,3 +15582,12 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 好处是福袋不怕歪
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89934#       发表于 2022-8-2 01:05
+
+现在一天给四张素材兑换券了，虽然是多了不少，但是用不上就很鸡肋啊，不如多发点白箱子，再把商店里的素材扩充一下，一些低星素材用量出奇的大，却还是只给100个，实在是不够啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
