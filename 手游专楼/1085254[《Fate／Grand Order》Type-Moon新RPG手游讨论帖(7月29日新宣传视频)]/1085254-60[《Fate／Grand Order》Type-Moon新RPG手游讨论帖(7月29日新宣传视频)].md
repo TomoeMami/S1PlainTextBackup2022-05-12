@@ -15068,3 +15068,59 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 再再翻
 
+
+
+*****
+
+####  sosgame67  
+##### 89885#       发表于 2022-8-1 19:50
+
+虽然公主2宝了仔细想想5加成还不如继续3宝水杀无脑冲，再养一个120太累了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89886#       发表于 2022-8-1 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼怎么卡这么多才能翻页了
+
+*****
+
+####  alucardcz  
+##### 89887#       发表于 2022-8-1 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898835&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 19:47</a>
+
+只能说唯一神刀法太屌了 2技能要是6CD简直无敌了 艹TMD唯一神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不如先叫唯一神把王姐的技能减1cd这样就不用绑衣服了
+
+*****
+
+####  qixinno2  
+##### 89888#       发表于 2022-8-1 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898886&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:51</a>
+
+你不如先叫唯一神把王姐的技能减1cd这样就不用绑衣服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想屁吃
+
+*****
+
+####  rooarr  
+##### 89889#       发表于 2022-8-1 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898730&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:39</a>
+
+好消息 1宝也可以这样6加成打钱本  公主12面 王姐3面    公主要点出20np的被动</blockquote>
+你3面能打13万？我怎么打不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">勉强11万左右，配置一样的
+
+*****
+
+####  alucardcz  
+##### 89890#       发表于 2022-8-1 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898918&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-8-1 19:55</a>
+
+你3面能打13万？我怎么打不出来勉强11万左右，配置一样的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超13万了  你王姐几包？ 衣服技能开了吗
+
