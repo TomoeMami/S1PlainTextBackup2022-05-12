@@ -15312,3 +15312,14 @@ np红绿蓝
 
 反正最没用→最有用的顺序就是了
 
+
+
+*****
+
+####  alucardcz  
+##### 89907#       发表于 2022-8-1 22:27
+
+ 本帖最后由 alucardcz 于 2022-8-1 22:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么叔叔给我推送的测公主伤害的视频都喜欢挂2个狐狸2技能特意找个触发特攻的本测试   这脑子是不是。有点问题
+
