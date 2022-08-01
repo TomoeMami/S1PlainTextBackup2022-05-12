@@ -3344,3 +3344,38 @@ nagi自己整活吧
 
 <img src="https://p.sda1.dev/6/1bddaa3405ca4355fdb96ebc73fd9970/CMP_20220801173956391.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1834#       发表于 2022-8-1 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也别指望太多资源了，你看同社的大桥彩香的几个tie也就这样
+
+*****
+
+####  aoaoaodedede  
+##### 1835#       发表于 2022-8-1 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897289&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-1 17:45</a>
+
+也别指望太多资源了，你看同社的大桥彩香的几个tie也就这样</blockquote>
+这块也不止看H社吧，烂铁那边估计也给不了多少资源
+
+*****
+
+####  iuhehc  
+##### 1836#       发表于 2022-8-1 17:48
+
+有资源就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 1837#       发表于 2022-8-1 17:49
+
+同事务所，也是烂铁的大桥彩香今年tie了一个史上最强魔王转生村民A，也一般般吧
+

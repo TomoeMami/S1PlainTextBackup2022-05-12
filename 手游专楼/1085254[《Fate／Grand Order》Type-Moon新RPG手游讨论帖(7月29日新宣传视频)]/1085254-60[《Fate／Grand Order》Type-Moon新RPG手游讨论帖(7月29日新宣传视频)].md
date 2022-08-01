@@ -14704,3 +14704,68 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 公主都来了，呆毛也差不多该把阿瓦隆掏出来了吧，3星剑就奶个贝狄威尔好了
 
+
+
+*****
+
+####  qixinno2  
+##### 89851#       发表于 2022-8-1 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897099&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 17:34</a>
+
+才5护符  你还有100石+10护肤呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">非洲人认命了
+
+*****
+
+####  rooarr  
+##### 89852#       发表于 2022-8-1 17:43
+
+看了下只有5个dalao挂了满宝公主出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 89853#       发表于 2022-8-1 17:44
+
+公主但凡能把buff稍微分一点给队友 也不至于像现在这样尬在半空 究其根本还是月癌太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89854#       发表于 2022-8-1 17:45
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 89855#       发表于 2022-8-1 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897227&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 17:42</a>
+
+非洲人认命了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也配叫非洲人？ 你不配！
+
+*****
+
+####  alucardcz  
+##### 89856#       发表于 2022-8-1 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897274&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-8-1 17:44</a>
+
+公主但凡能把buff稍微分一点给队友 也不至于像现在这样尬在半空 究其根本还是月癌太菜了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换成狂  王姐直接查无此卡了？
+
+*****
+
+####  保罗赫伯特  
+##### 89857#       发表于 2022-8-1 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897274&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-8-1 17:44</a>
+
+公主但凡能把buff稍微分一点给队友 也不至于像现在这样尬在半空 究其根本还是月癌太菜了 ...</blockquote>
+宝具加np只能给特定的“活人”从者，技能防强化解除只能给善特性从者，突出一个精挑细选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来，一开始传的是狂阶，要真是狂倒是泛用不少
+
