@@ -15601,3 +15601,12 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 福袋直接跳过，唯一性价比高的狂2对我不是刚需，然后我有点想要的全都有雷，直接戒氪
 然后被BGO读心逼了一单才出A狐，四舍五入还是等于氪了福袋
 
+
+
+*****
+
+####  千叶铁矢  
+##### 89936#       发表于 2022-8-2 06:45
+
+自选从者都是无限期的，为什么自选礼装就15天<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
