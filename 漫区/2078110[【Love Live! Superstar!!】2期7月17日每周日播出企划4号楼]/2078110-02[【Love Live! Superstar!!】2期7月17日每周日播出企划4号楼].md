@@ -3444,3 +3444,32 @@ nagi自己整活吧
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1845#       发表于 2022-8-1 18:10
+
+逛了逛bgm，看了看Staff，动画是做平职的studio MOTHER负责的，然后它这个总导演加户誉夫是studio MOTHER的董事，应该是船社XEBEC出来的
+
+导演山元隼一当导演也没见得啥稍微分高一点的作品，有个8分的POKÉTOON也是一大堆导演和编剧一起整的。另一个8.1分的夏日重现，他是负责一些演出和分镜，然后看到他负责的部分被人吐槽了……
+
+系列构成叫荒川稔久，看着特摄整的好像还行，动画这边就不好说了，有兴趣的可以看看bgm里他的部分[https://bgm.tv/person/74](https://bgm.tv/person/74)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以确实不用什么期待了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1846#       发表于 2022-8-1 18:16
+
+老实讲吧，那个动画可能我都不会去看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1847#       发表于 2022-8-1 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道还有没消息，希望不止这俩
+

@@ -14815,3 +14815,15 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 我哪不配非洲人了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一眼盒子的入手顺  配吗！
 
+
+
+*****
+
+####  qixinno2  
+##### 89862#       发表于 2022-8-1 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897645&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 18:10</a>
+
+看一眼盒子的入手顺  配吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪不配了 不是全员菜狗有没有都区别不大的那种么
+
