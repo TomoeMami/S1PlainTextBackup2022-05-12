@@ -14676,3 +14676,12 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 看一下8.6那天up谁还不清楚吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 难道之前的大象输的还不够彻底么
 
+
+
+*****
+
+####  qixinno2  
+##### 89848#       发表于 2022-8-1 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 好羡慕磁场癫佬可以发癫 我就只能发出败犬的哀嚎
+

@@ -3245,3 +3245,63 @@ nagi自己整活吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别这么说嘛，差番出好曲嘛，就是不知道便宜算不算是“差”。
 
+
+
+*****
+
+####  优妮可  
+##### 1822#       发表于 2022-8-1 17:20
+
+爱情的话，像总之就是非常可爱穷点也不是不可以看
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1823#       发表于 2022-8-1 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这漫画后面剧情挺雷的，不过动画做不到就是了
+
+*****
+
+####  aoaoaodedede  
+##### 1824#       发表于 2022-8-1 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896900&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-1 17:21</a>
+
+这漫画后面剧情挺雷的，不过动画做不到就是了</blockquote>
+还有坛友看过原作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是个啥故事
+
+*****
+
+####  奥柏伦亲王  
+##### 1825#       发表于 2022-8-1 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">能接活，乐就行了，要啥自行车
+
+*****
+
+####  cybernetics31  
+##### 1826#       发表于 2022-8-1 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大西主役，可以啦
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1827#       发表于 2022-8-1 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896949&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 17:23</a>
+
+还有坛友看过原作啊，是个啥故事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">学校的神奇制度，需要男女住一起并且修夫妇点数，一开始男主喜欢女二，女主喜欢男二，结果男女主男女二被分到了一块，之后男女主日久生情的故事
+
+*****
+
+####  a92063256  
+##### 1828#       发表于 2022-8-1 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896949&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 17:23</a>
+
+还有坛友看过原作啊，是个啥故事</blockquote>
+群友截图的一个漫评标题“双向ntr，狗都嫌臭，细谈夫妇以上”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
