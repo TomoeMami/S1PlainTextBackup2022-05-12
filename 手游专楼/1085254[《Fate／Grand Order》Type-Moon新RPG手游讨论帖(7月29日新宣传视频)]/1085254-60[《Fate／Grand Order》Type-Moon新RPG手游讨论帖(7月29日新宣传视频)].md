@@ -14563,3 +14563,26 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上就到强化时间了。。。但是没什么意思
 
+
+
+*****
+
+####  alucardcz  
+##### 89836#       发表于 2022-8-1 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">枪大公。。
+
+*****
+
+####  qixinno2  
+##### 89837#       发表于 2022-8-1 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新发的100石不敢用了 公主 为什么不多来几个
+
+*****
+
+####  保罗赫伯特  
+##### 89838#       发表于 2022-8-1 17:06
+
+强化本最大的作用是挖矿攒石，对强化基本不抱什么大的期待了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
