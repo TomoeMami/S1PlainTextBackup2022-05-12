@@ -3817,3 +3817,17 @@ nako fc 9月1开放
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 1877#       发表于 2022-8-2 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56900590&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-1 22:13</a>
+基本不吃好吗，上5chan看看就知道了。声优肯定要帮着圆，难道还直播骂花田？
+说到这个，选的场景 ...</blockquote>
+我现在非常好奇第三集就四句台词，live甚至没特写的恋恋怎么吹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
