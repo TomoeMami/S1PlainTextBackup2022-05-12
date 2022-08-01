@@ -3855,3 +3855,27 @@ S2 OP和C/W曲完整版出了。
 叔叔主导的番有啥热门作品么，完全没印象。</blockquote>
 一些狗粮番吧，上季度阿波连啥的；还有去年7月的重置人生，热度还可以（超电、童园跟日本那边的feel社走得比较近）
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1880#       发表于 2022-8-2 00:51
+
+star宣言那首我好奇舞蹈要怎么安排<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 1881#       发表于 2022-8-2 00:59
+
+前三集的一些分镜、还有带新人去(一期同款)地区fes啥的，基本就是在套用一期可香的模板。
+
+然而这么套用是不对的：可香的成功我觉得和果海鸟基本一致，跨出第一步的“励志感/养成感”+以前没见过的“新鲜感”。然而星2这前三集，既谈不上新鲜，也谈不上养成。
+
+所以生搬硬套模板、不解决旧毛病，不但起不到多好的效果，还给可香党鞭尸了一顿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（倒是夏美看着反而有点新鲜，然而她应该要到本季中后期了；况且就算家里穷，卖惨翻车也容易难看，参考恋恋个人回）
+
+还是等下一集的红蓝吧，虽然现在看红蓝感觉有点别扭，但俩人间的谜之箭头多少还算有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
