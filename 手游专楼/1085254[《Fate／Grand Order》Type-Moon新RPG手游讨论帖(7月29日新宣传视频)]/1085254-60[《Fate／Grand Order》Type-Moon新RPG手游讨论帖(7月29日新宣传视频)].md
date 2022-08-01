@@ -14300,3 +14300,12 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 有个问题，前几天的日常任务不做拿不到礼装票了？
 
+
+
+*****
+
+####  千叶铁矢  
+##### 89816#       发表于 2022-8-1 08:45
+
+另外公主对队友0增伤，真就只能充np<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
