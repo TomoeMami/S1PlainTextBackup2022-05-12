@@ -2864,3 +2864,36 @@ Butterfly Wingはアイドル衣装というより舞台衣装のようなイメ
 
 鲤鱼应该不止这一个消息，毕竟这是面向国内的，后面应该还有重头戏
 
+
+
+*****
+
+####  仟音一心  
+##### 1783#       发表于 2022-8-1 12:20
+
+外文书店在黄浦区，那不远。
+
+*****
+
+####  lj205  
+##### 1784#       发表于 2022-8-1 12:24
+
+为啥不安排在国内A店都巡一遍，现在这个情况我真实是不想到处跑，只想苟在广州……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 1785#       发表于 2022-8-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56892057&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-1 11:43</a>
+
+下单匡威，希望不要太难穿</blockquote>
+经典款印了点花色上去，鞋楦之类的又没改，正常匡威帆布鞋水平，当然搭配看水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1786#       发表于 2022-8-1 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">消费500抽签名………………我还是不参加了……存点运气抽唠嗑才是正道，但是这吃相有点……………………
+

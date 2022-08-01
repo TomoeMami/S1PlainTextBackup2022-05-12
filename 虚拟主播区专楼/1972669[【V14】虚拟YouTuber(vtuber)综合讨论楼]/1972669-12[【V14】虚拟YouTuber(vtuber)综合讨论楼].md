@@ -2069,3 +2069,36 @@ lz第二年输的这个对手也太假D了，这内野和投手水平明明是B�
 不过lz输这一场秋天如果不能赢进春甲第二年强 ...</blockquote>
 输的其实算正常吧，别人每个人都比你强然后还打不过你这种事情连续发生肯定不可能啊，社长西西也能那是因为有魔物，皇女一个魔物没有硬打成这样我都觉得很离谱了，只能说现在回归正常了吧，真要说不悯主要也就是这个评价d，导致输了会扣挺多评价的，但社长也输了两次c其实也差不多，现在总评最领先的应该是king，不出意外春甲预选赢了应该就强豪了，不过皇女要是进了神宫也有机会，感觉第一梯队其实差距也没多大的
 
+
+
+*****
+
+####  free  
+##### 16683#       发表于 2022-8-1 12:25
+
+ 本帖最后由 free 于 2022-8-1 12:30 编辑 
+
+[https://twitter.com/KizunaAIinc/status/1553908373816389632](https://twitter.com/KizunaAIinc/status/1553908373816389632)
+
+キズナアイSNSアカウントの運用再開についてのご報告
+
+Notice: Kizuna AI-related social media accounts will resume operations
+
+关于Kizuna AI账号运营重启的说明
+
+<img src="https://img.saraba1st.com/forum/202208/01/122946ishzlj0snsflhees.png" referrerpolicy="no-referrer">
+
+<strong>ai.png</strong> (52.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202208/01/122538g4yx8dm8d4oyqjqo.png" referrerpolicy="no-referrer">
+
+<strong>ai.png</strong> (52.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-1 12:25 上传
+
