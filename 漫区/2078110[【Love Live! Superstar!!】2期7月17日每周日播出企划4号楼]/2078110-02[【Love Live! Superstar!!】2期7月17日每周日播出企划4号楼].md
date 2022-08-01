@@ -3831,3 +3831,15 @@ nako fc 9月1开放
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 1878#       发表于 2022-8-2 00:31
+
+S2 OP和C/W曲完整版出了。
+听了完整版还是感觉op编的太平淡了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">反倒感觉C/W还有点巧思
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
