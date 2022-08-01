@@ -14318,3 +14318,15 @@ JFK48<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refer
 
 fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定为常置吗？多点一下感觉更累<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 89818#       发表于 2022-8-1 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56888983&amp;ptid=1085254" target="_blank">在海岸 发表于 2022-8-1 08:37</a>
+
+有个问题，前几天的日常任务不做拿不到礼装票了？</blockquote>
+任务还在
+
