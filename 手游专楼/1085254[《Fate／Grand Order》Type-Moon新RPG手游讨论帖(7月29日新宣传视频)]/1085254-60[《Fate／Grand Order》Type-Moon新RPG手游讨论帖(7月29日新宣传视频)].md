@@ -15190,3 +15190,31 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 这绿卡改的还行。。。这几天用得感觉
 
+
+
+*****
+
+####  exiaexa  
+##### 89898#       发表于 2022-8-1 20:48
+
+我就想知道狗萌新当初是怎么刷20e的
+
+我定了个10e的目标给泳装，进展不到1/10已经想吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89899#       发表于 2022-8-1 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899511&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 20:48</a>
+
+我就想知道狗萌新当初是怎么刷20e的
+
+我定了个10e的目标给泳装，进展不到1/10已经想吐了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了  不只20e 大概30 40e  
+
+你又没动力 我是刷羁绊等着抽卡呢
+
