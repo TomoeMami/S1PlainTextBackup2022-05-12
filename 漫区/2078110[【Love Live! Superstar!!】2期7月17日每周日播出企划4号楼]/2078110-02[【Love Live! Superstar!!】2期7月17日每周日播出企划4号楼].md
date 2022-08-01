@@ -3305,3 +3305,42 @@ nagi自己整活吧
 还有坛友看过原作啊，是个啥故事</blockquote>
 群友截图的一个漫评标题“双向ntr，狗都嫌臭，细谈夫妇以上”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1829#       发表于 2022-8-1 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，好家伙，看来这番是低分预定了
+
+*****
+
+####  starring  
+##### 1830#       发表于 2022-8-1 17:37
+
+动画便宜就便宜吧，能出三单总归是好事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 1831#       发表于 2022-8-1 17:37
+
+草，这么烂，果然指望不上，总之有新单发布就行，Ed不知道是谁
+
+*****
+
+####  优妮可  
+##### 1832#       发表于 2022-8-1 17:38
+
+比奇幻怪盗高就算成功
+
+*****
+
+####  Enakina  
+##### 1833#       发表于 2022-8-1 17:40
+
+<img src="https://p.sda1.dev/6/1bddaa3405ca4355fdb96ebc73fd9970/CMP_20220801173956391.jpg" referrerpolicy="no-referrer">
+

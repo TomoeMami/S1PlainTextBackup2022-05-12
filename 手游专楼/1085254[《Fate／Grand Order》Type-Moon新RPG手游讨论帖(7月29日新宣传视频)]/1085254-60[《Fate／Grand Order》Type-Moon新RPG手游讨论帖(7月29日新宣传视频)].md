@@ -14685,3 +14685,22 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 好羡慕磁场癫佬可以发癫 我就只能发出败犬的哀嚎
 
+
+
+*****
+
+####  alucardcz  
+##### 89849#       发表于 2022-8-1 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896835&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 17:17</a>
+
+我11点连8月的5呼符都扔进去了 真的届不到啊 放弃了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才5护符  你还有100石+10护肤呢
+
+*****
+
+####  quanlix  
+##### 89850#       发表于 2022-8-1 17:38
+
+公主都来了，呆毛也差不多该把阿瓦隆掏出来了吧，3星剑就奶个贝狄威尔好了
+
