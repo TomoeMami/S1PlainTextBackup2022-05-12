@@ -3406,3 +3406,41 @@ nagi自己整活吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  竹筷  
+##### 1841#       发表于 2022-8-1 18:02
+
+有歌听就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 1842#       发表于 2022-8-1 18:02
+
+ 本帖最后由 lj205 于 2022-8-1 18:03 编辑 
+
+重点是有新歌听，tie只是个工具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+希望是燃曲啦
+
+*****
+
+####  竹筷  
+##### 1843#       发表于 2022-8-1 18:03
+
+风怒了
+
+*****
+
+####  ads147147  
+##### 1844#       发表于 2022-8-1 18:07
+
+有活就好，至于是什么动画，真的不能多期待。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

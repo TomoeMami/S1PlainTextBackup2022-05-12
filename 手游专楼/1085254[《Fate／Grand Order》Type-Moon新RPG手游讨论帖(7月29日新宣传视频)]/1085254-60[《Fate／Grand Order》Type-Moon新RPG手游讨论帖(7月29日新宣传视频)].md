@@ -14783,3 +14783,35 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 说起来， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒  要是狂 那可能真的就是红卡之神了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 89859#       发表于 2022-8-1 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897444&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 17:55</a>
+
+醒醒  要是狂 那可能真的就是红卡之神了</blockquote>
+摩根的狂阶和20充能+妖兰的100自冲，红卡的集大成者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89860#       发表于 2022-8-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897300&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 17:46</a>
+
+你也配叫非洲人？ 你不配！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我哪不配非洲人了
+
+*****
+
+####  alucardcz  
+##### 89861#       发表于 2022-8-1 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897627&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 18:08</a>
+
+我哪不配非洲人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一眼盒子的入手顺  配吗！
+
