@@ -2720,3 +2720,29 @@ Liella要多打拉扯，拉扯知道吗？
 
 话说高中生自己开不了fx口座的，ceo这设定很受限啊
 
+
+
+*****
+
+####  ads147147  
+##### 1769#       发表于 2022-8-1 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56887768&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-1 01:47</a>
+这季动画目前个人就对夏美的观感好点   但想到她后面的剧情多半还是那一套就越追越没劲 点名批评香 ...</blockquote>
+隔壁那句“香音失去自信力了吗？”笑了我大半天。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 1770#       发表于 2022-8-1 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56888239&amp;ptid=2078110" target="_blank">dd950728 发表于 2022-8-1 04:24</a>
+设定里有说过CEO家境吗？不会复刻nicoX堇吧
+
+家里没钱只能当youtuber挣钱养家，被鸽了韭菜还得打工挣钱，为 ...</blockquote>
+我只能说，ceo能保住自己爹妈就算赢。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
