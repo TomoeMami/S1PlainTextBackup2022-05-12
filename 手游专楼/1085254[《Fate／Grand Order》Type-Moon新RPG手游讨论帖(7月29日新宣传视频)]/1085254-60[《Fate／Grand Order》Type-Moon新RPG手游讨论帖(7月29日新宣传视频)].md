@@ -15441,3 +15441,70 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现就剩21个圣杯了，感觉都没怎么用，摩根也才刚103…开了3个技能结果硬币都不够升到120了
 
+
+
+*****
+
+####  alucardcz  
+##### 89921#       发表于 2022-8-1 23:31
+
+ 本帖最后由 alucardcz 于 2022-8-1 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901482&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-1 23:29</a>
+
+才发现就剩21个圣杯了，感觉都没怎么用，摩根也才刚103…开了3个技能结果硬币都不够升到120了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你摩根几宝？  3宝1x羁绊才能120  你这么欧的吗  
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外3个技能全开的情况要6宝才能120
+
+*****
+
+####  霧谷藤乃  
+##### 89922#       发表于 2022-8-1 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901498&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 23:31</a>
+
+你摩根几宝？  3宝1x羁绊才能120  你这么欧的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去年在水巴沉船/C呆沉船后怒买的一个5宝摩根初始继续玩的，买来的时候孔明已经因为不知名原因被店家咔了
+
+*****
+
+####  alucardcz  
+##### 89923#       发表于 2022-8-1 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901534&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-1 23:35</a>
+
+我去年在水巴沉船/C呆沉船后怒买的一个5宝摩根初始继续玩的，买来的时候孔明已经因为不知名原因被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你寄了  3技能120要6宝才行 没事乱开什么技能（
+
+*****
+
+####  areklose  
+##### 89924#       发表于 2022-8-1 23:37
+
+<blockquote>alucardcz 发表于 2022-8-1 23:25
+你自己买礼品卡啊  1k 50不到</blockquote>
+锁区了，懒得折腾了。简直戒氪
+
+*****
+
+####  霧谷藤乃  
+##### 89925#       发表于 2022-8-1 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901539&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 23:35</a>
+
+那你寄了  3技能120要6宝才行 没事乱开什么技能（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这设置这么不合理么，当初想着120太遥远也没算那么多
+
+*****
+
+####  alucardcz  
+##### 89926#       发表于 2022-8-1 23:38
+
+ 本帖最后由 alucardcz 于 2022-8-1 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901565&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-1 23:37</a>
+
+这设置这么不合理么，当初想着120太遥远也没算那么多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看我前面福袋要摩根或者狂娜就是为了120级  开一个np+120 得3宝才行
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">等一个8周年从者通用硬币了
+
