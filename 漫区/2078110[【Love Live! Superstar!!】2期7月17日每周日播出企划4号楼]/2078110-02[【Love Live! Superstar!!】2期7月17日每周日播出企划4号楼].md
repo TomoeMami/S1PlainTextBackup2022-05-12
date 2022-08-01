@@ -3558,3 +3558,17 @@ nako fc 9月1开放
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1857#       发表于 2022-8-1 19:14
+
+ 本帖最后由 aoaoaodedede 于 2022-8-1 19:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898348&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-1 19:07</a>
+流水线作品不用期待什么的，反倒是oped倒是有可能让些新人崭露头角，反而可以期待。
+
+—— 来自 Xiaomi 2 ...</blockquote>
+那倒确实，热门的番看不上你，原创怕不是也得看事务所有没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
