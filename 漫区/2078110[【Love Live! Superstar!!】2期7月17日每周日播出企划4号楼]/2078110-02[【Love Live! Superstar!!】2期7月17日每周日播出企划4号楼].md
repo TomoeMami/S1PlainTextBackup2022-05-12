@@ -2979,3 +2979,15 @@ Butterfly Wingはアイドル衣装というより舞台衣装のようなイメ
 
 nagi自己整活吧
 
+
+
+*****
+
+####  a92063256  
+##### 1794#       发表于 2022-8-1 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56892747&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-1 12:24</a>
+
+为啥不安排在国内A店都巡一遍，现在这个情况我真实是不想到处跑，只想苟在广州…… ...</blockquote>
+看微博好像广州a店也有的
+
