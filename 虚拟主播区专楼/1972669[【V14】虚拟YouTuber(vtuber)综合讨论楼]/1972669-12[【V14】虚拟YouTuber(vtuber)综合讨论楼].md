@@ -2150,3 +2150,20 @@ maria的口音和声线都很好玩，但为什么这么喜欢打枪<img src="ht
 
 郡道美玲二连TOP屹立于神域麻将之巅！最近两周麻将运不得了惹，希望维持久一点
 
+
+
+*****
+
+####  fastary  
+##### 16688#       发表于 2022-8-1 21:19
+
+28号：ymn你回魂别这么快啊，我还想沉浸在黑客只是又摸了的错觉里久一会儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+进入8月：快进到ymn套皮好吗<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+syl
+
+去听了渡会云雀的歌回，感想是目前有限补的几次歌回录播好像没听过高音唱得很完美的男v<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+偶尔会有要跑不跑和要破不破的感觉，不过氛围上听着水平还是很不错的，不知道是不是听说前世开过live所以有“这人肯定唱的很好”的滤镜
+
