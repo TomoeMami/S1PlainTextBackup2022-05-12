@@ -3843,3 +3843,15 @@ S2 OP和C/W曲完整版出了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Skyline_R  
+##### 1879#       发表于 2022-8-2 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899205&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-1 20:20</a>
+
+叔叔主导的番有啥热门作品么，完全没印象。</blockquote>
+一些狗粮番吧，上季度阿波连啥的；还有去年7月的重置人生，热度还可以（超电、童园跟日本那边的feel社走得比较近）
+
