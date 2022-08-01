@@ -14470,3 +14470,15 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 深受打击</blockquote>
 好红啊……我同学昨天也发给我看出了三黄，两个公主一个月神，我吐血了
 
+
+
+*****
+
+####  exiaexa  
+##### 89828#       发表于 2022-8-1 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56894242&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-8-1 14:22</a>
+好红啊……我同学昨天也发给我看出了三黄，两个公主一个月神，我吐血了 ...</blockquote>
+这种时候当然是真诚的祝愿他泳装还债啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
