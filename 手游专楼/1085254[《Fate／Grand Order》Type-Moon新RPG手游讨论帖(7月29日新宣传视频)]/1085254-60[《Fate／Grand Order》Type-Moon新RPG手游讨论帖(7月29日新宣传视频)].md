@@ -15508,3 +15508,17 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">等一个8周年从者通用硬币了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89927#       发表于 2022-8-1 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901577&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 23:38</a>
+
+你看我前面福袋要摩根或者狂娜就是为了120级  开一个np+120 得3宝才行
+
+等一个8周年从者通 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不怕，按我的懒度，怕不是出了通用硬币还没喂到110
+
