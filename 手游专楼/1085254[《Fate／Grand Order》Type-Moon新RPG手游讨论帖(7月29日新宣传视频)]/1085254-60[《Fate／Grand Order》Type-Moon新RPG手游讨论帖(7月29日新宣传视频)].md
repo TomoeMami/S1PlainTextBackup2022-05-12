@@ -14457,3 +14457,16 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 好在是纯靠周年各种送的800多石 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样的石头为什么我才1宝 这合理吗
 
+
+
+*****
+
+####  angelooo  
+##### 89827#       发表于 2022-8-1 14:22
+
+<blockquote>gpx234mqx 发表于 2022-8-1 11:51
+看看人家
+
+深受打击</blockquote>
+好红啊……我同学昨天也发给我看出了三黄，两个公主一个月神，我吐血了
+
