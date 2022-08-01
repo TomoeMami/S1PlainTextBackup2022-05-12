@@ -2897,3 +2897,32 @@ Butterfly Wingはアイドル衣装というより舞台衣装のようなイメ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">消费500抽签名………………我还是不参加了……存点运气抽唠嗑才是正道，但是这吃相有点……………………
 
+
+
+*****
+
+####  仟音一心  
+##### 1787#       发表于 2022-8-1 12:34
+
+ちょこっとリエラ～Welcome♪新入生編～
+
+第五话「大きいクワガタ、つかまえた」 
+
+<img src="https://img.saraba1st.com/forum/202208/01/123349ktv8rvbhi47tyiqq.png" referrerpolicy="no-referrer">
+
+<strong>C48F9776-70F2-49C5-A421-F47C9DEE936F.png</strong> (158.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-1 12:33 上传
+
+*****
+
+####  仟音一心  
+##### 1788#       发表于 2022-8-1 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56892684&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-1 12:20</a>
+外文书店在黄浦区，那不远。</blockquote>
+如果楼里有想买周边的我可以代购下，反正我不会离开上海。
+
