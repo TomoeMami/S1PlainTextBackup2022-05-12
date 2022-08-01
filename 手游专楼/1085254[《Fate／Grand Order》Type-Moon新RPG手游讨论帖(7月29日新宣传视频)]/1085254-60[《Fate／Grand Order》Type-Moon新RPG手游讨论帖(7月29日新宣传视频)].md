@@ -14868,3 +14868,18 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">我又不厨月姬我抽个鬼啊……
 
+
+
+*****
+
+####  ネロ  
+##### 89866#       发表于 2022-8-1 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56893126&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 12:51</a>
+
+同样的石头为什么我才1宝 这合理吗</blockquote>感觉是因为我游戏时间少了
+
+今年废狗抽卡运确实有点好，之前捞个妖崔莫名其妙五宝了C呆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的去抽了的，也就君十一和曲亭马琴沉了
+
