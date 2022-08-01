@@ -3061,3 +3061,15 @@ nagi自己整活吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1801#       发表于 2022-8-1 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56893933&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 13:58</a>
+
+话说鲤鱼今天的好消息不会只有A店这个吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">推特都发了不可能只有这边把
+
