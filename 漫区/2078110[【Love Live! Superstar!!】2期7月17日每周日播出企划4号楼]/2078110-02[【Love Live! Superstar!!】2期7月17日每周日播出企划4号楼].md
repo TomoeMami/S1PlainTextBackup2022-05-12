@@ -3753,3 +3753,19 @@ nako fc 9月1开放
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1871#       发表于 2022-8-1 22:38
+
+说起来，一期动画属实是把“三集定律”玩明白了，那三集的展开多好啊，说真的就中心点的可香俩人给我的感觉也是很舒服的。个人观点，一期第3集与二期第3集相比，从“输”这一点来说，我是觉得一期3集要合理不少。有句难听的话我还是想说，一期用三集可香把人骗进来，之后的剧情几乎形同平行宇宙，还不忘时不时给可香推的伤口上撒撒盐，真的就挺无语的。现在真的挺好奇一期动画前三集是怎么弄出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 1872#       发表于 2022-8-1 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打xb3拖到现在才看了第三集，看的时候有很多想说的，看完了又不太想说了。就是这个香音传真的别拍了，我都不想数香音受挫再振作几轮了。
+

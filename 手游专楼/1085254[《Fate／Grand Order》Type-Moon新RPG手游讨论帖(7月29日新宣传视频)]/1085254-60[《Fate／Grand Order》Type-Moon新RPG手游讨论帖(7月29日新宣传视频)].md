@@ -15323,3 +15323,15 @@ np红绿蓝
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么叔叔给我推送的测公主伤害的视频都喜欢挂2个狐狸2技能特意找个触发特攻的本测试   这脑子是不是。有点问题
 
+
+
+*****
+
+####  gpx234mqx  
+##### 89908#       发表于 2022-8-1 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898835&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 19:47</a>
+
+只能说唯一神刀法太屌了 2技能要是6CD简直无敌了 艹TMD唯一神</blockquote>
+等一张减CD礼装，会不会出呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
