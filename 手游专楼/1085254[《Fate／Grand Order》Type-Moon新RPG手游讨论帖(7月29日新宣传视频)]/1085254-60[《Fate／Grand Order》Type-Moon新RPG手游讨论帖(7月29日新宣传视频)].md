@@ -14883,3 +14883,19 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 真的去抽了的，也就君十一和曲亭马琴沉了
 
+
+
+*****
+
+####  rooarr  
+##### 89867#       发表于 2022-8-1 19:02
+
+二宝公主能6加成打qp本第一面，我居然觉得还不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 89868#       发表于 2022-8-1 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一宝也行 可以自出公主和那四星伪装者借哈贝喵6加成
+

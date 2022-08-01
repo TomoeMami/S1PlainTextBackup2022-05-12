@@ -3545,3 +3545,16 @@ nako fc 9月1开放
 一层全删了</blockquote>
 好，麻烦了
 
+
+
+*****
+
+####  ads147147  
+##### 1856#       发表于 2022-8-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897658&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-1 18:10</a>
+逛了逛bgm，看了看Staff，动画是做平职的studio MOTHER负责的，然后它这个总导演加户誉夫是studio MOTHER的 ...</blockquote>
+流水线作品不用期待什么的，反倒是oped倒是有可能让些新人崭露头角，反而可以期待。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
