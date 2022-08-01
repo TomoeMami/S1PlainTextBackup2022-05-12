@@ -14586,3 +14586,93 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 强化本最大的作用是挖矿攒石，对强化基本不抱什么大的期待了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89839#       发表于 2022-8-1 17:10
+
+ 本帖最后由 Jamaisvu 于 2022-8-1 17:14 编辑 
+
+杰基尔三技能自己变容，在暴击基础上新增获得80自充。
+
+枪大公二技能恶魔军略，全体3t20宝威，20红放，3t•5次自身受到伤害时敌方降防3t10%​。
+
+枪大公可能在多核队有点用...算了，感觉是厨力强化。
+
+杰基尔这个倒是不错，配合NP被动可以一回合变身，礼装从满破宝石换成提升红暴类的东西。
+
+（其实我觉得他更需要一个宝具本，让海德也能放宝具...要不三红都凑不出来...）
+
+*****
+
+####  qixinno2  
+##### 89840#       发表于 2022-8-1 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次五星剑怎么看都应该把棉被王的一技能强化下吧
+
+*****
+
+####  kiralzb  
+##### 89841#       发表于 2022-8-1 17:13
+
+现在还有自动刷本脚本，感觉打开了新世界<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 89842#       发表于 2022-8-1 17:13
+
+枪大公:等一个50np活动，90+本xx1关底教授，定让他有来无回
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89843#       发表于 2022-8-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896593&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 17:05</a>
+
+新发的100石不敢用了 公主 为什么不多来几个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看前面的楼 100石够满宝了  你又不是萌新这种纯强度党  真爱还不赶紧all in
+
+*****
+
+####  eyeego  
+##### 89844#       发表于 2022-8-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896720&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-8-1 17:12</a>
+这次五星剑怎么看都应该把棉被王的一技能强化下吧</blockquote>
+看一下8.6那天up谁还不清楚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89845#       发表于 2022-8-1 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896785&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-8-1 17:14</a>
+
+看一下8.6那天up谁还不清楚吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家想到的 舍弃
+
+*****
+
+####  qixinno2  
+##### 89846#       发表于 2022-8-1 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896784&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 17:14</a>
+
+看看前面的楼 100石够满宝了  你又不是萌新这种纯强度党  真爱还不赶紧all in ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我11点连8月的5呼符都扔进去了 真的届不到啊 放弃了
+
+*****
+
+####  qixinno2  
+##### 89847#       发表于 2022-8-1 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56896785&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-8-1 17:14</a>
+
+看一下8.6那天up谁还不清楚吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 难道之前的大象输的还不够彻底么
+
