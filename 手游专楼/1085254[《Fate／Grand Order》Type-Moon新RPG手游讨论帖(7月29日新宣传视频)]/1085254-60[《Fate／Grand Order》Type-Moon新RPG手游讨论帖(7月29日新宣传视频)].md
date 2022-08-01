@@ -15218,3 +15218,52 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 
 你又没动力 我是刷羁绊等着抽卡呢
 
+
+
+*****
+
+####  exiaexa  
+##### 89900#       发表于 2022-8-1 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899532&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 20:49</a>
+
+想少了  不只20e 大概30 40e  
+
+你又没动力 我是刷羁绊等着抽卡呢</blockquote>
+证明了，人只有在被逼急的时候才会变得坚强
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89901#       发表于 2022-8-1 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899701&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 21:01</a>
+
+证明了，人只有在被逼急的时候才会变得坚强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至当时把几件衣服经验都刷满了 你也知道我无限池都不过40 好多衣服都没满
+
+*****
+
+####  exiaexa  
+##### 89902#       发表于 2022-8-1 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899234&amp;ptid=1085254" target="_blank">areklose 发表于 2022-8-1 20:23</a>
+
+这绿卡改的还行。。。这几天用得感觉</blockquote>
+与其说绿卡改得还行，不如说三色chain+染色ex太强了，如果被动强化过ex更爆炸
+
+现在除非是个别特殊情况，常规单挑肯定是优先三色chain了
+
+*****
+
+####  alucardcz  
+##### 89903#       发表于 2022-8-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899783&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-1 21:07</a>
+
+与其说绿卡改得还行，不如说三色chain+染色ex太强了，如果被动强化过ex更爆炸
+
+现在除非是个别特殊情况， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是意味着以后圣杯战线要常开了 不然谁打ex啊
+
