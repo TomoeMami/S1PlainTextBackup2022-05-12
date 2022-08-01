@@ -3712,3 +3712,16 @@ nako fc 9月1开放
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  adw667  
+##### 1868#       发表于 2022-8-1 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899804&amp;ptid=2078110" target="_blank">AlfredXC 发表于 2022-8-1 21:08</a>
+
+草，liella这是什么cjb，粉丝嘴里虚空夺冠，结果被初中生薄纱</blockquote>
+特别是第一集刚吹完水平高结果到了第三集自己血条没亮呢就没了这什么青铜王者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+把锅甩给新生我是认可的，建议这位还是去东方声剧圈子锻炼锻炼
+
