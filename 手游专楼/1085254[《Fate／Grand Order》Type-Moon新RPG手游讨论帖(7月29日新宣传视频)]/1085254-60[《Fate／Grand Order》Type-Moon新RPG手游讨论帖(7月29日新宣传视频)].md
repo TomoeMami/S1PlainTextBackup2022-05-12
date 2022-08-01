@@ -14330,3 +14330,15 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 有个问题，前几天的日常任务不做拿不到礼装票了？</blockquote>
 任务还在
 
+
+
+*****
+
+####  在海岸  
+##### 89819#       发表于 2022-8-1 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56889609&amp;ptid=1085254" target="_blank">areklose 发表于 2022-8-1 09:26</a>
+
+任务还在</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">但是他要求是完成7/30的任务，不知道怎么完成了
+
