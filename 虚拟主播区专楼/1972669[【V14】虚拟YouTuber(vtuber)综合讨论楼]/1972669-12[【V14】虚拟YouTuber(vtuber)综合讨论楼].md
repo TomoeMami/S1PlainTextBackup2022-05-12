@@ -2112,3 +2112,32 @@ Notice: Kizuna AI-related social media accounts will resume operations
 现在cv本家也没几个特别火的吧。
 除了神椿砸钱的那几次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高等黑暗  
+##### 16685#       发表于 2022-8-1 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56891398&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-1 11:05</a>
+
+输的其实算正常吧，别人每个人都比你强然后还打不过你这种事情连续发生肯定不可能啊，社长西西也能那是因 ...</blockquote>
+并不是说输了不正常
+
+只是说这个学校给个D评价太不正常了
+
+我2020玩了50年以上从没见过D评价学校有超过400星的非转生投手+野手
+
+其他位置平均值也非常高，你看lz自己的学校强度评价就是给的D级（并且是六边形比较圆满的强D），整体星比对面低了多少
+
+但是2022这种情况就经常出现，所以我怀疑是系统内的赛前评价升降级系统根本没正常作用
+
+经常有我赛前看是B级，进比赛降到C，打开属性一看明明在B里也算是强B
+
+*****
+
+####  pikamee  
+##### 16686#       发表于 2022-8-1 15:47
+
+maria的口音和声线都很好玩，但为什么这么喜欢打枪<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
