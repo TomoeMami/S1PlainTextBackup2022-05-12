@@ -15124,3 +15124,44 @@ fgo 也很久没玩了，这个放技能时按一下屏幕再加速不能设定�
 你3面能打13万？我怎么打不出来勉强11万左右，配置一样的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超13万了  你王姐几包？ 衣服技能开了吗
 
+
+
+*****
+
+####  rooarr  
+##### 89891#       发表于 2022-8-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56898971&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-1 19:58</a>
+
+超13万了  你王姐几包？ 衣服技能开了吗</blockquote>
+什么年代了，怎么还开衣服技能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个数据太水了，除了衣服跟你都一样
+
+*****
+
+####  alucardcz  
+##### 89892#       发表于 2022-8-1 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899028&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-8-1 20:02</a>
+
+什么年代了，怎么还开衣服技能的你这个数据太水了，除了衣服跟你都一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去看看不开衣服技能
+
+*****
+
+####  gpx234mqx  
+##### 89893#       发表于 2022-8-1 20:05
+
+公主双摩根三黑圣杯能无拐打爆一切周回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要啥红拐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 89894#       发表于 2022-8-1 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56899028&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-8-1 20:02</a>
+
+什么年代了，怎么还开衣服技能的你这个数据太水了，除了衣服跟你都一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了  不开衣服技能不太行 会剩丝血   但是我羁绊钱本的礼装都是10几级左右的  你可以带件有攻击力的说不定就打暴了
+

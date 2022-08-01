@@ -3572,3 +3572,12 @@ nako fc 9月1开放
 —— 来自 Xiaomi 2 ...</blockquote>
 那倒确实，热门的番看不上你，原创怕不是也得看事务所有没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 1858#       发表于 2022-8-1 20:07
+
+想要原创番，可能得靠叔叔这边？现在是阿b投资的番剧容易过审吗？
+
