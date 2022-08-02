@@ -15757,3 +15757,22 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 肯定是水到3000页再开新楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 89947#       发表于 2022-8-2 09:41
+
+qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是狗粮本，我终于找了个公主适合的位置，就是宝具动画都有点长
+<img src="https://s1.328888.xyz/2022/08/02/Fd9GK.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 89948#       发表于 2022-8-2 09:43
+
+但是又说过来，qp本需要礼装加成，狗粮本并不需要，好像不如三宝石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

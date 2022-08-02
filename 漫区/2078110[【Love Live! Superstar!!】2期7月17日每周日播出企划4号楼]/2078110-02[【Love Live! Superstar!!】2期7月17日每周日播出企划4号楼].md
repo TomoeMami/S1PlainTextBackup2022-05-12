@@ -3901,3 +3901,17 @@ star宣言那首我好奇舞蹈要怎么安排<img src="https://static.saraba1st
 
 也是很好玩，花田说现在人基本不看动画画面只听声音，尤其是ll这种系列IP，然而他自己和京极的表现烂到所有人紧绷神经手持放大镜享受视听折磨。
 
+
+
+*****
+
+####  adw667  
+##### 1884#       发表于 2022-8-2 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901847&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-2 00:06</a>
+
+我现在非常好奇第三集就四句台词，live甚至没特写的恋恋怎么吹
+
+真的是折磨，我为什么要为了弹幕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看烂片不就是冲着弹幕去看的吗
+
