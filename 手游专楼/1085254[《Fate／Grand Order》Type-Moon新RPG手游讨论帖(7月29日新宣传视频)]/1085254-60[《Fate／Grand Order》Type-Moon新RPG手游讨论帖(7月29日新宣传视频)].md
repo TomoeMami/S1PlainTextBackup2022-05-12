@@ -15610,3 +15610,58 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 自选从者都是无限期的，为什么自选礼装就15天<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89937#       发表于 2022-8-2 08:21
+
+ 本帖最后由 Jamaisvu 于 2022-8-2 08:23 编辑 
+
+公主二技能是挺毒的，没法加入双兔体系作为红光炮3T清场...
+
+如果以后强化一下三技能，加一个“场地为千年城状态时，自身CD减一”就好了。
+
+（YLS：懂了，安排！——“千年城下，除自身以外的己方全体CD-1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”）
+
+不过100充能还是挺好用的，二宝了伤害也还行，我现在刷QP本直接满加成，操作相当简单，还不吃助战<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202208/02/081232f9ymgc1chy33ymg1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220802_080736_com.excean.gspace.jpg</strong> (511.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-2 08:12 上传
+
+一面一宝满NP被动的道满开三技能，都能打死。二面一宝开了一技能也会差一点，需要二宝...
+
+妖兰也能用，二宝的话二面应该没问题。
+
+<img src="https://img.saraba1st.com/forum/202208/02/081233aek00zkursc4rwz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220802_080810_com.excean.gspace.jpg</strong> (708.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-2 08:12 上传
+
+二面二宝白公主开一二技能，一炮清场。
+
+带道满的情况下，一宝伤害不够也许可以试试一三灵基，混沌属性能吃到道满三技能加成。（一破短发会变成中立善属性）
+
+<img src="https://img.saraba1st.com/forum/202208/02/081234vvv993yciclq99mp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220802_080837_com.excean.gspace.jpg</strong> (476.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-2 08:12 上传
+
+三面找个能50自充+NP被动升满的单体打手就行，我用的是100级2宝狂金时。
+
+骑金时、faker、克林希德之类的估计也行...
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">主要是R阶的哈贝喵和C阶带小蒙娜丽莎的C呆没法稳定找到，嫌麻烦就试着自组了下6加成+助战不上场的阵容，感觉还挺方便的。
+
