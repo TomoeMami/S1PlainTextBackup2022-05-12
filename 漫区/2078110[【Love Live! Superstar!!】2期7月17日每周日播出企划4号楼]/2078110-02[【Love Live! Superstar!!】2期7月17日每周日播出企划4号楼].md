@@ -3879,3 +3879,14 @@ star宣言那首我好奇舞蹈要怎么安排<img src="https://static.saraba1st
 
 还是等下一集的红蓝吧，虽然现在看红蓝感觉有点别扭，但俩人间的谜之箭头多少还算有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 1882#       发表于 2022-8-2 08:49
+
+现在怎么都在用嘴臭这词了，有点像是骂人
+
+印象中10年左右前的圈子里一般把这叫做毒舌，就感觉是一种属性而已，无所谓
+

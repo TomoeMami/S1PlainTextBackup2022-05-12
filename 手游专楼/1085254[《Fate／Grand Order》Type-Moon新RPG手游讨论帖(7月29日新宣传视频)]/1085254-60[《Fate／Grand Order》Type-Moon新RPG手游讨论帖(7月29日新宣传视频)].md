@@ -15679,3 +15679,27 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 双兔带减cd那件衣服就可以啊
 毒得是没办法带奥宝所以3面伤害可能会不够<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89939#       发表于 2022-8-2 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56903373&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-8-2 08:38</a>
+
+双兔带减cd那件衣服就可以啊
+
+毒得是没办法带奥宝所以3面伤害可能会不够 ...</blockquote>
+这个阵容我也用过，公主带黑杯的话能打不少本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但是我现在有决战服和总耶校服两身衣服没升满，就想换个不绑定衣服的阵容...
+
+不过我这个打法确实缺伤害，只适用于331的周常了。图省事的话还是挺实用的...
+
+*****
+
+####  exiaexa  
+##### 89940#       发表于 2022-8-2 08:47
+
+您们不对劲，qp本不是3宝石洗地就完了吗，咋还点这么多技能
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
