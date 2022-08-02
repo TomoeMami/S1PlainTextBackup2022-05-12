@@ -15980,3 +15980,15 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 才发现日服没抽到过小R姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89968#       发表于 2022-8-2 17:44
+
+安娜喜提30+20
+
+刷子……恭喜你打战线的时候三色chain效果提升20%
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
