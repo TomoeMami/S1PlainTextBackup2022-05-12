@@ -16001,3 +16001,56 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次最好笑的还是1星骑，只有那一个男人
 
+
+
+*****
+
+####  eilot  
+##### 89970#       发表于 2022-8-2 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908985&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-2 17:04</a>
+
+果然没有5星大家都不关注什么强化本了  太无聊了</blockquote>
+強化周後再來其他人新強化任務...
+
+上次都是這樣
+
+反正官方何時出強化都是看心情，有時候突然彈出，有時候配合活動將部份有關角色出強化本
+
+新幕間好像沒試過突然彈出，以前都是在幕間周推出?
+
+
+
+*****
+
+####  黑上シグマ  
+##### 89971#       发表于 2022-8-2 18:22
+
+贺，3000页！
+
+*****
+
+####  qixinno2  
+##### 89972#       发表于 2022-8-2 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908552&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-2 16:29</a>
+
+欧皇萌新这个称号该转让了 你看看那个q打头的今年抽了多少个5星（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡萌新又在污蔑我 我分明是抽干石头公主都没2宝的非洲人 那些轻松满宝的不比我狗得多
+
+*****
+
+####  霧谷藤乃  
+##### 89973#       发表于 2022-8-2 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷刷不如抽卡快乐多，刷了一会种火本就烦躁下线了
+
+*****
+
+####  霧谷藤乃  
+##### 89974#       发表于 2022-8-2 18:26
+
+ 本帖最后由 霧谷藤乃 于 2022-8-2 18:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭这怎么回事，突然就卡到爆风怒了
+
