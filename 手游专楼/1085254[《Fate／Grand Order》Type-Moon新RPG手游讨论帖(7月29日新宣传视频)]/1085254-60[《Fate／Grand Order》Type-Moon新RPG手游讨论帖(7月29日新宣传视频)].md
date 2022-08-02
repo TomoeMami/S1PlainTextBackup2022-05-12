@@ -15948,3 +15948,35 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89965#       发表于 2022-8-2 17:21
+
+刷子这个强化的技能名有点意思，从“骑士的武略”进化成“悲恋缭乱”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">女难之相也太惨了。
+
+刷子：我要成为最忠贞的骑士，女人什么的很碍事啊！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 89966#       发表于 2022-8-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56909189&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-8-2 17:17</a>
+
+按这架势三星术说不定真是杰罗尼莫
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+三个技能感觉都得强化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毫无特色...
+
+为了提高宝具输出先强化下二技能蓝魔放吧...
+
+*****
+
+####  保罗赫伯特  
+##### 89967#       发表于 2022-8-2 17:24
+
+才发现日服没抽到过小R姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
