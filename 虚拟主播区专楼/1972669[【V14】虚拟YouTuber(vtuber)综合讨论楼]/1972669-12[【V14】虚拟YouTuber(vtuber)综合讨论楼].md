@@ -2402,3 +2402,15 @@ kmt在crcup期间挺爽的，都是熟人
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫要是还不改他那比赛瞩目选手选slm的奇怪理解那荣冠没救
 当然比赛可以复刻地滑逆袭
 
+
+
+*****
+
+####  FCCHua  
+##### 16707#       发表于 2022-8-2 13:50
+
+ 本帖最后由 FCCHua 于 2022-8-2 13:56 编辑 
+
+hnn一直都很烦所谓cp厨的ky弹幕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+妹妹来了，主播更没办法下播睡觉了，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
