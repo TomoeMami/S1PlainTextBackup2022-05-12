@@ -15665,3 +15665,17 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">主要是R阶的哈贝喵和C阶带小蒙娜丽莎的C呆没法稳定找到，嫌麻烦就试着自组了下6加成+助战不上场的阵容，感觉还挺方便的。
 
+
+
+*****
+
+####  eyeego  
+##### 89938#       发表于 2022-8-2 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56903238&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-8-2 08:21</a>
+公主二技能是挺毒的，没法加入双兔体系作为红光炮3T清场...
+
+如果以后强化一下三技能，加一个“场地为千年城 ...</blockquote>
+双兔带减cd那件衣服就可以啊
+毒得是没办法带奥宝所以3面伤害可能会不够<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
