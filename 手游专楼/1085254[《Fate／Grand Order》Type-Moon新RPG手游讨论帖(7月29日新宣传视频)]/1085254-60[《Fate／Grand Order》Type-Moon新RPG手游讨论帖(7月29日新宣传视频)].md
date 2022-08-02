@@ -15821,3 +15821,21 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 2999怎样都要水到3000再换楼
 
+
+
+*****
+
+####  shinitakute  
+##### 89953#       发表于 2022-8-2 13:06
+
+现在日服石头号都已经5块钱3000石头了……
+
+买个抽得真爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89954#       发表于 2022-8-2 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得去年周年前基本上是带拐2700+石头吧，不保C呆，真要玩几个池子下去就没了，纯抽的话是很爽
+
