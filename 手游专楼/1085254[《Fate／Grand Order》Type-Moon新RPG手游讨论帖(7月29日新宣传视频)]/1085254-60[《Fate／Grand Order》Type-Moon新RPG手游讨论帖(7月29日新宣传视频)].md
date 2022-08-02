@@ -15839,3 +15839,19 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得去年周年前基本上是带拐2700+石头吧，不保C呆，真要玩几个池子下去就没了，纯抽的话是很爽
 
+
+
+*****
+
+####  Yason  
+##### 89955#       发表于 2022-8-2 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yason  
+##### 89956#       发表于 2022-8-2 14:52
+
+啊，才发现这是日服楼，我还以为我在逛国服，回错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
