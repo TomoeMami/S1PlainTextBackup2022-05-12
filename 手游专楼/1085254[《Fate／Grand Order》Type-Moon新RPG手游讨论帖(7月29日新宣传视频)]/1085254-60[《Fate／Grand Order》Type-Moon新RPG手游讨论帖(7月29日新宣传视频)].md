@@ -15992,3 +15992,12 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 刷子……恭喜你打战线的时候三色chain效果提升20%
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89969#       发表于 2022-8-2 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次最好笑的还是1星骑，只有那一个男人
+
