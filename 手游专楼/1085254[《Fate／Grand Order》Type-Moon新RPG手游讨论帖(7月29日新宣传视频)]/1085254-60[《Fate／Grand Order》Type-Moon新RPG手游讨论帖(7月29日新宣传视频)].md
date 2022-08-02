@@ -15855,3 +15855,15 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 啊，才发现这是日服楼，我还以为我在逛国服，回错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 89957#       发表于 2022-8-2 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56907506&amp;ptid=1085254" target="_blank">Yason 发表于 2022-8-2 14:52</a>
+啊，才发现这是日服楼，我还以为我在逛国服，回错了</blockquote>
+没事儿，你在为3000页贡献力量
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
