@@ -15928,3 +15928,12 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 试倒不用了，这肯定是欧皇萌新独有天赋 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇萌新这个称号该转让了 你看看那个q打头的今年抽了多少个5星（
 
+
+
+*****
+
+####  alucardcz  
+##### 89963#       发表于 2022-8-2 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然没有5星大家都不关注什么强化本了  太无聊了
+
