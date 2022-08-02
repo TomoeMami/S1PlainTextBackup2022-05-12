@@ -15900,3 +15900,31 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">跟你说  我半夜3点免费石单抽出货率极高  至少出了几十个5星了 你要不要也试试
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89961#       发表于 2022-8-2 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908386&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-2 16:13</a>
+
+你觉得呢 我抽福袋多余的石头就单抽了 结果当然无事发生
+
+跟你说  我半夜3点免费石单抽出货 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">相信你免费石单抽几十个五星
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试倒不用了，这肯定是欧皇萌新独有天赋
+
+*****
+
+####  alucardcz  
+##### 89962#       发表于 2022-8-2 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908528&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-2 16:27</a>
+
+相信你免费石单抽几十个五星
+
+试倒不用了，这肯定是欧皇萌新独有天赋 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇萌新这个称号该转让了 你看看那个q打头的今年抽了多少个5星（
+
