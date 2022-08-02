@@ -2380,3 +2380,25 @@ kmt在crcup期间挺爽的，都是熟人
 考虑到nzn前几天也突然做了kmt女友的匂わせ
 果然是失恋了吧
 
+
+
+*****
+
+####  Kokichi  
+##### 16705#       发表于 2022-8-2 11:53
+
+ 本帖最后由 Kokichi 于 2022-8-2 11:56 编辑 
+
+草，kmt忽然约上hnn一起fallguys了，**hnn肉眼可见情绪一下就好了
+以后我再发散oreapo我是傻逼
+
+*****
+
+####  winda  
+##### 16706#       发表于 2022-8-2 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56903358&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-2 08:36</a>
+早就说了king是夺冠热门的，当时第二年抽卡这么好竟然没什么人提全去注意那些红特去了，秋天开始果然一年级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫要是还不改他那比赛瞩目选手选slm的奇怪理解那荣冠没救
+当然比赛可以复刻地滑逆袭
+
