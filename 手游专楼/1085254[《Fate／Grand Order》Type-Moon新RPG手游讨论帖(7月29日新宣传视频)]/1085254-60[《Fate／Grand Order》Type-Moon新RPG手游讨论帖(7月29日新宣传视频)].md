@@ -15886,3 +15886,17 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">付费单抽这么强么，还是纯粹就是欧皇
 
+
+
+*****
+
+####  alucardcz  
+##### 89960#       发表于 2022-8-2 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908331&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-2 16:09</a>
+
+付费单抽这么强么，还是纯粹就是欧皇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得呢 我抽福袋多余的石头就单抽了 结果当然无事发生
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">跟你说  我半夜3点免费石单抽出货率极高  至少出了几十个5星了 你要不要也试试
+
