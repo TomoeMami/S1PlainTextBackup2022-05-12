@@ -16180,3 +16180,15 @@ tmd妖兰都出了1年了，给白枪出个宝具本怎么了嘛<img src="https:
 
 还有9000楼的名字，看看谁能抢到了。
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89988#       发表于 2022-8-2 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910333&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-8-2 19:00</a>
+
+还好我没去开  本来还想开小号开个楼 然后卡住了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">废狗3000页之日，泥潭抽风之时
+
