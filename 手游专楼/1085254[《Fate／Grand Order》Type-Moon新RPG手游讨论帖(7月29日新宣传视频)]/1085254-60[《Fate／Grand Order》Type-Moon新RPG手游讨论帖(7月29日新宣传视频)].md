@@ -15788,3 +15788,15 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/4122e8472c7ef4416970321b7fedda31/CMP_20220802095541843.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 89950#       发表于 2022-8-2 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56904216&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-2 09:57</a>
+那当然是快乐的0按键队啊
+进本就是个冲，15%加成不如多打一把</blockquote>
+我也想冲，赞助我一张宝石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
