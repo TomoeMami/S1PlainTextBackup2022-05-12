@@ -16054,3 +16054,44 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭这怎么回事，突然就卡到爆风怒了
 
+
+
+*****
+
+####  qixinno2  
+##### 89975#       发表于 2022-8-2 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910115&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-2 18:26</a>
+
+泥潭这怎么回事，突然就卡到爆风怒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3000页引发的BUG
+
+*****
+
+####  FrozenA  
+##### 89976#       发表于 2022-8-2 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3000页牛逼
+
+*****
+
+####  exiaexa  
+##### 89977#       发表于 2022-8-2 18:42
+
+所以你们谁有小号的出去开个新楼啊
+
+省得用主号天天被消息轰炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 89978#       发表于 2022-8-2 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56909267&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-8-2 17:22</a>
+
+三个技能感觉都得强化毫无特色...
+
+为了提高宝具输出先强化下二技能蓝魔放吧... ...</blockquote>
+强化一个没有特色，一个都不强化就很有特色了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
