@@ -16095,3 +16095,12 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 为了提高宝具输出先强化下二技能蓝魔放吧... ...</blockquote>
 强化一个没有特色，一个都不强化就很有特色了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 89979#       发表于 2022-8-2 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以开，估计是用小号了，因为我这号刚投了外野那个投票
+
