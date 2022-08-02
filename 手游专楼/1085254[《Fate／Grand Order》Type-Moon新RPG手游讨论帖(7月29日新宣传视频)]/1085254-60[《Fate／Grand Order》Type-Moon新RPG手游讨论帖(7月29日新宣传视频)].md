@@ -15703,3 +15703,39 @@ qp越刷越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 您们不对劲，qp本不是3宝石洗地就完了吗，咋还点这么多技能
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 89941#       发表于 2022-8-2 08:48
+
+ 本帖最后由 Jamaisvu 于 2022-8-2 08:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56903445&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-2 08:47</a>
+
+您们不对劲，qp本不是3宝石洗地就完了吗，咋还点这么多技能</blockquote>
+为了多穿点加成礼装...多拿点QP...老守财奴思想了...
+
+不过三宝石确实更方便...我如果技能点累了应该也会用这种阵容试试<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89942#       发表于 2022-8-2 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多核玩法一般人还是玩不起的吧
+
+*****
+
+####  霧谷藤乃  
+##### 89943#       发表于 2022-8-2 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  霧谷藤乃  
+##### 89944#       发表于 2022-8-2 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在翻页要多4层
+
