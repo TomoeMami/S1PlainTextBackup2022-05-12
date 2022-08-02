@@ -16221,3 +16221,12 @@ tmd妖兰都出了1年了，给白枪出个宝具本怎么了嘛<img src="https:
 
 但是7周年整这种活是嫌被喷得不够
 
+
+
+*****
+
+####  里村紅葉  
+##### 89992#       发表于 2022-8-2 23:55
+
+WYS：我们这次全都强化单体宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
