@@ -15800,3 +15800,24 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 进本就是个冲，15%加成不如多打一把</blockquote>
 我也想冲，赞助我一张宝石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 89951#       发表于 2022-8-2 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56904216&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-2 09:57</a>
+
+那当然是快乐的0按键队啊
+
+进本就是个冲，15%加成不如多打一把</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人没有3张满破宝石，只能全加成刷
+
+*****
+
+####  khxooo  
+##### 89952#       发表于 2022-8-2 10:48
+
+2999怎样都要水到3000再换楼
+
