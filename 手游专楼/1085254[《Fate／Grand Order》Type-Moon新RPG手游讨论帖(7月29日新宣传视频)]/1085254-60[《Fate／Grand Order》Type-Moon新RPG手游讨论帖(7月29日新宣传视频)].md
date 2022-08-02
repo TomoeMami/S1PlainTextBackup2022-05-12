@@ -15867,3 +15867,22 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 没事儿，你在为3000页贡献力量
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 89958#       发表于 2022-8-2 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56907490&amp;ptid=1085254" target="_blank">Yason 发表于 2022-8-2 14:50</a>
+
+这个每日一付费石概率是一样的吗，我new一个杀狐抽了五百石头，昨天一个付费石出了个狂塔，今天杀狐 ...</blockquote>
+一样的 我付费单抽出过暗狐、皇女、特总、布妹、卑弥呼、曲亭马琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 89959#       发表于 2022-8-2 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">付费单抽这么强么，还是纯粹就是欧皇
+
