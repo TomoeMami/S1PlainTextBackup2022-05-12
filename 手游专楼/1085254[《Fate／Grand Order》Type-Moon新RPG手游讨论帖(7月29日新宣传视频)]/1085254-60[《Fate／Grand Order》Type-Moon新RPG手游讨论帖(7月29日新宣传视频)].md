@@ -15937,3 +15937,14 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然没有5星大家都不关注什么强化本了  太无聊了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 89964#       发表于 2022-8-2 17:17
+
+按这架势三星术说不定真是杰罗尼莫
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
