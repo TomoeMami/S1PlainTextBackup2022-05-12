@@ -16104,3 +16104,68 @@ qp本还有比双哈贝喵faker更简单的队伍吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以开，估计是用小号了，因为我这号刚投了外野那个投票
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 89980#       发表于 2022-8-2 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面俩用哪栋？
+
+*****
+
+####  FrozenA  
+##### 89981#       发表于 2022-8-2 18:57
+
+这个强化，两个金枪都是四星的时候我就已经痿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+tmd妖兰都出了1年了，给白枪出个宝具本怎么了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天120级刷狗粮
+
+*****
+
+####  alucardcz  
+##### 89982#       发表于 2022-8-2 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910319&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-8-2 18:57</a>
+
+外面俩用哪栋？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我没去开  本来还想开小号开个楼 然后卡住了
+
+*****
+
+####  黑上シグマ  
+##### 89983#       发表于 2022-8-2 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910212&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-8-2 18:42</a>
+
+所以你们谁有小号的出去开个新楼啊
+
+省得用主号天天被消息轰炸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么？你竟不知道发主题可以把回复提醒关掉的吗？
+
+*****
+
+####  黑上シグマ  
+##### 89984#       发表于 2022-8-2 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面那俩楼我没一个打得开的
+
+*****
+
+####  朝香果林  
+##### 89985#       发表于 2022-8-2 19:08
+
+发出来了。第三栋才行。前2栋我想加权限都不行。
+
+*****
+
+####  exiaexa  
+##### 89986#       发表于 2022-8-2 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910370&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-8-2 19:06</a>
+
+什么？你竟不知道发主题可以把回复提醒关掉的吗？</blockquote>
+我一个只回不发主题数0的乐子人怎么可能知道
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
