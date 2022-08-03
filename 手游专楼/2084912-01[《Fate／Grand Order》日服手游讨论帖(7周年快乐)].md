@@ -598,3 +598,63 @@
 我TMD哪来的215</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你为什么那么激动 都没有的卡
 
+
+
+*****
+
+####  qixinno2  
+##### 73#       发表于 2022-8-3 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918418&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:18</a>
+
+那你为什么那么激动 都没有的卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯粹是吐槽下这太弱智了 明明好多人强化后负面效果直接就没了 为毛215这还要操作下扣别人NP太烦人了 不过现在五星剑光炮最拉的是旧剑了吧 唯一一个20自充
+
+*****
+
+####  yzj134100  
+##### 74#       发表于 2022-8-3 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好歹一加一减比以前不但回相同血还多30np，动画还多了
+
+*****
+
+####  qixinno2  
+##### 75#       发表于 2022-8-3 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918457&amp;ptid=2084912" target="_blank">yzj134100 发表于 2022-8-3 17:21</a>
+
+好歹一加一减比以前不但回相同血还多30np，动画还多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给自己回血还是要减10NP吧
+
+*****
+
+####  alucardcz  
+##### 76#       发表于 2022-8-3 17:25
+
+ 本帖最后由 alucardcz 于 2022-8-3 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918469&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:23</a>
+
+给自己回血还是要减10NP吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给自己是加20  除非你1宝np在80以上
+
+*****
+
+####  qixinno2  
+##### 77#       发表于 2022-8-3 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918482&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:25</a>
+
+给自己是加20  除非你1宝np在70以上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以弱智的没法说 还要多操作一下点个人
+
+*****
+
+####  yzj134100  
+##### 78#       发表于 2022-8-3 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918469&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:23</a>
+
+给自己回血还是要减10NP吧</blockquote>
+是的，原本旧的要-10，新的即使扣自己还能有20，我要感动死了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
