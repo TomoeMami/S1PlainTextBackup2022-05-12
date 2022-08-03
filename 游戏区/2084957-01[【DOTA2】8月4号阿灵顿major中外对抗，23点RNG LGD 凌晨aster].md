@@ -1695,3 +1695,21 @@ XG现在440分,没有前二没机会直接出线吧.万一没直接出线又回�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  尸体鲨  
+##### 189#       发表于 2022-8-3 21:46
+
+现在回刀版建立流浪Major楼还来得及，勿谓言之不预也！
+
+*****
+
+####  lpsquirrel  
+##### 190#       发表于 2022-8-3 21:49
+
+能让版主来开楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
