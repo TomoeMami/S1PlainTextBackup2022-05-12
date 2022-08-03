@@ -1003,3 +1003,12 @@
 
 而且前后累计5年3K石终于抽到了AE杀生院。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 113#       发表于 2022-8-3 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">思想斗争了一下还是找了一家便宜的买了福袋。这是我那么多年玩日服第一次抽到福袋之中最想要的。。
+

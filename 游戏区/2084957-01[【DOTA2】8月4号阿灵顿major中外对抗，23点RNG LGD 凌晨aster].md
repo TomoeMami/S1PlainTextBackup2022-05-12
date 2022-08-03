@@ -1484,3 +1484,24 @@ topson适应的有点快啊，饮食习惯这么快就变了🤔</blockquote>
 四号位能不能是玄月</blockquote>
 原批gck
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 167#       发表于 2022-8-3 19:54
+
+下赛季DPC把S级赛程和A级赛程分开了，两轮各20天
+
+应该是为了让S级队伍有更多时间打第三方比赛？
+
+*****
+
+####  两三流浪者  
+##### 168#       发表于 2022-8-3 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919344&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-3 18:59</a>
+
+我去找了下topson老婆的ins，有点好看啊，芬兰人赢麻了</blockquote>
+一眼好女孩
+
