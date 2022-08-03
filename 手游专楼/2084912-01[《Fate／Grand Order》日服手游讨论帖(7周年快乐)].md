@@ -856,3 +856,45 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小王子最强的地方就在于他一破宝具动画超级短，谁用谁知道
 
+
+
+*****
+
+####  exiaexa  
+##### 98#       发表于 2022-8-3 18:00
+
+小王子简单，本质就是输出不够
+开个宝具本力大砖飞，宝具后20强化成30还能送公主原地下班
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 99#       发表于 2022-8-3 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正强化我有的就行 还差五个角色又能混10个石头了
+
+*****
+
+####  alucardcz  
+##### 100#       发表于 2022-8-3 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918831&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-3 18:00</a>
+
+小王子简单，本质就是输出不够
+
+开个宝具本力大砖飞，宝具后20强化成30还能送公主原地下班
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家想到的舍弃 给你1技能10星变20星
+
+*****
+
+####  qixinno2  
+##### 101#       发表于 2022-8-3 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918868&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 18:05</a>
+
+玩家想到的舍弃 给你1技能10星变20星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">变20星吧 毕竟现在三绿都给20 
+
