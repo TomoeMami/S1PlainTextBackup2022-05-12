@@ -848,3 +848,62 @@ z的诞生就来自于面对未知融合内心惶恐不安拒绝未来的一二�
 
 3代结局两个备份世界分开，再之后结尾钟表指针转动，开头悬在小诺亚世界头顶融合过来的另一个世界消失，这里确实想不懂是融合停止了还是融合完成了...还有分开的那俩备份世界去哪儿了...
 
+
+
+*****
+
+####  大江户战士  
+##### 81#       发表于 2022-8-3 22:32
+
+ 本帖最后由 大江户战士 于 2022-8-3 22:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921414&amp;ptid=2084988" target="_blank">hypnossz86 发表于 2022-8-3 22:29</a>
+
+其实艾欧尼翁里面这一切都是一二世界的备份吧？所有信息都来自始源开始建造到完工启动那段时间的一 ...</blockquote>
+第7章开头动画就显示了啊，尼娅的确在幽界当了女王
+
+始源完成的时候虎还在呢，肯定没过多久
+
+<img src="https://img.saraba1st.com/forum/202208/02/005651wqp6v6izxsk3zqqk.png" referrerpolicy="no-referrer">
+
+都市的纪念堂里有两个雕像的描述很像修尔克和莱克斯，但我认为很可能是误导
+
+*****
+
+####  hypnossz86  
+##### 82#       发表于 2022-8-3 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921434&amp;ptid=2084988" target="_blank">大江户战士 发表于 2022-8-3 22:32</a>
+第7章开头动画就显示了啊，尼娅的确在幽界当了女王
+
+始源完成的时候虎还在呢，肯定没过多久</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">诺碰族一般寿命多少的？
+如果不久的话，为啥备份的艾欧尼翁里面没有其他一二代的伙伴...
+
+*****
+
+####  亚瑟邓特  
+##### 83#       发表于 2022-8-3 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921371&amp;ptid=2084988" target="_blank">田黄石 发表于 2022-8-3 22:24</a>
+很显然你应该是对的</blockquote>
+那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大江户战士  
+##### 84#       发表于 2022-8-3 22:37
+
+ 本帖最后由 大江户战士 于 2022-8-3 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921458&amp;ptid=2084988" target="_blank">hypnossz86 发表于 2022-8-3 22:35</a>
+
+诺碰族一般寿命多少的？
+
+如果不久的话，为啥备份的艾欧尼翁里面没有其他一二代的伙伴... ...</blockquote>
+艾欧尼翁里只有两个女王有以前的记忆，推测是她俩权限比较高
+
+其他人都是梅比乌斯造的空壳复制品罢了，为了稳妥他们应该没有把所有人都搞到艾欧尼翁
+
+另外诺彭族设定和人类寿命相同。
+
