@@ -1589,3 +1589,38 @@ XG为什么不来打major，看拒绝者天梯切片，心态好像炸了，又�
 
 去了最后疫情了 预选都打不了才好玩，而且除了lou以外的人都是打过几届ti的人
 
+
+
+*****
+
+####  nerugigannte  
+##### 178#       发表于 2022-8-3 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么现在楼还有权限了，要是我大号进去了那可怎么办
+
+*****
+
+####  43453  
+##### 179#       发表于 2022-8-3 21:02
+
+xg再菜拿个前八还是很有戏的，还是说xg其实都在抱luo的大腿？
+
+*****
+
+####  adretyu67  
+##### 180#       发表于 2022-8-3 21:08
+
+油面打天梯有心态好过吗。。。
+
+
+
+*****
+
+####  京吹病人  
+##### 181#       发表于 2022-8-3 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920378&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-3 21:01</a>
+
+怎么现在楼还有权限了，要是我大号进去了那可怎么办</blockquote>
+有几个开小号来建政的 ， 挡他们用的
+
