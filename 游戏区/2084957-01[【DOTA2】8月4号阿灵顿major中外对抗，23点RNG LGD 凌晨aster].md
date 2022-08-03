@@ -675,3 +675,48 @@ nga的v版有光一专楼，泥潭v版b综也算半个版信老家
 
 管人痴看着自己太监的模样被众人嘲笑，急得键盘都快按烂了
 
+
+
+*****
+
+####  京吹病人  
+##### 75#       发表于 2022-8-3 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">什么时候开个管人/相关分楼啊 这样畜生管人痴就不来这看了
+
+*****
+
+####  gohouruni  
+##### 76#       发表于 2022-8-3 12:51
+
+希望ASTER争口气
+
+*****
+
+####  wbzdwsmnmsl  
+##### 77#       发表于 2022-8-3 12:52
+
+直接指路b综或者梓综就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 78#       发表于 2022-8-3 12:52
+
+https://bbs.saraba1st.com/2b/thread-2040827-2372-1.html
+早就有了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 79#       发表于 2022-8-3 12:54
+
+虽然看不了比赛了，但是我永远支持中国队<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 80#       发表于 2022-8-3 12:55
+
+虽然有点像TI5矮人直升机没处理好,英雄池上有劣势,无论怎么样，我还是支持中国队的
+
