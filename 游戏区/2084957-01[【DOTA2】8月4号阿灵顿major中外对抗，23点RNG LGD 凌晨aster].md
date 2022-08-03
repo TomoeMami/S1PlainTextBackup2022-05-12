@@ -934,3 +934,28 @@ DOTA2阿灵顿Major</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是刀综几了？挂帖子标题上啊
 
+
+
+*****
+
+####  windhawind2  
+##### 106#       发表于 2022-8-3 13:51
+
+oc的合同谈好了看来是
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  蛭人  
+##### 107#       发表于 2022-8-3 13:51
+
+甲鱼方丈都不认识，建议拉黑。
+
+*****
+
+####  sodah  
+##### 108#       发表于 2022-8-3 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才4页就憋不住了，放过刀综吧。
+
