@@ -1999,3 +1999,22 @@ B站除了漏油推荐的暮色独行就没看过其他人了，就这明星团�
 
 合着b站还是贯彻了不打天梯职业解说团呗，九个人，一个职业队教练，一个排名哥，一个皮套人4330，太好了。
 
+
+
+*****
+
+####  ArowRocher  
+##### 224#       发表于 2022-8-4 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922193&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-4 00:07</a>
+心疼dodo</blockquote>
+特邀嘉宾绷不住了
+
+*****
+
+####  nightmare902015  
+##### 225#       发表于 2022-8-4 01:00
+
+试问本赛季4330能超过以上图中多少人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好呀茶队这就把eg干了，外野开咯。
+
