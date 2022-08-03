@@ -1828,3 +1828,21 @@ eg还是挺菜的，上次major也是一轮游，鳖茶说不定有机会赢<img
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  反方向的波  
+##### 204#       发表于 2022-8-3 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">傻狗平时一句一÷，结果10月17号都不装了自顾自地喝水下跪是真的不行，活该被杰出当成飞盘一样耍来耍去
+
+*****
+
+####  沈淮  
+##### 205#         楼主| 发表于 2022-8-3 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921029&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-3 21:51</a>
+苏三版主之前是不是被关进小黑屋了，不知道刑期结束没有</blockquote>
+他的版主已经被撤了
+
