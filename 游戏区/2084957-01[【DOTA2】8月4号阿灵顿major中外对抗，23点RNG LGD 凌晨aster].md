@@ -1202,3 +1202,14 @@ csdx还专门改颜色了，好呀好呀
 
 误入此楼，不懂伐木
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 135#       发表于 2022-8-3 17:46
+
+黑话搞太多，以后不会正经讨论比赛也被和谐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

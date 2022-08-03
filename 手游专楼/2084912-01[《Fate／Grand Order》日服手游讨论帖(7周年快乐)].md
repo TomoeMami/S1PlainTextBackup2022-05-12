@@ -737,3 +737,31 @@
 当然我也没什么215 等个大佬测试 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按文字描述应该就是这么弱智 明天四星杀估计就是214了吧 感觉无论怎么强化都吊打215
 
+
+
+*****
+
+####  qixinno2  
+##### 86#       发表于 2022-8-3 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918569&amp;ptid=2084912" target="_blank">yzj134100 发表于 2022-8-3 17:35</a>
+
+一宝大于等于70的话+30变100然后-10变90吧 ，因为是两个效果</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这强化效果实在是惊人
+
+*****
+
+####  alucardcz  
+##### 87#       发表于 2022-8-3 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">标题能不能换个颜色 感觉以后国服日服点错几率会很离谱
+
+*****
+
+####  khxooo  
+##### 88#       发表于 2022-8-3 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918579&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-3 17:35</a>
+今天强化的两仪式是七周年日替up角色...那么明天的四星杀该不会是泳装牛若丸吧？以此类推，后天是R紫式部， ...</blockquote>
+当天UP小王子，你懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
