@@ -1,0 +1,589 @@
+
+
+*****
+
+####  沈淮  
+##### 1#       楼主       发表于 2022-8-3 12:03
+
+ 本帖最后由 沈淮 于 2022-8-3 12:33 编辑 
+
+          谨言慎行
+注:管人痴与🐶不得入内
+
+8月4日比赛预告:
+北京时间8月4日晚上11点:
+PSG.LGD对阵Talon战队BO2
+老VP对阵RNG战队BO2
+QC对阵液体战队BO2
+FNC对阵0G战队BO2
+
+北京时间8月5日凌晨1点:
+
+TS对阵BC战队BO2
+
+Na'Vi对阵Entity战队BO2
+
+BOOM对阵TE战队BO2
+
+EG对阵Aster战队BO2
+
+北京时间8月5日凌晨3点:
+
+Talon对阵TA战队BO2(TA战队有队员因为签证问题，将放弃这场比赛)
+
+RNG对阵QC战队BO2
+
+液体对阵OG战队BO2
+
+FNC对阵老VP战队BO2
+
+北京时间8月5日凌晨5点:
+
+EG对阵BOOM战队BO2
+
+TS对阵TE战队BO2
+
+Na'Vi对阵BC战队BO2
+
+Aster对阵Entity战队BO2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 战狼PTSD| + 1|严打卧底皮套狗|
+
+查看全部评分
+
+*****
+
+####  百世诸侯  
+##### 37#       发表于 2022-8-3 12:18
+
+管人痴小太监真的很有节目效果，一边给狗叔举报，一边在楼里发言，最后在管人区被一刀咔嚓了
+<img src="https://pic.jitudisk.com/public/2022/08/03/c1cd445a250d1.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.jitudisk.com/public/2022/08/03/f928506ee127a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 2#       发表于 2022-8-3 12:03
+
+支持
+
+*****
+
+####  莉拉厨  
+##### 3#       发表于 2022-8-3 12:03
+
+基德基德
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 4#       发表于 2022-8-3 12:04
+
+管人痴与狗不得进入此楼，麻烦置顶一下
+
+*****
+
+####  战狼PTSD  
+##### 5#       发表于 2022-8-3 12:04
+
+好，支持LGD赢下MAJOR
+
+*****
+
+####  Louiskeep24ever  
+##### 6#       发表于 2022-8-3 12:05
+
+笑死，我还在试图理解漏油的黑话，一刷新没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Litccc  
+##### 7#       发表于 2022-8-3 12:06
+
+支持和管人痴划清界限
+
+*****
+
+####  nightmare902015  
+##### 8#       发表于 2022-8-3 12:06
+
+支持中国队在马上要来的比赛中外战胜利，取得好成绩
+
+*****
+
+####  北条早苗  
+##### 9#       发表于 2022-8-3 12:06
+
+基德基德
+
+*****
+
+####  walfeds  
+##### 10#       发表于 2022-8-3 12:07
+
+好好好
+
+*****
+
+####  小19  
+##### 11#       发表于 2022-8-3 12:07
+
+eg打的好 我支持eg还不行吗
+
+*****
+
+####  AkaiSuisei  
+##### 12#       发表于 2022-8-3 12:07
+
+基德基德，漏油都活着也是好事
+
+*****
+
+####  tasuku  
+##### 13#       发表于 2022-8-3 12:08
+
+我只想看ana带着梅梅暴打么么鳖
+
+*****
+
+####  Acatv  
+##### 14#       发表于 2022-8-3 12:08
+
+本楼禁止讨论一些英雄bug 比如火猫水人龙骑
+
+*****
+
+####  Cantha  
+##### 15#       发表于 2022-8-3 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  攻心为上木之本  
+##### 16#       发表于 2022-8-3 12:08
+
+还以为会回dota区，结果还是在游戏区远程爱刀
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  京吹病人  
+##### 17#       发表于 2022-8-3 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">nightfall什么时候滚啊 该给rtz继续选三号位了
+
+*****
+
+####  健康猹  
+##### 18#       发表于 2022-8-3 12:09
+
+鸽一楼更好打
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  夏溪澪mio  
+##### 19#       发表于 2022-8-3 12:09
+
+不管西恩打得什么样，我都支持中国队！
+西恩dota best dota！
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遍体精淋af  
+##### 20#       发表于 2022-8-3 12:09
+
+基德基德
+
+—— 来自 motorola XT2175-2, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  聚散浮云  
+##### 21#       发表于 2022-8-3 12:09
+
+基德基德
+
+*****
+
+####  WDDzzZ  
+##### 22#       发表于 2022-8-3 12:10
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 23#       发表于 2022-8-3 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">终于有人忍不住了另外楼了。
+
+看了一下液体维基，比赛是明晚阿= =七夕陪玩老婆看半场比赛睡觉
+
+Upcoming Matches
+
+Soniqs Soniqs        vs.        Team Liquid Liquid
+
+1d 10h 50m -  
+
+Group Stage
+
+Otsd Outsiders        vs.        Royal Never Give Up RNG
+
+1d 10h 50m - 
+
+Group Stage
+
+Fnatic Fnatic        vs.        OG OG
+
+1d 10h 50m - 
+
+Group Stage
+
+PSG.LGD PSG.LGD        vs.        Talon Esports Talon
+
+1d 10h 50m - 
+
+Group Stage
+
+EG Evil Geniuses        vs.        Team Aster Aster
+
+1d 12h 50m -  
+
+Group Stage
+
+*****
+
+####  yourSwaTer  
+##### 24#       发表于 2022-8-3 12:10
+
+来了来了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  米德  
+##### 25#       发表于 2022-8-3 12:11
+
+基德基德
+
+*****
+
+####  Fstt  
+##### 26#       发表于 2022-8-3 12:11
+
+问题是，版信属于管人痴吗？<img src="https://static.saraba1st.com/image/smiley/carton2017/247.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  syndrome2032  
+##### 27#       发表于 2022-8-3 12:11
+
+rng打的好我支持rng还不行吗
+
+*****
+
+####  scg2017  
+##### 28#       发表于 2022-8-3 12:11
+
+草，上午还好好的，一瞬间楼没了
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jy000129  
+##### 29#       发表于 2022-8-3 12:11
+
+伐木伐木
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 30#       发表于 2022-8-3 12:12
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  12481632  
+##### 31#       发表于 2022-8-3 12:13
+
+支持aster暴打eg！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dddyghr  
+##### 32#       发表于 2022-8-3 12:14
+
+基德基德
+
+*****
+
+####  Asukalangley33  
+##### 33#       发表于 2022-8-3 12:15
+
+还是关注下这回小超人怎么给厨子甩锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+感觉就算厨子发挥稀烂也有一定难度
+
+*****
+
+####  tengshuo980  
+##### 34#       发表于 2022-8-3 12:16
+
+这次比赛打完，无论如何也该出本子了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  usoda  
+##### 35#       发表于 2022-8-3 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">期待上帝+超哥的首战！
+
+*****
+
+####  甩不出去的黄牌  
+##### 36#       发表于 2022-8-3 12:17
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 37#       发表于 2022-8-3 12:18
+
+管人痴小太监真的很有节目效果，一边给狗叔举报，一边在楼里发言，最后在管人区被一刀咔嚓了
+<img src="https://pic.jitudisk.com/public/2022/08/03/c1cd445a250d1.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.jitudisk.com/public/2022/08/03/f928506ee127a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是这样  
+##### 38#       发表于 2022-8-3 12:18
+
+基德基德
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  nightmare902015  
+##### 39#       发表于 2022-8-3 12:18
+
+厨子这样复出天生背锅的，之前比赛表现很明显了。何况他还是个水晶室女（dota2英雄）呢
+
+*****
+
+####  人別離苦  
+##### 40#       发表于 2022-8-3 12:18
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 41#       发表于 2022-8-3 12:20
+
+这个弱智管人痴的Q群言论还有吗
+
+*****
+
+####  Litccc  
+##### 42#       发表于 2022-8-3 12:20
+
+管人痴的一生都是节目效果，基德基德
+
+*****
+
+####  逸一死吾亦死  
+##### 43#       发表于 2022-8-3 12:21
+
+好德我基
+
+*****
+
+####  Cookiekira  
+##### 44#       发表于 2022-8-3 12:21
+
+管人痴司马<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 45#       发表于 2022-8-3 12:21
+
+好呀好呀，国外已经在传Topson将带领OG sea team了。
+
+*****
+
+####  公交老司机  
+##### 46#       发表于 2022-8-3 12:22
+
+锁定明晚1点鳖星打eg<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 47#       发表于 2022-8-3 12:24
+
+肽键好似
+
+*****
+
+####  百世诸侯  
+##### 48#       发表于 2022-8-3 12:26
+
+11点先看RNG被VP暴打，1点又看Aster输EG，刀狗真的要玉玉了
+
+*****
+
+####  smkf013  
+##### 49#       发表于 2022-8-3 12:26
+
+等一个新笑话：
+
+你为什么被关了？
+
+我在聊PGL Arlington Major 2022啊
+
+屁话，你聊的是不是Major我还不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mamc06  
+##### 50#       发表于 2022-8-3 12:26
+
+支持as暴打eg！！！
+
+*****
+
+####  Asukalangley33  
+##### 51#       发表于 2022-8-3 12:27
+
+最有节目效果的应该是厨子这次major打完被小超人批的一无是处
+然后转头和老og几个切假腿的打预选游进ti把超哥干了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cwlqxs  
+##### 52#       发表于 2022-8-3 12:28
+
+支持版信全面迁移回b综来自: iPhone客户端
+
+*****
+
+####  walfeds  
+##### 53#       发表于 2022-8-3 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56915950&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-3 12:21</a>
+
+好呀好呀，国外已经在传Topson将带领OG sea team了。</blockquote>
+好呀好呀，op狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 54#       发表于 2022-8-3 12:29
+
+<img src="https://p.sda1.dev/6/14524e362bd9149c0ab0bab56f2a80cf/CMP_20220803122919456.jpg" referrerpolicy="no-referrer">
+
+来了来了
+
+*****
+
+####  nightmare902015  
+##### 55#       发表于 2022-8-3 12:30
+
+顶级儿子，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 56#       发表于 2022-8-3 12:31
+
+topson<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 57#       发表于 2022-8-3 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">顶儿子新纪录片首播，就在今晚六点
+
+*****
+
+####  iceplatinum  
+##### 58#       发表于 2022-8-3 12:34
+
+aster每次都接到这种活。。。
+
+*****
+
+####  沈淮  
+##### 59#         楼主| 发表于 2022-8-3 12:37
+
+还在视奸
+
+*****
+
+####  广野纮  
+##### 60#       发表于 2022-8-3 12:38
+
+dota2(电子游戏)
+
+
+
+*****
+
+####  逃离二次元  
+##### 61#       发表于 2022-8-3 12:38
+
+做人怎么能这么恶心
+
+*****
+
+####  wbzdwsmnmsl  
+##### 62#       发表于 2022-8-3 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916043&amp;ptid=2084957" target="_blank">cwlqxs 发表于 2022-8-3 12:28</a>
+
+支持版信全面迁移回b综</blockquote>
+为什么不能大家一起回刀版呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 63#       发表于 2022-8-3 12:39
+
+支持新刀综<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
