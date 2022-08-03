@@ -681,3 +681,36 @@ Mio这个世界的规则是z定的吧，想让活多久就活多久……但是�
 
 万一是小说补充呢，修尔克复原菲奥伦不就是靠小说补全的嘛
 
+
+
+*****
+
+####  大江户战士  
+##### 68#       发表于 2022-8-3 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919473&amp;ptid=2084988" target="_blank">ouyang菌 发表于 2022-8-3 19:19</a>
+
+还有一个，都市始祖的第七人的身份，为什么他要故意隐去自己的身份
+
+完了，我现在越想越觉得dlc会出都市始祖 ...</blockquote>
+第七位始祖是尼娅，隐藏身份很好理解吧，因为她是明面上敌人的女王啊
+
+*****
+
+####  大江户战士  
+##### 69#       发表于 2022-8-3 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919167&amp;ptid=2084988" target="_blank">星野航 发表于 2022-8-3 18:39</a>
+
+那尼娅背后光焰的剑是什么幻化之术么
+
+始源本身是超越所有世界维度存在的一种结构了感觉。能够操作origin的 ...</blockquote>
+看发光似乎是投影，可能是尼娅用自己权限让始源搞出来的
+
+*****
+
+####  Nez  
+##### 70#       发表于 2022-8-3 20:36
+
+给jzgg一部剧场版的时间，可以拯救国家队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对dlc补完是比较悲观的，希望gqgg可以打我脸
+
