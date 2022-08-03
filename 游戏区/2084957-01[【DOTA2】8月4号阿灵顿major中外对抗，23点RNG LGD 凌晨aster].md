@@ -2027,3 +2027,63 @@ B站除了漏油推荐的暮色独行就没看过其他人了，就这明星团�
 
 mlgb，斗鱼也是蹭热度的啊，这解说还拉上玄月杰出了，好呀好呀。
 
+
+
+*****
+
+####  匿名用户  
+##### 227#       发表于 2022-8-4 01:26
+
+ 本帖最后由 匿名用户 于 2022-8-4 01:28 编辑 
+
+Dota Pro Circuit 2022-2023 Season
+
+Winter Tour
+
+• Open Qualifiers: December 11-13, 2022
+
+• Closed Qualifiers: December 14-15, 2022
+
+• Division 1 Regional League Tournament: January 9-29, 2023
+
+• Division 2 Regional League Tournament: January 30 - February 19, 2023
+
+• Major Tournament: February 24 - March 5, 2023
+
+Spring Tour
+
+• Open Qualifiers: March 13-15, 2023
+
+• Closed Qualifiers: March 16-22, 2023
+
+• Division 1 Regional League Tournament: March 13 - April 2, 2023
+
+• Division 2 Regional League Tournament: April 3-23, 2023
+
+• Major Tournament: April 28 - May 7, 2023
+
+Summer Tour
+
+• Open Qualifiers: May 15-27, 2023
+
+• Closed Qualifiers: May 18-24, 2023
+
+• Division 1 Regional League Tournament: May 15 - June 4, 2023
+
+• Division 2 Regional League Tournament: June 5-25, 2023
+
+• Major Tournament: June 30 – July 9th, 2023
+
+[https://www.dota2.com/majorsregistration/requestforproposal](https://www.dota2.com/majorsregistration/requestforproposal)
+
+根据官网信息，明年dpc时间大改，TI应该就放回八月了。
+
+S级联赛和A级联赛时间分开，分别集中在三周内打完。 （大概就是：三周S级、三周A级、隔一周、Major）
+
+*****
+
+####  AIDSL  
+##### 228#       发表于 2022-8-4 01:26
+
+阿B的直播首页上，网油分类已经没刀塔了
+
