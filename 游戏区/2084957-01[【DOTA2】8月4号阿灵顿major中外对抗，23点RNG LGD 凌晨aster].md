@@ -804,3 +804,44 @@ DOTA2阿灵顿Major</blockquote>
 
 铁键在必得
 
+
+
+*****
+
+####  沈淮  
+##### 90#         楼主| 发表于 2022-8-3 13:21
+
+手机可以看到图，但是没有鼠标样子
+
+
+
+*****
+
+####  nerugigannte  
+##### 91#       发表于 2022-8-3 13:22
+
+来了来了，老楼炸了我还以为我号没了呢
+
+*****
+
+####  小拖  
+##### 92#       发表于 2022-8-3 13:24
+
+基德基德
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  呆毛王嫁给我  
+##### 93#       发表于 2022-8-3 13:26
+
+基德基德，虽然不想支持安屠牲，但是RNG打得好我支持霉皇总可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京吹病人  
+##### 94#       发表于 2022-8-3 13:29
+
+<img src="https://p.sda1.dev/6/82e07cecf6930ec5ff7e7b986630cb6b/202208021124101241896081226.jpg" referrerpolicy="no-referrer">
+
