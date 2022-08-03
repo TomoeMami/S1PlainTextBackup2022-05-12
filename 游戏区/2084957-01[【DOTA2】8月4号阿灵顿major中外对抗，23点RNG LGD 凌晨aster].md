@@ -1144,3 +1144,17 @@ csdx还专门改颜色了，好呀好呀
 那翻不过来的原因是什么呢？生理构造吗？</blockquote>
 鳖孙翻面慢是这样的
 
+
+
+*****
+
+####  Fstt  
+##### 130#       发表于 2022-8-3 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917448&amp;ptid=2084957" target="_blank">11116等 发表于 2022-8-3 15:22</a>
+
+为什么刀塔玩家不在刀区讨论呢
+
+—— 来自 OPPO PCAM10, Android 11上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+这种级别的谜题你就别指望能在有生之年得到解答了
+
