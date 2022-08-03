@@ -983,3 +983,23 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇萌新能做到各游戏金钱皆爆满，实乃天才
 
+
+
+*****
+
+####  qixinno2  
+##### 111#       发表于 2022-8-3 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新无敌 又欧又强 
+
+*****
+
+####  fantuanxiaoyi  
+##### 112#       发表于 2022-8-3 19:37
+
+今年运气还不错，只氪了福袋但是算下来已经出了12个new了。
+
+今年也是近五年唯一一次福袋new。
+
+而且前后累计5年3K石终于抽到了AE杀生院。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

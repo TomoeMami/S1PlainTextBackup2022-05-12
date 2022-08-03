@@ -1418,3 +1418,39 @@ topson适应的有点快啊，饮食习惯这么快就变了🤔</blockquote>
 
 可惜没海选了，不然topson和三冰还能组个队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  北条早苗  
+##### 160#       发表于 2022-8-3 19:32
+
+看下拿到合同的瑞士鲁迅还能不能发大力
+
+*****
+
+####  聚散浮云  
+##### 161#       发表于 2022-8-3 19:33
+
+🦐哥这LFT是第几季了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  京吹病人  
+##### 162#       发表于 2022-8-3 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919344&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-3 18:59</a>
+
+我去找了下topson老婆的ins，有点好看啊，芬兰人赢麻了</blockquote>
+他老婆不穿绿绿哪套还挺好看的
+
+*****
+
+####  反方向的波  
+##### 163#       发表于 2022-8-3 19:38
+
+你知道的，这是一个艰难的决定，下赛季我会将我的天赋带到土耳其，我喜欢这帮家伙，而且你们知道的，zayac是我的兄弟
+我很喜欢跟他在一起打刀，这种感觉真的很棒
+
