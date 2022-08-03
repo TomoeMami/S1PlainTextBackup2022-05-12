@@ -1096,3 +1096,14 @@ csdx还专门改颜色了，好呀好呀
 
 基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  11116等  
+##### 125#       发表于 2022-8-3 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">为什么刀塔玩家不在刀区讨论呢
+
+—— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

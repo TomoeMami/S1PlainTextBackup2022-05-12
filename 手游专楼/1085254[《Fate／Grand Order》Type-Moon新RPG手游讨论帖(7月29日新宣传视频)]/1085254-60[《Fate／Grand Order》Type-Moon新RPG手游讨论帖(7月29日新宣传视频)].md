@@ -16264,3 +16264,37 @@ WYS：我们这次全都强化单体宝具<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要奶我们的看板娘  虽然大概率式姐
 
+
+
+*****
+
+####  qixinno2  
+##### 89997#       发表于 2022-8-3 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然要强化看板娘啊 那弱智领导力多碍眼
+
+*****
+
+####  khxooo  
+##### 89998#       发表于 2022-8-3 15:27
+
+肯定是剑双子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 89999#       发表于 2022-8-3 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917478&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-8-3 15:27</a>
+
+肯定是剑双子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要真是剑双子，我打爆你的头
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及你们为啥还在用这老楼
+
+*****
+
+####  芭德薇  
+##### 90000#       发表于 2022-8-3 15:30
+
+棉被作为你游app图标还是很有希望的。
+
