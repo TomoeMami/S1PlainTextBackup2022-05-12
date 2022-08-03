@@ -898,3 +898,38 @@
 玩家想到的舍弃 给你1技能10星变20星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">变20星吧 毕竟现在三绿都给20 
 
+
+
+*****
+
+####  alucardcz  
+##### 102#       发表于 2022-8-3 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918897&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 18:08</a>
+
+变20星吧 毕竟现在三绿都给20</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在读一边（
+
+*****
+
+####  exiaexa  
+##### 103#       发表于 2022-8-3 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918868&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 18:05</a>
+
+玩家想到的舍弃 给你1技能10星变20星</blockquote>
+不如强化三技能，被暴击耐性提升到100%
+
+看起来强无敌，实际上屁用没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 104#       发表于 2022-8-3 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918925&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 18:10</a>
+
+你在读一边（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我弱智了 只能说公主给我的打击太大了
+
