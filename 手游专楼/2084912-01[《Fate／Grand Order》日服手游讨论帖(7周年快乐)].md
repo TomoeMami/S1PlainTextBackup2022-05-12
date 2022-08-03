@@ -1042,3 +1042,12 @@
 
 攒的500+抽，公主3宝110级，还是先把被动2开了拉满了，120级等刷羁绊了
 
+
+
+*****
+
+####  中川夏纪  
+##### 117#       发表于 2022-8-4 01:32
+
+公主巴泽特哈贝喵无脑 3T 六加成，喂完 100 级之后 QP 已经又攒到 6e 了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
