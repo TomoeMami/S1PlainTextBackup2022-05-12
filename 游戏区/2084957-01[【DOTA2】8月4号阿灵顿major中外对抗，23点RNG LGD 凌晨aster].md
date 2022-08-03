@@ -1454,3 +1454,33 @@ topson适应的有点快啊，饮食习惯这么快就变了🤔</blockquote>
 你知道的，这是一个艰难的决定，下赛季我会将我的天赋带到土耳其，我喜欢这帮家伙，而且你们知道的，zayac是我的兄弟
 我很喜欢跟他在一起打刀，这种感觉真的很棒
 
+
+
+*****
+
+####  walfeds  
+##### 164#       发表于 2022-8-3 19:42
+
+ 本帖最后由 walfeds 于 2022-8-3 19:43 编辑 
+
+上帝顶儿子虾哥，123都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么说呢，东南亚脸还是看不惯
+
+*****
+
+####  nightmare902015  
+##### 165#       发表于 2022-8-3 19:44
+
+四号位能不能是玄月<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京吹病人  
+##### 166#       发表于 2022-8-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919654&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-3 19:44</a>
+
+四号位能不能是玄月</blockquote>
+原批gck
+
