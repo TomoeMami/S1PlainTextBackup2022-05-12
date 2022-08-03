@@ -995,3 +995,14 @@ z的诞生就来自于面对未知融合内心惶恐不安拒绝未来的一二�
 
 之后见女王的时候，里克和女王对了一个眼神，两人明显是认识的
 
+
+
+*****
+
+####  heseran  
+##### 93#       发表于 2022-8-4 00:27
+
+dlc剧情还得等好久<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">这么久，剧情量比黄金国大点不过分吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
