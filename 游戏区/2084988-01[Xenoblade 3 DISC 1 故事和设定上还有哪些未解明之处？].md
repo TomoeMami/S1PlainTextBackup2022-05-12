@@ -714,3 +714,36 @@ Mio这个世界的规则是z定的吧，想让活多久就活多久……但是�
 
 给jzgg一部剧场版的时间，可以拯救国家队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对dlc补完是比较悲观的，希望gqgg可以打我脸
 
+
+
+*****
+
+####  星野航  
+##### 71#       发表于 2022-8-3 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920094&amp;ptid=2084988" target="_blank">大江户战士 发表于 2022-8-3 21:36</a>
+
+看发光似乎是投影，可能是尼娅用自己权限让始源搞出来的</blockquote>
+掌握始源权限确实有这种余裕
+
+其实通篇看，尼娅从开始就一副不会输的姿态，这调子还挺有意思的
+
+后面过了支线也只是在聊一些结束之后可能的事情以及过去的回忆。颇有点直接操盘的味
+
+*****
+
+####  大江户战士  
+##### 72#       发表于 2022-8-3 20:46
+
+ 本帖最后由 大江户战士 于 2022-8-3 20:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920162&amp;ptid=2084988" target="_blank">星野航 发表于 2022-8-3 20:42</a>
+
+掌握始源权限确实有这种余裕
+
+其实通篇看，尼娅从开始就一副不会输的姿态，这调子还挺有意思的
+
+后面过了支 ...</blockquote>
+我觉得梅莉亚和尼娅的表现也太过淡定了，似乎对梅比乌斯没那么大的恨意（甚至诺亚问尼娅是不是梅比乌斯就是敌人尼娅都说你自己决定）
+
+而且最后尼娅居然还问诺亚这样好吗，我没搞懂尼娅的心理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

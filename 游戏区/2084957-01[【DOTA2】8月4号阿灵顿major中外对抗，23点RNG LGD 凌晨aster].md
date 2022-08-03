@@ -1560,3 +1560,16 @@ topson是真的人赢，打的也真的好看。不管是打职业还是当主�
 
 看了下黑屋，管人痴又被逮捕咯
 
+
+
+*****
+
+####  莉拉厨  
+##### 175#       发表于 2022-8-3 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920027&amp;ptid=2084957" target="_blank">asd235614 发表于 2022-8-3 20:29</a>
+草一天没看怎么老楼炸了</blockquote>
+准确来说是主动保护性拉255窗帘了，不然后几页那黑话够把楼友枪毙几年了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
