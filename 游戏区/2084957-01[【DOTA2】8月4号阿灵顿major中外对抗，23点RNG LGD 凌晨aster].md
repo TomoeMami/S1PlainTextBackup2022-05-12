@@ -1401,3 +1401,20 @@ topson适应的有点快啊，饮食习惯这么快就变了🤔</blockquote>
 评论区刀友的素质很真实
 <img src="https://pic.jitudisk.com/public/2022/08/03/b6b1edc866564.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 158#       发表于 2022-8-3 19:24
+
+好艰难的决定啊
+<img src="https://p.sda1.dev/6/5998f92016b3dcaf1f5b42ee3e71300d/45aed194c0c4f789.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 159#       发表于 2022-8-3 19:29
+
+可惜没海选了，不然topson和三冰还能组个队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -960,3 +960,26 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 108#       发表于 2022-8-3 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了不到1EQP就烦躁的刷不动了
+
+*****
+
+####  qixinno2  
+##### 109#       发表于 2022-8-3 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以很佩服萌新 我最多刷三条体力就完全不想动了
+
+*****
+
+####  霧谷藤乃  
+##### 110#       发表于 2022-8-3 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇萌新能做到各游戏金钱皆爆满，实乃天才
+
