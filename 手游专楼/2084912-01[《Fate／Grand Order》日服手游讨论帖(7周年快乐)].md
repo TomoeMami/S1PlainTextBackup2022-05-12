@@ -533,3 +533,68 @@
 
 这个减10NP好像可以甩给别人的，就是自己加30NP，任选一个人回5000血扣10NP
 
+
+
+*****
+
+####  qixinno2  
+##### 66#       发表于 2022-8-3 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么弱智技能 就不能改成不扣NP么
+
+*****
+
+####  qixinno2  
+##### 67#       发表于 2022-8-3 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918257&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:02</a>
+
+不是new有什么意思！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修改器走起来 哪个池子都能NEW
+
+*****
+
+####  里村紅葉  
+##### 68#       发表于 2022-8-3 17:15
+
+这扣NP是祖宗之法不可变啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 69#       发表于 2022-8-3 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918357&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:13</a>
+
+什么弱智技能 就不能改成不扣NP么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还有215
+
+*****
+
+####  qixinno2  
+##### 70#       发表于 2022-8-3 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918388&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:16</a>
+
+你怎么还有215</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我TMD哪来的215 
+
+*****
+
+####  Jamaisvu  
+##### 71#       发表于 2022-8-3 17:17
+
+214这强化，蘑菇你就非得惦记那个阴阳螺旋是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+和雪山樱三技能的损己利人相比，算是损人利人？拿10NP换5000血，灵魂物质化是吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么第三法。
+
+*****
+
+####  alucardcz  
+##### 72#       发表于 2022-8-3 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918393&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:16</a>
+
+我TMD哪来的215</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你为什么那么激动 都没有的卡
+
