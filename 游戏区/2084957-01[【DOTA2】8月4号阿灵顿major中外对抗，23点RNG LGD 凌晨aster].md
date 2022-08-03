@@ -1810,3 +1810,21 @@ XG现在440分,没有前二没机会直接出线吧.万一没直接出线又回�
 另外最近沉迷玩大马，这英雄有没有啥靠谱的出装，之前学的版主先出龙心感觉很需要一个BKB啊 ...</blockquote>
 绿鞋先锋挑战或者挑战先锋喽，因为挑战可以开了以后用双刃剑可以减伤，基本上是人马刷钱关键装
 
+
+
+*****
+
+####  京吹病人  
+##### 202#       发表于 2022-8-3 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">鳖队打eg 有啥好看的。劣势路直接被nightfall杀穿。打的就是你LFY.莫奈头
+
+*****
+
+####  坚定的团子党  
+##### 203#       发表于 2022-8-3 23:15
+
+eg还是挺菜的，上次major也是一轮游，鳖茶说不定有机会赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
