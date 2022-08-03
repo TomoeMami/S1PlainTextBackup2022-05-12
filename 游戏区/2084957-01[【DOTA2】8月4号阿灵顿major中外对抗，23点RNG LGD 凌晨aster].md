@@ -1855,3 +1855,54 @@ eg还是挺菜的，上次major也是一轮游，鳖茶说不定有机会赢<img
 
 就封了10个啊，无聊
 
+
+
+*****
+
+####  聚散浮云  
+##### 207#       发表于 2022-8-3 23:41
+
+无聊，这不是我想要的major
+
+*****
+
+####  反方向的波  
+##### 208#       发表于 2022-8-3 23:42
+
+<img src="https://p.sda1.dev/6/3cda443d376d31920687558f9898b3f2/Screenshot_2022-08-03-23-41-22-69_99c04817c0de5652397fc8b56c3b3817.jpg" referrerpolicy="no-referrer">
+想起了 葬礼......唢呐......吹出x声
+
+*****
+
+####  沈淮  
+##### 209#         楼主| 发表于 2022-8-3 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922034&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-3 23:42</a>
+想起了 葬礼......唢呐......吹出x声</blockquote>
+一段话完完本本的暴露了自己不看比赛吗这是
+
+*****
+
+####  逃离二次元  
+##### 210#       发表于 2022-8-3 23:48
+
+哪里截的
+
+
+
+*****
+
+####  沈淮  
+##### 211#         楼主| 发表于 2022-8-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922072&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-3 23:48</a>
+哪里截的</blockquote>
+菠菜楼
+
+*****
+
+####  逃离二次元  
+##### 212#       发表于 2022-8-3 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
