@@ -720,3 +720,32 @@ https://bbs.saraba1st.com/2b/thread-2040827-2372-1.html
 
 虽然有点像TI5矮人直升机没处理好,英雄池上有劣势,无论怎么样，我还是支持中国队的
 
+
+
+*****
+
+####  ArowRocher  
+##### 81#       发表于 2022-8-3 13:05
+
+<img src="https://img.nga.178.com/attachments/mon_202208/03/-zue37Q74e8-boxwZoT3cSt0-jk.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 82#       发表于 2022-8-3 13:06
+
+老鸡奇遇记
+
+节奏大师
+
+DOTA2阿灵顿Major
+
+8.4-8.14会与兄弟们全程直播解说阿灵顿major，与斗鱼&amp;cherry &amp;艾石头联合出品了2款定制键盘，在major期间限时折扣预售，major结束后将在cherry旗舰店原价上线，感兴趣的小鸡甲记得关注赛事专题页下方商城选购！( )
+
+*****
+
+####  -SLSL-  
+##### 83#       发表于 2022-8-3 13:09
+
+csdx有键盘先给月哥整一支吧，月哥每天晚上玩円神的时候键盘都会吱吱叫呀
+
