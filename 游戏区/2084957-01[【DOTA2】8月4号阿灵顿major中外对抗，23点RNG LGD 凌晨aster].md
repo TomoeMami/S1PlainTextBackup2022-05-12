@@ -587,3 +587,91 @@ dota2(电子游戏)
 
 支持新刀综<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nightmare902015  
+##### 64#       发表于 2022-8-3 12:43
+
+干嘛呀一直视奸，还是讨论下为什么神圣一跳有时候跳很远，有时候原地跳吧，没玩过宙斯
+
+*****
+
+####  京吹病人  
+##### 65#       发表于 2022-8-3 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人痴还在开小号看吗？ 好急啊 好急啊 好急啊
+
+*****
+
+####  Litccc  
+##### 66#       发表于 2022-8-3 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916188&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-3 12:43</a>
+干嘛呀一直视奸，还是讨论下为什么神圣一跳有时候跳很远，有时候原地跳吧，没玩过宙斯 ...</blockquote>
+需要跳之前有位移才能跳出去，不然只会原地起跳
+
+*****
+
+####  沈淮  
+##### 67#         楼主| 发表于 2022-8-3 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916188&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-3 12:43</a>
+
+干嘛呀一直视奸，还是讨论下为什么神圣一跳有时候跳很远，有时候原地跳吧，没玩过宙斯 ...</blockquote>
+不能站着不动
+
+*****
+
+####  ArowRocher  
+##### 68#       发表于 2022-8-3 12:46
+
+话说我怎么没看到过光一的专楼，8万jk都在哪里讨论的
+
+*****
+
+####  沈淮  
+##### 69#         楼主| 发表于 2022-8-3 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916208&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-3 12:46</a>
+
+话说我怎么没看到过光一的专楼，8万jk都在哪里讨论的</blockquote>
+批综
+
+*****
+
+####  超级低气压  
+##### 70#       发表于 2022-8-3 12:46
+
+要走的时候跳 不动就是原地跳
+
+*****
+
+####  Asukalangley33  
+##### 71#       发表于 2022-8-3 12:47
+
+意思是dota2除了z轴，还有加速度
+等一个宙斯kz图
+
+*****
+
+####  wbzdwsmnmsl  
+##### 72#       发表于 2022-8-3 12:48
+
+nga的v版有光一专楼，泥潭v版b综也算半个版信老家
+
+*****
+
+####  Nemo艇长  
+##### 73#       发表于 2022-8-3 12:50
+
+这么多楼友将会喜提一个月，谁还敢说刀斯林不爱国<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 74#       发表于 2022-8-3 12:50
+
+管人痴看着自己太监的模样被众人嘲笑，急得键盘都快按烂了
+
