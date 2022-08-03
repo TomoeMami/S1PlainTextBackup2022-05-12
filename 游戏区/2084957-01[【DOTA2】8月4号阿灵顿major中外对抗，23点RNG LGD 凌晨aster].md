@@ -1167,3 +1167,15 @@ csdx还专门改颜色了，好呀好呀
 
 全他妈在谜语 上个楼这周还没来得及刷呢就没了 你们都是坏人啊坏人！
 
+
+
+*****
+
+####  尸体鲨  
+##### 132#       发表于 2022-8-3 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916217&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-3 12:47</a>
+意思是dota2除了z轴，还有加速度
+等一个宙斯kz图</blockquote>
+神圣一跳技能描述有写，如果处于位移状态会朝位移方向跳一段距离，估计这游戏没有加速度
+
