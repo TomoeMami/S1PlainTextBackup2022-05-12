@@ -1743,3 +1743,19 @@ XG现在440分,没有前二没机会直接出线吧.万一没直接出线又回�
 
 是踩死过无数职业哥的半人马征服者
 
+
+
+*****
+
+####  Bhagavan  
+##### 195#       发表于 2022-8-3 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920559&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-3 21:16</a>
+
+国服是不是没法玩，玩个卫士天梯全是乱玩的，碰到个ID叫我想掉到0分的德鲁伊，一直不点技能加黄点，我还以 ...</blockquote>
+我在广东可直连东南亚和日本
+
+40ms和90ms
+
+偶尔丢包
+
