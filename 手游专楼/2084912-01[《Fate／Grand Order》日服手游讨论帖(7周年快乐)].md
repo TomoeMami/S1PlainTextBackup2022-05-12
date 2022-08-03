@@ -658,3 +658,82 @@
 给自己回血还是要减10NP吧</blockquote>
 是的，原本旧的要-10，新的即使扣自己还能有20，我要感动死了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 79#       发表于 2022-8-3 17:31
+
+ 本帖最后由 exiaexa 于 2022-8-3 17:35 编辑 
+
+还是来看小刚吧
+20红50爆伤30攻45防御40精神耐性全部3t
+真实猛男式强化
+
+就是心眼多了1cd拖后腿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 80#       发表于 2022-8-3 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918521&amp;ptid=2084912" target="_blank">yzj134100 发表于 2022-8-3 17:29</a>
+
+是的，原本旧的要-10，新的即使扣自己还能有20，我要感动死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">但是一宝对自己用的话不是会变成+30 变100再减10变成90么 还是说对自己放就是直接+20
+
+*****
+
+####  alucardcz  
+##### 81#       发表于 2022-8-3 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918539&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:31</a>
+
+但是一宝对自己用的话不是会变成+30 变100再减10变成90么 还是说对自己放就是直接+20 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照文字描述的循序 肯定是先加后减
+
+当然我也没什么215 等个大佬测试
+
+*****
+
+####  yzj134100  
+##### 82#       发表于 2022-8-3 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918539&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 17:31</a>
+
+但是一宝对自己用的话不是会变成+30 变100再减10变成90么 还是说对自己放就是直接+20 ...</blockquote>
+一宝大于等于70的话+30变100然后-10变90吧 ，因为是两个效果
+
+*****
+
+####  Jamaisvu  
+##### 83#       发表于 2022-8-3 17:35
+
+ 本帖最后由 Jamaisvu 于 2022-8-3 17:37 编辑 
+
+今天强化的两仪式是七周年日替up角色...那么明天的四星杀该不会是泳装牛若丸吧？以此类推，后天是R紫式部，大后天另一个五星强化可能是水阿比？水阿比那个技能组是该强化了，建议把三技能的单体红卡耐性down换成敌方全体...
+
+*****
+
+####  alucardcz  
+##### 84#       发表于 2022-8-3 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918579&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-3 17:35</a>
+
+今天强化的两仪式是七周年日替up角色...那么明天的四星杀该不会是泳装牛若丸吧？然后另一个五星强化可能是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 小王子这么明显了
+
+*****
+
+####  qixinno2  
+##### 85#       发表于 2022-8-3 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918553&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:33</a>
+
+按照文字描述的循序 肯定是先加后减
+
+当然我也没什么215 等个大佬测试 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按文字描述应该就是这么弱智 明天四星杀估计就是214了吧 感觉无论怎么强化都吊打215
+
