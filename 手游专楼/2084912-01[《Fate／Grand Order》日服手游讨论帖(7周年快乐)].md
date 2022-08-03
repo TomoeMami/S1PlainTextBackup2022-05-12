@@ -765,3 +765,94 @@
 今天强化的两仪式是七周年日替up角色...那么明天的四星杀该不会是泳装牛若丸吧？以此类推，后天是R紫式部， ...</blockquote>
 当天UP小王子，你懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 89#       发表于 2022-8-3 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">小王子我觉得再怎么强化也就那样了
+
+*****
+
+####  ネロ  
+##### 90#       发表于 2022-8-3 17:53
+
+刚才我点到国服楼去了，还在奇怪怎么有人在抽杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Jamaisvu  
+##### 91#       发表于 2022-8-3 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918586&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 17:36</a>
+
+小王子这么明显了</blockquote>
+哦对，8.6号开外星人强化，正好是小王子日替...
+
+看了一下目前的每天两组强化，貌似存在一些规律？比如第一天的枪大公和海德都能变成狂阶，第二天两个枪，第三天两个剑...
+
+（口胡：第四天泳装牛若丸和巴索罗谬，都是和海相关的；第五天R紫式部和俵藤太，都是日本从者。）
+
+那么和小王子一起强化的三星术，我打算奶一下C元帅，毕竟都是克苏鲁体系的（元帅：？？？此外星人非彼外星人），而且C元帅作为开服从者还没有宝具本呢。
+
+（最后一天完全没头绪，1星狂姑且奶个小牛，四星剑感觉迪昂该强化了吧...）
+
+*****
+
+####  芭德薇  
+##### 92#       发表于 2022-8-3 17:54
+
+可以开个宝具本吧，顺便把充能多加一点。
+
+*****
+
+####  霧谷藤乃  
+##### 93#       发表于 2022-8-3 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918043&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 16:37</a>
+
+欧皇的自信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有欧皇的自信的话就会去拿石头怼公主高宝了，恰恰是没有所以省下来了
+
+*****
+
+####  qixinno2  
+##### 94#       发表于 2022-8-3 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">可别是C元帅了 以前顺手给卖了至今幕间和强化本都打不了
+
+*****
+
+####  Jamaisvu  
+##### 95#       发表于 2022-8-3 17:58
+
+<blockquote>khxooo 发表于 2022-8-3 17:49
+当天UP小王子，你懂的</blockquote>
+懂了懂了。
+
+看了下技能组，感觉二技能换成敌方全体绿卡耐性down可能有点用，如果想强化到刀刃上，也可以把绿卡up的20加到30。
+
+不过眼看着新绿拐要上线了，不知道会不会从强化本就开始下毒...万一强化一技能改成给20星就贻笑大方了...
+
+*****
+
+####  不垃圾屌丝  
+##### 96#       发表于 2022-8-3 18:00
+
+四星杀该轮到切嗣了，就他没开过强化了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  katun  
+##### 97#       发表于 2022-8-3 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小王子最强的地方就在于他一破宝具动画超级短，谁用谁知道
+

@@ -1213,3 +1213,38 @@ csdx还专门改颜色了，好呀好呀
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  莉拉厨  
+##### 136#       发表于 2022-8-3 17:50
+
+之前液体和OG打的时候，ATF玩个龙骑，那弹幕的恐怖程度和今天差不了多少
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  超法拉  
+##### 137#       发表于 2022-8-3 17:52
+
+问题来了 今晚rng会不会选龙骑呢
+
+*****
+
+####  战狼PTSD  
+##### 138#       发表于 2022-8-3 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918748&amp;ptid=2084957" target="_blank">超法拉 发表于 2022-8-3 17:52</a>
+
+问题来了 今晚rng会不会选龙骑呢</blockquote>
+不是明天吗
+
+*****
+
+####  sobelisk  
+##### 139#       发表于 2022-8-3 17:59
+
+晚上看下安皇和超哥的磨合程度咋样...
+
