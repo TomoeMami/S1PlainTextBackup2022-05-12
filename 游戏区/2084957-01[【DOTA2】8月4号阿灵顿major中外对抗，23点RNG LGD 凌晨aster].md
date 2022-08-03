@@ -1317,3 +1317,72 @@ major不行，含金量还得看ti
 
 结果搞了半天，topson直接从OG退了呗，找个新team打今年的TI，问题来了，之前说想在EU打，这怕没几个S级队伍有机会了啊。
 
+
+
+*****
+
+####  seki_m  
+##### 149#       发表于 2022-8-3 18:40
+
+DOTA楼禁管啊，怎么可以建到皮套人管的版块去
+
+*****
+
+####  Litccc  
+##### 150#       发表于 2022-8-3 18:42
+
+<img src="https://p.sda1.dev/6/edc4fc16adc7ab55ff2b1a16d0c2408d/FZOo0s-WYAIDclc.jpg" referrerpolicy="no-referrer">
+
+topson适应的有点快啊，饮食习惯这么快就变了🤔
+
+
+
+*****
+
+####  莉拉厨  
+##### 151#       发表于 2022-8-3 18:42
+
+别急，诡计之雾还没运到，再加上晚上视野不好，不会开团的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 152#         楼主| 发表于 2022-8-3 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919192&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-3 18:42</a>
+topson适应的有点快啊，饮食习惯这么快就变了🤔</blockquote>
+兰州拉面不是铁清真？
+
+*****
+
+####  反方向的波  
+##### 153#       发表于 2022-8-3 18:44
+
+严查一下店老板是不是叫伍声
+
+*****
+
+####  zhwpjy  
+##### 154#       发表于 2022-8-3 18:44
+
+你们真在讨论比赛吗
+
+*****
+
+####  百世诸侯  
+##### 155#       发表于 2022-8-3 18:46
+
+这是纪录片里的？TOPSON在上海？TOPSON不吃猪肉？
+
+*****
+
+####  Litccc  
+##### 156#       发表于 2022-8-3 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919206&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-3 18:43</a>
+
+兰州拉面不是铁清真？</blockquote>
+国内也有汉族开的，不过他老婆在的话100%清真馆子
+
