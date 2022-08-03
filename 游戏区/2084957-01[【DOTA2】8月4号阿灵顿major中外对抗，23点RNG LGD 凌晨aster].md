@@ -1011,3 +1011,47 @@ csdx还专门改颜色了，好呀好呀
 
 这次Major时间太阴间了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看有没有末场能早上67点钟开的，还能早上爬起来看看。
 
+
+
+*****
+
+####  IG.430  
+##### 115#       发表于 2022-8-3 14:52
+
+伐木伐木
+
+*****
+
+####  百世诸侯  
+##### 116#       发表于 2022-8-3 14:55
+
+插播一条突发消息：撸狗集美半月蝶莲已经装死9天了，怎么回事呢
+
+*****
+
+####  迷途lite  
+##### 117#       发表于 2022-8-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917221&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-3 14:55</a>
+插播一条突发消息：撸狗集美半月蝶莲已经装死9天了，怎么回事呢</blockquote>
+谁啊？那个再也没下班的嘴硬哥？
+
+*****
+
+####  百世诸侯  
+##### 118#       发表于 2022-8-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917232&amp;ptid=2084957" target="_blank">迷途lite 发表于 2022-8-3 14:56</a>
+
+谁啊？那个再也没下班的嘴硬哥？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">嘴硬哥在超级太监论坛的号也于7.25日戛然而止了，该不会真的死在下班路上了吧
+
+*****
+
+####  迷途lite  
+##### 119#       发表于 2022-8-3 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917246&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-3 14:56</a>
+嘴硬哥在超级太监论坛的号也于7.25日戛然而止了，该不会真的死在下班路上了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">缅怀
+
