@@ -1107,3 +1107,29 @@ csdx还专门改颜色了，好呀好呀
 
 —— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  沈淮  
+##### 126#         楼主| 发表于 2022-8-3 15:31
+
+别尬黑，玩三国杀被曹丕翻面了，还没翻回来而已
+
+*****
+
+####  超人苏坦纳  
+##### 127#       发表于 2022-8-3 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917509&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-3 15:31</a>
+
+别尬黑，玩三国杀被曹丕翻面了，还没翻回来而已</blockquote>
+那翻不过来的原因是什么呢？生理构造吗？
+
+*****
+
+####  hyde_caesar  
+##### 128#       发表于 2022-8-3 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么楼说什么话, 我在刀楼就是刀狗!
+
