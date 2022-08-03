@@ -1133,3 +1133,14 @@ csdx还专门改颜色了，好呀好呀
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么楼说什么话, 我在刀楼就是刀狗!
 
+
+
+*****
+
+####  沈淮  
+##### 129#         楼主| 发表于 2022-8-3 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917543&amp;ptid=2084957" target="_blank">超人苏坦纳 发表于 2022-8-3 15:35</a>
+那翻不过来的原因是什么呢？生理构造吗？</blockquote>
+鳖孙翻面慢是这样的
+
