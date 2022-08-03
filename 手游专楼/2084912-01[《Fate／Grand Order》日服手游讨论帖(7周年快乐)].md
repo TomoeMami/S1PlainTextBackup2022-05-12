@@ -1,0 +1,535 @@
+
+
+*****
+
+####  朝香果林  
+##### 1#       楼主       发表于 2022-8-2 19:07
+
+上一座楼抽得太厉害了。趁着3000页换楼。如果有想添加得群号。可以在下面留言我补上。
+
+ *本主题由 captoon 于 2022-8-3 16:31 设置高亮* 
+
+*****
+
+####  阿提拉  
+##### 2#       发表于 2022-8-2 19:10
+
+三座新楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑上シグマ  
+##### 3#       发表于 2022-8-2 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联系版主删楼吧
+
+*****
+
+####  空气蛹  
+##### 4#       发表于 2022-8-2 19:28
+
+来了来了
+
+*****
+
+####  khxooo  
+##### 5#       发表于 2022-8-2 19:30
+
+前排留名，经常要翻页，那楼也算完成历史使命了。
+
+*****
+
+####  exiaexa  
+##### 6#       发表于 2022-8-2 19:47
+
+换楼成功了吗
+
+10eQP进度51%
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 7#       发表于 2022-8-2 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼卡在7分开的，那就用这个吧
+
+*****
+
+####  承尘  
+##### 8#       发表于 2022-8-2 19:53
+
+开了新楼吗，我也首页露个脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 9#       发表于 2022-8-2 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910866&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-2 19:47</a>
+
+换楼成功了吗
+
+10eQP进度51%</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 萌新钱终于用掉了 现在只剩18亿了
+
+*****
+
+####  里村紅葉  
+##### 10#       发表于 2022-8-2 20:19
+
+楼名不加红甚至没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 11#       发表于 2022-8-2 20:51
+
+三座楼，一座楼给海豹，一座楼给萌新，一座楼给非洲人
+
+*****
+
+####  exiaexa  
+##### 12#       发表于 2022-8-2 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910944&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-2 19:54</a>
+
+好消息 萌新钱终于用掉了 现在只剩18亿了</blockquote>
+你狗了什么
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13#       发表于 2022-8-2 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56912009&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-2 21:06</a>
+
+你狗了什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主啊  800石1宝无歪呢
+
+*****
+
+####  exiaexa  
+##### 14#       发表于 2022-8-2 21:23
+
+ 本帖最后由 exiaexa 于 2022-8-2 21:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56912107&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-2 21:13</a>
+
+公主啊  800石1宝无歪呢</blockquote>
+辛苦了，下次抽2宝之前记得先忍忍
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15#       发表于 2022-8-2 21:39
+
+ 本帖最后由 alucardcz 于 2022-8-2 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56912190&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-2 21:23</a>
+
+辛苦了，下次抽2宝之前记得先忍忍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就突出一个后悔 同时也说明了这保底有多**  
+
+*****
+
+####  wd11610116  
+##### 16#       发表于 2022-8-2 21:39
+
+新楼好评
+
+*****
+
+####  wd11610116  
+##### 17#       发表于 2022-8-2 21:40
+
+新楼好评
+
+*****
+
+####  qixinno2  
+##### 18#       发表于 2022-8-2 23:07
+
+<blockquote>alucardcz 发表于 2022-8-2 21:39
+现在就突出一个后悔 同时也说明了这保底有多**</blockquote>
+坐等萌新泳装池豹跳
+
+*****
+
+####  alucardcz  
+##### 19#       发表于 2022-8-2 23:13
+
+ 本帖最后由 alucardcz 于 2022-8-2 23:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56913478&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-2 23:07</a>
+
+坐等萌新泳装池豹跳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就100石+10符   估计到时候能到120石？    最近那么非 必然0宝 又不是你这种欧皇（
+
+*****
+
+####  rooarr  
+##### 20#       发表于 2022-8-2 23:32
+
+怎么突然多了个新楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 21#       发表于 2022-8-3 00:07
+
+<blockquote>alucardcz 发表于 2022-8-2 23:13
+也就100石+10符   估计到时候能到120石？    最近那么非 必然0宝 又不是你这种欧皇（ ...</blockquote>
+我对自己的非洲血统有自信
+
+*****
+
+####  霧谷藤乃  
+##### 22#       发表于 2022-8-3 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点满三个卡技能我的QP也见底了，真萌新现在终于有十位310的从者，虽然感觉有些都基本不用
+
+*****
+
+####  白金口袋  
+##### 23#       发表于 2022-8-3 10:18
+
+到底哪个帖子才是新楼能不能加个高亮变色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉莉橙  
+##### 24#       发表于 2022-8-3 10:28
+
+老咸鱼留个脚印
+
+*****
+
+####  captoon  
+##### 25#       发表于 2022-8-3 10:53
+
+重复的楼已删
+
+*****
+
+####  木水风铃  
+##### 26#       发表于 2022-8-3 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送的650石加二十左右护符都没了也没中。。还是继续退坑吧
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  UNISONIA  
+##### 27#       发表于 2022-8-3 10:58
+
+感觉还好去年没刷120，这次狗粮本要刷的意识模糊了
+
+*****
+
+####  areklose  
+##### 28#       发表于 2022-8-3 11:10
+
+ 本帖最后由 areklose 于 2022-8-3 11:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56915000&amp;ptid=2084912" target="_blank">captoon 发表于 2022-8-3 10:53</a>
+
+重复的楼已删</blockquote>
+顺便把旧楼的高亮也取消锁了吧。否则看起来有点怪。
+
+*****
+
+####  千叶铁矢  
+##### 29#       发表于 2022-8-3 11:14
+
+那么有没有那个 就是录另<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 30#       发表于 2022-8-3 11:22
+
+抽了十多次抽到公主了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  偽ウサギ  
+##### 31#       发表于 2022-8-3 12:16
+
+竟然开到第三个楼了，泳装梅丽能不能救救绿卡<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 32#       发表于 2022-8-3 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有群号？来一个！
+
+*****
+
+####  霧谷藤乃  
+##### 33#       发表于 2022-8-3 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉现在很难出什么大拐了吧，能打能拐的比较多
+
+*****
+
+####  森兰丸  
+##### 34#       发表于 2022-8-3 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定新楼是这座了吗
+
+*****
+
+####  areklose  
+##### 35#       发表于 2022-8-3 13:23
+
+泳装女梅林应该是buff宝具。看看如何了。还有泳装斯卡蒂了。不如指望后者重振绿卡荣光
+
+*****
+
+####  密特里奈斯  
+##### 36#       发表于 2022-8-3 14:00
+
+还剩下900石头备战泳装，梅莉不至于吃保底吧
+
+顺便公主追2宝失败，出了小太阳和皇女……
+
+*****
+
+####  marxel  
+##### 37#       发表于 2022-8-3 14:05
+
+其实卡楼这个事情，找版主从前面的楼层随便删一个就能修好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 38#       发表于 2022-8-3 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这新楼没什么意义啊  还是回老楼吧
+
+*****
+
+####  quanlix  
+##### 39#       发表于 2022-8-3 14:20
+
+艹，今年泳装有仨5星，法米通访谈上蘑菇说的
+
+*****
+
+####  areklose  
+##### 40#       发表于 2022-8-3 15:00
+
+谁还记得舅舅说的是哪几个？新三个新泳装有点狠。
+
+*****
+
+####  阿提拉  
+##### 41#       发表于 2022-8-3 15:07
+
+三五星，估计就是梅莉伊吹CBA了
+
+*****
+
+####  霧谷藤乃  
+##### 42#       发表于 2022-8-3 15:10
+
+狂伊吹  术武后  伪旧梅  仇绘里濑  剑加雷斯  杀瓦尔基里  尺斯卡蒂
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该说是营收压力很大么，居然三个五星
+
+*****
+
+####  quanlix  
+##### 43#       发表于 2022-8-3 15:10
+
+得，川澄也阳了，生放上的那些嘉宾估计都跑不了
+
+*****
+
+####  alucardcz  
+##### 44#       发表于 2022-8-3 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917357&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-3 15:10</a>
+
+得，川澄也阳了，生放上的那些嘉宾估计都跑不了</blockquote>
+隐约记得都不戴口罩的..这波..全部带走?
+
+*****
+
+####  凌云三才  
+##### 45#       发表于 2022-8-3 15:23
+
+绘里濑应该升星了，我倒觉得伊吹可能是四星
+
+*****
+
+####  仰望神的括约肌  
+##### 46#       发表于 2022-8-3 15:35
+
+2.7还是蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 47#       发表于 2022-8-3 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917390&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 15:15</a>
+隐约记得都不戴口罩的..这波..全部带走?</blockquote>
+没有带口罩，估计阿叶会再阳一次。
+
+*****
+
+####  areklose  
+##### 48#       发表于 2022-8-3 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当前UP。周年商店追加灵衣兑换。那么多buff下。今天能不能混个强化
+
+*****
+
+####  黑上シグマ  
+##### 49#       发表于 2022-8-3 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917665&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-3 15:51</a>
+
+当前UP。周年商店追加灵衣兑换。那么多buff下。今天能不能混个强化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家想得到的，舍弃
+
+*****
+
+####  sosgame67  
+##### 50#       发表于 2022-8-3 15:55
+
+强度党无所畏惧，有绿拐就抽，没有就拉倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 51#       发表于 2022-8-3 15:55
+
+不如来个大活，伊吹宝具本算了
+
+*****
+
+####  霧谷藤乃  
+##### 52#       发表于 2022-8-3 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有大柰就抽
+
+*****
+
+####  rzxa  
+##### 53#       发表于 2022-8-3 16:23
+
+两仪式会改模吧
+
+*****
+
+####  alucardcz  
+##### 54#       发表于 2022-8-3 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917863&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-3 16:16</a>
+
+有大柰就抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">欧皇的自信
+
+*****
+
+####  qixinno2  
+##### 55#       发表于 2022-8-3 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年公主这一巴掌打的我现在都好难受啊
+
+*****
+
+####  alucardcz  
+##### 56#       发表于 2022-8-3 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918091&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 16:43</a>
+
+周年公主这一巴掌打的我现在都好难受啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲佬别装了 我也800石1宝  而且今年只有1new
+
+*****
+
+####  里村紅葉  
+##### 57#       发表于 2022-8-3 16:46
+
+这不给个总司宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 58#       发表于 2022-8-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918099&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-3 16:44</a>
+
+欧洲佬别装了 我也800石1宝  而且今年只有1new</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然只有一个NEW 但你五星出货率也不低啊 
+
+*****
+
+####  alucardcz  
+##### 59#       发表于 2022-8-3 17:02
+
+没意思  真是215<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 60#       发表于 2022-8-3 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918130&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-3 16:47</a>
+
+虽然只有一个NEW 但你五星出货率也不低啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是new有什么意思！
+
+
+
+*****
+
+####  alucardcz  
+##### 61#       发表于 2022-8-3 17:04
+
+阴阳鱼这改的。。变成30-10=20自充了。。。。。。
+
+*****
+
+####  sosgame67  
+##### 62#       发表于 2022-8-3 17:05
+
+215这强化是先充能再减？堪比水黑呆的3000hp了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 63#       发表于 2022-8-3 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918280&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-3 17:05</a>
+
+215这强化是先充能再减？堪比水黑呆的3000hp了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">充能在前 应该是先加  当然我根本没有什么215 等你测了（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1宝画面会很美  80+30-10=90
+
+*****
+
+####  yzj134100  
+##### 64#       发表于 2022-8-3 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让队友-10np+回血,笑死
+
+*****
+
+####  凌云三才  
+##### 65#       发表于 2022-8-3 17:09
+
+这个减10NP好像可以甩给别人的，就是自己加30NP，任选一个人回5000血扣10NP
+

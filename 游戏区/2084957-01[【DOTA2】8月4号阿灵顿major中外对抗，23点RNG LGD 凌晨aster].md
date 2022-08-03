@@ -1179,3 +1179,17 @@ csdx还专门改颜色了，好呀好呀
 等一个宙斯kz图</blockquote>
 神圣一跳技能描述有写，如果处于位移状态会朝位移方向跳一段距离，估计这游戏没有加速度
 
+
+
+*****
+
+####  桐道悠  
+##### 133#       发表于 2022-8-3 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917448&amp;ptid=2084957" target="_blank">11116等 发表于 2022-8-3 15:22</a>
+
+为什么刀塔玩家不在刀区讨论呢
+
+—— 来自 OPPO PCAM10, Android 11上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是的，刀综就应该放到管人区去
+
