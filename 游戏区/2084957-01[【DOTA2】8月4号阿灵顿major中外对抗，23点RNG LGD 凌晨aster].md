@@ -1654,3 +1654,44 @@ XG现在440分,没有前二没机会直接出线吧.万一没直接出线又回�
 
 等到我被黑屋一个月就看不了MAJOR楼了，这种事情不要啊
 
+
+
+*****
+
+####  43453  
+##### 185#       发表于 2022-8-3 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920657&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-3 21:24</a>
+XG现在440分,没有前二没机会直接出线吧.万一没直接出线又回不来预选打不了今年不是白忙,不如直接预选好好 ...</blockquote>
+现在回国是7+3，还是来得及的吧
+
+*****
+
+####  坚定的团子党  
+##### 186#       发表于 2022-8-3 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920559&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-08-03 21:16:20</a>
+国服是不是没法玩，玩个卫士天梯全是乱玩的，碰到个ID叫我想掉到0分的德鲁伊，一直不点技能加黄点，我还以 ...</blockquote>人在广东可直连，其他地方要网易加速器
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 187#       发表于 2022-8-3 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920559&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-3 21:16</a>
+
+国服是不是没法玩，玩个卫士天梯全是乱玩的，碰到个ID叫我想掉到0分的德鲁伊，一直不点技能加黄点，我还以 ...</blockquote>
+如果你去东南亚的理由是队友瞎逼打，那你去了东南亚也不会有什么区别的。兄弟信我。
+
+*****
+
+####  坚定的团子党  
+##### 188#       发表于 2022-8-3 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920742&amp;ptid=2084957" target="_blank">43453 发表于 2022-08-03 21:31:03</a>
+现在回国是7+3，还是来得及的吧</blockquote>7+3的前提是不得病，得病就得漂流在东南亚了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
