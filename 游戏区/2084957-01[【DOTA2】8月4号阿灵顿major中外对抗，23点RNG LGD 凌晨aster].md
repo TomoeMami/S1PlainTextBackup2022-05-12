@@ -749,3 +749,58 @@ DOTA2阿灵顿Major
 
 csdx有键盘先给月哥整一支吧，月哥每天晚上玩円神的时候键盘都会吱吱叫呀
 
+
+
+*****
+
+####  Litccc  
+##### 84#       发表于 2022-8-3 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916360&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-3 13:06</a>
+
+老鸡奇遇记
+
+节奏大师
+
+DOTA2阿灵顿Major</blockquote>
+括号里的删除是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 85#       发表于 2022-8-3 13:11
+
+是明天下午来东南亚单排
+
+*****
+
+####  战狼PTSD  
+##### 86#       发表于 2022-8-3 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916351&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-3 13:05</a></blockquote>
+看不到图啊，CSDX键盘长啥样子，正好想换
+
+*****
+
+####  ArowRocher  
+##### 87#       发表于 2022-8-3 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916424&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-3 13:13</a>
+
+看不到图啊，CSDX键盘长啥样子，正好想换</blockquote>
+没有配图，我这个图是鱼吧的截图，内容只有文字，鼠志豪把附件关了没办法呀
+
+*****
+
+####  迷途lite  
+##### 88#       发表于 2022-8-3 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发生什么事了
+
+*****
+
+####  nightmare902015  
+##### 89#       发表于 2022-8-3 13:17
+
+铁键在必得
+
