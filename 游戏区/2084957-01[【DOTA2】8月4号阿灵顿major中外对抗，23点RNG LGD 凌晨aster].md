@@ -2539,3 +2539,26 @@ ti8最后一盘打完他们过去举盾 每人对着观众举一下的时候 轮
 
 可以调时差？萨特我砍
 
+
+
+*****
+
+####  hyde_caesar  
+##### 280#       发表于 2022-8-4 16:33
+
+哇一个个都能调时差啊, 社畜只能每天起来被剧透然后上班开个小窗口偷偷看录播<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 281#       发表于 2022-8-4 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不是下班回家直接睡然后起来看一圈比赛然后直接去上班么，为啥萨特
+
+*****
+
+####  六道仙鱼  
+##### 282#       发表于 2022-8-4 16:39
+
+下班回家直接睡觉。睡到11点半，大概率不会准时开。看到5点再睡，破费。
+
