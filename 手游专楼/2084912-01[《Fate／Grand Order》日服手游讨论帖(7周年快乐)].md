@@ -1242,3 +1242,12 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">LATER的泳装武藏到货了，然而垃圾快递外箱严重破损，还要退回去售后……
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 139#       发表于 2022-8-4 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.7来大的的话，主线能全语音么
+

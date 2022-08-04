@@ -4559,3 +4559,15 @@ sif其实放到现在也算挺好玩的轻度音游，而且音乐水平一直�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 1956#       发表于 2022-8-4 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56926318&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-4 13:36</a>
+咋学日语省略主语了感觉liyuu热情变小了？原本fc说全好了才发自拍的，结果还是贴着胶布拍了一张， ...</blockquote>
+额，应该是指自己吧
+（我）昨天看到 liyuu 回来了，我感觉（liyuu)不如在歇歇，日本这情况（很糟糕），感觉（自己）热情变小了。希望（动画二期）可可多点，能激发下（我的）热情
+
