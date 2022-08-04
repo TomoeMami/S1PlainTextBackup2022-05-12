@@ -5465,3 +5465,28 @@ Bryle，这场失败就是你付出的代价
 
 超哥超哥，你就这么讨厌打**吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 655#       发表于 2022-8-5 01:16
+
+这阵容不齐的rng打vp能1：1就已经不错了，形势还不错
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蛭人  
+##### 656#       发表于 2022-8-5 01:19
+
+桶哥的德鲁伊还是稳啊，液体这几个哥们真应该多谢谢桶哥带。
+
+*****
+
+####  京吹病人  
+##### 657#       发表于 2022-8-5 01:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">熬夜关注atser
+

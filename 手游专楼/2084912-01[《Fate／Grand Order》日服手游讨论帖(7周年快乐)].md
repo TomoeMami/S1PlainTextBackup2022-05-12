@@ -1780,3 +1780,42 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 这30NP的自充强化相当于没用....不能上场还是不能上....除非宝具的即死玩家能自行设置开启还是关闭...或者直接给个100NP自充的强化.....反正公主上来就有个100NP自充..你现在给215强化自充100玩家也不会有多大意见
 
+
+
+*****
+
+####  alucardcz  
+##### 189#       发表于 2022-8-5 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934759&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-5 01:07</a>
+
+虽然晚了1天还是上来说下....用今天的强化本来测试了下强化后的215标准蓝卡队
+
+1面3个直接即死....N ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你可以宝石 双c呆换人奥师傅  完美3连！
+
+*****
+
+####  exiaexa  
+##### 190#       发表于 2022-8-5 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934723&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 01:00</a>
+想少了 我早不6加成了 我是2键
+
+传不了图</blockquote>
+我只是赞叹一下你们这种
+说肝就肝，肝死自己亏死运营的秃子精神
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 191#       发表于 2022-8-5 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934801&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-5 01:15</a>
+
+我只是赞叹一下你们这种
+
+说肝就肝，肝死自己亏死运营的秃子精神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实根本没你们肝 我从来不刷什么无限池  
+
