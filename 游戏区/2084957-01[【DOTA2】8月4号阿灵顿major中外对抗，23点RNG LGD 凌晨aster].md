@@ -6500,3 +6500,36 @@ rng走远了
 
 刚醒，听说RNG领先三万胜率991被翻盘
 
+
+
+*****
+
+####  Litccc  
+##### 787#       发表于 2022-8-5 07:38
+
+老北京再这么打下去小心集美真的岁月史书了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 788#       发表于 2022-8-5 07:40
+
+rng应该还是能进败者组的，胜者组就难了。
+
+*****
+
+####  Yukino-Yukino  
+##### 789#       发表于 2022-8-5 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935396&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-08-05 06:15:11</a>
+要打肉山团，酱油不站前面破雾，让1号站最前面被换然后被秒，真是无语</blockquote>讲道理，那波是外面刷了个双倍，ana出去吃然后正好撞到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说来得早不如来得巧。早一点或者晚一点ta都不会被先手到。偏偏是吃到双倍的那个时间点qc也正好赶到。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  逃离二次元  
+##### 790#       发表于 2022-8-5 07:40
+
+ctmd霉醋天天给集美送子弹<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">早点退役吧！
+
