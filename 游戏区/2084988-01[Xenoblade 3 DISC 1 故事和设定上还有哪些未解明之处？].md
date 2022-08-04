@@ -1244,3 +1244,19 @@ https://imgur.io/a/5KIUAZp
 整了个中文的，不知道能不能看见
 <img src="http://wx3.sinaimg.cn/large/dcec95dfgy1h4uks7psosj20hs0l8wgi.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  光与暗的转生  
+##### 115#       发表于 2022-8-4 11:51
+
+这个结局给的感觉怎么也不可能寄刀片 dlc必定是解决一切问题的he
+
+*****
+
+####  光与暗的转生  
+##### 116#       发表于 2022-8-4 11:51
+
+这个结局给的感觉怎么也不可能寄刀片 dlc必定是解决一切问题的he
+
