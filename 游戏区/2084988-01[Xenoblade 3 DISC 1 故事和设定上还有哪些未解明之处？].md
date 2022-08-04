@@ -1370,3 +1370,15 @@ dlc肯定要合回来，这才算三部曲完结，不然下一部还是得面�
 
 突然想到了高桥他老婆和妻弟的事
 
+
+
+*****
+
+####  DEKU  
+##### 124#       发表于 2022-8-4 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920529&amp;ptid=2084988" target="_blank">Diong 发表于 2022-8-3 21:14</a>
+
+最大的未解之谜，我机娘呢？不是说好了每部都有吗？不会是M吧？倒是把她开放给我操作啊。 ...</blockquote>
+眼花，看漏了一个“作”字
+
