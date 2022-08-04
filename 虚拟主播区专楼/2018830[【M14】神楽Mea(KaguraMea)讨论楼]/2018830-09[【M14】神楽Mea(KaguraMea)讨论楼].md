@@ -1916,3 +1916,21 @@ s1发不了图还真是麻烦阿。
 
 1期 1.5期 2期 真不熟 也就叔叔想得出来了
 
+
+
+*****
+
+####  路人庚  
+##### 12217#       发表于 2022-8-4 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不熟+本来就比较尬的女团爱豆综艺
+
+*****
+
+####  Cushaw  
+##### 12218#       发表于 2022-8-4 20:25
+
+尬聊，到是很符合今天的氛围<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

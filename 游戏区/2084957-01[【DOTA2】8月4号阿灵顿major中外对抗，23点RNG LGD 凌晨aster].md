@@ -2826,3 +2826,79 @@ RNG第一场不好打好吧，不是被剃光头就好了，国外自媒体排�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  沈淮  
+##### 314#         楼主| 发表于 2022-8-4 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930741&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-4 20:09</a>
+这rng真要打的好，不会鬼就被踢了吧
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+恶意换人有惩罚不一定能直邀
+
+*****
+
+####  很久就在那边l  
+##### 315#       发表于 2022-8-4 20:24
+
+<img src="https://p.sda1.dev/6/6cb6e6f895d8580ef79522481859560c/CMP_20220804202354403.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 316#       发表于 2022-8-4 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56929962&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-4 19:08</a>
+
+不会有人不看ASTER打EG吧，感觉可以扣个罕见了</blockquote>
+支持一下皮球 
+
+*****
+
+####  Cookiekira  
+##### 317#       发表于 2022-8-4 20:26
+
+集美们人呢<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 318#       发表于 2022-8-4 20:27
+
+m畜大战a畜
+
+*****
+
+####  ArowRocher  
+##### 319#       发表于 2022-8-4 20:27
+
+听群里造谣说训练赛rng打B组8:0，虽然感觉这时候换人不理智可能性也不大，但是正规俱乐部踢链子不也是赛中吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白银翎  
+##### 320#       发表于 2022-8-4 20:28
+
+新招的厨子今晚要煮第一道菜了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 321#       发表于 2022-8-4 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56931052&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-4 20:27</a>
+
+听群里造谣说训练赛rng打B组8:0，虽然感觉这时候换人不理智可能性也不大，但是正规俱乐部踢链子不也是赛中 ...</blockquote>
+TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.
+
+*****
+
+####  反方向的波  
+##### 322#       发表于 2022-8-4 20:32
+
+<img src="https://p.sda1.dev/6/3e6b92aa2a4adc4950e44505354d336b/CMP_20220804203140574.jpg" referrerpolicy="no-referrer">
+胡良智这搓毛我真的一口盐汽水喷出来了
+

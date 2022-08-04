@@ -2845,3 +2845,28 @@ Petra：ITS KANJI LMAO</blockquote>
 草 哪个直播的 有链接吗</blockquote>
 Enna昨晚的练歌回，petra只是出现在评论栏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小鸟游泉  
+##### 16749#       发表于 2022-8-4 20:23
+
+ 本帖最后由 小鸟游泉 于 2022-8-4 20:26 编辑 
+
+[https://twitter.com/Sepiast_7/status/1555146528473329664](https://twitter.com/Sepiast_7/status/1555146528473329664)
+https://weibo.com/6979797100/LFsKngWAV?type=like#_rnd1659615861473
+
+にじさんじ所属ライバー7名で結成した男装ユニット。キャラクターデザイン：Lowro様
+
+澪-Mio-(戌亥とこ) 柊-Shu-(樋口楓)蓮-Ren-(静凛) 帳-Tobari-(夕陽リリ) 唯-Yui-(ニュイ・ソシエール) 貂-Ten-(フミ)紫-Yukari-(白雪巴)
+
+虹这组合企划有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 16750#       发表于 2022-8-4 20:28
+
+连女性liver都要吃女性向市场是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
