@@ -1536,3 +1536,12 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 鬼佬那边感觉也是奶前传的偏多，毕竟CITY的始祖也可以往三把剑上凹，也是说的通的。
 
+
+
+*****
+
+####  FanKiE  
+##### 139#       发表于 2022-8-5 06:24
+
+我只能说如果真出前传，不要又来一堆人擅自期待然后擅自失望好吧，放平心态最重要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
