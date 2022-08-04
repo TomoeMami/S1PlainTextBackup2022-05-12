@@ -1192,3 +1192,13 @@ https://imgur.io/a/5KIUAZp
 大概率就是始源造艾欧尼翁并没有把所有人的备份都读取出来，2个女王刚好是权限 ...</blockquote>
 那为啥结尾有花? 还是说花也没有备份进来, 但是结尾事件结束了, 机娘usb插入, 进来接人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FortuneAura  
+##### 111#       发表于 2022-8-4 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923901&amp;ptid=2084988" target="_blank"> Lisylfn 发表于 2022-8-4 09:19</a> 引用:plok201 发表于 2022-8-3 23:56 1,2代的人应该不用那么悲观  大概率就是始源造艾欧尼翁并没有把所有人的备份都读取出来，2个女王刚好是权限 ... 那为啥结尾有花? 还是说花也没有备份进来, 但是结尾事件结束了, 机娘usb插入, 进来接人了 </blockquote>
+花一直在吧，作为动力源来自: iPhone客户端
+
