@@ -1271,3 +1271,15 @@ BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smi
 
 所以数量为0的120BB是怎么被看错的？大方承认编数据还能高看你一等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 142#       发表于 2022-8-4 15:02
+
+编数据倒是不至于，你游的数据库是能精确到个位数的，这点多次精确奖励发放和抽卡数据已经证明了
+
+除非运营想吹阿菌刻意整假数据
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
