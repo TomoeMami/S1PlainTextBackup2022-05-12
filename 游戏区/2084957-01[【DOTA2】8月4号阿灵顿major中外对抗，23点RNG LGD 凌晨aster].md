@@ -3492,3 +3492,128 @@ v社是真尼玛懒狗，石油杯非ban即选的电棍、宙斯连个削弱补�
 
 看到卡卡拿小Y感觉这把就走远了
 
+
+
+*****
+
+####  12481632  
+##### 395#       发表于 2022-8-4 23:24
+
+美杜莎，寄
+
+*****
+
+####  京吹病人  
+##### 396#       发表于 2022-8-4 23:25
+
+盼猫归
+
+*****
+
+####  反方向的波  
+##### 397#       发表于 2022-8-4 23:25
+
+我理解怎么1-7了，你们呢
+
+*****
+
+####  nowaki  
+##### 398#       发表于 2022-8-4 23:25
+
+没猫 小y 美杜莎
+
+*****
+
+####  战狼PTSD  
+##### 399#       发表于 2022-8-4 23:25
+
+这美杜莎，难怪1-7
+
+*****
+
+####  逃离二次元  
+##### 400#       发表于 2022-8-4 23:25
+
+感觉不用看了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 401#       发表于 2022-8-4 23:26
+
+毛子这把想赢看海民了啊。
+
+*****
+
+####  坚定的团子党  
+##### 402#       发表于 2022-8-4 23:26
+
+rng这啥bp呀，感觉被完爆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  北条早苗  
+##### 403#       发表于 2022-8-4 23:26
+
+感觉没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 404#       发表于 2022-8-4 23:26
+
+哇RNG这阵容 就是躺地上等kaka到点是吧
+
+*****
+
+####  cobymar  
+##### 405#       发表于 2022-8-4 23:26
+
+就卡狗一个控<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">打团对面三个核全在飞
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 406#       发表于 2022-8-4 23:26
+
+卡√这把争取死16次以内吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 407#       发表于 2022-8-4 23:26
+
+这也完爆，顶着宙斯小鹿选狼人？
+
+*****
+
+####  Cookiekira  
+##### 408#       发表于 2022-8-4 23:27
+
+这把靠卡神了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 409#       发表于 2022-8-4 23:27
+
+自然计数器上线
+
+*****
+
+####  nightmare902015  
+##### 410#       发表于 2022-8-4 23:28
+
+这美杜莎宙斯想要怎么赢呢，想象不出来
+
+*****
+
+####  战狼PTSD  
+##### 411#       发表于 2022-8-4 23:31
+
+感觉666退化了，出装跟鸡畜一样450
+

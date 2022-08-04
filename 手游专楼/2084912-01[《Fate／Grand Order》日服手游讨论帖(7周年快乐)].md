@@ -1703,3 +1703,19 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 欧皇在互相豹跳，非洲人只能独自一人流眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 183#       发表于 2022-8-4 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56933447&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 23:01</a>
+
+那谁1800石1宝也是有歪的啊  无5星是不是挺难的？
+
+这次泳装结束我要重新做萌新 在也不石不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千石零五星是挺难的啊，但又不是没有，我买的第二个号就是因为C呆池千石零五星怒弃的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">至于5宝限定，多赌几次福袋说不定就有了，或者给大伙开开眼界豹一个一发11连5宝
+
