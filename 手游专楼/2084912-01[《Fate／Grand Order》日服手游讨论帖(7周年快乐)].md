@@ -1753,3 +1753,17 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 要么是萌新这种真的勇士
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 187#       发表于 2022-8-5 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934508&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-5 00:33</a>
+
+所以每次我看到兴高采烈的吹6加成狗粮/qp本仿佛中了彩票似的人
+
+我就真心觉得这群人要么是结晶留着过年的装 ...</blockquote>
+想少了 我早不6加成了 我是2键<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
