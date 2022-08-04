@@ -1535,3 +1535,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 去年一次补发1000多五星种火的时候也很合适</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无卡能喂的萌新看着你们 为什么要3宝 这合理吗！
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 167#       发表于 2022-8-4 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56929591&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 18:29</a>
+
+无卡能喂的萌新看着你们 为什么要3宝 这合理吗！</blockquote>
+国服只有个三宝小芬奇能喂120，日服也没人可喂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
