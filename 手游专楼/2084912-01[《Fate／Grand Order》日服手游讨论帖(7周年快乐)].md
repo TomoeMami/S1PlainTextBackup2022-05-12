@@ -1643,3 +1643,35 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 起码还能出五星 真的非的是我这种连歪都不带歪的直接毛都不出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕  800石1宝0歪的就在这里  （还没算护符呢
 
+
+
+*****
+
+####  qixinno2  
+##### 177#       发表于 2022-8-4 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56931163&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 20:32</a>
+
+不要怕  800石1宝0歪的就在这里  （还没算护符呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比你强点有限 600+石1宝0歪
+
+*****
+
+####  alucardcz  
+##### 178#       发表于 2022-8-4 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56932231&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-4 21:28</a>
+
+我比你强点有限 600+石1宝0歪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以你的欧洲血统 800直接5宝了 不要怂
+
+*****
+
+####  qixinno2  
+##### 179#       发表于 2022-8-4 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56932246&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 21:29</a>
+
+以你的欧洲血统 800直接5宝了 不要怂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先我要有800石
+

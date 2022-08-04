@@ -4650,3 +4650,18 @@ sif其实放到现在也算挺好玩的轻度音游，而且音乐水平一直�
 
 如果他也是发海运，估计也要10月底
 
+
+
+*****
+
+####  adw667  
+##### 1963#       发表于 2022-8-4 21:26
+
+又重温了一遍第一季的前6集，泪，流了下来<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平滑，过程和画面配合得也很好，不管怎么分给五个人唱都很合理。
+
+跟第二季一比S1堇入队之后和可可的互动也是有来有回恰到好处，这才叫欢喜冤家
+
+所以说第二季那全面开摆的样子真是越看越气<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
