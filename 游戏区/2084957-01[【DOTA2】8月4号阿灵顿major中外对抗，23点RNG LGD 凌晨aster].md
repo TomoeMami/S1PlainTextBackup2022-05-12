@@ -4620,3 +4620,112 @@ timado在上个major的时候还是大腿，去了中东就变畜了
 
 ti6崇拜懿萍 ti7携手懿萍  ti8气死懿萍 ti10解说懿萍 
 
+
+
+*****
+
+####  nowaki  
+##### 541#       发表于 2022-8-5 00:23
+
+bp开了
+
+*****
+
+####  反方向的波  
+##### 542#       发表于 2022-8-5 00:24
+
+难道胡良智训练赛打出4号位末日了？
+不然呆头鹅怎么还在ban3号位
+
+*****
+
+####  ArowRocher  
+##### 543#       发表于 2022-8-5 00:25
+
+杰出的打电话系列已经狂到给super打电话了
+
+*****
+
+####  nightmare902015  
+##### 544#       发表于 2022-8-5 00:26
+
+这个末日肯定厨子的吧
+
+*****
+
+####  ArowRocher  
+##### 545#       发表于 2022-8-5 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934435&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 00:24</a>
+
+难道胡良智训练赛打出4号位末日了？
+
+不然呆头鹅怎么还在ban3号位</blockquote>
+ana上次打过一把大哥DOOM吧
+
+*****
+
+####  Litccc  
+##### 546#       发表于 2022-8-5 00:26
+
+杰出打电话是什么黑话
+
+*****
+
+####  woyzeck  
+##### 547#       发表于 2022-8-5 00:27
+
+别 别杰畜
+
+*****
+
+####  ArowRocher  
+##### 548#       发表于 2022-8-5 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56934448&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-5 00:26</a>
+
+杰出打电话是什么黑话</blockquote>
+直播的时候BP有什么看法就假装给教练打电话指挥而已。利雅得打OG时就整过这一出
+
+*****
+
+####  战狼PTSD  
+##### 549#       发表于 2022-8-5 00:30
+
+冠军猴子来咯
+
+*****
+
+####  a1370303  
+##### 550#       发表于 2022-8-5 00:30
+
+冠军猴子来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 551#       发表于 2022-8-5 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕父子同心
+
+*****
+
+####  ArowRocher  
+##### 552#       发表于 2022-8-5 00:30
+
+同屏猴子了
+
+*****
+
+####  nightmare902015  
+##### 553#       发表于 2022-8-5 00:31
+
+哇中单末日冠军猴子，真的猜不透啊，脸打肿。
+
+*****
+
+####  北条早苗  
+##### 554#       发表于 2022-8-5 00:31
+
+怎么点出冠军猴子了
+
