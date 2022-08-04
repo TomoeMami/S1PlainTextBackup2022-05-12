@@ -2922,3 +2922,26 @@ ts可爱捏
 
 没有恶意换人呀，鬼家里有事不想打了能怪我们吗
 
+
+
+*****
+
+####  我爱撩菜  
+##### 325#       发表于 2022-8-4 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">RNG开启上帝模式了嘛
+
+*****
+
+####  聚散浮云  
+##### 326#       发表于 2022-8-4 21:08
+
+都不过七夕是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 327#       发表于 2022-8-4 21:08
+
+好呀好呀，双修党又露头了是吧，合着这年头还在关注刀塔2可能的基本组成成分为，集美、菠菜、皮套人、lol看热闹，西恩刀塔彻底没了。
+
