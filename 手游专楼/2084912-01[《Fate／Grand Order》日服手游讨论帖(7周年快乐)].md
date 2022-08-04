@@ -1062,3 +1062,19 @@
 
 你们准备好了没
 
+
+
+*****
+
+####  黑上シグマ  
+##### 119#       发表于 2022-8-4 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">买了fami通，读者投票最喜欢的主线章和最希望动画化的主线章，第一都是2.6，我就这表情
+
+*****
+
+####  黑上シグマ  
+##### 120#       发表于 2022-8-4 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">70%的人一只120级都没
+
