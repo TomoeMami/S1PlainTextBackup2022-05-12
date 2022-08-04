@@ -1502,3 +1502,14 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 算了下1800多石头公主5宝了
 
+
+
+*****
+
+####  miro112233  
+##### 164#       发表于 2022-8-4 18:08
+
+其实120格蕾多我也不信的，都怀疑是不是一定要塞个活动从者进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
