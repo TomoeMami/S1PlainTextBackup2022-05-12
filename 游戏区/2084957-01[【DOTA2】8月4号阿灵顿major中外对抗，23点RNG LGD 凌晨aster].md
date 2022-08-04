@@ -2384,3 +2384,17 @@ fnc官宣借tsm的125，t神他来了<img src="https://static.saraba1st.com/imag
 
 谭大卫这下独守空房了
 
+
+
+*****
+
+####  莉拉厨  
+##### 263#       发表于 2022-8-4 10:03
+
+ 本帖最后由 莉拉厨 于 2022-8-4 10:07 编辑 
+
+原来TSM没进major吗，北美赛区到底发生了啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那个nouns是什么玩意儿？
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

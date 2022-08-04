@@ -1078,3 +1078,34 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">70%的人一只120级都没
 
+
+
+*****
+
+####  areklose  
+##### 121#       发表于 2022-8-4 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来大家都没忘记酋长！天生比人少2个技能的角色
+
+*****
+
+####  exiaexa  
+##### 122#       发表于 2022-8-4 10:02
+
+我拖了大家的后腿，我就是那个点三个技能点不了120的[哔——]
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 123#       发表于 2022-8-4 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了，我就没准备喂100级以上的
+
+*****
+
+####  qixinno2  
+##### 124#       发表于 2022-8-4 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛喂到了102之后我就放弃了 这绝对是傻逼设计出来的东西
+
