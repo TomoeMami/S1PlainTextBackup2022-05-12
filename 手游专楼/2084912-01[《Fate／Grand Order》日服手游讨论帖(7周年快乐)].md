@@ -1321,3 +1321,30 @@ BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smi
 
 羁绊礼装除了雪城，我只用过圣乔治的。是可以改改了。
 
+
+
+*****
+
+####  eyeego  
+##### 147#       发表于 2022-8-4 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56925544&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-4 12:15</a>
+fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢，毕竟以前蘑菇还自选特斯拉呢 ...</blockquote>
+会不会把灵衣up的男5星也算进去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 148#       发表于 2022-8-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56927221&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-4 15:02</a>
+
+编数据倒是不至于，你游的数据库是能精确到个位数的，这点多次精确奖励发放和抽卡数据已经证明了
+
+除非运营 ...</blockquote>
+去过现场的人repo过buster石仓曾经说过这种数据都是真假掺半的，会塞点运营想推的角色进去
+
+我本来是不信的，感觉运营再怎么也不至于干这么若制又无意义的事吧
+
+但今天看到这出我有点动摇了，除了本来想强塞bb结果忘了她根本就升不到120外我想不出有什么整出这段乌龙的理由，可能运营就是这么若制吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
