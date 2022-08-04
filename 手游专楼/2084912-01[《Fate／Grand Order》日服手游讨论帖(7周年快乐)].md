@@ -1262,3 +1262,12 @@ BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  katun  
+##### 141#       发表于 2022-8-4 14:15
+
+所以数量为0的120BB是怎么被看错的？大方承认编数据还能高看你一等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
