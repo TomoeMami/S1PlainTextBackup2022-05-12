@@ -1740,3 +1740,16 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要刷吐了，结果只涨了3EQP，看来升技能什么的对于我这种最多每天清体的玩家来说还是太难了
 
+
+
+*****
+
+####  exiaexa  
+##### 186#       发表于 2022-8-5 00:33
+
+所以每次我看到兴高采烈的吹6加成狗粮/qp本的
+
+我真心觉得这群人要么是结晶留着过年的装逼侠
+要么是萌新这种真的勇士
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
