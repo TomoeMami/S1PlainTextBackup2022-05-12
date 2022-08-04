@@ -1202,3 +1202,16 @@ https://imgur.io/a/5KIUAZp
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923901&amp;ptid=2084988" target="_blank"> Lisylfn 发表于 2022-8-4 09:19</a> 引用:plok201 发表于 2022-8-3 23:56 1,2代的人应该不用那么悲观  大概率就是始源造艾欧尼翁并没有把所有人的备份都读取出来，2个女王刚好是权限 ... 那为啥结尾有花? 还是说花也没有备份进来, 但是结尾事件结束了, 机娘usb插入, 进来接人了 </blockquote>
 花一直在吧，作为动力源来自: iPhone客户端
 
+
+
+*****
+
+####  Kojimaru  
+##### 112#       发表于 2022-8-4 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918506&amp;ptid=2084988" target="_blank">镜像导航图 发表于 2022-8-3 17:27</a>
+
+黑客帝国里能不能在母体里生子有具体说法吗，按说应该可以吧，不然这系统破绽太大了。有一点倒是真不一样 ...</blockquote>
+都市人能生孩子单纯代表着梅比乌斯他们的失败，停滞不前是错误的。不过都是Z制定的世界规则，图一乐
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">全篇最喜欢的角色，可惜出场一下就领盒饭了
+
