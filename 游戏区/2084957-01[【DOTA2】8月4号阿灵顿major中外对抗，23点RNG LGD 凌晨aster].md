@@ -2975,3 +2975,22 @@ ts可爱捏
 
 坛友中肯
 
+
+
+*****
+
+####  战狼PTSD  
+##### 331#       发表于 2022-8-4 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56932123&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-4 21:21</a>
+
+今天买台湾老板的美国快餐，你是什么成份</blockquote>
+下次一定金拱门！
+
+*****
+
+####  逃离二次元  
+##### 332#       发表于 2022-8-4 21:39
+
+max怎么要dead了
+
