@@ -2462,3 +2462,331 @@ King六围现第一不拉pow维持走力校风算唯一仁慈了防守面神宫�
 
 神速拥有着所有学校里最硬的内野和最快的外野，配合速球中心防御率我觉得反而会比变化球中心更安定
 
+
+
+*****
+
+####  Suny08  
+##### 16712#       发表于 2022-8-2 20:19
+
+唉把豆猫奶死了，三轮对于三魔物队来说真的太差了，我以为他能像社长3魔物那年一样至少进夏甲打个三轮的，这下真的崩盘了
+
+*****
+
+####  高等黑暗  
+##### 16713#       发表于 2022-8-2 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56911297&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-2 20:19</a>
+
+唉把豆猫奶死了，三轮对于三魔物队来说真的太差了，我以为他能像社长3魔物那年一样至少进夏甲打个三轮的， ...</blockquote>
+说实话我2022的体感来看低战力遇到B和A级队的时候魔物大多数情况下救不回来
+
+首先你很少遇到能完美开魔物的状况（你甚至除了注目选手之外没机会操作），然后即使开了魔物也经常直接给你守出去（豆猫9下代打魔物的时候就是这情况）
+
+社长能打进夏甲其实是运气相当好，他第一年好几次0out1垒的情况下轮到魔物直接开
+
+当然第三轮遇到B级的确是运气不好，但是我认为即使抽签运更好一点大概率也是县大会决赛被干掉（县大会决赛遇到B或A的概率高达60%）
+
+更何况这次大会有差不多一半人第一年中坚或者抽到了强转生，即使豆猫夏甲子园决赛胜了又如何，他那平均60星的第二年抽卡，算上整个甲子园比别人多拿的经验值也不过达到了别人的起跑线而已
+
+*****
+
+####  第五秋  
+##### 16714#       发表于 2022-8-2 23:31
+
+跌丝袜这个生死赌博太好玩了
+
+极致的RP享受
+
+*****
+
+####  lhawp  
+##### 16715#       发表于 2022-8-3 19:12
+
+熊猫人太惨了 不忍心看下去
+
+*****
+
+####  rzrbtk  
+##### 16716#       发表于 2022-8-3 19:23
+
+日下部播了七次，除了被评论刷屏的时候聊了一次给九野送辣面，其他真的完全不提同期诶，大家庭里的独狼就很19虹
+
+*****
+
+####  高等黑暗  
+##### 16717#       发表于 2022-8-3 19:26
+
+熊猫人直播效果拉满啊
+
+运气差到这种程度实在少见，连续2次拿到了已经有的器材，地区大会一回战抽到了5%概率的名门对手，这可tm是很多抽卡游戏单抽出ssr的概率啊
+
+*****
+
+####  poipanchao  
+##### 16718#       发表于 2022-8-3 20:26
+
+奖杯直接送到king家吧，不要浪费时间（）
+
+*****
+
+####  吃咸菜的  
+##### 16719#       发表于 2022-8-3 20:39
+
+ 本帖最后由 吃咸菜的 于 2022-8-3 20:42 编辑 
+
+二哥初动2w2，星街初动9k6
+<img src="https://p.sda1.dev/6/9eac5613757d0eee10f1a428ccccd47c/IMG_20220803_203705.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  高等黑暗  
+##### 16720#       发表于 2022-8-3 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919999&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-3 20:26</a>
+
+奖杯直接送到king家吧，不要浪费时间（）</blockquote>
+不要急着中场开香槟，去年女将甲子园冠军最后决赛都没进
+
+正赛一场定胜负什么都有可能发生的
+
+*****
+
+####  rzrbtk  
+##### 16721#       发表于 2022-8-3 21:49
+
+喷了，郡道刚才直播间有人刷屏问axia葵同居传闻，什么怪东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 16722#       发表于 2022-8-3 21:50
+
+刷了好久了，这几天不管看谁的直播都会有那个账号来刷“葵axia交往真的吗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16723#       发表于 2022-8-3 22:07
+
+ 本帖最后由 alcoholic1000 于 2022-8-3 23:13 编辑 
+
+king已势如破竹，锐不可当！
+
+名门了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">制霸！
+
+リゼ这个夏甲冠军S校，打成这样还挺厉害
+
+凛前辈最强！2分HR直接扳回
+
+我们杀死了冠军！！！S校也拿下给你看！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Ketestrait  
+##### 16724#       发表于 2022-8-3 22:11
+
+名門神速<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16725#       发表于 2022-8-3 22:20
+
+二年名门，伟业<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高等黑暗  
+##### 16726#       发表于 2022-8-3 22:38
+
+神速春甲赢了
+
+今年纯面板最强神速基本确定了
+
+*****
+
+####  poipanchao  
+##### 16727#       发表于 2022-8-3 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921492&amp;ptid=1972669" target="_blank">高等黑暗 发表于 2022-8-3 22:38</a>
+
+神速春甲赢了
+
+今年纯面板最强神速基本确定了</blockquote>
+二年秋春连霸，无魔物
+
+这就是king的含金量
+
+等真视界就行了
+
+*****
+
+####  fastary  
+##### 16728#       发表于 2022-8-3 22:54
+
+这么说来虹甲的黛灰也很有可能作为名门ace风光毕业，爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+多谢葛叶哥
+
+*****
+
+####  Ketestrait  
+##### 16729#       发表于 2022-8-3 22:55
+
+king玩到中途黛灰进路相谈事件的时候，还说“プロやめてライバーになろうよ”<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 2|woc 我死了； ；|
+
+查看全部评分
+
+*****
+
+####  高等黑暗  
+##### 16730#       发表于 2022-8-3 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">LZ这边假降级又来了，春甲准准决胜的对手是没有概率抽到S的，但是她之前抽签的时候下半有个S校，所以强行给你变成A，但是实力还是S校
+
+*****
+
+####  say_gg_plz  
+##### 16731#       发表于 2022-8-3 23:13
+
+lize这都赢了，中间一直跳守备我还以为是经典折磨局
+
+*****
+
+####  poipanchao  
+##### 16732#       发表于 2022-8-3 23:14
+
+虹女荣耀，含金量比king还高！
+
+*****
+
+####  Ketestrait  
+##### 16733#       发表于 2022-8-3 23:21
+
+静冈之柱凛先辈，数次救赫国于水火
+
+*****
+
+####  alcoholic1000  
+##### 16734#       发表于 2022-8-3 23:23
+
+ 本帖最后由 alcoholic1000 于 2022-8-4 00:42 编辑 
+
+King三年级新生没有即战力
+
+把182的投手给新人セラフ了，真是好鬼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+リゼ杀掉夏甲冠军打秋甲冠军，开局鹰宫2分HR！
+
+秋甲冠军也杀下，赫高意气风发
+
+我们是冠军！！艰难险阻但是赢了 ！强豪赫高！
+
+赫高新人，没有即战力，194的広角打法还勉强可以
+
+*****
+
+####  高等黑暗  
+##### 16735#       发表于 2022-8-3 23:45
+
+LZ进决赛了，今年这强度真的哈人
+
+*****
+
+####  Ketestrait  
+##### 16736#       发表于 2022-8-4 00:00
+
+Enna：十（shi）人（ren）十（shi）色（se）
+
+Petra：ITS KANJI LMAO
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 16737#       发表于 2022-8-4 00:11
+
+时隔亿年的apex排位<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 16738#       发表于 2022-8-4 00:16
+
+好，还有个皇女可以把king关了，就看大福的了
+
+*****
+
+####  高等黑暗  
+##### 16739#       发表于 2022-8-4 00:18
+
+牛逼 一晚上两个甲子园冠军
+
+*****
+
+####  高等黑暗  
+##### 16740#       发表于 2022-8-4 00:51
+
+ 本帖最后由 高等黑暗 于 2022-8-4 01:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56921881&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-3 23:23</a>
+
+King三年级新生没有即战力
+
+把182的投手给新人セラフ了，真是好鬼 </blockquote>
+今年赫高和神速这强度新人想变即战力只有抽顶级转生才有可能了
+
+赫高广角哥出门力量65非常强了，到夏天前稳定力量B，作为代打完全合格
+
+还有搅乱代走，夏天之前C走力没问题，如果夏天顺利B也有可能
+
+说实话我觉得赫高和神速1年生抽卡最重要的其实是别抽太多红特避免消红的时候消到1年生
+
+
+
+*****
+
+####  poipanchao  
+##### 16741#       发表于 2022-8-4 01:12
+
+king5月这特训运……
+
+还是看king真视界吧
+
+*****
+
+####  Ketestrait  
+##### 16742#       发表于 2022-8-4 01:14
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h4u2x7l87dj20xs0ix43u.jpg" referrerpolicy="no-referrer">
+
+自从换了社长的BGM之后，King就一路疯狂成功，社长的运要被吸光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高等黑暗  
+##### 16743#       发表于 2022-8-4 09:51
+
+神速双威压有点猛了
+
+本来我预计（除了还没跑的西西）唯一可能压住神速的就是赫高
+
+因为神速虽然防守超硬盗垒超强，但是打力却相对较低
+
+拥有超强投力+强防守的赫高完全有可能关了神速的打线然后靠着自己比神速强不少的打力取胜
+
+但是在双威压面前如果不能在剩下的几个月里给月撇上个斗志神速打线基本不太可能压得住了
+
+不过本来赫高和神速就分在AB两组不一定能遇得上，A组其他2人不说，赫高和加大的正赛说实话完全无法预测，加大的打线完全有可能撕开赫高的防守，但是反过来加大那满是洞的防守也完全有可能被赫高打烂。。。
+

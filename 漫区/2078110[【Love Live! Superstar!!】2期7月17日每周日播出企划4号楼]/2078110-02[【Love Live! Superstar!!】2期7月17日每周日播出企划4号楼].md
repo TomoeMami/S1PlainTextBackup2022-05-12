@@ -3924,3 +3924,625 @@ star宣言那首我好奇舞蹈要怎么安排<img src="https://static.saraba1st
 
 19年让业界胆颤的嘴臭之王不就是花田老师笔下的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 1886#       发表于 2022-8-2 10:37
+
+摆大
+
+*****
+
+####  qty  
+##### 1887#       发表于 2022-8-2 10:54
+
+目前放出的这些曲子，新四人音色听感个人排名：红毛&gt;CEO&gt;蓝毛&gt;土妹子。土妹子的声音真的有点欣赏不来，颗粒感太明显了，跟里面掺了小石子一样听起来咯咯的
+
+*****
+
+####  沙茶酱  
+##### 1888#       发表于 2022-8-2 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看到B站有人评价薇恩是AS岚珠，田中花了整整一季时间去重塑的人设，花田一个顺手就用在原创人物上了
+
+*****
+
+####  a92063256  
+##### 1889#       发表于 2022-8-2 11:13
+
+估计最后紫毛要在live中被九人裂拉击败，然后香音一脸教主微笑走到紫毛边上伸出手邀请她入学结丘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 1890#       发表于 2022-8-2 11:18
+
+我觉得VN这次预选就寄了，就有个好玩的点是，按一期的路径，预选环节极大可能是可可回，要用外乡人打败外乡人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  凡人  
+##### 1891#       发表于 2022-8-2 11:31
+
+薇恩真能参加LL那丢人的是香音她们啊，就像一个初中生参加NBA带队一直打到了季后赛，就算被横扫了丢人的是谁？
+
+*****
+
+####  plazum  
+##### 1892#       发表于 2022-8-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56903463&amp;ptid=2078110" target="_blank">名津流 发表于 2022-8-2 08:49</a>
+
+现在怎么都在用嘴臭这词了，有点像是骂人
+
+印象中10年左右前的圈子里一般把这叫做毒舌，就感觉是一种属性而 ...</blockquote>
+嘴臭就是骂人的意思，但是经过近几年的使用，已经通货膨胀到只是普通的……普通的嘴臭了（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+可可也不是毒舌，她只是对堇毒舌而已
+
+*****
+
+####  plazum  
+##### 1893#       发表于 2022-8-2 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56904481&amp;ptid=2078110" target="_blank">不能摸的屁屁 发表于 2022-8-2 10:19</a>
+
+19年让业界胆颤的嘴臭之王不就是花田老师笔下的？</blockquote>
+谁啊
+
+*****
+
+####  稀勢のささ  
+##### 1894#       发表于 2022-8-2 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56905960&amp;ptid=2078110" target="_blank">plazum 发表于 2022-8-2 12:09</a>
+
+谁啊</blockquote>
+满月之战的深海哥
+
+*****
+
+####  lj205  
+##### 1895#       发表于 2022-8-2 12:46
+
+鱼啊…………什么时候才能恢复工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 1896#       发表于 2022-8-2 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近的购买部连起来是不是跑外卖套装
+
+小包放钱毛巾擦汗背包放餐
+
+*****
+
+####  海月くらげ  
+##### 1897#       发表于 2022-8-2 13:35
+
+真是星来了才会明白虹的好，我要为自己抱怨虹二平稳落地深深道歉！
+
+整活还是星会整，这三话的结构就突出一个迷中迷，看的人摸不着头脑，夸张到尴尬的乡下妹刻盘印象，北海道人是不是得罪过花田哥哥？可堇关系差一步就是校园霸凌，欢喜冤家不是嗯怼对方就行的，纯纯工业糖精！拉新人途中又唐突蹦出无敌初中生一顿暴揍，这动画到底是什么，我为什么看它，我到底是谁？
+
+想不明白…
+
+*****
+
+####  Enakina  
+##### 1898#       发表于 2022-8-2 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56905998&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-2 12:13</a>
+满月之战的深海哥</blockquote>
+咋的，你又不高兴了？我又没说错.jpg
+原来这个是花田写的吗
+
+*****
+
+####  ads147147  
+##### 1899#       发表于 2022-8-2 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56905998&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-2 12:13</a>
+满月之战的深海哥</blockquote>
+原本我对星2也没什么偏见，直到我在星1结束后去了解了下满月之战，真的是，花田摆起来无人能敌。总不能还来一次导演改我剧本了吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  plazum  
+##### 1900#       发表于 2022-8-2 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56905998&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-2 12:13</a>
+
+满月之战的深海哥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这个确实
+
+*****
+
+####  starring  
+##### 1901#       发表于 2022-8-2 15:44
+
+满月之战我看得还挺开心的，嘴臭深海哥还有日笠太太饰演的神经病都很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 1902#       发表于 2022-8-2 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深海哥确实乐 但这是拉拉啊
+
+*****
+
+####  ViyViy  
+##### 1903#       发表于 2022-8-2 16:27
+
+现在想想，S1E1-3可能是上面干涉的最少的，任务就一个：”给我多骗点中华兄贵进来宰客“。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个任务确实完成的非常好。
+
+顺便隔壁提醒了下才发现，可可在（10月-12月）左右看到了snp，然后在来年3月直接来到日本准备当偶像…？这也太莽子了，最骚的是家人同意了。
+
+*****
+
+####  一个陆仁贾  
+##### 1904#       发表于 2022-8-2 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56897038&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-1 17:29</a>
+学校的神奇制度，需要男女住一起并且修夫妇点数，一开始男主喜欢女二，女主喜欢男二，结果男女主男 ...</blockquote>
+龙与虎小号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 1905#       发表于 2022-8-2 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908526&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-2 16:27</a>
+
+现在想想，S1E1-3可能是上面干涉的最少的，任务就一个：”给我多骗点中华兄贵进来宰客“。这个任务 ...</blockquote>
+说不定想玩三集定律呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1906#       发表于 2022-8-2 16:51
+
+7号的活动因为大石阳性取消，鲤鱼似乎可以按计划参加的，看来已经恢复了。就是日本现在这疫情真是比较麻烦，这几天貌似都是成堆中招，希望后续活动能照常举办吧。
+
+*****
+
+####  沙茶酱  
+##### 1907#       发表于 2022-8-2 16:53
+
+ 本帖最后由 沙茶酱 于 2022-8-2 16:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56906791&amp;ptid=2078110" target="_blank">海月くらげ 发表于 2022-8-2 13:35</a>
+
+真是星来了才会明白虹的好，我要为自己抱怨虹二平稳落地深深道歉！
+
+整活还是星会整，这三话的结构就突出一 ...</blockquote>
+星二在处理很多剧情上就是朝着虹二相反的方向。先是加人，星二加人，要么就是直接说新人是弱鸡，要么就是新人很强（如果薇恩真是三期生）但是很桀骜不驯，结果现在看来这两种方式都很破坏角色。虹二加人，无论栞子、米娅还是岚珠，田中都是强调了一点就是，这三个人很强，但是对旧人帮助很多。再者就是星二里面一些人已经透明化，这在虹二那里很难想象，虹二两季十三个人，起码每个角色都是有充足的戏份和展现自己的个人魅力。这是田中的理念，虹团没人是弃子，不过这个理念也导致虹团剧情没人负责当坏人，甚至没人当丑角，本来戏份就平摊了，这样子很难找矛盾，剧情就显得很平淡，而且过分强调人人有话说所以容易出现大聚会一人一句时有点尬。
+
+*****
+
+####  老1.5  
+##### 1908#       发表于 2022-8-2 19:16
+
+回来了回来了，鲤鱼彻底回来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1909#       发表于 2022-8-2 19:17
+
+鱼fc发视频了 鼻子上方还有贴了东西 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">健康的下次fc生放1小时
+
+*****
+
+####  lj205  
+##### 1910#       发表于 2022-8-2 19:18
+
+回来了好起来了
+
+*****
+
+####  奥柏伦亲王  
+##### 1911#       发表于 2022-8-2 19:20
+
+今天难得的好消息<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 1912#       发表于 2022-8-2 19:36
+
+这周开始广播开更！看起来瘦了不少，累了
+
+*****
+
+####  player3960  
+##### 1913#       发表于 2022-8-2 19:39
+
+鲤鱼啊，等的我好辛苦，星团的一堆堆积的物料我又有动力补了，之前心情不好连不插电都没看完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 1914#       发表于 2022-8-2 19:39
+
+休渔期终于结束了 但是感觉瘦了好多
+
+*****
+
+####  starring  
+##### 1915#       发表于 2022-8-2 19:45
+
+休鱼期结束实在太好了
+
+*****
+
+####  优妮可  
+##### 1916#       发表于 2022-8-2 19:52
+
+太好了
+
+*****
+
+####  老1.5  
+##### 1917#       发表于 2022-8-2 20:15
+
+瘦点没事，中间肯定不少忌口，后面多吃吃就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 1918#       发表于 2022-8-3 00:20
+
+鲤鱼要回来，星团动画再创新低，双喜临门啊。要是小百合快康复就好了
+
+*****
+
+####  老1.5  
+##### 1919#       发表于 2022-8-3 10:43
+
+终于能刷出来了？刚才一直打不开s1<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 1920#       发表于 2022-8-3 10:44
+
+我看有人说，VN今年甚至都没资格参赛？
+
+因为动画都是高中阶段的故事，给大家的印象是高中过完就不能参赛，但啥时候开始有资格参赛有过说法吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  liu461  
+##### 1921#       发表于 2022-8-3 12:40
+
+莫名想起前几年某游戏16岁天才time夺冠获得出国资格然后被同业老前辈处长打电话举报年龄不够的事<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甩不出去的黄牌  
+##### 1922#       发表于 2022-8-3 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916165&amp;ptid=2078110" target="_blank">liu461 发表于 2022-8-3 12:40</a>
+
+莫名想起前几年某游戏16岁天才time夺冠获得出国资格然后被同业老前辈处长打电话举报年龄不够的事 ...</blockquote>
+唐处长是吧，来日本找水来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能进16强就算成功！
+
+*****
+
+####  iuhehc  
+##### 1923#       发表于 2022-8-3 13:22
+
+感觉已经能看到60分的那一天了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  damian-wade  
+##### 1924#       发表于 2022-8-3 14:01
+
+一个学校整了个尖子音乐科，一年下来啥成绩都没有，全靠普通科几个学生自发组织活动争光，太丢人了，还是早点解散搞普通高中吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 1925#       发表于 2022-8-3 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916794&amp;ptid=2078110" target="_blank">damian-wade 发表于 2022-8-3 14:01</a>
+
+一个学校整了个尖子音乐科，一年下来啥成绩都没有，全靠普通科几个学生自发组织活动争光，太丢人了，还是早 ...</blockquote>
+这还是香音曾经向往的音乐科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 1926#       发表于 2022-8-3 14:17
+
+鲤鱼终于官宣复工了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 1927#       发表于 2022-8-3 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916794&amp;ptid=2078110" target="_blank">damian-wade 发表于 2022-8-3 14:01</a>
+
+一个学校整了个尖子音乐科，一年下来啥成绩都没有，全靠普通科几个学生自发组织活动争光，太丢人了，还是早 ...</blockquote>
+暴击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 1928#       发表于 2022-8-3 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916794&amp;ptid=2078110" target="_blank">damian-wade 发表于 2022-8-3 14:01</a>
+一个学校整了个尖子音乐科，一年下来啥成绩都没有，全靠普通科几个学生自发组织活动争光，太丢人了，还是早 ...</blockquote>
+点题superstar的原因竟然是学校太拉了，矮子堆里拔大明星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说社团摆了，学校摆了，编剧摆了
+
+*****
+
+####  damian-wade  
+##### 1929#       发表于 2022-8-3 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56916904&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-3 14:13</a>
+这还是香音曾经向往的音乐科</blockquote>
+最后跑去给香音打气的同学肯定是普通科的吧(路人三巨头应该是普通科没错)，鼓励那番话说出来我听着完全就是在嘲讽音乐科的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 1930#       发表于 2022-8-3 16:27
+
+nico评分已经比前两集还低了，突然觉得当年缪第一集的69实在是有点惨。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 1931#       发表于 2022-8-3 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917960&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-3 16:27</a>
+
+nico评分已经比前两集还低了，突然觉得当年缪第一集的69实在是有点惨。
+
+—— 来自 Xiaomi 2106118C, Andro ...</blockquote>
+星二现在已经在NICO评分上有反向超越水二的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+这还不是最可怕的，最可怕的是，我甚至在别的地方看到一大群人狂喷NICO。说这个剧情都还有这么高分<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1932#       发表于 2022-8-3 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918093&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-8-3 16:43</a>
+星二现在已经在NICO评分上有反向超越水二的可能了
+
+这还不是最可怕的，最可怕的是，我甚至在别的 ...</blockquote>
+不是什么片子能持续激怒霓虹人做到不如看黑屏的，国内这边的回音壁情况更严重点，能去港澳台看怎么着也是铁粉了，多少也为企划掏了不少，愤怒情绪更容易酝酿，也是现在这个剧本作，根本不在乎老粉丝的看法，甚至连第一季的观众想法都不看重。
+
+感觉拉拉已经开始走高达系列的老路了，再过两年就要开始粉头相互开除对方拉拉籍。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 1933#       发表于 2022-8-3 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918221&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-3 16:59</a>
+
+不是什么片子能持续激怒霓虹人做到不如看黑屏的，国内这边的回音壁情况更严重点，能去港澳台看怎么着也是 ...</blockquote>
+讲道理这分真的不高了，别看还有76的好评，但是对比拉拉四个团8期动画，已经是史上NICO开局最菜的拉拉动画了，就不说对比缪二、虹一、虹二三部NICO高分作品，单说对比自己，星一第二话、第三话好评就薄纱星二，对比缪一就更菜，缪一第一话69.2，第二话76.9，第三话直接就89.8高分了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，甚至水二你说烂吧，起码前三话都是8字开头
+
+*****
+
+####  damian-wade  
+##### 1934#       发表于 2022-8-3 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56917960&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-3 16:27</a>
+nico评分已经比前两集还低了，突然觉得当年缪第一集的69实在是有点惨。
+
+—— 来自 Xiaomi 2106118C, Andro ...</blockquote>
+缪挺正常吧，当时没有粉丝基础，也没有那么多别的偶像企划，唯一对比的对象是爱马仕本家动画……
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 1935#       发表于 2022-8-3 18:02
+
+你说要卖碟吧，但是我觉得动画开始前后几乎毫无宣传，去年生放几乎没怎么断过吧？然后电视节目啥的，今年就是开播前安排一场生放（然后因为车祸取消）就完了，其他宣传完全没有的感觉，也就几本杂志的样子好像
+
+*****
+
+####  aoaoaodedede  
+##### 1936#       发表于 2022-8-3 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918843&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-3 18:02</a>
+
+你说要卖碟吧，但是我觉得动画开始前后几乎毫无宣传，去年生放几乎没怎么断过吧？然后电视节目啥的，今年就 ...</blockquote>
+去年生放感觉多可能是因为延播几周补的生放吧，不过去年还有还有购买部，以及开播前那个四团节目，确实感觉不少了
+
+*****
+
+####  lj205  
+##### 1937#       发表于 2022-8-3 18:21
+
+反正这企划多灾多难，运营又是一泡污，还好星团从初期开始就允许各自发展，只能希望她们几个个人能尽量吸收红利发展个人事业
+
+*****
+
+####  HGCG2  
+##### 1938#       发表于 2022-8-3 18:31
+
+<img src="http://ac.stage3rd.com/upfiles/202208/hgcg@0712866688268.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1939#       发表于 2022-8-3 19:21
+
+柠檬气泡怎么感觉日语版没有中文版的好听<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1940#       发表于 2022-8-3 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919485&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-3 19:21</a>
+
+柠檬气泡怎么感觉日语版没有中文版的好听</blockquote>
+日语音调太少了。
+
+*****
+
+####  lj205  
+##### 1941#       发表于 2022-8-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919108&amp;ptid=2078110" target="_blank">HGCG2 发表于 2022-8-3 18:31</a></blockquote>
+萌翻发的啥？网页看不到
+
+*****
+
+####  仟音一心  
+##### 1942#       发表于 2022-8-3 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919750&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-3 19:58</a>
+萌翻发的啥？网页看不到</blockquote>
+就是微博
+
+*****
+
+####  JustW_3  
+##### 1943#       发表于 2022-8-3 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56908834&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-8-2 16:53</a>
+星二在处理很多剧情上就是朝着虹二相反的方向。先是加人，星二加人，要么就是直接说新人是弱鸡，要么就是 ...</blockquote>
+虹一的时候我就吐槽过九个人群戏的台词太不灵动，结果刚才在阿b看了恋s2e2e3全台词剪辑，结果这……
+
+*****
+
+####  JustW_3  
+##### 1944#       发表于 2022-8-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56914873&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-3 10:44</a>
+我看有人说，VN今年甚至都没资格参赛？
+
+因为动画都是高中阶段的故事，给大家的印象是高中过完就不能参赛， ...</blockquote>
+鉴于liella连续拿了两年新人奖，那么学园偶像年龄范围至少也该有四五年吧，否则前脚新人后脚毕业了
+
+*****
+
+####  绯想alter2nd  
+##### 1945#       发表于 2022-8-3 21:28
+
+预科也是学院偶像!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 1946#       发表于 2022-8-3 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920623&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-3 21:22</a>
+虹一的时候我就吐槽过九个人群戏的台词太不灵动，结果刚才在阿b看了恋s2e2e3全台词剪辑，结果这…… ...</blockquote>
+不说话够灵动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 1947#       发表于 2022-8-3 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920648&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-3 21:23</a>
+
+鉴于liella连续拿了两年新人奖，那么学园偶像年龄范围至少也该有四五年吧，否则前脚新人后脚毕业了 ...</blockquote>
+我想应该是以组合为判定标准，星1是可香，星2是liella，所以才可能拿俩次新人奖
+
+*****
+
+####  aoaoaodedede  
+##### 1948#       发表于 2022-8-3 23:51
+
+话说经历过缪时代的坛友能说说当年缪二期动画是怎么火的吗？之前看壁吧的视频，没想到缪二期动画的销量是目前21世纪以来的第三名
+
+*****
+
+####  lj205  
+##### 1949#       发表于 2022-8-3 23:58
+
+手游还是有很大功劳的
+
+*****
+
+####  Enakina  
+##### 1950#       发表于 2022-8-4 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922099&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-3 23:51</a>
+话说经历过缪时代的坛友能说说当年缪二期动画是怎么火的吗？之前看壁吧的视频，没想到缪二期动画的销量是目 ...</blockquote>
+大概算是第一批吃螃蟹的那种吧，当年的确是现象级了，日本海外都是
+
+
+
+*****
+
+####  优妮可  
+##### 1951#       发表于 2022-8-4 01:02
+
+<blockquote>aoaoaodedede 发表于 2022-8-3 23:51
+话说经历过缪时代的坛友能说说当年缪二期动画是怎么火的吗？之前看壁吧的视频，没想到缪二期动画的销量是目 ...</blockquote>
+动漫加手游加三次元live
+
+*****
+
+####  ads147147  
+##### 1952#       发表于 2022-8-4 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922099&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-3 23:51</a>
+话说经历过缪时代的坛友能说说当年缪二期动画是怎么火的吗？之前看壁吧的视频，没想到缪二期动画的销量是目 ...</blockquote>
+手游加动画加一定程度的市场空白。
+
+sif其实放到现在也算挺好玩的轻度音游，而且音乐水平一直保持在高水准上，加上一期相对优秀的素质。
+
+（最关键还是缪不怎么鸟那个拉拉大赛）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 1953#       发表于 2022-8-4 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922099&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-3 23:51</a>
+话说经历过缪时代的坛友能说说当年缪二期动画是怎么火的吗？之前看壁吧的视频，没想到缪二期动画的销量是目 ...</blockquote>
+动画做得是真的好，无论剧情还是live，当时有评价是二次元的《glee/欢乐合唱团》。
+
+*****
+
+####  ces轴承仨  
+##### 1954#       发表于 2022-8-4 08:14
+
+昨天看到liyuu回来了。我感觉不如在歇歇，日本这情况。。。感觉热情变小了。希望可可多点，能激发下热情
+
