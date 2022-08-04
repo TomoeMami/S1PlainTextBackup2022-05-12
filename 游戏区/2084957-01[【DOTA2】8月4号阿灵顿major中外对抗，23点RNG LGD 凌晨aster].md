@@ -2416,3 +2416,15 @@ TSM分够了，当然是不是真的不想进就不清楚了<img src="https://st
 
 批站的dota2主播可以看下完美的实习生ai-meet，毕竟排名哥
 
+
+
+*****
+
+####  Centrum  
+##### 266#       发表于 2022-8-4 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56919791&amp;ptid=2084957" target="_blank">leove25 发表于 2022-8-3 20:04</a>
+topson是真的人赢，打的也真的好看。不管是打职业还是当主播天天玩妖路子，主播混的也不错，希望下赛季去个 ...</blockquote>
+ti8最后一盘打完他们过去举盾 每人对着观众举一下的时候 轮到Topson时他大喊了一句“DOTA!!!!”
+这种人才是真正的dotaer 
+
