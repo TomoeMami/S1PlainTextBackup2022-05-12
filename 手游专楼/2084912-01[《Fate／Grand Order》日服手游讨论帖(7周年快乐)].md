@@ -1251,3 +1251,14 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.7来大的的话，主线能全语音么
 
+
+
+*****
+
+####  miro112233  
+##### 140#       发表于 2022-8-4 14:11
+
+BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
