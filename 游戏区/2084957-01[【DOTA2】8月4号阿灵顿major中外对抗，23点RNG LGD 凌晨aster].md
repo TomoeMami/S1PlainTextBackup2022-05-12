@@ -2437,3 +2437,12 @@ ti8最后一盘打完他们过去举盾 每人对着观众举一下的时候 轮
 
 我等不及了，能不能现在直接跳到RNG比赛开始
 
+
+
+*****
+
+####  asd235614  
+##### 268#       发表于 2022-8-4 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">时差已经调好了，就等开赛了
+
