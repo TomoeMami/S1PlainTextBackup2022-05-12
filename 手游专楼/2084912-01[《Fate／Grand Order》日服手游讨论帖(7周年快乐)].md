@@ -1386,3 +1386,31 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 看奥博龙寡妇村发癫乐死了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 152#       发表于 2022-8-4 16:49
+
+专楼标题能换回红色嘛，和隔壁国服楼相似度过高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 153#       发表于 2022-8-4 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56928546&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-4 16:49</a>
+
+专楼标题能换回红色嘛，和隔壁国服楼相似度过高了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">直接去给版主发消息吧
+
+*****
+
+####  johnkamsar  
+##### 154#       发表于 2022-8-4 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56925544&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-4 12:15</a>
+fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢，毕竟以前蘑菇还自选特斯拉呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实自选啊（指六周年）
+
