@@ -1470,3 +1470,26 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 不管是双道满还是双太公
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gulant  
+##### 160#       发表于 2022-8-4 17:21
+
+面最好看的是旧剑。可惜都当透明人多少年了，女版改模这货还没改……
+
+*****
+
+####  katun  
+##### 161#       发表于 2022-8-4 17:24
+
+准确来说是中原已经几年没给你月画过图了
+
+*****
+
+####  alucardcz  
+##### 162#       发表于 2022-8-4 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改该标题和颜色了 不然楼必然进错
+
