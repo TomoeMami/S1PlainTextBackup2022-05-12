@@ -3006,3 +3006,28 @@ max怎么要dead了
 max怎么要dead了</blockquote>
 来个图看看
 
+
+
+*****
+
+####  尸体鲨  
+##### 334#       发表于 2022-8-4 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56931126&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-4 20:31</a>
+TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.</blockquote>
+不是说扣积分吗
+
+*****
+
+####  pigofsunny  
+##### 335#       发表于 2022-8-4 21:55
+
+上帝的发型跟阿衰一样啊
+
+*****
+
+####  逃离二次元  
+##### 336#       发表于 2022-8-4 21:59
+
+据说九月底和小黑盒合并<img src="https://p.sda1.dev/6/4407c01ceb07ac55e187edebe5b0708f/CMP_20220804215923438.jpg" referrerpolicy="no-referrer">
+

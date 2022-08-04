@@ -4665,3 +4665,17 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平滑�
 
 所以说第二季那全面开摆的样子真是越看越气<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老1.5  
+##### 1964#       发表于 2022-8-4 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56932196&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-4 21:26</a>
+
+又重温了一遍第一季的前6集，泪，流了下来
+
+OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...</blockquote>
+气也没用啦，也改不了剧本，增加内耗不可取，不如一起躺，这样还能比谁竖起来比较高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
