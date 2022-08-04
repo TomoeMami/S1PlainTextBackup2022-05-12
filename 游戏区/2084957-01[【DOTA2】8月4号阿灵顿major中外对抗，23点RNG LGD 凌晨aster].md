@@ -4530,3 +4530,93 @@ ana，我ti8就是这样赢的么
 
 为本楼站岗 为清纯打卡
 
+
+
+*****
+
+####  反方向的波  
+##### 530#       发表于 2022-8-5 00:11
+
+我在为霉皇选c活动中新开出了踢马兜，点击弹幕一起加入吧
+
+*****
+
+####  聚散浮云  
+##### 531#       发表于 2022-8-5 00:12
+
+晚上好
+
+我依然坚守本楼 未曾离开 没有去约会 没有开房
+
+北京时间：0:12
+
+为本楼站岗 为清纯打卡
+
+*****
+
+####  Damocles990609  
+##### 532#       发表于 2022-8-5 00:13
+
+感觉rng不够稳啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">超哥最后几波各种白给
+
+*****
+
+####  IG.430  
+##### 533#       发表于 2022-8-5 00:13
+
+其实我感觉timado还挺bigball的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+是个狠人
+
+*****
+
+####  nowaki  
+##### 534#       发表于 2022-8-5 00:13
+
+别尬黑 ti8的topson比窝超哥过分多了
+
+*****
+
+####  tontyoutoure  
+##### 535#       发表于 2022-8-5 00:14
+
+前面懒得写了，打卡
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 536#       发表于 2022-8-5 00:14
+
+timado在上个major的时候还是大腿，去了中东就变畜了
+
+*****
+
+####  逃离二次元  
+##### 537#       发表于 2022-8-5 00:14
+
+别的不说，timado大神的比赛看着还是蛮有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 538#       发表于 2022-8-5 00:16
+
+先去录短了，开了叫我
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 539#       发表于 2022-8-5 00:17
+
+上把T神也是扔下九个人自己打野吗？
+
+*****
+
+####  战狼PTSD  
+##### 540#       发表于 2022-8-5 00:20
+
+ti6崇拜懿萍 ti7携手懿萍  ti8气死懿萍 ti10解说懿萍 
+
