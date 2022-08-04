@@ -6438,3 +6438,19 @@ Ana有那么讨厌bkb么
 
 建议去找topson，上帝之子。
 
+
+
+*****
+
+####  雨中曲  
+##### 781#       发表于 2022-8-5 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935415&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-5 06:28</a>
+
+那为什么东南亚没一个队要呢</blockquote>
+ANA肯定不会长期打一线职业，你是老板你会钱嘛？
+
+俱乐部老板要的选手是长远商业运营，营销回报。所以短期替补很多人肯定会试试.
+
+说不定让上帝眼光来看，TI就是工资杯，每年到点拿工资，切假腿回家炒菜岂不美哉
+
