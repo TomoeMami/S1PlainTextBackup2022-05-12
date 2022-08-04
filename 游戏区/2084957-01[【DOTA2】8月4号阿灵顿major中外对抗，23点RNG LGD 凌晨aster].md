@@ -5545,3 +5545,19 @@ RNG上个比赛这么重视先知，怎么这两场没ban也没选
 
 感觉没啥看的了，有些队伍太菜了吧。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 665#         楼主| 发表于 2022-8-5 01:44
+
+night fall也是萌萌二次元？
+
+*****
+
+####  蛭人  
+##### 666#       发表于 2022-8-5 01:46
+
+北美传统二次元。
+
