@@ -1675,3 +1675,31 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 以你的欧洲血统 800直接5宝了 不要怂</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先我要有800石
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 180#       发表于 2022-8-4 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这些欧洲人就该吃一次千石无五星制裁，可惜现在没有这个可能了
+
+
+
+*****
+
+####  alucardcz  
+##### 181#       发表于 2022-8-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56933360&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-4 22:52</a>
+
+你们这些欧洲人就该吃一次千石无五星制裁，可惜现在没有这个可能了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次泳装结束我要重新做萌新 在也不石不过三了  该存井等强度卡了
+
+*****
+
+####  khxooo  
+##### 182#       发表于 2022-8-4 23:01
+
+欧皇在互相豹跳，非洲人只能独自一人流眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
