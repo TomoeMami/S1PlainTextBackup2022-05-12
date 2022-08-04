@@ -1455,3 +1455,18 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 牛若丸赚大了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再给10充能就完爆刑部姬了
 
+
+
+*****
+
+####  exiaexa  
+##### 159#       发表于 2022-8-4 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56928777&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-4 17:09</a>
+
+再给10充能就完爆刑部姬了</blockquote>
+现在作为拐已经完爆了
+
+不管是双道满还是双太公
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
