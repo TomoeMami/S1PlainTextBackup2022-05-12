@@ -1719,3 +1719,24 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">至于5宝限定，多赌几次福袋说不定就有了，或者给大伙开开眼界豹一个一发11连5宝
 
+
+
+*****
+
+####  alucardcz  
+##### 184#       发表于 2022-8-4 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56933786&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-4 23:27</a>
+
+千石零五星是挺难的啊，但又不是没有，我买的第二个号就是因为C呆池千石零五星怒弃的
+
+至 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这你得找森师傅 他的专长  萌新做不到
+
+*****
+
+####  霧谷藤乃  
+##### 185#       发表于 2022-8-4 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要刷吐了，结果只涨了3EQP，看来升技能什么的对于我这种最多每天清体的玩家来说还是太难了
+

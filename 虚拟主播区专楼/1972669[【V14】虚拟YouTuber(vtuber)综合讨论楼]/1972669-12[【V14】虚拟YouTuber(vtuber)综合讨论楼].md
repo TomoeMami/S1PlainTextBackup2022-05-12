@@ -2879,3 +2879,12 @@ https://weibo.com/6979797100/LFsKngWAV?type=like#_rnd1659615861473
 
 enkr的奇策<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16752#       发表于 2022-8-4 23:36
+
+西西这触发了甲子园采访事件，然后什么都没获得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
