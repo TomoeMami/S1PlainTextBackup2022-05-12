@@ -2132,3 +2132,14 @@ S级联赛和A级联赛时间分开，分别集中在三周内打完。 （大�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  坚定的团子党  
+##### 234#       发表于 2022-8-4 07:56
+
+联赛也还行吧，要是只major有积分的话，国内队伍会被疫情政策关掉一大半
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

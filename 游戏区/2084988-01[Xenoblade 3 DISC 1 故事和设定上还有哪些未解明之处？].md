@@ -1090,3 +1090,15 @@ dlc剧情还得等好久<img src="https://static.saraba1st.com/image/smiley/face
 
 那z做的这个世界的分离是什么原因导致的？可以理解为一种倒带吗来自: iPhone客户端
 
+
+
+*****
+
+####  xwr  
+##### 102#         楼主| 发表于 2022-8-4 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923101&amp;ptid=2084988" target="_blank">大江户战士 发表于 2022-8-4 03:53</a>
+
+始源是一边造了一半，肯定是要合在一起用的</blockquote>
+虽说一个世界一半，但其实还是很好奇是怎么合起来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
