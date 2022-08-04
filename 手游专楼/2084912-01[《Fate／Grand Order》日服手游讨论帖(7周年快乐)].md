@@ -1348,3 +1348,29 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 
 但今天看到这出我有点动摇了，除了本来想强塞bb结果忘了她根本就升不到120外我想不出有什么整出这段乌龙的理由，可能运营就是这么若制吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 149#       发表于 2022-8-4 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56928075&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-4 16:09</a>
+
+去过现场的人repo过buster石仓曾经说过这种数据都是真假掺半的，会塞点运营想推的角色进去
+
+我本来是不信 ...</blockquote>
+强推角色是很多游戏都会干的呀，特别是营销企划这方面
+
+毕竟每个角色的营销都要提前几个月布局
+
+完全追玩家反应怕是西北风都喝不上
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 150#       发表于 2022-8-4 16:29
+
+右上角还特地写了几句表示以藏的硬币不好搞 那你bb的硬币是怎么虚空变出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

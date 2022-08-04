@@ -1409,3 +1409,25 @@ Z的世界规则下不可能有都市那群人
 
 但是人类对未来渴求让都市出现，其实可以把都市看做未来人，结局自然人不是没了，而是等待总有一天的诞生
 
+
+
+*****
+
+####  无心怪盗创毘  
+##### 127#       发表于 2022-8-4 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56918700&amp;ptid=2084988" target="_blank">生火腿 发表于 2022-8-3 17:48</a>
+并不是这四人组或者主角团是固定的，每次都是除了诺亚和mio随机，第六章开头诺亚带mio挑战z的队友都是路 ...</blockquote>
+什么勇气默示录X黑客帝国，还好比云来的angel beats！高明一点
+
+*****
+
+####  无心怪盗创毘  
+##### 128#       发表于 2022-8-4 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922124&amp;ptid=2084988" target="_blank">plok201 发表于 2022-8-3 23:56</a>
+1,2代的人应该不用那么悲观
+
+大概率就是始源造艾欧尼翁并没有把所有人的备份都读取出来，2个女王刚好是权限 ...</blockquote>
+为啥不能是把所有不肯融合的抓一起然后让俩女王陪他们想通
+
