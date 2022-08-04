@@ -2446,3 +2446,12 @@ ti8最后一盘打完他们过去举盾 每人对着观众举一下的时候 轮
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">时差已经调好了，就等开赛了
 
+
+
+*****
+
+####  反方向的波  
+##### 269#       发表于 2022-8-4 15:16
+
+苦逼正在搬砖
+
