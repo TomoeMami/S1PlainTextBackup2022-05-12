@@ -2045,3 +2045,36 @@ s1发不了图还真是麻烦阿。
 
 11号mea有个节目，啥节目不知道。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12231#       发表于 2022-8-4 22:09
+
+MUSIClock with THE FIRST TIMES
+
+@MUSIClock897
+
+8/11(木)の #みゅじろく は・・・
+
+#指原莉乃 さんがクリエイティブディレクターのバーチャルアイドルグループ
+
+NHOTBOT（
+
+@VCP_jp_
+
+）の神楽めあさん（
+
+@KaguraMea_VoV
+
+）が登場します！
+
+お楽しみに！！！✨
+
+[https://radiko.jp/share/?sid=INT&amp;t=20220811070000](https://radiko.jp/share/?sid=INT&amp;t=20220811070000)
+
+#NHOTBOT #vcp #神楽めあ
+
+#interfm #radiko
+

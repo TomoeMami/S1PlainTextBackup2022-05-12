@@ -3031,3 +3031,23 @@ TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.</block
 
 据说九月底和小黑盒合并<img src="https://p.sda1.dev/6/4407c01ceb07ac55e187edebe5b0708f/CMP_20220804215923438.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  masterffzhou  
+##### 337#       发表于 2022-8-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930618&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-4 20:01</a>
+你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好 ...</blockquote>
+贤者时间看一眼漏油
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  格雷殿下  
+##### 338#       发表于 2022-8-4 22:05
+
+原来max+和小黑盒不是同一个吗
+
