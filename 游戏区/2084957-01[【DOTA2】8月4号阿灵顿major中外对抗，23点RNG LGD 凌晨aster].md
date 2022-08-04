@@ -2902,3 +2902,14 @@ TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.
 <img src="https://p.sda1.dev/6/3e6b92aa2a4adc4950e44505354d336b/CMP_20220804203140574.jpg" referrerpolicy="no-referrer">
 胡良智这搓毛我真的一口盐汽水喷出来了
 
+
+
+*****
+
+####  Litccc  
+##### 323#       发表于 2022-8-4 20:36
+
+<img src="https://p.sda1.dev/6/97c3e5eb5d45a866af744b1c3395588b/dq66t75pxnf91.jpg" referrerpolicy="no-referrer">
+
+ts可爱捏
+

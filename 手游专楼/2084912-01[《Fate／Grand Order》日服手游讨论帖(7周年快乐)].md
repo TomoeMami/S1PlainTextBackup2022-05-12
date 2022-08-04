@@ -1621,3 +1621,25 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 不愧是萌新好欧啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫非 说明歪了
 
+
+
+*****
+
+####  qixinno2  
+##### 175#       发表于 2022-8-4 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930576&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 19:57</a>
+
+这叫非 说明歪了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码还能出五星 真的非的是我这种连歪都不带歪的直接毛都不出
+
+*****
+
+####  alucardcz  
+##### 176#       发表于 2022-8-4 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56931141&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-4 20:31</a>
+
+起码还能出五星 真的非的是我这种连歪都不带歪的直接毛都不出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕  800石1宝0歪的就在这里  （还没算护符呢
+

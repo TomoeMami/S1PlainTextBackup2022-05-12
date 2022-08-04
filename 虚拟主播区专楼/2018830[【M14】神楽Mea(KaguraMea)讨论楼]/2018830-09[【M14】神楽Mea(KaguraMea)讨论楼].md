@@ -1934,3 +1934,12 @@ s1发不了图还真是麻烦阿。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12219#       发表于 2022-8-4 20:36
+
+油管200多，b站300多在看吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
