@@ -2407,3 +2407,12 @@ fnc官宣借tsm的125，t神他来了<img src="https://static.saraba1st.com/imag
 
 TSM分够了，当然是不是真的不想进就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lamapocos  
+##### 265#       发表于 2022-8-4 10:21
+
+批站的dota2主播可以看下完美的实习生ai-meet，毕竟排名哥
+
