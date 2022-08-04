@@ -2796,3 +2796,33 @@ RNG第一场不好打好吧，不是被剃光头就好了，国外自媒体排�
 
 只有我明天还要上班吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 311#       发表于 2022-8-4 20:01
+
+你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭
+
+*****
+
+####  tontyoutoure  
+##### 312#       发表于 2022-8-4 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930618&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-4 20:01</a>
+你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好怕你们在开房啊😭 你们都出来说句话好吗好 ...</blockquote>
+阿巴阿巴
+老爸老妈今天过来玩，目测几周都不会有性生活，更有甚者还和对象吵了一架现在还没头绪怎么哄。。。
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 313#       发表于 2022-8-4 20:09
+
+这rng真要打的好，不会鬼就被踢了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
