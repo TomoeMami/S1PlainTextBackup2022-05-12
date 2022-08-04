@@ -1190,3 +1190,19 @@ fami通说泳装活动有3个五星从者？？
 fami通说泳装活动有3个五星从者？？</blockquote>
 fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢，毕竟以前蘑菇还自选特斯拉呢
 
+
+
+*****
+
+####  DARKGRAY  
+##### 133#       发表于 2022-8-4 12:38
+
+不想刷新保底做不出4星单UP，只能三个卡池一加一啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skicerse  
+##### 134#       发表于 2022-8-4 12:40
+
+你游要是更多用技能调整NP加buff那玩法可多了去了。感觉可以变成类似24点的游戏。
+
