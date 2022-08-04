@@ -1943,3 +1943,57 @@ s1发不了图还真是麻烦阿。
 
 油管200多，b站300多在看吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 12220#       发表于 2022-8-4 20:42
+
+ 本帖最后由 clvan_ 于 2022-8-4 20:43 编辑 
+
+甚至没新衣服
+
+*****
+
+####  路人庚  
+##### 12221#       发表于 2022-8-4 20:43
+
+ 本帖最后由 路人庚 于 2022-8-4 20:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mv连3D都没了，预算⬇️⬇️⬇️⬇️
+
+学园爱豆番主角团的一轮游路人对手出场曲饼干
+
+既然是跨国偶像团能不能露一手给我们看看啊（）
+
+*****
+
+####  古战场亡魂  
+##### 12222#       发表于 2022-8-4 20:43
+
+我觉得这歌还没第一首带感。
+
+*****
+
+####  pei23333  
+##### 12223#       发表于 2022-8-4 20:46
+
+这羊怎么把把c啊
+
+*****
+
+####  clvan_  
+##### 12224#       发表于 2022-8-4 20:46
+
+ 本帖最后由 clvan_ 于 2022-8-4 20:48 编辑 
+
+虽然这mv观感还比3d那个好点，但现在能不能说这企划基本彻底寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，看推特你咩好像要参加个电台节目？
+
+*****
+
+####  Rem-清曲  
+##### 12225#       发表于 2022-8-4 20:49
+
+要是6人线下相见会不会阳光猛烈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
