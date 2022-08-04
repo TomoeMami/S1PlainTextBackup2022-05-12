@@ -3051,3 +3051,14 @@ TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.</block
 
 原来max+和小黑盒不是同一个吗
 
+
+
+*****
+
+####  scg2017  
+##### 339#       发表于 2022-8-4 22:20
+
+同一家开的，感觉小黑盒当二道贩子有点low了，可能缺乏变现手段吧
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
