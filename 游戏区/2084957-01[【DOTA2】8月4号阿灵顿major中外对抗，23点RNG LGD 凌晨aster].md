@@ -5490,3 +5490,49 @@ Bryle，这场失败就是你付出的代价
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">熬夜关注atser
 
+
+
+*****
+
+####  Tienx  
+##### 658#       发表于 2022-8-5 01:21
+
+上帝一把躺赢一把躺输，超哥一把超神一把超鬼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 659#       发表于 2022-8-5 01:22
+
+撑不住了，一觉起来又是。。
+
+*****
+
+####  4591  
+##### 660#       发表于 2022-8-5 01:24
+
+VP中场休息去看鸡哥的切片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">,互相打烂对面对线一把.
+
+
+
+*****
+
+####  雅朵莉雀  
+##### 661#       发表于 2022-8-5 01:25
+
+RNG上个比赛这么重视先知，怎么这两场没ban也没选
+
+*****
+
+####  woyzeck  
+##### 662#       发表于 2022-8-5 01:28
+
+雪碧直接龙骑老奶奶，好家伙这两天直播是没少看啊
+
+*****
+
+####  4591  
+##### 663#       发表于 2022-8-5 01:31
+
+难道...一号位影魔
+
