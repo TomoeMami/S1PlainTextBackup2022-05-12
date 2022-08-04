@@ -1215,3 +1215,17 @@ https://imgur.io/a/5KIUAZp
 都市人能生孩子单纯代表着梅比乌斯他们的失败，停滞不前是错误的。不过都是Z制定的世界规则，图一乐
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">全篇最喜欢的角色，可惜出场一下就领盒饭了
 
+
+
+*****
+
+####  事象变移机关  
+##### 113#       发表于 2022-8-4 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56924301&amp;ptid=2084988" target="_blank">Kojimaru 发表于 2022-8-4 10:11</a>
+
+都市人能生孩子单纯代表着梅比乌斯他们的失败，停滞不前是错误的。不过都是Z制定的世界规则，图一乐
+
+克里 ...</blockquote>
+回头一看这话说得好怪啊，世界分开后这些自然人都要没了，昭示了什么未来？
+
