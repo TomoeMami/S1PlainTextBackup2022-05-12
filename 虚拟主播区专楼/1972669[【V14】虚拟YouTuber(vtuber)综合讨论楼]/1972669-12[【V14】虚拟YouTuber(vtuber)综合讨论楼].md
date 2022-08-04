@@ -2819,3 +2819,17 @@ king5月这特训运……
 
 放屁，对盒皇尊重点<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 16747#       发表于 2022-8-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922147&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-8-4 00:00</a>
+
+Enna：十（shi）人（ren）十（shi）色（se）
+
+Petra：ITS KANJI LMAO</blockquote>
+草 哪个直播的 有链接吗
+
