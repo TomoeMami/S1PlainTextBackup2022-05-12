@@ -1226,3 +1226,19 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 
 蘑菇说2.7之前全是测试服，换了公司之后要来大的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思你这底层框架就这样，除了缝缝补补还能玩出什么花来
 
+
+
+*****
+
+####  qixinno2  
+##### 137#       发表于 2022-8-4 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">2.7要是直接重做整个游戏我就当那是大的 不然就这缝缝补补的玩意能大到哪去
+
+*****
+
+####  黑上シグマ  
+##### 138#       发表于 2022-8-4 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">LATER的泳装武藏到货了，然而垃圾快递外箱严重破损，还要退回去售后……
+

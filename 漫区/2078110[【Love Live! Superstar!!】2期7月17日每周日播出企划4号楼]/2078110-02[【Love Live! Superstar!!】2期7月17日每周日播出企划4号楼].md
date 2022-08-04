@@ -4546,3 +4546,16 @@ sif其实放到现在也算挺好玩的轻度音游，而且音乐水平一直�
 
 昨天看到liyuu回来了。我感觉不如在歇歇，日本这情况。。。感觉热情变小了。希望可可多点，能激发下热情
 
+
+
+*****
+
+####  愛さ実  
+##### 1955#       发表于 2022-8-4 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923562&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-8-4 08:14</a>
+昨天看到liyuu回来了。我感觉不如在歇歇，日本这情况。。。感觉热情变小了。希望可可多点，能激发下热情 ...</blockquote>
+咋学日语省略主语了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉liyuu热情变小了？原本fc说全好了才发自拍的，结果还是贴着胶布拍了一张，感觉还是挺热情的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
