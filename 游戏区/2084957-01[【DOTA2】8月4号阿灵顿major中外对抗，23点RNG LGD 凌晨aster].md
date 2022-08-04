@@ -5536,3 +5536,12 @@ RNG上个比赛这么重视先知，怎么这两场没ban也没选
 
 难道...一号位影魔
 
+
+
+*****
+
+####  smkf013  
+##### 664#       发表于 2022-8-5 01:37
+
+感觉没啥看的了，有些队伍太菜了吧。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
