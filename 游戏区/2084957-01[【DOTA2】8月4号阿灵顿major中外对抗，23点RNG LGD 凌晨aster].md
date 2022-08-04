@@ -6533,3 +6533,61 @@ rng应该还是能进败者组的，胜者组就难了。
 
 ctmd霉醋天天给集美送子弹<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">早点退役吧！
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 791#       发表于 2022-8-5 07:42
+
+ 本帖最后由 外挂全家脚气 于 2022-8-5 07:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935520&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-5 07:40</a>
+
+讲道理，那波是外面刷了个双倍，ana出去吃然后正好撞到了只能说来得早不如来得巧。早一点或者晚一点 ...</blockquote>
+我知道，虽然确实是运气的成分，但是能不能有点纪律性，这种关键时候都护着点，刚刷个10 0开就出这种事，简直让人吐血
+
+“瓶子给我我去装个符”
+
+“那你去呗”
+
+然后1号位就一个人去了，关键他们还是红色方然后其他人都在符上面，要知道对中路来说很多时候去吃符都有酱油在对方可能出现的地方守一下的
+
+*****
+
+####  12481632  
+##### 792#       发表于 2022-8-5 07:45
+
+意思是rng打个qc也能1：1，感觉要去败者组了呀
+
+*****
+
+####  izayoi39  
+##### 793#       发表于 2022-8-5 07:45
+
+说到底还是厨子在rng地位不够高啊，你看吴冠超吃个双倍符会不会有人护着
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 794#       发表于 2022-8-5 07:47
+
+这把茶阵容应该是优了的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 795#       发表于 2022-8-5 07:47
+
+大哥狼人<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 796#       发表于 2022-8-5 07:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">杜文乐躺赢那把我就喷过了，小天洗你永远找不到这人的，有两波都是厨子在不算突出部的地方被人家先手
+
