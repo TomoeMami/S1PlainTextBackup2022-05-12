@@ -1292,3 +1292,23 @@ BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smi
 
 叶狗说要多刷羁绊礼装，不知道要干嘛
 
+
+
+*****
+
+####  虎克别音  
+##### 144#       发表于 2022-8-4 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56927706&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-4 15:40</a>
+
+叶狗说要多刷羁绊礼装，不知道要干嘛</blockquote>
+明年一张羁绊礼装送3个石头？
+
+*****
+
+####  exiaexa  
+##### 145#       发表于 2022-8-4 15:44
+
+做个大梦，来个羁绊礼装插卡系统
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

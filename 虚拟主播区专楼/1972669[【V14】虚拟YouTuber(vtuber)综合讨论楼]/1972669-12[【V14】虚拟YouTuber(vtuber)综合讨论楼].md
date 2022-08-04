@@ -2833,3 +2833,15 @@ Enna：十（shi）人（ren）十（shi）色（se）
 Petra：ITS KANJI LMAO</blockquote>
 草 哪个直播的 有链接吗
 
+
+
+*****
+
+####  Ketestrait  
+##### 16748#       发表于 2022-8-4 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56926732&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-8-4 14:23</a>
+
+草 哪个直播的 有链接吗</blockquote>
+Enna昨晚的练歌回，petra只是出现在评论栏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
