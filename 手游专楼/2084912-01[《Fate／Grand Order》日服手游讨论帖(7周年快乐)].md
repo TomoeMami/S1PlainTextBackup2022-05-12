@@ -1166,3 +1166,15 @@
 
 fami通说泳装活动有3个五星从者？？
 
+
+
+*****
+
+####  DARKGRAY  
+##### 131#       发表于 2022-8-4 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56920763&amp;ptid=2084912" target="_blank">الطائر 发表于 2022-8-3 21:32</a>
+
+阴阳鱼不是成双成对的吗？不如再强化一下四星214：阴阳鱼A-，自充30，他充30，扣1000血。 ...</blockquote>
+当然是自己回血3000然后他充30扣1000血啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1830,3 +1830,44 @@ bysl，摸摸老师和吉米老师相比，我还是觉得摸摸老师更nb（�
 明天好像有和绯赤和花园猫的联动。</blockquote>
 2nd单曲名称和mv公布而已 之前nb官号发过
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12210#       发表于 2022-8-4 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923068&amp;ptid=2018830" target="_blank">ashero 发表于 2022-8-4 03:31</a>
+
+2nd单曲名称和mv公布而已 之前nb官号发过</blockquote>
+
+NHOT BOT オフィシャル【公式】バーチャルシンデレラプロジェクト
+
+@VCP_jp_
+
+·
+
+1h
+
+おはようございます！（夏）
+
+本日21時～
+
+「TIF出演直前　緊急特番」と題して配信を行います！ #バーチャルTIF への意気込みを改めてお話します！
+
+さらに、重大告知もあります！（重大）
+
+是非、ご覧ください！
+[https://youtu.be/hsQL5f-0ibc](https://youtu.be/hsQL5f-0ibc)
+
+#NHOTBOT
+
+
+
+*****
+
+####  古战场亡魂  
+##### 12211#       发表于 2022-8-4 11:59
+
+s1发不了图还真是麻烦阿。
+
