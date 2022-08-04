@@ -1414,3 +1414,44 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢，毕竟以前蘑菇还自选特斯拉呢 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实自选啊（指六周年）
 
+
+
+*****
+
+####  areklose  
+##### 155#       发表于 2022-8-4 17:03
+
+UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都有一个拿到充能。
+
+*****
+
+####  exiaexa  
+##### 156#       发表于 2022-8-4 17:07
+
+ 本帖最后由 exiaexa 于 2022-8-4 17:11 编辑 
+
+牛若丸赚大了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+巴沙洛缪这是官方强推双道满qp本关底暴击流吗
+
+又看了一眼配合双太公望也可以qp本关底暴击流了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 157#       发表于 2022-8-4 17:09
+
+明天小王子没跑了。
+
+*****
+
+####  areklose  
+##### 158#       发表于 2022-8-4 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56928757&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-4 17:07</a>
+
+牛若丸赚大了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再给10充能就完爆刑部姬了
+
