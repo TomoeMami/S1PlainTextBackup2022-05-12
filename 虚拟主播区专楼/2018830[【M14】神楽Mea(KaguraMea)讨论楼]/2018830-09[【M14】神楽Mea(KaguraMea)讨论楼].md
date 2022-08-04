@@ -1997,3 +1997,24 @@ s1发不了图还真是麻烦阿。
 
 要是6人线下相见会不会阳光猛烈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12226#       发表于 2022-8-4 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56931494&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2022-8-4 20:49</a>
+
+要是6人线下相见会不会阳光猛烈</blockquote>
+不早见面过了吗，新3人老3人不在一个休息室而已。
+
+*****
+
+####  rosevalley46  
+##### 12227#       发表于 2022-8-4 20:51
+
+反正不管是歌还是企划
+
+感觉就是走的不是一个路线强行捏在一起只能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
