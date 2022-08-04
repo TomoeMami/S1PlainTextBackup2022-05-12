@@ -1229,3 +1229,18 @@ https://imgur.io/a/5KIUAZp
 克里 ...</blockquote>
 回头一看这话说得好怪啊，世界分开后这些自然人都要没了，昭示了什么未来？
 
+
+
+*****
+
+####  xwr  
+##### 114#         楼主| 发表于 2022-8-4 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923588&amp;ptid=2084988" target="_blank">大江户战士 发表于 2022-8-4 08:17</a>
+
+我给红迪老哥画了张图说明，你可以看下
+
+泥潭居然发不了图了</blockquote>
+整了个中文的，不知道能不能看见
+<img src="http://wx3.sinaimg.cn/large/dcec95dfgy1h4uks7psosj20hs0l8wgi.jpg" referrerpolicy="no-referrer">
+
