@@ -1558,3 +1558,47 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  alucardcz  
+##### 169#       发表于 2022-8-4 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56929856&amp;ptid=2084912" target="_blank">承尘 发表于 2022-8-4 19:00</a>
+
+我只有个杀狐可以喂120，然而并没有什么意义
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还可以喂常驻（  毕竟常驻3宝还是很简单的
+
+*****
+
+####  qixinno2  
+##### 170#       发表于 2022-8-4 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930080&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 19:18</a>
+
+还可以喂常驻（  毕竟常驻3宝还是很简单的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">欧羡慕 我最高也只有2宝
+
+*****
+
+####  alucardcz  
+##### 171#       发表于 2022-8-4 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930086&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-4 19:18</a>
+
+欧羡慕 我最高也只有2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小太阳好像是4宝  快满了！
+
+*****
+
+####  qixinno2  
+##### 172#       发表于 2022-8-4 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930092&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-4 19:19</a>
+
+小太阳好像是4宝  快满了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是萌新好欧啊
+
