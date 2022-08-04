@@ -1147,3 +1147,22 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  里村紅葉  
+##### 129#       发表于 2022-8-4 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56924949&amp;ptid=2084912" target="_blank">阿提拉 发表于 2022-8-4 11:10</a>
+
+120级4星排名，第二名那位是怎么有那么多硬币喂到120级的。想想蘑菇能自选特斯拉，这好像也不算奇怪，就云 ...</blockquote>
+答案是屑AI传统艺能黑进系统瞎改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 130#       发表于 2022-8-4 11:28
+
+fami通说泳装活动有3个五星从者？？
+
