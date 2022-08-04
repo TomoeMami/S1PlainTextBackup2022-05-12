@@ -1206,3 +1206,14 @@ fami通找蘑菇跟武内做了个访谈，蘑菇自己说的，不排除嘴瓢�
 
 你游要是更多用技能调整NP加buff那玩法可多了去了。感觉可以变成类似24点的游戏。
 
+
+
+*****
+
+####  acuman  
+##### 135#       发表于 2022-8-4 12:51
+
+法米通比我还云
+
+以后大家不能骂云玩家了，毕竟官方数据都云<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
