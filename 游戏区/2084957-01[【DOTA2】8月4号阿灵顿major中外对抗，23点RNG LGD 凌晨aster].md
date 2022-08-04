@@ -2182,3 +2182,94 @@ S级联赛和A级联赛时间分开，分别集中在三周内打完。 （大�
 
 好啊好啊，9月3号前才更新
 
+
+
+*****
+
+####  chilno  
+##### 240#       发表于 2022-8-4 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923582&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-4 08:16</a>
+
+要在阿B看的话，硬挑一个看是不是只能是战神7了。</blockquote>
+在阿B看肯定选光一割割啊
+
+只要不和大舌头联动还是很好的
+
+
+
+*****
+
+####  沈淮  
+##### 241#         楼主| 发表于 2022-8-4 08:33
+
+漏油还是倒了
+
+*****
+
+####  漂灵  
+##### 242#       发表于 2022-8-4 08:44
+
+rng夺得ti，霉黄泪洒舞台，高喊：感谢A厨的精彩发挥。
+
+*****
+
+####  漂灵  
+##### 243#       发表于 2022-8-4 08:44
+
+rng夺得ti，霉黄泪洒舞台，高喊：感谢A厨的精彩发挥。
+
+*****
+
+####  夏溪澪mio  
+##### 244#       发表于 2022-8-4 08:44
+
+关注dodo谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">夹死我吧dodo
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夏溪澪mio  
+##### 245#       发表于 2022-8-4 08:44
+
+ 本帖最后由 夏溪澪mio 于 2022-8-4 08:45 编辑 
+
+风怒
+
+*****
+
+####  nightmare902015  
+##### 246#       发表于 2022-8-4 08:47
+
+在faze对阵navi的g5上半场，中单光一观赛时表示自己常看nga和sg，而s1是真的没人玩也没人聊dota，与s1切割，警钟长鸣。
+
+*****
+
+####  nightmare902015  
+##### 247#       发表于 2022-8-4 08:47
+
+ 本帖最后由 nightmare902015 于 2022-8-4 08:53 编辑 
+
+kale
+
+*****
+
+####  反方向的波  
+##### 248#       发表于 2022-8-4 08:55
+
+<img src="https://p.sda1.dev/6/c0cbc91e45000d99b820e6217e8a8318/Screenshot_2022-08-04-08-54-41-47_0fc56bb0559abc2fbe7530b672106a57.jpg" referrerpolicy="no-referrer">
+谨言慎行
+
+*****
+
+####  jy000129  
+##### 249#       发表于 2022-8-4 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922120&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-3 23:55</a>
+支持葑茖代表cndota的扣1</blockquote>
+现在不是4+2就是商务，有几把资格代表
+另一个B也开始有这个征兆了
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
