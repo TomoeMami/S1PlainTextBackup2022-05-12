@@ -1602,3 +1602,22 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 小太阳好像是4宝  快满了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是萌新好欧啊
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 173#       发表于 2022-8-4 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常驻等歪难道是真的？我FGO抽卡相对不多，印象中要么UP要么千石0五星，没有歪过……
+
+*****
+
+####  alucardcz  
+##### 174#       发表于 2022-8-4 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930124&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-4 19:21</a>
+
+不愧是萌新好欧啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫非 说明歪了
+
