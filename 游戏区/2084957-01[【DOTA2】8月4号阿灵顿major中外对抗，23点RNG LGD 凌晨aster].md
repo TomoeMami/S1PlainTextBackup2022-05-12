@@ -2652,3 +2652,26 @@ RNG第一场不好打好吧，不是被剃光头就好了，国外自媒体排�
 
 睡了一下午，一边补活一边等晚上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 293#       发表于 2022-8-4 18:53
+
+唉，不能在超级假赛论坛喷傻逼了，哭哭惹，阴阳人版主真是玻璃心，说个不管假赛贴就删帖封号<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 294#       发表于 2022-8-4 19:00
+
+都不过七夕？好！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马台街48  
+##### 295#       发表于 2022-8-4 19:00
+
+看前面两场感觉就行了
+

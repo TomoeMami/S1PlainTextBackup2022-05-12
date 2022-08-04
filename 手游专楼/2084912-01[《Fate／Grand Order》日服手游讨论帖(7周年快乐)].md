@@ -1547,3 +1547,14 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 无卡能喂的萌新看着你们 为什么要3宝 这合理吗！</blockquote>
 国服只有个三宝小芬奇能喂120，日服也没人可喂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  承尘  
+##### 168#       发表于 2022-8-4 19:00
+
+我只有个杀狐可以喂120，然而并没有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
