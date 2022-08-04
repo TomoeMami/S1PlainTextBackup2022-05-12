@@ -2630,3 +2630,16 @@ RNG第一场不好打好吧，不是被剃光头就好了，国外自媒体排�
 
 打vp还拿不下建议回家卖红薯吧
 
+
+
+*****
+
+####  攻心为上木之本  
+##### 291#       发表于 2022-8-4 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56923759&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-4 08:47</a>
+在faze对阵navi的g5上半场，中单光一观赛时表示自己常看nga和sg，而s1是真的没人玩也没人聊dota，与s1切割 ...</blockquote>
+漏了max+
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

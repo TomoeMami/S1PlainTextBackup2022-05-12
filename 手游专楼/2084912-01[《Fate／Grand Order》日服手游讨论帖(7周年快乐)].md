@@ -1513,3 +1513,25 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 165#       发表于 2022-8-4 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56924363&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-4 10:17</a>
+
+喂120最合适的时候就是无限池子。其他时候都是折磨自己</blockquote>
+去年一次补发1000多五星种火的时候也很合适
+
+*****
+
+####  alucardcz  
+##### 166#       发表于 2022-8-4 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56929562&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-4 18:26</a>
+
+去年一次补发1000多五星种火的时候也很合适</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无卡能喂的萌新看着你们 为什么要3宝 这合理吗！
+
