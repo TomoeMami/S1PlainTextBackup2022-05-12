@@ -2945,3 +2945,17 @@ ts可爱捏
 
 好呀好呀，双修党又露头了是吧，合着这年头还在关注刀塔2可能的基本组成成分为，集美、菠菜、皮套人、lol看热闹，西恩刀塔彻底没了。
 
+
+
+*****
+
+####  何然  
+##### 328#       发表于 2022-8-4 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56930472&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-4 19:49</a>
+
+大家一定要多挣钱啊，刚刚经过KFC看到两个人吃一根薯条，还嘴对嘴抢着吃，千万别活成那样，看着都难受。
+
+买 ...</blockquote>
+今天买台湾老板的美国快餐，你是什么成份
+

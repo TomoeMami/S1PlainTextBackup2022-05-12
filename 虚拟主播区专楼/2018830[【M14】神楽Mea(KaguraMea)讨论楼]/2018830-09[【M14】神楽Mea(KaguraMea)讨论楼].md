@@ -2027,3 +2027,12 @@ s1发不了图还真是麻烦阿。
 
 同样的不人气六人女团，希望你咩姐活动过程中不要移情太深
 
+
+
+*****
+
+####  clvan_  
+##### 12229#       发表于 2022-8-4 21:12
+
+这俩差别有点大吧，自己组的和被企业拉的区别可大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
