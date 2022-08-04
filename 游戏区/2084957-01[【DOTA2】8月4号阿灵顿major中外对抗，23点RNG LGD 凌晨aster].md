@@ -3062,3 +3062,15 @@ TI前换人怕不是会被V社认定是恶意直接禁掉RNG参赛资格.</block
 
 —— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  asd235614  
+##### 340#       发表于 2022-8-4 22:28
+
+睡醒了
+
+点个宵夜准备看比赛
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么我听到的核中核消息是RNG训练赛四个BO2合起来1-7
+
