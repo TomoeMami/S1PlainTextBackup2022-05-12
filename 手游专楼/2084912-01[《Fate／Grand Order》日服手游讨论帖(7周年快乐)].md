@@ -1312,3 +1312,12 @@ BB被踢了，加了格雷进来<img src="https://static.saraba1st.com/image/smi
 做个大梦，来个羁绊礼装插卡系统
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 146#       发表于 2022-8-4 15:57
+
+羁绊礼装除了雪城，我只用过圣乔治的。是可以改改了。
+
