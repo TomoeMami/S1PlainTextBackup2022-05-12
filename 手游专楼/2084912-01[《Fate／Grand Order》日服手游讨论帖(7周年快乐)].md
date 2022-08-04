@@ -1136,3 +1136,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细一想，比起什么减半，还不如掉落双倍，刷的累死了
 
+
+
+*****
+
+####  阿提拉  
+##### 128#       发表于 2022-8-4 11:10
+
+120级4星排名，第二名那位是怎么有那么多硬币喂到120级的。想想蘑菇能自选特斯拉，这好像也不算奇怪，就云就编数据
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
