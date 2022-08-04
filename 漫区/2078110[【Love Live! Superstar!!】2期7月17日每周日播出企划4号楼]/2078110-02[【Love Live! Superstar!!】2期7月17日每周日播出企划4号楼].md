@@ -4628,3 +4628,14 @@ sif其实放到现在也算挺好玩的轻度音游，而且音乐水平一直�
 
 明天晚上nako带土妹上广播
 
+
+
+*****
+
+####  starring  
+##### 1961#       发表于 2022-8-4 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56929777&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-4 18:50</a>
+问下坛友，龙之谷代购的鲤鱼BD一般要多久才能发货，第一次找代购（4月，还是5月初预定的，记不大请了） ...</blockquote>
+我也是在那里买，也还未发货
+

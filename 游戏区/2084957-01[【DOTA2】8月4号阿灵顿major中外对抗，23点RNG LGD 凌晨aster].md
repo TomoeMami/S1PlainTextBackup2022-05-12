@@ -2698,3 +2698,37 @@ RNG第一场不好打好吧，不是被剃光头就好了，国外自媒体排�
 
 去lga乳骂🐷脑，还不如去dmm玩瑟琴页游。花费了时间，起码还能开冲。和脑浆dx认真说话，
 
+
+
+*****
+
+####  ArowRocher  
+##### 299#       发表于 2022-8-4 19:24
+
+<img src="https://p.sda1.dev/6/f08d7395a29b6f0037074b3a37061a12/IMG_20220804_192342_526.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 300#       发表于 2022-8-4 19:27
+
+上帝新皮肤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Litccc  
+##### 301#       发表于 2022-8-4 19:29
+
+此时一位路过的冠军三号位：开哥，是我
+
+*****
+
+####  逃离二次元  
+##### 302#       发表于 2022-8-4 19:30
+
+此时一位路过的冠军三号位：开哥，是我
+
