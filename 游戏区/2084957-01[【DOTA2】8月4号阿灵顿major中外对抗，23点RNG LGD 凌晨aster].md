@@ -3338,3 +3338,157 @@ freeagain家后面那个席子把我看笑了</blockquote>
 
 这官方直接放赔率可还行。
 
+
+
+*****
+
+####  逃离二次元  
+##### 375#       发表于 2022-8-4 23:11
+
+pgl也太垃圾了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京吹病人  
+##### 376#       发表于 2022-8-4 23:11
+
+rng在哪个频道啊，4个频道切来切去没找到
+
+*****
+
+####  一品堂官  
+##### 377#       发表于 2022-8-4 23:12
+
+上菜！
+
+*****
+
+####  walfeds  
+##### 378#       发表于 2022-8-4 23:13
+
+开了开了
+
+*****
+
+####  北条早苗  
+##### 379#       发表于 2022-8-4 23:13
+
+RNG开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 380#       发表于 2022-8-4 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56933584&amp;ptid=2084957" target="_blank">京吹病人 发表于 2022-08-04 23:11:59</a>
+rng在哪个频道啊，4个频道切来切去没找到</blockquote>频道二，还没开
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nightmare902015  
+##### 381#       发表于 2022-8-4 23:14
+
+中华小神厨！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 382#       发表于 2022-8-4 23:15
+
+VP的伐木机玛西被ban了
+
+*****
+
+####  nowaki  
+##### 383#       发表于 2022-8-4 23:16
+
+来看上帝变安畜
+
+*****
+
+####  蛭人  
+##### 384#       发表于 2022-8-4 23:16
+
+好啊好呀，ban火猫TA是吧。
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 385#       发表于 2022-8-4 23:16
+
+安屠牲安屠牲
+
+*****
+
+####  4591  
+##### 386#       发表于 2022-8-4 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56933584&amp;ptid=2084957" target="_blank">京吹病人 发表于 2022-8-4 23:11</a>
+
+rng在哪个频道啊，4个频道切来切去没找到</blockquote>
+斗鱼的话,不看主舞台可以看杰出或者蒙睿
+
+*****
+
+####  坚定的团子党  
+##### 387#       发表于 2022-8-4 23:17
+
+v社是真尼玛懒狗，石油杯非ban即选的电棍、宙斯连个削弱补丁都不肯出，上次更新还是dpc开打前<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  健康猹  
+##### 388#       发表于 2022-8-4 23:18
+
+油面在看rng
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  百世诸侯  
+##### 389#       发表于 2022-8-4 23:19
+
+在斗鱼不看OB的品味都很低
+
+*****
+
+####  反方向的波  
+##### 390#       发表于 2022-8-4 23:19
+
+大锤小y，被ngm暴打历历在目
+
+
+
+*****
+
+####  12481632  
+##### 391#       发表于 2022-8-4 23:20
+
+就，就小y
+
+*****
+
+####  雅朵莉雀  
+##### 392#       发表于 2022-8-4 23:20
+
+张成俊看到几点，想看张成俊解说
+
+*****
+
+####  北条早苗  
+##### 393#       发表于 2022-8-4 23:20
+
+超哥学会玩宙斯了？
+
+*****
+
+####  百世诸侯  
+##### 394#       发表于 2022-8-4 23:20
+
+看到卡卡拿小Y感觉这把就走远了
+
