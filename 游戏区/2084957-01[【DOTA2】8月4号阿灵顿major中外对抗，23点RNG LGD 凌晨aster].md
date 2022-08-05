@@ -9801,3 +9801,107 @@ S1贴图有问题我发贴吧了
 
 用脚趾想了一下屠夫不是超哥的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1151#       发表于 2022-8-5 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945576&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 22:28</a>
+
+要不开个麦开黑，我用ga?
+
+—— 来自 S1Fun</blockquote>
+拉你了
+
+*****
+
+####  我爱撩菜  
+##### 1152#       发表于 2022-8-5 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NTS的中单冰龙
+
+*****
+
+####  ninini212  
+##### 1153#       发表于 2022-8-5 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">中单冰龙！
+
+*****
+
+####  弈秋  
+##### 1154#       发表于 2022-8-5 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活来了
+
+*****
+
+####  京吹病人  
+##### 1155#       发表于 2022-8-5 23:15
+
+rng这傻逼阵容 
+
+*****
+
+####  反方向的波  
+##### 1156#       发表于 2022-8-5 23:15
+
+中单冰龙这也算活吗，曾焦阳油面早就打过了
+
+*****
+
+####  逃离二次元  
+##### 1157#       发表于 2022-8-5 23:15
+
+rng点一手毒.龙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1158#       发表于 2022-8-5 23:16
+
+隔壁中单先知大哥屠夫
+
+*****
+
+####  ArowRocher  
+##### 1159#       发表于 2022-8-5 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946072&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 23:15</a>
+中单冰龙这也算活吗，曾焦阳油面早就打过了</blockquote>
+那局xg不是被宰了
+
+*****
+
+####  反方向的波  
+##### 1160#       发表于 2022-8-5 23:17
+
+ 本帖最后由 反方向的波 于 2022-8-5 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946080&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 23:16</a>
+那局xg不是被宰了</blockquote>
+我澄清一下，曾焦阳玩的那把也被宰了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最近胜率比较高的还是nine的
+
+*****
+
+####  弈秋  
+##### 1161#       发表于 2022-8-5 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两边都来活是吧
+
+*****
+
+####  nowaki  
+##### 1162#       发表于 2022-8-5 23:20
+
+ana怎么玩个屠夫
+
+*****
+
+####  蛭人  
+##### 1163#       发表于 2022-8-5 23:21
+
+**是JUGG的两倍补刀，这把冰龙赵云压力有点大啊。
+

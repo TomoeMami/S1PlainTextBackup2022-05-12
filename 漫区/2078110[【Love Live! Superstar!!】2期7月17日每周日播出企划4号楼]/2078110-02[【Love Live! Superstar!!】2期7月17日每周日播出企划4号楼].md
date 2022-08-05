@@ -5284,3 +5284,12 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得看MAPPA那边怎么搞  纯中文对话的话应该还是能捞一个后宫角的 吧
 
+
+
+*****
+
+####  cat1230  
+##### 2025#       发表于 2022-8-5 23:12
+
+不奢求能捞个角色，毕竟一直也没这方面的资源吧。
+

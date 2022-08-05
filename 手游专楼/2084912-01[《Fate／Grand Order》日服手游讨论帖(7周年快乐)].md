@@ -2300,3 +2300,12 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 在推主线中，2.6这剧情战是不是有点多啊，C呆单挑妖崔好难<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 239#       发表于 2022-8-5 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年推的印象中前面难度还好吧，不过没有灵脉石推主线是有点亏
+
