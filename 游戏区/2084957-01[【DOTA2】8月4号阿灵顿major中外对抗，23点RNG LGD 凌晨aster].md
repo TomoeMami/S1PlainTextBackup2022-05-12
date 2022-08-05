@@ -6934,3 +6934,67 @@ RNG赶紧给Aster加油打劲，拿个CN预选名额问题不大
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不会到时候真要和topson再次组队打预选吧
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 839#       发表于 2022-8-5 09:12
+
+首日
+<img src="https://p.sda1.dev/6/a3d0ee2ca65bf202432cab489dc7faa7/img-1659661898992c44287183cc090c6251a855c5c4314b6a69981750b6b64a7273566b5d691066a.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 840#       发表于 2022-8-5 09:14
+
+顶儿子已经在招手了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Litccc  
+##### 841#       发表于 2022-8-5 09:14
+
+<img src="https://p.sda1.dev/6/7522f803f2520984b616f0feb98e0955/CMP_20220805091419590.jpg" referrerpolicy="no-referrer">
+
+6分C！
+
+*****
+
+####  坚定的团子党  
+##### 842#       发表于 2022-8-5 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936095&amp;ptid=2084957" target="_blank">nomhrpls 发表于 2022-8-5 09:09</a>
+
+不会到时候真要和topson再次组队打预选吧</blockquote>
+今年ti海选已经打完了，想进ti只能找预选队换人
+
+*****
+
+####  石狮鬼  
+##### 843#       发表于 2022-8-5 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁仅存的作用就是给阿版拉拉人气，除此之外真是没啥意思
+
+*****
+
+####  Litccc  
+##### 844#       发表于 2022-8-5 09:19
+
+双向奔赴了属于是
+
+*****
+
+####  沈淮  
+##### 845#         楼主| 发表于 2022-8-5 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936136&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-5 09:14</a>
+
+6分C！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">功过64开
+
