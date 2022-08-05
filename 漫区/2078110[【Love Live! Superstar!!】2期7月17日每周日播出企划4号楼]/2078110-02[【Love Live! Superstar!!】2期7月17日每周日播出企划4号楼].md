@@ -4854,3 +4854,22 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 感觉至少可以确定一点就是二期从插入曲到结尾裂啦之歌曲风大变和田村下台应该是有关系的
 
+
+
+*****
+
+####  adw667  
+##### 1981#       发表于 2022-8-5 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939642&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-5 14:42</a>
+
+我觉得三集下来二期动画已经濒临爆炸了，也幸亏你拉光荣传统动画和现实切割明显，不然二期生真是无以自处 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">别的不说，樱小路的配音水平是真的土，情绪越高就越尬
+
+*****
+
+####  仟音一心  
+##### 1982#       发表于 2022-8-5 15:58
+
+<img src="http://wx4.sinaimg.cn/mw1024/4508e79bly8h4vwxfseu9j21kw16ogtd.jpg" referrerpolicy="no-referrer">
+

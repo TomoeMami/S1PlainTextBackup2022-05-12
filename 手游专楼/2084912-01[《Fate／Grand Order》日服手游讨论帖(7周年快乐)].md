@@ -2046,3 +2046,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 主要我没的从者太多，所以基本只在意有的从 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这又没爱又没强度的为什么要丢3石？
 
+
+
+*****
+
+####  yangun22  
+##### 213#       发表于 2022-8-5 15:52
+
+我觉得还是水阿比强化的概率高一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
