@@ -5244,3 +5244,17 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 感觉对Lovelive这个企划来说，这江山打下来也不容易，守起来更不容易，从时间节点上看，星可能是想接水的班，可惜在星现在这个情况，个人没感觉到有能成为爆款的潜质，本身已经处在红海市场了，也没感觉到星在推陈出新类似的角度有什么大亮点，现在就看星这企划还能整出啥乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 2021#       发表于 2022-8-5 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945615&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-5 22:31</a>
+
+要不，光熙的后宫选一个？</blockquote>
+到光熙那个部分往少了说也得两三年了吧，之后的事情都不清楚了，我觉得能争取到前期一个工具人角色都算可以了
+
+不如猜猜sma之后会不会把pay酱塞进去
+

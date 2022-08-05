@@ -9450,3 +9450,182 @@ eesama是炒饭  另外一个是冠绝136
 
 打打打打打打打打打打打打打打打打
 
+
+
+*****
+
+####  反方向的波  
+##### 1108#       发表于 2022-8-5 22:43
+
+别急，楼友在买号
+
+*****
+
+####  百世诸侯  
+##### 1109#       发表于 2022-8-5 22:44
+
+别急，楼友在垚topson代打
+
+*****
+
+####  nightmare902015  
+##### 1110#       发表于 2022-8-5 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么漏油也会赛前垃圾话，赛中缩壳啊，这下不得不感叹俊豪真的是称职的教练了。
+
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1111#       发表于 2022-8-5 22:44
+
+ 本帖最后由 王宇旻❤潘婕 于 2022-8-5 22:46 编辑 
+
+已经在垚人了，别急，还是叫得到排名哥的
+
+我将以高达形态出击！
+
+*****
+
+####  ArowRocher  
+##### 1112#       发表于 2022-8-5 22:44
+
+15分钟后这茬就过去了，拖后期可赢
+
+*****
+
+####  Litccc  
+##### 1113#       发表于 2022-8-5 22:44
+
+别急，后天表演赛！
+
+*****
+
+####  Nyaaarlathotep  
+##### 1114#       发表于 2022-8-5 22:46
+
+什么代理人战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看个比赛还能看到这么出额外好戏
+
+*****
+
+####  百世诸侯  
+##### 1115#       发表于 2022-8-5 22:46
+
+最后两边分别垚来了nothing to say和多伦多东京，提前上演TI11胜者组决赛
+
+*****
+
+####  战狼PTSD  
+##### 1116#       发表于 2022-8-5 22:46
+
+半月蝶莲竟是我自己
+
+*****
+
+####  聚散浮云  
+##### 1117#       发表于 2022-8-5 22:46
+
+叫啥排名哥啊，自己打呗
+
+solo输了游戏理解又不一定输是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1118#       发表于 2022-8-5 22:46
+
+垚不到就自己上了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 百世诸侯| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  反方向的波  
+##### 1119#       发表于 2022-8-5 22:47
+
+怎么还有撸狗偷偷混进来的
+
+*****
+
+####  tengshuo980  
+##### 1120#       发表于 2022-8-5 22:48
+
+还是你楼有活儿啊，仿佛回到了高中网吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightmare902015  
+##### 1121#       发表于 2022-8-5 22:48
+
+打solo天梯分数不重要，重要的是让对方认爹的心。试问在座的先锋统帅去和杰出打solo，谁赢还不一定呢。
+
+*****
+
+####  ArowRocher  
+##### 1122#       发表于 2022-8-5 22:48
+
+决斗之前请神上身是吧
+
+*****
+
+####  银翼的维罗西  
+##### 1123#       发表于 2022-8-5 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945799&amp;ptid=2084957" target="_blank">王宇旻❤潘婕 发表于 2022-8-5 22:46</a>
+
+垚不到就自己上了</blockquote>
+你垚个屁，输给冠绝很丢人吗，我还是传奇时跟一个人打认爹局，那个人说他大号三百多名，结果我还赢了，你自己上输了也正常，赢了血赚，真替你捉急
+
+*****
+
+####  聚散浮云  
+##### 1124#       发表于 2022-8-5 22:51
+
+别一会nts打bzm都开了漏油这桌还没开啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1125#       发表于 2022-8-5 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945804&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 22:47</a>
+
+怎么还有撸狗偷偷混进来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">严查是吧
+
+*****
+
+####  反方向的波  
+##### 1126#       发表于 2022-8-5 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945833&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-5 22:51</a>
+严查是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你也是？
+
+*****
+
+####  ArowRocher  
+##### 1127#       发表于 2022-8-5 22:52
+
+宝可梦DOTA，best DOTA
+
+*****
+
+####  反方向的波  
+##### 1128#       发表于 2022-8-5 22:52
+
+这个更像两边都是皮套人
+
