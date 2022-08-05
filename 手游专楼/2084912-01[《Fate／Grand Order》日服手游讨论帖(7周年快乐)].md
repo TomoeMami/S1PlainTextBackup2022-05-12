@@ -2133,3 +2133,25 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 果然每天都有自充。。
 
+
+
+*****
+
+####  exiaexa  
+##### 222#       发表于 2022-8-5 17:15
+
+ 本帖最后由 exiaexa 于 2022-8-5 17:18 编辑 
+
+又是泳装，我感觉阿比要赢了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卧槽是还是快乐的地特攻，是时候给阿比（泡泡）一个对人理特攻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 223#       发表于 2022-8-5 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外星人强化还是宝具本靠点谱 技能本我只想到了阿荣的迷之强化
+
