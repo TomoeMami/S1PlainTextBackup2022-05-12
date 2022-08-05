@@ -10571,3 +10571,355 @@ A畜也站出来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  逃离二次元  
+##### 1256#       发表于 2022-8-6 00:02
+
+妈呀集美疯狂了
+
+*****
+
+####  弈秋  
+##### 1257#       发表于 2022-8-6 00:02
+
+卧槽，开扣开扣
+
+*****
+
+####  kyl2001  
+##### 1258#       发表于 2022-8-6 00:02
+
+这先知真猛啊
+
+*****
+
+####  nowaki  
+##### 1259#       发表于 2022-8-6 00:02
+
+那么ti109成处长和ti89成ana谁强呢
+
+*****
+
+####  anyasora  
+##### 1260#       发表于 2022-8-6 00:02
+
+开始清算！
+
+
+
+*****
+
+####  吃货红毛  
+##### 1261#       发表于 2022-8-6 00:02
+
+我超受不了了 我也要开扣来自: iPhone客户端
+
+*****
+
+####  12481632  
+##### 1262#       发表于 2022-8-6 00:02
+
+又让处长装到了呀
+
+*****
+
+####  a1370303  
+##### 1263#       发表于 2022-8-6 00:02
+
+集美们，扣！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 1264#       发表于 2022-8-6 00:02
+
+补水补水
+
+*****
+
+####  外挂全家脚气  
+##### 1265#       发表于 2022-8-6 00:03
+
+我艹了这顶级对决啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 1266#       发表于 2022-8-6 00:03
+
+开扣！
+
+*****
+
+####  逃离二次元  
+##### 1267#       发表于 2022-8-6 00:03
+
+妈的又让a皇装到了
+
+*****
+
+####  Dreki  
+##### 1268#       发表于 2022-8-6 00:03
+
+这波确实能扣
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 1269#       发表于 2022-8-6 00:03
+
+抠啊
+
+*****
+
+####  迷途lite  
+##### 1270#       发表于 2022-8-6 00:03
+
+妈的，让处长装到了
+
+*****
+
+####  百世诸侯  
+##### 1271#       发表于 2022-8-6 00:03
+
+超哥，如果你当初玩原神，我们原友还能给你说几句话...现在，唉，自求多福吧
+
+*****
+
+####  蛭人  
+##### 1272#       发表于 2022-8-6 00:03
+
+这明鞭如此硬，第二个冠军还没拿到，已知ehome时代被老鸡关了，那么LGD时代被谁关了？
+
+*****
+
+####  无糖茶  
+##### 1273#       发表于 2022-8-6 00:03
+
+开扣！<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1274#       发表于 2022-8-6 00:03
+
+都是波高，水人属实不行
+
+*****
+
+####  walfeds  
+##### 1275#       发表于 2022-8-6 00:03
+
+又让处长装到了
+
+*****
+
+####  桐道悠  
+##### 1276#       发表于 2022-8-6 00:04
+
+这把确实完美发挥，没话说
+
+*****
+
+####  4591  
+##### 1277#       发表于 2022-8-6 00:04
+
+这真让AME装到了，这么小斩大斩人杀了还没死，还两次
+
+*****
+
+####  Cookiekira  
+##### 1278#       发表于 2022-8-6 00:04
+
+别急 舞台不够大 仙贝表演欲还没上来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 1279#       发表于 2022-8-6 00:04
+
+RNG这盘如何？值得回播吗
+
+*****
+
+####  nightmare902015  
+##### 1280#       发表于 2022-8-6 00:04
+
+一技能都是魔免，小狗属实不行。
+
+*****
+
+####  4591  
+##### 1281#       发表于 2022-8-6 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946500&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-6 00:04</a>
+RNG这盘如何？值得回播吗</blockquote>
+上帝的秀
+
+*****
+
+####  聚散浮云  
+##### 1282#       发表于 2022-8-6 00:04
+
+别急呀，过两天rng打lgd总有一边要显形的
+
+*****
+
+####  Cookiekira  
+##### 1283#       发表于 2022-8-6 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946500&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-6 00:04</a>
+RNG这盘如何？值得回播吗</blockquote>
+上帝绝中绝屠夫 不得不看<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 1284#       发表于 2022-8-6 00:05
+
+感觉rng要是摆正ana地位，胜者组还是很有希望的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  战狼PTSD  
+##### 1285#       发表于 2022-8-6 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946500&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-6 00:04</a>
+
+RNG这盘如何？值得回播吗</blockquote>
+上帝栗中爆栗，可以看
+
+*****
+
+####  zkc1991  
+##### 1286#       发表于 2022-8-6 00:05
+
+RNG我都以为要输了，结果上帝硬生生扛着队伍前进<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  格雷殿下  
+##### 1287#       发表于 2022-8-6 00:05
+
+不是刚被给机会，剑圣冰眼都做不出来了。牺牲先知前中期的发育，去抗刚被，差点因为剑圣这脑浆双刀输了😄
+
+*****
+
+####  我爱撩菜  
+##### 1288#       发表于 2022-8-6 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946503&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-6 00:04</a>
+
+上帝的秀</blockquote>
+那就得明天好好回播看一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两边的A姓大佬状态这么好吗
+
+*****
+
+####  zkc1991  
+##### 1289#       发表于 2022-8-6 00:06
+
+虽然LGD明显实力更强，但不得不说，RNG的比赛节目效果更好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  subject07  
+##### 1290#       发表于 2022-8-6 00:06
+
+等一个8月8日凌晨三点集美们清算小超人
+
+
+
+*****
+
+####  ArowRocher  
+##### 1291#       发表于 2022-8-6 00:06
+
+还是应该早点请ana回到领导核心
+
+*****
+
+####  蛭人  
+##### 1292#       发表于 2022-8-6 00:07
+
+讲道理，莫奈特这几把发挥也还可以，茶队这比赛状态真不错，虽然B组有点拉吧。
+
+*****
+
+####  nowaki  
+##### 1293#       发表于 2022-8-6 00:07
+
+rng肯定赢不了lgd 超哥要被猴爹打穿
+
+*****
+
+####  战狼PTSD  
+##### 1294#       发表于 2022-8-6 00:07
+
+A厨和A%第一把状态都挺好的，期待春晚
+
+超哥也知道调整了，虽然这把FUR还是飞的有点脑浆
+
+*****
+
+####  Nyaaarlathotep  
+##### 1295#       发表于 2022-8-6 00:08
+
+楼友solo怎么样了，有无战报
+
+*****
+
+####  聚散浮云  
+##### 1296#       发表于 2022-8-6 00:08
+
+rng最该调整的里斯吧，viper打不出线优，两次了
+
+*****
+
+####  逃离二次元  
+##### 1297#       发表于 2022-8-6 00:08
+
+rng能赢老干瘪？等潮水来袭好吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 1298#       发表于 2022-8-6 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946515&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-6 00:06</a>
+那就得明天好好回播看一下了
+
+两边的A姓大佬状态这么好吗</blockquote>
+前20分钟ana的屠夫只有一层，后面就只能卧槽了
+
+*****
+
+####  hcf220  
+##### 1299#       发表于 2022-8-6 00:10
+
+lgd这状态我都想招魂了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1300#       发表于 2022-8-6 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946535&amp;ptid=2084957" target="_blank">Nyaaarlathotep 发表于 2022-8-6 00:08</a>
+
+楼友solo怎么样了，有无战报</blockquote>
+[https://tieba.baidu.com/p/7961227571](https://tieba.baidu.com/p/7961227571)还在等
+
