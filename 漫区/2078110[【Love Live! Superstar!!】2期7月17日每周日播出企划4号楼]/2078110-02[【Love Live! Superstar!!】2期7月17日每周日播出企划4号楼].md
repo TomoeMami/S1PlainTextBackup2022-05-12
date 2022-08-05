@@ -5139,3 +5139,15 @@ non至少今年唱上不用太指望，现在出来这几首毫无技巧可言�
 
 不过话又说回来了，我是觉得五老星把你们的阈值都拉的太高了。。。
 
+
+
+*****
+
+####  player3960  
+##### 2010#       发表于 2022-8-5 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56944481&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-08-05 21:06:27</a>
+建议剧场版总集篇式重置一二期，其他团要问凭什么，就凭老子烂，咋的想比烂吗 ...</blockquote>这是要学马裤骡丝吗？剧情重编，歌曲全换，那起码得上两部剧场版，虽然我觉得也不是不行，不过明显没那个商业价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
