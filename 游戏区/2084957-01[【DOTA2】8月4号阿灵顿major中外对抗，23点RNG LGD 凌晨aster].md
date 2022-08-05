@@ -8757,3 +8757,29 @@ A：Puppey是一个天才，他说他早就计划好了（让我来），但我�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这解决争端的方式也太原教旨了，都别怂啊，来个vip喷位
 
+
+
+*****
+
+####  撒撒  
+##### 1023#       发表于 2022-8-5 20:25
+
+周末活动是10vs10。
+
+*****
+
+####  反方向的波  
+##### 1024#       发表于 2022-8-5 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943493&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-5 20:04</a>
+tm是怎么翻成这样的。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。。。。。。。
+完美app的小编四级能考到400分吗我很怀疑
+
+*****
+
+####  百世诸侯  
+##### 1025#       发表于 2022-8-5 20:29
+
+solo开打了留个观战位
+
