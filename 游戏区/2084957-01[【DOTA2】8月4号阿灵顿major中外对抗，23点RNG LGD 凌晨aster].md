@@ -7282,3 +7282,26 @@ RNG现在形势很不利啊，QC已经是最好打的几个了……
 为啥eg就一个加拿大籍的rtz也能登记成 ...</blockquote>
 不是赛区籍是常住吧
 
+
+
+*****
+
+####  沈淮  
+##### 875#         楼主| 发表于 2022-8-5 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936765&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-5 10:17</a>
+
+不是赛区籍是常住吧</blockquote>
+搜的四类
+
+*****
+
+####  北条早苗  
+##### 876#       发表于 2022-8-5 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936707&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 10:11</a>
+哎对了，我去年听漏油说一个队只能有两个不是本赛区籍的选手来着？
+
+为啥eg就一个加拿大籍的rtz也能登记成 ...</blockquote>
+按常住算，在eu区混的cis选手也算eu人
+

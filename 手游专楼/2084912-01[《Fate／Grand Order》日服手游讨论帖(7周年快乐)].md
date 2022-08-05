@@ -1865,3 +1865,18 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 把陈宫升了120，以后天天放花
 
+
+
+*****
+
+####  khxooo  
+##### 197#       发表于 2022-8-5 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936626&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-5 10:02</a>
+感觉好安静啊，也没有多少车菌鸽鸽的人，和前两部分差距真大
+
+这是都被第三部分的躺平式描写干蒙了吗
+
+[f:067 ...</blockquote>
+隔壁不是正在热闹吗，赶快去围观或者拱火啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
