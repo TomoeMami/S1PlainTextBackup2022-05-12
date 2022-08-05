@@ -10316,3 +10316,258 @@ ana这屠夫牛逼
 
 冰龙这波确实牛逼
 
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 1221#       发表于 2022-8-5 23:52
+
+感觉推死了，猴子不好处理这屠夫
+
+*****
+
+####  格雷殿下  
+##### 1222#       发表于 2022-8-5 23:52
+
+脑浆刚被真的脑浆啊
+
+*****
+
+####  5678给  
+##### 1223#       发表于 2022-8-5 23:52
+
+lgd这把团战还挺漂亮的，等一个上高送
+
+*****
+
+####  战狼PTSD  
+##### 1224#       发表于 2022-8-5 23:52
+
+两边冰龙都在脑浆
+
+*****
+
+####  a1370303  
+##### 1225#       发表于 2022-8-5 23:52
+
+solo有点搞笑，勾进虚空大里的发条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 1226#       发表于 2022-8-5 23:53
+
+lgd这把的确精彩，肉山团硬生生打回来，血腥
+
+*****
+
+####  Cookiekira  
+##### 1227#       发表于 2022-8-5 23:53
+
+上帝：不拿点绝活带不动这帮burden<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 1228#       发表于 2022-8-5 23:54
+
+意思上帝做菜两年是为了悟屠夫
+
+*****
+
+####  弈秋  
+##### 1229#       发表于 2022-8-5 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽 小偷
+
+*****
+
+####  ArowRocher  
+##### 1230#       发表于 2022-8-5 23:55
+
+才发现ceb的ID是misha
+
+
+
+*****
+
+####  a1370303  
+##### 1231#       发表于 2022-8-5 23:56
+
+肉山铁集美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  聚散浮云  
+##### 1232#       发表于 2022-8-5 23:56
+
+厨子对不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 1233#       发表于 2022-8-5 23:57
+
+鬼  危了 
+
+*****
+
+####  Nyaaarlathotep  
+##### 1234#       发表于 2022-8-5 23:57
+
+吊，刷出来结束游戏
+
+*****
+
+####  nowaki  
+##### 1235#       发表于 2022-8-5 23:57
+
+上帝宰猪了
+
+*****
+
+####  trackerList  
+##### 1236#       发表于 2022-8-5 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">上帝回来了
+
+*****
+
+####  施人诚  
+##### 1237#       发表于 2022-8-5 23:57
+
+kaka的状态太好了，确实配得上顶级4号位的名字
+
+*****
+
+####  撒撒  
+##### 1238#       发表于 2022-8-5 23:57
+
+查理斯好挡，ana的屠夫钩不出来。xnova的冰龙一直玩不好。
+
+*****
+
+####  一品堂官  
+##### 1239#       发表于 2022-8-5 23:57
+
+霉鳖：今晚你坐下吃饭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 1240#       发表于 2022-8-5 23:58
+
+上帝nb
+
+*****
+
+####  吃货红毛  
+##### 1241#       发表于 2022-8-5 23:58
+
+有一说一老干爹这个高真不太好上来自: iPhone客户端
+
+*****
+
+####  iriyano  
+##### 1242#       发表于 2022-8-5 23:58
+
+啊？居然比lgd这边结束早吗
+
+*****
+
+####  nowaki  
+##### 1243#       发表于 2022-8-5 23:58
+
+先知不瞎玩那两下结束的更早
+
+*****
+
+####  弈秋  
+##### 1244#       发表于 2022-8-5 23:59
+
+这下应该让ana独占沙发吃饭了
+
+*****
+
+####  12481632  
+##### 1245#       发表于 2022-8-5 23:59
+
+上帝感觉至少恢复到9成水平了
+
+*****
+
+####  战狼PTSD  
+##### 1246#       发表于 2022-8-5 23:59
+
+集美们开扣！
+
+*****
+
+####  聚散浮云  
+##### 1247#       发表于 2022-8-6 00:00
+
+A畜也站出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 1248#       发表于 2022-8-6 00:00
+
+波高
+
+*****
+
+####  吃货红毛  
+##### 1249#       发表于 2022-8-6 00:00
+
+我超萧瑟 波上og高地！来自: iPhone客户端
+
+*****
+
+####  弈秋  
+##### 1250#       发表于 2022-8-6 00:00
+
+冲门牙，开扣
+
+*****
+
+####  我爱撩菜  
+##### 1251#       发表于 2022-8-6 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的给萧瑟装到了
+
+*****
+
+####  蛭人  
+##### 1252#       发表于 2022-8-6 00:00
+
+明鞭这先知BKB阿托斯羊刀，真的想赢。
+
+*****
+
+####  nightmare902015  
+##### 1253#       发表于 2022-8-6 00:00
+
+这处长至少回复到ti10九成水平
+
+*****
+
+####  反方向的波  
+##### 1254#       发表于 2022-8-6 00:01
+
+霉鳖也恢复到ti6水平了
+
+*****
+
+####  a1370303  
+##### 1255#       发表于 2022-8-6 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">og被戏耍了呀
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
