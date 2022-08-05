@@ -7049,3 +7049,51 @@ RNG赶紧给Aster加油打劲，拿个CN预选名额问题不大
 昨天头两盘打完就睡了，爬了下楼发现茶全胜了，焦阳这是第N春了吗。 话说两盘1:1在A组什么概念啊 ...</blockquote>
 和vp1比1没什么，给qc送分比较➗，按照目前的小分是败者组
 
+
+
+*****
+
+####  百世诸侯  
+##### 852#       发表于 2022-8-5 09:31
+
+去年这时候的集美已经狂欢到展望TI连冠了，这会儿才清算下老油耻may鳖，感觉问题不大，看来集美今年也没底气
+
+*****
+
+####  遍体精淋af  
+##### 853#       发表于 2022-8-5 09:32
+
+ 本帖最后由 遍体精淋af 于 2022-8-5 09:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖茶也先别太乐观，硬骨头一个都没啃（不过仔细看了一下b组好像也没几个硬骨头，那估计胜者组还是稳的
+
+*****
+
+####  morwhipppo  
+##### 854#       发表于 2022-8-5 09:36
+
+eg不是北美第一吗，怎么能做到这么低能的
+
+*****
+
+####  lyuhiu  
+##### 855#       发表于 2022-8-5 09:36
+
+A组应该lgd，og稳，马体vprng三个看胜负关系就行，剩下4个铁送分，rng调整调整还是能苟到胜者组的
+
+*****
+
+####  IG.430  
+##### 856#       发表于 2022-8-5 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935199&amp;ptid=2084957" target="_blank">希望之花 发表于 2022-8-5 03:30</a>
+s4在和gorgc连麦的时候透露自己最喜欢的动画是龙与虎</blockquote>
+老比就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 857#       发表于 2022-8-5 09:41
+
+只能建议rng拉上帝一起看波高地切片调整下了
+
