@@ -11056,3 +11056,159 @@ ana这个屠夫，前20分挡住id还以为是陈彦川玩的，但是从下路�
 
 是小天shit的冰龙吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 1319#       发表于 2022-8-6 00:22
+
+哇666神了神了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1320#       发表于 2022-8-6 00:23
+
+这就是代言kfc的结果吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  mkii量产型  
+##### 1321#       发表于 2022-8-6 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞机小精灵，今夕是何年啊
+
+*****
+
+####  莉拉厨  
+##### 1322#       发表于 2022-8-6 00:24
+
+这无解大小小像纸一样啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 1323#       发表于 2022-8-6 00:25
+
+我操这dm拉墙
+
+*****
+
+####  京吹病人  
+##### 1324#       发表于 2022-8-6 00:25
+
+毛子祖传ds
+
+*****
+
+####  nowaki  
+##### 1325#       发表于 2022-8-6 00:25
+
+厨子服不服 老北京宙斯 查猪谜团 卡卡拉比克 压力拉满！
+
+*****
+
+####  TIZI  
+##### 1326#       发表于 2022-8-6 00:25
+
+团战魔术师卧槽
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  河水  
+##### 1327#       发表于 2022-8-6 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946573&amp;ptid=2084957" target="_blank">京吹病人 发表于 2022-8-6 00:13</a>
+ana这个屠夫，前20分挡住id还以为是陈彦川玩的，但是从下路河道钩puck那波开始就有点某改了 ...</blockquote>
+别乱说，虽然都是厨子，川菜的风味不一样
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 1328#       发表于 2022-8-6 00:27
+
+这是何意啊，查理斯会玩谜团吗。
+
+*****
+
+####  nowaki  
+##### 1329#       发表于 2022-8-6 00:27
+
+rng这脑浆bp真的不配赢
+
+*****
+
+####  反方向的波  
+##### 1330#       发表于 2022-8-6 00:27
+
+厨子只是小组赛没出bkb竟被队内霸凌至此
+
+*****
+
+####  蛭人  
+##### 1331#       发表于 2022-8-6 00:28
+
+666你真是整活的神！
+
+*****
+
+####  joker9527  
+##### 1332#       发表于 2022-8-6 00:28
+
+A畜出装备的水平永远也赶不上ana，双刀冰眼公式化出装，但无奈对面牛头光法**火猫钢背 就是剑圣上去无敌斩一键暴走的阵容，只要不把钱扔水里 随便出点装备都能打赢了，根本看不出水平，在下几百把老剑圣了，看到og这种阵容基本就是闭着眼睛打的
+
+*****
+
+####  雅朵莉雀  
+##### 1333#       发表于 2022-8-6 00:28
+
+查理斯昨天打QC第二盘谜团打得相当好
+
+线上直接把苏哥儿打穿了
+
+*****
+
+####  walfeds  
+##### 1334#       发表于 2022-8-6 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小偷分奴gpk
+
+*****
+
+####  外挂全家脚气  
+##### 1335#       发表于 2022-8-6 00:29
+
+VP跟TALON大战71分钟，GPK最后偷家成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1336#       发表于 2022-8-6 00:30
+
+真恶心啊VP和talon这打的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  highLH  
+##### 1337#       发表于 2022-8-6 00:30
+
+放空大脑从50多分钟开始看talon跟vp这场，有很多奇妙的收获
+
+*****
+
+####  逃离二次元  
+##### 1338#       发表于 2022-8-6 00:30
+
+vp太丑陋了我服了，666代言毒kfc是吧
+
