@@ -2275,3 +2275,19 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如改成宝具变色而且是不用其他技能就不会再变的那种 不然还是没屁用 毕竟3星术的指令卡打伤害纯粹是想多了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 236#       发表于 2022-8-5 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己种的青苹果，含着泪终于干完了，现在6EQP完全不想动了，剩下几天随缘打打种火把摩根拉到105级算了
+
+*****
+
+####  qixinno2  
+##### 237#       发表于 2022-8-5 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好强啊 我只要一上2E就完全不想刷了 
+

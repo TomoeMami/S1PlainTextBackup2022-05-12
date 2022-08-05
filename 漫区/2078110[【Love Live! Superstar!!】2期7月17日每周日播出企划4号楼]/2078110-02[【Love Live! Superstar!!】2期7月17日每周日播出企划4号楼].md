@@ -5104,3 +5104,12 @@ vn的solo演出都是3d模型，能是sp那种扣的就给几个分镜的手绘�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋：翻盘机会都是你们的
 
+
+
+*****
+
+####  ViyViy  
+##### 2007#       发表于 2022-8-5 21:06
+
+建议剧场版总集篇式重置一二期，其他团要问凭什么，就凭老子烂，咋的想比烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
