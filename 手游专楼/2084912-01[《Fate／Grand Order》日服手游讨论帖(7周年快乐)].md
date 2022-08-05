@@ -2087,3 +2087,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 萌新啥都有好强阿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你眼睛有问题？ 特意找茬别怪我开喷了
 
+
+
+*****
+
+####  angelooo  
+##### 217#       发表于 2022-8-5 16:38
+
+这次的规律感觉挺明显，多半是小王子吧……反正外星人都挺需要加强的
+
