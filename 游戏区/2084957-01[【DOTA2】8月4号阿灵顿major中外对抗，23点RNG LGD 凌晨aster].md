@@ -7730,3 +7730,22 @@ d畜不是铁血傻逼集美吗<img src="https://static.saraba1st.com/image/smil
 又是这个b</blockquote>
 电锤哥，我吐了
 
+
+
+*****
+
+####  4591  
+##### 924#       发表于 2022-8-5 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939904&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 15:10</a>
+
+不可拆分那就要加卷轴了啊，标枪或者锤子得降价了</blockquote>
+标枪要是降价,我都不敢想.
+
+*****
+
+####  王宇旻❤潘婕  
+##### 925#       发表于 2022-8-5 15:29
+
+标枪降价好啊，人手金箍棒捅TM的
+

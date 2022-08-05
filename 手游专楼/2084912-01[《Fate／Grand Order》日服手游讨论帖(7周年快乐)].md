@@ -2008,3 +2008,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 隔壁国服除了车妖兰就是黑奥伯龙的自称，无聊死了23333
 
+
+
+*****
+
+####  alucardcz  
+##### 210#       发表于 2022-8-5 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939807&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-5 15:01</a>
+
+可恶，怎么强化的每一个从者你都有啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有
+
