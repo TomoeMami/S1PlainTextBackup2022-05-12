@@ -12177,3 +12177,116 @@ rng能正好卡着进ti的话ghost嘴要笑裂了
 鳖星第二把怎么输的，有没有茶叶前十说一下</blockquote>
 出装太贪，20分钟一把BKB没有，被精灵飞机VS推平了
 
+
+
+*****
+
+####  莉拉厨  
+##### 1469#       发表于 2022-8-6 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947068&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-6 01:08</a>
+
+鳖星第二把怎么输的，有没有茶叶前十说一下</blockquote>
+前20分钟局势一片大好，20分钟的时候Navi5人开雾进三角区抓死xxs，杜鹏眼看对面五人要走，赶紧用肉体去留人，被打掉带盾两条命。之后连打两拨脑浆团战，茶队3核一个bkb都没有被干烂，25分钟直接破路，到点了
+
+*****
+
+####  尸体鲨  
+##### 1470#       发表于 2022-8-6 01:13
+
+RNG按杰出的想法就是沟通太差，ana基本在打路人局，但是我寻思xnova不是会英文吗
+
+
+
+*****
+
+####  笑歌自若  
+##### 1471#       发表于 2022-8-6 01:15
+
+茶队典中典了，134一直刷钱，打团永远人不齐
+
+*****
+
+####  战狼PTSD  
+##### 1472#       发表于 2022-8-6 01:17
+
+<img src="https://img.nga.178.com/attachments/mon_202208/06/ehQ2q-bbslK27T3cSqo-t3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 1473#       发表于 2022-8-6 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947092&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-6 01:13</a>
+RNG按杰出的想法就是沟通太差，ana基本在打路人局，但是我寻思xnova不是会英文吗 ...</blockquote>
+歪嘴龙王基本是个哑巴。。。
+
+*****
+
+####  walfeds  
+##### 1474#       发表于 2022-8-6 01:18
+
+og这bp和状态问题都挺大的，先把dota的理念搞清楚吧，不行就去调整
+
+rng也一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 1475#       发表于 2022-8-6 01:19
+
+屎黄色论坛的弱智含量应该完爆S1贴吧max吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 1476#       发表于 2022-8-6 01:19
+
+沟通有问题不是一方的问题，你小天使能跟金牌育婴师比吗
+
+*****
+
+####  莉拉厨  
+##### 1477#       发表于 2022-8-6 01:19
+
+666暴走 狂宰啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 1478#       发表于 2022-8-6 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947107&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-6 01:18</a>
+
+og这bp和状态问题都挺大的，先把dota的理念搞清楚吧，不行就去调整
+
+rng也一样 ...</blockquote>
+拿了上个major，该吃的苦头没吃到。该好好偿还一下了。
+
+*****
+
+####  asd235614  
+##### 1479#       发表于 2022-8-6 01:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以最后楼友solo约上了么
+
+*****
+
+####  ArowRocher  
+##### 1480#       发表于 2022-8-6 01:20
+
+我有时候真的觉得另一个太监论坛刀版是水厂请的十个牛伯伯在耍猴
+
+*****
+
+####  ArowRocher  
+##### 1481#       发表于 2022-8-6 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947120&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-6 01:20</a>
+拿了上个major，该吃的苦头没吃到。该好好偿还一下了。</blockquote>
+这才小组赛
+
