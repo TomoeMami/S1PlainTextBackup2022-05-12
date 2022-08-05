@@ -4890,3 +4890,15 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 就动画来说我只想说一句，京极和花田能给Nagi叩个头吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">恋恋都快要查无此人，二期开播前都还在说不要贷款吃屎猜测谁会被边缘化，就前三集的表现除了香樱，其他人都得站边
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1985#       发表于 2022-8-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940301&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-5 15:50</a>
+
+别的不说，樱小路的配音水平是真的土，情绪越高就越尬</blockquote>
+之前我也在楼里说过感想，樱小路从角色到配音透着一股子不招人待见。相比之下青山姐棒读归棒读，至少不会产生让人脚趾抠地的效果……
+

@@ -2075,3 +2075,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 不然还是改阿比吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 216#       发表于 2022-8-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940552&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-5 16:15</a>
+
+萌新啥都有好强阿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你眼睛有问题？ 特意找茬别怪我开喷了
+
