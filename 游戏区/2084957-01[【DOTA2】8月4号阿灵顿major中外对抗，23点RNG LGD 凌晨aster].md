@@ -8663,3 +8663,38 @@ Q：是Zayac劝你留下来的还是Puppey的决定？
 
 A：Puppey是一个天才，他说他早就计划好了（让我来），但我现在不是很信，因为我之前一直认为Puppey会选择Hare（欧服天梯40）。但Team Secret在DPC联赛上没有拿到前四无缘Major，这时候利雅得大师赛开始了，Zayac给我打电话说：“来不来？”那我当然来呀。
 
+
+
+*****
+
+####  seki_m  
+##### 1014#       发表于 2022-8-5 19:57
+
+拳击手这个b是给你啥和鲁迅下了蛊吧
+
+*****
+
+####  星野航  
+##### 1015#       发表于 2022-8-5 19:59
+
+昨天那明显看就是ana中期熟悉的节奏找不到了
+
+按以往他这个阶段的炼金，早就是og五个人抱着团到对面高地下的时间了
+
+昨天愣是拖了俩A杖的时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1016#       发表于 2022-8-5 19:59
+
+[https://escorenews.com/en/dota-2 ... et-and-kick-from-og](https://escorenews.com/en/dota-2/article/36613-i-expected-puppey-would-be-telling-everyone-what-to-do-but-i-felt-absolute-freedom-in-game-resolut1on-on-joining-secret-and-kick-from-og) <blockquote>— Ceb had a lot of praise for you on Riyadh Masters 2022. Do you like getting compliments from ex-teammates?
+
+— That's funny, because when I was in OG, he didn't say stuff like that. He was always saying how cool of a player ana was, how he has a unique view on things. And I thought: "Hey Ceb, I'm here, praise me at least once. If he is so cool, why did you even asked me to join?" It was a bit disturbing, of course... But at least he praises me now! (laughs)</blockquote>
+怎么翻译还加料的，味都变了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快哄我.jpg
+
+不过还是前一段有意思： <blockquote>On OG
+
+— The situation with OG gnawed hard on me for a while, because they kicked me, N0tail changed his role to 5, and they won two TIs in a row. Back then I thought that I could be there with them. But in reality, the misunderstanding between Fly and N0tail was already there at that moment. Maybe they just didn't want to talk about it face to face, and I ended up as the one to blame. I already knew that they are great players, just thought that N0tail isn't playing his best on carry. I think, these days he'd agree with me. But as a 5 he really gave it all. Now I've let that story go.</blockquote>
+Back then I thought that I could be there with them，举盾本应有我一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

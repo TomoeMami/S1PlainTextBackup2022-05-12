@@ -2219,3 +2219,15 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 小王子也不弱啊真有必要强化吗，而且宝具和公主效果一样甚至特攻面还更有用些，这要是给宝具本是要 ...</blockquote>
 你为什么会有强化从者是看强弱的幻觉（
 
+
+
+*****
+
+####  zore  
+##### 230#       发表于 2022-8-5 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942370&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-8-5 18:44</a>
+
+小王子也不弱啊真有必要强化吗，而且宝具和公主效果一样甚至特攻面还更有用些，这要是给宝具本是要 ...</blockquote>
+某三色魔放酋长:<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
