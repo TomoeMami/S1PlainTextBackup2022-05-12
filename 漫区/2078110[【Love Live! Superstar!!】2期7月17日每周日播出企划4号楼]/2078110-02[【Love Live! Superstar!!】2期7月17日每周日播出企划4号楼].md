@@ -4955,3 +4955,28 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 现场在惊艳能惊艳到哪去……要是能惊艳众人的话海选她就不会输给小百合和nagi了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1992#       发表于 2022-8-5 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反向上分也是节目效果啊  反正也没啥好期待的  
+
+*****
+
+####  lj205  
+##### 1993#       发表于 2022-8-5 18:06
+
+久违的鱼叫声<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 1994#       发表于 2022-8-5 18:09
+
+看到隔壁讨论回了当初可可（鲤鱼）唱歌，我不懂音乐更不懂唱歌，有点好奇当初刚宣布声优和一单发售活动之前的鲤鱼算是那种唱的很拉的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+因为以我个人非常简单和浅显的理解，都是solo出道的人了，被选上再怎么也不至于垫底或者看不得吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

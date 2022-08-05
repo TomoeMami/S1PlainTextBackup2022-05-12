@@ -8302,3 +8302,12 @@ Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是
 
 而且注意看，他是这群人里面唯一一个拿叉子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 978#       发表于 2022-8-5 18:04
+
+出bkb就是为了不背锅，对面冰龙是不会因为你有bkb就自动暴毙的。是观众没理由怪1号位了。
+
