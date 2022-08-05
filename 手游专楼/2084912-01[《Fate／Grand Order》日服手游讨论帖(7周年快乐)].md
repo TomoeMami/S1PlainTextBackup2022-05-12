@@ -2055,3 +2055,23 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 我觉得还是水阿比强化的概率高一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 214#       发表于 2022-8-5 16:15
+
+<blockquote>alucardcz 发表于 2022-8-5 15:29
+？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有</blockquote>
+萌新啥都有好强阿
+
+*****
+
+####  exiaexa  
+##### 215#       发表于 2022-8-5 16:21
+
+只能说，小王子改成宝具后群30我就去抽一个
+不然还是改阿比吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

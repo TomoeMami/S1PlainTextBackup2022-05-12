@@ -7904,3 +7904,49 @@ ANA不出BKB给队友养A是最快提升队伍战斗力的思路,结果RNG4个�
 
 要不卡神先带着上帝一起去给下面八磕一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  4591  
+##### 940#       发表于 2022-8-5 16:13
+
+可以看看蒙睿,今天晚上可能有鸡皇
+
+*****
+
+####  反方向的波  
+##### 941#       发表于 2022-8-5 16:13
+
+<img src="https://p.sda1.dev/6/0ea6d4529c4d70e263e8c4ccae29b633/Screenshot_2022-08-05-16-11-58-68_6e80cb6a5d3ffc593e03160aeb7095f8.jpg" referrerpolicy="no-referrer">
+杨沈怡盘中这个虚灵莲花真的把我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 942#       发表于 2022-8-5 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940461&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 16:07</a>
+
+要不卡神先带着上帝一起去给下面八磕一个</blockquote>
+不太懂其中瓜葛 可否指点一二
+
+*****
+
+####  izayoi39  
+##### 943#       发表于 2022-8-5 16:18
+
+那把看过比赛都知道那场bkb真没那么关键，除了最后2波炼金强势期过了的团战，前面就没有一波炼金因为大骨灰被搞死的团战
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TheCyrodiil  
+##### 944#       发表于 2022-8-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940461&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 16:07</a>
+
+要不卡神先带着上帝一起去给下面八磕一个</blockquote>
+讲道理上帝为啥要去磕，打完了回去找topson找个预选队杀就完事儿了啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
