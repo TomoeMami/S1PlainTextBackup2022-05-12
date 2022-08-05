@@ -5293,3 +5293,14 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 不奢求能捞个角色，毕竟一直也没这方面的资源吧。
 
+
+
+*****
+
+####  竹筷  
+##### 2026#       发表于 2022-8-5 23:26
+
+配个万圣节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
