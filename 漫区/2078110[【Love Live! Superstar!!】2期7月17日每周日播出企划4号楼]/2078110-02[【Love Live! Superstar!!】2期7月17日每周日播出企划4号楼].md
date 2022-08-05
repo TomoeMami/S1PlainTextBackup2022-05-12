@@ -4708,3 +4708,18 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 1968#       发表于 2022-8-5 08:37
+
+ 本帖最后由 aoaoaodedede 于 2022-8-5 08:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935159&amp;ptid=2078110" target="_blank">stygian 发表于 2022-8-5 03:03</a>
+
+提一嘴，第三话op staff表里依然没有音乐总监的credit，我很好奇南万内部到底什么勾巴情况
+
+—— 来自 Xiao ...</blockquote>
+这个“音乐总监”日语叫啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
