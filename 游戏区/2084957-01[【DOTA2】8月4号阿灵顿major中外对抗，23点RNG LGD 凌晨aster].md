@@ -7097,3 +7097,37 @@ s4在和gorgc连麦的时候透露自己最喜欢的动画是龙与虎</blockquo
 
 只能建议rng拉上帝一起看波高地切片调整下了
 
+
+
+*****
+
+####  Litccc  
+##### 858#       发表于 2022-8-5 09:46
+
+misha连大马的签证都过不了，esl还是没他，感觉这哥们离被踢不远了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 859#       发表于 2022-8-5 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936446&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-5 09:46</a>
+misha连大马的签证都过不了，esl还是没他，感觉这哥们离被踢不远了</blockquote>
+造业啊，为什么被拒签到这种程度
+
+*****
+
+####  沈淮  
+##### 860#         楼主| 发表于 2022-8-5 09:50
+
+马来西亚签证都能不过的 难定
+
+*****
+
+####  夏溪澪mio  
+##### 861#       发表于 2022-8-5 09:50
+
+昨晚有精彩比赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下午上班补一下
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
