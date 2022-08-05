@@ -769,3 +769,14 @@ ANA真拉仇恨啊，越来越有TI味道了<img src="https://static.saraba1st.c
 
 boboka可以啊一直和水人在野区玩
 
+
+
+*****
+
+####  walfeds  
+##### 1599#       发表于 2022-8-6 07:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">起床一看便是没想到eg又赢了雪碧第二把，大西北乱成一锅粥
+
+爬完楼甚至不知道rng第二把发生了什么，回头补下
+

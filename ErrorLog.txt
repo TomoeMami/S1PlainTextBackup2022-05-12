@@ -1,5 +1,3 @@
 
 'NoneType' object has no attribute 'group'
 !!error:id=2084937
-Destination path './Archived/游戏区/2083695-01[传闻：索尼有意收购Square Enix本部].md' already exists
-!!error:id=2083695
