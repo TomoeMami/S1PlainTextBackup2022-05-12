@@ -2309,3 +2309,35 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年推的印象中前面难度还好吧，不过没有灵脉石推主线是有点亏
 
+
+
+*****
+
+####  angelooo  
+##### 240#       发表于 2022-8-6 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945016&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-5 21:40</a>
+
+在推主线中，2.6这剧情战是不是有点多啊，C呆单挑妖崔好难</blockquote>
+妖崔这里建议用一条令咒给C呆回血，诅咒太伤了
+
+然后我在想没有灵脉石你角神怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FrozenA  
+##### 241#       发表于 2022-8-6 03:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来单挑不是c呆无脑宝蓝蓝就差不多过了的吗
+
+看来打的时候对面妖崔随机行动roll的好
+
+*****
+
+####  高木なつめ  
+##### 242#       发表于 2022-8-6 04:45
+
+刷到11EQP但是技能都舍不得点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

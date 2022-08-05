@@ -1686,3 +1686,16 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 你看看高桥你搞得这结局把孩子都逼成什么样了
 尼采说上帝已死，我看这回是尼采已死了
 
+
+
+*****
+
+####  agunii  
+##### 150#       发表于 2022-8-6 03:07
+
+设定的坑太多了，感觉根本填不过来，也填不了
+就连这点也和国家队一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+编剧是完全没想好怎么处理xb12的主角吧，索性直接提都不提，不看好dlc出前传能好好讲完初代衔尾蛇，因为xb2里伊拉的剧情发展在本篇里已经讲的差不多了，而xb3则对初代衔尾蛇（疑似修尔克雷克斯）几乎没提
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
