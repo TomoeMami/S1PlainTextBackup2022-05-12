@@ -8140,3 +8140,62 @@ Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是
 
 队内地位一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 963#       发表于 2022-8-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941149&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 17:00</a>
+
+为了避免被当成洗地的我都说了那么多前提了
+
+是大家都在讨论出不出bkb我就给了自己的观点</blockquote>
+因为你得出的结论一看就很云玩家思路知道不，如果看不懂就自己去调整，多打天梯
+
+*****
+
+####  王宇旻❤潘婕  
+##### 964#       发表于 2022-8-5 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941164&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 17:01</a>
+
+队内地位一目了然</blockquote>
+迷茫的厨子，边吃饭边思考怎么带这几个burden进Ti
+
+*****
+
+####  百世诸侯  
+##### 965#       发表于 2022-8-5 17:03
+
+快进到我最爱的下班回家晒天梯分环节
+
+*****
+
+####  Opisthoteuthis  
+##### 966#       发表于 2022-8-5 17:08
+
+卡神居然能坐在超哥旁边吃饭，李斯都不配上座<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 967#       发表于 2022-8-5 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个说法，安皇早出BKB现在就可以站在道德的制高点尽情地喷23畜生，不会留给他们一丝一毫洗地的空间
+
+*****
+
+####  聚散浮云  
+##### 968#       发表于 2022-8-5 17:10
+
+厨子想的应该是这所谓41战队队友这么菜就算了，这中餐点得又是什么cylx，远不如老子自己做的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 969#       发表于 2022-8-5 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我怎么看不到图
+

@@ -2108,3 +2108,28 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 你眼睛？重新再看一看？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眼睛只是装饰 萌新是不会懂得
 
+
+
+*****
+
+####  alucardcz  
+##### 219#       发表于 2022-8-5 17:02
+
+ 本帖最后由 alucardcz 于 2022-8-5 17:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">紫式部 俵藤太 还真有个10自充
+
+*****
+
+####  qixinno2  
+##### 220#       发表于 2022-8-5 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没有紫式部 又少了2石 明天外星人强化个我有的啊
+
+*****
+
+####  朝香果林  
+##### 221#         楼主| 发表于 2022-8-5 17:07
+
+果然每天都有自充。。
+
