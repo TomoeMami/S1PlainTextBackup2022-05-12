@@ -7369,3 +7369,28 @@ a圣先把自己的队伍搞出来吧<img src="https://static.saraba1st.com/imag
 
 回顾了一下昨天的比赛，这个RNG我觉得其他啥都不缺，就缺一个小8。个人实力个个都是顶尖，配合运营真是一比吊糟，不晓得俊豪干啥的
 
+
+
+*****
+
+####  TIZI  
+##### 885#       发表于 2022-8-5 11:41
+
+新砖楼怎么不能加红了，找了半天
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沈淮  
+##### 886#         楼主| 发表于 2022-8-5 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56937906&amp;ptid=2084957" target="_blank">TIZI 发表于 2022-8-5 11:41</a>
+
+新砖楼怎么不能加红了，找了半天
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+加红是什么。收藏吗？
+
+[https://www.saraba1st.com/2b/hom ... p;formhash=5cadbb96](https://www.saraba1st.com/2b/home.php?mod=spacecp&amp;ac=favorite&amp;type=thread&amp;id=2084957&amp;formhash=5cadbb96)
+
