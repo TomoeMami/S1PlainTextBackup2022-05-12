@@ -12325,3 +12325,45 @@ VP这二塔没破就在对面高地乱宰了<img src="https://static.saraba1st.c
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  名字不乱取  
+##### 1486#       发表于 2022-8-6 01:33
+
+eg直接走远了
+
+*****
+
+####  12481632  
+##### 1487#       发表于 2022-8-6 01:34
+
+eg这几个<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1488#       发表于 2022-8-6 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947120&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-6 01:20</a>
+
+拿了上个major，该吃的苦头没吃到。该好好偿还一下了。</blockquote>
+我一直说毒打挨少了，敲不动小朋友头铁啊
+
+半年就混到dpc第一+major第一，压力没给足啊
+
+*****
+
+####  重名的mufasa  
+##### 1489#       发表于 2022-8-6 01:34
+
+哇,eg投了吧
+
+*****
+
+####  walfeds  
+##### 1490#       发表于 2022-8-6 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿床出门一血还敲hf是吧
+
