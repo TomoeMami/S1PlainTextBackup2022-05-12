@@ -7235,3 +7235,50 @@ eg不是北美第一吗，怎么能做到这么低能的</blockquote>
 
 为啥eg就一个加拿大籍的rtz也能登记成功？
 
+
+
+*****
+
+####  Cantha  
+##### 870#       发表于 2022-8-5 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 要是上帝和topson组队游进TI，拿个三冠，那画面
+
+
+
+*****
+
+####  dclara1  
+##### 871#       发表于 2022-8-5 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936338&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-5 09:36</a>
+
+eg不是北美第一吗，怎么能做到这么低能的</blockquote>
+鳖尬黑，北美第三跟西恩第一打了个1:1<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhliiiii  
+##### 872#       发表于 2022-8-5 10:16
+
+ANA服了没？
+
+*****
+
+####  nxmonitor  
+##### 873#       发表于 2022-8-5 10:17
+
+RNG现在形势很不利啊，QC已经是最好打的几个了……
+
+*****
+
+####  walfeds  
+##### 874#       发表于 2022-8-5 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936707&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 10:11</a>
+
+哎对了，我去年听漏油说一个队只能有两个不是本赛区籍的选手来着？
+
+为啥eg就一个加拿大籍的rtz也能登记成 ...</blockquote>
+不是赛区籍是常住吧
+
