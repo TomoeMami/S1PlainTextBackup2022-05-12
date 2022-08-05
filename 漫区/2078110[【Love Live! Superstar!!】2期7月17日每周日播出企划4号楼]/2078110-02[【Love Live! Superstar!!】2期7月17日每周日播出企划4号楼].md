@@ -4937,3 +4937,12 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱歌啥的还是等live吧 就现在OP里我都分不清红蓝毛声音 除非他们愿意给其他角色SOLO
 
+
+
+*****
+
+####  寒风夜  
+##### 1990#       发表于 2022-8-5 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">毙了吧，别3了 
+
