@@ -26,27 +26,10 @@ def parse_html(html,threadict):
                     lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                     replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
                     if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
-                        threadict[threadid] = replytime
-    # replylist = soup.find_all(name='div', attrs={"class":"pcb"})
-    # # next_page = soup.find('a', attrs={'class': 'nxt'})
-    # # if next_page:
-    # #     return soupname, souptime, next_page['herf']
-    # title = soup.find_all(name='span',attrs={"id":"thread_subject"})
-    # total_page = int((re.findall(r'<span title="共 (\d+) 页">', str(soup)) + [1])[0])
-    # titles = re.sub(r'<.+?>','',str(title))
-    # titles = re.sub(r'[\]\[]','',titles)
-    # titles = re.sub(r'\|','｜',titles)
-    # titles = re.sub(r'/','／',titles)
-    # titles = re.sub(r'\\','＼',titles)
-    # titles = re.sub(r':','：',titles)
-    # titles = re.sub(r'\*','＊',titles)
-    # titles = re.sub(r'\?','？',titles)
-    # titles = re.sub(r'"','＂',titles)
-    # titles = re.sub(r'<','＜',titles)
-    # titles = re.sub(r'>','＞',titles)
-    # titles = re.sub(r'\.\.\.','…',titles)
-    # titles = '['+titles+']'
-    # return namelist,replylist,total_page,titles
+                        threadict[threadid] = {}
+                        threadict[threadid]['replytime'] = replytime
+                        threadict[threadid]['level'] = level
+
 if __name__ == '__main__':
     blacklist = [2056385]
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
@@ -81,14 +64,18 @@ if __name__ == '__main__':
         for l in threadict.keys():
             if (int(l) not in blacklist):
                 if l in ids:
-                    thdata[l]['active'] = True
+                    if thdata[l]['totalreply']//30 > 29:
+                        if thdata[l]['totalreply']//30 < threadict[l]['level']:
+                            thdata[l]['active'] = True
+                    else:
+                        thdata[l]['active'] = True
                 else:
                     if(int(l) > old_number):
                         thdata[l] = {}
                         thdata[l]['totalreply'] =0
                         thdata[l]['title'] = "待更新"
                         thdata[l]['newtitle'] = "待更新"
-                        thdata[l]['lastedit'] = int(threadict[l])
+                        thdata[l]['lastedit'] = int(threadict[l]['replytime'])
                         thdata[l]['category']= k
                         thdata[l]["active"] =  True
                         print('add:'+l)
@@ -98,7 +85,7 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > 29):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
