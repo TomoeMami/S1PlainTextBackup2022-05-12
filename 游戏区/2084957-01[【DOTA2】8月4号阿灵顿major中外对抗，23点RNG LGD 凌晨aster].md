@@ -9692,3 +9692,112 @@ solo输了游戏理解又不一定输是吧<img src="https://static.saraba1st.co
 在打了，刘畅复出后首秀竟是你楼</blockquote>
 111，哥真刘畅吗？
 
+
+
+*****
+
+####  为了mf注册  
+##### 1137#       发表于 2022-8-5 23:03
+
+jg直播间好哈人啊
+
+*****
+
+####  nightmare902015  
+##### 1138#       发表于 2022-8-5 23:04
+
+我超41yy这发言太吓人了我都不敢转到楼里，为什么lzk也会黑话<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡噜噜  
+##### 1139#       发表于 2022-8-5 23:04
+
+41yy：上俊豪制裁美国佬
+
+*****
+
+####  逃离二次元  
+##### 1140#       发表于 2022-8-5 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  聚散浮云  
+##### 1141#       发表于 2022-8-5 23:05
+
+卡猴不看比赛备战还搁这41yy呢
+
+*****
+
+####  反方向的波  
+##### 1142#       发表于 2022-8-5 23:07
+
+3场都想看啊
+
+*****
+
+####  walfeds  
+##### 1143#       发表于 2022-8-5 23:07
+
+你楼别享年2天半了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 1144#       发表于 2022-8-5 23:08
+
+就……就小强 服了
+
+*****
+
+####  京吹病人  
+##### 1145#       发表于 2022-8-5 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945974&amp;ptid=2084957" target="_blank">卡噜噜 发表于 2022-8-5 23:04</a>
+
+41yy：上俊豪制裁美国佬</blockquote>
+又开始犯病了？
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1146#       发表于 2022-8-5 23:08
+
+[https://tieba.baidu.com/p/7961227571](https://tieba.baidu.com/p/7961227571)
+
+别急，我先热下身，打排名哥准备一下不过分吧
+
+S1贴图有问题我发贴吧了
+
+*****
+
+####  逃离二次元  
+##### 1147#       发表于 2022-8-5 23:10
+
+想看timado大神表演，又想看干瘪和og打，又想看茶茶和navi碰碰<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 1148#       发表于 2022-8-5 23:10
+
+老北京这个版本是学不会帕克了吧。
+
+*****
+
+####  百世诸侯  
+##### 1149#       发表于 2022-8-5 23:10
+
+茶队和navi不是1点吗，怎么这会儿就开打了
+
+*****
+
+####  ArowRocher  
+##### 1150#       发表于 2022-8-5 23:11
+
+用脚趾想了一下屠夫不是超哥的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
