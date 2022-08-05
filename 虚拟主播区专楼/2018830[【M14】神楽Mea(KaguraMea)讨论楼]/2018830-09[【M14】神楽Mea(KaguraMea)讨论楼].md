@@ -2159,3 +2159,12 @@ NHOTBOT（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肉体厨又要文艺复兴？
 
+
+
+*****
+
+####  路人庚  
+##### 12241#       发表于 2022-8-5 11:21
+
+新曲主要是复读notbot太多次导致充满了学园偶像番中的杂鱼感
+

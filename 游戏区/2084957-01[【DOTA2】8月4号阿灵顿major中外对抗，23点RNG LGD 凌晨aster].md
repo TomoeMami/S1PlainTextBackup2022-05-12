@@ -7344,3 +7344,19 @@ a圣先把自己的队伍搞出来吧<img src="https://static.saraba1st.com/imag
 
 好呀好呀，a圣还在word建队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 882#       发表于 2022-8-5 11:25
+
+鳖星打雪碧要明天早上<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 883#         楼主| 发表于 2022-8-5 11:32
+
+我去你妈，虎牙app首页推荐还是a圣，恶心人是吧
+
