@@ -9326,3 +9326,127 @@ eesama是炒饭  另外一个是冠绝136
 
 突然想起，如果分高说了算，咸阳C++爱好者也算有话语权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nightmare902015  
+##### 1092#       发表于 2022-8-5 22:32
+
+感觉……我们还是看看远处的林肯法球吧。
+
+*****
+
+####  京吹病人  
+##### 1093#       发表于 2022-8-5 22:32
+
+排名哥这发言，令人感叹
+[https://bbs.saraba1st.com/2b/for ... amp;authorid=540517](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022320&amp;page=345&amp;authorid=540517)
+
+*****
+
+####  蛭人  
+##### 1094#       发表于 2022-8-5 22:33
+
+所以开不起来了吗？不如谭雅啊。
+
+*****
+
+####  Litccc  
+##### 1095#       发表于 2022-8-5 22:34
+
+别怕啊，被100名宰了不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 1096#       发表于 2022-8-5 22:35
+
+100名的选手也认为是假赛，看来lgd当真是打了假赛
+
+*****
+
+####  ninini212  
+##### 1097#       发表于 2022-8-5 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪怕是找枪呢见枪就缩然后翻黑历史，属实输不起了，我愿称漏油为S1闪电站小猪
+
+*****
+
+####  聚散浮云  
+##### 1098#       发表于 2022-8-5 22:35
+
+不是，别怂啊，输了不还可以嘴上补回来么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1099#       发表于 2022-8-5 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945664&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-5 22:35</a>
+
+不是，别怂啊，输了不还可以嘴上补回来么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">你没看先是质疑找枪，然后转手就有人翻以前发言节奏，游戏玩的好不好不知道，论坛PVP属实是玩的挺明白了
+
+*****
+
+####  chilno  
+##### 1100#       发表于 2022-8-5 22:37
+
+最后打起来发现两边都是卫士借号就好玩了
+
+*****
+
+####  ArowRocher  
+##### 1101#       发表于 2022-8-5 22:38
+
+不是，就算找枪了，漏油就不能也找个枪吗，互相请神打一局也不输阵，别老找场外。
+
+*****
+
+####  聚散浮云  
+##### 1102#       发表于 2022-8-5 22:38
+
+ 本帖最后由 聚散浮云 于 2022-8-5 22:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945676&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-5 22:36</a>
+
+你没看先是质疑找枪，然后转手就有人翻以前发言节奏，游戏玩的好不好不知道，论坛PVP属实是玩的挺 ...</blockquote>
+所以还是要打一打看看成色啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+漏油这一看排名就怂的样子，和前面强硬发言对比鲜明得可笑了些。咱谁也没A畜排名高不妨碍喷他啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1103#       发表于 2022-8-5 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议漏油下次也别输了叫爹了，直接缩了叫爹！
+
+*****
+
+####  百世诸侯  
+##### 1104#       发表于 2022-8-5 22:40
+
+半月蝶莲竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 1105#       发表于 2022-8-5 22:40
+
+不是，为啥这么在意打不打得赢，我以前年轻时也是爱好solo，认爹局也输了不少，谁知道对面有多少捕鱼小号，你敢跟冠绝哥为了自己的发言solo，精神上就已经不是懦夫了，输了又何妨
+
+*****
+
+####  名字不乱取  
+##### 1106#       发表于 2022-8-5 22:42
+
+我建议下次排名哥整个钓鱼小号开宰<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nyaaarlathotep  
+##### 1107#       发表于 2022-8-5 22:42
+
+打打打打打打打打打打打打打打打打
+

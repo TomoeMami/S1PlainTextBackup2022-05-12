@@ -5214,3 +5214,33 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画还是看看隔壁异眼丁真偶像吧 目前还挺好看的
 
+
+
+*****
+
+####  cybernetics31  
+##### 2018#       发表于 2022-8-5 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电锯人有要说中文的角色啊，horipro给点作用啊喂
+
+*****
+
+####  仟音一心  
+##### 2019#       发表于 2022-8-5 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945552&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-8-5 22:26</a>
+看horipro能不能给点</blockquote>
+要不，光熙的后宫选一个？
+
+*****
+
+####  aoaoaodedede  
+##### 2020#       发表于 2022-8-5 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56927896&amp;ptid=2078110" target="_blank">Skyline_R 发表于 2022-8-4 15:55</a>
+
+日本本土的话因为缪是在上升期，两次动画前后可以看一下CD的数据，都是飙升的；然后AKB之后、imas之后，2. ...</blockquote>
+感想坛友们说了这么多，很多时候还得是天时地利人和，缪当年应该也算是销量奇迹了吧。
+
+感觉对Lovelive这个企划来说，这江山打下来也不容易，守起来更不容易，从时间节点上看，星可能是想接水的班，可惜在星现在这个情况，个人没感觉到有能成为爆款的潜质，本身已经处在红海市场了，也没感觉到星在推陈出新类似的角度有什么大亮点，现在就看星这企划还能整出啥乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
