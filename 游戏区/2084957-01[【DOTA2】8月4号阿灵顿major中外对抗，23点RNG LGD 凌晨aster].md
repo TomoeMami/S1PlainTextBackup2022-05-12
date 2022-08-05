@@ -7419,3 +7419,22 @@ a圣先把自己的队伍搞出来吧<img src="https://static.saraba1st.com/imag
 
 缺少一个邹倚天，直接不让他吃低保
 
+
+
+*****
+
+####  redsibyl  
+##### 890#       发表于 2022-8-5 12:46
+
+操了，这jb谁想出来的啊，笑死我了
+
+Ana加入RNG maybe:这不是当年和我一起进TI的大龟ame嘛？【傻狗短剧】
+[https://www.bilibili.com/video/BV1Fd4y1U7Bn?share_source=copy_web](https://www.bilibili.com/video/BV1Fd4y1U7Bn?share_source=copy_web)
+
+*****
+
+####  王宇旻❤潘婕  
+##### 891#       发表于 2022-8-5 12:47
+
+我来了
+

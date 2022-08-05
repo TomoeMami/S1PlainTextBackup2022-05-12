@@ -1911,3 +1911,21 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 问题
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 200#       发表于 2022-8-5 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56937373&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-5 11:02</a>
+
+车妖兰和欧罗拉没意思啊
+
+欧罗拉是阿菌躺平了的受害者，妖兰是被绑着一起被害的
+
+这俩怎么车也解决不了剧情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的是车不起来阿菌的，无非是复读几句阿菌烂活又犯病了，然后就一转产能废物/其他
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">某种意义上，阿菌有钱有点才华又是个社交巨婴，加上武内CP，这堆buff叠加在隔壁近乎无敌啊
+
