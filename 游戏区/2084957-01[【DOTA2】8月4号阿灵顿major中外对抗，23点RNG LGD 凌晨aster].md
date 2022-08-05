@@ -7462,3 +7462,34 @@ ana带盾进组自带光环，陈国康A级上来的跟四个亚军当队友，�
 
 不懂就问，a圣是？
 
+
+
+*****
+
+####  Sabbah  
+##### 895#       发表于 2022-8-5 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杜文乐TA被秒后明显不想买中的不想买，结果队友直接往对面脸上走直接把他鼠标往买活上按。
+
+*****
+
+####  外挂全家脚气  
+##### 896#       发表于 2022-8-5 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936226&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 09:24</a>
+
+想起来没有徐林森阴阳怪气，不开心</blockquote>
+但是昨天杰出直播RNG QC第二盘的时候连线链子哥，链子哥一本正经的说让人觉得是真的又觉得是阴阳怪气很搞的
+
+*****
+
+####  外挂全家脚气  
+##### 897#       发表于 2022-8-5 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936480&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-5 09:50</a>
+
+昨晚有精彩比赛吗下午上班补一下
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+茶vsEG第二盘
+

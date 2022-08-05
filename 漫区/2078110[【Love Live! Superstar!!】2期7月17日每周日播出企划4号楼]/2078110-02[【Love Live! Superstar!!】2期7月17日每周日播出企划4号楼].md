@@ -4723,3 +4723,15 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 —— 来自 Xiao ...</blockquote>
 这个“音乐总监”日语叫啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 1969#       发表于 2022-8-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935832&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-5 08:37</a>
+
+这个“音乐总监”日语叫啥，我之前对比过一二期OP，好像没怎么看出少了啥职位，不会一期动画就没写 ...</blockquote>
+突然上传不了图片，之前我在nga发过图[https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879](https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879)
+
