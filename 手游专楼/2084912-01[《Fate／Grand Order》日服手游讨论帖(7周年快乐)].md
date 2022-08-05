@@ -1959,3 +1959,36 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 有啥心情，这群人私交好的很，能拿出来说肯定就是写之前开个会，武内提出这个东出直接好啊之类的，别把TM当成啥正规公司，他们本质还是个小圈子同人团体制作模式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 204#       发表于 2022-8-5 14:51
+
+你们为啥还对nga废狗板块有可以正常讨论的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日常最多的帖子就是对着角色虚空排卵，剧情分析只会心痛蘑菇哥哥，饭圈筛选下来这么多次，正常的人早该在版权名言后跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 205#       发表于 2022-8-5 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别什么2。6了  该奶奶小王子怎么强化了
+
+*****
+
+####  sosgame67  
+##### 206#       发表于 2022-8-5 14:54
+
+我还是奶北斋吧，虽然大概率被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 207#       发表于 2022-8-5 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939732&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 14:53</a>
+
+别什么2。6了  该奶奶小王子怎么强化了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶，怎么强化的每一个从者你都有啊
+
