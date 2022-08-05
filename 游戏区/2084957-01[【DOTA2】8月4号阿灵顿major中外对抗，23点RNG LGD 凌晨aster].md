@@ -6829,3 +6829,40 @@ RNG赶紧给Aster加油打劲，拿个CN预选名额问题不大
 
 我劝lou先把签证的理念搞清楚
 
+
+
+*****
+
+####  lyjssj  
+##### 825#       发表于 2022-8-5 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这次的憋星只要骄阳能站出来就很难输啊，其他人哪怕做小丑了下限都很高
+
+*****
+
+####  lyjssj  
+##### 826#       发表于 2022-8-5 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁集美又开始试图篡改历史了，赶紧润了，看多了血压要升高
+
+*****
+
+####  nightmare902015  
+##### 827#       发表于 2022-8-5 08:59
+
+怎么，rng第二个bo2老北京又送给集美口实了？昨晚看完老北京中单doom就睡了
+
+*****
+
+####  逃离二次元  
+##### 828#       发表于 2022-8-5 08:59
+
+霉畜赶紧死，天天送子弹让集美抬头，我真是吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cobymar  
+##### 829#       发表于 2022-8-5 08:59
+
+鳖星今天居然全赢了，27岁的焦阳果然是鳖星建队4年以来最厉害的中单，令人感叹
+

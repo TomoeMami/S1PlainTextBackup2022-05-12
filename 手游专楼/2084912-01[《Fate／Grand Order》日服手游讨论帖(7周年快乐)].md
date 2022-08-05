@@ -1819,3 +1819,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 说肝就肝，肝死自己亏死运营的秃子精神</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实根本没你们肝 我从来不刷什么无限池  
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 192#       发表于 2022-8-5 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为你有随时掏出6个羁绊石头和20EQP的能力，自然不用刷什么无限池
+
