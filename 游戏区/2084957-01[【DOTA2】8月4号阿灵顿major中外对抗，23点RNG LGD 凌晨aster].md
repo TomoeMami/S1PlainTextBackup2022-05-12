@@ -8373,3 +8373,14 @@ Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是
 
 不少漏油说话是难听了一点 但是脑浆选手就要指出来 正常发挥的、尽力选手就应该赞扬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yukino-Yukino  
+##### 984#       发表于 2022-8-5 18:29
+
+kaka这小强也没看到养a的意义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳刀打先手的小强本来a的作用就比较小了。这把还是进攻局不是守高局。感觉养给墨客或者小小更好点。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
