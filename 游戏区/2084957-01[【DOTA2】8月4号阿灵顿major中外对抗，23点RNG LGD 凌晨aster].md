@@ -6667,3 +6667,75 @@ ctmd霉醋天天给集美送子弹<img src="https://static.saraba1st.com/image/s
 
 boboka这个小强有点搞笑了
 
+
+
+*****
+
+####  walfeds  
+##### 806#       发表于 2022-8-5 08:22
+
+固定靶也能马刺吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 807#       发表于 2022-8-5 08:27
+
+野王这把打得太丑陋了，还好骄阳带躺了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  聚散浮云  
+##### 808#       发表于 2022-8-5 08:29
+
+憋星也太宰了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  外挂全家脚气  
+##### 809#       发表于 2022-8-5 08:29
+
+今年是憋星最有希望的一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 810#       发表于 2022-8-5 08:30
+
+曾骄阳这中单核水平绝对国内选手独一档，可惜杜鹏儿在茶队被养废了打得功能核打得太烂了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  反方向的波  
+##### 811#       发表于 2022-8-5 08:32
+
+打了两个菜比而已，后面打石头人雪碧和东南亚父亲才能见真章<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fstt  
+##### 812#       发表于 2022-8-5 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56935766&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-5 08:29</a>
+今年是憋星最有希望的一年</blockquote>
+茶队胜者组一轮游的历史斑斑可考，不要急不要急<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  修罗王  
+##### 813#       发表于 2022-8-5 08:32
+
+monet第一把ck打的挺不错的
+
