@@ -8433,3 +8433,81 @@ kaka这小强也没看到养a的意义<img src="https://static.saraba1st.com/ima
 
 想看god解说，链子解说也挺不错的，只能说打职业的还是懂的，B站斗鱼这帮4+2皮套人解说，是真看个几把啊。
 
+
+
+*****
+
+####  32196789  
+##### 991#       发表于 2022-8-5 18:51
+
+不是，怎么还有人说出BKB冰龙只能大炼金的，RNG的阵容打不死冰箱，你不开bKB几个人一起冲脸就是铁吃冰龙大，你几个人一起开BKB冲脸就是冰箱拖过时间再吃一个冰龙大。RNG这个阵容大哥就不能站一起冲脸，ANA给小小出A的意思就是你躲后面扔树就行了。但是小小非要跳上去放V，这ANA不出BKB有什么关系么？
+
+而且最大的问题是RNG在应该抱团扫图的时候分散刷钱给对面反复抓掉，然后因为人少把盾送了导致一直往后拖，这才是输的最主要问题。换OG最有纪律性的时候来早他妈碾压了。甚至就是换干瘪来扫图也拿下了。
+
+*****
+
+####  Yukino-Yukino  
+##### 992#       发表于 2022-8-5 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942343&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-08-05 18:40:42</a>
+可惜的是，这三波只有二代肉山小小是被冰龙大打死的啊，而且被黑龙单防的小小；已知小小有BKB，夜魇四人 ...</blockquote>冰龙大ga就让他大啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">小小有bkb的话剩下三兄弟就算和ga站一起也打不死ga的。冰龙大ga就只能救人拖时间而不是直接减员。秒puck那波小小选择后撤然后往下走就是因为ga没bkb，要小小过去赶冰龙啊。不然直接和ga站一起等冰箱结束ga补大晕一起带走puck不就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 993#       发表于 2022-8-5 18:53
+
+没看到切片，不是说链子挺超哥吗，包括小小那局吗
+
+*****
+
+####  雅朵莉雀  
+##### 994#       发表于 2022-8-5 18:53
+
+ 本帖最后由 雅朵莉雀 于 2022-8-5 18:59 编辑 
+
+我是认为大哥GA不应该给队友养A
+
+除非真的更到自己没有任何更新余地了，这盘GA连鞋都没换
+
+这盘炼金最大的问题是没出魔晶，我是很赞同拿皇的说法的，要不然就跳刀BKB，要不然就双刀魔晶，如果选择出双刀不出BKB，那一定要出魔晶
+
+不是说没被大骨灰打死的问题，昨天看直播的都有印象长暂停那波，GA被上了大骨灰就只能跑
+
+而在这场游戏里最廉价的驱散道具就是GA的魔晶
+
+这盘他给队友养了两个A杖直到38分钟才出魔晶，显然是有问题的
+
+不出BKB根本不是什么问题，效果也打出来了，如果出BKB肯定没有上路双刀强袭砍死puck的那波，优势也不一定有这么大
+
+*****
+
+####  反方向的波  
+##### 995#       发表于 2022-8-5 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">还好昨天开场vp尿满阿灵顿，不然卡狗已经玉玉症了
+
+*****
+
+####  一品堂官  
+##### 996#       发表于 2022-8-5 18:55
+
+反复看了录像 27分钟天辉三角区高台眼眼不守准备控盾
+只能说交流问题很大 本来这里运营一下 很大概率没有后面的事了 结果这波没打好 27-32分钟把局势送掉了
+后面买活打赢团但是剑圣已经起来了 攻守易势矣
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  很久就在那边l  
+##### 997#       发表于 2022-8-5 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942296&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-5 18:35</a>
+小小的a杖加强之后挺好用的，选取树木范围非常大，之前看topson直播的时候把出，而且连击刀的减速bug还是没 ...</blockquote>
+7.31c 2022/05/05
+ 扔树减速效果现在对树木连掷同样生效
+那不是连击刀减速是扔树本来就有的减速
+

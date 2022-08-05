@@ -5025,3 +5025,31 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 鲤鱼刚官宣的时候我是对她唱歌没什么信心，主要是完全没听过现场，个人曲的制作水平也只能说很一般，直到一单发售活动才感觉唱的不错，到了一巡才意识到她在五只里面都属于很稳的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 1999#       发表于 2022-8-5 18:51
+
+鲤鱼肯定不算拉的。你要说当时，当时泥潭专楼都是什么风向就不用我多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给我一个一般通过路人吓退了
+
+*****
+
+####  Enakina  
+##### 2000#       发表于 2022-8-5 18:52
+
+ 本帖最后由 Enakina 于 2022-8-5 18:54 编辑 
+
+印象里去年看5月的发售活动都挺亮眼的了，那会最多的评价就是和之前不一样，没有明显的短板了，最亮眼的自然还是小百合了。
+希望今年的发售活动也可以有亮眼表现，铃原你得给劲啊，铃原要拉了，得被车成什么样，我都不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2001#       发表于 2022-8-5 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942436&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-5 18:51</a>
+鲤鱼肯定不算拉的。你要说当时，当时泥潭专楼都是什么风向就不用我多说了吧给我一个一般通过路人吓 ...</blockquote>
+以前瞅过几眼，确实挺路人劝退的……
+
