@@ -8638,3 +8638,28 @@ ceb从来就不喜欢毛子。
 
 刘畅<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一品堂官  
+##### 1012#       发表于 2022-8-5 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943041&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 19:37</a></blockquote>
+2年前 打职业钱不多
+
+2年多疫情下来
+
+还不如打职业？
+
+这样？
+
+*****
+
+####  反方向的波  
+##### 1013#       发表于 2022-8-5 19:44
+
+Q：是Zayac劝你留下来的还是Puppey的决定？
+
+A：Puppey是一个天才，他说他早就计划好了（让我来），但我现在不是很信，因为我之前一直认为Puppey会选择Hare（欧服天梯40）。但Team Secret在DPC联赛上没有拿到前四无缘Major，这时候利雅得大师赛开始了，Zayac给我打电话说：“来不来？”那我当然来呀。
+
