@@ -2231,3 +2231,12 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 小王子也不弱啊真有必要强化吗，而且宝具和公主效果一样甚至特攻面还更有用些，这要是给宝具本是要 ...</blockquote>
 某三色魔放酋长:<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 231#       发表于 2022-8-5 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">酋长根本没法救 直接大重做算了
+

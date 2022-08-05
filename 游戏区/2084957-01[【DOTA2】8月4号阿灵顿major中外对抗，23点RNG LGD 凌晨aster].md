@@ -8698,3 +8698,45 @@ A：Puppey是一个天才，他说他早就计划好了（让我来），但我�
 — The situation with OG gnawed hard on me for a while, because they kicked me, N0tail changed his role to 5, and they won two TIs in a row. Back then I thought that I could be there with them. But in reality, the misunderstanding between Fly and N0tail was already there at that moment. Maybe they just didn't want to talk about it face to face, and I ended up as the one to blame. I already knew that they are great players, just thought that N0tail isn't playing his best on carry. I think, these days he'd agree with me. But as a 5 he really gave it all. Now I've let that story go.</blockquote>
 Back then I thought that I could be there with them，举盾本应有我一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nightmare902015  
+##### 1017#       发表于 2022-8-5 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942852&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 19:25</a>
+一口一个云玩家
+报id来solo认爹局？让我看看您有多厉害？</blockquote>
+给你加油<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1018#       发表于 2022-8-5 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943167&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 19:44</a>
+
+Q：是Zayac劝你留下来的还是Puppey的决定？
+
+A：Puppey是一个天才，他说他早就计划好了（让我来），但我现 ...</blockquote><blockquote>— Did Zayac recommend you, or your invite was a Puppey's wish and decision?
+
+— Maybe Clement is such a genius that he planned all that beforehand, but I doubt it. I think he picked Zayac because he is in top-40 EU and is a very good 4. Then Secret didn't qualify to the Major, things clearly weren't going well in the team. They decided to try something new, and called me two days before Riyadh Masters 2022. We only played 2-4 scrims. It was cool seeing us play that well without much preparation.</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">tm是怎么翻成这样的。。。
+
+*****
+
+####  Litccc  
+##### 1019#       发表于 2022-8-5 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943041&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 19:37</a></blockquote>
+最搞笑的是zhou还给点赞了，世纪tm的大和解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 1020#       发表于 2022-8-5 20:08
+
+光之巨人居然想复出了
+
