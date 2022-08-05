@@ -12030,3 +12030,150 @@ bzm晕了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">在本菜狗的理解里点金这个cs道具现在反而是个参战装，近期的正面例子就是利雅得大师赛老干瘪打og第二场油垃圾那个点金虚空
 
+
+
+*****
+
+####  京吹病人  
+##### 1449#       发表于 2022-8-6 01:01
+
+hus不出bkbb真的纯畜生啊
+
+*****
+
+####  吃货红毛  
+##### 1450#       发表于 2022-8-6 01:02
+
+这atf TP过来死来自: iPhone客户端
+
+*****
+
+####  BallanceHZ  
+##### 1451#       发表于 2022-8-6 01:02
+
+单车居然敢刚电棍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 1452#       发表于 2022-8-6 01:03
+
+明鞭搞这么厉害，到底图什么，不会真以为还能第二冠吧。
+
+*****
+
+####  名字不乱取  
+##### 1453#       发表于 2022-8-6 01:03
+
+别人打完我刚开。vp也有这天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1454#       发表于 2022-8-6 01:03
+
+MAJOR打完电魂肯定没了，上次削了刷新不能连同一个人我就已经不想玩了
+
+*****
+
+####  acejoe  
+##### 1455#       发表于 2022-8-6 01:03
+
+og这个中是什么智障啊，太傻逼了。
+
+*****
+
+####  无糖茶  
+##### 1456#       发表于 2022-8-6 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">相信非决赛日的处长
+
+*****
+
+####  nowaki  
+##### 1457#       发表于 2022-8-6 01:04
+
+真别急 去年这时候lgd也是强无敌
+
+*****
+
+####  方舟失智博士  
+##### 1458#       发表于 2022-8-6 01:04
+
+十手一号位doom<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">搞自己
+
+*****
+
+####  京吹病人  
+##### 1459#       发表于 2022-8-6 01:05
+
+atf这么喜欢carry比赛，不如滚去打c或者mid，别再劣势路当爹了，四个队友又没得罪你
+
+*****
+
+####  12481632  
+##### 1460#       发表于 2022-8-6 01:06
+
+别尬黑，这把atf才是1
+
+*****
+
+####  尸体鲨  
+##### 1461#       发表于 2022-8-6 01:06
+
+RNG是不是可以宣布了，感觉几兄弟都不知道怎么赢比赛
+
+*****
+
+####  万世创伤伊莫库  
+##### 1462#       发表于 2022-8-6 01:07
+
+这ATF不会以为上次那一小分是靠自己hsk赢的吧
+
+*****
+
+####  nightmare902015  
+##### 1463#       发表于 2022-8-6 01:08
+
+我觉得rng是知道怎么赢的，但为啥教练和队员神一把鬼一把的，整花活还是磨合中？
+
+*****
+
+####  莉拉厨  
+##### 1464#       发表于 2022-8-6 01:08
+
+现在这RNG能进淘汰赛就是胜利，如果刚好卡在6/7名这个位置就有意思了，要知道最后一个BO2可是春晚<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1465#       发表于 2022-8-6 01:08
+
+鳖星第二把怎么输的，有没有茶叶前十说一下
+
+*****
+
+####  夏溪澪mio  
+##### 1466#       发表于 2022-8-6 01:09
+
+睡觉了水友们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天起来看战报
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 1467#       发表于 2022-8-6 01:10
+
+rng能正好卡着进ti的话ghost嘴要笑裂了
+
+*****
+
+####  健康猹  
+##### 1468#       发表于 2022-8-6 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947068&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-6 01:08</a>
+
+鳖星第二把怎么输的，有没有茶叶前十说一下</blockquote>
+出装太贪，20分钟一把BKB没有，被精灵飞机VS推平了
+
