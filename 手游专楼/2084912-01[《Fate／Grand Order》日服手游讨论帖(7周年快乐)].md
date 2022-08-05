@@ -2167,3 +2167,12 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 不动用鹤的情况下，暂时就想到公主紫式部C呆+太公望/船长
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  03026829  
+##### 225#       发表于 2022-8-5 17:36
+
+没有紫式部 
+

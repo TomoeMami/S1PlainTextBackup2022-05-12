@@ -65,7 +65,7 @@ if __name__ == '__main__':
             if (int(l) not in blacklist):
                 if l in ids:
                     if thdata[l]['totalreply']//30 > 29:
-                        if thdata[l]['totalreply']//30 < threadict[l]['level']:
+                        if thdata[l]['totalreply']//30 < int(threadict[l]['level']):
                             thdata[l]['active'] = True
                     else:
                         thdata[l]['active'] = True

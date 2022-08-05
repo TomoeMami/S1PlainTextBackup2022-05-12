@@ -8288,3 +8288,17 @@ Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是
 
 几波丢盾都和maybe有很大的关系，也不明白一个炼金四保一阵容炼金还是爆炸肥的前提下，为什么中单小小补点金手最后还要出物理装的，直接躺下出个法系装或者干脆保命装都能赢好吧……
 
+
+
+*****
+
+####  健康猹  
+##### 977#       发表于 2022-8-5 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941288&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-5 17:10</a>
+
+厨子想的应该是这所谓41战队队友这么菜就算了，这中餐点得又是什么cylx，远不如老子自己做的吧 ...</blockquote>
+我记得A厨学的是西餐
+
+而且注意看，他是这群人里面唯一一个拿叉子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
