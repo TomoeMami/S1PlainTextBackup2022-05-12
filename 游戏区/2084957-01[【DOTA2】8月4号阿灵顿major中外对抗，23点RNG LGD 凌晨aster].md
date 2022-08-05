@@ -6998,3 +6998,54 @@ RNG赶紧给Aster加油打劲，拿个CN预选名额问题不大
 6分C！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">功过64开
 
+
+
+*****
+
+####  ArowRocher  
+##### 846#       发表于 2022-8-5 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936074&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 09:07</a>
+建议泰迪死之前先把查理斯弄死，可以功过相抵，不然以后退役了只能37开了 ...</blockquote>
+还在黑话
+
+*****
+
+####  反方向的波  
+##### 847#       发表于 2022-8-5 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">想起来没有徐林森阴阳怪气，不开心
+
+*****
+
+####  ArowRocher  
+##### 848#       发表于 2022-8-5 09:27
+
+昨天头两盘打完就睡了，爬了下楼发现茶全胜了，焦阳这是第N春了吗。 话说两盘1:1在A组什么概念啊
+
+*****
+
+####  沈淮  
+##### 849#         楼主| 发表于 2022-8-5 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936251&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 09:27</a>
+
+昨天头两盘打完就睡了，爬了下楼发现茶全胜了，焦阳这是第N春了吗。 话说两盘1:1在A组什么概念啊 ...</blockquote>
+败者组里面的下等马
+
+*****
+
+####  walfeds  
+##### 850#       发表于 2022-8-5 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先鳖急，a组四个0-2-0
+
+*****
+
+####  遍体精淋af  
+##### 851#       发表于 2022-8-5 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936251&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 09:27</a>
+昨天头两盘打完就睡了，爬了下楼发现茶全胜了，焦阳这是第N春了吗。 话说两盘1:1在A组什么概念啊 ...</blockquote>
+和vp1比1没什么，给qc送分比较➗，按照目前的小分是败者组
+
