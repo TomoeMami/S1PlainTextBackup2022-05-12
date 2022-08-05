@@ -2258,3 +2258,33 @@ NHOTBOT（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  pei23333  
+##### 12252#       发表于 2022-8-5 17:51
+
+昨天直播说的是不是nb的节目和咩的主持都在第三天，这样要当凯子的的话买第三天的就行了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  古战场亡魂  
+##### 12253#       发表于 2022-8-5 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941788&amp;ptid=2018830" target="_blank">pei23333 发表于 2022-8-5 17:51</a>
+
+昨天直播说的是不是nb的节目和咩的主持都在第三天，这样要当凯子的的话买第三天的就行了吧
+
+  -- 来自 能手 ...</blockquote>
+不好意思，已经买不了了
+
+*****
+
+####  草牛  
+##### 12254#       发表于 2022-8-5 17:53
+
+🤣🤣🤣🤣
+

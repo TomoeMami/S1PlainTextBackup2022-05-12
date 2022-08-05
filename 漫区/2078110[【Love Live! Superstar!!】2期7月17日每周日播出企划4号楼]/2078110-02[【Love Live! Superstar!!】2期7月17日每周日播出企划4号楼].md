@@ -4946,3 +4946,12 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">毙了吧，别3了 
 
+
+
+*****
+
+####  kata魂  
+##### 1991#       发表于 2022-8-5 17:59
+
+现场在惊艳能惊艳到哪去……要是能惊艳众人的话海选她就不会输给小百合和nagi了
+
