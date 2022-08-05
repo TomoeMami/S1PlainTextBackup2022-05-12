@@ -11621,3 +11621,412 @@ Rng也是1:1和平鸽是吧<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">有无国足数学家，rng打到第几可以不用回国卷
 
+
+
+*****
+
+####  枪聆弹语  
+##### 1394#       发表于 2022-8-6 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被打了个20投
+
+*****
+
+####  walfeds  
+##### 1395#       发表于 2022-8-6 00:51
+
+短痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 1396#       发表于 2022-8-6 00:51
+
+这b阵容是怎么选出来的
+
+*****
+
+####  nightmare902015  
+##### 1397#       发表于 2022-8-6 00:51
+
+不是谁tm带起来的点金大哥，我真的搞不懂。大家等级是都很重要，但也不至于用这么个超级长收益曲线的东西
+
+*****
+
+####  阿垃垃圾历  
+##### 1398#       发表于 2022-8-6 00:51
+
+艹 这直接gg
+
+*****
+
+####  北条早苗  
+##### 1399#       发表于 2022-8-6 00:51
+
+这谜团是怎么点出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 1400#       发表于 2022-8-6 00:51
+
+rmg这就敲了
+
+*****
+
+####  反方向的波  
+##### 1401#       发表于 2022-8-6 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+最后杀一个就敲的团还在打屠夫
+
+*****
+
+####  12481632  
+##### 1402#       发表于 2022-8-6 00:52
+
+都怪鸡畜呀
+
+*****
+
+####  haruhiismer  
+##### 1403#       发表于 2022-8-6 00:52
+
+ceb还是不如misha，酱油死死没啥毛病
+
+*****
+
+####  pikamee  
+##### 1404#       发表于 2022-8-6 00:52
+
+一转台发现莫奈rampage<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 1405#       发表于 2022-8-6 00:52
+
+卧槽莫奈特
+
+*****
+
+####  iriyano  
+##### 1406#       发表于 2022-8-6 00:52
+
+这应该是厨子在rng最辣的一把了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 1407#       发表于 2022-8-6 00:52
+
+先手就靠卡卡呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 谜团玩的啥
+
+*****
+
+####  逃离二次元  
+##### 1408#       发表于 2022-8-6 00:52
+
+睡了，鳖茶和rng打的是nm<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 1409#       发表于 2022-8-6 00:52
+
+哎呦又轮到杜鹏站起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马儿在流泪  
+##### 1410#       发表于 2022-8-6 00:52
+
+真的看吐了，再不想看RNG了，不如看茶
+
+
+
+*****
+
+####  walfeds  
+##### 1411#       发表于 2022-8-6 00:52
+
+莫奈暴走了啊
+
+*****
+
+####  逃离二次元  
+##### 1412#       发表于 2022-8-6 00:53
+
+我操monet
+
+*****
+
+####  a1370303  
+##### 1413#       发表于 2022-8-6 00:53
+
+茶队翻了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mkii量产型  
+##### 1414#       发表于 2022-8-6 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到最菜的还是RNG
+
+*****
+
+####  joker9527  
+##### 1415#       发表于 2022-8-6 00:53
+
+顶着术士选个谜团，全场就拉了一次半血马西，rng的教练和查理斯赶紧退役吧
+
+*****
+
+####  河水  
+##### 1416#       发表于 2022-8-6 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946906&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-6 00:51</a>
+不是谁tm带起来的点金大哥，我真的搞不懂。大家等级是都很重要，但也不至于用这么个超级长收益曲线的东西 ...</blockquote>
+cme
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 1417#       发表于 2022-8-6 00:53
+
+woc赵子星
+
+*****
+
+####  名字不乱取  
+##### 1418#       发表于 2022-8-6 00:53
+
+切过去就是带盾0换6，看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1419#       发表于 2022-8-6 00:53
+
+ 本帖最后由 莉拉厨 于 2022-8-6 00:55 编辑 
+
+茶队翻不了的
+这把茶队20分钟那个脑浆送太有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我爱撩菜  
+##### 1420#       发表于 2022-8-6 00:54
+
+xinQ MVP预定了啊= =
+
+*****
+
+####  haruhiismer  
+##### 1421#       发表于 2022-8-6 00:54
+
+bzm这操作我有一说一，不如超哥
+
+*****
+
+####  阿垃垃圾历  
+##### 1422#       发表于 2022-8-6 00:55
+
+茶队还是gg了啊 
+
+*****
+
+####  walfeds  
+##### 1423#       发表于 2022-8-6 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上偿还了
+
+*****
+
+####  逃离二次元  
+##### 1424#       发表于 2022-8-6 00:55
+
+哎哟g了
+
+*****
+
+####  mkii量产型  
+##### 1425#       发表于 2022-8-6 00:55
+
+鳖茶至少反抗了下，比RNG贞洁不少
+
+*****
+
+####  一品堂官  
+##### 1426#       发表于 2022-8-6 00:55
+
+这点金电锤是天梯流行的？比赛里能这么出有人证明过么。
+
+还不如狂战斧呢。
+
+*****
+
+####  名字不乱取  
+##### 1427#       发表于 2022-8-6 00:55
+
+一切0换6 ，二切敲gg，看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1428#       发表于 2022-8-6 00:56
+
+点金电锤确实是OC先出的
+
+*****
+
+####  Litccc  
+##### 1429#       发表于 2022-8-6 00:56
+
+atf把yuragi赶去打3也太搞笑了，比霉皇还队霸<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1430#       发表于 2022-8-6 00:56
+
+那边VP还没bp完 笑死了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 1431#       发表于 2022-8-6 00:56
+
+RNG和茶队偿还得太快了吧
+
+*****
+
+####  haruhiismer  
+##### 1432#       发表于 2022-8-6 00:57
+
+我一段没看navi已经成长到能打茶队了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 1433#       发表于 2022-8-6 00:57
+
+我就看了切片都知道41yy天天吹的csdx的cs出装
+
+*****
+
+####  zkc1991  
+##### 1434#       发表于 2022-8-6 00:57
+
+RNG搁这经典1换1呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 1435#       发表于 2022-8-6 00:57
+
+RNG只要围着老北京打，必不好赢。
+
+*****
+
+####  百世诸侯  
+##### 1436#       发表于 2022-8-6 00:58
+
+俊豪（RNG教练）不会BP可以赶紧辞职，天天正常一把魔怔一把
+
+*****
+
+####  nightmare902015  
+##### 1437#       发表于 2022-8-6 00:58
+
+总不能欧美东南亚一号位都天天赖在鸡哥门外听41yy直播吧。这两天感觉看了五六把点金电锤了，神经啊。
+
+*****
+
+####  聚散浮云  
+##### 1438#       发表于 2022-8-6 00:58
+
+ATF这神灵除了刷钱啥都没有
+
+*****
+
+####  BallanceHZ  
+##### 1439#       发表于 2022-8-6 00:58
+
+og这单车铁小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1440#       发表于 2022-8-6 00:59
+
+ATF真是畜生啊
+
+
+
+*****
+
+####  12481632  
+##### 1441#       发表于 2022-8-6 00:59
+
+脑浆q
+
+*****
+
+####  nowaki  
+##### 1442#       发表于 2022-8-6 00:59
+
+点金电锤似乎是出自666
+
+*****
+
+####  BallanceHZ  
+##### 1443#       发表于 2022-8-6 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这puck
+
+*****
+
+####  12481632  
+##### 1444#       发表于 2022-8-6 01:00
+
+本泽马也开始犯病了
+
+*****
+
+####  吃货红毛  
+##### 1445#       发表于 2022-8-6 01:00
+
+bzm这两把打的是什么ddx啊来自: iPhone客户端
+
+*****
+
+####  nightmare902015  
+##### 1446#       发表于 2022-8-6 01:00
+
+神灵下路跟着杀ame被精灵断链没回去，送了，下路守塔强开ame被吸回来反杀，肉山门前又被先手打死，十多分钟连死这三次就没用了。
+
+*****
+
+####  a1370303  
+##### 1447#       发表于 2022-8-6 01:00
+
+bzm晕了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1448#       发表于 2022-8-6 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">在本菜狗的理解里点金这个cs道具现在反而是个参战装，近期的正面例子就是利雅得大师赛老干瘪打og第二场油垃圾那个点金虚空
+
