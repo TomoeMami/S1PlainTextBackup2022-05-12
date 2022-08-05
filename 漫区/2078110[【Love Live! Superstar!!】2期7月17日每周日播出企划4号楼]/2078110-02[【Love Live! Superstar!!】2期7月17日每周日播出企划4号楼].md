@@ -4873,3 +4873,20 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 <img src="http://wx4.sinaimg.cn/mw1024/4508e79bly8h4vwxfseu9j21kw16ogtd.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 1983#       发表于 2022-8-5 16:00
+
+<img src="http://wx4.sinaimg.cn/orj360/4508e79bgy1h4vw4hzba6j20ku0fmacb.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/orj360/4508e79bgy1h4vw4ihvhaj21520us7be.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1984#       发表于 2022-8-5 16:02
+
+就动画来说我只想说一句，京极和花田能给Nagi叩个头吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">恋恋都快要查无此人，二期开播前都还在说不要贷款吃屎猜测谁会被边缘化，就前三集的表现除了香樱，其他人都得站边
+

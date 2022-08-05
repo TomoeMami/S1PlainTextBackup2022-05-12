@@ -7882,3 +7882,25 @@ ANA不出BKB给队友养A是最快提升队伍战斗力的思路,结果RNG4个�
 看这组合你就能想到这场面该多有趣。</blockquote>
 有切片吗
 
+
+
+*****
+
+####  一品堂官  
+##### 938#       发表于 2022-8-5 16:04
+
+领先对面一万五的炼金 强势期被23整蛊搞得拿不了盾上高 难以想象一整场领先缺一个盾没控到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+怪不得养的第一个a给了kaka<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不会8号那场世纪**大春晚plus要对面施舍才能晋级吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 939#       发表于 2022-8-5 16:07
+
+要不卡神先带着上帝一起去给下面八磕一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
