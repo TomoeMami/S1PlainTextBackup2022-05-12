@@ -1938,3 +1938,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 就是车其他的，才能不车菌皇，2.6.2的摩根退场小车一下菌皇已经是隔壁的极限了。在车就要霓虹本土人气投票碾压式第一警告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 202#       发表于 2022-8-5 14:38
+
+昨天fami通采访说因为武内想看年轻教授，所以265老福主场变成老福退场，我还以为nga又要ttk了，结果一看又在说武内茸磕死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁考虑下真正要写这些东西的东出的心情啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
