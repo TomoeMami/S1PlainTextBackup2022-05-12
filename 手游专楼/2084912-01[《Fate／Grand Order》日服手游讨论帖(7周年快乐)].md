@@ -1938,3 +1938,232 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 就是车其他的，才能不车菌皇，2.6.2的摩根退场小车一下菌皇已经是隔壁的极限了。在车就要霓虹本土人气投票碾压式第一警告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 202#       发表于 2022-8-5 14:38
+
+昨天fami通采访说因为武内想看年轻教授，所以265老福主场变成老福退场，我还以为nga又要ttk了，结果一看又在说武内茸磕死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁考虑下真正要写这些东西的东出的心情啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  yangun22  
+##### 203#       发表于 2022-8-5 14:49
+
+有啥心情，这群人私交好的很，能拿出来说肯定就是写之前开个会，武内提出这个东出直接好啊之类的，别把TM当成啥正规公司，他们本质还是个小圈子同人团体制作模式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sosgame67  
+##### 204#       发表于 2022-8-5 14:51
+
+你们为啥还对nga废狗板块有可以正常讨论的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日常最多的帖子就是对着角色虚空排卵，剧情分析只会心痛蘑菇哥哥，饭圈筛选下来这么多次，正常的人早该在版权名言后跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 205#       发表于 2022-8-5 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别什么2。6了  该奶奶小王子怎么强化了
+
+*****
+
+####  sosgame67  
+##### 206#       发表于 2022-8-5 14:54
+
+我还是奶北斋吧，虽然大概率被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 207#       发表于 2022-8-5 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939732&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 14:53</a>
+
+别什么2。6了  该奶奶小王子怎么强化了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶，怎么强化的每一个从者你都有啊
+
+
+
+*****
+
+####  rooarr  
+##### 208#       发表于 2022-8-5 15:17
+
+开宝具本就差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 209#       发表于 2022-8-5 15:19
+
+隔壁国服除了车妖兰就是黑奥伯龙的自称，无聊死了23333
+
+
+
+*****
+
+####  alucardcz  
+##### 210#       发表于 2022-8-5 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939807&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-5 15:01</a>
+
+可恶，怎么强化的每一个从者你都有啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 211#       发表于 2022-8-5 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940111&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 15:29</a>
+
+？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">池子开着，你可以三石问路，也许可以喜+1……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我没的从者太多，所以基本只在意有的从者给什么强化
+
+*****
+
+####  alucardcz  
+##### 212#       发表于 2022-8-5 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940158&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-5 15:34</a>
+
+池子开着，你可以三石问路，也许可以喜+1……
+
+主要我没的从者太多，所以基本只在意有的从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这又没爱又没强度的为什么要丢3石？
+
+
+
+*****
+
+####  yangun22  
+##### 213#       发表于 2022-8-5 15:52
+
+我觉得还是水阿比强化的概率高一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 214#       发表于 2022-8-5 16:15
+
+<blockquote>alucardcz 发表于 2022-8-5 15:29
+？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有</blockquote>
+萌新啥都有好强阿
+
+*****
+
+####  exiaexa  
+##### 215#       发表于 2022-8-5 16:21
+
+只能说，小王子改成宝具后群30我就去抽一个
+不然还是改阿比吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 216#       发表于 2022-8-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940552&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-5 16:15</a>
+
+萌新啥都有好强阿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你眼睛有问题？ 特意找茬别怪我开喷了
+
+
+
+*****
+
+####  angelooo  
+##### 217#       发表于 2022-8-5 16:38
+
+这次的规律感觉挺明显，多半是小王子吧……反正外星人都挺需要加强的
+
+
+
+*****
+
+####  qixinno2  
+##### 218#       发表于 2022-8-5 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940642&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 16:21</a>
+
+你眼睛？重新再看一看？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眼睛只是装饰 萌新是不会懂得
+
+
+
+*****
+
+####  alucardcz  
+##### 219#       发表于 2022-8-5 17:02
+
+ 本帖最后由 alucardcz 于 2022-8-5 17:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">紫式部 俵藤太 还真有个10自充
+
+*****
+
+####  qixinno2  
+##### 220#       发表于 2022-8-5 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没有紫式部 又少了2石 明天外星人强化个我有的啊
+
+*****
+
+####  朝香果林  
+##### 221#         楼主| 发表于 2022-8-5 17:07
+
+果然每天都有自充。。
+
+
+
+*****
+
+####  exiaexa  
+##### 222#       发表于 2022-8-5 17:15
+
+ 本帖最后由 exiaexa 于 2022-8-5 17:18 编辑 
+
+又是泳装，我感觉阿比要赢了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卧槽是还是快乐的地特攻，是时候给阿比（泡泡）一个对人理特攻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 223#       发表于 2022-8-5 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外星人强化还是宝具本靠点谱 技能本我只想到了阿荣的迷之强化
+
+
+
+*****
+
+####  exiaexa  
+##### 224#       发表于 2022-8-5 17:23
+
+MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好处是紫式部自己1.3*1.3还有特攻宝具本输出管够
+
+不动用鹤的情况下，暂时就想到公主紫式部C呆+太公望/船长
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

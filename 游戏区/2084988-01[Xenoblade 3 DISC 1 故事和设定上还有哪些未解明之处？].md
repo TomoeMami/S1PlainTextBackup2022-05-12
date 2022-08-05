@@ -1601,3 +1601,37 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ZyLintheMax  
+##### 142#       发表于 2022-8-5 14:37
+
+哪怕你坐椅子说书我都没所谓，只要是后日谈就行<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  大江户战士  
+##### 143#       发表于 2022-8-5 14:45
+
+我认为前日谈英雄支线就能覆盖的
+
+*****
+
+####  sslink  
+##### 144#       发表于 2022-8-5 14:48
+
+想了想要是出后传真正讲两世界融合的话感觉xb3本体很虚无
+
+
+
+*****
+
+####  咸驴技穷  
+##### 145#       发表于 2022-8-5 14:57
+
+说的好像讲一个消失了的世界几千年前的事情就不虚无了。更何况和本篇几乎是毫无关系。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

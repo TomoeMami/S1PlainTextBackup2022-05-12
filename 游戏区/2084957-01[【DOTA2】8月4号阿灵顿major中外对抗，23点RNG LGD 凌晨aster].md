@@ -7603,3 +7603,688 @@ MXO UPUP
 
 lgd首胜都能上b站热搜，吐了吐了
 
+
+
+*****
+
+####  很久就在那边l  
+##### 911#       发表于 2022-8-5 14:11
+
+<img src="https://p.sda1.dev/6/0944e3ead914ec6550fbb6fba2248699/CMP_20220805141041034.jpg" referrerpolicy="no-referrer">
+又是这个b
+
+
+
+*****
+
+####  小19  
+##### 912#       发表于 2022-8-5 14:12
+
+<blockquote>沈淮 发表于 2022-8-5 10:11
+哎对了，我去年听漏油说一个队只能有两个不是本赛区籍的选手来着？
+
+为啥eg就一个加拿大籍的rtz也能登记成 ...</blockquote>
+他拿吃屎狗的规矩管dota2呢。
+
+*****
+
+####  羽林军二十一  
+##### 913#       发表于 2022-8-5 14:19
+
+单论游戏内容ga还是要出bkb的
+一个冲阵坦克被ana玩成了切入刺客
+虽然安皇切入美如画，但是明显其余四个不适应他这么玩
+
+还好圣霉皇早就预料到了，提前拖出点金手惩罚厨子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  外挂全家脚气  
+##### 914#       发表于 2022-8-5 14:21
+
+ 本帖最后由 外挂全家脚气 于 2022-8-5 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939341&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 14:11</a>
+
+又是这个b</blockquote>
+这个B打TS的第一局最后，站高地门口发呆，牙脱落上高还以为是个幻象没理他，然后他突然动了就被发现是真身集火秒了
+
+*****
+
+####  Shih0_Matsuri  
+##### 915#       发表于 2022-8-5 14:21
+
+就RNG这个中期迷路水平还船长龙骑呢，无解肥船长拖到后期没声音，龙骑继续出点金整蛊
+
+*****
+
+####  AIDSL  
+##### 916#       发表于 2022-8-5 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939341&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 14:11</a>
+
+又是这个b</blockquote>
+手动拆雷锤dota，best dota
+
+*****
+
+####  seki_m  
+##### 917#       发表于 2022-8-5 14:24
+
+我刚看集锦，脑东京是不是也有把影魔在高地装幻象来着，原来是致敬啊
+
+*****
+
+####  战狼PTSD  
+##### 918#       发表于 2022-8-5 14:27
+
+有啥集锦推荐下
+
+
+
+*****
+
+####  尸体鲨  
+##### 919#       发表于 2022-8-5 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠军C只打一轮major，打完还是要和东南亚黄脸婆过日子的
+看起来安皇没机会带着RNG处刑ame了
+
+*****
+
+####  逃离二次元  
+##### 920#       发表于 2022-8-5 14:46
+
+d畜不是铁血傻逼集美吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">他剪的集锦没法看，评论区畜牲报团，记得之前还专门剪个视频写《og原形毕露》
+
+
+
+*****
+
+####  walfeds  
+##### 921#       发表于 2022-8-5 15:04
+
+批站剪视频的部分不是集美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗都不看
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电锤再玩下去早晚不可拆分，烦不烦
+
+*****
+
+####  沈淮  
+##### 922#         楼主| 发表于 2022-8-5 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不可拆分那就要加卷轴了啊，标枪或者斧头得降价了
+
+
+
+*****
+
+####  焚尘  
+##### 923#       发表于 2022-8-5 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939341&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 14:11</a>
+
+又是这个b</blockquote>
+电锤哥，我吐了
+
+
+
+*****
+
+####  4591  
+##### 924#       发表于 2022-8-5 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939904&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 15:10</a>
+
+不可拆分那就要加卷轴了啊，标枪或者锤子得降价了</blockquote>
+标枪要是降价,我都不敢想.
+
+*****
+
+####  王宇旻❤潘婕  
+##### 925#       发表于 2022-8-5 15:29
+
+标枪降价好啊，人手金箍棒捅TM的
+
+
+
+*****
+
+####  百世诸侯  
+##### 926#       发表于 2022-8-5 15:32
+
+人手标枪，把VP打爆了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 莉拉厨| + 1|哇又在黑话|
+
+查看全部评分
+
+*****
+
+####  血狂毘沙门  
+##### 927#       发表于 2022-8-5 15:32
+
+比赛时间不太友善啊 谁能推荐几场值得看的 要精彩不要整蛊的
+
+*****
+
+####  王宇旻❤潘婕  
+##### 928#       发表于 2022-8-5 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940143&amp;ptid=2084957" target="_blank">血狂毘沙门 发表于 2022-8-5 15:32</a>
+
+比赛时间不太友善啊 谁能推荐几场值得看的 要精彩不要整蛊的</blockquote>
+11点场次的都还行
+
+*****
+
+####  天堂蜘蛛  
+##### 929#       发表于 2022-8-5 15:40
+
+因为霉鳖这个畜牲级小小打起团来就喜欢在上帝旁边站着然后被冰龙给一块儿大到被上帝A掉
+
+这炼金才不得不从打正面被迫转型为打切入每次打团都必须先把冰龙找到
+
+至于为什么冰龙和帕克对面两手控还得靠炼金来处理，你去问问这个小小和先知打团在干几把，哦还有个疯狂隐身的冠晴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然回到上帝这边双刀换BKB确实是个可以商榷的出装就是了
+
+*****
+
+####  AIDSL  
+##### 930#       发表于 2022-8-5 15:41
+
+我说啊，我真的很怀念MKB是两个标枪+振奋宝石的版本，可以增加一些力量平A核的登场率。
+
+
+
+*****
+
+####  沈淮  
+##### 931#         楼主| 发表于 2022-8-5 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940143&amp;ptid=2084957" target="_blank">血狂毘沙门 发表于 2022-8-5 15:32</a>
+
+比赛时间不太友善啊 谁能推荐几场值得看的 要精彩不要整蛊的</blockquote>
+eg跟aster第二盘蛮好看的
+
+*****
+
+####  王宇旻❤潘婕  
+##### 932#       发表于 2022-8-5 15:42
+
+厨子太难了，没Ti8G4的发挥都带不动
+
+*****
+
+####  phoenixxj  
+##### 933#       发表于 2022-8-5 15:44
+
+推荐杰出和链子哥解说的rng比赛。
+
+看这组合你就能想到这场面该多有趣。
+
+*****
+
+####  战狼PTSD  
+##### 934#       发表于 2022-8-5 15:49
+
+真怀念风行没被削的日子，6级裸标枪单杀一切，20级风步隐身25级减风步CD，移速没上限，电锤黑皇杖A杖全图起飞，想搞谁就搞谁
+
+*****
+
+####  聚散浮云  
+##### 935#       发表于 2022-8-5 15:49
+
+ 本帖最后由 聚散浮云 于 2022-8-5 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940217&amp;ptid=2084957" target="_blank">AIDSL 发表于 2022-8-5 15:41</a>
+
+我说啊，我真的很怀念MKB是两个标枪+振奋宝石的版本，可以增加一些力量平A核的登场率。 ...</blockquote>
+编辑：我的，记忆混乱了
+
+*****
+
+####  32196789  
+##### 936#       发表于 2022-8-5 15:51
+
+ANA不出BKB给队友养A是最快提升队伍战斗力的思路,结果RNG4个蠢货懂也不懂，能怪谁。
+
+还说不出BKB，复盘阵容，出BKB的一辈子也拿不到冠军。
+
+对面3大哥就PUCK一个大算半个控制，酱油大锤的锤算半个控制，真控制就冰龙大，问题是RNG这边法爆不够，打团肯定是对面能冰箱出来的拖时间的，你这个BKB打不死人，最后必然是冰箱耗过你BKB时间，然后反手一个冰龙大。
+
+所以ANA思路很明确，我冲进去吃技能，对面打不动我，给你小强一把A，躲后面地堡戳打点控制，给你小小一把A，躲后面扔石头打控制，扔树打输出，其他人别上看着ANA拆就行了，反正对面也就冰龙puck2个远程，伤害还低，遇上ANA炼金拆你高地没啥办法。
+
+结果队友全都傻逼一样。虽然我有A了，但是我就是要进去把V的伤害打出来的小小。虽然我有A了，但是我就是要顶着对面上去壳的小强，甚至守高地我还要埋塔前，而不是埋塔后。虽然我是个3号位先知，但是我要先出紫苑再出虚灵最后补暗灭然后和小小一起逛街死的先知。你能怎么办，估计ana心想，都是一群什么傻逼玩意。
+
+
+
+*****
+
+####  超人苏坦纳  
+##### 937#       发表于 2022-8-5 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940244&amp;ptid=2084957" target="_blank">phoenixxj 发表于 2022-8-5 15:44</a>
+
+推荐杰出和链子哥解说的rng比赛。
+
+看这组合你就能想到这场面该多有趣。</blockquote>
+有切片吗
+
+
+
+*****
+
+####  一品堂官  
+##### 938#       发表于 2022-8-5 16:04
+
+领先对面一万五的炼金 强势期被23整蛊搞得拿不了盾上高 难以想象一整场领先缺一个盾没控到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+怪不得养的第一个a给了kaka<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不会8号那场世纪**大春晚plus要对面施舍才能晋级吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 939#       发表于 2022-8-5 16:07
+
+要不卡神先带着上帝一起去给下面八磕一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  4591  
+##### 940#       发表于 2022-8-5 16:13
+
+可以看看蒙睿,今天晚上可能有鸡皇
+
+*****
+
+####  反方向的波  
+##### 941#       发表于 2022-8-5 16:13
+
+<img src="https://p.sda1.dev/6/0ea6d4529c4d70e263e8c4ccae29b633/Screenshot_2022-08-05-16-11-58-68_6e80cb6a5d3ffc593e03160aeb7095f8.jpg" referrerpolicy="no-referrer">
+杨沈怡盘中这个虚灵莲花真的把我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 942#       发表于 2022-8-5 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940461&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 16:07</a>
+
+要不卡神先带着上帝一起去给下面八磕一个</blockquote>
+不太懂其中瓜葛 可否指点一二
+
+*****
+
+####  izayoi39  
+##### 943#       发表于 2022-8-5 16:18
+
+那把看过比赛都知道那场bkb真没那么关键，除了最后2波炼金强势期过了的团战，前面就没有一波炼金因为大骨灰被搞死的团战
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TheCyrodiil  
+##### 944#       发表于 2022-8-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940461&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 16:07</a>
+
+要不卡神先带着上帝一起去给下面八磕一个</blockquote>
+讲道理上帝为啥要去磕，打完了回去找topson找个预选队杀就完事儿了啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 945#       发表于 2022-8-5 16:26
+
+黄毛非要回欧洲呀，欧洲区预选赛什么难度，留东南亚和厨子一起宰猪不好吗
+
+*****
+
+####  羽林军二十一  
+##### 946#       发表于 2022-8-5 16:26
+
+实事求是的说不否认2出点金手纯脑瘫，切入打得一坨屎什么跳进去跟大锤一换一，3出装完全没思路，这俩人要为输了付主要责任
+
+再说炼金该不该出bkb的问题
+1.炼金定位就是无解肥带队推塔拿盾上高，打架直接冲脸对面看不懂
+哪怕是为了a塔的容错出bkb也是不亏的，而且光看到ga挂着大骨灰往后跑的画面都好几次了
+
+2.小小先知在对面阵型不差的情况下都是开团后才能切到对面的后排，所以很依赖有个bkb大哥能把对面技能骗一些，阵型冲散一些
+
+而且这两个英雄都是切入之后没法轻易逃出战场二次切入的英雄，所以ga这种不出bkb逃出战场再打二次切入的打法对23压力很大
+
+3.安皇手活好，打团判断也准……但是他无解肥也确实是前期四个队友给了他不错的刷钱空间的也得承认
+
+总之我觉得ga十成锅他至少有一两成要背，而且就出在这个bkb上面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightmare902015  
+##### 947#       发表于 2022-8-5 16:27
+
+ 本帖最后由 nightmare902015 于 2022-8-5 16:29 编辑 
+
+现在炼金本来也不那么怕大骨灰，更何况ana这把有自己的魔晶药水和李斯的莲花和自己的闪灵。稍有优势的局面就完全可以应对对方点数不多的大骨灰。
+
+
+
+*****
+
+####  羽林军二十一  
+##### 948#       发表于 2022-8-5 16:34
+
+我发现你们说的很多都是对面怕不怕bkb，或者出bkb怕不怕对面技能的问题
+
+可是小小是不出bkb的，3号位先知是需要有大哥持续在正面战场才好发挥的。这俩英雄都是对己方大哥bkb依赖度很高的英雄，如果2玩的是个火猫什么的，ga不出bkb我觉得也能接受……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  战狼PTSD  
+##### 949#       发表于 2022-8-5 16:39
+
+[https://ngabbs.com/read.php?tid=32949299](https://ngabbs.com/read.php?tid=32949299)
+
+《铁血AXO》
+
+*****
+
+####  nowaki  
+##### 950#       发表于 2022-8-5 16:40
+
+当小小打团就知道找锤妹换命，3这废物玩意指望不上时，其实打正面是个伪命题，对面冰龙没人管你出bkb打正面对面能拖过你bkb时间。
+
+*****
+
+####  12481632  
+##### 951#       发表于 2022-8-5 16:40
+
+“提前交身份，铁血集美，别给我扣MXO的帽子，也不是反串，单纯看不惯你们看不懂比赛。”
+
+别尬黑，客观理性分析嗷<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  羽林军二十一  
+##### 952#       发表于 2022-8-5 16:45
+
+有冰龙拖过bkb时间对面也付出了很多成本的……再多的我上面也说了
+
+至于小小出点金那是纯脑瘫了……中单小小只有跳刀连击刀a杖大炮这一种出装，不这么出我觉得这英雄战斗力都不配打中
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 953#       发表于 2022-8-5 16:45
+
+怎么还有GA不出BKB要分锅的，那我要问问，都三十分钟了，小小出个大隐刀打谁，说白了就是四个人不抱着GA推，看med那把还没看出来吗，老北京还是那个老北京好吧，杀完人不知道怎么游戏胜利。
+
+*****
+
+####  王宇旻❤潘婕  
+##### 954#       发表于 2022-8-5 16:47
+
+你这游戏理解不行啊，这把GA打完出来只配说一句话：我的我的，我杀一百个就赢了呀
+
+*****
+
+####  羽林军二十一  
+##### 955#       发表于 2022-8-5 16:49
+
+我有说小小出装没问题？m根本就不会玩中单小小好吧
+我也不否认23发挥再好一点ga不出bkb也能赢这把
+
+我都说了是单说讨论ga出不出bkb这一个点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+至于rng优势不推塔抓着扫图扫着扫着迷茫了这是**病了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  4591  
+##### 956#       发表于 2022-8-5 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940714&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 16:26</a>
+
+实事求是的说不否认2出点金手纯脑瘫，切入打得一坨屎什么跳进去跟大锤一换一，3出装完全没思路，这俩人要为 ...</blockquote>
+谁把30分钟的局拖到50分钟,该抱团推高杀死比赛非要分散扫图让人抓导致被拖后谁全锅.
+
+
+
+*****
+
+####  羽林军二十一  
+##### 957#       发表于 2022-8-5 16:52
+
+Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是要看队友做不做人？
+
+说白了出bkb，队友压力就会小不少
+至于队友会不会犯罪，那是另外一码事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王宇旻❤潘婕  
+##### 958#       发表于 2022-8-5 16:55
+
+好好好，在一群弱智队友身边脑子正常也变成原罪了，你到底打不打dota，有没有过GA这种局的体验
+
+*****
+
+####  woyzeck  
+##### 959#       发表于 2022-8-5 16:55
+
+抓着炼金不出bkb喷和ti9抓着哈斯卡出强袭喷差不多，苛求大腿放过畜生
+
+*****
+
+####  izayoi39  
+##### 960#       发表于 2022-8-5 16:59
+
+这个ga该怎么打可以看一下憋茶打eg的第一把虽然阵容不一样但是整体打法节奏是很类似的，只要炼金安稳的控到第一个盾bkb根本就无所谓，这23在控盾周期莫名其妙的送了太拖局势了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  羽林军二十一  
+##### 961#       发表于 2022-8-5 17:00
+
+为了避免被当成洗地的我都说了那么多前提了
+是大家都在讨论出不出bkb我就给了自己的观点
+
+结果都是只输出情绪那我就没法回
+
+算了我以后不来这楼讨论了，怂了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 962#       发表于 2022-8-5 17:01
+
+<img src="https://p.sda1.dev/6/140777826fadb363816d996ae4dbb00f/CMP_20220805170050621.jpg" referrerpolicy="no-referrer">
+
+队内地位一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 963#       发表于 2022-8-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941149&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 17:00</a>
+
+为了避免被当成洗地的我都说了那么多前提了
+
+是大家都在讨论出不出bkb我就给了自己的观点</blockquote>
+因为你得出的结论一看就很云玩家思路知道不，如果看不懂就自己去调整，多打天梯
+
+*****
+
+####  王宇旻❤潘婕  
+##### 964#       发表于 2022-8-5 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941164&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 17:01</a>
+
+队内地位一目了然</blockquote>
+迷茫的厨子，边吃饭边思考怎么带这几个burden进Ti
+
+*****
+
+####  百世诸侯  
+##### 965#       发表于 2022-8-5 17:03
+
+快进到我最爱的下班回家晒天梯分环节
+
+*****
+
+####  Opisthoteuthis  
+##### 966#       发表于 2022-8-5 17:08
+
+卡神居然能坐在超哥旁边吃饭，李斯都不配上座<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 967#       发表于 2022-8-5 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个说法，安皇早出BKB现在就可以站在道德的制高点尽情地喷23畜生，不会留给他们一丝一毫洗地的空间
+
+*****
+
+####  聚散浮云  
+##### 968#       发表于 2022-8-5 17:10
+
+厨子想的应该是这所谓41战队队友这么菜就算了，这中餐点得又是什么cylx，远不如老子自己做的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 969#       发表于 2022-8-5 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我怎么看不到图
+
+
+
+*****
+
+####  nightmare902015  
+##### 970#       发表于 2022-8-5 17:12
+
+ 本帖最后由 nightmare902015 于 2022-8-5 17:13 编辑 
+
+说的也没错。安皇只能说对队友的熟悉程度棋差一招，早知道不要相信队友直接bkb就好了。
+别瞎说，安皇做菜的手法非常垃圾，至少上次听说的时候是这样。
+
+*****
+
+####  战狼PTSD  
+##### 971#       发表于 2022-8-5 17:13
+
+看完录像，GA的问题就是打的太团队了
+
+不养A给这帮博登自己出BKB确实能碾了，然而丢盾那波真的很伤，就算出BKB了也接不了团，然后等复活再刷一会就到后期还是没法打，GA这英雄后期真的很菜
+
+如果是我打路人肯定怎么爽怎么来，养个几把A<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 972#       发表于 2022-8-5 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941149&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 17:00</a>
+
+为了避免被当成洗地的我都说了那么多前提了
+
+是大家都在讨论出不出bkb我就给了自己的观点</blockquote>
+什么叫做输出情绪，很明显这把输和出不出BKB根本没关系，因为对面冰龙一直盯着，你出BKB装自己不怕冰龙？
+
+我来告诉你怎么输的：
+
+已知对面狼人剑圣，且夜魇是GA，肉山是能否扛住GA推进/GA获胜的必要因素；
+
+1、然后一代肉山，夜魇中路河道高坡眼，墨客刚在对面三角野区被抓，结果小小在中路吃帕克打死亡是吧；
+
+2、二代肉山，小强刺帕克，小小上来VT每秒帕克（问就是没有连击刀二连没打死，被冰箱救了），打完结果被黑龙单防，快死了开BKB直接冰龙大被GA打死是吧；
+
+3、三代肉山，小强刺大锤，小小丢树，对面帕克骑脸墨客，GA去找墨客，对面剑圣直接一个无敌斩，大隐刀小小选择第一时间开BKB，不开大隐刀是吧，直接斩加转死亡；
+
+这里也不点评，莲花虚灵无限飞先知，和地堡小小当剑圣面开壳送此类行为了，我就问这三波团需要GA BKB吗，如果你觉得和游戏胜利无关，我建议你先去打把天梯，看看实际游戏里面到底GA该怎么赢。
+
+*****
+
+####  蛭人  
+##### 973#       发表于 2022-8-5 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941334&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-5 17:13</a>
+
+看完录像，GA的问题就是打的太团队了
+
+不养A给这帮博登自己出BKB确实能碾了，然而丢盾那波真的很伤，就算出B ...</blockquote>
+只能说MLGB了，OG的GA身上永远有5个以上的BUFF，ceb玩个军团都能出莲花大牌子的，替补没队内地位啊。
+
+*****
+
+####  蛭人  
+##### 974#       发表于 2022-8-5 17:21
+
+现在国内真国人中单，S级这几个，还是ORI真的懂怎么赢，昨天茶队的比赛真不错，看什么RNG哦。
+
+
+
+*****
+
+####  战狼PTSD  
+##### 975#       发表于 2022-8-5 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941398&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-5 17:19</a>
+
+只能说MLGB了，OG的GA身上永远有5个以上的BUFF，ceb玩个军团都能出莲花大牌子的，替补没队内地位啊。 ...</blockquote>
+版本不同，现在大牌子不那么好出，查猪也出莲花有意针对了
+
+这把七成锅都是小小，错误的出装选择，神秘的冲脸暴毙，卡狗几次失误，关键节点输出杀不掉人，就炸
+
+这GA就算出了BKB也不一定能挽回局势，你这打肉山团前大哥就暴毙，4打5怎么打，视野都铺不出去
+
+*****
+
+####  nxmonitor  
+##### 976#       发表于 2022-8-5 17:30
+
+几波丢盾都和maybe有很大的关系，也不明白一个炼金四保一阵容炼金还是爆炸肥的前提下，为什么中单小小补点金手最后还要出物理装的，直接躺下出个法系装或者干脆保命装都能赢好吧……
+

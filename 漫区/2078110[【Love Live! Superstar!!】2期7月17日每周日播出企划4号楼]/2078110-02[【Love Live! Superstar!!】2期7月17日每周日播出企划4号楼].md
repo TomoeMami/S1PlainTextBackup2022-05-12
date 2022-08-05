@@ -4758,3 +4758,166 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 万一二期卖的比一期还差不是笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1972#       发表于 2022-8-5 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939211&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-5 13:57</a>
+万一二期卖的比一期还差不是笑死</blockquote>
+他们会说：圆盘的时代早就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  寒风夜  
+##### 1973#       发表于 2022-8-5 14:12
+
+你拉这唯一2比1卖爆就只有缪吧
+
+*****
+
+####  aoaoaodedede  
+##### 1974#       发表于 2022-8-5 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938816&amp;ptid=2078110" target="_blank">stygian 发表于 2022-8-5 13:09</a>
+
+突然上传不了图片，之前我在nga发过图https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879
+
+ ...</blockquote>
+好吧，我眼神不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前看了官网的main staff credit
+
+“音楽プロデューサー”这个职位一期动画是田村宏樹，二期动画就没写了，不过他之前好像转发了包含第3集俩个插曲的官推，确实官网分集Staff表的“協力”里有他<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1975#       发表于 2022-8-5 14:42
+
+我觉得三集下来二期动画已经濒临爆炸了，也幸亏你拉光荣传统动画和现实切割明显，不然二期生真是无以自处
+
+*****
+
+####  型月重工  
+##### 1976#       发表于 2022-8-5 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939211&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-5 13:57</a>
+万一二期卖的比一期还差不是笑死</blockquote>
+从销量领域来看 TV二期卖的比一期差右肩很正常，左肩才是少数。
+
+
+
+*****
+
+####  凡人  
+##### 1977#       发表于 2022-8-5 15:04
+
+二期生其他人先不说，刚有情报时第一眼觉得樱小路会和恋恋争倒一，后面知道是二期c我想怎么也不至于这么惨吧，现在我又开始怀疑了。
+
+*****
+
+####  ViyViy  
+##### 1978#       发表于 2022-8-5 15:09
+
+右肩很正常，但具体的是右多少，如果默认上三巡抽选的，实在太低的话要怎么解释，没人想现地了&amp;烂的连无脑抽选众都觉得多买一张很晦气？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ads147147  
+##### 1979#       发表于 2022-8-5 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939835&amp;ptid=2078110" target="_blank">凡人 发表于 2022-8-5 15:04</a>
+二期生其他人先不说，刚有情报时第一眼觉得樱小路会和恋恋争倒一，后面知道是二期c我想怎么也不至于这么惨 ...</blockquote>
+因为这个二期c本质上还是大香音传的挂件，nv如果是三期生，那么土妹子这个挂件身份就和小千一样最多撑一季，甚至可能一季都撑不住。
+
+这次的海报真的是，非常诚实的告诉了我们二期的基调了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  stygian  
+##### 1980#       发表于 2022-8-5 15:28
+
+感觉至少可以确定一点就是二期从插入曲到结尾裂啦之歌曲风大变和田村下台应该是有关系的
+
+
+
+*****
+
+####  adw667  
+##### 1981#       发表于 2022-8-5 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939642&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-5 14:42</a>
+
+我觉得三集下来二期动画已经濒临爆炸了，也幸亏你拉光荣传统动画和现实切割明显，不然二期生真是无以自处 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">别的不说，樱小路的配音水平是真的土，情绪越高就越尬
+
+*****
+
+####  仟音一心  
+##### 1982#       发表于 2022-8-5 15:58
+
+<img src="http://wx4.sinaimg.cn/mw1024/4508e79bly8h4vwxfseu9j21kw16ogtd.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 1983#       发表于 2022-8-5 16:00
+
+<img src="http://wx4.sinaimg.cn/orj360/4508e79bgy1h4vw4hzba6j20ku0fmacb.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/orj360/4508e79bgy1h4vw4ihvhaj21520us7be.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1984#       发表于 2022-8-5 16:02
+
+就动画来说我只想说一句，京极和花田能给Nagi叩个头吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">恋恋都快要查无此人，二期开播前都还在说不要贷款吃屎猜测谁会被边缘化，就前三集的表现除了香樱，其他人都得站边
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1985#       发表于 2022-8-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940301&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-5 15:50</a>
+
+别的不说，樱小路的配音水平是真的土，情绪越高就越尬</blockquote>
+之前我也在楼里说过感想，樱小路从角色到配音透着一股子不招人待见。相比之下青山姐棒读归棒读，至少不会产生让人脚趾抠地的效果……
+
+
+
+*****
+
+####  lj205  
+##### 1986#       发表于 2022-8-5 16:35
+
+除了配音，我觉得唱的也不咋样，当然应该是我的问题
+
+
+
+*****
+
+####  Erikas  
+##### 1987#       发表于 2022-8-5 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三期再搞一次迎新养成也没啥意思，感觉接下来还会给点三期生的线索，二期生就当垫板？（对樱小路好点吧
+之前就奇怪现在各种企划加新人都是设定拔尖的，隔壁怪咖女孩也不例外，咋就星二期这么没特色，结果还是资源往三期生上堆了吗
+
