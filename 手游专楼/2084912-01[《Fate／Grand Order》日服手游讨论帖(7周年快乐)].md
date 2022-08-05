@@ -2240,3 +2240,38 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">酋长根本没法救 直接大重做算了
 
+
+
+*****
+
+####  exiaexa  
+##### 232#       发表于 2022-8-5 20:44
+
+酋长估计得连开三个技能本
+
+用呆毛的技能，开什么魔放指令卡全部变成什么色
+
+大概有那么点卵用
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 233#       发表于 2022-8-5 20:48
+
+杰罗尼莫直接加个100自充还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 234#       发表于 2022-8-5 20:48
+
+酋长蓝魔放改成2000%持续5T吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 235#       发表于 2022-8-5 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如改成宝具变色而且是不用其他技能就不会再变的那种 不然还是没屁用 毕竟3星术的指令卡打伤害纯粹是想多了
+

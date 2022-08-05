@@ -1647,3 +1647,15 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 147#       发表于 2022-8-5 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939687&amp;ptid=2084988" target="_blank">sslink 发表于 2022-8-5 14:48</a>
+
+想了想要是出后传真正讲两世界融合的话感觉xb3本体很虚无</blockquote>
+现在就很虚无啊，我甚至不想做那些乱七八糟的支线，反正结局全部木大了，艾欧尼亚都不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，甚至我觉得xb3里所有的npc和队友仿佛都是虚假的信息生成物
+
