@@ -7639,3 +7639,47 @@ lgd首胜都能上b站热搜，吐了吐了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 914#       发表于 2022-8-5 14:21
+
+ 本帖最后由 外挂全家脚气 于 2022-8-5 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939341&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 14:11</a>
+
+又是这个b</blockquote>
+这个B打TS的第一局最后，站高地门口发呆，牙脱落上高还以为是个幻象没理他，然后他突然动了就被发现是真身集火秒了
+
+*****
+
+####  Shih0_Matsuri  
+##### 915#       发表于 2022-8-5 14:21
+
+就RNG这个中期迷路水平还船长龙骑呢，无解肥船长拖到后期没声音，龙骑继续出点金整蛊
+
+*****
+
+####  AIDSL  
+##### 916#       发表于 2022-8-5 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939341&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 14:11</a>
+
+又是这个b</blockquote>
+手动拆雷锤dota，best dota
+
+*****
+
+####  seki_m  
+##### 917#       发表于 2022-8-5 14:24
+
+我刚看集锦，脑东京是不是也有把影魔在高地装幻象来着，原来是致敬啊
+
+*****
+
+####  战狼PTSD  
+##### 918#       发表于 2022-8-5 14:27
+
+有啥集锦推荐下
+
