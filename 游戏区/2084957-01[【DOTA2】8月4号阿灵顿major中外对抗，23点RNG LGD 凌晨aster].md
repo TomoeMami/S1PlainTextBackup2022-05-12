@@ -7613,3 +7613,29 @@ lgd首胜都能上b站热搜，吐了吐了
 <img src="https://p.sda1.dev/6/0944e3ead914ec6550fbb6fba2248699/CMP_20220805141041034.jpg" referrerpolicy="no-referrer">
 又是这个b
 
+
+
+*****
+
+####  小19  
+##### 912#       发表于 2022-8-5 14:12
+
+<blockquote>沈淮 发表于 2022-8-5 10:11
+哎对了，我去年听漏油说一个队只能有两个不是本赛区籍的选手来着？
+
+为啥eg就一个加拿大籍的rtz也能登记成 ...</blockquote>
+他拿吃屎狗的规矩管dota2呢。
+
+*****
+
+####  羽林军二十一  
+##### 913#       发表于 2022-8-5 14:19
+
+单论游戏内容ga还是要出bkb的
+一个冲阵坦克被ana玩成了切入刺客
+虽然安皇切入美如画，但是明显其余四个不适应他这么玩
+
+还好圣霉皇早就预料到了，提前拖出点金手惩罚厨子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

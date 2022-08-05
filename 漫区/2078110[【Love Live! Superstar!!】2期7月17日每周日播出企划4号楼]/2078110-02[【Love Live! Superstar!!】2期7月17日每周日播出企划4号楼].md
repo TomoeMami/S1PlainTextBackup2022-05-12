@@ -4771,3 +4771,28 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  寒风夜  
+##### 1973#       发表于 2022-8-5 14:12
+
+你拉这唯一2比1卖爆就只有缪吧
+
+*****
+
+####  aoaoaodedede  
+##### 1974#       发表于 2022-8-5 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938816&amp;ptid=2078110" target="_blank">stygian 发表于 2022-8-5 13:09</a>
+
+突然上传不了图片，之前我在nga发过图https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879
+
+ ...</blockquote>
+好吧，我眼神不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前看了官网的main staff credit
+
+“音楽プロデューサー”这个职位一期动画是田村宏樹，二期动画就没写了，不过他之前好像转发了包含第3集俩个插曲的官推，确实官网分集Staff表的“協力”里有他<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
