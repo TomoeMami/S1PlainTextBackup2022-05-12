@@ -2155,3 +2155,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外星人强化还是宝具本靠点谱 技能本我只想到了阿荣的迷之强化
 
+
+
+*****
+
+####  exiaexa  
+##### 224#       发表于 2022-8-5 17:23
+
+MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好处是紫式部自己1.3*1.3还有特攻宝具本输出管够
+
+不动用鹤的情况下，暂时就想到公主紫式部C呆+太公望/船长
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
