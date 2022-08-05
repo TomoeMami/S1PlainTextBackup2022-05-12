@@ -8384,3 +8384,36 @@ kaka这小强也没看到养a的意义<img src="https://static.saraba1st.com/ima
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 985#       发表于 2022-8-5 18:33
+
+卡狗的司夜刺客（dota2英雄）暗影萨满莱恩这版本都是垃圾中的垃圾，能不能别选了
+
+*****
+
+####  Litccc  
+##### 986#       发表于 2022-8-5 18:35
+
+小小的a杖加强之后挺好用的，选取树木范围非常大，之前看topson直播的时候把出，而且连击刀的减速bug还是没修<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 987#       发表于 2022-8-5 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942133&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-5 18:19</a>
+
+有bkb是不怕啊开bkb冰龙就只能把大点你头上了。二代肉山秒puck那波小小vt完后撤不就是为了防止冰龙 ...</blockquote>
+可惜的是，这三波只有二代肉山小小是被冰龙大打死的啊，而且被黑龙单防的小小；已知小小有BKB，夜魇四人组在神秘商店，对方四个人在高塔眼附近，满血小小黑龙两头小狼啃成残血不开BKB TP先骗冰龙大，就会被大锤单防后开BKB骗GA过来打是吧；而且按照你的逻辑，出BKB冰龙给大GA，另外这四兄弟，怎么打剑圣狼人，是靠飞人群紫苑JUGG死亡后虚灵莲花无限飞的先知，还是跳刀隐刀打团被JUGG单防的小小？这也能分锅，得亏med那把赢了，我只能说OG双冠还是少了，不是这疫情，多打一年，看看人各个位置胜利的方式好吧，怎么获得游戏胜利，还得酬勤。
+
+*****
+
+####  woyzeck  
+##### 988#       发表于 2022-8-5 18:40
+
+小小出a都是远距离给v扔树 如果没死再跳上去t 我老北京是跳上去vt当脸扔树
+

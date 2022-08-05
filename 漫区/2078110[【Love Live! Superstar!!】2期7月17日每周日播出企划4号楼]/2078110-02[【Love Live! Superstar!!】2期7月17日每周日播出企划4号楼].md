@@ -4980,3 +4980,16 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 因为以我个人非常简单和浅显的理解，都是solo出道的人了，被选上再怎么也不至于垫底或者看不得吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 1995#       发表于 2022-8-5 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942010&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-5 18:09</a>
+看到隔壁讨论回了当初可可（鲤鱼）唱歌，我不懂音乐更不懂唱歌，有点好奇当初刚宣布声优和一单发售活动之前 ...</blockquote>
+鲤鱼始空那会还用的是很尖细的可可音 我的看法是老五里她和nako多少因为要顾及角色音很不好发声和正确共鸣，pay酱nagi和小百合和地声差别就不是很大，就不会因为照顾角色音而这样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
