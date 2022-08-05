@@ -7131,3 +7131,37 @@ misha连大马的签证都过不了，esl还是没他，感觉这哥们离被踢
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  暴走的包子  
+##### 862#       发表于 2022-8-5 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对鳖星来说东南亚猴子就是硬骨头了啊，懂又不懂
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  撒撒  
+##### 863#       发表于 2022-8-5 09:53
+
+rng还是换教练吧，super，BP不行，也压不住2，3。357还在赋闲吗？甚至觉得rotk都比super强。rng如果要打预选还是想办法留住ana。
+
+*****
+
+####  windhawind2  
+##### 864#       发表于 2022-8-5 09:56
+
+平时在刀楼玩建政图一乐勉强算了 tm比赛时间段也要玩的有病？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  lyuhiu  
+##### 865#       发表于 2022-8-5 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ana现在哪点比阿鬼强啊，吃经济英雄池又不行，对线还尿，就指望大后期打死人？
+

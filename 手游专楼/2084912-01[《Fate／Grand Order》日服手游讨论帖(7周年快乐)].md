@@ -1828,3 +1828,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为你有随时掏出6个羁绊石头和20EQP的能力，自然不用刷什么无限池
 
+
+
+*****
+
+####  yzj134100  
+##### 193#       发表于 2022-8-5 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻吊游戏还不开扫荡，最近的新卡全部111懒得玩，难道KPI只算登录人数而不是在线人数吗
+
