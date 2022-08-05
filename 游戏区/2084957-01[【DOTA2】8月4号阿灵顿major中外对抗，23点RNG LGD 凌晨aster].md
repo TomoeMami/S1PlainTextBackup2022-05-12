@@ -6649,3 +6649,21 @@ ctmd霉醋天天给集美送子弹<img src="https://static.saraba1st.com/image/s
 
 女装C果然是茶队最÷的选手
 
+
+
+*****
+
+####  walfeds  
+##### 804#       发表于 2022-8-5 08:15
+
+万丈光芒啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 805#       发表于 2022-8-5 08:16
+
+boboka这个小强有点搞笑了
+
