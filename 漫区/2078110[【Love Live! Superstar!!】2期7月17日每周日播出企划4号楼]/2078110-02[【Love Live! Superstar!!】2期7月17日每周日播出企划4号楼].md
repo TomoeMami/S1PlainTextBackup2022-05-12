@@ -4758,3 +4758,16 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 万一二期卖的比一期还差不是笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1972#       发表于 2022-8-5 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939211&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-5 13:57</a>
+万一二期卖的比一期还差不是笑死</blockquote>
+他们会说：圆盘的时代早就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
