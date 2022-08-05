@@ -5177,3 +5177,40 @@ non至少今年唱上不用太指望，现在出来这几首毫无技巧可言�
 
 Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起来去听
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 2014#       发表于 2022-8-5 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945185&amp;ptid=2078110" target="_blank">stygian 发表于 2022-8-5 21:56</a>
+ non至少今年唱上不用太指望，现在出来这几首毫无技巧可言，只能靠感情顶  不过话又说回来了，我是觉得五老 ...</blockquote>
+毕竟喜欢一个团最大的理由，就是小偶像们足够优秀啊……塞新人可以，拉后腿不行，新人如果不比老人强，那得多可爱才能加推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（问题是在可爱这个方面差距更大
+
+*****
+
+####  iuhehc  
+##### 2015#       发表于 2022-8-5 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945446&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-5 22:18</a>
+
+单纯的粉丝：电锯人！！！！！！作画太帅了5555555555我的蕾塞什么时候来啊！！！  ...</blockquote>
+看horipro能不能给点
+
+*****
+
+####  player3960  
+##### 2016#       发表于 2022-8-5 22:26
+
+反正三巡这些曲子都要听到吐，我现在都懒得听完整版，希望live上能让我悸动一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 2017#       发表于 2022-8-5 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画还是看看隔壁异眼丁真偶像吧 目前还挺好看的
+

@@ -9116,3 +9116,213 @@ yy://pd-[sid=1461589846&amp;subid=1461589846]</blockquote>
 
 woc这个是A畜嘴里冠绝100多名的猪，有好戏看了
 
+
+
+*****
+
+####  一品堂官  
+##### 1067#       发表于 2022-8-5 22:22
+
+来了来了 认完亲属看比赛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1068#       发表于 2022-8-5 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怎么感觉漏油们找枪了
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  京吹病人  
+##### 1069#       发表于 2022-8-5 22:23
+
+哈人 冠绝136
+
+*****
+
+####  ArowRocher  
+##### 1070#       发表于 2022-8-5 22:24
+
+100多排名哥来泥潭这么low的地方聊游戏理解，保留一丝丝怀疑。
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1071#       发表于 2022-8-5 22:25
+
+哈人，我认输，我顶多叫人帮上分，你这拉个青训职业选手还是小号是吧
+
+*****
+
+####  masterffzhou  
+##### 1072#       发表于 2022-8-5 22:25
+
+我超136，这还打nm啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  羽林军二十一  
+##### 1073#       发表于 2022-8-5 22:25
+
+人呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  银翼的维罗西  
+##### 1074#       发表于 2022-8-5 22:25
+
+打了没有，如果楼友不嫌弃我个人给获胜水友赞助一顿疯狂星期四，鹅我前几天菠菜输光了没有了
+
+这才有刀狗的风范嘛，列观点讲道理，实在不服就干嘛，前段时间缩卵集美马后炮太监横行真是令人作呕
+
+*****
+
+####  mkii量产型  
+##### 1075#       发表于 2022-8-5 22:26
+
+两边分数多少，漏油门报一下
+
+*****
+
+####  woyzeck  
+##### 1076#       发表于 2022-8-5 22:26
+
+100多名都来了 太离谱了
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1077#       发表于 2022-8-5 22:26
+
+你可能不知道，你这个号在过去12小时里打了14把
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| masterffzhou|-1|建议先打一盘验验成色再说别的好吧.|
+
+查看全部评分
+
+*****
+
+####  聚散浮云  
+##### 1078#       发表于 2022-8-5 22:26
+
+漏油刚才还专门打一盘GA出BKB证明一下自己么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然被队友女王带了
+
+*****
+
+####  逃离二次元  
+##### 1079#       发表于 2022-8-5 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1080#       发表于 2022-8-5 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">100名哥10月18号那几天的发言有点哈人了，看来你🔪确实药丸
+
+
+
+*****
+
+####  nightmare902015  
+##### 1081#       发表于 2022-8-5 22:27
+
+别这么怂啊，tmd借号或者公车号也很有可能。先solo一把试试看啊
+开黑也行，试试水平。
+
+*****
+
+####  羽林军二十一  
+##### 1082#       发表于 2022-8-5 22:28
+
+要不开个麦开黑，我用ga?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  银翼的维罗西  
+##### 1083#       发表于 2022-8-5 22:28
+
+你怂啥，输给冠绝又不丢人，这就缩卵了
+
+*****
+
+####  京吹病人  
+##### 1084#       发表于 2022-8-5 22:29
+
+eesama是炒饭  另外一个是冠绝136
+
+*****
+
+####  walfeds  
+##### 1085#       发表于 2022-8-5 22:29
+
+这nm，136的排名哥为什么之前能怂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羽林军二十一  
+##### 1086#       发表于 2022-8-5 22:29
+
+半个公车号，以前打广告用的，还来不来了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  masterffzhou  
+##### 1087#       发表于 2022-8-5 22:31
+
+漏油:完了，这下我成半月蝶莲了
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 1088#       发表于 2022-8-5 22:31
+
+看了冠绝哥发言 该基德了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Cookiekira  
+##### 1089#       发表于 2022-8-5 22:31
+
+缩了缩了
+
+*****
+
+####  羽林军二十一  
+##### 1090#       发表于 2022-8-5 22:32
+
+不来我继续玩ga去了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ArowRocher  
+##### 1091#       发表于 2022-8-5 22:32
+
+突然想起，如果分高说了算，咸阳C++爱好者也算有话语权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
