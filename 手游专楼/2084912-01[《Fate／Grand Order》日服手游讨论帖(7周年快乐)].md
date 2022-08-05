@@ -1950,3 +1950,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  yangun22  
+##### 203#       发表于 2022-8-5 14:49
+
+有啥心情，这群人私交好的很，能拿出来说肯定就是写之前开个会，武内提出这个东出直接好啊之类的，别把TM当成啥正规公司，他们本质还是个小圈子同人团体制作模式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

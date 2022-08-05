@@ -4796,3 +4796,21 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 “音楽プロデューサー”这个职位一期动画是田村宏樹，二期动画就没写了，不过他之前好像转发了包含第3集俩个插曲的官推，确实官网分集Staff表的“協力”里有他<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1975#       发表于 2022-8-5 14:42
+
+我觉得三集下来二期动画已经濒临爆炸了，也幸亏你拉光荣传统动画和现实切割明显，不然二期生真是无以自处
+
+*****
+
+####  型月重工  
+##### 1976#       发表于 2022-8-5 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939211&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-5 13:57</a>
+万一二期卖的比一期还差不是笑死</blockquote>
+从销量领域来看 TV二期卖的比一期差右肩很正常，左肩才是少数。
+

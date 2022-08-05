@@ -7683,3 +7683,20 @@ lgd首胜都能上b站热搜，吐了吐了
 
 有啥集锦推荐下
 
+
+
+*****
+
+####  尸体鲨  
+##### 919#       发表于 2022-8-5 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠军C只打一轮major，打完还是要和东南亚黄脸婆过日子的
+看起来安皇没机会带着RNG处刑ame了
+
+*****
+
+####  逃离二次元  
+##### 920#       发表于 2022-8-5 14:46
+
+d畜不是铁血傻逼集美吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">他剪的集锦没法看，评论区畜牲报团，记得之前还专门剪个视频写《og原形毕露》
+
