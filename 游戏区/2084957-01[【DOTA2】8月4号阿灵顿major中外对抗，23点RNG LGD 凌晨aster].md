@@ -7321,3 +7321,26 @@ a圣又在编四字词语了
 
 别给a圣画面
 
+
+
+*****
+
+####  遍体精淋af  
+##### 879#       发表于 2022-8-5 11:03
+
+a圣先把自己的队伍搞出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 880#       发表于 2022-8-5 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，相信安皇
+
+*****
+
+####  a1370303  
+##### 881#       发表于 2022-8-5 11:11
+
+好呀好呀，a圣还在word建队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1892,3 +1892,22 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  exiaexa  
+##### 199#       发表于 2022-8-5 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936856&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-5 10:24</a>
+
+隔壁不是正在热闹吗，赶快去围观或者拱火啊</blockquote>
+车妖兰和欧罗拉没意思啊
+
+欧罗拉是阿菌躺平了的受害者，妖兰是被绑着一起被害的
+
+这俩怎么车也解决不了剧情
+
+问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
