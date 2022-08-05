@@ -8993,3 +8993,19 @@ solo呢，蹲个观战
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  反方向的波  
+##### 1052#       发表于 2022-8-5 21:47
+
+gkd，11点比赛都要开始了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 1053#       发表于 2022-8-5 21:50
+
+中立YY号发一下吧
+
