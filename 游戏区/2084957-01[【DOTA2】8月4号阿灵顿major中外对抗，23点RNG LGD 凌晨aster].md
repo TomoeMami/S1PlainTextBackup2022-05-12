@@ -8783,3 +8783,40 @@ tm是怎么翻成这样的。。。</blockquote>
 
 solo开打了留个观战位
 
+
+
+*****
+
+####  walfeds  
+##### 1026#       发表于 2022-8-5 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943887&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 20:28</a>
+
+。。。。。。。
+
+完美app的小编四级能考到400分吗我很怀疑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在我很确信文章是俄文版机翻过来的，才会出现天梯前四十的hare这种奇葩玩意
+
+*****
+
+####  Litccc  
+##### 1027#       发表于 2022-8-5 20:37
+
+[你这TI太假了-哔哩哔哩] [[https://b23.tv/oEvsI5X](https://b23.tv/oEvsI5X)]
+
+点进去之前没想到有这么好笑
+
+*****
+
+####  名字不乱取  
+##### 1028#       发表于 2022-8-5 20:39
+
+什么时候开打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 1029#       发表于 2022-8-5 20:40
+
+我不装了我没有客户端，你们有客户端的能不能赶快solo起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

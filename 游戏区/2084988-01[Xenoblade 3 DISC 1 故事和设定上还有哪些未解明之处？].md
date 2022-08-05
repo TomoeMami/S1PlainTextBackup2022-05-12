@@ -1635,3 +1635,15 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 说的好像讲一个消失了的世界几千年前的事情就不虚无了。更何况和本篇几乎是毫无关系。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 146#       发表于 2022-8-5 20:39
+
+还是后日谈吧
+希望如此
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

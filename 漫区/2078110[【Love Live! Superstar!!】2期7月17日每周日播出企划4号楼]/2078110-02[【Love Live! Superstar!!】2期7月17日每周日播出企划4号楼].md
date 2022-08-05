@@ -5088,3 +5088,19 @@ vn的solo演出都是3d模型，能是sp那种扣的就给几个分镜的手绘�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 2005#       发表于 2022-8-5 20:31
+
+可堇是第一季就玩过（较为用力过猛的）欲扬先抑了，很难想象第二季还会再来一遍，除非追飞机回打我脸
+
+*****
+
+####  稀勢のささ  
+##### 2006#       发表于 2022-8-5 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋：翻盘机会都是你们的
+
