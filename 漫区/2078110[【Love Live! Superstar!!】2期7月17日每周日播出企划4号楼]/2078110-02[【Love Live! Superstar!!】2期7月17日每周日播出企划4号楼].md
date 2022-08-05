@@ -5258,3 +5258,29 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 不如猜猜sma之后会不会把pay酱塞进去
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2022#       发表于 2022-8-5 22:53
+
+感觉真别当Horipro有多少声优方向上的资源，像Hego，马池口她们出名一点的角色貌似也多是跨媒体企划的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 2023#       发表于 2022-8-5 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945856&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-5 22:53</a>
+
+感觉真别当Horipro有多少声优方向上的资源，像Hego，马池口她们出名一点的角色貌似也多是跨媒体企划的吧[f: ...</blockquote>
+所以我觉得能拿到个工具人角色都算厉害了
+
+*****
+
+####  稀勢のささ  
+##### 2024#       发表于 2022-8-5 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得看MAPPA那边怎么搞  纯中文对话的话应该还是能捞一个后宫角的 吧
+

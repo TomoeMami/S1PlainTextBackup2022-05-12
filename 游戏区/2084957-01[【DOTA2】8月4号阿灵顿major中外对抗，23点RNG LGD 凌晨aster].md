@@ -9629,3 +9629,66 @@ solo输了游戏理解又不一定输是吧<img src="https://static.saraba1st.co
 
 这个更像两边都是皮套人
 
+
+
+*****
+
+####  JoelBirch  
+##### 1129#       发表于 2022-8-5 22:54
+
+真J8鳖啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1130#       发表于 2022-8-5 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945840&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 22:52</a>
+
+你也是？</blockquote>
+我属于弃暗投明！
+
+*****
+
+####  ArowRocher  
+##### 1131#       发表于 2022-8-5 22:55
+
+还是看看100名以内的人打DOTA吧
+
+*****
+
+####  ninini212  
+##### 1132#       发表于 2022-8-5 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比赛开了，我去看比赛了，你们家有
+
+*****
+
+####  12481632  
+##### 1133#       发表于 2022-8-5 22:56
+
+我去看比赛了，记得来点repo
+
+*****
+
+####  逃离二次元  
+##### 1134#       发表于 2022-8-5 22:59
+
+半月蝶莲竟是我自己
+
+*****
+
+####  反方向的波  
+##### 1135#       发表于 2022-8-5 23:00
+
+在打了，刘畅复出后首秀竟是你楼
+
+*****
+
+####  IG.430  
+##### 1136#       发表于 2022-8-5 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945935&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-5 23:00</a>
+在打了，刘畅复出后首秀竟是你楼</blockquote>
+111，哥真刘畅吗？
+
