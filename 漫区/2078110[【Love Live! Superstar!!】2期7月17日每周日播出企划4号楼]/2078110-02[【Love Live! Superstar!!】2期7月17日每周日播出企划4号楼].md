@@ -5304,3 +5304,26 @@ Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cat1230  
+##### 2027#       发表于 2022-8-5 23:33
+
+看了下鲤鱼的微博，原来她这么喜欢电锯人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这两年别的新番更新也没见她如此激动，好像最近比较喜欢的就间谍，还说要出COS（哪天COS啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+那如果能捞个边边角角确实意义不一样<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 2028#       发表于 2022-8-5 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945615&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-5 22:31</a>
+
+要不，光熙的后宫选一个？</blockquote>
+光熙的后宫好像也就一个人台词，没得选的
+
