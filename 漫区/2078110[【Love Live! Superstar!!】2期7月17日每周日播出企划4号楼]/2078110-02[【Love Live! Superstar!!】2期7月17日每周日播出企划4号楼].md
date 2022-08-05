@@ -4830,3 +4830,18 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 右肩很正常，但具体的是右多少，如果默认上三巡抽选的，实在太低的话要怎么解释，没人想现地了&amp;烂的连无脑抽选众都觉得多买一张很晦气？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1979#       发表于 2022-8-5 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939835&amp;ptid=2078110" target="_blank">凡人 发表于 2022-8-5 15:04</a>
+二期生其他人先不说，刚有情报时第一眼觉得樱小路会和恋恋争倒一，后面知道是二期c我想怎么也不至于这么惨 ...</blockquote>
+因为这个二期c本质上还是大香音传的挂件，nv如果是三期生，那么土妹子这个挂件身份就和小千一样最多撑一季，甚至可能一季都撑不住。
+
+这次的海报真的是，非常诚实的告诉了我们二期的基调了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

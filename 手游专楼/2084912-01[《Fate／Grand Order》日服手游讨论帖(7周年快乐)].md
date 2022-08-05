@@ -1992,3 +1992,19 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 别什么2。6了  该奶奶小王子怎么强化了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶，怎么强化的每一个从者你都有啊
 
+
+
+*****
+
+####  rooarr  
+##### 208#       发表于 2022-8-5 15:17
+
+开宝具本就差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 209#       发表于 2022-8-5 15:19
+
+隔壁国服除了车妖兰就是黑奥伯龙的自称，无聊死了23333
+
