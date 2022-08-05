@@ -8311,3 +8311,65 @@ Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是
 
 出bkb就是为了不背锅，对面冰龙是不会因为你有bkb就自动暴毙的。是观众没理由怪1号位了。
 
+
+
+*****
+
+####  沈淮  
+##### 979#         楼主| 发表于 2022-8-5 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941164&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 17:01</a>
+队内地位一目了然</blockquote>
+被冷暴力了
+
+*****
+
+####  莉拉厨  
+##### 980#       发表于 2022-8-5 18:16
+
+今晚赛程挺阳间的，1点看完就睡
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 981#       发表于 2022-8-5 18:16
+
+今晚赛程挺阳间的，1点看完就睡
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 982#       发表于 2022-8-5 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941358&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-5 17:16</a>
+
+什么叫做输出情绪，很明显这把输和出不出BKB根本没关系，因为对面冰龙一直盯着，你出BKB装自己不怕冰龙？ ...</blockquote>
+有bkb是不怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有一个bkb的话冰龙大bkb的人就基本等于没出。这把小小先知背大锅也不意味着ga不出bkb出双刀就不用背锅了。至少这把我没看到双刀比bkb好的地方。
+
+*****
+
+####  一品堂官  
+##### 983#       发表于 2022-8-5 18:19
+
+作为一个菜鸡 觉得ga30分钟出bkb 真不一定有给小强出a帮助大 
+
+点开录像 28分钟开始 小强小小先手杀park失败被冰箱救了 大锤跳 小小跳刀到开大炼金身边 冰龙大 小小被杀（）
+
+3人包夹小强 查理斯飞回来没bkb想反打送了 4人团灭 （回看一下这传送回来反打送挺抽象的 因为三角区夜宴没有视野）
+
+炼金二次切入杀了冰龙tp回家刚好出到力量大跳刀 
+
+29分钟22秒对方拿到不朽盾
+
+30分20秒切了预购栏这里ana抉择是继续把力量跳做出来 还有一个选择是卖掉卷轴再点钱出bkb 同样是加强生存 bkb站一个格子并且防不了冰龙大 亏钱且没有战术意义
+
+其实这时候30min作为炼金已经没有选择了 唯一赢面就是完美先手对面一个大哥 或者拉扯先杀冰龙 再杀买活的冰龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+给队友出a能大幅提高团战的容错 一点问题都没有
+
+不少漏油说话是难听了一点 但是脑浆选手就要指出来 正常发挥的、尽力选手就应该赞扬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
