@@ -8580,3 +8580,31 @@ ceb从来就不喜欢毛子。
 
 雅利德大师赛最搞笑的大概是他当解说对王蠢鱼一顿吹结果还真有集美搬运表示萧瑟giegie多棒。
 
+
+
+*****
+
+####  羽林军二十一  
+##### 1005#       发表于 2022-8-5 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941180&amp;ptid=2084957" target="_blank">王宇旻❤潘婕 发表于 2022-8-5 17:02</a>
+因为你得出的结论一看就很云玩家思路知道不，如果看不懂就自己去调整，多打天梯 ...</blockquote>
+一口一个云玩家
+报id来solo认爹局？让我看看您有多厉害？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sabbah  
+##### 1006#       发表于 2022-8-5 19:26
+
+漏油的中山公园局就没约成功过，这次估计是要成了
+
+*****
+
+####  qwas  
+##### 1007#       发表于 2022-8-5 19:28
+
+不是，gpk开播时对vp的展望是拿个前六就行，这样一想，vp这表现还不错<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
