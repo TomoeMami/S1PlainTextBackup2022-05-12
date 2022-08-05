@@ -5151,3 +5151,29 @@ non至少今年唱上不用太指望，现在出来这几首毫无技巧可言�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  仟音一心  
+##### 2011#       发表于 2022-8-5 22:18
+
+单纯的粉丝：电锯人！！！！！！作画太帅了5555555555我的蕾塞什么时候来啊！！！ 
+
+*****
+
+####  ViyViy  
+##### 2012#       发表于 2022-8-5 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56945296&amp;ptid=2078110" target="_blank">player3960 发表于 2022-8-5 22:04</a>
+
+这是要学马裤骡丝吗？剧情重编，歌曲全换，那起码得上两部剧场版，虽然我觉得也不是不行，不过明显没那个商 ...</blockquote>
+确实没那价值，反正最坏的就是把星顶耻辱柱上，而且重置了就默认自己确实做的烂，它企划肯定不会干的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2013#       发表于 2022-8-5 22:19
+
+Op卖了几天了，我却不像去年那样无限循环，甚至完全想不起来去听
+
