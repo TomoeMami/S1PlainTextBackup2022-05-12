@@ -658,3 +658,69 @@ ANA真拉仇恨啊，越来越有TI味道了<img src="https://static.saraba1st.c
 
 春晚能不能在淘汰赛上演啊
 
+
+
+*****
+
+####  北欧王座  
+##### 1587#       发表于 2022-8-6 06:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947698&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-6 06:33</a>
+
+不用等TI好吧，玩个GA天天自爆，节目效果拉满，然后看赵云表演。</blockquote>
+赵云太屌了啊，23458搞那么厉害干什么
+
+*****
+
+####  莉拉厨  
+##### 1588#       发表于 2022-8-6 06:43
+
+起床看茶队挨打了xdm，这RNG两把真精彩啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 1589#       发表于 2022-8-6 06:45
+
+8.8 3点，春晚
+
+*****
+
+####  百世诸侯  
+##### 1590#       发表于 2022-8-6 06:46
+
+不是，雪碧怎么就被EG2:0了
+
+
+
+*****
+
+####  izayoi39  
+##### 1591#       发表于 2022-8-6 06:48
+
+因为脑东京线弱啊，aded这漏斗型中单最强的就是对线把脑东京打穿了呗
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北欧王座  
+##### 1592#       发表于 2022-8-6 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947723&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-6 06:46</a>
+
+不是，雪碧怎么就被EG2:0了</blockquote>
+第一把虐了eg三四十分种乱杀，然后脑浆带盾横着走被谜团两个拉大，大哥一个买都没有熊德拆家直接带走。第二把正常打被打爆了
+
+*****
+
+####  slaysleepslow  
+##### 1593#       发表于 2022-8-6 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947723&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-6 06:46</a>
+不是，雪碧怎么就被EG2:0了</blockquote>
+第一把犯病大优势被一波基地翻盘 只用看最后一波团就知道怎么回事了
+第二把算是被碾压
+
