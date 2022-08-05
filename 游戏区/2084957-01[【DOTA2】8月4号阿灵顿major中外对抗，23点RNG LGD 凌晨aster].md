@@ -8511,3 +8511,59 @@ kaka这小强也没看到养a的意义<img src="https://static.saraba1st.com/ima
  扔树减速效果现在对树木连掷同样生效
 那不是连击刀减速是扔树本来就有的减速
 
+
+
+*****
+
+####  蛭人  
+##### 998#       发表于 2022-8-5 19:01
+
+我要是没看比赛就信了，被大骨灰单防的GA这种太监论坛的结论，首先17分钟的大骨灰，此时GA辉耀双刀，肉山第一波，小小怎么死的就不复习了，小小墨客刚活，正面先知GA小强三个人，冰龙小强一换一，GA掩护先知撤退；24分钟GA强袭小晕锤打死对面四个；25分钟帕克再次阵亡；时间来到第二波肉山，这里也不复习了，我就想问，大骨灰单防GA的说法怎么来得？这几波GA没顶着大骨灰把对面五个都杀了就有罪是吧？
+
+*****
+
+####  Litccc  
+##### 999#       发表于 2022-8-5 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942484&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-5 18:56</a>
+
+7.31c 2022/05/05
+
+ 扔树减速效果现在对树木连掷同样生效
+
+那不是连击刀减速是扔树本来就有的减速 ...</blockquote>
+<img src="https://p.sda1.dev/6/519ea200819446ef78851d7442517fc4/20220805190127_1.jpg" referrerpolicy="no-referrer">
+
+或许你应该下个客户端测试一下
+
+*****
+
+####  ArowRocher  
+##### 1000#       发表于 2022-8-5 19:04
+
+<img src="https://p.sda1.dev/6/1fcb0c2daa7a1907ffce04ef418ad31c/CMP_20220805190423584.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 1001#       发表于 2022-8-5 19:05
+
+选择性拧绳是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/e2f160c09aba72476ff66a1ac337d9d9/CMP_20220805190537090.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1002#       发表于 2022-8-5 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942353&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-5 18:42</a>
+
+今晚看谁解说 没有fy和sccc感觉少点什么</blockquote>
+杰畜找链子一起的话就可以
+
+*****
+
+####  蛭人  
+##### 1003#       发表于 2022-8-5 19:08
+
+Ceb这个比仗着双冠，没少阴阳别人，说什么ana会怎么做，notail会怎么做，我也是服的。
+
