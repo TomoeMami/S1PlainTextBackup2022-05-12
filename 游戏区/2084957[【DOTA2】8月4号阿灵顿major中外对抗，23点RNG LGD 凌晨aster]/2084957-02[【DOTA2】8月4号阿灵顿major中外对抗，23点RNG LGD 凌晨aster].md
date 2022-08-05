@@ -642,3 +642,19 @@ ANA真拉仇恨啊，越来越有TI味道了<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">刀圈春晚建议兄弟们悠着点，rng肯定要被暴揍。lgd黑可以先睡了，保持好身体等ti
 
+
+
+*****
+
+####  蛭人  
+##### 1585#       发表于 2022-8-6 06:33
+
+不用等TI好吧，玩个GA天天自爆，节目效果拉满，然后看赵云表演。
+
+*****
+
+####  pikamee  
+##### 1586#       发表于 2022-8-6 06:34
+
+春晚能不能在淘汰赛上演啊
+
