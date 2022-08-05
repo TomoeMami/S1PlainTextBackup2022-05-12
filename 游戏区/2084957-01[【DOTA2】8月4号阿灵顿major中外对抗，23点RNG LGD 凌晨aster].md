@@ -7394,3 +7394,19 @@ a圣先把自己的队伍搞出来吧<img src="https://static.saraba1st.com/imag
 
 [https://www.saraba1st.com/2b/hom ... p;formhash=5cadbb96](https://www.saraba1st.com/2b/home.php?mod=spacecp&amp;ac=favorite&amp;type=thread&amp;id=2084957&amp;formhash=5cadbb96)
 
+
+
+*****
+
+####  syndrome2032  
+##### 887#       发表于 2022-8-5 12:17
+
+下面八可压不住老北京，两个人又不是没当过队友。
+
+*****
+
+####  dclara1  
+##### 888#       发表于 2022-8-5 12:17
+
+相信俊豪的运营能力
+
