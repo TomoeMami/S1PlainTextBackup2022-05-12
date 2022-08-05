@@ -9009,3 +9009,28 @@ gkd，11点比赛都要开始了<img src="https://static.saraba1st.com/image/smi
 
 中立YY号发一下吧
 
+
+
+*****
+
+####  百世诸侯  
+##### 1054#       发表于 2022-8-5 21:53
+
+我宣布获胜者将获得我个人出资的十鹅作为奖励
+
+*****
+
+####  京吹病人  
+##### 1055#       发表于 2022-8-5 21:56
+
+yy://pd-[sid=1461589846&amp;subid=1461589846]
+
+*****
+
+####  很久就在那边l  
+##### 1056#       发表于 2022-8-5 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942577&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-5 19:03</a>
+或许你应该下个客户端测试一下</blockquote>
+还真是连击刀无cd减速<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一直以为这个修复了
+

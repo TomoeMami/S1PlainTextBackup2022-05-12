@@ -1672,3 +1672,17 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  hypnossz86  
+##### 149#       发表于 2022-8-5 21:52
+
+ 本帖最后由 hypnossz86 于 2022-8-5 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56944229&amp;ptid=2084988" target="_blank">培根芝士蛋堡XD 发表于 2022-8-5 20:49</a>
+现在就很虚无啊，我根本不想做那些乱七八糟的支线，反正结局全部木大了，艾欧尼亚都不存在了，甚至 ...</blockquote>
+好家伙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">玩完这xb3生生沉入了虚无主义深渊
+你看看高桥你搞得这结局把孩子都逼成什么样了
+尼采说上帝已死，我看这回是尼采已死了
+
