@@ -5062,3 +5062,29 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 我不贷款，我等现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2003#       发表于 2022-8-5 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56941026&amp;ptid=2078110" target="_blank">Erikas 发表于 2022-8-5 16:52</a>
+三期再搞一次迎新养成也没啥意思，感觉接下来还会给点三期生的线索，二期生就当垫板？（对樱小路好 ...</blockquote>
+vn的solo演出都是3d模型，能是sp那种扣的就给几个分镜的手绘能比的吗。
+
+所以vn肯定是三期了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 2004#       发表于 2022-8-5 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940414&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-5 16:02</a>
+就动画来说我只想说一句，京极和花田能给Nagi叩个头吗恋恋都快要查无此人，二期开播前都还在说不要 ...</blockquote>
+过去花田也是这样写角色的，没到个人回前都是路人，偶尔丢点段子刷存在感，然后好感度全靠个人回一口气拉到顶，就可以考虑收尾了。然后恋恋个人回写炸了，我觉得是不可能有所谓的找补的，二期甚至连段子都给恋恋砍掉塞给ceo去玩了，二期可堇，ceo要是也炸，我很好奇这个企划能不能真熬到出三期。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

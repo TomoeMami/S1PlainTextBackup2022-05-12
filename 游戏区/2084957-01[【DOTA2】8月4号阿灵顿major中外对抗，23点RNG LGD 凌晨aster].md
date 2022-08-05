@@ -8740,3 +8740,20 @@ A：Puppey是一个天才，他说他早就计划好了（让我来），但我�
 
 光之巨人居然想复出了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 1021#       发表于 2022-8-5 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56943041&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-5 19:37</a></blockquote>
+翻译一下就是不打职业没其他本事了，还是靠打职业吧
+
+*****
+
+####  尸体鲨  
+##### 1022#       发表于 2022-8-5 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这解决争端的方式也太原教旨了，都别怂啊，来个vip喷位
+
