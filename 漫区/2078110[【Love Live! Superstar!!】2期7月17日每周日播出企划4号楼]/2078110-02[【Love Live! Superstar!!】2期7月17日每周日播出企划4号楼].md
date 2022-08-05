@@ -4735,3 +4735,17 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 这个“音乐总监”日语叫啥，我之前对比过一二期OP，好像没怎么看出少了啥职位，不会一期动画就没写 ...</blockquote>
 突然上传不了图片，之前我在nga发过图[https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879](https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879)
 
+
+
+*****
+
+####  寒风夜  
+##### 1970#       发表于 2022-8-5 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938816&amp;ptid=2078110" target="_blank">stygian 发表于 2022-8-5 13:09</a>
+
+突然上传不了图片，之前我在nga发过图https://bbs.nga.cn/read.php?tid=32227288&amp;pid=626244879
+
+ ...</blockquote>
+官网分集staff表人还在，不过标的协力，不明
+
