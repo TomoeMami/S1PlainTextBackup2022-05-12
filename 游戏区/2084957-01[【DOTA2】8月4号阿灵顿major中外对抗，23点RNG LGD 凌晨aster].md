@@ -8608,3 +8608,33 @@ ceb从来就不喜欢毛子。
 
 不是，gpk开播时对vp的展望是拿个前六就行，这样一想，vp这表现还不错<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 1008#       发表于 2022-8-5 19:37
+
+好呀好呀，打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓜子板凳已经准备好了
+
+*****
+
+####  ArowRocher  
+##### 1009#       发表于 2022-8-5 19:37
+
+<img src="https://p.sda1.dev/6/3245ead847dd33c38313c78bb38f603e/CMP_20220805193723420.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 1010#       发表于 2022-8-5 19:38
+
+你们刀油真的喜欢打游戏发生点亲属关系
+
+*****
+
+####  逃离二次元  
+##### 1011#       发表于 2022-8-5 19:41
+
+刘畅<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
