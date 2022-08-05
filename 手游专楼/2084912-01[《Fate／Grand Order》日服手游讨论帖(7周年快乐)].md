@@ -1929,3 +1929,12 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">某种意义上，阿菌有钱有点才华又是个社交巨婴，加上武内CP，这堆buff叠加在隔壁近乎无敌啊
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 201#       发表于 2022-8-5 13:40
+
+就是车其他的，才能不车菌皇，2.6.2的摩根退场小车一下菌皇已经是隔壁的极限了。在车就要霓虹本土人气投票碾压式第一警告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

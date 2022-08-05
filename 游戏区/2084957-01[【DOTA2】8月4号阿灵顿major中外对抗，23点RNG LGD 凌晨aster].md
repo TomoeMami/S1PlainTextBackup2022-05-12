@@ -7537,3 +7537,28 @@ astralCN</blockquote>
 
 看到一句：超哥把ana调教成了亚军的样子
 
+
+
+*****
+
+####  woyzeck  
+##### 903#       发表于 2022-8-5 13:35
+
+ana昨天怎么不是冠军发挥了，这炼金前30分钟打架收割的节奏完美的很。
+
+*****
+
+####  马儿在流泪  
+##### 904#       发表于 2022-8-5 13:38
+
+这次RNG不会化身新茶吧。。。
+
+*****
+
+####  Litccc  
+##### 905#       发表于 2022-8-5 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938913&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-5 13:23</a>
+俊豪能不能学一下森哥，按着霉鳖的头选龙骑船长好好玩四保一，赢面感觉还大点。 ...</blockquote>
+不是给霉皇选毒 龙了？你看霉皇玩么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
