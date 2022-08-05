@@ -7493,3 +7493,31 @@ ana带盾进组自带光环，陈国康A级上来的跟四个亚军当队友，�
 —— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 茶vsEG第二盘
 
+
+
+*****
+
+####  seki_m  
+##### 898#       发表于 2022-8-5 13:12
+
+昨天看到xnova死命往中路赶就不想看了，一起来发现qc都输，亚军中单和冠军c围着谁打还不明白吗？
+
+*****
+
+####  沈淮  
+##### 899#         楼主| 发表于 2022-8-5 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938737&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-5 12:59</a>
+
+不懂就问，a圣是？</blockquote>
+astralCN
+
+*****
+
+####  ArowRocher  
+##### 900#       发表于 2022-8-5 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56938850&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-5 13:14</a>
+astralCN</blockquote>
+是认为假赛那个？
+
