@@ -595,3 +595,50 @@ ANA真拉仇恨啊，越来越有TI味道了<img src="https://static.saraba1st.c
 
 两本书升25点加血天赋，剑圣晚死一会儿就打赢了
 
+
+
+*****
+
+####  蛭人  
+##### 1579#       发表于 2022-8-6 06:21
+
+明鞭这DK中后期也太猛了吧。
+
+*****
+
+####  secretgarnet  
+##### 1580#       发表于 2022-8-6 06:22
+
+这也翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一波我没看清楚，对面双羊是有一个点到林肯上了吗，上帝居然活下来了
+
+*****
+
+####  风尘的时光  
+##### 1581#       发表于 2022-8-6 06:24
+
+睡觉睡觉，越来越期待春晚了
+
+*****
+
+####  雅朵莉雀  
+##### 1582#       发表于 2022-8-6 06:27
+
+哈哈哈哈哈chrisluck是不是拆电锤打团忘了，我看他好长时间没拆出来，买了第二个锤子
+
+*****
+
+####  asd235614  
+##### 1583#       发表于 2022-8-6 06:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947668&amp;ptid=2084957" target="_blank">secretgarnet 发表于 2022-8-6 06:22</a>
+
+这也翻了最后一波我没看清楚，对面双羊是有一个点到林肯上了吗，上帝居然活下来了 ...</blockquote>
+简朴短帽吧，导致控制链没接上
+
+*****
+
+####  北欧王座  
+##### 1584#       发表于 2022-8-6 06:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">刀圈春晚建议兄弟们悠着点，rng肯定要被暴揍。lgd黑可以先睡了，保持好身体等ti
+
