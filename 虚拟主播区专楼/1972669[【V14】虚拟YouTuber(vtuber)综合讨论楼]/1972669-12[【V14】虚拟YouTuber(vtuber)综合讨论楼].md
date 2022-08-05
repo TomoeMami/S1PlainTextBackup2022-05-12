@@ -2922,3 +2922,19 @@ enkr的奇策<img src="https://static.saraba1st.com/image/smiley/face2017/209.gi
 
 阿花是不是太久没直播，声线好像不对劲啊……
 
+
+
+*****
+
+####  rzrbtk  
+##### 16757#       发表于 2022-8-5 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56944379&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-5 20:59</a>
+
+阿花是不是太久没直播，声线好像不对劲啊……</blockquote>
+也还好，六天前刚跟神田工商，麦的缘故吧？
+
+组合成员看就是下克上+elu，郡道对帕特兰本来就那个所以暂且不说，敢邀请休息中的兔大前辈，牛啊，可能已经被骂习惯了；
+
+syl，放某句歌词的时候评论栏里“eden！？？？”刷屏把我逗乐了，我懂（这种痛苦）！
+

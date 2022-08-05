@@ -5113,3 +5113,18 @@ vn的solo演出都是3d模型，能是sp那种扣的就给几个分镜的手绘�
 
 建议剧场版总集篇式重置一二期，其他团要问凭什么，就凭老子烂，咋的想比烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2008#       发表于 2022-8-5 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56944481&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-5 21:06</a>
+建议剧场版总集篇式重置一二期，其他团要问凭什么，就凭老子烂，咋的想比烂吗 ...</blockquote>
+日升手上有因为烂而获得剧场版复活币的吗？拍烂了直接重开同一世界观新ip才是王道。
+
+先用as世界软重启吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
