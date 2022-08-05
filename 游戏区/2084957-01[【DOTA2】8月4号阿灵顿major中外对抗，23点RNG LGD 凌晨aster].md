@@ -8820,3 +8820,36 @@ solo开打了留个观战位
 
 我不装了我没有客户端，你们有客户端的能不能赶快solo起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iriyano  
+##### 1030#       发表于 2022-8-5 20:51
+
+solo呢，蹲个观战
+
+*****
+
+####  woyzeck  
+##### 1031#       发表于 2022-8-5 20:53
+
+流畅打职业也不能算有本事
+
+*****
+
+####  王宇旻❤潘婕  
+##### 1032#       发表于 2022-8-5 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942852&amp;ptid=2084957" target="_blank">羽林军二十一 发表于 2022-8-5 19:25</a>
+一口一个云玩家
+报id来solo认爹局？让我看看您有多厉害？</blockquote>
+156991239，来
+
+*****
+
+####  12481632  
+##### 1033#       发表于 2022-8-5 21:00
+
+建议先拉个中立yy
+
