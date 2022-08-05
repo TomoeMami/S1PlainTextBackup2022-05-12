@@ -1880,3 +1880,15 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 [f:067 ...</blockquote>
 隔壁不是正在热闹吗，赶快去围观或者拱火啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 198#       发表于 2022-8-5 10:51
+
+隔壁车妖兰车的如火如荼呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+倒是fate吧一心想等国服出剧情之后清算的村正工具人问题根本没什么人在乎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
