@@ -2196,3 +2196,14 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水紫要到8号才和水阿比一起UP，到时候丢10个护符看看
 
+
+
+*****
+
+####  rollingusagi  
+##### 228#       发表于 2022-8-5 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小王子也不弱啊真有必要强化吗，而且宝具和公主效果一样甚至特攻面还更有用些，这要是给宝具本是要跳周年从者的脸？倒是水阿比和北斋是真挺需要强化的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

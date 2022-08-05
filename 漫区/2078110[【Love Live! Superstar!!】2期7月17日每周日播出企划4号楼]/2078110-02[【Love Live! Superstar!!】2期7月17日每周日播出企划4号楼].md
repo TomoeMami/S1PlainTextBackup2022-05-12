@@ -4993,3 +4993,35 @@ OP编曲很盛大，ED编曲很清爽，特别是ED前奏插入得十分平 ...<
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1996#       发表于 2022-8-5 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942010&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-5 18:09</a>
+
+看到隔壁讨论回了当初可可（鲤鱼）唱歌，我不懂音乐更不懂唱歌，有点好奇当初刚宣布声优和一单发售活动之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">当初  当初有不被黑的地方吗   
+
+至于现在还追着黑的也基本没看到说唱得烂的
+
+*****
+
+####  aoaoaodedede  
+##### 1997#       发表于 2022-8-5 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56942344&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-5 18:40</a>
+当初  当初有不被黑的地方吗   
+
+至于现在还追着黑的也基本没看到说唱得烂的 ...</blockquote>
+我这不说当时嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 1998#       发表于 2022-8-5 18:49
+
+鲤鱼刚官宣的时候我是对她唱歌没什么信心，主要是完全没听过现场，个人曲的制作水平也只能说很一般，直到一单发售活动才感觉唱的不错，到了一巡才意识到她在五只里面都属于很稳的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
