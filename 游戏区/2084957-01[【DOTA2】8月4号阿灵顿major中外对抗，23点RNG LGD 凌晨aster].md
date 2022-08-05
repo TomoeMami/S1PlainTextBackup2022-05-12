@@ -8078,3 +8078,65 @@ ANA不出BKB给队友养A是最快提升队伍战斗力的思路,结果RNG4个�
 实事求是的说不否认2出点金手纯脑瘫，切入打得一坨屎什么跳进去跟大锤一换一，3出装完全没思路，这俩人要为 ...</blockquote>
 谁把30分钟的局拖到50分钟,该抱团推高杀死比赛非要分散扫图让人抓导致被拖后谁全锅.
 
+
+
+*****
+
+####  羽林军二十一  
+##### 957#       发表于 2022-8-5 16:52
+
+Ga这么肥，赢了么？安皇切入这么屌，他一打五了么？还不是要看队友做不做人？
+
+说白了出bkb，队友压力就会小不少
+至于队友会不会犯罪，那是另外一码事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王宇旻❤潘婕  
+##### 958#       发表于 2022-8-5 16:55
+
+好好好，在一群弱智队友身边脑子正常也变成原罪了，你到底打不打dota，有没有过GA这种局的体验
+
+*****
+
+####  woyzeck  
+##### 959#       发表于 2022-8-5 16:55
+
+抓着炼金不出bkb喷和ti9抓着哈斯卡出强袭喷差不多，苛求大腿放过畜生
+
+*****
+
+####  izayoi39  
+##### 960#       发表于 2022-8-5 16:59
+
+这个ga该怎么打可以看一下憋茶打eg的第一把虽然阵容不一样但是整体打法节奏是很类似的，只要炼金安稳的控到第一个盾bkb根本就无所谓，这23在控盾周期莫名其妙的送了太拖局势了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  羽林军二十一  
+##### 961#       发表于 2022-8-5 17:00
+
+为了避免被当成洗地的我都说了那么多前提了
+是大家都在讨论出不出bkb我就给了自己的观点
+
+结果都是只输出情绪那我就没法回
+
+算了我以后不来这楼讨论了，怂了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 962#       发表于 2022-8-5 17:01
+
+<img src="https://p.sda1.dev/6/140777826fadb363816d996ae4dbb00f/CMP_20220805170050621.jpg" referrerpolicy="no-referrer">
+
+队内地位一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
