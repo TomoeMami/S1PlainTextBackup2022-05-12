@@ -12290,3 +12290,38 @@ rng也一样 ...</blockquote>
 拿了上个major，该吃的苦头没吃到。该好好偿还一下了。</blockquote>
 这才小组赛
 
+
+
+*****
+
+####  adretyu67  
+##### 1482#       发表于 2022-8-6 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947123&amp;ptid=2084957" target="_blank">asd235614 发表于 2022-8-6 01:20</a>
+
+所以最后楼友solo约上了么</blockquote>
+刷了楼若干遍，应该是没约上。看明天了
+
+*****
+
+####  nowaki  
+##### 1483#       发表于 2022-8-6 01:22
+
+rng怎么可能去保一个替补
+
+*****
+
+####  acalephs  
+##### 1484#       发表于 2022-8-6 01:23
+
+VP这二塔没破就在对面高地乱宰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1485#       发表于 2022-8-6 01:25
+
+这比赛暴走真多啊，这两天我有印象的就6次了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
