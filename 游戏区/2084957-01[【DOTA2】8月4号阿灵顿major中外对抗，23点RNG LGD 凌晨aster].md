@@ -7165,3 +7165,73 @@ rng还是换教练吧，super，BP不行，也压不住2，3。357还在赋闲�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ana现在哪点比阿鬼强啊，吃经济英雄池又不行，对线还尿，就指望大后期打死人？
 
+
+
+*****
+
+####  沈淮  
+##### 866#         楼主| 发表于 2022-8-5 10:02
+
+小组赛第二日
+
+08-05 23:00        Outsiders        -        Talon
+
+Fnatic        -        RNG
+
+PSG.LGD        -        OG
+
+TA        -        QC
+
+08-06 01:00        EG        -        Spirit
+
+Na'Vi        -        Aster
+
+TE        -        Entity
+
+BOOM        -        BC
+
+08-06 03:00        TA        -        RNG
+
+QC        -        Talon
+
+Liquid        -        Outsiders
+
+Fnatic        -        PSG.LGD
+
+08-06 05:00        Aster        -        Spirit
+
+BOOM        -        Entity
+
+EG        -        BC
+
+Na'Vi        -        TE
+
+*****
+
+####  Litccc  
+##### 867#       发表于 2022-8-5 10:05
+
+<img src="https://p.sda1.dev/6/19e817becbed2914cf5c3316169029d4/Snipaste_2022-08-05_10-03-32.png" referrerpolicy="no-referrer">
+
+去年呜克兰，今年啊灵顿是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 868#       发表于 2022-8-5 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56936338&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-5 09:36</a>
+eg不是北美第一吗，怎么能做到这么低能的</blockquote>
+北美dota不行都多少年了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 869#         楼主| 发表于 2022-8-5 10:11
+
+哎对了，我去年听漏油说一个队只能有两个不是本赛区籍的选手来着？
+
+为啥eg就一个加拿大籍的rtz也能登记成功？
+
