@@ -11359,3 +11359,265 @@ kfc真的不行兄弟们
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊茶突然本色出演了
 
+
+
+*****
+
+####  IG.430  
+##### 1358#       发表于 2022-8-6 00:41
+
+xnova的破雾就很难受
+
+*****
+
+####  吃货红毛  
+##### 1359#       发表于 2022-8-6 00:42
+
+Lgdog这比赛够紧的来自: iPhone客户端
+
+*****
+
+####  nowaki  
+##### 1360#       发表于 2022-8-6 00:42
+
+这b阵容不就是看着ana刷出山
+
+*****
+
+####  morwhipppo  
+##### 1361#       发表于 2022-8-6 00:42
+
+杜鹏这个ta真的呕了
+
+*****
+
+####  莉拉厨  
+##### 1362#       发表于 2022-8-6 00:43
+
+杜鹏找回了属于自己的状态！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 1363#       发表于 2022-8-6 00:44
+
+什么b决策 所有人去杀屠夫
+
+*****
+
+####  trackerList  
+##### 1364#       发表于 2022-8-6 00:44
+
+a÷这小走位可以啊，不会真给他玩明白了吧
+
+*****
+
+####  莉拉厨  
+##### 1365#       发表于 2022-8-6 00:44
+
+救maybe不救ana，吐了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  京吹病人  
+##### 1366#       发表于 2022-8-6 00:44
+
+这不放大 单冰箱？
+
+*****
+
+####  反方向的波  
+##### 1367#       发表于 2022-8-6 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 1368#       发表于 2022-8-6 00:45
+
+RNG这波炸中炸
+
+*****
+
+####  Sabbah  
+##### 1369#       发表于 2022-8-6 00:45
+
+这波是原汁原味老北京豆汁
+
+*****
+
+####  IG.430  
+##### 1370#       发表于 2022-8-6 00:45
+
+这就是小天shit的冰龙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 1371#       发表于 2022-8-6 00:45
+
+我要是上帝冰龙冰霉皇那一秒我直接退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1372#       发表于 2022-8-6 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好呀好呀，厨子还能反了天不成
+
+*****
+
+####  nowaki  
+##### 1373#       发表于 2022-8-6 00:45
+
+这冰龙玩的什么jb
+
+*****
+
+####  一品堂官  
+##### 1374#       发表于 2022-8-6 00:46
+
+李斯建议看一下xxs的谜团的切片捏
+
+*****
+
+####  iriyano  
+##### 1375#       发表于 2022-8-6 00:46
+
+引擎盖剑圣真的不行
+
+*****
+
+####  12481632  
+##### 1376#       发表于 2022-8-6 00:47
+
+你一个厨子秀什么秀，这把就让你明白《地位》
+
+*****
+
+####  反方向的波  
+##### 1377#       发表于 2022-8-6 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">上一盘14带躺让谢俊豪真以为队里人均绝活海了
+
+*****
+
+####  弈秋  
+##### 1378#       发表于 2022-8-6 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lgd还是打的好看
+
+*****
+
+####  吃货红毛  
+##### 1379#       发表于 2022-8-6 00:47
+
+精灵爆奶哈斯卡vs陈爆奶ck来自: iPhone客户端
+
+*****
+
+####  nightmare902015  
+##### 1380#       发表于 2022-8-6 00:47
+
+og这连续两波炸了啊，本来可以继续缠斗的。
+
+
+
+*****
+
+####  名字不乱取  
+##### 1381#       发表于 2022-8-6 00:47
+
+只配站着吃饭是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 1382#       发表于 2022-8-6 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">茶那边打的和买了一样，RNG看来也要木了
+
+*****
+
+####  反方向的波  
+##### 1383#       发表于 2022-8-6 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京吹病人  
+##### 1384#       发表于 2022-8-6 00:48
+
+这么喜欢打屠夫？
+
+*****
+
+####  莉拉厨  
+##### 1385#       发表于 2022-8-6 00:48
+
+骄阳买活死强行打赢，直接四号位经济了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 1386#       发表于 2022-8-6 00:48
+
+gg了，rng真tm菜
+
+*****
+
+####  nowaki  
+##### 1387#       发表于 2022-8-6 00:49
+
+上帝一个人被三个人抓 中路队友四打二被团灭
+
+*****
+
+####  逃离二次元  
+##### 1388#       发表于 2022-8-6 00:49
+
+哎哟我吐了
+
+*****
+
+####  我爱撩菜  
+##### 1389#       发表于 2022-8-6 00:49
+
+胖子的牛头这么厉害嘛
+
+*****
+
+####  ArowRocher  
+##### 1390#       发表于 2022-8-6 00:50
+
+Rng也是1:1和平鸽是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 1391#       发表于 2022-8-6 00:50
+
+看来决赛前还是只能相信lgd了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 1392#       发表于 2022-8-6 00:50
+
+还是只有干瘪最稳啊，A畜都不畜了
+
+*****
+
+####  弈秋  
+##### 1393#       发表于 2022-8-6 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">有无国足数学家，rng打到第几可以不用回国卷
+
