@@ -481,3 +481,117 @@ maybe这么依赖猫系这种廉价小技能无限打架的节奏 ...</blockquot
 
 这滚滚第一把打的时候我就想第二把应该是要ban这个人的滚滚的，结果果然没ban<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蛭人  
+##### 1563#       发表于 2022-8-6 06:11
+
+RNG这个队伍想赢，ana必须选一个能站出来吃技能伤害的，因为老北京是玻璃，一碰就碎，选什么点金电锤JUGG就别想赢了，不如隔壁的翻盘局。
+
+*****
+
+####  やト  
+##### 1564#       发表于 2022-8-6 06:12
+
+超哥居然赵云了
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 1565#       发表于 2022-8-6 06:13
+
+这剧情谁能想得到呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AkaiSuisei  
+##### 1566#       发表于 2022-8-6 06:14
+
+李斯力中暴力
+
+*****
+
+####  北欧王座  
+##### 1567#       发表于 2022-8-6 06:15
+
+我超，李斯力中暴力，ana：牛兄弟们牛
+
+*****
+
+####  AkaiSuisei  
+##### 1568#       发表于 2022-8-6 06:16
+
+ana两本书，帝位
+
+*****
+
+####  haruhiismer  
+##### 1569#       发表于 2022-8-6 06:16
+
+ana只要不第一个死团随便赢，谁最带还不明白吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 1570#       发表于 2022-8-6 06:17
+
+maybe睡醒了啊，可以可以，拭目以待。
+
+*****
+
+####  asd235614  
+##### 1571#       发表于 2022-8-6 06:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这剧情是真没想到
+
+*****
+
+####  AkaiSuisei  
+##### 1572#       发表于 2022-8-6 06:17
+
+冠晴有林肯了，对面双羊刀没点到剑圣
+
+*****
+
+####  やト  
+##### 1573#       发表于 2022-8-6 06:18
+
+ 翻了
+
+*****
+
+####  外挂全家脚气  
+##### 1574#       发表于 2022-8-6 06:18
+
+沃日...这RNG打得，居然翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 1575#       发表于 2022-8-6 06:19
+
+他这个策略就是秒剑圣，然后秒不掉了就吃屎，路径依赖了
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 1576#       发表于 2022-8-6 06:19
+
+不管咋说这个熬夜是很值拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨中曲  
+##### 1577#       发表于 2022-8-6 06:19
+
+ANA真拉仇恨啊，越来越有TI味道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AkaiSuisei  
+##### 1578#       发表于 2022-8-6 06:20
+
+两本书升25点加血天赋，剑圣晚死一会儿就打赢了
+
