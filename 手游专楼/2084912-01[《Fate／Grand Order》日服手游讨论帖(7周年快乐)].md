@@ -2020,3 +2020,29 @@ UP的都强化了。外星人是小王子板上钉钉了。这次每天强化都
 可恶，怎么强化的每一个从者你都有啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 211#       发表于 2022-8-5 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940111&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-5 15:29</a>
+
+？ 你什么时候产生了这种幻觉 215 杀若丸这不都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">池子开着，你可以三石问路，也许可以喜+1……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我没的从者太多，所以基本只在意有的从者给什么强化
+
+*****
+
+####  alucardcz  
+##### 212#       发表于 2022-8-5 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56940158&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-5 15:34</a>
+
+池子开着，你可以三石问路，也许可以喜+1……
+
+主要我没的从者太多，所以基本只在意有的从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这又没爱又没强度的为什么要丢3石？
+
