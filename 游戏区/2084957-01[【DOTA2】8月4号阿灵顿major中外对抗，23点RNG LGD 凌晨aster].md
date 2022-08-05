@@ -11212,3 +11212,150 @@ VP跟TALON大战71分钟，GPK最后偷家成功<img src="https://static.saraba1
 
 vp太丑陋了我服了，666代言毒kfc是吧
 
+
+
+*****
+
+####  TIZI  
+##### 1339#       发表于 2022-8-6 00:31
+
+ka鳖的拉比克打路人都不怎么carry吧…
+有点整蛊了，非要跟大刀哥分个高下是吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  2474089352  
+##### 1340#       发表于 2022-8-6 00:31
+
+脑浆横飞啊这憋尿局
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 1341#       发表于 2022-8-6 00:32
+
+服了这屠夫三级没学烧
+
+*****
+
+####  ArowRocher  
+##### 1342#       发表于 2022-8-6 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56946711&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-6 00:29</a>
+VP跟TALON大战71分钟，GPK最后偷家成功</blockquote>
+major不让上厕所是吧
+
+*****
+
+####  反方向的波  
+##### 1343#       发表于 2022-8-6 00:33
+
+kfc真的不行兄弟们
+
+*****
+
+####  nightmare902015  
+##### 1344#       发表于 2022-8-6 00:35
+
+这个major新规定就是不允许选手和教练比赛中上厕所啊
+
+*****
+
+####  ArowRocher  
+##### 1345#       发表于 2022-8-6 00:35
+
+<img src="https://p.sda1.dev/6/a7fec7781f6ddd1d2b59a6007c43d3cc/1659717305651.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 1346#       发表于 2022-8-6 00:35
+
+好你个ana，也点金电锤是吧。
+
+*****
+
+####  IG.430  
+##### 1347#       发表于 2022-8-6 00:36
+
+我靠，点金剑圣
+
+*****
+
+####  12481632  
+##### 1348#       发表于 2022-8-6 00:36
+
+好呀好呀，都在学鸡哥呀
+
+*****
+
+####  京吹病人  
+##### 1349#       发表于 2022-8-6 00:36
+
+3个打1个反杀一个
+
+*****
+
+####  反方向的波  
+##### 1350#       发表于 2022-8-6 00:37
+
+三个打一个还能被厨子反杀一个
+
+
+
+*****
+
+####  walfeds  
+##### 1351#       发表于 2022-8-6 00:37
+
+队友呢？队友呢？队友呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 1352#       发表于 2022-8-6 00:37
+
+7级不学斩<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 1353#       发表于 2022-8-6 00:39
+
+不得不说超哥最近对线基本功还是在线的
+就是对完线一言难尽
+
+*****
+
+####  弈秋  
+##### 1354#       发表于 2022-8-6 00:39
+
+不要质疑上帝
+
+*****
+
+####  京吹病人  
+##### 1355#       发表于 2022-8-6 00:40
+
+这地狱火饰品好丑
+
+*****
+
+####  ninini212  
+##### 1356#       发表于 2022-8-6 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">现在剑圣后期天赋太强，所以都是点金刷的
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  mkii量产型  
+##### 1357#       发表于 2022-8-6 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊茶突然本色出演了
+
