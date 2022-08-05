@@ -2291,3 +2291,12 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好强啊 我只要一上2E就完全不想刷了 
 
+
+
+*****
+
+####  kiralzb  
+##### 238#       发表于 2022-8-5 21:40
+
+在推主线中，2.6这剧情战是不是有点多啊，C呆单挑妖崔好难<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

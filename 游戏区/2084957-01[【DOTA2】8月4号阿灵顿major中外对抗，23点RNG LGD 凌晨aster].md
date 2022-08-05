@@ -8966,3 +8966,30 @@ solo呢，蹲个观战
 
 我艹，超凡哥，我暂时单方面宣布超凡哥说的是对的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 1049#       发表于 2022-8-5 21:31
+
+好高的分<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 1050#       发表于 2022-8-5 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漏油们打完报下结果，我们跟着胜利的漏油走就是了！
+
+
+
+*****
+
+####  健康猹  
+##### 1051#       发表于 2022-8-5 21:36
+
+中立yy号报一下
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
