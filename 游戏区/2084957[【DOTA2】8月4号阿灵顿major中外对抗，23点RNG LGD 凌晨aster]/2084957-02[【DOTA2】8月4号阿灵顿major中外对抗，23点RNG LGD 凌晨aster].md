@@ -1627,3 +1627,33 @@ eg和上赛季区别就是伞兵换了nightfall
 
 rng有可能踢鬼换上帝打ti么？直邀队好像不能在赛前换没登记的人，那预选呢？
 
+
+
+*****
+
+####  adretyu67  
+##### 1704#       发表于 2022-8-6 11:33
+
+ 本帖最后由 adretyu67 于 2022-8-6 11:35 编辑 
+
+分数不够打预选换人应该可以。
+
+分数够了紧急踢人估摸不行，记得应该是叫做阵容锁定期来着？-这条规则应该主要是针对ti9德张major前紧急踢人的的，不过他现在反正分不够无所谓
+
+*****
+
+####  qwas  
+##### 1705#       发表于 2022-8-6 11:36
+
+如果rng进了决赛日，分怎么样都够留上帝了，但我看rng这23的脑浆样子怎么都不太能进决赛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 1706#       发表于 2022-8-6 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56949433&amp;ptid=2084957" target="_blank">qwas 发表于 2022-8-6 11:36</a>
+
+如果rng进了决赛日，分怎么样都够留上帝了，但我看rng这23的脑浆样子怎么都不太能进决赛 ...</blockquote>
+我更希望上帝去茶队...RNG真的不需要换C
+
