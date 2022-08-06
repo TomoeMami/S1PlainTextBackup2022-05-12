@@ -1520,3 +1520,13 @@ TS这把对线打得很烂，特别是下路电魂打幽鬼能劣势就离谱好
 
 醒来第二把bp完，听说第一把被翻了？
 
+
+
+*****
+
+####  反方向的波  
+##### 1692#       发表于 2022-8-6 09:24
+
+<img src="https://p.sda1.dev/6/80a19e032bb9e3902b040e8b78c839a1/CMP_20220806092351404.jpg" referrerpolicy="no-referrer">
+石头人演那么厉害干什么，你们bp藏不藏有区别么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
