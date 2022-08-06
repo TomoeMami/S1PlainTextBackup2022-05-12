@@ -2426,3 +2426,45 @@ ti8不谈，ti9有那个世界线吗</blockquote>
 又想起来去年ti雪碧抱怨主办方按dpc分数分配训练房大小，算不算草台班子 ...</blockquote>
 那XG去只能站票了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  修罗王  
+##### 1790#       发表于 2022-8-6 19:23
+
+回看了昨天lgd打fnc，感觉干鳖明显开始放松了啊，今天不是不可能被lq咬一口，虽然我觉得液体这队是真的不行
+
+*****
+
+####  Senbascira  
+##### 1791#       发表于 2022-8-6 19:26
+
+急什么，看了这么多年ti还不懂得相信lgd？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 1792#       发表于 2022-8-6 19:28
+
+<img src="https://p.sda1.dev/6/e0236ee3862d5656e4990c495c9895aa/CMP_20220806192740693.jpg" referrerpolicy="no-referrer">
+相信萧瑟，A门
+
+*****
+
+####  沈淮  
+##### 1793#         楼主| 发表于 2022-8-6 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952943&amp;ptid=2084957" target="_blank">尖刺外婆 发表于 2022-8-6 18:40</a>
+为了泥楼给狗管理又送了5块钱</blockquote>
+slsl-5  ? 
+
+*****
+
+####  ArowRocher  
+##### 1794#       发表于 2022-8-6 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953381&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-6 19:28</a>
+相信萧瑟，A门</blockquote>
+这个原梗是隔壁rng选手的吗
+

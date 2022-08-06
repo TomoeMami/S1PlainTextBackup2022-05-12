@@ -3022,3 +3022,15 @@ https://www.bilibili.com/video/BV14V4y1x7hZ
 现在配一下礼装和纹章，很轻松就能连发
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 300#       发表于 2022-8-6 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953210&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 19:09</a>
+
+红卡以前有很多名其妙的给了np率但是没地儿使的（比如旧剑），或者是单蓝爆炸但是没法吃到首蓝加成的（比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下次战线敌人血量x10预定
+
