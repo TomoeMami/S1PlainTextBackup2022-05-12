@@ -2036,3 +2036,19 @@ pgl多少沾点gabe小舅子
 
 dota cs都他办，都办不好
 
+
+
+*****
+
+####  反方向的波  
+##### 1750#       发表于 2022-8-6 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">可惜是小组赛，线下打的话还可以看看kpee和尿尿的握手
+
+*****
+
+####  cwlo  
+##### 1751#       发表于 2022-8-6 16:39
+
+我都是8~9点爬去睡觉，半夜起来看到早上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
