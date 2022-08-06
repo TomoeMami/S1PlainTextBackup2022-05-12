@@ -3147,3 +3147,15 @@ C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴�
 下次战线敌人血量x10预定</blockquote>
 血量高才能打出chain，不然宝具下去人没了就连不上了。
 
+
+
+*****
+
+####  areklose  
+##### 311#       发表于 2022-8-6 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56954604&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-8-6 20:54</a>
+
+血量高才能打出chain，不然宝具下去人没了就连不上了。</blockquote>
+现在高难都是多血条。。
+
