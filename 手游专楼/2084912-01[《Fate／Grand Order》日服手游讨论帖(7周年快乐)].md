@@ -3180,3 +3180,15 @@ C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴�
 
 emmmm这鹿角神没有复活石确实不好打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 314#       发表于 2022-8-7 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957733&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-7 01:02</a>
+
+emmmm这鹿角神没有复活石确实不好打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实有套路  不过复活石又不能存。。不用白不用
+
