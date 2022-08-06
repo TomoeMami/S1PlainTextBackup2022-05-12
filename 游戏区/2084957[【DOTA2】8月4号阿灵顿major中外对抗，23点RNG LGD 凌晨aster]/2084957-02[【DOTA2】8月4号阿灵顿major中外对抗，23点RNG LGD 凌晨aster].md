@@ -1756,3 +1756,18 @@ monet成了鳖星最畜的那个确实有点伤仲永的意思
 
 意思都是脑浆大乱斗
 
+
+
+*****
+
+####  jy000129  
+##### 1718#       发表于 2022-8-6 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948623&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-6 10:11</a>
+eg和上赛季区别就是伞兵换了nightfall
+
+我觉得没啥本质区别。</blockquote>
+虾哥这个大赛内鬼换了就是最大增强<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
