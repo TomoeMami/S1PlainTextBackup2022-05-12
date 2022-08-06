@@ -2188,3 +2188,14 @@ TS 对阵 BOOM战队BO2
 
 —— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 1762#       发表于 2022-8-6 17:41
+
+ame昨天剑圣打得最好的地方是几波团都第一时间都准确击杀了taiga
+
+15-25分钟这段光法在OG的团战里堪称中流砥柱，剑圣参团之后直接把光法人打没了
+

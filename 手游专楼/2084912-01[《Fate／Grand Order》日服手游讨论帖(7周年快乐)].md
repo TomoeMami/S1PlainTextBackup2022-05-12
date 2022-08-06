@@ -2664,3 +2664,18 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 蓝绿不杀疯了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我红就杀不疯了吗
 
+
+
+*****
+
+####  exiaexa  
+##### 270#       发表于 2022-8-6 17:32
+
+ 本帖最后由 exiaexa 于 2022-8-6 17:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952387&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 17:31</a>
+我红就杀不疯了吗
+
+而且公主单核的话  光这一个技能没充能的话  就算换人甚至也不能3连冲</blockquote>
+红卡看情况吧，锁减cd服的原地爆炸（比如公主），万一以后有不锁cd服的呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
