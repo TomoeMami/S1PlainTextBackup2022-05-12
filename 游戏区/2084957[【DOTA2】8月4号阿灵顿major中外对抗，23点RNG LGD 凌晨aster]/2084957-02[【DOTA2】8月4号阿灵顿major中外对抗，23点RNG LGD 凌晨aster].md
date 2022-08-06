@@ -1065,3 +1065,83 @@ eg不会带着赢且只两把雪碧的战绩被第一个离开吧
 
 rtz真的csdx啊
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 1637#       发表于 2022-8-6 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947892&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-8-6 07:56</a>
+
+所以这雪碧是怎么被eg2:0的</blockquote>
+第一局嘛TS冲三角区被谜团拉大带盾死4个没买活
+
+第二局就是正常打优结束
+
+*****
+
+####  a1370303  
+##### 1638#       发表于 2022-8-6 08:03
+
+蓝猫是什么弟弟英雄，要二比零了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  4591  
+##### 1639#       发表于 2022-8-6 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947902&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-6 07:59</a>
+eg不会带着赢且只两把雪碧的战绩被第一个离开吧</blockquote>
+你没看上个美酒吗，eg直接回的家啊，是尸王延续了北美进美酒决赛日的荣耀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1640#       发表于 2022-8-6 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你一定要打蓝猫吗焦阳
+
+*****
+
+####  坚定的团子党  
+##### 1641#       发表于 2022-8-6 08:04
+
+选蓝猫又走远了呀，这英雄就不配上场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  やト  
+##### 1642#       发表于 2022-8-6 08:05
+
+选蓝猫真想赢么
+
+*****
+
+####  沈淮  
+##### 1643#         楼主| 发表于 2022-8-6 08:06
+
+出门办个事，回来再看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 1644#       发表于 2022-8-6 08:06
+
+EG打雪碧第二局是雪碧被B爆了
+
+想拿火枪打viper，然后直接被打穿线都占不了，养出一个全场经济第一的无敌viper
+
+然后选了个蝙蝠想打对面23手幽鬼，被chen用小萨特直接打蠢了，幽鬼直接单人带一个小萨特站蝙蝠的线把自己打成无解肥
+
+*****
+
+####  nxmonitor  
+##### 1645#       发表于 2022-8-6 08:08
+
+蓝猫幽鬼是怎么想的？我就说茶队进攻打输了，必然会走回憋的路线……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
