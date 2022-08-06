@@ -1493,3 +1493,30 @@ TS这把对线打得很烂，特别是下路电魂打幽鬼能劣势就离谱好
 
 雪碧对线真是看着心烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  12481632  
+##### 1689#       发表于 2022-8-6 09:12
+
+哇，睡醒了看一眼战报怎么都是脑浆大乱斗呀
+
+*****
+
+####  a1370303  
+##### 1690#       发表于 2022-8-6 09:12
+
+建议茶队直接换ana，樱花双雄老队友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 1691#       发表于 2022-8-6 09:20
+
+茶搞这么厉害干嘛
+
+醒来第二把bp完，听说第一把被翻了？
+
