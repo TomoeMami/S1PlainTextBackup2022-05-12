@@ -5422,3 +5422,16 @@ b站给我推送了个星团 版  孤泳者。
 
 坏了，樱小路丁真和香音uzi这两组对应关系已经在我脑子里扎根了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2038#       发表于 2022-8-6 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56950989&amp;ptid=2078110" target="_blank">古战场亡魂 发表于 2022-8-6 14:52</a>
+b站给我推送了个星团 版  孤泳者。
+
+绷不住了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还分一个先有的和后有的攻击性加强版，之前光听说贴吧有点什么事，现在才窥到一角
+
