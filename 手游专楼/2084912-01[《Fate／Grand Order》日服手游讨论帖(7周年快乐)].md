@@ -3034,3 +3034,75 @@ https://www.bilibili.com/video/BV14V4y1x7hZ
 红卡以前有很多名其妙的给了np率但是没地儿使的（比如旧剑），或者是单蓝爆炸但是没法吃到首蓝加成的（比 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下次战线敌人血量x10预定
 
+
+
+*****
+
+####  bearYou  
+##### 301#       发表于 2022-8-6 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953029&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-6 18:51</a>
+你竟然是惦记着那破圣杯战线</blockquote>
+圣杯战线可以说是你游现在最好玩的活动了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 302#       发表于 2022-8-6 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952899&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:34</a>
+差不多的石头为什么大佬满宝 萌新1宝</blockquote>
+前前后后一共1400才满宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然过程中歪了4个常驻
+
+*****
+
+####  alucardcz  
+##### 303#       发表于 2022-8-6 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953449&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-6 19:34</a>
+
+前前后后一共1400才满宝虽然过程中歪了4个常驻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">意思是你800 4宝    萌新800 1宝！
+
+*****
+
+####  千叶铁矢  
+##### 304#       发表于 2022-8-6 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:44</a>
+https://www.bilibili.com/video/BV14V4y1x7hZ
+
+看了这个视频后我感觉指令卡这新系统是做坏了。。。本来回 ...</blockquote>
+打术阶还行，但是也能想象到不少新玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">np好点的迦摩x毛什么的
+
+*****
+
+####  千叶铁矢  
+##### 305#       发表于 2022-8-6 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953032&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:51</a>
+你不能这么说  也就绿卡宝具的单体可以这样吧  蓝卡肯定是吃憋了  红的  q宝a 应该也没这么效果 ...</blockquote>
+红宝的打宝qa星够+卡性能好应该也有这个效果
+
+*****
+
+####  exiaexa  
+##### 306#       发表于 2022-8-6 19:36
+
+ 本帖最后由 exiaexa 于 2022-8-6 19:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953380&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 19:28</a>
+下次战线敌人血量x10预定</blockquote>
+那倒不至于，主要是好用的给星刻纹没几个
+带10150又没几个稳定给np率的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 307#       发表于 2022-8-6 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953459&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-6 19:35</a>
+
+打术阶还行，但是也能想象到不少新玩法了np好点的迦摩x毛什么的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实主要还要有晕  不然光宝具连发 自己也顶不住
+

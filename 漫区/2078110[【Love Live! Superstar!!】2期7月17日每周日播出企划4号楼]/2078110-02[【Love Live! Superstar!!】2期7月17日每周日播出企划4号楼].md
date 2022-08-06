@@ -5444,3 +5444,12 @@ b站给我推送了个星团 版  孤泳者。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香音跟啊澡确实很搭 一年三熟输比赛就红温
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2040#       发表于 2022-8-6 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8月索尼那个拼盘音乐节突然担心了起来。今天去了TIF看隔壁imassc的拼盘live，和真正三次元偶像比起来真的感觉要被创死了，令人绝望的站立人数+应援，还有实力上的绝对差距，简直就是公开处刑。不知道到时候索尼音乐节会咋样
+
