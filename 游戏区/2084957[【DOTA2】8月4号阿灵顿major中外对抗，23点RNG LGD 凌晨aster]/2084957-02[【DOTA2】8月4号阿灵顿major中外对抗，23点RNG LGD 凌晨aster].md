@@ -5210,3 +5210,44 @@ lgd现在怎么把把线劣靠团战打回来。。这样打一旦345状态下�
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  北条早苗  
+##### 2155#       发表于 2022-8-7 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957854&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-7 01:17</a>
+
+卧槽，QC怎么赢了OG一盘
+
+昨天QC被Talon2：0之后我以为这个队已经稳稳垫底了啊
+
+看bp还是ATF拿到了电魂，难道 ...</blockquote>
+本泽马职业下限级的夜魔，ccnc宰猪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尖刺外婆  
+##### 2156#       发表于 2022-8-7 01:23
+
+随便拉一个高分三号位都比zai畜强，建议试试另一个ti基金lgd young forever.剑来
+
+*****
+
+####  Litccc  
+##### 2157#       发表于 2022-8-7 01:25
+
+我觉得boxi就可以，转4给zai打辅助是真的想不开
+
+*****
+
+####  雅朵莉雀  
+##### 2158#       发表于 2022-8-7 01:29
+
+boxi打3肯定比现在的zai强得多
+
+突然发现这比赛puck突然又变成非ban必选的12手了
+
+又开始进入选puck和选好打puck的英雄的中路循环了，这剧情是不是去年看过一遍了
+
