@@ -1145,3 +1145,41 @@ EG打雪碧第二局是雪碧被B爆了
 
 蓝猫幽鬼是怎么想的？我就说茶队进攻打输了，必然会走回憋的路线……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nxmonitor  
+##### 1646#       发表于 2022-8-6 08:16
+
+对线打优了，可以稳定过渡了……
+
+*****
+
+####  我爱撩菜  
+##### 1647#       发表于 2022-8-6 08:17
+
+刚起来。
+
+漏油们，昨晚的比赛有哪场值得回看的嘛
+
+昨晚就看了老干爹打OG就睡觉了。
+
+目前已知的是RNG的第一盘上帝屠夫秀可以看
+
+*****
+
+####  a1370303  
+##### 1648#       发表于 2022-8-6 08:17
+
+不对啊，这阵容茶队怎么三路优了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 1649#       发表于 2022-8-6 08:18
+
+茶队这阵容也能线优啊...雪碧现在对线真是稀烂<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
