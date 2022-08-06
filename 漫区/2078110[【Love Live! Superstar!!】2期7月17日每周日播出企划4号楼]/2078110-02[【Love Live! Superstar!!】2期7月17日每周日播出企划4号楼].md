@@ -5453,3 +5453,37 @@ b站给我推送了个星团 版  孤泳者。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8月索尼那个拼盘音乐节突然担心了起来。今天去了TIF看隔壁imassc的拼盘live，和真正三次元偶像比起来真的感觉要被创死了，令人绝望的站立人数+应援，还有实力上的绝对差距，简直就是公开处刑。不知道到时候索尼音乐节会咋样
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2041#       发表于 2022-8-6 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953435&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-6 19:33</a>
+
+8月索尼那个拼盘音乐节突然担心了起来。今天去了TIF看隔壁imassc的拼盘live，和真正三次元偶像比起 ...</blockquote>
+那个拼盘叫SUMMER SONIC 2022啦，好像没看见和索尼有啥直接关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2042#       发表于 2022-8-6 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953630&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-6 19:51</a>
+
+那个拼盘叫SUMMER SONIC 2022啦，好像没看见和索尼有啥直接关系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">索尼不索尼其实无所谓 主要是好像记得出演者都挺大物的来着 而且这个还不算二次元专攻的拼盘live 有点担心冷场
+
+*****
+
+####  aoaoaodedede  
+##### 2043#       发表于 2022-8-6 19:56
+
+ 本帖最后由 aoaoaodedede 于 2022-8-6 19:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953655&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-6 19:53</a>
+
+索尼不索尼其实无所谓 主要是好像记得出演者都挺大物的来着 而且这个还不算二次元专攻的拼盘live  ...</blockquote>
+逛了逛官网，发现时间表已经有了（PACIFIC 那里，11:15）
+<img src="https://www.summersonic.com/wp/wp-content/uploads/2022/07/pc_timetable_tokyo_day2-2.jpg" referrerpolicy="no-referrer">
+
