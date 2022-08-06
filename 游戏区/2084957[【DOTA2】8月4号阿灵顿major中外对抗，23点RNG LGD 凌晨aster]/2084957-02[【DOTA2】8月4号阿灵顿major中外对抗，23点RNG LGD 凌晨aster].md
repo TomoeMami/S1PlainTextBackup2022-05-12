@@ -2052,3 +2052,26 @@ dota cs都他办，都办不好
 
 我都是8~9点爬去睡觉，半夜起来看到早上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 1752#       发表于 2022-8-6 16:42
+
+第一轮还是可以看的
+
+*****
+
+####  健康猹  
+##### 1753#       发表于 2022-8-6 16:47
+
+想看的都在后半夜，NMB啊
+
+*****
+
+####  反方向的波  
+##### 1754#       发表于 2022-8-6 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">哦对，上帝试训被踢就是在talon，最后人家要了23savage。en找居然找出看点了
+
