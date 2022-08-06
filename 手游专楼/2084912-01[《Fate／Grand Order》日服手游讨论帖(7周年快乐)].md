@@ -3224,3 +3224,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 看见金MC卡背以为稳了，结果歪个大象<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 318#       发表于 2022-8-7 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958326&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 03:08</a>
+
+想起今天送护符就爬起来抽了几发 居然2宝了。泳装无了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 看到你抽我也抽了下 果然2宝了 跟着萌新有肉吃
+

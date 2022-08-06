@@ -5979,3 +5979,14 @@ bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚
 bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚被打的脑浆都出来了 ...</blockquote>
 谢谢
 
+
+
+*****
+
+####  莉拉厨  
+##### 2248#       发表于 2022-8-7 07:30
+
+这石头人怎么双骨灰啊 咋想的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
