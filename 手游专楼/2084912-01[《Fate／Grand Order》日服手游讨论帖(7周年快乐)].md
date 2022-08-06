@@ -3192,3 +3192,17 @@ emmmm这鹿角神没有复活石确实不好打<img src="https://static.saraba1s
 emmmm这鹿角神没有复活石确实不好打</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实有套路  不过复活石又不能存。。不用白不用
 
+
+
+*****
+
+####  kiralzb  
+##### 315#       发表于 2022-8-7 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957765&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 01:05</a>
+
+其实有套路  不过复活石又不能存。。不用白不用</blockquote>
+不想努力了，那么多条血，碎石就碎石吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后中间脑抽操作失误，结果复活了两次才过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5251,3 +5251,58 @@ boxi打3肯定比现在的zai强得多
 
 又开始进入选puck和选好打puck的英雄的中路循环了，这剧情是不是去年看过一遍了
 
+
+
+*****
+
+####  夜光铃  
+##### 2159#       发表于 2022-8-7 01:31
+
+4号位谜团的话憋星很堪忧，因为节奏关键点的卡桑起不了节奏
+
+*****
+
+####  Litccc  
+##### 2160#       发表于 2022-8-7 01:32
+
+蓝猫一进下水道puck就无敌了
+
+
+
+*****
+
+####  woyzeck  
+##### 2161#       发表于 2022-8-7 01:33
+
+帕克这个大和沉默机制可以改一下了
+
+*****
+
+####  walfeds  
+##### 2162#       发表于 2022-8-7 01:34
+
+那么问题来了，虾哥和术士zai哪个更菜一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 2163#       发表于 2022-8-7 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957939&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-7 01:29</a>
+
+boxi打3肯定比现在的zai强得多
+
+突然发现这比赛puck突然又变成非ban必选的12手了
+
+又开始进入选puck和选好打p ...</blockquote>
+去年IG夺冠的MAJOR场均帕克打紫猫。
+
+*****
+
+####  haruhiismer  
+##### 2164#       发表于 2022-8-7 01:36
+
+别改了中路灵活好玩的都砍到不能玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
