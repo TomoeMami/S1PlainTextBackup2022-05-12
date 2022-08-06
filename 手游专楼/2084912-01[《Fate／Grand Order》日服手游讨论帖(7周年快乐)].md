@@ -2679,3 +2679,63 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 红卡看情况吧，锁减cd服的原地爆炸（比如公主），万一以后有不锁cd服的呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 271#       发表于 2022-8-6 17:51
+
+ 本帖最后由 Jamaisvu 于 2022-8-6 17:52 编辑 
+
+话说阿瓦隆女士是不是绿拐还真不好说，我感觉她也有可能是来替代孝哥的...因为街机里这两个角色的名字都是マーリン，也就是说如果原名实装的话，依然不能跟奥伯龙组队，所以改了个名字回娘家...顺便接班？
+
+（就是不知道伪阶代表什么，只是异世界芙芙吗...）
+
+*****
+
+####  alucardcz  
+##### 272#       发表于 2022-8-6 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952543&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-6 17:51</a>
+
+话说阿瓦隆女士是不是绿拐还真不好说，我感觉她也有可能是来替代孝哥的...因为街机里这两个角色的名字都是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">万一连拐都不是呢  为什么你们老想着是拐
+
+*****
+
+####  exiaexa  
+##### 273#       发表于 2022-8-6 17:57
+
+梅莉宝具无伤害的情况下，最佳选择感觉是做成个三色拐，更直接点做成个三色奥伯龙也没啥问题
+
+一技能标配群充加攻+np率
+二技能减1cd+np
+三技能30三色魔放+任意附赠效果
+
+大家都有光明的未来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 274#       发表于 2022-8-6 17:58
+
+刚才查资料时发现YLS接受FAMI通采访时表示羁绊礼装后面用的到，希望大家多刷一些。
+
+参考第一部终章的羁绊可以换算成攻击力加成，估计第二部终章的刷树环节带羁绊礼装能获得不少buff？看来要老老实实地把常用打手刷到羁绊10了...我迦里有不少刷到9就因为没石头拿而开始换人的老员工<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 275#       发表于 2022-8-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952567&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 17:54</a>
+
+万一连拐都不是呢  为什么你们老想着是拐</blockquote>
+因为宝具动画和街机一样...所以感觉像是辅助的...
+
+而且目前伪阶有单体和光炮了，来个辅助也很正常...
+
+蓝单体，红光炮，绿辅助
+
