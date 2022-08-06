@@ -2075,3 +2075,22 @@ dota cs都他办，都办不好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">哦对，上帝试训被踢就是在talon，最后人家要了23savage。en找居然找出看点了
 
+
+
+*****
+
+####  超人苏坦纳  
+##### 1755#       发表于 2022-8-6 16:53
+
+这么关注a处 有证据怀疑狗头人才是最大集美
+
+*****
+
+####  ArowRocher  
+##### 1756#       发表于 2022-8-6 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952020&amp;ptid=2084957" target="_blank">超人苏坦纳 发表于 2022-8-6 16:53</a>
+
+这么关注a处 有证据怀疑狗头人才是最大集美</blockquote>
+中单光一：理性分析，狗头人更像是得不到就毁掉，有点病娇的味道了。
+
