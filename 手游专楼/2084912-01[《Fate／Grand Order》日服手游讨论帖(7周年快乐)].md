@@ -2448,3 +2448,15 @@ yume32ki
 8周年有机会出一个狗粮 金狗银狗专用仓库吗</blockquote>
 那从者仓库还有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 249#       发表于 2022-8-6 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56950824&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-6 14:28</a>
+
+那从者仓库还有什么用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是放从者的 人家大佬要10宝100宝呢!
+
