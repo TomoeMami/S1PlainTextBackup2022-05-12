@@ -2578,3 +2578,31 @@ slsl-5  ?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">能发言了
 
+
+
+*****
+
+####  ArowRocher  
+##### 1808#       发表于 2022-8-6 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56954720&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-6 21:02</a>
+外网dota梗看不太懂 除了那个na机场还有ceb ez</blockquote>
+我也不太懂，随便说说
+"Kick xx for this?"和"kick xx for topson"大概就是国内的“我为xx选个中”
+"mafia pause"应该就是黑暗降临或者俄罗斯黑帮枪抵头
+ZAIJ是zai直播间的梗
+region hater是地域嗨   
+ sea bunch of noobs是骂东南雅人的
+Lulquid我认为是黑液体的，lul是lol的变种。
+Dr suleiman al habib:      suleiman是利雅得大师赛的主办人之一
+
+顺带一提，国外twitch弹幕也经常跟脑浆情况发yatorogod和yatorodog<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+还有个评论：EG losing = "NA dota" EG winning = "no US players"<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1809#       发表于 2022-8-6 21:30
+
+你楼的id越来越离谱了
+
