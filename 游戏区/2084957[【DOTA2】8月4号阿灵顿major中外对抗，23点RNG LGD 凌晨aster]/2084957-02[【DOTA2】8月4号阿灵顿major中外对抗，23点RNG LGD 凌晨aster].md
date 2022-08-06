@@ -5999,3 +5999,26 @@ bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是我带有色眼镜吗，看TS真的有想把老东京踢了。
 
+
+
+*****
+
+####  莉拉厨  
+##### 2250#       发表于 2022-8-7 07:41
+
+ 本帖最后由 莉拉厨 于 2022-8-7 07:43 编辑 
+
+宰了宰了 小茶叶心满意足 明天最后一把打BOOM生死战，感觉要输
+哇刚说完就狂送啊 气死了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  AkaiSuisei  
+##### 2251#       发表于 2022-8-7 07:45
+
+憋星直接基地了！天！
+

@@ -5519,3 +5519,12 @@ b站给我推送了个星团 版  孤泳者。
 
 冷场是不可能的，就今年这个天气，还是中午场，场子肯定热的鸭皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2048#       发表于 2022-8-7 07:47
+
+今天播出的Love Live!SuperStar!!2期第4集「科学室のふたり」可能因高中棒球比赛转播，时间变更 
+
