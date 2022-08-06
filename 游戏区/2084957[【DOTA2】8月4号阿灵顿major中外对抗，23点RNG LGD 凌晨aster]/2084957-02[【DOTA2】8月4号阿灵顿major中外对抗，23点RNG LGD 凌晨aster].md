@@ -1555,3 +1555,31 @@ TS这把对线打得很烂，特别是下路电魂打幽鬼能劣势就离谱好
 
 我看到上帝又是点金电锤直接睡了，结果居然赢了吗
 
+
+
+*****
+
+####  4591  
+##### 1696#       发表于 2022-8-6 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948384&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-6 09:41</a>
+我看到上帝又是点金电锤直接睡了，结果居然赢了吗</blockquote>
+上帝当了一整场的肉扛住了局势让超哥和茶猪发育起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，和某位楼友说的一样，以后还是给上帝选屠夫钢背吧
+
+*****
+
+####  12481632  
+##### 1697#       发表于 2022-8-6 09:48
+
+茶队胜者组是不是还要赢一轮才能直邀
+
+*****
+
+####  坚定的团子党  
+##### 1698#       发表于 2022-8-6 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948432&amp;ptid=2084957" target="_blank">12481632 发表于 2022-08-06 09:48:24</a>
+茶队胜者组是不是还要赢一轮才能直邀</blockquote>是的，去年animajor好像就是胜者组连负两东南亚战队，0分回家<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
