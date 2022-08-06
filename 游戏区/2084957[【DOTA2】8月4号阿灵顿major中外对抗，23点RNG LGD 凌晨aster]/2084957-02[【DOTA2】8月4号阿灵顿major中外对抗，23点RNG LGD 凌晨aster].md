@@ -5089,3 +5089,124 @@ nts是跳刀躲了开雾猛犸跳大卧槽<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 2140#       发表于 2022-8-7 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957606&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-7 00:49</a>
+顶着bkb的火女感觉好无助，被上帝一刀一刀剐</blockquote>
+600攻加个锤子打小姑娘
+
+*****
+
+####  聚散浮云  
+##### 2141#       发表于 2022-8-7 01:11
+
+睡了睡了，明晚3点漏油们一个都别跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 2142#       发表于 2022-8-7 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这状态的上帝没ti打的话我不能接受
+
+*****
+
+####  Litccc  
+##### 2143#       发表于 2022-8-7 01:12
+
+明天三点不见不散<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 2144#       发表于 2022-8-7 01:12
+
+lgd现在怎么把把线劣靠团战打回来。。这样打一旦345状态下降或者英雄池被削 会被一波压到死把<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mazin001  
+##### 2145#       发表于 2022-8-7 01:12
+
+这版本选猛犸是真的有点弱智
+
+*****
+
+####  方舟失智博士  
+##### 2146#       发表于 2022-8-7 01:13
+
+明天能连麦fy么
+
+*****
+
+####  弈秋  
+##### 2147#       发表于 2022-8-7 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想明天怎么起来
+
+*****
+
+####  幻想风靡_  
+##### 2148#       发表于 2022-8-7 01:13
+
+睡了，还是等明天三点吧
+
+*****
+
+####  BallanceHZ  
+##### 2149#       发表于 2022-8-7 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957823&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-7 01:12</a>
+lgd现在怎么把把线劣靠团战打回来。。这样打一旦345状态下降或者英雄池被削 会被一波压到死把 ...</blockquote>
+这把这个nec点的和打的都一般吧，跳躲猛犸大那波比较亮
+
+*****
+
+####  nightmare902015  
+##### 2150#       发表于 2022-8-7 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957823&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-7 01:12</a>
+lgd现在怎么把把线劣靠团战打回来。。这样打一旦345状态下降或者英雄池被削 会被一波压到死把 ...</blockquote>
+第二把只是马体线上想太多了。十分钟打完对线，马体人头领先但经济被开红绿灯，反而是线上被lgd爆了。
+
+*****
+
+####  walfeds  
+##### 2151#       发表于 2022-8-7 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明天该晚七点睡觉了，睡八个小时正好凌晨三点
+
+*****
+
+####  沈淮  
+##### 2152#         楼主| 发表于 2022-8-7 01:16
+
+怎么还有人问为啥zai叫术士zai的，
+
+这外号不就是xiao8的术士8变种么，瑞典小8叫术士zai有啥稀奇的，假腿，小天鹅，冷暴力队友全干过了，封一个鼠屎称号不过分
+
+*****
+
+####  雅朵莉雀  
+##### 2153#       发表于 2022-8-7 01:17
+
+卧槽，QC怎么赢了OG一盘
+
+昨天QC被Talon2：0之后我以为这个队已经稳稳垫底了啊
+
+看bp还是ATF拿到了电魂，难道是CCNC宰猪了？
+
+*****
+
+####  莉拉厨  
+##### 2154#       发表于 2022-8-7 01:20
+
+看了下形势，RNG后面全输应该也不会被淘汰了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
