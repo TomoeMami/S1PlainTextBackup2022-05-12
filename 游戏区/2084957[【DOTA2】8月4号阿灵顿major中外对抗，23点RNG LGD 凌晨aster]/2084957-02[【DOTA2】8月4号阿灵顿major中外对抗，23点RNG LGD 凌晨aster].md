@@ -4016,3 +4016,212 @@ bp就是丢硬币 正面lion 反面小y 立中间就强子
 
 怎么选了个火枪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这lina选出来我还以为是23打的
 
+
+
+*****
+
+####  幻想风靡_  
+##### 1996#       发表于 2022-8-7 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957350&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-7 00:20</a>
+
+好呀好呀，我去dota2官博下评论了个翻盘和ame没什么关系被集美冲了，然后官博把我评论删了 ...</blockquote>
+在敌阵就委婉点，比方说可以把2345都吹一遍
+
+*****
+
+####  吃货红毛  
+##### 1997#       发表于 2022-8-7 00:22
+
+液体搞精神攻击了来自: iPhone客户端
+
+*****
+
+####  テロメア  
+##### 1998#       发表于 2022-8-7 00:22
+
+我超，猛犸是什么鬼
+
+*****
+
+####  ArowRocher  
+##### 1999#       发表于 2022-8-7 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957350&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-7 00:20</a>
+好呀好呀，我去dota2官博下评论了个翻盘和ame没什么关系被集美冲了，然后官博把我评论删了 ...</blockquote>
+有关系的，没他不用翻盘两次
+
+*****
+
+####  nowaki  
+##### 2000#       发表于 2022-8-7 00:22
+
+火枪+火女也太鳖了
+
+*****
+
+####  -SLSL-  
+##### 2001#       发表于 2022-8-7 00:23
+
+经典拍拍打猛犸
+
+*****
+
+####  战狼PTSD  
+##### 2002#       发表于 2022-8-7 00:23
+
+龟龟，猛犸拍拍
+
+*****
+
+####  弈秋  
+##### 2003#       发表于 2022-8-7 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，什么ptsd
+
+*****
+
+####  nightmare902015  
+##### 2004#       发表于 2022-8-7 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957351&amp;ptid=2084957" target="_blank">超人苏坦纳 发表于 2022-8-7 00:20</a>
+bp就是丢硬币 正面lion 反面小y 立中间就强子</blockquote>
+还是六面色子吧，还有小小拉比克土猫呢
+
+*****
+
+####  12481632  
+##### 2005#       发表于 2022-8-7 00:24
+
+坐等处长线上又要被打爆
+
+*****
+
+####  walfeds  
+##### 2006#       发表于 2022-8-7 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957311&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-7 00:15</a>
+
+打得好不好都不会踢misha，ceb保不住yuragi
+
+og现在的问题是yuragi地位太低了，atf英雄币天天把yuragi当bp垃 ...</blockquote>
+反正我想开了，第一年就随便年轻人去浪吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无论什么结果早晚要背在头上的
+
+第二第三年再头铁那该调整调整该散伙散伙
+
+*****
+
+####  Litccc  
+##### 2007#       发表于 2022-8-7 00:24
+
+zai的猛犸基本不用看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AIDSL  
+##### 2008#       发表于 2022-8-7 00:24
+
+3颠勺+血魔
+
+什么五人黑阵容啊
+
+*****
+
+####  北条早苗  
+##### 2009#       发表于 2022-8-7 00:25
+
+术士zai的猛犸就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 2010#       发表于 2022-8-7 00:26
+
+液体这阵容选出来像是固体<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  超人苏坦纳  
+##### 2011#       发表于 2022-8-7 00:26
+
+“历届ti冠军都是打架c”
+
+*****
+
+####  ArowRocher  
+##### 2012#       发表于 2022-8-7 00:26
+
+液体这控制拿了好多
+
+*****
+
+####  secretgarnet  
+##### 2013#       发表于 2022-8-7 00:26
+
+zai现在真的玩得来猛犸吗兄弟们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 2014#       发表于 2022-8-7 00:26
+
+莫言你到底还会什么！来自: iPhone客户端
+
+*****
+
+####  Litccc  
+##### 2015#       发表于 2022-8-7 00:26
+
+橘鳖又开始了啊，都没人理他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 2016#       发表于 2022-8-7 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zai的猛犸不配啊
+
+*****
+
+####  nightmare902015  
+##### 2017#       发表于 2022-8-7 00:27
+
+nec不是被神谕大小技能爆中爆吗，我怎么有点看不懂啊
+
+*****
+
+####  43453  
+##### 2018#       发表于 2022-8-7 00:27
+
+索然无味的凌晨班次
+
+*****
+
+####  逃离二次元  
+##### 2019#       发表于 2022-8-7 00:27
+
+zai畜玩得了猛犸吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 2020#       发表于 2022-8-7 00:28
+
+猴爹还会玩绿色英雄的？
+
+*****
+
+####  ArowRocher  
+##### 2021#       发表于 2022-8-7 00:29
+
+Boxi死了
+
+*****
+
+####  逃离二次元  
+##### 2022#       发表于 2022-8-7 00:29
+
+撸狗猪看到卡卡状态这么残，冰龙马上又要复活，怎么敢往前走的
+
