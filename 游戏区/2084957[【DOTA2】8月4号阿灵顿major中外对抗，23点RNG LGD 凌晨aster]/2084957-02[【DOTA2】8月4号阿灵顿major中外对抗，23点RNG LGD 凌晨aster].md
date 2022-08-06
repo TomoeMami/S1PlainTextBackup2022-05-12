@@ -3242,3 +3242,424 @@ nts一死处长就送起来了啊
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  12481632  
+##### 1896#       发表于 2022-8-6 23:51
+
+lzk又来了，哈人<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 1897#       发表于 2022-8-6 23:51
+
+林子凯介绍熊哥小技巧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">，就他一直说这种啊我真的服了
+
+*****
+
+####  蛭人  
+##### 1898#       发表于 2022-8-6 23:51
+
+处长给我看笑了，四赵云你们太强了，我也要冲。
+
+*****
+
+####  ArowRocher  
+##### 1899#       发表于 2022-8-6 23:51
+
+草
+
+*****
+
+####  iriyano  
+##### 1900#       发表于 2022-8-6 23:51
+
+刚切过来就看萧瑟没开bkb
+绷不住了
+
+*****
+
+####  吃货红毛  
+##### 1901#       发表于 2022-8-6 23:52
+
+我靠 完美秒德鲁伊之后 回头一看萧瑟也特么躺了来自: iPhone客户端
+
+*****
+
+####  12481632  
+##### 1902#       发表于 2022-8-6 23:52
+
+这把真的是处长经典局了，有决赛日7成风采了
+
+*****
+
+####  sodah  
+##### 1903#       发表于 2022-8-6 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小王处这切入。。。
+
+*****
+
+####  mkii量产型  
+##### 1904#       发表于 2022-8-6 23:52
+
+昨天王处长两眼的时候处长夫人没播，今天丑陋的全看见了
+
+*****
+
+####  Cookiekira  
+##### 1905#       发表于 2022-8-6 23:52
+
+哈哈哈邪恶睿达拳头应该硬了
+
+*****
+
+####  walfeds  
+##### 1906#       发表于 2022-8-6 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似曾相识
+
+*****
+
+####  战狼PTSD  
+##### 1907#       发表于 2022-8-6 23:52
+
+又经典暴毙了，能有ANA一半切入早TM夺冠了
+
+*****
+
+####  杜文乐超神归来  
+##### 1908#       发表于 2022-8-6 23:53
+
+想翻盘，问过我王蠢鱼了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 1909#       发表于 2022-8-6 23:53
+
+rng这边看的好爽。
+
+啥意思另一边处长戏瘾提前犯了、？？
+
+*****
+
+####  吃货红毛  
+##### 1910#       发表于 2022-8-6 23:54
+
+这波……萧瑟给明鞭磕一百个头来自: iPhone客户端
+
+*****
+
+####  蛭人  
+##### 1911#       发表于 2022-8-6 23:54
+
+这就是四赵云吗，我哭了。
+
+*****
+
+####  山上徹也  
+##### 1912#       发表于 2022-8-6 23:54
+
+这波真是四个赵云啊
+
+*****
+
+####  haruhiismer  
+##### 1913#       发表于 2022-8-6 23:54
+
+哇好硬都是赵云呀
+
+*****
+
+####  12481632  
+##### 1914#       发表于 2022-8-6 23:54
+
+哇，赵云那么使劲干嘛啊
+
+*****
+
+####  trackerList  
+##### 1915#       发表于 2022-8-6 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剩下四个是真的想赢啊
+
+*****
+
+####  北条早苗  
+##### 1916#       发表于 2022-8-6 23:54
+
+赵云也太猛了
+
+*****
+
+####  nowaki  
+##### 1917#       发表于 2022-8-6 23:54
+
+四赵云真的随便打兄弟们
+
+*****
+
+####  Litccc  
+##### 1918#       发表于 2022-8-6 23:54
+
+4赵云太强了
+
+*****
+
+####  sodah  
+##### 1919#       发表于 2022-8-6 23:55
+
+卧槽，真特么是阿斗啊。
+
+*****
+
+####  nightmare902015  
+##### 1920#       发表于 2022-8-6 23:55
+
+希望ti11决赛a处也能这样好好躺着就行<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  莉拉厨  
+##### 1921#       发表于 2022-8-6 23:55
+
+卧槽，四赵云完美团加天命盾 拿下！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 1922#       发表于 2022-8-6 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957058&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-7 00:53</a>
+想翻盘，问过我王蠢鱼了吗？</blockquote>
+需要问吗？
+
+*****
+
+####  mkii量产型  
+##### 1923#       发表于 2022-8-6 23:55
+
+王公子不给鞭神和赵公子磕头？
+
+*****
+
+####  ArowRocher  
+##### 1924#       发表于 2022-8-6 23:55
+
+说，谢谢明鞭
+
+*****
+
+####  你谁  
+##### 1925#       发表于 2022-8-6 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> ame什么没干
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 1926#       发表于 2022-8-6 23:55
+
+妈呀四赵云这么想赢搞毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1927#       发表于 2022-8-6 23:55
+
+真就四赵云啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1928#       发表于 2022-8-6 23:55
+
+龟龟，赵云啊
+
+*****
+
+####  阿垃垃圾历  
+##### 1929#       发表于 2022-8-6 23:55
+
+这开团效果4赵云也太屌了 
+
+*****
+
+####  bishbashbosh  
+##### 1930#       发表于 2022-8-6 23:56
+
+赵云再屌一点啊
+
+*****
+
+####  a1370303  
+##### 1931#       发表于 2022-8-6 23:56
+
+四赵云搞这么厉害干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 1932#       发表于 2022-8-6 23:56
+
+马桶怎么一直随便开大啊
+
+*****
+
+####  蛭人  
+##### 1933#       发表于 2022-8-6 23:56
+
+4/5/8的TA，还是处长对游戏的理解力强啊。
+
+*****
+
+####  朝游北海  
+##### 1934#       发表于 2022-8-6 23:56
+
+LGD找了一年答案就是别信萧瑟是吧，赵云太猛了
+
+*****
+
+####  战狼PTSD  
+##### 1935#       发表于 2022-8-6 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957105&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-6 23:56</a>
+
+马桶怎么一直随便开大啊</blockquote>
+熊德大？我记得点天赋空窗期就10S，随时都能开
+
+*****
+
+####  ArowRocher  
+##### 1936#       发表于 2022-8-6 23:57
+
+请婴儿不要把身体探出婴儿车外<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 1937#       发表于 2022-8-6 23:57
+
+只不过是364天中平平无奇的一天罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 1938#       发表于 2022-8-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957112&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-7 00:56</a>
+熊德大？我记得点天赋空窗期就10S，随时都能开</blockquote>
+连续两次都是正好变回来的时候开团，有点迷
+
+*****
+
+####  secretgarnet  
+##### 1939#       发表于 2022-8-6 23:57
+
+处长躺好就行了，全看四赵云了
+
+*****
+
+####  吃货红毛  
+##### 1940#       发表于 2022-8-6 23:58
+
+大明鞭真的无敌啊来自: iPhone客户端
+
+*****
+
+####  Keynes  
+##### 1941#       发表于 2022-8-6 23:58
+
+这四个赵云真的无敌了啊，我吐了
+
+*****
+
+####  windhawind2  
+##### 1942#       发表于 2022-8-6 23:58
+
+这么强的潮汐和小鹿 竟然两年都不能带一个ti前6出国<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 1943#       发表于 2022-8-6 23:58
+
+四赵云这团战美如画啊
+
+*****
+
+####  12481632  
+##### 1944#       发表于 2022-8-6 23:59
+
+睿达把冰甲放下面推推放上面，什么意思呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 逃离二次元| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  吃货红毛  
+##### 1945#       发表于 2022-8-7 00:00
+
+莫言这团开得真是光速来自: iPhone客户端
+
+*****
+
+####  格雷殿下  
+##### 1946#       发表于 2022-8-7 00:00
+
+赵云也太强了吧
+
+*****
+
+####  haruhiismer  
+##### 1947#       发表于 2022-8-7 00:00
+
+问题来咯为啥带不动鸡哥
+
+*****
+
+####  弈秋  
+##### 1948#       发表于 2022-8-7 00:00
+
+zai安全带
+
+*****
+
+####  莉拉厨  
+##### 1949#       发表于 2022-8-7 00:00
+
+潮汐刷新还是叼啊，容错好高，这都翻了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  暴走的包子  
+##### 1950#       发表于 2022-8-7 00:01
+
+35真是力中大力啊
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
