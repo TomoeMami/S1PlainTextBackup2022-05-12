@@ -2496,3 +2496,63 @@ yume32ki
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">时间不多了!
 
+
+
+*****
+
+####  alucardcz  
+##### 253#       发表于 2022-8-6 17:02
+
+ 本帖最后由 alucardcz 于 2022-8-6 17:05 编辑 
+
+真是小王子和c元帅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就 给了个30绿魔放？
+
+*****
+
+####  朝香果林  
+##### 254#         楼主| 发表于 2022-8-6 17:05
+
+继续选一个喜得充能，给班扬来个充能吧
+
+*****
+
+####  alucardcz  
+##### 255#       发表于 2022-8-6 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952159&amp;ptid=2084912" target="_blank">朝香果林 发表于 2022-8-6 17:05</a>
+
+继续选一个喜得充能，给班扬来个充能吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宝具后限定外星人的充能。。只能说有啥用
+
+*****
+
+####  exiaexa  
+##### 256#       发表于 2022-8-6 17:07
+
+小王子50绿了，各位三连人可能有救了
+
+元帅拿了个牛逼得不行但是不存在的宝具本
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 257#       发表于 2022-8-6 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952167&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 17:06</a>
+宝具后限定外星人的充能。。只能说有啥用</blockquote>
+讲道理哪怕是专供外星人也挺有用的，就是没本事放出来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 258#       发表于 2022-8-6 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952200&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 17:09</a>
+
+讲道理挺有用的，就是没本事放出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给他宝石！
+
