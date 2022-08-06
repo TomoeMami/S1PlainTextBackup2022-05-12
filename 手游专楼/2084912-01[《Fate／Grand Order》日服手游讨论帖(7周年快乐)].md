@@ -2783,3 +2783,31 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 
 其实我还真挺想看到“赋予队友对敌人职阶有利相性”这种逆天buff，不过可能性不大（快关服的时候给伪装成所罗门的盖提亚发一个倒是还不错），能给个上三骑或下四骑特攻就知足了...
 
+
+
+*****
+
+####  alucardcz  
+##### 279#       发表于 2022-8-6 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952728&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-6 18:13</a>
+
+有50NP充能和减1CD和红魔放就能有效拯救公主了
+
+看了下没什么参考性的街机，前两个技能是英雄作成 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们为什么都是以换人为前提的救法  真用到换人了 完全没有优势了啊
+
+*****
+
+####  千叶铁矢  
+##### 280#       发表于 2022-8-6 18:29
+
+没忍住最后一宝抽了600石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 281#       发表于 2022-8-6 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么也比我这90石强三倍以上
+
