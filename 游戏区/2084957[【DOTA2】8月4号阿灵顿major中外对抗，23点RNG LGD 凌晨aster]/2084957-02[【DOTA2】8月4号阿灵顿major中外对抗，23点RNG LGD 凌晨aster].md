@@ -5893,3 +5893,12 @@ lgd第一把bp真的爆浆 打团就大锤一个能顶的 其他酱油都是短�
 
 焦阳别用力了我害怕蓝猫因为你加强不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 2240#       发表于 2022-8-7 06:50
+
+雪碧又破两路落后两万翻盘了。boom战队这个拉比克真的畜中畜啊，送宝石，不留买，偷虚空大坑队友
+
