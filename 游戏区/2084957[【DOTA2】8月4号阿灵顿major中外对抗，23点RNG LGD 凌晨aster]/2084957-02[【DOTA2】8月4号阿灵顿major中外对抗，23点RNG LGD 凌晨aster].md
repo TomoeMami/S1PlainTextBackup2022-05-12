@@ -5990,3 +5990,12 @@ bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Aeons  
+##### 2249#       发表于 2022-8-7 07:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是我带有色眼镜吗，看TS真的有想把老东京踢了。
+
