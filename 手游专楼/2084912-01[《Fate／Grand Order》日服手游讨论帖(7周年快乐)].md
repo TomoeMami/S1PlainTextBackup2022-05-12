@@ -2341,3 +2341,28 @@ MD这地特攻有点难用，哪怕是打道中，无论如何都得换人，好
 
 刷到11EQP但是技能都舍不得点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 243#       发表于 2022-8-6 09:57
+
+狗 粮 爆 仓
+可以摸鱼刷qp了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怎么还不开泳装，我想抽卡.jpg
+
+*****
+
+####  areklose  
+##### 244#       发表于 2022-8-6 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948501&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 09:57</a>
+
+狗 粮 爆 仓
+
+可以摸鱼刷qp了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我现在只担心生放的时候说下周才开
+
