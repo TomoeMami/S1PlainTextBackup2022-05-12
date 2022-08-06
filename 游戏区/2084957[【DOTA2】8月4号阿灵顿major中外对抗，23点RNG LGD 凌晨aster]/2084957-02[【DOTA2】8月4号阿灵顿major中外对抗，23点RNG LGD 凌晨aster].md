@@ -5932,3 +5932,14 @@ lgd第一把bp真的爆浆 打团就大锤一个能顶的 其他酱油都是短�
 
 有人看了lgd那把怎么输的吗
 
+
+
+*****
+
+####  Damocles990609  
+##### 2245#       发表于 2022-8-7 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958649&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-7 07:00</a>
+有人看了lgd那把怎么输的吗</blockquote>
+bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚被打的脑浆都出来了
+
