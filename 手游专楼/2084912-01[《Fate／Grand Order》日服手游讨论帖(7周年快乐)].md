@@ -3135,3 +3135,15 @@ C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴�
 脑侧了一下就算把纹章那些配好，不靠对 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道以后各种高（低）难 会不会有各种花式单条视频
 
+
+
+*****
+
+####  芭德薇  
+##### 310#       发表于 2022-8-6 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953380&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 19:28</a>
+
+下次战线敌人血量x10预定</blockquote>
+血量高才能打出chain，不然宝具下去人没了就连不上了。
+
