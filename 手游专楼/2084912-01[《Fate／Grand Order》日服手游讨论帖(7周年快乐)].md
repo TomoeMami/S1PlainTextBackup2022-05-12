@@ -2556,3 +2556,60 @@ yume32ki
 讲道理挺有用的，就是没本事放出来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给他宝石！
 
+
+
+*****
+
+####  exiaexa  
+##### 259#       发表于 2022-8-6 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952210&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 17:09</a>
+给他宝石！</blockquote>
+公主:我感觉你们在呼唤我
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝香果林  
+##### 260#         楼主| 发表于 2022-8-6 17:18
+
+<blockquote>alucardcz 发表于 2022-8-6 17:06
+宝具后限定外星人的充能。。只能说有啥用</blockquote>
+再来个技能强化，不分敌我大家都变外星人
+
+*****
+
+####  alucardcz  
+##### 261#       发表于 2022-8-6 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波强化本真没意思 都没什么乐子
+
+*****
+
+####  不垃圾屌丝  
+##### 262#       发表于 2022-8-6 17:19
+
+wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 263#       发表于 2022-8-6 17:19
+
+小王子可以单体50魔放三回合了，好像还可以？我记得之前回收率算是不错的，只是缺伤害，现在有前置20宝威和50魔放（甚至还有个天之力特攻），加上拐的话应该能打出不错的数字吧...
+
+不知道新绿拐有什么进步之处，如果是伪阶的话，弄个“赋予我方单体对选定敌人职阶相性有利”的效果也说得过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+元帅这个其实强化力度还是挺大的，用不用得上就另说了。也许能进暗狐的多核队？
+
+（其实我感觉C元帅更需要改模<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  朝香果林  
+##### 264#         楼主| 发表于 2022-8-6 17:20
+
+其实我最期待明天，那2个一星狂我用得挺多。希望不要强化到牛上。。。
+
