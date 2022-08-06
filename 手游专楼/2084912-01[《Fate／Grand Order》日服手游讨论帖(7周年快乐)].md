@@ -2460,3 +2460,30 @@ yume32ki
 那从者仓库还有什么用</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是放从者的 人家大佬要10宝100宝呢!
 
+
+
+*****
+
+####  kiralzb  
+##### 250#       发表于 2022-8-6 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947413&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-6 02:51</a>
+妖崔这里建议用一条令咒给C呆回血，诅咒太伤了
+
+然后我在想没有灵脉石你角神怎么打 ...</blockquote>
+重试了好多次，过了，毒到没啥，宝具能清，问题是敌方的攻击是随机的，刷到吸血，连续多段攻击，盾提前没了血就顶不住，完全看运气了
+这一关2体力还好，10几体力的失败了感觉很亏，不退还体力真是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+至于最终boss，现在才到戴冠式，没体力等回复，苹果也只剩30几个，感觉还是留给活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 251#       发表于 2022-8-6 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947448&amp;ptid=2084912" target="_blank">FrozenA 发表于 2022-8-6 03:11</a>
+原来单挑不是c呆无脑宝蓝蓝就差不多过了的吗
+
+看来打的时候对面妖崔随机行动roll的好 ...</blockquote>
+我边看视频边打了一晚上，非洲人真的顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
