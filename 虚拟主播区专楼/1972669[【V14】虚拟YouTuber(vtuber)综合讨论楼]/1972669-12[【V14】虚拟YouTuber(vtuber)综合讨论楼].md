@@ -3041,3 +3041,21 @@ id也有3D了，落泪，这下3d披露排表得把idkr排进去了
 
 id终于也有3d了，不容易<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16769#       发表于 2022-8-6 22:07
+
+ 本帖最后由 alcoholic1000 于 2022-8-6 22:09 编辑 
+
+hana很久之前就确定有了吧，她一直想等其他成员
+
+Syl，millie删除推文<blockquote>&gt;millie: see you all in tokyo
+
+&gt;seffy: i can't wait for nijifes</blockquote>
+mysta也在杂谈中提到准备护照文件，计划去日本
+
+🤔
+
