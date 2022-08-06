@@ -3663,3 +3663,203 @@ zai安全带
 
 —— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ArowRocher  
+##### 1951#       发表于 2022-8-7 00:01
+
+躺了就是躺了
+
+*****
+
+####  聚散浮云  
+##### 1952#       发表于 2022-8-7 00:01
+
+选个抄袭都能这么carry，还是等版本制裁bian吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 1953#       发表于 2022-8-7 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957134&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-6 23:58</a>
+
+这么强的潮汐和小鹿 竟然两年都不能带一个ti前6出国</blockquote>
+又黑我鸡哥是吧
+
+*****
+
+####  iriyano  
+##### 1954#       发表于 2022-8-7 00:01
+
+og被qc宰了？
+
+*****
+
+####  阿垃垃圾历  
+##### 1955#       发表于 2022-8-7 00:01
+
+og被qc暴打啊  og怎么感觉不行了 
+
+*****
+
+####  有点神奇  
+##### 1956#       发表于 2022-8-7 00:02
+
+这也太强了吧，看得心惊胆战的
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 1957#       发表于 2022-8-7 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">依稀记得今天你楼有人质疑四赵云的育婴水平
+
+*****
+
+####  蛭人  
+##### 1958#       发表于 2022-8-7 00:02
+
+OG这三兄弟，ATF是真会整活，看好成为新一代国外畜鳖级选手。
+
+*****
+
+####  百世诸侯  
+##### 1959#       发表于 2022-8-7 00:02
+
+寄吧加班到这会儿，瞥了一眼A畜还被四赵云带赢了，我直接玉玉症发作
+
+*****
+
+####  Litccc  
+##### 1960#       发表于 2022-8-7 00:02
+
+三人组团队介绍：鞭神勇猛的狼，Y队远见的鹰，老鸡害群的马！
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  windhawind2  
+##### 1961#       发表于 2022-8-7 00:03
+
+lgd这两个推推+一个饼干直接把王处从大圣大圆心推出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 1962#       发表于 2022-8-7 00:03
+
+四兄弟搞那么厉害干什么。本来阿畜葬送比赛了
+
+*****
+
+####  nxmonitor  
+##### 1963#       发表于 2022-8-7 00:03
+
+OG昨天被打蠢了，第二盘直接心态爆炸了，今天看样子恢复得不是很好……
+
+*****
+
+####  北条早苗  
+##### 1964#       发表于 2022-8-7 00:04
+
+345人手搞了把推推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1965#       发表于 2022-8-7 00:04
+
+鸡哥真的强，，能把这么强的3，5关在国内两年，我是服的
+
+*****
+
+####  TIZI  
+##### 1966#       发表于 2022-8-7 00:04
+
+昨天能叫声小王，今天这只能继续畜字辈了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  杜文乐超神归来  
+##### 1967#       发表于 2022-8-7 00:05
+
+阿斗第二把能不能逆反一下。不让我出婴儿车是吧，我偏要出去<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 1968#       发表于 2022-8-7 00:06
+
+zai➗这大锤打得太抽象了，起码有两次大圣能抓帕克的被他从树上刮下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然李逵中期还真的能平推，无解肥的大锤后期零作用真有你的csdx
+
+*****
+
+####  坚定的团子党  
+##### 1969#       发表于 2022-8-7 00:06
+
+og major藏一手又不是没有前例，反正积分够了就划水，一到ti就爆种<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  很久就在那边l  
+##### 1970#       发表于 2022-8-7 00:06
+
+og是自作聪明选个青铜熟练度的中单夜魔搞帕克反而被帕克打爆
+
+*****
+
+####  windhawind2  
+##### 1971#       发表于 2022-8-7 00:07
+
+zai大锤这种先出个紫苑就初见杀了一次puck 后面被nts遛成马 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 1972#       发表于 2022-8-7 00:09
+
+这把nts厉害啊，中期的局势都是他带出来的，就是中间又一波自己被抓了其他人犯蠢了，要是那波缩起来等puck活不应该这么惊险的……
+
+*****
+
+####  nowaki  
+##### 1973#       发表于 2022-8-7 00:09
+
+现在的og配爆种么
+
+*****
+
+####  修罗王  
+##### 1974#       发表于 2022-8-7 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957219&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-7 00:06</a>
+
+og major藏一手又不是没有前例，反正积分够了就划水，一到ti就爆种
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+主要这个major打的不好踢不踢misha就很纠结了
+
+*****
+
+####  蛭人  
+##### 1975#       发表于 2022-8-7 00:09
+
+现在阵容的OG，有个几把荣誉，顶多拿了个major吧，双冠王OG，那可是起码有双major选手加教练，打的都是硬仗，我也不懂去年阵容的OG输给LGD后集美为什么要高潮，可能ti89的阴影挥之不去吧。
+
+*****
+
+####  弈秋  
+##### 1976#       发表于 2022-8-7 00:10
+
+今天maybe劈眼了吗
+
