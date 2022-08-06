@@ -5402,3 +5402,14 @@ b站给我推送了个星团 版  孤泳者。
 
 额，厕所的东西就算了
 
+
+
+*****
+
+####  1q11  
+##### 2036#       发表于 2022-8-6 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">樱小路的声音给我的违和感比唱歌的音宝还大
+
+—— 来自 HUAWEI JAD-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
