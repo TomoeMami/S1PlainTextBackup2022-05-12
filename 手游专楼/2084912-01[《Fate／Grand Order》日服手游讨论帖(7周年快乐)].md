@@ -2811,3 +2811,15 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么也比我这90石强三倍以上
 
+
+
+*****
+
+####  alucardcz  
+##### 282#       发表于 2022-8-6 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952868&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-6 18:29</a>
+
+没忍住最后一宝抽了600石泳装就剩300多石头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差不多的石头为什么大佬满宝 萌新1宝
+
