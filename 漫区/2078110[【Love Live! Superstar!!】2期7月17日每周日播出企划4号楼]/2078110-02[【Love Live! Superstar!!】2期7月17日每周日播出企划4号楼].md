@@ -5413,3 +5413,12 @@ b站给我推送了个星团 版  孤泳者。
 
 —— 来自 HUAWEI JAD-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+
+*****
+
+####  tuna  
+##### 2037#       发表于 2022-8-6 15:34
+
+坏了，樱小路丁真和香音uzi这两组对应关系已经在我脑子里扎根了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
