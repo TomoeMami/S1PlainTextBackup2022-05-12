@@ -3863,3 +3863,156 @@ og major藏一手又不是没有前例，反正积分够了就划水，一到ti�
 
 今天maybe劈眼了吗
 
+
+
+*****
+
+####  nowaki  
+##### 1977#       发表于 2022-8-7 00:11
+
+去年集美最高潮是ts淘汰og吧 那时候的赞美之词吹的我肉麻，然后决赛大家懂得都懂了
+
+*****
+
+####  ArowRocher  
+##### 1978#       发表于 2022-8-7 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957254&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 00:09</a>
+现在阵容的OG，有个几把荣誉，顶多拿了个major吧，双冠王OG，那可是起码有双major选手加教练，打的都是硬仗 ...</blockquote>
+OG不是那个OG，LGD不是那个LGD，队粉硬凹个仇敌的思路不需要懂
+
+*****
+
+####  4591  
+##### 1979#       发表于 2022-8-7 00:12
+
+mdy这几个迟早有一天要把自己直播间嚯嚯掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不是黑话就是阴阳带节奏
+
+*****
+
+####  Litccc  
+##### 1980#       发表于 2022-8-7 00:13
+
+讲道理金融巨子不是国土自称的么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ArowRocher  
+##### 1981#       发表于 2022-8-7 00:13
+
+TS淘汰OG那次除了莫名其妙的宿敌情绪，更多是崩溃猛犸集锦和东京的ez 
+
+*****
+
+####  反方向的波  
+##### 1982#       发表于 2022-8-7 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后决赛就变假赛
+
+*****
+
+####  haruhiismer  
+##### 1983#       发表于 2022-8-7 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957277&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-7 00:12</a>
+
+mdy这几个迟早有一天要把自己直播间嚯嚯掉，不是黑话就是阴阳带节奏</blockquote>
+主要是lzk突然发病几次了没啥征兆，哪天他又发病炸了也不奇怪
+
+*****
+
+####  nightmare902015  
+##### 1984#       发表于 2022-8-7 00:14
+
+lzk这个逼就跟第一天学会黑话的小学男生一样啊，强行插入一段什么龙骑熊哥什么谢君豪制裁美国，真的服
+
+*****
+
+####  Litccc  
+##### 1985#       发表于 2022-8-7 00:15
+
+漩涡子凯戏来了是这样的
+
+*****
+
+####  北条早苗  
+##### 1986#       发表于 2022-8-7 00:15
+
+打得好不好都不会踢misha，ceb保不住yuragi
+
+og现在的问题是yuragi地位太低了，atf英雄币天天把yuragi当bp垃圾桶，本泽马也有几个又菜又爱玩的英雄，凑一起就成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 1987#       发表于 2022-8-7 00:15
+
+就，就lion
+
+*****
+
+####  haruhiismer  
+##### 1988#       发表于 2022-8-7 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957299&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-7 00:14</a>
+
+lzk这个逼就跟第一天学会黑话的小学男生一样啊，强行插入一段什么龙骑熊哥什么谢君豪制裁美国，真的服 ...</blockquote>
+太生硬了，大伙直接汗出来了
+
+*****
+
+####  walfeds  
+##### 1989#       发表于 2022-8-7 00:15
+
+不把og打到解散总会ptsd的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鳖天天想着踢misha了，ceb当奇兵还能吃遍天吗
+
+如果大爹还想打也就算了，但明显不想啊
+
+*****
+
+####  BallanceHZ  
+##### 1990#       发表于 2022-8-7 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56957268&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-7 00:11</a>
+去年集美最高潮是ts淘汰og吧 那时候的赞美之词吹的我肉麻，然后决赛大家懂得都懂了 ...</blockquote>
+马后炮没啥用，去年没人想得到ts能打这么好，无人预测对的赛程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 1991#       发表于 2022-8-7 00:17
+
+是我马后炮还是决赛之后骂ts的集美马后炮？
+
+*****
+
+####  nowaki  
+##### 1992#       发表于 2022-8-7 00:19
+
+rng对自己推进决策这么有自信吗 炼金都被翻盘了
+
+*****
+
+####  聚散浮云  
+##### 1993#       发表于 2022-8-7 00:20
+
+好呀好呀，我去dota2官博下评论了个翻盘和ame没什么关系被集美冲了，然后官博把我评论删了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 1994#       发表于 2022-8-7 00:20
+
+bp就是丢硬币 正面lion 反面小y 立中间就强子
+
+*****
+
+####  反方向的波  
+##### 1995#       发表于 2022-8-7 00:20
+
+怎么选了个火枪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这lina选出来我还以为是23打的
+
