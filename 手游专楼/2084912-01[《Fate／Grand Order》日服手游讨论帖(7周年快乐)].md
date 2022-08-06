@@ -2984,3 +2984,41 @@ https://www.bilibili.com/video/BV14V4y1x7hZ
 
 红宝是红宝绿蓝 还是  绿红宝蓝？
 
+
+
+*****
+
+####  areklose  
+##### 297#       发表于 2022-8-6 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953118&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 19:00</a>
+
+我都没研究过这系统 嗨
+
+蓝卡寄中寄先不说</blockquote>
+前者。
+
+*****
+
+####  alucardcz  
+##### 298#       发表于 2022-8-6 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953140&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-6 19:02</a>
+
+前者。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哦   那蓝宝还真是唯一的悲剧
+
+*****
+
+####  exiaexa  
+##### 299#       发表于 2022-8-6 19:09
+
+ 本帖最后由 exiaexa 于 2022-8-6 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953118&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 19:00</a>
+我都没研究过这系统 嗨
+
+蓝卡寄中寄先不说</blockquote>
+红卡以前有很多名其妙的给了np率但是没地儿使的（比如旧剑），或者是单蓝爆炸但是没法吃到首蓝加成的（比如爷爷枪赖光）
+现在配一下礼装和纹章，很轻松就能连发
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
