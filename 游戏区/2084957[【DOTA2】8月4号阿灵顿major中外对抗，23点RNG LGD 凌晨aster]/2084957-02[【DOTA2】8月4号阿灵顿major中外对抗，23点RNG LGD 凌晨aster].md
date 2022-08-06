@@ -1956,3 +1956,23 @@ eesama人也不见了</blockquote>
 
 管人痴太多啦
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 1741#       发表于 2022-8-6 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56949869&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-6 12:19</a>
+意思都是脑浆大乱斗</blockquote>
+想看不脑浆的去看lgd呗
+
+*****
+
+####  外挂全家脚气  
+##### 1742#       发表于 2022-8-6 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56950048&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-6 12:42</a>
+nga有哪a处和a厨剑圣做对比，说a处厉害多了，笑死</blockquote>
+有一说一，昨天（应该是今天）的比赛里ame的剑圣发挥确实顶级
+
