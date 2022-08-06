@@ -2615,3 +2615,26 @@ Dr suleiman al habib:      suleiman是利雅得大师赛的主办人之一
 
 二次元蒸鹅心啊<img src="https://p.sda1.dev/6/51ad67382db52562510b7bb296566893/CMP_20220806224300749.PNG" id="aimg_g8nuY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://p.sda1.dev/6/ba9d01b80b93f8dfb3da92621f08b2ce/CMP_20220806224301281.PNG" id="aimg_Ll04K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+
+*****
+
+####  蛭人  
+##### 1811#       发表于 2022-8-6 23:05
+
+几把举办方，能不能准时开一次比赛的？
+
+*****
+
+####  ArowRocher  
+##### 1812#       发表于 2022-8-6 23:06
+
+马桶拿德鲁伊了
+
+*****
+
+####  反方向的波  
+##### 1813#       发表于 2022-8-6 23:09
+
+注意看这盘谢俊豪的bp表演
+
