@@ -1312,3 +1312,95 @@ o猫也太极限了
 
 —— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  4591  
+##### 1667#       发表于 2022-8-6 08:41
+
+这幽鬼居然不先拿盾，莫奈特这人果然比赛脑子都是宕机状态的
+
+*****
+
+####  反方向的波  
+##### 1668#       发表于 2022-8-6 08:44
+
+杜儿鹏儿也太脑浆了，这就是沉迷二次元的后果吗
+
+*****
+
+####  やト  
+##### 1669#       发表于 2022-8-6 08:46
+
+入了就是入了！
+
+*****
+
+####  walfeds  
+##### 1670#       发表于 2022-8-6 08:46
+
+焦阳，狂！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 1671#       发表于 2022-8-6 08:46
+
+我要向蓝猫道歉， 对不起
+
+*****
+
+####  a1370303  
+##### 1672#       发表于 2022-8-6 08:46
+
+入了就是入了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  secretgarnet  
+##### 1673#       发表于 2022-8-6 08:46
+
+你的骄阳，无限猖狂！
+
+*****
+
+####  灰色的狐狸  
+##### 1674#       发表于 2022-8-6 08:47
+
+bbk堵泉水不让回家有点搞了
+
+*****
+
+####  百世诸侯  
+##### 1675#       发表于 2022-8-6 08:47
+
+曾焦阳搞这么厉害干什么
+
+*****
+
+####  反方向的波  
+##### 1676#       发表于 2022-8-6 08:47
+
+建议nidone打印下来一帧一帧研究<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 1677#       发表于 2022-8-6 08:48
+
+曾骄阳真就是现在对线水平太烂了导致经常被从对线直接打穿，这把得亏碰到了对线水平跟他不相上下的脑东京
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 1678#       发表于 2022-8-6 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ts对线把劣
+
