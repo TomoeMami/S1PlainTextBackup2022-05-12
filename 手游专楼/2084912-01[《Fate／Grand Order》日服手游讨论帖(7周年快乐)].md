@@ -3106,3 +3106,32 @@ https://www.bilibili.com/video/BV14V4y1x7hZ
 打术阶还行，但是也能想象到不少新玩法了np好点的迦摩x毛什么的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实主要还要有晕  不然光宝具连发 自己也顶不住
 
+
+
+*****
+
+####  exiaexa  
+##### 308#       发表于 2022-8-6 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953507&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 19:38</a>
+
+其实主要还要有晕  不然光宝具连发 自己也顶不住</blockquote>
+C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴只有50
+
+脑侧了一下就算把纹章那些配好，不靠对面反打的np，要自己干满100还是太难了
+
+像爷爷那种反而是直接能干到93，配一下纹章自力更生没问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 309#       发表于 2022-8-6 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953569&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 19:45</a>
+
+C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴只有50
+
+脑侧了一下就算把纹章那些配好，不靠对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道以后各种高（低）难 会不会有各种花式单条视频
+

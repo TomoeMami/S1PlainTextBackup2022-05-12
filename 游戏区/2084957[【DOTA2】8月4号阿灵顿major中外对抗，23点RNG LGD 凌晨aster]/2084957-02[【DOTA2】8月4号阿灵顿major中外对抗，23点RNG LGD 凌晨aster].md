@@ -2498,3 +2498,28 @@ slsl-5  ?
 
 搬点隔壁(指红迪<img src="https://p.sda1.dev/6/6fcd717c74c8211dd341740aa047f7d4/RDT_20220806_1935176637124335182915840.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 1799#       发表于 2022-8-6 19:44
+
+今年赛制改了吧，好像决赛日和淘汰赛之间隔了一周，正好方便下面八开写轮眼，当然前提是lgd进得了决赛日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 1800#       发表于 2022-8-6 19:46
+
+<img src="https://p.sda1.dev/6/274dffee40db0c4f5797fb5102ffb2f9/CMP_20220806194614423.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  反方向的波  
+##### 1801#       发表于 2022-8-6 19:51
+
+叶乃政联手许培祥  画美不看（指脑浆）
+
