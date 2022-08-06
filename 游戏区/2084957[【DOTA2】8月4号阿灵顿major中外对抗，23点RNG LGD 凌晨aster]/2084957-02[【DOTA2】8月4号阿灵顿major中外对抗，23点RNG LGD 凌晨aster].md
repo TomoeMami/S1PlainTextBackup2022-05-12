@@ -1771,3 +1771,12 @@ eg和上赛季区别就是伞兵换了nightfall
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  北欧王座  
+##### 1719#       发表于 2022-8-6 12:36
+
+所以如果rng分够了是不能再换人了？保真？听说前三才分够，反正我觉得能进前三可以换，进不了自然也没必要换了
+

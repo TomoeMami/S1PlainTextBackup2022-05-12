@@ -1699,3 +1699,17 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  xwr  
+##### 151#         楼主| 发表于 2022-8-6 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56939172&amp;ptid=2084988" target="_blank">HUGOR 发表于 2022-8-5 13:53</a>
+
+要具体解释本篇未解之谜最方便的还是出前传，但是我想看后日谈啊
+
+  -- 来自 能看大图的 Stage1官方 Androi ...</blockquote>
+前传可以继续打执政官，后日谈不知道谁来做反派啊。
+
