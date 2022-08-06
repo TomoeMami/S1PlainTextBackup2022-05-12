@@ -2364,3 +2364,65 @@ ti8不谈，ti9有那个世界线吗</blockquote>
 
 好啊，然后一个补丁下来nts明鞭当不成赵云，处长决赛日再次贡献下限表演
 
+
+
+*****
+
+####  逃离二次元  
+##### 1782#       发表于 2022-8-6 19:13
+
+霉鳖和杜鹏这畜度是宰不了a皇了，雪碧不适应版本，og也被痨干瘪杀了，感觉真的要潮水来袭了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 1783#       发表于 2022-8-6 19:14
+
+去年major不也是无敌么
+
+*****
+
+####  蛭人  
+##### 1784#       发表于 2022-8-6 19:14
+
+别急，你相信谁都不好使，但是处长绝对不会让你失望。
+
+*****
+
+####  ArowRocher  
+##### 1785#       发表于 2022-8-6 19:14
+
+又到了狗替王蠢鱼也能赢的环节，也别难为狗了，还是带超凡哥或排名哥去吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 1786#       发表于 2022-8-6 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952982&amp;ptid=2084957" target="_blank">Centrum 发表于 2022-8-6 18:44</a>
+逻辑是og能双冠 那LGD也能双冠</blockquote>
+没那个能力. Jpg
+
+*****
+
+####  很久就在那边l  
+##### 1787#       发表于 2022-8-6 19:18
+
+来个草台班子救一下啊
+
+*****
+
+####  Litccc  
+##### 1788#       发表于 2022-8-6 19:20
+
+又想起来去年ti雪碧抱怨主办方按dpc分数分配训练房大小，算不算草台班子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 1789#       发表于 2022-8-6 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953315&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-6 19:20</a>
+又想起来去年ti雪碧抱怨主办方按dpc分数分配训练房大小，算不算草台班子 ...</blockquote>
+那XG去只能站票了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

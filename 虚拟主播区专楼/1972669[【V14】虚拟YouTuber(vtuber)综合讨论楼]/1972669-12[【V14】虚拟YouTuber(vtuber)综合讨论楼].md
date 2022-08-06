@@ -2967,3 +2967,14 @@ syl，放某句歌词的时候评论栏里“eden！？？？”刷屏把我逗�
 
 子兔音只能联动id了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 16761#       发表于 2022-8-6 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫队伍问题不大，一年生slm强投的底子还在，ssk倒是感觉寄了大半了
+
+下一个要面对大问题的就是牛姨了，前辈毕业后投手阵容几无可战之兵了
+
