@@ -3056,3 +3056,189 @@ zai种是这样的
 
 这波真实美团 明鞭好狠来自: iPhone客户端
 
+
+
+*****
+
+####  haruhiismer  
+##### 1871#       发表于 2022-8-6 23:41
+
+这两天大老师怎么被频繁打脸，谁污染的数据池<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 1872#       发表于 2022-8-6 23:41
+
+脑浆ZAI
+
+*****
+
+####  ArowRocher  
+##### 1873#       发表于 2022-8-6 23:42
+
+肉山多少有点南通籍贯了
+
+*****
+
+####  Cookiekira  
+##### 1874#       发表于 2022-8-6 23:42
+
+zai给我拳头看硬了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1875#       发表于 2022-8-6 23:42
+
+冠超又开始了
+
+*****
+
+####  walfeds  
+##### 1876#       发表于 2022-8-6 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霉鳖开始了？
+
+*****
+
+####  杜文乐超神归来  
+##### 1877#       发表于 2022-8-6 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">破雾了在自家高地打不过，李逵属于是给了机会也不中用
+
+*****
+
+####  弈秋  
+##### 1878#       发表于 2022-8-6 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng犯病了？
+
+*****
+
+####  12481632  
+##### 1879#       发表于 2022-8-6 23:42
+
+又要让么么鳖装到了呀
+
+*****
+
+####  逃离二次元  
+##### 1880#       发表于 2022-8-6 23:43
+
+妈的霉鳖开始了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  テロメア  
+##### 1881#       发表于 2022-8-6 23:43
+
+帅啊，经典冠军相
+
+*****
+
+####  吃货红毛  
+##### 1882#       发表于 2022-8-6 23:43
+
+还以为有薄葬这个德鲁伊难死 结果团战把秒这个暗牧来自: iPhone客户端
+
+*****
+
+####  ArowRocher  
+##### 1883#       发表于 2022-8-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56956942&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-6 23:42</a>
+又要让么么鳖装到了呀</blockquote>
+开局不死三次不用这样的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 1884#       发表于 2022-8-6 23:44
+
+RNG这边怎么都不至于被翻吧
+
+*****
+
+####  mkii量产型  
+##### 1885#       发表于 2022-8-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56956946&amp;ptid=2084957" target="_blank">テロメア 发表于 2022-8-6 23:43</a>
+
+帅啊，经典冠军相</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拿这个major冠军的代价不是ti被砍的妈都不认识吗
+
+*****
+
+####  AkaiSuisei  
+##### 1886#       发表于 2022-8-6 23:45
+
+今天冠超得给太仓上帝鞠躬夹菜了吧
+
+*****
+
+####  聚散浮云  
+##### 1887#       发表于 2022-8-6 23:45
+
+来了来了处长来了
+
+*****
+
+####  ArowRocher  
+##### 1888#       发表于 2022-8-6 23:45
+
+开始了是吧
+
+*****
+
+####  Litccc  
+##### 1889#       发表于 2022-8-6 23:46
+
+nts一死处长就送起来了啊
+
+*****
+
+####  12481632  
+##### 1890#       发表于 2022-8-6 23:46
+
+处长永远不会让人失望
+
+
+
+*****
+
+####  iriyano  
+##### 1891#       发表于 2022-8-6 23:46
+
+好呀4个1打不过呀
+
+*****
+
+####  walfeds  
+##### 1892#       发表于 2022-8-6 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信萧瑟
+
+*****
+
+####  吃货红毛  
+##### 1893#       发表于 2022-8-6 23:47
+
+莫言不在路都不会走了来自: iPhone客户端
+
+*****
+
+####  幻想风靡_  
+##### 1894#       发表于 2022-8-6 23:47
+
+还以为lgd翻了，带盾送绷不住了
+
+*****
+
+####  你谁  
+##### 1895#       发表于 2022-8-6 23:48
+
+帕克当时是在捡装备吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
