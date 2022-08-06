@@ -2739,3 +2739,25 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 
 蓝单体，红光炮，绿辅助
 
+
+
+*****
+
+####  areklose  
+##### 276#       发表于 2022-8-6 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952567&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 17:54</a>
+
+万一连拐都不是呢  为什么你们老想着是拐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她这宝具也不像是超人熊那样给自己buff平A打人啊
+
+*****
+
+####  alucardcz  
+##### 277#       发表于 2022-8-6 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952669&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-6 18:06</a>
+
+她这宝具也不像是超人熊那样给自己buff平A打人啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀狐奥师傅不是证明了攻击宝具也能拐  怎么就不能反一反呢
+

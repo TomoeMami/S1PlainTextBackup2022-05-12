@@ -2199,3 +2199,30 @@ ame昨天剑圣打得最好的地方是几波团都第一时间都准确击杀�
 
 15-25分钟这段光法在OG的团战里堪称中流砥柱，剑圣参团之后直接把光法人打没了
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 1763#       发表于 2022-8-6 18:06
+
+ 本帖最后由 外挂全家脚气 于 2022-8-6 18:10 编辑 
+
+不得不感慨什么叫爱之深责之切
+中英文所有解说狂吹、现场直播观看了的观众无不惊呼的表现是平平无奇、不想赢
+我想大概只有字面意思上的1带4个开游戏也能拿盾才配叫顶级表现，确实是要求高，不愧是真正的粉丝，我这种看热闹的自愧不如<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 1764#       发表于 2022-8-6 18:07
+
+什么情况，solo第二场要开了么<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 1765#       发表于 2022-8-6 18:11
+
+第一场双方是已经MIA了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
