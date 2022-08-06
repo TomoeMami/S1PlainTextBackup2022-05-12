@@ -2557,3 +2557,15 @@ slsl-5  ?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">顶楼的硬盘图是什么行为艺术
 
+
+
+*****
+
+####  一品堂官  
+##### 1806#       发表于 2022-8-6 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953505&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-6 19:38</a>
+
+搬点隔壁(指红迪)</blockquote>
+外网dota梗看不太懂 除了那个na机场还有ceb ez
+

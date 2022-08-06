@@ -5510,3 +5510,12 @@ b站给我推送了个星团 版  孤泳者。
 
 11号鱼的公司团建，没有线上额话就太痛苦了
 
+
+
+*****
+
+####  老1.5  
+##### 2047#       发表于 2022-8-6 21:01
+
+冷场是不可能的，就今年这个天气，还是中午场，场子肯定热的鸭皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
