@@ -3206,3 +3206,21 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 然后中间脑抽操作失误，结果复活了两次才过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 316#       发表于 2022-8-7 03:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">想起今天送护符就爬起来抽了几发 居然2宝了。泳装无了
+
+*****
+
+####  qb0079  
+##### 317#       发表于 2022-8-7 04:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">艹，绷不住了，想给公主补个宝
+
+看见金MC卡背以为稳了，结果歪个大象<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

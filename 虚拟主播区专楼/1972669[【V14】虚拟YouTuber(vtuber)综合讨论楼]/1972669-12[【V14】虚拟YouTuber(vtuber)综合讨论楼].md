@@ -3068,3 +3068,48 @@ mysta也在杂谈中提到准备护照文件，计划去日本
 
 三期都去日本，感觉像是单纯去玩
 
+
+
+*****
+
+####  lhawp  
+##### 16771#       发表于 2022-8-7 03:20
+
+社长第三年甲子园优胜了，今年是真的离谱
+
+*****
+
+####  Ketestrait  
+##### 16772#       发表于 2022-8-7 03:21
+
+ 本帖最后由 Ketestrait 于 2022-8-7 03:46 编辑 
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h4xnf20isoj20xw0j2n3v.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h4xnf7boxkj20cg09j3zf.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4xnfb9x0hj20xv0izte1.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h4xnfewg1mj20xt0j1tew.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h4xo6b5h6pj20xx0ix7ae.jpg" referrerpolicy="no-referrer">
+
+アツい、アツすぎる<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+｢じゃあ、打撃で｣
+
+*****
+
+####  alcoholic1000  
+##### 16773#       发表于 2022-8-7 03:30
+
+ 本帖最后由 alcoholic1000 于 2022-8-7 03:33 编辑 
+
+激打！これが加賀美大附属！
+
+新生运勉勉强强却培育出了转生级的选手，创造了虹甲育成历史的新纪录
+
+hks的本太关键了，3人U18
+
+期待虹甲名门校VS名门校
+

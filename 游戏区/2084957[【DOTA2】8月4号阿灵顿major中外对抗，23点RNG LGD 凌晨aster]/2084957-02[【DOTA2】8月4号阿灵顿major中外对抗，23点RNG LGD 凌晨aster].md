@@ -5329,3 +5329,551 @@ monet怎么补刀被帕克压了
 
 看了眼红迪，李逵这两盘加QC那一盘让OGfans被阴阳怪气
 
+
+
+*****
+
+####  woyzeck  
+##### 2168#       发表于 2022-8-7 02:03
+
+这种红迪里多少是chinese伪装的？
+
+*****
+
+####  山上徹也  
+##### 2169#       发表于 2022-8-7 02:05
+
+吹lgd的保守估计80%拆尼斯
+
+*****
+
+####  修罗王  
+##### 2170#       发表于 2022-8-7 02:05
+
+na粉用来恶心eu人可能性更高
+
+*****
+
+####  walfeds  
+##### 2171#       发表于 2022-8-7 02:12
+
+红迪拆尼斯是有点多了，什么破事都有人转过去的
+
+*****
+
+####  莉拉厨  
+##### 2172#       发表于 2022-8-7 02:20
+
+有没有pure 红脖子dota社区，想狠狠地被白皮骑士了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 2173#       发表于 2022-8-7 02:23
+
+是不是Chinese看英文习惯和用梗就能看出来，除非欧美老华人。
+举个例子<img src="https://p.sda1.dev/6/9faf47a3bc708760f9b528b0e2553ad7/CMP_20220807021942374.jpg" referrerpolicy="no-referrer">
+但黑OGfans和rtz跟中国还是没什么关系的
+<img src="https://p.sda1.dev/6/cb8bb942eead015ad057a0c1a97b962b/CMP_20220807022107795.jpg" referrerpolicy="no-referrer">
+
+吹LGD的不少，但搬那些评论没什么意思，最后还要因为真实国籍进入心证环节。
+
+*****
+
+####  ArowRocher  
+##### 2174#       发表于 2022-8-7 02:24
+
+ 本帖最后由 ArowRocher 于 2022-8-7 02:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958171&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-7 02:20</a>
+有没有pure 红脖子dota社区，想狠狠地被白皮骑士了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9 ...</blockquote>
+你直接排东南雅不做人就能被问青虫了,鳖问我怎么知道的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不对 被白皮骑士得去na eu
+
+*****
+
+####  haruhiismer  
+##### 2175#       发表于 2022-8-7 02:29
+
+还挺多rtz吹的能吹rtz的人我相信就是纯纯的na人
+
+*****
+
+####  kyl2001  
+##### 2176#       发表于 2022-8-7 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958171&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-7 02:20</a>
+
+有没有pure 红脖子dota社区，想狠狠地被白皮骑士了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9 ...</blockquote>
+我刚发现4chan也有DOTA专楼，可以去拉屎
+
+*****
+
+####  woyzeck  
+##### 2177#       发表于 2022-8-7 02:31
+
+tundra又输了？原形毕露？
+
+*****
+
+####  woyzeck  
+##### 2178#       发表于 2022-8-7 02:39
+
+点进去就看到
+
+we are 90% third worlders
+
+dota is 99% third worlders
+
+*****
+
+####  名字不乱取  
+##### 2179#       发表于 2022-8-7 02:52
+
+这是我认识的那个酱油乱死，k1乱刷，克神乱打的bc？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 2180#       发表于 2022-8-7 02:57
+
+雪碧被Entity碾了，B组这局势真是突出一个扑朔迷离
+
+打之前完全看不出谁赢谁输啊
+
+*****
+
+####  奈纪亚美  
+##### 2181#       发表于 2022-8-7 03:00
+
+薪一这个17分钟预购点金手是致敬谁呢
+
+*****
+
+####  外挂全家脚气  
+##### 2182#       发表于 2022-8-7 03:11
+
+骚扰经典ori脑浆局
+
+*****
+
+####  名字不乱取  
+##### 2183#       发表于 2022-8-7 03:16
+
+杜鹏病又来了，刚好碰上克里斯今天没尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 2184#       发表于 2022-8-7 03:35
+
+这届比赛暴走有点多啊
+
+*****
+
+####  thsnow  
+##### 2185#       发表于 2022-8-7 03:36
+
+是该看看谁才是真OG大腿了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 2186#       发表于 2022-8-7 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958385&amp;ptid=2084957" target="_blank">thsnow 发表于 2022-8-7 03:36</a>
+
+是该看看谁才是真OG大腿了</blockquote>
+我觉得ceb心里还是有数的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thsnow  
+##### 2187#       发表于 2022-8-7 03:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958398&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-7 03:48</a>
+
+我觉得ceb心里还是有数的</blockquote>
+真有B数就不会两次Ti都没上帝先举盾了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 2188#       发表于 2022-8-7 03:53
+
+mlgb，ceb吹ana的时候是真离谱，spe等于ti8冠军就是这个比传销的。
+
+*****
+
+####  蛭人  
+##### 2189#       发表于 2022-8-7 03:57
+
+我吐了，这atf陈大屁股补刀让ta全场第二是吧。
+
+*****
+
+####  AkaiSuisei  
+##### 2190#       发表于 2022-8-7 04:16
+
+这紫猫走哪死哪，冠超又给集美送水了
+
+
+
+*****
+
+####  bigming000  
+##### 2191#       发表于 2022-8-7 04:16
+
+安娜:叫我A处好了，实在不想和这群逼打了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 2192#       发表于 2022-8-7 04:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道说，遇到强队，阳光猛烈，万物显形了
+
+*****
+
+####  蛭人  
+##### 2193#       发表于 2022-8-7 04:19
+
+老北京我是服的，bzm的帕克也能打穿中路获得胜利是吧。
+
+*****
+
+####  两三流浪者  
+##### 2194#       发表于 2022-8-7 04:19
+
+lgd要首败了吗？
+
+*****
+
+####  山上徹也  
+##### 2195#       发表于 2022-8-7 04:22
+
+lgd这把感觉没翻盘点，不知道还能怎么创造奇迹
+
+*****
+
+####  haruhiismer  
+##### 2196#       发表于 2022-8-7 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958440&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-7 04:22</a>
+lgd这把感觉没翻盘点，不知道还能怎么创造奇迹</blockquote>
+大牛呢，真正的奇迹英雄
+
+*****
+
+####  黑暗剑qui  
+##### 2197#       发表于 2022-8-7 04:24
+
+要输喽
+
+*****
+
+####  UnhappyTails  
+##### 2198#       发表于 2022-8-7 04:43
+
+芜
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 2199#       发表于 2022-8-7 04:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想不到想不到
+
+*****
+
+####  secretgarnet  
+##### 2200#       发表于 2022-8-7 04:44
+
+施舍，都是施舍
+
+*****
+
+####  UnhappyTails  
+##### 2201#       发表于 2022-8-7 04:45
+
+《整蛊》 《科研》 《施舍》
+
+*****
+
+####  两三流浪者  
+##### 2202#       发表于 2022-8-7 04:45
+
+舒服，lgd这把看得我神清气爽
+
+*****
+
+####  AkaiSuisei  
+##### 2203#       发表于 2022-8-7 04:45
+
+好似喵
+
+*****
+
+####  格雷殿下  
+##### 2204#       发表于 2022-8-7 04:46
+
+刚来，这次这个刚被有出莲花没有?
+
+*****
+
+####  蛭人  
+##### 2205#       发表于 2022-8-7 04:48
+
+究竟是谁有ti8决赛日ptsd，这也能选个猴子是吧。
+
+*****
+
+####  两三流浪者  
+##### 2206#       发表于 2022-8-7 04:49
+
+atf三号位大圣都耍起来了
+
+*****
+
+####  雅朵莉雀  
+##### 2207#       发表于 2022-8-7 04:51
+
+这也能给ATF让这个头？这个头给蝙蝠不是把电棍头打爆？
+
+*****
+
+####  两三流浪者  
+##### 2208#       发表于 2022-8-7 04:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958475&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-7 04:51</a>
+
+这也能给ATF让这个头？这个头给蝙蝠不是把电棍头打爆？</blockquote>
+atf双杀了
+
+*****
+
+####  杜文乐超神归来  
+##### 2209#       发表于 2022-8-7 04:56
+
+ 本帖最后由 杜文乐超神归来 于 2022-8-7 04:57 编辑 
+
+两路炸，提前到点了
+
+*****
+
+####  43453  
+##### 2210#       发表于 2022-8-7 04:56
+
+四分钟打出个真九一开，十分钟是不是可以直接GG
+
+*****
+
+####  haruhiismer  
+##### 2211#       发表于 2022-8-7 04:56
+
+哇rng这打得像a级队呀
+
+*****
+
+####  希望之花  
+##### 2212#       发表于 2022-8-7 04:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">优势路没优势，但是劣势路有劣势啊
+
+*****
+
+####  两三流浪者  
+##### 2213#       发表于 2022-8-7 04:59
+
+给atf玩爽了
+
+*****
+
+####  43453  
+##### 2214#       发表于 2022-8-7 04:59
+
+戴泽T下来不给任何技能看着上帝死
+
+*****
+
+####  cobymar  
+##### 2215#       发表于 2022-8-7 05:01
+
+这把有内鬼
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  杜文乐超神归来  
+##### 2216#       发表于 2022-8-7 05:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难想象这跟11点开打的是同一支战队
+
+*****
+
+####  Tienx  
+##### 2217#       发表于 2022-8-7 05:03
+
+宰猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 2218#       发表于 2022-8-7 05:03
+
+12分钟g，真有rng的
+
+*****
+
+####  希望之花  
+##### 2219#       发表于 2022-8-7 05:04
+
+叹为观止
+
+*****
+
+####  格雷殿下  
+##### 2220#       发表于 2022-8-7 05:05
+
+小天屎鳖再玩戴泽了，太离谱了
+
+
+
+*****
+
+####  阿垃垃圾历  
+##### 2221#       发表于 2022-8-7 05:05
+
+吃屎的两把 
+
+*****
+
+####  asd235614  
+##### 2222#       发表于 2022-8-7 05:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12分钟光速到点
+
+*****
+
+####  外挂全家脚气  
+##### 2223#       发表于 2022-8-7 05:05
+
+12分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  重名的mufasa  
+##### 2224#       发表于 2022-8-7 05:06
+
+12分20秒.史上最快吧.我记得上一个记录是15分钟?
+
+*****
+
+####  masterkeaton  
+##### 2225#       发表于 2022-8-7 05:07
+
+没搞错吧，我休息下就没了。。。
+
+*****
+
+####  蛭人  
+##### 2226#       发表于 2022-8-7 05:07
+
+这把bp完就到点儿了，最后一手堪称被完爆，上一把线上打崩，这一把全面崩盘，春晚可以想象。
+
+*****
+
+####  雅朵莉雀  
+##### 2227#       发表于 2022-8-7 05:08
+
+哪来的史上最快，当年zhou在tongfu说完我们从来不会20投之后没两天就打出了9投
+
+*****
+
+####  thsnow  
+##### 2228#       发表于 2022-8-7 05:08
+
+明天乐不起来咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 2229#       发表于 2022-8-7 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958511&amp;ptid=2084957" target="_blank">thsnow 发表于 2022-8-7 05:08</a>
+
+明天乐不起来咯</blockquote>
+看a畜表演吧
+
+*****
+
+####  两三流浪者  
+##### 2230#       发表于 2022-8-7 05:19
+
+ccnc对线还真是高分高能
+
+*****
+
+####  杜文乐超神归来  
+##### 2231#       发表于 2022-8-7 05:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">明天这个点等一个潮水来袭
+
+*****
+
+####  格雷殿下  
+##### 2232#       发表于 2022-8-7 05:34
+
+四赵云真的没赢过啊
+
+*****
+
+####  两三流浪者  
+##### 2233#       发表于 2022-8-7 05:44
+
+“Lgd认真了qc接不住戏啊”集美真是恶心到家了
+
+*****
+
+####  雅朵莉雀  
+##### 2234#       发表于 2022-8-7 05:45
+
+CCNC对线真是打得赏心悦目
+
+这盘紫猫的对线期可以一帧一帧打印出来品
+
+*****
+
+####  胧楼  
+##### 2235#       发表于 2022-8-7 05:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958510&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-7 05:08</a>
+
+哪来的史上最快，当年zhou在tongfu说完我们从来不会20投之后没两天就打出了9投 ...</blockquote>
+没有20投之后是18投好么
+
+*****
+
+####  hcf220  
+##### 2236#       发表于 2022-8-7 05:56
+
+lgd第一把bp真的爆浆 打团就大锤一个能顶的 其他酱油都是短腿玻璃人 大哥还是个被冰龙血克的蚂蚁。线劣的话是真的打不了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山上徹也  
+##### 2237#       发表于 2022-8-7 05:59
+
+科研罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
