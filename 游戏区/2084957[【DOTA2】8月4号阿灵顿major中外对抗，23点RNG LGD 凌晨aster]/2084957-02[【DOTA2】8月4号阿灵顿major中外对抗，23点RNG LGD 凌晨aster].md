@@ -1530,3 +1530,28 @@ TS这把对线打得很烂，特别是下路电魂打幽鬼能劣势就离谱好
 <img src="https://p.sda1.dev/6/80a19e032bb9e3902b040e8b78c839a1/CMP_20220806092351404.jpg" referrerpolicy="no-referrer">
 石头人演那么厉害干什么，你们bp藏不藏有区别么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 1693#       发表于 2022-8-6 09:31
+
+茶队胜者组第一应该稳了，剩下的队都没啥威胁。不过别到时候输给BOOM，不然画面可太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 1694#       发表于 2022-8-6 09:35
+
+结果最后胜者组茶队第一打RNG第四
+
+*****
+
+####  iriyano  
+##### 1695#       发表于 2022-8-6 09:41
+
+我看到上帝又是点金电锤直接睡了，结果居然赢了吗
+
