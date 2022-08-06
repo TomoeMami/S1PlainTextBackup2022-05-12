@@ -2226,3 +2226,12 @@ ame昨天剑圣打得最好的地方是几波团都第一时间都准确击杀�
 
 第一场双方是已经MIA了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 1766#         楼主| 发表于 2022-8-6 18:19
+
+撸狗戏瘾总是特别多，符合刻板印象
+

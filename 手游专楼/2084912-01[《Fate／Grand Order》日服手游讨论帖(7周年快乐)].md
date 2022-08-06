@@ -2761,3 +2761,25 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 她这宝具也不像是超人熊那样给自己buff平A打人啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀狐奥师傅不是证明了攻击宝具也能拐  怎么就不能反一反呢
 
+
+
+*****
+
+####  Jamaisvu  
+##### 278#       发表于 2022-8-6 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952588&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 17:57</a>
+
+梅莉宝具无伤害的情况下，最佳选择感觉是做成个三色拐，更直接点做成个三色奥伯龙也没啥问题
+
+一技能标配群 ...</blockquote>
+有50NP充能和减1CD和红魔放就能有效拯救公主了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+看了下没什么参考性的街机，前两个技能是英雄作成B和梦幻领导力D，都是梅林的劣化版，三技能梦魔之畔，效果是我方全体无敌+敌方全体吸NP+自身回复吸收的NP（这不就是幻术•改吗，还没法挡对面宝具了，堪比明梅体系的幻术+石兵八阵....）
+
+嗯，估计会跟街机设计的完全不同，宝具大概是本来就很好看和为了省事才简单加了个笑脸放过来...
+
+目前两个伪阶同事都有高充能，阿瓦隆女士应该也有吧，其他的目前猜不出来...而且也不一定是色卡拐，万一是安徒生的上位呢...
+
+其实我还真挺想看到“赋予队友对敌人职阶有利相性”这种逆天buff，不过可能性不大（快关服的时候给伪装成所罗门的盖提亚发一个倒是还不错），能给个上三骑或下四骑特攻就知足了...
+
