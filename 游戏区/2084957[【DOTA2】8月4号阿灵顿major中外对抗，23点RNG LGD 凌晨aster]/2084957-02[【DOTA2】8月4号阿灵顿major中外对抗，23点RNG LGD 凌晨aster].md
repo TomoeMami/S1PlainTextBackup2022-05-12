@@ -1404,3 +1404,76 @@ bbk堵泉水不让回家有点搞了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ts对线把劣
 
+
+
+*****
+
+####  沈淮  
+##### 1679#         楼主| 发表于 2022-8-6 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948096&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-6 08:47</a>
+
+建议nidone打印下来一帧一帧研究</blockquote>
+nidone是吧
+
+*****
+
+####  secretgarnet  
+##### 1680#       发表于 2022-8-6 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948096&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-6 08:47</a>
+
+建议nidone打印下来一帧一帧研究</blockquote>
+nisha除了石油杯回家局那一把脑溢血之外其他场次蓝猫还是很顶的
+
+
+
+*****
+
+####  沈淮  
+##### 1681#         楼主| 发表于 2022-8-6 08:55
+
+蒙古中单去年也是被曾焦阳抓着吸血，哪怕是曾焦阳最雪崩的二次元major都是靠着吸血蒙古中单才进的胜者组
+
+*****
+
+####  sodah  
+##### 1682#       发表于 2022-8-6 08:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">起床看了眼直播就看到ORI猖狂入泉了，还有这雪碧是怎么输的EG2-0的？
+
+*****
+
+####  雅朵莉雀  
+##### 1683#       发表于 2022-8-6 08:58
+
+这么牛逼的焦阳看一盘少一盘
+
+茶队这么多年能找到搭配边路两大哥最完美的中单除了巅峰topson就是焦阳了，双酱油真是挑不出什么毛病来
+
+这再出不了成绩只能说13成色不足
+
+*****
+
+####  沈淮  
+##### 1684#         楼主| 发表于 2022-8-6 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56948146&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-6 08:57</a>
+
+起床看了眼直播就看到ORI猖狂入泉了，还有这雪碧是怎么输的EG2-0的？</blockquote>
+第一盘被谜团拉大拉死了，第二盘bp太劣势养了个怪物vip直接g了
+
+*****
+
+####  Litccc  
+##### 1685#       发表于 2022-8-6 09:00
+
+有杜鹏在就走不远<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 1686#       发表于 2022-8-6 09:00
+
+理性讨论把杜鹏换成窃格瓦拉茶队能否走得更远
+
