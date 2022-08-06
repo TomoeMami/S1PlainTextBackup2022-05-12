@@ -3171,3 +3171,12 @@ C阶敌人还是太少，比如我自己用bba去打印度龙那关，NBA全暴�
 现在高难都是多血条。。</blockquote>
 前面不是说圣杯战线嘛……
 
+
+
+*****
+
+####  kiralzb  
+##### 313#       发表于 2022-8-7 01:02
+
+emmmm这鹿角神没有复活石确实不好打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
