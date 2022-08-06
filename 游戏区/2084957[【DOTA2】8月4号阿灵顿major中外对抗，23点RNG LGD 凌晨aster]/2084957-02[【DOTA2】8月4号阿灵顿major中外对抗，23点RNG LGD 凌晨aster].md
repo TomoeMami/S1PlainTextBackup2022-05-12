@@ -1723,3 +1723,36 @@ monet成了鳖星最畜的那个确实有点伤仲永的意思
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  屠夫  
+##### 1714#       发表于 2022-8-6 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">茶终于在国际赛事上打出了几局好局
+
+*****
+
+####  尸体鲨  
+##### 1715#       发表于 2022-8-6 12:15
+
+上帝打完回去发个推特：cn dota noise dota
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 1716#       发表于 2022-8-6 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56949830&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-6 12:15</a>
+
+上帝打完回去发个推特：cn dota noise dota</blockquote>
+上帝：好吵好吵一直叫呀霉鳖，百分之一百分之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 1717#       发表于 2022-8-6 12:19
+
+意思都是脑浆大乱斗
+
