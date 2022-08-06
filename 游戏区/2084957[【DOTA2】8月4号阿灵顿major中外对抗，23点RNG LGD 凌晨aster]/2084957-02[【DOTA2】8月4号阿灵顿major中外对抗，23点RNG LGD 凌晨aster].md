@@ -2299,3 +2299,14 @@ ti9胜决g3也贡献了一把宇宙小鱼
 
 为了泥楼给狗管理又送了5块钱
 
+
+
+*****
+
+####  Centrum  
+##### 1775#       发表于 2022-8-6 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952860&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-6 18:28</a>
+ti8不谈，ti9有那个世界线吗</blockquote>
+逻辑是og能双冠 那LGD也能双冠
+

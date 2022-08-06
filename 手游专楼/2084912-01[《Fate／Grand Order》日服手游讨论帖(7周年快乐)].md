@@ -2823,3 +2823,102 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 没忍住最后一宝抽了600石泳装就剩300多石头了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差不多的石头为什么大佬满宝 萌新1宝
 
+
+
+*****
+
+####  alucardcz  
+##### 283#       发表于 2022-8-6 18:44
+
+[https://www.bilibili.com/video/BV14V4y1x7hZ](https://www.bilibili.com/video/BV14V4y1x7hZ)
+
+看了这个视频后我感觉指令卡这新系统是做坏了。。。本来回收拉的不行的紫发老太居然能无限宝具了。。。
+
+*****
+
+####  密特里奈斯  
+##### 284#       发表于 2022-8-6 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:44</a>
+
+https://www.bilibili.com/video/BV14V4y1x7hZ
+
+看了这个视频后我感觉指令卡这新系统是做坏了。。。本来回 ...</blockquote>
+老太婆的红卡NP本来就好（蓝卡正常偏好），只不过单蓝染色就只能红卡打np了，蓝红红伤害np都不行，还没星星
+
+*****
+
+####  alucardcz  
+##### 285#       发表于 2022-8-6 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952995&amp;ptid=2084912" target="_blank">密特里奈斯 发表于 2022-8-6 18:46</a>
+
+老太婆的红卡NP本来就好（蓝卡正常偏好），只不过单蓝染色就只能红卡打np了，蓝红红伤害np都不行，还没星 ...</blockquote>
+是啊  老太就是绿卡太拉 现在这么一改直接变的这么离谱了
+
+*****
+
+####  areklose  
+##### 286#       发表于 2022-8-6 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:44</a>
+
+https://www.bilibili.com/video/BV14V4y1x7hZ
+
+看了这个视频后我感觉指令卡这新系统是做坏了。。。本来回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这有啥好做坏。卡变强又不涉及PVP！
+
+*****
+
+####  exiaexa  
+##### 287#       发表于 2022-8-6 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:44</a>
+https://www.bilibili.com/video/BV14V4y1x7hZ
+
+看了这个视频后我感觉指令卡这新系统是做坏了。。。本来回 ...</blockquote>
+所以我上次就在楼里说了，根本没救到绿卡，完全是三色chain太强了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 288#       发表于 2022-8-6 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953014&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-6 18:49</a>
+
+这有啥好做坏。卡变强又不涉及PVP！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怕不是圣杯战线要大改了 不然不是过于乱杀（
+
+*****
+
+####  areklose  
+##### 289#       发表于 2022-8-6 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953024&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:50</a>
+
+怕不是圣杯战线要大改了 不然不是过于乱杀（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">你竟然是惦记着那破圣杯战线
+
+*****
+
+####  alucardcz  
+##### 290#       发表于 2022-8-6 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953023&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 18:50</a>
+
+所以我上次就在楼里说了，根本没救到绿卡，完全是三色chain太强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你不能这么说  也就绿卡宝具的单体可以这样吧  蓝卡肯定是吃憋了  红的  q宝a 应该也没这么效果
+
+*****
+
+####  密特里奈斯  
+##### 291#       发表于 2022-8-6 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953004&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:48</a>
+
+是啊  老太就是绿卡太拉 现在这么一改直接变的这么离谱了</blockquote>
+等于是绿卡从者单挑全面buff了，之前绿卡单挑最大的问题就是绿宝具放在三连里，打np伤害都有点差，现在绿宝具放一号位打绿红蓝，不需要打伤害最低的绿卡，红蓝ex有三色染色，hit够高的话能打一地星星……
+
+现在我们把镜头转到绿卡性能很好红蓝非常一般的杰克总司X毛
+
