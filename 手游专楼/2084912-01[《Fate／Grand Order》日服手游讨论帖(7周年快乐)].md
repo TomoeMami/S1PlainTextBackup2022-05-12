@@ -2922,3 +2922,65 @@ https://www.bilibili.com/video/BV14V4y1x7hZ
 
 现在我们把镜头转到绿卡性能很好红蓝非常一般的杰克总司X毛
 
+
+
+*****
+
+####  areklose  
+##### 292#       发表于 2022-8-6 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953032&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:51</a>
+
+你不能这么说  也就绿卡宝具的单体可以这样吧  蓝卡肯定是吃憋了  红的  q宝a 应该也没这么效果 ...</blockquote>
+其实取决于蓝卡性能行不行。然后放大了最后一张蓝卡的回收。
+
+*****
+
+####  exiaexa  
+##### 293#       发表于 2022-8-6 18:54
+
+ 本帖最后由 exiaexa 于 2022-8-6 18:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953032&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:51</a>
+你不能这么说  也就绿卡宝具的单体可以这样吧  蓝卡肯定是吃憋了  红的  q宝a 应该也没这么效果 ...</blockquote>
+红绿都吃到红利了，比如红卡最明显的旧剑摩根
+蓝卡单挑才是唯一吃瘪了的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 294#       发表于 2022-8-6 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953057&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-6 18:53</a>
+
+其实取决于蓝卡性能行不行。然后放大了最后一张蓝卡的回收。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可是绿宝红蓝   红也有np回收啊
+
+*****
+
+####  areklose  
+##### 295#       发表于 2022-8-6 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953075&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-6 18:56</a>
+
+可是绿宝红蓝   红也有np回收啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但那大半管的NP还不是靠蓝卡妈！
+
+*****
+
+####  alucardcz  
+##### 296#       发表于 2022-8-6 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56953060&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 18:54</a>
+
+红绿都吃到红利了，比如红卡最明显的旧剑摩根
+
+蓝卡单挑才是唯一吃瘪了的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我都没研究过这系统 嗨
+
+蓝卡寄中寄先不说
+
+红宝是红宝绿蓝 还是  绿红宝蓝？
+
