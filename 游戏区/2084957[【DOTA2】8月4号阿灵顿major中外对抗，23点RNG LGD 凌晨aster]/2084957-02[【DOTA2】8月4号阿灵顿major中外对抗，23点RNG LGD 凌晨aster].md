@@ -5306,3 +5306,26 @@ boxi打3肯定比现在的zai强得多
 
 别改了中路灵活好玩的都砍到不能玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  -SLSL-  
+##### 2165#       发表于 2022-8-7 01:43
+
+monet怎么补刀被帕克压了
+
+*****
+
+####  asd235614  
+##### 2166#       发表于 2022-8-7 01:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草明天还得看EVO决赛，屏幕有点不够用
+
+*****
+
+####  ArowRocher  
+##### 2167#       发表于 2022-8-7 01:47
+
+看了眼红迪，李逵这两盘加QC那一盘让OGfans被阴阳怪气
+
