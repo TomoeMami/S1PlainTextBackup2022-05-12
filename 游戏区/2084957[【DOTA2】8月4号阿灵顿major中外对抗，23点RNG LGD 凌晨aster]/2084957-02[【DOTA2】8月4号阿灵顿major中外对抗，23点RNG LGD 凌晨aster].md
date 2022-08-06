@@ -1700,3 +1700,26 @@ ana来当枪手打几把挺好 最好能进前六拿到名额 同时暴露问题
 
 rng还是和鬼打ti吧，上帝打得跟个局外人似的估计沟通还是有问题。
 
+
+
+*****
+
+####  AIDSL  
+##### 1712#       发表于 2022-8-6 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56947892&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-8-6 07:56</a>
+
+所以这雪碧是怎么被eg2:0的</blockquote>
+选个大哥火枪手，线上就被击穿，然后死活不出魔晶，各种摸到就死
+
+*****
+
+####  TIZI  
+##### 1713#       发表于 2022-8-6 12:07
+
+刚去看了鳖星打雪碧，真是一对卧龙凤雏
+脑东京两条命开不出一个bkb，这要是个国产中单真是畜中大畜了
+monet成了鳖星最畜的那个确实有点伤仲永的意思
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
