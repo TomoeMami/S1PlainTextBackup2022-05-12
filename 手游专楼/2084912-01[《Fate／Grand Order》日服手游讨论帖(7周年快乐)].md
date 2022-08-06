@@ -2613,3 +2613,54 @@ wys：杰罗尼莫没救了<img src="https://static.saraba1st.com/image/smiley/f
 
 其实我最期待明天，那2个一星狂我用得挺多。希望不要强化到牛上。。。
 
+
+
+*****
+
+####  qixinno2  
+##### 265#       发表于 2022-8-6 17:23
+
+什么时候送个C元帅 我那个卖了到现在都打不了强化和幕间
+
+*****
+
+####  rollingusagi  
+##### 266#       发表于 2022-8-6 17:24
+
+小王子果然没给宝具本，说起来舅舅情报里阿瓦隆女士好像是伪阶吧，伪阶技能都挺整活的，要是来个faker一技能强化版的赋予我方单体无条件克制属性，狂阶全体掉价，公主直接起飞变t0打手<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 267#       发表于 2022-8-6 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952286&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-6 17:19</a>
+
+小王子可以单体50魔放三回合了，好像还可以？我记得之前回收率算是不错的，只是缺伤害，现在有前置20宝威和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了下小王子还是缺伤害（对比的伯爵）
+
+*****
+
+####  exiaexa  
+##### 268#       发表于 2022-8-6 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952331&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-8-6 17:24</a>
+小王子果然没给宝具本，说起来舅舅情报里阿瓦隆女士好像是伪阶吧，伪阶技能都挺整活的，要是来个faker一技 ...</blockquote>
+那么问题来了，既然要换人哪儿还轮得到公主
+蓝绿不杀疯了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 269#       发表于 2022-8-6 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56952380&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-6 17:29</a>
+
+那么问题来了，既然要换人哪儿还轮得到公主
+
+蓝绿不杀疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我红就杀不疯了吗
+
