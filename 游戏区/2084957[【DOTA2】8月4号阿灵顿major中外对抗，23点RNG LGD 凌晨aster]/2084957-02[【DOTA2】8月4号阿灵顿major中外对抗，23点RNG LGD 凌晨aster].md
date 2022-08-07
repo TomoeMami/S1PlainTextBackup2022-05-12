@@ -7610,3 +7610,32 @@ KAKA，chalice，maybe，xnova
 
 这么看阿茶被超级集美论坛讨厌也不是没坏处，至少没有恶心图。
 
+
+
+*****
+
+####  ArowRocher  
+##### 2428#       发表于 2022-8-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56964830&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-7 19:05</a>
+esports 不是电竞吗</blockquote>
+特指永记永那个
+
+*****
+
+####  a1370303  
+##### 2429#       发表于 2022-8-7 19:55
+
+这图有点恶心了呀<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 2430#         楼主| 发表于 2022-8-7 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965419&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-7 19:51</a>
+特指永记永那个</blockquote>
+哈？
+

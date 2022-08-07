@@ -3718,3 +3718,17 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 算了，这张卡除了一技能都挺迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 356#       发表于 2022-8-7 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965226&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-7 19:37</a>
+
+哦哦，原来是那个女仆黑呆。以前一直没有，都不知道她还强化过
+
+这强化确实傻逼，毫无意义啊，减10 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是明着说了这卡纯粹的厨力卡
+

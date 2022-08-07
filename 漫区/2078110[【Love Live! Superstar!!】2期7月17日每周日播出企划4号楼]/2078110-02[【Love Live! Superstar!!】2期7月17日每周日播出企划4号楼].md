@@ -6107,3 +6107,54 @@ CEO还没上天台 问题不大
 
 话说小千这部长有交代啥前因后果之类的东西吗
 
+
+
+*****
+
+####  寒风夜  
+##### 2115#       发表于 2022-8-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965393&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 19:49</a>
+
+话说小千这部长有交代啥前因后果之类的东西吗</blockquote>
+ 前面小摊哪里香音说让千当部长，千说肯定做不到，然后看到红蓝对话然后回忆杀，然后千想要试着去做了
+
+*****
+
+####  qratosone  
+##### 2116#       发表于 2022-8-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965393&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 19:49</a>
+
+话说小千这部长有交代啥前因后果之类的东西吗</blockquote>
+“挑战自己认为自己做不到的事情”之前烤章鱼丸子的时候香哥哥问千妈为啥不考虑当部长，然后千妈觉得自己做不到
+
+*****
+
+####  寒风夜  
+##### 2117#       发表于 2022-8-7 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">夏美回预告这样，怕是复刻堇入队回那猪b剧情哦
+
+*****
+
+####  aoaoaodedede  
+##### 2118#       发表于 2022-8-7 19:54
+
+ 本帖最后由 aoaoaodedede 于 2022-8-7 19:57 编辑 
+
+这么看来之后剧情可能有以小千为中心的剧情展开？
+
+如果有，感觉不一定是仅属于小千的个人回，或许是写增强团队感的团体回？话又说回来了，从第一季到现在才有“部长”，就感觉挺离谱的……
+
+*****
+
+####  starring  
+##### 2119#       发表于 2022-8-7 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965464&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 19:54</a>
+这么看来之后剧情可能有以小千为中心的剧情展开？
+
+如果有，感觉不一定是仅属于小千的个人回，或许是写增强 ...</blockquote>
+倒不如说你们结丘什么破学校，过了一年才开第一届部长会议，第一年都在混水摸鱼吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
