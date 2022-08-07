@@ -7258,3 +7258,55 @@ lgdbp出问题就是也就是19年。
 
 借用setsu说玄月的一句话，你天梯前一百名的水平都没有，没资格教别人怎么打游戏好吧，还身份政治，水友吹逼就得了，被上纲上线。
 
+
+
+*****
+
+####  坚定的团子党  
+##### 2390#       发表于 2022-8-7 17:12
+
+这举办方pgl也是铁集美呀，搞个趣味小游戏，ame标价5块，yatoro只有3块<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  BallanceHZ  
+##### 2391#       发表于 2022-8-7 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963671&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 17:08</a>
+借用setsu说玄月的一句话，你天梯前一百名的水平都没有，没资格教别人怎么打游戏好吧，还身份政治，水友吹 ...</blockquote>
+照你这个说法本楼都别点评ame/maybe/ana了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 2392#       发表于 2022-8-7 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">标5块是什么好事吗，术士zai也标5块呢
+
+*****
+
+####  健康猹  
+##### 2393#       发表于 2022-8-7 17:14
+
+没有客户端不要质疑职业战队团队决策
+
+很需要一个猴子奸笑的表情，虽然88SG几年了，这个表情我倒是一直在QQ用
+
+*****
+
+####  反方向的波  
+##### 2394#       发表于 2022-8-7 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">撸狗艾特我去看杰出我都没care，倒是你们聊了2小时杰÷
+
+*****
+
+####  dclara1  
+##### 2395#       发表于 2022-8-7 17:19
+
+杰畜也算熬出头了，在p站发视频瞬间有盘了。守着海鲜台直播间真是卵用没有
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

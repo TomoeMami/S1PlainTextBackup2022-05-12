@@ -3633,3 +3633,13 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 虽说是用起来更顺手了，但还是没引起质变...不愧是叶式强化...
 
+
+
+*****
+
+####  exiaexa  
+##### 349#       发表于 2022-8-7 17:17
+
+长江这个宝具强化，是在给第六章怎么破防大英雄打补丁吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

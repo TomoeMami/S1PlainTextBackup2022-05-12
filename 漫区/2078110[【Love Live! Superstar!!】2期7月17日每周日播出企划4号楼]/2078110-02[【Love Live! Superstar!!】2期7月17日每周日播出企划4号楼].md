@@ -5539,3 +5539,12 @@ b站给我推送了个星团 版  孤泳者。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  xeseed  
+##### 2050#       发表于 2022-8-7 17:15
+
+哪个字幕组的好点啊？
+
