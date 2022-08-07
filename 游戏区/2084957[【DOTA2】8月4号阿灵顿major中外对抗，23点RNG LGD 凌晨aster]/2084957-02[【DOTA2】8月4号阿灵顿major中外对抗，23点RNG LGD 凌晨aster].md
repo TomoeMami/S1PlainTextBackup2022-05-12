@@ -6052,3 +6052,44 @@ bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是说我想踢，操作另说，老东京一人冲上去送也太难看了
 
+
+
+*****
+
+####  izayoi39  
+##### 2255#       发表于 2022-8-7 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958839&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-7 08:02</a>
+为什么没人玩aa了，ti9也天天炼金刚背陈不是都1banaa吗</blockquote>
+因为现在的刚被不是靠肉，而是靠中期爆炸输出来打1的，冰魂甚至大都放不出来会被刚被直接秒，这英雄现在类似炼金，只不过炼金靠经济碾压刚被靠技能组吃饭
+
+*****
+
+####  Aeons  
+##### 2256#       发表于 2022-8-7 08:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哇，进傻雕直播间想看下还有没有比赛没完，结果是傻雕在别人发给他的地址上来回滚动呀，给人开个精光啊。
+
+*****
+
+####  莉拉厨  
+##### 2257#       发表于 2022-8-7 08:14
+
+aa克炼金本来就是伪命题，没压制住炼金的话根本不克，但选个aa打压制又不厉害，至于刚被，脸都被刚被冲歪了，咋克刚被。
+
+*****
+
+####  4591  
+##### 2258#       发表于 2022-8-7 08:19
+
+为什么没有人点pa克钢背了？钢背版本崛起的两大法宝战意提供的高普攻和减伤都被ta的闪避和魔晶克得死死的
+
+*****
+
+####  坚定的团子党  
+##### 2259#       发表于 2022-8-7 08:19
+
+a组是真的难，感觉rng分到b组都稳进胜者组了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
