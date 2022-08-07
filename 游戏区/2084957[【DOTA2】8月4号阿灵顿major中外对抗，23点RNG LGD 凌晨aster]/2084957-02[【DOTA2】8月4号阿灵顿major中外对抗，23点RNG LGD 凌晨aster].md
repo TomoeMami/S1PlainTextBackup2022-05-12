@@ -7836,3 +7836,48 @@ m畜 a畜就不能都是畜么
 
 mason说的没错好吧，rtz和abed这两个比堪称两大畜，赖皮两兄弟。
 
+
+
+*****
+
+####  woyzeck  
+##### 2450#       发表于 2022-8-7 21:33
+
+北美确实是祸害人的地方，没啥动力啊。
+
+*****
+
+####  沈淮  
+##### 2451#         楼主| 发表于 2022-8-7 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967107&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-7 21:21</a>
+midone哪个major双圣剑带ppy赢呢，自从蓝猫人柱力化一一直下滑</blockquote>
+就是他爸去世后的major
+
+*****
+
+####  反方向的波  
+##### 2452#       发表于 2022-8-7 21:34
+
+ 本帖最后由 反方向的波 于 2022-8-7 21:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">今夜核中核观众都看鳖星打boom，杜鹏和老挝c必有一个脑浆填满河道好吧
+
+*****
+
+####  沈淮  
+##### 2453#         楼主| 发表于 2022-8-7 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967217&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-7 21:28</a>
+对于大众来说这种事情都是分开后谁先拿冠谁带躺啊</blockquote>
+你在侮辱大众？
+
+*****
+
+####  ArowRocher  
+##### 2454#       发表于 2022-8-7 21:37
+
+拿过两届TI，不可能有什么大的嫌隙。
+
+不过之前在SG好像看过这个话题，Jerax自己偷税而另外四个没事，说明至少在资产处理上他们各自想法不一致。
+

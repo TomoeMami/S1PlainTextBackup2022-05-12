@@ -6325,3 +6325,15 @@ Liella!とマンマルが過ごすハッピーな日常を描くイラスト連�
 おつかれさまでした！ 
 <img src="https://p.sda1.dev/6/450e3ec5754a0276aaae2c7708e62490/20220807_210711.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2137#       发表于 2022-8-7 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965439&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-8-7 19:53</a>
+
+夏美回预告这样，怕是复刻堇入队回那猪b剧情哦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可可要是不大力输出CEO岂不是对堇不公平？
+

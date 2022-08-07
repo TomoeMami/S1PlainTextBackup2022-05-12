@@ -3222,3 +3222,14 @@ hnn、tsuna还有nayuta
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16785#       发表于 2022-8-7 21:31
+
+虹en四期ike的这唱法也太有十五年前nico唱见那感觉了，比本社老生主还味道纯正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不怕伤嗓子吗
+
