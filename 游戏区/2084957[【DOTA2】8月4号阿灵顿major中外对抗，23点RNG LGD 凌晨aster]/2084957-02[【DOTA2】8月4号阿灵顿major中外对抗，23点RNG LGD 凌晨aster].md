@@ -6240,3 +6240,36 @@ ana那几波tp明显是不想玩了
 
 —— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  BallanceHZ  
+##### 2276#       发表于 2022-8-7 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56959141&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-7 09:03</a>
+水厂想翻盘赶紧联系ana，拿了ti想捧红谁都可以，还惦记着那个废物carry干嘛呢。 ...</blockquote>
+1.直邀队换人直接海选
+2.国内这些也没得换啊，老一代比如monet我说不如ame没意见吧，lou这种新生代国都没出过几次谁知道尿不尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 2277#       发表于 2022-8-7 09:57
+
+12投那把肯定不想玩了，atf搞了个大圣，查猪精大屁股不愿意坐牢，让猴子去劣势路吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 2278#       发表于 2022-8-7 09:57
+
+rng凑23458羁绊把教练换820吧，毕竟820最会用maybe了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 2279#       发表于 2022-8-7 09:58
+
+那会可是刚出道的maybe，不是现在的老北京<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
