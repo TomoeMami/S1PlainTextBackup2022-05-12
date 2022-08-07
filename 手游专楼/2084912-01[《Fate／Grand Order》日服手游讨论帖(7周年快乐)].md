@@ -3300,3 +3300,14 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 骗人的，你们这群骗子，10呼符毛都没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在欧泳装死的越惨 看好你泳装豹跳
 
+
+
+*****
+
+####  khxooo  
+##### 324#       发表于 2022-8-7 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56959235&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-7 09:16</a>
+现在欧泳装死的越惨 看好你泳装豹跳</blockquote>
+我石头呼符都没了，怎样抽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
