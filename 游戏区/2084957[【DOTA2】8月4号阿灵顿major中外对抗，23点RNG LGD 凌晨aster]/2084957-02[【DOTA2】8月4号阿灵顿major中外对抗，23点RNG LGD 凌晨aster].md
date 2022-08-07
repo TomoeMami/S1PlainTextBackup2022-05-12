@@ -8900,3 +8900,21 @@ OG现在7-5跟RNG同分，最后打Talon和VP，保底能拿2分吧，胜者组�
 
 如果RNG输给LGD，这个胜者组还真不一定稳了
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 2583#       发表于 2022-8-8 01:12
+
+貌似LGD和茶都保胜者组了
+
+*****
+
+####  Damocles990609  
+##### 2584#       发表于 2022-8-8 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971082&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-8 01:12</a>
+貌似LGD和茶都保胜者组了</blockquote>
+lgd已经提前第一了吧？
+
