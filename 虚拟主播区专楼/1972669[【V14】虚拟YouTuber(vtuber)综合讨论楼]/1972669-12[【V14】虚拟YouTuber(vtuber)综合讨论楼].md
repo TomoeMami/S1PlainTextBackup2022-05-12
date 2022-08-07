@@ -3233,3 +3233,19 @@ hnn、tsuna还有nayuta
 
 不怕伤嗓子吗
 
+
+
+*****
+
+####  FCCHua  
+##### 16786#       发表于 2022-8-7 21:57
+
+sky8月也有b限啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 16787#       发表于 2022-8-7 21:59
+
+rize这对面的投手，就是小宫山悟本人啊，这怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
