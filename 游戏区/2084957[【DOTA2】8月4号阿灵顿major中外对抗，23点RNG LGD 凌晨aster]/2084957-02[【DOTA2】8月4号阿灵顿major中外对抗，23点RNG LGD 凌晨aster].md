@@ -7786,3 +7786,53 @@ EG与其它战队的胜负图如下，在经历了首日的0-4惨败后，EG的�
 
 may皇还真是打了这么多年就跟ame拿过两个国际赛冠军<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haruhiismer  
+##### 2444#       发表于 2022-8-7 21:21
+
+midone哪个major双圣剑带ppy赢呢，自从蓝猫人柱力化一一直下滑
+
+*****
+
+####  蛭人  
+##### 2445#       发表于 2022-8-7 21:21
+
+我寻思ame不也一样吗？现在四赵云的配置，也就比ti89配置多了一个冠军吧，毕竟自己觉得去cdec很强。
+
+*****
+
+####  nowaki  
+##### 2446#       发表于 2022-8-7 21:26
+
+m畜 a畜就不能都是畜么
+
+*****
+
+####  -SLSL-  
+##### 2447#       发表于 2022-8-7 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966887&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-7 21:09</a>
+
+北美知名Dota2前职业选手、前EG战队队员Mason近期在个人直播中谈到了EG在阿灵顿Major上的表现以及老东家如 ...</blockquote>
+万物显形是吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 2448#       发表于 2022-8-7 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967115&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 21:21</a>
+
+我寻思ame不也一样吗？现在四赵云的配置，也就比ti89配置多了一个冠军吧，毕竟自己觉得去cdec很强。 ...</blockquote>
+对于大众来说这种事情都是分开后谁先拿冠谁带躺啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 2449#       发表于 2022-8-7 21:30
+
+mason说的没错好吧，rtz和abed这两个比堪称两大畜，赖皮两兄弟。
+
