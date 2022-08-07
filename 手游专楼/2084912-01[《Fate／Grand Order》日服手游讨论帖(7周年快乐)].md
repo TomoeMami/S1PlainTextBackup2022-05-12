@@ -3732,3 +3732,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 这强化确实傻逼，毫无意义啊，减10 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是明着说了这卡纯粹的厨力卡
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 357#       发表于 2022-8-7 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得刷QP和种火了，把之前一直懒得拿的班杨和圣诞阿提拉拿了算了……
+

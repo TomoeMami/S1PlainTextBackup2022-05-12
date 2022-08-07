@@ -7639,3 +7639,28 @@ esports 不是电竞吗</blockquote>
 特指永记永那个</blockquote>
 哈？
 
+
+
+*****
+
+####  反方向的波  
+##### 2431#       发表于 2022-8-7 20:07
+
+若爆料成真，则Team SMG阵容为：
+MidOne
+Moon
+iceiceice
+ah fu
+pieliedie
+
+JJ你把霉鳖买了去我把你新专辑销量刷到超过光点<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 2432#       发表于 2022-8-7 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965502&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-7 19:58</a>
+哈？</blockquote>
+乌龙了，我的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

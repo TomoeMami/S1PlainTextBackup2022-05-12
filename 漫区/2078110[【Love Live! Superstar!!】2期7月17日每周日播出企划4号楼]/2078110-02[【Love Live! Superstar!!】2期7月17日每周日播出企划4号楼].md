@@ -6158,3 +6158,29 @@ CEO还没上天台 问题不大
 如果有，感觉不一定是仅属于小千的个人回，或许是写增强 ...</blockquote>
 倒不如说你们结丘什么破学校，过了一年才开第一届部长会议，第一年都在混水摸鱼吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2120#       发表于 2022-8-7 20:00
+
+让小千当部长是因为妈妈吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 2121#       发表于 2022-8-7 20:03
+
+第一年第二学期才有的学生会长，没开部长会议也算正常啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2122#       发表于 2022-8-7 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965517&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-7 20:00</a>
+
+倒不如说你们结丘什么破学校，过了一年才开第一届部长会议，第一年都在混水摸鱼吗 ...</blockquote>
+真要说，那这结丘确实不怎么样，一年了，能给学习整点荣誉的人基本都在Liella里了，上一季还曾经整出点似有似无的“废校”桥段，不如说远道而来的学生是看中了这个学校的哪一点才过来的？
+
