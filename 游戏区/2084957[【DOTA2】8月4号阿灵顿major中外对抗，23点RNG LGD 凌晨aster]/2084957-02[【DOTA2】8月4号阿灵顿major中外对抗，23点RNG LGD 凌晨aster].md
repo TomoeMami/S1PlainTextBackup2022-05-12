@@ -7557,3 +7557,56 @@ esports 不是电竞吗
 
 翡冷翠渡鸦        禁止发言        永不过期        2022-8-6 13:34        岳不群看谁都像太监
 
+
+
+*****
+
+####  百世诸侯  
+##### 2423#       发表于 2022-8-7 19:41
+
+<img src="https://img.saraba1st.com/forum/202208/07/194134o00xuiumivv22ezv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-7 19:41 上传
+
+超级娘化论坛最新力作
+
+KAKA，chalice，maybe，xnova
+
+小图是鬼和上帝
+
+*****
+
+####  Litccc  
+##### 2424#       发表于 2022-8-7 19:46
+
+哇，吃饭的时候发这个是何意啊
+
+*****
+
+####  蛭人  
+##### 2425#       发表于 2022-8-7 19:47
+
+说起来，双冠王OG队内核心兄弟只有ceb和大爹吧，topson、jerax、ana到挺普通朋友的，这三个人互相关系却又很好的，所以打职业还是别感性了，八王当年还我的兄弟不需要你带，结果还不是戏耍；这年头施舍真是发大水产生的美好想象，真正打职业的巴不得利好自己。
+
+*****
+
+####  tontyoutoure  
+##### 2426#       发表于 2022-8-7 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56964084&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-7 17:49</a>
+集美到底知不知道ti8输了后杰畜每次看老干瘪比赛都想砍死A➗，那时候在他直播间全是傻狗，房管大半都是sg的 ...</blockquote>
+作为一个从业者，ti8丢冠对于国内行业的打击是非常大的，想杀A/妈很正常。但是这几年过下来，发现lgd还是国内第一，那咋办呢。
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  健康猹  
+##### 2427#       发表于 2022-8-7 19:49
+
+这么看阿茶被超级集美论坛讨厌也不是没坏处，至少没有恶心图。
+

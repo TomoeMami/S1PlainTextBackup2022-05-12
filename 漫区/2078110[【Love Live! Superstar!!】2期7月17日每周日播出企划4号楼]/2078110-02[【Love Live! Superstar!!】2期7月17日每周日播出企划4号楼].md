@@ -5956,3 +5956,154 @@ CEO还没上天台 问题不大
 
 说香樱连三集之后查无此人也要复刻的，给我整笑了
 
+
+
+*****
+
+####  寒风夜  
+##### 2098#       发表于 2022-8-7 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965198&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-8-7 19:35</a>
+
+这集写得不错啊我觉得，两个人一集搞定还，除了一如既往的香音传</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">中段香音戏份减不少，这回她拉还算能接受（看的出上层指定了）
+
+*****
+
+####  ads147147  
+##### 2099#       发表于 2022-8-7 19:40
+
+香音少说点话，红蓝多捆绑多少还是有效的。不过总得来说，还是烂活乱炖。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 2100#       发表于 2022-8-7 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965256&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-7 19:40</a>
+
+说香樱连三集之后查无此人也要复刻的，给我整笑了</blockquote>
+果不其然
+
+
+
+*****
+
+####  starring  
+##### 2101#       发表于 2022-8-7 19:41
+
+观感比上集好一点，红蓝样板戏真就毫无意外是样板戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+香哥哥这集给我的感觉，变得跟创形者的萨拉那样，你又懂了？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2102#       发表于 2022-8-7 19:42
+
+所以说这么赶，不像是之前的节奏，小千个人回？vn踏踏开回？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 2103#       发表于 2022-8-7 19:43
+
+现在香音一说话我就头疼，你可少说两句吧
+
+*****
+
+####  寒风夜  
+##### 2104#       发表于 2022-8-7 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难有新活不都懂嘛
+
+*****
+
+####  稀勢のささ  
+##### 2105#       发表于 2022-8-7 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+好消息：这集恋终于有戏份来补强自己人设了 
+
+坏消息：怕你们忘了所以补的是学生会长的身份
+
+  纯纯的工具人
+
+*****
+
+####  iuhehc  
+##### 2106#       发表于 2022-8-7 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965262&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-8-7 19:40</a>
+
+中段香音戏份减不少，这回她拉还算能接受（看的出上层指定了）</blockquote>
+我是觉得卡农嘴炮那段拿掉，也不影响红蓝这段展开，不如给恋加点戏
+
+*****
+
+####  JustW_3  
+##### 2107#       发表于 2022-8-7 19:45
+
+今晚能出熟肉吗，错过了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2108#       发表于 2022-8-7 19:45
+
+艹，直接错过了直播，这一集有些啥剧情，翻了翻前面，看起来好像会比前三集正常一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 2109#       发表于 2022-8-7 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千妈地位有（部长）理由有（一样的童年）拉红蓝理应最佳人选是千妈，但是花田依然还是让卡农送，除了万代钦定我想不出是为啥(我不相信一个职业编剧会犯这种错误
+
+*****
+
+####  ads147147  
+##### 2110#       发表于 2022-8-7 19:46
+
+小千多点戏份或许还是可以的，毕竟最大的奖杯小千拿的，新人奖自己带的，还能补个个人回不是香音挂件可能就有点不太现实了。恋恋用学生会长很忙搪塞过去了 而且恋恋台词问题也没变。
+
+估计真的要留篇幅给vn了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  saya1892  
+##### 2111#       发表于 2022-8-7 19:47
+
+这集红蓝虽然是样板戏但很稳当，可以说是2期以来观感最好的一集
+
+除了香哥哥所有开口的地方之外
+
+*****
+
+####  仟音一心  
+##### 2112#       发表于 2022-8-7 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965332&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 19:45</a>
+艹，直接错过了直播，这一集有些啥剧情，翻了翻前面，看起来好像会比前三集正常一点 ...</blockquote>
+红蓝入队，各种百合样板戏，除了又是香音拉人以外各个地方正常到让人不适应。
+
+*****
+
+####  寒风夜  
+##### 2113#       发表于 2022-8-7 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你想想前2代的双人入队，差不多
+
+*****
+
+####  aoaoaodedede  
+##### 2114#       发表于 2022-8-7 19:49
+
+话说小千这部长有交代啥前因后果之类的东西吗
+
