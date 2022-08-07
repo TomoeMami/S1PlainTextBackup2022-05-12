@@ -3204,3 +3204,12 @@ hnn、tsuna还有nayuta
 
 现在apex已经是过气黄花了没办法
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16783#       发表于 2022-8-7 19:20
+
+就是因为要打apex她才推特晒了下截图，是真的这个月碰都没碰过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

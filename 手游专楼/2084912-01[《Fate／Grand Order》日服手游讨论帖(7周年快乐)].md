@@ -3675,3 +3675,18 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 我印象里最蠢的强化还得是玛尔达二技能那个奇迹D+，只多了500HP群回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 353#       发表于 2022-8-7 19:17
+
+ 本帖最后由 alucardcz 于 2022-8-7 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56964761&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-7 18:58</a>
+
+请问一下3000血是什么强化啊，没印象了...
+
+我印象里最蠢的强化还得是玛尔达二技能那个奇迹D+，只多了500 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5星的那个骑无毛/水无毛  （是这么叫的吗
+
