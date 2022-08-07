@@ -575,3 +575,32 @@ sorry，我混淆成古利特了，这个真没bg，裕太就是个男工具人
 
 我根本就不想看剧情，剧情越多越扣分
 
+
+
+*****
+
+####  ElderDriver  
+##### 64#       发表于 2022-8-7 15:33
+
+从第三集开始我就说这片剧情开始拖后腿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  镜面の云  
+##### 65#       发表于 2022-8-7 15:34
+
+眼看着评价or期待一步步从“神枪少女精神续作”演变成“JK版疾速追杀”再这一周的“成龙式喜剧”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我捉摸着之后怕是要成星爷式无厘头喜剧了
+
+我之前觉得是能成为现代都市版公主准则，看样子真就只能是电光姬王了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  炒饭炒饭  
+##### 66#       发表于 2022-8-7 15:39
+
+前几话还在惊艳贴贴与打枪与推剧情的完美结合，一度考虑要不要买份BD，现在期待值就只有无功无过完结过气的高配莉莉罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

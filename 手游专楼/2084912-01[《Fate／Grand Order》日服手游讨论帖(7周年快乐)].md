@@ -3495,3 +3495,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 原来泳装有三个池啊，我还抽了X和小王子，被榨干了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鉴于那谁经常口嗨 所以还不一定真的就3个池  等生放送
 
+
+
+*****
+
+####  eyeego  
+##### 336#       发表于 2022-8-7 15:34
+
+我觉得大概率可能是云玩家蘑菇把男人池也算进去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
