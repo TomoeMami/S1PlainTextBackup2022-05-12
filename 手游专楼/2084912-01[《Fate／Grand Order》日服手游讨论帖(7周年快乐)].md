@@ -3236,3 +3236,37 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 想起今天送护符就爬起来抽了几发 居然2宝了。泳装无了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 看到你抽我也抽了下 果然2宝了 跟着萌新有肉吃
 
+
+
+*****
+
+####  wangandh  
+##### 319#       发表于 2022-8-7 08:43
+
+1631 年轻莫里亚蒂
+
+1644 黑狗
+
+1646 土方岁三
+
+1648 超级班扬
+
+1650 芝诺比阿
+
+1651 哥伦布
+
+有坛友换了以上英灵梦装的吗？
+
+求个好友开图鉴
+
+我自己换了狮子王和阿拉什的
+
+462036515
+
+*****
+
+####  里村紅葉  
+##### 320#       发表于 2022-8-7 08:46
+
+我呼符也出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
