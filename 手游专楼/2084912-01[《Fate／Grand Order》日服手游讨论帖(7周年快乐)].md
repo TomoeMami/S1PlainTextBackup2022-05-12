@@ -3440,3 +3440,37 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 以上纯属口胡，三天后见分晓。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 331#       发表于 2022-8-7 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56961587&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-7 13:14</a>
+
+闲来无事，不负责任地奶一下泳装从者的配置~：
+
+根据周年庆地球姬和三星CasterAlterego阶徐福的落地 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前几天你还说昨天强化的会是水啊比（
+
+*****
+
+####  qixinno2  
+##### 332#       发表于 2022-8-7 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56959320&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-7 09:28</a>
+
+我石头呼符都没了，怎样抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装活动主线又不是没石头 看好你单抽出货
+
+*****
+
+####  qixinno2  
+##### 333#       发表于 2022-8-7 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56960484&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 11:35</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是你欧 我可是用了一发十连
+
