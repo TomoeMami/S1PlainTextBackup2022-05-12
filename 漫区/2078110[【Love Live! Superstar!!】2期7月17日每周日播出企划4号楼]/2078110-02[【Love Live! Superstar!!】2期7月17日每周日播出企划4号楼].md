@@ -5528,3 +5528,14 @@ b站给我推送了个星团 版  孤泳者。
 
 今天播出的Love Live!SuperStar!!2期第4集「科学室のふたり」可能因高中棒球比赛转播，时间变更 
 
+
+
+*****
+
+####  ads147147  
+##### 2049#       发表于 2022-8-7 08:55
+
+此时此刻，所以ceo真的会变成第二个恋恋吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3270,3 +3270,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 我呼符也出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 321#       发表于 2022-8-7 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么一个个都豹跳出货了，真是羡慕你们这群欧皇
+
