@@ -6792,3 +6792,15 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 下集ceo也是一集入队吗 红蓝毛前面一直有在铺垫 一集入队倒也没什么 ceo目前和裂啦还有学园偶像都没有任何交集 一集入队怀疑能写好吗
 
+
+
+*****
+
+####  plazum  
+##### 2183#       发表于 2022-8-8 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56969996&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-7 23:36</a>
+
+依稀记得缪当时偶像部部长就交给了妮可，好像理由是妮可对学院偶像的热爱是最高的，非她莫属。所以这集看选 ...</blockquote>
+我记得一开始就是妮可吧，好像是妮可把她们带到了一个社团活动室
+
