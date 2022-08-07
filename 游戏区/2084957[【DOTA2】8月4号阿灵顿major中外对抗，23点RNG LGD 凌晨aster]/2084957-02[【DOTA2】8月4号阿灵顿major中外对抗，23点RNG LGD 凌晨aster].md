@@ -6093,3 +6093,23 @@ a组是真的难，感觉rng分到b组都稳进胜者组了<img src="https://sta
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 2260#       发表于 2022-8-7 08:24
+
+AA历来的问题不都是保不住线吗，现在1号位本来就吃屎，对面选个大锤viper之类的你选个AA这条线还要不要玩了
+
+合适阵容能出AA的经常也会被ban掉
+
+倒是PA除了之前石油杯秘密拿出来打刚被之外好像就确实没见过
+
+*****
+
+####  Litccc  
+##### 2261#       发表于 2022-8-7 08:26
+
+什么情况？rng 12分钟gg了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
