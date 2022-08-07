@@ -3140,3 +3140,14 @@ hks的本太关键了，3人U18
 
 帕特姐这是在搞戒赌宣传吗？快21小时了......
 
+
+
+*****
+
+####  D-JoeII  
+##### 16777#       发表于 2022-8-7 16:39
+
+打到一半響警報目前算不算以色列V獨有體驗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s)
+[https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s)
+

@@ -7081,3 +7081,70 @@ notail那个女朋友？</blockquote>
 是的</blockquote>
 分了也好，这种女人不值得<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 2371#       发表于 2022-8-7 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963254&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-7 16:29</a>
+
+狂踩是贬的严重形式，还是比较克制的。把他评价a÷和a厨的话做对比就很明显了 ...</blockquote>
+那无非就是夸AME之后夸ANA不够狠，连贬都算不上了，至于前瞻里不看好是因为利雅得大师赛的事，不过说到对ana的沙特表现评价，好像正是楼友上一次对线约架未遂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 2372#       发表于 2022-8-7 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963312&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-7 16:33</a>
+那无非就是夸AME之后夸ANA不够狠，连贬都算不上了，至于前瞻里不看好是因为利雅得大师赛的事，不过说到对 ...</blockquote>
+也算比较主观的感觉，争论也没意义，等今年ti决赛吧，家人们
+
+其实我看杰出也比较久，真的是看他为了钱越来越那啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 2373#       发表于 2022-8-7 16:35
+
+ 本帖最后由 ArowRocher 于 2022-8-7 16:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963280&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 16:31</a>
+
+为什么还要看杰出的视频，和链子哥连麦都被完爆，话都说不出来的人，他根本不知道这游戏怎么赢，毕竟和ru水 ...</blockquote>
+这就跟为什么要看OB/中单光一/510/MDY/FY一样，归来归去是鄙视链，这些人里目前能知道怎么赢的还真不多。
+
+链子怎么说是A级现役选手，比杰出一个600名还是强太多了。虽然他总强调自己打赢过链子跟Aq对过线跟赵子星当过队友带徐志雷走向胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 2374#       发表于 2022-8-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963329&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-7 16:34</a>
+也算比较主观的感觉，争论也没意义，等今年ti决赛吧，家人们
+
+其实我看杰出也比较久，真的是看他为了钱越 ...</blockquote>
+为了钱不是挺正常的，斗鱼常年没版权，不转行就只能热度优先了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+身份政治是最快拉认同造话题的，本楼 nga sg 弹幕，哪里都一样
+
+*****
+
+####  ArowRocher  
+##### 2375#       发表于 2022-8-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963329&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-7 16:34</a>
+
+也算比较主观的感觉，争论也没意义，等今年ti决赛吧，家人们
+
+其实我看杰出也比较久，真的是看他为了钱越 ...</blockquote>
+一个买电脑靠众筹的中专生，签到2025年的直播平台TI10之后就没有过比赛版权，咋整呢。
+
+*****
+
+####  北欧王座  
+##### 2376#       发表于 2022-8-7 16:38
+
+杰畜脑残的地方在他对的时候能看出来啥。现在rng就是菜逼，lgd就是牛逼。他结论已经下定了，也符合事实，论据随便找找喷喷就差不多显得有理了。前段时间lgd低迷几下rng牛逼起来了你看他嘴硬嬉皮笑脸硬洗那味儿不就懂了。
+
