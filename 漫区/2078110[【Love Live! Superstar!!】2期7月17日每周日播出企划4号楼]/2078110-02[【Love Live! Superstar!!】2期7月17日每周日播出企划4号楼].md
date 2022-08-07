@@ -6471,3 +6471,22 @@ Nako的事务所上个 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想不开吗，从未来可期的SMA跑路
 
+
+
+*****
+
+####  古战场亡魂  
+##### 2152#       发表于 2022-8-7 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56968171&amp;ptid=2078110" target="_blank">巴麻耒 发表于 2022-8-7 22:10</a>
+
+夏美这又是送外卖又是搬家的，有隔壁佩克拉那味儿了，怎么不去干点女性化的兼职，比如说当个咖啡厅女仆之类 ...</blockquote>
+夏美应该先开个fanbox。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 2153#       发表于 2022-8-7 22:48
+
+看了一遍熟肉，这集红蓝姛整得确实不错，要是香哥哥话疗那段换成千妈就完美了
+
