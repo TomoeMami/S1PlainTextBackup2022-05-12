@@ -11321,3 +11321,105 @@ rng还是乖乖去败者组吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">醒来一看杜鹏儿和老挝人各脑浆四溢一把
 
+
+
+*****
+
+####  morwhipppo  
+##### 2893#       发表于 2022-8-8 07:42
+
+rng和og如果都2:0晚上，和fnc到底怎么排列呀，3个9分，是加赛吗？感觉就sszai这个水平，和霉鳖一样脑浆
+
+*****
+
+####  逃离二次元  
+##### 2894#       发表于 2022-8-8 07:43
+
+rng大概率进败者组了。og肯定2：0talon，rng得2：0马体才能稳进，就这个状态能打马体吗。。
+
+*****
+
+####  废都刽子手  
+##### 2895#       发表于 2022-8-8 07:43
+
+第二把么么鳖没放水我是不信的，不知道冠超有没有后悔当年完美盛典yygq量子鞭。李斯也是个csdx，么么鳖都不想玩了，不报团推非要抓着杀，这会好了。
+
+*****
+
+####  12481632  
+##### 2896#       发表于 2022-8-8 07:47
+
+RNG不会要踩着线进胜者组，去送鳖茶一个队史最佳成绩了吧
+
+*****
+
+####  pikamee  
+##### 2897#       发表于 2022-8-8 07:49
+
+以往major还有茶队整波大的吸引火力，这次连茶都超预期地毫无存在感地成功过渡了
+
+那这期的口水流量只能你rng来carry了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  xz_04  
+##### 2898#       发表于 2022-8-8 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972136&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-8 07:42</a>
+
+rng和og如果都2:0晚上，和fnc到底怎么排列呀，3个9分，是加赛吗？感觉就sszai这个水平，和霉鳖一样脑浆 ...</blockquote>
+3支队伍平分，加赛是 Bo1 轮着打；2支平分是 Bo3。
+
+*****
+
+####  山上徹也  
+##### 2899#       发表于 2022-8-8 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972154&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-8 07:47</a>
+RNG不会要踩着线进胜者组，去送鳖茶一个队史最佳成绩了吧</blockquote>
+正确的，起码保送另一个西恩队，也算基德了
+
+*****
+
+####  Arhjoy  
+##### 2900#       发表于 2022-8-8 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972154&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-8 07:47</a>
+RNG不会要踩着线进胜者组，去送鳖茶一个队史最佳成绩了吧</blockquote>
+万一是rng把鳖茶送进败者组呢，怎么说也是dpc第一啊
+
+*****
+
+####  桐道蓝  
+##### 2901#       发表于 2022-8-8 07:50
+
+Ghost来不了影响太大了，完全打不出第三赛季DPC的感觉，纯纯杀人DOTA了。
+
+*****
+
+####  Litccc  
+##### 2902#       发表于 2022-8-8 07:51
+
+ghost客厅滑跪，起码不用担心自己被踢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arhjoy  
+##### 2903#       发表于 2022-8-8 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972159&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-8 07:49</a>
+以往major还有茶队整波大的吸引火力，这次连茶都超预期地毫无存在感地成功过渡了
+
+那这期的口水流量只能你r ...</blockquote>
+茶之前又不是没干过胜者组连输两轮直接回家的活，今天打东南亚队还不够脑浆么，感觉要不是新规定不让上厕所，搞不好就被翻了
+
+*****
+
+####  反方向的波  
+##### 2904#       发表于 2022-8-8 07:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">淘汰赛一切皆有可能，另说
+不过卡龟这两天打的是越来越差了，对让你滚而言是个相当大的坏消息
+
