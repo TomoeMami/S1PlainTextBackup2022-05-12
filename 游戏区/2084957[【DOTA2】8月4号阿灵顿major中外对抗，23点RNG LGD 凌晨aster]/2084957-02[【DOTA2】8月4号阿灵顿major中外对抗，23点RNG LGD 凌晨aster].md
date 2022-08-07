@@ -6122,3 +6122,31 @@ AA历来的问题不都是保不住线吗，现在1号位本来就吃屎，对�
 
 水厂想翻盘赶紧联系ana，拿了ti想捧红谁都可以，还惦记着那个废物carry干嘛呢。
 
+
+
+*****
+
+####  千千千千鸟  
+##### 2263#       发表于 2022-8-7 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56959141&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-7 09:03</a>
+
+水厂想翻盘赶紧联系ana，拿了ti想捧红谁都可以，还惦记着那个废物carry干嘛呢。 ...</blockquote>
+什么鬼，ti前不能换人吧
+
+*****
+
+####  北条早苗  
+##### 2264#       发表于 2022-8-7 09:17
+
+rng怎么做到12投的
+
+*****
+
+####  walfeds  
+##### 2265#       发表于 2022-8-7 09:20
+
+醒来一看手机满头问号了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
