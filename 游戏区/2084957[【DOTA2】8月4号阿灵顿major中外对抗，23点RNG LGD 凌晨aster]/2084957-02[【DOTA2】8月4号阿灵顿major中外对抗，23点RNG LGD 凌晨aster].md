@@ -7720,3 +7720,21 @@ ti9打完三个人鸽了老og大概就算散伙了各过各日子。但关系也
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">米德旺现在的风评已经变成无耻的队友了，虾哥何苦呢
 
+
+
+*****
+
+####  woyzeck  
+##### 2438#       发表于 2022-8-7 20:34
+
+就是好队友的关系呗，jerax最亲近的还是马桶和液体那批人。
+
+*****
+
+####  沈淮  
+##### 2439#         楼主| 发表于 2022-8-7 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966165&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-7 20:31</a>
+米德旺现在的风评已经变成无耻的队友了，虾哥何苦呢</blockquote>
+midone不是被vote的吗，怎么变五次喝的队友了？前smg的瓜？
+

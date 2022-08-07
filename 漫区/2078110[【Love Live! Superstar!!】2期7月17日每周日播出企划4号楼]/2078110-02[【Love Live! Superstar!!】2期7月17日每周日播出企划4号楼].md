@@ -6254,3 +6254,12 @@ Celticwhite
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这集训练的片段，可可体力值（耐力）++了，貌似柔韧性还差点。
 
+
+
+*****
+
+####  kata魂  
+##### 2130#       发表于 2022-8-7 20:33
+
+这点倒比较现实，柔韧度不从小开始练后期没法追的
+
