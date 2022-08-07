@@ -3342,3 +3342,13 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 艹 看到你抽我也抽了下 果然2宝了 跟着萌新有肉吃</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  kiralzb  
+##### 328#       发表于 2022-8-7 12:35
+
+想了想，剩下的苹果也刷钱算了，为了最终灵基的石头，能升的升了，钱包里空着总觉得不安<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+之后的活动就靠自回体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

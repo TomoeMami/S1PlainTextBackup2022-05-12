@@ -6574,3 +6574,23 @@ ti9是奶推版本，但是如果你看过比赛就知道。从ti8甚至ti7开�
 好呀好呀终于午休了，赶紧看一把省一省午饭钱</blockquote>
 建议观赏12分钟GG最速传说，推荐观摩杰出解说，BP完就一脸司马
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 2314#       发表于 2022-8-7 12:37
+
+为啥ori这么喜欢蓝猫，不是版本下水道吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 2315#       发表于 2022-8-7 12:37
+
+ 本帖最后由 nowaki 于 2022-8-7 12:39 编辑 
+
+超哥的问题放一边这畜生三看到大圣精灵露脸还让大哥去抗压，不是铁cs
+
