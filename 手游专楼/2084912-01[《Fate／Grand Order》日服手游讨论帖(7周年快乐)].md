@@ -3643,3 +3643,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 长江这个宝具强化，是在给第六章怎么破防大英雄打补丁吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 350#       发表于 2022-8-7 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一神那狗屎平衡又不是第一次见识，反正加强的再鸡肋也能安慰自己“总比+3000血要强”
+

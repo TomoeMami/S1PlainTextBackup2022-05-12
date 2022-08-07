@@ -3164,3 +3164,14 @@ syl
 
 牛姨第三年道大会4-5负于S级止步决赛，豆猫第三年夏甲0-1负于A级首战败退， 都差一口气<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 16779#       发表于 2022-8-7 17:33
+
+豆猫毕竟前两年太惨了，加上这最后一年可以说戏剧性拉满，只要正赛哪怕赢一场不至于被虐杀都算功德圆满了吧
+
+反正我已经佛了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
