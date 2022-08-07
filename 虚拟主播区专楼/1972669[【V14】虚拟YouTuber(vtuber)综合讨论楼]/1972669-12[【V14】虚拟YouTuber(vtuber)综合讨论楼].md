@@ -3113,3 +3113,12 @@ hks的本太关键了，3人U18
 
 期待虹甲名门校VS名门校
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16774#       发表于 2022-8-7 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">好像对桃桃画师画的fes立绘都不太满意，微博上。
+

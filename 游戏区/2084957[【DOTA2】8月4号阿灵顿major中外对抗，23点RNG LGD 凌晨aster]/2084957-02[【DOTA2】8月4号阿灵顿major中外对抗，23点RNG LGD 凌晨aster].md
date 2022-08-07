@@ -6391,3 +6391,31 @@ rng这bp真的牛逼，每天都能来几次完全玩不了的阵容。
 
 我直接九点就安眠！
 
+
+
+*****
+
+####  永远健康希拉里  
+##### 2295#       发表于 2022-8-7 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922193&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-4 00:07</a>
+心疼dodo</blockquote>
+心疼光一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 2296#       发表于 2022-8-7 11:15
+
+rng的BP太畜了，3号位也是把畜生，5号位隐形 2号位人畜二象性<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 2297#       发表于 2022-8-7 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922274&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-4 00:16</a>
+
+看比赛不让骂娘，管的太宽了，一般体育比赛再怎么装文明也顶多说一句解说不能骂人，现在聊天水友也不能骂了 ...</blockquote>
+b站房管就是纯太监 dpc时候土娟说a级上来的成绩都垫底 我没忍住打字弹幕说了句xg被吃了？不会说就别说话 都被封了 太寄吧蠢了这些人
+
