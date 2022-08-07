@@ -6022,3 +6022,33 @@ bp乱选，没人顶得住刚被，线上被爆，nts宙斯被对面小精灵刚
 
 憋星直接基地了！天！
 
+
+
+*****
+
+####  坚定的团子党  
+##### 2252#       发表于 2022-8-7 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958754&amp;ptid=2084957" target="_blank">Aeons 发表于 2022-08-07 07:38:54</a>
+是我带有色眼镜吗，看TS真的有想把老东京踢了。</blockquote>怎么踢的了，除非雪碧直邀分不够去打预选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  山上徹也  
+##### 2253#       发表于 2022-8-7 08:02
+
+为什么没人玩aa了，ti9也天天炼金刚背陈不是都1banaa吗
+
+*****
+
+####  Aeons  
+##### 2254#       发表于 2022-8-7 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958833&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-7 08:01</a>
+怎么踢的了，除非雪碧直邀分不够去打预选
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是说我想踢，操作另说，老东京一人冲上去送也太难看了
+
