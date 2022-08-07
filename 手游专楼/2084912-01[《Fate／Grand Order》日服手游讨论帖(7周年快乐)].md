@@ -3330,3 +3330,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 哈哈我同学又下池子了，这次他歪了大象，心肺停止.jpg
 
+
+
+*****
+
+####  alucardcz  
+##### 327#       发表于 2022-8-7 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56958716&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-7 07:25</a>
+
+艹 看到你抽我也抽了下 果然2宝了 跟着萌新有肉吃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">欧 羡慕
+

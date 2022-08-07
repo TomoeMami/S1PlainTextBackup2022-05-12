@@ -6419,3 +6419,44 @@ rng的BP太畜了，3号位也是把畜生，5号位隐形 2号位人畜二象�
 看比赛不让骂娘，管的太宽了，一般体育比赛再怎么装文明也顶多说一句解说不能骂人，现在聊天水友也不能骂了 ...</blockquote>
 b站房管就是纯太监 dpc时候土娟说a级上来的成绩都垫底 我没忍住打字弹幕说了句xg被吃了？不会说就别说话 都被封了 太寄吧蠢了这些人
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 2298#       发表于 2022-8-7 11:32
+
+看了眼录像，两把被OG传统的奶推阵容干爆了
+
+留给超哥的C是不是只剩多伦多东京了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 2299#       发表于 2022-8-7 11:35
+
+最近查猪有画面的局比超哥多，不过现在rng2345包轮流仰卧起坐状态波动也太大了，这就是跟四赵云的差距吧
+
+*****
+
+####  Yukino-Yukino  
+##### 2300#       发表于 2022-8-7 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56960304&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-7 11:18</a>
+
+b站房管就是纯太监 dpc时候土娟说a级上来的成绩都垫底 我没忍住打字弹幕说了句xg被吃了？不会说就别说话  ...</blockquote>
+xg那是刚组队只能在a级吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的不是那种在a级互啄了好几个赛季啄上来的么。
+
+*****
+
+####  refiver  
+##### 2301#       发表于 2022-8-7 11:38
+
+一个问题
+
+为什么从TI8开始maybe在哪个队伍哪个队BP就不行
+
+may皇二手拍板要玩版本下水道火女，BAN位直接用三个BAN掉TA卡尔puck
+
+什么教练做的来这种BP？
+
