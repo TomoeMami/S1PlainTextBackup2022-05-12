@@ -6686,3 +6686,27 @@ vn除了她谁能收服。钦定了好吧。
 缪斯时期部长一代妮可，二代是花阳。跟实力没关系就是单纯的偶像狂热所以部长交给她顺理成章的。 ...</blockquote>
 ksks：<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 2174#       发表于 2022-8-8 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970069&amp;ptid=2078110" target="_blank">竹筷 发表于 2022-8-7 23:41</a>
+老实说可可对部长没想法该不会是想着自己会离队吧
+
+—— 来自 S1Fun</blockquote>
+可可只对香音有想法，什么东西都想让香音当。但很可惜，到可可回之前香音都不会对她有想法了什么渣女
+
+*****
+
+####  竹筷  
+##### 2175#       发表于 2022-8-8 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970550&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-8 00:14</a>
+可可只对香音有想法，什么东西都想让香音当。但很可惜，到可可回之前香音都不会对她有想法了什么渣女[ ...</blockquote>
+我觉得这季感觉没那么魔怔了，起码可现在很多想法的出发点都是“liella”了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
