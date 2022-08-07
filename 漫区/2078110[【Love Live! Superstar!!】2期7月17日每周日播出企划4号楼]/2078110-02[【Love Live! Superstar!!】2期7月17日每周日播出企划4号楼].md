@@ -6602,3 +6602,40 @@ pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处�
 
 <img src="https://tiebapic.baidu.com/forum/pic/item/943919087bf40ad1d480833f122c11dfa8ecce4d.jpg?tbpicau=2022-08-09-05_b58afe255aa15324e0b48152850760f4" height="325" id="aimg_jYRY9" onclick="zoom(this, this.src, 0, 0, 0)" width="578"/)
 
+
+
+*****
+
+####  竹筷  
+##### 2165#       发表于 2022-8-7 23:41
+
+老实说可可对部长没想法该不会是想着自己会离队吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  离心  
+##### 2166#       发表于 2022-8-7 23:42
+
+就希望全员入队后的个人回不要让香音一人解决了
+
+*****
+
+####  AlfredXC  
+##### 2167#       发表于 2022-8-7 23:43
+
+香音不是部长是致敬乌兹不是rng队长
+
+*****
+
+####  古战场亡魂  
+##### 2168#       发表于 2022-8-7 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970083&amp;ptid=2078110" target="_blank">离心 发表于 2022-8-7 23:42</a>
+
+就希望全员入队后的个人回不要让香音一人解决了</blockquote>
+可别逗了，外面有个vn，而且是和香音单对单的。肯定有对手戏。
+
+vn除了她谁能收服。钦定了好吧。
+

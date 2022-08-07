@@ -8177,3 +8177,74 @@ xinq戏来了
 
 这熊德确实鸡哥上也能赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我爱撩菜  
+##### 2492#       发表于 2022-8-7 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4赵云太厉害了，AME像路人一样只管拆塔
+
+*****
+
+####  端木恋心  
+##### 2493#       发表于 2022-8-7 23:42
+
+rng必须2比0液体啊，因为感觉lgd会带走rng。不然就进不去胜者组了啊。
+
+*****
+
+####  坚定的团子党  
+##### 2494#       发表于 2022-8-7 23:43
+
+感觉这vp就是毛版rng呀，对线一过3大哥闷头刷，难怪和rng打平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Litccc  
+##### 2495#       发表于 2022-8-7 23:44
+
+vp这两个酱油毫无存在感
+
+*****
+
+####  4591  
+##### 2496#       发表于 2022-8-7 23:45
+
+相似的开局，VP韧性比RNG强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 2497#       发表于 2022-8-7 23:47
+
+TA应该才算是真正的肌肉dota，rng根本不够格
+
+*****
+
+####  雅朵莉雀  
+##### 2498#       发表于 2022-8-7 23:49
+
+这盘这阵容不就是只能刷吗，doomlina还能不让刷20分钟的吗
+
+双酱油刚三把自己刚崩了，快5分钟了才刚到2级，虽然三大哥线上等级都很高，但是两个刷子配合不了船长
+
+酱油等级太低了一点威胁都没有，只能看着10分钟大骨灰的光法骑着脸打
+
+*****
+
+####  ArowRocher  
+##### 2499#       发表于 2022-8-7 23:51
+
+这波谜团翻了
+
+*****
+
+####  弈秋  
+##### 2500#       发表于 2022-8-7 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都跑去针对ame，感觉为了针对而针对了
+
