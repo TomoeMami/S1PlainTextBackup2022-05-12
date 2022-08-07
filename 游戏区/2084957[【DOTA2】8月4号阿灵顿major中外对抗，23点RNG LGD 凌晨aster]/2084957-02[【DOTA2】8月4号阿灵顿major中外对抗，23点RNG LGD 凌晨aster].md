@@ -6222,3 +6222,21 @@ rng怎么做到12投的
 
 ana那几波tp明显是不想玩了
 
+
+
+*****
+
+####  w2210059  
+##### 2274#       发表于 2022-8-7 09:45
+
+所以rng到底是谁的问题最关键呢？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暴走的包子  
+##### 2275#       发表于 2022-8-7 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正23458集体给上帝磕一个准没错，卡猴可以磕轻点
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

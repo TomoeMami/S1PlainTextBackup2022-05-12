@@ -3311,3 +3311,13 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 现在欧泳装死的越惨 看好你泳装豹跳</blockquote>
 我石头呼符都没了，怎样抽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 325#       发表于 2022-8-7 09:47
+
+不是说1宝收藏等泳装吗，怎么一个个都真香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+搞得我又抽了一宝，只剩500多等泳装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
