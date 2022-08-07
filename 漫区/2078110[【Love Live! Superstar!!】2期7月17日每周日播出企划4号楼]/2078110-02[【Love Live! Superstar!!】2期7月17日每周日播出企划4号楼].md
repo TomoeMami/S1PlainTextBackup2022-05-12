@@ -6184,3 +6184,29 @@ CEO还没上天台 问题不大
 倒不如说你们结丘什么破学校，过了一年才开第一届部长会议，第一年都在混水摸鱼吗 ...</blockquote>
 真要说，那这结丘确实不怎么样，一年了，能给学习整点荣誉的人基本都在Liella里了，上一季还曾经整出点似有似无的“废校”桥段，不如说远道而来的学生是看中了这个学校的哪一点才过来的？
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 2123#       发表于 2022-8-7 20:13
+
+反正都加人了，这季整一对儿出柜也不是不行吧，反正这集我看着就这感觉
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 2124#       发表于 2022-8-7 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965796&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-7 20:13</a>
+反正都加人了，这季整一对儿出柜也不是不行吧，反正这集我看着就这感觉
+
+—— 来自 HUAWEI OCE-AN10, Andro ...</blockquote>
+这女同味还不如去隔壁吃蒜。
+
+本质和可堇一样，工业糖精味重的让人作呕。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7664,3 +7664,27 @@ JJ你把霉鳖买了去我把你新专辑销量刷到超过光点<img src="https
 哈？</blockquote>
 乌龙了，我的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 2433#       发表于 2022-8-7 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965676&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 20:07</a>
+若爆料成真，则Team SMG阵容为：
+MidOne
+Moon</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不是怀疑你的能力，超过那位giegie真挺难的……
+
+*****
+
+####  沈淮  
+##### 2434#         楼主| 发表于 2022-8-7 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965676&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 20:07</a>
+若爆料成真，则Team SMG阵容为：
+MidOne
+Moon</blockquote>
+漏油有点哈人了
+
