@@ -7920,3 +7920,54 @@ jerax毕竟是ti6后从液体换过来的
 
 只能说jerax打游戏和打职业真用脑子了，毕竟会逃税，跟谁能打出成绩还是门儿清的。
 
+
+
+*****
+
+####  iriyano  
+##### 2459#       发表于 2022-8-7 23:03
+
+吐了，没睡着
+不知道能不能坚持到3点了
+
+*****
+
+####  walfeds  
+##### 2460#       发表于 2022-8-7 23:04
+
+但是jerax退役后两年里干什么去了以至于卖了og股权还到处找队仍然是不解之谜
+
+很难不怀疑赚钱这块人菜瘾大
+
+
+
+*****
+
+####  Asukalangley33  
+##### 2461#       发表于 2022-8-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56969416&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-7 23:04</a>
+
+但是jerax退役后两年里干什么去了以至于卖了og股权还到处找队仍然是不解之谜
+
+很难不怀疑赚钱这块人菜瘾大 ...</blockquote>
+大概炒币吧
+
+然后最近一波行情直接寄了
+
+*****
+
+####  弈秋  
+##### 2462#       发表于 2022-8-7 23:09
+
+ 本帖最后由 弈秋 于 2022-8-7 23:10 编辑 
+
+vp懵逼了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">lgd自己也懵逼了
+
+*****
+
+####  iriyano  
+##### 2463#       发表于 2022-8-7 23:11
+
+2022年了还有1号位船长？
+

@@ -6490,3 +6490,26 @@ Nako的事务所上个 ...</blockquote>
 
 看了一遍熟肉，这集红蓝姛整得确实不错，要是香哥哥话疗那段换成千妈就完美了
 
+
+
+*****
+
+####  巴麻耒  
+##### 2154#       发表于 2022-8-7 23:03
+
+上海星探慧眼识珠
+<img src="https://p.sda1.dev/6/7b1f40d070938c7217e6b32a1661c56b/CMP_20220807230221293.png" referrerpolicy="no-referrer">
+
+最后这个从普通握手到十指相扣多少有点暗示性的意味在里面了
+<img src="https://p.sda1.dev/6/6b61b7cf1fae054e4165007521add959/GIF 2022-8-7 22-55-45.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 2155#       发表于 2022-8-7 23:04
+
+ 本帖最后由 靡宜 于 2022-8-7 23:06 编辑 
+<blockquote>老1.5 发表于 2022-8-7 22:09
+pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处理，布鲁斯感会更强一些。 ...</blockquote>
+裤裤版是那种赢过你的感觉，民警又是另一种感觉，看着歌词就觉得太搞了，经典对唱。小星星过气，下次是可堇的卡丁车！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
