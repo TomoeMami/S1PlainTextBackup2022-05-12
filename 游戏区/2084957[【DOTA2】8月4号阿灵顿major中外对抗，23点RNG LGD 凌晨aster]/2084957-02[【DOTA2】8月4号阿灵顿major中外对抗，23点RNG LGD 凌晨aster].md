@@ -6628,3 +6628,16 @@ ti9是奶推版本，但是如果你看过比赛就知道。从ti8甚至ti7开�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一觉醒来看到OG把RNG二比零了，什么阳光猛烈
 
+
+
+*****
+
+####  我爱撩菜  
+##### 2320#       发表于 2022-8-7 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天忙着装修没有看，原来这么大的乐子。
+
+今晚好好品一品<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+马勒戈壁，LGD打RNG是今晚3点？极大概率BP爆RNG 然后光速2:0 ，还是明早看结果算了。
+
