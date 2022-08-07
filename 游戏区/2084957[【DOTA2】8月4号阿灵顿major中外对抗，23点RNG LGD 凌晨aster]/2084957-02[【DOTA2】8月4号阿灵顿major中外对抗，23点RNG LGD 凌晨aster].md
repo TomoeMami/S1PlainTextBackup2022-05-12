@@ -8950,3 +8950,19 @@ lgd已经提前第一了吧？
 
 说起来Nine神又要一轮游了啊，连续两个线下赛一轮游，属实有点惨。
 
+
+
+*****
+
+####  Aeons  
+##### 2589#       发表于 2022-8-8 01:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在看ts也容易脑溢血
+
+*****
+
+####  haruhiismer  
+##### 2590#       发表于 2022-8-8 01:51
+
+苔原队就这样，只会几套花活版本后期被乱杀
+
