@@ -3765,3 +3765,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 就是明着说了这卡纯粹的厨力卡</blockquote>
 （YLS的）厨力卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 360#       发表于 2022-8-7 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966526&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-7 20:49</a>
+
+（YLS的）厨力卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一神坏事做尽
+
