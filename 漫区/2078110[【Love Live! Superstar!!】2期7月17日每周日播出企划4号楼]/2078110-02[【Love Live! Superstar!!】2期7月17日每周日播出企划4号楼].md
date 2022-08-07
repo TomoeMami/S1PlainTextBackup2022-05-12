@@ -6860,3 +6860,12 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香音除了唱歌之外的事情，小千都会帮忙分担走，或许是这个意思吧，千妈一如既往地重呢。你香音也没尝试过当部长你怎么知道行不行，怎么还去劝别人的。这两条线放在同一集，编剧也没关心过香音是不是形象直接裂开。
 
+
+
+*****
+
+####  ViyViy  
+##### 2188#       发表于 2022-8-8 06:48
+
+香哥哥估计是第一季起名的时候落下的ptsd，那时候也是啥也不说就让她想，还玩起了监禁play，现在选部长，恰如彼时彼刻
+
