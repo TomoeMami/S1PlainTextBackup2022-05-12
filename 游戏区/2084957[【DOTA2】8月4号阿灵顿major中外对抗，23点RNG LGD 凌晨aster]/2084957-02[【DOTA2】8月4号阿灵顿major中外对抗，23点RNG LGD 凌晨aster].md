@@ -6996,3 +6996,42 @@ rng最后两手ban夜魔大鱼都是atf的英雄，很明显知道og蝙蝠是中
 rng的bp如此畸形就是以选代ban选了电魂大屁股后，结果火女被ban了丧失了电魂打1号位工具人的可能性，只能硬着头皮点了个后期无敌的猴子，结果被大圣打爆
 剩下可以商榷的就是为什么放猴子去劣势路吃屎以及为什么看到大圣带精灵之后不选择小yT下来刚三，放大屁股和德鲁伊solo玩
 
+
+
+*****
+
+####  nxmonitor  
+##### 2362#       发表于 2022-8-7 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963071&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-7 16:11</a>
+
+没有误判，rng最后的ban位都是给的atf的英雄
+
+rng的bp如此畸形就是以选代ban选了电魂大屁股后，结果火女被 ...</blockquote>
+分路问题应该比BP更严重一点，好几种选择里选了最不可接受的那种，当然最奇葩的是下路猴子戴泽还和精灵大圣拼起来了……
+
+*****
+
+####  很久就在那边l  
+##### 2363#       发表于 2022-8-7 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963042&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-7 16:08</a>
+那选什么猴子呢？德鲁伊出来电魂很难打三，不会真以为电魂真好打蝙蝠吧？ ...</blockquote>
+蝙蝠路人局见的太少了我不是很懂，看大数据显示的是电棍克蝙蝠
+
+*****
+
+####  沈淮  
+##### 2364#         楼主| 发表于 2022-8-7 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963024&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 16:06</a>
+今日，大表哥karrigan在社交媒体转发了一段自己结婚时的视频，并配文“人生最好的一天”。</blockquote>
+notail那个女朋友？
+
+*****
+
+####  ArowRocher  
+##### 2365#       发表于 2022-8-7 16:21
+
+这几期视频我还都看了，不觉得杰出狂踩ana，打VP评价是躺输躺赢，打QC炼金那一盘认为是视野和沟通问题导致被翻。打FNC第一盘还是拷打宙斯不排眼瞎几把冲塔瞎几把走位，然后就今天的活了。无非带了一句评价ana是跟吴冠超一起热血肌肉DOTA，我还以为他说ana栓狗C被四赵云保还输了呢。
+

@@ -3518,3 +3518,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 根据周年庆地球姬和三星CasterAlterego阶徐福的落地 ...</blockquote>
 尺阶斯卡迪不会是新绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 338#       发表于 2022-8-7 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963065&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-7 16:10</a>
+
+尺阶斯卡迪不会是新绿拐吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个泳装活动你们居然还想出2个拐  真正的7周年庆典是吧？
+
