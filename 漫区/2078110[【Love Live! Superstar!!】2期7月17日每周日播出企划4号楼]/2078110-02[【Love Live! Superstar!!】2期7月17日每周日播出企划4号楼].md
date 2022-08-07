@@ -6402,3 +6402,22 @@ pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处�
 
 夏美这又是送外卖又是搬家的，有隔壁佩克拉那味儿了，怎么不去干点女性化的兼职，比如说当个咖啡厅女仆之类的，我寻思她卖相还是不错的
 
+
+
+*****
+
+####  lj205  
+##### 2145#       发表于 2022-8-7 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">好嘛，下一话又要牺牲可可风评呗
+
+*****
+
+####  老1.5  
+##### 2146#       发表于 2022-8-7 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56968171&amp;ptid=2078110" target="_blank">巴麻耒 发表于 2022-8-7 22:10</a>
+
+夏美这又是送外卖又是搬家的，有隔壁佩克拉那味儿了，怎么不去干点女性化的兼职，比如说当个咖啡厅女仆之类 ...</blockquote>
+夏美：我为什么要去咖啡厅当女仆，我就是腿脚不利索，跪不下去，我是想站着，还把钱挣了。<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
