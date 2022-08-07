@@ -6744,3 +6744,16 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 熟肉看完了七到八分，希望之后能继续保持吧。
 
+
+
+*****
+
+####  仟音一心  
+##### 2179#       发表于 2022-8-8 00:34
+
+2021.8.8可香一周年
+<img src="https://p.sda1.dev/6/3f0fc11d800f2b061e1e1f2c8798b13d/CMP_20220808003319003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/d97d73c4bb891eff0b877b9ff1975f12/CMP_20220808003437633.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
