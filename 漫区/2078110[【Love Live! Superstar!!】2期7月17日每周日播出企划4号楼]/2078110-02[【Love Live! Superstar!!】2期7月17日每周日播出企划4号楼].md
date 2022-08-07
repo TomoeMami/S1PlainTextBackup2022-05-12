@@ -6528,3 +6528,24 @@ pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处�
 
 第二个是一个非常个人以可推的角度有点抱怨的一点，决定部长的时候，可可也是没有一点意思，香音也几乎丝毫没有想过可可是否合适的问题（当然香音有台词承认了是可可开始的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），香千是上大分了，说句不好听的，可可在队内的分量是越来越“边缘化”了……（我估计这个观点会有不少人来反驳我的，反正这是个人一个有点偏重性很大的想法，轻喷轻喷）
 
+
+
+*****
+
+####  古战场亡魂  
+##### 2157#       发表于 2022-8-7 23:20
+
+ 本帖最后由 古战场亡魂 于 2022-8-7 23:22 编辑 
+
+香音的人设好奇怪啊，你是怎么做到心灵导师和红温自闭人格切换的？？？这偶像部现在都变成你不笑大家不敢笑的情况了，大家默认你当部长，你不当？？？
+
+*****
+
+####  ViyViy  
+##### 2158#       发表于 2022-8-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56969633&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 23:15</a>
+
+熟肉看完了，总的来说中心点的俩个人这段剧情感觉还过得去，情节发展比前三集整出的香樱的人物关系的发展还 ...</blockquote>
+现在剧本的意思就是不论啥世界线，”香音“一定会成为偶像一定会结成liella；至于波动这个涟漪的是谁，那不重要，也许某个世界线上还是恋当那个发动机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
