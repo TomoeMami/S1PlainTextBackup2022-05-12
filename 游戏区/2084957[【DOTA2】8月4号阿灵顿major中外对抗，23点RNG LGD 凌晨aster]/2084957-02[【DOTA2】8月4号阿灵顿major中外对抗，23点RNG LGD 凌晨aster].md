@@ -8248,3 +8248,49 @@ TA应该才算是真正的肌肉dota，rng根本不够格
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都跑去针对ame，感觉为了针对而针对了
 
+
+
+*****
+
+####  反方向的波  
+##### 2501#       发表于 2022-8-7 23:52
+
+这个pakazs打的可以啊
+
+*****
+
+####  很久就在那边l  
+##### 2502#       发表于 2022-8-7 23:53
+
+这人才是秘鲁第一c吧，上个major也多次1v9成功
+
+*****
+
+####  北条早苗  
+##### 2503#       发表于 2022-8-7 23:59
+
+居然还能看到放出了atf的伐木机
+
+*****
+
+####  IG.430  
+##### 2504#       发表于 2022-8-8 00:00
+
+河哥这谜团，亏贼
+
+*****
+
+####  4591  
+##### 2505#       发表于 2022-8-8 00:01
+
+OG这翻盘ta背锅吧，连对面的黑奴炼金都要杀半天，伐木机更是怎么打都不掉血
+
+*****
+
+####  walfeds  
+##### 2506#       发表于 2022-8-8 00:01
+
+og这究极刷子阵容能赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是绝活给力啊，泰哥谜团牛逼
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

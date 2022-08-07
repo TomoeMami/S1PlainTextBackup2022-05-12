@@ -6639,3 +6639,39 @@ pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处�
 
 vn除了她谁能收服。钦定了好吧。
 
+
+
+*****
+
+####  kata魂  
+##### 2169#       发表于 2022-8-7 23:51
+
+缪斯时期部长一代妮可，二代是花阳。跟实力没关系就是单纯的偶像狂热所以部长交给她顺理成章的。
+
+*****
+
+####  starring  
+##### 2170#       发表于 2022-8-7 23:51
+
+从一季第四集开始，可可就变成香领导的魔证人，这集没跳出来大力推举算是进步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2171#       发表于 2022-8-7 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970069&amp;ptid=2078110" target="_blank">竹筷 发表于 2022-8-7 23:41</a>
+老实说可可对部长没想法该不会是想着自己会离队吧
+
+—— 来自 S1Fun</blockquote>
+伏线埋的越长，观众想的越多，当暗线转明线时，如果写的好，一路积聚的感情爆发，那确实可能是相当不错的，然而一但拉跨，一直以来积聚的情感也会垮掉，导致某些让观众找补的中间剧情和人物塑造可能变成乐子，所以个人觉得可可的个人回，要么神，要么烂，可能有些偏极化，但是我真的很难猜测可可的剧情能“平稳落地”
+
+*****
+
+####  Totokei  
+##### 2172#       发表于 2022-8-7 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一拉拉的部长身份是最稀薄的存在了吧
+
+感觉四季这个真的像病娇女同
+
