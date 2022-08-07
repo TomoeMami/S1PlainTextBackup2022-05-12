@@ -6869,3 +6869,12 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 香哥哥估计是第一季起名的时候落下的ptsd，那时候也是啥也不说就让她想，还玩起了监禁play，现在选部长，恰如彼时彼刻
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2189#       发表于 2022-8-8 07:21
+
+说白了，香音让千来当部长的戏码还是香音传的延续，毕竟千回想起了小时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

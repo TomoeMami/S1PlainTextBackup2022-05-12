@@ -11253,3 +11253,34 @@ rng还是乖乖去败者组吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  反方向的波  
+##### 2885#       发表于 2022-8-8 07:23
+
+ 本帖最后由 反方向的波 于 2022-8-8 07:25 编辑 
+
+<img src="https://p.sda1.dev/6/b106f580d9ca01fe13d4c2fc904afe1f/CMP_20220808072320971.jpg" referrerpolicy="no-referrer">
+尸王这帮人石油杯的时候不去抢大钱major自己当枪的时候搞那么厉害干什么
+
+*****
+
+####  Yukino-Yukino  
+##### 2886#       发表于 2022-8-8 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971969&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-08-08 06:48:32</a>
+说句题外话，这rng找谁当枪不行，找个ana，结果可好了输一次基本路人云玩家选择性无视临时演员，永远在找老 ...</blockquote>确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这第二把我在nga还能看到有人洗ana没锅的。不禁让我想起之前rng换人的时候那帮嗯吹链子哥水平的人。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  izayoi39  
+##### 2887#       发表于 2022-8-8 07:31
+
+为了杀人而杀人就是吴冠超的特色啊，从出道就没变过，自从ti8以后杀人获得经济被砍了几轮了，现在dota2杀个对面的经济远不如多一片地图来得快，吴冠超在杀完人后习惯性缩回自家野区打野把对面的野区又让回给对面，这也是我为啥天天黑吴冠超没有节奏能力
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
