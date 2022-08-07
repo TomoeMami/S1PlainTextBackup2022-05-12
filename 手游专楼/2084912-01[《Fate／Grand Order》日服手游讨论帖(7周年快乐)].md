@@ -3815,3 +3815,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 欧 羡慕  那我黑狗师傅呢！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么久的从者说什么欧。10号你再说
 
+
+
+*****
+
+####  qixinno2  
+##### 365#       发表于 2022-8-7 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967404&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 21:38</a>
+
+欧 羡慕  那我黑狗师傅呢！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">也挺强的吧 毕竟只有蓝卡受伤了
+

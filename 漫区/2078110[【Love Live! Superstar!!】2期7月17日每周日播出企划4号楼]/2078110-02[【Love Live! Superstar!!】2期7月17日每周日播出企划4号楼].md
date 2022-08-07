@@ -6337,3 +6337,21 @@ Liella!とマンマルが過ごすハッピーな日常を描くイラスト連�
 夏美回预告这样，怕是复刻堇入队回那猪b剧情哦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可可要是不大力输出CEO岂不是对堇不公平？
 
+
+
+*****
+
+####  ViyViy  
+##### 2138#       发表于 2022-8-7 21:42
+
+输出估计是有的，预告阳台丢卡那贱贱的表情旁边还挂着个篮子，我猜提了什么很奇葩的外卖要求整蛊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2139#       发表于 2022-8-7 21:48
+
+佩佩唱赛车歌好激情啊，感觉是要把可可吃掉的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+但是鲤鱼那个尾音听着反更有味道些
+

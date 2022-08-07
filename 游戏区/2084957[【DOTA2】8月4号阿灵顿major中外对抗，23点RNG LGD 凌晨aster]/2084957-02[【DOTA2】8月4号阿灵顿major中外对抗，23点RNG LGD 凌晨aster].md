@@ -7881,3 +7881,24 @@ midone哪个major双圣剑带ppy赢呢，自从蓝猫人柱力化一一直下滑
 
 不过之前在SG好像看过这个话题，Jerax自己偷税而另外四个没事，说明至少在资产处理上他们各自想法不一致。
 
+
+
+*****
+
+####  adretyu67  
+##### 2455#       发表于 2022-8-7 21:43
+
+jerax毕竟是ti6后从液体换过来的
+
+不过兢兢业业在og打了大半个职业生涯，照理来说关系应该没什么问题。
+
+*****
+
+####  健康猹  
+##### 2456#       发表于 2022-8-7 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967316&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 21:34</a>
+
+今夜核中核观众都看鳖星打boom，杜鹏和老挝c必有一个脑浆填满河道好吧 ...</blockquote>
+怕不是又要被血脉压制
+
