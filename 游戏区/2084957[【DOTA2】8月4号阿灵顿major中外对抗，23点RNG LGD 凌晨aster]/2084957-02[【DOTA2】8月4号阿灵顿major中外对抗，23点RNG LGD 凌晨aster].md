@@ -6537,3 +6537,12 @@ ti9是奶推版本，但是如果你看过比赛就知道。从ti8甚至ti7开�
 
 —— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  弈秋  
+##### 2310#       发表于 2022-8-7 12:07
+
+现在的肌肉dota约等于脑浆dota，脑子都是肌肉的
+
