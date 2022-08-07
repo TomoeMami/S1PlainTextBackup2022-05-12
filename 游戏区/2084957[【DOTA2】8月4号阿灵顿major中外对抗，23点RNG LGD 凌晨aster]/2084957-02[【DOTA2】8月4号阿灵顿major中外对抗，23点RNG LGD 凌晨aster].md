@@ -7423,3 +7423,51 @@ solo赛应该是没打，帖子都没结果呢。
 
 人人都是半月蝶莲<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 2408#       发表于 2022-8-7 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">我不负责任地猜一猜，可能是小代那晚过时不候了，只能缩壳
+
+*****
+
+####  莉拉厨  
+##### 2409#       发表于 2022-8-7 17:42
+
+换我我也缩！原谅漏油了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 2410#       发表于 2022-8-7 17:43
+
+<img src="https://p.sda1.dev/6/df6ef949c3bc259c3cf985be3a61ea11/Screenshot_2022-08-07-17-39-03-24_439a3fec0400f8974d35eed09a31f914.jpg" referrerpolicy="no-referrer">
+
+这戏服对味儿了
+
+*****
+
+####  ArowRocher  
+##### 2411#       发表于 2022-8-7 17:43
+
+那大代也缩了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，开始看比赛了约架，谁应呢
+
+*****
+
+####  ArowRocher  
+##### 2412#       发表于 2022-8-7 17:44
+
+聊游戏转进房价的终点是晒工资条
+
+*****
+
+####  漂灵  
+##### 2413#       发表于 2022-8-7 17:49
+
+集美到底知不知道ti8输了后杰畜每次看老干瘪比赛都想砍死A➗，那时候在他直播间全是傻狗，房管大半都是sg的，喷A➗天经地义。现在恰上ru水了我只能恭喜他成为一个喝饱饱的杂碎z
+

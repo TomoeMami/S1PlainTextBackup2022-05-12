@@ -3652,3 +3652,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一神那狗屎平衡又不是第一次见识，反正加强的再鸡肋也能安慰自己“总比+3000血要强”
 
+
+
+*****
+
+####  qixinno2  
+##### 351#       发表于 2022-8-7 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3000血已经差不多是下限了 想不出还能有什么比这更傻逼的强化了
+
