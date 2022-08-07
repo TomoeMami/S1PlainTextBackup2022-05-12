@@ -6367,3 +6367,27 @@ rng这bp真的牛逼，每天都能来几次完全玩不了的阵容。
 
 朋友不用倒时差就能看比赛，我还得定凌晨三点的闹钟<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  迷途lite  
+##### 2292#       发表于 2022-8-7 10:52
+
+【AXO为仙贝献上《霍元甲》祝仙贝旗开得胜勇夺major-哔哩哔哩】 https://b23.tv/VF8uNtj
+百万填词
+
+*****
+
+####  BallanceHZ  
+##### 2293#       发表于 2022-8-7 10:55
+
+品了下录像，lgd输的那把bp纯纯的白给，rng 12投的那把bp也是白给，分路也很窒息，感觉都不想打了所以光速敲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 2294#       发表于 2022-8-7 10:55
+
+我直接九点就安眠！
+
