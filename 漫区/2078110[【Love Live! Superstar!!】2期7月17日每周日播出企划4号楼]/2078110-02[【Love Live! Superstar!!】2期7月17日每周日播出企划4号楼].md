@@ -5580,3 +5580,39 @@ b站给我推送了个星团 版  孤泳者。
 
 直播间开始文字直播棒球了捏吗视频直播了已经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HGCG2  
+##### 2054#       发表于 2022-8-7 18:01
+
+LOVE LIVE星团因为转播高中棒球比赛延迟播出
+
+*****
+
+####  HGCG2  
+##### 2055#       发表于 2022-8-7 18:03
+
+<img src="https://img.saraba1st.com/forum/202208/07/180244abyzzyqgnp2pczgy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-7 18:02 上传
+
+*****
+
+####  csolfans  
+##### 2056#       发表于 2022-8-7 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">哭了一巡box和鱼写真都到货了；不知道鱼一专几时到手
+
+*****
+
+####  HGCG2  
+##### 2057#       发表于 2022-8-7 18:04
+
+草还演奏EVA主题歌
+
