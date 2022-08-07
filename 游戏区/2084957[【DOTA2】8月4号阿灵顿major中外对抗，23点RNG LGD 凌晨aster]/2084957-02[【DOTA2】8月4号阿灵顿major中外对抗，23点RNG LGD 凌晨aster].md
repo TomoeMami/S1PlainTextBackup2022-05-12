@@ -8793,3 +8793,60 @@ lgd主要还是看大辫哥状态，感觉是几个人里最不稳定的了
 
 bian刚组队玩了一阵子**奶奶小小特种三，版本更迭以后迷失了一个小版本，之后都是稳定的强吧
 
+
+
+*****
+
+####  ArowRocher  
+##### 2571#       发表于 2022-8-8 00:52
+
+仙贝今年再没冠军估计真的要息影了，虽然我觉得年年赖皮着吃奖金也挺好
+
+*****
+
+####  ArowRocher  
+##### 2572#       发表于 2022-8-8 00:54
+
+ceeeeeeb
+
+*****
+
+####  adretyu67  
+##### 2573#       发表于 2022-8-8 00:55
+
+4232?论仙贝的5届ti成绩
+
+今年不见得是3，也有可能是4。
+
+*****
+
+####  IG.430  
+##### 2574#       发表于 2022-8-8 00:56
+
+国内没有gpk这种出道一拖四，到豪门之后国内乱杀国外乱尿的中单吧
+
+*****
+
+####  ArowRocher  
+##### 2575#       发表于 2022-8-8 00:58
+
+看了下那个第一视角，原来小王跟大王一样用芦沟布局吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 2576#       发表于 2022-8-8 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970976&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-8 00:56</a>
+国内没有gpk这种出道一拖四，到豪门之后国内乱杀国外乱尿的中单吧</blockquote>
+白学家有点像吧，国内没乱杀，但国外真的尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 2577#       发表于 2022-8-8 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970976&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-8 00:56</a>
+国内没有gpk这种出道一拖四，到豪门之后国内乱杀国外乱尿的中单吧</blockquote>
+毛区实力就那样乱杀真算不上啥
+
