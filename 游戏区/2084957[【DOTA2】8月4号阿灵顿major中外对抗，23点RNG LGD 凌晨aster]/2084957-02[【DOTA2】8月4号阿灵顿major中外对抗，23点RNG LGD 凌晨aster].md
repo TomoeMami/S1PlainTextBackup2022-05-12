@@ -7738,3 +7738,18 @@ ti9打完三个人鸽了老og大概就算散伙了各过各日子。但关系也
 米德旺现在的风评已经变成无耻的队友了，虾哥何苦呢</blockquote>
 midone不是被vote的吗，怎么变五次喝的队友了？前smg的瓜？
 
+
+
+*****
+
+####  walfeds  
+##### 2440#       发表于 2022-8-7 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966274&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-7 20:35</a>
+
+midone不是被vote的吗，怎么变五次喝的队友了？前smg的瓜？</blockquote>
+Ninjaboogie的事
+
+这位兄弟亲妈病危了跟队友打个招呼料理事情，然后米德旺把他vote了，理由是影响竞技状态，然后这位兄弟妈真没了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是之前米德旺死了爹的时候可没这样
+

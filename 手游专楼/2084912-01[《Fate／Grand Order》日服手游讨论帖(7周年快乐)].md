@@ -3753,3 +3753,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 这群人费死劲瞎tm吹公主换人图个啥，吹卡莲不好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 359#       发表于 2022-8-7 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965491&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-7 19:58</a>
+
+就是明着说了这卡纯粹的厨力卡</blockquote>
+（YLS的）厨力卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
