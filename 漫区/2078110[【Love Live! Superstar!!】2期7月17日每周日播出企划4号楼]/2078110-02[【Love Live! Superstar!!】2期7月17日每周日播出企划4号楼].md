@@ -5627,3 +5627,12 @@ LOVE LIVE星团因为转播高中棒球比赛延迟播出
 
 想对那时候的我说现在你能磕到热圈cp了，长大了
 
+
+
+*****
+
+####  adw667  
+##### 2059#       发表于 2022-8-7 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">差点忘了这周延期
+

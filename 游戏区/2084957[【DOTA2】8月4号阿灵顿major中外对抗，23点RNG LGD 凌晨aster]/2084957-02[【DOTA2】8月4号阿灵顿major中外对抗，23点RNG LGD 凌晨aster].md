@@ -7514,3 +7514,19 @@ solo赛应该是没打，帖子都没结果呢。
 
 IMBA没了esports是不是也停业了
 
+
+
+*****
+
+####  空月の梦  
+##### 2419#       发表于 2022-8-7 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963071&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-7 16:11</a>
+
+没有误判，rng最后的ban位都是给的atf的英雄
+
+rng的bp如此畸形就是以选代ban选了电魂大屁股后，结果火女被 ...</blockquote>
+谢俊豪（dota2选手）我觉得最畜生的操作是，忘了是哪一盘，对面选了中单然后他去ban两个中单
+
+这种事情他都干得出来，就别说几乎没有一场bp是对的，没人知道除了人情dota之外他怎么做教练的
+
