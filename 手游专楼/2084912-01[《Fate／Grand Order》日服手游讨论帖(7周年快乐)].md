@@ -3483,3 +3483,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 原来泳装有三个池啊，我还抽了X和小王子，被榨干了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 335#       发表于 2022-8-7 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56962227&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-7 14:27</a>
+
+原来泳装有三个池啊，我还抽了X和小王子，被榨干了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鉴于那谁经常口嗨 所以还不一定真的就3个池  等生放送
+
