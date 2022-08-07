@@ -6675,3 +6675,14 @@ vn除了她谁能收服。钦定了好吧。
 
 感觉四季这个真的像病娇女同
 
+
+
+*****
+
+####  仟音一心  
+##### 2173#       发表于 2022-8-8 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970189&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-8-7 23:51</a>
+缪斯时期部长一代妮可，二代是花阳。跟实力没关系就是单纯的偶像狂热所以部长交给她顺理成章的。 ...</blockquote>
+ksks：<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

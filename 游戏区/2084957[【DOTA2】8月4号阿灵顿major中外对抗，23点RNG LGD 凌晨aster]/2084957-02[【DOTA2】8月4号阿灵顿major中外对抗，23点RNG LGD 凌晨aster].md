@@ -8294,3 +8294,76 @@ og这究极刷子阵容能赢<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  一品堂官  
+##### 2507#       发表于 2022-8-8 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970345&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-8 00:01</a>
+
+OG这翻盘ta背锅吧，连对面的黑奴炼金都要杀半天，伐木机更是怎么打都不掉血 ...</blockquote>
+早就该出大炮了 不然凭啥切的懂伐木机和炼金
+
+*****
+
+####  北条早苗  
+##### 2508#       发表于 2022-8-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970345&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-8 00:01</a>
+
+OG这翻盘ta背锅吧，连对面的黑奴炼金都要杀半天，伐木机更是怎么打都不掉血 ...</blockquote>
+OG这边两把天堂，谜团身上还有个盘子，ta切谁都没用
+
+真正犯大病的是出个强袭的船长打团只会在后面see，不过本来这人就是替补的
+
+*****
+
+####  夜光铃  
+##### 2509#       发表于 2022-8-8 00:03
+
+这ta出装输出太刮了，团战切个人很费劲，虽然秀但是改变不了局势
+
+*****
+
+####  蛭人  
+##### 2510#       发表于 2022-8-8 00:04
+
+这把ta真是绝望中的死亡。
+
+*****
+
+####  反方向的波  
+##### 2511#       发表于 2022-8-8 00:06
+
+羊+bkb+大推推+a杖还行
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">atf后面就站着给他打都打不死
+
+*****
+
+####  百世诸侯  
+##### 2512#       发表于 2022-8-8 00:08
+
+京吹病人怎么永封了，另一个被封一年的小黑屋评语还有黑话，什么情况
+
+*****
+
+####  scg2017  
+##### 2513#       发表于 2022-8-8 00:09
+
+dm这末日20分钟屁事不干拿头打啊？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 2514#       发表于 2022-8-8 00:12
+
+ta这ta虽然出装值得商榷，但确实有1v9那味了
+
+vp我看五分钟就润了，没眼看
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
