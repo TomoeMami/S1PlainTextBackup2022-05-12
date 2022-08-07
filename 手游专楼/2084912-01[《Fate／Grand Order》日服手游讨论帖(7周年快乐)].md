@@ -3700,3 +3700,21 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 骑呆/水无毛
 其实就是泳装剑黑呆
 
+
+
+*****
+
+####  Jamaisvu  
+##### 355#       发表于 2022-8-7 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56964969&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 19:17</a>
+
+5星的那个骑无毛/水无毛  （是这么叫的吗</blockquote>
+哦哦，原来是那个女仆黑呆。以前一直没有也没怎么用，都不知道她还强化过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这强化确实傻逼，毫无意义啊，减1000血然后+3000HP上限，真的差那点血量吗...看不懂......
+
+非要按设定解释的话，大概就是“受到她教育的人会受到莫大的伤害”，因此减HP不能少吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后指导水平提升后耐操性也得到了增强......
+
+算了，这张卡除了一技能都挺迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
