@@ -3690,3 +3690,13 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 我印象里最蠢的强化还得是玛尔达二技能那个奇迹D+，只多了500 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5星的那个骑无毛/水无毛  （是这么叫的吗
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 354#       发表于 2022-8-7 19:25
+
+骑呆/水无毛
+其实就是泳装剑黑呆
+
