@@ -5548,3 +5548,35 @@ b站给我推送了个星团 版  孤泳者。
 
 哪个字幕组的好点啊？
 
+
+
+*****
+
+####  ads147147  
+##### 2051#       发表于 2022-8-7 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963754&amp;ptid=2078110" target="_blank">xeseed 发表于 2022-8-7 17:15</a>
+哪个字幕组的好点啊？</blockquote>
+现在在做的都可以，觉得不行也可以等木棉花代理的官中。
+
+——
+看来今天棒球赛打不完了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2052#       发表于 2022-8-7 17:56
+
+有说延期到啥时候吗
+
+*****
+
+####  JustW_3  
+##### 2053#       发表于 2022-8-7 17:58
+
+ 本帖最后由 JustW_3 于 2022-8-7 18:00 编辑 
+
+直播间开始文字直播棒球了捏吗视频直播了已经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
