@@ -3151,3 +3151,16 @@ hks的本太关键了，3人U18
 [https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s)
 [https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s)
 
+
+
+*****
+
+####  Ketestrait  
+##### 16778#       发表于 2022-8-7 17:29
+
+证明赌狗不得……
+
+syl
+
+牛姨第三年道大会4-5负于S级止步决赛，豆猫第三年夏甲0-1负于A级首战败退， 都差一口气<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

@@ -7310,3 +7310,78 @@ lgdbp出问题就是也就是19年。
 
 — from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  健康猹  
+##### 2396#       发表于 2022-8-7 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963799&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-7 17:19</a>
+
+杰畜也算熬出头了，在p站发视频瞬间有盘了。守着海鲜台直播间真是卵用没有
+
+— from Google Pixel 4a (5G), ...</blockquote>
+下一步是不是该卖猪肉粒了
+
+*****
+
+####  蛭人  
+##### 2397#       发表于 2022-8-7 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963730&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-7 17:14</a>
+
+照你这个说法本楼都别点评ame/maybe/ana了</blockquote>
+这就不聊身份政治了？不装了？
+
+*****
+
+####  坚定的团子党  
+##### 2398#       发表于 2022-8-7 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963737&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-08-07 17:14:28</a>
+标5块是什么好事吗，术士zai也标5块呢</blockquote>比起3号位上其他三个kpii、jabz、33，我觉得zai真的算还行了，可能也就比xxs强有争议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 2399#       发表于 2022-8-7 17:25
+
+毕竟术士zai小比赛虐个菜还是挺强的，不过液体已经两个线下赛一轮游了吧。
+
+*****
+
+####  BallanceHZ  
+##### 2400#       发表于 2022-8-7 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963836&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 17:23</a>
+这就不聊身份政治了？不装了？</blockquote>
+装啥啊，我都直接说杰出就是蹭热度了，还说啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我也不知道身份政治这词咋了，不就是扣帽子归阵营换个说法吗
+不过你楼确实很多人点评水平很感人是真的，上次ame出大骨灰整活那次还有说不如直接冰眼的，裸极限球那可太nb了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Litccc  
+##### 2401#       发表于 2022-8-7 17:27
+
+突然想起来，前天的solo还没打么？
+
+*****
+
+####  awy47  
+##### 2402#       发表于 2022-8-7 17:28
+
+我也想问呢，到底打没打
+
+*****
+
+####  蛭人  
+##### 2403#       发表于 2022-8-7 17:31
+
+solo赛应该是没打，帖子都没结果呢。
+
