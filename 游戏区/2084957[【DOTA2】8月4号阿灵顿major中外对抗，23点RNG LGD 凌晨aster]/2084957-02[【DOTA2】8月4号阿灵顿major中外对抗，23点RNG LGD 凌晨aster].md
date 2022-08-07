@@ -6619,3 +6619,12 @@ ti9是奶推版本，但是如果你看过比赛就知道。从ti8甚至ti7开�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">有一说一除沈连s戏戏戏都能直接踢的，你杜文乐一个臭临时来掌勺的被霸凌一下也不是很意外吧
 
+
+
+*****
+
+####  尸体鲨  
+##### 2319#       发表于 2022-8-7 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一觉醒来看到OG把RNG二比零了，什么阳光猛烈
+
