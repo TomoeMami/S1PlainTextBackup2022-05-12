@@ -11019,3 +11019,91 @@ woc不会ig今年要被rng关吧，我的fy</blockquote>
 
 其实这盘的问题之前rng出过不少次吧，两个人或者一个人在推塔，另外几个人不是在野区，就是想抓对面，硬是优势不推，然后拆塔或者逛街的送了。
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 2857#       发表于 2022-8-8 06:23
+
+If there is a tie in these situations, tiebreaker matches will be played
+
+Upper Bracket/Lower Bracket
+
+Lower Bracket/Elimination
+
+如果RNG真的能2：0liquid，就算OG2：0了Talon也可以加赛
+
+*****
+
+####  woyzeck  
+##### 2858#       发表于 2022-8-8 06:23
+
+怎么赢液体啊 感觉没戏
+
+*****
+
+####  百世诸侯  
+##### 2859#       发表于 2022-8-8 06:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友疑似忘了昨天凌晨OG和RNG碰在一起的样子了，疑似想看maybe再受苦一次，基德基德
+
+*****
+
+####  asd235614  
+##### 2860#       发表于 2022-8-8 06:25
+
+只能指望一波术士zai了
+
+*****
+
+####  蛭人  
+##### 2861#       发表于 2022-8-8 06:25
+
+继续打三线优呗，rng不可能玩四保一的，三线优直接推塔，rng还是能赢的。
+
+*****
+
+####  woyzeck  
+##### 2862#       发表于 2022-8-8 06:26
+
+直接给上帝把选ta刚被吧，这两个玩的还是可以的。
+
+*****
+
+####  haruhiismer  
+##### 2863#       发表于 2022-8-8 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971915&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-8 06:25</a>
+楼友疑似忘了昨天凌晨OG和RNG碰在一起的样子了，疑似想看maybe再受苦一次，基德基德 ...</blockquote>
+og是欧洲霸主上届major得主，咱们分两边说液体就是个四个颠勺的搞笑队
+
+*****
+
+####  蛭人  
+##### 2864#       发表于 2022-8-8 06:27
+
+确实maybe今天五五开了nts，但是昨天被bzm干了，怕不是打液体也得被干，中路被军训rng这节奏就很难赢了。
+
+*****
+
+####  haruhiismer  
+##### 2865#       发表于 2022-8-8 06:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971919&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-8 06:26</a>
+直接给上帝把选ta刚被吧，这两个玩的还是可以的。</blockquote>
+ta都不好使直接一手刚被或者火猫给他玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 2866#       发表于 2022-8-8 06:30
+
+其实最地狱的剧本是OG被Talon2：0
+
+RNG被Liquid2：0，ThunderA被LGD送一个0：2
+
+这样OG、Talon、RNG、ThunderA一起打谁输谁回家的败者组/淘汰组加赛
+
+不过好歹RNG不看别人脸色，只要拿下Liquid就保底有加赛打OG的机会
+
