@@ -6210,3 +6210,47 @@ CEO还没上天台 问题不大
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 2125#       发表于 2022-8-7 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965722&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 20:10</a>
+真要说，那这结丘确实不怎么样，一年了，能给学习整点荣誉的人基本都在Liella里了，上一季还曾经整出点似 ...</blockquote>
+音乐科看中这学校前身的历史名誉还能理解，结果音乐科这群臭鱼烂虾一年下来的成绩还是转科前的千拿的。还有普通科敢情都是音乐科的落榜生吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2126#       发表于 2022-8-7 20:23
+
+<img src="https://p.sda1.dev/6/af378a96eb9061e4509f6cc5602d979e/CMP_20220807202313671.jpg" referrerpolicy="no-referrer">
+Celticwhite
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 2127#       发表于 2022-8-7 20:24
+
+<img src="https://p.sda1.dev/6/310e462a26b57f3b207425610ed0ee91/CMP_20220807202358047.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 2128#       发表于 2022-8-7 20:26
+
+我现在已经快能接受可堇了，一期吃不下可堇主要是因为当可可和堇在一起的时候人设就会变得很不正常，不过这是有解决办法的，只要不正常的部分越来越来越多那异常就会变成正常。
+
+*****
+
+####  ViyViy  
+##### 2129#       发表于 2022-8-7 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这集训练的片段，可可体力值（耐力）++了，貌似柔韧性还差点。
+

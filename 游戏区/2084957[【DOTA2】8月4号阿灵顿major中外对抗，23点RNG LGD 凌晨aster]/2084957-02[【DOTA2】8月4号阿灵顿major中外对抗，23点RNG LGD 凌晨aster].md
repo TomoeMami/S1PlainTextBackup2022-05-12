@@ -7688,3 +7688,35 @@ MidOne
 Moon</blockquote>
 漏油有点哈人了
 
+
+
+*****
+
+####  chilno  
+##### 2435#       发表于 2022-8-7 20:27
+
+霸气二哥的一号位！
+
+*****
+
+####  walfeds  
+##### 2436#       发表于 2022-8-7 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56965349&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-7 19:47</a>
+
+说起来，双冠王OG队内核心兄弟只有ceb和大爹吧，topson、jerax、ana到挺普通朋友的，这三个人互相关系却又 ...</blockquote>
+核心兄弟×合伙人√ ti8重组的时候og就是两个人的家族企业了
+
+ti9打完三个人鸽了老og大概就算散伙了各过各日子。但关系也不见得差到哪去，互相大概处于回忆峥嵘岁月的状态吧，jerax美酒还和ceb大爹合影了
+
+顶儿子刚开始找队，之前一直没出核心圈；厨子刚上过og的访谈节目聊家常
+
+想起去年杰瑞找队的时候倒是顶儿子被问起来倒是直言很久没联系过杰瑞
+
+*****
+
+####  walfeds  
+##### 2437#       发表于 2022-8-7 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">米德旺现在的风评已经变成无耻的队友了，虾哥何苦呢
+

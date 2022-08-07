@@ -3741,3 +3741,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得刷QP和种火了，把之前一直懒得拿的班杨和圣诞阿提拉拿了算了……
 
+
+
+*****
+
+####  exiaexa  
+##### 358#       发表于 2022-8-7 20:28
+
+把仓库的卡莲拖出来耍了下
+
+这群人费死劲瞎tm吹公主换人图个啥，吹卡莲不好吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
