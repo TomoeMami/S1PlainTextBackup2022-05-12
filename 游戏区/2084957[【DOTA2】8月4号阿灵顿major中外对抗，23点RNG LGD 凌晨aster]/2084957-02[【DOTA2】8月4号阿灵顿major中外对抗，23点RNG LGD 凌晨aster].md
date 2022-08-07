@@ -7148,3 +7148,63 @@ notail那个女朋友？</blockquote>
 
 杰畜脑残的地方在他对的时候能看出来啥。现在rng就是菜逼，lgd就是牛逼。他结论已经下定了，也符合事实，论据随便找找喷喷就差不多显得有理了。前段时间lgd低迷几下rng牛逼起来了你看他嘴硬嬉皮笑脸硬洗那味儿不就懂了。
 
+
+
+*****
+
+####  沈淮  
+##### 2377#         楼主| 发表于 2022-8-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963203&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 16:24</a>
+是的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 2378#       发表于 2022-8-7 16:45
+
+没有这个女人变心 dota世界线就变了
+
+*****
+
+####  逃离二次元  
+##### 2379#       发表于 2022-8-7 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 2380#       发表于 2022-8-7 16:45
+
+为了热度吹lgd骂超哥就行，少提点a÷，一定要吸集美毒血？
+
+*****
+
+####  woyzeck  
+##### 2381#       发表于 2022-8-7 16:48
+
+ 本帖最后由 woyzeck 于 2022-8-7 16:50 编辑 
+
+引用错了
+
+*****
+
+####  woyzeck  
+##### 2382#       发表于 2022-8-7 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56960523&amp;ptid=2084957" target="_blank">refiver 发表于 2022-8-7 11:38</a>
+
+一个问题
+
+为什么从TI8开始maybe在哪个队伍哪个队BP就不行</blockquote>
+18年bp有什么问题，难道g3g4的og阵容很好？选了个中期经济领先大几千然后面对冲脸一触即溃的脑瘫阵容？
+
+*****
+
+####  woyzeck  
+##### 2383#       发表于 2022-8-7 16:51
+
+lgdbp出问题就是也就是19年。
+
