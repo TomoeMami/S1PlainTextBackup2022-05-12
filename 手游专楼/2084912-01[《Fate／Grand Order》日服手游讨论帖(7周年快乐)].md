@@ -3562,3 +3562,74 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 还有有的好友英灵带着个大红花，是 ...</blockquote>
 武藏吗。那是单推的意思。只能有一个单推。没任何效果。只是给人看
 
+
+
+*****
+
+####  alucardcz  
+##### 342#       发表于 2022-8-7 17:03
+
+剑兰班扬宝具本。。
+
+*****
+
+####  areklose  
+##### 343#       发表于 2022-8-7 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然是班杨奶中了。
+
+*****
+
+####  alucardcz  
+##### 344#       发表于 2022-8-7 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963630&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-7 17:03</a>
+
+果然是班杨奶中了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一天一个充能都没有你怎么看
+
+*****
+
+####  Jamaisvu  
+##### 345#       发表于 2022-8-7 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963291&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-7 16:31</a>
+
+该奶了！来个班杨加个充能</blockquote>
+奶中了从者<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+但是宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 346#       发表于 2022-8-7 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 17:04</a>
+
+最后一天一个充能都没有你怎么看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">强化是自由的
+
+*****
+
+####  保罗赫伯特  
+##### 347#       发表于 2022-8-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963136&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-7 16:18</a>
+
+一个泳装活动你们居然还想出2个拐  真正的7周年庆典是吧？</blockquote>
+周年就是用来坑石头，泳装才是正戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 348#       发表于 2022-8-7 17:12
+
+今天这俩强化就...挺朴实无华的，
+
+剑兰是宝具加了无视防御，并且固伤从1000变成2000；
+
+保罗是减防从10%到了20%...如果是前置还好，后置的话...周回是要求一炮一面的啊，减防根本用不上...
+
+虽说是用起来更顺手了，但还是没引起质变...不愧是叶式强化...
+
