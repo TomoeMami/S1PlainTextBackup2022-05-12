@@ -7777,3 +7777,12 @@ Ninjaboogie的事
 据我所知，Abed从来不打天梯，Nightfall也没显示打了多少场天梯。更别说Arteezy了，估计和Nightfall差不多——都是0吧。如果EG只有辅助在打天梯，战队怎么围绕核心来打比赛呢？这就和KuroKy与Puppey完全相反了。
 EG与其它战队的胜负图如下，在经历了首日的0-4惨败后，EG的成绩有所好转，目前以2胜2平2负的成绩与BOOM并列4-5名。
 
+
+
+*****
+
+####  山上徹也  
+##### 2443#       发表于 2022-8-7 21:16
+
+may皇还真是打了这么多年就跟ame拿过两个国际赛冠军<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
