@@ -6179,3 +6179,46 @@ rng怎么做到12投的
 
 你pa跳刚被脸上，找死是吧，脑壳都给敲碎咯。
 
+
+
+*****
+
+####  syndrome2032  
+##### 2269#       发表于 2022-8-7 09:31
+
+明面上只有原班人马再战一年。
+
+刚输那会传过王蠢鱼想退役。最近不知道从哪，应该是太监论坛传了量子鞭打完这届就退役。
+
+*****
+
+####  ArowRocher  
+##### 2270#       发表于 2022-8-7 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56959341&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-7 09:31</a>
+只有原版人马再战一年。
+
+刚输那会传过王蠢鱼想退役。最近不知道从哪，应该是太监论坛传了量子鞭打完这届就 ...</blockquote>
+他自己说明年拆钢板
+
+*****
+
+####  ArowRocher  
+##### 2271#       发表于 2022-8-7 09:32
+
+<img src="https://p.sda1.dev/6/57f55a90a5f72cb3017ef2283c97def7/2410472d9c8ca472.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Nyaaarlathotep  
+##### 2272#       发表于 2022-8-7 09:38
+
+有点绷不住，rng是谁演谁
+
+*****
+
+####  山上徹也  
+##### 2273#       发表于 2022-8-7 09:40
+
+ana那几波tp明显是不想玩了
+
