@@ -6641,3 +6641,12 @@ ti9是奶推版本，但是如果你看过比赛就知道。从ti8甚至ti7开�
 
 马勒戈壁，LGD打RNG是今晚3点？极大概率BP爆RNG 然后光速2:0 ，还是明早看结果算了。
 
+
+
+*****
+
+####  松狮酱  
+##### 2321#       发表于 2022-8-7 14:38
+
+haha .杰出视频出来了，看了看。应该是已经放弃对RNG的期待了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
