@@ -6453,3 +6453,21 @@ Nako的事务所上个 ...</blockquote>
 華山七彩貌似曾经用过華山せな这个艺名，以前貌似曾是SMA所属</blockquote>
 我今天还特好奇，点进去一看7月加入了holy pig，我还以为是アイドルING！时期的队友，特意查了下，好像也不是
 
+
+
+*****
+
+####  starring  
+##### 2150#       发表于 2022-8-7 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56968543&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 22:25</a>
+華山七彩貌似曾经用过華山せな这个艺名，以前貌似曾是SMA所属</blockquote>
+搜華山七彩和かやま ななせ完全没信息就有点好奇，原来以前是sma 啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2151#       发表于 2022-8-7 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想不开吗，从未来可期的SMA跑路
+
