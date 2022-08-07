@@ -7753,3 +7753,27 @@ Ninjaboogie的事
 这位兄弟亲妈病危了跟队友打个招呼料理事情，然后米德旺把他vote了，理由是影响竞技状态，然后这位兄弟妈真没了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是之前米德旺死了爹的时候可没这样
 
+
+
+*****
+
+####  沈淮  
+##### 2441#         楼主| 发表于 2022-8-7 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966497&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-7 20:46</a>
+Ninjaboogie的事
+
+这位兄弟亲妈病危了跟队友打个招呼料理事情，然后米德旺把他vote了，理由是影响竞技状态 ...</blockquote>
+什么东南亚小8
+
+*****
+
+####  沈淮  
+##### 2442#         楼主| 发表于 2022-8-7 21:09
+
+北美知名Dota2前职业选手、前EG战队队员Mason近期在个人直播中谈到了EG在阿灵顿Major上的表现以及老东家如今存在的问题。
+
+如果你10年都没打天梯，那么输给Yopaj这种年轻新秀有什么奇怪呢？不知道为什么EG的粉丝会因为EG输比赛而大呼小叫（这太正常了）。
+据我所知，Abed从来不打天梯，Nightfall也没显示打了多少场天梯。更别说Arteezy了，估计和Nightfall差不多——都是0吧。如果EG只有辅助在打天梯，战队怎么围绕核心来打比赛呢？这就和KuroKy与Puppey完全相反了。
+EG与其它战队的胜负图如下，在经历了首日的0-4惨败后，EG的成绩有所好转，目前以2胜2平2负的成绩与BOOM并列4-5名。
+

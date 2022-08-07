@@ -2378,3 +2378,28 @@ NHOTBOT（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12264#       发表于 2022-8-7 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966691&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-8-7 20:58</a>
+
+摸谁了
+
+—— 来自 S1Fun</blockquote>
+未来明。
+
+*****
+
+####  往世雷书  
+##### 12265#       发表于 2022-8-7 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56966742&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-8-7 21:01</a>
+未来明。</blockquote>
+哇，happy！<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
