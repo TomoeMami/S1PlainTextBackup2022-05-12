@@ -6946,3 +6946,53 @@ TI8怎么Ame不玩幽鬼了？看过真视界吗？说ban幽鬼的到底是谁�
 
 2-0是施舍 1-1是默契 0-2是硬实力碾压
 
+
+
+*****
+
+####  很久就在那边l  
+##### 2357#       发表于 2022-8-7 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56962854&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-7 15:49</a>
+昨天RNG第二把，阵容上最严重的误判就是蝙蝠打三选猴子，这super不做功课的吗？ATF是玩不了这种纯带节奏英 ...</blockquote>
+rng最后两手ban夜魔大鱼都是atf的英雄，很明显知道og蝙蝠是中差个三啊
+
+*****
+
+####  反方向的波  
+##### 2358#       发表于 2022-8-7 16:06
+
+今日，大表哥karrigan在社交媒体转发了一段自己结婚时的视频，并配文“人生最好的一天”。
+
+大表哥此前顺利向未婚妻安雅求婚。她在几年前在一场BLAST比赛中和karrigan相遇，两人已经相爱了好几年。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2359#       发表于 2022-8-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56962998&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-7 16:03</a>
+
+rng最后两手ban夜魔大鱼都是atf的英雄，很明显知道og蝙蝠是中差个三啊</blockquote>
+那选什么猴子呢？德鲁伊出来电魂很难打三，不会真以为电魂真好打蝙蝠吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 2360#       发表于 2022-8-7 16:09
+
+找老公找到csgo去了是吧
+
+*****
+
+####  北条早苗  
+##### 2361#       发表于 2022-8-7 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56962854&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-7 15:49</a>
+昨天RNG第二把，阵容上最严重的误判就是蝙蝠打三选猴子，这super不做功课的吗？ATF是玩不了这种纯带节奏英 ...</blockquote>
+没有误判，rng最后的ban位都是给的atf的英雄
+rng的bp如此畸形就是以选代ban选了电魂大屁股后，结果火女被ban了丧失了电魂打1号位工具人的可能性，只能硬着头皮点了个后期无敌的猴子，结果被大圣打爆
+剩下可以商榷的就是为什么放猴子去劣势路吃屎以及为什么看到大圣带精灵之后不选择小yT下来刚三，放大屁股和德鲁伊solo玩
+
