@@ -3539,3 +3539,26 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该奶了！来个班杨加个充能
 
+
+
+*****
+
+####  kiralzb  
+##### 340#       发表于 2022-8-7 17:00
+
+翻了一下图鉴，有两个英灵信息丢失了，是和剧情关联的吗，真细啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有有的好友英灵带着个大红花，是什么意思？
+
+*****
+
+####  areklose  
+##### 341#       发表于 2022-8-7 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963601&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-7 17:00</a>
+
+翻了一下图鉴，有两个英灵信息丢失了，是和剧情关联的吗，真细啊
+
+还有有的好友英灵带着个大红花，是 ...</blockquote>
+武藏吗。那是单推的意思。只能有一个单推。没任何效果。只是给人看
+
