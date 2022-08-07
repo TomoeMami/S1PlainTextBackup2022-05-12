@@ -6757,3 +6757,20 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 —— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 2180#       发表于 2022-8-8 00:47
+
+<img src="https://img.saraba1st.com/forum/202208/08/004603o02wasrl9c0a2626.png" referrerpolicy="no-referrer">
+
+<strong>01A7C715-9BE4-420E-809E-5D354C1DB534.png</strong> (302.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 00:46 上传
+
+现在看香音，我觉得测得还挺对的
+
