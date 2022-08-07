@@ -649,3 +649,33 @@ sorry，我混淆成古利特了，这个真没bg，裕太就是个男工具人
 
 比如小鸟之翼的贴贴内容，做的远远没有蒜精致，也就是个平均水平，但是因为大量的贴贴内容是在剧情推进之后，莫名的给我一种“你们两不会来真的吧”这种感觉。
 
+
+
+*****
+
+####  aptx8285144  
+##### 72#       发表于 2022-8-7 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56960392&amp;ptid=2085528" target="_blank">子夜微雪 发表于 2022-8-7 11:28</a>
+
+前两集我真的期待了一下新时代攻壳
+
+被第三集狠狠地打脸了，但设定细节不完善尚不至于成电光机王，至 ...</blockquote>
+新时代攻壳....前两集也到不了这个高度吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arthurmizuki  
+##### 73#       发表于 2022-8-7 16:23
+
+刚开播以为是神枪少女，播完3集或许能比prpr。现在嘛，勉强好过突击莉莉月影特工，也该到下限了吧
+
+*****
+
+####  AtlachNacha  
+##### 74#       发表于 2022-8-7 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56962922&amp;ptid=2085528" target="_blank">ra2163 发表于 2022-8-7 15:56</a>
+
+异度侵入把悬念保留到了最后，追番体验是很好的，你蒜到现在除了贴贴有啥看点呢，最后的评价估计就是高配样 ...</blockquote>印度入侵虽然谜底拉了。但没解明前靠着玩玄乎挺吸引人。现在这白开水算啥呀。
+

@@ -7035,3 +7035,49 @@ notail那个女朋友？
 
 这几期视频我还都看了，不觉得杰出狂踩ana，打VP评价是躺输躺赢，打QC炼金那一盘认为是视野和沟通问题导致被翻。打FNC第一盘还是拷打宙斯不排眼瞎几把冲塔瞎几把走位，然后就今天的活了。无非带了一句评价ana是跟吴冠超一起热血肌肉DOTA，我还以为他说ana栓狗C被四赵云保还输了呢。
 
+
+
+*****
+
+####  反方向的波  
+##### 2366#       发表于 2022-8-7 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963143&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-7 16:19</a>
+notail那个女朋友？</blockquote>
+是的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 2367#       发表于 2022-8-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963171&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-7 16:21</a>
+这几期视频我还都看了，不觉得杰出狂踩ana，打VP评价是躺输躺赢，打QC炼金那一盘认为是视野和沟通问题导致 ...</blockquote>
+狂踩是贬的严重形式，还是比较克制的。把他评价a÷和a厨的话做对比还是很明显的
+
+*****
+
+####  掉头学姐  
+##### 2368#       发表于 2022-8-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963203&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 16:24</a>
+是的</blockquote>
+我说是谁<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 2369#       发表于 2022-8-7 16:31
+
+为什么还要看杰出的视频，和链子哥连麦都被完爆，话都说不出来的人，他根本不知道这游戏怎么赢，毕竟和ru水的。
+
+*****
+
+####  walfeds  
+##### 2370#       发表于 2022-8-7 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56963203&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-7 16:24</a>
+
+是的</blockquote>
+分了也好，这种女人不值得<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
