@@ -6421,3 +6421,35 @@ pay宝唱法更具现代感，鲤鱼这首的歌词尾音很明显有滑音处�
 夏美这又是送外卖又是搬家的，有隔壁佩克拉那味儿了，怎么不去干点女性化的兼职，比如说当个咖啡厅女仆之类 ...</blockquote>
 夏美：我为什么要去咖啡厅当女仆，我就是腿脚不利索，跪不下去，我是想站着，还把钱挣了。<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  巴麻耒  
+##### 2147#       发表于 2022-8-7 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56968327&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-8-7 22:16</a>
+夏美：我为什么要去咖啡厅当女仆，我就是腿脚不利索，跪不下去，我是想站着，还把钱挣了。 ...</blockquote>
+最后还不是要乖乖当偶像出卖色相<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2148#       发表于 2022-8-7 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56967997&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-7 22:02</a>
+
+发现鲤鱼今天只转了官推第四集，没发其它工商也没说看直播，可能工作恢复得差不多在忙。
+
+Nako的事务所上个 ...</blockquote>
+華山七彩貌似曾经用过華山せな这个艺名，以前貌似曾是SMA所属
+
+*****
+
+####  Enakina  
+##### 2149#       发表于 2022-8-7 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56968543&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-7 22:25</a>
+華山七彩貌似曾经用过華山せな这个艺名，以前貌似曾是SMA所属</blockquote>
+我今天还特好奇，点进去一看7月加入了holy pig，我还以为是アイドルING！时期的队友，特意查了下，好像也不是
+
