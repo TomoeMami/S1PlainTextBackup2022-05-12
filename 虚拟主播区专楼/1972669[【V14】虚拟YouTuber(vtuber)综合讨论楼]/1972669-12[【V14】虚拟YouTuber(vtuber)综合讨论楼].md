@@ -3249,3 +3249,24 @@ sky8月也有b限啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 rize这对面的投手，就是小宫山悟本人啊，这怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16788#       发表于 2022-8-8 04:54
+
+<img src="https://img.saraba1st.com/forum/202208/08/044635cgy7g9egshh9s9oc.png" referrerpolicy="no-referrer">
+
+<strong>【 #にじさんじ甲子園 】最後の夏 追う者の夏【 パワプロ2022 】.png</strong> (152.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 04:46 上传
+
+13-1绝对优势取胜，全国制霸，春秋夏三连霸
+
+黛灰从不过百的白板被监督养成500+星怪物，最终成为神速绝对的ACE
+
+无论虹甲最终谁能问鼎，神速高校已经是传说了
+
