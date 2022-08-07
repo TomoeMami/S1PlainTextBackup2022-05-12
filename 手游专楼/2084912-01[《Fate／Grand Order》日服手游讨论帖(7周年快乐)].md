@@ -3661,3 +3661,17 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3000血已经差不多是下限了 想不出还能有什么比这更傻逼的强化了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 352#       发表于 2022-8-7 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56964114&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-7 17:52</a>
+
+3000血已经差不多是下限了 想不出还能有什么比这更傻逼的强化了</blockquote>
+请问一下3000血是什么强化啊，没印象了...
+
+我印象里最蠢的强化还得是玛尔达二技能那个奇迹D+，只多了500HP群回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
