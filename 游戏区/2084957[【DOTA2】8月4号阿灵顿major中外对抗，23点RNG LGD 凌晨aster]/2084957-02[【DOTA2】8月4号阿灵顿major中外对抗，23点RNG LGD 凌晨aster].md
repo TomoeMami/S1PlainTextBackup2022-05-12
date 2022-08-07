@@ -8138,3 +8138,42 @@ vp还有等2个bkb的机会
 
 gpk敲了吧
 
+
+
+*****
+
+####  windhawind2  
+##### 2487#       发表于 2022-8-7 23:32
+
+笑死 玄月解说说了句这把熊德鸡哥上也能赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  ArowRocher  
+##### 2488#       发表于 2022-8-7 23:33
+
+xinq戏来了
+
+*****
+
+####  nxmonitor  
+##### 2489#       发表于 2022-8-7 23:41
+
+这玛西德鲁伊阵容怎么比RNG的熟练度都高？
+
+*****
+
+####  asd235614  
+##### 2490#       发表于 2022-8-7 23:41
+
+六爷成熟了啊，能忍这么久不敲
+
+
+
+*****
+
+####  secretgarnet  
+##### 2491#       发表于 2022-8-7 23:41
+
+这熊德确实鸡哥上也能赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
