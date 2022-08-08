@@ -7617,3 +7617,12 @@ AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cxj649  
+##### 2260#       发表于 2022-8-9 01:50
+
+拉版在吐槽香音好像是一个教主了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

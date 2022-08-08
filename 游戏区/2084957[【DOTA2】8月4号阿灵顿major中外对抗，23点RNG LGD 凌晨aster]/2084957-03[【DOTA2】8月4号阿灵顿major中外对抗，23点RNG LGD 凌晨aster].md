@@ -8039,3 +8039,1498 @@ rng打vp还有点机会，冠超可以喝gpk比着脑溢血。打ts的机会是0
 睡了睡了，再回拉黑 ...</blockquote>
 哦 懂了 那你的意思就是那个人贱  行吧   愿意内讧来吵赢也是牛的  那就这样吧
 
+
+
+*****
+
+####  woyzeck  
+##### 4010#       发表于 2022-8-9 01:52
+
+上帝7 冠超-10 查理斯-5 卡狗0 xnova-10
+
+*****
+
+####  ArowRocher  
+##### 4011#       发表于 2022-8-9 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985408&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 01:46</a>
+你们还吵上瘾了，什么时候开始清算环节，我先来个起手
+may毒瘤保枪营销选手，有他在的队一号位永远 ...</blockquote>
+野心多大团开多大是吧
+
+*****
+
+####  haruhiismer  
+##### 4012#       发表于 2022-8-9 01:53
+
+rng的大旗我们可以想象ts和vp打出脑浆然后rng以逸待劳找出他们这对相互了解的对手的弱点研究bp直接晋级，我的评价是必进ti
+
+*****
+
+####  Keynes  
+##### 4013#       发表于 2022-8-9 01:53
+
+茶茶打东南亚队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 4014#       发表于 2022-8-9 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985439&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-9 01:52</a>
+上帝7 冠超-10 查理斯-5 卡狗0 xnova-10</blockquote>
+我对卡卡评价还行，没把身价打掉
+
+*****
+
+####  syndrome2032  
+##### 4015#       发表于 2022-8-9 01:54
+
+相信骄阳好吧。
+
+*****
+
+####  haruhiismer  
+##### 4016#       发表于 2022-8-9 01:54
+
+ana0 冠超0 李斯-5 卡卡0 小天使-10吧几乎没有两眼表现
+
+*****
+
+####  小19  
+##### 4017#       发表于 2022-8-9 01:54
+
+<blockquote>银翼的维罗西 发表于 2022-8-9 01:48
+马体和RNG实力本来就差不多，打个一比一也正常，RNG不选对手是对的，如果一直输去败者组第一轮也没什么士气 ...</blockquote>
+在大胆点 把topson也叫来
+
+*****
+
+####  蛭人  
+##### 4018#       发表于 2022-8-9 01:55
+
+我觉得chalice，评分有点太低了，力中暴力好几把呢，这把viper输出第二，虽然脑子在线多来几把应该和ana一起带超哥进胜者组了。
+
+*****
+
+####  尸体鲨  
+##### 4019#       发表于 2022-8-9 01:55
+
+是不是再把查猪踢了换ceb夺舍重生
+
+*****
+
+####  健康猹  
+##### 4020#       发表于 2022-8-9 01:55
+
+哇神了神了，都有集美来了漏油居然不投降是何意啊！
+
+阿茶又打东南亚，缩壳的未来越来越清晰了。
+
+
+
+*****
+
+####  IG.430  
+##### 4021#       发表于 2022-8-9 01:56
+
+setsu退役前也是个龙骑viper选手了，不过就这一点还是比不愿意手viper的maybe好的
+
+*****
+
+####  UnhappyTails  
+##### 4022#       发表于 2022-8-9 01:56
+
+上帝就昨天那把lgd就不配7，我的评价是5 -5 2.5 2.5 -5
+
+*****
+
+####  百世诸侯  
+##### 4023#       发表于 2022-8-9 01:57
+
+给rng评分的难点在于它不是每个选手都持续性地拉胯，而是轮流仰卧起坐，尤其是李斯和超哥这两兄弟，神一把鬼一把的，所以综合下来得分最低的还得是xnova，因为他的视野一直持续性地摆烂
+
+*****
+
+####  subject07  
+##### 4024#       发表于 2022-8-9 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985439&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-9 01:52</a>
+上帝7 冠超-10 查理斯-5 卡狗0 xnova-10</blockquote>
+kaka再怎么也不至于0分，和厨子都是及格以上
+
+*****
+
+####  nightmare902015  
+##### 4025#       发表于 2022-8-9 01:57
+
+呃，百分制？
+
+*****
+
+####  雅朵莉雀  
+##### 4026#       发表于 2022-8-9 01:58
+
+查理斯就是今天这盘电棍太丑了，昨天viper说锅也没有多大
+
+这个比赛说是RNG最强的选手也不为过，好多盘都是他对线打穿狂carry
+
+*****
+
+####  ArowRocher  
+##### 4027#       发表于 2022-8-9 01:58
+
+居然都两点了，看这倒霉玩意
+
+*****
+
+####  银翼的维罗西  
+##### 4028#       发表于 2022-8-9 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985453&amp;ptid=2084957" target="_blank">小19 发表于 2022-8-9 01:54</a>
+
+在大胆点 把topson也叫来</blockquote>
+我是没意见啊，霉憋这个水平已经不适合打职业了，他自己估计心里也清楚，不然不至于帕克不敢找光法麻烦
+
+*****
+
+####  ninini212  
+##### 4029#       发表于 2022-8-9 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985421&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 01:48</a>
+
+马体和RNG实力本来就差不多，打个一比一也正常，RNG不选对手是对的，如果一直输去败者组第一轮也没什么士气 ...</blockquote>
+问题就是这支队肯定是ghost的化学反应要比ana好
+
+现在是RNG找C不是给ana找队，这就是问题的关键了
+
+*****
+
+####  woyzeck  
+##### 4030#       发表于 2022-8-9 01:59
+
+ana水平确实比我想象中高多了，但他现在和毒瘤化的梅憋还有占线3是一点也不搭的，rng最后就是把ana当鬼用了，主要玩强线上能参战的c，偶尔打大核玩的还是tb这种鬼玩上帝不玩的。
+
+*****
+
+####  云图  
+##### 4031#       发表于 2022-8-9 01:59
+
+整个小组赛看下来上帝复健算是成功了，最起码巅峰期八成实力是有的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  12481632  
+##### 4032#       发表于 2022-8-9 01:59
+
+有没有可能这只fnc的东南亚血统不太纯正了呢
+
+*****
+
+####  pikamee  
+##### 4033#       发表于 2022-8-9 01:59
+
+话说南美doto不是人很多吗，怎么卷了那么多年还是没成绩
+
+*****
+
+####  Keynes  
+##### 4034#       发表于 2022-8-9 02:00
+
+漫区打分制，ana+1，maybe-2，茶猪-2，卡神+1，xnova-2
+
+*****
+
+####  百世诸侯  
+##### 4035#       发表于 2022-8-9 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985477&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 01:59</a>
+
+我是没意见啊，霉憋这个水平已经不适合打职业了，他自己估计心里也清楚，不然不至于帕克不敢找光法麻烦 ...</blockquote>
+如何评价xnova，这视野真的是每把都让人血压拉满
+
+*****
+
+####  阿垃垃圾历  
+##### 4036#       发表于 2022-8-9 02:00
+
+睡了 睡了  漏油接着吵吧  该solo solo 
+
+*****
+
+####  ninini212  
+##### 4037#       发表于 2022-8-9 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985468&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 01:57</a>
+
+给rng评分的难点在于它不是每个选手都持续性地拉胯，而是轮流仰卧起坐，尤其是李斯和超哥这两兄弟，神一把 ...</blockquote>
+可能我对比赛有误解，但是我实在是看不出XNOVA有什么突出的地方，各种迷路硬送，难不成这就是他打信息的方式吗？移动眼？
+
+*****
+
+####  北条早苗  
+##### 4038#       发表于 2022-8-9 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985482&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-9 01:59</a>
+
+话说南美doto不是人很多吗，怎么卷了那么多年还是没成绩</blockquote>
+今年南美已经三队直邀了啊，TA、bc、TSM
+
+*****
+
+####  银翼的维罗西  
+##### 4039#       发表于 2022-8-9 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985478&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 01:59</a>
+
+问题就是这支队肯定是ghost的化学反应要比ana好
+
+现在是RNG找C不是给ana找队，这就是问题的关键了 ...</blockquote>
+石油杯没看吗，鬼就是个二线彩笔，经济把倒数，刀塔哪有什么适不适合，只有肌肉强不强，都说RNG打的肌肉刀塔，完全是扯几把蛋，RNG就是23肌肉太弱才举步维艰
+
+*****
+
+####  nightmare902015  
+##### 4040#       发表于 2022-8-9 02:02
+
+睡前说一句，xnova今年一年记忆中就没好好做过视野，我们还是看看超哥宙斯g电吧
+
+*****
+
+####  百世诸侯  
+##### 4041#       发表于 2022-8-9 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985486&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:01</a>
+
+可能我对比赛有误解，但是我实在是看不出XNOVA有什么突出的地方，各种迷路硬送，难不成这就是他打信息的 ...</blockquote>
+视野差，线上配合烂，中后期玩个亚巴顿都迷路蹲不住人，出装也魔怔…反正我觉得这支rng最差的就是他了，利雅得大师赛那个把鬼害死的玛西现在都还记忆犹新
+
+*****
+
+####  ninini212  
+##### 4042#       发表于 2022-8-9 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985483&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 02:00</a>
+
+漫区打分制，ana+1，maybe-2，茶猪-2，卡神+1，xnova-2</blockquote>
+有一说一你这评分我觉得不是很公正，123都神一把鬼一把，控制在-1到0比较合适
+
+XNOVA-2完全没问题，我就没看到他有啥表现。尿裤卡老问题。但是也算尽力给个+1问题不大
+
+*****
+
+####  蛭人  
+##### 4043#       发表于 2022-8-9 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985488&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:01</a>
+
+石油杯没看吗，鬼就是个二线彩笔，经济把倒数，刀塔哪有什么适不适合，只有肌肉强不强，都说RNG打的肌肉 ...</blockquote>
+中肯，RNG能赢其实鬼的用处就是maybe可以选中单C，这队伍，套用ceb ti8那句话，一定要让maybe爽，他爽了才能赢。
+
+*****
+
+####  UnhappyTails  
+##### 4044#       发表于 2022-8-9 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985472&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-9 01:58</a>
+
+查理斯就是今天这盘电棍太丑了，昨天viper说锅也没有多大
+
+这个比赛说是RNG最强的选手也不为过，好多盘都是 ...</blockquote>
+我去求求你别吹李斯了，这货我不否认有的盘扛局势，但一不能靠他赢，二经常上头
+
+如果说rng的风格是肌肉那查理斯就是最肌肉的那个，只能找到想干/容易干的抓着干，对局势的判断非常有问题。
+
+跟卡猴作用差不多吧也就
+
+*****
+
+####  银翼的维罗西  
+##### 4045#       发表于 2022-8-9 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985484&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 02:00</a>
+
+如何评价xnova，这视野真的是每把都让人血压拉满</blockquote>
+我不懂五号位，因为我自己也不会，但是中单我还是略懂，霉憋真的太菜了，在SG畜级投票超过了A畜也是理所当然
+
+*****
+
+####  ninini212  
+##### 4046#       发表于 2022-8-9 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985488&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:01</a>
+
+石油杯没看吗，鬼就是个二线彩笔，经济把倒数，刀塔哪有什么适不适合，只有肌肉强不强，都说RNG打的肌肉 ...</blockquote>
+正是因为看了石油杯我才觉得鬼比ana强，利雅得的ana什么表现看过的懂得都懂
+
+*****
+
+####  反方向的波  
+##### 4047#       发表于 2022-8-9 02:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">厨子和上帝状态比也没有到8成好吧，他真正的大问题还是我们至今仍未知道的rng队内交流。别到时候真是卡狗lululu——现代汉语——英语这样交流就搞笑了，这还顺带洗白了小天shit，一边同声传译一边打职业比赛简直神人了啊
+
+*****
+
+####  北条早苗  
+##### 4048#       发表于 2022-8-9 02:05
+
+不如说RNG这队就有问题，超哥只能保枪打法，李斯你让他玩电棍**以外的英雄直接猪脑过载，冠晴屁用都没有，整个队先手就指望一个大龄四号位
+
+*****
+
+####  IG.430  
+##### 4049#       发表于 2022-8-9 02:05
+
+脑浆y的破雾又突出还能活，张志成破雾选择拿最多信息的地方，小天shit破雾只是缩在安全区死了罢了，像是迷路了一样
+
+*****
+
+####  ninini212  
+##### 4050#       发表于 2022-8-9 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是你们说鬼菜的还能说经济把倒数的，自己看看RNG的资源分配。地图都被23刷干了肯定经济不好啊。
+
+说到底这就不是个打后期大核的版本
+
+
+
+*****
+
+####  Keynes  
+##### 4051#       发表于 2022-8-9 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985496&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:03</a>
+
+有一说一你这评分我觉得不是很公正，123都神一把鬼一把，控制在-1到0比较合适
+
+XNOVA-2完全没问题，我就 ...</blockquote>
+输的局23的表演实在是太印象深刻了，扣一分印象分没啥问题吧
+
+*****
+
+####  sdnuluffy  
+##### 4052#       发表于 2022-8-9 02:07
+
+之前没怎么看，就这两把的话，上帝7.5，maybe5，李斯4，xnova5，卡卡7.5
+
+*****
+
+####  woyzeck  
+##### 4053#       发表于 2022-8-9 02:07
+
+xnova现在真的会玩个jb，玩个陈0节奏，玩个戴泽冰龙永远先被切救不到人，视野老问题不说了，所谓的探信息就是闭着眼往别人野区里撞，当然这也是老问题了。这逼现在到底能干什么？唯一的好消息就是5号位对团队的破坏力远远不如2号位吧。
+
+*****
+
+####  蛭人  
+##### 4054#       发表于 2022-8-9 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985513&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:06</a>
+
+不是你们说鬼菜的还能说经济把倒数的，自己看看RNG的资源分配。地图都被23刷干了肯定经济不好啊。
+
+ ...</blockquote>
+RNG这队伍特色吧，LGD人就放任ame刷，四赵云七进七出。
+
+*****
+
+####  ninini212  
+##### 4055#       发表于 2022-8-9 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985516&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 02:07</a>
+
+输的局23的表演实在是太印象深刻了，扣一分印象分没啥问题吧</blockquote>
+问题不大，但是我说实话没觉得厨子表现有多么出彩，昨晚那个脑浆先知在我这里印象分实在是太差了
+
+*****
+
+####  百世诸侯  
+##### 4056#       发表于 2022-8-9 02:09
+
+回顾了一下这赛季的s级五号位，一时竟想不出比xnova更负作用的
+
+*****
+
+####  Keynes  
+##### 4057#       发表于 2022-8-9 02:09
+
+感觉超哥今年打完可以退役了，肌肉dota都打不利索了
+
+*****
+
+####  sdnuluffy  
+##### 4058#       发表于 2022-8-9 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984928&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-9 00:54</a>
+看了下回放，真破防了</blockquote>
+确实是要这心态，不然没法看比赛了，从17年到现在多少次熬夜吃屎了
+
+*****
+
+####  ninini212  
+##### 4059#       发表于 2022-8-9 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985526&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 02:09</a>
+
+RNG这队伍特色吧，LGD人就放任ame刷，四赵云七进七出。</blockquote>
+其实仔细想想还有一只EG，四阿斗无限送，然后RTZ刷成出山打一波赢了拯救世界输了敲GG
+
+*****
+
+####  蛭人  
+##### 4060#       发表于 2022-8-9 02:11
+
+看大家评价，冠晴现在确实算五个人中最菜的了；我看下来的话，如果不是玩个带奶的英雄，你甚至想不起来这把有他，经常瞎逛就死了。
+
+*****
+
+####  尸体鲨  
+##### 4061#       发表于 2022-8-9 02:12
+
+Maybe这年龄去年就该滚出中路了，不知道什么时候转4，倒是卡噜噜我是真觉得还行，找几个年轻人拿捏一下话语权练练普通话说不定能再搞点名堂出来
+
+*****
+
+####  ninini212  
+##### 4062#       发表于 2022-8-9 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985532&amp;ptid=2084957" target="_blank">sdnuluffy 发表于 2022-8-9 02:09</a>
+
+确实是要这心态，不然没法看比赛了，从17年到现在多少次熬夜吃屎了</blockquote>
+TI8不可思议，TI9压根不抱希望，TI10攒了两年然后决赛终极心电图吃屎，今年我在想到底看还是不看
+
+*****
+
+####  反方向的波  
+##### 4063#       发表于 2022-8-9 02:12
+
+ 本帖最后由 反方向的波 于 2022-8-9 02:16 编辑 
+
+真要打分，最高的我肯定给卡龟了
+除了莱恩小y小强小小以外，还玩了小牛海民拉比克风行天怒土猫这些许久未见的，在英雄池上真的倾其所有了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+厨子和利雅得时期比显然大有进步但和双冠时期比依然任重道远，刚被屠夫++   先知tb--  再算上剩下bp垃圾桶的局只能说及格
+
+*****
+
+####  syndrome2032  
+##### 4064#       发表于 2022-8-9 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985539&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:12</a>
+Maybe这年龄去年就该滚出中路了，不知道什么时候转4，倒是卡噜噜我是真觉得还行，找几个年轻人拿捏一下话语 ...</blockquote>
+卡师傅没法指挥是他自己说过的。打起来看的东西太多了。
+
+*****
+
+####  银翼的维罗西  
+##### 4065#       发表于 2022-8-9 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985513&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:06</a>
+
+不是你们说鬼菜的还能说经济把倒数的，自己看看RNG的资源分配。地图都被23刷干了肯定经济不好啊。
+
+ ...</blockquote>
+你怎么会相信资源分配这种鬼话，老干鳖三核包括XQ都是刷子，怎么钱就比别人多呢，ana加入RNG也没几天，难道一己之力就改变了23的刷钱习惯？
+
+刀塔这游戏就只有个人能力，别的都是假的，鬼在石油杯面对八强级别队伍打的就跟个梦游的小学生，这完全是他自己的问题，跟什么分配指挥没有任何关系
+
+至于你说ana英雄池不适合这个推进版本，这是没错，要是是靠一号位的大核版本，还能让A畜这样躺赢
+
+*****
+
+####  尸体鲨  
+##### 4066#       发表于 2022-8-9 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985538&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 02:11</a>
+看大家评价，冠晴现在确实算五个人中最菜的了；我看下来的话，如果不是玩个带奶的英雄，你甚至想不起来这把 ...</blockquote>
+Xnova现在经常对线期结束就没什么存在感了，印象里经常是一个跟着卡卡一起到处作案的形象
+
+*****
+
+####  ninini212  
+##### 4067#       发表于 2022-8-9 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985541&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 02:12</a>
+
+真要打分，最高的我肯定给卡龟了
+
+除了莱恩小y小强小小以外，还玩了小牛海民拉比克风行天怒土猫这些许久未见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卡噜噜英雄勺是问题啊，你看他这么多英雄能打出效果的有几个?能和队友摇摆的又有几个？
+
+（当然不能摇摆也不全是他的问题，25问题都不小）
+
+*****
+
+####  百世诸侯  
+##### 4068#       发表于 2022-8-9 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985540&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:12</a>
+
+TI8不可思议，TI9压根不抱希望，TI10攒了两年然后决赛终极心电图吃屎，今年我在想到底看还是不看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可以以cn粉a畜黑的心态去看，勇夺亚军身为a畜黑爽到，四赵云带躺成功身为cn粉爽到
+
+*****
+
+####  尸体鲨  
+##### 4069#       发表于 2022-8-9 02:15
+
+卡卡练了个小小，也算是倾尽所有
+
+*****
+
+####  Keynes  
+##### 4070#       发表于 2022-8-9 02:15
+
+有一说一昨天打lgd那两把的风行猴子基本算是毫无亮点好吧，只能说是输了不背锅，跟今天的小强发挥完全是天上地下的差别
+
+*****
+
+####  蛭人  
+##### 4071#       发表于 2022-8-9 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985534&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:10</a>
+
+其实仔细想想还有一只EG，四阿斗无限送，然后RTZ刷成出山打一波赢了拯救世界输了敲GG ...</blockquote>
+遇上nightfall、abed、RTZ三兄弟，我还是替酱油两兄弟感到悲伤。
+
+*****
+
+####  ninini212  
+##### 4072#       发表于 2022-8-9 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985544&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:13</a>
+
+你怎么会相信资源分配这种鬼话，老干鳖三核包括XQ都是刷子，怎么钱就比别人多呢，ana加入RNG也没几天，难 ...</blockquote>
+你这纯扯淡了，我们排除一切负面的定性思维，首先LGD就是当前版本头一号强队，对地图资源的控制和压制性就是头一号的。A处刷钱路线和嗅觉在非TI决赛日的时候也是独一档，你这要求也是非常离谱
+
+*****
+
+####  蛭人  
+##### 4073#       发表于 2022-8-9 02:17
+
+以xinq为基准线的话，kaka至少扣两分吧，自然死亡、版本厉害的四号位不会。
+
+*****
+
+####  百世诸侯  
+##### 4074#       发表于 2022-8-9 02:19
+
+文爱胖子六年前在大学生挑战赛里当枪屠杀我的草台班子战队，如今被a畜折磨也是一种偿还
+
+*****
+
+####  尸体鲨  
+##### 4075#       发表于 2022-8-9 02:19
+
+ 本帖最后由 尸体鲨 于 2022-8-9 02:21 编辑 
+
+AME值得称道的一直都是他打钱的能力啊，典型的AME式胜局就是刷出个巨肥的拍拍/巨魔/小小出来把脸上的东西全部A掉，很少有他像个鬼一个出现在最关键的地方杀掉最关键的人赢下来的局
+
+上一次这样的局还是ti10胜决第二局打秘密，猴子高地配合大牛两个板翻盘
+
+*****
+
+####  反方向的波  
+##### 4076#       发表于 2022-8-9 02:20
+
+ 本帖最后由 反方向的波 于 2022-8-9 02:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">卡狗这两个月多了一个小小多了一个土猫（还是nbkg的时候会后来又忘掉的）已经很让人震惊了，加油加油到ti应该能凑齐6只小精灵
+
+*****
+
+####  ninini212  
+##### 4077#       发表于 2022-8-9 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985560&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:19</a>
+
+AME值得称道的一直都是他打钱的能力啊，典型的AME式胜局就是刷出个巨肥的拍拍/巨魔/小小出来把脸上的东西全 ...</blockquote>
+其实是有的，但都不是关键局
+
+我印象里去年大哥斧王和小小有几次前期参团杀人
+
+但是你说像阿雕那种绝境翻盘确实很少。不过昨天RNG那个算不算绝境站出来（虽然我觉得大头在量子bian身上）
+
+*****
+
+####  银翼的维罗西  
+##### 4078#       发表于 2022-8-9 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985554&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:16</a>
+
+你这纯扯淡了，我们排除一切负面的定性思维，首先LGD就是当前版本头一号强队，对地图资源的控制和压制性 ...</blockquote>
+有什么离谱的，鬼在石油杯打不到的钱起不了的经济ana就能做到，团战能力只强不弱，所以我才说应该留下ana
+
+*****
+
+####  woyzeck  
+##### 4079#       发表于 2022-8-9 02:22
+
+像鬼一样的波上了高地t到了黑锅算不算。
+
+*****
+
+####  蛭人  
+##### 4080#       发表于 2022-8-9 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985564&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 02:20</a>
+
+卡狗这两个月多了一个小小多了一个土猫（还是nbkg的时候会后来又忘掉的）已经很让人震惊了，加油加 ...</blockquote>
+只能说kaka为这个家操碎了心。
+
+
+
+*****
+
+####  JoelBirch  
+##### 4081#       发表于 2022-8-9 02:23
+
+ 本帖最后由 JoelBirch 于 2022-8-9 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985544&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:13</a>
+你怎么会相信资源分配这种鬼话，老干鳖三核包括XQ都是刷子，怎么钱就比别人多呢，ana加入RNG也没几天，难 ...</blockquote>
+你这就纯属放屁了，光莫言这个系列赛下来多少次中期让经济全场第五第六靠打架补了，Ame昨天翻盘那盘历历在目，明鞭前面也有工具人的时候，XinQ去年确实刷一点，但最近以来承担先手游走的大段时间常常比Y经济都低，这个情况以前几乎就没出现过，你可以说个人能力强才能这么打，但这个运营和资源分配的思路也是重要的，不然就这线优率早他妈再见了
+
+*****
+
+####  尸体鲨  
+##### 4082#       发表于 2022-8-9 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985566&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:21</a>
+其实是有的，但都不是关键局
+
+我印象里去年大哥斧王和小小有几次前期参团杀人</blockquote>
+最关键的应该是ti10胜决，按说他的性格应该挺适合这种切入打法
+
+*****
+
+####  ninini212  
+##### 4083#       发表于 2022-8-9 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985564&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 02:20</a>
+
+卡狗这两个月多了一个小小多了一个土猫已经很让人震惊了</blockquote>
+没卵用啊，现在牛的是队伍联动有摇摆英雄，给对面BP制造巨**烦。
+
+最典型的就是冰龙245摇摆，然后就是石油杯的宙斯，可2可4
+
+RNG宙斯选出来就是maybe玩，冰龙选出来我直接脑溢血（必定是XNOVA到处送）。所以卡噜噜英雄池广了但没完全广，战术意义没那么大
+
+*****
+
+####  河水  
+##### 4084#       发表于 2022-8-9 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985430&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 01:50</a>
+小组赛打完了，有没有RNG粉给12345评个分啊，搞点指点江山啊。</blockquote>
+3154有什么好说的
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 4085#       发表于 2022-8-9 02:25
+
+我觉得ana这个线下赛最离谱的是线上，跟小天使打线上几乎很少线劣，名场面被大圣打爆剔除的话，只可惜RNG不会为了ana改变打法。
+
+*****
+
+####  ninini212  
+##### 4086#       发表于 2022-8-9 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985582&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:23</a>
+
+最关键的应该是ti10胜决，按说他的性格应该挺适合这种切入打法</blockquote>
+ti10胜决绝壁是他心态最爆炸的一次，完全没有平时冷静刷冷静切入的心态，我人都看麻了
+
+我当时是一边刷SG一边看比赛一边在YY和朋友聊天，最恶心的是TM让二追二然后开第五局的时候
+
+要是直接三比零我说不定还没那么难受
+
+*****
+
+####  尸体鲨  
+##### 4087#       发表于 2022-8-9 02:25
+
+我怀疑上ti又会变成扔硬币正面莱恩反面小y中间小强
+
+*****
+
+####  雅朵莉雀  
+##### 4088#       发表于 2022-8-9 02:26
+
+EG这比赛还能嫌弃谁？fly跟crit一个比一个脑浆
+
+要心疼也就是心疼床神，甚至我认为最离谱的Nightfall还经常有carry画面
+
+这比赛床&gt;nightfall&gt;双酱油&gt;rtz差不多吧
+
+至于RNG，能干出让ghost敌法师优势路solo伐木机十几分钟的事，就别说什么资源分配没问题的话了
+
+但凡看看任何一个强队carry在哪打钱也不会说ghost吃的多
+
+*****
+
+####  百世诸侯  
+##### 4089#       发表于 2022-8-9 02:26
+
+确实，被小天shit保还能不线劣，比和小天shit一起送穿的👻高了一个档次
+
+*****
+
+####  尸体鲨  
+##### 4090#       发表于 2022-8-9 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985591&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:25</a>
+ti10胜决绝壁是他心态最爆炸的一次，完全没有平时冷静刷冷静切入的心态，我人都看麻了
+
+我当时是一边刷SG ...</blockquote>
+胜决是打秘密，大圣一次都不能死那把
+
+*****
+
+####  ninini212  
+##### 4091#       发表于 2022-8-9 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985571&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:22</a>
+
+有什么离谱的，鬼在石油杯打不到的钱起不了的经济ana就能做到，团战能力只强不弱，所以我才说应该留下ana ...</blockquote>
+那有没有一种可能是因为ana打不了GHOST那种转化效率不得不给他让经济呢？
+
+我觉得无视选手本身能力和特性一厢情愿说XX比XX强本身特别可笑。OG.ANA肯定是强的，但是今年的厨子绝对没你想象中那么强。
+
+*****
+
+####  ArowRocher  
+##### 4092#       发表于 2022-8-9 02:27
+
+我没有想明白谢俊豪怎么会给卡卡风行牛头让他赛场练英雄的，然后又突然保守回去三板斧了
+
+*****
+
+####  银翼的维罗西  
+##### 4093#       发表于 2022-8-9 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985580&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 02:23</a>
+
+你这就纯属放屁了，光莫言这个系列赛下来多少次中期让经济全场第五第六靠打架补了，Ame昨天翻盘那盘历历 ...</blockquote>
+NTS现在的打法类似于曾焦阳，也是前十分钟无限干人，给量子鞭发育空间，但是无论是NTS还是曾焦阳中后期经济不差的，就是靠自己打出来的空间寻求发育，这还是个人能力问题
+
+*****
+
+####  ninini212  
+##### 4094#       发表于 2022-8-9 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985601&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:26</a>
+
+胜决是打秘密，大圣一次都不能死那把</blockquote>
+哦不对，脑子里光想着是决赛了，我的我的
+
+*****
+
+####  woyzeck  
+##### 4095#       发表于 2022-8-9 02:27
+
+ana打1线上弱过么，不是一直妥妥的一流对线。
+
+*****
+
+####  尸体鲨  
+##### 4096#       发表于 2022-8-9 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985605&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 02:27</a>
+我没有想明白谢俊豪怎么会给卡卡风行牛头让他赛场练英雄的，然后又突然保守回去三板斧了 ...</blockquote>
+卡噜噜：这个我很屌，你给我选这个→给我小强，老子就不信了小强还能崩
+
+*****
+
+####  ninini212  
+##### 4097#       发表于 2022-8-9 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985599&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-9 02:26</a>
+
+EG这比赛还能嫌弃谁？fly跟crit一个比一个脑浆
+
+要心疼也就是心疼床神，甚至我认为最离谱的Nightfall还经常 ...</blockquote>
+懒得自己翻数据可以看别人总结，石油杯ghost经济转化率百分之九十多，ana只有70多
+
+换个思路讲就是ana吃了更多的经济发挥和ghsot持平甚至不如ghost，所以漏油评价ana强我怀疑今年是不是完全没看比赛……
+
+*****
+
+####  尸体鲨  
+##### 4098#       发表于 2022-8-9 02:30
+
+有没有人关注A级比赛，IG现在到底怎么样
+
+*****
+
+####  JoelBirch  
+##### 4099#       发表于 2022-8-9 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985606&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:27</a>
+NTS现在的打法类似于曾焦阳，也是前十分钟无限干人，给量子鞭发育空间，但是无论是NTS还是曾焦阳中后期经 ...</blockquote>
+哇那不然现在中单怎么打呢？这是锤子个人能力问题，我就不信以Maybe的个人能力顺着这个思路给自己的队伍打不开局面，他不乐意这么玩谁拿他有办法？还是说你觉得这也叫个人能力缺失？
+
+*****
+
+####  ninini212  
+##### 4100#       发表于 2022-8-9 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985599&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-9 02:26</a>
+
+EG这比赛还能嫌弃谁？fly跟crit一个比一个脑浆
+
+要心疼也就是心疼床神，甚至我认为最离谱的Nightfall还经常 ...</blockquote>
+abed打了几年工具人已经完全变成RTZ的形状了，只能说完全围绕RTZ建队的EG也就这个逼样了
+
+*****
+
+####  银翼的维罗西  
+##### 4101#       发表于 2022-8-9 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985603&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:26</a>
+
+那有没有一种可能是因为ana打不了GHOST那种转化效率不得不给他让经济呢？
+
+我觉得无视选手本身能力和特性 ...</blockquote>
+我觉得你连鬼是个彩笔都看不出才显得格外可笑，一个C的基本能力就是打钱，鬼连这都做不到还谈什么别的能力，ana是只有八成水平，但还是比鬼强多了，这届RNG打成这样十成是霉憋的锅，霉憋现在对线节奏打团没一项是能力在线的，ana能和这种中单以及时灵时不灵的34号位打个小组中游已经是实力在线了
+
+*****
+
+####  woyzeck  
+##### 4102#       发表于 2022-8-9 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985621&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 02:30</a>
+
+哇那不然现在中单怎么打呢？这是锤子个人能力问题，我就不信以Maybe的个人能力顺着这个思路给自己的队伍 ...</blockquote>
+眉笔现在能这么打个锤子。他玩个帕克一身神装都不敢操作，你能指望他带着一身基本装打个10分钟节奏到处干人？
+
+*****
+
+####  ninini212  
+##### 4103#       发表于 2022-8-9 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985621&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 02:30</a>
+
+哇那不然现在中单怎么打呢？这是锤子个人能力问题，我就不信以Maybe的个人能力顺着这个思路给自己的队伍 ...</blockquote>
+maybe这次我最失望的是那场选**然后不打塞给查理斯，明明他中路操刀**能把对面爆中爆
+
+不过这也是maybe的老问题了，说难听点就是他永远不会打工具人，永远都要秀。
+
+*****
+
+####  woyzeck  
+##### 4104#       发表于 2022-8-9 02:33
+
+我之前也觉得梅憋是思想出了问题，这几天看了看他后期打团的第一视角，真是nm变态辣。
+
+*****
+
+####  银翼的维罗西  
+##### 4105#       发表于 2022-8-9 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985621&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 02:30</a>
+
+哇那不然现在中单怎么打呢？这是锤子个人能力问题，我就不信以Maybe的个人能力顺着这个思路给自己的队伍 ...</blockquote>
+你如果觉得霉憋现在是打法问题不是能力问题就不用讨论了，你说的都对，我什么都不懂
+
+*****
+
+####  woyzeck  
+##### 4106#       发表于 2022-8-9 02:34
+
+他现在能秀个鬼啊，你要像topson bzm那样就喜欢秀动不动把自己秀崩 说自己喜欢打秀的也就算了。他紫猫帕克和秀有一毛钱关系么，真是一点风险不敢冒啊。
+
+*****
+
+####  ninini212  
+##### 4107#       发表于 2022-8-9 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985629&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:32</a>
+
+我觉得你连鬼是个彩笔都看不出才显得格外可笑，一个C的基本能力就是打钱，鬼连这都做不到还谈什么别的能 ...</blockquote>
+确实，ana这么强今年一年都找不着工作到处吃屎是全世界所有DOTA战队的问题，CNdota需要ana来拯救
+
+建议ghost立刻光速退役给安皇让位<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 4108#       发表于 2022-8-9 02:34
+
+我承认我看走眼了，霉皇强无敌，只是上帝不适合他，水友们说得对
+
+*****
+
+####  尸体鲨  
+##### 4109#       发表于 2022-8-9 02:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">有没有可能大家都有点弱呢
+
+*****
+
+####  阿垃垃圾历  
+##### 4110#       发表于 2022-8-9 02:36
+
+如果有有心人去做大优被翻输的那几把maybe的第一视角  然后和nts的第一视角比对 
+感觉就更清晰了 
+虽然从结果倒推来看就已经很明显了
+
+
+
+*****
+
+####  蛭人  
+##### 4111#       发表于 2022-8-9 02:36
+
+建议看ana先知葬送好局的老北京帕克，maybe的帕克就是女王，只会刷野，线很多时候都不敢带的。
+
+*****
+
+####  woyzeck  
+##### 4112#       发表于 2022-8-9 02:37
+
+梅憋最近路人打的也不少了，一天4把有的。唯一合理的解释就是上轮椅了。
+
+*****
+
+####  尸体鲨  
+##### 4113#       发表于 2022-8-9 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985116&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 01:14</a>
+如果你没看过链子解说昨天翻盘的切片可以一看，如果你问链子上场行不行，那我觉得不行。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是觉得解说和打是两码事啊，链子说是说得头头是道自己上手就大量生产mind fuck录像，总有种喜剧效果
+
+*****
+
+####  蛭人  
+##### 4114#       发表于 2022-8-9 02:38
+
+卧槽，大家怎么对这个一号位躺赢就行的版本疯狂讨论carry位孰强孰弱，那么问题来了，有没有来15个队1号位评分/排名的（毕竟四赵云太强了，没有必要评价），干一波啊。
+
+*****
+
+####  重名的mufasa  
+##### 4115#       发表于 2022-8-9 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985643&amp;ptid=2084957" target="_blank">银翼的维罗西 发表于 2022-8-9 02:34</a>
+
+我承认我看走眼了，霉皇强无敌，只是上帝不适合他，水友们说得对</blockquote>
+没错,你别看比赛了包括论坛.费电<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 4116#       发表于 2022-8-9 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实dota地图资源就那么多，前期三路兵线中期两片野区（均势局）。这就代表必然团队的经济要有人做出牺牲。
+
+能刷三路的要不就是个人能力极强连对面野区一起刷了，要不就是团队信息做的转换到位视野清晰，可以不停的去偷对面资源。所以我也不明白漏油坚持认为ghost二线彩笔不会刷是什么思路
+
+要知道有时候不刷比刷要难得很多，又不是天梯中军局，大哥会刷后期出山就能赢，建议漏油多看比赛，尤其是看看你说的今年的干瘪到底是不是四个大刷子
+
+*****
+
+####  JoelBirch  
+##### 4117#       发表于 2022-8-9 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985630&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-9 02:32</a>
+眉笔现在能这么打个锤子。他玩个帕克一身神装都不敢操作，你能指望他带着一身基本装打个10分钟节奏到处干 ...</blockquote>
+那这就是个先有鸡还是先有蛋的问题了呀，我是觉得就因为他没这个思想所以比如搞个帕克永远不敢拼，然后越不拼这英雄在他手里就越没有熟练度，团战就越来越没用，只敢偷鸡摸狗，最后死循环没救了
+
+*****
+
+####  阿垃垃圾历  
+##### 4118#       发表于 2022-8-9 02:40
+
+maybe现在对英雄的理解 兵线理解 对线能力 节奏能力基本就全面的下滑啊 
+原来maybe是打过工具人中单的 而且也承担了不少中期节奏点 
+现在的rng 去年的小象这些事基本都扔给34来做的 不过这版本3又偏发育占线
+所以目前rng节奏点就基本只有kaka一个人来了
+
+*****
+
+####  cwlqxs  
+##### 4119#       发表于 2022-8-9 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985643&amp;ptid=2084957" target="_blank"> 银翼的维罗西 发表于 2022-8-9 02:34</a> 我承认我看走眼了，霉皇强无敌，只是上帝不适合他，水友们说得对 </blockquote>
+单纯问一下 您多少分来自: iPhone客户端
+
+*****
+
+####  ninini212  
+##### 4120#       发表于 2022-8-9 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985661&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 02:38</a>
+
+卧槽，大家怎么对这个一号位躺赢就行的版本疯狂讨论carry位孰强孰弱，那么问题来了，有没有来15个队1号位评 ...</blockquote>
+毕竟不是TI决赛日，我说AME现在排名第一没人有意见吧
+
+*****
+
+####  阿垃垃圾历  
+##### 4121#       发表于 2022-8-9 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985657&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:37</a>
+我是觉得解说和打是两码事啊，链子说是说得头头是道自己上手就大量生产mind fuck录像，总有种喜剧 ...</blockquote>
+是的 解说是带上帝视角的 实际去打完全是不同的多 
+
+*****
+
+####  belldandy_ye  
+##### 4122#       发表于 2022-8-9 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985101&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-9 01:13</a>
+
+解说的时候基本所有选手的意识比他们实际发挥的大概高40%，这叫什么，不打等于最屌？ ...</blockquote>
+上帝视角看到的信息和随时要切屏还要兼顾自身操作的肯定差距大啊
+
+*****
+
+####  蛭人  
+##### 4123#       发表于 2022-8-9 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985675&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:41</a>
+
+毕竟不是TI决赛日，我说AME现在排名第一没人有意见吧</blockquote>
+只有第一名干叼，来点东西啊。
+
+*****
+
+####  ninini212  
+##### 4124#       发表于 2022-8-9 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985672&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-9 02:40</a>
+
+maybe现在对英雄的理解 兵线理解 对线能力 节奏能力基本就全面的下滑啊 
+
+原来maybe是打过工具人中单的 而且 ...</blockquote>
+maybe打工具人中单我印象里至少都是三年前的事了……
+
+*****
+
+####  尸体鲨  
+##### 4125#       发表于 2022-8-9 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985672&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-9 02:40</a>
+maybe现在对英雄的理解 兵线理解 对线能力 节奏能力基本就全面的下滑啊 
+原来maybe是打过工具人中单的 而且 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有趣的是，maybe的工具人中单基本是给ame打的
+
+*****
+
+####  银翼的维罗西  
+##### 4126#       发表于 2022-8-9 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985673&amp;ptid=2084957" target="_blank">cwlqxs 发表于 2022-8-9 02:40</a>
+
+单纯问一下 您多少分</blockquote>
+四千分嘴巴中单，属于看比赛费电的类型
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cwlqxs| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ninini212  
+##### 4127#       发表于 2022-8-9 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985679&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 02:42</a>
+
+只有第一名干叼，来点东西啊。</blockquote>
+那得看你按什么来了，成绩，积分，KDA，伤害转化，分均经济
+
+数据那么多想看啥都行，哦漏油认为最强的安皇目前至少有一项是最强的，他历史战绩最好（毕竟唯一双冠C
+
+*****
+
+####  JoelBirch  
+##### 4128#       发表于 2022-8-9 02:45
+
+还是觉得这Ana再狂练一阵就又是个噩梦，Yatoro多少还是需要崩溃神兜一下的
+
+*****
+
+####  阿垃垃圾历  
+##### 4129#       发表于 2022-8-9 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985680&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:42</a>
+maybe打工具人中单我印象里至少都是三年前的事了……</blockquote>
+对啊 所以说能力下滑严重啊 今年更是全面暴露 
+去年ti好歹还有个对线能力 单杀次数摆在那遮遮丑 让小超人能叫唤几声
+
+*****
+
+####  ninini212  
+##### 4130#       发表于 2022-8-9 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985689&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 02:45</a>
+
+还是觉得这Ana再狂练一阵就又是个噩梦，Yatoro多少还是需要崩溃神兜一下的</blockquote>
+亚托洛去年那个玲珑心CK成功逗笑我了……
+
+*****
+
+####  反方向的波  
+##### 4131#       发表于 2022-8-9 02:46
+
+ghost能听得懂景德镇普通话，有这点就比厨子在这个队里强
+但我也卜赞同我看的诸如版和magma领队直播讲的霉鳖尽力了这些话，其他两个cn队的中单啥表现又不是看不到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 4132#       发表于 2022-8-9 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985683&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 02:43</a>
+有趣的是，maybe的工具人中单基本是给ame打的</blockquote>
+ti7-ti8期间  节奏中单和中单c摇摆 
+
+*****
+
+####  ninini212  
+##### 4133#       发表于 2022-8-9 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985690&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-9 02:45</a>
+
+对啊 所以说能力下滑严重啊 今年更是全面暴露 
+
+去年ti好歹还有个对线能力 单杀次数摆在那遮遮丑 让小超人 ...</blockquote>
+我倒觉得有时候和个人能力关系也不是那么大，团队磨合，战术思路。英雄池储备，版本。都是关键
+
+当然maybe状态肯定不如TI8是真的，但是目前依然是国内一流中单。无非是不像以前一骑绝乘打爆其他中单罢了
+
+*****
+
+####  ninini212  
+##### 4134#       发表于 2022-8-9 02:51
+
+ 本帖最后由 ninini212 于 2022-8-9 02:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985694&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 02:46</a>
+
+ghost能听得懂景德镇普通话，有这点就比厨子在这个队里强
+
+但我也卜赞同我看的诸如版和magma领队直播讲的霉 ...</blockquote>
+其他两个队在这个三号位强势的版本都有强三号位，这就是最大区别……
+
+XXS和bian的能力在这个版本是可以解放中路的
+
+当然我这么说可能对查猪有些贬低，不过目前来看查猪表现是不如上面两位的
+
+另外阿茶一号位是绝大隐患，阿茶明天比赛我在犹豫看不看，杜鹏已经好几次战犯级表现了。我怕明天直接脑浆炸裂，毕竟现在的FNC真不算弱队。
+
+*****
+
+####  4591  
+##### 4135#       发表于 2022-8-9 02:54
+
+lgd翻盘RNG那局说ana的先知有多少锅都行，但是他是RNG唯一想着上高破路的人，唯一选了战略上能赢的人。
+
+*****
+
+####  阿垃垃圾历  
+##### 4136#       发表于 2022-8-9 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985709&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:50</a>
+我倒觉得有时候和个人能力关系也不是那么大，团队磨合，战术思路。英雄池储备，版本。都是关键
+
+当然mayb ...</blockquote>
+这时候就需要依靠队友赵云了啊 
+
+*****
+
+####  ninini212  
+##### 4137#       发表于 2022-8-9 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985724&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-9 02:54</a>
+
+这时候就需要依靠队友赵云了啊</blockquote>
+所以现在来看345
+
+查理斯,XXS，bian
+
+卡卡，boboka，xinq
+
+XNOva，皮球，Y
+
+三四先不说五号位差距实在是有点大……
+
+*****
+
+####  ninini212  
+##### 4138#       发表于 2022-8-9 02:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我靠，说完就发现又变成了当年广告词“他们说，三五太菜”
+
+*****
+
+####  阿垃垃圾历  
+##### 4139#       发表于 2022-8-9 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985730&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-9 02:56</a>
+我靠，说完就发现又变成了当年广告词“他们说，三五太菜”</blockquote>
+现在是25太菜 3还能救一救 
+
+*****
+
+####  haruhiismer  
+##### 4140#       发表于 2022-8-9 02:58
+
+现在除了ta是纯刷哪有什么中单c和节奏c之分
+
+
+
+*****
+
+####  河水  
+##### 4141#       发表于 2022-8-9 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985653&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 02:36</a>
+建议看ana先知葬送好局的老北京帕克，maybe的帕克就是女王，只会刷野，线很多时候都不敢带的。 ...</blockquote>
+就是技术上的高配胖头鱼（2022版）
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  河水  
+##### 4142#       发表于 2022-8-9 03:08
+
+核桃对中哥的评价拿过来也很合适：中哥的中优势推不了塔，劣势没这个人
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ChristinaDU  
+##### 4143#       发表于 2022-8-9 03:08
+
+五年过去了，你们这些smdx还在吵啊，不是都看个乐子吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 4144#       发表于 2022-8-9 03:08
+
+整个石油杯中单补刀比carry位置高的一共有三支队
+
+一支Tundra，nine真核没什么好说的，直接小组赛回家；
+
+一支秘密，nisha也是队伍真核，地位完爆水晶哥；
+
+还有一支就是RNG，在石油杯霉皇刷的比ghost多，而现在这支major上的RNG，霉皇的场均补刀数比ana少接近100刀
+
+所以这个比赛RNG是明显地改变了队内资源分配的，毕竟场均100刀接近霉皇场均补刀40%了
+
+*****
+
+####  woyzeck  
+##### 4145#       发表于 2022-8-9 03:16
+
+<blockquote>反方向的波 发表于 2022-8-9 02:46
+ghost能听得懂景德镇普通话，有这点就比厨子在这个队里强
+
+但我也卜赞同我看的诸如版和magma领队直播讲的霉 ...</blockquote>
+光一直播说maybe尽力了？这是否
+
+*****
+
+####  pikamee  
+##### 4146#       发表于 2022-8-9 03:23
+
+<img src="https://img.saraba1st.com/forum/202208/09/032320yod5ia7o3zia6w3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 03:23 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/032329adppll3z7cfgtirz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 03:23 上传
+
+*****
+
+####  seki_m  
+##### 4147#       发表于 2022-8-9 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985528&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 02:09</a>
+回顾了一下这赛季的s级五号位，一时竟想不出比xnova更负作用的</blockquote>
+石油杯我提名一个放**然后钻野的瘤子ppy
+
+*****
+
+####  woyzeck  
+##### 4148#       发表于 2022-8-9 03:25
+
+<blockquote>pikamee 发表于 2022-8-9 03:23
+</blockquote>
+又要杀妈了么
+
+*****
+
+####  莉拉厨  
+##### 4149#       发表于 2022-8-9 03:29
+
+一觉醒来春晚怎么还没开始<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 4150#       发表于 2022-8-9 03:49
+
+哈哈哈，终于ame发了？这是那天谭雅搞的节目效果，没想到被处长开团了啊，不愧是处长。
+
+*****
+
+####  北欧王座  
+##### 4151#       发表于 2022-8-9 03:50
+
+畜长这sbdx看局势可以开始探头喽
+
+*****
+
+####  woyzeck  
+##### 4152#       发表于 2022-8-9 03:54
+
+处长就是sg粪海狂蛆的具象化，毕竟是粪坑资深水友，顺风骑脸玩的不要太好。
+
+*****
+
+####  蛭人  
+##### 4153#       发表于 2022-8-9 04:09
+
+我艹，这一波太监叔叔都开始ti8怪不得lgd亚军了，这就是ru水的力量吗？
+
+*****
+
+####  外挂全家脚气  
+##### 4154#       发表于 2022-8-9 04:18
+
+为什么又来一把3万经济领先被翻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hcf220  
+##### 4155#       发表于 2022-8-9 04:38
+
+谭雅这也太小丑了吧。
+
+ame怎么想是一回事，超哥他们看到会不会更恶心啊。老子再怎么不行，需要替我们说我们要施舍?
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  woyzeck  
+##### 4156#       发表于 2022-8-9 05:00
+
+这不是玩儿了父子梗和施舍梗么，毕竟是ame亲口说的施舍。
+
+*****
+
+####  Arhjoy  
+##### 4157#       发表于 2022-8-9 05:12
+
+真的逆天，这被人挂不是活该么？一句节目效果就找回场子了，牛逼啊
+
+*****
+
+####  ArthurFyc  
+##### 4158#       发表于 2022-8-9 05:18
+
+谭雅真是🤡
+
+*****
+
+####  Arhjoy  
+##### 4159#       发表于 2022-8-9 05:27
+
+…b站搜了下tanya结果出来一堆内衣试穿的视频
+
+*****
+
+####  walfeds  
+##### 4160#       发表于 2022-8-9 05:29
+
+醒来一看又水漫金山了呀
+还有csdx在楼里打滚，晦气
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cwlqxs  
+##### 4161#       发表于 2022-8-9 05:43
+
+什么感觉tanya有点像弱智版的书记 tanya是不是也是中年公务员还是在家待业来自: iPhone客户端
+
+*****
+
+####  北欧王座  
+##### 4162#       发表于 2022-8-9 05:44
+
+谭雅为啥要管rng人的感受。。他就是恶心下畜长搞热度，不要戏太多还代入maybe搞得跟他真为了maybe一样。老北京都菜成这逼样了还有空尴尬这个
+
+*****
+
+####  UnhappyTails  
+##### 4163#       发表于 2022-8-9 05:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985885&amp;ptid=2084957" target="_blank">cwlqxs 发表于 2022-8-9 05:43</a>
+什么感觉tanya有点像弱智版的书记 tanya是不是也是中年公务员还是在家待业</blockquote>
+谭雅退伍阿兵哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 4164#       发表于 2022-8-9 05:48
+
+哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">支持森哥正义切割
+
+U2SH]8]$4XVQ[BC3KH2@7FD.jpg
+(98.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 05:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/054805y89bw19udu88sbbl.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 4165#       发表于 2022-8-9 05:52
+
+感觉rng这比队还是不要多想了，ana水平也不行，也没啥磨合，老老实实混一混拼个前六然后带着ghost到ti混钱退役就完事了。都是废物
+
+*****
+
+####  外挂全家脚气  
+##### 4166#       发表于 2022-8-9 05:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985895&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-9 05:52</a>
+
+感觉rng这比队还是不要多想了，ana水平也不行，也没啥磨合，老老实实混一混拼个前六然后带着ghost到ti混钱 ...</blockquote>
+想多了，90%过不了败者第一轮（VP/TS）
+
