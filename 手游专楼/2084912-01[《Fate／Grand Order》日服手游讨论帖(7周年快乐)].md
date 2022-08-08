@@ -4465,3 +4465,34 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 实在不行整个yls单口light版不就行了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 422#       发表于 2022-8-8 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982902&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-8 22:17</a>
+
+这情况还硬要开生放是真的坚强
+
+实在不行整个yls单口light版不就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">yls不是和川橙同台了吗。说不定要2进宫了
+
+*****
+
+####  千叶铁矢  
+##### 423#       发表于 2022-8-8 22:24
+
+怎么换新楼了你们话这么多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 424#       发表于 2022-8-8 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980056&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-8 18:06</a>
+
+可是这楼里的只想看乐子，不想去车人啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁甚至还做了个投票   进去一看吓死人  该去战斗了！
+

@@ -3442,3 +3442,36 @@ king还是把奖杯寄过去吧
 
 虽然西西和其他人玩的不是一个游戏，但小夜和力一都有Mood
 
+
+
+*****
+
+####  poipanchao  
+##### 16806#       发表于 2022-8-8 22:20
+
+有没有mood就差5m5p，有毛用
+
+*****
+
+####  高等黑暗  
+##### 16807#       发表于 2022-8-8 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982783&amp;ptid=1972669" target="_blank">gaiadc 发表于 2022-8-8 22:07</a>
+
+虽然西西和其他人玩的不是一个游戏，但小夜和力一都有Mood</blockquote>
+所以实际上西西就是没ムード啊
+
+月撇有胜运西西还没有呢，实际上算buff的话lz比西西还强
+
+*****
+
+####  gaiadc  
+##### 16808#       发表于 2022-8-8 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982986&amp;ptid=1972669" target="_blank">高等黑暗 发表于 2022-8-8 22:24</a>
+
+所以实际上西西就是没ムード啊
+
+月撇有胜运西西还没有呢，实际上算buff的话lz比西西还强 ...</blockquote>
+西西两个○一个×，有Mood啊
+
