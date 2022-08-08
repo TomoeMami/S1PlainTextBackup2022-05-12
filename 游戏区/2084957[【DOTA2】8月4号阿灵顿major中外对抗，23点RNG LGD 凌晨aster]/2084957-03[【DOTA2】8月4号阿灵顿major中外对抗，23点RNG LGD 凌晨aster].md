@@ -123,3 +123,43 @@ ana这先知切入真的有点搞笑了。今天打液体要不能2比0估计败
 
 两把puck属于是对位处刑了，当然该说不说霉畜这Puck一直都是这怪味，但这把为了保Kda也太狠了8<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  izayoi39  
+##### 3015#       发表于 2022-8-8 15:52
+
+茶队的弱点还是很明显的，ori一旦不顺茶队整个队伍的节奏都会停滞，具体看茶队输给navi那一把就很明显，noone在线上把ori打穿了然后ori不得不去补经济，无论是本子c还是xxs这俩人节奏能力都约等于0，茶队就会被从开局撵着打到gg
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 3016#       发表于 2022-8-8 15:53
+
+<img src="https://p.sda1.dev/6/1da6b21286d8f9689c6eb62ad7e490c1/Screenshot_2022-08-08-15-50-06-98_6e80cb6a5d3ffc593e03160aeb7095f8.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是集美节目效果足
+
+*****
+
+####  lyjssj  
+##### 3017#       发表于 2022-8-8 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说回来，线优转推进滚雪球，这种东西在职业比赛上应该算基本功了
+
+然后rng是优势沉迷于鲨人被翻盘，茶是优势沉迷于刷然后被翻盘
+
+局势判断上都差了一口气
+
+*****
+
+####  阿垃垃圾历  
+##### 3018#       发表于 2022-8-8 15:57
+
+maybe帕克的盘子48分钟才出的了  要黑的还是看了比赛再黑   怎么感觉楼里不少都只看个战报就开始随便说了   
+
+rng输的两次关键团  maybe和ana的切入都有大问题 
+
