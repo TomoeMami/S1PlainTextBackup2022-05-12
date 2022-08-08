@@ -6565,3 +6565,257 @@ rng第一把我觉得第二个a杖就不应该给小强。rng这打法傻逼到�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便楼里为什么会吹链子玩懂这个游戏了？半年没感受过被链子mind fuck的感觉了？
 
+
+
+*****
+
+####  弈秋  
+##### 3833#       发表于 2022-8-9 01:12
+
+查猪解说的时候也说他玩懂了，上场还不是脑浆
+
+*****
+
+####  haruhiismer  
+##### 3834#       发表于 2022-8-9 01:12
+
+蚂蚁拉满了，上帝这把还可以
+
+*****
+
+####  -SLSL-  
+##### 3835#       发表于 2022-8-9 01:12
+
+上帝！
+
+*****
+
+####  逃离二次元  
+##### 3836#       发表于 2022-8-9 01:12
+
+蓝猫比较克制很多版本强势英雄吧。虽然蓝猫本身很废物，但是机制还是很吃香
+
+*****
+
+####  mkii量产型  
+##### 3837#       发表于 2022-8-9 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霉鳖这gank太丑陋了，虽然老B赖在中单位是没前途，问题焦阳还有一手O猫，霉鳖真的一个绝活都没了
+
+*****
+
+####  nightmare902015  
+##### 3838#       发表于 2022-8-9 01:13
+
+解说的时候基本所有选手的意识比他们实际发挥的大概高40%，这叫什么，不打等于最屌？
+
+*****
+
+####  a1370303  
+##### 3839#       发表于 2022-8-9 01:13
+
+上帝好想赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3840#       发表于 2022-8-9 01:13
+
+职业哥在上帝视角看比赛理解自然很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  百世诸侯  
+##### 3841#       发表于 2022-8-9 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">俊豪（rng教练）是不是场下连败者组对手的可能性都懒得看啊，该输的时候不输
+
+*****
+
+####  北条早苗  
+##### 3842#       发表于 2022-8-9 01:13
+
+人猫分离！
+
+*****
+
+####  千千千千鸟  
+##### 3843#       发表于 2022-8-9 01:14
+
+嘿嘿，开送<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wizder  
+##### 3844#       发表于 2022-8-9 01:14
+
+奇怪了 一些SG粪坑的人为啥不滚回去他们自己的地方呢 在大家都在讨论游戏的时候来恶心人
+
+*****
+
+####  qty  
+##### 3845#       发表于 2022-8-9 01:14
+
+maybe有点太容易上头了，大局观有点差
+
+*****
+
+####  奈纪亚美  
+##### 3846#       发表于 2022-8-9 01:14
+
+开始脑浆了，看来是要连boom都干不过了
+
+*****
+
+####  ArowRocher  
+##### 3847#       发表于 2022-8-9 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985087&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 01:11</a>
+
+顺便楼里为什么会吹链子玩懂这个游戏了？半年没感受过被链子mind fuck的感觉了？ ...</blockquote>
+如果你没看过链子解说昨天翻盘的切片可以一看，如果你问链子上场行不行，那我觉得不行。
+
+*****
+
+####  尸体鲨  
+##### 3848#       发表于 2022-8-9 01:14
+
+不图不挂，素质dota
+
+*****
+
+####  是挞不是派  
+##### 3849#       发表于 2022-8-9 01:15
+
+感觉要被翻了
+
+*****
+
+####  名字不乱取  
+##### 3850#       发表于 2022-8-9 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985101&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-9 01:13</a>
+
+解说的时候基本所有选手的意识比他们实际发挥的大概高40%，这叫什么，不打等于最屌？ ...</blockquote>
+有的人就是活着的错误，不下场一定不会犯错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 3851#       发表于 2022-8-9 01:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开送了，是不是有人意识到输了才能捏鱼腩了
+
+*****
+
+####  逃离二次元  
+##### 3852#       发表于 2022-8-9 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985112&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:14</a>
+
+奇怪了 一些SG粪坑的人为啥不滚回去他们自己的地方呢 在大家都在讨论游戏的时候来恶心人 ...</blockquote>
+奇怪了 一些集美为啥不滚回去他们自己的地方呢 在大家都在讨论游戏的时候来恶心人
+
+*****
+
+####  朝奈  
+##### 3853#       发表于 2022-8-9 01:15
+
+反正这把输了打的是偏弱的对手
+
+不如装模作样送了得了
+
+*****
+
+####  弈秋  
+##### 3854#       发表于 2022-8-9 01:16
+
+还是输了去打boom吧
+
+*****
+
+####  ArowRocher  
+##### 3855#       发表于 2022-8-9 01:17
+
+在役选手里解说的下限大概就是FY和卡卡了，FY赢一手有梗。可能解说工作4号位有莫名的相性不合
+
+*****
+
+####  反方向的波  
+##### 3856#       发表于 2022-8-9 01:17
+
+都想去打boom了？
+
+*****
+
+####  逃离二次元  
+##### 3857#       发表于 2022-8-9 01:18
+
+你们不会都是小泰迪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么不希望霉鳖打强队
+
+*****
+
+####  百世诸侯  
+##### 3858#       发表于 2022-8-9 01:18
+
+打比赛时大脑能有30%留给情形分析就不错了，很多时候就变成本能dota了，所以说帅才难求呀
+
+*****
+
+####  Keynes  
+##### 3859#       发表于 2022-8-9 01:18
+
+<img src="https://img.saraba1st.com/forum/202208/09/011814gy5t66ae5htff46f.png" referrerpolicy="no-referrer">
+
+<strong>573EBF57-35E4-4665-BEBB-F5760DF4D699.png</strong> (737.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:18 上传
+
+这七个回复肯定全部都是讨论游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，他真的好双标，我哭死
+
+*****
+
+####  xz_04  
+##### 3860#       发表于 2022-8-9 01:19
+
+比赛已经进入了 RNG 熟悉的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 3861#       发表于 2022-8-9 01:19
+
+rng每把感觉都得来1 2波狂上头来自: iPhone客户端
+
+*****
+
+####  -SLSL-  
+##### 3862#       发表于 2022-8-9 01:20
+
+rng的比赛真是刺激
+
+*****
+
+####  qty  
+##### 3863#       发表于 2022-8-9 01:20
+
+炼金无解肥，后期怎么处理？
+
+*****
+
+####  ArowRocher  
+##### 3864#       发表于 2022-8-9 01:20
+
+这两个队是G2才发现下一场的对手吗？那上一把硬拉60分钟干嘛啊
+
+*****
+
+####  逃离二次元  
+##### 3865#       发表于 2022-8-9 01:20
+
+是个你b大up，也算是个公众人物了，怎么就这么傻逼这么贱呢
+
