@@ -703,3 +703,36 @@ ss8当年也是实名菠菜第一人，既然可以为了a/一人黑lgd，为啥
 —— 来自 Sony X ...</blockquote>
 现在黑LGD，或者黑AME是因为菠菜吗？换个说法，如果ame换成术士8，LGD会成为众矢之的？建议回顾ti8910，还原真相。
 
+
+
+*****
+
+####  战狼PTSD  
+##### 3079#       发表于 2022-8-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979880&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-8 17:51</a>
+
+sg的投票贴把我看哭了</blockquote>
+细嗦
+
+*****
+
+####  反方向的波  
+##### 3080#       发表于 2022-8-8 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻狗这墙头草程度比你楼厉害多了，之前几个进来巡逻说你楼是傻狗分狗真的有点脑瘫了
+
+*****
+
+####  很久就在那边l  
+##### 3081#       发表于 2022-8-8 17:58
+
+#让我们一起举报vpgame
+
+*****
+
+####  xwfdj  
+##### 3082#       发表于 2022-8-8 18:00
+
+这楼都些什么贵物在互相嗦牛子啊，惊了个大呆。
+
