@@ -9629,3 +9629,40 @@ pic2.png
 
 打这么字，这就是撩到偶像后的反应吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中已矣  
+##### 4175#       发表于 2022-8-9 07:13
+
+脑残吧
+
+*****
+
+####  逃离二次元  
+##### 4176#       发表于 2022-8-9 07:15
+
+硬起来了
+
+*****
+
+####  北欧王座  
+##### 4177#       发表于 2022-8-9 07:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">谭畜不体面了呀，急了。你还指望处长跟你认真对话笑死，黑到小偶像认知然后很兴奋是吧
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 4178#       发表于 2022-8-9 07:18
+
+鉴定为扭曲的集美
+
+*****
+
+####  遍体精淋af  
+##### 4179#       发表于 2022-8-9 07:19
+
+绷，鳖茶甚至可以一分不拿进ti，前提是vp液体和rng不拿分，这下真巴不得rng死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
