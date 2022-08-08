@@ -1770,3 +1770,84 @@ FB这决赛到底tm僵硬在哪儿了，还有莫言再软脚，34把不是他�
 
 你们是真的快进，别人都说ame尿裤了你们就快进到下一步要说ame带躺了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  马台街48  
+##### 3201#       发表于 2022-8-8 22:31
+
+这个楼越来越好看了  颇有些船区的味道了，lgd和快船不仅logo一个样，连粉丝文化都是一脉相承<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 3202#       发表于 2022-8-8 22:31
+
+建议搞清楚逻辑，谁说谁带躺，谁又说谁不行，能不能理清啊，曲解人意是吧。
+
+*****
+
+####  ArowRocher  
+##### 3203#       发表于 2022-8-8 22:32
+
+已经进展到假赛枪指头了吗，我说莫言软了是说他不自信到被按头拿TK不是说他发挥不行要背锅
+
+*****
+
+####  香蕉芭菲  
+##### 3204#       发表于 2022-8-8 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980780&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-8 19:09</a>
+
+但是ori颓的时候也是真吓人……比如ti10回家前的那几把对线</blockquote>
+这评价肯定是按当前来说的，版本状态队伍都不一样了。如果TI11还是去年那样我也没办法，何况这里我对茶的期望不高，只希望突破魔咒，major稍微走远一点点
+
+*****
+
+####  12481632  
+##### 3205#       发表于 2022-8-8 22:34
+
+回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+我只能说别急好吗，也不用等ti，这个major还没打完呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3206#       发表于 2022-8-8 22:35
+
+ 本帖最后由 反方向的波 于 2022-8-8 22:37 编辑 
+
+真正的假赛哥⚡️般归来了<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 3207#       发表于 2022-8-8 22:36
+
+望ti10真视界还原一个真相，究竟谁软脚，别整的跟个ti8似的，选个水人有什么用啊。
+
+*****
+
+####  弈秋  
+##### 3208#       发表于 2022-8-8 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼又说什么黑话
+
+*****
+
+####  Keynes  
+##### 3209#       发表于 2022-8-8 22:39
+
+我真的怀疑这楼里有的人和我看的是不是同一场ti10的bo5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 3210#       发表于 2022-8-8 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982270&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-8 21:25</a>
+
+鸭头肉早年是不是来中国留学过</blockquote>
+艹，yao铮铮。佛祖真不是SG出来的？
+
