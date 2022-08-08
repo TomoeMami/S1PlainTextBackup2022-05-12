@@ -7076,3 +7076,66 @@ ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫�
 <img src="https://p.sda1.dev/6/0f2eac9eb31871517c20a68b016d5dd2/-771769208.jpg" referrerpolicy="no-referrer">
 草，这台词写出来觉得很幽默吗
 
+
+
+*****
+
+####  寒风夜  
+##### 2209#       发表于 2022-8-8 11:40
+
+红毛声优不愧是科班的
+
+*****
+
+####  aoaoaodedede  
+##### 2210#       发表于 2022-8-8 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974958&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-8 11:29</a>
+
+草，这台词写出来觉得很幽默吗</blockquote>
+后面堇反驳了一句，算是缓解了一下气氛吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过这种台词实属离谱，当然这种抠细节能搞人心态的问题从一期动画就有了，或者可以说是不足为奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 2211#       发表于 2022-8-8 14:00
+
+ 本帖最后由 adw667 于 2022-8-8 14:02 编辑 
+
+相较于部长候选发言我觉得樱小路去拉人这件事更没有B数<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我现在觉得可可这人设裂成两半，热情的那部分给了樱小路，LL粉那部分给了红毛，结果搞得两个人都很生硬
+香音：没试过怎么知道不适合？
+恋：呀咩咯！（指S1E2）
+樱小路你真的别再大喊大叫了，听不下去
+
+*****
+
+####  奥柏伦亲王  
+##### 2212#       发表于 2022-8-8 14:18
+
+樱小路真的巨烦好吧，我是没想到自己可以这么讨厌一个偶像动画的角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集算可以的了，红蓝互相扶持互相关心的故事线比较清晰，减少了硬推某几位角色的尴尬感，观感提升不少，虽然也就是个及格水平，但如果后面8集都能做成这样我就烧高香了……
+
+星团动画为企划服务的意图显示的太简单粗暴了，资方要推小百合和铃原，就玩命的堆戏份，角色沦为在固定节点发挥固定作用的工具人，行为是否符合角色性格一概不论，戏份不够就硬堆段子，说是一股子工业添加剂味都有点侮辱动画工业。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">劝大伙继续放平心态，抛弃幻想，实在喜欢小偶像的话给人家花点钱也没啥问题，总之千万别带入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 2213#       发表于 2022-8-8 14:21
+
+说一下歌，二期的声音还是不大熟悉，红蓝谁是谁我竟分的不太清楚，不过熊和yabu唱的都挺好。两版卡丁车我更喜欢鲤鱼唱的，布鲁斯味道浓厚些，pay酱的唱腔挺元气就是开头两句我实在顶不住……但是如果有live演唱的话我希望是对唱
+
+*****
+
+####  Enakina  
+##### 2214#       发表于 2022-8-8 14:31
+
+ 本帖最后由 Enakina 于 2022-8-8 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56977049&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-8 14:18</a>
+樱小路真的巨烦好吧，我是没想到自己可以这么讨厌一个偶像动画的角色
+
+这集算可以的了，红蓝互相扶 ...</blockquote>
+青山不也阿波罗的吗，我就奇怪了，怎么就不推青山呢，总不能说青山志不在此吧（单指企划这块，个人的地方阿波罗给的还可以的）
+

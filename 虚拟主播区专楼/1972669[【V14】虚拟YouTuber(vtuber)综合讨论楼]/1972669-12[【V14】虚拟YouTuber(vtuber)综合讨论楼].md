@@ -3304,3 +3304,16 @@ rize这对面的投手，就是小宫山悟本人啊，这怎么打<img src="htt
 昨晚最后几场黛灰拿了翘屁股，加上之前就学到的根性
 僵尸投手老叶再临也未可知
 
+
+
+*****
+
+####  Ketestrait  
+##### 16792#       发表于 2022-8-8 14:07
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4zbqzpjyxj21kw11xwpr.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/gyokuro1175/status/1556511969905356800](https://twitter.com/gyokuro1175/status/1556511969905356800)
+
+这个表做得不错，slm和yugo是真的可惜
+
