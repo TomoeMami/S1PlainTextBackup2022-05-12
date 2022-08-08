@@ -11530,3 +11530,26 @@ TSM三个打工仔要是把fnc抬到ti这有点好笑了
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  健康猹  
+##### 2916#       发表于 2022-8-8 08:13
+
+少了傻逼嘻嘻的自媒体不是坏事。茶队的人还有脑瘫吉祥物太容易整波大的了。
+
+昨晚喷完XXS脑浆就去睡了，没关电脑模模糊糊能听到鸡鳖和熊鳖大呼小叫的，原来昨晚RNG也整了波大的，还好没看。
+
+*****
+
+####  健康猹  
+##### 2917#       发表于 2022-8-8 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972282&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-8 08:10</a>
+
+你看了OG的比赛么，我感觉伐木机一banATF自己就会送的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Andr ...</blockquote>
+大家都是脑浆队伍，不好说。
+
