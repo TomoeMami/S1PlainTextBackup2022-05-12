@@ -11451,3 +11451,82 @@ ghost客厅滑跪，起码不用担心自己被踢了<img src="https://static.sa
 
 看了第一视角，发现冠超才是更畜的那个。
 
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 2908#       发表于 2022-8-8 08:02
+
+霉畜从ti5到现在花了8年时间也没想明白过该怎么赢比赛。
+
+*****
+
+####  chilno  
+##### 2909#       发表于 2022-8-8 08:03
+
+完了，今年的lgd希望很大啊！我提前缩头了
+
+*****
+
+####  莉拉厨  
+##### 2910#       发表于 2022-8-8 08:03
+
+ 本帖最后由 莉拉厨 于 2022-8-8 08:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972161&amp;ptid=2084957" target="_blank">xz_04 发表于 2022-8-8 07:49</a>
+3支队伍平分，加赛是 Bo1 轮着打；2支平分是 Bo3。</blockquote>
+我的说法：好像这次是瑞士轮规则，不加赛。entity和雪碧同分，都有一个0-2，而前者输给茶队后者输给EG，所以前者第二。
+Hoho哥的说法：先看双方胜负关系，如果一样看对他们排名后面战队的战绩，Entitiy和TS战成1:1，看对他们后面的BOOM的战绩，Entity 2:0， TS 1:1，这样Entity第二,TS第三 HOHO
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  坚定的团子党  
+##### 2911#       发表于 2022-8-8 08:05
+
+淘汰赛第一轮茶队打og，感觉茶肯定打不过呀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 2912#       发表于 2022-8-8 08:05
+
+爬了下楼，心疼辞职的漏油们，更心疼要上班的自己。
+
+TSM三个打工仔要是把fnc抬到ti这有点好笑了
+
+*****
+
+####  蛭人  
+##### 2913#       发表于 2022-8-8 08:06
+
+老北京这把畜在打团永远在看，而且被土猫单防，不过这盘输了就是ana先知的大锅，赢了的话，感谢345好吧，可惜没赢。
+
+*****
+
+####  ArowRocher  
+##### 2914#       发表于 2022-8-8 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972159&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-8 07:49</a>
+以往major还有茶队整波大的吸引火力，这次连茶都超预期地毫无存在感地成功过渡了
+
+那这期的口水流量只能你r ...</blockquote>
+茶没有话题成绩好是一个原因，还有个原因是比赛打的晚直播看得少，切片自媒体也普遍不切，导致曾焦阳蓝猫玩的怎么样我都没看过。
+
+*****
+
+####  莉拉厨  
+##### 2915#       发表于 2022-8-8 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972245&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-8 08:05</a>
+淘汰赛第一轮茶队打og，感觉茶肯定打不过呀
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+你看了OG的比赛么，我感觉伐木机一banATF自己就会送的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
