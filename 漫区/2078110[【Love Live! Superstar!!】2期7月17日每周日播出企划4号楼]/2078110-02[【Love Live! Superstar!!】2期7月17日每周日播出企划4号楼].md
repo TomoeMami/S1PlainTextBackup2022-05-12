@@ -7451,3 +7451,14 @@ ceo大概率还是香音嘴炮，所以可回的人头还得给她的。最后�
 应该让堇和可可一起上飞机，不拆可堇又能让香音追飞机</blockquote>
 可可和堇一起上飞机可以出OVA了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2246#       发表于 2022-8-8 18:17
+
+<blockquote>古战场亡魂 发表于 2022-8-8 17:42
+看了一下港澳台的，没想到十指相扣没删。不过虹咲的夹脚也没删倒也合理。 ...</blockquote>
+港澳台基本不删啊，契约之吻上周打炮都没删
+

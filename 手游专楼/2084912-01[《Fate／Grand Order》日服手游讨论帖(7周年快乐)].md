@@ -4221,3 +4221,25 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这分明是为了新泳装池子的出货垫刀了 坐等三天后萌新一发十连出货
 
+
+
+*****
+
+####  alucardcz  
+##### 399#       发表于 2022-8-8 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980115&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 18:11</a>
+
+这分明是为了新泳装池子的出货垫刀了 坐等三天后萌新一发十连出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都8088年了 你怎么还信垫刀这种弱智言论
+
+*****
+
+####  qixinno2  
+##### 400#       发表于 2022-8-8 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 18:16</a>
+
+这都8088年了 你怎么还信垫刀这种弱智言论</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心里安慰啊 出就是之前垫刀了 没出就是还没垫够 不会真有人当回事吧
+
