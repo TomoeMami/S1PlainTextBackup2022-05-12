@@ -946,3 +946,70 @@ B站缩卵的假赛集美一个个已经起跳了，都回来了
 
 汛期真tm来了啊，缩壳了缩壳了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 3110#         楼主| 发表于 2022-8-8 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980143&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-8 18:13</a>
+应该是这投票贴吧，今年SG又快跪下了。</blockquote>
+这傻逼楼主能做出这个选项也是纯野种
+
+*****
+
+####  北条早苗  
+##### 3111#       发表于 2022-8-8 18:32
+
+打个major小组赛就开始发大水了，a畜和集美一起死没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 3112#       发表于 2022-8-8 18:33
+
+别急 今天我只想看泰迪死，处长再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3113#       发表于 2022-8-8 18:34
+
+形势一点都卜严峻，去年major3:0夺冠，下面八替补中单狂砍一冠一亚，今年有去年压力大？
+
+*****
+
+####  很久就在那边l  
+##### 3114#       发表于 2022-8-8 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980255&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-8 18:23</a>
+泥潭皮套人版里面的相关帖子是特么的畜生才能想出来的，只能用两个字，恶心，堪比太监论坛。 ...</blockquote>
+打得过“阿梓大小姐想让我表白，萧瑟仙贝的恋爱头脑战—一只野生达达利亚的专属楼”吗
+
+*****
+
+####  莉拉厨  
+##### 3115#       发表于 2022-8-8 18:37
+
+漏油也别嘲管人吃嘲的太过分，你楼严格意义上来讲标题应该是【冲击三亚！野生达达利亚anti串】<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 3116#       发表于 2022-8-8 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980414&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-8 18:37</a>
+
+打得过“阿梓大小姐想让我表白，萧瑟仙贝的恋爱头脑战—一只野生达达利亚的专属楼”吗 ...</blockquote>
+那肯定是打不过的，csdx的不如啊。
+
+*****
+
+####  pigofsunny  
+##### 3117#       发表于 2022-8-8 18:40
+
+数据好看，杀得上头，但赢不了。这不是路人习气什么是路人习气。
+
