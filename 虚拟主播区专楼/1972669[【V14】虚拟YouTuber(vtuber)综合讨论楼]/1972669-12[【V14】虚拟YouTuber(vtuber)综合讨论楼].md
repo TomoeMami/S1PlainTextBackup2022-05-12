@@ -3365,3 +3365,19 @@ rize这对面的投手，就是小宫山悟本人啊，这怎么打<img src="htt
 
 她这个赛季的排位打的都很一般，虽然就没打几次
 
+
+
+*****
+
+####  winda  
+##### 16797#       发表于 2022-8-8 21:35
+
+cr杯这20kg盐来真的啊，nrk这边要把这些盐扔会社了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16798#       发表于 2022-8-8 21:37
+
+king还是把奖杯寄过去吧
+
