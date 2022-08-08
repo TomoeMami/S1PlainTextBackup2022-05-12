@@ -11710,3 +11710,12 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nxmonitor  
+##### 2935#       发表于 2022-8-8 09:51
+
+昨天说什么来着？给戏也接不住啊，第二把LGD的BP特别奇怪，伐木机兽王ban了大概率出分身系英雄，和戴泽走一路玛西过来一个暗影波就要死，可能不知道查理斯会**然后选个幽鬼吗？这下败者组都不稳了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -3827,3 +3827,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 欧 羡慕  那我黑狗师傅呢！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">也挺强的吧 毕竟只有蓝卡受伤了
 
+
+
+*****
+
+####  gulant  
+##### 366#       发表于 2022-8-8 09:42
+
+老咸鱼打进度，星间都市山脉的机器人都是全体攻击，用自己喜爱的从者每次都要消耗一颗石头过(亏本)，是难度大了还是什么原因，不能愉快地过本orz……
+

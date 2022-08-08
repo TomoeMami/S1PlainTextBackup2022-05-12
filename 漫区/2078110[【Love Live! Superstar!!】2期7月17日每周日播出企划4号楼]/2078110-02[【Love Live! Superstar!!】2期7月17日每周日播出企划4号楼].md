@@ -6999,3 +6999,26 @@ ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都整了个意义不明的单亲（约等于没亲）家庭留守儿童了，再多一个努力打工奔小康的贫困户又何妨，后者看着正常多了好吧
 
+
+
+*****
+
+####  saya1892  
+##### 2202#       发表于 2022-8-8 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971761&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-8 05:36</a>
+
+客观来讲，这集是前四集里最正常的一集。如果全季都能维持这个水平，那么编剧的锅就能推回给企划了。
+
+然而 ...</blockquote>
+1期都进人家家里乱翻相簿了，偷窥一下怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+星动画里充斥着大量想一下就会很不舒服的情节，比如1期10话的毫无来由的冷漠同学和天台锐评，所以还是像花田说的那样一边玩手机一边看比较不会受到伤害
+
+*****
+
+####  ViyViy  
+##### 2203#       发表于 2022-8-8 09:48
+
+说起啦哈，我看得可能不仔细印象有偏差，堇在动画里是不是除了S1E10说过谢谢你可可以外好像都没直接叫过可可名字？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
