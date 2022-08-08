@@ -1165,3 +1165,111 @@ dota之神给邪恶明辫的惩罚就是透支自己<img src="https://static.sar
 
 茶队在这个major处于一个舆论隐身的状态，只能从讨论的只言片语知道焦阳又宰了杜鹏又崩了，所有话题都被rng包圆了，跟茶相比五代战机的隐身性能就是个几把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 3135#       发表于 2022-8-8 19:01
+
+我看还是打茶吧，确保多一个直邀，别最后预选大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甩不出去的黄牌  
+##### 3136#       发表于 2022-8-8 19:02
+
+马上阿茶淘汰赛就整个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 3137#       发表于 2022-8-8 19:03
+
+ 本帖最后由 syndrome2032 于 2022-8-8 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980675&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-8 19:01</a>
+茶队在这个major处于一个舆论隐身的状态，只能从讨论的只言片语知道焦阳又宰了杜鹏又崩了，所有话题都被rng ...</blockquote>
+小透明对鳖星来说反而是好消息。
+
+突然想起来。这rng换成小象不就和去年舆论话题一样了。
+
+看样子rng要回去预选关人了
+
+*****
+
+####  蛭人  
+##### 3138#       发表于 2022-8-8 19:04
+
+昨天晚上整的已经挺大的了，玩个钢背都能整活的，虚空整活习以为常，不过好在最后赢了。
+
+*****
+
+####  无聊的神  
+##### 3139#       发表于 2022-8-8 19:04
+
+术士8和术士zai的术士是啥梗啊？
+
+*****
+
+####  一夜秋风袭锦城  
+##### 3140#       发表于 2022-8-8 19:04
+
+鳖茶胜者组我看赢一个bo3名额就有了啊，问题应该不是很大。rng参考去年被老干瘪翻盘之后的状态，八成是噶了。
+
+*****
+
+####  勾陈一  
+##### 3141#       发表于 2022-8-8 19:05
+
+[https://bbs.saraba1st.com/2b/thread-2085835-1-1.html](https://bbs.saraba1st.com/2b/thread-2085835-1-1.html)
+
+投票贴已发（非本人，借号使用）
+
+*****
+
+####  sodah  
+##### 3142#       发表于 2022-8-8 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从算拿多少分能踢了鬼进ti到算多少分不进败者组/淘汰了是吧。
+
+*****
+
+####  山上徹也  
+##### 3143#       发表于 2022-8-8 19:08
+
+夺冠了不就是最没含金量的ti吗，我选择5
+
+*****
+
+####  香蕉芭菲  
+##### 3144#       发表于 2022-8-8 19:08
+
+茶队今年还是很有希望打破魔咒的，最近的曾焦阳发大力，建议都去看看打ts第二把，全世界都看不起蓝猫的时候曾焦阳掏出来掌控雷电，追着老东京的火猫魂飞太有压迫力了。虽然昨天紫猫脑浆了一把，但是第二把帕克出来兜住了。茶能走多远我觉得全看曾焦阳了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ArowRocher  
+##### 3145#       发表于 2022-8-8 19:09
+
+我发现漏油其实挺傲娇的，骂维阿的阿梓看维阿的夜饮潇湘，骂NGA粪坑又总去搬运脑瘫和泥塑内容回来，这是一种外冷内热吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 3146#       发表于 2022-8-8 19:09
+
+二次元major3:0当时都没现在跳的那么厉害，果然经历了水厂的假赛洗礼，集美脑子更不正常了，今年形势可比去年好多了
+
+*****
+
+####  BallanceHZ  
+##### 3147#       发表于 2022-8-8 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980762&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-8 19:08</a>
+茶队今年还是很有希望打破魔咒的，最近的曾焦阳发大力，建议都去看看打ts第二把，全世界都看不起蓝猫的时候 ...</blockquote>
+但是ori颓的时候也是真吓人……比如ti10回家前的那几把对线
+
