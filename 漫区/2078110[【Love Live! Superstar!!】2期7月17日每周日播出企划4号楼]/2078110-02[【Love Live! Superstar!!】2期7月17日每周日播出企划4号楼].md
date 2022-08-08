@@ -7538,3 +7538,19 @@ AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本�
 
 这话题怎么跑到事务所资源的问题了，之前明明在聊企划内的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 2254#       发表于 2022-8-8 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978577&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-8 16:12</a>
+
+现在是推二期生的时期，还采用2+4的带人模式，五老星轮班的时间长导致企划资源分配少的错觉吧。
+
+AB社在企 ...</blockquote>
+AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有明显偏向。
+
+所以这种主要还是看脸，这动画学生会长属于只能靠自己魅力打天下，角色属性天生输了就完蛋的那种
+
