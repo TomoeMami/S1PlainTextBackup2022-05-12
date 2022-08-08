@@ -1416,3 +1416,21 @@ sg本来就是逆风缩卵的啊，赢了吹，输了黑啊，能在sg逆风起�
 
 这么多天了还没solo上吗，搁贴吧爹都认了两轮了，你楼💊
 
+
+
+*****
+
+####  莉拉厨  
+##### 3162#       发表于 2022-8-8 20:22
+
+缩了正常，两个都缩了真的难绷，刀斯林果然是互联网最勇敢的群体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 3163#       发表于 2022-8-8 20:23
+
+指望大鞭哥，只需要版本制裁，搞个节奏三版本，大鞭哥不选潮汐立马就伟，现在这个版本真是对lgd最友好的版本。
+
