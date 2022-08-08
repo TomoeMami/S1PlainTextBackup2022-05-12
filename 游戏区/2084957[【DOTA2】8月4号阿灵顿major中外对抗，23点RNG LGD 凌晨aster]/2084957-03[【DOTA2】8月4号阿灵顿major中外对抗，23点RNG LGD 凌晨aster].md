@@ -1273,3 +1273,51 @@ dota之神给邪恶明辫的惩罚就是透支自己<img src="https://static.sar
 茶队今年还是很有希望打破魔咒的，最近的曾焦阳发大力，建议都去看看打ts第二把，全世界都看不起蓝猫的时候 ...</blockquote>
 但是ori颓的时候也是真吓人……比如ti10回家前的那几把对线
 
+
+
+*****
+
+####  名字不乱取  
+##### 3148#       发表于 2022-8-8 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980772&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-8 19:09</a>
+
+我发现漏油其实挺傲娇的，骂维阿的阿梓看维阿的夜饮潇湘，骂NGA粪坑又总去搬运脑瘫和泥塑内容回来，这是一 ...</blockquote>
+漏油只是喜欢拉着大家一起吃屎<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3149#       发表于 2022-8-8 19:11
+
+刀区几百天没人用了，这次居然派上了用场，我哭死
+
+*****
+
+####  ArowRocher  
+##### 3150#       发表于 2022-8-8 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980796&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-8 19:11</a>
+漏油只是喜欢拉着大家一起吃屎</blockquote>
+看得我都想搬运点“甜甜甜”切片过来了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  excalibur--  
+##### 3151#       发表于 2022-8-8 19:16
+
+这次是nga和sg发大水了么？我看b站还行，天天沉迷拷打那。
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 3152#       发表于 2022-8-8 19:19
+
+皮球和ori打得好我支持鳖星还不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+等一手jeff哥哥一波更新把四个赵云削成狗好吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
