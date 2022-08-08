@@ -4507,3 +4507,15 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 隔壁甚至还做了个投票   进去一看吓死人  该去战斗了！</blockquote>
 隔壁又怎么了
 
+
+
+*****
+
+####  alucardcz  
+##### 426#       发表于 2022-8-8 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983229&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 22:47</a>
+
+隔壁又怎么了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没怎么  开了个2。6满意度投票而已
+
