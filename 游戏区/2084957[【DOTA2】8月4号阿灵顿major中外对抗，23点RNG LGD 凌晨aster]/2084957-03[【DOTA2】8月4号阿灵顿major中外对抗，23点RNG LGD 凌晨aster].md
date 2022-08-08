@@ -858,3 +858,91 @@ B站缩卵的假赛集美一个个已经起跳了，都回来了
 今年的情况是，ti也好西恩刀塔怎么样已经无所谓了，我就是想看a畜死
 何况今年的a畜和集美在赛场外的恶心程度再创新高，光梓畜切片污染版面这一点就够让他翻不了身了
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3098#       发表于 2022-8-8 18:21
+
+何况今年的a畜和集美在赛场外的恶心程度再创新高，光梓畜切片污染版面这一点就够让他翻不了身了
+
+*****
+
+####  trackerList  
+##### 3099#       发表于 2022-8-8 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">往好的方面想：要是今年A畜再送一盾它还好意思接着赖皮吗
+
+*****
+
+####  战狼PTSD  
+##### 3100#       发表于 2022-8-8 18:22
+
+我选择绿色通道
+
+*****
+
+####  CNFH1984  
+##### 3101#       发表于 2022-8-8 18:23
+
+我的评价是，还是让ame和lgd爬罢
+
+*****
+
+####  蛭人  
+##### 3102#       发表于 2022-8-8 18:23
+
+泥潭皮套人版里面的相关帖子是特么的畜生才能想出来的，只能用两个字，恶心，堪比太监论坛。
+
+*****
+
+####  遍体精淋af  
+##### 3103#       发表于 2022-8-8 18:24
+
+别急，到时候集美就又是没有处长，西恩连决赛都进不了，所以有什么理由苛责ame的话术<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 3104#       发表于 2022-8-8 18:25
+
+别急，到时候集美就又是没有处长，西恩连决赛都进不了，所以有什么理由苛责ame的话术<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 3105#       发表于 2022-8-8 18:25
+
+风怒
+
+*****
+
+####  nightmare902015  
+##### 3106#       发表于 2022-8-8 18:25
+
+漏油真的是，狠话撂的一套一套，说不定背包里林肯法球的配件都买好了，就等鸟运卷轴了。
+
+*****
+
+####  名字不乱取  
+##### 3107#       发表于 2022-8-8 18:25
+
+相信懒狗社，相信ame，跪在地上的时候只有一个人能把你扶起来<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 3108#       发表于 2022-8-8 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979354&amp;ptid=2084957" target="_blank">izayoi39 发表于 2022-8-8 17:02</a>
+我永远都不喜欢处长就是这个原因，只会靠队友打局势自己打顺风局的c凭啥拿ti，这2345换个能打节奏能打核的c ...</blockquote>
+眼子
+
+*****
+
+####  逃离二次元  
+##### 3109#       发表于 2022-8-8 18:28
+
+汛期真tm来了啊，缩壳了缩壳了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
