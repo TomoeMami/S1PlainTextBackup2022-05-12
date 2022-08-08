@@ -4098,3 +4098,32 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 泳装最搞的是送虞姬卷死了抽的水狐狸……
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 387#       发表于 2022-8-8 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢了10张护符连个4星礼装都没见到，水紫果断放弃
+
+*****
+
+####  alucardcz  
+##### 388#       发表于 2022-8-8 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979488&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-8 17:12</a>
+
+丢了10张护符连个4星礼装都没见到，水紫果断放弃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的爱就这种程度吗！
+
+*****
+
+####  霧谷藤乃  
+##### 389#       发表于 2022-8-8 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979520&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 17:14</a>
+
+你的爱就这种程度吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缘分未到，不能强求。我已经把目光看向三天后了
+

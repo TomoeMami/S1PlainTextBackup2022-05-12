@@ -506,3 +506,50 @@ ana先知玩得一般，中期他应该跟队友抱团打，留飞留买打6v5
 
 讲道理，刀塔之神也不是不眷顾lgd，只是不眷顾处长，处长要是有鸭头肉那种献祭头发的决心，刀塔之神肯定会原谅处长并且施舍给他一个不朽盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 3057#       发表于 2022-8-8 17:14
+
+谁强支持谁没啥毛病吧
+
+有中国队支持中国队
+
+没中国队哪牛逼吹哪个
+
+*****
+
+####  两三流浪者  
+##### 3058#       发表于 2022-8-8 17:16
+
+吹牛逼哪有黑a畜带感
+
+*****
+
+####  BallanceHZ  
+##### 3059#       发表于 2022-8-8 17:19
+
+幕强不是竞技里最常见的吗，这有啥奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+og粉总不能是因为ana菜做得好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  adretyu67  
+##### 3060#       发表于 2022-8-8 17:20
+
+那话怎么说来着。
+
+誓死不希望NB夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  尸体鲨  
+##### 3061#       发表于 2022-8-8 17:21
+
+ANA做的菜很难吃
+
