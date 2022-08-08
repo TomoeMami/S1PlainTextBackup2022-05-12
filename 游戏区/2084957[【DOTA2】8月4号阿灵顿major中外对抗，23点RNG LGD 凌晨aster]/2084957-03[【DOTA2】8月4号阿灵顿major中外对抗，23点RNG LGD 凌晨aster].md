@@ -3957,3 +3957,576 @@ A也塞回去了<img src="https://static.saraba1st.com/image/smiley/face2017/066
 
 超哥还是要一个人的时候最厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  山上徹也  
+##### 3493#       发表于 2022-8-9 00:11
+
+这背包一个瓶子又买了一个瓶子？何意啊
+
+*****
+
+####  天堂蜘蛛  
+##### 3494#       发表于 2022-8-9 00:11
+
+TB出个刷新也比银月有用吧，虽然这局面出啥其实也差不太多
+
+*****
+
+####  iriyano  
+##### 3495#       发表于 2022-8-9 00:11
+
+超哥忘记自己有瓶子又买了一个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是挞不是派  
+##### 3496#       发表于 2022-8-9 00:12
+
+怎么还在刷啊
+
+*****
+
+####  弈秋  
+##### 3497#       发表于 2022-8-9 00:12
+
+怎么感觉要憋成两年前的vg了
+
+*****
+
+####  Keynes  
+##### 3498#       发表于 2022-8-9 00:12
+
+只有上帝一个人在推塔是吧，另外三个人在野区刷
+
+*****
+
+####  12481632  
+##### 3499#       发表于 2022-8-9 00:12
+
+还在鳖，还在鳖
+
+*****
+
+####  Litccc  
+##### 3500#       发表于 2022-8-9 00:12
+
+又开始带盾刷钱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 3501#       发表于 2022-8-9 00:12
+
+血腥来了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 3502#       发表于 2022-8-9 00:12
+
+好急
+
+*****
+
+####  IG.430  
+##### 3503#       发表于 2022-8-9 00:13
+
+不急，跟他耍耍
+
+*****
+
+####  名字不乱取  
+##### 3504#       发表于 2022-8-9 00:13
+
+尿了，怎么能打成这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3505#       发表于 2022-8-9 00:14
+
+笑死，这波团都能打输
+
+*****
+
+####  天堂蜘蛛  
+##### 3506#       发表于 2022-8-9 00:14
+
+我在看TI8胜者组G3？？？？？？不会吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3507#       发表于 2022-8-9 00:14
+
+这里斯也太喜剧了，冲刚被猪脸，然后被两拳打死
+
+*****
+
+####  やト  
+##### 3508#       发表于 2022-8-9 00:14
+
+  卧槽 这打的什么几把
+
+*****
+
+####  你谁  
+##### 3509#       发表于 2022-8-9 00:14
+
+太搞笑了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 3510#       发表于 2022-8-9 00:14
+
+啊？啊？？？
+
+
+
+*****
+
+####  12481632  
+##### 3511#       发表于 2022-8-9 00:14
+
+吐了呀<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 3512#       发表于 2022-8-9 00:14
+
+rng这是何意啊
+
+*****
+
+####  是挞不是派  
+##### 3513#       发表于 2022-8-9 00:14
+
+看吐了呀
+
+*****
+
+####  弈秋  
+##### 3514#       发表于 2022-8-9 00:14
+
+这也能输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3515#       发表于 2022-8-9 00:14
+
+md这rng是真的nb<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 3516#       发表于 2022-8-9 00:14
+
+笑了
+
+*****
+
+####  逃离二次元  
+##### 3517#       发表于 2022-8-9 00:14
+
+送一波
+
+*****
+
+####  蛭人  
+##### 3518#       发表于 2022-8-9 00:14
+
+这帕克真的搞笑，光法这波还能活下来，老北京。
+
+*****
+
+####  吃货红毛  
+##### 3519#       发表于 2022-8-9 00:14
+
+不会又他娘的这波我无敌要入吧
+
+*****
+
+####  cwlo  
+##### 3520#       发表于 2022-8-9 00:14
+
+哇，神了神了
+
+*****
+
+####  haruhiismer  
+##### 3521#       发表于 2022-8-9 00:14
+
+这是何意
+
+*****
+
+####  Litccc  
+##### 3522#       发表于 2022-8-9 00:14
+
+死去的ti8决赛又开始攻击我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 3523#       发表于 2022-8-9 00:14
+
+ 我大晚上看这种畜生比赛干嘛？
+
+*****
+
+####  反方向的波  
+##### 3524#       发表于 2022-8-9 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">打出了茶队风采
+
+*****
+
+####  我爱撩菜  
+##### 3525#       发表于 2022-8-9 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能输嘛
+
+*****
+
+####  聚散浮云  
+##### 3526#       发表于 2022-8-9 00:15
+
+这上高好tm脑浆
+
+*****
+
+####  战狼PTSD  
+##### 3527#       发表于 2022-8-9 00:15
+
+只能说，查猪还是吹出了屁声
+
+*****
+
+####  nowaki  
+##### 3528#       发表于 2022-8-9 00:15
+
+搞笑的人有点多
+
+*****
+
+####  Keynes  
+##### 3529#       发表于 2022-8-9 00:15
+
+好好好
+
+*****
+
+####  a1370303  
+##### 3530#       发表于 2022-8-9 00:15
+
+笑了，这打的是啥？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mkii量产型  
+##### 3531#       发表于 2022-8-9 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们3000分上高都是这样上的，原来你们职业选手也是这个吊样吗，我年轻十岁有没有机会打职业
+
+*****
+
+####  北条早苗  
+##### 3532#       发表于 2022-8-9 00:15
+
+戏剧演员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 3533#       发表于 2022-8-9 00:15
+
+脑浆脑浆我的朋友
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你谁  
+##### 3534#       发表于 2022-8-9 00:15
+
+还是喜剧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 3535#       发表于 2022-8-9 00:16
+
+李斯何意啊
+
+*****
+
+####  12481632  
+##### 3536#       发表于 2022-8-9 00:16
+
+李斯无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 3537#       发表于 2022-8-9 00:16
+
+这帕克，羊刀羊刀不出，林肯林肯不出，出个大根是吧。
+
+*****
+
+####  天堂蜘蛛  
+##### 3538#       发表于 2022-8-9 00:16
+
+哇，李斯真的csdx
+
+*****
+
+####  弈秋  
+##### 3539#       发表于 2022-8-9 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这tm怎么打的
+
+*****
+
+####  名字不乱取  
+##### 3540#       发表于 2022-8-9 00:16
+
+？**在打什么<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">我急眼了
+
+
+
+*****
+
+####  4591  
+##### 3541#       发表于 2022-8-9 00:16
+
+我知道RNG为什么这比赛都不抱团推高了，真就一上高全是脑浆射光的样子，没一个正常人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 3542#       发表于 2022-8-9 00:16
+
+好好好，5打1被还反杀一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 3543#       发表于 2022-8-9 00:16
+
+查猪真的搞笑
+
+*****
+
+####  Acatv  
+##### 3544#       发表于 2022-8-9 00:16
+
+这把李斯好吧 不多说了
+
+*****
+
+####  trackerList  
+##### 3545#       发表于 2022-8-9 00:16
+
+看呕了呀
+
+*****
+
+####  战狼PTSD  
+##### 3546#       发表于 2022-8-9 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984363&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 00:16</a>
+
+这帕克，羊刀羊刀不出，林肯林肯不出，出个大根是吧。</blockquote>
+可能昨天被骂了不出大根切戴泽，今天就出了
+
+*****
+
+####  轮太  
+##### 3547#       发表于 2022-8-9 00:16
+
+少林功夫好哇
+
+真地好~~
+
+*****
+
+####  是挞不是派  
+##### 3548#       发表于 2022-8-9 00:16
+
+这是何意啊
+
+*****
+
+####  sodah  
+##### 3549#       发表于 2022-8-9 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真把大伙看吐了。
+
+*****
+
+####  反方向的波  
+##### 3550#       发表于 2022-8-9 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">味道太对了味道太对了
+
+*****
+
+####  白色的120  
+##### 3551#       发表于 2022-8-9 00:17
+
+少林少林
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 3552#       发表于 2022-8-9 00:17
+
+茶猪去报名欢乐喜剧人吧，这两波真的笑的我肚子疼
+
+*****
+
+####  逃离二次元  
+##### 3553#       发表于 2022-8-9 00:17
+
+哎哟不会真翻了吧
+
+*****
+
+####  弈秋  
+##### 3554#       发表于 2022-8-9 00:17
+
+急急急急
+
+*****
+
+####  やト  
+##### 3555#       发表于 2022-8-9 00:17
+
+ 这大炮钢背简直战神啊
+
+*****
+
+####  千千千千鸟  
+##### 3556#       发表于 2022-8-9 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看的想笑
+
+*****
+
+####  ArowRocher  
+##### 3557#       发表于 2022-8-9 00:18
+
+卧槽鞭哥在玩毒啊龙
+
+*****
+
+####  天堂蜘蛛  
+##### 3558#       发表于 2022-8-9 00:18
+
+9条命打6条命，我不好说
+
+*****
+
+####  雅朵莉雀  
+##### 3559#       发表于 2022-8-9 00:18
+
+RNG的比赛真是永远不让你失望啊
+
+我真的服了，4万TB有小强亚巴顿反手，为什么不能平推呢
+
+*****
+
+####  Centrum  
+##### 3560#       发表于 2022-8-9 00:18
+
+圆圆的笑脸 臭臭的嘴巴 丢人的手活
+
+*****
+
+####  morwhipppo  
+##### 3561#       发表于 2022-8-9 00:18
+
+感觉茶打boom都眉清目秀了
+
+*****
+
+####  马儿在流泪  
+##### 3562#       发表于 2022-8-9 00:19
+
+这RNG真是新一代的憋茶啊
+
+*****
+
+####  haruhiismer  
+##### 3563#       发表于 2022-8-9 00:19
+
+紫猫对不起，你大后期天下无敌啊
+
+*****
+
+####  弈秋  
+##### 3564#       发表于 2022-8-9 00:20
+
+这刚被无敌了
+
+*****
+
+####  Litccc  
+##### 3565#       发表于 2022-8-9 00:20
+
+机械之心刚被，无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 3566#       发表于 2022-8-9 00:20
+
+ 机 械 之 心
+
+*****
+
+####  4591  
+##### 3567#       发表于 2022-8-9 00:20
+
+看了眼隔壁，OG都第二局开了
+
+*****
+
+####  nowaki  
+##### 3568#       发表于 2022-8-9 00:20
+
+机械之心刚背
+
+*****
+
+####  你谁  
+##### 3569#       发表于 2022-8-9 00:20
+
+这怎么打
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 3570#       发表于 2022-8-9 00:20
+
+喜欢鳖呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
