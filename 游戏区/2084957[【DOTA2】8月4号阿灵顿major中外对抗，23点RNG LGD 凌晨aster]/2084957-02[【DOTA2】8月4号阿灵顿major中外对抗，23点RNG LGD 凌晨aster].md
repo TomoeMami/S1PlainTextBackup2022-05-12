@@ -12269,3 +12269,28 @@ s1的屏蔽词每次都这么喜感<img src="https://static.saraba1st.com/image/
 
 查猪精那VIP就不说了，眼里除了幽鬼就是跑
 
+
+
+*****
+
+####  lyjssj  
+##### 2993#       发表于 2022-8-8 14:23
+
+ 本帖最后由 lyjssj 于 2022-8-8 14:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波小组赛看完感觉战队档位是这样的
+
+T1:lgd
+
+T1.5:雪碧，og，鳖星，vp
+
+T2:rng，液体，秘密（老逼队加成），nigma（老逼队加成），eg，xg
+
+剩下的差不多都可以归入臭鱼烂虾
+
+然后纸面上能和lgd掰手腕的T1.5队伍里，og还有点嫩，vp看见lgd感觉像老鼠看见猫一样抱头鼠窜
+
+除了雪碧如果重返巅峰还有一战之力外，可能也就憋星能给lgd造成困扰了……
+
+又是lgd最有希望的一年啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
