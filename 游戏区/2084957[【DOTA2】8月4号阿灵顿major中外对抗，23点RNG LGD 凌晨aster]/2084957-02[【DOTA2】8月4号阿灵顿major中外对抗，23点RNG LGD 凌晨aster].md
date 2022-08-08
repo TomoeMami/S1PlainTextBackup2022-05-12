@@ -11719,3 +11719,35 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 昨天说什么来着？给戏也接不住啊，第二把LGD的BP特别奇怪，伐木机兽王ban了大概率出分身系英雄，和戴泽走一路玛西过来一个暗影波就要死，可能不知道查理斯会**然后选个幽鬼吗？这下败者组都不稳了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nxmonitor  
+##### 2936#       发表于 2022-8-8 09:54
+
+还有18年完美电竞的事情别说maybe，那年不给查理斯给国都出不了的bian才是离谱好吧，而且那时候发育三bian玩得非常不好的，小鹿之类都拿不出来……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 2937#       发表于 2022-8-8 09:55
+
+骄阳蓝猫打雪碧第二场还是挺漂亮的，预判火猫飞用滚提前截击，狠狠秀了下，切这段的人不少
+
+其他好像就没啥了
+
+*****
+
+####  lyjssj  
+##### 2938#       发表于 2022-8-8 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972974&amp;ptid=2084957" target="_blank">朝奈 发表于 2022-8-8 09:30</a>
+
+小组赛相同分数怎么算排名的?
+
+现在FNC是9-7,  OG/VP/RNG最后一轮完都是9-7的话是怎么算谁去败者组 ...</blockquote>
+加赛
+
+2个队的话bo3，多个队的话循环bo1好像
+

@@ -3836,3 +3836,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 老咸鱼打进度，星间都市山脉的机器人都是全体攻击，用自己喜爱的从者每次都要消耗一颗石头过(亏本)，是难度大了还是什么原因，不能愉快地过本orz……
 
+
+
+*****
+
+####  qixinno2  
+##### 367#       发表于 2022-8-8 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要找罪受 现在强卡那么多 直接爆过去算了
+
