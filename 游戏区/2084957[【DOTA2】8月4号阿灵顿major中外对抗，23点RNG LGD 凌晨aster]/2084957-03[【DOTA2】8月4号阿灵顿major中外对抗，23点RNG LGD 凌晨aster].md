@@ -6819,3 +6819,247 @@ rng的比赛真是刺激
 
 是个你b大up，也算是个公众人物了，怎么就这么傻逼这么贱呢
 
+
+
+*****
+
+####  haruhiismer  
+##### 3866#       发表于 2022-8-9 01:21
+
+还得是双刀资源狗都不出
+
+*****
+
+####  ninini212  
+##### 3867#       发表于 2022-8-9 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985164&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 01:20</a>
+
+这两个队是G2才发现下一场的对手吗？那上一把硬拉60分钟干嘛啊</blockquote>
+因为RNG2:0是有可能去胜者组的呀
+
+他输了1：1就是马体打BOOM
+
+他输2：0就是他打BOOM
+
+所以算计就是从他输开始
+
+*****
+
+####  反方向的波  
+##### 3868#       发表于 2022-8-9 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985074&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-9 01:09</a>
+有没有顶级高手楼友讲讲为啥蓝猫又能玩了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">实际上强度还是不行，你看这把好多次滚几下就空蓝了
+
+*****
+
+####  haruhiismer  
+##### 3869#       发表于 2022-8-9 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985182&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 01:22</a>
+实际上强度还是不行，你看这把好多次滚几下就空蓝了</blockquote>
+mdy的人说不出资源就行资源狗都不出
+
+*****
+
+####  千千千千鸟  
+##### 3870#       发表于 2022-8-9 01:23
+
+蚂蚁不处个暗灭吗，一点伤害都没啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  mkii量产型  
+##### 3871#       发表于 2022-8-9 01:23
+
+液体也是个脑瘫队，这不T过来打，开局我就说RNG这五个英雄能刮死就不错了
+
+*****
+
+####  ArowRocher  
+##### 3872#       发表于 2022-8-9 01:24
+
+小蚂蚁时光倒流失败
+
+*****
+
+####  千千千千鸟  
+##### 3873#       发表于 2022-8-9 01:24
+
+ana故意的？有点难看了吧这波<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 3874#       发表于 2022-8-9 01:24
+
+RNG大舞台，有病你就来。
+
+*****
+
+####  名字不乱取  
+##### 3875#       发表于 2022-8-9 01:24
+
+ 本帖最后由 名字不乱取 于 2022-8-9 01:26 编辑 
+
+ana已经神志不清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怀疑是准备早点下班找个队回来爆炒了
+
+*****
+
+####  Keynes  
+##### 3876#       发表于 2022-8-9 01:25
+
+融入了，只能说这游戏输多了真的会变蠢
+
+*****
+
+####  a1370303  
+##### 3877#       发表于 2022-8-9 01:25
+
+这把什么狂野doto，看呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 3878#       发表于 2022-8-9 01:26
+
+RNG有团队战术吗？怎么感觉都在各打各的
+
+*****
+
+####  弈秋  
+##### 3879#       发表于 2022-8-9 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么肌肉互搂
+
+*****
+
+####  北条早苗  
+##### 3880#       发表于 2022-8-9 01:26
+
+蓝猫为什么不行看这波团就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 3881#       发表于 2022-8-9 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985205&amp;ptid=2084957" target="_blank">a1370303 发表于 2022-8-9 01:25</a>
+
+这把什么狂野doto，看呆了
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杯赛特有的输了的人路更好走
+
+*****
+
+####  haruhiismer  
+##### 3882#       发表于 2022-8-9 01:26
+
+这打得太狂野了和天梯一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是挞不是派  
+##### 3883#       发表于 2022-8-9 01:26
+
+两边打得脑浆横飞啊
+
+*****
+
+####  BallanceHZ  
+##### 3884#       发表于 2022-8-9 01:26
+
+这两边打起来十个人的脑浆乱飞啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wizder  
+##### 3885#       发表于 2022-8-9 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985122&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-9 01:15</a>
+
+奇怪了 一些集美为啥不滚回去他们自己的地方呢 在大家都在讨论游戏的时候来恶心人
+
+ ...</blockquote>
+那谁让你先说的咯？先撩者贱啊 自己嘴贱不让说的咯
+
+*****
+
+####  nightmare902015  
+##### 3886#       发表于 2022-8-9 01:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大部分人昨天被lgd翻盘就已经蠢了，今天还来一次，很难不脑瘫。
+
+*****
+
+####  applebloom  
+##### 3887#       发表于 2022-8-9 01:27
+
+纯纯的天梯局
+
+*****
+
+####  逃离二次元  
+##### 3888#       发表于 2022-8-9 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985220&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:27</a>
+
+那谁让你先说的咯？先撩者贱啊 自己嘴贱不让说的咯</blockquote>
+我讨论游戏多还是你讨论游戏多？嘴贱还不自知是吧
+
+*****
+
+####  4591  
+##### 3889#       发表于 2022-8-9 01:29
+
+这是纯粹的肌肉刀塔，太狂野了，突出一个激情互搂，说实话，象看网文，只要不带脑子还是觉得很好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 3890#       发表于 2022-8-9 01:29
+
+金箍棒出了，这下应该能打得动了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3891#       发表于 2022-8-9 01:31
+
+上帝的肌肉！
+
+*****
+
+####  haruhiismer  
+##### 3892#       发表于 2022-8-9 01:31
+
+肌肉doto搂赢了
+
+*****
+
+####  nightmare902015  
+##### 3893#       发表于 2022-8-9 01:31
+
+硬啊，小蚂蚁
+
+*****
+
+####  名字不乱取  
+##### 3894#       发表于 2022-8-9 01:31
+
+上帝时光倒流了几年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 3895#       发表于 2022-8-9 01:31
+
+早知道，还得是上帝<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
