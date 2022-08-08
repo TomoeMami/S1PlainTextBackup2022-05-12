@@ -9666,3 +9666,53 @@ pic2.png
 
 绷，鳖茶甚至可以一分不拿进ti，前提是vp液体和rng不拿分，这下真巴不得rng死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 4180#         楼主| 发表于 2022-8-9 07:21
+
+刚醒，听说rng输了
+
+*****
+
+####  遍体精淋af  
+##### 4181#       发表于 2022-8-9 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986018&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-9 07:21</a>
+刚醒，听说rng输了</blockquote>
+1比1，不过rng不能拿两分就是铁败者组没区别
+
+*****
+
+####  你谁  
+##### 4182#       发表于 2022-8-9 07:25
+
+鉴定为扭曲的集美+1
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  中已矣  
+##### 4183#       发表于 2022-8-9 07:28
+
+ti有没有人重新开个楼，想正常讨论其他队的去新楼，想÷厨处憋畜的留在这楼。
+
+*****
+
+####  北欧王座  
+##### 4184#       发表于 2022-8-9 07:29
+
+界定“正常”的权力有够方便的，想开自己找几个哥们开，不要戏这么多。
+
+*****
+
+####  沈淮  
+##### 4185#         楼主| 发表于 2022-8-9 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986024&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-9 07:24</a>
+1比1，不过rng不能拿两分就是铁败者组没区别</blockquote>
+我看群友说3万上高被翻了，所以直接鉴定为输
+
