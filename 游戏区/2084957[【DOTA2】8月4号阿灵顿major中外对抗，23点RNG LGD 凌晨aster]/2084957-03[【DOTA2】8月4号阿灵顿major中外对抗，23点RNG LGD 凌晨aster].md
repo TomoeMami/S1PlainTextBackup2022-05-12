@@ -418,3 +418,91 @@ ana先知玩得一般，中期他应该跟队友抱团打，留飞留买打6v5
 
 去年是蹭3d皮套狗嘉然，今年是入2d皮套狗阿梓，a畜退步肉眼可见
 
+
+
+*****
+
+####  izayoi39  
+##### 3049#       发表于 2022-8-8 17:02
+
+我永远都不喜欢处长就是这个原因，只会靠队友打局势自己打顺风局的c凭啥拿ti，这2345换个能打节奏能打核的c去年怎么可能夺不了冠
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 3050#       发表于 2022-8-8 17:03
+
+明年ame宣布自己是初音未来十年老粉是吧
+
+*****
+
+####  天堂蜘蛛  
+##### 3051#       发表于 2022-8-8 17:03
+
+这major还没打完怎么就在谈举盾的事情了
+
+楼里有些人是比集美还急啊
+
+奉劝句看比赛无非找点乐子，代入感太强大可不必，谁打的好支持谁就行了
+
+*****
+
+####  沈淮  
+##### 3052#         楼主| 发表于 2022-8-8 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979318&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-8 17:00</a>
+
+去年是蹭3d皮套狗嘉然，今年是入2d皮套狗阿梓，a畜退步肉眼可见</blockquote>
+好歹进步了，吴涛鸿儒了孝婊梓
+
+*****
+
+####  chilno  
+##### 3053#       发表于 2022-8-8 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979364&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-8 17:03</a>
+
+这major还没打完怎么就在谈举盾的事情了
+
+楼里有些人是比集美还急啊
+
+奉劝句看比赛无非找点乐子，代入感太强 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我寻思谁强支持谁比干瘪粉还糟糕吧
+
+没倾向性看个毛比赛啊
+
+*****
+
+####  天堂蜘蛛  
+##### 3054#       发表于 2022-8-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979406&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-8 17:06</a>
+
+我寻思谁强支持谁比干瘪粉还糟糕吧
+
+没倾向性看个毛比赛啊</blockquote>
+那总不能看比赛把自己看成脑淤血啊
+
+最好的办法不就是谁打的好支持谁不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 3055#       发表于 2022-8-8 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979406&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-8 17:06</a>
+
+我寻思谁强支持谁比干瘪粉还糟糕吧
+
+没倾向性看个毛比赛啊</blockquote>
+倾向CN DOTA该如何支持呢...
+
+*****
+
+####  遍体精淋af  
+##### 3056#       发表于 2022-8-8 17:09
+
+讲道理，刀塔之神也不是不眷顾lgd，只是不眷顾处长，处长要是有鸭头肉那种献祭头发的决心，刀塔之神肯定会原谅处长并且施舍给他一个不朽盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
