@@ -7606,3 +7606,14 @@ AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 2259#       发表于 2022-8-8 23:51
+
+小千有school days的风范了w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
