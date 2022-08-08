@@ -11423,3 +11423,31 @@ ghost客厅滑跪，起码不用担心自己被踢了<img src="https://static.sa
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">淘汰赛一切皆有可能，另说
 不过卡龟这两天打的是越来越差了，对让你滚而言是个相当大的坏消息
 
+
+
+*****
+
+####  暴走的包子  
+##### 2905#       发表于 2022-8-8 07:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡猴是用自己命给兄弟搭舞台的类型啊，几个兄弟轮流拉裤他也没办法
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pikamee  
+##### 2906#       发表于 2022-8-8 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972174&amp;ptid=2084957" target="_blank">Arhjoy 发表于 2022-8-8 07:52</a>
+
+茶之前又不是没干过胜者组连输两轮直接回家的活，今天打东南亚队还不够脑浆么，感觉要不是新规定不让上厕 ...</blockquote>
+那次是国内第一直通的胜者组，整个major一场比赛没赢就滚回家了。要是是小组赛赢上去的胜者组，一轮游也没显得那么丢人
+
+*****
+
+####  woyzeck  
+##### 2907#       发表于 2022-8-8 07:58
+
+看了第一视角，发现冠超才是更畜的那个。
+
