@@ -11658,3 +11658,35 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蛭人  
+##### 2929#       发表于 2022-8-8 09:24
+
+有什么可缩的，最后还不是乐不思蜀。
+
+*****
+
+####  seki_m  
+##### 2930#       发表于 2022-8-8 09:29
+
+半夜起床看了眼，嫩大优势都能被翻啊？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝奈  
+##### 2931#       发表于 2022-8-8 09:30
+
+小组赛相同分数怎么算排名的?
+
+现在FNC是9-7,  OG/VP/RNG最后一轮完都是9-7的话是怎么算谁去败者组
+
+*****
+
+####  弈秋  
+##### 2932#       发表于 2022-8-8 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我忘记定闹钟了
+

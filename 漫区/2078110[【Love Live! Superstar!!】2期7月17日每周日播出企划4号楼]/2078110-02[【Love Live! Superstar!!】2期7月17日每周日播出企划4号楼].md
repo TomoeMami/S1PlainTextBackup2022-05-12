@@ -6965,3 +6965,12 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 ksks：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">R3提交入会申请的时候不是当场找了一圈才找到ksks那吗
 
+
+
+*****
+
+####  adw667  
+##### 2198#       发表于 2022-8-8 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">要是给可可套灰毛吃瘪之类的定式的话不如把笔交给鲤鱼让她写自己
+
