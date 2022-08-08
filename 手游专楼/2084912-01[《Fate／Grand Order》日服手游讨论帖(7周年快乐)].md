@@ -4519,3 +4519,12 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 隔壁又怎么了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没怎么  开了个2。6满意度投票而已
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 427#       发表于 2022-8-8 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那投票不是几天前就开了么，我记得前几页不少“对我来说就是10分/9分”的回复
+

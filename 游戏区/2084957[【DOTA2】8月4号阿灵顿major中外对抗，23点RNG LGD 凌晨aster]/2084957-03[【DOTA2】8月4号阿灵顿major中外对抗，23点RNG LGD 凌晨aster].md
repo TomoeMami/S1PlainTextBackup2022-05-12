@@ -2013,3 +2013,140 @@ G1没看后面几把算是看完了要不您给讲讲？
 
 有火对着处长去发泄呗，在这楼里瞎几把对着坛友开炮有个几把用啊
 
+
+
+*****
+
+####  蛭人  
+##### 3230#       发表于 2022-8-8 23:02
+
+云比赛就别聊了吧，都2022了，还搁这儿TI10是吧，不如期待TI11明鞭NTS一个在状态，一个不偿还，好吧，助力ame圆梦！
+
+*****
+
+####  trackerList  
+##### 3231#       发表于 2022-8-8 23:03
+
+打打打打打打打打打打打打打打打打打打打打打
+
+*****
+
+####  战狼PTSD  
+##### 3232#       发表于 2022-8-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983296&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-8 22:52</a>
+
+傻逼
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+这2楼还是条撸狗，看过这个贴
+
+*****
+
+####  天堂蜘蛛  
+##### 3233#       发表于 2022-8-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983416&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-8 23:02</a>
+
+云比赛就别聊了吧，都2022了，还搁这儿TI10是吧，不如期待TI11明鞭NTS一个在状态，一个不偿还，好吧，助力a ...</blockquote>
+YYGQ这么久连正面回应勇气的都没了么？
+
+笑死也不知道谁指望处长圆梦
+
+反正我看比赛现在就图个乐呵，谁圆不圆梦管我屁事呢
+
+但是您呢？
+
+*****
+
+####  弈秋  
+##### 3234#       发表于 2022-8-8 23:05
+
+帕克电魂，直接拿出版本答案
+
+*****
+
+####  战狼PTSD  
+##### 3235#       发表于 2022-8-8 23:06
+
+比赛都他妈开了还在TI10
+
+*****
+
+####  iriyano  
+##### 3236#       发表于 2022-8-8 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+服了比赛都开了还在这ti10呢
+
+*****
+
+####  -SLSL-  
+##### 3237#       发表于 2022-8-8 23:06
+
+都交给我吧，最后的战役！
+
+*****
+
+####  蛭人  
+##### 3238#       发表于 2022-8-8 23:07
+
+ 本帖最后由 蛭人 于 2022-8-8 23:08 编辑 
+
+看比赛吧，别云比赛了。
+
+*****
+
+####  反方向的波  
+##### 3239#       发表于 2022-8-8 23:08
+
+看到超帕先预测一个1：1了兄弟们<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 3240#       发表于 2022-8-8 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983306&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-8 22:53</a>
+
+也不算下面八心大吧，G1精灵拍拍G2水牛也不能说有阵容有多烂随便打，都算老干瘪的绝活体系了，没打过就是没 ...</blockquote>
+精灵拍拍那把阵容一塌糊涂，控制就萨尔瞥视和滚滚大，除非对线开始就一直优势压死TS，不然这拍拍要到大晕锤才不蠢，而对手人手一控制……ame自己的问题则是下路没怎么压到潮汐呢，还是根本就没打过潮汐……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ArowRocher  
+##### 3241#       发表于 2022-8-8 23:09
+
+侧脸说话是本楼特色
+
+*****
+
+####  天堂蜘蛛  
+##### 3242#       发表于 2022-8-8 23:10
+
+这选个TB是准备直接连线都不要了？
+
+*****
+
+####  windhawind2  
+##### 3243#       发表于 2022-8-8 23:10
+
+rng选个亚巴顿是何意啊wc<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3244#       发表于 2022-8-8 23:10
+
+tb能打亚龙吗
+
+*****
+
+####  吃货红毛  
+##### 3245#       发表于 2022-8-8 23:10
+
+这RNG阵容是选完就准备12分钟了吗
+
