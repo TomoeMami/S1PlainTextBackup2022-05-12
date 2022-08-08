@@ -12205,3 +12205,54 @@ maybe昨天第二把犯病也很厉害啊，一个puck出个巫师之刃A人都�
 
 看了下翻盘的切片，ana先知和maybe puck这切入问题都很大<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fayespike  
+##### 2988#       发表于 2022-8-8 13:21
+
+一个只带危险线，野怪安全线全让，被杀的连对面4号位经济都不如的幽鬼就是不出点金手硬憋分身斧
+
+三号位电魂bkb之后刷新球全程在鸟上，幽鬼分身和电魂刷新一波allin
+
+这个计划肯定是一开始崩了之后就制定的
+
+*****
+
+####  重名的mufasa  
+##### 2989#       发表于 2022-8-8 13:22
+
+我又看了一遍录像.
+
+先知第一次飞入人群的时候是去a被捆树的土猫.
+
+落地的同时幽鬼就开大跟了过来,同时准备绕后的电魂也直接开了bkb冲了过来.
+
+这时候**其实就在身边,只是被滚滚撞了两次.
+
+之后先知被ug加电魂打到半血走下高坡.
+
+这时候**不管是吐口痰还是推一下先知都能活,但是**选择扭头走,把自己推下高台,然后tp走.
+
+*****
+
+####  名字不乱取  
+##### 2990#       发表于 2022-8-8 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56976319&amp;ptid=2084957" target="_blank">重名的mufasa 发表于 2022-8-8 13:22</a>
+
+我又看了一遍录像.
+
+先知第一次飞入人群的时候是去a被捆树的土猫.
+
+落地的同时幽鬼就开大跟了过来,同时准备绕 ...</blockquote>
+s1的屏蔽词每次都这么喜感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 2991#       发表于 2022-8-8 13:30
+
+到ti决赛日前持续性缩壳<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
