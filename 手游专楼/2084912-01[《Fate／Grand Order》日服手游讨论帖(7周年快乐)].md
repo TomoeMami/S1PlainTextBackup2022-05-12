@@ -3922,3 +3922,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 有条件的话三宝石洗地最快
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 374#       发表于 2022-8-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973417&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-8 10:06</a>
+终于喂了一个120级出来，这几天刷的狗粮和qp全用完了</blockquote>
+md秃子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

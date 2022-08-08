@@ -11929,3 +11929,49 @@ abed1胜0负</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是洗a处，但这个版本一号位的确难玩，甚至二号位也不好玩，三号位显得太重要了。
 
+
+
+*****
+
+####  萩原组土狼p  
+##### 2957#       发表于 2022-8-8 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973194&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-8 09:51</a>
+
+昨天说什么来着？给戏也接不住啊，第二把LGD的BP特别奇怪，伐木机兽王ban了大概率出分身系英雄，和戴泽走一 ...</blockquote>
+就是公式化bp，ban伐木机兽王这种线上强势中后期也厉害能限制大哥的英雄
+
+放**这种只有对线在他们看来的derb英雄，然后让大哥吃屎，让他后面发育，然后4赵云把对面干死，反正**这种英雄过了对线期作用少一半，没有控制，没有爆发，没有移速，只能推进，玩都玩死了，反正你也必须嘚选
+
+*****
+
+####  BallanceHZ  
+##### 2958#       发表于 2022-8-8 11:23
+
+这版本劣势路动不动就是viper 玛西 电棍 大锤这些玩意，1号位确实难打
+
+*****
+
+####  ArowRocher  
+##### 2959#       发表于 2022-8-8 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974578&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-8 11:10</a>
+说实话现在世界范围内都没有什么表现稳定的C，一个个发病的时候全在犯罪
+
+—— 来自 Xiaomi Redmi Note 8 P ...</blockquote>
+某种角度来说，ti也是谁病情轻谁出院
+
+*****
+
+####  Litccc  
+##### 2960#       发表于 2022-8-8 11:24
+
+那不就是最有希望夺冠的版本么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 2961#       发表于 2022-8-8 11:27
+
+坐等今年的ti lgd的经典剧本  不是不相信4赵云 实在是不相信ame...
+

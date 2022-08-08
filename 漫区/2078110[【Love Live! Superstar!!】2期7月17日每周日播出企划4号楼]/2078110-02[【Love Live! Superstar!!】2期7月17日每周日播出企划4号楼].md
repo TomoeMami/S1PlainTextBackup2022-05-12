@@ -7057,3 +7057,22 @@ ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫�
 
 红蓝写的真还行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别要求太多
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2207#       发表于 2022-8-8 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974207&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-8 10:51</a>
+又去看了下虹s2e4对比了下dd和红蓝。就命题作文来说，花田写的还是可以的，该有的都给你安排上，问题还是出 ...</blockquote>
+还是Lovelive基础设定的问题，本身这个比赛也没有什么相对严谨的设定，本身形式又有点偏向选秀，在动画剧情里输与赢营造得非常主观，又因为是偶像番，所以注定不可能走体育番那种写法，以竞赛作为引子和框架来构建剧情没问题，但是一但把剧情过多放在对竞赛本身的思考上，就可能出现很多问题。像星二期动画之前的剧情有纠结在“赢”，“加人”里，要是体育番，恐怕这问题很容易迎刃而解，而在星团这里，问题就变多了…
+
+*****
+
+####  Enakina  
+##### 2208#       发表于 2022-8-8 11:29
+
+<img src="https://p.sda1.dev/6/0f2eac9eb31871517c20a68b016d5dd2/-771769208.jpg" referrerpolicy="no-referrer">
+草，这台词写出来觉得很幽默吗
+
