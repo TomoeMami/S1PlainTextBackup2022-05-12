@@ -6925,3 +6925,21 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 以上观点非常的个人，非常的主观，也不能代表所有可推想法，对于这一集来说也是钻牛角尖了，有异议的坛友轻喷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2194#       发表于 2022-8-8 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972553&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-8 08:53</a>
+睡了一觉起来，想了想，主线这边俩人的剧情我没有多大的意见，这一集从我个人角度来看，我很难给出“差强人 ...</blockquote>
+其实不光是可可，大多数角色在自己的场合还有点灵性，出了自己的场合就陷入几个定式来来回回，完全取决于制作组想不想得起来要塑造这个角色。这一问题第一季就有点，第二季更重了。而且可可自己的场合下表现很好，像恋这种如今变成边缘bot也没有很大反差。
+
+*****
+
+####  JustW_3  
+##### 2195#       发表于 2022-8-8 09:07
+
+风怒
+
