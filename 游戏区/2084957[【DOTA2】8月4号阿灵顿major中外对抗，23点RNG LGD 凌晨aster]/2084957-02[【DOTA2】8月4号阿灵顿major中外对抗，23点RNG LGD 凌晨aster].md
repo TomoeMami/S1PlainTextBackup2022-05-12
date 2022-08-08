@@ -11553,3 +11553,30 @@ TSM三个打工仔要是把fnc抬到ti这有点好笑了
 —— 来自 Xiaomi Redmi Note 8 Pro, Andr ...</blockquote>
 大家都是脑浆队伍，不好说。
 
+
+
+*****
+
+####  蛭人  
+##### 2918#       发表于 2022-8-8 08:25
+
+建议哪个队打的好支持哪个队，这样不会高血压。
+
+*****
+
+####  中已矣  
+##### 2919#       发表于 2022-8-8 08:30
+
+<blockquote>莉拉厨 发表于 2022-8-8 08:03
+我的说法：好像这次是瑞士轮规则，不加赛。entity和雪碧同分，都有一个0-2，而前者输给茶队后者输给EG， ...</blockquote>
+之前看不涉及胜负分组的不来赛
+
+*****
+
+####  夏溪澪mio  
+##### 2920#       发表于 2022-8-8 08:33
+
+还好没看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">rng后面还有心气吗被打成这样
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
