@@ -4302,3 +4302,45 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 哪里说的11号  我没看到啊 只看到个生放送预告</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我觉得下周三YLS做的出来了！但我好想抽卡。所以希望10号
 
+
+
+*****
+
+####  qixinno2  
+##### 407#       发表于 2022-8-8 20:42
+
+ 本帖最后由 qixinno2 于 2022-8-8 20:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981722&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 20:35</a>
+
+哪里说的11号  我没看到啊 只看到个生放送预告</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 丢人了 是10号
+
+*****
+
+####  霧谷藤乃  
+##### 408#       发表于 2022-8-8 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我重新去看了一下
+
+◆番組タイトル◆
+
+「Fate/Grand Order カルデア放送局 ライト版 ～水着イベント2022～」
+
+◆配信日時◆
+
+2022年8月10日(水) 20:00～
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不用等三天，后天就可以抽卡了（大概
+
+*****
+
+####  qixinno2  
+##### 409#       发表于 2022-8-8 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981855&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-8 20:48</a>
+
+我重新去看了一下
+
+◆番組タイトル◆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 竟然是10号么 丢人了
+
