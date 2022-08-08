@@ -7571,3 +7571,16 @@ LL毕竟不是鬼灭，很难突然带火一个声优，实际上从水到虹再
 
 整了这么多，要是出现回国回劝说的人却不是堇的话，我怕堇厨要暴动
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2256#       发表于 2022-8-8 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983226&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-8 22:47</a>
+AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有明显偏向。
+
+所以这种主要还是看脸，这动画学 ...</blockquote>
+这个比较我认为有失偏颇，Liella!这边Apollo Bay所属的三个人与前辈企划里amuse的人最不同的是“海选合格者”这个名号，某种程度上能认为这几个人就是企划的“自己人”。至少个人认为企划相对比较明显对海选合格者有一定的倾斜。
+
