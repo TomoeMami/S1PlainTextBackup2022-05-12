@@ -4252,3 +4252,22 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">好想抽泳装。快点来啊
 
+
+
+*****
+
+####  alucardcz  
+##### 402#       发表于 2022-8-8 20:12
+
+你们哪里看到10号泳装的 不就个生放送  也不是次次放完就开活动的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 403#       发表于 2022-8-8 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981477&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 20:12</a>
+
+你们哪里看到10号泳装的 不就个生放送  也不是次次放完就开活动的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不是11号么
+
