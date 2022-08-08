@@ -11580,3 +11580,54 @@ TSM三个打工仔要是把fnc抬到ti这有点好笑了
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 2921#       发表于 2022-8-8 08:33
+
+还好没看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">rng后面还有心气吗被打成这样
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  健康猹  
+##### 2922#       发表于 2022-8-8 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972412&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-8 08:33</a>
+
+还好没看rng后面还有心气吗被打成这样
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+万一能进胜者组遇到茶队，大家一起嘻嘻哈哈脑浆一波，心态不就回来了
+
+*****
+
+####  蛭人  
+##### 2923#       发表于 2022-8-8 08:38
+
+又被翻盘后，ana天梯奖励了自己一把中单虚空，怕不是有瘾了，基本打完比赛都去天梯了。
+
+*****
+
+####  syndrome2032  
+##### 2924#       发表于 2022-8-8 08:42
+
+厨子还是担心在sea区找队的问题吧
+
+*****
+
+####  syndrome2032  
+##### 2925#       发表于 2022-8-8 08:42
+
+厨子还是担心在sea区找队的问题吧
+
+*****
+
+####  Litccc  
+##### 2926#       发表于 2022-8-8 08:49
+
+要不就smg吧，反正也要打预选，topson和厨子一来流量拉满
+
