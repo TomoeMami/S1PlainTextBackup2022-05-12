@@ -6324,3 +6324,244 @@ xnova视野做的跟畜生一样还没有存在感？感觉两边做眼能力是
 
 以前xnova在lgd的时候视野不是做的挺好的么，现在怎么变成这样了？
 
+
+
+*****
+
+####  iriyano  
+##### 3801#       发表于 2022-8-9 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984980&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-9 02:00</a>
+以前xnova在lgd的时候视野不是做的挺好的么，现在怎么变成这样了？</blockquote>
+很久没看比赛了吧，他这个症状持续很久了
+
+*****
+
+####  百世诸侯  
+##### 3802#       发表于 2022-8-9 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984964&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-9 00:59</a>
+
+刚刚看到了，这把输了更好，赢了要打雪碧vp败者，输了打lgdboom败者</blockquote>
+雪碧fnatic败者
+
+*****
+
+####  BallanceHZ  
+##### 3803#       发表于 2022-8-9 01:01
+
+liquid也是脑浆配合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 3804#       发表于 2022-8-9 01:01
+
+笑啦这波滚滚玛西
+
+*****
+
+####  haruhiismer  
+##### 3805#       发表于 2022-8-9 01:01
+
+超哥这杀心太重了
+
+*****
+
+####  反方向的波  
+##### 3806#       发表于 2022-8-9 01:02
+
+马体这让zai种下路吃屎有点看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">上路搞个刚三炼金这样打也补不到刀
+
+*****
+
+####  ArowRocher  
+##### 3807#       发表于 2022-8-9 01:02
+
+滚滚灵车
+
+*****
+
+####  seki_m  
+##### 3808#       发表于 2022-8-9 01:02
+
+超哥败者组前搞这么厉害干嘛
+
+*****
+
+####  尸体鲨  
+##### 3809#       发表于 2022-8-9 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984965&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-9 00:59</a>
+蝙蝠玛西是有什么说法吗，又看见这种玛西二级开始挂在其他路杀人，蝙蝠单混的打法。蝙蝠线上1v2也不是很容 ...</blockquote>
+不想打蓝猫呗
+
+*****
+
+####  trackerList  
+##### 3810#       发表于 2022-8-9 01:02
+
+感觉玛西这上蹿下跳也没捞到什么好处啊
+
+
+
+*****
+
+####  nowaki  
+##### 3811#       发表于 2022-8-9 01:02
+
+zai肥和穷有什么区别吗
+
+*****
+
+####  蛭人  
+##### 3812#       发表于 2022-8-9 01:03
+
+经典三线优。
+
+*****
+
+####  百世诸侯  
+##### 3813#       发表于 2022-8-9 01:03
+
+奉劝所有cn队，东南亚人最多用三年就够了，保质期实在不行
+
+*****
+
+####  战狼PTSD  
+##### 3814#       发表于 2022-8-9 01:03
+
+畜生马西直接让滚滚空大
+
+*****
+
+####  -SLSL-  
+##### 3815#       发表于 2022-8-9 01:04
+
+查猪的蠕动亚龙也太离谱了
+
+*****
+
+####  北条早苗  
+##### 3816#       发表于 2022-8-9 01:04
+
+xnova大概从20年开始就喜欢插个高台眼摆烂了
+
+*****
+
+####  haruhiismer  
+##### 3817#       发表于 2022-8-9 01:04
+
+李斯什么情况
+
+*****
+
+####  ninini212  
+##### 3818#       发表于 2022-8-9 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蓝猫是不是已经是老北京的肌肉本能了
+
+*****
+
+####  雅朵莉雀  
+##### 3819#       发表于 2022-8-9 01:05
+
+哇，VP2：0了QC，RNG这盘赢了要打VP和雪碧的败者啊，我还以为是Fnatic
+
+要不还是输了去打BOOM吧，总不至于LGD亲自输给BOOM下来把RNG送走吧
+
+*****
+
+####  反方向的波  
+##### 3820#       发表于 2022-8-9 01:05
+
+ero和小雪人不会是小超人吧这也要这么激动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3821#       发表于 2022-8-9 01:06
+
+草，vp雪碧，那真不如输了算了，不该赢的局别赢啊
+
+*****
+
+####  haruhiismer  
+##### 3822#       发表于 2022-8-9 01:06
+
+rng真的肌肉dota，但是不如vp的肌肉硬
+
+*****
+
+####  很久就在那边l  
+##### 3823#       发表于 2022-8-9 01:06
+
+这把赢的去打雪碧和VP败者，输的去打lgd和boom败者，我怎么感觉输了更好
+
+*****
+
+####  mkii量产型  
+##### 3824#       发表于 2022-8-9 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒要看看炼金能再野区刷多久没人管，每多刷一分钟，RNG离死亡就多一分钟
+
+*****
+
+####  北条早苗  
+##### 3825#       发表于 2022-8-9 01:08
+
+感觉还是去打boom比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3826#       发表于 2022-8-9 01:08
+
+好卡
+
+*****
+
+####  haruhiismer  
+##### 3827#       发表于 2022-8-9 01:09
+
+有没有顶级高手楼友讲讲为啥蓝猫又能玩了
+
+*****
+
+####  香蕉芭菲  
+##### 3828#       发表于 2022-8-9 01:09
+
+rng第一把我觉得第二个a杖就不应该给小强。rng这打法傻逼到给小强跳上去戳打先手，对面先手你都是马西或者紫猫光法带位移的，小强地堡反手挺难的，a给亚巴顿或者电棍作用大点
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  名字不乱取  
+##### 3829#       发表于 2022-8-9 01:10
+
+如果把塔从这个游戏移除，rng一定是顶尖的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我这个听写没错吧
+
+*****
+
+####  百世诸侯  
+##### 3830#       发表于 2022-8-9 01:11
+
+液体这么拼不会是想和vp雪碧拼一下吧，现在是互飙演技的时候了啊
+
+*****
+
+####  Keynes  
+##### 3831#       发表于 2022-8-9 01:11
+
+小强地堡和tb配合打阵地战防冲脸阵容蛮强的，奈何里斯和m除出装实在是太畜生了，上一把最大的问题还是强势的时候没上高
+
+*****
+
+####  尸体鲨  
+##### 3832#       发表于 2022-8-9 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便楼里为什么会吹链子玩懂这个游戏了？半年没感受过被链子mind fuck的感觉了？
+
