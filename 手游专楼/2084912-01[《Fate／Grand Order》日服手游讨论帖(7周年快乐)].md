@@ -4434,3 +4434,22 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10号就是中旬了啊，真要生放完长草一周那也称得上传奇操作了
 
+
+
+*****
+
+####  qixinno2  
+##### 419#       发表于 2022-8-8 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982208&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-8 21:19</a>
+
+10号就是中旬了啊，真要生放完长草一周那也称得上传奇操作了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是这次周年除了公主外什么都没有吧 强化的也不疼不痒 不像去年2.6最后一部分 杀狐池 几个强力强化 之后还有个奥伯龙池子 疯狂地刷材料狗粮QP去升技能
+
+*****
+
+####  quanlix  
+##### 420#       发表于 2022-8-8 21:28
+
+小林千晃阳了，赤羽根顶班
+
