@@ -1093,3 +1093,75 @@ max和小黑盒要在9月底合并
 
 我选择相信fy，今年的新ig2333
 
+
+
+*****
+
+####  蛭人  
+##### 3127#       发表于 2022-8-8 18:50
+
+明鞭最近两个线下赛是真挺猛的，坚持到ti11是没问题的，但是夺不了冠的话，永远都只能在ceb下面，尽管我也觉得明鞭实力够的，可能这就是邪恶队友该受的罪吧。
+
+*****
+
+####  thistimeforlife  
+##### 3128#       发表于 2022-8-8 18:56
+
+霉鳖现在这一个绝活没有的状态，玩不明白支援打架撑局势也玩不明白中单c，不调整那就算勉强混进ti也还是一轮游的水平
+
+*****
+
+####  Jooohnny  
+##### 3129#       发表于 2022-8-8 18:57
+
+<img src="https://img.saraba1st.com/forum/202208/08/185535yr414nj4n4r4rs18.jpg" referrerpolicy="no-referrer">
+
+<strong>B}4}ISO2LTOI(G24MZY_B.jpg</strong> (77.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 18:55 上传
+
+上帝面如死灰<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+今晚1点就能结束，能睡个好觉了，但是明天开始就是23点打到后天中午11点。
+
+*****
+
+####  ArowRocher  
+##### 3130#       发表于 2022-8-8 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980630&amp;ptid=2084957" target="_blank">Jooohnny 发表于 2022-8-8 18:57</a>
+上帝面如死灰
+
+今晚1点就能结束，能睡个好觉了，但是明天开始就是23点打到后天中午11点。</blockquote>
+这玩意打印出来是有什么用啊
+
+*****
+
+####  甩不出去的黄牌  
+##### 3131#       发表于 2022-8-8 19:00
+
+先锁个盘子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急
+
+*****
+
+####  一夜秋风袭锦城  
+##### 3132#       发表于 2022-8-8 19:01
+
+上帝也就是临时打手，就是真想再冲一波也不会呆在rng的。有啥好面如死灰的。
+
+*****
+
+####  名字不乱取  
+##### 3133#       发表于 2022-8-8 19:01
+
+dota之神给邪恶明辫的惩罚就是透支自己<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 3134#       发表于 2022-8-8 19:01
+
+茶队在这个major处于一个舆论隐身的状态，只能从讨论的只言片语知道焦阳又宰了杜鹏又崩了，所有话题都被rng包圆了，跟茶相比五代战机的隐身性能就是个几把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
