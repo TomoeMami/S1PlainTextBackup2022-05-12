@@ -11751,3 +11751,27 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 2个队的话bo3，多个队的话循环bo1好像
 
+
+
+*****
+
+####  反方向的波  
+##### 2939#       发表于 2022-8-8 10:29
+
+<img src="https://p.sda1.dev/6/5094dcd98485cd68c55e50b65a73745f/CMP_20220808102810741.jpg" referrerpolicy="no-referrer">
+到底是谁在玩儿蠕动亚龙，我看两个小组第一1次都没用过<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 2940#       发表于 2022-8-8 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972974&amp;ptid=2084957" target="_blank">朝奈 发表于 2022-8-8 09:30</a>
+小组赛相同分数怎么算排名的?
+
+现在FNC是9-7,  OG/VP/RNG最后一轮完都是9-7的话是怎么算谁去败者组 ...</blockquote>
+计算同队胜负关系，平则比较对下一顺位胜负关系，再平则继续下调。
+
+如果涉及胜负组关系则直接加赛。
+两队bo3，多队bo1
+
