@@ -11829,3 +11829,73 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 蓝猫除了曾骄阳外还有谁在用？查了一下数据7胜1负好像还可以。
 
+
+
+*****
+
+####  反方向的波  
+##### 2947#       发表于 2022-8-8 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974296&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-8 10:56</a>
+蓝猫除了曾骄阳外还有谁在用？查了一下数据7胜1负好像还可以。</blockquote>
+焦阳3胜0负
+油扒鸡2胜0负
+abed1胜0负
+本泽马1胜1负
+
+*****
+
+####  弈秋  
+##### 2948#       发表于 2022-8-8 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说杜鹏又犯罪了，都没人知道的，茶真是没人看
+
+*****
+
+####  反方向的波  
+##### 2949#       发表于 2022-8-8 11:08
+
+别尬黑，鹏儿哥儿有他独特的虚空理解
+也就输出差点队里垫底了而已<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 2950#       发表于 2022-8-8 11:08
+
+一想到今年CN表现最强的两个战队都是4赵云带一阿斗，就忍不住想笑
+
+*****
+
+####  syndrome2032  
+##### 2951#       发表于 2022-8-8 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974488&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-8 11:05</a>
+听说杜鹏又犯罪了，都没人知道的，茶真是没人看</blockquote>
+一把虚空一把刚被，都挺犯罪的。
+
+区别是前者一起gg，后者骄阳puck兜住了打了一小时膀胱局
+
+*****
+
+####  莉拉厨  
+##### 2952#       发表于 2022-8-8 11:10
+
+说实话现在世界范围内都没有什么表现稳定的C，一个个发病的时候全在犯罪
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Bernoulli  
+##### 2953#       发表于 2022-8-8 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974449&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-8 11:03</a>
+
+焦阳3胜0负
+
+油扒鸡2胜0负
+
+abed1胜0负</blockquote>
+之前ban榜看不到，过了一天ban榜上了6次，估计都是这几个队对面ban的。
+

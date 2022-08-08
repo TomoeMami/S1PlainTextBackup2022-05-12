@@ -7048,3 +7048,12 @@ ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 2206#       发表于 2022-8-8 11:03
+
+红蓝写的真还行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别要求太多
+
