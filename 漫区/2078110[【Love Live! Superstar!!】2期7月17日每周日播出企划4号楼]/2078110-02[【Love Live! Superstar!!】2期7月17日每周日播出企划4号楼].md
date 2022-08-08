@@ -7139,3 +7139,15 @@ ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫�
 这集算可以的了，红蓝互相扶 ...</blockquote>
 青山不也阿波罗的吗，我就奇怪了，怎么就不推青山呢，总不能说青山志不在此吧（单指企划这块，个人的地方阿波罗给的还可以的）
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 2215#       发表于 2022-8-8 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56977203&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-8 14:31</a>
+
+青山不也阿波罗的吗，我就奇怪了，怎么就不推青山呢，总不能说青山志不在此吧（单指企划这块，个人的地方 ...</blockquote>
+确实 不知道为什么青山在这个企划拿到的资源不多，可扛不住人家各方面条件都好啊，CV以外的工作接的飞起<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
