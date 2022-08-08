@@ -12015,3 +12015,41 @@ abed1胜0负</blockquote>
 
 2022-8-8 11:48 上传
 
+
+
+*****
+
+####  沈淮  
+##### 2966#         楼主| 发表于 2022-8-8 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56975141&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-8 11:44</a>
+
+呃呃</blockquote>
+额，这是否有点
+
+*****
+
+####  IG.430  
+##### 2967#       发表于 2022-8-8 12:01
+
+ 本帖最后由 IG.430 于 2022-8-8 12:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56975141&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-8 11:44</a>
+呃呃</blockquote>
+wings那时候有电视直播吗，哪个世界线穿越来的蹭狗
+
+*****
+
+####  IG.430  
+##### 2968#       发表于 2022-8-8 12:01
+
+ 本帖最后由 IG.430 于 2022-8-8 12:03 编辑 
+
+风怒
+
+*****
+
+####  北条早苗  
+##### 2969#       发表于 2022-8-8 12:03
+
+rng今晚只能指望zai和atf同时病发了，感觉这个状态掉到败者组人直接没了
+
