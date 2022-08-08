@@ -7529,3 +7529,12 @@ AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本�
 
 鲤鱼资源可以了，毕竟那边还是定位歌手。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2253#       发表于 2022-8-8 21:44
+
+这话题怎么跑到事务所资源的问题了，之前明明在聊企划内的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
