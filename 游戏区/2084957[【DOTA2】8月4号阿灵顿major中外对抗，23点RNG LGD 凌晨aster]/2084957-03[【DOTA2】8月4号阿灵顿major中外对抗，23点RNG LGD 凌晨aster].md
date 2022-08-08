@@ -7063,3 +7063,601 @@ RNG有团队战术吗？怎么感觉都在各打各的
 
 早知道，还得是上帝<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wizder  
+##### 3896#       发表于 2022-8-9 01:31
+
+<img src="https://img.saraba1st.com/forum/202208/09/013038brivry8ww7ju8flz.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (47.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/013038musxsuxr1qxnqu1e.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/013038dm2w29sejra2or7q.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (40.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:30 上传
+
+对对对 我太双标了 
+
+我们只能看到别人嘴贱不反击 像圣母一样呢  反击就是双标 呜呜呜 
+
+CNdota没你这样满嘴喷粪的喷子哪儿能进步呢是吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海原穹乃|-1|脑瘫集美终于自爆了|
+
+查看全部评分
+
+*****
+
+####  Keynes  
+##### 3897#       发表于 2022-8-9 01:31
+
+这下杜文乐超神归来了
+
+*****
+
+####  北条早苗  
+##### 3898#       发表于 2022-8-9 01:32
+
+厨子是真的想赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3899#       发表于 2022-8-9 01:32
+
+刚才有一波霉鳖直接飞到滚滚车上被良智爸爸雪球救下让人想起某个四号位的身影<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 3900#       发表于 2022-8-9 01:32
+
+虽然脑浆，但看着真爽啊，有种看b级烂片的感觉
+
+
+
+*****
+
+####  香蕉芭菲  
+##### 3901#       发表于 2022-8-9 01:32
+
+rng输了好吧，按照赛程，输了打boom和lgd的败者
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  BallanceHZ  
+##### 3902#       发表于 2022-8-9 01:32
+
+这把我觉得真别吹谁了，全是肌肉，没有脑子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3903#       发表于 2022-8-9 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985247&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:31</a>
+
+对对对 我太双标了 
+
+我们只能看到别人嘴贱不反击 像圣母一样呢  反击就是双标 呜呜呜 
+
+CNdota没你这样满嘴 ...</blockquote>
+你截屏的是我吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3904#       发表于 2022-8-9 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985247&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:31</a>
+ 对对对 我太双标了  我们只能看到别人嘴贱不反击 像圣母一样呢  反击就是双标 呜呜呜  CNdota没你这样满嘴 ...</blockquote>
+您要不再往前翻翻是谁先开始分类的呢，上来先一个mxo的帽子，现在又开始装可怜先撩者贱，贱不贱呐<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wizder  
+##### 3905#       发表于 2022-8-9 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985230&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-9 01:29</a>
+
+我讨论游戏多还是你讨论游戏多？嘴贱还不自知是吧</blockquote>
+我想讨论游戏啊 问题我进来楼看见你是嘴贱了啊  奇怪了 我说先撩者贱你默许了 开始转移话题比谁发言多了 ？我又不怎么混论坛我当然没您多啊   您赢了 ~
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 5战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 健康猹|-2||
+| 尸体鲨|-1||
+| 北条早苗|-1|基德基德|
+| 海原穹乃|-1|可以回你们死妈集美的狗窝讨论啊.|
+| 反方向的波|-1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  一品堂官  
+##### 3906#       发表于 2022-8-9 01:33
+
+里他妈打谱，故意送？
+
+*****
+
+####  mkii量产型  
+##### 3907#       发表于 2022-8-9 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老北京来戏了
+
+*****
+
+####  BallanceHZ  
+##### 3908#       发表于 2022-8-9 01:33
+
+又来了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 3909#       发表于 2022-8-9 01:33
+
+你们吵得好像豆瓣小组....
+
+*****
+
+####  nightmare902015  
+##### 3910#       发表于 2022-8-9 01:33
+
+上帝想赢有用吗，不过我霉皇这一关？
+
+*****
+
+####  北条早苗  
+##### 3911#       发表于 2022-8-9 01:33
+
+超哥在看排名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3912#       发表于 2022-8-9 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反方向的滚
+
+*****
+
+####  弈秋  
+##### 3913#       发表于 2022-8-9 01:33
+
+乐了
+
+*****
+
+####  Damocles990609  
+##### 3914#       发表于 2022-8-9 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这他吗在打啥啊草
+
+*****
+
+####  名字不乱取  
+##### 3915#       发表于 2022-8-9 01:34
+
+冠超好像很想打boom<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3916#       发表于 2022-8-9 01:34
+
+超哥想去打boom
+
+*****
+
+####  千千千千鸟  
+##### 3917#       发表于 2022-8-9 01:34
+
+人猫分离！开始不做人喽
+
+*****
+
+####  tankai  
+##### 3918#       发表于 2022-8-9 01:34
+
+我是ANA我吐了....
+
+*****
+
+####  AkaiSuisei  
+##### 3919#       发表于 2022-8-9 01:34
+
+冠晴这个神域，几波救不到人了
+
+*****
+
+####  Keynes  
+##### 3920#       发表于 2022-8-9 01:34
+
+哈哈哈哈哈哈，笑死我了
+
+*****
+
+####  ArowRocher  
+##### 3921#       发表于 2022-8-9 01:34
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  BallanceHZ  
+##### 3922#       发表于 2022-8-9 01:34
+
+这蚂蚁打回去又是什么意思呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3923#       发表于 2022-8-9 01:34
+
+ana也想去打boom<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 3924#       发表于 2022-8-9 01:34
+
+上帝也脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  千千千千鸟  
+##### 3925#       发表于 2022-8-9 01:35
+
+别急，回到上路也有点辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 3926#       发表于 2022-8-9 01:35
+
+刚刚那波打赢是靠蓝猫和**制造了足够多混乱而且能活下来
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  seki_m  
+##### 3927#       发表于 2022-8-9 01:35
+
+T上路太搞了
+
+*****
+
+####  wizder  
+##### 3928#       发表于 2022-8-9 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985257&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 01:33</a>
+
+您要不再往前翻翻是谁先开始分类的呢，上来先一个mxo的帽子，现在又开始装可怜先撩者贱，贱不贱呐 ...</blockquote>
+奇怪了 你的逻辑不是不能反击么？别人分类你举报他言论啊  你既然也嘴贱了居然还这么在乎别人嘴贱你啊？哦 懂了 只需我嘴贱别人不允许别人嘴贱我呢
+
+*****
+
+####  Keynes  
+##### 3929#       发表于 2022-8-9 01:35
+
+上帝想回到过去身边是ti8四个队友的时候了
+
+*****
+
+####  IG.430  
+##### 3930#       发表于 2022-8-9 01:35
+
+ana是对的，不要信任小天shit，永远不要信任小天shit
+
+
+
+*****
+
+####  trackerList  
+##### 3931#       发表于 2022-8-9 01:35
+
+两边都挺有娱乐精神的，可能是在治疗精神内耗吧
+
+*****
+
+####  ninini212  
+##### 3932#       发表于 2022-8-9 01:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ana确实想赢，要不也不回高地打一波然后时光倒流回到上路去断兵线
+
+*****
+
+####  seki_m  
+##### 3933#       发表于 2022-8-9 01:35
+
+要吵私信吵
+
+*****
+
+####  逃离二次元  
+##### 3934#       发表于 2022-8-9 01:36
+
+你赢了，还是回去做你的排行榜吧，至少视频做的挺好的，别来你楼aoe还冰清玉洁的，一股茶味
+
+*****
+
+####  北条早苗  
+##### 3935#       发表于 2022-8-9 01:36
+
+应该结束了，这把打得也太艺术了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3936#       发表于 2022-8-9 01:36
+
+可算结束了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 3937#       发表于 2022-8-9 01:36
+
+这马体被rng打蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 3938#       发表于 2022-8-9 01:36
+
+基地啊，这不基地？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 3939#       发表于 2022-8-9 01:36
+
+其实，还挺好看的，至少人头多打爽了
+
+*****
+
+####  wizder  
+##### 3940#       发表于 2022-8-9 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985256&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-9 01:32</a>
+
+你截屏的是我吗</blockquote>
+所以我那句话是针对你的是么？奇怪我第一句话发出来的时候是回复你了还是指你名字了？苏联笑话有意思嘿
+
+*****
+
+####  百世诸侯  
+##### 3941#       发表于 2022-8-9 01:37
+
+有没有楼里现在除了一个石砸狗叫的傻逼，其他人都在看比赛讨论比赛呢？
+
+*****
+
+####  tankai  
+##### 3942#       发表于 2022-8-9 01:37
+
+ANA太想赢了.2次冠军的钱花光了?
+
+*****
+
+####  逃离二次元  
+##### 3943#       发表于 2022-8-9 01:37
+
+石砸狗叫
+
+*****
+
+####  弈秋  
+##### 3944#       发表于 2022-8-9 01:37
+
+肌肉互搂就是爽
+
+*****
+
+####  北条早苗  
+##### 3945#       发表于 2022-8-9 01:38
+
+被动入泉
+
+*****
+
+####  AkaiSuisei  
+##### 3946#       发表于 2022-8-9 01:38
+
+我们是冠军！
+
+*****
+
+####  弈秋  
+##### 3947#       发表于 2022-8-9 01:38
+
+赢了，但是输了
+
+*****
+
+####  seki_m  
+##### 3948#       发表于 2022-8-9 01:38
+
+把上把的精神内耗治好了一半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 3949#       发表于 2022-8-9 01:38
+
+打完了，你们继续吵吧，润了
+
+*****
+
+####  名字不乱取  
+##### 3950#       发表于 2022-8-9 01:39
+
+不需要脑子就是爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Damocles990609  
+##### 3951#       发表于 2022-8-9 01:39
+
+这种肌肉刀塔还是少打点吧，我已经品鉴够了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  不应  
+##### 3952#       发表于 2022-8-9 01:39
+
+要去打雪碧vp了，无效胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 3953#       发表于 2022-8-9 01:39
+
+赢了，但是奖励一个vp或者雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 3954#       发表于 2022-8-9 01:39
+
+该赢的不赢
+
+该输的不输
+
+*****
+
+####  名字不乱取  
+##### 3955#       发表于 2022-8-9 01:39
+
+漏油吵完没有，能开本楼第二次赛博中山公园了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 3956#       发表于 2022-8-9 01:40
+
+不了比赛 吵架滚出曲呀
+
+*****
+
+####  百世诸侯  
+##### 3957#       发表于 2022-8-9 01:40
+
+我希望vp把雪碧打下来，看雪碧这种阴逼防反队折磨rng可太有意思了
+
+*****
+
+####  nightmare902015  
+##### 3958#       发表于 2022-8-9 01:40
+
+第一次solo都缩壳了还在第二次。
+
+*****
+
+####  12481632  
+##### 3959#       发表于 2022-8-9 01:40
+
+要solo的搞快点
+
+*****
+
+####  阿垃垃圾历  
+##### 3960#       发表于 2022-8-9 01:40
+
+这楼在吵什么啊 看比赛乐子不多么 
+
+
+
+*****
+
+####  蛭人  
+##### 3961#       发表于 2022-8-9 01:40
+
+说出来你们可能不信，这把蓝猫输出第三。
+
+*****
+
+####  北条早苗  
+##### 3962#       发表于 2022-8-9 01:40
+
+明天赛程不错，11点看水厂打boom，早上就可以看茶打og了
+
+*****
+
+####  43453  
+##### 3963#       发表于 2022-8-9 01:40
+
+w姓某人先屏蔽了，在漏油们都在看乐子的时候还不断给自己加戏是太监论坛的味了
+
+*****
+
+####  UnhappyTails  
+##### 3964#       发表于 2022-8-9 01:40
+
+我吐了，这局也配入吗？
+
+只能说两边华山论/是rng输了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3965#       发表于 2022-8-9 01:41
+
+比赛肌肉互搂很有意思，楼友能有肌肉互搂吗
+
+*****
+
+####  woyzeck  
+##### 3966#       发表于 2022-8-9 01:41
+
+这液体真的好想打boom
+
+*****
+
+####  健康猹  
+##### 3967#       发表于 2022-8-9 01:41
+
+中山公园！go！
+
