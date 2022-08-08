@@ -3905,3 +3905,20 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">215和水黑呆真的是社长的巅峰了 剩下的不是镜像就是各种地方很别扭
 
+
+
+*****
+
+####  exiaexa  
+##### 373#       发表于 2022-8-8 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974047&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-8 10:42</a>
+打了一些强化本啥的，好多狂或者单个怪的，水武藏不好使，现在的3t队伍是什么样的？ ...</blockquote>
+强化本的3t用红卡就行，三个关卡，第一个第二个3面，第三个两面
+
+第一面打手50充+礼装50，双狐狸充100，第三面打手自充50+换人拐
+基本就不用管对面放什么，只要确保自己克制就行
+
+有条件的话三宝石洗地最快
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

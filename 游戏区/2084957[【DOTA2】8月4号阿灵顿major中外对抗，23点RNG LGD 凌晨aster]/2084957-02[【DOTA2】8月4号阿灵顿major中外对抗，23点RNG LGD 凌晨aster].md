@@ -11899,3 +11899,33 @@ abed1胜0负
 abed1胜0负</blockquote>
 之前ban榜看不到，过了一天ban榜上了6次，估计都是这几个队对面ban的。
 
+
+
+*****
+
+####  Bernoulli  
+##### 2954#       发表于 2022-8-8 11:14
+
+ 本帖最后由 Bernoulli 于 2022-8-8 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974488&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-8 11:05</a>
+
+听说杜鹏又犯罪了，都没人知道的，茶真是没人看</blockquote>
+还好吧，那两把应该是小林桑真不会玩DP的锅，杜鹏儿还不至于到犯罪的地步，另外不得不说boom这个队太鳖了，一代盾没打过之后，后面直接来高地不下去了，2、3、4代盾全放，换个其他队2代盾打完差不多就出结果了。
+
+*****
+
+####  萩原组土狼p  
+##### 2955#       发表于 2022-8-8 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974554&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-8 11:08</a>
+
+一想到今年CN表现最强的两个战队都是4赵云带一阿斗，就忍不住想笑</blockquote>
+可能现在这个版本就是拴狗c的版本了，2345都是核心，大哥就是纯混子
+
+*****
+
+####  nightmare902015  
+##### 2956#       发表于 2022-8-8 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是洗a处，但这个版本一号位的确难玩，甚至二号位也不好玩，三号位显得太重要了。
+
