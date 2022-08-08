@@ -3981,3 +3981,28 @@ md秃子
 
 所以最近这些现环境强者有复刻安排吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朝香果林  
+##### 378#         楼主| 发表于 2022-8-8 12:22
+
+<blockquote>kiralzb 发表于 2022-8-8 12:12
+我至少半年没玩了，搜了一下双狐狸是啥，没有，倒是另一只面目狰狞的狐狸我有，完全没有抽过的印象
+
+ ...</blockquote>
+说不定泳装把这些强者都杀了！
+
+*****
+
+####  qixinno2  
+##### 379#       发表于 2022-8-8 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56975526&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-8 12:12</a>
+
+我至少半年没玩了，搜了一下双狐狸是啥，没有，倒是另一只面目狰狞的狐狸我有，完全没有抽过的印象
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你只能看11号出的新泳装会不会有新强者了
+
