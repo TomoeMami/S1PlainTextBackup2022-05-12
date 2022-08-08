@@ -3524,3 +3524,436 @@ kaka和ana需要几重转译
 
 不敢拿盾
 
+
+
+*****
+
+####  Keynes  
+##### 3434#       发表于 2022-8-9 00:00
+
+怎么a帐给的强子啊
+
+*****
+
+####  逃离二次元  
+##### 3435#       发表于 2022-8-9 00:00
+
+上帝不想捡盾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 3436#       发表于 2022-8-9 00:01
+
+这a不给查猪吗
+
+*****
+
+####  Keynes  
+##### 3437#       发表于 2022-8-9 00:01
+
+毕竟只能站着吃饭，不敢拿盾也无可厚非吧
+
+*****
+
+####  你谁  
+##### 3438#       发表于 2022-8-9 00:01
+
+这节目效果拉满
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 3439#       发表于 2022-8-9 00:01
+
+盾太多了，厨子拿个锅吧
+
+*****
+
+####  战狼PTSD  
+##### 3440#       发表于 2022-8-9 00:01
+
+分装备分了一分钟，搁这打WOW呢
+
+*****
+
+####  iriyano  
+##### 3441#       发表于 2022-8-9 00:01
+
+A也塞回去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 3442#       发表于 2022-8-9 00:01
+
+有两个盾了不拿有什么问题
+
+*****
+
+####  反方向的波  
+##### 3443#       发表于 2022-8-9 00:01
+
+这a不给电棍？？？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 3444#       发表于 2022-8-9 00:01
+
+给tb是想恐惧配合梦境缠绕？感觉还是很垃圾
+
+*****
+
+####  haruhiismer  
+##### 3445#       发表于 2022-8-9 00:02
+
+何意啊
+
+*****
+
+####  Bhagavan  
+##### 3446#       发表于 2022-8-9 00:02
+
+刷盾前开变身
+
+不拿盾不拿A
+
+原来你就是内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 3447#       发表于 2022-8-9 00:03
+
+这配合是个啥啊
+
+*****
+
+####  杜文乐超神归来  
+##### 3448#       发表于 2022-8-9 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">给上帝拿盾就是这样了，让他带A有两个变身。
+
+*****
+
+####  Keynes  
+##### 3449#       发表于 2022-8-9 00:03
+
+好啊好啊，这里斯不来上高去下路带线
+
+*****
+
+####  12481632  
+##### 3450#       发表于 2022-8-9 00:03
+
+鳖起来了
+
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3451#       发表于 2022-8-9 00:03
+
+哇，优势直接一个开鳖，带盾双倍变身转好不推高的哇<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3452#       发表于 2022-8-9 00:04
+
+鳖起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3453#       发表于 2022-8-9 00:04
+
+哇塞，这盾这么没了我是没想到的
+
+*****
+
+####  天堂蜘蛛  
+##### 3454#       发表于 2022-8-9 00:04
+
+有盾有撒旦有推推真不知道RNG到底在怕什么
+
+*****
+
+####  Litccc  
+##### 3455#       发表于 2022-8-9 00:05
+
+上帝直接吃了个银月<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3456#       发表于 2022-8-9 00:05
+
+我好急 ，我是急急国王
+
+*****
+
+####  是挞不是派  
+##### 3457#       发表于 2022-8-9 00:05
+
+这在鳖什么呀，看不懂呀
+
+*****
+
+####  弈秋  
+##### 3458#       发表于 2022-8-9 00:06
+
+光法羊刀一波有的打
+
+*****
+
+####  Keynes  
+##### 3459#       发表于 2022-8-9 00:07
+
+我超，杜文乐超神归来！
+
+*****
+
+####  弈秋  
+##### 3460#       发表于 2022-8-9 00:07
+
+没bkb还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 3461#       发表于 2022-8-9 00:07
+
+上帝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 3462#       发表于 2022-8-9 00:07
+
+有盾不推没盾上高，真不知道在怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 3463#       发表于 2022-8-9 00:07
+
+有盾不上没盾上呀<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 3464#       发表于 2022-8-9 00:07
+
+上帝好像是被推上来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3465#       发表于 2022-8-9 00:07
+
+队友呢？队友呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 3466#       发表于 2022-8-9 00:07
+
+安娜和bkb有仇吧对面这个魔法伤害
+
+*****
+
+####  天堂蜘蛛  
+##### 3467#       发表于 2022-8-9 00:07
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？、
+
+*****
+
+####  逃离二次元  
+##### 3468#       发表于 2022-8-9 00:07
+
+妈的四个逼怎么直接把安皇卖了
+
+*****
+
+####  やト  
+##### 3469#       发表于 2022-8-9 00:08
+
+？？？？？这把ANA卖了？
+
+*****
+
+####  BallanceHZ  
+##### 3470#       发表于 2022-8-9 00:08
+
+啥意思呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 3471#       发表于 2022-8-9 00:08
+
+哇这rng是何意啊
+
+*****
+
+####  杜文乐超神归来  
+##### 3472#       发表于 2022-8-9 00:08
+
+上帝是真敢打啊，打起来之前没钱买活的
+
+*****
+
+####  反方向的波  
+##### 3473#       发表于 2022-8-9 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">卖要上帝再自己去送
+
+*****
+
+####  弈秋  
+##### 3474#       发表于 2022-8-9 00:08
+
+卧槽 may！
+
+*****
+
+####  你谁  
+##### 3475#       发表于 2022-8-9 00:08
+
+超哥
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 3476#       发表于 2022-8-9 00:08
+
+终极霉皇
+
+*****
+
+####  12481632  
+##### 3477#       发表于 2022-8-9 00:08
+
+终于秀起来了
+
+*****
+
+####  haruhiismer  
+##### 3478#       发表于 2022-8-9 00:08
+
+超!
+
+*****
+
+####  cwlo  
+##### 3479#       发表于 2022-8-9 00:08
+
+哇，这紫猫我吐了
+
+*****
+
+####  nowaki  
+##### 3480#       发表于 2022-8-9 00:09
+
+老北京狂起来了
+
+
+
+*****
+
+####  Acatv  
+##### 3481#       发表于 2022-8-9 00:09
+
+脑浆啊
+
+*****
+
+####  坚定的团子党  
+##### 3482#       发表于 2022-8-9 00:09
+
+我是真的要吐了，ana这么顶，结果四个队友直接把他丢高地上，自己跑了？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iriyano  
+##### 3483#       发表于 2022-8-9 00:09
+
+菜鸡互啄还是要看rng啊
+
+*****
+
+####  Litccc  
+##### 3484#       发表于 2022-8-9 00:09
+
+老北京狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 3485#       发表于 2022-8-9 00:09
+
+龟龟 超哥醒了
+
+这个有盾不上没盾送死真没看懂
+
+*****
+
+####  山上徹也  
+##### 3486#       发表于 2022-8-9 00:09
+
+服了，这七百攻刚背不管帕克直接破一路了
+
+*****
+
+####  Keynes  
+##### 3487#       发表于 2022-8-9 00:09
+
+我懂了，先卖掉那个队伍里面最有风采的，再cosplay孤胆英雄是吧
+
+*****
+
+####  nxmonitor  
+##### 3488#       发表于 2022-8-9 00:09
+
+要是昨天Maybe的puck这么玩也不会输了，出一身装备就在边缘看……
+
+*****
+
+####  聚散浮云  
+##### 3489#       发表于 2022-8-9 00:09
+
+牛牛！
+
+*****
+
+####  逃离二次元  
+##### 3490#       发表于 2022-8-9 00:09
+
+老北京硬了一回
+
+*****
+
+####  やト  
+##### 3491#       发表于 2022-8-9 00:09
+
+  我以为都要结束了 ，怎么这样啊
+
+*****
+
+####  4591  
+##### 3492#       发表于 2022-8-9 00:10
+
+超哥还是要一个人的时候最厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
