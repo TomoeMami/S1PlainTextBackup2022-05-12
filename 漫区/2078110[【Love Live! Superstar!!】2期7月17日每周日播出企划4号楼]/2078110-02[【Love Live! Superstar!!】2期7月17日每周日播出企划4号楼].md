@@ -7279,3 +7279,42 @@ AB社在企划内的资源足够多，甚至觉得llsp这企划它有一半话�
 角色待遇差和推不推人没什么关系，你觉得青山待遇差，但青山企划名义还多上了一次声A，广播也有WAWR ...</blockquote>
 因为动画里的ksks确实可爱了不少
 
+
+
+*****
+
+####  优妮可  
+##### 2227#       发表于 2022-8-8 16:41
+
+ksks感觉是制作组的厨力？
+
+*****
+
+####  adw667  
+##### 2228#       发表于 2022-8-8 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56977203&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-8 14:31</a>
+
+青山不也阿波罗的吗，我就奇怪了，怎么就不推青山呢，总不能说青山志不在此吧（单指企划这块，个人的地方 ...</blockquote>
+之前不是有列举过青山想做的事吗，那个清单从日本的角度来看是要精忠报国了
+用我们的角度看就是大佐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2229#       发表于 2022-8-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979015&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-8 16:41</a>
+ksks感觉是制作组的厨力？</blockquote>
+ksks人气是真的高，动画前综合人气可能就逊于雪菜，总选举第一拿到了独唱单曲《无敌级*Believer》的机会。
+
+*****
+
+####  ViyViy  
+##### 2230#       发表于 2022-8-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56977916&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-8 15:24</a>
+
+照这样安排，可可的追飞机应该也是香音，那官方给可堇那么多铺垫是为了啥？难道让民警给香音追飞机做铺垫？ ...</blockquote>
+大眼一堆可香人就期盼着追机呢，这些纯CP推，完全不考虑可可现在的情况，有的还大言不惭说推可可，是推给企划刀子亲眼看着它把可可四分五裂的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -330,3 +330,44 @@ lgd赢的比赛基本都是四赵云带躺局
 楼友这就投降了，都是今年刚看比赛的？</blockquote>
 9494，好歹等拿下ti赛点再抠啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 3039#       发表于 2022-8-8 16:42
+
+一句话，相信萧瑟的表演性人格，相信6.72，相信进化
+
+*****
+
+####  acg_s1  
+##### 3040#       发表于 2022-8-8 16:44
+
+ 本帖最后由 acg_s1 于 2022-8-8 16:45 编辑 
+
+其实rng第二把经济优势有限，推了很多外塔最多才领先15k，viper和先知又是经济泡沫双熊
+
+ana先知玩得一般，中期他应该跟队友抱团打，留飞留买打6v5
+
+按dotabuff上的数据他这个英雄胜率倒数，劣势更是死成狗
+
+*****
+
+####  天堂蜘蛛  
+##### 3041#       发表于 2022-8-8 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978999&amp;ptid=2084957" target="_blank">不应 发表于 2022-8-8 16:40</a>
+
+按理来说这版本其实不适合萧瑟，毕竟他对线挺一般的，而这版本讲究线优。但是3号位在这版本太重要了，直接 ...</blockquote>
+处长的问题一直都不是对线而是团战啊，他的团战切入很多时候都究极脑浆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+指望靠线优版本制裁处长还不如等着处长发病
+
+*****
+
+####  nowaki  
+##### 3042#       发表于 2022-8-8 16:46
+
+这版本可是说最适合a畜了，躺着等量子鞭和猴爹发挥就行。
+
