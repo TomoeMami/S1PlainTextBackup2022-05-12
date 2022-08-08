@@ -5221,3 +5221,419 @@ RNG心理出问题了要
 
 说出来你们可能不相信，电棍这把建筑伤害只有八百。
 
+
+
+*****
+
+####  名字不乱取  
+##### 3661#       发表于 2022-8-9 00:30
+
+求求了，rng进ti吧，我要看厨子找个队把rng爆炒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3662#       发表于 2022-8-9 00:30
+
+集美这个时候又来切入洗giegie了啊，真是cssmdx啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 3663#       发表于 2022-8-9 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">队内会吵架吗，就像ti7的IG一样
+
+*****
+
+####  4591  
+##### 3664#       发表于 2022-8-9 00:30
+
+RNG用了三把证明这个推塔游戏你战术上再怎么赢战略上是错误的你也没办法赢
+
+*****
+
+####  qty  
+##### 3665#       发表于 2022-8-9 00:31
+
+隔壁LGD结束了吗？
+
+*****
+
+####  百世诸侯  
+##### 3666#       发表于 2022-8-9 00:31
+
+这还能睡不好？看到液体拿到机械之心我都热血沸腾了，dota之神对鳖队降下的神罚！
+
+*****
+
+####  mkii量产型  
+##### 3667#       发表于 2022-8-9 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我讲句实话，你们上高要冲四塔，不如A给亚巴顿，鳖个圣洁打奶器
+
+*****
+
+####  hcf220  
+##### 3668#       发表于 2022-8-9 00:31
+
+说句泥潭政治不正确，打到50分钟换lgd的人这盘稳赢。
+
+希望这队伍里不会指挥的人就别指挥
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 3669#       发表于 2022-8-9 00:31
+
+我觉得卡神根本不需要地堡
+
+*****
+
+####  反方向的波  
+##### 3670#       发表于 2022-8-9 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">四个人丢下厨子瞬间跑路那波真的是团队决策
+
+*****
+
+####  苏西踩到我了  
+##### 3671#       发表于 2022-8-9 00:32
+
+太离谱了，这把打到40分钟换我操作tb电棍，我脸滚键盘去a塔都输不了，rng真的没脑子吗？？？
+
+*****
+
+####  Keynes  
+##### 3672#       发表于 2022-8-9 00:32
+
+卡神这种以切入为特点的节奏型四号位拿地堡反而是一种限制
+
+*****
+
+####  何然  
+##### 3673#       发表于 2022-8-9 00:33
+
+扯tb变身摸塔的我怀疑没有2000分
+
+*****
+
+####  百世诸侯  
+##### 3674#       发表于 2022-8-9 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kaka彻底服了，早知道还不如切假腿回IG呢
+
+*****
+
+####  Litccc  
+##### 3675#       发表于 2022-8-9 00:34
+
+ 本帖最后由 Litccc 于 2022-8-9 00:37 编辑 
+
+哇，inflame做bp的时候玄月和monet在看片啊
+
+*****
+
+####  杜文乐超神归来  
+##### 3676#       发表于 2022-8-9 00:34
+
+RNG向我们证明了不光线优阵容大优他们能输，大核阵容大优他们也能输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 3677#       发表于 2022-8-9 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">厨子大推推冰眼再补bkb不知道是个啥思路
+
+*****
+
+####  wizder  
+##### 3678#       发表于 2022-8-9 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984609&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 00:30</a>
+
+集美这个时候又来切入洗giegie了啊，真是cssmdx啊</blockquote>
+逆风起跳哪儿比得上MXO呀 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 3679#       发表于 2022-8-9 00:35
+
+别说了，TB想不想赢我不知道，电棍这英雄建筑伤害只有八百，帕克四百，RNG是这样的啊。
+
+*****
+
+####  名字不乱取  
+##### 3680#       发表于 2022-8-9 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984629&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-9 00:31</a>
+
+说句泥潭政治不正确，打到50分钟换lgd的人这盘稳赢。
+
+希望这队伍里不会指挥的人就别指挥</blockquote>
+量子鞭来已经开下一把了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 3681#       发表于 2022-8-9 00:35
+
+为啥不能摸塔，真不懂
+
+*****
+
+####  千千千千鸟  
+##### 3682#       发表于 2022-8-9 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还得看LGD，自然而然的就打赢了
+
+*****
+
+####  华发夜眼[CN]  
+##### 3683#       发表于 2022-8-9 00:35
+
+查猪犯罪有点过分了
+
+*****
+
+####  是挞不是派  
+##### 3684#       发表于 2022-8-9 00:35
+
+lgd这玩着玩着就翻了？
+
+*****
+
+####  4591  
+##### 3685#       发表于 2022-8-9 00:36
+
+雷姆在清算莫奈特了
+
+*****
+
+####  wizder  
+##### 3686#       发表于 2022-8-9 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984653&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-9 00:33</a>
+
+扯tb变身摸塔的我怀疑没有2000分</blockquote>
+双倍那波带盾直接不变身去打塔就可以了啊
+
+*****
+
+####  subject07  
+##### 3687#       发表于 2022-8-9 00:36
+
+别噶黑，rng把厨子打蠢为cndota除一劲敌，这波在大气层好吧
+
+*****
+
+####  战狼PTSD  
+##### 3688#       发表于 2022-8-9 00:37
+
+上帝体验了一次TI8苦主视角
+
+*****
+
+####  奈纪亚美  
+##### 3689#       发表于 2022-8-9 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984585&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-9 00:28</a>
+控到四代盾那一波，李斯拿了A杖和刷新球碎片，自己身上还一个刷新，这样都没破三路 ...</blockquote>
+李斯没拿到A杖，转头就去野区打钱去了
+
+*****
+
+####  遍体精淋af  
+##### 3690#       发表于 2022-8-9 00:37
+
+rng已经没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁og两分应该拿下了，rng必定败者组了
+
+
+
+*****
+
+####  pikamee  
+##### 3691#       发表于 2022-8-9 00:37
+
+一崩到底直通败者组，这也行
+
+*****
+
+####  Keynes  
+##### 3692#       发表于 2022-8-9 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984661&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 00:34</a>
+
+逆风起跳哪儿比得上MXO呀</blockquote>
+好呀好呀，我又是mxo了，集美缩壳缩这么久探头出来乱咬人是吧
+
+*****
+
+####  名字不乱取  
+##### 3693#       发表于 2022-8-9 00:38
+
+查理斯打的和克里斯一样，克神还能玩个拆电锤<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 3694#       发表于 2022-8-9 00:38
+
+这种局面换个不脑浆的队伍根本就不会打到50分钟好么，能拖到50分钟那就已经可以肯定是脑浆队了。虽然现在找个不脑浆的队伍也挺难的，职业队真是一年不如一年。
+
+*****
+
+####  windhawind2  
+##### 3695#       发表于 2022-8-9 00:38
+
+哇 隔壁阴处爆大料了 说自己在cdec的时候打训练赛的时候 队友在看片 还把玄月喊过来一起评 现在mdy在拷打那个看片的人是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3696#       发表于 2022-8-9 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lgd又suibianda了
+
+*****
+
+####  玛基  
+##### 3697#       发表于 2022-8-9 00:39
+
+rng这也太丑陋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3698#       发表于 2022-8-9 00:39
+
+lgd这tm上高和刚才隔壁比<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3699#       发表于 2022-8-9 00:39
+
+og2比0宰了，rng已经败者组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acalephs  
+##### 3700#       发表于 2022-8-9 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984719&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-8 08:39</a>
+lgd这tm上高和刚才隔壁比</blockquote>
+瞬间支付一波，奶的好哇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2015, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 3701#       发表于 2022-8-9 00:39
+
+刚说完ame就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这也是一种致敬吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 3702#       发表于 2022-8-9 00:40
+
+和隔壁比？和隔壁比难分伯仲！
+
+*****
+
+####  战狼PTSD  
+##### 3703#       发表于 2022-8-9 00:40
+
+致郁系DOTA
+
+*****
+
+####  尸体鲨  
+##### 3704#       发表于 2022-8-9 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天才看到“M玩个帕克都要摸一下塔”
+
+*****
+
+####  ArowRocher  
+##### 3705#       发表于 2022-8-9 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984678&amp;ptid=2084957" target="_blank">是挞不是派 发表于 2022-8-9 00:35</a>
+
+lgd这玩着玩着就翻了？</blockquote>
+反转了，蠢鱼送了
+
+*****
+
+####  一品堂官  
+##### 3706#       发表于 2022-8-9 00:40
+
+漏油们骂的都对 但是谁能来说说tb为啥莫名其妙开了大
+
+是被伟哥骂手滑了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是挞不是派  
+##### 3707#       发表于 2022-8-9 00:41
+
+lgd这把打得好随意
+
+*****
+
+####  尸体鲨  
+##### 3708#       发表于 2022-8-9 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984719&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-9 00:39</a>
+lgd这tm上高和刚才隔壁比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">RNA派来的卧底是吧
+
+厨子开完大马上藏起来发了好几个轮盘，估计就是手滑了
+
+*****
+
+####  吃货红毛  
+##### 3709#       发表于 2022-8-9 00:41
+
+AME看来是RNG系的233 虽然看着打得是特别松就是了
+
+*****
+
+####  为了mf注册  
+##### 3710#       发表于 2022-8-9 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984661&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 00:34</a>
+
+逆风起跳哪儿比得上MXO呀</blockquote>
+不要忘了鳖孙啊，据我这几天的观察，这楼里一半mxo，一半鳖孙啊
+
+*****
+
+####  百世诸侯  
+##### 3711#       发表于 2022-8-9 00:41
+
+大概看了一下，rng下把赢了的话，败者组应该是打fnatic，输了的话败者组打boom
+
+这两个队你tm总不能再输了吧
+
+*****
+
+####  nightmare902015  
+##### 3712#       发表于 2022-8-9 00:41
+
+哇我翻了下rng剩下四个人加起来建筑伤害1200，ana建筑伤害12000，真有点难绷。
+
+*****
+
+####  12481632  
+##### 3713#       发表于 2022-8-9 00:41
+
+哇，脑浆亚龙又来了呀
+
