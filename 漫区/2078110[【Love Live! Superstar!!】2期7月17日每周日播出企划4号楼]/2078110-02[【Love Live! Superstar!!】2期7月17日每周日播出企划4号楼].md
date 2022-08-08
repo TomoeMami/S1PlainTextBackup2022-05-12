@@ -7502,3 +7502,12 @@ AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 2250#       发表于 2022-8-8 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可可真的好适合做表情包
+

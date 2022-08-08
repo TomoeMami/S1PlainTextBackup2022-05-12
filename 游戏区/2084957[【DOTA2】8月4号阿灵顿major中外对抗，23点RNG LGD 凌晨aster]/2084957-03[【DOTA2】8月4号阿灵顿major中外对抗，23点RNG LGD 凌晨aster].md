@@ -1557,3 +1557,19 @@ lgd输了的比赛就那么几场都看一遍有那么难吗
 几乎没有一场是因为ame被打爆了输的，为啥还是沉迷于打爆ame
 昨天刚三逮捕ame把自己刚爆炸的更是迷中之谜
 
+
+
+*****
+
+####  一品堂官  
+##### 3178#       发表于 2022-8-8 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980572&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-8 18:50</a>
+
+今年还真就得看鳖星了，may鳖真的不靠谱
+
+但是今年鳖星和去年ig相比也不靠谱。。去年ig至少拿了一个major ...</blockquote>
+杜鹏和王蠢鱼二选一？
+
+我选择死亡
+
