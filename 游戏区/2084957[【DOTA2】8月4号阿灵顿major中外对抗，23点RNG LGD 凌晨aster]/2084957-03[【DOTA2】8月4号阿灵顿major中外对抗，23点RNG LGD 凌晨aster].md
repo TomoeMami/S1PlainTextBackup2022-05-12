@@ -644,3 +644,62 @@ a畜新女朋友套皮撸狗阿梓自称风行人柱力
 <img src="https://p.sda1.dev/6/183342c6a42a57931abbce8545da9058/CMP_20220808173904254.jpg" referrerpolicy="no-referrer">
 打着打着果然一股“这盘一波架都不能输”的味儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这阵容就是要么把对面碾到超大的人头差 要么败一波就会败第二波第三波然后败到泉水蹲
 
+
+
+*****
+
+####  蛭人  
+##### 3073#       发表于 2022-8-8 17:42
+
+问题是，xnova和kaka不可能死亡数低啊，哈哈哈，这俩人场均必死好几次的。
+
+*****
+
+####  nowaki  
+##### 3074#       发表于 2022-8-8 17:45
+
+破四赵云还是得有个顶级三，全队先手明牌靠4号位的rng这个版本是没法和四赵云扳手腕的。
+
+*****
+
+####  tontyoutoure  
+##### 3075#       发表于 2022-8-8 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979642&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-8 17:23</a>
+不是吧，这也能类比NB？NBDK什么情况啊，现在LGD的谁情况？什么成分不太清楚，但你侮辱hao和大木香蕉了属实 ...</blockquote>
+ss8当年也是实名菠菜第一人，既然可以为了a/一人黑lgd，为啥不能因为ss8黑nb呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 3076#       发表于 2022-8-8 17:51
+
+看了眼这版本比赛节奏都挺快，选**前中期从线上开始摁死你的思路也没啥错吧，何况这把还是**打幽鬼这种经典爆线对局
+
+问题还是出在1234自己身上，终结比赛的能力实在太差了
+
+别的不说就下路夜魇高地下面那波团战打完脑子电魂还在泉水读秒那会儿，脑子稍微清楚点的都会先破一路撤退，之后再抱团找机会把中路二塔破了扫荡对面野区在对面野区刷钱把老干瘪直接压在高地上面，但1234做了太多错误的决策
+
+当然要是语音里有人说“别急着破路先陪他们再玩一会儿我也是信的”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 3077#       发表于 2022-8-8 17:51
+
+sg的投票贴把我看哭了
+
+*****
+
+####  蛭人  
+##### 3078#       发表于 2022-8-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979833&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-8 17:47</a>
+
+ss8当年也是实名菠菜第一人，既然可以为了a/一人黑lgd，为啥不能因为ss8黑nb呢
+
+—— 来自 Sony X ...</blockquote>
+现在黑LGD，或者黑AME是因为菠菜吗？换个说法，如果ame换成术士8，LGD会成为众矢之的？建议回顾ti8910，还原真相。
+

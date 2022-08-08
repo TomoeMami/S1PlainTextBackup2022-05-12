@@ -4127,3 +4127,72 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 你的爱就这种程度吗！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缘分未到，不能强求。我已经把目光看向三天后了
 
+
+
+*****
+
+####  qixinno2  
+##### 390#       发表于 2022-8-8 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">度日如年 赶紧三天后抽完剩下那点石头暴死算了
+
+
+
+*****
+
+####  alucardcz  
+##### 391#       发表于 2022-8-8 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979773&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 17:42</a>
+
+度日如年 赶紧三天后抽完剩下那点石头暴死算了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 居然还有石头
+
+*****
+
+####  qixinno2  
+##### 392#       发表于 2022-8-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979790&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 17:43</a>
+
+欧 羡慕 居然还有石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的就跟你没有了一样 
+
+*****
+
+####  alucardcz  
+##### 393#       发表于 2022-8-8 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">说个题外话  某地对2.6很满意的可不少啊 不仅仅有文本量无敌论 还有的把各种缺点都洗成了优点  无敌
+
+*****
+
+####  alucardcz  
+##### 394#       发表于 2022-8-8 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979816&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 17:45</a>
+
+说的就跟你没有了一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有60了
+
+*****
+
+####  qixinno2  
+##### 395#       发表于 2022-8-8 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979838&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 17:47</a>
+
+只有60了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比你强一点 还有90石 感觉自己随时会手贱点没了
+
+*****
+
+####  alucardcz  
+##### 396#       发表于 2022-8-8 17:53
+
+ 本帖最后由 alucardcz 于 2022-8-8 17:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979878&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 17:51</a>
+
+比你强一点 还有90石 感觉自己随时会手贱点没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕   萌新想搞个120 刚刚表演了一个2秒20连  很后悔 不如120石迎战泳装
+
