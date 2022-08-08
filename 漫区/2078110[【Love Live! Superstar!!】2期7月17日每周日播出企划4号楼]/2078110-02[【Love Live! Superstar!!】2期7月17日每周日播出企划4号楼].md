@@ -6974,3 +6974,28 @@ ksks：</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">要是给可可套灰毛吃瘪之类的定式的话不如把笔交给鲤鱼让她写自己
 
+
+
+*****
+
+####  离心  
+##### 2199#       发表于 2022-8-8 09:30
+
+ceo我感觉要么一集半入队要么一集。但ceo的设定真是家里贫困这种现实问题的话，那下一话无论如何都是巨雷。放低预期了
+
+*****
+
+####  老1.5  
+##### 2200#       发表于 2022-8-8 09:36
+
+我倒是没想那么多。。。我要求很低，只要可可还能每集都能出现在屏幕上说几句话就行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。放低标准看啥都不亏。
+
+我又不靠她这个角色写的好还是丑吃饭，就单纯喜欢，啥样都行。
+
+*****
+
+####  笋狐  
+##### 2201#       发表于 2022-8-8 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都整了个意义不明的单亲（约等于没亲）家庭留守儿童了，再多一个努力打工奔小康的贫困户又何妨，后者看着正常多了好吧
+

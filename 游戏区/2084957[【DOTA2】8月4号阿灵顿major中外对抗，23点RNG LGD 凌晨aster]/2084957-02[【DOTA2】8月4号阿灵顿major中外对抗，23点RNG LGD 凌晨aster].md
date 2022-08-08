@@ -11690,3 +11690,23 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我忘记定闹钟了
 
+
+
+*****
+
+####  lyuhiu  
+##### 2933#       发表于 2022-8-8 09:32
+
+加赛的赛程现在有说出来怎么搞了么
+
+*****
+
+####  jy000129  
+##### 2934#       发表于 2022-8-8 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56971635&amp;ptid=2084957" target="_blank">Thio 发表于 2022-8-8 04:37</a>
+求解下赵云什么意思……</blockquote>
+一个赵云带不动阿斗，那就来4个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
