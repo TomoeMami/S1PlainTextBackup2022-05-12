@@ -3934,3 +3934,15 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 md秃子
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 375#       发表于 2022-8-8 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56974047&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-8 10:42</a>
+
+打了一些强化本啥的，好多狂或者单个怪的，水武藏不好使，现在的3t队伍是什么样的？ ...</blockquote>
+强化本那点血量，宇宙凛水伽摩都是6加成3T平推的啊，除非对着魅惑挡下几率高的那几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

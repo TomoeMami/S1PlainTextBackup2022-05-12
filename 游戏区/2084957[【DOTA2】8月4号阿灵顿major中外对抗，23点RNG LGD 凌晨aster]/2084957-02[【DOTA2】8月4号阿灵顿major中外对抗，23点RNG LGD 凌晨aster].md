@@ -11975,3 +11975,43 @@ abed1胜0负</blockquote>
 
 坐等今年的ti lgd的经典剧本  不是不相信4赵云 实在是不相信ame...
 
+
+
+*****
+
+####  ArowRocher  
+##### 2962#       发表于 2022-8-8 11:33
+
+别忘了还有个补丁呢，说不定又什么样
+
+*****
+
+####  marlinfish  
+##### 2963#       发表于 2022-8-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973224&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-8 09:54</a>
+还有18年完美电竞的事情别说maybe，那年不给查理斯给国都出不了的bian才是离谱好吧，而且那时候发育三bian ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">换成别人给查理斯鸣不平都理直气壮，霉鳖自己16年越洋打炮压着跳刀跳刀拿最佳二号位，跳出来打抱不平就很搞笑
+
+*****
+
+####  百世诸侯  
+##### 2964#       发表于 2022-8-8 11:44
+
+<img src="https://pic.jitudisk.com/public/2022/08/07/693f68d565e91.png" referrerpolicy="no-referrer">
+
+呃呃
+
+*****
+
+####  百世诸侯  
+##### 2965#       发表于 2022-8-8 11:48
+
+<img src="https://img.saraba1st.com/forum/202208/08/114814ja6yt3nza3acdhmj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 11:48 上传
+
