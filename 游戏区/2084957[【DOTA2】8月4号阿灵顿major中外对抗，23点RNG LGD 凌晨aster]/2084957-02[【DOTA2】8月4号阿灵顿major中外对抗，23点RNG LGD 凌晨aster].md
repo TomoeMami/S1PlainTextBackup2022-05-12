@@ -12256,3 +12256,16 @@ s1的屏蔽词每次都这么喜感<img src="https://static.saraba1st.com/image/
 
 到ti决赛日前持续性缩壳<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 2992#       发表于 2022-8-8 14:12
+
+看完录像，霉鳖这个帕克是真怂逼啊，次次都切不死戴泽，技能全交都没打死，还玲珑心盘子，突出一个不粘锅，这把虚灵大根秒掉戴泽团都不会那么难打
+
+安厨也变安畜了，飞电魂脸上是何意啊，关键队友还都卖了他
+
+查猪精那VIP就不说了，眼里除了幽鬼就是跑
+
