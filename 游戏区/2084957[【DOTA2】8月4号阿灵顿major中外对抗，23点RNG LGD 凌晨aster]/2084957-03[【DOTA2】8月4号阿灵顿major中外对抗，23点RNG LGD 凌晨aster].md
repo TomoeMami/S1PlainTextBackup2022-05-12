@@ -1434,3 +1434,24 @@ sg本来就是逆风缩卵的啊，赢了吹，输了黑啊，能在sg逆风起�
 
 指望大鞭哥，只需要版本制裁，搞个节奏三版本，大鞭哥不选潮汐立马就伟，现在这个版本真是对lgd最友好的版本。
 
+
+
+*****
+
+####  弈秋  
+##### 3164#       发表于 2022-8-8 20:30
+
+看看v社下个版本懒不懒狗，我希望火锅和边路商店回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 3165#       发表于 2022-8-8 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980630&amp;ptid=2084957" target="_blank">Jooohnny 发表于 2022-8-8 18:57</a>
+
+上帝面如死灰
+
+今晚1点就能结束，能睡个好觉了，但是明天开始就是23点打到后天中午11点。</blockquote>
+你把这个打印出来是何意啊！妮就是办公室最恨的A4纸杀手！
+

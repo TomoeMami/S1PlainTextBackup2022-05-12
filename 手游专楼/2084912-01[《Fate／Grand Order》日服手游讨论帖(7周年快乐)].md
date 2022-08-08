@@ -4280,3 +4280,25 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">乐了。之前看到NGA晒一个1级学妹。今天帮人打小号看到2.1开局那关强制只能学妹出战。等级减半。他1级是怎样打得过的
 
+
+
+*****
+
+####  alucardcz  
+##### 405#       发表于 2022-8-8 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981545&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 20:18</a>
+
+不是11号么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里说的11号  我没看到啊 只看到个生放送预告
+
+*****
+
+####  areklose  
+##### 406#       发表于 2022-8-8 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981722&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 20:35</a>
+
+哪里说的11号  我没看到啊 只看到个生放送预告</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我觉得下周三YLS做的出来了！但我好想抽卡。所以希望10号
+
