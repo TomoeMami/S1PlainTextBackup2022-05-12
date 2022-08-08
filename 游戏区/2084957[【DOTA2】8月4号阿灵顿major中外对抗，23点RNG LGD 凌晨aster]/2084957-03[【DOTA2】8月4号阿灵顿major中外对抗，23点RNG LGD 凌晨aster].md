@@ -9549,3 +9549,22 @@ U2SH]8]$4XVQ[BC3KH2@7FD.jpg
 
 无论赢的是雪碧还是VP，都是直接去掉一个竞争对手，同时拿到1098分超越现在的EG和Fnatic
 
+
+
+*****
+
+####  山上徹也  
+##### 4168#       发表于 2022-8-9 06:12
+
+代军人节奏，建议立刻举报，等ame回国直接捉拿归案
+
+*****
+
+####  北欧王座  
+##### 4169#       发表于 2022-8-9 06:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985909&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-9 06:12</a>
+
+代军人节奏，建议立刻举报，等ame回国直接捉拿归案</blockquote>
+你要不自制几把枪帮忙正义制裁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
