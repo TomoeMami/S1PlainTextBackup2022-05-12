@@ -11631,3 +11631,17 @@ TSM三个打工仔要是把fnc抬到ti这有点好笑了
 
 要不就smg吧，反正也要打预选，topson和厨子一来流量拉满
 
+
+
+*****
+
+####  Bernoulli  
+##### 2927#       发表于 2022-8-8 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972245&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-8 08:05</a>
+
+淘汰赛第一轮茶队打og，感觉茶肯定打不过呀
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
+
