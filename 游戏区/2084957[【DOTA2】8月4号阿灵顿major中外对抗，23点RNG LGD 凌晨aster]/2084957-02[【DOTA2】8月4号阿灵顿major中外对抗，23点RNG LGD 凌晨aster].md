@@ -11794,3 +11794,12 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 妈的看到说上帝站着吃饭每夹一口菜都要给超哥鞠一躬实在绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  北条早苗  
+##### 2943#       发表于 2022-8-8 10:50
+
+厨子要是瘾这么大不如明年和顶儿子组个队算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
