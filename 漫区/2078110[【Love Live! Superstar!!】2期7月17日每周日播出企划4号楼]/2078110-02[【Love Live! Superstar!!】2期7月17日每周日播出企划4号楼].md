@@ -7483,3 +7483,22 @@ ceo大概率还是香音嘴炮，所以可回的人头还得给她的。最后�
 AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本都会有一个坐阵。nako大概因为各种表现逐渐被安排 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  竹筷  
+##### 2249#       发表于 2022-8-8 21:04
+
+<img src="https://img.saraba1st.com/forum/202208/08/210341surqqshrr8u5vkrv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6641.JPG</strong> (411.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 21:03 上传
+
+可爱滴捏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

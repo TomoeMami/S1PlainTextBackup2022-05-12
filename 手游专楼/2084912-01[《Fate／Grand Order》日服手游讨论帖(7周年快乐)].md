@@ -4393,3 +4393,35 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 我奶一口梅林是送的四星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么又犯傻了  都写着5星了
 
+
+
+*****
+
+####  qixinno2  
+##### 415#       发表于 2022-8-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981976&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 21:00</a>
+
+你怎么又犯傻了  都写着5星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不能再送一个四星的么 送214 抽215那种
+
+*****
+
+####  alucardcz  
+##### 416#       发表于 2022-8-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981993&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 21:02</a>
+
+就不能再送一个四星的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得呢
+
+*****
+
+####  qixinno2  
+##### 417#       发表于 2022-8-8 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981999&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 21:02</a>
+
+你觉得呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想屁吃又不犯法 毕竟没石头毛都抽不到
+
