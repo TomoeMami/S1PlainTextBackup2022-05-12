@@ -1472,3 +1472,47 @@ sg本来就是逆风缩卵的啊，赢了吹，输了黑啊，能在sg逆风起�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么硬核皇族粉
 我今天还在思考要不要去买个RNG的B站装饰去逆风起跳
 
+
+
+*****
+
+####  haruhiismer  
+##### 3168#       发表于 2022-8-8 20:50
+
+管人痴滚啊
+
+*****
+
+####  弈秋  
+##### 3169#       发表于 2022-8-8 20:51
+
+平时第一场都是看lgd的，今天看看rng把命运掌握在自己手里的局<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甩不出去的黄牌  
+##### 3170#       发表于 2022-8-8 20:54
+
+去年lgd后半年那么跳也要感谢茶茶的鲜明对比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 3171#       发表于 2022-8-8 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56980962&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-8 19:23</a>
+
+今年LGD粉丝比去年跳不是太正常了
+
+去年新组的LGD可是差点没打上major的，当时的出线形势跟现在的RNG差不多 ...</blockquote>
+看不起杜少的二轮游第一人？
+
+*****
+
+####  坚定的团子党  
+##### 3172#       发表于 2022-8-8 21:00
+
+gpk可太搞啦，推文：“我们只是决定让LGD一场，让他们以为自己很强大，然后我们就会在淘汰赛中让他们瞧瞧(我们)真正的实力<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">”
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

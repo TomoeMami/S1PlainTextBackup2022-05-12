@@ -4344,3 +4344,52 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 ◆番組タイトル◆</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 竟然是10号么 丢人了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 410#       发表于 2022-8-8 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981865&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 20:49</a>
+
+艹 竟然是10号么 丢人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要公主的池子好像是开到11号？就给人错觉
+
+*****
+
+####  qixinno2  
+##### 411#       发表于 2022-8-8 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981906&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-8 20:53</a>
+
+主要公主的池子好像是开到11号？就给人错觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是自己犯弱智了
+
+*****
+
+####  alucardcz  
+##### 412#       发表于 2022-8-8 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我奶一口10号只是预告 毕竟中旬10号还太早
+
+*****
+
+####  qixinno2  
+##### 413#       发表于 2022-8-8 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981963&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 20:59</a>
+
+我奶一口10号只是预告 毕竟中旬10号还太早</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我奶一口梅林是送的四星
+
+*****
+
+####  alucardcz  
+##### 414#       发表于 2022-8-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56981968&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-8 20:59</a>
+
+我奶一口梅林是送的四星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么又犯傻了  都写着5星了
+
