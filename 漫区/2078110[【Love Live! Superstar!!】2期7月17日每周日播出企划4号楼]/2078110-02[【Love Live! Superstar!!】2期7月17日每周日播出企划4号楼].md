@@ -7584,3 +7584,25 @@ AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有�
 所以这种主要还是看脸，这动画学 ...</blockquote>
 这个比较我认为有失偏颇，Liella!这边Apollo Bay所属的三个人与前辈企划里amuse的人最不同的是“海选合格者”这个名号，某种程度上能认为这几个人就是企划的“自己人”。至少个人认为企划相对比较明显对海选合格者有一定的倾斜。
 
+
+
+*****
+
+####  仟音一心  
+##### 2257#       发表于 2022-8-8 23:33
+
+<img src="https://p.sda1.dev/6/2def34da3582c78cd039c87861c7c93e/CMP_20220808233207007.jpg" referrerpolicy="no-referrer">
+北原朋萌C100可香本预览
+翻译嵌字 洲崎惠梨
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  竹筷  
+##### 2258#       发表于 2022-8-8 23:34
+
+北原佬我的可香超人<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
