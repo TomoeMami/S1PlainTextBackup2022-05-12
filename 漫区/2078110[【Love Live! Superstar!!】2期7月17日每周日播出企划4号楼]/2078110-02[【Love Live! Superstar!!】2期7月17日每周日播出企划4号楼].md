@@ -7233,3 +7233,15 @@ AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 2224#       发表于 2022-8-8 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978223&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-8 15:46</a>
+AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本都会有一个坐阵。nako大概因为各种表现逐渐被安排 ...</blockquote>
+现在是推二期生的时期，还采用2+4的带人模式，五老星轮班的时间长导致企划资源分配少的错觉吧。
+AB社在企划内的资源足够多，甚至觉得llsp这企划它有一半话事权。
+
