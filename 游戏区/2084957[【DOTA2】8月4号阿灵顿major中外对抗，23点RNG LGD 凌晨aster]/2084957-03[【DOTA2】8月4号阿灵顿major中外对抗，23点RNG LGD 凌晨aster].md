@@ -57,3 +57,24 @@ ana这先知切入真的有点搞笑了。今天打液体要不能2比0估计败
 
 劝你们不要想太多，作为茶粉，金融巨子的BP大概是什么水平再清楚不过了。想BP过SS8也太难了
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 3008#       发表于 2022-8-8 15:29
+
+诚然打好点确实是能赢的，但是最应该总结的还是别再搞抓一个20分钟4000经济的幽鬼了，虽然不抓大哥很反直觉。考虑到这幽鬼又穷又没等级，刷的慢得很。圣子华炼这个说法还是合理的
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  upcool  
+##### 3009#       发表于 2022-8-8 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56976089&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-8 13:04</a>
+
+夏一可还解说DOTA的吗</blockquote>
+因为他们打TICU都上头了，一个个沉迷的不行，夏一可是跟几个人直播看比赛而已，你说解说么应该还没那个能力
+
