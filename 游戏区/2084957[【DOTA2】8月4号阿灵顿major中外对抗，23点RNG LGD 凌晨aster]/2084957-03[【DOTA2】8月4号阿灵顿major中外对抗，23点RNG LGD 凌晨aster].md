@@ -553,3 +553,94 @@ og粉总不能是因为ana菜做得好吧<img src="https://static.saraba1st.com/
 
 ANA做的菜很难吃
 
+
+
+*****
+
+####  蛭人  
+##### 3062#       发表于 2022-8-8 17:23
+
+不是吧，这也能类比NB？NBDK什么情况啊，现在LGD的谁情况？什么成分不太清楚，但你侮辱hao和大木香蕉了属实有点问题。
+
+*****
+
+####  赤尸藏人  
+##### 3063#       发表于 2022-8-8 17:24
+
+看了下rng今早第二把，这阵容随便被翻好吧
+
+*****
+
+####  尸体鲨  
+##### 3064#       发表于 2022-8-8 17:25
+
+不知道为什么那么喜欢选**，这东西真的有那么好玩吗
+
+*****
+
+####  acejoe  
+##### 3065#       发表于 2022-8-8 17:26
+
+ame和风行什么梗？怎么说的我都听不懂？
+
+*****
+
+####  acejoe  
+##### 3066#       发表于 2022-8-8 17:26
+
+ame和风行什么梗？怎么说的我都听不懂？
+
+*****
+
+####  chilno  
+##### 3067#       发表于 2022-8-8 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979454&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-8 17:09</a>
+
+倾向CN DOTA该如何支持呢...</blockquote>
+当然支持全华班阿茶了！
+
+*****
+
+####  chilno  
+##### 3068#       发表于 2022-8-8 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979457&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-8 17:09</a>
+
+讲道理，刀塔之神也不是不眷顾lgd，只是不眷顾处长，处长要是有鸭头肉那种献祭头发的决心，刀塔之神肯定会 ...</blockquote>
+发际线还不够吗
+
+*****
+
+####  nowaki  
+##### 3069#       发表于 2022-8-8 17:35
+
+a畜新女朋友套皮撸狗阿梓自称风行人柱力
+
+*****
+
+####  莉拉厨  
+##### 3070#       发表于 2022-8-8 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979712&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-8 17:35</a>
+发际线还不够吗</blockquote>
+人家yatoro剃了个光头才能成功偷冠军，ame至少得留个莫西干吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 3071#       发表于 2022-8-8 17:39
+
+现在线优选viper很正常啊，尤其RNG喜欢打三线优，RNG这队也就链子在赢过LGD，那个时候术士8还装模做样选个小小给ame，可惜LGD只要让2、3肥点，1号位随意，真的很难输，4、5游走配合2、3，四赵云真的随便干翻对面的。
+
+*****
+
+####  反方向的波  
+##### 3072#       发表于 2022-8-8 17:39
+
+看完了第二把得录像，bp完的时候感觉让你滚的pick很去年eg
+<img src="https://p.sda1.dev/6/183342c6a42a57931abbce8545da9058/CMP_20220808173904254.jpg" referrerpolicy="no-referrer">
+打着打着果然一股“这盘一波架都不能输”的味儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这阵容就是要么把对面碾到超大的人头差 要么败一波就会败第二波第三波然后败到泉水蹲
+
