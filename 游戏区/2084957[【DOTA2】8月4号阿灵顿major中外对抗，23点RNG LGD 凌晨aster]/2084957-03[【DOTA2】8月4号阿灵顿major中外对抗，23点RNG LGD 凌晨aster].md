@@ -9568,3 +9568,14 @@ U2SH]8]$4XVQ[BC3KH2@7FD.jpg
 代军人节奏，建议立刻举报，等ame回国直接捉拿归案</blockquote>
 你要不自制几把枪帮忙正义制裁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 4170#       发表于 2022-8-9 06:49
+
+怎么早上一看论坛，都在说第一局超哥力中暴力，李斯全锅？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这俩犯罪程度有差吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
