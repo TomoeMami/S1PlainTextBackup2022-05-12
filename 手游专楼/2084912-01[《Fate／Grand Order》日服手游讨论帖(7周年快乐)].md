@@ -3946,3 +3946,38 @@ md秃子
 打了一些强化本啥的，好多狂或者单个怪的，水武藏不好使，现在的3t队伍是什么样的？ ...</blockquote>
 强化本那点血量，宇宙凛水伽摩都是6加成3T平推的啊，除非对着魅惑挡下几率高的那几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 376#       发表于 2022-8-8 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973385&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-8 10:03</a>
+
+一期泳裝的前半是水濑，后半段那个惜字如金还喜欢玩coc梗的反而不是（虽然水濑本身也是玩coc的）
+
+你游惜 ...</blockquote>
+一期泳装如果是水濑的话那他还真的是水平在线，我很喜欢那半期活动，各种建筑的梗非常密集，而且还帮芬恩正名了，从绿色牛头人变成了十分可靠的甘草帅哥。
+
+后半部分因为太水了而且野猪也不讨喜，在我这算是倒数第二的活动（倒一是超级班扬的美国神话，太资了）。
+
+星空负责的154我也没啥好感，从者战太少了，只知道吊胃口和拿童话剧凑字数...
+
+（话说西游活动也应该是星空吧，和154一样都突然冒出来一个哪吒...）
+
+这么看蘑菇追星还真是一厢情愿啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">星空整天划水，天野喜孝的画展更是直球侮辱...
+
+但是如果新夏活有绘里濑的话，星空应该会给亲女儿动动笔吧...希望能给FGO个面子，完善一下人设...
+
+*****
+
+####  kiralzb  
+##### 377#       发表于 2022-8-8 12:12
+
+我至少半年没玩了，搜了一下双狐狸是啥，没有，倒是另一只面目狰狞的狐狸我有，完全没有抽过的印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+宇宙凛水伽摩也没有，我上次泳装还是泳杀来着？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以最近这些现环境强者有复刻安排吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
