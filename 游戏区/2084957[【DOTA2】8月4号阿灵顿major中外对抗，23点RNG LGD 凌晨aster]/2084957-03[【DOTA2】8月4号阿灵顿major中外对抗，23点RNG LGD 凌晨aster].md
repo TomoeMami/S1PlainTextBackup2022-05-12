@@ -9579,3 +9579,53 @@ U2SH]8]$4XVQ[BC3KH2@7FD.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  健康猹  
+##### 4171#       发表于 2022-8-9 07:04
+
+活整得有点烂，不如让狗头人去发音频。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  逃离二次元  
+##### 4172#       发表于 2022-8-9 07:05
+
+是真的吗？这他妈是真的，tanya这波操作也太sb了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bgod666  
+##### 4173#       发表于 2022-8-9 07:07
+
+面对谭雅的质问，先辈的回应是
+
+pic1.png
+(54.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 07:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/070723c06no58iseksol4x.png" referrerpolicy="no-referrer">
+
+pic2.png
+(73.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 07:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/070724mpsraplpkpausttd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 4174#       发表于 2022-8-9 07:11
+
+打这么字，这就是撩到偶像后的反应吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
