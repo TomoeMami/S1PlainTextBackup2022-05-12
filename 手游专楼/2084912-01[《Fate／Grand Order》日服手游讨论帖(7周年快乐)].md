@@ -4528,3 +4528,25 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那投票不是几天前就开了么，我记得前几页不少“对我来说就是10分/9分”的回复
 
+
+
+*****
+
+####  qixinno2  
+##### 428#       发表于 2022-8-8 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983310&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 22:53</a>
+
+没怎么  开了个2。6满意度投票而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正再拉也比252强
+
+*****
+
+####  alucardcz  
+##### 429#       发表于 2022-8-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56983428&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-8 23:03</a>
+
+那投票不是几天前就开了么，我记得前几页不少“对我来说就是10分/9分”的回复 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是你关注隔壁 我今天早上刚看到（
+

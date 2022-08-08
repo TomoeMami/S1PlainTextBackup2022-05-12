@@ -2150,3 +2150,176 @@ tb能打亚龙吗
 
 这RNG阵容是选完就准备12分钟了吗
 
+
+
+*****
+
+####  Litccc  
+##### 3246#       发表于 2022-8-8 23:10
+
+这版本tb打刚被？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 3247#       发表于 2022-8-8 23:10
+
+意思是10手出个英雄币4号位？
+
+*****
+
+####  nowaki  
+##### 3248#       发表于 2022-8-8 23:10
+
+这不被对面冲烂？
+
+*****
+
+####  12481632  
+##### 3249#       发表于 2022-8-8 23:11
+
+这bp线上不是被爆中烂爆
+
+*****
+
+####  弈秋  
+##### 3250#       发表于 2022-8-8 23:11
+
+ana转打野了
+
+*****
+
+####  chilno  
+##### 3251#       发表于 2022-8-8 23:12
+
+建议漏油报id开个中路solo！
+
+*****
+
+####  弈秋  
+##### 3252#       发表于 2022-8-8 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这线直接不要了
+
+*****
+
+####  iriyano  
+##### 3253#       发表于 2022-8-8 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">10手出个小强何意啊
+
+*****
+
+####  nowaki  
+##### 3254#       发表于 2022-8-8 23:13
+
+不是啊，卡卡也配最后一手的吗
+
+*****
+
+####  Litccc  
+##### 3255#       发表于 2022-8-8 23:14
+
+小强这把很好发挥的
+
+*****
+
+####  12481632  
+##### 3256#       发表于 2022-8-8 23:14
+
+一手帕克，10手小强，这是何意呢
+
+*****
+
+####  天堂蜘蛛  
+##### 3257#       发表于 2022-8-8 23:15
+
+这阵容线上不是直接碎了。。。。。。
+
+*****
+
+####  qty  
+##### 3258#       发表于 2022-8-8 23:16
+
+阿B怎么回事，这么卡
+
+*****
+
+####  nxmonitor  
+##### 3259#       发表于 2022-8-8 23:16
+
+怎么放液体钢背了？液体就两个厉害德鲁伊钢背……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 3260#       发表于 2022-8-8 23:16
+
+主舞台都卡
+
+*****
+
+####  战狼PTSD  
+##### 3261#       发表于 2022-8-8 23:16
+
+<img src="https://img.saraba1st.com/forum/202208/08/231631ly4dzu3ddvx4yyrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 23:16 上传
+
+大老师略微看好RNG
+
+*****
+
+####  Litccc  
+##### 3262#       发表于 2022-8-8 23:17
+
+oc锐评010被冲了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 3263#       发表于 2022-8-8 23:17
+
+小强TB走一路这什么鬼才分路。。。
+
+*****
+
+####  弈秋  
+##### 3264#       发表于 2022-8-8 23:18
+
+刚被来打tb<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3265#       发表于 2022-8-8 23:18
+
+010是谁
+
+*****
+
+####  iriyano  
+##### 3266#       发表于 2022-8-8 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+要不也别装了，kaka混到2级就去中路住着吧
+
+*****
+
+####  12481632  
+##### 3267#       发表于 2022-8-8 23:18
+
+下午泥潭管人区已经冲过一轮了（）
+
+*****
+
+####  反方向的波  
+##### 3268#       发表于 2022-8-8 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">有液体拿蠕动亚龙放着tb不打去对电棍天才吗
+
