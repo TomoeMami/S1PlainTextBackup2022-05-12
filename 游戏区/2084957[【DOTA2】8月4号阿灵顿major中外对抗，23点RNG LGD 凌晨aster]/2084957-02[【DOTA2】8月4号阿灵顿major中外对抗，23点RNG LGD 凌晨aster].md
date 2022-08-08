@@ -12053,3 +12053,32 @@ wings那时候有电视直播吗，哪个世界线穿越来的蹭狗
 
 rng今晚只能指望zai和atf同时病发了，感觉这个状态掉到败者组人直接没了
 
+
+
+*****
+
+####  a1370303  
+##### 2970#       发表于 2022-8-8 12:09
+
+不过有一说一，我当年真在游戏风云上看过ti2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  a1370303  
+##### 2971#       发表于 2022-8-8 12:09
+
+ 本帖最后由 a1370303 于 2022-8-8 12:11 编辑 
+
+风怒
+
+*****
+
+####  反方向的波  
+##### 2972#       发表于 2022-8-8 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">游戏风云播过ti2-ti4吧，车长老和冷冷泣不成声我好像还看的直播
+
