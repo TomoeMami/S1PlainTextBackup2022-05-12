@@ -12196,3 +12196,12 @@ maybe昨天第二把犯病也很厉害啊，一个puck出个巫师之刃A人都�
 
 看了下maybe第一视角puck  关键的几波团战  因为切入问题  根本就放不了技能杀不了戴泽    问题还是很大的 
 
+
+
+*****
+
+####  BallanceHZ  
+##### 2987#       发表于 2022-8-8 13:17
+
+看了下翻盘的切片，ana先知和maybe puck这切入问题都很大<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
