@@ -4030,3 +4030,15 @@ md秃子
 泳装好像没什么特别强的吧，有也是意外的感觉</blockquote>
 BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没复刻。不过先看看今年泳装吧
 
+
+
+*****
+
+####  alucardcz  
+##### 382#       发表于 2022-8-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56976672&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-8 13:48</a>
+
+泳装好像没什么特别强的吧，有也是意外的感觉</blockquote>
+特别强是指的哪方面 打手不是很多强卡  水武藏 水呆毛 水伽摩 都算顶尖打手
+
