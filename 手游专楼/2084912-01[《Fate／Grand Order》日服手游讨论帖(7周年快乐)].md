@@ -4550,3 +4550,12 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 那投票不是几天前就开了么，我记得前几页不少“对我来说就是10分/9分”的回复 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是你关注隔壁 我今天早上刚看到（
 
+
+
+*****
+
+####  johnkamsar  
+##### 430#       发表于 2022-8-9 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">说好的群号怎么还没发
+

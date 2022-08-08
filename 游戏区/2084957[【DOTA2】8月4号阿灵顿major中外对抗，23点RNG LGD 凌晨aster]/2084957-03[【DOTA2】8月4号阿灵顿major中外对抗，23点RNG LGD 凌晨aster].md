@@ -5637,3 +5637,347 @@ AME看来是RNG系的233 虽然看着打得是特别松就是了
 
 哇，脑浆亚龙又来了呀
 
+
+
+*****
+
+####  mkii量产型  
+##### 3714#       发表于 2022-8-9 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小强那把A怎么赢我都有画面了，小强高地下埋个地堡，TB幻象慢慢磨都磨死了，你敢下高地就干死你，要么猪杂电棍拿强拆，真喜欢冲四塔杀人那就给亚巴顿，我都不知道TB第一波血量怎么下去，没想到RNG选了最有流量的打法
+
+*****
+
+####  haruhiismer  
+##### 3715#       发表于 2022-8-9 00:42
+
+不容易输吧火猫大后期甚至比紫猫还无敌
+
+*****
+
+####  百世诸侯  
+##### 3716#       发表于 2022-8-9 00:42
+
+悲伤的是aster打og不知道会不会软脚病发作
+
+*****
+
+####  反方向的波  
+##### 3717#       发表于 2022-8-9 00:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">蠕动亚龙这傻卵英雄的胜率就是这样刷上去的ctmd
+
+*****
+
+####  逃离二次元  
+##### 3718#       发表于 2022-8-9 00:43
+
+集美司马 集美司马 集美司马 重要的事情说三遍。不会以为霉鳖和安皇傻逼了，a皇就不是畜了？
+
+*****
+
+####  haruhiismer  
+##### 3719#       发表于 2022-8-9 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984769&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 00:42</a>
+悲伤的是aster打og不知道会不会软脚病发作</blockquote>
+能不一个小时02就算赢
+
+*****
+
+####  BallanceHZ  
+##### 3720#       发表于 2022-8-9 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984739&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 00:41</a>
+RNA派来的卧底是吧
+
+厨子开完大马上藏起来发了好几个轮盘，估计就是手滑了 ...</blockquote>
+不过这节目效果实在比隔壁差多了，评分0/10<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  弈秋  
+##### 3721#       发表于 2022-8-9 00:44
+
+最后一波刚被和tb真是越想越气<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">越想越搞
+
+*****
+
+####  ArowRocher  
+##### 3722#       发表于 2022-8-9 00:44
+
+只发生一次1234GG，可能若干年后就是超哥直播的一个梗。发生LGD翻盘，可能是TI之前互相攻击的弹药。今天再来一次，就是一段历史时期的污点了。
+
+*****
+
+####  leader01234  
+##### 3723#       发表于 2022-8-9 00:44
+
+其实也是小场面，感觉自从熬夜看过当年vg比赛感觉这种局已经拉不起血压了，只有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acalephs  
+##### 3724#       发表于 2022-8-9 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984785&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-8 08:43</a>
+能不一个小时02就算赢</blockquote>
+一小时0-2和三小时0-2哪个更蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2015, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 3725#       发表于 2022-8-9 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">帕克最后整了个大根也有点狠
+
+*****
+
+####  Keynes  
+##### 3726#       发表于 2022-8-9 00:44
+
+气啥啊，我现在看比赛都当乐子看的，我只会觉得搞笑
+
+*****
+
+####  战狼PTSD  
+##### 3727#       发表于 2022-8-9 00:45
+
+​如何评价电棍60分钟破一路的情况下塔伤只有816
+
+*****
+
+####  BallanceHZ  
+##### 3728#       发表于 2022-8-9 00:45
+
+怎么kaka跑到lgd这断服务器啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 3729#       发表于 2022-8-9 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经败者组了吧？
+
+*****
+
+####  ArowRocher  
+##### 3730#       发表于 2022-8-9 00:46
+
+看major三天，RNG造成了漏油的精神内耗
+
+*****
+
+####  尸体鲨  
+##### 3731#       发表于 2022-8-9 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电棍就没摸塔，幻象摸塔的时候电棍在刷林肯，前面没看，点进来的时候电棍才2800经济，谁告诉我发生了什么
+
+*****
+
+####  BallanceHZ  
+##### 3732#       发表于 2022-8-9 00:47
+
+rng这bp前三首我怎么觉得已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3733#       发表于 2022-8-9 00:47
+
+李斯去年在家解说指点江山激扬文字，自己上场也是个畜
+
+aster打og是后天早上八点，终于有个阳间时间了
+
+*****
+
+####  Litccc  
+##### 3734#       发表于 2022-8-9 00:47
+
+看major三天，RNG治好了漏油的精神内耗
+
+*****
+
+####  sdnuluffy  
+##### 3735#       发表于 2022-8-9 00:47
+
+实在是搞不懂，tb拿刷新变身不是随便拆吗？？？？根本就不是谁的锅问题吧，5个人有一个有脑子指挥一下不就三路了
+
+*****
+
+####  nightmare902015  
+##### 3736#       发表于 2022-8-9 00:47
+
+对面点蝙蝠你就点神谕是不是有点太纯良了啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 3737#       发表于 2022-8-9 00:48
+
+又是**，不想看到**<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 3738#       发表于 2022-8-9 00:48
+
+眉笔蓝猫我超
+
+*****
+
+####  尸体鲨  
+##### 3739#       发表于 2022-8-9 00:48
+
+蓝猫来了
+
+*****
+
+####  12481632  
+##### 3740#       发表于 2022-8-9 00:48
+
+合一合一
+
+*****
+
+####  山上徹也  
+##### 3741#       发表于 2022-8-9 00:48
+
+经典最后一把蓝猫
+
+*****
+
+####  BallanceHZ  
+##### 3742#       发表于 2022-8-9 00:48
+
+蓝猫，我直接宣布gg
+希望maybe能打我脸吧……
+
+*****
+
+####  弈秋  
+##### 3743#       发表于 2022-8-9 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始了 经典4手蓝猫
+
+*****
+
+####  IG.430  
+##### 3744#       发表于 2022-8-9 00:48
+
+看major就是来看rng的，如果任何一个集美没看rng的全部比赛我真的会栓Q。咱就是说只看lgd真的是一整个大无语住了。rng比赛的满足感真的hin足，属于是一整个爱住的绝绝子感觉。不是吧？不是吧？不会还有人没看过rng的小组赛吧，那姐妹真的只能说是好下头了？！
+
+*****
+
+####  聚散浮云  
+##### 3745#       发表于 2022-8-9 00:48
+
+lgd这盘也挺脑浆的，没想到dpc前二的队伍能打得这么丑陋
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  雅朵莉雀  
+##### 3746#       发表于 2022-8-9 00:48
+
+这盘赢了RNG打Fnatic和雪碧的败者
+
+这盘输了RNG打LGD和BOOM的败者
+
+要不RNG还是输了吧，没必要再赢了，天天跟BOOM练应该知根知底吧
+
+为什么增加了精神内耗，这盘真是看的我大呼过瘾，完全没意识到居然打到60分钟了
+
+*****
+
+####  seki_m  
+##### 3747#       发表于 2022-8-9 00:49
+
+有时候觉得当个集美也挺好，你只用装一天的死却可以享受其余364天
+
+*****
+
+####  ArowRocher  
+##### 3748#       发表于 2022-8-9 00:49
+
+回家局（？）蓝猫
+
+*****
+
+####  iriyano  
+##### 3749#       发表于 2022-8-9 00:49
+
+一开始看到上帝扭头走了，还以为李斯拿a拿盾直接a杖刷新打塔
+
+结果被叫上帝回去拿盾拿A李斯扭头刷钱真的笑吐了
+
+*****
+
+####  -SLSL-  
+##### 3750#       发表于 2022-8-9 00:49
+
+包儿爷儿我儿要儿玩儿蓝儿猫儿
+
+
+
+*****
+
+####  BallanceHZ  
+##### 3751#       发表于 2022-8-9 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984852&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-9 00:48</a>
+lgd这盘也挺脑浆的，没想到dpc前二的队伍能打得这么丑陋
+
+—— 来自 S1Fun</blockquote>
+lgd输赢毫无影响的，rng那可是关键场次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 3752#       发表于 2022-8-9 00:50
+
+逆风起跳方显英雄本色，越是艰难越要磨炼自己的信念
+永远不会原谅，记住，是永远！
+
+*****
+
+####  haruhiismer  
+##### 3753#       发表于 2022-8-9 00:50
+
+lgd这战术素养高太多
+
+*****
+
+####  弈秋  
+##### 3754#       发表于 2022-8-9 00:50
+
+蠕动亚龙还玩
+
+*****
+
+####  IG.430  
+##### 3755#       发表于 2022-8-9 00:50
+
+还有a帐老陈这种驱散，神了
+
+*****
+
+####  Keynes  
+##### 3756#       发表于 2022-8-9 00:51
+
+ss8的bp跟你闹呢
+
+*****
+
+####  sdnuluffy  
+##### 3757#       发表于 2022-8-9 00:51
+
+哈哈哈哈哈哈哈哈哈，雕哥解说老干爹最后一波团真的是笑死我了
+
