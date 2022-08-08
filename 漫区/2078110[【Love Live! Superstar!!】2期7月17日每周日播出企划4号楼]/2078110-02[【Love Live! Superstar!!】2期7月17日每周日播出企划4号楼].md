@@ -7471,3 +7471,15 @@ ceo大概率还是香音嘴炮，所以可回的人头还得给她的。最后�
 
 要一起上飞机那干脆放最后一集，正片比赛完事了出几集上海行OVA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 2248#       发表于 2022-8-8 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978223&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-8 15:46</a>
+
+AB 3个人其实企划资源算是给足的，特别是很多外出宣传基本都会有一个坐阵。nako大概因为各种表现逐渐被安排 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
