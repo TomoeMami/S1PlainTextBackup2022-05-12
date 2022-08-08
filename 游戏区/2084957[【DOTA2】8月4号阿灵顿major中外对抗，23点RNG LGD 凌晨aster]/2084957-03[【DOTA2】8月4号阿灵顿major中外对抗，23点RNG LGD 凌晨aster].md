@@ -4530,3 +4530,694 @@ RNG的比赛真是永远不让你失望啊
 
 喜欢鳖呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 3571#       发表于 2022-8-9 00:20
+
+刚被的机械之心<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 3572#       发表于 2022-8-9 00:21
+
+刚被无敌咯，刷新BKB撒旦大晕锤
+
+*****
+
+####  名字不乱取  
+##### 3573#       发表于 2022-8-9 00:21
+
+刚被拉满了，这波上帝可以证明一下什么叫双冠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 3574#       发表于 2022-8-9 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满足这刚被一切需求，这道具。
+
+*****
+
+####  弈秋  
+##### 3575#       发表于 2022-8-9 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本打不过
+
+*****
+
+####  Keynes  
+##### 3576#       发表于 2022-8-9 00:22
+
+好好好
+
+*****
+
+####  你谁  
+##### 3577#       发表于 2022-8-9 00:22
+
+完了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Damocles990609  
+##### 3578#       发表于 2022-8-9 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 3579#       发表于 2022-8-9 00:22
+
+哎哟喂 坐牢啊
+
+*****
+
+####  北条早苗  
+##### 3580#       发表于 2022-8-9 00:22
+
+机械之心无解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 3581#       发表于 2022-8-9 00:22
+
+这个机械之心救命了
+
+*****
+
+####  trackerList  
+##### 3582#       发表于 2022-8-9 00:22
+
+还是看看远处的水厂吧，家人们
+
+*****
+
+####  haruhiismer  
+##### 3583#       发表于 2022-8-9 00:22
+
+这是何意啊
+
+*****
+
+####  Litccc  
+##### 3584#       发表于 2022-8-9 00:22
+
+机械之心刚被是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 3585#       发表于 2022-8-9 00:22
+
+本以为sszai够畜了，万万没想到还有李斯啊
+
+*****
+
+####  战狼PTSD  
+##### 3586#       发表于 2022-8-9 00:22
+
+ANA你服了没
+
+*****
+
+####  名字不乱取  
+##### 3587#       发表于 2022-8-9 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984446&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-9 00:21</a>
+
+刚被拉满了，这波上帝可以证明一下什么叫双冠了</blockquote>
+证明失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 3588#       发表于 2022-8-9 00:23
+
+机械之心刚背，无敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 3589#       发表于 2022-8-9 00:23
+
+ 我是傻逼， 我怎么能相信RNG的
+
+*****
+
+####  逃离二次元  
+##### 3590#       发表于 2022-8-9 00:23
+
+gggggg
+
+*****
+
+####  阿垃垃圾历  
+##### 3591#       发表于 2022-8-9 00:23
+
+太艹了  
+
+*****
+
+####  雅朵莉雀  
+##### 3592#       发表于 2022-8-9 00:23
+
+哇，这刚被顶着3个人把TB的脸锤爆了呀，我服了呀
+
+*****
+
+####  天堂蜘蛛  
+##### 3593#       发表于 2022-8-9 00:23
+
+哇这也能被翻的么，虽然天天被翻但每次被翻我都忍不住感叹一句
+
+*****
+
+####  战狼PTSD  
+##### 3594#       发表于 2022-8-9 00:23
+
+TI8破案了
+
+*****
+
+####  12481632  
+##### 3595#       发表于 2022-8-9 00:23
+
+真丑陋呀
+
+*****
+
+####  反方向的波  
+##### 3596#       发表于 2022-8-9 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3597#       发表于 2022-8-9 00:23
+
+上帝服没服我不知道，ka鳖应该是服了
+
+*****
+
+####  clears  
+##### 3598#       发表于 2022-8-9 00:23
+
+笑死我了，马戏团表演是吧
+
+*****
+
+####  BallanceHZ  
+##### 3599#       发表于 2022-8-9 00:23
+
+这rng实在太tm牛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 3600#       发表于 2022-8-9 00:23
+
+这不是tb的问题吗，为啥不变身拆
+
+
+
+*****
+
+####  seki_m  
+##### 3601#       发表于 2022-8-9 00:23
+
+这就是机械之心啊
+
+*****
+
+####  是挞不是派  
+##### 3602#       发表于 2022-8-9 00:23
+
+好呀好呀，活该呀
+
+*****
+
+####  名字不乱取  
+##### 3603#       发表于 2022-8-9 00:23
+
+ana就问你服不服吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3604#       发表于 2022-8-9 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40分钟就能赢的，打到60分钟输了
+
+*****
+
+####  百世诸侯  
+##### 3605#       发表于 2022-8-9 00:24
+
+看完这把，我相信dota之神是存在的了，就得奖励液体一个机械之心来杀爆丑陋的rng<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不应  
+##### 3606#       发表于 2022-8-9 00:24
+
+这下马桶哥单冠超双冠了
+
+*****
+
+####  cobymar  
+##### 3607#       发表于 2022-8-9 00:24
+
+蒸恶心啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  杜文乐超神归来  
+##### 3608#       发表于 2022-8-9 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">TB跟钢背对A，电魂跑去抽攻毒 龙
+
+*****
+
+####  万世创伤伊莫库  
+##### 3609#       发表于 2022-8-9 00:24
+
+这打的是啥啊……睡觉
+
+*****
+
+####  马儿在流泪  
+##### 3610#       发表于 2022-8-9 00:24
+
+下把应该碾压了
+
+*****
+
+####  千千千千鸟  
+##### 3611#       发表于 2022-8-9 00:24
+
+这盘和昨天打LGD第二盘哪盘更离谱？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 3612#       发表于 2022-8-9 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">岁月史书该发动啦！
+
+*****
+
+####  12481632  
+##### 3613#       发表于 2022-8-9 00:25
+
+好呀好呀，杰畜明天的素材又有了呀
+
+*****
+
+####  苏西踩到我了  
+##### 3614#       发表于 2022-8-9 00:25
+
+不是，为什么rng不推塔啊，a给电棍在高地随便站会儿就能把塔推了赢下这局，随随便便就能赢的局怎么就像路人局一样输？
+
+*****
+
+####  iriyano  
+##### 3615#       发表于 2022-8-9 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+说了靠小强戳打先手不行的呀
+
+超哥李斯团战一点用没有呀
+
+*****
+
+####  Litccc  
+##### 3616#       发表于 2022-8-9 00:25
+
+厨子这把确实是有锅的，就不该信这几个csdx，队友冲四塔自己开变身拆塔就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 3617#       发表于 2022-8-9 00:25
+
+好呀好呀，领先2万高地就靠分身磨，唯一一次冲高地还追到泉水送了，拆塔不好嘛
+rng再这么表演跟茶一样恶心了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 3618#       发表于 2022-8-9 00:25
+
+tb想推进 这电棍一直在野区打钱 自己一个人上高送是吧
+
+*****
+
+####  百世诸侯  
+##### 3619#       发表于 2022-8-9 00:25
+
+这把上帝不点换血天赋，讲道理也挺畜的，大家都一样烂
+
+*****
+
+####  Kagam1  
+##### 3620#       发表于 2022-8-9 00:25
+
+说了一生黑不是没道理的
+
+*****
+
+####  woyzeck  
+##### 3621#       发表于 2022-8-9 00:25
+
+这rng真是我生平仅见。
+
+*****
+
+####  4591  
+##### 3622#       发表于 2022-8-9 00:25
+
+本届比赛三局大优被人绝地翻盘，同一个死法，大优不抱团推高，真的没有谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3623#       发表于 2022-8-9 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984511&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-9 00:24</a>
+这盘和昨天打LGD第二盘哪盘更离谱？</blockquote>
+我觉得这把更离谱<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马台街48  
+##### 3624#       发表于 2022-8-9 00:25
+
+精彩！
+
+*****
+
+####  hcf220  
+##### 3625#       发表于 2022-8-9 00:25
+
+第一把带盾上上路高地怎么上帝在四塔那个位置啊，没看懂
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 3626#       发表于 2022-8-9 00:25
+
+赛后分锅一下，第一畜团战梦游、带盾打钱的里斯；第二畜团战梦游，不出羊刀出大根的冠超，应该没什么毛病吧
+
+*****
+
+####  tankai  
+##### 3627#       发表于 2022-8-9 00:25
+
+冲啥?超哥查理斯你们记得TI8的OG不是慢慢磨高地的?要不要问问ANA?
+
+*****
+
+####  sodah  
+##### 3628#       发表于 2022-8-9 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984500&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 00:24</a>
+
+看完这把，我相信dota之神是存在的了，就得奖励液体一个机械之心来杀爆丑陋的rng ...</blockquote>
+中肯。
+
+*****
+
+####  applebloom  
+##### 3629#       发表于 2022-8-9 00:25
+
+看吐了
+
+*****
+
+####  六道仙鱼  
+##### 3630#       发表于 2022-8-9 00:26
+
+真的拉血压呀，睡觉
+
+
+
+*****
+
+####  qazkevin  
+##### 3631#       发表于 2022-8-9 00:26
+
+妈的，李斯显示在犯罪，就是在吃菠菜
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  吃货红毛  
+##### 3632#       发表于 2022-8-9 00:26
+
+RNG这团打的 一打起来1 2 3各自一个地方打<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 3633#       发表于 2022-8-9 00:26
+
+打的好乱啊，能撑60分钟全靠个人能力，团队配合太拉了
+
+*****
+
+####  北条早苗  
+##### 3634#       发表于 2022-8-9 00:26
+
+上帝最大的锅就是信了队友跟着冲四塔好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acalephs  
+##### 3635#       发表于 2022-8-9 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984535&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-8 08:25</a>
+第一把带盾上上路高地怎么上帝在四塔那个位置啊，没看懂
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Nex ...</blockquote>
+冲进去杀刚背，刚背买活退不回来了
+
+—— 来自 OnePlus IN2015, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赤尸藏人  
+##### 3636#       发表于 2022-8-9 00:26
+
+破案了我操
+
+*****
+
+####  蛭人  
+##### 3637#       发表于 2022-8-9 00:26
+
+输其实很简单吧，TB高地硬刚对面，四个队友把TB卖了，基本GG，说明RNG这盘不知道TB怎么赢.
+
+*****
+
+####  secretgarnet  
+##### 3638#       发表于 2022-8-9 00:26
+
+我突然又放心了，rng这个状态去预选也没什么威胁，应该是被其他队乱翻盘好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穷且坚强着  
+##### 3639#       发表于 2022-8-9 00:27
+
+本来看RNG就看个乐子，这把查理斯是真把人气到了，怎么能打成这样的，说他没有一点作用都是抬举他了，纯纯的CS
+
+*****
+
+####  聚散浮云  
+##### 3640#       发表于 2022-8-9 00:27
+
+只能说不意外呀
+
+*****
+
+####  名字不乱取  
+##### 3641#       发表于 2022-8-9 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984511&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-9 00:24</a>
+
+这盘和昨天打LGD第二盘哪盘更离谱？</blockquote>
+我投今天这把一票，我给卡猴跪下了，李斯把地板砸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 3642#       发表于 2022-8-9 00:27
+
+卡猴英名一世，别最后文武合璧进不了TI就搞笑了
+
+*****
+
+####  百世诸侯  
+##### 3643#       发表于 2022-8-9 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下岁月史书也没人说话了，还好fy没来呀
+
+*****
+
+####  无聊的神  
+##### 3644#       发表于 2022-8-9 00:27
+
+RNG心理出问题了要
+
+*****
+
+####  天堂蜘蛛  
+##### 3645#       发表于 2022-8-9 00:27
+
+这把最cs的肯定是李斯没跑了，其他几个随便分锅了
+
+*****
+
+####  ArowRocher  
+##### 3646#       发表于 2022-8-9 00:27
+
+该推不推打得跟东南雅一样便秘，就别怪机械降神了
+
+*****
+
+####  acalephs  
+##### 3647#       发表于 2022-8-9 00:27
+
+我觉得ana已经逐渐融入团队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2015, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TIZI  
+##### 3648#       发表于 2022-8-9 00:28
+
+超哥前期被单杀小问题，中后期不丢人
+上帝25级天赋没选换血有点蠢，明显队内沟通有点问题，感觉换ghost回来rng应该能走更远
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  mkii量产型  
+##### 3649#       发表于 2022-8-9 00:28
+
+老北京现在打法简直DOTA詹姆斯，极其看中KDA，只会打EZ收割，打出优势了铁血切入，否则硬see
+
+*****
+
+####  反方向的波  
+##### 3650#       发表于 2022-8-9 00:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">哈哈阿版都破防了
+
+*****
+
+####  雅朵莉雀  
+##### 3651#       发表于 2022-8-9 00:28
+
+根本就是莫名其妙，巨大优势带盾不敢摸高地
+
+不敢摸高地就算了，RNG这时候的选择居然是让小强跳进去先手冲进四塔杀人
+
+直接TB变身平推都推完了，有亚巴顿反手，不知道这个队脑子里装的什么
+
+*****
+
+####  llysander  
+##### 3652#       发表于 2022-8-9 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984511&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-9 00:24</a>
+
+这盘和昨天打LGD第二盘哪盘更离谱？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">昨天十二分钟大鲨特鲨的时候大老师看出了上身虚胖下盘不稳给了40%胜率，老外还研究了半天
+
+幽鬼对先知有一定的性能压制，执行上也没什么巨大失误最后不浪买活死也拖不过
+
+今天更难看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 3653#       发表于 2022-8-9 00:28
+
+“为什么带盾不上高？”
+有一说一，上帝拿了盾是不停的在高地下面放幻想磨塔的，有除沈去打钱了啊
+
+*****
+
+####  不应  
+##### 3654#       发表于 2022-8-9 00:28
+
+上帝估计major打完不想接着打职业了，什么时候受过这样的气，被连着大优翻盘三次
+
+*****
+
+####  北条早苗  
+##### 3655#       发表于 2022-8-9 00:28
+
+控到四代盾那一波，李斯拿了A杖和刷新球碎片，自己身上还一个刷新，这样都没破三路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 3656#       发表于 2022-8-9 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+这个tb不变身打塔和小狗不魔免差不多
+
+我相信是团队决策了集美们
+
+*****
+
+####  百世诸侯  
+##### 3657#       发表于 2022-8-9 00:29
+
+沟通问题应该挺严重的，还得是👻
+
+*****
+
+####  12481632  
+##### 3658#       发表于 2022-8-9 00:29
+
+懂了，是卡猴把hgt精神传承到rng了
+
+*****
+
+####  nightmare902015  
+##### 3659#       发表于 2022-8-9 00:30
+
+这个电棍和昨天bian酱的电棍比起来也太辣眼睛了，这种大翻盘看了要命，今晚有点睡不好了都。
+
+*****
+
+####  蛭人  
+##### 3660#       发表于 2022-8-9 00:30
+
+说出来你们可能不相信，电棍这把建筑伤害只有八百。
+
