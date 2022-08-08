@@ -7439,3 +7439,15 @@ ceo大概率还是香音嘴炮，所以可回的人头还得给她的。最后�
 
 不自由
 
+
+
+*****
+
+####  adw667  
+##### 2245#       发表于 2022-8-8 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979635&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-8-8 17:23</a>
+
+应该让堇和可可一起上飞机，不拆可堇又能让香音追飞机</blockquote>
+可可和堇一起上飞机可以出OVA了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

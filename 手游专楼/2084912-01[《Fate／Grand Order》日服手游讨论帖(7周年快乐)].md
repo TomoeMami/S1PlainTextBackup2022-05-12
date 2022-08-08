@@ -4196,3 +4196,28 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 比你强一点 还有90石 感觉自己随时会手贱点没了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕   萌新想搞个120 刚刚表演了一个2秒20连  很后悔 不如120石迎战泳装
 
+
+
+*****
+
+####  exiaexa  
+##### 397#       发表于 2022-8-8 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979828&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 17:46</a>
+
+说个题外话  某地对2.6很满意的可不少啊 不仅仅有文本量无敌论 还有的把各种缺点都洗成了优点  无敌 ...</blockquote>
+可是这楼里的只想看乐子，不想去车人啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 398#       发表于 2022-8-8 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56979902&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-8 17:53</a>
+
+欧 羡慕   萌新想搞个120 刚刚表演了一个2秒20连  很后悔 不如120石迎战泳装
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这分明是为了新泳装池子的出货垫刀了 坐等三天后萌新一发十连出货
+
