@@ -1321,3 +1321,53 @@ dota之神给邪恶明辫的惩罚就是透支自己<img src="https://static.sar
 
 等一手jeff哥哥一波更新把四个赵云削成狗好吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 3153#       发表于 2022-8-8 19:23
+
+ 本帖最后由 雅朵莉雀 于 2022-8-8 19:28 编辑 
+
+今年LGD粉丝比去年跳不是太正常了
+
+去年新组的LGD可是差点没打上major的，当时的出线形势跟现在的RNG差不多，只有跟小象搏命才能出国
+
+国内第4出门，面对的是整整一年多没见过的魔王秘密和VP，最后拿了个major第三，国内还有major冠军的IG，拿animajor之前一冠未得
+
+今年的LGD可是结结实实的拿了两个DPC第一+两个季后赛第一，出国又拿了价值8个major的石油杯
+
+常看虎扑拍球饭圈的都知道，哪怕赢了一个系列赛的一小分都要跳到天上去，满版满屏的狂欢
+
+LGD可是已经赢了半年了，顺风不起跳难道逆风起跳？
+
+毕竟不是谁都有脸一轮游之后加冕世界第一中单的呀
+
+*****
+
+####  沈淮  
+##### 3154#         楼主| 发表于 2022-8-8 19:24
+
+赢麻了
+
+*****
+
+####  Litccc  
+##### 3155#       发表于 2022-8-8 19:27
+
+怎么借来的号也是管人痴的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3156#       发表于 2022-8-8 19:29
+
+<img src="https://img.saraba1st.com/forum/202208/08/192956mrtiqiiuouqqg027.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 19:29 上传
+
