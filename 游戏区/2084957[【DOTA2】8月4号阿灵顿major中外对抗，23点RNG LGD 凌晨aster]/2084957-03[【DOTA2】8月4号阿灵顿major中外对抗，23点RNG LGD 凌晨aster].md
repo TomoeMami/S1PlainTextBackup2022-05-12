@@ -7661,3 +7661,381 @@ w姓某人先屏蔽了，在漏油们都在看乐子的时候还不断给自己�
 
 中山公园！go！
 
+
+
+*****
+
+####  蛭人  
+##### 3968#       发表于 2022-8-9 01:41
+
+ana入泉狂魔好吧，狠人一个，能入泉绝不不手软的。
+
+*****
+
+####  Keynes  
+##### 3969#       发表于 2022-8-9 01:41
+
+乐子挺多的啊，有人喜欢出来装正义使者，属实是石砸狗叫了
+
+*****
+
+####  wizder  
+##### 3970#       发表于 2022-8-9 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985318&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-9 01:37</a>
+
+石砸狗叫</blockquote>
+对啊我没搞懂我砸了一下粪坑SG为啥你那么着急叫
+
+楼里本来就大部分人在讨论游戏少部分人这个畜那个司马的叫
+
+一定要S1变成SG那样的地方你会觉得好？
+
+如果讲道理讲不清楚那我本来也无话可说  但如果喜欢相互攻击扣帽子伟乌生莫比净了  为什么又总是看不见自己发过的言论只顶着对方攻击自己的直接人身攻击呢？
+
+我骂SG粪坑 你直接骂我傻逼犯贱 哈哈哈哈哈 那在你们那种“只允许我攻击别人不允许别人攻击我”的标准下，我还是太双标了呢  
+
+*****
+
+####  果冻的沙耶  
+##### 3971#       发表于 2022-8-9 01:42
+
+太乐了，最后还是靠上帝
+
+*****
+
+####  尸体鲨  
+##### 3972#       发表于 2022-8-9 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">集美如果没有高强度岁月史书清算的话，可能我会更支持把双方都赶出去吧
+RNG这几天真是把本能刀塔打出花来了，贡献了很多新的脑浆路子
+
+*****
+
+####  不应  
+##### 3973#       发表于 2022-8-9 01:42
+
+vp 2比0 og，og 2比0 rng，相当于4比0 rng，还是打雪碧吧
+
+*****
+
+####  无聊的神  
+##### 3974#       发表于 2022-8-9 01:43
+
+阿超还是得玩蓝猫啊，挺好的
+
+打VP有机会2：1吧，打雪碧应该打不过
+
+但是打雪碧的话……ana大战yatoro……我想看
+
+*****
+
+####  格雷殿下  
+##### 3975#       发表于 2022-8-9 01:43
+
+小天使?犹大！
+
+*****
+
+####  43453  
+##### 3976#       发表于 2022-8-9 01:43
+
+lgd不积德演一波boom，回来找rng再爽一把会怎样，亲手送超哥上的飞机
+
+*****
+
+####  尸体鲨  
+##### 3977#       发表于 2022-8-9 01:43
+
+蓝猫现在真的弱智英雄，滚两下就萎了
+
+*****
+
+####  战狼PTSD  
+##### 3978#       发表于 2022-8-9 01:43
+
+<img src="https://img.saraba1st.com/forum/202208/09/014330swz88gc8hcg4zrir.png" referrerpolicy="no-referrer">
+
+<strong>B69`A6IV~~KNH]I{{{1O6RK.png</strong> (276.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:43 上传
+
+*****
+
+####  玛基  
+##### 3979#       发表于 2022-8-9 01:43
+
+赢归赢，别选懒猫麻衣了，真的菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 3980#       发表于 2022-8-9 01:43
+
+<img src="https://img.saraba1st.com/forum/202208/09/014323n11xv5p1u1ouou3t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (303.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 01:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茶这输了就真别玩了
+
+*****
+
+####  名字不乱取  
+##### 3981#       发表于 2022-8-9 01:43
+
+看爽了，睡大觉去了，漏油要是开赛博中山公园的话，我就提前把我现在有的死鱼全压上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3982#       发表于 2022-8-9 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985367&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:41</a>
+
+对啊我没搞懂我砸了一下粪坑SG为啥你那么着急叫
+
+楼里本来就大部分人在讨论游戏少部分人这个畜那个司马的 ...</blockquote>
+你真是懂又不懂啊，这dota节奏楼就是sg的人开的，来聊天的也大部分都是sg用户，这又变成不想让s1变成sg了，搞得是什么sg的人空降本楼把善良原住民刀友赶走了一样，莫名其妙的
+
+*****
+
+####  Keynes  
+##### 3983#       发表于 2022-8-9 01:44
+
+ 本帖最后由 Keynes 于 2022-8-9 01:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985292&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:35</a>
+
+奇怪了 你的逻辑不是不能反击么？别人分类你举报他言论啊  你既然也嘴贱了居然还这么在乎别人嘴贱你啊？ ...</blockquote>
+那我一开始嘴臭您了吗？正义集美<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 3984#       发表于 2022-8-9 01:44
+
+茶又对上东南亚
+
+*****
+
+####  山上徹也  
+##### 3985#       发表于 2022-8-9 01:45
+
+那这不是确定预选了？经典白折腾
+
+*****
+
+####  IG.430  
+##### 3986#       发表于 2022-8-9 01:45
+
+妮打运营交流半天噜噜语—中文—东南亚英语—澳大利亚英语，交流的清楚吗
+
+肌肉dota就简单很多了
+
+*****
+
+####  反方向的波  
+##### 3987#       发表于 2022-8-9 01:45
+
+ 本帖最后由 反方向的波 于 2022-8-9 01:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/326.png" referrerpolicy="no-referrer">这英雄9次出场赢了8次，我不能接受
+每次打第二波婚戒魔杖瓶统统都要交个干净，居然还能有这胜率
+
+*****
+
+####  a1370303  
+##### 3988#       发表于 2022-8-9 01:45
+
+茶茶打fnc，感觉不太稳啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wizder  
+##### 3989#       发表于 2022-8-9 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985386&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 01:44</a>
+
+你真是懂又不懂啊，这dota节奏楼就是sg的人开的，来聊天的也大部分都是sg用户，这又变成不想让s1变成sg了 ...</blockquote>
+哦 懂了 那我错了 因为以前我只在S1的动漫讨论楼里讨论过 没想过原来节奏楼本身的作用就是给sg用户一个更广泛的发泄舞台 怪我 
+
+*****
+
+####  逃离二次元  
+##### 3990#       发表于 2022-8-9 01:45
+
+本低分狗先睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">明天还得工作，车轱辘够让人疲惫的
+
+
+
+*****
+
+####  北条早苗  
+##### 3991#       发表于 2022-8-9 01:46
+
+超哥能打爆gpk就不怕vp
+
+*****
+
+####  Arhjoy  
+##### 3992#       发表于 2022-8-9 01:46
+
+壳以壳以，又给茶配了个东南亚队
+
+*****
+
+####  尸体鲨  
+##### 3993#       发表于 2022-8-9 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们还吵上瘾了，什么时候开始清算环节，我先来个起手
+may毒瘤保枪营销选手，有他在的队一号位永远出不了头
+Ame脑浆怂鳖年年决赛尿裤，下限级表演生生葬送234最巅峰的职业生涯
+
+*****
+
+####  河水  
+##### 3994#       发表于 2022-8-9 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985378&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-9 01:43</a>
+lgd不积德演一波boom，回来找rng再爽一把会怎样，亲手送超哥上的飞机</blockquote>
+不是打lgd和boom的败者，而且输boom自己节奏爆炸有什么乐子
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  woyzeck  
+##### 3995#       发表于 2022-8-9 01:47
+
+没办法，集美想团建可以去皮套狗专楼团建，那边全是梓瑟。
+
+*****
+
+####  尸体鲨  
+##### 3996#       发表于 2022-8-9 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985395&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 01:45</a>
+这英雄9次出场赢了8次，我不能接受</blockquote>
+绝活哥才拿出来玩，排除了跟风狗们贡献的败率
+
+*****
+
+####  UnhappyTails  
+##### 3997#       发表于 2022-8-9 01:47
+
+zai/不想打vp呀，看出来了，zai/真的不想在ti赛场上看到may皇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 3998#       发表于 2022-8-9 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985382&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-9 01:43</a>
+
+茶这输了就真别玩了</blockquote>
+有一说一现在的FNC有大半支TSM，化学反应不错，按照杜鹏这脑浆表现真不一定能赢
+
+*****
+
+####  wizder  
+##### 3999#       发表于 2022-8-9 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985387&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 01:44</a>
+
+那我一开始嘴臭您了吗？正义集美</blockquote>
+为什么一定要你嘴臭我才能攻击你呢？大家不是都喜欢选择性忽略么？难道刷楼的时候你是眼睛瞎了看不到有人在我的回帖评分下面不断辱骂？那请问我嘴臭他了么？也没有吧？那他为什么也攻击我呢？
+
+奇怪了 是不是你需要先跟那个人吵一架？
+
+还没弄明白谁在双标是吧？ 
+
+*****
+
+####  百世诸侯  
+##### 4000#       发表于 2022-8-9 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985398&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:45</a>
+
+哦 懂了 那我错了 因为以前我只在S1的动漫讨论楼里讨论过 没想过原来节奏楼本身的作用就是给sg用户一个更 ...</blockquote>
+给你指路一下隔壁管人区 阿梓从小就很可爱专楼，梓瑟cp专楼，那边是集美的自留地，和本sg殖民地井水不犯河水
+
+*****
+
+####  银翼的维罗西  
+##### 4001#       发表于 2022-8-9 01:48
+
+马体和RNG实力本来就差不多，打个一比一也正常，RNG不选对手是对的，如果一直输去败者组第一轮也没什么士气，而且从第一把霉憋的操作来看他已经没有任何对英雄的自信了，典型的就是二代盾对面就一个马西其余零控他满状态帕克居然不敢去单提那两酱油骚扰打盹跑去中路收线了，此时急需一把本命英雄找找自信，我是真的不想称呼霉憋为畜，但这个系列赛的表现，我怕我总有一天憋不住喊他霉畜，至于上帝的兼容性，我看他比鬼强了两个档次，完全是被这届23的畜级发挥给坑了，就像我年初说建议RNG乔巴换卡狗一样，我现在还有个建议，RNG如果滚回去打预选，不如大胆点踢了霉憋请回熊鳖，留下上帝，这个中单真的不能再留了，还不如KG时期的狼哥
+
+*****
+
+####  Keynes  
+##### 4002#       发表于 2022-8-9 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985417&amp;ptid=2084957" target="_blank">wizder 发表于 2022-8-9 01:48</a>
+
+为什么一定要你嘴臭我才能攻击你呢？大家不是都喜欢选择性忽略么？难道刷楼的时候你是眼睛瞎了看不到有人 ...</blockquote>
+谁提出的先撩者贱谁双标啊，集美脑子不好这都不懂吗？
+
+睡了睡了，再回拉黑
+
+*****
+
+####  蛭人  
+##### 4003#       发表于 2022-8-9 01:49
+
+明天的比赛看点还是挺多的，新VP打TS，茶队能不能胜者组晋级。
+
+*****
+
+####  ArowRocher  
+##### 4004#       发表于 2022-8-9 01:50
+
+<img src="https://p.sda1.dev/6/7c8b5e8249d263e1a75bd915c9456efa/CMP_20220809014958185.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 4005#       发表于 2022-8-9 01:50
+
+没了脑东京阿床为代表的挂件万岁冲锋流蓝猫，正常打依旧能橄榄冰龙光法为代表的版本大热拉扯型辅助
+
+*****
+
+####  woyzeck  
+##### 4006#       发表于 2022-8-9 01:50
+
+rng打vp还有点机会，冠超可以喝gpk比着脑溢血。打ts的机会是0，老东京专治冠超这种傻逼。
+
+*****
+
+####  蛭人  
+##### 4007#       发表于 2022-8-9 01:50
+
+小组赛打完了，有没有RNG粉给12345评个分啊，搞点指点江山啊。
+
+*****
+
+####  北条早苗  
+##### 4008#       发表于 2022-8-9 01:51
+
+茶八强就能直邀，就算被tsm干爆下去总不能再输给克里斯神吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wizder  
+##### 4009#       发表于 2022-8-9 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985423&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 01:49</a>
+
+谁提出的先撩者贱谁双标啊，集美脑子不好这都不懂吗？
+
+睡了睡了，再回拉黑 ...</blockquote>
+哦 懂了 那你的意思就是那个人贱  行吧   愿意内讧来吵赢也是牛的  那就这样吧
+
