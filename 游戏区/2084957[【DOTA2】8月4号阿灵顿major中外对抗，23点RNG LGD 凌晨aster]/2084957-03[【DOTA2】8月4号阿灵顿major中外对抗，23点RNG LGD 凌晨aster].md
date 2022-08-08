@@ -101,3 +101,25 @@ ana这先知切入真的有点搞笑了。今天打液体要不能2比0估计败
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">打茶队只要按死XXS就赢一半了，昨天打BOOM两把都是XXS玩没什么用的DP，茶队就没终结比赛的能力了
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3013#       发表于 2022-8-8 15:46
+
+至少厨子在双冠队OG混了这么多年多少还是理解这个游戏比赛里该怎么赢的
+
+先知在第一次上高结束之后其实小树人多次在试图把兵线往高地带但一直没队友理他
+
+可能这就是本能dota的魔力吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 3014#       发表于 2022-8-8 15:50
+
+该说不说这puck又是盘子又是力量跳刀的怎么交完一套技能对面酱油都残了进去A一下都不敢的？
+
+两把puck属于是对位处刑了，当然该说不说霉畜这Puck一直都是这怪味，但这把为了保Kda也太狠了8<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
