@@ -11645,3 +11645,16 @@ TSM三个打工仔要是把fnc抬到ti这有点好笑了
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
+
+
+*****
+
+####  tontyoutoure  
+##### 2928#       发表于 2022-8-8 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972228&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-8 08:03</a>
+完了，今年的lgd希望很大啊！我提前缩头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">缺乏战略定力啊，NGA集美都总结了：dpc相信a/，major崇拜a/，ti淘汰赛爱上a/，ti决赛后辱骂a/，第二年新赛季再次相信a/，这才到哪
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

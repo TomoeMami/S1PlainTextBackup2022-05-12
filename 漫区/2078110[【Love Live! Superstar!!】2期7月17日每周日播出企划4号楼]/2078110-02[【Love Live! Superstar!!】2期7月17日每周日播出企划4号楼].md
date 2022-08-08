@@ -6943,3 +6943,25 @@ ksks:那个坏心眼的学生会长<img src="https://static.saraba1st.com/image/
 
 风怒
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2196#       发表于 2022-8-8 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972697&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-8 09:06</a>
+
+其实不光是可可，大多数角色在自己的场合还有点灵性，出了自己的场合就陷入几个定式来来回回，完全取决于 ...</blockquote>
+脸谱化，符号化，追求定式毫无疑问是最省力的，也毫无疑问是最容易体现出动画制作组不用心这一点的
+
+*****
+
+####  adw667  
+##### 2197#       发表于 2022-8-8 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56970465&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-8 00:08</a>
+
+ksks：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">R3提交入会申请的时候不是当场找了一圈才找到ksks那吗
+
