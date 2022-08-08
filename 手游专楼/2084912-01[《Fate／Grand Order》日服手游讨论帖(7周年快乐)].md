@@ -3877,3 +3877,12 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202208/08/100537bh3bf9gg9h3frb4g.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 370#       发表于 2022-8-8 10:42
+
+打了一些强化本啥的，好多狂或者单个怪的，水武藏不好使，现在的3t队伍是什么样的？
+
