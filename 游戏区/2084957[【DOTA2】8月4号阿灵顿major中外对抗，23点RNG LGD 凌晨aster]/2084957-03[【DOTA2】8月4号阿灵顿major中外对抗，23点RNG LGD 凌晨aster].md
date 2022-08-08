@@ -227,3 +227,29 @@ rng刚选出来这阵容，前期大优打得a畜抱头鼠窜的时候我就下�
 再加上1，4两个英雄币
 这bp也太难了
 
+
+
+*****
+
+####  逃离二次元  
+##### 3027#       发表于 2022-8-8 16:25
+
+只能等major过后的更新制裁老干瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 3028#       发表于 2022-8-8 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978664&amp;ptid=2084957" target="_blank">RaibowDash 发表于 2022-8-8 16:20</a>
+
+最近比赛看下来最惊喜的一点就是单独针对LGD123号位的任意一个进行压制都是无用功，被针对的就隐忍刷钱等关 ...</blockquote>
+lgd赢的比赛基本都是四赵云带躺局
+
+*****
+
+####  两三流浪者  
+##### 3029#       发表于 2022-8-8 16:30
+
+楼友这就投降了，都是今年刚看比赛的？
+
