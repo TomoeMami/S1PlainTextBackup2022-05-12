@@ -12132,3 +12132,44 @@ ti6上电视明显是cctv新闻里有一条wings勇夺第六届国际邀请赛�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng的人第二把死四个那波之前想得最多的是不是这干瘪怎么还不打gg。
 
+
+
+*****
+
+####  Keynes  
+##### 2979#       发表于 2022-8-8 12:32
+
+有一说一，第二把霉鳖和杜文乐哪个更畜一点我不太好嗦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，甚至卡鳖两把也基本是没什么作用
+
+*****
+
+####  doldrums  
+##### 2980#       发表于 2022-8-8 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">昨晚ana想上高都没人鸟他，紧接着就是中路二塔送团灭了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 2981#       发表于 2022-8-8 12:33
+
+这楼的风向开始不对劲咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  健康猹  
+##### 2982#       发表于 2022-8-8 12:34
+
+缩壳咯
+
+*****
+
+####  nxmonitor  
+##### 2983#       发表于 2022-8-8 12:35
+
+maybe昨天第二把犯病也很厉害啊，一个puck出个巫师之刃A人都不A的，两盘puck换一换RNG估计就能拿下了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
