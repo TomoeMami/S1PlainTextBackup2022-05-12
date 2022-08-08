@@ -11803,3 +11803,29 @@ A组还有一轮，除了LGD确定第一外其他队排名还没定吧。
 
 厨子要是瘾这么大不如明年和顶儿子组个队算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Bernoulli  
+##### 2944#       发表于 2022-8-8 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973825&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-8 10:29</a>
+
+到底是谁在玩儿蠕动亚龙，我看两个小组第一1次都没用过</blockquote>
+不用但是经常ban吧。
+
+*****
+
+####  弈秋  
+##### 2945#       发表于 2022-8-8 10:53
+
+大哥不想受罪就ban呗
+
+*****
+
+####  Bernoulli  
+##### 2946#       发表于 2022-8-8 10:56
+
+蓝猫除了曾骄阳外还有谁在用？查了一下数据7胜1负好像还可以。
+

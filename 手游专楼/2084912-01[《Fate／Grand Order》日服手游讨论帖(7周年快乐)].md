@@ -3886,3 +3886,22 @@ emmmm这鹿角神没有复活石确实不好打</blockquote>
 
 打了一些强化本啥的，好多狂或者单个怪的，水武藏不好使，现在的3t队伍是什么样的？
 
+
+
+*****
+
+####  qixinno2  
+##### 371#       发表于 2022-8-8 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56973417&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-8 10:06</a>
+
+终于喂了一个120级出来，这几天刷的狗粮和qp全用完了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强啊
+
+*****
+
+####  qixinno2  
+##### 372#       发表于 2022-8-8 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">215和水黑呆真的是社长的巅峰了 剩下的不是镜像就是各种地方很别扭
+
