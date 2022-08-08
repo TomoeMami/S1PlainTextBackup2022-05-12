@@ -5981,3 +5981,346 @@ ss8的bp跟你闹呢
 
 哈哈哈哈哈哈哈哈哈，雕哥解说老干爹最后一波团真的是笑死我了
 
+
+
+*****
+
+####  朝奈  
+##### 3758#       发表于 2022-8-9 00:51
+
+又可以看霉畜人毛合一咯
+
+*****
+
+####  ArowRocher  
+##### 3759#       发表于 2022-8-9 00:51
+
+去年查理斯直播也好，昨天链子分析也好，在役选手的分析都不差的，尤其之前查理斯精确到分钟数的解说跟他妈这游戏玩明白了一样。但是到了赛场里全是精通体位的XX
+
+*****
+
+####  弈秋  
+##### 3760#       发表于 2022-8-9 00:51
+
+已经稳败者组了吧，不想看了
+
+*****
+
+####  逃离二次元  
+##### 3761#       发表于 2022-8-9 00:52
+
+难道刀圈除了集美就是小泰迪吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">本人纯种a黑，除了lgd我都支持好吧
+
+*****
+
+####  遍体精淋af  
+##### 3762#       发表于 2022-8-9 00:52
+
+ 本帖最后由 遍体精淋af 于 2022-8-9 00:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984863&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-9 00:49</a>
+lgd输赢毫无影响的，rng那可是关键场次</blockquote>
+lgd输两分，rng甚至有直接被淘汰的可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 3763#       发表于 2022-8-9 00:52
+
+大哥火猫吧，双剑合璧，直接合一
+
+*****
+
+####  nowaki  
+##### 3764#       发表于 2022-8-9 00:52
+
+蚂蚁？
+
+*****
+
+####  吃货红毛  
+##### 3765#       发表于 2022-8-9 00:52
+
+蚂蚁都搞得出来吗
+
+*****
+
+####  Asukalangley33  
+##### 3766#       发表于 2022-8-9 00:52
+
+蚂蚁 蓝猫
+
+这是摆了？
+
+*****
+
+####  Keynes  
+##### 3767#       发表于 2022-8-9 00:52
+
+这谢俊豪bp也太抽象了
+
+*****
+
+####  弈秋  
+##### 3768#       发表于 2022-8-9 00:52
+
+开摆？
+
+*****
+
+####  nightmare902015  
+##### 3769#       发表于 2022-8-9 00:52
+
+这下蝗虫缩地回到过去了！
+
+*****
+
+####  ArowRocher  
+##### 3770#       发表于 2022-8-9 00:53
+
+小蚂蚁集合了！
+
+*****
+
+####  逃离二次元  
+##### 3771#       发表于 2022-8-9 00:53
+
+88major
+
+*****
+
+####  反方向的波  
+##### 3772#       发表于 2022-8-9 00:53
+
+两边都看不懂<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">马体居然不让micke玩这手冰龙，让你滚这边蚂蚁蓝猫蠕动亚龙又不知道是什么几把
+
+*****
+
+####  AkaiSuisei  
+##### 3773#       发表于 2022-8-9 00:53
+
+我缩地了
+
+*****
+
+####  为了mf注册  
+##### 3774#       发表于 2022-8-9 00:53
+
+笑了，rng选个蚂蚁出来，节目效果太好了
+
+*****
+
+####  百世诸侯  
+##### 3775#       发表于 2022-8-9 00:53
+
+真没想到楼友看rng被暴打居然会玉玉
+
+*****
+
+####  名字不乱取  
+##### 3776#       发表于 2022-8-9 00:54
+
+尿都尿了，玩把爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3777#       发表于 2022-8-9 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984897&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-9 00:52</a>
+
+lgd输两分，rng甚至有直接被淘汰的可能</blockquote>
+南美队稳出局，og把talon宰了就不可能出局
+
+*****
+
+####  BallanceHZ  
+##### 3778#       发表于 2022-8-9 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984887&amp;ptid=2084957" target="_blank">sdnuluffy 发表于 2022-8-9 00:51</a>
+哈哈哈哈哈哈哈哈哈，雕哥解说老干爹最后一波团真的是笑死我了</blockquote>
+看了下回放，真破防了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 3779#       发表于 2022-8-9 00:54
+
+ 本帖最后由 mkii量产型 于 2022-8-9 00:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个5个吊英雄的输出方式团战怕把炼金秒了自己状态已经可以准备吃席了，可能还秒不掉
+
+*****
+
+####  nightmare902015  
+##### 3780#       发表于 2022-8-9 00:54
+
+大老师直接三七开了啊，真敢下判断的。
+
+
+
+*****
+
+####  Keynes  
+##### 3781#       发表于 2022-8-9 00:54
+
+集美的脑子简单的没有一点褶皱，只装得下集美，mxo和鳖孙三种生物
+
+*****
+
+####  ArowRocher  
+##### 3782#       发表于 2022-8-9 00:55
+
+出门给胜率？
+
+*****
+
+####  windhawind2  
+##### 3783#       发表于 2022-8-9 00:55
+
+rng之前那把赢法有1w种：a杖小强地堡tb变身拆；a杖电魂无限磨塔；甚至就按他们之前憋的打法，无限幻想拆塔然后找对面走位失误先秒人慢慢打——结果他们选择直接顶着四塔强上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脑浆大聚会了纯属是
+
+*****
+
+####  nowaki  
+##### 3784#       发表于 2022-8-9 00:55
+
+第一天看比赛？
+
+*****
+
+####  hcf220  
+##### 3785#       发表于 2022-8-9 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984934&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 00:54</a>
+集美的脑子简单的没有一点褶皱，只装得下集美，mxo和鳖孙三种生物</blockquote>
+这么喜欢分类，怎么不给自己分个类?
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  secretgarnet  
+##### 3786#       发表于 2022-8-9 00:56
+
+唉好想看fy解说rng的比赛
+
+*****
+
+####  IG.430  
+##### 3787#       发表于 2022-8-9 00:56
+
+我靠，投降
+
+*****
+
+####  mkii量产型  
+##### 3788#       发表于 2022-8-9 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984939&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-9 00:55</a>
+
+rng之前那把赢法有1w种：a杖小强地堡tb变身拆；a杖电魂无限磨塔；甚至就按他们之前憋的打法，无限幻想拆塔 ...</blockquote>
+真喜欢冲四塔还能赢一手A杖圣洁亚巴顿，他们什么都没选
+
+*****
+
+####  雅朵莉雀  
+##### 3789#       发表于 2022-8-9 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984924&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-9 00:54</a>
+
+南美队稳出局，og把talon宰了就不可能出局</blockquote>
+你再看看比分，如果LGD送ThunderA两分，RNG输给液体0：2
+
+这两个队就都是7-9，要打败者组/淘汰的加赛
+
+之前新加坡majorLGD打小组赛最后一轮不影响出线的情况下直接送了当时的ThunderP两胜
+
+*****
+
+####  ArowRocher  
+##### 3790#       发表于 2022-8-9 00:57
+
+“卡卡吃了一口仙灵之火，太秀了”
+
+太秀了..............
+
+太秀了..............
+
+*****
+
+####  逃离二次元  
+##### 3791#       发表于 2022-8-9 00:57
+
+这不是集美自己分的类吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 3792#       发表于 2022-8-9 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984939&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-9 00:55</a>
+
+rng之前那把赢法有1w种：a杖小强地堡tb变身拆；a杖电魂无限磨塔；甚至就按他们之前憋的打法，无限幻想拆塔 ...</blockquote>
+xnova视野做的跟畜生一样还没有存在感？感觉两边做眼能力是传奇和冠绝的差距
+
+*****
+
+####  Keynes  
+##### 3793#       发表于 2022-8-9 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984943&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-9 00:56</a>
+ 这么喜欢分类，怎么不给自己分个类?  —— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+原来集美不仅喜欢分类，还眼睛瞎，有点可怜了
+
+*****
+
+####  windhawind2  
+##### 3794#       发表于 2022-8-9 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56984951&amp;ptid=2084957" target="_blank">mkii量产型 发表于 2022-8-9 00:57</a>
+
+真喜欢冲四塔还能赢一手A杖圣洁亚巴顿，他们什么都没选</blockquote>
+对 xnova最后憋个莲花不知道干嘛 对面没啥好弹的 给自己解成魔找老北京拿个中立吹风就行了 
+
+*****
+
+####  弈秋  
+##### 3795#       发表于 2022-8-9 00:59
+
+刚刚看到了，这把输了更好，赢了要打雪碧vp败者，输了打lgdboom败者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 3796#       发表于 2022-8-9 00:59
+
+蝙蝠玛西是有什么说法吗，又看见这种玛西二级开始挂在其他路杀人，蝙蝠单混的打法。蝙蝠线上1v2也不是很容易的那类啊。
+
+*****
+
+####  12481632  
+##### 3797#       发表于 2022-8-9 00:59
+
+李斯真的是csdx啊
+
+*****
+
+####  名字不乱取  
+##### 3798#       发表于 2022-8-9 00:59
+
+卡猴断服务器了这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 3799#       发表于 2022-8-9 01:00
+
+毒 龙和查猪的组合真的畜中畜
+
+*****
+
+####  一夜秋风袭锦城  
+##### 3800#       发表于 2022-8-9 01:00
+
+以前xnova在lgd的时候视野不是做的挺好的么，现在怎么变成这样了？
+
