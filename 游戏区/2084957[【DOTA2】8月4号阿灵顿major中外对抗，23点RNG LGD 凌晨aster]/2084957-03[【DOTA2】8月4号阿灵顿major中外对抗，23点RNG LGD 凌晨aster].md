@@ -253,3 +253,80 @@ lgd赢的比赛基本都是四赵云带躺局
 
 楼友这就投降了，都是今年刚看比赛的？
 
+
+
+*****
+
+####  蛭人  
+##### 3030#       发表于 2022-8-8 16:31
+
+我只能说，明鞭这两个线下赛搞这么厉害，也不知道透支的是什么，玩个潮汐都能团队第一的输出，ame属实太幸福了。
+
+
+
+*****
+
+####  逃离二次元  
+##### 3031#       发表于 2022-8-8 16:32
+
+制裁lgd当然是制裁四赵云啊。这版本只要23能刷能打，1号位栓条狗都能赢<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">等一个major过后重回大核荣耀好吧
+
+*****
+
+####  chilno  
+##### 3032#       发表于 2022-8-8 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978825&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-8 16:30</a>
+
+楼友这就投降了，都是今年刚看比赛的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我TI8就投降到现在了好吗
+
+*****
+
+####  nowaki  
+##### 3033#       发表于 2022-8-8 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本不慌好吧，去年这时候还绝望点，量子鞭文爱胖子和猴爹看着是真无敌，最后还不是杀出来个ts锤了a畜。
+
+今年猴爹隐约有点透支的味道了，我不信这个假三真一的版本能撑到ti
+
+*****
+
+####  哈曼的YY  
+##### 3034#       发表于 2022-8-8 16:37
+
+不得了 外面发大水了
+
+本来我只想发这句的 一看楼里也漏水了？
+
+*****
+
+####  walfeds  
+##### 3035#       发表于 2022-8-8 16:39
+
+该准备小木筏了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3036#       发表于 2022-8-8 16:40
+
+汛期来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  不应  
+##### 3037#       发表于 2022-8-8 16:40
+
+按理来说这版本其实不适合萧瑟，毕竟他对线挺一般的，而这版本讲究线优。但是3号位在这版本太重要了，直接弥补了这个短板。所以这些队为啥不去搞鞭天天盯着ame，有啥用
+
+*****
+
+####  tontyoutoure  
+##### 3038#       发表于 2022-8-8 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56978825&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-8 16:30</a>
+
+楼友这就投降了，都是今年刚看比赛的？</blockquote>
+9494，好歹等拿下ti赛点再抠啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
