@@ -5049,3 +5049,15 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 说到卡面 公主卡面拉成x了 怎么没人喷啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武内有啥喷的必要么，可以预见画工不会再进化，明摆着开也开不掉，喷到最后也只能接受不如直接跳到接受
 
+
+
+*****
+
+####  qixinno2  
+##### 471#       发表于 2022-8-9 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995893&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 21:14</a>
+
+说到卡面 公主卡面拉成x了 怎么没人喷啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">社长一年比一年拉 还不如直接把以前格斗里的地球姬直接复制粘贴过来算了
+
