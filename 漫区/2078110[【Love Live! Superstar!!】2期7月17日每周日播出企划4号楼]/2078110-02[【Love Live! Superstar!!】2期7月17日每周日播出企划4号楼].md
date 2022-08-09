@@ -7942,3 +7942,44 @@ OP初动13762
  ...</blockquote>
 有没有可能，人就不是中国式家长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2289#       发表于 2022-8-9 18:24
+
+<blockquote>仟音一心 发表于 2022-8-8 23:33
+北原朋萌C100可香本预览
+
+翻译嵌字 洲崎惠梨
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/09/182415dmvmvvp7qe4774ye.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D8326EA4-7C52-41EE-AD38-0BBEA9ECBCD9.jpeg</strong> (349.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/182422ocqlqfflqdmcaaj7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>48361F20-2688-461F-B583-A0E1CF0A8898.jpeg</strong> (332.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 18:24 上传
+
+*****
+
+####  ViyViy  
+##### 2290#       发表于 2022-8-9 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993496&amp;ptid=2078110" target="_blank">绯想alter2nd 发表于 2022-8-9 18:19</a>
+
+有没有可能，人就不是中国式家长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可最好了，就怕这staff这时候开始考究了，给你整这个
+

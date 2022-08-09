@@ -4890,3 +4890,23 @@ PS：原网址：[https://appmedia.jp/fategrandorder/75512428](https://appmedia.
 
 虽然只有将近9000人投票，不过应该也能侧面反应一些人气吧...
 
+
+
+*****
+
+####  vacuumsword  
+##### 457#       发表于 2022-8-9 18:24
+
+我觉得最难看的还得是smdrr的狂狗，什么玩意儿哦
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kiralzb  
+##### 458#       发表于 2022-8-9 18:25
+
+我也选了妖兰，等一个复刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+妖崔确实画得好看，不过我还是选了乳上，结果看这投票才知道是水着版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
