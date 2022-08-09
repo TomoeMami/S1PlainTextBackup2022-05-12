@@ -10165,3 +10165,92 @@ ana多打一两个dpc应该是比鬼强的，可惜后面只有esl了，当然�
 
 弹簧不撸狗吗
 
+
+
+*****
+
+####  chilno  
+##### 4237#       发表于 2022-8-9 09:12
+
+谭雅和杰出应该算是非常标准的对比了
+
+一个恰ru水饮得饱饱，一个黑我哥哥被弄得解说台都上不去
+
+*****
+
+####  lyjssj  
+##### 4238#       发表于 2022-8-9 09:12
+
+顺便rng是接胜者组哪两个队的败者，og和entity那组吗
+
+*****
+
+####  chilno  
+##### 4239#       发表于 2022-8-9 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986773&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-9 09:12</a>
+
+顺便rng是接胜者组哪两个队的败者，og和entity那组吗</blockquote>
+ts和vp二选一
+
+*****
+
+####  沈淮  
+##### 4240#         楼主| 发表于 2022-8-9 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986773&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-9 09:12</a>
+
+顺便rng是接胜者组哪两个队的败者，og和entity那组吗</blockquote>
+雪碧跟vp那组
+
+*****
+
+####  不应  
+##### 4241#       发表于 2022-8-9 09:16
+
+rng如果要前四，他们需要打败哪些对手
+
+*****
+
+####  lyjssj  
+##### 4242#       发表于 2022-8-9 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986782&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-9 09:13</a>
+
+雪碧跟vp那组</blockquote>
+上liquidpedia看到了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哇塞，九死一生
+
+*****
+
+####  Litccc  
+##### 4243#       发表于 2022-8-9 09:17
+
+好久没上sg，一上去就看到哈士奇光速下跪
+
+<img src="https://img.saraba1st.com/forum/202208/09/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+<strong>a065.gif</strong> (2.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 09:17 上传
+
+*****
+
+####  morwhipppo  
+##### 4244#       发表于 2022-8-9 09:20
+
+为啥杰➗现在还不能去主舞台上班啊，纯白能量有那么大吗，自己都G了还有人能管得住杰出？
+
+*****
+
+####  北欧王座  
+##### 4245#       发表于 2022-8-9 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986869&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-9 09:20</a>
+
+为啥杰➗现在还不能去主舞台上班啊，纯白能量有那么大吗，自己都G了还有人能管得住杰出？ ...</blockquote>
+记住，是永远！
+
