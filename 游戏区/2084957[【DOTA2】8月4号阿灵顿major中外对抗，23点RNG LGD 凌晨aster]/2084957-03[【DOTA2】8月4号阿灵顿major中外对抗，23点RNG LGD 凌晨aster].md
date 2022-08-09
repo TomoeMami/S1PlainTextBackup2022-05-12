@@ -11011,3 +11011,49 @@ yuragi和yatoro还都是二毛y字辈
 不是，这个我好闺蜜，我不喜欢她，今年都要是别人老婆了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙，女人缘不错啊
 
+
+
+*****
+
+####  哈曼的YY  
+##### 4330#       发表于 2022-8-9 11:45
+
+好久没去逼站血入集美亲妈了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  为了mf注册  
+##### 4331#       发表于 2022-8-9 11:46
+
+外面好恶心，集美水到处流啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4332#       发表于 2022-8-9 11:47
+
+ 本帖最后由 ArowRocher 于 2022-8-9 11:48 编辑 
+
+<img src="https://p.sda1.dev/6/1c82ef13456d490591225ff58bd4e6d2/CMP_20220809114539036.jpg" referrerpolicy="no-referrer">
+火女身心能搞快点吗
+
+弹簧的团队决策我不认可的一点是当蛆宝宝和正人君子时用同一个ID<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 4333#       发表于 2022-8-9 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987954&amp;ptid=2084957" target="_blank">天姬Angelotte 发表于 2022-8-9 10:52</a>
+很好奇上帝到底中文什么水平，昨天晚上比赛总感觉队内交流是靠翻译的……但以前不是说他来国内试训过吗，怎 ...</blockquote>
+不是有那个牛仔对决小游戏吗？看一下就知道了啊，这年头连「你好」都说不利索的人，我倾向于完全不会中文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cantha  
+##### 4334#       发表于 2022-8-9 11:51
+
+火女身心估计没有，TB身心是绝壁有
+
