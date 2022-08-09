@@ -10055,3 +10055,81 @@ giegie加油！今年要是能拿ti我就去表白！输了我就 ...</blockquot
 
 弹簧自打提问被水友架起来以后有点道心沦陷了，这一手拿节目效果给自己找补颇有前两天父子局solo拿骑士精神做风险对冲那味
 
+
+
+*****
+
+####  -SLSL-  
+##### 4225#       发表于 2022-8-9 08:52
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 4226#       发表于 2022-8-9 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986468&amp;ptid=2084957" target="_blank">废都刽子手 发表于 2022-8-9 08:44</a>
+ana多打一两个dpc应该是比鬼强的，可惜后面只有esl了，当然更可能的是一个赛季不到就被霉鳖踢了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ana就是来当个枪，必然会被踢了换回鬼的
+
+*****
+
+####  Litccc  
+##### 4227#       发表于 2022-8-9 08:54
+
+基德基德
+
+*****
+
+####  lyuhiu  
+##### 4228#       发表于 2022-8-9 08:56
+
+谭雅怎么还被挂出来，魔怔人是把
+
+*****
+
+####  Yukino-Yukino  
+##### 4229#       发表于 2022-8-9 08:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想谭雅在ti10后被nga假赛集美围攻还有点好笑，决赛前发的吹ts的帖子被集美挖出来疯狂围攻。怎么如今变这么魔怔了。
+
+*****
+
+####  沈淮  
+##### 4230#         楼主| 发表于 2022-8-9 09:00
+
+-淘汰赛对阵表和第一天（8月9日四场）对阵
+
+23:00 PSG.LGD vs BOOM
+
+次日2:00 Entity vs OG
+
+次日5:00 Outsiders vs Spirit
+
+次日8:00 Aster vs Fnatic
+
+-败者组将有一天的时间调整（8月10日起每天三场）
+
+23:00 Liquid vs PSG.LGD/BOOM
+
+次日2:00 EG vs Entity/OG
+
+次日5:00 RNG vs Outsiders/TS
+
+
+
+*****
+
+####  沈淮  
+##### 4231#         楼主| 发表于 2022-8-9 09:01
+
+可以早点睡早上起来品茶了
+
+*****
+
+####  白野苍衣  
+##### 4232#       发表于 2022-8-9 09:01
+
+这major赛程这么紧的？以前我记得小组赛打完有一两天的休息日。
+

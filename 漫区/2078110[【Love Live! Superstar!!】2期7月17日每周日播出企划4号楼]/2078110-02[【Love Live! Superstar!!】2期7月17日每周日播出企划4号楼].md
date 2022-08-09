@@ -7626,3 +7626,55 @@ AB是amuse的子社，然而amuse的萌P，前田，老王，企划内并没有�
 
 拉版在吐槽香音好像是一个教主了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 2261#       发表于 2022-8-9 08:55
+
+[https://twitter.com/toriaezukariid/status/1556242910932512768](https://twitter.com/toriaezukariid/status/1556242910932512768)
+
+ラブライブ！スーパースター！！4話
+
+LO、作監で参加させていただきました
+
+ありがとうございました！
+<img src="https://p.sda1.dev/6/2eb79b76f486b83ef965c68a7606d848/20220809_084851.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/b4c3e626ba8831dea51be13451eaac85/20220809_084853.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/suzuki_mi_ho_/status/1556243875328835588](https://twitter.com/suzuki_mi_ho_/status/1556243875328835588)
+
+ラブライブ！スーパースター!!2期
+
+4話
+
+EDに引き続き、作監で参加させて頂きました。
+
+2人共尊い！
+
+ちーちゃんも素敵だった！！
+
+1期も4話担当でした笑
+
+ありがとうございました。
+<img src="https://p.sda1.dev/6/4be5a1434ebacc50e9e7b27ac1a509bc/20220809_084858.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/f9273943221d161c8db3300cfb952a6e/20220809_084900.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/imaziro/status/1556273153340747777](https://twitter.com/imaziro/status/1556273153340747777)
+
+ラブライブ!スーパースター!! 4話絵コンテ演出でした、ありがとうございました。
+
+四季とメイかわいいね。
+<img src="https://p.sda1.dev/6/76f8295a8e9917c15759282aa5a4177e/20220809_084903.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kunkunpliznosuk/status/1556248101236527105](https://twitter.com/kunkunpliznosuk/status/1556248101236527105)
+
+「ラブライブ！スーパースター！！」4話ご視聴ありがとうございました。LOと作監で参加していました。
+
+あと一話の原画とOPの原画と作監、版権イラストで参加していました。Liellaのメンバー全員描けて嬉しかったです。
+<img src="https://p.sda1.dev/6/b2bce8e9ce53a2cd8bcf346b0d14f7fa/20220809_084907.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/suzuki_mi_ho_/status/1555463506417569795](https://twitter.com/suzuki_mi_ho_/status/1555463506417569795)
+<img src="https://p.sda1.dev/6/3cc6ba1512b60834bad0f8220e022d84/20220809_085450.jpg" referrerpolicy="no-referrer">
+
