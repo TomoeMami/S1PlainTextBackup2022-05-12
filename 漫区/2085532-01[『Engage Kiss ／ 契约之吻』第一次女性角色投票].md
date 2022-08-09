@@ -633,3 +633,17 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 
 前女友这几个字就注定她必败了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woaiakiha  
+##### 72#       发表于 2022-8-9 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986416&amp;ptid=2085532" target="_blank">chm007 发表于 2022-8-9 08:39</a>
+
+蓝毛被修女分票了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+投修女和打酱油的差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

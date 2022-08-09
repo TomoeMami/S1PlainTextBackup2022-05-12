@@ -11745,3 +11745,194 @@ rng临时找了常年休息石油杯变态辣的ana来替补是 ...</blockquote>
 然而ana拿屠夫刚被打推进力中暴力，整体发挥和卡卡基本上是唯二正常人了。 ...</blockquote>
 正常发挥是12级点一级魔免的小狗和缺伤害出冰眼的先知吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 4402#       发表于 2022-8-9 16:30
+
+bp看片到底谁啊<img src="https://p.sda1.dev/6/4ece69de982066c05b7e29c729beb007/CMP_20220809163038324.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  逸一死吾亦死  
+##### 4403#       发表于 2022-8-9 16:31
+
+<blockquote>morwhipppo 发表于 2022-8-9 16:27
+集美这种生物的脑构造确实不一般</blockquote>
+这就是水厂招的人，年初我是看麻了
+
+*****
+
+####  尸体鲨  
+##### 4404#       发表于 2022-8-9 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991903&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-9 16:27</a>
+集美这种生物的脑构造确实不一般</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前两天我还看到一个宣称maybe是营销中单只能被AME带着打出成绩，被踢了就原形毕露的集美
+大 大丰富了我的带节奏话术，惊为天人
+
+*****
+
+####  蛭人  
+##### 4405#       发表于 2022-8-9 16:31
+
+我吐了，这比赛打完，集美纷纷表示OG时代ana不买BKB不买活有梗，不愧是云比赛啊，比赛录像就是不看，贯彻LGD以前的赖皮思想，就是痛打双冠王呗。
+
+*****
+
+####  IG.430  
+##### 4406#       发表于 2022-8-9 16:33
+
+秃头性欲强
+
+*****
+
+####  nowaki  
+##### 4407#       发表于 2022-8-9 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991935&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:29</a>
+
+正常发挥是12级点一级魔免的小狗和缺伤害出冰眼的先知吗niwaki是不是lgadota版看多了呀 ...</blockquote>
+说的是整体不是一场
+
+*****
+
+####  沈淮  
+##### 4408#         楼主| 发表于 2022-8-9 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991963&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 16:31</a>
+
+前两天我还看到一个宣称maybe是营销中单只能被AME带着打出成绩，被踢了就原形毕露的集美
+
+大 大丰 ...</blockquote>
+你楼哪个外挂脚气不就是这套吗
+
+*****
+
+####  尸体鲨  
+##### 4409#       发表于 2022-8-9 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闭着眼睛吹就完事了，看什么录像，前段时间不还有个骂这楼里看个比赛高人一等的
+
+*****
+
+####  天堂蜘蛛  
+##### 4410#       发表于 2022-8-9 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991686&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:13</a>
+
+理解为什么仙贝这么遭人恨的原因一个非常好做比较的事情是隔壁的撸处（只做比较，我下过101客户端我原地爆 ...</blockquote>
+是这个道理，所以不如早点认清CNDOTA基本已经到头的现实，偶尔看点有趣的比赛给自己找点乐子就行了。谁夺冠于观众又何干呢，盾又不是观众送出去的。
+
+只能说想开了就好了。
+
+顺带一提你显然低估了隔壁撸狗的饭圈浓度了，隔壁连续两年决赛日认爹，犯罪场面不遑多让（当然浓度远不如分身散失水人）的那位粉丝在S8那年一度统治了整个撸狗的舆论圈，直到S8另一只LPL队夺冠之后这位的风评才终于开始爆炸，才终于开始被拿在放大镜下反复鞭尸了。
+
+你要参考隔壁，那要想让处长真的舆论反转，只有另一只CN队伍能决赛日夺冠，但这希望有多渺茫坛友都心知肚明。
+
+
+
+*****
+
+####  adretyu67  
+##### 4411#       发表于 2022-8-9 16:34
+
+monet里番c的外号不就是跑去打比赛自己收集的黄本拉酒店还是哪了，然后被翻出来了。
+
+*****
+
+####  UnhappyTails  
+##### 4412#       发表于 2022-8-9 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991986&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-9 16:33</a>
+说的是整体不是一场</blockquote>
+几把钢背确实顶中顶不尬黑
+
+但是屠夫这个比赛大家都蛮厉害的，杜/也谈不上太冒尖吧
+
+而且杜/不会打熊德这个版本之子呀，真妈/啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 4413#       发表于 2022-8-9 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991949&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 16:30</a>
+bp看片到底谁啊</blockquote>
+大概率就是杜鹏啊，脑浆就是这时候射完的，不然怎么打出波高水门名场面
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 4414#       发表于 2022-8-9 16:36
+
+另外点金电锤jugg到底好玩吗，我看比赛天天有人玩，就靠20级天赋魔晶转死比赛？
+
+*****
+
+####  UnhappyTails  
+##### 4415#       发表于 2022-8-9 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991996&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-9 16:33</a>
+是这个道理，所以不如早点认清CNDOTA基本已经到头的现实，偶尔看点有趣的比赛给自己找点乐子就行了。谁夺 ...</blockquote>
+我从梅奔走出来那天其实已经想明白这点了，但是去年ig lgd包揽major和ti小组赛第一的时候我还是心软了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+所以抛开立场不谈，ame真的是世界级的大troll啊，在决赛日前把一切反对者都摁到闭嘴，在决赛日葬送一切把推好的粪球喂到哪怕一开始已经坚决不信任他的人嘴里<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 4416#       发表于 2022-8-9 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992011&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:35</a>
+
+几把钢背确实顶中顶不尬黑
+
+但是屠夫这个比赛大家都蛮厉害的，杜/也谈不上太冒尖吧</blockquote>
+不都说了只算正常人，卡卡不也是三板斧
+
+*****
+
+####  战狼PTSD  
+##### 4417#       发表于 2022-8-9 16:39
+
+你楼吵半天还没人家超级假赛论坛有点有价值的东西
+[https://ngabbs.com/read.php?tid=32998789](https://ngabbs.com/read.php?tid=32998789)
+
+就没打过几次超过60分钟的局，还真不知道一些装备效果，这媛莉鞋好牛逼啊
+
+*****
+
+####  蛭人  
+##### 4418#       发表于 2022-8-9 16:39
+
+我真的吐了。
+
+<img src="https://img.saraba1st.com/forum/202208/09/163917n2hqzo2paq945lp6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 16:39 上传
+
+*****
+
+####  adretyu67  
+##### 4419#       发表于 2022-8-9 16:40
+
+y1s1,23458要是没有庄进翔，而是当初下面八真的从ig手上买来了蝴蝶效应。
+
+那估摸是打不出这样表现的。当然这些都是马后炮。
+
+*****
+
+####  反方向的波  
+##### 4420#       发表于 2022-8-9 16:41
+
+可原力鞋利雅得的时候讲过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
