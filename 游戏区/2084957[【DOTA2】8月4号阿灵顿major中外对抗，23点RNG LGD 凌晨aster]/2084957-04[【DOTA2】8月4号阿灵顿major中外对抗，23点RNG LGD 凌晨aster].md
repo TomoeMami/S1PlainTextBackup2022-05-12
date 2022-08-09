@@ -2209,3 +2209,153 @@ boom还是早点投了好好去研究液体吧
 
 boom五个人被打服了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BallanceHZ  
+##### 4750#       发表于 2022-8-9 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997750&amp;ptid=2084957" target="_blank">asd235614 发表于 2022-8-9 23:52</a>
+BOOM怎么能做到每一波团都有人犯罪的</blockquote>
+这种很多都是所谓受迫性失误吧
+
+*****
+
+####  我爱撩菜  
+##### 4751#       发表于 2022-8-9 23:52
+
+赶紧下盘赶紧下盘，看完睡觉
+
+*****
+
+####  一色いろは  
+##### 4752#       发表于 2022-8-9 23:53
+
+东南亚这帮队伍感觉从TNC吃菜吃没了TI门票之后都变蠢了
+
+*****
+
+####  雅朵莉雀  
+##### 4753#       发表于 2022-8-9 23:53
+
+剧毒这盘选出来到底什么用啊，线上也没打过虚空
+
+之前RNG是不是跟BOOM练的时候说BOOM剧毒很厉害？
+
+*****
+
+####  tontyoutoure  
+##### 4754#       发表于 2022-8-9 23:54
+
+超级集美论坛：364天中的一天罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 4755#       发表于 2022-8-9 23:54
+
+<img src="https://img.saraba1st.com/forum/202208/09/235357gi2912jsj748hwzi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 23:53 上传
+
+杰畜ru水喝饱饱了
+
+*****
+
+####  BallanceHZ  
+##### 4756#       发表于 2022-8-9 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997774&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-9 23:53</a>
+剧毒这盘选出来到底什么用啊，线上也没打过虚空
+
+之前RNG是不是跟BOOM练的时候说BOOM剧毒很厉害？
+
+ ...</blockquote>
+mdy一直在说y打得好就是说保线完美直接让剧毒没这个人了
+
+*****
+
+####  JoelBirch  
+##### 4757#       发表于 2022-8-9 23:55
+
+竞技体育职业赛场水平相近的情况下本来就是看哪边的受迫性失误少啊
+
+*****
+
+####  战狼PTSD  
+##### 4758#       发表于 2022-8-9 23:55
+
+NTS真是处刑霉鳖啊，肉山门口眼也反了 
+
+*****
+
+####  名字不乱取  
+##### 4759#       发表于 2022-8-9 23:56
+
+这四赵云要不要这么透支阿，吓人
+
+*****
+
+####  北条早苗  
+##### 4760#       发表于 2022-8-9 23:56
+
+ 本帖最后由 北条早苗 于 2022-8-9 23:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997782&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-9 23:54</a>
+
+mdy一直在说y打得好就是说保线完美直接让剧毒没这个人了</blockquote>
+doom一直在游走，剧毒一打二
+
+而且顶着小鹿选剧毒也是究极脑浆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 4761#       发表于 2022-8-9 23:57
+
+最后一波boom打得还行吧，不过经济拉开太多，完美先手也无力回天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  反方向的波  
+##### 4762#       发表于 2022-8-9 23:58
+
+ 本帖最后由 反方向的波 于 2022-8-10 00:00 编辑 
+
+24手剧毒阴自己是这样的<img src="https://p.sda1.dev/6/d5ba40a68d4e510d8e11fa1ceac55a1d/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+本低分猪老剧毒虽然一直在黑蠕动之神但这版本蠕动之神打线就是比剧毒这csdx要强，何况还选了个4号位doom一直平aaaaaaaa把自己一血都送了
+
+*****
+
+####  scg2017  
+##### 4763#       发表于 2022-8-9 23:58
+
+没劲啊，一点对抗都没有。
+上路剧毒末日打虚空小鹿，送了一波打不过也正常。什么英雄四号位能暴杀小鹿？有个牛逼四号位这路大概可以优
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 4764#       发表于 2022-8-9 23:58
+
+都tm怪瑞典人，去年要是8月TI今年也8月TI。这样的话我早就是集美了啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4765#       发表于 2022-8-10 00:00
+
+东南亚队伍不一直都很脑浆嘛，偶尔能出个ti8迷你司机ti10tnc这种队伍。
+
