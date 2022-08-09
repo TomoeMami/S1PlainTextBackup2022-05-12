@@ -4791,3 +4791,25 @@ pm个id 我加你</blockquote>
 没记错的话是409,263,319     等我超昂日常做完再 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名字黄色的？   那应该没错  加了  id和x神一样
 
+
+
+*****
+
+####  千叶铁矢  
+##### 450#       发表于 2022-8-9 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988441&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:23</a>
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我 ...</blockquote>
+加了，id同论坛
+
+
+
+*****
+
+####  千叶铁矢  
+##### 451#       发表于 2022-8-9 13:31
+
+说起升级，我前两天打完大奥整整升了一级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
