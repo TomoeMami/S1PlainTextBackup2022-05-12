@@ -10868,3 +10868,76 @@ oke仔都21了，你不如说清茶的ulu
 
 一去sg就看到二哈给集美跪下了，还有降鞭不降A的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  尸体鲨  
+##### 4315#       发表于 2022-8-9 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988099&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-9 11:03</a>
+那波怎么是失误，本来就是小强跳先手马刺，tb切入把钢背打死了然后钢背买活tb被摔到四塔被卖 ...</blockquote>
+杀了**就该走了，不该靠近四塔的
+
+*****
+
+####  外挂全家脚气  
+##### 4316#       发表于 2022-8-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988205&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-9 11:09</a>
+
+oke仔都21了，你不如说清茶的ulu</blockquote>
+ 我猜他指的是18岁能打出点名堂的中国选手，E仔勉强能算吧
+
+*****
+
+####  maju3  
+##### 4317#       发表于 2022-8-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987662&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-9 10:27</a>
+
+第一赛季晋级s，第二赛季勉强保级，第三赛季捡到因为画z被VP踢了的pure打到第四了 ...</blockquote>
+呃呃头像展开一下
+
+*****
+
+####  syndrome2032  
+##### 4318#       发表于 2022-8-9 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988286&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-9 11:15</a>
+我猜他指的是18岁能打出点名堂的中国选手，E仔勉强能算吧</blockquote>
+18岁的e仔除了跳跳的看好其实也没其他的。因为那时候他还在igv起起伏伏。
+
+*****
+
+####  韬晦  
+##### 4319#       发表于 2022-8-9 11:18
+
+谭黄sg白玩了
+
+*****
+
+####  morwhipppo  
+##### 4320#       发表于 2022-8-9 11:19
+
+tanya在sg那么硬，私信上来就是仙贝是我，活该被ru水淹死
+
+
+
+*****
+
+####  syndrome2032  
+##### 4321#       发表于 2022-8-9 11:19
+
+投降不彻底=彻底不投降。
+
+*****
+
+####  外挂全家脚气  
+##### 4322#       发表于 2022-8-9 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988312&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-9 11:16</a>
+
+18岁的e仔除了跳跳的看好其实也没其他的。因为那时候他还在igv起起伏伏。 ...</blockquote>
+所谓“勉强”就是这个意思
+
