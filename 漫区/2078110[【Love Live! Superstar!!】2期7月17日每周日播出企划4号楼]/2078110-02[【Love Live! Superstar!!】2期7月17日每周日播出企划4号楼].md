@@ -7807,3 +7807,32 @@ EDに引き続き、作監で参加させて頂きました。
 不说服可可的家人，谁追飞机都没用啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 建议堇偷偷解锁可可的手机添加可姐的line ，联合起来将可父母骗过去battle，再不行就把团里其他人拉上人多欺负人少威逼可父母屈服<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2274#       发表于 2022-8-9 14:43
+
+不如这样，可可突然不辞而别，只是老爹gg，回家奔丧，众人吓得全员机票奔上海，结果一通误会剧情后回日本。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tuna  
+##### 2275#       发表于 2022-8-9 14:44
+
+“llss没活了赶紧咬打火机”思潮持续蔓延
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 2276#       发表于 2022-8-9 14:47
+
+大胆点，可可已经被若菜科技定位了，想上飞机连安检都过不了，全自动夹脚机加强版直接把人带回来
+千辛万苦再次去了机场，发现天台虹咲在堵懒猪，天台没法用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还真不如悄无声息的走人，追到机场算啥，起码追到上海啊。也没道理全团一起追，香哥哥要带新人不能走，新四人又不熟，就看除了民警，千恋会不会跟着去了。
+还不如只去民警一人，复刻小星星那样整个两人合唱版的新歌再把人带回来。
+
