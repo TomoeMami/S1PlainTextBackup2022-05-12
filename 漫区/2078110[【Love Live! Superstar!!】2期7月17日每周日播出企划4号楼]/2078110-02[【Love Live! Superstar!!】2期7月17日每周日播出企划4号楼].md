@@ -7861,3 +7861,37 @@ EDに引き続き、作監で参加させて頂きました。
 
 OP初动13762
 
+
+
+*****
+
+####  player3960  
+##### 2280#       发表于 2022-8-9 17:11
+
+艹，铃木爱理线下live和horipro的团建都延期了，鲤鱼虽然回归了，这波疫情要保护好自己啊，等活动再开<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  JustW_3  
+##### 2281#       发表于 2022-8-9 17:13
+
+【恋恋第四集的台词竟然有四十秒(இωஇ )-哔哩哔哩】 https://b23.tv/K8PpD7U
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了感觉真可怜
+
+*****
+
+####  lj205  
+##### 2282#       发表于 2022-8-9 17:17
+
+团建取消<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2283#       发表于 2022-8-9 17:18
+
+看来日本这波很严重
+

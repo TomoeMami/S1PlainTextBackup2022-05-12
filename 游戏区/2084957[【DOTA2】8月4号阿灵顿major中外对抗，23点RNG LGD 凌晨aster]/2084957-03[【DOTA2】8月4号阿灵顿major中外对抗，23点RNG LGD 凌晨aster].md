@@ -12306,3 +12306,112 @@ https://ngabbs.com/read.php?tid=32998789
 
 西恩再夺冠一次回流的人肯定不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然而处长被刀塔之神诅咒，其他队伍又指望不了，令人感慨
 
+
+
+*****
+
+####  百世诸侯  
+##### 4456#       发表于 2022-8-9 17:11
+
+汛期降雨量总体偏多，而每年的七月下旬到八月上旬（七下八上）这段时间，是防汛的关键期，即主汛期。
+
+汛期是一个水利名词，是指河水在一年中有规律显著上涨的时期。“汛”就是水盛的样子，“汛期”就是河流水盛的时期，汛期不等于水灾，但是水灾一般都在汛期。
+
+*****
+
+####  Cantha  
+##### 4457#       发表于 2022-8-9 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> LGD今年要是真夺冠 楼里的各位一个跑不掉
+
+*****
+
+####  morwhipppo  
+##### 4458#       发表于 2022-8-9 17:14
+
+前几年是自然汛期，今年处长亲自下场和皮套人恋爱微博挂人，人工降雨了已经
+
+*****
+
+####  woyzeck  
+##### 4459#       发表于 2022-8-9 17:14
+
+这个60分钟装备的理解肯定不能靠打天梯啊，天梯打一个月能有几把60分钟+的，要理解60分钟装备只能靠打游廊rpg。这个绿头援力鞋就是nb了很久了。
+
+*****
+
+####  萩原组土狼p  
+##### 4460#       发表于 2022-8-9 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992026&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 16:36</a>
+
+另外点金电锤jugg到底好玩吗，我看比赛天天有人玩，就靠20级天赋魔晶转死比赛？ ...</blockquote>
+猪油唧唧这英雄中期纯废物，点金电锤好歹是刷的最快的套出装，尽可能快的度过中期，快速到20出山收割了，前提是队友别崩
+
+*****
+
+####  Yukino-Yukino  
+##### 4461#       发表于 2022-8-9 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992614&amp;ptid=2084957" target="_blank">Cantha 发表于 2022-8-9 17:14</a>
+
+LGD今年要是真夺冠 楼里的各位一个跑不掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">去年决赛前也是这么说的
+
+*****
+
+####  百世诸侯  
+##### 4462#       发表于 2022-8-9 17:16
+
+<img src="https://img.saraba1st.com/forum/202208/09/171556u2mqz2kxs27g27kq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 17:15 上传
+
+已经有一半人做好投降准备了
+
+*****
+
+####  沈淮  
+##### 4463#         楼主| 发表于 2022-8-9 17:17
+
+跑个毛。还能把我号封了？大不了我换个地方看比赛
+
+*****
+
+####  蛭人  
+##### 4464#       发表于 2022-8-9 17:17
+
+你以为是投降，看过你楼的都知道，集美数量远比正常人多。
+
+*****
+
+####  woyzeck  
+##### 4465#       发表于 2022-8-9 17:18
+
+别的不说，上次比赛我看到timado一把大后ta就是带原力鞋的，只能说打憋式dota的还是有理解。
+
+*****
+
+####  阿垃垃圾历  
+##### 4466#       发表于 2022-8-9 17:19
+
+这投票在哪来着  我好像选的2  
+
+*****
+
+####  tontyoutoure  
+##### 4467#       发表于 2022-8-9 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990588&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-9 14:38</a>
+
+为啥用高考类比？完全不一样吧。竞技比赛如围棋无论输赢比完了难道不都要复盘的么？ ...</blockquote>
+1. 围棋不会在每年大赛后更新一次规则
+
+2. 围棋不是那种得到一年一度的大赛冠军为目标的项目
+
+第一点决定了复盘价值不高，第二点决定了大赛结束后必然会进入一段倦怠/休息期。
+

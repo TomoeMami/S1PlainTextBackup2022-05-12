@@ -670,3 +670,16 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 前女友这几个字就注定她必败了</blockquote>
 丸户的xp就是年上前女友，往往还有黑丝、黑长直、学霸等属性
 
+
+
+*****
+
+####  Rhantolk  
+##### 75#       发表于 2022-8-9 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992147&amp;ptid=2085532" target="_blank">天人五衰 发表于 2022-8-9 16:45</a>
+你对丸户老贼不够了解啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是现在前女友属性的人有点多。。
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
