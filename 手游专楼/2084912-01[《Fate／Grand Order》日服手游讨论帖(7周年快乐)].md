@@ -4985,3 +4985,22 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我都当狗粮给喂了 毕竟毫无屁用
 
+
+
+*****
+
+####  kiralzb  
+##### 465#       发表于 2022-8-9 20:02
+
+我喜欢按英灵的卡面来选对应的灵基，然而只要卡面是最终卡面，主页或者升级啥的出现的都是最终立绘，强迫症有点难受了，这么多年没人提过吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 466#       发表于 2022-8-9 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994976&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-9 20:02</a>
+
+我喜欢按英灵的卡面来选对应的灵基，然而只要卡面是最终卡面，主页或者升级啥的出现的都是最终立绘，强迫症 ...</blockquote>
+根本问题在于很多最终立绘画的并不是最终形态，而是初始或者一破的样子。还有妖兰这种特殊情况，最终立绘的白龙形态甚至没有出现在战斗模型里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
