@@ -10133,3 +10133,35 @@ ana多打一两个dpc应该是比鬼强的，可惜后面只有esl了，当然�
 
 这major赛程这么紧的？以前我记得小组赛打完有一两天的休息日。
 
+
+
+*****
+
+####  反方向的波  
+##### 4233#       发表于 2022-8-9 09:03
+
+匪国是这样的，来办签证的给我滚，已经来打比赛的给我早点滚<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4234#       发表于 2022-8-9 09:07
+
+5点应该起不来，那就剩品茶了
+
+*****
+
+####  lyjssj  
+##### 4235#       发表于 2022-8-9 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这个major自从看清rng彩笔本质以后我已经睡了好几天好觉了
+
+同准备明早看一下茶
+
+*****
+
+####  漂灵  
+##### 4236#       发表于 2022-8-9 09:09
+
+弹簧不撸狗吗
+
