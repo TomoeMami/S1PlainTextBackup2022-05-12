@@ -5184,3 +5184,53 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 2022-8-9 21:59 上传
 
+
+
+*****
+
+####  qixinno2  
+##### 481#       发表于 2022-8-9 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996297&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 21:50</a>
+
+艹 看了眼官网 这不是挺正常的  怎么游戏里就那么粉了 不懂了 到底谁脑子有问题搞这么一出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么会加那层粉红色
+
+*****
+
+####  kiralzb  
+##### 482#       发表于 2022-8-9 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996297&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 21:50</a>
+
+艹 看了眼官网 这不是挺正常的  怎么游戏里就那么粉了 不懂了 到底谁脑子有问题搞这么一出</blockquote>
+其实你看抽卡界面里展示的也是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 483#       发表于 2022-8-9 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996474&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-9 22:05</a>
+
+其实你看抽卡界面里展示的也是没有的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是为了显眼 毕竟明显跟别的格子不一样
+
+<img src="https://img.saraba1st.com/forum/202208/09/220827cz8aap81pwxa1npx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (300.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:08 上传
+
+*****
+
+####  alucardcz  
+##### 484#       发表于 2022-8-9 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996474&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-9 22:05</a>
+
+其实你看抽卡界面里展示的也是没有的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那为什么最终会变的这么粉 世纪之谜
+
