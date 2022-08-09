@@ -4715,3 +4715,25 @@ ID Alisha.W，517,525,361
 起码让我 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新申请大佬了，IDウテナ
 
+
+
+*****
+
+####  alucardcz  
+##### 443#       发表于 2022-8-9 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989673&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-9 13:01</a>
+
+萌新申请大佬了，IDウテナ</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么记得加过你  但好像又没加
+
+*****
+
+####  霧谷藤乃  
+##### 444#       发表于 2022-8-9 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989734&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 13:08</a>
+
+我怎么记得加过你  但好像又没加</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原加过，FGO没有加
+

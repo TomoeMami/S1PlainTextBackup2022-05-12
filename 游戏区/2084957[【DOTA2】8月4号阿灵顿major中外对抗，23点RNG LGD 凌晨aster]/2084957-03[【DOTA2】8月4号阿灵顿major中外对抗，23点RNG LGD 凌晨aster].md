@@ -11165,3 +11165,15 @@ a畜20年改一闪飞燕线劣自己扛各种id阴阳队友的出生，能觉得
 
 龟龟，p站直接给我推送集美视频 lgd在国外被奉为上帝
 
+
+
+*****
+
+####  沈淮  
+##### 4347#         楼主| 发表于 2022-8-9 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989635&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-9 12:58</a>
+
+还是畜男呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">意思是你还挺期待掀背夺冠然后破处的是吧
+
