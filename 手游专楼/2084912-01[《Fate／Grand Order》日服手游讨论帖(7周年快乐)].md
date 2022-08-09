@@ -4910,3 +4910,40 @@ PS：原网址：[https://appmedia.jp/fategrandorder/75512428](https://appmedia.
 
 妖崔确实画得好看，不过我还是选了乳上，结果看这投票才知道是水着版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 459#       发表于 2022-8-9 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993589&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-9 18:25</a>
+
+我也选了妖兰，等一个复刻
+
+妖崔确实画得好看，不过我还是选了乳上，结果看这投票才知道是水着版[f:0 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/09/183109a3y0potbkr4xg40v.jpg" referrerpolicy="no-referrer">
+
+<strong>1660041050445.jpg</strong> (346.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 18:31 上传
+
+我感觉石田画乳上已经到瓶颈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪个角度都是一张脸。
+
+不知道以后的夏活会不会出泳装乳下...希望到时候用点心。
+
+*****
+
+####  Jamaisvu  
+##### 460#       发表于 2022-8-9 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993570&amp;ptid=2084912" target="_blank">vacuumsword 发表于 2022-8-9 18:24</a>
+
+我觉得最难看的还得是smdrr的狂狗，什么玩意儿哦
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+游星尖兵赛法卢代餐（误）
+
