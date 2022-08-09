@@ -9789,3 +9789,21 @@ ti有没有人重新开个楼，想正常讨论其他队的去新楼，想÷厨�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  坚定的团子党  
+##### 4195#       发表于 2022-8-9 08:08
+
+谭雅ti决赛前那篇长文吹lgd，很难让人不怀疑他就是真集美，只不过lgd输了立马墙头草切割罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  北条早苗  
+##### 4196#       发表于 2022-8-9 08:10
+
+可以看下tanyati10决赛前那篇长文，纯纯的暗黑型集美
+
