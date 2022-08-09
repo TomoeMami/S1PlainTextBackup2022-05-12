@@ -653,3 +653,56 @@ ti9的OG在major上打的确实不咋地啊
 
 明牌还藏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chilno  
+##### 4569#       发表于 2022-8-9 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995235&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-9 20:23</a>
+
+og打lgd训练在演，lgd训练一直吊打og，和vg训练的时候放vg炼金随便赢，所以.... ...</blockquote>
+真假不好说
+
+算真的吧，那打个训练赛无敌了就觉得自己无敌了我是真怀疑这群人的脑子
+
+果然是都是武痴啊
+
+*****
+
+####  天堂蜘蛛  
+##### 4570#       发表于 2022-8-9 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995313&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-9 20:31</a>
+
+打完才知道小精灵绝活我是真觉得这群人是不会不学不练两耳不闻窗外事到极致了
+
+印象中那年4月就天梯一号位 ...</blockquote>
+所以大寄特寄了啊
+
+本能dota打多了对这些根本就不在乎，这帮职业选手有多自傲你看直播都能看得出来
+
+而且最搞笑的是那年老干瘪还学着OG划了一年，第三个major中单还结婚鸽比赛，结果在TI胜决上被OG狠狠的制裁，那年属于是活该不配赢
+
+*****
+
+####  ArowRocher  
+##### 4571#       发表于 2022-8-9 20:40
+
+那南美冠军啥时候会来呢
+
+*****
+
+####  天堂蜘蛛  
+##### 4572#       发表于 2022-8-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995349&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-9 20:34</a>
+
+真假不好说
+
+算真的吧，那打个训练赛无敌了就觉得自己无敌了我是真怀疑这群人的脑子
+
+果然是都是武痴啊 ...</blockquote>
+那年lxo也是狂的离谱，animajor还是哪个major淘汰老干瘪之后一堆lxo狂喷vg内战队，那年vg舆论也属实惨，拿了两个major还要被lxo们踩头，只能说都是孽力回馈
+

@@ -5018,3 +5018,12 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 反正没能对应的就按xp 来，但我都选好了，比如村正，结果升级啥的还是出来个白发男就很出戏
 明明卡的头像啥的都能选，我就奇怪这立绘怎么就一直绑定最终的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 468#       发表于 2022-8-9 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起这个我就很气愤啊，水巴终突后明明是初始卡面，偏偏弄个三破形象，关键三破卡面我个人还不太喜欢，点强化的时候一副苦大仇深的脸跳出来真的别扭
+
