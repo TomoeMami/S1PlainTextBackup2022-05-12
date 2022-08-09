@@ -4578,3 +4578,15 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 刷QP时发现大佬把三宝小芬奇换成了三宝太公，试了试感觉很强啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 居然有那么多3宝
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 433#       发表于 2022-8-9 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988039&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 10:59</a>
+
+太欧了 居然有那么多3宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前抱的一个大佬好友嘛，打手基本都是3宝起的，借用了一下他5宝黑杯公主打种火2面也能15W×3
+

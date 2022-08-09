@@ -10815,3 +10815,56 @@ rng要是进胜者组也是撞见茶队，这状态搞不定茶队的。
 
 肯定会点中文，但不算太多，不然天使焦怎么自称的上帝导师，不就是在游戏里打拼音么
 
+
+
+*****
+
+####  北条早苗  
+##### 4309#       发表于 2022-8-9 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987982&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-9 10:55</a>
+看了眼录像，TB那波上高应该是自己失误用推推把自己推到天辉兵营后面去了，被集火之后被马西颠勺颠到了四塔 ...</blockquote>
+那波怎么是失误，本来就是小强跳先手马刺，tb切入把钢背打死了然后钢背买活tb被摔到四塔被卖
+
+*****
+
+####  syndrome2032  
+##### 4310#       发表于 2022-8-9 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987728&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-9 10:33</a>
+看了下pure bzm那些18岁已经打出名堂了，国内好像没对位的选手了啊，都是老逼等着退役解说混饭吃 ...</blockquote>
+有啊，下赛季升上s的emo。
+
+*****
+
+####  格雷殿下  
+##### 4311#       发表于 2022-8-9 11:06
+
+刚去叔叔家晃悠，怎么就发现谭雅被ru水狂暴鸿儒了。这些水军自己又不玩游戏，就是因为自己的利益，在网上攻击人，真恶心啊。郭嘉什么时候能管管这些易收泽天的玩儿啊。
+
+*****
+
+####  syndrome2032  
+##### 4312#       发表于 2022-8-9 11:09
+
+根据谭雅在sg的发帖，还真有集美打手机表示要线下开盒还是啥来着?
+
+这次不知道有没有。
+
+*****
+
+####  walfeds  
+##### 4313#       发表于 2022-8-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988157&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-9 11:06</a>
+
+有啊，下赛季升上s的emo。</blockquote>
+oke仔都21了，你不如说清茶的ulu
+
+*****
+
+####  名字不乱取  
+##### 4314#       发表于 2022-8-9 11:12
+
+一去sg就看到二哈给集美跪下了，还有降鞭不降A的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
