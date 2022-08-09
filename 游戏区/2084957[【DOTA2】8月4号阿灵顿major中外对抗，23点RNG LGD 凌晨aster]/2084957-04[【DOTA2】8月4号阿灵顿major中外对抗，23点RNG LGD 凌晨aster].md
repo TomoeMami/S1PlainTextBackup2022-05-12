@@ -499,3 +499,81 @@ vg lgd互换了喷漆和tp特效
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  韬晦  
+##### 4556#       发表于 2022-8-9 20:12
+
+<blockquote>Centrum 发表于 2022-8-9 20:02
+还有ti9比赛里喷涂队标 og就规规矩矩喷自己队标 大多数队伍都这样 LGD有自己队标不喷喷VG的 又怪又怂 ...</blockquote>
+老干鳖和vg是觉得当年自己无敌了，对手只有彼此，互相阴阳对面是冠军，结果屎都被og打出来了
+
+*****
+
+####  一品堂官  
+##### 4557#       发表于 2022-8-9 20:12
+
+水厂造星夺冠成功了，会有jd、苏宁来烧钱竞争嘛？
+
+我记得jd已经赞助了dpc吧。
+
+大部分搞俱乐部就是亏钱买卖，水厂成功了就是一家独大咯。
+
+到时候你们冲的本子钱都是给giegie打赏皮套人和给ruru发水洗地的钱咯，黑暗降临。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 4558#       发表于 2022-8-9 20:15
+
+相信dota之神
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  尸体鲨  
+##### 4559#       发表于 2022-8-9 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995012&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 20:05</a>
+让你滚这阵容在40-60min都推不掉马体，我看就该被刀塔之神惩罚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刀塔之神反手给马体发了个机械之心
+去，干爆他们
+
+*****
+
+####  nightmare902015  
+##### 4560#       发表于 2022-8-9 20:17
+
+真到那个时候我早就是lgd十年老粉了，我怕什么。
+
+
+
+*****
+
+####  天堂蜘蛛  
+##### 4561#       发表于 2022-8-9 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995108&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-9 20:12</a>
+
+水厂造星夺冠成功了，会有jd、苏宁来烧钱竞争嘛？
+
+我记得jd已经赞助了dpc吧。
+
+大部分搞俱乐部就是亏钱买卖 ...</blockquote>
+苏宁早死透了，张老爷张工子还在被追债呢
+
+*****
+
+####  chilno  
+##### 4562#       发表于 2022-8-9 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995103&amp;ptid=2084957" target="_blank">韬晦 发表于 2022-8-9 20:12</a>
+
+老干鳖和vg是觉得当年自己无敌了，对手只有彼此，互相阴阳对面是冠军，结果屎都被og打出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就ti9之前上帝归来后的状态，哪来的底气觉得自己无敌了
+
+真就完全不看别人是吧
+
