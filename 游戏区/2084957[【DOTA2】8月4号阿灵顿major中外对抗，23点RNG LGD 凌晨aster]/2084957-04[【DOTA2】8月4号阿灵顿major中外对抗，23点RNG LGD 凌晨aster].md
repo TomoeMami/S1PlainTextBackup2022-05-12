@@ -3854,3 +3854,12 @@ gpk这盘打得真的有点丑了
 
 给DM这么好的发育空间还是能硬的起来的
 
+
+
+*****
+
+####  Aeons  
+##### 4956#       发表于 2022-8-10 06:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ts我记得说过对vp准备了一些措施可惜分组的时候没分上，这措施就就就马西**？
+
