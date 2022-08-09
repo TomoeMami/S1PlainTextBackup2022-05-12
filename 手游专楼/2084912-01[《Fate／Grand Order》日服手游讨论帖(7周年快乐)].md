@@ -4857,3 +4857,36 @@ pm个id 我加你</blockquote>
 
 在品卡面，社长的巅峰果然还得是骑呆，是因为有机车吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 456#       发表于 2022-8-9 18:17
+
+ 本帖最后由 Jamaisvu 于 2022-8-9 18:18 编辑 
+
+日本手游站appmedia的FGO板块搞了一个梦装交换投票：
+
+<img src="https://img.saraba1st.com/forum/202208/09/172253g8303lwm2wcgd0d8.jpg" referrerpolicy="no-referrer">
+
+<strong>f61a169e31b4a9848d23683cca56fa1360306bc7_raw.jpg</strong> (22.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 17:22 上传
+
+前十名如上，大部分都是人气角色，或凭剧情塑造或靠实装强度。不过妖崔这个第二名感觉纯粹是靠惊艳的画风挤上去的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+倒数十名则是以下几位：
+
+团长和土方这种诡异的太空服造型果然不讨喜，小番茄虽然是我倒数第二个开图鉴的，但见到的其实意外的多，估计是画的太素了所以选的少。
+
+另外哥伦布在我印象里其实挺多的，我好友里甚至就有挂的，应该和妖崔一样，是因为卡面出众才无视了什么东西选上的罢。（误）
+
+倒数第一我还真不意外，画风、强度、剧情，完全拉胯，我唯一一次刷到也是挂在狂班杨身上...感觉超级班杨和君十一同台竞技都不一定能胜过对方<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+PS：原网址：[https://appmedia.jp/fategrandorder/75512428](https://appmedia.jp/fategrandorder/75512428)
+
+虽然只有将近9000人投票，不过应该也能侧面反应一些人气吧...
+
