@@ -10003,3 +10003,55 @@ giegie加油！今年要是能拿ti我就去表白！输了我就开香槟
 我叉哥英明一世，凭什么沦落到给这两人打工
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下，原来叉哥一直在给人打工
 
+
+
+*****
+
+####  废都刽子手  
+##### 4219#       发表于 2022-8-9 08:44
+
+ana多打一两个dpc应该是比鬼强的，可惜后面只有esl了，当然更可能的是一个赛季不到就被霉鳖踢了
+
+*****
+
+####  沈淮  
+##### 4220#         楼主| 发表于 2022-8-9 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986373&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-9 08:32</a>
+一觉醒来，洪潮又来啦？这才哪到哪，major冠军都没拿呢
+
+giegie加油！今年要是能拿ti我就去表白！输了我就 ...</blockquote>
+女主是这个吗
+
+<img src="https://p.sda1.dev/6/11823e6abeb1d79a822f401187254d7d/-2f16c65b736977e3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4221#       发表于 2022-8-9 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基德基德
+
+*****
+
+####  ArowRocher  
+##### 4222#       发表于 2022-8-9 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985862&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-9 05:00</a>
+这不是玩儿了父子梗和施舍梗么，毕竟是ame亲口说的施舍。</blockquote>
+施舍确实是曾焦阳先说的
+
+*****
+
+####  百世诸侯  
+##### 4223#       发表于 2022-8-9 08:51
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4224#       发表于 2022-8-9 08:52
+
+弹簧自打提问被水友架起来以后有点道心沦陷了，这一手拿节目效果给自己找补颇有前两天父子局solo拿骑士精神做风险对冲那味
+
