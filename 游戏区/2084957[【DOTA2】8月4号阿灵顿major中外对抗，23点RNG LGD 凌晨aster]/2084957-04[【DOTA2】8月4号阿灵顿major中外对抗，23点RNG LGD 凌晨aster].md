@@ -3240,3 +3240,219 @@ boom怎么出来打的<img src="https://static.saraba1st.com/image/smiley/face20
 
 1点睡觉，可以
 
+
+
+*****
+
+####  你谁  
+##### 4882#       发表于 2022-8-10 01:02
+
+boom确实可以 打的不错
+如果在肉山打团 打正面55 我感觉还是boom要输 拉扯才能赢吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 4883#       发表于 2022-8-10 01:03
+
+感觉rng还真不是这支boom的对手，打团相当有思路<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  战狼PTSD  
+##### 4884#       发表于 2022-8-10 01:03
+
+MAD真的是继承茶队传统啊，焉坏焉坏的，狂带节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 4885#       发表于 2022-8-10 01:03
+
+boom主要前期打的很乱啊
+
+*****
+
+####  尸体鲨  
+##### 4886#       发表于 2022-8-10 01:04
+
+Boom对线期打得有点晕，后面几波其实都差点输出能把拍拍打死
+
+*****
+
+####  a1370303  
+##### 4887#       发表于 2022-8-10 01:04
+
+好呀好呀，这个MAD，猫鼠游戏是吧，超级集美论坛马上就来喷你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TIZI  
+##### 4888#       发表于 2022-8-10 01:04
+
+rng的话xinq海民送那几其他几兄弟估计要跟着冲冲冲送两波团灭就翻了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 4889#       发表于 2022-8-10 01:04
+
+最后几波团执行都不错，但是前期拉下的弥补不了
+
+*****
+
+####  弈秋  
+##### 4890#       发表于 2022-8-10 01:04
+
+boom也算是一半工业化dota了
+
+
+
+*****
+
+####  UnhappyTails  
+##### 4891#       发表于 2022-8-10 01:05
+
+无语中无语，boom是去打zai/啊，rng打的是雪碧vp败者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 4892#       发表于 2022-8-10 01:05
+
+ 本帖最后由 BallanceHZ 于 2022-8-10 01:06 编辑 
+
+这把中期lgd明显松了，ame白给走位，xinq脑浆先手，nts三连中x，明编吹风接a不做bkb<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+倒是y一直兢兢业业<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  尸体鲨  
+##### 4893#       发表于 2022-8-10 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">受死吧zai！
+
+*****
+
+####  woyzeck  
+##### 4894#       发表于 2022-8-10 01:06
+
+第二个肉山那里打的太糙了，真就钻进去打了，还把自己打成残血。
+
+*****
+
+####  nowaki  
+##### 4895#       发表于 2022-8-10 01:06
+
+四赵云还是不够强，a畜这点发挥就接不住戏了，坑我哥哥
+
+*****
+
+####  百世诸侯  
+##### 4896#       发表于 2022-8-10 01:06
+
+送盾，高地下送命，这会儿都绷不住表演性人格，我的精神内耗已治愈
+
+*****
+
+####  林无德  
+##### 4897#       发表于 2022-8-10 01:07
+
+索然无味的军事化打团上高，又一支队伍被打得黯然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  马儿在流泪  
+##### 4898#       发表于 2022-8-10 01:07
+
+当年中国队遇到三幻神是不是就这种感觉
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ninini212  
+##### 4899#       发表于 2022-8-10 01:07
+
+<blockquote>引用第4892楼尸体鲨于2022-08-10 01:05发表的  :
+
+受死吧zai！</blockquote>
+@尸体鲨
+
+其实我觉得boom打的还行，1能刷2能打，就是34显得脑浆了点
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  雅朵莉雀  
+##### 4900#       发表于 2022-8-10 01:07
+
+BOOM守高水平相当高，轻易不会给机会
+
+之前打茶队差点就把茶憋死了
+
+*****
+
+####  尸体鲨  
+##### 4901#       发表于 2022-8-10 01:08
+
+我要开始黑暗兵法了，马上注册三个小号化身集美狂吹AME，每天晚上轮流给他发**，Ti上AME的每一滴尿里都有我的一份水
+
+*****
+
+####  战狼PTSD  
+##### 4902#       发表于 2022-8-10 01:08
+
+BOOM带线找机会很到位了，不过前期拉的太多了
+
+*****
+
+####  逃离二次元  
+##### 4903#       发表于 2022-8-10 01:08
+
+boom在手，杀zai畜！
+
+*****
+
+####  尸体鲨  
+##### 4904#       发表于 2022-8-10 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998502&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-10 01:07</a>
+@尸体鲨
+
+其实我觉得boom打的还行，1能刷2能打，就是34显得脑浆了点</blockquote>
+刚才这局看下来这支BOOM执行力很强的，劣势几波拉扯都打得相当漂亮
+
+*****
+
+####  阿垃垃圾历  
+##### 4905#       发表于 2022-8-10 01:11
+
+第二把是不是一定要等到2点 一定要2点  我感觉我可以睡觉了 
+
+*****
+
+####  尸体鲨  
+##### 4906#       发表于 2022-8-10 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正打算睡了，难得不加班还没我感兴趣的队伍的比赛
+
+*****
+
+####  JoelBirch  
+##### 4907#       发表于 2022-8-10 01:12
+
+BOOM带线不错，但主要还是LGD这给机会了，明鞭这出装属实不做人了
+
