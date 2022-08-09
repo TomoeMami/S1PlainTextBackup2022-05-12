@@ -3881,3 +3881,28 @@ gpk这盘打得真的有点丑了
 
 第一把4兄弟给呆毛老师磕一个
 
+
+
+*****
+
+####  天妇罗  
+##### 4959#       发表于 2022-8-10 07:23
+
+这个gpk是个废物中单么
+
+*****
+
+####  walfeds  
+##### 4960#       发表于 2022-8-10 07:24
+
+醒来一看就是要加班的样子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 4961#         楼主| 发表于 2022-8-10 07:27
+
+睡醒了
+
