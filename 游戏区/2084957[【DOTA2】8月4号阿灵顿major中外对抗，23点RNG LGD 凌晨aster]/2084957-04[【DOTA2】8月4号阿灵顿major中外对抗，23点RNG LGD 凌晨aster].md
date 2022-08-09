@@ -2359,3 +2359,74 @@ doom一直在游走，剧毒一打二
 
 东南亚队伍不一直都很脑浆嘛，偶尔能出个ti8迷你司机ti10tnc这种队伍。
 
+
+
+*****
+
+####  AIDSL  
+##### 4766#       发表于 2022-8-10 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997665&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-9 23:46</a>
+
+现在中单宙斯不咋出A了，看情况，大部分都是紫双刀冲脸打持续输出，秘法鞋紫双刀以太BKB ...</blockquote>
+大概6月份的时候啊，我记得一个天梯切片man的topson宙斯切片，下面有个宙斯高手跟人争辩了很久的“topson出对剑冲脸是不是不会玩宙斯”
+
+还有个主播看topson中单宙斯前9级不加G说大家千万别学这种玩法
+
+好吧，现在比赛主流宙斯就是出对剑冲脸前期不学G
+
+说真的，跟19年应该好好看ana路人局一样，现在就是要看看topson平时怎么玩。
+
+*****
+
+####  ArowRocher  
+##### 4767#       发表于 2022-8-10 00:03
+
+2022跟东南雅队伍交手最早的其实是RNG,跨年那天输给OB.NEON<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 4768#       发表于 2022-8-10 00:05
+
+小鹿真恶心啊 大药不给喂能不能把带奶的辅助砍一砍啊
+
+感觉就是强推戴泽术士小鹿
+
+*****
+
+####  是挞不是派  
+##### 4769#       发表于 2022-8-10 00:06
+
+xinq这牛头怎么看着这么强啊，把把力中暴力
+
+*****
+
+####  遍体精淋af  
+##### 4770#       发表于 2022-8-10 00:06
+
+法师克星这装备还没删啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  逃离二次元  
+##### 4771#       发表于 2022-8-10 00:06
+
+瑞典人推迟ti10才是傻逼好伐。没推迟以后还有a畜这个人？
+
+*****
+
+####  nxmonitor  
+##### 4772#       发表于 2022-8-10 00:07
+
+BOOM其实打得真可以的，防守反击挺厉害的，哪怕到败者组碰到液体这种肌肉DOTA很可能带走的……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4773#       发表于 2022-8-10 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">细节做的太差了，尤其这个大圣大开的都很微妙
+
