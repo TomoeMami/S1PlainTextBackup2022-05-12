@@ -7779,3 +7779,12 @@ EDに引き続き、作監で参加させて頂きました。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，这就把可堇剧情放第三季，可堇党给我忍到最后
 
+
+
+*****
+
+####  lj205  
+##### 2271#       发表于 2022-8-9 12:47
+
+这要是改香音追飞机，可可肯定也会被划成批斗对象<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
