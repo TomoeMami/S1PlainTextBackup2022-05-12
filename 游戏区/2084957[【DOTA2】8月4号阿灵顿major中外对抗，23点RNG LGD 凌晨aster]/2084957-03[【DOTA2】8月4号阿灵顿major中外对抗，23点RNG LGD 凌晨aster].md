@@ -11613,3 +11613,135 @@ ana的上限肯定是比鬼高，但他是一个来临时救场没沟通没经�
 
 我艹，潮水涌入了，等于说小组赛打完了就这么多人，这要夺冠了那场面。
 
+
+
+*****
+
+####  哈曼的YY  
+##### 4393#       发表于 2022-8-9 16:22
+
+漏油应该大部分是不信假赛的 说说谭雅这波没什么
+
+但是逼站那堆亲妈欠血入的集美可没这资格<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+尼玛我杀到回复发不出去了 傻逼逼站
+
+*****
+
+####  ArowRocher  
+##### 4394#       发表于 2022-8-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991725&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:16</a>
+谈不上跪不跪，大家这么渴望冠军又这么恶心ame，这不是大家的错，是打成这样的职业选手的错不是吗？ ...</blockquote>
+这可真有点世界的错了
+
+*****
+
+####  UnhappyTails  
+##### 4395#       发表于 2022-8-9 16:25
+
+ 本帖最后由 UnhappyTails 于 2022-8-9 16:28 编辑 
+
+我觉得这波拿rng来洗先辈捧先辈的操作就尽显水厂的老练了
+
+rng临时找了常年休息石油杯变态辣的ana来替补是迫不得已而不是补强，赛前各种激动和玩梗只是大家第一次看在世界大赛里登场的中国队ana罢了，你要真说任何还经常看dota比赛的人会觉得ana替鬼能让rng上一个档次我是不信，至少大家的第一反应是人难过不掉档次就不错了
+
+然而在水厂对舆论的潜移默化下，就成了rng找来双冠王都打不过lgd，足见rng（还有老队友）的不堪和ame的无敌，这当中的逻辑谬误成山成海，然而只要把水搅混，凭借数量极大的云观众跟风小鬼和集美就能让舆论迅速朝着既定目标前进
+
+当然我不是说rng打得没问题或者说rng比lgd强，上赛季dpc刚被宰了。我只是不想看一些恶心人的生物在这里给一些本来被大家看重的悲剧写上玩世不恭的可笑注解罢了，曾经我是真想看lgd赢，可我一次又一次的信任又换来了什么呢
+
+*****
+
+####  jy000129  
+##### 4396#       发表于 2022-8-9 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991431&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-9 15:50</a>
+昨晚看着RNG输就预想今天节奏爆炸。利好杰出
+
+还是乖乖看老干爹吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">A÷只要像之前幽鬼局有转3的自觉，赵云们不犯病应该没问题
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thistimeforlife  
+##### 4397#       发表于 2022-8-9 16:27
+
+有啥办法呢，2也差不多，major上cn中单不还是天才少年maybe和当打之年ori
+
+*****
+
+####  jy000129  
+##### 4398#       发表于 2022-8-9 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991584&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:04</a>
+不是兄弟们真的不关注谭雅吧谭雅从ti8开始就是魔怔a黑了，去年更是animajor以后坚持不看好a/的少数 ...</blockquote>
+谁NM关注这个B呀，又不能像狗头人那样创造内容
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  morwhipppo  
+##### 4399#       发表于 2022-8-9 16:27
+
+集美这种生物的脑构造确实不一般
+
+<img src="https://img.saraba1st.com/forum/202208/09/162704lhhl1ss4u74dhesd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>13783017-545A-4D90-8929-AFCCD3371555.jpeg</strong> (144.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/162704t7cgcjcw9mpupc9g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3A252D43-74B4-4652-A25B-8EC1F7EFDC88.jpeg</strong> (132.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/162704id3zqspe1r1tmd44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5FB115F2-020C-4AC5-8174-856E32E31C9B.jpeg</strong> (211.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/162704apz0e03o4ez4g34q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>70EB4026-84ED-48A2-883F-05D043C18DFD.jpeg</strong> (122.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 16:27 上传
+
+*****
+
+####  nowaki  
+##### 4400#       发表于 2022-8-9 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991866&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:25</a>
+
+我觉得这波拿rng来洗先辈捧先辈的操作就尽显水厂的老练了
+
+rng临时找了常年休息石油杯变态辣的ana来替补是 ...</blockquote>
+然而ana拿屠夫刚被打推进力中暴力，整体发挥和卡卡基本上是唯二正常人了。
+
+*****
+
+####  UnhappyTails  
+##### 4401#       发表于 2022-8-9 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991913&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-9 16:28</a>
+然而ana拿屠夫刚被打推进力中暴力，整体发挥和卡卡基本上是唯二正常人了。 ...</blockquote>
+正常发挥是12级点一级魔免的小狗和缺伤害出冰眼的先知吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

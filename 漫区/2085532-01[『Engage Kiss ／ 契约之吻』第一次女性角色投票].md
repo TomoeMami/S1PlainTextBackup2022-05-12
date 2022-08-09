@@ -624,3 +624,12 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 
 俩女主目前还没有特别吸引我的描写，所以先期待一手修女，外形加分（
 
+
+
+*****
+
+####  D．Va  
+##### 71#       发表于 2022-8-9 16:30
+
+前女友这几个字就注定她必败了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
