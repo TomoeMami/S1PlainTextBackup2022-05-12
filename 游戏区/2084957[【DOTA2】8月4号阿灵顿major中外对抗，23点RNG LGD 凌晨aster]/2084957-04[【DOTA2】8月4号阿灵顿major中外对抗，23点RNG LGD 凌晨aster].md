@@ -785,3 +785,24 @@ ceb的新闻下面一片骂可以理解，没尾巴的 ...</blockquote>
 让你滚这阵容在40-60min都推不掉马体，我看就该被刀塔之神惩罚</blockquote>
 你这个猴子见效是怎么发的
 
+
+
+*****
+
+####  反方向的波  
+##### 4581#       发表于 2022-8-9 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995728&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-9 21:02</a>
+你这个猴子见效是怎么发的</blockquote>
+回帖里自己上传的gif
+
+*****
+
+####  Keynes  
+##### 4582#       发表于 2022-8-9 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995795&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 21:07</a>
+
+回帖里自己上传的gif</blockquote>
+我还以为可以加到表情里面<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
