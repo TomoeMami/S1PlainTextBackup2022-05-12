@@ -8117,3 +8117,26 @@ OP初动13762
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993565&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-9 18:24</a></blockquote>
 那么活到最后的是恋恋还是小千呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 2302#       发表于 2022-8-10 00:13
+
+<img src="https://p.sda1.dev/6/4afbfac0eed9e44b32adaef0ffbc526f/680f66e79bf0ed3f.jpg" referrerpolicy="no-referrer">
+什么嘛，太君明白人也不少嘛
+
+*****
+
+####  cxj649  
+##### 2303#       发表于 2022-8-10 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997953&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-10 00:13</a>
+
+什么嘛，太君明白人也不少嘛</blockquote>
+其实现在奇葩在
+
+天朝黑子比本子多（指紫吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

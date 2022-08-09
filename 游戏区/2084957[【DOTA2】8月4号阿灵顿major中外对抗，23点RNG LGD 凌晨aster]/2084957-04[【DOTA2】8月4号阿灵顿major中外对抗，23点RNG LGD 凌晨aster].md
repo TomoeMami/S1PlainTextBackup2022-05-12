@@ -2430,3 +2430,126 @@ BOOM其实打得真可以的，防守反击挺厉害的，哪怕到败者组碰�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">细节做的太差了，尤其这个大圣大开的都很微妙
 
+
+
+*****
+
+####  玛基  
+##### 4774#       发表于 2022-8-10 00:14
+
+这lgd你妈抓着陈选，major打完如果真被砍了拳击手要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4775#       发表于 2022-8-10 00:15
+
+Boom这队战术纪律性还是不错的，看着也没那么脑浆。
+
+*****
+
+####  nightmare902015  
+##### 4776#       发表于 2022-8-10 00:17
+
+有好多英雄肉眼可见的活不到下个版本<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">狠狠地砍，这版本强势除了玛西基本我都不爱玩。
+
+*****
+
+####  北条早苗  
+##### 4777#       发表于 2022-8-10 00:17
+
+东南亚经典C点出来了
+
+*****
+
+####  IG.430  
+##### 4778#       发表于 2022-8-10 00:18
+
+急需加强尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4779#       发表于 2022-8-10 00:18
+
+这阵容前期没优势就要没了啊，船长这英雄真的疲软，虽然是绝活也最好ban掉……
+
+*****
+
+####  walfeds  
+##### 4780#       发表于 2022-8-10 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈和小鹿还是一起死吧，这样老逼们的压箱底绝活就保不住了
+
+*****
+
+####  战狼PTSD  
+##### 4781#       发表于 2022-8-10 00:19
+
+能不能把紫苑改回去，蓝猫哭了
+
+火猫能不能把0.1S抬手改了，无影拳看范围我都认了
+
+*****
+
+####  nxmonitor  
+##### 4782#       发表于 2022-8-10 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998025&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-10 00:19</a>
+
+陈和小鹿还是一起死吧，这样老逼们的压箱底绝活就保不住了</blockquote>
+在家看的那两个都喜欢选这个，直接一刀砍掉脸都黑了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 4783#       发表于 2022-8-10 00:20
+
+这把有的打啊 看看线上如何先 
+
+*****
+
+####  名字不乱取  
+##### 4784#       发表于 2022-8-10 00:20
+
+东南亚人均美杜莎绝活是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4785#       发表于 2022-8-10 00:20
+
+蓝猫都这么砍了你们绝活哥还这么厉害，肯定不能让你活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4786#       发表于 2022-8-10 00:21
+
+草
+
+4V1ZQRO%]92DYYBSU((R83M.jpg
+(87.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/002051uavr5ouva8vz8a4n.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 4787#       发表于 2022-8-10 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998046&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 00:21</a>
+草</blockquote>
+难顶
+
+*****
+
+####  nightmare902015  
+##### 4788#       发表于 2022-8-10 00:22
+
+东南亚天才小哑巴是这样的，rng还真有沟通问题。
+
