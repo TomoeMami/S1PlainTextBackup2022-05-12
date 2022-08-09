@@ -12227,3 +12227,82 @@ monet回家局的脑浆程度算了吧，只能说ame整活舞台太大吸走了
 我真的吐了。</blockquote>
 这个鳖孙真的是司马，以前在ig当官博的时候天天舔鳖壳
 
+
+
+*****
+
+####  ArowRocher  
+##### 4449#       发表于 2022-8-9 17:04
+
+这个major被ban了八支队，对局结果根本不成定论，LGD也不是没有两轮回家的可能。何况离新加坡还有两个月，中间还有个补丁，RNG改命大有机会。
+再说了万一小天使这几天真的双核同翻过载了呢，等一个纪录片<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 4450#         楼主| 发表于 2022-8-9 17:04
+
+翻到了
+
+<img src="https://img.saraba1st.com/forum/202208/09/170444m9kkphsh6krmvdvp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220809170429.png</strong> (43.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 17:04 上传
+
+*****
+
+####  UnhappyTails  
+##### 4451#       发表于 2022-8-9 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992326&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 16:58</a>
+不管怎么说吧，听你说你在梅奔现场，我觉得那是真的难受</blockquote>
+还好吧，我玩的没那么多看得多，每个major都追甚至minor都看，ti更是一场不落
+
+你要说一般比赛我能立刻反应过来哪里是核心问题指点江山我不行，但ti9那天场馆是真的绝望呀
+
+去年你还能找借口说没找到猛犸这个版本bug（然而马尔斯也不敢放呀，是不是量子鞭），ti9结束是真的心气没了，当时我出来跟我一起去的兄弟聊了一小时，觉得从bp开始就无限劣，别人拿什么都是绝活，我们只能逆版本选“绝中绝”“扎实”
+
+当时更绝望的是整个战队对版本强势弱势还有套路的轻视和放松，不说大哥小精灵，整个奶推基本都是一片空白，vg被秘密炼金当场处刑就看出来了
+
+所以ti9真是退坑好时机啊，奈何<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 4452#       发表于 2022-8-9 17:06
+
+不是，集美们虽然恶心但和cndota有个毛关系，cndota顶着玩家大量流失每年综合下来能有顶级赛区的表现已经很不错了
+
+*****
+
+####  maju3  
+##### 4453#       发表于 2022-8-9 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992060&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-9 16:39</a>
+
+你楼吵半天还没人家超级假赛论坛有点有价值的东西
+
+https://ngabbs.com/read.php?tid=32998789
+
+就没打过几次 ...</blockquote>
+这个谭雅直播的时候还真说了原力鞋很牛皮，tb应该带原力鞋
+
+*****
+
+####  CNFH1984  
+##### 4454#       发表于 2022-8-9 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">TMD，这两天姐妹浓度也太高了吧，手游群里扯皮都有人说“这下终于证明TI8……”
+
+真是吐了
+
+*****
+
+####  遍体精淋af  
+##### 4455#       发表于 2022-8-9 17:08
+
+西恩再夺冠一次回流的人肯定不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然而处长被刀塔之神诅咒，其他队伍又指望不了，令人感慨
+

@@ -658,3 +658,15 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 前女友这几个字就注定她必败了</blockquote>
 你对丸户老贼不够了解啊
 
+
+
+*****
+
+####  四宫家印  
+##### 74#       发表于 2022-8-9 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991947&amp;ptid=2085532" target="_blank">D．Va 发表于 2022-8-9 16:30</a>
+
+前女友这几个字就注定她必败了</blockquote>
+丸户的xp就是年上前女友，往往还有黑丝、黑长直、学霸等属性
+
