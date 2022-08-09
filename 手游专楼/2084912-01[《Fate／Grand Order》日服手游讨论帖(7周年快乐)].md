@@ -4559,3 +4559,22 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">说好的群号怎么还没发
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 431#       发表于 2022-8-9 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷QP时发现大佬把三宝小芬奇换成了三宝太公，试了试感觉很强啊
+
+*****
+
+####  alucardcz  
+##### 432#       发表于 2022-8-9 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988020&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-9 10:57</a>
+
+刷QP时发现大佬把三宝小芬奇换成了三宝太公，试了试感觉很强啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 居然有那么多3宝
+
