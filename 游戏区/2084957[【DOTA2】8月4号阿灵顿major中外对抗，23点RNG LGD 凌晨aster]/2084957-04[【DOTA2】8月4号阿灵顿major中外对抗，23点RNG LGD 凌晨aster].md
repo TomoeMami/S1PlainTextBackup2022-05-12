@@ -313,3 +313,71 @@ https://www.bilibili.com/video/BV1U14y1t7Nx?spm_id_from=444.41.list.card_archive
 
 这个皮套的中之人声音不错
 
+
+
+*****
+
+####  woyzeck  
+##### 4535#       发表于 2022-8-9 19:41
+
+到达世界dota最高峰，太仓
+
+*****
+
+####  Litccc  
+##### 4536#       发表于 2022-8-9 19:42
+
+完美从哪找来这么多皮套人的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 4537#       发表于 2022-8-9 19:43
+
+完美哪里找到这么多可爱女员工的
+
+*****
+
+####  walfeds  
+##### 4538#       发表于 2022-8-9 19:44
+
+回顾了下，感觉是没带夹子的1.0版黯灭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ta出黯灭是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 4539#       发表于 2022-8-9 19:44
+
+速速出道，早就看冠夹不顺眼了
+
+*****
+
+####  scg2017  
+##### 4540#       发表于 2022-8-9 19:45
+
+看sg有人提，才想起来。ti10结束后查猪还开直播驳斥假赛党，那少黑点。查理斯这人ti9也算队里大腿，败绝赢得那把三号位人马经济领跑，还单杀了一次奇迹哥虚空。怎么现在这么捞了？
+透支！偿还！
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  韬晦  
+##### 4541#       发表于 2022-8-9 19:47
+
+<blockquote>scg2017 发表于 2022-8-9 19:45
+看sg有人提，才想起来。ti10结束后查猪还开直播驳斥假赛党，那少黑点。查理斯这人ti9也算队里大腿，败绝赢 ...</blockquote>
+a畜钻查猪指挥反打不开魔免，结果集美把锅甩到查猪头上，我是查猪我早一屁股坐死a畜了
+
+*****
+
+####  外挂全家脚气  
+##### 4542#       发表于 2022-8-9 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994698&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-9 19:45</a>
+
+看sg有人提，才想起来。ti10结束后查猪还开直播驳斥假赛党，那少黑点。查理斯这人ti9也算队里大腿，败绝赢 ...</blockquote>
+查猪想偿还啊，都明牌开摆混工资的，结果被拷打后又酬勤然后石油杯尽大力，然后MAJOR又不行了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
