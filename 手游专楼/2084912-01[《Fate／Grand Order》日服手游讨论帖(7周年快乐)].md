@@ -5027,3 +5027,25 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起这个我就很气愤啊，水巴终突后明明是初始卡面，偏偏弄个三破形象，关键三破卡面我个人还不太喜欢，点强化的时候一副苦大仇深的脸跳出来真的别扭
 
+
+
+*****
+
+####  alucardcz  
+##### 469#       发表于 2022-8-9 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995337&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-9 20:33</a>
+
+说起这个我就很气愤啊，水巴终突后明明是初始卡面，偏偏弄个三破形象，关键三破卡面我个人还不太喜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到卡面 公主卡面拉成x了 怎么没人喷啊
+
+*****
+
+####  霧谷藤乃  
+##### 470#       发表于 2022-8-9 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995893&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 21:14</a>
+
+说到卡面 公主卡面拉成x了 怎么没人喷啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武内有啥喷的必要么，可以预见画工不会再进化，明摆着开也开不掉，喷到最后也只能接受不如直接跳到接受
+

@@ -806,3 +806,28 @@ ceb的新闻下面一片骂可以理解，没尾巴的 ...</blockquote>
 回帖里自己上传的gif</blockquote>
 我还以为可以加到表情里面<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萩原组土狼p  
+##### 4583#       发表于 2022-8-9 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993154&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 17:53</a>
+
+那就是路人没法玩咯</blockquote>
+能玩啊，剑圣首先线上能力不错，队友有个控制的话比较容易杀人的，而且还有棒子续航，线上只要不是对面是那几个怪物一般不会崩，然后就是打好自己的节奏就行，路人别管其他人，首先保自己肥farm，有大的时候可以跟节奏，没大老实farm就行，等20级有装备天赋再出山带队友打就行
+
+*****
+
+####  Keynes  
+##### 4584#       发表于 2022-8-9 21:20
+
+在b站看到的一个集美岁月史书留档（高血压勿点），链接找不到了，重新上传了一哈
+
+链接：[https://pan.baidu.com/s/1Or8jUD_KPdzAaZFTGMc8WQ](https://pan.baidu.com/s/1Or8jUD_KPdzAaZFTGMc8WQ) 
+
+提取码：8omh 
+
+永远不可能原谅，记住，是永远<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

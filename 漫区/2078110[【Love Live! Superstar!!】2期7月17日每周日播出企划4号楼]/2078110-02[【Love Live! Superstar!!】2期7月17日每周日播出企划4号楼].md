@@ -8005,3 +8005,28 @@ OP初动13762
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993565&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-9 18:24</a></blockquote>
 这门牙得崩飞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2293#       发表于 2022-8-9 21:18
+
+<img src="https://img.saraba1st.com/forum/202208/09/211816t0jtji3gi442fw96.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6596ADE8-697A-4A0A-8643-6D1B0D084A8A.jpeg</strong> (207.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/211816v444o5qpz3phx7v6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>64C0A6EB-04D7-4F83-9B52-8E88FF869A0D.jpeg</strong> (352.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 21:18 上传
+
