@@ -1849,3 +1849,363 @@ skem带路的好
 
 这样看可能昨天rng第二把好像还是输了好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BallanceHZ  
+##### 4703#       发表于 2022-8-9 23:42
+
+mdy一直在狂吹y
+
+*****
+
+####  山上徹也  
+##### 4704#       发表于 2022-8-9 23:42
+
+看弹幕说至宝会提示板到没视野的人
+
+*****
+
+####  天堂蜘蛛  
+##### 4705#       发表于 2022-8-9 23:42
+
+老干瘪这把避战做的太好了，没给BOOM找到破绽
+
+*****
+
+####  战狼PTSD  
+##### 4706#       发表于 2022-8-9 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997598&amp;ptid=2084957" target="_blank">你可以试试 发表于 2022-8-9 23:41</a>
+
+更早的时候郑处也有一个向完美实名举报菠菜的表演，那时候也是很多人抵制接菠菜广告的。就风咒跳出来说搞 ...</blockquote>
+MXO小辛也是
+
+基本都是抱团哭惨继续挂赌狗广告，还有WTF
+
+*****
+
+####  nowaki  
+##### 4707#       发表于 2022-8-9 23:44
+
+避战还是boom自己送 我不好说
+
+*****
+
+####  吃货红毛  
+##### 4708#       发表于 2022-8-9 23:44
+
+冲脸宙斯吗 这么狂野来自: iPhone客户端
+
+*****
+
+####  我爱撩菜  
+##### 4709#       发表于 2022-8-9 23:44
+
+宙斯直接跳脸了啊= =
+
+*****
+
+####  弈秋  
+##### 4710#       发表于 2022-8-9 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这 就是赵云
+
+
+
+*****
+
+####  12481632  
+##### 4711#       发表于 2022-8-9 23:44
+
+猴爹狂起来了
+
+*****
+
+####  IG.430  
+##### 4712#       发表于 2022-8-9 23:44
+
+萌猩球问，紫双刀对于宙斯要比a帐优先吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 4713#       发表于 2022-8-9 23:44
+
+宙斯都冲脸了  四赵云这么厉害干嘛
+
+*****
+
+####  BallanceHZ  
+##### 4714#       发表于 2022-8-9 23:44
+
+nts这个zeus不当人了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 4715#       发表于 2022-8-9 23:45
+
+厉害 分身符用的好
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 4716#       发表于 2022-8-9 23:45
+
+受不了了，赵云们给我看玉玉了
+
+*****
+
+####  逃离二次元  
+##### 4717#       发表于 2022-8-9 23:45
+
+gg<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 4718#       发表于 2022-8-9 23:46
+
+莫言 偿还来自: iPhone客户端
+
+*****
+
+####  Litccc  
+##### 4719#       发表于 2022-8-9 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997634&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-9 23:44</a>
+萌猩球问，紫双刀对于宙斯要比a帐优先吗</blockquote>
+准确的说是慧光，回蓝的装备就这么一件
+
+*****
+
+####  一品堂官  
+##### 4720#       发表于 2022-8-9 23:46
+
+太对了，使劲透支。
+
+*****
+
+####  我爱撩菜  
+##### 4721#       发表于 2022-8-9 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">仙贝笑得好开心啊
+
+*****
+
+####  a1370303  
+##### 4722#       发表于 2022-8-9 23:46
+
+真是脑浆啊，boom<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 4723#       发表于 2022-8-9 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997634&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-9 23:44</a>
+
+萌猩球问，紫双刀对于宙斯要比a帐优先吗</blockquote>
+现在中单宙斯不咋出A了，看情况，大部分都是紫双刀冲脸打持续输出，秘法鞋紫双刀以太BKB
+
+*****
+
+####  walfeds  
+##### 4724#       发表于 2022-8-9 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这boom真的不基德
+
+*****
+
+####  弈秋  
+##### 4725#       发表于 2022-8-9 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个打断
+
+*****
+
+####  你谁  
+##### 4726#       发表于 2022-8-9 23:46
+
+虚空的被动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 4727#       发表于 2022-8-9 23:46
+
+aMe这一下敲晕什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 4728#       发表于 2022-8-9 23:46
+
+难道没人能制裁水厂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 4729#       发表于 2022-8-9 23:46
+
+基德基德
+
+*****
+
+####  阿垃垃圾历  
+##### 4730#       发表于 2022-8-9 23:46
+
+对面的大圣 毫无用处哇 
+
+*****
+
+####  nowaki  
+##### 4731#       发表于 2022-8-9 23:47
+
+冰蛙你看见了吗 四赵云没得玩了，给我狠狠的改成大核荣耀
+
+*****
+
+####  为了mf注册  
+##### 4732#       发表于 2022-8-9 23:47
+
+除了四赵云没啥看头啊，等明早茶队了
+
+*****
+
+####  白野苍衣  
+##### 4733#       发表于 2022-8-9 23:47
+
+还不打GG吗  都坚持RNG两倍的时间了  这样打下去影响心态吧
+
+*****
+
+####  12481632  
+##### 4734#       发表于 2022-8-9 23:47
+
+缩壳了缩壳了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4735#       发表于 2022-8-9 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都撤退吗
+
+*****
+
+####  百世诸侯  
+##### 4736#       发表于 2022-8-9 23:48
+
+这种鱼腩队RNG不打，跑去打VP/雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 4737#       发表于 2022-8-9 23:49
+
+这马尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 4738#       发表于 2022-8-9 23:49
+
+赵公子这把牛头太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4739#       发表于 2022-8-9 23:49
+
+这都不敲吗
+
+*****
+
+####  山上徹也  
+##### 4740#       发表于 2022-8-9 23:49
+
+经典马尔斯大圣
+
+
+
+*****
+
+####  BallanceHZ  
+##### 4741#       发表于 2022-8-9 23:49
+
+boom还不敲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 4742#       发表于 2022-8-9 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996831&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-9 22:36</a>
+
+集美切片里最恶心是那个思思，lgd输比赛直接缩壳不切不说，舔王处的切入角度看得我生理不适... 
+
+我甚至都 ...</blockquote>
+b站现在推送都很下作 只要看dota就推lgd的
+
+人家自己hr都说用户都是loser了
+
+*****
+
+####  天堂蜘蛛  
+##### 4743#       发表于 2022-8-9 23:50
+
+这个剧毒真是脑浆哇，经济第八了
+
+*****
+
+####  弈秋  
+##### 4744#       发表于 2022-8-9 23:50
+
+这给rng就打进泉水了
+
+*****
+
+####  修罗王  
+##### 4745#       发表于 2022-8-9 23:51
+
+boom还是早点投了好好去研究液体吧
+
+*****
+
+####  弈秋  
+##### 4746#       发表于 2022-8-9 23:51
+
+终于敲了
+
+*****
+
+####  吃货红毛  
+##### 4747#       发表于 2022-8-9 23:51
+
+可以睡了等早茶了来自: iPhone客户端
+
+*****
+
+####  asd235614  
+##### 4748#       发表于 2022-8-9 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BOOM怎么能做到每一波团都有人犯罪的
+
+*****
+
+####  Litccc  
+##### 4749#       发表于 2022-8-9 23:52
+
+boom五个人被打服了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
