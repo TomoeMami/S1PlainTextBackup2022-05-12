@@ -3456,3 +3456,85 @@ boom在手，杀zai畜！
 
 BOOM带线不错，但主要还是LGD这给机会了，明鞭这出装属实不做人了
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 4908#       发表于 2022-8-10 01:12
+
+还行 1:15  再过会就开始了 
+
+*****
+
+####  米德  
+##### 4909#       发表于 2022-8-10 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">boom的帕克就很会带线 昨天超哥就完全不知道带线
+
+*****
+
+####  UnhappyTails  
+##### 4910#       发表于 2022-8-10 01:13
+
+我已经等不及看boom宰杀zai/了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 4911#       发表于 2022-8-10 01:13
+
+处长更是有意思 连着送给四赵云出难题呢 每次都是他落单被抓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是挞不是派  
+##### 4912#       发表于 2022-8-10 01:16
+
+中间就是lgd以为宰了，完全不把对面当人
+但对面没那么菜，断线守高守得很好
+
+*****
+
+####  雅朵莉雀  
+##### 4913#       发表于 2022-8-10 01:17
+
+OG打Entity这轮我还挺想看的
+
+Entity这比赛带替补光剑哥打功能核给Stormstormer打真核看起来打得还不错
+
+*****
+
+####  香蕉芭菲  
+##### 4914#       发表于 2022-8-10 01:17
+
+A杖银月是什么特别套路吗
+
+*****
+
+####  Cypher_96  
+##### 4915#       发表于 2022-8-10 01:18
+
+xinq这把4转5了呀，资源都给y队，自己在野区留人打信息
+
+*****
+
+####  BallanceHZ  
+##### 4916#       发表于 2022-8-10 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998561&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-10 01:17</a>
+A杖银月是什么特别套路吗</blockquote>
+没套路，就瞎jb出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 4917#       发表于 2022-8-10 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998474&amp;ptid=2084957" target="_blank">a1370303 发表于 2022-8-10 01:04</a>
+好呀好呀，这个MAD，猫鼠游戏是吧，超级集美论坛马上就来喷你
+
+—— 来自 OnePlus LE2110, Android  ...</blockquote>
+你提前三分钟预测成功
+<img src="https://p.sda1.dev/6/1e3af8feb53620d136f910f0a42e4e41/CMP_20220810012052527.jpg" referrerpolicy="no-referrer">
+
