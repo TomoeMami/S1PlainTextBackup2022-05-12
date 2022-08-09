@@ -2515,3 +2515,18 @@ NHOTBOT（
 希望今年能看到赌马，老打柏青哥算啥事。</blockquote>
 不如玩赛马娘
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12278#       发表于 2022-8-9 22:29
+
+<img src="https://img.saraba1st.com/forum/202208/09/222903dwunx14hg1nyzhyz.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220809222752657.jpg</strong> (64.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:29 上传
+

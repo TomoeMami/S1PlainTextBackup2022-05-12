@@ -1000,3 +1000,100 @@ B站这几个切片号有谁不是集美的，哦，准确说来，这几位才�
 
 2022-8-9 22:20 上传
 
+
+
+*****
+
+####  ArowRocher  
+##### 4599#       发表于 2022-8-9 22:22
+
+ 本帖最后由 ArowRocher 于 2022-8-9 22:30 编辑 
+
+忘了是IWO还是第二赛季，lgd败了楠楠是直接切出来喊好似的，自己也是跟狗头人互动的
+
+*****
+
+####  thistimeforlife  
+##### 4600#       发表于 2022-8-9 22:22
+
+B站这些切片员大家懂的，楠楠思思刀客这几个东西，你甚至看不到鳖星这次major的切片<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 4601#       发表于 2022-8-9 22:23
+
+ 本帖最后由 一品堂官 于 2022-8-9 22:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996602&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 22:17</a>
+
+B站这几个切片号有谁不是集美的，哦，准确说来，这几位才是真正的墙头草。
+
+再补一个好吧。</blockquote>
+纯蹭子而已 之前怀念霉鳖的也有ta
+
+这几个人里面刀客阿林属于真下功夫切片了 但是也是ti8水厂5个人的粉丝
+
+*****
+
+####  为了mf注册  
+##### 4602#       发表于 2022-8-9 22:24
+
+去年切片全是处长天梯你就知道这些切片员啥成分了，今年又增添了皮套狗的切片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 4603#       发表于 2022-8-9 22:25
+
+阿林茶打得好的那几把都切了吧我记得
+
+*****
+
+####  nowaki  
+##### 4604#       发表于 2022-8-9 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以下面8已经洗白了吗，集美去年不是群情激愤想要把下面8送进去。
+
+*****
+
+####  ArowRocher  
+##### 4605#       发表于 2022-8-9 22:28
+
+ 本帖最后由 ArowRocher 于 2022-8-9 22:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202208/09/222806syyawyfi03weswe8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (416.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:28 上传
+
+好像真没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 思思那个全是“甜甜甜”不截图了。
+
+鳖茶除了自己各种节奏之外，自己成员也不是水厂造星基地出来的，没流量就没有💴
+
+*****
+
+####  战狼PTSD  
+##### 4606#       发表于 2022-8-9 22:29
+
+楠楠切片突出一个懒狗，没字幕没剪辑，直接全搬过来
+
+*****
+
+####  walfeds  
+##### 4607#       发表于 2022-8-9 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996721&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-9 22:26</a>
+
+所以下面8已经洗白了吗，集美去年不是群情激愤想要把下面8送进去。</blockquote>
+面八？八王！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 4608#       发表于 2022-8-9 22:31
+
+什么下面8，现在集美只会尊称好吧，去年去年ti10你敢让他们回忆？ti10根本就没打！
+

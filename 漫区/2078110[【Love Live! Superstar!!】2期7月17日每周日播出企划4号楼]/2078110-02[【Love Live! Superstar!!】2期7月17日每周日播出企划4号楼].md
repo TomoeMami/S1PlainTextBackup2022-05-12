@@ -8092,3 +8092,18 @@ OP初动13762
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是日本现在疫情那么严重，中之人不是得病就是没啥露脸节目，谁tm盯着动画哦
 
+
+
+*****
+
+####  ads147147  
+##### 2300#       发表于 2022-8-9 22:21
+
+ 本帖最后由 ads147147 于 2022-8-9 22:22 编辑 
+
+核心人数早就没什么大变化了，真要是新粉星1末期还不跑的差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/857be8689a0e42b35c381a281f7c8781/5ae770c48d7c132b.jpg" referrerpolicy="no-referrer">
+星4给人的感觉就是唐伯虎点秋香。周围都是歪瓜裂枣才显得巩俐娇嫩。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
