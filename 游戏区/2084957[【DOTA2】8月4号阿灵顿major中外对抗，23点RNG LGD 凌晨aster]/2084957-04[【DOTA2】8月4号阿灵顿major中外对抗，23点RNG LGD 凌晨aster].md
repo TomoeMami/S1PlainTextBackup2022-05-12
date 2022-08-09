@@ -3863,3 +3863,12 @@ gpk这盘打得真的有点丑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ts我记得说过对vp准备了一些措施可惜分组的时候没分上，这措施就就就马西**？
 
+
+
+*****
+
+####  Litccc  
+##### 4957#       发表于 2022-8-10 07:00
+
+超级集美论坛那个喷mad的帖子真的有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
