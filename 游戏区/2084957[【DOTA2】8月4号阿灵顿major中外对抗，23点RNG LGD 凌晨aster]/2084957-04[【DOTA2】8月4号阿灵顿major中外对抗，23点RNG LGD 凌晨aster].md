@@ -3872,3 +3872,12 @@ gpk这盘打得真的有点丑了
 
 超级集美论坛那个喷mad的帖子真的有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 4958#       发表于 2022-8-10 07:02
+
+第一把4兄弟给呆毛老师磕一个
+
