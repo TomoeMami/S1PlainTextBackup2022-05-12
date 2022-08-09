@@ -754,3 +754,34 @@ http://news.maxjia.com/maxnews/app/share/detail/dota2/151809
 
 只能说犯错就会被惩罚，当你的队伍是最强的队伍的时候，一瞬间的失误也会被抓住
 
+
+
+*****
+
+####  woyzeck  
+##### 4578#       发表于 2022-8-9 20:55
+
+G3这个小鱼人点的应该是冠超和357一生的痛了吧，本来看到上帝在major和小组赛选小鱼痛宰炼金以为ame也能复刻一下，然鹅ame的小鱼在他所有英雄里都是最畜一档。
+
+*****
+
+####  walfeds  
+##### 4579#       发表于 2022-8-9 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995521&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 20:46</a>
+
+http://news.maxjia.com/maxnews/app/share/detail/dota2/151809
+
+ceb的新闻下面一片骂可以理解，没尾巴的 ...</blockquote>
+所以这群csdx永远不会被原谅啊
+
+*****
+
+####  Keynes  
+##### 4580#       发表于 2022-8-9 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995012&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 20:05</a>
+
+让你滚这阵容在40-60min都推不掉马体，我看就该被刀塔之神惩罚</blockquote>
+你这个猴子见效是怎么发的
+
