@@ -381,3 +381,59 @@ a畜钻查猪指挥反打不开魔免，结果集美把锅甩到查猪头上，�
 看sg有人提，才想起来。ti10结束后查猪还开直播驳斥假赛党，那少黑点。查理斯这人ti9也算队里大腿，败绝赢 ...</blockquote>
 查猪想偿还啊，都明牌开摆混工资的，结果被拷打后又酬勤然后石油杯尽大力，然后MAJOR又不行了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  聚散浮云  
+##### 4543#       发表于 2022-8-9 19:51
+
+查猪解说耍宝的天赋比他三号位强多了，建议早日备战解说席吧，争取跟Ceb连个麦
+
+*****
+
+####  tengshuo980  
+##### 4544#       发表于 2022-8-9 19:55
+
+感觉确实五级装备随机性太强了，碰见相性合适的英雄就能翻盘
+
+不如每局一开始时就明牌五个五级中立道具，到游戏50分钟后河道刷新类似年兽那样的强力野怪单位，打死一次掉一个装备，打死两次掉两个，打死三次掉三个
+正所谓，时到五十，神器出世，天辉夜魇，有能者得
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  两三流浪者  
+##### 4545#       发表于 2022-8-9 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994801&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-9 19:51</a>
+
+查猪解说耍宝的天赋比他三号位强多了，建议早日备战解说席吧，争取跟Ceb连个麦 ...</blockquote>
+撸狗猪和户口本解说的ti10录像可谓是传世经典
+
+*****
+
+####  百世诸侯  
+##### 4546#       发表于 2022-8-9 19:59
+
+增强竞技性就让两边中立装备全部一样，然后BP开始前公示两分钟时间，让两边在banpick时就把中立装备考虑进去，
+
+*****
+
+####  逃离二次元  
+##### 4547#       发表于 2022-8-9 20:00
+
+该给冰蛙发邮件了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 4548#       发表于 2022-8-9 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994860&amp;ptid=2084957" target="_blank">tengshuo980 发表于 2022-8-9 19:55</a>
+感觉确实五级装备随机性太强了，碰见相性合适的英雄就能翻盘
+
+不如每局一开始时就明牌五个五级中立道具，到 ...</blockquote>
+冰蛙听了直呼高见
+

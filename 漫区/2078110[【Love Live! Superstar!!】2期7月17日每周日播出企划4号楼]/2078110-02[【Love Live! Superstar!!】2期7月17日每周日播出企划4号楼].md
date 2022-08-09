@@ -7995,3 +7995,13 @@ OP初动13762
 那可最好了，就怕这staff这时候开始考究了，给你整这个</blockquote>
 我觉得这算可可被中之人逆输入得比较隐秘的一点，鲤鱼虽然是纯上海人，但可可是中日混血，大家潜意识里却都当她纯国人。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">可以类比鲤鱼跟菜宝，还是有点微妙的区别在里边
 
+
+
+*****
+
+####  老1.5  
+##### 2292#       发表于 2022-8-9 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993565&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-9 18:24</a></blockquote>
+这门牙得崩飞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
