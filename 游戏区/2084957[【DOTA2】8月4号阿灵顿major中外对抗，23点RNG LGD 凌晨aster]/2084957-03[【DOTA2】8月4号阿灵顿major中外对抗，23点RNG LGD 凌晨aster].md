@@ -9958,3 +9958,48 @@ maybe
 我森哥呢</blockquote>
 我森哥就ti9败决第三把中路拉比克送了三次，至于和这些人一起受折磨吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 4214#       发表于 2022-8-9 08:32
+
+一觉醒来，洪潮又来啦？这才哪到哪，major冠军都没拿呢
+
+giegie加油！今年要是能拿ti我就去表白！输了我就开香槟
+
+*****
+
+####  smkf013  
+##### 4215#       发表于 2022-8-9 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986348&amp;ptid=2084957" target="_blank">AkaiSuisei 发表于 2022-8-9 08:27</a>
+
+我森哥呢</blockquote>
+你森哥几个流量啊就想进队<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4216#       发表于 2022-8-9 08:34
+
+秘密这种狼性企业真不适合ana，这去了怕不是被ppy打哭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 4217#       发表于 2022-8-9 08:40
+
+今天的乐子本来是rng第一局复盘，结果谭雅把风头全抢了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 4218#       发表于 2022-8-9 08:40
+
+我叉哥英明一世，凭什么沦落到给这两人打工
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下，原来叉哥一直在给人打工
+
