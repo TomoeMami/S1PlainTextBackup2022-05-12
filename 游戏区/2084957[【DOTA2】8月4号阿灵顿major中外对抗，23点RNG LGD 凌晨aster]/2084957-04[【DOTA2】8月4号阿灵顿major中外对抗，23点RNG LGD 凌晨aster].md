@@ -2717,3 +2717,312 @@ boom战术素养确实可以，但手活真有点问题<img src="https://static.
 
 白给了
 
+
+
+*****
+
+####  山上徹也  
+##### 4810#       发表于 2022-8-10 00:42
+
+何意啊
+
+*****
+
+####  Litccc  
+##### 4811#       发表于 2022-8-10 00:43
+
+处长总能出现在意想不到的位置<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 4812#       发表于 2022-8-10 00:43
+
+a/真的永不让你失望呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 4813#       发表于 2022-8-10 00:43
+
+处长虽然送了，但是毫无影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4814#       发表于 2022-8-10 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赵云太强了索然无味，要加点调料
+
+*****
+
+####  nightmare902015  
+##### 4815#       发表于 2022-8-10 00:44
+
+哇我也想玩这种一号位啊，想送就送想打钱就打钱，打这么舒服何意啊
+
+*****
+
+####  阿垃垃圾历  
+##### 4816#       发表于 2022-8-10 00:44
+
+这送的很正常啊
+
+*****
+
+####  战狼PTSD  
+##### 4817#       发表于 2022-8-10 00:45
+
+开送了是吧
+
+*****
+
+####  walfeds  
+##### 4818#       发表于 2022-8-10 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好呀好呀
+
+*****
+
+####  Cookiekira  
+##### 4819#       发表于 2022-8-10 00:45
+
+太有纪律性了 这都能救下处长
+
+*****
+
+####  nightmare902015  
+##### 4820#       发表于 2022-8-10 00:45
+
+哇说完就开送拖累三个队友啊
+
+*****
+
+####  弈秋  
+##### 4821#       发表于 2022-8-10 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看困了来电刺激是吧
+
+*****
+
+####  12481632  
+##### 4822#       发表于 2022-8-10 00:45
+
+A醋又开始了
+
+*****
+
+####  BallanceHZ  
+##### 4823#       发表于 2022-8-10 00:45
+
+xinq这先手啥意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4824#       发表于 2022-8-10 00:45
+
+鸡肉dota
+
+*****
+
+####  阿垃垃圾历  
+##### 4825#       发表于 2022-8-10 00:45
+
+有点味道了 开始了开始了
+
+*****
+
+####  逃离二次元  
+##### 4826#       发表于 2022-8-10 00:46
+
+哇四赵云拿命救处长啊
+
+*****
+
+####  百世诸侯  
+##### 4827#       发表于 2022-8-10 00:46
+
+楼友们可以放心了，胜者组第一轮a畜的表演性人格就收不住了
+
+*****
+
+####  阿垃垃圾历  
+##### 4828#       发表于 2022-8-10 00:46
+
+美杜莎有冰眼了 好起来了 
+
+*****
+
+####  是挞不是派  
+##### 4829#       发表于 2022-8-10 00:46
+
+xinq，ame这是何意啊
+那么跳脸
+
+*****
+
+####  a1370303  
+##### 4830#       发表于 2022-8-10 00:46
+
+好呀好呀，送帕克两个一千块钱的人头是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  pikamee  
+##### 4831#       发表于 2022-8-10 00:46
+
+哇
+
+*****
+
+####  战狼PTSD  
+##### 4832#       发表于 2022-8-10 00:46
+
+这是何意啊A处
+
+*****
+
+####  Litccc  
+##### 4833#       发表于 2022-8-10 00:46
+
+好好好
+
+*****
+
+####  我爱撩菜  
+##### 4834#       发表于 2022-8-10 00:47
+
+估计被翻盘了
+
+*****
+
+####  你谁  
+##### 4835#       发表于 2022-8-10 00:47
+
+怎么突然就都脑浆了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 4836#       发表于 2022-8-10 00:47
+
+不是上波高地下说ame全锅没问题，这波xinq脑浆先手+nts三连中x也全算ame吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4837#       发表于 2022-8-10 00:47
+
+突然脑浆
+
+*****
+
+####  逃离二次元  
+##### 4838#       发表于 2022-8-10 00:47
+
+fbz这大钩赏心悦目，把处长溜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 4839#       发表于 2022-8-10 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这打盾不插眼和rng学的？
+
+*****
+
+####  我爱撩菜  
+##### 4840#       发表于 2022-8-10 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么又boom又暴毙了啊
+
+*****
+
+####  a1370303  
+##### 4841#       发表于 2022-8-10 00:48
+
+boom还是给机会啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4842#       发表于 2022-8-10 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">boom更加脑浆
+
+*****
+
+####  Cookiekira  
+##### 4843#       发表于 2022-8-10 00:48
+
+反转的也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 4844#       发表于 2022-8-10 00:48
+
+跳过去秒了伐木机啊
+
+*****
+
+####  逃离二次元  
+##### 4845#       发表于 2022-8-10 00:48
+
+还是gg了
+
+*****
+
+####  阿垃垃圾历  
+##### 4846#       发表于 2022-8-10 00:48
+
+boom  无法信任啊 想看ame表演 
+
+*****
+
+####  nowaki  
+##### 4847#       发表于 2022-8-10 00:48
+
+恶心啊恶心
+
+*****
+
+####  walfeds  
+##### 4848#       发表于 2022-8-10 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得补脑
+
+*****
+
+####  名字不乱取  
+##### 4849#       发表于 2022-8-10 00:49
+
+两边互相倒脑浆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 4850#       发表于 2022-8-10 00:49
+
+boom肯定还是翻不了，但是这把后面的味道熟悉起来了
+
+*****
+
+####  iriyano  
+##### 4851#       发表于 2022-8-10 00:50
+
+漏油们有点想多了吧
+这萧瑟至少还要表演3次
+
+*****
+
+####  弈秋  
+##### 4852#       发表于 2022-8-10 00:52
+
+快点打，想在1点前睡觉
+
