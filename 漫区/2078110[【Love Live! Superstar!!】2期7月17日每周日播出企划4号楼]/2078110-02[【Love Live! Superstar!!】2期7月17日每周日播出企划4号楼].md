@@ -8067,3 +8067,19 @@ OP初动13762
 第4话N站好评率</blockquote>
 从分数一下子上涨这么多可以看出，其实更多人对星团动画是恨铁不成钢，但凡好起来，都是第一时间给予肯定
 
+
+
+*****
+
+####  JustW_3  
+##### 2297#       发表于 2022-8-9 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">毕竟能看到现在的纯度也不低了 bangumi都没什么人了
+
+*****
+
+####  老1.5  
+##### 2298#       发表于 2022-8-9 21:45
+
+本来就粉丝向动画了，肯定是想它好的人多嘛。后面也不求多大爆点了，就这样结束也不赖（虽然这要求好像也悬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

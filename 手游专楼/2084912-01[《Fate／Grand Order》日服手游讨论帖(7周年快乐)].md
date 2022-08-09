@@ -5109,3 +5109,37 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 这颜色在配队界面实在太瞎眼了  他们做完就没用过吗（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟自选可以选特斯拉 BB能120 
 
+
+
+*****
+
+####  kiralzb  
+##### 476#       发表于 2022-8-9 21:41
+
+最终卡面没加那粉光，我组队里看着倒没啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 477#       发表于 2022-8-9 21:44
+
+麻了，友情点抽完哈贝猫才3宝，说起来我现在都没有见过小安<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 478#       发表于 2022-8-9 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下以前格斗时的地球姬立绘 TMD甩现在这个几条街
+
+*****
+
+####  alucardcz  
+##### 479#       发表于 2022-8-9 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996256&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-9 21:45</a>
+
+看了下以前格斗时的地球姬立绘 TMD甩现在这个几条街</blockquote>
+
+艹 看了眼官网 这不是挺正常的  怎么游戏里就那么粉了 不懂了 到底谁脑子有问题搞这么一出<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

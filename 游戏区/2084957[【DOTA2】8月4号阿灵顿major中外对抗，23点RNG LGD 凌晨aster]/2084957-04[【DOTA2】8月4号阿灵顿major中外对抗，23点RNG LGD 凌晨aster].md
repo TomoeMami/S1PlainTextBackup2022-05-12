@@ -905,3 +905,19 @@ ceb的新闻下面一片骂可以理解，没尾巴的 ...</blockquote>
 另外，八王还是牛逼。</blockquote>
 我的天，下面8回来了，我直接化身假赛集美开始拷打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tasuku  
+##### 4592#       发表于 2022-8-9 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剑圣这英雄有啥好说的，才打了一把队友跟了个墨客，直接优势路杀穿，装备都懒得思考战鼓单刀10分钟带着队友推，16分钟基地就爆了差点就被判不算分了
+
+*****
+
+####  逃离二次元  
+##### 4593#       发表于 2022-8-9 21:46
+
+假赛狗现在怎么不说话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">面八这么跳，假赛狗还不群起而围之呢
+
