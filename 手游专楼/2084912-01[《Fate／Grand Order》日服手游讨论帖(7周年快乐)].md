@@ -4813,3 +4813,15 @@ pm个id 我加你</blockquote>
 
 说起升级，我前两天打完大奥整整升了一级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 452#       发表于 2022-8-9 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989821&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 13:18</a>
+
+名字黄色的？   那应该没错  加了  id和x神一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了，我助战放的很随意而且很少打理，还请萌新大佬千叶大佬等不要嫌弃
+
