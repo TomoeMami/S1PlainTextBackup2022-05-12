@@ -4947,3 +4947,12 @@ PS：原网址：[https://appmedia.jp/fategrandorder/75512428](https://appmedia.
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 游星尖兵赛法卢代餐（误）
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 461#       发表于 2022-8-9 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还没选，基本上妖崔占一个，剩下妖兰和兰丸X摇摆
+

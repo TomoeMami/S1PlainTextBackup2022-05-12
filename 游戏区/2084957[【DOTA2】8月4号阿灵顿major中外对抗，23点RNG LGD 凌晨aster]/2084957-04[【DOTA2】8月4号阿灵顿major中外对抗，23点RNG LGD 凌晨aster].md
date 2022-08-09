@@ -136,3 +136,30 @@ CNDOTA早就完了，年年都是一帮老比排列组合。TI看个乐子得了
 
 反串集美怎么还没滚？ <blockquote> 说怎么说都行，等你拿起来鼠标键盘跟lgd打了你真敢冒这个险放ame无解肥吗</blockquote>
 
+
+
+*****
+
+####  ninini212  
+##### 4517#       发表于 2022-8-9 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我先睡觉了，十一点起来看比赛
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  哈曼的YY  
+##### 4518#       发表于 2022-8-9 19:07
+
+我他妈草了 几个撸狗同事在那dota2都是假赛<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 4519#       发表于 2022-8-9 19:10
+
+<blockquote>哈曼的YY 发表于 2022-8-9 19:07
+我他妈草了 几个撸狗同事在那dota2都是假赛</blockquote>
+你直接说去年edg是跪求韩国人打假赛 不就行了
+
