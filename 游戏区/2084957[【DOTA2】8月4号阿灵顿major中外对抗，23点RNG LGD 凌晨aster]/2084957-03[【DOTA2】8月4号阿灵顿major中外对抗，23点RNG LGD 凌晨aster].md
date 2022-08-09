@@ -11057,3 +11057,40 @@ yuragi和yatoro还都是二毛y字辈
 
 火女身心估计没有，TB身心是绝壁有
 
+
+
+*****
+
+####  syndrome2032  
+##### 4335#       发表于 2022-8-9 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988499&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-9 11:27</a>
+如果大爹和ceb锤不醒atf这木头脑袋我希望留队的是yuragi</blockquote>
+atf有纪录片加持，还是指望ceb教会他三号位该干啥吧。
+
+*****
+
+####  名字不乱取  
+##### 4336#       发表于 2022-8-9 11:54
+
+换个角度讲，有没有可能厨子是普通话不行，上海话还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 4337#       发表于 2022-8-9 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988841&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 11:51</a>
+
+不是有那个牛仔对决小游戏吗？看一下就知道了啊，这年头连「你好」都说不利索的人，我倾向于完全不会中文 ...</blockquote>
+那个视频说的不是你好，是德州牛仔最刻板印象的"yeehaw"<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4338#       发表于 2022-8-9 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988841&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-9 11:51</a>
+不是有那个牛仔对决小游戏吗？看一下就知道了啊，这年头连「你好」都说不利索的人，我倾向于完全不会中文 ...</blockquote>
+那句不是中文是在模仿牛仔吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
