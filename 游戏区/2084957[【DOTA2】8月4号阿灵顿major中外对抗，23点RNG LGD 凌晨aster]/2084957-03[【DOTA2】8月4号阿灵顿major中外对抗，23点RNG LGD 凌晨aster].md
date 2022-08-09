@@ -11349,3 +11349,48 @@ a畜t锅的瞬间是四兄弟集火有盾的火猫并且秒了第一条命，如
 
 我的评价是先把做人学会吧。
 
+
+
+*****
+
+####  Bernoulli  
+##### 4366#       发表于 2022-8-9 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990693&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-9 14:47</a>
+
+电竞选手天赋不行、心态不行，复盘再多也没用，到决赛还是一样软脚</blockquote>
+那还打什么电竞，回去参加高考不好么？
+
+*****
+
+####  walfeds  
+##### 4367#       发表于 2022-8-9 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990632&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 14:42</a>
+
+鬼佬的马西怎么画的都跟t-34一样，看完午后困意全无</blockquote>
+[https://www.reddit.com/r/dota2smut/](https://www.reddit.com/r/dota2smut/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sir, this way
+
+*****
+
+####  pikamee  
+##### 4368#       发表于 2022-8-9 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990588&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-9 14:38</a>
+
+为啥用高考类比？完全不一样吧。竞技比赛如围棋无论输赢比完了难道不都要复盘的么？ ...</blockquote>
+应该没有竞技项目大赛结束后不放假的
+
+昨晚刚输了决赛，你今天组织6点钟起床集训，你觉得会有多少训练效果<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 又不是机器人，客观规律要尊重下
+
+*****
+
+####  坚定的团子党  
+##### 4369#       发表于 2022-8-9 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990780&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-9 14:52</a>
+
+那还打什么电竞，回去参加高考不好么？</blockquote>
+亚军又不是一无所有，每人能分100万刀呢，参加高考能赚这么多？
+
