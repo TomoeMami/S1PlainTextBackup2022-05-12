@@ -7699,3 +7699,14 @@ EDに引き続き、作監で参加させて頂きました。
 小百合复工了</blockquote>
 也就休息了8天
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2264#       发表于 2022-8-9 10:25
+
+话说有懂行的坛友能说说唱片BK上写的Director，Producer，A&amp;R这些职位在日本音乐制作中起啥作用吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前楼里提到过二期动画OP里没写“音楽プロデューサー”这个职位，我去看了看一期几个插曲的BK，“Producer &amp; Director”这个职位貌似都是田村宏樹，然后二期动画OP盘没写“Producer”这个职位，田村宏樹是在“Director”那里。
+

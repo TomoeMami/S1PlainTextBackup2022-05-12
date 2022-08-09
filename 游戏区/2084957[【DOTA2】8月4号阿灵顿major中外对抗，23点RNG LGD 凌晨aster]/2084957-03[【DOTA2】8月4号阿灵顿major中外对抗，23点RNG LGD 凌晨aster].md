@@ -10621,3 +10621,92 @@ DOTA这地图两边选边没多大关系吧，应该是选边对应的先选后�
 
 Entity 是什么来头？之前几次比赛好像都没听说过
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 4289#       发表于 2022-8-9 10:23
+
+雪碧打rng这种拖后脑浆队不是一打一个准么
+
+跟vp互拼肌肉dota还有点希望
+
+*****
+
+####  walfeds  
+##### 4290#       发表于 2022-8-9 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987137&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 09:43</a>
+
+大逃杀开始了</blockquote>
+该去液体维基更新版本了，bc已经确保名额了
+
+马体据说只要败者组进一轮也能确保名额
+
+
+
+*****
+
+####  反方向的波  
+##### 4291#       发表于 2022-8-9 10:26
+
+<blockquote> 十问ame
+
+刀塔42921 分钟前  
+
+一直以来我一直在寻找一个机会，寻找一个可以让我以个人名义去问ame一些所有人都期待已久的问题，今天ame主动微博挂我，那么接下来我说的话，他就无法装作看不见了。
+
+虽然我为了证明自己有能力也有行动力，但我很可惜在lgd面前没啥争取舆论的实力，哪怕在被一再攻击后亮出了电话号和住址无济于事的情况下，终于让我找到了这个机会，现在，问问所有人都想知道的问题吧，不仅仅是AME，这些问题一部分也同时关于ruru潘婕和他背后的vpgame——罪恶的滋生之处（最近vpgame已经偷偷重启，希望本文能有所帮助）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">谭簧没工作的吗这么快就写好了小作文
+
+*****
+
+####  ArowRocher  
+##### 4292#       发表于 2022-8-9 10:27
+
+他内心很在意的
+
+*****
+
+####  很久就在那边l  
+##### 4293#       发表于 2022-8-9 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987571&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-9 10:20</a>
+Entity 是什么来头？之前几次比赛好像都没听说过</blockquote>
+第一赛季晋级s，第二赛季勉强保级，第三赛季捡到因为画z被VP踢了的pure打到第四了
+
+*****
+
+####  ArowRocher  
+##### 4294#       发表于 2022-8-9 10:28
+
+天辉地图#一点都不能改#
+
+*****
+
+####  nxmonitor  
+##### 4295#       发表于 2022-8-9 10:28
+
+RNG小组赛第五名还比较好，boom很擅长防守反击，人齐在石油杯预选赛可以打boom，现在这种随时被翻必然打不了，TS团战运营都很强，哪怕现在英雄池有点问题，RNG也很难打，所以最理想的就是和VP互相拼肌肉……
+
+*****
+
+####  walfeds  
+##### 4296#       发表于 2022-8-9 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987571&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-9 10:20</a>
+
+Entity 是什么来头？之前几次比赛好像都没听说过</blockquote>
+原天辉小兵/creepwave，送走了234到og后被赞助商签了打上欧洲s级，1跑到秘密然后请来了z字小哥pure
+
+*****
+
+####  4591  
+##### 4297#       发表于 2022-8-9 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987141&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-9 09:43</a>
+
+DOTA这地图两边选边没多大关系吧，应该是选边对应的先选后选关系比较大</blockquote>
+不是有个统计,水平越高的赛区夜魇的胜率就越高吗,CN区夜魇70%的胜率,西欧65%,东欧60%,然后南北美和东南亚就是50%...
+
