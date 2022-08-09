@@ -3524,3 +3524,24 @@ king还是把奖杯寄过去吧
 
 [https://youtu.be/ET1PItgelWQ](https://youtu.be/ET1PItgelWQ)
 
+
+
+*****
+
+####  毛头小希  
+##### 16814#       发表于 2022-8-9 15:36
+
+豆猫高中靠豆猫吉祥物和emo展开产出了超多高质量FA
+
+相对的球场英姿的FA就少很多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“怎么都没有在打棒球的”
+
+“都在玩”
+
+“不是，是都在学习”
+
+三年级全员学力满级草
+
+进甲子园的梦已经圆了，接下来就是考上东大当人生赢家了
+
