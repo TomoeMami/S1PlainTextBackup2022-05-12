@@ -11419,3 +11419,34 @@ a畜t锅的瞬间是四兄弟集火有盾的火猫并且秒了第一条命，如
 
 漏油的回到过去键都按烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Bernoulli  
+##### 4373#       发表于 2022-8-9 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990879&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-9 15:00</a>
+
+应该没有竞技项目大赛结束后不放假的
+
+昨晚刚输了决赛，你今天组织6点钟起床集训，你觉得会有多少训练效 ...</blockquote>
+训练是训练，复盘是复盘，这两者又不是一回事。下棋都是下完了马上复盘，也没耽误放假吧。
+
+*****
+
+####  阿垃垃圾历  
+##### 4374#       发表于 2022-8-9 15:25
+
+卧槽 去nga看了看 集美战斗力是真的强… 
+指东说西 g4g5的问题避不开 就把胜决g3决赛g1 2345的各种问题给你捋一遍 
+
+*****
+
+####  thistimeforlife  
+##### 4375#       发表于 2022-8-9 15:26
+
+别急<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+路副处这边不调整的话一点希望看不到
+

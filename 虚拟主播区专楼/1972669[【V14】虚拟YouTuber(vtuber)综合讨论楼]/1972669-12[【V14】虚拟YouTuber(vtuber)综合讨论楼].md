@@ -3513,3 +3513,14 @@ king还是把奖杯寄过去吧
 
 <img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h50gynwdhxj21kw11xnd6.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16813#       发表于 2022-8-9 15:28
+
+レオス監督へのイラストを描こうとサロメ嬢を誘った時の話をする樋口楓【にじさんじ甲子園/にじさんじ切り抜き】
+
+[https://youtu.be/ET1PItgelWQ](https://youtu.be/ET1PItgelWQ)
+
