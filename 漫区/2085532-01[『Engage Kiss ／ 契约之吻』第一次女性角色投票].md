@@ -695,3 +695,14 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 你对丸户老贼不够了解啊</blockquote>
 是你自以为对他了解罢了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天人五衰  
+##### 77#       发表于 2022-8-9 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995300&amp;ptid=2085532" target="_blank">D．Va 发表于 2022-8-9 20:30</a>
+是你自以为对他了解罢了</blockquote>
+有一说一，一开始就亮身份的前女友确实不做好，藏到最后才能稳赢
+
