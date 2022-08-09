@@ -4633,3 +4633,33 @@ ID Alisha.W，517,525,361
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说你咋还能升级呢 咸如萌新都早早159了
 
+
+
+*****
+
+####  exiaexa  
+##### 437#       发表于 2022-8-9 11:34
+
+ 本帖最后由 exiaexa 于 2022-8-9 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988543&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 11:30</a>
+
+1金都没  萌新给大佬的好友列表抹黑了  </blockquote>
+我现在才158，我把所有人拉满的那段时间还没开新等级上限，后面开了就没猛刷过
+
+所以我说你是秃子你还不信
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 438#       发表于 2022-8-9 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988609&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:34</a>
+
+我现在才158，我把所有人拉满的那段时间还没开新等级上限，后面开了就没猛刷过
+
+所以我说你是秃子你还不信
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能是你太咸  你看那个头像一片黑的都160了(
+

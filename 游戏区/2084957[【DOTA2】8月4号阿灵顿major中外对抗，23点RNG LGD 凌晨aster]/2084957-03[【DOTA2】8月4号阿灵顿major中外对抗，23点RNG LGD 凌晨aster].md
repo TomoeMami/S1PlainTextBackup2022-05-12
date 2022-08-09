@@ -10999,3 +10999,15 @@ yuragi和yatoro还都是二毛y字辈
 啊？龙之血第三季上线得这么快，我以为是打TI的那个月才上线呢</blockquote>
 如果不延期，现在不就是在打ti么？
 
+
+
+*****
+
+####  沈淮  
+##### 4329#         楼主| 发表于 2022-8-9 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987758&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-9 10:35</a>
+
+不是，这个我好闺蜜，我不喜欢她，今年都要是别人老婆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙，女人缘不错啊
+
