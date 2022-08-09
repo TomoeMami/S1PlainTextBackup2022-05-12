@@ -3817,3 +3817,40 @@ vp真是rng二代啊gpkcsdx老要刷新
 
 全靠dm可还行，怎么会变成这个样子.jpg
 
+
+
+*****
+
+####  Aeons  
+##### 4952#       发表于 2022-8-10 06:33
+
+伐木机和海民这把硬啊
+
+*****
+
+####  acalephs  
+##### 4953#       发表于 2022-8-10 06:34
+
+酱油天怒后期真是个坐牢英雄，打团放出一个沉默就可以死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 4954#       发表于 2022-8-10 06:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999089&amp;ptid=2084957" target="_blank">Aeons 发表于 2022-8-10 06:33</a>
+
+伐木机和海民这把硬啊</blockquote>
+可算了，要不是这海民早结束了，后半段只能说稍微偿还了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+吊毛老师倒真的是硬到飞起
+
+*****
+
+####  雅朵莉雀  
+##### 4955#       发表于 2022-8-10 06:37
+
+gpk这盘打得真的有点丑了
+
+给DM这么好的发育空间还是能硬的起来的
+
