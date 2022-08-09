@@ -4663,3 +4663,17 @@ ID Alisha.W，517,525,361
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能是你太咸  你看那个头像一片黑的都160了(
 
+
+
+*****
+
+####  rooarr  
+##### 439#       发表于 2022-8-9 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988441&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:23</a>
+
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我 ...</blockquote>
+大佬申请了，id有みらい的那个咸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
