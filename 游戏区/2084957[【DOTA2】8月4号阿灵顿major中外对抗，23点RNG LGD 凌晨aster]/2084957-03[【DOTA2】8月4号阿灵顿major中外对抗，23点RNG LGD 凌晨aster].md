@@ -10710,3 +10710,38 @@ Entity 是什么来头？之前几次比赛好像都没听说过</blockquote>
 DOTA这地图两边选边没多大关系吧，应该是选边对应的先选后选关系比较大</blockquote>
 不是有个统计,水平越高的赛区夜魇的胜率就越高吗,CN区夜魇70%的胜率,西欧65%,东欧60%,然后南北美和东南亚就是50%...
 
+
+
+*****
+
+####  43453  
+##### 4298#       发表于 2022-8-9 10:33
+
+看了下pure bzm那些18岁已经打出名堂了，国内好像没对位的选手了啊，都是老逼等着退役解说混饭吃
+
+*****
+
+####  nerugigannte  
+##### 4299#       发表于 2022-8-9 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986476&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-9 08:45</a>
+
+女主是这个吗</blockquote>
+不是，这个我好闺蜜，我不喜欢她，今年都要是别人老婆了
+
+*****
+
+####  外挂全家脚气  
+##### 4300#       发表于 2022-8-9 10:35
+
+好吧，肤浅了
+
+*****
+
+####  北条早苗  
+##### 4301#       发表于 2022-8-9 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987673&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-9 10:28</a>
+RNG小组赛第五名还比较好，boom很擅长防守反击，人齐在石油杯预选赛可以打boom，现在这种随时被翻必然打不 ...</blockquote>
+但是现在这个分组对决对rng很不利，假设fnc下来把bc锤了，液体把boom锤了，rng在败者组就必须连赢vp/ts和fnc两个对手才能确保直邀
+
