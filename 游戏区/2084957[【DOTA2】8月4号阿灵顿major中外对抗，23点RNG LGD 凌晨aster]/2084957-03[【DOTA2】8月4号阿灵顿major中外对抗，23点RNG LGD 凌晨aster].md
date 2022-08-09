@@ -12639,3 +12639,64 @@ major打完又要找工作了
 我只是想玩《上帝掷骰子吗》的梗</blockquote>
 好吧，主要是你写的这段跟杰出直播讲的一样，我在想是不是国人搬运过去的…
 
+
+
+*****
+
+####  lyjssj  
+##### 4494#       发表于 2022-8-9 17:40
+
+ 本帖最后由 lyjssj 于 2022-8-9 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992474&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-9 17:06</a>
+
+不是，集美们虽然恶心但和cndota有个毛关系，cndota顶着玩家大量流失每年综合下来能有顶级赛区的表现已经很 ...</blockquote>
+在这边的大部分都是老py玩家，眼看着西恩dota从亚军扔机场变成什么仙贝艹我什么皮套人恋爱甜甜甜，早特么黑化了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且老py年龄大了都现实的一笔，西恩dota冠了我也没奖金分还要被集美踩头，反倒是输了有超级大乐子看
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我到去年为止还能在几十年爱国教育的熏陶下为西恩队包括lgd加油欢呼，但是ti10前清算前队友，ti后假赛闹剧已经把我最后一点善念都磨灭了。
+
+说白了以nga为首的粉圈狗，自从向集体向铁拳举报cndota假赛以洗白自家哥哥开始，到底是西恩刀塔重要还是他们的饭圈偶像重要已经显而易见了，现在还要扯什么西恩dota的大旗真的没意思。直接比赛见，赢了踩头输了缩壳完事，在粉黑大战中给西恩dota撒上最后一撮土
+
+*****
+
+####  ArowRocher  
+##### 4495#       发表于 2022-8-9 17:40
+
+完美C是去年互联网那个？ 那不如看CDEC的项羽，好像之前有人找到他以前的发帖说要去打职业，现在都进S级了。
+
+*****
+
+####  Cantha  
+##### 4496#       发表于 2022-8-9 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">其实我一直觉得就是因为以前经常鳖长时间局，冰蛤蟆出个改变局势的道具让你们赶紧结束痛苦
+
+*****
+
+####  Arhjoy  
+##### 4497#       发表于 2022-8-9 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992925&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-9 17:36</a>
+但是5级装备确实是很看脸啊
+
+机械之心和冥灵书的战力转化成经济，一件装备直接甩开2W都算保守估计了 ...</blockquote>
+其实我觉着是帮优势方终结比赛，一般这种局劣势方都被打的下不了高地。之前好像见过大哥开雾出去打五级道具的…rng优势不会压制啊，被翻也不能怪别人
+
+*****
+
+####  ArowRocher  
+##### 4498#       发表于 2022-8-9 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992978&amp;ptid=2084957" target="_blank">Arhjoy 发表于 2022-8-9 17:39</a>
+
+好吧，主要是你写的这段跟杰出直播讲的一样，我在想是不是国人搬运过去的… ...</blockquote>
+不是的，只有第一段那句是红迪的内容
+
+*****
+
+####  很久就在那边l  
+##### 4499#       发表于 2022-8-9 17:50
+
+光说五级装备不平衡一到四级也不平衡啊，随机给就是扯淡，有些英雄拿到合适的中立装备体验提高很多
+
