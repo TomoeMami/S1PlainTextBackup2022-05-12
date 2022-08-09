@@ -4976,3 +4976,12 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 这些礼装如果能给的对应加成那还有点意思，这么多年了，还是纯收藏说实话还不如网上直接看卡图，甚至关服了也不会消失，游戏里还占空间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 464#       发表于 2022-8-9 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我都当狗粮给喂了 毕竟毫无屁用
+

@@ -179,3 +179,49 @@ CNDOTA早就完了，年年都是一帮老比排列组合。TI看个乐子得了
 
 ----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  12481632  
+##### 4521#       发表于 2022-8-9 19:20
+
+你楼白天kpi真的有点高了，是不是都辞职了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 4522#       发表于 2022-8-9 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994176&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-9 19:07</a>
+我他妈草了 几个撸狗同事在那dota2都是假赛</blockquote>
+集美的狠活，就问你服了没？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  woyzeck  
+##### 4523#       发表于 2022-8-9 19:26
+
+猪仔现在打路人尤其是低分路人真是和nm宰猪一样，魔晶+20级天赋，跳刀电锤冰眼，只要会跳刀人身边开转就行。没保命道具的话这一个转下去2345都能杀
+
+*****
+
+####  nightmare902015  
+##### 4524#       发表于 2022-8-9 19:27
+
+所以假赛集美是真的纯nt，雅得利大师赛后我在nga问这次明鞭带着海洋之心一样碾压夺冠，之前抓着中立道具说明鞭铁假赛的蠢逼出来说几句？一个回复都没有。
+
+*****
+
+####  woyzeck  
+##### 4525#       发表于 2022-8-9 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994383&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-9 19:23</a>
+
+集美的狠活，就问你服了没？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不都是mxo搞得假赛论？我们集美是无辜的。
+
