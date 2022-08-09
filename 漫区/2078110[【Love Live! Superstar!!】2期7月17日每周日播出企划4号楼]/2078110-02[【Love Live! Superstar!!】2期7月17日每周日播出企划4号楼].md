@@ -7797,3 +7797,13 @@ EDに引き続き、作監で参加させて頂きました。
 
 建议可可直接飞回家，让其他人到上海来追<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2273#       发表于 2022-8-9 14:39
+
+不说服可可的家人，谁追飞机都没用啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+建议堇偷偷解锁可可的手机添加可姐的line ，联合起来将可父母骗过去battle，再不行就把团里其他人拉上人多欺负人少威逼可父母屈服<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

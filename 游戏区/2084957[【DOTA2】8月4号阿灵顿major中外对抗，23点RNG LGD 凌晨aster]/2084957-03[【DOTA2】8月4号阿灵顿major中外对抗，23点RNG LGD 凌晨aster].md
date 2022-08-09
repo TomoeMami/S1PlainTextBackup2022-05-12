@@ -11298,3 +11298,26 @@ a畜t锅的瞬间是四兄弟集火有盾的火猫并且秒了第一条命，如
 
 想到个事，俄罗斯现在这样，真世界还能出来嘛？
 
+
+
+*****
+
+####  acalephs  
+##### 4361#       发表于 2022-8-9 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990437&amp;ptid=2084957" target="_blank">迷途lite 发表于 2022-8-8 22:23</a>
+明天呢，按进度明天是不是ti6了</blockquote>
+快进到TI3
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Bernoulli  
+##### 4362#       发表于 2022-8-9 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990357&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-9 14:15</a>
+
+为啥要开会啊，高考失利了难道不是应该先放松一下心情玩一两个月，然后从头开始复习么，琢磨自己当时啥题 ...</blockquote>
+为啥用高考类比？完全不一样吧。竞技比赛如围棋无论输赢比完了难道不都要复盘的么？
+
