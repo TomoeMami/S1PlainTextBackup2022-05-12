@@ -2553,3 +2553,81 @@ Boom这队战术纪律性还是不错的，看着也没那么脑浆。
 
 东南亚天才小哑巴是这样的，rng还真有沟通问题。
 
+
+
+*****
+
+####  名字不乱取  
+##### 4789#       发表于 2022-8-10 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998046&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 00:21</a>
+
+草</blockquote>
+如果是真的，那就证明小天使没有双核同声传译，可以埋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 4790#       发表于 2022-8-10 00:23
+
+拍拍出个三十不是专打美杜莎
+
+*****
+
+####  nxmonitor  
+##### 4791#       发表于 2022-8-10 00:23
+
+其实电魂拿A杖盾是最好上高的，比TB要安全多了，至少塔很容易掉……
+
+*****
+
+####  逃离二次元  
+##### 4792#       发表于 2022-8-10 00:23
+
+削陈的话ngm和秘密宰畜的可能性就要降到冰点了
+
+*****
+
+####  白野苍衣  
+##### 4793#       发表于 2022-8-10 00:26
+
+睡了睡了  起来喝早茶
+
+*****
+
+####  walfeds  
+##### 4794#       发表于 2022-8-10 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998046&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 00:21</a>
+
+草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？冠晴和ana无语凝噎是吧
+
+*****
+
+####  名字不乱取  
+##### 4795#       发表于 2022-8-10 00:26
+
+小胖子刚才是在切屏？
+
+*****
+
+####  我爱撩菜  
+##### 4796#       发表于 2022-8-10 00:28
+
+2打1被反杀一个还TP走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 4797#       发表于 2022-8-10 00:28
+
+这船长？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 赵云们超进化了我擦
+
+*****
+
+####  walfeds  
+##### 4798#       发表于 2022-8-10 00:31
+
+boom战术素养确实可以，但手活真有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
