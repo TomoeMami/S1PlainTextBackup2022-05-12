@@ -12041,3 +12041,189 @@ XG再宰lgd很难了。鳖茶相对来说还有点希望但是不大。 ...</blo
 
 我的信条是永远不要相信杜鹏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  北条早苗  
+##### 4430#       发表于 2022-8-9 16:51
+
+茶也没有希望，杜鹏初代水人反向波，现在也是个脑浆，曾焦阳ti习惯性尿裤
+
+*****
+
+####  百世诸侯  
+##### 4431#       发表于 2022-8-9 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">求求了，来个超进化外卡队吧，青茶CDEC能不能透支一下
+
+*****
+
+####  外挂全家脚气  
+##### 4432#       发表于 2022-8-9 16:51
+
+ 本帖最后由 外挂全家脚气 于 2022-8-9 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991988&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-9 16:33</a>
+
+你楼哪个外挂脚气不就是这套吗</blockquote>
+嗯？我什么时候喷过MAYBE？
+
+*****
+
+####  ArowRocher  
+##### 4433#       发表于 2022-8-9 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992227&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 16:51</a>
+求求了，来个超进化外卡队吧，青茶CDEC能不能透支一下</blockquote>
+7e在CDEC
+
+*****
+
+####  BallanceHZ  
+##### 4434#       发表于 2022-8-9 16:52
+
+ 本帖最后由 BallanceHZ 于 2022-8-9 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992194&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-9 16:48</a>
+
+那只能看看鳖茶了。
+
+XG再宰lgd很难了。鳖茶相对来说还有点希望但是不大。 ...</blockquote>
+
+monet回家局的脑浆程度算了吧，只能说ame整活舞台太大吸走了关注<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或者说monet压根撑不到决赛日就倒了
+
+*****
+
+####  尸体鲨  
+##### 4435#       发表于 2022-8-9 16:54
+
+ 本帖最后由 尸体鲨 于 2022-8-9 16:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992228&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-9 16:51</a>
+嗯？我什么时候喷过MAYBE？</blockquote>
+赶紧表演一套新的证明一下自己
+喷了也没关系，昨天他已经被喷了好几页了，他黑皮泰迪玩得稀烂还想拥有免喷权不成
+
+*****
+
+####  蛭人  
+##### 4436#       发表于 2022-8-9 16:54
+
+西恩刀塔早就亡了，就这舆论环境，出过ti假赛论，史上最弱智认知的赛区，还想有好队伍？建议选择一个喜欢的队伍支持吧。
+
+*****
+
+####  UnhappyTails  
+##### 4437#       发表于 2022-8-9 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992247&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-9 16:52</a>
+monet回家局的脑浆程度算了吧，只能说ame整活舞台太大吸走了关注，或者说monet压根撑不到决赛日就 ...</blockquote>
+杜鹏不就是小ame<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AIDSL  
+##### 4438#       发表于 2022-8-9 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992026&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 16:36</a>
+
+另外点金电锤jugg到底好玩吗，我看比赛天天有人玩，就靠20级天赋魔晶转死比赛？ ...</blockquote>
+超哥玩光法不就是被Jugg出个跳刀魔晶黏上直接转死吗
+
+*****
+
+####  蛭人  
+##### 4439#       发表于 2022-8-9 16:55
+
+杜鹏凭什么小ame，一代水人波高目，至少得是ame的前辈吧。
+
+*****
+
+####  iriyano  
+##### 4440#       发表于 2022-8-9 16:55
+
+现在的rng已经和去年的🐘一个味儿了
+
+
+
+*****
+
+####  外挂全家脚气  
+##### 4441#       发表于 2022-8-9 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992265&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 16:54</a>
+
+赶紧表演一套新的证明一下自己
+
+喷了也没关系，昨天他已经被喷了好几页了，他黑皮泰迪玩得稀烂还想拥有免 ...</blockquote>
+我一直以来就是看热闹的，谁有亮眼发挥就吹一下，打得不好我就提一嘴，当然有人被伤害过觉得某人亮眼也不能吹那我也可以理解，至于对谁抱希望就算了，当然能拿盾那自然还是好的。
+
+<strong>欢迎翻旧账</strong>
+
+*****
+
+####  ArowRocher  
+##### 4442#       发表于 2022-8-9 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992175&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:47</a>
+我承认我每年都希望有队站出来胜过lgd，去年我是如此支持ig（当然ig作为一支年轻队表现并不算差，只可惜 ...</blockquote>
+不管怎么说吧，听你说你在梅奔现场，我觉得那是真的难受
+
+*****
+
+####  UnhappyTails  
+##### 4443#       发表于 2022-8-9 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992294&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-9 16:55</a>
+现在的rng已经和去年的🐘一个味儿了</blockquote>
+那还是象更恶心点
+
+现在卡猴态度至少比god好太多了，鬼虽然操作不如油面，但我本身就极不喜欢油面
+
+去年我纯纯没支持过一天象，这打枪队我巴不得他解散
+
+*****
+
+####  usoda  
+##### 4444#       发表于 2022-8-9 16:59
+
+现在的RNG没什么讨论价值 队伍都不是完整的 还是看看回头预选的表现再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 4445#         楼主| 发表于 2022-8-9 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992228&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-9 16:51</a>
+
+嗯？我什么时候喷过MAYBE？</blockquote>
+奥，记错了不是你，但是前两天看到过这样的言论
+
+*****
+
+####  尸体鲨  
+##### 4446#       发表于 2022-8-9 17:01
+
+冤枉好人笑死
+
+*****
+
+####  赤尸藏人  
+##### 4447#       发表于 2022-8-9 17:01
+
+<img src="https://img.saraba1st.com/forum/202208/09/165554zgclqzkycykcprcp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (251.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 16:55 上传
+
+*****
+
+####  沈淮  
+##### 4448#         楼主| 发表于 2022-8-9 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992061&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 16:39</a>
+
+我真的吐了。</blockquote>
+这个鳖孙真的是司马，以前在ig当官博的时候天天舔鳖壳
+
