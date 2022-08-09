@@ -11497,3 +11497,12 @@ Aster能不能突破一次还不好说，当然是希望可以突破上限的。
 
 LGD能不能夺冠就看会不会犯病四保一保个AME，换个角度思考或者三保一保猴爹或者鞭酱会不会更好？ <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弈秋  
+##### 4381#       发表于 2022-8-9 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天第一局脑浆到爆，我还没缓过来
+
