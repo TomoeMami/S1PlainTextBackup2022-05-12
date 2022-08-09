@@ -11094,3 +11094,28 @@ atf有纪录片加持，还是指望ceb教会他三号位该干啥吧。
 不是有那个牛仔对决小游戏吗？看一下就知道了啊，这年头连「你好」都说不利索的人，我倾向于完全不会中文 ...</blockquote>
 那句不是中文是在模仿牛仔吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 4339#       发表于 2022-8-9 12:13
+
+上帝以前打国服还能打字对骂的
+
+*****
+
+####  哈萨维·诺亚  
+##### 4340#       发表于 2022-8-9 12:15
+
+我记得是打拼音
+
+*****
+
+####  夏溪澪mio  
+##### 4341#       发表于 2022-8-9 12:18
+
+茶队打东南亚队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有梗的呀
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
