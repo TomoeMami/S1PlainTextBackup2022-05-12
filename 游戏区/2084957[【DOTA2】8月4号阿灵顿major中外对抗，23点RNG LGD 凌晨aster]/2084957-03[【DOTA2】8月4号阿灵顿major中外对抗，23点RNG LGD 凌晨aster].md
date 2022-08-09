@@ -10254,3 +10254,122 @@ rng如果要前四，他们需要打败哪些对手
 为啥杰➗现在还不能去主舞台上班啊，纯白能量有那么大吗，自己都G了还有人能管得住杰出？ ...</blockquote>
 记住，是永远！
 
+
+
+*****
+
+####  莉拉厨  
+##### 4246#       发表于 2022-8-9 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986826&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-9 09:17</a>
+
+上liquidpedia看到了
+
+哇塞，九死一生</blockquote>
+这一关是最难的，下一关是茶队/Fnc/bc三选一，反而没这关难，过两关就直邀了
+
+*****
+
+####  百世诸侯  
+##### 4247#       发表于 2022-8-9 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986820&amp;ptid=2084957" target="_blank">不应 发表于 2022-8-9 09:16</a>
+
+rng如果要前四，他们需要打败哪些对手</blockquote>
+VP和TS的败者，Aster和Fnatic的败者（谁掉下来应该都打得过BC），胜者组第二轮上半区的败者（目测应该是LGD/OG二选一）
+
+*****
+
+####  掉头学姐  
+##### 4248#       发表于 2022-8-9 09:24
+
+杰出正经解说很僵硬的，不过今年a处流量再蹭点说不定能上
+
+ps讨论超哥的话，超哥最后能指望的就是ti觉醒光环了，每年ti时期有波小觉醒
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4249#       发表于 2022-8-9 09:24
+
+上帝就是个雇佣兵，打完major就跑了，留在rng除了折磨自己能得到啥
+
+*****
+
+####  百世诸侯  
+##### 4250#       发表于 2022-8-9 09:26
+
+RNG昨天第二把赢的太恶心了，液体也是现在抢分的关键队伍，抬了液体一手Aster也要骂娘了
+
+*****
+
+####  不应  
+##### 4251#       发表于 2022-8-9 09:27
+
+还是打雪碧，雪碧的话脑东京脑浆两把，rng还能赢，毕竟石油杯赢过一把，和vp打互相比肌肉不是被打烂。
+
+*****
+
+####  syndrome2032  
+##### 4252#       发表于 2022-8-9 09:28
+
+上帝在sea继续混多半是找不到队去ti的。
+
+*****
+
+####  chilno  
+##### 4253#       发表于 2022-8-9 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986912&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-9 09:24</a>
+
+杰出正经解说很僵硬的，不过今年a处流量再蹭点说不定能上
+
+ps讨论超哥的话，超哥最后能指望的就是ti觉醒光 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">杰出可以解说决赛再来一次爸我难受嘛
+
+你看那年冰冰落泪吹了好多年
+
+*****
+
+####  syndrome2032  
+##### 4254#       发表于 2022-8-9 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986912&amp;ptid=2084957" target="_blank">掉头学姐 发表于 2022-8-9 09:24</a>
+杰出正经解说很僵硬的，不过今年a处流量再蹭点说不定能上
+
+ps讨论超哥的话，超哥最后能指望的就是ti觉醒光 ...</blockquote>
+难。主舞台人太多了，不缺他这个。
+
+*****
+
+####  ArowRocher  
+##### 4255#       发表于 2022-8-9 09:29
+
+可能还有漏油不知道，后天龙之血第三季上线了
+
+*****
+
+####  JoelBirch  
+##### 4256#       发表于 2022-8-9 09:29
+
+杰出连口条都过不了关，还是算逑了吧
+
+*****
+
+####  dclara1  
+##### 4257#       发表于 2022-8-9 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986869&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-9 09:20</a>
+
+为啥杰➗现在还不能去主舞台上班啊，纯白能量有那么大吗，自己都G了还有人能管得住杰出？ ...</blockquote>
+混sg的上台面不是有谭雅做例子了吗。敢上去就是两边得罪，一边骂你唯唯诺诺不敢当面喷粪，另一边翻你sg发言黑历史切割你 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+杰畜经营好他那生态位就差不多了
+
+*****
+
+####  百世诸侯  
+##### 4258#       发表于 2022-8-9 09:30
+
+啊？龙之血第三季上线得这么快，我以为是打TI的那个月才上线呢
+
