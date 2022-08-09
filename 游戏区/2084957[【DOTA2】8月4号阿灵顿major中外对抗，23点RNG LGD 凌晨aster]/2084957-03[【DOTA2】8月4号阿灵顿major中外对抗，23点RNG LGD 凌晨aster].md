@@ -11229,3 +11229,56 @@ a畜20年改一闪飞燕线劣自己扛各种id阴阳队友的出生，能觉得
 
 绷，太监论坛怎么还说ti8的处长tb没人救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">岁月史书差不多得了，阴影t锅下来几秒钟就死了，含畜量是a厨昨天的tb能比的吗
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 4353#       发表于 2022-8-9 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990230&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-9 14:02</a>
+
+绷，太监论坛怎么还说ti8的处长tb没人救岁月史书差不多得了，阴影t锅下来几秒钟就死了，含畜量是a厨 ...</blockquote>
+真没人救搞不好还赢了，他死了还要骗个沉默大<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lamapocos  
+##### 4354#       发表于 2022-8-9 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">量子鞭现在这么猛，ti11的时候会不会快进到偿还模式，到时候被集美喷退役啊
+
+*****
+
+####  tontyoutoure  
+##### 4355#       发表于 2022-8-9 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56990219&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-9 14:01</a>
+
+以前怀疑仙贝在开ti的会的时候，也会发现自己畜生行为，以后就掩耳盗铃，假装看不见，没发生过。现在越发觉 ...</blockquote>
+为啥要开会啊，高考失利了难道不是应该先放松一下心情玩一两个月，然后从头开始复习么，琢磨自己当时啥题没做上来有啥意义啊。
+
+*****
+
+####  nowaki  
+##### 4356#       发表于 2022-8-9 14:18
+
+a畜t锅的瞬间是四兄弟集火有盾的火猫并且秒了第一条命，如果tb t的位置正常点，晚一秒tp甚至不tp，火猫盾起来吃沉默大四兄弟也把带盾火猫秒了，a畜选择了唯一输的方法和时机。
+
+*****
+
+####  nerugigannte  
+##### 4357#       发表于 2022-8-9 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989714&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-9 13:06</a>
+
+意思是你还挺期待掀背夺冠然后破处的是吧</blockquote>
+妹手软怎么会主动呢，我就是赌掀背拿不到盾，相信掀背！
+
+*****
+
+####  战狼PTSD  
+##### 4358#       发表于 2022-8-9 14:21
+
+昨晚TI10，现在TI8是吧
+
