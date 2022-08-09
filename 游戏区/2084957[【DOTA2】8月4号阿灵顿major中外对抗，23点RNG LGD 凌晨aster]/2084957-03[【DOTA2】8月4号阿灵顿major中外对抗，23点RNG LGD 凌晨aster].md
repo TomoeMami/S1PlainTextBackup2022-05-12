@@ -11506,3 +11506,55 @@ LGD能不能夺冠就看会不会犯病四保一保个AME，换个角度思考�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天第一局脑浆到爆，我还没缓过来
 
+
+
+*****
+
+####  UnhappyTails  
+##### 4382#       发表于 2022-8-9 16:04
+
+不是兄弟们真的不关注谭雅吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谭雅从ti8开始就是魔怔a黑了，去年更是animajor以后坚持不看好a/的少数互联网自媒体之一（可以看新加坡major以后的吹ig长文，还有ti展望贴）
+
+不过决赛日前一天大圣打秘密翻盘后投降了才写了长文罢了，你要说小丑确实是小丑，不过反正去年决赛前国内大部分包括sg的云玩家连崩溃哥何许人也都不晓得，所以真要拉清单那当时说过lgd好话的人可太多了
+
+这波也只不过是谭雅以sg的下水道标准恶心人一把罢了，只是没想到王处直接挂出来了，只能说王处这几天确实是扬眉吐气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4383#       发表于 2022-8-9 16:05
+
+ana的上限肯定是比鬼高，但他是一个来临时救场没沟通没经过磨合的人，这major既看不出ana找到队后能走多远，也看不出全阵RNG能干翻全阵的A组的谁，但现在我觉得离订机票回国不远了。
+
+*****
+
+####  天堂蜘蛛  
+##### 4384#       发表于 2022-8-9 16:06
+
+抛开被线杀两次不谈，霉畜昨天第一把确实没啥大锅吧
+
+开团脱节属于RNG的痼疾了，puck团战基本也算打出该有的作用，而且中间还救了波大的
+
+当然出装方面其实后期可以针对如何处理钢背这个点优化一下，不过都不是什么大问题了
+
+*****
+
+####  百世诸侯  
+##### 4385#       发表于 2022-8-9 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991584&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:04</a>
+
+不是兄弟们真的不关注谭雅吧谭雅从ti8开始就是魔怔a黑了，去年更是animajor以后坚持不看好a/的少数 ...</blockquote>
+就早跪了那么一天，结果就身败名裂了，替谭雅卜值<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 4386#       发表于 2022-8-9 16:09
+
+昨天上帝的TB前期打得非常好，当然卡猴也功不可没
+
+就是中后期明显融入团队了，他要是硬着头皮只上高拆塔破路也没人按着他的手推上去
+
+25级加点不加换血也属于犯了大罪
+
