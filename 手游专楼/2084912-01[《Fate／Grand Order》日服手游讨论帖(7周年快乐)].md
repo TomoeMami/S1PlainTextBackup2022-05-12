@@ -5061,3 +5061,51 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 说到卡面 公主卡面拉成x了 怎么没人喷啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">社长一年比一年拉 还不如直接把以前格斗里的地球姬直接复制粘贴过来算了
 
+
+
+*****
+
+####  alucardcz  
+##### 472#       发表于 2022-8-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996040&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-9 21:27</a>
+
+社长一年比一年拉 还不如直接把以前格斗里的地球姬直接复制粘贴过来算了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3破拉了就拉了 想着用0破算了。。。结果这0破红的瞎眼
+
+*****
+
+####  qixinno2  
+##### 473#       发表于 2022-8-9 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">隔壁去掉了那粉色瞬间舒服了不少
+
+<img src="https://img.saraba1st.com/forum/202208/09/213555y1nkhpjefnvzehez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 21:35 上传
+
+*****
+
+####  alucardcz  
+##### 474#       发表于 2022-8-9 21:38
+
+ 本帖最后由 alucardcz 于 2022-8-9 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996151&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-9 21:36</a>
+
+隔壁去掉了那粉色瞬间舒服了不少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这颜色在配队界面实在太瞎眼了  他们做完就没用过吗（
+
+*****
+
+####  qixinno2  
+##### 475#       发表于 2022-8-9 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996168&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 21:38</a>
+
+这颜色在配队界面实在太瞎眼了  他们做完就没用过吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟自选可以选特斯拉 BB能120 
+

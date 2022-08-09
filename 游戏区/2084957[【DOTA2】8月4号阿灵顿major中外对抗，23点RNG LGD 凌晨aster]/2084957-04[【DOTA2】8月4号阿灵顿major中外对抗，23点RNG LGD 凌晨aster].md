@@ -847,3 +847,61 @@ ceb的新闻下面一片骂可以理解，没尾巴的 ...</blockquote>
 
 不过还是OG太狠了，在ti8这个偶数年份干死了最强硬实力mxolxo结合体，又在ti9来一波帽子戏法，也无外乎都ti11了还有集美洗ti89的，简直就是一生之中最大的敌人。
 
+
+
+*****
+
+####  nowaki  
+##### 4587#       发表于 2022-8-9 21:33
+
+集美洗ti89纯粹是四个队友现在都彻底不行了，去年ti89还是当a畜黑历史的，问就是他从来没有这么稳过，稳的像失去了什么。
+
+*****
+
+####  蛭人  
+##### 4588#       发表于 2022-8-9 21:35
+
+为什么总有集美反串？
+
+<img src="https://img.saraba1st.com/forum/202208/09/213539p7qlsv7kvz0vjsks.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 21:35 上传
+
+*****
+
+####  蛭人  
+##### 4589#       发表于 2022-8-9 21:37
+
+另外，八王还是牛逼。
+
+<img src="https://img.saraba1st.com/forum/202208/09/213702w6sa7r395s9spcw5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 21:37 上传
+
+*****
+
+####  Litccc  
+##### 4590#       发表于 2022-8-9 21:37
+
+三冠王a醋的粉丝
+
+
+
+*****
+
+####  名字不乱取  
+##### 4591#       发表于 2022-8-9 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996160&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 21:37</a>
+
+另外，八王还是牛逼。</blockquote>
+我的天，下面8回来了，我直接化身假赛集美开始拷打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

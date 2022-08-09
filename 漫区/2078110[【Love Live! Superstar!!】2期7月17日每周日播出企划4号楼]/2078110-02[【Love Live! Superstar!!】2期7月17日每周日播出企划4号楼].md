@@ -8039,3 +8039,31 @@ OP初动13762
 
 说点可能不太对的，现在这个剧情是谁写的多谁崩的多，香音是这样的，可可因为可堇打包等等方面也差不太多，第4集希奈子和小千也能整一俩句“高血压”台词，不得不佩服这导演和编剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2295#       发表于 2022-8-9 21:36
+
+第4话N站好评率
+
+<img src="https://img.saraba1st.com/forum/202208/09/213607x71em2bb7778v9ap.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DF27C8F9-5F7B-43E9-8268-7DA119A7D2A7.jpeg</strong> (94.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-9 21:36 上传
+
+*****
+
+####  沙茶酱  
+##### 2296#       发表于 2022-8-9 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996147&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-9 21:36</a>
+
+第4话N站好评率</blockquote>
+从分数一下子上涨这么多可以看出，其实更多人对星团动画是恨铁不成钢，但凡好起来，都是第一时间给予肯定
+
