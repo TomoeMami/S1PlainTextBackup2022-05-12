@@ -3538,3 +3538,35 @@ A杖银月是什么特别套路吗</blockquote>
 你提前三分钟预测成功
 <img src="https://p.sda1.dev/6/1e3af8feb53620d136f910f0a42e4e41/CMP_20220810012052527.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无聊的神  
+##### 4918#       发表于 2022-8-10 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998046&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 00:21</a>
+
+草</blockquote>
+哇意思7月底官宣ana替补到昨天打完，10多天都没磨合出简单的说话呗。。。我真的惊了。。难顶..这怎么打VP雪碧啊。。
+
+*****
+
+####  nightmare902015  
+##### 4919#       发表于 2022-8-10 01:25
+
+其实nts的船长我一直觉得技能释放挺差的，中期开始就很欠细节，但在非高压对局下够用了。
+
+*****
+
+####  山上徹也  
+##### 4920#       发表于 2022-8-10 01:30
+
+<img src="https://img.saraba1st.com/forum/202208/10/013053v47r3nfnnk7af2zn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 01:30 上传
+
