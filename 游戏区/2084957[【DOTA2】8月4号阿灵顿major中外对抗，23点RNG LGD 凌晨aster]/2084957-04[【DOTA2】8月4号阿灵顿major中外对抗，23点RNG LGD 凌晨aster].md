@@ -1161,3 +1161,95 @@ B站这几个切片号有谁不是集美的，哦，准确说来，这几位才�
 
 这推流搞毛啊，那么糊，斗鱼批站都切了还是不行
 
+
+
+*****
+
+####  ArowRocher  
+##### 4617#       发表于 2022-8-9 22:54
+
+不知道会不会出现茶冠军了但是网上看不到切片的场面<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4618#       发表于 2022-8-9 22:56
+
+蓝猫胜率90%<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">还得刀是吧，玩猫的也太发大力了
+
+*****
+
+####  nowaki  
+##### 4619#       发表于 2022-8-9 22:56
+
+国内的切片视频号最早就是倒搬油管啊 看得人少，哪有吹a畜集美爱看爱付费
+
+*****
+
+####  逃离二次元  
+##### 4620#       发表于 2022-8-9 22:57
+
+茶拿冠军的概率不超过两成，不在水厂计算范围之内
+
+
+
+*****
+
+####  蛭人  
+##### 4621#       发表于 2022-8-9 22:58
+
+[https://www.bilibili.com/video/BV1La411P7YC](https://www.bilibili.com/video/BV1La411P7YC)
+
+*****
+
+####  修罗王  
+##### 4622#       发表于 2022-8-9 22:58
+
+国内自切从1617年才稍微多起来，而且大多没啥流量
+
+*****
+
+####  吃货红毛  
+##### 4623#       发表于 2022-8-9 22:58
+
+ 本帖最后由 吃货红毛 于 2022-8-9 23:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">淘汰赛可算开始了 终于有线下了 看着时间LGD一把直接睡觉起床吃早饭品茶 美滋滋
+
+艹大鞭哥真的没翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 4624#       发表于 2022-8-9 22:59
+
+已经完全独立接受英语采访了，🐮
+
+*****
+
+####  ArowRocher  
+##### 4625#       发表于 2022-8-9 22:59
+
+这斗鱼怎么音画不同步的
+
+*****
+
+####  反方向的波  
+##### 4626#       发表于 2022-8-9 23:01
+
+<img src="https://p.sda1.dev/6/7eab7251249e739919a4ec2ab3b355e7/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">完美司马
+
+*****
+
+####  战狼PTSD  
+##### 4627#       发表于 2022-8-9 23:01
+
+我这边严重音画不同步，吐了
+
+*****
+
+####  walfeds  
+##### 4628#       发表于 2022-8-9 23:02
+
+我看批站好像还行
+
