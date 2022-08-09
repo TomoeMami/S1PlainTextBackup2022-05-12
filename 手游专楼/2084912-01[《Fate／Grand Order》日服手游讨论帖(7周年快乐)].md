@@ -4701,3 +4701,17 @@ ID Alisha.W，517,525,361
 起码让我 ...</blockquote>
 抱个大腿，id叫遠野あき（听到大佬们的讨论，156级的萌新瑟瑟发抖
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 442#       发表于 2022-8-9 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988441&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:23</a>
+
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新申请大佬了，IDウテナ
+
