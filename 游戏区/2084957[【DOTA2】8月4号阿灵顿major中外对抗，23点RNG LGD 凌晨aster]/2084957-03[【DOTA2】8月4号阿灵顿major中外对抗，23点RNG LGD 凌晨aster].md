@@ -12415,3 +12415,110 @@ LGD今年要是真夺冠 楼里的各位一个跑不掉</blockquote>
 
 第一点决定了复盘价值不高，第二点决定了大赛结束后必然会进入一段倦怠/休息期。
 
+
+
+*****
+
+####  聚散浮云  
+##### 4468#       发表于 2022-8-9 17:20
+
+没啥吧，就客观评价呗，要是他萧瑟真的能证明自己那吹也无可厚非啊，别想着岁月史书给过去翻案就行
+
+*****
+
+####  a1370303  
+##### 4469#       发表于 2022-8-9 17:22
+
+又到每年发大水的时期了吗，缩壳缩壳<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 4470#       发表于 2022-8-9 17:23
+
+跳刀杀ma的选手也要吹，不予置评，我寻思OG发个轮盘抢了LGD冠军，被粉丝打成嗑药、qiangjian犯，这样的队伍赢了也配吹？
+
+
+
+*****
+
+####  walfeds  
+##### 4471#       发表于 2022-8-9 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一个op从来没有投降的选项好吧，永记永
+
+*****
+
+####  ArowRocher  
+##### 4472#       发表于 2022-8-9 17:24
+
+ 本帖最后由 ArowRocher 于 2022-8-9 17:27 编辑 
+
+红迪也有讨论t5中立平衡问题的，二楼直接噎回去rng输的原因是rng。
+五级中立出山本就有那么点冰蛙暴力调停纷争的味道，都别打了roll大小定输赢。不管是人品还是理解差距都会快速终结游戏。
+上帝真的掷骰子了，输了。
+
+*****
+
+####  遍体精淋af  
+##### 4473#       发表于 2022-8-9 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992708&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-9 17:20</a>
+没啥吧，就客观评价呗，要是他萧瑟真的能证明自己那吹也无可厚非啊，别想着岁月史书给过去翻案就行 ...</blockquote>
+醒醒，要是处长真的夺冠，能翻案一直翻到ti7<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候舆论就是集美的天下了
+
+*****
+
+####  天堂蜘蛛  
+##### 4474#       发表于 2022-8-9 17:26
+
+然而五级中立装备的平衡问题两年来一直在被反复修改，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要我说我也觉得五级装备做的imba点挺好
+
+*****
+
+####  逃离二次元  
+##### 4475#       发表于 2022-8-9 17:27
+
+处长要是夺了冠，cndota也就dead了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4476#       发表于 2022-8-9 17:28
+
+不会的，真有那么一天也会被提醒还欠西恩观众两个盾和一个ti9亚军
+
+*****
+
+####  阿垃垃圾历  
+##### 4477#       发表于 2022-8-9 17:29
+
+反正ti就只有两个月了 到底鹿死谁手2个月后见分晓   夺冠了那就看洪水泛滥呗   要是又有点表演出来 不知道集美自己还能不能继续给自己** 
+
+   
+
+*****
+
+####  Arhjoy  
+##### 4478#       发表于 2022-8-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992754&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 17:24</a>
+红迪也有讨论t5中立平衡问题的，二楼直接噎回去rng输的原因是rng。
+五级中立出山本就有那么点冰蛙暴力调停 ...</blockquote>
+掷骰子不是昨天杰畜说的么
+
+*****
+
+####  雅朵莉雀  
+##### 4479#       发表于 2022-8-9 17:30
+
+哪来的夺冠就回流，靠什么回流，路人场次不到2000万盘？东南亚的一半不到？
+
+现在的西恩doto土壤能出几支强队已经是过去的遗产和余晖了，现在在线人数有没有毛区三分之一？
+
+如果真如传言所说ame和bian今年要退役的话，你们会看到西恩被茶队和鳖孙统治的现实
+

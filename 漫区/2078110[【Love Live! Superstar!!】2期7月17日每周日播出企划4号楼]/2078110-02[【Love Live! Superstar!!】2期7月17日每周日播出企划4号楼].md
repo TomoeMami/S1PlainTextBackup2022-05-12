@@ -7895,3 +7895,37 @@ OP初动13762
 
 看来日本这波很严重
 
+
+
+*****
+
+####  1096beam  
+##### 2284#       发表于 2022-8-9 17:21
+
+可可现在每集必定说一句中文，必定和堇拌嘴，凹设定样板戏凹得太难看了
+
+*****
+
+####  player3960  
+##### 2285#       发表于 2022-8-9 17:21
+
+想看条活鱼怎么这么难啊，鲤鱼要不你更个抖音吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 2286#       发表于 2022-8-9 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去一趟上海出个OVA甚至剧场版吧
+
+*****
+
+####  ViyViy  
+##### 2287#       发表于 2022-8-9 17:22
+
+原来花田在第五层，我前面狂给香音戏码，到最后可可回没有香音首先就会有高基础分，他真的，泪目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+其实一直有个问题：父母同意可可只身留学还搞在他们眼里及其不务正业的偶像活动的理由是什么？
+
+我曾经想过可可为什么可以“顺利”来到日本的一个框架：可可姐姐曾经也有过类似的想法，但是被父母制止，进入社会后有能力有话语权了，看着妹妹勇敢的和父母提出了要求，如同曾经的自己，不想让她和自己有一样的遗憾（还没开始就被迫结束）决定主动支持和劝说，同时父母多年以后也对当初阻止姐姐这件事有些想法，共同作用下最后促成了现在的结果。个人拙见，这种情况如果回国的时候是最好劝的，本身家人就都是豆腐一块了，更别说还有姐姐当”内鬼“里应外合，加点力就碎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
