@@ -706,3 +706,51 @@ og打lgd训练在演，lgd训练一直吊打og，和vg训练的时候放vg炼金
 果然是都是武痴啊 ...</blockquote>
 那年lxo也是狂的离谱，animajor还是哪个major淘汰老干瘪之后一堆lxo狂喷vg内战队，那年vg舆论也属实惨，拿了两个major还要被lxo们踩头，只能说都是孽力回馈
 
+
+
+*****
+
+####  woyzeck  
+##### 4573#       发表于 2022-8-9 20:43
+
+19年的lxo是集美和mxo合体，不过那会儿水厂还没发大力，而且ti外别的中国队战绩还没那么水，所以统治力还是远逊于现在的集美。
+
+*****
+
+####  nxmonitor  
+##### 4574#       发表于 2022-8-9 20:44
+
+老LGD是肌肉DOTA典型了，五个人加起来有没有一个半脑子不好说，XNOVA巅峰期看他直播指挥还可以，但是很明显完全没话语权，其他四个人都是我无敌随便打，当然队魂显然是maybe走到哪里都是这种风格……
+
+*****
+
+####  反方向的波  
+##### 4575#       发表于 2022-8-9 20:46
+
+http://news.maxjia.com/maxnews/app/share/detail/dota2/151809
+
+<img src="https://p.sda1.dev/6/a5ec85fb43d56b8f98026d95eb04c54d/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">ceb的新闻下面一片骂可以理解，没尾巴的新闻下面这评论只能理解为lxo表演欲望来了
+
+*****
+
+####  名字不乱取  
+##### 4576#       发表于 2022-8-9 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995437&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 20:40</a>
+
+那南美冠军啥时候会来呢</blockquote>
+就在今年，就在今年
+
+*****
+
+####  雅朵莉雀  
+##### 4577#       发表于 2022-8-9 20:51
+
+小精灵可以ban，LGD当时说的是没感觉OG炼金哪里厉害
+
+训练都是打着打着20分钟就赢了，其他队的炼金也都不厉害
+
+而且就算是全力OG也不是没希望打赢，提BO3第三盘又要时光倒流了，我是不太想继续聊过去的比赛了
+
+只能说犯错就会被惩罚，当你的队伍是最强的队伍的时候，一瞬间的失误也会被抓住
+
