@@ -12522,3 +12522,120 @@ LGD今年要是真夺冠 楼里的各位一个跑不掉</blockquote>
 
 如果真如传言所说ame和bian今年要退役的话，你们会看到西恩被茶队和鳖孙统治的现实
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 4480#       发表于 2022-8-9 17:31
+
+另外今年决赛和淘汰赛结束期间还有个7天的休息 谁知道到底能整出什么幺蛾子 
+
+*****
+
+####  蛭人  
+##### 4481#       发表于 2022-8-9 17:31
+
+西恩刀塔早就凉了，dota主播区头部都在4+2，套用他们的一句话，除了职业谁特么打天梯，狗都不玩，就这情况加大环境，还想有队伍打出来。
+
+*****
+
+####  逃离二次元  
+##### 4482#       发表于 2022-8-9 17:32
+
+唯一原谅处长的世界线：离开老干瘪再拿下两冠
+
+*****
+
+####  ArowRocher  
+##### 4483#       发表于 2022-8-9 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992833&amp;ptid=2084957" target="_blank">Arhjoy 发表于 2022-8-9 17:29</a>
+
+掷骰子不是昨天杰畜说的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我只是想玩《上帝掷骰子吗》的梗
+
+*****
+
+####  北欧王座  
+##### 4484#       发表于 2022-8-9 17:33
+
+这就是电子竞技的魅力，哪怕我再觉得处长不配，也终究是实力说话的。同样的我坚信，哪怕集美把他当爹捧上天，哪怕全世界都吹他牛逼，哪怕他操烂管人的批，哪怕他现在再暗爽再享受，也还是要靠实力说话，到底谁躺下，拭目以待，wakuwaku。这次我不会再投降了，处长尿不湿准备好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 4485#       发表于 2022-8-9 17:34
+
+没办法，4+2真的好玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 4486#       发表于 2022-8-9 17:36
+
+这两个小时又没比赛怎么楼涨了那么多，难道只有我没有辞职<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4487#       发表于 2022-8-9 17:36
+
+major打完又要找工作了
+
+*****
+
+####  Asukalangley33  
+##### 4488#       发表于 2022-8-9 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992866&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 17:32</a>
+
+我只是想玩《上帝掷骰子吗》的梗</blockquote>
+但是5级装备确实是很看脸啊
+
+机械之心和冥灵书的战力转化成经济，一件装备直接甩开2W都算保守估计了
+
+*****
+
+####  莉拉厨  
+##### 4489#       发表于 2022-8-9 17:37
+
+赖皮社早就不想搞这个项目了，公司一半人更新这傻逼游戏，人手空出来的话能把求生之路半条命传送门TF全部数3了。快进到先辈夺冠后Gaber直呼This is perfect DOTA，次日宣布停服。
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 4490#       发表于 2022-8-9 17:37
+
+对了，maybekaka这些退役的话，基本dota1时代的遗产也彻底亡了吧，剩下的都是dota2出来的，已知像完美C这样的max+出身，被谭雅的队伍血虐，那么这年头国服天梯还能出人才吗？
+
+*****
+
+####  walfeds  
+##### 4491#       发表于 2022-8-9 17:37
+
+西恩怕是以后得吸东南亚猴子的血，就像西欧吸独联体的血一样
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北欧王座  
+##### 4492#       发表于 2022-8-9 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992918&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-9 17:36</a>
+
+这两个小时又没比赛怎么楼涨了那么多，难道只有我没有辞职</blockquote>
+搞心理建设呢，小共同体来之不易。
+
+*****
+
+####  Arhjoy  
+##### 4493#       发表于 2022-8-9 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992866&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 17:32</a>
+我只是想玩《上帝掷骰子吗》的梗</blockquote>
+好吧，主要是你写的这段跟杰出直播讲的一样，我在想是不是国人搬运过去的…
+
