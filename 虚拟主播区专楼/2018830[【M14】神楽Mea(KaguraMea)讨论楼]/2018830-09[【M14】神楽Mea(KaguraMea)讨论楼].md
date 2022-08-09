@@ -2530,3 +2530,28 @@ NHOTBOT（
 
 2022-8-9 22:29 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12279#       发表于 2022-8-9 22:41
+
+刚发现的，原来还真的写了首歌啊，感觉调子还不错。然后还有人觉得挺好听的又画了张图。[https://www.youtube.com/watch?v=i_DFIVnXxoA](https://www.youtube.com/watch?v=i_DFIVnXxoA) 挺牛啊。
+
+<img src="https://img.saraba1st.com/forum/202208/09/223901v221ey1evgjvvav2.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220809223336375.jpg</strong> (148.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/223901wyb72rbwyawmy7i2.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220809223405373.jpg</strong> (79.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:39 上传
+
