@@ -683,3 +683,15 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  D．Va  
+##### 76#       发表于 2022-8-9 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992147&amp;ptid=2085532" target="_blank">天人五衰 发表于 2022-8-9 16:45</a>
+
+你对丸户老贼不够了解啊</blockquote>
+是你自以为对他了解罢了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

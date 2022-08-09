@@ -5004,3 +5004,17 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 我喜欢按英灵的卡面来选对应的灵基，然而只要卡面是最终卡面，主页或者升级啥的出现的都是最终立绘，强迫症 ...</blockquote>
 根本问题在于很多最终立绘画的并不是最终形态，而是初始或者一破的样子。还有妖兰这种特殊情况，最终立绘的白龙形态甚至没有出现在战斗模型里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 467#       发表于 2022-8-9 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995057&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-9 20:08</a>
+根本问题在于很多最终立绘画的并不是最终形态，而是初始或者一破的样子。还有妖兰这种特殊情况，最终立绘 ...</blockquote>
+我觉得最过分的是泳装伊利亚，最终卡面是魔法少女就离谱，说好的泳装呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其他大部分都是按最终的，社长倒是经常用一破二破的惯犯，其他灵基仿佛是凑数的，这里点名泳贞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+反正没能对应的就按xp 来，但我都选好了，比如村正，结果升级啥的还是出来个白发男就很出戏
+明明卡的头像啥的都能选，我就奇怪这立绘怎么就一直绑定最终的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -577,3 +577,79 @@ vg lgd互换了喷漆和tp特效
 
 真就完全不看别人是吧
 
+
+
+*****
+
+####  ArowRocher  
+##### 4563#       发表于 2022-8-9 20:22
+
+采访时候互相捧杀而已吧，凭啥觉得自己无敌啊
+
+*****
+
+####  一品堂官  
+##### 4564#       发表于 2022-8-9 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992998&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-9 17:40</a>
+
+在这边的大部分都是老py玩家，眼看着西恩dota从亚军扔机场变成什么仙贝艹我什么皮套人恋爱甜甜甜，早特么 ...</blockquote>
+确实，我发现看久了，只盯着国内的老逼也挺无聊的，没啥打出来的新人。
+
+天天只聊凹糟的旧账和游戏以外的八卦很无趣，还有饭圈以及搞出来的假赛阴谋论真的很恶心人。
+
+国外的队虽然也有一些脑浆的地方，但是很多享受dota的选手挺喜欢的。
+
+真到中外对抗没必要带入太多屁股成份，雪碧败者组一串六夺冠也挺热血，还有的选手在比赛里面敢选不一样的角色，开发新的玩法，都是吸引人的地方。
+
+当然有中国队夺冠是欢迎的，毕竟再不夺冠，国内是真没啥人气了。
+
+*****
+
+####  woyzeck  
+##### 4565#       发表于 2022-8-9 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995206&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-9 20:21</a>
+
+就ti9之前上帝归来后的状态，哪来的底气觉得自己无敌了
+
+真就完全不看别人是吧 ...</blockquote>
+og打lgd训练在演，lgd训练一直吊打og，和vg训练的时候放vg炼金随便赢，所以....
+
+*****
+
+####  woyzeck  
+##### 4566#       发表于 2022-8-9 20:24
+
+根据查理斯的说法，18年打og训练都是1:1，打其他队也是互有胜负。19年训练是真的无敌了很难输一把，结果打到最后发现og在演。
+
+*****
+
+####  天堂蜘蛛  
+##### 4567#       发表于 2022-8-9 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995206&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-9 20:21</a>
+
+就ti9之前上帝归来后的状态，哪来的底气觉得自己无敌了
+
+真就完全不看别人是吧 ...</blockquote>
+ti9的OG在major上打的确实不咋地啊
+
+而且李斯直播也说了，TI前老干瘪跟OG训练的时候吊打OG，然后从其他队听来的消息又是OG猛地一批训练赛吊打所有，但训练赛的内容别人又不可能透露，TI9打完才知道OG藏了绝活精灵奶推体系<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 4568#       发表于 2022-8-9 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56995254&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-9 20:25</a>
+
+ti9的OG在major上打的确实不咋地啊
+
+而且李斯直播也说了，TI前老干瘪跟OG训练的时候吊打OG，然后从其他队 ...</blockquote>
+打完才知道小精灵绝活我是真觉得这群人是不会不学不练两耳不闻窗外事到极致了
+
+印象中那年4月就天梯一号位小精灵无敌，赛前上帝也在疯狂手小精灵，稍微是个路人都知道这破玩意儿无敌啊
+
+明牌还藏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
