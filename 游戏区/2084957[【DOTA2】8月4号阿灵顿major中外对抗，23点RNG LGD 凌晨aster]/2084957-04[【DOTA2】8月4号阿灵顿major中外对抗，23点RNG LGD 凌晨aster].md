@@ -1579,3 +1579,273 @@ BOOM连续两波脑浆<img src="https://static.saraba1st.com/image/smiley/face20
 
 boom这失误爆发力来自: iPhone客户端
 
+
+
+*****
+
+####  莉拉厨  
+##### 4667#       发表于 2022-8-9 23:32
+
+可以睡了，BOOM真的脑浆啊，醒来又是一场胜利！刚好上班摸鱼看茶队挨打
+
+*****
+
+####  thistimeforlife  
+##### 4668#       发表于 2022-8-9 23:33
+
+为什么我觉得量子鞭这把dp有xxs味道<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 4669#       发表于 2022-8-9 23:34
+
+boom这马尔斯熟练度好高啊
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  天堂蜘蛛  
+##### 4670#       发表于 2022-8-9 23:34
+
+这无解肥大圣是个隐患
+
+*****
+
+####  ninini212  
+##### 4671#       发表于 2022-8-9 23:35
+
+卧槽！xinq这个盲跳大
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  天堂蜘蛛  
+##### 4672#       发表于 2022-8-9 23:35
+
+刚说完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 4673#       发表于 2022-8-9 23:36
+
+四赵云还是给力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 4674#       发表于 2022-8-9 23:37
+
+大老师：83%
+
+*****
+
+####  百世诸侯  
+##### 4675#       发表于 2022-8-9 23:37
+
+这东南亚菜逼队打的跟高分路人局一样
+
+*****
+
+####  吃货红毛  
+##### 4676#       发表于 2022-8-9 23:37
+
+这xinq来自: iPhone客户端
+
+*****
+
+####  战狼PTSD  
+##### 4677#       发表于 2022-8-9 23:37
+
+牛魔王来了！
+
+*****
+
+####  北条早苗  
+##### 4678#       发表于 2022-8-9 23:37
+
+xinq打完这次ti就得玉玉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 4679#       发表于 2022-8-9 23:38
+
+xinQ这么厉害干什么
+
+*****
+
+####  白野苍衣  
+##### 4680#       发表于 2022-8-9 23:38
+
+这BOOM过于脑浆了
+
+
+
+*****
+
+####  弈秋  
+##### 4681#       发表于 2022-8-9 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这跳刀
+
+*****
+
+####  暴走的包子  
+##### 4682#       发表于 2022-8-9 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哇这打的是你o啊
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山上徹也  
+##### 4683#       发表于 2022-8-9 23:38
+
+这就是b组
+
+*****
+
+####  逃离二次元  
+##### 4684#       发表于 2022-8-9 23:38
+
+boom压制没压到点子上，逛街逛着逛着经济拉开，战斗力就不够了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4685#       发表于 2022-8-9 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">boom感觉不够基德啊
+
+*****
+
+####  白野苍衣  
+##### 4686#       发表于 2022-8-9 23:40
+
+这大圣刷了一整场屁用没有
+
+*****
+
+####  我爱撩菜  
+##### 4687#       发表于 2022-8-9 23:40
+
+xinQ开图了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4688#       发表于 2022-8-9 23:40
+
+有人开图！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 4689#       发表于 2022-8-9 23:40
+
+这戴泽害队友啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 4690#       发表于 2022-8-9 23:40
+
+这什么罕见带路党啊
+
+*****
+
+####  弈秋  
+##### 4691#       发表于 2022-8-9 23:40
+
+卧槽 这沟壑
+
+*****
+
+####  ArowRocher  
+##### 4692#       发表于 2022-8-9 23:41
+
+牛魔王
+
+*****
+
+####  やト  
+##### 4693#       发表于 2022-8-9 23:41
+
+这个板 是不是有点太牛逼了
+
+*****
+
+####  苏西踩到我了  
+##### 4694#       发表于 2022-8-9 23:41
+
+作为剧毒玩家表示，小鹿，魔晶术士，剑圣等群体回血巨克制剧毒，敢顶着小鹿选剧毒，boom对剧毒的理解比我还差
+
+*****
+
+####  hd7856101  
+##### 4695#       发表于 2022-8-9 23:41
+
+xinq this way
+
+*****
+
+####  BallanceHZ  
+##### 4696#       发表于 2022-8-9 23:41
+
+这个版属于运气拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 4697#       发表于 2022-8-9 23:41
+
+这牛头MVP预定了啊
+
+*****
+
+####  ninini212  
+##### 4698#       发表于 2022-8-9 23:41
+
+龟龟，这个盲视野板，我是对面马尔斯直接就要砸键盘了
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  你可以试试  
+##### 4699#       发表于 2022-8-9 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997437&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-9 23:29</a>
+
+鉴定为贪财坏女人。Ti结束那会假赛党要求所有自媒体和菠菜公司切割，大家都表态了，就她片头还挂着广告被 ...</blockquote>
+更早的时候郑处也有一个向完美实名举报菠菜的表演，那时候也是很多人抵制接菠菜广告的。就风咒跳出来说搞集锦的都没钱赚怎么办云云，西西鱼也抱团转发说什么哎我们也不容易
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">没钱赚那你爱做不做啊
+
+*****
+
+####  反方向的波  
+##### 4700#       发表于 2022-8-9 23:42
+
+skem带路的好
+
+*****
+
+####  百世诸侯  
+##### 4701#       发表于 2022-8-9 23:42
+
+能阻止文爱胖子的只有他的一号位了
+
+*****
+
+####  12481632  
+##### 4702#       发表于 2022-8-9 23:42
+
+这样看可能昨天rng第二把好像还是输了好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
