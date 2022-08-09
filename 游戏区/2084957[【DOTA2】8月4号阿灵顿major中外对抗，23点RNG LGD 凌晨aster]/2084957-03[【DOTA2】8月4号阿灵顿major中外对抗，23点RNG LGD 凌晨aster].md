@@ -11936,3 +11936,108 @@ y1s1,23458要是没有庄进翔，而是当初下面八真的从ig手上买来�
 
 可原力鞋利雅得的时候讲过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UnhappyTails  
+##### 4421#       发表于 2022-8-9 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992051&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-9 16:38</a>
+不都说了只算正常人，卡卡不也是三板斧</blockquote>
+其实不止三板斧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不然至少有小y 莱恩 土猫 小小 海民五个，跟很多外国4大差不差
+
+甚至你要不指着他打局势，拉比克都能打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 4422#       发表于 2022-8-9 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992061&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 16:39</a>
+
+我真的吐了。</blockquote>
+什么司马东西，真是个畜牲啊
+
+*****
+
+####  天堂蜘蛛  
+##### 4423#       发表于 2022-8-9 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992048&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:38</a>
+
+我从梅奔走出来那天其实已经想明白这点了，但是去年ig lgd包揽major和ti小组赛第一的时候我还是心软了[f: ...</blockquote>
+所以哪怕从TI8才开始看的观众，但凡是个正常人，到今年也不会再去吹处长了，更不可能对处长能夺冠有一丁点想法
+
+反正哪怕处长夺冠我心里都不会有啥波动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 4424#       发表于 2022-8-9 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992048&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:38</a>
+我从梅奔走出来那天其实已经想明白这点了，但是去年ig lgd包揽major和ti小组赛第一的时候我还是心软了[f: ...</blockquote>
+你这个境界再往前就六根清净了，谁赢谁输关我屁事，盾不是我举的也不是我送的。
+
+但竞技体育情绪价值就是观众能够代入式云夺冠，目前国内前四支队伍不是怀揣炸弹就是扶不上墙，只能说不抱有期待就是保护自己。
+
+*****
+
+####  名字不乱取  
+##### 4425#       发表于 2022-8-9 16:46
+
+冠超要是知道自己职业生涯后期飞速下降，ti8，ti9舆论还要被集美翻案，应该死死捆住ame直接//合一，同归于尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 4426#       发表于 2022-8-9 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992060&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-9 16:39</a>
+你楼吵半天还没人家超级假赛论坛有点有价值的东西
+
+https://ngabbs.com/read.php?tid=32998789
+
+就没打过几次 ...</blockquote>
+5级装备还真不认识几个，就认识个石头镜子机械之心
+机械之心两个BKB两个撒旦给钢背带来的提升太直观了，感觉按这个剧本也不一定能刚下来
+
+*****
+
+####  UnhappyTails  
+##### 4427#       发表于 2022-8-9 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992159&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 16:45</a>
+你这个境界再往前就六根清净了，谁赢谁输关我屁事，盾不是我举的也不是我送的。
+
+但竞技体育情绪价值就是 ...</blockquote>
+我承认我每年都希望有队站出来胜过lgd，去年我是如此支持ig（当然ig作为一支年轻队表现并不算差，只可惜撸狗怒踢卡卡拒绝门票），今年石油杯前我也是如此支持rng，不过石油杯回家局的丑陋已经让我释然了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 4428#       发表于 2022-8-9 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992175&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-9 16:47</a>
+
+我承认我每年都希望有队站出来胜过lgd，去年我是如此支持ig（当然ig作为一支年轻队表现并不算差，只可惜 ...</blockquote>
+那只能看看鳖茶了。
+
+XG再宰lgd很难了。鳖茶相对来说还有点希望但是不大。
+
+*****
+
+####  UnhappyTails  
+##### 4429#       发表于 2022-8-9 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992194&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-9 16:48</a>
+那只能看看鳖茶了。
+
+XG再宰lgd很难了。鳖茶相对来说还有点希望但是不大。 ...</blockquote>
+支持鳖茶还不如期待鬼能进化呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的信条是永远不要相信杜鹏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -647,3 +647,14 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 投修女和打酱油的差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天人五衰  
+##### 73#       发表于 2022-8-9 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991947&amp;ptid=2085532" target="_blank">D．Va 发表于 2022-8-9 16:30</a>
+前女友这几个字就注定她必败了</blockquote>
+你对丸户老贼不够了解啊
+
