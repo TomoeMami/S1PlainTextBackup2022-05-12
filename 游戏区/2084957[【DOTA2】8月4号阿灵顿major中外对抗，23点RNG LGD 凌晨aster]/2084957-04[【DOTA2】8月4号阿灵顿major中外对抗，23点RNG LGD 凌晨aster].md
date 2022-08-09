@@ -1420,3 +1420,162 @@ ame怎么看着有点像华链了
 
 油扒鸡经常玩2号位mars吧。
 
+
+
+*****
+
+####  12481632  
+##### 4650#       发表于 2022-8-9 23:23
+
+ 本帖最后由 12481632 于 2022-8-9 23:24 编辑 
+
+感觉赵云小组赛有点累了
+
+我错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dingruntian2  
+##### 4651#       发表于 2022-8-9 23:24
+
+还记得maybe不出bkb被mars无限单杀的宙斯吗
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 4652#       发表于 2022-8-9 23:24
+
+这BOOM确实没啥抵抗能力，到点自动来中路送一波<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4653#       发表于 2022-8-9 23:24
+
+还得是赵云
+
+*****
+
+####  azccc52  
+##### 4654#       发表于 2022-8-9 23:25
+
+虽然比赛时间不太合适，问一下坛友们怎么评价西西鱼
+
+*****
+
+####  nowaki  
+##### 4655#       发表于 2022-8-9 23:25
+
+boom真cs啊 线上优势直接送回去
+
+*****
+
+####  吃货红毛  
+##### 4656#       发表于 2022-8-9 23:25
+
+感觉剧毒人已经没了来自: iPhone客户端
+
+*****
+
+####  沈淮  
+##### 4657#         楼主| 发表于 2022-8-9 23:25
+
+我已经大彻大悟了，现在dota比赛还得是比谁队里面畜生多
+
+*****
+
+####  walfeds  
+##### 4658#       发表于 2022-8-9 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">油扒鸡上波要命了
+
+*****
+
+####  你可以试试  
+##### 4659#       发表于 2022-8-9 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997400&amp;ptid=2084957" target="_blank">azccc52 发表于 2022-8-9 23:25</a>
+
+虽然比赛时间不太合适，问一下坛友们怎么评价西西鱼</blockquote>
+没恰烂钱之前集锦挺好看的，恰烂钱之后取关没看了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|干扰看比赛不好意思|
+
+查看全部评分
+
+*****
+
+####  山上徹也  
+##### 4660#       发表于 2022-8-9 23:26
+
+三号位剧毒压自己
+
+*****
+
+####  弈秋  
+##### 4661#       发表于 2022-8-9 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧毒线上没作用，直接人就没了
+
+*****
+
+####  nowaki  
+##### 4662#       发表于 2022-8-9 23:28
+
+刷到中期 团战打不过lgd
+
+*****
+
+####  莉拉厨  
+##### 4663#       发表于 2022-8-9 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997400&amp;ptid=2084957" target="_blank">azccc52 发表于 2022-8-9 23:25</a>
+
+虽然比赛时间不太合适，问一下坛友们怎么评价西西鱼</blockquote>
+鉴定为贪财坏女人。Ti结束那会假赛党要求所有自媒体和菠菜公司切割，大家都表态了，就她片头还挂着广告被狂喷，慢慢自己就不做视频了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|干扰看比赛不好意思|
+
+查看全部评分
+
+*****
+
+####  北条早苗  
+##### 4664#       发表于 2022-8-9 23:31
+
+BOOM连续两波脑浆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 4665#         楼主| 发表于 2022-8-9 23:31
+
+西西鱼+什么gl +风咒再加个什么紫的，著名蛆块链整天报团取卵
+
+*****
+
+####  吃货红毛  
+##### 4666#       发表于 2022-8-9 23:32
+
+boom这失误爆发力来自: iPhone客户端
+
