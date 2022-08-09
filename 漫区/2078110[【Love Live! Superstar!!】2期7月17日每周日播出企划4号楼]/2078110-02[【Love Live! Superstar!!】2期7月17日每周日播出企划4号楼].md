@@ -8107,3 +8107,13 @@ OP初动13762
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 2301#       发表于 2022-8-9 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993565&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-9 18:24</a></blockquote>
+那么活到最后的是恋恋还是小千呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

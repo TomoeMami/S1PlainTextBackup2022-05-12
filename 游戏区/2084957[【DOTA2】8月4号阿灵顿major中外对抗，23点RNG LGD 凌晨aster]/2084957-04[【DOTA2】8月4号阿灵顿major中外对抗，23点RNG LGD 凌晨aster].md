@@ -1253,3 +1253,108 @@ B站这几个切片号有谁不是集美的，哦，准确说来，这几位才�
 
 我看批站好像还行
 
+
+
+*****
+
+####  walfeds  
+##### 4629#       发表于 2022-8-9 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56997107&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 22:58</a>
+
+https://www.bilibili.com/video/BV1La411P7YC</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“这里全是水，打不了了啊”
+
+*****
+
+####  asd235614  
+##### 4630#       发表于 2022-8-9 23:04
+
+就镜头切到解说台的时候还行，一切到现场那边就严重音画不同步
+
+*****
+
+####  阿垃垃圾历  
+##### 4631#       发表于 2022-8-9 23:04
+
+开始了 看lgd 
+
+*****
+
+####  战狼PTSD  
+##### 4632#       发表于 2022-8-9 23:05
+
+MUSHI怎么看起来一点没老
+
+*****
+
+####  ArowRocher  
+##### 4633#       发表于 2022-8-9 23:05
+
+就现场采访有问题，演播室没问题
+
+*****
+
+####  Litccc  
+##### 4634#       发表于 2022-8-9 23:05
+
+这次应该是油管最清晰，有4k推流
+
+*****
+
+####  ArowRocher  
+##### 4635#       发表于 2022-8-9 23:08
+
+鹏子你有救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 4636#       发表于 2022-8-9 23:08
+
+MUSHI咋跑去当教练了，前两年不是搞了个东南亚的鱼塘队
+
+*****
+
+####  弈秋  
+##### 4637#       发表于 2022-8-9 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">棚子，我来教你怎么用虚空整活
+
+*****
+
+####  雅朵莉雀  
+##### 4638#       发表于 2022-8-9 23:09
+
+mushi脸上痘都消了，看起来比以前顺眼多了
+
+*****
+
+####  北条早苗  
+##### 4639#       发表于 2022-8-9 23:09
+
+虚空？八王想办法了啊
+
+*****
+
+####  掉头学姐  
+##### 4640#       发表于 2022-8-9 23:10
+
+ame怎么看着有点像华链了
+
+*****
+
+####  thistimeforlife  
+##### 4641#       发表于 2022-8-9 23:10
+
+杜鹏儿这次连茶的碾压局都经常有下饭表现，卖大支配狼人，不捡盾幽鬼，茶队没流量就偷着乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 4642#       发表于 2022-8-9 23:11
+
+八王早早把冰龙ban了，这tm怎么看虚空表演？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
