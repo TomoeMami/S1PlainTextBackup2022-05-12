@@ -10941,3 +10941,61 @@ tanya在sg那么硬，私信上来就是仙贝是我，活该被ru水淹死
 18岁的e仔除了跳跳的看好其实也没其他的。因为那时候他还在igv起起伏伏。 ...</blockquote>
 所谓“勉强”就是这个意思
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 4323#       发表于 2022-8-9 11:23
+
+pure的比赛我没看过，这批国外年轻人看着比较喜欢的一个是yatoro，一个是yuragi。我希望atf早点自己找个队打一号位不要浪费“才华”了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  很久就在那边l  
+##### 4324#       发表于 2022-8-9 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988295&amp;ptid=2084957" target="_blank">maju3 发表于 2022-8-9 11:15</a>
+呃呃头像展开一下</blockquote>
+石川澪的写真
+
+*****
+
+####  北条早苗  
+##### 4325#       发表于 2022-8-9 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988254&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-9 11:13</a>
+杀了**就该走了，不该靠近四塔的</blockquote>
+马后炮说一句厨子就不应该管队友变身把上路高地拆了完了
+他把自己推到那个位置之前是电棍抽攻和puck大招都给了马西，马西买活反打，厨子不上去电棍和小强都得死在高地上
+
+*****
+
+####  walfeds  
+##### 4326#       发表于 2022-8-9 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988452&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-9 11:23</a>
+
+pure的比赛我没看过，这批国外年轻人看着比较喜欢的一个是yatoro，一个是yuragi。我希望atf早点自己找个队 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">如果大爹和ceb锤不醒atf这木头脑袋我希望留队的是yuragi
+
+*****
+
+####  seki_m  
+##### 4327#       发表于 2022-8-9 11:30
+
+yuragi和yatoro还都是二毛y字辈
+
+不过有misha和atf这两个b在，光头一时半会应该拿不到ti冠军
+
+*****
+
+####  acejoe  
+##### 4328#       发表于 2022-8-9 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986977&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 09:30</a>
+啊？龙之血第三季上线得这么快，我以为是打TI的那个月才上线呢</blockquote>
+如果不延期，现在不就是在打ti么？
+

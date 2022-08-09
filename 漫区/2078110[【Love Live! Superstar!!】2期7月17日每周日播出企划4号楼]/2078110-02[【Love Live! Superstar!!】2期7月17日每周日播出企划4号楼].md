@@ -7738,3 +7738,12 @@ EDに引き続き、作監で参加させて頂きました。
 千砂都「(ﾁｯ...)」
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了拯救恋的人气阿宅们只能给她编排段子
 
+
+
+*****
+
+####  player3960  
+##### 2266#       发表于 2022-8-9 11:24
+
+话说horipro那个团建是不是只有线下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -4599,3 +4599,37 @@ BB活动那个？双C呆配个克制的输出随便打。。上年伽摩还没�
 
 本非洲人什么时候才能有个三宝呢
 
+
+
+*****
+
+####  exiaexa  
+##### 435#       发表于 2022-8-9 11:23
+
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我觉得还有人在玩
+
+ID Alisha.W，517,525,361
+
+顺便记得带上ID，去年加人来了一堆都不知道是不是楼里的
+
+看一眼好友列表，活着的都是些金字宝具
+
+以前扶的那些转服的苗就没几根长大了的，难顶
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 436#       发表于 2022-8-9 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988441&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:23</a>
+
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1金都没  萌新给大佬的好友列表抹黑了  
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说你咋还能升级呢 咸如萌新都早早159了
+
