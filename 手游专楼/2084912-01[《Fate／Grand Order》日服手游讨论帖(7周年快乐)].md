@@ -4737,3 +4737,57 @@ ID Alisha.W，517,525,361
 我怎么记得加过你  但好像又没加</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原加过，FGO没有加
 
+
+
+*****
+
+####  alucardcz  
+##### 445#       发表于 2022-8-9 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989755&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-9 13:10</a>
+
+原加过，FGO没有加</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pm个id 我加你
+
+*****
+
+####  exiaexa  
+##### 446#       发表于 2022-8-9 13:13
+
+这楼里人这么多的吗，突然来了9个申请
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 447#       发表于 2022-8-9 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989784&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 13:13</a>
+
+这楼里人这么多的吗，突然来了9个申请</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是经常有隔壁真爱在观察这楼吗 说不定（
+
+*****
+
+####  霧谷藤乃  
+##### 448#       发表于 2022-8-9 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989767&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 13:12</a>
+
+pm个id 我加你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞混了，还以为FGO视频里也自带UID，结果没有
+
+没记错的话是409,263,319     等我超昂日常做完再确认下
+
+*****
+
+####  alucardcz  
+##### 449#       发表于 2022-8-9 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989803&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-9 13:15</a>
+
+搞混了，还以为FGO视频里也自带UID，结果没有
+
+没记错的话是409,263,319     等我超昂日常做完再 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名字黄色的？   那应该没错  加了  id和x神一样
+

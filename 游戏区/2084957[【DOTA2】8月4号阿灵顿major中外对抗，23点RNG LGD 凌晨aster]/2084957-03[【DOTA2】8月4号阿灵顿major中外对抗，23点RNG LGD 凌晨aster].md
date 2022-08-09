@@ -11177,3 +11177,22 @@ a畜20年改一闪飞燕线劣自己扛各种id阴阳队友的出生，能觉得
 还是畜男呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">意思是你还挺期待掀背夺冠然后破处的是吧
 
+
+
+*****
+
+####  北欧王座  
+##### 4348#       发表于 2022-8-9 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56989390&amp;ptid=2084957" target="_blank">韬晦 发表于 2022-8-9 12:34</a>
+
+a畜20年改一闪飞燕线劣自己扛各种id阴阳队友的出生，能觉得ti都是队友坑了他也不足为奇了 ...</blockquote>
+一闪飞燕也是阴阳怪气么，不懂梗的出处
+
+*****
+
+####  ArowRocher  
+##### 4349#       发表于 2022-8-9 13:20
+
+那“我们差点就赢了不是吗”算不算阴阳老队友
+
