@@ -10444,3 +10444,77 @@ major快点打完吧，我要玩暖暖
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  莉拉厨  
+##### 4267#       发表于 2022-8-9 09:43
+
+快进到冰蛙也提处级领导干部，冰处！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 4268#       发表于 2022-8-9 09:43
+
+<img src="https://p.sda1.dev/6/b35bb930c91675d82b3324f2c733cf94/CMP_20220809094049937.jpg" referrerpolicy="no-referrer">
+大逃杀开始了
+
+*****
+
+####  外挂全家脚气  
+##### 4269#       发表于 2022-8-9 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987061&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-9 09:37</a>
+
+天辉至暗时刻</blockquote>
+DOTA这地图两边选边没多大关系吧，应该是选边对应的先选后选关系比较大
+
+*****
+
+####  IG.430  
+##### 4270#       发表于 2022-8-9 09:44
+
+你们说的天辉是天辉吗<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 4271#       发表于 2022-8-9 09:44
+
+冰蛙不是早就不管事了吗，天辉胜率低你怪冰蛙也没用啊，还是多去reddit拷打一下jeff吧
+
+*****
+
+####  nightmare902015  
+##### 4272#       发表于 2022-8-9 09:45
+
+我记得冰蛙在参与开发steam deck（笑）
+
+*****
+
+####  ArowRocher  
+##### 4273#       发表于 2022-8-9 09:47
+
+难怪gh在夜魇才敢用CM
+
+*****
+
+####  哈萨维·诺亚  
+##### 4274#       发表于 2022-8-9 09:49
+
+黑话 撤！黑话 撤！黑话 撤！黑话 撤！
+
+*****
+
+####  chilno  
+##### 4275#       发表于 2022-8-9 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56987141&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-9 09:43</a>
+
+DOTA这地图两边选边没多大关系吧，应该是选边对应的先选后选关系比较大</blockquote>
+控盾影响很大的好吗
+
