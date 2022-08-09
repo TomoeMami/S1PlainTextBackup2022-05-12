@@ -9860,3 +9860,101 @@ ti有没有人重新开个楼，想正常讨论其他队的去新楼，想÷厨�
 
 谭雅从ti10之后就一直都有点魔怔，后来跑去做解说，被挖出黑历史把工作搞丢之后就彻底黑化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不应  
+##### 4204#       发表于 2022-8-9 08:22
+
+怎么又开始讨论ana换鬼了，换位思考一下你是上帝，就算这次major，rng从败者组杀到冠军，你会留下来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和去年状态不一样，今年上帝把细节磨炼下争冠毫无问题。
+
+*****
+
+####  遍体精淋af  
+##### 4205#       发表于 2022-8-9 08:23
+
+ 本帖最后由 遍体精淋af 于 2022-8-9 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986252&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-9 08:13</a>
+一觉醒来有没有坛友简单总结一下今日战况？就看了rng的第一盘。</blockquote>
+rng1比1液体进入败者组，清算李斯；tanya给处长微博发阴阳怪气私信被处长挂了，现在是集美时间
+
+*****
+
+####  健康猹  
+##### 4206#       发表于 2022-8-9 08:24
+
+争冠也太远了，现在国外也很难随便凑出个争冠班子啊
+
+不过A厨这次打的很不开心就是了
+
+*****
+
+####  smkf013  
+##### 4207#       发表于 2022-8-9 08:24
+
+AMe
+
+maybe
+
+皮鞋
+
+XXS
+
+boboka
+
+领队xiao8，脚练ROTK，这个队伍怎么样，能不能吃满网络流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 4208#       发表于 2022-8-9 08:24
+
+谭雅的反应已经够弱智了，但是评论区过来团建只会复读的集美还是比谭雅更弱智一些，一切都是相比较而言，有时候真怀疑B站这些复读机集美是不是水厂机器人
+
+*****
+
+####  不应  
+##### 4209#       发表于 2022-8-9 08:26
+
+rng比赛一路看下来，上帝基本是被集火没人救，推塔没人跟，发信号也没人理，还得自己出团队装。真的是受气
+
+*****
+
+####  百世诸侯  
+##### 4210#       发表于 2022-8-9 08:26
+
+上帝可以考虑切假腿去秘密
+
+*****
+
+####  AkaiSuisei  
+##### 4211#       发表于 2022-8-9 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986325&amp;ptid=2084957" target="_blank">smkf013 发表于 2022-8-8 20:24</a>
+AMe
+
+maybe
+
+皮鞋</blockquote>
+我森哥呢
+
+*****
+
+####  haruhiismer  
+##### 4212#       发表于 2022-8-9 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986348&amp;ptid=2084957" target="_blank">AkaiSuisei 发表于 2022-8-9 08:27</a>
+我森哥呢</blockquote>
+在二阵
+
+*****
+
+####  Damocles990609  
+##### 4213#       发表于 2022-8-9 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56986348&amp;ptid=2084957" target="_blank">AkaiSuisei 发表于 2022-8-9 08:27</a>
+
+我森哥呢</blockquote>
+我森哥就ti9败决第三把中路拉比克送了三次，至于和这些人一起受折磨吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
