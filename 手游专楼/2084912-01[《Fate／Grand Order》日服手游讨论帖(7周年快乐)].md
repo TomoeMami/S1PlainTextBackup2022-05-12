@@ -5234,3 +5234,39 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 其实你看抽卡界面里展示的也是没有的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那为什么最终会变的这么粉 世纪之谜
 
+
+
+*****
+
+####  qixinno2  
+##### 485#       发表于 2022-8-9 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996518&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 22:08</a>
+
+那为什么最终会变的这么粉 世纪之谜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了显眼
+
+*****
+
+####  areklose  
+##### 486#       发表于 2022-8-9 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天要维护，泳装来吧。我好想抽卡。不要让我再等一周
+
+*****
+
+####  qixinno2  
+##### 487#       发表于 2022-8-9 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">明天有事 只能到时看你们豹跳了
+
+*****
+
+####  alucardcz  
+##### 488#       发表于 2022-8-9 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996540&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-9 22:10</a>
+
+为了显眼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗦话注意点 这叫瞎眼
+

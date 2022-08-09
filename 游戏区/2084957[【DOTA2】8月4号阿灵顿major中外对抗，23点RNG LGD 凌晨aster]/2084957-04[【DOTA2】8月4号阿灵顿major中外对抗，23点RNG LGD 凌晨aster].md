@@ -954,3 +954,49 @@ der哥在看杰出<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 2022-8-9 22:03 上传
 
+
+
+*****
+
+####  ArowRocher  
+##### 4597#       发表于 2022-8-9 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996141&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-9 21:35</a>
+为什么总有集美反串？</blockquote>
+这切片号不是反串吧
+
+*****
+
+####  蛭人  
+##### 4598#       发表于 2022-8-9 22:17
+
+ 本帖最后由 蛭人 于 2022-8-9 22:20 编辑 
+
+B站这几个切片号有谁不是集美的，哦，准确说来，这几位才是真正的墙头草。
+
+<img src="https://img.saraba1st.com/forum/202208/09/221651z68zo6akh6kdke2y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:16 上传
+
+再补一个好吧。
+
+<img src="https://img.saraba1st.com/forum/202208/09/221817leive6e5dpf1zezr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202208/09/222014mfqqjdmsvobfugug.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-9 22:20 上传
+

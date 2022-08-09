@@ -8083,3 +8083,12 @@ OP初动13762
 
 本来就粉丝向动画了，肯定是想它好的人多嘛。后面也不求多大爆点了，就这样结束也不赖（虽然这要求好像也悬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  cybernetics31  
+##### 2299#       发表于 2022-8-9 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是日本现在疫情那么严重，中之人不是得病就是没啥露脸节目，谁tm盯着动画哦
+
