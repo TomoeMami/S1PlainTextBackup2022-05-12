@@ -11466,3 +11466,34 @@ xxs前天那把DP开始脑浆了，这茶队真的是看到东南亚队就不太
 
 看了一圈居然没几个喷maybe的，看来cndota凉得可以
 
+
+
+*****
+
+####  nowaki  
+##### 4378#       发表于 2022-8-9 15:43
+
+查理斯的电棍太过耀眼，很难注意到阴影处的老北京
+
+*****
+
+####  遍体精淋af  
+##### 4379#       发表于 2022-8-9 15:44
+
+老北京中期还是秀过几波的，姑且不算太畜
+
+*****
+
+####  我爱撩菜  
+##### 4380#       发表于 2022-8-9 15:50
+
+昨晚看着RNG输就预想今天节奏爆炸。利好杰出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是乖乖看老干爹吧
+
+RNG就是没想过Ana是大腿，就当自闭路人大哥+4人黑来玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+Aster能不能突破一次还不好说，当然是希望可以突破上限的。如果又是输了又是节奏爆炸
+
+LGD能不能夺冠就看会不会犯病四保一保个AME，换个角度思考或者三保一保猴爹或者鞭酱会不会更好？ <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
