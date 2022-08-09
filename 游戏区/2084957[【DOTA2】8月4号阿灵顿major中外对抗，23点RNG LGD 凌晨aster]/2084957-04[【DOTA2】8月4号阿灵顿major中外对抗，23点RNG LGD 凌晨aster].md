@@ -2631,3 +2631,89 @@ Boom这队战术纪律性还是不错的，看着也没那么脑浆。
 
 boom战术素养确实可以，但手活真有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弈秋  
+##### 4799#       发表于 2022-8-10 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng还真不一定能打过这boom
+
+*****
+
+####  北条早苗  
+##### 4800#       发表于 2022-8-10 00:35
+
+油扒鸡被打蠢了啊
+
+
+
+*****
+
+####  pikamee  
+##### 4801#       发表于 2022-8-10 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998046&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 00:21</a>
+
+草</blockquote>
+怎么感觉故意甩锅给交流问题<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 4802#       发表于 2022-8-10 00:36
+
+美杜莎死+丢盾这波没了，可以睡觉起来品茶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 4803#       发表于 2022-8-10 00:38
+
+鞭酱这沉默
+
+*****
+
+####  名字不乱取  
+##### 4804#       发表于 2022-8-10 00:38
+
+大明鞭还在透支<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 4805#       发表于 2022-8-10 00:39
+
+油扒鸡真的头晕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 4806#       发表于 2022-8-10 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以敲了
+
+*****
+
+####  你谁  
+##### 4807#       发表于 2022-8-10 00:42
+
+这索然无味
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 4808#       发表于 2022-8-10 00:42
+
+相信萧瑟！
+
+*****
+
+####  战狼PTSD  
+##### 4809#       发表于 2022-8-10 00:42
+
+白给了
+
