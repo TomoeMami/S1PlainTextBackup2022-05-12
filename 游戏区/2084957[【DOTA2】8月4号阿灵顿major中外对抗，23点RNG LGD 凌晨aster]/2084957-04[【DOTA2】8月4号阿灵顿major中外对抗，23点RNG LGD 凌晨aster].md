@@ -1097,3 +1097,37 @@ B站这几个切片号有谁不是集美的，哦，准确说来，这几位才�
 
 什么下面8，现在集美只会尊称好吧，去年去年ti10你敢让他们回忆？ti10根本就没打！
 
+
+
+*****
+
+####  dclara1  
+##### 4609#       发表于 2022-8-9 22:36
+
+集美切片里最恶心是那个思思，lgd输比赛直接缩壳不切不说，舔王处的切入角度看得我生理不适... 
+
+我甚至都不是王处黑了
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  asd235614  
+##### 4610#       发表于 2022-8-9 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草我回去看了一下还真没有，记忆出现了巨大误差，我现在陷入沉思ori双猫齐飞那段我到底在哪看的
+
+*****
+
+####  ArowRocher  
+##### 4611#       发表于 2022-8-9 22:40
+
+我以前觉得这种切片号是国内伴随各种短视频平台发展出现的特色产物，后来看到俄语区面向OG粉丝的切片号，连封面头像+标题排版都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 4612#       发表于 2022-8-9 22:40
+
+油管上做切片的真的大把
+
