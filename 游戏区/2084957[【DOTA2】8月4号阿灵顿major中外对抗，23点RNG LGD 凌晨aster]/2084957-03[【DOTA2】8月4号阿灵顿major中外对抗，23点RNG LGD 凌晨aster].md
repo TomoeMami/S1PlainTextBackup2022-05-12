@@ -11119,3 +11119,21 @@ atf有纪录片加持，还是指望ceb教会他三号位该干啥吧。
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nxmonitor  
+##### 4342#       发表于 2022-8-9 12:23
+
+ 本帖最后由 nxmonitor 于 2022-8-9 12:25 编辑 
+
+现在三号位地位高ATF能这么玩，要是恢复成三号位开团点直接没这个人了好吧，这种跳刀先手的三号位只能玩大鱼龙骑，兽王潮汐什么的一概不会真不如转一靠谱，不过年纪很小也没玩DOTA2几年，可能以后会明白这游戏要的是赢而不是爽……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 4343#       发表于 2022-8-9 12:31
+
+已经准备好玛尼给赖皮社狠狠的充值一波了，想问问现在绑了完美平台还能用挂刀的方法去国际服买本子等级吗，或者还有没有别的能省点的充值方法，今年想搞个小肉山<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

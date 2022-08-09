@@ -4677,3 +4677,27 @@ ID Alisha.W，517,525,361
 起码让我 ...</blockquote>
 大佬申请了，id有みらい的那个咸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 440#       发表于 2022-8-9 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988543&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-9 11:30</a>
+
+1金都没  萌新给大佬的好友列表抹黑了  </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">154的咸鱼仰望巨佬萌新
+
+*****
+
+####  芭德薇  
+##### 441#       发表于 2022-8-9 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56988441&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-9 11:23</a>
+
+打狗粮和qp升了两级……反正泳装要开了来点好友，是不是转服的无所谓了，要求不高别沉个船就弃坑
+
+起码让我 ...</blockquote>
+抱个大腿，id叫遠野あき（听到大佬们的讨论，156级的萌新瑟瑟发抖
+

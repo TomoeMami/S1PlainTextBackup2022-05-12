@@ -7756,3 +7756,26 @@ EDに引き続き、作監で参加させて頂きました。
 
 谁追飞机无所谓，我就想赶紧看到唐诱第二季<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 2268#       发表于 2022-8-9 12:21
+
+我对于之后的剧情已经不抱指望了，只求别tm在踩可可上位了，真邪门了一共第一季前三集剧情翻来覆去给别人垫脚。只要不踩可可评分就爱咋样咋样吧
+
+*****
+
+####  稀勢のささ  
+##### 2269#       发表于 2022-8-9 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉版不少人也指着可可回堇能多点戏份呢    只能说十分的期待
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2270#       发表于 2022-8-9 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，这就把可堇剧情放第三季，可堇党给我忍到最后
+
