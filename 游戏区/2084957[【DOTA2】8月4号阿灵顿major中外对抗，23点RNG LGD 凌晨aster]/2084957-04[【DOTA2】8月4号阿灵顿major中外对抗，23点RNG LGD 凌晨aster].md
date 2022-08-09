@@ -225,3 +225,91 @@ CNDOTA早就完了，年年都是一帮老比排列组合。TI看个乐子得了
 —— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不都是mxo搞得假赛论？我们集美是无辜的。
 
+
+
+*****
+
+####  哈曼的YY  
+##### 4526#       发表于 2022-8-9 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994276&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-08-09 19:14:22</a>
+@哈曼的YY
+
+你可以回他确实，do2打假赛直接ban，lol打假赛休息三个月就行了
+
+----发送自  ...</blockquote>可是他们是在讲撸假赛的时候顺便提的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈曼的YY  
+##### 4527#       发表于 2022-8-9 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994428&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-08-09 19:27:42</a>
+不都是mxo搞得假赛论？我们集美是无辜的。</blockquote>这种人我今天在谭雅那见到了一亿个
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  聚散浮云  
+##### 4528#       发表于 2022-8-9 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992998&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-9 17:40</a>
+
+在这边的大部分都是老py玩家，眼看着西恩dota从亚军扔机场变成什么仙贝艹我什么皮套人恋爱甜甜甜，早特么 ...</blockquote>
+我也是从ti3一路看来的，这么多年从被撸狗开团到被集美恶心我也不觉得有什么，场外那些东西图一乐就得了，凭什么要让网上的nt舆论影响我看比赛？或者说，如果这些东西比比赛更重要，那dota就根本不值得我再关注了
+
+*****
+
+####  ArowRocher  
+##### 4529#       发表于 2022-8-9 19:35
+
+[https://www.bilibili.com/video/B ... ca6b7ec4c3dbbe01f51](https://www.bilibili.com/video/BV1U14y1t7Nx?spm_id_from=444.41.list.card_archive.click&amp;vd_source=ecf1ca9dee9d5ca6b7ec4c3dbbe01f51)
+
+场馆及酒店  管人警告
+
+*****
+
+####  韬晦  
+##### 4530#       发表于 2022-8-9 19:36
+
+集美可别搁着理客中了，从水厂到a畜都是淳淳的出生
+
+
+
+*****
+
+####  IG.430  
+##### 4531#       发表于 2022-8-9 19:36
+
+是人山人海还是人山人海两兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4532#       发表于 2022-8-9 19:37
+
+这两天看一边大力输出一边装人少攻击性弱都是外面迫害我们，把节奏转火切割岁月史书玩穿了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 4533#       发表于 2022-8-9 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56994543&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-9 19:35</a>
+https://www.bilibili.com/video/BV1U14y1t7Nx?spm_id_from=444.41.list.card_archive.click&amp;vd_source=ecf ...</blockquote>
+我超，你不是4330你谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 4534#       发表于 2022-8-9 19:39
+
+这个皮套的中之人声音不错
+
