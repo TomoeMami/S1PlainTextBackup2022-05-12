@@ -4956,3 +4956,23 @@ PS：原网址：[https://appmedia.jp/fategrandorder/75512428](https://appmedia.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还没选，基本上妖崔占一个，剩下妖兰和兰丸X摇摆
 
+
+
+*****
+
+####  kiralzb  
+##### 462#       发表于 2022-8-9 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993697&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-9 18:33</a>
+我感觉石田画乳上已经到瓶颈了哪个角度都是一张脸。
+
+不知道以后的夏活会不会出泳装乳下...希望 ...</blockquote>
+C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿，真的绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 463#       发表于 2022-8-9 19:14
+
+这些礼装如果能给的对应加成那还有点意思，这么多年了，还是纯收藏说实话还不如网上直接看卡图，甚至关服了也不会消失，游戏里还占空间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

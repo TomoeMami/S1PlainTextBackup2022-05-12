@@ -7983,3 +7983,15 @@ OP初动13762
 有没有可能，人就不是中国式家长</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可最好了，就怕这staff这时候开始考究了，给你整这个
 
+
+
+*****
+
+####  lucksolo  
+##### 2291#       发表于 2022-8-9 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56993575&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-9 18:24</a>
+
+那可最好了，就怕这staff这时候开始考究了，给你整这个</blockquote>
+我觉得这算可可被中之人逆输入得比较隐秘的一点，鲤鱼虽然是纯上海人，但可可是中日混血，大家潜意识里却都当她纯国人。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">可以类比鲤鱼跟菜宝，还是有点微妙的区别在里边
+
