@@ -6336,3 +6336,498 @@ ts的高太恶心了
 
 这拍拍智障吧？ 走上去送换血？
 
+
+
+*****
+
+####  Litccc  
+##### 5270#       发表于 2022-8-10 11:11
+
+哇，脑浆鹏
+
+*****
+
+####  吃货红毛  
+##### 5271#       发表于 2022-8-10 11:11
+
+刚想喷 就换血出来了 一时不知道是不是拍拍熊太扯
+
+*****
+
+####  聚散浮云  
+##### 5272#       发表于 2022-8-10 11:11
+
+杜鹏真的脑浆至极啊，全靠这戴泽擦屁股了
+
+*****
+
+####  莉拉厨  
+##### 5273#       发表于 2022-8-10 11:12
+
+还好两边C位同时发病，不然杜鹏这波就是战犯
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 5274#       发表于 2022-8-10 11:12
+
+拍拍？bag of blood！
+
+*****
+
+####  nowaki  
+##### 5275#       发表于 2022-8-10 11:12
+
+1号位脑浆大对决是拍拍赢了
+
+*****
+
+####  白野苍衣  
+##### 5276#       发表于 2022-8-10 11:12
+
+哇，杜鹏这什么脑浆玩意，队友在那打架，他交盾复活后在旁边OB半天。
+
+*****
+
+####  nxmonitor  
+##### 5277#       发表于 2022-8-10 11:12
+
+幸好FNC更加脑浆，这个timado真的是难堪大用，3W经济1W5作用确实没说错……
+
+*****
+
+####  a1370303  
+##### 5278#       发表于 2022-8-10 11:12
+
+血包拍拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夏溪澪mio  
+##### 5279#       发表于 2022-8-10 11:12
+
+妈的要是打第三局午饭都吃完了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  scg2017  
+##### 5280#       发表于 2022-8-10 11:13
+
+跳上高地白给
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Keynes  
+##### 5281#       发表于 2022-8-10 11:13
+
+yysy这冰龙隐刀搞了不少节奏的，出大隐刀打一个崩盘了的伐木机只能说确实脑浆了
+
+*****
+
+####  弈秋  
+##### 5282#       发表于 2022-8-10 11:13
+
+太脑浆了
+
+*****
+
+####  百世诸侯  
+##### 5283#       发表于 2022-8-10 11:13
+
+对面有冰龙小精灵藏着，蓝猫已经动手了，鹏子以为自己跳上去跟蓝猫一起打能两下A死TS吗，一瞬间回到传奇切入了
+
+*****
+
+####  nightmare902015  
+##### 5284#       发表于 2022-8-10 11:13
+
+这两边打的真难看啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5285#       发表于 2022-8-10 11:13
+
+这两队打得也太下饭了
+
+*****
+
+####  morwhipppo  
+##### 5286#       发表于 2022-8-10 11:13
+
+杜鹏又要玩万元户了嘛
+
+*****
+
+####  迷途lite  
+##### 5287#       发表于 2022-8-10 11:13
+
+好啊，女装C一波团就打了个换血的输出
+
+球博士这个薄葬真的行的
+
+*****
+
+####  甩不出去的黄牌  
+##### 5288#       发表于 2022-8-10 11:13
+
+起床看茶X
+边吃中饭边品茶√
+又是五十分钟向上的局呀<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  BallanceHZ  
+##### 5289#       发表于 2022-8-10 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001977&amp;ptid=2084957" target="_blank">迷途lite 发表于 2022-8-10 11:13</a>
+好啊，女装C一波团就打了个换血的输出
+
+球博士这个薄葬真的行的</blockquote>
+q博士以前不是说cdec.q的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 5290#       发表于 2022-8-10 11:14
+
+你们对我的偶像T神是不是有什么误解<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 5291#       发表于 2022-8-10 11:14
+
+鳖到五级装备出来被对面翻盘就搞笑了。
+
+*****
+
+####  蛭人  
+##### 5292#       发表于 2022-8-10 11:14
+
+我吐了，TB有A杖不开，开个变身是吧？
+
+*****
+
+####  Bernoulli  
+##### 5293#       发表于 2022-8-10 11:14
+
+冰龙、牛头、魔晶老鹿这个高地真是赖啊。
+
+*****
+
+####  天妇罗  
+##### 5294#       发表于 2022-8-10 11:14
+
+不会打先手是这样的
+
+*****
+
+####  北条早苗  
+##### 5295#       发表于 2022-8-10 11:14
+
+杜鹏这个变身伏笔了
+
+*****
+
+####  nxmonitor  
+##### 5296#       发表于 2022-8-10 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001968&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-10 11:13</a>
+
+yysy这冰龙隐刀搞了不少节奏的，出大隐刀打一个崩盘了的伐木机只能说确实脑浆了 ...</blockquote>
+伐木机都被拍拍制裁了，直接走A杖比较好的，生存输出都有……
+
+*****
+
+####  nightmare902015  
+##### 5297#       发表于 2022-8-10 11:15
+
+这样开变身，上高又要两分钟后了，恶心人
+
+*****
+
+####  marscat  
+##### 5298#       发表于 2022-8-10 11:15
+
+又鳖起来了
+
+*****
+
+####  迷途lite  
+##### 5299#       发表于 2022-8-10 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001984&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-10 11:13</a>
+
+q博士以前不是说cdec.q的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">我的我的，脑浆叫顺嘴了
+
+*****
+
+####  沈淮  
+##### 5300#         楼主| 发表于 2022-8-10 11:15
+
+还得是看ori
+
+*****
+
+####  山上徹也  
+##### 5301#       发表于 2022-8-10 11:16
+
+这五十分钟带个双刀是何意
+
+*****
+
+####  scg2017  
+##### 5302#       发表于 2022-8-10 11:16
+
+鳖茶赢了团怎么推不了啊？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 5303#       发表于 2022-8-10 11:17
+
+茶这上高只能说前几天RNG太抢风头了，真没有好到哪里去好吧……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 5304#       发表于 2022-8-10 11:17
+
+肉山也想下班<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 5305#       发表于 2022-8-10 11:17
+
+蓝猫没买了，要打盾
+
+*****
+
+####  名字不乱取  
+##### 5306#       发表于 2022-8-10 11:17
+
+再憋下去憋出机械之心了
+
+*****
+
+####  Cantha  
+##### 5307#       发表于 2022-8-10 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">千万别是rng剧本啊
+
+*****
+
+####  smkf013  
+##### 5308#       发表于 2022-8-10 11:17
+
+不会真是打满三小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5309#       发表于 2022-8-10 11:18
+
+A杖不给戴泽？
+
+*****
+
+####  Litccc  
+##### 5310#       发表于 2022-8-10 11:18
+
+a给戴泽啊，可以给队友刷bkb的
+
+
+
+*****
+
+####  聚散浮云  
+##### 5311#       发表于 2022-8-10 11:18
+
+ 本帖最后由 聚散浮云 于 2022-8-10 11:20 编辑 
+
+A杖给土猫戴泽都比这个伐木机有用太多了吧
+
+哦哦土猫已经有了
+
+*****
+
+####  沈淮  
+##### 5312#         楼主| 发表于 2022-8-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002034&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-10 11:16</a>
+
+这五十分钟带个双刀是何意</blockquote>
+不带双刀等着被拍拍秒吗 还是指望戴泽波波救命？
+
+*****
+
+####  Bernoulli  
+##### 5313#       发表于 2022-8-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002043&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-10 11:17</a>
+
+茶这上高只能说前几天RNG太抢风头了，真没有好到哪里去好吧……</blockquote>
+这属于睁眼说瞎话了吧。
+
+*****
+
+####  Keynes  
+##### 5314#       发表于 2022-8-10 11:19
+
+野王牛啊
+
+*****
+
+####  弈秋  
+##### 5315#       发表于 2022-8-10 11:19
+
+还得是ori
+
+*****
+
+####  Cantha  
+##### 5316#       发表于 2022-8-10 11:19
+
+好！
+
+*****
+
+####  迷途lite  
+##### 5317#       发表于 2022-8-10 11:19
+
+为了让漏油们有鱼摸，aster选择从上班打到下班
+
+他真的。。。
+
+*****
+
+####  迷途lite  
+##### 5318#       发表于 2022-8-10 11:19
+
+nm说完就结束了还行
+
+*****
+
+####  一品堂官  
+##### 5319#       发表于 2022-8-10 11:19
+
+太鳖啦 下午茶品起<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 5320#       发表于 2022-8-10 11:19
+
+太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">小茶叶落泪
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  外挂全家脚气  
+##### 5321#       发表于 2022-8-10 11:19
+
+可以，这把茶打得不错，虽然中期有点迷路
+
+*****
+
+####  白野苍衣  
+##### 5322#       发表于 2022-8-10 11:19
+
+鳖茶真的是输赢都那么艰难
+
+*****
+
+####  北条早苗  
+##### 5323#       发表于 2022-8-10 11:19
+
+蓝猫的胜率就是这么刷上来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过fnc的冰龙是真的内鬼
+
+*****
+
+####  BallanceHZ  
+##### 5324#       发表于 2022-8-10 11:19
+
+相当难看的比赛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超法拉  
+##### 5325#       发表于 2022-8-10 11:20
+
+fnc这配置守高是真的厉害
+bp还是出了点大问题 最后一手不ban拍拍太难打了
+
+*****
+
+####  Litccc  
+##### 5326#       发表于 2022-8-10 11:20
+
+脑浆乱飞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 5327#       发表于 2022-8-10 11:20
+
+太难了,差点又60分钟,国内这些队上高怎么就这么难.
+
+*****
+
+####  夏溪澪mio  
+##### 5328#       发表于 2022-8-10 11:20
+
+上班都没那么困<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  scg2017  
+##### 5329#       发表于 2022-8-10 11:20
+
+刷新恐怖心潮有点意思
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 5330#       发表于 2022-8-10 11:20
+
+不是这bp就决定了茶队打团上高都很难吧，fnc这两个团战型酱油，打成这样我觉得已经超出我预期了
+
+*****
+
+####  沈淮  
+##### 5331#         楼主| 发表于 2022-8-10 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这冰龙就是智障中的智障 我懒得说了都
+
+*****
+
+####  xuzy0919  
+##### 5332#       发表于 2022-8-10 11:21
+
+只能说比RNG还是强多了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

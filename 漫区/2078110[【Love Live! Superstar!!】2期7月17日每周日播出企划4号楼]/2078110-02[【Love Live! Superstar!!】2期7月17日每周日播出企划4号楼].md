@@ -8389,3 +8389,36 @@ nt素材不只有星，就是喜欢逮着星的小鬼编鬼话罢了<img src="ht
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个接一接的
 
+
+
+*****
+
+####  adw667  
+##### 2327#       发表于 2022-8-10 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001316&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-8-10 10:40</a>
+
+照片有啥好讲的，单纯回想自己以前又土又胖，运动也不好，觉得自己不适合当学院偶像而已，这个还有必要浪费 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那可是樱小路啊
+
+*****
+
+####  Enakina  
+##### 2328#       发表于 2022-8-10 11:12
+
+好家伙，和小百合接班了，小百合9号回来，青山9号回去
+
+*****
+
+####  Enakina  
+##### 2329#       发表于 2022-8-10 11:16
+
+Nako应该没事吧，可别整个三冠王
+
+*****
+
+####  ViyViy  
+##### 2330#       发表于 2022-8-10 11:19
+
+BA5不好说啊，能反复感染的，就日本这摆法除非BA5原地消失不然以后基本别想开活动了吧？
+
