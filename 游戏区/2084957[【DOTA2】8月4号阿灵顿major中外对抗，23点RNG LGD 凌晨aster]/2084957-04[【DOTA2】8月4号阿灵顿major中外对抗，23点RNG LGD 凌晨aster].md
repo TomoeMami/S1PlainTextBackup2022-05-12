@@ -4643,3 +4643,110 @@ vp这阵容肯定急啊，ta没节奏就突出一个寄
 
 gpk这把打了半局完美的个人节奏然后一泻千里，也不失为一条好汉
 
+
+
+*****
+
+####  Aeons  
+##### 5052#       发表于 2022-8-10 09:23
+
+gpk后面直接尿裤，鉴定为急了
+
+*****
+
+####  walfeds  
+##### 5053#       发表于 2022-8-10 09:23
+
+只能说真的敢给666选大锤，太神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gpk单骑到最后还是尿了
+
+*****
+
+####  一品堂官  
+##### 5054#       发表于 2022-8-10 09:23
+
+太好了 雪碧我的安全带<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 5055#       发表于 2022-8-10 09:25
+
+去液体维基看了眼，除了雪碧确保名额，石头人也躺进了
+
+现在还剩五个席位，留下的时间不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5056#       发表于 2022-8-10 09:26
+
+ts这后期处理基本算是复健成功了，今年能不能出成绩就看东京哥到ti还能不能开启🌸模式了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Thio  
+##### 5057#       发表于 2022-8-10 09:27
+
+TS这无盾上高也太果断了吧
+
+*****
+
+####  北条早苗  
+##### 5058#       发表于 2022-8-10 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000168&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-10 09:25</a>
+去液体维基看了眼，除了雪碧确保名额，石头人也躺进了
+
+现在还剩五个席位，留下的时间不多了 ...</blockquote>
+boom都基本上线了，rng和vp必死一个，而且rng必须进六强
+
+*****
+
+####  香蕉芭菲  
+##### 5059#       发表于 2022-8-10 09:28
+
+gpk肯定急啊，这把全靠他了。中期肉山那波被抽满了攻击还要跳上去太不理智了。不过我觉得这把最大问题还是出在666，大锤这个熟练度真的上不了比赛
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  百世诸侯  
+##### 5060#       发表于 2022-8-10 09:28
+
+<img src="https://img.saraba1st.com/forum/202208/10/092849zzzfaz6b7jxja9z7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 09:28 上传
+
+*****
+
+####  nowaki  
+##### 5061#       发表于 2022-8-10 09:28
+
+猫鼠游戏4.0了
+
+*****
+
+####  asd235614  
+##### 5062#       发表于 2022-8-10 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">GPK感觉从那波被电魂抽攻抽满之后还想跳上去补人送了开始脑子就已经不够用了
+
+*****
+
+####  百世诸侯  
+##### 5063#       发表于 2022-8-10 09:30
+
+Aster赢fnatic就够了，RNG需要赢VP和Aster/fnatic进六强
+
+*****
+
+####  subject07  
+##### 5064#       发表于 2022-8-10 09:31
+
+rng打vp这场面好看了，脑浆与肌肉的碰撞，极地大乱斗了属于是
+
