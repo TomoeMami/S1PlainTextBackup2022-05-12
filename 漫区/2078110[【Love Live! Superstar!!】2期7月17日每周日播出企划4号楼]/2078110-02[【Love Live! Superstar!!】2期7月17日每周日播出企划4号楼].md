@@ -8644,3 +8644,15 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真走孩子路线的偶活，第一年那营收杠杠的，虽然现在也嘎了
 
+
+
+*****
+
+####  lj205  
+##### 2355#       发表于 2022-8-10 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003718&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-8-10 12:57</a>
+
+一巡box国内拿到手了，有点小失望。tb代购订的太迟所以我这边拿不到那份双面店铺共通海报 ...</blockquote>
+没海报单买BOX不如收二手
+
