@@ -10414,3 +10414,14 @@ ti5放弃了可能是夺冠机会最大的队友，ti6一起哈啤，ti7yao不�
 
 是不是又蓝字了
 
+
+
+*****
+
+####  acg_s1  
+##### 5737#       发表于 2022-8-10 22:28
+
+[TOP 15 Plays of PGL Arlington Major 2022 Dota 2 [Group Stage]](https://www.youtube.com/watch?v=xBpBP3-_wik)
+
+看这个小组赛的top 15感觉vp好猛，脑浆都打炸了，rng很悬
+

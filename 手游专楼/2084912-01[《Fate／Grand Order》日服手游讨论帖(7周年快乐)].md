@@ -6965,3 +6965,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 </blockquote>
 社长现在就是各种复制粘贴摸的透彻  周年的公主有时看着真TMD像长发金先生
 
+
+
+*****
+
+####  里村紅葉  
+##### 669#       发表于 2022-8-10 22:29
+
+草，今天这活动突然发现这巴洁特画的有点像肯主任媳妇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
