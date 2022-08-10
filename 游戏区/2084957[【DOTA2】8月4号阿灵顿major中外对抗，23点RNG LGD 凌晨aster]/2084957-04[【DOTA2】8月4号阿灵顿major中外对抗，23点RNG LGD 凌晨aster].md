@@ -11253,3 +11253,41 @@ syl，我觉得正常BP能赢vp的，666关键英雄ban完就废了
 
 槽 boom给点力啊 虽然rng气得我心脏疼 好歹多一个中国队抢外国佬的钱啊
 
+
+
+*****
+
+####  TIZI  
+##### 5836#       发表于 2022-8-11 01:32
+
+月鳖以前在lgd那会感觉还挺有灵性的，这才几年就感觉退化的完全没打过职业，跟弹幕辩论也是各种脑浆发言<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+铁血小超人缩地就完事了，嘴又笨，又不会处理节奏，这时候出来撞枪口干嘛，唉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aeons  
+##### 5837#       发表于 2022-8-11 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">正处直播看帖还念了几句，玄月似乎有点急了
+
+*****
+
+####  UnhappyTails  
+##### 5838#       发表于 2022-8-11 01:41
+
+薛志川的逆天程度比不上林子凯万分之一，林子凯才是真正的老贪
+
+*****
+
+####  windhawind2  
+##### 5839#       发表于 2022-8-11 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013553&amp;ptid=2084957" target="_blank">TIZI 发表于 2022-8-11 01:32</a>
+
+月鳖以前在lgd那会感觉还挺有灵性的，这才几年就感觉退化的完全没打过职业，跟弹幕辩论也是各种脑浆发言[f: ...</blockquote>
+只能说op确实能使大脑退化。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ka神当时看那个轰鸣贴拷打时直接来句 是哪里来的杂毛也敢评价 玄月直接说杰出低分猪不配拷打就卵事无 非说那么多p话给弹幕抓痛脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

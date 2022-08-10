@@ -7404,3 +7404,22 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 伊吹这趴姿没捏他罪恶装备我是不信的，这种角色设计是不是基本都是画师拿主意的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 708#       发表于 2022-8-11 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013170&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-11 00:40</a>
+
+隔壁有人失心疯了吧，蓝莓连卑梅呆里的红梅都不一定取代得了，居然有人说可以把卑弥呼替代了？为什么老要抓 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不云个队伍他们难受啊
+
+*****
+
+####  eden_hazard  
+##### 709#       发表于 2022-8-11 01:39
+
+600石3宝旧梅2宝加雷斯外加一个C狐，不抽了，等水cba
+
