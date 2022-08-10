@@ -8753,3 +8753,12 @@ op首周才一万三…………
 其实那些小玩意说不定或许可以吧（？），跳绳，毛巾看起来不也挺好的吗 ...</blockquote>
 但这也太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2365#       发表于 2022-8-10 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以给nagi预定2期的VIP喷位了
+

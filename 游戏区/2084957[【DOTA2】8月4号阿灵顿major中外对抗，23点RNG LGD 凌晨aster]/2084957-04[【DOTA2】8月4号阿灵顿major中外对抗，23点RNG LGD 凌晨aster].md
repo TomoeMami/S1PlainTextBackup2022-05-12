@@ -9532,3 +9532,16 @@ QQ图片20220810181047.jpg
 
 <img src="https://img.saraba1st.com/forum/202208/10/181056a2z99abbr51pqr95.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 5639#       发表于 2022-8-10 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007609&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-10 18:00</a>
+我记得有一个主角是党委华</blockquote>
+连击刀蚂蚁确实是党伟华先说的，后来其他解说拿来当笑话讲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
