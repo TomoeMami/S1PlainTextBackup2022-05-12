@@ -6862,3 +6862,19 @@ md，不让用信用卡了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么就这3个本  没的刷啊
 
+
+
+*****
+
+####  kiralzb  
+##### 658#       发表于 2022-8-10 21:47
+
+充了两单才出，加起来800多石应该，后面还有两个池，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 659#       发表于 2022-8-10 21:48
+
+呼符没出货，果断放弃，反正强度党无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
