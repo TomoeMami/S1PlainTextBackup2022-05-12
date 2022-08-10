@@ -9417,3 +9417,32 @@ VPGAME其实早就炸了，我甚至觉得那一波人有可能是水厂弄出�
 
 查理斯直播说过很多俱乐部都有水军的。
 
+
+
+*****
+
+####  nowaki  
+##### 5628#       发表于 2022-8-10 17:37
+
+弄个假赛节奏让整个刀圈都挨骂，总有愣头青跳出来说别魔障了，到时候火力就转移了，水厂只要憋到lgd开始赢比赛就能继续跳出来营业饭圈了。
+
+*****
+
+####  名字不乱取  
+##### 5629#       发表于 2022-8-10 17:41
+
+这几年国内刀圈流量最大的时候应该是假赛风波，最乐的是我和撸狗朋友聊到这个，他们问是不是傻逼，没锤的事情自己认下来，以后擦屁股都没擦，甩锅都不知道往哪甩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 5630#       发表于 2022-8-10 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006568&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-10 17:44</a>
+我就这么说吧，前几年总有人说ob是吸血鬼。
+
+这帮铁血姐妹自媒体，什么阿林，思思，紫姨。
+
+环境姐妹化他们也 ...</blockquote>
+这些人都是直接从lgd拿钱的，怎么能算吸血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

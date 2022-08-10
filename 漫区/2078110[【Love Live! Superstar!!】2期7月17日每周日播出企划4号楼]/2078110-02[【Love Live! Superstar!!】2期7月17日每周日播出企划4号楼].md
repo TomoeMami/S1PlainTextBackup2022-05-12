@@ -8723,3 +8723,14 @@ op首周才一万三…………
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  adw667  
+##### 2362#       发表于 2022-8-10 17:33
+
+ 本帖最后由 adw667 于 2022-8-10 17:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跨国追星的时候圈内老人心照不宣的规则对新人来说都需要付诸行动去摸索这个现象倒是让我想起不少游戏也这样
+
