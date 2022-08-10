@@ -7445,3 +7445,17 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了10个呼符 NEW了个红A 笑死
 
+
+
+*****
+
+####  alucardcz  
+##### 712#       发表于 2022-8-11 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013891&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-11 02:58</a>
+
+半夜回到家打开废狗抽卡.....又是差不多接近一井才出梅莉...这辣鸡游戏我无话可说了
+
+罢了存石吧... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么又出货了 你变了!
+
