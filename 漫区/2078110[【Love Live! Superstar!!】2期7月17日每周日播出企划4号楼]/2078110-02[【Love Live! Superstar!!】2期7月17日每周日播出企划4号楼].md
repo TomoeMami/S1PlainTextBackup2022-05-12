@@ -8669,3 +8669,17 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 2357#       发表于 2022-8-10 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003902&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-10 13:12</a>
+
+因为说的是小孩子嘛，所以我设想的就是大人买给小孩子
+
+话说回来如果星的动画能整成合家欢，感觉或 ...</blockquote>
+想在低龄段挣钱，你好歹弄个变身道具。
+
