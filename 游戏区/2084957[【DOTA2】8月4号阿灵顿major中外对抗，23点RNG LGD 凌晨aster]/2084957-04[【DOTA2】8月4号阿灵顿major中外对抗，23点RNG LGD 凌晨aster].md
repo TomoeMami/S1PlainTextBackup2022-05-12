@@ -11741,3 +11741,41 @@ rng再鳖个两小时fnc打完又中午了，脑浆赛制
 rng再鳖个两小时fnc打完又中午了，脑浆赛制</blockquote>
 FNC今天晚上才打
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 5897#       发表于 2022-8-11 06:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014125&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-11 06:09</a>
+
+rng再鳖个两小时fnc打完又中午了，脑浆赛制</blockquote>
+今天只有3个BO3，RNG这个系列赛打完就没了
+
+因为下轮胜者组的比赛只有4个队伍打两个BO3，所以败者组第一轮会留一场到明天
+
+*****
+
+####  やト  
+##### 5898#       发表于 2022-8-11 06:20
+
+<img src="https://img.saraba1st.com/forum/202208/11/062021bhj0hwtm8xumfjfm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 06:20 上传
+
+*****
+
+####  UnhappyTails  
+##### 5899#       发表于 2022-8-11 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014130&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 06:12</a>
+今天只有3个BO3，RNG这个系列赛打完就没了
+
+因为下轮胜者组的比赛只有4个队伍打两个BO3，所以败者组第一轮 ...</blockquote>
+那还行，最晚中午就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
