@@ -9013,3 +9013,22 @@ https://bbs.nga.cn/read.php?tid=32992461                        
 
 [XINQ赛后采访](https://www.bilibili.com/video/BV18a411o7bd?vd_source=ecf1ca9dee9d5ca6b7ec4c3dbbe01f51)
 
+
+
+*****
+
+####  反方向的波  
+##### 5588#       发表于 2022-8-10 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">没空看完整录像稍微看了一小下，感觉把脑浆射干的更应该是张志成而不是杜软，顶着前面明牌的拉稀克牛头冰龙18手伐木机24手tb真牛逼啊
+
+*****
+
+####  Bernoulli  
+##### 5589#       发表于 2022-8-10 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57005946&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-10 16:04</a>
+
+没空看完整录像稍微看了一小下，感觉把脑浆射干的更应该是张志成而不是杜软，顶着前面明牌的拉稀克 ...</blockquote>
+负重训练了
+
