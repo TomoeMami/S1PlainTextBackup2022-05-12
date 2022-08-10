@@ -9077,3 +9077,103 @@ https://bbs.nga.cn/read.php?tid=32992461                        
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杰出又发了个直播时拷打RNG的录像 看完之后血压更高了
 
+
+
+*****
+
+####  尸体鲨  
+##### 5593#       发表于 2022-8-10 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚陀螺看起来像个4chan资深用户
+
+*****
+
+####  CNFH1984  
+##### 5594#       发表于 2022-8-10 16:44
+
+我就这么说吧，前几年总有人说ob是吸血鬼。
+
+这帮铁血姐妹自媒体，什么阿林，思思，紫姨。
+
+环境姐妹化他们也有一份功劳，怎么不见有人骂吸血鬼了？
+
+ti10我装死一个月，a符号和皮套人整活天天比谁剪的快加字幕好。
+
+我看这帮人才是真吸血鬼，迟早把环境血奴化
+
+*****
+
+####  thistimeforlife  
+##### 5595#       发表于 2022-8-10 16:46
+
+yatoro几个月前就带着茶队应援
+
+水厂连ceb和yatoro这种顶级阴阳人都拿来当吹哥哥的材料，我哭死
+
+*****
+
+####  桐道悠  
+##### 5596#       发表于 2022-8-10 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006568&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-10 16:44</a>
+
+我就这么说吧，前几年总有人说ob是吸血鬼。
+
+这帮铁血姐妹自媒体，什么阿林，思思，紫姨。
+
+环境姐妹化他们也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完美和V社都不怎么管，怎么办呢？只能野蛮生长了。
+
+好消息是完美三姐妹似乎要变成四姐妹了，管人喜加一。
+
+*****
+
+####  为了mf注册  
+##### 5597#       发表于 2022-8-10 16:47
+
+看了一眼，这视频下面已经开始发大水了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5598#       发表于 2022-8-10 16:48
+
+别说了，毕竟和ru水流量大啊，大乌龟多少点击量，这视频直接20万，我只能说刀圈水军只服水厂。
+
+<img src="https://img.saraba1st.com/forum/202208/10/164800lfgluaqwquauz7zf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 16:48 上传
+
+*****
+
+####  ArowRocher  
+##### 5599#       发表于 2022-8-10 16:50
+
+吸血论这么多年了，到底吸了谁呢，总不能是吸了gabe吧。当然我支持不直播dota别在dota分类里。
+
+*****
+
+####  CNFH1984  
+##### 5600#       发表于 2022-8-10 16:50
+
+还有杰出……唉，希望a符号再一次杀人诛心的时候，杰畜也能高高兴兴的给大家办小丑开一起地下dota！
+
+*****
+
+####  thistimeforlife  
+##### 5601#       发表于 2022-8-10 16:51
+
+<img src="https://img.saraba1st.com/forum/202208/10/165058wap8vndzwhkvrw6h.jpg" referrerpolicy="no-referrer">
+
+<strong>ceb.jpg</strong> (70.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 16:50 上传
+
+《ceb承认ti8lgd硬实力更强》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
