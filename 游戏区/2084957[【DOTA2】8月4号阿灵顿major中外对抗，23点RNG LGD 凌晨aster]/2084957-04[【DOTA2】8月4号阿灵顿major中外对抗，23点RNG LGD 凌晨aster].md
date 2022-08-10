@@ -11187,3 +11187,37 @@ boom感觉就是来跑龙套的，看不出有多少求胜欲<img src="https://s
 
 syl，我觉得正常BP能赢vp的，666关键英雄ban完就废了
 
+
+
+*****
+
+####  弈秋  
+##### 5828#       发表于 2022-8-11 00:54
+
+紫毛帕克怎么挨刀呢
+
+*****
+
+####  excalibur--  
+##### 5829#       发表于 2022-8-11 00:55
+
+不学v的四号位小小？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sohryu  
+##### 5830#       发表于 2022-8-11 00:58
+
+泥潭有DOTA群吗，
+
+*****
+
+####  pikamee  
+##### 5831#       发表于 2022-8-11 00:58
+
+忍不住看rng表演了
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
