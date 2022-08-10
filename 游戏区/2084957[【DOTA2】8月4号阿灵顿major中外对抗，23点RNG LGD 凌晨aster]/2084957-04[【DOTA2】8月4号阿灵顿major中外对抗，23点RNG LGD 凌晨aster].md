@@ -11130,3 +11130,19 @@ Boom这波就脑浆了，不记盾时间的吗？</blockquote>
 最后一个肉山？那波不是不记而是boom这边ck没有bkb接不了肉山团，放了是正确选择。 ...</blockquote>
 实际上之前那波就不应该打的，都快刷盾了还是硬上，更迷的是没盾上有盾的高地……
 
+
+
+*****
+
+####  名字不乱取  
+##### 5821#       发表于 2022-8-11 00:38
+
+boom这队脑子里装的是不是豆腐花，一开始还是成块的脑子，打着打着摇成脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_s1  
+##### 5822#       发表于 2022-8-11 00:39
+
+boom感觉就是来跑龙套的，看不出有多少求胜欲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
