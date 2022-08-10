@@ -4974,3 +4974,90 @@ steam又开始周常维护了，服了
 
 啊，还有周常维护的说法吗
 
+
+
+*****
+
+####  a1370303  
+##### 5093#       发表于 2022-8-10 09:51
+
+怎么还没开<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 5094#       发表于 2022-8-10 09:52
+
+每周三早上准时爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5095#         楼主| 发表于 2022-8-10 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">最司马的还是更新完之后进去没几分钟提示你再更新steam
+
+*****
+
+####  白野苍衣  
+##### 5096#       发表于 2022-8-10 09:53
+
+然而靠鳖能赢比赛的都是擅长打防守反击的队，鳖茶中后期节奏一坨屎。
+
+*****
+
+####  4591  
+##### 5097#       发表于 2022-8-10 09:53
+
+完了,刀塔更新出问题了,都是几B在走,13MB我这里下了十来分钟了....我估计现场也是一样,所以到现在都没开.
+
+*****
+
+####  山上徹也  
+##### 5098#       发表于 2022-8-10 09:54
+
+看好茶2:0
+
+*****
+
+####  IG.430  
+##### 5099#       发表于 2022-8-10 09:55
+
+开uu加速器steam登录异常节点，再断开，就可以爽下载了
+
+*****
+
+####  thistimeforlife  
+##### 5100#       发表于 2022-8-10 09:56
+
+有杜鹏儿在 茶的中后期出问题毫不奇怪
+
+小组赛茶大多数时候就是线优推进，ori带队扫图干赢的节奏，不是最后打boom那2把太过丑陋，整体还不算鳖
+
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 5101#       发表于 2022-8-10 09:56
+
+我也这样 硬是超低速下了半个小时下完了
+
+*****
+
+####  吃货红毛  
+##### 5102#       发表于 2022-8-10 09:58
+
+赛前狂暴拧绳啊www ：千万不能输东南亚辣
+
+*****
+
+####  a1370303  
+##### 5103#       发表于 2022-8-10 10:00
+
+最近的小更新都更得很慢，还以为是我的问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
