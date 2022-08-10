@@ -11146,3 +11146,44 @@ boom这队脑子里装的是不是豆腐花，一开始还是成块的脑子，�
 
 boom感觉就是来跑龙套的，看不出有多少求胜欲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 5823#       发表于 2022-8-11 00:43
+
+我一开始以为**对线期被炼金打烂这把已经没这个人了。没想到对面还有一个随便交大推塔节奏稀烂的dp和对线期结束直接隐形的伐木机
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nowaki  
+##### 5824#       发表于 2022-8-11 00:44
+
+不是boom第一局干了液体么
+
+*****
+
+####  12481632  
+##### 5825#       发表于 2022-8-11 00:44
+
+月鳖锐评杰畜搞热度了呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5826#       发表于 2022-8-11 00:47
+
+又是紫猫帕克
+
+*****
+
+####  lmslardar  
+##### 5827#       发表于 2022-8-11 00:48
+
+液体输了好事啊，rng直接竞争对手，fnc和eg再输一个，rng赢vp就直邀了啊，前提是真的能赢vp。
+
+syl，我觉得正常BP能赢vp的，666关键英雄ban完就废了
+
