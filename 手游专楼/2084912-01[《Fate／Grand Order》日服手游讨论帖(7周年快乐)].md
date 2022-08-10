@@ -6934,3 +6934,34 @@ md，不让用信用卡了
 在这方面bgo赢的很透彻</blockquote>
 BGO唯二的优点就是账号登陆和千里眼攒石了
 
+
+
+*****
+
+####  kiralzb  
+##### 666#       发表于 2022-8-10 22:14
+
+好像还有有方法的，不过要备份啥的，看着就麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说这次社长是摸了3张最终卡面吗，灵衣不是立绘的话就更多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 667#       发表于 2022-8-10 22:18
+
+妈的97连才出梅林
+
+加雷斯3宝，1四星
+
+*****
+
+####  qixinno2  
+##### 668#       发表于 2022-8-10 22:20
+
+<blockquote>kiralzb 发表于 2022-8-10 22:14
+好像还有有方法的，不过要备份啥的，看着就麻烦
+
+</blockquote>
+社长现在就是各种复制粘贴摸的透彻  周年的公主有时看着真TMD像长发金先生
+
