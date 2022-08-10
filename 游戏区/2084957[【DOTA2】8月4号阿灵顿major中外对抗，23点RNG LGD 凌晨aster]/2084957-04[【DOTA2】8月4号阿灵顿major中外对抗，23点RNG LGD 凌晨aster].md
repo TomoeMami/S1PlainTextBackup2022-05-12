@@ -8886,3 +8886,60 @@ misha：我的吧我的吧</blockquote>
 卧槽？茶进ti了？晓菲今年去哪里请的菩萨介绍介绍啊</blockquote>
 ori扭转了因果律
 
+
+
+*****
+
+####  百世诸侯  
+##### 5574#       发表于 2022-8-10 13:53
+
+本子什么时候出，major打完能出吗？
+
+*****
+
+####  何然  
+##### 5575#       发表于 2022-8-10 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57004137&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-10 13:37</a>
+
+卧槽？茶进ti了？晓菲今年去哪里请的菩萨介绍介绍啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/10/135433ykrwn0ddq0gpgqdj.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20220810135404.jpg</strong> (131.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 13:54 上传
+
+*****
+
+####  名字不乱取  
+##### 5576#       发表于 2022-8-10 13:57
+
+懒狗社好像是说过今年比以前还要晚<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5577#         楼主| 发表于 2022-8-10 13:58
+
+上次说最迟9月3号更新游戏，本子应该也差不多
+
+*****
+
+####  何然  
+##### 5578#       发表于 2022-8-10 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57004304&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 13:53</a>
+
+本子什么时候出，major打完能出吗？</blockquote>
+盲猜和大更新一起出，快的话打完major就都有了？
+
+*****
+
+####  nowaki  
+##### 5579#       发表于 2022-8-10 14:02
+
+畜视界呢
+
