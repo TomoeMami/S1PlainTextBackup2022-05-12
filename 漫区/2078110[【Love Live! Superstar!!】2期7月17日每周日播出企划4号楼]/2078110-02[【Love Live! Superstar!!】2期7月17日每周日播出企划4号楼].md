@@ -8422,3 +8422,51 @@ Nako应该没事吧，可别整个三冠王
 
 BA5不好说啊，能反复感染的，就日本这摆法除非BA5原地消失不然以后基本别想开活动了吧？
 
+
+
+*****
+
+####  lj205  
+##### 2331#       发表于 2022-8-10 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草………………既然最近延迟的延迟取消的取消，我看其他星的宣传也没安排，鲤鱼应该很闲吧？干脆破站唠嗑呗
+
+*****
+
+####  仟音一心  
+##### 2332#       发表于 2022-8-10 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002037&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-10 11:16</a>
+Nako应该没事吧，可别整个三冠王</blockquote>
+那要看双N广播什么时候录的了，三进宫可能性还是很大的。
+
+*****
+
+####  仟音一心  
+##### 2333#       发表于 2022-8-10 11:35
+
+对了这周末还有C100
+
+*****
+
+####  寒风夜  
+##### 2334#       发表于 2022-8-10 11:36
+
+寄
+
+*****
+
+####  aoaoaodedede  
+##### 2335#       发表于 2022-8-10 11:36
+
+除了日本大环境的问题，Apollo Bay这个事务所怎么说也得背锅吧，我数了一下，从今年初到现在nagi这里，他们事务所已经有7位艺人感染过新冠了，他们事务所官网总共也只有14位艺人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 2336#       发表于 2022-8-10 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002316&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-10 11:30</a>
+草………………既然最近延迟的延迟取消的取消，我看其他星的宣传也没安排，鲤鱼应该很闲吧？干脆破 ...</blockquote>
+只是不能做露面的活动了，耽误了一个月时间，工作早就排到满了，原来7月那个bd talk抽选，现在都给排到晚上十点了，可见日程早就排满了
+
