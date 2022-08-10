@@ -10058,3 +10058,72 @@ g4g5的跌宕起伏，看完恍如隔世，尤其是g5那波肉山团之前的�
 
 设好闹钟的是不是想多了，7点能打起来算快
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 5696#       发表于 2022-8-10 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009498&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-10 20:36</a>
+
+设好闹钟的是不是想多了，7点能打起来算快</blockquote>
+就是定的晚一些的闹钟啊
+
+*****
+
+####  莉拉厨  
+##### 5697#       发表于 2022-8-10 20:45
+
+我估计六点半起来bp差不多就结束了
+
+*****
+
+####  tengshuo980  
+##### 5698#       发表于 2022-8-10 20:45
+
+超哥现在应该是步罡踏斗，向dota之神祈祷吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 5699#       发表于 2022-8-10 20:45
+
+集美眼中ti89LGD&gt;23458LGD，看来ti11夺冠的话，至少大于ti89了。
+
+*****
+
+####  阿垃垃圾历  
+##### 5700#       发表于 2022-8-10 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009644&amp;ptid=2084957" target="_blank">tengshuo980 发表于 2022-8-10 20:45</a>
+
+超哥现在应该是步罡踏斗，向dota之神祈祷吧
+
+—— 来自 S1Fun</blockquote>
+人估计现在在睡觉呢 美国那边才5 6点 
+
+
+
+*****
+
+####  超人苏坦纳  
+##### 5701#       发表于 2022-8-10 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008136&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 18:46</a>
+
+这皮套人直播有啥意思，分又不高，还喜欢杠弹幕，b站高分单排我只看youc</blockquote>
+编辑
+
+*****
+
+####  超人苏坦纳  
+##### 5702#       发表于 2022-8-10 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008096&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 18:42</a>
+
+我同时看ob4+2和杰畜解说，感觉要成为首陀罗了</blockquote>
+上一个在旧楼天天分享ob资讯的已经被砍头了 自重
+
