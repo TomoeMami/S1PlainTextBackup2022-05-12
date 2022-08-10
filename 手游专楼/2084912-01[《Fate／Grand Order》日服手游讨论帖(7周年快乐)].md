@@ -5624,3 +5624,117 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 灵衣也是一对一的...好麻烦...
 
+
+
+*****
+
+####  eden_hazard  
+##### 530#       发表于 2022-8-10 19:42
+
+什么sb三选一，还绑定灵衣<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 531#       发表于 2022-8-10 19:43
+
+舅舅要杀疯了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 532#       发表于 2022-8-10 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008735&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-10 19:42</a>
+
+三选一也太逼死强迫症了...当初机械龙娘是复刻才可以拿齐两只的，现在活动这么紧，鬼知道什么时候能轮到复 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在啊 可以黄方块（
+
+*****
+
+####  angelooo  
+##### 533#       发表于 2022-8-10 19:44
+
+三选一这是什么究极烂活，太恶心了
+
+*****
+
+####  areklose  
+##### 534#       发表于 2022-8-10 19:44
+
+看来三五星了。那就是加雷斯+女梅林。后面再2个五星池子
+
+*****
+
+####  khxooo  
+##### 535#       发表于 2022-8-10 19:44
+
+我可QNMLEGB,3选一
+
+*****
+
+####  areklose  
+##### 536#       发表于 2022-8-10 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的。我等不及了。难道斯卡蒂要下下周才能抽吗
+
+*****
+
+####  khxooo  
+##### 537#       发表于 2022-8-10 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008794&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-10 19:46</a>
+
+妈的。我等不及了。难道斯卡蒂要下下周才能抽吗</blockquote>
+还有狂阶的伊吹。
+
+*****
+
+####  eyeego  
+##### 538#       发表于 2022-8-10 19:49
+
+所以所谓的3五星真的是云玩家蘑菇把男人也算进去了喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 539#       发表于 2022-8-10 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008816&amp;ptid=2084912" target="_blank">eyeego 发表于 2022-8-10 19:49</a>
+
+所以所谓的3五星真的是云玩家蘑菇把男人也算进去了喽</blockquote>
+这次泳装池子只有1五星一四星。三个泳装池子概率很大。。
+
+*****
+
+####  alucardcz  
+##### 540#       发表于 2022-8-10 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008806&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-10 19:48</a>
+
+还有狂阶的伊吹。</blockquote>
+狂：伊吹
+
+术：武后
+
+伪：旧梅
+
+仇：绘里濑
+
+剑：加雷斯
+
+杀：瓦尔基里
+
+尺：斯卡蒂
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 真要全对了吗
+
+
+
+*****
+
+####  alucardcz  
+##### 541#       发表于 2022-8-10 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">道满up 3 5星了（
+
