@@ -7243,3 +7243,14 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 ”总结就是，除非你跟我一样打死都不想抓好友，否则就别 ...</blockquote>
 也就高难有用，可以替换C狐和花嫁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Urakawa  
+##### 693#       发表于 2022-8-10 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012071&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-10 23:08</a>
+说起来梅莉吃奥宝的被动debuff不</blockquote>
+不吃，被动debuff只针对魔术师150<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
