@@ -11660,3 +11660,84 @@ EG又被干了...<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 好的 下一把看超哥了 
 
+
+
+*****
+
+####  haruhiismer  
+##### 5887#       发表于 2022-8-11 06:02
+
+我的影魔王rtz还给我<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 5888#       发表于 2022-8-11 06:02
+
+哇，这个跳刀小小，a/，哎，我就是要大隐刀，公式化出装
+
+*****
+
+####  lyjssj  
+##### 5889#       发表于 2022-8-11 06:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢VP进TI的前置条件已经满足了，就看RNG自己的造化了
+
+*****
+
+####  山上徹也  
+##### 5890#       发表于 2022-8-11 06:03
+
+还有理论出线可能，要么fanatic明天淘汰，要么下把vp赢rng，然后再下一轮vp淘汰，eg刚好第十二
+
+*****
+
+####  吃货红毛  
+##### 5891#       发表于 2022-8-11 06:05
+
+自然醒得正是时候嗷 rng启动！来自: iPhone客户端
+
+*****
+
+####  hcf220  
+##### 5892#       发表于 2022-8-11 06:06
+
+这把mxo和集美必看啊。
+
+其实我觉得rng还是有点机会吧，这队伍前20分钟还是有点实力的，沟通改善点应该还是不会太怕vp吧
+
+不过vp也挺需要这点分的，如果20分钟rng劣了估计就挺难的
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 5893#       发表于 2022-8-11 06:08
+
+随着EG输掉，我想看到的角斗士也回去打预选的西欧超级暗锅也随之消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 5894#       发表于 2022-8-11 06:09
+
+rng再鳖个两小时fnc打完又中午了，脑浆赛制
+
+*****
+
+####  kyl2001  
+##### 5895#       发表于 2022-8-11 06:10
+
+睡了，醒来又是一队回家
+
+*****
+
+####  外挂全家脚气  
+##### 5896#       发表于 2022-8-11 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014125&amp;ptid=2084957" target="_blank">UnhappyTails 发表于 2022-8-11 06:09</a>
+
+rng再鳖个两小时fnc打完又中午了，脑浆赛制</blockquote>
+FNC今天晚上才打
+
