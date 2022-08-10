@@ -8712,3 +8712,14 @@ op首周才一万三…………
 
 是的，我没买，钱都留给鲤鱼三单<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 2361#       发表于 2022-8-10 17:28
+
+不说别的，这op这么拉凭啥能销量高。我拿那钱买别的谷子不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

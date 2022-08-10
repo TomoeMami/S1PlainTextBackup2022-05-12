@@ -9351,3 +9351,69 @@ TI10说过呀，绝活碰绝活没打过。具体复盘我没看到过。至于�
 
 连官方解说都好几个混子，解说比赛不去了解双方队伍背景，只会套用水友的词，更别说杰出这种，蹭一蹭流量混口饭吃，不过愿意喝ru厂的水，还是过于无耻了。
 
+
+
+*****
+
+####  ArowRocher  
+##### 5622#       发表于 2022-8-10 17:24
+
+如果有水厂的MCN打钱，那确实算喝了。如果只是抓着ame和maybe狂吃流量，那跟dota有关的up博主都这样。
+
+*****
+
+####  lyuhiu  
+##### 5623#       发表于 2022-8-10 17:27
+
+倒不如说现在刀圈就看这点流量了，原来nigma整活的时候还能编排一下，现在接到狗大户赞助了就巨摆没什么聊的。
+
+*****
+
+####  43453  
+##### 5624#       发表于 2022-8-10 17:27
+
+不是很懂国外直播，话说t字头的直播平台每场比赛是不是只有几万人看？都是仅次TI的赛事了有点凉啊
+
+*****
+
+####  一品堂官  
+##### 5625#       发表于 2022-8-10 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007135&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 17:24</a>
+
+如果有水厂的MCN打钱，那确实算喝了。如果只是抓着ame和maybe狂吃流量，那跟dota有关的up博主都这样。 ...</blockquote>
+nga百分百是喝了的 就是没想到出了假赛节奏
+
+搞得很多人喊举报vp属于炸到自己头上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 5626#       发表于 2022-8-10 17:30
+
+<img src="https://img.saraba1st.com/forum/202208/10/173017pf17pp4s58068c6c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (287.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 17:30 上传
+
+开赛以来大致如此
+
+link：[https://sullygnome.com/game/Dota_2](https://sullygnome.com/game/Dota_2)
+
+*****
+
+####  ArowRocher  
+##### 5627#       发表于 2022-8-10 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007203&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-10 17:28</a>
+
+nga百分百是喝了的 就是没想到出了假赛节奏
+
+搞得很多人喊举报vp属于炸到自己头上了 ...</blockquote>
+VPGAME其实早就炸了，我甚至觉得那一波人有可能是水厂弄出来转移赛后节奏的。
+
+查理斯直播说过很多俱乐部都有水军的。
+
