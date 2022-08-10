@@ -7854,3 +7854,239 @@ Rng是要前3还是前6
 
 xg客厅滑跪
 
+
+
+*****
+
+####  Damocles990609  
+##### 5463#       发表于 2022-8-10 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">rng给点力，我想看森哥上ti
+
+*****
+
+####  BallanceHZ  
+##### 5464#       发表于 2022-8-10 12:12
+
+赢了就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 5465#       发表于 2022-8-10 12:12
+
+丁聪赶紧发大力进ti，除了A厨和A➗，dy X ori这俩也是真的握手局啊。
+
+*****
+
+####  lyjssj  
+##### 5466#       发表于 2022-8-10 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng这个班子在这届major我感觉是没啥戏了，安心回家预选还是
+
+*****
+
+####  白笛之音  
+##### 5467#       发表于 2022-8-10 12:12
+
+<blockquote>战狼PTSD 发表于 2022-8-10 12:10
+你们为什么说国内队安心了
+
+不是还有个RNG么</blockquote>
+rng铁回来打预选就不是安心吗
+
+*****
+
+####  沈淮  
+##### 5468#         楼主| 发表于 2022-8-10 12:12
+
+明天早上5点的rng，按照这个比赛效率，好像早上醒了能看
+
+*****
+
+####  山上徹也  
+##### 5469#       发表于 2022-8-10 12:12
+
+东南亚两个队要是都一轮游了可能今年一个直邀都没有
+
+*****
+
+####  Litccc  
+##### 5470#       发表于 2022-8-10 12:13
+
+rng得前六才能直邀吧，基本没戏了
+
+*****
+
+####  nxmonitor  
+##### 5471#       发表于 2022-8-10 12:13
+
+第二把这FNC的阵容就蛇了啊，这年代还选火女的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 5472#       发表于 2022-8-10 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003036&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-10 12:11</a>
+
+Rng是要前3还是前6
+
+感觉没啥希望的</blockquote>
+RNG需要前六,如果XG来,需要进决赛.
+
+*****
+
+####  战狼PTSD  
+##### 5473#       发表于 2022-8-10 12:14
+
+XG IG RNG
+
+三个G预选大乱斗了
+
+不过按照状态看起来 最可能出预选的还是RNG啊
+
+*****
+
+####  nowaki  
+##### 5474#       发表于 2022-8-10 12:14
+
+东南亚队少去点 能有效减少膀胱局
+
+*****
+
+####  蛭人  
+##### 5475#       发表于 2022-8-10 12:14
+
+ori这几把是真硬啊，不愧是国产中单荣耀。
+
+*****
+
+####  Keynes  
+##### 5476#       发表于 2022-8-10 12:15
+
+笑晕了woc
+
+F024F799-A251-454C-8AE9-BAE8DE6AA76C.jpeg
+(74.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/121506cm47um7kcsdsteeu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 5477#       发表于 2022-8-10 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003036&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-10 12:11</a>
+
+Rng是要前3还是前6
+
+感觉没啥希望的</blockquote>
+不用把，VP也是12名外的，假如能赢VP直接踩掉一个竞争者，感觉基本稳了
+
+但我感觉37开赢面不能再多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 5478#       发表于 2022-8-10 12:16
+
+今天没比赛看了啊，RNG的比赛明天早上才开始。
+
+*****
+
+####  百世诸侯  
+##### 5479#       发表于 2022-8-10 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003089&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-10 12:14</a>
+
+ori这几把是真硬啊，不愧是国产中单荣耀。</blockquote>
+细说ori几把硬度
+
+*****
+
+####  吃货红毛  
+##### 5480#       发表于 2022-8-10 12:17
+
+之后胜者组的时间好像都有点阴间 估计要憋到决赛再熬夜
+
+*****
+
+####  secretgarnet  
+##### 5481#       发表于 2022-8-10 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003038&amp;ptid=2084957" target="_blank">Damocles990609 发表于 2022-8-10 12:11</a>
+
+rng给点力，我想看森哥上ti</blockquote>
+森哥加油<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 5482#       发表于 2022-8-10 12:17
+
+赛程发一下啊水友们
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 5483#       发表于 2022-8-10 12:18
+
+明天rng应该不会打不过vp吧，把ta一ban这队就没活了
+
+*****
+
+####  nxmonitor  
+##### 5484#       发表于 2022-8-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003132&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-10 12:18</a>
+
+明天rng应该不会打不过vp吧，把ta一ban这队就没活了</blockquote>
+两个都是肌肉队，但是VP的肌肉更年轻更强一点，就看哪边犯病更多了……
+
+*****
+
+####  战狼PTSD  
+##### 5485#       发表于 2022-8-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003130&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-10 12:17</a>
+
+赛程发一下啊水友们
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+下个完美世界电竞就是了
+
+这段日子的战报文案非常好，RNG1比1那期黑的水平很高
+
+*****
+
+####  izayoi39  
+##### 5486#       发表于 2022-8-10 12:20
+
+dy我都不知道他为啥有脸怼ori，去年vg那脑残bp我都吐了，人人都知道ori对线水平下滑得厉害就vg自己不知道，天天把ori当bp垃圾桶十把有八把都是劣势对线，bp上不照顾你好歹中路刚三搓起来啊，把把都是ori对线已经穿了才想起来中路
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 5487#       发表于 2022-8-10 12:21
+
+RNG赢VP，EG输，RNG直接直邀
+
+RNG赢VP，EG胜，RNG需要过fnatic才能直邀
+
+<img src="https://img.saraba1st.com/forum/202208/10/121938lpcik6pjd0kkk1gd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 12:19 上传
+
