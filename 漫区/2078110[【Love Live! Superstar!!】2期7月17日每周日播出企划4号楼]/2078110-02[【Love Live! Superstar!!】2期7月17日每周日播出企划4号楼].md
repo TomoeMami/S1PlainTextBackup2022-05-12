@@ -8683,3 +8683,32 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 话说回来如果星的动画能整成合家欢，感觉或 ...</blockquote>
 想在低龄段挣钱，你好歹弄个变身道具。
 
+
+
+*****
+
+####  cybernetics31  
+##### 2358#       发表于 2022-8-10 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op首周才一万三…………
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本那边咋样不知道，反正国内粉基本都把钱优先留给中之人个人了吧。
+
+*****
+
+####  老1.5  
+##### 2359#       发表于 2022-8-10 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006991&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-10 17:13</a>
+
+op首周才一万三…………
+
+日本那边咋样不知道，反正国内粉基本都把钱优先留给中之人个人了吧 ...</blockquote>
+不管怎么看肯定中之人更值啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2360#       发表于 2022-8-10 17:19
+
+是的，我没买，钱都留给鲤鱼三单<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
