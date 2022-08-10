@@ -10586,3 +10586,62 @@ TOP 15 Plays of PGL Arlington Major 2022 Dota 2 [Group Stage]
 
 dodo和拉娜娅出来一下，我想鸿儒了
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 5754#       发表于 2022-8-10 23:12
+
+看眼这个boom战队，感觉这个队还有点意思
+
+*****
+
+####  哈曼的YY  
+##### 5755#       发表于 2022-8-10 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009084&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-08-10 20:08:47</a>
+https://bbs.nga.cn/read.php?tid=33004397
+
+https://bbs.nga.cn/read.php?tid=33013813
+
+味儿太冲了。远离 ...</blockquote>太监只会车轱辘道德素质人身攻击
+一个个都是伪君子<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chilno  
+##### 5756#       发表于 2022-8-10 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011938&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-10 22:59</a>
+
+看了看对比之下叔叔家画质也太差了吧，bilibili 1080p还不如YouTube 720p60的，观感差远了
+
+—— 来自 Xi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祖国版app标的什么蓝光1080都是乱标的好吧
+
+叔叔家的蓝光可能也就720p
+
+*****
+
+####  adretyu67  
+##### 5757#       发表于 2022-8-10 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57010932&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-10 21:51</a>
+
+撸狗猪还是卜如直播打撸狗游戏的司马e畜的
+
+想起来撸狗猪也打过游廊里的撸狗游戏，畜度半斤八两吧 ...</blockquote>
+说起来撸狗鞭这个外号来源的某次直播faithbian说“开哥，是我”
+
+是真还是假？
+
+*****
+
+####  名字不乱取  
+##### 5758#       发表于 2022-8-10 23:17
+
+有没有养号做毒唯的串子漏油，别天天搬屎了，搬两条鱼给兄弟们乐乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

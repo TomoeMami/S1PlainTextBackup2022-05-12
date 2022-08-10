@@ -7182,3 +7182,64 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 ”总结就是，除非你跟我一样打死都不想抓好友，否则就别抽“
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 688#       发表于 2022-8-10 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012094&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-10 23:10</a>
+
+节奏榜CBA周回B，隔壁为啥不讨论。这改版乐子太大</blockquote>
+你错过了吧 
+
+我今天一个下午摸鱼就在隔壁看节奏榜改版的大戏啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其中包括什么班杨s+ 虚空50np礼装 周回c呆=卑师傅
+
+*****
+
+####  exiaexa  
+##### 689#       发表于 2022-8-10 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012090&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 23:09</a>
+
+隔壁已经在开始担心狂伊吹吊打王姐水武藏怎么办了</blockquote>
+凉拌啊还能怎么办，又不能退货
+
+吊打摩根不存在的，除非原地100充
+
+吊打武藏倒是概率挺大的，水武藏经常会缺口气很难受
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 690#       发表于 2022-8-10 23:14
+
+妈耶，又是个疯子，自称妹妹也有了
+
+咕哒这个是姐姐，妹妹，妈妈都有了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 691#       发表于 2022-8-10 23:15
+
+梅莉不行，那泳装斯卡蒂会行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 692#       发表于 2022-8-10 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012111&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 23:11</a>
+
+所以你跑出来杠一下就是为了表示你需要去眼科？
+
+”总结就是，除非你跟我一样打死都不想抓好友，否则就别 ...</blockquote>
+也就高难有用，可以替换C狐和花嫁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
