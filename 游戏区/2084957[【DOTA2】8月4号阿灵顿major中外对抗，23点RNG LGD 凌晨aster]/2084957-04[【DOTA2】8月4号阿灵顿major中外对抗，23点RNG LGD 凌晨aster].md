@@ -8684,3 +8684,110 @@ misha：我的吧我的吧</blockquote>
 
 能不能把中路线改长点，比赛还好，平时玩感觉没点个人能力碰撞，谁都能当那个走中的人
 
+
+
+*****
+
+####  IG.430  
+##### 5554#       发表于 2022-8-10 13:01
+
+切了就长不回来了（
+
+*****
+
+####  聚散浮云  
+##### 5555#       发表于 2022-8-10 13:03
+
+确实，现在的中路想单杀太难了，动不动就是四酱油戳中，能不能回到5年前那个对线单杀勾心斗角的年代
+
+*****
+
+####  反方向的波  
+##### 5556#       发表于 2022-8-10 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年任杨伟最后几局打的感觉vg这个队像分裂成了四股势力一样，不知道怎么回事今年还能和丁聪和解的
+
+*****
+
+####  一品堂官  
+##### 5557#       发表于 2022-8-10 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003405&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-10 12:34</a>
+
+漏油搁着岁月史书呢，vg上赛季比赛我全看过了，ori那是没帮中？
+
+不是帮了也被橄榄吗？</blockquote>
+有数据嘛 要是看到一场帮了就是帮了 看到一场没帮就是没帮也没意义 
+
+我的印象ti是中路对线偶尔只优了一点点然后游走失败炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+说这赛季ori打得好洗的角度不对 
+
+应该继续观察xg中路不是么 
+
+换了个人xg中路咋样呢
+
+要么被压制要么拿火女遮羞布还不一定赢 老十一炸了中路必炸
+
+*****
+
+####  战狼PTSD  
+##### 5558#       发表于 2022-8-10 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003779&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-10 13:03</a>
+
+确实，现在的中路想单杀太难了，动不动就是四酱油戳中，能不能回到5年前那个对线单杀勾心斗角的年代 ...</blockquote>
+把河道线拉长，删掉圣水符，就回来了
+
+真想念当初中单PA啊，撒匕手好爽，连JUGG都能打中
+
+*****
+
+####  CNFH1984  
+##### 5559#       发表于 2022-8-10 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003514&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-10 12:42</a>
+
+核中核消息
+
+训练赛到现在就赢了一把，还是B组被淘汰的NAVI 上帝没有中文环境早忘了，冠晴自己中文都不行更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿拿原来不是说过不行就打轮盘信号么，意思是一帮人训练也有两三周了轮盘都没给上帝配好？
+
+那TM活该呀……
+
+*****
+
+####  walfeds  
+##### 5560#       发表于 2022-8-10 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在砍掉圣水符感觉不少人中单都要打不来了
+
+*****
+
+####  蛭人  
+##### 5561#       发表于 2022-8-10 13:09
+
+别说当年中单pa的时候，没少上分，太爽了，gtmd度假社，ti10到11直接赖皮。
+
+*****
+
+####  walfeds  
+##### 5562#       发表于 2022-8-10 13:11
+
+<img src="https://img.saraba1st.com/forum/202208/10/131030uzguouudnccqrgnc.png" referrerpolicy="no-referrer">
+
+<strong>ij0pd9ta8rg91.png</strong> (81.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 13:10 上传
+
+崩溃哥风暴双雄，脑东京不上照<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5563#         楼主| 发表于 2022-8-10 13:12
+
+还在圣水符，v🐍铁集美，不可能删圣水符的，删了不是要lgd死？
+

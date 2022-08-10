@@ -808,3 +808,14 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 87#       发表于 2022-8-10 13:08
+
+最近色色修女的形象多了起来，无论是本子还是色图还是小黄油，我觉得金毛的形象冲击力比蓝粉强烈多了。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
