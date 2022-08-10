@@ -8838,3 +8838,12 @@ misha：我的吧我的吧</blockquote>
 
 不哭不是真核核
 
+
+
+*****
+
+####  nxmonitor  
+##### 5569#       发表于 2022-8-10 13:29
+
+这次major火猫选出来后期自动隐形，要不学nts出黯灭大炮走复古流吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
