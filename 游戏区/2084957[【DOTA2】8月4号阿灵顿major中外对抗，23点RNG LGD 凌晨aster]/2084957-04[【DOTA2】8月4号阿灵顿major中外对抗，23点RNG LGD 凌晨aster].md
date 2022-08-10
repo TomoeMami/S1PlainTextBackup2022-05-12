@@ -10127,3 +10127,22 @@ g4g5的跌宕起伏，看完恍如隔世，尤其是g5那波肉山团之前的�
 我同时看ob4+2和杰畜解说，感觉要成为首陀罗了</blockquote>
 上一个在旧楼天天分享ob资讯的已经被砍头了 自重
 
+
+
+*****
+
+####  woyzeck  
+##### 5703#       发表于 2022-8-10 21:05
+
+杰畜不就是二皮脸么，19年解说败决的时候说查理斯这把别把ame当人自己凯瑞就赢了，ame根本不是人，21年再复盘的时候就是查理斯回头跳踩坑ame，lgd肌肉dota不配赢。这种人你也没啥办法，毕竟像他这种逼人，拿脸换钱那是愿意的不能再愿意。哪里能蹭就蹭哪里，和牛二似的，能恶心到杨志把宝刀要到手那就是血赚天赚，恶心不到好像也没啥损失。他自我定位就是这样，所以艹他妈就完事儿了。
+
+*****
+
+####  CNFH1984  
+##### 5704#       发表于 2022-8-10 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009990&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-10 21:05</a>
+
+杰畜不就是二皮脸么，19年解说败决的时候说查理斯这把别把ame当人自己凯瑞就赢了，ame根本不是人，21年再复 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一针见血的
+

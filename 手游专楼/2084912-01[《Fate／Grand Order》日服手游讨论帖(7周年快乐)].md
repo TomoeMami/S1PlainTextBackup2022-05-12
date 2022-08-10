@@ -6634,3 +6634,70 @@ md，不让用信用卡了
 你可以加我这个萌新 沢进爱理#5868</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">加了加了 id一样
 
+
+
+*****
+
+####  areklose  
+##### 637#       发表于 2022-8-10 21:03
+
+女梅林得3技能加NP是怎样逻辑得？是立刻回NP吗
+
+*****
+
+####  areklose  
+##### 638#       发表于 2022-8-10 21:03
+
+ 本帖最后由 areklose 于 2022-8-10 21:06 编辑 
+
+风怒
+
+*****
+
+####  exiaexa  
+##### 639#       发表于 2022-8-10 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009955&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-10 21:03</a>
+
+女梅林得3技能加NP是怎样逻辑得？是立刻回NP吗</blockquote>
+原地起爆
+
+被动技能20+apend技能20+领导力20+三技能对面每1个敌人给20
+
+最大瞬间120自充
+
+但是没有输出
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 640#       发表于 2022-8-10 21:10
+
+<img src="https://img.saraba1st.com/forum/202208/10/210952rz5xd8z8vd4kv6hg.png" referrerpolicy="no-referrer">
+
+<strong>1660136962477.png</strong> (131.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-10 21:09 上传
+
+女梅林这个羁绊礼装我第一眼还以为是个水母233
+
+*****
+
+####  zore  
+##### 641#       发表于 2022-8-10 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然还是王道征途本庄雷太
+
+*****
+
+####  xunit  
+##### 642#       发表于 2022-8-10 21:10
+
+斯卡蒂这泳装乍一看还行，仔细瞧瞧又好像不太行，别后面几张卡面又搞得惊世骇俗
+
+魔夜限定的封面也画成那样，对现在的小山不放心啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
