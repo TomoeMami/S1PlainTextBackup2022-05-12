@@ -9906,3 +9906,96 @@ https://bbs.nga.cn/read.php?tid=33013813
 
 傻狗下萧瑟哥哥对面赚麻啦，感谢萧瑟哥哥
 
+
+
+*****
+
+####  逃离二次元  
+##### 5681#       发表于 2022-8-10 20:14
+
+集美还能把弹簧打成毒狗的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 5682#       发表于 2022-8-10 20:16
+
+<img src="https://img.saraba1st.com/forum/202208/10/201644so2bifit4gmss4gj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:16 上传
+
+*****
+
+####  战狼PTSD  
+##### 5683#       发表于 2022-8-10 20:18
+
+小超人提醒大家设好闹钟，今晚可能是超哥最后一次为国出征了
+
+从目前的阵容缺陷和团队状态来看，今晚的RNG大概率输掉比赛，这意味着超哥将直接失去直邀资格，RNG要回家了。回去预选面对XG，ig，vg出线也不太稳当——今晚挺大概率是may皇最后一次在国际赛场上征战了。
+
+尽管大家最近都在对超哥冷嘲热讽，也不可否认他鏖战六届ti打出不少成绩。不管今晚结果如何，希望大家给这名老将最后的尊重吧。
+
+*****
+
+####  Litccc  
+##### 5684#       发表于 2022-8-10 20:18
+
+<img src="https://img.saraba1st.com/forum/202208/10/201814maoczpwf91chzwc2.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-10_20-17-52.png</strong> (119.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:18 上传
+
+神了神了
+
+*****
+
+####  蛭人  
+##### 5685#       发表于 2022-8-10 20:20
+
+不愧是太监理论啊，我觉得RNG还是能和新VP一战晋级的吧，毕竟对面666和DM，两个畜生呢。
+
+*****
+
+####  逸一死吾亦死  
+##### 5686#       发表于 2022-8-10 20:21
+
+<blockquote>scg2017 发表于 2022-8-10 20:08
+https://bbs.nga.cn/read.php?tid=33004397
+
+https://bbs.nga.cn/read.php?tid=33013813</blockquote>
+坛友一眼相中我的贴，看我去年10月份的大部分回复其实还有点料
+
+<img src="https://img.saraba1st.com/forum/202208/10/202101zw44e3z9aumuj3ia.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220810_193313.jpg</strong> (147.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-10 20:21 上传
+
+*****
+
+####  战狼PTSD  
+##### 5687#       发表于 2022-8-10 20:21
+
+[https://ngabbs.com/read.php?tid=33011732](https://ngabbs.com/read.php?tid=33011732)
+
+太监论坛确实没办法谈游戏
+
+感兴趣的可以点下这个回复1楼的发帖历史记录，味太冲了
+
+*****
+
+####  山上徹也  
+##### 5688#       发表于 2022-8-10 20:21
+
+相信超哥，另外预选再惨起码还是能进外卡的
+

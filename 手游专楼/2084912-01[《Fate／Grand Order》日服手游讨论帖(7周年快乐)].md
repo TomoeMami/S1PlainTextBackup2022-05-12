@@ -6197,3 +6197,139 @@ CBA总不能靠那个完全不像有输出能力的身板打输出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">600石1宝，加雷斯8宝，33连给我歪了个月神艹
 
+
+
+*****
+
+####  alucardcz  
+##### 592#       发表于 2022-8-10 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新寄了  不过这技能不配我吃苹果刷羁绊 就这样了（
+
+*****
+
+####  xiongxingyu  
+##### 593#       发表于 2022-8-10 20:13
+
+伊吹狂阶光炮，配色又是蓝色系，怕不是上礼拜抽了水武藏的要被背刺l<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 594#       发表于 2022-8-10 20:13
+
+那3技能没问题了，敌方每回合减NP得回合结束，宝具早就砸过来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 595#       发表于 2022-8-10 20:13
+
+<img src="https://img.saraba1st.com/forum/202208/10/201321fqyn15an0nq6rhkf.jpg" referrerpolicy="no-referrer">
+
+<strong>双黄.jpg</strong> (569.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:13 上传
+
+20连直接双黄，赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 596#       发表于 2022-8-10 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009147&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-10 20:13</a>
+
+20连直接双黄，赢！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你为什么玩什么都这么欧呢（
+
+*****
+
+####  angelooo  
+##### 597#       发表于 2022-8-10 20:14
+
+梅莉这四张卡堆一起一团白，加雷斯还是初始好看
+
+*****
+
+####  angelooo  
+##### 598#       发表于 2022-8-10 20:15
+
+<blockquote>xiongxingyu 发表于 2022-8-10 20:13
+伊吹狂阶光炮，配色又是蓝色系，怕不是上礼拜抽了水武藏的要被背刺l ...</blockquote>
+她真的是光炮吗，万一是单体呢（但宝具这么有魄力是单体感觉太蠢了
+
+*****
+
+####  onemoment  
+##### 599#       发表于 2022-8-10 20:16
+
+10*30石 1梅莉 3加雷斯
+
+*****
+
+####  Jamaisvu  
+##### 600#       发表于 2022-8-10 20:17
+
+ 本帖最后由 Jamaisvu 于 2022-8-10 20:19 编辑 
+
+阿瓦隆女士这看着像个蓝爆拐？三技能的灭气不会影响对方本回合放宝具，所以代替梅林的幻术是没问题的，很好！一技能蓝卡只有30...貌似可以进蓝爆队或持久战队？高速咏唱（妖）20NP开局+NP被动可以无礼装不开技能进场开宝具，很强。
+
+不过宝具中有用的数值和白公主一样，绑定宝具等级...有点逼氪...我先等等开发吧...抽不动高宝了...
+
+
+
+*****
+
+####  yyzcacxg  
+##### 601#       发表于 2022-8-10 20:17
+
+ 本帖最后由 yyzcacxg 于 2022-8-10 20:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这技能组和宝具...又是提不起劲抽的卡，隔壁池子的道满都比她有用
+
+*****
+
+####  zore  
+##### 602#       发表于 2022-8-10 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这女武神怎么三等分啊
+
+*****
+
+####  AbigailWilliams  
+##### 603#       发表于 2022-8-10 20:18
+
+泳装三破玩花里胡哨的是不是已经是传统了
+
+*****
+
+####  kiralzb  
+##### 604#       发表于 2022-8-10 20:20
+
+沉了，再见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿提拉  
+##### 605#       发表于 2022-8-10 20:20
+
+md，不让用信用卡了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 606#       发表于 2022-8-10 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009193&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-10 20:17</a>
+
+阿瓦隆女士这看着像个蓝爆拐？三技能的灭气不会影响对方本回合放宝具，所以代替梅林的幻术是没问题的，很好 ...</blockquote>
+你仔细对比下 还不如狐狸
+
+对了 暴击也是1个回合  并没有集星
+
