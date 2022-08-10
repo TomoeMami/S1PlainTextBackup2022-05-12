@@ -6461,3 +6461,111 @@ md，不让用信用卡了
 大概只能花光余额转日区了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 620#       发表于 2022-8-10 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009402&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 20:30</a>
+
+萌新竟然抽这个 不等尺子老太婆了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">接下来的石头给尺子老太婆了  如果有强度吃苹果刷羁绊（
+
+*****
+
+####  exiaexa  
+##### 621#       发表于 2022-8-10 20:33
+
+这梅莉，需要一个宝具本
+
+自己进场20+被动20+领导力20，对面有2个怪自己就可以原地开宝具
+
+但是现在5宝才有10缓回
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 622#       发表于 2022-8-10 20:33
+
+<blockquote>alucardcz 发表于 2022-8-10 20:32
+接下来的石头给尺子老太婆了  如果有强度吃苹果刷羁绊（</blockquote>
+这就是强者的自信么
+
+*****
+
+####  alucardcz  
+##### 623#       发表于 2022-8-10 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009448&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 20:33</a>
+
+这就是强者的自信么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有强度当然搏一搏 没强度抽不到就算了 
+
+*****
+
+####  fantuanxiaoyi  
+##### 624#       发表于 2022-8-10 20:35
+
+居然吃了个大保底，果然今年太舒服了。。。
+
+*****
+
+####  霧谷藤乃  
+##### 625#       发表于 2022-8-10 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009376&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 20:28</a>
+
+欧 羡慕 萌新60+9符连个4星都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我60石+10护符的时候也啥都没有啊
+
+*****
+
+####  alucardcz  
+##### 626#       发表于 2022-8-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009501&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-10 20:36</a>
+
+我60石+10护符的时候也啥都没有啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是萌新没有石头了
+
+*****
+
+####  qixinno2  
+##### 627#       发表于 2022-8-10 20:37
+
+<blockquote>alucardcz 发表于 2022-8-10 20:35
+有强度当然搏一搏 没强度抽不到就算了</blockquote>
+佩服萌新 本咸鱼就做不到刷羁绊拿石头
+
+*****
+
+####  exiaexa  
+##### 628#       发表于 2022-8-10 20:39
+
+ 本帖最后由 exiaexa 于 2022-8-10 20:42 编辑 
+
+我拉到30+被动8（问就是没有15把礼仪剑）了
+
+你们要做测试的自己去玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 629#       发表于 2022-8-10 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009509&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 20:37</a>
+
+但是萌新没有石头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在看着抽出来的男性从者，有点犹豫宰不宰了，留着还能拿不少石头……
+
+*****
+
+####  angelooo  
+##### 630#       发表于 2022-8-10 20:40
+
+卧槽，眼镜cba美人啊，为什么还要等一周
+

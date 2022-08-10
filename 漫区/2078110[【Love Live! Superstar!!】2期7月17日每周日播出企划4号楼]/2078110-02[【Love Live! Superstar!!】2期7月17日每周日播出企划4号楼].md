@@ -8839,3 +8839,12 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 
 <img src="https://img.saraba1st.com/forum/202208/10/202311r1z068t3b13kao48.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tagerto  
+##### 2371#       发表于 2022-8-10 20:35
+
+我厨艺不是很好，纳豆可以用来做饺子吗，这种纳豆黑暗料理还好没有给鲤鱼看见，鲤鱼看见了岂不是当场跑路<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

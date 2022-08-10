@@ -10049,3 +10049,12 @@ g4g5的跌宕起伏，看完恍如隔世，尤其是g5那波肉山团之前的�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 5695#       发表于 2022-8-10 20:36
+
+设好闹钟的是不是想多了，7点能打起来算快
+
