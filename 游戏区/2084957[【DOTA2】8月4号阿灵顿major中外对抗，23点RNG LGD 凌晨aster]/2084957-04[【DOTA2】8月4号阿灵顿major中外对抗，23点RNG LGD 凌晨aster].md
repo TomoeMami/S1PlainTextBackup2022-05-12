@@ -11221,3 +11221,35 @@ syl，我觉得正常BP能赢vp的，666关键英雄ban完就废了
 
 — from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  excalibur--  
+##### 5832#       发表于 2022-8-11 01:07
+
+打的啥玩意，送了一个团灭…
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 5833#       发表于 2022-8-11 01:09
+
+脑浆
+
+*****
+
+####  名字不乱取  
+##### 5834#       发表于 2022-8-11 01:09
+
+真就豆花摇匀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 5835#       发表于 2022-8-11 01:10
+
+槽 boom给点力啊 虽然rng气得我心脏疼 好歹多一个中国队抢外国佬的钱啊
+
