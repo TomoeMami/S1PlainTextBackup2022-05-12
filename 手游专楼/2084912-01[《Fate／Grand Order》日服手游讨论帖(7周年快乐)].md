@@ -7305,3 +7305,15 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 看PV什么鬼，不看剧情的？</blockquote>
 我还未开始推呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 699#       发表于 2022-8-10 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012411&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 23:36</a>
+
+50绿魔放 20黄金率 20宝威 30群充 20单充的绿卡光炮如何</blockquote>
+绿卡版奥贝龙+C呆融合体，确实厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

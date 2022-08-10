@@ -10686,3 +10686,63 @@ jerax也写轮眼了
 
 **压不住炼金真神奇……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IG.430  
+##### 5764#       发表于 2022-8-10 23:42
+
+liquid的花母鸡，时间似乎又回到了sgp major，小组赛的西恩队被liquid伐木机痛宰，直呼不可战胜
+
+*****
+
+####  nowaki  
+##### 5765#       发表于 2022-8-10 23:42
+
+楼友们，打liquid1-1真的好吗，0-2就来打boom了
+
+*****
+
+####  逃离二次元  
+##### 5766#       发表于 2022-8-10 23:42
+
+fbz的占线型3号位真是不太够看
+
+*****
+
+####  吃货红毛  
+##### 5767#       发表于 2022-8-10 23:43
+
+怎么连续两波没搞清楚自己的伤害送了
+
+*****
+
+####  nxmonitor  
+##### 5768#       发表于 2022-8-10 23:44
+
+液体中路连送两波，真的脑浆……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 5769#       发表于 2022-8-10 23:49
+
+BOOM这队打的挺有章法的，感觉潜力还是挺大的
+
+反正脑浆版RNG真打BOOM这队肉眼可见的打不过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 5770#       发表于 2022-8-10 23:49
+
+液体还是脑浆rng能行吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 5771#       发表于 2022-8-10 23:50
+
+对完线还有用的viper还蛮少见的
+
