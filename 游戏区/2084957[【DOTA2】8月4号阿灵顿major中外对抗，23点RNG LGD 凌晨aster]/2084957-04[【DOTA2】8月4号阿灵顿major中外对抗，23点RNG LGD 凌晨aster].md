@@ -4523,3 +4523,123 @@ TA是觉得自己双倍抽不干么<img src="https://static.saraba1st.com/image/
 
 教科书般的tb帕克电棍带盾上高
 
+
+
+*****
+
+####  xuzy0919  
+##### 5036#       发表于 2022-8-10 09:11
+
+同样是tb帕克电魂，同样上路推高先手，啧啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 5037#       发表于 2022-8-10 09:12
+
+拆就完了，杀什么人。
+
+*****
+
+####  千千千千鸟  
+##### 5038#       发表于 2022-8-10 09:13
+
+大锤玩到30多分钟才出魔晶就不觉得难受嘛，前面锤子第三段被发条断了恐怕有10次了吧
+
+*****
+
+####  IG.430  
+##### 5039#       发表于 2022-8-10 09:13
+
+亡魂胸针ta，神了
+
+*****
+
+####  蛭人  
+##### 5040#       发表于 2022-8-10 09:16
+
+这兽王，又没交大，把队友送了，不愧是你啊。
+
+
+
+*****
+
+####  trackerList  
+##### 5041#       发表于 2022-8-10 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GPK该开的时候反而不开了
+
+*****
+
+####  白野苍衣  
+##### 5042#       发表于 2022-8-10 09:18
+
+感觉决赛LGD打TS了
+
+*****
+
+####  蛭人  
+##### 5043#       发表于 2022-8-10 09:18
+
+GPK这前六期望，是对自己这个队伍真一清二楚啊。
+
+*****
+
+####  cobymar  
+##### 5044#       发表于 2022-8-10 09:18
+
+TS中后期的处理比VP厉害太多了
+
+*****
+
+####  雅朵莉雀  
+##### 5045#       发表于 2022-8-10 09:19
+
+666这盘这个大锤狂扔1厘米锤，打发条疯狂被断，感觉几乎就没怎么玩过
+
+从头到尾给我的感觉就是gpk很急，非常急，前期想尽办法想打爆老东京带兄弟们赢，中期疯狂想杀人
+
+*****
+
+####  walfeds  
+##### 5046#       发表于 2022-8-10 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这茶都放凉了，只能上班偷偷品了
+
+*****
+
+####  废都刽子手  
+##### 5047#       发表于 2022-8-10 09:19
+
+今年不会又要看雪碧和老干鳖bo服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 5048#       发表于 2022-8-10 09:20
+
+醒了，刚好品茶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 5049#       发表于 2022-8-10 09:21
+
+好呀好呀，雪碧进ti了，可以看猫鼠游戏ti版了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5050#       发表于 2022-8-10 09:21
+
+vp这阵容肯定急啊，ta没节奏就突出一个寄
+
+*****
+
+####  IG.430  
+##### 5051#       发表于 2022-8-10 09:21
+
+gpk这把打了半局完美的个人节奏然后一泻千里，也不失为一条好汉
+
