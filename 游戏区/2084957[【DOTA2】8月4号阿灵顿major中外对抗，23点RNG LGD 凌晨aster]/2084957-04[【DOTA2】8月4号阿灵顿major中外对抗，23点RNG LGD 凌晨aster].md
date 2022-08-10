@@ -9566,3 +9566,58 @@ QQ图片20220810181047.jpg
 
 —— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  健康猹  
+##### 5642#       发表于 2022-8-10 18:32
+
+说的确实没毛病，来戏了属于
+
+*****
+
+####  恐怖利刃  
+##### 5643#       发表于 2022-8-10 18:33
+
+泼粪是多少沾点魔怔了
+
+*****
+
+####  acejoe  
+##### 5644#       发表于 2022-8-10 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006911&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-10 17:08</a>
+杰畜只会痛打落水狗，天天拷打rng不酬勤没思路大局观差，你要问他为啥酬勤思路对大局观好的lgdti10还是输了 ...</blockquote>
+决赛那大局观和bp被雪碧爆中爆，就是这两点被爆了才输的。
+
+*****
+
+####  反方向的波  
+##### 5645#       发表于 2022-8-10 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007952&amp;ptid=2084957" target="_blank">AkaiSuisei 发表于 2022-8-10 18:29</a>
+这几天跟的实习生直播，昨晚开的团你楼没人讨论吗</blockquote>
+因为没有辞职看不了，细说
+
+*****
+
+####  BallanceHZ  
+##### 5646#       发表于 2022-8-10 18:37
+
+别的就算了，我一直不知道众筹电脑为啥是黑点，这和求送礼物有啥区别吗，早年quin还挂唯一指定邮箱呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5647#       发表于 2022-8-10 18:39
+
+完美实习生开的团有啥看的，能说出小狗不开魔免水人波高是他，他也会干这种话的人，人zsmj都能说先开魔免，不怪二冰阴阳怪气好吧。
+
+*****
+
+####  战狼PTSD  
+##### 5648#       发表于 2022-8-10 18:42
+
+不会真有看OB菜市场的吧
+
