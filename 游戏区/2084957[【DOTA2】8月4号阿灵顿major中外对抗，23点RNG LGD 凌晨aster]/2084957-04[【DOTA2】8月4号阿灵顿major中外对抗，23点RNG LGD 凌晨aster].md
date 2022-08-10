@@ -5786,3 +5786,371 @@ xxs这把脑浆都被干出来了，估计是没他了，杜鹏加油站出来�
 
 这三四号位真的是看到东南亚队直接尿了，问题是FNC三个人是TSM的啊？队标也能压制的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 5198#         楼主| 发表于 2022-8-10 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">令人感叹了啊
+
+*****
+
+####  BallanceHZ  
+##### 5199#       发表于 2022-8-10 10:52
+
+mgj茶这真是有毒吧，我之前还觉得起码打这个fnc没啥问题的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 5200#       发表于 2022-8-10 10:53
+
+这就是血统压制吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 5201#       发表于 2022-8-10 10:54
+
+杜鹏换个裤子
+
+*****
+
+####  百世诸侯  
+##### 5202#       发表于 2022-8-10 10:55
+
+小林桑的伐木机已经彻底混子了
+
+*****
+
+####  端木恋心  
+##### 5203#       发表于 2022-8-10 10:55
+
+要品茶了吗。感觉需要ori给力一点啊。
+
+*****
+
+####  Keynes  
+##### 5204#       发表于 2022-8-10 10:55
+
+拍拍大晕了，难了呀
+
+*****
+
+####  反方向的波  
+##### 5205#       发表于 2022-8-10 10:56
+
+听你们描述像是焦阳尽力了，队友cba？
+
+*****
+
+####  12481632  
+##### 5206#       发表于 2022-8-10 10:56
+
+好消息是茶队如果输了，败者组打的是bc。
+坏消息是从小组赛来看并不能稳吃bc
+
+*****
+
+####  百世诸侯  
+##### 5207#       发表于 2022-8-10 10:56
+
+感觉这把的翻盘点只有O猫的A杖魔晶
+
+*****
+
+####  Keynes  
+##### 5208#       发表于 2022-8-10 10:57
+
+woc
+
+*****
+
+####  蛭人  
+##### 5209#       发表于 2022-8-10 10:57
+
+我吐了这莫奈特，差点送了。
+
+*****
+
+####  一品堂官  
+##### 5210#       发表于 2022-8-10 10:57
+
+全他妈靠叉哥野王
+
+*****
+
+####  Bernoulli  
+##### 5211#       发表于 2022-8-10 10:57
+
+一波全回来了
+
+*****
+
+####  莉拉厨  
+##### 5212#       发表于 2022-8-10 10:57
+
+杜鹏真畜生啊，皮球在脸上不换皮球换xxs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  asd235614  
+##### 5213#       发表于 2022-8-10 10:57
+
+莫奈特要是不脑浆换xxs的血这波团就完美了
+
+*****
+
+####  北条早苗  
+##### 5214#       发表于 2022-8-10 10:57
+
+非ti的焦阳真猛啊，杜鹏这换血看乐了
+
+*****
+
+####  迷途lite  
+##### 5215#       发表于 2022-8-10 10:57
+
+行啊野王
+
+*****
+
+####  我爱撩菜  
+##### 5216#       发表于 2022-8-10 10:57
+
+老鹿早出bkb啥事没有，出一堆杂技装被打傻了
+
+*****
+
+####  Keynes  
+##### 5217#       发表于 2022-8-10 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001606&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-10 10:56</a>
+ 听你们描述像是焦阳尽力了，队友cba？</blockquote>
+感觉是bp拉了，xxs和杜鹏儿脑浆了
+
+*****
+
+####  BallanceHZ  
+##### 5218#       发表于 2022-8-10 10:57
+
+fnc脑浆了
+
+*****
+
+####  nxmonitor  
+##### 5219#       发表于 2022-8-10 10:58
+
+这情况走不远的，monet真的脑浆啊，虽然打赢了走位绝对是有问题的……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 5220#       发表于 2022-8-10 10:58
+
+小学生伐木机我记得以前挺厉害的啊，怎么这盘这么惨
+
+
+
+*****
+
+####  Litccc  
+##### 5221#       发表于 2022-8-10 10:58
+
+野王这波力中大力，把冰龙秒了
+
+*****
+
+####  天堂蜘蛛  
+##### 5222#       发表于 2022-8-10 10:58
+
+FNC太脱节了
+
+*****
+
+####  izayoi39  
+##### 5223#       发表于 2022-8-10 10:58
+
+xxs还是要给他拿团战型3，节奏3他玩得是真不好
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 5224#       发表于 2022-8-10 10:58
+
+野王，牛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 5225#       发表于 2022-8-10 10:58
+
+为啥盾不给蓝猫啊，tb站起来当超级兵吗
+
+*****
+
+####  Bernoulli  
+##### 5226#       发表于 2022-8-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001655&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-10 10:58</a>
+
+小学生伐木机我记得以前挺厉害的啊，怎么这盘这么惨</blockquote>
+帮双大哥替死了好多次。
+
+*****
+
+####  Keynes  
+##### 5227#       发表于 2022-8-10 10:59
+
+冷知识，现在tb换血不无视魔免了
+
+*****
+
+####  沈淮  
+##### 5228#         楼主| 发表于 2022-8-10 10:59
+
+搞那么一波三折干嘛啊
+
+*****
+
+####  Keynes  
+##### 5229#       发表于 2022-8-10 10:59
+
+这小精灵铁内鬼
+
+*****
+
+####  沈淮  
+##### 5230#         楼主| 发表于 2022-8-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001655&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-10 10:58</a>
+
+小学生伐木机我记得以前挺厉害的啊，怎么这盘这么惨</blockquote>
+伐木机碰到ts不就是被暴打么。
+
+*****
+
+####  白野苍衣  
+##### 5231#       发表于 2022-8-10 10:59
+
+乐，看到一条弹幕，FNC血统不够纯，对鳖茶压制力不够。
+
+*****
+
+####  莉拉厨  
+##### 5232#       发表于 2022-8-10 11:00
+
+这牛头跳进来我心脏都停了一秒，还好打赢了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 5233#       发表于 2022-8-10 11:00
+
+哇，这波完美
+
+*****
+
+####  沈淮  
+##### 5234#         楼主| 发表于 2022-8-10 11:00
+
+这盘bp不就是纯搞笑的，有敌法不选，选个tb，然后别人选了ts 再来个伐木机
+
+搬掉拍拍选敌法，我都不知道fnc怎么打
+
+*****
+
+####  迷途lite  
+##### 5235#       发表于 2022-8-10 11:00
+
+拿下了吧
+
+大概
+
+*****
+
+####  天堂蜘蛛  
+##### 5236#       发表于 2022-8-10 11:00
+
+这个精灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MMIno  
+##### 5237#       发表于 2022-8-10 11:00
+
+这小牛大差点出事
+
+*****
+
+####  Cantha  
+##### 5238#       发表于 2022-8-10 11:00
+
+沃日 差点在公司喊出来
+
+*****
+
+####  聚散浮云  
+##### 5239#       发表于 2022-8-10 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001680&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-10 10:59</a>
+
+伐木机碰到ts不就是被暴打么。</blockquote>
+ts 拍拍确实都不好打
+
+*****
+
+####  你谁  
+##### 5240#       发表于 2022-8-10 11:00
+
+这大招有点吓人
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  windtrack_qh  
+##### 5241#       发表于 2022-8-10 11:01
+
+小熊都TP了，老鹿一个反向跳进人群，不愧东南亚杂技
+
+*****
+
+####  聚散浮云  
+##### 5242#       发表于 2022-8-10 11:01
+
+这小牛大居然就死了个土猫
+
+*****
+
+####  百世诸侯  
+##### 5243#       发表于 2022-8-10 11:01
+
+鹏子这把可以了，我以为他玩这种大核后期肯定要暴毙的
+
+*****
+
+####  BallanceHZ  
+##### 5244#       发表于 2022-8-10 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001720&amp;ptid=2084957" target="_blank">windtrack_qh 发表于 2022-8-10 11:01</a>
+小熊都TP了，老鹿一个反向跳进人群，不愧东南亚杂技</blockquote>
+是io带回去的
+
+*****
+
+####  山上徹也  
+##### 5245#       发表于 2022-8-10 11:02
+
+戴泽羊了三个
+

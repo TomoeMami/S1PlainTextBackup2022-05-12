@@ -8343,3 +8343,24 @@ nt素材不只有星，就是喜欢逮着星的小鬼编鬼话罢了<img src="ht
 
 缪水一期就加完人了啊，企划觉得对星搞加人操作很惊喜，这种叼毛操作体现到只有12集的动画上基本就是让系构自己沉东京湾，每季动画都有拉人的垃圾时间和固定的决赛回、battle回，根本没法深入讲别的事情；
 
+
+
+*****
+
+####  JustW_3  
+##### 2323#       发表于 2022-8-10 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001326&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-10 10:41</a>
+这种所谓小鬼别的团也有，没人挂没人批而已。而且有个点理解不了，有些人明明几个团都关注都有支持，但好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种操作现在还是挺常见的
+
+*****
+
+####  稀勢のささ  
+##### 2324#       发表于 2022-8-10 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001316&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-8-10 10:40</a>
+
+照片有啥好讲的，单纯回想自己以前又土又胖，运动也不好，觉得自己不适合当学院偶像而已，这个还有必要浪费 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得没必要 但”我觉得“不管用啊
+

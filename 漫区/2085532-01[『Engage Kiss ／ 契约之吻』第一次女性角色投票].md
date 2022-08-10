@@ -783,3 +783,15 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 下半身是不会骗人的</blockquote>
 论下半身蓝毛也不输啊，为啥还是被黄毛抢票了，说明宅宅都是抖M，渴望被强气女人骑在身上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rhantolk  
+##### 85#       发表于 2022-8-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001527&amp;ptid=2085532" target="_blank">profh2 发表于 2022-8-10 10:52</a>
+
+论下半身蓝毛也不输啊，为啥还是被黄毛抢票了，说明宅宅都是抖M，渴望被强气女人骑在身上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是想被黄毛腹击交一下了
+
