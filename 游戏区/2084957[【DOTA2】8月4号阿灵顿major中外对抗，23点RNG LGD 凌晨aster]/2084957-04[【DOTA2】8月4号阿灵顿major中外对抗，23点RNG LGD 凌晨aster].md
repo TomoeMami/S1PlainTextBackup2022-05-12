@@ -9479,3 +9479,29 @@ link：https://sullygnome.com/game/Dota_2</blockquote>
 
 大环境泥沙俱下，归责于几个切片的和做直播的还是有点太避重就轻了，真单纯为了靠播放点赞赚点钱不如去做隔壁切片。
 
+
+
+*****
+
+####  IG.430  
+##### 5634#       发表于 2022-8-10 17:52
+
+我的铁axo同学ti10前看justwant2play的切片，发现yatoro是绝对高手让我注意一下<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5635#       发表于 2022-8-10 17:57
+
+当年单车DC讨论连击刀蚂蚁打几下，官方解说，dota2早就GG了；度假社赖皮，国内充斥着大量饭圈经营的云玩家粉丝，更有头部主播直言，只有职业才打天梯，这环境dota2能活着就偷着乐吧。
+
+*****
+
+####  沈淮  
+##### 5636#         楼主| 发表于 2022-8-10 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007572&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-10 17:57</a>
+
+当年单车DC讨论连击刀蚂蚁打几下，官方解说，dota2早就GG了；度假社赖皮，国内充斥着大量饭圈经营的云玩家 ...</blockquote>
+我记得有一个主角是党委华
+
