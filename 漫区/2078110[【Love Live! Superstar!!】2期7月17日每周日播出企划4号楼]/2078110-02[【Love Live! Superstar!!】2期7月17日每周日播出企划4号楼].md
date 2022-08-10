@@ -8470,3 +8470,31 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 草………………既然最近延迟的延迟取消的取消，我看其他星的宣传也没安排，鲤鱼应该很闲吧？干脆破 ...</blockquote>
 只是不能做露面的活动了，耽误了一个月时间，工作早就排到满了，原来7月那个bd talk抽选，现在都给排到晚上十点了，可见日程早就排满了
 
+
+
+*****
+
+####  仟音一心  
+##### 2337#       发表于 2022-8-10 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002413&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-10 11:36</a>
+除了日本大环境的问题，Apollo Bay这个事务所怎么说也得背锅吧，我数了一下，从今年初到现在nagi这里，他们 ...</blockquote>
+覆巢之下安有完卵，大环境下纠结哪个事务所锅多背少背没太大意义。
+
+*****
+
+####  starring  
+##### 2338#       发表于 2022-8-10 11:45
+
+下一个轮到谁也不奇怪，只希望别留下后遗症，尤其担心nako<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2339#       发表于 2022-8-10 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002416&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-10 11:36</a>
+
+只是不能做露面的活动了，耽误了一个月时间，工作早就排到满了，原来7月那个bd talk抽选，现在都给排到晚 ...</blockquote>
+10点？不是8到9点吗？还是说G店场是安排9到10点了？
+
