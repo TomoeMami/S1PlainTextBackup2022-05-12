@@ -8958,3 +8958,15 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009975&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-10 21:04</a></blockquote>
 2/18-19出错了，Aqours EXTRA Live是2/11-12、3/11-12举办
 
+
+
+*****
+
+####  lj205  
+##### 2382#       发表于 2022-8-10 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009785&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-10 20:53</a>
+
+不知道是不是我的错觉，怎么感觉鱼休息了一个月水灵了不少，好像还更年轻了 ...</blockquote>
+不要相信照片<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+

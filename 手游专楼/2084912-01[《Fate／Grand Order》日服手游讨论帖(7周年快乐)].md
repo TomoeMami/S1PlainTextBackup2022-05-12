@@ -6913,3 +6913,24 @@ md，不让用信用卡了
 
 就因为平时都用模拟器 今天有事只能当云玩家 赶紧出个账号系统别用那弱智引继码了
 
+
+
+*****
+
+####  alucardcz  
+##### 664#       发表于 2022-8-10 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011095&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 22:00</a>
+
+就因为平时都用模拟器 今天有事只能当云玩家 赶紧出个账号系统别用那弱智引继码了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在这方面bgo赢的很透彻
+
+*****
+
+####  qixinno2  
+##### 665#       发表于 2022-8-10 22:09
+
+<blockquote>alucardcz 发表于 2022-8-10 22:05
+在这方面bgo赢的很透彻</blockquote>
+BGO唯二的优点就是账号登陆和千里眼攒石了
+

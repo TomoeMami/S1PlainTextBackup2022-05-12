@@ -10341,3 +10341,44 @@ fy以前就和撸狗猪一队
 喜欢搬屎黄色论坛的屎的建议来管人区萧瑟咯咯真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 https://bbs.saraba1st.com/2b/thread-2064223-2-1.html
 
+
+
+*****
+
+####  战狼PTSD  
+##### 5728#       发表于 2022-8-10 22:02
+
+666这脑浆大锤有啥好说的，起来一边拉屎一边看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 5729#       发表于 2022-8-10 22:04
+
+超级爱吃假赛集美💩论坛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 5730#       发表于 2022-8-10 22:04
+
+早上能看直播的都被我标记为辞职萨特了<img src="https://p.sda1.dev/6/87c8a19f75a59dc47c9d6a9544f29fed/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  haruhiismer  
+##### 5731#       发表于 2022-8-10 22:06
+
+怎么可能没有小泰迪，ti5赛季那声量
+
+*****
+
+####  韬晦  
+##### 5732#       发表于 2022-8-10 22:08
+
+水厂造星霉鳖的时候好歹吸引的还是玩刀塔的，给a畜造星引流的时候皮套狗撸狗一拥而入
+
