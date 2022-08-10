@@ -8247,3 +8247,16 @@ nt素材不只有星，就是喜欢逮着星的小鬼编鬼话罢了<img src="ht
  ...</blockquote>
 正常人谁在公共场所排泄啊<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2313#       发表于 2022-8-10 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999752&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-10 08:50</a>
+紫吧这玩意，除去菜宝的隐藏身份，其他没什么干货，我本身对他们黑星黑鲤鱼没什么感觉
+
+就是觉得看紫吧东 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最开始的时候其实干货挺多的 后面引流了太多喜欢批判小鬼的小鬼
+

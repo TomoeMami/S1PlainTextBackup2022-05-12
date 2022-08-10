@@ -4750,3 +4750,112 @@ Aster赢fnatic就够了，RNG需要赢VP和Aster/fnatic进六强
 
 rng打vp这场面好看了，脑浆与肌肉的碰撞，极地大乱斗了属于是
 
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5065#       发表于 2022-8-10 09:33
+
+鳖茶支棱点啊，真的赢一个bo3就算胜利了。
+
+*****
+
+####  smkf013  
+##### 5066#       发表于 2022-8-10 09:34
+
+茶放了这么久，会不会一下就凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5067#       发表于 2022-8-10 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">collapse这电魂玩的是不怎么样，出装也有问题，但怎么完美电竞战报下还有说不如李斯的，李斯前几天那电魂。
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5068#       发表于 2022-8-10 09:37
+
+<blockquote>百世诸侯 发表于 2022-8-10 09:28
+</blockquote>
+秘密和尼哥马咋回事啊，要去打预选了么
+
+*****
+
+####  nowaki  
+##### 5069#       发表于 2022-8-10 09:38
+
+鳖茶起步4h好吧
+
+*****
+
+####  沈淮  
+##### 5070#         楼主| 发表于 2022-8-10 09:38
+
+啥时候能品茶
+
+
+
+*****
+
+####  吃货红毛  
+##### 5071#       发表于 2022-8-10 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">终于要品茶了 突破自我就在今天
+
+*****
+
+####  IG.430  
+##### 5072#       发表于 2022-8-10 09:39
+
+为什么今早更新客户端下了6兆然后200b/s摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 5073#       发表于 2022-8-10 09:40
+
+早茶变成午茶了
+
+*****
+
+####  Aeons  
+##### 5074#       发表于 2022-8-10 09:40
+
+一个A级队，一个前四都没有，major也打不了，我记得两个队一百分都没有吧
+
+*****
+
+####  夜光铃  
+##### 5075#       发表于 2022-8-10 09:40
+
+别真成下午茶了
+
+*****
+
+####  4591  
+##### 5076#       发表于 2022-8-10 09:41
+
+茶队要是也拖到3把,每把一小时起,能打到上班摸鱼的午休都没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5077#       发表于 2022-8-10 09:41
+
+ Team Secret        93.07
+
+ Nigma Galaxy SEA        28.9
+
+*****
+
+####  pikamee  
+##### 5078#       发表于 2022-8-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000348&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-10 09:37</a>
+
+秘密和尼哥马咋回事啊，要去打预选了么</blockquote>
+一个降级边缘队一个a级遨游队，不打预选能干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
