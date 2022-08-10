@@ -4087,3 +4087,60 @@ dm ti10打雪碧的时候也特别硬
 
 gpk说不定不找队友而是直接往地图左上方拉会更好一些
 
+
+
+*****
+
+####  一品堂官  
+##### 4985#       发表于 2022-8-10 08:13
+
+雪碧的比赛说真的，后期打得真好，技能释放配合美如画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  苏西踩到我了  
+##### 4986#       发表于 2022-8-10 08:17
+
+刀塔后期的复杂度真是指数级上升，加上一个小时的游戏又减智力又降专注，太难了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 4987#       发表于 2022-8-10 08:19
+
+茶还没开啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  4591  
+##### 4988#       发表于 2022-8-10 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999472&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-10 08:19</a>
+
+茶还没开啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+十点,十点一定开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 4989#       发表于 2022-8-10 08:20
+
+这盘后期我感觉是VP打得更好，就是阵容在这个时候不如雪碧简单好打
+
+VP的酱油玛西双头龙在后期团战都不好发挥，双头龙基本只能接一个冰+大，雪碧只要戴泽薄葬给到猴子防止被一波秒掉就输不了
+
+VP的阵容容错率很低，但是打得很漂亮，也差点就抓住一点机会了
+
+*****
+
+####  Aeons  
+##### 4990#       发表于 2022-8-10 08:21
+
+一手TA
+
