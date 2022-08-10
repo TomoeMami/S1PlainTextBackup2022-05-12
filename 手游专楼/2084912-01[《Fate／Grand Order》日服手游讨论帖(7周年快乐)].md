@@ -5738,3 +5738,250 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">道满up 3 5星了（
 
+
+
+*****
+
+####  rooarr  
+##### 542#       发表于 2022-8-10 19:52
+
+来了来了
+
+*****
+
+####  alucardcz  
+##### 543#       发表于 2022-8-10 19:52
+
+来了来了
+
+*****
+
+####  rooarr  
+##### 544#       发表于 2022-8-10 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008833&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 19:51</a>
+
+狂：伊吹
+
+术：武后
+
+伪：旧梅</blockquote>
+舅舅全对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 545#       发表于 2022-8-10 19:53
+
+舅舅杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 546#       发表于 2022-8-10 19:53
+
+要全介绍了
+
+*****
+
+####  AbigailWilliams  
+##### 547#       发表于 2022-8-10 19:53
+
+舅舅赢麻了，有点梦回有段时间舅舅一样杀疯的时期了
+
+*****
+
+####  LullHH  
+##### 548#       发表于 2022-8-10 19:54
+
+又中啦。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  alucardcz  
+##### 549#       发表于 2022-8-10 19:54
+
+伊吹5星 哈哈哈
+
+*****
+
+####  霧谷藤乃  
+##### 550#       发表于 2022-8-10 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本拿下了吧，蘑菇说的大概也没问题
+
+*****
+
+####  AbigailWilliams  
+##### 551#       发表于 2022-8-10 19:55
+
+14号二期，三期基本稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 552#       发表于 2022-8-10 19:55
+
+这意思真3期？？
+
+*****
+
+####  kiralzb  
+##### 553#       发表于 2022-8-10 19:55
+
+伊吹这宝具姿势不是之前火过一阵那个趴姿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 554#       发表于 2022-8-10 19:57
+
+武则天这也太丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LullHH  
+##### 555#       发表于 2022-8-10 19:57
+
+这么大。。
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  exiaexa  
+##### 556#       发表于 2022-8-10 19:57
+
+4杀：瓦尔基里
+
+8/10  5伪：旧梅+4剑：加雷斯
+
+8/14  5狂：伊吹+4仇：绘里濑
+
+8/17  5尺：斯卡蒂+4术：武后
+
+给你们做个标记
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 557#       发表于 2022-8-10 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斯卡蒂立绘可以啊
+
+*****
+
+####  kiralzb  
+##### 558#       发表于 2022-8-10 19:57
+
+武则天这是还能在成长一次的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 559#       发表于 2022-8-10 19:58
+
+脖子终于好了
+
+*****
+
+####  AbigailWilliams  
+##### 560#       发表于 2022-8-10 19:58
+
+脖子不出问题真稳呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 561#       发表于 2022-8-10 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全中
+
+*****
+
+####  eyeego  
+##### 562#       发表于 2022-8-10 19:58
+
+真分3池啊 送那么多果然是有阴谋的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 563#       发表于 2022-8-10 19:58
+
+CBA这脖子真粗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 564#       发表于 2022-8-10 19:58
+
+舅舅赢麻了，全中，这个cba比本体好看多了
+
+*****
+
+####  rooarr  
+##### 565#       发表于 2022-8-10 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装不送100石头能抽？
+
+*****
+
+####  khxooo  
+##### 566#       发表于 2022-8-10 19:58
+
+梅莉是谁，不认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 567#       发表于 2022-8-10 19:58
+
+好急。为啥要下周才能抽斯卡蒂
+
+*****
+
+####  Jamaisvu  
+##### 568#       发表于 2022-8-10 19:59
+
+ 本帖最后由 Jamaisvu 于 2022-8-10 20:02 编辑 
+
+绘里濑这个宝具背景是不是水黑呆那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+狂阶伊吹看着挺帅的，宝具意外地很正式？死库水配运动鞋好色啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+武则天看着莫名像魔界战记的某个人物（幻视）...
+
+斯卡蒂这个泳装和马修上一套挺像的...脖子看着比以前舒服多了。
+
+该不会真的是新绿拐吧...三大色拐分别是武内、WADA、小山负责，分配的也挺均衡的...
+
+*****
+
+####  exiaexa  
+##### 569#       发表于 2022-8-10 19:59
+
+往好处想，需要高宝的说不定只有伊吹
+
+CBA总不能靠那个完全不像有输出能力的身板打输出
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 570#       发表于 2022-8-10 19:59
+
+不管了，我先抽梅丽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 571#       发表于 2022-8-10 20:02
+
+坐等坛友豹跳
+
