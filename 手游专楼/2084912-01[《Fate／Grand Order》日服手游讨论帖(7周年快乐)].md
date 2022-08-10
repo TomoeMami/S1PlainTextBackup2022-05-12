@@ -6701,3 +6701,89 @@ md，不让用信用卡了
 
 魔夜限定的封面也画成那样，对现在的小山不放心啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 643#       发表于 2022-8-10 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57010073&amp;ptid=2084912" target="_blank">xunit 发表于 2022-8-10 21:10</a>
+
+斯卡蒂这泳装乍一看还行，仔细瞧瞧又好像不太行，别后面几张卡面又搞得惊世骇俗
+
+魔夜限定的封面也画成那样 ...</blockquote>
+斯卡蒂有几个表情特别一言难尽
+
+小山这个侧脸不再练练真的没救了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 644#       发表于 2022-8-10 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57010073&amp;ptid=2084912" target="_blank">xunit 发表于 2022-8-10 21:10</a>
+
+斯卡蒂这泳装乍一看还行，仔细瞧瞧又好像不太行，别后面几张卡面又搞得惊世骇俗
+
+魔夜限定的封面也画成那样 ...</blockquote>
+放心，想想当初的星条旗泳装牛仔武藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再想想今年的武藏梦装<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+是不是更不放心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 645#       发表于 2022-8-10 21:14
+
+梅莉这个自充，对面6个的时候还挺爽的
+
+瞬间60+120，跟队友凑个蓝chain原地3oc
+
+但是没有输出
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 646#       发表于 2022-8-10 21:14
+
+但是水武藏满破卡面是真好看
+
+*****
+
+####  alucardcz  
+##### 647#       发表于 2022-8-10 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57010150&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 21:14</a>
+
+但是水武藏满破卡面是真好看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是3破。。。。。。。。。
+
+*****
+
+####  angelooo  
+##### 648#       发表于 2022-8-10 21:18
+
+<blockquote>qixinno2 发表于 2022-8-10 21:14
+但是水武藏满破卡面是真好看</blockquote>
+绑三破立绘罪大恶极
+
+我只能用满破头像然后其他用一破
+
+小山当时脑子坏掉了吧搞出三破这种东西
+
+*****
+
+####  angelooo  
+##### 649#       发表于 2022-8-10 21:20
+
+<blockquote>xunit 发表于 2022-8-10 21:10
+斯卡蒂这泳装乍一看还行，仔细瞧瞧又好像不太行，别后面几张卡面又搞得惊世骇俗
+
+魔夜限定的封面也画成那样 ...</blockquote>
+看到一个解包是戴眼镜眼镜然后换了发型，比目前放出来的那个还好看，但问题在于解包是投影看不出衣服配色
+

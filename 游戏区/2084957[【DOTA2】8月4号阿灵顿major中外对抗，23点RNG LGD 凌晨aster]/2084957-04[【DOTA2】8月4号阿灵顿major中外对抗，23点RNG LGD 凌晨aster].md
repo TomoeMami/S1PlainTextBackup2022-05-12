@@ -10146,3 +10146,77 @@ g4g5的跌宕起伏，看完恍如隔世，尤其是g5那波肉山团之前的�
 杰畜不就是二皮脸么，19年解说败决的时候说查理斯这把别把ame当人自己凯瑞就赢了，ame根本不是人，21年再复 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一针见血的
 
+
+
+*****
+
+####  无聊的神  
+##### 5705#       发表于 2022-8-10 21:13
+
+rng现在舆论太差了，杰出和NGA给的压力太大了
+
+RNG俱乐部的管理应该去联系杰出让他收敛一点的
+
+*****
+
+####  韬晦  
+##### 5706#       发表于 2022-8-10 21:14
+
+杰畜可比谭黄弹簧多了，在喝ru水前淳淳的黑子
+
+*****
+
+####  无聊的神  
+##### 5707#       发表于 2022-8-10 21:14
+
+还什么，不拷打莫奈，怕拷打崩了
+
+合着RNG铁人不怕崩呗，盯着薅，什么狗逼
+
+*****
+
+####  4591  
+##### 5708#       发表于 2022-8-10 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008136&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 18:46</a>
+
+这皮套人直播有啥意思，分又不高，还喜欢杠弹幕，b站高分单排我只看youc</blockquote>
+B站分最高的应该是:就是个走劣势路的 万分三号位 原来烈火还是海洋队那个PO3
+
+*****
+
+####  战狼PTSD  
+##### 5709#       发表于 2022-8-10 21:19
+
+<img src="https://img.saraba1st.com/forum/202208/10/211901xd2opgnuyw8ndozn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 21:19 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/211906q4zoxrz0oosecdko.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 21:19 上传
+
+玩DOTA的确实少了，当年鳖孙大战可热闹的不行
+
+*****
+
+####  名字不乱取  
+##### 5710#       发表于 2022-8-10 21:20
+
+rng负责刀塔的确实不行，隔壁能把无冠包装成世界第一那么多年，把运营借过来让水更浑一点算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5711#       发表于 2022-8-10 21:21
+
+杰出一个现在喝ru水的蹭子，理他干嘛，纯蹭子你越理他他越来劲。
+
