@@ -9884,3 +9884,25 @@ s1也是艾瑞达论坛，奉劝你楼参加8月2日菠菜的早日自首
 好啊好啊OB的狗所以盯着A符号剪是吧，A符号也是OB，大头实在是太强了！</blockquote>
 我记得原来自媒体不是天天剪ob的吗
 
+
+
+*****
+
+####  scg2017  
+##### 5679#       发表于 2022-8-10 20:08
+
+https://bbs.nga.cn/read.php?tid=33004397
+
+https://bbs.nga.cn/read.php?tid=33013813
+
+味儿太冲了。远离太监论坛，生活更有意义
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  韬晦  
+##### 5680#       发表于 2022-8-10 20:11
+
+傻狗下萧瑟哥哥对面赚麻啦，感谢萧瑟哥哥
+

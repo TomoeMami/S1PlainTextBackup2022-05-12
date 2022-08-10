@@ -5985,3 +5985,215 @@ CBA总不能靠那个完全不像有输出能力的身板打输出
 
 坐等坛友豹跳
 
+
+
+*****
+
+####  alucardcz  
+##### 572#       发表于 2022-8-10 20:03
+
+蓝拐？？？
+
+*****
+
+####  rooarr  
+##### 573#       发表于 2022-8-10 20:03
+
+天生自带20NP，这个被动史无前例啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 574#       发表于 2022-8-10 20:03
+
+经典12月，哇，太惊讶了
+
+*****
+
+####  angelooo  
+##### 575#       发表于 2022-8-10 20:03
+
+我想要伊吹和cba，这次的四星没一个想要的，送的女武神又整烂活，好痛苦
+
+*****
+
+####  exiaexa  
+##### 576#       发表于 2022-8-10 20:03
+
+我给你们提个醒，我要暴晒了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 577#       发表于 2022-8-10 20:03
+
+蓝卡版梅林。。。。。。。。
+
+*****
+
+####  rooarr  
+##### 578#       发表于 2022-8-10 20:04
+
+宝具等级绑定每回合的NP恢复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1宝没人权系列
+
+*****
+
+####  霧谷藤乃  
+##### 579#       发表于 2022-8-10 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009012&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 20:03</a>
+
+我给你们提个醒，我要暴晒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你十连满宝了？
+
+*****
+
+####  eilot  
+##### 580#       发表于 2022-8-10 20:06
+
+7*30石
+
+兩隻水着ガレス、一隻女梅林、一隻武則天(剛好寶5)、一隻羅摩(寶2)
+
+結束這回合
+
+*****
+
+####  exiaexa  
+##### 581#       发表于 2022-8-10 20:06
+
+<img src="https://img.saraba1st.com/forum/202208/10/200559e7ytr26s63xstrrp.jpg" referrerpolicy="no-referrer">
+
+<strong>爆 晒.jpg</strong> (559.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 582#       发表于 2022-8-10 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009043&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 20:06</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽太欧了
+
+*****
+
+####  rooarr  
+##### 583#       发表于 2022-8-10 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009043&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 20:06</a></blockquote>
+欧 羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 584#       发表于 2022-8-10 20:07
+
+暴死了
+
+*****
+
+####  khxooo  
+##### 585#       发表于 2022-8-10 20:07
+
+真是无敌绑定灭气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 586#       发表于 2022-8-10 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无敌绑灭气太恶心了
+
+*****
+
+####  Jamaisvu  
+##### 587#       发表于 2022-8-10 20:08
+
+搬一下新的卡面：
+
+<img src="https://img.saraba1st.com/forum/202208/10/200549otg98tgm368y2m99.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h51xb8g8c3j20sg148ajw.jpg</strong> (411.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:05 上传
+
+阿瓦隆女士果然很好看。不过二阶段打着伞、一三阶段同样姿势让我想起了兔子王...当然画风就云泥之别了。
+
+<img src="https://img.saraba1st.com/forum/202208/10/200550ra4a9aj3vn234wal.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h51xax0syyj20sg148jxl.jpg</strong> (265.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:05 上传
+
+加雷斯，一破后果然换上了可爱的泳装。三破的造型好飒啊，脸上的红晕也没有了，成熟的大姑娘真好啊，如果没有被兰斯洛特砍死一定能健康成长出这番模样吧！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+期待剩下的四个泳装<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+（社长的复制人就先不指望了...希望别加奇怪的颜色滤镜...）
+
+*****
+
+####  Jamaisvu  
+##### 588#       发表于 2022-8-10 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009043&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 20:06</a></blockquote>
+恭喜恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 589#       发表于 2022-8-10 20:11
+
+这是我从开服氪到现在第二次三黄
+
+第一次是1.5时候两个南丁加一个啥忘了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 590#       发表于 2022-8-10 20:11
+
+再搬一下目前能拿到的三个从者的解包：
+
+<img src="https://img.saraba1st.com/forum/202208/10/201149gk06ormkkmer6nqb.jpg" referrerpolicy="no-referrer">
+
+<strong>FD4863910A9D48F28B174A336A9BF4FF.jpg</strong> (533.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/201150uuspzu9po9212h9a.jpg" referrerpolicy="no-referrer">
+
+<strong>EE8B9544903498D5D04E330696DEF908.jpg</strong> (482.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/201151jk5vfhbyb5uhn7fn.jpg" referrerpolicy="no-referrer">
+
+<strong>296A3231B77C177F28769A93B0C3C449.jpg</strong> (115.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:11 上传
+
+*****
+
+####  黑上シグマ  
+##### 591#       发表于 2022-8-10 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">600石1宝，加雷斯8宝，33连给我歪了个月神艹
+
