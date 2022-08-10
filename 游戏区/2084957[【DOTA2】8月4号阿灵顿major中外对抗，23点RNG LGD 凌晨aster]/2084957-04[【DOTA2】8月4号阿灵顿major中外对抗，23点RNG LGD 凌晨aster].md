@@ -4172,3 +4172,127 @@ VP的阵容容错率很低，但是打得很漂亮，也差点就抓住一点机
 
 超级集美论坛怎么又开始岁月史书猫鼠游戏了，今年不都说了一年了又不是现在的lgd粉丝拿来吹捧的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4993#       发表于 2022-8-10 08:31
+
+<blockquote>百世诸侯 发表于 2022-8-10 08:28
+如果窝现在问大家，今年是否投降是否缩壳，恐怕大家都会回复“相信A/”。
+
+但是窝明显感觉到了，“相信A/" ...</blockquote>
+这么真情实感，很难相信不是真集美能打出来的字
+
+*****
+
+####  belldandy_ye  
+##### 4994#       发表于 2022-8-10 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999482&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-10 08:20</a>
+
+这盘后期我感觉是VP打得更好，就是阵容在这个时候不如雪碧简单好打
+
+VP的酱油玛西双头龙在后期团战都不好发 ...</blockquote>
+其实是VP的阵容好打，雪碧这边只靠一手黛泽容错，团战万一黛泽先死就是正面溃败团，能赢真的是靠马西先手白送+黛泽给出了太多薄葬，蝙蝠、兔子、双头龙的控制链和战场分割真的很变态.大后期猴子输出是不如先知的
+
+*****
+
+####  nightmare902015  
+##### 4995#       发表于 2022-8-10 08:34
+
+什么情况，可以摸鱼了一看vp还在打ts第三局
+
+*****
+
+####  蛭人  
+##### 4996#       发表于 2022-8-10 08:35
+
+集美论坛选择性失忆是这样的啊，他们连小鱼人曾经是ame绝活这茬儿都由ti9遗忘了，只能说饭团文化NB。
+
+*****
+
+####  我爱撩菜  
+##### 4997#       发表于 2022-8-10 08:35
+
+大锤大哥，vp不想赢吗
+
+*****
+
+####  遍体精淋af  
+##### 4998#       发表于 2022-8-10 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999590&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-10 08:34</a>
+什么情况，可以摸鱼了一看vp还在打ts第三局</blockquote>
+前两把都是60分钟长痛局
+
+*****
+
+####  pikamee  
+##### 4999#       发表于 2022-8-10 08:35
+
+王处话题的回复超过100字，自动鉴定为集美<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Damocles990609  
+##### 5000#       发表于 2022-8-10 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999600&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-10 08:35</a>
+王处话题的回复超过100字，自动鉴定为集美</blockquote>
+辣么，tanya算什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 5001#       发表于 2022-8-10 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999599&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-10 08:35</a>
+前两把都是60分钟长痛局</blockquote>
+太痛了，茶队这nm可以打到中午十二点
+
+*****
+
+####  nowaki  
+##### 5002#       发表于 2022-8-10 08:39
+
+怎么独联体内战还没打完
+
+*****
+
+####  pikamee  
+##### 5003#       发表于 2022-8-10 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999627&amp;ptid=2084957" target="_blank">Damocles990609 发表于 2022-8-10 08:38</a>
+
+辣么，tanya算什么呢</blockquote>
+显然是终极扭曲集美，病到末期那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看到偶像回复自己，直接来精神了
+
+*****
+
+####  CNFH1984  
+##### 5004#       发表于 2022-8-10 08:39
+
+坛友们应该注意到，处长仍然是那个处长。
+
+*****
+
+####  石狮鬼  
+##### 5005#       发表于 2022-8-10 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话VPTS第一把那个状态，下去打RNG感觉RNG都有机会
+
+第二把感觉把两队都激出来了，不好说了
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5006#       发表于 2022-8-10 08:40
+
+<blockquote>蛭人 发表于 2022-8-10 08:35
+集美论坛选择性失忆是这样的啊，他们连小鱼人曾经是ame绝活这茬儿都由ti9遗忘了，只能说饭团文化NB。 ...</blockquote>
+这个还真不算选择性失忆，处长所谓小鱼绝活应该是最早ti8那年超级major打的吧，但实际上那把小鱼究极辣眼睛。连lowga都反复拷打过为什么处长的小鱼跳不设置快捷施法导致比赛里很多次出现究极辣眼睛的切入和逃生。反正我印象里处长的小鱼绝对是他最辣眼睛的敏核之一。
+
