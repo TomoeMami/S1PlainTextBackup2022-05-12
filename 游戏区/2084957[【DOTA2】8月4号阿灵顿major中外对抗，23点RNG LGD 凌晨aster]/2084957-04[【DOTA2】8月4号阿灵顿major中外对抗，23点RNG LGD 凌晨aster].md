@@ -11324,3 +11324,339 @@ nga真tm纯二极管论坛 <img src="https://static.saraba1st.com/image/smiley/f
 
 液体早点走吧四号位对大家都不好
 
+
+
+*****
+
+####  pikamee  
+##### 5844#       发表于 2022-8-11 01:55
+
+可以直接下结论，你们真的很喜欢看超级集美论坛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  -SLSL-  
+##### 5845#       发表于 2022-8-11 01:58
+
+zai哥10分钟2500呀
+
+*****
+
+####  尸体鲨  
+##### 5846#       发表于 2022-8-11 01:58
+
+S1用户的命运就是爱上看NGA
+
+*****
+
+####  ninini212  
+##### 5847#       发表于 2022-8-11 02:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是看比赛然后被引流到月鳖那里，然后发了个TM你们这群低分猪配和我月神谈理解吗转手就被360
+
+*****
+
+####  haruhiismer  
+##### 5848#       发表于 2022-8-11 02:05
+
+麦克逆天呀小小先出个连击刀
+
+*****
+
+####  nowaki  
+##### 5849#       发表于 2022-8-11 02:05
+
+楼友们 16分钟6个头的cs比赛真的有人看吗
+
+*****
+
+####  lmslardar  
+##### 5850#       发表于 2022-8-11 02:09
+
+欧洲区预选赛几个出线名额啊，秘密是要打预选吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  雅朵莉雀  
+##### 5851#       发表于 2022-8-11 02:17
+
+所有地区预选赛都是一样的，一个预选名额两个外卡名额
+
+如果liquid这局输了，那西欧预选至少有Entity、秘密、Nigma、Liquid，大概率有角斗士了
+
+*****
+
+####  haruhiismer  
+##### 5852#       发表于 2022-8-11 02:18
+
+这海民力中大力
+
+*****
+
+####  lmslardar  
+##### 5853#       发表于 2022-8-11 02:32
+
+15分钟7k差距的局打了40分钟我服了
+
+*****
+
+####  mkii量产型  
+##### 5854#       发表于 2022-8-11 02:34
+
+BOOM突然会打了，这上高上的思路清晰
+
+*****
+
+####  haruhiismer  
+##### 5855#       发表于 2022-8-11 02:34
+
+剑圣打个召唤物和高甲的tb都不愿意出大电吗
+
+*****
+
+####  lmslardar  
+##### 5856#       发表于 2022-8-11 02:38
+
+又要带我认识5级中立道具了吗
+
+*****
+
+####  excalibur--  
+##### 5857#       发表于 2022-8-11 02:40
+
+这上高思路很懂啊，就靠剑圣转
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 5858#       发表于 2022-8-11 02:41
+
+秘密 ngm吐了
+
+*****
+
+####  pikamee  
+##### 5859#       发表于 2022-8-11 02:44
+
+芬兰志勇哭了
+
+*****
+
+####  kyl2001  
+##### 5860#       发表于 2022-8-11 02:44
+
+欧洲预选又来个
+
+*****
+
+####  很久就在那边l  
+##### 5861#       发表于 2022-8-11 02:44
+
+gg还有可能被挤出去呢，搞不好西欧就俩直邀了
+
+*****
+
+####  a1370303  
+##### 5862#       发表于 2022-8-11 02:44
+
+马体也要打预选了，西欧预选地狱级难度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 5863#       发表于 2022-8-11 02:45
+
+反正邀请不了，要不还是把zai踢了找快播哥回来吧，继续打兄弟dota
+
+*****
+
+####  acalephs  
+##### 5864#       发表于 2022-8-11 02:46
+
+要不把GG也挤下去预选吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 5865#       发表于 2022-8-11 02:51
+
+角斗士被挤下去需要Fnatic赢BC、EG赢Entity，然后VP和RNG的胜者赢Fnatic
+
+*****
+
+####  希望之花  
+##### 5866#       发表于 2022-8-11 02:54
+
+马桶打完都哭了
+
+预选赛地狱难度<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 5867#       发表于 2022-8-11 02:57
+
+欧洲区养蛊王了啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  外挂全家脚气  
+##### 5868#       发表于 2022-8-11 03:14
+
+床神蓝猫终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5869#       发表于 2022-8-11 03:15
+
+能不能把eg关了啊 不想看rtz表演了
+
+*****
+
+####  fopinecone  
+##### 5870#       发表于 2022-8-11 03:21
+
+谁赢无所谓，别耽误看RNG就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ninini212  
+##### 5871#       发表于 2022-8-11 03:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013947&amp;ptid=2084957" target="_blank">fopinecone 发表于 2022-8-11 03:21</a>
+
+谁赢无所谓，别耽误看RNG就行
+
+论坛助手,iPhone</blockquote>
+睡到七点起来看绝对不耽误
+
+*****
+
+####  fopinecone  
+##### 5872#       发表于 2022-8-11 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013969&amp;ptid=2084957" target="_blank">ninini212 发表于 2022-8-11 03:36</a>
+睡到七点起来看绝对不耽误</blockquote>
+时差都倒过来了，咋办嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wbzdwsmnmsl  
+##### 5873#       发表于 2022-8-11 04:39
+
+才醒，不懂就问，我还能大概再睡多久看rng？一小时吗
+
+*****
+
+####  格雷殿下  
+##### 5874#       发表于 2022-8-11 04:42
+
+最近玩的dmm游戏，我体力都清玩了，几点开呀
+
+*****
+
+####  smlszh  
+##### 5875#       发表于 2022-8-11 05:02
+
+最早6点半开
+
+*****
+
+####  雅朵莉雀  
+##### 5876#       发表于 2022-8-11 05:02
+
+Stormstormer这个死灵龙坐的真的不讲究啊，每次都是两只鸟一起坐
+
+但是他又经常玩这英雄，胜率也很高，按理说是非常熟手的，怎么会这样
+
+仿佛就是学会了打钱A过去就赢了
+
+*****
+
+####  阿垃垃圾历  
+##### 5877#       发表于 2022-8-11 05:04
+
+还要一局 感觉至少6点半才能看到rng了
+
+*****
+
+####  aisakahammer  
+##### 5878#       发表于 2022-8-11 05:11
+
+醒早了，还能再睡会儿再送超哥
+
+*****
+
+####  AkaiSuisei  
+##### 5879#       发表于 2022-8-11 05:20
+
+EG这ban人，召唤系都没了
+
+*****
+
+####  AkaiSuisei  
+##### 5880#       发表于 2022-8-11 05:37
+
+我超，要是Entity干掉EG，RNG赢了就能直邀，超哥命运把握在自己手里了
+
+
+
+*****
+
+####  山上徹也  
+##### 5881#       发表于 2022-8-11 05:49
+
+rtz蹉跎这么多年连个炼金都玩不明白了
+
+*****
+
+####  外挂全家脚气  
+##### 5882#       发表于 2022-8-11 05:58
+
+EG又被干了...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5883#       发表于 2022-8-11 05:59
+
+这个兽王再看看术士zai的，真是高下立判啊。
+
+*****
+
+####  山上徹也  
+##### 5884#       发表于 2022-8-11 06:01
+
+好不想敲
+
+*****
+
+####  walfeds  
+##### 5885#       发表于 2022-8-11 06:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒来就看到eg被entity暴打
+
+*****
+
+####  阿垃垃圾历  
+##### 5886#       发表于 2022-8-11 06:01
+
+好的 下一把看超哥了 
+
