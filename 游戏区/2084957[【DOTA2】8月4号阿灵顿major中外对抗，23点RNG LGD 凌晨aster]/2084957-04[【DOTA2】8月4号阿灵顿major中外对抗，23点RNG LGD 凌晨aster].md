@@ -10778,3 +10778,120 @@ BOOM这队打的挺有章法的，感觉潜力还是挺大的
 
 真的是脑浆都打出来了
 
+
+
+*****
+
+####  ArowRocher  
+##### 5776#       发表于 2022-8-11 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012630&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-10 23:54</a>
+讲道理迪拜邀请赛打完以后对boom的看好确实不是无缘无故的，这队在一些战术执行上确实有东西
+
+然后利雅得大 ...</blockquote>
+那场打的也是有来有回一地脑浆，还有查理斯的酒仙秀
+
+*****
+
+####  吃货红毛  
+##### 5777#       发表于 2022-8-11 00:03
+
+这什么小小啊来自: iPhone客户端
+
+*****
+
+####  逃离二次元  
+##### 5778#       发表于 2022-8-11 00:05
+
+油扒鸡这也忒畜了
+
+*****
+
+####  弈秋  
+##### 5779#       发表于 2022-8-11 00:08
+
+boom还是不行
+
+*****
+
+####  弈秋  
+##### 5780#       发表于 2022-8-11 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送起来了，卧槽
+
+*****
+
+####  吃货红毛  
+##### 5781#       发表于 2022-8-11 00:08
+
+我超这ck拉得够满的来自: iPhone客户端
+
+*****
+
+####  -SLSL-  
+##### 5782#       发表于 2022-8-11 00:09
+
+这团打的脑浆都出来了
+
+*****
+
+####  莉拉厨  
+##### 5783#       发表于 2022-8-11 00:09
+
+应该拿下了，液体最强一波被干碎
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 5784#       发表于 2022-8-11 00:09
+
+这小鹿够抽象的
+
+*****
+
+####  12481632  
+##### 5785#       发表于 2022-8-11 00:09
+
+这两边打的是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 5786#       发表于 2022-8-11 00:09
+
+这刚刚点进来就看到这是什么脑浆
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 5787#       发表于 2022-8-11 00:09
+
+CK不好处理了
+
+有一说一其实看兵线处理BOOM这队就已经算不那么脑浆的队伍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5788#       发表于 2022-8-11 00:10
+
+这个**不出魔晶的吗？拆塔这么慢的？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 5789#       发表于 2022-8-11 00:11
+
+大老师无限看好doom
+
+*****
+
+####  逃离二次元  
+##### 5790#       发表于 2022-8-11 00:11
+
+为什么职业哥的蠕动亚龙都不喜欢出魔晶
+

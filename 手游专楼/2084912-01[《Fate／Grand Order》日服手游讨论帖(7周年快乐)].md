@@ -7338,3 +7338,30 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 伊吹确认是光炮了吗，万一是个单体不是尴尬了，这宝具很是霸气啊，然后立绘比原版还瑟琴，现在需要担心的是雷太的卡面背景，本身配色已经很花了再给个乱七八糟的背景又要瞎了
 
+
+
+*****
+
+####  lovereign  
+##### 702#       发表于 2022-8-11 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">7周年回归老毕登切号氪金结果把引继码弄掉了  有没有人知道找回一般要多久？（以前找回过）
+
+*****
+
+####  gpx234mqx  
+##### 703#       发表于 2022-8-11 00:10
+
+看在自称妹妹上面意思意思310了
+
+给金钻头当辅助不错<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+724.jpg
+(488 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 00:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/000951u5m6kb5mbbddmdb5.jpg" referrerpolicy="no-referrer">
+
