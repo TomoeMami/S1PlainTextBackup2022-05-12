@@ -11074,3 +11074,59 @@ BOOM虽然有时候脑浆横流但最基本的局势把握还是有的，起码�
 
 超哥可以88dota了，vp难打过去，就算打过去了还得面对boom和liquid的胜者，玩不了啦
 
+
+
+*****
+
+####  修罗王  
+##### 5815#       发表于 2022-8-11 00:23
+
+<blockquote>逃离二次元 发表于 2022-8-11 00:21
+超哥可以88dota了，vp难打过去，就算打过去了还得面对boom和liquid的胜者，玩不了啦 ...</blockquote>
+是fnc和bc的胜者
+
+*****
+
+####  弈秋  
+##### 5816#       发表于 2022-8-11 00:24
+
+好像看超哥对克里斯
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5817#       发表于 2022-8-11 00:26
+
+<blockquote>nxmonitor 发表于 2022-8-11 00:13
+Boom这波就脑浆了，不记盾时间的吗？</blockquote>
+最后一个肉山？那波不是不记而是boom这边ck没有bkb接不了肉山团，放了是正确选择。
+
+*****
+
+####  逃离二次元  
+##### 5818#       发表于 2022-8-11 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012967&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-8-11 00:23</a>
+
+是fnc和bc的胜者</blockquote>
+我错了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 5819#       发表于 2022-8-11 00:27
+
+肌肉dota和脑浆dota根本就是一回事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 5820#       发表于 2022-8-11 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012996&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-11 00:26</a>
+
+最后一个肉山？那波不是不记而是boom这边ck没有bkb接不了肉山团，放了是正确选择。 ...</blockquote>
+实际上之前那波就不应该打的，都快刷盾了还是硬上，更迷的是没盾上有盾的高地……
+
