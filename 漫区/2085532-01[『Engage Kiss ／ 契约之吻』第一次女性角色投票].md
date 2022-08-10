@@ -742,3 +742,22 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 梗小姐后面还会翻盘的</blockquote>
 相信梗小姐是吧
 
+
+
+*****
+
+####  铃芽户缔  
+##### 81#       发表于 2022-8-10 10:28
+
+莎朗才出场一集就有100多票了？
+
+*****
+
+####  osore  
+##### 82#       发表于 2022-8-10 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001125&amp;ptid=2085532" target="_blank">铃芽户缔 发表于 2022-8-10 10:28</a>
+
+莎朗才出场一集就有100多票了？</blockquote>
+下半身是不会骗人的
+

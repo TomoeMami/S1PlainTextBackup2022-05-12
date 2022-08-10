@@ -5289,3 +5289,126 @@ damn，红蓝字的时候鼠标挪到主界面的rng，会显示乔巴和链子
 
 不是，我看弹幕说蓝猫目前胜率90%？有无懂哥说下基本都是什么套路<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Keynes  
+##### 5132#       发表于 2022-8-10 10:22
+
+十战九胜，但是看油面说强度还是不太行
+
+*****
+
+####  やト  
+##### 5133#       发表于 2022-8-10 10:22
+
+看看全胜的曾娇阳
+
+*****
+
+####  joker9527  
+##### 5134#       发表于 2022-8-10 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000759&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-10 10:05</a>
+
+今天领导出差，然后我把手下都安排出去跑客户了
+
+安心一个人在办公室摸鱼品茶，nice！ ...</blockquote>
+哥们疫情在家远程躺了几个月了，每天就是工作电脑挂机，然后看ob4+2 看各种dota比赛 然后边开个毒奶粉刷刷刷<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Keynes  
+##### 5135#       发表于 2022-8-10 10:23
+
+原来大家都是中层领导班子老逼了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyuhiu  
+##### 5136#       发表于 2022-8-10 10:24
+
+这把看曾娇阳力中暴力
+
+*****
+
+####  白野苍衣  
+##### 5137#       发表于 2022-8-10 10:25
+
+这把看四兄弟能不能带动杜鹏了
+
+*****
+
+####  asd235614  
+##### 5138#       发表于 2022-8-10 10:27
+
+中路垚成3V3了草
+
+*****
+
+####  Keynes  
+##### 5139#       发表于 2022-8-10 10:27
+
+《杀意暴起》
+
+*****
+
+####  莉拉厨  
+##### 5140#       发表于 2022-8-10 10:27
+
+中路打的好激烈！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Cantha  
+##### 5141#       发表于 2022-8-10 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这老鹿 起飞
+
+*****
+
+####  nxmonitor  
+##### 5142#       发表于 2022-8-10 10:28
+
+选TB靠monet真不好，前几天各种脑浆，一个虚空顶着冰龙出，然后一把放四个大罩四个人，说实话你就算当控制打都好啊……
+
+*****
+
+####  marscat  
+##### 5143#       发表于 2022-8-10 10:30
+
+这波三大哥集合可以啊，一点也不鳖
+
+*****
+
+####  莉拉厨  
+##### 5144#       发表于 2022-8-10 10:30
+
+好紧张好紧张，刺激起来了，骄阳牛逼
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 5145#       发表于 2022-8-10 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送啊
+
+*****
+
+####  迷途lite  
+##### 5146#       发表于 2022-8-10 10:30
+
+好爽的换血
+
+*****
+
+####  天堂蜘蛛  
+##### 5147#       发表于 2022-8-10 10:31
+
+天命双倍啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
