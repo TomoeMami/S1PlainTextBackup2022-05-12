@@ -9621,3 +9621,105 @@ QQ图片20220810181047.jpg
 
 不会真有看OB菜市场的吧
 
+
+
+*****
+
+####  walfeds  
+##### 5649#       发表于 2022-8-10 18:42
+
+雪皇中肯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 5650#       发表于 2022-8-10 18:42
+
+我同时看ob4+2和杰畜解说，感觉要成为首陀罗了
+
+*****
+
+####  scg2017  
+##### 5651#       发表于 2022-8-10 18:43
+
+弹簧喷a畜不完全是因为工作吧？这波不过是戏来了
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 5652#         楼主| 发表于 2022-8-10 18:43
+
+真婆罗门都是看你楼唯一指定皮套人midsunnyone
+
+*****
+
+####  walfeds  
+##### 5653#       发表于 2022-8-10 18:45
+
+什么都不看的我应该是纯纯的云刀狗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AkaiSuisei  
+##### 5654#       发表于 2022-8-10 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008030&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-10 06:36</a>
+因为没有辞职看不了，细说</blockquote>
+大概就是直播说目前社区也好做复盘的也好都是上帝视角，没法从选手的第一视角带入思考，喷都喷不到点子上，然后把这几天maybe和当年ame犯的罪都拿出来洗了一遍，最后扬言不喜欢这个圈子的环境。结果被人切片出来，评论区集美开始团建，什么“当时ame被喷的时候你不出来说，现在maybe被喷了你开始急了”之类的。
+[切片链接](https://b23.tv/k8HaE5y)
+
+*****
+
+####  百世诸侯  
+##### 5655#       发表于 2022-8-10 18:46
+
+这皮套人直播有啥意思，分又不高，还喜欢杠弹幕，b站高分单排我只看youc
+
+*****
+
+####  反方向的波  
+##### 5656#       发表于 2022-8-10 18:46
+
+midsingle lightone已经过气了，真婆罗门都在看twilight alone
+
+*****
+
+####  逃离二次元  
+##### 5657#       发表于 2022-8-10 18:47
+
+youc也喜欢杠弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5658#       发表于 2022-8-10 18:48
+
+没有职业选手的解说不如看官方。
+
+*****
+
+####  Litccc  
+##### 5659#       发表于 2022-8-10 18:50
+
+看mdy感觉还行，鸡鳖被弹幕拷打的时候都是直接缩壳的，偶尔还能听听职业圈趣事
+
+*****
+
+####  ArowRocher  
+##### 5660#       发表于 2022-8-10 18:51
+
+现在虎牙那几个都在干什么，黑屏解说吗
+
+*****
+
+####  morwhipppo  
+##### 5661#       发表于 2022-8-10 18:51
+
+完美实习生不是dodo刚直播还在和她玩处长的梗吗？是换了一个还是喝水了
+
