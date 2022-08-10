@@ -8977,3 +8977,21 @@ v社工作人员被乌克兰黑帮枪杀了，望周知<img src="https://static.
 
 https://bbs.nga.cn/read.php?tid=32992461                             集美的黑色幽默太抽象了。
 
+
+
+*****
+
+####  no1yaya  
+##### 5584#       发表于 2022-8-10 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57004858&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-10 14:44</a>
+https://bbs.nga.cn/read.php?tid=32992461                             集美的黑色幽默太抽象了。 ...</blockquote>
+胡说 集美说了 没有axo 不然早就像核弹那样网暴一群人了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 5585#       发表于 2022-8-10 14:59
+
+可惜fy这回没打，不然又可以看一遍集美清算牛头了
+
