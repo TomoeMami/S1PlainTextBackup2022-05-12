@@ -9999,3 +9999,53 @@ https://bbs.nga.cn/read.php?tid=33013813</blockquote>
 
 相信超哥，另外预选再惨起码还是能进外卡的
 
+
+
+*****
+
+####  北条早苗  
+##### 5689#       发表于 2022-8-10 20:25
+
+外卡12进2，还至少会有kky和ppy其中一个老逼，进去脑浆都得打出来
+
+*****
+
+####  反方向的波  
+##### 5690#       发表于 2022-8-10 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">感觉呆毛状态还可以，gpk半人半鬼，而六老师能把自己打成cis rejects不是没有理由的
+
+*****
+
+####  阿垃垃圾历  
+##### 5691#       发表于 2022-8-10 20:28
+
+晚上先看一把液体 看完睡觉闹钟起来看超哥 
+
+*****
+
+####  lyjssj  
+##### 5692#       发表于 2022-8-10 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NGA集美不就是这样么，自己已经是茅坑里最臭的一坨屎了，还天天被害妄想其他人要向他们泼粪
+
+*****
+
+####  thistimeforlife  
+##### 5693#       发表于 2022-8-10 20:28
+
+现在回忆 还好ti8总决赛看直播的时候，心里希望og赢的心态就已经有6-7成了
+
+g4g5的跌宕起伏，看完恍如隔世，尤其是g5那波肉山团之前的略感失望。
+
+后面就更不用多说了，ti10那会回来关注的时候，发现水厂还是一如既往的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 5694#       发表于 2022-8-10 20:31
+
+我要看到外卡血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">感觉只会比小组赛刺激啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

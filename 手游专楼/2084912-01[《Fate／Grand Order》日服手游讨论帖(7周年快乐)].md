@@ -6333,3 +6333,131 @@ md，不让用信用卡了
 
 对了 暴击也是1个回合  并没有集星
 
+
+
+*****
+
+####  areklose  
+##### 607#       发表于 2022-8-10 20:22
+
+我急了。为什么要下周才能抽斯卡蒂
+
+*****
+
+####  exiaexa  
+##### 608#       发表于 2022-8-10 20:23
+
+ 本帖最后由 exiaexa 于 2022-8-10 20:25 编辑 
+
+加雷斯你这攻击力怎么回事
+
+80级+1000才9119
+
+那边那个梅莉60级+1000就9654了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 609#       发表于 2022-8-10 20:25
+
+我想暴论一宝的梅莉就是废物可以不，隔壁居然还有人想让她进卑梅呆体系，敢情就光叠oc不让红卡打输出了？
+
+*****
+
+####  里村紅葉  
+##### 610#       发表于 2022-8-10 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009149&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 20:14</a>
+
+你为什么玩什么都这么欧呢（</blockquote>
+我非的时候你也妹看见啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如我方舟水陈吃井的时候
+
+*****
+
+####  空气蛹  
+##### 611#       发表于 2022-8-10 20:26
+
+330石一宝溜了，这也太弱了，剩下的留给后面了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  newfaceryo  
+##### 612#       发表于 2022-8-10 20:26
+
+谷歌美区的账号信用卡不能支付了，好像完蛋了
+
+有什么其它支付方案的吗？
+
+*****
+
+####  alucardcz  
+##### 613#       发表于 2022-8-10 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009313&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-10 20:25</a>
+
+我非的时候你也妹看见啊比如我方舟水陈吃井的时候</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你好我水陈220出的 算不算吃井
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等等你怎么还玩方舟 pm个id加好友？
+
+*****
+
+####  eilot  
+##### 614#       发表于 2022-8-10 20:27
+
+那男版梅林何時才有技能強化?
+
+*****
+
+####  霧谷藤乃  
+##### 615#       发表于 2022-8-10 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13发11连才出……哎，剩下石头留给斯卡蒂看看了
+
+*****
+
+####  黑上シグマ  
+##### 616#       发表于 2022-8-10 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009331&amp;ptid=2084912" target="_blank">newfaceryo 发表于 2022-8-10 20:26</a>
+
+谷歌美区的账号信用卡不能支付了，好像完蛋了
+
+有什么其它支付方案的吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">去日区用信用卡咯
+
+*****
+
+####  alucardcz  
+##### 617#       发表于 2022-8-10 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009363&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-10 20:28</a>
+
+13发11连才出……哎，剩下石头留给斯卡蒂看看了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 萌新60+9符连个4星都没有
+
+*****
+
+####  qixinno2  
+##### 618#       发表于 2022-8-10 20:30
+
+<blockquote>alucardcz 发表于 2022-8-10 20:28
+欧 羡慕 萌新60+9符连个4星都没有</blockquote>
+萌新竟然抽这个 不等尺子老太婆了么
+
+*****
+
+####  exiaexa  
+##### 619#       发表于 2022-8-10 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009331&amp;ptid=2084912" target="_blank">newfaceryo 发表于 2022-8-10 20:26</a>
+
+谷歌美区的账号信用卡不能支付了，好像完蛋了
+
+有什么其它支付方案的吗？ ...</blockquote>
+大概只能花光余额转日区了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
