@@ -5061,3 +5061,108 @@ steam又开始周常维护了，服了
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 5104#       发表于 2022-8-10 10:02
+
+steam最近一更新就开始修复游戏，一修就是一个小时等于把游戏重装一遍，真的会吐
+
+*****
+
+####  北条早苗  
+##### 5105#       发表于 2022-8-10 10:03
+
+10点了还没开始bp，电子竞技没有准时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 5106#       发表于 2022-8-10 10:05
+
+这下茶队真的万众瞩目了
+
+*****
+
+####  chilno  
+##### 5107#       发表于 2022-8-10 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天领导出差，然后我把手下都安排出去跑客户了
+
+安心一个人在办公室摸鱼品茶，nice！
+
+*****
+
+####  弈秋  
+##### 5108#       发表于 2022-8-10 10:06
+
+ban蠕动亚龙，杜鹏想要表演
+
+*****
+
+####  wbzdwsmnmsl  
+##### 5109#       发表于 2022-8-10 10:07
+
+不懂就问，是不是刀塔线下比赛一直不锁客户端啊，这打比赛途中更新版本也太抽象了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cantha  
+##### 5110#       发表于 2022-8-10 10:07
+
+什么企业管理
+
+*****
+
+####  IG.430  
+##### 5111#       发表于 2022-8-10 10:09
+
+jeff哥哥狠狠修了几个bug，就被下面的服务器维护人员穿小鞋了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 5112#       发表于 2022-8-10 10:09
+
+要命…8点比赛直接10点开始bp…早茶打到下午茶是吧（那边貌似是宵夜到早茶？）
+
+*****
+
+####  chilno  
+##### 5113#       发表于 2022-8-10 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000789&amp;ptid=2084957" target="_blank">wbzdwsmnmsl 发表于 2022-8-10 10:07</a>
+
+不懂就问，是不是刀塔线下比赛一直不锁客户端啊，这打比赛途中更新版本也太抽象了吧 ...</blockquote>
+应该不是ti
+
+反正至少是有一年major打一半有被踢出去更新客户端的..
+
+*****
+
+####  弈秋  
+##### 5114#       发表于 2022-8-10 10:10
+
+这也ban虚空
+
+*****
+
+####  wbzdwsmnmsl  
+##### 5115#       发表于 2022-8-10 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000825&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-10 10:09</a>
+
+应该不是ti
+
+反正至少是有一年major打一半有被踢出去更新客户端的..</blockquote>
+谢谢解答，那只能说v社真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 5116#       发表于 2022-8-10 10:11
+
+摆烂社是这样的，连自家比赛都疯狂背刺
+
