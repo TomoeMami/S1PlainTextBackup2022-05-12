@@ -8490,3 +8490,89 @@ vg的辅助我讲过很多次了，作为从ti4就开始粉vg的铁血vkun，vg�
 
 —— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  沈淮  
+##### 5532#         楼主| 发表于 2022-8-10 12:43
+
+有些人连ori去年没人帮的话都能说得出来还说集美岁月史书，这不就是典型ori今天赢了开始乱翻旧账？不聊也罢午睡去了
+
+*****
+
+####  反方向的波  
+##### 5533#       发表于 2022-8-10 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年vg两个美酒加ti里 两个边路必炸一路 不小概率炸两路，而且既有帮中导致边路炸又有丁聪没有对线理念导致2v2也打不过的炸
+
+*****
+
+####  Keynes  
+##### 5534#       发表于 2022-8-10 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003377&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-10 12:33</a>
+
+阴鳖只是劝他再打一年，茶队应该是曾焦阳自己找的</blockquote>
+原来如此，这就有点喜剧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 5535#       发表于 2022-8-10 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003274&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-10 12:27</a>
+赢vp直接直邀需要发生fnc输bc，液体输boom和eg输ent其中两个</blockquote>
+第三个挺可能，12各50吧。
+
+*****
+
+####  修罗王  
+##### 5536#       发表于 2022-8-10 12:44
+
+<blockquote>沈淮 发表于 2022-8-10 12:34
+漏油搁着岁月史书呢，vg上赛季比赛我全看过了，ori那是没帮中？
+
+不是帮了也被橄榄吗？
+</blockquote>
+新加坡major哪来的eg打vg?
+
+*****
+
+####  蛭人  
+##### 5537#       发表于 2022-8-10 12:44
+
+毕竟饭圈刀塔啊。
+
+*****
+
+####  锯子万藏  
+##### 5538#       发表于 2022-8-10 12:45
+
+这版本可以说是最有利于这个茶的模式
+而且皮球作为新人是真不错
+打ts要加油把对面线上橄榄
+
+*****
+
+####  蛭人  
+##### 5539#       发表于 2022-8-10 12:45
+
+下一轮比赛今天晚上11点打到第二天中午11点还不一定结束，这赛程太牛逼了。
+
+*****
+
+####  沈淮  
+##### 5540#         楼主| 发表于 2022-8-10 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003559&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-8-10 12:44</a>
+新加坡major哪来的eg打vg?</blockquote>
+打错了，二次元
+
+*****
+
+####  IG.430  
+##### 5541#       发表于 2022-8-10 12:51
+
+快删了圣水符吧，我想看到中路血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

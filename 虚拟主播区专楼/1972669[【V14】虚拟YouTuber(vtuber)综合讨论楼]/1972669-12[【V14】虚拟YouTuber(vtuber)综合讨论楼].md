@@ -3575,3 +3575,23 @@ king还是把奖杯寄过去吧
 
 在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en也许真的在cn很火😅
 
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 16818#       发表于 2022-8-10 12:41
+
+vox粉黑都很傻逼，没有娱乐精神。
+
+*****
+
+####  IL282  
+##### 16819#       发表于 2022-8-10 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-10 11:33</a>
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en ...</blockquote>
+underaged chinks 是这样的，世界闻名了都
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8529,3 +8529,21 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那有啥新人啊，咱这都眼熟的id 互聊，加的qq群人均都转中之人粉了，fc该入的入，写真该买的买。
 
+
+
+*****
+
+####  starring  
+##### 2343#       发表于 2022-8-10 12:41
+
+当初调侃星降低年龄层吸收新粉丝，连育儿所也有小粉丝，可是现在出的周边没有哪样适合小友玩，结果现在看来最终目标还是社畜阶层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2344#       发表于 2022-8-10 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003504&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-10 12:41</a>
+当初调侃星降低年龄层吸收新粉丝，连育儿所也有小粉丝，可是现在出的周边没有哪样适合小友玩，结果现在看来 ...</blockquote>
+其实那些小玩意说不定或许可以吧（？），跳绳，毛巾看起来不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
