@@ -730,3 +730,15 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 里伽子虽然实际不是前女友，但是一出场基本就是前女友气场满载了（反正亲也亲过了还送了定情信物。麻实也 ...</blockquote>
 要素最全的前女友原型机香奈子也是一上来就满载的啊
 
+
+
+*****
+
+####  武男  
+##### 80#       发表于 2022-8-10 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56985747&amp;ptid=2085532" target="_blank">V宇宙的守夜人Z 发表于 2022-8-9 03:06</a>
+
+梗小姐后面还会翻盘的</blockquote>
+相信梗小姐是吧
+

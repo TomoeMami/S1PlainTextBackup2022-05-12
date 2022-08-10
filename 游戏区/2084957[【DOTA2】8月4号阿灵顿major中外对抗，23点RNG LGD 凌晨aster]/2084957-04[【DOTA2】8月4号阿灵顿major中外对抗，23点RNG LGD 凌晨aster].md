@@ -5166,3 +5166,126 @@ jeff哥哥狠狠修了几个bug，就被下面的服务器维护人员穿小鞋�
 
 摆烂社是这样的，连自家比赛都疯狂背刺
 
+
+
+*****
+
+####  百世诸侯  
+##### 5117#       发表于 2022-8-10 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000759&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-10 10:05</a>
+
+今天领导出差，然后我把手下都安排出去跑客户了
+
+安心一个人在办公室摸鱼品茶，nice！ ...</blockquote>
+萨特我砍
+
+*****
+
+####  白野苍衣  
+##### 5118#       发表于 2022-8-10 10:13
+
+O猫来了
+
+*****
+
+####  反方向的波  
+##### 5119#       发表于 2022-8-10 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000759&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-10 10:05</a>
+今天领导出差，然后我把手下都安排出去跑客户了
+
+安心一个人在办公室摸鱼品茶，nice！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5120#         楼主| 发表于 2022-8-10 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000789&amp;ptid=2084957" target="_blank">wbzdwsmnmsl 发表于 2022-8-10 10:07</a>
+
+不懂就问，是不是刀塔线下比赛一直不锁客户端啊，这打比赛途中更新版本也太抽象了吧 ...</blockquote>
+更dota没关系，steam的问题，steam客户端更新了就会修复一次客户端
+
+*****
+
+####  IG.430  
+##### 5121#       发表于 2022-8-10 10:16
+
+damn，红蓝字的时候鼠标挪到主界面的rng，会显示乔巴和链子
+
+*****
+
+####  百世诸侯  
+##### 5122#       发表于 2022-8-10 10:16
+
+鹏子的美杜莎要来了
+
+*****
+
+####  北条早苗  
+##### 5123#       发表于 2022-8-10 10:17
+
+牛啊，顶着冰龙选tb的是吧
+
+*****
+
+####  Litccc  
+##### 5124#       发表于 2022-8-10 10:18
+
+杜鹏的脑浆tb
+
+*****
+
+####  walfeds  
+##### 5125#       发表于 2022-8-10 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">杀光你们这群摸鱼党
+
+*****
+
+####  一品堂官  
+##### 5126#       发表于 2022-8-10 10:18
+
+打冰龙拉西克 
+
+杜鹏的tb gg
+
+*****
+
+####  IG.430  
+##### 5127#       发表于 2022-8-10 10:18
+
+这下看你表演了
+
+*****
+
+####  Aeons  
+##### 5128#       发表于 2022-8-10 10:18
+
+鹏子的TB，我想到开心的事<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 5129#       发表于 2022-8-10 10:18
+
+呃呃，鳖起来了
+
+*****
+
+####  漂灵  
+##### 5130#       发表于 2022-8-10 10:19
+
+精灵拉席克，没人制裁刷得爆快之无敌快之快中烂快
+
+
+
+*****
+
+####  nightmare902015  
+##### 5131#       发表于 2022-8-10 10:21
+
+不是，我看弹幕说蓝猫目前胜率90%？有无懂哥说下基本都是什么套路<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
