@@ -7490,3 +7490,367 @@ fnc这阵容拿的也有点理想化了，不知道能不能打出来
 
 拿下了，bo3首胜？
 
+
+
+*****
+
+####  12481632  
+##### 5416#       发表于 2022-8-10 12:01
+
+那么问题来了，现在RNG和XG的几兄弟，谁更难受
+
+*****
+
+####  a1370303  
+##### 5417#       发表于 2022-8-10 12:02
+
+可以恭喜茶队进ti了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 5418#       发表于 2022-8-10 12:02
+
+去年ti正赛赢了og吧，major倒是把把一轮游<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 5419#       发表于 2022-8-10 12:02
+
+焦阳这么猛最难受的应该是maybe吧，同样是老年中单简直被处刑。
+
+*****
+
+####  やト  
+##### 5420#       发表于 2022-8-10 12:03
+
+对面打不动GA啊 暂时
+
+*****
+
+####  夜光铃  
+##### 5421#       发表于 2022-8-10 12:03
+
+rng要打到哪才能进ti？
+
+*****
+
+####  Litccc  
+##### 5422#       发表于 2022-8-10 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002850&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-10 12:02</a>
+
+焦阳这么猛最难受的应该是maybe吧，同样是老年中单简直被处刑。</blockquote>
+不应该是xg几兄弟么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 5423#       发表于 2022-8-10 12:03
+
+打不死这GA啊，怎么翻
+
+*****
+
+####  Keynes  
+##### 5424#       发表于 2022-8-10 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002859&amp;ptid=2084957" target="_blank">夜光铃 发表于 2022-8-10 12:03</a>
+ rng要打到哪才能进ti？</blockquote>
+好像是败者组赢两轮就行了
+
+*****
+
+####  IG.430  
+##### 5425#       发表于 2022-8-10 12:04
+
+xg滑跪，别来争预选好吧
+
+*****
+
+####  迷途lite  
+##### 5426#       发表于 2022-8-10 12:04
+
+这GA看不懂了啊
+
+*****
+
+####  nightmare902015  
+##### 5427#       发表于 2022-8-10 12:05
+
+这早就胜负已分了吧
+
+*****
+
+####  沈淮  
+##### 5428#         楼主| 发表于 2022-8-10 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002859&amp;ptid=2084957" target="_blank">夜光铃 发表于 2022-8-10 12:03</a>
+
+rng要打到哪才能进ti？</blockquote>
+败者组第三轮
+
+*****
+
+####  ArowRocher  
+##### 5429#       发表于 2022-8-10 12:06
+
+怎么醒来才打到第二局啊……
+
+*****
+
+####  Bernoulli  
+##### 5430#       发表于 2022-8-10 12:06
+
+fnatic这阵容拿得贪，这次很难拖到成型了。
+
+
+
+*****
+
+####  端木恋心  
+##### 5431#       发表于 2022-8-10 12:06
+
+赢了是不是aster就稳进ti了啊
+
+*****
+
+####  sodah  
+##### 5432#       发表于 2022-8-10 12:06
+
+三核都肥，翻不了的
+
+*****
+
+####  Keynes  
+##### 5433#       发表于 2022-8-10 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002921&amp;ptid=2084957" target="_blank">端木恋心 发表于 2022-8-10 12:06</a>
+ 赢了是不是aster就稳进ti了啊</blockquote>
+是的
+
+*****
+
+####  聚散浮云  
+##### 5434#       发表于 2022-8-10 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002814&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-10 12:01</a>
+点个外卖去，等会再来品</blockquote>
+来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  izayoi39  
+##### 5435#       发表于 2022-8-10 12:07
+
+这虚空好搞笑s了三次大招结果被直接打死了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  外挂全家脚气  
+##### 5436#       发表于 2022-8-10 12:07
+
+这第二盘FNC直接脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 5437#       发表于 2022-8-10 12:07
+
+fnc脑浆被干出来了啊，茶队终于赢了一次
+
+*****
+
+####  沈淮  
+##### 5438#         楼主| 发表于 2022-8-10 12:08
+
+这茶虽然烫嘴，但是个人感觉rng打不过fnc
+
+*****
+
+####  やト  
+##### 5439#       发表于 2022-8-10 12:08
+
+ 正午骄阳  非常猖狂！
+
+*****
+
+####  一品堂官  
+##### 5440#       发表于 2022-8-10 12:08
+
+恭喜恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 5441#       发表于 2022-8-10 12:08
+
+历史性的突破了属于是
+
+*****
+
+####  沈淮  
+##### 5442#         楼主| 发表于 2022-8-10 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002947&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-10 12:07</a>
+
+来不及了
+
+—— 来自 S1Fun</blockquote>
+我早就回来了啊
+
+*****
+
+####  Papercup  
+##### 5443#       发表于 2022-8-10 12:08
+
+直邀了？
+
+*****
+
+####  战狼PTSD  
+##### 5444#       发表于 2022-8-10 12:08
+
+茶队突破历史了，不过败者组是都要握手吗，昨天没看LGD握手
+
+*****
+
+####  12481632  
+##### 5445#       发表于 2022-8-10 12:08
+
+骄阳技术扶贫成功了呀
+
+*****
+
+####  山上徹也  
+##### 5446#       发表于 2022-8-10 12:08
+
+等一个决赛复刻第二赛季西恩季后赛
+
+*****
+
+####  超级柯南迷  
+##### 5447#       发表于 2022-8-10 12:08
+
+恭喜茶队完成历史性壮举，弑父成功
+
+*****
+
+####  你大爷的  
+##### 5448#       发表于 2022-8-10 12:08
+
+好茶我品！
+
+*****
+
+####  Litccc  
+##### 5449#       发表于 2022-8-10 12:08
+
+国内几个队狂喜，可以安心准备预选了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 5450#       发表于 2022-8-10 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万丈光芒
+
+*****
+
+####  沈淮  
+##### 5451#         楼主| 发表于 2022-8-10 12:09
+
+反转了，是因为fnc含猴量不足所以才输的aster，所以茶队还是没有打破魔咒
+
+*****
+
+####  千千千千鸟  
+##### 5452#       发表于 2022-8-10 12:09
+
+21分钟打死，干得好呀，终于结束了，倒头就睡<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5453#       发表于 2022-8-10 12:09
+
+就剩rng了啊
+
+*****
+
+####  反方向的波  
+##### 5454#       发表于 2022-8-10 12:09
+
+丁聪不用穿纸尿裤了
+
+*****
+
+####  端木恋心  
+##### 5455#       发表于 2022-8-10 12:09
+
+就看rng能不能进ti了。虽然我是个乐子人，但是还是希望rng先赢两轮确保进了ti之后在开始在这届比赛表演。
+
+*****
+
+####  izayoi39  
+##### 5456#       发表于 2022-8-10 12:09
+
+xxs还是得玩这种不需要他打节奏只要占线压对面主野区然后打团战的3
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 5457#       发表于 2022-8-10 12:10
+
+你们为什么说国内队安心了
+
+不是还有个RNG么
+
+*****
+
+####  Bernoulli  
+##### 5458#       发表于 2022-8-10 12:11
+
+胜者组淘汰赛还是挺对称的，第一对第四都是2:0，第二对第三都是1：2
+
+*****
+
+####  lyjssj  
+##### 5459#       发表于 2022-8-10 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该不会都熬了一整夜吧，LGD我感觉是稳赢的，直接睡到早上从大毛打二毛开始看
+
+*****
+
+####  灰色的狐狸  
+##### 5460#       发表于 2022-8-10 12:11
+
+“换不了你血还换不了脑浆了？”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Asukalangley33  
+##### 5461#       发表于 2022-8-10 12:11
+
+Rng是要前3还是前6
+感觉没啥希望的
+
+*****
+
+####  北条早苗  
+##### 5462#       发表于 2022-8-10 12:11
+
+xg客厅滑跪
+
