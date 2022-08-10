@@ -10488,3 +10488,78 @@ yysy超哥选队友的眼光是真不行
 ti5放弃了可能是夺冠机会最大的队友，ti6一起哈啤，ti7yao不打我也不打了 ...</blockquote>
 眼少当初在那个比赛上给他的评价“莽夫”，还真没说错。
 
+
+
+*****
+
+####  dclara1  
+##### 5744#       发表于 2022-8-10 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011750&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-10 22:45</a>
+我以为去年maybe去小象没人帮忙打理他的舆论导致被清算三年前三年后已经够可怕了。
+
+没想到今年去RNG还能这 ...</blockquote>
+这话说的，小象rng成绩不好赖到公关部门头上了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ArowRocher  
+##### 5745#       发表于 2022-8-10 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011782&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-10 22:48</a>
+
+猴子奸笑咋发出来的，用diz的代码吗？</blockquote>
+存图自己上传
+
+*****
+
+####  ArowRocher  
+##### 5746#       发表于 2022-8-10 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">定好闹钟准备接机
+
+*****
+
+####  adretyu67  
+##### 5747#       发表于 2022-8-10 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011881&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-10 22:55</a>
+
+这话说的，小象rng成绩不好赖到公关部门头上了吗？
+
+— from Google Pixel 4a (5G), Android 12 o ...</blockquote>
+菜被黑没问题，
+
+但是因为现在菜所以反推出4年前也是个菜逼坑了前队友。
+
+就算我支持maybe的成绩和实力对比就是名过其实，那也是狗屁不通的逻辑。
+
+*****
+
+####  尸体鲨  
+##### 5748#       发表于 2022-8-10 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我突然想起来，按版主（dota2分区）的讲法，杰出那个长约该不会是版主帮他搞定的吧
+
+*****
+
+####  scg2017  
+##### 5749#       发表于 2022-8-10 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011538&amp;ptid=2084957" target="_blank">acg_s1 发表于 2022-8-10 22:28</a>
+TOP 15 Plays of PGL Arlington Major 2022 Dota 2 [Group Stage]
+
+看这个小组赛的top 15感觉vp好猛，脑浆 ...</blockquote>
+看了看对比之下叔叔家画质也太差了吧，bilibili 1080p还不如YouTube 720p60的，观感差远了
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  很久就在那边l  
+##### 5750#       发表于 2022-8-10 23:01
+
+想填个明天的梦幻挑战登录不上去
+

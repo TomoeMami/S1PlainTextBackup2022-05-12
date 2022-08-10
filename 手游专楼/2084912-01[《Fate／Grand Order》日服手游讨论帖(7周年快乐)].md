@@ -7033,3 +7033,53 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 553，128，551来点好友吗，一点友情点都没了</blockquote>
 云玩家状态没法加
 
+
+
+*****
+
+####  kiralzb  
+##### 675#       发表于 2022-8-10 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011761&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 22:46</a>
+
+然而mbaacc里的公主就不这样啊</blockquote>
+太久远了，画风这种东西不变难看就算赢啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 676#       发表于 2022-8-10 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011667&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 22:38</a>
+
+说一下梅莉的使用体验吧
+
+最大的优点：蓝卡单核完全不需要找好友了</blockquote>
+最大的问题不就是加np难嘛
+
+只有20<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 677#       发表于 2022-8-10 23:00
+
+梅莉反正我觉得寄了，日常用不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 678#       发表于 2022-8-10 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011920&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-10 22:58</a>
+
+最大的问题不就是加np难嘛
+
+只有20</blockquote>
+你在做梦吗，单核蓝卡队缺NP？
+
+打手被动20、梅莉20、C呆50、徐福30，这就120了，哪怕有换人洁癖打手只要有自充10NP就开炮了
+
+又不是梅林要去红卡队跟那堆充能神仙抢赛道
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
