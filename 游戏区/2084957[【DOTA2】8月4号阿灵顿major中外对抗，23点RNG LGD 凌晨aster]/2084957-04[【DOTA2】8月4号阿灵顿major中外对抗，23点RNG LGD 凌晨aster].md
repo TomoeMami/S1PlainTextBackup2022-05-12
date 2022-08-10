@@ -9545,3 +9545,24 @@ QQ图片20220810181047.jpg
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  AkaiSuisei  
+##### 5640#       发表于 2022-8-10 18:29
+
+这几天跟的实习生直播，昨晚开的团你楼没人讨论吗
+
+
+
+*****
+
+####  masterffzhou  
+##### 5641#       发表于 2022-8-10 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007732&amp;ptid=2084957" target="_blank">Cantha 发表于 2022-8-10 18:11</a></blockquote>
+雪皇这波没毛病
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
