@@ -6787,3 +6787,59 @@ md，不让用信用卡了
 魔夜限定的封面也画成那样 ...</blockquote>
 看到一个解包是戴眼镜眼镜然后换了发型，比目前放出来的那个还好看，但问题在于解包是投影看不出衣服配色
 
+
+
+*****
+
+####  acuman  
+##### 650#       发表于 2022-8-10 21:23
+
+水武藏的宝具动画更是重量级，幸好还有另外一套动画，不然根本不想用
+
+*****
+
+####  exiaexa  
+##### 651#       发表于 2022-8-10 21:27
+
+ 本帖最后由 exiaexa 于 2022-8-10 21:29 编辑 
+
+这个瓦尔基里，怕不是要变成杀光炮之荣了
+
+自带个20充、地特攻、宝具后魔性低概率即死，普通玩家两个C呆扶着走完事儿，大不了后排加个换人徐福
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 652#       发表于 2022-8-10 21:27
+
+<blockquote>alucardcz 发表于 2022-8-10 21:15
+但是3破。。。。。。。。。</blockquote>
+残缺美（笑
+
+*****
+
+####  kiralzb  
+##### 653#       发表于 2022-8-10 21:29
+
+水武藏不是只有星条旗吗，在说什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+泳装CBA看放送那图脖子就不对劲，这人画身体和头总是不契合的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 654#       发表于 2022-8-10 21:31
+
+但是上色真的顶，水武藏终破卡面那沉甸甸的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 655#       发表于 2022-8-10 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009621&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 20:43</a>
+
+也许你不知道 我全从者都是满级满破的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐观派：你有很多羁绊石头可以…可以爆肝……
+
