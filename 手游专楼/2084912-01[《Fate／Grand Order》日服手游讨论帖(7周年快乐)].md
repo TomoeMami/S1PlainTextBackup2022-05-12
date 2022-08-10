@@ -7006,3 +7006,30 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 然后还有一个问题就是，太JB浪费时间了，不如红绿互拐多核快
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 672#       发表于 2022-8-10 22:46
+
+<blockquote>kiralzb 发表于 2022-8-10 22:35
+宝具正脸是有点，只能说武内脸不得不尝的体验</blockquote>
+然而mbaacc里的公主就不这样啊 
+
+*****
+
+####  kiralzb  
+##### 673#       发表于 2022-8-10 22:47
+
+553，128，551来点好友吗，一点友情点都没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 674#       发表于 2022-8-10 22:48
+
+<blockquote>kiralzb 发表于 2022-8-10 22:47
+553，128，551来点好友吗，一点友情点都没了</blockquote>
+云玩家状态没法加
+
