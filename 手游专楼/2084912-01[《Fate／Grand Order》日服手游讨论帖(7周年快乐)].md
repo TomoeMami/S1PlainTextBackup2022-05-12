@@ -7436,3 +7436,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 活动也是一群人大热天的还特意去北极冬泳....越来越会玩了啊
 
+
+
+*****
+
+####  qixinno2  
+##### 711#       发表于 2022-8-11 07:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了10个呼符 NEW了个红A 笑死
+
