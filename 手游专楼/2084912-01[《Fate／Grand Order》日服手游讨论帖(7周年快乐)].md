@@ -7254,3 +7254,54 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 说起来梅莉吃奥宝的被动debuff不</blockquote>
 不吃，被动debuff只针对魔术师150<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 694#       发表于 2022-8-10 23:34
+
+奶光：我是你妈
+
+水贞：我是你姐
+
+女梅林：我是你妹
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我寻思就差个达斯维达了
+
+*****
+
+####  qixinno2  
+##### 695#       发表于 2022-8-10 23:36
+
+<blockquote>保罗赫伯特 发表于 2022-8-10 23:15
+梅莉不行，那泳装斯卡蒂会行吗</blockquote>
+50绿魔放 20黄金率 20宝威 30群充 20单充的绿卡光炮如何
+
+*****
+
+####  kiralzb  
+##### 696#       发表于 2022-8-10 23:38
+
+看了一下PV，所以这些女武神灵衣其实算是单独一个角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 697#       发表于 2022-8-10 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012437&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-10 23:38</a>
+
+看了一下PV，所以这些女武神灵衣其实算是单独一个角色啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看PV什么鬼，不看剧情的？
+
+*****
+
+####  kiralzb  
+##### 698#       发表于 2022-8-10 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012459&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-10 23:40</a>
+
+看PV什么鬼，不看剧情的？</blockquote>
+我还未开始推呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

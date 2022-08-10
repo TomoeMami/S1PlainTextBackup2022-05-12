@@ -10661,3 +10661,28 @@ jerax也写轮眼了
 
 怎么感觉杰瑞克斯站在后面也不说话呀
 
+
+
+*****
+
+####  nowaki  
+##### 5761#       发表于 2022-8-10 23:37
+
+炼金打**拿一血，管不住咯
+
+*****
+
+####  莉拉厨  
+##### 5762#       发表于 2022-8-10 23:40
+
+**谁玩的啊，压不住ga是吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 5763#       发表于 2022-8-10 23:41
+
+**压不住炼金真神奇……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
