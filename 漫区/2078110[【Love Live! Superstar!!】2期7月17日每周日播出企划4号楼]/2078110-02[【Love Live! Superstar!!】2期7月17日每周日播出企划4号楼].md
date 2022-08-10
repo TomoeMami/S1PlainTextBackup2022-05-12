@@ -8149,3 +8149,16 @@ OP初动13762
 
 ED单和柠檬汽水日语版今天上架流媒体
 
+
+
+*****
+
+####  JustW_3  
+##### 2305#       发表于 2022-8-10 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56998031&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-10 00:19</a>
+其实现在奇葩在
+
+天朝黑子比本子多（指紫吧</blockquote>
+也可以理解吧，因为唐可可在国内出圈了，随之带来的不只有核心粉，也有更多所谓的小鬼，后者的发言截个图就是anti素材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
