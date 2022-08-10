@@ -8509,3 +8509,14 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 10点？不是8到9点吗？还是说G店场是安排9到10点了？</blockquote>
 <img src="https://p.sda1.dev/6/2606058f93d7bba5327f7eec286cc9fa/CMP_20220810115611901.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 2341#       发表于 2022-8-10 12:21
+
+星团糟糕在动画不行，疫情又不能搞中之人线下，人气很难起来，这波真挺亏得，2季碟片的数据也出来了，就那样，跟第一季区别不大岂不是没拉新人群入坑
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

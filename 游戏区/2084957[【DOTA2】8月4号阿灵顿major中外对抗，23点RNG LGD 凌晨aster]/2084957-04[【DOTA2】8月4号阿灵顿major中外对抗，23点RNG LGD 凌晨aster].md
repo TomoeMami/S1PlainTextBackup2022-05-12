@@ -8090,3 +8090,204 @@ RNG赢VP，EG胜，RNG需要过fnatic才能直邀
 
 2022-8-10 12:19 上传
 
+
+
+*****
+
+####  CNFH1984  
+##### 5488#       发表于 2022-8-10 12:22
+
+ori去年ti中路对线是不太行啊，全靠一手中后期意识和切入
+
+不过说实话，dy还是谁采访的时候嘴了两句其实也挺过分的……
+
+*****
+
+####  Keynes  
+##### 5489#       发表于 2022-8-10 12:22
+
+细说ori几把硬度
+
+*****
+
+####  一品堂官  
+##### 5490#       发表于 2022-8-10 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003047&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-10 12:12</a>
+
+丁聪赶紧发大力进ti，除了A厨和A➗，dy X ori这俩也是真的握手局啊。</blockquote>
+漏油说说dy和ori什么矛盾 游戏上的还是游戏外的
+
+听说甚至搞得曾骄阳想退役了
+
+
+
+*****
+
+####  百世诸侯  
+##### 5491#       发表于 2022-8-10 12:24
+
+ 本帖最后由 百世诸侯 于 2022-8-10 12:28 编辑 
+
+仔细算一下：
+
+以RNG赢VP为前提：
+
+1.liquid，EG，Fnatic三支队伍被淘汰任意两个或全部，RNG直邀
+
+2.其它情况RNG还需要赢fnatic/BC才能直邀
+
+*****
+
+####  nightmare902015  
+##### 5492#       发表于 2022-8-10 12:25
+
+曾焦阳想退役的直接原因是ti赛场上那几把sf，火女，蓝猫，船长的爆辣发挥和全网共喷对一个状态不好的中单对心理打击太大了。
+
+*****
+
+####  河水  
+##### 5493#       发表于 2022-8-10 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003075&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-10 12:13</a>
+第二把这FNC的阵容就蛇了啊，这年代还选火女的……</blockquote>
+选可以，别对面是ori还选
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  izayoi39  
+##### 5494#       发表于 2022-8-10 12:26
+
+dy在ti前就准备和pyw一块儿跑路去xg了，跑路就算了当时还在粉丝群里怒批ori对线烂天天要自己去帮忙擦屁股
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 5495#       发表于 2022-8-10 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003198&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-10 12:22</a>
+漏油说说dy和ori什么矛盾 游戏上的还是游戏外的
+
+听说甚至搞得曾骄阳想退役了 ...</blockquote>
+丁聪嫌弃曾焦阳菜，说白了最可能的就是这样。
+
+不然以胖爹脾气很难想象他和别人有矛盾。
+
+*****
+
+####  Bernoulli  
+##### 5496#       发表于 2022-8-10 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003182&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 12:21</a>
+
+不对看错了，RNG好像必须得打赢VP再赢Fnatic才能直邀</blockquote>
+也不一定吧，EG、Fnatic、液体这几个队有两个下一轮不赢，那RNG赢下VP应该就稳了，现在是7个队争4个名额，下去三个就行了。
+
+*****
+
+####  北条早苗  
+##### 5497#       发表于 2022-8-10 12:27
+
+赢vp直接直邀需要发生fnc输bc，液体输boom和eg输ent其中两个
+
+*****
+
+####  nxmonitor  
+##### 5498#       发表于 2022-8-10 12:27
+
+但是去年ori对线真的烂啊，偶尔才能支棱起来一把，然后边路又不是对线很强的，酱油一走三路崩盘……
+
+*****
+
+####  lyjssj  
+##### 5499#       发表于 2022-8-10 12:27
+
+看明白现在rng的积分情况了
+
+在赢了VP情况下（输了必定无直邀），还要看另外三场半决赛的赛果,EG,FNATIC,液体三个队如果2个队出局了那RNG就直接直邀，否则还得过败者组第二轮BO3才行
+
+*****
+
+####  syndrome2032  
+##### 5500#       发表于 2022-8-10 12:28
+
+别算了，做好rng一轮游回家的心理准备把。
+
+*****
+
+####  河水  
+##### 5501#       发表于 2022-8-10 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003198&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-10 12:22</a>
+漏油说说dy和ori什么矛盾 游戏上的还是游戏外的
+
+听说甚至搞得曾骄阳想退役了 ...</blockquote>
+游戏内的，ori去年ti淘汰赛对线突然断电，正反面被吊打
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 5502#       发表于 2022-8-10 12:28
+
+听说ori去鳖星好像是阴鳖介绍去的，我之前一度以为始祖鳖已经和阴鳖和解了
+
+*****
+
+####  ArowRocher  
+##### 5503#       发表于 2022-8-10 12:29
+
+<img src="https://p.sda1.dev/6/7de3c4729562a7685959363a90dad9cc/CMP_20220810122859397.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 5504#       发表于 2022-8-10 12:29
+
+现在ori对线也烂啊，小组赛里碰到对线强的几个也是对线被打得很惨，不过蟹腿王比旱道芬强知道要么b上保护中路要么直接中路刚三搓麻将
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 5505#         楼主| 发表于 2022-8-10 12:29
+
+去年的ori被批评一下怎么了？ 是说不得puck被紫猫单杀紫猫被puck单杀吗
+
+*****
+
+####  lyjssj  
+##### 5506#       发表于 2022-8-10 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但今年不是连着输了好几次了吗
+
+*****
+
+####  百世诸侯  
+##### 5507#       发表于 2022-8-10 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003267&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-10 12:26</a>
+
+也不一定吧，EG、Fnatic、液体这几个队有两个下一轮不赢，那RNG赢下VP应该就稳了，现在是7个队争4个名额 ...</blockquote>
+脑浆了，反正就是液体，VP，fnatic这三个队淘汰任意两个或全部RNG直邀，否则还需要赢Fnatic/BC胜者
+
+*****
+
+####  Sabbah  
+##### 5508#       发表于 2022-8-10 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丁聪魅力值低了点打1号位总感觉怪怪的
+
+*****
+
+####  北条早苗  
+##### 5509#       发表于 2022-8-10 12:31
+
+去年ti打完我都以为ori要退役了
+
