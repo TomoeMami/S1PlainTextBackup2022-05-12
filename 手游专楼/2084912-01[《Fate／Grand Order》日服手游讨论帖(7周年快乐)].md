@@ -6974,3 +6974,35 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 草，今天这活动突然发现这巴洁特画的有点像肯主任媳妇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 670#       发表于 2022-8-10 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011419&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 22:20</a>
+
+社长现在就是各种复制粘贴摸的透彻  周年的公主有时看着真TMD像长发金先生 ...</blockquote>
+宝具正脸是有点，只能说武内脸不得不尝的体验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 671#       发表于 2022-8-10 22:38
+
+说一下梅莉的使用体验吧
+
+最大的优点：蓝卡单核完全不需要找好友了
+
+缺点：要开宝具，而且及其挑打手
+
+打手的NP获取会变得比伤害更重要，很多时候梅莉那5-10点缓回就是能开和不能开的区别，打手NP获取拉了你随时血压爆炸
+
+当然这个仅限于不换人，你要是换人那随便打，比如徐福
+
+总结就是，除非你跟我一样打死都不想抓好友，否则就别抽
+
+然后还有一个问题就是，太JB浪费时间了，不如红绿互拐多核快
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
