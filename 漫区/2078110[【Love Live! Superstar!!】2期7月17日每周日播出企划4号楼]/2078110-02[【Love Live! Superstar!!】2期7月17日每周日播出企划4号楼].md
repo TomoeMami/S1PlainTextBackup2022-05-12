@@ -8624,3 +8624,12 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 
 横来竖去，就为了抬抬CD销量咯？毕竟听歌是老少皆宜的……
 
+
+
+*****
+
+####  tuna  
+##### 2353#       发表于 2022-8-10 14:28
+
+问题是歌也不行啊，不说虹了，星自己的第一季都能把星2碰碎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
