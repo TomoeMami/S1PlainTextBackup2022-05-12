@@ -5300,3 +5300,14 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大早上就有人豹跳
 
+
+
+*****
+
+####  miro112233  
+##### 492#       发表于 2022-8-10 08:46
+
+上色团队要是真玩游戏，在泳装茄子灵衣之后就该收手了，那个粉紫滤镜在助战里格外瞎眼……啊不，，显眼<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
