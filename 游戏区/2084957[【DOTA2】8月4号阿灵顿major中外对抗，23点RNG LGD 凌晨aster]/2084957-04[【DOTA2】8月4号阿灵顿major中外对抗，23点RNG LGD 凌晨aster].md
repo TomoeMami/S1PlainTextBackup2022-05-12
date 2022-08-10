@@ -8847,3 +8847,42 @@ misha：我的吧我的吧</blockquote>
 
 这次major火猫选出来后期自动隐形，要不学nts出黯灭大炮走复古流吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 5570#       发表于 2022-8-10 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003576&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-10 12:45</a>
+
+下一轮比赛今天晚上11点打到第二天中午11点还不一定结束，这赛程太牛逼了。 ...</blockquote>
+不会了，后面一天只有3个BO3
+
+*****
+
+####  nerugigannte  
+##### 5571#       发表于 2022-8-10 13:37
+
+卧槽？茶进ti了？晓菲今年去哪里请的菩萨介绍介绍啊
+
+*****
+
+####  nerugigannte  
+##### 5572#       发表于 2022-8-10 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003676&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-10 12:54</a>
+
+去年vg最让人失望的也是老11吧，那个猛犸给我看的高血压了都</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后好歹颠勺了下rtz的电棍呢，前面的确看得大家血压高，专楼里都在骂
+
+*****
+
+####  dclara1  
+##### 5573#       发表于 2022-8-10 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57004137&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-10 13:37</a>
+
+卧槽？茶进ti了？晓菲今年去哪里请的菩萨介绍介绍啊</blockquote>
+ori扭转了因果律
+

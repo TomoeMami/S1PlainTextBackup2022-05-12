@@ -843,3 +843,16 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 每次看到她制服锁骨下的三角洲都痛恨没有 ...</blockquote>
 蓝毛身上有疤？
 
+
+
+*****
+
+####  Alicest  
+##### 90#       发表于 2022-8-10 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003957&amp;ptid=2085532" target="_blank">月亮上的珊瑚 发表于 2022-8-10 13:18</a>
+蓝毛身上有疤？</blockquote>
+刀疤嘛，**的和谐产物
+疤口大概这种感觉
+<img src="https://p.sda1.dev/6/29fbafe1a190d99a2a1ff0ed71ebc29c/CMP_20220810134109214.jpg" referrerpolicy="no-referrer">
+
