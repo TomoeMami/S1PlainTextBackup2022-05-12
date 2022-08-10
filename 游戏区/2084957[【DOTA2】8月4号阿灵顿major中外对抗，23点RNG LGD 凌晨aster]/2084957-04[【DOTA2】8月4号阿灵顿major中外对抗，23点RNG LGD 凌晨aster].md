@@ -9004,3 +9004,12 @@ https://bbs.nga.cn/read.php?tid=32992461                        
 
 令人意外，思思是第一个出茶切片的
 
+
+
+*****
+
+####  ArowRocher  
+##### 5587#       发表于 2022-8-10 15:42
+
+[XINQ赛后采访](https://www.bilibili.com/video/BV18a411o7bd?vd_source=ecf1ca9dee9d5ca6b7ec4c3dbbe01f51)
+
