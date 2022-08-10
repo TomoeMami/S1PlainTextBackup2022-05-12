@@ -3621,3 +3621,16 @@ reid你该死了
 
 还是会想她，有时候。
 
+
+
+*****
+
+####  pikamee  
+##### 16822#       发表于 2022-8-11 01:43
+
+个人暴论，en皮套人之于这代人，完全可以等同为老友记之于上一代人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+所以我相信EN皮套人在cn的市场还有极大挖掘空间
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

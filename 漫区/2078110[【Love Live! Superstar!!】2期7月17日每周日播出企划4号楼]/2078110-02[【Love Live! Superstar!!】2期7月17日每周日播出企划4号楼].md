@@ -9041,3 +9041,16 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 
 怎么又黑我果皇。
 
+
+
+*****
+
+####  竹筷  
+##### 2390#       发表于 2022-8-11 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012890&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-11 00:17</a>
+希望鱼别看到，感觉不该搬运这篇的，怕是明天就要在这边传开了。</blockquote>
+鲤鱼这种高强度自搜肯定已经看到了，我前两天在推特就看到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

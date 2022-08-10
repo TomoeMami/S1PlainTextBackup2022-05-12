@@ -11291,3 +11291,36 @@ syl，我觉得正常BP能赢vp的，666关键英雄ban完就废了
 
 ka神当时看那个轰鸣贴拷打时直接来句 是哪里来的杂毛也敢评价 玄月直接说杰出低分猪不配拷打就卵事无 非说那么多p话给弹幕抓痛脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ninini212  
+##### 5840#       发表于 2022-8-11 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57013553&amp;ptid=2084957" target="_blank">TIZI 发表于 2022-8-11 01:32</a>
+
+月鳖以前在lgd那会感觉还挺有灵性的，这才几年就感觉退化的完全没打过职业，跟弹幕辩论也是各种脑浆发言[f: ...</blockquote>
+最搞笑的是他喷了最后的核心观点和视频一模一样。
+
+*****
+
+####  是挞不是派  
+##### 5841#       发表于 2022-8-11 01:45
+
+虽然没玩过原神，玄月原神对线的时候不也这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 5842#       发表于 2022-8-11 01:48
+
+nga真tm纯二极管论坛 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 5843#       发表于 2022-8-11 01:50
+
+液体早点走吧四号位对大家都不好
+
