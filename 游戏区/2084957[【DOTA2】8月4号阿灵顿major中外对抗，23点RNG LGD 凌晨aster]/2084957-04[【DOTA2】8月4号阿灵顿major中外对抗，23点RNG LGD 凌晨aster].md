@@ -9032,3 +9032,48 @@ https://bbs.nga.cn/read.php?tid=32992461                        
 没空看完整录像稍微看了一小下，感觉把脑浆射干的更应该是张志成而不是杜软，顶着前面明牌的拉稀克 ...</blockquote>
 负重训练了
 
+
+
+*****
+
+####  ArowRocher  
+##### 5590#       发表于 2022-8-10 16:32
+
+ 本帖最后由 ArowRocher 于 2022-8-10 16:38 编辑 
+
+[Yatoro 采访](https://www.bilibili.com/video/BV1Kt4y1G72J?share_source=copy_web&amp;vd_source=12fc229f093fee1cf20eb0a4bc70bd9e)
+
+害怕被越洋连麦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/10/163618yzm404ghj2j49whw.png" referrerpolicy="no-referrer">
+
+<strong>XK$Z6_6M0L1U}%9Q~$O2ZNR.png</strong> (27.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 16:36 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/163618gfz757izymef0sad.png" referrerpolicy="no-referrer">
+
+<strong>G$UBGYF9IVP%AH0%_`P.png</strong> (51.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 16:36 上传
+
+*****
+
+####  ArowRocher  
+##### 5591#       发表于 2022-8-10 16:32
+
+ 本帖最后由 ArowRocher 于 2022-8-10 16:36 编辑 
+
+风怒
+
+*****
+
+####  吃货红毛  
+##### 5592#       发表于 2022-8-10 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杰出又发了个直播时拷打RNG的录像 看完之后血压更高了
+
