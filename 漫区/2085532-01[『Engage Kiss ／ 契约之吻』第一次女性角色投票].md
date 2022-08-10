@@ -856,3 +856,15 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 疤口大概这种感觉
 <img src="https://p.sda1.dev/6/29fbafe1a190d99a2a1ff0ed71ebc29c/CMP_20220810134109214.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chm007  
+##### 91#       发表于 2022-8-10 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001527&amp;ptid=2085532" target="_blank">profh2 发表于 2022-8-10 10:52</a>
+
+论下半身蓝毛也不输啊，为啥还是被黄毛抢票了，说明宅宅都是抖M，渴望被强气女人骑在身上 ...</blockquote>
+男人都是爱新鲜的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
