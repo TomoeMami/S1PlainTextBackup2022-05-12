@@ -5383,3 +5383,36 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都这样了依然不戴口罩  不愧是立本
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 501#       发表于 2022-8-10 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水着直播看的人好多啊，现在还在闲扯，真想快进
+
+*****
+
+####  areklose  
+##### 502#       发表于 2022-8-10 19:07
+
+今晚应该知道是不是三五星吧？
+
+*****
+
+####  rooarr  
+##### 503#       发表于 2022-8-10 19:10
+
+怎么fgo无关的也上来闲聊了，fgo又黔驴技穷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 504#       发表于 2022-8-10 19:11
+
+跟昨天geass圆桌实装直播比起来，真的是不到FGO的零头
+
+迫真旱的旱死涝的涝死
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

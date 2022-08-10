@@ -9782,3 +9782,15 @@ ori去年TI的对线状态是显著的垃圾，就算我是本楼可能最喜欢
 
 所以去年ori受打击不想打了是非常正常的，现在能找回状态我也很开心
 
+
+
+*****
+
+####  CNFH1984  
+##### 5669#       发表于 2022-8-10 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007384&amp;ptid=2084957" target="_blank">小19 发表于 2022-8-10 17:42</a>
+
+有没有可能这帮人是ob的🐶呢</blockquote>
+好啊好啊OB的狗所以盯着A符号剪是吧，A符号也是OB，大头实在是太强了！
+
