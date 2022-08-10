@@ -4859,3 +4859,118 @@ rng打vp这场面好看了，脑浆与肌肉的碰撞，极地大乱斗了属于
 秘密和尼哥马咋回事啊，要去打预选了么</blockquote>
 一个降级边缘队一个a级遨游队，不打预选能干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 5079#       发表于 2022-8-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000348&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-10 09:37</a>
+
+秘密和尼哥马咋回事啊，要去打预选了么</blockquote>
+兄啊你多久没看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尼格玛俯冲到a级才找来跳跳，秘密摆烂到进不了major才踢了虾哥仰卧起坐，那只有血战预选了
+
+*****
+
+####  nxmonitor  
+##### 5080#       发表于 2022-8-10 09:43
+
+collapse的电魂熟练度很低，第一盘BKB以后出了个大推推，就说中期怎么是给对面挠痒呢……
+
+*****
+
+####  聚散浮云  
+##### 5081#       发表于 2022-8-10 09:43
+
+lgd和og这是ti8的bo几了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 5082#       发表于 2022-8-10 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000420&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-10 09:41</a>
+
+Team Secret        93.07
+
+ Nigma Galaxy       0</blockquote>
+你找错了，有分的是尼格玛东南亚分队，本体一分都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5083#         楼主| 发表于 2022-8-10 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57000387&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-10 09:39</a>
+
+为什么今早更新客户端下了6兆然后200b/s摆烂了</blockquote>
+网络不稳定很正常，你暂停之后继续就行了
+
+*****
+
+####  morwhipppo  
+##### 5084#       发表于 2022-8-10 09:43
+
+杜鹏咋那么开心啊，要整个大的是吧
+
+*****
+
+####  蛭人  
+##### 5085#       发表于 2022-8-10 09:44
+
+集美永远不会原谅OG，记住是永远！
+
+*****
+
+####  吃货红毛  
+##### 5086#       发表于 2022-8-10 09:44
+
+我靠茶 场均肉山30分钟 场均时长40<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  韬晦  
+##### 5087#       发表于 2022-8-10 09:45
+
+og人都换啦
+
+*****
+
+####  nowaki  
+##### 5088#       发表于 2022-8-10 09:45
+
+鳖茶的数据真的吓人，真的把把鳖
+
+*****
+
+####  smkf013  
+##### 5089#       发表于 2022-8-10 09:47
+
+EG还有机会之邀，说明这积分办法就有很大的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 5090#       发表于 2022-8-10 09:47
+
+鳖茶打boom前数据没那么鳖的，打完两把加起来110多分钟，就丑陋了
+
+*****
+
+####  Litccc  
+##### 5091#       发表于 2022-8-10 09:49
+
+steam又开始周常维护了，服了
+
+*****
+
+####  IG.430  
+##### 5092#       发表于 2022-8-10 09:50
+
+啊，还有周常维护的说法吗
+
