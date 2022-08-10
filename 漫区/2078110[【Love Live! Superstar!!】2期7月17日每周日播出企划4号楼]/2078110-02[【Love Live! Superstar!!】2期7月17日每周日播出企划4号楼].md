@@ -8808,3 +8808,16 @@ op首周才一万三…………
 
 北原老师再发点就不用买了……
 
+
+
+*****
+
+####  ads147147  
+##### 2369#       发表于 2022-8-10 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007738&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-10 18:11</a>
+可以给nagi预定2期的VIP喷位了</blockquote>
+我觉得sayu才应该喷这个剧本。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

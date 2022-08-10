@@ -5494,3 +5494,133 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗子上去就是一脚
 
+
+
+*****
+
+####  exiaexa  
+##### 514#       发表于 2022-8-10 19:33
+
+泳装加雷斯这个宝具，就算是送的你也不能做得这么烂啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 515#       发表于 2022-8-10 19:33
+
+真的是辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 516#       发表于 2022-8-10 19:34
+
+职阶。。。也对了。。
+
+舅舅真要全中了？
+
+*****
+
+####  alucardcz  
+##### 517#       发表于 2022-8-10 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008621&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-10 19:33</a>
+
+真的是辅助</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要急 不邢也是辅助宝具
+
+*****
+
+####  areklose  
+##### 518#       发表于 2022-8-10 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剩下得，快点放上来立刻抽卡
+
+*****
+
+####  rooarr  
+##### 519#       发表于 2022-8-10 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008636&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-10 19:34</a>
+
+不要急 不邢也是辅助宝具</blockquote>
+我歪了3宝我觉得刑部姬很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 520#       发表于 2022-8-10 19:36
+
+真是P阶，那么是不是梅莉本人就打个问号了。
+
+*****
+
+####  exiaexa  
+##### 521#       发表于 2022-8-10 19:39
+
+不是，加雷斯这个宝具做得这么生草居然是抽的，你们认真的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 522#       发表于 2022-8-10 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼装好像不错
+
+*****
+
+####  rooarr  
+##### 523#       发表于 2022-8-10 19:40
+
+又来3选1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 524#       发表于 2022-8-10 19:40
+
+草，瓦尔基里这个宝具动画最后的同调有点带感的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 525#       发表于 2022-8-10 19:40
+
+真的是杀阶挖个雷
+
+*****
+
+####  黑上シグマ  
+##### 526#       发表于 2022-8-10 19:40
+
+什么傻逼三选一
+
+*****
+
+####  kiralzb  
+##### 527#       发表于 2022-8-10 19:41
+
+3选1什么逆天策划<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 528#       发表于 2022-8-10 19:41
+
+卧槽，牛逼，3+3
+
+七个女武神是谁被抛下了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 529#       发表于 2022-8-10 19:42
+
+三选一也太逼死强迫症了...当初机械龙娘是复刻才可以拿齐两只的，现在活动这么紧，鬼知道什么时候能轮到复刻...
+
+灵衣也是一对一的...好麻烦...
+
