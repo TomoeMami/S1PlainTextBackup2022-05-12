@@ -7083,3 +7083,102 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 又不是梅林要去红卡队跟那堆充能神仙抢赛道
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 679#       发表于 2022-8-10 23:04
+
+<blockquote>exiaexa 发表于 2022-8-10 23:00
+你在做梦吗，单核蓝卡队缺NP？
+
+打手被动20、梅莉20、C呆50、徐福30，这就120了，哪怕有换人洁癖打手只要有 ...</blockquote>
+只能说花里胡哨一堆不如双c呆简单
+
+*****
+
+####  alucardcz  
+##### 680#       发表于 2022-8-10 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011948&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-10 23:00</a>
+
+梅莉反正我觉得寄了，日常用不上</blockquote>
+大胆点 没有地方能用上
+
+真爱除外
+
+*****
+
+####  qixinno2  
+##### 681#       发表于 2022-8-10 23:06
+
+<blockquote>kiralzb 发表于 2022-8-10 22:56
+太久远了，画风这种东西不变难看就算赢啦</blockquote>
+好想殴打他使其失去这几年的记忆重回巅峰
+
+*****
+
+####  exiaexa  
+##### 682#       发表于 2022-8-10 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011997&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-10 23:04</a>
+
+只能说花里胡哨一堆不如双c呆简单</blockquote>
+再简单点，不抽立省990，抽了也没机会用
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 683#       发表于 2022-8-10 23:08
+
+说起来梅莉吃奥宝的被动debuff不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 684#       发表于 2022-8-10 23:09
+
+ 本帖最后由 gpx234mqx 于 2022-8-10 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57011953&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 23:00</a>
+
+你在做梦吗，单核蓝卡队缺NP？
+
+打手被动20、梅莉20、C呆50、徐福30，这就120了，哪怕有换人洁癖打手只要有 ...</blockquote>
+不如开局双C呆充能100<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+有空换队友干啥不用双C呆
+
+*****
+
+####  alucardcz  
+##### 685#       发表于 2022-8-10 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012044&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 23:07</a>
+
+再简单点，不抽立省990，抽了也没机会用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁已经在开始担心狂伊吹吊打王姐水武藏怎么办了
+
+*****
+
+####  areklose  
+##### 686#       发表于 2022-8-10 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节奏榜CBA周回B，隔壁为啥不讨论。这改版乐子太大
+
+*****
+
+####  exiaexa  
+##### 687#       发表于 2022-8-10 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012074&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-10 23:09</a>
+
+不如开局双C呆充能100
+
+有空换队友干啥不用双C呆</blockquote>
+所以你跑出来杠一下就是为了表示你需要去眼科？
+
+”总结就是，除非你跟我一样打死都不想抓好友，否则就别抽“
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10563,3 +10563,26 @@ TOP 15 Plays of PGL Arlington Major 2022 Dota 2 [Group Stage]
 
 想填个明天的梦幻挑战登录不上去
 
+
+
+*****
+
+####  战狼PTSD  
+##### 5751#       发表于 2022-8-10 23:05
+
+还不睡，怎么明早给超哥送行
+
+*****
+
+####  一品堂官  
+##### 5752#       发表于 2022-8-10 23:07
+
+有漏油是完美的人么，想狂暴鸿儒！<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 5753#       发表于 2022-8-10 23:09
+
+dodo和拉娜娅出来一下，我想鸿儒了
+
