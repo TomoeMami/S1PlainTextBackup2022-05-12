@@ -761,3 +761,25 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 莎朗才出场一集就有100多票了？</blockquote>
 下半身是不会骗人的
 
+
+
+*****
+
+####  profh2  
+##### 83#       发表于 2022-8-10 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56992609&amp;ptid=2085532" target="_blank">Rhantolk 发表于 2022-8-9 17:13</a>
+但是现在前女友属性的人有点多。。
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+黄毛怕是前前女友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  profh2  
+##### 84#       发表于 2022-8-10 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57001157&amp;ptid=2085532" target="_blank">osore 发表于 2022-8-10 10:30</a>
+下半身是不会骗人的</blockquote>
+论下半身蓝毛也不输啊，为啥还是被黄毛抢票了，说明宅宅都是抖M，渴望被强气女人骑在身上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

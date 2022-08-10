@@ -5495,3 +5495,294 @@ woc这个向前飞
 不是，我看弹幕说蓝猫目前胜率90%？有无懂哥说下基本都是什么套路</blockquote>
 套路是别玩，几个逼玩太好了力中暴力，天梯自己玩=找不痛快
 
+
+
+*****
+
+####  Keynes  
+##### 5159#       发表于 2022-8-10 10:41
+
+现在茶队没bkb不敢打了，鳖起来了
+
+*****
+
+####  nxmonitor  
+##### 5160#       发表于 2022-8-10 10:42
+
+FNC快要崩了，还是配合有点问题……
+
+
+
+*****
+
+####  山上徹也  
+##### 5161#       发表于 2022-8-10 10:42
+
+鸡哥左上角突然一个ehome翻盘纪念日是何意
+
+*****
+
+####  Keynes  
+##### 5162#       发表于 2022-8-10 10:42
+
+太极限了
+
+*****
+
+####  名字不乱取  
+##### 5163#       发表于 2022-8-10 10:43
+
+蓝猫都这样了，几个老逼还玩的这么好是吧，下个补丁直接入土<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 5164#       发表于 2022-8-10 10:43
+
+3号位冰龙刷不起来打到后期就是3酱油了，散失拍拍也不利于刷钱，Aster避战不吃亏吧。
+
+*****
+
+####  莉拉厨  
+##### 5165#       发表于 2022-8-10 10:43
+
+茶队的比赛还是刺激<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 5166#       发表于 2022-8-10 10:43
+
+血赚，冰龙死都没放出大
+
+*****
+
+####  迷途lite  
+##### 5167#       发表于 2022-8-10 10:43
+
+魔棒滚还行，这下万丈光芒了
+
+*****
+
+####  Litccc  
+##### 5168#       发表于 2022-8-10 10:43
+
+o猫这蓝量控制
+
+*****
+
+####  吃货红毛  
+##### 5169#       发表于 2022-8-10 10:44
+
+打成现在这样感觉真要鳖好一阵子
+
+*****
+
+####  聚散浮云  
+##### 5170#       发表于 2022-8-10 10:44
+
+真就全靠O🐱吗
+
+*****
+
+####  Keynes  
+##### 5171#       发表于 2022-8-10 10:44
+
+这樱花双雄这也敢进去的
+
+*****
+
+####  walfeds  
+##### 5172#       发表于 2022-8-10 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">焦阳力中暴力，但是茶味渐浓啊
+
+*****
+
+####  nxmonitor  
+##### 5173#       发表于 2022-8-10 10:45
+
+说早了啊，结果是FNC控盾了，靠monet胜算会越来越低的……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 5174#       发表于 2022-8-10 10:45
+
+脑浆，太脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 5175#       发表于 2022-8-10 10:45
+
+鳖茶这运营还是有问题，马上要打盾了技能这么交的
+
+*****
+
+####  莉拉厨  
+##### 5176#       发表于 2022-8-10 10:45
+
+xxs这把脑浆都被干出来了，估计是没他了，杜鹏加油站出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 5177#       发表于 2022-8-10 10:45
+
+说了杜鹏tb要gg 敏捷英雄拿个巨魔都比tb好 
+
+*****
+
+####  白野苍衣  
+##### 5178#       发表于 2022-8-10 10:46
+
+焦阳尽力了，奈何鳖茶被东南亚爹血统压制。
+
+*****
+
+####  Keynes  
+##### 5179#       发表于 2022-8-10 10:47
+
+这波盾团确实卡了一个曾骄阳没bkb的时机，不然有bkb能去切双酱油还是很好打的，没有就只能让樱花双雄进去送死了
+
+*****
+
+####  nightmare902015  
+##### 5180#       发表于 2022-8-10 10:47
+
+这冰龙大加精灵飞每次都用的这么难绷
+
+*****
+
+####  nxmonitor  
+##### 5181#       发表于 2022-8-10 10:48
+
+这三号位冰龙怎么出酱油装备的？那你选个三号位有什么用啊？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 5182#       发表于 2022-8-10 10:49
+
+说个画面 冰龙跳刀a杖  后面tb一步走不动<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 5183#       发表于 2022-8-10 10:49
+
+这茶队怎么有点ti10小象的味道了
+
+*****
+
+####  名字不乱取  
+##### 5184#       发表于 2022-8-10 10:49
+
+杜鹏和ame的差距就在没进决赛日表演了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 5185#       发表于 2022-8-10 10:50
+
+焦阳太穷了啊，TB没魔化就被fnc这俩没cd的大哥追着杀
+
+*****
+
+####  Litccc  
+##### 5186#       发表于 2022-8-10 10:50
+
+樱花双雄看到东南亚队直接尿了
+
+*****
+
+####  walfeds  
+##### 5187#       发表于 2022-8-10 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">核弹降临
+
+*****
+
+####  coldorange久  
+##### 5188#       发表于 2022-8-10 10:50
+
+这血统压制太可怕了
+
+*****
+
+####  莉拉厨  
+##### 5189#       发表于 2022-8-10 10:50
+
+哇 自动爆炸 下把 无解肥TB敲个老路半天敲不死
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 5190#       发表于 2022-8-10 10:50
+
+寄！
+
+
+
+*****
+
+####  ninini212  
+##### 5191#       发表于 2022-8-10 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">阿茶每次阵容选出来我都觉得是在走钢丝。。。
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nowaki  
+##### 5192#       发表于 2022-8-10 10:51
+
+没了啊
+
+*****
+
+####  一品堂官  
+##### 5193#       发表于 2022-8-10 10:51
+
+穷？这版本蓝猫这经济已经很好了啊，漏油自己打打蓝猫就知道了。
+
+*****
+
+####  a1370303  
+##### 5194#       发表于 2022-8-10 10:51
+
+感觉没了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遍体精淋af  
+##### 5195#       发表于 2022-8-10 10:51
+
+尸王这几个替补真猛
+
+*****
+
+####  Litccc  
+##### 5196#       发表于 2022-8-10 10:51
+
+哇杜鹏不开bkb是何意啊
+
+*****
+
+####  nxmonitor  
+##### 5197#       发表于 2022-8-10 10:51
+
+这三四号位真的是看到东南亚队直接尿了，问题是FNC三个人是TSM的啊？队标也能压制的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
