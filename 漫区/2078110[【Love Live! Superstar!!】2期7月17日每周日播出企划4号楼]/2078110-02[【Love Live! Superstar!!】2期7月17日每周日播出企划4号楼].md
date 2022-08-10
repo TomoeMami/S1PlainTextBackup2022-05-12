@@ -8520,3 +8520,12 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  cybernetics31  
+##### 2342#       发表于 2022-8-10 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那有啥新人啊，咱这都眼熟的id 互聊，加的qq群人均都转中之人粉了，fc该入的入，写真该买的买。
+

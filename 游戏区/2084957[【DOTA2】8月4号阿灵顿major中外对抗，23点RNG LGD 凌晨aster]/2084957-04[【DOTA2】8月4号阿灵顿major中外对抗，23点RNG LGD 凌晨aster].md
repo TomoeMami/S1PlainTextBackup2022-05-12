@@ -8291,3 +8291,202 @@ dy在ti前就准备和pyw一块儿跑路去xg了，跑路就算了当时还在�
 
 去年ti打完我都以为ori要退役了
 
+
+
+*****
+
+####  弈秋  
+##### 5510#       发表于 2022-8-10 12:32
+
+无论如何都要赢下vp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就来脑浆互搂吧，说不定能赢
+
+*****
+
+####  一品堂官  
+##### 5511#       发表于 2022-8-10 12:33
+
+vg打法太注重边路线优了吧，男神和pyw加老十一，即使到今天也是这样的思路。
+
+中路压力大加状态不好没人帮心态更炸。举个例子：现在的zcj也是，经常看他天梯中路心态炸裂，辅助经常人死了才tp。
+
+但是去年ti版本已经是搓中罐尿版本了，感觉这两个人是本来就思路和性格不合。
+
+*****
+
+####  Litccc  
+##### 5512#       发表于 2022-8-10 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003294&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-10 12:28</a>
+听说ori去鳖星好像是阴鳖介绍去的，我之前一度以为始祖鳖已经和阴鳖和解了 ...</blockquote>
+阴鳖只是劝他再打一年，茶队应该是曾焦阳自己找的
+
+*****
+
+####  百世诸侯  
+##### 5513#       发表于 2022-8-10 12:33
+
+楼友们给RNG算半天，结果明天RNG凌晨第一把50分钟被翻盘，第二把20分钟GG
+
+*****
+
+####  战狼PTSD  
+##### 5514#       发表于 2022-8-10 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003346&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-10 12:31</a>
+
+去年ti打完我都以为ori要退役了</blockquote>
+是要退役了，被小人劝回来了，结果扭头去了鳖队
+
+*****
+
+####  沈淮  
+##### 5515#         楼主| 发表于 2022-8-10 12:34
+
+漏油搁着岁月史书呢，vg上赛季比赛我全看过了，ori那是没帮中？
+
+不是帮了也被橄榄吗？
+
+新加坡major三冰的谜团直接冲塔强杀pyy的时候酱油不是在中路帮ori打abed？
+
+*****
+
+####  sodah  
+##### 5516#       发表于 2022-8-10 12:34
+
+别算了回去打预选吧，不然预选不够味。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5517#       发表于 2022-8-10 12:35
+
+去年TI的状态也别说酱油不帮，因为边路13对线也就一般般，帮了直接三路爆炸好吧，然后干脆放弃治疗了……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5518#         楼主| 发表于 2022-8-10 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003371&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-10 12:33</a>
+
+vg打法太注重边路线优了吧，男神和pyw加老十一，即使到今天也是这样的思路。
+
+中路压力大加状态不好没人帮心 ...</blockquote>
+你就瞎扯，vg上赛季经常放养双边路
+
+*****
+
+####  蛭人  
+##### 5519#       发表于 2022-8-10 12:35
+
+有一说一，ti9也赢过。
+
+*****
+
+####  syndrome2032  
+##### 5520#       发表于 2022-8-10 12:35
+
+鳖茶反正算是好选择了。
+
+国内这堆俱乐部就茶星还有点钱。
+vg是真没钱了。rng买了maybe。
+lgd和ig自己有中单不可能换人的。
+
+
+
+*****
+
+####  阿垃垃圾历  
+##### 5521#       发表于 2022-8-10 12:36
+
+看了下vp状态 感觉还是rng一轮游可能性大一点 
+
+*****
+
+####  沈淮  
+##### 5522#         楼主| 发表于 2022-8-10 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">vg上赛季不是优势路被橄榄就是中路被橄榄，优势路被橄榄还好说，中期能补，中路被橄榄然后中期没节奏就jb无语，而且那时候芬尼儿特别爱选个潮汐之类的让三号位吃屎
+
+*****
+
+####  acalephs  
+##### 5523#       发表于 2022-8-10 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003384&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-9 20:33</a>
+
+楼友们给RNG算半天，结果明天RNG凌晨第一把50分钟被翻盘，第二把20分钟GG</blockquote>
+错了，是第一把30分钟碾压，第二把50分钟被翻盘，第三把被碾20投<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 5524#       发表于 2022-8-10 12:38
+
+vg上赛季pyy确实是经常被放弃，老11可不是，vg当时主思路就是帮老11在劣势路把对面打穿，所以上赛季老11发挥特别亮眼，对线把优发挥不好才怪了，xg为啥老11发挥不好，因为跳刀当教练把油面当自己使酱油各种帮中老11的线优率就没那么高了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  河水  
+##### 5525#       发表于 2022-8-10 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003371&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-10 12:33</a>
+vg打法太注重边路线优了吧，男神和pyw加老十一，即使到今天也是这样的思路。
+
+中路压力大加状态不好没人帮心 ...</blockquote>
+就是ori对线状态肉眼可见的差，双辅助无限兜底才造就pyw、dy力中暴力的印象
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 5526#       发表于 2022-8-10 12:40
+
+major败者组第一轮是bo1还是bo3?
+
+*****
+
+####  蛭人  
+##### 5527#       发表于 2022-8-10 12:40
+
+说的好像新vp的比赛没看一样，rng和新vp不相上下好吧，就666和dm两个废物，老北京和查理斯五五开。
+
+*****
+
+####  Litccc  
+##### 5528#       发表于 2022-8-10 12:40
+
+ti10的vg应该不只是游戏实力的问题，曾焦阳每次打完都一个人独走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 5529#       发表于 2022-8-10 12:42
+
+核中核消息
+
+训练赛到现在就赢了一把，还是B组被淘汰的NAVI 上帝没有中文环境早忘了，冠晴自己中文都不行更不可能同传。
+
+交流效率差到ana以为队友不想上高，队友以为ana不想上高。打完了才知道是乌龙
+
+*****
+
+####  IG.430  
+##### 5530#       发表于 2022-8-10 12:42
+
+没有圣水符的时候，最先四分钟来俩的就是vg
+
+那个版本中单难度算是地狱级，但骄阳前四分钟的硬实力还不错，曾焦阳ti上是前四分钟的硬实力被对面点杀了
+
+*****
+
+####  izayoi39  
+##### 5531#       发表于 2022-8-10 12:42
+
+vg的辅助我讲过很多次了，作为从ti4就开始粉vg的铁血vkun，vg的辅助其实因为vg的打法是会被放大的，因为vg打法普遍都是三大哥肉身开团辅助会很好发挥的，秒男离开后打得有多丑陋就是个明证
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
