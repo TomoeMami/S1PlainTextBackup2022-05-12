@@ -6878,3 +6878,38 @@ md，不让用信用卡了
 
 呼符没出货，果断放弃，反正强度党无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 660#       发表于 2022-8-10 21:53
+
+话说ios和模拟器有办法共存吗，充值要引继回来好麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 661#       发表于 2022-8-10 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57010965&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-10 21:53</a>
+
+话说ios和模拟器有办法共存吗，充值要引继回来好麻烦</blockquote>
+没有 
+
+*****
+
+####  Jamaisvu  
+##### 662#       发表于 2022-8-10 21:56
+
+浴衣道满拿的这个符咒颜色太诡异了，我好几次差点看成苹果礼品卡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 663#       发表于 2022-8-10 22:00
+
+就因为平时都用模拟器 今天有事只能当云玩家 赶紧出个账号系统别用那弱智引继码了
+
