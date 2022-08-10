@@ -6831,3 +6831,250 @@ bp还是出了点大问题 最后一手不ban拍拍太难打了
 
 只能说比RNG还是强多了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  usoda  
+##### 5333#       发表于 2022-8-10 11:21
+
+怎么能打的这么呕吐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 5334#       发表于 2022-8-10 11:22
+
+有一说一，不这么上高就变成rng了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雨中曲  
+##### 5335#       发表于 2022-8-10 11:22
+
+视野从前期到后期一直被完爆，东南亚队伍都这样么?牛哥打5后期还是乏力
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 5336#       发表于 2022-8-10 11:22
+
+BP差点意思，但是靠发挥和配合打赢了，这把真不是RNG那种优势碾压有一万种赢法被自己蠢死的脑浆局好吧，茶队从二代盾失利后开始的玩法真的可以
+
+*****
+
+####  一品堂官  
+##### 5337#       发表于 2022-8-10 11:22
+
+冰龙出a的话 就不一样了 这个j应该不经常玩
+
+*****
+
+####  巴德那克  
+##### 5338#       发表于 2022-8-10 11:23
+
+1年没关注刀了，好容易看一把，怎么这阵容打法还是和去年一个味儿啊…… <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 5339#       发表于 2022-8-10 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002043&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-10 11:17</a>
+茶这上高只能说前几天RNG太抢风头了，真没有好到哪里去好吧……</blockquote>
+这ts的高真的好上？狂确实好看，但是不好赢，fnc团控很多，打得急了就会被翻
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 5340#       发表于 2022-8-10 11:24
+
+大概冰蛙被去年的假赛吓到了，准备帮一把LGD吧，版本利好，当然实际是度假社无作为。
+
+
+
+*****
+
+####  名字不乱取  
+##### 5341#       发表于 2022-8-10 11:24
+
+每波精彩回放里都有只o猫到处乱飞，绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  废都刽子手  
+##### 5342#       发表于 2022-8-10 11:24
+
+鳖茶这把打的还行了，bp不太行，最后不太该选tb
+
+*****
+
+####  smkf013  
+##### 5343#       发表于 2022-8-10 11:24
+
+感觉比蠢大赛FNC要赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 5344#       发表于 2022-8-10 11:24
+
+当然只能说还好对面拍拍小精灵和冰龙儿脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萨伊苏  
+##### 5345#       发表于 2022-8-10 11:24
+
+这个石化踢下高地真的是太强了，后排三个蹲着的反手全部没用，一瞬间都没找到老鹿位置<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 5346#       发表于 2022-8-10 11:24
+
+憋星这个样子，后面能碰上干瘪也是被创碎，只能给ori下跪求他发大力。只能寄希望于rng的14嗯起来了，不然能阻止干瘪的老队伍就只剩远方的ngm啦家人们。
+
+*****
+
+####  4591  
+##### 5347#       发表于 2022-8-10 11:25
+
+这把皮球的戴泽真的力中暴力,然后就是骄阳了,林皇从昨天的比赛开始就不对劲.
+
+*****
+
+####  聚散浮云  
+##### 5348#       发表于 2022-8-10 11:25
+
+冰龙占了个3号位实际就是个辅助，加一个脑浆拍拍，输的不冤
+
+*****
+
+####  遍体精淋af  
+##### 5349#       发表于 2022-8-10 11:25
+
+现在戴泽这么火，不知道能不能见到斧王出场
+
+*****
+
+####  一品堂官  
+##### 5350#       发表于 2022-8-10 11:25
+
+牛哇 皮球这个几个奶玩的都不错<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 5351#         楼主| 发表于 2022-8-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002182&amp;ptid=2084957" target="_blank">巴德那克 发表于 2022-8-10 11:23</a>
+
+1年没关注刀了，好容易看一把，怎么这阵容打法还是和去年一个味儿啊……  ...</blockquote>
+地图没改过
+
+*****
+
+####  Bernoulli  
+##### 5352#       发表于 2022-8-10 11:25
+
+真把BP属于被阴了，顶着精灵牛头老鹿硬着头皮选了个TB出来，不是中期运营和团战打得好都未必能打到后期吧。
+
+*****
+
+####  izayoi39  
+##### 5353#       发表于 2022-8-10 11:26
+
+茶队这阵容全看蓝猫和土猫找冰龙和精灵才能赢，冰龙和精灵不漏出来茶队很难杀死人，只能说那波盾团输了之后只能靠憋，fn也是各种给机会了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  marscat  
+##### 5354#       发表于 2022-8-10 11:26
+
+不得不说这戴泽没人处理是真没法玩
+
+*****
+
+####  河水  
+##### 5355#       发表于 2022-8-10 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002182&amp;ptid=2084957" target="_blank">巴德那克 发表于 2022-8-10 11:23</a>
+1年没关注刀了，好容易看一把，怎么这阵容打法还是和去年一个味儿啊……  ...</blockquote>
+对面的阵容选出来就是好打团，团战细致的拉扯才能破这个铁桶阵，无脑说憋真的没必要
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 5356#       发表于 2022-8-10 11:27
+
+一个戴泽，治疗差点比伐木机的伤害高，可以想象没有这戴泽，这盘早GG了。
+
+*****
+
+####  Litccc  
+##### 5357#       发表于 2022-8-10 11:27
+
+皮球的反手辅助真的绝活
+
+*****
+
+####  4591  
+##### 5358#       发表于 2022-8-10 11:27
+
+冰龙打三我本来以为会出A杖的,谁知道他出了个大隐刀,看不懂.
+
+*****
+
+####  Keynes  
+##### 5359#       发表于 2022-8-10 11:28
+
+小林靖三上一轮dp属于是熟练度不够，这一把完全是给队友干脏活了，帮o猫死了不少次，还骗对面冰龙出了一个大隐刀，已经可以了
+
+*****
+
+####  TIZI  
+##### 5360#       发表于 2022-8-10 11:28
+
+感觉湖南迪克打的没有boom有章法
+昨天boom明显劣势打的还是有点思路的，湖南迪克打的就很散漫，出装也很脑浆
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  外挂全家脚气  
+##### 5361#       发表于 2022-8-10 11:29
+
+ 本帖最后由 外挂全家脚气 于 2022-8-10 11:32 编辑 
+
+有一说一，真要是看了RNG3万经济上高被翻、茶打BOOM那两局的都知道这局茶在后期的策略、上高、执行、操作已经是至少提升100%了
+
+不过后面跟着蓝猫跳高地还是不应该
+
+*****
+
+####  izayoi39  
+##### 5362#       发表于 2022-8-10 11:30
+
+冰龙出隐刀没问题，大隐刀是出蛇了，fn这把不缺冰龙的输出，ts和拍拍双核输出绝对够，他就是要拉满生存装防被秒，什么隐刀盘子bkb甚至啊托斯都可以搞
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5363#       发表于 2022-8-10 11:32
+
+fnc这残阵当然不可能有啥章法了
+
