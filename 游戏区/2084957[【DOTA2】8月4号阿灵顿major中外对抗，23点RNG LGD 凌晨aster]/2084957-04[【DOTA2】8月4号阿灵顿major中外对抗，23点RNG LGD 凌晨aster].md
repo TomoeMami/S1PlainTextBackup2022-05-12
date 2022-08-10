@@ -9177,3 +9177,74 @@ yatoro几个月前就带着茶队应援
 
 《ceb承认ti8lgd硬实力更强》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 5602#       发表于 2022-8-10 16:55
+
+这是哪个纪录片 好了这下集美更有吹的资本了 
+og偷了ti8冠军！lgd硬实力！
+
+*****
+
+####  桐道悠  
+##### 5603#       发表于 2022-8-10 16:56
+
+一个想法，ti8的硬实力是不是等于现在的肌肉dota<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 5604#       发表于 2022-8-10 16:56
+
+v社今年也就两次dpc开赛前更新了一下，其余时间一直装死，本子到现在都不出，我都怀疑这游戏要像风暴一样停更了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 5605#       发表于 2022-8-10 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006753&amp;ptid=2084957" target="_blank">桐道悠 发表于 2022-8-10 16:56</a>
+一个想法，ti8的硬实力是不是等于现在的肌肉dota</blockquote>
+不支持这样马后炮来对比 
+
+*****
+
+####  蛭人  
+##### 5606#       发表于 2022-8-10 16:58
+
+杰出纯蹭子一个，正儿八经复盘，不从选手第一视角看是吧，就喜欢上帝视角装自己最懂的，结果就这，还会给ame开脱，不愧是粉丝众筹买电脑混不上解说转型喝水第一人。
+
+*****
+
+####  syndrome2032  
+##### 5607#       发表于 2022-8-10 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006735&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-10 16:55</a>
+这是哪个纪录片 好了这下集美更有吹的资本了 
+og偷了ti8冠军！lgd硬实力！</blockquote>
+就是红牛还是啥拍的那个。atf的
+
+*****
+
+####  天堂蜘蛛  
+##### 5608#       发表于 2022-8-10 17:00
+
+想多了，杰出连ti8/9/10那么多素材都没拷打过，以后也不会拷打处长的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 5609#       发表于 2022-8-10 17:01
+
+傻狗们骂骂选手就算了，别骂切片MAN啊，每天白天就指望看切片补比赛了，连OB都能舔了是不是太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 5610#       发表于 2022-8-10 17:01
+
+怎么又有假赛狗来了啊，还肌肉dota，能不能别用你那饭圈话语，咋不硬实力冠军呢？
+
