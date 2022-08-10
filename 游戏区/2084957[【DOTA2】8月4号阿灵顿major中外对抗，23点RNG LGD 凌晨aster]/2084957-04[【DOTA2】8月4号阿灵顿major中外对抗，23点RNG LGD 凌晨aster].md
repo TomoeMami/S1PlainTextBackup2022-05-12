@@ -10895,3 +10895,182 @@ CK不好处理了
 
 为什么职业哥的蠕动亚龙都不喜欢出魔晶
 
+
+
+*****
+
+####  mkii量产型  
+##### 5791#       发表于 2022-8-11 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好久没看见摩托车骑人了，还是后期
+
+*****
+
+####  lmslardar  
+##### 5792#       发表于 2022-8-11 00:12
+
+这boom好不稳啊，昨天第一把还挺有章法的又开始闹僵了
+
+*****
+
+####  nxmonitor  
+##### 5793#       发表于 2022-8-11 00:13
+
+Boom这波就脑浆了，不记盾时间的吗？
+
+*****
+
+####  弈秋  
+##### 5794#       发表于 2022-8-11 00:13
+
+蠕动给伐木机刮痧，怎么处理
+
+*****
+
+####  ArowRocher  
+##### 5795#       发表于 2022-8-11 00:13
+
+去败者组都是有理由的
+
+*****
+
+####  nxmonitor  
+##### 5796#       发表于 2022-8-11 00:14
+
+这CK，没盾上有盾的高，真的不想赢是吧……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 5797#       发表于 2022-8-11 00:14
+
+脑浆脑浆
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 5798#       发表于 2022-8-11 00:15
+
+还在肌肉，boom前几天的脑子呢
+
+*****
+
+####  反方向的波  
+##### 5799#       发表于 2022-8-11 00:16
+
+boxi这牛头是跳大过去收兵线是吧
+
+*****
+
+####  12481632  
+##### 5800#       发表于 2022-8-11 00:16
+
+这两边真的就是轮流犯病
+
+*****
+
+####  nxmonitor  
+##### 5801#       发表于 2022-8-11 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012870&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-11 00:15</a>
+
+还在肌肉，boom前几天的脑子呢</blockquote>
+一直是突然断片的啊，比如昨天第二把，都打回来很多了，伐木机抗肉山直接爆炸……
+
+*****
+
+####  灰色的狐狸  
+##### 5802#       发表于 2022-8-11 00:17
+
+真的脑浆满地
+
+*****
+
+####  弈秋  
+##### 5803#       发表于 2022-8-11 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是间歇性犯病吗
+
+*****
+
+####  lmslardar  
+##### 5804#       发表于 2022-8-11 00:18
+
+boom赢了liquid滚蛋对rng有好处吧
+
+*****
+
+####  nxmonitor  
+##### 5805#       发表于 2022-8-11 00:19
+
+BOOM是间歇性犯病，液体是对线过后一直犯病，相比而言肯定是液体更脑浆一点……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 5806#       发表于 2022-8-11 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">boom有点章法，但没有那么有章法，rng真不一定打得过
+
+*****
+
+####  nowaki  
+##### 5807#       发表于 2022-8-11 00:19
+
+鳖说了，打vp就是超哥最后一站了
+
+*****
+
+####  ArowRocher  
+##### 5808#       发表于 2022-8-11 00:19
+
+打boom比打vp更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yourSwaTer  
+##### 5809#       发表于 2022-8-11 00:20
+
+这ck的输出，让我想起了当初打ai被骑哥虐的惨状
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  mkii量产型  
+##### 5810#       发表于 2022-8-11 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在世界dota整体水平已经这么低了吗，感觉不少画面我那个分段也经常见
+
+*****
+
+####  灰色的狐狸  
+##### 5811#       发表于 2022-8-11 00:20
+
+鲜榨原浆了属于是
+
+*****
+
+####  山上徹也  
+##### 5812#       发表于 2022-8-11 00:20
+
+我看rng打这个队够呛
+
+*****
+
+####  天堂蜘蛛  
+##### 5813#       发表于 2022-8-11 00:20
+
+BOOM虽然有时候脑浆横流但最基本的局势把握还是有的，起码知道啥时候该接啥时候不该接
+
+上高纪律也比脑浆喷射的RNG强太多了
+
+*****
+
+####  逃离二次元  
+##### 5814#       发表于 2022-8-11 00:21
+
+超哥可以88dota了，vp难打过去，就算打过去了还得面对boom和liquid的胜者，玩不了啦
+

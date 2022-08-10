@@ -7365,3 +7365,15 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://img.saraba1st.com/forum/202208/11/000951u5m6kb5mbbddmdb5.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 704#       发表于 2022-8-11 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012687&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-10 23:59</a>
+
+伊吹确认是光炮了吗，万一是个单体不是尴尬了，这宝具很是霸气啊，然后立绘比原版还瑟琴，现在需要担心的是 ...</blockquote>
+宝具动画3个敌人
+
