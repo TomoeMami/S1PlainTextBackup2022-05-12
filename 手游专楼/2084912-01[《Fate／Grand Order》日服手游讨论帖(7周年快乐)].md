@@ -7317,3 +7317,24 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 50绿魔放 20黄金率 20宝威 30群充 20单充的绿卡光炮如何</blockquote>
 绿卡版奥贝龙+C呆融合体，确实厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 700#       发表于 2022-8-10 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012165&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-10 23:14</a>
+
+凉拌啊还能怎么办，又不能退货
+
+吊打摩根不存在的，除非原地100充</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚刚又出现了好几贴怕王姐被吊打 
+
+*****
+
+####  angelooo  
+##### 701#       发表于 2022-8-10 23:59
+
+伊吹确认是光炮了吗，万一是个单体不是尴尬了，这宝具很是霸气啊，然后立绘比原版还瑟琴，现在需要担心的是雷太的卡面背景，本身配色已经很花了再给个乱七八糟的背景又要瞎了
+

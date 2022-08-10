@@ -9010,3 +9010,14 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 
 额，我咋感觉这事不算小啊。乱用图片误导什么的，事务所不处理一下？
 
+
+
+*****
+
+####  Enakina  
+##### 2387#       发表于 2022-8-10 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57012428&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-10 23:38</a>
+额，我咋感觉这事不算小啊。乱用图片误导什么的，事务所不处理一下？</blockquote>
+我记得有日本粉丝去反应了，应该能传达到吧
+
