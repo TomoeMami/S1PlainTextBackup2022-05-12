@@ -5416,3 +5416,39 @@ C100的泳装本来看，水平已经比之前稳定，至少别再搞螳螂腿�
 迫真旱的旱死涝的涝死
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 505#       发表于 2022-8-10 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008374&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-10 19:07</a>
+
+今晚应该知道是不是三五星吧？</blockquote>
+我没记错的话，今晚只会知道是哪些人，PU2以后的星数不会说才对
+
+*****
+
+####  areklose  
+##### 506#       发表于 2022-8-10 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008447&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-10 19:15</a>
+
+我没记错的话，今晚只会知道是哪些人，PU2以后的星数不会说才对</blockquote>
+如果只是说了1五星1四星1送得。那不就是三五星了？ 
+
+*****
+
+####  alucardcz  
+##### 507#       发表于 2022-8-10 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">20分钟过去了 无事发生
+
+*****
+
+####  霧谷藤乃  
+##### 508#       发表于 2022-8-10 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿叶出场了，该上正菜了
+

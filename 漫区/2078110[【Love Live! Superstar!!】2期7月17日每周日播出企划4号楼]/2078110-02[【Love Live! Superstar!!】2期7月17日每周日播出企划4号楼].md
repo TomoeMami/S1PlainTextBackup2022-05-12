@@ -8762,3 +8762,40 @@ op首周才一万三…………
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以给nagi预定2期的VIP喷位了
 
+
+
+*****
+
+####  csolfans  
+##### 2366#       发表于 2022-8-10 19:11
+
+<blockquote>lj205 发表于 2022-8-10 15:32
+没海报单买BOX不如收二手</blockquote>
+有所买的店铺特典……没共通店铺特典……
+
+*****
+
+####  仟音一心  
+##### 2367#       发表于 2022-8-10 19:18
+
+<blockquote>仟音一心 发表于 2022-8-9 18:24
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/10/191837fpk12kx9ezaw0kxt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59D6675A-56F0-47AB-8DD4-FAD1C5E3B1B9.jpeg</strong> (339.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-10 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/191844jz1zorqhz0owhyqo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>385304F8-19AF-4B05-9BC0-14F5FFBFB878.jpeg</strong> (309.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-10 19:18 上传
+
