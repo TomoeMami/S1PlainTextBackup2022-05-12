@@ -8498,3 +8498,14 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 只是不能做露面的活动了，耽误了一个月时间，工作早就排到满了，原来7月那个bd talk抽选，现在都给排到晚 ...</blockquote>
 10点？不是8到9点吗？还是说G店场是安排9到10点了？
 
+
+
+*****
+
+####  Enakina  
+##### 2340#       发表于 2022-8-10 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002570&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-10 11:46</a>
+10点？不是8到9点吗？还是说G店场是安排9到10点了？</blockquote>
+<img src="https://p.sda1.dev/6/2606058f93d7bba5327f7eec286cc9fa/CMP_20220810115611901.jpg" referrerpolicy="no-referrer">
+
