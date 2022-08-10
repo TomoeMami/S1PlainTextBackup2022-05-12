@@ -819,3 +819,27 @@ S1老感觉有控分怪，参加的几次投票都是控的死死的
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Alicest  
+##### 88#       发表于 2022-8-10 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003853&amp;ptid=2085532" target="_blank">爱吃冻鳗的猫 发表于 2022-8-10 13:08</a>
+最近色色修女的形象多了起来，无论是本子还是色图还是小黄油，我觉得金毛的形象冲击力比蓝粉强烈多了。
+
+— ...</blockquote>
+蓝毛但凡能露一点点疤口也不至于肉体厨被修女吸走这么多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+每次看到她制服锁骨下的三角洲都痛恨没有曲线
+
+*****
+
+####  月亮上的珊瑚  
+##### 89#       发表于 2022-8-10 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003922&amp;ptid=2085532" target="_blank">Alicest 发表于 2022-8-10 13:14</a>
+蓝毛但凡能露一点点疤口也不至于肉体厨被修女吸走这么多
+每次看到她制服锁骨下的三角洲都痛恨没有 ...</blockquote>
+蓝毛身上有疤？
+

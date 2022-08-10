@@ -8590,3 +8590,24 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 星团糟糕在动画不行，疫情又不能搞中之人线下，人气很难起来，这波真挺亏得，2季碟片的数据也出来了，就那 ...</blockquote>
 还要算加人跑路的
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2350#       发表于 2022-8-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003675&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-10 12:54</a>
+
+小朋友会买5000多的跳绳，毛巾吗，不会被打死吗</blockquote>
+因为说的是小孩子嘛，所以我设想的就是大人买给小孩子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说回来如果星的动画能整成合家欢，感觉或许可以在低年龄段观众上赚更多钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2351#       发表于 2022-8-10 13:19
+
+喜羊羊是吧，等个十年他们长大再火一次
+

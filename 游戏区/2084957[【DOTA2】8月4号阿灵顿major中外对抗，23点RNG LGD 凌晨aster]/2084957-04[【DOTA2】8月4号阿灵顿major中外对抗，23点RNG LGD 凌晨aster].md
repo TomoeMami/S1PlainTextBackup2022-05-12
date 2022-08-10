@@ -8791,3 +8791,50 @@ misha：我的吧我的吧</blockquote>
 
 还在圣水符，v🐍铁集美，不可能删圣水符的，删了不是要lgd死？
 
+
+
+*****
+
+####  反方向的波  
+##### 5564#       发表于 2022-8-10 13:13
+
+善良京东和邪恶崩溃不合
+
+*****
+
+####  名字不乱取  
+##### 5565#       发表于 2022-8-10 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003887&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-10 13:11</a>
+
+崩溃哥风暴双雄，脑东京不上照</blockquote>
+第一眼以为右边站着个黑衣蓝胖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 5566#       发表于 2022-8-10 13:15
+
+没圣水符火猫都活不下去了，还是留着吧
+
+火猫**的难受啊，你改A改T就算了，能不能别加抬手，巨恶心
+
+*****
+
+####  Keynes  
+##### 5567#       发表于 2022-8-10 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003845&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-10 13:08</a>
+
+阿拿原来不是说过不行就打轮盘信号么，意思是一帮人训练也有两三周了轮盘都没给上帝配好？
+
+那TM活 ...</blockquote>
+消息来源sg，看看就行
+
+*****
+
+####  蛭人  
+##### 5568#       发表于 2022-8-10 13:20
+
+不哭不是真核核
+
