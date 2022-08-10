@@ -8175,3 +8175,62 @@ ED单和柠檬汽水日语版今天上架流媒体
 天朝黑子比本子多（指紫吧</blockquote>
 紫吧蛆我观察后的结论就是觉得国人玷污了它们心中至高无上不可侵犯的LL，黑不动偶像就去刨粉丝的所谓黑料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和恶俗圈一个模子刻出来的，八成有余党。
 
+
+
+*****
+
+####  starring  
+##### 2307#       发表于 2022-8-10 08:50
+
+最近cv的活动少动画又不行，供给不够又循环提起anti 的话题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 2308#       发表于 2022-8-10 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999689&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-10 08:43</a>
+
+紫吧蛆我观察后的结论就是觉得国人玷污了它们心中至高无上不可侵犯的LL，黑不动偶像就去刨粉丝的所谓黑料 ...</blockquote>
+紫吧这玩意，除去菜宝的隐藏身份，其他没什么干货，我本身对他们黑星黑鲤鱼没什么感觉
+
+就是觉得看紫吧东西真累，规矩不比LL主吧少
+
+不如战吧和S1NGA自由，干货也不如五厕拉版
+
+看的真的很累<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2309#       发表于 2022-8-10 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999752&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-10 08:50</a>
+紫吧这玩意，除去菜宝的隐藏身份，其他没什么干货，我本身对他们黑星黑鲤鱼没什么感觉
+
+就是觉得看紫吧东 ...</blockquote>
+啥？主吧我天天水，哪有什么规矩？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 2310#       发表于 2022-8-10 08:55
+
+ 本帖最后由 靡宜 于 2022-8-10 08:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999547&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-10 08:29</a>
+
+也可以理解吧，因为唐可可在国内出圈了，随之带来的不只有核心粉，也有更多所谓的小鬼，后者的发言截个图 ...</blockquote>
+nt素材不只有星，就是喜欢逮着星的小鬼编鬼话罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cxj649  
+##### 2311#       发表于 2022-8-10 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999804&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-10 08:54</a>
+
+啥？主吧我天天水，哪有什么规矩？</blockquote>
+主吧是不许拉屎，紫吧是逼出屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
