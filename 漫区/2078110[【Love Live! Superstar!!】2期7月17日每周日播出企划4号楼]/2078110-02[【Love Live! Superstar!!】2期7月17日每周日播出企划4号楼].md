@@ -8734,3 +8734,22 @@ op首周才一万三…………
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跨国追星的时候圈内老人心照不宣的规则对新人来说都需要付诸行动去摸索这个现象倒是让我想起不少游戏也这样
 
+
+
+*****
+
+####  lj205  
+##### 2363#       发表于 2022-8-10 18:02
+
+话说nagi 参加不了上映会也好，恋这戏份多尴尬
+
+*****
+
+####  ddy2811  
+##### 2364#       发表于 2022-8-10 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003598&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-10 12:48</a>
+
+其实那些小玩意说不定或许可以吧（？），跳绳，毛巾看起来不也挺好的吗 ...</blockquote>
+但这也太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

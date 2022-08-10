@@ -9505,3 +9505,30 @@ link：https://sullygnome.com/game/Dota_2</blockquote>
 当年单车DC讨论连击刀蚂蚁打几下，官方解说，dota2早就GG了；度假社赖皮，国内充斥着大量饭圈经营的云玩家 ...</blockquote>
 我记得有一个主角是党委华
 
+
+
+*****
+
+####  沈淮  
+##### 5637#         楼主| 发表于 2022-8-10 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57006921&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 17:08</a>
+其实你们真的看杰畜直播就知道，这个人A畜黑的真面目是压不住的，包括但不限于：解说LGD比赛时反复 ...</blockquote>
+我tm看yyf打rpg都不进杰畜直播间好吧
+
+*****
+
+####  Cantha  
+##### 5638#       发表于 2022-8-10 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20220810181047.jpg
+(121.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202208/10/181056a2z99abbr51pqr95.jpg" referrerpolicy="no-referrer">
+
