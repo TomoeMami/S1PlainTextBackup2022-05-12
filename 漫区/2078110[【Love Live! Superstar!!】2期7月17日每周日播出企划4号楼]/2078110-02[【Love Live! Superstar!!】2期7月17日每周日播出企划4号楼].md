@@ -8547,3 +8547,35 @@ Nako应该没事吧，可别整个三冠王</blockquote>
 当初调侃星降低年龄层吸收新粉丝，连育儿所也有小粉丝，可是现在出的周边没有哪样适合小友玩，结果现在看来 ...</blockquote>
 其实那些小玩意说不定或许可以吧（？），跳绳，毛巾看起来不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 2345#       发表于 2022-8-10 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003598&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-10 12:48</a>
+其实那些小玩意说不定或许可以吧（？），跳绳，毛巾看起来不也挺好的吗 ...</blockquote>
+小朋友会买5000多的跳绳，毛巾吗，不会被打死吗
+
+*****
+
+####  cybernetics31  
+##### 2346#       发表于 2022-8-10 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是购买力嘛…………
+
+*****
+
+####  型月重工  
+##### 2347#       发表于 2022-8-10 12:56
+
+加人的目的就是吸引新粉入坑，然而现实是没新粉加入，老粉也快出坑了啧啧
+
+*****
+
+####  csolfans  
+##### 2348#       发表于 2022-8-10 12:57
+
+一巡box国内拿到手了，有点小失望。tb代购订的太迟所以我这边拿不到那份双面店铺共通海报
+

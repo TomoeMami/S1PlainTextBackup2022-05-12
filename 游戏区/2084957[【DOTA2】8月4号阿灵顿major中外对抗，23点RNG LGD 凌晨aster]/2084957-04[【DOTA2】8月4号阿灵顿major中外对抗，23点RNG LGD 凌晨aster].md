@@ -8576,3 +8576,111 @@ vg的辅助我讲过很多次了，作为从ti4就开始粉vg的铁血vkun，vg�
 
 快删了圣水符吧，我想看到中路血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 5542#       发表于 2022-8-10 12:51
+
+就今天4个BO3，之后都是3个BO3，不过要是脑浆局多一点，明天7点起床应该还能目送RNG告别舞台
+
+*****
+
+####  北条早苗  
+##### 5543#       发表于 2022-8-10 12:52
+
+去年vg战术地位最高的肯定是老11，毕竟这点被打崩了vg直接没了
+去年ti上曾焦阳属于是对线必炸，搓中可能还有这个人，不搓直接人没了。真正被放养的是pyy，中期四兄弟打不出局势，没空间刷钱慢性死亡
+
+*****
+
+####  wbzdwsmnmsl  
+##### 5544#       发表于 2022-8-10 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003486&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-10 12:40</a>
+
+major败者组第一轮是bo1还是bo3?</blockquote>
+bo3
+
+*****
+
+####  百世诸侯  
+##### 5545#       发表于 2022-8-10 12:53
+
+ 本帖最后由 百世诸侯 于 2022-8-10 12:56 编辑 
+
+fnatic感觉要没了，离下一个bo3就12个小时，士气恢复不说，做准备热身的时间都没有
+
+↑错误信息，被超级集美论坛比赛时间表误导了
+
+*****
+
+####  Litccc  
+##### 5546#       发表于 2022-8-10 12:54
+
+去年vg最让人失望的也是老11吧，那个猛犸给我看的高血压了都
+
+*****
+
+####  Bernoulli  
+##### 5547#       发表于 2022-8-10 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003665&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-10 12:53</a>
+
+fnatic感觉要没了，离下一个bo3就12个小时，士气恢复不说，做准备热身的时间都没有 ...</blockquote>
+它的比赛不是要后天吗？
+
+*****
+
+####  何然  
+##### 5548#       发表于 2022-8-10 12:55
+
+原来今天是飞鸟酱生日
+波波卡桑送上了生日礼物！
+
+*****
+
+####  沈淮  
+##### 5549#         楼主| 发表于 2022-8-10 12:56
+
+比起猛犸更恶心的是回家局打ig的牛头吧，队友准备控盾自己上高坡送了，导致水人买活，不然可以进败决得
+
+猛犸那盘好歹还赢了
+
+*****
+
+####  百世诸侯  
+##### 5550#       发表于 2022-8-10 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003677&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-10 12:54</a>
+
+它的比赛不是要后天吗？</blockquote>
+超级集美论坛置顶帖写的，我去液体维基看了一下是后天，超级集美论坛真的是哈哈了
+
+
+
+*****
+
+####  名字不乱取  
+##### 5551#       发表于 2022-8-10 12:58
+
+我怎么记得ti10vg是前期不帮ori必炸，帮了概率炸，每把都看的血压拉满，拖到后期ori有声音了还是顶级享受的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 5552#       发表于 2022-8-10 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003304&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 12:29</a>
+
+misha：我的吧我的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看评论区熟悉的味道都回来了
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 5553#       发表于 2022-8-10 12:59
+
+能不能把中路线改长点，比赛还好，平时玩感觉没点个人能力碰撞，谁都能当那个走中的人
+
