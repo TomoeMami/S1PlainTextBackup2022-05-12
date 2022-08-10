@@ -8234,3 +8234,16 @@ nt素材不只有星，就是喜欢逮着星的小鬼编鬼话罢了<img src="ht
 啥？主吧我天天水，哪有什么规矩？</blockquote>
 主吧是不许拉屎，紫吧是逼出屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2312#       发表于 2022-8-10 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56999837&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-10 08:57</a>
+主吧是不许拉shi，紫吧是逼出shi我是觉得没shi就不要硬是拉出来啊
+
+ ...</blockquote>
+正常人谁在公共场所排泄啊<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
