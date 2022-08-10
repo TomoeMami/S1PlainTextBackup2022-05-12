@@ -8935,3 +8935,16 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57009975&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-10 21:04</a></blockquote>
 比较在意特意空出来的10月和11月，管人是要整大活吗
 
+
+
+*****
+
+####  靡宜  
+##### 2380#       发表于 2022-8-10 21:34
+
+<blockquote>player3960 发表于 2022-8-10 21:00
+胶带取下来了吗？还是p掉了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+鱼说p掉了，fc工商视频能看到😷
+
