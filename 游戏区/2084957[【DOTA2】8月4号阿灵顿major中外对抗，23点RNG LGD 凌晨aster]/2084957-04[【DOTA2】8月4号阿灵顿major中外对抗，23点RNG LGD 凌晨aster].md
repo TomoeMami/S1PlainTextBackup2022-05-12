@@ -9446,3 +9446,36 @@ VPGAME其实早就炸了，我甚至觉得那一波人有可能是水厂弄出�
 环境姐妹化他们也 ...</blockquote>
 这些人都是直接从lgd拿钱的，怎么能算吸血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小19  
+##### 5631#       发表于 2022-8-10 17:42
+
+<blockquote>CNFH1984 发表于 2022-8-10 16:44
+我就这么说吧，前几年总有人说ob是吸血鬼。
+
+这帮铁血姐妹自媒体，什么阿林，思思，紫姨。
+
+环境姐妹化他们也 ...</blockquote>
+有没有可能这帮人是ob的🐶呢
+
+*****
+
+####  43453  
+##### 5632#       发表于 2022-8-10 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57007231&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-10 17:30</a>
+开赛以来大致如此
+
+link：https://sullygnome.com/game/Dota_2</blockquote>
+的确是平均八万多……
+
+*****
+
+####  ArowRocher  
+##### 5633#       发表于 2022-8-10 17:48
+
+大环境泥沙俱下，归责于几个切片的和做直播的还是有点太避重就轻了，真单纯为了靠播放点赞赚点钱不如去做隔壁切片。
+
