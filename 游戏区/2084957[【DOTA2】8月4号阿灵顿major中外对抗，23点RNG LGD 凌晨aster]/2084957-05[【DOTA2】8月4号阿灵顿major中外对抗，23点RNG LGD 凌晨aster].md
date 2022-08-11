@@ -8609,3 +8609,147 @@ haob还是有点作用的啊，毕竟唯二对线能单杀ti4有你我死的c</b
 那么还有一个是谁呢</blockquote>
 赛垃圾
 
+
+
+*****
+
+####  沈淮  
+##### 7007#         楼主| 发表于 2022-8-11 12:41
+
+下午有点忙，可能没办法第一时间发龙之血3的资源了，不过你楼估计除了我也没几个人爱看  鸽了
+
+*****
+
+####  nomhrpls  
+##### 7008#       发表于 2022-8-11 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ngm最大的问题是mc的英雄池和kky的bp，但是99%的时候这两都是相辅相成的。
+
+*****
+
+####  Keynes  
+##### 7009#       发表于 2022-8-11 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018535&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 12:14</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7010#       发表于 2022-8-11 12:42
+
+看番我只看萌萌二次元美少女
+
+龙之血不感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 7011#       发表于 2022-8-11 12:44
+
+龙之血第二季拍像的一坨，剧情节奏都一泡污
+不看好第三季
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 7012#       发表于 2022-8-11 12:44
+
+误入此楼
+
+*****
+
+####  名字不乱取  
+##### 7013#       发表于 2022-8-11 12:44
+
+漏油有点离谱了，指望今年杜鹏能超进化不如直接跟集美一起带假赛节奏，至少能让cndota死在自己怀里<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 7014#       发表于 2022-8-11 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018901&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 12:41</a>
+
+下午有点忙，可能没办法第一时间发龙之血3的资源了，不过你楼估计除了我也没几个人爱看  鸽了 ...</blockquote>
+偷偷发我，我爱看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 7015#       发表于 2022-8-11 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018901&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 12:41</a>
+
+下午有点忙，可能没办法第一时间发龙之血3的资源了，不过你楼估计除了我也没几个人爱看  鸽了 ...</blockquote>
+偷偷发我，我爱看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 7016#       发表于 2022-8-11 12:46
+
+哇你楼也太病娇了
+
+*****
+
+####  沈淮  
+##### 7017#         楼主| 发表于 2022-8-11 12:46
+
+龙之血2的剧情咋说呢，感觉就是各种谜语人，然后lina跟marci还死了。看得有点烦，但是作为戴维安铁粉我肯定还是要看3的
+
+*****
+
+####  izayoi39  
+##### 7018#       发表于 2022-8-11 12:46
+
+ 本帖最后由 izayoi39 于 2022-8-11 12:49 编辑 
+
+跳刀不太一样的，跳刀在当年的wings是核心，wings整体节奏都是跟着跳刀在走的，所以当ti6后跳刀因为手伤大幅下滑以后wings就迅速陨落了。跟跳刀最像的其实是ti9那年的ori。
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 7019#         楼主| 发表于 2022-8-11 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018980&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-11 12:45</a>
+
+偷偷发我，我爱看</blockquote>
+下班了我就直接放顶楼了
+
+*****
+
+####  IG.430  
+##### 7020#       发表于 2022-8-11 12:48
+
+ddrk.me稍晚些应该会更第三季，卜喜欢下载的可以在这里看
+
+
+
+*****
+
+####  JoelBirch  
+##### 7021#       发表于 2022-8-11 12:49
+
+虽然死妈编剧喂屎弄死了我的玛西，但该看还得看的，起码对至宝身心啥的有个预期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 7022#       发表于 2022-8-11 12:49
+
+第二季受疫情影响，发挥不好很正常，期待第三季！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 7023#       发表于 2022-8-11 12:50
+
+把PPY和KKY关住的第一步就是疯狂选陈和小鹿，希望剩下的队都多选一选没什么坏处的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
