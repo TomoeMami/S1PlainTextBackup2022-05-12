@@ -592,3 +592,14 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 
 克神力中暴力一把要透支很久的
 
+
+
+*****
+
+####  excalibur--  
+##### 7577#       发表于 2022-8-12 01:30
+
+漏油们，克神的火女如何啊？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
