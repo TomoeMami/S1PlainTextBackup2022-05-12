@@ -9928,3 +9928,116 @@ g4打完我就蒙头大睡准备装死的
 
 打倒投降派！
 
+
+
+*****
+
+####  chilno  
+##### 7152#       发表于 2022-8-11 15:01
+
+不过认真来说我对阿茶本身也还算比较喜欢
+
+鳖鳖干的破事反正没恶心到我
+
+monet菜是菜了点但是长相在你们国服C里面算很棒的了
+
+ori无感甚至有点讨厌选火女这个梗
+
+x哥属于我一直比较喜欢的3
+
+波波卡桑打野这事太逗了甚至算笑点不是黑点
+
+皮球就不说了，灵性5真的棒
+
+哦还有个教练中国kky，能不能早点回家啊
+
+加油，阿茶gogogo！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 7153#       发表于 2022-8-11 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020542&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 14:57</a>
+
+op永不为奴</blockquote>
+我建议在刀圈就别乱op了
+
+人家退役多少年了好吧
+
+*****
+
+####  遍体精淋af  
+##### 7154#       发表于 2022-8-11 15:03
+
+估摸西恩这次还是有四个队伍能打ti，也就是rngxgigvgehome清茶这几个队伍争两个名额，期望西恩夺冠但是又不想当集美和鳖孙的漏友可以发散一下<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 7155#       发表于 2022-8-11 15:04
+
+很喜欢李斯去年的一句话:就是死我也要站着死<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马儿在流泪  
+##### 7156#       发表于 2022-8-11 15:04
+
+相信憋茶，我还不如相信IG涅槃重生
+
+*****
+
+####  morwhipppo  
+##### 7157#       发表于 2022-8-11 15:04
+
+我是皮套人男友粉，先给自己扣个帽子，清算鳖孙和mxo的时候逃过一劫
+
+*****
+
+####  健康猹  
+##### 7158#       发表于 2022-8-11 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020617&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-08-11 15:03:27</a>
+估摸西恩这次还是有四个队伍能打ti，也就是rngxgigvgehome清茶这几个队伍争两个名额，期望西恩夺冠但是又不 ...</blockquote>这几个队我最支持清茶，玩的很与众不同有乐子，但这不是更鳖孙了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  沈淮  
+##### 7159#         楼主| 发表于 2022-8-11 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020595&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-11 15:01</a>
+
+我建议在刀圈就别乱op了
+
+人家退役多少年了好吧</blockquote>
+不是集美给og粉丝取的名吗
+
+*****
+
+####  nowaki  
+##### 7160#       发表于 2022-8-11 15:05
+
+反正今年大概率还是没奇迹 无所谓谁赢了
+
+*****
+
+####  chilno  
+##### 7161#       发表于 2022-8-11 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020650&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 15:05</a>
+
+不是集美给og粉丝取的名吗</blockquote>
+什么还有这个
+
+你们对集美有多熟悉啊哦草
+
+*****
+
+####  IG.430  
+##### 7162#       发表于 2022-8-11 15:09
+
+反正今年大概率还是没奇迹 无所谓谁赢了
+
