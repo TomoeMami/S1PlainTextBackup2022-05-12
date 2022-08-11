@@ -9440,3 +9440,28 @@ v要皮套丑可不行
 
 2022-8-11 21:46 上传
 
+
+
+*****
+
+####  lj205  
+##### 2427#       发表于 2022-8-11 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025944&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-11 21:42</a>
+
+香哥哥人气度一档好像不大对，应该是打铁人气助攻了香哥哥导致度一档。但中之人5人之间人气除了noko没啥个 ...</blockquote>
+打铁那就是独一档的存在吧，要不怎么助攻香音，现场主灯颜色压倒性不是开玩喜的
+
+*****
+
+####  Enakina  
+##### 2428#       发表于 2022-8-11 21:57
+
+ 本帖最后由 Enakina 于 2022-8-11 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025690&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-11 21:23</a>
+微博上看到有人整理的Live时间分布图，星这边撇开西武巨蛋，北海道那俩场Live也感觉安排的挺离谱的
+
+看了下 ...</blockquote>
+去年一巡北海道场2000人小场，也是平日，还撞了aaa的小组，那场上座率就一般，镜头一给台下就能看到空好多，看来是完全没有吃到教训的样子
+不过今年我估计也不会像一巡一样每场都看了，的确没去年那种热情了，去年好多wb上关注的，每次一巡都疯狂截图和发感想，现在都跑了好几个了，多少有点物是人非的悲凉感……
+
