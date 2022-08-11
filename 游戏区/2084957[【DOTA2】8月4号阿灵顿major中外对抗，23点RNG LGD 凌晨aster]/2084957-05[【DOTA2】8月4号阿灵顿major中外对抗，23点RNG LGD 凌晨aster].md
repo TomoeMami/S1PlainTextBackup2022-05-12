@@ -9171,3 +9171,41 @@ ame和maybe都是有天赋没脑子的选手，但是ame打1号位，其他人�
 打2要带节奏，要思路清晰，中期最强的位置别人要根据他在地图的位置和有的经济改变打法，一旦脑浆就无解。
 maybe强的版本都是2号位狂吃资源的版本。
 
+
+
+*****
+
+####  thistimeforlife  
+##### 7073#       发表于 2022-8-11 13:43
+
+超级鳖孙论坛upup<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+在时无英雄 竖子成名这点上，集美和漏油确实没啥区别。
+
+但那有啥办法呢，今年茶和干瘪的大分是4：4，og 雪碧今年还没赢过干瘪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 7074#       发表于 2022-8-11 13:47
+
+漏油们只是想找把能打过干瘪的枪，这枪姓鳖还是姓什么都无所谓，不过按我的意见，相信鳖星真不如相信萧瑟自己尿波大的，后者至少还要稳定一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 7075#       发表于 2022-8-11 13:47
+
+只有求求女装C化神了！
+
+毕竟还制裁过lgd，虽然第二天就被打回来了是吧！
+
+全华班gogogo！
+
+*****
+
+####  逃离二次元  
+##### 7076#       发表于 2022-8-11 13:48
+
+跪求里番c化龙，里番c你什么时候才能打出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
