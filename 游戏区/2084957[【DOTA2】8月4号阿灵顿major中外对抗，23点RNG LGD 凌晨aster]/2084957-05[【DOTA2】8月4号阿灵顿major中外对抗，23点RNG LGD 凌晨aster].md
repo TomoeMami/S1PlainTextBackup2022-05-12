@@ -10085,3 +10085,97 @@ op永不为奴</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我看官博评论怎么开始拷打官博了
 
+
+
+*****
+
+####  人別離苦  
+##### 7168#       发表于 2022-8-11 15:20
+
+相信刀塔之神<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 7169#       发表于 2022-8-11 15:21
+
+hoho哥才是真正的官博
+
+*****
+
+####  morwhipppo  
+##### 7170#       发表于 2022-8-11 15:22
+
+<blockquote>Cantha 发表于 2022-8-11 15:18
+我看官博评论怎么开始拷打官博了</blockquote>
+好像是完美实习生公号私用恶心哥哥了，虽然我也觉得公号私用不好，但是有个输比赛就全盘否定ti是假赛来恶心整个刀塔的粉丝群体，被完美不待见也太正常了吧
+
+
+
+*****
+
+####  战狼PTSD  
+##### 7171#       发表于 2022-8-11 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020641&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-11 15:04</a>
+
+我是皮套人男友粉，先给自己扣个帽子，清算鳖孙和mxo的时候逃过一劫</blockquote>
+注:管人痴与撸🐶不得入内
+
+*****
+
+####  我爱撩菜  
+##### 7172#       发表于 2022-8-11 15:24
+
+这个Major八王不瞎搞，还是老干爹的版本
+
+TI就不好说了，但大概率不会大改。要改也是削弱，石油杯和Major可见要削的：马西，戴泽，电棍，术士？ 感觉小小的强度还会再削
+
+RNG遗憾退场，意味着国内是真的地狱难度了。ehome 不看好，大概率还是RNG和IG咯，Aster.A貌似还不错？ 
+
+今晚的赛程太可怕了= =我都想明天休假看比赛了。
+
+*****
+
+####  usoda  
+##### 7173#       发表于 2022-8-11 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是先考虑下这帮子人在漂亮国会不会羊再说吧 这才是大问题
+
+*****
+
+####  战狼PTSD  
+##### 7174#       发表于 2022-8-11 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020908&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 15:24</a>
+
+这个Major八王不瞎搞，还是老干爹的版本
+
+TI就不好说了，但大概率不会大改。要改也是削弱，石油杯和Major可 ...</blockquote>
+要大更，面八肯定要头晕
+
+面八职业生涯一直都是卡卡西
+
+*****
+
+####  我爱撩菜  
+##### 7175#       发表于 2022-8-11 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020925&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 15:25</a>
+
+要大更，面八肯定要头晕
+
+面八职业生涯一直都是卡卡西</blockquote>
+看V社这尿性还真可能等到LGD夺冠了才开始大改个8.0出来。 
+
+话说如果这次更新，兽 可以加入CW了吧？ 
+
+大概率进CW的兽还得削，而且大削
+
+*****
+
+####  nowaki  
+##### 7176#       发表于 2022-8-11 15:30
+
+v社铁集美 lgd不冠不改
+
