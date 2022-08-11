@@ -7818,3 +7818,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 一旦错过又要等两三回合
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 743#       发表于 2022-8-11 11:34
+
+说实话真要周回出场的话，旧梅换个攻击宝具要好很多。
+

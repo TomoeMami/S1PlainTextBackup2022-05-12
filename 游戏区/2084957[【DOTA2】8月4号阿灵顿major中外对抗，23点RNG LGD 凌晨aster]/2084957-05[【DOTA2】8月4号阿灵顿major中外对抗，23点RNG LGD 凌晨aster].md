@@ -7426,3 +7426,263 @@ LGD确实放水了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 [https://www.reddit.com/r/DotA2/c ... t_round_1/?sort=top](https://www.reddit.com/r/DotA2/comments/wlakkh/pgl_arlington_major_2022_lower_bracket_round_1/?sort=top)
 
+
+
+*****
+
+####  百世诸侯  
+##### 6884#       发表于 2022-8-11 11:30
+
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在这楼里roll一个中单光一直播间舰长表示庆祝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 6885#       发表于 2022-8-11 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017833&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 11:29</a>
+看了下洋太监论坛，喷ana居多。
+
+https://www.reddit.com/r/DotA2/comments/wlakkh/pgl_arlington_major_2 ...</blockquote>
+最好的team都出来了，这几兄弟凭啥产生化学反应啊
+
+*****
+
+####  北条早苗  
+##### 6886#       发表于 2022-8-11 11:31
+
+31杀小小那把的幽鬼是我在ti上见过最厉害的c位表演，大劣不是只刷安全线和野区，而是带线过河道拖过eg阵容强势期，也就集美会拿ti8的a畜来碰瓷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 6887#       发表于 2022-8-11 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017853&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:30</a>
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+你就是那个凡尔赛小茶叶？
+
+*****
+
+####  沈淮  
+##### 6888#         楼主| 发表于 2022-8-11 11:31
+
+本来ana就打得不好啊，没啥好说的，我虽然是铁泰迪黑，但是ana打得不好是事实，我不会为了黑泰迪而无脑洗ana的
+
+*****
+
+####  CNFH1984  
+##### 6889#       发表于 2022-8-11 11:32
+
+<blockquote>百世诸侯 发表于 2022-8-11 11:30
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+你这……可太铁血了
+
+*****
+
+####  逃离二次元  
+##### 6890#       发表于 2022-8-11 11:33
+
+ana这个系列赛状态一直在走下坡路，越打越差，当然也和俊豪（dota2教练）的狗屎bp脱不开关系
+
+*****
+
+####  蛭人  
+##### 6891#       发表于 2022-8-11 11:33
+
+为什么要给中单光一舰长，roll个至宝不行吗？
+
+*****
+
+####  沈淮  
+##### 6892#         楼主| 发表于 2022-8-11 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017853&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:30</a>
+
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+直接v我138好吧，我被midlightone拉黑了
+
+*****
+
+####  Litccc  
+##### 6893#       发表于 2022-8-11 11:33
+
+中单光一是谁
+
+*****
+
+####  百世诸侯  
+##### 6894#       发表于 2022-8-11 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">走的更远不是说茶队夺冠，就LGD一轮游茶队二轮游也行，我主要是想看集美被第二仇恨的队伍压一头的表现
+
+*****
+
+####  cobymar  
+##### 6895#       发表于 2022-8-11 11:33
+
+还没看出来吗，西恩队伍带东南亚人是没有前途的，fg除外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  逃离二次元  
+##### 6896#       发表于 2022-8-11 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017853&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:30</a>
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+妮就是那个凡尔赛奥菲秀？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 6897#       发表于 2022-8-11 11:33
+
+ana的先知很辣眼我也不知道为啥要选，第一把tb细节太差锅背好不冤。
+
+*****
+
+####  nowaki  
+##### 6898#       发表于 2022-8-11 11:34
+
+不过这个版本不是大核版本，杜鹏儿和a畜同样脑浆都在胜者组，这版本真的看三
+
+*****
+
+####  ArowRocher  
+##### 6899#       发表于 2022-8-11 11:34
+
+中单光一是谁 
+
+*****
+
+####  北条早苗  
+##### 6900#       发表于 2022-8-11 11:34
+
+a畜这玩意连续三届ti带着国内最好的2345组合在决赛日小丑基因发作送掉两个盾还能搞粉圈营销的，只能说国内喝ru水的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  尸体鲨  
+##### 6901#       发表于 2022-8-11 11:35
+
+按照透支偿还理论，下一个大核版本马上要来了
+
+*****
+
+####  蛭人  
+##### 6902#       发表于 2022-8-11 11:36
+
+中单光一是不是也喝ru水来着？还是说和皮套人联动过？
+
+*****
+
+####  CNFH1984  
+##### 6903#       发表于 2022-8-11 11:36
+
+<blockquote>北条早苗 发表于 2022-8-11 11:34
+a畜这玩意连续三届ti带着国内最好的2345组合在决赛日小丑基因发作送掉两个盾还能搞粉圈营销的，只能说国内 ...</blockquote>
+神罚！神罚！
+
+*****
+
+####  百世诸侯  
+##### 6904#       发表于 2022-8-11 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017890&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 11:33</a>
+
+为什么要给中单光一舰长，roll个至宝不行吗？</blockquote>
+直接给我加70块是吧，可折现138，虽然这钱我大概率花不出去了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 6905#       发表于 2022-8-11 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017893&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 11:33</a>
+直接v我138好吧，我被midlightone拉黑了</blockquote>
+你刷个138当然就买活了啊
+
+*****
+
+####  名字不乱取  
+##### 6906#       发表于 2022-8-11 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017923&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-11 11:34</a>
+
+a畜这玩意连续三届ti带着国内最好的2345组合在决赛日小丑基因发作送掉两个盾还能搞粉圈营销的，只能说国内 ...</blockquote>
+本质刀圈流量就那么点，ru一家吃完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 6907#       发表于 2022-8-11 11:37
+
+那得168，再来个30sc求饶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 6908#       发表于 2022-8-11 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017853&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:30</a>
+
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如v兄弟们一个至宝
+
+*****
+
+####  zhliiiii  
+##### 6909#       发表于 2022-8-11 11:37
+
+这次会刷新历史记录只有三个西恩队进ti吗
+
+*****
+
+####  尸体鲨  
+##### 6910#       发表于 2022-8-11 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017936&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 11:36</a>
+中单光一是不是也喝ru水来着？还是说和皮套人联动过？</blockquote>
+他不配喝ru水吧，顶多小超人意志不够坚定，犯了路线错误，当了一段时间的自来水
+
+*****
+
+####  ArowRocher  
+##### 6911#       发表于 2022-8-11 11:39
+
+正规俱乐部其实公关也挺厉害的，这次几个人流量已经拉满了，实在是成绩不好无法化龙武痴
+
+*****
+
+####  izayoi39  
+##### 6912#       发表于 2022-8-11 11:40
+
+这个版本是个中期扫图版本，你的地图越大1号位崩了也无所谓随便刷起来，所以23号位的节奏能力就特别重要。
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tontyoutoure  
+##### 6913#       发表于 2022-8-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017653&amp;ptid=2084957" target="_blank">cody198879 发表于 2022-8-11 11:19</a>
+
+在这波被抓之前，整个团队都犯错了，拖到对面的强势期，难道不上高是ana自己决定的？被抓之前不是抓了另 ...</blockquote>
+其实我是说小组赛打lgd啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我也没说你说的错啊，本来235都是畜级发挥，打成这样不让人吃惊，但是上帝的一些决策也远不是受迫性失误了。要我洗的话就是他先知玩的不太好吧，感觉两年前的树老师来玩都拿下了。
+
+*****
+
+####  北条早苗  
+##### 6914#       发表于 2022-8-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017967&amp;ptid=2084957" target="_blank">zhliiiii 发表于 2022-8-11 11:37</a>
+这次会刷新历史记录只有三个西恩队进ti吗</blockquote>
+只能说大概率事件，直邀2+预选1，外卡阵容现在已经血雨腥风了
+
