@@ -12667,3 +12667,26 @@ ruru除外，养出什么集美东西了都<img src="https://static.saraba1st.co
 
 梯哀玖还在读书，等下次回到中国的时候窝一定辞职去看<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">（如果还有下次）
 
+
+
+*****
+
+####  Cantha  
+##### 7461#       发表于 2022-8-11 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">就我是小丑是吧，找工作小半个月了，没找到合适的
+
+*****
+
+####  阿垃垃圾历  
+##### 7462#       发表于 2022-8-11 22:43
+
+有条件是真的想去李家坡看  门票价格中规中矩  食宿上怎样都不会过于昂贵吧   就是tm没假期啊 
+
+*****
+
+####  nightmare902015  
+##### 7463#       发表于 2022-8-11 22:48
+
+下次ti来中国一定去现场+1，就不知道那个时候是dota3还是已经没有dota了
+

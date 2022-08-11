@@ -2003,3 +2003,21 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 
 也没准dlc加的2个英雄任务就填了
 
+
+
+*****
+
+####  KOL2022  
+##### 177#       发表于 2022-8-11 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024316&amp;ptid=2084988" target="_blank">whzfjk 发表于 2022-8-11 19:53</a>
+
+10 年设定就是高桥为惨而惨，顺便给前期逐渐加点紧张感（虽然为了反衬紧张感让诺亚冷无缺了）。就像 2 代异 ...</blockquote>
+为了惨而惨？
+
+不是Z他们衔尾蛇只喜欢看年轻人挥洒生命么？
+
+还是指望他们喜欢看人人白头偕老？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+安享晚年晒太阳遛弯么
+

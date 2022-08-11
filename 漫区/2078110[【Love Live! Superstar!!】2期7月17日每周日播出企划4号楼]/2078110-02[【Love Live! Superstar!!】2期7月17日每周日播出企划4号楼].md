@@ -9547,3 +9547,20 @@ v要皮套丑可不行
 由手机上传
 2022-8-11 22:41 上传
 
+
+
+*****
+
+####  ads147147  
+##### 2432#       发表于 2022-8-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022694&amp;ptid=2078110" target="_blank">Dark_Zagi 发表于 2022-8-11 17:34</a>
+她有啥好喷的，在香音传加持下香音人气快断层了</blockquote>
+现在再香音传，现在香音的问题也不会解决，完全是捧杀。就像是as的栞子岚珠一样，真到了翻的时候，星可没有复活币，这剧本可不得给sayu磕头。
+
+想想第二季还要香音个人回，vn是三期生肯定还要再铺一集，这片子感觉未来都是黑色的。
+
+妈的吧香音裤袜原设还来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
