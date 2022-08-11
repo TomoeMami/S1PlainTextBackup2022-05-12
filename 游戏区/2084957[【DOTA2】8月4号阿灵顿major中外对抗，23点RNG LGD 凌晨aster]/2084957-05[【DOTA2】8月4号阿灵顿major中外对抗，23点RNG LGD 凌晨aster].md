@@ -11470,3 +11470,77 @@ scboy论坛的投票，挺乐的<img src="https://static.saraba1st.com/image/smi
 
 我感觉351264 吧。接锅顺序。
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 7326#       发表于 2022-8-11 17:54
+
+东南亚队真的脑子有问题，把一二号位踢了。
+之前踢了个更好的23换gabbi都算了，现在又把gabbi踢了，连大腿中单karl都踢了，留了个废物kuku，玩蛇
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  雅朵莉雀  
+##### 7327#       发表于 2022-8-11 17:54
+
+最后一把查理斯的最大问题在哪？
+
+线上被打炸了？秒了doom没大往对面二塔下冲？
+
+这盘RNG整个阵容最重要的就是这个DP，被对面viper抓着啄？
+
+要是线被打穿有责任，那kaka线上送的最多kaka有没有责任？
+
+ana飞脸送头他是上帝，查理斯吃屎带队打架我是最大锅？
+
+上盘都会说TB队友一个能顶的都没有，要TB做所有的事难玩的要死，这盘DP不是要做所有的事？
+
+最高参战率最高输出，三大哥经济最低，线上打个viper？一共1万2经济有3500是杀人拿的
+
+*****
+
+####  thistimeforlife  
+##### 7328#       发表于 2022-8-11 17:54
+
+虽然是泰迪黑，但最辣的我支持冠晴
+
+*****
+
+####  seki_m  
+##### 7329#       发表于 2022-8-11 17:54
+
+ 本帖最后由 seki_m 于 2022-8-11 17:56 编辑 
+
+531264，视野被爆就算了，喂饼干真不是职业选手失格？
+
+*****
+
+####  是挞不是派  
+##### 7330#       发表于 2022-8-11 17:57
+
+别争啦，我是觉得卡卡一票都没比较乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 7331#       发表于 2022-8-11 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022937&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 17:54</a>
+最后一把查理斯的最大问题在哪？
+
+线上被打炸了？秒了doom没大往对面二塔下冲？
+
+这盘RNG整个阵容最重要的就 ...</blockquote>
+这是发动的什么技能，哪里说了最后一把
+
+*****
+
+####  坚定的团子党  
+##### 7332#       发表于 2022-8-11 18:00
+
+万一ana和topson真去t1，然后带着s m kuku夺冠，想想真是画美不看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
