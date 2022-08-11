@@ -10041,3 +10041,47 @@ op永不为奴</blockquote>
 
 反正今年大概率还是没奇迹 无所谓谁赢了
 
+
+
+*****
+
+####  pikamee  
+##### 7163#       发表于 2022-8-11 15:10
+
+没奇迹指的是没有米瑞抠吗
+
+*****
+
+####  Bernoulli  
+##### 7164#       发表于 2022-8-11 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020645&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-11 15:05</a>
+
+这几个队我最支持清茶，玩的很与众不同有乐子，但这不是更鳖孙了
+
+  -- 来自 能搜索的 Stage1官方 iOS客户 ...</blockquote>
+同一俱乐部能TI能去两队？
+
+*****
+
+####  香蕉芭菲  
+##### 7165#       发表于 2022-8-11 15:11
+
+反正我看着觉得你们是在帮lgd做法好吧，好歹还有个新版本呢。
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Lamapocos  
+##### 7166#       发表于 2022-8-11 15:12
+
+量子鞭这个透支模式能不能坚持到ti我暂且蒙古，其他3位赵云个人能力对比去年明现下滑了
+
+*****
+
+####  Cantha  
+##### 7167#       发表于 2022-8-11 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我看官博评论怎么开始拷打官博了
+
