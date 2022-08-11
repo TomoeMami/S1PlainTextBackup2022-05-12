@@ -12384,3 +12384,29 @@ AME也是鳖式一族好吧，缩龟壳是他的天赋。
 
 还是葑茖早有先见之明，不播比赛就不会招惹比赛的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acg_s1  
+##### 7428#       发表于 2022-8-11 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025887&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 21:38</a>
+
+AME也是鳖式一族好吧，缩龟壳是他的天赋。</blockquote>
+他以前不就叫鳖王子吗 在让粉丝失望让黑粉遂愿这点上也是完美继承了鳖鳖<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 7429#       发表于 2022-8-11 21:44
+
+志雷法球也没人叫了，是不是要叫憋憋法球了
+
+*****
+
+####  nightmare902015  
+##### 7430#       发表于 2022-8-11 21:48
+
+冰蛙能不能出个林肯法球的升级道具啊
+

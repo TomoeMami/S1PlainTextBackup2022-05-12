@@ -9412,3 +9412,31 @@ v要皮套丑可不行
 看了下 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">撞水东蛋那次是真搞
 
+
+
+*****
+
+####  cat1230  
+##### 2425#       发表于 2022-8-11 21:42
+
+香哥哥人气度一档好像不大对，应该是打铁人气助攻了香哥哥导致度一档。但中之人5人之间人气除了noko没啥个人活动外，4人人气该怎么排？好像也不好分出高下。没有绝对的高一档的存在，不像虹团，鬼头和灯完全高一档。
+
+*****
+
+####  古战场亡魂  
+##### 2426#       发表于 2022-8-11 21:46
+
+ 本帖最后由 古战场亡魂 于 2022-8-11 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025944&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-11 21:42</a>
+
+香哥哥人气度一档好像不大对，应该是打铁人气助攻了香哥哥导致度一档。但中之人5人之间人气除了noko没啥个 ...</blockquote>
+来，人气啥的，看看价格就明白了。
+
+<img src="https://img.saraba1st.com/forum/202208/11/214621hexgsrfg2gv9gxg6.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220811181457581.jpg</strong> (60.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 21:46 上传
+

@@ -8316,3 +8316,16 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 —— 来自 vivo V1981A, A ...</blockquote>
 剧情里不已经在互相释放斗气就差打起来了吗
 
+
+
+*****
+
+####  khxooo  
+##### 790#       发表于 2022-8-11 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025892&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-11 21:38</a>
+等等今天这剧情，李老头不是说过不能跟年轻的自己见面吗？见面就要打个你死我活
+
+—— 来自 vivo V1981A, A ...</blockquote>
+剧情里都说了，打算下班后就死斗了。
+
