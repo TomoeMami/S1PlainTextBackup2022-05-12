@@ -7800,3 +7800,21 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 我给卑倒是带2030的，是不是理解落后了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 742#       发表于 2022-8-11 11:17
+
+ 本帖最后由 exiaexa 于 2022-8-11 11:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017543&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2022-8-11 11:11</a>
+
+我给卑倒是带2030的，是不是理解落后了不过梅呆带棱镜的理解我还是有的 ...</blockquote>
+卑弥呼我一般是带防御无视或者无敌贯通，她自己集星权重比C阶高，还有技能集星
+
+这组合最烦的就是输出回合对面顶着个无敌
+
+一旦错过又要等两三回合
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

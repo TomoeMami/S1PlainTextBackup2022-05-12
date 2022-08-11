@@ -7079,3 +7079,209 @@ eh出预选挺难的，eh这个队只会打4保1人员配置，23只会打工具
 
 —— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  walfeds  
+##### 6845#       发表于 2022-8-11 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有力证明集美真的是二极管
+
+*****
+
+####  trackerList  
+##### 6846#       发表于 2022-8-11 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017474&amp;ptid=2084957" target="_blank">greenegg 发表于 2022-8-11 11:08</a>
+
+奉劝霉畜尽早开播，别等到这群畜粉给霉畜人缘做完了，直播间几个贵宾都不剩。
+
+怕是别成了第二个简自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">呃呃哪条贱畜更像撸狗野爹，想必全家送塔的集美撸狗自己更清楚吧
+
+*****
+
+####  反方向的波  
+##### 6847#       发表于 2022-8-11 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">要不是我几栋楼都看过了我还真信了平时见不到一到汛期来的瞎子了
+
+*****
+
+####  废都刽子手  
+##### 6848#       发表于 2022-8-11 11:11
+
+NB菠菜队，wings全员撸狗加菠菜，西恩刀圈只有我ob.yyf才是清流，不说了，葑各🐮蔽
+
+*****
+
+####  pikamee  
+##### 6849#       发表于 2022-8-11 11:11
+
+换个角度吹一下王处，当年一脚踢走被事后证明是人均burden的4个前队友，毅然抱上被事后证明是人均赵云的4条大腿
+
+这决断力不值得吹一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6850#       发表于 2022-8-11 11:11
+
+没毛病，ehome也有猴爹。
+
+*****
+
+####  北条早苗  
+##### 6851#       发表于 2022-8-11 11:12
+
+怎么会有人对ehome有希望的，echo大神偶尔能做个人，zeal直接就不当人了
+
+*****
+
+####  CNFH1984  
+##### 6852#       发表于 2022-8-11 11:12
+
+你们都选好了？那我预选无脑看好eh进化。
+
+*****
+
+####  ArowRocher  
+##### 6853#       发表于 2022-8-11 11:12
+
+话说看xnova表演的时候，脑海里总想起fy直播时背景音的maybe：“土豆你能不能做个安静的舔狗不要有自己的想法”
+
+*****
+
+####  蛭人  
+##### 6854#       发表于 2022-8-11 11:12
+
+好呀好呀，放水集美狗也回来了，等于说maybe一滚都出来了是吧？<blockquote>第二把么么鳖没放水我是不信的，不知道冠超有没有后悔当年完美盛典yygq量子鞭。李斯也是个csdx，么么鳖都不想玩了，不报团推非要抓着杀，这会好了。</blockquote>
+
+*****
+
+####  Litccc  
+##### 6855#       发表于 2022-8-11 11:13
+
+感觉清茶也不错，切格瓦拉还挺有想法的，就是狼哥太不稳了
+
+*****
+
+####  CNFH1984  
+##### 6856#       发表于 2022-8-11 11:13
+
+xnova这最后的几把可不是想法不想法的问题啊，是特么舔狗都做不好……操作完全变形了。
+
+*****
+
+####  尸体鲨  
+##### 6857#       发表于 2022-8-11 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016883&amp;ptid=2084957" target="_blank">cody198879 发表于 2022-8-11 10:34</a>
+8年老选手，明星团队的明星选手，带头摆烂，不学不练，努力凑齐最大毒瘤。搞小团体，打的好就是我吊，打的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看刀塔比赛只能当两个人的粉丝？有没有可能正常人是不会想去当某个人的粉丝呢？
+
+*****
+
+####  逃离二次元  
+##### 6858#       发表于 2022-8-11 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017474&amp;ptid=2084957" target="_blank">greenegg 发表于 2022-8-11 11:08</a>
+奉劝霉畜尽早开播，别等到这群畜粉给霉畜人缘做完了，直播间几个贵宾都不剩。
+怕是别成了第二个简自 ...</blockquote>
+骂路副处可以，但撸狗nmsl
+
+*****
+
+####  山上徹也  
+##### 6859#       发表于 2022-8-11 11:15
+
+ame配老og四雄打得过ana配lgd四赵云吗
+
+*****
+
+####  沈淮  
+##### 6860#         楼主| 发表于 2022-8-11 11:15
+
+[https://bbs.saraba1st.com/2b/for ... ;extra=#pid53258946](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2033655&amp;page=1&amp;extra=#pid53258946)  老楼解权限了
+
+*****
+
+####  莉拉厨  
+##### 6861#       发表于 2022-8-11 11:15
+
+小天使今年打完赶紧回东南雅吃菜吧，饼干会打断持续释放都不知道打他么的职业5
+
+*****
+
+####  IG.430  
+##### 6862#       发表于 2022-8-11 11:15
+
+十个人排列组合，哪边有___哪边输
+
+*****
+
+####  asd235614  
+##### 6863#       发表于 2022-8-11 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话有两波团我有点觉得如果冰龙不放那个大可能就打赢了
+
+*****
+
+####  沈淮  
+##### 6864#         楼主| 发表于 2022-8-11 11:18
+
+跟大有啥关系啊，是冰箱，特别是天辉高地下面哪个
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6865#       发表于 2022-8-11 11:18
+
+我觉得冰龙那把直接把大招键从键盘抠掉胜算可能都大点。
+
+*****
+
+####  cody198879  
+##### 6866#       发表于 2022-8-11 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017297&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 10:57</a>
+你说的很对，但是怎么解释ana先知的神奇传送呢 
+
+另外就是大家看到他是ana，下意识就用人而不是畜的 ...</blockquote>
+在这波被抓之前，整个团队都犯错了，拖到对面的强势期，难道不上高是ana自己决定的？被抓之前不是抓了另外的谁谁？
+只扣细节成败，团队节奏的问题完全看不懂，这就是现在的观众的水平？你要团队决策正确，会给lgd冲出来打这波？拆了高回家了兄弟。ame也天天被抓，但是有人帮他托底啊，一个团队游戏是要互相扶持的。
+今天lgd允许ame死10次，但是你ana不行<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  香蕉芭菲  
+##### 6867#       发表于 2022-8-11 11:19
+
+Eh34问题太大了，能过预选只能指望状态爆了。3一直就那样且不说，4的第三赛季对比之前差太远了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  thistimeforlife  
+##### 6868#       发表于 2022-8-11 11:19
+
+冠超冠摆还有仰卧起坐的时候，冠晴绝对堪称这次rng最搞笑的人
+
+*****
+
+####  zhliiiii  
+##### 6869#       发表于 2022-8-11 11:20
+
+开哥 是我
+
+*****
+
+####  asd235614  
+##### 6870#       发表于 2022-8-11 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是TB开了撒旦想反打然后冰龙直接把血魔大了那波
+
