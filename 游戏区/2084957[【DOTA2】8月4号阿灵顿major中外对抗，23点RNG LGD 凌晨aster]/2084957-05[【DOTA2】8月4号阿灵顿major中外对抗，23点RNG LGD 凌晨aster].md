@@ -8909,3 +8909,112 @@ MAJOR乐子都看完了，茶也直邀了，剩下的时间那么阴间没必要
 
 这几天都是六点起床，品一个bo3上班，然后论坛battle一上午就过去了，五点下班回家打4+2到11点品一个bo3睡觉
 
+
+
+*****
+
+####  战狼PTSD  
+##### 7042#       发表于 2022-8-11 13:11
+
+辞职萨特呢，记得写战报
+
+*****
+
+####  沈淮  
+##### 7043#         楼主| 发表于 2022-8-11 13:11
+
+别急，明天给你们整个大的，真的别急
+
+*****
+
+####  聚散浮云  
+##### 7044#       发表于 2022-8-11 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019263&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 13:09</a>
+
+MAJOR乐子都看完了，茶也直邀了，剩下的时间那么阴间没必要看，等切片看摸奈头是不是又脑浆了就行
+
+去年那个 ...</blockquote>
+都用不到去年，前两天那个虚空看过的就很难忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7045#       发表于 2022-8-11 13:12
+
+TS就看能不能前中期带走，collapse的英雄池问题很大的，BP上面茶其实占据优势的，比如电魂就能放出来……
+
+*****
+
+####  Litccc  
+##### 7046#       发表于 2022-8-11 13:13
+
+五点下班？我砍
+
+*****
+
+####  nxmonitor  
+##### 7047#       发表于 2022-8-11 13:14
+
+monet那把虚空真的是让人血压高，确实不可否认对面有冰龙很难打，但也不是一直捏着大招的理由吧，打个控制也好过四个大只大四个人还都没死吧，茶可是有凤凰的……
+
+*****
+
+####  战狼PTSD  
+##### 7048#       发表于 2022-8-11 13:15
+
+五点下班？我砍
+
+*****
+
+####  名字不乱取  
+##### 7049#       发表于 2022-8-11 13:15
+
+rng没了，茶队现在可没人挡子弹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+指望老年人保住状态还有五成胜算，指望杜鹏不耍杂技那是三成都不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cody198879  
+##### 7050#       发表于 2022-8-11 13:18
+
+茶的问题看下来还是4号位5号位能不能更加站出来一点，像皮球有作用的戴泽那把打起来就很不错。
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  masterffzhou  
+##### 7051#       发表于 2022-8-11 13:19
+
+转型鳖茶真爱楼是吧
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 7052#       发表于 2022-8-11 13:19
+
+ts现在也是脑浆队呀
+相信骄阳！
+
+*****
+
+####  DDWarrior  
+##### 7053#       发表于 2022-8-11 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待杜鹏真的还不如期待么么鳖，论犯罪的频率莫奈头可比么么鳖夸张多了。主要还是么么鳖喜欢在决赛日给你整个大的，以及水厂集美等因素造就了现在的情况吧…
+
+*****
+
+####  pikamee  
+##### 7054#       发表于 2022-8-11 13:20
+
+茶这次已经超预期了，接下来连输两场回家也不会有多少讨论
+
+想整个大的应该只有手刃王处或者手刃打王处下去的对手两种可能了
+
