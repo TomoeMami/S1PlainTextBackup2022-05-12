@@ -7578,3 +7578,74 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 这张卡真的是一点屁用都没有
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onemoment  
+##### 722#       发表于 2022-8-11 10:05
+
+本来300石加雷斯3宝了，想冲个5宝留着，结果600石蓝梅5宝，不过没什么用蓝梅的想法啊放库里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 723#       发表于 2022-8-11 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016458&amp;ptid=2084912" target="_blank">onemoment 发表于 2022-8-11 10:05</a>
+
+本来300石加雷斯3宝了，想冲个5宝留着，结果600石蓝梅5宝，不过没什么用蓝梅的想法啊放库里了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD好羡慕欧洲人啊
+
+*****
+
+####  gpx234mqx  
+##### 724#       发表于 2022-8-11 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016219&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-11 09:50</a>
+
+不少卑梅呆的评论都暴露了他们没玩过卑梅呆了……</blockquote>
+哪有这种用法，一群云人
+
+明明是金钻头C呆梅伤害爆炸
+
+*****
+
+####  areklose  
+##### 725#       发表于 2022-8-11 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破楼我快呆不下去了。为啥受伤的总是我，欧的不是我。
+
+*****
+
+####  gpx234mqx  
+##### 726#       发表于 2022-8-11 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016494&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-11 10:07</a>
+
+这破楼我快呆不下去了。为啥受伤的总是我，欧的不是我。</blockquote>
+那么多石头免费的总不能都抽光了吧
+
+我还剩690个呢
+
+*****
+
+####  UNISONIA  
+##### 727#       发表于 2022-8-11 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016487&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-11 10:07</a>
+
+哪有这种用法，一群云人
+
+明明是金钻头C呆梅伤害爆炸</blockquote>
+钻头这种要打色卡的也不是很需要女梅林
+
+*****
+
+####  angelooo  
+##### 728#       发表于 2022-8-11 10:11
+
+<blockquote>UNISONIA 发表于 2022-8-11 09:50
+不少卑梅呆的评论都暴露了他们没玩过卑梅呆了……</blockquote>
+看到一个回复很搞笑，昨天开除红梅，今天开除卑弥呼，明天就该开除C呆了23333
+

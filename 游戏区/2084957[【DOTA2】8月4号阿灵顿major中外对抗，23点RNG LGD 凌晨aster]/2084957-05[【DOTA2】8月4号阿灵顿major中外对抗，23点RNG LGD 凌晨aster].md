@@ -5522,3 +5522,300 @@ ana心态很容易崩的，玩个天梯队友死多了他都想直接开送，�
 
 霉瘪早该死一死了，从他ti9前也发帖挂人号召网爆就该预想到自己有这么一天
 
+
+
+*****
+
+####  逸一死吾亦死  
+##### 6681#       发表于 2022-8-11 10:00
+
+戳啦，发微博挂人
+
+*****
+
+####  沈淮  
+##### 6682#         楼主| 发表于 2022-8-11 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016295&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-11 09:55</a>
+
+开始了开始了</blockquote>
+嗯？我怎么记得第一个major就有人也没出预选赛呢
+
+*****
+
+####  CNFH1984  
+##### 6683#       发表于 2022-8-11 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">AM刚拆分超哥手上还有fy、正常人查理斯、老11、Xnova的时候怎么不说说那个AME在哪啊？
+
+在CDEC摸鱼是吧，也没见他打出来啊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明里暗里吹量子鞭肥宅星和脑浆Y是吧，也行，至少比吹AME好
+
+*****
+
+####  河水  
+##### 6684#       发表于 2022-8-11 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016008&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-11 09:36</a>
+kg和rng，哪个时期的卡神队友更好？</blockquote>
+kg有oc，当然是kg好
+
+*****
+
+####  nowaki  
+##### 6685#       发表于 2022-8-11 10:01
+
+cdec一闪与lgd萧瑟毫无关系，望周知。
+
+*****
+
+####  聚散浮云  
+##### 6686#       发表于 2022-8-11 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016284&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 09:54</a>
+
+我还说了指挥呢啊，而且这个大前提是个稳定磨合训练的队伍，不是四人组排天梯排到ana ...</blockquote>
+谁让他试训了几个队还是mdy呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6687#         楼主| 发表于 2022-8-11 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015936&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 09:29</a>
+
+早该治治midsingle lightone了，偷杰出流量反向优化自己直播间氛围，现在不喝水要买不起上海的婚房 ...</blockquote>
+他不是有宅基地吗，还怕zei个？
+
+*****
+
+####  dclara1  
+##### 6688#       发表于 2022-8-11 10:03
+
+梅黄放着脑11飞飞不组跑去rng，基本就是决心躺平了，烂钱能多吃一波是一波
+
+所以rng成绩其实超过我预期挺多的说实话<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 6689#       发表于 2022-8-11 10:03
+
+直邀前十三已经确定，如果fnc输bc的话，甚至vp就直接直邀了，所以rng是真的没把握住机会
+
+*****
+
+####  沈淮  
+##### 6690#         楼主| 发表于 2022-8-11 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015955&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-11 09:31</a>
+
+xxs刚出道的时候大团控3玩的还不错的什么小牛猛犸，但是自从ti7还是6那个大跳小牛后就不行了 ...</blockquote>
+主要还是因为去打了中单，回不去了
+
+
+
+*****
+
+####  Litccc  
+##### 6691#       发表于 2022-8-11 10:03
+
+没事，集美已经开始岁月史书ti89了，前两天还在小超人嘲讽时光倒流，今天就急不可耐地开始清算了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 6692#       发表于 2022-8-11 10:03
+
+<img src="https://img.saraba1st.com/forum/202208/11/100306dnbrw9qlk9zlbt97.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 10:03 上传
+
+这次汛期有点大了，集美们连OB都敢动手了，真当我们十万小僵尸不存在是吧
+
+*****
+
+####  seki_m  
+##### 6693#       发表于 2022-8-11 10:03
+
+你傻、苏妹儿、超哥，这三人总有点微妙的相似感
+
+*****
+
+####  尸体鲨  
+##### 6694#       发表于 2022-8-11 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来的看点是什么，放下心理负担的茶队能打成什么样？
+焦阳这个比在职业生涯末期中的末期还能打成这个样子，有点东西的啊
+
+*****
+
+####  沈淮  
+##### 6695#         楼主| 发表于 2022-8-11 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015982&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-11 09:33</a>
+
+漏油们直接说说看现在lgd哪个位置不是世界第一吧</blockquote>
+那必然是我a畜了
+
+*****
+
+####  夜光铃  
+##### 6696#       发表于 2022-8-11 10:04
+
+ana要是精神属性不咋地，那ame是…
+
+*****
+
+####  izayoi39  
+##### 6697#       发表于 2022-8-11 10:04
+
+xxs刚出道也是憋憋带着他打节奏的，憋憋有段时间打13互换的，节奏感是比xxs好的
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 6698#       发表于 2022-8-11 10:05
+
+职业中单巅峰期就那么几年，没拿到就没拿到，老年中单不换位置只有坐轮椅的命，从来没有翻盘的
+
+*****
+
+####  walfeds  
+##### 6699#       发表于 2022-8-11 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nisha最大的问题感觉还是被ppy给pua了
+
+*****
+
+####  Cantha  
+##### 6700#       发表于 2022-8-11 10:06
+
+昨天看了几个国服官方发的几个采访视频，丫头肉是不是铁集美
+
+*****
+
+####  哈曼的YY  
+##### 6701#       发表于 2022-8-11 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015981&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 09:33</a>
+
+我看漏油mdy那套黑话都用得很熟嘛，怎么畜就不让用了
+
+反转了，我之前喊他A厨的时候也有几个不让骂的，原 ...</blockquote>
+哦牛逼 畜是mdy发明的？sg是不是要申请下专利？
+
+不是双冠王只能用指定形容词 而是畜只有那两个人 你不是看不懂人话就是想胡搅蛮缠
+
+*****
+
+####  syndrome2032  
+##### 6702#       发表于 2022-8-11 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016431&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 10:03</a>
+这次汛期有点大了，集美们连OB都敢动手了，真当我们十万小僵尸不存在是吧 ...</blockquote>
+nb。ob就是最早的a吹集体也要被集美清算?
+
+*****
+
+####  tontyoutoure  
+##### 6703#       发表于 2022-8-11 10:07
+
+ 本帖最后由 tontyoutoure 于 2022-8-11 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016394&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:01</a>
+
+AM刚拆分超哥手上还有fy、正常人查理斯、老11、Xnova的时候怎么不说说那个AME在哪啊？
+
+在CDEC摸鱼是 ...</blockquote>
+你说的那支LGD是被小刘axx打了2:0的那支LGD吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦看了一下CDEC是1:1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 6704#       发表于 2022-8-11 10:08
+
+<img src="https://img.saraba1st.com/forum/202208/11/100833xfy1ff11sgm99qie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 10:08 上传
+
+二周年纪念日
+
+*****
+
+####  外挂全家脚气  
+##### 6705#       发表于 2022-8-11 10:08
+
+ 本帖最后由 外挂全家脚气 于 2022-8-11 10:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016467&amp;ptid=2084957" target="_blank">Cantha 发表于 2022-8-11 10:06</a>
+
+昨天看了几个国服官方发的几个采访视频，丫头肉是不是铁集美</blockquote>
+按照部分S1er的定性，他这叫做巨魔，因为一个冠军C怎么可能以LGD队内的狗为偶像
+
+*****
+
+####  seki_m  
+##### 6706#       发表于 2022-8-11 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016467&amp;ptid=2084957" target="_blank">Cantha 发表于 2022-8-11 10:06</a>
+
+昨天看了几个国服官方发的几个采访视频，丫头肉是不是铁集美</blockquote>
+集不集美我不知道，铁巨魔是真的
+
+*****
+
+####  syndrome2032  
+##### 6707#       发表于 2022-8-11 10:09
+
+茶应该打不过雪碧。
+
+但是感觉能到前四回家吧。进决赛日不是没戏但是感觉对上透支状态的量子鞭真没啥希望。
+
+*****
+
+####  lyuhiu  
+##### 6708#       发表于 2022-8-11 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016008&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-11 09:36</a>
+
+kg和rng，哪个时期的卡神队友更好？</blockquote>
+kg和rng比好不好不知道，但是kg肯定是最快乐的，全是mdy的人
+
+*****
+
+####  dclara1  
+##### 6709#       发表于 2022-8-11 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016503&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 10:08</a>
+
+二周年纪念日</blockquote>
+古典戏剧美
+
+*****
+
+####  蛭人  
+##### 6710#       发表于 2022-8-11 10:10
+
+如果单凭天使焦那场就鉴定ana心态不行，还有什么天梯不爽就送，这事儿不止ana一个人在干好吧；当过队友ceb和notail也就真视界ceb说过一句，不要影响ana，其他最详细的就只有ana线上不会说什么，要做什么全靠队友自己想，属于自己玩自己的，这充分说明ana需要的是一个懂游戏怎么赢的团队带领，而不是保姆天团好吧，你咋不说ti8ceb一个保姆带四个小孩儿？
+
+*****
+
+####  tontyoutoure  
+##### 6711#       发表于 2022-8-11 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016442&amp;ptid=2084957" target="_blank">夜光铃 发表于 2022-8-11 10:04</a>
+
+ana要是精神属性不咋地，那ame是…</blockquote>
+我感觉他精神没啥问题，就是真的菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
