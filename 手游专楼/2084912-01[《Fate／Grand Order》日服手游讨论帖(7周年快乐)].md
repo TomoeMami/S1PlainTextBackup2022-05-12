@@ -8093,3 +8093,42 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">エリセ太丑，毫无兴趣，虽说抽伊吹的途中肯定会出
 
+
+
+*****
+
+####  qb0079  
+##### 769#       发表于 2022-8-11 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这卖卡商店筛选的bug都一天了还不修复嘛，根本就看不见从者，抽了卡不让卖啊
+
+*****
+
+####  alucardcz  
+##### 770#       发表于 2022-8-11 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025212&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 20:51</a>
+
+话说这卖卡商店筛选的bug都一天了还不修复嘛，根本就看不见从者，抽了卡不让卖啊 ...</blockquote>
+我没遇到啊。
+
+*****
+
+####  保罗赫伯特  
+##### 771#       发表于 2022-8-11 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019753&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-11 13:53</a>
+
+像街机版一样，第一技能是红卡魔放就没那么多废话了吧</blockquote>
+就很奇怪，为啥要从红拐变蓝拐，难道是在暗示旧剑新形态是蓝卡宝具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 772#       发表于 2022-8-11 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025212&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 20:51</a>
+
+话说这卖卡商店筛选的bug都一天了还不修复嘛，根本就看不见从者，抽了卡不让卖啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么没有这BUG 是不是你点了什么忘了改了
+
