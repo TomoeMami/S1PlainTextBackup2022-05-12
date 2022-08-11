@@ -4865,3 +4865,231 @@ xxs刚出道的时候大团控3玩的还不错的什么小牛猛犸，但是自�
 
 一想到lgd要是今年进了决赛日然后暴毙，估计又是一波大的假赛节奏摧毁西恩doto，整个人就要玉玉了
 
+
+
+*****
+
+####  izayoi39  
+##### 6607#       发表于 2022-8-11 09:33
+
+这版本1号位没有23号位那么重要，所以1号位有差距不算什么，这次major蟹腿王的bp其实做得还可以，在bp上已经各种保护自己队伍的弱点了，不然就ori现在对线经常被干穿的状态绝对不会到现在发挥这么亮眼
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 6608#       发表于 2022-8-11 09:33
+
+等军团成为版本答案，一切都会好起来的
+
+*****
+
+####  Horusddt  
+##### 6609#       发表于 2022-8-11 09:33
+
+雪碧打得好，我支持雪碧还不行吗？只求脑东京这次ti也能给点力呀
+
+*****
+
+####  百世诸侯  
+##### 6610#       发表于 2022-8-11 09:33
+
+<img src="https://img.saraba1st.com/forum/202208/11/093326yru2272dggg87y7g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 09:33 上传
+
+*****
+
+####  聚散浮云  
+##### 6611#       发表于 2022-8-11 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015909&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-11 09:27</a>
+
+不用畜就不会骂了？提示下词汇量吧</blockquote>
+我看漏油mdy那套黑话都用得很熟嘛，怎么畜就不让用了
+
+反转了，我之前喊他A厨的时候也有几个不让骂的，原来双冠王只能用指定形容词是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我寻思他ana不就王蠢鱼一个儿子么怎么骂他几句这么多人跳的
+
+*****
+
+####  iriyano  
+##### 6612#       发表于 2022-8-11 09:33
+
+漏油们直接说说看现在lgd哪个位置不是世界第一吧
+
+*****
+
+####  尸体鲨  
+##### 6613#       发表于 2022-8-11 09:35
+
+一定要说吗，我还想留下一点弃暗投明的空间啊
+
+*****
+
+####  漂灵  
+##### 6614#       发表于 2022-8-11 09:35
+
+一号位
+
+*****
+
+####  nowaki  
+##### 6615#       发表于 2022-8-11 09:35
+
+好消息是这比赛表现，ana大概率mdy了吧
+
+*****
+
+####  莉拉厨  
+##### 6616#       发表于 2022-8-11 09:35
+
+LGD严格执行四打一刷战术，茶这边则纯靠24发动节奏，皮球专长冰龙戴泽大树等反手辅助。从这个角度来说茶根本就不是什么低配LGD。
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pikamee  
+##### 6617#       发表于 2022-8-11 09:36
+
+kg和rng，哪个时期的卡神队友更好？
+
+*****
+
+####  syndrome2032  
+##### 6618#       发表于 2022-8-11 09:36
+
+庄进祥不是自认不如nisha吗
+
+*****
+
+####  tontyoutoure  
+##### 6619#       发表于 2022-8-11 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015958&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-11 09:31</a>
+
+一想到lgd要是今年进了决赛日然后暴毙，估计又是一波大的假赛节奏摧毁西恩doto，整个人就要玉玉了 ...</blockquote>
+cndota本来也该自然死亡了，有什么摧毁不摧毁的。
+
+*****
+
+####  ArowRocher  
+##### 6620#       发表于 2022-8-11 09:36
+
+ana怎么会没队要，还不是因为有三个加一起英语过不了A级的波登
+
+*****
+
+####  北条早苗  
+##### 6621#       发表于 2022-8-11 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015982&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-11 09:33</a>
+漏油们直接说说看现在lgd哪个位置不是世界第一吧</blockquote>
+脑浆y吧，感觉不如皮球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6622#       发表于 2022-8-11 09:36
+
+noone肯定算一段时间的412，但是maybeti8拿的两个世界冠军，打液体真没有noone那种感觉。
+
+*****
+
+####  弈秋  
+##### 6623#       发表于 2022-8-11 09:36
+
+可以和topson打兄弟dota吗
+
+*****
+
+####  syndrome2032  
+##### 6624#       发表于 2022-8-11 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015997&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-11 09:35</a>
+好消息是这比赛表现，ana大概率mdy了吧</blockquote>
+我觉得没这比赛表现，ana也一样找不到队。
+
+已经滚蛋talon，ana之前就在那打替补被vote了换泰国人。
+
+*****
+
+####  北条早苗  
+##### 6625#       发表于 2022-8-11 09:37
+
+ti8周期的41中肯定是noone啊，现在gpk虐菜有多无情，当年的noone打谁都是这个效果
+
+*****
+
+####  Keynes  
+##### 6626#       发表于 2022-8-11 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016010&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 09:36</a>
+ cndota本来也该自然死亡了，有什么摧毁不摧毁的。</blockquote>
+那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，我还想多打几年doto，可不想别人一知道我是打dodo就问我“你们职业选手是不是都是打假赛的”
+
+*****
+
+####  Shih0_Matsuri  
+##### 6627#       发表于 2022-8-11 09:38
+
+沙特杯这么牛逼的**现在major没人玩，坏事了，要被v社忘了，major后绝壁更新要忘掉这个怪物，还有熊猫酒仙
+
+*****
+
+####  聚散浮云  
+##### 6628#       发表于 2022-8-11 09:38
+
+难道没人知道ana这个赛季已经被sea和eu几个队来回踢了几次皮球都没人要的么，不是找不到枪了谁找他啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 6629#       发表于 2022-8-11 09:39
+
+给ANA找几个会英文的队友还是能打，RNG从一开始的那个打法就不像是想踢了鬼换ana的样子好吧
+
+*****
+
+####  百世诸侯  
+##### 6630#       发表于 2022-8-11 09:39
+
+ana肯定打不出来了，他不会有那种忘记双冠王身份，把自己当作三线C从头开始磨砺的心劲，Topson倒还有可能，能从挪威杀人狂身上感受到一种纯真原始的dota爱好者魅力
+
+
+
+*****
+
+####  M0kha  
+##### 6631#       发表于 2022-8-11 09:39
+
+也就3能说是世一吧，好歹还有冠
+
+*****
+
+####  反方向的波  
+##### 6632#       发表于 2022-8-11 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你放心，上周我上班偷偷看一小点比赛的时候同事就问我这是不是那个假赛竞技游戏
+
+*****
+
+####  Litccc  
+##### 6633#       发表于 2022-8-11 09:41
+
+上周还在外野看到一个暗示假赛的，好像叫食人魔法师还是什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 6634#       发表于 2022-8-11 09:41
+
+假赛禁忌游戏(指撸狗联盟)
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

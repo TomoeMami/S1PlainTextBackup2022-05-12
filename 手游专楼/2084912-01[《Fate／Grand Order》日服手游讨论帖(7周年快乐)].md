@@ -7506,3 +7506,22 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁太逗了  什么第1回合宝具第2回合打蓝暴    这暴伤就一回合还绑定的蓝放第1回合不开是吧
 
+
+
+*****
+
+####  exiaexa  
+##### 718#       发表于 2022-8-11 09:36
+
+ 本帖最后由 exiaexa 于 2022-8-11 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015832&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 09:22</a>
+
+隔壁太逗了  什么第1回合宝具第2回合打蓝暴    这暴伤就一回合还绑定的蓝放第1回合不开是吧 ...</blockquote>
+云玩家是这样的，现在情况就是魔放不可能不给，连发线死得雅痞，对比C呆还少了30NP率
+
+所以第一回合一定是旧梅+打手二连宝具，不然第二回合运气差点发牌员送你原地出本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他这个想法最合适的应该是T2其中一个C呆换梅林（还是会被发牌员送走）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
