@@ -8398,3 +8398,133 @@ pa
 可别忘了还有bb和navi，奇迹鳖大概率游不出来了</blockquote>
 bb人都不齐了，还bb
 
+
+
+*****
+
+####  健康猹  
+##### 6983#       发表于 2022-8-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018539&amp;ptid=2084957" target="_blank">acalephs 发表于 2022-8-11 12:14</a>
+
+蚌埠住了</blockquote>
+孙哥学了NINE的光法，然后把nine霉出了小组赛
+
+孙哥也是晦气龙
+
+*****
+
+####  蛭人  
+##### 6984#       发表于 2022-8-11 12:21
+
+术士8的冠军被同福双子星的带飞的吧，就算术士8有冠军，也洗不白的。
+
+*****
+
+####  沈淮  
+##### 6985#         楼主| 发表于 2022-8-11 12:22
+
+世1拴狗冠就是术士8不会都忘了吧
+
+*****
+
+####  smkf013  
+##### 6986#       发表于 2022-8-11 12:23
+
+虽然没看过秘密NGM的比赛，但是连这种NAVI和液体都打不过的，还是别进TI了，或者换到美国区，让EG死外面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 6987#       发表于 2022-8-11 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018647&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 12:21</a>
+
+术士8的冠军被同福双子星的带飞的吧，就算术士8有冠军，也洗不白的。</blockquote>
+这话倒也不能这么说。TI4mu肯定是第一大腿，但是TI4 NB没有明显短板，甚至狗哥这个混子都彻底透支了。
+
+*****
+
+####  聚散浮云  
+##### 6988#       发表于 2022-8-11 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016468&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-11 10:06</a>
+
+哦牛逼 畜是mdy发明的？sg是不是要申请下专利？
+
+不是双冠王只能用指定形容词 而是畜只有那两个人 你不是 ...</blockquote>
+你jb谁啊规定了我要听吗
+
+郑畜王畜A畜眉畜我都叫多了，看不惯屏蔽谢谢
+
+*****
+
+####  izayoi39  
+##### 6989#       发表于 2022-8-11 12:25
+
+nts我对他的评价算是中单版塞垃圾，他当初是在eh跟着塞垃圾练出来的所以比赛打法风格很像塞垃圾，整体打法很均横没有非常突出的优点但是也没有特别大的弱点，可以选对线弱的节奏中单也能打纯粹的核心。
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 6990#       发表于 2022-8-11 12:25
+
+这也栓那也栓，漏油想办法人情一下财富自由<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ArowRocher  
+##### 6991#       发表于 2022-8-11 12:27
+
+超哥😭😭，不去新加坡了😭，我们回家😭
+
+*****
+
+####  百世诸侯  
+##### 6992#       发表于 2022-8-11 12:27
+
+这pa是老图还是本子漏了？
+
+*****
+
+####  cody198879  
+##### 6993#       发表于 2022-8-11 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018291&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 11:59</a>
+两拨致命团
+
+一波是中路推进，ana刷完上路刷野区，然后队友脑浆已经被打出来了，ana想传走看到maybe在切 ...</blockquote>
+如果你的2号位把把都是打的不粘锅的局 ，那么你是上还是不上呢？不上万一他没走或者有机会，那么你全锅，上了他溜溜球了你留下了你也全锅。这种时候难道真的要闭麦听歌1v9是不是？
+最搞笑的事情是把整个团队运营的问题扣到中间的某一个人身上，打赢了大家一起666，打输了反正就是你1号位c不动，舆论压力大到爆炸。别老怪ana，回去换了鬼也一样的。团队打的没章法，对面压力给到了就变形，过了20分钟就开始无限野区刷，抓单，对面不打架不会上高。
+优势期还刷的慢，我注意到第一把有个很大问题就是经济虽然比较僵持，但是rng的经验优势一直在被拉大，说明他们的中期运营肯定是有问题的
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 6994#       发表于 2022-8-11 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018728&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 12:27</a>
+
+这pa是老图还是本子漏了？</blockquote>
+fanart
+
+*****
+
+####  战狼PTSD  
+##### 6995#       发表于 2022-8-11 12:29
+
+不要以为没有黄色背景就发现不了在搬运黄色论坛的大便皮套梗
+
+*****
+
+####  沈淮  
+##### 6996#         楼主| 发表于 2022-8-11 12:30
+
+nts的模板是跳刀吧
+

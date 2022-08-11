@@ -7884,3 +7884,16 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 这次的卡雷斯有点像碧蓝之海的妆尸兽<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 749#       发表于 2022-8-11 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017543&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2022-8-11 11:11</a>
+我给卑倒是带2030的，是不是理解落后了不过梅呆带棱镜的理解我还是有的 ...</blockquote>
+你不觉得星星溢出了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我之前国服是双凌镜加月之胜利者的。
+
