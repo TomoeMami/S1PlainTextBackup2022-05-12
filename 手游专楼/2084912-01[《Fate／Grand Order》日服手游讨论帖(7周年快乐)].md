@@ -7926,3 +7926,14 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 居然掉礼装了，再换一张就能满破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 753#       发表于 2022-8-11 15:53
+
+对泳装cba最大的不安是她的职阶，你游五星尺子基本是花活的代名词，搞的好了像卑能在某方面独当一面，搞不好就像教授lily全靠颜值，真的会给个通用大拐吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

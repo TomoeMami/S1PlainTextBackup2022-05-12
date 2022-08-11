@@ -9110,3 +9110,23 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 
 这种事也不算少见了，照片就放那儿人人都能保存并使用。鱼：身高缩了，胸围长了，这就是代价吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 2396#       发表于 2022-8-11 15:57
+
+看星现在这碟的销量上西武还挺难看的，动画播放期新中之人关注数增加数也不太行，二期BD也不搞各店全卷特典曲这种操作了，这是准备完全靠巡演场次来压榨提纯后的粉丝么，我觉得只会加速消耗粉丝的新鲜感。
+
+秋季还有新VR企划，白瞎一开始这手好牌了，打成这烂样。
+
+顺便吐槽下上上周那个新人，旧故事讲不完整，主角这边乱塞人也就算了，对手还塞，一期SP碟也就卖了这么点，这期也不知道怎么卖，不会准备赢一个输一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 2397#       发表于 2022-8-11 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很想说一句好死
+

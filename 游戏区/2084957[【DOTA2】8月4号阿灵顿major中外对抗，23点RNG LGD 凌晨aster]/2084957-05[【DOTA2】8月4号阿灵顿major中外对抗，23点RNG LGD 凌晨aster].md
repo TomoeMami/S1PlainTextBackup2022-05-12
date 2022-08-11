@@ -10353,3 +10353,77 @@ ana topson来工作了</blockquote>
 辞职看TI还差不多，Major什么屌东西[f:24 ...</blockquote>
 什么吃屎，TI10不是熬夜狂喜的体验吗？
 
+
+
+*****
+
+####  zhrs456  
+##### 7195#       发表于 2022-8-11 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021228&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 15:49</a>
+看到漏油们堆楼堆得飞快，就知道两大水厂节奏飞起了。 
+
+辞职看TI还差不多，Major什么屌东西[f:24 ...</blockquote>
+TI10还吃屎？怀疑你的成分
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acejoe  
+##### 7196#       发表于 2022-8-11 15:54
+
+lgd就不是八王摸清这个版本，是这个版本适合lgd，这个lgd除了最开始让ame打几把功能核，效果吊差之后，都是4打1刷，从没变过。
+
+*****
+
+####  syndrome2032  
+##### 7197#       发表于 2022-8-11 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021183&amp;ptid=2084957" target="_blank">RGm 发表于 2022-8-11 15:45</a>
+kuku是t1太子吗？就是不踢。</blockquote>
+经历这么多后唯一能解释的就是t1是ku猴的队，所以只有他踢人没有别人踢他。
+
+*****
+
+####  nowaki  
+##### 7198#       发表于 2022-8-11 15:57
+
+ti10第二天清工作都无比的畅快！
+
+*****
+
+####  walfeds  
+##### 7199#       发表于 2022-8-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021228&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 15:49</a>
+
+看到漏油们堆楼堆得飞快，就知道两大水厂节奏飞起了。 
+
+辞职看TI还差不多，Major什么屌东西[f:24 ...</blockquote><blockquote>相信xiao8
+
+别搞什么科研了，求求你3：0带走夺冠吧
+
+话说LGD夺冠roll个至宝还继续有效~ 看了3年ehome了，从ehome改名到LGD，就期待这一刻~ 
+
+可惜今晚**戈壁忘记了总决赛，约了家人去吃自助餐，回程还得一个小时
+
+快一点我还可以在吃自助餐的时间里面看完3：0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 7200#         楼主| 发表于 2022-8-11 15:59
+
+ti10第二天清工作都无比的畅快！
+
+
+
+*****
+
+####  北条早苗  
+##### 7201#       发表于 2022-8-11 16:00
+
+从ti10胜决到总决第二天早上的回复太欢乐了，翻出来都是拷打漏油
+
