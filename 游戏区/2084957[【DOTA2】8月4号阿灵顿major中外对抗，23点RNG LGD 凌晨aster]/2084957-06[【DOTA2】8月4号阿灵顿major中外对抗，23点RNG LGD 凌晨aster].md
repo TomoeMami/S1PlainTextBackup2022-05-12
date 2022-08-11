@@ -641,3 +641,12 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bishbashbosh  
+##### 7582#       发表于 2022-8-12 01:45
+
+还有k1这种大哥，能把站住线的猛犸赶走的，是我我已经摆了
+
