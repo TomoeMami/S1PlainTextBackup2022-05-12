@@ -8528,3 +8528,84 @@ fanart
 
 nts的模板是跳刀吧
 
+
+
+*****
+
+####  聚散浮云  
+##### 6997#       发表于 2022-8-11 12:32
+
+话说这楼真的有楼管么，刷楼这么快管理员看不见的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6998#         楼主| 发表于 2022-8-11 12:33
+
+有的，8月3号有个人一直在视奸，所以换楼了
+
+*****
+
+####  nowaki  
+##### 6999#       发表于 2022-8-11 12:35
+
+ti4四个队友的作用就是拖过mu没转好cd的时间
+
+*****
+
+####  ArowRocher  
+##### 7000#       发表于 2022-8-11 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018757&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 12:29</a>
+不要以为没有黄色背景就发现不了在搬运黄色论坛的大便皮套梗</blockquote>
+我是在切片人评论区发现的！
+
+*****
+
+####  蛭人  
+##### 7001#       发表于 2022-8-11 12:36
+
+没想到2022年，术士8也不是拴狗冠了，怪不得八王能在集美这儿翻盘啊，大家都差不多啊。
+
+*****
+
+####  沈淮  
+##### 7002#         楼主| 发表于 2022-8-11 12:38
+
+haob还是有点作用的啊，毕竟唯二对线能单杀ti4有你我死的c
+
+*****
+
+####  IG.430  
+##### 7003#       发表于 2022-8-11 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018866&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 12:38</a>
+haob还是有点作用的啊，毕竟唯二对线能单杀ti4有你我死的c</blockquote>
+那么还有一个是谁呢
+
+*****
+
+####  CNFH1984  
+##### 7004#       发表于 2022-8-11 12:39
+
+我觉得不能说面8拴狗冠
+
+因为就这之后的情况来看，剩下几兄弟真不一定有那个智商去拒训……
+
+*****
+
+####  蛭人  
+##### 7005#       发表于 2022-8-11 12:40
+
+这倒是，黑皮，游戏才刚刚开始。
+
+*****
+
+####  沈淮  
+##### 7006#         楼主| 发表于 2022-8-11 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018873&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 12:39</a>
+
+那么还有一个是谁呢</blockquote>
+赛垃圾
+
