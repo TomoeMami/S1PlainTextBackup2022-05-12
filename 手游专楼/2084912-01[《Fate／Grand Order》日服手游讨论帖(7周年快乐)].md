@@ -8132,3 +8132,82 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 话说这卖卡商店筛选的bug都一天了还不修复嘛，根本就看不见从者，抽了卡不让卖啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么没有这BUG 是不是你点了什么忘了改了
 
+
+
+*****
+
+####  qb0079  
+##### 773#       发表于 2022-8-11 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025303&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-11 20:57</a>
+
+我怎么没有这BUG 是不是你点了什么忘了改了</blockquote>
+你看看筛选从者、狗粮、芙芙的选项还在不在
+
+*****
+
+####  qb0079  
+##### 774#       发表于 2022-8-11 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025271&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 20:54</a>
+
+我没遇到啊。</blockquote>
+你看看卖卡商店筛选里从者、芙芙、狗粮的选项还在不在
+
+*****
+
+####  qixinno2  
+##### 775#       发表于 2022-8-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025351&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 21:00</a>
+
+你看看筛选从者、狗粮、芙芙的选项还在不在</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点恢复初期设定之类的都不行么 反正我这还是能正常看到从者的
+
+<img src="https://img.saraba1st.com/forum/202208/11/210229o33dpufzllf3ns13.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 21:02 上传
+
+*****
+
+####  alucardcz  
+##### 776#       发表于 2022-8-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025367&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 21:01</a>
+
+你看看卖卡商店筛选里从者、芙芙、狗粮的选项还在不在</blockquote>
+没有了
+
+但是按回归初期设定就全出来了
+
+*****
+
+####  qixinno2  
+##### 777#       发表于 2022-8-11 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">与其说是BUG不如说是精简成了就剩一个显示从者和显示全部的按钮了吧 
+
+*****
+
+####  qb0079  
+##### 778#       发表于 2022-8-11 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025387&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-11 21:03</a>
+
+点恢复初期设定之类的都不行么 反正我这还是能正常看到从者的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这bug是继承了更新前的筛选状态，所以看贴吧有的人是看不见芙芙，有的人看不见狗粮，有的人看不见从者，如果初始化就会所有东西混在一起，要卖得手动一个个的选中了卖
+
+*****
+
+####  alucardcz  
+##### 779#       发表于 2022-8-11 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025423&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-11 21:06</a>
+
+与其说是BUG不如说是精简成了就剩一个显示从者和显示全部的按钮了吧  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概是bug 因为保管库里有    不过没什么影响就是了
+
