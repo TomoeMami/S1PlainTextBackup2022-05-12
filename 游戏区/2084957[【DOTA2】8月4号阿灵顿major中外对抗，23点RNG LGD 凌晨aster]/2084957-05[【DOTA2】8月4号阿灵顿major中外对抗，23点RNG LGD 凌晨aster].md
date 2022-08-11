@@ -9840,3 +9840,91 @@ g4打完我就蒙头大睡准备装死的
 
 向萧瑟仙贝，投降！向vpgame，投降！向南通水厂，投降！向太后ruru，投降！...
 
+
+
+*****
+
+####  沈淮  
+##### 7141#         楼主| 发表于 2022-8-11 14:51
+
+打死不投降
+
+*****
+
+####  名字不乱取  
+##### 7142#       发表于 2022-8-11 14:51
+
+漏油这个下跪是真的牛阿，本人诚邀其他漏油加入假赛论大军，这样不管结局如何，你楼至少有人能躲过清算<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 7143#       发表于 2022-8-11 14:52
+
+漏油指望女装c还不如指望骄阳ti5suimail蓝猫人柱力上身 把把力中大力 至于女装c就鼠标手附体打好自己就差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  CNFH1984  
+##### 7144#       发表于 2022-8-11 14:52
+
+打死不投降，老子现在就是铁血干瘪和处长黑！
+
+*****
+
+####  nerugigannte  
+##### 7145#       发表于 2022-8-11 14:52
+
+漏油是什么黑话，就几天就跟不上版本了吗
+
+*****
+
+####  windhawind2  
+##### 7146#       发表于 2022-8-11 14:54
+
+漏油指望女装c还不如指望骄阳ti5suimail蓝猫人柱力上身 把把力中大力 至于女装c就鼠标手附体打好自己就差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  逃离二次元  
+##### 7147#       发表于 2022-8-11 14:55
+
+给我站着！不许跪！
+
+*****
+
+####  chilno  
+##### 7148#       发表于 2022-8-11 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020479&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-11 14:52</a>
+
+漏油是什么黑话，就几天就跟不上版本了吗</blockquote>
+楼友
+
+*****
+
+####  walfeds  
+##### 7149#       发表于 2022-8-11 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">op永不为奴
+
+*****
+
+####  CNFH1984  
+##### 7150#       发表于 2022-8-11 14:59
+
+我话放在这儿，老干瘪现在成绩看起来多美妙，多灵性，多勇猛，就会多显得去年和今年会多小丑。
+
+相信处长！
+
+*****
+
+####  阿垃垃圾历  
+##### 7151#       发表于 2022-8-11 14:59
+
+打倒投降派！
+
