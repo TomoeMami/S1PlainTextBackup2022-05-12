@@ -7674,3 +7674,15 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 这旧梅单论性能其实没啥问题啊 无非就是一年用不上几回而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 732#       发表于 2022-8-11 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016806&amp;ptid=2084912" target="_blank">eyeego 发表于 2022-8-11 10:28</a>
+
+这旧梅单论性能其实没啥问题啊 无非就是一年用不上几回而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怀疑是6年前做的
+

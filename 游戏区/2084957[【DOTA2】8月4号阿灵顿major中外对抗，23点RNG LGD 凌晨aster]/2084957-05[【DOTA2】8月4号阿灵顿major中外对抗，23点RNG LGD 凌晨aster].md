@@ -6148,3 +6148,226 @@ ASD，但是当时CDEC都是些什么臭鱼烂虾，一定要这么咬文嚼字�
 
 不出莲花解沉默导致换不出血暴毙，不出羊刀羊对面留不住人被乱秀，不出龙心强袭撑肉吃不住伤害，不出跳刀切入导致位置太差，不出盘子防止被秒，不出输出导致打不死DP。这种一号位赶紧T了。
 
+
+
+*****
+
+####  CNFH1984  
+##### 6750#       发表于 2022-8-11 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016762&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 10:26</a>
+
+群里点草查猪很久了，但在外面大抵是不敢起跳的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">35真得很犯罪，把超哥的火力吸了大一半走（当然今天第一把帕克是真得做到底了
+
+可能这就是兄弟刀塔罢，我哭死！
+
+
+
+*****
+
+####  UnhappyTails  
+##### 6751#       发表于 2022-8-11 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016762&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 10:26</a>
+
+群里点草查猪很久了，但在外面大抵是不敢起跳的</blockquote>
+小尿布群来一个，找到组织了
+
+*****
+
+####  遍体精淋af  
+##### 6752#       发表于 2022-8-11 10:31
+
+来看看超级集美论坛的翻案力度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/941f3745885d0a5e5d06f1636bccea68/CMP_20220811103124751.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 6753#       发表于 2022-8-11 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016823&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 10:30</a>
+
+ASD，但是当时CDEC都是些什么臭鱼烂虾，一定要这么咬文嚼字才能证明ame是个菜逼吗
+
+ ...</blockquote><blockquote>AM刚拆分超哥手上还有fy、正常人查理斯、老11、Xnova的时候怎么不说说那个AME在哪啊？
+
+在CDEC摸鱼是吧，也没见他打出来啊？
+
+明里暗里吹量子鞭肥宅星和脑浆Y是吧，也行，至少比吹AME好</blockquote>
+
+原文一字不改也能回复，行了知道你是铁血EH双雄粉了呀
+
+*****
+
+####  沈淮  
+##### 6754#         楼主| 发表于 2022-8-11 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016827&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 10:30</a>
+
+​这把ANA至少五成锅没啥好说的
+
+不出莲花解沉默导致换不出血暴毙，不出羊刀羊对面留不住人被乱秀，不出龙 ...</blockquote>
+你也别阴阳了，第一盘ana打的本来就不好，跟xnova的冰龙 伯仲之间
+
+*****
+
+####  haruhiismer  
+##### 6755#       发表于 2022-8-11 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016169&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 09:48</a>
+正好回顾下去年底庄进祥锐评当世中单吧；
+
+1.nisha
+
+2.nothingtosay</blockquote>
+卡尔大神这么牛
+
+*****
+
+####  北条早苗  
+##### 6756#       发表于 2022-8-11 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016848&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-11 10:31</a>
+来看看超级集美论坛的翻案力度</blockquote>
+集美是不敢复盘g4g5的，只能拿这场来洗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 6757#       发表于 2022-8-11 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016848&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-11 10:31</a>
+
+来看看超级集美论坛的翻案力度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">等几天注册点马甲屯着，两个月后挖出来，哇！
+
+*****
+
+####  蛭人  
+##### 6758#       发表于 2022-8-11 10:33
+
+ti8在集美眼中已然是，23457坑我ame，假赛梗均为黑子刻意抹黑，一波两极反转。
+
+*****
+
+####  CNFH1984  
+##### 6759#       发表于 2022-8-11 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我要认罪，原来我还相信NGA假赛党里面有睿国森哥说的那种真毁灭派，现在算是看出来了，都TM是铁血姐妹
+
+*****
+
+####  cody198879  
+##### 6760#       发表于 2022-8-11 10:34
+
+8年老选手，明星团队的明星选手，带头摆烂，不学不练，努力凑齐最大毒瘤。搞小团体，打的好就是我吊，打的差就是尽力。外来的打手要100个小心，犯了一点错就是你全锅。创业2年，一直失败。
+就这种人放到职场就是老油子，团队毒瘤，还整天在这吹。
+dota那句话怎么讲，没有成绩，呼吸都是错的。怎么今天没成绩还跳的最高呢？淘汰赛一轮游的嘲讽胜者组的，ti一轮游的嘲讽第4和第2的打的不好。笑出声好吧
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 6761#       发表于 2022-8-11 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016863&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-11 10:33</a>
+卡尔大神这么牛</blockquote>
+因为猴爹对线被karl打爆了，他看不上东京哥也是这个道理
+凭啥我船长线上打爆火猫，他冠军火猫我亚军船长<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 6762#       发表于 2022-8-11 10:35
+
+[https://www.bilibili.com/video/BV1La411P7YC](https://www.bilibili.com/video/BV1La411P7YC)
+
+*****
+
+####  蛭人  
+##### 6763#       发表于 2022-8-11 10:35
+
+8910，这三届ti，9是已经被集美忘记的，ti8这一波ana复出也洗完了，接下来就看ti10了好吧，拭目以待！
+
+*****
+
+####  百世诸侯  
+##### 6764#       发表于 2022-8-11 10:37
+
+NGA太监疑似离了二分法不会说话了，五行缺爹，脖子上没条狗链不舒服，看谁觉得不是集美就是小超人
+
+*****
+
+####  逸一死吾亦死  
+##### 6765#       发表于 2022-8-11 10:38
+
+<blockquote>cody198879 发表于 2022-8-11 10:34
+8年老选手，明星团队的明星选手，带头摆烂，不学不练，努力凑齐最大毒瘤。搞小团体，打的好就是我吊，打的 ...</blockquote>
+嘲讽老干瘪的全是霉瘪粉这种想法推荐去太监论坛，那里更能共情
+
+*****
+
+####  Litccc  
+##### 6766#       发表于 2022-8-11 10:38
+
+ti10前几天就洗过了啊，sg毒狗下lgd赢家破人亡气急败坏，ame施舍集美头子冠军盾传为佳话
+
+*****
+
+####  香蕉芭菲  
+##### 6767#       发表于 2022-8-11 10:38
+
+看了Eg第一把还以为铁晋级了，没想到还是滚蛋了。有谁看了的吗，是eg犯罪了还是对面打的太好。这队那天看打og，给人感觉就是几个绝活打得不错，ban了就没活了，而且团战挺粗糙的
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  名字不乱取  
+##### 6768#       发表于 2022-8-11 10:38
+
+冠超天才中单出道，巅峰无冠，打的职业生涯末期像条狗一样，乐了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 6769#       发表于 2022-8-11 10:39
+
+<img src="https://p.sda1.dev/6/85d78bf4459e6ca0158ece6374e702c0/IMG_20220811_103733.jpg" referrerpolicy="no-referrer">哇，一起开黑的hxd也在清算235啊，集美就在我身边，我都不知道怎么回他了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tontyoutoure  
+##### 6770#       发表于 2022-8-11 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016851&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:32</a>
+
+原文一字不改也能回复，行了知道你是铁血EH双雄粉了呀</blockquote>
+我的意思就是，那支LGD拆成4+1，各自填上臭鱼烂虾——当然了LGD的臭鱼烂虾现在已经没比赛打了CDEC的好歹还有3个能在A级混——最后有一支被axx小刘2:0
+
+*****
+
+####  nowaki  
+##### 6771#       发表于 2022-8-11 10:39
+
+虽然被小刘axx打败的lgd里没有ame，但是被烈火2-1的cdec里真的有ame
+
+*****
+
+####  漂灵  
+##### 6772#       发表于 2022-8-11 10:40
+
+没有LGD我约摸着这两年得有个ti冠军了
+
+*****
+
+####  蛭人  
+##### 6773#       发表于 2022-8-11 10:40
+
+虽然被小刘axx打败的lgd里没有ame，但是被烈火2-1的cdec里真的有ame
+
