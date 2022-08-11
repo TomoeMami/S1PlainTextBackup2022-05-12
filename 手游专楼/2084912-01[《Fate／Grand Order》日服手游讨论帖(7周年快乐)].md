@@ -7852,3 +7852,15 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 否则不如立省990
 
+
+
+*****
+
+####  miro112233  
+##### 746#       发表于 2022-8-11 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018033&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-8-11 11:42</a>
+
+跟剧情没毛线关系的岩窟王突然冒出来莫非这次又是樱井</blockquote>
+这次卡池里4个五星（旧梅，CBA，伊吹，道满）全是樱井卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
