@@ -11655,3 +11655,56 @@ rng除了5最大战犯是包吧，bp的都是什么东西，就一盘3号位敌�
 
 别急，后面还有，看吧，看无止境
 
+
+
+*****
+
+####  Litccc  
+##### 7345#       发表于 2022-8-11 18:24
+
+kuku可是topson仇人，应该不会组队的
+
+*****
+
+####  韬晦  
+##### 7346#       发表于 2022-8-11 18:24
+
+霉鳖真好意思排在13后面接锅？版本热门帕克玩的跟坨屎一样，当年怎么说216的ts的？
+
+*****
+
+####  excalibur--  
+##### 7347#       发表于 2022-8-11 18:25
+
+除了kaka我感觉rng其他人一个都逃不掉
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 7348#       发表于 2022-8-11 18:26
+
+topson好像已经给kuku解封了，之前确实拉黑了。
+
+*****
+
+####  坚定的团子党  
+##### 7349#       发表于 2022-8-11 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023020&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-08-11 18:01:49</a>
+就算ana和topson出来打也不可能是t1的，肯定是欧洲的队
+
+—— 来自 OnePlus KB2000, Android 12上的  v2. ...</blockquote>怎么不可能，ana前段时间不是还试训东南亚战队么？虽然试训没过<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  雅朵莉雀  
+##### 7350#       发表于 2022-8-11 18:29
+
+我印象中T1是不是试训过一次ana？
+
+结果ana没有在选择题里胜过Gabbi，后来去Talon，也没在选择题里赢过23savage
+
