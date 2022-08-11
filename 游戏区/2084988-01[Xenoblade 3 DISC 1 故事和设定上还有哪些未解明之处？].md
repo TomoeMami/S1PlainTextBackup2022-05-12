@@ -1813,3 +1813,53 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 女主是十期后半，所以就剩三个月了
 别的十期又不一定是后半来自: iPhone客户端
 
+
+
+*****
+
+####  whzfjk  
+##### 161#       发表于 2022-8-11 19:53
+
+10 年设定就是高桥为惨而惨，顺便给前期逐渐加点紧张感（虽然为了反衬紧张感让诺亚冷无缺了）。就像 2 代异刃的调谐设定，固定形象性格也是为惨而惨。但无法方方面面都顾及到。
+
+火艾可以认为只有 1 个月马上就要成人了，不急可以脑补成三观问题。剩下的一水设定得比弥央年轻也不是不行，白国男人人均显老。
+
+实际上弥央就是长得偏幼了，实际上是不可想象的年上。
+
+*****
+
+####  whzfjk  
+##### 162#       发表于 2022-8-11 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024119&amp;ptid=2084988" target="_blank">塔奇克马 发表于 2022-8-11 19:36</a>
+
+原来制作组就是Z</blockquote>
+在剧场鼓掌的又是谁<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haixings  
+##### 163#       发表于 2022-8-11 19:57
+
+黑山羊
+
+*****
+
+####  UltramanPain  
+##### 164#       发表于 2022-8-11 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024141&amp;ptid=2084988" target="_blank">Dashuaibi 发表于 2022-08-11 19:38:30</a>
+第七始祖不就是创造了衔尾蛇之石的尼娅吗，还能有其他人的？</blockquote>如果是造了衔尾蛇之石的尼亚，都市还能不知道这个人是谁？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  heseran  
+##### 165#       发表于 2022-8-11 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024335&amp;ptid=2084988" target="_blank">whzfjk 发表于 2022-8-11 19:54</a>
+
+在剧场鼓掌的又是谁</blockquote>
+我觉得是Z具现化出的认同他的人
+
