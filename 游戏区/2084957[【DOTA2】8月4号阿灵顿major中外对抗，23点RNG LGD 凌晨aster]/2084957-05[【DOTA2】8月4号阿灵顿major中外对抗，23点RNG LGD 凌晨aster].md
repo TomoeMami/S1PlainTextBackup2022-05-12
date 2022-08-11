@@ -8016,3 +8016,193 @@ ngm老态龙钟了，除非MC给dota之神献祭了什么东西，不然是这�
 
 另外一波是高台下rng不想那么轻易的放高台眼，poke了对面土猫一波，地形太差了输出打不上去已经在往后拉扯了，结果ana直接飞入人群开始开着bkb打土猫。你要说maybe的大招交的有点草率那确实，但是那波退下来说白了也就是亏一个puck大招而已。ana飞入人群直接送了一个肉山盾。
 
+
+
+*****
+
+####  IG.430  
+##### 6946#       发表于 2022-8-11 12:00
+
+去年lgd要赢的局文爱胖子吃很多经济，拖到后面4比3肥
+
+这俩比赛里的xinq，很典型就是小牛，很早摸到跳之后一口都不要了，经济给bian当大哥，令人感叹
+
+*****
+
+####  ArowRocher  
+##### 6947#       发表于 2022-8-11 12:01
+
+不要以为没有黄色背景就发现不了在搬运大便
+
+*****
+
+####  tontyoutoure  
+##### 6948#       发表于 2022-8-11 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018096&amp;ptid=2084957" target="_blank">cody198879 发表于 2022-8-11 11:47</a>
+
+我说的就是小组赛打lgd啊，不然你还能说哪把。
+
+最后一把打vp的时候已经懒得看了，这个队的关键局一直都是 ...</blockquote>
+就是因为ana曾经在关键局给犯罪的队友擦了屁股（名局spe pl），他才是上帝。现在这样带头犯罪的，去找队友不是，我觉得太难看了。
+
+*****
+
+####  战狼PTSD  
+##### 6949#       发表于 2022-8-11 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">仙贝补水集锦也是大便！别的大便也是命！
+
+*****
+
+####  M0kha  
+##### 6950#       发表于 2022-8-11 12:03
+
+哈哈漏油为了反处长现在都开始指望莫奈了，真绝望啊
+
+*****
+
+####  walfeds  
+##### 6951#       发表于 2022-8-11 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018232&amp;ptid=2084957" target="_blank">Cantha 发表于 2022-8-11 11:56</a>
+
+大家好，我是RNG领队，在刚刚对战Outsiders的比赛中，队伍五名成员发挥的不是很好，我们在复盘总结，刀友们 ...</blockquote>
+好呀好呀，666代言kfc你去吃，肯定被对面收买了吧
+
+*****
+
+####  尸体鲨  
+##### 6952#       发表于 2022-8-11 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018349&amp;ptid=2084957" target="_blank">M0kha 发表于 2022-8-11 12:03</a>
+哈哈漏油为了反处长现在都开始指望莫奈了，真绝望啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是脑浆型一号位，楼友相信焦阳比莫言厉害不过分！
+
+*****
+
+####  外挂全家脚气  
+##### 6953#       发表于 2022-8-11 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018281&amp;ptid=2084957" target="_blank">nomhrpls 发表于 2022-8-11 11:59</a>
+
+ngm entity 秘密 液体 4进3谁都不稳。
+
+entity我比较看好他们的那个C
+
+液体在欧洲区发挥还算稳定的， ...</blockquote>
+看到有人说瑞士鲁迅是只要一签合同进组就开摆，这便是他为什么当枪超级猛却一直没队的原因，不知道真的假的
+
+*****
+
+####  战狼PTSD  
+##### 6954#       发表于 2022-8-11 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018308&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 12:00</a>
+
+去年lgd要赢的局文爱胖子吃很多经济，拖到后面4比3肥
+
+这俩比赛里的xinq，很典型就是小牛，很早摸到跳之后 ...</blockquote>
+大鞭哥去年都在打工具人，今年早点领悟当自己的赵云才是正道
+
+集美总爱吹仙贝经济高是冒风险刷对面野区来的，问题打四保一还去风险野区刷不是铁脑瘫，三角区不能刷是吧，现在给3当大哥打倒是适合了
+
+*****
+
+####  山上徹也  
+##### 6955#       发表于 2022-8-11 12:05
+
+ 本帖最后由 山上徹也 于 2022-8-11 12:07 编辑 
+
+淘汰赛夜魇胜率88.89%，打你吗
+
+*****
+
+####  CNFH1984  
+##### 6956#       发表于 2022-8-11 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">最后瑞平一下处长最后的遮羞布保险杠猴子爹NTS。NTS可以说是这个队伍里面唯一一个纯白人物了，不论是态度，天分，技巧都算得上一时之雄。
+
+但是NTS并不是跳跳那样真正横压一世的人物，去年TI我记得哪里有说这人紧张到拿自己绝活TK都不敢拿了还是毒狗8硬给他拿的（那一把倒也赢了，可见心态上很有点虾之国传统的小问题。
+
+但是无伤大雅罢。
+
+我还是挺看好就算这支老干瘪谢幕，NTS也能在某个地方打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 6957#       发表于 2022-8-11 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018404&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-11 12:05</a>
+淘汰赛夜魇胜率88.89%，打你吗</blockquote>
+大概率是BP先后手的问题
+
+*****
+
+####  ArowRocher  
+##### 6958#       发表于 2022-8-11 12:07
+
+搬一波完美的战报吧，这文案最近挺火的，但是漏油明显更喜欢兄弟论坛
+
+M69H9CH[QFS[Z~9WHLM8W@P.jpg
+(655.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 12:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/120723z99alcjyj9azlef9.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  w2210059  
+##### 6959#       发表于 2022-8-11 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018291&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 11:59</a>
+
+两拨致命团
+
+一波是中路推进，ana刷完上路刷野区，然后队友脑浆已经被打出来了，ana想传走看到maybe在切 ...</blockquote>
+明白了，上帝太在意梅黄，看到梅黄开打就上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6960#         楼主| 发表于 2022-8-11 12:08
+
+nts跟以前的 afu xnova都处于自己的适应性版本，等圣水符没了地图改了才能评价他以后
+
+
+
+*****
+
+####  CNFH1984  
+##### 6961#       发表于 2022-8-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018349&amp;ptid=2084957" target="_blank">M0kha 发表于 2022-8-11 12:03</a>
+
+哈哈漏油为了反处长现在都开始指望莫奈了，真绝望啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一个都不指望，我看除非是EH集体进化，要不然这届TI多半还要看处长在TI巅峰决赛上倒立拉屎，被刀塔之神神罚
+
+*****
+
+####  很久就在那边l  
+##### 6962#       发表于 2022-8-11 12:08
+
+感觉不如福州大学。。标题
+
+*****
+
+####  蛭人  
+##### 6963#       发表于 2022-8-11 12:09
+
+度假社还行不行了啊，版本不更新，真视界不出，搞几把啊。
+
+*****
+
+####  外挂全家脚气  
+##### 6964#       发表于 2022-8-11 12:09
+
+喷了，看到说是RNG的隔壁粉丝群在喷这边，说丢他们的脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
