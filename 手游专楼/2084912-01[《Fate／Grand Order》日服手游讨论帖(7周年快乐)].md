@@ -8070,3 +8070,26 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试用感觉还挺强的，而且我还没有金钻头，可惜和伊吹一个池子，等抽完斯卡蒂看看有没余粮吧
 
+
+
+*****
+
+####  angelooo  
+##### 766#       发表于 2022-8-11 20:36
+
+这两个池子我都要抽的，毫无畏惧.jpg
+
+*****
+
+####  qixinno2  
+##### 767#       发表于 2022-8-11 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有石头全部随缘
+
+*****
+
+####  黑上シグマ  
+##### 768#       发表于 2022-8-11 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">エリセ太丑，毫无兴趣，虽说抽伊吹的途中肯定会出
+
