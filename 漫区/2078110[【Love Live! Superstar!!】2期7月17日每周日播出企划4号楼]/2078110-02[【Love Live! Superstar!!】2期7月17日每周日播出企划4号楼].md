@@ -9140,3 +9140,14 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 毕竟运营大聪明，这种结果肯定也是预料之中吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 LL这边全当个跳板，五老星赶紧发展个人事业才是正解
 
+
+
+*****
+
+####  ads147147  
+##### 2399#       发表于 2022-8-11 16:18
+
+谁能想到拉拉才多少年就变成这样了。只能说高层内斗好死。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10559,3 +10559,82 @@ echo和shiro其实年纪都不大，可惜目前来看还很需要锻炼
 莉娜玛茜复活了，速看</blockquote>
 好好好
 
+
+
+*****
+
+####  夜光铃  
+##### 7216#       发表于 2022-8-11 16:12
+
+没事的，别看现在骂的凶，其实都是在反奶，今年lgd要是ti夺冠了，你们一个个瞬间就撕下皮套化身二十年集美
+
+*****
+
+####  战狼PTSD  
+##### 7217#       发表于 2022-8-11 16:12
+
+哇兄弟们对自己人真是狠啊
+
+*****
+
+####  夜光铃  
+##### 7218#       发表于 2022-8-11 16:12
+
+我算看懂你们了…
+
+*****
+
+####  名字不乱取  
+##### 7219#       发表于 2022-8-11 16:15
+
+造谣，窝绝卜投降，要投也是投假赛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 7220#       发表于 2022-8-11 16:16
+
+我看好这个major的亚军队
+
+*****
+
+####  逃离二次元  
+##### 7221#       发表于 2022-8-11 16:17
+
+还好我是新参<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7222#       发表于 2022-8-11 16:17
+
+那冰龙被龙骑士骑了么
+
+*****
+
+####  walfeds  
+##### 7223#       发表于 2022-8-11 16:17
+
+真不是清算，希望大家不要忘记去年的感动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 7224#       发表于 2022-8-11 16:17
+
+马西复活了？那小本子岂不是可以出马西身心了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 7225#       发表于 2022-8-11 16:19
+
+他战胜了自己，他爱萧瑟<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 7226#       发表于 2022-8-11 16:20
+
+我看好天辉方勇夺ti11冠军，最近夜魇胜率太高了。
+
