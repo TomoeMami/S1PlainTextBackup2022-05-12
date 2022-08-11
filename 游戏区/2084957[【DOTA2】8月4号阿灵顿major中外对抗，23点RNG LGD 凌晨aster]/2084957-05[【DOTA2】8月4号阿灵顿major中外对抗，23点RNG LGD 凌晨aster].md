@@ -10638,3 +10638,66 @@ echo和shiro其实年纪都不大，可惜目前来看还很需要锻炼
 
 我看好天辉方勇夺ti11冠军，最近夜魇胜率太高了。
 
+
+
+*****
+
+####  遍体精淋af  
+##### 7227#       发表于 2022-8-11 16:23
+
+桶哥落泪.jpg辛辛苦苦打了一年，结果倒在临门一脚<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+去年zai处长胜决嗯吃刷新碎片送lgd亚军，今年到了液体还是逃离不了zai处长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/9832294eca68871b23ace6cd7999d536/CMP_20220811161930320.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7228#       发表于 2022-8-11 16:23
+
+希望皮套畜狠狠吸干处长，最好ti期间巨婴搞他心态，算算日子也该发病了
+
+*****
+
+####  nowaki  
+##### 7229#       发表于 2022-8-11 16:25
+
+如果a畜勇夺冠军，我给vtb打sc痛哭流涕，从此隐藏自己傻狗的身份，尘世间的dota再与我无半分关系。
+
+*****
+
+####  战狼PTSD  
+##### 7230#       发表于 2022-8-11 16:28
+
+<img src="https://img.saraba1st.com/forum/202208/11/162829g2zwiwwdwuywsu3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 16:28 上传
+
+说吧，是楼里的哪个傻狗
+
+
+
+*****
+
+####  12481632  
+##### 7231#       发表于 2022-8-11 16:30
+
+那我先去皮套人那里挂个高等级牌子出来把盾套好了，真清算了请放过我<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 7232#       发表于 2022-8-11 16:30
+
+马桶哥快离开这个液体吧，四个瑞典人就他一个芬兰人，找杰瑞克斯当教练也没用啊，连续两个线下赛一轮游。
+
+*****
+
+####  弈秋  
+##### 7233#       发表于 2022-8-11 16:30
+
+草，有点乐
+

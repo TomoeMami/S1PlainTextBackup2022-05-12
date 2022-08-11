@@ -9151,3 +9151,21 @@ LL这边全当个跳板，五老星赶紧发展个人事业才是正解
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 2400#       发表于 2022-8-11 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一V形势大好它企划肯定不会觉得自己有什么问题，星就尴尬了，要不放养吧，经典放了活抓了死
+
+
+
+*****
+
+####  老1.5  
+##### 2401#       发表于 2022-8-11 16:28
+
+当跳板才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

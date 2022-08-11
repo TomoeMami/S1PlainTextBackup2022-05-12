@@ -7937,3 +7937,15 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  alucardcz  
+##### 754#       发表于 2022-8-11 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021275&amp;ptid=2084912" target="_blank">風卷豹 发表于 2022-8-11 15:53</a>
+
+对泳装cba最大的不安是她的职阶，你游五星尺子基本是花活的代名词，搞的好了像卑能在某方面独当一面，搞不 ...</blockquote>
+我觉得在泳装活动想要通用大拐 本身就有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
