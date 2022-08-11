@@ -7978,3 +7978,13 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 仇绘里濑好像不弱啊，宝具是蓝卡UP+诅咒特攻，一技能等同于水伽摩一技能；二技能是寄予对方全体诅咒且自 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不是有自充么
 
+
+
+*****
+
+####  exiaexa  
+##### 757#       发表于 2022-8-11 18:37
+
+上场太难了，竞争对象是开了宝具本的金钻头
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
