@@ -11901,3 +11901,38 @@ rng高概率就是和小象一样了。
 
 跌跌撞撞抢到预选门票。然后突然崩盘。
 
+
+
+*****
+
+####  ArowRocher  
+##### 7373#       发表于 2022-8-11 19:00
+
+那可真是浪费了查理斯的直播天赋
+
+*****
+
+####  tasuku  
+##### 7374#       发表于 2022-8-11 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023636&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 18:55</a>
+
+去年挖了SUPER谢俊豪，今年把SUPER苏鹏和跳刀挖了吧</blockquote>
+要不再挖个张明璐凑三个super吧
+
+*****
+
+####  walfeds  
+##### 7375#       发表于 2022-8-11 19:05
+
+今天看前象拔蚌锐评又是一支小象
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 7376#       发表于 2022-8-11 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">窝感觉让你滚真正的阳痿还是从被ngm在第一局爆炒开始的，几个人回想起了线下赛尿裤是怎么样的感觉
+
