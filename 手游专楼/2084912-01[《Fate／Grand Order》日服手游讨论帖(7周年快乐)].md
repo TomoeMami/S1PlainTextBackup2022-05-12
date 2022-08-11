@@ -7665,3 +7665,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 这旧梅的性能让我对后两个泳装五星强度很悲观啊
 
+
+
+*****
+
+####  eyeego  
+##### 731#       发表于 2022-8-11 10:28
+
+这旧梅单论性能其实没啥问题啊 无非就是一年用不上几回而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

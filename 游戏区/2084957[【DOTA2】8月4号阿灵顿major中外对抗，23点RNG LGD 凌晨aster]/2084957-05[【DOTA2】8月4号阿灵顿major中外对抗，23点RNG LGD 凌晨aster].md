@@ -5998,3 +5998,153 @@ MDY开战杰出了？集美也不装了啊，直接对MDY开炮。
 
 巨魔逆风要当儿子吗，我还以为是顺风当爹逆风当太监呢
 
+
+
+*****
+
+####  沈淮  
+##### 6733#         楼主| 发表于 2022-8-11 10:21
+
+ti8的og真的很励志好吧，特别是notail，被绿被兄弟出卖，然后铁血复仇最后夺冠，可惜那赛季我只关注vg。
+
+不然我做个op整体看完ti8应该是挺爽的
+
+*****
+
+####  蛭人  
+##### 6734#       发表于 2022-8-11 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016650&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-11 10:19</a>
+
+上帝导师那会是打完ti7被踢了，沦落到sea区打酱油摆烂，要不是宇智波fly助攻人就没了 ...</blockquote>
+可能ceb他们挺喜欢ana这种人的，新OG三大哥就评价过，让他想起了ana，我寻思你是真的牛逼啊，找了三个ana来是吧，一个ana四个队友还能适应他，三个ana另外两个队友但凡不懂这仨的意思妥妥白送啊。
+
+*****
+
+####  CNFH1984  
+##### 6735#       发表于 2022-8-11 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016496&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 10:07</a>
+
+你说的那支LGD是被小刘axx打了2:0的那支LGD吗
+
+哦看了一下CDEC是1:1
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">被小刘axx干掉的LGD是谁打的12啊，我记得没老十一罢
+
+*****
+
+####  反方向的波  
+##### 6736#       发表于 2022-8-11 10:25
+
+小尿布真的毫无战斗力，卡🐢五连直邀被断了怎么没人提一句
+
+*****
+
+####  walfeds  
+##### 6737#       发表于 2022-8-11 10:25
+
+感觉鸭头肉如果真懂中文的话很难不是傻狗/泥潭用户
+
+*****
+
+####  反方向的波  
+##### 6738#       发表于 2022-8-11 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016727&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:24</a>
+被小刘axx干掉的LGD是谁打的12啊，我记得没老十一罢</blockquote>
+我记得好像是霉鳖1鹿乃2
+
+*****
+
+####  天堂蜘蛛  
+##### 6739#       发表于 2022-8-11 10:25
+
+霉畜打的1,2号位估计是xm吧
+
+*****
+
+####  天堂蜘蛛  
+##### 6740#       发表于 2022-8-11 10:26
+
+哦对二号位是鹿乃，打完没多久鹿乃光速被踢，想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 6741#       发表于 2022-8-11 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016740&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 10:25</a>
+小尿布真的毫无战斗力，卡🐢五连直邀被断了怎么没人提一句</blockquote>
+群里点草查猪很久了，但在外面大抵是不敢起跳的
+
+*****
+
+####  omoito  
+##### 6742#       发表于 2022-8-11 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016689&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 10:21</a>
+
+ti8的og真的很励志好吧，特别是notail，被绿被兄弟出卖，然后铁血复仇最后夺冠，可惜那赛季我只关注vg。
+
+ ...</blockquote>
+ti8不管是大爹赢还是西恩赢我都爽爆<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 6743#       发表于 2022-8-11 10:26
+
+昨天看sg说小人直播说谭雅是毒狗，有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6744#       发表于 2022-8-11 10:27
+
+以前好像国外有几个解说还知道sgamer，现在好像没听几个人说过了。
+
+*****
+
+####  IG.430  
+##### 6745#       发表于 2022-8-11 10:27
+
+yyfyyf。com高分演员群里的截图里有鹿乃的名字，我不好说是不是同一个人
+
+*****
+
+####  w2210059  
+##### 6746#       发表于 2022-8-11 10:29
+
+丫头肉的那个采访不是上来就把之一删了变成ame历史第一c了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 6747#       发表于 2022-8-11 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016744&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 10:25</a>
+
+我记得好像是霉鳖1鹿乃2</blockquote>
+记起来了，脑北京巴图鲁的脑浆剑圣，还有鹿乃不服输点出来的奇怪地卜师，好呀好呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tontyoutoure  
+##### 6748#       发表于 2022-8-11 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016727&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:24</a>
+
+被小刘axx干掉的LGD是谁打的12啊，我记得没老十一罢</blockquote>
+ASD，但是当时CDEC都是些什么臭鱼烂虾，一定要这么咬文嚼字才能证明ame是个菜逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 6749#       发表于 2022-8-11 10:30
+
+ ​这把ANA至少五成锅没啥好说的
+
+不出莲花解沉默导致换不出血暴毙，不出羊刀羊对面留不住人被乱秀，不出龙心强袭撑肉吃不住伤害，不出跳刀切入导致位置太差，不出盘子防止被秒，不出输出导致打不死DP。这种一号位赶紧T了。
+
