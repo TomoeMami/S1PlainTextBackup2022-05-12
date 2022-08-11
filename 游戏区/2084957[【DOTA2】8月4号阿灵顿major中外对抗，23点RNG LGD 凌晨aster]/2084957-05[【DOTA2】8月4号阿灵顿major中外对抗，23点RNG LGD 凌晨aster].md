@@ -1245,3 +1245,349 @@ rng还是别打四保一阵容了，老老实实选打架阵容肌肉dota干干�
 
 roshan团推进去送，前面夜魇野区那波团他但凡有个撒旦解沉默都是无敌的
 
+
+
+*****
+
+####  恐怖利刃  
+##### 6163#       发表于 2022-8-11 08:02
+
+写轮眼一把vp第一把阵容也可以
+
+*****
+
+####  acejoe  
+##### 6164#       发表于 2022-8-11 08:02
+
+有没有可能小象时代拒绝鱼的原因是冠超？
+
+*****
+
+####  莉拉厨  
+##### 6165#       发表于 2022-8-11 08:03
+
+加油加油，还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 6166#       发表于 2022-8-11 08:03
+
+屠夫ban没ban来着？
+
+*****
+
+####  反方向的波  
+##### 6167#       发表于 2022-8-11 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">这把bp完卜是就输了么，你们也能吵起来，这几人驾驶这几个英雄的能力你们应该都知道啊
+
+*****
+
+####  百世诸侯  
+##### 6168#       发表于 2022-8-11 08:03
+
+厨子这把TB虽然环境差，但自己思路也是脑浆，出装就不说了，下路符点那波走位，肉山团那波满血换满血总不能是脑控他玩的吧？老老实实选个刚背兽算了
+
+*****
+
+####  沈淮  
+##### 6169#         楼主| 发表于 2022-8-11 08:03
+
+昨天洗ori今天洗拒绝者，明天估计要洗a畜了，ti10没夺冠是因为霉毒爆发
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6170#       发表于 2022-8-11 08:03
+
+我到现在也没想通为什么油面当时会选择要去跟超哥打gg
+
+*****
+
+####  逃离二次元  
+##### 6171#       发表于 2022-8-11 08:04
+
+昨天洗ori今天洗拒绝者，明天估计要洗a畜了，ti10没夺冠是因为霉毒爆发
+
+*****
+
+####  恐怖利刃  
+##### 6172#       发表于 2022-8-11 08:04
+
+小象只能说是真·三五太菜
+
+*****
+
+####  hcf220  
+##### 6173#       发表于 2022-8-11 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014574&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-8-11 07:54</a>
+tb应该早出撒旦刷新的，mkb大推推都没啥用</blockquote>
+出这没啥用，maybe那帮人根本就不拿厨子当自己人。大核各种没人保，经常是maybe带几个人干别人小部队，然后ana带着个坑比冰龙被别人大部队干，真是不懂帕克这种英雄有什么资格不管大哥。
+
+其实最优秀开团方式是土猫滚到能杀的人身上，然后踢到tb旁边，然后其他人交控制秒人。其次就是优势出团队装推，别人抓就冰龙or帕克大，推走tb再开团
+
+看的好气，这队前30分钟不能大优往后就是折磨
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cody198879  
+##### 6174#       发表于 2022-8-11 08:04
+
+得了吧，反正我rng打的不好，你们集美也不能说。建议再换c，双冠也带不动235呢。
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  haruhiismer  
+##### 6175#       发表于 2022-8-11 08:04
+
+为了洗ana必须黑may皇呀不然锅谁背
+
+*****
+
+####  百世诸侯  
+##### 6176#       发表于 2022-8-11 08:06
+
+楼里都在骂RNG，不知道楼上怎么就突然跟NGA太监一样发疯了
+
+*****
+
+####  沈淮  
+##### 6177#         楼主| 发表于 2022-8-11 08:06
+
+太监是这样的
+
+*****
+
+####  阿垃垃圾历  
+##### 6178#       发表于 2022-8-11 08:06
+
+加油加油 还有一把 
+
+*****
+
+####  遗尿  
+##### 6179#       发表于 2022-8-11 08:07
+
+说起来明明索尼赞助了，结果比赛用明基的显示器。
+
+*****
+
+####  5678给  
+##### 6180#       发表于 2022-8-11 08:07
+
+集美是这样的
+
+
+
+*****
+
+####  一品堂官  
+##### 6181#       发表于 2022-8-11 08:07
+
+让二追一有么，除非究极克制能不能别选呆逼大核。大后期沟通不起来的。
+
+*****
+
+####  莉拉厨  
+##### 6182#       发表于 2022-8-11 08:07
+
+真就复制上把对面阵容啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 6183#       发表于 2022-8-11 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014691&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 08:06</a>
+
+楼里都在骂RNG，不知道楼上怎么就突然跟NGA太监一样发疯了</blockquote>
+可能是小泰迪
+
+*****
+
+####  hcf220  
+##### 6184#       发表于 2022-8-11 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014662&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 08:03</a>
+这把bp完卜是就输了么，你们也能吵起来，这几人驾驶这几个英雄的能力你们应该都知道啊 ...</blockquote>
+打到三十分钟以后真不一定 冰龙tb帕克后期还是挺扎实的
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 6185#       发表于 2022-8-11 08:08
+
+ 本帖最后由 雅朵莉雀 于 2022-8-11 08:09 编辑 
+
+puck怎么护TB，对面DP跟血魔开着BKB刚TB脸，puck上去帮TB挨揍？
+
+puck的任务不是去断后排酱油？霉皇没做到？
+
+这盘黑霉皇就没道理，顶多黑他不出林肯高地上被gpk羊刀秒了
+
+那时候法系小小成型TB见光死，他真是出啥都没用了
+
+*****
+
+####  AkaiSuisei  
+##### 6186#       发表于 2022-8-11 08:08
+
+顺便，小天使能不能别nm玩jb冰龙了，还前两手选，还不如玩神谕
+
+*****
+
+####  山上徹也  
+##### 6187#       发表于 2022-8-11 08:09
+
+rng小小好像还没输过？
+
+*****
+
+####  ArowRocher  
+##### 6188#       发表于 2022-8-11 08:09
+
+超哥，想玩什么点什么吧，别委屈自己<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 6189#       发表于 2022-8-11 08:09
+
+我觉得ANA也不存在什么洗不洗的
+
+他就是来当枪的，打的好仁至义尽，打的烂理所当然
+
+但是你要个交流有问题的枪手来打绝对核心英雄，我不好评价<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 6190#       发表于 2022-8-11 08:09
+
+这把建议黑俊豪（dota2教练），点出个这样子的阵容真是没救了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6191#       发表于 2022-8-11 08:09
+
+说出啥都没用的就过分了，这上帝肉山团把自己推到vp身边去总不能是队友按着他的手推的吧？把这副作用推推换成撒旦打正面解陈默不好么？
+
+*****
+
+####  Litccc  
+##### 6192#       发表于 2022-8-11 08:09
+
+老北京选puck还是挺明智的，不容易死又能打输出，起码输了不用背锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6193#         楼主| 发表于 2022-8-11 08:09
+
+super: bp没问题
+
+*****
+
+####  白野苍衣  
+##### 6194#       发表于 2022-8-11 08:09
+
+什么宇智波俊豪，真就复制上把对面的阵容。
+
+*****
+
+####  AkaiSuisei  
+##### 6195#       发表于 2022-8-11 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014708&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-10 20:08</a>
+
+puck怎么护TB，对面DP跟血魔开着BKB刚TB脸，puck上去帮TB挨揍？
+
+puck的任务不是去断后排酱油？霉皇没做到？ ...</blockquote>
+这把帕克想护tb只能出大吹风
+
+*****
+
+####  反方向的波  
+##### 6196#       发表于 2022-8-11 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014707&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-11 08:08</a>
+打到三十分钟以后真不一定 冰龙tb帕克后期还是挺扎实的
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">可是小天屎的冰龙从去年ehomo时期的时候就是场上自动少一个人，甚至大概50%的局还是能让对面多一人的
+
+*****
+
+####  百世诸侯  
+##### 6197#       发表于 2022-8-11 08:10
+
+俊豪（dota2教练）本意是好的，队员执行的时候打歪了
+
+*****
+
+####  锯子万藏  
+##### 6198#       发表于 2022-8-11 08:10
+
+哎，说真的，rng这个问题就是没有赢的画面
+
+都每次其实开的不错了，接着就是ana和其他人脱节。
+
+冰龙这玩意，那时候能做的选择不多，是很容易内奸的。
+
+*****
+
+####  外挂全家脚气  
+##### 6199#       发表于 2022-8-11 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57014707&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-11 08:08</a>
+
+打到三十分钟以后真不一定 冰龙tb帕克后期还是挺扎实的
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Ne ...</blockquote>
+除非是XNOVA的冰龙，妥妥VP.XNOVA
+
+*****
+
+####  蛭人  
+##### 6200#       发表于 2022-8-11 08:11
+
+去看了下回放，冰龙打团不是在排眼就是在清小兵，这英雄还是别选了，不如给ana选肉核让他自己玩，另外RNG四兄弟抱团玩。
+
+*****
+
+####  修罗王  
+##### 6201#       发表于 2022-8-11 08:11
+
+<blockquote>hcf220 发表于 2022-8-11 08:04
+出这没啥用，maybe那帮人根本就不拿厨子当自己人。大核各种没人保，经常是maybe带几个人干别人小部队，然 ...</blockquote>
+这阵容哪来的硬控，人家开出bkb，mkb的tb和撒旦tb输出有区别吗
+
+*****
+
+####  逃离二次元  
+##### 6202#       发表于 2022-8-11 08:11
+
+放心，老北京总会背安上一个罪名的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 6203#       发表于 2022-8-11 08:12
+
+rng几把大优不胜了，有人统计了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
