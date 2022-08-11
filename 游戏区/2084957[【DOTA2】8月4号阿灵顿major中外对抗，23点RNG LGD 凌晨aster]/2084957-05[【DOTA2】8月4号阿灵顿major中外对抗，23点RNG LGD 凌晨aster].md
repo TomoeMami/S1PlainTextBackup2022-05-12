@@ -4315,3 +4315,278 @@ RNG 茶队上限八强，LGD大概率决赛日再当一次背景板。
 
 外卡12进2就两个名额，我不觉得CN队能蹭到一个，西欧东欧东南亚都有有竞争力的队伍
 
+
+
+*****
+
+####  5678给  
+##### 6543#       发表于 2022-8-11 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015612&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 09:09</a>
+狗头人fy粉丝，早八百年就要被清算了</blockquote>
+狗头人不是铁血小超人，而且是小超人到都不承认自己是小超人的那种程度，怕给自己主子招黑。动不动就是我心目中的世界第一中单。
+
+*****
+
+####  zhouxin95  
+##### 6544#       发表于 2022-8-11 09:13
+
+RNG这次比赛最大的作用就是给up主们提供了海量的素材，每天都有新花样
+
+*****
+
+####  蛭人  
+##### 6545#       发表于 2022-8-11 09:13
+
+兽王这版本太强了，说实话，自带光环配合大祭品，想推进就推进，想杀人就杀人，当然我最喜欢中单兽王出A杖，用的都觉得爽。
+
+*****
+
+####  外挂全家脚气  
+##### 6546#       发表于 2022-8-11 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015512&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-11 09:03</a>
+
+1个直邀，2个外卡
+
+理论来说外卡打的好的话能去4个队，竞争强度一般吧</blockquote>
+本届外卡是地狱级的好吧，光东欧就是秘密NGM液体还有个ET
+
+*****
+
+####  逃离二次元  
+##### 6547#       发表于 2022-8-11 09:13
+
+集美钦定的刀圈四畜只有森哥不是小泰迪
+
+*****
+
+####  天堂蜘蛛  
+##### 6548#       发表于 2022-8-11 09:14
+
+rng加把劲进个TI啊
+
+我还想看你们在TI大舞台表演呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6549#         楼主| 发表于 2022-8-11 09:15
+
+中单兽王哪个版本，我匹配经常选不到，只能rpg选出来砍狗头人，令人感叹
+
+*****
+
+####  syndrome2032  
+##### 6550#       发表于 2022-8-11 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015574&amp;ptid=2084957" target="_blank">TIZI 发表于 2022-8-11 09:07</a>
+rng反正也不需要分数了，能不能换几个人啊，就这几个人回家居摆烂的态度感觉这队伍就不应该来打职业
+有没有 ...</blockquote>
+rng有kaka，出国还是没问题。最差2个名额还能打外卡。
+
+*****
+
+####  Asukalangley33  
+##### 6551#       发表于 2022-8-11 09:16
+
+这次MAJOR LGD和茶剩下的赛程就看信不信邪了
+
+虽然魔咒这种事情就是用来打破的，但是冰蛙这个B盯着砍是事实存在的
+
+现在剩下的队要么残阵，要么状态不太好，LGD要拿MAJOR冠军可能性是很大的
+
+茶可以玩了命的打，积累下（8强主赛场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）大赛经验
+
+但要是打的太屌了，9月的更新很难不被冰蛙这个CSDX抓着咬
+
+*****
+
+####  北条早苗  
+##### 6552#       发表于 2022-8-11 09:16
+
+狗头人生活这么不如意是小红包吧
+小泰迪对a畜没这么大仇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 6553#       发表于 2022-8-11 09:16
+
+太可惜了，还想多看几场RNG比赛
+
+真是精彩极了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 6554#       发表于 2022-8-11 09:17
+
+我很能理解TB第一把出大推推，全是拉扯阵容，帕克光法土猫，真拉扯起来打DP上不了，血魔不敢上，最后就是放大see。
+可惜rng不是老og，肌肉dota。说要tb打前排的，我只能说，不对rng这帮人了解透彻到极致，是想不到这几个选个这阵容是让tb打前排的。
+
+*****
+
+####  百世诸侯  
+##### 6555#       发表于 2022-8-11 09:17
+
+茶队的戴泽肯定活不到下个版本了，不如多选几把爽一下
+
+*****
+
+####  尸体鲨  
+##### 6556#       发表于 2022-8-11 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015670&amp;ptid=2084957" target="_blank">5678给 发表于 2022-8-11 09:12</a>
+狗头人不是铁血小超人，而且是小超人到都不承认自己是小超人的那种程度，怕给自己主子招黑。动不动就是我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他能给徐总写个错位巅峰，我觉得是小卤蛋好吧
+
+*****
+
+####  IG.430  
+##### 6557#       发表于 2022-8-11 09:17
+
+狗头人不是铁血版信吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中已矣  
+##### 6558#       发表于 2022-8-11 09:17
+
+狗头人能给超哥唱个歌么
+
+*****
+
+####  Keynes  
+##### 6559#       发表于 2022-8-11 09:18
+
+茶队跟lgd的差距主要还是在蟹腿王和ss八的差距上，选手实力上的差距都没有bp上的差距大。指望茶队爆种干掉lgd不如期待ana和顶级儿子一起复出再次上演“你爹还是你爹”的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  5678给  
+##### 6560#       发表于 2022-8-11 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015746&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 09:17</a>
+他能给徐总写个错位巅峰，我觉得是小卤蛋好吧</blockquote>
+也能给超哥写个三年和起风了呀
+
+*****
+
+####  天姬Angelotte  
+##### 6561#       发表于 2022-8-11 09:19
+
+君子报仇，四年不晚——by Xnova
+
+*****
+
+####  ly3375952855  
+##### 6562#       发表于 2022-8-11 09:19
+
+一整天的好心情没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  minysun  
+##### 6563#       发表于 2022-8-11 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015651&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-11 09:11</a>
+
+RNG 茶队上限八强，LGD大概率决赛日再当一次背景板。</blockquote>
+茶茶国内能和LGD打较劲再看国外这帮子对LGD不堪一击的，能通过外战突破心魔的话前途远比RNG强
+
+*****
+
+####  沈淮  
+##### 6564#         楼主| 发表于 2022-8-11 09:19
+
+第一盘tb的推推不是纯负面吗， 肉山团把自己推到vp三大哥脸上，bkb没了就直接融化
+
+*****
+
+####  Keynes  
+##### 6565#       发表于 2022-8-11 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015749&amp;ptid=2084957" target="_blank">中已矣 发表于 2022-8-11 09:17</a>
+ 狗头人能给超哥唱个歌么</blockquote>
+不是有，十年
+
+*****
+
+####  反方向的波  
+##### 6566#       发表于 2022-8-11 09:19
+
+<img src="https://p.sda1.dev/6/8617e94f81b72f81b3ca12636f565347/-2a8e58ac341b2834.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 6567#       发表于 2022-8-11 09:19
+
+能不能给卡狗换个队
+
+*****
+
+####  雅朵莉雀  
+##### 6568#       发表于 2022-8-11 09:19
+
+<blockquote>Maybe不是一个适合顶级Carry的中单，他在队伍里的话语权和资源权重太高，打不了工具人，可是世间豪杰又有几人能让超哥给他打工具人的呢？我喜欢超哥完全是因为他作为一个选手的游戏风格有英雄气，他一直是个抽刀向更强者的勇者。指摘超哥的组队选择和之前对待职业的态度当然无可厚非，但是我觉得身为一个观众向往一些和自己的游戏态度完全迥异的选手并不是什么难以启齿的事情。打枪和重组踢塞拉这些算得上是污点，但这些污点让超哥更加鲜活更加真实。硝烟散去，原来他也曾是大家的may皇，也曾经是我心底的世界第一中单。</blockquote>
+
+*****
+
+####  hcf220  
+##### 6569#       发表于 2022-8-11 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015421&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 08:58</a>
+这盘也没感觉VP有什么脑子啊，gpk前面一直上头干
+
+纯粹就是不用脑子的碰撞没碰赢 ...</blockquote>
+上帝中路养怪物
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夜光铃  
+##### 6570#       发表于 2022-8-11 09:20
+
+茶和lgd的差距难道不是在c位上的么，现在杜鹏太脑浆了，到他出来终结比赛时就要出状况
+
+
+
+*****
+
+####  蛭人  
+##### 6571#       发表于 2022-8-11 09:21
+
+xnova的罪也别再细数了，他作为唯一一个会英语的，玩个冰龙都时常在旁边看着大哥死，还是回去跟鬼打猴子dota吧，国内五号位也就皮球脑浆Y了。
+
+*****
+
+####  一品堂官  
+##### 6572#       发表于 2022-8-11 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015605&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-11 09:09</a>
+看好lgd茶会师胜决</blockquote>
+茶输多赢少，你想漏油死？
+不如指望雪碧ti开zoom，继续屠宰。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ArowRocher  
+##### 6573#       发表于 2022-8-11 09:22
+
+拿什么预测啊，还两个月训练期和一个补丁呢，这些队伍人齐了说不定又一个样
+
+*****
+
+####  5678给  
+##### 6574#       发表于 2022-8-11 09:22
+
+lgd和茶会师，这次决赛那CN DOTA  ti11真没救了
+
