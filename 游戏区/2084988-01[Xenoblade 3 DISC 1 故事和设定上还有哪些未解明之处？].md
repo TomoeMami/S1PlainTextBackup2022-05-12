@@ -1882,3 +1882,34 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 
 最后彩蛋的笛声，是男女主合奏小调
 
+
+
+*****
+
+####  Dashuaibi  
+##### 168#       发表于 2022-8-11 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024394&amp;ptid=2084988" target="_blank">UltramanPain 发表于 2022-8-11 20:00</a>
+
+如果是造了衔尾蛇之石的尼亚，都市还能不知道这个人是谁？
+
+  -- 来自 能看大图的 Stage1官方 Android客户 ...</blockquote>
+所以第七人基座上才不愿意透露名字啊，第七始祖是白国真女王。女王存在真假这事也就都市高层知道
+
+*****
+
+####  whzfjk  
+##### 169#       发表于 2022-8-11 20:18
+
+都市纪念堂里，一会儿始祖，一会儿都市始祖，一会儿XX家始祖，一会儿是被始祖尊为导师 (mentor) 的人，这导师关系是什么鬼，导师也是始祖吗，那这里当主视角认导师的始祖是谁？
+
+*****
+
+####  kyolanaya  
+##### 170#       发表于 2022-8-11 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024703&amp;ptid=2084988" target="_blank">whzfjk 发表于 2022-8-11 20:18</a>
+
+都市纪念堂里，一会儿始祖，一会儿都市始祖，一会儿XX家始祖，一会儿是被始祖尊为导师 (mentor) 的人，这导 ...</blockquote>
+两个导师酷似修尔克和莱克斯，纪念的
+

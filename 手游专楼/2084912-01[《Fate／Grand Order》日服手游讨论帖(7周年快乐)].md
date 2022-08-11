@@ -8051,3 +8051,22 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 其实应该是杨贵妃的下位。
 
+
+
+*****
+
+####  exiaexa  
+##### 764#       发表于 2022-8-11 20:14
+
+顺利滚回日区
+
+氪金一单贵了50
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 765#       发表于 2022-8-11 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试用感觉还挺强的，而且我还没有金钻头，可惜和伊吹一个池子，等抽完斯卡蒂看看有没余粮吧
+
