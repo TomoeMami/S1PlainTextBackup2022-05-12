@@ -9063,3 +9063,16 @@ pay你在做什么令人血压飙升的黑暗料理啊，还起火了<img src="h
 
 槽点满满，150身材E杯，关键是用的照片怎么都看不出有这么大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 2392#       发表于 2022-8-11 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016825&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-11 10:30</a>
+槽点满满，150身材E杯，关键是用的照片怎么都看不出有这么大</blockquote>
+问题来了，用哪张照片可以看出有E杯大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

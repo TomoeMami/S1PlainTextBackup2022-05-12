@@ -7285,3 +7285,144 @@ Eh34问题太大了，能过预选只能指望状态爆了。3一直就那样且
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是TB开了撒旦想反打然后冰龙直接把血魔大了那波
 
+
+
+*****
+
+####  百世诸侯  
+##### 6871#       发表于 2022-8-11 11:22
+
+希望清茶能出去看看，现在茶队进TI了清茶还能进吗，同一俱乐部只能一支队的限制还在不在
+
+*****
+
+####  lyjssj  
+##### 6872#       发表于 2022-8-11 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最能给观众喂shi的ame也不过平均一年就喂一天，但是剩下364天全是饭圈蛆的排泄物臭味
+
+到现在还在问为什么你们要黑ame的饭圈蛆也太没自知之明了，从头到底就是想要你们闭肛而已
+
+*****
+
+####  walfeds  
+##### 6873#       发表于 2022-8-11 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">现在有些理解冠晴为什么会半夜哭醒了
+
+*****
+
+####  北条早苗  
+##### 6874#       发表于 2022-8-11 11:23
+
+要是茶最后一轮dpc把lgd关了，放清茶出去看看还能想想进化，现在估计难了
+
+*****
+
+####  香蕉芭菲  
+##### 6875#       发表于 2022-8-11 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017705&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:22</a>
+希望清茶能出去看看，现在茶队进TI了清茶还能进吗，同一俱乐部只能一支队的限制还在不在 ...</blockquote>
+在的
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  walfeds  
+##### 6876#       发表于 2022-8-11 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017705&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:22</a>
+
+希望清茶能出去看看，现在茶队进TI了清茶还能进吗，同一俱乐部只能一支队的限制还在不在 ...</blockquote>
+应该不行，否则og就该开东南亚分基地了
+
+*****
+
+####  CNFH1984  
+##### 6877#       发表于 2022-8-11 11:24
+
+那我可要再说一遍了，只要遇到集美试图在ti8上面跳高，那每次我都要说，不管怎么样，不管现在成绩怎么变化
+
+限定ti8，排除语言沟通因素，哪边有ame，哪边是亚军。
+
+ame和ana在ti8的差距，就像是风帆战舰和无畏舰一样，是没得比的。
+
+这不是说超哥就胜过顶级儿子，而是说超哥也好，fy也好，查理斯也好，冠晴也好，他们跟对位的差距，最多最多也就是1920s战列舰和1930s战列舰的差别，没这么离谱。
+
+*****
+
+####  反方向的波  
+##### 6878#       发表于 2022-8-11 11:25
+
+<img src="https://p.sda1.dev/6/92d1859307f059ec14254afccaf180fa/Screenshot_2022-08-11-11-24-53-58_0fc56bb0559abc2fbe7530b672106a57.jpg" referrerpolicy="no-referrer">
+满月纪念，令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 6879#       发表于 2022-8-11 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017567&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 11:12</a>
+
+好呀好呀，放水集美狗也回来了，等于说maybe一滚都出来了是吧？</blockquote>
+LGD确实放水了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+[《LGD真没情商》](https://www.bilibili.com/video/BV1qv4y1F73f/)
+
+但是里斯没学会<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+[《查理斯拙劣的模仿》](https://www.bilibili.com/video/BV19B4y1t71J/)
+
+*****
+
+####  沈淮  
+##### 6880#         楼主| 发表于 2022-8-11 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017771&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 11:25</a>
+
+满月纪念，令人感慨</blockquote>
+好啊好啊，我刚解锁权限就开始翻旧账是吧，令人感叹
+
+*****
+
+####  CNFH1984  
+##### 6881#       发表于 2022-8-11 11:27
+
+<blockquote>反方向的波 发表于 2022-8-11 11:25
+满月纪念，令人感慨</blockquote>
+今天这冰龙老奶奶真是把人看惊了
+
+*****
+
+####  河水  
+##### 6882#       发表于 2022-8-11 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016727&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:24</a>
+被小刘axx干掉的LGD是谁打的12啊，我记得没老十一罢</blockquote>
+鹿乃2超哥1吧
+
+*****
+
+####  ArowRocher  
+##### 6883#       发表于 2022-8-11 11:29
+
+<img src="https://img.saraba1st.com/forum/202208/11/112800reafm49y2fba2n22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/112857olov1cyzqmhhvm41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 11:28 上传
+
+看了下洋太监论坛，喷ana居多。
+
+[https://www.reddit.com/r/DotA2/c ... t_round_1/?sort=top](https://www.reddit.com/r/DotA2/comments/wlakkh/pgl_arlington_major_2022_lower_bracket_round_1/?sort=top)
+
