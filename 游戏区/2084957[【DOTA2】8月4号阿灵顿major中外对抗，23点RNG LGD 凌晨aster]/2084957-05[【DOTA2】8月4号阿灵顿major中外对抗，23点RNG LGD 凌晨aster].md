@@ -9735,3 +9735,108 @@ g4打完我就蒙头大睡准备装死的
 
 不是8.0吧火锅和边路商店还回来我不认可
 
+
+
+*****
+
+####  聚散浮云  
+##### 7131#       发表于 2022-8-11 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020247&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-11 14:34</a>
+
+根据我从外面偷的一手屎料，现在的高情商说法是团队游戏，看着不c是已经c完了 ...</blockquote>
+漏油偷💩真的有一手呀
+
+*****
+
+####  chilno  
+##### 7132#       发表于 2022-8-11 14:41
+
+去年高楼翻了100来页
+
+我宣布从今天起我也是萧瑟粉！
+
+*****
+
+####  ArowRocher  
+##### 7133#       发表于 2022-8-11 14:41
+
+<img src="https://img.saraba1st.com/forum/202208/11/144135ffajnqzex4xqpsbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 14:41 上传
+
+*****
+
+####  蛭人  
+##### 7134#       发表于 2022-8-11 14:42
+
+不装了？
+
+*****
+
+####  百世诸侯  
+##### 7135#       发表于 2022-8-11 14:44
+
+集美正规军还没来就投降了<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 7136#       发表于 2022-8-11 14:46
+
+ 本帖最后由 ArowRocher 于 2022-8-11 14:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202208/11/144539ray4tkinogtli4u0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 14:45 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/144747icc84g8juhw9lj4k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 14:47 上传
+
+小僵尸和小茶叶呢
+
+*****
+
+####  chilno  
+##### 7137#       发表于 2022-8-11 14:46
+
+我8月8号小组赛刚开打就宣布投降了，我可是第一个投降的
+
+集美们帮帮我！
+
+*****
+
+####  CNFH1984  
+##### 7138#       发表于 2022-8-11 14:48
+
+？我超一个中午过去就全是集美了是吧
+
+他妈的，相信处长！
+
+*****
+
+####  健康猹  
+##### 7139#       发表于 2022-8-11 14:48
+
+黑ame的都是号主！我只是个借号看楼的！
+
+*****
+
+####  woyzeck  
+##### 7140#       发表于 2022-8-11 14:49
+
+向萧瑟仙贝，投降！向vpgame，投降！向南通水厂，投降！向太后ruru，投降！...
+
