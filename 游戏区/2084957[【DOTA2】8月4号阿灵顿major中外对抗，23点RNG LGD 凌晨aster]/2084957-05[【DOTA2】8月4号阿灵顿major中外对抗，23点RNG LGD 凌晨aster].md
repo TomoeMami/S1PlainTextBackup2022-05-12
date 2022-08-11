@@ -12785,3 +12785,51 @@ kaka  maybe今年打完估计也大概率退役了吧
 
 我要是职业选手我就继续赖皮，拿个死工资天天开直播混就完事了
 
+
+
+*****
+
+####  Keynes  
+##### 7476#       发表于 2022-8-11 23:03
+
+我现在还蛮后悔当时ti9没买黄牛票去看的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 7477#       发表于 2022-8-11 23:04
+
+ti6现场鸽了没去去的ti7，真吃屎
+
+*****
+
+####  逃离二次元  
+##### 7478#       发表于 2022-8-11 23:06
+
+都是萨特<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7479#       发表于 2022-8-11 23:06
+
+误入萨特聚落，润了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 7480#       发表于 2022-8-11 23:07
+
+怎么那么多出国萨特
+
+唯一能去的就是TI9，然后同学群公会群开黑群都没人抢到，司马大麦
+
+*****
+
+####  morwhipppo  
+##### 7481#       发表于 2022-8-11 23:09
+
+我记得很清楚ti9刚好前两天有事去不了，把22号23号的票499原价卖给了个刀友，没想到第一天竟然猩红有bug，几乎所有现场去了的人都有，想杀了领导当时
+
