@@ -3025,3 +3025,53 @@ monet会玩大圣吗？
 
 茶的前期能这么劣，就是状态太烂，一路被撵
 
+
+
+*****
+
+####  白野苍衣  
+##### 7891#       发表于 2022-8-12 07:32
+
+熟悉的茶队回来了
+
+*****
+
+####  一夜秋风袭锦城  
+##### 7892#       发表于 2022-8-12 07:33
+
+不是，输给世界第一的雪碧丢人吗？
+
+*****
+
+####  儛進  
+##### 7893#       发表于 2022-8-12 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029308&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-12 07:33</a>
+不是，输给世界第一的雪碧丢人吗？</blockquote>
+捉个虫，“硬实力世界第一是LGD”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 7894#       发表于 2022-8-12 07:35
+
+看了下，这胜者组就是石油杯再演啊，LGD先打OG，赢了后再打TS<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+茶？今天这TS的状态茶必然打不过了
+
+*****
+
+####  leader01234  
+##### 7895#       发表于 2022-8-12 07:37
+
+问题是玩自己熟悉的阵容节奏为啥能烂成这样，对面陈在拉野少个酱油的情况下帕克居然能一路节奏都没起来，让电魂一直在大圣脸上拉屎啊
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 7896#       发表于 2022-8-12 07:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又陈+电魂，茶有啥对策
+
