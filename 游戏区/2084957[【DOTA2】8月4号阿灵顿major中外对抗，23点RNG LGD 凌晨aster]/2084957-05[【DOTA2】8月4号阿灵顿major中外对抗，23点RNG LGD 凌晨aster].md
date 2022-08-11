@@ -10788,3 +10788,172 @@ yysy，蚂蚁这个梗是这届major最好笑的了。逆风缩地，放蝗虫�
 
 如果a畜勇夺冠军，我卸载dota2痛哭流涕，从此隐藏自己刀友的身份，和女同事一起开黑王者荣耀，尘世间的dota再与我无半分关系。
 
+
+
+*****
+
+####  北欧王座  
+##### 7245#       发表于 2022-8-11 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021952&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-11 16:39</a>
+
+小蚂蚁这个梗  说的是小超人哇 不过我寻思这几点点和集美似乎也没啥区别</blockquote>
+说的是小超人，集美可不敢时光倒流。集美只会决斗让你直视现在无敌的老干爹
+
+*****
+
+####  JoelBirch  
+##### 7246#       发表于 2022-8-11 16:42
+
+我CNM啊剧透狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸一死吾亦死  
+##### 7247#       发表于 2022-8-11 16:42
+
+<blockquote>北欧王座 发表于 2022-8-11 16:40
+说的是小超人，集美可不敢时光倒流。集美只会决斗让你直视现在无敌的老干爹 ...</blockquote>
+太小看现在的集美了
+
+<img src="https://img.saraba1st.com/forum/202208/11/164207ih9tahhis4c6tszc.jpg" referrerpolicy="no-referrer">
+
+<strong>24_2000_550.jpg</strong> (29.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-11 16:42 上传
+
+*****
+
+####  聚散浮云  
+##### 7248#       发表于 2022-8-11 16:42
+
+你别说，那次我被女同事拉着打了一次王者荣耀，结果发现好几个曾经的刀狗段位都贼高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7249#       发表于 2022-8-11 16:43
+
+结论，集美就是水人变蚂蚁，抠一个大招，上ti高地就反向波了。
+
+*****
+
+####  acg_s1  
+##### 7250#       发表于 2022-8-11 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021702&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-11 16:23</a>
+
+桶哥落泪.jpg辛辛苦苦打了一年，结果倒在临门一脚
+
+去年zai处长胜决嗯吃刷新碎片送lgd亚军，今年到了 ...</blockquote>
+男儿有泪不轻弹，只是未到伤心处<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7251#       发表于 2022-8-11 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021987&amp;ptid=2084957" target="_blank">逸一死吾亦死 发表于 2022-8-11 16:42</a>
+
+太小看现在的集美了</blockquote>
+乐，岁月史书
+
+*****
+
+####  CNFH1984  
+##### 7252#       发表于 2022-8-11 16:44
+
+如果a畜勇夺冠军，我卸载dota2痛哭流涕，从此隐藏自己刀友的身份，和刚刚认识的大奶女同事一起玩王者荣耀，尘世间的dota再与我无半分关系。
+
+*****
+
+####  acg_s1  
+##### 7253#       发表于 2022-8-11 16:45
+
+相信大煜治水三过决赛日而不入，相信老干鳖十年TI不冠的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 7254#       发表于 2022-8-11 16:45
+
+和女同事开黑？？？我砍砍砍砍
+
+*****
+
+####  阿垃垃圾历  
+##### 7255#       发表于 2022-8-11 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021969&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-11 16:40</a>
+
+说的是小超人，集美可不敢时光倒流。集美只会决斗让你直视现在无敌的老干爹 ...</blockquote>
+集美时光倒流也很厉害啊  这ti89的234的问题一个个翻出来 
+
+*****
+
+####  蛭人  
+##### 7256#       发表于 2022-8-11 16:46
+
+我吐了，怎么还有拿TI4不想NB夺冠的人套用现在LGD的，路人扭曲粉不装了是吧？ <blockquote>ti10决赛前感觉楼里不少其实都算ame路人，只要夺冠了，89的失误也没啥了不起的了。这次饭圈假赛魔怔人的出现还有ame决赛经不起推敲的尿裤表现直接让不少人包括我对他路转黑了。</blockquote>
+
+*****
+
+####  沈淮  
+##### 7257#         楼主| 发表于 2022-8-11 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022019&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 16:44</a>
+
+如果a畜勇夺冠军，我卸载dota2痛哭流涕，从此隐藏自己刀友的身份，和刚刚认识的大奶女同事一起玩王者荣耀， ...</blockquote>
+加个大奶女同事vx，giegie不是坏淫
+
+*****
+
+####  百世诸侯  
+##### 7258#       发表于 2022-8-11 16:48
+
+ 本帖最后由 百世诸侯 于 2022-8-11 16:49 编辑 
+
+集美们对应的英雄是陈（原创）：
+
+1.自身狗几把都不是，靠神圣劝化招募几个爹带躺，还以为自己牛逼。
+
+2.夺冠失利时让整个刀圈赎罪，每年汛期让老队友赎罪，堪称RU厂十字军。
+
+3.死皮赖脸仰卧起坐了这么多年了，养出了鳖力恩泽光环，护甲和回血极高。
+
+4.因为偶像AME是上帝的儿子，所以关键时刻可以用上帝之手修改历史
+
+5.最重要的一点，也就7.31d还能上上场了，7.32版本一更新立马狗都不玩，等着TI下水道吧。
+
+*****
+
+####  哈曼的YY  
+##### 7259#       发表于 2022-8-11 16:49
+
+看了这么多年比赛我只学到一件事 在最后一局的gg敲出来前一切都未可知
+
+哪支队肯定怎么怎么样这种心理还是少点好
+
+真出事了麻烦楼主把城墙加高点 别第一个跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 7260#       发表于 2022-8-11 16:49
+
+标题剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我不看
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  12481632  
+##### 7261#       发表于 2022-8-11 16:50
+
+原来漏油都是可以上班看比赛，五点下班，还有大奶女同事开黑的。只有我辞职看比赛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
