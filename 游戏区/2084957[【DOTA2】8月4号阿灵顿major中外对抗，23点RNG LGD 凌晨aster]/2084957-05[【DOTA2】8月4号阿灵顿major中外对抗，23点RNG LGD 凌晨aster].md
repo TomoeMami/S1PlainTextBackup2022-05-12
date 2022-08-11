@@ -12908,3 +12908,51 @@ ti9根本抢不到票，司马大麦。
 
 今年TI门票价格一出来鬼佬都是骂太贵的，漏油除我以外真就人均萨特是吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  StrangerJ  
+##### 7491#       发表于 2022-8-11 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">ti9去看了2天决赛日，只能说是我人生中最接近干瘪粉的2天，老干瘪成功让我变成干瘪一生黑
+
+*****
+
+####  夜光铃  
+##### 7492#       发表于 2022-8-11 23:23
+
+明年国内正经还继续搞的就茶和lgd了吧
+
+*****
+
+####  tengshuo980  
+##### 7493#       发表于 2022-8-11 23:25
+
+有人看到龙之血最后的结局了吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  excalibur--  
+##### 7494#       发表于 2022-8-11 23:26
+
+BC前期直接送猴子两个头，是不是感觉强度不够给自己加点强度啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 7495#       发表于 2022-8-11 23:27
+
+只有克神想赢嗷
+
+*****
+
+####  弈秋  
+##### 7496#       发表于 2022-8-11 23:29
+
+克神成长了
+
