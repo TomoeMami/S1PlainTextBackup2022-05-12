@@ -5347,3 +5347,178 @@ nisha除了独以外确实目前最完美的中单，无论对线节奏还是后
 
 厨子得找个ceb拧拧绳还是能再打出来的
 
+
+
+*****
+
+####  nxmonitor  
+##### 6663#       发表于 2022-8-11 09:53
+
+ana容易心态崩怎么是假的了？他在其他队都是各种崩的，OG那是有notail和ceb两个育婴大师在的好吧……
+
+*****
+
+####  聚散浮云  
+##### 6664#       发表于 2022-8-11 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016218&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 09:50</a>
+
+利雅得也是来枪的啊，你不能找队全找临时工队吧</blockquote>
+你不是说语言问题么，利雅得在Liquid的时候他先知一样乱飞送啊
+
+*****
+
+####  Litccc  
+##### 6665#       发表于 2022-8-11 09:54
+
+<img src="https://img.saraba1st.com/forum/202208/11/095352z2iisuzglzkqp0ge.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-10_20-17-52.png</strong> (119.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 09:53 上传
+
+集美眼中假赛也是热度捏
+
+*****
+
+####  nxmonitor  
+##### 6666#       发表于 2022-8-11 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016238&amp;ptid=2084957" target="_blank">izayoi39 发表于 2022-8-11 09:51</a>
+
+nisha除了独以外确实目前最完美的中单，无论对线节奏还是后期团战能力都没有弱点
+
+—— 来自 Xiaomi 210911 ...</blockquote>
+今年这么说为时尚早，刚结束的利雅得就是他带队送输给TS的……
+
+*****
+
+####  ArowRocher  
+##### 6667#       发表于 2022-8-11 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016262&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 09:53</a>
+你不是说语言问题么，利雅得在Liquid的时候他先知一样乱飞送啊</blockquote>
+我还说了指挥呢啊，而且这个大前提是个稳定磨合训练的队伍，不是四人组排天梯排到ana
+
+*****
+
+####  izayoi39  
+##### 6668#       发表于 2022-8-11 09:54
+
+ana心态很容易崩的，玩个天梯队友死多了他都想直接开送，不然上帝导师是怎么出名的
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 6669#       发表于 2022-8-11 09:55
+
+<img src="https://p.sda1.dev/6/08e19704ec97e89f6e4db62175aa8993/CMP_20220811095450915.jpg" referrerpolicy="no-referrer">
+
+开始了开始了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 6670#       发表于 2022-8-11 09:55
+
+<img src="https://img.saraba1st.com/forum/202208/11/095530huufy4jfhzhfjcc7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 09:55 上传
+
+我去，刀圈教父，杰畜知道自己这么牛逼吗
+
+*****
+
+####  tontyoutoure  
+##### 6671#       发表于 2022-8-11 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016236&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-11 09:51</a>
+
+社区环境和游玩人数又不是我一个人能决定，至少你无法否定是有些人确实就因为去年的那场假赛运动退坑了。 ...</blockquote>
+你说的也有道理，但是大环境就是18岁以下不许玩游戏，到了18岁以上他们早已熟悉了那块比电脑屏幕小得多的屏幕。
+
+另外就是dota的职业圈本身就是一个全球化乌托邦般的产物。想想13年lgd还试图办int队，现在vp战队都得改名outsider。像现在这样大家这样如同祭典一般聚在一起办的比赛还能有多少，中国的战队又能参加多少呢。
+
+嘛我是一个特别悲观的人，不用在意我也好。
+
+*****
+
+####  ArowRocher  
+##### 6672#       发表于 2022-8-11 09:56
+
+说OC是教父都比他靠谱
+
+*****
+
+####  山上徹也  
+##### 6673#       发表于 2022-8-11 09:57
+
+这不是经典通过陈述事实黑你吗
+
+*****
+
+####  tontyoutoure  
+##### 6674#       发表于 2022-8-11 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016295&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-11 09:55</a>
+
+开始了开始了</blockquote>
+不如说maybe的心思早就不在游戏上了，能吸引到的就只有各种混子了。
+
+*****
+
+####  尸体鲨  
+##### 6675#       发表于 2022-8-11 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016295&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-11 09:55</a>
+开始了开始了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队里还有两个Ti冠军呢，摆摆战绩谁是被带飞的不是显而易见了
+
+*****
+
+####  战狼PTSD  
+##### 6676#       发表于 2022-8-11 09:59
+
+果然回家了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">给你机会你不中用啊，赢了就直邀了
+
+*****
+
+####  沈淮  
+##### 6677#         楼主| 发表于 2022-8-11 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016299&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 09:55</a>
+
+我去，刀圈教父，杰畜知道自己这么牛逼吗</blockquote>
+洗也太多了
+
+*****
+
+####  反方向的波  
+##### 6678#       发表于 2022-8-11 09:59
+
+哈士奇该不会是小天shit粉丝吧，现在我坐在马桶上打开傻狗发现一个帖子都过过审
+
+*****
+
+####  izayoi39  
+##### 6679#       发表于 2022-8-11 10:00
+
+所以我说nisha独啊，一旦队友崩盘nisha就会进入啥都想自己打的节奏，想着一个人拯救世界而不是把队友打状态带回来
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逸一死吾亦死  
+##### 6680#       发表于 2022-8-11 10:00
+
+霉瘪早该死一死了，从他ti9前也发帖挂人号召网爆就该预想到自己有这么一天
+
