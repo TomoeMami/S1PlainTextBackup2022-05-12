@@ -6371,3 +6371,216 @@ ti10前几天就洗过了啊，sg毒狗下lgd赢家破人亡气急败坏，ame�
 
 虽然被小刘axx打败的lgd里没有ame，但是被烈火2-1的cdec里真的有ame
 
+
+
+*****
+
+####  ArowRocher  
+##### 6774#       发表于 2022-8-11 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016640&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-11 10:18</a>
+yatoro崇拜鳖鳖不奇怪。
+
+但是唐突挂个yao老弟只能让我怀疑他是不是yygq强袭分身黑鸟。</blockquote>
+他自己说不是burning粉丝
+
+*****
+
+####  沈淮  
+##### 6775#         楼主| 发表于 2022-8-11 10:41
+
+<blockquote>开不开bkb也就这样了。打到这个局势难道ana还能做啥？一万年没人保，打起来全在跑，莲华推推什么一个没有，这就是无敌的rng么，笑出声来了。到时候又要说3兄弟kda没问题，是卡卡不够c，是ana不给力。光法冰龙就see就完事了，再给大哥一个冰箱。反正你们本队都不想赢，我就是个打手随便了</blockquote>
+真你妈个出生东西，不开bkb被vt直接秒了的tb都能洗
+ <blockquote>得了吧，反正我rng打的不好，你们集美也不能说。建议再换c，双冠也带不动235呢。</blockquote>
+司马东西还知道自己是集美啊，别人黑rng看不到，就在这送🐎
+ <blockquote>8年老选手，明星团队的明星选手，带头摆烂，不学不练，努力凑齐最大毒瘤。搞小团体，打的好就是我吊，打的差就是尽力。外来的打手要100个小心，犯了一点错就是你全锅。创业2年，一直失败。
+
+就这种人放到职场就是老油子，团队毒瘤，还整天在这吹。
+
+dota那句话怎么讲，没有成绩，呼吸都是错的。怎么今天没成绩还跳的最高呢？淘汰赛一轮游的嘲讽胜者组的，ti一轮游的嘲讽第4和第2的打的不好。笑出声好吧</blockquote>
+
+还有，泰迪这种傻逼选手你楼黑他的比粉他的多了去了，不必黑a畜的少，别在这找画面了，弱智东西
+
+*****
+
+####  12481632  
+##### 6776#       发表于 2022-8-11 10:41
+
+<img src="https://p.sda1.dev/6/53f429e7aa7a837bb63a1b2ca3c61c61/Screenshot_20220811-104020_Weibo.jpg" referrerpolicy="no-referrer">
+
+都别说了，开蹭！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 6777#       发表于 2022-8-11 10:41
+
+nga近来若干精选言论：
+1.yatora改yao头像改ame信使头像还经常采访cue对方 铁集美！
+2.杰出拷打有功于cndota 连ame xinq这种乐子人看了都叫好！
+3.玄月说杰出蹭 自己还蹭510呢 最早就是蹭41yy出身的！
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  walfeds  
+##### 6778#       发表于 2022-8-11 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016961&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-11 10:39</a>
+
+哇，一起开黑的hxd也在清算235啊，集美就在我身边，我都不知道怎么回他了
+
+—— 来自 Xiaomi Redmi Note 8  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是推荐他关注Ti三冠王ame铁粉
+
+*****
+
+####  windhawind2  
+##### 6779#       发表于 2022-8-11 10:42
+
+nga近来若干精选言论：
+1.yatora改yao头像改ame信使头像还经常采访cue对方 铁集美！
+2.杰出拷打有功于cndota 连ame xinq这种乐子人看了都叫好！
+3.玄月说杰出蹭 自己还蹭510呢 最早就是蹭41yy出身的！
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  夏溪澪mio  
+##### 6780#       发表于 2022-8-11 10:42
+
+贴吧笑死😆
+“国内拿ti的队都会玩chen好么？t香蕉的chen小鹿，ti6两冰的chen玩的都很好，ti8xnova也有一手chen。”
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Litccc  
+##### 6781#       发表于 2022-8-11 10:43
+
+二冰去死吧，我们萧瑟哥哥已经有会玩陈的y队了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 6782#       发表于 2022-8-11 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016879&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:34</a>
+我要认罪，原来我还相信NGA假赛党里面有睿国森哥说的那种真毁灭派，现在算是看出来了，都TM是铁血姐 ...</blockquote>
+真毁灭派就该管你什么a畜a厨，全部都是东家设局收割韭菜。
+
+这种人也有，zhihu也已u认为雅立德大师赛是假赛的。
+
+*****
+
+####  dclara1  
+##### 6783#       发表于 2022-8-11 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017008&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-11 10:41</a>
+
+nga近来若干精选言论：
+
+1.yatora改yao头像改ame信使头像还经常采访cue对方 铁集美！
+
+2.杰出拷打有功于cndot ...</blockquote>
+不应该攻击玄月的，ame也是41yy大家庭的一份子啊
+
+*****
+
+####  外挂全家脚气  
+##### 6784#       发表于 2022-8-11 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017058&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-11 10:43</a>
+
+真毁灭派就该管你什么a畜a厨，全部都是东家设局收割韭菜。
+
+这种人也有，zhihu也已u认为雅立德大师赛是假 ...</blockquote>
+既然美国都可以是被XX控制，一个臭打游戏的被控制不是很合理么<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 6785#       发表于 2022-8-11 10:46
+
+集美之前还在吹玄月ame卡卡铁三角呢，今天惹到了太监头子杰出哥直接光速切割<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tontyoutoure  
+##### 6786#       发表于 2022-8-11 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016901&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 10:35</a>
+
+8910，这三届ti，9是已经被集美忘记的，ti8这一波ana复出也洗完了，接下来就看ti10了好吧，拭目以待！ ...</blockquote>
+9有什么好说的，ame菜逼上高不开魔免，fy毒瘤A杖不知道什么屌用，maybe就更不用说了，心早就已经在TI8折断了，那之后他都只是以前的一个残影而已。
+
+*****
+
+####  蛭人  
+##### 6787#       发表于 2022-8-11 10:47
+
+集美才是41YY口中的CSDX啊，这一波41YY会忍吗？拭目以待。
+
+*****
+
+####  Cantha  
+##### 6788#       发表于 2022-8-11 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 这几天找工作找不到，看比赛血压升高，就没点爽快的消息
+
+*****
+
+####  dclara1  
+##### 6789#       发表于 2022-8-11 10:49
+
+[https://old.reddit.com/r/DotA2/c ... _community_on_rngs/](https://old.reddit.com/r/DotA2/comments/wlf9im/memes_from_the_chinese_community_on_rngs/)
+
+集美们对自己的幽默感挺有自信
+
+*****
+
+####  哈曼的YY  
+##### 6790#       发表于 2022-8-11 10:49
+
+假赛党典型案例
+
+<img src="https://img.saraba1st.com/forum/202208/11/104756fcb3ctbiut4tze2b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220811102710.png</strong> (87.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 10:47 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/104912nf58whw0wf5yxtwx.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220811102725.png</strong> (69.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 10:49 上传
+
+*****
+
+####  外挂全家脚气  
+##### 6791#       发表于 2022-8-11 10:49
+
+顺便，我还是对于一方面强烈鄙视各种脑残粉的脑残言论，另一方面又高强度到各个粪坑去搬运屎的行为表示很不理解
+
+*****
+
+####  w2210059  
+##### 6792#       发表于 2022-8-11 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016954&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-11 10:38</a>
+
+看了Eg第一把还以为铁晋级了，没想到还是滚蛋了。有谁看了的吗，是eg犯罪了还是对面打的太好。这队那天看打 ...</blockquote>
+就是对面打的好，rtz一直刷不过对面，一个冰龙让tb成为队友杀手
+

@@ -7686,3 +7686,48 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 这旧梅单论性能其实没啥问题啊 无非就是一年用不上几回而已</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怀疑是6年前做的
 
+
+
+*****
+
+####  exiaexa  
+##### 733#       发表于 2022-8-11 10:46
+
+ 本帖最后由 exiaexa 于 2022-8-11 10:47 编辑 
+
+邮局港剧对事不对人啊
+
+旧梅的性能真的有问题的
+
+为了跟梅林保持一致的结果就是，她完全跟不上现在蓝卡队的实际需要
+
+蓝卡不像绿卡永远是缺NP，蓝卡的问题是缺NP和缺输出二选一
+
+旧梅没有解决任何一个问题，直接开宝具最好的情况也只能勉强跟C呆持平，等位替换都做不到
+
+一技能那个蓝魔放带的爆伤改成蓝卡爆伤3t100更符合现在的需要，但是硬是要给你个全色1t
+
+她这个模型要想有用，最好的办法是宝具的NP缓回改成固定给首位的20-30NP缓回
+
+这才能跟C呆在周会上竞技一下，不然都对不起开3再开宝具浪费的时间
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 734#       发表于 2022-8-11 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017106&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-11 10:46</a>
+
+邮局港剧对事不对人啊
+
+旧梅的性能真的有问题的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁: 我不听我不听 我就要要打蓝暴   暴伤1t？ 看不见看不见我就是要第2回合打暴击
+
+*****
+
+####  fireship  
+##### 735#       发表于 2022-8-11 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  400个石头歪出了月神，加雷斯2宝，玛德这次估计得吃保底才会有了。
+
