@@ -9375,3 +9375,141 @@ u1s1，去年那可是水漫金山，不过bo5输了之后那叫一个戏剧性
 
 不是，漏油们真就已经默认干鳖和茶相聚胜决了？说不定王处和杜鹏今晚就整个大的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thistimeforlife  
+##### 7092#       发表于 2022-8-11 14:00
+
+鹏子小组赛 
+
+茶队碾压局都能整大活的，建议复习卖大支配狼人 和不捡盾幽鬼
+
+打雪碧那把tb和虚空更是值得一品<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 7093#       发表于 2022-8-11 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019820&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-11 13:57</a>
+
+漏油纯良了，去年假赛大浪照样把楼拍了</blockquote>
+没有吧，我记得去年楼里都是集体声讨假赛狗啊
+
+*****
+
+####  chilno  
+##### 7094#       发表于 2022-8-11 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平心而论阿茶的345我都还算喜欢
+
+支持下不行么
+
+而且全华班好不好！
+
+妈的就算输了也是唯一全华班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7095#       发表于 2022-8-11 14:02
+
+为什么都在吹摸奈头
+
+TI7后他不是一直尿到现在，连小王都不如
+
+*****
+
+####  百世诸侯  
+##### 7096#       发表于 2022-8-11 14:02
+
+别急，打Fnatic第一把的鹏子真站出来了，就看明早打雪碧是昙花一现还是大病初愈了
+
+*****
+
+####  chilno  
+##### 7097#       发表于 2022-8-11 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019895&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 14:02</a>
+
+为什么都在吹摸奈头
+
+TI7后他不是一直尿到现在，连小王都不如</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">谁吹女装C了
+
+这不是全村唯一的希望了嘛
+
+*****
+
+####  walfeds  
+##### 7098#       发表于 2022-8-11 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019836&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 13:58</a>
+
+u1s1，去年那可是水漫金山，不过bo5输了之后那叫一个戏剧性
+
+我一个人追着十几个人喷，太好玩了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年15号我都被崩溃哥的猛犸拱的躺平等死了，没想到18号又被崩溃哥的猛犸拱的坐了起来看戏
+
+*****
+
+####  ArowRocher  
+##### 7099#       发表于 2022-8-11 14:04
+
+如果一定要支持西恩队伍，那么总要在LOU SHIRO AME MONET里吹一个，也不知道PYY找到队没有
+
+*****
+
+####  聚散浮云  
+##### 7100#       发表于 2022-8-11 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019836&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 13:58</a>
+
+u1s1，去年那可是水漫金山，不过bo5输了之后那叫一个戏剧性
+
+我一个人追着十几个人喷，太好玩了
+
+ ...</blockquote>
+我记得还行啊，没印象有太多吹A畜的，去年ti前带面8拿冠军的时候LGD确实看起来势不可当
+
+*****
+
+####  chilno  
+##### 7101#       发表于 2022-8-11 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议漏油再看看去年的帖子
+
+当时发大水发得我一周都没好好上班，每天笑得嘴歪<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7102#       发表于 2022-8-11 14:06
+
+你们指望阿茶我只能说呃呃呃呃呃，下一场让你们把话吃回去！
+
+*****
+
+####  TheOccuria  
+##### 7103#       发表于 2022-8-11 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年是真的要投降了好吧，谁能想到决赛又相信萧瑟了
+
+今年要是没有新队出来超进化，23状态能保持到ti的话那还是得投降<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 7104#       发表于 2022-8-11 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019958&amp;ptid=2084957" target="_blank">TheOccuria 发表于 2022-8-11 14:07</a>
+去年是真的要投降了好吧，谁能想到决赛又相信萧瑟了
+
+今年要是没有新队出来超进化，23状态能保持到t ...</blockquote>
+g4打完我就蒙头大睡准备装死的
+早上起来我操，爱死我们哥哥了
+
