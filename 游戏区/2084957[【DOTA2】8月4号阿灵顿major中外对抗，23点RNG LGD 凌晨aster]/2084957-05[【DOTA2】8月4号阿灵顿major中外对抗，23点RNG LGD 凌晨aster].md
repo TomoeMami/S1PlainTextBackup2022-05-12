@@ -8822,3 +8822,90 @@ ddrk.me稍晚些应该会更第三季，卜喜欢下载的可以在这里看
 下午几点啊网飞只写了周四</blockquote>
 一般是3点
 
+
+
+*****
+
+####  沈淮  
+##### 7032#         楼主| 发表于 2022-8-11 13:01
+
+笑死了，集美被点草了不敢说话开小号来扣鹅，这么能精神胜利吗
+[https://bbs.saraba1st.com/2b/space-uid-111142.html](https://bbs.saraba1st.com/2b/space-uid-111142.html)
+
+*****
+
+####  聚散浮云  
+##### 7033#       发表于 2022-8-11 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019134&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-11 12:56</a>
+
+一边说要黑a畜一边在淡化本来只给他的专有外号的攻击性 只能说真有你的帮集美大忙了
+
+  -- 来自 有消息提醒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">淡化攻击性，你是不是就是那种因为撸狗把运营这个词用了然后dota里就不能说了那种人啊
+
+这楼里集美露头一个死一个还帮忙呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+屏蔽了，我对小学生吵架没兴趣
+
+*****
+
+####  坚定的团子党  
+##### 7034#       发表于 2022-8-11 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019043&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-11 12:50</a>
+
+把PPY和KKY关住的第一步就是疯狂选陈和小鹿，希望剩下的队都多选一选没什么坏处的…… ...</blockquote>
+陈肯定要削了，胜率70%，出场次数排第八
+
+*****
+
+####  CNFH1984  
+##### 7035#       发表于 2022-8-11 13:06
+
+一时之间，茶队声望似乎被催到了极高的高度
+
+*****
+
+####  IG.430  
+##### 7036#       发表于 2022-8-11 13:07
+
+不要信任老年中单
+
+*****
+
+####  坚定的团子党  
+##### 7037#       发表于 2022-8-11 13:07
+
+看了下赛程，明天凌晨2点lgd，5点茶<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7038#       发表于 2022-8-11 13:09
+
+MAJOR乐子都看完了，茶也直邀了，剩下的时间那么阴间没必要看，等切片看摸奈头是不是又脑浆了就行
+
+去年那个LUNA还记忆犹新
+
+*****
+
+####  聚散浮云  
+##### 7039#       发表于 2022-8-11 13:09
+
+赢了一个bo3而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一个ts还是很难打的，输了声望立马回归
+
+*****
+
+####  seki_m  
+##### 7040#       发表于 2022-8-11 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">lgd打og没什么好看的，继续早起看看茶鉴定下成色
+
+*****
+
+####  百世诸侯  
+##### 7041#       发表于 2022-8-11 13:10
+
+这几天都是六点起床，品一个bo3上班，然后论坛battle一上午就过去了，五点下班回家打4+2到11点品一个bo3睡觉
+
