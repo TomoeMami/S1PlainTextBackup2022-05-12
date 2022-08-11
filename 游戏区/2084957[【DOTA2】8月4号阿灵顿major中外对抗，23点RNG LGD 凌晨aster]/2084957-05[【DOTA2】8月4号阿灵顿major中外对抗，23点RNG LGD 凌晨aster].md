@@ -11867,3 +11867,37 @@ smg把pieliedie踢了，支持卡狗和林俊杰通一下关系把叶建萎送�
 
 报应谈不上，我还是看好rng能过预选的，新加坡酒店能住几天不好说
 
+
+
+*****
+
+####  反方向的波  
+##### 7369#       发表于 2022-8-11 18:52
+
+卜看好，即使ghost回来合体这个2345包要调整的地方也相当之多
+
+*****
+
+####  战狼PTSD  
+##### 7370#       发表于 2022-8-11 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年挖了SUPER谢俊豪，今年把SUPER苏鹏和跳刀挖了吧
+
+*****
+
+####  lyjssj  
+##### 7371#       发表于 2022-8-11 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">仔细想想，22年到现在让我感觉RNG有世界一线强队的气质的时候，只有DPC第三赛季打鳖茶的两把。
+
+可惜之后碰上lgd又阳威了
+
+*****
+
+####  syndrome2032  
+##### 7372#       发表于 2022-8-11 18:59
+
+rng高概率就是和小象一样了。
+
+跌跌撞撞抢到预选门票。然后突然崩盘。
+
