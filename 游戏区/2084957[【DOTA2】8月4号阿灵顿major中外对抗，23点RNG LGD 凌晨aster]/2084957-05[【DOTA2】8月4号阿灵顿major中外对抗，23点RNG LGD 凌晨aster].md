@@ -12361,3 +12361,26 @@ https://www.bilibili.com/video/BV1XT411w7z2?share_source=copy_web
 
 杰奇洛
 
+
+
+*****
+
+####  nowaki  
+##### 7425#       发表于 2022-8-11 21:33
+
+王蠢鱼怕个屁，哪年不缩龟壳打游戏
+
+*****
+
+####  蛭人  
+##### 7426#       发表于 2022-8-11 21:38
+
+AME也是鳖式一族好吧，缩龟壳是他的天赋。
+
+*****
+
+####  很久就在那边l  
+##### 7427#       发表于 2022-8-11 21:39
+
+还是葑茖早有先见之明，不播比赛就不会招惹比赛的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

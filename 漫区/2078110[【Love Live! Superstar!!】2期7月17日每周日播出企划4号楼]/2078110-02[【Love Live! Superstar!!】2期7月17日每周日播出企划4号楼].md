@@ -9398,3 +9398,17 @@ v要皮套丑可不行
 
 而且北海道Day1那一场在平日，北海道Day2那一场和R3小组Live的Day1又在同一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 2424#       发表于 2022-8-11 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025690&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-11 21:23</a>
+
+微博上看到有人整理的Live时间分布图，星这边撇开西武巨蛋，北海道那俩场Live也感觉安排的挺离谱的
+
+看了下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">撞水东蛋那次是真搞
+

@@ -8283,3 +8283,36 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">金卡从者不是能升宝具升宝具 多余的除了真爱和用来当插件锁住 剩下不卖扔仓库里干嘛 低星的不就是换绿方块用的肯定顺手全卖了 迷之烦恼
 
+
+
+*****
+
+####  DARKGRAY  
+##### 787#       发表于 2022-8-11 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025656&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 21:21</a>
+
+你怎么做到全员1000的 萌新甚至都不够</blockquote>
+只要非得抽不出多少新卡不就能做到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 788#       发表于 2022-8-11 21:38
+
+等等今天这剧情，李老头不是说过不能跟年轻的自己见面吗？见面就要打个你死我活
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑上シグマ  
+##### 789#       发表于 2022-8-11 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025892&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-11 21:38</a>
+
+等等今天这剧情，李老头不是说过不能跟年轻的自己见面吗？见面就要打个你死我活
+
+—— 来自 vivo V1981A, A ...</blockquote>
+剧情里不已经在互相释放斗气就差打起来了吗
+
