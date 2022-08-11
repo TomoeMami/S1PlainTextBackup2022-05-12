@@ -9244,3 +9244,24 @@ v要皮套丑可不行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就企划运营现在这水平，皮套怎么可能行哦
 
+
+
+*****
+
+####  优妮可  
+##### 2410#       发表于 2022-8-11 17:33
+
+皮套这个，实力那边被薄纱，这边ll粉丝不知道有多少能接受v圈那种抽象话术的。现在吧里够头疼的了，再来个v真不敢想。
+
+*****
+
+####  Dark_Zagi  
+##### 2411#       发表于 2022-8-11 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57008610&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-10 19:32</a>
+
+我觉得sayu才应该喷这个剧本。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+她有啥好喷的，在香音传加持下香音人气快断层了
+
