@@ -12956,3 +12956,39 @@ BC前期直接送猴子两个头，是不是感觉强度不够给自己加点强
 
 克神成长了
 
+
+
+*****
+
+####  ArowRocher  
+##### 7497#       发表于 2022-8-11 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57027332&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 23:18</a>
+之前说的那个B站女装高分前职业辅助终于从列表里刷出来了，有需求的自提一哈 ...</blockquote>
+是广告狗套皮人，怎么落了关键点
+
+*****
+
+####  莉拉厨  
+##### 7498#       发表于 2022-8-11 23:36
+
+说实话真希望FNC和VP给力点吧EG挤出去，虽然就算这样EG大概率还是会进TI的，但可以少看一只北美队了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  excalibur--  
+##### 7499#       发表于 2022-8-11 23:38
+
+BC这和去年没啥变化啊…还不是等k神出来拯救世界，但是这把是个巨魔啊。
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 7500#       发表于 2022-8-11 23:38
+
+这个版本玩大核的都没好下场 就是要123都当三号位
+

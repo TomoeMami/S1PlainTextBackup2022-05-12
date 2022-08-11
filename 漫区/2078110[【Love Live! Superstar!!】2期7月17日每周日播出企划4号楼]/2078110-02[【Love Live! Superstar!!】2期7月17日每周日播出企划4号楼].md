@@ -9584,3 +9584,16 @@ v要皮套丑可不行
 
 按照壁吧的数据，加人操作好像结果就是不增不减，还是我对之前的数据记忆有误<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 2435#       发表于 2022-8-11 23:38
+
+ 本帖最后由 iuhehc 于 2022-8-11 23:39 编辑 
+
+宣布西武的时候就想知道是动画后面是什么样的剧本，让运营如此高估加人之后的二期动画吸粉能力，就差没把急写在脸上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
