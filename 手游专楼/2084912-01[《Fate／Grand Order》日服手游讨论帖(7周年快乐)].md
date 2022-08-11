@@ -8338,3 +8338,22 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 巴姐礼装满凸了，感觉亏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 792#       发表于 2022-8-11 22:36
+
+我觉得绘里世去直播海岛大亨这种游戏人气会很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 793#       发表于 2022-8-11 22:38
+
+不是，看他那语气不是应该见面了等我回迦就发现少了张卡那种吗？怎么感觉打一架就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过想想CEO都跟脚后都打过了，那随便你们了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12600,3 +12600,70 @@ vg应该要解散了，阿绿说他不搞了
 有没有懂哥说下去看ti全程来回加食宿门票总共大概多少钱</blockquote>
 我朋友圈的萨特，ti8花了两万多
 
+
+
+*****
+
+####  战狼PTSD  
+##### 7453#       发表于 2022-8-11 22:34
+
+今天宙斯都被BAN了，我想在削弱前爽一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 7454#       发表于 2022-8-11 22:34
+
+门票一点不贵，食宿就丰俭由人了
+
+隔离现在也只要7+3了，其实还挺想去的
+
+*****
+
+####  名字不乱取  
+##### 7455#       发表于 2022-8-11 22:35
+
+新人感觉凑不出来两支队，俱乐部再投下去买一群巅峰期没拿ti冠的老头排列组合打人家小年轻，挨骂就算了，就那点吊流量都换不到钱，老板都算半个圣人了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+ruru除外，养出什么集美东西了都<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7456#       发表于 2022-8-11 22:39
+
+人均萨特是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 7457#       发表于 2022-8-11 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026707&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 22:28</a>
+
+不上班看TI，萨特我砍砍砍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大家不是说好了辞职看major看rng看上帝的嘛，漏油们的话一个字都不能信，我倒和前面自己说的不玩xb3也要看言行合一（知行合一 x）最近xb3发售了玩都没怎么玩
+
+*****
+
+####  蛭人  
+##### 7458#       发表于 2022-8-11 22:41
+
+管人痴与撸🐶不得入内
+
+*****
+
+####  百世诸侯  
+##### 7459#       发表于 2022-8-11 22:41
+
+门票啥时候出，我也有点想看，反正也没去过新加坡
+
+*****
+
+####  莉拉厨  
+##### 7460#       发表于 2022-8-11 22:41
+
+梯哀玖还在读书，等下次回到中国的时候窝一定辞职去看<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">（如果还有下次）
+
