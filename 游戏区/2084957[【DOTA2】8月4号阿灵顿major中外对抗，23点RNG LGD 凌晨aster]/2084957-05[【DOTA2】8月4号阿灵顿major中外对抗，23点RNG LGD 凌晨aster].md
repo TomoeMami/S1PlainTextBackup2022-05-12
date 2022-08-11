@@ -12006,3 +12006,23 @@ rng高概率就是和小象一样了。
 
 老板还怕水厂的吗
 
+
+
+*****
+
+####  反方向的波  
+##### 7384#       发表于 2022-8-11 20:02
+
+ 本帖最后由 反方向的波 于 2022-8-11 20:03 编辑 
+
+进度条过半了，有一说一厨子tb切入挺辣眼的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">有些楼友应该趁着不用一边看一边吐槽的时间段重新看一看
+
+*****
+
+####  haruhiismer  
+##### 7385#       发表于 2022-8-11 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024450&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 20:02</a>
+进度条过半了，有一说一厨子tb切入挺辣眼的有些楼友应该趁着不用一边看一边吐槽的时间段重新看一看 ...</blockquote>
+本来就是试训不过被各种踢的人，加上语言不通只能说rng自己傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

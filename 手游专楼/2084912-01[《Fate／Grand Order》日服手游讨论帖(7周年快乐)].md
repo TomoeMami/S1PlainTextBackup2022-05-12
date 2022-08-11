@@ -8027,3 +8027,27 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以给杨贵妃一个主动技能上DB就那么难吗
 
+
+
+*****
+
+####  Jamaisvu  
+##### 762#       发表于 2022-8-11 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023214&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-11 18:20</a>
+
+不是有自充么</blockquote>
+不好意思，看错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 763#       发表于 2022-8-11 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023501&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 18:44</a>
+
+2技能不是有30自充么，而且宝具蓝单怎么会是伽摩的下位呢</blockquote>
+抱歉，眼瞎看错了，因为一二技能看着和伽摩很像...
+
+其实应该是杨贵妃的下位。
+
