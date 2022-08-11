@@ -502,3 +502,84 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 
 卧槽，这么强？
 
+
+
+*****
+
+####  mkii量产型  
+##### 7565#       发表于 2022-8-12 01:02
+
+17分钟带着把圣剑能不爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7566#       发表于 2022-8-12 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被肌肉打烂了
+
+*****
+
+####  战狼PTSD  
+##### 7567#       发表于 2022-8-12 01:04
+
+帕克秀啊
+
+*****
+
+####  excalibur--  
+##### 7568#       发表于 2022-8-12 01:04
+
+所以为什么克神不去打三，wisper为什么不去打二<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 7569#       发表于 2022-8-12 01:08
+
+上啊（拱火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7570#       发表于 2022-8-12 01:09
+
+&gt;上啊！
+
+*****
+
+####  弈秋  
+##### 7571#       发表于 2022-8-12 01:09
+
+克神家里是黑社会越来越真了
+
+*****
+
+####  acalephs  
+##### 7572#       发表于 2022-8-12 01:09
+
+这先知钻门，是想逃去对面泉水吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7573#       发表于 2022-8-12 01:10
+
+璨璨真漂亮，爱了
+
+*****
+
+####  名字不乱取  
+##### 7574#       发表于 2022-8-12 01:10
+
+我直接给克神磕头，力中暴力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 7575#       发表于 2022-8-12 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么有说ANA官宣加入T1的
+
