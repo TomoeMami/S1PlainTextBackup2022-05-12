@@ -8753,3 +8753,72 @@ ddrk.me稍晚些应该会更第三季，卜喜欢下载的可以在这里看
 
 把PPY和KKY关住的第一步就是疯狂选陈和小鹿，希望剩下的队都多选一选没什么坏处的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BallanceHZ  
+##### 7024#       发表于 2022-8-11 12:51
+
+看了下回放，xnova这冰龙头号战犯没得跑了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+不过ana那个大推推确实把自己整蛊了，基本负作用，整撒旦就好了
+
+*****
+
+####  ArowRocher  
+##### 7025#       发表于 2022-8-11 12:53
+
+看了下RARBG还没出，有资源我发一手吧，但是看了第二季之后我不建议任何人看了。不如看真的达维安第三季。
+
+*****
+
+####  尸体鲨  
+##### 7026#       发表于 2022-8-11 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">马西死了狗都不看，老美还是不懂二次元
+
+*****
+
+####  tengshuo980  
+##### 7027#       发表于 2022-8-11 12:54
+
+误入此楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JoelBirch  
+##### 7028#       发表于 2022-8-11 12:55
+
+下午几点啊网飞只写了周四
+
+*****
+
+####  哈曼的YY  
+##### 7029#       发表于 2022-8-11 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018685&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-08-11 12:24:02</a>
+你jb谁啊规定了我要听吗
+
+郑畜王畜A畜眉畜我都叫多了，看不惯屏蔽谢谢</blockquote>一边说要黑a畜一边在淡化本来只给他的专有外号的攻击性 只能说真有你的帮集美大忙了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Litccc  
+##### 7030#       发表于 2022-8-11 12:59
+
+第二季都没看，然而还是冲了身心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 7031#         楼主| 发表于 2022-8-11 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019123&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-11 12:55</a>
+
+下午几点啊网飞只写了周四</blockquote>
+一般是3点
+
