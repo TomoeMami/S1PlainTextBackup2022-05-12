@@ -9169,3 +9169,15 @@ LL这边全当个跳板，五老星赶紧发展个人事业才是正解
 
 当跳板才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2402#       发表于 2022-8-11 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021723&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-11 16:24</a>
+
+万一V形势大好它企划肯定不会觉得自己有什么问题，星就尴尬了，要不放养吧，经典放了活抓了死 ...</blockquote>
+真是放活虹也不会前两年和透明人间一样，抓还是要抓的，问题是这帮人脑子多少和正常观众脱节。
+
