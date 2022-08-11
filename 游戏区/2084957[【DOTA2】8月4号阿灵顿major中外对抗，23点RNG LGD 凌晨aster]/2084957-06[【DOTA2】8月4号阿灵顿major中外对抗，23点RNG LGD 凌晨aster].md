@@ -603,3 +603,41 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bishbashbosh  
+##### 7578#       发表于 2022-8-12 01:32
+
+虐菜无情
+
+*****
+
+####  名字不乱取  
+##### 7579#       发表于 2022-8-12 01:33
+
+ 本帖最后由 名字不乱取 于 2022-8-12 01:35 编辑 
+
+克神应该做不到火女当风行打，万一又是wisp操刀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+克里斯，你卜会让你的粉丝再给你磕头一次吧<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  excalibur--  
+##### 7580#       发表于 2022-8-12 01:35
+
+中单**哈哈哈哈哈哈
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  excalibur--  
+##### 7581#       发表于 2022-8-12 01:40
+
+卧槽，wisper！
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
