@@ -9209,3 +9209,169 @@ maybe强的版本都是2号位狂吃资源的版本。
 
 跪求里番c化龙，里番c你什么时候才能打出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DDWarrior  
+##### 7077#       发表于 2022-8-11 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多少有点饥不择食了
+
+*****
+
+####  沈淮  
+##### 7078#         楼主| 发表于 2022-8-11 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我个人很讨厌lgd，而且经常被lxo点草 但是今天我才知道我黑lgd的水平不急漏油一根毛，为了干lgd 一个个都成品茶大师了，这也太哈人了
+
+*****
+
+####  百世诸侯  
+##### 7079#       发表于 2022-8-11 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">鹏子透支一下吧
+
+*****
+
+####  聚散浮云  
+##### 7080#       发表于 2022-8-11 13:53
+
+杜鹏真的指望不上，他的犯罪历史和A畜一样能追溯到ti7<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是希望LGD赢的，毕竟是中国队
+
+如果真赢了，到时候水太大就在楼里呆着不出去就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iriyano  
+##### 7081#       发表于 2022-8-11 13:54
+
+国内三🐻
+相信萧瑟
+相信莫奈特
+相信old eleven
+感觉都很艰难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 7082#       发表于 2022-8-11 13:55
+
+扣鹅的漏油差不多得了，真就小学生吵架啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tasuku| + 2|那加回来|
+
+查看全部评分
+
+*****
+
+####  chilno  
+##### 7083#       发表于 2022-8-11 13:55
+
+我在给超哥选c的活动中选到了 burning! 你也来试试吧!<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 7084#       发表于 2022-8-11 13:56
+
+如果张志成bp能暴面八那必然能等到a畜表演，但是这个前提很难
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 7085#       发表于 2022-8-11 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019757&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 13:53</a>
+
+杜鹏真的指望不上，他的犯罪历史和A畜一样能追溯到ti7
+
+我是希望LGD赢的，毕竟是中国队
+
+如果真赢了， ...</blockquote>
+漏油纯良了，去年假赛大浪照样把楼拍了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 7086#       发表于 2022-8-11 13:57
+
+张智成的dota2生涯好像一直都被面八爆的，我不信他能硬起来
+
+*****
+
+####  沈淮  
+##### 7087#         楼主| 发表于 2022-8-11 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019757&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 13:53</a>
+
+杜鹏真的指望不上，他的犯罪历史和A畜一样能追溯到ti7
+
+我是希望LGD赢的，毕竟是中国队
+
+如果真赢了， ...</blockquote>
+u1s1，去年那可是水漫金山，不过bo5输了之后那叫一个戏剧性
+
+我一个人追着十几个人喷，太好玩了
+
+*****
+
+####  聚散浮云  
+##### 7088#       发表于 2022-8-11 13:58
+
+这个版本已经被面8玩透了，2345打架放养1号位就是这版本最先进的战术
+
+不如等大更新创造奇迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tasuku| + 2||
+
+查看全部评分
+
+*****
+
+####  ArowRocher  
+##### 7089#       发表于 2022-8-11 13:59
+
+好消息是还有两个月，坏消息是还有两个月。
+
+楼内茶的声望空前高涨，我不得不去看一下鹏子的虚空了
+
+*****
+
+####  tasuku  
+##### 7090#       发表于 2022-8-11 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019791&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 13:55</a>
+
+扣鹅的漏油差不多得了，真就小学生吵架啊</blockquote>
+算了，确实太他妈的小学生了
+
+*****
+
+####  12481632  
+##### 7091#       发表于 2022-8-11 14:00
+
+不是，漏油们真就已经默认干鳖和茶相聚胜决了？说不定王处和杜鹏今晚就整个大的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

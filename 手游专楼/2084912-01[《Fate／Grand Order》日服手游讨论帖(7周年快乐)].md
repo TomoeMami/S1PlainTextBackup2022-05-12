@@ -7908,3 +7908,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 你不觉得星星溢出了吗？</blockquote>
 要的就是这口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 751#       发表于 2022-8-11 13:53
+
+像街机版一样，第一技能是红卡魔放就没那么多废话了吧
+
