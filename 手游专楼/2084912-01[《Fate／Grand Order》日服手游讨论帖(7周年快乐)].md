@@ -7731,3 +7731,72 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  400个石头歪出了月神，加雷斯2宝，玛德这次估计得吃保底才会有了。
 
+
+
+*****
+
+####  quanlix  
+##### 736#       发表于 2022-8-11 11:03
+
+1池抽了1500石，今年泳装又他妈得10单起步了
+
+*****
+
+####  exiaexa  
+##### 737#       发表于 2022-8-11 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017141&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 10:48</a>
+
+隔壁: 我不听我不听 我就要要打蓝暴   暴伤1t？ 看不见看不见我就是要第2回合打暴击 ...</blockquote>
+别提隔壁了
+
+我现在都怀疑隔壁还有贴吧某些人玩卑梅呆毛的时候
+
+给呆毛和梅林带的是2030而不是宇宙棱镜
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 738#       发表于 2022-8-11 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017395&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-11 11:04</a>
+
+别提隔壁了
+
+我现在都怀疑隔壁还有贴吧某些人玩卑梅呆毛的时候
+
+给呆毛和梅林带的是2030而不是宇宙棱镜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有可能他们根本没玩过
+
+*****
+
+####  exiaexa  
+##### 739#       发表于 2022-8-11 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017438&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 11:06</a>
+
+有没有可能他们根本没玩过</blockquote>
+日服吧推广很久了不至于没玩过啊，刚才在日服吧看见一个贴聊卑梅呆
+
+来一句很多时候要给C呆令咒开宝具
+
+我第一反应是这得是什么级别的究极冤种才会遇到
+
+“卑梅呆的宝具其实转得并不理想，总有需要令咒充能给C呆开宝具的情况。”
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 740#       发表于 2022-8-11 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是C呆还带的红茶学妹
+
+*****
+
+####  AbigailWilliams  
+##### 741#       发表于 2022-8-11 11:11
+
+我给卑倒是带2030的，是不是理解落后了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

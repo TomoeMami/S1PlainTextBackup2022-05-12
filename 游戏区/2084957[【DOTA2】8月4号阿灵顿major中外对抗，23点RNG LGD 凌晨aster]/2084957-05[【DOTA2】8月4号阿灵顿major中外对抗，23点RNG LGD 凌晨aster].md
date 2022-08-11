@@ -6844,3 +6844,238 @@ X_IAE5V90V(W{OFZ2%AIT`Q.jpg
 冰龙这英雄真的有战略价值，可以中单酱油摇摆，而且rngoutsider那场充分表明还很吃机师，玩不好又怕对面 ...</blockquote>
 这个队的bp挺有意思的，夜魔维萨吉谜团冰龙再加个bane，那团打起来就是折磨
 
+
+
+*****
+
+####  沈淮  
+##### 6820#         楼主| 发表于 2022-8-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017333&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 11:00</a>
+
+难受就想想明鞭，明鞭和拿皇、老鸡组队关了两年，还自己手断，终于和NTS、XINQ四人组打出来，又在ti10这种 ...</blockquote>
+撸狗有啥好心疼的，我巴不得他被a畜关中关
+
+*****
+
+####  蛭人  
+##### 6821#       发表于 2022-8-11 11:01
+
+说了啊，全部东家做局，说白了还是集美粉，因为LGD夺冠的话会搁这儿讲假赛？只会说历届ti第一好吧，假赛狗一律打成集美是没有问题的，本质就是替geigei开脱。
+
+*****
+
+####  北条早苗  
+##### 6822#       发表于 2022-8-11 11:02
+
+霉黄ti8之后就再也没硬过了，不酬勤是这样的啊
+
+*****
+
+####  反方向的波  
+##### 6823#       发表于 2022-8-11 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">ehome真算了，要是来打major 3号位zeal把把10分钟2k经济，2号位直接查无此人
+
+*****
+
+####  tontyoutoure  
+##### 6824#       发表于 2022-8-11 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017351&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 11:01</a>
+
+撸狗有啥好心疼的，我巴不得他被a畜关中关</blockquote>
+fb啥时候撸了……
+
+*****
+
+####  ArowRocher  
+##### 6825#       发表于 2022-8-11 11:03
+
+漏油可能还有不知道的，我再说一次，今天是龙之血第三季上线的日子<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  greenegg  
+##### 6826#       发表于 2022-8-11 11:03
+
+s1的霉畜粉还是多的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+霉畜一输，霉畜粉一个个急得跳脚骂a畜，乌烟瘴气帖子硬是被顶到最高半天了都下不去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  w2210059  
+##### 6827#       发表于 2022-8-11 11:03
+
+月鳖不是和套皮人回回联动
+
+*****
+
+####  蛭人  
+##### 6828#       发表于 2022-8-11 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017351&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 11:01</a>
+
+撸狗有啥好心疼的，我巴不得他被a畜关中关</blockquote>
+没毛病啊，我也巴不得他被关，我自从看过ti6夺冠后的wings直播就对明鞭脑浆Y毫无好感，加上后面邪恶队友，wings战队我只认鸡皇。
+
+*****
+
+####  阿垃垃圾历  
+##### 6829#       发表于 2022-8-11 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017371&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-11 11:02</a>
+
+霉黄ti8之后就再也没硬过了，不酬勤是这样的啊</blockquote>
+ti9还能稍微支棱下 ti9之后完全就是在吃老本   目前老本也快丢光了 
+
+*****
+
+####  morwhipppo  
+##### 6830#       发表于 2022-8-11 11:04
+
+<blockquote>tontyoutoure 发表于 2022-8-11 11:03
+fb啥时候撸了……</blockquote>
+开哥，是我
+
+*****
+
+####  莉拉厨  
+##### 6831#       发表于 2022-8-11 11:04
+
+怎么还在聊RNG的分锅问题啊。这次只有卡神是不粘锅的，其他四个都跑不了干系，ana确实只是个替补，但该开的bkb不开暴毙打得丑陋也有问题，至于235我就不说了，打得比石油杯还差，玩啥呢
+
+*****
+
+####  逸一死吾亦死  
+##### 6832#       发表于 2022-8-11 11:05
+
+<blockquote>greenegg 发表于 2022-8-11 11:03
+s1的霉畜粉还是多的
+
+霉畜一输，霉畜粉一个个急得跳脚骂a畜，乌烟瘴气帖子硬是被顶到最高半天了都下 ...</blockquote>
+这下攻击老干瘪的全是生活不如意的霉瘪粉了
+
+*****
+
+####  外挂全家脚气  
+##### 6833#       发表于 2022-8-11 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017409&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-11 11:04</a>
+
+怎么还在聊RNG的分锅问题啊。这次只有卡神是不粘锅的，其他四个都跑不了干系，ana确实只是个替补，但该开的 ...</blockquote>
+卡神的外置大脑过载了，所以脑浆了
+
+*****
+
+####  沈淮  
+##### 6834#         楼主| 发表于 2022-8-11 11:06
+
+脑瘫集美又来分帽子了，令人感叹，你楼基本人均泰迪黑吧，我一个顶两个毕竟斜颚泰迪这个名字还是我帮忙想的
+
+*****
+
+####  Litccc  
+##### 6835#       发表于 2022-8-11 11:06
+
+<img src="https://img.saraba1st.com/forum/202208/11/110636dzyddepqpy5zypfe.png" referrerpolicy="no-referrer">
+
+<strong>1569316379_553804.png</strong> (16.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 11:06 上传
+
+不正确的记忆+1
+
+*****
+
+####  walfeds  
+##### 6836#       发表于 2022-8-11 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别喊了别喊了，第二季还没看呢
+
+杀妹剧情是哪个cs编剧想出来的
+
+*****
+
+####  北条早苗  
+##### 6837#       发表于 2022-8-11 11:07
+
+我信邪恶兄弟是真的把灵魂卖给魔鬼了
+不然也不会在ehome被鸡哥关，职业生涯最后的透支碰上a畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 6838#       发表于 2022-8-11 11:07
+
+那么有没有暗黑象拔蚌支持ehome踩五个人拿下预选的
+
+*****
+
+####  沈淮  
+##### 6839#         楼主| 发表于 2022-8-11 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017380&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 11:03</a>
+
+fb啥时候撸了……</blockquote>
+？你一个斜颚双雄粉连撸狗鞭都要洗？要点脸吧
+
+*****
+
+####  greenegg  
+##### 6840#       发表于 2022-8-11 11:08
+
+奉劝霉畜尽早开播，别等到这群畜粉给霉畜人缘做完了，直播间几个贵宾都不剩。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+怕是别成了第二个简自豪<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 沈淮|-1|这么懂撸狗？|
+
+查看全部评分
+
+
+
+*****
+
+####  名字不乱取  
+##### 6841#       发表于 2022-8-11 11:09
+
+集美漏油的脑子好像不太好捏，你楼不是没比赛看的时候都在轮ame？还要冠超输的像条狗一样做背景版？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6842#       发表于 2022-8-11 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017474&amp;ptid=2084957" target="_blank">greenegg 发表于 2022-8-11 11:08</a>
+
+奉劝霉畜尽早开播，别等到这群畜粉给霉畜人缘做完了，直播间几个贵宾都不剩。
+
+怕是别成了第二个简自 ...</blockquote>
+不装了是吧？
+
+*****
+
+####  沈淮  
+##### 6843#         楼主| 发表于 2022-8-11 11:09
+
+还是个撸狗，刻板印象+1了
+
+*****
+
+####  izayoi39  
+##### 6844#       发表于 2022-8-11 11:10
+
+eh出预选挺难的，eh这个队只会打4保1人员配置，23只会打工具人看着1号位shiro刷出无解肥出来能拯救世界就赢拯救不了就输
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
