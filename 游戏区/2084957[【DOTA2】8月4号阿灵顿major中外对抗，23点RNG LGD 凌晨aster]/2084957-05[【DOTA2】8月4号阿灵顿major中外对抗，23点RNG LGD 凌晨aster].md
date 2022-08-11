@@ -3306,3 +3306,557 @@ xnova单防ana!
 
 丢了个爹
 
+
+
+*****
+
+####  千千千千鸟  
+##### 6423#       发表于 2022-8-11 08:52
+
+GG喽
+
+*****
+
+####  Keynes  
+##### 6424#       发表于 2022-8-11 08:52
+
+鳖了，司徒泰迪
+
+*****
+
+####  阿垃垃圾历  
+##### 6425#       发表于 2022-8-11 08:52
+
+GG  
+
+*****
+
+####  5678给  
+##### 6426#       发表于 2022-8-11 08:52
+
+感觉又要看到集美起跳了，555
+
+*****
+
+####  逃离二次元  
+##### 6427#       发表于 2022-8-11 08:52
+
+鳖了，司徒泰迪
+
+*****
+
+####  甩不出去的黄牌  
+##### 6428#       发表于 2022-8-11 08:53
+
+回家打预选咯
+
+*****
+
+####  沈淮  
+##### 6429#         楼主| 发表于 2022-8-11 08:53
+
+好似，这盘火猫要走优势路，不给ana玩？你配吗
+
+*****
+
+####  ArowRocher  
+##### 6430#       发表于 2022-8-11 08:53
+
+打肌肉DOTA是拳怕少壮的呀
+
+*****
+
+####  迷途lite  
+##### 6431#       发表于 2022-8-11 08:53
+
+赶着回来过中秋呢是吧，传统节日不行
+
+*****
+
+####  Asukalangley33  
+##### 6432#       发表于 2022-8-11 08:53
+
+刷新吃兵哈哈哈
+
+666这个B还是会搞啊
+
+*****
+
+####  端木恋心  
+##### 6433#       发表于 2022-8-11 08:53
+
+这下rng回家了。打预选了啊。
+说起来中国区预选几个名额啊。是不是2+1啊。两个直接去一个外卡啊。
+
+*****
+
+####  Keynes  
+##### 6434#       发表于 2022-8-11 08:53
+
+这rng把ana找来给a畜送弹药是吧，铁集美
+
+*****
+
+####  反方向的波  
+##### 6435#       发表于 2022-8-11 08:53
+
+鳖了，司徒泰迪
+
+*****
+
+####  遗尿  
+##### 6436#       发表于 2022-8-11 08:53
+
+说不定是三人组复仇ana，ana则是卧底RNG，双方都带着任务。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6437#       发表于 2022-8-11 08:53
+
+xnova这老奶奶，我吐了，饼干打团永远是帮对面，打团大招几乎很少有用，刚才那波远古野团，死了才放大，太吊了。
+
+*****
+
+####  hcf220  
+##### 6438#       发表于 2022-8-11 08:53
+
+各位该上班上班，该睡觉睡觉，该治精神内耗治精神内耗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nomhrpls  
+##### 6439#       发表于 2022-8-11 08:54
+
+<blockquote>端木恋心 发表于 2022-8-11 08:53
+这下rng回家了。打预选了啊。
+
+说起来中国区预选几个名额啊。是不是2+1啊。两个直接去一个外卡啊。 ...</blockquote>
+是1+2
+
+*****
+
+####  Horusddt  
+##### 6440#       发表于 2022-8-11 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015326&amp;ptid=2084957" target="_blank">端木恋心 发表于 2022-8-11 08:53</a>
+这下rng回家了。打预选了啊。
+说起来中国区预选几个名额啊。是不是2+1啊。两个直接去一个外卡啊。 ...</blockquote>
+反了，1个预选2个外卡
+
+*****
+
+####  zhliiiii  
+##### 6441#       发表于 2022-8-11 08:54
+
+吐了 这几个逼紫菜吧
+
+*****
+
+####  Litccc  
+##### 6442#       发表于 2022-8-11 08:54
+
+2022年集美居然能和ana和解，有点魔幻了
+
+*****
+
+####  12481632  
+##### 6443#       发表于 2022-8-11 08:54
+
+恭喜小象兵分四路齐聚预选
+
+*****
+
+####  wyns  
+##### 6444#       发表于 2022-8-11 08:54
+
+xnova今年打完要回虾之国了吧
+
+*****
+
+####  hcf220  
+##### 6445#       发表于 2022-8-11 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015344&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-11 08:54</a>
+2022年集美居然能和ana和解，有点魔幻了</blockquote>
+时间能抹除一切
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 6446#       发表于 2022-8-11 08:54
+
+这就是辞职也要看的阿灵顿major
+
+*****
+
+####  morwhipppo  
+##### 6447#       发表于 2022-8-11 08:54
+
+杰畜好急，好怕李斯回来和他抢ti11精锐解说
+
+*****
+
+####  trackerList  
+##### 6448#       发表于 2022-8-11 08:54
+
+#查询吉隆坡天气
+
+*****
+
+####  acalephs  
+##### 6449#       发表于 2022-8-11 08:55
+
+回家咯
+
+*****
+
+####  逃离二次元  
+##### 6450#       发表于 2022-8-11 08:55
+
+这下欧洲区和中国区预选赛都要血腥起来了
+
+
+
+*****
+
+####  天堂蜘蛛  
+##### 6451#       发表于 2022-8-11 08:55
+
+超哥劣势路自带隐身buff<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 6452#       发表于 2022-8-11 08:55
+
+周末还要去现场看，不能跟maybe合影了
+
+*****
+
+####  一品堂官  
+##### 6453#       发表于 2022-8-11 08:55
+
+铁血预选。
+
+*****
+
+####  聚散浮云  
+##### 6454#       发表于 2022-8-11 08:55
+
+vp这种脑浆肌肉队怎么打rng看起来也长脑子了啊，吃rng补脑么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6455#         楼主| 发表于 2022-8-11 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">xnova没队要不是没理由的啊，跟ti7的afu一样伤仲永了
+
+*****
+
+####  snarc1  
+##### 6456#       发表于 2022-8-11 08:56
+
+完了，要被吸人气了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  haruhiismer  
+##### 6457#       发表于 2022-8-11 08:56
+
+冠晴治好了我的精神内耗
+
+*****
+
+####  ArowRocher  
+##### 6458#       发表于 2022-8-11 08:56
+
+小天使以前保ame的，有感情，能处。
+
+*****
+
+####  天堂蜘蛛  
+##### 6459#       发表于 2022-8-11 08:56
+
+这局不就是纯粹肌肉拼不过么，拳怕少壮哇
+
+*****
+
+####  Horusddt  
+##### 6460#       发表于 2022-8-11 08:56
+
+vp的bp是比rng有脑子的
+
+*****
+
+####  lyjssj  
+##### 6461#       发表于 2022-8-11 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回家拉着鬼好好打预选吧还是
+
+*****
+
+####  trackerList  
+##### 6462#       发表于 2022-8-11 08:56
+
+要是泰迪今年88burden了能把熊熊从地下室放出来吗
+
+*****
+
+####  ArowRocher  
+##### 6463#       发表于 2022-8-11 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015367&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-11 08:55</a>
+周末还要去现场看，不能跟maybe合影了</blockquote>
+门票贵吗
+
+*****
+
+####  haruhiismer  
+##### 6464#       发表于 2022-8-11 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015393&amp;ptid=2084957" target="_blank">trackerList 发表于 2022-8-11 08:56</a>
+要是泰迪今年88burden了能把熊熊从地下室放出来吗</blockquote>
+不上场就是最强的看好复出以后更尿
+
+*****
+
+####  沈淮  
+##### 6465#         楼主| 发表于 2022-8-11 08:57
+
+别setsu了，之前跟41太监组队打海选的蓝猫不如cty
+
+*****
+
+####  morwhipppo  
+##### 6466#       发表于 2022-8-11 08:57
+
+只能看ig了，即使这么畜的rng带个鬼还是乱打xg
+
+*****
+
+####  百世诸侯  
+##### 6467#       发表于 2022-8-11 08:57
+
+<img src="https://img.saraba1st.com/forum/202208/11/085716qh3jhi1m7mhgg9o7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 08:57 上传
+
+EG要给BC跪下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中已矣  
+##### 6468#       发表于 2022-8-11 08:57
+
+恭喜ANA解脱了，当初为啥脑抽答应了呢。
+
+*****
+
+####  莉拉厨  
+##### 6469#       发表于 2022-8-11 08:58
+
+多0.05分笑嘻了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 6470#       发表于 2022-8-11 08:58
+
+这盘也没感觉VP有什么脑子啊，gpk前面一直上头干
+
+纯粹就是不用脑子的碰撞没碰赢
+
+*****
+
+####  华发夜眼[CN]  
+##### 6471#       发表于 2022-8-11 08:58
+
+恭喜rng！
+
+*****
+
+####  nightmare902015  
+##### 6472#       发表于 2022-8-11 08:58
+
+东南亚人保质期也太短了吧，指xnova。
+这**怎么那么能抗又a得那么快，就bkb分身魔龙枪就已经抽搐的和一个疯了的蛆一样。
+
+*****
+
+####  沈淮  
+##### 6473#         楼主| 发表于 2022-8-11 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015421&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 08:58</a>
+这盘也没感觉VP有什么脑子啊，gpk前面一直上头干
+
+纯粹就是不用脑子的碰撞没碰赢 ...</blockquote>
+滚雪球效应，我都不知道rng对内怎么沟通的，没dp居然敢动vip的手，直接买一送一
+
+*****
+
+####  恐怖利刃  
+##### 6474#       发表于 2022-8-11 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015396&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 08:57</a>
+门票贵吗</blockquote>
+周六60刀，周日80刀
+
+*****
+
+####  chilno  
+##### 6475#       发表于 2022-8-11 08:59
+
+安皇赶紧去找topson凑个队吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 6476#       发表于 2022-8-11 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015412&amp;ptid=2084957" target="_blank">中已矣 发表于 2022-8-11 08:57</a>
+恭喜ANA解脱了，当初为啥脑抽答应了呢。</blockquote>
+ANA无所谓啊，反正就当酬勤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minysun  
+##### 6477#       发表于 2022-8-11 08:59
+
+<img src="https://img.saraba1st.com/forum/202208/11/085916wmk9m999bkqujjbm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220811085902.png</strong> (20.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 08:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">集美论坛还是有水平的
+
+*****
+
+####  沈淮  
+##### 6478#         楼主| 发表于 2022-8-11 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015427&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-11 08:58</a>
+东南亚人保质期也太短了吧，指xnova。
+这**怎么那么能抗又a得那么快，就bkb分身魔龙枪就已经抽搐的和一个疯 ...</blockquote>
+兽王一身buff兄弟
+
+*****
+
+####  AkaiSuisei  
+##### 6479#       发表于 2022-8-11 08:59
+
+这届后面跟鳖星了
+
+*****
+
+####  万世创伤伊莫库  
+##### 6480#       发表于 2022-8-11 08:59
+
+感觉沟通问题还是太大了，特别是1号位先知这种要求起节奏特别严格的
+
+
+
+*****
+
+####  acejoe  
+##### 6481#       发表于 2022-8-11 09:00
+
+冠超打法早就落后版本了，就是威斯特布鲁克，早年靠身体刷场均3双，老了不会打球，不持球不会打球，防守还拉了。
+
+*****
+
+####  沈淮  
+##### 6482#         楼主| 发表于 2022-8-11 09:00
+
+怎么现在那么多人不把兽王的光环当回事了... 
+
+*****
+
+####  iriyano  
+##### 6483#       发表于 2022-8-11 09:01
+
+gpk大霉皇！
+
+*****
+
+####  秘奥闪光  
+##### 6484#       发表于 2022-8-11 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015427&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-11 08:58</a>
+
+东南亚人保质期也太短了吧，指xnova。
+
+这**怎么那么能抗又a得那么快，就bkb分身魔龙枪就已经抽搐的和一个疯 ...</blockquote>
+兽王光环，还有个野怪buff吧
+
+*****
+
+####  中已矣  
+##### 6485#       发表于 2022-8-11 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015437&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 08:59</a>
+
+ANA无所谓啊，反正就当酬勤了</blockquote>
+对身体不好，高分路人都没这样的
+
+*****
+
+####  subject07  
+##### 6486#       发表于 2022-8-11 09:01
+
+rng最失败的一点是不知道给厨子选肉核，就这隐身5号位和保kda型2号位，13号位不肉点团战永远场面是少打多
+
+*****
+
+####  阿垃垃圾历  
+##### 6487#       发表于 2022-8-11 09:01
+
+好好打预选吧    
+
+*****
+
+####  北条早苗  
+##### 6488#       发表于 2022-8-11 09:01
+
+好啊，看一眼就备战预选了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  万世创伤伊莫库  
+##### 6489#       发表于 2022-8-11 09:01
+
+**这把有兽王一身BUFF的，所以夜宴野区那波**的战斗力比常规时间要高得多
+
+*****
+
+####  Litccc  
+##### 6490#       发表于 2022-8-11 09:01
+
+肌肉dota还得看gpk，不愧是**人柱力
+
+*****
+
+####  Asukalangley33  
+##### 6491#       发表于 2022-8-11 09:01
+
+现在的情况是VP直邀看自己，EG看BC FNATIC脸色了吧？
+
+看好FNATIC VP把EG这群B挤出去<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
