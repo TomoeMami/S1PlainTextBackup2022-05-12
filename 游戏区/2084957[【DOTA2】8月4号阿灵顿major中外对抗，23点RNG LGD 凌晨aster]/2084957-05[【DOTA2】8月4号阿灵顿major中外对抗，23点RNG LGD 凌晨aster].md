@@ -10957,3 +10957,136 @@ yysy，蚂蚁这个梗是这届major最好笑的了。逆风缩地，放蝗虫�
 
 原来漏油都是可以上班看比赛，五点下班，还有大奶女同事开黑的。只有我辞职看比赛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 7262#         楼主| 发表于 2022-8-11 16:50
+
+城墙加个有个毛用，一堆婆罗门集美又不是没见过
+
+*****
+
+####  名字不乱取  
+##### 7263#       发表于 2022-8-11 16:51
+
+漏油不是都辞职看比赛，哪来的大奶女同事<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 7264#       发表于 2022-8-11 16:52
+
+那只能施行楼内自治权了？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7265#       发表于 2022-8-11 16:53
+
+楼内自治权，真就管人区是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 7266#         楼主| 发表于 2022-8-11 16:55
+
+八字都没一撇就开始想着lgd夺冠之后的事了，漏油真的令人感叹
+
+*****
+
+####  百世诸侯  
+##### 7267#       发表于 2022-8-11 16:55
+
+管人区独属规矩，游戏区没楼内自治权。
+
+可以去管人区开个dodo真爱楼，假装讨论管人，实际移花接木，还能用楼内自治权驱逐集美，妙啊妙啊
+
+*****
+
+####  北条早苗  
+##### 7268#       发表于 2022-8-11 16:56
+
+别在这发病了，不如讨论一下今晚两场胜决的比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 7269#       发表于 2022-8-11 16:57
+
+管人区有萧瑟哥哥真爱楼，我推荐那个地方
+
+*****
+
+####  夜光铃  
+##### 7270#       发表于 2022-8-11 16:57
+
+犹记得当年ti4…
+
+*****
+
+####  nowaki  
+##### 7271#       发表于 2022-8-11 16:57
+
+有没有可能s1本来就有dota区
+
+*****
+
+####  沈淮  
+##### 7272#         楼主| 发表于 2022-8-11 16:58
+
+有没有可能s1本来就有dota区
+
+*****
+
+####  沈淮  
+##### 7273#         楼主| 发表于 2022-8-11 16:58
+
+漏油一人v我50，我找二狗买个版主好了
+
+*****
+
+####  逃离二次元  
+##### 7274#       发表于 2022-8-11 16:58
+
+有没有可能s1本来就有dota区
+
+*****
+
+####  莉拉厨  
+##### 7275#       发表于 2022-8-11 16:59
+
+讨论个屁，早上7点起床看茶队被暴打就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 7276#       发表于 2022-8-11 16:59
+
+今晚茶64开，lgd91开好吧
+
+*****
+
+####  CNFH1984  
+##### 7277#       发表于 2022-8-11 16:59
+
+买版主要多少钱啊，可以众筹，支持众筹！
+
+*****
+
+####  walfeds  
+##### 7278#       发表于 2022-8-11 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022174&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 16:58</a>
+
+漏油一人v我50，我找二狗买个版主好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友一人50怕是凑不齐0.01个版主
+
+*****
+
+####  哈曼的YY  
+##### 7279#       发表于 2022-8-11 17:00
+
+众筹版主0/10
+
