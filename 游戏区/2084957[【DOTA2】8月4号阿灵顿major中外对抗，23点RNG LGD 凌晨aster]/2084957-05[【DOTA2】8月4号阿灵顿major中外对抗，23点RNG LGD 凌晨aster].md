@@ -8206,3 +8206,195 @@ nts跟以前的 afu xnova都处于自己的适应性版本，等圣水符没了�
 
 喷了，看到说是RNG的隔壁粉丝群在喷这边，说丢他们的脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 6965#       发表于 2022-8-11 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018417&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 12:06</a>
+
+最后瑞平一下处长最后的遮羞布保险杠猴子爹NTS。NTS可以说是这个队伍里面唯一一个纯白人物了，不论 ...</blockquote>
+应该吹面八教练有一手，文爱胖子当初毒瘤3都被快喷没了，面八**洗成了小FY，牛魔王秀的飞起
+
+NTS本来在东南亚鱼队没打出来，来EH后也偏发育，TI尿裤子不敢玩TK也是被命令玩的
+
+3、5不好讲，去EH也脑浆了一段时间，塞拉来了后倒是起飞了，磨合久了还是有用的
+
+*****
+
+####  CNFH1984  
+##### 6966#       发表于 2022-8-11 12:11
+
+我出于私心还是小洗一下Rng，上帝本身就自闭，又刚到队里没多久，估计打起来都不太好沟通
+
+如果是汇合了鬼的完全体Rng，我其实还是挺看好至少拿个直邀的……
+
+*****
+
+####  尸体鲨  
+##### 6967#       发表于 2022-8-11 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁跟你RNG粉丝啊
+
+*****
+
+####  CNFH1984  
+##### 6968#       发表于 2022-8-11 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018480&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 12:10</a>
+
+应该吹面八教练有一手，文爱胖子当初毒瘤3都被快喷没了，面八**洗成了小FY，牛魔王秀的飞起
+
+NTS本来在东 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">我不能和解的名单上排第一的就是处长，排第二的就是毒狗8呀！
+
+这是不能吹的
+
+*****
+
+####  逃离二次元  
+##### 6969#       发表于 2022-8-11 12:13
+
+谁跟你RNG粉丝啊
+
+*****
+
+####  JoelBirch  
+##### 6970#       发表于 2022-8-11 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018255&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 11:57</a>
+顺带说一下老干瘪，处长的对线能力其实是守门员级别的，低过某条水平线的3处长在线上能有模有样，但真要遇 ...</blockquote>
+你要说去年赵子星打法走钢丝就罢了，今年他这个吸血已经少很多了对团队影响没那么大，与其说FY第二，不如说是个卡卡加强版，明鞭很大程度上已经被解放了
+
+*****
+
+####  何然  
+##### 6971#       发表于 2022-8-11 12:14
+
+支持全华班中国队！支持全华班！
+
+*****
+
+####  ArowRocher  
+##### 6972#       发表于 2022-8-11 12:14
+
+<img src="https://img.saraba1st.com/forum/202208/11/121429nkajv8g8j8rkqqjc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 12:14 上传
+
+*****
+
+####  CNFH1984  
+##### 6973#       发表于 2022-8-11 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018518&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-11 12:13</a>
+
+你要说去年赵子星打法走钢丝就罢了，今年他这个吸血已经少很多了对团队影响没那么大，与其说FY第二，不如 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我的意思吸血不等于走钢丝，走钢丝不等于吸血
+
+嗳不过这个感觉很难描述，我现在又基本是云玩家，这点上漏油说啥就啥罢
+
+*****
+
+####  acalephs  
+##### 6974#       发表于 2022-8-11 12:14
+
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/10/201430bg9499ytzneqanhr.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220810211422.png</strong> (145.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 12:14 上传
+
+*****
+
+####  战狼PTSD  
+##### 6975#       发表于 2022-8-11 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018509&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 12:12</a>
+
+我不能和解的名单上排第一的就是处长，排第二的就是毒狗8呀！
+
+这是不能吹的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我毒狗8虽然下菜、小天鹅还内斗，但是有TI盾啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要怪就怪面八200块一把让鹿乃练滚滚，但是没让NTS练，还在决赛相信四保一
+
+*****
+
+####  白色的120  
+##### 6976#       发表于 2022-8-11 12:16
+
+ 本帖最后由 白色的120 于 2022-8-11 12:19 编辑 
+
+太监论坛又开始借rng淘汰洗a➗了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+<img src="https://pic.imgdb.cn/item/62f4829d16f2c2beb1f22dbe.jpg" referrerpolicy="no-referrer">
+集美司马
+<img src="https://pic.imgdb.cn/item/62f4835b16f2c2beb1f429b7.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 6977#       发表于 2022-8-11 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018435&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 12:07</a>
+
+搬一波完美的战报吧，这文案最近挺火的，但是漏油明显更喜欢兄弟论坛</blockquote>
+看一次两次还行，看多了就会发觉除了文笔没什么信息量
+
+*****
+
+####  沈淮  
+##### 6978#         楼主| 发表于 2022-8-11 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018535&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 12:14</a></blockquote>
+pa吗
+
+*****
+
+####  ArowRocher  
+##### 6979#       发表于 2022-8-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018569&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 12:16</a>
+
+看一次两次还行，看多了就会发觉除了文笔没什么信息量</blockquote>
+是的，有时候过于强调文字美而没东西，看完了不知道打了什么玩意
+
+*****
+
+####  ArowRocher  
+##### 6980#       发表于 2022-8-11 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018570&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 12:16</a>
+
+pa吗</blockquote>
+pa
+
+我很想troll一下回答一个101英雄，可惜我不认识
+
+*****
+
+####  JoelBirch  
+##### 6981#       发表于 2022-8-11 12:18
+
+不是，PA那么精致的脸啊非得画个傻逼头盔，这玩意儿我愿称之为最丑饰品
+
+*****
+
+####  修罗王  
+##### 6982#       发表于 2022-8-11 12:20
+
+<blockquote>morwhipppo 发表于 2022-8-11 11:45
+可别忘了还有bb和navi，奇迹鳖大概率游不出来了</blockquote>
+bb人都不齐了，还bb
+
