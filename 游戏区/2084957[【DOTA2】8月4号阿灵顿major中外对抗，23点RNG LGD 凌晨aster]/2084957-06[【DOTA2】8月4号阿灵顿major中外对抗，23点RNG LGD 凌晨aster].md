@@ -3075,3 +3075,56 @@ monet会玩大圣吗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又陈+电魂，茶有啥对策
 
+
+
+*****
+
+####  haruhiismer  
+##### 7897#       发表于 2022-8-12 07:43
+
+哇有点陈加电魂打你就这一套
+
+*****
+
+####  snarc1  
+##### 7898#       发表于 2022-8-12 07:44
+
+红温了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Litccc  
+##### 7899#       发表于 2022-8-12 07:44
+
+可以去败者组了，国土估计还没想明白怎么打这套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 7900#       发表于 2022-8-12 07:48
+
+感觉bbk这个major永远在玩小小
+
+*****
+
+####  Aeons  
+##### 7901#       发表于 2022-8-12 07:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">茶bp的好快
+
+*****
+
+####  反方向的波  
+##### 7902#       发表于 2022-8-12 07:49
+
+杜鹏儿的炼金也能上ban？<img src="https://p.sda1.dev/6/6acb1fab6f34fd241c9086c11319170e/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 7903#       发表于 2022-8-12 07:50
+
+这把全看xxs了，这阵容比上把还难打。
+
