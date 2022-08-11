@@ -9305,3 +9305,12 @@ v要皮套丑可不行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2416#       发表于 2022-8-11 19:15
+
+当时那个主视觉图出来的时候有人认为不值得参考，我寻思那图是斋藤敦史画的，可不是随便找啥人整出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
