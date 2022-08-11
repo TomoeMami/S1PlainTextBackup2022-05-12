@@ -238,3 +238,26 @@ bc是真的想关rtz<img src="https://static.saraba1st.com/image/smiley/face2017
 
 别给Wisper选蝙蝠了，给了力中暴力的英雄吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bc只能靠他了
 
+
+
+*****
+
+####  nowaki  
+##### 7532#       发表于 2022-8-12 00:12
+
+只要vp不赢下一轮，你rtz哥哥还是躺进ti的
+
+*****
+
+####  名字不乱取  
+##### 7533#       发表于 2022-8-12 00:13
+
+k1吃了对面五个ban位，克神还是没有拿出他的风行，感觉这次major很难见到我最爱的拆分电锤了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 7534#       发表于 2022-8-12 00:16
+
+蝙蝠已经是wisper绝中绝了，再不只能操刀三号位帕克了
+
