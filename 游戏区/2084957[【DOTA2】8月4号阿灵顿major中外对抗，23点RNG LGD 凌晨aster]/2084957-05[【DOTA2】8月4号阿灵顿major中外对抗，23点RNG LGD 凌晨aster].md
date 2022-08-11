@@ -11945,3 +11945,24 @@ rng高概率就是和小象一样了。
 
 话说为啥去年白虎身心没有女皇款式的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 7378#       发表于 2022-8-11 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023902&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-11 19:21</a>
+
+话说为啥去年白虎身心没有女皇款式的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能想像小卡尔那样再卖一波
+
+*****
+
+####  沈淮  
+##### 7379#         楼主| 发表于 2022-8-11 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023902&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-11 19:21</a>
+话说为啥去年白虎身心没有女皇款式的</blockquote>
+没记错的话，好像出的时候还么更新？
+

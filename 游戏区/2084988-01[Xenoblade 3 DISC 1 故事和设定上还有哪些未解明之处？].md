@@ -1760,3 +1760,38 @@ z说他是剑的主人，可能那个剑只认他吧。mio应该就是妮娅女�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  shellingnie  
+##### 156#       发表于 2022-8-11 19:33
+
+staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头拉远，但还是可以看到诺亚的，但几只鸽子飞过后诺亚就凭空消失了，这是个啥寓意？
+
+—— 来自 samsung SM-G9910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  塔奇克马  
+##### 157#       发表于 2022-8-11 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019947&amp;ptid=2084988" target="_blank">hypnossz86 发表于 2022-8-11 14:06</a>
+
+现在这么一想，制作组才是那个怕得罪前作粉而不敢推进时间的幕后黑手吧
+
+怕后续写不好得罪一二代粉丝，却又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">原来制作组就是Z
+
+*****
+
+####  Dashuaibi  
+##### 158#       发表于 2022-8-11 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023998&amp;ptid=2084988" target="_blank">UltramanPain 发表于 2022-8-11 19:27</a>
+
+个人觉得季票的篇幅，不太可能会原创一个新主角。
+
+如果需要隐藏形象的第七始祖是季票的主角的话，大概率是 ...</blockquote>
+第七始祖不就是创造了衔尾蛇之石的尼娅吗，还能有其他人的？
+

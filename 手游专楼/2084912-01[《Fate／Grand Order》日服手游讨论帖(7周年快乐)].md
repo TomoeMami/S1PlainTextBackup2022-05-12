@@ -8018,3 +8018,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 伊吹无感 绘里濑挺想要一只 能不能跟武后换一换池子<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 761#       发表于 2022-8-11 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以给杨贵妃一个主动技能上DB就那么难吗
+
