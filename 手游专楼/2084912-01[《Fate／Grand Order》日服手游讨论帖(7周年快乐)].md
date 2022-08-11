@@ -7949,3 +7949,32 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 对泳装cba最大的不安是她的职阶，你游五星尺子基本是花活的代名词，搞的好了像卑能在某方面独当一面，搞不 ...</blockquote>
 我觉得在泳装活动想要通用大拐 本身就有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 755#       发表于 2022-8-11 18:13
+
+<img src="https://img.saraba1st.com/forum/202208/11/180907bz3ua7tmt4mu33zu.jpg" referrerpolicy="no-referrer">
+
+<strong>1660212512978.jpg</strong> (499.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 18:09 上传
+
+仇绘里濑好像不弱啊，宝具是蓝卡UP+诅咒特攻，一技能等同于水伽摩一技能；二技能是寄予对方全体诅咒且自身获得嘲讽+被攻击时减敌人防御，和伽摩一样可以宝具特攻一面；三技能是枪阶三技能的强化版，35的从者特攻。
+
+和X兰丸一样算是伽摩的下位和替代品吧，缺点是没有自充。
+
+*****
+
+####  qixinno2  
+##### 756#       发表于 2022-8-11 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023157&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-11 18:13</a>
+
+仇绘里濑好像不弱啊，宝具是蓝卡UP+诅咒特攻，一技能等同于水伽摩一技能；二技能是寄予对方全体诅咒且自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不是有自充么
+
