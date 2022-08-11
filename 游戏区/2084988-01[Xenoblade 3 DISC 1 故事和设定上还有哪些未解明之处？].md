@@ -1924,3 +1924,26 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 
 —— 来自 realme RMX3031, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ouyang菌  
+##### 172#       发表于 2022-8-11 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57024954&amp;ptid=2084988" target="_blank">Shih0_Matsuri 发表于 2022-08-11 20:34:32</a>
+都没人说m和n的后代的事情吗？游戏流程里毫无痕迹
+
+—— 来自 realme RMX3031, Android 12上的  v2.5.4 ...</blockquote>好像有说到被n屠都市的时候杀了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  鶴卷和哉  
+##### 173#       发表于 2022-8-11 20:43
+
+<blockquote>医生狼多 发表于 2022-8-3 16:44
+为啥nm能一直轮回，每次轮回都有一样的宿命?剑又为啥每次都在他们手里?</blockquote>
+全世界所有人都能一同轮回啊....死了就培养舱再出来这不是所有人都一样的。轮回也不是一样的宿命，就打仗没打过的，有生老病死的，这怎么一样。剑为啥在手里这确实是个问题。
+
