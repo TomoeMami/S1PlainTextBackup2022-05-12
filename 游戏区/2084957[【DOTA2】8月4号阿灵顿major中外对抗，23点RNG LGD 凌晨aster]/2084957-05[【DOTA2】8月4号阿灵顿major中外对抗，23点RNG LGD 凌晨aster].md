@@ -10179,3 +10179,108 @@ TI就不好说了，但大概率不会大改。要改也是削弱，石油杯和
 
 v社铁集美 lgd不冠不改
 
+
+
+*****
+
+####  逃离二次元  
+##### 7177#       发表于 2022-8-11 15:31
+
+v社铁集美 lgd不冠不改
+
+*****
+
+####  woyzeck  
+##### 7178#       发表于 2022-8-11 15:32
+
+这Gaben看着就一副incel样估计喝到ru水已经乐的找不着北了
+
+*****
+
+####  CNFH1984  
+##### 7179#       发表于 2022-8-11 15:33
+
+v社铁集美 lgd不冠不改
+
+*****
+
+####  百世诸侯  
+##### 7180#       发表于 2022-8-11 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020908&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 15:24</a>
+
+这个Major八王不瞎搞，还是老干爹的版本
+
+TI就不好说了，但大概率不会大改。要改也是削弱，石油杯和Major可 ...</blockquote>
+楼里就你还没辞职了
+
+*****
+
+####  ArowRocher  
+##### 7181#       发表于 2022-8-11 15:35
+
+什么意思，神圣一跳不砍？那给亚龙也来个起飞吧
+
+*****
+
+####  walfeds  
+##### 7182#       发表于 2022-8-11 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">明天一早还要出差，落泪
+
+*****
+
+####  12481632  
+##### 7183#       发表于 2022-8-11 15:36
+
+v社铁集美 lgd不冠就改到lgd夺冠
+
+*****
+
+####  ArowRocher  
+##### 7184#       发表于 2022-8-11 15:36
+
+magnet:?xt=urn:btih:17d3f63ebb51e6da1518f6b81e751a2f697458d8&amp;dn=DOTA.Dragons.Blood.S03.1080p.NF.WEBRip.DDP5.1.x264-SMURF%5Brartv%5D&amp;tr=http%3A%2F%2Ftracker.trackerfix.com%3A80%2Fannounce&amp;tr=udp%3A%2F%2F9.rarbg.me%3A2840&amp;tr=udp%3A%2F%2F9.rarbg.to%3A2950&amp;tr=udp%3A%2F%2Ftracker.fatkhoala.org%3A13770&amp;tr=udp%3A%2F%2Ftracker.tallpenguin.org%3A15730  
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+DOTA.Dragons.Blood.S03.1080p.NF.WEBRip.DDP5.1.x264-SMURF[rartv]-[rarbg.to].torrent
+
+2022-8-11 15:36 上传
+点击文件名下载附件
+
+26.33 KB, 下载次数: 0
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| secretgarnet| + 1||
+
+查看全部评分
+
+*****
+
+####  阿垃垃圾历  
+##### 7185#       发表于 2022-8-11 15:36
+
+连着几天看比赛  是有点累 今晚2点 5点的还得考虑下看不看  干脆早上起来看录像得了 
+
+*****
+
+####  百世诸侯  
+##### 7186#       发表于 2022-8-11 15:39
+
+龙之血第一季还行，第二季开始就不好看了，结尾烂完了，当然可能跟疫情赶工有关，结果又强行上第三季，这破动画还续订啊？求求不要再有第四季了。
+
+*****
+
+####  ArowRocher  
+##### 7187#       发表于 2022-8-11 15:40
+
+T1踢了自家 1 2号位
+
