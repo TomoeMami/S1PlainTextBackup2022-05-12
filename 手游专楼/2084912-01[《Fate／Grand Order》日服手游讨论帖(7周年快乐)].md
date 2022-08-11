@@ -7827,3 +7827,28 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 说实话真要周回出场的话，旧梅换个攻击宝具要好很多。
 
+
+
+*****
+
+####  白金口袋  
+##### 744#       发表于 2022-8-11 11:42
+
+跟剧情没毛线关系的岩窟王突然冒出来莫非这次又是樱井<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 745#       发表于 2022-8-11 11:45
+
+根据我昨晚到现在10管体力刷仪式剑的测试
+
+如果有人跟我一样是，只看礼装打死不想滑动挑人的袋冤种
+
+那我建议你使用C呆+旧梅+换人徐福，礼装用新年学妹（纯atk，宝威20NP15蓝魔放15）
+
+可以让水杀生院这个级别的顺利过关
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+否则不如立省990
+

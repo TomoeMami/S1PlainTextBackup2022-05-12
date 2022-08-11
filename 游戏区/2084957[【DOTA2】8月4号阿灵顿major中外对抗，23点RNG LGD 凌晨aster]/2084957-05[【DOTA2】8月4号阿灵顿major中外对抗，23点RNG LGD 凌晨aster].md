@@ -7686,3 +7686,146 @@ a畜这玩意连续三届ti带着国内最好的2345组合在决赛日小丑基�
 这次会刷新历史记录只有三个西恩队进ti吗</blockquote>
 只能说大概率事件，直邀2+预选1，外卡阵容现在已经血雨腥风了
 
+
+
+*****
+
+####  ArowRocher  
+##### 6915#       发表于 2022-8-11 11:41
+
+ 本帖最后由 ArowRocher 于 2022-8-11 11:48 编辑 
+
+草 ana卖mkb被做成gif在 r/dota单发了一楼
+
+*****
+
+####  外挂全家脚气  
+##### 6916#       发表于 2022-8-11 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018014&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 11:41</a>
+
+草 ana卖bkb被做成gif在 r/dota单发了一楼</blockquote>
+MKB吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ArowRocher| + 1|改正了|
+
+查看全部评分
+
+*****
+
+####  tontyoutoure  
+##### 6917#       发表于 2022-8-11 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017468&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 11:08</a>
+
+？你一个斜颚双雄粉连撸狗鞭都要洗？要点脸吧</blockquote>
+啊呀要说我撸狗粉我去年可是很粉emo大神的呀，就是第一个major前经常看他直播切片，觉得这小胖子特好玩。
+
+那对不起我确实应该被诸位铁血刀斯林浸猪笼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fb玩撸我是确实不知道啥时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 就问一下咋就不要脸了
+
+*****
+
+####  反方向的波  
+##### 6918#       发表于 2022-8-11 11:43
+
+ 本帖最后由 反方向的波 于 2022-8-11 11:45 编辑 
+
+本楼奇迹粉进来一下，说说nigma预选打算怎么打entity秘密马体，还是说买通v社临时注册中东赛区
+
+*****
+
+####  CNFH1984  
+##### 6919#       发表于 2022-8-11 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018048&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 11:43</a>
+
+本楼奇迹粉进来一下，说说nigma打算怎么打entity秘密马体</blockquote>
+让德张鳖JB玩VR了
+
+*****
+
+####  morwhipppo  
+##### 6920#       发表于 2022-8-11 11:45
+
+可别忘了还有bb和navi，奇迹鳖大概率游不出来了
+
+*****
+
+####  cody198879  
+##### 6921#       发表于 2022-8-11 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018005&amp;ptid=2084957" target="_blank">tontyoutoure 发表于 2022-8-11 11:40</a>
+其实我是说小组赛打lgd啦
+
+我也没说你说的错啊，本来235都是畜级发挥，打成这样不让人吃惊，但是 ...</blockquote>
+我说的就是小组赛打lgd啊，不然你还能说哪把。
+最后一把打vp的时候已经懒得看了，这个队的关键局一直都是各凭本事，没有任何可以赢的可能性。信任是互相的，只清算团队里面的某一个人做的不对是没有意义的。这个major上rng难道一直存在沟通问题么？
+我觉得不是的，基础的沟通总是有的，第一周不是还是可圈可点。
+关键是打到后面你对大哥支持一直是放养，ana不习惯这种打法就会乱，还硬要上4保1结果打成4see1，你不能老怪某一个人做的不够好。实际上只要出了对线期这个队就一股子异味，你不会觉得都是ana带来的吧。
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 6922#         楼主| 发表于 2022-8-11 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018014&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 11:41</a>
+
+草 ana卖bkb被做成gif在 r/dota单发了一楼</blockquote>
+这个bo3不是卖mkb吗
+
+*****
+
+####  反方向的波  
+##### 6923#       发表于 2022-8-11 11:48
+
+bb和navi先卜考虑了，西欧这四队总有一个连外卡资格都没了
+
+*****
+
+####  ArowRocher  
+##### 6924#       发表于 2022-8-11 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018097&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 11:47</a>
+
+这个bo3不是卖mkb吗</blockquote>
+我打错了
+
+*****
+
+####  DDWarrior  
+##### 6925#       发表于 2022-8-11 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017853&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 11:30</a>
+虽然茶队没可能夺冠，但是如果TI上“处长”皮球，“施舍”ori，“狂笑”国土真的比AME走的更远，那我直接在 ...</blockquote>
+小黑子露出鸡脚了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+说真的，我个铁血小茶叶都不敢这么想
+
+*****
+
+####  izayoi39  
+##### 6926#       发表于 2022-8-11 11:49
+
+ngm说实话很难，奇迹鳖和苏跳跳都是需要全队跟着自己的节奏打的，bp上俩人节奏一起还能打，俩人节奏不在一块儿就会打得很割裂。秘密的话就是要保住13不要崩盘，不然nisha就会独起来带领团队gg。液体的问题在于中单算是个翻版吴冠超加上sszai现在太菜了，全队节奏全看桶子哥，ban了德鲁伊和刚被就很难受了。
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 6927#       发表于 2022-8-11 11:50
+
+茶队现在失去了RNG的光学迷彩，杜鹏再整活可藏不住了
+
