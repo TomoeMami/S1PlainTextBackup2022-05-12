@@ -6584,3 +6584,263 @@ nga近来若干精选言论：
 看了Eg第一把还以为铁晋级了，没想到还是滚蛋了。有谁看了的吗，是eg犯罪了还是对面打的太好。这队那天看打 ...</blockquote>
 就是对面打的好，rtz一直刷不过对面，一个冰龙让tb成为队友杀手
 
+
+
+*****
+
+####  cody198879  
+##### 6793#       发表于 2022-8-11 10:51
+
+说白了，有些人根本不明白什么叫受迫性失误，你波波团都要走钢丝那你肯定会犯错。
+还在纠结一两个细节操作问题，而没有想清楚整个团队都没有为1号位做任何帮助，团队装备完全没有，个个都想自己秀，大哥永远没人管。你是ana你去这种垃圾队伍打一个系列赛你不想吐。老子一个打枪的要接全锅，还要上÷，那爱谁谁去，这种团队谁来都打不了，整个就是个压力锅
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 6794#         楼主| 发表于 2022-8-11 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017170&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-11 10:49</a>
+
+顺便，我还是对于一方面强烈鄙视各种脑残粉的脑残言论，另一方面又高强度到各个粪坑去搬运屎的行为表示很不 ...</blockquote>
+昨天我就说了，各种嫌弃nga的太监，还天天转，搞不明白怎么想的
+
+*****
+
+####  ArowRocher  
+##### 6795#       发表于 2022-8-11 10:52
+
+搬NGA大便有一个算一个都是异食癖
+
+*****
+
+####  名字不乱取  
+##### 6796#       发表于 2022-8-11 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017170&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-11 10:49</a>
+
+顺便，我还是对于一方面强烈鄙视各种脑残粉的脑残言论，另一方面又高强度到各个粪坑去搬运屎的行为表示很不 ...</blockquote>
+漏油不喜欢屎，但喜欢拉大家一起吃屎<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6797#       发表于 2022-8-11 10:53
+
+搬运屎料的能不能麻溜的自己滚啊，不行就去太监论坛论战呗，粪坑看不起的谭雅都敢去，别怂啊。
+
+*****
+
+####  遍体精淋af  
+##### 6798#       发表于 2022-8-11 10:54
+
+毕竟现在是一年一度的集美高峰期<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  萩原组土狼p  
+##### 6799#       发表于 2022-8-11 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017108&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-11 10:46</a>
+
+集美之前还在吹玄月ame卡卡铁三角呢，今天惹到了太监头子杰出哥直接光速切割 ...</blockquote>
+这三个人啥时候是铁三角了
+
+铁三角不是一直是kaka，csdx，和何雍正么
+
+还有kaka，小何，ame这三也算
+
+*****
+
+####  CNFH1984  
+##### 6800#       发表于 2022-8-11 10:55
+
+不行，我好难受，感觉比被捅刀还要难受十倍。一想到集美们还要跳高两个月，然后掀背在ti大赛上倒立拉屎被刀塔之神神罚才能消停，我难受的程度就爆发了一百倍那么多。
+
+*****
+
+####  ArowRocher  
+##### 6801#       发表于 2022-8-11 10:56
+
+玄月除了徐志雷还粉超哥的吗
+
+*****
+
+####  逃离二次元  
+##### 6802#       发表于 2022-8-11 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 6803#       发表于 2022-8-11 10:57
+
+王处长打的屎的操作集锦大家看的津津有味嘲笑取乐
+
+为什么集美拉屎大家都不愿意看，多好的乐子啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 6804#       发表于 2022-8-11 10:57
+
+这楼里跟我一样a/和霉/一块儿黑的不在少数吧
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  香蕉芭菲  
+##### 6805#       发表于 2022-8-11 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017176&amp;ptid=2084957" target="_blank">w2210059 发表于 2022-8-11 10:50</a>
+就是对面打的好，rtz一直刷不过对面，一个冰龙让tb成为队友杀手</blockquote>
+冰龙这英雄真的有战略价值，可以中单酱油摇摆，而且rngoutsider那场充分表明还很吃机师，玩不好又怕对面选就会很僵硬。印象这个冰龙也是entity绝活之一
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  tontyoutoure  
+##### 6806#       发表于 2022-8-11 10:57
+
+ 本帖最后由 tontyoutoure 于 2022-8-11 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017199&amp;ptid=2084957" target="_blank">cody198879 发表于 2022-8-11 10:51</a>
+
+说白了，有些人根本不明白什么叫受迫性失误，你波波团都要走钢丝那你肯定会犯错。
+
+还在纠结一两个细节操作 ...</blockquote>
+你说的很对，但是怎么解释ana先知的神奇传送呢 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+另外就是大家看到他是ana，下意识就用人而不是畜的标准要求他了把。
+
+*****
+
+####  战狼PTSD  
+##### 6807#       发表于 2022-8-11 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017260&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-11 10:55</a>
+
+不行，我好难受，感觉比被捅刀还要难受十倍。一想到集美们还要跳高两个月，然后掀背在ti大赛上倒立拉屎被刀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">这叫寸止挑战，懂又不懂啊
+
+*****
+
+####  人別離苦  
+##### 6808#       发表于 2022-8-11 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">刀塔之神在吗，今年这汛期有点遭不住了
+
+*****
+
+####  韬晦  
+##### 6809#       发表于 2022-8-11 10:59
+
+老干鳖和茶让两个搐生c挂机直接4v4结果都会差不多
+
+*****
+
+####  沈淮  
+##### 6810#         楼主| 发表于 2022-8-11 10:59
+
+别急，后面有的你们急
+
+
+
+*****
+
+####  阿垃垃圾历  
+##### 6811#       发表于 2022-8-11 10:59
+
+这样一看 nts的冰龙摇摆位是屌的  给lgd带来多少bp优势  
+
+*****
+
+####  米德  
+##### 6812#       发表于 2022-8-11 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年都过来了 今年慌什么 不知道你们在急什么
+
+*****
+
+####  外挂全家脚气  
+##### 6813#       发表于 2022-8-11 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57016954&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-11 10:38</a>
+
+看了Eg第一把还以为铁晋级了，没想到还是滚蛋了。有谁看了的吗，是eg犯罪了还是对面打的太好。这队那天看打 ...</blockquote>
+第二盘BP蛇了，5个英雄就一个PUCK大算控，然后被ET大哥夜魔疯狂拉扯
+
+第三盘ET电魂小小冰龙（不是XNOVA那种），外加力中暴力兽王，比EG的炼金都肥，所以你懂的
+
+*****
+
+####  蛭人  
+##### 6814#       发表于 2022-8-11 11:00
+
+难受就想想明鞭，明鞭和拿皇、老鸡组队关了两年，还自己手断，终于和NTS、XINQ四人组打出来，又在ti10这种顶级局里面两把狼人保心态健康的ame，透支偿还量子鞭好吧。
+
+*****
+
+####  CNFH1984  
+##### 6815#       发表于 2022-8-11 11:00
+
+<blockquote>syndrome2032 发表于 2022-8-11 10:43
+真毁灭派就该管你什么a畜a厨，全部都是东家设局收割韭菜。
+
+这种人也有，zhihu也已u认为雅立德大师赛是假 ...</blockquote>
+草，令人欣赏！
+
+*****
+
+####  萩原组土狼p  
+##### 6816#       发表于 2022-8-11 11:00
+
+兵分五路！
+
+剑指预选
+
+小象，yyds
+
+X_IAE5V90V(W{OFZ2%AIT`Q.jpg
+(76.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 11:00 上传
+
+<img src="https://img.saraba1st.com/forum/202208/11/110017uh7j3wlv589jjwhe.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 6817#       发表于 2022-8-11 11:00
+
+路副处已经滚去预选了，接着看王处长表演吧
+
+*****
+
+####  Litccc  
+##### 6818#       发表于 2022-8-11 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017256&amp;ptid=2084957" target="_blank">萩原组土狼p 发表于 2022-8-11 10:55</a>
+
+这三个人啥时候是铁三角了
+
+铁三角不是一直是kaka，csdx，和何雍正么
+
+还有kaka，小何，ame这三也算 ...</blockquote>
+何雍正被ame删好友之后就被集美被开除了，后来变成玄月ame op二人组了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  w2210059  
+##### 6819#       发表于 2022-8-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017292&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-11 10:57</a>
+
+冰龙这英雄真的有战略价值，可以中单酱油摇摆，而且rngoutsider那场充分表明还很吃机师，玩不好又怕对面 ...</blockquote>
+这个队的bp挺有意思的，夜魔维萨吉谜团冰龙再加个bane，那团打起来就是折磨
+
