@@ -316,3 +316,81 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 7542#       发表于 2022-8-12 00:41
+
+蹲坑的时候鉴赏集美还蛮乐的 sg一周的量都不够看一回
+
+*****
+
+####  名字不乱取  
+##### 7543#       发表于 2022-8-12 00:43
+
+给克神磕头了，真没见过他的大屁股，不会是绝中绝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7544#       发表于 2022-8-12 00:45
+
+有一说一，中单大屁股打近战宰猪
+
+但是过完对线期怎么打？
+
+*****
+
+####  excalibur--  
+##### 7545#       发表于 2022-8-12 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57028057&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-12 00:45</a>
+有一说一，中单大屁股打近战宰猪
+
+但是过完对线期怎么打？</blockquote>
+2 3互换？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 7546#       发表于 2022-8-12 00:47
+
+正常情况下，过完对线期，为了bc全队和观众的身心健康，克神最好在泉水里挂机，就看克神这回的大屁股能不能整点大的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7547#       发表于 2022-8-12 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是火猫我麻了
+
+*****
+
+####  nowaki  
+##### 7548#       发表于 2022-8-12 00:48
+
+知道脑北京为啥不敢火猫走中了吧
+
+*****
+
+####  战狼PTSD  
+##### 7549#       发表于 2022-8-12 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57028084&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-12 00:48</a>
+
+我是火猫我麻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我打路人就这么被制裁过，中单大屁股相位后直接阿托斯，然后带两个酱油疯狂扫图找我火猫，10分钟我才3K不到，打野必被抓，队友都在梦游，20分钟GG
+
+*****
+
+####  43453  
+##### 7550#       发表于 2022-8-12 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57027864&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-12 00:16</a>
+蝙蝠已经是wisper绝中绝了，再不只能操刀三号位帕克了</blockquote>
+真就当二号位用了啊
+

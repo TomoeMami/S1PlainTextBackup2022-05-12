@@ -3690,3 +3690,21 @@ react又又又出新人了<img src="https://static.saraba1st.com/image/smiley/fa
 
 你虹en那个人字拖怎么又在到处乱蹭了啊
 
+
+
+*****
+
+####  OldGlory  
+##### 16829#       发表于 2022-8-12 00:46
+
+只要主播之间别撕破脸，粉丝怎么打都无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越打越忠诚
+
+*****
+
+####  poipanchao  
+##### 16830#       发表于 2022-8-12 00:47
+
+我当时看的感觉就是朋友打闹啊
+
+粉丝饭圈入脑才打起来的吧？
+
