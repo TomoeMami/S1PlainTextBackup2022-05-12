@@ -3670,3 +3670,14 @@ react又又又出新人了<img src="https://static.saraba1st.com/image/smiley/fa
 
 这虹甲终于知道如何流量变现了啊，把解说都整付费了，真有你的，感觉现在要看虹标配得起步你自己推的会员+fanclub +官号会员了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16827#       发表于 2022-8-11 23:55
+
+一段时间没看虹en,没想到进入明面开火的阶段了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

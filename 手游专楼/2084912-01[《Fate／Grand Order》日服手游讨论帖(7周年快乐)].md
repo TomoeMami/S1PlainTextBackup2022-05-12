@@ -8357,3 +8357,14 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 794#       发表于 2022-8-11 23:56
+
+吃辣那里提到的神父应该不是天草吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

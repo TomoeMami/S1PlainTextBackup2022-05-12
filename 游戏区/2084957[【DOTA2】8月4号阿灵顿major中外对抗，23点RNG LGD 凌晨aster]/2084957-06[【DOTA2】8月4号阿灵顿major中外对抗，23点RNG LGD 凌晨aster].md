@@ -72,3 +72,57 @@ ti上bc就Wisper感觉是大腿
 
 克神还是这味道，wisp扛着k1，踩着两酱油走路，克神骑在这群人头上尿尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 7511#       发表于 2022-8-11 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回合制游戏是吧
+
+*****
+
+####  IG.430  
+##### 7512#       发表于 2022-8-11 23:54
+
+蝙蝠对面的老陈…
+#查询a帐进度
+
+*****
+
+####  excalibur--  
+##### 7513#       发表于 2022-8-11 23:56
+
+只能说wisper力中暴力
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 7514#       发表于 2022-8-11 23:56
+
+这滚滚救命了
+
+*****
+
+####  何然  
+##### 7515#       发表于 2022-8-11 23:56
+
+南美不想让北美饭皇进ti
+
+*****
+
+####  IG.430  
+##### 7516#       发表于 2022-8-12 00:00
+
+刚才手贱看了一下b站dota2国服最新动态下面的评论，真的够mindfuck
+
+*****
+
+####  莉拉厨  
+##### 7517#       发表于 2022-8-12 00:01
+
+等着我克神25把你们全鲨了
+
