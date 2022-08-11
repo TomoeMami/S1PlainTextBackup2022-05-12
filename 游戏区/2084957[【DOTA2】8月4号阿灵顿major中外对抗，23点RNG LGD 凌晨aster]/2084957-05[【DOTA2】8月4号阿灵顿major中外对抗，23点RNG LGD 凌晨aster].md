@@ -4590,3 +4590,278 @@ xnova的罪也别再细数了，他作为唯一一个会英语的，玩个冰龙
 
 lgd和茶会师，这次决赛那CN DOTA  ti11真没救了
 
+
+
+*****
+
+####  尸体鲨  
+##### 6575#       发表于 2022-8-11 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015761&amp;ptid=2084957" target="_blank">5678给 发表于 2022-8-11 09:18</a>
+也能给超哥写个三年和起风了呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有道理，那狗头人要被清算了
+
+*****
+
+####  syndrome2032  
+##### 6576#       发表于 2022-8-11 09:23
+
+从ti5那个年代来的国内能长时间维持一线竞争力的中单也就只剩maybe了。
+
+之后ti6跳刀昙花一现。ti7军体拳对线弱 ，ti89胖爹成名晚。
+
+*****
+
+####  逃离二次元  
+##### 6577#       发表于 2022-8-11 09:23
+
+狗头人因为给霉黄写歌早就被清算过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6578#         楼主| 发表于 2022-8-11 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015785&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 09:19</a></blockquote>
+小泰迪中肯
+
+*****
+
+####  白野苍衣  
+##### 6579#       发表于 2022-8-11 09:23
+
+我是太信任茶了才给出上限8强的预测的，曾焦阳一到TI就尿裤是实打实的，另外几兄弟也好不到哪去，再加上银K的脑浆BP。
+
+*****
+
+####  5678给  
+##### 6580#       发表于 2022-8-11 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015829&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 09:22</a>
+有道理，那狗头人要被清算了</blockquote>
+怕你不知道狗头人从8月8号春晚输了开始，就一直在被人清算呀，主要是最伟大的亚军真的很好听呀
+
+*****
+
+####  Litccc  
+##### 6581#       发表于 2022-8-11 09:23
+
+感觉xxs也不如小明鞭，节奏三玩的一塌糊涂，另外曾焦阳转cd和国土的bp都是隐患
+
+*****
+
+####  syndrome2032  
+##### 6582#       发表于 2022-8-11 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015829&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 09:22</a>
+有道理，那狗头人要被清算了</blockquote>
+狗头人这期《霍元甲》已经被清算凭什么你笑话仙贝不笑话maybe了
+
+*****
+
+####  香蕉芭菲  
+##### 6583#       发表于 2022-8-11 09:24
+
+现在茶不弱的，属于那种，如果状态好遇上状态一般的lgd能赢的队
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  fopinecone  
+##### 6584#       发表于 2022-8-11 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015748&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 09:17</a>
+狗头人不是铁血版信吗</blockquote>
+然后阿版因为在直播间放了狗头人的歌被集美们打成敌人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  废都刽子手  
+##### 6585#       发表于 2022-8-11 09:25
+
+巅峰上限和人家差距明显，长时间维持竞争力有什么用，么么鳖也可以说自己是国内唯一长时间一线c
+
+*****
+
+####  Asukalangley33  
+##### 6586#       发表于 2022-8-11 09:25
+
+雪碧虽然状态一般，但是茶要能赢雪碧是会进化的
+
+但是按蟹腿王的尿性，今天大概率还是被雪碧打个√XX
+
+*****
+
+####  蛭人  
+##### 6587#       发表于 2022-8-11 09:25
+
+那么问题来了，maybe究竟世界第一中单过吗？我是没看出来ti678910，哪一届算第一。
+
+*****
+
+####  百世诸侯  
+##### 6588#       发表于 2022-8-11 09:26
+
+CNDOTA唯一拥有世界级统治力的职业选手只有TI2的YYF，望周知
+
+*****
+
+####  IG.430  
+##### 6589#       发表于 2022-8-11 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015879&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 09:26</a>
+CNDOTA唯一拥有世界级统治力的职业选手只有TI2的YYF，望周知</blockquote>
+fgnb
+
+*****
+
+####  白野苍衣  
+##### 6590#       发表于 2022-8-11 09:27
+
+世界第一中单难道还能从非TI冠军里出？真就无冠超苏猴啊
+
+*****
+
+####  逃离二次元  
+##### 6591#       发表于 2022-8-11 09:27
+
+艹艹艹艹
+
+*****
+
+####  OVTVO  
+##### 6592#       发表于 2022-8-11 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015894&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 09:26</a>
+
+fgnb</blockquote>
+你这ID，绷不住了
+
+*****
+
+####  尸体鲨  
+##### 6593#       发表于 2022-8-11 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">心中第一也是第一，世界第一中单的备选位上面有太多耀眼的名字了
+不说远的，超哥巅峰也不如miracle sumail吧
+
+*****
+
+####  哈曼的YY  
+##### 6594#       发表于 2022-8-11 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015545&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 09:05</a>
+
+打的差不让骂了？这盘表现好夸不就行了？</blockquote>
+不用畜就不会骂了？提示下词汇量吧
+
+*****
+
+####  Asukalangley33  
+##### 6595#       发表于 2022-8-11 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015897&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-11 09:27</a>
+
+世界第一中单难道还能从非TI冠军里出？真就无冠超苏猴啊</blockquote>
+但可以不是中
+
+比如TI7第一中单马桶哥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 6596#       发表于 2022-8-11 09:29
+
+茶队和lgd最大的差距其实是3号位，lgd可以做到23号位双核驱动而茶队只能靠2号位起节奏，xxs对比起大鞭哥来虽然团战能力更强但是节奏能力差得太远了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北欧王座  
+##### 6597#       发表于 2022-8-11 09:29
+
+ti比赛里应该没有第一中单过。最接近的ti8可能吧，但是也没法说比topson强。。
+
+*****
+
+####  BallanceHZ  
+##### 6598#       发表于 2022-8-11 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015921&amp;ptid=2084957" target="_blank">izayoi39 发表于 2022-8-11 09:29</a>
+茶队和lgd最大的差距其实是3号位，lgd可以做到23号位双核驱动而茶队只能靠2号位起节奏，xxs对比起大鞭哥来 ...</blockquote>
+1、3、教练差距都比较大吧
+
+*****
+
+####  反方向的波  
+##### 6599#       发表于 2022-8-11 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">早该治治midsingle lightone了，偷杰出流量反向优化自己直播间氛围，现在不喝水要买不起上海的婚房的首付了
+
+*****
+
+####  雅朵莉雀  
+##### 6600#       发表于 2022-8-11 09:31
+
+当年Noone连拿5个百万级奖金的大赛冠军，谁来中路谁被打尿裤，毫无疑问就是世一中
+
+但是就是TI没成绩，那能怎么办呢
+
+
+
+*****
+
+####  thistimeforlife  
+##### 6601#       发表于 2022-8-11 09:31
+
+鳖星已经是今年打干瘪胜率很好看的队了，这才是最可悲的
+
+但反正已经没啥负担，胜者组又都是熟人，干吧
+
+*****
+
+####  syndrome2032  
+##### 6602#       发表于 2022-8-11 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015843&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-11 09:23</a>
+我是太信任茶了才给出上限8强的预测的，曾焦阳一到TI就尿裤是实打实的，另外几兄弟也好不到哪去，再加上银K ...</blockquote>
+8强也是建队以来最好成绩了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 6603#       发表于 2022-8-11 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015894&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 09:26</a>
+
+fgnb</blockquote>
+老骆中肯
+
+*****
+
+####  CNFH1984  
+##### 6604#       发表于 2022-8-11 09:31
+
+今年TI应该是彻底没戏了
+
+我不看好剩下任何队伍里面的任何一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">接下来就都是乐子时间了
+
+*****
+
+####  morwhipppo  
+##### 6605#       发表于 2022-8-11 09:31
+
+xxs刚出道的时候大团控3玩的还不错的什么小牛猛犸，但是自从ti7还是6那个大跳小牛后就不行了
+
+*****
+
+####  Keynes  
+##### 6606#       发表于 2022-8-11 09:31
+
+一想到lgd要是今年进了决赛日然后暴毙，估计又是一波大的假赛节奏摧毁西恩doto，整个人就要玉玉了
+

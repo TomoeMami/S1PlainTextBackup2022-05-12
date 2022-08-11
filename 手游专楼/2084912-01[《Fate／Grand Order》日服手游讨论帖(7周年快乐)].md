@@ -7497,3 +7497,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃…我觉得三个四星和水夏不相上下，去年水皇女水清少都是我主动想抽的
 
+
+
+*****
+
+####  alucardcz  
+##### 717#       发表于 2022-8-11 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁太逗了  什么第1回合宝具第2回合打蓝暴    这暴伤就一回合还绑定的蓝放第1回合不开是吧
+
