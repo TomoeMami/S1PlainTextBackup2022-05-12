@@ -9564,3 +9564,75 @@ g4打完我就蒙头大睡准备装死的
 
 坏消息是你楼胜决之后也是水漫金山，出事了也没地方躲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  聚散浮云  
+##### 7110#       发表于 2022-8-11 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57020049&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 14:15</a>
+
+那你真是太搞笑了 上面有链接你自己翻</blockquote>
+我的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看看能不能找到自己
+
+
+
+*****
+
+####  赤尸藏人  
+##### 7111#       发表于 2022-8-11 14:22
+
+相信DOTA之神，7.32整大活
+
+*****
+
+####  战狼PTSD  
+##### 7112#       发表于 2022-8-11 14:22
+
+我是墙头草，投降了
+
+*****
+
+####  ArowRocher  
+##### 7113#       发表于 2022-8-11 14:23
+
+我一直都是小[winner.teamname]啊
+
+*****
+
+####  百世诸侯  
+##### 7114#       发表于 2022-8-11 14:25
+
+3 比 0 过分了啊 我觉得 3比1 吧 以秘密的战术储备，还是能拿一分的，lgd 也不可能把把都能翻盘啊
+
+*****
+
+####  健康猹  
+##### 7115#       发表于 2022-8-11 14:27
+
+漏油搞的像是没看过茶队比赛，哦不对可能漏油确实没怎么看。
+
+只能说我们对茶队有期望的时候，他一定就会整个大的。
+
+*****
+
+####  12481632  
+##### 7116#       发表于 2022-8-11 14:27
+
+那不装了，我也是冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nyaaarlathotep  
+##### 7117#       发表于 2022-8-11 14:28
+
+去年我差点就化身集美了，还好守住了底线，希望ame保持住
+
+*****
+
+####  名字不乱取  
+##### 7118#       发表于 2022-8-11 14:30
+
+漏油的下跪速度确实惊人，好歹硬个364天，下跪2小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
