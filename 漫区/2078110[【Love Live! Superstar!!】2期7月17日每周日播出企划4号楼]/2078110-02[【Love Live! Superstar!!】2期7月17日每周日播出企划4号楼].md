@@ -9606,3 +9606,14 @@ v要皮套丑可不行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单曲总的才破20万…………这才两年不到啊，好牌打得稀烂，搞得要糊似的
 
+
+
+*****
+
+####  JustW_3  
+##### 2437#       发表于 2022-8-12 06:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026012&amp;ptid=2078110" target="_blank">古战场亡魂 发表于 2022-8-11 21:46</a>
+来，人气啥的，看看价格就明白了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋这是大伙都上一本就我一人掉档了吗
+
