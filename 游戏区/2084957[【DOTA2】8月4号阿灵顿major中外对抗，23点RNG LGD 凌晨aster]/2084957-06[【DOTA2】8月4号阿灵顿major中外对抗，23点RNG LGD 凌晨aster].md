@@ -126,3 +126,115 @@ ti上bc就Wisper感觉是大腿
 
 等着我克神25把你们全鲨了
 
+
+
+*****
+
+####  walfeds  
+##### 7518#       发表于 2022-8-12 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典上山
+
+*****
+
+####  弈秋  
+##### 7519#       发表于 2022-8-12 00:03
+
+经典上山
+
+*****
+
+####  acalephs  
+##### 7520#       发表于 2022-8-12 00:03
+
+南美rtz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  excalibur--  
+##### 7521#       发表于 2022-8-12 00:03
+
+上山了哈哈哈哈哈哈
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 7522#       发表于 2022-8-12 00:03
+
+rtz两眼一黑
+
+*****
+
+####  聚散浮云  
+##### 7523#       发表于 2022-8-12 00:04
+
+这么肥的老奶奶团战一点画面都没有吗
+
+*****
+
+####  nowaki  
+##### 7524#       发表于 2022-8-12 00:04
+
+克神是这样的 我对克神的评价是你就当没这个人
+
+*****
+
+####  弈秋  
+##### 7525#       发表于 2022-8-12 00:05
+
+克神可是ti10中单最小丑
+
+*****
+
+####  北条早苗  
+##### 7526#       发表于 2022-8-12 00:05
+
+bc是真的想关rtz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  excalibur--  
+##### 7527#       发表于 2022-8-12 00:07
+
+每次上高我都想到rng<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，然后就觉得rng更傻逼了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 7528#       发表于 2022-8-12 00:09
+
+克神爆种一次cd半年，脑奶奶第一波大结束后到25级之前最好祈祷打团的时候屏幕里和脑奶奶有关的部分只有她的大招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 7529#       发表于 2022-8-12 00:09
+
+人人有山上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  excalibur--  
+##### 7530#       发表于 2022-8-12 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57027805&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-12 00:09</a>
+克神爆种一次cd半年，脑奶奶第一波大结束后到25级之前最好祈祷打团的时候屏幕里和脑奶奶有关的部分只有她的 ...</blockquote>
+卧槽，南美老陈！
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  弈秋  
+##### 7531#       发表于 2022-8-12 00:10
+
+别给Wisper选蝙蝠了，给了力中暴力的英雄吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bc只能靠他了
+
