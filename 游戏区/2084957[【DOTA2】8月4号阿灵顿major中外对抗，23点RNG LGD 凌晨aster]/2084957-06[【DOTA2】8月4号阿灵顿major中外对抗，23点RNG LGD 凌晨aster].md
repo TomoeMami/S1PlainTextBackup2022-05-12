@@ -1916,3 +1916,368 @@ OG太年轻，不够稳
 
 ceb还行吧，yuragi是真顶级战犯，三连送，直接把优势送没了。
 
+
+
+*****
+
+####  端木恋心  
+##### 7750#       发表于 2022-8-12 06:02
+
+武功再好也怕羊刀
+
+*****
+
+####  acalephs  
+##### 7751#       发表于 2022-8-12 06:02
+
+水人MVP！LGD.yuragi！
+
+*****
+
+####  山上徹也  
+##### 7752#       发表于 2022-8-12 06:02
+
+寄！
+
+*****
+
+####  cobymar  
+##### 7753#       发表于 2022-8-12 06:02
+
+量子鞭搞那么厉害干嘛
+
+*****
+
+####  灰烬白羽  
+##### 7754#       发表于 2022-8-12 06:03
+
+大bian哥搞这么厉害干什么
+
+*****
+
+####  血狂毘沙门  
+##### 7755#       发表于 2022-8-12 06:03
+
+这也可以翻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 7756#       发表于 2022-8-12 06:03
+
+这tm都能赢
+睡觉
+
+*****
+
+####  haruhiismer  
+##### 7757#       发表于 2022-8-12 06:03
+
+lgd还是太依靠水人了
+
+*****
+
+####  白野苍衣  
+##### 7758#       发表于 2022-8-12 06:03
+
+这也能翻盘，还得是四赵云啊。
+
+*****
+
+####  外挂全家脚气  
+##### 7759#       发表于 2022-8-12 06:03
+
+我日，看得我手抖，太GB猛了！
+
+*****
+
+####  千千千千鸟  
+##### 7760#       发表于 2022-8-12 06:03
+
+无敌啊无敌，大鞭哥太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 7761#       发表于 2022-8-12 06:03
+
+量子鞭搞这么厉害干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  人別離苦  
+##### 7762#       发表于 2022-8-12 06:03
+
+吐了 
+
+*****
+
+####  Aeons  
+##### 7763#       发表于 2022-8-12 06:04
+
+想到ceb采访觉得yatoro不行yuragi厉害，那这水人我觉得不如yatoro一根。
+
+*****
+
+####  thistimeforlife  
+##### 7764#       发表于 2022-8-12 06:04
+
+lgd:相信
+yuragi<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  希望之花  
+##### 7765#       发表于 2022-8-12 06:04
+
+水人最佳第六人
+
+*****
+
+####  Buttercry  
+##### 7766#       发表于 2022-8-12 06:04
+
+这把打完yuragi人没了
+
+*****
+
+####  iriyano  
+##### 7767#       发表于 2022-8-12 06:04
+
+勇猛的狼！
+有垃圾害群的马
+
+*****
+
+####  雨中曲  
+##### 7768#       发表于 2022-8-12 06:04
+
+水人BKB不开，转敏送起来，致敬反向波<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 7769#       发表于 2022-8-12 06:04
+
+爬了下楼，6打4了？
+
+*****
+
+####  ztgmeteor  
+##### 7770#       发表于 2022-8-12 06:05
+
+这油拉给在搞什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蛭人  
+##### 7771#       发表于 2022-8-12 06:05
+
+这就是ceb找的三个ana吗，我只能说，这三个ame好吧，atf、bzm、yuragi这三兄弟，属实还得练练。
+
+*****
+
+####  TIZI  
+##### 7772#       发表于 2022-8-12 06:06
+
+这水人玩的跟我玩水人差不多，挨打转敏我也会啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  一夜秋风袭锦城  
+##### 7773#       发表于 2022-8-12 06:06
+
+水人这逼英雄是这样啊，突出一个暴毙。
+
+*****
+
+####  4591  
+##### 7774#       发表于 2022-8-12 06:06
+
+水人他真的...量子鞭还是硬
+
+*****
+
+####  haruhiismer  
+##### 7775#       发表于 2022-8-12 06:06
+
+水人不如我，我一直3000血
+
+*****
+
+####  雅朵莉雀  
+##### 7776#       发表于 2022-8-12 06:06
+
+LGD那波上路真是亏得yuragi犯罪，不然ame被秒没买活的
+
+上去卖是想好的，但是玛西背走了牛头一个板隔开了地形第一时间戴泽跟不上薄葬
+
+*****
+
+####  Tienx  
+##### 7777#       发表于 2022-8-12 06:06
+
+咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩咩
+
+*****
+
+####  百世诸侯  
+##### 7778#       发表于 2022-8-12 06:06
+
+这水人跟前几天那把牙脱落的比简直不像职业选手
+
+*****
+
+####  acalephs  
+##### 7779#       发表于 2022-8-12 06:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029029&amp;ptid=2084957" target="_blank">TIZI 发表于 2022-8-11 14:06</a>
+
+这水人玩的跟我玩水人差不多，挨打转敏我也会啊
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+不，你可能转不出敏就被晕了，会比他多活几秒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 7780#       发表于 2022-8-12 06:06
+
+刚起床就看到三羊打赢了，看到经济2.4w领先的呀，为啥说是翻盘？这bo3值得回看吗
+
+*****
+
+####  外挂全家脚气  
+##### 7781#       发表于 2022-8-12 06:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029024&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-12 06:04</a>
+
+爬了下楼，6打4了？</blockquote>
+两波关键团，转敏的时候被控住打死
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 7782#       发表于 2022-8-12 06:07
+
+35这么强搞的我鸡哥好尴尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  重名的mufasa  
+##### 7783#       发表于 2022-8-12 06:07
+
+想秀的都死了
+
+*****
+
+####  smlszh  
+##### 7784#       发表于 2022-8-12 06:07
+
+很精彩 值得看
+
+第一盘bp被爆
+
+第二盘bp爆了对面
+
+第三盘 嘿嘿
+
+*****
+
+####  acalephs  
+##### 7785#       发表于 2022-8-12 06:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029037&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 14:06</a>
+
+刚起床就看到三羊打赢了，看到经济2.4w领先的呀，为啥说是翻盘？这bo3值得回看吗 ...</blockquote>
+炼金阵容最多的时候落后七八千，对方还带盾
+
+*****
+
+####  掉头学姐  
+##### 7786#       发表于 2022-8-12 06:08
+
+好啊好啊，不把大鞭哥当回事，每次波上去吃链接啊
+
+*****
+
+####  zhliiiii  
+##### 7787#       发表于 2022-8-12 06:08
+
+笑死，这og比rng还搞
+
+*****
+
+####  杜文乐超神归来  
+##### 7788#       发表于 2022-8-12 06:09
+
+已经快进到上路萧瑟哥哥卖的好了，别说了集美们开扣吧
+
+*****
+
+####  4591  
+##### 7789#       发表于 2022-8-12 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029037&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-12 06:06</a>
+
+刚起床就看到三羊打赢了，看到经济2.4w领先的呀，为啥说是翻盘？这bo3值得回看吗 ...</blockquote>
+对线开始就巨劣,过了对线期几波抓人不是不成就是互换亏到死,20分钟那会我都认为可以打GG了.
+
+*****
+
+####  我爱撩菜  
+##### 7790#       发表于 2022-8-12 06:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029048&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-12 06:09</a>
+
+对线开始就巨劣,过了对线期几波抓人不是不成就是互换亏到死,20分钟那会我都认为可以打GG了. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今晚不加班回家回看一下。
+
+*****
+
+####  白色的120  
+##### 7791#       发表于 2022-8-12 06:10
+
+集美们又得开吹了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 7792#       发表于 2022-8-12 06:10
+
+水人下路不波，上路不波直接打炼金都能赢吧，吐了
+
+*****
+
+####  Robakey  
+##### 7793#       发表于 2022-8-12 06:11
+
+电子竞技是这样的 唯结果论，上路二塔那波我都以为ga要被秒了直接敲了，还好刚出的冰眼。
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 7794#       发表于 2022-8-12 06:11
+
+有一说一牙脱落那把水人专门选来克tb的 出个a帐tb又被偷敏捷又被偷攻速直接变蠢
+
+*****
+
+####  外挂全家脚气  
+##### 7795#       发表于 2022-8-12 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029046&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-12 06:09</a>
+
+已经快进到上路萧瑟哥哥卖的好了，别说了集美们开扣吧</blockquote>
+那波卖确实是卖，但是有失误，没有开大再上，要不是滚滚先救一手开大然后再薄葬，就真的送了
+
