@@ -3860,3 +3860,458 @@ rng最失败的一点是不知道给厨子选肉核，就这隐身5号位和保k
 
 看好FNATIC VP把EG这群B挤出去<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弈秋  
+##### 6492#       发表于 2022-8-11 09:02
+
+看不到克里斯打超哥<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 6493#       发表于 2022-8-11 09:02
+
+问题来了，CN赛区预选能出几个名额啊？就一个吗？
+
+*****
+
+####  百世诸侯  
+##### 6494#       发表于 2022-8-11 09:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一想到这支RNG还要抢一个预选名额，让我在TI大舞台继续看脑浆东南亚人的五号位，我就想吐了
+
+*****
+
+####  morwhipppo  
+##### 6495#       发表于 2022-8-11 09:03
+
+eg也不怕吧，北美又没正常的选手，难道指望sumil他哥把eg锤了？
+
+*****
+
+####  沈淮  
+##### 6496#         楼主| 发表于 2022-8-11 09:03
+
+这个bo3选肉也没用，第一盘的dp 血魔专治各种不服，第二盘的doom vip也治，而且有一说一第二盘rng banpick是优势的，纯粹自己对线打烂了中期也打烂了
+
+*****
+
+####  scg2017  
+##### 6497#       发表于 2022-8-11 09:03
+
+兽王光环加战鼓
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 6498#       发表于 2022-8-11 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015492&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-11 09:02</a>
+
+问题来了，CN赛区预选能出几个名额啊？就一个吗？</blockquote>
+1个直邀，2个外卡
+
+理论来说外卡打的好的话能去4个队，竞争强度一般吧
+
+*****
+
+####  百世诸侯  
+##### 6499#       发表于 2022-8-11 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015484&amp;ptid=2084957" target="_blank">Asukalangley33 发表于 2022-8-11 09:01</a>
+
+现在的情况是VP直邀看自己，EG看BC FNATIC脸色了吧？
+
+看好FNATIC VP把EG这群B挤出去 ...</blockquote>
+BC赢Fnatic，EG直接直邀
+
+Fnatic赢BC然后再赢VP，那EG也直邀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 6500#       发表于 2022-8-11 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015443&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 08:59</a>
+兽王一身buff兄弟</blockquote>
+那这viper法球减魔抗+天怒减魔抗也太狠了，沾上魔抗就是负中大负
+
+*****
+
+####  雅朵莉雀  
+##### 6501#       发表于 2022-8-11 09:04
+
+EG挤出去也没用啊，顶多跟QC打打预选赛，北美没人的
+
+倒是VP如果没有直邀，那东欧的VP navi betboom的预选赛也挺好看的
+
+*****
+
+####  minysun  
+##### 6502#       发表于 2022-8-11 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015492&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-11 09:02</a>
+
+问题来了，CN赛区预选能出几个名额啊？就一个吗？</blockquote>
+一个直通一个海选吧，算1.25个？
+
+*****
+
+####  沈淮  
+##### 6503#         楼主| 发表于 2022-8-11 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">今年外卡那可太有意思了，nigma 秘密必有一个，小概率eg也要去
+
+*****
+
+####  北条早苗  
+##### 6504#       发表于 2022-8-11 09:05
+
+fnc三杆尸王的枪，会发生什么很容易想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 6505#       发表于 2022-8-11 09:05
+
+究极血腥外卡
+
+*****
+
+####  聚散浮云  
+##### 6506#       发表于 2022-8-11 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015054&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-11 08:35</a>
+
+你就和mdy还有集美一样把别人也叫成畜 淡化这个词的攻击性 
+
+本来是最狠的一个骂名现在连双冠c都能套上去了 ...</blockquote>
+打的差不让骂了？这盘表现好夸不就行了？
+
+*****
+
+####  萩原组土狼p  
+##### 6507#       发表于 2022-8-11 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015427&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-11 08:58</a>
+
+东南亚人保质期也太短了吧，指xnova。
+
+这**怎么那么能抗又a得那么快，就bkb分身魔龙枪就已经抽搐的和一个疯 ...</blockquote>
+因为东南亚这些人很多都是天梯路人来的，加上来中国赚钱多，要是没有一个好队，有好教练和队友鞭策的话，很容易就堕落的，你看afu也是这样，类比足球，你看很多小地方的选手到欧冠一些队短期发挥很好，但是很容易生活过得太好堕落了
+
+**这英雄就是这样啊，有装备很强，但是一个是线上很容易抓他，有人游就死，而是太笨重，一拉扯就跟不上了，等于rng选了一套拉扯的阵容，也不拉扯和人打正面，被人一拳打爆了
+
+*****
+
+####  白野苍衣  
+##### 6508#       发表于 2022-8-11 09:06
+
+那看来今年只有三支队打TI了  
+
+*****
+
+####  subject07  
+##### 6509#       发表于 2022-8-11 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015504&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 09:03</a>
+这个bo3选肉也没用，第一盘的dp 血魔专治各种不服，第二盘的doom vip也治，而且有一说一第二盘rng banpick ...</blockquote>
+那是因为vp换路聪明，知道你前中期全靠dp顶，换路给你压住了你火猫和先知就是个只能跑的废物，鲷哥还在那儿换路也能打
+
+*****
+
+####  端木恋心  
+##### 6510#       发表于 2022-8-11 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015342&amp;ptid=2084957" target="_blank">Horusddt 发表于 2022-8-11 08:54</a>
+反了，1个预选2个外卡</blockquote>
+那还行。这样子中国队三个直接去ti。
+外卡腥风血雨应该中国队也能进一个吧。
+
+
+
+*****
+
+####  锯子万藏  
+##### 6511#       发表于 2022-8-11 09:06
+
+这个rng的问题就是不团队啊
+鬼在的时候卡噜噜已经把队伍捏的不错了
+ana这直接就是个孤儿。。。
+还有就是谢君豪也搞笑。。。孤儿怎么能玩大核。。。你就让ana玩个肉核不就好了。。。
+
+*****
+
+####  Asukalangley33  
+##### 6512#       发表于 2022-8-11 09:06
+
+虽然RNG还是这个批样了
+
+但是感觉回国预选至少可以捡一个外卡名额的
+
+乐子还是有
+
+就是不知道森哥他们现在啥成色
+
+*****
+
+####  恐怖利刃  
+##### 6513#       发表于 2022-8-11 09:06
+
+外卡六个冠军五个亚军
+
+*****
+
+####  哈萨维·诺亚  
+##### 6514#       发表于 2022-8-11 09:07
+
+鬼回rng的话在中国区还是有点竞争力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 6515#         楼主| 发表于 2022-8-11 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015550&amp;ptid=2084957" target="_blank">subject07 发表于 2022-8-11 09:06</a>
+那是因为vp换路聪明，知道你前中期全靠dp顶，换路给你压住了你火猫和先知就是个只能跑的废物，鲷哥还在那 ...</blockquote>
+？我下面不是说了对线没打好？你跟我车轱辘什么
+
+*****
+
+####  walfeds  
+##### 6516#       发表于 2022-8-11 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看fnc给尸王打没打足钱了
+
+*****
+
+####  scg2017  
+##### 6517#       发表于 2022-8-11 09:07
+
+外卡总共会出几个啊？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TIZI  
+##### 6518#       发表于 2022-8-11 09:07
+
+rng反正也不需要分数了，能不能换几个人啊，就这几个人回家居摆烂的态度感觉这队伍就不应该来打职业
+有没有核中核消息ig xg最近怎么样，实在不想看rng去ti上表演小丑dota了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  反方向的波  
+##### 6519#       发表于 2022-8-11 09:07
+
+西欧entity马体液体秘密  西恩rng ig xg 搞不好青茶ehome还能咬下人<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 6520#       发表于 2022-8-11 09:07
+
+狗头人这下要被集美冲烂掉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6521#       发表于 2022-8-11 09:07
+
+根据畜不扩散原则，只有R畜和A畜好吧，双冠王也要被叫做畜？那真是跟MDY那帮人差不多了；还是沟通占很大的锅吧，沟通不行，还要选TB先知这种需要沟通的英雄，我只能说包子你牛逼。
+
+*****
+
+####  沈淮  
+##### 6522#         楼主| 发表于 2022-8-11 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015572&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-11 09:07</a>
+外卡总共会出几个啊？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+2个
+
+*****
+
+####  灰烬白羽  
+##### 6523#       发表于 2022-8-11 09:08
+
+冠超小组赛打vp宁愿玩末日打ta也不肯玩毒龙，让查理斯毒龙去打先知，今天被gpk毒龙送回家，何尝不是一种报应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈萨维·诺亚  
+##### 6524#       发表于 2022-8-11 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015572&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-11 09:07</a>
+
+外卡总共会出几个啊？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+2
+
+*****
+
+####  沈淮  
+##### 6525#         楼主| 发表于 2022-8-11 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015568&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 09:07</a>
+看fnc给尸王打没打足钱了</blockquote>
+op点评一下xnova的冰龙和外婆
+
+*****
+
+####  中已矣  
+##### 6526#       发表于 2022-8-11 09:08
+
+很多人肤浅的不知道说什么好 等我抽肿你们的脸
+
+事与愿违
+
+*****
+
+####  minysun  
+##### 6527#       发表于 2022-8-11 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015578&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-11 09:07</a>
+
+西欧entity马体液体秘密  西恩rng ig xg 搞不好青茶ehome还能咬下人</blockquote>
+永远的家呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 6528#       发表于 2022-8-11 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015583&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 09:07</a>
+2个</blockquote>
+各大赛区加起来两个吗？那也不好打
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 6529#       发表于 2022-8-11 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015580&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-11 09:07</a>
+
+根据畜不扩散原则，只有R畜和A畜好吧，双冠王也要被叫做畜？那真是跟MDY那帮人差不多了；还是沟通占很大的 ...</blockquote>
+所以我很想看顶儿子带ANA打外卡把RNG击落这种画面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 6530#       发表于 2022-8-11 09:09
+
+看好lgd茶会师胜决
+
+*****
+
+####  morwhipppo  
+##### 6531#       发表于 2022-8-11 09:09
+
+盒中核消息就是指望xg ig不如指望rng飞机回不来国
+
+*****
+
+####  尸体鲨  
+##### 6532#       发表于 2022-8-11 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">狗头人fy粉丝，早八百年就要被清算了
+
+*****
+
+####  雅朵莉雀  
+##### 6533#       发表于 2022-8-11 09:09
+
+这盘主动换路的是viper，RNG手里握着先知，最优结果肯定是让先知直接飞上DP去中打doom
+
+任何英雄跟先知换路肯定都是白亏的，只能说可能沟通问题很大吧
+
+*****
+
+####  belldandy_ye  
+##### 6534#       发表于 2022-8-11 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015427&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-11 08:58</a>
+
+东南亚人保质期也太短了吧，指xnova。
+
+这**怎么那么能抗又a得那么快，就bkb分身魔龙枪就已经抽搐的和一个疯 ...</blockquote>
+有兽王的呀，GPK的**真是压箱底的绝活
+
+*****
+
+####  walfeds  
+##### 6535#       发表于 2022-8-11 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57015593&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 09:08</a>
+
+op点评一下xnova的冰龙和外婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我跟当年的铁lxo兄弟已经和解了，上帝回家吧，咱不受这气
+
+*****
+
+####  无聊的神  
+##### 6536#       发表于 2022-8-11 09:10
+
+拧巴的出国行。。。这几天越打越差。。。现在一地鸡毛很尴尬
+
+*****
+
+####  白野苍衣  
+##### 6537#       发表于 2022-8-11 09:11
+
+那正好趁现在再预测一下TI成绩吧
+
+*****
+
+####  iriyano  
+##### 6538#       发表于 2022-8-11 09:11
+
+ig现在真的打得过清茶吗
+不过应该会换版本了吧，变数很大
+
+*****
+
+####  lmslardar  
+##### 6539#       发表于 2022-8-11 09:11
+
+xg和ig更不行，正常来说rng还是稳的，希望这次major对他们心态影响不大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白野苍衣  
+##### 6540#       发表于 2022-8-11 09:11
+
+RNG 茶队上限八强，LGD大概率决赛日再当一次背景板。
+
+
+
+*****
+
+####  沈淮  
+##### 6541#         楼主| 发表于 2022-8-11 09:11
+
+看到有这么多不把兽王光环当回事，我只能说cndota好起来了，越来越多的新观众了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 6542#       发表于 2022-8-11 09:11
+
+外卡12进2就两个名额，我不觉得CN队能蹭到一个，西欧东欧东南亚都有有竞争力的队伍
+
