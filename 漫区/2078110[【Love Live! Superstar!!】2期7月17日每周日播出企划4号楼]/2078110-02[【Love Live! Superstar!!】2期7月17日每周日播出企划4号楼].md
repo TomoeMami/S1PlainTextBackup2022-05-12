@@ -9564,3 +9564,14 @@ v要皮套丑可不行
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 2433#       发表于 2022-8-11 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026998&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-11 22:49</a>
+现在再香音传，现在香音的问题也不会解决，完全是捧杀。就像是as的栞子岚珠一样，真到了翻的时候，星可没 ...</blockquote>
+海报都这么明显告诉你了，你还是接受吧
+

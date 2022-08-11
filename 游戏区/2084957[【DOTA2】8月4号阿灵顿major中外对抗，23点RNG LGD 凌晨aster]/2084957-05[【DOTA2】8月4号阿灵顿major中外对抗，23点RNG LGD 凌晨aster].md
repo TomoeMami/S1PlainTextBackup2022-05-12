@@ -12690,3 +12690,98 @@ ruru除外，养出什么集美东西了都<img src="https://static.saraba1st.co
 
 下次ti来中国一定去现场+1，就不知道那个时候是dota3还是已经没有dota了
 
+
+
+*****
+
+####  tasuku  
+##### 7464#       发表于 2022-8-11 22:53
+
+所以今天是两个bo3,2点og打lgd，早上品茶？
+
+*****
+
+####  逃离二次元  
+##### 7465#       发表于 2022-8-11 22:54
+
+想到之后西恩dota职业圈要被lgd统治心里就发毛<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 7466#       发表于 2022-8-11 22:55
+
+隔壁lga现在一天清算一个人，到哥哥举盾那天能把全部玩dota的都打成罪人
+
+*****
+
+####  战狼PTSD  
+##### 7467#       发表于 2022-8-11 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026849&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-11 22:39</a>
+
+大家不是说好了辞职看major看rng看上帝的嘛，漏油们的话一个字都不能信，我倒和前面自己说的不玩x ...</blockquote>
+我等简中更新了再玩了，不急，没啥太大热情
+
+*****
+
+####  Litccc  
+##### 7468#       发表于 2022-8-11 22:56
+
+ti10之前我也没见过这么大的阵仗，说实话有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 7469#       发表于 2022-8-11 22:57
+
+人均萨特是吧，有这钱我宁愿买电子产品<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 7470#       发表于 2022-8-11 22:58
+
+我今年说啥也不买了，过去两年了没有玩够50盘
+
+
+
+*****
+
+####  战狼PTSD  
+##### 7471#       发表于 2022-8-11 22:58
+
+[https://ngabbs.com/read.php?tid=33030268](https://ngabbs.com/read.php?tid=33030268)
+
+集美们清算是真的狠啊，刷飞机了也不放过，漏油给我刷两个飞机我直接当撸狗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 7472#       发表于 2022-8-11 22:59
+
+害，如果卡狗有夺标希望我可能也会去现场看，一想到就算去了现场也是看geigei表演，还是算了
+
+*****
+
+####  阿垃垃圾历  
+##### 7473#       发表于 2022-8-11 23:01
+
+kaka  maybe今年打完估计也大概率退役了吧 
+
+*****
+
+####  聚散浮云  
+##### 7474#       发表于 2022-8-11 23:01
+
+也别现场了，我ti8看了现场至今回忆起温哥华都是噩梦，就他妈记得那天晚上喝了个烂醉
+
+*****
+
+####  战狼PTSD  
+##### 7475#       发表于 2022-8-11 23:02
+
+退役了还能干啥，又没赚钱路子
+
+我要是职业选手我就继续赖皮，拿个死工资天天开直播混就完事了
+
