@@ -9465,3 +9465,17 @@ v要皮套丑可不行
 去年一巡北海道场2000人小场，也是平日，还撞了aaa的小组，那场上座率就一般，镜头一给台下就能看到空好多，看来是完全没有吃到教训的样子
 不过今年我估计也不会像一巡一样每场都看了，的确没去年那种热情了，去年好多wb上关注的，每次一巡都疯狂截图和发感想，现在都跑了好几个了，多少有点物是人非的悲凉感……
 
+
+
+*****
+
+####  老1.5  
+##### 2429#       发表于 2022-8-11 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026184&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-11 21:57</a>
+
+去年一巡北海道场2000人小场，也是平日，还撞了aaa的小组，那场上座率就一般，镜头一给台下就能看到空好 ...</blockquote>
+瞟了一眼下半年要做的课题和研究报告，嗯，回来偷几个回放和切片看看可能性更高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也好理解吧，运营操作确实迷，损失部分观众也是必然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有人走亦有人来嘛，至少现在还远不是封棺日，还喜欢的话继续支持就好，方式不重要啦~
+

@@ -1988,3 +1988,18 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Ravio  
+##### 176#       发表于 2022-8-11 22:23
+
+ 本帖最后由 Ravio 于 2022-8-11 22:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56950012&amp;ptid=2084988" target="_blank">xwr 发表于 2022-8-6 12:38</a>
+
+前传可以继续打执政官，后日谈不知道谁来做反派啊。</blockquote>
+梅比乌斯【阿尔维斯】/【艾欧尼翁】，也是个无情的世界意志机器
+
+也没准dlc加的2个英雄任务就填了
+

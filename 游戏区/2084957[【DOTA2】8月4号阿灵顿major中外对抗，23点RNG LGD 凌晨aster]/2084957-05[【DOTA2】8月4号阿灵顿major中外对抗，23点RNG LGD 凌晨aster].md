@@ -12499,3 +12499,104 @@ Dota2国服和完美皮套人烂活有点多，早就取关了
 
 确实，在坡上，说去就去了，赶紧放啊
 
+
+
+*****
+
+####  坚定的团子党  
+##### 7441#       发表于 2022-8-11 22:23
+
+vg应该要解散了，阿绿说他不搞了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沈淮  
+##### 7442#         楼主| 发表于 2022-8-11 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026592&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-11 22:19</a>
+
+支持腾讯代理DOTA2，我要买情趣黑丝风行皮肤</blockquote>
+撸狗?
+
+*****
+
+####  Cantha  
+##### 7443#       发表于 2022-8-11 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">随便在B站官博评论里点开几个头像，管人痴浓度真高啊，刻板印象了属于是。缩壳缩壳
+
+*****
+
+####  很久就在那边l  
+##### 7444#       发表于 2022-8-11 22:26
+
+有没有懂哥说下去看ti全程来回加食宿门票总共大概多少钱
+
+*****
+
+####  战狼PTSD  
+##### 7445#       发表于 2022-8-11 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026648&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 22:24</a>
+
+撸狗?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">谁TM不想看到二次元美少女呢
+
+*****
+
+####  战狼PTSD  
+##### 7446#       发表于 2022-8-11 22:28
+
+不上班看TI，萨特我砍砍砍
+
+*****
+
+####  逃离二次元  
+##### 7447#       发表于 2022-8-11 22:28
+
+除了痨疳瘪，俱乐部dota真的要dead了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  马台街48  
+##### 7448#       发表于 2022-8-11 22:30
+
+推特上有位日本的旧LGD加超哥铁粉，RNG淘汰看他又狂发了好多条，关注这哥们3年了，称得上不离不弃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 7449#       发表于 2022-8-11 22:30
+
+<blockquote>很久就在那边l 发表于 2022-8-11 22:26
+有没有懂哥说下去看ti全程来回加食宿门票总共大概多少钱</blockquote>
+**外吗，你不只选几场看吗
+
+*****
+
+####  沈淮  
+##### 7450#         楼主| 发表于 2022-8-11 22:30
+
+今天下班7点打到现在起起伏伏回到原点，属于是天道酬勤了，洗澡去
+
+*****
+
+####  nowaki  
+##### 7451#       发表于 2022-8-11 22:30
+
+今年ti一个月呢，回来还要隔离21。
+
+以前去旅游一周花了3w
+
+*****
+
+####  沈淮  
+##### 7452#         楼主| 发表于 2022-8-11 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57026687&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-11 22:26</a>
+
+有没有懂哥说下去看ti全程来回加食宿门票总共大概多少钱</blockquote>
+我朋友圈的萨特，ti8花了两万多
+
