@@ -9120,3 +9120,54 @@ ts现在也是脑浆队呀
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  名字不乱取  
+##### 7067#       发表于 2022-8-11 13:32
+
+漏油还是太纯良了，直接考虑两个月后lgd赢了骑脸，输了假赛的事情就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我已经在考虑要给哪边的魔怔人下跪了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 7068#       发表于 2022-8-11 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+syl，杰出是不是也要在nga封圣了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  很久就在那边l  
+##### 7069#       发表于 2022-8-11 13:34
+
+就算决赛输给洋人还能吹全村的希望，真正治水还得要出现一个成绩超过lgd的中国队
+
+*****
+
+####  Keynes  
+##### 7070#       发表于 2022-8-11 13:35
+
+我直接宣布和cndota切割变身东南亚猴子好吧
+
+*****
+
+####  walfeds  
+##### 7071#       发表于 2022-8-11 13:35
+
+我真的不会游泳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有本事淹死我
+
+*****
+
+####  acejoe  
+##### 7072#       发表于 2022-8-11 13:38
+
+ame和maybe都是有天赋没脑子的选手，但是ame打1号位，其他人容易配，而且脑子差点也没关系。
+打2要带节奏，要思路清晰，中期最强的位置别人要根据他在地图的位置和有的经济改变打法，一旦脑浆就无解。
+maybe强的版本都是2号位狂吃资源的版本。
+
