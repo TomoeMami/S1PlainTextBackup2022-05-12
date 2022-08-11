@@ -394,3 +394,111 @@ bc的bp还是摁着k1杀就完事了，wisp的帕克3和小鹿3是真的搞<img 
 蝙蝠已经是wisper绝中绝了，再不只能操刀三号位帕克了</blockquote>
 真就当二号位用了啊
 
+
+
+*****
+
+####  战狼PTSD  
+##### 7551#       发表于 2022-8-12 00:52
+
+太艺术了
+
+*****
+
+####  walfeds  
+##### 7552#       发表于 2022-8-12 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">钻门跑了
+
+*****
+
+####  excalibur--  
+##### 7553#       发表于 2022-8-12 00:53
+
+先知：谢谢啊～
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 7554#       发表于 2022-8-12 00:56
+
+一刀一个小朋友
+
+*****
+
+####  やト  
+##### 7555#       发表于 2022-8-12 00:56
+
++294！
+
+*****
+
+####  战狼PTSD  
+##### 7556#       发表于 2022-8-12 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">仿佛看到了我被血虐的那一局
+
+这光环大屁股真是畜生
+
+*****
+
+####  excalibur--  
+##### 7557#       发表于 2022-8-12 00:56
+
+克神一刀一个！
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 7558#       发表于 2022-8-12 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 7559#       发表于 2022-8-12 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">克神！
+
+*****
+
+####  walfeds  
+##### 7560#       发表于 2022-8-12 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想念还能永久加攻的大屁股
+
+
+
+*****
+
+####  战狼PTSD  
+##### 7561#       发表于 2022-8-12 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他妈的，真的跟我被虐的那一把一模一样，疯狂扫图，20分钟要上高了
+
+*****
+
+####  acalephs  
+##### 7562#       发表于 2022-8-12 01:00
+
+宰个先知就3刀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7563#       发表于 2022-8-12 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丹砂丹砂
+
+*****
+
+####  iriyano  
+##### 7564#       发表于 2022-8-12 01:01
+
+卧槽，这么强？
+
