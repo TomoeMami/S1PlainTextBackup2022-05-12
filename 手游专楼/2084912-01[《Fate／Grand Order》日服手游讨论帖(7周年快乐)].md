@@ -8211,3 +8211,49 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 与其说是BUG不如说是精简成了就剩一个显示从者和显示全部的按钮了吧  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概是bug 因为保管库里有    不过没什么影响就是了
 
+
+
+*****
+
+####  qixinno2  
+##### 780#       发表于 2022-8-11 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025442&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 21:07</a>
+
+这bug是继承了更新前的筛选状态，所以看贴吧有的人是看不见芙芙，有的人看不见狗粮，有的人看不见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">所以设置下不就搞定了 初始化混一起 右边设置改成稀有度排序不就得了
+
+
+
+*****
+
+####  qixinno2  
+##### 781#       发表于 2022-8-11 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025447&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-11 21:08</a>
+
+大概是bug 因为保管库里有    不过没什么影响就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正没影响 毕竟没石头毛都抽不到
+
+*****
+
+####  qb0079  
+##### 782#       发表于 2022-8-11 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025482&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-11 21:11</a>
+
+所以设置下不就搞定了 初始化混一起 右边设置改成稀有度排序不就得了 ...</blockquote>
+稀有度排序就会高阶从者和金狗粮芙芙混一起，三星和银狗粮芙芙混一起，低星和铜狗粮芙芙混一起，继续一个个点<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+欧洲人还好，非洲人垫友情池的就是灾难
+
+*****
+
+####  qixinno2  
+##### 783#       发表于 2022-8-11 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025556&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-11 21:14</a>
+
+稀有度排序就会高阶从者和金狗粮芙芙混一起，三星和银狗粮芙芙混一起，低星和铜狗粮芙芙混一起，继续一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铜狗粮芙芙真的有用么 我都是勾了直接就卖了 
+

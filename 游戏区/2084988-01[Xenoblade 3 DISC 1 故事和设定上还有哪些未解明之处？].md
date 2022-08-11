@@ -1970,3 +1970,21 @@ staff表后的动画里，诺亚听到笛声向一个方向走去，这时镜头
 
 他虽然只算半个，但不至于没鸟人族能熬吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UltramanPain  
+##### 175#       发表于 2022-8-11 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025397&amp;ptid=2084988" target="_blank">Asukalangley33 发表于 2022-08-11 21:04:09</a>
+话说既然两个世界分开=什么都没发生
+
+那都市的那群人结局后是消失了么？
+
+毕竟他们都是世界融合后才出现的
+
+ ...</blockquote>从来没说齐格寄了啊。异度3整个故事相当于一瞬间而已，12时间一秒都没过去
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

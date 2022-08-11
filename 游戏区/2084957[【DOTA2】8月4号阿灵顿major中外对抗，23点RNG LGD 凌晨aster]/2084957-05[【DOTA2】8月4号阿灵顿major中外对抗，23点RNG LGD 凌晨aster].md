@@ -12186,3 +12186,73 @@ https://b23.tv/7WdyHZu
 
 好呀，完美，搞文字狱是吧，活该国服只有打rpg的了，csdx。
 
+
+
+*****
+
+####  nowaki  
+##### 7405#       发表于 2022-8-11 21:10
+
+集美不让官号发表任何意见，转不支持杰畜挺选手的视频，但是去年lgd丢盾围攻官号的是什么人呢，我记不得了。
+
+*****
+
+####  walfeds  
+##### 7406#       发表于 2022-8-11 21:11
+
+有这群csdx横行西恩dota是该死了
+
+*****
+
+####  acg_s1  
+##### 7407#       发表于 2022-8-11 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025285&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-11 20:55</a>
+
+https://b23.tv/7WdyHZu
+
+狠狠开除</blockquote>
+昨天没关注，这个实习生发了啥啊
+
+*****
+
+####  nowaki  
+##### 7408#       发表于 2022-8-11 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025507&amp;ptid=2084957" target="_blank">acg_s1 发表于 2022-8-11 21:12</a>
+
+昨天没关注，这个实习生发了啥啊</blockquote>
+[https://www.bilibili.com/video/BV1XT411w7z2?share_source=copy_web](https://www.bilibili.com/video/BV1XT411w7z2?share_source=copy_web)
+
+其实是不支持杰畜，但是也在洗a畜的，但集美觉得忠诚不绝对就是mxo
+
+*****
+
+####  蛭人  
+##### 7409#       发表于 2022-8-11 21:17
+
+实习生都说出是他也不开魔免波高地这种集美式发言也能被痛打落水狗，我只能说提纯粉丝还得是lxo啊。
+
+*****
+
+####  acg_s1  
+##### 7410#       发表于 2022-8-11 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025540&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-11 21:13</a>
+
+https://www.bilibili.com/video/BV1XT411w7z2?share_source=copy_web
+
+其实是不支持杰畜，但是也在洗a畜 ...</blockquote>
+杰畜是不是蹭到ru水买了水军啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只能说“很喜欢土豪杯期间dota2国服微博下面的一句话：dota2国服，不装了？”
+
+
+
+*****
+
+####  Keynes  
+##### 7411#       发表于 2022-8-11 21:21
+
+只能说“很喜欢土豪杯期间dota2国服微博下面的一句话：dota2国服，不装了？
+
