@@ -7459,3 +7459,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 罢了存石吧... ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么又出货了 你变了!
 
+
+
+*****
+
+####  gpx234mqx  
+##### 713#       发表于 2022-8-11 07:56
+
+都剩多少石头啊
+
