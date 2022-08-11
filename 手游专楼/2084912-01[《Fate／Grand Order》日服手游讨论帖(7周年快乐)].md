@@ -7917,3 +7917,12 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 像街机版一样，第一技能是红卡魔放就没那么多废话了吧
 
+
+
+*****
+
+####  kiralzb  
+##### 752#       发表于 2022-8-11 15:50
+
+居然掉礼装了，再换一张就能满破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

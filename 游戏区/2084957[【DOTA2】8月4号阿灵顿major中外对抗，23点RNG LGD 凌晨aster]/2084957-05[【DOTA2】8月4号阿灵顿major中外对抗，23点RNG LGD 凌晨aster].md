@@ -10284,3 +10284,72 @@ DOTA.Dragons.Blood.S03.1080p.NF.WEBRip.DDP5.1.x264-SMURF[rartv]-[rarbg.to].torre
 
 T1踢了自家 1 2号位
 
+
+
+*****
+
+####  asd235614  
+##### 7188#       发表于 2022-8-11 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">绝不投降，死也要站着死
+
+*****
+
+####  RGm  
+##### 7189#       发表于 2022-8-11 15:45
+
+kuku是t1太子吗？就是不踢。
+
+*****
+
+####  沈淮  
+##### 7190#         楼主| 发表于 2022-8-11 15:45
+
+ana topson来工作了
+
+*****
+
+####  walfeds  
+##### 7191#       发表于 2022-8-11 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021136&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-11 15:40</a>
+
+T1踢了自家 1 2号位</blockquote>
+踢完23现在又踢gabbi，我不理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7192#       发表于 2022-8-11 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021185&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-11 15:45</a>
+
+ana topson来工作了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">跟司马ku组队，那种事不要啊
+
+*****
+
+####  我爱撩菜  
+##### 7193#       发表于 2022-8-11 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021028&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 15:33</a>
+
+楼里就你还没辞职了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到漏油们堆楼堆得飞快，就知道两大水厂节奏飞起了。 
+
+辞职看TI还差不多，Major什么屌东西<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+老子可是经历过TI10熬夜吃屎再上班的社畜啊！ 
+
+*****
+
+####  chilno  
+##### 7194#       发表于 2022-8-11 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021228&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-11 15:49</a>
+
+看到漏油们堆楼堆得飞快，就知道两大水厂节奏飞起了。 
+
+辞职看TI还差不多，Major什么屌东西[f:24 ...</blockquote>
+什么吃屎，TI10不是熬夜狂喜的体验吗？
+
