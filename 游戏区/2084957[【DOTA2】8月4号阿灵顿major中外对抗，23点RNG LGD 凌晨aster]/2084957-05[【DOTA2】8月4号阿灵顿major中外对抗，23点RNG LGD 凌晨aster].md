@@ -9513,3 +9513,54 @@ u1s1，去年那可是水漫金山，不过bo5输了之后那叫一个戏剧性
 g4打完我就蒙头大睡准备装死的
 早上起来我操，爱死我们哥哥了
 
+
+
+*****
+
+####  百世诸侯  
+##### 7105#       发表于 2022-8-11 14:11
+
+[https://bbs.saraba1st.com/2b/thread-2022320-551-1.html](https://bbs.saraba1st.com/2b/thread-2022320-551-1.html)
+
+回顾一下去年TI10胜者组决赛LGD2:0秘密时的你楼，基德基德
+
+*****
+
+####  沈淮  
+##### 7106#         楼主| 发表于 2022-8-11 14:14
+
+开始算旧账！
+
+*****
+
+####  沈淮  
+##### 7107#         楼主| 发表于 2022-8-11 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019924&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 14:04</a>
+
+我记得还行啊，没印象有太多吹A畜的，去年ti前带面8拿冠军的时候LGD确实看起来势不可当 ...</blockquote>
+那你真是太搞笑了 上面有链接你自己翻
+
+*****
+
+####  一品堂官  
+##### 7108#       发表于 2022-8-11 14:15
+
+不喜欢鳖和杜鹏，但阿茶的25我是支持的。
+
+2是走出低谷，5是第一次去ti的新人。
+
+漏油要说我是洗就是吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 7109#       发表于 2022-8-11 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019882&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 14:01</a>
+
+没有吧，我记得去年楼里都是集体声讨假赛狗啊</blockquote>
+好消息是我重新回味了一遍，确实就一两个假赛的打滚，是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+坏消息是你楼胜决之后也是水漫金山，出事了也没地方躲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
