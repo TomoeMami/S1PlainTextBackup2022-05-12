@@ -7897,3 +7897,14 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 我之前国服是双凌镜加月之胜利者的。
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 750#       发表于 2022-8-11 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57018774&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-11 12:30</a>
+你不觉得星星溢出了吗？</blockquote>
+要的就是这口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

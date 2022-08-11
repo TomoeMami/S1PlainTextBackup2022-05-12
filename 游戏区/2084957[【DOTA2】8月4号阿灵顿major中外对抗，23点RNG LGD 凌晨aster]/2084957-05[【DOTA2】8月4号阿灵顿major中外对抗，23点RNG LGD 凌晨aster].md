@@ -9018,3 +9018,105 @@ ts现在也是脑浆队呀
 
 想整个大的应该只有手刃王处或者手刃打王处下去的对手两种可能了
 
+
+
+*****
+
+####  聚散浮云  
+##### 7055#       发表于 2022-8-11 13:20
+
+茶245都还可以的，只要3能站出来就是小LGD了
+
+可惜杜鹏的这几天的战犯表现比A畜还不如
+
+*****
+
+####  漂灵  
+##### 7056#       发表于 2022-8-11 13:22
+
+以面八和国土的历次bp来看，茶赢LGD的可能性为0，但考虑到ori状态奇佳，我勉强信茶有1%胜率。剩下几个队里vp不值一提，og手下败将，好像只能期待雪碧再站出来一次了。
+
+*****
+
+####  沈淮  
+##### 7057#         楼主| 发表于 2022-8-11 13:23
+
+妈的哈人，一个早上的功夫就转型超级品茶论坛了是吧
+
+*****
+
+####  excalibur--  
+##### 7058#       发表于 2022-8-11 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019378&amp;ptid=2084957" target="_blank">DDWarrior 发表于 2022-8-11 13:19</a>
+期待杜鹏真的还不如期待么么鳖，论犯罪的频率莫奈头可比么么鳖夸张多了。主要还是么么鳖喜欢在决赛 ...</blockquote>
+说白了还是后继没人了，不然还轮得到ame？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sandro  
+##### 7059#       发表于 2022-8-11 13:24
+
+第三季怎么搞啊
+
+*****
+
+####  百世诸侯  
+##### 7060#       发表于 2022-8-11 13:25
+
+别尬黑，DPC加塞茶队1:0带走LGD的时候镜头里LGD几个人的脸都黑了
+
+*****
+
+####  iriyano  
+##### 7061#       发表于 2022-8-11 13:26
+
+铁血vkun支持一下vg，xg，茶，ig不行吗
+
+*****
+
+####  百世诸侯  
+##### 7062#       发表于 2022-8-11 13:26
+
+草，这个不算屎，算SG谣言的节目效果，我搬运一下不过分吧
+
+<img src="https://img.saraba1st.com/forum/202208/11/132655zuk4pwfux4wwnpoo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 13:26 上传
+
+*****
+
+####  nerugigannte  
+##### 7063#       发表于 2022-8-11 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如畅想一下，胜者组lgd再次大败og和雪碧后学位有多高吧
+
+*****
+
+####  反方向的波  
+##### 7064#       发表于 2022-8-11 13:28
+
+徐林森进来一下，这次虎牙没有版权害的尼少了多少直播收入能说说吗
+
+*****
+
+####  名字不乱取  
+##### 7065#       发表于 2022-8-11 13:28
+
+小茶叶漏油控制一下，集美刚扣完mxo帽子，再扣个鳖孙帽子脖子快被压断了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 7066#       发表于 2022-8-11 13:29
+
+看了下nga，现在已经水漫金山了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ti10的剧本会不会又要重演一次啊。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
