@@ -11090,3 +11090,217 @@ yysy，蚂蚁这个梗是这届major最好笑的了。逆风缩地，放蝗虫�
 
 众筹版主0/10
 
+
+
+*****
+
+####  ArowRocher  
+##### 7280#       发表于 2022-8-11 17:00
+
+内行管人痴太多了
+
+*****
+
+####  43453  
+##### 7281#       发表于 2022-8-11 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57017929&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-11 11:35</a>
+按照透支偿还理论，下一个大核版本马上要来了</blockquote>
+大核荣耀是V🐍极力避免的，几年来的更新方向都是五个人都有的玩，五个人的重要性都在平均，而不是一号位或者二号位带其他四个躺赢
+
+*****
+
+####  tasuku  
+##### 7282#       发表于 2022-8-11 17:02
+
+凑够了然后跑路是吧
+
+*****
+
+####  CNFH1984  
+##### 7283#       发表于 2022-8-11 17:02
+
+只要崩溃神坐起来打，杜鹏没有半点机会，除非ori再次成为中华奇迹哥
+
+*****
+
+####  nightmare902015  
+##### 7284#       发表于 2022-8-11 17:03
+
+还在核，已经多少年没出过大后期核心的新英雄了数的清吗。大圣这种刷打结合我觉得挺风向标的。
+
+*****
+
+####  nowaki  
+##### 7285#       发表于 2022-8-11 17:03
+
+这版本假三真一，茶和lgd最大短板都露不出来，别指望ts的3了，更大可能是脑东京和鸭头肉先炸
+
+*****
+
+####  百世诸侯  
+##### 7286#       发表于 2022-8-11 17:04
+
+ORI与黑暗森林已经完结了，现在是ORI与萤火意志，曾焦阳将透支未来，在TI11上绽放成为最美丽的樱花......
+
+*****
+
+####  seki_m  
+##### 7287#       发表于 2022-8-11 17:04
+
+想到刀版版主上次借皮套畜同事和处长拉关系就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 7288#       发表于 2022-8-11 17:04
+
+只要崩溃神坐起来，就一定能给老干瘪神罚！
+
+*****
+
+####  沈淮  
+##### 7289#         楼主| 发表于 2022-8-11 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022227&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-11 17:02</a>
+
+凑够了然后跑路是吧</blockquote>
+你太懂了
+
+*****
+
+####  jy000129  
+##### 7290#       发表于 2022-8-11 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019461&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 13:26</a>
+草，这个不算屎，算SG谣言的节目效果，我搬运一下不过分吧</blockquote>
+杰÷真这么社达也不至于捆在婷婷这棵树上这么多年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  CNFH1984  
+##### 7291#       发表于 2022-8-11 17:06
+
+<blockquote>百世诸侯 发表于 2022-8-11 17:04
+ORI与黑暗森林已经完结了，现在是ORI与萤火意志，曾焦阳将透支未来，在TI11上绽放成为最美丽的樱花...... ...</blockquote>
+？要改版灌篮高手是吧，好呀好呀我也想看茶队在败决把老干瘪送下去，然后直面最终神神中神完全体雪碧呀
+
+*****
+
+####  蛭人  
+##### 7292#       发表于 2022-8-11 17:06
+
+我算看出来了，扭曲粉不少，只要LGD一夺冠你上哪儿也躲不掉，不如开闸放水！
+
+*****
+
+####  pikamee  
+##### 7293#       发表于 2022-8-11 17:06
+
+哇 去管人区仙贝真爱楼看一眼，全是黄色论坛截图啊，比你楼搬运得还密集<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  云图  
+##### 7294#       发表于 2022-8-11 17:07
+
+小道消息ANA要去T1打C，丁真吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沈淮  
+##### 7295#         楼主| 发表于 2022-8-11 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022294&amp;ptid=2084957" target="_blank">云图 发表于 2022-8-11 17:07</a>
+
+小道消息ANA要去T1打C，丁真吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+真，topson打2
+
+*****
+
+####  弈秋  
+##### 7296#       发表于 2022-8-11 17:07
+
+真去和topson打兄弟dota了啊
+
+*****
+
+####  12481632  
+##### 7297#       发表于 2022-8-11 17:08
+
+反正T1已经把12都踢了，现在外面还在找队的12是谁不用多说了吧
+
+*****
+
+####  nowaki  
+##### 7298#       发表于 2022-8-11 17:08
+
+oc和sccc吗
+
+*****
+
+####  莉拉厨  
+##### 7299#       发表于 2022-8-11 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022245&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 17:04</a>
+
+ORI与黑暗森林已经完结了，现在是ORI与萤火意志，曾焦阳将透支未来，在TI11上绽放成为最美丽的樱花...... ...</blockquote>
+ORI最后噶了变成树了，望周知
+
+*****
+
+####  CNFH1984  
+##### 7300#       发表于 2022-8-11 17:09
+
+不要啊t1还有司马kuku，要是上帝跟kuku合流那也太恶心了
+
+*****
+
+####  百世诸侯  
+##### 7301#       发表于 2022-8-11 17:09
+
+<img src="https://img.saraba1st.com/forum/202208/11/170912dh6t16iqmd17qlxh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 17:09 上传
+
+管人痴好恶心啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  云图  
+##### 7302#       发表于 2022-8-11 17:09
+
+ana加topson能不能带动ku猴还是个问题
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  CNFH1984  
+##### 7303#       发表于 2022-8-11 17:10
+
+<blockquote>百世诸侯 发表于 2022-8-11 17:09
+管人痴好恶心啊</blockquote>
+冲着最后一句我勉强可以打及格分
+
+*****
+
+####  12481632  
+##### 7304#       发表于 2022-8-11 17:10
+
+那么今年有新加坡漏油代购吗（）
+
