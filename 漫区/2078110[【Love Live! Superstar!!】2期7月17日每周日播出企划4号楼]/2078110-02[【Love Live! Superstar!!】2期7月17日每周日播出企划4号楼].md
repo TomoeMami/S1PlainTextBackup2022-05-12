@@ -9374,3 +9374,27 @@ v要皮套丑可不行
 
 我已经香音PTSD了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2423#       发表于 2022-8-11 21:23
+
+ 本帖最后由 aoaoaodedede 于 2022-8-11 21:28 编辑 
+
+微博上看到有人整理的Live时间分布图，星这边撇开西武巨蛋，北海道那俩场Live也感觉安排的挺离谱的
+
+看了下“北海きたえーる”的官网，“メインアリーナ”那里最大能安排的座位可能是超过8000个的
+[http://www.kitayell.jp/shisetsu/mainarena.html](http://www.kitayell.jp/shisetsu/mainarena.html)
+
+<img src="https://img.saraba1st.com/forum/202208/11/212059pjmwdm2u0ijmrqw8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 21:20 上传
+
+而且北海道Day1那一场在平日，北海道Day2那一场和R3小组Live的Day1又在同一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

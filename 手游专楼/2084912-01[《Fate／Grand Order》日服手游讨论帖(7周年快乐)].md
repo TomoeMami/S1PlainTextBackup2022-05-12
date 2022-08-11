@@ -8257,3 +8257,29 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 稀有度排序就会高阶从者和金狗粮芙芙混一起，三星和银狗粮芙芙混一起，低星和铜狗粮芙芙混一起，继续一个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铜狗粮芙芙真的有用么 我都是勾了直接就卖了 
 
+
+
+*****
+
+####  DARKGRAY  
+##### 784#       发表于 2022-8-11 21:20
+
+全员1000之后铜芙芙都是直接自动卖掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 785#       发表于 2022-8-11 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57025645&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-8-11 21:20</a>
+
+全员1000之后铜芙芙都是直接自动卖掉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你怎么做到全员1000的 萌新甚至都不够
+
+*****
+
+####  qixinno2  
+##### 786#       发表于 2022-8-11 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">金卡从者不是能升宝具升宝具 多余的除了真爱和用来当插件锁住 剩下不卖扔仓库里干嘛 低星的不就是换绿方块用的肯定顺手全卖了 迷之烦恼
+
