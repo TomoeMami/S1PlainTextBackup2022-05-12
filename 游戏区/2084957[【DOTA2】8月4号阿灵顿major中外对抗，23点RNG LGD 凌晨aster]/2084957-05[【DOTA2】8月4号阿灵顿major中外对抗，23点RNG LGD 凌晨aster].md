@@ -10427,3 +10427,135 @@ ti10第二天清工作都无比的畅快！
 
 从ti10胜决到总决第二天早上的回复太欢乐了，翻出来都是拷打漏油
 
+
+
+*****
+
+####  Keynes  
+##### 7202#       发表于 2022-8-11 16:01
+
+刚刚打dodo打晕过去了，一觉醒来漏油们聊了这么多啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 7203#       发表于 2022-8-11 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57019225&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-11 13:05</a>
+
+淡化攻击性，你是不是就是那种因为撸狗把运营这个词用了然后dota里就不能说了那种人啊
+
+这楼里集美 ...</blockquote>
+牛逼了 运营这词撸狗发明的是吧
+
+*****
+
+####  syndrome2032  
+##### 7204#       发表于 2022-8-11 16:02
+
+ 本帖最后由 syndrome2032 于 2022-8-11 16:04 编辑 
+
+ti10漏油们一个个都准备战胜自己，迎接至高无上的圣a皇回到永远忠诚于他的sg了。
+
+结果转头就是小丑皇a畜再次不敌草台班子。
+
+傻狗们再次获得了救赎
+
+*****
+
+####  CNFH1984  
+##### 7205#       发表于 2022-8-11 16:02
+
+哇兄弟们对自己人真是狠啊
+
+*****
+
+####  我爱撩菜  
+##### 7206#       发表于 2022-8-11 16:03
+
+不是集美
+
+一边看着23458过来的。 从一线守门员看到现在，是不是AME打1关系不大，当时的塞拉就是放养型大哥。
+
+*****
+
+####  tasuku  
+##### 7207#       发表于 2022-8-11 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021347&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 15:59</a></blockquote>
+eh追过来的肯定不是我们哥哥的粉啊
+
+*****
+
+####  我爱撩菜  
+##### 7208#       发表于 2022-8-11 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021347&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 15:59</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 被你翻出来了啊， 被喂屎太难受了
+
+*****
+
+####  CNFH1984  
+##### 7209#       发表于 2022-8-11 16:05
+
+echo和shiro其实年纪都不大，可惜目前来看还很需要锻炼
+
+感觉未来就在这俩，pyy，lou这几个人上了
+
+*****
+
+####  百世诸侯  
+##### 7210#       发表于 2022-8-11 16:06
+
+<img src="https://img.saraba1st.com/forum/202208/11/160548kq0uby28p81rhd84.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 16:05 上传
+
+莉娜玛茜复活了，速看
+
+*****
+
+####  沈淮  
+##### 7211#         楼主| 发表于 2022-8-11 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021347&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-11 15:59</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 7212#         楼主| 发表于 2022-8-11 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021456&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 16:06</a>
+
+莉娜玛茜复活了，速看</blockquote>
+来了来了
+
+*****
+
+####  哈曼的YY  
+##### 7213#       发表于 2022-8-11 16:07
+
+翻了一下自己1017的发言 还对干瘪夺冠有乐观预期呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 7214#       发表于 2022-8-11 16:08
+
+漏油是在提前演习清算吗，这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 7215#       发表于 2022-8-11 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57021456&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-11 16:06</a>
+
+莉娜玛茜复活了，速看</blockquote>
+好好好
+
