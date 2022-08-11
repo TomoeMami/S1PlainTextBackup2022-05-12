@@ -11544,3 +11544,78 @@ ana飞脸送头他是上帝，查理斯吃屎带队打架我是最大锅？
 
 万一ana和topson真去t1，然后带着s m kuku夺冠，想想真是画美不看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 7333#       发表于 2022-8-11 18:00
+
+反击螺旋！
+
+*****
+
+####  香蕉芭菲  
+##### 7334#       发表于 2022-8-11 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023004&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-11 18:00</a>
+万一ana和topson真去t1，然后带着s m kuku夺冠，想想真是画美不看</blockquote>
+就算ana和topson出来打也不可能是t1的，肯定是欧洲的队
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  反方向的波  
+##### 7335#       发表于 2022-8-11 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">想吃完饭把g1这口屎再品一下了
+
+*****
+
+####  名字不乱取  
+##### 7336#       发表于 2022-8-11 18:02
+
+我投小天使一票，打完我怀疑东南亚英语和澳大利亚英语中间差一个转译员<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 7337#       发表于 2022-8-11 18:06
+
+把karl踢了我是真没想到<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">t1管理层nmsl
+
+*****
+
+####  蛭人  
+##### 7338#       发表于 2022-8-11 18:07
+
+这龙之血是越来越离谱了。
+
+*****
+
+####  沈淮  
+##### 7339#         楼主| 发表于 2022-8-11 18:07
+
+韩国棒子是这样的
+
+*****
+
+####  tasuku  
+##### 7340#       发表于 2022-8-11 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57022937&amp;ptid=2084957" target="_blank">雅朵莉雀 发表于 2022-8-11 17:54</a>
+
+最后一把查理斯的最大问题在哪？
+
+线上被打炸了？秒了doom没大往对面二塔下冲？
+
+这盘RNG整个阵容最重要的就 ...</blockquote>
+原来是楼下
+
+我还以为你在锐评scboy
+
+最后两把最大的锅应该是小天屎
+
+其他轮流犯病也还算好吧，1234没有明显比别人更蠢的地方
+

@@ -9265,3 +9265,23 @@ v要皮套丑可不行
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 她有啥好喷的，在香音传加持下香音人气快断层了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2412#       发表于 2022-8-11 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天还看到香哥哥粉丝在等个人回呢
+
+*****
+
+####  愛さ実  
+##### 2413#       发表于 2022-8-11 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57023098&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-11 18:08</a>
+今天还看到香哥哥粉丝在等个人回呢</blockquote>
+个人回？回回都是个人回！（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
