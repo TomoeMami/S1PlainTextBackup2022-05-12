@@ -9314,3 +9314,29 @@ v要皮套丑可不行
 
 当时那个主视觉图出来的时候有人认为不值得参考，我寻思那图是斋藤敦史画的，可不是随便找啥人整出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 2417#       发表于 2022-8-11 19:49
+
+ 本帖最后由 古战场亡魂 于 2022-8-11 19:50 编辑 
+
+很实在，香音传合理戏份第一。恋在最后人气最低谷子价格排第9合理。
+
+<img src="https://img.saraba1st.com/forum/202208/11/194940a6enewtitunwujhn.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-bcfcbd6cae45d8e4148fcb1e80ab36c4_720w.jpg</strong> (155.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 19:49 上传
+
+*****
+
+####  凡人  
+##### 2418#       发表于 2022-8-11 19:51
+
+后面至少应该有一集和薇恩的对手戏吧，你为什么不单飞之类的样板戏
+
