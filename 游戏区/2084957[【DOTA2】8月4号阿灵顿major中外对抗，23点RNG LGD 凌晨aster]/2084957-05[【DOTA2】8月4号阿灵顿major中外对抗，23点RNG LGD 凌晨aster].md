@@ -2864,3 +2864,445 @@ vp再浪要把优势玩儿没了
 
  刀得不是塔：TI就是黏合国 最野性的最纯真的才能去粘合国
 
+
+
+*****
+
+####  nightmare902015  
+##### 6365#       发表于 2022-8-11 08:42
+
+安皇的先知真的脑梗，感觉不如inflame
+
+*****
+
+####  mkii量产型  
+##### 6366#       发表于 2022-8-11 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上一次用看乐子心态看西恩队是啥时候来着？
+
+*****
+
+####  蛭人  
+##### 6367#       发表于 2022-8-11 08:43
+
+ 本帖最后由 蛭人 于 2022-8-11 08:45 编辑 
+
+我吐了，先知点viper点了无数下吧，小小不想上，犹豫就白给了，所以这沟通，为啥选个先知？
+
+*****
+
+####  沈淮  
+##### 6368#         楼主| 发表于 2022-8-11 08:44
+
+这盘rng只能打rat了，现在处理不了bkb vip，dp吃doom之后vip无敌的
+
+*****
+
+####  ArowRocher  
+##### 6369#       发表于 2022-8-11 08:44
+
+打完去医院挂个号吧
+
+*****
+
+####  TIZI  
+##### 6370#       发表于 2022-8-11 08:44
+
+高情商：复古刀塔
+低情商：脑浆喷发
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acalephs  
+##### 6371#       发表于 2022-8-11 08:44
+
+厨子这波可以啊
+
+*****
+
+####  沈淮  
+##### 6372#         楼主| 发表于 2022-8-11 08:44
+
+aa这波飞救命了，
+
+*****
+
+####  haruhiismer  
+##### 6373#       发表于 2022-8-11 08:45
+
+viper后期现在也不是很弱看好经典剧本，来个圣剑火猫掉圣剑翻盘
+
+*****
+
+####  蛭人  
+##### 6374#       发表于 2022-8-11 08:45
+
+别了，摸高火猫，这不得直接被集美打死。
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6375#       发表于 2022-8-11 08:45
+
+vp要赢666必须盯着dp大啊
+
+*****
+
+####  聚散浮云  
+##### 6376#       发表于 2022-8-11 08:46
+
+哇厨子先知都会拉扯了
+
+*****
+
+####  反方向的波  
+##### 6377#       发表于 2022-8-11 08:46
+
+六老师又送了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  secretgarnet  
+##### 6378#       发表于 2022-8-11 08:46
+
+总得有个人吃doom的呀，李斯吃不得只能超哥吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhouxin95  
+##### 6379#       发表于 2022-8-11 08:46
+
+脑浆dota best dota
+
+*****
+
+####  acalephs  
+##### 6380#       发表于 2022-8-11 08:46
+
+天辉先知只有12%胜率太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 6381#       发表于 2022-8-11 08:46
+
+这饼干，我笑了。
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6382#       发表于 2022-8-11 08:46
+
+内鬼啊我靠
+
+*****
+
+####  Keynes  
+##### 6383#       发表于 2022-8-11 08:46
+
+我服了，这饼干
+
+*****
+
+####  吃货红毛  
+##### 6384#       发表于 2022-8-11 08:47
+
+XNOVA是他娘的对面的吧
+
+*****
+
+####  12481632  
+##### 6385#       发表于 2022-8-11 08:47
+
+伟哥不装了
+
+*****
+
+####  Asukalangley33  
+##### 6386#       发表于 2022-8-11 08:47
+
+我是ANA我敲了
+
+玩NMLGB啊
+
+*****
+
+####  山上徹也  
+##### 6387#       发表于 2022-8-11 08:47
+
+何意啊xnova
+
+*****
+
+####  千千千千鸟  
+##### 6388#       发表于 2022-8-11 08:47
+
+xnova故意的吧，这失误是职业选手能犯的？
+
+*****
+
+####  Litccc  
+##### 6389#       发表于 2022-8-11 08:47
+
+就是你偷的我的ti冠军是吧？死！
+
+*****
+
+####  莉拉厨  
+##### 6390#       发表于 2022-8-11 08:47
+
+小天使纯畜生啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  secretgarnet  
+##### 6391#       发表于 2022-8-11 08:47
+
+otsd.XNova!
+
+*****
+
+####  zkc1991  
+##### 6392#       发表于 2022-8-11 08:47
+
+上帝:我打你妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  morwhipppo  
+##### 6393#       发表于 2022-8-11 08:47
+
+喂公子吃饼
+
+*****
+
+####  snarc1  
+##### 6394#       发表于 2022-8-11 08:47
+
+单大发条
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RGm  
+##### 6395#       发表于 2022-8-11 08:47
+
+联合演我上帝是吧
+
+*****
+
+####  百世诸侯  
+##### 6396#       发表于 2022-8-11 08:48
+
+太傻逼了卧槽
+
+*****
+
+####  遗尿  
+##### 6397#       发表于 2022-8-11 08:48
+
+XNOVA这是记仇么？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 6398#       发表于 2022-8-11 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Xnova不原谅Ana
+
+*****
+
+####  迷途lite  
+##### 6399#       发表于 2022-8-11 08:48
+
+内鬼不装了啊
+
+*****
+
+####  Keynes  
+##### 6400#       发表于 2022-8-11 08:48
+
+治不了a畜还治不了你a厨吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  方舟失智博士  
+##### 6401#       发表于 2022-8-11 08:48
+
+ana打完懂了 这哪是队友啊 都是仇人
+
+*****
+
+####  ArowRocher  
+##### 6402#       发表于 2022-8-11 08:48
+
+能别给小天使选一个可互动友方英雄的英雄吗？
+
+*****
+
+####  百世诸侯  
+##### 6403#       发表于 2022-8-11 08:48
+
+xnova：厨子偷我的拿督该偿还了
+
+*****
+
+####  苏西踩到我了  
+##### 6404#       发表于 2022-8-11 08:49
+
+才发现maybe出了瓶子……这逼不出瓶子不会玩吗？
+
+*****
+
+####  nightmare902015  
+##### 6405#       发表于 2022-8-11 08:49
+
+该左上角关闭队友帮助了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acalephs  
+##### 6406#       发表于 2022-8-11 08:49
+
+这viper好鬼畜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 6407#       发表于 2022-8-11 08:49
+
+ana：服了服了
+
+*****
+
+####  seki_m  
+##### 6408#       发表于 2022-8-11 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">他还是没有原谅上帝
+
+*****
+
+####  TIZI  
+##### 6409#       发表于 2022-8-11 08:51
+
+备战预选啦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+这回家局太丑陋了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  弈秋  
+##### 6410#       发表于 2022-8-11 08:51
+
+这打的啥
+
+*****
+
+####  chilno  
+##### 6411#       发表于 2022-8-11 08:51
+
+xnova单防ana!
+
+*****
+
+####  蛭人  
+##### 6412#       发表于 2022-8-11 08:51
+
+这老奶奶我吐了。
+
+*****
+
+####  吃货红毛  
+##### 6413#       发表于 2022-8-11 08:51
+
+这GPK无敌了 感觉等G
+
+*****
+
+####  acalephs  
+##### 6414#       发表于 2022-8-11 08:51
+
+寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 6415#       发表于 2022-8-11 08:51
+
+回家了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 6416#         楼主| 发表于 2022-8-11 08:51
+
+扔回来一个vip
+
+*****
+
+####  我爱撩菜  
+##### 6417#       发表于 2022-8-11 08:51
+
+这vip这么硬吗，打了一万年还不死
+
+*****
+
+####  fopinecone  
+##### 6418#       发表于 2022-8-11 08:52
+
+查到了，那天吃饭xnova也是站着的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/11/085152u7tg288ez18d667u.jpg" referrerpolicy="no-referrer">
+
+<strong>img_3269.jpg</strong> (206.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-11 08:51 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  snarc1  
+##### 6419#       发表于 2022-8-11 08:52
+
+到点了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 6420#       发表于 2022-8-11 08:52
+
+卡猴扔个爹回来团灭呀
+
+
+
+*****
+
+####  acalephs  
+##### 6421#       发表于 2022-8-11 08:52
+
+刷新点金草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 6422#       发表于 2022-8-11 08:52
+
+丢了个爹
+
