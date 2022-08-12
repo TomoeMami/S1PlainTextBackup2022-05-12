@@ -9009,3 +9009,28 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 课佬也没那么空每个角色都拉120+2000啊 而且也做不到 都是有限的物资</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以做那榜的那人是不是脑子有坑
 
+
+
+*****
+
+####  rooarr  
+##### 844#       发表于 2022-8-12 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033977&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:11</a>
+ 你不要乱讲 我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧  ...</blockquote>
+人均2宝的还不是大佬吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 845#       发表于 2022-8-12 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033977&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:11</a>
+
+你不要乱讲
+
+我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全图鉴2-3宝还不是大佬吗  区区几个限定5宝能和你比吗（
+
