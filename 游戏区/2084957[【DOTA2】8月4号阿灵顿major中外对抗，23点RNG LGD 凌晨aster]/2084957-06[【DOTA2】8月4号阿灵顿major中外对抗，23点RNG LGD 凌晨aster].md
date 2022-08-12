@@ -8489,3 +8489,103 @@ wings邪恶面的粉丝，我不能接受
 也许有35粉吧，不过加起来没有集美的零头多。</blockquote>
 xincute应该也有粉的
 
+
+
+*****
+
+####  ArowRocher  
+##### 8522#       发表于 2022-8-12 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039331&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-12 20:55</a>
+
+不是，我只有s1用的土豆泥当头像</blockquote>
+是小豆泥
+
+*****
+
+####  莉拉厨  
+##### 8523#       发表于 2022-8-12 21:04
+
+费洛米娜hso，想干<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8524#       发表于 2022-8-12 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039407&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-12 20:59</a>
+
+xincute应该也有粉的</blockquote>
+我不好说什么取向了
+
+*****
+
+####  nomhrpls  
+##### 8525#       发表于 2022-8-12 21:04
+
+去nga看了一下，太哈人了。打完ti后的假赛论我只觉得荒谬，这次是真的感觉到狂热。
+
+*****
+
+####  walfeds  
+##### 8526#       发表于 2022-8-12 21:05
+
+ 本帖最后由 walfeds 于 2022-8-12 21:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">跟老lxo已经其乐融融地看傻狗短剧了，感觉他们还是没过完ti8那个夏天
+
+*****
+
+####  反方向的波  
+##### 8527#       发表于 2022-8-12 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说茶队打的连喷点都找不到。。。。。。。。。。。。
+请问你有什么感想
+
+*****
+
+####  名字不乱取  
+##### 8528#       发表于 2022-8-12 21:07
+
+那不如直接说拷打憋星会被拿枪指头更合理一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 8529#       发表于 2022-8-12 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接做个拷打lgd的我就认杰出
+
+*****
+
+####  BallanceHZ  
+##### 8530#       发表于 2022-8-12 21:10
+
+ 本帖最后由 BallanceHZ 于 2022-8-12 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039517&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 21:05</a>
+
+BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说茶队打的连喷点都找不到。。。。。。。 ...</blockquote>
+
+找我何意呢，哪边粉丝找不出傻x
+
+其实但凡看下切片up的播放量就知道，茶流量就是比lgd和rng差的多
+
+*****
+
+####  杜文乐超神归来  
+##### 8531#       发表于 2022-8-12 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回家一看发这么大水，nm胜决都没开打呢
+
+*****
+
+####  外挂全家脚气  
+##### 8532#       发表于 2022-8-12 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039568&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-12 21:09</a>
+
+直接做个拷打lgd的我就认杰出</blockquote>
+我怎么记得DPC的LGD整蛊的时候出过一期，说他们科研都算不上科研，就是在乱玩
+
