@@ -3846,3 +3846,366 @@ syl
 
 这个强力走垒设定，感觉神速稳赢了吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 16844#       发表于 2022-8-12 13:43
+
+社长两次关键点失败，熊猫人要下克上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16845#       发表于 2022-8-12 13:50
+
+第一cjb，拿下
+
+*****
+
+####  格林卡罗尔  
+##### 16846#       发表于 2022-8-12 13:51
+
+熊猫人这阵容数据平均差了一百点也能翻，流弊
+
+*****
+
+####  FCCHua  
+##### 16847#       发表于 2022-8-12 13:51
+
+熊猫人名监督！
+
+*****
+
+####  say_gg_plz  
+##### 16848#       发表于 2022-8-12 13:52
+
+熊猫人今天选择和运气都好，BUFF吃满了，社长危机时候换投换晚了
+
+*****
+
+####  lhawp  
+##### 16849#       发表于 2022-8-12 13:55
+
+熊猫人牛逼！
+
+*****
+
+####  alcoholic1000  
+##### 16850#       发表于 2022-8-12 13:56
+
+不会决赛是我们gamers内战吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LilighT  
+##### 16851#       发表于 2022-8-12 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">太精彩了
+
+
+
+*****
+
+####  hulaoda007  
+##### 16852#       发表于 2022-8-12 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看战报好精彩。
+
+
+
+*****
+
+####  rzrbtk  
+##### 16853#       发表于 2022-8-12 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003525&amp;ptid=1972669" target="_blank">IL282 发表于 2022-8-10 12:42</a>
+
+underaged chinks 是这样的，世界闻名了都
+
+—— 来自 OnePlus IN2025, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+主要是骂战两边都给我一种“啊啊啊你不要跟她跳舞啊啊啊”感，liver之间互相锐评/云/串门我倒是觉得挺好的...
+
+syl，已经开始无法预测的命运之舞台了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">，替虹高祈福
+
+*****
+
+####  Ketestrait  
+##### 16854#       发表于 2022-8-12 14:24
+
+豆猫完全压制住了社长，加贺美大附危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16855#       发表于 2022-8-12 14:25
+
+加賀美大附属高校？
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16856#       发表于 2022-8-12 14:34
+
+德比关键三振拿下转折点！ 风向来到了社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16857#       发表于 2022-8-12 14:34
+
+莎皇一人队，唯一的ACE独木难支
+跟现实中的莎皇一致性
+
+
+
+*****
+
+####  Ketestrait  
+##### 16858#       发表于 2022-8-12 14:50
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h53zggmp91j20py0el0wn.jpg" referrerpolicy="no-referrer">
+
+背后灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16859#       发表于 2022-8-12 15:13
+
+lize你也是cjb？
+
+*****
+
+####  Ketestrait  
+##### 16860#       发表于 2022-8-12 15:17
+
+EN吃瓜群众把VoxYashiro背后灵供起来之后yashiro就爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16861#       发表于 2022-8-12 15:27
+
+真没想到会悬念拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赛前我都默认两上两下，下二校的数据只有上二的75%这也能有悬念
+
+
+
+*****
+
+####  高等黑暗  
+##### 16862#       发表于 2022-8-12 15:40
+
+1发胜负就是什么都有可能发生的 去年帝华数据和今年豆猫差不多惨最后第三好吧
+
+现在来说
+
+豆猫：除非社长被LZ爆锤否则稳定第四
+
+ssk：lz不胜的情况下只要赢豆猫就第一 lz胜的情况下必须得分超过lz也就是血洗豆猫10点以上
+
+lz：赢社长并且豆猫不被血洗
+
+社长：赢lz并且ssk输豆猫
+
+最有利的我觉得是ssk
+
+*****
+
+####  alcoholic1000  
+##### 16863#       发表于 2022-8-12 15:47
+
+插播一条：
+
+<img src="https://img.saraba1st.com/forum/202208/12/154614gkccjcasewjl1sw1.png" referrerpolicy="no-referrer">
+
+<strong>English-speaking Gamers.png</strong> (132.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 15:46 上传
+
+ <blockquote>Male character VTuber Auditions for <strong>English-speaking Gamers</strong> open now!</blockquote>
+你这图上五个b哪个称得上Gamer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 16864#       发表于 2022-8-12 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男里能找出一个正经gamer吗我怎么不知道
+
+应该走的就不是这个路数吧
+
+*****
+
+####  fastary  
+##### 16865#       发表于 2022-8-12 16:10
+
+只要平时直播打游戏就是gamer
+
+
+
+*****
+
+####  高等黑暗  
+##### 16866#       发表于 2022-8-12 16:28
+
+lz和社长的比赛决定一切了
+
+lz赢 顺位是lz 熊猫人 社长 豆猫
+
+社长赢 熊猫人 社长 lz 豆猫
+
+
+
+*****
+
+####  poipanchao  
+##### 16867#       发表于 2022-8-12 16:48
+
+难道社长就是虹甲第一cjb？
+
+
+
+*****
+
+####  更喜欢狗是吗  
+##### 16868#       发表于 2022-8-12 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> B组第二吹JB会是谁呢？
+
+
+
+*****
+
+####  Ketestrait  
+##### 16869#       发表于 2022-8-12 17:05
+
+关键的转折点buff被三振，风向不在社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 16870#       发表于 2022-8-12 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上次垫底的赫高锁定前2了！3bk没有3年垫底！
+
+*****
+
+####  say_gg_plz  
+##### 16871#       发表于 2022-8-12 17:11
+
+不愧是卯月剧场，最后这场也太好看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16872#       发表于 2022-8-12 17:12
+
+ 本帖最后由 alcoholic1000 于 2022-8-12 17:17 编辑 
+
+铁壁赫高！王道！王道！王道！
+
+不过没想到社长队打成这样
+
+<img src="https://img.saraba1st.com/forum/202208/12/171743jxzp3x773dxixtt6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【Aリーグ最終結果】 .jpeg</strong> (347.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:17 上传
+
+【Aリーグ最終結果】
+
+1位:王立ヘルエスタ
+
+2位:パンパカパンダ
+
+3位:加賀美大附属
+
+4位:楽園村立まめねこ
+
+
+
+*****
+
+####  FCCHua  
+##### 16873#       发表于 2022-8-12 17:23
+
+ 本帖最后由 FCCHua 于 2022-8-12 17:27 编辑 
+
+下午在hnn弹幕栏里刷kmt和oreapo的真有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报告给运营，虽然我觉得后者没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 16874#       发表于 2022-8-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035047&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-12 15:47</a>
+
+插播一条：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mysta的瓦实力还是要尊敬下的，倒是sunny这军团高玩没选进来挺意外的
+
+*****
+
+####  winda  
+##### 16875#       发表于 2022-8-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-10 11:33</a>
+
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简中限定炎上真的很有节目效果
+
+这点drama 700踩和ib虹甲捏人优遇en男的1400踩比起来啥都不算
+
+
+
+*****
+
+####  poipanchao  
+##### 16876#       发表于 2022-8-12 17:41
+
+豆猫这成绩不行，fanart倒是挺多的
+这队剧情特别王道就是了
+乡下学校来了个天才选手莎皇
+努力了三年带队进甲子园
+莎皇的形象又有特点，画面感强
+
+*****
+
+####  poipanchao  
+##### 16877#       发表于 2022-8-12 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036309&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-8-12 17:23</a>
+下午在hnn弹幕栏里刷kmt和oreapo的属实有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报 ...</blockquote>
+下午播啥了就开刷？
+
+
+
+*****
+
+####  FCCHua  
+##### 16878#       发表于 2022-8-12 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036557&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-12 17:43</a>
+下午播啥了就开刷？</blockquote>
+vspo四人＋aim组排valo
+

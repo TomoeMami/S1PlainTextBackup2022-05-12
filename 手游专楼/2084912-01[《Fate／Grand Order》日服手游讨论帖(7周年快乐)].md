@@ -8537,3 +8537,615 @@ lily：友情池双up你怕了吗
 
 国服感觉对泛用这事儿入魔了，实际上奥当打手掏出来也没几次，且都有更优的组队
 
+
+
+*****
+
+####  exiaexa  
+##### 810#       发表于 2022-8-12 12:48
+
+ 本帖最后由 exiaexa 于 2022-8-12 12:59 编辑 
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手
+
+我先说一句这个阵容下2宝奥伯龙伤害是完全没问题的，别说什么伤害不够让人笑话
+
+问题在于，不是说这个阵容不行，而是你先要找到好友的奥伯龙
+
+其次你要找到好友带对礼装的奥伯龙
+
+最后你要确定你的好友也是个高宝
+
+除非都是一个群的不然效率太低了
+
+日服这边好友除了C阶都是乱七八糟，你要抓个暗狐狸都难，根本没法定制环境
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  芭德薇  
+##### 811#       发表于 2022-8-12 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手</blockquote>
+这次活动没几个挂暗狐的，我已经改成双公主奥伯龙队了，趁这次活动有倍卡多爽几把大腿的5宝……
+
+*****
+
+####  vacuumsword  
+##### 812#       发表于 2022-8-12 12:58
+
+昨天的弓本我拿了好友的五宝奥试了双奥妖兰。自buff第二面的6w虎头车居然打不死。无敌还限制了必须先垫刀，属实不行。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 813#       发表于 2022-8-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">人家国服效率厨不是经常为了借好友把好友删光的吗
+
+*****
+
+####  exiaexa  
+##### 814#       发表于 2022-8-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033148&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 12:58</a>
+
+人家国服效率厨不是经常为了借好友把好友删光的吗</blockquote>
+所以说日服根本没法用啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 815#       发表于 2022-8-12 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033130&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-8-12 12:55</a>
+
+这次活动没几个挂暗狐的，我已经改成双公主奥伯龙队了，趁这次活动有倍卡多爽几把大腿的5宝…… ...</blockquote>
+无所谓，我从来只看礼装不看人，挂条狗上去我也能用
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 816#       发表于 2022-8-12 13:00
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033157&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:58</a>
+
+所以说日服根本没法用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也不是什么泛用牛比阵容   要是真的强日服也会有这种操作的（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且奥师傅那边刚落地。你说的。。。不都是云出来的
+
+*****
+
+####  exiaexa  
+##### 817#       发表于 2022-8-12 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033170&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:00</a>
+
+这也不是什么泛用牛比阵容   要是真的强日服也会有这种操作的（</blockquote>
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班杨这种玩意儿
+
+就奇怪到让你觉得这群人怕不是开两个号对刷
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 818#       发表于 2022-8-12 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033187&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:01</a>
+
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能说这些的人其实什么都没有 是标准的云玩家
+
+*****
+
+####  alucardcz  
+##### 819#       发表于 2022-8-12 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033187&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:01</a>
+
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等双班扬是什么鬼  先不说0自充 就这宝具伤害能刷本？
+
+*****
+
+####  exiaexa  
+##### 820#       发表于 2022-8-12 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033251&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:09</a>
+
+等等双班扬是什么鬼  先不说0自充 就这宝具伤害能刷本？</blockquote>
+暗狐狸+120班杨+120班杨
+
+50充礼装的无限池阵容
+
+最后一个班杨全buff一脚能踩20+w
+
+是不是觉得跟神经病一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 821#       发表于 2022-8-12 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033280&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:11</a>
+
+暗狐狸+120班杨+120班杨
+
+50充礼装的无限池阵容
+
+最后一个班杨全buff一脚能踩20+w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这阵容15张礼装保底  能用的时候是不是活动已经结束了？
+
+*****
+
+####  qixinno2  
+##### 822#       发表于 2022-8-12 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我国服60石30呼符杀狐2宝 300石10呼符奥伯龙2宝
+
+*****
+
+####  保罗赫伯特  
+##### 823#       发表于 2022-8-12 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手
+
+我先说一句这个阵容下2宝奥伯龙伤害是完全没 ...</blockquote>
+日服好友奥伯龙和杀狐带的基本都是羁绊礼装，这种阵容基本不考虑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 824#       发表于 2022-8-12 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033305&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:13</a>
+
+你这阵容15张礼装保底  能用的时候是不是活动已经结束了？</blockquote>
+所以说跟神经病一样啊
+
+正常人200池就吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过不管是国服还是日服，不要怀疑秃子
+
+我前几年有一次池子我这种咸鱼都刷过6满破
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 825#       发表于 2022-8-12 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033383&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:20</a>
+
+所以说跟神经病一样啊
+
+正常人200池就吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装
+
+*****
+
+####  exiaexa  
+##### 826#       发表于 2022-8-12 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033392&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:20</a>
+
+这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装</blockquote>
+用公主不是傻逼吗
+
+这个阵容算上衣服只用点6个技能啊
+
+懒得点降防甚至只用4个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 827#       发表于 2022-8-12 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033392&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:20</a>
+
+这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快奶一口公主宝具本或者技能变攻击相性 看隔壁打起来
+
+
+
+*****
+
+####  alucardcz  
+##### 828#       发表于 2022-8-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033413&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:22</a>
+
+用公主不是更傻逼了吗
+
+这个阵容算上衣服只用点6个技能啊
+
+懒得点降防甚至只用4个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以少刷整整4张礼装
+
+*****
+
+####  alucardcz  
+##### 829#       发表于 2022-8-12 13:29
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033383&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:20</a>
+
+所以说跟神经病一样啊
+
+正常人200池就吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥用 你10张礼装前这队伍就没法用
+
+*****
+
+####  exiaexa  
+##### 830#       发表于 2022-8-12 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033507&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:29</a>
+
+啥用 你15张礼装前这队伍就没法用</blockquote>
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打
+
+实际上我刷无限池的时候，从拿到第一张到最后刷满，阵容一直是在改的
+
+满足不了要求的时候肯定是另一套阵容啊，不然难道要手搓NP吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 831#       发表于 2022-8-12 13:35
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033540&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:32</a>
+
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打，最优解“只有一个”摁着刷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 你想多了 我根本不刷无限池
+
+另外你觉得隔壁有几个人刷无限池还会换阵容的  刷出一张满破换个阵容顶天了
+
+还有。。。万一活动没50np礼装怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 832#       发表于 2022-8-12 13:45
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033540&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:32</a>
+
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打，最优解“只有一个”摁着刷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说你这个双班杨的阵容是不是隔壁前几天节奏榜改版后的讨论贴里的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隐约记得看到过有那么个人在解释班杨为什么能s+的时候云了这个阵容
+
+而且节奏榜的条件就是5宝120+2000  然后还默认50np礼装
+
+*****
+
+####  exiaexa  
+##### 833#       发表于 2022-8-12 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:45</a>
+
+话说你这个双班杨的阵容是不是隔壁前几天节奏榜改版后的讨论贴里的。
+
+隐约记得看到过有那 ...</blockquote>
+这个是很出名的神经病阵容啊
+
+appmedia发视频之前，我就有11区的朋友在用了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国内跟11区有个很大的不一样是，国内给你发的阵容基本都是那种平铺30甚至0NP起步的
+
+而且会本能的拒绝毕业阵容或者高配阵容
+
+但是11区很多交流贴或者推上给你发的都是那种“加速爆肝”的阵容
+
+所以我们看他们的阵容第一反应就是你们是不是脑子有坑
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 834#       发表于 2022-8-12 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里版FGO对魔忍RPG的无限池能刷单抽券能挂机我最多也就只能刷十几池，更不要提正牌还要一个个点技能，能刷满十池都算我爆肝了
+
+*****
+
+####  alucardcz  
+##### 835#       发表于 2022-8-12 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033733&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:51</a>
+
+这个是很出名的神经病阵容啊
+
+appmedia发视频之前，我就有11区的朋友在用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说节奏榜这新周回排行是有理有据  怪不得什么c呆a狐都是渣渣
+
+*****
+
+####  alucardcz  
+##### 836#       发表于 2022-8-12 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033785&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-12 13:55</a>
+
+里版FGO对魔忍RPG的无限池能刷单抽券能挂机我最多也就只能刷十几池，更不要提正牌还要一个个点技能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不刷无限池主要原因有2个 钱爆了 狗粮也爆了
+
+哪天钱无上限狗粮有专用仓库 我大概会刷那么个50池吧（
+
+*****
+
+####  exiaexa  
+##### 837#       发表于 2022-8-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033800&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:56</a>
+
+这么说节奏榜这新周回排行是有理有据  怪不得什么c呆a狐都是渣渣</blockquote>
+我不知道appmedia是怎么想的，但是这种文化差异我认为确实是存在的
+
+以前还在玩GBF的时候，国内常见的是稳过的阵容或者拯救难民的低配阵容
+
+然后11区发出来的很多都是些看着就头大的满配爆速过本阵容，有时候都会不自觉的想，11区的普通玩家到底是怎么过的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 838#       发表于 2022-8-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033863&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:01</a>
+
+我不知道appmedia是怎么想的，但是这种文化差异我认为确实是存在的
+
+以前还在玩GBF的时候，国内常见的是稳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（
+
+*****
+
+####  qixinno2  
+##### 839#       发表于 2022-8-12 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033884&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:03</a>
+
+现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是发达国家和发展中国家的差距么
+
+*****
+
+####  alucardcz  
+##### 840#       发表于 2022-8-12 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033906&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-12 14:05</a>
+
+这就是发达国家和发展中国家的差距么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课佬也没那么空每个角色都拉120+2000啊 而且也做不到 都是有限的物资
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 841#       发表于 2022-8-12 14:09
+
+怎么感觉我遇上的日服好友大多挺佛系的，一些拐的技能都没点满，原来极差这么大嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 842#       发表于 2022-8-12 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033884&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:03</a>
+
+现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（ ...</blockquote>
+你不要乱讲
+
+我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 843#       发表于 2022-8-12 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033921&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:06</a>
+
+课佬也没那么空每个角色都拉120+2000啊 而且也做不到 都是有限的物资</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以做那榜的那人是不是脑子有坑
+
+
+
+*****
+
+####  rooarr  
+##### 844#       发表于 2022-8-12 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033977&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:11</a>
+ 你不要乱讲 我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧  ...</blockquote>
+人均2宝的还不是大佬吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 845#       发表于 2022-8-12 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033977&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:11</a>
+
+你不要乱讲
+
+我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全图鉴2-3宝还不是大佬吗  区区几个限定5宝能和你比吗（
+
+
+
+*****
+
+####  gpx234mqx  
+##### 846#       发表于 2022-8-12 17:51
+
+推特上好评上万的图
+
+98276CFA-73ED-483B-A568-ACC9E6598C58.jpeg
+(154.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/175055x2vc2lo5ccz2spmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 847#       发表于 2022-8-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036649&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-12 17:51</a>
+
+推特上好评上万的图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 哪来的旧剑转世 我瞎了
+
+*****
+
+####  霧谷藤乃  
+##### 848#       发表于 2022-8-12 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真有一发11连满宝啊，涨见识了
+
+*****
+
+####  alucardcz  
+##### 849#       发表于 2022-8-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036681&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-12 17:53</a>
+
+还真有一发11连满宝啊，涨见识了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不知道你说的是哪个 如果是女梅林的话 是p的
+
+*****
+
+####  霧谷藤乃  
+##### 850#       发表于 2022-8-12 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036715&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 17:56</a>
+
+虽然不知道你说的是哪个 如果是女梅林的话 是p的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是P的么，想起来之前马娘那边也有人P萝卜数量和养成评价
+
+
+
+*****
+
+####  qixinno2  
+##### 851#       发表于 2022-8-12 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 上当了没忍住抽了一发十连 满宝的尼托+1 
+
+
+
+*****
+
+####  exiaexa  
+##### 852#       发表于 2022-8-12 18:13
+
+草，今天这个LV5设施开的额外剧情关，第二关战斗笑出声
+
+为了不影响效果就不剧透你们了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 853#       发表于 2022-8-12 20:36
+
+一发十连五宝的我记得有个抽弓带的好像是真的，还有盘子数作证来着。
+
+*****
+
+####  kiralzb  
+##### 854#       发表于 2022-8-12 20:38
+
+话说有无出过必new池<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 855#       发表于 2022-8-12 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039078&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-12 20:38</a>
+
+话说有无出过必new池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10周年大概会有
+
+
+
+*****
+
+####  qixinno2  
+##### 856#       发表于 2022-8-12 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只想奶伊吹和紫老太都是梅莉级强度的厨力卡
+

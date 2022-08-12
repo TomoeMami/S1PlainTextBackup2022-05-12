@@ -5907,3 +5907,3082 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 
 A圣虎牙直播越做越好了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何来清算之说，李旎还时不时往我首页推送他录像
 
+
+
+*****
+
+####  沈淮  
+##### 8234#         楼主| 发表于 2022-8-12 13:05
+
+好强，这蚂蚁是不是出连击刀了
+
+*****
+
+####  ArowRocher  
+##### 8235#       发表于 2022-8-12 13:05
+
+ 本帖最后由 ArowRocher 于 2022-8-12 13:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033079&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 12:50</a>
+也就是想替超哥说话 
+
+讲道理在这个时间段这已经是大问题了，实习生还打算替两个一起讲话呢，现在已 ...</blockquote>
+玄月怎么也当过超哥队友（超哥记不记得这人另说），想护短袒护自己朋友这动机完全可以理解，虽然确实是说错了。
+
+实习生那个莫言的滚滚不及现代滚滚的皮毛作用比超哥小，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 8236#       发表于 2022-8-12 13:07
+
+好想快进到10月底清算集美，或者化身集美清算楼友
+
+
+
+*****
+
+####  Litccc  
+##### 8237#       发表于 2022-8-12 13:13
+
+好好好，漏油们都不装了
+
+*****
+
+####  名字不乱取  
+##### 8238#       发表于 2022-8-12 13:14
+
+ 本帖最后由 名字不乱取 于 2022-8-12 13:17 编辑 
+
+刀油就是什么义气，兄弟情讲太多了，把自己骗的以为大家真都鸡掰哥们了，遇上个逆风你顶我憋，顺风骑脸野爹的你看谁挨骂吧，哥们？同事！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 8239#       发表于 2022-8-12 13:15
+
+lgd这个赢法几乎全靠量子鞭
+
+就这种走钢丝的战法ti还能继续指望？我觉得是想多了
+
+看来不用跟大奶女同事开黑王者荣耀了，遗憾
+
+*****
+
+####  walfeds  
+##### 8240#       发表于 2022-8-12 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉major结束前op如我就要先被楼友清算了，该套皮雪碧粉了
+
+*****
+
+####  ArowRocher  
+##### 8241#       发表于 2022-8-12 13:20
+
+别急，还有败者组冲上来剧本
+
+
+
+*****
+
+####  健康猹  
+##### 8242#       发表于 2022-8-12 13:22
+
+X哥金融巨子啊，支棱一把，我想看茶打败决
+
+*****
+
+####  sodah  
+##### 8243#       发表于 2022-8-12 13:27
+
+哈人，这major都还没打完就大规模清算了。
+
+*****
+
+####  12481632  
+##### 8244#       发表于 2022-8-12 13:29
+
+别急，说不定是ti9剧本
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chilno  
+##### 8245#       发表于 2022-8-12 13:29
+
+我不管，坚定支持全华班阿茶
+
+你lgd再威猛也有外国爹，血统不纯的
+
+*****
+
+####  morwhipppo  
+##### 8246#       发表于 2022-8-12 13:30
+
+大胆预测下一个被清算的应该是sdn，什么时候midlightone能被清算一下吸波黑流量啊
+
+*****
+
+####  健康猹  
+##### 8247#       发表于 2022-8-12 13:31
+
+啥时候清算9999啊，师母以待
+
+*****
+
+####  Yugao  
+##### 8248#       发表于 2022-8-12 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">处长这个major天天被**喂屎，我估计他都要打吐了
+
+*****
+
+####  Yugao  
+##### 8249#       发表于 2022-8-12 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">毒、/龙居然是屏蔽词？？？？
+
+
+
+*****
+
+####  逃离二次元  
+##### 8250#       发表于 2022-8-12 13:34
+
+我不管，坚定支持雪碧
+
+
+
+*****
+
+####  Yukino-Yukino  
+##### 8251#       发表于 2022-8-12 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033536&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-12 13:31</a>
+
+啥时候清算9999啊，师母以待</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fg都缩头不播比赛了，怕是清算不到他头上。
+
+*****
+
+####  seki_m  
+##### 8252#       发表于 2022-8-12 13:36
+
+刀刀前两天还在舰长群问处长是什么意思
+
+*****
+
+####  morwhipppo  
+##### 8253#       发表于 2022-8-12 13:37
+
+前几天已经因为ti8清算过9999了，都是葑茖带节奏导致哥哥被骂了
+
+*****
+
+####  seki_m  
+##### 8254#       发表于 2022-8-12 13:41
+
+<img src="https://p.sda1.dev/6/36ea87b47f8a6fd0332ef8a2cf1e35fe/-7b5a8acd43efe9e3.png" referrerpolicy="no-referrer">
+和id绑定在一起的致命失误
+
+*****
+
+####  mkii量产型  
+##### 8255#       发表于 2022-8-12 13:41
+
+ 本帖最后由 mkii量产型 于 2022-8-12 13:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年集美论坛也快20年坛龄了，二十年如一日的死大味只能说友坛引流NB了，但凡其他还活着的互联网老害聚集地各有各的恶臭，但友坛这种真没见过
+
+
+
+*****
+
+####  遍体精淋af  
+##### 8256#       发表于 2022-8-12 13:45
+
+去超级集美论坛看了一眼，已经开始清算冠夹了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8257#       发表于 2022-8-12 13:45
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 13:46 编辑 
+
+连击刀
+
+*****
+
+####  逃离二次元  
+##### 8258#       发表于 2022-8-12 13:45
+
+彻底疯狂！
+
+*****
+
+####  逃离二次元  
+##### 8259#       发表于 2022-8-12 13:45
+
+连击
+
+*****
+
+####  反方向的波  
+##### 8260#       发表于 2022-8-12 13:46
+
+ 本帖最后由 反方向的波 于 2022-8-12 13:52 编辑 
+
+midlightone进来一下，之前侬锐评莫言那一次的直播录像剪辑还来得及的，不然只能来楼里解说ti了
+哦，还有看🐶头人歌的录播
+
+*****
+
+####  遍体精淋af  
+##### 8261#       发表于 2022-8-12 13:49
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 13:51 编辑 
+
+差不多可以宣布了：以后“处长”一词从dota圈删除<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">但凡敢提起者必被集美清算，疑罪从有
+
+*****
+
+####  thistimeforlife  
+##### 8262#       发表于 2022-8-12 13:50
+
+现在的队友教练都能清算，一个个来，不信抬头看，水厂饶过谁
+
+*****
+
+####  ArowRocher  
+##### 8263#       发表于 2022-8-12 13:52
+
+永远支持总冠军，谁是冠军支持谁。
+
+*****
+
+####  joker9527  
+##### 8264#       发表于 2022-8-12 13:52
+
+话说为什么泥潭这个专楼没有被集美爆破过？ 是因为5块钱的门槛费太贵了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  很久就在那边l  
+##### 8265#       发表于 2022-8-12 13:53
+
+看过节目效果最好的一次是nga一个ID带“处长”两个字的楼主被认定为黑子围攻，一看注册时间2014年（nga不能改名）
+
+*****
+
+####  azccc52  
+##### 8266#       发表于 2022-8-12 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033581&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 13:36</a>
+刀刀前两天还在舰长群问处长是什么意思</blockquote>
+刀刀可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 8267#       发表于 2022-8-12 13:55
+
+有人把本楼内容截图转发到太监论坛试图引流集美过，回复数0
+
+*****
+
+####  逃离二次元  
+##### 8268#       发表于 2022-8-12 13:55
+
+本来注册这个号是为了看管人的，现在一看刀论坛只有sg和你楼没被大水淹没了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 8269#       发表于 2022-8-12 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033746&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 13:52</a>
+
+话说为什么泥潭这个专楼没有被集美爆破过？ 是因为5块钱的门槛费太贵了么 ...</blockquote>
+等ti11lgd夺冠漏油就化身集美爆破这楼<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 8270#       发表于 2022-8-12 13:55
+
+狗头人还给他写歌了，铁证如山！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  morwhipppo  
+##### 8271#       发表于 2022-8-12 13:58
+
+期待哥哥举盾
+
+<img src="https://img.saraba1st.com/forum/202208/12/135755rq4ogun5qugyooog.gif" referrerpolicy="no-referrer">
+
+<strong>0D2F3C48-924E-437C-9AC6-AC5939DFA215.gif</strong> (114.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 13:57 上传
+
+*****
+
+####  windhawind2  
+##### 8272#       发表于 2022-8-12 13:58
+
+我觉得lgd这种前期劣势靠后面一波抓失误打回来的感觉 有点像ti4赛季后期的dk和ti6夺冠后的wings 看上去是如履薄冰那种感觉 可能鞭状态不好或者版本更新或者团队内部争吵啥的一个契机 就会雪崩（
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  nowaki  
+##### 8273#       发表于 2022-8-12 13:59
+
+主要是1靠不住，今年第二个dpc开始a畜犯病次数明显暴增，我只能说梓畜榨汁是真有一手的
+
+*****
+
+####  百世诸侯  
+##### 8274#       发表于 2022-8-12 14:00
+
+如果说刀圈是神州大地，集美是第N次准备入关的建州女真，SG是大顺闯王，那本楼就是下南洋的闯王残部，一方面集美闭关锁国打不到南洋，一方面本楼时刻期盼罗马教廷带十字军天兵过来扶明灭清
+
+*****
+
+####  mkii量产型  
+##### 8275#       发表于 2022-8-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033784&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 13:55</a>
+
+有人把本楼内容截图转发到太监论坛试图引流集美过，回复数0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">地址看看，发的号我换号去拱火
+
+*****
+
+####  やト  
+##### 8276#       发表于 2022-8-12 14:01
+
+  补完了录像，感觉第三盘BIAN前面刚拿到BKB那梦游了几分钟，最后拿到刷新 +刷新球碎片，配合水人转敏 羊了抽攻 爸爸打儿子一样  最后一波团 水人吃了三四次羊，过的也太苦了吧。 
+
+*****
+
+####  外挂全家脚气  
+##### 8277#       发表于 2022-8-12 14:02
+
+[https://www.bilibili.com/video/BV1PT411A7w4](https://www.bilibili.com/video/BV1PT411A7w4)
+
+OG 30分钟的时候高地反向波的分析，应该说是没有失误的，纯粹是LGD更好
+
+
+
+*****
+
+####  ArowRocher  
+##### 8278#       发表于 2022-8-12 14:05
+
+ 本帖最后由 ArowRocher 于 2022-8-12 14:06 编辑 
+
+ti9算的话，ti7盾牌也可以加
+
+假赛论坛有个讲滚滚操作的帖子海星，比一般大便强
+
+*****
+
+####  反方向的波  
+##### 8279#       发表于 2022-8-12 14:08
+
+ 本帖最后由 反方向的波 于 2022-8-12 14:10 编辑 
+<blockquote>杰出哥啊
+级别:学徒 威望:1 发帖:96
+-
+我说一千遍拷打不是视频主要题材，一个队伍已经打的超过了队史超出了预期 获得了邀请 他的对手是顶级强队雪碧 雪碧现在上强度了茶队打不过很过分么，打的过才很惊讶，诚然打的不大美丽，但是我视频里也讲了我认为为什么，调整变化不如对手快，英雄池子不如对手大，加之技不如人。 是不是TI都邀请了连个一局呼吸权都没有，是不是我没按你意来做事就得被扣什么诡异的帽子。能不能不要自说自话 自己给自己左右互搏利靶子 带节奏啊，我的视频做了几十期 是不是期期都拷打了 你自己心里没有数是吧？拷打沾十分分之一了没，神了真的
+</blockquote>杰出你不要以为缩一次壳对你的捧杀就会停下来了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 8280#       发表于 2022-8-12 14:12
+
+不拷打鳖星是吧，鉴定为潜在的鳖孙
+
+
+
+*****
+
+####  Yugao  
+##### 8281#       发表于 2022-8-12 14:14
+
+本来我还打算吹一下骄阳的，没想到今天第一把被打傻了，第二把屠夫还算正常做了个人
+
+*****
+
+####  Lamapocos  
+##### 8282#       发表于 2022-8-12 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">集美现在就这么能放水，很难不期待ti11掀背给他们来个大的
+
+*****
+
+####  Sabbah  
+##### 8283#       发表于 2022-8-12 14:17
+
+bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中单三代回家局光法
+
+
+
+*****
+
+####  百世诸侯  
+##### 8284#       发表于 2022-8-12 14:23
+
+杰畜今早直播茶队时喷食蚁兽（对应小蚂蚁）是顺风虚张声势，逆风地雷滚滚，这以后都是要被清算的
+
+当然最点睛之笔的是弹幕补充了一句食蚁兽年年TI前魔晶“卷土重来”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 8285#       发表于 2022-8-12 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034110&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 14:23</a>
+
+杰畜今早直播茶队时喷食蚁兽（对应小蚂蚁）是顺风虚张声势，逆风地雷滚滚，这以后都是要被清算的
+
+当然最点 ...</blockquote>
+甲（假）盾冲击
+
+*****
+
+####  cobymar  
+##### 8286#       发表于 2022-8-12 14:32
+
+漏油们能不能少转点太监论坛的弱智贴了，我就是嫌太监论坛太弱智TI10打完以后就没点进去过，结果专楼里每天都有太监论坛传话筒呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  坚定的团子党  
+##### 8287#       发表于 2022-8-12 14:33
+
+说实在的，sg那群把明鞭和A/切割的基本上都是暗黑集美，水厂才是刀塔饭圈的原罪，领水厂工资的123458都应该被批臭打倒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WDDzzZ  
+##### 8288#       发表于 2022-8-12 14:39
+
+卜是水厂有处长才黑水厂，而是处长在水厂才黑处长
+
+*****
+
+####  nomhrpls  
+##### 8289#       发表于 2022-8-12 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰出以前是核弹啊，当然不会拷打茶茶
+
+*****
+
+####  逃离二次元  
+##### 8290#       发表于 2022-8-12 14:42
+
+水厂司马
+
+*****
+
+####  希望之花  
+##### 8291#       发表于 2022-8-12 14:42
+
+只能说场外比比赛更精彩
+
+
+
+*****
+
+####  syndrome2032  
+##### 8292#       发表于 2022-8-12 14:43
+
+根据win a ti before you talk原则，队内大腿的明鞭确实有免喷权。
+
+但是水友们似乎并不这么想。
+
+*****
+
+####  usoda  
+##### 8293#       发表于 2022-8-12 14:45
+
+太尼玛弱智了 今年这大水发的怎么比去年还要离谱
+
+*****
+
+####  IG.430  
+##### 8294#       发表于 2022-8-12 14:47
+
+别清算dodo，要清算就清算嘉然吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 8295#       发表于 2022-8-12 14:47
+
+别急，这次major如果让雪碧og拿下了，马上开始清算23458<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 8296#       发表于 2022-8-12 14:49
+
+看了克神的大屁股心里痒痒的，晚上打开客户端整两把
+
+*****
+
+####  ArowRocher  
+##### 8297#       发表于 2022-8-12 14:50
+
+[Ramzes666赛后采访，昨天我们的BP很好，我爱吃中餐特别是火锅](https://www.bilibili.com/video/BV1fS4y1s7Gm?vd_source=ecf1ca9dee9d5ca6b7ec4c3dbbe01f51)
+
+老哥连ghost不是中国人都不知道
+
+
+
+*****
+
+####  Asukalangley33  
+##### 8298#       发表于 2022-8-12 14:56
+
+今天看几个社区集美开始集体发作了是什么情况？
+
+发生什么事了？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8299#       发表于 2022-8-12 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033623&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 13:41</a>
+
+和id绑定在一起的致命失误</blockquote>
+有个meme图我不敢转<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8300#       发表于 2022-8-12 15:02
+
+龟龟，辉耀计划这个复盘细啊
+
+
+
+*****
+
+####  ArowRocher  
+##### 8301#       发表于 2022-8-12 15:07
+
+<img src="https://img.saraba1st.com/forum/202208/12/150215isdxvov0j4l4xvuv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 15:02 上传
+
+
+
+*****
+
+####  seki_m  
+##### 8302#       发表于 2022-8-12 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034487&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-12 15:00</a>
+有个meme图我不敢转</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大不了缩壳到11月
+
+
+
+*****
+
+####  ArowRocher  
+##### 8303#       发表于 2022-8-12 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034686&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 15:18</a>
+大不了缩壳到11月</blockquote>
+我说的是yurstrength和yurAGI那张，带了张人像照片，发完我直接封到11月了
+
+*****
+
+####  吃货红毛  
+##### 8304#       发表于 2022-8-12 15:23
+
+每次看辉耀计划分析团战都能看呆 虽然选手大概是小牛要魔晶控了，我得断他 这样正常的想法 但是整个团战这些都列出来看真觉得蛮夸张的
+
+*****
+
+####  excalibur--  
+##### 8305#       发表于 2022-8-12 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">漏油们怎么急了？今年有og和ts可以和lgd扳扳手腕的，凌晨这个bo3，og明显就差了一点，和lgd的差距不大的。更别说ts后期细节比lgd只好不差，今年至少都两个队可以和lgd拼拼的。去年那才是集体飞龙骑脸怎么输。今年克没什么信心
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8306#       发表于 2022-8-12 15:28
+
+中单光一大主播了，阿林都切片了
+
+*****
+
+####  4591  
+##### 8307#       发表于 2022-8-12 15:31
+
+美酒最新的淘汰赛数据显示，夜魇的胜率快到80%了，天辉就赢了6场，这地图不动刀是不行了
+
+
+
+*****
+
+####  morwhipppo  
+##### 8308#       发表于 2022-8-12 15:33
+
+看看远方的7.32吧，赖皮社不至于真就只砍几个英雄吧
+
+*****
+
+####  格雷殿下  
+##### 8309#       发表于 2022-8-12 15:33
+
+杰÷还潜在鳖孙?都是核核！
+
+*****
+
+####  CNFH1984  
+##### 8310#       发表于 2022-8-12 15:35
+
+没有关系兄弟们，相信处长在没有中单爹和没有3号位爹的时候是肯定站不出来的
+
+
+
+*****
+
+####  格雷殿下  
+##### 8311#       发表于 2022-8-12 15:36
+
+<blockquote>WDDzzZ 发表于 2022-8-12 14:39
+卜是水厂有处长才黑水厂，而是处长在水厂才黑处长</blockquote>
+fnmdp
+
+处长在不在lgd，都要骂。
+
+lgd有没有处长，也要骂。
+
+*****
+
+####  morwhipppo  
+##### 8312#       发表于 2022-8-12 15:36
+
+如果ti输了，那么lgd就又多了个头衔，硬实力冠军，真赛冠军，以及7.31冠军
+
+*****
+
+####  woyzeck  
+##### 8313#       发表于 2022-8-12 15:36
+
+不打major就大版本更新一定会导致超模英雄
+
+*****
+
+####  nowaki  
+##### 8314#       发表于 2022-8-12 15:37
+
+这些名头去年就该有了
+
+*****
+
+####  chilno  
+##### 8315#       发表于 2022-8-12 15:37
+
+我没太懂，我记得上次石油杯还是哪个什么杯不是天会夜宴55开吗
+
+怎么突然就炸裂了
+
+
+
+*****
+
+####  walfeds  
+##### 8316#       发表于 2022-8-12 15:57
+
+还是回头看看7.31d有多少脑残改动吧
+
+*****
+
+####  遍体精淋af  
+##### 8317#       发表于 2022-8-12 15:59
+
+超级集美论坛有个贴我蚌埠住了，号召集美和干瘪粉学习撸狗的皇杂去搞真正的饭圈化去冲完美要完美彻底不能再提“处长”这个词并且管制A黑，响应者多如牛毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一幕我见过，只不过比去年超级假赛论坛更加提纯了
+
+
+
+*****
+
+####  遍体精淋af  
+##### 8318#       发表于 2022-8-12 16:02
+
+冠夹现在出盘子还来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8319#       发表于 2022-8-12 16:11
+
+45  55吧
+
+*****
+
+####  thistimeforlife  
+##### 8320#       发表于 2022-8-12 16:11
+
+按今年这清算速度，马上就到更有节目效果的人身上了，谁也别想跑，人人开牧场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 8321#       发表于 2022-8-12 16:12
+
+dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 8322#       发表于 2022-8-12 16:12
+
+看了一堆帖，有去年8,9月份那感觉了
+
+味道太对了
+
+就差一手畅想历史地位，还有小组赛开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  adretyu67  
+##### 8323#       发表于 2022-8-12 16:13
+
+所以还是复读那句话，dota2不装了是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 8324#       发表于 2022-8-12 16:15
+
+集美今年比去年多了一手乱咬人，去年最多清算老队友，今年你要敢洗霉皇或者说处长的不是，完美实习生和玄月就是榜样
+
+*****
+
+####  azccc52  
+##### 8325#       发表于 2022-8-12 16:17
+
+dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">管人痴难受住了呀
+
+*****
+
+####  12481632  
+##### 8326#       发表于 2022-8-12 16:17
+
+管人痴太多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8327#       发表于 2022-8-12 16:19
+
+管人痴爬啊，和王处一起死
+
+*****
+
+####  战狼PTSD  
+##### 8328#       发表于 2022-8-12 16:20
+
+现在这氛围是真哈人，去年好歹是二次元MAJOR夺冠了才畅想，现在MAJOR都没打完就发大水了
+
+
+
+*****
+
+####  morwhipppo  
+##### 8329#       发表于 2022-8-12 16:23
+
+我表弟今年初三刚毕业，从来没玩过dota2，天天就看斗鱼打王者，现在微信头像是A畜
+
+*****
+
+####  a1370303  
+##### 8330#       发表于 2022-8-12 16:23
+
+只能相信雪碧，相信og了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 8331#       发表于 2022-8-12 16:26
+
+这边建议集美们给dodo上个舰，可以进舰长群和完美运营do子本人直球对线
+
+还能捕捉皮套畜本人发言进一步岁月史书
+
+*****
+
+####  遍体精淋af  
+##### 8332#       发表于 2022-8-12 16:26
+
+我还是相信dota之神的，处长和水厂大搞饭圈终有一天会被反噬的，只要处长不夺冠就没办法彻底翻身<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">处长最多也就熬过今年，而且四个赵云不可能一直都保持状态，等到时候赵云不行了，处长终将显形
+
+*****
+
+####  为了mf注册  
+##### 8333#       发表于 2022-8-12 16:26
+
+相信其他队伍不如相信处长，现在汛情这么严重，拿不下ti盾，霉皇的今天就是处长的明天，到时候什么杰出、缪毐也逃不了
+
+*****
+
+####  拿拿子  
+##### 8334#       发表于 2022-8-12 16:27
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8335#       发表于 2022-8-12 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035597&amp;ptid=2084957" target="_blank">拿拿子 发表于 2022-8-12 16:27</a>
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了</blockquote>
+去年就假想过了
+
+*****
+
+####  awy47  
+##### 8336#       发表于 2022-8-12 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035540&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-12 16:23</a>
+
+我表弟今年初三刚毕业，从来没玩过dota2，天天就看斗鱼打王者，现在微信头像是A畜 ...</blockquote>
+你弟不会是管人痴吧
+
+*****
+
+####  ArowRocher  
+##### 8337#       发表于 2022-8-12 16:29
+
+我是不太懂现在的声望的，局势明显没有去年好
+
+*****
+
+####  walfeds  
+##### 8338#       发表于 2022-8-12 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035597&amp;ptid=2084957" target="_blank">拿拿子 发表于 2022-8-12 16:27</a>
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨论历史地位这不都在预料之中
+
+很快新的历史第一战队历史第一人历史第一c就要来了
+
+*****
+
+####  很久就在那边l  
+##### 8339#       发表于 2022-8-12 16:32
+
+大部分人还是支持中国战队的，今年没有ti10的ig或者ti9的vg那种程度的中国战队和lgd抗衡
+
+
+
+*****
+
+####  thistimeforlife  
+##### 8340#       发表于 2022-8-12 16:34
+
+有啥办法呢，不然漏油为何昨天连鹏子都愿意相信
+
+
+
+*****
+
+####  星野航  
+##### 8341#       发表于 2022-8-12 16:34
+
+本着major冠军当赛季ti肯定吃屎这一定律，我非常支持lgd这个major拿下冠军
+ti狠狠吃屎
+这样才是没盘可翻。尼玛og已经拿了一个，雪碧再拿一个，ti就肯定是lgd的了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nowaki  
+##### 8342#       发表于 2022-8-12 16:37
+
+偶数年都丢了两冠了还定律呢
+
+*****
+
+####  nightmare902015  
+##### 8343#       发表于 2022-8-12 16:39
+
+我还是相信管人之神的，就算我一分钱不掏，midlightone和dodo都最终会战胜集美对吧
+
+*****
+
+####  ArowRocher  
+##### 8344#       发表于 2022-8-12 16:40
+
+打破迷信科学DOTA好吧 去年打不过也不是二次元妹角害的，技不如人得认
+
+*****
+
+####  天堂蜘蛛  
+##### 8345#       发表于 2022-8-12 16:40
+
+今年外国队明显比去年强啊，不知道为啥集美和暗黑集美们在乐观些啥
+
+去年这个时候老干瘪还真有点小无敌，今年这个时候老干瘪跟雪碧跟OG这俩队顶多就是五五开 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+雪碧这进化速度就不提了，跟淘汰赛完全两个状态，OG换CEB替补上场明显强了一个档次
+
+还想啥冠军呢，今年能打到哪儿算哪儿吧实话实说
+
+*****
+
+####  遍体精淋af  
+##### 8346#       发表于 2022-8-12 16:40
+
+确实，去年国外就秘密和eg两个队算纸面实力强的其中eg还是纸老虎，都没有今年这种排水形势
+
+*****
+
+####  外挂全家脚气  
+##### 8347#       发表于 2022-8-12 16:42
+
+今年局势可比去年差多了，去年至少LGD IG在TI 8强前都是砍瓜切菜的强，今年这OG TS肉眼可见的能和LGD打一打，然后还没有其他中国队看上去有很强的实力
+
+
+
+*****
+
+####  名字不乱取  
+##### 8348#       发表于 2022-8-12 16:45
+
+要让lgd输，那谁来都行，要让集美输，那得找个cn队暴扣才行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+当然，漏油昨天指望杜鹏确实离谱，鹏子离加封号大概差个ti决赛日的表演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8349#       发表于 2022-8-12 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等我ngm杀出预选
+
+*****
+
+####  12481632  
+##### 8350#       发表于 2022-8-12 16:46
+
+秘密换了瑞士鲁迅以后也算是夺冠热门，只要别经典ti软脚虾。
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 8351#       发表于 2022-8-12 16:48
+
+讲真，你们期待国外队伍崛起，不如期待四赵云偿还.....凌晨打OG的G3，两边交换，那og是一点机会都没有的。只能说赵云们太屌了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8352#         楼主| 发表于 2022-8-12 16:50
+
+桀桀，扭曲的集美也太多了，还好我是鉴定的干瘪黑
+
+*****
+
+####  thistimeforlife  
+##### 8353#       发表于 2022-8-12 16:51
+
+鹏子还真可以讲讲ti7【最强季军lfy】的故事了，只能说水厂系的硬实力真的永远没输过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  M0kha  
+##### 8354#       发表于 2022-8-12 16:54
+
+虚假的集美发大水捧杀，真正的集美冷静分析表示不容乐观
+
+*****
+
+####  excalibur--  
+##### 8355#       发表于 2022-8-12 16:57
+
+讲个笑话，莫奈特的c<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+也就是莫奈特没有进过决赛，不然我觉得名场面不会比ame少
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 8356#       发表于 2022-8-12 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 8357#       发表于 2022-8-12 17:00
+
+时光倒流一下，如果lou签证过了xg有没有可能变成16年的wings
+
+*****
+
+####  thistimeforlife  
+##### 8358#       发表于 2022-8-12 17:01
+
+今天鳖茶不就被雪碧完爆了，人人都在尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8359#       发表于 2022-8-12 17:01
+
+漏油门已经开始为15号捉拿沈淮作铺垫了，令人感慨
+
+*****
+
+####  星野航  
+##### 8360#       发表于 2022-8-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036034&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 18:00</a>
+时光倒流一下，如果lou签证过了xg有没有可能变成16年的wings</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">指望脑11跟油神
+我觉得需要回顾一下16年的42岁blink跟明鞭的表现
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  一色いろは  
+##### 8361#       发表于 2022-8-12 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年major亚军现在major一轮
+
+今年形势显然比去年严峻多了
+
+
+
+*****
+
+####  nxmonitor  
+##### 8362#       发表于 2022-8-12 17:03
+
+misha一来有较高概率OG人就没了，这个35是非常大的隐患，124完全被压制了……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8363#       发表于 2022-8-12 17:03
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 17:04 编辑 
+
+xg赛季开始的时候也不是没被寄予厚望过，但是lou的英雄币，油面和老十一的脑浆，鸡皇的僵硬bp是越打越明显，预选能打出来但是没有进化的话也基本不可能复刻wings
+
+*****
+
+####  thistimeforlife  
+##### 8364#       发表于 2022-8-12 17:03
+
+相信油面 相信鹏子 相信泰迪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+形式确实很严峻
+
+*****
+
+####  syndrome2032  
+##### 8365#       发表于 2022-8-12 17:03
+
+xg的命门是油面。就这点来说谨慎不看好。
+
+*****
+
+####  12481632  
+##### 8366#       发表于 2022-8-12 17:04
+
+所以当初茶队是怎么肯花1000W买杜鹏儿的
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 8367#       发表于 2022-8-12 17:04
+
+所有队伍都猛选陈是大好事，能把欧洲区两个不学不练的家伙关住……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 8368#       发表于 2022-8-12 17:05
+
+ 本帖最后由 syndrome2032 于 2022-8-12 17:10 编辑 
+
+晓菲还放话3000w买仙贝呢。
+
+不知道rng在monet和lgd的合同上出了多少钱。估摸大头在这。
+
+*****
+
+####  遍体精淋af  
+##### 8369#       发表于 2022-8-12 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036072&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-12 17:04</a>
+所以当初茶队是怎么肯花1000W买杜鹏儿的
+
+—— 来自 samsung SM-N9860, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+杜鹏800，白学家200吧，当时国内能选的年轻c不就那几个，鳖茶肯定是做长线投资的
+
+*****
+
+####  nxmonitor  
+##### 8370#       发表于 2022-8-12 17:05
+
+xg大概率没了，拒绝者看直播就知道明显没信心了，还有老鸡头这啥BP啊，赛季初还能和茶有来有回，后面就是有来无回了……
+
+
+
+*****
+
+####  nowaki  
+##### 8371#       发表于 2022-8-12 17:07
+
+杜鹏儿ti8还是带着rng去了ti的
+
+*****
+
+####  lmslardar  
+##### 8372#       发表于 2022-8-12 17:12
+
+大概率就是rng正赛xg和ig去打12进2资格赛。
+
+虽然说今年lgd希望很大，但确实没想到今年大水比去年猛，我说一句ana打得也一般收获了好多条同接，还有给我截图标记小超人的，我服了。
+
+我是秉持着只要cn夺冠就行的原则的，lgd夺冠也挺好，就当我四年前打的钱又回来了。但现在看来dota圈跟粉圈也没啥区别，只能祝福他们希望lgd别掉链子了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  遍体精淋af  
+##### 8373#       发表于 2022-8-12 17:15
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 17:16 编辑 
+
+有一说一，今年处长最后一年看来不是空穴来风，如果是水厂刻意造势那现在到处水漫金山的情况就不奇怪了
+
+*****
+
+####  百世诸侯  
+##### 8374#       发表于 2022-8-12 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">处长现在最害怕的应该是退役了后明年2项羽458带着shiro或者别的年轻C直接夺冠
+
+*****
+
+####  名字不乱取  
+##### 8375#       发表于 2022-8-12 17:17
+
+大明鞭手伤估计也要退了，今年没拿到lgd一时半会找不到这么透支的3，除非把wisp从克神手里夺走<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8376#       发表于 2022-8-12 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036229&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 17:16</a>
+处长现在最害怕的应该是退役了后明年2项羽458带着shiro或者别的年轻C直接夺冠
+
+ ...</blockquote>
+有啥害怕的，退役了如果不切假腿还在乎这些有啥用吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8377#       发表于 2022-8-12 17:20
+
+处长今年25，明年26.
+
+只能说冠军C的保质期摆在这<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+明年真继续打指不定还有什么脑浆玩意。
+
+*****
+
+####  为了mf注册  
+##### 8378#       发表于 2022-8-12 17:22
+
+看了下，好像完美皮套人评论区下面已经有人在发大水了，do/都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8379#       发表于 2022-8-12 17:22
+
+是真的恐怖，我在某地方回了一条说炼金开大进场其实更有忘记开BKB这个欺骗性，同时也提高LGD的容错率
+
+也被人抓着喷，就非要摁头让我承认这波团OG毫无胜率，无论怎么操作都秒不掉炼金，而LGD所向披靡无敌必胜
+
+太哈人了，真正昨天看比赛的人都知道LGD这比赛赢的险之又险，就这已经不想着进步想着躺在功劳簿上开吹我真不好说TI再失利他们会魔怔成什么样子
+
+而且这种十有八九就是晚上比赛没看早起看个切片就开吹的集美
+
+说真的很多那些自媒体吹的根本就全错，好多人连ceb牛头一眼看穿炼金是来卖的捏着大招一直没放都不知道，感觉是又得ceeeeeeeeeeeeeeeeb来给他们脑门来一棍子了
+
+
+
+*****
+
+####  香蕉芭菲  
+##### 8380#       发表于 2022-8-12 17:23
+
+今天的ts，多伦多已经有了ti10淘汰赛阶段的状态了。这两把说实话collapse还没什么特别的发挥就宰了茶队，就只是走个流程，这就是强队姿态。
+当然茶队今天都打得挺差的，偏向于认为这是皮球被针对bp后茶队没有比较好的bp思路，僵住了，而你打团细节没人好，那铁输
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  adretyu67  
+##### 8381#       发表于 2022-8-12 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036310&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-12 17:23</a>
+
+今天的ts，多伦多已经有了ti10淘汰赛阶段的状态了。这两把说实话collapse还没什么特别的发挥就宰了茶队，就 ...</blockquote>
+茶队想和雪碧拼4保1就是想多了。
+
+佛祖这个逼居然才18岁。。。。。
+
+*****
+
+####  桐道悠  
+##### 8382#       发表于 2022-8-12 17:25
+
+今年至少到大师赛之前，么么憋的状态都是非常差的，那时候面八思路也有问题，lgd进攻端全靠xinq。xinq一旦玩什么凤凰，小精灵这种英雄，lgd直接送。大师赛开始面八改了思路，把ame重要性下调，bian的重要性上升，xinq少吃一些bian的资源，整个队伍强度就明显提高了。大师赛到现在，么么憋的状态也有所回暖，客观来说，这个队伍状态比之前好很多很多了。
+
+*****
+
+####  lmslardar  
+##### 8383#       发表于 2022-8-12 17:28
+
+没说他状态不好啊，我觉得lgd确实是机会最大的队伍，但架不住每个论坛都是大水库
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名字不乱取  
+##### 8384#       发表于 2022-8-12 17:28
+
+我建议漏油众筹整个s1-sg联合队，不然接下来就是大水-假赛二相态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 8385#       发表于 2022-8-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036336&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-12 17:25</a>
+茶队想和雪碧拼4保1就是想多了。
+
+佛祖这个逼居然才18岁。。。。。</blockquote>
+是的，这第二把茶队想用阵地战阵容跟别人打我就知道大概率干不过了。属于没搞清楚自己和对手的差距
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nightmare902015  
+##### 8386#       发表于 2022-8-12 17:29
+
+其实就是单纯的lgd这支队伍相对算是适应版本速度偏差的。找到了这版本假三真一的打法后就自然会调整成这个样子。
+
+
+
+*****
+
+####  excalibur--  
+##### 8387#       发表于 2022-8-12 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话感觉还是云玩家太多了的问题，b站现在已经有两个做解析视频的了，杰出负责解析比赛大方向走势，辉耀计划负责扣团战细节，看懂的基本都能回过味了，今年ti比去年难太多了。
+而且很多人都开始想和大鞭哥抽（电棍）鞭子了，扣水的反而没有那么多了。
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 8388#       发表于 2022-8-12 17:36
+
+引流撸狗是这样的呀，指望这群小学生云玩家能看懂比赛？还不是跟着大流捧踩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然lgd一旦输了，这群人绝对会化身喷子狂喷，就仿佛自己从来没吹过lgd一样，所谓粉 红神 神二相性也是一个道理。这群人在乎刀圈环境会怎样吗？不，他们只是享受站在“正义”制高点喷别人的快感<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+所以才说引撸狗的ruru和wsc是最该司马的
+
+*****
+
+####  尖刺外婆  
+##### 8389#       发表于 2022-8-12 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036366&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-12 17:28</a>
+我建议漏油众筹整个s1-sg联合队，不然接下来就是大水-假赛二相态了</blockquote>
+漏油都是老傻狗，不用联合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 8390#       发表于 2022-8-12 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036338&amp;ptid=2084957" target="_blank">桐道悠 发表于 2022-8-12 18:25</a>
+今年至少到大师赛之前，么么憋的状态都是非常差的，那时候面八思路也有问题，lgd进攻端全靠xinq。xinq一旦 ...</blockquote>
+本来的呀，所以说这版本只要faith bian不辣，一般都能过渡到节奏稳定的时间段
+而且版本后期萧瑟主动参战的频率可比原来高多了，明显是团队调整过的
+就看阀门更新不更新了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  战狼PTSD  
+##### 8391#       发表于 2022-8-12 17:40
+
+屎黄色论坛（非指S1）又有打脸假赛论坛的帖子了，底下还有一堆太监打滚换角度骂他
+[https://ngabbs.com/read.php?tid=33042739](https://ngabbs.com/read.php?tid=33042739)
+
+坐看多久被封号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8392#       发表于 2022-8-12 17:40
+
+<img src="https://img.saraba1st.com/forum/202208/12/173955tv133fhzh1z2mrrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:39 上传
+
+笑的我肚子疼，集美真的上大分，假赛论现在洗成爱国心了各位
+
+*****
+
+####  smlszh  
+##### 8393#       发表于 2022-8-12 17:40
+
+lgd保持这个状态最多2成举盾 这改版一个月不知道出什么幺蛾子呢
+
+何况这次major能不能拿下还不好说呢  雪碧可是状态来了
+
+*****
+
+####  白野苍衣  
+##### 8394#       发表于 2022-8-12 17:41
+
+想啥呢，今年LGD绝无可能夺冠，大概率又当一次决赛背景板罢了。
+
+*****
+
+####  战狼PTSD  
+##### 8395#       发表于 2022-8-12 17:41
+
+<blockquote>我到现在也坚持假赛
+
+因为很多疑点还没得到合适的答复
+
+但也不会到处宣扬带节奏</blockquote>
+理智太监，泪目了
+[https://ngabbs.com/read.php?tid=33042739](https://ngabbs.com/read.php?tid=33042739)
+
+*****
+
+####  名字不乱取  
+##### 8396#       发表于 2022-8-12 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036476&amp;ptid=2084957" target="_blank">尖刺外婆 发表于 2022-8-12 17:37</a>
+
+漏油都是老傻狗，不用联合</blockquote>
+傻瓜没多少油水，加个s1冠名万一二狗投资了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  战狼PTSD  
+##### 8397#       发表于 2022-8-12 17:44
+
+当时假赛也分好多个版本，我是相信lgd(八王)和其他一些之前参与菠菜的战队被菠菜公司架住被迫打假赛。选手们那些离谱的行为、操作(不单单决赛)一方面是做到菠菜公司的要求，一方面是对菠菜公司的抗议，八王决赛眼角的泪痕很好的验证了这一点。把这场戏演烂一点，让观众看出其中的端倪，然后和菠菜公司同归于尽(正常人肯定没有勇气直接自爆，于是八王选择卖出许多破绽让观众明白)。这里有个伪逻辑就是这么多假赛的要素是选手向观众们引导的。 不管ti10是否打假赛，Dota比赛存在假赛是不争的事实，nb就是一个很好的例子。所以那些说“说ti假赛就是想让cnDota死”的人才是不那么理性的，他们只是不想让别人骑自己的脸，说自己玩的是假赛游戏，这大概就是真正的刀斯林。我宁愿让ti10假赛，让别人骑我的脸去换取一个阳光猛烈的比赛环境。 以上是我在2021年十月下旬的一些想法。大家相信假赛论一方面确实决赛lgd有点抽象了，一方面是不了解雪碧这支战队。时隔一年我相信很多人已经慢慢喜欢上了雪碧这个队，这里的喜欢是场外大于比赛内的，也祝愿雪碧这五个人不要有什么骚操作。 最后先给自己扣个冠军粉、假赛论者的帽子，期待一下ti10的真视界，看看雪碧五个人的逆袭之路和lgd确实是发挥失常而不是打假赛。复制代码
+搬个大的，漏油们都不行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 8398#       发表于 2022-8-12 17:47
+
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的
+
+*****
+
+####  一品堂官  
+##### 8399#       发表于 2022-8-12 17:48
+
+已经刀圈四害，人人喊打了漏油们。
+
+*****
+
+####  12481632  
+##### 8400#       发表于 2022-8-12 17:48
+
+放心，这次major打完说不定就是ykw通俄派红脖子冲进赛场拿gun指着老干鳖打比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  星野航  
+##### 8401#       发表于 2022-8-12 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036601&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 18:47</a>
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的</blockquote>
+应该纯粹是因为姿势问题
+他俩中间夹了个miposhika，这人打比赛的时候喜欢把电脑摆斜，然后旁边俩顺着，所以看起来就是背靠背了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  莉拉厨  
+##### 8402#       发表于 2022-8-12 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036601&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 17:47</a>
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的</blockquote>
+俄乌...哦都是大毛啊，那就是斯拉夫阳光大男孩看不起蒙古杀软二次元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  nowaki  
+##### 8403#       发表于 2022-8-12 17:52
+
+当时下面八都快被集美群情激奋的判死刑了吧 现在就八王有苦衷了么
+
+*****
+
+####  百世诸侯  
+##### 8404#       发表于 2022-8-12 17:53
+
+<img src="https://img.saraba1st.com/forum/202208/12/175330gkiikucfccjh3hyx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:53 上传
+
+今天最后搬一次<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 8405#       发表于 2022-8-12 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036688&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 17:53</a>
+
+今天最后搬一次</blockquote>
+OG倒确实是放大招了，可以预见TS也会放大招
+
+*****
+
+####  莉拉厨  
+##### 8406#       发表于 2022-8-12 17:57
+
+当时确实是有两派的。一派逐帧分析对战房镜头，证明LGD六人确实是被胁迫的，yatoro的俄罗斯寡头爸爸罪大恶极。一派是相信术士8和ruru串通一气，故意放猛犸先输两把，然后反买LGD让2追3吃了波大的(我也想不通到底0：2时候的盘有多大才能补上TI冠亚军的金额差)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8407#       发表于 2022-8-12 17:58
+
+今晚不想看啊，该打打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+一号位刚被二号位宙斯马上要没了吧
+
+*****
+
+####  反方向的波  
+##### 8408#       发表于 2022-8-12 17:58
+
+ 本帖最后由 反方向的波 于 2022-8-12 18:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8409#       发表于 2022-8-12 17:59
+
+再别说了，@dodo_Official do醋和其他四醋多多联动吧。@狗头人_Official 狗醋会写歌，@Ti三冠王ame铁粉 森醋会做集锦，@Ban_Keal_Tanya 雅醋会解说 @天上院凛花 花醋身为皮套人还能一起联动搞通讯录。这下无敌了。​
+不过集美们不行啊，连几百条都没刷到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8410#       发表于 2022-8-12 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036750&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 17:58</a>
+
+你楼有些幻想以后终有一日能在 阳光 下发癫的还是省省吧。干瘪冠的世界线不说了。没冠的世界线里只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这种事情不要啊！
+
+*****
+
+####  IG.430  
+##### 8411#       发表于 2022-8-12 18:02
+
+每日小男友仇恨教育是吧。
+然而小男友是真的屁用没有。
+
+
+
+*****
+
+####  血蹄  
+##### 8412#       发表于 2022-8-12 18:04
+
+看到do子这种没啥盒信息，出道又很纯良素人的皮套人都能被集美们df羞辱，真的是不知道说啥好了
+
+*****
+
+####  iriyano  
+##### 8413#       发表于 2022-8-12 18:05
+
+我是感觉大师赛以来萧瑟有点意识到四个队友是他爹了啊
+如果面八和/TI都能保持这个意识那确实是有机会
+
+*****
+
+####  为了mf注册  
+##### 8414#       发表于 2022-8-12 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036835&amp;ptid=2084957" target="_blank">血蹄 发表于 2022-8-12 18:04</a>
+
+看到do子这种没啥盒信息，出道又很纯良素人的皮套人都能被集美们df羞辱，真的是不知道说啥好了 ...</blockquote>
+别怕，df羞辱只是污蔑，处长那皮套女友以前好像追求过一个撸狗主播，直接被踢走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  血蹄  
+##### 8415#       发表于 2022-8-12 18:07
+
+希望集美们放过zdgy，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8416#       发表于 2022-8-12 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">屎黄色论坛（非S1）能不能跟皮套人一起死啊
+
+*****
+
+####  morwhipppo  
+##### 8417#       发表于 2022-8-12 18:09
+
+哈哈哈哈，一进集美论坛一个标题，ti10的失利让集美团体里的nt数量下降了哈哈哈
+
+*****
+
+####  IG.430  
+##### 8418#       发表于 2022-8-12 18:10
+
+就是沈逸哥哥的有点意思型择人而噬罢了。
+
+"""
+你还可怜do畜，有点意思，露出蚂脚了吧。
+"""
+
+*****
+
+####  聚散浮云  
+##### 8419#       发表于 2022-8-12 18:10
+
+怎么进来又是超级吃屎论坛，退楼了
+
+*****
+
+####  反方向的波  
+##### 8420#       发表于 2022-8-12 18:11
+
+退楼了
+
+*****
+
+####  名字不乱取  
+##### 8421#       发表于 2022-8-12 18:11
+
+我觉得你楼的几位搬屎大师现在就应该准备干活了，等假赛潮水来袭再把现在的反假赛言论丢回去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+说不定刀塔之神在无数平行宇宙都无法赦免lgd的罪过<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8422#         楼主| 发表于 2022-8-12 18:12
+
+df羞辱是什么
+
+*****
+
+####  吃货红毛  
+##### 8423#       发表于 2022-8-12 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这要什么盘才配送掉TI冠军的奖金和各种附加价值啊 随便想想都知道不可能 这也能一直念到现在吗
+
+*****
+
+####  反方向的波  
+##### 8424#       发表于 2022-8-12 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036936&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-12 18:12</a>
+df羞辱是什么</blockquote>
+荡 妇吧
+
+*****
+
+####  seki_m  
+##### 8425#       发表于 2022-8-12 18:12
+
+集美能不能今晚把do子开了
+
+
+
+*****
+
+####  沈淮  
+##### 8426#         楼主| 发表于 2022-8-12 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036940&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 18:12</a>
+荡 妇吧</blockquote>
+这下冰清玉洁圣潘姐了
+
+*****
+
+####  战狼PTSD  
+##### 8427#       发表于 2022-8-12 18:14
+
+退楼了
+
+*****
+
+####  12481632  
+##### 8428#       发表于 2022-8-12 18:18
+
+集美能不能今晚把夜饮潇湘开了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 8429#       发表于 2022-8-12 18:20
+
+什么时候开赛垃圾，毕竟是前代拥有23458的男人。
+
+*****
+
+####  qwas  
+##### 8430#       发表于 2022-8-12 18:22
+
+杜鹏还不如茶队自己青训的吸
+
+
+
+*****
+
+####  Cantha  
+##### 8431#       发表于 2022-8-12 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 看完第三季了，完全没明白剧情在讲什么，乱七八糟的。新英雄把卡尔闺女做出来就原谅懒狗社
+
+*****
+
+####  bishbashbosh  
+##### 8432#       发表于 2022-8-12 18:28
+
+20年塞垃圾最后的比赛卜把国内队打哭？他总能碰到顶级2345的ame又在哪里玩泥巴呢？
+
+*****
+
+####  反方向的波  
+##### 8433#       发表于 2022-8-12 18:30
+
+就这点水声还卜够大，干瘪拿下major同时皮套人被开盒才会让漏油们放弃幻想统统造诺亚方舟去
+
+
+
+*****
+
+####  nowaki  
+##### 8434#       发表于 2022-8-12 18:33
+
+cdec时期的一闪，以前和我对线的集美话术是，队友cba，这些人现在在哪呢。
+
+*****
+
+####  蛭人  
+##### 8435#       发表于 2022-8-12 18:38
+
+每当集美说maybe和ame分散后，处长成绩有多吊，老北京成精有多差，我就会想起那只cdec的故事，嘴角不禁上扬。
+
+*****
+
+####  usoda  
+##### 8436#       发表于 2022-8-12 18:40
+
+慌什么 处长有表演型人格障碍的 四赵云状态下滑之时就是处长原形毕露之日好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8437#       发表于 2022-8-12 18:41
+
+问就是血抬cdec<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然集美的一般话术还是离开了ame的cdec（尤其是xm）如何如何
+
+
+
+*****
+
+####  walfeds  
+##### 8438#       发表于 2022-8-12 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一闪是什么，我只听说过一门
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遗尿  
+##### 8439#       发表于 2022-8-12 18:44
+
+笑死，AI画的小美，好面熟啊。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+006tGNzXly1h544fyxelgj30e80hs3zj.jpg
+(47.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/184342qeheqneq30uh9voj.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 8440#       发表于 2022-8-12 18:45
+
+版主刚当管人的时候已经被开过了，找了半天没找到啥黑点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  夏溪澪mio  
+##### 8441#       发表于 2022-8-12 18:45
+
+雪碧好像越来越强了，看起来很像ti9的og剧本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 8442#       发表于 2022-8-12 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对哥哥不敬就是最大的黑点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  遍体精淋af  
+##### 8443#       发表于 2022-8-12 18:45
+
+20年取消ti确实影响了几个队，包括当时赛垃圾最后一春的ehome和“七冠王”秘密还是唯一能决赛击败秘密的nigma，如果ti不取消这几个队的应该都能拿一个好成绩
+本来处长应该在cdec搓泥巴，然后因为疫情ti取消，23458直接被水厂搬走了也让处长翻身了，令人感慨
+
+*****
+
+####  Litccc  
+##### 8444#       发表于 2022-8-12 18:47
+
+这波老lxo是不是死绝了，要么结晶成集美要么被打成小蚂蚁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8445#       发表于 2022-8-12 18:51
+
+lxo应该是死完了，要不也不能有过去几年a畜扛着23457走的错误印象。
+
+我就不说了以前ti5的lgd阵容多好了，就算是ti89 a畜也是老北京的小弟而已，现在已经岁月史书成全靠a畜才拿到亚军也太离谱了。
+
+
+
+*****
+
+####  thistimeforlife  
+##### 8446#       发表于 2022-8-12 18:53
+
+当然是希望处长和泰迪一起完蛋啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 8447#       发表于 2022-8-12 18:55
+
+看完20年cdec表演的人最终结论都该是技术扶贫的王仙贝绝不可能是顶级c。
+
+顶级c就是去二线队也能打出一打五表现的。
+
+20年的你个马基本是全年摆烂，就只剩赢秘密的那次madmoon了。但是后来秘密也输了液体还是石头人。
+
+如果20年没有疫情ti不取消的话，eu成绩和21年比起来差距应该不会太大。
+
+
+
+*****
+
+####  Litccc  
+##### 8448#       发表于 2022-8-12 19:03
+
+[https://ticketmaster.sg/activity/detail/22_intldota2sg](https://ticketmaster.sg/activity/detail/22_intldota2sg)
+
+明早十点开始卖票，单日票88新加坡元，决赛日套票498新加坡元
+
+*****
+
+####  百世诸侯  
+##### 8449#       发表于 2022-8-12 19:03
+
+不是有什么和女人睡一张床然后隔着衣服打飞机的黑点吗…
+
+*****
+
+####  中已矣  
+##### 8450#       发表于 2022-8-12 19:04
+
+我实在不懂，lgd的核心不是小八么？
+
+*****
+
+####  nomhrpls  
+##### 8451#       发表于 2022-8-12 19:05
+
+ 本帖最后由 nomhrpls 于 2022-8-12 19:06 编辑 
+
+20年nigma前面线上赛打的其实还行，就中间有两个比赛比较离谱直接一轮游，其他基本都是稳定前3，名场面打的也挺多的。不过8月份过后直接究极摆烂，一摆摆到现在。
+
+*****
+
+####  中已矣  
+##### 8452#       发表于 2022-8-12 19:08
+
+<blockquote>百世诸侯 发表于 2022-8-12 19:03
+不是有什么和女人睡一张床然后隔着衣服打飞机的黑点吗…</blockquote>
+**方方的说早些得了
+
+*****
+
+####  azccc52  
+##### 8453#       发表于 2022-8-12 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037624&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 19:03</a>
+不是有什么和女人睡一张床然后隔着衣服打飞机的黑点吗…</blockquote>
+这也算黑点吗，理解一下有心无力的中年男人好不好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 8454#       发表于 2022-8-12 19:08
+
+又黑版主是吧。
+
+*****
+
+####  蛭人  
+##### 8455#       发表于 2022-8-12 19:11
+
+怎么又开始讨论皮套人了啊，能不能去皮套人专区聊啊，集美这一波，开团完美、MDY，希望geigei今年继续白给后也能这么勇。
+
+
+
+*****
+
+####  战狼PTSD  
+##### 8456#       发表于 2022-8-12 19:14
+
+皮套人和集美一起死好不好
+
+*****
+
+####  沈淮  
+##### 8457#         楼主| 发表于 2022-8-12 19:15
+
+支持midlightone跟集美一换N
+
+*****
+
+####  希望之花  
+##### 8458#       发表于 2022-8-12 19:17
+
+<blockquote>遗尿 发表于 2022-8-12 18:44
+笑死，AI画的小美，好面熟啊。</blockquote>
+那种ai画作不要啊
+
+*****
+
+####  遍体精淋af  
+##### 8459#       发表于 2022-8-12 19:17
+
+其实前面有一楼说得挺对的，要击溃lgd国外的队伍赢就行，但是要击溃集美，那就必须要有国内的队伍抢走老干瘪的决赛入场券<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次集美破防的最厉害的时候都是被国内队伍打赢，可惜在ti上一个都指望不了
+
+*****
+
+####  修罗王  
+##### 8460#       发表于 2022-8-12 19:20
+
+新液体四次major三次一轮游，还有一次进都没进，要是被他混进外卡，中国队就偷着乐吧
+
+
+
+*****
+
+####  星野航  
+##### 8461#       发表于 2022-8-12 19:21
+
+那么啥办法，其他队不给力啊
+ti9我看了一赛季vg，以为有戏呢，毕竟第一个major是亲手干掉lgd晋级的
+结果就来个万年不变中单美杜莎+油神fade梦游发挥，图啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+去年就不说了，只能说ig还达不到19年vg的水平，更谈不上挑战干爹了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  thistimeforlife  
+##### 8462#       发表于 2022-8-12 19:21
+
+就是这个理，但今年对cn队的预期 
+
+漏油已经绝望到 相信杜鹏 相信油面 相信泰迪的程度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那就先试着骗自己 鳖星这回有10%的几率败者组进化吧
+
+
+
+*****
+
+####  名字不乱取  
+##### 8463#       发表于 2022-8-12 19:24
+
+去年我对爱寄寄予厚望，然后今年撸友中单把卡猴t了滚去a级了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 8464#       发表于 2022-8-12 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037360&amp;ptid=2084957" target="_blank">遗尿 发表于 2022-8-12 18:44</a>
+
+笑死，AI画的小美，好面熟啊。</blockquote>
+是王丽莎！
+
+*****
+
+####  IG.430  
+##### 8465#       发表于 2022-8-12 19:29
+
+这小美一股太仓味儿
+
+*****
+
+####  chilno  
+##### 8466#       发表于 2022-8-12 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037880&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-12 19:21</a>
+
+就是这个理，但今年对cn队的预期 
+
+漏油已经绝望到 相信杜鹏 相信油面 相信泰迪的程度了
+
+那就先试着 ...</blockquote>
+我们阿茶好歹是真赢过
+
+女装C要不切了试试看能不能超进化吧
+
+*****
+
+####  反方向的波  
+##### 8467#       发表于 2022-8-12 19:32
+
+玄月录像有了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+【玄月自己上传直播录像了，带弹幕的。大家耐心看完再评论好吧-哔哩哔哩】 https://b23.tv/DFNJnCS
+
+
+
+*****
+
+####  usoda  
+##### 8468#       发表于 2022-8-12 19:33
+
+相信老鸡头！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 8469#       发表于 2022-8-12 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">评价个JB，要我评价就是不要双标
+
+都死了对谁都好！
+
+*****
+
+####  白野苍衣  
+##### 8470#       发表于 2022-8-12 19:37
+
+居然相信鳖茶TI会进化，打破队史最佳成绩就不错了。
+
+*****
+
+####  walfeds  
+##### 8471#       发表于 2022-8-12 19:39
+
+http://b23.tv/QF1bQ2T
+
+ceb这逼还是会说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我知道他TI8被冲了”“但是除了我的队伍他是第一c”
+
+对yuragi的评价证明是清楚队内为了atf打法做妥协的情况的，看来还是想放养
+
+选阵容干瘪135+厅长+暴击哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8472#       发表于 2022-8-12 19:40
+
+XG DPC状态越来越差，油面直播都是垂头丧气的，不看好，缺少拧绳的
+
+
+
+*****
+
+####  两三流浪者  
+##### 8473#       发表于 2022-8-12 19:42
+
+nga乐子太多，实在憋不住了 <blockquote>想多了，明明是LGD五人组最后的起舞，就是要再现翅膀的不可一世，打穿你的绝活。这次TI之后动手术的退役准备结婚的，所以不留遗憾，只要你给机会LGD就翻给你看</blockquote>
+
+*****
+
+####  反方向的波  
+##### 8474#       发表于 2022-8-12 19:44
+
+丁聪屁用没有，没有对线理念也没有拧绳理念
+
+
+
+*****
+
+####  反方向的波  
+##### 8475#       发表于 2022-8-12 19:53
+
+【RNG回家记 （终） 【傻狗短剧】-哔哩哔哩】 https://b23.tv/wgd9e3u
+
+最后蚌埠住了
+
+*****
+
+####  nxmonitor  
+##### 8476#       发表于 2022-8-12 19:59
+
+今年唯一的好消息是阵容藏好了，电魂谁都玩德鲁伊石油杯才拿出来，陈也是那时候才开始玩的，酒仙这东西major都没出来，去年那个大哥斧王要是藏到TI简直可怕……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 8477#       发表于 2022-8-12 19:59
+
+第一次点开nga那个假赛清算贴，只能说看到假赛党竟然没有骂完就滚，还赖着不走，甚至在超级假赛论坛还混成了沉默的大多数，开始用各种匪夷所思的理由甚至给别人扣帽子的方法来洗白自己，头一次为这个游戏的社区感到悲哀。 
+
+*****
+
+####  名字不乱取  
+##### 8478#       发表于 2022-8-12 19:59
+
+对你说这些话真是对你好，真别把我谁都黑、有意思就完事了当成护身符，会害了你的。当然，你爱听不听。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 8479#       发表于 2022-8-12 20:01
+
+还搁这相信茶茶会败者组进化呢，我们小茶叶都知道，明天早上别被boom送回家就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  walfeds  
+##### 8480#       发表于 2022-8-12 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 8481#       发表于 2022-8-12 20:05
+
+茶打BOOM一旦被拖住很可能出问题，实际上小组赛茶打BOOM味道已经不对了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8482#       发表于 2022-8-12 20:07
+
+好呀好呀，傻狗都投降了
+
+*****
+
+####  chilno  
+##### 8483#       发表于 2022-8-12 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038403&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-12 19:59</a>
+
+今年唯一的好消息是阵容藏好了，电魂谁都玩德鲁伊石油杯才拿出来，陈也是那时候才开始玩的，酒仙这东西majo ...</blockquote>
+藏个屁啊
+
+major打完的更新还不知道咋样呢
+
+*****
+
+####  夏溪澪mio  
+##### 8484#       发表于 2022-8-12 20:08
+
+去年是ti胜决才投降的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年太快了，major真的打得过雪碧吗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 8485#       发表于 2022-8-12 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038317&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 19:53</a>
+【RNG回家记 （终） 【傻狗短剧】-哔哩哔哩】 https://b23.tv/wgd9e3u
+
+最后蚌埠住了 ...</blockquote>
+真蚌埠住了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 8486#       发表于 2022-8-12 20:09
+
+傻狗现在是二哈在管，分分钟投降好吧，不过既然哪里都是集美，还是看先辈的表演吧，等一手先辈对ti8910拙劣的模仿。
+
+*****
+
+####  弈秋  
+##### 8487#       发表于 2022-8-12 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辉耀计划这个是真的我断牛头了
+
+*****
+
+####  莉拉厨  
+##### 8488#       发表于 2022-8-12 20:10
+
+违反群规冒死为大家带来小茶叶核心群评论，我们早已投降！<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/8e131142df3aa5dc8963ea4cc5a28b71/CMP_20220812201012392.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8489#       发表于 2022-8-12 20:10
+
+原友呢，救月哥一把呀
+
+*****
+
+####  石狮鬼  
+##### 8490#       发表于 2022-8-12 20:11
+
+龙之血真可以啊，设定党福音
+
+抓紧补了一下第二季，七大龙这一个个的白给，还有仿照wow黑龙把持暴风城朝政剧情真的有点难绷，但是看了看英雄文本，合理性居然都存在我靠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  战狼PTSD  
+##### 8491#       发表于 2022-8-12 20:11
+
+600贵宾真不熟，蹭O神热度的小UP罢了
+
+*****
+
+####  fopinecone  
+##### 8492#       发表于 2022-8-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037820&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-12 19:17</a>
+其实前面有一楼说得挺对的，要击溃lgd国外的队伍赢就行，但是要击溃集美，那就必须要有国内的队伍抢走老干 ...</blockquote>
+还得是ti上1v1正面击溃之后在夺个冠，不然集美们还能跟你扯选手状态队伍风格克制关系，怎么的都有理由找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  nxmonitor  
+##### 8493#       发表于 2022-8-12 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038550&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-12 20:07</a>
+
+藏个屁啊
+
+major打完的更新还不知道咋样呢</blockquote>
+猛选其他队的绝活就等于藏自己的阵容，发育三什么**电魂要是被削弱后，TS估计也会得到明显加强的，OG倒是因为ATF阵容池原因就挺难受的……
+
+*****
+
+####  BallanceHZ  
+##### 8494#       发表于 2022-8-12 20:20
+
+终于去看了茶的回放，monet这大圣玩的啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8495#       发表于 2022-8-12 20:22
+
+楼友们这展望也太早了，只希望这次不论lgd还是og或者ts输了都别有人说藏阵容打ti就行，别的该吹吹该喷喷
+不过有个没来的秘密那肯定藏住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  refiver  
+##### 8496#       发表于 2022-8-12 20:27
+
+虚假的原友还在帮玄月洗地，真实的原友已经开始劝他转型绝区零主播了
+
+*****
+
+####  夏溪澪mio  
+##### 8497#       发表于 2022-8-12 20:28
+
+秘密石油被的阵容几乎都被lgd用了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 8498#       发表于 2022-8-12 20:28
+
+哇，这娜迦凤凰配合的是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Buttercry  
+##### 8499#       发表于 2022-8-12 20:35
+
+<blockquote>遍体精淋af 发表于 2022-8-12 19:17
+其实前面有一楼说得挺对的，要击溃lgd国外的队伍赢就行，但是要击溃集美，那就必须要有国内的队伍抢走老干 ...</blockquote>
+那也得拿冠军才行，不然就可以效法ti5ti7故事，“换lgd/lfy进决赛就赢了”，然后把送走干瘪的队钉上耻辱柱
+
+*****
+
+####  反方向的波  
+##### 8500#       发表于 2022-8-12 20:35
+
+ 本帖最后由 反方向的波 于 2022-8-12 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038898&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-12 20:28</a>
+哇，这娜迦凤凰配合的是啥啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">两个人都尿了，而且这两个实际上也没那么好配合。这盘张志成还给林靖选个被你楼吐槽过的dp，鉴定为想早点去云顶了
+
+*****
+
+####  是挞不是派  
+##### 8501#       发表于 2022-8-12 20:35
+
+major的阵容是不是没啥意义，还要看v社之后怎么更新？
+
+*****
+
+####  战狼PTSD  
+##### 8502#       发表于 2022-8-12 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我只看了茶确定直邀那一把，野王的土猫真的绝活，后面的都不想看了
+
+*****
+
+####  BallanceHZ  
+##### 8503#       发表于 2022-8-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039018&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 20:35</a>
+两个人都尿了，而且这两个实际上也没那么好配合</blockquote>
+不好配合是真的，但打的也太蠢了
+monet后面一波本体ob更是重量级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8504#       发表于 2022-8-12 20:39
+
+西恩最强的优势路在肉山坑门口那一波太辣了
+
+*****
+
+####  外挂全家脚气  
+##### 8505#       发表于 2022-8-12 20:39
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢
+
+*****
+
+####  名字不乱取  
+##### 8506#       发表于 2022-8-12 20:41
+
+漏油可以参考隔壁的粉圈大战plus，ig的老头们都过去十年了太早了，nb现在是假赛俱乐部，wings直接拆队，要是ti6夺冠的ig，你看老干憋十年无冠怎么吹，一提就是历史荣誉有盾&gt;无盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8507#       发表于 2022-8-12 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+当时LGD打谁都一副很危险的样子，而且还在打很传统的那种四保一，ame玩的还都是巨魔大圣这种有点蹭局势的英雄
+
+而且莫言我记得当时DP玩吐了，后面面8才解放他给他一些权力
+
+
+
+*****
+
+####  BallanceHZ  
+##### 8508#       发表于 2022-8-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+当时bian还在偿还形态，整个队只会打4保1还打的很难看，不如说打到第三超预期了
+
+*****
+
+####  thistimeforlife  
+##### 8509#       发表于 2022-8-12 20:43
+
+茶是个线优率很高的队，而这2把经济就几乎没怎么领先过
+
+戴泽冰龙蓝猫这些绝活一ban，张志成就没想明白怎么对付陈和电棍，还点了个xxs永远一股怪味 就算赢boom也是极其吃力的dp
+
+老东京第二把完美发挥死死按住茶负责起节奏的24，打团的配合也是稀碎。
+
+鳖星这2把就是全方位被撵
+
+*****
+
+####  遍体精淋af  
+##### 8510#       发表于 2022-8-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+“谁上都是被eg吊打”
+
+*****
+
+####  Keynes  
+##### 8511#       发表于 2022-8-12 20:44
+
+<[blockquote>杂谈] 太监们真有东厂内味儿了  
+
+那些年，没有夸过痨疳瘪的人，我们要一个接一个的清算。
+
+茶队，有了突破，该赏，但是太后有令，何公公已经在yy传达圣旨了，夸茶队123可以，其他人不行。
+
+rng，丢人！该罚，没收ana封号，鉴于是外宾其他免了，问斩猪霉，赐尿kaka，xnova打500大板。
+
+玄月，给战犯霉鳖求情，对新进厂的出神不敬，重罚！收回将军头衔，贬为畜类。
+
+完美实x牲，抹黑南蛮大将军，洗白霉鳖，重罚！开除工作，贬为畜类。
+
+谭雅，妖言惑众，扰乱主帅军心，诽谤朝廷，重罚！游街示众，午时凌迟处死。
+
+dodo，侮辱主帅姓名，重罚！开除工作，贬为畜类。
+
+皮球，过大于功，罚！贬为畜类，留队查看。
+
+何公公，护帅及时，忠心耿耿，大赏！濡水三盆，鳖壳两副，特赐进宫侍寝。
+
+出神，秉公办案，及时揪出了朝内两大奸臣，重重有赏！赐濡水一盆，太监五个，暂任东厂代提督！
+
+nga，max，pilip，护住有功，赏！得生活如意奖。
+
+严正警告sg，草寇流民，乌合之众，速速投降，勿谓言之不预！</blockquote>
+
+FC16E417-0B98-437D-929F-6A7607F35191.gif
+(11.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/204355r3sy85s0x58b3oy4.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8512#       发表于 2022-8-12 20:44
+
+还好败决ig赢了，不然干瘪输给秘密后卡狗电梯间旁对他们说的那句“兄弟们牛啊牛啊”要被拉出来鞭尸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8513#       发表于 2022-8-12 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039166&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-12 20:43</a>
+茶是个线优率很高的队，而这2把经济就几乎没怎么领先过
+
+戴泽冰龙蓝猫这些绝活一ban，张志成就没想明白怎么 ...</blockquote>
+节奏被爆团战也不能打的这么犯罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 8514#       发表于 2022-8-12 20:50
+
+那问题来了 有不是集美的lgd粉吗
+
+
+
+*****
+
+####  蛭人  
+##### 8515#       发表于 2022-8-12 20:53
+
+没有不是集美的LGD粉。
+
+*****
+
+####  沈淮  
+##### 8516#         楼主| 发表于 2022-8-12 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038458&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-12 20:02</a>
+这头像，是你吗lz
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是，我只有s1用的土豆泥当头像
+
+*****
+
+####  Yukino-Yukino  
+##### 8517#       发表于 2022-8-12 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许有35粉吧，不过加起来没有集美的零头多。
+
+*****
+
+####  nowaki  
+##### 8518#       发表于 2022-8-12 20:56
+
+wings邪恶面的粉丝，我不能接受
+
+*****
+
+####  反方向的波  
+##### 8519#       发表于 2022-8-12 20:57
+
+搞不好是清流粉残部
+
+*****
+
+####  蛭人  
+##### 8520#       发表于 2022-8-12 20:58
+
+能粉邪恶兄弟的，肯定能成为集美。
+
+
+
+*****
+
+####  chilno  
+##### 8521#       发表于 2022-8-12 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039339&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-12 20:55</a>
+
+也许有35粉吧，不过加起来没有集美的零头多。</blockquote>
+xincute应该也有粉的
+
+
+
+*****
+
+####  ArowRocher  
+##### 8522#       发表于 2022-8-12 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039331&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-12 20:55</a>
+
+不是，我只有s1用的土豆泥当头像</blockquote>
+是小豆泥
+
+*****
+
+####  莉拉厨  
+##### 8523#       发表于 2022-8-12 21:04
+
+费洛米娜hso，想干<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8524#       发表于 2022-8-12 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039407&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-12 20:59</a>
+
+xincute应该也有粉的</blockquote>
+我不好说什么取向了
+
+*****
+
+####  nomhrpls  
+##### 8525#       发表于 2022-8-12 21:04
+
+去nga看了一下，太哈人了。打完ti后的假赛论我只觉得荒谬，这次是真的感觉到狂热。
+
+*****
+
+####  walfeds  
+##### 8526#       发表于 2022-8-12 21:05
+
+ 本帖最后由 walfeds 于 2022-8-12 21:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">跟老lxo已经其乐融融地看傻狗短剧了，感觉他们还是没过完ti8那个夏天
+
+*****
+
+####  反方向的波  
+##### 8527#       发表于 2022-8-12 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说茶队打的连喷点都找不到。。。。。。。。。。。。
+请问你有什么感想
+
+*****
+
+####  名字不乱取  
+##### 8528#       发表于 2022-8-12 21:07
+
+那不如直接说拷打憋星会被拿枪指头更合理一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 8529#       发表于 2022-8-12 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接做个拷打lgd的我就认杰出
+
+*****
+
+####  BallanceHZ  
+##### 8530#       发表于 2022-8-12 21:10
+
+ 本帖最后由 BallanceHZ 于 2022-8-12 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039517&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 21:05</a>
+
+BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说茶队打的连喷点都找不到。。。。。。。 ...</blockquote>
+
+找我何意呢，哪边粉丝找不出傻x
+
+其实但凡看下切片up的播放量就知道，茶流量就是比lgd和rng差的多
+
+*****
+
+####  杜文乐超神归来  
+##### 8531#       发表于 2022-8-12 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回家一看发这么大水，nm胜决都没开打呢
+
+*****
+
+####  外挂全家脚气  
+##### 8532#       发表于 2022-8-12 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039568&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-12 21:09</a>
+
+直接做个拷打lgd的我就认杰出</blockquote>
+我怎么记得DPC的LGD整蛊的时候出过一期，说他们科研都算不上科研，就是在乱玩
+
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 8533#       发表于 2022-8-12 21:13
+
+88sg，集美萌我们ti结束准时见
+
+*****
+
+####  Yukino-Yukino  
+##### 8534#       发表于 2022-8-12 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039622&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 21:12</a>
+
+我怎么记得DPC的LGD整蛊的时候出过一期，说他们科研都算不上科研，就是在乱玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说ti10啊，dpc的时候lgd在乱玩还需要他来告诉我们么。
+
+*****
+
+####  ArowRocher  
+##### 8535#       发表于 2022-8-12 21:14
+
+有一期标题叫什么AME铁锅什么，忘了。
+
+不过aster第一盘甚至都没有复盘价值吗
+
+*****
+
+####  BallanceHZ  
+##### 8536#       发表于 2022-8-12 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039591&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-12 21:10</a>
+找我何意呢，哪边粉丝找不出傻x
+
+其实但凡看下切片up的播放量就知道，茶流量就是比lgd和rng差的多 ...</blockquote>
+哦我还想到一点，monet那个犯罪方式相较于a/m缺乏“观赏性”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  walfeds  
+##### 8537#       发表于 2022-8-12 21:23
+
+看了看液体维基白天果然写错比赛时间了，怎么可能bc和vp打完连战og呢
+
+*****
+
+####  Litccc  
+##### 8538#       发表于 2022-8-12 21:26
+
+感觉他们还是没过完ti8那个夏天
+
+*****
+
+####  Yukino-Yukino  
+##### 8539#       发表于 2022-8-12 21:26
+
+<img src="https://img.saraba1st.com/forum/202208/12/212555raql833liwzanuuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看人翻假赛党旧账翻到这个尤其乐
+
+*****
+
+####  thistimeforlife  
+##### 8540#       发表于 2022-8-12 21:31
+
+真想拷打 完全可以挑几场茶的小组赛。必须承认，鳖星的低流量拯救了杜鹏儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 8541#       发表于 2022-8-12 21:31
+
+别再搬超级假赛集美论坛的屎了，做个人吧。
+
+*****
+
+####  反方向的波  
+##### 8542#       发表于 2022-8-12 21:32
+
+清蒸鲈狗爽吃流量中，勿Q
+
+
+
+*****
+
+####  杜文乐超神归来  
+##### 8543#       发表于 2022-8-12 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">屎黄色论坛立于不败之地了啊，处长夺冠发大水没冠就假赛狂欢。反观你楼忙着造诺亚方舟
+
+*****
+
+####  CNFH1984  
+##### 8544#       发表于 2022-8-12 21:40
+
+我说句公道话
+
+就去年nga论坛那些表现
+
+清蒸鲈鱼和巨魔蘸酱两个铁血集美要是没收lgd的钱，那可真是孝到家了
+
+*****
+
+####  百世诸侯  
+##### 8545#       发表于 2022-8-12 21:41
+
+等会儿就搬运清蒸鲈鱼女装照过来给你们辣辣眼😀
+
+*****
+
+####  VT1996  
+##### 8546#       发表于 2022-8-12 21:42
+
+突然发现sg的超级小能猫又回来做视频了，果然远离sg，你的生活会更有意义
+
+*****
+
+####  azccc52  
+##### 8547#       发表于 2022-8-12 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040032&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 21:41</a>
+等会儿就搬运清蒸鲈鱼女装照过来给你们辣辣眼😀</blockquote>
+卧槽别<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 8548#       发表于 2022-8-12 21:42
+
+傻狗除了复读还有文学部产出和大家号称傻狗殖民地怎么只有吃屎大赛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  百世诸侯  
+##### 8549#       发表于 2022-8-12 21:43
+
+<img src="https://img.saraba1st.com/forum/202208/12/214226vc077anebpratbez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/214237l33gltrgpzadgnig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/214305u29wh4hws141qqah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:43 上传
+
+桀桀，死妈双修撸狗太多了
+
+*****
+
+####  弈秋  
+##### 8550#       发表于 2022-8-12 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去刀版开个屎黄色论坛专楼行吗，真不像看这种shit
+
+
+
+*****
+
+####  名字不乱取  
+##### 8551#       发表于 2022-8-12 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040084&amp;ptid=2084957" target="_blank">弈秋 发表于 2022-8-12 21:45</a>
+
+去刀版开个屎黄色论坛专楼行吗，真不像看这种shit</blockquote>
+v版有个am1专楼，漏油建的堆肥楼<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8552#       发表于 2022-8-12 21:47
+
+老lxo都怀念最好的23457，要怎样才能加入23458的行列清算起三年前三年后。
+
+*****
+
+####  蛭人  
+##### 8553#       发表于 2022-8-12 21:47
+
+你们还有完没完，天天搬超级假赛集美论坛的屎，这就是爱之深恨之切吗？
+
+*****
+
+####  CNFH1984  
+##### 8554#       发表于 2022-8-12 21:48
+
+继续搬，继续搬，我要看看你们到底有什么内容还是我没看过的
+
+*****
+
+####  百世诸侯  
+##### 8555#       发表于 2022-8-12 21:49
+
+不搬了不搬了，下次再搬NGA的屎我就把头像改成AME<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  43453  
+##### 8556#       发表于 2022-8-12 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040045&amp;ptid=2084957" target="_blank">VT1996 发表于 2022-8-12 21:42</a>
+突然发现sg的超级小能猫又回来做视频了，果然远离sg，你的生活会更有意义</blockquote>
+小能猫有印象做视频不错的，当时水平不比神龙士力架差
+
+*****
+
+####  ArowRocher  
+##### 8557#       发表于 2022-8-12 21:52
+
+明天五点还有漏油送鹏子吗
+
+
+
+*****
+
+####  名字不乱取  
+##### 8558#       发表于 2022-8-12 21:53
+
+我要是能起来看克神大杀四方应该是能送顺便鹏子走一程的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8559#       发表于 2022-8-12 21:53
+
+漏油真的喜欢建了分矿还要粪海潜水
+
+*****
+
+####  rubicon  
+##### 8560#       发表于 2022-8-12 21:53
+
+继续搬，继续搬，我要看看你们到底有什么内容还是我没看过的
+
+*****
+
+####  北欧王座  
+##### 8561#       发表于 2022-8-12 21:54
+
+屎黄色论坛只有看乐子这么一个功能了。他们是互联**别典的一批青年。是很好地人类观察和批判材料，拿来练手内心批判下，增加智性，有益的训练。
+
+*****
+
+####  walfeds  
+##### 8562#       发表于 2022-8-12 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">昨天脑子过糊涂忘了周几，明天真得五点起来准备出差了
+
+*****
+
+####  nowaki  
+##### 8563#       发表于 2022-8-12 21:56
+
+你们这种鉴赏nga发言的行为v版都干快了两年了
+
+*****
+
+####  很久就在那边l  
+##### 8564#       发表于 2022-8-12 21:57
+
+文丑是怎么和cute联系上的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 8565#       发表于 2022-8-12 21:57
+
+ 本帖最后由 名字不乱取 于 2022-8-12 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040235&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-12 21:56</a>
+
+你们这种鉴赏nga发言的行为v版都干快了两年了</blockquote>
+听说v圈和变态一样，s1，nga，v8互相拉屎吃屎，循环消化<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+然后b站是集中排泄地<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8566#       发表于 2022-8-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">顺手点开了何雍正复盘，三万经济的鹏子满血seeYatoro空血换出来反杀不敢上去摸一下
+
+*****
+
+####  北条早苗  
+##### 8567#       发表于 2022-8-12 22:00
+
+今晚11点boom打entity没啥可看的，可以睡个好觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 8568#       发表于 2022-8-12 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040131&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 21:49</a>
+
+不搬了不搬了，下次再搬NGA的屎我就把头像改成AME</blockquote>
+要不换成冠超的头像，感觉你就能帮全楼的漏油吸引所有清算了
+
+*****
+
+####  反方向的波  
+##### 8569#       发表于 2022-8-12 22:01
+
+明天上班，可以早起送杜软上飞往星云剧场的飞机了
+
+*****
+
+####  -SLSL-  
+##### 8570#       发表于 2022-8-12 22:02
+
+看了复盘才知道茶的团打的有多丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  百世诸侯  
+##### 8571#       发表于 2022-8-12 22:05
+
+<img src="https://img.saraba1st.com/forum/202208/12/220519trz1zev1vrj1ohol.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 22:05 上传
+
+A畜和北美A畜赶紧死在沙滩上吧
+
+*****
+
+####  syndrome2032  
+##### 8572#       发表于 2022-8-12 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040414&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 22:05</a>
+A畜和北美A畜赶紧死在沙滩上吧</blockquote>
+雪碧要是连贯那就是第二个上帝诞生了。
+
+丫头肉这年龄和拿ti时候的上帝有的一拼。
+
+*****
+
+####  战狼PTSD  
+##### 8573#       发表于 2022-8-12 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都愿意看小王在TI拉屎了，怎么看看屎黄色论坛（非S1）就不愿意了
+
+*****
+
+####  名字不乱取  
+##### 8574#       发表于 2022-8-12 22:10
+
+怎么都是小年轻打老头<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 8575#       发表于 2022-8-12 22:11
+
+补昨天rep的时候看到个事，小那家睡进鸟蛋晕应该是稳的，路人都能随便配合的出了什么问题，爬楼好像也没看到提起...
+
+*****
+
+####  弈秋  
+##### 8576#       发表于 2022-8-12 22:11
+
+到底还是年轻人的世界啊
+

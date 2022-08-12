@@ -9678,3 +9678,349 @@ v要皮套丑可不行
 
 明明本来是觉得没啥，可是能不能别这样来表示五老星多喜欢新人啊。
 
+
+
+*****
+
+####  cybernetics31  
+##### 2444#       发表于 2022-8-12 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大家多支持中之人就行
+
+
+
+*****
+
+####  ViyViy  
+##### 2445#       发表于 2022-8-12 13:48
+
+我很害怕第五集，从预告看感觉不会给可可安排什么好活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ads147147  
+##### 2446#       发表于 2022-8-12 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033703&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-12 13:48</a>
+我很害怕第五集，从预告看感觉不会给可可安排什么好活</blockquote>
+这个应该不至于，可堇的问题也只是手法很糙，从第四集红蓝看绑cp不是做的很自然么，搞的可可和恶人一样。
+
+或许真的是外国人一定会很凶的刻板印象吗（艾玛：？）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  仟音一心  
+##### 2447#       发表于 2022-8-12 15:22
+
+<img src="https://img.saraba1st.com/forum/202208/12/152255v50isua1dt33t53w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>54EDF069-F341-40AA-9499-2E9FC6E094F2.jpeg</strong> (151.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 15:22 上传
+
+
+
+*****
+
+####  adw667  
+##### 2448#       发表于 2022-8-12 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029688&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-12 08:34</a>
+
+二期生从公布到现在就参加了几场fmt，动画开播前大家连她们唱歌什么音色都不知道，现在动画播了4话，新歌也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">一期动画播放之前那个外景力度简直把二期私下团建吊起来打
+
+*****
+
+####  adw667  
+##### 2449#       发表于 2022-8-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034748&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-12 15:22</a></blockquote>
+酸菜鱼三期什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 2450#       发表于 2022-8-12 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035182&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-12 15:58</a>
+
+一期动画播放之前那个外景力度简直把二期私下团建吊起来打</blockquote>
+对对对，一期动画播放之前，最起码有两个很有趣的外景系列，还有一堆生放，别的不说最起码让大家对五个人很熟悉，现在二期这几位……
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 2451#       发表于 2022-8-12 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035283&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-12 16:06</a>
+
+对对对，一期动画播放之前，最起码有两个很有趣的外景系列，还有一堆生放，别的不说最起码让大家对五个人 ...</blockquote>
+说到外景，或许也有疫情的原因吧，当然估计也有7月初鲤鱼她们三人那个事的影响。
+
+不过当时一期动画的“购买部”也没搞了，二期动画宣发感觉一般，比去年是感觉少多了
+
+
+
+*****
+
+####  starring  
+##### 2452#       发表于 2022-8-12 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035555&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-12 16:24</a>
+说到外景，或许也有疫情的原因吧，当然估计也有7月初鲤鱼她们三人那个事的影响。
+
+不过当时一期动画的“购 ...</blockquote>
+运营对二期四个人信心不够，不敢单独让她们四个活动吧。现在涉及二期生的活动最少都带一个老人，这种不上不下的状态导致像生放送这类需要露脸的节目数量减少，更别说一期那样各种电视节目都力荐登场。
+
+
+
+*****
+
+####  lj205  
+##### 2453#       发表于 2022-8-12 17:00
+
+鲤鱼的唠嗑会没中<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">果然上半年把运气都透支完了
+
+
+
+*****
+
+####  Enakina  
+##### 2454#       发表于 2022-8-12 17:10
+
+二期Bd特典有新的liella去哪了，那个应该是首次9人外景了
+
+
+
+*****
+
+####  仟音一心  
+##### 2455#       发表于 2022-8-12 20:53
+
+<img src="https://img.saraba1st.com/forum/202208/12/205325fwk47dgiw7wdg7ga.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AE1E5D9D-B2E5-4182-9ADA-7963F1ABBC21.jpeg</strong> (78.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 20:53 上传
+
+
+
+*****
+
+####  优妮可  
+##### 2456#       发表于 2022-8-12 21:07
+
+<img src="https://img.saraba1st.com/forum/202208/12/210707qp0ytzyp3kmxkxpx.jpg" referrerpolicy="no-referrer">
+
+<strong>20220812_210458.jpg</strong> (313.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/210707iaizl6phi8ccbdpt.jpg" referrerpolicy="no-referrer">
+
+<strong>20220812_210509.jpg</strong> (246.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:07 上传
+
+
+
+*****
+
+####  lj205  
+##### 2457#       发表于 2022-8-12 21:20
+
+前偶像，你在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 2458#       发表于 2022-8-12 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">是不是急了点
+
+*****
+
+####  player3960  
+##### 2459#       发表于 2022-8-12 21:23
+
+这俩戏里戏外也没啥交集啊，这营业有点迷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 2460#       发表于 2022-8-12 21:26
+
+踏马的，鲤鱼赶紧回去吧，这个月拼盘再取消是不是星团的安排一个都没有？
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 2461#       发表于 2022-8-12 21:37
+
+看起来5-8集没可可啥事了，倒也是个好事，至少可可应该不会在7-8集复刻一次恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 2462#       发表于 2022-8-12 21:39
+
+不懂，上映会选人一定是会和动画有关的吗？
+
+*****
+
+####  lj205  
+##### 2463#       发表于 2022-8-12 21:40
+
+上映会是一开始就分配好的
+
+
+
+*****
+
+####  Enakina  
+##### 2464#       发表于 2022-8-12 21:41
+
+这分析可不准，一到四集有青山什么事吗，原计划不也上的吗
+
+*****
+
+####  player3960  
+##### 2465#       发表于 2022-8-12 21:44
+
+问题是也只有可可的个人回没讲啊，要是5-8有你们奶那么久的追飞机，不请鲤鱼来说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 2466#       发表于 2022-8-12 21:46
+
+ 本帖最后由 aoaoaodedede 于 2022-8-12 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039997&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-12 21:39</a>
+
+不懂，上映会选人一定是会和动画有关的吗？</blockquote>
+别的不说，如果那个角色在那一段动画里有主要戏份，那么不喊她去上映会喊谁去？
+
+假如5-8集有可可回，那么让鲤鱼缺席是个很恶心人的决定，况且鲤鱼目前也并没有很明显的不能出席的客观原因。
+
+当然这个推测是建立在企划方不整骚操作的情况下，不然无法预测
+
+*****
+
+####  愛さ実  
+##### 2467#       发表于 2022-8-12 21:48
+
+什么鬼，两次上映会就只有一个成员没上是吧？搞孤立呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  ads147147  
+##### 2468#       发表于 2022-8-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑了，要是这一季真的没有可可回，花田要硬生生拖到第三季再说这事怎么办
+
+*****
+
+####  lj205  
+##### 2469#       发表于 2022-8-12 21:58
+
+可能第一季前三集就当是可可回了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2470#       发表于 2022-8-12 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能怎么办，多当一季的堇无关bot喽
+
+
+
+*****
+
+####  仟音一心  
+##### 2471#       发表于 2022-8-12 22:05
+
+之后就是R18了
+
+<img src="https://img.saraba1st.com/forum/202208/12/220443t4o6ovo88lkolovk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E65A448E-3548-46D9-A6F5-AF8A52BD380D.jpeg</strong> (245.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/220450pfo3f395forszlol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2D65370E-F851-48DA-8DD2-B282A80C3975.jpeg</strong> (237.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/220458ghvsvxvvb3v2b9kx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BA7FA7C8-777E-4EDC-8DD4-0F815D327DCF.jpeg</strong> (294.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/220506eqvx73mo55vv2om8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F9F9D5BB-9C06-4A9C-A043-7616425D56C6.jpeg</strong> (263.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:05 上传
+
+*****
+
+####  Enakina  
+##### 2472#       发表于 2022-8-12 22:10
+
+草，non居然发推吃醋了，原来是这个剧本吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2473#       发表于 2022-8-12 22:11
+
+来活了，沈黙の金曜日
+
