@@ -8080,3 +8080,121 @@ nga乐子太多，实在憋不住了 <blockquote>想多了，明明是LGD五人�
 
 还搁这相信茶茶会败者组进化呢，我们小茶叶都知道，明天早上别被boom送回家就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 8480#       发表于 2022-8-12 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 8481#       发表于 2022-8-12 20:05
+
+茶打BOOM一旦被拖住很可能出问题，实际上小组赛茶打BOOM味道已经不对了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8482#       发表于 2022-8-12 20:07
+
+好呀好呀，傻狗都投降了
+
+*****
+
+####  chilno  
+##### 8483#       发表于 2022-8-12 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038403&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-12 19:59</a>
+
+今年唯一的好消息是阵容藏好了，电魂谁都玩德鲁伊石油杯才拿出来，陈也是那时候才开始玩的，酒仙这东西majo ...</blockquote>
+藏个屁啊
+
+major打完的更新还不知道咋样呢
+
+*****
+
+####  夏溪澪mio  
+##### 8484#       发表于 2022-8-12 20:08
+
+去年是ti胜决才投降的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年太快了，major真的打得过雪碧吗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 8485#       发表于 2022-8-12 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038317&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 19:53</a>
+【RNG回家记 （终） 【傻狗短剧】-哔哩哔哩】 https://b23.tv/wgd9e3u
+
+最后蚌埠住了 ...</blockquote>
+真蚌埠住了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 8486#       发表于 2022-8-12 20:09
+
+傻狗现在是二哈在管，分分钟投降好吧，不过既然哪里都是集美，还是看先辈的表演吧，等一手先辈对ti8910拙劣的模仿。
+
+*****
+
+####  弈秋  
+##### 8487#       发表于 2022-8-12 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辉耀计划这个是真的我断牛头了
+
+*****
+
+####  莉拉厨  
+##### 8488#       发表于 2022-8-12 20:10
+
+违反群规冒死为大家带来小茶叶核心群评论，我们早已投降！<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/8e131142df3aa5dc8963ea4cc5a28b71/CMP_20220812201012392.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8489#       发表于 2022-8-12 20:10
+
+原友呢，救月哥一把呀
+
+*****
+
+####  石狮鬼  
+##### 8490#       发表于 2022-8-12 20:11
+
+龙之血真可以啊，设定党福音
+
+抓紧补了一下第二季，七大龙这一个个的白给，还有仿照wow黑龙把持暴风城朝政剧情真的有点难绷，但是看了看英雄文本，合理性居然都存在我靠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  战狼PTSD  
+##### 8491#       发表于 2022-8-12 20:11
+
+600贵宾真不熟，蹭O神热度的小UP罢了
+
+*****
+
+####  fopinecone  
+##### 8492#       发表于 2022-8-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037820&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-12 19:17</a>
+其实前面有一楼说得挺对的，要击溃lgd国外的队伍赢就行，但是要击溃集美，那就必须要有国内的队伍抢走老干 ...</blockquote>
+还得是ti上1v1正面击溃之后在夺个冠，不然集美们还能跟你扯选手状态队伍风格克制关系，怎么的都有理由找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
