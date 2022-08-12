@@ -10112,3 +10112,47 @@ midlightone被冲了吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 大老师发话了，100-0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haruhiismer  
+##### 8713#       发表于 2022-8-13 07:00
+
+有个蓝猫而且有大锤就是不太好玩
+
+*****
+
+####  一品堂官  
+##### 8714#       发表于 2022-8-13 07:01
+
+ori爽到了呃呃 这把蓝猫打得好舒服
+
+*****
+
+####  ninini212  
+##### 8715#       发表于 2022-8-13 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043134&amp;ptid=2084957" target="_blank">白笛之音 发表于 2022-8-13 06:39</a>
+
+道理我都懂，为什么这个天光现世这么大</blockquote>
+xxs放大的时候正好是ORI被丢在天上
+
+*****
+
+####  雅朵莉雀  
+##### 8716#       发表于 2022-8-13 07:09
+
+Entity的Kataomi可能是这届比赛打得最好的冰龙之一
+
+之前只要放了就一直选，每盘都很厉害，只能说这盘没跟队友沟通好
+
+*****
+
+####  千千千千鸟  
+##### 8717#       发表于 2022-8-13 07:09
+
+一觉醒来茶居然赢了一盘，看第二盘了呀
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
