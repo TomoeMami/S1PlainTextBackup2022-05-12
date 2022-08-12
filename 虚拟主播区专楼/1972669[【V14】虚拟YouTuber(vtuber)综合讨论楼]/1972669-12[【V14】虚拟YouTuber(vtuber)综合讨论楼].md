@@ -4143,3 +4143,36 @@ lz赢 顺位是lz 熊猫人 社长 豆猫
 
 4位:楽園村立まめねこ
 
+
+
+*****
+
+####  FCCHua  
+##### 16873#       发表于 2022-8-12 17:23
+
+ 本帖最后由 FCCHua 于 2022-8-12 17:27 编辑 
+
+下午在hnn弹幕栏里刷kmt和oreapo的真有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报告给运营，虽然我觉得后者没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 16874#       发表于 2022-8-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035047&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-12 15:47</a>
+
+插播一条：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mysta的瓦实力还是要尊敬下的，倒是sunny这军团高玩没选进来挺意外的
+
+*****
+
+####  winda  
+##### 16875#       发表于 2022-8-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-10 11:33</a>
+
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简中限定炎上真的很有节目效果
+
+这点drama 700踩和ib虹甲捏人优遇en男的1400踩比起来啥都不算
+

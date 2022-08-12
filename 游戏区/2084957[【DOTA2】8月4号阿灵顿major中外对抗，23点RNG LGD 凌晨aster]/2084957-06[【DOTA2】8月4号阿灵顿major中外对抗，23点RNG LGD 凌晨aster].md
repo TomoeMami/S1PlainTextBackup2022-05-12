@@ -7171,3 +7171,70 @@ xg大概率没了，拒绝者看直播就知道明显没信心了，还有老鸡
 
 说真的很多那些自媒体吹的根本就全错，好多人连ceb牛头一眼看穿炼金是来卖的捏着大招一直没放都不知道，感觉是又得ceeeeeeeeeeeeeeeeb来给他们脑门来一棍子了
 
+
+
+*****
+
+####  香蕉芭菲  
+##### 8380#       发表于 2022-8-12 17:23
+
+今天的ts，多伦多已经有了ti10淘汰赛阶段的状态了。这两把说实话collapse还没什么特别的发挥就宰了茶队，就只是走个流程，这就是强队姿态。
+当然茶队今天都打得挺差的，偏向于认为这是皮球被针对bp后茶队没有比较好的bp思路，僵住了，而你打团细节没人好，那铁输
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  adretyu67  
+##### 8381#       发表于 2022-8-12 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036310&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-12 17:23</a>
+
+今天的ts，多伦多已经有了ti10淘汰赛阶段的状态了。这两把说实话collapse还没什么特别的发挥就宰了茶队，就 ...</blockquote>
+茶队想和雪碧拼4保1就是想多了。
+
+佛祖这个逼居然才18岁。。。。。
+
+*****
+
+####  桐道悠  
+##### 8382#       发表于 2022-8-12 17:25
+
+今年至少到大师赛之前，么么憋的状态都是非常差的，那时候面八思路也有问题，lgd进攻端全靠xinq。xinq一旦玩什么凤凰，小精灵这种英雄，lgd直接送。大师赛开始面八改了思路，把ame重要性下调，bian的重要性上升，xinq少吃一些bian的资源，整个队伍强度就明显提高了。大师赛到现在，么么憋的状态也有所回暖，客观来说，这个队伍状态比之前好很多很多了。
+
+*****
+
+####  lmslardar  
+##### 8383#       发表于 2022-8-12 17:28
+
+没说他状态不好啊，我觉得lgd确实是机会最大的队伍，但架不住每个论坛都是大水库
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名字不乱取  
+##### 8384#       发表于 2022-8-12 17:28
+
+我建议漏油众筹整个s1-sg联合队，不然接下来就是大水-假赛二相态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 8385#       发表于 2022-8-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036336&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-12 17:25</a>
+茶队想和雪碧拼4保1就是想多了。
+
+佛祖这个逼居然才18岁。。。。。</blockquote>
+是的，这第二把茶队想用阵地战阵容跟别人打我就知道大概率干不过了。属于没搞清楚自己和对手的差距
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nightmare902015  
+##### 8386#       发表于 2022-8-12 17:29
+
+其实就是单纯的lgd这支队伍相对算是适应版本速度偏差的。找到了这版本假三真一的打法后就自然会调整成这个样子。
+
