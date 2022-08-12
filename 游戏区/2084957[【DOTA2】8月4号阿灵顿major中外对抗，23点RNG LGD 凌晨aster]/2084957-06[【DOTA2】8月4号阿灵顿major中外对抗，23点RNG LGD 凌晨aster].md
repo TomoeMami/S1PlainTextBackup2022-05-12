@@ -5398,3 +5398,32 @@ v社：a畜不举盾ti不停办
 
 求求boom上来，我倒是想看看鳖星对东南亚到底是破咒了还是只是单纯fnc血统不纯
 
+
+
+*****
+
+####  syndrome2032  
+##### 8174#       发表于 2022-8-12 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031325&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 10:37</a>
+阿灵顿Major淘汰赛第三日，bc 2-1淘汰Fnatic，bc战队的二号位C.smile接受了主舞台的采访。
+
+Q：你们成功为R ...</blockquote>
+一搜吓一跳，rtz都26了。明年27。真建队核心了
+
+*****
+
+####  dreamquest  
+##### 8175#       发表于 2022-8-12 10:57
+
+龙之血第二季就没看了
+
+好看吗
+
+*****
+
+####  反方向的波  
+##### 8176#       发表于 2022-8-12 10:58
+
+第二季是💩，第三季还没来得及看
+
