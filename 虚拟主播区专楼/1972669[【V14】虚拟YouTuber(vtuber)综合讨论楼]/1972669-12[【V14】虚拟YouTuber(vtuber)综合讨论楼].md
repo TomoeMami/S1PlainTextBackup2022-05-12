@@ -4080,3 +4080,12 @@ lz赢 顺位是lz 熊猫人 社长 豆猫
 
 难道社长就是虹甲第一cjb？
 
+
+
+*****
+
+####  更喜欢狗是吗  
+##### 16868#       发表于 2022-8-12 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> B组第二吹JB会是谁呢？
+

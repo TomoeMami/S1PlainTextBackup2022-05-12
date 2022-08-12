@@ -6932,3 +6932,72 @@ ti狠狠吃屎
 
 鹏子还真可以讲讲ti7【最强季军lfy】的故事了，只能说水厂系的硬实力真的永远没输过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M0kha  
+##### 8354#       发表于 2022-8-12 16:54
+
+虚假的集美发大水捧杀，真正的集美冷静分析表示不容乐观
+
+*****
+
+####  excalibur--  
+##### 8355#       发表于 2022-8-12 16:57
+
+讲个笑话，莫奈特的c<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+也就是莫奈特没有进过决赛，不然我觉得名场面不会比ame少
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 8356#       发表于 2022-8-12 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 8357#       发表于 2022-8-12 17:00
+
+时光倒流一下，如果lou签证过了xg有没有可能变成16年的wings
+
+*****
+
+####  thistimeforlife  
+##### 8358#       发表于 2022-8-12 17:01
+
+今天鳖茶不就被雪碧完爆了，人人都在尿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8359#       发表于 2022-8-12 17:01
+
+漏油门已经开始为15号捉拿沈淮作铺垫了，令人感慨
+
+*****
+
+####  星野航  
+##### 8360#       发表于 2022-8-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036034&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 18:00</a>
+时光倒流一下，如果lou签证过了xg有没有可能变成16年的wings</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">指望脑11跟油神
+我觉得需要回顾一下16年的42岁blink跟明鞭的表现
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  一色いろは  
+##### 8361#       发表于 2022-8-12 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年major亚军现在major一轮
+
+今年形势显然比去年严峻多了
+
