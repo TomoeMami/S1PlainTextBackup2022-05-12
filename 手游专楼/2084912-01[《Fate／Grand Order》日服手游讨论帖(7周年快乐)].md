@@ -8695,3 +8695,95 @@ lily：友情池双up你怕了吗
 是不是觉得跟神经病一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 821#       发表于 2022-8-12 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033280&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:11</a>
+
+暗狐狸+120班杨+120班杨
+
+50充礼装的无限池阵容
+
+最后一个班杨全buff一脚能踩20+w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这阵容15张礼装保底  能用的时候是不是活动已经结束了？
+
+*****
+
+####  qixinno2  
+##### 822#       发表于 2022-8-12 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我国服60石30呼符杀狐2宝 300石10呼符奥伯龙2宝
+
+*****
+
+####  保罗赫伯特  
+##### 823#       发表于 2022-8-12 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手
+
+我先说一句这个阵容下2宝奥伯龙伤害是完全没 ...</blockquote>
+日服好友奥伯龙和杀狐带的基本都是羁绊礼装，这种阵容基本不考虑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 824#       发表于 2022-8-12 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033305&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:13</a>
+
+你这阵容15张礼装保底  能用的时候是不是活动已经结束了？</blockquote>
+所以说跟神经病一样啊
+
+正常人200池就吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过不管是国服还是日服，不要怀疑秃子
+
+我前几年有一次池子我这种咸鱼都刷过6满破
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 825#       发表于 2022-8-12 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033383&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:20</a>
+
+所以说跟神经病一样啊
+
+正常人200池就吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装
+
+*****
+
+####  exiaexa  
+##### 826#       发表于 2022-8-12 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033392&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:20</a>
+
+这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装</blockquote>
+用公主不是傻逼吗
+
+这个阵容算上衣服只用点6个技能啊
+
+懒得点降防甚至只用4个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 827#       发表于 2022-8-12 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033392&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:20</a>
+
+这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快奶一口公主宝具本或者技能变攻击相性 看隔壁打起来
+
