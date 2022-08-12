@@ -9278,3 +9278,93 @@ rmn可不止能点外卖，还能一起和kky下自走棋。
 
 用vr下自走棋是吧
 
+
+
+*****
+
+####  吃货红毛  
+##### 8610#       发表于 2022-8-12 23:22
+
+油扒鸡打得是个der来自: iPhone客户端
+
+
+
+*****
+
+####  ArowRocher  
+##### 8611#       发表于 2022-8-12 23:23
+
+ 本帖最后由 ArowRocher 于 2022-8-12 23:25 编辑 
+
+觉得隔壁是唯一指定太监论坛的还处在ドキドキ憧憬沈志豪的初级阶段，看看小黑屋装了多少键盘勃起家
+
+*****
+
+####  12481632  
+##### 8612#       发表于 2022-8-12 23:25
+
+大老师：狼人小小就是输不了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 8613#       发表于 2022-8-12 23:25
+
+我寻思大老师加的胜率一般是给谜团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8614#       发表于 2022-8-12 23:26
+
+ 本帖最后由 反方向的波 于 2022-8-12 23:29 编辑 
+
+既然大家都一样，那还是继续往楼里搬屎好了<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+@白色的120  @百世诸侯 @战狼ptsd  多搬点
+
+*****
+
+####  弈秋  
+##### 8615#       发表于 2022-8-12 23:26
+
+油扒鸡打jb呢
+
+*****
+
+####  12481632  
+##### 8616#       发表于 2022-8-12 23:26
+
+油扒鸡这是何意啊
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  windhawind2  
+##### 8617#       发表于 2022-8-12 23:29
+
+这脑浆蓝猫要学鸡哥出引擎盖是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 8618#       发表于 2022-8-12 23:29
+
+偷的狼还挺好看
+
+*****
+
+####  ArowRocher  
+##### 8619#       发表于 2022-8-12 23:29
+
+这拉比克存在感好强
+
+*****
+
+####  walfeds  
+##### 8620#       发表于 2022-8-12 23:31
+
+TIMS这拉比克可以啊
+
