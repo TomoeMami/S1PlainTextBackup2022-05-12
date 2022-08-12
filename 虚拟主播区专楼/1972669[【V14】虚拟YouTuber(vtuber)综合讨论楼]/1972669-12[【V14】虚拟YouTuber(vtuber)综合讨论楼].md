@@ -3963,3 +3963,14 @@ syl，已经开始无法预测的命运之舞台了嘛<img src="https://static.s
 莎皇一人队，唯一的ACE独木难支
 跟现实中的莎皇一致性
 
+
+
+*****
+
+####  Ketestrait  
+##### 16858#       发表于 2022-8-12 14:50
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h53zggmp91j20py0el0wn.jpg" referrerpolicy="no-referrer">
+
+背后灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

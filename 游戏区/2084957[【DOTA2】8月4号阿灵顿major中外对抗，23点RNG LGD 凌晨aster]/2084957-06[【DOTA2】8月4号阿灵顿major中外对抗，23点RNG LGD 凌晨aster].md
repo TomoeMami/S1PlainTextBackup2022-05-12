@@ -6404,3 +6404,53 @@ bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中�
 
 只能说场外比比赛更精彩
 
+
+
+*****
+
+####  syndrome2032  
+##### 8292#       发表于 2022-8-12 14:43
+
+根据win a ti before you talk原则，队内大腿的明鞭确实有免喷权。
+
+但是水友们似乎并不这么想。
+
+*****
+
+####  usoda  
+##### 8293#       发表于 2022-8-12 14:45
+
+太尼玛弱智了 今年这大水发的怎么比去年还要离谱
+
+*****
+
+####  IG.430  
+##### 8294#       发表于 2022-8-12 14:47
+
+别清算dodo，要清算就清算嘉然吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 8295#       发表于 2022-8-12 14:47
+
+别急，这次major如果让雪碧og拿下了，马上开始清算23458<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 8296#       发表于 2022-8-12 14:49
+
+看了克神的大屁股心里痒痒的，晚上打开客户端整两把
+
+*****
+
+####  ArowRocher  
+##### 8297#       发表于 2022-8-12 14:50
+
+[Ramzes666赛后采访，昨天我们的BP很好，我爱吃中餐特别是火锅](https://www.bilibili.com/video/BV1fS4y1s7Gm?vd_source=ecf1ca9dee9d5ca6b7ec4c3dbbe01f51)
+
+老哥连ghost不是中国人都不知道
+
