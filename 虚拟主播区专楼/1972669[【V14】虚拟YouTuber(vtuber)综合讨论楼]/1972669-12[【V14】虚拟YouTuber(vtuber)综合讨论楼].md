@@ -4089,3 +4089,12 @@ lz赢 顺位是lz 熊猫人 社长 豆猫
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> B组第二吹JB会是谁呢？
 
+
+
+*****
+
+####  Ketestrait  
+##### 16869#       发表于 2022-8-12 17:05
+
+关键的转折点buff被三振，风向不在社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

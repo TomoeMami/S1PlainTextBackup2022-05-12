@@ -7001,3 +7001,104 @@ ti狠狠吃屎
 
 今年形势显然比去年严峻多了
 
+
+
+*****
+
+####  nxmonitor  
+##### 8362#       发表于 2022-8-12 17:03
+
+misha一来有较高概率OG人就没了，这个35是非常大的隐患，124完全被压制了……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8363#       发表于 2022-8-12 17:03
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 17:04 编辑 
+
+xg赛季开始的时候也不是没被寄予厚望过，但是lou的英雄币，油面和老十一的脑浆，鸡皇的僵硬bp是越打越明显，预选能打出来但是没有进化的话也基本不可能复刻wings
+
+*****
+
+####  thistimeforlife  
+##### 8364#       发表于 2022-8-12 17:03
+
+相信油面 相信鹏子 相信泰迪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+形式确实很严峻
+
+*****
+
+####  syndrome2032  
+##### 8365#       发表于 2022-8-12 17:03
+
+xg的命门是油面。就这点来说谨慎不看好。
+
+*****
+
+####  12481632  
+##### 8366#       发表于 2022-8-12 17:04
+
+所以当初茶队是怎么肯花1000W买杜鹏儿的
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 8367#       发表于 2022-8-12 17:04
+
+所有队伍都猛选陈是大好事，能把欧洲区两个不学不练的家伙关住……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 8368#       发表于 2022-8-12 17:05
+
+ 本帖最后由 syndrome2032 于 2022-8-12 17:10 编辑 
+
+晓菲还放话3000w买仙贝呢。
+
+不知道rng在monet和lgd的合同上出了多少钱。估摸大头在这。
+
+*****
+
+####  遍体精淋af  
+##### 8369#       发表于 2022-8-12 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036072&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-12 17:04</a>
+所以当初茶队是怎么肯花1000W买杜鹏儿的
+
+—— 来自 samsung SM-N9860, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+杜鹏800，白学家200吧，当时国内能选的年轻c不就那几个，鳖茶肯定是做长线投资的
+
+*****
+
+####  nxmonitor  
+##### 8370#       发表于 2022-8-12 17:05
+
+xg大概率没了，拒绝者看直播就知道明显没信心了，还有老鸡头这啥BP啊，赛季初还能和茶有来有回，后面就是有来无回了……
+
+
+
+*****
+
+####  nowaki  
+##### 8371#       发表于 2022-8-12 17:07
+
+杜鹏儿ti8还是带着rng去了ti的
+
+*****
+
+####  lmslardar  
+##### 8372#       发表于 2022-8-12 17:12
+
+大概率就是rng正赛xg和ig去打12进2资格赛。
+
+虽然说今年lgd希望很大，但确实没想到今年大水比去年猛，我说一句ana打得也一般收获了好多条同接，还有给我截图标记小超人的，我服了。
+
+我是秉持着只要cn夺冠就行的原则的，lgd夺冠也挺好，就当我四年前打的钱又回来了。但现在看来dota圈跟粉圈也没啥区别，只能祝福他们希望lgd别掉链子了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
