@@ -9942,3 +9942,26 @@ v要皮套丑可不行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 2468#       发表于 2022-8-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑了，要是这一季真的没有可可回，花田要硬生生拖到第三季再说这事怎么办
+
+*****
+
+####  lj205  
+##### 2469#       发表于 2022-8-12 21:58
+
+可能第一季前三集就当是可可回了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2470#       发表于 2022-8-12 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能怎么办，多当一季的堇无关bot喽
+

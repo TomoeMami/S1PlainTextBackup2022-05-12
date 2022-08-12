@@ -9128,3 +9128,15 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 话说有无出过必new池<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 855#       发表于 2022-8-12 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039078&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-12 20:38</a>
+
+话说有无出过必new池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10周年大概会有
+

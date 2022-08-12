@@ -8828,3 +8828,105 @@ v版有个am1专楼，漏油建的堆肥楼<img src="https://static.saraba1st.co
 
 明天五点还有漏油送鹏子吗
 
+
+
+*****
+
+####  名字不乱取  
+##### 8558#       发表于 2022-8-12 21:53
+
+我要是能起来看克神大杀四方应该是能送顺便鹏子走一程的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8559#       发表于 2022-8-12 21:53
+
+漏油真的喜欢建了分矿还要粪海潜水
+
+*****
+
+####  rubicon  
+##### 8560#       发表于 2022-8-12 21:53
+
+继续搬，继续搬，我要看看你们到底有什么内容还是我没看过的
+
+*****
+
+####  北欧王座  
+##### 8561#       发表于 2022-8-12 21:54
+
+屎黄色论坛只有看乐子这么一个功能了。他们是互联**别典的一批青年。是很好地人类观察和批判材料，拿来练手内心批判下，增加智性，有益的训练。
+
+*****
+
+####  walfeds  
+##### 8562#       发表于 2022-8-12 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">昨天脑子过糊涂忘了周几，明天真得五点起来准备出差了
+
+*****
+
+####  nowaki  
+##### 8563#       发表于 2022-8-12 21:56
+
+你们这种鉴赏nga发言的行为v版都干快了两年了
+
+*****
+
+####  很久就在那边l  
+##### 8564#       发表于 2022-8-12 21:57
+
+文丑是怎么和cute联系上的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 8565#       发表于 2022-8-12 21:57
+
+ 本帖最后由 名字不乱取 于 2022-8-12 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040235&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-12 21:56</a>
+
+你们这种鉴赏nga发言的行为v版都干快了两年了</blockquote>
+听说v圈和变态一样，s1，nga，v8互相拉屎吃屎，循环消化<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+然后b站是集中排泄地<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8566#       发表于 2022-8-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">顺手点开了何雍正复盘，三万经济的鹏子满血seeYatoro空血换出来反杀不敢上去摸一下
+
+*****
+
+####  北条早苗  
+##### 8567#       发表于 2022-8-12 22:00
+
+今晚11点boom打entity没啥可看的，可以睡个好觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 8568#       发表于 2022-8-12 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040131&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 21:49</a>
+
+不搬了不搬了，下次再搬NGA的屎我就把头像改成AME</blockquote>
+要不换成冠超的头像，感觉你就能帮全楼的漏油吸引所有清算了
+
+*****
+
+####  反方向的波  
+##### 8569#       发表于 2022-8-12 22:01
+
+明天上班，可以早起送杜软上飞往星云剧场的飞机了
+
+*****
+
+####  -SLSL-  
+##### 8570#       发表于 2022-8-12 22:02
+
+看了复盘才知道茶的团打的有多丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
