@@ -10149,3 +10149,32 @@ v要皮套丑可不行
 好像没看到熟肉，不知道nagi那次有些什么</blockquote>
 我也没看，还记得有人吐槽过无聊，我还找到了<img src="https://p.sda1.dev/6/e2c8634ac453e2636a58d2ec24f3ffe5/CMP_20220812223637108.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2484#       发表于 2022-8-12 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040881&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-12 22:36</a>
+我也没看，还记得有人吐槽过无聊，我还找到了</blockquote>
+我也在几个地方看到类似“不懂二次元”，“不懂动漫”的说法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2485#       发表于 2022-8-12 22:45
+
+大概是那种走文艺风的广播？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 2486#       发表于 2022-8-12 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040980&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-12 22:43</a>
+我也在几个地方看到类似“不懂二次元”，“不懂动漫”的说法了</blockquote>
+Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎健的ヨルナイト ヨルナイト
+主持人都是那种有趣，说话又好听的，毕竟资历在那里了，这俩广播之前都上过两次了，今年应该还会上去宣传二期
+鹫崎健的那个当初就pay没去过了，希望今年pay能去，不过肯定又是得带二期生就是了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
