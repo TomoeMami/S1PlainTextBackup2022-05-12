@@ -9225,3 +9225,56 @@ noone和666 ti5打外卡时候才18岁
 国师好像在boom当教练</blockquote>
 神了 跟银k一样还在赖啊
 
+
+
+*****
+
+####  山上徹也  
+##### 8603#       发表于 2022-8-12 23:12
+
+狼人小小
+
+*****
+
+####  尸体鲨  
+##### 8604#       发表于 2022-8-12 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041390&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-12 23:12</a>
+神了 跟银k一样还在赖啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教练不就是图一个经验丰富见多识广，又不下场打
+
+*****
+
+####  nowaki  
+##### 8605#       发表于 2022-8-12 23:14
+
+教练就是个点外卖的，不少队都是队员自己bp
+
+*****
+
+####  walfeds  
+##### 8606#       发表于 2022-8-12 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有这么多教练下场打人的
+
+*****
+
+####  反方向的波  
+##### 8607#       发表于 2022-8-12 23:18
+
+点名一个傀儡rmn，点外卖专用，时不时还被德张拉去一起吃屎
+
+*****
+
+####  adretyu67  
+##### 8608#       发表于 2022-8-12 23:19
+
+rmn可不止能点外卖，还能一起和kky下自走棋。
+
+*****
+
+####  反方向的波  
+##### 8609#       发表于 2022-8-12 23:22
+
+用vr下自走棋是吧
+
