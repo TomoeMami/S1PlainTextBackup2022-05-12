@@ -9112,3 +9112,19 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 为了不影响效果就不剧透你们了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 853#       发表于 2022-8-12 20:36
+
+一发十连五宝的我记得有个抽弓带的好像是真的，还有盘子数作证来着。
+
+*****
+
+####  kiralzb  
+##### 854#       发表于 2022-8-12 20:38
+
+话说有无出过必new池<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

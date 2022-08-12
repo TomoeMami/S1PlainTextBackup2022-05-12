@@ -8252,3 +8252,81 @@ major打完的更新还不知道咋样呢</blockquote>
 
 哇，这娜迦凤凰配合的是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Buttercry  
+##### 8499#       发表于 2022-8-12 20:35
+
+<blockquote>遍体精淋af 发表于 2022-8-12 19:17
+其实前面有一楼说得挺对的，要击溃lgd国外的队伍赢就行，但是要击溃集美，那就必须要有国内的队伍抢走老干 ...</blockquote>
+那也得拿冠军才行，不然就可以效法ti5ti7故事，“换lgd/lfy进决赛就赢了”，然后把送走干瘪的队钉上耻辱柱
+
+*****
+
+####  反方向的波  
+##### 8500#       发表于 2022-8-12 20:35
+
+ 本帖最后由 反方向的波 于 2022-8-12 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038898&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-12 20:28</a>
+哇，这娜迦凤凰配合的是啥啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">两个人都尿了，而且这两个实际上也没那么好配合。这盘张志成还给林靖选个被你楼吐槽过的dp，鉴定为想早点去云顶了
+
+*****
+
+####  是挞不是派  
+##### 8501#       发表于 2022-8-12 20:35
+
+major的阵容是不是没啥意义，还要看v社之后怎么更新？
+
+*****
+
+####  战狼PTSD  
+##### 8502#       发表于 2022-8-12 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我只看了茶确定直邀那一把，野王的土猫真的绝活，后面的都不想看了
+
+*****
+
+####  BallanceHZ  
+##### 8503#       发表于 2022-8-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039018&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 20:35</a>
+两个人都尿了，而且这两个实际上也没那么好配合</blockquote>
+不好配合是真的，但打的也太蠢了
+monet后面一波本体ob更是重量级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8504#       发表于 2022-8-12 20:39
+
+西恩最强的优势路在肉山坑门口那一波太辣了
+
+*****
+
+####  外挂全家脚气  
+##### 8505#       发表于 2022-8-12 20:39
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢
+
+*****
+
+####  名字不乱取  
+##### 8506#       发表于 2022-8-12 20:41
+
+漏油可以参考隔壁的粉圈大战plus，ig的老头们都过去十年了太早了，nb现在是假赛俱乐部，wings直接拆队，要是ti6夺冠的ig，你看老干憋十年无冠怎么吹，一提就是历史荣誉有盾&gt;无盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8507#       发表于 2022-8-12 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+当时LGD打谁都一副很危险的样子，而且还在打很传统的那种四保一，ame玩的还都是巨魔大圣这种有点蹭局势的英雄
+
+而且莫言我记得当时DP玩吐了，后面面8才解放他给他一些权力
+
