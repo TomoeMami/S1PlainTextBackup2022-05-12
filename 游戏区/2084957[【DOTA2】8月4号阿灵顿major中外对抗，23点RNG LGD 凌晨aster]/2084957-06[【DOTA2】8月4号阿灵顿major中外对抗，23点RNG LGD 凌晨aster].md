@@ -9670,3 +9670,21 @@ TIMS这拉比克可以啊
 
 线上是爽了 团战咋打呢
 
+
+
+*****
+
+####  希望之花  
+##### 8660#       发表于 2022-8-13 01:49
+
+NEC大战刚被<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  excalibur--  
+##### 8661#       发表于 2022-8-13 01:50
+
+这个战吼，无敌了卧槽
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
