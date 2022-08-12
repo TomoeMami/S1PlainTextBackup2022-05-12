@@ -8227,3 +8227,28 @@ major打完的更新还不知道咋样呢</blockquote>
 楼友们这展望也太早了，只希望这次不论lgd还是og或者ts输了都别有人说藏阵容打ti就行，别的该吹吹该喷喷
 不过有个没来的秘密那肯定藏住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  refiver  
+##### 8496#       发表于 2022-8-12 20:27
+
+虚假的原友还在帮玄月洗地，真实的原友已经开始劝他转型绝区零主播了
+
+*****
+
+####  夏溪澪mio  
+##### 8497#       发表于 2022-8-12 20:28
+
+秘密石油被的阵容几乎都被lgd用了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BallanceHZ  
+##### 8498#       发表于 2022-8-12 20:28
+
+哇，这娜迦凤凰配合的是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
