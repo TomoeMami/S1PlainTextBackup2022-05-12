@@ -9688,3 +9688,259 @@ NEC大战刚被<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  mkii量产型  
+##### 8662#       发表于 2022-8-13 01:51
+
+ 本帖最后由 mkii量产型 于 2022-8-13 01:53 编辑 
+
+这斯文一波团丢了五个锤压根不上去吃伤害，真的顶，顺便还配合死灵龙大战股加战吼，一个个跑的和狗一样快，钢背叠了两次鼻涕看起来没啥效果一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好玩的，我决定去天梯试试
+
+*****
+
+####  excalibur--  
+##### 8663#       发表于 2022-8-13 01:53
+
+对面管不了这个nec了，只要nec不死这个团不可能赢
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  希望之花  
+##### 8664#       发表于 2022-8-13 01:59
+
+学到了，这手斯文有意思
+
+*****
+
+####  AIDSL  
+##### 8665#       发表于 2022-8-13 01:59
+
+好嘛，战吼+怨灵，黛泽发现薄葬释放难度好高，队友都不怎么掉血。
+
+*****
+
+####  haruhiismer  
+##### 8666#       发表于 2022-8-13 02:00
+
+五号位斯温，dota1战术是吧
+
+*****
+
+####  mkii量产型  
+##### 8667#       发表于 2022-8-13 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57042632&amp;ptid=2084957" target="_blank">excalibur-- 发表于 2022-8-13 01:53</a>
+
+对面管不了这个nec了，只要nec不死这个团不可能赢
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅 ...</blockquote>
+这斯文一个吼加战鼓，钢背一把A基本废了，还不算那个大祭品，这个魔晶斯文可能还真是研究过拿来打钢背的
+
+*****
+
+####  雅朵莉雀  
+##### 8668#       发表于 2022-8-13 02:04
+
+Entity居然啄进前6了，超乎我的想象
+
+西欧预选越来越好看了
+
+*****
+
+####  9时34分  
+##### 8669#       发表于 2022-8-13 02:05
+
+这队打得有意思，茶队危了
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fopinecone  
+##### 8670#       发表于 2022-8-13 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57042406&amp;ptid=2084957" target="_blank">mkii量产型 发表于 2022-8-13 01:10</a>
+草，突然发现我被啊版拉黑了，让我想想我最近yygq过啥了</blockquote>
+可能是喊他版主或者一直点赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  pikamee  
+##### 8671#       发表于 2022-8-13 02:36
+
+ 本帖最后由 pikamee 于 2022-8-13 02:38 编辑 
+
+[https://clips.twitch.tv/SpoopyGe ... at-aPHop2lqsH_kDcBK](https://clips.twitch.tv/SpoopyGenerousOtterWholeWheat-aPHop2lqsH_kDcBK)
+
+笑死我 要素丰富
+
+手刃了北美兄弟后成为北美荣耀的西欧队表示要对干掉自己东南亚队里的北美兄弟的茶队复仇
+
+*****
+
+####  格雷殿下  
+##### 8672#       发表于 2022-8-13 02:58
+
+哇最近玩的日本手游，直接上大当了，上两期卡池有井，结果新一期没有。 我还特意挖矿抽了300下。这下真就生活不如意了。😭
+
+*****
+
+####  43453  
+##### 8673#       发表于 2022-8-13 03:01
+
+三号位拉比克又当二号位玩了啊，看好这把发挥
+
+*****
+
+####  cwlo  
+##### 8674#       发表于 2022-8-13 03:07
+
+BC好强啊
+
+*****
+
+####  希望之花  
+##### 8675#       发表于 2022-8-13 03:07
+
+这TB放养发育怎么这么穷
+
+*****
+
+####  excalibur--  
+##### 8676#       发表于 2022-8-13 03:10
+
+克神好强啊
+
+刚夸了就送了…
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 8677#       发表于 2022-8-13 03:15
+
+wisper从小组赛开始盘盘秀的飞起，赢不赢不好说，快乐是真的快乐
+
+*****
+
+####  excalibur--  
+##### 8678#       发表于 2022-8-13 03:24
+
+5级大根，的确很快乐
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sabbah  
+##### 8679#       发表于 2022-8-13 03:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好呀，1W5的拉比克直接被帕克框到A到死单杀，换我肯定快乐不起来
+
+*****
+
+####  excalibur--  
+##### 8680#       发表于 2022-8-13 03:59
+
+卧槽克神的ta！
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  43453  
+##### 8681#       发表于 2022-8-13 04:03
+
+这版本就是C吃屎23带躺啊，谁的23声音大谁赢
+
+*****
+
+####  mkii量产型  
+##### 8682#       发表于 2022-8-13 04:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊版锐评杰出dota水平太菜
+
+*****
+
+####  希望之花  
+##### 8683#       发表于 2022-8-13 04:26
+
+一巴掌拍死帕克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 8684#       发表于 2022-8-13 04:27
+
+勇猛的狼
+
+*****
+
+####  haruhiismer  
+##### 8685#       发表于 2022-8-13 04:29
+
+这骷髅王一刀一个
+
+*****
+
+####  AkaiSuisei  
+##### 8686#       发表于 2022-8-13 04:59
+
+gpk玩卡尔了
+
+*****
+
+####  テロメア  
+##### 8687#       发表于 2022-8-13 05:30
+
+这比赛根本没有准时一说<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+现在怎么都这么能鳖
+
+*****
+
+####  天堂懵懂人  
+##### 8688#       发表于 2022-8-13 05:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">天天加班啊  要死了
+
+*****
+
+####  两三流浪者  
+##### 8689#       发表于 2022-8-13 05:32
+
+bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 8690#       发表于 2022-8-13 05:32
+
+肌肉dota一转3点金币鳖队，走得不冤
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ninini212  
+##### 8691#       发表于 2022-8-13 05:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该品茶了朋友们
+
+*****
+
+####  雅朵莉雀  
+##### 8692#       发表于 2022-8-13 05:55
+
+茶总不会输给Entity吧...
+

@@ -9275,3 +9275,12 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 铃鹿的泳装卫星算是上天了？不过上面的新闻，有一条是不是写着“那个是斯卡哈，不是我斯卡蒂”？
 
+
+
+*****
+
+####  katun  
+##### 870#       发表于 2022-8-13 04:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">活动用公主刷了几把，感觉这新声优真的是棒读到发指，尤其是每次都要听一遍千和的暗狐，对比下来太残酷了
+
