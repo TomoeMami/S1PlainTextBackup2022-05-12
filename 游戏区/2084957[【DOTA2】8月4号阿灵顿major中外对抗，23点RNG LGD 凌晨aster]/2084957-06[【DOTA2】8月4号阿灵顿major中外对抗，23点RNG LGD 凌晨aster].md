@@ -7928,3 +7928,53 @@ ti9我看了一赛季vg，以为有戏呢，毕竟第一个major是亲手干掉l
 
 那就先试着骗自己 鳖星这回有10%的几率败者组进化吧
 
+
+
+*****
+
+####  名字不乱取  
+##### 8463#       发表于 2022-8-12 19:24
+
+去年我对爱寄寄予厚望，然后今年撸友中单把卡猴t了滚去a级了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 8464#       发表于 2022-8-12 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037360&amp;ptid=2084957" target="_blank">遗尿 发表于 2022-8-12 18:44</a>
+
+笑死，AI画的小美，好面熟啊。</blockquote>
+是王丽莎！
+
+*****
+
+####  IG.430  
+##### 8465#       发表于 2022-8-12 19:29
+
+这小美一股太仓味儿
+
+*****
+
+####  chilno  
+##### 8466#       发表于 2022-8-12 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57037880&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-12 19:21</a>
+
+就是这个理，但今年对cn队的预期 
+
+漏油已经绝望到 相信杜鹏 相信油面 相信泰迪的程度了
+
+那就先试着 ...</blockquote>
+我们阿茶好歹是真赢过
+
+女装C要不切了试试看能不能超进化吧
+
+*****
+
+####  反方向的波  
+##### 8467#       发表于 2022-8-12 19:32
+
+玄月录像有了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+【玄月自己上传直播录像了，带弹幕的。大家耐心看完再评论好吧-哔哩哔哩】 https://b23.tv/DFNJnCS
+
