@@ -8833,3 +8833,22 @@ lily：友情池双up你怕了吗
 满足不了要求的时候肯定是另一套阵容啊，不然难道要手搓NP吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 831#       发表于 2022-8-12 13:35
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033540&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:32</a>
+
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打，最优解“只有一个”摁着刷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 你想多了 我根本不刷无限池
+
+另外你觉得隔壁有几个人刷无限池还会换阵容的  刷出一张满破换个阵容顶天了
+
+还有。。。万一活动没50np礼装怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

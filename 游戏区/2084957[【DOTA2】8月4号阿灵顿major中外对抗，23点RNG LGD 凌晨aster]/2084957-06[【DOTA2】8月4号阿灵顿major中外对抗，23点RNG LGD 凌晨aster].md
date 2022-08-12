@@ -6042,3 +6042,55 @@ X哥金融巨子啊，支棱一把，我想看茶打败决
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">毒、/龙居然是屏蔽词？？？？
 
+
+
+*****
+
+####  逃离二次元  
+##### 8250#       发表于 2022-8-12 13:34
+
+我不管，坚定支持雪碧
+
+
+
+*****
+
+####  Yukino-Yukino  
+##### 8251#       发表于 2022-8-12 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033536&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-12 13:31</a>
+
+啥时候清算9999啊，师母以待</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fg都缩头不播比赛了，怕是清算不到他头上。
+
+*****
+
+####  seki_m  
+##### 8252#       发表于 2022-8-12 13:36
+
+刀刀前两天还在舰长群问处长是什么意思
+
+*****
+
+####  morwhipppo  
+##### 8253#       发表于 2022-8-12 13:37
+
+前几天已经因为ti8清算过9999了，都是葑茖带节奏导致哥哥被骂了
+
+*****
+
+####  seki_m  
+##### 8254#       发表于 2022-8-12 13:41
+
+<img src="https://p.sda1.dev/6/36ea87b47f8a6fd0332ef8a2cf1e35fe/-7b5a8acd43efe9e3.png" referrerpolicy="no-referrer">
+和id绑定在一起的致命失误
+
+*****
+
+####  mkii量产型  
+##### 8255#       发表于 2022-8-12 13:41
+
+ 本帖最后由 mkii量产型 于 2022-8-12 13:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年集美论坛也快20年坛龄了，二十年如一日的死大味只能说友坛引流NB了，但凡其他还活着的互联网老害聚集地各有各的恶臭，但友坛这种真没见过
+
