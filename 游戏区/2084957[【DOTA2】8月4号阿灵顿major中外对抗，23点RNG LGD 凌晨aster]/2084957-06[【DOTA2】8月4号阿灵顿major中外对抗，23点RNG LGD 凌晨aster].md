@@ -5282,3 +5282,119 @@ A：这是关于去年的故事，去年EG帮我们淘汰了竞争对手，今�
 
 是时候清算小茶叶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 8166#       发表于 2022-8-12 10:42
+
+逃离二次元
+昨天下午 1：48
+跪求里番c化龙，里番c你什么时候才能打出来啊
+
+*****
+
+####  chilno  
+##### 8167#       发表于 2022-8-12 10:45
+
+来了来了，我先发为敬
+
+<img src="https://img.saraba1st.com/forum/202208/12/104449scycs25pr7hns7u3.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220812104436.jpg</strong> (264.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:44 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 为了mf注册| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  逃离二次元  
+##### 8168#       发表于 2022-8-12 10:47
+
+<img src="https://img.saraba1st.com/forum/202208/12/104813ga6gpfc33z6yx2y5.gif" referrerpolicy="no-referrer">
+
+<strong>a031.gif</strong> (11.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:48 上传
+
+*****
+
+####  百世诸侯  
+##### 8169#       发表于 2022-8-12 10:48
+
+<img src="https://img.saraba1st.com/forum/202208/12/104800rbxns0ew99t9ut09.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/104809j2737972gsaw94d9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/104812p5522v225m2cmgg5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/104813op10p4cdng0rtle5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 10:48 上传
+
+*****
+
+####  反方向的波  
+##### 8170#       发表于 2022-8-12 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">求求entity把boom干掉吧，再看一次鳖星打boom真的要死人了
+
+*****
+
+####  nowaki  
+##### 8171#       发表于 2022-8-12 10:50
+
+v社：a畜不举盾ti不停办
+
+*****
+
+####  反方向的波  
+##### 8172#       发表于 2022-8-12 10:51
+
+反转了，明天上班，看不到
+
+*****
+
+####  morwhipppo  
+##### 8173#       发表于 2022-8-12 10:52
+
+求求boom上来，我倒是想看看鳖星对东南亚到底是破咒了还是只是单纯fnc血统不纯
+
