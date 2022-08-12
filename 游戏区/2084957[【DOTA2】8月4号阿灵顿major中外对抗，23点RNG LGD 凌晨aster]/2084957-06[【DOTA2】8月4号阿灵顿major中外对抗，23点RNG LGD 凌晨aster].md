@@ -8930,3 +8930,59 @@ v版有个am1专楼，漏油建的堆肥楼<img src="https://static.saraba1st.co
 
 看了复盘才知道茶的团打的有多丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 8571#       发表于 2022-8-12 22:05
+
+<img src="https://img.saraba1st.com/forum/202208/12/220519trz1zev1vrj1ohol.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 22:05 上传
+
+A畜和北美A畜赶紧死在沙滩上吧
+
+*****
+
+####  syndrome2032  
+##### 8572#       发表于 2022-8-12 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040414&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 22:05</a>
+A畜和北美A畜赶紧死在沙滩上吧</blockquote>
+雪碧要是连贯那就是第二个上帝诞生了。
+
+丫头肉这年龄和拿ti时候的上帝有的一拼。
+
+*****
+
+####  战狼PTSD  
+##### 8573#       发表于 2022-8-12 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都愿意看小王在TI拉屎了，怎么看看屎黄色论坛（非S1）就不愿意了
+
+*****
+
+####  名字不乱取  
+##### 8574#       发表于 2022-8-12 22:10
+
+怎么都是小年轻打老头<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 8575#       发表于 2022-8-12 22:11
+
+补昨天rep的时候看到个事，小那家睡进鸟蛋晕应该是稳的，路人都能随便配合的出了什么问题，爬楼好像也没看到提起...
+
+*****
+
+####  弈秋  
+##### 8576#       发表于 2022-8-12 22:11
+
+到底还是年轻人的世界啊
+
