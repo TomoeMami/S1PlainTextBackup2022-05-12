@@ -5156,3 +5156,129 @@ atf这个靠熟练度的酬勤选手遇到版本更新大概率直接吃屎的
 
 其实还是雪碧更稳，脑东京支棱起来后雪碧中期局势很少崩
 
+
+
+*****
+
+####  IsaacWang-R  
+##### 8153#       发表于 2022-8-12 10:31
+
+好久没爬s1楼了，怎么现在跟sg一个太监味
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 莉拉厨| + 1|帮你加回来，清算放过我|
+| 反方向的波|-1|这里屎黄论坛的图比较多|
+
+查看全部评分
+
+*****
+
+####  IG.430  
+##### 8154#       发表于 2022-8-12 10:32
+
+红豆泥果咩那塞
+
+*****
+
+####  Yukino-Yukino  
+##### 8155#       发表于 2022-8-12 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031213&amp;ptid=2084957" target="_blank">星野航 发表于 2022-8-12 10:27</a>
+
+宁愿lgd这个major夺冠好吧
+
+ti夺冠是真遭不住，这逼队还是早点死了好
+
+现在没夺，ti夺了那是真海啸了，现在这 ...</blockquote>
+ti夺冠的话这楼还是搬管人区吧，不然就真水漫金山了。
+
+*****
+
+####  nxmonitor  
+##### 8156#       发表于 2022-8-12 10:33
+
+怎么还有人吹起超哥来了？正常人不应该认为都不行吗？要不要回忆下哈斯卡怎么骑sven脸的，和RNG一个人河道波对面开团的帕克像不像？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 8157#       发表于 2022-8-12 10:36
+
+聊这么多，大萘cos呢
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逸一死吾亦死  
+##### 8158#       发表于 2022-8-12 10:37
+
+<blockquote>IsaacWang-R 发表于 2022-8-12 10:31
+好久没爬s1楼了，怎么现在跟sg一个太监味</blockquote>
+太监论坛有且只有一个那就是屎黄色论坛lga
+
+*****
+
+####  反方向的波  
+##### 8159#       发表于 2022-8-12 10:37
+
+阿灵顿Major淘汰赛第三日，bc 2-1淘汰Fnatic，bc战队的二号位C.smile接受了主舞台的采访。
+
+Q：你们成功为RTZ赢下了比赛，有什么想对北美粉丝说的吗？
+A：这是关于去年的故事，去年EG帮我们淘汰了竞争对手，今年我们把这个人情还给他们。
+
+明年rtz要有秘鲁兄弟了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 8160#       发表于 2022-8-12 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">聊了一页，大奈呢
+
+
+
+*****
+
+####  IsaacWang-R  
+##### 8161#       发表于 2022-8-12 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031321&amp;ptid=2084957" target="_blank">逸一死吾亦死 发表于 2022-8-12 10:37</a>
+太监论坛有且只有一个那就是屎黄色论坛lga</blockquote>
+也对，sg是蛆味
+
+*****
+
+####  名字不乱取  
+##### 8162#       发表于 2022-8-12 10:39
+
+我建议你楼先把昨天相信杜鹏的清算一波，发大奈cos的可以赎罪<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8163#       发表于 2022-8-12 10:40
+
+在翻记录了
+
+*****
+
+####  逃离二次元  
+##### 8164#       发表于 2022-8-12 10:40
+
+🏳🏳🏳🏳
+
+*****
+
+####  北条早苗  
+##### 8165#       发表于 2022-8-12 10:41
+
+是时候清算小茶叶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

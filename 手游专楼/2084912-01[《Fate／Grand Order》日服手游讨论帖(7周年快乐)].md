@@ -8438,3 +8438,24 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 硬要问那只能是5+5
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 801#       发表于 2022-8-12 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57027699&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-8-11 23:56</a>
+
+吃辣那里提到的神父应该不是天草吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+麻婆上班开小差？
+
+*****
+
+####  霧谷藤乃  
+##### 802#       发表于 2022-8-12 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运营报酬可以直接领啊，我还以为满了才给，结果爆了几个小时，损失不少QP
+
