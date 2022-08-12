@@ -8516,3 +8516,15 @@ lily：友情池双up你怕了吗
 
 国服怎么这么多人去抽2宝3宝奥伯龙，是不是被谁忽悠了？
 
+
+
+*****
+
+####  alucardcz  
+##### 808#       发表于 2022-8-12 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57032038&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-12 11:19</a>
+
+国服怎么这么多人去抽2宝3宝奥伯龙，是不是被谁忽悠了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">还能有谁 肯定是？ga啊
+
