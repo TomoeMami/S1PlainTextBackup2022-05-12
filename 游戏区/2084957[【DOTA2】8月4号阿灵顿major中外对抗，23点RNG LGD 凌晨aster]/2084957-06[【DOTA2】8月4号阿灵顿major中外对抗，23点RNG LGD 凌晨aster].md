@@ -7405,3 +7405,90 @@ lgd保持这个状态最多2成举盾 这改版一个月不知道出什么幺蛾
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 8403#       发表于 2022-8-12 17:52
+
+当时下面八都快被集美群情激奋的判死刑了吧 现在就八王有苦衷了么
+
+*****
+
+####  百世诸侯  
+##### 8404#       发表于 2022-8-12 17:53
+
+<img src="https://img.saraba1st.com/forum/202208/12/175330gkiikucfccjh3hyx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:53 上传
+
+今天最后搬一次<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 8405#       发表于 2022-8-12 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036688&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 17:53</a>
+
+今天最后搬一次</blockquote>
+OG倒确实是放大招了，可以预见TS也会放大招
+
+*****
+
+####  莉拉厨  
+##### 8406#       发表于 2022-8-12 17:57
+
+当时确实是有两派的。一派逐帧分析对战房镜头，证明LGD六人确实是被胁迫的，yatoro的俄罗斯寡头爸爸罪大恶极。一派是相信术士8和ruru串通一气，故意放猛犸先输两把，然后反买LGD让2追3吃了波大的(我也想不通到底0：2时候的盘有多大才能补上TI冠亚军的金额差)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8407#       发表于 2022-8-12 17:58
+
+今晚不想看啊，该打打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+一号位刚被二号位宙斯马上要没了吧
+
+*****
+
+####  反方向的波  
+##### 8408#       发表于 2022-8-12 17:58
+
+ 本帖最后由 反方向的波 于 2022-8-12 18:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8409#       发表于 2022-8-12 17:59
+
+再别说了，@dodo_Official do醋和其他四醋多多联动吧。@狗头人_Official 狗醋会写歌，@Ti三冠王ame铁粉 森醋会做集锦，@Ban_Keal_Tanya 雅醋会解说 @天上院凛花 花醋身为皮套人还能一起联动搞通讯录。这下无敌了。​
+不过集美们不行啊，连几百条都没刷到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8410#       发表于 2022-8-12 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036750&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 17:58</a>
+
+你楼有些幻想以后终有一日能在 阳光 下发癫的还是省省吧。干瘪冠的世界线不说了。没冠的世界线里只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这种事情不要啊！
+
+*****
+
+####  IG.430  
+##### 8411#       发表于 2022-8-12 18:02
+
+每日小男友仇恨教育是吧。
+然而小男友是真的屁用没有。
+

@@ -9052,3 +9052,42 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202208/12/175055x2vc2lo5ccz2spmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 847#       发表于 2022-8-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036649&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-12 17:51</a>
+
+推特上好评上万的图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 哪来的旧剑转世 我瞎了
+
+*****
+
+####  霧谷藤乃  
+##### 848#       发表于 2022-8-12 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真有一发11连满宝啊，涨见识了
+
+*****
+
+####  alucardcz  
+##### 849#       发表于 2022-8-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036681&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-12 17:53</a>
+
+还真有一发11连满宝啊，涨见识了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不知道你说的是哪个 如果是女梅林的话 是p的
+
+*****
+
+####  霧谷藤乃  
+##### 850#       发表于 2022-8-12 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036715&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 17:56</a>
+
+虽然不知道你说的是哪个 如果是女梅林的话 是p的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是P的么，想起来之前马娘那边也有人P萝卜数量和养成评价
+
