@@ -6497,3 +6497,14 @@ bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中�
 
 2022-8-12 15:02 上传
 
+
+
+*****
+
+####  seki_m  
+##### 8302#       发表于 2022-8-12 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034487&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-12 15:00</a>
+有个meme图我不敢转</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大不了缩壳到11月
+
