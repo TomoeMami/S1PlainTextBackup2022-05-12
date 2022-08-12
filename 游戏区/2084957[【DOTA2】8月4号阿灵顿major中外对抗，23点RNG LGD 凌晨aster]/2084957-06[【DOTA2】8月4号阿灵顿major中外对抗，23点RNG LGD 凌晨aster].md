@@ -4398,3 +4398,187 @@ https://twitter.com/Team__Spirit/status/1556964740899000320
 
 雪碧小组赛和这个胜者组第一场和今天的状态比起来根本像是两个队伍，这个逼队学东西真的有点快
 
+
+
+*****
+
+####  蛭人  
+##### 8066#       发表于 2022-8-12 09:22
+
+MLGB，度假社是不是去年被集美冲怕了啊，真视界不更新，版本赖皮是吧，GTMD的V社。
+
+*****
+
+####  香蕉芭菲  
+##### 8067#       发表于 2022-8-12 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030072&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-12 09:05</a>
+其实茶是能应对陈的，野王的小鹿算是绝活。但是这版本野王是茶队最重要的先手开团点，除非拿到O猫，不然小 ...</blockquote>
+正确的。目前茶打得最有压迫力的节奏就是24疯狂抓人。这把2是个比较笨的屠夫，再不让4选小小土猫就没法玩了。茶就是选择了一套比较保守阵地比较强的阵容，但是毒狗没人切，无限好发挥，你团战细节等实力不如别人，那就只能输了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  星野航  
+##### 8068#       发表于 2022-8-12 09:23
+
+那显然是继续狂欢
+
+现在笑，到时候哭起来才是好看
+
+lgd拿ti这种事还是不要发生
+
+*****
+
+####  夜光铃  
+##### 8069#       发表于 2022-8-12 09:24
+
+早说了，楼里一大半人撕了皮套下面都会露出lgd粉的样子。现在都在反奶呢
+
+*****
+
+####  Imanmi  
+##### 8070#       发表于 2022-8-12 09:24
+
+相信雪碧
+
+
+
+*****
+
+####  nowaki  
+##### 8071#       发表于 2022-8-12 09:24
+
+这版本三不行就像腰不行 没救
+
+*****
+
+####  一夜秋风袭锦城  
+##### 8072#       发表于 2022-8-12 09:25
+
+老北京现在拿头比老东京啊，本来就不是一个档次的中单。
+
+*****
+
+####  逃离二次元  
+##### 8073#       发表于 2022-8-12 09:26
+
+要是lgd赢了major，还是把你楼移到管人区吧，集美轰入那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 8074#       发表于 2022-8-12 09:26
+
+我宁愿lgd这次major输了然后ti赢回来也不想再看一次经典老番了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 8075#       发表于 2022-8-12 09:28
+
+ 本帖最后由 白色的120 于 2022-8-12 09:35 编辑 
+
+太监论坛集美味太重了，能用卖自己这个角度吹a➗，但你炼金没买活，卖自己的时候不开大？
+<img src="https://pic.imgdb.cn/item/62f5ac9316f2c2beb1d15d44.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 8076#       发表于 2022-8-12 09:28
+
+相信雪碧，OG这个atf说不定什么时候就脑浆起来了，而且还有个misha蠢蠢欲动<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 8077#       发表于 2022-8-12 09:32
+
+og只要atf和油垃圾别一起尿打个鳖茶还是绰绰有余，一块儿尿裤了那就不得不回家了。
+
+*****
+
+####  白色的120  
+##### 8078#       发表于 2022-8-12 09:32
+
+我悟了，a➗反向波高地也是卖自己，怪2345没跟上给技能保住a➗
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 8079#       发表于 2022-8-12 09:32
+
+相信大爹，相信ceb，相信og不动摇<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 8080#       发表于 2022-8-12 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉漏油就像赢球密 谁赢支持谁 只是特别讨厌a➗而已
+
+*****
+
+####  Yukino-Yukino  
+##### 8081#       发表于 2022-8-12 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">只能说相信雪碧，不然就真得缩头到ti了
+
+*****
+
+####  IG.430  
+##### 8082#       发表于 2022-8-12 09:35
+
+怎么说呢，毛豆和狗鸡都会联合起来期盼888大输特输
+
+*****
+
+####  一夜秋风袭锦城  
+##### 8083#       发表于 2022-8-12 09:35
+
+呃呃，怎么还有坛友抓着反向波说事的。虽然不是很想再时光倒流个被聊烂的ti8，但ti8g4真不是输在那个反向波而是输在a畜表演型人格cosplay猴子杂技出装最后输出不如一个海民啊。
+
+*****
+
+####  nowaki  
+##### 8084#       发表于 2022-8-12 09:36
+
+妮让奇迹鳖来打major，窝肯定卜支持别的队。
+
+*****
+
+####  反方向的波  
+##### 8085#       发表于 2022-8-12 09:36
+
+ 本帖最后由 反方向的波 于 2022-8-12 09:37 编辑 
+
+感觉bc还是有一套自己赢比赛的怪逻辑的，昨天克神居然玩了个大屁股还挺有意思，666和gpk两个🐷头如果被拖进去真的要翻车
+
+*****
+
+####  白色的120  
+##### 8086#       发表于 2022-8-12 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030457&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-12 09:35</a>
+呃呃，怎么还有坛友抓着反向波说事的。虽然不是很想再时光倒流个被聊烂的ti8，但ti8g4真不是输在那个反向波 ...</blockquote>
+只是举个典型例子罢了，a➗决赛小丑表演可太多了，像ti10拍拍熊不开bkb被血棘炸死这种类似场面，不止一次两次
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 8087#       发表于 2022-8-12 09:41
+
+vp过bc还是应该没啥问题。
+gpk好像在采访里说过目标前六，不出意外估计结果差不多。
+
+不过我挺搞不懂，癫痫小子和pure先后跑路，cis也找不到mdy的1号位or天才少年结果还是抓了666?
+
