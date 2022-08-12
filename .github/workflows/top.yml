@@ -3,7 +3,8 @@
 
 name: get_a_thread_id
 
-#on:
+on:
+  workflow_dispatch
 #  push
 jobs:
   S1TopThreads:
