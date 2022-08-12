@@ -10192,3 +10192,37 @@ suzuya的冰龙还菜？明明是tobi谜团的问题
 
 —— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  反方向的波  
+##### 8722#       发表于 2022-8-13 07:22
+
+nm，这谜团又是tobi的？<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zkc1991  
+##### 8723#       发表于 2022-8-13 07:25
+
+ent好喜欢拿无视魔免的控制<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 8724#       发表于 2022-8-13 07:25
+
+这队是多喜欢谜团啊，抓着选
+
+*****
+
+####  a1370303  
+##### 8725#       发表于 2022-8-13 07:27
+
+这把野王的拉比克可以偷的好技能很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
