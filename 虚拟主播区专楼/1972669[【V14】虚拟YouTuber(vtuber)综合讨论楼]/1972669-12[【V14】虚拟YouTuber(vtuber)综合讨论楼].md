@@ -4226,3 +4226,12 @@ vspo四人＋aim组排valo
 
 值了呀，蓝莓
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 16880#       发表于 2022-8-12 23:50
+
+在nhk上面把daze唱成这样算不算公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
