@@ -6337,3 +6337,33 @@ ti9算的话，ti7盾牌也可以加
 
 bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中单三代回家局光法
 
+
+
+*****
+
+####  百世诸侯  
+##### 8284#       发表于 2022-8-12 14:23
+
+杰畜今早直播茶队时喷食蚁兽（对应小蚂蚁）是顺风虚张声势，逆风地雷滚滚，这以后都是要被清算的
+
+当然最点睛之笔的是弹幕补充了一句食蚁兽年年TI前魔晶“卷土重来”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 8285#       发表于 2022-8-12 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034110&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 14:23</a>
+
+杰畜今早直播茶队时喷食蚁兽（对应小蚂蚁）是顺风虚张声势，逆风地雷滚滚，这以后都是要被清算的
+
+当然最点 ...</blockquote>
+甲（假）盾冲击
+
+*****
+
+####  cobymar  
+##### 8286#       发表于 2022-8-12 14:32
+
+漏油们能不能少转点太监论坛的弱智贴了，我就是嫌太监论坛太弱智TI10打完以后就没点进去过，结果专楼里每天都有太监论坛传话筒呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

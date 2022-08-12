@@ -3915,3 +3915,34 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看战报好精彩。
 
+
+
+*****
+
+####  rzrbtk  
+##### 16853#       发表于 2022-8-12 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003525&amp;ptid=1972669" target="_blank">IL282 发表于 2022-8-10 12:42</a>
+
+underaged chinks 是这样的，世界闻名了都
+
+—— 来自 OnePlus IN2025, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+主要是骂战两边都给我一种“啊啊啊你不要跟她跳舞啊啊啊”感，liver之间互相锐评/云/串门我倒是觉得挺好的...
+
+syl，已经开始无法预测的命运之舞台了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">，替虹高祈福
+
+*****
+
+####  Ketestrait  
+##### 16854#       发表于 2022-8-12 14:24
+
+豆猫完全压制住了社长，加贺美大附危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16855#       发表于 2022-8-12 14:25
+
+加賀美大附属高校？
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
