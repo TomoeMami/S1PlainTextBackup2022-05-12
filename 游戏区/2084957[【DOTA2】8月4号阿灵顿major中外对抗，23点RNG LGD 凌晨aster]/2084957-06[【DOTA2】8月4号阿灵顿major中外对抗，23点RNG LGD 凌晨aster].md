@@ -7492,3 +7492,115 @@ OG倒确实是放大招了，可以预见TS也会放大招
 每日小男友仇恨教育是吧。
 然而小男友是真的屁用没有。
 
+
+
+*****
+
+####  血蹄  
+##### 8412#       发表于 2022-8-12 18:04
+
+看到do子这种没啥盒信息，出道又很纯良素人的皮套人都能被集美们df羞辱，真的是不知道说啥好了
+
+*****
+
+####  iriyano  
+##### 8413#       发表于 2022-8-12 18:05
+
+我是感觉大师赛以来萧瑟有点意识到四个队友是他爹了啊
+如果面八和/TI都能保持这个意识那确实是有机会
+
+*****
+
+####  为了mf注册  
+##### 8414#       发表于 2022-8-12 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036835&amp;ptid=2084957" target="_blank">血蹄 发表于 2022-8-12 18:04</a>
+
+看到do子这种没啥盒信息，出道又很纯良素人的皮套人都能被集美们df羞辱，真的是不知道说啥好了 ...</blockquote>
+别怕，df羞辱只是污蔑，处长那皮套女友以前好像追求过一个撸狗主播，直接被踢走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  血蹄  
+##### 8415#       发表于 2022-8-12 18:07
+
+希望集美们放过zdgy，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8416#       发表于 2022-8-12 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">屎黄色论坛（非S1）能不能跟皮套人一起死啊
+
+*****
+
+####  morwhipppo  
+##### 8417#       发表于 2022-8-12 18:09
+
+哈哈哈哈，一进集美论坛一个标题，ti10的失利让集美团体里的nt数量下降了哈哈哈
+
+*****
+
+####  IG.430  
+##### 8418#       发表于 2022-8-12 18:10
+
+就是沈逸哥哥的有点意思型择人而噬罢了。
+
+"""
+你还可怜do畜，有点意思，露出蚂脚了吧。
+"""
+
+*****
+
+####  聚散浮云  
+##### 8419#       发表于 2022-8-12 18:10
+
+怎么进来又是超级吃屎论坛，退楼了
+
+*****
+
+####  反方向的波  
+##### 8420#       发表于 2022-8-12 18:11
+
+退楼了
+
+*****
+
+####  名字不乱取  
+##### 8421#       发表于 2022-8-12 18:11
+
+我觉得你楼的几位搬屎大师现在就应该准备干活了，等假赛潮水来袭再把现在的反假赛言论丢回去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+说不定刀塔之神在无数平行宇宙都无法赦免lgd的罪过<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8422#         楼主| 发表于 2022-8-12 18:12
+
+df羞辱是什么
+
+*****
+
+####  吃货红毛  
+##### 8423#       发表于 2022-8-12 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这要什么盘才配送掉TI冠军的奖金和各种附加价值啊 随便想想都知道不可能 这也能一直念到现在吗
+
+*****
+
+####  反方向的波  
+##### 8424#       发表于 2022-8-12 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036936&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-12 18:12</a>
+df羞辱是什么</blockquote>
+荡 妇吧
+
+*****
+
+####  seki_m  
+##### 8425#       发表于 2022-8-12 18:12
+
+集美能不能今晚把do子开了
+
