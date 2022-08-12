@@ -8330,3 +8330,102 @@ monet后面一波本体ob更是重量级<img src="https://static.saraba1st.com/i
 
 而且莫言我记得当时DP玩吐了，后面面8才解放他给他一些权力
 
+
+
+*****
+
+####  BallanceHZ  
+##### 8508#       发表于 2022-8-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+当时bian还在偿还形态，整个队只会打4保1还打的很难看，不如说打到第三超预期了
+
+*****
+
+####  thistimeforlife  
+##### 8509#       发表于 2022-8-12 20:43
+
+茶是个线优率很高的队，而这2把经济就几乎没怎么领先过
+
+戴泽冰龙蓝猫这些绝活一ban，张志成就没想明白怎么对付陈和电棍，还点了个xxs永远一股怪味 就算赢boom也是极其吃力的dp
+
+老东京第二把完美发挥死死按住茶负责起节奏的24，打团的配合也是稀碎。
+
+鳖星这2把就是全方位被撵
+
+*****
+
+####  遍体精淋af  
+##### 8510#       发表于 2022-8-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039106&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 20:39</a>
+
+虽然基本不参与这类话题，那么去年新加坡MAJOR IG败决赢了LGD进决赛之后集美是个什么情况呢 ...</blockquote>
+“谁上都是被eg吊打”
+
+*****
+
+####  Keynes  
+##### 8511#       发表于 2022-8-12 20:44
+
+<[blockquote>杂谈] 太监们真有东厂内味儿了  
+
+那些年，没有夸过痨疳瘪的人，我们要一个接一个的清算。
+
+茶队，有了突破，该赏，但是太后有令，何公公已经在yy传达圣旨了，夸茶队123可以，其他人不行。
+
+rng，丢人！该罚，没收ana封号，鉴于是外宾其他免了，问斩猪霉，赐尿kaka，xnova打500大板。
+
+玄月，给战犯霉鳖求情，对新进厂的出神不敬，重罚！收回将军头衔，贬为畜类。
+
+完美实x牲，抹黑南蛮大将军，洗白霉鳖，重罚！开除工作，贬为畜类。
+
+谭雅，妖言惑众，扰乱主帅军心，诽谤朝廷，重罚！游街示众，午时凌迟处死。
+
+dodo，侮辱主帅姓名，重罚！开除工作，贬为畜类。
+
+皮球，过大于功，罚！贬为畜类，留队查看。
+
+何公公，护帅及时，忠心耿耿，大赏！濡水三盆，鳖壳两副，特赐进宫侍寝。
+
+出神，秉公办案，及时揪出了朝内两大奸臣，重重有赏！赐濡水一盆，太监五个，暂任东厂代提督！
+
+nga，max，pilip，护住有功，赏！得生活如意奖。
+
+严正警告sg，草寇流民，乌合之众，速速投降，勿谓言之不预！</blockquote>
+
+FC16E417-0B98-437D-929F-6A7607F35191.gif
+(11.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/204355r3sy85s0x58b3oy4.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8512#       发表于 2022-8-12 20:44
+
+还好败决ig赢了，不然干瘪输给秘密后卡狗电梯间旁对他们说的那句“兄弟们牛啊牛啊”要被拉出来鞭尸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8513#       发表于 2022-8-12 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039166&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-12 20:43</a>
+茶是个线优率很高的队，而这2把经济就几乎没怎么领先过
+
+戴泽冰龙蓝猫这些绝活一ban，张志成就没想明白怎么 ...</blockquote>
+节奏被爆团战也不能打的这么犯罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 8514#       发表于 2022-8-12 20:50
+
+那问题来了 有不是集美的lgd粉吗
+
