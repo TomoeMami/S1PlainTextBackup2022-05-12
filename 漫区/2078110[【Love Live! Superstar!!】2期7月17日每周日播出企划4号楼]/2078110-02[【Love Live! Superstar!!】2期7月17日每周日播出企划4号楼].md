@@ -9727,3 +9727,23 @@ v要皮套丑可不行
 由手机上传
 2022-8-12 15:22 上传
 
+
+
+*****
+
+####  adw667  
+##### 2448#       发表于 2022-8-12 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029688&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-12 08:34</a>
+
+二期生从公布到现在就参加了几场fmt，动画开播前大家连她们唱歌什么音色都不知道，现在动画播了4话，新歌也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">一期动画播放之前那个外景力度简直把二期私下团建吊起来打
+
+*****
+
+####  adw667  
+##### 2449#       发表于 2022-8-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034748&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-12 15:22</a></blockquote>
+酸菜鱼三期什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
