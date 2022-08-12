@@ -5651,3 +5651,17 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 
 连击刀编辑
 
+
+
+*****
+
+####  星野航  
+##### 8203#       发表于 2022-8-12 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57032410&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-12 12:53</a>
+猴爹和老东京，估计互相看法和当年路副处和顶儿子一样，猴爹心中的世一二一直是nisha，对老东京不能说是不 ...</blockquote>
+打中没点脾气也说不过去嘛，而且老东京那把式，对线基本下风的
+再加上头上摘走一盾，必然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
