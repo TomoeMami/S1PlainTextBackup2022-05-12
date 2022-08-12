@@ -10225,3 +10225,14 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 
 我好像表达错意思了草，我想说的是因为之前休息了很久，积累了不少工作，个人和企划的工作安排也打乱了。这个广播比较方便就给鱼安排了。
 
+
+
+*****
+
+####  愛さ実  
+##### 2492#       发表于 2022-8-13 01:25
+
+反正从二期播出开始就没感受到企划对星的用心，就这企划还想爆开巡回收米，做梦去吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
