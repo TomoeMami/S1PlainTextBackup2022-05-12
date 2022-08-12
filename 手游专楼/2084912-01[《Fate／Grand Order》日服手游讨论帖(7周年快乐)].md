@@ -8537,3 +8537,161 @@ lily：友情池双up你怕了吗
 
 国服感觉对泛用这事儿入魔了，实际上奥当打手掏出来也没几次，且都有更优的组队
 
+
+
+*****
+
+####  exiaexa  
+##### 810#       发表于 2022-8-12 12:48
+
+ 本帖最后由 exiaexa 于 2022-8-12 12:59 编辑 
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手
+
+我先说一句这个阵容下2宝奥伯龙伤害是完全没问题的，别说什么伤害不够让人笑话
+
+问题在于，不是说这个阵容不行，而是你先要找到好友的奥伯龙
+
+其次你要找到好友带对礼装的奥伯龙
+
+最后你要确定你的好友也是个高宝
+
+除非都是一个群的不然效率太低了
+
+日服这边好友除了C阶都是乱七八糟，你要抓个暗狐狸都难，根本没法定制环境
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  芭德薇  
+##### 811#       发表于 2022-8-12 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手</blockquote>
+这次活动没几个挂暗狐的，我已经改成双公主奥伯龙队了，趁这次活动有倍卡多爽几把大腿的5宝……
+
+*****
+
+####  vacuumsword  
+##### 812#       发表于 2022-8-12 12:58
+
+昨天的弓本我拿了好友的五宝奥试了双奥妖兰。自buff第二面的6w虎头车居然打不死。无敌还限制了必须先垫刀，属实不行。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 813#       发表于 2022-8-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033047&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:48</a>
+
+因为国服有一个很出名的阵容
+
+双奥伯龙+上三带领导力的自充打手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">人家国服效率厨不是经常为了借好友把好友删光的吗
+
+*****
+
+####  exiaexa  
+##### 814#       发表于 2022-8-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033148&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 12:58</a>
+
+人家国服效率厨不是经常为了借好友把好友删光的吗</blockquote>
+所以说日服根本没法用啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 815#       发表于 2022-8-12 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033130&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-8-12 12:55</a>
+
+这次活动没几个挂暗狐的，我已经改成双公主奥伯龙队了，趁这次活动有倍卡多爽几把大腿的5宝…… ...</blockquote>
+无所谓，我从来只看礼装不看人，挂条狗上去我也能用
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 816#       发表于 2022-8-12 13:00
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033157&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 12:58</a>
+
+所以说日服根本没法用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也不是什么泛用牛比阵容   要是真的强日服也会有这种操作的（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且奥师傅那边刚落地。你说的。。。不都是云出来的
+
+*****
+
+####  exiaexa  
+##### 817#       发表于 2022-8-12 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033170&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:00</a>
+
+这也不是什么泛用牛比阵容   要是真的强日服也会有这种操作的（</blockquote>
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班杨这种玩意儿
+
+就奇怪到让你觉得这群人怕不是开两个号对刷
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 818#       发表于 2022-8-12 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033187&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:01</a>
+
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能说这些的人其实什么都没有 是标准的云玩家
+
+*****
+
+####  alucardcz  
+##### 819#       发表于 2022-8-12 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033187&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:01</a>
+
+国服的好歹给你算了克制
+
+日服的泛用阵容是更奇怪的玩意儿，完全靠高宝具高等级压过去
+
+什么双暗狐狸，双班 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等双班扬是什么鬼  先不说0自充 就这宝具伤害能刷本？
+
+*****
+
+####  exiaexa  
+##### 820#       发表于 2022-8-12 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033251&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:09</a>
+
+等等双班扬是什么鬼  先不说0自充 就这宝具伤害能刷本？</blockquote>
+暗狐狸+120班杨+120班杨
+
+50充礼装的无限池阵容
+
+最后一个班杨全buff一脚能踩20+w
+
+是不是觉得跟神经病一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

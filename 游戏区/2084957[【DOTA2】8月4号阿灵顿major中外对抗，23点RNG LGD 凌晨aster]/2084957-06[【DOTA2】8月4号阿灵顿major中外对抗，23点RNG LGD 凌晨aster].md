@@ -5907,3 +5907,33 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 
 A圣虎牙直播越做越好了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何来清算之说，李旎还时不时往我首页推送他录像
 
+
+
+*****
+
+####  沈淮  
+##### 8234#         楼主| 发表于 2022-8-12 13:05
+
+好强，这蚂蚁是不是出连击刀了
+
+*****
+
+####  ArowRocher  
+##### 8235#       发表于 2022-8-12 13:05
+
+ 本帖最后由 ArowRocher 于 2022-8-12 13:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033079&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 12:50</a>
+也就是想替超哥说话 
+
+讲道理在这个时间段这已经是大问题了，实习生还打算替两个一起讲话呢，现在已 ...</blockquote>
+玄月怎么也当过超哥队友（超哥记不记得这人另说），想护短袒护自己朋友这动机完全可以理解，虽然确实是说错了。
+
+实习生那个莫言的滚滚不及现代滚滚的皮毛作用比超哥小，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 8236#       发表于 2022-8-12 13:07
+
+好想快进到10月底清算集美，或者化身集美清算楼友
+
