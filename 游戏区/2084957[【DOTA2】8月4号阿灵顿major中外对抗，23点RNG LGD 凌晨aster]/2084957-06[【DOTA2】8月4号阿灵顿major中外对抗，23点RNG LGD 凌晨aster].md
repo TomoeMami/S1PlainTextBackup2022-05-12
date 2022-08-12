@@ -7238,3 +7238,112 @@ xg大概率没了，拒绝者看直播就知道明显没信心了，还有老鸡
 
 其实就是单纯的lgd这支队伍相对算是适应版本速度偏差的。找到了这版本假三真一的打法后就自然会调整成这个样子。
 
+
+
+*****
+
+####  excalibur--  
+##### 8387#       发表于 2022-8-12 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话感觉还是云玩家太多了的问题，b站现在已经有两个做解析视频的了，杰出负责解析比赛大方向走势，辉耀计划负责扣团战细节，看懂的基本都能回过味了，今年ti比去年难太多了。
+而且很多人都开始想和大鞭哥抽（电棍）鞭子了，扣水的反而没有那么多了。
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 8388#       发表于 2022-8-12 17:36
+
+引流撸狗是这样的呀，指望这群小学生云玩家能看懂比赛？还不是跟着大流捧踩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然lgd一旦输了，这群人绝对会化身喷子狂喷，就仿佛自己从来没吹过lgd一样，所谓粉 红神 神二相性也是一个道理。这群人在乎刀圈环境会怎样吗？不，他们只是享受站在“正义”制高点喷别人的快感<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+所以才说引撸狗的ruru和wsc是最该司马的
+
+*****
+
+####  尖刺外婆  
+##### 8389#       发表于 2022-8-12 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036366&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-12 17:28</a>
+我建议漏油众筹整个s1-sg联合队，不然接下来就是大水-假赛二相态了</blockquote>
+漏油都是老傻狗，不用联合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 8390#       发表于 2022-8-12 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036338&amp;ptid=2084957" target="_blank">桐道悠 发表于 2022-8-12 18:25</a>
+今年至少到大师赛之前，么么憋的状态都是非常差的，那时候面八思路也有问题，lgd进攻端全靠xinq。xinq一旦 ...</blockquote>
+本来的呀，所以说这版本只要faith bian不辣，一般都能过渡到节奏稳定的时间段
+而且版本后期萧瑟主动参战的频率可比原来高多了，明显是团队调整过的
+就看阀门更新不更新了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  战狼PTSD  
+##### 8391#       发表于 2022-8-12 17:40
+
+屎黄色论坛（非指S1）又有打脸假赛论坛的帖子了，底下还有一堆太监打滚换角度骂他
+[https://ngabbs.com/read.php?tid=33042739](https://ngabbs.com/read.php?tid=33042739)
+
+坐看多久被封号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8392#       发表于 2022-8-12 17:40
+
+<img src="https://img.saraba1st.com/forum/202208/12/173955tv133fhzh1z2mrrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:39 上传
+
+笑的我肚子疼，集美真的上大分，假赛论现在洗成爱国心了各位
+
+*****
+
+####  smlszh  
+##### 8393#       发表于 2022-8-12 17:40
+
+lgd保持这个状态最多2成举盾 这改版一个月不知道出什么幺蛾子呢
+
+何况这次major能不能拿下还不好说呢  雪碧可是状态来了
+
+*****
+
+####  白野苍衣  
+##### 8394#       发表于 2022-8-12 17:41
+
+想啥呢，今年LGD绝无可能夺冠，大概率又当一次决赛背景板罢了。
+
+*****
+
+####  战狼PTSD  
+##### 8395#       发表于 2022-8-12 17:41
+
+<blockquote>我到现在也坚持假赛
+
+因为很多疑点还没得到合适的答复
+
+但也不会到处宣扬带节奏</blockquote>
+理智太监，泪目了
+[https://ngabbs.com/read.php?tid=33042739](https://ngabbs.com/read.php?tid=33042739)
+
+*****
+
+####  名字不乱取  
+##### 8396#       发表于 2022-8-12 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036476&amp;ptid=2084957" target="_blank">尖刺外婆 发表于 2022-8-12 17:37</a>
+
+漏油都是老傻狗，不用联合</blockquote>
+傻瓜没多少油水，加个s1冠名万一二狗投资了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
