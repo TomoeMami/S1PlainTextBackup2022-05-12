@@ -6676,3 +6676,49 @@ dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.g
 
 就差一手畅想历史地位，还有小组赛开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 8323#       发表于 2022-8-12 16:13
+
+所以还是复读那句话，dota2不装了是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 8324#       发表于 2022-8-12 16:15
+
+集美今年比去年多了一手乱咬人，去年最多清算老队友，今年你要敢洗霉皇或者说处长的不是，完美实习生和玄月就是榜样
+
+*****
+
+####  azccc52  
+##### 8325#       发表于 2022-8-12 16:17
+
+dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">管人痴难受住了呀
+
+*****
+
+####  12481632  
+##### 8326#       发表于 2022-8-12 16:17
+
+管人痴太多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8327#       发表于 2022-8-12 16:19
+
+管人痴爬啊，和王处一起死
+
+*****
+
+####  战狼PTSD  
+##### 8328#       发表于 2022-8-12 16:20
+
+现在这氛围是真哈人，去年好歹是二次元MAJOR夺冠了才畅想，现在MAJOR都没打完就发大水了
+
