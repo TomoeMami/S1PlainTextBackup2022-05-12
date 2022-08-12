@@ -9747,3 +9747,15 @@ v要皮套丑可不行
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034748&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-12 15:22</a></blockquote>
 酸菜鱼三期什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 2450#       发表于 2022-8-12 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035182&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-12 15:58</a>
+
+一期动画播放之前那个外景力度简直把二期私下团建吊起来打</blockquote>
+对对对，一期动画播放之前，最起码有两个很有趣的外景系列，还有一堆生放，别的不说最起码让大家对五个人很熟悉，现在二期这几位……
+

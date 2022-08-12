@@ -6633,3 +6633,46 @@ lgd有没有处长，也要骂。
 
 超级集美论坛有个贴我蚌埠住了，号召集美和干瘪粉学习撸狗的皇杂去搞真正的饭圈化去冲完美要完美彻底不能再提“处长”这个词并且管制A黑，响应者多如牛毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一幕我见过，只不过比去年超级假赛论坛更加提纯了
 
+
+
+*****
+
+####  遍体精淋af  
+##### 8318#       发表于 2022-8-12 16:02
+
+冠夹现在出盘子还来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8319#       发表于 2022-8-12 16:11
+
+45  55吧
+
+*****
+
+####  thistimeforlife  
+##### 8320#       发表于 2022-8-12 16:11
+
+按今年这清算速度，马上就到更有节目效果的人身上了，谁也别想跑，人人开牧场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 8321#       发表于 2022-8-12 16:12
+
+dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 8322#       发表于 2022-8-12 16:12
+
+看了一堆帖，有去年8,9月份那感觉了
+
+味道太对了
+
+就差一手畅想历史地位，还有小组赛开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -4040,3 +4040,21 @@ lz：赢社长并且豆猫不被血洗
  <blockquote>Male character VTuber Auditions for <strong>English-speaking Gamers</strong> open now!</blockquote>
 你这图上五个b哪个称得上Gamer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 16864#       发表于 2022-8-12 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男里能找出一个正经gamer吗我怎么不知道
+
+应该走的就不是这个路数吧
+
+*****
+
+####  fastary  
+##### 16865#       发表于 2022-8-12 16:10
+
+只要平时直播打游戏就是gamer
+
