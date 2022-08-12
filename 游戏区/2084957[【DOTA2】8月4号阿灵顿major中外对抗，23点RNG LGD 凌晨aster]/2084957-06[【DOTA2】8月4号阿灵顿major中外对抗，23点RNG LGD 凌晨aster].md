@@ -4910,3 +4910,151 @@ https://bbs.saraba1st.com/2b/thread-2064223-2-1.html
 
 xg可惜了，本来还想看看lou会不会尿裤呢
 
+
+
+*****
+
+####  haruhiismer  
+##### 8125#       发表于 2022-8-12 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030956&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 10:11</a>
+微博关注的大奈coser怎么也关注了杜鹏，脑浆不够用的原因找到了</blockquote>
+细说大奈
+
+*****
+
+####  蛭人  
+##### 8126#       发表于 2022-8-12 10:14
+
+细说大奶，塞垃圾前几年和魔王也没下文了啊。
+
+*****
+
+####  a1370303  
+##### 8127#       发表于 2022-8-12 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030956&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 10:11</a>
+
+微博关注的大奈coser怎么也关注了杜鹏，脑浆不够用的原因找到了</blockquote>
+细嗦大奈coser<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 8128#       发表于 2022-8-12 10:14
+
+细嗦，最好来点图
+
+*****
+
+####  Yukino-Yukino  
+##### 8129#       发表于 2022-8-12 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030928&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-12 10:09</a>
+
+rng终究是带个语言不通的替补打比赛，拿major时候的表现来贬低dpc的成绩过分了，不会真有人认为ana比ghost ...</blockquote>
+真的没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ana那tb狂羊狂的操作也有人洗不接锅的，和链子哥那时候一模一样的味道。
+
+*****
+
+####  我爱撩菜  
+##### 8130#       发表于 2022-8-12 10:15
+
+漏油说起**就来劲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，来点**
+
+
+
+*****
+
+####  白色的120  
+##### 8131#       发表于 2022-8-12 10:17
+
+ 本帖最后由 白色的120 于 2022-8-12 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031014&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-12 10:15</a>
+真的没有吗ana那tb狂羊狂的操作也有人洗不接锅的，和链子哥那时候一模一样的味道。 ...</blockquote>
+集美通过吹ana，贬低rng235，岁月史书都是ame带这235进的ti决赛，实际上ana现在连鹏子都不如
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 8132#       发表于 2022-8-12 10:17
+
+邬梦娜整容把自己整崩了，刘嘉俊中年发福颜也崩了，令人感慨
+
+*****
+
+####  蛭人  
+##### 8133#       发表于 2022-8-12 10:18
+
+所以大奶呢？
+
+*****
+
+####  很久就在那边l  
+##### 8134#       发表于 2022-8-12 10:18
+
+已经直邀的队给同赛区操作送分这还用说吗，这就是dpc傻逼的地方
+
+*****
+
+####  我爱撩菜  
+##### 8135#       发表于 2022-8-12 10:19
+
+别奶了，看ts越打越好，说不定连坐ti11呢，感觉版本不大改，ti决赛还是这3队。 别看现在都是打赢，估计互相胜负也就55 /64开，一次失利就现形了
+
+*****
+
+####  acejoe  
+##### 8136#       发表于 2022-8-12 10:21
+
+小娜迦难道不是中期收割落单酱油，大招打团上高么？
+不知道为啥中期那么强推塔节奏那么慢，对野区压制那么差。
+
+*****
+
+####  夏溪澪mio  
+##### 8137#       发表于 2022-8-12 10:21
+
+那年今日
+<img src="https://p.sda1.dev/6/004535b4dd4384265ef8b961e788f354/CMP_20220812102054648.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 8138#       发表于 2022-8-12 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031040&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-12 10:17</a>
+
+集美通过吹ana，贬低rng235，实际上ana现在连鹏子估计都不如
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个打了几年职业没进过ti，一个复出mdy打替补也打不出成绩。还有拿ti89冠军说事的，我寻思fgti2冠军也没见有人少喷。承认厨子太久不打水平也不行了有这么难么。
+
+*****
+
+####  chilno  
+##### 8139#       发表于 2022-8-12 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030956&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 10:11</a>
+
+微博关注的大奈coser怎么也关注了杜鹏，脑浆不够用的原因找到了</blockquote>
+懂了，是女装C为了让大家不去打野于是昨晚自己cos成大奶妹妹和四个队友一起玩了一夜
+
+*****
+
+####  nerugigannte  
+##### 8140#       发表于 2022-8-12 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天我还在max看到有人发了一大段，开头是历史会证明掀背怎么样怎么样
+
+*****
+
+####  Cantha  
+##### 8141#       发表于 2022-8-12 10:22
+
+你们怕啥，LGD就算major夺冠了，冰蛤蟆一个大更新把小八打出原型，TI不就没戏了
+
