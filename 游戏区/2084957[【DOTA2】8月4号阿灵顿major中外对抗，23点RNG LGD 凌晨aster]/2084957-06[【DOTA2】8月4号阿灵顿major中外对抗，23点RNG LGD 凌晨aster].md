@@ -10079,3 +10079,36 @@ bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017
 
 midlightone被冲了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  轮太  
+##### 8709#       发表于 2022-8-13 06:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043149&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-13 06:45</a>
+我发现ET好像很喜欢玩非常规C啊...</blockquote>
+他们队没C
+一号位签证挂了找了个打三的替补
+
+*****
+
+####  mkii量产型  
+##### 8710#       发表于 2022-8-13 06:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xnova运气真好，最菜冰龙的位置有人和他抢了
+
+*****
+
+####  bishbashbosh  
+##### 8711#       发表于 2022-8-13 06:59
+
+狗屎冰龙，xnova，你不是最差的！
+
+*****
+
+####  acalephs  
+##### 8712#       发表于 2022-8-13 07:00
+
+大老师发话了，100-0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
