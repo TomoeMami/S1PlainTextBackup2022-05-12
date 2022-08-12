@@ -6884,3 +6884,51 @@ ti狠狠吃屎
 
 今年局势可比去年差多了，去年至少LGD IG在TI 8强前都是砍瓜切菜的强，今年这OG TS肉眼可见的能和LGD打一打，然后还没有其他中国队看上去有很强的实力
 
+
+
+*****
+
+####  名字不乱取  
+##### 8348#       发表于 2022-8-12 16:45
+
+要让lgd输，那谁来都行，要让集美输，那得找个cn队暴扣才行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+当然，漏油昨天指望杜鹏确实离谱，鹏子离加封号大概差个ti决赛日的表演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8349#       发表于 2022-8-12 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等我ngm杀出预选
+
+*****
+
+####  12481632  
+##### 8350#       发表于 2022-8-12 16:46
+
+秘密换了瑞士鲁迅以后也算是夺冠热门，只要别经典ti软脚虾。
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 8351#       发表于 2022-8-12 16:48
+
+讲真，你们期待国外队伍崛起，不如期待四赵云偿还.....凌晨打OG的G3，两边交换，那og是一点机会都没有的。只能说赵云们太屌了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8352#         楼主| 发表于 2022-8-12 16:50
+
+桀桀，扭曲的集美也太多了，还好我是鉴定的干瘪黑
+
+*****
+
+####  thistimeforlife  
+##### 8353#       发表于 2022-8-12 16:51
+
+鹏子还真可以讲讲ti7【最强季军lfy】的故事了，只能说水厂系的硬实力真的永远没输过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
