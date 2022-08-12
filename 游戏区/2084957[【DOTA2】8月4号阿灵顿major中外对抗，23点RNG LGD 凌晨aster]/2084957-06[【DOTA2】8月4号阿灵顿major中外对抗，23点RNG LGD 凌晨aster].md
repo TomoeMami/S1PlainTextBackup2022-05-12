@@ -5590,3 +5590,30 @@ CN Dota亡在今年了吧 Wings是最后一个盾了</blockquote>
 
 傻逼赛程克神在明天两点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 8196#         楼主| 发表于 2022-8-12 11:23
+
+今年漏油戏多的有点像去年的漏油，虽然不是一批人
+
+但是有点哈人，我先润了
+
+*****
+
+####  漂灵  
+##### 8197#       发表于 2022-8-12 11:25
+
+看了复盘感觉这支og和lgd不是一个水平的队伍，但我依然坚信会有支被dota之神选中的队伍送走畜牲
+
+*****
+
+####  香蕉芭菲  
+##### 8198#       发表于 2022-8-12 11:30
+
+lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了。
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
