@@ -9678,3 +9678,12 @@ v要皮套丑可不行
 
 明明本来是觉得没啥，可是能不能别这样来表示五老星多喜欢新人啊。
 
+
+
+*****
+
+####  cybernetics31  
+##### 2444#       发表于 2022-8-12 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大家多支持中之人就行
+

@@ -8787,3 +8787,49 @@ lily：友情池双up你怕了吗
 这时候应该建议他用无敌的公主 这样至少可以少刷4张礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快奶一口公主宝具本或者技能变攻击相性 看隔壁打起来
 
+
+
+*****
+
+####  alucardcz  
+##### 828#       发表于 2022-8-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033413&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:22</a>
+
+用公主不是更傻逼了吗
+
+这个阵容算上衣服只用点6个技能啊
+
+懒得点降防甚至只用4个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以少刷整整4张礼装
+
+*****
+
+####  alucardcz  
+##### 829#       发表于 2022-8-12 13:29
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033383&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:20</a>
+
+所以说跟神经病一样啊
+
+正常人200池就吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥用 你10张礼装前这队伍就没法用
+
+*****
+
+####  exiaexa  
+##### 830#       发表于 2022-8-12 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033507&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:29</a>
+
+啥用 你15张礼装前这队伍就没法用</blockquote>
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打
+
+实际上我刷无限池的时候，从拿到第一张到最后刷满，阵容一直是在改的
+
+满足不了要求的时候肯定是另一套阵容啊，不然难道要手搓NP吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
