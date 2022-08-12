@@ -5866,3 +5866,44 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 
 漏油的蚂蚁这么狠，能带大家回到上次西恩dota夺冠的过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 8229#       发表于 2022-8-12 12:50
+
+ 本帖最后由 反方向的波 于 2022-8-12 12:52 编辑 
+
+<strong>也就是想替超哥说话 </strong>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">讲道理在这个时间段这已经是大问题了，实习生还打算替两个一起讲话呢，现在已经在投简历了
+
+*****
+
+####  DDWarrior  
+##### 8230#       发表于 2022-8-12 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">漏油不妨预测一下杰出啥时候会被清算，就像A圣一样
+
+*****
+
+####  桐道悠  
+##### 8231#       发表于 2022-8-12 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看过dodo直播看比赛的人都知道她真的不懂职业圈的事情啊
+
+*****
+
+####  Litccc  
+##### 8232#       发表于 2022-8-12 12:58
+
+可不敢乱预测，A圣不也有一群死忠粉么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8233#       发表于 2022-8-12 12:59
+
+A圣虎牙直播越做越好了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何来清算之说，李旎还时不时往我首页推送他录像
+
