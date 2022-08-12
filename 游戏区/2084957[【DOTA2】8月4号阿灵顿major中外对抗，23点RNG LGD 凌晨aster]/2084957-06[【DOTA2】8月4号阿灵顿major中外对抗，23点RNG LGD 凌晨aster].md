@@ -6166,3 +6166,119 @@ midlightone进来一下，之前侬锐评莫言那一次的直播录像剪辑还
 
 话说为什么泥潭这个专楼没有被集美爆破过？ 是因为5块钱的门槛费太贵了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  很久就在那边l  
+##### 8265#       发表于 2022-8-12 13:53
+
+看过节目效果最好的一次是nga一个ID带“处长”两个字的楼主被认定为黑子围攻，一看注册时间2014年（nga不能改名）
+
+*****
+
+####  azccc52  
+##### 8266#       发表于 2022-8-12 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033581&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 13:36</a>
+刀刀前两天还在舰长群问处长是什么意思</blockquote>
+刀刀可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 8267#       发表于 2022-8-12 13:55
+
+有人把本楼内容截图转发到太监论坛试图引流集美过，回复数0
+
+*****
+
+####  逃离二次元  
+##### 8268#       发表于 2022-8-12 13:55
+
+本来注册这个号是为了看管人的，现在一看刀论坛只有sg和你楼没被大水淹没了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 8269#       发表于 2022-8-12 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033746&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 13:52</a>
+
+话说为什么泥潭这个专楼没有被集美爆破过？ 是因为5块钱的门槛费太贵了么 ...</blockquote>
+等ti11lgd夺冠漏油就化身集美爆破这楼<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 8270#       发表于 2022-8-12 13:55
+
+狗头人还给他写歌了，铁证如山！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  morwhipppo  
+##### 8271#       发表于 2022-8-12 13:58
+
+期待哥哥举盾
+
+<img src="https://img.saraba1st.com/forum/202208/12/135755rq4ogun5qugyooog.gif" referrerpolicy="no-referrer">
+
+<strong>0D2F3C48-924E-437C-9AC6-AC5939DFA215.gif</strong> (114.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 13:57 上传
+
+*****
+
+####  windhawind2  
+##### 8272#       发表于 2022-8-12 13:58
+
+我觉得lgd这种前期劣势靠后面一波抓失误打回来的感觉 有点像ti4赛季后期的dk和ti6夺冠后的wings 看上去是如履薄冰那种感觉 可能鞭状态不好或者版本更新或者团队内部争吵啥的一个契机 就会雪崩（
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  nowaki  
+##### 8273#       发表于 2022-8-12 13:59
+
+主要是1靠不住，今年第二个dpc开始a畜犯病次数明显暴增，我只能说梓畜榨汁是真有一手的
+
+*****
+
+####  百世诸侯  
+##### 8274#       发表于 2022-8-12 14:00
+
+如果说刀圈是神州大地，集美是第N次准备入关的建州女真，SG是大顺闯王，那本楼就是下南洋的闯王残部，一方面集美闭关锁国打不到南洋，一方面本楼时刻期盼罗马教廷带十字军天兵过来扶明灭清
+
+*****
+
+####  mkii量产型  
+##### 8275#       发表于 2022-8-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033784&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 13:55</a>
+
+有人把本楼内容截图转发到太监论坛试图引流集美过，回复数0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">地址看看，发的号我换号去拱火
+
+*****
+
+####  やト  
+##### 8276#       发表于 2022-8-12 14:01
+
+  补完了录像，感觉第三盘BIAN前面刚拿到BKB那梦游了几分钟，最后拿到刷新 +刷新球碎片，配合水人转敏 羊了抽攻 爸爸打儿子一样  最后一波团 水人吃了三四次羊，过的也太苦了吧。 
+
+*****
+
+####  外挂全家脚气  
+##### 8277#       发表于 2022-8-12 14:02
+
+[https://www.bilibili.com/video/BV1PT411A7w4](https://www.bilibili.com/video/BV1PT411A7w4)
+
+OG 30分钟的时候高地反向波的分析，应该说是没有失误的，纯粹是LGD更好
+

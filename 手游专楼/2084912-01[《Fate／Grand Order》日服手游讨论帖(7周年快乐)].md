@@ -8895,3 +8895,51 @@ appmedia发视频之前，我就有11区的朋友在用了
 所以我们看他们的阵容第一反应就是你们是不是脑子有坑
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 834#       发表于 2022-8-12 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里版FGO对魔忍RPG的无限池能刷单抽券能挂机我最多也就只能刷十几池，更不要提正牌还要一个个点技能，能刷满十池都算我爆肝了
+
+*****
+
+####  alucardcz  
+##### 835#       发表于 2022-8-12 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033733&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:51</a>
+
+这个是很出名的神经病阵容啊
+
+appmedia发视频之前，我就有11区的朋友在用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说节奏榜这新周回排行是有理有据  怪不得什么c呆a狐都是渣渣
+
+*****
+
+####  alucardcz  
+##### 836#       发表于 2022-8-12 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033785&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-12 13:55</a>
+
+里版FGO对魔忍RPG的无限池能刷单抽券能挂机我最多也就只能刷十几池，更不要提正牌还要一个个点技能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不刷无限池主要原因有2个 钱爆了 狗粮也爆了
+
+哪天钱无上限狗粮有专用仓库 我大概会刷那么个50池吧（
+
+*****
+
+####  exiaexa  
+##### 837#       发表于 2022-8-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033800&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:56</a>
+
+这么说节奏榜这新周回排行是有理有据  怪不得什么c呆a狐都是渣渣</blockquote>
+我不知道appmedia是怎么想的，但是这种文化差异我认为确实是存在的
+
+以前还在玩GBF的时候，国内常见的是稳过的阵容或者拯救难民的低配阵容
+
+然后11区发出来的很多都是些看着就头大的满配爆速过本阵容，有时候都会不自觉的想，11区的普通玩家到底是怎么过的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

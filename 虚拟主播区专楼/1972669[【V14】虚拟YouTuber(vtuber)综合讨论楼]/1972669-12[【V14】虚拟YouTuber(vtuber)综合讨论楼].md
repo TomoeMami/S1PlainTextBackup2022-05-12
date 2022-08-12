@@ -3855,3 +3855,54 @@ syl
 
 社长两次关键点失败，熊猫人要下克上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16845#       发表于 2022-8-12 13:50
+
+第一cjb，拿下
+
+*****
+
+####  格林卡罗尔  
+##### 16846#       发表于 2022-8-12 13:51
+
+熊猫人这阵容数据平均差了一百点也能翻，流弊
+
+*****
+
+####  FCCHua  
+##### 16847#       发表于 2022-8-12 13:51
+
+熊猫人名监督！
+
+*****
+
+####  say_gg_plz  
+##### 16848#       发表于 2022-8-12 13:52
+
+熊猫人今天选择和运气都好，BUFF吃满了，社长危机时候换投换晚了
+
+*****
+
+####  lhawp  
+##### 16849#       发表于 2022-8-12 13:55
+
+熊猫人牛逼！
+
+*****
+
+####  alcoholic1000  
+##### 16850#       发表于 2022-8-12 13:56
+
+不会决赛是我们gamers内战吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LilighT  
+##### 16851#       发表于 2022-8-12 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">太精彩了
+
