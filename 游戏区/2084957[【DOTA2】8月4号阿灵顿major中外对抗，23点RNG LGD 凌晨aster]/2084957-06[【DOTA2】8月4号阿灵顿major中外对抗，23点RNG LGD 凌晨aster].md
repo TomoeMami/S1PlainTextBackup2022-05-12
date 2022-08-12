@@ -6367,3 +6367,40 @@ bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中�
 
 漏油们能不能少转点太监论坛的弱智贴了，我就是嫌太监论坛太弱智TI10打完以后就没点进去过，结果专楼里每天都有太监论坛传话筒呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 8287#       发表于 2022-8-12 14:33
+
+说实在的，sg那群把明鞭和A/切割的基本上都是暗黑集美，水厂才是刀塔饭圈的原罪，领水厂工资的123458都应该被批臭打倒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WDDzzZ  
+##### 8288#       发表于 2022-8-12 14:39
+
+卜是水厂有处长才黑水厂，而是处长在水厂才黑处长
+
+*****
+
+####  nomhrpls  
+##### 8289#       发表于 2022-8-12 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰出以前是核弹啊，当然不会拷打茶茶
+
+*****
+
+####  逃离二次元  
+##### 8290#       发表于 2022-8-12 14:42
+
+水厂司马
+
+*****
+
+####  希望之花  
+##### 8291#       发表于 2022-8-12 14:42
+
+只能说场外比比赛更精彩
+

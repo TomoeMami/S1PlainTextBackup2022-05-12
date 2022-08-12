@@ -3946,3 +3946,20 @@ syl，已经开始无法预测的命运之舞台了嘛<img src="https://static.s
 加賀美大附属高校？
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16856#       发表于 2022-8-12 14:34
+
+德比关键三振拿下转折点！ 风向来到了社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16857#       发表于 2022-8-12 14:34
+
+莎皇一人队，唯一的ACE独木难支
+跟现实中的莎皇一致性
+
