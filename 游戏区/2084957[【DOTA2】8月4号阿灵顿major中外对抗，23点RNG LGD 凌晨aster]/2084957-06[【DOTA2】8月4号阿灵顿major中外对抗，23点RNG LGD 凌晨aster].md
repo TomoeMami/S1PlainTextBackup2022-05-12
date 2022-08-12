@@ -6722,3 +6722,95 @@ dodo我的dodo<img src="https://static.saraba1st.com/image/smiley/face2017/137.g
 
 现在这氛围是真哈人，去年好歹是二次元MAJOR夺冠了才畅想，现在MAJOR都没打完就发大水了
 
+
+
+*****
+
+####  morwhipppo  
+##### 8329#       发表于 2022-8-12 16:23
+
+我表弟今年初三刚毕业，从来没玩过dota2，天天就看斗鱼打王者，现在微信头像是A畜
+
+*****
+
+####  a1370303  
+##### 8330#       发表于 2022-8-12 16:23
+
+只能相信雪碧，相信og了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 8331#       发表于 2022-8-12 16:26
+
+这边建议集美们给dodo上个舰，可以进舰长群和完美运营do子本人直球对线
+
+还能捕捉皮套畜本人发言进一步岁月史书
+
+*****
+
+####  遍体精淋af  
+##### 8332#       发表于 2022-8-12 16:26
+
+我还是相信dota之神的，处长和水厂大搞饭圈终有一天会被反噬的，只要处长不夺冠就没办法彻底翻身<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">处长最多也就熬过今年，而且四个赵云不可能一直都保持状态，等到时候赵云不行了，处长终将显形
+
+*****
+
+####  为了mf注册  
+##### 8333#       发表于 2022-8-12 16:26
+
+相信其他队伍不如相信处长，现在汛情这么严重，拿不下ti盾，霉皇的今天就是处长的明天，到时候什么杰出、缪毐也逃不了
+
+*****
+
+####  拿拿子  
+##### 8334#       发表于 2022-8-12 16:27
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8335#       发表于 2022-8-12 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035597&amp;ptid=2084957" target="_blank">拿拿子 发表于 2022-8-12 16:27</a>
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了</blockquote>
+去年就假想过了
+
+*****
+
+####  awy47  
+##### 8336#       发表于 2022-8-12 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035540&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-12 16:23</a>
+
+我表弟今年初三刚毕业，从来没玩过dota2，天天就看斗鱼打王者，现在微信头像是A畜 ...</blockquote>
+你弟不会是管人痴吧
+
+*****
+
+####  ArowRocher  
+##### 8337#       发表于 2022-8-12 16:29
+
+我是不太懂现在的声望的，局势明显没有去年好
+
+*****
+
+####  walfeds  
+##### 8338#       发表于 2022-8-12 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035597&amp;ptid=2084957" target="_blank">拿拿子 发表于 2022-8-12 16:27</a>
+
+已经开始有人假定拿多一个TI冠军35历史地位要超大爹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨论历史地位这不都在预料之中
+
+很快新的历史第一战队历史第一人历史第一c就要来了
+
+*****
+
+####  很久就在那边l  
+##### 8339#       发表于 2022-8-12 16:32
+
+大部分人还是支持中国战队的，今年没有ti10的ig或者ti9的vg那种程度的中国战队和lgd抗衡
+
