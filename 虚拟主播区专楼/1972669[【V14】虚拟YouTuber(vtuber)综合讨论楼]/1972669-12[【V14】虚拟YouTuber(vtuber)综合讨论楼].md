@@ -4001,3 +4001,42 @@ EN吃瓜群众把VoxYashiro背后灵供起来之后yashiro就爆发了<img src="
 
 赛前我都默认两上两下，下二校的数据只有上二的75%这也能有悬念
 
+
+
+*****
+
+####  高等黑暗  
+##### 16862#       发表于 2022-8-12 15:40
+
+1发胜负就是什么都有可能发生的 去年帝华数据和今年豆猫差不多惨最后第三好吧
+
+现在来说
+
+豆猫：除非社长被LZ爆锤否则稳定第四
+
+ssk：lz不胜的情况下只要赢豆猫就第一 lz胜的情况下必须得分超过lz也就是血洗豆猫10点以上
+
+lz：赢社长并且豆猫不被血洗
+
+社长：赢lz并且ssk输豆猫
+
+最有利的我觉得是ssk
+
+*****
+
+####  alcoholic1000  
+##### 16863#       发表于 2022-8-12 15:47
+
+插播一条：
+
+<img src="https://img.saraba1st.com/forum/202208/12/154614gkccjcasewjl1sw1.png" referrerpolicy="no-referrer">
+
+<strong>English-speaking Gamers.png</strong> (132.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 15:46 上传
+
+ <blockquote>Male character VTuber Auditions for <strong>English-speaking Gamers</strong> open now!</blockquote>
+你这图上五个b哪个称得上Gamer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
