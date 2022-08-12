@@ -10258,3 +10258,92 @@ ent好喜欢拿无视魔免的控制<img src="https://static.saraba1st.com/image
 
 —— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zkc1991  
+##### 8730#       发表于 2022-8-13 07:41
+
+宙斯抬一手<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  反方向的波  
+##### 8731#       发表于 2022-8-13 07:41
+
+经典飞入人群
+
+*****
+
+####  walfeds  
+##### 8732#       发表于 2022-8-13 07:43
+
+这回真挨打了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zkc1991  
+##### 8733#       发表于 2022-8-13 07:43
+
+这把多了宙斯的输出，茶队就干不过了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 8734#       发表于 2022-8-13 07:43
+
+这个点只有8k的炼金确实不是很好赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 8735#       发表于 2022-8-13 07:43
+
+ 骄阳的不败金身啊
+
+*****
+
+####  tasuku  
+##### 8736#       发表于 2022-8-13 07:44
+
+这就是夜宴的实力吗
+
+*****
+
+####  qty  
+##### 8737#       发表于 2022-8-13 07:46
+
+茶这把是要寄了吗？人头2比12了
+
+*****
+
+####  天堂蜘蛛  
+##### 8738#       发表于 2022-8-13 07:46
+
+这个宙斯明显是当核来打的啊
+
+*****
+
+####  zkc1991  
+##### 8739#       发表于 2022-8-13 07:49
+
+寄了寄了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 8740#       发表于 2022-8-13 07:49
+
+这把没了，经济差太多了
+
