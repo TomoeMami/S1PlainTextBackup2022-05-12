@@ -9620,3 +9620,28 @@ TIMS这拉比克可以啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，突然发现我被啊版拉黑了，让我想想我最近yygq过啥了
 
+
+
+*****
+
+####  希望之花  
+##### 8654#       发表于 2022-8-13 01:14
+
+这把SVEN切的动谁<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  excalibur--  
+##### 8655#       发表于 2022-8-13 01:16
+
+这sv只能出个大隐刀干人吧…除非最后一手来个爆发很猛的…火女？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 8656#       发表于 2022-8-13 01:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斯温可以输出一下野怪和小兵
+
