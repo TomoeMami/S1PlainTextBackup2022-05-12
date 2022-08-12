@@ -8628,3 +8628,57 @@ BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说�
 其实但凡看下切片up的播放量就知道，茶流量就是比lgd和rng差的多 ...</blockquote>
 哦我还想到一点，monet那个犯罪方式相较于a/m缺乏“观赏性”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 8537#       发表于 2022-8-12 21:23
+
+看了看液体维基白天果然写错比赛时间了，怎么可能bc和vp打完连战og呢
+
+*****
+
+####  Litccc  
+##### 8538#       发表于 2022-8-12 21:26
+
+感觉他们还是没过完ti8那个夏天
+
+*****
+
+####  Yukino-Yukino  
+##### 8539#       发表于 2022-8-12 21:26
+
+<img src="https://img.saraba1st.com/forum/202208/12/212555raql833liwzanuuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 21:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看人翻假赛党旧账翻到这个尤其乐
+
+*****
+
+####  thistimeforlife  
+##### 8540#       发表于 2022-8-12 21:31
+
+真想拷打 完全可以挑几场茶的小组赛。必须承认，鳖星的低流量拯救了杜鹏儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 8541#       发表于 2022-8-12 21:31
+
+别再搬超级假赛集美论坛的屎了，做个人吧。
+
+*****
+
+####  反方向的波  
+##### 8542#       发表于 2022-8-12 21:32
+
+清蒸鲈狗爽吃流量中，勿Q
+
