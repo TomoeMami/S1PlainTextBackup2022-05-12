@@ -5665,3 +5665,21 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  pigofsunny  
+##### 8204#       发表于 2022-8-12 12:11
+
+水人打团就冒绿光是因为开团之前就被打得转成全力量了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 4a, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ArowRocher  
+##### 8205#       发表于 2022-8-12 12:20
+
+三点爬起来看，看完茶两局睡到现在
+

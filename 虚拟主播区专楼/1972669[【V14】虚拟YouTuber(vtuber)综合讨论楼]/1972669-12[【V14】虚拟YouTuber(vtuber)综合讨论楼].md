@@ -3795,3 +3795,28 @@ en大家庭演不下去了？
 
 不懂你们阴湿虹人
 
+
+
+*****
+
+####  Ketestrait  
+##### 16840#       发表于 2022-8-12 12:15
+
+ 本帖最后由 Ketestrait 于 2022-8-12 12:18 编辑 
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h53uzgt27kj218e0p3gs9.jpg" referrerpolicy="no-referrer">
+
+有赞助奖品了，第三个这命中广告牌个人奖如果中的是海外选手还要发国外吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+吃瓜围观群众：
+
+【#にじさんじ甲子園 2022】 NIJISANJI EN A LEAGUE WATCHALONG 【NIJISANJI EN | Elira Pendora】
+[https://youtu.be/egh7oDegru8](https://youtu.be/egh7oDegru8)
+
+【#にじさんじ甲子園 2022】スポーツバーDERAS 2022 本戦Aリーグ応援配信【ベルモンド・バンデラス/にじさんじ】
+[https://youtu.be/rn5cqrZb9VA](https://youtu.be/rn5cqrZb9VA)
+
+顺便现在真・甲子园那边也是刺激无比<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+

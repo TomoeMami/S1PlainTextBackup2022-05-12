@@ -8528,3 +8528,12 @@ lily：友情池双up你怕了吗
 国服怎么这么多人去抽2宝3宝奥伯龙，是不是被谁忽悠了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">还能有谁 肯定是？ga啊
 
+
+
+*****
+
+####  UNISONIA  
+##### 809#       发表于 2022-8-12 12:21
+
+国服感觉对泛用这事儿入魔了，实际上奥当打手掏出来也没几次，且都有更优的组队
+
