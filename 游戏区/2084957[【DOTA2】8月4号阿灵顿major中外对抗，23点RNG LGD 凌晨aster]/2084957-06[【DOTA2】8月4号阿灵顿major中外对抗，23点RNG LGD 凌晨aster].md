@@ -9967,3 +9967,20 @@ bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017
 
 啥情况呀，gpk大神呀
 
+
+
+*****
+
+####  acalephs  
+##### 8696#       发表于 2022-8-13 06:17
+
+真就0.05进TI了，查询fnatic血压<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/12/141650f2v8q99ggw0w2gqg.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220812151627.png</strong> (16.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 06:16 上传
+
