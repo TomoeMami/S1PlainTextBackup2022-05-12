@@ -5819,3 +5819,50 @@ lgd对线期还是薄弱环节啊，就看其他队能不能利用好这点了�
 前天实习生昨天月鳖今天是谁</blockquote>
 今天dodo，喜欢叫处长是吧，盒都给你开喽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 8223#       发表于 2022-8-12 12:41
+
+楼友这个连击+3天赋有点狠了，我点进去一看5个屁股头像
+
+*****
+
+####  莉拉厨  
+##### 8224#       发表于 2022-8-12 12:42
+
+别冲dodo<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">要冲就冲版主吧，我举报！他天天和狗头人玩在一起
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 8225#       发表于 2022-8-12 12:43
+
+我艹，蚂蚁连击刀点连击天赋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8226#       发表于 2022-8-12 12:44
+
+刚才确实服务器卡了，原来漏油真的有小蚂蚁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 8227#       发表于 2022-8-12 12:45
+
+下一个清算目标该轮到谁了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+等一个新的屠醋英雄横空出世<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 8228#       发表于 2022-8-12 12:46
+
+漏油的蚂蚁这么狠，能带大家回到上次西恩dota夺冠的过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
