@@ -9171,3 +9171,52 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 伊吹就个光炮 随便什么都无所谓 改变不了体系</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">重点还是紫发美少女了 希望是个平平无奇的卡
 
+
+
+*****
+
+####  alucardcz  
+##### 859#       发表于 2022-8-12 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040653&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-12 22:20</a>
+
+重点还是紫发美少女了 希望是个平平无奇的卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先奶个 是打手
+
+*****
+
+####  areklose  
+##### 860#       发表于 2022-8-12 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040553&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 22:13</a>
+
+伊吹就个光炮 随便什么都无所谓 改变不了体系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我要掏出前几天你和我说得话反过来说了。奥伯伦也是光炮技能组就不能是拐吗！
+
+*****
+
+####  alucardcz  
+##### 861#       发表于 2022-8-12 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040724&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-12 22:24</a>
+
+我要掏出前几天你和我说得话反过来说了。奥伯伦也是光炮技能组就不能是拐吗！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你自己信吗 伊吹是大拐
+
+*****
+
+####  qixinno2  
+##### 862#       发表于 2022-8-12 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040711&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 22:23</a>
+
+我先奶个 是打手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙那种打手么 宝具是魔境之门即死光炮
+
+*****
+
+####  alucardcz  
+##### 863#       发表于 2022-8-12 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一我不知道你们为什么对一个复课困难的泳装活动强度报有那么大的期待。。 反正也快了 伊师傅星期天就up了
+

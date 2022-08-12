@@ -10126,3 +10126,15 @@ v要皮套丑可不行
 
 这广播去年是不是青山去过，好像是个比较拘谨无聊的广播？没记错的话
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2482#       发表于 2022-8-12 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040657&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-12 22:20</a>
+这广播去年是不是青山去过，好像是个比较拘谨无聊的广播？没记错的话
+查了下，果然没记错，2月那次是青山去 ...</blockquote>
+好像没看到熟肉，不知道nagi那次有些什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
