@@ -9944,3 +9944,26 @@ bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017
 
 茶总不会输给Entity吧...
 
+
+
+*****
+
+####  cobymar  
+##### 8693#       发表于 2022-8-13 06:02
+
+这什么临时工翻译，还不如请量子鞭来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 8694#       发表于 2022-8-13 06:03
+
+赛前垃圾话环节有点尬，还好给茶欢呼的人不少啊
+
+*****
+
+####  haruhiismer  
+##### 8695#       发表于 2022-8-13 06:09
+
+啥情况呀，gpk大神呀
+
