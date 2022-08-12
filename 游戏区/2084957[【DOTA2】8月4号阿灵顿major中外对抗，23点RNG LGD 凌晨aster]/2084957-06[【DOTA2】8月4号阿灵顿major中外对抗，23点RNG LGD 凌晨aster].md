@@ -9113,3 +9113,115 @@ mdy的一个都逃不了<img src="https://static.saraba1st.com/image/smiley/face
 说起来cty是不是锐评过yatoro菜。我觉得yatoro打的很好啊，而且bp指挥一把抓，有没有大概原话。 ...</blockquote>
 cty这个major基本所有选手都瑞平了一大堆 搞得mdy其他人都沉默不敢接话了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  遍体精淋af  
+##### 8590#       发表于 2022-8-12 23:03
+
+666竟然才23岁?
+
+*****
+
+####  windhawind2  
+##### 8591#       发表于 2022-8-12 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040414&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 22:05</a>
+
+A畜和北美A畜赶紧死在沙滩上吧</blockquote>
+卧槽 看了这个发现rtz竟然还混在eg？!! 
+
+*****
+
+####  弈秋  
+##### 8592#       发表于 2022-8-12 23:04
+
+看看boom到底有没有章法
+
+*****
+
+####  弈秋  
+##### 8593#       发表于 2022-8-12 23:04
+
+rtz不在eg说不定eg就没了
+
+*****
+
+####  尸体鲨  
+##### 8594#       发表于 2022-8-12 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040131&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 21:49</a>
+不搬了不搬了，下次再搬NGA的屎我就把头像改成AME</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你头像本来就是AME，想骗兄弟的屎吃是吧
+才发现冠夹的动态被集美冲了，实习生那个视频不是帮ame岁月史书的吗
+
+*****
+
+####  windhawind2  
+##### 8595#       发表于 2022-8-12 23:08
+
+哇我刚才是不是看见了mushit？？他不会也还在打吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8596#       发表于 2022-8-12 23:08
+
+饭圈只是享受拿大棒打人的快乐，并不在乎你说了啥。
+
+*****
+
+####  尸体鲨  
+##### 8597#       发表于 2022-8-12 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041334&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-12 23:08</a>
+哇我刚才是不是看见了mushit？？他不会也还在打吧</blockquote>
+MUSHI？他在当教练啊
+
+*****
+
+####  adretyu67  
+##### 8598#       发表于 2022-8-12 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041334&amp;ptid=2084957" target="_blank">windhawind2 发表于 2022-8-12 23:08</a>
+
+哇我刚才是不是看见了mushit？？他不会也还在打吧</blockquote>
+国师好像在boom当教练
+
+*****
+
+####  IG.430  
+##### 8599#       发表于 2022-8-12 23:11
+
+只要潘婕去踩了缝纫机，一切都会好起来的
+
+*****
+
+####  弈秋  
+##### 8600#       发表于 2022-8-12 23:12
+
+卧槽 猫
+
+*****
+
+####  adretyu67  
+##### 8601#       发表于 2022-8-12 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041268&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-12 23:03</a>
+
+666竟然才23岁?</blockquote>
+老VP年纪是双辅助年龄拉了后腿，罗杰和322年纪都大。
+
+noone和666 ti5打外卡时候才18岁
+
+*****
+
+####  windhawind2  
+##### 8602#       发表于 2022-8-12 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041365&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-12 23:10</a>
+
+国师好像在boom当教练</blockquote>
+神了 跟银k一样还在赖啊
+
