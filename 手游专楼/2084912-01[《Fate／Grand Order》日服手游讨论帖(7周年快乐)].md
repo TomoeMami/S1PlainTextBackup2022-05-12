@@ -8411,3 +8411,30 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 后面2天估计是送芙芙了。没劲了
 
+
+
+*****
+
+####  千叶铁矢  
+##### 799#       发表于 2022-8-12 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029218&amp;ptid=2084912" target="_blank">麻花疼 发表于 2022-8-12 07:14</a>
+借楼问日服大佬个问题，奥伯龙和摩根是2+3，还是3+2比较好，拿不定主意，主要想90+舒服。
+
+金芙芙用光了， ...</blockquote>
+圣杯不用担心，随便炼嘛
+
+*****
+
+####  exiaexa  
+##### 800#       发表于 2022-8-12 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029218&amp;ptid=2084912" target="_blank">麻花疼 发表于 2022-8-12 07:14</a>
+借楼问日服大佬个问题，奥伯龙和摩根是2+3，还是3+2比较好，拿不定主意，主要想90+舒服。
+
+金芙芙用光了， ...</blockquote>
+我先问一句你想怎么用摩根
+这楼里怎么玩的都有，你不说你的box我们没法解决啊
+硬要问那只能是5+5
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

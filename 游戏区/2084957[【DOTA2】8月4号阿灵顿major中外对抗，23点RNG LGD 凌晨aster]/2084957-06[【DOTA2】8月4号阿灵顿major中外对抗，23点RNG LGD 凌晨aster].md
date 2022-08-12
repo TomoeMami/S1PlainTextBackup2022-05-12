@@ -4790,3 +4790,123 @@ gpk好像在采访里说过目标前六，不出意外估计结果差不多。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">求求你把屎在一层里发完
 
+
+
+*****
+
+####  朝奈  
+##### 8111#       发表于 2022-8-12 10:02
+
+别他妈major输了ti夺冠了，我就看不得霉畜a畜俩逼人夺冠
+
+*****
+
+####  白色的120  
+##### 8112#       发表于 2022-8-12 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030815&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 10:02</a>
+求求你把屎在一层里发完</blockquote>
+我的，对不起
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夏溪澪mio  
+##### 8113#       发表于 2022-8-12 10:06
+
+雪碧连冠这种事不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  azccc52  
+##### 8114#       发表于 2022-8-12 10:06
+
+漏油是真的很爱集美论坛<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 8115#       发表于 2022-8-12 10:07
+
+每一天的开始都从最伟大的亚军结束。
+
+*****
+
+####  chilno  
+##### 8116#       发表于 2022-8-12 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030428&amp;ptid=2084957" target="_blank">米德 发表于 2022-8-12 09:33</a>
+
+感觉漏油就像赢球密 谁赢支持谁 只是特别讨厌a➗而已</blockquote>
+只要能干碎lgd的都是好兄弟
+
+*****
+
+####  白色的120  
+##### 8117#       发表于 2022-8-12 10:09
+
+rng终究是带个语言不通的替补打比赛，拿major时候的表现来贬低dpc的成绩过分了，不会真有人认为ana比ghost强吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chilno  
+##### 8118#       发表于 2022-8-12 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030854&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-12 10:04</a>
+
+我的，对不起
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+搬屎去隔壁管人区的萧瑟哥哥砖楼
+
+*****
+
+####  joker9527  
+##### 8119#       发表于 2022-8-12 10:09
+
+霉鳖罪不至此，至少吃了资源也能干事情，也有高光大腿表现，输了比赛会背锅。A畜年年抱4个赵云大腿，平时比赛乖乖躺赢，到了决赛感觉自己没啥镜头，表演欲上来了就动不动给你整波大的，躲冠完了再来一手缩壳，内心深处还觉得队友亏欠了他，没带他拿冠军，各种改ID，然后在攻击前队友的言论，视频下面冒出他的乌龟head。刀圈畜不扩散条约好吧，原先的唯二畜 R畜跟A畜比，也可以算得上是个圣人了
+
+*****
+
+####  遍体精淋af  
+##### 8120#       发表于 2022-8-12 10:10
+
+坐等处长施舍超级集美鸭头肉两个盾好不好<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 8121#       发表于 2022-8-12 10:10
+
+搬屎去这里，别污染大家的眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+https://bbs.saraba1st.com/2b/thread-2064223-2-1.html
+
+*****
+
+####  白色的120  
+##### 8122#       发表于 2022-8-12 10:10
+
+这届major非要在灯塔国举办，弄得很多队伍人员不齐，我觉得含金量真的不行
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 8123#       发表于 2022-8-12 10:11
+
+微博关注的大奈coser怎么也关注了杜鹏，脑浆不够用的原因找到了
+
+*****
+
+####  Litccc  
+##### 8124#       发表于 2022-8-12 10:12
+
+xg可惜了，本来还想看看lou会不会尿裤呢
+
