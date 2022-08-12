@@ -9654,3 +9654,19 @@ TIMS这拉比克可以啊
 
 什么情况居然1比1了，上把boom怎么翻盘的？？
 
+
+
+*****
+
+####  mkii量产型  
+##### 8658#       发表于 2022-8-13 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这酱油斯文有点好玩啊
+
+*****
+
+####  nowaki  
+##### 8659#       发表于 2022-8-13 01:40
+
+线上是爽了 团战咋打呢
+
