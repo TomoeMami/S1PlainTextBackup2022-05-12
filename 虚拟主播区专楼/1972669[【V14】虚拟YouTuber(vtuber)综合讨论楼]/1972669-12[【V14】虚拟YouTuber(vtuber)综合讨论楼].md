@@ -4098,3 +4098,48 @@ lz赢 顺位是lz 熊猫人 社长 豆猫
 
 关键的转折点buff被三振，风向不在社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高等黑暗  
+##### 16870#       发表于 2022-8-12 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上次垫底的赫高锁定前2了！3bk没有3年垫底！
+
+*****
+
+####  say_gg_plz  
+##### 16871#       发表于 2022-8-12 17:11
+
+不愧是卯月剧场，最后这场也太好看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16872#       发表于 2022-8-12 17:12
+
+ 本帖最后由 alcoholic1000 于 2022-8-12 17:17 编辑 
+
+铁壁赫高！王道！王道！王道！
+
+不过没想到社长队打成这样
+
+<img src="https://img.saraba1st.com/forum/202208/12/171743jxzp3x773dxixtt6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【Aリーグ最終結果】 .jpeg</strong> (347.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:17 上传
+
+【Aリーグ最終結果】
+
+1位:王立ヘルエスタ
+
+2位:パンパカパンダ
+
+3位:加賀美大附属
+
+4位:楽園村立まめねこ
+

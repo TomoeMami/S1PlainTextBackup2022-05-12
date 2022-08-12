@@ -7102,3 +7102,72 @@ xg大概率没了，拒绝者看直播就知道明显没信心了，还有老鸡
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  遍体精淋af  
+##### 8373#       发表于 2022-8-12 17:15
+
+ 本帖最后由 遍体精淋af 于 2022-8-12 17:16 编辑 
+
+有一说一，今年处长最后一年看来不是空穴来风，如果是水厂刻意造势那现在到处水漫金山的情况就不奇怪了
+
+*****
+
+####  百世诸侯  
+##### 8374#       发表于 2022-8-12 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">处长现在最害怕的应该是退役了后明年2项羽458带着shiro或者别的年轻C直接夺冠
+
+*****
+
+####  名字不乱取  
+##### 8375#       发表于 2022-8-12 17:17
+
+大明鞭手伤估计也要退了，今年没拿到lgd一时半会找不到这么透支的3，除非把wisp从克神手里夺走<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8376#       发表于 2022-8-12 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036229&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 17:16</a>
+处长现在最害怕的应该是退役了后明年2项羽458带着shiro或者别的年轻C直接夺冠
+
+ ...</blockquote>
+有啥害怕的，退役了如果不切假腿还在乎这些有啥用吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8377#       发表于 2022-8-12 17:20
+
+处长今年25，明年26.
+
+只能说冠军C的保质期摆在这<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+明年真继续打指不定还有什么脑浆玩意。
+
+*****
+
+####  为了mf注册  
+##### 8378#       发表于 2022-8-12 17:22
+
+看了下，好像完美皮套人评论区下面已经有人在发大水了，do/都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 8379#       发表于 2022-8-12 17:22
+
+是真的恐怖，我在某地方回了一条说炼金开大进场其实更有忘记开BKB这个欺骗性，同时也提高LGD的容错率
+
+也被人抓着喷，就非要摁头让我承认这波团OG毫无胜率，无论怎么操作都秒不掉炼金，而LGD所向披靡无敌必胜
+
+太哈人了，真正昨天看比赛的人都知道LGD这比赛赢的险之又险，就这已经不想着进步想着躺在功劳簿上开吹我真不好说TI再失利他们会魔怔成什么样子
+
+而且这种十有八九就是晚上比赛没看早起看个切片就开吹的集美
+
+说真的很多那些自媒体吹的根本就全错，好多人连ceb牛头一眼看穿炼金是来卖的捏着大招一直没放都不知道，感觉是又得ceeeeeeeeeeeeeeeeb来给他们脑门来一棍子了
+
