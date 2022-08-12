@@ -8986,3 +8986,40 @@ A畜和北美A畜赶紧死在沙滩上吧</blockquote>
 
 到底还是年轻人的世界啊
 
+
+
+*****
+
+####  Kazepollar  
+##### 8577#       发表于 2022-8-12 22:13
+
+nga的特点不就是，不管是哪个板块，稍微看一会儿就能感受到太监味儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 8578#       发表于 2022-8-12 22:18
+
+<img src="https://img.saraba1st.com/forum/202208/12/221736vdmo4tmdecfldmqd.jpg" referrerpolicy="no-referrer">
+
+<strong>FZ7E2bYX0AE89hU.jpg</strong> (67.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 22:17 上传
+
+团队之手
+
+*****
+
+####  nowaki  
+##### 8579#       发表于 2022-8-12 22:19
+
+<blockquote>名字不乱取 发表于 2022-8-12 21:57
+听说v圈和变态一样，s1，nga，v8互相拉屎吃屎，循环消化
+
+然后b站是集中排泄地
+
+ ...</blockquote>
+不知道，我是看油管的
+

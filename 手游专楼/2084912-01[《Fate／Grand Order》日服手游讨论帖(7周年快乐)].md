@@ -9149,3 +9149,25 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只想奶伊吹和紫老太都是梅莉级强度的厨力卡
 
+
+
+*****
+
+####  alucardcz  
+##### 857#       发表于 2022-8-12 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040532&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-12 22:11</a>
+
+我现在只想奶伊吹和紫老太都是梅莉级强度的厨力卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊吹就个光炮 随便什么都无所谓 改变不了体系  
+
+*****
+
+####  qixinno2  
+##### 858#       发表于 2022-8-12 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040553&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 22:13</a>
+
+伊吹就个光炮 随便什么都无所谓 改变不了体系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">重点还是紫发美少女了 希望是个平平无奇的卡
+

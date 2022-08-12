@@ -10024,3 +10024,105 @@ v要皮套丑可不行
 
 来活了，沈黙の金曜日
 
+
+
+*****
+
+####  ads147147  
+##### 2474#       发表于 2022-8-12 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040405&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-12 22:05</a>
+
+之后就是R18了</blockquote>
+还真是付费解锁后续了w
+
+话说大街上堵嘴接吻这个分镜好像再哪个片子里见过，哪个恋爱剧来着。。
+
+*****
+
+####  老1.5  
+##### 2475#       发表于 2022-8-12 22:12
+
+嗯...也有可能是因为鼻子上小胶布还没取下来吧，虽然离远了看也不影响，但是偶像嘛...上镜脸上干干净净的肯定最好了。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+不过确实很想见她了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2476#       发表于 2022-8-12 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040541&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-12 22:11</a>
+还真是付费解锁后续了w
+
+话说大街上堵嘴接吻这个分镜好像再哪个片子里见过，哪个恋爱剧来着。。 ...</blockquote>
+图二有小千
+
+*****
+
+####  仟音一心  
+##### 2477#       发表于 2022-8-12 22:15
+
+<img src="https://img.saraba1st.com/forum/202208/12/221525ksleujv5r5ugh1vr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>710648C9-8118-4A2C-92B4-6C531C082DAA.jpeg</strong> (194.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/221525osaqqkfazqoquouf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CEEE2763-B0D2-451F-AB9D-B3C97DE0C58F.jpeg</strong> (178.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/221525f3nbk33nip3g3554.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D76DB624-2578-4F6F-B130-C42C66AA2958.jpeg</strong> (486.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-12 22:15 上传
+
+*****
+
+####  lj205  
+##### 2478#       发表于 2022-8-12 22:15
+
+草。这不安排就不安排，一安排就是单独Solo
+
+*****
+
+####  优妮可  
+##### 2479#       发表于 2022-8-12 22:17
+
+<img src="https://img.saraba1st.com/forum/202208/12/221702wyj1o4m97j4jso9t.jpg" referrerpolicy="no-referrer">
+
+<strong>20220812_221420.jpg</strong> (265.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 22:17 上传
+
+五人新公式照齐了
+
+*****
+
+####  cybernetics31  
+##### 2480#       发表于 2022-8-12 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嗨呀，现在日本疫情这么严重，不去也没啥啦
+
+*****
+
+####  Enakina  
+##### 2481#       发表于 2022-8-12 22:20
+
+这广播去年是不是青山去过，好像是个比较拘谨无聊的广播？没记错的话
+
