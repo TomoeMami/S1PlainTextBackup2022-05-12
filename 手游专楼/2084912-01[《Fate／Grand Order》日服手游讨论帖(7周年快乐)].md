@@ -8388,3 +8388,17 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 金芙芙用光了，圣杯也紧张只能够喂一个百级的。
 
+
+
+*****
+
+####  areklose  
+##### 797#       发表于 2022-8-12 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029218&amp;ptid=2084912" target="_blank">麻花疼 发表于 2022-8-12 07:14</a>
+
+借楼问日服大佬个问题，奥伯龙和摩根是2+3，还是3+2比较好，拿不定主意，主要想90+舒服。
+
+金芙芙用光了， ...</blockquote>
+这啥？宝具数目？那当然是1+5比较好。
+

@@ -3445,3 +3445,205 @@ yurAGI笑死
 
 这个盾没了就可以敲了
 
+
+
+*****
+
+####  chilno  
+##### 7946#       发表于 2022-8-12 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029554&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-12 08:21</a>
+
+美国贴吧观战贴上个bo3水了2000楼，这个bo3到现在才70个回复
+
+这ti冠军真是没有盘 ...</blockquote>
+一个关系到usa出线，一个纯路人，很正常啊
+
+*****
+
+####  一夜秋风袭锦城  
+##### 7947#       发表于 2022-8-12 08:22
+
+寄了，做你妈个蝴蝶想跟tb打正面？做你妈淫梦呢
+
+*****
+
+####  AkaiSuisei  
+##### 7948#       发表于 2022-8-12 08:22
+
+被这个眼位坑傻了
+
+*****
+
+####  蛭人  
+##### 7949#       发表于 2022-8-12 08:22
+
+毕竟ts没水啊，不能和水厂比，水厂坐拥集美假赛狗云玩家三大阵营，不能比。
+
+*****
+
+####  我爱撩菜  
+##### 7950#       发表于 2022-8-12 08:23
+
+可以G了，后面越打越没输出了
+
+
+
+*****
+
+####  pikamee  
+##### 7951#       发表于 2022-8-12 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029561&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-12 08:22</a>
+
+一个关系到usa出线，一个纯路人，很正常啊</blockquote>
+上个bo3指的og打干鳖
+
+*****
+
+####  snarc1  
+##### 7952#       发表于 2022-8-12 08:24
+
+屠夫这个时间没啥作用了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  弈秋  
+##### 7953#       发表于 2022-8-12 08:24
+
+boboka<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 7954#       发表于 2022-8-12 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029567&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-12 08:23</a>
+
+上个bo3指的og打干鳖</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">睡了一觉直接忘记中间还有一把了
+
+*****
+
+####  snarc1  
+##### 7955#       发表于 2022-8-12 08:25
+
+一思考，就发笑，还不如本能DOTA
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 7956#       发表于 2022-8-12 08:26
+
+脑东京醒了啊，这紫猫帕克玩的有模有样，当他都醒了，茶基本G了。
+
+*****
+
+####  反方向的波  
+##### 7957#       发表于 2022-8-12 08:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">焦阳这挑战a杖屁用没有，不如bkb再补个板甲
+
+*****
+
+####  acalephs  
+##### 7958#       发表于 2022-8-12 08:27
+
+XXS以为自己很肉吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 7959#       发表于 2022-8-12 08:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xxs这脑浆
+
+*****
+
+####  12481632  
+##### 7960#       发表于 2022-8-12 08:27
+
+TI10总决赛BO服再开！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 7961#       发表于 2022-8-12 08:27
+
+这阵容就是四兄弟打架naga出山一波带走的，打到这个经济团已经打不赢了
+
+*****
+
+####  反方向的波  
+##### 7962#       发表于 2022-8-12 08:28
+
+34不和，15也不和
+
+*****
+
+####  haruhiismer  
+##### 7963#       发表于 2022-8-12 08:28
+
+这一队打得都搞笑呀
+
+*****
+
+####  吃货红毛  
+##### 7964#       发表于 2022-8-12 08:28
+
+这dp在狂什么嗷 追那么狠来自: iPhone客户端
+
+*****
+
+####  外挂全家脚气  
+##### 7965#       发表于 2022-8-12 08:29
+
+皮球这把有点尿啊..
+
+*****
+
+####  香蕉芭菲  
+##### 7966#       发表于 2022-8-12 08:29
+
+茶队这种高压局就显得打团细节太差了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  a1370303  
+##### 7967#       发表于 2022-8-12 08:31
+
+感觉打雪碧对茶队的压力还是太大了，失误太多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  杜文乐超神归来  
+##### 7968#       发表于 2022-8-12 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早知道，还是三幻神
+
+*****
+
+####  haruhiismer  
+##### 7969#       发表于 2022-8-12 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029623&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 08:29</a>
+皮球这把有点尿啊..</blockquote>
+茶队没一个不尿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 7970#       发表于 2022-8-12 08:31
+
+ori这把屠夫，两个字丑陋。
+
