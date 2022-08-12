@@ -9100,3 +9100,15 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 上当了没忍住抽了一发十连 满宝的尼托+1 
 
+
+
+*****
+
+####  exiaexa  
+##### 852#       发表于 2022-8-12 18:13
+
+草，今天这个LV5设施开的额外剧情关，第二关战斗笑出声
+
+为了不影响效果就不剧透你们了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
