@@ -8852,3 +8852,46 @@ lily：友情池双up你怕了吗
 
 还有。。。万一活动没50np礼装怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 832#       发表于 2022-8-12 13:45
+
+ 本帖最后由 alucardcz 于 2022-8-12 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033540&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 13:32</a>
+
+本来就没法用啊
+
+我发现你们玩单核的都有个毛病就是觉得从头到尾就是一个组合打，最优解“只有一个”摁着刷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说你这个双班杨的阵容是不是隔壁前几天节奏榜改版后的讨论贴里的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隐约记得看到过有那么个人在解释班杨为什么能s+的时候云了这个阵容
+
+而且节奏榜的条件就是5宝120+2000  然后还默认50np礼装
+
+*****
+
+####  exiaexa  
+##### 833#       发表于 2022-8-12 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 13:45</a>
+
+话说你这个双班杨的阵容是不是隔壁前几天节奏榜改版后的讨论贴里的。
+
+隐约记得看到过有那 ...</blockquote>
+这个是很出名的神经病阵容啊
+
+appmedia发视频之前，我就有11区的朋友在用了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国内跟11区有个很大的不一样是，国内给你发的阵容基本都是那种平铺30甚至0NP起步的
+
+而且会本能的拒绝毕业阵容或者高配阵容
+
+但是11区很多交流贴或者推上给你发的都是那种“加速爆肝”的阵容
+
+所以我们看他们的阵容第一反应就是你们是不是脑子有坑
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
