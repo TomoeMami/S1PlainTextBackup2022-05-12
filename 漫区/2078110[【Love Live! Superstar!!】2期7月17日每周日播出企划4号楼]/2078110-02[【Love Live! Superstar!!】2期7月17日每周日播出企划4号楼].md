@@ -9696,3 +9696,18 @@ v要皮套丑可不行
 
 我很害怕第五集，从预告看感觉不会给可可安排什么好活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2446#       发表于 2022-8-12 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033703&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-12 13:48</a>
+我很害怕第五集，从预告看感觉不会给可可安排什么好活</blockquote>
+这个应该不至于，可堇的问题也只是手法很糙，从第四集红蓝看绑cp不是做的很自然么，搞的可可和恶人一样。
+
+或许真的是外国人一定会很凶的刻板印象吗（艾玛：？）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
