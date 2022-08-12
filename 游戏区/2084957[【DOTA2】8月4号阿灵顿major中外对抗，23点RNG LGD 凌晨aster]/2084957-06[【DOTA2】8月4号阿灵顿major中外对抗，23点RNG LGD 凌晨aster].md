@@ -9060,3 +9060,56 @@ A畜和北美A畜赶紧死在沙滩上吧</blockquote>
 
 说起来cty是不是锐评过yatoro菜。我觉得yatoro打的很好啊，而且bp指挥一把抓，有没有大概原话。
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 8584#       发表于 2022-8-12 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041080&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-12 22:51</a>
+
+说起来cty是不是锐评过yatoro菜。我觉得yatoro打的很好啊，而且bp指挥一把抓，有没有大概原话。 ...</blockquote>
+cty说过一堆c菜  ana ame yatoro 等等 他直播时候说过不少的 
+
+*****
+
+####  外挂全家脚气  
+##### 8585#       发表于 2022-8-12 22:56
+
+今天有观众了啊
+
+*****
+
+####  12481632  
+##### 8586#       发表于 2022-8-12 22:56
+
+mdy的一个都逃不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+集美们最后不会清算41yy清算到自己giegie头上吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 8587#       发表于 2022-8-12 22:58
+
+7ty<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 8588#       发表于 2022-8-12 22:58
+
+今天开始是主赛事了
+
+*****
+
+####  windhawind2  
+##### 8589#       发表于 2022-8-12 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57041080&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-12 22:51</a>
+
+说起来cty是不是锐评过yatoro菜。我觉得yatoro打的很好啊，而且bp指挥一把抓，有没有大概原话。 ...</blockquote>
+cty这个major基本所有选手都瑞平了一大堆 搞得mdy其他人都沉默不敢接话了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
