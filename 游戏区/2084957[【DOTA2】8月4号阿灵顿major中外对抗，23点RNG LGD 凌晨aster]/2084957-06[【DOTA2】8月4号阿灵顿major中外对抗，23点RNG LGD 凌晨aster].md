@@ -3232,3 +3232,216 @@ ts没硬控啊
 
 致敬偶像
 
+
+
+*****
+
+####  百世诸侯  
+##### 7918#       发表于 2022-8-12 08:13
+
+鹏！
+
+*****
+
+####  一品堂官  
+##### 7919#       发表于 2022-8-12 08:13
+
+相互致敬，所有c都向着偶像前进！
+
+*****
+
+####  蛭人  
+##### 7920#       发表于 2022-8-12 08:13
+
+一代目对二代目的拙劣模仿。
+
+
+
+*****
+
+####  反方向的波  
+##### 7921#       发表于 2022-8-12 08:14
+
+杜软两条命都不够送的
+
+*****
+
+####  吃货红毛  
+##### 7922#       发表于 2022-8-12 08:15
+
+ori这勾肥是真准来自: iPhone客户端
+
+*****
+
+####  莉拉厨  
+##### 7923#       发表于 2022-8-12 08:15
+
+崩溃哥这把崩溃了啊
+
+*****
+
+####  ArowRocher  
+##### 7924#       发表于 2022-8-12 08:16
+
+yurAGI笑死
+<img src="https://p.sda1.dev/6/3e3bb8ada26608f1bfe6d56e793ed25a/Screenshot_2022-08-12-08-10-30-233-edit_com.reddit.frontpage.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 7925#       发表于 2022-8-12 08:17
+
+这东京，怪不得去年决赛干了猴爹。
+
+*****
+
+####  snarc1  
+##### 7926#       发表于 2022-8-12 08:18
+
+麻了，bbk搞什么飞机
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 7927#       发表于 2022-8-12 08:18
+
+鹏子能不能支棱起来哪怕一场啊
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我爱撩菜  
+##### 7928#       发表于 2022-8-12 08:19
+
+这配合…凤凰早放蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 7929#       发表于 2022-8-12 08:19
+
+到点了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  端木恋心  
+##### 7930#       发表于 2022-8-12 08:19
+
+脑浆了
+
+*****
+
+####  百世诸侯  
+##### 7931#       发表于 2022-8-12 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有人都在犯病
+
+*****
+
+####  莉拉厨  
+##### 7932#       发表于 2022-8-12 08:19
+
+这什么团啊，早点下班吧
+
+*****
+
+####  反方向的波  
+##### 7933#       发表于 2022-8-12 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xz_04  
+##### 7934#       发表于 2022-8-12 08:19
+
+鳖式团战是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 7935#       发表于 2022-8-12 08:19
+
+我吐了
+
+*****
+
+####  AkaiSuisei  
+##### 7936#       发表于 2022-8-12 08:20
+
+脑浆脑浆
+
+*****
+
+####  walfeds  
+##### 7937#       发表于 2022-8-12 08:20
+
+被打到神志不清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  4591  
+##### 7938#       发表于 2022-8-12 08:20
+
+脑浆射光才能打出的团战配合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 7939#       发表于 2022-8-12 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 7940#       发表于 2022-8-12 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚醒看到这玩意，服了
+
+*****
+
+####  Litccc  
+##### 7941#       发表于 2022-8-12 08:20
+
+皮球这配合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 7942#       发表于 2022-8-12 08:20
+
+强行让我清醒是吧
+
+*****
+
+####  12481632  
+##### 7943#       发表于 2022-8-12 08:21
+
+这状态去败者组可以直接回家了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pikamee  
+##### 7944#       发表于 2022-8-12 08:21
+
+美国贴吧观战贴上个bo3水了2000楼，这个bo3到现在才70个回复
+
+这ti冠军真是没有盘
+
+*****
+
+####  反方向的波  
+##### 7945#       发表于 2022-8-12 08:22
+
+这个盾没了就可以敲了
+
