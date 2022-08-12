@@ -7978,3 +7978,50 @@ ti9我看了一赛季vg，以为有戏呢，毕竟第一个major是亲手干掉l
 玄月录像有了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
 【玄月自己上传直播录像了，带弹幕的。大家耐心看完再评论好吧-哔哩哔哩】 https://b23.tv/DFNJnCS
 
+
+
+*****
+
+####  usoda  
+##### 8468#       发表于 2022-8-12 19:33
+
+相信老鸡头！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 8469#       发表于 2022-8-12 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">评价个JB，要我评价就是不要双标
+
+都死了对谁都好！
+
+*****
+
+####  白野苍衣  
+##### 8470#       发表于 2022-8-12 19:37
+
+居然相信鳖茶TI会进化，打破队史最佳成绩就不错了。
+
+*****
+
+####  walfeds  
+##### 8471#       发表于 2022-8-12 19:39
+
+http://b23.tv/QF1bQ2T
+
+ceb这逼还是会说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我知道他TI8被冲了”“但是除了我的队伍他是第一c”
+
+对yuragi的评价证明是清楚队内为了atf打法做妥协的情况的，看来还是想放养
+
+选阵容干瘪135+厅长+暴击哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 8472#       发表于 2022-8-12 19:40
+
+XG DPC状态越来越差，油面直播都是垂头丧气的，不看好，缺少拧绳的
+
