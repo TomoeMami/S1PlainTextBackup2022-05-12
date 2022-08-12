@@ -4285,3 +4285,116 @@ tk不好选，现在这版本都是10分钟就要发力打压制入侵的，1号
 
 希望LGD胜决能赢吧
 
+
+
+*****
+
+####  蛭人  
+##### 8053#       发表于 2022-8-12 09:13
+
+合着都是扭曲的LGD粉啊，牛逼牛逼。
+
+*****
+
+####  walfeds  
+##### 8054#       发表于 2022-8-12 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">感觉og还是有可能被两只肌肉dota上来一只直接抬走的，ceb多拧一拧
+
+*****
+
+####  pikamee  
+##### 8055#       发表于 2022-8-12 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029816&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-12 08:44</a>
+米波什卡什么时候藏的一手陈，这一年多雪碧我看下来没见过啊
+搞得张志成bp的时候直接尿了一地 ...</blockquote>
+美国贴吧看到的
+
+Fun fact: Team Spirit hired as an analyst a high MMR pub Chen spammer "Sikle" with like 10000 Chen games xd
+
+https://twitter.com/Team__Spirit/status/1556964740899000320
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  中已矣  
+##### 8056#       发表于 2022-8-12 09:13
+
+某队的tb身边四人保，某队的tb身边四人逃。某队的帕克潇洒一套满血see，某队的帕克切后排如切瓜。
+
+*****
+
+####  syndrome2032  
+##### 8057#       发表于 2022-8-12 09:16
+
+ 本帖最后由 syndrome2032 于 2022-8-12 09:21 编辑 
+
+没啥好说的啊。鳖茶想和雪碧拼4保1那是拼不过的。
+不知道为什么会有人觉得茶能过雪碧。
+我是觉得真的打不过。
+
+*****
+
+####  逃离二次元  
+##### 8058#       发表于 2022-8-12 09:16
+
+全村希望雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 8059#       发表于 2022-8-12 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030158&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-12 09:13</a>
+
+合着都是扭曲的LGD粉啊，牛逼牛逼。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天爬了一遍ti10的楼感觉能标记楼里一（小）半好吧
+
+*****
+
+####  杜文乐超神归来  
+##### 8060#       发表于 2022-8-12 09:18
+
+不是，你们搞得好像OG被碾了一样<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 8061#       发表于 2022-8-12 09:19
+
+雪碧这个状态，别把电棍给老干瘪应该是冠了，但是拿了major会被砍的吧。
+
+*****
+
+####  lyuhiu  
+##### 8062#       发表于 2022-8-12 09:19
+
+电棍戴泽陈马西major结束后一个都跑不掉，小小应该也还会小削一下，改投掷距离
+
+*****
+
+####  syndrome2032  
+##### 8063#       发表于 2022-8-12 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030225&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-12 09:18</a>
+昨天爬了一遍ti10的楼感觉能标记楼里一（小）半好吧</blockquote>
+心情复杂，希望仙贝现在就被打爆憋壳但是很有可能赛后屠刀就宰不到ti了。
+
+但要是现在不打爆憋壳等版本屠刀那就是集美继续狂欢两个月。
+
+*****
+
+####  azccc52  
+##### 8064#       发表于 2022-8-12 09:21
+
+又到了全村希望雪碧的时候<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 8065#       发表于 2022-8-12 09:21
+
+雪碧小组赛和这个胜者组第一场和今天的状态比起来根本像是两个队伍，这个逼队学东西真的有点快
+
