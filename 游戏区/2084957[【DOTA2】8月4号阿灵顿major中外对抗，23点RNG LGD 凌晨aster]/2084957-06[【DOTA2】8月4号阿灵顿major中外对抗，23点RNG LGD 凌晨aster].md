@@ -4684,3 +4684,109 @@ gpk好像在采访里说过目标前六，不出意外估计结果差不多。
 
 2022-8-12 09:51 上传
 
+
+
+*****
+
+####  farAway  
+##### 8100#       发表于 2022-8-12 09:53
+
+国土有点头铁啊，第一把放陈电棍，第二把又放。为什么中国队遇到雪碧总是不服软，一直就不肯ban。算上TI10这都连续多少把了
+
+
+
+*****
+
+####  反方向的波  
+##### 8101#       发表于 2022-8-12 09:54
+
+奶一口666被wisper戏耍
+
+*****
+
+####  白色的120  
+##### 8102#       发表于 2022-8-12 09:55
+
+666在vp时候挺猛，现在是真不太行了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 8103#       发表于 2022-8-12 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030335&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-12 09:26</a>
+
+要是lgd赢了major，还是把你楼移到管人区吧，集美轰入那种事情不要啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还是连斩og雪碧再斩og\雪碧拿的major冠军哦
+
+*****
+
+####  IG.430  
+##### 8104#       发表于 2022-8-12 09:57
+
+我感觉我被我自己的比喻恶心到了，888罪不至此<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+至少888没有按着意大利人的头说什么全意大利的希望
+
+*****
+
+####  syndrome2032  
+##### 8105#       发表于 2022-8-12 09:59
+
+66我记得和厂公一个年龄段的。打还是能打，但是作为c的质保年限也快到头了。
+
+*****
+
+####  逃离二次元  
+##### 8106#       发表于 2022-8-12 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030746&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-12 09:57</a>
+还是连斩og雪碧再斩og\雪碧拿的major冠军哦</blockquote>
+潮水来袭<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 8107#       发表于 2022-8-12 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">集美:lgd dpc第三季没认真打，给兄弟们放水
+<img src="https://pic.imgdb.cn/item/62f5b3bf16f2c2beb1e2db20.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.imgdb.cn/item/62f5b3bf16f2c2beb1e2db19.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 反方向的波|-1|搬屎三件星有点过分了|
+
+查看全部评分
+
+*****
+
+####  蛭人  
+##### 8108#       发表于 2022-8-12 10:01
+
+别搬超级假赛集美论坛的屎了，不服就跟他们干啊，素质哥都敢干。
+
+*****
+
+####  nowaki  
+##### 8109#       发表于 2022-8-12 10:01
+
+有没有可能真的是四赵云带不动a畜
+
+*****
+
+####  反方向的波  
+##### 8110#       发表于 2022-8-12 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">求求你把屎在一层里发完
+
