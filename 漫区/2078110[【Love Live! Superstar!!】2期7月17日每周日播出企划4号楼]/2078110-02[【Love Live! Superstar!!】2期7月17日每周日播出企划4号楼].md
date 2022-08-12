@@ -9900,3 +9900,45 @@ v要皮套丑可不行
 
 上映会是一开始就分配好的
 
+
+
+*****
+
+####  Enakina  
+##### 2464#       发表于 2022-8-12 21:41
+
+这分析可不准，一到四集有青山什么事吗，原计划不也上的吗
+
+*****
+
+####  player3960  
+##### 2465#       发表于 2022-8-12 21:44
+
+问题是也只有可可的个人回没讲啊，要是5-8有你们奶那么久的追飞机，不请鲤鱼来说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 2466#       发表于 2022-8-12 21:46
+
+ 本帖最后由 aoaoaodedede 于 2022-8-12 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039997&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-12 21:39</a>
+
+不懂，上映会选人一定是会和动画有关的吗？</blockquote>
+别的不说，如果那个角色在那一段动画里有主要戏份，那么不喊她去上映会喊谁去？
+
+假如5-8集有可可回，那么让鲤鱼缺席是个很恶心人的决定，况且鲤鱼目前也并没有很明显的不能出席的客观原因。
+
+当然这个推测是建立在企划方不整骚操作的情况下，不然无法预测
+
+*****
+
+####  愛さ実  
+##### 2467#       发表于 2022-8-12 21:48
+
+什么鬼，两次上映会就只有一个成员没上是吧？搞孤立呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
