@@ -10156,3 +10156,39 @@ Entity的Kataomi可能是这届比赛打得最好的冰龙之一
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zkc1991  
+##### 8718#       发表于 2022-8-13 07:13
+
+对面这个队全是控制，没输出，好几波谜团控制拉满了，结果打不死人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 8719#       发表于 2022-8-13 07:15
+
+人猫合一？
+
+*****
+
+####  rubicon  
+##### 8720#       发表于 2022-8-13 07:16
+
+suzuya的冰龙还菜？明明是tobi谜团的问题
+
+怪不得喜欢转太监论坛的屎，水平差不多嗷
+
+*****
+
+####  zkc1991  
+##### 8721#       发表于 2022-8-13 07:20
+
+来了个宙斯，有输出了，这把有的玩了
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
