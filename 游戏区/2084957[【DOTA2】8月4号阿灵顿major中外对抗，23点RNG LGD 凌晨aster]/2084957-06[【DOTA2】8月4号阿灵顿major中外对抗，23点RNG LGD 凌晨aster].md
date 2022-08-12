@@ -4130,3 +4130,105 @@ bo10！bo10！
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  北条早苗  
+##### 8034#       发表于 2022-8-12 08:52
+
+曾焦阳连东京哥都压不住了，视野也是爆中爆，这就是硬实力打不过了啊
+
+*****
+
+####  健康猹  
+##### 8035#       发表于 2022-8-12 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029861&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-12 08:48</a>
+
+崩溃哥还脑浆么，这几把电棍感觉顶中顶啊</blockquote>
+你不能说他靠队友局势打完了补出来刷新往前一A赢了就是顶中顶了，前期的处理问题还是多，这样上去打那谁肯定不太够
+
+*****
+
+####  蛭人  
+##### 8036#       发表于 2022-8-12 08:52
+
+度假社摆烂，不大更新的话，今年基本就这样了。
+
+*****
+
+####  万世创伤伊莫库  
+##### 8037#       发表于 2022-8-12 08:53
+
+说起来这版本中路在ban掉puck宙斯的情况下还能出TK吗？想看NTS的TK大战鸭头罗的TB，感觉团战会很好看
+
+*****
+
+####  12481632  
+##### 8038#       发表于 2022-8-12 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029901&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-12 08:51</a>
+后天胜决应该是11点开吧别整个阴间时间了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
+不好意思，胜决半夜两点，总决半夜三点<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 8039#       发表于 2022-8-12 08:53
+
+皮球多练点新辅助啊，只会反手辅助bp很吃亏啊
+
+*****
+
+####  walfeds  
+##### 8040#       发表于 2022-8-12 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">og就当拉练了，压力给够才好练级
+
+
+
+*****
+
+####  tasuku  
+##### 8041#       发表于 2022-8-12 08:55
+
+tb帕克电棍，凑一凑不就是某队的回家局
+
+*****
+
+####  锯子万藏  
+##### 8042#       发表于 2022-8-12 08:56
+
+今年这个版本，24地位相比以前更低了，但还是开团。35地位前所未有的高，吃资源干事。1需要参战。
+
+这种版本，茶基本就是世界第四的水平，前面三个都是无死角无短板，lgd还是能最大化邪恶双雄能力的。
+要知道就算是邪恶双雄，在那个无限线优的版本，就是坐起来也啥都打不出，这两本质上都是秀儿在不能吃资源的位置上。
+
+*****
+
+####  thistimeforlife  
+##### 8043#       发表于 2022-8-12 08:57
+
+东京哥多次被抓一次没死，yatoro的tb出山窒息节奏收比赛，崩溃哥要是再给点力的话，就很有ti10g5的味道了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  反方向的波  
+##### 8044#       发表于 2022-8-12 08:57
+
+回家局g1是tb帕克光法，打马体那把机械之心刚被才是tb帕克电棍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 8045#       发表于 2022-8-12 08:58
+
+又变成全村希望老干爹了吗？
+
