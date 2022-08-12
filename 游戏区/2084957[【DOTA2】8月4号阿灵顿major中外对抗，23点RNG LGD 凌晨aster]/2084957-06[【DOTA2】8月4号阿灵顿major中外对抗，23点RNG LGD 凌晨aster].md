@@ -5502,3 +5502,91 @@ yuragi盾消后自信波塔下残血y被反杀，肉山坑转敏被nts戳晕+山
 
 雪碧回暖是好事，李狗蛋夺冠集美狂欢，那种事情不要啊
 
+
+
+*****
+
+####  43453  
+##### 8186#       发表于 2022-8-12 11:13
+
+老东京打老年人ori得心应手啊，本来雪碧茶各有一个大的短板，老东京痊愈了，杜鹏还是把拖后腿
+
+*****
+
+####  Yukino-Yukino  
+##### 8187#       发表于 2022-8-12 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031902&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-12 11:11</a>
+
+感觉是lgd连斩ts两次夺冠的世界线了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就真的发大水了
+
+*****
+
+####  usoda  
+##### 8188#       发表于 2022-8-12 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不能是TS二连冠呢 丫头肉god也是god啊
+
+*****
+
+####  walfeds  
+##### 8189#       发表于 2022-8-12 11:16
+
+<blockquote>早说了，楼里一大半人撕了皮套下面都会露出lgd粉的样子。现在都在反奶呢</blockquote>
+我真怕了，润了
+
+*****
+
+####  shinra  
+##### 8190#       发表于 2022-8-12 11:17
+
+OG.Yuragi：决胜局求求再不要给我选水人了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nowaki  
+##### 8191#       发表于 2022-8-12 11:17
+
+那肯定说的是major夺冠，ti再不改这假三真一版本，v社也太畜了
+
+*****
+
+####  沈淮  
+##### 8192#         楼主| 发表于 2022-8-12 11:17
+
+<blockquote>https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022320&amp;page=720&amp;authorid=516436
+
+ 发表于 2021-10-18 02:30 | 显示全部楼层
+
+CN Dota亡在今年了吧 Wings是最后一个盾了</blockquote>
+
+很对味
+
+*****
+
+####  thistimeforlife  
+##### 8193#       发表于 2022-8-12 11:18
+
+问题不大，作为ti8就更希望og赢的人，看了老干瘪这么多年笑话，也够本了
+
+好壳我缩！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 8194#       发表于 2022-8-12 11:18
+
+去年一堆人就在扣扣扣，怕什么
+
+*****
+
+####  名字不乱取  
+##### 8195#       发表于 2022-8-12 11:20
+
+我已经放下凡人的dota了，心里只有克神的表演<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+傻逼赛程克神在明天两点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
