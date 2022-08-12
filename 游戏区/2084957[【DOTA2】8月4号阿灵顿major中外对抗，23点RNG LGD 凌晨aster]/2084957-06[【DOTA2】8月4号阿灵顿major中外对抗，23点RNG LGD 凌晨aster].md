@@ -4582,3 +4582,105 @@ gpk好像在采访里说过目标前六，不出意外估计结果差不多。
 
 不过我挺搞不懂，癫痫小子和pure先后跑路，cis也找不到mdy的1号位or天才少年结果还是抓了666?
 
+
+
+*****
+
+####  syndrome2032  
+##### 8088#       发表于 2022-8-12 09:42
+
+结果混着混着eg还是直邀了?那横竖还是一轮回家。
+
+*****
+
+####  遍体精淋af  
+##### 8089#       发表于 2022-8-12 09:43
+
+东欧区找天才少年太容易了，感觉vp还是怕天才少年太年轻气盛和pure一样，所以为了进ti还去求稳找小刘666
+
+*****
+
+####  反方向的波  
+##### 8090#       发表于 2022-8-12 09:45
+
+把天赋异禀但看起来会脑浆的小孩都统统送去西欧，以后卧底给独联体区本部送盾
+
+*****
+
+####  walfeds  
+##### 8091#       发表于 2022-8-12 09:47
+
+好好好，cis dota best dota<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 8092#       发表于 2022-8-12 09:47
+
+早上5，6点搞了个闹钟看og打lgd决胜局，那个水人看的我脑溢血，好几波在那边被集火转敏捷，当时弹幕集美看局势不对，已经在怪面8 BP吃菜了，结果og不争气，还是给集美递了刀子<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  farAway  
+##### 8093#       发表于 2022-8-12 09:47
+
+雪碧今年要是联庄TI那可就好玩了，外国队天天联庄，中国队年年第二
+
+*****
+
+####  健康猹  
+##### 8094#       发表于 2022-8-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030449&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-12 09:35</a>
+
+怎么说呢，毛豆和狗鸡都会联合起来期盼888大输特输</blockquote>
+哈哈哈哈有这个味道了
+
+*****
+
+####  人別離苦  
+##### 8095#       发表于 2022-8-12 09:48
+
+打团冒绿光的水人真的遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 8096#       发表于 2022-8-12 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57030457&amp;ptid=2084957" target="_blank">一夜秋风袭锦城 发表于 2022-8-12 09:35</a>
+呃呃，怎么还有坛友抓着反向波说事的。虽然不是很想再时光倒流个被聊烂的ti8，但ti8g4真不是输在那个反向波 ...</blockquote>
+想到集美洗a➗这种出装了哈哈哈
+<img src="https://pic.imgdb.cn/item/62f5b0a216f2c2beb1db052e.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 8097#       发表于 2022-8-12 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支持雪碧连冠
+
+*****
+
+####  12481632  
+##### 8098#       发表于 2022-8-12 09:51
+
+漏油别再搬屎了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山上徹也  
+##### 8099#       发表于 2022-8-12 09:52
+
+<img src="https://img.saraba1st.com/forum/202208/12/095157or7bwju2r6zffr67.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7FBEE9C7-3D9D-4EBC-9C3A-FEDCA694F535.jpeg</strong> (310.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 09:51 上传
+
