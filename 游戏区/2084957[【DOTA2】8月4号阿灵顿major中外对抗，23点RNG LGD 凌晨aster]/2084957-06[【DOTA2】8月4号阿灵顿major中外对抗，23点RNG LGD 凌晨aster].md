@@ -7668,3 +7668,33 @@ df羞辱是什么</blockquote>
 
 就这点水声还卜够大，干瘪拿下major同时皮套人被开盒才会让漏油们放弃幻想统统造诺亚方舟去
 
+
+
+*****
+
+####  nowaki  
+##### 8434#       发表于 2022-8-12 18:33
+
+cdec时期的一闪，以前和我对线的集美话术是，队友cba，这些人现在在哪呢。
+
+*****
+
+####  蛭人  
+##### 8435#       发表于 2022-8-12 18:38
+
+每当集美说maybe和ame分散后，处长成绩有多吊，老北京成精有多差，我就会想起那只cdec的故事，嘴角不禁上扬。
+
+*****
+
+####  usoda  
+##### 8436#       发表于 2022-8-12 18:40
+
+慌什么 处长有表演型人格障碍的 四赵云状态下滑之时就是处长原形毕露之日好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 8437#       发表于 2022-8-12 18:41
+
+问就是血抬cdec<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然集美的一般话术还是离开了ame的cdec（尤其是xm）如何如何
+
