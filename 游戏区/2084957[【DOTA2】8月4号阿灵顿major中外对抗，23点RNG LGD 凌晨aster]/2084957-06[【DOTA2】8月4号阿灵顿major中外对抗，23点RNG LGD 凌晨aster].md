@@ -5427,3 +5427,78 @@ Q：你们成功为R ...</blockquote>
 
 第二季是💩，第三季还没来得及看
 
+
+
+*****
+
+####  健康猹  
+##### 8177#       发表于 2022-8-12 11:04
+
+想清算茶粉的才是搞错了什么，我们茶粉就没信过杜鹏儿和X哥儿能赢雪碧，怕不是俱乐部完成目标已经准备放假打野了。
+
+*****
+
+####  trackerList  
+##### 8178#       发表于 2022-8-12 11:05
+
+wake me up when october ends😪
+
+*****
+
+####  seki_m  
+##### 8179#       发表于 2022-8-12 11:05
+
+看了下oglgd第三把
+yuragi盾消后自信波塔下残血y被反杀，肉山坑转敏被nts戳晕+山崩到死
+这属于机体差机师也不行好吧
+
+*****
+
+####  thistimeforlife  
+##### 8180#       发表于 2022-8-12 11:07
+
+看看鳖星和雪碧小组赛的前期，和这2把的前期，还有无限秀的老东京，就知道到点了
+
+*****
+
+####  超人苏坦纳  
+##### 8181#       发表于 2022-8-12 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031663&amp;ptid=2084957" target="_blank">dreamquest 发表于 2022-8-12 10:57</a>
+
+龙之血第二季就没看了
+
+好看吗</blockquote>
+图一乐吧 网飞出品什么调性还不知道吗
+
+*****
+
+####  chilno  
+##### 8182#       发表于 2022-8-12 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031776&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-12 11:04</a>
+
+想清算茶粉的才是搞错了什么，我们茶粉就没信过杜鹏儿和X哥儿能赢雪碧，怕不是俱乐部完成目标已经准备放假 ...</blockquote>
+快发图认错！
+
+*****
+
+####  nowaki  
+##### 8183#       发表于 2022-8-12 11:11
+
+感觉是lgd连斩ts两次夺冠的世界线了
+
+*****
+
+####  usoda  
+##### 8184#       发表于 2022-8-12 11:11
+
+雪碧这队只要老东京坐起来打那真的很恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝奈  
+##### 8185#       发表于 2022-8-12 11:12
+
+雪碧回暖是好事，李狗蛋夺冠集美狂欢，那种事情不要啊
+

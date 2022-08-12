@@ -8475,3 +8475,35 @@ BGO唯二的优点就是账号登陆和千里眼攒石了
 
 当然是1+5啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 804#       发表于 2022-8-12 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨晚半夜把友情点全抽了，三张莉莉没有哈贝喵，但我莉莉满宝哈贝喵只有二宝，好气啊
+
+*****
+
+####  angelooo  
+##### 805#       发表于 2022-8-12 11:06
+
+<blockquote>霧谷藤乃 发表于 2022-8-12 11:03
+昨晚半夜把友情点全抽了，三张莉莉没有哈贝喵，但我莉莉满宝哈贝喵只有二宝，好气啊 ...</blockquote>
+lily：友情池双up你怕了吗
+
+（其实根本就没有up
+
+*****
+
+####  麻花疼  
+##### 806#       发表于 2022-8-12 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57031475&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 10:46</a>
+
+奥伯龙宝具有什么用  最多也就只能打打上4
+
+当然是1+5啊</blockquote>
+已经2宝蛾子了，看来摩根抽个3差不多了。。。
+
