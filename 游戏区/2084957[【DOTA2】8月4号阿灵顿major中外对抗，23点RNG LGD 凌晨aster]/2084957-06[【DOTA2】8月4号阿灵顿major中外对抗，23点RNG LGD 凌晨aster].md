@@ -6508,3 +6508,44 @@ bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中�
 有个meme图我不敢转</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大不了缩壳到11月
 
+
+
+*****
+
+####  ArowRocher  
+##### 8303#       发表于 2022-8-12 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57034686&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 15:18</a>
+大不了缩壳到11月</blockquote>
+我说的是yurstrength和yurAGI那张，带了张人像照片，发完我直接封到11月了
+
+*****
+
+####  吃货红毛  
+##### 8304#       发表于 2022-8-12 15:23
+
+每次看辉耀计划分析团战都能看呆 虽然选手大概是小牛要魔晶控了，我得断他 这样正常的想法 但是整个团战这些都列出来看真觉得蛮夸张的
+
+*****
+
+####  excalibur--  
+##### 8305#       发表于 2022-8-12 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">漏油们怎么急了？今年有og和ts可以和lgd扳扳手腕的，凌晨这个bo3，og明显就差了一点，和lgd的差距不大的。更别说ts后期细节比lgd只好不差，今年至少都两个队可以和lgd拼拼的。去年那才是集体飞龙骑脸怎么输。今年克没什么信心
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 8306#       发表于 2022-8-12 15:28
+
+中单光一大主播了，阿林都切片了
+
+*****
+
+####  4591  
+##### 8307#       发表于 2022-8-12 15:31
+
+美酒最新的淘汰赛数据显示，夜魇的胜率快到80%了，天辉就赢了6场，这地图不动刀是不行了
+

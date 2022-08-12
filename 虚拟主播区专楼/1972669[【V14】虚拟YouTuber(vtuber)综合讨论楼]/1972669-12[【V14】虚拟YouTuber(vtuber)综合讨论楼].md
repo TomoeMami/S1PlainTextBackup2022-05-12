@@ -3990,3 +3990,14 @@ lize你也是cjb？
 
 EN吃瓜群众把VoxYashiro背后灵供起来之后yashiro就爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16861#       发表于 2022-8-12 15:27
+
+真没想到会悬念拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赛前我都默认两上两下，下二校的数据只有上二的75%这也能有悬念
+
