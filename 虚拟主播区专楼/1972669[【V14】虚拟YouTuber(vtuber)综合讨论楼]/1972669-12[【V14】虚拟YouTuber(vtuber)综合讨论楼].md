@@ -3820,3 +3820,20 @@ syl
 
 顺便现在真・甲子园那边也是刺激无比<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16841#       发表于 2022-8-12 12:27
+
+顺便B站也有力量棒球的玩家UP在解说，最近看的时候都是看这个台的。
+[https://live.bilibili.com/24895181](https://live.bilibili.com/24895181)
+
+*****
+
+####  alcoholic1000  
+##### 16842#       发表于 2022-8-12 12:31
+
+一表莎乐美体力已经掉了一多半，一个寄提前送给豆猫高校
+
