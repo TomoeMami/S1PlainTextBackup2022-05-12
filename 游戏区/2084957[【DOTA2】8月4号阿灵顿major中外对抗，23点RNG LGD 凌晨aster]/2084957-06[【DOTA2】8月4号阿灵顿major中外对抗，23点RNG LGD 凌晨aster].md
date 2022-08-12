@@ -7347,3 +7347,61 @@ lgd保持这个状态最多2成举盾 这改版一个月不知道出什么幺蛾
 漏油都是老傻狗，不用联合</blockquote>
 傻瓜没多少油水，加个s1冠名万一二狗投资了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 8397#       发表于 2022-8-12 17:44
+
+当时假赛也分好多个版本，我是相信lgd(八王)和其他一些之前参与菠菜的战队被菠菜公司架住被迫打假赛。选手们那些离谱的行为、操作(不单单决赛)一方面是做到菠菜公司的要求，一方面是对菠菜公司的抗议，八王决赛眼角的泪痕很好的验证了这一点。把这场戏演烂一点，让观众看出其中的端倪，然后和菠菜公司同归于尽(正常人肯定没有勇气直接自爆，于是八王选择卖出许多破绽让观众明白)。这里有个伪逻辑就是这么多假赛的要素是选手向观众们引导的。 不管ti10是否打假赛，Dota比赛存在假赛是不争的事实，nb就是一个很好的例子。所以那些说“说ti假赛就是想让cnDota死”的人才是不那么理性的，他们只是不想让别人骑自己的脸，说自己玩的是假赛游戏，这大概就是真正的刀斯林。我宁愿让ti10假赛，让别人骑我的脸去换取一个阳光猛烈的比赛环境。 以上是我在2021年十月下旬的一些想法。大家相信假赛论一方面确实决赛lgd有点抽象了，一方面是不了解雪碧这支战队。时隔一年我相信很多人已经慢慢喜欢上了雪碧这个队，这里的喜欢是场外大于比赛内的，也祝愿雪碧这五个人不要有什么骚操作。 最后先给自己扣个冠军粉、假赛论者的帽子，期待一下ti10的真视界，看看雪碧五个人的逆袭之路和lgd确实是发挥失常而不是打假赛。复制代码
+搬个大的，漏油们都不行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 8398#       发表于 2022-8-12 17:47
+
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的
+
+*****
+
+####  一品堂官  
+##### 8399#       发表于 2022-8-12 17:48
+
+已经刀圈四害，人人喊打了漏油们。
+
+*****
+
+####  12481632  
+##### 8400#       发表于 2022-8-12 17:48
+
+放心，这次major打完说不定就是ykw通俄派红脖子冲进赛场拿gun指着老干鳖打比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  星野航  
+##### 8401#       发表于 2022-8-12 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036601&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 18:47</a>
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的</blockquote>
+应该纯粹是因为姿势问题
+他俩中间夹了个miposhika，这人打比赛的时候喜欢把电脑摆斜，然后旁边俩顺着，所以看起来就是背靠背了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  莉拉厨  
+##### 8402#       发表于 2022-8-12 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036601&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-12 17:47</a>
+另外有人知道collapse和东京哥有啥梗吗？ 为啥打比赛2个人是背对背坐的</blockquote>
+俄乌...哦都是大毛啊，那就是斯拉夫阳光大男孩看不起蒙古杀软二次元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4176,3 +4176,25 @@ lz赢 顺位是lz 熊猫人 社长 豆猫
 
 这点drama 700踩和ib虹甲捏人优遇en男的1400踩比起来啥都不算
 
+
+
+*****
+
+####  poipanchao  
+##### 16876#       发表于 2022-8-12 17:41
+
+豆猫这成绩不行，fanart倒是挺多的
+这队剧情特别王道就是了
+乡下学校来了个天才选手莎皇
+努力了三年带队进甲子园
+莎皇的形象又有特点，画面感强
+
+*****
+
+####  poipanchao  
+##### 16877#       发表于 2022-8-12 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036309&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-8-12 17:23</a>
+下午在hnn弹幕栏里刷kmt和oreapo的属实有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报 ...</blockquote>
+下午播啥了就开刷？
+
