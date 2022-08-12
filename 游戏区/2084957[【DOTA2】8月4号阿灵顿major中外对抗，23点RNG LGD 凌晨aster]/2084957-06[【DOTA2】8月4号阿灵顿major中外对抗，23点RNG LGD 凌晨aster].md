@@ -10226,3 +10226,35 @@ ent好喜欢拿无视魔免的控制<img src="https://static.saraba1st.com/image
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  smkf013  
+##### 8726#       发表于 2022-8-13 07:35
+
+小小谜团兽王的三大哥，都不知道宙斯出满六神前打的动谁<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 8727#       发表于 2022-8-13 07:37
+
+一觉醒来1-0看来茶队形势大好<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 8728#       发表于 2022-8-13 07:38
+
+大老师确实是懂dota的哇
+
+*****
+
+####  zkc1991  
+##### 8729#       发表于 2022-8-13 07:38
+
+茶队到点<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
