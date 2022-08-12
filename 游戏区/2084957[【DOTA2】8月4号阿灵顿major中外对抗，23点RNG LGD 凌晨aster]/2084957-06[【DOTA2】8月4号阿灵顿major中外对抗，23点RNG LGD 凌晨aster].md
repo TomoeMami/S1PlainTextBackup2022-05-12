@@ -6454,3 +6454,31 @@ bzm这个让人看了大呼恶心的紫苑光法真的是要笑死东南亚中�
 
 老哥连ghost不是中国人都不知道
 
+
+
+*****
+
+####  Asukalangley33  
+##### 8298#       发表于 2022-8-12 14:56
+
+今天看几个社区集美开始集体发作了是什么情况？
+
+发生什么事了？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 8299#       发表于 2022-8-12 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033623&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-12 13:41</a>
+
+和id绑定在一起的致命失误</blockquote>
+有个meme图我不敢转<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 8300#       发表于 2022-8-12 15:02
+
+龟龟，辉耀计划这个复盘细啊
+
