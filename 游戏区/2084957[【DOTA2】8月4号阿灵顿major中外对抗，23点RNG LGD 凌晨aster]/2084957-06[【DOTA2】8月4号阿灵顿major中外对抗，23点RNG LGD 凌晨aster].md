@@ -10018,3 +10018,41 @@ bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  haruhiismer  
+##### 8701#       发表于 2022-8-13 06:33
+
+茶队没有远程a塔的人，我已经看到结局了鳖到后期被谜团冰龙两个大团控玩弄
+
+*****
+
+####  反方向的波  
+##### 8702#       发表于 2022-8-13 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒来一看又中了！我就知道vp要翻车
+
+*****
+
+####  tasuku  
+##### 8703#       发表于 2022-8-13 06:39
+
+怎么轮盘还dokidoki
+小林你还不承认自己是日本人吗
+
+*****
+
+####  白笛之音  
+##### 8704#       发表于 2022-8-13 06:39
+
+道理我都懂，为什么这个天光现世这么大<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 8705#       发表于 2022-8-13 06:40
+
+你可以不相信鳖茶，但是要相信夜魇百分之80胜率的含金量。
+
