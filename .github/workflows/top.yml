@@ -3,8 +3,8 @@
 
 name: get_a_thread_id
 
-on:
-  push
+#on:
+#  push
 jobs:
   S1TopThreads:
     runs-on: ubuntu-latest
