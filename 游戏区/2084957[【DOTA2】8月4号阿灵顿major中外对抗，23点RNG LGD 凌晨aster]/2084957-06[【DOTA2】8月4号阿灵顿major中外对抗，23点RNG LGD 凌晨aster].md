@@ -8429,3 +8429,63 @@ FC16E417-0B98-437D-929F-6A7607F35191.gif
 
 那问题来了 有不是集美的lgd粉吗
 
+
+
+*****
+
+####  蛭人  
+##### 8515#       发表于 2022-8-12 20:53
+
+没有不是集美的LGD粉。
+
+*****
+
+####  沈淮  
+##### 8516#         楼主| 发表于 2022-8-12 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038458&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-12 20:02</a>
+这头像，是你吗lz
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是，我只有s1用的土豆泥当头像
+
+*****
+
+####  Yukino-Yukino  
+##### 8517#       发表于 2022-8-12 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许有35粉吧，不过加起来没有集美的零头多。
+
+*****
+
+####  nowaki  
+##### 8518#       发表于 2022-8-12 20:56
+
+wings邪恶面的粉丝，我不能接受
+
+*****
+
+####  反方向的波  
+##### 8519#       发表于 2022-8-12 20:57
+
+搞不好是清流粉残部
+
+*****
+
+####  蛭人  
+##### 8520#       发表于 2022-8-12 20:58
+
+能粉邪恶兄弟的，肯定能成为集美。
+
+
+
+*****
+
+####  chilno  
+##### 8521#       发表于 2022-8-12 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039339&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-12 20:55</a>
+
+也许有35粉吧，不过加起来没有集美的零头多。</blockquote>
+xincute应该也有粉的
+
