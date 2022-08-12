@@ -8589,3 +8589,42 @@ BallanceHZ进来一下，杰醋粉为了证明他不拷打鳖星的合理性说�
 直接做个拷打lgd的我就认杰出</blockquote>
 我怎么记得DPC的LGD整蛊的时候出过一期，说他们科研都算不上科研，就是在乱玩
 
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 8533#       发表于 2022-8-12 21:13
+
+88sg，集美萌我们ti结束准时见
+
+*****
+
+####  Yukino-Yukino  
+##### 8534#       发表于 2022-8-12 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039622&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-12 21:12</a>
+
+我怎么记得DPC的LGD整蛊的时候出过一期，说他们科研都算不上科研，就是在乱玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说ti10啊，dpc的时候lgd在乱玩还需要他来告诉我们么。
+
+*****
+
+####  ArowRocher  
+##### 8535#       发表于 2022-8-12 21:14
+
+有一期标题叫什么AME铁锅什么，忘了。
+
+不过aster第一盘甚至都没有复盘价值吗
+
+*****
+
+####  BallanceHZ  
+##### 8536#       发表于 2022-8-12 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57039591&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-12 21:10</a>
+找我何意呢，哪边粉丝找不出傻x
+
+其实但凡看下切片up的播放量就知道，茶流量就是比lgd和rng差的多 ...</blockquote>
+哦我还想到一点，monet那个犯罪方式相较于a/m缺乏“观赏性”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
