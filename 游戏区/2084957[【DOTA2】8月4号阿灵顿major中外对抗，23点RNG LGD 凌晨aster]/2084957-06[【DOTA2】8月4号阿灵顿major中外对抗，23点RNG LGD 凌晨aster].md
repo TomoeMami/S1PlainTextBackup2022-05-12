@@ -8198,3 +8198,32 @@ major打完的更新还不知道咋样呢
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  nxmonitor  
+##### 8493#       发表于 2022-8-12 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57038550&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-12 20:07</a>
+
+藏个屁啊
+
+major打完的更新还不知道咋样呢</blockquote>
+猛选其他队的绝活就等于藏自己的阵容，发育三什么**电魂要是被削弱后，TS估计也会得到明显加强的，OG倒是因为ATF阵容池原因就挺难受的……
+
+*****
+
+####  BallanceHZ  
+##### 8494#       发表于 2022-8-12 20:20
+
+终于去看了茶的回放，monet这大圣玩的啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 8495#       发表于 2022-8-12 20:22
+
+楼友们这展望也太早了，只希望这次不论lgd还是og或者ts输了都别有人说藏阵容打ti就行，别的该吹吹该喷喷
+不过有个没来的秘密那肯定藏住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
