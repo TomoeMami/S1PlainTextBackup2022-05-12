@@ -10138,3 +10138,14 @@ v要皮套丑可不行
 查了下，果然没记错，2月那次是青山去 ...</blockquote>
 好像没看到熟肉，不知道nagi那次有些什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 2483#       发表于 2022-8-12 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040813&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-12 22:31</a>
+好像没看到熟肉，不知道nagi那次有些什么</blockquote>
+我也没看，还记得有人吐槽过无聊，我还找到了<img src="https://p.sda1.dev/6/e2c8634ac453e2636a58d2ec24f3ffe5/CMP_20220812223637108.jpg" referrerpolicy="no-referrer">
+

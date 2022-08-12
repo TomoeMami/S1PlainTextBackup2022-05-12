@@ -9023,3 +9023,15 @@ nga的特点不就是，不管是哪个板块，稍微看一会儿就能感受�
  ...</blockquote>
 不知道，我是看油管的
 
+
+
+*****
+
+####  战狼PTSD  
+##### 8580#       发表于 2022-8-12 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040414&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-12 22:05</a>
+
+A畜和北美A畜赶紧死在沙滩上吧</blockquote>
+在哪看的，发来看看
+
