@@ -7698,3 +7698,81 @@ cdec时期的一闪，以前和我对线的集美话术是，队友cba，这些�
 
 问就是血抬cdec<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然集美的一般话术还是离开了ame的cdec（尤其是xm）如何如何
 
+
+
+*****
+
+####  walfeds  
+##### 8438#       发表于 2022-8-12 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一闪是什么，我只听说过一门
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遗尿  
+##### 8439#       发表于 2022-8-12 18:44
+
+笑死，AI画的小美，好面熟啊。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+006tGNzXly1h544fyxelgj30e80hs3zj.jpg
+(47.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/12/184342qeheqneq30uh9voj.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 8440#       发表于 2022-8-12 18:45
+
+版主刚当管人的时候已经被开过了，找了半天没找到啥黑点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  夏溪澪mio  
+##### 8441#       发表于 2022-8-12 18:45
+
+雪碧好像越来越强了，看起来很像ti9的og剧本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 8442#       发表于 2022-8-12 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对哥哥不敬就是最大的黑点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  遍体精淋af  
+##### 8443#       发表于 2022-8-12 18:45
+
+20年取消ti确实影响了几个队，包括当时赛垃圾最后一春的ehome和“七冠王”秘密还是唯一能决赛击败秘密的nigma，如果ti不取消这几个队的应该都能拿一个好成绩
+本来处长应该在cdec搓泥巴，然后因为疫情ti取消，23458直接被水厂搬走了也让处长翻身了，令人感慨
+
+*****
+
+####  Litccc  
+##### 8444#       发表于 2022-8-12 18:47
+
+这波老lxo是不是死绝了，要么结晶成集美要么被打成小蚂蚁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8445#       发表于 2022-8-12 18:51
+
+lxo应该是死完了，要不也不能有过去几年a畜扛着23457走的错误印象。
+
+我就不说了以前ti5的lgd阵容多好了，就算是ti89 a畜也是老北京的小弟而已，现在已经岁月史书成全靠a畜才拿到亚军也太离谱了。
+
