@@ -9984,3 +9984,37 @@ bc这军事化推高<img src="https://static.saraba1st.com/image/smiley/face2017
 
 2022-8-13 06:16 上传
 
+
+
+*****
+
+####  walfeds  
+##### 8697#       发表于 2022-8-13 06:20
+
+0.05分宛如天堑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  haruhiismer  
+##### 8698#       发表于 2022-8-13 06:23
+
+这个entity甚至没一个正常会玩一号位的人，真的可以研究一下两个三号位咋能赢
+
+*****
+
+####  haruhiismer  
+##### 8699#       发表于 2022-8-13 06:29
+
+哇ori又尿了
+
+*****
+
+####  walfeds  
+##### 8700#       发表于 2022-8-13 06:29
+
+焦阳挨打之年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
