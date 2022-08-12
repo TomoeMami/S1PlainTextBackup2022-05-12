@@ -3647,3 +3647,310 @@ TI10总决赛BO服再开！
 
 ori这把屠夫，两个字丑陋。
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 7971#       发表于 2022-8-12 08:32
+
+杜鹏真是太搞笑了
+
+*****
+
+####  莉拉厨  
+##### 7972#       发表于 2022-8-12 08:33
+
+这puck真的赏心悦目，太熟练了
+
+*****
+
+####  tasuku  
+##### 7973#       发表于 2022-8-12 08:33
+
+阿茶的突破：多走了一轮
+
+*****
+
+####  w2210059  
+##### 7974#       发表于 2022-8-12 08:33
+
+打团一个睡，太牛了吧，这大哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 7975#       发表于 2022-8-12 08:34
+
+这monet是真搞笑啊。
+
+*****
+
+####  nightmare902015  
+##### 7976#       发表于 2022-8-12 08:34
+
+g3都打不起来吗，草太失望了
+
+*****
+
+####  反方向的波  
+##### 7977#       发表于 2022-8-12 08:35
+
+雪碧这围绕着tb打真的洗眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">rng打的什么吊东西
+
+*****
+
+####  我爱撩菜  
+##### 7978#       发表于 2022-8-12 08:35
+
+羊刀TB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 7979#       发表于 2022-8-12 08:35
+
+东京这盘一次都没死，每波团都准确把茶队截断了
+
+只感觉这个puck玩的让茶队非常非常绝望
+
+感觉这届比赛能看到LGD跟雪碧BO3+BO5的BO服了
+
+*****
+
+####  smkf013  
+##### 7980#       发表于 2022-8-12 08:35
+
+一觉醒来，茶没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  聚散浮云  
+##### 7981#       发表于 2022-8-12 08:36
+
+一进来就看到杜鹏这究极脑浆naga，本体不敢去A一下的
+
+*****
+
+####  smlszh  
+##### 7982#       发表于 2022-8-12 08:36
+
+鳖粉就是别人反对吃屎 就硬吃 边吃边乐
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 7983#       发表于 2022-8-12 08:36
+
+娜迦a出来是不是想针对tb的bkb啊，结果别人前面根本没出bkb
+
+*****
+
+####  我爱撩菜  
+##### 7984#       发表于 2022-8-12 08:37
+
+陈有A，TB有bkb，下波没机会了
+
+*****
+
+####  ArowRocher  
+##### 7985#       发表于 2022-8-12 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57029554&amp;ptid=2084957" target="_blank">pikamee 发表于 2022-8-12 08:21</a>
+美国贴吧观战贴上个bo3水了2000楼，这个bo3到现在才70个回复
+
+这ti冠军真是没有盘 ...</blockquote>
+他们自己都看不上na dota,RTZ挂嘴上溜
+
+*****
+
+####  kiraabu  
+##### 7986#       发表于 2022-8-12 08:37
+
+这个早茶喝得神清气爽，鳖茶能留到现在还是分组好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 7987#       发表于 2022-8-12 08:37
+
+小娜迦经济不甩tb一个大件她能和tb对A吗，没那个能力呀
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AkaiSuisei  
+##### 7988#       发表于 2022-8-12 08:38
+
+A装备了
+
+*****
+
+####  nightmare902015  
+##### 7989#       发表于 2022-8-12 08:38
+
+naga出a不是关键，这个a针对电魂bkb刷新也很有用。玩的不行是关键
+
+*****
+
+####  吃货红毛  
+##### 7990#       发表于 2022-8-12 08:38
+
+丢了一地装备还行来自: iPhone客户端
+
+*****
+
+####  w2210059  
+##### 7991#       发表于 2022-8-12 08:38
+
+高地a装备，可惜不是鸭头肉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 7992#       发表于 2022-8-12 08:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这两把雪碧太离谱了，几乎没有失误。当然可能也是茶的问题
+
+*****
+
+####  w2210059  
+##### 7993#       发表于 2022-8-12 08:38
+
+高地a装备，可惜不是鸭头肉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 7994#       发表于 2022-8-12 08:38
+
+雪碧这状态 爽
+
+*****
+
+####  端木恋心  
+##### 7995#       发表于 2022-8-12 08:38
+
+感觉这个比赛结束电魂要被削没了。
+
+*****
+
+####  tasuku  
+##### 7996#       发表于 2022-8-12 08:38
+
+这没a吧，捡回去了
+
+*****
+
+####  端木恋心  
+##### 7997#       发表于 2022-8-12 08:39
+
+感觉这个比赛结束电魂要被削没了。
+
+*****
+
+####  夏溪澪mio  
+##### 7998#       发表于 2022-8-12 08:39
+
+电魂也是集美，高地丢装备致敬偶像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  聚散浮云  
+##### 7999#       发表于 2022-8-12 08:39
+
+yatoro这tb出装切入也够A畜打印出来一帧一帧学了
+
+*****
+
+####  夏溪澪mio  
+##### 8000#       发表于 2022-8-12 08:39
+
+电魂也是集美，高地丢装备致敬偶像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 8001#       发表于 2022-8-12 08:39
+
+意思是崩溃哥也是集美
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  snarc1  
+##### 8002#       发表于 2022-8-12 08:40
+
+小纳迦这a杖应该换成金箍棒的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一夜秋风袭锦城  
+##### 8003#       发表于 2022-8-12 08:40
+
+这两把雪碧满中爆满，鳖茶打不过正常。看胜决干瘪打雪碧吧。
+
+*****
+
+####  aisakahammer  
+##### 8004#       发表于 2022-8-12 08:40
+
+雪碧状态这么好，能不能把lgd屠了
+
+*****
+
+####  万世创伤伊莫库  
+##### 8005#       发表于 2022-8-12 08:40
+
+雪碧全队打这种大核荣耀确实打得太好了，一点一点有条不紊的把你按死，去年总决G2也是这个感受
+
+*****
+
+####  walfeds  
+##### 8006#       发表于 2022-8-12 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑东京不脑了，我哭死
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AkaiSuisei  
+##### 8007#       发表于 2022-8-12 08:41
+
+龙心蝴蝶你打的死谁
+
+*****
+
+####  Keynes  
+##### 8008#       发表于 2022-8-12 08:41
+
+bo10！bo10！
+
+*****
+
+####  thistimeforlife  
+##### 8009#       发表于 2022-8-12 08:41
+
+茶这2把就是实力被撵，看上去就是所有人都在尿
+
+*****
+
+####  锯子万藏  
+##### 8010#       发表于 2022-8-12 08:42
+
+这是雪碧和lgd的bo几了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+是不是有这两队一起的决赛都是这两队打
+
