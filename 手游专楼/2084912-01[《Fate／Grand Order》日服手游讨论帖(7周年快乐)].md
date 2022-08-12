@@ -8943,3 +8943,69 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 然后11区发出来的很多都是些看着就头大的满配爆速过本阵容，有时候都会不自觉的想，11区的普通玩家到底是怎么过的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 838#       发表于 2022-8-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033863&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-12 14:01</a>
+
+我不知道appmedia是怎么想的，但是这种文化差异我认为确实是存在的
+
+以前还在玩GBF的时候，国内常见的是稳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（
+
+*****
+
+####  qixinno2  
+##### 839#       发表于 2022-8-12 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033884&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:03</a>
+
+现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是发达国家和发展中国家的差距么
+
+*****
+
+####  alucardcz  
+##### 840#       发表于 2022-8-12 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033906&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-12 14:05</a>
+
+这就是发达国家和发展中国家的差距么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课佬也没那么空每个角色都拉120+2000啊 而且也做不到 都是有限的物资
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 841#       发表于 2022-8-12 14:09
+
+怎么感觉我遇上的日服好友大多挺佛系的，一些拐的技能都没点满，原来极差这么大嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 842#       发表于 2022-8-12 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033884&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:03</a>
+
+现在appmedia的排行默认5星都是5宝120+2000起步  你做为本楼最强的课佬估计都做不到（ ...</blockquote>
+你不要乱讲
+
+我一个均2~3宝的何德何能当氪佬，这楼里复数5宝的都有好几个吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 843#       发表于 2022-8-12 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57033921&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-12 14:06</a>
+
+课佬也没那么空每个角色都拉120+2000啊 而且也做不到 都是有限的物资</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以做那榜的那人是不是脑子有坑
+
