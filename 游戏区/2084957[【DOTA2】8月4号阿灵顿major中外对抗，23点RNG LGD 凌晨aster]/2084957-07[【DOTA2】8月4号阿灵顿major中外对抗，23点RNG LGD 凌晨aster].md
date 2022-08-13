@@ -3929,3 +3929,56 @@ a畜司马 集美司马
 
 ti8 og的翻盘局打了太多经典好局，导致我事实上看完胜决后就更希望og赢了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 9441#       发表于 2022-8-13 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2018年就算是Lxo但我从小组赛就在黑掀背拴狗c
+
+*****
+
+####  阿垃垃圾历  
+##### 9442#       发表于 2022-8-13 22:44
+
+别聊着ti8了 没意思 看看2 3点这胜决ts怎么宰lgd吧
+
+*****
+
+####  尸体鲨  
+##### 9443#       发表于 2022-8-13 22:46
+
+我先造个诺亚方舟，Ts输了没关系，雪碧是一支很有韧性的队伍
+
+*****
+
+####  名字不乱取  
+##### 9444#       发表于 2022-8-13 22:46
+
+漏油别忆往昔峥嵘岁月了，一起点草lgd为克里斯/ceb加油吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 9445#       发表于 2022-8-13 22:47
+
+看完克神直接睡觉，再起来看茶队挨打！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 9446#       发表于 2022-8-13 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是老观点，我求求lgd这次major连斩og&amp;雪碧总决赛再斩og/雪碧把集妹们的期待度拉到最高
+
+*****
+
+####  thistimeforlife  
+##### 9447#       发表于 2022-8-13 22:50
+
+看完蒜生放，再看一把克神和ceb，睡醒希望有好消息<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

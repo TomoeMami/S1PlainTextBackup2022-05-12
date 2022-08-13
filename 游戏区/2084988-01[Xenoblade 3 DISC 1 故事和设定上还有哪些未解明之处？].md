@@ -2216,3 +2216,22 @@ DLC必然是新地图，毕竟前两作都这么搞了。如果DLC真要出前�
 结合第四章剧情，p的含义会不会是pride，o就不知道了</blockquote>
 O应该指Owel（猫头鹰），对应执政官O的铠甲面具外形
 
+
+
+*****
+
+####  Ardor  
+##### 196#       发表于 2022-8-13 22:40
+
+blade是个什么东西
+
+*****
+
+####  慕容断月  
+##### 197#       发表于 2022-8-13 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57053232&amp;ptid=2084988" target="_blank">Ardor 发表于 2022-8-13 22:40</a>
+
+blade是个什么东西</blockquote>
+虽然没说，但指的就是始源之剑/终之剑
+
