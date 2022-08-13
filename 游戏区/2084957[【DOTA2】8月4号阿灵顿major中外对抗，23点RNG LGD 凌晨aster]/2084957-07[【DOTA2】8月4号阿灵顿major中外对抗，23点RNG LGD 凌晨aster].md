@@ -8906,3 +8906,88 @@ ceb是不是打不了ti？那这og估计到ti会尿一地。
 
 ATF: CEB总是会发表些无用的演讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蛭人  
+##### 10078#       发表于 2022-8-14 07:21
+
+所以我说ceb怎么会觉得这队伍三兄弟像ana的，atf第一个就不符合。
+
+*****
+
+####  白野苍衣  
+##### 10079#       发表于 2022-8-14 07:21
+
+确实有19年VG那味了，VG正统在骄阳？
+
+*****
+
+####  やト  
+##### 10080#       发表于 2022-8-14 07:21
+
+ 不给商业互吹了鸭
+
+
+
+*****
+
+####  adretyu67  
+##### 10081#       发表于 2022-8-14 07:21
+
+纪录片里ceb还一副要把atf培养成自己接班人的样子，这是皮痒想挨踢了吧
+
+*****
+
+####  haruhiismer  
+##### 10082#       发表于 2022-8-14 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056311&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-14 07:18</a>
+无效拧绳了</blockquote>
+哇atf感觉这次ti成绩一般就会被踢，嫩狂
+
+*****
+
+####  白野苍衣  
+##### 10083#       发表于 2022-8-14 07:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹏子的虚空，寄！
+
+*****
+
+####  43453  
+##### 10084#       发表于 2022-8-14 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056328&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-14 07:23</a>
+鹏子的虚空，寄！</blockquote>
+要不虚空给xxs玩，鹏子还是玩钢背？
+
+*****
+
+####  血狂毘沙门  
+##### 10085#       发表于 2022-8-14 07:26
+
+蓝猫虚空什么组合技 下一个是大锤妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 10086#       发表于 2022-8-14 07:27
+
+选个兽王吧atf直接捂脸
+
+*****
+
+####  天堂蜘蛛  
+##### 10087#       发表于 2022-8-14 07:29
+
+嗯点大锤啊
+
+*****
+
+####  haruhiismer  
+##### 10088#       发表于 2022-8-14 07:29
+
+神了神了
+
