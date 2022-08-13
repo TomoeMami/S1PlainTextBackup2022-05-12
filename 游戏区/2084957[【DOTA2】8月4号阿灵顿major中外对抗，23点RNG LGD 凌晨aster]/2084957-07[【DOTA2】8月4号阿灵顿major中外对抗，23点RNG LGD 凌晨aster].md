@@ -848,3 +848,41 @@ fnc没换过人，反倒是vp被扣了100多，所以才有0.05
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">西恩刀塔玩家在线人数基本上翻不上来了，早就没戏了
 
+
+
+*****
+
+####  何然  
+##### 9101#       发表于 2022-8-13 10:30
+
+19年干瘪透支未来的炒作让业界偿还了呗
+
+*****
+
+####  遍体精淋af  
+##### 9102#       发表于 2022-8-13 10:31
+
+只能吸东南亚赛区的血了<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">毕竟猴爹没到西恩之前也只是网吧队选手
+
+*****
+
+####  ArowRocher  
+##### 9103#       发表于 2022-8-13 10:35
+
+<img src="https://p.sda1.dev/6/237032ac12b542f194aa3270b84876f5/CMP_20220813103507615.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 9104#       发表于 2022-8-13 10:36
+
+相比毛子后花园西欧和世界垃圾桶北美，cn已经凑合了
+
+*****
+
+####  沈淮  
+##### 9105#         楼主| 发表于 2022-8-13 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044951&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-13 10:35</a></blockquote>
+太他妈丑了，鬼佬能不能别画妹子了
+
