@@ -1261,3 +1261,44 @@ op不是一直和burning在打吗？</blockquote>
 
 ti89说不上lgd围绕谁打的   更多还是走双核路线   前期偏4保1 然后等ame肥起来拿下比赛的 
 
+
+
+*****
+
+####  qazkevin  
+##### 9147#       发表于 2022-8-13 12:11
+
+跳刀跳刀领队的XG现在积分多少？有希望进TI吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沈淮  
+##### 9148#         楼主| 发表于 2022-8-13 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045939&amp;ptid=2084957" target="_blank">qazkevin 发表于 2022-8-13 12:11</a>
+
+跳刀跳刀领队的XG现在积分多少？有希望进TI吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+没有
+
+*****
+
+####  遍体精淋af  
+##### 9149#       发表于 2022-8-13 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045939&amp;ptid=2084957" target="_blank">qazkevin 发表于 2022-8-13 12:11</a>
+跳刀跳刀领队的XG现在积分多少？有希望进TI吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+440，预选或者外卡，但是现在xg不能说毫无精神只能说油面都垂头丧气的，感觉这个队伍自从lou签证出问题之后就没有气势了，连小比赛都不去打了
+
+*****
+
+####  nxmonitor  
+##### 9150#       发表于 2022-8-13 12:13
+
+哪里一直是双核了？看阵容要么放养查理斯要么放养ame，有时ame拿个小黑优势路死成狗，有时查理斯拿个小小要和拍拍斗智斗勇，甚至还有拿个女王要被爆了让fy打四的，反正从BP开始就保证maybe不难受，然后也没放养过maybe这是事实吧？地位最高的是谁显而易见啊……
+
