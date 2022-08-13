@@ -3839,3 +3839,12 @@ a畜司马 集美司马
 
 斧王说了，哥哥荣获《除了我的队伍第一C》的奖，大家不要黑了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AkaiSuisei  
+##### 9432#       发表于 2022-8-13 22:08
+
+这帮鬼佬串通好的阴阳处长是吧，c stands for chu是吧
+
