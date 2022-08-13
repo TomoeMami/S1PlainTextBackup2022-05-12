@@ -10003,3 +10003,29 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 先把人骗进去抽卡再说233</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我首先要抽后面的，冲动不了
 
+
+
+*****
+
+####  kiralzb  
+##### 936#       发表于 2022-8-13 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051532&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-13 21:02</a>
+只要不让我吃保底我就烧香了
+
+换成日服一单贵了50左右，瞬间过了一个心理防线，从可以氪上升到了要考虑一下 ...</blockquote>
+日服不是更便宜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 937#       发表于 2022-8-13 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57052995&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-13 22:24</a>
+
+日服不是更便宜吗？</blockquote>
+我翻了一下上个月的信用卡消费记录
+
+美服的时候，不用积分一单66.66刀
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

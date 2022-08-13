@@ -3873,3 +3873,12 @@ a畜司马 集美司马
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 9436#       发表于 2022-8-13 22:22
+
+想找个ti8森哥小牛品一下，油管随手一搜就看到了ti8胜决jerax的小牛，基地前跳大击杀买活的tb完成翻盘。
+
