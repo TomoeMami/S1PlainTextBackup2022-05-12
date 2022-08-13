@@ -10259,3 +10259,12 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 图二有小千</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这个伏笔能不能不回收了
 
+
+
+*****
+
+####  starring  
+##### 2495#       发表于 2022-8-13 10:06
+
+拖了好久今天才把二期ed和cw曲完整版听了，两首歌都比op2那两首好听。虽然有五老星滤镜的原因，不过二期四人的声音真的好难分辨<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

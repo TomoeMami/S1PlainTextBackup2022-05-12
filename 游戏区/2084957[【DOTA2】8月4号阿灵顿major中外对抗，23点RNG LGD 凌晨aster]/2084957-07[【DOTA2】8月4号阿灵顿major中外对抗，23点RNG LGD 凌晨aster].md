@@ -613,3 +613,126 @@ bc：看我表演<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 卜哭卜是真核核！
 
+
+
+*****
+
+####  何然  
+##### 9075#       发表于 2022-8-13 10:00
+
+#杜鹏颜值#
+#焦阳学霸#
+#林靖天道酬勤#
+#波波卡桑野区踩灵芝#
+
+*****
+
+####  白野苍衣  
+##### 9076#       发表于 2022-8-13 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖茶这队从老板到领队教练和队员都不基德
+
+*****
+
+####  沈淮  
+##### 9077#         楼主| 发表于 2022-8-13 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044536&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 09:57</a>
+
+依稀记得集美和小超人开赛前都阴阳怪气b组除了雪碧都是鱼，结果6强里4个b组的 ...</blockquote>
+只能说毕竟是一家人，老干鳖粉日常看不起别的组，从我看比赛开始就这样了
+
+*****
+
+####  银翼的维罗西  
+##### 9078#       发表于 2022-8-13 10:01
+
+真牛逼啊曾焦阳，后面几个队的中单相对于现在的国产中单而言其实都是神仙，27岁的背脊居然还没被折断，可以说是以凡人之身比肩神明了
+
+*****
+
+####  香蕉芭菲  
+##### 9079#       发表于 2022-8-13 10:01
+
+看不起克里斯神是吧，虽然我曾经也看不起，但是早上起来看到比分就悔改了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Litccc  
+##### 9080#       发表于 2022-8-13 10:02
+
+<img src="https://img.saraba1st.com/forum/202208/13/100156y4sz3vc6gvwwi6se.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-13_10-01-12.png</strong> (33.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 10:01 上传
+
+这么多人，寄！
+
+*****
+
+####  nowaki  
+##### 9081#       发表于 2022-8-13 10:02
+
+有没有鳖茶冲上去把lgd宰了的剧本，这样在ti前洪水不至于把我淹死。
+
+*****
+
+####  蛭人  
+##### 9082#       发表于 2022-8-13 10:03
+
+GPK最后还是没能六强，这新VP不行啊。
+
+*****
+
+####  Keynes  
+##### 9083#       发表于 2022-8-13 10:04
+
+萨特我砍！
+
+*****
+
+####  夜光铃  
+##### 9084#       发表于 2022-8-13 10:05
+
+你们要真想ti后不发大水，难道不是让lgd这次夺冠更好吗
+
+*****
+
+####  lyjssj  
+##### 9085#       发表于 2022-8-13 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，bc还没输呢就og，不把第三世界兄弟当人了啊
+
+*****
+
+####  CNFH1984  
+##### 9086#       发表于 2022-8-13 10:08
+
+这支茶队发动机前期就是看24，但是曾骄阳27岁了我真不看好他后面能一直这么硬……
+
+这几场比赛也证明了只要24动不起来，3被迫开始动，茶队基本就在鳖式刀塔和被速推当中二选一了
+
+为什么会鳖呢，因为莫奈特他，有时候，站不出来……
+
+*****
+
+####  CNFH1984  
+##### 9087#       发表于 2022-8-13 10:09
+
+不过感觉莫奈特的脑子是有CD的，你看这把刚背CD转到四十分钟转出来了，后面的走位、切入判断也还是说得过去
+
+*****
+
+####  Yukino-Yukino  
+##### 9088#       发表于 2022-8-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044586&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 10:02</a>
+
+有没有鳖茶冲上去把lgd宰了的剧本，这样在ti前洪水不至于把我淹死。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉指望茶不如指望ts+og把lgd宰了还现实点。
+
