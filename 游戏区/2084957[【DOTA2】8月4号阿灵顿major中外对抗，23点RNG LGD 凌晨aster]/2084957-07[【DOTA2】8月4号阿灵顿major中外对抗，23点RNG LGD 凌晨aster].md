@@ -6185,3 +6185,146 @@ B. 将电棍重命名为米波
 
 C. 加入草帽海贼团
 
+
+
+*****
+
+####  沈淮  
+##### 9730#         楼主| 发表于 2022-8-14 01:31
+
+不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？不是移速-5？
+
+*****
+
+####  qwas  
+##### 9731#       发表于 2022-8-14 01:31
+
+说不定是一刀砍在刷新上<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 9732#       发表于 2022-8-14 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055039&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-14 01:26</a>
+细说VISA，充哪个区的</blockquote>
+能问出这个说明你没visa信用卡啊，那这条路就走不通了，还是买新西兰卡吧(你为啥在新区啊，steam新区游戏早解锁？)
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 9733#       发表于 2022-8-14 01:34
+
+风暴涌动这司马玩意还是改回去吧
+还有大招别叠加了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 9734#       发表于 2022-8-14 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055084&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-14 01:31</a>
+
+能问出这个说明你没visa信用卡啊，那这条路就走不通了，还是买新西兰卡吧(你为啥在新区啊，steam新区游戏 ...</blockquote>
+不是啊，我是国区，搜了下只有新西兰充值卡能充国区，比例大概0.75这样
+
+*****
+
+####  名字不乱取  
+##### 9735#       发表于 2022-8-14 01:35
+
+wisper这b什么时候被钱砸走，英雄海深，吃草挤血，还年轻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9736#       发表于 2022-8-14 01:36
+
+把多个大招减甲叠加砍了就行，或者增加大招打击间隔，现在双雷云0.4秒天赋抽攻tb都受不了
+
+*****
+
+####  AIDSL  
+##### 9737#       发表于 2022-8-14 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055071&amp;ptid=2084957" target="_blank">希望之花 发表于 2022-8-14 01:30</a>
+
+面对强势英雄电棍的平衡问题，冰蛙的新版本调整是：
+
+A. 初始护甲-1
+
+B. 将电棍重命名为米波</blockquote>
+D.DP的大也可以刷新同时存在两个
+
+*****
+
+####  莉拉厨  
+##### 9738#       发表于 2022-8-14 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055105&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-14 01:35</a>
+不是啊，我是国区，搜了下只有新西兰充值卡能充国区，比例大概0.75这样</blockquote>
+那就新西兰卡吧，居然0.75么，挂刀才0.72这样，没有更便宜的方式了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 9739#       发表于 2022-8-14 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055118&amp;ptid=2084957" target="_blank">AIDSL 发表于 2022-8-14 01:37</a>
+
+D.DP的大也可以刷新同时存在两个</blockquote>
+你说这个就让我想起了李斯
+
+DP直接开了两个大，白放
+
+*****
+
+####  沈淮  
+##### 9740#         楼主| 发表于 2022-8-14 01:38
+
+这个major奖杯是什么装备
+
+<img src="https://img.saraba1st.com/forum/202208/14/013812n3tzfdl7ad8bqbfq.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220814013904.png</strong> (36.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 01:38 上传
+
+*****
+
+####  莉拉厨  
+##### 9741#       发表于 2022-8-14 01:38
+
+熬不住了，看完女同性恋打枪就睡，明早品茶
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  修罗王  
+##### 9742#       发表于 2022-8-14 01:38
+
+ bc这五个b都一起打好几年了吧，兄弟dota，bestdota
+
+*****
+
+####  iriyano  
+##### 9743#       发表于 2022-8-14 01:39
+
+E直接删除刷新球
+
+*****
+
+####  战狼PTSD  
+##### 9744#       发表于 2022-8-14 01:39
+
+建议刷新不能刷新BKB
+
