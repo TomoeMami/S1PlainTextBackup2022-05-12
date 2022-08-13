@@ -10714,3 +10714,76 @@ ban什么敌法师血魔，到底张志成看过比赛没有
 
 这个早茶感觉要是苦的了
 
+
+
+*****
+
+####  haruhiismer  
+##### 8786#       发表于 2022-8-13 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043522&amp;ptid=2084957" target="_blank">zkc1991 发表于 2022-8-13 08:18</a>
+鹏子的刚被水平如何？
+
+—— 来自 vivo V2057A, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+刚被不是有手就行
+
+*****
+
+####  天堂蜘蛛  
+##### 8787#       发表于 2022-8-13 08:22
+
+应该2：1了，夜宴劣势路崩了
+
+*****
+
+####  ninini212  
+##### 8788#       发表于 2022-8-13 08:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钢背操作不难，但是对切入和拉扯要求挺高的
+
+但是这把直接刚三，不考虑了
+
+*****
+
+####  迷途lite  
+##### 8789#       发表于 2022-8-13 08:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对线美如画啊
+
+*****
+
+####  逃离二次元  
+##### 8790#       发表于 2022-8-13 08:24
+
+不得不说，这个刚三把我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  smkf013  
+##### 8791#       发表于 2022-8-13 08:24
+
+这阵容不知道怎么输，中单小小除了追戴泽，其他谁也打不过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 8792#       发表于 2022-8-13 08:25
+
+中路强搓麻将是何意啊
+
+*****
+
+####  弈秋  
+##### 8793#       发表于 2022-8-13 08:27
+
+卧槽一觉醒来bc赢了vp，克神又发力了吗
+
+*****
+
+####  天堂蜘蛛  
+##### 8794#       发表于 2022-8-13 08:28
+
+喜欢省技能
+
