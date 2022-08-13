@@ -1873,3 +1873,82 @@ TS：红豆泥阿里嘎多，太破费辣，好久没收到这么贵重的盾辣
 
 相信TI整活就行了，吹的越高跌的越狠，多好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  尸体鲨  
+##### 9216#       发表于 2022-8-13 13:40
+
+卡狗今年该不会ti都进不了吧<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 9217#       发表于 2022-8-13 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046234&amp;ptid=2084957" target="_blank">Centrum 发表于 2022-8-13 12:41</a>
+刀塔2：不朽是吧？</blockquote>
+Dota2 M！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 9218#       发表于 2022-8-13 13:41
+
+相性门票卡
+
+*****
+
+####  阿垃垃圾历  
+##### 9219#       发表于 2022-8-13 13:43
+
+相信kaka  查猪 小超人已经不相信老北京了 肉眼可见的下滑   
+
+*****
+
+####  nxmonitor  
+##### 9220#       发表于 2022-8-13 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046980&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-13 13:40</a>
+
+卡狗今年该不会ti都进不了吧</blockquote>
+国内其他的人比RNG都不如，大概率预选出线……
+
+*****
+
+####  反方向的波  
+##### 9221#       发表于 2022-8-13 13:43
+
+doto2卜是掌机游戏么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 9222#       发表于 2022-8-13 13:45
+
+rng至少外卡能打的
+
+*****
+
+####  nxmonitor  
+##### 9223#       发表于 2022-8-13 13:46
+
+maybe现在英雄池有很大问题，puck一直是打不好了偏要选，看版本更新以后能不能把三猫强度提一点……
+
+*****
+
+####  弈秋  
+##### 9224#       发表于 2022-8-13 13:47
+
+到了ti人均三猫王
+
+*****
+
+####  名字不乱取  
+##### 9225#       发表于 2022-8-13 13:47
+
+看了bc三把录像，k1切入还是烂，wisp把把像个战神，倒是克神彻底解除封印了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
