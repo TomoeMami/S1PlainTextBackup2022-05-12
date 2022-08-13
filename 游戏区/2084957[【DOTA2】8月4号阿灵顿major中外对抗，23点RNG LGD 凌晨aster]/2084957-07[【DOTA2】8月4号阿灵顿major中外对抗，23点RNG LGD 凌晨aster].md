@@ -3651,3 +3651,25 @@ ig全队集合，但是徐林森野人化了</blockquote>
 就是这五个csdx送oc回家的啊</blockquote>
 oc眼花，看到五个inflame是有点怕
 
+
+
+*****
+
+####  12481632  
+##### 9413#       发表于 2022-8-13 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050680&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-13 20:17</a>
+从森哥群里听到的消息是：
+之前训练赛能和ig掰手腕的队伍只有rng
+细品 ...</blockquote>
+别又是经典训练赛无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 9414#       发表于 2022-8-13 20:36
+
+要是RNG真被关了才好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

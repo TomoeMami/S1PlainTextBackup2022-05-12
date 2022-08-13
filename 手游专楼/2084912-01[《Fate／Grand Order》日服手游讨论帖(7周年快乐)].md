@@ -9796,3 +9796,19 @@ FGO那个不就是R换得新CV吗</blockquote>
 
 宝具：蛇神具现化：将场地转换为“伊吹山”+全体混沌特攻+鬼系从者回复NP。
 
+
+
+*****
+
+####  katun  
+##### 916#       发表于 2022-8-13 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050892&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-13 20:28</a>
+
+现在太公望和团长两个人的BUFF量，假设斯卡蒂是暗狐的模型
+
+太公望 群20 绿15 攻15 宝威15
+
+团长 群20 攻15</blockquote>
+感觉差个绿卡奥伯龙或者全体暴击拐，否则3面伤害不够
+
