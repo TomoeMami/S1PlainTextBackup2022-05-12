@@ -9974,3 +9974,32 @@ DIY一下红光炮狂伊吹：
 伊吹明天早上就UP的话今天居然不给一个试用</blockquote>
 先把人骗进去抽卡再说233
 
+
+
+*****
+
+####  kiralzb  
+##### 933#       发表于 2022-8-13 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051261&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 20:49</a>
+你们商店换东西时有没有问题？我每次都卡死</blockquote>
+刚刚换狗粮卡过一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 934#       发表于 2022-8-13 21:37
+
+rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就怕到时候被期待值拉高的玩家反噬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 935#       发表于 2022-8-13 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051933&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-13 21:23</a>
+
+先把人骗进去抽卡再说233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我首先要抽后面的，冲动不了
+

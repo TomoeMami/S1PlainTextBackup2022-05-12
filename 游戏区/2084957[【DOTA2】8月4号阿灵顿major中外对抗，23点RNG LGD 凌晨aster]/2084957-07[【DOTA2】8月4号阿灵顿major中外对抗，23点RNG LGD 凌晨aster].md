@@ -3739,3 +3739,16 @@ xinq（2022），xinq（2023），xinq（2024）
 
 森哥最大的错误是没把a畜塞ti8烟火里发射出去 导致ti9优来了一回
 
+
+
+*****
+
+####  星野航  
+##### 9423#       发表于 2022-8-13 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别说，当年森哥从vg出来转投lgd，我还为此看过一段时间干爹
+
+ti8还是支持者呢，后面嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+世事难料啊
+
