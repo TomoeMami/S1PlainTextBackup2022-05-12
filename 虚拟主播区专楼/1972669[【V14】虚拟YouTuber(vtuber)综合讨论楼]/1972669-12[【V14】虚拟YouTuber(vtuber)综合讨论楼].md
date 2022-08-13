@@ -4676,3 +4676,12 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 bobhina贴贴不行，kmt和其他人可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 16924#       发表于 2022-8-14 00:16
+
+夜观历史资料，感觉mrra虽然长得mihiru，但实际上更hsmk啊（五期生万能）
+
