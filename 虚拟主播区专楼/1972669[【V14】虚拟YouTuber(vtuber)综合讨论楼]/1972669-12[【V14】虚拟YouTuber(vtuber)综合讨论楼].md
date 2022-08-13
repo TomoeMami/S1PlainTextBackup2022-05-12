@@ -4617,3 +4617,43 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  FCCHua  
+##### 16920#       发表于 2022-8-13 18:02
+
+ 本帖最后由 FCCHua 于 2022-8-13 18:10 编辑 
+
+切り抜きチャンネル怎么删了刚发的切片，评论区的双标还没品鉴够<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16921#       发表于 2022-8-13 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991174&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-8-9 15:28</a>
+
+レオス監督へのイラストを描こうとサロメ嬢を誘った時の話をする樋口楓【にじさんじ甲子園/にじさんじ切り ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/13/180712gqzjilpoopklp1lc.jpg" referrerpolicy="no-referrer">
+
+<strong>FZ2WipYVEAAZtOI.jpg</strong> (458.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/13/180713qjs0g8jjsjasrtqq.jpg" referrerpolicy="no-referrer">
+
+<strong>FZ2WkadUcAEo8Tc.jpg</strong> (353.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 18:07 上传
+
+[https://twitter.com/nanafuji_man/status/1557566689125888000](https://twitter.com/nanafuji_man/status/1557566689125888000)
+
