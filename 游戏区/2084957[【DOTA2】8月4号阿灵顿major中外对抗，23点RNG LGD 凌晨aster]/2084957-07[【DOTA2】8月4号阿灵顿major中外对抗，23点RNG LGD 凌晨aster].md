@@ -902,3 +902,42 @@ bc啥水平啊漏油门。og能不能过bc和茶能不能过这俩我真不知�
 
 半夜起床发现克神已经宰了，眼睛一闭再睁开茶队也宰了，看比赛好累，不如直接相信克里斯，相信曾骄阳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 9108#       发表于 2022-8-13 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">格局大点，ti淘汰赛回家局能宰掀背我才是真是真核核
+
+*****
+
+####  反方向的波  
+##### 9109#       发表于 2022-8-13 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">12个直邀队里只有1个队外战一分不拿，太÷了
+
+*****
+
+####  BallanceHZ  
+##### 9110#       发表于 2022-8-13 10:56
+
+新人跟不上这锅也甩给lgd就没啥必要了，本质是没几个新人玩了
+
+*****
+
+####  莉拉厨  
+##### 9111#       发表于 2022-8-13 10:59
+
+dota2，狗都不玩<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遍体精淋af  
+##### 9112#       发表于 2022-8-13 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">北美饭皇是这样的
+
