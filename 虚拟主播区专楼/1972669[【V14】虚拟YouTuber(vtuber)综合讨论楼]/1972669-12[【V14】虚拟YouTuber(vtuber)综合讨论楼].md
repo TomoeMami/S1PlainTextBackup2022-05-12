@@ -4530,3 +4530,12 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 三次转折点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，谁拿下这里谁基本就赢
 
+
+
+*****
+
+####  alcoholic1000  
+##### 16912#       发表于 2022-8-13 16:12
+
+索西埃路五五开
+

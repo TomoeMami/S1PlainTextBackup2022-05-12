@@ -2534,3 +2534,23 @@ ti11和ti10合出一个畜视界，开头就来个nts滚滚xjb滚导致落败，
 仅有PSG.LGD 2:0 Spirit的情况下会结算为PSG.LGD胜利，2 ...</blockquote>
 这不就是让分吗  LGD让1.5？
 
+
+
+*****
+
+####  反方向的波  
+##### 9290#       发表于 2022-8-13 16:12
+
+ 本帖最后由 反方向的波 于 2022-8-13 16:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">小的要来了，major观赛页现在直通赵小姐的101直播
+
+*****
+
+####  尸体鲨  
+##### 9291#       发表于 2022-8-13 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048204&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 16:12</a>
+小的要来了，major观赛页现在直通赵小姐的101直播</blockquote>
+论巨魔阿梓确实强了亚陀螺一万倍
+
