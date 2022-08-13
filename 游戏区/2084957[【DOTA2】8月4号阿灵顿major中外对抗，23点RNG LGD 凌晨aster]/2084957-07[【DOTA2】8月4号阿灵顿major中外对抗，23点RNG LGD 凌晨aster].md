@@ -790,3 +790,61 @@ vp以0.05微弱积分优势进入ti<img src="https://static.saraba1st.com/image/
 懂又不懂啊，集美眼里没有中国队比lgd成绩好那就是lgd赢</blockquote>
 那就只能等版本更新了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这版本lgd就是随便拿捏其他中国队。
 
+
+
+*****
+
+####  acalephs  
+##### 9095#       发表于 2022-8-13 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044708&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-12 18:13</a>
+vp以0.05微弱积分优势进入ti但凡fnc少换个人</blockquote>
+fnc没换过人，反倒是vp被扣了100多，所以才有0.05<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 9096#       发表于 2022-8-13 10:24
+
+fnc没找尸王的125来打枪小组赛打完应该直接进败者组的罢
+
+*****
+
+####  遍体精淋af  
+##### 9097#       发表于 2022-8-13 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044800&amp;ptid=2084957" target="_blank">acalephs 发表于 2022-8-13 10:21</a>
+fnc没换过人，反倒是vp被扣了100多，所以才有0.05
+
+—— 来自 samsung SM-X700, Android 12上的 S ...</blockquote>
+去看了一下还真是，fnc估计直接玉玉了
+
+*****
+
+####  天堂蜘蛛  
+##### 9098#       发表于 2022-8-13 10:25
+
+惨就惨呗，老年dota注定打不过年轻dota的
+
+看看干瘪鳖星的平均年龄，再看看OG雪碧的年龄
+
+早晚的事
+
+本来就没有未来了
+
+*****
+
+####  遍体精淋af  
+##### 9099#       发表于 2022-8-13 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">西恩有潜力的年轻一号位其实还是有几个，但是二三号位完全断档
+
+*****
+
+####  CNFH1984  
+##### 9100#       发表于 2022-8-13 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">西恩刀塔玩家在线人数基本上翻不上来了，早就没戏了
+

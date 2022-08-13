@@ -9293,3 +9293,12 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗？我觉得还行。不过我FGO都不怎么开声音。打月姬R并不觉得
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 872#       发表于 2022-8-13 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃了几个银苹果总算把三个设施lv10了，种火还是很缺的，40+男从者都等着终突拿石头呢
+
