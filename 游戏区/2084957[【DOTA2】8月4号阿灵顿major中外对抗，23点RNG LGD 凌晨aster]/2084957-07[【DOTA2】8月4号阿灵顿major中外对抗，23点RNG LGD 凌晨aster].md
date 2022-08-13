@@ -8829,3 +8829,80 @@ ceb是不是打不了ti？那这og估计到ti会尿一地。
 
 鹏子就是不变石
 
+
+
+*****
+
+####  nerugigannte  
+##### 10068#       发表于 2022-8-14 07:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒来果然又在发大水，还好早就睡了
+
+*****
+
+####  belldandy_ye  
+##### 10069#       发表于 2022-8-14 07:11
+
+焦阳屠夫钩子没精度，也没有吃队友断对方输出的意识，明显熟练度不够看啊.也就是OG这把只有帕克一个正常人才赢了.
+
+*****
+
+####  asd235614  
+##### 10070#       发表于 2022-8-14 07:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">V病毒的病原体找到了
+
+*****
+
+####  ArowRocher  
+##### 10071#       发表于 2022-8-14 07:13
+
+这巨魔6万7千的伤害有多少是atf这两管血bot送的
+
+*****
+
+####  Keynes  
+##### 10072#       发表于 2022-8-14 07:18
+
+什么情况，雪碧咋被干瘪2:0了
+
+*****
+
+####  健康猹  
+##### 10073#       发表于 2022-8-14 07:18
+
+感觉XXS想不起来塞皇帝这件事了，省100
+
+*****
+
+####  AkaiSuisei  
+##### 10074#       发表于 2022-8-14 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056293&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-13 19:13</a>
+
+这巨魔6万7千的伤害有多少是atf这两管血bot送的</blockquote>
+打下去打上来再打下去，少说三管
+
+*****
+
+####  a1370303  
+##### 10075#       发表于 2022-8-14 07:18
+
+好呀好呀，对og了解很透彻是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 10076#       发表于 2022-8-14 07:18
+
+无效拧绳了<img src="https://p.sda1.dev/6/ed8eaebaa1f1aa2df27054f39cd63e81/447d3c2aa8760d27.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 10077#       发表于 2022-8-14 07:19
+
+ATF: CEB总是会发表些无用的演讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
