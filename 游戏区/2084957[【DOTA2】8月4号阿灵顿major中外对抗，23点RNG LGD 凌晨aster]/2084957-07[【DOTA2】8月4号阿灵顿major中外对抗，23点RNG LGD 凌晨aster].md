@@ -528,3 +528,88 @@ og不是一直是樱花兄弟**吗，说不定这次奴性又犯了
 og不是一直是樱花兄弟**吗，说不定这次奴性又犯了</blockquote>
 今年的og算新队了
 
+
+
+*****
+
+####  蛭人  
+##### 9064#       发表于 2022-8-13 09:53
+
+有一说一，DAC樱花兄弟机枪兵Q博士的IG赢过ananotail他们，不过樱花兄弟属实还没证明过自己。
+
+*****
+
+####  Litccc  
+##### 9065#       发表于 2022-8-13 09:53
+
+还有7分钟就可以订ti的门票了，萨特们不要错过<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acalephs  
+##### 9066#       发表于 2022-8-13 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044384&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-12 17:43</a>
+干啊，意思是剩下的分别是一冠王雪碧，二冠王OG，和三冠王LGD，🍵投降算输一半 ...</blockquote>
+bc：看我表演<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 9067#       发表于 2022-8-13 09:53
+
+鳖星永远都是5点档<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">利好苦命社畜
+
+*****
+
+####  弈秋  
+##### 9068#       发表于 2022-8-13 09:54
+
+我得去看看克神怎么赢的vp
+
+*****
+
+####  反方向的波  
+##### 9069#       发表于 2022-8-13 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044486&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-13 09:53</a>
+有一说一，DAC樱花兄弟机枪兵Q博士的IG赢过ananotail他们，不过樱花兄弟属实还没证明过自己。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">去年ti鳖星打的一坨屎结果小组赛20了og
+
+*****
+
+####  修罗王  
+##### 9070#       发表于 2022-8-13 09:54
+
+这次major的剧本，到目前为止和去年的新加坡major有微妙的相似
+
+*****
+
+####  adretyu67  
+##### 9071#       发表于 2022-8-13 09:55
+
+小学生当年那句“以后比赛多着呢”属实不基德了，后来就各路一轮游。
+
+*****
+
+####  Yukino-Yukino  
+##### 9072#       发表于 2022-8-13 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等今天lgd打ts了
+
+*****
+
+####  反方向的波  
+##### 9073#       发表于 2022-8-13 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">依稀记得集美和小超人开赛前都阴阳怪气b组除了雪碧都是鱼，结果6强里4个b组的
+
+*****
+
+####  CNFH1984  
+##### 9074#       发表于 2022-8-13 09:59
+
+卜哭卜是真核核！
+
