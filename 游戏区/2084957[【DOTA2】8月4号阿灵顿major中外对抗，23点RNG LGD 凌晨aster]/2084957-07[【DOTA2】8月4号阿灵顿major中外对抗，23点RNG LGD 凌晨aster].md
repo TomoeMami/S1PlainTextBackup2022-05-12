@@ -3848,3 +3848,28 @@ a畜司马 集美司马
 
 这帮鬼佬串通好的阴阳处长是吧，c stands for chu是吧
 
+
+
+*****
+
+####  反方向的波  
+##### 9433#       发表于 2022-8-13 22:12
+
+打开客户端，果然又红字了，完美司马
+
+*****
+
+####  听雷而起  
+##### 9434#       发表于 2022-8-13 22:13
+
+红包神ti9最后一把走进冰龙大把处长敲死，一定很爽吧
+
+*****
+
+####  walfeds  
+##### 9435#       发表于 2022-8-13 22:13
+
+还是品味下斧王王的梦幻阵容最后一手选了暴击哥是几个意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接变味
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
