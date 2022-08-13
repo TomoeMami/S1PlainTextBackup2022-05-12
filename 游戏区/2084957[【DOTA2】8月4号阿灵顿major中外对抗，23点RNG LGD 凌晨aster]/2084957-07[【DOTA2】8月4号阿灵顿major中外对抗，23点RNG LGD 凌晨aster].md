@@ -3355,3 +3355,43 @@ atf这没喷回去吗，我记得atf打天梯也突出一个戏多
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nerugigannte  
+##### 9380#       发表于 2022-8-13 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不给始祖鳖上，真核核只会哭嘛
+
+*****
+
+####  健康猹  
+##### 9381#       发表于 2022-8-13 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049649&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-13 18:51</a>
+
+为什么不给始祖鳖上，真核核只会哭嘛</blockquote>
+我现在只是XXS粉罢了，给鳖鳖打钱倒饰品咩
+
+要不还是给CSDX送个飞机
+
+*****
+
+####  战狼PTSD  
+##### 9382#       发表于 2022-8-13 18:57
+
+爱国火箭是吧
+
+还不如省钱吃周一的KFC全家桶
+
+*****
+
+####  反方向的波  
+##### 9383#       发表于 2022-8-13 18:59
+
+ 本帖最后由 反方向的波 于 2022-8-13 19:00 编辑 
+
+<img src="https://p.sda1.dev/6/c181abce7bb17ea325a05ac4cbcccf35/CMP_20220813185910185.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/3e07e40f3e6ffb0735da0a90595e3e01/CMP_20220813190012731.jpg" referrerpolicy="no-referrer">ig全队集合，但是徐林森野人化了
+
