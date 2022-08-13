@@ -3282,3 +3282,35 @@ atf这没喷回去吗，我记得atf打天梯也突出一个戏多
 
 冤屈程度堪比傻狗试图TI10后在NGA说决赛不是假赛
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9372#       发表于 2022-8-13 18:32
+
+有点累，晚上看一把睡觉好了
+
+*****
+
+####  反方向的波  
+##### 9373#       发表于 2022-8-13 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049452&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-13 18:29</a>
+遇到阵营魔怔人没办法，忠诚不绝对就是绝对不忠诚，我三台NS买了几十款游戏的也被打成索狗
+
+冤屈程 ...</blockquote>
+喷3打吗
+
+*****
+
+####  战狼PTSD  
+##### 9374#       发表于 2022-8-13 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049490&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 18:33</a>
+
+喷3打吗</blockquote>
+不打，喷喷2买了没打超过五个小时就吃灰了，卖掉还亏了快一百
+
+本来想用券换个喷3，打听到LITE玩着不方便就算了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
