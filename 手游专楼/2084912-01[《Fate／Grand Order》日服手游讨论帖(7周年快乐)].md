@@ -9594,3 +9594,21 @@ FGO那个不就是R换得新CV吗</blockquote>
 拱走了全村最好的白菜是这样的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 901#       发表于 2022-8-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047226&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-8-13 14:06</a>
+
+现在新声优哪里还有棒读的，基本只有偶像艺人这种外行来客串才会有棒读，词不要乱用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要和艺人比那经过训练的声优确实谁都不能算棒读了
+
+主要是想说这人压低声线时有种喘不过气的感觉，好比上台演讲时因为紧张整个声带都绷着的感觉
+
+最明显的去听一下登场语音1，「余興だ、狩りをしてやろう」，她把“余興”给念成了““余↑興↑”，声音一路往上飘是典型的紧张声线，音监居然就这么给她过了，让我怀疑你游到底有没有这个职位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（这句台词mbaacc里柚木凉香也念过，那时音调是正常的）
+

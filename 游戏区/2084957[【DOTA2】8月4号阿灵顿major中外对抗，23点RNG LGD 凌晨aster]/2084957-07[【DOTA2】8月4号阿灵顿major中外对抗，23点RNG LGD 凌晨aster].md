@@ -3243,3 +3243,28 @@ atf晚上乳化，cebti顺势上位
 
 鉴定为联合炒作
 
+
+
+*****
+
+####  坚定的团子党  
+##### 9368#       发表于 2022-8-13 18:17
+
+今晚又得熬夜，一个2点，一个5点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  百世诸侯  
+##### 9369#       发表于 2022-8-13 18:18
+
+窝今早六点半起来茶第一把才开
+
+*****
+
+####  nomhrpls  
+##### 9370#       发表于 2022-8-13 18:19
+
+atf这没喷回去吗，我记得atf打天梯也突出一个戏多
+
