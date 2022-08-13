@@ -2397,3 +2397,24 @@ ngav版<strong>阿梓大小姐想让我表白，萧瑟仙贝的恋爱头脑战�
 
 昨晚还好好的，怎么今天忽然就变管人了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9275#       发表于 2022-8-13 15:24
+
+没比赛的刀楼就是管人楼，刀管二象性
+
+*****
+
+####  遍体精淋af  
+##### 9276#       发表于 2022-8-13 15:29
+
+都在聊管人，我搬个超级集美论坛的活也无可厚非吧
+
+<strong>仅有PSG.LGD 2:0 Spirit的情况下会结算为PSG.LGD胜利，2:1战胜和负于Spirit均会结算Spirit胜利
+</strong>
+
+这是太监论坛版主在老干瘪vs雪碧的下注贴设立得规则<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+

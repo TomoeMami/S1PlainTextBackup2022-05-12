@@ -4478,3 +4478,35 @@ yugo睡醒了！
 
 西西声音太大了，根本听不见牛姨说话......
 
+
+
+*****
+
+####  poipanchao  
+##### 16906#       发表于 2022-8-13 15:22
+
+原来king也选择了同接最高的打法
+
+*****
+
+####  FCCHua  
+##### 16907#       发表于 2022-8-13 15:23
+
+牛姨尽力了，能打的有来有回<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16908#       发表于 2022-8-13 15:25
+
+king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了宝三家同期，属于选了同接最高的打法
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ketestrait  
+##### 16909#       发表于 2022-8-13 15:27
+
+虽然输了，但珠穆朗玛高耸不倒<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
