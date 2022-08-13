@@ -9734,3 +9734,65 @@ FGO那个不就是R换得新CV吗</blockquote>
 兔子王是配卡一模一样的红宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会破防 不是很懂  我只知道要是伊师傅撕了王姐和狂娜 某地999%破防然后血流成河（
 
+
+
+*****
+
+####  朝香果林  
+##### 912#         楼主| 发表于 2022-8-13 20:21
+
+<blockquote>alucardcz 发表于 2022-8-13 20:17
+为什么会破防 不是很懂  我只知道要是伊师傅撕了王姐和狂娜 某地999%破防然后血流成河（ ...</blockquote>
+怎样撕100自充，6冷却红卡光炮吗
+
+*****
+
+####  alucardcz  
+##### 913#       发表于 2022-8-13 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050749&amp;ptid=2084912" target="_blank">朝香果林 发表于 2022-8-13 20:21</a>
+
+怎样撕100自充，6冷却红卡光炮吗</blockquote>
+哪来的100自充
+
+*****
+
+####  exiaexa  
+##### 914#       发表于 2022-8-13 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050675&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 20:17</a>
+
+为什么会破防 不是很懂  我只知道要是伊师傅撕了王姐和狂娜 某地999%破防然后血流成河（ ...</blockquote>
+现在太公望和团长两个人的BUFF量，假设斯卡蒂是暗狐的模型
+
+太公望 群20 绿15 攻15 宝威15
+
+团长 群20 攻15
+
+斯卡蒂 群30 绿30
+
+这里加起来就是一个群70、绿45、攻30、宝威15的原地起爆怪物组合了
+
+在这个基础上斯卡蒂每多一个伤害buff都是三个人一起拉高
+
+当然现在这个算法斯卡蒂还缺10NP，都可以奶
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 915#       发表于 2022-8-13 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050766&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 20:21</a>
+
+哪来的100自充</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DIY一下红光炮狂伊吹：
+
+一技能：虹之指尖A，敌方全体技能封印+减防，自己+攻击。
+
+二技能：伊之吹息C，自充100，宝威20。
+
+三技能：Happy Oni EX，我方全体无敌一次+善属性解除耐性+“伊吹山”场地时回复30NP。
+
+宝具：蛇神具现化：将场地转换为“伊吹山”+全体混沌特攻+鬼系从者回复NP。
+
