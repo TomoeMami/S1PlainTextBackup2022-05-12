@@ -4469,3 +4469,12 @@ yugo睡醒了！
 
 别尬黑，我king必不可能输，让2是吸血鬼的仁慈<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 16905#       发表于 2022-8-13 15:10
+
+西西声音太大了，根本听不见牛姨说话......
+

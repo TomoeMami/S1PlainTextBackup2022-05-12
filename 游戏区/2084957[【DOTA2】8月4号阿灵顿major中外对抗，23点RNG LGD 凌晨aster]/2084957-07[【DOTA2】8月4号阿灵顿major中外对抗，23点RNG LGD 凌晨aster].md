@@ -2352,3 +2352,48 @@ a/那期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 克神如果都能打进决赛，那就证明刀塔没什么是不可能的<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">我直接坐地贷款处长ti一轮游然后当场退役
 
+
+
+*****
+
+####  walfeds  
+##### 9270#       发表于 2022-8-13 15:11
+
+ 本帖最后由 walfeds 于 2022-8-13 15:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">气抖冷，你楼怎么变成了管人痴的样子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  反方向的波  
+##### 9271#       发表于 2022-8-13 15:13
+
+t神回家了都开始奶我克神了，鉴定为很坏的timado粉
+
+*****
+
+####  名字不乱取  
+##### 9272#       发表于 2022-8-13 15:13
+
+根据管人区首页阿梓2300+页，a楼700+页
+
+ngav版<strong>阿梓大小姐想让我表白，萧瑟仙贝的恋爱头脑战—一只野生达达利亚的专属楼</strong>1700+页，我善意推测一下，这回lgd从阿梓引流来的比去年从a引流来的浪潮还大<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 9273#       发表于 2022-8-13 15:15
+
+我看出来了，你楼只有我一个人是克里斯真爱粉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 9274#       发表于 2022-8-13 15:18
+
+昨晚还好好的，怎么今天忽然就变管人了
+
