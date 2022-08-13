@@ -1000,3 +1000,53 @@ sa dota best dota！
 
 没冠军只能说是相关因素，这东西本质也是社交游戏，完美和赖皮v难道没有99%的责任吗
 
+
+
+*****
+
+####  Litccc  
+##### 9120#       发表于 2022-8-13 11:10
+
+<img src="https://img.saraba1st.com/forum/202208/13/110926nd1cvcx1ciuf6ymb.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-13_11-09-18.png</strong> (74.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 11:09 上传
+
+排队进去的时候已经sold out了，f5了半小时抢到一张决赛日的票，刚刚研究了一下回国才是个大问题啊，必须要转机<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  沈淮  
+##### 9121#         楼主| 发表于 2022-8-13 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045345&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-13 11:10</a>
+
+排队进去的时候已经sold out了，f5了半小时抢到一张决赛日的票，刚刚研究了一下回国才是个大问题啊，必须 ...</blockquote>
+？狗萨特
+
+*****
+
+####  nightmare902015  
+##### 9122#       发表于 2022-8-13 11:13
+
+坏就坏在你，或者说绝大多数人都觉得moba的意义是社交游戏，但v社很可能并不这么认为<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 9123#       发表于 2022-8-13 11:13
+
+萨特我砍<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 9124#       发表于 2022-8-13 11:16
+
+是不是社交游戏同V社和完美的死妈运营都没关系吧
+
