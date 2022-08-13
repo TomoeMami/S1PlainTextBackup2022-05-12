@@ -11234,3 +11234,336 @@ monet我感觉真不如锋哥，一点亮点都没有
 
 有机会翻 支棱起来啊杜鹏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 8856#       发表于 2022-8-13 08:50
+
+有宙斯视野被压制挺正常
+
+*****
+
+####  弈秋  
+##### 8857#       发表于 2022-8-13 08:51
+
+G了啊
+
+*****
+
+####  迷途lite  
+##### 8858#       发表于 2022-8-13 08:52
+
+寄，视野太难受了
+
+*****
+
+####  天堂蜘蛛  
+##### 8859#       发表于 2022-8-13 08:52
+
+该说不说这剧毒还挺克鳖茶这阵容<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 8860#       发表于 2022-8-13 08:52
+
+可打GG了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是对手
+
+*****
+
+####  nightmare902015  
+##### 8861#       发表于 2022-8-13 08:52
+
+一定要葫芦娃救爷爷吗，这怎么打
+
+*****
+
+####  莉拉厨  
+##### 8862#       发表于 2022-8-13 08:52
+
+杜鹏真的p用没有啊，茶队能不能别老惦记着四保一啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白野苍衣  
+##### 8863#       发表于 2022-8-13 08:52
+
+寄咯，我永远相信鳖茶！
+
+*****
+
+####  zkc1991  
+##### 8864#       发表于 2022-8-13 08:53
+
+宙斯加剧毒蛇棒，视野爆中爆了
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  米德  
+##### 8865#       发表于 2022-8-13 08:53
+
+哇 脑浆流一地啊 打的xnmbyy
+
+*****
+
+####  Litccc  
+##### 8866#       发表于 2022-8-13 08:53
+
+少个莲花，被bane单防了
+
+*****
+
+####  逃离二次元  
+##### 8867#       发表于 2022-8-13 08:53
+
+敲了敲了，夜魇的胜率是真的很高啊<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 8868#       发表于 2022-8-13 08:53
+
+居然还来得及送茶队一程
+
+*****
+
+####  蛭人  
+##### 8869#       发表于 2022-8-13 08:54
+
+monet真的搞笑。
+
+*****
+
+####  zkc1991  
+##### 8870#       发表于 2022-8-13 08:54
+
+夜宴这胜率，啧啧
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 8871#       发表于 2022-8-13 08:55
+
+弹了个doom都打不赢
+
+*****
+
+####  端木恋心  
+##### 8872#       发表于 2022-8-13 08:55
+
+可g啊
+
+*****
+
+####  莉拉厨  
+##### 8873#       发表于 2022-8-13 08:55
+
+直接被小小单杀，笑嘻了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  snarc1  
+##### 8874#       发表于 2022-8-13 08:55
+
+完全打不过，这刚背纸一样
+
+*****
+
+####  walfeds  
+##### 8875#       发表于 2022-8-13 08:56
+
+小小就脸上嗯拍拍死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dclara1  
+##### 8876#       发表于 2022-8-13 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043739&amp;ptid=2084957" target="_blank">Imanmi 发表于 2022-8-13 08:45</a>
+
+怎么entity打的好像当世强队一样啊，视野压制智商压制操作压制，这也进化？ ...</blockquote>
+会进化也不意外啊
+
+去年这个时候spirit还被楼友锐评是5个在四线网吧队混了半辈子没成绩的老彩笔，靠积分规则占了西恩名额害楼友看不到高质量比赛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 8877#       发表于 2022-8-13 08:56
+
+杜鹏儿有点搞笑了，指望用撒旦那点被动吸血吸回来吗
+
+*****
+
+####  cobymar  
+##### 8878#       发表于 2022-8-13 08:56
+
+tsm的人打个替补打那么认真干嘛
+
+*****
+
+####  百世诸侯  
+##### 8879#       发表于 2022-8-13 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这撒旦出的，好像有对刚吸血的机会一样
+
+*****
+
+####  天堂蜘蛛  
+##### 8880#       发表于 2022-8-13 08:56
+
+XXS前期太穷了，莲花到上波团才做出来啊
+
+
+
+*****
+
+####  kiraabu  
+##### 8881#       发表于 2022-8-13 08:56
+
+好茶好茶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  逃离二次元  
+##### 8882#       发表于 2022-8-13 08:56
+
+雪碧不是直邀，是预选出线的，望周知
+
+*****
+
+####  蛭人  
+##### 8883#       发表于 2022-8-13 08:58
+
+这monet的钢背看过的都觉得要吐了吧，之前那把也差不多，太搞笑了。
+
+*****
+
+####  天堂蜘蛛  
+##### 8884#       发表于 2022-8-13 08:59
+
+逆天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 8885#       发表于 2022-8-13 08:59
+
+我靠？
+
+*****
+
+####  北条早苗  
+##### 8886#       发表于 2022-8-13 08:59
+
+轮流犯病
+
+*****
+
+####  弈秋  
+##### 8887#       发表于 2022-8-13 08:59
+
+x哥这波可以
+
+*****
+
+####  snarc1  
+##### 8888#       发表于 2022-8-13 08:59
+
+我超，打回来了
+
+*****
+
+####  walfeds  
+##### 8889#       发表于 2022-8-13 08:59
+
+给你机会你不中用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 8890#       发表于 2022-8-13 08:59
+
+哇这樱花双雄<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 8891#       发表于 2022-8-13 08:59
+
+ 这小小暴力啊
+
+*****
+
+####  迷途lite  
+##### 8892#       发表于 2022-8-13 08:59
+
+但是dp没大盾刷了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 8893#       发表于 2022-8-13 08:59
+
+哇，这波以后我不装了我一直都支持天辉
+
+*****
+
+####  Rai.Z  
+##### 8894#       发表于 2022-8-13 08:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回合制游戏
+
+*****
+
+####  蛭人  
+##### 8895#       发表于 2022-8-13 08:59
+
+xxs还不知道要提前放大，樱花双雄也是挺牛逼的。
+
+*****
+
+####  Litccc  
+##### 8896#       发表于 2022-8-13 09:00
+
+樱花双雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 8897#       发表于 2022-8-13 09:00
+
+哎，刚想说打的好34一起送了，亏死啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 8898#       发表于 2022-8-13 09:00
+
+曰本鬼子怎么犯病了
+
+*****
+
+####  天堂蜘蛛  
+##### 8899#       发表于 2022-8-13 09:00
+
+翻了啊
+
