@@ -4291,3 +4291,22 @@ king也太狠了
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zpbzpb123123  
+##### 16886#       发表于 2022-8-13 12:44
+
+没看油的育成直播 这野手咋练的啊 上位打线两维全是d，e。4棒都是c，e
+
+*****
+
+####  Ketestrait  
+##### 16887#       发表于 2022-8-13 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046289&amp;ptid=1972669" target="_blank">zpbzpb123123 发表于 2022-8-13 12:44</a>
+
+没看油的育成直播 这野手咋练的啊 上位打线两维全是d，e。4棒都是c，e</blockquote>
+背负了虹甲所有的非洲酋长运，每场比赛都是自动失分开场然后追分进延长苦战惨胜or惨败，本届育成唯一一个没有打进过甲子园的
+
