@@ -2196,3 +2196,12 @@ DLC必然是新地图，毕竟前两作都这么搞了。如果DLC真要出前�
 
 说来，XYZ刚好也是2男1女，和三处理器对上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sslink  
+##### 194#       发表于 2022-8-13 19:57
+
+结合第四章剧情，p的含义会不会是pride，o就不知道了
+
