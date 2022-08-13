@@ -9362,3 +9362,39 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 现在新声优哪里还有棒读的，基本只有偶像艺人这种外行来客串才会有棒读，词不要乱用
 
+
+
+*****
+
+####  圈量子  
+##### 879#       发表于 2022-8-13 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047226&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-8-13 14:06</a>
+现在新声优哪里还有棒读的，基本只有偶像艺人这种外行来客串才会有棒读，词不要乱用 ...</blockquote>
+那是因为赤羽根配的是卡多克不是从者，语音一多他的棒读就暴露了
+
+*****
+
+####  alucardcz  
+##### 880#       发表于 2022-8-13 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045624&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-13 11:36</a>
+
+我觉得你们就该开着外放去多用几次古贺葵
+
+你们一定会觉得棒读也挺好的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古贺葵这水平还能棒读？ 我先奶一口音监的锅
+
+*****
+
+####  yangun22  
+##### 881#       发表于 2022-8-13 14:16
+
+ 本帖最后由 yangun22 于 2022-8-13 14:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047276&amp;ptid=2084912" target="_blank">圈量子 发表于 2022-8-13 14:12</a>
+
+那是因为赤羽根配的是卡多克不是从者，语音一多他的棒读就暴露了</blockquote>
+？哪里冒出来的赤羽根，你说他水平不高也就算了，棒读真不止于，另外綱我想也实装了很久了吧。
+
