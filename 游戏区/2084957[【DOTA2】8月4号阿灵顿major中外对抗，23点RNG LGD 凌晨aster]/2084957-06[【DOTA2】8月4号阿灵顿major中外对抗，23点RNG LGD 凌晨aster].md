@@ -12310,3 +12310,52 @@ saberlight本来就是这样一个选手，在tsm就是神神鬼鬼的，只是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  a1370303  
+##### 8996#       发表于 2022-8-13 09:20
+
+这翻译，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 8997#       发表于 2022-8-13 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044105&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-13 09:17</a>
+20年下半年的组成的网吧队。来的最晚的应该是脑东京还是mira
+
+脑东京好像还是被dendi坑了队友才去的 ...</blockquote>
+新来的是mira，换掉了sobad，东京哥是黄潜建队核心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以前他id叫mio，当时我还好奇怎么cis队还有个樱花哥
+
+*****
+
+####  CNFH1984  
+##### 8998#       发表于 2022-8-13 09:21
+
+这一把暴露出来的视野问题太大了，茶队基本上在视野上没有优势过
+
+*****
+
+####  ninini212  
+##### 8999#       发表于 2022-8-13 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044143&amp;ptid=2084957" target="_blank">聚散浮云 发表于 2022-8-13 09:20</a>
+
+这盘感觉是123发大力，杜鹏都不脑浆了，bbk好几波失误
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">真的不脑浆吗，上路那个莫名其妙的去开前哨不脑浆吗
+
+*****
+
+####  Litccc  
+##### 9000#       发表于 2022-8-13 09:21
+
+ori后期还是牛啊，几次秒套莲花太关键了
+
