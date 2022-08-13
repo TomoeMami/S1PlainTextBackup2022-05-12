@@ -2165,3 +2165,50 @@ M鳖最大的问题就是年龄到了不适合中单了，另一个问题就是�
 
 管人区很好玩，不要用混这个字
 
+
+
+*****
+
+####  IG.430  
+##### 9248#       发表于 2022-8-13 14:42
+
+管人区很好玩，不要用混这个字
+
+*****
+
+####  战狼PTSD  
+##### 9249#       发表于 2022-8-13 14:44
+
+哈人，都是管人痴
+
+*****
+
+####  mkii量产型  
+##### 9250#       发表于 2022-8-13 14:48
+
+有没有管人区游玩攻略，外野现在不好玩想找新乐子
+
+*****
+
+####  无糖茶  
+##### 9251#       发表于 2022-8-13 14:49
+
+管人痴集合！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 9252#       发表于 2022-8-13 14:49
+
+漏油个个嫌弃管人痴，原来全是管人痴
+
+*****
+
+####  名字不乱取  
+##### 9253#       发表于 2022-8-13 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047560&amp;ptid=2084957" target="_blank">mkii量产型 发表于 2022-8-13 14:48</a>
+
+有没有管人区游玩攻略，外野现在不好玩想找新乐子</blockquote>
+找个搬屎多的楼，然后去nga和v8搬屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

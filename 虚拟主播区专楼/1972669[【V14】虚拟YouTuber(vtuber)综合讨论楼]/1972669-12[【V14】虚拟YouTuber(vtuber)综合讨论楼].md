@@ -4453,3 +4453,19 @@ yugo睡醒了！
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  poipanchao  
+##### 16903#       发表于 2022-8-13 14:44
+
+原来虹甲第二CJB是king吗？！
+
+*****
+
+####  alcoholic1000  
+##### 16904#       发表于 2022-8-13 14:48
+
+别尬黑，我king必不可能输，让2是吸血鬼的仁慈<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
