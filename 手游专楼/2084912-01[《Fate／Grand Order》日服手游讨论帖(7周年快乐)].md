@@ -9440,3 +9440,24 @@ FGO那个不就是R换得新CV吗</blockquote>
 
 这个梅莉感觉周回用不上啊，20充仓管
 
+
+
+*****
+
+####  khxooo  
+##### 886#       发表于 2022-8-13 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047360&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 14:22</a>
+哦对了 公主的cv是里界大佬 怎么就棒读了 不会真以为是新人吧</blockquote>
+你这个公主声优，是指生天目仁美还是柚木凉香？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 887#       发表于 2022-8-13 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048265&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 16:21</a>
+
+你这个公主声优，是指生天目仁美还是柚木凉香？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肯定是长谷川育美啦
+
