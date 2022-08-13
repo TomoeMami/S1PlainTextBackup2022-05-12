@@ -10247,3 +10247,15 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 远程广播，好像是带视频</blockquote>
 这广播没视频
 
+
+
+*****
+
+####  adw667  
+##### 2494#       发表于 2022-8-13 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57040550&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-12 22:12</a>
+
+图二有小千</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这个伏笔能不能不回收了
+
