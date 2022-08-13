@@ -5389,3 +5389,95 @@ k1这个b还是只会打4保1的无解肥核啊
 
 克里斯三畜要么ban要么拿，有点过分了阿，不让看表演是了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acejoe  
+##### 9630#       发表于 2022-8-14 00:30
+
+什么非主流疼爱哥
+
+
+
+*****
+
+####  弈秋  
+##### 9631#       发表于 2022-8-14 00:32
+
+卧槽 克神的电魂
+
+*****
+
+####  walfeds  
+##### 9632#       发表于 2022-8-14 00:33
+
+还有干瘪五星法阵献祭冠军盾的，怀疑到底是集美还是干瘪黑
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 9633#       发表于 2022-8-14 00:33
+
+看不懂，线上不被爆了？
+
+*****
+
+####  北条早苗  
+##### 9634#       发表于 2022-8-14 00:34
+
+看不懂bc这摇摆
+
+*****
+
+####  战狼PTSD  
+##### 9635#       发表于 2022-8-14 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">除了新西兰卡还有充值方法吗，没的话我就买了
+
+*****
+
+####  walfeds  
+##### 9636#       发表于 2022-8-14 00:34
+
+人均打赏ceb风行是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 9637#       发表于 2022-8-14 00:34
+
+k1玩拍拍，走远了，除非克里斯再次化身成神，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 9638#       发表于 2022-8-14 00:38
+
+美洲人对线也太糙了……我有一说一完全不如国内高分局，
+
+*****
+
+####  弈秋  
+##### 9639#       发表于 2022-8-14 00:39
+
+完全打不了啊
+
+*****
+
+####  蛭人  
+##### 9640#       发表于 2022-8-14 00:39
+
+这对线是真的搞笑了。
+
+*****
+
+####  北条早苗  
+##### 9641#       发表于 2022-8-14 00:39
+
+k1死这把线没法站了
+
