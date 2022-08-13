@@ -736,3 +736,57 @@ GPK最后还是没能六强，这新VP不行啊。
 有没有鳖茶冲上去把lgd宰了的剧本，这样在ti前洪水不至于把我淹死。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉指望茶不如指望ts+og把lgd宰了还现实点。
 
+
+
+*****
+
+####  nowaki  
+##### 9089#       发表于 2022-8-13 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044667&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-13 10:09</a>
+
+感觉指望茶不如指望ts+og把lgd宰了还现实点。</blockquote>
+懂又不懂啊，集美眼里没有中国队比lgd成绩好那就是lgd赢
+
+*****
+
+####  反方向的波  
+##### 9090#       发表于 2022-8-13 10:13
+
+ 本帖最后由 反方向的波 于 2022-8-13 10:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都身体力行证明过了 某队输了就是你这比赛是假赛，然后依然发大水，还有人在发什么癫妄想躲过大洪水
+
+
+
+*****
+
+####  遍体精淋af  
+##### 9091#       发表于 2022-8-13 10:13
+
+vp以0.05微弱积分优势进入ti<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但凡fnc少换个人
+
+*****
+
+####  遍体精淋af  
+##### 9092#       发表于 2022-8-13 10:15
+
+问就是没有老干瘪西恩会更惨，不是老干瘪需要西恩赛区的支持，而是西恩赛区需要老干瘪撑脸面<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 9093#       发表于 2022-8-13 10:17
+
+这末日谁来着，感觉这辈子都不会再玩末日了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 9094#       发表于 2022-8-13 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044693&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 10:11</a>
+
+懂又不懂啊，集美眼里没有中国队比lgd成绩好那就是lgd赢</blockquote>
+那就只能等版本更新了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这版本lgd就是随便拿捏其他中国队。
+
