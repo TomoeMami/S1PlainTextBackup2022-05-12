@@ -9812,3 +9812,46 @@ FGO那个不就是R换得新CV吗</blockquote>
 团长 群20 攻15</blockquote>
 感觉差个绿卡奥伯龙或者全体暴击拐，否则3面伤害不够
 
+
+
+*****
+
+####  alucardcz  
+##### 917#       发表于 2022-8-13 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050916&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-13 20:29</a>
+
+DIY一下红光炮狂伊吹：
+
+一技能：虹之指尖A，敌方全体技能封印+减防，自己+攻击。
+
+二技能：伊之吹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是撕公主吗 不合适
+
+*****
+
+####  areklose  
+##### 918#       发表于 2022-8-13 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到主线突然想起大姐单独落地了。之前还在想只有6个在迫害谁
+
+*****
+
+####  exiaexa  
+##### 919#       发表于 2022-8-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050996&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-13 20:34</a>
+
+感觉差个绿卡奥伯龙或者全体暴击拐，否则3面伤害不够</blockquote>
+这就要看斯卡蒂的buff量了
+
+这个模型12面已经高过公主、暗狐、摩根这个组合
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 920#       发表于 2022-8-13 20:49
+
+你们商店换东西时有没有问题？我每次都卡死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

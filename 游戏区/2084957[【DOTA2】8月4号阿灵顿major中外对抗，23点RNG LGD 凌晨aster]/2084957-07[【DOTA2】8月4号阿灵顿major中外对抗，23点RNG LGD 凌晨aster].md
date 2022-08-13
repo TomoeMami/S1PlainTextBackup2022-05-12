@@ -3673,3 +3673,42 @@ oc眼花，看到五个inflame是有点怕
 
 要是RNG真被关了才好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 9415#       发表于 2022-8-13 20:40
+
+国内预选相信卡师傅带的动吧
+
+*****
+
+####  名字不乱取  
+##### 9416#       发表于 2022-8-13 20:42
+
+卡猴都带不进去ti，那真是csdx了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 9417#       发表于 2022-8-13 20:44
+
+森哥，真的是可惜了
+
+没办法啊，这个以ti论绝对成败的竞技游戏是这样的
+
+*****
+
+####  战狼PTSD  
+##### 9418#       发表于 2022-8-13 20:45
+
+森哥你真卜比Puppey，ChuaN，EGM，Banana，Aui_2000，iceice，GH，JerAx，JerAx，Mira，xinq（2022）差
+
+*****
+
+####  nightmare902015  
+##### 9419#       发表于 2022-8-13 20:48
+
+xinq（2022），xinq（2023），xinq（2024）
+
