@@ -5550,3 +5550,62 @@ bc这个轮盘语音好萌<img src="https://static.saraba1st.com/image/smiley/fa
 
 克里斯神这电棍熟练度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lmslardar  
+##### 9651#       发表于 2022-8-14 00:52
+
+这牛头，我真的服了
+
+*****
+
+####  walfeds  
+##### 9652#       发表于 2022-8-14 00:52
+
+戏耍k1拍拍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 9653#       发表于 2022-8-14 00:52
+
+bc这波怎么敢这么冲的，感觉是没见过现在的宙斯的样子
+
+*****
+
+####  名字不乱取  
+##### 9654#       发表于 2022-8-14 00:53
+
+克神畜生模式又开了，负战绩，高正补，低参团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 9655#       发表于 2022-8-14 00:53
+
+出去唱歌到现在才回来，k1大神居然选了拍拍这种不能刷的英雄 而且还没出狂战出了散失，他真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 9656#       发表于 2022-8-14 00:54
+
+嗯？atf开始送了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 9657#       发表于 2022-8-14 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054581&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-14 00:34</a>
+除了新西兰卡还有充值方法吗，没的话我就买了</blockquote>
+不想挂刀的话只能绑visa卡了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

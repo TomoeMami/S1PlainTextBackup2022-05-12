@@ -10038,3 +10038,14 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又吵起来了,我要看到血流成河
 
+
+
+*****
+
+####  大巨傻  
+##### 939#       发表于 2022-8-14 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57052995&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-13 22:24</a>
+日服不是更便宜吗？</blockquote>
+美区没法直接充日服了，这次活动开始
+
