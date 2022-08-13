@@ -3752,3 +3752,35 @@ ti8还是支持者呢，后面嘛<img src="https://static.saraba1st.com/image/sm
 
 世事难料啊
 
+
+
+*****
+
+####  lyjssj  
+##### 9424#       发表于 2022-8-13 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森哥十年老粉不请自来
+
+一开始是12年在贴吧看见成立了一支新dota战队VG，然后还有5个队员的写真，森哥美照那时被我鼠标滚轮一划而过。12年的名场面我只记得狂羊狂了
+
+后面还记得的就是14年森哥第一个TI亚军的时候，印象很深的一个场面是森哥天怒秒沉默了一个从高地上跳下来的熊猫，当时觉得牛逼坏了
+
+再后面就是14年TI后和伞兵BLACK组队的时候，强无敌，TS2是我心目中最好的赛事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，记忆中的场景有BLACK无解肥TB把德张跳脸上的敌法直接A死，还有解说评价双F“令人窒息的双游走”
+
+当然14年还有个现在没啥人提的名场面，就是I联赛VG打刚退役的OB众，当时赛前主持人问FY预测比分，FY还是高冷人设，直接说3比0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">,后面果然三盘碾压。
+
+不过好日子也就持续了小半年，15年DAC决赛苏猴出世也赏了VG一个三比零，当时超级集美论坛还叫超级OB论坛，素质和现在也差不多，各种落井下石，啧啧
+
+再往后把BLACK踢了换hao比打TI5，虽然有名场景fygod，但是明眼人都看得出VG已经完全没有上半年的统治力了，没记错的话最后回家局是被maybe经典中单SF送走的
+
+再往后1617年都没啥值得说的，17年和VG闹翻开始摆烂的时候我还经常在吃鸡主播里看见他客串，当时我想差不多也该退役了吧。。再往后的事情大家都很熟悉了
+
+不熟悉的可以去找集美清算贴补课<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9425#       发表于 2022-8-13 21:44
+
+森哥是LGD在ti8总决唯一没有犯病的，g4那把真是海民王，没有几波包雪球救人也轮不到畜生水人表演了
+
