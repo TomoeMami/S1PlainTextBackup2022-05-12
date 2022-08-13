@@ -8991,3 +8991,37 @@ ATF: CEB总是会发表些无用的演讲<img src="https://static.saraba1st.com/
 
 神了神了
 
+
+
+*****
+
+####  a1370303  
+##### 10089#       发表于 2022-8-14 07:30
+
+抄作业是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  时之虫  
+##### 10090#       发表于 2022-8-14 07:31
+
+神了神了
+
+*****
+
+####  千千千千鸟  
+##### 10091#       发表于 2022-8-14 07:31
+
+抄就完事了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三千珈蓝  
+##### 10092#       发表于 2022-8-14 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056321&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-14 07:21</a>
+纪录片里ceb还一副要把atf培养成自己接班人的样子，这是皮痒想挨踢了吧</blockquote>
+脾气倒是挺像的了
+
