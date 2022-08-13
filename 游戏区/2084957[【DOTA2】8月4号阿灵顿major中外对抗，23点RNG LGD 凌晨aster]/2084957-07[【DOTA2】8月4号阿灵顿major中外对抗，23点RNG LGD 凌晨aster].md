@@ -2725,3 +2725,94 @@ v社不一直都是集美，ti9真视界lgd季军还给了不少的出场画面�
 
 感觉还是og打茶 
 
+
+
+*****
+
+####  CNFH1984  
+##### 9314#       发表于 2022-8-13 16:40
+
+感觉上来说还是og打茶吧
+
+*****
+
+####  遍体精淋af  
+##### 9315#       发表于 2022-8-13 16:41
+
+学习一下萧瑟精神<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+<blockquote>​<strong>论萧瑟的精神属性</strong>
+我是TI6开始看dota2的比赛的，见证了TI6 Wings夺冠时全网的狂欢，也感受了TI8和TI9冲冠失败后全网的愤怒和无理，特别是针对ame个人的山呼海啸般的攻击。在TI8，我因为在网上连续为lgd的队员辩护了一两天基本没咋休息，恍惚中写出了一个严重bug而导致有个重要业务停了小半天。
+当初论坛，贴吧，微博所有与dota2有关的地方，ame简直被骂得体无完肤，仿佛就不应该做为一个人出现在这个世上。我看过Ti9后，几个主流论坛和ame相关的关键词，基本全是极负面的。虽然当时也有很多刀友在给他们加油鼓励，但那时候理性或者失望的沉默与批评，感觉都是对网暴的那些人气焰的助长。
+看到另一个帖子兄弟的回复，说他对ame只有敬佩两字，我有感而发，这几年来，因为从事和舆情相关的工作，见证了太多人因为被网暴(有些和ame相比简直不值一提)而失去了自己，哪怕这些事情根本不是他们的错。
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此不堪受辱的情况下，仍然能够把自己的本职工作搞的如此顶尖，在国内游戏界，或者哪怕是体育和娱乐界，又有几个人能做到如此。</blockquote>
+
+*****
+
+####  尸体鲨  
+##### 9316#       发表于 2022-8-13 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048457&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-13 16:41</a>
+学习一下萧瑟精神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">法国老干爹的梅球王在世界杯尿裤了那么多年，凭什么不能是梅西精神
+
+*****
+
+####  蛭人  
+##### 9317#       发表于 2022-8-13 16:44
+
+好像前面也有人讨论精神属性来着，原来你楼潜伏了超级假赛集美论坛爱好者？
+
+*****
+
+####  反方向的波  
+##### 9318#       发表于 2022-8-13 16:46
+
+明天继续上班<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 9319#       发表于 2022-8-13 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048406&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-13 16:35</a>
+
+去年ti我在专楼里说宁愿谁夺冠来着lgd别夺冠还被群嘲来着呢，感谢giegie救了我，不然也要拉出来被清 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年本来我也是想看lgd夺冠的，结果打完胜决之后看了几遍论坛，我直接转头支持雪碧去了。真的不想被集美恶心。
+
+*****
+
+####  我爱撩菜  
+##### 9320#       发表于 2022-8-13 16:47
+
+= =看着现在又是铺天盖地的吹LGD，真像猛吹可以到六千点的股市。 结果大家都看到了，吹爆了上不去，还一蹶不振。 
+
+形势明显没上年的强啊，阿茶/OG/觉醒状态的雪碧 哪个都有可能打输的。 
+
+今晚早睡看比赛
+
+*****
+
+####  名字不乱取  
+##### 9321#       发表于 2022-8-13 16:48
+
+克神要阵斩og就可以准备欢送杜鹏了，漏油可以参考下小组赛bc和茶大战，克神关闭畜生模式之后全队智力明显提升，合理怀疑bc全队嗑药了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 9322#       发表于 2022-8-13 16:48
+
+nga的水军和收钱属性都很高的。我举一个例子，原来我有一个朋友，他用匿名邮箱和那种电话卡整了个nga马甲，后来有一天突然发现马甲被改了密码登录不上去了。结果一搜发现那个账号被人反复用来回复方舟和op的帖子，化身米卫兵疯狂输出……你们感受一下。
+
+*****
+
+####  adretyu67  
+##### 9323#       发表于 2022-8-13 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048457&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-13 16:41</a>
+
+学习一下萧瑟精神</blockquote>
+什么弱智，ti7选择性漏过是吧。
+
+ti7王仙贝经典名著高地装逼a奶酪和我和4号位1换1怎么就忘了？
+
