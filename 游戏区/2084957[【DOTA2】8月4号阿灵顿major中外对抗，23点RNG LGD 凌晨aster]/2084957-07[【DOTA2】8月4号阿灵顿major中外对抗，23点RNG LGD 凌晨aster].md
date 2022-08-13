@@ -3020,3 +3020,43 @@ CSDX带头品屎是吧
 
 疫情原因比赛少，状况多。对比17-20年我感觉已经很低了，现在超级强队很明显没之前多，也没之前强，
 
+
+
+*****
+
+####  尸体鲨  
+##### 9344#       发表于 2022-8-13 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048786&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 17:18</a>
+不会真的有人觉得现在职业队dota水平很高吧？
+
+疫情原因比赛少，状况多。对比17-20年我感觉已经很低了，现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比普通玩家高到不知道哪里去了，CW和匹配还是不一样的
+
+*****
+
+####  沈淮  
+##### 9345#         楼主| 发表于 2022-8-13 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048812&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-13 17:20</a>
+
+比普通玩家高到不知道哪里去了，CW和匹配还是不一样的</blockquote>
+额，麻烦你看清楚我说的什么，再来车轱辘话
+
+*****
+
+####  沈淮  
+##### 9346#         楼主| 发表于 2022-8-13 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048780&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-13 17:17</a>
+
+CSDX带头品屎是吧</blockquote>
+我tm复制楼上的
+
+*****
+
+####  nowaki  
+##### 9347#       发表于 2022-8-13 17:29
+
+想想去年两次major的亚军居然是eg，你就知道这几年职业队水平真的在退步
+
