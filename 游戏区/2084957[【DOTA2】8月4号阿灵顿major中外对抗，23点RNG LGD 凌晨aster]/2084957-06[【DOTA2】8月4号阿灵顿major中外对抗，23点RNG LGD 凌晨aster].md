@@ -10347,3 +10347,216 @@ ent好喜欢拿无视魔免的控制<img src="https://static.saraba1st.com/image
 
 这把没了，经济差太多了
 
+
+
+*****
+
+####  遍体精淋af  
+##### 8741#       发表于 2022-8-13 07:52
+
+这个版本的三号位强度有点离谱啊，entity补点输出直接双三平推了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 8742#       发表于 2022-8-13 07:52
+
+张志成能不能别惦记你那破炼金了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+杜鹏他玩得了吗
+
+*****
+
+####  walfeds  
+##### 8743#       发表于 2022-8-13 07:52
+
+3-22<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 8744#       发表于 2022-8-13 07:52
+
+兽王小小谜团的推进节奏还是狠啊
+
+*****
+
+####  反方向的波  
+##### 8745#       发表于 2022-8-13 07:52
+
+张志成顶着一堆无视魔免选滚滚也太酷了
+
+*****
+
+####  smkf013  
+##### 8746#       发表于 2022-8-13 07:53
+
+次次不飞宙斯脸飞大哥，是不是太瞧不起对面了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 8747#       发表于 2022-8-13 07:53
+
+我说实话，这把炼金本来机会很大。前期对线这种局势应该很肥才对的。蓝猫被干住了滚滚也得出来打架才行
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zhliiiii  
+##### 8748#       发表于 2022-8-13 07:54
+
+不是 这炼金为啥这么穷啊，对线也没压力啊，不应该10分钟辉耀无解肥？
+
+*****
+
+####  acejoe  
+##### 8749#       发表于 2022-8-13 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043396&amp;ptid=2084957" target="_blank">zhliiiii 发表于 2022-8-13 07:54</a>
+不是 这炼金为啥这么穷啊，对线也没压力啊，不应该10分钟辉耀无解肥？</blockquote>
+宙斯兽王痛苦，野区压制，你敢放开刷么？
+
+*****
+
+####  haruhiismer  
+##### 8750#       发表于 2022-8-13 07:55
+
+相信夜宴
+
+*****
+
+####  usoda  
+##### 8751#       发表于 2022-8-13 07:55
+
+“感觉他们不会玩炼金的”.jpg
+
+*****
+
+####  ninini212  
+##### 8752#       发表于 2022-8-13 07:55
+
+这兽王太猛了，兽王谜团扫图，小小宙斯直接爆发秒人，前中期无敌啊
+
+*****
+
+####  haruhiismer  
+##### 8753#       发表于 2022-8-13 07:56
+
+炼金养贵物养出个兽王真的变态
+
+*****
+
+####  外挂全家脚气  
+##### 8754#       发表于 2022-8-13 07:56
+
+兽王就是猛啊
+
+*****
+
+####  遍体精淋af  
+##### 8755#       发表于 2022-8-13 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043392&amp;ptid=2084957" target="_blank">smkf013 发表于 2022-8-13 07:53</a>
+次次不飞宙斯脸飞大哥，是不是太瞧不起对面了</blockquote>
+没视野很难动宙斯，而且这个经济的蓝猫也切不死无解肥的宙斯吧
+
+*****
+
+####  一品堂官  
+##### 8756#       发表于 2022-8-13 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043396&amp;ptid=2084957" target="_blank">zhliiiii 发表于 2022-8-13 07:54</a>
+不是 这炼金为啥这么穷啊，对线也没压力啊，不应该10分钟辉耀无解肥？</blockquote>
+下塔被推自己这边没法推对面上塔，不能互换野区。
+然后中塔附近又死人，中一塔一丢，3个大哥没地方去了能不穷么。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  健康猹  
+##### 8757#       发表于 2022-8-13 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043409&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-13 07:56</a>
+
+炼金养贵物养出个兽王真的变态</blockquote>
+兽王是优势路打滚滚的
+
+*****
+
+####  walfeds  
+##### 8758#       发表于 2022-8-13 07:57
+
+双三打压制速推有点意思啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  4591  
+##### 8759#       发表于 2022-8-13 07:57
+
+这把夜魇的阵容就是我最喜欢的那种，一直强势大哥轮流做，突出一个位置模糊，不过是真的很容易到点
+
+*****
+
+####  ninini212  
+##### 8760#       发表于 2022-8-13 07:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这套战术真的猛，兽王开视野然后痛苦蹲人，蹲到小小+宙斯直接秒人。中期有谜团+宙斯+兽王控制伤害都拉满，这队把双三玩出花了呀
+
+
+
+*****
+
+####  沈淮  
+##### 8761#         楼主| 发表于 2022-8-13 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043409&amp;ptid=2084957" target="_blank">haruhiismer 发表于 2022-8-13 07:56</a>
+炼金养贵物养出个兽王真的变态</blockquote>
+说什么鬼东西
+
+*****
+
+####  smkf013  
+##### 8762#       发表于 2022-8-13 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043413&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-13 07:56</a>
+
+没视野很难动宙斯，而且这个经济的蓝猫也切不死无解肥的宙斯吧</blockquote>
+我咋记的蓝猫6千宙斯不到3000的时候，蓝猫就在到处飞了的，等蓝猫8千的时候，宙斯马上也8000了，那当然切不动了
+
+*****
+
+####  ninini212  
+##### 8763#       发表于 2022-8-13 07:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比赛看了个寂寞
+
+*****
+
+####  zkc1991  
+##### 8764#       发表于 2022-8-13 07:59
+
+第三把等一个茶队熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 8765#         楼主| 发表于 2022-8-13 07:59
+
+这盘纯粹阵容问题，别人前排硬后排扎实3个无视魔免的控把蓝猫压的死死的
+
+*****
+
+####  snarc1  
+##### 8766#       发表于 2022-8-13 08:00
+
+醒了还能看第三盘，不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
