@@ -886,3 +886,19 @@ fnc没换过人，反倒是vp被扣了100多，所以才有0.05
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044951&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-13 10:35</a></blockquote>
 太他妈丑了，鬼佬能不能别画妹子了
 
+
+
+*****
+
+####  漂灵  
+##### 9106#       发表于 2022-8-13 10:41
+
+bc啥水平啊漏油门。og能不能过bc和茶能不能过这俩我真不知道，但是lgd除非拿两把或者放两把电棍，不然肯定打不过雪碧。
+
+*****
+
+####  名字不乱取  
+##### 9107#       发表于 2022-8-13 10:47
+
+半夜起床发现克神已经宰了，眼睛一闭再睁开茶队也宰了，看比赛好累，不如直接相信克里斯，相信曾骄阳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
