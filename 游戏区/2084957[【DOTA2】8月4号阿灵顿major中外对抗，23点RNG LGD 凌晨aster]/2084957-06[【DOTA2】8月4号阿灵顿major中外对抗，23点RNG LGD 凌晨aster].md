@@ -10560,3 +10560,72 @@ ent好喜欢拿无视魔免的控制<img src="https://static.saraba1st.com/image
 
 醒了还能看第三盘，不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tasuku  
+##### 8767#       发表于 2022-8-13 08:01
+
+我看的比赛里面就安皇tb那把夜宴输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 8768#       发表于 2022-8-13 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043428&amp;ptid=2084957" target="_blank">smkf013 发表于 2022-8-13 07:58</a>
+
+我咋记的蓝猫6千宙斯不到3000的时候，蓝猫就在到处飞了的，等蓝猫8千的时候，宙斯马上也8000了，那当然切 ...</blockquote>
+这阵容过了对线期就直接扫图压制，一点办法都没有
+
+*****
+
+####  4591  
+##### 8769#       发表于 2022-8-13 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043419&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-13 07:57</a>
+双三打压制速推有点意思啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+其实是33335,除了霍乱都是大哥，小小这把太过亮眼，经济好，而且早想好要上高了很早就开始补抓树
+
+*****
+
+####  雅朵莉雀  
+##### 8770#       发表于 2022-8-13 08:05
+
+这盘不知道ban的什么东西，放了对面打了好几天的最顺手的东西
+
+ban什么敌法师血魔，到底张志成看过比赛没有
+
+*****
+
+####  北条早苗  
+##### 8771#       发表于 2022-8-13 08:07
+
+没想到还能品茶
+
+*****
+
+####  沈淮  
+##### 8772#         楼主| 发表于 2022-8-13 08:08
+
+我突然发现，去年这个时候也在看戴泽小小，今年还在看
+
+*****
+
+####  ninini212  
+##### 8773#       发表于 2022-8-13 08:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉对面要上剧毒NEC啊
+
+*****
+
+####  4591  
+##### 8774#       发表于 2022-8-13 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043476&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 08:08</a>
+我突然发现，去年这个时候也在看戴泽小小，今年还在看</blockquote>
+去年不是小小霍乱吗
+
