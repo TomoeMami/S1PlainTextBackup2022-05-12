@@ -1230,3 +1230,34 @@ op不是一直和burning在打吗？</blockquote>
 
 萨特我砍<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 9144#       发表于 2022-8-13 12:02
+
+<img src="https://img.saraba1st.com/forum/202208/13/120227satwwt19phj5ue7u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 12:02 上传
+
+大萨特我砍
+
+*****
+
+####  nxmonitor  
+##### 9145#       发表于 2022-8-13 12:06
+
+魔怔加嘴硬就是这样的，已经失去了就事论事的能力了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">老北京一直以来就根本打不了工具人，TI89对线劣势就必须进野区隐形一段时间的，只能围着他打不然压力全在其他人头上，至于EHOME的树老师，那时他玩大核就朝地上一躺的啊，偶尔拿个美杜莎之类少操作的还算行，导致哪怕阵容再不合适也只能围着nts打……
+
+*****
+
+####  阿垃垃圾历  
+##### 9146#       发表于 2022-8-13 12:06
+
+ti89说不上lgd围绕谁打的   更多还是走双核路线   前期偏4保1 然后等ame肥起来拿下比赛的 
+
