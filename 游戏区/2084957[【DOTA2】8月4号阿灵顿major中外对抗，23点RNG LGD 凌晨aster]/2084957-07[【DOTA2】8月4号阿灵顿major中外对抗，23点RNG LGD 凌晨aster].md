@@ -5609,3 +5609,223 @@ bc这波怎么敢这么冲的，感觉是没见过现在的宙斯的样子
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 9658#       发表于 2022-8-14 01:00
+
+全靠酒仙打
+
+*****
+
+####  iriyano  
+##### 9659#       发表于 2022-8-14 01:00
+
+OG犯病了，要被翻啊
+
+*****
+
+####  北条早苗  
+##### 9660#       发表于 2022-8-14 01:00
+
+k1这拍拍有点畜了
+
+
+
+*****
+
+####  nxmonitor  
+##### 9661#       发表于 2022-8-14 01:01
+
+这BC好蠢啊，像是完全没有配合一样，牛头出奇得蠢……
+
+*****
+
+####  弈秋  
+##### 9662#       发表于 2022-8-14 01:01
+
+真牛和ceb也差太多了
+
+*****
+
+####  a1370303  
+##### 9663#       发表于 2022-8-14 01:01
+
+K1大神怎么死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 9664#       发表于 2022-8-14 01:01
+
+这个队最菜的居然是4
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 9665#       发表于 2022-8-14 01:02
+
+好好双倍打盾不打，去追一个伐木机真是让人不理解……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 9666#       发表于 2022-8-14 01:02
+
+牛头有点自然了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 9667#       发表于 2022-8-14 01:02
+
+克神刷新天神下凡！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 9668#       发表于 2022-8-14 01:02
+
+这牛头感觉我上我也行
+
+*****
+
+####  弈秋  
+##### 9669#       发表于 2022-8-14 01:03
+
+og快点公式化按死吧，别加班了
+
+*****
+
+####  iriyano  
+##### 9670#       发表于 2022-8-14 01:04
+
+电魂林肯a杖之后感觉要无敌
+
+*****
+
+####  北条早苗  
+##### 9671#       发表于 2022-8-14 01:04
+
+wisper这熊猫搞这么厉害干什么
+
+*****
+
+####  弈秋  
+##### 9672#       发表于 2022-8-14 01:04
+
+WISper唯一想赢
+
+*****
+
+####  12481632  
+##### 9673#       发表于 2022-8-14 01:05
+
+不要加班啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 9674#       发表于 2022-8-14 01:05
+
+这熊猫og处理不了
+
+*****
+
+####  iriyano  
+##### 9675#       发表于 2022-8-14 01:05
+
+刷新bkb电魂的强度太离谱了
+
+*****
+
+####  名字不乱取  
+##### 9676#       发表于 2022-8-14 01:05
+
+bc的4玩不明白牛头板这种技能，反正队内地位30分前就是个移动眼，随便死是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 9677#       发表于 2022-8-14 01:06
+
+酒仙和茶队那把一样没一个远程炮台酒仙开出大就无敌
+
+*****
+
+####  nxmonitor  
+##### 9678#       发表于 2022-8-14 01:06
+
+酒仙暴露了啊，希望V社不会盯上吧，这可是中国区绝活……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  43453  
+##### 9679#       发表于 2022-8-14 01:06
+
+这把克神进化了，赢了大腿输了虽败犹荣了
+
+*****
+
+####  BallanceHZ  
+##### 9680#       发表于 2022-8-14 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054880&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-14 01:06</a>
+酒仙暴露了啊，希望V社不会盯上吧，这可是中国区绝活……</blockquote>
+说是中国区绝活，实际也就xxs和bian玩的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 9681#       发表于 2022-8-14 01:08
+
+ 本帖最后由 haruhiismer 于 2022-8-14 01:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054880&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-14 01:06</a>
+酒仙暴露了啊，希望V社不会盯上吧，这可是中国区绝活……</blockquote>
+版本问题，ta火女加强一下酒仙马上人没了
+
+*****
+
+####  莉拉厨  
+##### 9682#       发表于 2022-8-14 01:09
+
+给牛头道歉了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  asd235614  
+##### 9683#       发表于 2022-8-14 01:09
+
+BC这牛睡醒了啊
+
+*****
+
+####  北条早苗  
+##### 9684#       发表于 2022-8-14 01:09
+
+bc打团赢都是靠这个熊猫，打起团来血魔都在天上
+
+*****
+
+####  迷途lite  
+##### 9685#       发表于 2022-8-14 01:09
+
+这小牛有个魔晶血魔就死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 9686#       发表于 2022-8-14 01:09
+
+这要加班我就睡了 草
+
