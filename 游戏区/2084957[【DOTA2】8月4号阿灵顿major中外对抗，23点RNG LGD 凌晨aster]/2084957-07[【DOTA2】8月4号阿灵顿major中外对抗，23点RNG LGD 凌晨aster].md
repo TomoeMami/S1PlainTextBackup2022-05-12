@@ -3982,3 +3982,64 @@ ti8 og的翻盘局打了太多经典好局，导致我事实上看完胜决后�
 
 看完蒜生放，再看一把克神和ceb，睡醒希望有好消息<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 9448#       发表于 2022-8-13 22:50
+
+这种世界线还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 9449#       发表于 2022-8-13 22:53
+
+总说dota2观众平均年龄大，这氛围还不如lol的集美们呢。还是lgd这几年太强势了没办法。
+
+*****
+
+####  Kazepollar  
+##### 9450#       发表于 2022-8-13 22:54
+
+这么说吧，ogti8的表演几乎可以征服所有没有立场的dota观众。
+我大概回看了ti8 g4 g5超过30次
+
+
+
+*****
+
+####  walfeds  
+##### 9451#       发表于 2022-8-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57053207&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-13 22:39</a>
+ti8 og的翻盘局打了太多经典好局，导致我事实上看完胜决后就更希望og赢了当时没那么讨厌lgd，只是更 ...</blockquote>
+别说了，版本回滚oxo马上就要被楼友清算惹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 9452#       发表于 2022-8-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57053371&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-13 22:50</a>
+
+这种世界线还是算了集美的异味已经够大了，无论是刀区直播间还是与比赛无关的刀视频已经洪水滔天了[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我只要ti给我狠狠得输就行了
+
+*****
+
+####  nowaki  
+##### 9453#       发表于 2022-8-13 22:57
+
+说起来我微信头像还是汉堡猫，我的青春（末期）就是看克神打gg
+
+*****
+
+####  阿垃垃圾历  
+##### 9454#       发表于 2022-8-13 22:58
+
+ti8g4 g5真的太有魅力了    就我个人从ti5-ti10看下来 名局top3里就得有g4 管他现在什么肌肉dota新名词把以前的比赛都说成脑浆 
+
