@@ -9341,3 +9341,15 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 活动用公主刷了几把，感觉这新声优真的是棒读到发指，尤其是每次都要听一遍千和的暗狐，对比下来太 ...</blockquote>
 鬼头才是棒读好不，公主声优起码有点起伏，绘里濑的宝具语音真的是完全一个调<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 877#       发表于 2022-8-13 11:36
+
+我觉得你们就该开着外放去多用几次古贺葵
+
+你们一定会觉得棒读也挺好的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

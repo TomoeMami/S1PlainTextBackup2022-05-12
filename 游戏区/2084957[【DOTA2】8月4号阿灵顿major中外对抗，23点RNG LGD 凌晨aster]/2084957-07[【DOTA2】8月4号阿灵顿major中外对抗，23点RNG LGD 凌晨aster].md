@@ -1120,3 +1120,60 @@ ti11公布Dota2手游救一下啊
 
 冠夹眼见的还要被清算一段时间，不知道完美是找的自己家员工还是找的临时工
 
+
+
+*****
+
+####  chilno  
+##### 9133#       发表于 2022-8-13 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045468&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 11:23</a>
+
+所以a畜早早的当了op，令人感叹其高瞻远瞩</blockquote>
+op不是一直和burning在打吗？
+
+*****
+
+####  遍体精淋af  
+##### 9134#       发表于 2022-8-13 11:31
+
+没有盾的C叫冠军C
+没有盾的中叫第一人
+可能水人没有波高
+可能帕克没有保枪
+没有网站菠菜
+没有集美扣水
+有的只有一个下限的小丑C和一个堕落的废物中
+这就是老干鳖
+就算丢冠，也要ru水满天，冲的轰轰烈烈
+假赛的反转，无非又是一次结晶
+如果能回到过去，我还想再问问掀背
+T圣坛是为了吃，还是为了菜？​
+冠夹评论区搬的，集美们不太行啊
+
+*****
+
+####  nowaki  
+##### 9135#       发表于 2022-8-13 11:32
+
+<blockquote>chilno 发表于 2022-8-13 11:30
+op不是一直和burning在打吗？</blockquote>
+当然是o神的那个op
+
+*****
+
+####  沈淮  
+##### 9136#         楼主| 发表于 2022-8-13 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045556&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-13 11:30</a>
+
+op不是一直和burning在打吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/13/113454lf99ssxf4ofv2u46.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220813113446.jpg</strong> (49.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 11:34 上传
+
