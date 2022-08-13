@@ -3622,3 +3622,32 @@ AME本身也比Maybe小个一两岁吧，等比兑换一下就是19年到20年�
 
 咱家giegie就是越老越吃香啊
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 9410#       发表于 2022-8-13 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049704&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 18:59</a>
+ig全队集合，但是徐林森野人化了</blockquote>
+预选IG vs RNG有看头啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 9411#       发表于 2022-8-13 20:17
+
+从森哥群里听到的消息是：
+之前训练赛能和ig掰手腕的队伍只有rng
+细品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 9412#       发表于 2022-8-13 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049013&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 17:41</a>
+就是这五个csdx送oc回家的啊</blockquote>
+oc眼花，看到五个inflame是有点怕
+

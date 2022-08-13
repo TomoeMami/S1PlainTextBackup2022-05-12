@@ -9712,3 +9712,25 @@ FGO那个不就是R换得新CV吗</blockquote>
 如果能做到那乐子就大了，先不说团长原地飞升，吹红卡通解的得破大防
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 910#       发表于 2022-8-13 20:13
+
+商店换美少女，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+脖子虽然很怪，但凶器还是很有质量<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 911#       发表于 2022-8-13 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050485&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-13 20:07</a>
+
+斯卡蒂那个配卡，估摸着是攻击向绿宝具
+
+兔子王是配卡一模一样的红宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会破防 不是很懂  我只知道要是伊师傅撕了王姐和狂娜 某地999%破防然后血流成河（
+
