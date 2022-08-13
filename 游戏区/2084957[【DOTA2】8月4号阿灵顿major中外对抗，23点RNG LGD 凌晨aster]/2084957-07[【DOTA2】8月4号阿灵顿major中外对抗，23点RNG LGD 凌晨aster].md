@@ -941,3 +941,62 @@ dota2，狗都不玩<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">北美饭皇是这样的
 
+
+
+*****
+
+####  dclara1  
+##### 9113#       发表于 2022-8-13 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045146&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 10:54</a>
+
+12个直邀队里只有1个队外战一分不拿，太÷了</blockquote>
+刚好是去年外战拿了最多分的那队<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 9114#       发表于 2022-8-13 11:04
+
+wisp这b还有拉比克3？南美dota是不是另外点了条科技线<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+我建议以后na赛区去南美进货，这帮b天赋异禀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 9115#       发表于 2022-8-13 11:06
+
+sa dota best dota！
+
+*****
+
+####  chilno  
+##### 9116#       发表于 2022-8-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045159&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-13 10:56</a>
+新人跟不上这锅也甩给lgd就没啥必要了，本质是没几个新人玩了</blockquote>
+没老干瘪那年的透支偿还，国内怎么还能续命一下的
+你可以找业内问问，特别是非干瘪系的，谁不恨啊
+
+*****
+
+####  JoelBirch  
+##### 9117#       发表于 2022-8-13 11:07
+
+因为没冠军就得死的游戏，早该死死了
+
+*****
+
+####  ArowRocher  
+##### 9118#       发表于 2022-8-13 11:08
+
+红迪在骂一分钟票就没了黄牛应该死刑，假赛论坛在发帖抢到了四张决赛票，世界的参差。
+
+*****
+
+####  ArowRocher  
+##### 9119#       发表于 2022-8-13 11:09
+
+没冠军只能说是相关因素，这东西本质也是社交游戏，完美和赖皮v难道没有99%的责任吗
+

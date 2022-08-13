@@ -9302,3 +9302,24 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃了几个银苹果总算把三个设施lv10了，种火还是很缺的，40+男从者都等着终突拿石头呢
 
+
+
+*****
+
+####  rooarr  
+##### 873#       发表于 2022-8-13 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044905&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-13 10:30</a>
+ 吃了几个银苹果总算把三个设施lv10了，种火还是很缺的，40+男从者都等着终突拿石头呢 ...</blockquote>
+周年的时候居然不刷狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比这里效率高才对
+
+*****
+
+####  黑上シグマ  
+##### 874#       发表于 2022-8-13 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045272&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-13 11:04</a>
+
+周年的时候居然不刷狗粮比这里效率高才对</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年的时候自然是在刷钱
+
