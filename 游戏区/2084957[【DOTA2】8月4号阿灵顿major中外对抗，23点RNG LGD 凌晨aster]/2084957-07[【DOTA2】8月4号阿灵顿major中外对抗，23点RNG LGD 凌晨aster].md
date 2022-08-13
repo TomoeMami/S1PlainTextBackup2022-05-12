@@ -5947,3 +5947,241 @@ atf咋回事啊
 
 可能只有RNG不知道电棍阵容怎么上高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asd235614  
+##### 9702#       发表于 2022-8-14 01:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛头大跳，但是没有什么影响
+
+*****
+
+####  AIDSL  
+##### 9703#       发表于 2022-8-14 01:20
+
+曼联被人杀马了吗，怎么哪个直播间都在喷曼联
+
+*****
+
+####  haruhiismer  
+##### 9704#       发表于 2022-8-14 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054945&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-14 01:14</a>
+酒仙确实怕强线上的一，比如TA什么的，敌法也好打酒仙，问题是万一没压住那后期是真的恶心，A杖盘子刷新三 ...</blockquote>
+怕暴力远程炮台火女ta tb点小熊猫一秒点掉
+
+*****
+
+####  莉拉厨  
+##### 9705#       发表于 2022-8-14 01:20
+
+克神，克神，勇猛超神！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 9706#       发表于 2022-8-14 01:21
+
+不给入
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 9707#       发表于 2022-8-14 01:21
+
+睡了，明早起来品茶
+
+*****
+
+####  a1370303  
+##### 9708#       发表于 2022-8-14 01:21
+
+牛头空大庆祝<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 9709#       发表于 2022-8-14 01:21
+
+卧槽，看了辣眼睛牛头觉得输定了就走了，bc怎么赢的啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名字不乱取  
+##### 9710#       发表于 2022-8-14 01:22
+
+k1买活拿二代盾可以抵消这一把所有畜生操作了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 9711#       发表于 2022-8-14 01:22
+
+我仔细想想DOOM能做的熊猫都能做，熊猫能做doom一个也做不了，同样团战直接让对面少个人，熊猫容错性可高多了，也不怕林肯莲花，谁拿DOOM真的是傻逼
+
+*****
+
+####  masterkeaton  
+##### 9712#       发表于 2022-8-14 01:22
+
+这牛头太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9713#       发表于 2022-8-14 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054994&amp;ptid=2084957" target="_blank">lmslardar 发表于 2022-8-14 01:21</a>
+卧槽，看了辣眼睛牛头觉得输定了就走了，bc怎么赢的啊
+
+—— 来自 S1Fun</blockquote>
+中期og各种逛街被抓，熊猫力中暴力，k1买活赢团拿盾，克里斯神bkb刷新之后开始收割了
+
+*****
+
+####  沈淮  
+##### 9714#         楼主| 发表于 2022-8-14 01:23
+
+我宣布暂时剥夺k1南美a畜称号一个bo1
+
+*****
+
+####  fr0stzer0  
+##### 9715#       发表于 2022-8-14 01:23
+
+酒仙选的好，打团顶上去单防血魔；其次就是电棍太厉害了，改削了
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 9716#         楼主| 发表于 2022-8-14 01:24
+
+这版本电魂确实太离谱了，血魔都不怕了
+
+*****
+
+####  iriyano  
+##### 9717#       发表于 2022-8-14 01:25
+
+k1不装了，是时候拿下rtz了
+我才是美洲fg！
+
+*****
+
+####  -SLSL-  
+##### 9718#       发表于 2022-8-14 01:25
+
+怎么感觉土娟有点显老了
+
+*****
+
+####  walfeds  
+##### 9719#       发表于 2022-8-14 01:25
+
+就是小熊猫扛起了所有团战，输出是拍拍打还是电棍打都不关键了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  香蕉芭菲  
+##### 9720#       发表于 2022-8-14 01:26
+
+宙斯这个英雄有个1w多经济，其实输出就很高了，再后面的装备都是搞功能性的。所以一直觉得对于阵容上限来说，四号位宙斯才是最舒服的，看看mira的宙斯，这版本四号位跟着打架蹭1w左右经济还是可以有的。不过这把其实跟这宙斯是几号位没关系，熊猫起来了就是不好打
+
+
+
+*****
+
+####  战狼PTSD  
+##### 9721#       发表于 2022-8-14 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054779&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-14 00:55</a>
+
+不想挂刀的话只能绑visa卡了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+细说VISA，充哪个区的
+
+*****
+
+####  belldandy_ye  
+##### 9722#       发表于 2022-8-14 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054994&amp;ptid=2084957" target="_blank">lmslardar 发表于 2022-8-14 01:21</a>
+
+卧槽，看了辣眼睛牛头觉得输定了就走了，bc怎么赢的啊
+
+—— 来自 S1Fun</blockquote>
+刷新电魂是妖怪，这不大砍一刀真的不合理.
+
+*****
+
+####  nowaki  
+##### 9723#       发表于 2022-8-14 01:27
+
+<blockquote>AIDSL 发表于 2022-8-14 01:20
+曼联被人杀马了吗，怎么哪个直播间都在喷曼联</blockquote>
+半场被保级队4-0了
+
+*****
+
+####  haruhiismer  
+##### 9724#       发表于 2022-8-14 01:28
+
+曼联可以啊
+
+*****
+
+####  nowaki  
+##### 9725#       发表于 2022-8-14 01:28
+
+这个假三真一版本别改哦，这版本的强势三冲脸真的一点办法都没有，传统12太弱
+
+*****
+
+####  阿垃垃圾历  
+##### 9726#       发表于 2022-8-14 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055043&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 01:27</a>
+
+半场被保级队4-0了</blockquote>
+双开 看的超级爽  曼联的球笑死人了  同时还能欣赏克神
+
+*****
+
+####  战狼PTSD  
+##### 9727#       发表于 2022-8-14 01:28
+
+电魂、酒仙、戴泽、陈、小鹿、宙斯，铁没了
+
+*****
+
+####  solmyrli  
+##### 9728#       发表于 2022-8-14 01:29
+
+刚看几把比赛，感觉电棍该削
+
+*****
+
+####  希望之花  
+##### 9729#       发表于 2022-8-14 01:30
+
+面对强势英雄电棍的平衡问题，冰蛙的新版本调整是：
+
+A. 初始护甲-1
+
+B. 将电棍重命名为米波
+
+C. 加入草帽海贼团
+
