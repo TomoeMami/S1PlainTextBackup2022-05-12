@@ -10353,3 +10353,24 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047366&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-13 14:22</a></blockquote>
 笑死我了，标题还挺会起啊
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2502#       发表于 2022-8-13 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不给新人安排节目整这些干嘛呢
+
+*****
+
+####  ads147147  
+##### 2503#       发表于 2022-8-13 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046376&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-13 12:50</a></blockquote>
+夏美带眼镜好像也没啥违和，估计是和平入队然后搞点特色操作，估计是单纯的欢乐回。
+
+想想觉得真可怕，不碰大赛屁事没有，一开始大赛整个故事就变成怪味。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

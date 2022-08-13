@@ -4408,3 +4408,48 @@ yugo睡醒了！
 
 投手，投手，还是投手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 16898#       发表于 2022-8-13 14:30
+
+人笑大福CJB
+
+大福笑人不懂直播
+
+这就是4投手的含金量！
+
+*****
+
+####  alcoholic1000  
+##### 16899#       发表于 2022-8-13 14:32
+
+渡鸦帝国立继投守不住，还让西西吃到了buff<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+演了6回就等现在！
+
+*****
+
+####  稀勢のささ  
+##### 16900#       发表于 2022-8-13 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是节目效果
+
+*****
+
+####  FCCHua  
+##### 16901#       发表于 2022-8-13 14:35
+
+大福稳住了就好...
+
+*****
+
+####  格林卡罗尔  
+##### 16902#       发表于 2022-8-13 14:35
+
+被换投气死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
