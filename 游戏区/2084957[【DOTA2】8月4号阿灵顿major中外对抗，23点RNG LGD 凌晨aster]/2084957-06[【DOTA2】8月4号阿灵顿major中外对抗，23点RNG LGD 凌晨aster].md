@@ -10975,3 +10975,262 @@ A杖钢背这么送
 
 酒仙经济太差了
 
+
+
+*****
+
+####  百世诸侯  
+##### 8821#       发表于 2022-8-13 08:40
+
+ 前几天楼友指定的CN唯二五号位如今视野被boom中boom
+
+*****
+
+####  天堂蜘蛛  
+##### 8822#       发表于 2022-8-13 08:41
+
+其实感觉还是视野问题，夜宴抓住刚被一个人上去点锅的时候把团开起来了
+
+*****
+
+####  白野苍衣  
+##### 8823#       发表于 2022-8-13 08:41
+
+乐，这个major因为丑国签证官的gank，大半队伍已经是残阵出战了，包括鳖茶对面这个队，不然鳖茶能不能突破首轮魔咒还真不好说
+
+*****
+
+####  蛭人  
+##### 8824#       发表于 2022-8-13 08:42
+
+皮球也就线上比较强吧，monet这把属实从线上就有点搞笑，刚三空补不如末日。
+
+*****
+
+####  zkc1991  
+##### 8825#       发表于 2022-8-13 08:42
+
+寄了寄了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 8826#       发表于 2022-8-13 08:43
+
+钢背宛如空气
+
+*****
+
+####  smkf013  
+##### 8827#       发表于 2022-8-13 08:43
+
+熊猫开大送最后一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 8828#       发表于 2022-8-13 08:43
+
+寄了呀
+
+*****
+
+####  遍体精淋af  
+##### 8829#       发表于 2022-8-13 08:43
+
+漏油的眼光一向不准<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 8830#       发表于 2022-8-13 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">稀碎
+
+*****
+
+####  莉拉厨  
+##### 8831#       发表于 2022-8-13 08:43
+
+下班咯
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 8832#       发表于 2022-8-13 08:43
+
+可以回家了，尿了一地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 8833#       发表于 2022-8-13 08:43
+
+智商是硬伤啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 8834#       发表于 2022-8-13 08:44
+
+怎么把把被动
+
+*****
+
+####  阿垃垃圾历  
+##### 8835#       发表于 2022-8-13 08:44
+
+对面这个队 真的让人眼前一亮啊 
+
+*****
+
+####  4591  
+##### 8836#       发表于 2022-8-13 08:44
+
+小小隐忍了这么久终于开始发大力了，力中暴力啊，另外霍乱的发挥真的完爆皮球
+
+*****
+
+####  米德  
+##### 8837#       发表于 2022-8-13 08:44
+
+茶队在让人失望这点上从不让人失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 8838#       发表于 2022-8-13 08:44
+
+这波不该追剧毒的。
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天堂蜘蛛  
+##### 8839#       发表于 2022-8-13 08:45
+
+这个bane真值得ban一手
+
+*****
+
+####  IG.430  
+##### 8840#       发表于 2022-8-13 08:45
+
+这bane，我要昏古七了
+
+*****
+
+####  nxmonitor  
+##### 8841#       发表于 2022-8-13 08:45
+
+这钢背怎么敢一个人去点锅的？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8842#         楼主| 发表于 2022-8-13 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这下子急病乱投医了
+
+*****
+
+####  Imanmi  
+##### 8843#       发表于 2022-8-13 08:45
+
+怎么entity打的好像当世强队一样啊，视野压制智商压制操作压制，这也进化？
+
+*****
+
+####  walfeds  
+##### 8844#       发表于 2022-8-13 08:45
+
+草，这个智力斗篷喷漆蚌埠住了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 8845#       发表于 2022-8-13 08:46
+
+血脉压制？智商压制！
+
+*****
+
+####  Litccc  
+##### 8846#       发表于 2022-8-13 08:47
+
+pure不在都能被暴打啊
+
+*****
+
+####  qty  
+##### 8847#       发表于 2022-8-13 08:48
+
+CN队视野弱这个算是痼疾了吧，不能想办法改善一下吗？
+
+*****
+
+####  弈秋  
+##### 8848#       发表于 2022-8-13 08:48
+
+视野烂中爆烂
+
+*****
+
+####  坚定的团子党  
+##### 8849#       发表于 2022-8-13 08:48
+
+monet我感觉真不如锋哥，一点亮点都没有
+
+*****
+
+####  やト  
+##### 8850#       发表于 2022-8-13 08:49
+
+肉山团打回来了点
+
+
+
+*****
+
+####  白野苍衣  
+##### 8851#       发表于 2022-8-13 08:49
+
+杜鹏本来就是TI7以来最大泡沫
+
+*****
+
+####  弈秋  
+##### 8852#       发表于 2022-8-13 08:49
+
+这团还行
+
+*****
+
+####  千千千千鸟  
+##### 8853#       发表于 2022-8-13 08:49
+
+这个回魂如果是算好时间的就厉害了呀
+
+*****
+
+####  迷途lite  
+##### 8854#       发表于 2022-8-13 08:50
+
+还行
+
+*****
+
+####  米德  
+##### 8855#       发表于 2022-8-13 08:50
+
+有机会翻 支棱起来啊杜鹏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
