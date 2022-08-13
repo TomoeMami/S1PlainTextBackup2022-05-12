@@ -9492,3 +9492,22 @@ FGO那个不就是R换得新CV吗</blockquote>
 你这个公主声优，是指生天目仁美还是柚木凉香？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长谷川育美也是里界大佬啊  虽然没生天目表里都那么有名
 
+
+
+*****
+
+####  黑上シグマ  
+##### 891#       发表于 2022-8-13 17:16
+
+下作啊，继续藏斯卡蒂的技能和宝具
+
+*****
+
+####  qb0079  
+##### 892#       发表于 2022-8-13 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048768&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-13 17:16</a>
+
+下作啊，继续藏斯卡蒂的技能和宝具</blockquote>
+配卡是2红2绿1蓝，很微妙，不像拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

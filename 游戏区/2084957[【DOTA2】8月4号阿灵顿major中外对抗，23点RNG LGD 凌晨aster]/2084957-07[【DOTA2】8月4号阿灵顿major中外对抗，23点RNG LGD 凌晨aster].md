@@ -2945,3 +2945,78 @@ QQ截图20220813170342.png
 其实不仅非职业玩家看不懂，职业哥也打不懂，去年ti忘了是哪个博登连发芽造成攻击落空这天赋都不点 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有飞飞虚空的20级天赋
 
+
+
+*****
+
+####  百世诸侯  
+##### 9336#       发表于 2022-8-13 17:10
+
+<img src="https://img.saraba1st.com/forum/202208/13/171014ozl4y4xrezeyei9e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 17:10 上传
+
+刚来，听说龙之血第三季米拉娜怀了龙骑的儿子，那神秘商人出现在这里又是何意啊
+
+*****
+
+####  thistimeforlife  
+##### 9337#       发表于 2022-8-13 17:11
+
+ti7最后那2天节目效果确实拉满，处长杀完鳖又光速向液体投降，核弹和干瘪吵了一天后又是【最强季军lfy】【最菜亚军nb】。只能说后续在ti上再难有与水厂匹敌的其他cn队了
+
+*****
+
+####  名字不乱取  
+##### 9338#       发表于 2022-8-13 17:12
+
+哥们低分猪看不懂很正常好吧，基本听解说乱讲，不怕乱叫的，就怕遇到蚂蚁连击刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 9339#       发表于 2022-8-13 17:15
+
+很明显dota战术一直在螺旋进化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  拿拿子  
+##### 9340#       发表于 2022-8-13 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048646&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 17:02</a>
+
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此 ...</blockquote>
+这个帖子看了属实有点绷不住
+
+*****
+
+####  沈淮  
+##### 9341#         楼主| 发表于 2022-8-13 17:16
+
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此不堪受辱的情况下，仍然能够把自己的本职工作（丢盾）搞的如此顶尖，在国内游戏界，或者哪怕是体育和娱乐界，又有几个人能做到如此。
+
+*****
+
+####  尸体鲨  
+##### 9342#       发表于 2022-8-13 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048774&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 17:16</a>
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此 ...</blockquote>
+CSDX带头品屎是吧
+
+*****
+
+####  沈淮  
+##### 9343#         楼主| 发表于 2022-8-13 17:18
+
+不会真的有人觉得现在职业队dota水平很高吧？
+
+疫情原因比赛少，状况多。对比17-20年我感觉已经很低了，现在超级强队很明显没之前多，也没之前强，
+
