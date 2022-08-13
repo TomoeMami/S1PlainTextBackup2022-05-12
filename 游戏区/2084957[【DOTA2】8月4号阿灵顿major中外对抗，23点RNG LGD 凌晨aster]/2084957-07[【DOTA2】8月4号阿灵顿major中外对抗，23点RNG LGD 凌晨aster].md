@@ -3268,3 +3268,17 @@ atf晚上乳化，cebti顺势上位
 
 atf这没喷回去吗，我记得atf打天梯也突出一个戏多
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9371#       发表于 2022-8-13 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048152&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-13 16:03</a>
+
+怎么害有任豚的事，怀疑你黑伟大的xb3</blockquote>
+遇到阵营魔怔人没办法，忠诚不绝对就是绝对不忠诚，我三台NS买了几十款游戏的也被打成索狗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+冤屈程度堪比傻狗试图TI10后在NGA说决赛不是假赛
+
