@@ -5829,3 +5829,121 @@ bc打团赢都是靠这个熊猫，打起团来血魔都在天上
 
 这要加班我就睡了 草
 
+
+
+*****
+
+####  弈秋  
+##### 9687#       发表于 2022-8-14 01:12
+
+WISper这么厉害干什么
+
+*****
+
+####  nxmonitor  
+##### 9688#       发表于 2022-8-14 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054889&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-14 01:08</a>
+
+说是中国区绝活，实际也就xxs和bian玩的好吧</blockquote>
+问题是也就这两个有点希望啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 9689#       发表于 2022-8-14 01:13
+
+电魂无敌了
+
+*****
+
+####  a1370303  
+##### 9690#       发表于 2022-8-14 01:13
+
+图3了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  名字不乱取  
+##### 9691#       发表于 2022-8-14 01:13
+
+又给克神装起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 9692#       发表于 2022-8-14 01:13
+
+酒仙才是版本答案啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 9693#       发表于 2022-8-14 01:14
+
+克神太屌了，每一件装备选择都是正确的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 9694#       发表于 2022-8-14 01:14
+
+克里斯神！
+
+*****
+
+####  nxmonitor  
+##### 9695#       发表于 2022-8-14 01:14
+
+酒仙确实怕强线上的一，比如TA什么的，敌法也好打酒仙，问题是万一没压住那后期是真的恶心，A杖盘子刷新三件套，还能拆塔……
+
+*****
+
+####  弈秋  
+##### 9696#       发表于 2022-8-14 01:15
+
+atf咋回事啊
+
+*****
+
+####  12481632  
+##### 9697#       发表于 2022-8-14 01:15
+
+喜欢打问号是吧
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 9698#       发表于 2022-8-14 01:16
+
+克神装起来了
+
+*****
+
+####  沈淮  
+##### 9699#         楼主| 发表于 2022-8-14 01:17
+
+这盘k1的买活太关键了
+
+*****
+
+####  北条早苗  
+##### 9700#       发表于 2022-8-14 01:17
+
+加班了，喜欢跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9701#       发表于 2022-8-14 01:19
+
+可能只有RNG不知道电棍阵容怎么上高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
