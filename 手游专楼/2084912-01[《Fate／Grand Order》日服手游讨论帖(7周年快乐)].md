@@ -9855,3 +9855,50 @@ DIY一下红光炮狂伊吹：
 
 你们商店换东西时有没有问题？我每次都卡死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白金口袋  
+##### 921#       发表于 2022-8-13 20:55
+
+反正真·黑幕就是旧梅这事一看地图上那座塔就知道了，比道满跳反惊喜度还低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 922#       发表于 2022-8-13 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天9点我估计还没起来 希望别错过什么大戏
+
+*****
+
+####  exiaexa  
+##### 923#       发表于 2022-8-13 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051383&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 20:55</a>
+
+明天9点我估计还没起来 希望别错过什么大戏</blockquote>
+草，你不说我都没发现是早上UP
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 924#       发表于 2022-8-13 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051378&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-8-13 20:55</a>
+
+反正真·黑幕就是旧梅这事一看地图上那座塔就知道了，比道满跳反惊喜度还低 ...</blockquote>
+经典套路，活动一开始遇到的角色就是幕后黑手，不知道会不会还有惯例的分身剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 925#       发表于 2022-8-13 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051479&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-13 20:59</a>
+
+草，你不说我都没发现是早上UP</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要一大早晒卡了吗
+

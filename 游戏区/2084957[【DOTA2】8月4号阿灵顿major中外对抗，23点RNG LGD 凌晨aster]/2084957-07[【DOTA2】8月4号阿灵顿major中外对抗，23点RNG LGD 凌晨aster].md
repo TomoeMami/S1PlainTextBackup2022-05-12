@@ -3712,3 +3712,21 @@ oc眼花，看到五个inflame是有点怕
 
 xinq（2022），xinq（2023），xinq（2024）
 
+
+
+*****
+
+####  逃离二次元  
+##### 9420#       发表于 2022-8-13 20:56
+
+入dota这个坑，就是因为森哥，现在每次看到森哥的集锦都忍不住想哭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蛭人  
+##### 9421#       发表于 2022-8-13 20:58
+
+森哥真的不比jerax差，ti8的牛头没把TB的头给板爆是他最大的错误。
+
