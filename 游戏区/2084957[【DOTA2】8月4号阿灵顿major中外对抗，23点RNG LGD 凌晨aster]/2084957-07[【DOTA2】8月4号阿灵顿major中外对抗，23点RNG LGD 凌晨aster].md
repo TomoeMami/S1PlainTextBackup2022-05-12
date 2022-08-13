@@ -2212,3 +2212,71 @@ M鳖最大的问题就是年龄到了不适合中单了，另一个问题就是�
 有没有管人区游玩攻略，外野现在不好玩想找新乐子</blockquote>
 找个搬屎多的楼，然后去nga和v8搬屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9254#       发表于 2022-8-13 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047577&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-13 14:50</a>
+
+找个搬屎多的楼，然后去nga和v8搬屎</blockquote>
+那还去什么管人区，这里不就是吗
+
+*****
+
+####  无糖茶  
+##### 9255#       发表于 2022-8-13 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047586&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-13 14:51</a>
+
+那还去什么管人区，这里不就是吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">这里就是管人区飞地啊
+
+*****
+
+####  名字不乱取  
+##### 9256#       发表于 2022-8-13 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047586&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-13 14:51</a>
+
+那还去什么管人区，这里不就是吗</blockquote>
+还差个楼内自治权<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9257#       发表于 2022-8-13 14:54
+
+东英0在管人区报团骗鹅太多了不基德，结果任÷昊一看哇塞这人几千鹅一定是个粉头吧立马截图在睡前消息里挂出来使用，帮东子盖上了赛博棺材板<img src="https://static.saraba1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 9258#       发表于 2022-8-13 14:56
+
+秃头咪蒙什么时候挂的楼友<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 9259#       发表于 2022-8-13 14:58
+
+新加坡major的bian状态不行都不认就没啥好讨论了，这么嘴硬和自己天天声讨的人有啥区别呢
+
+*****
+
+####  你维阿管不到我  
+##### 9260#       发表于 2022-8-13 14:58
+
+这楼还不够管人吗。平日里潜水的管人痴（集美），假装纯路人的管人痴（集美），和管人痴（集美）战斗以后把自己脑浆拉成和管人痴（集美）同一水平的。该有的都有了。
+
+*****
+
+####  反方向的波  
+##### 9261#       发表于 2022-8-13 14:58
+
+<img src="https://p.sda1.dev/6/c20edc1233dfbd95ef85a2d59f909ed5/CMP_20220813145831050.jpg" referrerpolicy="no-referrer">
+a/那期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
