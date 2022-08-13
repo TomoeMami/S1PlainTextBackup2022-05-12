@@ -5481,3 +5481,72 @@ k1玩拍拍，走远了，除非克里斯再次化身成神，<img src="https://
 
 k1死这把线没法站了
 
+
+
+*****
+
+####  名字不乱取  
+##### 9642#       发表于 2022-8-14 00:40
+
+下次看克里斯就是ti了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  43453  
+##### 9643#       发表于 2022-8-14 00:40
+
+bc还是实力差太远了，20投吧
+
+*****
+
+####  北条早苗  
+##### 9644#       发表于 2022-8-14 00:41
+
+小鹿拍拍点出来就是打伐木机的，这路被打穿了
+
+og已经出宙斯了，硬是把电棍摇到中路是真的看不懂
+
+*****
+
+####  12481632  
+##### 9645#       发表于 2022-8-14 00:41
+
+bc能坚持12分钟吗
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acg_s1  
+##### 9646#       发表于 2022-8-14 00:42
+
+bc这个轮盘语音好萌<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 9647#       发表于 2022-8-14 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">克神这抽攻也太本能了，感觉就是谁在脸上抽谁
+
+*****
+
+####  nowaki  
+##### 9648#       发表于 2022-8-14 00:47
+
+一想到看不到克神的表演 就觉得major失去了意义
+
+*****
+
+####  弈秋  
+##### 9649#       发表于 2022-8-14 00:48
+
+没看到克神打maybe我好失望
+
+*****
+
+####  北条早苗  
+##### 9650#       发表于 2022-8-14 00:48
+
+克里斯神这电棍熟练度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
