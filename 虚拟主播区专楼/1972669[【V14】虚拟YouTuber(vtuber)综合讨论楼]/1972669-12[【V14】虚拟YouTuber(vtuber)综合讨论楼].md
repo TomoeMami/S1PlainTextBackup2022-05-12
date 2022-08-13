@@ -4563,3 +4563,41 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 神速的看板，当然是我...Captain Shiba！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16915#       发表于 2022-8-13 16:57
+
+期待VOX对阵VASHIRO。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16916#       发表于 2022-8-13 16:57
+
+标准结局了
+
+*****
+
+####  格林卡罗尔  
+##### 16917#       发表于 2022-8-13 16:58
+
+咲唯，命中注定的ライバル<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 16918#       发表于 2022-8-13 16:59
+
+排位赛定了
+
+赫高对神速
+
+咲唯贴贴
+
+海马vs马利克
+
+村高山高伊甸内战，不是，争首胜
+

@@ -2816,3 +2816,59 @@ nga的水军和收钱属性都很高的。我举一个例子，原来我有一�
 
 ti7王仙贝经典名著高地装逼a奶酪和我和4号位1换1怎么就忘了？
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 9324#       发表于 2022-8-13 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048527&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-13 16:48</a>
+什么弱智，ti7选择性漏过是吧。
+
+ti7王仙贝经典名著高地装逼a奶酪和我和4号位1换1怎么就忘了？ ...</blockquote>
+a奶酪是啥事啊 不是a装备么
+
+*****
+
+####  尸体鲨  
+##### 9325#       发表于 2022-8-13 16:52
+
+我印象里有一次谁没蓝了吃奶酪回蓝后来被翻了被清算
+
+*****
+
+####  阿垃垃圾历  
+##### 9326#       发表于 2022-8-13 16:55
+
+ti7ame也被清算过么 当时只知道yao和青菜被骂不少ti7 外加当年ti前的严父梗
+
+*****
+
+####  woyzeck  
+##### 9327#       发表于 2022-8-13 16:56
+
+整个西恩dota论坛真是被a畜和水厂脑控了，ruru真是把这个游戏玩穿了。
+
+*****
+
+####  chilno  
+##### 9328#       发表于 2022-8-13 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048577&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-13 16:55</a>
+
+ti7ame也被清算过么 当时只知道yao和青菜被骂不少ti7 外加当年ti前的严父梗</blockquote>
+ti7还是核弹横行的年代
+
+回家局拿am把鳖鳖送上飞机还高地A装备
+
+也就是那几年舆论环境没现在厉害，不然就凭当年核弹的战斗力...
+
+*****
+
+####  很久就在那边l  
+##### 9329#       发表于 2022-8-13 16:59
+
+Max是真的牛批，我看这个人天天到处拱火几个月了居然没人管
+<img src="https://p.sda1.dev/6/dab0858d479d11ea97e9ba0dfb91a479/CMP_20220813165810115.jpg" referrerpolicy="no-referrer">
+

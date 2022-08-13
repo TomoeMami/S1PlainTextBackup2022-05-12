@@ -9480,3 +9480,15 @@ FGO那个不就是R换得新CV吗</blockquote>
 肯定是长谷川育美啦</blockquote>
 搜了搜她的作品，我只玩过我が姫君に栄冠を，而且我更对魔王的母亲更感兴趣，所以就没有太留意了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 890#       发表于 2022-8-13 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048265&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 16:21</a>
+
+你这个公主声优，是指生天目仁美还是柚木凉香？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长谷川育美也是里界大佬啊  虽然没生天目表里都那么有名
+
