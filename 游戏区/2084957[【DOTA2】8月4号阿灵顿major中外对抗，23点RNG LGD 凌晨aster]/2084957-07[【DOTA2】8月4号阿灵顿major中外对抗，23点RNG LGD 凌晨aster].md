@@ -6328,3 +6328,134 @@ E直接删除刷新球
 
 建议刷新不能刷新BKB
 
+
+
+*****
+
+####  名字不乱取  
+##### 9745#       发表于 2022-8-14 01:40
+
+刷新球拆成两个吧，一个刷新装备，一个刷新技能，就不用共cd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 9746#         楼主| 发表于 2022-8-14 01:41
+
+og还敢一选伐木机？
+
+*****
+
+####  名字不乱取  
+##### 9747#       发表于 2022-8-14 01:42
+
+克神的笑：这你都ban？哥们纯蹭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 9748#       发表于 2022-8-14 01:43
+
+这个强子是什么意思呢
+
+*****
+
+####  战狼PTSD  
+##### 9749#       发表于 2022-8-14 01:43
+
+<img src="https://img.saraba1st.com/forum/202208/14/014344yrsrzyrknnxnnx7u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 01:43 上传
+
+这哥们看一次笑一次，眼角永远有泪光，水汪汪的
+
+*****
+
+####  格雷殿下  
+##### 9750#       发表于 2022-8-14 01:45
+
+刷新本来是用来终结比赛的道具，估计最后就改改配方，加加前就算了
+
+
+
+*****
+
+####  沈淮  
+##### 9751#         楼主| 发表于 2022-8-14 01:46
+
+电 。。狗来了，都别睡是吧
+
+*****
+
+####  战狼PTSD  
+##### 9752#       发表于 2022-8-14 01:46
+
+藏了好久的电。狗终于出了，坐等砍爆法系电.狗
+
+*****
+
+####  zaku007  
+##### 9753#       发表于 2022-8-14 01:47
+
+yugari绝活**，这把稳了水友们<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 9754#       发表于 2022-8-14 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055172&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-14 01:43</a>
+
+这哥们看一次笑一次，眼角永远有泪光，水汪汪的</blockquote>
+和zai种打三年，谁来都得饱含泪水<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 9755#       发表于 2022-8-14 01:48
+
+我先看会曼联 估计踢完了这边还没结束
+
+*****
+
+####  战狼PTSD  
+##### 9756#       发表于 2022-8-14 01:48
+
+OC CSDX
+
+*****
+
+####  名字不乱取  
+##### 9757#       发表于 2022-8-14 01:48
+
+克神也掏绝活了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 9758#       发表于 2022-8-14 01:49
+
+靠发条一个钩？
+
+*****
+
+####  IG.430  
+##### 9759#       发表于 2022-8-14 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57055126&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-14 01:38</a>
+这个major奖杯是什么装备</blockquote>
+之前觉得是帝皇之炎【火猫饰品】，然而帝皇之炎会在把手上多个绑带
+
+*****
+
+####  战狼PTSD  
+##### 9760#       发表于 2022-8-14 01:50
+
+妈的，看主舞台现场有人吃披萨看比赛，我好饿啊
+
