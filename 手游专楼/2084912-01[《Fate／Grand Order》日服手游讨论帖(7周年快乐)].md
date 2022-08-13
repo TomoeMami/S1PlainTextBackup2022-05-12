@@ -9419,3 +9419,15 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 哦对了 公主的cv是里界大佬 怎么就棒读了 不会真以为是新人吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">FGO那个不就是R换得新CV吗
 
+
+
+*****
+
+####  alucardcz  
+##### 884#       发表于 2022-8-13 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047654&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-13 14:59</a>
+
+FGO那个不就是R换得新CV吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 是说新cv的意思吗 我还以为说是新人棒读
+

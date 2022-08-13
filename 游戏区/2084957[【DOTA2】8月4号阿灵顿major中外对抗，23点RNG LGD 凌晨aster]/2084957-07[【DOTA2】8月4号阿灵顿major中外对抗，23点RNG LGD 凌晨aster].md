@@ -2280,3 +2280,75 @@ M鳖最大的问题就是年龄到了不适合中单了，另一个问题就是�
 <img src="https://p.sda1.dev/6/c20edc1233dfbd95ef85a2d59f909ed5/CMP_20220813145831050.jpg" referrerpolicy="no-referrer">
 a/那期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 9262#       发表于 2022-8-13 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 9263#       发表于 2022-8-13 15:00
+
+这楼还不够管人吗。平日里潜水的管人痴（集美），假装纯路人的管人痴（集美），和管人痴（集美）战斗以后把自己脑浆拉成和管人痴（集美）同一水平的。该有的都有了。
+
+*****
+
+####  名字不乱取  
+##### 9264#       发表于 2022-8-13 15:01
+
+你楼就是ame讨论的太多了，找点b队b人聊多好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 9265#       发表于 2022-8-13 15:01
+
+有没有集美懂阿梓的，这人现在是不是比以前凉的多
+
+*****
+
+####  你谁  
+##### 9266#       发表于 2022-8-13 15:02
+
+人人都有管人当是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北欧王座  
+##### 9267#       发表于 2022-8-13 15:03
+
+克神要是能进决赛打lgd我手动开游戏合电锤一百次祈愿胜利
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 无糖茶| + 1||
+
+查看全部评分
+
+*****
+
+####  rubicon  
+##### 9268#       发表于 2022-8-13 15:09
+
+这楼还不够管人吗。平日里潜水的管人痴（集美），假装纯路人的管人痴（集美），和管人痴（集美）战斗以后把自己脑浆拉成和管人痴（集美）同一水平的。该有的都有了。
+
+*****
+
+####  遍体精淋af  
+##### 9269#       发表于 2022-8-13 15:09
+
+克神如果都能打进决赛，那就证明刀塔没什么是不可能的<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">我直接坐地贷款处长ti一轮游然后当场退役
+
