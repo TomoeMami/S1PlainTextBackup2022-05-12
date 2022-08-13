@@ -4510,3 +4510,14 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 虽然输了，但珠穆朗玛高耸不倒<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16910#       发表于 2022-8-13 15:51
+
+牛油战还蛮好看的。<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

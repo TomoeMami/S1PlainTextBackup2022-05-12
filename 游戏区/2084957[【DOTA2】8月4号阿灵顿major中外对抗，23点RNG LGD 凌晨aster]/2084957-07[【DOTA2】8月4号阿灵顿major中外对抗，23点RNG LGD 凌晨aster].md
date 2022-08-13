@@ -2469,3 +2469,36 @@ nba版主真会玩啊，看来假赛流量真的恰的很爽
 
 我等不及看畜视界出来之后集美要用什么角度来洗了，度假社干点活啊
 
+
+
+*****
+
+####  北欧王座  
+##### 9283#       发表于 2022-8-13 15:50
+
+这雪碧上个比赛都亚军了总不能还说是昙花一现了，还是说集美论坛觉得雪碧跟lgd的差距是神跟人的差距。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道仙鱼  
+##### 9284#       发表于 2022-8-13 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048003&amp;ptid=2084957" target="_blank">无糖茶 发表于 2022-8-13 15:47</a>
+
+威望吧</blockquote>
+壳以，歇歇说明
+
+*****
+
+####  nerugigannte  
+##### 9285#       发表于 2022-8-13 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掀背不夺冠v社就不出真视界，出真视界直接把输的ti一笔掠过好吧
+
+*****
+
+####  nowaki  
+##### 9286#       发表于 2022-8-13 16:00
+
+ti11和ti10合出一个畜视界，开头就来个nts滚滚xjb滚导致落败，五人痛苦流涕然后一转ti11宰猪。
+
