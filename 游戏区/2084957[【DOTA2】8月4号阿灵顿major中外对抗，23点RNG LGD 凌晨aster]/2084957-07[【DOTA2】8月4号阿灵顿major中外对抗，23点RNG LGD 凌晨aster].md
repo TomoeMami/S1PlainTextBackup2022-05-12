@@ -3169,3 +3169,40 @@ Max还是行，说要在现场前排举这图给ATF造成精神攻击<img src="h
 
 我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此不堪受辱的情况下，仍然能够把自己的本职工作（丢盾）搞的如此顶尖，在国内游戏界，或者哪怕是体育和娱乐界，又有几个人能做到如此。
 
+
+
+*****
+
+####  灰烬白羽  
+##### 9359#       发表于 2022-8-13 17:54
+
+[https://www.twitch.tv/seleri4096 ... e=all&amp;sort=time](https://www.twitch.tv/seleri4096/clip/TawdryTenuousRavenHassanChop-Yn6b0HCWS5piw1xz?filter=clips&amp;range=all&amp;sort=time)
+
+xxs天梯狂喷atf，今天要是茶输了atf不会戏来了吧，我先放个#atf乳化#在这里
+
+*****
+
+####  阿垃垃圾历  
+##### 9360#       发表于 2022-8-13 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049146&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-13 17:54</a>
+
+https://www.twitch.tv/seleri4096/clip/TawdryTenuousRavenHassanChop-Yn6b0HCWS5piw1xz?filter=clips&amp;ran ...</blockquote>
+从头骂到尾？
+
+
+
+*****
+
+####  逃离二次元  
+##### 9361#       发表于 2022-8-13 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 9362#       发表于 2022-8-13 17:58
+
+#atf乳化##atf乳化##atf乳化##atf乳化##atf乳化##atf乳化##atf乳化##atf乳化#
+
