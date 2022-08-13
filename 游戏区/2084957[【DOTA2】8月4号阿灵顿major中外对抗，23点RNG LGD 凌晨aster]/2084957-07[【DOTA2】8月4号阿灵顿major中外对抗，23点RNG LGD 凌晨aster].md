@@ -4839,3 +4839,335 @@ OG这阵容上高还得拖一会儿
 
 这滚滚什么鸟大啊来自: iPhone客户端
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 9561#       发表于 2022-8-13 23:53
+
+CEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEB!
+
+*****
+
+####  沈淮  
+##### 9562#         楼主| 发表于 2022-8-13 23:53
+
+ceeeeeeeb！
+
+*****
+
+####  qty  
+##### 9563#       发表于 2022-8-13 23:53
+
+ceb🐮啊
+
+*****
+
+####  北条早苗  
+##### 9564#       发表于 2022-8-13 23:53
+
+这牛真是力中暴力
+
+*****
+
+####  walfeds  
+##### 9565#       发表于 2022-8-13 23:53
+
+Ceeeeeeeeeeeeeeeeeeeeeeeeb!
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  EigenVesper  
+##### 9566#       发表于 2022-8-13 23:53
+
+ceeeeeeeb
+
+*****
+
+####  弈秋  
+##### 9567#       发表于 2022-8-13 23:54
+
+打到这里根本打不过
+
+*****
+
+####  吃货红毛  
+##### 9568#       发表于 2022-8-13 23:54
+
+神仙啊
+
+*****
+
+####  thistimeforlife  
+##### 9569#       发表于 2022-8-13 23:54
+
+ceeeeeeeeb！！！
+
+*****
+
+####  天堂蜘蛛  
+##### 9570#       发表于 2022-8-13 23:54
+
+ceb以一己之力生生拉低了OG的含畜量啊我草
+
+
+
+*****
+
+####  12481632  
+##### 9571#       发表于 2022-8-13 23:54
+
+misha要家里有事咯
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 9572#       发表于 2022-8-13 23:55
+
+还得是ceb
+
+*****
+
+####  BallanceHZ  
+##### 9573#       发表于 2022-8-13 23:55
+
+这波主要是血魔完全打不动拍拍
+
+*****
+
+####  asd235614  
+##### 9574#       发表于 2022-8-13 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ceb这牛也太大力了，怎么感觉每次misha没来OG都是加强
+
+*****
+
+####  nowaki  
+##### 9575#       发表于 2022-8-13 23:55
+
+ceb力中暴力
+
+*****
+
+####  聚散浮云  
+##### 9576#       发表于 2022-8-13 23:56
+
+ceb这退役啥啊重回战场吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 9577#       发表于 2022-8-13 23:56
+
+这波就靠ceb和晕锤打回来的，atf这电棍含畜度有点高了，还把taiga害死了
+
+*****
+
+####  12481632  
+##### 9578#       发表于 2022-8-13 23:56
+
+K1的畜味有点重了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  asd235614  
+##### 9579#       发表于 2022-8-13 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">克神把车开到墙里去了，太艺术了
+
+*****
+
+####  天堂蜘蛛  
+##### 9580#       发表于 2022-8-13 23:57
+
+狂！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 9581#       发表于 2022-8-13 23:57
+
+搞笑还得是克神
+
+*****
+
+####  战狼PTSD  
+##### 9582#       发表于 2022-8-13 23:57
+
+入了就是入了
+
+*****
+
+####  walfeds  
+##### 9583#       发表于 2022-8-13 23:57
+
+入了就是入了！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 9584#       发表于 2022-8-13 23:57
+
+狂！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 9585#       发表于 2022-8-13 23:57
+
+<img src="https://img.saraba1st.com/forum/202208/13/235750gxxkk8z0mwwxuy38.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 23:57 上传
+
+*****
+
+####  qty  
+##### 9586#       发表于 2022-8-13 23:58
+
+atf这把打出信心了啊
+
+*****
+
+####  Keynes  
+##### 9587#       发表于 2022-8-13 23:58
+
+这k1是真的畜啊
+
+*****
+
+####  逃离二次元  
+##### 9588#       发表于 2022-8-13 23:58
+
+狂!
+
+*****
+
+####  -SLSL-  
+##### 9589#       发表于 2022-8-13 23:58
+
+ATF怎么还发电了
+
+*****
+
+####  nightmare902015  
+##### 9590#       发表于 2022-8-13 23:58
+
+我超，暂停问号
+
+*****
+
+####  聚散浮云  
+##### 9591#       发表于 2022-8-13 23:58
+
+atf看着温文儒雅的居然搞这套
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天堂蜘蛛  
+##### 9592#       发表于 2022-8-13 23:58
+
+跟我预料的一模一样，BC在OG面前基本没啥机会
+
+*****
+
+####  trackerList  
+##### 9593#       发表于 2022-8-13 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不基德要被刀塔之神惩罚的呀
+
+*****
+
+####  北条早苗  
+##### 9594#       发表于 2022-8-13 23:58
+
+暂停问号，狂起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 9595#       发表于 2022-8-13 23:59
+
+狂人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 9596#       发表于 2022-8-13 23:59
+
+ 克神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 9597#       发表于 2022-8-13 23:59
+
+睡觉，明天继续xb3<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+mio我的mio<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 9598#       发表于 2022-8-13 23:59
+
+入得不能再入了 洗洗睡等明天品茶
+
+*****
+
+####  walfeds  
+##### 9599#       发表于 2022-8-13 23:59
+
+谁点的暂停<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 9600#       发表于 2022-8-13 23:59
+
+谁暂停的啊，不会是ATF吧，暂停问号，SEA DOTA是吧
+
+
+
+*****
+
+####  逃离二次元  
+##### 9601#       发表于 2022-8-14 00:00
+
+暂停是bc暂停的吧
+
+*****
+
+####  弈秋  
+##### 9602#       发表于 2022-8-14 00:00
+
+自动暂停
+
+*****
+
+####  Keynes  
+##### 9603#       发表于 2022-8-14 00:00
+
+睡觉，明天继续上班<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+工作我的工作<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
