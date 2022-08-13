@@ -1818,3 +1818,58 @@ AME最近的最出彩的carry表现不就是ti10胜决一次都不能死的大�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看集美精神年龄都像高中生啊，有这么多年轻人在玩西恩dota为啥没有天才少年了，还是集美都是gay粉比较疯狂
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9210#       发表于 2022-8-13 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046841&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-13 13:29</a>
+
+以后看lgd比赛，请在屏幕前鞠一躬🙇</blockquote>
+TS：红豆泥阿里嘎多，太破费辣，好久没收到这么贵重的盾辣
+
+
+
+*****
+
+####  蛭人  
+##### 9211#       发表于 2022-8-13 13:33
+
+所以搞了半天，还是没有ame的carry名场面吗，另外，为啥总是有人说去年第一个major明鞭不行，举个例子呗，我怎么记得明鞭0死狼人和滚滚啊。
+
+*****
+
+####  尸体鲨  
+##### 9212#       发表于 2022-8-13 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046896&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-13 13:33</a>
+所以搞了半天，还是没有ame的carry名场面吗，另外，为啥总是有人说去年第一个major明鞭不行，举个例子呗， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就看你对carry的定义了，ame还是有一些把所有事情都做好了的比赛的
+
+*****
+
+####  Damocles990609  
+##### 9213#       发表于 2022-8-13 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">lgd去年第一个major不就是靠ame三手英雄吗，大圣巨魔还有个啥来着给忘了，那次major其他人或多或少都犯病了，这总不能否认吧
+
+*****
+
+####  IG.430  
+##### 9214#       发表于 2022-8-13 13:36
+
+记性不太好，sgp major关于lgd的记忆就是kaka带着兄弟们找ame抓一次死一次
+
+*****
+
+####  战狼PTSD  
+##### 9215#       发表于 2022-8-13 13:36
+
+因为按照你的标准，总决赛的鸭头肉雷达意识刷钱然后出山力中暴力也能说是脑东京火猫吃光全部技能凯瑞带他啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+随便张个嘴就要别人跑腿查，查完又这个不算那个不算，刷个论坛就是为了排泄，谁几把做饭给你吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+相信TI整活就行了，吹的越高跌的越狠，多好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
