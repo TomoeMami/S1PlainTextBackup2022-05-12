@@ -1214,3 +1214,19 @@ op不是一直和burning在打吗？</blockquote>
 
 塞拉最后一年也要拉出来吹的吗？那为什么Ehome当时要围绕nts来打，要给树老师拿工具人核啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 9142#       发表于 2022-8-13 11:51
+
+有没有可能集美现在岁月史书的ti89也是围绕老北京打的
+
+*****
+
+####  战狼PTSD  
+##### 9143#       发表于 2022-8-13 11:53
+
+萨特我砍<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
