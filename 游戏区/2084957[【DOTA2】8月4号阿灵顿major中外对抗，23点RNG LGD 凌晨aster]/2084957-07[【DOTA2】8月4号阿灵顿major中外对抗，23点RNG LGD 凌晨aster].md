@@ -4291,3 +4291,330 @@ og上路这个塔前眼插了之后血魔马西就再也没动到手了
 
 WISper唯一大腿
 
+
+
+*****
+
+####  逃离二次元  
+##### 9488#       发表于 2022-8-13 23:30
+
+这车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 9489#       发表于 2022-8-13 23:31
+
+克神！
+
+*****
+
+####  弈秋  
+##### 9490#       发表于 2022-8-13 23:31
+
+克神狠狠打你们的脸
+
+*****
+
+####  asd235614  
+##### 9491#       发表于 2022-8-13 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全靠wisper
+
+*****
+
+####  反方向的波  
+##### 9492#       发表于 2022-8-13 23:31
+
+克神这车技科二肯定满分
+
+*****
+
+####  qty  
+##### 9493#       发表于 2022-8-13 23:32
+
+感觉BC刷钱效率有点低啊
+
+*****
+
+####  逃离二次元  
+##### 9494#       发表于 2022-8-13 23:32
+
+看我克神狠狠地打肿你们的脸！
+
+*****
+
+####  白野苍衣  
+##### 9495#       发表于 2022-8-13 23:32
+
+克神搞啥呢
+
+*****
+
+####  名字不乱取  
+##### 9496#       发表于 2022-8-13 23:32
+
+我给克神洗一下，滚滚这b英雄吃个磁暴基本不用上线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 9497#       发表于 2022-8-13 23:32
+
+吹啥克神呢，不是全靠蝙蝠
+
+*****
+
+####  战狼PTSD  
+##### 9498#       发表于 2022-8-13 23:32
+
+克神的滚滚也太小丑了，线上被压了10多个刀，开大也瞎**滚，还老舍不得放
+
+*****
+
+####  名字不乱取  
+##### 9499#       发表于 2022-8-13 23:34
+
+不是克神在肉山坑和ceb玩什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9500#       发表于 2022-8-13 23:34
+
+克里斯神打到现在没开过一个好车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 9501#       发表于 2022-8-13 23:34
+
+克神还在送
+
+*****
+
+####  反方向的波  
+##### 9502#       发表于 2022-8-13 23:34
+
+克神科三挂了
+
+*****
+
+####  弈秋  
+##### 9503#       发表于 2022-8-13 23:34
+
+克神还在送
+
+*****
+
+####  弈秋  
+##### 9504#       发表于 2022-8-13 23:34
+
+克神还在送
+
+*****
+
+####  天堂蜘蛛  
+##### 9505#       发表于 2022-8-13 23:35
+
+bc感觉没了
+
+*****
+
+####  何然  
+##### 9506#       发表于 2022-8-13 23:35
+
+肉山也帮双冠王！
+
+*****
+
+####  nowaki  
+##### 9507#       发表于 2022-8-13 23:35
+
+克神进肉山坑开车想啥呢
+
+*****
+
+####  逃离二次元  
+##### 9508#       发表于 2022-8-13 23:35
+
+幽默
+
+*****
+
+####  ArowRocher  
+##### 9509#       发表于 2022-8-13 23:35
+
+这滚滚太有创意了
+
+*****
+
+####  白野苍衣  
+##### 9510#       发表于 2022-8-13 23:36
+
+克神这滚滚多少有点抽象
+
+
+
+*****
+
+####  walfeds  
+##### 9511#       发表于 2022-8-13 23:36
+
+肉山:就你拆我家是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 9512#       发表于 2022-8-13 23:37
+
+ceeeeeeeeeeeeeeeeeeb
+
+*****
+
+####  12481632  
+##### 9513#       发表于 2022-8-13 23:37
+
+这滚滚感觉不如。。去年的nts<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 9514#       发表于 2022-8-13 23:37
+
+CEB又双叒叕爆炸了
+
+*****
+
+####  walfeds  
+##### 9515#       发表于 2022-8-13 23:37
+
+Ceeeeeeeeeeeeeeeeeeeb！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 9516#       发表于 2022-8-13 23:37
+
+CEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEB！
+
+*****
+
+####  adretyu67  
+##### 9517#       发表于 2022-8-13 23:37
+
+ceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeb!
+
+*****
+
+####  弈秋  
+##### 9518#       发表于 2022-8-13 23:37
+
+ceeeeeeeeb！
+
+*****
+
+####  名字不乱取  
+##### 9519#       发表于 2022-8-13 23:38
+
+第三世界的狗还是宝刀未老阿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 9520#       发表于 2022-8-13 23:38
+
+BC寄了，这节奏一直掌握在OG手里
+
+*****
+
+####  12481632  
+##### 9521#       发表于 2022-8-13 23:38
+
+冠军牛恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 9522#       发表于 2022-8-13 23:38
+
+ceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeb
+
+*****
+
+####  asd235614  
+##### 9523#       发表于 2022-8-13 23:38
+
+ceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeb!
+
+*****
+
+####  你谁  
+##### 9524#       发表于 2022-8-13 23:38
+
+牛 ceb这把也正常出跳了
+
+*****
+
+####  遍体精淋af  
+##### 9525#       发表于 2022-8-13 23:39
+
+bc到点了
+
+*****
+
+####  名字不乱取  
+##### 9526#       发表于 2022-8-13 23:39
+
+克神这车真TM抽象，在角落里卡了半天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 9527#       发表于 2022-8-13 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ATF这当着蝙蝠脸BKB TP也有点抽象
+
+*****
+
+####  反方向的波  
+##### 9528#       发表于 2022-8-13 23:39
+
+相信a/
+
+*****
+
+####  -SLSL-  
+##### 9529#       发表于 2022-8-13 23:39
+
+ATF太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 9530#       发表于 2022-8-13 23:40
+
+卡尔这个吹风和牛头这个扳的交汇太帅了吧
+
+*****
+
+####  nightmare902015  
+##### 9531#       发表于 2022-8-13 23:40
+
+搞笑呢atf这么高移速还有电圈和bkb，走都能走掉吧
+
+*****
+
+####  qty  
+##### 9532#       发表于 2022-8-13 23:40
+
+这滚滚到现在有什么作用吗？
+
