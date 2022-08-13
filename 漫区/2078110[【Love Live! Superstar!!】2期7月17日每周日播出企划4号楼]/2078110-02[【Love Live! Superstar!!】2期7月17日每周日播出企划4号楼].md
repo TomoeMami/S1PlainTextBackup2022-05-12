@@ -10330,3 +10330,26 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 
 四舍五入等于可可是新郎
 
+
+
+*****
+
+####  lj205  
+##### 2500#       发表于 2022-8-13 14:22
+
+<img src="https://img.saraba1st.com/forum/202208/13/142239k77e207e8z0ikef2.png" referrerpolicy="no-referrer">
+
+<strong>FDBC089A-775F-451F-89A2-9B2735F596B0.png</strong> (434.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 14:22 上传
+
+*****
+
+####  Enakina  
+##### 2501#       发表于 2022-8-13 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047366&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-13 14:22</a></blockquote>
+笑死我了，标题还挺会起啊
+

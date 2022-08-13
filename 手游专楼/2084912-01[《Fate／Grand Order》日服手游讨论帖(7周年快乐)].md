@@ -9398,3 +9398,12 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 那是因为赤羽根配的是卡多克不是从者，语音一多他的棒读就暴露了</blockquote>
 ？哪里冒出来的赤羽根，你说他水平不高也就算了，棒读真不止于，另外綱我想也实装了很久了吧。
 
+
+
+*****
+
+####  alucardcz  
+##### 882#       发表于 2022-8-13 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦对了 公主的cv是里界大佬 怎么就棒读了 不会真以为是新人吧
+

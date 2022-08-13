@@ -4385,3 +4385,26 @@ yugo睡醒了！
 
 虹甲第二cjb？
 
+
+
+*****
+
+####  Ketestrait  
+##### 16895#       发表于 2022-8-13 14:23
+
+上位打线沉默，这局感觉西西寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  更喜欢狗是吗  
+##### 16896#       发表于 2022-8-13 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这赛制输了一局等于失去争夺第一的资格了，
+
+*****
+
+####  Ketestrait  
+##### 16897#       发表于 2022-8-13 14:29
+
+投手，投手，还是投手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
