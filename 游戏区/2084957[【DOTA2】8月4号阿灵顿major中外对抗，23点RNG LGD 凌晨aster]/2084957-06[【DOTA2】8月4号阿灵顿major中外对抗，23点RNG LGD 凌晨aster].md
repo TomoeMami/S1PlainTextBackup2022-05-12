@@ -10629,3 +10629,88 @@ ban什么敌法师血魔，到底张志成看过比赛没有
 我突然发现，去年这个时候也在看戴泽小小，今年还在看</blockquote>
 去年不是小小霍乱吗
 
+
+
+*****
+
+####  何然  
+##### 8775#       发表于 2022-8-13 08:11
+
+体检做心电图了！还好这把还没开<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 8776#         楼主| 发表于 2022-8-13 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043484&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-13 08:10</a>
+去年不是小小霍乱吗</blockquote>
+对，打错了
+
+*****
+
+####  haruhiismer  
+##### 8777#       发表于 2022-8-13 08:15
+
+小小v加强了呀直接v到开不出bk b也挺厉害的
+
+*****
+
+####  Litccc  
+##### 8778#       发表于 2022-8-13 08:16
+
+这把应该随便打了吧
+
+*****
+
+####  snarc1  
+##### 8779#       发表于 2022-8-13 08:16
+
+333了
+
+*****
+
+####  ninini212  
+##### 8780#       发表于 2022-8-13 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">银K脑子忽然正常了，这个BP做的相当不错
+
+*****
+
+####  a1370303  
+##### 8781#       发表于 2022-8-13 08:17
+
+这把阵容应该没毛病，就看打了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  外挂全家脚气  
+##### 8782#       发表于 2022-8-13 08:17
+
+333大战333<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 8783#       发表于 2022-8-13 08:18
+
+只要不线劣
+
+*****
+
+####  zkc1991  
+##### 8784#       发表于 2022-8-13 08:18
+
+鹏子的刚被水平如何？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  端木恋心  
+##### 8785#       发表于 2022-8-13 08:18
+
+这个早茶感觉要是苦的了
+
