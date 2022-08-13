@@ -3784,3 +3784,58 @@ ti8还是支持者呢，后面嘛<img src="https://static.saraba1st.com/image/sm
 
 森哥是LGD在ti8总决唯一没有犯病的，g4那把真是海民王，没有几波包雪球救人也轮不到畜生水人表演了
 
+
+
+*****
+
+####  Centrum  
+##### 9426#       发表于 2022-8-13 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57052291&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-13 21:44</a>
+
+森哥是LGD在ti8总决唯一没有犯病的，g4那把真是海民王，没有几波包雪球救人也轮不到畜生水人表演了 ...</blockquote>
+更证明了斧王王是真的牛
+
+*****
+
+####  尸体鲨  
+##### 9427#       发表于 2022-8-13 21:55
+
+徐总比卡卡还小一点吧，还有希望
+
+*****
+
+####  韬晦  
+##### 9428#       发表于 2022-8-13 21:56
+
+9分钟跳刀带动全场节奏的牛要被清算，这tm得有多搐生才能干得出这种事
+
+*****
+
+####  逃离二次元  
+##### 9429#       发表于 2022-8-13 21:58
+
+a畜司马 集美司马
+
+*****
+
+####  反方向的波  
+##### 9430#       发表于 2022-8-13 21:59
+
+斧王王不是吹牛逼说他根本不会这玩意儿么，训练赛超鬼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 9431#       发表于 2022-8-13 21:59
+
+<img src="https://img.saraba1st.com/forum/202208/13/215753f746jz54s37kcfcs.jpg" referrerpolicy="no-referrer">
+
+<strong>ceb.jpg</strong> (70.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 21:57 上传
+
+斧王说了，哥哥荣获《除了我的队伍第一C》的奖，大家不要黑了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
