@@ -212,3 +212,169 @@ ori和皮球立忠暴力吧，xxs正常发挥，野王有点辣说实话还没�
 
 我看了一下，doom可以出林肯强行大莲花吧
 
+
+
+*****
+
+####  沈淮  
+##### 9027#         楼主| 发表于 2022-8-13 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044241&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-13 09:29</a>
+
+厅长还要打预选</blockquote>
+然而令人感叹，super也要打预选
+
+*****
+
+####  莉拉厨  
+##### 9028#       发表于 2022-8-13 09:31
+
+20分钟那波双A杖带盾打赢了30分钟就能结束，这把接下来的时间都在为那波买单
+
+*****
+
+####  百世诸侯  
+##### 9029#       发表于 2022-8-13 09:31
+
+茶队接下来还要和究极老阴逼CEB的视野碰一碰，真是哭哭惹
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 9030#       发表于 2022-8-13 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044187&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-13 09:23</a>
+这是在美国打的呀，下面观众随便抽一个出来可能都比她好吧，至少不至于不懂酒仙怎么讲 ...</blockquote>
+那不一定，国人在北美打dota基本也是内部打，不跟老外一起的
+骂人可能更熟练，什么jajaja
+
+
+
+*****
+
+####  5678给  
+##### 9031#       发表于 2022-8-13 09:32
+
+哇，主舞台解说是真的尿啊，就这局曾焦阳的这个发挥主舞台解说还在那里mvp肯定是xxs吧，然后出来MVP之后还在那儿看不懂。
+
+*****
+
+####  莉拉厨  
+##### 9032#       发表于 2022-8-13 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044249&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 09:30</a>
+
+我看了一下，doom可以出林肯强行大莲花吧</blockquote>
+呆毛光剑最大的问题是没去大x哥，刚被和dp他们可以处理的，更别提有两波还大开出大的DP。
+
+*****
+
+####  haruhiismer  
+##### 9033#       发表于 2022-8-13 09:34
+
+xxs难点只是开出大，开出大就有点无敌没啥好吹的
+
+*****
+
+####  吃货红毛  
+##### 9034#       发表于 2022-8-13 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">憋一憋等决赛再熬 明天起床继续二度品早茶
+
+*****
+
+####  izayoi39  
+##### 9035#       发表于 2022-8-13 09:35
+
+xxs这把够脑瘫了，团战死了那么多次才想起来要出林肯
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  何然  
+##### 9036#       发表于 2022-8-13 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044276&amp;ptid=2084957" target="_blank">5678给 发表于 2022-8-13 09:32</a>
+哇，主舞台解说是真的尿啊，就这局曾焦阳的这个发挥主舞台解说还在那里mvp肯定是xxs吧，然后出来MVP之后还 ...</blockquote>
+都几几年了还有人看主舞台的
+
+*****
+
+####  Litccc  
+##### 9037#       发表于 2022-8-13 09:35
+
+皮球这把站位还是很猥琐的，但是视野被爆再加上有宙斯大，好几次直接被小小找到直接秒
+
+*****
+
+####  ninini212  
+##### 9038#       发表于 2022-8-13 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">xxs前期连大都开不出来的表现就别说了，全tm靠着骄阳扛着往前走
+
+----发送自 [asus ASUS_I005DA,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  白野苍衣  
+##### 9039#       发表于 2022-8-13 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能翻吗？不过我对鳖茶的预测依旧不变啊，看好TI两轮游，上限8强。
+
+*****
+
+####  阿垃垃圾历  
+##### 9040#       发表于 2022-8-13 09:36
+
+今晚lgd和ts的比赛要不要定个闹钟看呢  连着两天早起品茶 味道不说 结果都还行啊
+
+*****
+
+####  沈淮  
+##### 9041#         楼主| 发表于 2022-8-13 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044289&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-13 09:33</a>
+
+呆毛光剑最大的问题是没去大x哥，刚被和dp他们可以处理的，更别提有两波还大开出大的DP。 ...</blockquote>
+对比林肯，这个a帐跟刷新肯定优先级不如的
+
+*****
+
+####  蛭人  
+##### 9042#       发表于 2022-8-13 09:37
+
+同样是27岁老中单，老北京预选赛再不支楞起来，怕不是集美口中永远的ti8罪人了啊。
+
+*****
+
+####  kiraabu  
+##### 9043#       发表于 2022-8-13 09:38
+
+第三把没破塔点导致推进太慢了，不知道小小那出装是不是打算补拆塔能力，不然感觉出大根拉扯更好一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  遍体精淋af  
+##### 9044#       发表于 2022-8-13 09:38
+
+老北京还是去解说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">私心觉得ig和xg去ti更不容易一轮游
+
+*****
+
+####  ArowRocher  
+##### 9045#       发表于 2022-8-13 09:38
+
+【【阿灵顿Major】Aster 2:1 Entity最后时候现场角度！粉丝高呼Aster！-哔哩哔哩】 https://b23.tv/3VLNPPE
+
+珍核核太多了，entity不敢赢
+
+*****
+
+####  逃离二次元  
+##### 9046#       发表于 2022-8-13 09:38
+
+还是去看og吧，两点的比赛实在熬不动<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
