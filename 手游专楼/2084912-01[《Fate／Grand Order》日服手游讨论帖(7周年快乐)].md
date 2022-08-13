@@ -9629,3 +9629,68 @@ FGO那个不就是R换得新CV吗</blockquote>
 
 话说明天上午九点就开伊吹的卡池了，可能是周日大家有时间精力抽卡吧；泳装斯卡蒂就得等到8.17下午五点了...
 
+
+
+*****
+
+####  alucardcz  
+##### 903#       发表于 2022-8-13 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049498&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-13 18:34</a>
+
+泳装斯卡蒂的攻击配卡是QQBBA的话，那么宝具卡就不会是蓝色了，但是技能组不揭露的话还是看不出是否是拐。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要奶光同位卡呢  怎么就不能暴鲨王姐狂娜成为红卡之王呢  rba再来一个三色拐暴鲨奥师傅 完美的泳装活动（
+
+*****
+
+####  qixinno2  
+##### 904#       发表于 2022-8-13 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是时候出个有自充能冲浪的绿卡五星狂光炮了
+
+*****
+
+####  khxooo  
+##### 905#       发表于 2022-8-13 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049583&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-13 18:42</a>
+
+是时候出个有自充能冲浪的绿卡五星狂光炮了</blockquote>
+给个宝具前置黄金律100%，缓充30不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 906#       发表于 2022-8-13 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049615&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 18:45</a>
+
+给个宝具前置黄金律100%，缓充30不过分吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议删掉黄金率直接缓充100
+
+*****
+
+####  黑上シグマ  
+##### 907#       发表于 2022-8-13 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049583&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-13 18:42</a>
+
+是时候出个有自充能冲浪的绿卡五星狂光炮了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">出了干嘛，CBA都15绊多久了，绿卡没上场机会的
+
+*****
+
+####  Jamaisvu  
+##### 908#       发表于 2022-8-13 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049569&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 18:40</a>
+
+为什么要奶光同位卡呢  怎么就不能暴鲨王姐狂娜成为红卡之王呢  rba再来一个三色拐暴鲨奥师傅 完美 ...</blockquote>
+其实我有点怀疑这次的三张五星都是亲爹拿哥哥姐姐给新来的妹妹们当垫脚石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过现在红卡狂光炮竞争是有点激烈...搞不好伊吹会成为唯一的限定五星狂绿光炮？正好杀酒吞和剑伊吹是蓝光炮和红光炮，这次凑个对<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+（伊吹是绿光炮，然后泳装CBA继承杀狐和奥伯龙的良好传承，是红光炮的绿卡拐，完美<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">）
+

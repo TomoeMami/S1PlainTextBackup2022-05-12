@@ -3314,3 +3314,44 @@ atf这没喷回去吗，我记得atf打天梯也突出一个戏多
 
 本来想用券换个喷3，打听到LITE玩着不方便就算了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 9375#       发表于 2022-8-13 18:43
+
+那估计atf打茶，又要泉水门口扔智力斗篷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  战狼PTSD  
+##### 9376#       发表于 2022-8-13 18:44
+
+支持曾骄阳打爆弱智ATF
+
+*****
+
+####  健康猹  
+##### 9377#       发表于 2022-8-13 18:45
+
+如果今晚茶赢了，然后XXS去OG泉水门口扔了皇帝，我就去给漏油最喜欢的版主上个舰（虽然我从来不看，我只看csdx的）
+
+*****
+
+####  nowaki  
+##### 9378#       发表于 2022-8-13 18:47
+
+给dodo上吧，版主不缺这点小钱
+
+*****
+
+####  12481632  
+##### 9379#       发表于 2022-8-13 18:49
+
+搬了一天砖回来就看到你楼又在搬屎+聊了大半天皮套人，精神内耗又加深了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
