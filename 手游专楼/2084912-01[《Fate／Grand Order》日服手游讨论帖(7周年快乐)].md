@@ -9694,3 +9694,21 @@ FGO那个不就是R换得新CV吗</blockquote>
 
 （伊吹是绿光炮，然后泳装CBA继承杀狐和奥伯龙的良好传承，是红光炮的绿卡拐，完美<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  exiaexa  
+##### 909#       发表于 2022-8-13 20:07
+
+ 本帖最后由 exiaexa 于 2022-8-13 20:09 编辑 
+
+斯卡蒂那个配卡，估摸着是攻击向绿宝具
+
+兔子王是配卡一模一样的红宝
+
+至于出路的话，最佳出路就是绿卡版暗狐，绿卡现在多核就差红卡一手群30
+
+如果能做到那乐子就大了，先不说团长原地飞升，吹红卡通解的得破大防
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

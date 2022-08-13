@@ -2205,3 +2205,14 @@ DLC必然是新地图，毕竟前两作都这么搞了。如果DLC真要出前�
 
 结合第四章剧情，p的含义会不会是pride，o就不知道了
 
+
+
+*****
+
+####  Firvox  
+##### 195#       发表于 2022-8-13 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050338&amp;ptid=2084988" target="_blank">sslink 发表于 2022-8-13 19:57</a>
+结合第四章剧情，p的含义会不会是pride，o就不知道了</blockquote>
+O应该指Owel（猫头鹰），对应执政官O的铠甲面具外形
+
