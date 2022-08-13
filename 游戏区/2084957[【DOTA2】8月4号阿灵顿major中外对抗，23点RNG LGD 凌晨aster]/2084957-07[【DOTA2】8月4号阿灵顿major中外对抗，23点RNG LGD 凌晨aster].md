@@ -2502,3 +2502,35 @@ nba版主真会玩啊，看来假赛流量真的恰的很爽
 
 ti11和ti10合出一个畜视界，开头就来个nts滚滚xjb滚导致落败，五人痛苦流涕然后一转ti11宰猪。
 
+
+
+*****
+
+####  ArowRocher  
+##### 9287#       发表于 2022-8-13 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047386&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-13 14:24</a>
+我被三个任豚和假赛哥追着扣，起码扣了我两三百鹅了
+
+谁他妈混管人区啊，看看东子什么下场，太惨了 ...</blockquote>
+怎么害有任豚的事，怀疑你黑伟大的xb3
+
+*****
+
+####  adretyu67  
+##### 9288#       发表于 2022-8-13 16:08
+
+啊，我真的好想看TI10真视界啊
+
+*****
+
+####  卡卡  
+##### 9289#       发表于 2022-8-13 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047900&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-13 15:29</a>
+
+都在聊管人，我搬个超级集美论坛的活也无可厚非吧
+
+仅有PSG.LGD 2:0 Spirit的情况下会结算为PSG.LGD胜利，2 ...</blockquote>
+这不就是让分吗  LGD让1.5？
+
