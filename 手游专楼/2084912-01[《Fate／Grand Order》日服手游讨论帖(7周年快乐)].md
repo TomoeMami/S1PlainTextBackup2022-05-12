@@ -9530,3 +9530,54 @@ FGO那个不就是R换得新CV吗</blockquote>
 
 其实杀狐也是这个配卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 895#       发表于 2022-8-13 17:40
+
+ 本帖最后由 khxooo 于 2022-8-13 17:41 编辑 
+
+草，根据剧情，CBA可能才是唯一一个MasterLove氪金角色啊
+
+*****
+
+####  alucardcz  
+##### 896#       发表于 2022-8-13 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048995&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-13 17:40</a>
+
+其实杀狐也是这个配卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实奥师傅也是这个配卡
+
+*****
+
+####  exiaexa  
+##### 897#       发表于 2022-8-13 17:46
+
+这立香就差喊着我喜欢你冲过去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便今天真就一点新东西没有草
+
+本来还以为多少能有点新技能解包
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 898#       发表于 2022-8-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048915&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 17:31</a>
+
+为什么这能看出不是拐？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者换个说法，不像是纯拐
+
+*****
+
+####  里村紅葉  
+##### 899#       发表于 2022-8-13 17:47
+
+西哥以后有6个小姨子要暴打他了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

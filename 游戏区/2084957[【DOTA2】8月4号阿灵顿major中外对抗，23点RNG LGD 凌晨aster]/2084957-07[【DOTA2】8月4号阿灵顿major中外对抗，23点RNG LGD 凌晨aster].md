@@ -3108,3 +3108,64 @@ Infamous. Wisper
 Infamous. Scofield
 Infamous. Stinger
 
+
+
+*****
+
+####  nowaki  
+##### 9353#       发表于 2022-8-13 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048978&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 17:38</a>
+
+再车轱辘一遍好了，19年这几个人就打到ti八强了，然后疫情来了被锁在美洲大陆鱼塘上臭鱼烂虾互啄成 ...</blockquote>
+就是这五个csdx送oc回家的啊
+
+*****
+
+####  名字不乱取  
+##### 9354#       发表于 2022-8-13 17:43
+
+ 本帖最后由 名字不乱取 于 2022-8-13 17:48 编辑 
+
+ti10有bc养着的克神居然比在外拉赞助的汉堡喵时期还畜生<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+谁能想到这几个csdx一边复健一边在major抬人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 9355#       发表于 2022-8-13 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048718&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-13 17:10</a>
+
+刚来，听说龙之血第三季米拉娜怀了龙骑的儿子，那神秘商人出现在这里又是何意啊 ...</blockquote>
+这个是结局了以后POM还借的东西给神秘商人
+
+神秘商人问：那你得到你想要的了吗
+
+然后POM摸腹部
+
+*****
+
+####  w2210059  
+##### 9356#       发表于 2022-8-13 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048674&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-13 17:04</a>
+
+昨天看了一会儿杰出的直播，他有一段话我觉得还有点意思，讲这个游戏到现在已经很复杂了，职业队的 ...</blockquote>
+不是有正鳖锐评那个辉耀计划的视频，脑补过头，按他的解读就是水人自己犯病一个e把小小推跑了，让这波团小小打出了三波控制<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 9357#       发表于 2022-8-13 17:49
+
+Max还是行，说要在现场前排举这图给ATF造成精神攻击<img src="https://p.sda1.dev/6/07fd1b5bcc12266ce67601bed1104c18/1660384012270.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhliiiii  
+##### 9358#       发表于 2022-8-13 17:50
+
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此不堪受辱的情况下，仍然能够把自己的本职工作（丢盾）搞的如此顶尖，在国内游戏界，或者哪怕是体育和娱乐界，又有几个人能做到如此。
+
