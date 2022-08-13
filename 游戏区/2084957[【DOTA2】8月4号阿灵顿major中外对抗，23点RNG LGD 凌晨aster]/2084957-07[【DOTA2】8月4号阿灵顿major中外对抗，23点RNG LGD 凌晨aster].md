@@ -3411,3 +3411,66 @@ atf这没喷回去吗，我记得atf打天梯也突出一个戏多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">像不像357其实最关键的因素还是发量
 
+
+
+*****
+
+####  haruhiismer  
+##### 9386#       发表于 2022-8-13 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049747&amp;ptid=2084957" target="_blank">Horusddt 发表于 2022-8-13 19:05</a>
+森哥减肥卓有成效啊，不像357了</blockquote>
+除了有头发这和357有啥区别357又不是没瘦过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 9387#       发表于 2022-8-13 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049146&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-13 17:54</a>
+https://www.twitch.tv/seleri4096/clip/TawdryTenuousRavenHassanChop-Yn6b0HCWS5piw1xz?filter=clips&amp;ran ...</blockquote>
+什么时候的事情
+
+*****
+
+####  坚定的团子党  
+##### 9388#       发表于 2022-8-13 19:13
+
+ig预选形势还是严峻呀，虽然rng外战过于脑溢血，但霉皇打国内剩下的中单还是随便拿捏呀<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 9389#       发表于 2022-8-13 19:14
+
+徐林森颜粉来啦<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 9390#       发表于 2022-8-13 19:15
+
+那天看考古视频，徐林森的发际线在跟三冰一队是就很危险了，全靠刘海遮着的。
+
+熬夜看比赛也伤头发的
+
+
+
+*****
+
+####  逃离二次元  
+##### 9391#       发表于 2022-8-13 19:16
+
+留了些胡子的森哥确实很帅
+
+*****
+
+####  ArowRocher  
+##### 9392#       发表于 2022-8-13 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049452&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-13 18:29</a>
+遇到阵营魔怔人没办法，忠诚不绝对就是绝对不忠诚，我三台NS买了几十款游戏的也被打成索狗
+
+冤屈程 ...</blockquote>
+贴索狗标签是游戏区的特色<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
