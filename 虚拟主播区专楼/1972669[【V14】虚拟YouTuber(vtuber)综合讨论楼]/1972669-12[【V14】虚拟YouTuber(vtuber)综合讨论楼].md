@@ -4601,3 +4601,19 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 村高山高伊甸内战，不是，争首胜
 
+
+
+*****
+
+####  你谁  
+##### 16919#       发表于 2022-8-13 17:03
+
+ 本帖最后由 你谁 于 2022-8-13 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046847&amp;ptid=1972669" target="_blank">你谁 发表于 2022-8-13 13:29</a>
+这昨天比去年昨天跳的有点高呀 大概是人员更好了 到黛灰那个数字就是最好情况
+
+—— 来自 Xiaomi M2102K1AC ...</blockquote>
+看来不是最好而是稳了 
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

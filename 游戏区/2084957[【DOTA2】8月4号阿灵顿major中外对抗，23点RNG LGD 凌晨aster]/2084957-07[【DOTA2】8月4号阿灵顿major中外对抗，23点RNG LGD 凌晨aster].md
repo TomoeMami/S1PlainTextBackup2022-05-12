@@ -2872,3 +2872,76 @@ ti7还是核弹横行的年代
 Max是真的牛批，我看这个人天天到处拱火几个月了居然没人管
 <img src="https://p.sda1.dev/6/dab0858d479d11ea97e9ba0dfb91a479/CMP_20220813165810115.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 9330#       发表于 2022-8-13 17:02
+
+<strong>我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此不堪受辱的情况下，仍然能够把自己的本职工作（丢盾）搞的如此顶尖，在国内游戏界，或者哪怕是体育和娱乐界，又有几个人能做到如此。</strong>
+
+
+
+*****
+
+####  尸体鲨  
+##### 9331#       发表于 2022-8-13 17:04
+
+ 本帖最后由 尸体鲨 于 2022-8-13 17:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">昨天看了一会儿杰出的直播，他有一段话我觉得还有点意思，讲这个游戏到现在已经很复杂了，职业队的很多比赛中低端玩家是看不懂的，也没什么人做这方面的内容
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然他转头就开始吹巅峰计划的视频做得好了。
+当然巅峰计划也确实是一个不错的观察角度，他很多逐帧分析明显是有过度解读在里面，但是评论自己也球都不懂，看着讲的头头是道也就跟着复读，总结来说就是刀狗普遍愚蠢又善良，容易被带节奏
+
+我自己观察的几个网站看下来确实很多时候兄弟们对同一场比赛各有各的误解姿势
+
+*****
+
+####  nowaki  
+##### 9332#       发表于 2022-8-13 17:05
+
+就算克神力中暴力，k1也是csdx啊，这版本还在玩大核的大哥走不远好吧。
+
+杜鹏儿明智的地方就是知道往245后面缩，bc真斩了og，无限看好鳖茶上去好吧。
+
+*****
+
+####  adretyu67  
+##### 9333#       发表于 2022-8-13 17:06
+
+<img src="https://img.saraba1st.com/forum/202208/13/170603kjzf8799yc9aod8q.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220813170440.png</strong> (74.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 17:06 上传
+
+重新看了下，不止a了奶酪，狂战强袭也a了
+
+QQ截图20220813170342.png
+(116.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 17:05 上传
+
+<img src="https://img.saraba1st.com/forum/202208/13/170506h783gbu3v3q0p8q7.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9334#       发表于 2022-8-13 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实不仅非职业玩家看不懂，职业哥也打不懂，去年ti忘了是哪个博登连发芽造成攻击落空这天赋都不点的
+
+*****
+
+####  尸体鲨  
+##### 9335#       发表于 2022-8-13 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048705&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 17:09</a>
+其实不仅非职业玩家看不懂，职业哥也打不懂，去年ti忘了是哪个博登连发芽造成攻击落空这天赋都不点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有飞飞虚空的20级天赋
+
