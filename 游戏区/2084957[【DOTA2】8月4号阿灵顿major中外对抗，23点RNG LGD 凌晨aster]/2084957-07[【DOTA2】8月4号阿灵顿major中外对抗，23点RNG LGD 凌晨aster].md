@@ -1530,3 +1530,139 @@ nts 2020战绩，给楼友对线参考
 
 承认ame犯病就行，我只是想反驳ame现在是国内成绩最好的c所以不沾锅这点。
 
+
+
+*****
+
+####  nxmonitor  
+##### 9178#       发表于 2022-8-13 13:00
+
+还有“maybe没法打劣势线只能死保”也是一个事实，一把ame和maybe一起说仿佛这个事实也不存在了，然而这些事情就是同时发生的，两个问题还能互相影响放大呢……
+
+*****
+
+####  战狼PTSD  
+##### 9179#       发表于 2022-8-13 13:02
+
+虽然TI小丑喂屎舔皮套人，但大可不必说没C过
+
+或者漏油说说谁C过
+
+*****
+
+####  nxmonitor  
+##### 9180#       发表于 2022-8-13 13:03
+
+用错误的事实来反驳完全不叫反驳，这只能叫做念经好吧，念经就是饭圈的核心本质，毕竟是仿照宗教组织来了，事实不重要观点最重要……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qazkevin  
+##### 9181#       发表于 2022-8-13 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045954&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-08-13 12:13:01</a>
+440，预选或者外卡，但是现在xg不能说毫无精神只能说油面都垂头丧气的，感觉这个队伍自从lou签证出问题之 ...</blockquote>不是吧…感觉major前他们打得有来有回，算是有点水平，这么惨的嘛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿垃垃圾历  
+##### 9182#       发表于 2022-8-13 13:03
+
+ame carry的局肯定还是能找出来的 从决赛日来看的话 震中杯第一局的水人变飞机的确是C了 没这个操作第一局大概率就没了 和第四局的无解肥小鱼奠定胜局吧   
+
+*****
+
+####  反方向的波  
+##### 9183#       发表于 2022-8-13 13:04
+
+霉鳖线劣只能死保大可不必，老儿北儿京儿小优对线狂到翻车才是最多的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 9184#       发表于 2022-8-13 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">买了个剑圣至宝发现解锁居然他妈的只要10次？？？？
+
+他妈的幽鬼风行qopes能不能跟进下啊我**的
+
+*****
+
+####  nxmonitor  
+##### 9185#       发表于 2022-8-13 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046514&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-13 13:03</a>
+
+ame carry的局肯定还是能找出来的 从决赛日来看的话 震中杯第一局的水人变飞机的确是C了 没这个操作第一局 ...</blockquote>
+然而这一波是被lion抓了一插一大暴毙后逼出来的水人一打四，两种情况在同一局里发生……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 9186#       发表于 2022-8-13 13:05
+
+油面这人major夺冠的心劲都没了，直播聊天意思我开摆了不去了，那这样的队伍我确实不看好。职业选手没自信打什么职业
+
+*****
+
+####  chilno  
+##### 9187#       发表于 2022-8-13 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046373&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-13 12:50</a>
+
+其实，我就想知道大赛ame哪把C了，有没有比赛编号发下的啊？有钱一起赚。</blockquote>
+哥哥唯一的高光吹了好几年的就是水人变飞机高地秒5个？还是4个？
+
+*****
+
+####  nxmonitor  
+##### 9188#       发表于 2022-8-13 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046511&amp;ptid=2084957" target="_blank">qazkevin 发表于 2022-8-13 13:03</a>
+
+不是吧…感觉major前他们打得有来有回，算是有点水平，这么惨的嘛
+
+  -- 来自 有消息提醒的 Stage1官方 And ...</blockquote>
+哪里有来有回了，那是赛季初好吧，后面就是被茶屠杀的……
+
+*****
+
+####  nowaki  
+##### 9189#       发表于 2022-8-13 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046546&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-13 13:06</a>
+
+哥哥唯一的高光吹了好几年的就是水人变飞机高地秒5个？还是4个？</blockquote>
+四个
+
+*****
+
+####  阿垃垃圾历  
+##### 9190#       发表于 2022-8-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046533&amp;ptid=2084957" target="_blank">nxmonitor 发表于 2022-8-13 13:05</a>
+
+然而这一波是被lion抓了一插一大暴毙后逼出来的水人一打四，两种情况在同一局里发生…… ...</blockquote>
+是的  前面刚刚发生了四百血水人对面远古野被kky没大lion单杀  这种暴毙操作 那年不少见好吧 
+
+*****
+
+####  逃离二次元  
+##### 9191#       发表于 2022-8-13 13:07
+
+老北京劣势对线其实比优势对线打得好，因为老北京打优势对线会上头送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 9192#       发表于 2022-8-13 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046546&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-13 13:06</a>
+
+哥哥唯一的高光吹了好几年的就是水人变飞机高地秒5个？还是4个？</blockquote>
+楼上说了，被lion抓了一插一大暴毙后逼出来的水人一打四。
+
