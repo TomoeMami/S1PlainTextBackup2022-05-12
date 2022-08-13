@@ -4094,3 +4094,67 @@ BC看上去有点紧张啊
 
 比赛解说应该不是土娟吧
 
+
+
+*****
+
+####  反方向的波  
+##### 9462#       发表于 2022-8-13 23:11
+
+现场还有人在放烟火gif的可还行
+
+*****
+
+####  iriyano  
+##### 9463#       发表于 2022-8-13 23:11
+
+漏油们怎么对花瓶这么严格，我每次都是看完腿就切走
+
+*****
+
+####  walfeds  
+##### 9464#       发表于 2022-8-13 23:12
+
+草，好像看到镜头里观众席有人举着动态烟火神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 9465#       发表于 2022-8-13 23:12
+
+ 本帖最后由 名字不乱取 于 2022-8-13 23:16 编辑 
+
+wisp再来拉比克3，哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没有拉比克3看了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 9466#       发表于 2022-8-13 23:16
+
+bc又给whisper选蝙蝠了
+
+*****
+
+####  -SLSL-  
+##### 9467#       发表于 2022-8-13 23:17
+
+bc这个黄头发的是谁，怎么有点像csdx
+
+*****
+
+####  反方向的波  
+##### 9468#       发表于 2022-8-13 23:17
+
+还真是卡尔
+
+*****
+
+####  逃离二次元  
+##### 9469#       发表于 2022-8-13 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
