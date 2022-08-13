@@ -4235,3 +4235,46 @@ vspo四人＋aim组排valo
 
 在nhk上面把daze唱成这样算不算公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16881#       发表于 2022-8-13 12:26
+
+ 本帖最后由 Ketestrait 于 2022-8-13 12:29 编辑 
+
+yugo这二回表体力就要寄了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+惨案，比豆猫还惨<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  alcoholic1000  
+##### 16882#       发表于 2022-8-13 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036345&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-12 17:26</a>
+
+mysta的瓦实力还是要尊敬下的，倒是sunny这军团高玩没选进来挺意外的</blockquote>
+这两人现在走的都是エンターテイナー路线吧，不展示游戏力，有时候clip看见他们巨魔发言还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+反倒是歌势的几个人进来以后整天嗯打游戏
+
+*****
+
+####  alcoholic1000  
+##### 16883#       发表于 2022-8-13 12:29
+
+二回表就打成筛子，只有yugo防不住啊
+
+king也太狠了
+
+*****
+
+####  布莱士·西伯利  
+##### 16884#       发表于 2022-8-13 12:30
+
+8-0，油惨。
+
