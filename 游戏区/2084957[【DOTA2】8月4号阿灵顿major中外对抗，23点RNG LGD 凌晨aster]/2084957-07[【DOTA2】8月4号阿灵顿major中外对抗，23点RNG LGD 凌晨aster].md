@@ -2418,3 +2418,35 @@ ngav版<strong>阿梓大小姐想让我表白，萧瑟仙贝的恋爱头脑战�
 
 这是太监论坛版主在老干瘪vs雪碧的下注贴设立得规则<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thistimeforlife  
+##### 9277#       发表于 2022-8-13 15:32
+
+我们涝泔瘪是硬实力冠军，割割不可能输
+
+今年水这么大，真输了必定有更大的乐子
+
+*****
+
+####  反方向的波  
+##### 9278#       发表于 2022-8-13 15:38
+
+原来车轱辘了半天又是一个去年p神肆虐时的缩壳哥，令人疲惫的刀楼<img src="https://static.saraba1st.com/image/smiley/carton2017/204.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 9279#       发表于 2022-8-13 15:38
+
+nba版主真会玩啊，看来假赛流量真的恰的很爽
+
+*****
+
+####  六道仙鱼  
+##### 9280#       发表于 2022-8-13 15:38
+
+那下雪碧不是挺好的，不过nga有啥能拿来当赌注的东西，签到给的铜币？
+
