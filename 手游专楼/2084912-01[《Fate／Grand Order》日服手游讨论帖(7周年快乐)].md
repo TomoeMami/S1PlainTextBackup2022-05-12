@@ -9353,3 +9353,12 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 你们一定会觉得棒读也挺好的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 878#       发表于 2022-8-13 14:06
+
+现在新声优哪里还有棒读的，基本只有偶像艺人这种外行来客串才会有棒读，词不要乱用
+

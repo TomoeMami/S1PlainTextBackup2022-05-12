@@ -4339,3 +4339,33 @@ king也太狠了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么虐菜局   嗯蹭是吧
 
+
+
+*****
+
+####  Ketestrait  
+##### 16891#       发表于 2022-8-13 14:00
+
+油男这1回里AI觉醒完美配合啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16892#       发表于 2022-8-13 14:04
+
+ 本帖最后由 alcoholic1000 于 2022-8-13 14:05 编辑 
+
+yugo睡醒了！
+
+控球s怎么还四坏啊
+
+<img src="https://img.saraba1st.com/forum/202208/13/140542lr5yfoi6vdnno6ag.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園 2022】NIJISANJI EN B LEAGUE WATCHALONG【NIJISANJI EN | Luca .png</strong> (116.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 14:05 上传
+
+真热闹
+
