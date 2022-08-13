@@ -3882,3 +3882,50 @@ a畜司马 集美司马
 
 想找个ti8森哥小牛品一下，油管随手一搜就看到了ti8胜决jerax的小牛，基地前跳大击杀买活的tb完成翻盘。
 
+
+
+*****
+
+####  星野航  
+##### 9437#       发表于 2022-8-13 22:32
+
+最有意思的还是选crit好吧
+
+这ceb带着og不知道锤过几次crit了，在一起组队虽然也有major吧
+
+还是说这也是“除了我的队伍”，倒也合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 9438#       发表于 2022-8-13 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57052949&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-13 22:22</a>
+
+想找个ti8森哥小牛品一下，油管随手一搜就看到了ti8胜决jerax的小牛，基地前跳大击杀买活的tb完成翻盘。
+
+* ...</blockquote>
+那把还是羊刀TB吧，中单超哥POM，A是被动流星，打瞬间爆发很高
+
+买活拆基地都以为要赢了，结果被小牛A跳留下来了，自那以后小牛滞空时间加长，我也再也没玩过
+
+拿现在的眼光去看TI8都觉得菜成狗了，打团守高葫芦娃，圣坛也不拆
+
+*****
+
+####  joker9527  
+##### 9439#       发表于 2022-8-13 22:36
+
+讲道理ti8 要不是ame这么畜生早就赢了。。lgd的2345的战斗力的平均值是绝对大于og12345战斗力的平均值的
+
+可惜A畜这B就自带大赛表演性人格，赛事越高级，场次越关键，他越喜欢给你来整个大的，但凡跟之前一样不功不过 老老实实当个人，ti8 G4就直接拿下了
+
+2018年谁又不是一个lxo呢
+
+*****
+
+####  thistimeforlife  
+##### 9440#       发表于 2022-8-13 22:39
+
+ti8 og的翻盘局打了太多经典好局，导致我事实上看完胜决后就更希望og赢了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
