@@ -3474,3 +3474,19 @@ ig预选形势还是严峻呀，虽然rng外战过于脑溢血，但霉皇打国
 冤屈程 ...</blockquote>
 贴索狗标签是游戏区的特色<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名字不乱取  
+##### 9393#       发表于 2022-8-13 19:22
+
+都默认og打茶是吧，我先看克神燃烧自己了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 9394#       发表于 2022-8-13 19:28
+
+森哥确实帅<img src="https://p.sda1.dev/6/ce505c54989bbe8d0a42a23ca7315395/CMP_20220813192738114.png" referrerpolicy="no-referrer">尤其是在vg的时候
+
