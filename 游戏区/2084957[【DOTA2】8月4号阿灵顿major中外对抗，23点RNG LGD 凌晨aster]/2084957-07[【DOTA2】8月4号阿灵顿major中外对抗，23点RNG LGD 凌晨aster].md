@@ -4618,3 +4618,224 @@ ATF太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/049.
 
 这滚滚到现在有什么作用吗？
 
+
+
+*****
+
+####  逃离二次元  
+##### 9533#       发表于 2022-8-13 23:40
+
+atf这波搞毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和队友脱节自己冲锋是吧
+
+*****
+
+####  nowaki  
+##### 9534#       发表于 2022-8-13 23:40
+
+克神科目一都过不去吧
+
+*****
+
+####  何然  
+##### 9535#       发表于 2022-8-13 23:40
+
+新og队长新加坡签证也没了
+
+*****
+
+####  名字不乱取  
+##### 9536#       发表于 2022-8-13 23:41
+
+bc基本到点了，我一直怀疑克神至少控制着两个酱油的脑子，克神一发病，大家就一起陪他病<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9537#       发表于 2022-8-13 23:41
+
+克神科二的时候一个都没撞到肯定满分啊
+然后科三连挂5次回到了忠实的科目1
+
+*****
+
+####  天堂蜘蛛  
+##### 9538#       发表于 2022-8-13 23:41
+
+油垃圾和ATF脑浆啊
+
+*****
+
+####  adretyu67  
+##### 9539#       发表于 2022-8-13 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054030&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-13 23:40</a>
+
+新og队长新加坡签证也没了</blockquote>
+misha怎么连新加坡签证都出问题？
+
+不会真准备被vote吧
+
+*****
+
+####  弈秋  
+##### 9540#       发表于 2022-8-13 23:42
+
+克神！单防ceb
+
+
+
+*****
+
+####  沈淮  
+##### 9541#         楼主| 发表于 2022-8-13 23:42
+
+K1打功能c颇有a畜的味道
+
+*****
+
+####  北条早苗  
+##### 9542#       发表于 2022-8-13 23:42
+
+yuragi和atf天天冲脱节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 9543#       发表于 2022-8-13 23:42
+
+只要你不把克神当人 克神每一波正常的操作都是惊喜
+
+*****
+
+####  反方向的波  
+##### 9544#       发表于 2022-8-13 23:43
+
+感觉克神这把烂掉的原因是他卜玩卡尔，脑子里根本没画面的<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 9545#       发表于 2022-8-13 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054055&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-13 23:42</a>
+misha怎么连新加坡签证都出问题？
+
+不会真准备被vote吧</blockquote>
+这maior打完肯定要出问题的！
+
+*****
+
+####  nightmare902015  
+##### 9546#       发表于 2022-8-13 23:43
+
+我是觉得这版本卡尔强势期来的太慢不咋能玩的。这把感觉作用还可以啊
+
+*****
+
+####  12481632  
+##### 9547#       发表于 2022-8-13 23:44
+
+2：0早点开下一场吧
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 9548#       发表于 2022-8-13 23:44
+
+这把越往后打对OG越有利啊
+
+*****
+
+####  名字不乱取  
+##### 9549#       发表于 2022-8-13 23:44
+
+k1和ame的差别大概是旺盛的表演欲全点到克神身上去了，k1的打架概念大概是前面有一群很肥的兵a掉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 9550#       发表于 2022-8-13 23:44
+
+蝙蝠这把也没啥节奏
+
+*****
+
+####  弈秋  
+##### 9551#       发表于 2022-8-13 23:45
+
+这把明明能给WISper拿到电魂的
+
+*****
+
+####  北条早苗  
+##### 9552#       发表于 2022-8-13 23:46
+
+克里斯神有点艺术过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 9553#       发表于 2022-8-13 23:46
+
+BC这波打的啥啊？
+
+*****
+
+####  吃货红毛  
+##### 9554#       发表于 2022-8-13 23:46
+
+怎么打得看起来憨憨的来自: iPhone客户端
+
+*****
+
+####  弈秋  
+##### 9555#       发表于 2022-8-13 23:46
+
+还是ceb
+
+*****
+
+####  walfeds  
+##### 9556#       发表于 2022-8-13 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57054055&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-13 23:42</a>
+misha怎么连新加坡签证都出问题？
+
+不会真准备被vote吧</blockquote>
+别信张口就来啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 9557#       发表于 2022-8-13 23:47
+
+OG这阵容上高还得拖一会儿
+
+*****
+
+####  12481632  
+##### 9558#       发表于 2022-8-13 23:48
+
+克神真的是
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 9559#       发表于 2022-8-13 23:49
+
+​几件小事，还原一个有血有肉的超哥形象！
+[https://ngabbs.com/read.php?tid=33060257](https://ngabbs.com/read.php?tid=33060257)
+
+*****
+
+####  吃货红毛  
+##### 9560#       发表于 2022-8-13 23:49
+
+这滚滚什么鸟大啊来自: iPhone客户端
+

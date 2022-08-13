@@ -4667,3 +4667,12 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 那个切片只看到标题没来得及看，是逆向独角兽又暴动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望对前队友aim的私信手下留情。
 男女主播就这么一套场外翻来覆去地闹，已经看厌了。
 
+
+
+*****
+
+####  FCCHua  
+##### 16923#       发表于 2022-8-13 23:48
+
+bobhina贴贴不行，kmt和其他人可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
