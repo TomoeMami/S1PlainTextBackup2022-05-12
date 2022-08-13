@@ -8721,3 +8721,111 @@ og好狂，把茶队双辅助玩得最好的小小和戴泽都给放出来了
 
 尼玛茶不会被翻了吧，出去买早饭去
 
+
+
+*****
+
+####  吃货红毛  
+##### 10054#       发表于 2022-8-14 07:00
+
+巨魔肥中肥之终极一肥 就靠这经济兜住了来自: iPhone客户端
+
+*****
+
+####  haruhiismer  
+##### 10055#       发表于 2022-8-14 07:01
+
+杜鹏双刀bkb撒旦薄葬发点疯也死不了吧
+
+*****
+
+####  ArowRocher  
+##### 10056#       发表于 2022-8-14 07:02
+
+ 本帖最后由 ArowRocher 于 2022-8-14 07:04 编辑 
+
+要不把ana叫回来换油垃圾吧
+
+下一个就是你atf
+
+*****
+
+####  吃货红毛  
+##### 10057#       发表于 2022-8-14 07:03
+
+油垃圾队服都穿的ceb终极小迷弟来自: iPhone客户端
+
+*****
+
+####  坚定的团子党  
+##### 10058#       发表于 2022-8-14 07:03
+
+这大圣是真的搞笑，我记得上次水人5连暴毙也是他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  haruhiismer  
+##### 10059#       发表于 2022-8-14 07:04
+
+本泽马也上演孤胆英雄了
+
+*****
+
+####  吃货红毛  
+##### 10060#       发表于 2022-8-14 07:06
+
+难道说 这次从败者组串上来干住lgd的是茶子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  lyuhiu  
+##### 10061#       发表于 2022-8-14 07:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿巴顿真是一手烂招啊
+
+*****
+
+####  一夜秋风袭锦城  
+##### 10062#       发表于 2022-8-14 07:06
+
+ceb是不是打不了ti？那这og估计到ti会尿一地。
+
+*****
+
+####  血狂毘沙门  
+##### 10063#       发表于 2022-8-14 07:07
+
+茶也要超进化吗 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 10064#       发表于 2022-8-14 07:07
+
+这盘主要是bp爆了，或者说og自己脑浆了，就没想过怎么打巨魔么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 10065#       发表于 2022-8-14 07:08
+
+别急，张志成会按B键取消进化的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 10066#       发表于 2022-8-14 07:09
+
+这最后一手出什么好点
+
+*****
+
+####  ArowRocher  
+##### 10067#       发表于 2022-8-14 07:09
+
+鹏子就是不变石
+
