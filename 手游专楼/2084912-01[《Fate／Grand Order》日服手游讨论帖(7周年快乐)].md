@@ -9284,3 +9284,12 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">活动用公主刷了几把，感觉这新声优真的是棒读到发指，尤其是每次都要听一遍千和的暗狐，对比下来太残酷了
 
+
+
+*****
+
+####  areklose  
+##### 871#       发表于 2022-8-13 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗？我觉得还行。不过我FGO都不怎么开声音。打月姬R并不觉得
+

@@ -378,3 +378,153 @@ xxs这把够脑瘫了，团战死了那么多次才想起来要出林肯
 
 还是去看og吧，两点的比赛实在熬不动<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  健康猹  
+##### 9047#       发表于 2022-8-13 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044340&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-13 09:38</a>
+
+【【阿灵顿Major】Aster 2:1 Entity最后时候现场角度！粉丝高呼Aster！-哔哩哔哩】 https://b23.tv/3VLNPPE ...</blockquote>
+怕被珍核核直接LOU死
+
+*****
+
+####  Keynes  
+##### 9048#       发表于 2022-8-13 09:42
+
+有没有一种可能今晚茶茶赢然后lgd输，然后后天茶茶吧干瘪淘汰<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 9049#       发表于 2022-8-13 09:42
+
+XXS前期很脑浆啊，该开大的时候省大，而且装备顺序也有点问题……
+
+*****
+
+####  DDWarrior  
+##### 9050#       发表于 2022-8-13 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044321&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-13 09:37</a>
+同样是27岁老中单，老北京预选赛再不支楞起来，怕不是集美口中永远的ti8罪人了啊。 ...</blockquote>
+我觉得你可能有点误会，集美做任何事从来就不需要任何事实依据的。现在老北京（或者查猪或者森哥或者小天使）就是ti8最大罪人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 9051#       发表于 2022-8-13 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044366&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-13 09:42</a>
+
+有没有一种可能今晚茶茶赢然后lgd输，然后后天茶茶吧干瘪淘汰 ...</blockquote>
+卜哭卜是珍核核
+
+*****
+
+####  43453  
+##### 9052#       发表于 2022-8-13 09:43
+
+干啊，意思是剩下的分别是一冠王雪碧，二冠王OG，和三冠王LGD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，🍵投降算输一半
+
+*****
+
+####  莉拉厨  
+##### 9053#       发表于 2022-8-13 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044366&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-13 09:42</a>
+有没有一种可能今晚茶茶赢然后lgd输，然后后天茶茶吧干瘪淘汰 ...</blockquote>
+但凡你看过这两天的比赛都不能说出这种话<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 9054#       发表于 2022-8-13 09:45
+
+坐等脑东京中路干翻NTS。
+
+*****
+
+####  反方向的波  
+##### 9055#       发表于 2022-8-13 09:45
+
+ 本帖最后由 反方向的波 于 2022-8-13 09:47 编辑 
+
+ti9不知克神 ti10辱骂克神 斯德哥尔摩理解克神 阿灵顿相信克神
+支持克神打爆本泽马<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+注：克神2019年就是ti9八强了 望周知
+
+*****
+
+####  walfeds  
+##### 9056#       发表于 2022-8-13 09:45
+
+别奶了，我怕og直接被克神肌肉搂死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thistimeforlife  
+##### 9057#       发表于 2022-8-13 09:46
+
+茶这把前中期节奏极其脑浆 杜鹏又大概率是个炸弹，四强真的不错了
+
+还是去梦里相信那10%的进化的可能性吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 9058#       发表于 2022-8-13 09:46
+
+猴爹：脑东京对线不如我，非英雄也。当世英雄，唯nisha和我nts也
+
+*****
+
+####  Keynes  
+##### 9059#       发表于 2022-8-13 09:47
+
+要想让集美爆炸只能有这一条路好吧，其他路集美都是大迎特赢
+
+*****
+
+####  morwhipppo  
+##### 9060#       发表于 2022-8-13 09:48
+
+og不是一直是樱花兄弟**吗，说不定这次奴性又犯了
+
+
+
+*****
+
+####  何然  
+##### 9061#       发表于 2022-8-13 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044366&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-13 09:42</a>
+有没有一种可能今晚茶茶赢然后lgd输，然后后天茶茶吧干瘪淘汰 ...</blockquote>
+今晚多睡会儿一定可以的
+
+*****
+
+####  Keynes  
+##### 9062#       发表于 2022-8-13 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044408&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-13 09:46</a>
+ 茶这把前中期节奏极其脑浆 杜鹏又大概率是个炸弹，四强真的不错了 还是去梦里相信那10%的进化的可能性吧[f: ...</blockquote>
+10%？0.00010%！
+
+*****
+
+####  遍体精淋af  
+##### 9063#       发表于 2022-8-13 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57044436&amp;ptid=2084957" target="_blank">morwhipppo 发表于 2022-8-13 09:48</a>
+og不是一直是樱花兄弟**吗，说不定这次奴性又犯了</blockquote>
+今年的og算新队了
+
