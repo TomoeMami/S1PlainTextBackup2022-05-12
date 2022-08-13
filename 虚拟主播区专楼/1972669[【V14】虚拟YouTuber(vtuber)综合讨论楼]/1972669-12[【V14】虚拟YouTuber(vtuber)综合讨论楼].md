@@ -4310,3 +4310,21 @@ king也太狠了
 没看油的育成直播 这野手咋练的啊 上位打线两维全是d，e。4棒都是c，e</blockquote>
 背负了虹甲所有的非洲酋长运，每场比赛都是自动失分开场然后追分进延长苦战惨胜or惨败，本届育成唯一一个没有打进过甲子园的
 
+
+
+*****
+
+####  Ketestrait  
+##### 16888#       发表于 2022-8-13 13:25
+
+投手战力差距令人绝望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 16889#       发表于 2022-8-13 13:29
+
+这昨天比去年昨天跳的有点高呀 大概是人员更好了 还是预测个黛灰那个数字吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
