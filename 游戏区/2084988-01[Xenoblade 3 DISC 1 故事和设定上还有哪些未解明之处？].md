@@ -2172,3 +2172,27 @@ DLC必然是新地图，毕竟前两作都这么搞了。如果DLC真要出前�
 
 现在就是等限定版的设定到手，看一看26(25)个执政官了，数量有点太多，支线很多打完就忘了是哪个编号
 
+
+
+*****
+
+####  ouyang菌  
+##### 192#       发表于 2022-8-13 19:45
+
+看挺多人记不住，那我在这再发一遍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/13/194553ap781p0340d1kmn9.png" referrerpolicy="no-referrer">
+
+<strong>梅比乌斯字母表.png</strong> (100.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 19:45 上传
+
+*****
+
+####  镜像导航图  
+##### 193#       发表于 2022-8-13 19:48
+
+说来，XYZ刚好也是2男1女，和三处理器对上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

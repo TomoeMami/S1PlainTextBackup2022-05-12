@@ -3538,3 +3538,53 @@ ig预选形势还是严峻呀，虽然rng外战过于脑溢血，但霉皇打国
 
 森哥你真卜比Puppey，ChuaN，EGM，Banana，Aui_2000，iceice，GH，JerAx，JerAx，Mira，xinq（2022）差
 
+
+
+*****
+
+####  超人苏坦纳  
+##### 9401#       发表于 2022-8-13 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048774&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 17:16</a>
+
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此 ...</blockquote>
+大黑似粉了 注意影响
+
+*****
+
+####  ninini212  
+##### 9402#       发表于 2022-8-13 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57050122&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-13 19:39</a>
+
+森哥你真卜比Puppey，ChuaN，EGM，Banana，Aui_2000，iceice，GH，JerAx，JerAx，Mira，xinq（2022）差 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">TI4的话大狗和香蕉混打的，两个人都能是4都能是5
+
+*****
+
+####  TIZI  
+##### 9403#       发表于 2022-8-13 19:44
+
+森哥除了红包也没什么黑点了吧
+可惜了，没拿下ti只能当周仓了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tontyoutoure  
+##### 9404#       发表于 2022-8-13 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57047213&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-13 14:04</a>
+AME本身也比Maybe小个一两岁吧，等比兑换一下就是19年到20年的Maybe</blockquote>
+这个游戏时光对于中单比对carry要残酷得多
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 9405#       发表于 2022-8-13 19:46
+
+怎么又给版主送舰长啊，这里是版主皮套人粉丝楼吗？
+
