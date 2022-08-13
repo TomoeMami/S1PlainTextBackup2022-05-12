@@ -9323,3 +9323,21 @@ appmedia发视频之前，我就有11区的朋友在用了</blockquote>
 周年的时候居然不刷狗粮比这里效率高才对</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年的时候自然是在刷钱
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 875#       发表于 2022-8-13 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年的时候还没想到水着不讲武德来三个五星池，那时候的男从者都变方块然后换QP礼装去刷了7EQP，顺带给摩根升了几级
+
+*****
+
+####  khxooo  
+##### 876#       发表于 2022-8-13 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57043003&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-13 04:59</a>
+活动用公主刷了几把，感觉这新声优真的是棒读到发指，尤其是每次都要听一遍千和的暗狐，对比下来太 ...</blockquote>
+鬼头才是棒读好不，公主声优起码有点起伏，绘里濑的宝具语音真的是完全一个调<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

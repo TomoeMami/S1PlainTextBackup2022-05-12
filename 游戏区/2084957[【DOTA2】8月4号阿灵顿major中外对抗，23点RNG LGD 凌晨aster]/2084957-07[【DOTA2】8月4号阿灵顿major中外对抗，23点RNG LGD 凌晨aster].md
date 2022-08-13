@@ -1050,3 +1050,73 @@ sa dota best dota！
 
 是不是社交游戏同V社和完美的死妈运营都没关系吧
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 9125#       发表于 2022-8-13 11:22
+
+只能说大势所趋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">简单易上手的游戏就是更吸引人，现在是手游的时代
+
+ti11公布Dota2手游救一下啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 9126#       发表于 2022-8-13 11:23
+
+所以a畜早早的当了op，令人感叹其高瞻远瞩
+
+*****
+
+####  nightmare902015  
+##### 9127#       发表于 2022-8-13 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045392&amp;ptid=2084957" target="_blank">JoelBirch 发表于 2022-8-13 11:16</a>
+是不是社交游戏同V社和完美的死妈运营都没关系吧</blockquote>
+这游戏核心内容和吸引人的点已经落后时代了，再怎么做运营并不会改变大趋势。只能说司马运营是问题但影响不大。
+
+*****
+
+####  名字不乱取  
+##### 9128#       发表于 2022-8-13 11:23
+
+懒狗社是这样的，这帮b做的事情也不少，但好像大部分和我一点关系也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9129#       发表于 2022-8-13 11:25
+
+今天谁被大水冲有说法了吗，好提前点个视野<img src="https://static.saraba1st.com/image/smiley/carton2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 9130#       发表于 2022-8-13 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045500&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-13 11:25</a>
+
+今天集美冲谁有说法了吗，好提前点个视野</blockquote>
+不是还在清算do处吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 9131#       发表于 2022-8-13 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57045296&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-13 11:07</a>
+没老干瘪那年的透支偿还，国内怎么还能续命一下的
+你可以找业内问问，特别是非干瘪系的，谁不恨啊 ...</blockquote>
+那别的队自己也不争气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 9132#       发表于 2022-8-13 11:28
+
+冠夹眼见的还要被清算一段时间，不知道完美是找的自己家员工还是找的临时工
+
