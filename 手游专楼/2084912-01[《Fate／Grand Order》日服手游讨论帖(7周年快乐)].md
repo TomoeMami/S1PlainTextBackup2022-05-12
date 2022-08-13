@@ -9902,3 +9902,64 @@ DIY一下红光炮狂伊吹：
 草，你不说我都没发现是早上UP</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要一大早晒卡了吗
 
+
+
+*****
+
+####  里村紅葉  
+##### 926#       发表于 2022-8-13 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051378&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-8-13 20:55</a>
+
+反正真·黑幕就是旧梅这事一看地图上那座塔就知道了，比道满跳反惊喜度还低 ...</blockquote>
+等一个阿瓦隆女士真名溶解梅林prototype<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 927#       发表于 2022-8-13 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051492&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-13 20:59</a>
+
+你要一大早晒卡了吗</blockquote>
+只要不让我吃保底我就烧香了
+
+换成日服一单贵了50左右，瞬间过了一个心理防线，从可以氪上升到了要考虑一下氪几单
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 928#       发表于 2022-8-13 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051261&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 20:49</a>
+
+你们商店换东西时有没有问题？我每次都卡死</blockquote>
+卡的，只能重启游戏，反正东西是给了
+
+*****
+
+####  霧谷藤乃  
+##### 929#       发表于 2022-8-13 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊吹明天早上就UP的话今天居然不给一个试用
+
+*****
+
+####  alucardcz  
+##### 930#       发表于 2022-8-13 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57051261&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-13 20:49</a>
+
+你们商店换东西时有没有问题？我每次都卡死</blockquote>
+我也直接卡死  但没完全卡死  那个滚动条还在动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  areklose  
+##### 931#       发表于 2022-8-13 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">草是早上吗
+
