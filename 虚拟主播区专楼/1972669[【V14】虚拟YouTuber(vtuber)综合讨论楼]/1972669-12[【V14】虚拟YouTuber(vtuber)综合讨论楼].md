@@ -4554,3 +4554,12 @@ king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了
 
 可不可以说ange就是甲子园瘟神w
 
+
+
+*****
+
+####  Ketestrait  
+##### 16914#       发表于 2022-8-13 16:30
+
+神速的看板，当然是我...Captain Shiba！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
