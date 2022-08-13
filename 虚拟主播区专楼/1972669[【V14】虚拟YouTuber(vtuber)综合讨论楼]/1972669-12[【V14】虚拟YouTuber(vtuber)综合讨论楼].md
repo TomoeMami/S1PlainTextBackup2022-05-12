@@ -4278,3 +4278,16 @@ king也太狠了
 
 8-0，油惨。
 
+
+
+*****
+
+####  IL282  
+##### 16885#       发表于 2022-8-13 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035047&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-12 15:47</a>
+插播一条：</blockquote>
+赶紧去请rpr
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
