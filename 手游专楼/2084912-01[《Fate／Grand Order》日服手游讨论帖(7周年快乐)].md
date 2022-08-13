@@ -9511,3 +9511,22 @@ FGO那个不就是R换得新CV吗</blockquote>
 下作啊，继续藏斯卡蒂的技能和宝具</blockquote>
 配卡是2红2绿1蓝，很微妙，不像拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 893#       发表于 2022-8-13 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048810&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-13 17:20</a>
+
+配卡是2红2绿1蓝，很微妙，不像拐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么这能看出不是拐？
+
+*****
+
+####  miro112233  
+##### 894#       发表于 2022-8-13 17:40
+
+其实杀狐也是这个配卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

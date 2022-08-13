@@ -3060,3 +3060,51 @@ CSDX带头品屎是吧</blockquote>
 
 想想去年两次major的亚军居然是eg，你就知道这几年职业队水平真的在退步
 
+
+
+*****
+
+####  lmslardar  
+##### 9348#       发表于 2022-8-13 17:31
+
+游戏没有新血是这样的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 9349#       发表于 2022-8-13 17:31
+
+所以我定期复习下ti89，可太好看了。
+
+*****
+
+####  Yukino-Yukino  
+##### 9350#       发表于 2022-8-13 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57048774&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-13 17:16</a>
+
+我从TI8之后就一直把ame当作精神偶像，你说这样帅气而又天赋十足的人，也算是一个公众人物，在数次经历如此 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷去发nga了
+
+*****
+
+####  沈淮  
+##### 9351#         楼主| 发表于 2022-8-13 17:32
+
+疫情印象太大了，17-20年那段时间，一个月好几个比赛轮着乱打，各种顶级强队对抗看着是真的爽，现在全jb脑浆大乱斗看的脑壳疼
+
+*****
+
+####  反方向的波  
+##### 9352#       发表于 2022-8-13 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">再车轱辘一遍好了，19年这几个人就打到ti八强了，然后疫情来了被锁在美洲大陆鱼塘上臭鱼烂虾互啄成了一副鬼样子，这次美酒简直是超神归来
+
+Infamous.K1
+Infamous. Chris Luck
+Infamous. Wisper
+Infamous. Scofield
+Infamous. Stinger
+
