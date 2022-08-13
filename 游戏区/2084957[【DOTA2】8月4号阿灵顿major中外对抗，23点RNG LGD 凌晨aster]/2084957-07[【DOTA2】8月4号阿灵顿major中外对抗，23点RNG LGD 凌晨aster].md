@@ -3490,3 +3490,51 @@ ig预选形势还是严峻呀，虽然rng外战过于脑溢血，但霉皇打国
 
 森哥确实帅<img src="https://p.sda1.dev/6/ce505c54989bbe8d0a42a23ca7315395/CMP_20220813192738114.png" referrerpolicy="no-referrer">尤其是在vg的时候
 
+
+
+*****
+
+####  战狼PTSD  
+##### 9395#       发表于 2022-8-13 19:31
+
+森哥出道我就是颜粉了，吴奇隆UPUP
+
+*****
+
+####  thistimeforlife  
+##### 9396#       发表于 2022-8-13 19:32
+
+预选赛打出一地脑浆吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 9397#       发表于 2022-8-13 19:33
+
+#徐林森颜值#
+
+*****
+
+####  战狼PTSD  
+##### 9398#       发表于 2022-8-13 19:35
+
+[https://www.bilibili.com/video/BV18B4y157MA](https://www.bilibili.com/video/BV18B4y157MA)
+
+这皮套人是男是女啊
+
+*****
+
+####  尸体鲨  
+##### 9399#       发表于 2022-8-13 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57049056&amp;ptid=2084957" target="_blank">w2210059 发表于 2022-8-13 17:46</a>
+不是有正鳖锐评那个辉耀计划的视频，脑补过头，按他的解读就是水人自己犯病一个e把小小推跑了，让这波团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是辉耀计划
+
+*****
+
+####  百世诸侯  
+##### 9400#       发表于 2022-8-13 19:39
+
+森哥你真卜比Puppey，ChuaN，EGM，Banana，Aui_2000，iceice，GH，JerAx，JerAx，Mira，xinq（2022）差
+
