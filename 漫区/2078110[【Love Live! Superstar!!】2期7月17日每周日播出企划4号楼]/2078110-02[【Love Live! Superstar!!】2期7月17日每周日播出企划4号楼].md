@@ -12060,3 +12060,18 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 看都不看
 仅代表我自己，你无法对并未想着服务于你的动画组提任何要求有任何预期，都是一厢情愿缘木求鱼<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2667#       发表于 2022-8-15 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068554&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-15 07:05</a>
+这话怎么这么多可推炸了我不理解，不过我想拜访下恋推，你们对恋沉迷游戏机那段怎么看，有人说这是 ...</blockquote>
+黑长直学生会长喜欢打游戏怎么了，中川菜菜jpg。
+
+现在恋推能不用数这次有多少套话台词就已经心满意足了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

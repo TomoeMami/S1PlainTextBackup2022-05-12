@@ -11126,3 +11126,257 @@ xb3 上个月29号出的，不好好玩训练打xb3是吧，拷打！
 
 老干鳖363天冠军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 11888#       发表于 2022-8-15 07:30
+
+<img src="https://img.saraba1st.com/forum/202208/15/073007mlr94m29i6m6o998.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 07:30 上传
+
+区区一个小冠军施舍给你雪碧了
+
+*****
+
+####  mkii量产型  
+##### 11889#       发表于 2022-8-15 07:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快点死，我要看血流成河，我已经准备3个号去太监论坛骑脸了
+
+*****
+
+####  zkc1991  
+##### 11890#       发表于 2022-8-15 07:30
+
+雪碧是掌握了打老干爹的密码了，抓着鞭酱锤就完事了，放处长free farm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 11891#       发表于 2022-8-15 07:31
+
+都打到决赛了，没理由瞎比打，就是菜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyjssj  
+##### 11892#       发表于 2022-8-15 07:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">点进龙弟弟直播间看了眼，又有**弹幕在刷吃了，笑死
+
+*****
+
+####  我爱撩菜  
+##### 11893#       发表于 2022-8-15 07:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 也更新了那句：LGD就输了TS一个BO5 ，要升级为2个BO5了
+
+*****
+
+####  沈淮  
+##### 11894#         楼主| 发表于 2022-8-15 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068719&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-15 07:30</a>
+区区一个小冠军施舍给你雪碧了</blockquote>
+掀背，我们不要major冠军了，我们回家！
+
+*****
+
+####  Aeons  
+##### 11895#       发表于 2022-8-15 07:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">lgd一输司马假赛狗又出来了，还说不是（）
+
+*****
+
+####  ChristinaDU  
+##### 11896#       发表于 2022-8-15 07:32
+
+你们对集美论坛真是爱的深沉
+
+*****
+
+####  nerugigannte  
+##### 11897#       发表于 2022-8-15 07:32
+
+不许香槟不许香槟，相信掀背
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 11898#       发表于 2022-8-15 07:33
+
+加油加油 还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 11899#       发表于 2022-8-15 07:34
+
+笑死，刚到赛点假赛狗就收不住味了
+
+*****
+
+####  chilno  
+##### 11900#       发表于 2022-8-15 07:34
+
+施舍罢了
+
+*****
+
+####  沈淮  
+##### 11901#         楼主| 发表于 2022-8-15 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068744&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-15 07:33</a>
+加油加油 还有一把</blockquote>
+萨特还在现场吗，弄个牌子搞两下啊
+
+*****
+
+####  hcf220  
+##### 11902#       发表于 2022-8-15 07:35
+
+感觉杰出这段怒斥第二天要做切片了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chilno  
+##### 11903#       发表于 2022-8-15 07:35
+
+俄罗斯黑帮控制阿灵顿！
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 11904#       发表于 2022-8-15 07:35
+
+我的判断：
+
+1.大鞭哥今年状态极好，他和其他三号位的差距比去年更大，所以LGD目前如此强势
+
+2.LGD的45表现远不如去年
+
+3.LGD今年的比赛输赢从来和A÷没几毛钱关系，都是看莫言和鞭哥
+
+4.LGD一年大部分时候所谓“统治力”并不是因为他们5个人真的打的多好，是因为外国队距离TI太远的情况下普遍划水，练习量严重不足，根本无一战之力。国内俱乐部管理更严格，日常训练量有起码的保证
+
+5.到了今年TI赛场，LGD中单的优势将荡然无存，三号位的优势将缩小，45号位会变成有劣势的位置，一号位则将在烈日下暴露无遗
+
+*****
+
+####  miraclefans  
+##### 11905#       发表于 2022-8-15 07:36
+
+我都准备装死了，没想到雪碧又给希望了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  外挂全家脚气  
+##### 11906#       发表于 2022-8-15 07:36
+
+讲起来，茶打的3把感觉bp都压制了TS，对线期也是，纯粹是中间的决策失误让局势变了，是因为ts对茶没研究还是茶的bp和对线太猛？印象中茶不是以打线猛来赢的吧
+
+*****
+
+####  nerugigannte  
+##### 11907#       发表于 2022-8-15 07:37
+
+掀背眼角有泪！
+
+*****
+
+####  莉拉厨  
+##### 11908#       发表于 2022-8-15 07:37
+
+别急，输赢赢输输！他们会送的
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 11909#       发表于 2022-8-15 07:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">哦牛批，现在第二把也是废物娜迦bp输的了。
+
+*****
+
+####  walfeds  
+##### 11910#       发表于 2022-8-15 07:37
+
+相信掀背，在意雪碧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  12481632  
+##### 11911#       发表于 2022-8-15 07:38
+
+刚到公司就发现小娜迦有输了，相信掀背！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  izayoi39  
+##### 11912#       发表于 2022-8-15 07:38
+
+处长已经证明了这么多次他只能锦上添花，打4保1的核心就是送，下面八还是搁这里给他搭舞台
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白野苍衣  
+##### 11913#       发表于 2022-8-15 07:38
+
+我觉得应该是对茶没什么研究，对LGD就不一样了，知子莫若父嘛。
+
+*****
+
+####  蛭人  
+##### 11914#       发表于 2022-8-15 07:38
+
+再来把小娜迦呗，我还没看够啊。
+
+*****
+
+####  夏溪澪mio  
+##### 11915#       发表于 2022-8-15 07:39
+
+加油加油还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 11916#       发表于 2022-8-15 07:40
+
+chen就没赢过还要选啊
+
+*****
+
+####  沈淮  
+##### 11917#         楼主| 发表于 2022-8-15 07:40
+
+要选猴子了吧
+
