@@ -11339,3 +11339,40 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 
 虹：什么？我被踢出局了？还有这好事？<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2599#       发表于 2022-8-14 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就看完说了一句啊 给整PTSD了可还行
+
+*****
+
+####  Totokei  
+##### 2600#       发表于 2022-8-14 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这一集看得有点烦，跟群友吐槽的时候悟出来了
+
+这一集除了CEO疯狂车轱辘之外，其他8人除了堇和四季偶尔智商上线，剩余其他人的智商低得有点像民警在外面狂拍门喊不要转账但最后还是转账了的诈骗受害者<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 2601#       发表于 2022-8-14 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066147&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-8-14 23:28</a>
+
+这一集看得有点烦，跟群友吐槽的时候悟出来了
+
+这一集除了CEO疯狂车轱辘之外，其他8人除了堇和四季偶 ...</blockquote>
+都怪可可手机里没装反诈app
+
+*****
+
+####  ayara  
+##### 2602#       发表于 2022-8-14 23:30
+
+虽然裂啦之歌是恋恋和ceo的歌，但是恋恋全程基本只和狗互动，真就没cp啊
+
