@@ -2791,3 +2791,39 @@ TB这一波是开着变身死了，买活是没有大招的，那这一波应该
 越来越感觉nga是dota的圣地了</blockquote>
 已经是最高城了，直接贷款goat
 
+
+
+*****
+
+####  walfeds  
+##### 10817#       发表于 2022-8-14 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063977&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-14 20:43</a>
+
+冰片封路秒掉，想吃圣坛没门！（欢呼声传遍全场）老干爹稳下来了，很稳！OG有人T圣坛，有可能是最后一波团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">多发点，og粉爱看
+
+*****
+
+####  listenermy  
+##### 10818#       发表于 2022-8-14 21:27
+
+<img src="https://img.saraba1st.com/forum/202208/14/212722sc56zr5ub7i8zcuc.jpg" referrerpolicy="no-referrer">
+
+<strong>wx_camera_1660483391269.jpg</strong> (173.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 21:27 上传
+
+谁先输谁被喝
+
+*****
+
+####  Keynes  
+##### 10819#       发表于 2022-8-14 21:28
+
+没看过别的论坛，如果跟楼里描述的情况一样的话，那抛开饭圈思想来看，NGA应该属于就事论事大本营。
+
+脑瘫和节奏狗固然存在，但一般冒出头就会被群起攻之，大多数人还是能分得清是非对错。
+

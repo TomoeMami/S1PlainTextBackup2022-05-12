@@ -12828,3 +12828,12 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 说好得攒井呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次开始啊！！
 
+
+
+*****
+
+####  alucardcz  
+##### 1205#       发表于 2022-8-14 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这出星礼装好烦人啊？ 强行浪费时间
+

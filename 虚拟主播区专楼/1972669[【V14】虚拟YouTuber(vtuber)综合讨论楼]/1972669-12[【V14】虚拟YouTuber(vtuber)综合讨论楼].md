@@ -4959,3 +4959,37 @@ zsyl 九里神速不是上位打线，神速走远了
 
 但是比赛变得精彩起来了！
 
+
+
+*****
+
+####  Ketestrait  
+##### 16954#       发表于 2022-8-14 21:20
+
+卯月得威压感至少保住了不是本垒打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16955#       发表于 2022-8-14 21:21
+
+ 本帖最后由 alcoholic1000 于 2022-8-14 21:25 编辑 
+
+神速这个三连打太假了！不带这样的，严查knm后台是不是在改数据<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+inui！！！她安打好多
+
+*****
+
+####  Ketestrait  
+##### 16956#       发表于 2022-8-14 21:24
+
+赫高之柱高耸，神速该走远了
+
+*****
+
+####  高等黑暗  
+##### 16957#       发表于 2022-8-14 21:29
+
+LZ登基！
+
