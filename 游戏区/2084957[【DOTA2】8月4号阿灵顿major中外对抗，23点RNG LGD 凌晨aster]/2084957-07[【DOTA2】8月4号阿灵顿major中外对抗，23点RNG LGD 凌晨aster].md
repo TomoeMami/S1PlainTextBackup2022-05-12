@@ -11414,3 +11414,187 @@ ame这发型越看越脸熟，诶，这不是里克吗
 
 选剑圣不推塔，果然输了
 
+
+
+*****
+
+####  a1370303  
+##### 10401#       发表于 2022-8-14 09:41
+
+好呀好呀，热血刀塔是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 10402#       发表于 2022-8-14 09:41
+
+哭了哭了，不哭不是小樱花
+
+*****
+
+####  haruhiismer  
+##### 10403#       发表于 2022-8-14 09:41
+
+翻译太离谱了，是不是抓了一个当地预科的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 10404#       发表于 2022-8-14 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057299&amp;ptid=2084957" target="_blank">为了mf注册 发表于 2022-8-14 09:38</a>
+处长的打法已经被吹成现代dota了</blockquote>
+之前有一阵子不就是给么么鳖选 snk 船长这种<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 穿最硬的鳖壳 爱挨最毒的打
+
+*****
+
+####  沈淮  
+##### 10405#         楼主| 发表于 2022-8-14 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">monet这下集美了，之后输了应该不会被清算了吧
+
+*****
+
+####  ArowRocher  
+##### 10406#       发表于 2022-8-14 09:42
+
+要不把余韵叫来翻译吧<img src="https://p.sda1.dev/6/9b7d34cb9f2abd07898d8b6d967be75a/CMP_20220814094227992.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 10407#       发表于 2022-8-14 09:43
+
+这把鹏子的虚空真的挺好的，最后那波大电魂小尿了一下但靠着没尿的出装活下来了，这种压力局没尿裤，看好鹏子已经进化了
+
+*****
+
+####  中野四叶  
+##### 10408#       发表于 2022-8-14 09:43
+
+漂亮啊茶，今晚打TS加油啊
+
+*****
+
+####  lmslardar  
+##### 10409#       发表于 2022-8-14 09:43
+
+茶队不错好久没有决赛日两个中国队了，加油
+
+*****
+
+####  joker9527  
+##### 10410#       发表于 2022-8-14 09:44
+
+啊茶跌跌撞撞进了败绝啊，鬼鬼
+
+
+
+*****
+
+####  weige  
+##### 10411#       发表于 2022-8-14 09:44
+
+og失误太多，而且他们的阵容电棍不肥团战不好打，小鹿这种英雄后期没啥用
+
+*****
+
+####  nxmonitor  
+##### 10412#       发表于 2022-8-14 09:44
+
+这把虚空有好几波大放得有点坑，不过只能说至少比第二把不敢放的要好，还有就是跳的位置时机有点问题，很多时候明显是怂了，当然这可能是回家局操作变形……
+
+*****
+
+####  acejoe  
+##### 10413#       发表于 2022-8-14 09:44
+
+这把赢的点就是bp爆了，中期强势节奏却拉了，但是对面剑圣没法推塔，后面就正面打不过了。
+
+*****
+
+####  haruhiismer  
+##### 10414#       发表于 2022-8-14 09:45
+
+电棍不肥也能打atf虐菜冲惯了
+
+*****
+
+####  河水  
+##### 10415#       发表于 2022-8-14 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057356&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-8-14 09:44</a>
+这把赢的点就是bp爆了，中期强势节奏却拉了，但是对面剑圣没法推塔，后面就正面打不过了。 ...</blockquote>
+ceb吸得太过了，电魂是拆塔点，结果很穷
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pikamee  
+##### 10416#       发表于 2022-8-14 09:46
+
+拱进决赛日，超超超预期了
+
+*****
+
+####  我爱撩菜  
+##### 10417#       发表于 2022-8-14 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有没有人截图一下所有场外观众的图片啊
+
+期待一下阿茶打TS
+
+*****
+
+####  nxmonitor  
+##### 10418#       发表于 2022-8-14 09:47
+
+OG输掉BP要占很大一部分，顶着冰龙选剑圣等于把压力全放puck身上，然后ceb抢钱要占另一部分，这小鹿怎么出装备都是被宙斯秒，电魂要是更肥一点要好很多……
+
+*****
+
+####  nxmonitor  
+##### 10419#       发表于 2022-8-14 09:48
+
+皮球的冰龙玩得确实好，估计TS不会放出来的，还是和前面打茶一样冰龙戴泽都ban掉……
+
+*****
+
+####  百世诸侯  
+##### 10420#       发表于 2022-8-14 09:49
+
+这把OG想的是海民加小鹿把中游烂早早推塔然后扫图，但是ORI前期单杀提早到6大招杀下路蝴蝶效应导致OG的计划功亏一篑了，尽管如此OG阵容最多的时候也能领先4K，只能说真的很走钢丝
+
+*****
+
+####  希望之花  
+##### 10421#       发表于 2022-8-14 09:49
+
+ceb吃资源出关键装但是被抓了两次没买活很伤
+
+*****
+
+####  ArowRocher  
+##### 10422#       发表于 2022-8-14 09:49
+
+好像只有fnc和OG人员齐整反而是削弱吧。
+
+但这把的ceb我觉得也有点问题
+
+*****
+
+####  usoda  
+##### 10423#       发表于 2022-8-14 09:49
+
+我感觉OG这光头可能被干瘪把心态打炸了……各种离奇的走位和技能释放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 赶紧调整一下呀
+
+*****
+
+####  香蕉芭菲  
+##### 10424#       发表于 2022-8-14 09:50
+
+冰龙后面其实打得一般，很容易被找到。这个小强值得吹一下，每次搞到剑圣没蓝，好恶心（称赞）
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

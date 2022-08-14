@@ -10193,3 +10193,35 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 随便试了下，武藏真就硬生生被完爆，闪避跟战续又吹不起来，太惨了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 958#       发表于 2022-8-14 09:41
+
+这尼玛的，泳装有出过这么离谱的卡没有？要是rba是比蓝莓强的拐，这期泳装还不上天了？
+
+*****
+
+####  onemoment  
+##### 959#       发表于 2022-8-14 09:44
+
+什么伊吹很强，那接着抽试试看，感觉要被制裁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 960#       发表于 2022-8-14 09:44
+
+乘区给足 充电不跟伤害绑定 宝具前置防御解除还带地特攻 这厨力放出过头了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  壳壳牛  
+##### 961#       发表于 2022-8-14 09:46
+
+艹...刚给武藏补了2宝...
+
