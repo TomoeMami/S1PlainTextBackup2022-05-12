@@ -12234,3 +12234,72 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 要想看不放飞自我的你去找挖个雷啊，在FGO说越来越放飞也太乐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 1148#       发表于 2022-8-14 18:15
+
+自动档那不是给自己挽尊的吗，人红卡爆速过本不比在这儿搓前置技能快
+
+赖光不管枪阶狂阶都是时代眼泪了，现在扯摩根狂那的时候也没见他们怀念过几次
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 1149#       发表于 2022-8-14 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061128&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 16:19</a>
+
+本质跟卡面没有一丝关系 根据我观察 隔壁不少都是石头号5宝那谁入坑的（ ...</blockquote>
+在隔壁论坛，一个武藏，一个伊吹，都是直接黑一堆人点赞的。
+
+换一些别的角色，我也不好说是哪些角色，怕不是套餐就来了。
+
+*****
+
+####  Jamaisvu  
+##### 1150#       发表于 2022-8-14 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062218&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 18:07</a>
+
+自信点，实装这套是最差的，还不如小乙哥和医神，自身卡面还被满破上铺的兄弟吊打，看了新的两个立绘我就 ...</blockquote>
+那次咕哒咕哒活动最伤人的就是官方明确表示NPC不会实装，明明高杉晋助和明智光秀立绘都有两套了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+不过TAKOLEGS之后也单独负责了一个五星曲亭马琴，算是成功登月了。
+
+就是他画的这两人我总是不约而同地幻视成妖狐藏马<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1151#       发表于 2022-8-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062327&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-14 18:16</a>
+
+在隔壁论坛，一个武藏，一个伊吹，都是直接黑一堆人点赞的。
+
+换一些别的角色，我也不好说是哪些角色，怕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会这样呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">话说我当年说不邢这下死刑了 然后被封了 理由引战
+
+*****
+
+####  sosgame67  
+##### 1152#       发表于 2022-8-14 18:18
+
+nga口上喊着反对账号交易，实际对5宝宇宙凛那种狂热吹捧你说没有号贩子推波助澜我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1153#       发表于 2022-8-14 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062356&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-14 18:18</a>
+
+nga口上喊着反对账号交易，实际对5宝宇宙凛那种狂热吹捧你说没有号贩子推波助澜我是不信的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂不懂什么叫双标  那种石头号 而且还是带拐的石头号 你说算不算账号交易（
+

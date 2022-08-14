@@ -2256,3 +2256,16 @@ blade是个什么东西</blockquote>
 打到结局本来还有点小感动，结果被一张照片给惊呆了，什么世界分离全都不重要了，我想在只想知道雷 ...</blockquote>
 是的，说明其实大家都误解了现在还有大家这个名场面，他说的就是口头上的意思不是什么高情商婉拒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 200#       发表于 2022-8-14 18:15
+
+当年看雷老板说还有大家那里，一直没什么感觉
+你们都没看过青山刚昌的剑勇么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不一样的桥段么
+从xb2最后的标题画面就是走后宫路子嘛，虽然xb3直球照片还是吓了我一跳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
