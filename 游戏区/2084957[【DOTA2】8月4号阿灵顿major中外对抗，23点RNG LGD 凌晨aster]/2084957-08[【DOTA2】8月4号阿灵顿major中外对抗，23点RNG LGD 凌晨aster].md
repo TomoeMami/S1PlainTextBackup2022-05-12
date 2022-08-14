@@ -2155,3 +2155,51 @@ nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长�
 
 许愿马西泳装饰品
 
+
+
+*****
+
+####  Yukino-Yukino  
+##### 10742#       发表于 2022-8-14 17:35
+
+<img src="https://img.saraba1st.com/forum/202208/14/173441tm9foirb5ozsslah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 17:34 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/173526rz4auyup2xqf2a9p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 17:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死，官方真视界预告片下面的精选评论。
+
+*****
+
+####  尸体鲨  
+##### 10743#       发表于 2022-8-14 17:38
+
+逆风起跳方显英雄本色，这不会真是徐林森小号吧
+
+*****
+
+####  沈淮  
+##### 10744#         楼主| 发表于 2022-8-14 17:39
+
+已经截图发给莫奈特了
+
+<img src="https://p.sda1.dev/6/a06722b8479403ce1189920abbfda28b/CMP_20220814173931900.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 10745#       发表于 2022-8-14 17:40
+
+司马懿car怎么可能是徐五木小号。
+
