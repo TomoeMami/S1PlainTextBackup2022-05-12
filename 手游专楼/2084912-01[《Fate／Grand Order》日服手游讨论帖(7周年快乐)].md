@@ -11229,3 +11229,36 @@ raita从奶光开始一直被畸形党婊到现在，他唯一一个没被挑刺
 </blockquote>
 艹，太有病了
 
+
+
+*****
+
+####  exiaexa  
+##### 1054#       发表于 2022-8-14 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059187&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 12:33</a>
+
+艹，太有病了</blockquote>
+对喷的贴没了
+
+但是你现在用奶光+瘦当关键词还能搜到一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1055#       发表于 2022-8-14 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058676&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:49</a>
+
+对了 忘记了 欧羡慕 欧皇今年new的5星至少是本非萌的3倍多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年八个月总共八个五星 七个NEW也就一般亚洲人水平 完全当不起欧皇
+
+*****
+
+####  lovereign  
+##### 1056#       发表于 2022-8-14 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主回坑的  公主600石3宝  蓝莓500石1宝    伊吹2000石头下去3个5星伊吹2宝  
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来还有尺BBA  会发生什么我都不敢想
+

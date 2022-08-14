@@ -1504,3 +1504,48 @@ atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</b
 
 除了立场之外还有很多程度有差异的，漏油还是要全面看待问题，不要搞那种庸俗的本质主义讲说到底一切都是XX问题。实际自己认真观察下两个群体生态就知道这里面有丰富的面向差异，而且同样是essential的
 
+
+
+*****
+
+####  tengshuo980  
+##### 10668#       发表于 2022-8-14 12:40
+
+后天比赛结束就该出本子了吧，希望是ti10那种大本子，去年那两个纯纯骗傻子钱，缩水太多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  修罗王  
+##### 10669#       发表于 2022-8-14 12:41
+
+ame斗鱼粉丝牌一开始还是atme呢，打的菜的一笔还能吹心态好是没想到，跟集美一个德行
+
+*****
+
+####  反方向的波  
+##### 10670#       发表于 2022-8-14 12:44
+
+<img src="https://p.sda1.dev/6/e6ce342be130cb21a0446c0f6c05ec88/CMP_20220814123810408.jpg" referrerpolicy="no-referrer">
+懒狗v在pv里给张睿达的拧绳配这个镜头比楼友坏多了
+
+*****
+
+####  BallanceHZ  
+##### 10671#       发表于 2022-8-14 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059263&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-14 12:38</a>
+除了立场之外还有很多程度有差异的，漏油还是要全面看待问题，不要搞那种庸俗的本质主义讲说到底一切都是XX ...</blockquote>
+问群号和说水军不是一个意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 10672#       发表于 2022-8-14 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059335&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-14 12:46</a>
+
+问群号和说水军不是一个意思吗</blockquote>
+是啊。所以有人会觉得你是收钱办事么。
+
