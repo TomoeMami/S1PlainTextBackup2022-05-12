@@ -10506,3 +10506,54 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 以后宝具本加个前置灼烧就行，剧情就说是武则天教的</blockquote>
 请君入瓮是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 991#       发表于 2022-8-14 10:42
+
+认为强度和复刻难不难挂钩就是很没有逻辑啊，何况复刻难本来就是伪命题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 992#       发表于 2022-8-14 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057813&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-14 10:24</a>
+
+武则天变大了但声线好像还是萝莉的，就有点装嫩的感觉，紫色BBA（误）
+
+宝具和三技能都有赋予死灵特性（ ...</blockquote>
+3技能不是赋予死灵，是晕对方死灵一回合，只能靠宝具上死灵特性
+
+*****
+
+####  Jamaisvu  
+##### 993#       发表于 2022-8-14 10:45
+
+突然感觉压轴的泳装斯卡蒂一定很强...暂且先观望一下，反正三个卡池都到8.31才管呢，伊吹这个点出有骗氪嫌疑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（70抽一个金卡也没有，开始怀疑人生<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  rooarr  
+##### 994#       发表于 2022-8-14 10:47
+
+1宝试了下伤害不算太高，单体11万这样，fgo这种低宝不好用的游戏好坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 995#       发表于 2022-8-14 10:47
+
+放后面也不一定强啊，忘了泳装阿比吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大巨傻  
+##### 996#       发表于 2022-8-14 10:49
+
+没法充值之后不舍得扔石头了
+

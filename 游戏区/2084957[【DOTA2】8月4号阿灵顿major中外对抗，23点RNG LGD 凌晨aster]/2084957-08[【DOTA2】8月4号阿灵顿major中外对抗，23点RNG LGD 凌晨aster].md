@@ -262,3 +262,96 @@ arise tk→ ponlo
 参考当年dac嘛</blockquote>
 所以这个冠军准备要占据nga版面10年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 10533#       发表于 2022-8-14 10:41
+
+所以现在有人说不同意杰出观点就要被集美开团，真励志啊
+
+*****
+
+####  Litccc  
+##### 10534#       发表于 2022-8-14 10:41
+
+鳖尬黑，清真鲈鱼怕被集美清算早就换下来了
+
+*****
+
+####  nxmonitor  
+##### 10535#       发表于 2022-8-14 10:42
+
+茶今天打TS就看没了戴泽冰龙怎么玩，五号位英雄池有点问题，第二把输掉本身就是让boboka强行拿陈导致的，自己没了节奏不说本身熟练度也一般……
+
+*****
+
+####  百世诸侯  
+##### 10536#       发表于 2022-8-14 10:42
+
+哇，真恶心啊，看到有人说什么xxs，33，鞭并列世界第一酒仙，听说过yyf吗，懂又不懂啊
+
+*****
+
+####  izayoi39  
+##### 10537#       发表于 2022-8-14 10:43
+
+ori去年第一major还好，起码在打紫猫帕克的均势对线，从第二个major开始vg把把给他扔个要带节奏的劣势对线中单，这种对线打多人不被打废才怪了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  超法拉  
+##### 10538#       发表于 2022-8-14 10:43
+
+不过说真的，要是真能会师决赛的话还是挺高兴的
+国际大赛印象里上次好像还是ti5周期vg打ig那个sl吧，后面还有决赛是拆你死内战的嘛
+
+*****
+
+####  掉头学姐  
+##### 10539#       发表于 2022-8-14 10:44
+
+sger还是最恨杰出啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，而且今天这蹭铺垫了很久了，讲真多夸夸鹏子，希望今年挤掉处长
+
+*****
+
+####  天堂蜘蛛  
+##### 10540#       发表于 2022-8-14 10:45
+
+老11每年救火的表现都很好啊
+
+TI7在老干瘪，TI9在KG，TI10在老干瘪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 10541#       发表于 2022-8-14 10:46
+
+杰出虽然干很多年了，但心态不稳，第一次被架这么高，很容易有一天跟大众观点不一样被NGA人人喊打的。
+
+说他蹭就属于廉价的动机攻击了。
+
+*****
+
+####  天堂蜘蛛  
+##### 10542#       发表于 2022-8-14 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058062&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-14 10:46</a>
+
+杰出虽然干很多年了，但心态不稳，第一次被架这么高，很容易有一天跟大众观点不一样被NGA人人喊打的。
+
+说 ...</blockquote>
+被Lowga人人喊打的又不差他一个
+
+得罪过集美的人太多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  w2210059  
+##### 10543#       发表于 2022-8-14 10:50
+
+他现在起跳太早了，如果能抱住ti冠军的大腿就可以高枕无忧了，例如鲸鱼抱库里
+
