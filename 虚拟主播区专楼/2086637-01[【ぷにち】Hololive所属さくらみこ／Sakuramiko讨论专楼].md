@@ -832,3 +832,24 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 
 应该是回家了但是还没告知直播，看样子在调整频道主页的东西，把近期直播栏隐藏了
 
+
+
+*****
+
+####  rs5621  
+##### 73#       发表于 2022-8-14 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061587&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-14 17:06</a>
+
+实际上现在有统计的Fanart，七字母的FA总量已经超过八字母这三年的总量了</blockquote>
+确实,目前还画八字母的屈指可数,指不定哪天画其他cp去了.<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Scardy  
+##### 74#       发表于 2022-8-14 17:30
+
+翻唱曲的播放量不要碰瓷原创曲✋
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2235,3 +2235,12 @@ blade是个什么东西
 blade是个什么东西</blockquote>
 虽然没说，但指的就是始源之剑/终之剑
 
+
+
+*****
+
+####  Caa  
+##### 198#       发表于 2022-8-14 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打到结局本来还有点小感动，结果被一张照片给惊呆了，什么世界分离全都不重要了，我想在只想知道雷老板这是说到做到了？
+

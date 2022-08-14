@@ -12141,3 +12141,21 @@ RBA求求你千万不要是打手
 3技能1面开了  2面回收很稳 你怎么回事</blockquote>
 就是第一次没开三技能，所以第三面卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 1140#       发表于 2022-8-14 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">亚瑟同志是不是差点就能让活动结束了
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 1141#       发表于 2022-8-14 17:26
+
+水武后还真是僵尸术士啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
