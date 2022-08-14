@@ -12970,3 +12970,28 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 梅莉沉了后今天再登录，这水伊吹对味啊，看了技能组更对了(。补了一单抽了一宝血赚，现在就求rba别太破格了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1219#       发表于 2022-8-15 00:11
+
+ 本帖最后由 霧谷藤乃 于 2022-8-15 00:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066635&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 00:06</a>
+
+现在这种石头号不是拐都齐的吗。。。差距就是你肯不肯给钱（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以我去年买号经验，拐齐还有大量石头的，不常见（当然价格不低
+
+不过仔细想想，也许环境变了，当时没啥石头的好像基本都是什么拐齐五宝仇凛号（……
+
+*****
+
+####  alucardcz  
+##### 1220#       发表于 2022-8-15 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066689&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 00:11</a>
+
+以我去年买号经验，拐齐还有大量石头的，不常见（当然价格不低</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 该重新买号了
+
