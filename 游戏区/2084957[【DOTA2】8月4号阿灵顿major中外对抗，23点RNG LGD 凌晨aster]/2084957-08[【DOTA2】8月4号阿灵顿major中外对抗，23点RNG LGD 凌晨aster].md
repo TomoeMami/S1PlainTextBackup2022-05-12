@@ -897,3 +897,145 @@ nga不玩假赛这一出现在粪坑no1还是sg
 
 EMO那个问号真是有种少年意气的感觉，一想到他当时满脑子狗仗人势就更少年意气了
 
+
+
+*****
+
+####  何然  
+##### 10603#       发表于 2022-8-14 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">看到截图还有现场举梓瑟❤牌子的，是加个xincute的三人cp吗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 尸体鲨| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  walfeds  
+##### 10604#       发表于 2022-8-14 11:41
+
+文爱胖子<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">不懂女人审美
+建议把ceb年轻时嫩出水的照片发过去看看评价
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名字不乱取  
+##### 10605#       发表于 2022-8-14 11:41
+
+emo把卡猴踹了直接滚到a级我一直没想通<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 10606#       发表于 2022-8-14 11:43
+
+消息来源SG：么么鳖不善言辞，是靠文爱胖子代打才撩到阿梓的，两人线下solo时阿梓最困惑的就是么么鳖怎么线上线下截然不同
+
+*****
+
+####  walfeds  
+##### 10607#       发表于 2022-8-14 11:43
+
+oke仔看不起卡猴是真把自己当一号人物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 10608#       发表于 2022-8-14 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058587&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-14 11:39</a>
+
+EMO那个问号真是有种少年意气的感觉，一想到他当时满脑子狗仗人势就更少年意气了 ...</blockquote>
+他自己直播都说自己是狗仗人势的，好像是被谁打赏急了
+
+*****
+
+####  尸体鲨  
+##### 10609#       发表于 2022-8-14 11:45
+
+emo大神黑暗兵法踢了卡卡换来向徐总雪中送炭的机会，懂又不懂啊
+
+*****
+
+####  Litccc  
+##### 10610#       发表于 2022-8-14 11:46
+
+清茶居然把tk踢了，这兄弟不是挺厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 10611#       发表于 2022-8-14 11:46
+
+从第二个dpc开始，a畜肉眼可见的辣好吧，基本上和甩了滚球兽找阿梓是同一时间。
+
+*****
+
+####  CNFH1984  
+##### 10612#       发表于 2022-8-14 11:46
+
+kaka是真可惜了，如果kaka还在ig磨合，ig这一届虽然说不一定能有多好成绩，直邀应该还是挣得到的。
+
+fade再一次证明了自己不如kaka
+
+*****
+
+####  尸体鲨  
+##### 10613#       发表于 2022-8-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058638&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-14 11:44</a>
+他自己直播都说自己是狗仗人势的，好像是被谁打赏急了</blockquote>
+被4还是5不记得了，好像不是床神
+
+*****
+
+####  thistimeforlife  
+##### 10614#       发表于 2022-8-14 11:47
+
+有啥办法呢，茶队上下确实都不怎么基德<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+但鳖茶刚送了一个同样不基德但就是历史第一的战队回家。
+而各方面更不基德的老干瘪，不管我怎么讨厌它，仍然是ti8以来ti战绩和综合成绩最好的cn队。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 10615#       发表于 2022-8-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058649&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 11:46</a>
+
+从第二个dpc开始，a畜肉眼可见的辣好吧，基本上和甩了滚球兽找阿梓是同一时间。 ...</blockquote>
+分手是在年前
+
+*****
+
+####  walfeds  
+##### 10616#       发表于 2022-8-14 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058561&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-14 11:36</a>
+atf有新一代约旦鳖那味了，瞎浪瞎冲嗯送</blockquote>
+想了想建议送到ppy手下拷打两年收收筋骨<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  何然  
+##### 10617#       发表于 2022-8-14 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说女人审美，看看xincute那喷图有多少队在用，这就是硬实力好吗
+

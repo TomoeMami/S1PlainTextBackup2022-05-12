@@ -10935,3 +10935,57 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我c呆还没cba羁绊高 cba用的时间长多了
 
+
+
+*****
+
+####  alucardcz  
+##### 1030#       发表于 2022-8-14 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去隔壁看了看居然腥风血雨了？？ 咋回事  
+
+*****
+
+####  qixinno2  
+##### 1031#       发表于 2022-8-14 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058618&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:42</a>
+
+去隔壁看了看居然腥风血雨了？？ 咋回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计又是狂仇大战吧
+
+*****
+
+####  空气蛹  
+##### 1032#       发表于 2022-8-14 11:47
+
+转生日服好久了还没加满，漏油能加下好友mua<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+989,537,495
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  angelooo  
+##### 1033#       发表于 2022-8-14 11:48
+
+<blockquote>alucardcz 发表于 2022-8-14 11:42
+去隔壁看了看居然腥风血雨了？？ 咋回事</blockquote>
+隔壁这几天天天腥风血雨
+
+就我看到的，国服奥伯龙落地后跑进来一群不知道是弱智还是官托的，让人把奥伯龙当泛用打手抽高宝，于是出现了一堆让奥伯龙打下三本然后上论坛吐槽逆克制伤害不够的奇葩
+
+然后是昨天泳装剧情水莉莉丝和太岁，一群ML党继续破防
+
+最后就是今天，伊吹落地强度上天，一帮人崩溃了，毕竟这位女士本来也没啥厨力，然后一帮人受不了这卡这么强开始各种疯狂挑刺，比如我刚看到一个神论说她模组宝具不行，怀疑本来只有四星的水平，给我笑死了
+
+*****
+
+####  alucardcz  
+##### 1034#       发表于 2022-8-14 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058624&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:43</a>
+
+估计又是狂仇大战吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了 忘记了 欧羡慕 欧皇今年new的5星至少是本非萌的3倍多了
+
