@@ -11537,3 +11537,39 @@ RBA求求你千万不要是打手
 
 这次你们拉了，我倒是中了个特别离谱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acuman  
+##### 1084#       发表于 2022-8-14 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059074&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 12:20</a>
+
+你在说什么，你先告诉我你从啥时候开始玩这破游戏的，不然这天没法聊了</blockquote>
+？奶光被很多人喷气球奶和 她广受欢迎 有矛盾吗？
+
+广受欢迎，喜欢的人够多就行了，又不是所有人都喜欢
+
+奶光要都不能算广受欢迎了，雷太还有卡比奶光人气高？
+
+*****
+
+####  alucardcz  
+##### 1085#       发表于 2022-8-14 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059728&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 13:28</a>
+
+隔壁这壮观场面，我真希望以后落地一个苍月画的五星，如果是打手水平媲美伊吹，如果是拐水平媲美c呆和奥伯 ...</blockquote><blockquote>水伊吹争论这么大是不是和卡面有关系</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个大拐必须请苍月
+
+*****
+
+####  angelooo  
+##### 1086#       发表于 2022-8-14 14:49
+
+<blockquote>alucardcz 发表于 2022-8-14 14:46
+下个大拐必须请苍月</blockquote>
+快，我要看到隔壁连服务器都杀穿了23333
+
