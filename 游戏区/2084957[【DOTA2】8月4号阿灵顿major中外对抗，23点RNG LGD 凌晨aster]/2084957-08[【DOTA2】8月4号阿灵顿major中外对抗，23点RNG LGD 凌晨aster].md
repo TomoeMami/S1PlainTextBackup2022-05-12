@@ -2994,3 +2994,97 @@ ts上去脑东京肯定尿漫阿林顿，鳖茶上去真有处刑a畜的可能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么都在指望茶队，还不如指望下雪碧呢
 
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 10841#       发表于 2022-8-14 22:00
+
+昨天在现场举鸡哥害群的马的牌子，漏油门帮我想想今天举什么
+
+*****
+
+####  恐怖利刃  
+##### 10842#       发表于 2022-8-14 22:01
+
+<img src="https://img.saraba1st.com/forum/202208/14/220055h4zjo6f2829w6298.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E1E500E6-BBCD-40D9-AD33-1D5DD22254B3.jpeg</strong> (857.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:00 上传
+
+*****
+
+####  tengshuo980  
+##### 10843#       发表于 2022-8-14 22:02
+
+萨特我砍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜光铃  
+##### 10844#       发表于 2022-8-14 22:02
+
+茶队这bo3细节打的粗糙无比，真的打的过雪碧这种吗
+
+*****
+
+####  Litccc  
+##### 10845#       发表于 2022-8-14 22:02
+
+萨特抱团了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 10846#       发表于 2022-8-14 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065044&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-14 22:00</a>
+
+昨天在现场举鸡哥害群的马的牌子，漏油门帮我想想今天举什么</blockquote>
+萨特是你吗，我砍
+
+*****
+
+####  rubicon  
+##### 10847#       发表于 2022-8-14 22:03
+
+萨特我砍
+
+*****
+
+####  战狼PTSD  
+##### 10848#       发表于 2022-8-14 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">TB果然是萨特
+
+言简意赅的梗不多啊，真想不到
+
+*****
+
+####  thistimeforlife  
+##### 10849#       发表于 2022-8-14 22:08
+
+<img src="https://img.saraba1st.com/forum/202208/14/220728nntdkyukq434bd7j.jpg" referrerpolicy="no-referrer">
+
+<strong>鳖星1.jpg</strong> (98.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/220732lu4z9u1q9d9dawha.jpg" referrerpolicy="no-referrer">
+
+<strong>雪碧1.jpg</strong> (35.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:07 上传
+
+道理很简单 因为鳖星今年好歹赢过<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
