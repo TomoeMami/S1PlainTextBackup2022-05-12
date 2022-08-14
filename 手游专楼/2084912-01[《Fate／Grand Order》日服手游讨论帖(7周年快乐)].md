@@ -12113,3 +12113,31 @@ RBA求求你千万不要是打手
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦 没注意银礼装有5%蓝放  换成冰块礼装了  3万3万15万98。  但是第2面还是很稳的回满
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦不对 这次还有特攻 算了当我没说
 
+
+
+*****
+
+####  qb0079  
+##### 1137#       发表于 2022-8-14 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">僵尸酒吞 能不能来个灵衣，虽然我没酒吞
+
+*****
+
+####  areklose  
+##### 1138#       发表于 2022-8-14 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061667&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-14 17:14</a>
+
+僵尸酒吞 能不能来个灵衣，虽然我没酒吞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然挺好看。但我觉得不如偶像活动那个
+
+*****
+
+####  kiralzb  
+##### 1139#       发表于 2022-8-14 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061538&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 17:02</a>
+3技能1面开了  2面回收很稳 你怎么回事</blockquote>
+就是第一次没开三技能，所以第三面卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
