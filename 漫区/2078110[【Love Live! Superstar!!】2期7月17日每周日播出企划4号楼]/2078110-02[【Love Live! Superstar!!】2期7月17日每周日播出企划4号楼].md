@@ -10874,3 +10874,100 @@ ceo有小心思，搞分组了不过是暂时的。结束了八成又会是九�
 没看生肉，翻了下帖，感觉有点复杂，有哪位老哥能简单说一说这集是个啥剧情 ...</blockquote>
 极简版：CEO当p，暂时年级分组
 
+
+
+*****
+
+####  lj205  
+##### 2552#       发表于 2022-8-14 18:53
+
+那么坚持9人是不是跟我们说后面不加入了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2553#       发表于 2022-8-14 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062733&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-14 18:47</a>
+这都算轻的了…………哎……我看到楼上老兄截图就想问花田是不是中国人惹了他哪？这么拼命黑可可 ...</blockquote>
+我就是觉得既然让可可说出校园偶像中「9」是绝对的数字，那你官方搞个屁的二期才加人！？<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 2554#       发表于 2022-8-14 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062813&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-14 18:53</a>
+
+那么坚持9人是不是跟我们说后面不加入了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再加再编新词儿呗，这我都能编：
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">12人是校园偶像迈出的新一步.）我们怎么能自我满足呢
+恋：我要继承我妈的遗志blabla
+
+*****
+
+####  ViyViy  
+##### 2555#       发表于 2022-8-14 18:56
+
+我也觉得奇怪，而且也不像千歌那样是对缪憧憬才纠结9的，拉可可进坑的可是snp，那就2人，这时候强调9，花田是真的不知道该怎么解释了吧，虽然这种都是可以忽视的小细节，但还是没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 2556#       发表于 2022-8-14 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹：不是,,,算了，我不好说
+
+*****
+
+####  寒风夜  
+##### 2557#       发表于 2022-8-14 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062845&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-14 18:56</a>
+
+我也觉得奇怪，而且也不像千歌那样是对缪憧憬才纠结9的，拉可可进坑的可是snp，那就2人，这时候强调9，花田 ...</blockquote>
+被企划遥控了
+
+*****
+
+####  离心  
+##### 2558#       发表于 2022-8-14 18:58
+
+<blockquote>aoaoaodedede 发表于 2022-8-14 18:49
+没看生肉，翻了下帖，感觉有点复杂，有哪位老哥能简单说一说这集是个啥剧情 ...</blockquote>
+用我n114日语看的情况是ceo苦恼自己播放数上不去，赚不了钱，在学校知道了liella很火觉得可以利用来赚钱，于是主动找到了她们想要成为她们的制作人。一段时间后被堇发现她的目的不纯，逃走。ceo似乎发现了什么并且自己也有小心思，劝说了一年级和二年级在暑假的时候分开。大概就这么多
+
+*****
+
+####  JustW_3  
+##### 2559#       发表于 2022-8-14 18:59
+
+ceo看出liella目前的问题后想从中取利吧，搞小团体（）如果分组后都能变成香音拉ceo进团，那编剧也是过于执着了
+
+*****
+
+####  中野四葉  
+##### 2560#       发表于 2022-8-14 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 2561#       发表于 2022-8-14 19:01
+
+虹不参加Lovelvie所以不被当作传说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在这么强调9人，一季那些全新系列只有5人的创新之类宣传全都变成小丑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2562#       发表于 2022-8-14 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062865&amp;ptid=2078110" target="_blank">离心 发表于 2022-8-14 18:58</a>
+用我n114日语看的情况是ceo苦恼自己播放数上不去，赚不了钱，在学校知道了liella很火觉得可以利用来赚钱， ...</blockquote>
+谢了，这么看剧情就有点离谱了…
+还是等看了熟肉再说…
+

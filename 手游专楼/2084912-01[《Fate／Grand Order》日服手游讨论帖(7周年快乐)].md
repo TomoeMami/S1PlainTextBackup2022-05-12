@@ -12469,3 +12469,134 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 我一般一边看片一边刷 他们推荐的队伍太难了 一个不小心就寄了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信不信明年非好友宝具也能用后，分不清好友非好友，他们喷的更厉害
 
+
+
+*****
+
+####  alucardcz  
+##### 1170#       发表于 2022-8-14 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062719&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-14 18:45</a>
+
+你信不信明年非好友宝具也能用后，分不清好友非好友，他们喷的更厉害 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这没什么影响吧 不是应该更方便瓢人了
+
+
+
+*****
+
+####  kiralzb  
+##### 1171#       发表于 2022-8-14 18:51
+
+水伊吹试用给5宝确实目的性拉满，然后伤害也确实好看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有燕青对啦啦队的感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1172#       发表于 2022-8-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062784&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-14 18:51</a>
+
+水伊吹试用给5宝确实目的性拉满，然后伤害也确实好看
+
+还有燕青对啦啦队的感想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还自带倍卡
+
+*****
+
+####  kiralzb  
+##### 1173#       发表于 2022-8-14 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062793&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 18:51</a>
+还自带倍卡</blockquote>
+那个反而没满破，不如我的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芭德薇  
+##### 1174#       发表于 2022-8-14 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062784&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-14 18:51</a>
+
+水伊吹试用给5宝确实目的性拉满，然后伤害也确实好看
+
+还有燕青对啦啦队的感想 ...</blockquote>
+直接一面6个怪笑死，一个宝具下去回了246np，真就硬捧……
+
+*****
+
+####  保罗赫伯特  
+##### 1175#       发表于 2022-8-14 18:54
+
+把信盛满破了，只给一个金方块，没石头。不应该啊，又不是活动赠送从者，好歹也是要从友情池里抽的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按这个标准，古生物学家满破也是不送石头的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 1176#       发表于 2022-8-14 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062719&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-14 18:45</a>
+
+你信不信明年非好友宝具也能用后，分不清好友非好友，他们喷的更厉害 ...</blockquote>
+不都是认角色和礼装么，没影响吧，反而能开宝具之后影响更小了（虽然这个意义不大）。
+
+*****
+
+####  kiralzb  
+##### 1177#       发表于 2022-8-14 18:55
+
+助战终于见到满凸的巴姐，马上加了好友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1178#       发表于 2022-8-14 18:55
+
+隔壁撕了一通觉得自己是个傻逼，那边可是有人把奥伯龙当泛用打手抽高宝去打下三发现伤害不行然后吐槽奥伯龙不行的，那可是隔壁“厨力”最高的卡之一了都是这待遇23333
+
+*****
+
+####  exiaexa  
+##### 1179#       发表于 2022-8-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062824&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-14 18:55</a>
+
+助战终于见到满凸的巴姐，马上加了好友</blockquote>
+巴姐不是第一天就满破了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1180#       发表于 2022-8-14 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062834&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 18:55</a>
+
+巴姐不是第一天就满破了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 我4张
+
+*****
+
+####  qb0079  
+##### 1181#       发表于 2022-8-14 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062780&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 18:50</a>
+
+这没什么影响吧 不是应该更方便瓢人了</blockquote>
+因为更不可控了，他们现在的做法是把技能礼装不和自己喜好的好友全踢了，这样无脑选助战就是了
+
+而可以用非好友宝具后，这个界限就会很模糊，很容易嫖到非好友，遇见不点技能不点被动的概率就会很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 1182#       发表于 2022-8-14 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062821&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-14 18:54</a>
+
+不都是认角色和礼装么，没影响吧，反而能开宝具之后影响更小了（虽然这个意义不大）。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不点技能被动之类的啊，那群人选助战又不会仔细看，不然也不会抱怨选到好友助战不满技能，然后气到直接删好友
+
