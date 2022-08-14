@@ -5104,3 +5104,12 @@ https://twitter.com/midori_2434/status/1558815719449853952?s=20&amp;t=cE05t4rRVm
 
 竟然有莎小姐<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16969#       发表于 2022-8-14 22:36
+
+看着郡道在大片的虹甲感言推特里大聊特聊one peace电影感想有些好笑，这最新一个推“にじさんじ個人勢です”蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

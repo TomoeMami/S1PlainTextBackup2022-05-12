@@ -11261,3 +11261,16 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 
 写的不好就骂，写的好就夸，这集已经不错了，就不要车过去了，不仅自己累爬楼的人也累
 
+
+
+*****
+
+####  仟音一心  
+##### 2591#       发表于 2022-8-14 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065205&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-14 22:13</a>
+假面骑士里挺常见的w
+
+不过还是挺怪的，按剧中设定，小不点也快到寿终正寝的时候了。</blockquote>
+你看下MV就知道很难不让人想到某些知名恶心人的梗。
+

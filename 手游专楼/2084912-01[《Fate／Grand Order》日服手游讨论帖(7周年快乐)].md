@@ -12871,3 +12871,12 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这巴姐就是不掉。真的要等点数给吗
 
+
+
+*****
+
+####  砂糖方块  
+##### 1209#       发表于 2022-8-14 22:32
+
+好几次抽卡都是氪金礼装4=1了，逼死强迫症啊
+
