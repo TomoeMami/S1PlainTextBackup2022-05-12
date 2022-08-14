@@ -4752,3 +4752,19 @@ Enna: Mom is like so freaking tall <img src="https://static.saraba1st.com/image/
 
 可以提前宣布牛姨寄了，安洁的诅咒生效吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16932#       发表于 2022-8-14 17:42
+
+Manami这次表现都很出彩呢，但提前安洁咒。明年多个梗可以玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16933#       发表于 2022-8-14 17:49
+
+楼友好奶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

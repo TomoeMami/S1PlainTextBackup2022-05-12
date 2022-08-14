@@ -12159,3 +12159,22 @@ RBA求求你千万不要是打手
 
 水武后还真是僵尸术士啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1142#       发表于 2022-8-14 17:49
+
+水武建模吊打卡面啊，就是声音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 1143#       发表于 2022-8-14 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061693&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-14 17:16</a>
+
+虽然挺好看。但我觉得不如偶像活动那个</blockquote>
+偶像的穿太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
