@@ -2072,3 +2072,45 @@ nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长�
 
 总有一个人要尿漫阿灵顿的，为什么不能是杜鹏呢<img src="https://p.sda1.dev/6/7ca7af9f51baabd6fae90a2938f43b32/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  尸体鲨  
+##### 10733#       发表于 2022-8-14 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061126&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-14 16:18</a>
+nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长暴跳如雷？</blockquote>
+粉丝的本质就是双标，不双标是没办法把一个普通人抬成卡密的，鳖鳖刚打输了波团，没办法的呀
+
+*****
+
+####  名字不乱取  
+##### 10734#       发表于 2022-8-14 16:27
+
+尬黑了，过两天就是op反串败坏我们集美的名声了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 10735#       发表于 2022-8-14 16:29
+
+<img src="https://img.saraba1st.com/forum/202208/14/162907wwnegwqfzqee6fp1.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-14_16-28-58.png</strong> (36.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 16:29 上传
+
+今日最佳
+
+*****
+
+####  cuiluzhu  
+##### 10736#       发表于 2022-8-14 16:30
+
+<blockquote>nowaki 发表于 2022-8-14 15:55
+仔细想想杜儿鹏儿上次打决赛日是不是ti7</blockquote>
+在rng的时候minor决赛打nigma，有两盘分别领先2w、3w经济被翻盘
+

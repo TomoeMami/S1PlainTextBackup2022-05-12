@@ -11978,3 +11978,24 @@ RBA求求你千万不要是打手
 讲真，这几个狂仇，卡面无懈可击的只有泡馍，我一个不是夹馍厨子看了都控制不住的那种，其他几个的卡面或 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质跟卡面没有一丝关系 根据我观察 隔壁不少都是石头号5宝那谁入坑的（
 
+
+
+*****
+
+####  angelooo  
+##### 1123#       发表于 2022-8-14 16:21
+
+<blockquote>alucardcz 发表于 2022-8-14 16:19
+本质跟卡面没有一丝关系 根据我观察 隔壁不少都是石头号5宝那谁入坑的（ ...</blockquote>
+那没事了233
+
+*****
+
+####  alucardcz  
+##### 1124#       发表于 2022-8-14 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061151&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 16:21</a>
+
+那没事了233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁现在打的正欢 吹的吹上天了 什么人权 最强卡池  黑的各种黑 从模型到卡面 无所不黑
+
