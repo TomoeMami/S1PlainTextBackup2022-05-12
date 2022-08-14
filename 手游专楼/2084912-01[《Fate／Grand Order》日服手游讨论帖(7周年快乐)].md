@@ -11765,3 +11765,26 @@ RBA求求你千万不要是打手
 
 都是5100武藏
 
+
+
+*****
+
+####  alucardcz  
+##### 1102#       发表于 2022-8-14 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060677&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 15:25</a>
+
+上个活动八犬传的90，不带活动礼装的话就卡啊
+
+打戏活动礼装没蓝放，90本也卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本我已经是红卡人了  等一个用过的大佬说说情况
+
+*****
+
+####  angelooo  
+##### 1103#       发表于 2022-8-14 15:37
+
+<blockquote>alucardcz 发表于 2022-8-14 15:10
+不用3破还有个问题就是宝具语音太弱智。。。虽然我不太开声音</blockquote>
+一破的sexy语音其实也……不过三破那个宝具动画正脸太死亡了
+
