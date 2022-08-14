@@ -10498,3 +10498,79 @@ lgd又犯病了是吧。。。
 
 这毒狗很恶心啊克lgd三个大哥
 
+
+
+*****
+
+####  CNFH1984  
+##### 11807#       发表于 2022-8-15 07:02
+
+这个开局没了
+
+好！就他妈的雪碧！
+
+*****
+
+####  杜文乐超神归来  
+##### 11808#       发表于 2022-8-15 07:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">原本我是不信的，破两路就不看了。加油啊全村的希望雪碧
+
+*****
+
+####  我爱撩菜  
+##### 11809#       发表于 2022-8-15 07:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是BO5打雪碧就没法打了对吧
+
+*****
+
+####  白野苍衣  
+##### 11810#       发表于 2022-8-15 07:03
+
+不出意外的话应该是3比1了，雪碧状态有点好啊。
+
+*****
+
+####  思考者的迷  
+##### 11811#       发表于 2022-8-15 07:04
+
+感觉LGD开始脑浆了（
+
+*****
+
+####  反方向的波  
+##### 11812#       发表于 2022-8-15 07:05
+
+ 本帖最后由 反方向的波 于 2022-8-15 07:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">别奶了，我还以为干瘪输了呢进去一看脑东京经典第六
+
+*****
+
+####  逃离二次元  
+##### 11813#       发表于 2022-8-15 07:06
+
+我好紧张<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 11814#       发表于 2022-8-15 07:08
+
+第二把感觉走远了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 11815#       发表于 2022-8-15 07:08
+
+刚醒，茶队还是回家了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 11816#       发表于 2022-8-15 07:10
+
+醒一醒  第三把了
+
