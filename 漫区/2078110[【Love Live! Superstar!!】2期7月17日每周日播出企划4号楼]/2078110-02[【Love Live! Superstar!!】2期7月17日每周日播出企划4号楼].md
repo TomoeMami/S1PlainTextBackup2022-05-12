@@ -12075,3 +12075,15 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  GGnob  
+##### 2668#       发表于 2022-8-15 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067794&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-15 02:17</a>
+
+可可给人观感想扭好其实不难，技巧很单纯直接——吃瘪。性格强势到引发争议的角色，让ta吃瘪就能改善观感， ...</blockquote>
+京吹的是吉川优子，吉田优子是夏美子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -11380,3 +11380,220 @@ chen就没赢过还要选啊
 
 要选猴子了吧
 
+
+
+*****
+
+####  izayoi39  
+##### 11918#       发表于 2022-8-15 07:40
+
+雪碧主要是打法跟现在的茶队打法如出一辙，整体节奏全看24联动，所以这俩队bp都很容读穿对面，蟹腿王最后一把居然放弃打24联动打节奏让bbk打了个毒瘤4我是怎么都没看明白
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  haruhiismer  
+##### 11919#       发表于 2022-8-15 07:42
+
+再来一个娜迦
+
+*****
+
+####  恐怖利刃  
+##### 11920#       发表于 2022-8-15 07:43
+
+还有一把！
+
+<img src="https://img.saraba1st.com/forum/202208/15/074251ax5l45fkzc5f40pe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5F5E2EEC-5C86-4099-84D0-02E2766BB4EE.jpeg</strong> (843.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 07:42 上传
+
+*****
+
+####  syndrome2032  
+##### 11921#       发表于 2022-8-15 07:43
+
+张志成bp不出点幺蛾子就不叫张志成了。
+
+*****
+
+####  外挂全家脚气  
+##### 11922#       发表于 2022-8-15 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068788&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-15 07:40</a>
+chen就没赢过还要选啊</blockquote>
+chen赢了第一局，这把算以选代BAN
+
+*****
+
+####  沈淮  
+##### 11923#         楼主| 发表于 2022-8-15 07:44
+
+雪碧这个阵容，老干瘪点个蓝猫都无敌了吧
+
+*****
+
+####  蛭人  
+##### 11924#       发表于 2022-8-15 07:44
+
+亚军船长是吧。
+
+*****
+
+####  马台街48  
+##### 11925#       发表于 2022-8-15 07:44
+
+没了，经典IO
+
+*****
+
+####  白野苍衣  
+##### 11926#       发表于 2022-8-15 07:44
+
+我吐了，这BP，面8又开始给处长搭舞台了。
+
+*****
+
+####  沈淮  
+##### 11927#         楼主| 发表于 2022-8-15 07:44
+
+还在4保1
+
+*****
+
+####  12481632  
+##### 11928#       发表于 2022-8-15 07:45
+
+亚军船长
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 11929#       发表于 2022-8-15 07:45
+
+前四手输出超低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  iriyano  
+##### 11930#       发表于 2022-8-15 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068807&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-15 08:43</a>
+chen赢了第一局，这把算以选代BAN</blockquote>
+就是说雪碧的chen没赢过呀
+
+*****
+
+####  沈淮  
+##### 11931#         楼主| 发表于 2022-8-15 07:45
+
+应该要拿幻影长矛手了
+
+*****
+
+####  一夜秋风袭锦城  
+##### 11932#       发表于 2022-8-15 07:46
+
+相信处长
+
+*****
+
+####  坚定的团子党  
+##### 11933#       发表于 2022-8-15 07:46
+
+小精灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这把又没了呀，还是打四保畜
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  izayoi39  
+##### 11934#       发表于 2022-8-15 07:48
+
+雪碧这bp就想得很明白，我节奏是要靠24联动打的，所以chen就是放到5号位来以选代办
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 11935#       发表于 2022-8-15 07:48
+
+斧王，全英雄挑战吗
+
+*****
+
+####  蛭人  
+##### 11936#       发表于 2022-8-15 07:48
+
+好呀
+
+*****
+
+####  白野苍衣  
+##### 11937#       发表于 2022-8-15 07:49
+
+寄！BP被爆中爆
+
+*****
+
+####  qty  
+##### 11938#       发表于 2022-8-15 07:49
+
+斧王
+
+*****
+
+####  walfeds  
+##### 11939#       发表于 2022-8-15 07:49
+
+G4斧王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 11940#       发表于 2022-8-15 07:49
+
+ceeeeeeeeb!
+
+不过这版本斧王都没人玩了吧。
+
+
+
+*****
+
+####  sodah  
+##### 11941#       发表于 2022-8-15 07:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">好急好急。
+
+*****
+
+####  白野苍衣  
+##### 11942#       发表于 2022-8-15 07:49
+
+加油加油，输了也是惜败。
+
+*****
+
+####  RGm  
+##### 11943#       发表于 2022-8-15 07:49
+
+雪碧这bp有点僵。
+
+*****
+
+####  反方向的波  
+##### 11944#       发表于 2022-8-15 07:50
+
+雪碧2：1时候的g4斧王懂得都懂<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
