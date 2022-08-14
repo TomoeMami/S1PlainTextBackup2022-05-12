@@ -5030,3 +5030,33 @@ nice，恭喜皇女<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16963#       发表于 2022-8-14 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连B站解说虹棒的人也哭了。
+
+*****
+
+####  zebra8888cz  
+##### 16964#       发表于 2022-8-14 21:56
+
+卵用剧场的节目效果真的拉的满中满 4坏接抓双杀然后经典高飞ngo接杀
+
+*****
+
+####  Ketestrait  
+##### 16965#       发表于 2022-8-14 21:59
+
+天开哭，“なんで泣いてるんですか？”，皇女这个梗还要被玩多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16966#       发表于 2022-8-14 22:00
+
+ssk最后的留言写了个thank you for vox<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

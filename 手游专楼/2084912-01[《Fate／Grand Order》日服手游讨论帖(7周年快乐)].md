@@ -12837,3 +12837,28 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这出星礼装好烦人啊？ 强行浪费时间
 
+
+
+*****
+
+####  exiaexa  
+##### 1206#       发表于 2022-8-14 21:55
+
+草，这个LV5设施剧情
+
+突然蹦出句纯正中文，我一口水没绷住喷键盘上了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1207#       发表于 2022-8-14 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57064939&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 21:55</a>
+草，这个LV5设施剧情
+
+突然蹦出句纯正中文，我一口水没绷住喷键盘上了
+
+ ...</blockquote>
+还是开场大号加粗怼脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
