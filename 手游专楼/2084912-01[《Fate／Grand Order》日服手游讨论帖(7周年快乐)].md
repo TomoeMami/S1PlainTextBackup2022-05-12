@@ -11686,3 +11686,46 @@ RBA求求你千万不要是打手
 但你们能不能不要选择性忽略那三条内 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用3破还有个问题就是宝具语音太弱智。。。虽然我不太开声音 
 
+
+
+*****
+
+####  acuman  
+##### 1095#       发表于 2022-8-14 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060528&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:08</a>
+
+没卡过 是不是配置低了？</blockquote>
+5宝百级一样卡，不卡就是加成礼装礼装有np率或者蓝魔放
+
+*****
+
+####  alucardcz  
+##### 1096#       发表于 2022-8-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060569&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 15:12</a>
+
+5宝百级一样卡，不卡就是加成礼装礼装有np率或者蓝魔放</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好意思从没卡过 你是不是那种3技能第3回合才开的？
+
+*****
+
+####  poor  
+##### 1097#       发表于 2022-8-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060472&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 15:01</a>
+怕是之前水武藏抽高宝的破防了吧</blockquote>
+一宝党赢麻了，过气就抽下一个，爽过就没损失，回头加强我也有<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">没有就是抽不出来的，也不用纠结
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acuman  
+##### 1098#       发表于 2022-8-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060620&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:19</a>
+
+不好意思从没卡过 你是不是那种3技能第3回合才开的？</blockquote>
+3技能2面开那根本就不是自动挡了啊
+

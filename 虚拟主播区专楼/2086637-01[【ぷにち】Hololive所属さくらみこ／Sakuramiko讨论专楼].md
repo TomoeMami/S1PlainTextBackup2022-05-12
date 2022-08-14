@@ -727,3 +727,53 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 
 2022-8-14 15:08 上传
 
+
+
+*****
+
+####  holoan  
+##### 64#         楼主| 发表于 2022-8-14 15:14
+
+<img src="https://img.saraba1st.com/forum/202208/14/151419nroo5mq22hqhzh2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 15:14 上传
+
+以前直播里讲过想去现场买自己的本子但是怕被暴露身份
+
+*****
+
+####  holoan  
+##### 65#         楼主| 发表于 2022-8-14 15:17
+
+<img src="https://img.saraba1st.com/forum/202208/14/151640irgr5f55z8x5rviz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 15:16 上传
+
+这个量基本是35P全去圣地巡礼了
+
+这个店每次庆祝板都会放一两个月
+
+*****
+
+####  zblack  
+##### 66#       发表于 2022-8-14 15:19
+
+带个墨镜 口罩  声音用变声器 应该可以<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 67#         楼主| 发表于 2022-8-14 15:20
+
+说是那么说而已 真想去只要不说话很难认得出来 现场人多得要死
+
+不过现在很多都放通贩了真要买也不一定要去现场
+
