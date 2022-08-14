@@ -1957,3 +1957,24 @@ miposhka真视界里说错了一句，老干瘪里不全是人，还有一个***
 
 此时的茶队一副湘北的模样<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 10720#       发表于 2022-8-14 15:55
+
+仔细想想杜儿鹏儿上次打决赛日是不是ti7
+
+*****
+
+####  战狼PTSD  
+##### 10721#       发表于 2022-8-14 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058733&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 11:53</a>
+
+atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</blockquote>
+怎么感觉是不懂梗
+
+毕竟英文里没提款这个梗
+

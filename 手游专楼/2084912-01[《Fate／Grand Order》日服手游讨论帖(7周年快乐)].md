@@ -11807,3 +11807,87 @@ RBA求求你千万不要是打手
 
 然后比较搞笑的一个事情是，前几天有个帖子讨论仇凛泡馍水武强度的，一水的说水武已经可以抬走了，怎么更强的水伊吹加入战团了，水武又给抬回来了？
 
+
+
+*****
+
+####  alucardcz  
+##### 1106#       发表于 2022-8-14 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060859&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 15:48</a>
+
+然后比较搞笑的一个事情是，前几天有个帖子讨论仇凛泡馍水武强度的，一水的说水武已经可以抬走了，怎么更强 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会不会只是想他他开 隔壁水伊正方好像已经吹成人权了
+
+*****
+
+####  拖鞋脚后跟  
+##### 1107#       发表于 2022-8-14 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060859&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 15:48</a>
+然后比较搞笑的一个事情是，前几天有个帖子讨论仇凛泡馍水武强度的，一水的说水武已经可以抬走了，怎么更强 ...</blockquote>
+因为这游戏一共就她们俩狂阶蓝卡光炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 1108#       发表于 2022-8-14 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060880&amp;ptid=2084912" target="_blank">拖鞋脚后跟 发表于 2022-8-14 15:51</a>
+
+因为这游戏一共就她们俩狂阶蓝卡光炮
+
+—— 来自 samsung SM-G9730, Android 10上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">炉石传说没有完爆
+
+*****
+
+####  rooarr  
+##### 1109#       发表于 2022-8-14 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060647&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:21</a>
+ 我反正从来没卡过  你倒是说说哪个90的阳间上三  5宝100级武藏能卡np的 ...</blockquote>
+好几个低于90的本都不行了不用问了，萌新你落后时代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 1110#       发表于 2022-8-14 15:56
+
+说真的，武藏和伊吹我感觉根本不能算一个赛道了，50冲的含金量直接就把武藏那点微不足道的回收优势干碎了。开被动二以后只要回收69就过线了，武藏拿什么和人家比啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明显仇凛、泡馍和水伊吹这三个才是一条赛道上的，在回收压力、三面伤害分配、特攻范围和机制适应性上算是各有所长。
+
+
+
+*****
+
+####  alucardcz  
+##### 1111#       发表于 2022-8-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060927&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-14 15:56</a>
+
+好几个低于90的本都不行了不用问了，萌新你落后时代了我现在是水武藏卡了下一把就扔掉她上红卡[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别骗我！虽然我a狐落地后就没用过了
+
+*****
+
+####  qixinno2  
+##### 1112#       发表于 2022-8-14 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛作为一个三年前至今一个强化没有的卡 我觉得她已经做得很好了
+
+*****
+
+####  azccc52  
+##### 1113#       发表于 2022-8-14 15:59
+
+不用nga，国服玩家问一下，你楼说的水莉莉丝和太岁是指这次泳装剧情吗？发生什么事了？翻了下楼没看到讨论，非常感谢解惑<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1114#       发表于 2022-8-14 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然水武藏寄了 是不是该来个宝具本了
+
