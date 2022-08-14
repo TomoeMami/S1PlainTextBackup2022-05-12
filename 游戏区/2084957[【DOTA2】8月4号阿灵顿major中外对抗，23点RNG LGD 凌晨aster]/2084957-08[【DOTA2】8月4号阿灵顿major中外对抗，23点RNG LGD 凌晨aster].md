@@ -3088,3 +3088,98 @@ ts上去脑东京肯定尿漫阿林顿，鳖茶上去真有处刑a畜的可能�
 
 道理很简单 因为鳖星今年好歹赢过<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雅朵莉雀  
+##### 10850#       发表于 2022-8-14 22:10
+
+《建队之基，稳如磐石》
+
+*****
+
+####  你气不气  
+##### 10851#       发表于 2022-8-14 22:11
+
+记得当时iwo集美生怕鳖星把亚运会名额抢走
+
+*****
+
+####  adretyu67  
+##### 10852#       发表于 2022-8-14 22:11
+
+但是茶上去打bo5，一样没戏。这个状态的雪碧打bo5一样没戏。
+
+并且我不觉得茶打得过雪碧。
+
+安心缩壳吧
+
+*****
+
+####  haruhiismer  
+##### 10853#       发表于 2022-8-14 22:12
+
+萨特我砍
+
+*****
+
+####  米德  
+##### 10854#       发表于 2022-8-14 22:12
+
+萨特我砍
+
+*****
+
+####  Centrum  
+##### 10855#       发表于 2022-8-14 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065045&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-14 22:01</a></blockquote>
+超级版主！！
+
+*****
+
+####  反方向的波  
+##### 10856#       发表于 2022-8-14 22:13
+
+永远不要相信张志成，记住是永远<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 10857#       发表于 2022-8-14 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">萨特能举个6657upup吗 谢谢喵
+
+*****
+
+####  聚散浮云  
+##### 10858#       发表于 2022-8-14 22:13
+
+这个比赛茶和lgd都没碰过，ts这都连输几个bo3了，给我我也相信骄阳
+
+*****
+
+####  名字不乱取  
+##### 10859#       发表于 2022-8-14 22:13
+
+我在你楼低强度黑杜鹏，不会明天早上要被拉去清算吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 10860#       发表于 2022-8-14 22:16
+
+不基德啊 不基德  越来越有sg的味道了 
+
+
+
+*****
+
+####  a1370303  
+##### 10861#       发表于 2022-8-14 22:20
+
+要相信，决赛日的lgd从不令人失望<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11213,3 +11213,51 @@ DC6CFDB2-9352-4576-9EC8-9D270B4A36B8.jpeg
 
 串楼了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不转换一下心态，真炸起来的时候可会疯掉
 
+
+
+*****
+
+####  Enakina  
+##### 2586#       发表于 2022-8-14 22:12
+
+ 本帖最后由 Enakina 于 2022-8-14 22:13 编辑 
+
+看串了吧，不过这集也几乎没可堇内容啊，看来实属是个随用随点的炸弹了
+CEO:我咋咋呼呼一集了，你们都不理我吗
+
+*****
+
+####  ads147147  
+##### 2587#       发表于 2022-8-14 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063791&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-14 20:28</a>
+话说这个是故意的吧？</blockquote>
+假面骑士里挺常见的w
+
+不过还是挺怪的，按剧中设定，小不点也快到寿终正寝的时候了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 2588#       发表于 2022-8-14 22:14
+
+拍的不好车花田，拍的好车过去拍的不好的花田，这就是拉拉吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 2589#       发表于 2022-8-14 22:15
+
+我他妈就怕这里也车，提前说打招呼，特别是某个ID
+
+*****
+
+####  离心  
+##### 2590#       发表于 2022-8-14 22:19
+
+写的不好就骂，写的好就夸，这集已经不错了，就不要车过去了，不仅自己累爬楼的人也累
+
