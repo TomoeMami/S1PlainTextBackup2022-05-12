@@ -10068,3 +10068,245 @@ og5个分头打钱，鳖星45个全在抓一个人，当然越来越来穷了<im
 
 什么天命
 
+
+
+*****
+
+####  ArowRocher  
+##### 10229#       发表于 2022-8-14 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056878&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-14 09:00</a>
+这个自信回头是何意啊油扒鸡？</blockquote>
+油扒鸡是boom的，这个是油垃圾
+
+*****
+
+####  nxmonitor  
+##### 10230#       发表于 2022-8-14 09:01
+
+这虚空操作有点变形了啊，各种奇怪的跳……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  逃离二次元  
+##### 10231#       发表于 2022-8-14 09:01
+
+茶队赢团不打盾是何意啊
+
+*****
+
+####  弈秋  
+##### 10232#       发表于 2022-8-14 09:01
+
+剑圣克啊
+
+*****
+
+####  ArowRocher  
+##### 10233#       发表于 2022-8-14 09:01
+
+油垃圾这个回头没杀冰龙把自己搞了
+
+*****
+
+####  白野苍衣  
+##### 10234#       发表于 2022-8-14 09:02
+
+我对鹏子的虚空一直是无条件信任的啊，看到虚空选出来就出门吃早饭去了，回来一看果然差不多要寄了。
+
+*****
+
+####  天堂蜘蛛  
+##### 10235#       发表于 2022-8-14 09:02
+
+鳖茶赢一波团都得交一波大，怎么打盾嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 10236#       发表于 2022-8-14 09:02
+
+鹏子这大交的
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 10237#       发表于 2022-8-14 09:04
+
+皮球拉满了，冰龙不死根本杀不死人
+
+*****
+
+####  Keynes  
+##### 10238#       发表于 2022-8-14 09:04
+
+球神woc
+
+*****
+
+####  吃货红毛  
+##### 10239#       发表于 2022-8-14 09:04
+
+鹏子进化鹏哥！来自: iPhone客户端
+
+*****
+
+####  莉拉厨  
+##### 10240#       发表于 2022-8-14 09:04
+
+皮球！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 10241#       发表于 2022-8-14 09:04
+
+冰龙大到2个 舒服了
+
+*****
+
+####  山上徹也  
+##### 10242#       发表于 2022-8-14 09:05
+
+我对鹏子的虚空一直是无条件信任的啊，看到虚空选出来就出门吃早饭去了，回来一看果然差不多要寄了。
+
+*****
+
+####  弈秋  
+##### 10243#       发表于 2022-8-14 09:05
+
+棚子的秀
+
+*****
+
+####  12481632  
+##### 10244#       发表于 2022-8-14 09:05
+
+皮球牛啊
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白野苍衣  
+##### 10245#       发表于 2022-8-14 09:05
+
+怎么茶队也是四赵云在抬着鹏子走啊
+
+*****
+
+####  Tzzt  
+##### 10246#       发表于 2022-8-14 09:05
+
+皮球！
+
+*****
+
+####  -SLSL-  
+##### 10247#       发表于 2022-8-14 09:05
+
+鹏子怎么油油玉玉的
+
+*****
+
+####  12481632  
+##### 10248#       发表于 2022-8-14 09:05
+
+加油明天干处长！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 10249#       发表于 2022-8-14 09:06
+
+还没赢呢，怎么漏油就开香槟了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瓜籽君  
+##### 10250#       发表于 2022-8-14 09:06
+
+鹏子才是真阿斗啊
+
+—— 来自 meizu MEIZU 18s, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 10251#       发表于 2022-8-14 09:06
+
+怎么还盯着小鹿杀啊，这小鹿一个吹风废了就行了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 10252#       发表于 2022-8-14 09:07
+
+这个无解肥剑圣保出来逼用没有
+
+*****
+
+####  逃离二次元  
+##### 10253#       发表于 2022-8-14 09:07
+
+裸血辣也太艺术了
+
+*****
+
+####  a1370303  
+##### 10254#       发表于 2022-8-14 09:07
+
+atf这把被ceb吸干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 10255#       发表于 2022-8-14 09:07
+
+ 本帖最后由 Keynes 于 2022-8-14 09:08 编辑 
+
+这剑圣被球神单防了啊
+
+*****
+
+####  nxmonitor  
+##### 10256#       发表于 2022-8-14 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056950&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-14 09:07</a>
+
+这个无解肥剑圣保出来逼用没有</blockquote>
+有冰龙选剑圣是这样的啊，除非puck每一波都切到冰龙，不然纯废物……
+
+*****
+
+####  天堂蜘蛛  
+##### 10257#       发表于 2022-8-14 09:08
+
+打到这个点才13级，海民也太惨了
+
+*****
+
+####  Keynes  
+##### 10258#       发表于 2022-8-14 09:09
+
+这bzm也犯病了
+
+*****
+
+####  12481632  
+##### 10259#       发表于 2022-8-14 09:10
+
+都怪bzm！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

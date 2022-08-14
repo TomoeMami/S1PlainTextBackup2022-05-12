@@ -10049,3 +10049,41 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 日服不是更便宜吗？</blockquote>
 美区没法直接充日服了，这次活动开始
 
+
+
+*****
+
+####  exiaexa  
+##### 940#       发表于 2022-8-14 09:03
+
+艹，地特攻自充蓝光炮
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 941#       发表于 2022-8-14 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没看到介绍，虽然池子的确开了
+
+*****
+
+####  朝香果林  
+##### 942#         楼主| 发表于 2022-8-14 09:03
+
+武藏再见！
+
+*****
+
+####  rooarr  
+##### 943#       发表于 2022-8-14 09:09
+
+光速跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 944#       发表于 2022-8-14 09:09
+
+彩圈大公，吃井
+
