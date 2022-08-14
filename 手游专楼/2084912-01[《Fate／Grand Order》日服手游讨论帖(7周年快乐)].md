@@ -10329,3 +10329,40 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 武则天数据也出了，红光炮，技能而言是万物特攻拐，群体20充，现在rba这边的压力要炸了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 973#       发表于 2022-8-14 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能快进把17号的池子也直接开了
+
+*****
+
+####  tttabc1  
+##### 974#       发表于 2022-8-14 10:14
+
+现在就等着看BBA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，然后就能确定明年抽卡计划了
+
+*****
+
+####  onemoment  
+##### 975#       发表于 2022-8-14 10:16
+
+差不多1600多石俩人5+1了，感觉还行没翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 976#       发表于 2022-8-14 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">绘里濑一样一个 紫发美少女只能等复刻了
+
+*****
+
+####  plok201  
+##### 977#       发表于 2022-8-14 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不我们跑路吧YLS,这rab得多劲爆才对得起这泳装压轴
+

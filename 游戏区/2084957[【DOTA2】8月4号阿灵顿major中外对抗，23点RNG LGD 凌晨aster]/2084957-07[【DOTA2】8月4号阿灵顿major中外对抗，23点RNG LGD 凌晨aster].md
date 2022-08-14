@@ -11915,3 +11915,229 @@ ti9的fy莱恩是玩的不错的，可惜集美眼中是geigei输比赛的最大
 
 杜科长真能把王处干了能不能提一下级别，升四级主任科员
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 10460#       发表于 2022-8-14 10:10
+
+og被血脉压制了啊
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  syndrome2032  
+##### 10461#       发表于 2022-8-14 10:10
+
+ti9fy lion被喷也是毒瘤出a不出推救畜长。不过那把小狗明场面也不少。
+
+这时候就该用卡师傅那句:出什么都没有用了。
+
+*****
+
+####  沈淮  
+##### 10462#         楼主| 发表于 2022-8-14 10:10
+
+主任科员？直接遴选进中办！
+
+*****
+
+####  蛭人  
+##### 10463#       发表于 2022-8-14 10:11
+
+说到这个苏跳跳也一样啊，而且跳跳特别不服ana的硬实力，结果去年在og又再一次表演了屠宰场小小输掉比赛。
+
+*****
+
+####  lmslardar  
+##### 10464#       发表于 2022-8-14 10:12
+
+monet被血棘那波我自己没意识到回头看手掌握拳都抠出指甲印子了，只能说dota比赛还是比lol团战来的刺激，lol团战一波真的太快了
+
+*****
+
+####  chilno  
+##### 10465#       发表于 2022-8-14 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">撸撸的团战不就是脸滚键盘吗
+
+*****
+
+####  windhawind2  
+##### 10466#       发表于 2022-8-14 10:13
+
+ceb紫苑还行 升级出血棘结果推推挑战大祭品一件肉装都没有 被宙斯放个雷云就走不动了 哪来时间输出？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  Litccc  
+##### 10467#       发表于 2022-8-14 10:13
+
+<img src="https://p.sda1.dev/6/f2ab6753ec0d5021c3a4d392e0c57e38/8xQ2q-kp6qXyZ9hT3cSlw-a8.gif" referrerpolicy="no-referrer">
+
+节目效果拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雅朵莉雀  
+##### 10468#       发表于 2022-8-14 10:13
+
+我还挺好奇的，yatoro的虚空假面是绝中绝
+
+明天茶再战雪碧，或者决赛茶or雪碧打LGD，这时候还要不要一出电魂
+
+今天看起来虚空线上打电魂几乎没吃亏，甚至还能靠酱油耗血小压电魂，后面也完全不怕
+
+*****
+
+####  沈淮  
+##### 10469#         楼主| 发表于 2022-8-14 10:13
+
+人为什么要跟🐶比？
+
+*****
+
+####  尸体鲨  
+##### 10470#       发表于 2022-8-14 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我感觉大部分集美有一个误区就是把资源分配和战术地位/发挥贡献挂钩，这游戏不是吃的资源越多就越有贡献的
+
+
+
+*****
+
+####  nowaki  
+##### 10471#       发表于 2022-8-14 10:14
+
+看好茶上去内战
+
+*****
+
+####  Keynes  
+##### 10472#       发表于 2022-8-14 10:15
+
+可是集美最爱吹的不就是掀背的裤裆吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 10473#       发表于 2022-8-14 10:15
+
+茶队真是越来越让人惊喜了，希望明天别让人失望吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 10474#       发表于 2022-8-14 10:15
+
+这个干处长是fuck还是be<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 10475#       发表于 2022-8-14 10:15
+
+不看好茶，基本上是雪碧上去再挨宰3局or
+1:3。
+
+*****
+
+####  尸体鲨  
+##### 10476#       发表于 2022-8-14 10:16
+
+理性分析，小茶叶到底该不该给ori磕一个
+
+*****
+
+####  Keynes  
+##### 10477#       发表于 2022-8-14 10:16
+
+今晚第一把输了就关机睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 10478#       发表于 2022-8-14 10:17
+
+脑东京和猴爹也是有梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猴爹打脑东京的时候基本都能对线打出不小优势，而打nisha的时候基本都是被打爆的，这个梗感觉过不去了
+
+*****
+
+####  Litccc  
+##### 10479#       发表于 2022-8-14 10:17
+
+ori这个比赛居然没尿，难道真的第二春来了
+
+*****
+
+####  Robakey  
+##### 10480#       发表于 2022-8-14 10:18
+
+wociao 一觉醒来，难道真的要来了吗 无压力cn内战
+
+*****
+
+####  nowaki  
+##### 10481#       发表于 2022-8-14 10:18
+
+量子鞭现在是透支状态，脑东京天然炸打不了的，而茶队畜点和lgd一样是一，畜畜相抵还有的玩
+
+*****
+
+####  莉拉厨  
+##### 10482#       发表于 2022-8-14 10:18
+
+集美论坛开始清算茶队了，我先缩了<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 10483#       发表于 2022-8-14 10:18
+
+东亚纬度学压制，马来看到蒙古人是会腿软
+
+*****
+
+####  Cookiekira  
+##### 10484#       发表于 2022-8-14 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057635&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-14 10:10</a>
+ti9fy lion被喷也是毒瘤出a不出推救畜长。不过那把小狗明场面也不少。
+
+这时候就该用卡师傅那句:出什么都没 ...</blockquote>
+那波不开魔免上高 fy就算出了一百个推推也没用主要是<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 10485#       发表于 2022-8-14 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057705&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-14 10:16</a>
+理性分析，小茶叶到底该不该给ori磕一个</blockquote>
+我给茶队选中的选项不多了，现在看来曾焦阳是干得最好的那个。
+
+*****
+
+####  usoda  
+##### 10486#       发表于 2022-8-14 10:19
+
+面8:只是一场惜败！！
+
+*****
+
+####  nxmonitor  
+##### 10487#       发表于 2022-8-14 10:19
+
+今天就和TS打了两把，哪把nts不是压住老东京了？睁着眼睛说瞎话吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10488#       发表于 2022-8-14 10:19
+
+虽然集美和O友爱给别人批发x批帽子一样爱发x处，但一说到处长还是会条件反射地想到他
+
