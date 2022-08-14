@@ -12075,3 +12075,21 @@ RBA求求你千万不要是打手
 不骗你，就是很多莫名其妙的地方少那么几点np以上是第一面交完技能的情况，很多时候留一个c呆的20 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上去试了下水武藏  就这剑本3万3万15万 冲下去还回到了102   要多少血量的不能冲？
 
+
+
+*****
+
+####  areklose  
+##### 1133#       发表于 2022-8-14 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快5点了。有没有CBA乐子
+
+*****
+
+####  kiralzb  
+##### 1134#       发表于 2022-8-14 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061341&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 16:41</a>
+我上去试了下水武藏  就这剑本3万3万15万 冲下去还回到了102   要多少血量的不能冲？ ...</blockquote>
+有试过没开三技能第三面98<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

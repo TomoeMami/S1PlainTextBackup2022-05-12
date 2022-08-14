@@ -786,3 +786,18 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 
 现版本官宣七字母,人气还是蛮火的,cp粉人数越来越多,八字母的mv播放量被超过是迟早的事.
 
+
+
+*****
+
+####  rs5621  
+##### 69#       发表于 2022-8-14 16:56
+
+ 本帖最后由 rs5621 于 2022-8-14 17:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060611&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-14 15:17</a>
+
+这个量基本是35P全去圣地巡礼了
+
+这个店每次庆祝板都会放一两个月</blockquote>
+这个店,不知道miko有去看过么?想想miko乔装打扮,在远远的地方偷看35p们在板子面前写纸条的反应就很好玩.
+
