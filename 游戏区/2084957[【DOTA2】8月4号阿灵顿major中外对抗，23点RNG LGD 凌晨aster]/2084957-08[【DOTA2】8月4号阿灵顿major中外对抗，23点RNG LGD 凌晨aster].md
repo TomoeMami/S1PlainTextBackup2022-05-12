@@ -3183,3 +3183,47 @@ ts上去脑东京肯定尿漫阿林顿，鳖茶上去真有处刑a畜的可能�
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Litccc  
+##### 10862#       发表于 2022-8-14 22:21
+
+<img src="https://img.saraba1st.com/forum/202208/14/222107wz5wrk6w5hkrwuw9.png" referrerpolicy="no-referrer">
+
+<strong>《真视界 - 2021年国际邀请赛》预告片_00_27 (1).png</strong> (175.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:21 上传
+
+相信崩溃哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zkc1991  
+##### 10863#       发表于 2022-8-14 22:22
+
+茶队加油，干掉雪碧，会师决赛<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  何然  
+##### 10864#       发表于 2022-8-14 22:29
+
+鳖星上去就是3：0啊
+
+那次皮球的希望lgd上来干我们3:0还历历在目呢
+
+*****
+
+####  CNFH1984  
+##### 10865#       发表于 2022-8-14 22:30
+
+嗳熬不住夜了，睡觉惹
+
+希望明早爬起来发现老干瘪以及被打爆了
+
