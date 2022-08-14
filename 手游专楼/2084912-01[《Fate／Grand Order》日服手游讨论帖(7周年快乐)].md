@@ -10225,3 +10225,56 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 艹...刚给武藏补了2宝...
 
+
+
+*****
+
+####  angelooo  
+##### 962#       发表于 2022-8-14 09:53
+
+一宝先跑了，然后去查了下卡面，其实整体比剑阶好，但是因为配色太杂了，加上背景还是糊成一团的感觉……满破，卧槽，这满破我整个人都，就满破这张能把原版那莫名其妙的姿势按在地上打，绘里世就很中规中矩了，满破怪怪的，以及我总觉得noco最惊艳的还是fr时期那三张卡，哪张都很好看，到阿国已经感觉有点摸鱼了，再到这个水绘，我甚至觉得本体绘里世的满破都比这张满破好，而且那张也很有泳装的感觉
+
+*****
+
+####  exiaexa  
+##### 963#       发表于 2022-8-14 09:56
+
+我跟你们讲，这伊吹最离谱的是什么
+她还能靠着自己的集星和特攻跟公主搭伙的
+
+公主+伊吹+杀狐，全新0np队
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zooandtoo  
+##### 964#       发表于 2022-8-14 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057312&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 09:39</a>
+
+随便试了下，武藏真就硬生生被完爆，闪避跟战续又吹不起来，太惨了</blockquote>
+日基还真有拿伊吹没战续没宝具封印来扯不是泳装伊吹的下位互换的。。
+
+那可是蓝卡队
+
+*****
+
+####  areklose  
+##### 965#       发表于 2022-8-14 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主最好得伙伴。伊吹X。绘里世O。绘里世可是少数能吃到公主宝具效果得人。看看阴间本有没有奇效。至少我现在直接双公主绘里世拿去打狗粮了
+
+*****
+
+####  Jamaisvu  
+##### 966#       发表于 2022-8-14 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057458&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 09:56</a>
+
+我跟你们讲，这伊吹最离谱的是什么
+
+她还能靠着自己的集星和特攻跟公主搭伙的</blockquote>
+狂伊吹二技能可以对己方从者使用，30红蓝魔放带一个减1CD...
+
+白公主水伊吹双暗兔体系说不定能搞起来<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

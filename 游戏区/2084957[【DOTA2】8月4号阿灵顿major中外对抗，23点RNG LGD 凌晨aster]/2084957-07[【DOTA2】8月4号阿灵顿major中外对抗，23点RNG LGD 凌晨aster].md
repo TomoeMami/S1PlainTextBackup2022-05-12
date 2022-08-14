@@ -11598,3 +11598,194 @@ ceb吃资源出关键装但是被抓了两次没买活很伤
 
 —— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  逃离二次元  
+##### 10425#       发表于 2022-8-14 09:51
+
+就这样集美论坛还说野王不配<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 10426#       发表于 2022-8-14 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057364&amp;ptid=2084957" target="_blank">河水 发表于 2022-8-14 09:45</a>
+ceb吸得太过了，电魂是拆塔点，结果很穷
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11 ...</blockquote>
+假3真1的版本没有1
+
+*****
+
+####  asd235614  
+##### 10427#       发表于 2022-8-14 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杜鹏有两拨大差点给我心脏吓停了，还好ori和樱花兄弟兜住了
+
+*****
+
+####  百世诸侯  
+##### 10428#       发表于 2022-8-14 09:53
+
+Ceb这偷资源出紫苑除了第一波xxs脑浆熊猫没提前开大被他紫苑整了一波，没感觉有多大的作用，反而让自己一个臭酱油复活时间长买活贵
+
+*****
+
+####  DDWarrior  
+##### 10429#       发表于 2022-8-14 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057408&amp;ptid=2084957" target="_blank">香蕉芭菲 发表于 2022-8-14 09:50</a>
+冰龙后面其实打得一般，很容易被找到。这个小强值得吹一下，每次搞到剑圣没蓝，好恶心（称赞）
+
+—— 来自  ...</blockquote>
+有一说一，打到后期的时候，冰龙确实很难应对puck和海民一起找的
+
+*****
+
+####  lyjssj  
+##### 10430#       发表于 2022-8-14 09:54
+
+<blockquote>这波小组赛看完感觉战队档位是这样的
+
+T1:lgd
+
+T1.5:雪碧，og，鳖星，vp
+
+T2:rng，液体，秘密（老逼队加成），nigma（老逼队加成），eg，xg
+
+剩下的差不多都可以归入臭鱼烂虾
+
+然后纸面上能和lgd掰手腕的T1.5队伍里，og还有点嫩，vp看见lgd感觉像老鼠看见猫一样抱头鼠窜
+
+除了雪碧如果重返巅峰还有一战之力外，可能也就憋星能给lgd造成困扰了……</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">小组赛的预测，基本没啥问题，没料到vp尿裤，bc可以有t2等级
+
+*****
+
+####  阿垃垃圾历  
+##### 10431#       发表于 2022-8-14 09:54
+
+一觉醒来茶队前三 lgd决赛了 
+
+*****
+
+####  Cookiekira  
+##### 10432#       发表于 2022-8-14 09:54
+
+虚空这英雄大招真的很难放啊 一不小心就脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> 印象里只有上帝的虚空给我一种很稳的感觉
+
+*****
+
+####  thistimeforlife  
+##### 10433#       发表于 2022-8-14 09:55
+
+#鳖星进化 #杜鹏儿化龙 进度1%<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 10434#         楼主| 发表于 2022-8-14 09:55
+
+这版本c位的版本答案应该就是虚空了比较imba的几个三号位都很克制
+
+*****
+
+####  百世诸侯  
+##### 10435#       发表于 2022-8-14 09:56
+
+理智通透，今晚熬不熬夜
+
+*****
+
+####  雅朵莉雀  
+##### 10436#       发表于 2022-8-14 09:56
+
+剑圣出装有问题，他这盘顺得离谱，大概25分钟过一点就20级了，这时候茶队无论是酱油还是宙斯都是一转就死
+
+但是他跳刀出的实在太晚了，感觉他可以直接小电锤+双刀就出跳，越过酒仙找冰龙宙斯，后面几波OG找到机会也是剑圣配合puck一直切冰龙
+
+*****
+
+####  Keynes  
+##### 10437#       发表于 2022-8-14 09:56
+
+Monet赛后采访：“上次输给雪碧因为不够兴奋，像今天这么热血有机会战胜雪碧！”
+
+https://m.weibo.cn/3083660057/4802302157000229
+
+*****
+
+####  反方向的波  
+##### 10438#       发表于 2022-8-14 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057449&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 09:54</a>
+虚空这英雄大招真的很难放啊 一不小心就脑浆了 印象里只有上帝的虚空给我一种很稳的感觉 ...</blockquote>
+也不稳，ti9胜决第一把就是焦啄阶段上帝虚空送了没买让干瘪直接一波打死
+
+*****
+
+####  Yukino-Yukino  
+##### 10439#       发表于 2022-8-14 09:57
+
+<img src="https://img.saraba1st.com/forum/202208/14/095734xib76beizlkib6oe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 09:57 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 为了mf注册| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Yukino-Yukino  
+##### 10440#       发表于 2022-8-14 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057296&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-14 09:38</a>
+
+有图片吗？</blockquote>
+上面
+
+
+
+*****
+
+####  Litccc  
+##### 10441#       发表于 2022-8-14 09:58
+
+影分身是吧，这是哪位神秘大能啊
+
+*****
+
+####  thistimeforlife  
+##### 10442#       发表于 2022-8-14 09:59
+
+ok林狗和 明天干处长 今天最乐的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 10443#       发表于 2022-8-14 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一窝萨特
+
+*****
+
+####  吃货红毛  
+##### 10444#       发表于 2022-8-14 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看了大鞭哥双暴走 莫言跟鞭哥力中力 爆中爆啊
+
