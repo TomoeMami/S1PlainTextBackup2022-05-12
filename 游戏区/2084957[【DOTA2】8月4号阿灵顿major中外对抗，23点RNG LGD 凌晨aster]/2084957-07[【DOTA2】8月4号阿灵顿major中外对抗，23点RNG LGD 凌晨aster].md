@@ -9633,3 +9633,162 @@ md笑死我了我操，刚睁眼给我笑清醒了
 
 xxs也不会电魂，学一下崩溃哥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Keynes  
+##### 10172#       发表于 2022-8-14 08:33
+
+酒仙咋样
+
+*****
+
+####  snarc1  
+##### 10173#       发表于 2022-8-14 08:33
+
+烟火神
+
+*****
+
+####  4591  
+##### 10174#       发表于 2022-8-14 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056598&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-14 08:20</a>
+谎报！</blockquote>
+熊鳖要求和拿皇神单，人被打没了
+
+*****
+
+####  a1370303  
+##### 10175#       发表于 2022-8-14 08:34
+
+感觉这把不好打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 10176#       发表于 2022-8-14 08:34
+
+推塔点是熊猫
+
+*****
+
+####  天堂蜘蛛  
+##### 10177#       发表于 2022-8-14 08:34
+
+41拧开始了
+
+*****
+
+####  白野苍衣  
+##### 10178#       发表于 2022-8-14 08:34
+
+这阵容出来茶队寄了
+
+*****
+
+####  山上徹也  
+##### 10179#       发表于 2022-8-14 08:35
+
+bzm为什么要笑
+
+*****
+
+####  qty  
+##### 10180#       发表于 2022-8-14 08:35
+
+上一把陈简直和隐形了一样，打团几乎看不到它
+
+*****
+
+####  反方向的波  
+##### 10181#       发表于 2022-8-14 08:35
+
+野王的小强上次挺辣的啊
+
+*****
+
+####  Litccc  
+##### 10182#       发表于 2022-8-14 08:35
+
+核核的线下，这老哥是不是上sg的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 10183#       发表于 2022-8-14 08:35
+
+为什么不选夜魔
+
+*****
+
+####  外挂全家脚气  
+##### 10184#       发表于 2022-8-14 08:37
+
+感觉可以恭喜og吧，茶这次打得也挺不错了，加油
+
+*****
+
+####  nerugigannte  
+##### 10185#       发表于 2022-8-14 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这前中期对面推起来有小鹿和jugg哪来的输出呢
+
+*****
+
+####  qty  
+##### 10186#       发表于 2022-8-14 08:37
+
+感觉茶队也放开了，就是按练兵的心态来打的
+
+*****
+
+####  12481632  
+##### 10187#       发表于 2022-8-14 08:39
+
+骄阳骄阳！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zkc1991  
+##### 10188#       发表于 2022-8-14 08:39
+
+漏油们不会真的指望茶队能淘汰og吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 10189#       发表于 2022-8-14 08:39
+
+焦阳！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 10190#       发表于 2022-8-14 08:39
+
+这都能单杀
+
+*****
+
+####  弈秋  
+##### 10191#       发表于 2022-8-14 08:39
+
+这都能单杀
+
+*****
+
+####  逃离二次元  
+##### 10192#       发表于 2022-8-14 08:40
+
+神了神了
+
