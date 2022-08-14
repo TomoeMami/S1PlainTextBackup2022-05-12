@@ -6195,3 +6195,316 @@ dp完美节奏
 
 局面优数据不优，感觉又是中期送一波的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新的瑞拉  
+##### 11245#       发表于 2022-8-15 01:00
+
+别又是上一把的剧本啊，先睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 11246#       发表于 2022-8-15 01:01
+
+脑东京也配玩蓝猫吗，这状态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JoelBirch  
+##### 11247#       发表于 2022-8-15 01:01
+
+哇，这三个大，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 11248#       发表于 2022-8-15 01:01
+
+得看棚子补经济的能力了
+
+*****
+
+####  tengshuo980  
+##### 11249#       发表于 2022-8-15 01:01
+
+好啊好啊，互相脑浆是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 11250#       发表于 2022-8-15 01:01
+
+woc鹏子这个大
+
+
+
+*****
+
+####  弈秋  
+##### 11251#       发表于 2022-8-15 01:01
+
+什么jb大招
+
+*****
+
+####  白笛之音  
+##### 11252#       发表于 2022-8-15 01:02
+
+什么脑浆大战
+
+*****
+
+####  seki_m  
+##### 11253#       发表于 2022-8-15 01:02
+
+鹏子是不是以为自己能穿墙
+
+*****
+
+####  nightmare902015  
+##### 11254#       发表于 2022-8-15 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066984&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-15 00:42</a>
+以前的癫疯ee打的就是未来主义dota，可惜现在退役养老了。至于当下还在玩的职业选手我推荐关注克里斯神， ...</blockquote>
+克神风行相比之下其他英雄打得比较平淡啊，感觉还能再练练
+
+*****
+
+####  a1370303  
+##### 11255#       发表于 2022-8-15 01:02
+
+和上把差不多，经济没拉开啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 11256#       发表于 2022-8-15 01:03
+
+这假赛集美论坛已经无敌了，昨天凌晨出的真视界预告片，然后三冠王留了个补水集锦评论，今天白天下午国服开了精选评论，还留着这个评论，结果一帮假赛集美在那骂完美说故意过审这个评论，完美删了这个评论，集美们半夜又发个贴放删之前的截图带节奏
+
+*****
+
+####  仓鼠吃火锅  
+##### 11257#       发表于 2022-8-15 01:03
+
+复刻上一把
+
+*****
+
+####  nightmare902015  
+##### 11258#       发表于 2022-8-15 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067182&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-15 01:03</a>
+这假赛集美论坛已经无敌了，昨天凌晨出的真视界预告片，然后三冠王留了个补水集锦评论，今天白天下午国服开 ...</blockquote>
+虽然别什么都转，但那个“我已经举报完美运营了”真的笑到我了。
+
+*****
+
+####  ycz0212  
+##### 11259#       发表于 2022-8-15 01:04
+
+刚才在对面野区逛了一圈是不是没做视野？
+
+*****
+
+####  12481632  
+##### 11260#       发表于 2022-8-15 01:05
+
+脑东京这把炸了呀
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 11261#       发表于 2022-8-15 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067190&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 01:04</a>
+
+虽然别什么都转，但那个“我已经举报完美运营了”真的笑到我了。</blockquote>
+虽然知道假赛论坛都是弱智
+
+但是真没想到能弱智到这种程度。。。
+
+*****
+
+####  tengshuo980  
+##### 11262#       发表于 2022-8-15 01:05
+
+这蓝猫没死，吐了啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  haruhiismer  
+##### 11263#       发表于 2022-8-15 01:06
+
+蓝猫这都不死bkb打出来想死也死不掉了
+
+*****
+
+####  北条早苗  
+##### 11264#       发表于 2022-8-15 01:06
+
+这罩大没杀掉真的亏
+
+*****
+
+####  莉拉厨  
+##### 11265#       发表于 2022-8-15 01:06
+
+杜鹏卜基德啊，一个被动不出
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JoelBirch  
+##### 11266#       发表于 2022-8-15 01:06
+
+草这都没打死<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 11267#       发表于 2022-8-15 01:06
+
+没暴呀
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 11268#       发表于 2022-8-15 01:06
+
+这被动
+
+*****
+
+####  12481632  
+##### 11269#       发表于 2022-8-15 01:06
+
+基德基德
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 11270#       发表于 2022-8-15 01:06
+
+草，鹏子的虚空一个被动都不出啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 11271#       发表于 2022-8-15 01:07
+
+这局势一点都不稳啊，复刻上把吗
+
+*****
+
+####  ycz0212  
+##### 11272#       发表于 2022-8-15 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067225&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 01:07</a>
+ 这局势一点都不稳啊，复刻上把吗</blockquote>
+比上局经济优势多一点
+
+*****
+
+####  Keynes  
+##### 11273#       发表于 2022-8-15 01:08
+
+哇，这虚空真的一下不爆呀
+
+*****
+
+####  haruhiismer  
+##### 11274#       发表于 2022-8-15 01:08
+
+剑圣刷起来了
+
+*****
+
+####  iriyano  
+##### 11275#       发表于 2022-8-15 01:09
+
+骄阳这种发挥只领先2k，吐了
+
+*****
+
+####  nightmare902015  
+##### 11276#       发表于 2022-8-15 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067236&amp;ptid=2084957" target="_blank">ycz0212 发表于 2022-8-15 01:08</a>
+比上局经济优势多一点</blockquote>
+上把肥的是点金doom这把是jugg，难搞
+
+*****
+
+####  Keynes  
+##### 11277#       发表于 2022-8-15 01:09
+
+这脑东京有点帅
+
+*****
+
+####  北条早苗  
+##### 11278#       发表于 2022-8-15 01:09
+
+野王这几波打得漂亮啊
+
+*****
+
+####  吃货红毛  
+##### 11279#       发表于 2022-8-15 01:10
+
+牙 脱 落 谢谢你
+
+*****
+
+####  haruhiismer  
+##### 11280#       发表于 2022-8-15 01:10
+
+牙脱落毒发了
+
+
+
+*****
+
+####  Keynes  
+##### 11281#       发表于 2022-8-15 01:10
+
+这丫头肉有点偶像的味道了
+
+*****
+
+####  ArowRocher  
+##### 11282#       发表于 2022-8-15 01:10
+
+团灭发动机
+
+*****
+
+####  弈秋  
+##### 11283#       发表于 2022-8-15 01:10
+
+牙托落
+
+*****
+
+####  迷途lite  
+##### 11284#       发表于 2022-8-15 01:10
+
+这bjb脸怎么都不晕的啊
+
