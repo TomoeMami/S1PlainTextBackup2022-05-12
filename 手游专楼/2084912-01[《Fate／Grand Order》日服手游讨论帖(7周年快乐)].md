@@ -11366,3 +11366,19 @@ all in了  但就new了2个 本非萌有什么办法</blockquote>
 RBA求求你千万不要是打手
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1067#       发表于 2022-8-14 13:37
+
+5单才1宝，甚至4星都没满宝，还new了个奥德修斯<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1068#       发表于 2022-8-14 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望美少女是枪阶水平 没石头抽的我好痛苦
+
