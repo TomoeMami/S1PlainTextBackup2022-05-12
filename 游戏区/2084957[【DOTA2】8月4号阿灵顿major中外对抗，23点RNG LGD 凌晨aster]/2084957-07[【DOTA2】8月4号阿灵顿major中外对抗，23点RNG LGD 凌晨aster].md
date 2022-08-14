@@ -11789,3 +11789,129 @@ ok林狗和 明天干处长 今天最乐的<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看了大鞭哥双暴走 莫言跟鞭哥力中力 爆中爆啊
 
+
+
+*****
+
+####  Cookiekira  
+##### 10445#       发表于 2022-8-14 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057471&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-14 09:56</a>
+也不稳，ti9胜决第一把就是焦啄阶段上帝虚空送了没买让干瘪直接一波打死 ...</blockquote>
+那波感觉是fygod太屌了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 这机会都能抓到
+
+*****
+
+####  莉拉厨  
+##### 10446#       发表于 2022-8-14 10:01
+
+不熬夜明天早上六点起来都打完了，估计和animajor比分一样
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 10447#       发表于 2022-8-14 10:01
+
+希望打完major之后真视界和大更新同时放出<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 10448#       发表于 2022-8-14 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057526&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-14 10:01</a>
+ 希望打完major之后真视界和大更新同时放出</blockquote>
+真视界9月24呢，大更新和本子明天出最好
+
+*****
+
+####  syndrome2032  
+##### 10449#       发表于 2022-8-14 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057511&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 10:00</a>
+那波感觉是fygod太屌了 这机会都能抓到</blockquote>
+也是上帝给机会，更了林肯没留买活。
+
+*****
+
+####  不应  
+##### 10450#       发表于 2022-8-14 10:04
+
+漏油一直吹的atf真的就是又菜又装啊，比起他的前辈ceb真的是一根毛都算不上，ceb好歹够强吧
+
+*****
+
+####  重名的mufasa  
+##### 10451#       发表于 2022-8-14 10:06
+
+已知k1乳化,atf喷k1.
+
+又知xxs路人被atf喷,皮球嘲讽atf.
+
+nga小可爱的脑容量已经处理不过来了.
+
+*****
+
+####  健康猹  
+##### 10452#       发表于 2022-8-14 10:06
+
+期待克格勃纪录片
+
+*****
+
+####  漂灵  
+##### 10453#       发表于 2022-8-14 10:06
+
+今晚的比赛除了处长依旧畜牲和明鞭依旧暴力，其他人的表现都有点超乎我意料了
+
+*****
+
+####  蛭人  
+##### 10454#       发表于 2022-8-14 10:07
+
+ti9的fy莱恩是玩的不错的，可惜集美眼中是geigei输比赛的最大罪人。
+
+*****
+
+####  nowaki  
+##### 10455#       发表于 2022-8-14 10:07
+
+假三真一的版本果然ts打不赢lgd
+
+*****
+
+####  jy000129  
+##### 10456#       发表于 2022-8-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057335&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-14 09:42</a>
+要不把余韵叫来翻译吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能鞭尸烟花神的
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yukino-Yukino  
+##### 10457#       发表于 2022-8-14 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057487&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-14 09:58</a>
+
+影分身是吧，这是哪位神秘大能啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，是滚动文字，那图是四张图拼起来的。
+
+*****
+
+####  w2210059  
+##### 10458#       发表于 2022-8-14 10:08
+
+17岁能拿major天天跳脸也正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 10459#       发表于 2022-8-14 10:10
+
+杜科长真能把王处干了能不能提一下级别，升四级主任科员
+

@@ -10278,3 +10278,54 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 白公主水伊吹双暗兔体系说不定能搞起来<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 967#       发表于 2022-8-14 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057472&amp;ptid=2084912" target="_blank">zooandtoo 发表于 2022-8-14 09:57</a>
+
+日基还真有拿伊吹没战续没宝具封印来扯不是泳装伊吹的下位互换的。。
+
+那可是蓝卡队 ...</blockquote>
+蓝卡队重要的就是连发和伤害，高难生存方面的增益就和绿卡队溢出的星星一样鸡肋...
+
+*****
+
+####  khxooo  
+##### 968#       发表于 2022-8-14 10:01
+
+氪了4单，2宝伊吹加歪皇女和狐狸，算是可以了。
+
+*****
+
+####  里村紅葉  
+##### 969#       发表于 2022-8-14 10:04
+
+可惜我4宝水武藏都失业好久了，这伊吹更不用抽了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Erikas  
+##### 970#       发表于 2022-8-14 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">水武藏我不要了能不能把素材还我去喂伊吹
+
+*****
+
+####  poor  
+##### 971#       发表于 2022-8-14 10:05
+
+所以才没有复刻泡馍吗？YLS你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是复刻了水武藏
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  angelooo  
+##### 972#       发表于 2022-8-14 10:10
+
+武则天数据也出了，红光炮，技能而言是万物特攻拐，群体20充，现在rba这边的压力要炸了
+
