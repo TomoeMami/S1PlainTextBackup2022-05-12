@@ -5113,3 +5113,14 @@ https://twitter.com/midori_2434/status/1558815719449853952?s=20&amp;t=cE05t4rRVm
 
 看着郡道在大片的虹甲感言推特里大聊特聊one peace电影感想有些好笑，这最新一个推“にじさんじ個人勢です”蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 16970#       发表于 2022-8-14 22:55
+
+[https://www.youtube.com/watch?v=T9IbKRMiK74](https://www.youtube.com/watch?v=T9IbKRMiK74)
+
+樋口楓の一言で男泣きするレオス監督
+

@@ -3302,3 +3302,66 @@ ti寄了，才是真寄到位了
 
 萨特我砍，今晚举个“无敌了呀，处长”吧
 
+
+
+*****
+
+####  lmslardar  
+##### 10875#       发表于 2022-8-14 22:51
+
+今天是有全明星吗 为啥决赛三点开始
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 10876#       发表于 2022-8-14 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065081&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-14 10:03</a>
+萨特是你吗，我砍</blockquote>
+这是什么新梗吗，一天不看直播跟不上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 10877#       发表于 2022-8-14 22:55
+
+哈哈哈哈哈。学到了嘲讽别人
+
+*****
+
+####  ArowRocher  
+##### 10878#       发表于 2022-8-14 22:57
+
+草这lakers24戏来了是吧
+
+*****
+
+####  健康猹  
+##### 10879#       发表于 2022-8-14 22:58
+
+看好茶队一选5号位飞机
+
+*****
+
+####  -SLSL-  
+##### 10880#       发表于 2022-8-14 22:59
+
+怎么观众连茶队的旗子都准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10881#       发表于 2022-8-14 22:59
+
+皮球这个科芘衣服有点黑暗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 10882#       发表于 2022-8-14 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065735&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-14 22:55</a>
+
+这是什么新梗吗，一天不看直播跟不上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">有钱人就是萨特，一个波波死我们狗头人
+

@@ -1029,3 +1029,14 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 她自己射火箭之前就宣告了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草,这么大胆
 
+
+
+*****
+
+####  holoan  
+##### 93#         楼主| 发表于 2022-8-14 22:53
+
+这狙是真的用的很差
+
+不过也是万年没打过FPS了 还是ark那种不用精确操作的适合
+
