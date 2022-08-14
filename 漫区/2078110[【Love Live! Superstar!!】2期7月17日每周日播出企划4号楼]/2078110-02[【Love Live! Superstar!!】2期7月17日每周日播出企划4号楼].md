@@ -11053,3 +11053,27 @@ vn的精致3d小人可都做好了，九人这种话可不能乱说，因为大�
 乐了，建议结成一个∞个人的团，进一步来个真正意义上的みんなで叶える物語 ...</blockquote>
 答案是毕业机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2571#       发表于 2022-8-14 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕业什么的可不能乱说
+
+*****
+
+####  ads147147  
+##### 2572#       发表于 2022-8-14 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062969&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-14 19:09</a>
+乐了，建议结成一个∞个人的团，进一步来个真正意义上的みんなで叶える物語 ...</blockquote>
+之前就看人提到了，要是真香音传也就算了，问题是这次非常纠结于大家实现的故事，香音emo了，大家（校友工具人）就出现治emo，恋恋崩了，大家就出现蜜汁鼓掌，大会不知道怎么打，大家出现摆蜡烛。第二季更是动不动就来你们就是我们的star，音乐科的子真不算大家咯。
+
+一期里写得好的部分大部分都是和大家没什么鸟关系的集数。
+
+只能说都想要就都写的不行。这次ceo就很自我，反而就写的很灵性
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

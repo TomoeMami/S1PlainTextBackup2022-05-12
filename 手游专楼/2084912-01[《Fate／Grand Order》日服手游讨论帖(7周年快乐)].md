@@ -12644,3 +12644,32 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 他们这么功利的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这事每次出新拐隔壁都要战，这次更新了多套助战后，为了要不要把所有助战全放满这事都战了好几天，还有被动2技能不点满的贴也不少了
 
+
+
+*****
+
+####  kiralzb  
+##### 1187#       发表于 2022-8-14 19:10
+
+助战不是按喜欢放就完了吗，只有拐的技能拉满，多余的材料都用到终破卡面和灵衣啥的，死鱼哪有那么多资源，我看日服好友还不少130级呢，还是每天登陆，但技能都不满，佛系得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 1188#       发表于 2022-8-14 19:12
+
+隔壁那个拔毛标准还有发帖求认同不是纯粹装逼么，正常人不追求六加成可用的组队选项可太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1189#       发表于 2022-8-14 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062933&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-14 19:06</a>
+
+我是开始就合了然后助战一直没有刷到过，又是自然回体刷本，进度超慢 ...</blockquote>
+我单纯就是测旧梅和伊吹的时候打本打多了
+
+现在点数50w
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
