@@ -2114,3 +2114,26 @@ nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长�
 仔细想想杜儿鹏儿上次打决赛日是不是ti7</blockquote>
 在rng的时候minor决赛打nigma，有两盘分别领先2w、3w经济被翻盘
 
+
+
+*****
+
+####  逃离二次元  
+##### 10737#       发表于 2022-8-14 16:30
+
+<img src="https://p.sda1.dev/6/50c209de965da49c98a00040f32a415b/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 10738#       发表于 2022-8-14 16:35
+
+鳖孙8级点评团的时候没把他打的88sg，满屏黑畜的时候他反而受不了了是吧。
+
+*****
+
+####  尸体鲨  
+##### 10739#       发表于 2022-8-14 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝活水人变猴子是吧
+

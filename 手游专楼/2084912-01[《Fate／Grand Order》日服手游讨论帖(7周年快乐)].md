@@ -11999,3 +11999,67 @@ RBA求求你千万不要是打手
 那没事了233</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁现在打的正欢 吹的吹上天了 什么人权 最强卡池  黑的各种黑 从模型到卡面 无所不黑
 
+
+
+*****
+
+####  kiralzb  
+##### 1125#       发表于 2022-8-14 16:32
+
+没素材了，终破不了水伊，去找了最终卡面，果然用的是初始形态，我也觉得最顺眼，可惜啊，这终破还得绑定三破立绘<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+再补两单抽到2宝，先等rba看看什么情况了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1126#       发表于 2022-8-14 16:33
+
+<blockquote>kiralzb 发表于 2022-8-14 16:32
+没素材了，终破不了水伊，去找了最终卡面，果然用的是初始形态，我也觉得最顺眼，可惜啊，这终破还得绑定三 ...</blockquote>
+我一般是这么操作，头像用满破，然后其他挑自己喜欢的用，头像是不绑定立绘的，实在是没办法了
+
+*****
+
+####  kiralzb  
+##### 1127#       发表于 2022-8-14 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061260&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 16:33</a>
+我一般是这么操作，头像用满破，然后其他挑自己喜欢的用，头像是不绑定立绘的，实在是没办法了 ...</blockquote>
+但是终破图一般比较好看啊，其他都是立绘卡图<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1128#       发表于 2022-8-14 16:34
+
+你游该出了看版娘的功能了。。现在这种绑定队伍第1个人不知道图什么
+
+*****
+
+####  angelooo  
+##### 1129#       发表于 2022-8-14 16:35
+
+<blockquote>alucardcz 发表于 2022-8-14 16:24
+隔壁现在打的正欢 吹的吹上天了 什么人权 最强卡池  黑的各种黑 从模型到卡面 无所不黑 ...</blockquote>
+虽然我很喜欢伊吹，但穷逼只能先确保一宝再说了，反正又不是没别的卡可以用，隔壁属实是太有空了
+
+*****
+
+####  alucardcz  
+##### 1130#       发表于 2022-8-14 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061284&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 16:35</a>
+
+虽然我很喜欢伊吹，但穷逼只能先确保一宝再说了，反正又不是没别的卡可以用，隔壁属实是太有空了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本穷逼甚至0宝（
+
+*****
+
+####  angelooo  
+##### 1131#       发表于 2022-8-14 16:36
+
+<blockquote>kiralzb 发表于 2022-8-14 16:34
+但是终破图一般比较好看啊，其他都是立绘卡图</blockquote>
+是这样，所以绑定三破简直有病，特别有些三破不怎么行的
+
