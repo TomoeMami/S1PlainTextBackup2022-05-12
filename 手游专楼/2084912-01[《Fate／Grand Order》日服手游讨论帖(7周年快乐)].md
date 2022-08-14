@@ -12740,3 +12740,49 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 萌新急着看rba性能 考虑要不要换成6羁绊礼装刷活动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传说中的爆肝拿羁绊石模式要开启了么
 
+
+
+*****
+
+####  qixinno2  
+##### 1196#       发表于 2022-8-14 20:00
+
+到时给个水阿比就爆笑了
+
+*****
+
+####  Lamas  
+##### 1197#       发表于 2022-8-14 20:01
+
+现在买石头号该怎么买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想蝗个几天
+
+*****
+
+####  alucardcz  
+##### 1198#       发表于 2022-8-14 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063398&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-14 19:58</a>
+
+传说中的爆肝拿羁绊石模式要开启了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水伊还不配 就看rba了
+
+*****
+
+####  霧谷藤乃  
+##### 1199#       发表于 2022-8-14 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063437&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 20:01</a>
+
+水伊还不配 就看rba了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三天后看阿叶能整出什么活儿吧
+
+*****
+
+####  alucardcz  
+##### 1200#       发表于 2022-8-14 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063498&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-14 20:05</a>
+
+三天后看阿叶能整出什么活儿吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最好是个花瓶 那我把剩下的那点票子和单抽丢给水伊池 爱出不出
+
