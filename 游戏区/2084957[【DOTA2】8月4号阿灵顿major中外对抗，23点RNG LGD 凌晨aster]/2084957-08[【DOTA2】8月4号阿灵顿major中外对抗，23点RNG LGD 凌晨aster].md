@@ -1796,3 +1796,51 @@ g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
 
 始祖鳖保持缩头，茶队才有能有成绩
 
+
+
+*****
+
+####  沈淮  
+##### 10702#         楼主| 发表于 2022-8-14 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059895&amp;ptid=2084957" target="_blank">-SLSL- 发表于 2022-8-14 13:50</a>
+鹏子今晚能进化我明天就给septerber猫刷个✈</blockquote>
+管人痴滚
+
+*****
+
+####  沈淮  
+##### 10703#         楼主| 发表于 2022-8-14 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059942&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-14 13:56</a>
+杜鹏能夺冠我发黑丝女装</blockquote>
+已截图
+
+*****
+
+####  沈淮  
+##### 10704#         楼主| 发表于 2022-8-14 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060134&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-14 14:16</a>
+杜鹏能major夺冠我TI11总决赛那晚直播打野，让野怪穿LGD队服</blockquote>
+郭楠真下头
+
+*****
+
+####  外挂全家脚气  
+##### 10705#       发表于 2022-8-14 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057916&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-14 10:32</a>
+杰畜又蹭到了</blockquote>
+官方采访MONET还提到如何看拷打了
+【Major前线第十一期：Monet赛后采访，感谢粉丝的支持-哔哩哔哩】 https://b23.tv/lkNpPtb
+
+*****
+
+####  CNFH1984  
+##### 10706#       发表于 2022-8-14 14:36
+
+其实曾焦阳如果对线能够一直都很强的话，绝对能竞争t1的中单
+
+有人说曾焦阳ti变现不佳……问题是拒绝鱼也铁证明了他不是个大赛型选手呀……
+
