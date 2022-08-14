@@ -1391,3 +1391,56 @@ N0tail现在在干嘛，当教练还是享受人生</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 10654#       发表于 2022-8-14 12:20
+
+皮套狗在做lgd举盾自己登基为后的美梦呢，可惜我们都知道结局是什么
+
+*****
+
+####  IG.430  
+##### 10655#       发表于 2022-8-14 12:23
+
+冠军历来都是三日断情的，有些比较不体面的还会直球骂婊！子<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10656#       发表于 2022-8-14 12:26
+
+被绿的男人能拿双冠
+
+*****
+
+####  43453  
+##### 10657#       发表于 2022-8-14 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058733&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 11:53</a>
+atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</blockquote>
+看好OG可以打回来，毕竟可以趁LGD不在偷了个major冠军
+
+*****
+
+####  何然  
+##### 10658#       发表于 2022-8-14 12:27
+
+漏油赶紧给pis补发双冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 10659#       发表于 2022-8-14 12:28
+
+呼叫管人痴张献忠
+
+*****
+
+####  逃离二次元  
+##### 10660#       发表于 2022-8-14 12:29
+
+杀光梓楼的集美
+

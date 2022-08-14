@@ -11104,3 +11104,113 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 现在越走越极端，以至于到水伊吹，反正以我理解是不在大众审美上。
 
+
+
+*****
+
+####  exiaexa  
+##### 1045#       发表于 2022-8-14 12:20
+
+ 本帖最后由 exiaexa 于 2022-8-14 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058944&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 12:08</a>
+
+毛衣应该就是赶这个时髦的设计，模型倒是挺好看
+
+小教授主要是每破都有那个闪电眼影，有的人是真接受不了 ...</blockquote>
+你在说什么，你先告诉我你从啥时候开始玩这破游戏的，不然这天没法聊了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+raita从奶光开始一直被畸形党婊到现在，他唯一一个没被挑刺的是老教授
+
+狂金时还因为发型还被嫌弃过，拿到255灵衣才彻底翻身
+
+紫式部当年天天有人吹十三单好看，嫌弃前两破畸形的
+
+酒吞都被嫌弃过大腿问题
+
+怎么就广受欢迎了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 1046#       发表于 2022-8-14 12:21
+
+卧槽，原来一单满宝这种事是真的会发生的，抽之前还早考虑要不要抽满，叶哥哥直接帮我安排了，5发11连伊吹满宝，你们没看错，是5发，不是500石，更不是5单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1047#       发表于 2022-8-14 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059080&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2022-8-14 12:21</a>
+
+卧槽，原来一单满宝这种事是真的会发生的，抽之前还早考虑要不要抽满，叶哥哥直接帮我安排了，5发11连伊吹 ...</blockquote>
+衷心祝愿你还债顺利
+
+反正我还完了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1048#       发表于 2022-8-14 12:24
+
+<blockquote>exiaexa 发表于 2022-8-14 12:20
+你在说什么，你先告诉我你从啥时候开始玩这破游戏的，不然这天没法聊了
+
+</blockquote>
+水奶光有过什么节奏吗，胸不算，我个人觉得雷太女性卡里最好看的是这张
+
+男性卡老教授确实很好没得说
+
+*****
+
+####  quanlix  
+##### 1049#       发表于 2022-8-14 12:26
+
+这两天课的金快赶上去年一年课的了
+
+*****
+
+####  exiaexa  
+##### 1050#       发表于 2022-8-14 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059108&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 12:24</a>
+
+水奶光有过什么节奏吗，胸不算，我个人觉得雷太女性卡里最好看的是这张
+
+男性卡老教授确实很好没得说 ...</blockquote>
+还真有，虽然喷点是真的有病
+
+喷太瘦看着难受
+
+当初我还在贴吧跟人科（dui）普（pen）过，骨感爆ru就是raita的性癖
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 1051#       发表于 2022-8-14 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059108&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 12:24</a>
+
+水奶光有过什么节奏吗，胸不算，我个人觉得雷太女性卡里最好看的是这张
+
+男性卡老教授确实很好没得说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪奶光还行吧 估计主要说的是狂奶光的气球奶配上那衣服太别扭了吧
+
+*****
+
+####  xiongxingyu  
+##### 1052#       发表于 2022-8-14 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059086&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 12:22</a>
+
+衷心祝愿你还债顺利
+
+反正我还完了</blockquote>
+姑且我蓝莓池25发11连1宝能算垫一半吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
