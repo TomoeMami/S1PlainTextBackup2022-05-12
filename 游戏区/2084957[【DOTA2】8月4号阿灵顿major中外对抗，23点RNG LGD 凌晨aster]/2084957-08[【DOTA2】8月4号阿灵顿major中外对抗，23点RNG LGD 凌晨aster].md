@@ -10574,3 +10574,317 @@ lgd又犯病了是吧。。。
 
 醒一醒  第三把了
 
+
+
+*****
+
+####  思考者的迷  
+##### 11817#       发表于 2022-8-15 07:10
+
+大鞭哥感觉还是透支了 这两把状态都一般（虽然英雄雀实吃屎
+
+*****
+
+####  反方向的波  
+##### 11818#       发表于 2022-8-15 07:11
+
+大便哥有点求胜心切了
+
+*****
+
+####  zkc1991  
+##### 11819#       发表于 2022-8-15 07:11
+
+鞭哥死的有点多了，他不肥LGD很难赢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遍体精淋af  
+##### 11820#       发表于 2022-8-15 07:11
+
+感觉局势越来越像ti决赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老干瘪为了给处长搭台秀不以明鞭为中心，把所有资源给处长，然后处长他能撑局势吗撑不了知道吗
+
+
+
+*****
+
+####  杜文乐超神归来  
+##### 11821#       发表于 2022-8-15 07:12
+
+买活这波把人打没了
+
+*****
+
+####  端木恋心  
+##### 11822#       发表于 2022-8-15 07:12
+
+小娜迦正面还是太弱了啊
+
+*****
+
+####  轮太  
+##### 11823#       发表于 2022-8-15 07:12
+
+非要证明下水道
+
+*****
+
+####  pikamee  
+##### 11824#       发表于 2022-8-15 07:13
+
+第二局拖了75分钟被鸭头暴走结束比赛，lgd6个人肉眼可见的一脸ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 很难不1:3回家
+
+*****
+
+####  zkc1991  
+##### 11825#       发表于 2022-8-15 07:13
+
+等一个明鞭和莫言演我giegie<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">，都回来了
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  usoda  
+##### 11826#       发表于 2022-8-15 07:13
+
+处长的naga有梗的呀 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 11827#       发表于 2022-8-15 07:13
+
+都不在状态= =走远了啊
+
+*****
+
+####  蛭人  
+##### 11828#       发表于 2022-8-15 07:16
+
+处长真的牛逼辉耀冰眼分身，这斯温小小靠伐木机dp是吧。
+
+*****
+
+####  遍体精淋af  
+##### 11829#       发表于 2022-8-15 07:16
+
+ 本帖最后由 遍体精淋af 于 2022-8-15 07:18 编辑 
+
+处长：ti10决赛我被娜迦羞辱，于是我苦练绝活娜迦，现在终于又站在决赛的舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">我定要洗刷所有的耻辱（然后被打爆，杂鱼感desu
+
+*****
+
+####  iriyano  
+##### 11830#       发表于 2022-8-15 07:16
+
+打到决赛突然有开始4保1了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  思考者的迷  
+##### 11831#       发表于 2022-8-15 07:16
+
+lgd要靠处长傻刷的时候 一般都无了
+
+*****
+
+####  zkc1991  
+##### 11832#       发表于 2022-8-15 07:17
+
+出辉耀就是要膀胱荣耀了啊
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 11833#       发表于 2022-8-15 07:18
+
+面八是真不行，非要四保畜，又不是没被暴打过，不长教训
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  我爱撩菜  
+##### 11834#       发表于 2022-8-15 07:18
+
+GG<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 11835#       发表于 2022-8-15 07:18
+
+尿了一地啊
+
+*****
+
+####  端木恋心  
+##### 11836#       发表于 2022-8-15 07:18
+
+碾压了
+
+*****
+
+####  轮太  
+##### 11837#       发表于 2022-8-15 07:18
+
+这是上把气势没了吧
+感觉可以睡觉了
+
+*****
+
+####  cobymar  
+##### 11838#       发表于 2022-8-15 07:18
+
+好起来了好起来了
+
+*****
+
+####  我爱撩菜  
+##### 11839#       发表于 2022-8-15 07:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么要相信萧瑟啊，相信莫言相信鞭酱不好吗
+
+*****
+
+####  一夜秋风袭锦城  
+##### 11840#       发表于 2022-8-15 07:18
+
+处长打到这种局脑子都不太好使
+
+*****
+
+####  黑暗剑qui  
+##### 11841#       发表于 2022-8-15 07:18
+
+好好好
+
+*****
+
+####  asd235614  
+##### 11842#       发表于 2022-8-15 07:18
+
+卧槽yatoro这切入真是赏心悦目
+
+*****
+
+####  杜文乐超神归来  
+##### 11843#       发表于 2022-8-15 07:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一把屠夫吃伤害不是玩得挺好的，非要相信处长
+
+*****
+
+####  千千千千鸟  
+##### 11844#       发表于 2022-8-15 07:18
+
+第四把喽，看下是4把结束还是5把结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幻想风靡_  
+##### 11845#       发表于 2022-8-15 07:19
+
+LGD的话或许能拉满5把
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白野苍衣  
+##### 11846#       发表于 2022-8-15 07:19
+
+加油加油，还有一把。
+
+*****
+
+####  zkc1991  
+##### 11847#       发表于 2022-8-15 07:19
+
+决赛的LGD，就是这个味<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CNFH1984  
+##### 11848#       发表于 2022-8-15 07:19
+
+好好好，神罚！
+
+*****
+
+####  syndrome2032  
+##### 11849#       发表于 2022-8-15 07:19
+
+宰畜了。。。。第一把看着了我直接去睡了。。
+
+md，不要赢了major输了ti啊。。。
+
+*****
+
+####  思考者的迷  
+##### 11850#       发表于 2022-8-15 07:19
+
+真不能怪人黑LGD 这打的是个啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  thistimeforlife  
+##### 11851#       发表于 2022-8-15 07:19
+
+割割:对面要出金箍棒 所以我出辉耀，致敬自己
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  usoda  
+##### 11852#       发表于 2022-8-15 07:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才是处长的味道 太对了
+
+*****
+
+####  nomhrpls  
+##### 11853#       发表于 2022-8-15 07:19
+
+最后一波团sv这切入好屌啊
+
+*****
+
+####  我爱撩菜  
+##### 11854#       发表于 2022-8-15 07:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又想起了TI10真视界预告的，当最后一把打
+
+*****
+
+####  外挂全家脚气  
+##### 11855#       发表于 2022-8-15 07:20
+
+光速GG<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 11856#       发表于 2022-8-15 07:20
+
+好似喵，好似喵。不过后面还不好说呢，不能提前宣布
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 11857#       发表于 2022-8-15 07:20
+
+又看到有人在主舞台刷吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
