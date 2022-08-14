@@ -10310,3 +10310,282 @@ atf这把被ceb吸干了<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  为了mf注册  
+##### 10260#       发表于 2022-8-14 09:10
+
+感觉这把茶应该拿下了啊，可以啊
+
+
+
+*****
+
+####  nxmonitor  
+##### 10261#       发表于 2022-8-14 09:10
+
+本泽马真以为对面不能杀他？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 10262#       发表于 2022-8-14 09:10
+
+atf这什么出装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 10263#       发表于 2022-8-14 09:10
+
+BZM跟俩大哥一块儿尿了，可寄
+
+*****
+
+####  白野苍衣  
+##### 10264#       发表于 2022-8-14 09:11
+
+这OG打的太脑浆了
+
+*****
+
+####  白野苍衣  
+##### 10265#       发表于 2022-8-14 09:11
+
+恭喜茶队挺近决赛日了
+
+*****
+
+####  逃离二次元  
+##### 10266#       发表于 2022-8-14 09:11
+
+学无止境啊
+
+*****
+
+####  listenermy  
+##### 10267#       发表于 2022-8-14 09:11
+
+我看油垃圾选个剑圣一直死刷是这样的啊，建议油垃圾看一百遍始祖鳖带樱花兄弟夺冠的剑圣是怎么打的
+
+*****
+
+####  12481632  
+##### 10268#       发表于 2022-8-14 09:13
+
+鹏子差点又犯罪
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 10269#       发表于 2022-8-14 09:13
+
+脑浆大
+
+*****
+
+####  千千千千鸟  
+##### 10270#       发表于 2022-8-14 09:13
+
+买活上山？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 10271#       发表于 2022-8-14 09:13
+
+漏油们不会真的指望茶队能淘汰og吧查不多得勒
+
+*****
+
+####  我爱撩菜  
+##### 10272#       发表于 2022-8-14 09:14
+
+好了，应该拿下了。这盘45克对面太明显了
+
+*****
+
+####  杜文乐超神归来  
+##### 10273#       发表于 2022-8-14 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">缩壳了，再睡一觉就是滔天巨浪
+
+*****
+
+####  莉拉厨  
+##### 10274#       发表于 2022-8-14 09:14
+
+脑浆团战啊，这都打赢了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  端木恋心  
+##### 10275#       发表于 2022-8-14 09:14
+
+og打太久晕了吧。
+
+*****
+
+####  nxmonitor  
+##### 10276#       发表于 2022-8-14 09:14
+
+这虚空真的别拿出来玩了，各种操作变形瞎比跳……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 10277#       发表于 2022-8-14 09:14
+
+OG这打的，五个人都化身小丑。
+
+*****
+
+####  やト  
+##### 10278#       发表于 2022-8-14 09:14
+
+杜鹏进化大鹏了
+
+*****
+
+####  ArowRocher  
+##### 10279#       发表于 2022-8-14 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057007&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-14 09:13</a>
+漏油们不会真的指望茶队能淘汰og吧查不多得勒</blockquote>
+你到底什么时候发的帖啊
+
+*****
+
+####  Keynes  
+##### 10280#       发表于 2022-8-14 09:15
+
+这把真的是四个队友给杜鹏儿尿兜住了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  listenermy  
+##### 10281#       发表于 2022-8-14 09:15
+
+A畜（TF）
+
+*****
+
+####  sodah  
+##### 10282#       发表于 2022-8-14 09:15
+
+atf这个逼电魂这把屁事不干，再买活主动上山。
+
+*****
+
+####  chilno  
+##### 10283#       发表于 2022-8-14 09:15
+
+全华班！全华班！
+
+*****
+
+####  12481632  
+##### 10284#       发表于 2022-8-14 09:16
+
+atf被ceb吸干了连团都不会打了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chilno  
+##### 10285#       发表于 2022-8-14 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057028&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-14 09:15</a>
+这把真的是四个队友给杜鹏儿尿兜住了</blockquote>
+全面学习lgd是吧
+
+*****
+
+####  walfeds  
+##### 10286#       发表于 2022-8-14 09:16
+
+自闭了，老老实实回家拉练吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Cookiekira  
+##### 10287#       发表于 2022-8-14 09:16
+
+末日洪水啊这是 溜了溜了 坐诺亚方舟去了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">  我的屠醋英雄在哪里
+
+*****
+
+####  坚定的团子党  
+##### 10288#       发表于 2022-8-14 09:17
+
+要输根本原因是ceb小鹿5号位还吸电棍的血，团战还没啥用，就一个血棘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 10289#       发表于 2022-8-14 09:17
+
+好呀骄阳总g地板是何意啊
+
+*****
+
+####  天堂蜘蛛  
+##### 10290#       发表于 2022-8-14 09:18
+
+OG三大哥全员跳刀，麻了已经
+
+
+
+*****
+
+####  吃货红毛  
+##### 10291#       发表于 2022-8-14 09:18
+
+这他熊猫大也能省吗兄弟来自: iPhone客户端
+
+*****
+
+####  千千千千鸟  
+##### 10292#       发表于 2022-8-14 09:19
+
+ORI的BKB伏笔了呀
+
+*****
+
+####  弈秋  
+##### 10293#       发表于 2022-8-14 09:19
+
+这剑圣完全打不过虚空了
+
+*****
+
+####  Keynes  
+##### 10294#       发表于 2022-8-14 09:19
+
+哇，这鳖星比赛真的血压拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10295#       发表于 2022-8-14 09:19
+
+这波上高，熊猫早就可以开大了啊，熊猫大拆塔很快的……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 10296#       发表于 2022-8-14 09:19
+
+不如说杜鹏的bkb伏笔了呀，刚才放大的时候没被缴械剑圣就死了啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
