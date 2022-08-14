@@ -10989,3 +10989,63 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 估计又是狂仇大战吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了 忘记了 欧羡慕 欧皇今年new的5星至少是本非萌的3倍多了
 
+
+
+*****
+
+####  exiaexa  
+##### 1035#       发表于 2022-8-14 11:50
+
+你们谁在常规助战给我挂一个伊吹，刷了两三次找不到
+
+我想去找个111本打，礼装只要不给NP挂啥都行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1036#       发表于 2022-8-14 11:53
+
+ 本帖最后由 Jamaisvu 于 2022-8-14 11:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058317&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 11:13</a>
+
+伊吹本体好歹那个毛衣在模型里还挺好看，就是想不懂一个日本鬼神为什么要穿现代毛衣
+
+这水伊吹真的是，一破 ...</blockquote>
+那个高领毛衣好像是之前比较火的童贞杀手毛衣，高领露背，前保守后露出，有段时间算是在推上屠版了：
+
+<img src="https://img.saraba1st.com/forum/202208/14/114453vze44zm6pdp4y4pp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:44 上传
+
+雷太估计是赶了个时髦吧。反正伊吹和金时差不多，都是尽情地享受现代生活，再临语音里也说喜欢当世的针织衫...
+
+雷太的审美一直挺迷的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不过画工确实强。小教授初始装扮多好看，结果后面就换成了意义不明的星十字骑士团cos服...
+
+这次水伊吹我最喜欢初始模型（一破配色不喜，三破太大只了蹲姿看着难受），正好满破图也是一破，best match！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 1037#       发表于 2022-8-14 11:55
+
+怎么开始断断续续跑狗了，介是抽卡把服务器抽崩了还是我网卡了
+
+*****
+
+####  yangun22  
+##### 1038#       发表于 2022-8-14 11:56
+
+武则天的动画怎么都有了，宝具是先上死灵特性再出伤害的，那第一下就能吃到死灵特攻了
+
+*****
+
+####  alucardcz  
+##### 1039#       发表于 2022-8-14 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然现在2新5星都是蓝 rba也一起蓝了算了 当场撕了蓝梅 等一个再度血流成河
+

@@ -10440,3 +10440,14 @@ Liella上的广播，我觉得最顶的还是南波志帆的music line和鹫崎�
 由手机上传
 2022-8-14 11:40 上传
 
+
+
+*****
+
+####  JustW_3  
+##### 2508#       发表于 2022-8-14 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057298&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-8-14 09:38</a>
+最近重温中二病才发现花田犯病不是一次两次了，我一直以为ll才是他的重灾区。第一季的凸守和丹生谷的关系写 ...</blockquote>
+花田犯病和超神一半一半吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

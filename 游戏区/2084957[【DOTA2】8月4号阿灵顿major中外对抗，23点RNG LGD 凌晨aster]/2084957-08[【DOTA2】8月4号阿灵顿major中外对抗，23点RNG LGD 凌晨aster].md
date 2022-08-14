@@ -1039,3 +1039,152 @@ atf有新一代约旦鳖那味了，瞎浪瞎冲嗯送</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说女人审美，看看xincute那喷图有多少队在用，这就是硬实力好吗
 
+
+
+*****
+
+####  百世诸侯  
+##### 10618#       发表于 2022-8-14 11:52
+
+别说了，马上飞泰国整容成xinq的样子开始文爱
+
+*****
+
+####  Cookiekira  
+##### 10619#       发表于 2022-8-14 11:53
+
+atf把自己id改成atm了可还行 这小伙子可以的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 赢了狂 输了认
+
+*****
+
+####  acejoe  
+##### 10620#       发表于 2022-8-14 11:53
+
+茶真能次次把对手拉到脑浆dota，然后靠经验取胜也是一中牛逼。
+
+
+
+*****
+
+####  名字不乱取  
+##### 10621#       发表于 2022-8-14 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058649&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 11:46</a>
+
+从第二个dpc开始，a畜肉眼可见的辣好吧，基本上和甩了滚球兽找阿梓是同一时间。 ...</blockquote><blockquote>王淳煜
+
+4-7 11:41
+
+来自 iPhone客户端
+
+谢谢大家的祝福 过年的时候就分了不要一直问了 ​​​</blockquote>
+滚球兽早走了，不要造谣我ame哥哥，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 10622#       发表于 2022-8-14 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058733&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 11:53</a>
+atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来ceb拧绳成功了
+
+*****
+
+####  IG.430  
+##### 10623#       发表于 2022-8-14 11:55
+
+百般战法，此乃卧薪尝胆！
+
+*****
+
+####  百世诸侯  
+##### 10624#       发表于 2022-8-14 11:55
+
+加油加油，TI嘲讽回来，注意别乳化就行
+
+*****
+
+####  ArowRocher  
+##### 10625#       发表于 2022-8-14 11:56
+
+<img src="https://img.saraba1st.com/forum/202208/14/115419vs11akvwiyiyu58x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/115500xj1bv0bw12w1gntn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/115628rdfdcmf38amccu8f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:56 上传
+
+*****
+
+####  IG.430  
+##### 10626#       发表于 2022-8-14 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058771&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-14 11:55</a>
+加油加油，TI嘲讽回来，注意别乳化就行</blockquote>
+赢了不该赢的队，还能跑得了ruler？
+
+*****
+
+####  Keynes  
+##### 10627#       发表于 2022-8-14 11:57
+
+可以可以，这波比也跌不知道高到哪里去了，知耻而后勇好吧
+
+*****
+
+####  百世诸侯  
+##### 10628#       发表于 2022-8-14 11:59
+
+处长现在把ID改成 a bag of money能得到大家的点赞吗
+
+*****
+
+####  ArowRocher  
+##### 10629#       发表于 2022-8-14 12:00
+
+<img src="https://img.saraba1st.com/forum/202208/14/115826vzeawywivv1pbssq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:58 上传
+
+害有感谢中文观众气氛组的
+
+<img src="https://img.saraba1st.com/forum/202208/14/115947wkjnsq2jl4sel84j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:59 上传
+
+*****
+
+####  walfeds  
+##### 10630#       发表于 2022-8-14 12:00
+
+op瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">外面熟悉的舆论都回来了
+希望知耻而后勇吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
