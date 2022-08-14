@@ -4777,3 +4777,23 @@ Manami这次表现都很出彩呢，但提前安洁咒。明年多个梗可以�
 
 安洁对不起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高等黑暗  
+##### 16935#       发表于 2022-8-14 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫这完全是被帕特姐一个人打崩了
+
+6打席6安打
+
+相信着送出的帕特姐（
+
+*****
+
+####  FCCHua  
+##### 16936#       发表于 2022-8-14 18:09
+
+没事，今天的比分差现实比游戏还残酷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

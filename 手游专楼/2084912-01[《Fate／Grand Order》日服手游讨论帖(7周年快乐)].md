@@ -12189,3 +12189,48 @@ RBA求求你千万不要是打手
 
 另外我感觉实装的这个牵牛花浴衣完全没白熊衬衫和骷髅冲浪服好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望以后有机会能实装吧...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1145#       发表于 2022-8-14 18:03
+
+ 本帖最后由 Jamaisvu 于 2022-8-14 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061667&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-14 17:14</a>
+
+僵尸酒吞 能不能来个灵衣，虽然我没酒吞</blockquote>
+之前有一次周年庆出了一堆纪念礼装的灵衣，正装尼禄、旅装阿周那、祭装以藏、祭装班杨、纪行达芬奇。
+
+酒吞这个祭装的立绘竟然有表情差分...如果运营大发慈悲的话也不是没可能出一套...不过我记得泳装剑豪那个活动里出现过祭装始皇帝，也是立绘有差分但就是不实装...
+
+感觉僵尸酒吞这次出场也只是因为造型契合吧...灵衣这种赚不到流水的东西怎么出还是要看运营心情...
+
+*****
+
+####  angelooo  
+##### 1146#       发表于 2022-8-14 18:07
+
+<blockquote>Jamaisvu 发表于 2022-8-14 17:54
+道满竟然有三个新立绘，惊了，怀疑运营曾有过打算出泳装道满（毕竟性别其他），但为了流水还是放弃了...... ...</blockquote>
+自信点，实装这套是最差的，还不如小乙哥和医神，自身卡面还被满破上铺的兄弟吊打，看了新的两个立绘我就觉得官方到底知不知道玩家特别是女玩家想要什么（也不排除故意炒热度恶心人，参考龙马活动npc事件
+
+*****
+
+####  exiaexa  
+##### 1147#       发表于 2022-8-14 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060330&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 14:42</a>
+
+？奶光被很多人喷气球奶和 她广受欢迎 有矛盾吗？
+
+广受欢迎，喜欢的人够多就行了，又不是所有人都喜欢</blockquote>
+我先不说你那跟弱智一样的云玩家发言
+
+raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
+
+至于走极端那就更搞了，raita来你游第一天就在自我放飞，哪儿轮得到你搁这儿悲天悯人
+
+要想看不放飞自我的你去找挖个雷啊，在FGO说越来越放飞也太乐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

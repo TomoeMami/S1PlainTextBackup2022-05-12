@@ -2244,3 +2244,15 @@ blade是个什么东西</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打到结局本来还有点小感动，结果被一张照片给惊呆了，什么世界分离全都不重要了，我想在只想知道雷老板这是说到做到了？
 
+
+
+*****
+
+####  langleizhi  
+##### 199#       发表于 2022-8-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061789&amp;ptid=2084988" target="_blank">Caa 发表于 2022-8-14 17:28</a>
+
+打到结局本来还有点小感动，结果被一张照片给惊呆了，什么世界分离全都不重要了，我想在只想知道雷 ...</blockquote>
+是的，说明其实大家都误解了现在还有大家这个名场面，他说的就是口头上的意思不是什么高情商婉拒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
