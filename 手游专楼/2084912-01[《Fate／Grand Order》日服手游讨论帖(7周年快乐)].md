@@ -12932,3 +12932,41 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 抽完5宝伊吹还剩2900石。拐有杀狐，CBA，C呆，梅林，孔明。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">拐齐了抽打手乱玩
 
+
+
+*****
+
+####  alucardcz  
+##### 1215#       发表于 2022-8-15 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066433&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-14 23:50</a>
+
+又买了个初始回坑了。
+
+抽完5宝伊吹还剩2900石。拐有杀狐，CBA，C呆，梅林，孔明。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先等rba强度  是玩具就等2个红卡之王
+
+*****
+
+####  霧谷藤乃  
+##### 1216#       发表于 2022-8-15 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拐齐还有这么多石头么，羡慕啊
+
+*****
+
+####  alucardcz  
+##### 1217#       发表于 2022-8-15 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066624&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 00:06</a>
+
+拐齐还有这么多石头么，羡慕啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这种石头号不是拐都齐的吗。。。差距就是你肯不肯给钱（
+
+*****
+
+####  天王寺凯伊姆  
+##### 1218#       发表于 2022-8-15 00:08
+
+梅莉沉了后今天再登录，这水伊吹对味啊，看了技能组更对了(。补了一单抽了一宝血赚，现在就求rba别太破格了
+
