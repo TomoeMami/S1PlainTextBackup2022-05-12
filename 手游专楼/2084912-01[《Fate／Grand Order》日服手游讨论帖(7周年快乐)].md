@@ -11262,3 +11262,65 @@ raita从奶光开始一直被畸形党婊到现在，他唯一一个没被挑刺
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主回坑的  公主600石3宝  蓝莓500石1宝    伊吹2000石头下去3个5星伊吹2宝  
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来还有尺BBA  会发生什么我都不敢想
 
+
+
+*****
+
+####  alucardcz  
+##### 1057#       发表于 2022-8-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059292&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 12:42</a>
+
+今年八个月总共八个五星 七个NEW也就一般亚洲人水平 完全当不起欧皇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌只2
+
+*****
+
+####  qixinno2  
+##### 1058#       发表于 2022-8-14 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059389&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 12:51</a>
+
+萌只2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你石头都干嘛去了
+
+*****
+
+####  alucardcz  
+##### 1059#       发表于 2022-8-14 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059403&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 12:52</a>
+
+你石头都干嘛去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">all in了  但就new了2个 本非萌有什么办法
+
+*****
+
+####  qixinno2  
+##### 1060#       发表于 2022-8-14 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059424&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 12:54</a>
+
+all in了  但就new了2个 本非萌有什么办法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是萌新前几年太欧今年还债吧
+
+*****
+
+####  alucardcz  
+##### 1061#       发表于 2022-8-14 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059451&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 12:56</a>
+
+怕是萌新前几年太欧今年还债吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了非萌一直这么非的   不过以后应该不会石不过三了  要存了  不然真被一个大背刺可受不了
+
+*****
+
+####  qixinno2  
+##### 1062#       发表于 2022-8-14 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059472&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 12:58</a>
+
+想多了非萌一直这么非的   不过以后应该不会石不过三了  要存了  不然真被一个大背刺可受不了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看好萌新攒1000+石每次池子一发十连毕业
+
