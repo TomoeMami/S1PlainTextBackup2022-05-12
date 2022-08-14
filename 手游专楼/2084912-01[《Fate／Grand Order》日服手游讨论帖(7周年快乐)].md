@@ -10366,3 +10366,105 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不我们跑路吧YLS,这rab得多劲爆才对得起这泳装压轴
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 978#       发表于 2022-8-14 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057712&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 10:16</a>
+
+三发十连伊吹绘里濑一样一个 紫发美少女只能等复刻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫慌，按你的欧度斯卡蒂卡池你又凑够一发11连然后双收了
+
+*****
+
+####  kuarwbwe  
+##### 979#       发表于 2022-8-14 10:24
+
+只能说周年发的多是有道理的。即我虽然发了一井，但是肯定能让你们全吐出来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 980#       发表于 2022-8-14 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057791&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-14 10:22</a>
+
+莫慌，按你的欧度斯卡蒂卡池你又凑够一发11连然后双收了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是真那么欧还不如去买彩票
+
+*****
+
+####  Jamaisvu  
+##### 981#       发表于 2022-8-14 10:24
+
+<img src="https://img.saraba1st.com/forum/202208/14/101732ulh276njagw6wysc.jpg" referrerpolicy="no-referrer">
+
+<strong>E321CBFD95324CB59EF187F8076E87C6.jpg</strong> (383.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 10:17 上传
+
+武则天变大了但声线好像还是萝莉的，就有点装嫩的感觉，紫色BBA（误）
+
+宝具和三技能都有赋予死灵特性（虽然只有1T），二技能是死灵特攻30，宝具是死灵和人之力特攻，技能组好像还不错。
+
+是除了C龙娘外的第二个四星红光炮...感觉甚至比泳装尼禄还强，也就是充能差了点...
+
+*****
+
+####  angelooo  
+##### 982#       发表于 2022-8-14 10:25
+
+<blockquote>Jamaisvu 发表于 2022-8-14 09:20
+没带萝莉形态玩，看来还是御姐人气高啊。
+
+一破的啦啦队有点遭不住，太粉了有种广场舞大妈的感觉...三破卡 ...</blockquote>
+拉拉队就是本体那个瞎眼的粉红粉绿配色，还好没出现灯笼裤这种惊天衣品，这个伊吹就卡面感觉比起剑阶的萝莉和OL御姐更偏高中生到女大学生这个年龄段，三破露了脚趾，但我觉得伊吹的手和脚完全就不是人类的那种感觉，除了真正的人外控一般也舔不动吧23333
+
+绘里世真的挺失望的，特别是和原版比，你游是不是真的会养废画师啊，fr是巅峰的话，感觉noco水平一路下滑
+
+*****
+
+####  exiaexa  
+##### 983#       发表于 2022-8-14 10:25
+
+补3宝失败报复性拉了个100级
+这1w5的攻击力看着真的解压
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 984#       发表于 2022-8-14 10:25
+
+RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 985#       发表于 2022-8-14 10:25
+
+又是保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 986#       发表于 2022-8-14 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">所以玉玉什么时候给个主动赋予灼烧
+
+*****
+
+####  zooandtoo  
+##### 987#       发表于 2022-8-14 10:27
+
+ 本帖最后由 zooandtoo 于 2022-8-14 10:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">绿。。绿卡大拐please
+
+伊吹都这样了其他颜色不抬一下说不过去吧
+
