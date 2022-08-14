@@ -11573,3 +11573,14 @@ RBA求求你千万不要是打手
 下个大拐必须请苍月</blockquote>
 快，我要看到隔壁连服务器都杀穿了23333
 
+
+
+*****
+
+####  alucardcz  
+##### 1087#       发表于 2022-8-14 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又从隔壁回来了  有人在洗水武藏 没有被完爆 说武藏自动挡省事
+
+这啥意思? 是指第1回合交完技能宝具连发？  水伊不是也可以？
+

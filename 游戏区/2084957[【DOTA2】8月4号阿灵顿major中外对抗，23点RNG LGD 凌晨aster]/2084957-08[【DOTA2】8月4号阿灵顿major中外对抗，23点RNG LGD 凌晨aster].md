@@ -1860,3 +1860,34 @@ g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
 
 一个梦想，想看皮球神决赛暴打A畜然后公平打出: 处长绝活小鱼
 
+
+
+*****
+
+####  Keynes  
+##### 10709#       发表于 2022-8-14 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060381&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-14 14:47</a>
+
+一个梦想，想看皮球神决赛暴打A畜然后公平打出: 处长绝活小鱼</blockquote>
+感觉不如傻狗想的“无敌了呀，处少”
+
+*****
+
+####  nowaki  
+##### 10710#       发表于 2022-8-14 14:52
+
+miposhka真视界里说错了一句，老干瘪里不全是人，还有一个***
+
+
+
+*****
+
+####  坚定的团子党  
+##### 10711#       发表于 2022-8-14 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060309&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-14 14:40</a>
+
+老干瘪里不全是人，还有一个***    sg网友真是太坏啦😄</blockquote>
+反a/不反水厂，鉴定为暗黑集美
+
