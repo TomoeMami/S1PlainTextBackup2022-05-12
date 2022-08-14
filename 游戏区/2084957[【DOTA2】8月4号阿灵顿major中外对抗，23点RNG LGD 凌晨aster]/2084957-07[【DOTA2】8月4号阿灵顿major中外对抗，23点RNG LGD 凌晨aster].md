@@ -9792,3 +9792,92 @@ bzm为什么要笑
 
 神了神了
 
+
+
+*****
+
+####  nxmonitor  
+##### 10193#       发表于 2022-8-14 08:40
+
+ORI上把装备出得稍微有点问题，有冰龙出紫苑可能比较好一点吧，中路半蓝开团那一波确实上头了……
+
+*****
+
+####  天堂蜘蛛  
+##### 10194#       发表于 2022-8-14 08:41
+
+OG这换路把自己换麻了
+
+*****
+
+####  我爱撩菜  
+##### 10195#       发表于 2022-8-14 08:46
+
+起床又是一场胜利+1
+
+今晚可以熬夜，总决赛是几点来着？ 
+
+*****
+
+####  listenermy  
+##### 10196#       发表于 2022-8-14 08:47
+
+职业就是一场生活，你总会遇到属于你的A畜
+
+*****
+
+####  12481632  
+##### 10197#       发表于 2022-8-14 08:47
+
+好起来了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  三千珈蓝  
+##### 10198#       发表于 2022-8-14 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056757&amp;ptid=2084957" target="_blank">我爱撩菜 发表于 2022-8-14 08:46</a>
+起床又是一场胜利+1
+
+今晚可以熬夜，总决赛是几点来着？</blockquote>
+三点决赛，11点败决
+
+*****
+
+####  a1370303  
+##### 10199#       发表于 2022-8-14 08:47
+
+剑圣这波有点搞笑了呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chilno  
+##### 10200#       发表于 2022-8-14 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056766&amp;ptid=2084957" target="_blank">三千珈蓝 发表于 2022-8-14 08:47</a>
+
+三点决赛，11点败决</blockquote>
+一觉起来，又是LGD的一场胜利！
+
+
+
+*****
+
+####  Keynes  
+##### 10201#       发表于 2022-8-14 08:49
+
+哈人，集美好多
+
+*****
+
+####  12481632  
+##### 10202#       发表于 2022-8-14 08:49
+
+鹏子求求了支棱起来一把吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
