@@ -12704,3 +12704,39 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 才去打的常规本
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1192#       发表于 2022-8-14 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我40W+点数也就四张，不过我专门平铺礼装努力刷设施提升集客率了
+
+*****
+
+####  希望之花  
+##### 1193#       发表于 2022-8-14 19:54
+
+伊吹强度有，但是卡面模型不是我的菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1194#       发表于 2022-8-14 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063338&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-14 19:51</a>
+
+我40W+点数也就四张，不过我专门平铺礼装努力刷设施提升集客率了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新急着看rba性能 考虑要不要换成6羁绊礼装刷活动
+
+*****
+
+####  霧谷藤乃  
+##### 1195#       发表于 2022-8-14 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063377&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 19:56</a>
+
+萌新急着看rba性能 考虑要不要换成6羁绊礼装刷活动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传说中的爆肝拿羁绊石模式要开启了么
+
