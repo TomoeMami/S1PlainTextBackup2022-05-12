@@ -12786,3 +12786,15 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 三天后看阿叶能整出什么活儿吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最好是个花瓶 那我把剩下的那点票子和单抽丢给水伊池 爱出不出
 
+
+
+*****
+
+####  areklose  
+##### 1201#       发表于 2022-8-14 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063521&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 20:07</a>
+
+最好是个花瓶 那我把剩下的那点票子和单抽丢给水伊池 爱出不出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说好得攒井呢
+
