@@ -12050,3 +12050,13 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话怎么这么多可推炸了我不理解，不过我想拜访下恋推，你们对恋沉迷游戏机那段怎么看，有人说这是三次元反哺二次元，但我觉得这段也太弱智了
 
+
+
+*****
+
+####  nufawneafg  
+##### 2666#       发表于 2022-8-15 07:21
+
+看都不看
+仅代表我自己，你无法对并未想着服务于你的动画组提任何要求有任何预期，都是一厢情愿缘木求鱼<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

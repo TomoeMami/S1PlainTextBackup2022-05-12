@@ -10888,3 +10888,241 @@ md，不要赢了major输了ti啊。。。
 
 又看到有人在主舞台刷吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白野苍衣  
+##### 11858#       发表于 2022-8-15 07:20
+
+处长这人担不起大任，就不配四保一，他对局势的理解不行，也没有什么终结比赛的能力。
+
+*****
+
+####  一品堂官  
+##### 11859#       发表于 2022-8-15 07:20
+
+这辉耀，对味了啊。傻狗何在？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+好险，差点就跪下了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 11860#       发表于 2022-8-15 07:20
+
+ts看透了，把明鞭限制住就好打
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 11861#       发表于 2022-8-15 07:21
+
+我原计划是这比赛打到7点半左右看完，早上请假，睡觉，下午上班<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+茶打完我的计划是8点半看完<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+第二把打完我的计划是11点打完，直接请假一天不上班了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这把看完可能下午还可以上个班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 11862#       发表于 2022-8-15 07:21
+
+0换5！
+
+直接gg！
+
+*****
+
+####  恐怖利刃  
+##### 11863#       发表于 2022-8-15 07:21
+
+买水碰到noone跟solo了，不过没敢上去说话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 11864#       发表于 2022-8-15 07:21
+
+这味儿太对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 11865#         楼主| 发表于 2022-8-15 07:21
+
+<img src="https://p.sda1.dev/6/162a1ff4c909ac97ed13115a37ee29a8/CMP_20220815072111150.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 11866#       发表于 2022-8-15 07:21
+
+这把斯温算不算BP被爆了
+
+*****
+
+####  RGm  
+##### 11867#       发表于 2022-8-15 07:21
+
+好起来了。加油加油，还有一把就是惜败。
+
+*****
+
+####  遍体精淋af  
+##### 11868#       发表于 2022-8-15 07:22
+
+就算不是斯温lgd也难打，4保1靠处长的思路本身就赢不了
+
+*****
+
+####  外挂全家脚气  
+##### 11869#       发表于 2022-8-15 07:22
+
+兽王毒狗就已经是被爆了
+
+*****
+
+####  无聊的神  
+##### 11870#       发表于 2022-8-15 07:22
+
+yatorogod
+
+*****
+
+####  漂灵  
+##### 11871#       发表于 2022-8-15 07:23
+
+淳路人，萌新求问，A畜已经从ti假赛发展到major假赛了吗
+
+*****
+
+####  zkc1991  
+##### 11872#       发表于 2022-8-15 07:24
+
+LGD这个队真的有毒，小组赛淘汰赛猛的一比，一进决赛打的xnmbyy，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白色的120  
+##### 11873#       发表于 2022-8-15 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068675&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-15 07:23</a>
+淳路人，萌新求问，A畜已经从ti假赛发展到major假赛了吗</blockquote>
+应该是lgd major放水，防止ti被针对削弱
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dclara1  
+##### 11874#       发表于 2022-8-15 07:25
+
+<img src="https://s2.loli.net/2022/08/15/KXDiBHozMJFyaE4.gif" referrerpolicy="no-referrer">
+
+半场香槟不过分吧
+
+*****
+
+####  nerugigannte  
+##### 11875#       发表于 2022-8-15 07:25
+
+来了来了，就今天lgd的状态，看来茶队不想让我a上去
+
+*****
+
+####  zkc1991  
+##### 11876#       发表于 2022-8-15 07:25
+
+看到一个弹幕，老干爹美酒藏阵容，等到ti发力，目光长远一点<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  smkf013  
+##### 11877#       发表于 2022-8-15 07:26
+
+wo kao,hai mei da wan a<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+LGD win le mei<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 11878#       发表于 2022-8-15 07:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好日子 来临了
+
+*****
+
+####  belichick  
+##### 11879#       发表于 2022-8-15 07:27
+
+感觉邪恶睿达状态好差
+
+*****
+
+####  nerugigannte  
+##### 11880#       发表于 2022-8-15 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068656&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 07:21</a>
+</blockquote>
+xb3 上个月29号出的，不好好玩训练打xb3是吧，拷打！
+
+
+
+*****
+
+####  逃离二次元  
+##### 11881#       发表于 2022-8-15 07:27
+
+别半场香槟<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 11882#       发表于 2022-8-15 07:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">LGD这不还没输嘛，加油加油，还有一把
+
+*****
+
+####  TBBZZ  
+##### 11883#       发表于 2022-8-15 07:28
+
+一觉醒来就看到么么鳖被打烂，舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 11884#       发表于 2022-8-15 07:28
+
+要不啥都不要，先马西小小ban了吧
+
+*****
+
+####  希望之花  
+##### 11885#       发表于 2022-8-15 07:29
+
+下一把还放ts绝活兽王被14分钟剑圣奶推阵容平推，巧设苦肉之计引冰蛙天兵削弱仇敌，这便是lgd此次ti所施的dota道口也
+
+*****
+
+####  外挂全家脚气  
+##### 11886#       发表于 2022-8-15 07:29
+
+很快就是363天总冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尖刺外婆  
+##### 11887#       发表于 2022-8-15 07:30
+
+老干鳖363天冠军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
