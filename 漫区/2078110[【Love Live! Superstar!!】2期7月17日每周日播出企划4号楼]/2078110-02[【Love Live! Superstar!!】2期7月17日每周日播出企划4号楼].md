@@ -11813,3 +11813,221 @@ https://b23.tv/V13XDuU
 想多了，香恋的问题比可严重多了</blockquote>
 是吗？现在外网内网炮火全对着可可，你怎么看？
 
+
+
+*****
+
+####  巴麻耒  
+##### 2644#       发表于 2022-8-15 01:54
+
+唐可可可能是制作组把毒舌当卖点，毕竟有人挺吃毒舌美少女这一套的
+但是不能对香音毒舌，千和恋又不是很熟不好下嘴，只能拿关系好的堇开刀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 2645#       发表于 2022-8-15 01:56
+
+ 本帖最后由 cxj649 于 2022-8-15 01:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067608&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 01:49</a>
+
+是吗？现在外网内网炮火全对着可可，你怎么看？</blockquote>
+不怎么看啊
+
+你看这个就知道了
+[https://fate.5ch.net/test/read.cgi/lovelive/1660485517/](https://fate.5ch.net/test/read.cgi/lovelive/1660485517/)
+
+相比可，全体都问题大的去了至于外网内网，外网更在意恋的问题好么，内网我不太想评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 2646#       发表于 2022-8-15 02:01
+
+只要花田犯的病连一般人都发现是在乱搞就没有问题了！现在也就只有这种方法了…比如这集第二段，堇啥时候对钱有过兴趣了，那台词完全乱搞。
+
+*****
+
+####  lj205  
+##### 2647#       发表于 2022-8-15 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067656&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-15 01:56</a>
+不怎么看啊
+
+你看这个就知道了
+
+https://fate.5ch.net/test/read.cgi/lovelive/1660485517/</blockquote>
+那你要觉得想多了就想多了吧，讲真我是早料到二期会烂，所以象征性看了第一集后就没追了，每集也就是通过大家讨论、截图和切片大概了解进展。我现在其实蛮平常心的，只不过花田这么搞我不得不阴谋论一下，我现在真的很厌烦每集都要车一下可可
+
+*****
+
+####  JustW_3  
+##### 2648#       发表于 2022-8-15 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乳不至于，有意搞人气平衡我还信
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">s1前三集可可的塑造也是抓了几个中国人的“刻板印象”，但抓的几个点不仅能跟上时代，而且大都偏正面，体力差但学习好、行动力强、动手能力强、不畏强权（？）、说话不绕弯子、顶着家庭压力追梦，这说明制作组并不是不懂。但出了这三集，这些点就被极大程度上模板化、极端化，变成社恐+ll魔怔壬+不读空气+说话没轻重+jk版手工耿，撇去和堇的互动，塑造也不理想。
+
+但这也不是可可一个角色遭受的待遇，基本每个一期生不在自己的场合时，都差不多。编剧脑子里仿佛只有一个进程，没列在【本集需要抬一下人气的角色名单】里的角色就照着设定给她随机生成一些戏份。恋，第五集存在感有了点，其他时候就是学生会长+母亲遗愿；千，香音单推人，截止目前整个角色的行为逻辑都是建立在香音之上；堇，被迫害役；香音，遇事时缩卵+拉人时化身教主。编剧恐怕是真的没余力在“已经塑造过”的角色身上花心思了。
+
+二期生恐怕也免不了，第五集每个人叠buff一样抖设定，先不说团内重合度有多高，我好奇后面这些设定会以什么方式再提起。
+
+*****
+
+####  cxj649  
+##### 2649#       发表于 2022-8-15 02:07
+
+ 本帖最后由 cxj649 于 2022-8-15 02:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067714&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 02:05</a>
+
+那你要觉得想多了就想多了吧，讲真我是早料到二期会烂，所以象征性看了第一集后就没追了，每集也就是通过 ...</blockquote>
+有啥阴谋论的，无非花田对天朝人刻板印象加剧情行动模板而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 2650#       发表于 2022-8-15 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067718&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-15 02:06</a>
+
+乳不至于，有意搞人气平衡我还信
+
+s1前三集可可的塑造也是抓了几个中国人的“刻板印象”，但 ...</blockquote>
+花田有前科的
+
+我推荐  中二病也想恋爱 第二季
+
+现在可可的问题和那个动画的毛病一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2651#       发表于 2022-8-15 02:12
+
+看你们这么讨论的心理感觉越难受了，你说第一期那么好看的情景怎么变成这样？就连第二季不整烂活平平庸庸的都做不到，哎
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  古战场亡魂  
+##### 2652#       发表于 2022-8-15 02:17
+
+夏美前四集挣的好感这集败光了。
+
+香音反正人物塑造已经进沟了，卖团合同说签就签。
+
+你是部长吗？你啥身份签的？而且其他人仿佛之前没看见合同一样。
+
+*****
+
+####  JustW_3  
+##### 2653#       发表于 2022-8-15 02:17
+
+ 本帖最后由 JustW_3 于 2022-8-15 02:19 编辑 
+
+可可给人观感想扭好其实不难，技巧很单纯直接——吃瘪。性格强势到引发争议的角色，让ta吃瘪就能改善观感，近的有ksks岚珠甚至堇，远的有花田自己写过的京吹里的吉田优子，吉田优子前期争议大了去了，但到了她泪崩瘫倒的时候观众印象已经完全转为正面了。花田不会想不到，就怕他非要藏到不知道有没有的个人回。你这欢喜冤家也该有来有回，光让一边挨呛那算什么欢喜冤家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2654#       发表于 2022-8-15 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067725&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-15 02:07</a>
+有啥阴谋论的，无非花田对天朝人刻板印象加剧情行动模板而已推荐你一个动画，叫 中二病也想恋爱 第 ...</blockquote>
+嗨，不就是想表达个不满吗？实在不想再讨论可堇了，本来我一个动画开播前就是坚定可堇厨的人，都给他和某些个人搞到现在都不想提，他可真厉害
+
+*****
+
+####  古战场亡魂  
+##### 2655#       发表于 2022-8-15 02:19
+
+运营账号也是离谱，怎么会运营到个人账号上去。
+
+放着十几万的账号上不更新，更新到56粉的个人账号上去也是离谱。
+
+*****
+
+####  cxj649  
+##### 2656#       发表于 2022-8-15 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067793&amp;ptid=2078110" target="_blank">古战场亡魂 发表于 2022-8-15 02:17</a>
+
+夏美前四集挣的好感这集败光了。
+
+香音反正人物塑造已经进沟了，卖团合同说签就签。
+
+你是部长吗？你啥身份签 ...</blockquote>
+对的，外网更多吐槽这个，至于可可的问题也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 2657#       发表于 2022-8-15 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067808&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 02:18</a>
+
+嗨，不就是想表达个不满吗？实在不想再讨论可堇了，本来我一个动画开播前就是坚定可堇厨的人，都给他和某 ...</blockquote>
+主要是这种情况花田还真有不少前科，所以如果眼熟的话，只能一笑而之了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2658#       发表于 2022-8-15 02:25
+
+ 本帖最后由 lj205 于 2022-8-15 02:27 编辑 
+
+说回香音这个签合同也是，她把自己当个啥？我觉得她也越来越往热血笨蛋属性靠了
+
+*****
+
+####  古战场亡魂  
+##### 2659#       发表于 2022-8-15 02:25
+
+还有你们有着十几万的账号，巨量的点击。
+
+对着一个蹭的你们才几千粉，点击5万的收益觉得多。
+
+你们之前油管账号谁运营的，钱都被她贪污了吗？？
+
+*****
+
+####  cxj649  
+##### 2660#       发表于 2022-8-15 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067849&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 02:25</a>
+
+说回香音这个签合同也是，她把自己当个啥？我觉得她也越来越往热血笨蛋属性靠了 ...</blockquote>
+你才发现这个问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2661#       发表于 2022-8-15 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067866&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-15 02:28</a>
+你才发现这个问题吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">毕竟我二季关注剧情都几乎自动过滤她……
+
+*****
+
+####  cxj649  
+##### 2662#       发表于 2022-8-15 03:04
+
+L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/15/030404nidr2j5kk9kj39js.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220815030246.png</strong> (42.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 03:04 上传
+
+*****
+
+####  稀勢のささ  
+##### 2663#       发表于 2022-8-15 03:09
+
+原来这楼里说话还得顺网线读心的啊  红多尼私密马赛 🙇🙇  有被弱智到
+

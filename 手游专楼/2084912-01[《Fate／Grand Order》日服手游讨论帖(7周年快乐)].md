@@ -13039,3 +13039,29 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 有白方块兑换好的多吧
 
+
+
+*****
+
+####  exiaexa  
+##### 1225#       发表于 2022-8-15 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067068&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 00:52</a>
+有白方块兑换好的多吧</blockquote>
+没用，这次是伊吹比较好养吃材料不多
+换成2.6那次，你把兑换上限翻个倍都不够养的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1226#       发表于 2022-8-15 03:16
+
+<blockquote>exiaexa 发表于 2022-8-15 02:05
+没用，这次是伊吹比较好养吃材料不多
+
+换成2.6那次，你把兑换上限翻个倍都不够养的
+
+ ...</blockquote>
+限制兑换数量太蠢了
+
