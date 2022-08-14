@@ -11729,3 +11729,39 @@ RBA求求你千万不要是打手
 不好意思从没卡过 你是不是那种3技能第3回合才开的？</blockquote>
 3技能2面开那根本就不是自动挡了啊
 
+
+
+*****
+
+####  alucardcz  
+##### 1099#       发表于 2022-8-14 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060629&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 15:19</a>
+
+3技能2面开那根本就不是自动挡了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正从来没卡过  你倒是说说哪个90的阳间上三  5宝100级武藏能卡np的
+
+*****
+
+####  qixinno2  
+##### 1100#       发表于 2022-8-14 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060628&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-14 15:19</a>
+
+一宝党赢麻了，过气就抽下一个，爽过就没损失，回头加强我也有没有就是抽不出来的，也不用纠结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟0变1就是最大提升
+
+*****
+
+####  acuman  
+##### 1101#       发表于 2022-8-14 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060647&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:21</a>
+
+我反正从来没卡过  你倒是说说哪个90的阳间上三  5宝100级武藏能卡np的 ...</blockquote>
+上个活动八犬传的90，不带活动礼装的话就卡啊
+
+打戏活动礼装没蓝放，90本也卡
+
+都是5100武藏
+
