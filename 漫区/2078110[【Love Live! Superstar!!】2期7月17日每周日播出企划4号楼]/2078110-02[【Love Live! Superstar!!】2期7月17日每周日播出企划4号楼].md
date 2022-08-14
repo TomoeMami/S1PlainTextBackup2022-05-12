@@ -11496,3 +11496,18 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 2613#       发表于 2022-8-15 00:36
+
+ 本帖最后由 JustW_3 于 2022-8-15 00:40 编辑 
+
+依然洳雪的烤肉b博下面有个老哥老强度贴长文替花田开脱，看着有点吓人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/6/cc6c9309c59d119c3a813b05a045f346/CMP_20220815003926825.jpg" referrerpolicy="no-referrer">
+
+每个字都认识，连起来读不懂
+

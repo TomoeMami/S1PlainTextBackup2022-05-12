@@ -13007,3 +13007,19 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 该重新买号了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不动了，何况我本来就是咸鱼，拐齐不齐对我影响不大
 
+
+
+*****
+
+####  zore  
+##### 1222#       发表于 2022-8-15 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066689&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 00:11</a>
+
+以我去年买号经验，拐齐还有大量石头的，不常见（当然价格不低
+
+不过仔细想想，也许环境变了，当时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在不都是过章号了
+
+1级号早没了吧
+
