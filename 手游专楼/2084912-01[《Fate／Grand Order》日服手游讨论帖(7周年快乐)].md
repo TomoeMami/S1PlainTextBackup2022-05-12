@@ -12995,3 +12995,15 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 以我去年买号经验，拐齐还有大量石头的，不常见（当然价格不低</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 该重新买号了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1221#       发表于 2022-8-15 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066723&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 00:14</a>
+
+该重新买号了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不动了，何况我本来就是咸鱼，拐齐不齐对我影响不大
+

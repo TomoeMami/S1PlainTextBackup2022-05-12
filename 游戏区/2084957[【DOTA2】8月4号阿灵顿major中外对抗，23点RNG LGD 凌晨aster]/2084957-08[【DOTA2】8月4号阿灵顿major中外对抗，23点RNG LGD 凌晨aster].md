@@ -5136,3 +5136,236 @@ LGD靠奖金分账能不能平衡说不好，那点周边也不见得有人买�
 VG这些年应该就是陈清输血吧，以前听个谣言说曾焦阳一个月八万。
  茶就更尴尬了，奖金都没多少，就剩烧钱了
 
+
+
+*****
+
+####  百世诸侯  
+##### 11112#       发表于 2022-8-15 00:21
+
+别急，第一把是感染期，雪碧已经感染V病毒了，第二把就开始脑浆
+
+*****
+
+####  ArowRocher  
+##### 11113#       发表于 2022-8-15 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066724&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 00:14</a>
+我还偷偷加了干瘪的数字藏品群，感觉以前玩菠菜的现在都在玩这个</blockquote>
+那智商税真有人买啊
+
+*****
+
+####  adretyu67  
+##### 11114#       发表于 2022-8-15 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066780&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-15 00:20</a>
+
+LGD靠奖金分账能不能平衡说不好，那点周边也不见得有人买，但能给ame标个两千万的价说说明还有点体量，但这 ...</blockquote>
+按ti10期间茶猪直播的说法，20年那段时间lgd出过经济问题。
+
+*****
+
+####  苏西踩到我了  
+##### 11115#       发表于 2022-8-15 00:21
+
+杰出蚂蚁打斧王脱电锤确实细啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 11116#       发表于 2022-8-15 00:22
+
+还在这感染呢 回忆下茶队怎么来的败者组
+
+*****
+
+####  tengshuo980  
+##### 11117#       发表于 2022-8-15 00:22
+
+怎么把陈放出来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  弈秋  
+##### 11118#       发表于 2022-8-15 00:22
+
+能放陈的
+
+*****
+
+####  马台街48  
+##### 11119#       发表于 2022-8-15 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066721&amp;ptid=2084957" target="_blank">lmslardar 发表于 2022-8-15 00:14</a>
+
+晓菲人是sx，钱是真给，也是真的挺热爱电竞的，虽然管理能力让人怀疑他怎么赚到大钱的。
+
+论乐子程度，已经 ...</blockquote>
+细说
+
+*****
+
+####  蛭人  
+##### 11120#       发表于 2022-8-15 00:23
+
+lgd现在还欠查理斯的奖金吗？
+
+*****
+
+####  雅朵莉雀  
+##### 11121#       发表于 2022-8-15 00:23
+
+虚空怕冰龙还是剑圣怕冰龙？冰龙是从头到脚的克虚空，茶队还是ban了虚空
+
+但是昨天yuragi后面配合puck找冰龙切冰龙是没有任何办法的，20级剑圣的风暴也基本不怕冰箱
+
+现代剑圣的主要输出是转+魔晶的复合伤害，几波冰箱都是直接被转死
+
+*****
+
+####  ArowRocher  
+##### 11122#       发表于 2022-8-15 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066786&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 00:21</a>
+按ti10期间茶猪直播的说法，20年那段时间lgd出过经济问题。</blockquote>
+哦对欠查理斯和小马工资，不知道老十一和超哥欠不欠
+
+这么说来都是勒裤腰带过日子嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说电竞行业的发展让太多人收入畸形了
+
+*****
+
+####  星野航  
+##### 11123#       发表于 2022-8-15 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066704&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 01:12</a>
+
+因为今年真的发大水了，感觉去年ti10决赛日前的水量可能也就跟现在差不多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有句话叫，使其灭亡必先使其疯狂
+
+大水发它三个月，最后ti早点滚蛋不是更好
+
+我可不愿意看到这逼队拿了ti，那到时候就是海啸糊到dota2这个游戏的生命力到头好么
+
+那才是酷刑
+
+*****
+
+####  漂灵  
+##### 11124#       发表于 2022-8-15 00:23
+
+没了，雪碧给我狠狠的宰
+
+*****
+
+####  沈经文  
+##### 11125#       发表于 2022-8-15 00:23
+
+lgd输了也是施舍，指望不发大水是不可能的。
+
+*****
+
+####  弈秋  
+##### 11126#       发表于 2022-8-15 00:24
+
+宙斯也没了
+
+*****
+
+####  坚定的团子党  
+##### 11127#       发表于 2022-8-15 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066780&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-08-15 00:20:26</a>
+LGD靠奖金分账能不能平衡说不好，那点周边也不见得有人买，但能给ame标个两千万的价说说明还有点体量，但这 ...</blockquote>lgd主要是因为拉到大巴黎赞助，才收支平衡的，别的队拉不到好赞助，自然亏本经营，什么周边、奖金真的不够看
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tengshuo980  
+##### 11128#       发表于 2022-8-15 00:24
+
+这两个英雄放出来了，感觉茶要寄了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightmare902015  
+##### 11129#       发表于 2022-8-15 00:24
+
+现代主义太无聊了，有没有打未来主义dota的？
+
+*****
+
+####  iriyano  
+##### 11130#       发表于 2022-8-15 00:25
+
+雪碧昨天打lgd赛前号称我们的陈是世界第一
+然后就被宰了，第二把直接没敢选
+这是拿茶来找自信了吗
+
+
+
+*****
+
+####  逃离二次元  
+##### 11131#       发表于 2022-8-15 00:25
+
+低分狗缩壳了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 11132#       发表于 2022-8-15 00:27
+
+干嘛，低分要缩壳，那集美连客户端都没有的算什么
+
+*****
+
+####  Horusddt  
+##### 11133#       发表于 2022-8-15 00:27
+
+雪碧昨天那个陈真不如ppy
+
+*****
+
+####  外挂全家脚气  
+##### 11134#       发表于 2022-8-15 00:27
+
+抢了ori蓝猫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 11135#       发表于 2022-8-15 00:28
+
+来个火女吧，骄阳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  弈秋  
+##### 11136#       发表于 2022-8-15 00:28
+
+四号位宙斯，这下视野要被爆中爆
+
+*****
+
+####  Keynes  
+##### 11137#       发表于 2022-8-15 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066785&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-15 00:21</a>
+ 那智商税真有人买啊</blockquote>
+真有人买，不要太高看人类的智商力
+
+*****
+
+####  弈秋  
+##### 11138#       发表于 2022-8-15 00:30
+
+dp打蓝猫怎么说
+
