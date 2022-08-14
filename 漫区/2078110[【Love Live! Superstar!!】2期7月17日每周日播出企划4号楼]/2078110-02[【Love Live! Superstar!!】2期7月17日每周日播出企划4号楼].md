@@ -11142,3 +11142,16 @@ DC6CFDB2-9352-4576-9EC8-9D270B4A36B8.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋恋这首开头我直接串戏到少歌了（
 
+
+
+*****
+
+####  adw667  
+##### 2579#       发表于 2022-8-14 21:09
+
+ 本帖最后由 adw667 于 2022-8-14 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062700&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-14 18:44</a>
+
+神经病啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们两个骨灰粉差不多得了这算不算演者盾
+

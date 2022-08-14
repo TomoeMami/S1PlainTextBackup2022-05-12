@@ -4906,3 +4906,12 @@ lize打葛呀 这同接爆炸呀
 
 白板战神！！nrk！
 
+
+
+*****
+
+####  Ketestrait  
+##### 16949#       发表于 2022-8-14 21:08
+
+不倒的黛灰，King选择了用胜利为代价给黛灰送行<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
