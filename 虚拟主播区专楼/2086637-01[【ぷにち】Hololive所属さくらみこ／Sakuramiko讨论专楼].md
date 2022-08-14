@@ -801,3 +801,25 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 这个店每次庆祝板都会放一两个月</blockquote>
 这个店,不知道miko有去看过么?想想miko乔装打扮,在远远的地方偷看35p们在板子面前写纸条的反应就很好玩.
 
+
+
+*****
+
+####  holoan  
+##### 70#         楼主| 发表于 2022-8-14 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061478&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-8-14 16:56</a>
+
+这个店,不知道miko有去看过么?想想miko乔装打扮,在远远的地方偷看35p们在板子面前写纸条的反应就很好玩. ...</blockquote>
+本店很早的时候应该去过，反正就在秋叶原那也不是多偏的地方，直播里面有没有讲过忘了，因为这个店从几年前开始就有这个传统每次miko生日和周年纪念都会做个纪念板庆祝，miko也很熟这个店，不知道是店员还是店长是35P来着
+
+*****
+
+####  holoan  
+##### 71#         楼主| 发表于 2022-8-14 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061351&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-8-14 16:42</a>
+
+现版本官宣七字母,人气还是蛮火的,cp粉人数越来越多,八字母的mv播放量被超过是迟早的事. ...</blockquote>
+实际上现在有统计的Fanart，七字母的FA总量已经超过八字母这三年的总量了
+

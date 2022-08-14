@@ -12093,3 +12093,23 @@ RBA求求你千万不要是打手
 我上去试了下水武藏  就这剑本3万3万15万 冲下去还回到了102   要多少血量的不能冲？ ...</blockquote>
 有试过没开三技能第三面98<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1135#       发表于 2022-8-14 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061512&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-14 17:00</a>
+
+有试过没开三技能第三面98</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3技能1面开了  2面回收很稳 你怎么回事
+
+*****
+
+####  alucardcz  
+##### 1136#       发表于 2022-8-14 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦 没注意银礼装有5%蓝放  换成冰块礼装了  3万3万15万98。  但是第2面还是很稳的回满
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦不对 这次还有特攻 算了当我没说
+
