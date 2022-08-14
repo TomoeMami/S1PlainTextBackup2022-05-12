@@ -1891,3 +1891,30 @@ miposhka真视界里说错了一句，老干瘪里不全是人，还有一个***
 老干瘪里不全是人，还有一个***    sg网友真是太坏啦😄</blockquote>
 反a/不反水厂，鉴定为暗黑集美
 
+
+
+*****
+
+####  excalibur--  
+##### 10712#       发表于 2022-8-14 15:07
+
+茶队打完第一把我就知道有了就去睡了，上把翻盘有点进化那味道了
+
+支持决赛内战<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 10713#       发表于 2022-8-14 15:07
+
+处长和ru水怎么都被二哈屏蔽了，是不是二哈偷偷喝水了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 10714#         楼主| 发表于 2022-8-14 15:09
+
+处长跟ru水，去年就屏蔽了，望周知
+

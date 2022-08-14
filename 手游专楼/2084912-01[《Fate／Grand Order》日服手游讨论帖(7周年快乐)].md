@@ -11584,3 +11584,105 @@ RBA求求你千万不要是打手
 
 这啥意思? 是指第1回合交完技能宝具连发？  水伊不是也可以？
 
+
+
+*****
+
+####  qixinno2  
+##### 1088#       发表于 2022-8-14 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">怕是之前水武藏抽高宝的破防了吧
+
+*****
+
+####  acuman  
+##### 1089#       发表于 2022-8-14 15:03
+
+ 本帖最后由 acuman 于 2022-8-14 15:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060439&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 14:57</a>
+
+我又从隔壁回来了  有人在洗水武藏 没有被完爆 说武藏自动挡省事
+
+这啥意思? 是指第1回合交完技能宝 ...</blockquote>
+水伊要打术才行吧
+
+但是武藏也只能打低血量才能完全自动，非术骑的90本都不行
+
+相比之下伊吹的优势简直数不胜数
+
+武藏周回已经被全包围了
+
+只能在高难靠无敌贯通和生存能力找点场子
+
+*****
+
+####  alucardcz  
+##### 1090#       发表于 2022-8-14 15:05
+
+ 本帖最后由 alucardcz 于 2022-8-14 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060490&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 15:03</a>
+
+水伊要打术才行吧
+
+但是武藏也只能打低血量才能完全自动，非术骑的90本都不行</blockquote>
+？？？？？？？？？？？？？？？？？？？
+
+你在说什么？？？云玩家？？
+
+水武藏除了杀狂都没问题啊？
+
+水伊只能打术又是哪看来的？
+
+*****
+
+####  acuman  
+##### 1091#       发表于 2022-8-14 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060500&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:05</a>
+
+？？？？？？？？？？？？？？？？？？？
+
+你在说什么？？？云玩家？？</blockquote>
+你多少有点搞笑了
+
+武藏打血量高点的上三，打完2面卡96是常事啊，怎么自动化
+
+*****
+
+####  alucardcz  
+##### 1092#       发表于 2022-8-14 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060522&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 15:07</a>
+
+武藏打血量高点的上三，打完2面卡96是常事啊，怎么自动化</blockquote>
+没卡过 是不是配置低了？
+
+*****
+
+####  angelooo  
+##### 1093#       发表于 2022-8-14 15:08
+
+<blockquote>alucardcz 发表于 2022-8-14 14:57
+我又从隔壁回来了  有人在洗水武藏 没有被完爆 说武藏自动挡省事
+
+这啥意思? 是指第1回合交完技能宝 ...</blockquote>
+我还看到有人说水武藏满破吊打一切
+
+这个我也知道，我也喜欢她的满破
+
+但你们能不能不要选择性忽略那三条内裤，而且这套该死的还绑定了你们吹上天的满破卡面23333
+
+*****
+
+####  alucardcz  
+##### 1094#       发表于 2022-8-14 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060535&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 15:08</a>
+
+我还看到有人说水武藏满破吊打一切
+
+这个我也知道，我也喜欢她的满破
+
+但你们能不能不要选择性忽略那三条内 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用3破还有个问题就是宝具语音太弱智。。。虽然我不太开声音 
+
