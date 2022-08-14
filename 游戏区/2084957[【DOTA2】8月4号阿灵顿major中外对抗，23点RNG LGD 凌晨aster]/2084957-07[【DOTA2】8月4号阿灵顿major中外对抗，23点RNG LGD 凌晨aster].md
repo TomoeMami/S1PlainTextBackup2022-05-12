@@ -9543,3 +9543,93 @@ md笑死我了我操，刚睁眼给我笑清醒了
 快去mdy直播间，打起来了</blockquote>
 谎报！
 
+
+
+*****
+
+####  12481632  
+##### 10161#       发表于 2022-8-14 08:21
+
+一觉醒来果然又是四赵云带躺，缩壳缩壳<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 10162#       发表于 2022-8-14 08:22
+
+术士8喷人的时候底气怎么这么足，拧绳的时候就是输了再回去练？反观ceb我们这把要打爆他们，ana也是no mercy。
+
+*****
+
+####  白野苍衣  
+##### 10163#       发表于 2022-8-14 08:26
+
+哇，还给鹏子选虚空。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 10164#       发表于 2022-8-14 08:26
+
+这预告里面227命令一下子给我整精神了，这雪碧教练不比小8有气势多了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 10165#       发表于 2022-8-14 08:26
+
+又放电棍了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  香蕉芭菲  
+##### 10166#       发表于 2022-8-14 08:29
+
+第二把还是暴露了茶队很严重的问题，没有五号位陈，人家有。波波卡的陈没打出作用，而且相当于放弃了波波卡四号位的节奏，很僵硬
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 10167#       发表于 2022-8-14 08:29
+
+别给鹏子选虚空了啊，他没这个能力呀<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  希望之花  
+##### 10168#       发表于 2022-8-14 08:29
+
+“加油明天干处长”xd
+
+*****
+
+####  雅朵莉雀  
+##### 10169#       发表于 2022-8-14 08:29
+
+电魂+puck，茶队走了呀
+
+*****
+
+####  Keynes  
+##### 10170#       发表于 2022-8-14 08:29
+
+“欢迎见证Team Spirit的灰姑娘神话”
+这才是dota嘛<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Litccc  
+##### 10171#       发表于 2022-8-14 08:30
+
+xxs也不会电魂，学一下崩溃哥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
