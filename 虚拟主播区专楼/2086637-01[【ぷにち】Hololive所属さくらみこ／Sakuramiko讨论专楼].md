@@ -873,3 +873,25 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 
 开了个22点窗目测rust
 
+
+
+*****
+
+####  rs5621  
+##### 77#       发表于 2022-8-14 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这位画师现在还在坚持画八字母，是真的喜欢了。前几天看她推上说画好的图没被两人点赞还是有些失落的（看的机翻）。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 78#         楼主| 发表于 2022-8-14 17:55
+
+ 本帖最后由 holoan 于 2022-8-14 17:59 编辑 
+
+今天也是，mikoRT了几个平时比较熟的画师的CM相关推，还是没有理ともず老师
+
+但是miko还是有关注她的号，上次1对1talk的时候有专门带图去跟miko见面还是有印象的
+

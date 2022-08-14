@@ -12178,3 +12178,14 @@ RBA求求你千万不要是打手
 虽然挺好看。但我觉得不如偶像活动那个</blockquote>
 偶像的穿太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1144#       发表于 2022-8-14 17:54
+
+道满竟然有三个新立绘，惊了，怀疑运营曾有过打算出泳装道满（毕竟性别其他），但为了流水还是放弃了......
+
+另外我感觉实装的这个牵牛花浴衣完全没白熊衬衫和骷髅冲浪服好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望以后有机会能实装吧...
+
