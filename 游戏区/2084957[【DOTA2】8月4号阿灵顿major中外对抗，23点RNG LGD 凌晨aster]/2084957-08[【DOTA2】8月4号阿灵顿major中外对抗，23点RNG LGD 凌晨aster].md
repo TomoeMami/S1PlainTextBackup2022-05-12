@@ -540,3 +540,118 @@ ti8畜晒老干鳖一脸大反派相，这次预告片感觉在往英雄末路�
 可见nga集美浓度已经 ...</blockquote>
 这种黑称在这种场合确实不合适<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格雷殿下  
+##### 10565#       发表于 2022-8-14 11:21
+
+sg网友狠起来，连自己也骂的，隔壁lga的集美配来比较吗😄
+
+*****
+
+####  莉拉厨  
+##### 10566#       发表于 2022-8-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058291&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 11:11</a>
+畜视界这ts说话搞得身后就是莫斯科一样</blockquote>
+毕竟是偷的冠军，艰难取胜很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  何然  
+##### 10567#       发表于 2022-8-14 11:25
+
+笑死，刚才老婆过来看到我在看上面那图，我顺手就打开客户端问她各队颜值担当
+
+TS选了崩溃哥
+
+LGD选了xincute
+
+然后rng、og、阿茶看得她直摇头
+
+最后硬逼着杜鹏处长二选一还是选了处长
+
+*****
+
+####  CNFH1984  
+##### 10568#       发表于 2022-8-14 11:26
+
+<blockquote>BallanceHZ 发表于 2022-8-14 11:16
+这种黑称在这种场合确实不合适</blockquote>
+道德层面上的黑称不合适就能让nga坛友支持雪碧再进决赛了是吧，真是路见不平一声吼的义士呀！
+
+*****
+
+####  w2210059  
+##### 10569#       发表于 2022-8-14 11:27
+
+国内的选手有很多身材管理不过关啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 10570#       发表于 2022-8-14 11:27
+
+而且话说回来了，说一千道一万也是个观众去举牌子，徐志雷都能跟茶队切割，到观众这儿反而不能了是吧。承认一下nga集美浓度原来是这么难的事情，我学会了呀
+
+*****
+
+####  -SLSL-  
+##### 10571#       发表于 2022-8-14 11:27
+
+xinq颜值是吧
+
+*****
+
+####  Litccc  
+##### 10572#       发表于 2022-8-14 11:28
+
+文爱胖子有一手的
+
+*****
+
+####  百世诸侯  
+##### 10573#       发表于 2022-8-14 11:28
+
+选xinq又是什么思路，这手BP有点wings的味道了
+
+*****
+
+####  名字不乱取  
+##### 10574#       发表于 2022-8-14 11:29
+
+ts全队铁集美，已颁发荣誉中国籍，aster队员公然侮辱cn刀塔第一人，已被开除国籍，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 10575#       发表于 2022-8-14 11:29
+
+在旁边两个壮汉衬托下 微胖莫言看起来居然是正经身材233
+
+<img src="https://img.saraba1st.com/forum/202208/14/112859hrzgw373ywsywrsw.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220814112835.png</strong> (77.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:28 上传
+
+*****
+
+####  nightmare902015  
+##### 10576#       发表于 2022-8-14 11:29
+
+不选大鞭哥选xinq我服了
+
+*****
+
+####  Yukino-Yukino  
+##### 10577#       发表于 2022-8-14 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看nga已经要把茶和鳖鳖切割了。
+

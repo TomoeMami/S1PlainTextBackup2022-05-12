@@ -10741,3 +10741,102 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是蓝卡 没意思
 
+
+
+*****
+
+####  qixinno2  
+##### 1012#       发表于 2022-8-14 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058346&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:17</a>
+
+怎么是蓝卡 没意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新快表演一个十连三宝
+
+*****
+
+####  exiaexa  
+##### 1013#       发表于 2022-8-14 11:22
+
+日本人是真的闲，刚才去刷推
+
+看到一个泳装伊吹85t刷到4770w伤害的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1014#       发表于 2022-8-14 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058391&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:22</a>
+
+萌新快表演一个十连三宝</blockquote>
+蓝卡有什么用?
+
+*****
+
+####  qixinno2  
+##### 1015#       发表于 2022-8-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058405&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:23</a>
+
+蓝卡有什么用?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换着花样冲
+
+*****
+
+####  exiaexa  
+##### 1016#       发表于 2022-8-14 11:28
+
+ 本帖最后由 exiaexa 于 2022-8-14 11:29 编辑 
+
+你们抽到了的，可以去玩一下双伊吹+单C呆的组合，要求是两个泳装伊吹都要20被动
+
+超越认知，是C呆限制了强度.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1017#       发表于 2022-8-14 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058415&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:24</a>
+
+换着花样冲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">为什么要换 蓝卡早就不用了 不然歪了水武藏我也不会恶心半天了  
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看到是蓝卡就没兴趣了 技能不变换成红卡多好啊
+
+*****
+
+####  qixinno2  
+##### 1018#       发表于 2022-8-14 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058462&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:28</a>
+
+为什么要换 蓝卡早就不用了 不然歪了水武藏我也不会恶心半天了  
+
+现在看到是蓝卡就没兴趣 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以用伊吹公主杀狐队啊
+
+*****
+
+####  angelooo  
+##### 1019#       发表于 2022-8-14 11:29
+
+<blockquote>acuman 发表于 2022-8-14 11:13
+伊吹本体好歹那个毛衣在模型里还挺好看，就是想不懂一个日本鬼神为什么要穿现代毛衣
+
+这水伊吹真的是，一破 ...</blockquote>
+毛衣伊吹有现代知识啊，表现上就是那种烂醉如泥的自来熟OL大姐姐，谁规定日本鬼神不能穿现代衣服了，不如说很多从者没换现代衣服才比较奇怪
+
+卡面大家见仁见智我也不说什么，反正本来伊吹也没啥人气，当年剑阶还顶了个被村正背刺的帽子大半年直到红拐落地，每次和呆毛撕强度最后都变成厨力大战，谁让她每次撕的都有很深厚的群众基础呢23333，以及写255她的剧情的樱井给我爬，推完大多数人印象只剩下愉快，哪知道抽了卡放room里这么顶的
+
+*****
+
+####  空气蛹  
+##### 1020#       发表于 2022-8-14 11:30
+
+最近好鸡儿非，公主1000石2宝，梅莉300石一宝，今天又是1000石2宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
