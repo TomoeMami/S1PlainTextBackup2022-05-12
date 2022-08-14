@@ -12687,3 +12687,20 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 现在点数50w</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能在有100%倍卡的活动本测水伊呢
 
+
+
+*****
+
+####  exiaexa  
+##### 1191#       发表于 2022-8-14 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063159&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 19:29</a>
+
+你怎么能在有100%倍卡的活动本测水伊呢</blockquote>
+因为常规助战栏没人挂啊
+
+后来我找了几个朋友给我突击点了20np挂出来
+
+才去打的常规本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

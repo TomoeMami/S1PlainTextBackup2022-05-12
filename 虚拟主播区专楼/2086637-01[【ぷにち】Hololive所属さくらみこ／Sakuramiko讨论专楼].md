@@ -895,3 +895,36 @@ G{2O@)IZ$`6LKN9QRE]8VZE.PNG
 
 但是miko还是有关注她的号，上次1对1talk的时候有专门带图去跟miko见面还是有印象的
 
+
+
+*****
+
+####  rs5621  
+##### 79#       发表于 2022-8-14 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">果然是rust
+
+*****
+
+####  holoan  
+##### 80#         楼主| 发表于 2022-8-14 19:45
+
+就沉迷rust
+
+十几个企画什么时候做？8月份剩下的时间全拿来都不够了
+
+*****
+
+####  holoan  
+##### 81#         楼主| 发表于 2022-8-14 19:49
+
+<img src="https://img.saraba1st.com/forum/202208/14/194858md4xvl1xc1y91dch.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 19:48 上传
+
+什么新箱？
+
