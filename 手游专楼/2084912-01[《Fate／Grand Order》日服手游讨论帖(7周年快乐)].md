@@ -11891,3 +11891,62 @@ RBA求求你千万不要是打手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然水武藏寄了 是不是该来个宝具本了
 
+
+
+*****
+
+####  rooarr  
+##### 1115#       发表于 2022-8-14 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060948&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 15:58</a>
+ 你别骗我！虽然我a狐落地后就没用过了</blockquote>
+不骗你，就是很多莫名其妙的地方少那么几点np<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以上是第一面交完技能的情况，很多时候留一个c呆的20np到第二面才用就可以解决
+
+*****
+
+####  alucardcz  
+##### 1116#       发表于 2022-8-14 16:03
+
+ 本帖最后由 alucardcz 于 2022-8-14 16:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060978&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-14 16:01</a>
+
+不骗你，就是很多莫名其妙的地方少那么几点np以上是第一面交完技能的情况，很多时候留一个c呆的20 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么我一直用的时候从来没遇到过这种问题 是现在的本血量膨胀了吗
+
+*****
+
+####  angelooo  
+##### 1117#       发表于 2022-8-14 16:04
+
+<blockquote>azccc52 发表于 2022-8-14 15:59
+不用nga，国服玩家问一下，你楼说的水莉莉丝和太岁是指这次泳装剧情吗？发生什么事了？翻了下楼没看到讨论 ...</blockquote>
+最新的这次，大概就是有人觉得水怪活动开始都是水莉莉丝和太岁绑定出场，严重挤压了水莉莉丝和御主的互动空间23333
+
+我觉得这个节奏非常弱智所以之前也没怎么在楼里提
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|非常感谢|
+
+查看全部评分
+
+*****
+
+####  fantuanxiaoyi  
+##### 1118#       发表于 2022-8-14 16:08
+
+连吃了两个大保底，还好我不喜欢老太婆。
+
+*****
+
+####  alucardcz  
+##### 1119#       发表于 2022-8-14 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天还挺乐的 我本来以为是蓝卡大概就没戏能看了 就算撕了武藏又如何 没想到会血流成河
+

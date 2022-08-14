@@ -1978,3 +1978,57 @@ atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</b
 
 毕竟英文里没提款这个梗
 
+
+
+*****
+
+####  woyzeck  
+##### 10722#       发表于 2022-8-14 16:00
+
+英文的提款梗很明显是notail圣经a bag of money
+
+*****
+
+####  nerugigannte  
+##### 10723#       发表于 2022-8-14 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思就是我可不想现在就表白
+
+*****
+
+####  战狼PTSD  
+##### 10724#       发表于 2022-8-14 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058503&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-14 11:31</a>
+
+追求客观那没地方去了，nga不客观我赞成，但本楼我也没觉得客观啊</blockquote>
+本楼还是挺客观的，顺风跳脸，逆风缩壳，有积怨的也**方方的展示出来，不像NGA那边吹个皮球就是鳖孙
+
+本来论坛就是瞎**吹的地方，又不是公证处，管那么多干嘛，不扯道德大旗行龌龊之事就行，骂就大胆骂<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 10725#       发表于 2022-8-14 16:05
+
+杜鹏真夺冠了妮不会缩了吧
+
+*****
+
+####  战狼PTSD  
+##### 10726#       发表于 2022-8-14 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057926&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-14 10:32</a>
+
+杰畜真的到处乱蹭啊</blockquote>
+摸奈头本来就在杰出群里，杰出一开始还不知道，到处都是他
+
+这比老闷骚二次元，链子群里时不时浮出来发色图和点评色图
+
+*****
+
+####  nowaki  
+##### 10727#       发表于 2022-8-14 16:09
+
+那今晚就是正统二次元之争了
+
