@@ -12907,3 +12907,28 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 一隻迪奧(寶3)，一隻雙子， 一隻CEO(寶3)，最後才抽中目標的仇エリセ
 
+
+
+*****
+
+####  ネコカイザー  
+##### 1213#       发表于 2022-8-14 23:50
+
+又买了个初始回坑了。
+
+抽完5宝伊吹还剩2900石。拐有杀狐，CBA，C呆，梅林，孔明。
+
+只考虑强度的话要不要攒石等什么关键角色？
+
+*****
+
+####  zore  
+##### 1214#       发表于 2022-8-14 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066433&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-14 23:50</a>
+
+又买了个初始回坑了。
+
+抽完5宝伊吹还剩2900石。拐有杀狐，CBA，C呆，梅林，孔明。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">拐齐了抽打手乱玩
+

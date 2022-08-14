@@ -11405,3 +11405,24 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 虹：什么？我被踢出局了？还有这好事？ ...</blockquote>
 虹没参加ll大赛呀
 
+
+
+*****
+
+####  仟音一心  
+##### 2606#       发表于 2022-8-14 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066179&amp;ptid=2078110" target="_blank">ayara 发表于 2022-8-14 23:30</a>
+
+虽然裂啦之歌是恋恋和ceo的歌，但是恋恋全程基本只和狗互动，真就没cp啊</blockquote>
+有
+
+8EFC9E01-34D4-4332-B382-591D5AC9ADC2.jpeg
+(111.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/235313ci4zoenitxop4ktj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
