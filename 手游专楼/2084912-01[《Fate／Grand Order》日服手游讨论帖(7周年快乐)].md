@@ -11049,3 +11049,58 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然现在2新5星都是蓝 rba也一起蓝了算了 当场撕了蓝梅 等一个再度血流成河
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1040#       发表于 2022-8-14 12:02
+
+狂伊吹好像只有一个宝具动画，都是三破的黑眼红瞳造型放尾兽玉（误），不过语音有元气御姐和威严神明两种声线，动画时间也挺快的，蛮好的。
+
+*****
+
+####  exiaexa  
+##### 1041#       发表于 2022-8-14 12:02
+
+我回来了
+
+这个双伊吹打11X是可行的草
+
+现在只有绿卡打不了111了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1042#       发表于 2022-8-14 12:03
+
+<blockquote>yangun22 发表于 2022-8-14 11:56
+武则天的动画怎么都有了，宝具是先上死灵特性再出伤害的，那第一下就能吃到死灵特攻了 ...</blockquote>
+那确实很强啊，万物特攻。可惜是术阶...
+
+*****
+
+####  qixinno2  
+##### 1043#       发表于 2022-8-14 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿卡给个杀人回NP算了
+
+*****
+
+####  acuman  
+##### 1044#       发表于 2022-8-14 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058731&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-14 11:53</a>
+
+那个高领毛衣好像是之前比较火的童贞杀手毛衣，高领露背，前保守后露出，有段时间算是在推上屠版了：</blockquote>
+毛衣应该就是赶这个时髦的设计，模型倒是挺好看
+
+小教授主要是每破都有那个闪电眼影，有的人是真接受不了。不过这卡一看就是专门服务女玩家的，我不是目标用户也没啥意见。
+
+就好像水紫和水奶光，一看就是专门服务男玩家的，我都喜欢。
+
+我想吐槽的是雷太早先的奶光、教授，从卡面到宝具无论男女都是广受欢迎的设计。
+
+现在越走越极端，以至于到水伊吹，反正以我理解是不在大众审美上。
+
