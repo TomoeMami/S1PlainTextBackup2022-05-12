@@ -4867,3 +4867,42 @@ Manami这次表现都很出彩呢，但提前安洁咒。明年多个梗可以�
 
 虹高继投sonny哥怎么感觉比首发ACE发挥还好<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高等黑暗  
+##### 16945#       发表于 2022-8-14 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063735&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-14 20:25</a>
+
+虹高继投sonny哥怎么感觉比首发ACE发挥还好</blockquote>
+剑持育成的时候第一年为了提高能力给了个超慢球
+
+实际上这个球一直被认为是坑逼二直，拥有所有球种里最低的球质，只要被捕捉非常容易飞出外野甚至变成全垒打，仅次于失投
+
+*****
+
+####  你谁  
+##### 16946#       发表于 2022-8-14 20:46
+
+lize打葛呀 这同接爆炸呀
+
+*****
+
+####  布莱士·西伯利  
+##### 16947#       发表于 2022-8-14 20:47
+
+ 本帖最后由 布莱士·西伯利 于 2022-8-14 20:48 编辑 
+
+不知道会不会变成投手局，也很燃就是了。
+
+呜诶？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16948#       发表于 2022-8-14 20:48
+
+白板战神！！nrk！
+
