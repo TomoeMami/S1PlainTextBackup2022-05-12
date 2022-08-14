@@ -2756,3 +2756,38 @@ TB这一波是开着变身死了，买活是没有大招的，那这一波应该
 
 越来越感觉nga是dota的圣地了
 
+
+
+*****
+
+####  qwas  
+##### 10814#       发表于 2022-8-14 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063423&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-14 20:00</a>
+战术意图就是肥小鹿带队推进
+
+不过被宙斯中路的通关打断了进程
+
+后面为什么继续让小鹿刷就看不懂了 ...</blockquote>
+最后一波肉山团小鹿给了罩了电棍bkb还在冷却的虚空血辣，把差点把买活死的虚空打死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 10815#       发表于 2022-8-14 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063977&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-14 20:43</a>
+
+冰片封路秒掉，想吃圣坛没门！（欢呼声传遍全场）老干爹稳下来了，很稳！OG有人T圣坛，有可能是最后一波团 ...</blockquote>
+别发了别发了求求你别发了
+
+*****
+
+####  拿拿子  
+##### 10816#       发表于 2022-8-14 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57064341&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 21:09</a>
+
+越来越感觉nga是dota的圣地了</blockquote>
+已经是最高城了，直接贷款goat
+
