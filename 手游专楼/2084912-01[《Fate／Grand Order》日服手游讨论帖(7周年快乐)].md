@@ -11788,3 +11788,22 @@ RBA求求你千万不要是打手
 不用3破还有个问题就是宝具语音太弱智。。。虽然我不太开声音</blockquote>
 一破的sexy语音其实也……不过三破那个宝具动画正脸太死亡了
 
+
+
+*****
+
+####  Erikas  
+##### 1104#       发表于 2022-8-14 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不知道为啥水武藏有几句台词总觉得神烦
+水武藏吵水伊吹画的难看，我这五五开吧
+
+*****
+
+####  angelooo  
+##### 1105#       发表于 2022-8-14 15:48
+
+然后比较搞笑的一个事情是，前几天有个帖子讨论仇凛泡馍水武强度的，一水的说水武已经可以抬走了，怎么更强的水伊吹加入战团了，水武又给抬回来了？
+
