@@ -3248,3 +3248,57 @@ ti寄了，才是真寄到位了
 
 至于假赛集美，那都是小意思了
 
+
+
+*****
+
+####  nowaki  
+##### 10868#       发表于 2022-8-14 22:42
+
+集美能赢364天，漏油想今天赢一天都不行吗 呜呜呜
+
+*****
+
+####  nerugigannte  
+##### 10869#       发表于 2022-8-14 22:43
+
+睡了睡了不敢看，狗头人明天还要打工呢
+
+*****
+
+####  joker9527  
+##### 10870#       发表于 2022-8-14 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065045&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-14 22:01</a></blockquote>
+狗萨特是吧
+
+*****
+
+####  walfeds  
+##### 10871#       发表于 2022-8-14 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">狗头人已经把周末两天献祭给工作了，明天继续上班
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 10872#       发表于 2022-8-14 22:45
+
+楼里的萨特含量高了起来<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 10873#       发表于 2022-8-14 22:46
+
+萨特我点金手
+
+*****
+
+####  Keynes  
+##### 10874#       发表于 2022-8-14 22:48
+
+萨特我砍，今晚举个“无敌了呀，处长”吧
+
