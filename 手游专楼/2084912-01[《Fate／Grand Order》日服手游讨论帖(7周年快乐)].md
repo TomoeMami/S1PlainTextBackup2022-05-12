@@ -11382,3 +11382,35 @@ RBA求求你千万不要是打手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望美少女是枪阶水平 没石头抽的我好痛苦
 
+
+
+*****
+
+####  kiralzb  
+##### 1069#       发表于 2022-8-14 13:56
+
+雷太的画风本来就不是主流类的，不然魔法少女早上天啦，反正我很喜欢，爽到<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新吾  
+##### 1070#       发表于 2022-8-14 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看来太岁绑定水lls是蘑菇的意思了，水濑写的水怪活动+樱井写的新泳装都在推这对，你说没有蘑菇授意我是不信的。
+
+水伊吹虽然一眼强到爆炸，但卡面是真的不喜欢，还是我最雷的黑皮+畸形乳+畸形臀+怪异发色，看过几天rba怎么样，强度拉跨就捏着鼻子抽一抽
+
+*****
+
+####  alucardcz  
+##### 1071#       发表于 2022-8-14 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059736&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 13:29</a>
+
+我数了数，补了7单+原有1146=2,175石，2宝
+
+好像跟我当年11单1西哥有一拼了，还是福袋见吧，愿赌服输
+
+福袋要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是奶的那什么暗狐模版吗  该5宝了
+

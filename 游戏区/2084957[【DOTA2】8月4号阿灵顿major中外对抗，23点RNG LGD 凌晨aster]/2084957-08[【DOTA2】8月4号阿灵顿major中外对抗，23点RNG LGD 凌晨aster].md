@@ -1654,3 +1654,33 @@ g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
 
 大胆点，今晚鹏子进化完成变成纳鲁，和ori一起迸发萤火意志，5:0带走雪碧LGD，成为新的四皇！
 
+
+
+*****
+
+####  -SLSL-  
+##### 10684#       发表于 2022-8-14 13:50
+
+鹏子今晚能进化我明天就给septerber猫刷个✈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Buttercry  
+##### 10685#       发表于 2022-8-14 13:56
+
+观众席还有举“请lgd挑选冠军🏆”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 10686#       发表于 2022-8-14 13:56
+
+杜鹏能夺冠我发黑丝女装
+
+*****
+
+####  chilno  
+##### 10687#       发表于 2022-8-14 13:58
+
+剑圣至宝什么鬼，解锁红色外皮后特殊动作没了？只有pis色才有至宝站姿吗
+
