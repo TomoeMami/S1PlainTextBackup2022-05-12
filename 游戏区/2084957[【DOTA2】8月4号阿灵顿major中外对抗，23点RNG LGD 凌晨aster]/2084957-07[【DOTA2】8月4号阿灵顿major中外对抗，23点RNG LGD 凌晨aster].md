@@ -9217,3 +9217,182 @@ ori是真的猛，硬是把虚空尿兜住了
 
 鹏子开始了
 
+
+
+*****
+
+####  cobymar  
+##### 10119#       发表于 2022-8-14 08:01
+
+杜鹏儿不想玩就滚啊
+
+*****
+
+####  天堂蜘蛛  
+##### 10120#       发表于 2022-8-14 08:01
+
+大牛没跟上，不然这波团更爆炸
+
+*****
+
+####  蛭人  
+##### 10121#       发表于 2022-8-14 08:01
+
+不愧是你啊monet。
+
+*****
+
+####  白野苍衣  
+##### 10122#       发表于 2022-8-14 08:02
+
+不对劲了，要被翻。
+
+*****
+
+####  千千千千鸟  
+##### 10123#       发表于 2022-8-14 08:02
+
+不好打了呀
+
+*****
+
+####  Keynes  
+##### 10124#       发表于 2022-8-14 08:05
+
+鹏子怎么装备栏还是个林肯啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 10125#       发表于 2022-8-14 08:05
+
+自家野区全是眼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  漂灵  
+##### 10126#       发表于 2022-8-14 08:06
+
+龙心电棍？
+
+*****
+
+####  蛭人  
+##### 10127#       发表于 2022-8-14 08:08
+
+这monet有塔冰龙没活不开大，塔没了冰龙没露头开大。
+
+*****
+
+####  やト  
+##### 10128#       发表于 2022-8-14 08:08
+
+什么玩意
+
+*****
+
+####  snarc1  
+##### 10129#       发表于 2022-8-14 08:08
+
+寄了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chilno  
+##### 10130#       发表于 2022-8-14 08:08
+
+加油加油还有一把
+
+*****
+
+####  ArowRocher  
+##### 10131#       发表于 2022-8-14 08:08
+
+就为了这个电棍
+
+*****
+
+####  Litccc  
+##### 10132#       发表于 2022-8-14 08:09
+
+鳖壳虚空，打的死谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 10133#       发表于 2022-8-14 08:09
+
+只能说ruru当初放弃monet是有原因的呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 10134#       发表于 2022-8-14 08:09
+
+bot monet
+
+*****
+
+####  cwlo  
+##### 10135#       发表于 2022-8-14 08:09
+
+这虚空玩得是个几把<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 10136#       发表于 2022-8-14 08:09
+
+化龙化龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 10137#       发表于 2022-8-14 08:09
+
+这虚空纯纯犯罪来自: iPhone客户端
+
+*****
+
+####  白野苍衣  
+##### 10138#       发表于 2022-8-14 08:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹏子的虚空，信任！
+
+*****
+
+####  やト  
+##### 10139#       发表于 2022-8-14 08:09
+
+<img src="https://img.saraba1st.com/forum/202208/14/080942m62czxkucttztx55.jpg" referrerpolicy="no-referrer">
+
+<strong>WH)RXZPLQSWAU@QT(J[V4G2.jpg</strong> (67.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 08:09 上传
+
+*****
+
+####  snarc1  
+##### 10140#       发表于 2022-8-14 08:10
+
+蓝猫太穷了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  逃离二次元  
+##### 10141#       发表于 2022-8-14 08:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
