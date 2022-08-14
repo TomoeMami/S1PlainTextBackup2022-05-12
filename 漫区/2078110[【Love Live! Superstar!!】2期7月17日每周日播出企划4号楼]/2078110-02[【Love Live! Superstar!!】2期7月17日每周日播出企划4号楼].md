@@ -11566,3 +11566,51 @@ https://b23.tv/V13XDuU
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你直接去评论区找吧，发了一大堆，我就不搬了
 
+
+
+*****
+
+####  ads147147  
+##### 2619#       发表于 2022-8-15 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067043&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-15 00:48</a>
+我咋看不懂他想说啥，怎么看出再给花田开脱的</blockquote>
+去评论区翻了下，不止这点东西，他发了很多。包括过去的采访，花田背锅论，京极改剧本论这些说烂的东西。
+
+这么坚持的发文，多少还是很让人无奈的，花田无疑是给出了极好作品的编剧，但是到了星这边因为官方对于分锅的躲躲闪闪，导致名气最大的他也成了最大的盾牌。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 2620#       发表于 2022-8-15 00:56
+
+哎呦，难顶，可可又成为被四处批判的对象了，可推真的裂开了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 2621#       发表于 2022-8-15 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067057&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-15 00:50</a>
+https://b23.tv/V13XDuU
+
+你直接去评论区找吧，发了一大堆，我就不搬了</blockquote>
+没看懂都说的什么和什么，要是洗的话不如说是大人的任务，先看看b港澳台那里的评论，再看看nico被提纯后的星二观众这句话下来的评分，虽然锅肯定不是花田一个人的，但是现在就是写的不行，本来加人前都对他二期写好没多大信心了，加了人本来就更没有什么期望了，拿访谈出来给观众算什么，评分评价参考价值摆在那
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 2622#       发表于 2022-8-15 01:02
+
+确认了下staff，这几集不全是花田脚本么，连我是系构台词其他人写的的锅都甩不掉，还洗啥呢，总不能什么都丢京极头上吧，那你干嘛不直接脚本也写京极算了。
+
+这位大哥又不是日升的，也不是啥花田亲戚，到处回复自己复制粘贴的东西，都有点怀疑是bot了。
+
+话说熟肉里可可的台词，比我想象中过分，真搞不懂到底给啥定位，之前江户脏话就够扯的了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

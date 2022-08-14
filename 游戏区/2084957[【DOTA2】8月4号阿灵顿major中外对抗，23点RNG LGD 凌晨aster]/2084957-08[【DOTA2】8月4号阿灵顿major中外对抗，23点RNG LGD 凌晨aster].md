@@ -5944,3 +5944,254 @@ V病毒发作了没，说话，发作了没
 
 在现场的漏油保护好自己<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BallanceHZ  
+##### 11213#       发表于 2022-8-15 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067027&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 00:46</a>
+集美又有雪碧黑点了 这下赢了硬实力输了裁判队</blockquote>
+这还能不是黑点吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 11214#       发表于 2022-8-15 00:52
+
+没记错的话茶队以前点错一次也没让换啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 11215#       发表于 2022-8-15 00:52
+
+nga的集美已经原谅雪碧了，核中核消息是茶队同意重开的，将功补过该赏！
+
+*****
+
+####  9时34分  
+##### 11216#       发表于 2022-8-15 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067027&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 00:46</a>
+集美又有雪碧黑点了 这下赢了硬实力输了裁判队</blockquote>
+这也能洗，那和集美也没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 11217#       发表于 2022-8-15 00:53
+
+这也能重开真的恶心啊，茶队这不拿下提个气
+
+*****
+
+####  弈秋  
+##### 11218#       发表于 2022-8-15 00:53
+
+骄阳骄阳
+
+*****
+
+####  IG.430  
+##### 11219#       发表于 2022-8-15 00:53
+
+这尔斯，学就完事了
+
+*****
+
+####  战狼PTSD  
+##### 11220#       发表于 2022-8-15 00:53
+
+看到个说的挺好的
+
+问茶队就有点那啥了，裁判应该直接按规则办事的
+
+
+
+*****
+
+####  a1370303  
+##### 11221#       发表于 2022-8-15 00:53
+
+焦阳！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 11222#       发表于 2022-8-15 00:54
+
+老东京有这个能力吗，玩蓝猫
+
+*****
+
+####  外挂全家脚气  
+##### 11223#       发表于 2022-8-15 00:54
+
+丹砂！
+
+*****
+
+####  nowaki  
+##### 11224#       发表于 2022-8-15 00:54
+
+又看到我洗雪碧了是吧，扣帽子勤快的人怎么总是这几位
+
+*****
+
+####  吃货红毛  
+##### 11225#       发表于 2022-8-15 00:54
+
+脑东京咯
+
+*****
+
+####  AIDSL  
+##### 11226#       发表于 2022-8-15 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066984&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-15 00:42</a>
+
+以前的癫疯ee打的就是未来主义dota，可惜现在退役养老了。至于当下还在玩的职业选手我推荐关注克里斯神， ...</blockquote>
+你这么一说，刷新电魂就是ee带的风潮吧，虽然他的精髓之一是跳刀。
+
+*****
+
+####  弈秋  
+##### 11227#       发表于 2022-8-15 00:56
+
+什么野怪
+
+*****
+
+####  希望之花  
+##### 11228#       发表于 2022-8-15 00:56
+
+中立野怪KGB说
+
+*****
+
+####  莉拉厨  
+##### 11229#       发表于 2022-8-15 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067092&amp;ptid=2084957" target="_blank">AIDSL 发表于 2022-8-15 00:54</a>
+你这么一说，刷新电魂就是ee带的风潮吧，虽然他的精髓之一是跳刀。</blockquote>
+明场面之ee2w5电棍飞鞋a帐刷新盘子bkb，单防敌方4w圣剑luna
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 11230#       发表于 2022-8-15 00:56
+
+曾焦阳万丈光芒了
+
+*****
+
+####  cwlo  
+##### 11231#       发表于 2022-8-15 00:56
+
+骄阳好硬啊
+
+*****
+
+####  nightmare902015  
+##### 11232#       发表于 2022-8-15 00:57
+
+不是这个天辉夜魇怎么分的啊，为什么茶把把天辉。只要摇到bp后出就固定天辉？
+
+*****
+
+####  nowaki  
+##### 11233#       发表于 2022-8-15 00:57
+
+好消息是两路优，更好的消息是优的不是杜鹏儿，拿下
+
+*****
+
+####  弈秋  
+##### 11234#       发表于 2022-8-15 00:57
+
+这把对线打爆了啊
+
+*****
+
+####  迷途lite  
+##### 11235#       发表于 2022-8-15 00:57
+
+行啊茶队
+
+*****
+
+####  12481632  
+##### 11236#       发表于 2022-8-15 00:58
+
+熟悉的开局优
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 11237#       发表于 2022-8-15 00:58
+
+唯一变量崩溃神
+
+*****
+
+####  pikamee  
+##### 11238#       发表于 2022-8-15 00:58
+
+抢蓝猫把老东京搞脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 11239#       发表于 2022-8-15 00:59
+
+这局赢了会很提气啊，别尿别尿
+
+*****
+
+####  山上徹也  
+##### 11240#       发表于 2022-8-15 00:59
+
+dp完美节奏
+
+*****
+
+####  12481632  
+##### 11241#       发表于 2022-8-15 00:59
+
+鹏子也学处长往地上一趟了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 11242#       发表于 2022-8-15 00:59
+
+怎么样，我说的没错吧
+
+蓝猫打DP就是难玩，只能混刀打野，没有酱油灌瓶是站不住线的
+
+焦阳这手拿出来就是有自信打出优势对线
+
+*****
+
+####  IG.430  
+##### 11243#       发表于 2022-8-15 01:00
+
+注意dp这把吹风，很关键
+
+*****
+
+####  迷途lite  
+##### 11244#       发表于 2022-8-15 01:00
+
+局面优数据不优，感觉又是中期送一波的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
