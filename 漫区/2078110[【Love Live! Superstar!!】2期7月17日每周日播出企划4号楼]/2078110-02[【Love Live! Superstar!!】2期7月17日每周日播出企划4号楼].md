@@ -10971,3 +10971,85 @@ ceo看出liella目前的问题后想从中取利吧，搞小团体（）如果�
 谢了，这么看剧情就有点离谱了…
 还是等看了熟肉再说…
 
+
+
+*****
+
+####  寒风夜  
+##### 2563#       发表于 2022-8-14 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062876&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-14 18:59</a>
+
+ceo看出liella目前的问题后想从中取利吧，搞小团体（）如果分组后都能变成香音拉ceo进团，那编剧也是过于执 ...</blockquote>
+预告有一幕，我怕
+
+*****
+
+####  寒风夜  
+##### 2564#       发表于 2022-8-14 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062876&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-14 18:59</a>
+
+ceo看出liella目前的问题后想从中取利吧，搞小团体（）如果分组后都能变成香音拉ceo进团，那编剧也是过于执 ...</blockquote>
+
+*****
+
+####  nufawneafg  
+##### 2565#       发表于 2022-8-14 19:02
+
+ 本帖最后由 nufawneafg 于 2022-8-14 19:03 编辑 
+
+感情到了就说嘛，又不罚款<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+和一期一样式的，很期待三期（如果还有的话）结成12个人的大家庭
+
+*****
+
+####  iuhehc  
+##### 2566#       发表于 2022-8-14 19:06
+
+一些细节不知道还要自相矛盾写到什么时候
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 2567#       发表于 2022-8-14 19:08
+
+可可啊，别说什么九不九的，vn已经给她做了高贵的3d模型了，你看当年圣雪是没机会，现在vn都国3了，怎么就没机会进裂啦，安心Liella第三季塞够12人吧。
+
+ceo和侑哥哥肯定很谈得来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 2568#       发表于 2022-8-14 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062905&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-8-14 19:02</a>
+感情到了就说嘛，又不罚款
+
+和一期一样式的，很期待三期（如果还有的话）结成12个人的大家庭
+
+ ...</blockquote>
+乐了，建议结成一个∞个人的团，进一步来个真正意义上的みんなで叶える物語
+
+*****
+
+####  易筋经  
+##### 2569#       发表于 2022-8-14 19:11
+
+vn的精致3d小人可都做好了，九人这种话可不能乱说，因为大概率打脸。
+
+*****
+
+####  nufawneafg  
+##### 2570#       发表于 2022-8-14 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062969&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-14 19:09</a>
+
+乐了，建议结成一个∞个人的团，进一步来个真正意义上的みんなで叶える物語 ...</blockquote>
+答案是毕业机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

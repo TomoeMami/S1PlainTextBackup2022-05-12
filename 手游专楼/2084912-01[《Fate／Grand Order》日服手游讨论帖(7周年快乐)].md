@@ -12600,3 +12600,47 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 不都是认角色和礼装么，没影响吧，反而能开宝具之后影响更小了（虽然这个意义不大）。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不点技能被动之类的啊，那群人选助战又不会仔细看，不然也不会抱怨选到好友助战不满技能，然后气到直接删好友
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1183#       发表于 2022-8-14 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他们这么功利的吗
+
+*****
+
+####  exiaexa  
+##### 1184#       发表于 2022-8-14 19:05
+
+ 本帖最后由 exiaexa 于 2022-8-14 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062912&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-14 19:03</a>
+
+他们这么功利的吗</blockquote>
+一般来说，极限秃子真的会这么干，甚至会自己给自己开号
+
+问题是我觉得隔壁的秃子大概没日基这么有病
+
+只能说确实是装逼需求大过实际需求
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1185#       发表于 2022-8-14 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062834&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 18:55</a>
+巴姐不是第一天就满破了吗</blockquote>
+我是开始就合了然后助战一直没有刷到过，又是自然回体刷本，进度超慢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 1186#       发表于 2022-8-14 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062912&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-14 19:03</a>
+
+他们这么功利的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这事每次出新拐隔壁都要战，这次更新了多套助战后，为了要不要把所有助战全放满这事都战了好几天，还有被动2技能不点满的贴也不少了
+
