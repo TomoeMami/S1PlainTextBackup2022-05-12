@@ -10971,3 +10971,446 @@ Monet是真不行啊
 
 TI淘汰对面再嘲讽也不迟吧
 
+
+
+*****
+
+####  弈秋  
+##### 10347#       发表于 2022-8-14 09:30
+
+ceb在笑着拧绳
+
+*****
+
+####  zkc1991  
+##### 10348#       发表于 2022-8-14 09:30
+
+我愿称茶队为小LGD，一毛一样，四赵云带个经常发病的carry<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 10349#       发表于 2022-8-14 09:30
+
+<img src="https://p.sda1.dev/6/f2529fb5bc05878df79f7a934bdf109a/5a81aea237ff0878.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 10350#       发表于 2022-8-14 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">缩壳了，ti见
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  夏溪澪mio  
+##### 10351#       发表于 2022-8-14 09:30
+
+西恩不会相聚决赛吧？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  smlszh  
+##### 10352#       发表于 2022-8-14 09:30
+
+xxs吧好像是
+
+*****
+
+####  Cookiekira  
+##### 10353#       发表于 2022-8-14 09:30
+
+希望atf这波被嘲讽以后知耻而后勇 进化一下呀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 10354#       发表于 2022-8-14 09:31
+
+ 赢的时候就要狂的
+
+*****
+
+####  ArowRocher  
+##### 10355#       发表于 2022-8-14 09:31
+
+现在不跳更待何时，等打回来吗
+
+*****
+
+####  Keynes  
+##### 10356#       发表于 2022-8-14 09:31
+
+漏油们不会真的指望茶队能淘汰og吧查不多得勒
+
+*****
+
+####  马台街48  
+##### 10357#       发表于 2022-8-14 09:31
+
+嘲讽随便打，手都不握也太没体育精神了点，这队的企业文化还是随老板
+
+*****
+
+####  吃货红毛  
+##### 10358#       发表于 2022-8-14 09:31
+
+看得过呼吸了233
+
+不过嘲讽也无所谓吧og本来也喜欢搞人互相搞搞来自: iPhone客户端
+
+*****
+
+####  haruhiismer  
+##### 10359#       发表于 2022-8-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057209&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-14 09:31</a>
+漏油们不会真的指望茶队能淘汰og吧查不多得勒</blockquote>
+?
+
+*****
+
+####  cobymar  
+##### 10360#       发表于 2022-8-14 09:31
+
+牛皮球牛
+
+*****
+
+####  苏西踩到我了  
+##### 10361#       发表于 2022-8-14 09:31
+
+就是要现在嘲讽啊，精神毁灭og，打烂他们的状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 10362#       发表于 2022-8-14 09:32
+
+atm大草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 10363#         楼主| 发表于 2022-8-14 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057209&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-14 09:31</a>
+漏油们不会真的指望茶队能淘汰og吧查不多得勒</blockquote>
+别在这理发店
+
+*****
+
+####  希望之花  
+##### 10364#       发表于 2022-8-14 09:32
+
+就看ceb能不能把这个c的心态调教好吧
+
+*****
+
+####  nerugigannte  
+##### 10365#       发表于 2022-8-14 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皮球干什么了，赢了我转头就另外个屏幕上看xb3播片了没注意
+
+*****
+
+####  北条早苗  
+##### 10366#       发表于 2022-8-14 09:32
+
+atf这电棍出装也是真的畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 10367#       发表于 2022-8-14 09:32
+
+感觉熊猫要被削了，刷新A杖后期太离谱了，从当初石油杯预选rng打boom时就觉得这英雄强度离谱
+
+*****
+
+####  a1370303  
+##### 10368#       发表于 2022-8-14 09:32
+
+加油加油，今晚打雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tienx  
+##### 10369#       发表于 2022-8-14 09:32
+
+出乎意料呀，茶队牛逼好吧
+
+*****
+
+####  百世诸侯  
+##### 10370#       发表于 2022-8-14 09:33
+
+茶队和ATF有恩怨吗，细说
+
+*****
+
+####  北条早苗  
+##### 10371#       发表于 2022-8-14 09:33
+
+xxs和atf在天梯里互喷过
+
+*****
+
+####  4591  
+##### 10372#       发表于 2022-8-14 09:33
+
+这局不是靠骄阳和xxs，都翻了几次了莫奈特真的好脑浆啊。OG还是输在小鹿吸了太多的血电棍起不来
+
+*****
+
+####  吃货红毛  
+##### 10373#       发表于 2022-8-14 09:33
+
+看来今天得紧急睡觉进行一个夜的熬来自: iPhone客户端
+
+*****
+
+####  Keynes  
+##### 10374#       发表于 2022-8-14 09:34
+
+lgd人称小鳖星，ame人称大monet
+
+*****
+
+####  adretyu67  
+##### 10375#       发表于 2022-8-14 09:34
+
+不就漏油之前发的那个去年视频，直播中xxs亲切问候atf他妈。
+
+估摸应该是茶还在泰国隔离那段时间
+
+*****
+
+####  莉拉厨  
+##### 10376#       发表于 2022-8-14 09:34
+
+是atf先不基德的呀
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 10377#       发表于 2022-8-14 09:34
+
+喜闻茶队终进决赛日，不哭不是真核核！
+
+*****
+
+####  4591  
+##### 10378#       发表于 2022-8-14 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057233&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-14 09:33</a>
+茶队和ATF有恩怨吗，细说</blockquote>
+有个切片，xxs狂喷ATF的紫猫不知道啥时候事
+
+*****
+
+####  Imanmi  
+##### 10379#       发表于 2022-8-14 09:35
+
+集美论坛看鳖星赢了好急
+
+*****
+
+####  ArowRocher  
+##### 10380#       发表于 2022-8-14 09:35
+
+那也就是单方面嘲讽atf啊，atf好像没对茶扔装备打字吧
+
+
+
+*****
+
+####  43453  
+##### 10381#       发表于 2022-8-14 09:35
+
+ATF：ceb无效拧绳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一说一这年轻OG没有老OG韧性，最后那波老OG肯定要赖皮到最后的
+
+*****
+
+####  Yukino-Yukino  
+##### 10382#       发表于 2022-8-14 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057258&amp;ptid=2084957" target="_blank">Imanmi 发表于 2022-8-14 09:35</a>
+
+集美论坛看鳖星赢了好急</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟现场有人举了个明天干处长的牌子。
+
+*****
+
+####  Asukalangley33  
+##### 10383#       发表于 2022-8-14 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057258&amp;ptid=2084957" target="_blank">Imanmi 发表于 2022-8-14 09:35</a>
+
+集美论坛看鳖星赢了好急</blockquote>
+急的真不一定是集美，我觉得小超人最急<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 10384#       发表于 2022-8-14 09:36
+
+弹幕给我看乐了  鹏子这虚空就是菜 送 处长的虚空就是吃伤害 拉扯<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 10385#       发表于 2022-8-14 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057271&amp;ptid=2084957" target="_blank">Cookiekira 发表于 2022-8-14 09:36</a>
+弹幕给我看乐了  鹏子这虚空就是菜 送 处长的虚空就是吃伤害 拉扯</blockquote>
+那一定是你的直播间没找对
+
+*****
+
+####  やト  
+##### 10386#       发表于 2022-8-14 09:36
+
+<img src="https://img.saraba1st.com/forum/202208/14/093651r6d9irdv8pqm4pum.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 09:36 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/093724a88m2nm7rzkwnmmn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (237.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 09:37 上传
+
+*****
+
+####  Keynes  
+##### 10387#       发表于 2022-8-14 09:37
+
+小心点，这楼里现在庆祝的明天就要被集美打成鳖孙！
+
+*****
+
+####  Asukalangley33  
+##### 10388#       发表于 2022-8-14 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057263&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-14 09:35</a>
+
+ATF：ceb无效拧绳
+
+有一说一这年轻OG没有老OG韧性，最后那波老OG肯定要赖皮到最后的 ...</blockquote>
+老OG最后把曾焦阳买活打出来以后肯定直接进行一个高地的缩
+
+这个OG直接跟茶决战，结果玩没了
+
+*****
+
+####  Litccc  
+##### 10389#       发表于 2022-8-14 09:37
+
+不过鹏子虚空熟练度确实不如处长，处长玩虚空魔晶用的很好
+
+*****
+
+####  Kazepollar  
+##### 10390#       发表于 2022-8-14 09:37
+
+处长现在的卖屁股打法换个说法不还是躺着等带吗，坐等ti上猴子爹萎靡，处长卖屁股卖死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 10391#       发表于 2022-8-14 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">放弃品茶看lgd真是个不明智的选择…只看到了后半段，还好赢了
+
+*****
+
+####  外挂全家脚气  
+##### 10392#       发表于 2022-8-14 09:38
+
+茶牛逼！
+有一说一，monet这把已经发挥可以了
+
+*****
+
+####  沈淮  
+##### 10393#         楼主| 发表于 2022-8-14 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057266&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-14 09:35</a>
+毕竟现场有人举了个明天干处长的牌子。</blockquote>
+有图片吗？
+
+*****
+
+####  为了mf注册  
+##### 10394#       发表于 2022-8-14 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057288&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-14 09:37</a>
+
+处长现在的卖屁股打法换个说法不还是躺着等带吗，坐等ti上猴子爹萎靡，处长卖屁股卖死 ...</blockquote>
+处长的打法已经被吹成现代dota了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 10395#       发表于 2022-8-14 09:39
+
+邪恶睿达现在把把力中暴力  到底是为这届ti的透支 还是上届ti的偿还 拭目以待！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 10396#       发表于 2022-8-14 09:39
+
+这把ceb需要给自己拧拧绳了
+
+茶队怎么还是这三流翻译
+
+*****
+
+####  caupollen  
+##### 10397#       发表于 2022-8-14 09:39
+
+茶队这个英语传译我看笑了
+
+*****
+
+####  雅朵莉雀  
+##### 10398#       发表于 2022-8-14 09:39
+
+杜鹏儿最后一波居然没点那个刷新球刷BKB硬是等了BKBCD好开的
+
+看起来真的很危险，万一被晕了血棘斩死就真输了
+
+*****
+
+####  dddyghr  
+##### 10399#       发表于 2022-8-14 09:40
+
+ame这发型越看越脸熟，诶，这不是里克吗
+
+*****
+
+####  acejoe  
+##### 10400#       发表于 2022-8-14 09:40
+
+选剑圣不推塔，果然输了
+

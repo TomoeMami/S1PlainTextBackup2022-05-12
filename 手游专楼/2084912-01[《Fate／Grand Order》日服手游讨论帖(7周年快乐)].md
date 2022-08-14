@@ -10162,3 +10162,34 @@ rba 这给看不给用，藏着详细让你猜真的是心机商法啊叶哥哥<
 
 40抽2伊吹0绘理濑跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 954#       发表于 2022-8-14 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么楼上次次那么狗
+
+*****
+
+####  areklose  
+##### 955#       发表于 2022-8-14 09:32
+
+今年最有分量得卡池。顶级蓝卡泛用光炮。顶级蓝卡泛用单体。
+
+*****
+
+####  angelooo  
+##### 956#       发表于 2022-8-14 09:37
+
+道理我都懂，为什么伊吹这么强，睡过头了吗的，现在马上去抽
+
+*****
+
+####  exiaexa  
+##### 957#       发表于 2022-8-14 09:39
+
+随便试了下，武藏真就硬生生被完爆，闪避跟战续又吹不起来，太惨了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
