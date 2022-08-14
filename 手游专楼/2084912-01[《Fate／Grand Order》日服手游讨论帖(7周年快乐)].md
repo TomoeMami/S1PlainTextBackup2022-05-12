@@ -11498,3 +11498,21 @@ RBA求求你千万不要是打手
 这水伊吹三破模型怎么做的像会在合金弹头里出场的BOSS一样</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三破那柱子太JB怪了
 
+
+
+*****
+
+####  rooarr  
+##### 1080#       发表于 2022-8-14 14:15
+
+有什么好讨论的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一宝确实不太行
+
+
+
+*****
+
+####  新吾  
+##### 1081#       发表于 2022-8-14 14:17
+
+草了，水武则天是成人ver
+

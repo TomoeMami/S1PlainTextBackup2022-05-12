@@ -1718,3 +1718,51 @@ g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
 
 2016年的今天，Wings Gaming夺得了TI6的冠军。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woyzeck  
+##### 10692#       发表于 2022-8-14 14:10
+
+那我也小胆预测下。雪碧上去没机会，茶有机会。
+
+*****
+
+####  idlerdy  
+##### 10693#       发表于 2022-8-14 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060038&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-14 14:06</a>
+2016年的今天，Wings Gaming夺得了TI6的冠军。</blockquote>
+不知道bian和y会不会在决赛场想到六年前的今天
+
+*****
+
+####  woyzeck  
+##### 10694#       发表于 2022-8-14 14:14
+
+也就是说本来这次major应该是ti，而lgd已经赢得了ti冠军
+
+*****
+
+####  百世诸侯  
+##### 10695#       发表于 2022-8-14 14:16
+
+杜鹏能major夺冠我TI11总决赛那晚直播打野，让野怪穿LGD队服
+
+*****
+
+####  IG.430  
+##### 10696#       发表于 2022-8-14 14:17
+
+下头
+
+*****
+
+####  tengshuo980  
+##### 10697#       发表于 2022-8-14 14:19
+
+呃呃
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
