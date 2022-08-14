@@ -7251,3 +7251,170 @@ woc，天命刷新盾
 
 ts说选人时候电脑死机了所以random了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 11384#       发表于 2022-8-15 01:40
+
+听说选错人是因为电脑崩溃了
+
+*****
+
+####  lmslardar  
+##### 11385#       发表于 2022-8-15 01:40
+
+好久没看中国队打内战了，加油啊，虽然我很困
+
+*****
+
+####  nightmare902015  
+##### 11386#       发表于 2022-8-15 01:40
+
+collapse
+
+*****
+
+####  iriyano  
+##### 11387#       发表于 2022-8-15 01:41
+
+森哥怎么也是我们山西的，那应该是我们山西第二网红了
+第一是ok林仔
+
+*****
+
+####  弈秋  
+##### 11388#       发表于 2022-8-15 01:41
+
+不是杨树?
+
+*****
+
+####  adretyu67  
+##### 11389#       发表于 2022-8-15 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067539&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-15 01:40</a>
+
+ts说选人时候电脑死机了所以random了</blockquote>
+线下比赛对战室有裁判，这种事作不了假吧
+
+*****
+
+####  Aeons  
+##### 11390#       发表于 2022-8-15 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说是犹豫了好久最后选的3号位陈，5号位马尔斯，还以为是慎重考虑，结果还真是选错了，这电脑崩了我是信的。
+
+*****
+
+####  莉拉厨  
+##### 11391#       发表于 2022-8-15 01:42
+
+你们山西尽出些小丑是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 11392#       发表于 2022-8-15 01:42
+
+森哥为什么不能在b站发评论啊？
+
+*****
+
+####  IG.430  
+##### 11393#       发表于 2022-8-15 01:42
+
+你们山西尽出些小丑是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 11394#       发表于 2022-8-15 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067536&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 01:39</a>
+
+搬点乐子，让楼友场间兴奋一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">完美dota项目组这帮CSDX虽然常年修不好服务器该死，不过今天骑脸集美还是要夸一夸的
+
+*****
+
+####  asd235614  
+##### 11395#       发表于 2022-8-15 01:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这把骄阳真是力中暴力，尤其是中路那波没BKB带大跳脸，估计是算好了回魂时间感觉自己死不掉给虚空开团战视野
+
+*****
+
+####  woyzeck  
+##### 11396#       发表于 2022-8-15 01:46
+
+完美肯定都是a黑好吧，连续三年整大活，你知道完美夺冠文案和宣传方案整了多少次么。
+
+*****
+
+####  Aeons  
+##### 11397#       发表于 2022-8-15 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老东京下把会不会一泻千里
+
+*****
+
+####  nightmare902015  
+##### 11398#       发表于 2022-8-15 01:46
+
+那波我手脚都凉了以为ori要完全空大或者被迫打盾被灭，没想到选择的是直接跳上去卖，太暴力了。
+
+*****
+
+####  Keynes  
+##### 11399#       发表于 2022-8-15 01:47
+
+“dota2国服，不装了是吧”
+
+*****
+
+####  千千千千鸟  
+##### 11400#       发表于 2022-8-15 01:49
+
+有点顶不住了，小咪一下，第三把打一半再看<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  吃货红毛  
+##### 11401#       发表于 2022-8-15 01:49
+
+什么啊 4号位陈 还2手蓝猫吗 害怕
+
+*****
+
+####  弈秋  
+##### 11402#       发表于 2022-8-15 01:49
+
+自己玩chen体系?
+
+*****
+
+####  trackerList  
+##### 11403#       发表于 2022-8-15 01:49
+
+热血o猫
+
+*****
+
+####  战狼PTSD  
+##### 11404#       发表于 2022-8-15 01:49
+
+我是真没想到这个版本也能一手蓝猫了，加强计划大失败<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 11405#       发表于 2022-8-15 01:50
+
+要教雪碧玩游戏了?
+

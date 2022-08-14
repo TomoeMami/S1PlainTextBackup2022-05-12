@@ -11792,3 +11792,24 @@ https://b23.tv/V13XDuU
 这集我看得好难受啊，本来以为上一集开始终于开始要好起来了，没想到这集观感下降这么严重，tkk说话属实气 ...</blockquote>
 看得难受可以不看，还有广播杂志游戏补充，花田这样都很难不怀疑他是对中国人有意见
 
+
+
+*****
+
+####  cxj649  
+##### 2642#       发表于 2022-8-15 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067538&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 01:40</a>
+
+看得难受可以不看，还有广播杂志游戏补充，花田这样都很难不怀疑他是对中国人有意见 ...</blockquote>
+想多了，香恋的问题比可严重多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2643#       发表于 2022-8-15 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067578&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-15 01:45</a>
+想多了，香恋的问题比可严重多了</blockquote>
+是吗？现在外网内网炮火全对着可可，你怎么看？
+
