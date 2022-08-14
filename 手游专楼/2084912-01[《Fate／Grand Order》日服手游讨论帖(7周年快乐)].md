@@ -11414,3 +11414,87 @@ RBA求求你千万不要是打手
 福袋要 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是奶的那什么暗狐模版吗  该5宝了
 
+
+
+*****
+
+####  qixinno2  
+##### 1072#       发表于 2022-8-14 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059502&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 13:01</a>
+
+顺便我刚刚看了看 2021年1年算上福袋new了11个  2022年算上福袋new了2个 寄  全寄了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去年也只有11个NEW
+
+*****
+
+####  exiaexa  
+##### 1073#       发表于 2022-8-14 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059951&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 13:58</a>
+
+你不是奶的那什么暗狐模版吗  该5宝了</blockquote>
+想把一天前的自己打晕.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1074#       发表于 2022-8-14 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚又去隔壁参观了下 双伊吹已经吊打双王姐了？  血流成河了？  谁来说说
+
+*****
+
+####  alucardcz  
+##### 1075#       发表于 2022-8-14 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059974&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 14:00</a>
+
+我去年也只有11个NEW</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后欧皇的称号就是你的了 本萌新只不过是个非萌
+
+*****
+
+####  qixinno2  
+##### 1076#       发表于 2022-8-14 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059985&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 14:02</a>
+
+以后欧皇的称号就是你的了 本萌新只不过是个非萌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是不如真欧皇 我只是偶尔狗屎运一下 毕竟没一个能抽到3宝哪配当欧皇
+
+*****
+
+####  里村紅葉  
+##### 1077#       发表于 2022-8-14 14:06
+
+这水伊吹三破模型怎么做的像会在合金弹头里出场的BOSS一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1078#       发表于 2022-8-14 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059980&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 14:01</a>
+
+刚刚又去隔壁参观了下 双伊吹已经吊打双王姐了？  血流成河了？  谁来说说 ...</blockquote>
+双伊吹单C呆可以在不换人的情况下稳过12X或者21X
+
+11X需要看overkill的触发情况，就很离谱
+
+基本就是看特攻上人
+
+当然问题跟跟王姐阵容一样，紧张刺激的指令卡战斗，点错一个大概率出本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1079#       发表于 2022-8-14 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060036&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-14 14:06</a>
+
+这水伊吹三破模型怎么做的像会在合金弹头里出场的BOSS一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三破那柱子太JB怪了
+
