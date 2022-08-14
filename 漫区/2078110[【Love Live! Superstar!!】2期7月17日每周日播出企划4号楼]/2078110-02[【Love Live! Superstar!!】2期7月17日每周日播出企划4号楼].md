@@ -11077,3 +11077,23 @@ vn的精致3d小人可都做好了，九人这种话可不能乱说，因为大�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  寒风夜  
+##### 2573#       发表于 2022-8-14 19:22
+
+ 本帖最后由 寒风夜 于 2022-8-14 19:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">5人还是来看闪耀路标吧，虽然现在才3人
+
+*****
+
+####  aoaoaodedede  
+##### 2574#       发表于 2022-8-14 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063045&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-14 19:16</a>
+之前就看人提到了，要是真香音传也就算了，问题是这次非常纠结于大家实现的故事，香音emo了，大家（校友 ...</blockquote>
+星这动画大部分时候处理不好个人和集体之间的关系，更别说个人与集体共同发展了，现在想写“大家”了，就直接硬来了，第3集不就那回事吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

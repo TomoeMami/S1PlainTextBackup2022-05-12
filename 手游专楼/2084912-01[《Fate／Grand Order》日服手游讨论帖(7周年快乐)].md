@@ -12673,3 +12673,17 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 现在点数50w
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1190#       发表于 2022-8-14 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063021&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 19:14</a>
+
+我单纯就是测旧梅和伊吹的时候打本打多了
+
+现在点数50w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能在有100%倍卡的活动本测水伊呢
+
