@@ -10468,3 +10468,41 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 伊吹都这样了其他颜色不抬一下说不过去吧
 
+
+
+*****
+
+####  里村紅葉  
+##### 988#       发表于 2022-8-14 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057845&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 10:26</a>
+
+所以玉玉什么时候给个主动赋予灼烧</blockquote>
+以后宝具本加个前置灼烧就行，剧情就说是武则天教的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 989#       发表于 2022-8-14 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057822&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 10:25</a>
+
+拉拉队就是本体那个瞎眼的粉红粉绿配色，还好没出现灯笼裤这种惊天衣品，这个伊吹就卡面感觉比起剑阶的萝 ...</blockquote>
+我感觉NOCO给FGO画的最好看的是鬼女红叶，那种配色有种浮世绘的美感。
+
+小王子设计的还不错，就是色调搭配导致没那么惊艳显眼...
+
+绘里濑，两个版本都素到不行...
+
+我看NOCO画的炼金工房系列的女孩子都挺可爱漂亮的，到了FGO这边反倒省起墨水了吗...好歹亲女儿有戏份了开个小灶不好吗...难不成是和星空流星还有天野喜孝学坏了（大雾）
+
+*****
+
+####  Jamaisvu  
+##### 990#       发表于 2022-8-14 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057932&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-14 10:33</a>
+
+以后宝具本加个前置灼烧就行，剧情就说是武则天教的</blockquote>
+请君入瓮是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
