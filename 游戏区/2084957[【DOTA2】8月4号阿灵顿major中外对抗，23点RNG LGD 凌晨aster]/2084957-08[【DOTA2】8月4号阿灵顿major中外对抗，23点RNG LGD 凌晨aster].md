@@ -504,3 +504,39 @@ TI7在老干瘪，TI9在KG，TI10在老干瘪<img src="https://static.saraba1st.
 
 我想开了，我甚至提前原谅了lgd，写在真视界发布前n天
 
+
+
+*****
+
+####  nowaki  
+##### 10561#       发表于 2022-8-14 11:11
+
+畜视界这ts说话搞得身后就是莫斯科一样
+
+*****
+
+####  pikamee  
+##### 10562#       发表于 2022-8-14 11:15
+
+ti8畜晒老干鳖一脸大反派相，这次预告片感觉在往英雄末路的形象塑造，搞那么煽情干嘛
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  反方向的波  
+##### 10563#       发表于 2022-8-14 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">yysy我没觉得雪碧是帅哥队，队里最符合我审美的米波什卡还一脸痘
+
+*****
+
+####  BallanceHZ  
+##### 10564#       发表于 2022-8-14 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058257&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-14 11:07</a>
+就因为现场有人举了加油明天干处长的牌子，nga的舆论就变得压倒性的想看雪碧再进决赛
+
+可见nga集美浓度已经 ...</blockquote>
+这种黑称在这种场合确实不合适<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

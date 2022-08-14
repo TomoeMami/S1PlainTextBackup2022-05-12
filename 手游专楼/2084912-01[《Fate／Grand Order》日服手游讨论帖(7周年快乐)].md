@@ -10693,3 +10693,51 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 你也可以解锁蓝色修改器</blockquote>
 兄弟，氪金少一点吧，留点给还房贷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acuman  
+##### 1008#       发表于 2022-8-14 11:13
+
+伊吹本体好歹那个毛衣在模型里还挺好看，就是想不懂一个日本鬼神为什么要穿现代毛衣
+
+这水伊吹真的是，一破辣眼睛拉拉队，二破哈人大眼睛。宝具动画也是特效敷衍+怼脸（歪嘴）一笑+看不清身体结构。
+
+你游这些主力画师怎么一堆越画越奇怪的。雷太现在的卡跟最早的奶光根本不能比。
+
+*****
+
+####  exiaexa  
+##### 1009#       发表于 2022-8-14 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058280&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-14 11:10</a>
+
+兄弟，氪金少一点吧，留点给还房贷</blockquote>
+本来就是留给泳装的无所谓
+
+其他的patreon和fanbox能停的都停了
+
+现在报复性消费项目只剩你游
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1010#       发表于 2022-8-14 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058317&amp;ptid=2084912" target="_blank">acuman 发表于 2022-8-14 11:13</a>
+
+伊吹本体好歹那个毛衣在模型里还挺好看，就是想不懂一个日本鬼神为什么要穿现代毛衣
+
+这水伊吹真的是，一破 ...</blockquote>
+你是云玩家？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1011#       发表于 2022-8-14 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是蓝卡 没意思
+
