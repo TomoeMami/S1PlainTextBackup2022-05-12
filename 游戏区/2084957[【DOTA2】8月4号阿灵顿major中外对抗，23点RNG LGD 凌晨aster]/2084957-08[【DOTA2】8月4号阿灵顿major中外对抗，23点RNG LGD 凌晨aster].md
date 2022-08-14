@@ -5621,3 +5621,326 @@ all jb homie bro！
 
 有点难 希望好好发挥打满3场 要是被2比0就输的难看了
 
+
+
+*****
+
+####  Aeons  
+##### 11172#       发表于 2022-8-15 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿错了
+
+*****
+
+####  外挂全家脚气  
+##### 11173#       发表于 2022-8-15 00:40
+
+点错还可以重开么……
+
+*****
+
+####  白野苍衣  
+##### 11174#       发表于 2022-8-15 00:40
+
+真就点错了，但是不可能让你重开的吧。
+
+*****
+
+####  nowaki  
+##### 11175#       发表于 2022-8-15 00:40
+
+判负呗
+
+*****
+
+####  seki_m  
+##### 11176#       发表于 2022-8-15 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，一眼就是拿错了，解说台还分析半天
+
+*****
+
+####  吃货红毛  
+##### 11177#       发表于 2022-8-15 00:41
+
+神他妈点错艹 病毒这么快发作了
+
+*****
+
+####  JoelBirch  
+##### 11178#       发表于 2022-8-15 00:41
+
+解说也没办法啊，让你吹逼拖时间你就得吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 11179#       发表于 2022-8-15 00:41
+
+<img src="https://img.saraba1st.com/forum/202208/15/004150jfsr6uobkfy6r9op.png" referrerpolicy="no-referrer">
+
+<strong>PT90{`5%5]5I2[R)A}K4K95.png</strong> (27.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 00:41 上传
+
+*****
+
+####  弈秋  
+##### 11180#       发表于 2022-8-15 00:42
+
+妈的加班中的加班
+
+*****
+
+####  nightmare902015  
+##### 11181#       发表于 2022-8-15 00:42
+
+为啥点错了能重c房间？闻所未闻啊
+
+*****
+
+####  a1370303  
+##### 11182#       发表于 2022-8-15 00:42
+
+这是要重开了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 11183#       发表于 2022-8-15 00:42
+
+我相信有kgb了 铁假赛
+
+*****
+
+####  莉拉厨  
+##### 11184#       发表于 2022-8-15 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066819&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 00:24</a>
+现代主义太无聊了，有没有打未来主义dota的？</blockquote>
+以前的癫疯ee打的就是未来主义dota，可惜现在退役养老了。至于当下还在玩的职业选手我推荐关注克里斯神，不停拆合电锤已经到了超人类主义的境界<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 11185#       发表于 2022-8-15 00:42
+
+别问了，克格勃拿枪指着茶队的头重c的
+
+*****
+
+####  adretyu67  
+##### 11186#       发表于 2022-8-15 00:42
+
+选错了还能重开？？？？
+
+*****
+
+####  IG.430  
+##### 11187#       发表于 2022-8-15 00:42
+
+rulebook有这条吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 11188#       发表于 2022-8-15 00:43
+
+这踏马也行吗？那重C茶队也点错了，能不能再重开一次？
+
+*****
+
+####  Horusddt  
+##### 11189#       发表于 2022-8-15 00:43
+
+正常不应该点错了就错着打吗，要么直接认输
+
+*****
+
+####  米德  
+##### 11190#       发表于 2022-8-15 00:43
+
+不是规定了选错了不能换或者重开吗 什么情况
+
+
+
+*****
+
+####  ycz0212  
+##### 11191#       发表于 2022-8-15 00:43
+
+闻所未闻啊
+
+*****
+
+####  莉拉厨  
+##### 11192#       发表于 2022-8-15 00:43
+
+讲道理是不行的，以前茶队DPC时候也点错一次，硬着头皮打啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 11193#       发表于 2022-8-15 00:44
+
+ 本帖最后由 战狼PTSD 于 2022-8-15 00:46 编辑 
+
+应该是茶队同意了
+
+国内也这么搞过吧，眼子职业摆烂的时候好像打过5号位剑圣查了下 是大哥剑圣四号位斯文
+
+*****
+
+####  百世诸侯  
+##### 11194#       发表于 2022-8-15 00:44
+
+V病毒发作了没，说话，发作了没
+
+*****
+
+####  iriyano  
+##### 11195#       发表于 2022-8-15 00:44
+
+哇，茶队这也能答应重开的吗？
+
+*****
+
+####  a1370303  
+##### 11196#       发表于 2022-8-15 00:44
+
+鹏子流眼泪了，克格勃在红脖子的大本营也能发大力的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 11197#       发表于 2022-8-15 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">这能重开的？我强烈要求c9faze重新bp图
+
+*****
+
+####  沈淮  
+##### 11198#         楼主| 发表于 2022-8-15 00:44
+
+还不开？我真的睡了
+
+*****
+
+####  nowaki  
+##### 11199#       发表于 2022-8-15 00:45
+
+快看看杜鹏儿有没有眼泪
+
+*****
+
+####  trackerList  
+##### 11200#       发表于 2022-8-15 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">换人似全家，谢谢支持
+
+*****
+
+####  战狼PTSD  
+##### 11201#       发表于 2022-8-15 00:45
+
+都直邀了，又不是TI，答应就答应了，当练兵
+
+*****
+
+####  JoelBirch  
+##### 11202#       发表于 2022-8-15 00:45
+
+我日啊终极拖真恶心啊
+
+*****
+
+####  Litccc  
+##### 11203#       发表于 2022-8-15 00:46
+
+问题是开了这个头那ti怎么办？bp完来一句选错了继续重开<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 11204#       发表于 2022-8-15 00:46
+
+重开就重开吧，能不能快点
+
+*****
+
+####  nowaki  
+##### 11205#       发表于 2022-8-15 00:46
+
+集美又有雪碧黑点了 这下赢了硬实力输了裁判队
+
+*****
+
+####  lmslardar  
+##### 11206#       发表于 2022-8-15 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066797&amp;ptid=2084957" target="_blank">马台街48 发表于 2022-8-15 00:22</a>
+
+细说</blockquote>
+直播吹牛，然后拉了一大堆wow界“知名选手”，号称要夺团本boss首杀，结果直播拉帮结派，吵架，后来还直播打架，最后一场闹剧下来过boss当晚就解散了。总之非常的drama。
+
+*****
+
+####  百世诸侯  
+##### 11207#       发表于 2022-8-15 00:47
+
+<img src="https://img.saraba1st.com/forum/202208/15/004629xsyph8fh57ni5phf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220815_004611.jpg</strong> (77.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 00:46 上传
+
+不会真以为美国没有克格勃了吧，看不到对面都是狙击叟？撒也不懂
+
+*****
+
+####  PigMourne  
+##### 11208#       发表于 2022-8-15 00:47
+
+我懂了，雪碧决赛再来一次重开请求，lgd必然不同意。
+
+这样一来，茶队在气节上就爆杀了lgd，属于不战而胜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 11209#       发表于 2022-8-15 00:47
+
+讲道理不该给机会啊，这你妈，搞毛呢
+
+*****
+
+####  9时34分  
+##### 11210#       发表于 2022-8-15 00:48
+
+开始赖皮了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 11211#       发表于 2022-8-15 00:49
+
+要是已经退房间了我的建议是直接判负。那tm以后bp劣势直接乱点说选错了重开
+
+*****
+
+####  Litccc  
+##### 11212#       发表于 2022-8-15 00:49
+
+在现场的漏油保护好自己<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

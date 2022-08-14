@@ -11511,3 +11511,58 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 
 每个字都认识，连起来读不懂
 
+
+
+*****
+
+####  ads147147  
+##### 2614#       发表于 2022-8-15 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066773&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-15 00:19</a>
+刚刚没看到预告，这架势，难道香音直接从东京跑北海道K头收人？？</blockquote>
+前三集复刻可香，接下来也该复刻香千长途奔袭了（不是）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 2615#       发表于 2022-8-15 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066921&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-15 00:36</a>
+依然洳雪的烤肉b博下面有个老哥老强度贴长文替花田开脱，看着有点吓人啊</blockquote>
+这语文。要不试试第一定律（）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 2616#       发表于 2022-8-15 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066921&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-15 00:36</a>
+依然洳雪的烤肉b博下面有个老哥老强度贴长文替花田开脱，看着有点吓人啊</blockquote>
+我咋看不懂他想说啥，怎么看出再给花田开脱的
+
+*****
+
+####  JustW_3  
+##### 2617#       发表于 2022-8-15 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067020&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-15 00:45</a>
+这语文。要不试试第一定律（）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他一个人在评论区刷了几十条，还给别人塞私信，神论不少，语文好不好先不说，感觉已经疯了
+
+*****
+
+####  JustW_3  
+##### 2618#       发表于 2022-8-15 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57067043&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-15 00:48</a>
+我咋看不懂他想说啥，怎么看出再给花田开脱的</blockquote>
+https://b23.tv/V13XDuU
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你直接去评论区找吧，发了一大堆，我就不搬了
+
