@@ -9396,3 +9396,150 @@ bot monet
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 10142#       发表于 2022-8-14 08:10
+
+鳖茶这陈点的效果一般只能说
+
+*****
+
+####  Litccc  
+##### 10143#       发表于 2022-8-14 08:11
+
+感觉转折点就是盾没给蓝猫，鹏子也不给大导致蓝猫被秒的那一波<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 10144#       发表于 2022-8-14 08:11
+
+应该蓝猫拿盾，而且刚拿盾蓝猫就滚二塔大牛就脑浆了，这波不输很有机会的
+
+*****
+
+####  百世诸侯  
+##### 10145#       发表于 2022-8-14 08:11
+
+刚醒，听说畜sight要出了？
+
+*****
+
+####  Keynes  
+##### 10146#       发表于 2022-8-14 08:11
+
+这下拙劣的模仿了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4591  
+##### 10147#       发表于 2022-8-14 08:13
+
+快去mdy直播间，打起来了
+
+*****
+
+####  逃离二次元  
+##### 10148#       发表于 2022-8-14 08:15
+
+？速探速报！
+
+*****
+
+####  反方向的波  
+##### 10149#       发表于 2022-8-14 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056552&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-14 08:13</a>
+快去mdy直播间，打起来了</blockquote>
+za ma le
+
+*****
+
+####  zhliiiii  
+##### 10150#       发表于 2022-8-14 08:15
+
+md笑死我了我操，刚睁眼给我笑清醒了
+
+*****
+
+####  弈秋  
+##### 10151#       发表于 2022-8-14 08:15
+
+刚醒，正好看加班
+
+*****
+
+####  血狂毘沙门  
+##### 10152#       发表于 2022-8-14 08:16
+
+大锤被老陈召唤物围殴死那真是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10153#       发表于 2022-8-14 08:16
+
+中路那波蓝猫和虚空都有锅，ori半蓝开团虚空不给大救蓝猫……至于BP真的有点问题，小组赛已经吃过亏了冰龙不ban，不ban就不ban吧选个蓝猫，但茶队视野把被爆怎么抓冰龙？选个宙斯之类往虚空大里甩技能的才对……
+
+*****
+
+####  夜光铃  
+##### 10154#       发表于 2022-8-14 08:17
+
+茶队这赛程倒是对上班的挺友好
+
+*****
+
+####  やト  
+##### 10155#       发表于 2022-8-14 08:17
+
+[https://www.bilibili.com/video/B ... 7a598125ee8fe376d64](https://www.bilibili.com/video/BV1FV4y1s7Mm?share_source=copy_web&amp;vd_source=9d630a0a6ab6e7a598125ee8fe376d64)  才出了预告片啊
+
+<img src="https://img.saraba1st.com/forum/202208/14/081810ffn8f760ht6x518n.jpg" referrerpolicy="no-referrer">
+
+<strong>6J8{2YM8XX@%S}D9~[}6NKL.jpg</strong> (104.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 08:18 上传
+
+*****
+
+####  acejoe  
+##### 10156#       发表于 2022-8-14 08:18
+
+陈被滚滚和骷髅克啊，一套野怪都死了。
+
+*****
+
+####  adretyu67  
+##### 10157#       发表于 2022-8-14 08:18
+
+这个major基本上定性了，建议漏油们放弃幻想，起码准备缩壳到9月24日
+
+*****
+
+####  反方向的波  
+##### 10158#       发表于 2022-8-14 08:18
+
+现在的蓝猫和冰龙猫鼠游戏已经不出紫苑了吗
+
+*****
+
+####  逃离二次元  
+##### 10159#       发表于 2022-8-14 08:18
+
+急着看畜sight了，急急急急急
+
+*****
+
+####  ArowRocher  
+##### 10160#       发表于 2022-8-14 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57056552&amp;ptid=2084957" target="_blank">4591 发表于 2022-8-14 08:13</a>
+快去mdy直播间，打起来了</blockquote>
+谎报！
+
