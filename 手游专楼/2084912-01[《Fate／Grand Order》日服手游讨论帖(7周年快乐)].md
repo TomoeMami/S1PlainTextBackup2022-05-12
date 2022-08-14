@@ -11950,3 +11950,31 @@ RBA求求你千万不要是打手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天还挺乐的 我本来以为是蓝卡大概就没戏能看了 就算撕了武藏又如何 没想到会血流成河
 
+
+
+*****
+
+####  qixinno2  
+##### 1120#       发表于 2022-8-14 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打 打他妈的 我要看血流成河
+
+*****
+
+####  angelooo  
+##### 1121#       发表于 2022-8-14 16:16
+
+<blockquote>alucardcz 发表于 2022-8-14 16:09
+今天还挺乐的 我本来以为是蓝卡大概就没戏能看了 就算撕了武藏又如何 没想到会血流成河 ...</blockquote>
+讲真，这几个狂仇，卡面无懈可击的只有泡馍，我一个不是夹馍厨子看了都控制不住的那种，其他几个的卡面或多或少都有点问题，但现在感觉有些人为了黑伊吹开始选择性无视当年水武和仇凛的卡面纷争，就很搞笑
+
+*****
+
+####  alucardcz  
+##### 1122#       发表于 2022-8-14 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57061120&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 16:16</a>
+
+讲真，这几个狂仇，卡面无懈可击的只有泡馍，我一个不是夹馍厨子看了都控制不住的那种，其他几个的卡面或 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质跟卡面没有一丝关系 根据我观察 隔壁不少都是石头号5宝那谁入坑的（
+

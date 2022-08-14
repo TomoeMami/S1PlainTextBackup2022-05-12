@@ -2032,3 +2032,43 @@ atf把自己id改成atm了可还行 这小伙子可以的 赢了狂 输了认</b
 
 那今晚就是正统二次元之争了
 
+
+
+*****
+
+####  名字不乱取  
+##### 10728#       发表于 2022-8-14 16:14
+
+杜鹏发涩图就支持他夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 10729#       发表于 2022-8-14 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57060915&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-14 15:55</a>
+
+仔细想想杜儿鹏儿上次打决赛日是不是ti7</blockquote>
+上次打外战决赛日应该是ti9后minor打nigma，被脑淤血翻盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 10730#       发表于 2022-8-14 16:18
+
+瘦弱的杜鹏承担了太多意料之外的期望
+
+*****
+
+####  Bernoulli  
+##### 10731#       发表于 2022-8-14 16:18
+
+nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长暴跳如雷？
+
+*****
+
+####  反方向的波  
+##### 10732#       发表于 2022-8-14 16:19
+
+总有一个人要尿漫阿灵顿的，为什么不能是杜鹏呢<img src="https://p.sda1.dev/6/7ca7af9f51baabd6fae90a2938f43b32/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
