@@ -2359,3 +2359,44 @@ nga为啥双标成这样了？满屏幕鳖孙理所当然，看见一个处长�
 
 最后发现所有漏油都是管人吃，我呃呃
 
+
+
+*****
+
+####  乃琳  
+##### 10766#       发表于 2022-8-14 18:21
+
+最后发现所有漏油都是管人吃，我呃呃
+
+*****
+
+####  坚定的团子党  
+##### 10767#       发表于 2022-8-14 18:21
+
+离谱，hao怎么去马来西亚队当教练了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 10768#       发表于 2022-8-14 18:22
+
+最后发现所有漏油都是管人吃，我呃呃
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 10769#       发表于 2022-8-14 18:22
+
+ 本帖最后由 反方向的波 于 2022-8-14 18:24 编辑 
+
+已经看到了某个楼友被开盒出是杜鹏的那天<img src="https://p.sda1.dev/6/e07d9b6906b888947a44f6a699530618/67760dc3f0812125.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 10770#       发表于 2022-8-14 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不直接一步到位搬去管人区吧，这样集美来楼内清算的时候还能楼内自治。
+

@@ -10619,3 +10619,94 @@ CEO来当p了）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得是我香音
 
+
+
+*****
+
+####  JustW_3  
+##### 2526#       发表于 2022-8-14 18:21
+
+年级分组，好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2527#       发表于 2022-8-14 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以前三集到底在纠结啥
+
+*****
+
+####  ViyViy  
+##### 2528#       发表于 2022-8-14 18:22
+
+好活，看来真有五人橘子联盟复仇战？
+
+*****
+
+####  离心  
+##### 2529#       发表于 2022-8-14 18:23
+
+果然1集收不了ceo
+
+*****
+
+####  JustW_3  
+##### 2530#       发表于 2022-8-14 18:24
+
+恋和ceo，这什么说法
+
+*****
+
+####  离心  
+##### 2531#       发表于 2022-8-14 18:24
+
+liella之歌不错啊期待下一集的ceo的独唱
+
+*****
+
+####  qratosone  
+##### 2532#       发表于 2022-8-14 18:24
+
+这集不错诶，整体观感比较好，之前其他人缺戏份的毛病也改善了很多
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 2533#       发表于 2022-8-14 18:25
+
+我有点迷糊了，等熟
+
+*****
+
+####  cat1230  
+##### 2534#       发表于 2022-8-14 18:27
+
+回家晚了，又没赶上直播orz
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  starring  
+##### 2535#       发表于 2022-8-14 18:28
+
+年级分组好，恋的裂歌好听
+
+整集CEO说话听得脑壳痛，说话的模式太折磨人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2536#       发表于 2022-8-14 18:30
+
+ceo整活的部分非常有新鲜感，花田的灵性回来了。
+
+然后老问题依然在只要开扯大赛和练习，香音什么领导空话都说得出口，结果还是怕镜头自我介绍，香音怕不是又要来一集解决这个问题，真就是一年三熟。
+
+嗯，恋厨表示这集可以给九。而且早tm得分队了，前三集拍出来到底是为什么。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12303,3 +12303,67 @@ nga口上喊着反对账号交易，实际对5宝宇宙凛那种狂热吹捧你�
 nga口上喊着反对账号交易，实际对5宝宇宙凛那种狂热吹捧你说没有号贩子推波助澜我是不信的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂不懂什么叫双标  那种石头号 而且还是带拐的石头号 你说算不算账号交易（
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1154#       发表于 2022-8-14 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么官方助战伊吹直接五宝满技能，我都没注意下面的助战技能有没有满了
+
+*****
+
+####  exiaexa  
+##### 1155#       发表于 2022-8-14 18:22
+
+隔壁需求不一样，隔壁主要是装逼大过需求，比如动不动就要五宝仇凛/狂那/奥伯龙的，还要给你展示一下羁绊以显示自己是真爱
+
+看看贴吧，从来不扯什么羁绊，狂那吹都被人扒出是号贩子了，照样跟个没事儿人一样有机会就推销狂那
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 1156#       发表于 2022-8-14 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059451&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 12:56</a>
+怕是萌新前几年太欧今年还债吧</blockquote>
+他是没有new，不是没有出五星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1157#       发表于 2022-8-14 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062414&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-14 18:22</a>
+
+他是没有new，不是没有出五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能说这种话呢！ 没new不就是非吗！
+
+*****
+
+####  qixinno2  
+##### 1158#       发表于 2022-8-14 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062414&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-14 18:22</a>
+
+他是没有new，不是没有出五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实 差点被狗萌新忽悠了
+
+*****
+
+####  FrozenA  
+##### 1159#       发表于 2022-8-14 18:27
+
+破防人数和石头号五宝侠成正比233
+
+*****
+
+####  都谷捻柏  
+##### 1160#       发表于 2022-8-14 18:29
+
+话说泳装伊吹绊礼装是啥效果？
+
+我看MC上数据是空的，不知道咋回事。
+
