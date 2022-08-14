@@ -12367,3 +12367,76 @@ nga口上喊着反对账号交易，实际对5宝宇宙凛那种狂热吹捧你�
 
 我看MC上数据是空的，不知道咋回事。
 
+
+
+*****
+
+####  qixinno2  
+##### 1161#       发表于 2022-8-14 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">助战只有伊吹是五宝技能全10 其他的全是三宝技能888 这也太明显了
+
+*****
+
+####  Urakawa  
+##### 1162#       发表于 2022-8-14 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062508&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-14 18:29</a>
+话说泳装伊吹绊礼装是啥效果？
+
+我看MC上数据是空的，不知道咋回事。</blockquote>
+全体8%蓝威&amp;红威&amp;10%对地特攻
+
+*****
+
+####  acuman  
+##### 1163#       发表于 2022-8-14 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062233&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 18:09</a>
+
+我先不说你那跟弱智一样的云玩家发言
+
+raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样</blockquote>
+你这是什么狗屁逻辑？
+
+“raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样”
+
+雷太每次卡都有人不喜欢，所以我就不能说这次的卡我不喜欢？
+
+“raita来你游第一天就在自我放飞，哪儿轮得到你搁这儿悲天悯人”
+
+你觉得雷太第一天就在自我放飞，所以我就不能说雷太这卡不如以前？
+
+何况我根本没觉得雷太前几张卡有多放飞，之前我说的小教授水紫都是服务目标非常明确的商业作品
+
+不过跟你说这些也没啥用，毕竟你说话连个脑子都不带，也没指望你能看懂自己的逻辑问题了。
+
+这里建议你先逮着楼里这么多吐槽水武藏卡面声音的和喷苍月的都挨个喷一喷，毕竟你觉得“在FGO说越来越放飞也太乐了”，是轮不到我们这些玩家喷的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 1164#       发表于 2022-8-14 18:34
+
+隔壁千里眼和转生5宝侠破防实在太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 1165#       发表于 2022-8-14 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062413&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 18:22</a>
+
+隔壁需求不一样，隔壁主要是装逼大过需求，比如动不动就要五宝仇凛/狂那/奥伯龙的，还要给你展示一下羁绊以 ...</blockquote>
+确实，吹嘘的组队，我一年都没用过一次，然后还要按这标准要求好友怎么带礼装怎么点技能，挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 1166#       发表于 2022-8-14 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062561&amp;ptid=2084912" target="_blank">Urakawa 发表于 2022-8-14 18:33</a>
+
+全体8%蓝威&amp;红威&amp;10%对地特攻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉有点菜，大概用不上吧，大概
+
