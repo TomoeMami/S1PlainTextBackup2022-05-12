@@ -10786,3 +10786,91 @@ ceo有小心思，搞分组了不过是暂时的。结束了八成又会是九�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 2545#       发表于 2022-8-14 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062652&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-14 18:40</a>
+知道这集不是可可唱黑脸就放心了，后面继续等你们讨论吧，暂时就还是没什么兴趣追 ...</blockquote>
+还是唱黑脸。
+可：大师兄你又杀了无辜百姓。
+堇：我在这抓白骨精你又diss我？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 2546#       发表于 2022-8-14 18:44
+
+神经病啊！
+
+3A2BC970-BCDD-448B-821B-924B2ACD8D77.jpeg
+(279.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/184359ph8cl84ft99fcrd4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+15F09143-AF56-4853-B918-707E190AA7F0.jpeg
+(316.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/184405wb7c7caswzfpb020.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 2547#       发表于 2022-8-14 18:46
+
+ 本帖最后由 寒风夜 于 2022-8-14 18:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">我们的主角人设还是好割裂 ，，拉人时的神勇呢，还有这一割前三集在说啥
+
+*****
+
+####  lj205  
+##### 2548#       发表于 2022-8-14 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062683&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-14 18:42</a>
+还是唱黑脸。
+可：大师兄你又杀了无辜百姓。
+堇：我在这抓白骨精你又diss我？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这都算轻的了…………哎……我看到楼上老兄截图就想问花田是不是中国人惹了他哪？这么拼命黑可可
+
+*****
+
+####  lj205  
+##### 2549#       发表于 2022-8-14 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062721&amp;ptid=2078110" target="_blank">寒风夜 发表于 2022-8-14 18:46</a>
+我们的主角人设还是好割裂 ，，拉人时的神勇呢</blockquote>
+完美诠释队名发音
+
+*****
+
+####  aoaoaodedede  
+##### 2550#       发表于 2022-8-14 18:49
+
+没看生肉，翻了下帖，感觉有点复杂，有哪位老哥能简单说一说这集是个啥剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  JustW_3  
+##### 2551#       发表于 2022-8-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062765&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-14 18:49</a>
+
+没看生肉，翻了下帖，感觉有点复杂，有哪位老哥能简单说一说这集是个啥剧情 ...</blockquote>
+极简版：CEO当p，暂时年级分组
+

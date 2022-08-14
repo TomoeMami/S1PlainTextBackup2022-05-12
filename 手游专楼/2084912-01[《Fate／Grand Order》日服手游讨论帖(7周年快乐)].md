@@ -12440,3 +12440,32 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 全体8%蓝威&amp;红威&amp;10%对地特攻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉有点菜，大概用不上吧，大概
 
+
+
+*****
+
+####  alucardcz  
+##### 1167#       发表于 2022-8-14 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062612&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-14 18:36</a>
+
+确实，吹嘘的组队，我一年都没用过一次，然后还要按这标准要求好友怎么带礼装怎么点技能，挺搞笑的[f:037 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一般一边看片一边刷 他们推荐的队伍太难了 一个不小心就寄了
+
+*****
+
+####  alucardcz  
+##### 1168#       发表于 2022-8-14 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我王姐2宝后其实也用过几次 因为不习惯技能经常按错 后来还是放弃了 
+
+*****
+
+####  qb0079  
+##### 1169#       发表于 2022-8-14 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062689&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 18:43</a>
+
+我一般一边看片一边刷 他们推荐的队伍太难了 一个不小心就寄了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信不信明年非好友宝具也能用后，分不清好友非好友，他们喷的更厉害
+
