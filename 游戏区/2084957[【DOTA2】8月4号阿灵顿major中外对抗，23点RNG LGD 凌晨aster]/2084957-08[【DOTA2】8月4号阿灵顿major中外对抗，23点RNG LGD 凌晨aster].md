@@ -1239,3 +1239,155 @@ op瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.g
 
 ceb爹与四个自闭儿子
 
+
+
+*****
+
+####  尸体鲨  
+##### 10636#       发表于 2022-8-14 12:11
+
+N0tail现在在干嘛，当教练还是享受人生
+
+*****
+
+####  很久就在那边l  
+##### 10637#       发表于 2022-8-14 12:11
+
+ 本帖最后由 很久就在那边l 于 2022-8-14 12:17 编辑 
+
+赢
+<img src="https://p.sda1.dev/6/c145d0c2b42d7e36023f49262990eaf3/CMP_20220814121647485.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 10638#       发表于 2022-8-14 12:12
+
+a处分手那屁事后面不是还有节奏吗，我记得是阿梓的那个普通朋友爆料说a处后面还想去找滚球兽求复合被拒绝了……
+
+*****
+
+####  反方向的波  
+##### 10639#       发表于 2022-8-14 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058987&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-14 12:12</a>
+a处分手那屁事后面不是还有节奏吗，我记得是阿梓的那个普通朋友爆料说a处后面还想去找滚球兽求复合被拒绝了 ...</blockquote>
+那个人讲的不可靠，也是个不基德的货色
+
+*****
+
+####  IG.430  
+##### 10640#       发表于 2022-8-14 12:13
+
+楼友这样造谣达达中伤公主洗白啵圣会被梓楼鸿儒的
+
+*****
+
+####  12481632  
+##### 10641#       发表于 2022-8-14 12:13
+
+不是菠畜么，怎么就普通朋友了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 10642#       发表于 2022-8-14 12:14
+
+管人痴来一个杀一个
+
+*****
+
+####  尸体鲨  
+##### 10643#       发表于 2022-8-14 12:14
+
+管人痴来一双杀一双
+
+*****
+
+####  Robakey  
+##### 10644#       发表于 2022-8-14 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057821&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-14 10:25</a>
+
+sea带躺的法国俱乐部凭什么算cn</blockquote>
+确确实实了
+
+*****
+
+####  反方向的波  
+##### 10645#       发表于 2022-8-14 12:15
+
+管人痴来一个杀一串
+
+*****
+
+####  azccc52  
+##### 10646#       发表于 2022-8-14 12:15
+
+dodo粉丝可以免于一杀吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 10647#       发表于 2022-8-14 12:16
+
+管人痴换个头像再来⛵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 10648#       发表于 2022-8-14 12:16
+
+呃呃，已经开始抛开事实不谈开除国籍了么
+
+楼友还是有趣，润了润了
+
+*****
+
+####  lmslardar  
+##### 10649#       发表于 2022-8-14 12:17
+
+又开始声讨管人痴了，撤了晚上比赛再来
+
+*****
+
+####  haruhiismer  
+##### 10650#       发表于 2022-8-14 12:17
+
+谁说管人痴傻傻傻
+
+
+
+*****
+
+####  nightmare902015  
+##### 10651#       发表于 2022-8-14 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058688&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-14 11:50</a>
+不说女人审美，看看xincute那喷图有多少队在用，这就是硬实力好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那个图对线往地上一喷，我补刀都脑仁疼。
+
+*****
+
+####  CNFH1984  
+##### 10652#       发表于 2022-8-14 12:19
+
+<blockquote>反方向的波 发表于 2022-8-14 12:12
+那个人讲的不可靠，也是个不基德的货色</blockquote>
+印象不深，不过看a处和阿梓还凑合在一起，确实多半是不可信了
+
+*****
+
+####  walfeds  
+##### 10653#       发表于 2022-8-14 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058980&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-14 12:11</a>
+N0tail现在在干嘛，当教练还是享受人生</blockquote>
+大爹属于一边享受退休生活一边看管小朋友了，真不当教练
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
