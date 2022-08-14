@@ -1766,3 +1766,33 @@ g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  usoda  
+##### 10698#       发表于 2022-8-14 14:23
+
+好呀还呀 一个个都是法力无边的大仙了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 10699#       发表于 2022-8-14 14:24
+
+瓢虫<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10700#       发表于 2022-8-14 14:24
+
+确实有点想看焦阳即使是英雄暮年也能不留遗憾，但一想到鳖鳖要开蹭又想吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 10701#       发表于 2022-8-14 14:29
+
+始祖鳖保持缩头，茶队才有能有成绩
+
