@@ -419,3 +419,88 @@ TI7在老干瘪，TI9在KG，TI10在老干瘪<img src="https://static.saraba1st.
 
 新一代约旦鳖ATF
 
+
+
+*****
+
+####  Litccc  
+##### 10552#       发表于 2022-8-14 11:01
+
+之前在nga见过几个杰出的讨论帖，要么就是能被被涛公公拉黑人品能好到哪里去，要么就是上sg的小丑还喜欢暗戳戳阴阳lgd，中间夹杂几个众筹电脑和永远不能解说的梗。杰出变了么？并没有，只不过他的观众换了一批人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10553#       发表于 2022-8-14 11:01
+
+理性分析atf打1奇迹鳖打2鸭脖子打4 再来两个规划队员能不能亚运会冠军
+
+*****
+
+####  香蕉芭菲  
+##### 10554#       发表于 2022-8-14 11:03
+
+这样下去，不是集美要搞死杰出，是那些冲这冲那的狂信者要搞死他。他最近已经认识到苗头了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  百世诸侯  
+##### 10555#       发表于 2022-8-14 11:04
+
+畜视界预告片剪得这么燃干什么
+
+<img src="https://img.saraba1st.com/forum/202208/14/110411n1a3j56dijfpatks.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:04 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/110353wbp57cv7rpactart.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 11:03 上传
+
+*****
+
+####  山上徹也  
+##### 10556#       发表于 2022-8-14 11:04
+
+这次是不是第一次出国徐志雷没带队
+
+*****
+
+####  nowaki  
+##### 10557#       发表于 2022-8-14 11:05
+
+这样看ts才是颜值队啊
+
+*****
+
+####  CNFH1984  
+##### 10558#       发表于 2022-8-14 11:07
+
+就因为现场有人举了加油明天干处长的牌子，nga的舆论就变得压倒性的想看雪碧再进决赛
+
+可见nga集美浓度已经超标了
+
+*****
+
+####  名字不乱取  
+##### 10559#       发表于 2022-8-14 11:08
+
+一觉醒来aster斩杀og，给自己发一天的小茶叶帽子了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 10560#       发表于 2022-8-14 11:09
+
+我想开了，我甚至提前原谅了lgd，写在真视界发布前n天
+

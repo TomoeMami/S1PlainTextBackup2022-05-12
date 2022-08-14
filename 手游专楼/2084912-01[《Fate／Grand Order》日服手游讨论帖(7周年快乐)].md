@@ -10627,3 +10627,69 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……跑到贴吧才看到卡面，感觉伊吹这卡面很微妙，只能说不是我的菜
 
+
+
+*****
+
+####  qixinno2  
+##### 1003#       发表于 2022-8-14 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058109&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 10:51</a>
+
+旧梅这债真是还吐了
+
+伊吹400石2宝，现在1600石还是两宝
+
+溜了溜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是土豪么 好羡慕
+
+*****
+
+####  霧谷藤乃  
+##### 1004#       发表于 2022-8-14 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波泳装过后就得攒石头了，照现在骗课的情形，我可以期待下提玛娅特和水着摩根了
+
+*****
+
+####  exiaexa  
+##### 1005#       发表于 2022-8-14 11:04
+
+ 本帖最后由 exiaexa 于 2022-8-14 11:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058210&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:02</a>
+
+这就是土豪么 好羡慕</blockquote>
+当你因为要还房贷而没有假期的搬砖
+
+只能报复性消费的时候
+
+你也可以解锁蓝色修改器
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1006#       发表于 2022-8-14 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058229&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 11:04</a>
+
+当你因为要还房贷而没有假期的搬砖的时候
+
+你也可以解锁蓝色修改器
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">躺平废物自愧不如
+
+*****
+
+####  khxooo  
+##### 1007#       发表于 2022-8-14 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058229&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-14 11:04</a>
+当你因为要还房贷而没有假期的搬砖
+
+只能报复性消费的时候
+
+你也可以解锁蓝色修改器</blockquote>
+兄弟，氪金少一点吧，留点给还房贷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
