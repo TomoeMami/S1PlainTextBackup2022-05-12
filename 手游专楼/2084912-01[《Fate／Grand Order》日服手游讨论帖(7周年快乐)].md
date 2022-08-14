@@ -10840,3 +10840,98 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 —— 来自 realme RMX3562, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  angelooo  
+##### 1021#       发表于 2022-8-14 11:31
+
+<blockquote>exiaexa 发表于 2022-8-14 11:28
+你们抽到了的，可以去玩一下双伊吹+单C呆的组合，要求是两个泳装伊吹都要20被动
+
+超越认知，是C呆限制了强度 ...</blockquote>
+我更近一步，是C呆的羁绊条限制了这个组队，我先跑了，羁绊警察不要出警球球了
+
+*****
+
+####  alucardcz  
+##### 1022#       发表于 2022-8-14 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058479&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:29</a>
+
+可以用伊吹公主杀狐队啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这个我为什么不能直接借一个 而且我从来不用什么多核 又不用模拟器 阵容不固定非常容易点错
+
+*****
+
+####  exiaexa  
+##### 1023#       发表于 2022-8-14 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058494&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-14 11:31</a>
+
+我更近一步，是C呆的羁绊条限制了这个组队，我先跑了，羁绊警察不要出警球球了 ...</blockquote>
+这就是多核党的好处了
+
+常规打手只有摩根到10，拐没一个到12的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1024#       发表于 2022-8-14 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058499&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:31</a>
+
+你说的这个我为什么不能直接借一个 而且我从来不用什么多核 又不用模拟器 阵容不固定非常容易点错 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说是换个花样冲 萌新竟然手刷几十E的么
+
+*****
+
+####  angelooo  
+##### 1025#       发表于 2022-8-14 11:34
+
+<blockquote>exiaexa 发表于 2022-8-14 11:32
+这就是多核党的好处了
+
+常规打手只有摩根到10，拐没一个到12的</blockquote>
+我c呆快13了，现在就是后悔，非常后悔
+
+*****
+
+####  alucardcz  
+##### 1026#       发表于 2022-8-14 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058526&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 11:33</a>
+
+所以说是换个花样冲 萌新竟然手刷几十E的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才不换花样  换了容易点错 习惯红卡就花了点时间
+
+当然是手刷的 我又不用模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1027#       发表于 2022-8-14 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058537&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-14 11:34</a>
+
+所以才不换花样  换了容易点错 习惯红卡就花了点时间
+
+当然是手刷的 我又不用模拟器 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怖如斯
+
+*****
+
+####  黑上シグマ  
+##### 1028#       发表于 2022-8-14 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我C呆只差18W就15绊了，怕什么
+
+*****
+
+####  alucardcz  
+##### 1029#       发表于 2022-8-14 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我c呆还没cba羁绊高 cba用的时间长多了
+

@@ -655,3 +655,245 @@ ts全队铁集美，已颁发荣誉中国籍，aster队员公然侮辱cn刀塔�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看nga已经要把茶和鳖鳖切割了。
 
+
+
+*****
+
+####  CNFH1984  
+##### 10578#       发表于 2022-8-14 11:31
+
+虽然概率非常低，但还是希望杜鹏进化一下，狠狠的打肿藓蓓的脸
+
+*****
+
+####  名字不乱取  
+##### 10579#       发表于 2022-8-14 11:31
+
+不选ame选xinq开始我只能说剩下所有的评价毫无意义了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 10580#       发表于 2022-8-14 11:31
+
+ 本帖最后由 lyjssj 于 2022-8-14 11:35 编辑 
+
+别看ngadota区，纯纯的饭圈脑残聚集地，萧瑟专楼能搭几千楼的地方，你还指望那边的人能客观看待问题？乐
+
+前段时间我还点进去看，每次五分钟就受不了了，后面想想干嘛给自己找罪受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pikamee  
+##### 10581#       发表于 2022-8-14 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058475&amp;ptid=2084957" target="_blank">吃货红毛 发表于 2022-8-14 11:29</a>
+在旁边两个壮汉衬托下 微胖莫言看起来居然是正经身材233</blockquote>
+Nts这种体质最亏，哪都不肥就脸肥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  BallanceHZ  
+##### 10582#       发表于 2022-8-14 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058497&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-14 11:31</a>
+别看ngadota区，纯纯的饭圈脑残聚集地，萧瑟专楼能搭几千楼的地方，你还指望那边的人能客观看待问题？乐 ...</blockquote>
+追求客观那没地方去了，nga不客观我赞成，但本楼我也没觉得客观啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 10583#       发表于 2022-8-14 11:32
+
+国外社区观众真没见过世面 
+一个ATM直接高潮了
+不少人说今天很乐 cn meme最牛的meme
+还有就是骂atf活该的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  CNFH1984  
+##### 10584#       发表于 2022-8-14 11:32
+
+你楼什么情况啊，掀背颜值不来改来赵子星颜值了是吧。巩汉林看不下去了也就罢了，肥猫也继续吹颜值的吗？
+
+*****
+
+####  何然  
+##### 10585#       发表于 2022-8-14 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058342&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-14 11:16</a>
+
+这种黑称在这种场合确实不合适</blockquote>
+有啥不合适的
+
+我**妈大雪碧都上TI了不是<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 10586#       发表于 2022-8-14 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058504&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-14 11:32</a>
+国外社区观众真没见过世面 
+一个ATM直接高潮了
+不少人说今天很乐 cn meme最牛的meme</blockquote>
+主要是atf上局才发了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 10587#       发表于 2022-8-14 11:34
+
+ 没素质人被反嘲讽不是活该？
+
+*****
+
+####  CNFH1984  
+##### 10588#       发表于 2022-8-14 11:35
+
+<blockquote>名字不乱取 发表于 2022-8-14 11:29
+ts全队铁集美，已颁发荣誉中国籍，aster队员公然侮辱cn刀塔第一人，已被开除国籍，望周知[f: ...</blockquote>
+给予荣誉中国人称号！
+
+*****
+
+####  何然  
+##### 10589#       发表于 2022-8-14 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058481&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-14 11:29</a>
+
+不选大鞭哥选xinq我服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我指着misha和mira问了半天这难道不行吗
+
+然后人家回了句“这是你们男人的审美”
+
+*****
+
+####  IG.430  
+##### 10590#       发表于 2022-8-14 11:36
+
+有三次元非管人老婆的老比收收味
+
+
+
+*****
+
+####  百世诸侯  
+##### 10591#       发表于 2022-8-14 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058497&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-14 11:31</a>
+
+别看ngadota区，纯纯的饭圈脑残聚集地，萧瑟专楼能搭几千楼的地方，你还指望那边的人能客观看待问题？乐
+
+前 ...</blockquote>
+更正，是阿梓萧瑟CP专楼<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 10592#       发表于 2022-8-14 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058504&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-14 11:32</a>
+
+国外社区观众真没见过世面 
+
+一个ATM直接高潮了
+
+不少人说今天很乐 cn meme最牛的meme</blockquote>
+国外有atm这称呼么
+
+我怎么记得是缩写的abm还是其他什么..
+
+*****
+
+####  北条早苗  
+##### 10593#       发表于 2022-8-14 11:36
+
+atf有新一代约旦鳖那味了，瞎浪瞎冲嗯送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 10594#       发表于 2022-8-14 11:36
+
+看了一眼朋友圈有在线下的萨特，砍不到好急<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 10595#       发表于 2022-8-14 11:37
+
+朋友是萨特的也是萨特，砍砍砍
+
+*****
+
+####  何然  
+##### 10596#       发表于 2022-8-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058557&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-14 11:36</a>
+
+有三次元非管人老婆的老比收收味</blockquote>
+@胡雅菁
+
+*****
+
+####  北条早苗  
+##### 10597#       发表于 2022-8-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058559&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-14 11:36</a>
+
+国外有atm这称呼么
+
+我怎么记得是缩写的abm还是其他什么..</blockquote>
+他们理解的是atm=ammar the meme
+
+*****
+
+####  反方向的波  
+##### 10598#       发表于 2022-8-14 11:38
+
+讲真，这戏剧效果远不如oke仔在新加坡的问号和谁是real邪恶天才<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">鬼佬这都高潮的？
+
+*****
+
+####  lyjssj  
+##### 10599#       发表于 2022-8-14 11:38
+
+<blockquote>BallanceHZ 发表于 2022-8-14 11:31
+追求客观那没地方去了，nga不客观我赞成，但本楼我也没觉得客观啊</blockquote>
+s1专楼再不客观也不至于ti10输了刷假赛，笑死
+
+nga不玩假赛这一出现在粪坑no1还是sg
+
+*****
+
+####  百世诸侯  
+##### 10600#       发表于 2022-8-14 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在Q群看到有萨特飞阿灵顿结果买不到票只能在宾馆看比赛
+
+*****
+
+####  tontyoutoure  
+##### 10601#       发表于 2022-8-14 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57057288&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-14 09:37</a>
+处长现在的卖屁股打法换个说法不还是躺着等带吗，坐等ti上猴子爹萎靡，处长卖屁股卖死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 10602#       发表于 2022-8-14 11:39
+
+EMO那个问号真是有种少年意气的感觉，一想到他当时满脑子狗仗人势就更少年意气了
+
