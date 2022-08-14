@@ -2674,3 +2674,21 @@ cndota一摊ru水，一点节目效果都没有的
 
 感觉孝鹿吃点资源，大推推a帐啥的，伤害就到上限了，后面出再多，也不如正统大哥了
 
+
+
+*****
+
+####  Keynes  
+##### 10805#       发表于 2022-8-14 20:22
+
+设定上是这个宇宙是卡尔拿来做实验的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香蕉芭菲  
+##### 10806#       发表于 2022-8-14 20:26
+
+今晚不打算熬夜了，看一把茶ts就睡，明天谁拿冠军我都能接受
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

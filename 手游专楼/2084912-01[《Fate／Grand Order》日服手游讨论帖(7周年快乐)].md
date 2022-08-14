@@ -12798,3 +12798,21 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 最好是个花瓶 那我把剩下的那点票子和单抽丢给水伊池 爱出不出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说好得攒井呢
 
+
+
+*****
+
+####  qixinno2  
+##### 1202#       发表于 2022-8-14 20:22
+
+<blockquote>areklose 发表于 2022-8-14 20:19
+说好得攒井呢</blockquote>
+萌新攒石也就说说  真想要也就一个十连的事
+
+*****
+
+####  霧谷藤乃  
+##### 1203#       发表于 2022-8-14 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">攒井不是水着后么，这次活动后我也要重新攒井了
+
