@@ -3365,3 +3365,153 @@ ti寄了，才是真寄到位了
 这是什么新梗吗，一天不看直播跟不上了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">有钱人就是萨特，一个波波死我们狗头人
 
+
+
+*****
+
+####  lmslardar  
+##### 10883#       发表于 2022-8-14 23:00
+
+哈哈哈哈死神来了是吧
+
+*****
+
+####  nxmonitor  
+##### 10884#       发表于 2022-8-14 23:00
+
+今天第一次发现为啥XXS的脖子拍得那么长？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 10885#       发表于 2022-8-14 23:01
+
+这下真招魂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 10886#       发表于 2022-8-14 23:01
+
+看一把睡觉，狗头人明天还要爬去上班<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 10887#       发表于 2022-8-14 23:01
+
+<img src="https://img.saraba1st.com/forum/202208/14/230141e4ppmm0xjt444f1u.jpg" referrerpolicy="no-referrer">
+
+<strong>F3(58108}{R7EGHB@NM2]4L.jpg</strong> (58.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 23:01 上传
+
+*****
+
+####  健康猹  
+##### 10888#       发表于 2022-8-14 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065777&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-14 22:59</a>
+
+皮球这个科芘球衣有点黑暗了</blockquote>
+选择五号位飞机，点击大招复活窝壳
+
+*****
+
+####  弈秋  
+##### 10889#       发表于 2022-8-14 23:02
+
+什么复活赛
+
+*****
+
+####  morwhipppo  
+##### 10890#       发表于 2022-8-14 23:02
+
+鞭老婆说ame最像科比，皮球今天就穿24号衣服了是吧
+
+
+
+*****
+
+####  lmslardar  
+##### 10891#       发表于 2022-8-14 23:03
+
+萨特这个梗是多少年前的sg梗了啊，感觉14年好像就看过这个梗
+
+不过现在sg也完蛋了，都没人说话了
+
+*****
+
+####  莉拉厨  
+##### 10892#       发表于 2022-8-14 23:03
+
+雪碧为啥自己ban电棍了啊，x哥又不喜欢玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 10893#       发表于 2022-8-14 23:03
+
+李斯P图给我笑拉了
+
+*****
+
+####  弈秋  
+##### 10894#       发表于 2022-8-14 23:04
+
+骄阳可以玩电棍啊，这版本电魂力中暴力啊
+
+*****
+
+####  香蕉芭菲  
+##### 10895#       发表于 2022-8-14 23:05
+
+查理斯p到ceb那里是真的好笑，逗乐了
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  血狂毘沙门  
+##### 10896#       发表于 2022-8-14 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57065140&amp;ptid=2084957" target="_blank">thistimeforlife 发表于 2022-8-14 22:08</a>
+
+道理很简单 因为鳖星今年好歹赢过</blockquote>
+感觉雪碧是有藏的 不过不一定会在major露
+
+*****
+
+####  ArowRocher  
+##### 10897#       发表于 2022-8-14 23:07
+
+据说英文流是atf解说？
+
+*****
+
+####  遗尿  
+##### 10898#       发表于 2022-8-14 23:08
+
+麻痹，现场是不是有傻逼来恶心人。
+
+*****
+
+####  nowaki  
+##### 10899#       发表于 2022-8-14 23:09
+
+开始了是吧 藏到ti12
+
+*****
+
+####  反方向的波  
+##### 10900#       发表于 2022-8-14 23:09
+
+效力于利物浦队的足球运动员菲尔吉尔·范迪克在个人推特账户中发布信息，自己将成为西欧电竞俱乐部Tundra Esports战队的股东和形象大使。
+
+利记指定主队
+
