@@ -11324,3 +11324,15 @@ all in了  但就new了2个 本非萌有什么办法</blockquote>
 想多了非萌一直这么非的   不过以后应该不会石不过三了  要存了  不然真被一个大背刺可受不了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看好萌新攒1000+石每次池子一发十连毕业
 
+
+
+*****
+
+####  alucardcz  
+##### 1063#       发表于 2022-8-14 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059490&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-14 12:59</a>
+
+看好萌新攒1000+石每次池子一发十连毕业</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便我刚刚看了看 2021年1年算上福袋new了11个  2022年算上福袋new了2个 寄  全寄了
+

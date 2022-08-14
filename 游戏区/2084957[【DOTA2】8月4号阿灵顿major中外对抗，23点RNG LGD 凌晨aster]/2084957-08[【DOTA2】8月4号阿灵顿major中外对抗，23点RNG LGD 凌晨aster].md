@@ -1558,3 +1558,39 @@ ame斗鱼粉丝牌一开始还是atme呢，打的菜的一笔还能吹心态好�
 
 集美有点像阿美，把自己干的每一件事都扣在不喜欢哥哥的人头上
 
+
+
+*****
+
+####  BallanceHZ  
+##### 10674#       发表于 2022-8-14 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059376&amp;ptid=2084957" target="_blank">北欧王座 发表于 2022-8-14 12:50</a>
+是啊。所以有人会觉得你是收钱办事么。nga连genuine的争吵往往都发生不了，都没有走到可讨论的地步，德性 ...</blockquote>
+我是说，本楼里喷水军的可不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 10675#       发表于 2022-8-14 13:06
+
+<img src="https://img.saraba1st.com/forum/202208/14/130608ixxx2kfll3lfllxv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220814130601.png</strong> (149.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 13:06 上传
+
+g1 28分钟油辣鸡这猴子怎么掉下来的？也没看人破树
+
+*****
+
+####  北欧王座  
+##### 10676#       发表于 2022-8-14 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57059551&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-14 13:06</a>
+
+我是说，本楼里喷水军的可不少</blockquote>
+还好吧，说楼里ru水和集美肯定不是这种。说外面有水军很正常。
+
