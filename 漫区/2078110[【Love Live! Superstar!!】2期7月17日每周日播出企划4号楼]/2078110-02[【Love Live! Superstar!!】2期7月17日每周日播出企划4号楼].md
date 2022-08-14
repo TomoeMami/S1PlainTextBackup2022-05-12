@@ -11321,3 +11321,21 @@ CEO:我咋咋呼呼一集了，你们都不理我吗
 还没看熟肉，这一集的争议很大吗…
 之前看了一个熟肉直播的弹幕，嗯，有些地方还是吵起来的…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 2597#       发表于 2022-8-14 23:12
+
+基本上是动画开题观众自由发挥呗，习惯就好
+
+*****
+
+####  sxcluck  
+##### 2598#       发表于 2022-8-14 23:18
+
+这集台词太乐了吧，9人才是奇迹的必要条件<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虹：什么？我被踢出局了？还有这好事？<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

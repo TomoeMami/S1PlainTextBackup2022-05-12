@@ -5140,3 +5140,12 @@ https://twitter.com/midori_2434/status/1558815719449853952?s=20&amp;t=cE05t4rRVm
 
 莎小姐这电脑宕机回来都要临时整个灵异小节目，她真的……<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 16973#       发表于 2022-8-14 23:10
+
+没看棒球，有人讲讲葛叶是不是彩虹lgd
+
