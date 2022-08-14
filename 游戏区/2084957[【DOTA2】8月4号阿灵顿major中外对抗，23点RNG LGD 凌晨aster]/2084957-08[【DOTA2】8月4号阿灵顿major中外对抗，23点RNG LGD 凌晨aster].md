@@ -355,3 +355,67 @@ TI7在老干瘪，TI9在KG，TI10在老干瘪<img src="https://static.saraba1st.
 
 他现在起跳太早了，如果能抱住ti冠军的大腿就可以高枕无忧了，例如鲸鱼抱库里
 
+
+
+*****
+
+####  nxmonitor  
+##### 10544#       发表于 2022-8-14 10:50
+
+杰出昨天还是前天被玄月直球羞辱的时候也没见楼里这么义愤填膺的，所以杰出就是个攻击隔壁的工具人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 10545#       发表于 2022-8-14 10:51
+
+有盾的358都能被清算，忠诚不绝对就是绝对不忠诚好吧，真输了，一个都别想走<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 10546#       发表于 2022-8-14 10:51
+
+杰畜感觉迟早要被清算
+
+*****
+
+####  反方向的波  
+##### 10547#       发表于 2022-8-14 10:52
+
+昨天已经有狂战斧集美因为他在鳖星输的时候不拷打骂他出圣了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 10548#       发表于 2022-8-14 10:54
+
+部分楼友在拿人当枪和动机先行这事上和隔壁本来就没区别、无非屁股不一样而已
+
+*****
+
+####  山上徹也  
+##### 10549#       发表于 2022-8-14 10:56
+
+<img src="https://img.saraba1st.com/forum/202208/14/105634hfsfu7iid75wdiy8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>306B0A11-E0D3-4D83-93FB-FB342E577E20.jpeg</strong> (108.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 10:56 上传
+
+*****
+
+####  逃离二次元  
+##### 10550#       发表于 2022-8-14 10:57
+
+杰畜本来就是sger大敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 10551#       发表于 2022-8-14 10:59
+
+新一代约旦鳖ATF
+

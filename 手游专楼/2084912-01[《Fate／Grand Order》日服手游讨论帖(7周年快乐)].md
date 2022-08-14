@@ -10557,3 +10557,73 @@ RBA怕不是个跟梅莉搭配的蓝拐<img src="https://static.saraba1st.com/im
 
 没法充值之后不舍得扔石头了
 
+
+
+*****
+
+####  eyeego  
+##### 997#       发表于 2022-8-14 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058071&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-14 10:47</a>
+放后面也不一定强啊，忘了泳装阿比吗</blockquote>
+1级的阿比很强啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 998#       发表于 2022-8-14 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058044&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-8-14 10:44</a>
+
+3技能不是赋予死灵，是晕对方死灵一回合，只能靠宝具上死灵特性</blockquote>
+抱歉抱歉，又眼瞎了，感谢捉虫，实属尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+那好像也不太强...理想条件大概是高难本有一面的多血条敌人，第二发宝具开始触发30的死灵特攻...
+
+还是偏玩具吧，绘里濑那种直接能触发特攻的属于是颜值换强度了（剑兰并感）
+
+*****
+
+####  exiaexa  
+##### 999#       发表于 2022-8-14 10:51
+
+ 本帖最后由 exiaexa 于 2022-8-14 10:57 编辑 
+
+旧梅这债真是还吐了
+
+伊吹400石2宝，现在1600石还是两宝
+
+溜了溜了，抽完CBA再说
+
+往好处想，还完债RBA可以正常抽了（大概）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1000#       发表于 2022-8-14 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57058071&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-14 10:47</a>
+
+放后面也不一定强啊，忘了泳装阿比吗</blockquote>
+你这么一说我突然又有了抽的动力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+还是再努努力吧，我绿卡打手其实也没多少，蓝卡体系倒挺全的。
+
+狂伊吹这种强度，除非水CBA是上级定位的万物特光炮ruler，否则怎么着也不至于保底抽出来会后悔吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Erikas  
+##### 1001#       发表于 2022-8-14 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">一发十连出了伊吹，想着乘胜追击结果用了近1000石才抽到2宝
+希望rba能亚撒西一点<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 1002#       发表于 2022-8-14 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……跑到贴吧才看到卡面，感觉伊吹这卡面很微妙，只能说不是我的菜
+
