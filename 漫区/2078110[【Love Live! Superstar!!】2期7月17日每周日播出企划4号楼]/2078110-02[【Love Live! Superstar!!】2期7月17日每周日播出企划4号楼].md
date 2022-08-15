@@ -12951,3 +12951,12 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 星这边真的很难不让人担心。
 
+
+
+*****
+
+####  liu461  
+##### 2752#       发表于 2022-8-15 17:47
+
+可以了 相比隔壁武士道那种资本家牛马做派这边已经很人道了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+

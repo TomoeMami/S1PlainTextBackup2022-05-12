@@ -10541,3 +10541,149 @@ bo7是吧
 
 讲真的，a畜现在做直播，什么谢彬老陈这种搞笑主播就没饭吃了好吧，他太懂直播效果了。什么小娜迦边缘ob，屠夫跳高送，ck不开bkb切斧王，一人一刀众生平等，实在是过于欢乐。
 
+
+
+*****
+
+####  沈淮  
+##### 13194#         楼主| 发表于 2022-8-15 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077704&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 17:35</a></blockquote>
+有点不基德了
+
+*****
+
+####  nowaki  
+##### 13195#       发表于 2022-8-15 17:41
+
+这样搞毛子，navi吐了啊
+
+*****
+
+####  Keynes  
+##### 13196#       发表于 2022-8-15 17:41
+
+今年除了干鳖谁夺冠我都无所谓，咱就想看到随便来支中国队把老干鳖给淘汰了行吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 13197#       发表于 2022-8-15 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077761&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 17:38</a>
+
+看a畜第一视角可太解压了，建议漏油把四把都看一遍。
+
+讲真的，a畜现在做直播，什么谢彬老陈这种搞笑主播就 ...</blockquote>
+认真来说看哥哥的第一视觉我还是学了不少东西的
+
+不像看其他选手，切屏快得看不清，思路也完全看不懂，在此特别点名ana，根本学不到什么
+
+还是哥哥温柔，切屏慢，操作简单，都是非常适合菜鸡的玩法 
+
+*****
+
+####  你气不气  
+##### 13198#       发表于 2022-8-15 17:42
+
+那么问题来了，去年老干鳖训练赛被雪碧暴打的传言，集美是信还是不信
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 13199#       发表于 2022-8-15 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077739&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 17:37</a>
+
+有没有可能是因为平时成绩作假</blockquote>
+你这不就瞎比黑，还回复干嘛。要平时作假，能打出第一第二盘的水平？拿茶队举例，茶队优势领先转不出经济领先，经济差拉不开不会打压制，相比lgd打出压制的局就能看出水平在哪了
+
+*****
+
+####  百世诸侯  
+##### 13200#       发表于 2022-8-15 17:44
+
+TI10结束时集美肯定是不信的，今天被打服后应该是信了，超级集美论坛有人发帖表示AME不如牙脱落都能拿正赞
+
+
+
+*****
+
+####  nomhrpls  
+##### 13201#       发表于 2022-8-15 17:44
+
+怎么nga还有说老东京厉害是因为nts不行，要是nts换给以前那个nigma我做梦都能笑醒
+
+*****
+
+####  没钱买手办  
+##### 13202#       发表于 2022-8-15 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070625&amp;ptid=2084957" target="_blank">笑颜最美谢蕾蕾 发表于 2022-8-15 09:54</a>
+
+我前天还在犹疑如果周末曼联输了LGD也输了，我周一会高兴还是不爽
+
+现在结果很明显了，我好爽啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的下周又要看F1了
+
+*****
+
+####  反方向的波  
+##### 13203#       发表于 2022-8-15 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077843&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-15 17:45</a>
+妈的下周又要看F1了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信比嗨
+
+*****
+
+####  proselyte  
+##### 13204#       发表于 2022-8-15 17:46
+
+ 本帖最后由 proselyte 于 2022-8-15 17:48 编辑 
+
+现在才是个major
+
+到时候ti节奏会怎么样不敢想
+
+怎么搞的啊……就算是去年major也没这样
+
+总不能是集美也进化了吧
+
+*****
+
+####  百世诸侯  
+##### 13205#       发表于 2022-8-15 17:48
+
+<img src="https://img.saraba1st.com/forum/202208/15/174745shh33pc888c5scch.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/174750nm79lluttbuuqrbf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 17:47 上传
+
+目前在NGA最有战斗力的居然是套皮人型集美，令人感慨
+
+*****
+
+####  Cantha  
+##### 13206#       发表于 2022-8-15 17:48
+
+才major漏油就缩壳了，到了TI怕是要叛变
+
+*****
+
+####  战狼PTSD  
+##### 13207#       发表于 2022-8-15 17:49
+
+缩壳了，新版本再见，88博登
+

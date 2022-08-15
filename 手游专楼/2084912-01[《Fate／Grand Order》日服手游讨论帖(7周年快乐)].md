@@ -13978,3 +13978,46 @@ RBA还挺...普通的，红绿双拐，爆杀刑部姬（？）。
 解决不了初动问题啊</blockquote>
 感觉就没打算当新生代绿拐设计 就是出了个需要丢石头的强化本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 1305#       发表于 2022-8-15 17:42
+
+隔壁真的是暴击出魔怔了
+
+B道梵能完那是人家的爆伤全是群体全色爆伤
+
+RBA这个红卡爆伤还是单人，就硬去跟发牌员激情battle是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 1306#       发表于 2022-8-15 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具真的也不行啊，可能有第二套宝具动画会好点？
+
+*****
+
+####  Erikas  
+##### 1307#       发表于 2022-8-15 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连宝具动画都这么拉
+清醒了，2.7再见
+
+*****
+
+####  qixinno2  
+##### 1308#       发表于 2022-8-15 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给个黄金律或者缓冲就那么难么 50自充的同时给个安徒生同款每回合回15NP多好
+
+*****
+
+####  rooarr  
+##### 1309#       发表于 2022-8-15 17:50
+
+30石，rba不出就不出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
