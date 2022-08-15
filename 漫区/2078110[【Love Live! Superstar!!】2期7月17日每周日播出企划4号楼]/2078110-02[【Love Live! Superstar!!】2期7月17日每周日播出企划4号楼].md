@@ -12677,3 +12677,37 @@ CEO引流这个事居然现实中也是有的：
 
 鲤鱼估计心里也觉得不好受的吧，追梦进团，自己的角色却被塑造成这样，没公开骂娘就是遵守职业操守了。
 
+
+
+*****
+
+####  Enakina  
+##### 2727#       发表于 2022-8-15 14:55
+
+ 本帖最后由 Enakina 于 2022-8-15 15:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075114&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-8-15 14:42</a>
+之前有在4号楼发过得吧？我记得</blockquote>
+三号楼发过
+三号楼的8296楼我好闲啊
+
+*****
+
+####  愛さ実  
+##### 2728#       发表于 2022-8-15 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075086&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 14:40</a>
+CEO引流这个事居然现实中也是有的：
+
+https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</blockquote>
+啊这有点附会了。
+且不说以前团活动拿个人号来发是再正常不过的事了，毕竟也没什么利益，阿b那时也没多少人。coser兼买卖假毛买卖衣服更是常见了，cos原本开销就大，衣服也是一般拍完图就出的，你看古早的coser哪个没干过这事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  寒风夜  
+##### 2729#       发表于 2022-8-15 14:59
+
+就没几个塑造好了
+

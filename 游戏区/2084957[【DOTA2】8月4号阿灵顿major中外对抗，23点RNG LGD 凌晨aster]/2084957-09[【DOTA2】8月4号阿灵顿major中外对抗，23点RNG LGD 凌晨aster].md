@@ -8917,3 +8917,109 @@ g4按照正常情况下确实老干瘪是bp优势的，斧王表现好的原因�
 文丑这成分存疑啊，众所周知，超级集美论坛这些地方都在清算队友，能直球辱骂处长的无非就几个地方<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">q鳖你在楼里就说句话
 <img src="https://p.sda1.dev/6/e202f4521e8eaac7d3f069a5d4003c23/8xQ2q-47yvK5ToS7q-22.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pikamee  
+##### 13012#       发表于 2022-8-15 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075047&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-15 14:37</a>
+
+想想真是感慨 去年决赛崩溃点了个斧王出来但是被宰了 说不定今天早上萧瑟看到又是斧王内心还在窃喜 没想 ...</blockquote>
+ame有没有窃喜不知道，但斧王点出来时你楼的确有不少人窃喜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xk1370  
+##### 13013#       发表于 2022-8-15 14:55
+
+赵子星csdx搞我giegie心态是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 13014#       发表于 2022-8-15 14:55
+
+ti前还有比赛吗？
+
+*****
+
+####  沈淮  
+##### 13015#         楼主| 发表于 2022-8-15 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075293&amp;ptid=2084957" target="_blank">迷途lite 发表于 2022-8-15 14:55</a>
+
+ti前还有比赛吗？</blockquote>
+有下下星期esl云顶
+
+*****
+
+####  syndrome2032  
+##### 13016#       发表于 2022-8-15 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075166&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-15 14:46</a></blockquote>
+358有冠，1大腿，414
+
+结论:中单菜逼
+
+*****
+
+####  迷途lite  
+##### 13017#       发表于 2022-8-15 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075307&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 14:56</a>
+有下下星期esl云顶</blockquote>
+3q
+
+*****
+
+####  阿垃垃圾历  
+##### 13018#       发表于 2022-8-15 14:59
+
+上面那发言是xinq? 
+
+*****
+
+####  反方向的波  
+##### 13019#       发表于 2022-8-15 15:00
+
+ 本帖最后由 反方向的波 于 2022-8-15 15:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还有个泰国的杯赛，看了眼参赛名单一帮东南亚队，搞不好是毒狗杯
+<blockquote>  之前迪拜杯的主办方Gamers Galaxy宣布了他们即将举办的泰国邀请赛的队伍名单，BOOM、Fnatic等战队在列。完整名单为：
+Army Geniuses
+BOOM Esports
+Execration
+Fnatic
+Polaris Esports
+RSG
+Talon Esports
+Team SMG
+比赛将于8月18日至20日在泰国合艾举行，奖金池为15万美元。   </blockquote>
+
+*****
+
+####  pikamee  
+##### 13020#       发表于 2022-8-15 15:00
+
+赵子星这是在阴阳皮套人吗
+
+
+
+*****
+
+####  遍体精淋af  
+##### 13021#       发表于 2022-8-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075342&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-15 14:59</a>
+上面那发言是xinq?</blockquote>
+是文丑本人
+
+*****
+
+####  希望之花  
+##### 13022#       发表于 2022-8-15 15:01
+
+这次线上看直播体验也是垃圾，官方比赛直播不能客户端自己切OB得用官方源，然后官方OB切的稀烂
+
