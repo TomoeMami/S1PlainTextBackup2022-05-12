@@ -13598,3 +13598,18 @@ LGD 这个队伍有没有点李宗伟的味道？ 悲壮。 我平时打羽毛�
 
 然后看比赛转播，LGD队员没有特别兴奋或者狂的样子，有种冷静还是克制的感觉。没有那种王霸之气，或者说兴奋感，这两天看茶队的Monet 采访就感觉很兴奋，比较享受线下赛(当然打的好坏另说)。</blockquote>
 
+
+
+*****
+
+####  lyjssj  
+##### 13495#       发表于 2022-8-16 06:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天晚上又看了各大主播的复盘，看了好几遍回放
+
+只能说第二盘lgd五个人脑子里哪怕有一个人想到能带球这把就输不了
+
+第三盘雪碧有个运气球就是有一波宙斯大正好打在准备跳大的牛头身上，xinq放了个原地大，但这不关键，后面伐木机买活sven极限跳走了，如果不是钩而是直接往sven身上放盘子是不是更好一点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第四盘这硬送三打五，我只能说洗地难度略低于波高水人，但远大于不开bkb上坡好吧，纯纯的处级表现，这坨屎集美要洗干净不容易
+
