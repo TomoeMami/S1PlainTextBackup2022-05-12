@@ -13532,3 +13532,19 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">那我更觉得制作组有病了，有心思把一句话打磨得看起来有问题实际没问题没心思打磨整个剧本
 
+
+
+*****
+
+####  ces轴承仨  
+##### 2808#       发表于 2022-8-16 07:40
+
+那只能说剧本也是故意的。
+
+*****
+
+####  ces轴承仨  
+##### 2809#       发表于 2022-8-16 07:41
+
+或者。制作组真的有病。。
+

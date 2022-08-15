@@ -13613,3 +13613,14 @@ LGD 这个队伍有没有点李宗伟的味道？ 悲壮。 我平时打羽毛�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第四盘这硬送三打五，我只能说洗地难度略低于波高水人，但远大于不开bkb上坡好吧，纯纯的处级表现，这坨屎集美要洗干净不容易
 
+
+
+*****
+
+####  哈曼的YY  
+##### 13496#       发表于 2022-8-16 07:39
+
+霸气和hao的解说与弹幕看的真实爽啊 感觉都是漏油和sger<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
