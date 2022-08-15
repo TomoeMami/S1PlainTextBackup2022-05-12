@@ -4428,3 +4428,339 @@ AME当工具人老干爹还是能打，可惜了，恭喜雪碧，真的能打�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  莉拉厨  
+##### 12526#       发表于 2022-8-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070524&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-15 09:48</a>
+石油杯原来是单败BO3？
+
+赛制这么脑瘫的么</blockquote>
+石油佬图个爽快，不喜欢看彩笔互啄双败<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 12527#       发表于 2022-8-15 09:51
+
+LGD除了第三把被B爆了，其余三把都是优
+
+*****
+
+####  何然  
+##### 12528#       发表于 2022-8-15 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070556&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-15 09:50</a>
+
+23号有比赛啊，这不更新那又要等比赛打完了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+小比赛打一半更新个版本又不是没有
+
+大锤还是小松鼠进cw的那次不就是打一半出来的...
+
+*****
+
+####  Litccc  
+##### 12529#       发表于 2022-8-15 09:51
+
+<img src="https://img.saraba1st.com/forum/202208/15/095132fald7dmg49lac1cs.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ2q-bmcbK2sT3cSp6-dl.jpg.medium.jpg</strong> (23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 09:51 上传
+
+*****
+
+####  沈淮  
+##### 12530#         楼主| 发表于 2022-8-15 09:51
+
+dota2抄csgo的瑞士论单败就是傻逼赛制没啥好说的，第一次瑞士论的波士顿major我就说过了。
+
+那时候好像是为了节省办比赛的经费强行缩短租用场馆时间，所以我不理解石油杯为啥瑞士轮。
+
+*****
+
+####  HydraCat  
+##### 12531#       发表于 2022-8-15 09:52
+
+不过可能75分钟被翻心态确实会受影响吧，第二把之后都不仅是ame了，lgd其他人也有点摆了，就乱玩。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白色的120  
+##### 12532#       发表于 2022-8-15 09:52
+
+LGD苦战70分钟尽显疲态，雪碧鏖战7局精神焕发
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 12533#       发表于 2022-8-15 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070585&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 09:51</a>
+小比赛打一半更新个版本又不是没有
+
+大锤还是小松鼠进cw的那次不就是打一半出来的... ...</blockquote>
+那次是dpc预选吧。没到正赛
+
+*****
+
+####  walfeds  
+##### 12534#       发表于 2022-8-15 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070525&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-15 09:48</a>
+
+前两天不是说axo是食蚁兽了么？假盾冲击、虚张声势、卷土重来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看食蚁兽语音：
+
+他们说这是不可能的。这就是为什么我在这里。
+
+我不想让我的粉丝失望。
+
+有人告诉我会有危险吗?
+
+如果我失败了，我的兄弟永远不会原谅我。
+
+最快的刀片需要一天的时间。
+
+*****
+
+####  外挂全家脚气  
+##### 12535#       发表于 2022-8-15 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070527&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 09:48</a>
+第二局被翻盘，第四局又被翻，集美怎么好意思怪bp
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next- ...</blockquote>
+124的bp都占优，也取得了优势，但2失误让局势不好后，整个队伍就开始肌肉了，非要和ts一决死战忘了偷家的选项；3是纯bp被爆；4是心态爆炸，脑子没了，纪律性自然没了，只剩肌肉了
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 12536#       发表于 2022-8-15 09:54
+
+我前天还在犹疑如果周末曼联输了LGD也输了，我周一会高兴还是不爽
+
+现在结果很明显了，我好爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 12537#       发表于 2022-8-15 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070603&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 09:52</a>
+
+LGD苦战70分钟尽显疲态，雪碧鏖战7局精神焕发
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next-鹅版 v ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">我家鸽鸽是高龄选手，累了怎么样吗，有没有同理心！
+
+*****
+
+####  ml1642879  
+##### 12538#       发表于 2022-8-15 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070591&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 09:51</a>
+dota2抄csgo的瑞士论单败就是傻逼赛制没啥好说的，第一次瑞士论的波士顿major我就说过了。
+
+那时候好像是为 ...</blockquote>
+瑞士轮是三胜晋级，三败退场，土豪杯是小组循环赛+单败淘汰赛
+
+*****
+
+####  a1370303  
+##### 12539#       发表于 2022-8-15 09:54
+
+23号的esl one 马来西亚是第三方赛事，赖皮社大概率无视，直接更新7.32<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Bernoulli  
+##### 12540#       发表于 2022-8-15 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070603&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 09:52</a>
+
+LGD苦战70分钟尽显疲态，雪碧鏖战7局精神焕发
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next-鹅版 v ...</blockquote>
+集美论坛已经有人说了，都怪茶队把雪碧打精神了 <blockquote>其实是不是茶队不在败者组决赛会更好？
+
+今天这几把打起来看的出来雪碧明显进化了。上把打完茶队看的出来雪碧的状态明显起来了。从希望中国队夺冠的角度来看，是不是如果茶队止步第四，雪碧被og干了的可能性更大，lgd打og更加容易。当然没有喷茶的意思，毕竟作为队伍来说争取最佳战绩没毛病。</blockquote>
+
+
+
+*****
+
+####  Keynes  
+##### 12541#       发表于 2022-8-15 09:54
+
+LGD苦战70分钟尽显疲态，雪碧鏖战7局精神焕发
+
+*****
+
+####  JoelBirch  
+##### 12542#       发表于 2022-8-15 09:54
+
+ 本帖最后由 JoelBirch 于 2022-8-15 09:56 编辑 
+
+75min被翻心态就爆炸那活该输啊，更何况是优势阵容让别人运营拖下去了，菜了就是菜了，就这种心态以后继续尿裤也毫无疑问了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拿拿子  
+##### 12543#       发表于 2022-8-15 09:55
+
+回坑三天，萧瑟治好了我的精神内耗
+
+*****
+
+####  百世诸侯  
+##### 12544#       发表于 2022-8-15 09:55
+
+雪碧一眼磕药了呀，老东京瞳孔不正常翕动的，懂不懂啊
+
+*****
+
+####  赤尸藏人  
+##### 12545#       发表于 2022-8-15 09:56
+
+多久没改地图了？
+
+*****
+
+####  syndrome2032  
+##### 12546#       发表于 2022-8-15 09:56
+
+照理来说打国内这堆队伍拖到一小时膀胱局都是四个赵云靠着神装和买活玩弄对方。
+
+兜不住睡觉了去了，该补了。
+
+*****
+
+####  遍体精淋af  
+##### 12547#       发表于 2022-8-15 09:57
+
+集美：都怪鳖茶把雪碧状态打出来了，要是鳖茶赢了冠军一定就是西恩的，鳖茶纯粹恶心人<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 12548#       发表于 2022-8-15 09:57
+
+鏖战4局不敌草台班子
+我也小发一个吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 沈淮| + 1||
+| Milarvoz| + 1|老板大气|
+
+查看全部评分
+
+*****
+
+####  沈淮  
+##### 12549#         楼主| 发表于 2022-8-15 09:57
+
+lgd估计是最不希望改地图的队了吧
+
+*****
+
+####  何然  
+##### 12550#       发表于 2022-8-15 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070611&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 09:53</a>
+
+那次是dpc预选吧。没到正赛</blockquote>
+esl这种没积分的在v蛇看来也是小比赛吧，打一半更新无所谓的
+
+*****
+
+####  nowaki  
+##### 12551#       发表于 2022-8-15 09:58
+
+这版本已经是23带飞，1号位躺着的最适合lgd版本了，我不知道还能怎么改
+
+*****
+
+####  百世诸侯  
+##### 12552#       发表于 2022-8-15 09:58
+
+？
+
+从看到口令到打开支付宝就15秒时间，就他妈没了？
+
+集美群开脚本扫楼了吧
+
+*****
+
+####  何然  
+##### 12553#       发表于 2022-8-15 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070625&amp;ptid=2084957" target="_blank">笑颜最美谢蕾蕾 发表于 2022-8-15 09:54</a>
+
+我前天还在犹疑如果周末曼联输了LGD也输了，我周一会高兴还是不爽
+
+现在结果很明显了，我好爽啊 ...</blockquote>
+曼联弃将带我们森林队赢了
+
+我好爽啊
+
+*****
+
+####  HydraCat  
+##### 12554#       发表于 2022-8-15 09:59
+
+歇了歇了，不过目测这版本改动不大的话估计ti决赛还能看处长表演绝活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fopinecone  
+##### 12555#       发表于 2022-8-15 10:00
+
+该地图来点奇迹也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+rng加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 12556#       发表于 2022-8-15 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070720&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 09:58</a>
+
+曼联弃将带我们森林队赢了
+
+我好爽啊</blockquote>
+那确实是你更爽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 12557#       发表于 2022-8-15 10:00
+
+好呀好呀一上午一个红包没抢到，连抢红包bo5都打不过漏油
+
