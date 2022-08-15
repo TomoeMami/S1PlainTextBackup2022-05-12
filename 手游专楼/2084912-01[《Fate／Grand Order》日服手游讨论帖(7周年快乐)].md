@@ -14698,3 +14698,44 @@ C呆快满绊了呀
 我明白了，下一个蓝拐，攻击宝具的C呆马甲！</blockquote>
 新商法 换皮技能照搬拐（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 1376#       发表于 2022-8-15 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079219&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 19:28</a>
+
+新商法 换皮技能照搬拐（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还记得冠位剑也是阿尔托莉雅么
+
+*****
+
+####  angelooo  
+##### 1377#       发表于 2022-8-15 19:36
+
+<blockquote>qixinno2 发表于 2022-8-15 19:31
+还记得冠位剑也是阿尔托莉雅么</blockquote>
+冠位剑是最强蓝拐，毫无违和感（不是
+
+*****
+
+####  都谷捻柏  
+##### 1378#       发表于 2022-8-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079260&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 19:31</a>
+
+还记得冠位剑也是阿尔托莉雅么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那都多少年前的事了，现在说不定是奥伯龙呢
+
+*****
+
+####  qixinno2  
+##### 1379#       发表于 2022-8-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079310&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-15 19:36</a>
+
+冠位剑是最强蓝拐，毫无违和感（不是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟满破拿的可是冠位插件海无力的剑
+

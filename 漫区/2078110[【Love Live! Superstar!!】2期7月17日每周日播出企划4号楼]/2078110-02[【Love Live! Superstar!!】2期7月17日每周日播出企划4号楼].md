@@ -13026,3 +13026,15 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 酸菜鱼三期不太影响吧，有自欺欺人板，也没大量人员聚集。
 
+
+
+*****
+
+####  老1.5  
+##### 2759#       发表于 2022-8-15 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075230&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-8-15 14:50</a>
+
+鲤鱼估计心里也觉得不好受的吧，追梦进团，自己的角色却被塑造成这样，没公开骂娘就是遵守职业操守了。 ...</blockquote>
+公开骂娘那是工作不想要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒也扯不到操守，不好受归不好受，工作还得做，日子还得过嘛。
+

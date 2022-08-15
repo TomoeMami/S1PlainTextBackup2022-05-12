@@ -11580,3 +11580,33 @@ zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
 <blockquote>hao：这个 CK 要是彬子打的，应该会说 “兄弟们别搞了啊”</blockquote>
 真吗？有没有小核桃说说
 
+
+
+*****
+
+####  CNFH1984  
+##### 13301#       发表于 2022-8-15 19:37
+
+等一哈，仔细一想，是有点像憋憋生涯末期啊，能不能刷，能，能不能打，不能！
+
+……哇，这就是杀鳖少年终成鳖吗？
+
+*****
+
+####  nowaki  
+##### 13302#       发表于 2022-8-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079259&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 19:31</a>
+
+真吗？有没有小核桃说说</blockquote>
+真的，看的是斧王吼三人，23死了，ck带着酱油3打5那波。
+
+*****
+
+####  沈淮  
+##### 13303#         楼主| 发表于 2022-8-15 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079335&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 19:37</a>
+真的，看的是斧王吼三人，23死了，ck带着酱油3打5那波。</blockquote>
+等会我做完晚饭找回放来看看
+
