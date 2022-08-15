@@ -13375,3 +13375,24 @@ TM在C100上卖的设定集《Avalon le Fae Synopsys》里面有2.6的草案设�
 
 武藏估计不会因为拿了冠位才回来了...复活的契机说不定是抑止力阿赖耶识看中其穿越世界的能力，强迫她和emiya们一样做打工仔？然后白发黑皮武藏，堂堂复活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（那岂不就成了舰C的武藏...）
 
+
+
+*****
+
+####  alucardcz  
+##### 1253#       发表于 2022-8-15 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075633&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-15 15:19</a>
+
+TM在C100上卖的设定集《Avalon le Fae Synopsys》里面有2.6的草案设定：
+
+https://card.weibo.com/article/m ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂不懂公款追星的含金量
+
+*****
+
+####  qixinno2  
+##### 1254#       发表于 2022-8-15 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正2.6已经这德行了 再怎么说也没用了
+

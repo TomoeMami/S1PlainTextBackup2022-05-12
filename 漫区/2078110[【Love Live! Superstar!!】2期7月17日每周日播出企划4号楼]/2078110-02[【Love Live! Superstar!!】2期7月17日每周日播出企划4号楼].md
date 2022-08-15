@@ -12767,3 +12767,27 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 星团现在连练舞的视频都不发了
 
+
+
+*****
+
+####  ads147147  
+##### 2735#       发表于 2022-8-15 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075595&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 15:16</a>
+
+其实学园偶像和cosplay团体这种相似度还挺高的，在各自的语境下都是用爱发电兴趣使然，一扯到商业收益就 ...</blockquote>
+泛式舅舅：哔哩哔哩，那不是n站搬（你可不能乱说）。
+
+反正现在看，夏美开始把开播前的担忧的雷开始踩了，能不能借着地雷来个回马枪，我个人不太看好。
+
+*****
+
+####  ads147147  
+##### 2736#       发表于 2022-8-15 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075692&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 15:22</a>
+
+星团现在连练舞的视频都不发了</blockquote>
+跳舞预热这个还得等tv后期的舞把，现在的情况，感觉也不是宣传的时候。
+
