@@ -14021,3 +14021,91 @@ RBA这个红卡爆伤还是单人，就硬去跟发牌员激情battle是吧
 
 30石，rba不出就不出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  砂糖方块  
+##### 1310#       发表于 2022-8-15 17:51
+
+说起来，ex都出来两个克制三角了，助战再多一个栏位不行吗？ex的人数也不比通常职介少多少了
+
+*****
+
+####  qixinno2  
+##### 1311#       发表于 2022-8-15 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊吹绘里濑池赢得了全部
+
+*****
+
+####  qb0079  
+##### 1312#       发表于 2022-8-15 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁在说bba*3+狂兰暴击的时候，有没有想过红魔放谁来提供的问题
+
+*****
+
+####  天王寺凯伊姆  
+##### 1313#       发表于 2022-8-15 17:53
+
+解决不了启动问题，不能6加成，那就没得说了。真要抽也是因为我有项羽，但…..给个锁卡或黄金律多好，项羽那np没救啊
+
+*****
+
+####  朝香果林  
+##### 1314#         楼主| 发表于 2022-8-15 17:53
+
+<blockquote>砂糖方块 发表于 2022-8-15 17:51
+说起来，ex都出来两个克制三角了，助战再多一个栏位不行吗？ex的人数也不比通常职介少多少了 ...</blockquote>
+现在能放三套助战。估计不会加栏位
+
+*****
+
+####  exiaexa  
+##### 1315#       发表于 2022-8-15 17:54
+
+震惊，阿瓦隆小姐居然是无辜的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝香果林  
+##### 1316#         楼主| 发表于 2022-8-15 17:54
+
+rba不给群充也不给黄金律，真是难受
+
+*****
+
+####  alucardcz  
+##### 1317#       发表于 2022-8-15 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077909&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-15 17:50</a>
+
+30石，rba不出就不出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是预豹吗
+
+*****
+
+####  alucardcz  
+##### 1318#       发表于 2022-8-15 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077966&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:54</a>
+
+震惊，阿瓦隆小姐居然是无辜的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁已经在吹rba多核队了 大佬你怎么看（
+
+*****
+
+####  exiaexa  
+##### 1319#       发表于 2022-8-15 17:57
+
+ 本帖最后由 exiaexa 于 2022-8-15 17:58 编辑 
+
+怎么90级就来公主快乐本了
+
+全狂+关底混沌吕布
+
+好歹90+再售后啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

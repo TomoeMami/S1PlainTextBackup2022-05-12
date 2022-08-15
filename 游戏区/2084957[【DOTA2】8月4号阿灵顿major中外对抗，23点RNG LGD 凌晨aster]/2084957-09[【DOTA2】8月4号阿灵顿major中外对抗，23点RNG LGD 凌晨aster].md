@@ -10687,3 +10687,137 @@ TI10结束时集美肯定是不信的，今天被打服后应该是信了，超�
 
 缩壳了，新版本再见，88博登
 
+
+
+*****
+
+####  小19  
+##### 13208#       发表于 2022-8-15 17:50
+
+<blockquote>百世诸侯 发表于 2022-8-15 17:26
+拒训拒训</blockquote>
+起码看到了雪碧牛逼，算个正常人吧
+
+*****
+
+####  seki_m  
+##### 13209#       发表于 2022-8-15 17:50
+
+皮套人收米缩地小蚂蚁一套够处长学到明年的
+
+*****
+
+####  百世诸侯  
+##### 13210#       发表于 2022-8-15 17:51
+
+顺风怎么也要缩壳
+
+*****
+
+####  proselyte  
+##### 13211#       发表于 2022-8-15 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077896&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-15 17:49</a>
+
+缩壳了，新版本再见，88博登</blockquote>
+不是
+
+今天不是都在狂欢吗
+
+怎么缩壳了
+
+*****
+
+####  IG.430  
+##### 13212#       发表于 2022-8-15 17:51
+
+v社快狠狠削弱老东京啊，削圣水符就是削老东京，削老东京就是削圣水符<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 13213#       发表于 2022-8-15 17:52
+
+削弱圣水符之后，topson将如闪电般归来。
+
+*****
+
+####  zsu222  
+##### 13214#       发表于 2022-8-15 17:53
+
+反正我不想看假三真一了 真没意思
+
+*****
+
+####  战狼PTSD  
+##### 13215#       发表于 2022-8-15 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077928&amp;ptid=2084957" target="_blank">proselyte 发表于 2022-8-15 17:51</a>
+
+不是
+
+今天不是都在狂欢吗
+
+怎么缩壳了</blockquote>
+都没比赛看了不休眠干嘛
+
+鸡畜都不开播了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  masterkeaton  
+##### 13216#       发表于 2022-8-15 17:53
+
+估计要卖俄罗斯了，V社纯纯的美狗
+
+*****
+
+####  百世诸侯  
+##### 13217#       发表于 2022-8-15 17:54
+
+缩壳的扣1，ELSONE马来西亚开了我负责@你们出壳
+
+*****
+
+####  HydraCat  
+##### 13218#       发表于 2022-8-15 17:56
+
+缩到ti
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lyjssj  
+##### 13219#       发表于 2022-8-15 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077879&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 17:48</a>
+
+目前在NGA最有战斗力的居然是套皮人型集美，令人感慨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我也想搬这个没你快
+
+只能说集美素质体现的淋漓尽致，因为“处长”两个字直接被下三滥**羞辱，啧啧
+
+*****
+
+####  12481632  
+##### 13220#       发表于 2022-8-15 17:57
+
+缩到预选
+
+*****
+
+####  何然  
+##### 13221#       发表于 2022-8-15 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077825&amp;ptid=2084957" target="_blank">蛋炒蜂窝煤 发表于 2022-8-15 17:43</a>
+你这不就瞎比黑，还回复干嘛。要平时作假，能打出第一第二盘的水平？拿茶队举例，茶队优势领先转不出经济 ...</blockquote>
+你们争第二又不是我喊出来的
+
+*****
+
+####  反方向的波  
+##### 13222#       发表于 2022-8-15 17:59
+
+狂欢个基吧，我被一个扣群假赛管理飞了<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
