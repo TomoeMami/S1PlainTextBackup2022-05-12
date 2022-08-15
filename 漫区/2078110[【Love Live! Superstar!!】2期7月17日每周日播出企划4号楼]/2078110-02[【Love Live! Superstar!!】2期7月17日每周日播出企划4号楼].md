@@ -12791,3 +12791,51 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 星团现在连练舞的视频都不发了</blockquote>
 跳舞预热这个还得等tv后期的舞把，现在的情况，感觉也不是宣传的时候。
 
+
+
+*****
+
+####  仟音一心  
+##### 2737#       发表于 2022-8-15 15:37
+
+#Liyuu[超话]# 好久没出门逛逛啦！
+
+<img src="https://img.saraba1st.com/forum/202208/15/153717d9pem6c6ugrd0dz9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90C84B92-48E3-4B6A-AD4E-5B5F6BF0735C.jpeg</strong> (469.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 15:37 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/153717d1my4b5sh1kysb7j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CE7F0172-28B3-4A2E-A228-E4571A93A33A.jpeg</strong> (442.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 15:37 上传
+
+*****
+
+####  player3960  
+##### 2738#       发表于 2022-8-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075908&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 15:37</a>
+
+#Liyuu[超话]# 好久没出门逛逛啦！</blockquote>
+胶带还在哦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2739#       发表于 2022-8-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075776&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-15 15:28</a>
+泛式舅舅：哔哩哔哩，那不是n站搬（你可不能乱说）。
+
+反正现在看，夏美开始把开播前的担忧的雷开始踩了 ...</blockquote>
+我唯一能确定的就是正式入队后这事提都不会有人提因为没必要了，但之前会不会有堪比一期七八回的展开，拭目以待吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

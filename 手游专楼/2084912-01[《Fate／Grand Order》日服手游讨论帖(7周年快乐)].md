@@ -13396,3 +13396,23 @@ https://card.weibo.com/article/m ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正2.6已经这德行了 再怎么说也没用了
 
+
+
+*****
+
+####  alucardcz  
+##### 1255#       发表于 2022-8-15 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075736&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 15:25</a>
+
+反正2.6已经这德行了 再怎么说也没用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫这德行 隔壁不是大受好评吗
+
+*****
+
+####  Jamaisvu  
+##### 1256#       发表于 2022-8-15 15:34
+
+另外型月稿本的月姬侧宝石翁设定也挺有意思的，所罗门王的弟子，帮师兄弟建立了魔术协会，自己的时代结束后静观世界变化，在死徒那边过得也不错，人设变得亲切了起来：
+[https://weibo.com/ttarticle/x/m/show/id/2309404802445774815846](https://weibo.com/ttarticle/x/m/show/id/2309404802445774815846)
+

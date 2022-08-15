@@ -9205,3 +9205,79 @@ lgd现在这个23458肯定是比老lgd的23457强的，心理素质也更好。f
 
 怎么又开始车轱辘23457和23458了
 
+
+
+*****
+
+####  你气不气  
+##### 13044#       发表于 2022-8-15 15:33
+
+真的只是心态不行吗？从纯技术角度老干鳖也是被ts爆了的
+
+*****
+
+####  CNFH1984  
+##### 13045#       发表于 2022-8-15 15:35
+
+23458带着的萧瑟有水人反向波tbt锅吗？不是没有么。赵子星ti10前什么经历fyti8前什么经历？我觉得fy玉玉那属实很正常。
+
+*****
+
+####  战狼PTSD  
+##### 13046#       发表于 2022-8-15 15:36
+
+别时光倒流了行不行，赶紧他妈的上游戏玩玩大锤戴泽宙斯电魂啊
+
+*****
+
+####  usoda  
+##### 13047#       发表于 2022-8-15 15:36
+
+隔壁现在满屏幕的“心态”。 可能承认lgd就是打不过雪碧比杀了他们还难吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 13048#       发表于 2022-8-15 15:36
+
+理性讨论，于禁量子鞭在最后的bo5当中离崩溃神差了多少个ceeeeeeeb？
+
+*****
+
+####  nightmare902015  
+##### 13049#       发表于 2022-8-15 15:38
+
+桀桀，major开打以后天梯全是宙斯电魂戴泽，我不堪受辱又不想选捏。
+
+*****
+
+####  walfeds  
+##### 13050#       发表于 2022-8-15 15:39
+
+[https://www.bilibili.com/video/BV1bU4y1F7h6](https://www.bilibili.com/video/BV1bU4y1F7h6)
+
+假没假赛？啰啰嗦嗦分析ti10秘密对战雪碧决胜局
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人味真收不住啊
+
+
+
+*****
+
+####  沈淮  
+##### 13051#         楼主| 发表于 2022-8-15 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075932&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-15 15:39</a>
+
+https://www.bilibili.com/video/BV1bU4y1F7h6
+
+假没假赛？啰啰嗦嗦分析ti10秘密对战雪碧决胜局</blockquote>
+好快的开
+
+*****
+
+####  IG.430  
+##### 13052#       发表于 2022-8-15 15:41
+
+collapse昨天最伟大的表演还是那把有精灵的尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
