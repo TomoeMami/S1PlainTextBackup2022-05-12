@@ -10821,3 +10821,142 @@ v社快狠狠削弱老东京啊，削圣水符就是削老东京，削老东京�
 
 狂欢个基吧，我被一个扣群假赛管理飞了<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 13223#       发表于 2022-8-15 18:00
+
+权限√司马
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 13224#       发表于 2022-8-15 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078051&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 17:59</a>
+
+你们争第二又不是我喊出来的</blockquote>
+不想聊dota就别回复，还你们你们是不是弱智啊
+
+*****
+
+####  百世诸侯  
+##### 13225#       发表于 2022-8-15 18:02
+
+从TI8看到现在，AME在决赛中经常有大跌眼镜的表现。并不是AME喜欢整活，而是他觉得按常规套路，已经没什么赢面了。
+
+当AME觉得按常规打法赢不了的时候，他就会兵行险着，做出反常规的打法和出装。
+
+最典型的就是水人打幻影长矛手：常规的冰眼虚灵刀水人不好打，那我就出散失，团战变猴子，猴对猴。
+
+这样打弱队还行，遇到ana和丫头肉这种阅读比赛能力强的carry，就没什么赢面了。
+
+也就是说AME的弱点在于：不能应对“绝境”。
+
+“顺境”430；“逆境”月夜枫；“绝境”看雕哥！
+
+“顺境”，AME一骑绝尘。
+
+“逆境”，AME如同深渊潜龙，虽然局势被动，但是跳动着勃勃生机。
+
+出到BKB就能翻，可以。
+
+出到A杖就能翻，可以。
+
+守住高地就能翻，可以。
+
+这时，AME是值得信赖的后期保障。
+
+但是，当AME觉得局面怎么打都要输的时候，你就会看到一个完全陌生的AME。。。。
+
+[https://bbs.nga.cn/read.php?&amp;tid=33083235](https://bbs.nga.cn/read.php?&amp;tid=33083235)
+
+*****
+
+####  哈萨维·诺亚  
+##### 13226#       发表于 2022-8-15 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078086&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 18:02</a>
+
+从TI8看到现在，AME在决赛中经常有大跌眼镜的表现。并不是AME喜欢整活，而是他觉得按常规套路，已经没什么 ...</blockquote>
+把尿裤说得这么清醒脱俗吗
+
+*****
+
+####  nowaki  
+##### 13227#       发表于 2022-8-15 18:05
+
+有兴趣的可以看g4bp给的ame特写，我觉得是尿了，文爱胖子一直皱眉大概是闻到骚味了
+
+*****
+
+####  proselyte  
+##### 13228#       发表于 2022-8-15 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078126&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 18:05</a>
+
+有兴趣的可以看g4bp给的ame特写，我觉得是尿了，文爱胖子一直皱眉大概是闻到骚味了 ...</blockquote>
+我觉得是傻逼了
+
+不至于major就尿
+
+*****
+
+####  IG.430  
+##### 13229#       发表于 2022-8-15 18:06
+
+ 本帖最后由 IG.430 于 2022-8-15 18:09 编辑 
+
+我骆非池大好男儿，竟跟这种畜牲相提并论
+
+而且顺境也是骆非池亲自打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 13230#       发表于 2022-8-15 18:06
+
+水人打猴子都能洗出装是别出心裁险中求胜？我服了
+
+水人打猴子那一把到底谁“险”啊？！
+
+
+
+*****
+
+####  poipanchao  
+##### 13231#       发表于 2022-8-15 18:08
+
+一年没看do比赛了
+今晚好好品一下回放
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  救死扶伤魔力瞎  
+##### 13232#       发表于 2022-8-15 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077761&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 17:38</a>
+看a畜第一视角可太解压了，建议漏油把四把都看一遍。
+
+讲真的，a畜现在做直播，什么谢彬老陈这种搞笑主播就 ...</blockquote>
+ck那个问题不大吧？斧王魔晶天克ck，第一个裂隙没拍死，触发几个转，6秒内就a不动，分身多只会更严重。
+
+—— 来自 OPPO PGCM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CNFH1984  
+##### 13233#       发表于 2022-8-15 18:09
+
+我觉得森哥这辈子最大的黑点不是红包，也不是什么三连送谁是谁爹，而是当年没有把ame摁进显示器去矫正一下，所以遗毒无穷！徐林森，你真是西恩刀塔的大罪人。
+
+*****
+
+####  nerugigannte  
+##### 13234#       发表于 2022-8-15 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是giegie水人打出94点伤害的理由吗
+

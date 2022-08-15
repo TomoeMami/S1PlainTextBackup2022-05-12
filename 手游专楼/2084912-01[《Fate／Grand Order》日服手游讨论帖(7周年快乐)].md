@@ -14109,3 +14109,70 @@ rba不给群充也不给黄金律，真是难受
 好歹90+再售后啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 1320#       发表于 2022-8-15 18:00
+
+ 本帖最后由 exiaexa 于 2022-8-15 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078019&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 17:57</a>
+
+隔壁已经在吹rba多核队了 大佬你怎么看（</blockquote>
+我只是个多核人，找大佬你错人了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的意见就是多核个锤子
+
+都要上换人或者宝石，那跟红卡队双狐奥+打手的按键爆炸组合有啥区别
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有个组合，rba+小王子/团长+奥伯龙的组合
+
+我只能说用途感人
+
+强行上班不如回家睡觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 1321#       发表于 2022-8-15 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078021&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:57</a>
+
+怎么90级就来公主快乐本了
+
+全狂+关底混沌吕布
+
+好歹90+再售后啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起我c狗吗
+
+*****
+
+####  alucardcz  
+##### 1322#       发表于 2022-8-15 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078062&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 18:00</a>
+
+我只是个多核人，找大佬你错人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁已经在吹什么和道满组队不错啥啥啥的 萌新没用过不敢乱喷
+
+*****
+
+####  砂糖方块  
+##### 1323#       发表于 2022-8-15 18:04
+
+就感觉是给没有cba或者cba早就满绊下班的人补一个cba，对现役还在用cba的提升也就那样，红卡在转CD硬冲，蓝卡在卷回收，绿卡，绿卡在吗？
+
+*****
+
+####  kiralzb  
+##### 1324#       发表于 2022-8-15 18:09
+
+居然给试用了，先不说这红绿参半压根就没打算救绿的设计，这宝具动画也太简陋了吧，看着还是水伊那样直接绑定三破形态，哪来的勇气放压轴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+水伊给5宝推销看来叶哥哥自己都知道主角是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
