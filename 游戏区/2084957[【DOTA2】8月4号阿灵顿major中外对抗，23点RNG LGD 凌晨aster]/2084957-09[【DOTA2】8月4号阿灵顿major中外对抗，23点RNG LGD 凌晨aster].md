@@ -2485,3 +2485,562 @@ G4本来雪碧劣势，但是两波关建团哥哥都站出来稳住了！超现
 
 买手脚都来辣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  12481632  
+##### 12312#       发表于 2022-8-15 09:00
+
+建议23458请厨子来证明自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  morwhipppo  
+##### 12313#       发表于 2022-8-15 09:00
+
+Yatoro：我希望以后每次决赛都能碰见ame，集美：这是英雄惜英雄
+
+*****
+
+####  反方向的波  
+##### 12314#       发表于 2022-8-15 09:00
+
+ 本帖最后由 反方向的波 于 2022-8-15 09:01 编辑 
+
+扣扣群有人破防说你楼垃圾，令人感慨
+只能说干瘪的节目效果确实卜一样
+
+*****
+
+####  修罗王  
+##### 12315#       发表于 2022-8-15 09:01
+
+可惜上个major俄乌战争加司马白皮搞场外舆论影响了独联体队伍太多，不然雪碧可能今年就两个major冠军了，不用看一堆废物队在那争来争去
+
+*****
+
+####  中已矣  
+##### 12316#       发表于 2022-8-15 09:01
+
+爱国群友在狂欢，发了快一小时红包庆祝了，楼里还是车轱辘话没点新意。
+
+*****
+
+####  何然  
+##### 12317#       发表于 2022-8-15 09:01
+
+你们懂什么，这是八奇领域之老七特技：轻敌
+
+最后一个major装蠢输了，大版本更新也是砍雪碧，大家都去研究雪碧了，萧瑟割割卧薪尝胆，TI11上演王者归来，败者组一穿七挑TE秘密OG雪碧，拿下硬实力冠军！
+
+*****
+
+####  蛭人  
+##### 12318#       发表于 2022-8-15 09:01
+
+如果LGD夺冠，恐怕就是阿灵顿major宇宙第一赛事了吧。
+
+*****
+
+####  正直的黄瓜  
+##### 12319#       发表于 2022-8-15 09:02
+
+xinq前面团战一直在找对面两个酱油啊，只是最后一次团战失误了，这就被说成啥也没干了。。。
+
+对面斧王在后期团战其实是很克制小精灵+ck的，再加上出了刃甲对电棍的克制也是很强的，只是前期装备没成型大家看不出来罢了。最后一把对面bp绝对是有东西的。
+
+*****
+
+####  CNFH1984  
+##### 12320#       发表于 2022-8-15 09:02
+
+牙脱落和老东京看穿了呀，4个于禁带1个庞德，庞德是没能力的，于禁是没心态的，干就完事了
+
+*****
+
+####  joker9527  
+##### 12321#       发表于 2022-8-15 09:02
+
+以前王思聪组队 都把菜逼踢干净，保留竞争力最强的队伍，C位是其貌不扬的酱爆
+
+南通水厂花大价钱请4个爹，连教练3个ti冠军带着一号位 畜 玩游戏，奈何畜连躺都不会躺
+
+*****
+
+####  一品堂官  
+##### 12322#       发表于 2022-8-15 09:02
+
+点歌《最伟大的亚军》<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+“驮着队友翻船，在通天河河岸”
+
+*****
+
+####  joker9527  
+##### 12323#       发表于 2022-8-15 09:02
+
+以前王思聪组队 都把菜逼踢干净，保留竞争力最强的队伍，C位是其貌不扬的酱爆
+
+南通水厂花大价钱请4个爹，连教练3个ti冠军带着一号位 畜 玩游戏，奈何畜连躺都不会躺
+
+*****
+
+####  希望之花  
+##### 12324#       发表于 2022-8-15 09:02
+
+ts这队伍管理层和队员都是鹅乌混合的，挺好奇现在大环境下队内是怎样的氛围
+
+*****
+
+####  HydraCat  
+##### 12325#       发表于 2022-8-15 09:02
+
+可以理解lgd，lgd出场自带三酱油，只有两个核心怎么和对面玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  CNFH1984  
+##### 12326#       发表于 2022-8-15 09:03
+
+<blockquote>joker9527 发表于 2022-8-15 09:02
+以前王思聪组队 都把菜逼踢干净，保留竞争力最强的队伍，C位是其貌不扬的酱爆
+
+南通水厂花大价钱请4个爹，连 ...</blockquote>
+漏油这话就有瑕疵了，酱爆虽然说其貌不扬，但是能力还是有的……
+
+*****
+
+####  Burabura  
+##### 12327#       发表于 2022-8-15 09:03
+
+看集美论坛还以为lgd赢了呢
+好似
+
+*****
+
+####  端木恋心  
+##### 12328#       发表于 2022-8-15 09:03
+
+所以预选啥时候啊。我比较关心ehome能不能进化一下。其他队都看太久了。
+
+*****
+
+####  Sza  
+##### 12329#       发表于 2022-8-15 09:03
+
+果然还是现在的结局才够欢乐
+
+*****
+
+####  acejoe  
+##### 12330#       发表于 2022-8-15 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069619&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 08:55</a>
+#掀背走钢丝
+#掀背刷打结合
+#掀背场均吃伤害第一</blockquote>
+粉丝爱喷队友cba的是科比还是某黄？
+
+
+
+*****
+
+####  沈淮  
+##### 12331#         楼主| 发表于 2022-8-15 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069667&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-15 08:58</a></blockquote>
+萨特别波了
+
+*****
+
+####  Litccc  
+##### 12332#       发表于 2022-8-15 09:03
+
+王思聪还是别吹了吧，要不是遇到葑茖还指不定是谁拿冠军呢
+
+*****
+
+####  我爱撩菜  
+##### 12333#       发表于 2022-8-15 09:03
+
+其他点确实人家TS做得更好。TS真是越打越牛逼
+
+*****
+
+####  逃离二次元  
+##### 12334#       发表于 2022-8-15 09:04
+
+最后鞭软了，偷偷出了个极限法球想做羊刀给a畜拉扯空间，奈何a畜是靠不住的，还是得靠自己c
+
+*****
+
+####  CNFH1984  
+##### 12335#       发表于 2022-8-15 09:04
+
+<blockquote>正直的黄瓜 发表于 2022-8-15 09:02
+xinq前面团战一直在找对面两个酱油啊，只是最后一次团战失误了，这就被说成啥也没干了。。。
+
+对面斧王在后 ...</blockquote>
+什么叫最后一次团战失误了，高地上不算团战是吧
+
+承认一下4个赵云其实是4个于禁也这么难？
+
+那先承认带的不是阿斗是庞德罢
+
+*****
+
+####  nowaki  
+##### 12336#       发表于 2022-8-15 09:04
+
+虽然当年major冠军没有拿ti的，但是major亚军也没有拿ti的
+
+*****
+
+####  walfeds  
+##### 12337#       发表于 2022-8-15 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069707&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 09:00</a>
+
+扣扣群有人破防说你楼垃圾，令人感慨
+
+只能说干瘪的节目效果确实卜一样</blockquote>
+来点集美笑话
+
+*****
+
+####  反方向的波  
+##### 12338#       发表于 2022-8-15 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069731&amp;ptid=2084957" target="_blank">正直的黄瓜 发表于 2022-8-15 09:02</a>
+xinq前面团战一直在找对面两个酱油啊，只是最后一次团战失误了，这就被说成啥也没干了。。。
+
+对面斧王在后 ...</blockquote>
+这把正常推演拖不到斧王强势期雪碧就被打死了，干瘪在雪碧野区发狂和河道3打5发狂两波改变了世界线
+
+*****
+
+####  ml1642879  
+##### 12339#       发表于 2022-8-15 09:04
+
+从来没看过真视界，7难受没看，8难受没看，9无所谓没看，10的我一定要看<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 12340#       发表于 2022-8-15 09:04
+
+可惜我超级假赛论坛只有一个号，不然真的想去发帖参与集美的清算和假赛讨论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 12341#         楼主| 发表于 2022-8-15 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069757&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-8-15 09:03</a>
+粉丝爱喷队友cba的是科比还是某黄？</blockquote>
+先是科比后是某黄
+
+*****
+
+####  12481632  
+##### 12342#       发表于 2022-8-15 09:05
+
+可惜我超级假赛论坛只有一个号，不然真的想去发帖参与集美的清算和假赛讨论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhrs456  
+##### 12343#       发表于 2022-8-15 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Asukalangley33  
+##### 12344#       发表于 2022-8-15 09:05
+
+我就想问赖皮社，NMB的本子还卖不卖？
+
+想给先辈送钱啊，呜呜呜呜呜
+
+*****
+
+####  CNFH1984  
+##### 12345#       发表于 2022-8-15 09:05
+
+<blockquote>恐怖利刃 发表于 2022-8-15 08:58
+</blockquote>
+青春！
+
+正义的勇士们暴打懦弱的邪教徒！
+
+*****
+
+####  甩不出去的黄牌  
+##### 12346#       发表于 2022-8-15 09:06
+
+等本子和新版本了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 12347#       发表于 2022-8-15 09:06
+
+集美们今晚会冲烂皮套人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mkii量产型  
+##### 12348#       发表于 2022-8-15 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">集美在拷打阿鞭不出肉装出刷新，没吃够伤害给处长输出空间，全责！
+
+*****
+
+####  北欧王座  
+##### 12349#       发表于 2022-8-15 09:06
+
+ 本帖最后由 北欧王座 于 2022-8-15 09:07 编辑 
+
+挽大厦于将倾，ts的经典特征就是临阵决机，哪怕是绝路，他们也会坚韧的寻找那一个翻盘的可能性，在自己理想的地方开最壮烈的团。打rng开雾杀maybe是如此，打茶大劣秒虚空是如此，打lgd这天辉高台一站也是如此。这的确是男子汉的世界，无论多浮夸的吹捧，还是嚣张的狂妄，都不会留在这片战场之上，所有的只是意志与意志的狭路相逢，你所面对的只有敌人决绝而寂静的眼睛。这是壮美的dota，软弱的人最终只能躺下，也的确躺下了
+
+*****
+
+####  fopinecone  
+##### 12350#       发表于 2022-8-15 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069772&amp;ptid=2084957" target="_blank">ml1642879 发表于 2022-8-15 09:04</a>
+从来没看过真视界，7难受没看，8难受没看，9无所谓没看，10的我一定要看 ...</blockquote>
+6都不看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  外挂全家脚气  
+##### 12351#       发表于 2022-8-15 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069768&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 09:04</a>
+这把正常推演拖不到斧王强势期雪碧就被打死了，干瘪在雪碧野区发狂和河道3打5发狂两波改变了世界线 ...</blockquote>
+野区那高台视野不插，树林视野没有，CK在高地蠢蠢欲动，而电魂加精灵则是直接就下去了，真是一点不像之前比赛那样纪律性了
+
+*****
+
+####  公交老司机  
+##### 12352#       发表于 2022-8-15 09:07
+
+终于可以清静到ti正赛前了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 12353#       发表于 2022-8-15 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069818&amp;ptid=2084957" target="_blank">fopinecone 发表于 2022-8-15 09:06</a>
+6都不看吗
+
+论坛助手,iPhone</blockquote>
+哪来的☁️，6没有真视界<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗尿  
+##### 12354#       发表于 2022-8-15 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069668&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 08:58</a>
+
+别急，后面有的你急</blockquote>
+我不急啊，我只是个普通看比赛偶尔玩玩梗的人，没你们那么多情绪，看我历史发帖就知道。
+
+*****
+
+####  Kazepollar  
+##### 12355#       发表于 2022-8-15 09:07
+
+去年就在超级集美论坛被全版永封了，无非是骂了清蒸鲈鱼几句太监，真的是<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 12356#       发表于 2022-8-15 09:08
+
+这后面两盘真的谁也别说谁，全员脑浆
+
+*****
+
+####  Cookiekira  
+##### 12357#       发表于 2022-8-15 09:08
+
+太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 谢谢你 雪碧 我的屠醋英雄！
+
+*****
+
+####  星野航  
+##### 12358#       发表于 2022-8-15 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069765&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 10:04</a>
+虽然当年major冠军没有拿ti的，但是major亚军也没有拿ti的</blockquote>
+我刚想说液体，后来反应过来当年还是大major<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  米德  
+##### 12359#       发表于 2022-8-15 09:08
+
+发红包了 zfb口令：最伟大的亚军
+集美不准领
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yourSwaTer| + 1|老板大气，谢谢老板的办卡|
+| aa3413220| + 1|好评加鹅|
+| 12481632| + 1||
+| 逃离二次元| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Thio  
+##### 12360#       发表于 2022-8-15 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069667&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-15 08:58</a></blockquote>
+yatoro这身高真吃亏啊……
+
+
+
+*****
+
+####  正直的黄瓜  
+##### 12361#       发表于 2022-8-15 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069764&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 09:04</a>
+
+什么叫最后一次团战失误了，高地上不算团战是吧
+
+承认一下4个赵云其实是4个于禁也这么难？
+
+那先承认带的不 ...</blockquote>
+高地上就三个人了，怎么打？xinq的思路应该是想切后排的酱油，但是正面根本没打起来，所以看到的样子就是xinq一个人冲进人群了。当然输了就输了，没啥好说的，你现在看这些操作都是变形，头晕了的举动。
+
+你说的什么于禁，阿斗，庞德的梗我一个都不懂，要承认什么，我也不是lgd粉，我只是看了比赛发表一下观点而已，我只承认雪碧打得确实更好。
+
+*****
+
+####  Lamapocos  
+##### 12362#       发表于 2022-8-15 09:08
+
+连星期一上班的心情都舒爽了起来，老干瘪阿里嘎多
+
+*****
+
+####  ml1642879  
+##### 12363#       发表于 2022-8-15 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069848&amp;ptid=2084957" target="_blank">米德 发表于 2022-8-15 09:08</a>
+发红包了 zfb口令：最伟大的亚军
+集美不准领</blockquote>
+感谢老板的办卡
+
+*****
+
+####  迈达斯之手  
+##### 12364#       发表于 2022-8-15 09:09
+
+谢谢你雪碧
+
+*****
+
+####  沈淮  
+##### 12365#         楼主| 发表于 2022-8-15 09:09
+
+真视界第一部好像是TI6之后讲mushi踢队友的，拍了个视频4个人笑着队raven说，你被踢了
+
+*****
+
+####  HydraCat  
+##### 12366#       发表于 2022-8-15 09:09
+
+这场看得出来四个赵云也有点乱了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  希望之花  
+##### 12367#       发表于 2022-8-15 09:09
+
+ame虚空不晕人和ck不暴击，是不服0-8之神谕，惹怒了rng之神所致
+
+*****
+
+####  逃离二次元  
+##### 12368#       发表于 2022-8-15 09:09
+
+谢谢老板！
+
+*****
+
+####  Centrum  
+##### 12369#       发表于 2022-8-15 09:09
+
+恭喜雪碧！最好的ti冠军配上最好的真视界才是正道
+
+*****
+
+####  fopinecone  
+##### 12370#       发表于 2022-8-15 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069831&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 09:07</a>
+哪来的☁️，6没有真视界</blockquote>
+把追梦人记成真视界了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  沈淮  
+##### 12371#         楼主| 发表于 2022-8-15 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069848&amp;ptid=2084957" target="_blank">米德 发表于 2022-8-15 09:08</a>
+
+发红包了 zfb口令：最伟大的亚军
+
+集美不准领</blockquote>
+好快就没了
+
+*****
+
+####  我爱撩菜  
+##### 12372#       发表于 2022-8-15 09:10
+
+坐等本子吧。虽然奖金又不知道分给哪个队伍了。好歹冠军盾还是可以寄回自己家的。 
+
+*****
+
+####  银翼的维罗西  
+##### 12373#       发表于 2022-8-15 09:10
+
+感谢geigei再一次治愈了我的精神内耗，每当世界迈向失序与癫狂，geigei一定亲自拨乱反正，以身证道，将一切不合理归为合理，将一切混乱熨为守序，我以后再也不黑geigei了，他就是世间真理存在的神
+
