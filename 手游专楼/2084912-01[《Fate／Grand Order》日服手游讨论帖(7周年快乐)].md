@@ -13217,3 +13217,14 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 俺寻思一个单机游戏里出了个强力打手不是应该爽到吗，结果看到一堆人破防又是嫌太强又是嫌卡面丑，还喊着要 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">其他游戏我还见过人说这卡太强了。要削。影响后续出卡什么一大堆。所以这很正常
 
+
+
+*****
+
+####  白金口袋  
+##### 1241#       发表于 2022-8-15 11:54
+
+蘑菇为啥不能硬气点2.6就走玛修敌役路线，我举双手双脚支持
+
+本来第1部就该完美退场的角色硬是拖到第2部后段了还要继续拖<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

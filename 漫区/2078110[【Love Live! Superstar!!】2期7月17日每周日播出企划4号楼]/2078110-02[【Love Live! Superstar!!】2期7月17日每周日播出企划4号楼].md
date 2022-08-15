@@ -12346,3 +12346,46 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 最上面这是开始提纯了吧，花田属于刀架脖子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 2695#       发表于 2022-8-15 11:51
+
+ 本帖最后由 aoaoaodedede 于 2022-8-15 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072624&amp;ptid=2078110" target="_blank">反正我改名 发表于 2022-8-15 11:48</a>
+
+最上面这是开始提纯了吧，花田属于刀架脖子</blockquote>
+没事了
+
+*****
+
+####  starring  
+##### 2696#       发表于 2022-8-15 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072339&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 11:33</a>
+故意的，CEO说的山梨县的甲州弁，绘森彩也是山梨县出身，甲州弁被称为日本最难听的方言。
+很多日本人也听 ...</blockquote>
+不是声线的问题，就是那种故意在一句话中某几个词加重语气的说话方式，也有可能是上面楼友说的山梨县方言的缘故。但是三月的狮子里三木配的岛田偶尔说几句山梨县方言又不是那样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反正我改名  
+##### 2697#       发表于 2022-8-15 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072698&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-15 11:51</a>
+
+是说我吗，并没有</blockquote>
+说的是动画组最上面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 2698#       发表于 2022-8-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072728&amp;ptid=2078110" target="_blank">反正我改名 发表于 2022-8-15 11:52</a>
+
+说的是动画组最上面</blockquote>
+要说提纯，从加人那一刻开始不就已经是的了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

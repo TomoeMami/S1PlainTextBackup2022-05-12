@@ -7086,3 +7086,140 @@ xincutesama的黑粉已经癫了，令人感慨
 
 按说35冠军都拿过了什么荣誉都有了应该不至于有心态问题吧，也不知道怎么打成这个样子
 
+
+
+*****
+
+####  nightmare902015  
+##### 12811#       发表于 2022-8-15 11:50
+
+ame小娜迦分身冰眼之后选择龙心紫苑蝴蝶是有点难绷，什么年代了还在传统龙心蝴蝶，可能是太把局面优势当回事儿了。但凡出个a呢，这女王就会比较受限。
+的确不如g3直接选择辉耀去带线拖住的思路。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 12812#       发表于 2022-8-15 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人只要开过口，那味是根本藏不住的
+
+*****
+
+####  沈淮  
+##### 12813#         楼主| 发表于 2022-8-15 11:52
+
+你要是堂堂正正的摆明身份来还能跟你讨论两下子，比如前段时间的蝶舞xx。有些人又要装李忠克又要我不是我没有，你装啥装？
+
+*****
+
+####  acejoe  
+##### 12814#       发表于 2022-8-15 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072494&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 11:42</a>
+理性讨论，第二把小娜迦如果改个出装路线后期有没有救？</blockquote>
+不能，中期出山，大招和网配合啥呢？总不是光法球吧。
+对手也没有那种团战搅屎棍被你克。
+
+*****
+
+####  CNFH1984  
+##### 12815#       发表于 2022-8-15 11:52
+
+上截图！上截图 ！
+
+*****
+
+####  smlszh  
+##### 12816#       发表于 2022-8-15 11:53
+
+我觉得第二盘打到最后可能只有拉扯一波刷新双大控住对面然后让队友直接飞兵强拆了大圣大到后面正面实在是打不过了，光法输出有限，第二盘没抓住机会心态就崩了34盘纯白给
+
+*****
+
+####  adretyu67  
+##### 12817#       发表于 2022-8-15 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072668&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 11:50</a>
+
+ame小娜迦分身冰眼之后选择龙心紫苑蝴蝶是有点难绷，什么年代了还在传统龙心蝴蝶，可能是太把局面优势当回 ...</blockquote>
+这不是一直被锐评的定位吗。
+
+新时代的承伤型一号位打法
+
+*****
+
+####  格雷殿下  
+##### 12818#       发表于 2022-8-15 11:55
+
+<blockquote>acejoe 发表于 2022-8-15 11:52
+不能，中期出山，大招和网配合啥呢？总不是光法球吧。
+
+对手也没有那种团战搅屎棍被你克。 ...</blockquote>
+女王不是搅屎棍?小娜迦自己和分身不能上?电棍也不能上去输出?
+
+*****
+
+####  BallanceHZ  
+##### 12819#       发表于 2022-8-15 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072711&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 11:52</a>
+你要是堂堂正正的摆明身份来还能跟你讨论两下子，比如前段时间的蝶舞xx。有些人又要装李忠克又要我不是我没 ...</blockquote>
+你看，我前面说身份政治还被人喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+为啥总觉得一定得有个身份，我也不是很明白
+
+*****
+
+####  百世诸侯  
+##### 12820#       发表于 2022-8-15 11:55
+
+【杰出哥复盘LGD vs Spirit：分析第二局带线可行性，光法娜迦无敌带线方法；第一局Ame屠夫一百分；第四局BP二八开输在心态-哔哩哔哩】 https://b23.tv/L6CNHdC  来了来了
+
+*****
+
+####  adretyu67  
+##### 12821#       发表于 2022-8-15 11:56
+
+你让仙贝rat，他有那个脑子吗？？？？怕不是树林没藏好直接被逮捕。
+
+*****
+
+####  沈淮  
+##### 12822#         楼主| 发表于 2022-8-15 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072770&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-15 11:55</a>
+
+你看，我前面说身份政治还被人喷
+
+为啥总觉得一定得有个身份，我也不是很明白 ...</blockquote>
+你自己在这玩拉踩，然后装李忠克意思是别人说不得？
+
+*****
+
+####  Endle  
+##### 12823#       发表于 2022-8-15 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069978&amp;ptid=2084957" target="_blank">空寂冷 发表于 2022-8-15 09:16</a>
+lgd夺冠悖论，lgd为了造星和让集美高潮，决赛必须要选能让ame来C的阵容。但是lgd真正的能C的是二三，却在决 ...</blockquote>
+要不炒作一下明鞭，利用一下小翅膀的剩余价值？打假三真一的战术
+
+*****
+
+####  北欧王座  
+##### 12824#       发表于 2022-8-15 11:58
+
+处长越发的像个路人了，在场上艰难的挣扎，挥发自己残余的那点实力，但是存在感稀薄。当初那个默默地用扎实的臂膀死死拉住全队往前送的伟岸英雄（对面的），现在只不过是可有可无的配角。三年的巅峰演出可能再也见不到了。想到这里我就于心不忍wuwuwu，处长什么时候能再度归来，v社能不能改成c位版本，让那个男人再次站在全场的聚光灯下，反方向的波。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 12825#       发表于 2022-8-15 11:58
+
+naga怎么玩ti10总决g1不是教学局了吗，a畜学不会啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12826#       发表于 2022-8-15 11:59
+
+第二把是真好看，9个世界级的对决
+
