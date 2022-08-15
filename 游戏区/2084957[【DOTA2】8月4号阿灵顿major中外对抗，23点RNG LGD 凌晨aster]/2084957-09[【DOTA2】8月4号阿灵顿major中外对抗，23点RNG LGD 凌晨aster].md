@@ -9617,3 +9617,145 @@ s1mple秋季赛都不打了知道为什么吗
 
 ame四盘加起来输出勉强和丫头肉一场的持平，心态崩了，心态真是血崩了。
 
+
+
+*****
+
+####  CNFH1984  
+##### 13091#       发表于 2022-8-15 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076488&amp;ptid=2084957" target="_blank">woyzeck 发表于 2022-8-15 16:19</a>
+
+ame四盘加起来输出勉强和丫头肉一场的持平，心态崩了，心态真是血崩了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">阿斗怎么跟关羽比输出啊，漏油还是没有把握到问题的本质
+
+*****
+
+####  12481632  
+##### 13092#       发表于 2022-8-15 16:21
+
+还在扯心态的不就还是硬实力没输那一套么，问题是心态调整也是硬实力的一部分呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰烬白羽  
+##### 13093#       发表于 2022-8-15 16:21
+
+漏油还真是转进如风<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+我说找个心理咨询师不是因为三四盘集体尿裤的表现？ti上不也是这么尿的，说实话雪碧全体在线我觉得lgd没啥机会能再赢了，这也能觉得是甩锅我也无话可说了。心态不行赶紧找个心理咨询师不然完蛋了=缺少心理咨询师所以输了=给技不如人洗地是吧，莫须有的帽子少扣
+
+原来决赛第一把那屠夫算是心态崩了吗，后面几盘送的不比这把厉害多了，开团是**被丢上高地屠夫脑浆跟着上的吧，难得一把不靠四赵云凯的局，如果漏油一定要一次不死且超神那我无话可说，属实有点是睁眼说瞎话了
+
+嘴上说着不搞身份政治，前面来了个杀马的现在又搞集火，如果只会扣帽那就去调整
+
+*****
+
+####  qianoooo  
+##### 13094#       发表于 2022-8-15 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076301&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-15 16:06</a>
+
+为啥总那么执着于改地图，没啥意义啊，隔壁地图万年不变就几个机制改来改去都不见他们抱怨，这版本路人地图 ...</blockquote>
+夜宴6成胜率也算平衡么
+
+*****
+
+####  zsu222  
+##### 13095#       发表于 2022-8-15 16:23
+
+夜宴胜率高 是因为控肉山有优势？
+
+*****
+
+####  外挂全家脚气  
+##### 13096#       发表于 2022-8-15 16:23
+
+G1屠夫跳高想法应该是想救viper，只是各种原因没退出来
+
+*****
+
+####  何然  
+##### 13097#       发表于 2022-8-15 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076547&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-15 16:23</a>
+
+夜宴胜率高 是因为控肉山有优势？</blockquote>
+肉山+野区好堆好刷
+
+甚至从大野区跑另一边夜宴都比天辉舒服..
+
+*****
+
+####  rubicon  
+##### 13098#       发表于 2022-8-15 16:24
+
+第三把辉耀小娜迦光速GG有TI9影儿魔儿那味了
+
+*****
+
+####  战狼PTSD  
+##### 13099#       发表于 2022-8-15 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076524&amp;ptid=2084957" target="_blank">qianoooo 发表于 2022-8-15 16:21</a>
+
+夜宴6成胜率也算平衡么</blockquote>
+之前版本的地图更夸张，天辉胜率能上七成，现在已经是尽量平衡了，不存在胜率55开的版本，就算镜像地图的农药都没有，因为人眼视觉和习惯都偏向于左下角阵营操作
+
+*****
+
+####  walfeds  
+##### 13100#       发表于 2022-8-15 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076519&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-15 16:21</a>
+
+漏油还真是转进如风
+
+我说找个心理咨询师不是因为三四盘集体尿裤的表现？ti上不也是这么尿的，说实话 ...</blockquote>
+没指名道姓你是去年的假赛狗还蹬鼻子上脸了是吧，怎么好意思叫人去调整的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去年怎么不觉得就是世界dota水平不行在那抠细节呢，现在理由不好用了开始换心态了？
+
+*****
+
+####  沈淮  
+##### 13101#         楼主| 发表于 2022-8-15 16:26
+
+重点还是在肉山位置，那边打肉山有优势，那边地图就胜率高
+
+*****
+
+####  反方向的波  
+##### 13102#       发表于 2022-8-15 16:27
+
+去掉÷上不了bp的英雄也够多了，赏金和炸弹人在利雅得有上场，到major还是没了
+
+*****
+
+####  CNFH1984  
+##### 13103#       发表于 2022-8-15 16:27
+
+<img src="https://img.saraba1st.com/forum/202208/15/162738onnwozibu79n7cqb.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ2q-5gteZnT3cSu0-hz.jpg</strong> (97.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 16:27 上传
+
+什么情况，文丑心态崩了？
+
+*****
+
+####  zsu222  
+##### 13104#       发表于 2022-8-15 16:28
+
+文丑最后一盘土猫后半局失了智的操作，像极了红包神那年的三连送
+
+*****
+
+####  何然  
+##### 13105#       发表于 2022-8-15 16:29
+
+有没有可能Ti11也是你们争第二
+

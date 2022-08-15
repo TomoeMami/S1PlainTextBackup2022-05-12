@@ -12915,3 +12915,12 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 —— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 2748#       发表于 2022-8-15 16:26
+
+有人说像在国立新美术馆拍的，嗯？跟谁在约会呢？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
