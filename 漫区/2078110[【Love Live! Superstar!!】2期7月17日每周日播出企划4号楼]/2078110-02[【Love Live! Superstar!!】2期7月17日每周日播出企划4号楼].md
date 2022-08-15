@@ -13496,3 +13496,18 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 星团的歌还是不错的
 
+
+
+*****
+
+####  愛さ実  
+##### 2805#       发表于 2022-8-16 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082862&amp;ptid=2078110" target="_blank">YZY 发表于 2022-8-16 01:14</a>
+还是听听三四话最后的endless circuit吧楼友们
+
+星团的歌还是不错的</blockquote>
+liella之歌还行，oped不纯纯cylx吗？特别那op，サビ写的是真sabi了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
