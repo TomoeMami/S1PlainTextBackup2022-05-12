@@ -13038,3 +13038,23 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 鲤鱼估计心里也觉得不好受的吧，追梦进团，自己的角色却被塑造成这样，没公开骂娘就是遵守职业操守了。 ...</blockquote>
 公开骂娘那是工作不想要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒也扯不到操守，不好受归不好受，工作还得做，日子还得过嘛。
 
+
+
+*****
+
+####  优妮可  
+##### 2760#       发表于 2022-8-15 20:25
+
+才发现鱼的线下展和星的live撞了，她们早上还是下午啊，怕错过
+
+
+
+*****
+
+####  lj205  
+##### 2761#       发表于 2022-8-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079883&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-15 20:25</a>
+才发现鱼的线下展和星的live撞了，她们早上还是下午啊，怕错过</blockquote>
+接近中午
+

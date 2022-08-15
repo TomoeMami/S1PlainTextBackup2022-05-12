@@ -11923,3 +11923,91 @@ ana激凸草<img src="https://static.saraba1st.com/image/smiley/face2017/148.png
 杜鹏状态起伏的原因找到了
 野王打野不带他，被澳大利亚人打来吃了
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 13333#       发表于 2022-8-15 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079824&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-15 20:20</a>
+
+最近两周工作上也是，我一个人带了个庞德一个于禁，两个废物阿斗新人，每天他们早早跑了，我一周五天有四天 ...</blockquote>
+收到了收到了 谢谢漏油
+
+*****
+
+####  adretyu67  
+##### 13334#       发表于 2022-8-15 20:23
+
+杜鹏这那是去打major，瞧这高兴的，不知道的还以为参加的是粉丝线下见面会啊
+
+*****
+
+####  百世诸侯  
+##### 13335#       发表于 2022-8-15 20:23
+
+谢谢你治好了我抢不到红包的精神内耗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 13336#       发表于 2022-8-15 20:25
+
+，
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  战狼PTSD  
+##### 13337#       发表于 2022-8-15 20:26
+
+雪碧就赢了三把，你怎么领了4瓶雪碧，匀一瓶给我喝喝
+
+看刀圈合影还是挺有意思的，好久没线下了
+
+*****
+
+####  zkc1991  
+##### 13338#       发表于 2022-8-15 20:26
+
+漏油的红包治好了我的精神内耗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 13339#       发表于 2022-8-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079773&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 20:15</a>
+
+很奇怪，在茶队人的脸上，居然能看出些许青春的笑容来，这样的笑容在老干瘪上面是很少见了…… ...</blockquote>
+茶队自己内部都拿野王外号搞boboka的。
+
+可能气氛就是要放松些吧。
+
+*****
+
+####  朝游北海  
+##### 13340#       发表于 2022-8-15 20:28
+
+<blockquote>没钱买手办 发表于 2022-8-15 20:20
+最近两周工作上也是，我一个人带了个庞德一个于禁，两个废物阿斗新人，每天他们早早跑了，我一周五天有四天 ...</blockquote>
+谢谢漏油，这就下楼买雪碧
+
+*****
+
+####  百世诸侯  
+##### 13341#       发表于 2022-8-15 20:28
+
+ana真的对鹏子激凸了，哈人
+
+*****
+
+####  yasukihalo  
+##### 13342#       发表于 2022-8-15 20:29
+
+感谢漏油
+
