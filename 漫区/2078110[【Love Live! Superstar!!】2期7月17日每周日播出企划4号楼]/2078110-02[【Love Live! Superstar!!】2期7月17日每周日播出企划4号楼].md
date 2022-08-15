@@ -12153,3 +12153,28 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 显然是家里明显地穷啊，跟杂志访谈和三四集镜头都对得上。本集开头就有一个镜头是CEO的腰闪了，因为上一 ...</blockquote>
 杂志访谈？哪个杂志，我去看看
 
+
+
+*****
+
+####  lj205  
+##### 2675#       发表于 2022-8-15 10:03
+
+最有钱和最贫穷这种cp也蛮经典的嗷<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 2676#       发表于 2022-8-15 10:07
+
+对这质量的动画还这么纠结简直是浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">好险这周末忙这集没看，有兴致再补吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 2677#       发表于 2022-8-15 10:11
+
+下周去鱼的线下展，开心一下
+

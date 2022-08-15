@@ -13123,3 +13123,36 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068669&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 07:22</a></blockquote>
 等过两天RBA出来估计又要重画了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1232#       发表于 2022-8-15 10:05
+
+俺寻思一个单机游戏里出了个强力打手不是应该爽到吗，结果看到一堆人破防又是嫌太强又是嫌卡面丑，还喊着要削的，还是吃太饱了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1233#       发表于 2022-8-15 10:06
+
+公主真是个好发动机
+公主+伊吹+c呆也挺快乐的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1234#       发表于 2022-8-15 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070820&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-15 10:05</a>
+俺寻思一个单机游戏里出了个强力打手不是应该爽到吗，结果看到一堆人破防又是嫌太强又是嫌卡面丑，还喊着要 ...</blockquote>
+慕强大过厨力就是这样的啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正国内玩家总有一种莫名其妙的，缺了xx卡我就不能玩这个游戏了的迷之焦虑，没救的
+
+那不就只能烧香拜佛期待自己喜欢的牛逼到爆炸，不然怎么证明自己不是慕强
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4764,3 +4764,188 @@ rng加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 好呀好呀一上午一个红包没抢到，连抢红包bo5都打不过漏油
 
+
+
+*****
+
+####  百世诸侯  
+##### 12558#       发表于 2022-8-15 10:00
+
+草，鹏子给杰畜刷火箭了
+
+*****
+
+####  ml1642879  
+##### 12559#       发表于 2022-8-15 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070591&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 09:51</a>
+dota2抄csgo的瑞士论单败就是傻逼赛制没啥好说的，第一次瑞士论的波士顿major我就说过了。
+
+那时候好像是为 ...</blockquote>
+又看了一眼boston major，这是gsl赛制，星际那边用的
+
+*****
+
+####  haruhiismer  
+##### 12560#       发表于 2022-8-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070625&amp;ptid=2084957" target="_blank">笑颜最美谢蕾蕾 发表于 2022-8-15 09:54</a>
+我前天还在犹疑如果周末曼联输了LGD也输了，我周一会高兴还是不爽
+
+现在结果很明显了，我好爽啊 ...</blockquote>
+曼联输了会伤心吗，直接挤破会议室滕嗨刷起来
+
+*****
+
+####  何然  
+##### 12561#       发表于 2022-8-15 10:02
+
+说来G4还是罕见的天辉赢了
+
+前面两把没认真看，决赛应该是天辉2胜？
+
+*****
+
+####  夏溪澪mio  
+##### 12562#       发表于 2022-8-15 10:02
+
+其实可以出一个测试地图给玩家玩啊，平衡好了再比赛用。
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甩不出去的黄牌  
+##### 12563#       发表于 2022-8-15 10:02
+
+上半夜dpg大战凯子，下半夜major决赛，充实的一晚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 12564#       发表于 2022-8-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070775&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-15 10:02</a>
+其实可以出一个测试地图给玩家玩啊，平衡好了再比赛用。
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next- ...</blockquote>
+职业平衡和天梯两码事，甚至天辉胜率更高
+
+*****
+
+####  沈淮  
+##### 12565#         楼主| 发表于 2022-8-15 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070775&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-15 10:02</a>
+
+其实可以出一个测试地图给玩家玩啊，平衡好了再比赛用。
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next- ...</blockquote>
+你猜一猜dota2 beta上次更新是几几年
+
+*****
+
+####  ml1642879  
+##### 12566#       发表于 2022-8-15 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070775&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-15 10:02</a>
+其实可以出一个测试地图给玩家玩啊，平衡好了再比赛用。
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next- ...</blockquote>
+再出个模式对天梯进行分流就真排不到人了
+
+*****
+
+####  一品堂官  
+##### 12567#       发表于 2022-8-15 10:05
+
+他妈的 火箭收麻了
+
+*****
+
+####  漂灵  
+##### 12568#       发表于 2022-8-15 10:06
+
+前天预测全错，昨天预测全对。lgd想打雪碧可以，把处长踢了，在xinq手发抖的时候给他一个能carry的大哥就行。    本小尿布支持rng，你们可以打我了。
+
+*****
+
+####  漂灵  
+##### 12569#       发表于 2022-8-15 10:06
+
+前天预测全错，昨天预测全对。lgd想打雪碧可以，把处长踢了，在xinq手发抖的时候给他一个能carry的大哥就行。    本小尿布支持rng，你们可以打我了。
+
+*****
+
+####  syndrome2032  
+##### 12570#       发表于 2022-8-15 10:06
+
+杰畜这波赢麻了?喝完水再吃一波a黑的?
+
+
+
+*****
+
+####  何然  
+##### 12571#       发表于 2022-8-15 10:06
+
+说来这周末回春打了10把定级赛，去年定级从4500打到3500级，今年从3500打到3100<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这游戏好难玩啊！
+
+话说最近感觉国服水平还不如东南亚了...
+
+*****
+
+####  沈淮  
+##### 12572#         楼主| 发表于 2022-8-15 10:07
+
+国服水平不是都不如东南亚都很久了吧
+
+*****
+
+####  nowaki  
+##### 12573#       发表于 2022-8-15 10:07
+
+集美又不看杰畜的，这时候忙着抱团发泄呢
+
+等她们发现杰畜说萧瑟犯病，就要来清算了。
+
+*****
+
+####  百世诸侯  
+##### 12574#       发表于 2022-8-15 10:08
+
+<img src="https://img.saraba1st.com/forum/202208/15/100817qo5chmh4hvao5an3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:08 上传
+
+意思是皮套人直接一个缩地
+
+*****
+
+####  何然  
+##### 12575#       发表于 2022-8-15 10:08
+
+以前3-4000分段东南亚比国服菜啊
+
+或者说以前这个分段国服捕鱼的太多了？
+
+*****
+
+####  nowaki  
+##### 12576#       发表于 2022-8-15 10:09
+
+阿梓连送a畜尿最后一下都做不到，很怀疑50年后a畜会被拔氧气管
+
+*****
+
+####  ml1642879  
+##### 12577#       发表于 2022-8-15 10:09
+
+越看越怪，16波士顿major是gsl小组赛，17基辅major是残疾版瑞士轮，18布加勒斯特major是完全体瑞士轮，只有这三个比赛是单败淘汰赛，除开这三个的所有major都是双败淘汰赛
+
