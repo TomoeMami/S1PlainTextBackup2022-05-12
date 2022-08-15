@@ -12087,3 +12087,15 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 可可给人观感想扭好其实不难，技巧很单纯直接——吃瘪。性格强势到引发争议的角色，让ta吃瘪就能改善观感， ...</blockquote>
 京吹的是吉川优子，吉田优子是夏美子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2669#       发表于 2022-8-15 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068554&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-15 07:05</a>
+
+这话怎么这么多可推炸了我不理解，不过我想拜访下恋推，你们对恋沉迷游戏机那段怎么看，有人说这是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">红毛一个咋咋乎乎的性格不也能弹钢琴吗，叠BUFF的事不要太在意人设
+

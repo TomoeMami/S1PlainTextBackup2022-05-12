@@ -13082,3 +13082,23 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 2022-8-15 07:22 上传
 
+
+
+*****
+
+####  kuarwbwe  
+##### 1228#       发表于 2022-8-15 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068669&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 07:22</a></blockquote>
+这图还进化了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1229#       发表于 2022-8-15 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068908&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2022-8-15 08:01</a>
+
+这图还进化了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 贴吧2.0版本
+
