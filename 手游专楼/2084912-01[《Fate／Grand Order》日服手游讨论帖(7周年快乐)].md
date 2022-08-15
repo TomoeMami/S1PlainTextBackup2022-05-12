@@ -13459,3 +13459,51 @@ https://card.weibo.com/article/m ...</blockquote>
  ...</blockquote>
 你是不是写反了，难道不是瑜不掩瑕233
 
+
+
+*****
+
+####  qixinno2  
+##### 1260#       发表于 2022-8-15 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075860&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 15:34</a>
+
+什么叫这德行 隔壁不是大受好评吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为普通人我只能得出这德行的结论
+
+
+
+*****
+
+####  qixinno2  
+##### 1261#       发表于 2022-8-15 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075975&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 15:42</a>
+
+现在2.6已经定调是瑕不掩瑜，连虎头蛇尾都不算
+
+你乱讲是要被挂路灯的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我也不在隔壁混
+
+*****
+
+####  alucardcz  
+##### 1262#       发表于 2022-8-15 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076282&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 16:04</a>
+
+反正我也不在隔壁混</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不重要 反正隔壁有人天天监视着这楼 说不准哪天就被吊路灯了
+
+*****
+
+####  qixinno2  
+##### 1263#       发表于 2022-8-15 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076306&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 16:07</a>
+
+不重要 反正隔壁有人天天监视着这楼 说不准哪天就被吊路灯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吊呗 有本事顺网线过来打我啊 再说吊也是知名人士 像我这种路人甲ID默认头像的杂鱼 也没人会吊
+

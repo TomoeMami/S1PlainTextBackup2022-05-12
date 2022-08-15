@@ -12893,3 +12893,25 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 可以外出看来已经恢复到差不多9成了，主要还是筋骨问题，刚复工那会说走几步就疼，这种情况也不知道能不能练舞
 
+
+
+*****
+
+####  优妮可  
+##### 2746#       发表于 2022-8-15 16:04
+
+<blockquote>仟音一心 发表于 2022-8-15 15:49
+前面说了，小百合从宣布确诊到活动再开只过了8天，感觉像被催着上班一样。 ...</blockquote>
+之前看报道说就算康复了体内还是会残留一些病毒的
+
+*****
+
+####  普之舜舜  
+##### 2747#       发表于 2022-8-15 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075908&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 15:37</a>
+#Liyuu[超话]# 好久没出门逛逛啦！</blockquote>
+好可爱呀
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

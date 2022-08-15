@@ -9464,3 +9464,69 @@ wings散伙绝对不是ace的问题
 杰出真的csdx啊 第一把萧瑟满分，第二把nts不出魔晶大锅，萧瑟切入完美 第三把bp问题，第四把量子鞭思想出 ...</blockquote>
 杰出就是舔最狂热的那群粉丝啊，吃这碗饭很正常吧
 
+
+
+*****
+
+####  zsu222  
+##### 13073#       发表于 2022-8-15 16:03
+
+虽说有点车轱辘，不过我觉得god ti9那个中路tp送拉比克属于是黑历史了
+
+*****
+
+####  外挂全家脚气  
+##### 13074#       发表于 2022-8-15 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072502&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 11:42</a>
+这楼里的真集美还得是昨晚那个第一把结束问四赵云去哪儿了的，很有A畜等四个爹带躺结果带躺失败还反咬一口 ...</blockquote>
+我一直在楼内发的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 13075#       发表于 2022-8-15 16:06
+
+为啥总那么执着于改地图，没啥意义啊，隔壁地图万年不变就几个机制改来改去都不见他们抱怨，这版本路人地图算是比较平衡的一次了
+
+就等新英雄新道具新机制了
+
+*****
+
+####  战狼PTSD  
+##### 13076#       发表于 2022-8-15 16:08
+
+[https://ngabbs.com/read.php?tid=33082666](https://ngabbs.com/read.php?tid=33082666)
+
+经典弱智谣言，风暴英雄团队负责DOTA平衡
+
+6.X版本遗老拉的屎没想到这么多人到现在都能反复咀嚼
+
+*****
+
+####  cwlqxs  
+##### 13077#       发表于 2022-8-15 16:08
+
+凭什么夜宴就可以平a堆两波天辉就不行来自: iPhone客户端
+
+*****
+
+####  遍体精淋af  
+##### 13078#       发表于 2022-8-15 16:08
+
+感觉可以集体加强一波一号位了，这个版本的一号位说实在都有点一言难尽，尤其是依赖野区发育的大哥
+
+*****
+
+####  Aeons  
+##### 13079#       发表于 2022-8-15 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">假赛狗家里人四万了，看个轨迹贴吧都有人说里面的赌博环节暗示dota2假赛，日本人看**dota2。
+
+*****
+
+####  遍体精淋af  
+##### 13080#       发表于 2022-8-15 16:09
+
+小黑整个major好像都没人用过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
