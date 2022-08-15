@@ -10200,3 +10200,82 @@ sccc的军事化也算拧绳了。
 
 变成csgo   那就是满屏幕的荣！了  大伙儿也其乐融融
 
+
+
+*****
+
+####  百世诸侯  
+##### 13155#       发表于 2022-8-15 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">有没有西雅图前十透露一下什么时候本子和新版本
+
+*****
+
+####  adretyu67  
+##### 13156#       发表于 2022-8-15 17:11
+
+冷锋不就是合同到期没续从茶离队，eh把lgd不要的人集体下放，缺个c抓了军体拳顶缸。
+
+冷锋好歹创作了之前的茶队历史最好成绩minor冠军，虽然也就一个major入场券。。
+
+感觉还是不如后来的茶队
+
+*****
+
+####  a1370303  
+##### 13157#       发表于 2022-8-15 17:13
+
+上帝只想和樱花兄弟一起打gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  方舟失智博士  
+##### 13158#       发表于 2022-8-15 17:15
+
+胖头鱼还是有意思和弹幕说 这个MAJOR亚军放在往年就是TI亚军又是经典亚军 但今年时间线变了  8月是MAJOR TI是10月 时间线变了 一切也就变了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 13159#       发表于 2022-8-15 17:15
+
+盒中盒消息，周五大行动
+
+*****
+
+####  白色的120  
+##### 13160#       发表于 2022-8-15 17:15
+
+乐，胜率冠军
+<img src="https://p.sda1.dev/6/61ab596720746cbe0bb662da95e2ac24/11_10000_10000.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 13161#       发表于 2022-8-15 17:16
+
+按胜率newbee的盾是不是没了
+
+*****
+
+####  nightmare902015  
+##### 13162#       发表于 2022-8-15 17:17
+
+看胜率那不就是“你赢赢赢，最后只会输光光”吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 13163#       发表于 2022-8-15 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">71胜还不是总亚军吗
+
+*****
+
+####  adretyu67  
+##### 13164#       发表于 2022-8-15 17:19
+
+赛程针对，应该打单败赛制
+

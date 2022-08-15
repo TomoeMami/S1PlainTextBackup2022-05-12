@@ -13590,3 +13590,167 @@ rba更新了 绿拐
 
 我看这绿卡是不是已经被放弃了？
 
+
+
+*****
+
+####  exiaexa  
+##### 1272#       发表于 2022-8-15 17:10
+
+ 本帖最后由 exiaexa 于 2022-8-15 17:12 编辑 
+
+试玩关
+
+太公望+C呆+原版+自己全buff堆上去打了51NP
+
+我该说什么好，反正就是得换人是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1273#       发表于 2022-8-15 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077278&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:10</a>
+
+试玩关
+
+太公望+C呆+原版+自己全buff堆上去打了51NP
+
+我该说什么好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家就是个拐你为什么要用宝具呢.jpg
+
+*****
+
+####  exiaexa  
+##### 1274#       发表于 2022-8-15 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077315&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 17:12</a>
+
+人家就是个拐你为什么要用宝具呢.jpg</blockquote>
+主要是真的有病啊草
+
+他这个NP就意味着，用公主都没法不换人连发
+
+自己这么高额的buff全部浪费掉草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+1t 公主
+
+2t 自己20+50+公主30
+
+3t 原版给50，然后自己根本没本事打50np啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 1275#       发表于 2022-8-15 17:14
+
+能别在ex介卷了吗，到时候啥都借不到了
+
+*****
+
+####  alucardcz  
+##### 1276#       发表于 2022-8-15 17:14
+
+绿卡单核几乎没有区别  该寄还是寄
+
+大佬赶紧在多测测多核（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 1277#       发表于 2022-8-15 17:15
+
+真就只强了那么一点点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1278#       发表于 2022-8-15 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077350&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 17:14</a>
+
+绿卡单核几乎没有区别  该寄还是寄
+
+大佬赶紧在多测测多核（</blockquote>
+测个锤子，0NP率，没有群30，绿卡多核原地踏步
+
+她红buff全换成蓝的那倒是真能玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1279#       发表于 2022-8-15 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077342&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:14</a>
+
+主要是真的有病啊草
+
+他这个NP就意味着，用公主都没法不换人连发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多核不行 单核和cba区别不大 这不就是。。。寄吗？
+
+*****
+
+####  angelooo  
+##### 1280#       发表于 2022-8-15 17:17
+
+那么rba和蓝莓哪个更强一点？
+
+*****
+
+####  khxooo  
+##### 1281#       发表于 2022-8-15 17:18
+
+利好项羽？
+
+*****
+
+####  alucardcz  
+##### 1282#       发表于 2022-8-15 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077396&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-15 17:17</a>
+
+那么rba和蓝莓哪个更强一点？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是rba吧 至少可以暴了cba（
+
+*****
+
+####  exiaexa  
+##### 1283#       发表于 2022-8-15 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077396&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-15 17:17</a>
+
+那么rba和蓝莓哪个更强一点？</blockquote>
+我个人觉得旧梅更烂一点，她这个设计和NP回收完全是以你开高宝宝具来设计的
+
+纯粹的恶心人设计，
+
+斯卡蒂这个本质还是绿卡太烂了，然后没给到点上
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1284#       发表于 2022-8-15 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">应该还是rba吧
+
+*****
+
+####  qb0079  
+##### 1285#       发表于 2022-8-15 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这技能也太搞了吧，没np率，没群充，魔放和爆伤还不匹配的，感觉没救啊
+
+*****
+
+####  angelooo  
+##### 1286#       发表于 2022-8-15 17:20
+
+<blockquote>alucardcz 发表于 2022-8-15 17:18
+那还是rba吧 至少可以暴了cba（</blockquote>
+那没事了，她的立绘目前来说也爆了原版的，等池子开了
+
