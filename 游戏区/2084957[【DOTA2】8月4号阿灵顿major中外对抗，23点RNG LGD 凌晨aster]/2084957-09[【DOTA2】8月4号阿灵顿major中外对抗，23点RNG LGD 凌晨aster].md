@@ -13430,3 +13430,14 @@ V社只能说私人企业说话是真的硬气
 不就只剩文丑胖子、邪 ...</blockquote><blockquote>此时等待下一波兵线时LGD经济领先达到28k，排除阵容劣势，正面摆开未必不能打。</blockquote>
 主要他还真打开客户端去复盘分析<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 13480#       发表于 2022-8-16 00:23
+
+漏油住楼里了是吧，一个红包没抢到
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
