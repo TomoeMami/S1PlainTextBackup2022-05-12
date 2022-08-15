@@ -13925,3 +13925,56 @@ RBA还挺...普通的，红绿双拐，爆杀刑部姬（？）。
 也就是说你要么带宝石要么带公主+换人
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 1299#       发表于 2022-8-15 17:32
+
+突然感觉这夏活是把梅林给分尸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1300#       发表于 2022-8-15 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这宝具啥玩意 就升空变下海 落城边肥鱼么
+
+*****
+
+####  quanlix  
+##### 1301#       发表于 2022-8-15 17:36
+
+这是明着告诉玩家官方放弃绿卡了吧
+
+*****
+
+####  霧谷藤乃  
+##### 1302#       发表于 2022-8-15 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么南丁出场次数这么多，为什么南丁画风这么奇特，真的是绷不住啊
+
+*****
+
+####  angelooo  
+##### 1303#       发表于 2022-8-15 17:37
+
+<blockquote>exiaexa 发表于 2022-8-15 17:23
+现在最佳出路是去给竞速组当玩具
+
+这个红爆、红集星中和出星那是真的行
+
+</blockquote>
+说明梅林没救了，抬走吧
+
+*****
+
+####  仰望神的括约肌  
+##### 1304#       发表于 2022-8-15 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077622&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:29</a>
+
+解决不了初动问题啊</blockquote>
+感觉就没打算当新生代绿拐设计 就是出了个需要丢石头的强化本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

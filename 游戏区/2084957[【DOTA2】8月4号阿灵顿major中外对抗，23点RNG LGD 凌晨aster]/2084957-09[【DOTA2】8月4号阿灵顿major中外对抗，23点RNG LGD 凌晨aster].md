@@ -10430,3 +10430,114 @@ bo7是吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">我现在还不敢看回放呢
 
+
+
+*****
+
+####  aruruu  
+##### 13182#       发表于 2022-8-15 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077630&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-15 17:30</a>
+我现在还不敢看回放呢</blockquote>
+多看几遍，找不同的视角看，能有效治疗精神内耗
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 13183#         楼主| 发表于 2022-8-15 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077606&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 17:28</a>
+
+出大事了，v社官网把vp的直邀偷了送给fnc了</blockquote>
+怎么又少了1.5分
+
+*****
+
+####  莉拉厨  
+##### 13184#       发表于 2022-8-15 17:34
+
+昨晚睡了四个小时，到现在都不困
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 13185#       发表于 2022-8-15 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077680&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 17:33</a>
+怎么又少了1.5分</blockquote>
+<img src="https://p.sda1.dev/6/7d79689606630519d33743d22db124f8/CMP_20220815173454524.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 13186#       发表于 2022-8-15 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077606&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 17:28</a>
+
+出大事了，v社官网把vp的直邀偷了送给fnc了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好呀好呀赖皮社，不装了是吧
+
+*****
+
+####  百世诸侯  
+##### 13187#       发表于 2022-8-15 17:36
+
+去年TS赛前PIT亚军就已经很有实力了啊，animajor也是7-8名的水平，硬要说就是本来选手硬实力就强，和强队训练赛打多了就自动变牛逼了
+
+*****
+
+####  adretyu67  
+##### 13188#       发表于 2022-8-15 17:36
+
+四舍五入引发的惨案
+
+*****
+
+####  何然  
+##### 13189#       发表于 2022-8-15 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077575&amp;ptid=2084957" target="_blank">蛋炒蜂窝煤 发表于 2022-8-15 17:27</a>
+
+怎么都这么激动的，看来我还是粉得不够多，没被破防。
+
+复盘了第一第二把感觉没啥好黑的，水平确实顶 ...</blockquote>
+有没有可能是因为平时成绩作假
+
+*****
+
+####  是挞不是派  
+##### 13190#       发表于 2022-8-15 17:38
+
+加油，lgd再送个二冠吧
+这样也算传奇了
+
+*****
+
+####  何然  
+##### 13191#       发表于 2022-8-15 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077600&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 17:28</a>
+
+傻狗们说去年lgd就是和雪碧练多了结果到决赛bo5开雾习惯和视野被人爆中爆了究竟真的假的啊。 ...</blockquote>
+那为什么你没有去爆人家呢
+
+*****
+
+####  莉拉厨  
+##### 13192#       发表于 2022-8-15 17:38
+
+给东南雅主场多混了一个名额啊，md
+
+*****
+
+####  nowaki  
+##### 13193#       发表于 2022-8-15 17:38
+
+看a畜第一视角可太解压了，建议漏油把四把都看一遍。
+
+讲真的，a畜现在做直播，什么谢彬老陈这种搞笑主播就没饭吃了好吧，他太懂直播效果了。什么小娜迦边缘ob，屠夫跳高送，ck不开bkb切斧王，一人一刀众生平等，实在是过于欢乐。
+
