@@ -11466,3 +11466,98 @@ zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
 
 @？@是哪个，好几个手气最佳了，开挂是吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">严查
 
+
+
+*****
+
+####  百世诸侯  
+##### 13287#       发表于 2022-8-15 19:12
+
+哦牛批，红包G6，一把没赢过，玉玉了，缩壳缩壳
+
+*****
+
+####  反方向的波  
+##### 13288#       发表于 2022-8-15 19:12
+
+#马云吃了
+
+*****
+
+####  哈萨维·诺亚  
+##### 13289#       发表于 2022-8-15 19:12
+
+都卜上班是吧，上班摸鱼偷看看一个红包没一个<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 13290#       发表于 2022-8-15 19:14
+
+漏友太快了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  你可以试试  
+##### 13291#       发表于 2022-8-15 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">刚刚回顾a/先手斧王去了没抢到
+
+*****
+
+####  阿垃垃圾历  
+##### 13292#       发表于 2022-8-15 19:14
+
+动作也太快了吧
+
+*****
+
+####  marquez  
+##### 13293#       发表于 2022-8-15 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078482&amp;ptid=2084957" target="_blank">johnwick 发表于 2022-8-15 18:31</a>
+
+怪</blockquote>
+我看了一下好像官网在每次换人扣分-15%的时候是向下取整的，liquipedia会保留小数。
+
+*****
+
+####  百世诸侯  
+##### 13294#       发表于 2022-8-15 19:15
+
+再别说了，我早上看到一个红包，从发帖到我拿起手机输入口令最多40秒就没了，你们手速这么快不去打职业举盾跑来抢红包玩？
+
+*****
+
+####  沈淮  
+##### 13295#         楼主| 发表于 2022-8-15 19:15
+
+晚上回去买瓶雪碧<img src="https://p.sda1.dev/6/1601f03b675e8586cbcababbdccae6cc/CMP_20220815191454225.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 13296#       发表于 2022-8-15 19:15
+
+铨 手气最佳
+
+阿铨进来一下，马来西亚网速也这么快的吗
+
+*****
+
+####  百世诸侯  
+##### 13297#       发表于 2022-8-15 19:16
+
+雪碧就赢了三把，你怎么领了4瓶雪碧，匀一瓶给我喝喝
+
+*****
+
+####  两三流浪者  
+##### 13298#       发表于 2022-8-15 19:16
+
+处长可千万别退役，没了a畜我看比赛的乐趣都要少一半
+

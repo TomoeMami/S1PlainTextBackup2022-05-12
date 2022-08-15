@@ -14614,3 +14614,52 @@ FaMV4mGaUAA3AQ2.jpg
 毕竟有新的换人服 不用岂不可惜</blockquote>
 之前不是说用新的换人服的换人就输了吗233
 
+
+
+*****
+
+####  alucardcz  
+##### 1369#       发表于 2022-8-15 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078958&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 19:09</a>
+
+毕竟有新的换人服 不用岂不可惜</blockquote>
+他们可不是这么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1370#       发表于 2022-8-15 19:13
+
+有功夫吹换人服不如给水魔总还有夏露露开香槟
+
+这俩现在只要对面是33x，已经可以用04服稳定6加成冲浪了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1371#       发表于 2022-8-15 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079018&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 19:13</a>
+
+有功夫吹换人服不如给水魔总还有夏露露开香槟
+
+这俩现在只要对面是33x，已经可以用04服稳定6加成冲浪了
+
+[f:0 ...</blockquote>
+33x不就是阳间本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1372#       发表于 2022-8-15 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079052&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 19:15</a>
+
+33x不就是阳间本吗</blockquote>
+好歹是历史性的稳定不换人6加成了
+
+以前得看对面的脸色
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
