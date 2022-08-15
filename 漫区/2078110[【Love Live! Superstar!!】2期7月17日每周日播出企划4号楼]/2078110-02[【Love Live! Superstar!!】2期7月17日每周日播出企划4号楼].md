@@ -13237,3 +13237,27 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 香音这合同。。。。卖的够彻底
 
+
+
+*****
+
+####  iuhehc  
+##### 2779#       发表于 2022-8-15 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081192&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 22:15</a></blockquote>
+这是？给品牌做模特？还是？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  老1.5  
+##### 2780#       发表于 2022-8-15 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081323&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-8-15 22:27</a>
+
+这是？给品牌做模特？还是？
+
+—— 来自 S1Fun</blockquote>
+19年的老物件了
+
