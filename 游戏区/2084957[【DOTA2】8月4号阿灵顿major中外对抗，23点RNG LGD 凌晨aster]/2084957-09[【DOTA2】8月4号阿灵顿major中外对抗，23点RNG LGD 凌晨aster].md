@@ -1331,3 +1331,688 @@ LGD是硬实力冠军
 
 之前打得好好的，突然就没纪律性了，就开始冲，冲得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  掉头学姐  
+##### 12177#       发表于 2022-8-15 08:40
+
+恭喜ts
+
+*****
+
+####  lmslardar  
+##### 12178#       发表于 2022-8-15 08:40
+
+今天品味nga人破防瞬间不好吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sodah  
+##### 12179#       发表于 2022-8-15 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看隔壁集美们的嘴还很硬嘛。
+
+*****
+
+####  反方向的波  
+##### 12180#       发表于 2022-8-15 08:40
+
+我看到现场的克格勃了，妮们呢
+
+
+
+*****
+
+####  逃离二次元  
+##### 12181#       发表于 2022-8-15 08:41
+
+赞美dota之神
+
+*****
+
+####  thistimeforlife  
+##### 12182#       发表于 2022-8-15 08:41
+
+恭喜处长 恭喜处长 恭喜处长
+
+*****
+
+####  tohellwithit  
+##### 12183#       发表于 2022-8-15 08:41
+
+<img src="https://img.saraba1st.com/forum/202208/15/084058h9jgj94je494opb7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220815_013909.jpg</strong> (141.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 08:40 上传
+
+怎么有脸说出这种话的？
+
+*****
+
+####  Philister  
+##### 12184#       发表于 2022-8-15 08:41
+
+缩壳结束！今天早醒看比赛是有原因的啊
+
+*****
+
+####  syndrome2032  
+##### 12185#       发表于 2022-8-15 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069273&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-15 08:36</a>
+逆版本斧王把你锤爆了。</blockquote>
+不知道量子鞭看到那个斧王会不会想起六年前的自己
+
+*****
+
+####  沈淮  
+##### 12186#         楼主| 发表于 2022-8-15 08:41
+
+日，地铁坐过站了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|绷不住了|
+
+查看全部评分
+
+*****
+
+####  zhdmm  
+##### 12187#       发表于 2022-8-15 08:41
+
+卧槽，雪碧牛逼
+
+*****
+
+####  12481632  
+##### 12188#       发表于 2022-8-15 08:41
+
+清算，都可以清算
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  SorroFrost  
+##### 12189#       发表于 2022-8-15 08:41
+
+一早上起来就看乐子
+
+*****
+
+####  白野苍衣  
+##### 12190#       发表于 2022-8-15 08:41
+
+顺风输出一下，我早就看出来王处和RTZ一样是扶不起来的阿斗了！
+
+*****
+
+####  JoelBirch  
+##### 12191#       发表于 2022-8-15 08:41
+
+哇雪碧牛批
+
+*****
+
+####  Buttercry  
+##### 12192#       发表于 2022-8-15 08:41
+
+心态太差了，任何实力相近的队伍都能在bo5中随便赢lgd
+
+*****
+
+####  雨中曲  
+##### 12193#       发表于 2022-8-15 08:41
+
+舒服到Ti前，没有A/乐子，生活好无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 12194#       发表于 2022-8-15 08:41
+
+最爽的就是看到四赵云跟着一起尿了，最顶的反而是东南亚人，我还真以为四赵云不当人了呢，这不还是有痿的时候<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/15/084151k1mkxxmghfmjxkck.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 08:41 上传
+
+*****
+
+####  qty  
+##### 12195#       发表于 2022-8-15 08:41
+
+Ame真是活该，这么多年还是一成不变的关键时刻犯病，就这操行打到退役也是个亚军
+
+*****
+
+####  北条早苗  
+##### 12196#       发表于 2022-8-15 08:41
+
+希望东京哥到了ti还能继续保持樱花模式<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RGm  
+##### 12197#       发表于 2022-8-15 08:42
+
+拿过major冠军都没赢ti，干瘪这是以小博大好吧。ti稳了。
+
+*****
+
+####  lyjssj  
+##### 12198#       发表于 2022-8-15 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069366&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-15 08:40</a>
+
+我看隔壁集美们的嘴还很硬嘛。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有第二个中国队把lgd踩死他们才能完全闭嘴 没办法
+
+今年还是指望下鳖星吧
+
+*****
+
+####  Asukalangley33  
+##### 12199#       发表于 2022-8-15 08:42
+
+FBI拿枪指头，面8眼角有泪好吧
+
+雪碧的人多少和海湖庄园的主人有点关系<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12200#       发表于 2022-8-15 08:42
+
+就这最后一把老干瘪的心态，一辈子都不配冠军，各种人不齐开团，处长各种无脑冲锋，还有文爱胖子高地上和最后一波的手贱滚，量子鞭神经病一样的反打。
+
+都充分证明了，这个队伍的心态和应变能力，就是有问题。
+
+4赵云其实也不是赵云，说穿了是4个于禁。
+
+感谢刀塔之神！
+
+*****
+
+####  天堂蜘蛛  
+##### 12201#       发表于 2022-8-15 08:42
+
+经典A畜不C怪英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 12202#       发表于 2022-8-15 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069273&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-15 08:36</a>
+
+逆版本斧王把你锤爆了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逆版本斧王，逆版本sven
+
+*****
+
+####  stefanie张  
+##### 12203#       发表于 2022-8-15 08:42
+
+赞美斧王
+
+*****
+
+####  AualloniaMK2  
+##### 12204#       发表于 2022-8-15 08:42
+
+lgd这队心态不行，万年老二了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 12205#       发表于 2022-8-15 08:42
+
+老东京这个bo5真的打出了老派中单的风骨，刷打结合，逆版本而行
+
+*****
+
+####  甩不出去的黄牌  
+##### 12206#       发表于 2022-8-15 08:42
+
+毛子在美国拿冠军感觉也很爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 12207#       发表于 2022-8-15 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">lgd house！
+
+*****
+
+####  遗尿  
+##### 12208#       发表于 2022-8-15 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069418&amp;ptid=2084957" target="_blank">甩不出去的黄牌 发表于 2022-8-15 08:42</a>
+
+毛子在美国拿冠军感觉也很爽</blockquote>
+有两个乌克兰人
+
+*****
+
+####  灰色的狐狸  
+##### 12209#       发表于 2022-8-15 08:43
+
+哈哈哈哈已经见到人说下面8又吃了
+
+因为这次比赛奖金少
+
+*****
+
+####  donny  
+##### 12210#       发表于 2022-8-15 08:43
+
+完了，363天的冠军了。
+
+
+
+*****
+
+####  Ronso  
+##### 12211#       发表于 2022-8-15 08:43
+
+舒服了，妈的看dota好久没今天这么开心了
+
+*****
+
+####  天堂蜘蛛  
+##### 12212#       发表于 2022-8-15 08:43
+
+确实，把把决胜局心态爆炸
+
+老干瘪今年冠军应该还是没戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 12213#       发表于 2022-8-15 08:43
+
+感谢崩溃哥和老东京，让一年365天多一天呼吸新鲜空气的机会~~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+随便逛一下，杰chu面如死灰，挺失望的2333
+
+*****
+
+####  TBBZZ  
+##### 12214#       发表于 2022-8-15 08:44
+
+🍾🍾🍾<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 12215#       发表于 2022-8-15 08:44
+
+<img src="https://p.sda1.dev/6/46e45b0f7663db334c3992880ad6e2c8/CMP_20220815084353540.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 12216#       发表于 2022-8-15 08:44
+
+杰畜面如死灰
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 12217#       发表于 2022-8-15 08:44
+
+懂了，大帝提出俄乌停战的条件是要求雪碧赢下这个major，lgd为了世界和平含泪输了！不丢人！
+
+*****
+
+####  pikamee  
+##### 12218#       发表于 2022-8-15 08:44
+
+杰畜哥要被假赛集美反噬咯
+
+*****
+
+####  外挂全家脚气  
+##### 12219#       发表于 2022-8-15 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069377&amp;ptid=2084957" target="_blank">tohellwithit 发表于 2022-8-15 08:41</a>
+怎么有脸说出这种话的？</blockquote>
+二把高地是y走前面排眼被秒然后被追死2个局势就变了的啊
+
+*****
+
+####  我爱撩菜  
+##### 12220#       发表于 2022-8-15 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的决赛尿这种特性能不能改一下啊，
+
+电棍刷新这板斧被刃甲刷新斧王玩弄了。
+
+好好研究下眼位，对面这守眼打就不能急。可惜可惜了。
+
+所以就是2个版本的最终之战都被干爆了。都是几乎赢了一整个赛季<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 12221#       发表于 2022-8-15 08:45
+
+杰畜还吃不吃今天这波流量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  万世创伤伊莫库  
+##### 12222#       发表于 2022-8-15 08:45
+
+接下来是不是没比赛了？鉴于楼友们天天搬屎的行为，我先润了
+
+*****
+
+####  ESAKA!!!!  
+##### 12223#       发表于 2022-8-15 08:45
+
+<img src="https://img.saraba1st.com/forum/202208/15/084503kjn1ru1ee1nk87wp.png" referrerpolicy="no-referrer">
+
+<strong>{WF]C2_FKWRY)07Y$W%~EXP.png</strong> (65.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 08:45 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/084506ib05z23l05p0ple3.png" referrerpolicy="no-referrer">
+
+<strong>{%CSY%N8NNK4`ZOUVKHJ5I7.png</strong> (55.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 08:45 上传
+
+*****
+
+####  六道仙鱼  
+##### 12224#       发表于 2022-8-15 08:45
+
+别给傻逼假赛狗画面了。喜欢倒垃圾去别的地方
+
+*****
+
+####  沈淮  
+##### 12225#         楼主| 发表于 2022-8-15 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069454&amp;ptid=2084957" target="_blank">万世创伤伊莫库 发表于 2022-8-15 08:45</a>
+接下来是不是没比赛了？鉴于楼友们天天搬屎的行为，我先润了</blockquote>
+过几天有esl云顶
+
+*****
+
+####  lmslardar  
+##### 12226#       发表于 2022-8-15 08:45
+
+nga昨天不是吹ame心态好吗？真的太打脸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星野航  
+##### 12227#       发表于 2022-8-15 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个经典major冠军ti吃屎
+到时候集美再大水
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Thio  
+##### 12228#       发表于 2022-8-15 08:46
+
+老东京是不是现在比较典型的工具人中单了，把把6级一到就往烈士路一钻，杀不杀得到人都把你人打走，用自己的经济兑换对面大哥的经济，然后和2345抱团搞事让yatoro或者collapse发育
+
+*****
+
+####  pigofsunny  
+##### 12229#       发表于 2022-8-15 08:46
+
+Ti10打Secret两把刀口舔血，Major打OG两把刀口舔血。反观Spirit劣势抱团高台眼下蹲人破雾反打，只能说确实团队纪律性查太多了。肌肉dota，都是狗屎。
+
+—— 来自 Google Pixel 4a, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  trackerList  
+##### 12230#       发表于 2022-8-15 08:46
+
+集美逆风还在起跳呢，比赛还没凉就开始岁月史书了，密麻麻石蜡
+
+*****
+
+####  阿垃垃圾历  
+##### 12231#       发表于 2022-8-15 08:46
+
+前面两把是不是有翻盘 晚点补个录像 看看 ame的精彩操作
+
+*****
+
+####  外挂全家脚气  
+##### 12232#       发表于 2022-8-15 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069452&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-15 08:45</a>
+杰畜还吃不吃今天这波流量了
+
+—— 来自 samsung SM-N9860, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+已经开始复盘了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 12233#       发表于 2022-8-15 08:46
+
+不行咱就换个C，别凑合了
+
+*****
+
+####  mkii量产型  
+##### 12234#       发表于 2022-8-15 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在太监论坛和B站到处骑脸好爽啊，不过看集美的架势要缩壳啊
+
+*****
+
+####  zsu222  
+##### 12235#       发表于 2022-8-15 08:46
+
+esl好像阿茶要去打？
+
+*****
+
+####  沈淮  
+##### 12236#         楼主| 发表于 2022-8-15 08:46
+
+漏油推崇备至的杰畜哥会怎么拷打掀背呢，萌猩球问
+
+*****
+
+####  轮太  
+##### 12237#       发表于 2022-8-15 08:47
+
+隔壁版主疯狂删帖维护中
+我好他妈爽啊
+
+*****
+
+####  莉拉厨  
+##### 12238#       发表于 2022-8-15 08:47
+
+蛆海狂欢！我直接化身假赛集美点开术士八的微博！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 12239#       发表于 2022-8-15 08:47
+
+我从他们从ehome转lgd就说，有debuff，邪恶双雄次次选错误选择，在ehome，甚至不改队名都有可能二冠了。
+
+*****
+
+####  Litccc  
+##### 12240#       发表于 2022-8-15 08:47
+
+#ykw通俄石锤
+
+#Dota2史上最黑暗的一天（2022 8月限定）
+
+#下面8吃菜
+
+#萧瑟没输
+
+#万人请愿要求检查TS队员游戏文件完整性
+
+
+
+*****
+
+####  灰烬白羽  
+##### 12241#       发表于 2022-8-15 08:47
+
+回国也别练了，赶紧加急请个心理咨询师吧，这么打100年也拿不了冠军。冠超查猪不行但是队伍气氛好啊，技术再好没心态，一受挫折就尿裤有p用啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 12242#       发表于 2022-8-15 08:47
+
+这下是363天的冠军了，文爱胖子什么时候玉玉？
+
+*****
+
+####  nomhrpls  
+##### 12243#       发表于 2022-8-15 08:47
+
+杰出还做不做决赛的视频了，天天无效击杀，这下无效冠军了
+
+*****
+
+####  CNFH1984  
+##### 12244#       发表于 2022-8-15 08:47
+
+杰畜的肌肉刀塔论赶紧端上来啊，老干瘪这最后三把有哪一把不是肌肉刀塔犯病输的吗？
+
+*****
+
+####  jy000129  
+##### 12245#       发表于 2022-8-15 08:48
+
+漏油们，一个月内没我<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AP0rt_  
+##### 12246#       发表于 2022-8-15 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  万世创伤伊莫库  
+##### 12247#       发表于 2022-8-15 08:48
+
+<blockquote>沈淮 发表于 2022-8-15 08:45
+过几天有esl云顶</blockquote>
+谢了，那是时候看卡卡能不能唤醒沉睡的记忆了(
+
+*****
+
+####  银翼的维罗西  
+##### 12248#       发表于 2022-8-15 08:48
+
+正义与光明本就存在，错位与荒谬终将回归理性
+
+*****
+
+####  CNFH1984  
+##### 12249#       发表于 2022-8-15 08:48
+
+文爱胖子也别怪谁，最后一把的土猫，啊，犯罪式的“无效开团”至少有两次。可别怪谁了，怪自己吧
+
+*****
+
+####  lyjssj  
+##### 12250#       发表于 2022-8-15 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">别急，先等一个ame铁粉的剪辑，这四把大概能剪出一个top10了
+
+*****
+
+####  thistimeforlife  
+##### 12251#       发表于 2022-8-15 08:49
+
+老干瘪的现代dota在哪里，老干瘪是不是肌肉dota打不过对面阿
+
+*****
+
+####  希望之花  
+##### 12252#       发表于 2022-8-15 08:49
+
+#kgb突击检查面八保险箱
+
+*****
+
+####  12481632  
+##### 12253#       发表于 2022-8-15 08:49
+
+冲击百大，就在今日！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 12254#       发表于 2022-8-15 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">目前来看鳖星再加把劲还是有希望的
+
+*****
+
+####  Keynes  
+##### 12255#       发表于 2022-8-15 08:50
+
+假赛狗全家暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 12256#       发表于 2022-8-15 08:50
+
+还好昨天没投降我靠
+
