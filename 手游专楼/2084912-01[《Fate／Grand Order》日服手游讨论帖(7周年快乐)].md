@@ -14279,3 +14279,82 @@ rba不给群充也不给黄金律，真是难受
 对比起来RBA只用抽1宝
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1334#       发表于 2022-8-15 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁贴个卡面  （
+
+*****
+
+####  exiaexa  
+##### 1335#       发表于 2022-8-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 18:21</a>
+
+谁贴个卡面  （</blockquote>
+现在是助战的数据解包啊，卡面得等实装的那天
+
+*****
+
+####  都谷捻柏  
+##### 1336#       发表于 2022-8-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078303&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-08-15 18:19:20</a>
+隔壁的思路是这样的
+
+大家人手5宝宇宙凛+5宝金钻头/大公，换成5宝伊吹费钱不说提升还不大
+
+那肯定划不来啊
+
+ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个预设5宝宇宙凛的思路看来我是永远无法理解了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 1337#       发表于 2022-8-15 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078346&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 18:22</a>
+
+现在是助战的数据解包啊，卡面得等实装的那天</blockquote>
+怪不得我翻了半天没翻到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 1338#       发表于 2022-8-15 18:25
+
+绿卡的问题就是缺一手黄金律，有黄金律的话绿卡的难题基本解决七八成了
+
+至于红绿暴击结果发的一手烂牌的问题，除非有呆毛强制转红卡的技能，否则还是去隔壁取经如何一回合转五张红、蓝、绿（黄）卡吧
+
+*****
+
+####  onemoment  
+##### 1339#       发表于 2022-8-15 18:27
+
+省钱了，留了100多石头抽着玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1340#       发表于 2022-8-15 18:28
+
+<blockquote>都谷捻柏 发表于 2022-8-15 18:16
+在隔壁伊吹这个卡池是最鸡肋的，反正我是不敢苟同
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+没有五宝仇凛的我正在瑟瑟发抖
+
+*****
+
+####  zore  
+##### 1341#       发表于 2022-8-15 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卡池含金量挺高
+

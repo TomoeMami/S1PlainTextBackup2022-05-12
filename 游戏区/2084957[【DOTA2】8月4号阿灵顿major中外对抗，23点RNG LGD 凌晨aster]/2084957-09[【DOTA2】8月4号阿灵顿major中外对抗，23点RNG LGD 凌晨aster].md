@@ -11086,3 +11086,85 @@ xinq明显没觉得处长有问题，刚还赢了一起狂，输了萧瑟抗呢�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  syndrome2032  
+##### 13249#       发表于 2022-8-15 18:20
+
+心理咨询师这是ti8还是ti9的时候水厂宣传过自己雇了前中国女排的心理咨询师。
+
+这都几年了，别人离职了?
+
+*****
+
+####  43453  
+##### 13250#       发表于 2022-8-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073980&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 13:12</a>
+文丑的走钢丝开团打视野有猴爹和量子鞭兜底。
+哪次他这么搞后面不都有两座大山准备冲上去宰人。
+这两个都 ...</blockquote>
+所以今早起来刚好看到处长强行三打五差点笑了出来，两个爹不在谁给你处长勇气开团，被集美吹多了真以为自己是大腿了，然后这一送直接送出两路了
+
+*****
+
+####  六娃  
+##### 13251#       发表于 2022-8-15 18:23
+
+处长不如学我的点金A杖龙心冰眼CK，也不用什么跳刀血辣，直接肉死对面，我这套出装靠队友躺了好多分了
+
+*****
+
+####  Litccc  
+##### 13252#       发表于 2022-8-15 18:23
+
+<img src="https://img.saraba1st.com/forum/202208/15/182344atscsi6hr46ybs94.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ2q-7tj0ZxT3cSzk-qo.jpg.medium.jpg</strong> (55.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:23 上传
+
+*****
+
+####  IG.430  
+##### 13253#       发表于 2022-8-15 18:24
+
+红包神最大的黑点是那句要不你来把ame挤兑去cdec，卜然说不定am两个畜牲到现在还互相关着呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 13254#       发表于 2022-8-15 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙，回家看了下先辈的操作，这要是ti决赛该多精彩
+
+*****
+
+####  香蕉芭菲  
+##### 13255#       发表于 2022-8-15 18:26
+
+果然输了，1比3而且还被翻了一把是惨了点。加油吧，实力差距没那么大
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  HydraCat  
+##### 13256#       发表于 2022-8-15 18:28
+
+ti的时候给处长选点站桩肉，能玩！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 13257#       发表于 2022-8-15 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">白天上班没得专心看，晚上再重温一遍好了
+现在先看了下g4第33分的冥场面，这个3打5真的很难用chusheng之外的词形容，nm大影刀冲过去跳砍斧王
+
