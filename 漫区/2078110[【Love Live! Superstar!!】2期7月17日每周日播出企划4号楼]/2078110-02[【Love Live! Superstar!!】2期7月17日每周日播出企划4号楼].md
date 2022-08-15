@@ -13471,3 +13471,17 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我也知道合同逆天什么什么的，但看熟肉的时候，还得是可可那几句台词，我都得暂停缓两秒才能继续看。
 
+
+
+*****
+
+####  沙茶酱  
+##### 2803#       发表于 2022-8-16 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082276&amp;ptid=2078110" target="_blank">灼眼的夏娜酱 发表于 2022-8-15 23:47</a>
+
+为什么九个人是绝对的，上一季夺冠的也只有两个人而已啊</blockquote>
+别问，问就是花田隔空致敬缪水
+
+但问题是在星团世界观里面，真的是和缪水一个世界观吗，要是一个世界观，那么前两集有一个设定让我有点受伤<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+

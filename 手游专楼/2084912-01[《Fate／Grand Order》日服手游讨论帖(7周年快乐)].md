@@ -15202,3 +15202,17 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 不过宝具动画里连衣服都给固定了感觉还是很怪，以前有这样的吗
 
+
+
+*****
+
+####  alucardcz  
+##### 1427#       发表于 2022-8-16 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082770&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-16 00:57</a>
+
+这次的宝具都喜欢加彩蛋，而且蓝莓和伊吹都是伸舌头，所以rba.....
+
+不过宝具动画里连衣服都给固定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷懒是这样的 例如公主
+
