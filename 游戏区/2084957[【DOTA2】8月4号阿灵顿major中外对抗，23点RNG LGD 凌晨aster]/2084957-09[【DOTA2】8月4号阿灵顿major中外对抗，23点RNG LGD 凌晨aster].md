@@ -7670,3 +7670,74 @@ ti打完吧，上次不是被二狗盯上估计还在用老楼
 
 esl和虎牙是合作关系我记得
 
+
+
+*****
+
+####  scg2017  
+##### 12879#       发表于 2022-8-15 12:20
+
+我的青春就是看处长刷了送，不哭不是真呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhliiiii  
+##### 12880#       发表于 2022-8-15 12:21
+
+怎么还有集美在送马？
+
+*****
+
+####  沈淮  
+##### 12881#         楼主| 发表于 2022-8-15 12:25
+
+好图
+
+<img src="https://fj2.sgamer.com/attachment/forum/202208/15/113645juwyz33bb9q3yyeb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 12882#         楼主| 发表于 2022-8-15 12:27
+
+兄弟们 我要去major决赛现场举SG的牌子
+[https://bbs.sgamer.com/thread-14171704-1-1.html](https://bbs.sgamer.com/thread-14171704-1-1.html)
+
+(出处: 超级玩家官方论坛) <blockquote>兄弟，完美有点司马，现场导播拍现场观众举牌的时候，国内的流就切到分析台了，不翻**Q应该看不到你</blockquote>
+完美还是恶心人啊
+
+*****
+
+####  尸体鲨  
+##### 12883#       发表于 2022-8-15 12:27
+
+Ceb真在傻狗有号？
+
+*****
+
+####  米德  
+##### 12884#       发表于 2022-8-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073303&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 12:27</a>
+兄弟们 我要去major决赛现场举SG的牌子
+
+https://bbs.sgamer.com/thread-14171704-1-1.html
+
+(出处: 超级玩家 ...</blockquote>
+不是完美的问题 昨天现场有白皮猪举4v牌子恶心人
+
+*****
+
+####  acejoe  
+##### 12885#       发表于 2022-8-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072764&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-15 11:55</a>
+女王不是搅屎棍?小娜迦自己和分身不能上?电棍也不能上去输出?</blockquote>
+女王是切入型刺客定位，打后排酱油的，又不是滚滚土猫那种控场的，能先手住女王么？
+
+靠娜迦电棍冲爆对手，只有一种可能，优势滚雪球扫图，打打rng或者茶可能给你这个机会。
+而且viper大圣，两个阵地战高手，没那么容易，还有痛苦拉。
+扫不了拖后期小娜迦本来就弱。
+
