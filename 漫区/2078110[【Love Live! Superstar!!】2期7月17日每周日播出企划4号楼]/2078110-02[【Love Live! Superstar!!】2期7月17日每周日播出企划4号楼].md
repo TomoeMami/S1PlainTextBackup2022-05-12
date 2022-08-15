@@ -12545,3 +12545,12 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 Pay：可堇关系是一大亮点→指变的更加恶劣
 怎么这破动画看的人这么折磨呢<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">，记得当年追水动画也吵的凶，但起码没折磨人啊
 
+
+
+*****
+
+####  lj205  
+##### 2714#       发表于 2022-8-15 13:42
+
+这周日summer sonic了，先关心一下这个能不能正常演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

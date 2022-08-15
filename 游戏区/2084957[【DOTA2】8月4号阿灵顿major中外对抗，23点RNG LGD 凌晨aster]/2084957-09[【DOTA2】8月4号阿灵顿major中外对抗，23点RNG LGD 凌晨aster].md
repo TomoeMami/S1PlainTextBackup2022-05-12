@@ -8495,3 +8495,71 @@ a畜学大爹转5还来得及
 
 感谢雪碧，治好了我的精神内耗
 
+
+
+*****
+
+####  walfeds  
+##### 12968#       发表于 2022-8-15 13:40
+
+飞飞退化成zhizhizhi真的可惜了
+
+*****
+
+####  CNFH1984  
+##### 12969#       发表于 2022-8-15 13:42
+
+ig的退潮再一次雄辩的证明了，fade真的比ka神差
+
+*****
+
+####  名字不乱取  
+##### 12970#       发表于 2022-8-15 13:43
+
+刷你楼比看比赛有意思多了，只可惜接下来只有ti能看到克神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竜騎士07  
+##### 12971#       发表于 2022-8-15 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越来越觉得我们专楼是中文dota圈圣地了
+
+*****
+
+####  12481632  
+##### 12972#       发表于 2022-8-15 13:48
+
+上一个中文doto圣地是超级集美论坛，望周知
+
+*****
+
+####  名字不乱取  
+##### 12973#       发表于 2022-8-15 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074432&amp;ptid=2084957" target="_blank">竜騎士07 发表于 2022-8-15 13:47</a>
+
+越来越觉得我们专楼是中文dota圈圣地了</blockquote>
+nga也是这么说自己的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 12974#       发表于 2022-8-15 13:49
+
+s1唯一刀塔圣地是梓综，望周知
+
+*****
+
+####  没钱买手办  
+##### 12975#       发表于 2022-8-15 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">集美们发大水了没家人们
+
+*****
+
+####  吃货红毛  
+##### 12976#       发表于 2022-8-15 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">TI前的盼头就是大更新和森哥预选了
+
