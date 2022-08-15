@@ -9869,3 +9869,81 @@ G1屠夫跳高想法应该是想救viper，只是各种原因没退出来
 什么情况，文丑心态崩了？</blockquote>
 还在3-0，先想想怎么进决赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CNFH1984  
+##### 13119#       发表于 2022-8-15 16:41
+
+<blockquote>沈淮 发表于 2022-8-15 16:32
+你到底是不是xinqsama黑粉啊，粉丝群都混进去了，黑到深处自然粉？</blockquote>
+我不是，我没有，别乱说，图片来源于网络
+
+我现在是神中神唯一关羽崩溃神铁粉！
+
+*****
+
+####  坚定的团子党  
+##### 13120#       发表于 2022-8-15 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076740&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 16:35</a>
+
+我要求不高，能不能把屎一样qopwrspecsnk至宝任务砍一刀！</blockquote>
+希望能出花钱买得到的解锁工具，打工人是真的没时间刷至宝，小语种十人开黑又怕被封号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 13121#       发表于 2022-8-15 16:43
+
+敏核加强了那就更能看到掀背的精彩表演了。
+
+毕竟掀背的几大名著演员可都是敏核
+
+*****
+
+####  HydraCat  
+##### 13122#       发表于 2022-8-15 16:44
+
+醒了喵，今晚还能看利物浦比赛，好耶😆
+随便上面那截图感觉确实不像xinq说话的方式。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 13123#       发表于 2022-8-15 16:46
+
+文丑胖子当年能因为队友抽烟直接发火，如果心态炸了王掀背的脸应该已经和显示器亲密接触了。
+
+所以我觉得不太可能吧
+
+*****
+
+####  沈淮  
+##### 13124#         楼主| 发表于 2022-8-15 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076850&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-15 16:43</a>
+
+希望能出花钱买得到的解锁工具，打工人是真的没时间刷至宝，小语种十人开黑又怕被封号 ...</blockquote>
+直接淘宝找人刷，很便宜
+
+*****
+
+####  zsu222  
+##### 13125#       发表于 2022-8-15 16:50
+
+看了看阿茶和上帝的合影  我咋感觉鹏子有点危险呢
+
+*****
+
+####  白色的120  
+##### 13126#       发表于 2022-8-15 16:50
+
+“主要大圣萧瑟都不玩了，证明这个英雄真的不行”
+<img src="https://p.sda1.dev/6/b77577d423eaac5415aef44778e41e5d/CMP_20220815165004696.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
