@@ -13315,3 +13315,27 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 你哪怕技能改改效果叫个死神（夏）我都当你认真在敷衍了，一共三个技能两个是原版直接照搬的实在是很让人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">讲道理不算敷衍了，这卡强度给的真不错了，30自充，打道中保底有个万物特攻，自己有40蓝魔放，正好配合C呆毛的群体加攻buff
 
+
+
+*****
+
+####  angelooo  
+##### 1248#       发表于 2022-8-15 13:53
+
+<blockquote>白金口袋 发表于 2022-8-15 11:54
+蘑菇为啥不能硬气点2.6就走玛修敌役路线，我举双手双脚支持
+
+本来第1部就该完美退场的角色硬是拖到第2部后段 ...</blockquote>
+看到一个脑洞说可以设定在时间神殿退场后直接穿越到2.6梣那里，然后作为敌方和迦勒底重逢，但我觉得他们不敢23333
+
+*****
+
+####  poor  
+##### 1249#       发表于 2022-8-15 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073811&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-15 13:00</a>
+这人现在还在lasengle工作</blockquote>
+我意思是5年前的东西，就算真的搞不好也改了很多了，2.6的废案都那样了，况且这种现在剧情里都看不出有什么道理的，搞不好就以前随口一提
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

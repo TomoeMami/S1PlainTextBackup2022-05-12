@@ -8563,3 +8563,66 @@ s1唯一刀塔圣地是梓综，望周知
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">TI前的盼头就是大更新和森哥预选了
 
+
+
+*****
+
+####  CNFH1984  
+##### 12977#       发表于 2022-8-15 13:50
+
+说起来fade rotk 战神七这几个哪儿去了
+
+*****
+
+####  12481632  
+##### 12978#       发表于 2022-8-15 13:53
+
+战神7不是在ehome当教练么。
+r畜在外面玩了快一整年了吧，希望人没事。
+
+*****
+
+####  沈淮  
+##### 12979#         楼主| 发表于 2022-8-15 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074480&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 13:50</a>
+
+说起来fade rotk 战神七这几个哪儿去了</blockquote>
+战神7不是在ehome当教练吗
+
+*****
+
+####  沈淮  
+##### 12980#         楼主| 发表于 2022-8-15 13:56
+
+我只好奇357去哪了，都快打ti预选赛了还没队伍找357当救火队员吗？
+
+去年vg在357去之前bp把被爆，357去之后，ti上基本上每盘都是均势甚至优势
+
+*****
+
+####  白色的120  
+##### 12981#       发表于 2022-8-15 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074368&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 13:42</a>
+ig的退潮再一次雄辩的证明了，fade真的比ka神差</blockquote>
+fade就猛了那么几个月，被vg踢了，让皮鞋打四，差点minor都没得打，后面请fade回来那段时间确实是猛，vg连续拿了几个major的最大功臣，可惜啊，油面男跟皮鞋杨都是ti软脚虾。kaka的话下限比较高，保质期比较长，不过ti有尿裤风险。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白色的120  
+##### 12982#       发表于 2022-8-15 13:59
+
+说到fade，再就是想到他前女友妩媚猫很顶，挂fade渣男行径，还说fade秒男哈哈哈
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈经文  
+##### 12983#       发表于 2022-8-15 13:59
+
+看了雪碧三把比赛，治好了我的精神内耗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
