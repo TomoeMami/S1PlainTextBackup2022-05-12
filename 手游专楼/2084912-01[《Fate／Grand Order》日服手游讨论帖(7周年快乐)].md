@@ -13174,3 +13174,24 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 说起来都在讨论水伊吹，没人说水绘里世吗？我总感觉水绘里世是不是太敷衍了点，看mooncell一共三个技能两个和枪绘里世一样，文本也是只在原来的文本基础上稍微加了一点改了一点，不过这个卡面是确实好看
 
+
+
+*****
+
+####  新吾  
+##### 1237#       发表于 2022-8-15 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071664&amp;ptid=2084912" target="_blank">_Usarak_ 发表于 2022-8-15 10:56</a>
+
+说起来都在讨论水伊吹，没人说水绘里世吗？我总感觉水绘里世是不是太敷衍了点，看mooncell一共三个技能两个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这本书的设定都不完善，不就只能在基础设定上稍微改改咯
+
+*****
+
+####  khxooo  
+##### 1238#       发表于 2022-8-15 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071419&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-15 10:41</a>
+话说晴明的立绘还没有出场吗？</blockquote>
+没有，到现在只是出现在对话框。
+
