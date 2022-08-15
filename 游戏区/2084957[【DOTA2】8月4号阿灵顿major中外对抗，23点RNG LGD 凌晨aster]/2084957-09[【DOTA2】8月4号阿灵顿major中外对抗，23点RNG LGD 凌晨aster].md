@@ -12181,3 +12181,99 @@ snare是懂亚军的</blockquote>
 
 看完了g2，感觉这个mira的切入有点卡神的味道，好屌
 
+
+
+*****
+
+####  百世诸侯  
+##### 13357#       发表于 2022-8-15 21:03
+
+<img src="https://img.saraba1st.com/forum/202208/15/210232dpq44ss4q4zaaq4q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 21:02 上传
+
+配合当时的弹幕看起来也太爽了，在斗鱼重看一遍好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 13358#       发表于 2022-8-15 21:03
+
+原来g4夜魇上路一塔  脑东京qop击退4个 雪碧人头破蛋的那一波混沌还是切臂章切死的<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 13359#       发表于 2022-8-15 21:04
+
+<img src="https://img.saraba1st.com/forum/202208/15/210406vz30n5aibf9fqiif.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 21:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 13360#       发表于 2022-8-15 21:04
+
+今天没鹅了，明天给各位老板加回来<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  seki_m  
+##### 13361#       发表于 2022-8-15 21:07
+
+突然发现杜鹏和处长这两个b都没有终结比赛的能力，但鸭头肉的ta就能刷肥了一波把对面带走，哎
+
+*****
+
+####  tengshuo980  
+##### 13362#       发表于 2022-8-15 21:09
+
+今年ti感觉lgd还是亚军的话估计要原地解散了，ame你赶紧放过其他四个赵云吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  六娃  
+##### 13363#       发表于 2022-8-15 21:11
+
+鹏子和处长一样菜，区别是
+
+鹏子犯错，鹏子挨骂
+
+处长犯错，面八挨骂
+
+讲道理，每次鹏子输完比赛出来认错的二次元傻卵样子，都让人想骂但是不忍心骂太狠
+
+摘抄自SG十年老鹏密：
+
+鹏子你改悔罢！瞧瞧你那发际线，别看本子里番了，黄油也要戒了，把打胶打干了的脑浆都给补回来
+
+天梯要多酬勤呀，你的天梯排名已经是全队最低了，年纪最大的曾焦阳和才进一队的皮球都比你酬勤
+
+好好练好好打，只要你回到拍拍熊一人拍碎OG那个状态，你们这个队是可以拼一手上限TI捧盾的
+
+别年纪轻轻就摆烂了，你也不想你的二次元老婆们认为你是一个没志气的怂卵混子吧
+
+*****
+
+####  adretyu67  
+##### 13364#       发表于 2022-8-15 21:11
+
+所以ti10时期漏油评价雪碧打得更像老式中国队。
+
+打得就是四保一，不服打团，打团打到你服为止。
+

@@ -13097,3 +13097,15 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到有人烤了那份合同，只能说夏美没被80到紫砂真是香音脾气好
 
+
+
+*****
+
+####  cxj649  
+##### 2766#       发表于 2022-8-15 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080301&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-15 21:00</a>
+
+看到有人烤了那份合同，只能说夏美没被80到紫砂真是香音脾气好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以本子那边更愿意车这个，而不是可堇啊
+
