@@ -12011,3 +12011,48 @@ ana真的对鹏子激凸了，哈人
 
 感谢漏油
 
+
+
+*****
+
+####  woyzeck  
+##### 13343#       发表于 2022-8-15 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079712&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 20:09</a>
+
+莫奈特发的</blockquote>
+杜鹏怎么专和小偷合影？良心何在？道德何在？三观何在？
+
+*****
+
+####  killerktd  
+##### 13344#       发表于 2022-8-15 20:35
+
+这下没人说ti10是假赛了
+
+*****
+
+####  9时34分  
+##### 13345#       发表于 2022-8-15 20:36
+
+终于抢到一个红包，感谢漏油<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 13346#       发表于 2022-8-15 20:39
+
+<img src="https://img.saraba1st.com/forum/202208/15/203729ne9wsgg3hzkekg23.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:37 上传
+
+TS也是一支朝气蓬勃青春洋溢的队伍，特别是今年经历了俄乌内战的动乱，不仅队员自身家庭受到波及，甚至队内关系都一度非常尴尬，好在一路克服困难走过来了
+
+希望他们能一直保持这样的精神面貌
+

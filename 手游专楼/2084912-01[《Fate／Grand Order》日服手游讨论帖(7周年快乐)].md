@@ -14797,3 +14797,48 @@ C呆快满绊了呀
 
 另外我还是觉得伊吹撑死是螳螂，黄雀还是拿ASMR炸空钱宝的旧梅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 1386#       发表于 2022-8-15 20:31
+
+直接出个选牌从者，开技能直接重新洗牌然后15张牌任选，后续再从剩下的10张牌发。
+
+*****
+
+####  qixinno2  
+##### 1387#       发表于 2022-8-15 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079965&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-15 20:31</a>
+
+直接出个选牌从者，开技能直接重新洗牌然后15张牌任选，后续再从剩下的10张牌发。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">操作太麻烦了 我宁可换人冲
+
+*****
+
+####  khxooo  
+##### 1388#       发表于 2022-8-15 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079981&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 20:33</a>
+操作太麻烦了 我宁可换人冲</blockquote>
+复合群冲100用不用？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 1389#       发表于 2022-8-15 20:35
+
+隔壁这一群云日服玩家千里眼battle突出一个不知所谓<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1390#       发表于 2022-8-15 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080002&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-15 20:34</a>
+
+复合群冲100用不用？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不用 你自己想想 先点技能 弹出15张卡再点五个累不累
+
