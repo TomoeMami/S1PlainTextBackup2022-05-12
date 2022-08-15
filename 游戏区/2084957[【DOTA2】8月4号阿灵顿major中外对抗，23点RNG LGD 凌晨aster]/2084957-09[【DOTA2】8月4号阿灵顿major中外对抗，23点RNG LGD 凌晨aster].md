@@ -11168,3 +11168,65 @@ ti的时候给处长选点站桩肉，能玩！
 <img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">白天上班没得专心看，晚上再重温一遍好了
 现在先看了下g4第33分的冥场面，这个3打5真的很难用chusheng之外的词形容，nm大影刀冲过去跳砍斧王
 
+
+
+*****
+
+####  johnwick  
+##### 13258#       发表于 2022-8-15 18:31
+
+ 本帖最后由 johnwick 于 2022-8-15 18:32 编辑 
+
+怪
+
+<img src="https://img.saraba1st.com/forum/202208/15/183137gd5gd6lugi9dd6uv.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (69.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/183138vmbs3aoyrjmlq3yp.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (64.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:31 上传
+
+*****
+
+####  杜文乐超神归来  
+##### 13259#       发表于 2022-8-15 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078452&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 18:29</a>
+
+白天上班没得专心看，晚上再重温一遍好了
+
+现在先看了下g4第33分的冥场面，这个3打5真的很难用chushe ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">2345估计都没想到这操作好吧，跳刀按出来了小精灵才tp
+
+*****
+
+####  rubicon  
+##### 13260#       发表于 2022-8-15 18:35
+
+癞皮社要搞波大的？
+
+
+
+*****
+
+####  trackerList  
+##### 13261#       发表于 2022-8-15 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">Dota2不装了是吧
+
+*****
+
+####  iriyano  
+##### 13262#       发表于 2022-8-15 18:40
+
+回家又品了一下G4，哥哥每次切入都是戏啊
+

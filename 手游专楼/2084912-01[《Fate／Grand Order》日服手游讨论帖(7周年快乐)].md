@@ -14358,3 +14358,72 @@ rba不给群充也不给黄金律，真是难受
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卡池含金量挺高
 
+
+
+*****
+
+####  alucardcz  
+##### 1342#       发表于 2022-8-15 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁真弱智 平时这么嫌弃换人 现在换人3ba也能吹起来
+
+*****
+
+####  天王寺凯伊姆  
+##### 1343#       发表于 2022-8-15 18:31
+
+绿卡给黄金律也解决不了阴间本啊，时代不同了，已经不适合冲浪了。给暴击是好事，但前提是发牌，给个锁发牌才是霸道解法
+
+*****
+
+####  exiaexa  
+##### 1344#       发表于 2022-8-15 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078474&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 18:31</a>
+
+隔壁真弱智 平时这么嫌弃换人 现在换人3ba也能吹起来</blockquote>
+公主落地的时候就有这个失了智症状了，只不过贴吧更严重一点
+
+懂不懂黑杯公主换人5加成无视阵容的含金量啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1345#       发表于 2022-8-15 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁牌也要给个强化版 只发谁的牌而不是兔子王的不发谁的牌 那个脸黑照样会被制裁
+
+*****
+
+####  alucardcz  
+##### 1346#       发表于 2022-8-15 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078498&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 18:33</a>
+
+公主落地的时候就有这个失了智症状了，只不过贴吧更严重一点
+
+懂不懂黑杯公主换人5加成无视阵容的含金量啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5加成换人。。狂娜不是无敌的吗。。。。伤害高到爆炸 就算全是外星人都能随便冲的地步
+
+*****
+
+####  砂糖方块  
+##### 1347#       发表于 2022-8-15 18:37
+
+今天助战塞俩水黑白贞 
+
+*****
+
+####  砂糖方块  
+##### 1348#       发表于 2022-8-15 18:37
+
+发快了，这下个活动不给发水黑贞硬币我是不干的
+
+*****
+
+####  Yason  
+##### 1349#       发表于 2022-8-15 18:38
+
+第一反应是利好项羽，暴击要毁天灭地了，但项羽np太差了还没自充，除非打x11本
+
