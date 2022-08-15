@@ -13102,3 +13102,14 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 这图还进化了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 贴吧2.0版本
 
+
+
+*****
+
+####  angelooo  
+##### 1230#       发表于 2022-8-15 08:28
+
+<blockquote>qixinno2 发表于 2022-8-15 07:22
+</blockquote>
+看了下我厨的两个光炮甚至都不在上面，那确实就是厨力从者了23333
+
