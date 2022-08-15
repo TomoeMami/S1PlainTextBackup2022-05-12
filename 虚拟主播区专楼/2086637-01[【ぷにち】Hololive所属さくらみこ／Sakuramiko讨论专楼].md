@@ -1368,3 +1368,39 @@ GUP到现在还没开始看，我记得去年同时视听的时候就在讲了
 
 miko从看罪恶王冠的深夜动画开始入宅草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 127#         楼主| 发表于 2022-8-15 14:12
+
+一开始提otaku话题一大堆非会员帐号突然冒出来发言
+
+感情一直在潜水啊你们
+
+*****
+
+####  holoan  
+##### 128#         楼主| 发表于 2022-8-15 14:15
+
+公主链接的手游没怎么玩，动画看了
+
+*****
+
+####  rs5621  
+##### 129#       发表于 2022-8-15 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来是啊宅找到共鸣了，炸出一堆潜水的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 130#         楼主| 发表于 2022-8-15 14:19
+
+瘾来了，要找个机会看动画
+
+但其实上个月就安排过了这个月要看一部什么剧场版，估计自己忘了
+

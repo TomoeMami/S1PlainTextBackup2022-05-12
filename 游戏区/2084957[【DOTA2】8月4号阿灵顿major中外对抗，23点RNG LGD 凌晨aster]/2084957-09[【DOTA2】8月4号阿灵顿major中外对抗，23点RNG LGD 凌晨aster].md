@@ -8660,3 +8660,92 @@ fade就猛了那么几个月，被vg踢了，让皮鞋打四，差点minor都没
 去年vg能走那么远，357的banpick取到了很大的作用，后来打完ti10没人要也是有点搞不懂 ...</blockquote>
 是呀很奇怪，100w或者更高的工资要求，要价太高了？
 
+
+
+*****
+
+####  lyjssj  
+##### 12987#       发表于 2022-8-15 14:11
+
+<img src="https://img.saraba1st.com/forum/202208/15/140454l1h228nnn2n2pmp2.png" referrerpolicy="no-referrer">
+
+<strong>C00E05D8-CF58-4473-867B-08C79816C201.png</strong> (360.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 14:04 上传
+
+老调重弹的排泄角度
+
+lgd输了，都怪主播不用心！完美不用心！
+
+以及虽然去年我希望lgd死，但不妨碍我今年再发一次大水，踩头，侮辱上d
+
+经典集美了属于是
+
+<img src="https://img.saraba1st.com/forum/202208/15/140946bhp1552yxdprix2l.png" referrerpolicy="no-referrer">
+
+<strong>F0011E51-5059-4129-B529-D80414C59370.png</strong> (129.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/140947bzx6lcnbwdz6nttb.png" referrerpolicy="no-referrer">
+
+<strong>1681EA97-82AB-4B67-9A83-0965E6811842.png</strong> (233.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 14:09 上传
+
+*****
+
+####  CNFH1984  
+##### 12988#       发表于 2022-8-15 14:12
+
+理性讨论，如果一个人去年想让老干瘪死（甭管为什么），今年也想让老干瘪死，那是不是可以团结的对象
+
+*****
+
+####  Lamapocos  
+##### 12989#       发表于 2022-8-15 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">集美并不是想老干鳖死，只是想证明giegie输了都是假赛
+
+*****
+
+####  12481632  
+##### 12990#       发表于 2022-8-15 14:14
+
+有一说一，撸狗不行
+
+
+
+*****
+
+####  反方向的波  
+##### 12991#       发表于 2022-8-15 14:16
+
+ 本帖最后由 反方向的波 于 2022-8-15 14:17 编辑 
+
+话说现代doto肌肉doto这套理论到底什么意思，是马后炮因为赢了所以是现代doto输了就是肌肉，还是真的论证了什么是现代 打了就能赢<img src="https://static.saraba1st.com/image/smiley/carton2017/298.png" referrerpolicy="no-referrer">
+
+*****
+
+####  c88711611  
+##### 12992#       发表于 2022-8-15 14:19
+
+斧王这个英雄真的有梗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一身浩然气，斩尽畜生道。
+
+傻狗论坛偷的，手持dota之神的裁决
+
+*****
+
+####  Keynes  
+##### 12993#       发表于 2022-8-15 14:19
+
+lgsgm
+
