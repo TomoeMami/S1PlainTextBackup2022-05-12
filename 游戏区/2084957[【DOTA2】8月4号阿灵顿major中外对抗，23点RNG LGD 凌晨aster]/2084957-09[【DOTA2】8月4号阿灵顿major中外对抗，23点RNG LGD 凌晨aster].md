@@ -9947,3 +9947,133 @@ G1屠夫跳高想法应该是想救viper，只是各种原因没退出来
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  woyzeck  
+##### 13127#       发表于 2022-8-15 16:52
+
+最下面这个集美的头像，我记得是那个说fy别碰瓷xinq的。
+
+*****
+
+####  CNFH1984  
+##### 13128#       发表于 2022-8-15 16:53
+
+鸭头肉厚积薄发，眼光精准，愚以为可以比拟黄忠。崩溃神英武盖世，可以比拟关羽。老东京声名不显，勇冠三军，是真正的赵云！
+
+*****
+
+####  morwhipppo  
+##### 13129#       发表于 2022-8-15 16:53
+
+6个人里面总得走一个，走谁呢
+
+<img src="https://img.saraba1st.com/forum/202208/15/165314uu8fn8bh0ql3yp1g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>921D1765-9267-4E8B-BA71-E5999E38696C.jpeg</strong> (83.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 16:53 上传
+
+*****
+
+####  adretyu67  
+##### 13130#       发表于 2022-8-15 16:54
+
+杜鹏你没注意到自己已经到边缘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 13131#       发表于 2022-8-15 16:54
+
+<blockquote>morwhipppo 发表于 2022-8-15 16:53
+6个人里面总得走一个，走谁呢</blockquote>
+曾焦阳今年打完大概率不打了吧，姜维也扛不住了啊
+
+*****
+
+####  反方向的波  
+##### 13132#       发表于 2022-8-15 16:55
+
+#查询皮球带去美国的湖人球衣数量
+
+*****
+
+####  nowaki  
+##### 13133#       发表于 2022-8-15 16:55
+
+这个科比球衣太tm搞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 13134#       发表于 2022-8-15 16:55
+
+上帝考虑下留在茶队，别去和smkuku组队了，好吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 13135#       发表于 2022-8-15 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076519&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-15 17:21</a>
+漏油还真是转进如风
+
+我说找个心理咨询师不是因为三四盘集体尿裤的表现？ti上不也是这么尿的，说实话 ...</blockquote>
+我觉得纯粹是漏油不想让干爹这逼队赢罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  walfeds  
+##### 13136#       发表于 2022-8-15 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077039&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-15 16:55</a>
+
+上帝考虑下留在茶队，别去和smkuku组队了，好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么代价呢
+
+*****
+
+####  灰烬白羽  
+##### 13137#       发表于 2022-8-15 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076602&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-15 16:26</a>
+
+没指名道姓你是去年的假赛狗还蹬鼻子上脸了是吧，怎么好意思叫人去调整的
+
+去年怎么不觉得就是世界 ...</blockquote>
+我又假赛狗了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">我至始至终都没觉得一定是假赛啊，也从来没在各大论坛贴吧社区等地方发表过类似言论，简介里也写的也很清楚了，少扣。电子竞技有假赛，dota有假赛不等于ti就是假赛，毕竟是这种规模的比赛。
+
+虽然是脑浆四溢的舞台，但既然有这个现象存在的话，那我也可以对其中一些难以解释的地方提出合理的质疑，我一直觉得真理越辩越明啊，你觉得我分析哪里不对完全可以来辩而不是站在至高点批判。去年dota水平仅仅是我的个人判断，我认为接近决赛日还有如此之多的低级失误可以称之为水平不行，当然你觉得是理由给giegie硬实力洗地那就是吧
+
+*****
+
+####  沈淮  
+##### 13138#         楼主| 发表于 2022-8-15 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077049&amp;ptid=2084957" target="_blank">星野航 发表于 2022-8-15 16:56</a>
+
+我觉得纯粹是漏油不想让干爹这逼队赢罢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你跟个假赛狗聊啥。。
+
+*****
+
+####  CNFH1984  
+##### 13139#       发表于 2022-8-15 16:58
+
+不可能的，你们别看着杜鹏那样，杜鹏其实已经是很适合茶队的c了，有时候换c还是不止要看水平……
+
+*****
+
+####  CNFH1984  
+##### 13140#       发表于 2022-8-15 17:00
+
+假赛哥如果很想lgd死那还行，如果是假赛哥，又想支持lgdqj
+
