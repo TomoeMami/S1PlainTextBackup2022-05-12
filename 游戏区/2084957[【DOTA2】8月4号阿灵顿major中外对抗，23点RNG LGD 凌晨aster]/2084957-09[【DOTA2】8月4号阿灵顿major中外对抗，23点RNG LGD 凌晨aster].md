@@ -8025,3 +8025,54 @@ ace当时唯一的作用就是在国内举办比赛，比如说过段时间要�
 
 后来的巡回赛制都是完美举办的比赛，ace就插不上手了
 
+
+
+*****
+
+####  syndrome2032  
+##### 12916#       发表于 2022-8-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073564&amp;ptid=2084957" target="_blank">秘奥闪光 发表于 2022-8-15 12:43</a>
+因为ace本来就没p用，wings解体是自己太菜打不下去了，邪恶双雄有队要想跑路，其余三人mdy ...</blockquote>
+只是mdy绝不可能写出《无耻的队友》微博大战的。
+
+只能说封杀应该是客观存在的，或者说有人或者俱乐部动了这个念头。
+
+*****
+
+####  AkaiSuisei  
+##### 12917#       发表于 2022-8-15 12:51
+
+今天跟老板扯皮辞职，错过了最大的乐子，老板铁集美
+
+*****
+
+####  北条早苗  
+##### 12918#       发表于 2022-8-15 12:55
+
+wings就算不解散也出不了成绩了，善良泽宇ti透支之后一直在偿还，鸡皇大龄中单，34还不和
+能让邪恶兄弟遇上猴爹和胖子已经算DOTA之神的施舍了，结果遇上A畜可能是因为当年踢二冰太不基徳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  morwhipppo  
+##### 12919#       发表于 2022-8-15 12:55
+
+这个solo被打烂的到底是真集美还是反串的啊，为啥每次说出来的话都那么有意思
+
+<img src="https://img.saraba1st.com/forum/202208/15/125520xf8nnivsini06rii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CFEB749D-25A6-4B32-AB99-D0CAAEED8840.jpeg</strong> (103.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 12:55 上传
+
+*****
+
+####  nowaki  
+##### 12920#       发表于 2022-8-15 12:59
+
+虽然major钱确实很少，但你萧瑟哥哥一生最高光的冠军也就是一个二次元major了
+

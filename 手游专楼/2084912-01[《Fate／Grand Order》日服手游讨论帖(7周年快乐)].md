@@ -13274,3 +13274,18 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 就算打人也是不痛，她又不是三紅卡組，但最要命就是第2部9成時間都是綁這狀態，雖然技2技3都是挑釁(根本是錯了的技能組吧)，對單體BOSS還是不錯，禮裝配了4星的加防還是變得好硬
 
+
+
+*****
+
+####  poor  
+##### 1245#       发表于 2022-8-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072994&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-15 12:08</a>
+255里完全没有立绘
+
+五年前有个舅舅说过晴明和太公只会落地一个，不知道靠谱不靠谱 ...</blockquote>
+就算靠谱，都5年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
