@@ -13509,3 +13509,92 @@ mark了 一帧一帧学！
 
 A畜这狗东西ti11打完估计也到点了，等一个畜力反噬
 
+
+
+*****
+
+####  格雷殿下  
+##### 13486#       发表于 2022-8-16 01:52
+
+<blockquote>joker9527 发表于 2022-8-16 01:37
+这不是明摆着刀圈的易烊千玺/肖战嘛
+
+哥哥有着一张巩汉林的帅脸，方便收割各路脑残粉，水厂就开始运作了
+
+ ...</blockquote>
+鳖搞，别人可是易嘉人，一般人可比不了。
+
+在想，当年可以父母亲自送儿子去打职业，家境有概率也不太一般吧。
+
+*****
+
+####  woyzeck  
+##### 13487#       发表于 2022-8-16 03:16
+
+有张帅脸+打核心=容易造星，这是围绕ame打造饭圈的前提。一直保的客观原因是ame从18年开始成绩就是西恩第一，虽然他确实是平时抱大腿关键时刻拖后腿的那个。还有一点是运气好，20年没ti，比赛没关注度，他血抬cdec级别的表现没人知道。
+
+*****
+
+####  天堂懵懂人  
+##### 13488#       发表于 2022-8-16 03:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉娜迦打钱能力太强了 把整队的钱都打完了
+
+现在还有啥大核荣耀么 ,刷完没啥大招CD或者变身CD真空期,随时随地可以平A上去的大哥
+
+*****
+
+####  秘奥闪光  
+##### 13489#       发表于 2022-8-16 03:55
+
+不是，半天没上s1红包全错过了，gtmd处长啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四叶  
+##### 13490#       发表于 2022-8-16 03:55
+
+闲的没事瞎看了一下，韩国dota最后的遗老Dubu还在打Ti，秘鲁今年居然有俩队直邀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13491#       发表于 2022-8-16 04:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068750&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-14 19:35</a>
+
+萨特还在现场吗，弄个牌子搞两下啊</blockquote>
+摆了 昨天第二把看完累的到点<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kepling1  
+##### 13492#       发表于 2022-8-16 04:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082984&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-16 01:37</a>
+
+这不是明摆着刀圈的易烊千玺/肖战嘛
+
+哥哥有着一张巩汉林的帅脸，方便收割各路脑残粉，水厂就开始运作了
+
+ ...</blockquote>
+不过也许有信息差的原因, 我这次听英文分析台也是各种看好ame,  解说和弹幕也都在吹.
+
+*****
+
+####  希望之花  
+##### 13493#       发表于 2022-8-16 05:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四把昨天看睡着了刚看haob复盘，这12分钟QOP一个大堪比当年topson的b刀
+
+*****
+
+####  两三流浪者  
+##### 13494#       发表于 2022-8-16 05:25
+
+不得不佩服超级太监论坛的发散能力 <blockquote>​LGD 这个队伍有没有点李宗伟的味道？ 悲壮。
+
+LGD 这个队伍有没有点李宗伟的味道？ 悲壮。 我平时打羽毛球，看羽球赛，李宗伟也是平时的赛事里，经常拿公开赛的冠军，但是大赛的决赛确实一个世界冠军都没有拿到过，比如打完林丹(OG TI双冠)，又遇到谌龙(雪碧 TI冠军，目前)。好像LGD这个队伍不论之前还是现在好像都没有拿到冠军，(不过2亚，1季也不错)。 有没有点神似的感觉，李宗伟也是技术，实力，都是超一流选手。
+
+然后看比赛转播，LGD队员没有特别兴奋或者狂的样子，有种冷静还是克制的感觉。没有那种王霸之气，或者说兴奋感，这两天看茶队的Monet 采访就感觉很兴奋，比较享受线下赛(当然打的好坏另说)。</blockquote>
+

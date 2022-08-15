@@ -5257,3 +5257,12 @@ ui
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下iwaiwa箱新人第一个妹妹，valo白金一，喷喷游戏时间约10000h的x段，来虹的话估计能混进小圈子里吃保底了
 
+
+
+*****
+
+####  天天座理世  
+##### 16983#       发表于 2022-8-16 03:31
+
+丽姐这种就是嗯直播不参与线下企划吧，纳凉祭结束就复播（找个新冠理由），去年vspo线下年会除了刚出道两个新人没参加就她没去。
+
