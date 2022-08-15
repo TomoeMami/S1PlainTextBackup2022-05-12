@@ -12389,3 +12389,27 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 说的是动画组最上面</blockquote>
 要说提纯，从加人那一刻开始不就已经是的了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 2699#       发表于 2022-8-15 12:15
+
+动画做成这样的，真的可以吗，如果真的有三，可以考虑一下换人写脚本吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愛さ実  
+##### 2700#       发表于 2022-8-15 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073109&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-8-15 12:15</a>
+动画做成这样的，真的可以吗，如果真的有三，可以考虑一下换人写脚本吗
+
+—— 来自 S1Fun ...</blockquote>
+有没有可能换谁来写都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
