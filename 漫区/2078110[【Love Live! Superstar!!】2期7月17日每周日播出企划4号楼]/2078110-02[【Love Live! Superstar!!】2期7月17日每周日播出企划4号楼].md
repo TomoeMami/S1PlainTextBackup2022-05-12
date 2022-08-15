@@ -12534,3 +12534,14 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 2713#       发表于 2022-8-15 13:36
+
+鲤鱼：第二季可可会有难过的剧情→指让观众难过
+Pay：可堇关系是一大亮点→指变的更加恶劣
+怎么这破动画看的人这么折磨呢<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">，记得当年追水动画也吵的凶，但起码没折磨人啊
+
