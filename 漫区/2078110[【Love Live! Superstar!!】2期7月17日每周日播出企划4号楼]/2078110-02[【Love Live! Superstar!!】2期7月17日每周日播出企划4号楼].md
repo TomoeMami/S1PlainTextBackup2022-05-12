@@ -13058,3 +13058,23 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 才发现鱼的线下展和星的live撞了，她们早上还是下午啊，怕错过</blockquote>
 接近中午
 
+
+
+*****
+
+####  优妮可  
+##### 2762#       发表于 2022-8-15 20:45
+
+<blockquote>lj205 发表于 2022-8-15 20:28
+接近中午</blockquote>
+寄，基本错过了，等回放好了
+
+*****
+
+####  lj205  
+##### 2763#       发表于 2022-8-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080117&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-15 20:45</a>
+寄，基本错过了，等回放好了</blockquote>
+前几天人估计多，我估计月底我再过去
+

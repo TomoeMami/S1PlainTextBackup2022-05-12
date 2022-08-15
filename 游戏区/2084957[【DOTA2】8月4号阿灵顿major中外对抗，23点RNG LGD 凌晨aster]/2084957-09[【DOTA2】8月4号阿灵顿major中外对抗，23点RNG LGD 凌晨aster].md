@@ -12056,3 +12056,65 @@ TS也是一支朝气蓬勃青春洋溢的队伍，特别是今年经历了俄乌
 
 希望他们能一直保持这样的精神面貌
 
+
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 13347#       发表于 2022-8-15 20:45
+
+请大家喝瓶雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+虽然曼联输了但是处长也输了请喝雪碧
+
+*****
+
+####  六娃  
+##### 13348#       发表于 2022-8-15 20:45
+
+ 本帖最后由 六娃 于 2022-8-15 20:51 编辑 
+
+感兴趣的漏油可以暗中观察一下collapse小号的天梯频率、英雄池和胜率，有惊喜
+
+三个号：302214028 165064674 398795645
+
+*****
+
+####  Keynes  
+##### 13349#       发表于 2022-8-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078086&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 18:02</a>
+
+从TI8看到现在，AME在决赛中经常有大跌眼镜的表现。并不是AME喜欢整活，而是他觉得按常规套路，已经没什么 ...</blockquote>
+哇，三十水人那一把队友都把对面淦烂了原来是绝境啊，真是司了马的csdx疯狂洗呀
+
+*****
+
+####  Papercup  
+##### 13350#       发表于 2022-8-15 20:49
+
+<img src="https://img.saraba1st.com/forum/202208/15/204558ebbh44jbolsozsnr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EE9A7604-CAAE-44A2-AB02-46C2C82FA1CE.jpeg</strong> (211.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 20:45 上传
+
+snare是懂亚军的
+
+
+
+*****
+
+####  adretyu67  
+##### 13351#       发表于 2022-8-15 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080173&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 20:49</a>
+
+哇，三十水人那一把队友都把对面淦烂了原来是绝境啊，真是司了马的csdx疯狂洗呀 ...</blockquote>
+要如何表演才能翻回来，的确是绝境。
+
+然后贡献了反向波、ceeeeeeeb！、96点伤害猴子等名场面
+

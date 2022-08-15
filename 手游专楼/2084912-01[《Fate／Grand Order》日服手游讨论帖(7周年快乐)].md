@@ -14842,3 +14842,12 @@ C呆快满绊了呀
 复合群冲100用不用？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不用 你自己想想 先点技能 弹出15张卡再点五个累不累
 
+
+
+*****
+
+####  kiralzb  
+##### 1391#       发表于 2022-8-15 20:44
+
+本当に三人で乗り切りやがった<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
