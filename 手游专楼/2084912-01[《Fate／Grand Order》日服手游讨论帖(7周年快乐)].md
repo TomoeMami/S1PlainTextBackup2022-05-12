@@ -14427,3 +14427,76 @@ rba不给群充也不给黄金律，真是难受
 
 第一反应是利好项羽，暴击要毁天灭地了，但项羽np太差了还没自充，除非打x11本
 
+
+
+*****
+
+####  alucardcz  
+##### 1350#       发表于 2022-8-15 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078498&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 18:33</a>
+
+公主落地的时候就有这个失了智症状了，只不过贴吧更严重一点
+
+懂不懂黑杯公主换人5加成无视阵容的含金量啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹了   某个吹狂兰的贴里暴露了不少云玩家  连狂娜带洗牌服能无脑2发宝具都不知道 吐了
+
+
+
+*****
+
+####  马桶3  
+##### 1351#       发表于 2022-8-15 18:41
+
+我悟了，这次泳装实质照顾新人入坑，没有梅林抽蓝莓，没有cba抽rba，没有蓝光炮抽伊吹，只需要自带一个C呆，游戏体验就全了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1352#       发表于 2022-8-15 18:45
+
+<img src="https://img.saraba1st.com/forum/202208/15/184443q0se60wch911e0sk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:44 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间穿越者狂兰神
+
+*****
+
+####  kiralzb  
+##### 1353#       发表于 2022-8-15 18:45
+
+Rba这三破设计有泳贞那味，我看好终破卡面还得是普通泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1354#       发表于 2022-8-15 18:46
+
+虽然我狂兰高宝还喂了两个杯子，但隔壁这吹法还是把我头都笑掉了哈哈哈哈哈
+
+*****
+
+####  eyeego  
+##### 1355#       发表于 2022-8-15 18:46
+
+连B是1.5倍伤害都不知道 就硬云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1356#       发表于 2022-8-15 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我狂兰甚至喂满了金芙芙 毕竟当初日服真的没别的角色能用
+
+*****
+
+####  kuarwbwe  
+##### 1357#       发表于 2022-8-15 18:50
+
+还行，至少明年国服除了宇津见，我不用纠结高宝了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
