@@ -13104,3 +13104,92 @@ N NGA N<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" ref
 
 低分狗看不懂了啊，第二把最后肉山团小娜迦把分身拉过去打**，本体打女王刮痧是何意啊，被大圣**逮捕队友给薄葬，不交大直接tp又是何意啊，结果tp被断死了买活愣了半天慢悠悠从家走出来，这是何意啊。
 
+
+
+*****
+
+####  walfeds  
+##### 13448#       发表于 2022-8-15 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081642&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 22:57</a>
+说起来新og的教练chuvash好像是misha拉来的？也是cis人？</blockquote>
+本泽马和atf的老队友，原天辉小兵的4，一起挖来的，大毛子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 13449#       发表于 2022-8-15 23:03
+
+热知识啊 当年lgd输ti8的官方借口就是苦战八场不敌草台班子
+
+*****
+
+####  弈秋  
+##### 13450#       发表于 2022-8-15 23:05
+
+卧槽 萨特放点金手没点到
+
+*****
+
+####  walfeds  
+##### 13451#       发表于 2022-8-15 23:05
+
+misha神真就哪都签不过，不会真有什么案底吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 13452#       发表于 2022-8-15 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081642&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 22:57</a>
+
+说起来新og的教练chuvash好像是misha拉来的？也是cis人？</blockquote>
+是的，misha的好兄弟
+
+当时通过毛区关系找来yuragi，从entity挖来ATF和BZM，再招来被液体给术士zai让位置踢掉的taiga
+
+misha是绝对的建队核心，虽然打得像个买号的老板
+
+*****
+
+####  六娃  
+##### 13453#       发表于 2022-8-15 23:06
+
+热知识，misha天梯分不如重新开始打rank的德张
+
+*****
+
+####  沈淮  
+##### 13454#         楼主| 发表于 2022-8-15 23:07
+
+哦潘坚是亲弟弟还不是堂弟
+
+*****
+
+####  IG.430  
+##### 13455#       发表于 2022-8-15 23:08
+
+从最伟大的亚军里找到一条新评论
+
+"""
+这下精灵混沌的a队都不如我了​
+"""
+
+*****
+
+####  rubicon  
+##### 13456#       发表于 2022-8-15 23:08
+
+别尬黑我misha神最近天梯狂暴上分从700名冲到了600名
+
+*****
+
+####  何然  
+##### 13457#       发表于 2022-8-15 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">misha这签证看来是不可能过了
+
