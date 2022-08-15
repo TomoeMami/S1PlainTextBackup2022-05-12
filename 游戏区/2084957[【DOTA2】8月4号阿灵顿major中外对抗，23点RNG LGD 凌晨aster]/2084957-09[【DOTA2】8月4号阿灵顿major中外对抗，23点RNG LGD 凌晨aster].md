@@ -11378,3 +11378,91 @@ G4不说了，老干瘪稳扎稳打，处长少送一两波安稳切酱油，大
 
 心态打击max好吧
 
+
+
+*****
+
+####  你可以试试  
+##### 13279#       发表于 2022-8-15 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不看管人，有没有漏油科普一下do处是什么处迹啊
+
+*****
+
+####  白色的120  
+##### 13280#       发表于 2022-8-15 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078727&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-15 18:52</a></blockquote>
+下面回复更有意思，说鳖鳖碰瓷ame
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lmslardar  
+##### 13281#       发表于 2022-8-15 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078727&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-15 18:52</a></blockquote>
+这帖子估计已经没了吧，猜到下面大概回复是“憋憋最好成绩前四也能跟我A比？”
+
+不过也没说错，憋憋越到重要比赛失常的越难看，ame好歹是到决赛日变形，憋憋一进入淘汰赛就鳖不住了
+
+*****
+
+####  43453  
+##### 13282#       发表于 2022-8-15 19:07
+
+zfb口令：感谢lgd为大家带来一天的快乐
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vlder1994| + 1|感谢漏油|
+| 遍体精淋af| + 1|终于抢到一个了，感谢漏油|
+| 超法拉| + 1|谢包 好大|
+| 沈淮| + 1||
+| 逃离二次元| + 1|好评加鹅|
+| asd235614| + 1|好评加鹅|
+| 反方向的波| + 1|老哥破费了|
+
+查看全部评分
+
+*****
+
+####  很久就在那边l  
+##### 13283#       发表于 2022-8-15 19:09
+
+a/（dota2选手）的粉丝战斗力确实不行，团建力度远远不如a/（虚拟团体粉丝）
+
+*****
+
+####  沈淮  
+##### 13284#         楼主| 发表于 2022-8-15 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078934&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-15 19:07</a>
+zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
+**大
+
+*****
+
+####  fopinecone  
+##### 13285#       发表于 2022-8-15 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078934&amp;ptid=2084957" target="_blank">43453 发表于 2022-8-15 19:07</a>
+zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
+领到了，谢谢漏油
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  沈淮  
+##### 13286#         楼主| 发表于 2022-8-15 19:11
+
+@？@是哪个，好几个手气最佳了，开挂是吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">严查
+
