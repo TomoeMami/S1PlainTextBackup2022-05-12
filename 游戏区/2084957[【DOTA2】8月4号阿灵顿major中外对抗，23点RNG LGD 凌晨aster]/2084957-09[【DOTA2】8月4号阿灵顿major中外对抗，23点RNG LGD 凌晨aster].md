@@ -6501,3 +6501,325 @@ topson可不是对线梦想，脑东京是真的对线谁都打不过。
 
 超哥就是孙权，kaka就是陆逊呀……
 
+
+
+*****
+
+####  何然  
+##### 12749#       发表于 2022-8-15 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072234&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-15 11:28</a>
+
+这就有点虚空了，这个lgd又不是没拿过major，比战绩也是谈animajor啊</blockquote>
+原来石油杯大于major是我现编的
+
+*****
+
+####  adretyu67  
+##### 12750#       发表于 2022-8-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072235&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 11:28</a>
+
+topson可不是对线梦想，脑东京是真的对线谁都打不过。
+
+脑东京的玩法就是换命开团，中单位的kaka好吧 ...</blockquote>
+kaka最早在hgt还真是打中的，离开少林寺去的ehome才转的4，然后才硬实力不足了。
+
+
+
+*****
+
+####  北条早苗  
+##### 12751#       发表于 2022-8-15 11:31
+
+东京哥强就强在不管多穷都敢往劣势路一站，反正让你大哥玩不了，当然大部分时间都是开送，但是处刑处长太经典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 12752#       发表于 2022-8-15 11:31
+
+卡撸撸打中也是对线梦想
+
+*****
+
+####  沈淮  
+##### 12753#         楼主| 发表于 2022-8-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072272&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 11:30</a>
+
+原来石油杯大于major是我现编的</blockquote>
+你跟集美有什么好讨论的
+
+*****
+
+####  哈曼的YY  
+##### 12754#       发表于 2022-8-15 11:32
+
+有无主舞台老东京嘲讽时的弹幕可以看
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星野航  
+##### 12755#       发表于 2022-8-15 11:32
+
+只能说找到团队最合适的打法就是好的
+
+torontotokyo换命开团，到6去下路跟collapse打一波这种，只要帮yatoro撑出空间，然后让collapse吃到第二好资源就可以了
+
+定位拿捏之后，自己队友又值得信赖，那当然尽职尽责就完事
+
+要是yatoro是萧瑟这一款的，那脑东京早boom了
+
+*****
+
+####  格雷殿下  
+##### 12756#       发表于 2022-8-15 11:32
+
+有啥好禁的，撸狗世界赛，直接在bp的时候被逮捕在吃菜，还不照样没事
+
+*****
+
+####  zsu222  
+##### 12757#       发表于 2022-8-15 11:33
+
+阿茶当时ban女王 弹幕还一堆问号，现在看来应该是训练被宰过?
+
+*****
+
+####  沈淮  
+##### 12758#         楼主| 发表于 2022-8-15 11:33
+
+找到了
+
+<img src="https://img.saraba1st.com/forum/202208/15/113339q7fs2t3spzu3rrpc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220815113258.jpg</strong> (7.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 11:33 上传
+
+*****
+
+####  反方向的波  
+##### 12759#       发表于 2022-8-15 11:33
+
+脑东京qop确实很厉害，不能否认
+
+*****
+
+####  何然  
+##### 12760#       发表于 2022-8-15 11:33
+
+补比赛看这个点播笑抽了
+
+<img src="https://img.saraba1st.com/forum/202208/15/113305lj2amuhzfu2jhkfh.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20220815113251.jpg</strong> (174 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 11:33 上传
+
+*****
+
+####  adretyu67  
+##### 12761#       发表于 2022-8-15 11:34
+
+第一个dpc预选脑东京女王在cis区杀出一片天。
+
+*****
+
+####  CNFH1984  
+##### 12762#       发表于 2022-8-15 11:34
+
+阿茶想要再进一步，目前来看就只能是让廖化在姜维犯病的时候请神上身了
+
+也不知道姜维年纪大了过后还能硬多久
+
+*****
+
+####  BallanceHZ  
+##### 12763#       发表于 2022-8-15 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072298&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 11:31</a>
+你跟集美有什么好讨论的</blockquote>
+我又成集美了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 12764#       发表于 2022-8-15 11:35
+
+topson强度很薛定谔，在集美口中就是ti8是暴打maybe，在超人粉口中就是被maybe暴打。不过我个人觉得超哥跟topson算个五五开吧，也很难说谁比谁强（ti8），但ti9就没啥争议了，印象里ti9 顶儿子是队伍里发挥最好的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白色的120  
+##### 12765#       发表于 2022-8-15 11:35
+
+批站真视界预告片下面怎么还这么多说假赛的，v社后期配音都来了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  杜文乐超神归来  
+##### 12766#       发表于 2022-8-15 11:36
+
+<img src="https://img.saraba1st.com/forum/202208/15/113551hb1q1itiz1uq5q5u.jpg" referrerpolicy="no-referrer">
+
+<strong>1660534386319.jpg</strong> (70.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 11:35 上传
+
+*****
+
+####  Bernoulli  
+##### 12767#       发表于 2022-8-15 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072218&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 11:27</a>
+
+茶队现在的状况就像什么呢，就像是姜维带着夏侯霸赵广赵统廖化张翼几兄弟在汉中剑门反复横跳，你说 ...</blockquote>
+这个贴切，不过夏侯霸张翼还是蛮顶的，配合姜维也能打出狄道之战这样的斩获，廖化……还是算了吧。
+
+*****
+
+####  CNFH1984  
+##### 12768#       发表于 2022-8-15 11:36
+
+顶级儿子在TI8和超哥比还是要厉害一点的，但是厉害的这么一点不是决定胜负的关键……
+
+*****
+
+####  超法拉  
+##### 12769#       发表于 2022-8-15 11:36
+
+茶这bp大部分时候是没啥问题的
+但是关键局像今天这最后一把，看到就可以点了
+樱花兄弟玩这种34真的很抽象，我也不懂为什么大部分3都能玩的xxs玩伐木机就是对线很肥但是打团很僵
+
+*****
+
+####  ml1642879  
+##### 12770#       发表于 2022-8-15 11:37
+
+ti冠军教练不如殿军教练实锤了？
+
+*****
+
+####  zsu222  
+##### 12771#       发表于 2022-8-15 11:37
+
+TI8 顶儿子差点意思   ti9那个带队扫图节奏我是真觉得nb
+
+*****
+
+####  BallanceHZ  
+##### 12772#       发表于 2022-8-15 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072380&amp;ptid=2084957" target="_blank">超法拉 发表于 2022-8-15 11:36</a>
+茶这bp大部分时候是没啥问题的
+但是关键局像今天这最后一把，看到就可以点了
+樱花兄弟玩这种34真的很抽象， ...</blockquote>
+总有擅长不擅长的，bian玩**的时候不也完全看不出水平
+
+*****
+
+####  沈淮  
+##### 12773#         楼主| 发表于 2022-8-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072340&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 11:33</a>
+
+补比赛看这个点播笑抽了</blockquote>
+下面怎么露出个midlightone
+
+*****
+
+####  格雷殿下  
+##### 12774#       发表于 2022-8-15 11:38
+
+🍵是以抢代ban呀，版本陷阱呀
+
+*****
+
+####  BallanceHZ  
+##### 12775#       发表于 2022-8-15 11:38
+
+mgj又忘了viper屏蔽词<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 12776#       发表于 2022-8-15 11:38
+
+顶儿子可不是对线梦想，单纯是卡尔宙斯那两把给人印象流了，骨法可是单杀了哈斯卡
+顶儿子当前版本的问题是圣水符让他那个互穷打法行不通了，等大版本更新圣水符删除中路线拉长之后和上帝合体好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12777#       发表于 2022-8-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072376&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-15 11:36</a>
+
+这个贴切，不过夏侯霸张翼还是蛮顶的，配合姜维也能打出狄道之战这样的斩获，廖化……还是算了吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">廖化这次美酒看还是有进步的，其实说到底廖化也是老将嘛……
+
+就看廖化在接下来的比赛里能不能超越自我，请神上身了
+
+*****
+
+####  沈淮  
+##### 12778#         楼主| 发表于 2022-8-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072347&amp;ptid=2084957" target="_blank">BallanceHZ 发表于 2022-8-15 11:34</a>
+
+我又成集美了是吧</blockquote>
+你是不是集美你自己不会翻你的发帖记录？
+
+*****
+
+####  zsu222  
+##### 12779#       发表于 2022-8-15 11:39
+
+皮球还是练练陈吧   让bbk玩太tm僵硬了
+
+*****
+
+####  acejoe  
+##### 12780#       发表于 2022-8-15 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071909&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 11:11</a>
+娜迦绝活哥说一句这英雄31d真的挺陷阱。比赛把这玩意当体系奇兵的一号位选手我都觉得逆天。她四级开始会吃 ...</blockquote>
+很多人没明白娜迦是功能c，不是大核。
+大招和a杖网，克很多英雄，但是正面硬打早就落后版本了。
+ame打不了功能c。
+
+
+
+*****
+
+####  iriyano  
+##### 12781#       发表于 2022-8-15 11:39
+
+所以lgd之前放养哥哥4赵云所向披靡
+怎么突然决赛开始4保1了
+有没有可能是4赵云自己尿了主动要求保哥哥
+
+*****
+
+####  BallanceHZ  
+##### 12782#       发表于 2022-8-15 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072430&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 11:38</a>
+你是不是集美你自己不会翻你的发帖记录？</blockquote>
+我翻了我也不觉得是啊，不过你一直反a不绝对就是绝对不反a，也没啥好讨论的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

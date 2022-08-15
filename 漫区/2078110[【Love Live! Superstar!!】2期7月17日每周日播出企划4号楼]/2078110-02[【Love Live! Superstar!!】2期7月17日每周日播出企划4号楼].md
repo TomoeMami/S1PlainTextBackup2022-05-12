@@ -12273,3 +12273,58 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 也就纸片人会特地设定成那种说话方式。
 前三集头痛土妹子说话，才好了一集就冒出令人更加头痛的CEO。中二病的凸守说话方式也是那样，花田就好这口吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 2687#       发表于 2022-8-15 11:32
+
+另外贴吧还有一点非常迷惑的行为，看完生肉观感不错，然后看完熟肉就骂街了——在我自己看来作为一个老二刺猿你看生肉本来就应该能大体上把剧情猜个八九不离十，熟肉也就补完细节罢了。那么除了可堇台词一如既往地用力过猛，还有什么细节是生肉看不出来熟肉能看出来的呢？
+
+*****
+
+####  仟音一心  
+##### 2688#       发表于 2022-8-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072247&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-15 11:29</a>
+也就纸片人会特地设定成那种说话方式。
+前三集头痛土妹子说话，才好了一集就冒出令人更加头痛的CEO。中二 ...</blockquote>
+故意的，CEO说的山梨县的甲州弁，绘森彩也是山梨县出身，甲州弁被称为日本最难听的方言。
+很多日本人也听不懂CEO在说什么。
+
+*****
+
+####  寒风夜  
+##### 2689#       发表于 2022-8-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072247&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-15 11:29</a>
+
+也就纸片人会特地设定成那种说话方式。
+
+前三集头痛土妹子说话，才好了一集就冒出令人更加头痛的CEO。中二 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">声线这大概跟他无关。
+
+*****
+
+####  CharlieZ-  
+##### 2690#       发表于 2022-8-15 11:35
+
+这集可可怼堇的几句台词只能说是纯纯的畜生设计出来的
+
+*****
+
+####  寒风夜  
+##### 2691#       发表于 2022-8-15 11:36
+
+这真别有3了吧，折磨自己有折磨观众的
+
+*****
+
+####  iuhehc  
+##### 2692#       发表于 2022-8-15 11:39
+
+推上搜 花田 脚本 看不少日本人抱怨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
