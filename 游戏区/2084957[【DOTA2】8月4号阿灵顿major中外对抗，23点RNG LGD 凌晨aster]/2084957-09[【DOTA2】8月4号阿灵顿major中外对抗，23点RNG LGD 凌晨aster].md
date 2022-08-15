@@ -11276,3 +11276,105 @@ G4不说了，老干瘪稳扎稳打，处长少送一两波安稳切酱油，大
 
 突然发现eesama复活了
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 13269#       发表于 2022-8-15 18:52
+
+<img src="https://img.saraba1st.com/forum/202208/15/185243snz1911ftezgk9vg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:52 上传
+
+*****
+
+####  MisakaMikoto  
+##### 13270#       发表于 2022-8-15 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078721&amp;ptid=2084957" target="_blank">AIDSL 发表于 2022-8-15 18:52</a>
+上班摸鱼特地下了最后一盘细品斧王，可是这斧王的作用吧，换个人马来搞不好更厉害？
+
+大胆预测加强斧王。 ...</blockquote>
+看了下max的数据，貌似这个比的人马也挺叼的
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 13271#       发表于 2022-8-15 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078688&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 18:48</a>
+
+明年的杰出和辉耀计划会不会告诉我这是团队决策啊</blockquote>
+明年？明天！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 13272#       发表于 2022-8-15 18:54
+
+辱ehome.aaa了。
+
+*****
+
+####  星野航  
+##### 13273#       发表于 2022-8-15 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078721&amp;ptid=2084957" target="_blank">AIDSL 发表于 2022-8-15 19:52</a>
+
+上班摸鱼特地下了最后一盘细品斧王，可是这斧王的作用吧，换个人马来搞不好更厉害？
+
+大胆预测加强斧王。 ...</blockquote>
+那波斧王一吼三带反杀的效果，人马估计难
+
+当然有个人马大，刚背无论追击还是肉度都更强了，确实很难说
+
+但斧王可是有梗的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 13274#       发表于 2022-8-15 18:56
+
+斧王胜在能吼一手刷新BKB的电鞭吧，但是被削得太厉害了，没BKB各种秒躺
+
+*****
+
+####  bluebaby  
+##### 13275#       发表于 2022-8-15 19:01
+
+打精灵ck感觉斧王还是比人马大鱼好，不过人马对线感觉更强一些不好说
+
+*****
+
+####  遍体精淋af  
+##### 13276#       发表于 2022-8-15 19:01
+
+雪碧敢于逆风选出斧王，于是受到刀塔之神的嘉奖，奖励为处长开团一定切斧王然后葬送局势<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/312.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 13277#       发表于 2022-8-15 19:01
+
+去新晋处长dodo动态下看了一眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有时候，什么都不用做，汛期就会自行平息
+
+实习生双洗还在接受拷打
+
+*****
+
+####  thistimeforlife  
+##### 13278#       发表于 2022-8-15 19:02
+
+别问 看见斧王 哥哥想起了ceb，又看到了身边熟悉又放心的中单船长，量子鞭想起了6年前的自己
+
+心态打击max好吧
+

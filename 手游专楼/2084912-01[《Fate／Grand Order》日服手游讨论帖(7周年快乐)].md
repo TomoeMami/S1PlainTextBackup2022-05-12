@@ -14500,3 +14500,44 @@ Rba这三破设计有泳贞那味，我看好终破卡面还得是普通泳装<i
 
 还行，至少明年国服除了宇津见，我不用纠结高宝了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1358#       发表于 2022-8-15 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078653&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 18:45</a>
+
+时间穿越者狂兰神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打开计算器，人人都是全图鉴满配
+
+*****
+
+####  qixinno2  
+##### 1359#       发表于 2022-8-15 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078763&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-15 18:55</a>
+
+打开计算器，人人都是全图鉴满配</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以隔壁就挺弱智的 既然计算器那么屌 为毛还要花钱抽卡玩游戏
+
+*****
+
+####  alucardcz  
+##### 1360#       发表于 2022-8-15 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078781&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 18:56</a>
+
+所以隔壁就挺弱智的 既然计算器那么屌 为毛还要花钱抽卡玩游戏</blockquote>
+你怎么知道他们真的抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zooandtoo  
+##### 1361#       发表于 2022-8-15 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这什么逗逼队阿。。
+
+还不如祈祷YLS出个绿卡版超级泳伊吹呢，那个冠狂就挺合适
+

@@ -1555,3 +1555,19 @@ miko从看罪恶王冠的深夜动画开始入宅草<img src="https://static.sar
 
 比如马自立和anya要去raidmiko家
 
+
+
+*****
+
+####  rs5621  
+##### 145#       发表于 2022-8-15 18:51
+
+miko晚上mc联动的时候，得好好拉拢下anya，好让她们拆家时手下留情。
+
+*****
+
+####  holoan  
+##### 146#         楼主| 发表于 2022-8-15 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">表现好一点拆家的时候可以少拿两块砖是吧
+
