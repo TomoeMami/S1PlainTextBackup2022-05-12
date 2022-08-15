@@ -13416,3 +13416,12 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 为什么九个人是绝对的，上一季夺冠的也只有两个人而已啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2797#       发表于 2022-8-15 23:55
+
+一话插曲完整版出了，怎么说呢总觉得有点像小时候在三色台听的儿歌，尤其是前奏<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
