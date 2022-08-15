@@ -15151,3 +15151,17 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 有点劝退了，就看三破泳装是否能回分。 ...</blockquote>
 最大的问题不是今年的泳装居然一个两套宝具动画的都没有吗 rba看这德行三破就是那套宝具服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1422#       发表于 2022-8-16 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081886&amp;ptid=2084912" target="_blank">gulant 发表于 2022-8-15 23:17</a>
+
+rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
+
+有点劝退了，就看三破泳装是否能回分。 ...</blockquote>
+三破这不都透完了..只能满破卡面能期待了(
+
