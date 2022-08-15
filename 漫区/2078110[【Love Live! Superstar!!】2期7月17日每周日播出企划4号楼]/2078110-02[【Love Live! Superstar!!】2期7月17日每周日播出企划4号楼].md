@@ -12231,3 +12231,33 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 另外我发现贴吧里怎么这么多人觉得“看到她赚钱比我亏钱还难受”当成什么正面价值观了？
 
+
+
+*****
+
+####  lj205  
+##### 2683#       发表于 2022-8-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071600&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-15 10:52</a>
+
+另外我发现贴吧里怎么这么多人觉得“看到她赚钱比我亏钱还难受”当成什么正面价值观了？ ...</blockquote>
+贴吧一堆没出社会的学生
+
+*****
+
+####  aoaoaodedede  
+##### 2684#       发表于 2022-8-15 11:08
+
+ 本帖最后由 aoaoaodedede 于 2022-8-15 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071574&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-15 10:50</a>
+
+可以找下依然姐的动态，大体意思是夏美有喜欢的衣服但是买不起</blockquote>
+看了一下翻译，我还是坚持我的观点，关于家里穷的暗示之类的并不能特别说服我（虽然这种情况确实是可能性最大的了），只能看动画怎么写了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2685#       发表于 2022-8-15 11:11
+
+我想问问日本JK现在都是这么说话的吗？看了点切片，难受
+

@@ -5848,3 +5848,188 @@ NGA上大多数帖子现在底线已经在“虽然面八和LGD跟菠菜脱不�
 
 2022-8-15 10:58 上传
 
+
+
+*****
+
+####  adretyu67  
+##### 12675#       发表于 2022-8-15 11:00
+
+当TI10结束那一刻是假赛论横行而不是恭喜雪碧的时候就已经没得救了。
+
+为了一个废物c宁肯否认一个项目的最高荣誉，那这个人坚持这个项目还有什么意义？
+
+*****
+
+####  walfeds  
+##### 12676#       发表于 2022-8-15 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071700&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 10:59</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一行喷了，EG LUL
+
+*****
+
+####  adretyu67  
+##### 12677#       发表于 2022-8-15 11:01
+
+脑东京那句haters是指谁？？？？
+
+*****
+
+####  反方向的波  
+##### 12678#       发表于 2022-8-15 11:01
+
+最后一个是不是阿版的小号
+
+*****
+
+####  Asukalangley33  
+##### 12679#       发表于 2022-8-15 11:02
+
+ 本帖最后由 Asukalangley33 于 2022-8-15 11:05 编辑 
+
+冰蛙爹赶紧来个1号位只能当挂件的版本，LGD估计还能搞一搞
+
+而且旁边的彭子也是挂件，一举两得
+
+看隔壁都在说什么LGD的心态问题，我觉得水厂9月开个直播把全队叫过来看畜SIGHT就能治好一半
+
+*****
+
+####  asd235614  
+##### 12680#       发表于 2022-8-15 11:03
+
+haters不就指喷雪碧的人，“haters where a u” = “黑子说话”
+
+*****
+
+####  CNFH1984  
+##### 12681#       发表于 2022-8-15 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我认为这就是dota之神的神罚没跑了，老干瘪找水军，vpgam，面八自己屁股不干净，A处就不说了，345 自己的报应
+
+无辜的只有NTS了！
+
+*****
+
+####  反方向的波  
+##### 12682#       发表于 2022-8-15 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那黑脑东京菜的人确实太多了，几个月前我还带头在你楼贷款搞来gpk踢了老东京的
+
+*****
+
+####  EigenVesper  
+##### 12683#       发表于 2022-8-15 11:05
+
+东京哥感觉确实是越到大场面越兴奋，越兴奋打的就越好
+
+*****
+
+####  nowaki  
+##### 12684#       发表于 2022-8-15 11:06
+
+我一直黑脑东京的，脑东京这人线上把劣问题确实大好吧，不能赢了就是叼
+
+*****
+
+####  哈萨维·诺亚  
+##### 12685#       发表于 2022-8-15 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071744&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 11:01</a>
+
+最后一个是不是阿版的小号</blockquote>
+属实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 12686#       发表于 2022-8-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071740&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 11:01</a>
+脑东京那句haters是指谁？？？？</blockquote>
+不光国内，海外也觉得东京哥是ts里最菜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 12687#       发表于 2022-8-15 11:07
+
+脑东京感觉除了那把崩盘蓝猫  其它都没啥问题
+
+*****
+
+####  joker9527  
+##### 12688#       发表于 2022-8-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071700&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 10:59</a></blockquote>
+贴吧有个人在发这个，无任何自己的评价，然后就被集美吧务删帖了
+
+我的评价是,dota2贴吧现在是仅次于nga的化粪池
+
+*****
+
+####  Litccc  
+##### 12689#       发表于 2022-8-15 11:07
+
+脑东京抽肿黑子们的脸<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12690#       发表于 2022-8-15 11:07
+
+第二把的四赵云和ts打得也太精彩了吧，这个打团被**单防，被大圣当血包的小娜迦好小丑啊
+
+
+
+*****
+
+####  百世诸侯  
+##### 12691#       发表于 2022-8-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071836&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-15 11:07</a>
+
+贴吧有个人在发这个，无任何自己的评价，然后就被集美吧务删帖了
+
+我的评价是,dota2贴吧现在是仅次于nga的 ...</blockquote>
+草，我就是从贴吧转的啊，意思是原帖直接没了
+
+*****
+
+####  joker9527  
+##### 12692#       发表于 2022-8-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071855&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 11:08</a>
+
+草，我就是从贴吧转的啊，意思是原帖直接没了</blockquote>
+已经么了
+
+*****
+
+####  adretyu67  
+##### 12693#       发表于 2022-8-15 11:08
+
+本赛季脑东京第一个dpc预选其实挺好，倒是yataro脑浆或者刚刷完四个关羽就把对面打废了。
+
+第二个dpc是真脑浆，第三个dpc是一点点打回来。
+
+就这个角度来说他和老年中单曾骄阳风格其实挺像的。但是里番c和丫头肉相比真的就。
+
+一个出道季军一个出道冠军。
+
+*****
+
+####  北条早苗  
+##### 12694#       发表于 2022-8-15 11:08
+
+黄潜时期东京哥就是团队突破口，属于是大部份时候超鬼偶尔超神
+但是他就是能在大场面的时候开出樱花模式，火女一打三打掉luna的盾太大心脏了
+
+*****
+
+####  usoda  
+##### 12695#       发表于 2022-8-15 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前2年有人吹莫言可以接老鸡头的班 却没意识到老鸡头是队内真核心 而莫言只配给一个扶不起的阿斗当工具人，令人感慨
+
