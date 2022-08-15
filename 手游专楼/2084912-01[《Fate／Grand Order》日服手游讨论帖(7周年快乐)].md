@@ -15114,3 +15114,16 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人<i
 
 找回一般要多久...
 
+
+
+*****
+
+####  eyeego  
+##### 1419#       发表于 2022-8-15 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081987&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2022-8-15 23:25</a>
+艹...开服号掉了...
+
+找回一般要多久...</blockquote>
+资料齐全的话现在很快的 两个小时左右就有回复了
+

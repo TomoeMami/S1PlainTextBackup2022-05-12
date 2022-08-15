@@ -1816,3 +1816,25 @@ rust来了
 
 团长窗
 
+
+
+*****
+
+####  rs5621  
+##### 174#       发表于 2022-8-15 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">运动会的项目不练习了么，为了不风化miko很拼啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 175#         楼主| 发表于 2022-8-15 23:41
+
+其实不风化每天上线半小时敲点石头收刮点箱子差不多够了
+
+借口上线和其他人联动吧
+
+运动会练习这货选了个最不需要练习的项目了
+
