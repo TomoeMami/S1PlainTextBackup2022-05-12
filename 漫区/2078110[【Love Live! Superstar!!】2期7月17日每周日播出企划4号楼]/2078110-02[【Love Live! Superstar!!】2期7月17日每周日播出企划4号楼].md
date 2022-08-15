@@ -12099,3 +12099,14 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 这话怎么这么多可推炸了我不理解，不过我想拜访下恋推，你们对恋沉迷游戏机那段怎么看，有人说这是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">红毛一个咋咋乎乎的性格不也能弹钢琴吗，叠BUFF的事不要太在意人设
 
+
+
+*****
+
+####  lj205  
+##### 2670#       发表于 2022-8-15 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068554&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-15 07:05</a>
+这话怎么这么多可推炸了我不理解，不过我想拜访下恋推，你们对恋沉迷游戏机那段怎么看，有人说这是 ...</blockquote>
+可推就还一直是那样啊，比起炸单纯就是厌倦了，你看鲤鱼这次直接转发了事（当然应该是在忙），倒不如说某些人每个礼拜都这样累不累
+
