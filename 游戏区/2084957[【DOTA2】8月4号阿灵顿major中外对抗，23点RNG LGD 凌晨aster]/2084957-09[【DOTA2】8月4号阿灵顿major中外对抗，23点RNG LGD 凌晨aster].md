@@ -9363,3 +9363,104 @@ collapse昨天最伟大的表演还是那把有精灵的尔斯<img src="https://
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 来源呢？
 
+
+
+*****
+
+####  12481632  
+##### 13063#       发表于 2022-8-15 15:52
+
+9月2号也是周五
+
+*****
+
+####  坚定的团子党  
+##### 13064#       发表于 2022-8-15 15:53
+
+感觉刀塔是不是好久没更新地图了，英雄数值调来调去说实话有点玩腻了，不说新机制，来点新英雄也好呀
+
+*****
+
+####  nowaki  
+##### 13065#       发表于 2022-8-15 15:54
+
+<img src="https://img.saraba1st.com/forum/202208/15/155220lqfwticdlicq8toi.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220815155034.png</strong> (226.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 15:52 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/155414fv90310sv8ktsqgt.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220815155401.png</strong> (239.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 15:54 上传
+
+a畜好像第一把大优就心态崩了，怎么回事捏
+
+*****
+
+####  星野航  
+##### 13066#       发表于 2022-8-15 15:55
+
+因为当年说中国队伍缺少数据分析师所以输了
+现在说缺少心理咨询师所以输了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+意思是中国dota永远不如人家专业w
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Sabbah  
+##### 13067#       发表于 2022-8-15 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">先把野区改改，每次在天辉玩有长距离aoe的英雄都相当的恶心。
+
+*****
+
+####  12481632  
+##### 13068#       发表于 2022-8-15 15:56
+
+要不把肉山坑再挪挪位置？
+
+*****
+
+####  逸一死吾亦死  
+##### 13069#       发表于 2022-8-15 15:56
+
+干瘪孙觉得今年假赛不好使了是吧
+
+*****
+
+####  秘奥闪光  
+##### 13070#       发表于 2022-8-15 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073680&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 12:50</a>
+只是mdy绝不可能写出《无耻的队友》微博大战的。
+
+只能说封杀应该是客观存在的，或者说有人或者俱乐部动 ...</blockquote>
+当时被封杀的人里主要针对邪恶双雄啊。。其余三个mdy看到这两个人ydy了才决裂的，本来是一起同舟共济吧
+
+wings散伙绝对不是ace的问题
+
+*****
+
+####  nowaki  
+##### 13071#       发表于 2022-8-15 15:59
+
+看来23458打得好领先太多也会影响giegie心态，赶紧去请最好的心理咨询师
+
+*****
+
+####  秘奥闪光  
+##### 13072#       发表于 2022-8-15 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073871&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 13:05</a>
+杰出真的csdx啊 第一把萧瑟满分，第二把nts不出魔晶大锅，萧瑟切入完美 第三把bp问题，第四把量子鞭思想出 ...</blockquote>
+杰出就是舔最狂热的那群粉丝啊，吃这碗饭很正常吧
+
