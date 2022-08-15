@@ -13450,3 +13450,15 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 不过还是要说一下绘森彩这个声线太吵太难听了，明明本音还可以的。二期生两个声优都正常，两个素人的配音质量都糟糕到如此令人发指的程度，音监还不出来背锅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 2801#       发表于 2022-8-16 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082276&amp;ptid=2078110" target="_blank">灼眼的夏娜酱 发表于 2022-8-15 23:47</a>
+
+为什么九个人是绝对的，上一季夺冠的也只有两个人而已啊</blockquote>
+去数数第一部和第二部的主角团人数
+
