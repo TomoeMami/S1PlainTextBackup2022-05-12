@@ -14739,3 +14739,15 @@ C呆快满绊了呀
 冠位剑是最强蓝拐，毫无违和感（不是</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟满破拿的可是冠位插件海无力的剑
 
+
+
+*****
+
+####  qixinno2  
+##### 1380#       发表于 2022-8-15 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079339&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-15 19:37</a>
+
+那都多少年前的事了，现在说不定是奥伯龙呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能 绝对不可能 肯定会接着玩那套最初就是最终之类的玩意 最初的剑从者就是冠位剑
+
