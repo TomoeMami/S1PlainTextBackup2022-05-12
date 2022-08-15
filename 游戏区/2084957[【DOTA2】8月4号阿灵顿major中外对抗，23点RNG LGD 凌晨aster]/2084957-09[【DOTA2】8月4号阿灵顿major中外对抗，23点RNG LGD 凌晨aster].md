@@ -8749,3 +8749,72 @@ lgd输了，都怪主播不用心！完美不用心！
 
 lgsgm
 
+
+
+*****
+
+####  walfeds  
+##### 12994#       发表于 2022-8-15 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074788&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 14:16</a>
+
+话说现代doto肌肉doto这套理论到底什么意思，是马后炮因为赢了所以是现代doto输了就是肌肉，还是真的论证了 ...</blockquote>
+感觉就是硬实力2.0
+
+*****
+
+####  遍体精淋af  
+##### 12995#       发表于 2022-8-15 14:21
+
+回顾一下ti10vg的bp确实顶中顶，当时曾焦阳正反面对线都被打爆但是后期靠着阵容优势还是赢了很多翻盘局<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">然后ti10打完357直接没队要了
+
+*****
+
+####  usoda  
+##### 12996#       发表于 2022-8-15 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萧瑟giegie以后看到斧王应该开始自动尿裤了
+
+*****
+
+####  遍体精淋af  
+##### 12997#       发表于 2022-8-15 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074888&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-15 14:23</a>
+萧瑟giegie以后看到斧王应该开始自动尿裤了</blockquote>
+然而和他一个队的就有冠军斧王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战场原和纱  
+##### 12998#       发表于 2022-8-15 14:27
+
+“集美们是水人变的蚂蚁 也会缩地 连击 唯一不同的是不敢回到过去。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“什么动物会虚张声势，假盾冲击，逆风地雷滚滚，顺风卷土重来？是滚球兽。”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+乐一早上了。
+
+*****
+
+####  Sabbah  
+##### 12999#       发表于 2022-8-15 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开雾遭遇战打赢了就是抓机会抓得好，打输了就是肌肉doto。劣势放手一搏赢了是敢打敢拼，输了就是肌肉doto。
+
+我看见肌肉doto这个名词都不想理，一个读牌水平不够还爱在上帝视角逼逼赖赖的观众形象跃然纸上。
+
+*****
+
+####  Cantha  
+##### 13000#       发表于 2022-8-15 14:28
+
+斧王身为亲儿子。神子待遇，拿个冠军不过分吧
+
+*****
+
+####  战狼PTSD  
+##### 13001#       发表于 2022-8-15 14:29
+
+这下364天变成363天了
+
