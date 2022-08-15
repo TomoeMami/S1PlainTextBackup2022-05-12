@@ -13389,3 +13389,30 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Enakina  
+##### 2794#       发表于 2022-8-15 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082000&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-15 23:26</a>
+话说回来，鲤鱼的微博什么时候又设成仅半年可见了</blockquote>
+最近几天吧，估计有自己的考虑吧
+
+*****
+
+####  优妮可  
+##### 2795#       发表于 2022-8-15 23:46
+
+<blockquote>aoaoaodedede 发表于 2022-8-15 23:26
+话说回来，鲤鱼的微博什么时候又设成仅半年可见了</blockquote>
+被挖，考古多了吧，还是骚扰什么的
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2796#       发表于 2022-8-15 23:47
+
+为什么九个人是绝对的，上一季夺冠的也只有两个人而已啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
