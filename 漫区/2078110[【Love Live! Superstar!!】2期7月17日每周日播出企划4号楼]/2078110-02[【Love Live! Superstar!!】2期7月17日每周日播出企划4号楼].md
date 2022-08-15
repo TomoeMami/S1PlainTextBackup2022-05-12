@@ -12119,3 +12119,16 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 还是希望鲤鱼多一点活动，转移一下我的注意力，之前活动取消的取消，延迟的延迟，缺少鲤鱼的供给，只能被迫期望动画了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 2672#       发表于 2022-8-15 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57066727&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-15 00:14</a>
+熟肉看完了，这一集看下来就这个“钱”最显眼了，这一集完全是过渡回，写了一点，但是没写清楚，夏美爱财 ...</blockquote>
+显然是家里明显地穷啊，跟杂志访谈和三四集镜头都对得上。本集开头就有一个镜头是CEO的腰闪了，因为上一集搬砖累的——正常的普通中产家JK，就算打工也是相对常规的那种(比如小千的章鱼烧店），直接干重体力活显然说明家庭贫困(工资更高但是显然累得多且损害身体）。这样一来，一个家境贫困又自食其力的孩子，拜金就有了天然的正义性，只要接下来不做出明显损害团队和其他人的事情，那么一般占便宜之类的都可以容忍。
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

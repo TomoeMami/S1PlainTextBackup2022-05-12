@@ -13113,3 +13113,13 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 </blockquote>
 看了下我厨的两个光炮甚至都不在上面，那确实就是厨力从者了23333
 
+
+
+*****
+
+####  白金口袋  
+##### 1231#       发表于 2022-8-15 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068669&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-15 07:22</a></blockquote>
+等过两天RBA出来估计又要重画了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

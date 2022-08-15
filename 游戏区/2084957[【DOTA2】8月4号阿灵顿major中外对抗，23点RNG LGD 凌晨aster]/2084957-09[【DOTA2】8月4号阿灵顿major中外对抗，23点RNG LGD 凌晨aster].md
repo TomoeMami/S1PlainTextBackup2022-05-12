@@ -3810,3 +3810,359 @@ ts主要看蒙古人的状态的，经常蒙古人对线很劣势也能去边路
 
 重生之我是关羽x5
 
+
+
+*****
+
+####  CNFH1984  
+##### 12458#       发表于 2022-8-15 09:30
+
+<blockquote>HydraCat 发表于 2022-8-15 09:29
+不过不好说啊，等一个lgd二三在ti爆发，两个核心当三个用，到时候集美涌入你楼清算
+
+—— 来自 S1Fu ...</blockquote>
+于禁就算活着跑路回北方，也是于禁！
+
+*****
+
+####  acejoe  
+##### 12459#       发表于 2022-8-15 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070159&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-15 09:27</a>
+别尬黑，野种好歹有总冠军</blockquote>
+仙贝就是另一个不报团世界线的詹姆斯
+
+*****
+
+####  nowaki  
+##### 12460#       发表于 2022-8-15 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070186&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 09:29</a>
+
+版本强势的vip崩溃绝活啊，然后电棍也学起来了，电棍vip+玛西的绝对强势组合也是他们的bp优势 ...</blockquote>
+奔溃还是节奏三，这版本三号位越肥越厉害
+
+*****
+
+####  迷途lite  
+##### 12461#       发表于 2022-8-15 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070203&amp;ptid=2084957" target="_blank">HydraCat 发表于 2022-8-15 09:29</a>
+不过不好说啊，等一个lgd二三在ti爆发，两个核心当三个用，到时候集美涌入你楼清算
+
+—— 来自 S1Fu ...</blockquote>
+不可能，资源就那么多，只要a处还有脸吃经济就会压缩队友的作用
+
+*****
+
+####  沈淮  
+##### 12462#         楼主| 发表于 2022-8-15 09:31
+
+神关羽是吧，什么鬼龙斩月刀
+
+*****
+
+####  Bernoulli  
+##### 12463#       发表于 2022-8-15 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070038&amp;ptid=2084957" target="_blank">5678给 发表于 2022-8-15 09:19</a>
+
+配张辽不行，可以配吕蒙啊！四个于禁去东南亚淘个吕蒙不过分吧！</blockquote>
+光一个吕子明都被关羽吓得要装病请假了，还得陆议去做心理按摩，曹仁正面坦住，徐晃侧面夹击这才拿下关公。
+
+*****
+
+####  nowaki  
+##### 12464#       发表于 2022-8-15 09:31
+
+杰出不装了是吧：萧瑟犯病了
+
+*****
+
+####  CNFH1984  
+##### 12465#       发表于 2022-8-15 09:32
+
+<blockquote>Bernoulli 发表于 2022-8-15 09:31
+光一个吕子明都被关羽吓得要装病请假了，还得陆议去做心理按摩，曹仁正面坦住，徐晃侧面夹击这才拿下关公 ...</blockquote>
+说了，4个于禁加1个庞德，直接进行一个水淹七军，其他的都别想了
+
+*****
+
+####  朝奈  
+##### 12466#       发表于 2022-8-15 09:33
+
+多么希望今天是TI
+
+别Major决赛偿还TI透支就行
+
+*****
+
+####  ml1642879  
+##### 12467#       发表于 2022-8-15 09:33
+
+他们说，35太菜
+
+*****
+
+####  修罗王  
+##### 12468#       发表于 2022-8-15 09:33
+
+<blockquote>CNFH1984 发表于 2022-8-15 09:28
+已经麦城过了已经麦城过了，就那个土豪杯
+
+现在是船新的关羽，船新的版本！
+
+看好雪碧五个关羽再次暴打4于 ...</blockquote>
+什么神关羽
+
+*****
+
+####  Keynes  
+##### 12469#       发表于 2022-8-15 09:33
+
+咱也来请漏油喝雪碧
+zfb口令：恭喜雪碧勇接掀背鳖壳
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 8战斗力 +8
+
+|昵称|战斗力|理由|
+|----|---|---|
+| foodfor12| + 1|谢谢老板|
+| Litccc| + 1|好评加鹅|
+| ml1642879| + 1|谢谢雪碧|
+| 沈淮| + 1||
+| fopinecone| + 1|谢谢老板！|
+| 夏溪澪mio| + 1|谢谢老板|
+| walfeds| + 1|好评加鹅|
+| 莉拉厨| + 1|好好好|
+
+查看全部评分
+
+*****
+
+####  lyjssj  
+##### 12470#       发表于 2022-8-15 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">nga**集美赛前脑子已经坏掉了，他们要感谢雪碧帮他们冷静一下知道吗
+
+冲西恩队
+
+冲非西恩队
+
+冲职业选手
+
+冲前职业选手
+
+冲官方工作人员
+
+冲官方皮套人
+
+再赢下去连某些厚脸皮硬舔lgd的都要被冲了，毕竟忠诚不绝对就是绝对不忠诚，往前翻五年谁还不是个干爹黑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 12471#       发表于 2022-8-15 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070262&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 09:33</a>
+
+咱也来请漏油喝雪碧
+
+zfb口令：恭喜雪碧勇接掀背鳖壳</blockquote>
+感谢漏油雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12472#       发表于 2022-8-15 09:35
+
+b站切片人怎么更了第一把集锦之后就沉默了啊
+
+*****
+
+####  Imanmi  
+##### 12473#       发表于 2022-8-15 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070262&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 09:33</a>
+咱也来请漏油喝雪碧
+zfb口令：恭喜雪碧勇接掀背鳖壳</blockquote>
+谢谢漏油，这里是雪碧真爱楼喜欢的都来顶<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freak_V  
+##### 12474#       发表于 2022-8-15 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070262&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 09:33</a>
+咱也来请漏油喝雪碧
+zfb口令：恭喜雪碧勇接掀背鳖壳</blockquote>
+谢谢老板 竟然抢到了
+
+*****
+
+####  逃离二次元  
+##### 12475#       发表于 2022-8-15 09:36
+
+居然是接不是揭
+
+*****
+
+####  夏溪澪mio  
+##### 12476#       发表于 2022-8-15 09:36
+
+只能说集美胜决打完开香槟跟去年如出一辙<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">漏油和集美的共同点就是，都相信萧瑟！
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  奈纪亚美  
+##### 12477#       发表于 2022-8-15 09:36
+
+A÷不行就去调整啊
+
+*****
+
+####  六道仙鱼  
+##### 12478#       发表于 2022-8-15 09:36
+
+这里是雪碧真爱楼喜欢的都来顶
+
+*****
+
+####  ml1642879  
+##### 12479#       发表于 2022-8-15 09:36
+
+都怪王志勇这个畜生不播啊，哥哥看不了鸡哥切片没法调整呀
+
+*****
+
+####  Freak_V  
+##### 12480#       发表于 2022-8-15 09:36
+
+讲道理，我是佩服雪碧的开5和眼位<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  逃离二次元  
+##### 12481#       发表于 2022-8-15 09:36
+
+这里是雪碧真爱楼喜欢的都来顶
+
+*****
+
+####  masterkeaton  
+##### 12482#       发表于 2022-8-15 09:37
+
+这第二盘太精彩了吧
+
+LGD只要被打蒙就一泻而下
+
+*****
+
+####  沈淮  
+##### 12483#         楼主| 发表于 2022-8-15 09:37
+
+ti7认识ame，ti8质疑ame，ti9怀疑ame，ti10拷打a畜
+
+*****
+
+####  拿拿子  
+##### 12484#       发表于 2022-8-15 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070234&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 09:31</a>
+
+杰出不装了是吧：萧瑟犯病了</blockquote>
+杰出是被拿来当枪用的，说萧瑟犯病怕是要被反噬
+
+*****
+
+####  蛭人  
+##### 12485#       发表于 2022-8-15 09:37
+
+ti7认识ame，ti8质疑ame，ti9怀疑ame，ti10拷打a畜
+
+*****
+
+####  尸体鲨  
+##### 12486#       发表于 2022-8-15 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回归平淡兄弟
+
+*****
+
+####  外挂全家脚气  
+##### 12487#       发表于 2022-8-15 09:38
+
+看了复盘，决赛输这3场，除了莫言其他几个谁也别说谁，至于第四把那真是全部心态炸裂完全回归肌肉dota
+
+*****
+
+####  一色いろは  
+##### 12488#       发表于 2022-8-15 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然不爽但是打不过就是打不过
+
+切片的做复盘的做集锦的都可以放假了
+
+*****
+
+####  12481632  
+##### 12489#       发表于 2022-8-15 09:39
+
+major打完了，懒🐶V社的更新呢，本子呢
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 12490#       发表于 2022-8-15 09:39
+
+等一个森哥切片，补习一下处长的精彩表现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 12491#       发表于 2022-8-15 09:39
+
+雪碧这个视野控制和开劣势团的能力真的有说法的
+
+*****
+
+####  遍体精淋af  
+##### 12492#       发表于 2022-8-15 09:39
+
+其实第一把的思路很好，处长玩个吃伤害的打不死赖皮工具人就行了，剩下的给四兄弟接管比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而第二把就开始给处长搭舞台玩四保处了只能说输得不冤
+
+*****
+
+####  CNFH1984  
+##### 12493#       发表于 2022-8-15 09:39
+
+我也来发，zfb口令：4于禁打不过5关羽理所应当
+
+*****
+
+####  HydraCat  
+##### 12494#       发表于 2022-8-15 09:39
+
+后面三把lgd都是溃败，对面一号位永远大于己方一号位呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Litccc  
+##### 12495#       发表于 2022-8-15 09:39
+
+明天不更就周五，周五不更就下周再复读一次<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
