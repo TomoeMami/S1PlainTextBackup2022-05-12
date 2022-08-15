@@ -1420,3 +1420,59 @@ miko从看罪恶王冠的深夜动画开始入宅草<img src="https://static.sar
 
 最近在看解説系动画作业rust
 
+
+
+*****
+
+####  holoan  
+##### 133#         楼主| 发表于 2022-8-15 14:36
+
+完蛋了开始聊海贼王的剧情停不下来了
+
+*****
+
+####  Map-2  
+##### 134#       发表于 2022-8-15 14:38
+
+草，差点没认出哪个才是C综，每次看到
+“holoan最后回复”都自然而然点进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ZQXY2002  
+##### 135#       发表于 2022-8-15 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074829&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-15 14:19</a>
+
+瘾来了，要找个机会看动画
+
+但其实上个月就安排过了这个月要看一部什么剧场版，估计自己忘了 ...</blockquote>
+あの花剧场版吧，去年夏天就说要看的。今年又要忘了，呵呵。
+
+尽找些欧美烂片看，就是不看动画。
+
+*****
+
+####  holoan  
+##### 136#         楼主| 发表于 2022-8-15 14:40
+
+那我主楼挂个路标吧
+
+*****
+
+####  rs5621  
+##### 137#       发表于 2022-8-15 14:42
+
+想看miko同步视听朝花夕拾
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 138#         楼主| 发表于 2022-8-15 14:42
+
+动画不是不想看，miko来说太麻烦了，twitch不能看，youtube直播还要额外准备一堆东西，而且要不要占twitch同时视听的时间
+
+主要还是twitch太方便了人变懒了回不去了
+

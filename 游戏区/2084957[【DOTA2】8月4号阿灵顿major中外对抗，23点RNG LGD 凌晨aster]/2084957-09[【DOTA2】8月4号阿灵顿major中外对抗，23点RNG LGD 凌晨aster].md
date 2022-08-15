@@ -8818,3 +8818,59 @@ lgsgm
 
 这下364天变成363天了
 
+
+
+*****
+
+####  c88711611  
+##### 13002#       发表于 2022-8-15 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069620&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 08:55</a>
+#掀背走钢丝
+#掀背刷打结合
+#掀背场均吃伤害第一</blockquote>
+08科比是在内线几乎无人可用的情况下拿了亚军，赛后还说出了亚军就是头号输家。
+
+a/但凡输了敢出来说句话承担责任，它也不是a/了。
+
+*****
+
+####  哈曼的YY  
+##### 13003#       发表于 2022-8-15 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074745&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-08-15 14:12:51</a>
+理性讨论，如果一个人去年想让老干瘪死（甭管为什么），今年也想让老干瘪死，那是不是可以团结的对象 ...</blockquote>那要看是不是假赛党了 假赛党请他第一个去死
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  syndrome2032  
+##### 13004#       发表于 2022-8-15 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074900&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 14:25</a>
+然而和他一个队的就有冠军斧王</blockquote>
+感觉eh年代以后量子鞭就很少玩斧王了
+
+*****
+
+####  usoda  
+##### 13005#       发表于 2022-8-15 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074900&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 14:25</a>
+
+然而和他一个队的就有冠军斧王</blockquote>
+想想真是感慨 去年决赛崩溃点了个斧王出来但是被宰了 说不定今天早上萧瑟看到又是斧王内心还在窃喜 没想到最后是梦回2018了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 13006#       发表于 2022-8-15 14:40
+
+阿灵顿Major在今天凌晨落下帷幕，决赛以Spirit 3:1战胜PSG.LGD告终，对于熬夜看比赛的中国队粉丝或许有些失落。不过相比在屏幕前看到心仪战队战败的失望，现场观战的糟糕体验确是真实的让人反感。Reddit社区用户Milnil101发文吐槽了比赛现场的观战体验，场馆没有有趣活动，线下商城商品单调等等问题都是备受诟病的点。
+
+Milnil101：
+这是2017年以来回到美国举办的第一场赛事，真的让人大失所望。场馆的比赛主题商场没有战队队服出售，只有100美元的带比赛标志的夹克。放眼一个食物摊前面熙熙攘攘的全是人，大家排着长队去买吃的。什么活动也没有，门票买了就只能来坐着看选手10台电脑打比赛，现场还放了加密货币的广告，因为欺诈而上新闻的东西也放到现场给粉丝们看了，他们没有把Arteezy的签名做成NFT来卖可真是万幸了。
+
+现场这堆炒币广告是不是jesse放的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
