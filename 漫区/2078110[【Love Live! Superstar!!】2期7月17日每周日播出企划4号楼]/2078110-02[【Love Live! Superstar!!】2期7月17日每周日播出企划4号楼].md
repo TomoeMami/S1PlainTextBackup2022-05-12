@@ -13177,3 +13177,33 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 所以本子那边更愿意车这个，而不是可堇啊</blockquote>
 我因为是直接看的熟肉所以一开始不明白怎么会有人看完生肉会觉得这集还行的，现在合同这勺芡汁一浇上去我才明白有的东西看不懂的话确实容易误判<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离心  
+##### 2774#       发表于 2022-8-15 22:09
+
+艹合同看到了，建议香音去学法吧<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2775#       发表于 2022-8-15 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081019&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-15 21:58</a>
+我因为是直接看的熟肉所以一开始不明白怎么会有人看完生肉会觉得这集还行的，现在合同这勺芡汁一浇上去我 ...</blockquote>
+本来我是给9分的，因为恋恋这集蛮可爱的，一看到熟肉签合同，emmm
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cxj649  
+##### 2776#       发表于 2022-8-15 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081140&amp;ptid=2078110" target="_blank">离心 发表于 2022-8-15 22:09</a>
+
+艹合同看到了，建议香音去学法吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说你们昨天惦记可可干吗，我昨天就说香音问题大的去了
+

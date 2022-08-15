@@ -12679,3 +12679,65 @@ major上掀背发挥了下漏油们就开心成这样，ti决赛再来波大的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不装了吗Y神
 
+
+
+*****
+
+####  acejoe  
+##### 13404#       发表于 2022-8-15 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077242&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-15 17:07</a>
+说点个人理解
+肌肉dota最主要特征：视野就会常规插眼排眼，或者看录像机械地排对方习惯眼；有没有视野不重 ...</blockquote>
+肌肉dota就是威斯特布鲁克，现代dota就是勇士队
+
+*****
+
+####  外挂全家脚气  
+##### 13405#       发表于 2022-8-15 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081074&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-8-15 22:03</a>
+
+肌肉dota就是威斯特布鲁克，现代dota就是勇士队</blockquote>
+不看篮球，不懂..
+
+*****
+
+####  百世诸侯  
+##### 13406#       发表于 2022-8-15 22:05
+
+就不能是徐志雷卖的粉丝饰品被牙脱落无意间买到了？鳖尬黑！
+
+*****
+
+####  沈淮  
+##### 13407#         楼主| 发表于 2022-8-15 22:09
+
+洗澡去了漏了一个红包
+
+*****
+
+####  nerugigannte  
+##### 13408#       发表于 2022-8-15 22:11
+
+红包群拉一下啊，等着ti吃萨特白天放的光法波呢
+
+*****
+
+####  tengshuo980  
+##### 13409#       发表于 2022-8-15 22:12
+
+红包群拉我
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acejoe  
+##### 13410#       发表于 2022-8-15 22:12
+
+lgd强在邪恶双雄带来了wings的科研dota，配合ame对线强势能让对手找不到突破点，然后中期靠运营赢比赛。
+打稳定的dota，几个英雄来回选，打几把过后就能找到突破点的，然后中期打不死，后期ame收不了比赛。
+
+lgd才是硬实力输别人的那队，靠的就是一手套路多，灵活，打ti和major就像你学了凌波微步结果和别人打少林拳。
+

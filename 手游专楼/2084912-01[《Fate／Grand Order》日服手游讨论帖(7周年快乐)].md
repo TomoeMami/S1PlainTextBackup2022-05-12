@@ -14971,3 +14971,53 @@ C呆快满绊了呀
 你又转生了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在看光头（マフィア梶田）直播抽卡而已啦
 
+
+
+*****
+
+####  alucardcz  
+##### 1404#       发表于 2022-8-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081025&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 21:59</a>
+
+我在看光头（マフィア梶田）直播抽卡而已啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解错了
+
+*****
+
+####  rooarr  
+##### 1405#       发表于 2022-8-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080709&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 21:35</a>
+我甚至和上面那个全黑的人一样连掉2张。。满破了</blockquote>
+掉了也没用啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1406#       发表于 2022-8-15 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081041&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-15 22:00</a>
+
+掉了也没用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是没用 然后我看了看掉落列表 这本只掉妖高
+
+*****
+
+####  霧谷藤乃  
+##### 1407#       发表于 2022-8-15 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081038&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 22:00</a>
+
+理解错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没注意叔叔那边有没有，我在油管看的
+
+*****
+
+####  rooarr  
+##### 1408#       发表于 2022-8-15 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081047&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 22:01</a>
+是没用 然后我看了看掉落列表 这本只掉妖高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
