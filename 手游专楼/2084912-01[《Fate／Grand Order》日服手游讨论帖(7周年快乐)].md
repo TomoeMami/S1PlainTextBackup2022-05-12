@@ -14897,3 +14897,22 @@ C呆快满绊了呀
 
 我也掉妖高礼装了，难道这本掉率高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 1396#       发表于 2022-8-15 21:32
+
+我也掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1397#       发表于 2022-8-15 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080681&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-15 21:32</a>
+
+我也掉了这个本是不是概率调高过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至和上面那个全黑的人一样连掉2张。。满破了
+

@@ -12430,3 +12430,87 @@ ru婊经典卖惨，怎么不说自己开赌场抽了多少流水，家里人进
 
 hao是最狠的，看着辉耀娜迦在那笑，说好好学，第四把ck三打五被破两路，这个CK要是谢彬打的，应该会说 “兄弟们别搞了啊”
 
+
+
+*****
+
+####  反方向的波  
+##### 13381#       发表于 2022-8-15 21:33
+
+<blockquote>  看有帖子说hao在复盘 去看了一会儿录像 弹幕正在说yatoro采访说偶像是阿处游戏id却是hao 此时一条弹幕飘过"冠军的偶像是亚军?"
+hao看到后说道...
+
+"哈哈 窝的偶像是眼子哈 水友们" </blockquote>
+陈志豪确实欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 13382#       发表于 2022-8-15 21:34
+
+塞拉霸气和haob这仨都是经常打节奏c的，看到a/这种天天打阿斗c的被处刑心里是会舒服的啊，尤其是塞垃圾这个b最后一次出成绩的机会还被疫情和a/给毁了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 13383#       发表于 2022-8-15 21:35
+
+刘嘉俊是语气阴阳，陈智豪是表达阴阳
+
+孙正是因为情商太低只会说大实话，显得比上面两个还阴阳
+
+*****
+
+####  CNFH1984  
+##### 13384#       发表于 2022-8-15 21:39
+
+ruru做vpgame做到家里人都进去踩缝纫机了，得亏当时做切割做得好自己才没事
+
+这种人说什么亏不亏本赚不赚钱，我反正一个字都不会信
+
+*****
+
+####  lyjssj  
+##### 13385#       发表于 2022-8-15 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你们说这些谁懂啊。我们ti8开始看dota的，萧瑟哥哥就是我们心中的第一C
+
+老逼c老黄历麻烦拿远点，那时候我们还在穿开裆裤呢
+
+*****
+
+####  希望之花  
+##### 13386#       发表于 2022-8-15 21:40
+
+<blockquote>nowaki 发表于 2022-8-15 21:31
+赛拉直播第四把都快睡着了，看到斧王吼三个激动的喊了ceb，a畜盾起来bkbtp走，他在那喊吼！哦cd了。
+
+霸气 ...</blockquote>
+有切片或者录播地址吗，急今晚下饭靠这个了
+
+*****
+
+####  阿垃垃圾历  
+##### 13387#       发表于 2022-8-15 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080782&amp;ptid=2084957" target="_blank">希望之花 发表于 2022-8-15 21:40</a>
+有切片或者录播地址吗，急今晚下饭靠这个了</blockquote>
+同样很急 给个下饭的地址
+
+*****
+
+####  杜文乐超神归来  
+##### 13388#       发表于 2022-8-15 21:41
+
+<img src="https://img.saraba1st.com/forum/202208/15/214125gi6iranndno11dqv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 21:41 上传
+
+怎么回事呢
+
