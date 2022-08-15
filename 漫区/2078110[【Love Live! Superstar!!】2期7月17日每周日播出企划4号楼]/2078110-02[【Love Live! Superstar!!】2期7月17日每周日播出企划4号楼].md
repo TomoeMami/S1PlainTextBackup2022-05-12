@@ -13520,3 +13520,15 @@ liella之歌还行，oped不纯纯cylx吗？特别那op，サビ写的是真sabi
 
 https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看看。有点东西
 
+
+
+*****
+
+####  adw667  
+##### 2807#       发表于 2022-8-16 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083469&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-8-16 07:21</a>
+
+https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">那我更觉得制作组有病了，有心思把一句话打磨得看起来有问题实际没问题没心思打磨整个剧本
+
