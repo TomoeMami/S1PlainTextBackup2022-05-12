@@ -15216,3 +15216,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 不过宝具动画里连衣服都给固定 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷懒是这样的 例如公主
 
+
+
+*****
+
+####  qixinno2  
+##### 1428#       发表于 2022-8-16 07:51
+
+鹤小姐彩蛋就是吐舌 就不能整个妖兰那种彩蛋么
+

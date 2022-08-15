@@ -13624,3 +13624,24 @@ LGD 这个队伍有没有点李宗伟的味道？ 悲壮。 我平时打羽毛�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  千千千千鸟  
+##### 13497#       发表于 2022-8-16 07:45
+
+一觉醒来还没更新版本吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+ti本子和新改动赶紧抬出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  帽子戏法马夏尔  
+##### 13498#       发表于 2022-8-16 07:48
+
+看到楼里说vpgame，我记得ti6之前啥时候来着，那时候突然爆出ruru告了当时vpgame的合伙人，名字忘了，然后那两天那个合伙人在知乎疯狂爆料ruru在vpgame的黑料，除了赌场捞分成外印象最深的就是ti5拿到了当时参赛队伍的训练赛资料，威胁说要告到v社让lgd禁赛，不过不知道后来怎么私了的，过了两天他把这些内容都清了好像
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
