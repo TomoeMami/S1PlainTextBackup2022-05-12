@@ -13078,3 +13078,22 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 寄，基本错过了，等回放好了</blockquote>
 前几天人估计多，我估计月底我再过去
 
+
+
+*****
+
+####  型月重工  
+##### 2764#       发表于 2022-8-15 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079280&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-8-15 19:32</a>
+
+公开骂娘那是工作不想要了倒也扯不到操守，不好受归不好受，工作还得做，日子还得过嘛。 ...</blockquote>
+大不了回国，鲤鱼又不是像其他日本人没退路。
+
+*****
+
+####  adw667  
+##### 2765#       发表于 2022-8-15 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到有人烤了那份合同，只能说夏美没被80到紫砂真是香音脾气好
+
