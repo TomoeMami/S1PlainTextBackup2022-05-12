@@ -12711,3 +12711,33 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 就没几个塑造好了
 
+
+
+*****
+
+####  仟音一心  
+##### 2730#       发表于 2022-8-15 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075320&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-15 14:57</a>
+
+啊这有点附会了。
+
+且不说以前团活动拿个人号来发是再正常不过的事了，毕竟也没什么利益，阿b那时也没多少 ...</blockquote>
+我知道，所以这么小的事情不可能是花田参考了啥的，就是反过来说明CEO这个事其实很正常，考虑到下一回就入队肯定冷处理了。
+
+
+
+*****
+
+####  ads147147  
+##### 2731#       发表于 2022-8-15 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075086&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 14:40</a>
+
+CEO引流这个事居然现实中也是有的：
+
+https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</blockquote>
+虽然我觉得国内做cos这样搞问题也不大，国内更是没有什么账号收益的说法，但是这文怎么看的感觉阴阳怪气的。
+
+先看看，第六集出来就知道是骡子是马了。
+

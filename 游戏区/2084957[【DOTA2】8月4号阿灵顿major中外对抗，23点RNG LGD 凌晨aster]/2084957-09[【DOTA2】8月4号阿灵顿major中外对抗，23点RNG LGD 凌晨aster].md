@@ -9023,3 +9023,91 @@ Team SMG
 
 这次线上看直播体验也是垃圾，官方比赛直播不能客户端自己切OB得用官方源，然后官方OB切的稀烂
 
+
+
+*****
+
+####  Litccc  
+##### 13023#       发表于 2022-8-15 15:02
+
+观众里还有个白男魔怔人举tw的牌子<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰烬白羽  
+##### 13024#       发表于 2022-8-15 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069566&amp;ptid=2084957" target="_blank">黑暗剑qui 发表于 2022-8-15 08:51</a>
+
+lgd输了，萧瑟giegie没输！</blockquote>
+戏来了是吧，不黑处就是集美，可以，这很野种
+
+*****
+
+####  subject07  
+##### 13025#       发表于 2022-8-15 15:06
+
+最迟下周该更新了吧
+
+*****
+
+####  沈淮  
+##### 13026#         楼主| 发表于 2022-8-15 15:07
+
+最迟是9月3号，别尬黑
+
+*****
+
+####  反方向的波  
+##### 13027#       发表于 2022-8-15 15:08
+
+来源：@Aster星辰电子竞技俱乐部 微博
+
+新阵容的第一次Major以第三的成绩结束，这个成绩在也创造了我们Aster自己的历史。一路走来，我们成为了小组第一，打破了所谓的东南亚魔咒以及从未在Major上赢下BO3的尴尬历史。在战胜了曾经的双冠俱乐部OG之后，我们最终在败决输给了TI10冠军Team Spirit。这个结果我们满意，但不会知足。我们会好好总结本次Major，从中学习其他队伍的长处，改掉自己的不足。
+
+接下来队伍将奔赴马来西亚准备ESL One马来西亚的比赛。在ESL One马来结束之后，队伍将回到国内，继续训练备战。
+
+*****
+
+####  阿垃垃圾历  
+##### 13028#       发表于 2022-8-15 15:08
+
+9月3号也太久了 恨不得明天就更新 刚好esl可以看看更新后的比赛 
+
+*****
+
+####  星野航  
+##### 13029#       发表于 2022-8-15 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075208&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 15:49</a>
+文丑这成分存疑啊，众所周知，超级集美论坛这些地方都在清算队友，能直球辱骂处长的无非就几个地方 ...</blockquote>
+这不是揶揄你楼这样搞清算的a黑呢么
+你让xinq真的去揶揄萧瑟本人那是不可能的
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  反方向的波  
+##### 13030#       发表于 2022-8-15 15:09
+
+懒狗社马上安排一个比赛打到一半突然大更
+
+*****
+
+####  walfeds  
+##### 13031#       发表于 2022-8-15 15:11
+
+假赛哥牛啊牛啊，都回来了
+
+*****
+
+####  遍体精淋af  
+##### 13032#       发表于 2022-8-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075478&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 15:08</a>
+来源：@Aster星辰电子竞技俱乐部 微博
+
+新阵容的第一次Major以第三的成绩结束，这个成绩在也创造了我们Aste ...</blockquote>
+鳖茶还真的是不避梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
