@@ -11597,3 +11597,76 @@ ceeeeeeeeb!
 
 雪碧2：1时候的g4斧王懂得都懂<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 11945#         楼主| 发表于 2022-8-15 07:51
+
+我个人是觉得伐木机好点的
+
+*****
+
+####  阿垃垃圾历  
+##### 11946#       发表于 2022-8-15 07:52
+
+一觉醒来 2:1了  相信萧瑟！
+
+*****
+
+####  nerugigannte  
+##### 11947#       发表于 2022-8-15 07:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧这阵容给老og玩我已经开香槟了，杰瑞拉比克ceb斧王大爹陈，topson女王带着宝宝冲冲冲，ana这次刚被玩得还不错
+
+*****
+
+####  izayoi39  
+##### 11948#       发表于 2022-8-15 07:55
+
+伐木机对线不太好好打ck的，崩溃哥很难接受打不出优势的对线
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  haruhiismer  
+##### 11949#       发表于 2022-8-15 07:56
+
+oxxox?
+
+*****
+
+####  12481632  
+##### 11950#       发表于 2022-8-15 07:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这把输了该清算谁了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 11951#       发表于 2022-8-15 07:57
+
+感觉干瘪更好打一点，雪碧这145的驾驶员不太驾驶得了这几台高达
+
+*****
+
+####  leader01234  
+##### 11952#       发表于 2022-8-15 07:58
+
+斧王这个版本真的能玩吗，路人都见不到，电灯改了之后线上太弱了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  公交老司机  
+##### 11953#       发表于 2022-8-15 08:00
+
+雪碧打得好我支持雪碧还不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
