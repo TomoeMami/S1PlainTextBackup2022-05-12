@@ -14932,3 +14932,42 @@ C呆快满绊了呀
 
 没有掉过的看着你们豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 1400#       发表于 2022-8-15 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080885&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-15 21:47</a>
+
+没有掉过的看着你们豹跳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害礼装 掉了也没屁用啊
+
+*****
+
+####  霧谷藤乃  
+##### 1401#       发表于 2022-8-15 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以为光头要黑，结果我上去看的时候已经34次11连已经4宝伊吹宇津见了，第36发出金狂的时候光头已经竖大拇指了结果是CEO
+
+*****
+
+####  alucardcz  
+##### 1402#       发表于 2022-8-15 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080980&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 21:55</a>
+
+以为光头要黑，结果我上去看的时候已经34次11连已经4宝伊吹宇津见了，第36发出金狂的时候光头已经竖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你又转生了？
+
+*****
+
+####  霧谷藤乃  
+##### 1403#       发表于 2022-8-15 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081001&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 21:56</a>
+
+你又转生了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在看光头（マフィア梶田）直播抽卡而已啦
+

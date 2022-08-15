@@ -12583,3 +12583,99 @@ ruru做vpgame做到家里人都进去踩缝纫机了，得亏当时做切割做�
 
 太后亲人真的进去了？不是很信，一直后台这么硬也没闹大，不可能就进去，顶多罚五杯吧
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 13395#       发表于 2022-8-15 21:52
+
+怎么回事，水友们还在清算我家geigei，经过今天一役，我已经是彻头彻尾的哥哥铁粉了，哥哥他是人间正道的捍卫者，世间真理的守护神
+
+不说了，跟风发个红包庆祝下
+
+口令：今天开始当哥哥铁粉
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 10战斗力 +12
+
+|昵称|战斗力|理由|
+|----|---|---|
+| walfeds| + 1|好评加鹅|
+| 风疯峰| + 1|好评加鹅|
+| 没钱买手办| + 2|好评加鹅|
+| nightmare902015| + 1|好评加鹅|
+| 柚上舍人| + 1|感谢漏油的半瓶雪碧|
+| 白色的120| + 2|好评加鹅|
+| masterkeaton| + 1|好评加鹅|
+| 很久就在那边l| + 1||
+| 百世诸侯| + 1|萧瑟跌倒，楼友吃饱👍|
+| tengshuo980| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  nerugigannte  
+##### 13396#       发表于 2022-8-15 21:54
+
+今天开始当哥哥铁粉
+
+*****
+
+####  nightmare902015  
+##### 13397#       发表于 2022-8-15 21:54
+
+终于抢到一次，蕾姆蕾姆
+
+*****
+
+####  白色的120  
+##### 13398#       发表于 2022-8-15 21:55
+
+yatoro还说自己是掀背粉丝，明明是鳖孙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/d031671849ce5a42d881e809842f6827/CMP_20220815215453423.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 13399#       发表于 2022-8-15 21:56
+
+major上掀背发挥了下漏油们就开心成这样，ti决赛再来波大的得向giegie表白了啊
+
+*****
+
+####  thistimeforlife  
+##### 13400#       发表于 2022-8-15 21:57
+
+yatoro和ceb这种套路吹ame，大家都懂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 13401#       发表于 2022-8-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080995&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-15 21:56</a>
+
+major上掀背发挥了下漏油们就开心成这样，ti决赛再来波大的得向giegie表白了啊 ...</blockquote>
+别向GIEGIE表白了，掀背TI整大活儿了妮向女同事表白吧
+
+*****
+
+####  walfeds  
+##### 13402#       发表于 2022-8-15 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑，ceb从没给过北美a处面子，证明是giegie真爱粉
+
+*****
+
+####  lyjssj  
+##### 13403#       发表于 2022-8-15 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不装了吗Y神
+

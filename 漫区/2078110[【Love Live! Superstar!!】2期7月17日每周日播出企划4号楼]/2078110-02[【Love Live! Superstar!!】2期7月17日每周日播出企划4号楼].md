@@ -13165,3 +13165,15 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 香音也是算最烂的立德了
 
+
+
+*****
+
+####  adw667  
+##### 2773#       发表于 2022-8-15 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080348&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-15 21:04</a>
+
+所以本子那边更愿意车这个，而不是可堇啊</blockquote>
+我因为是直接看的熟肉所以一开始不明白怎么会有人看完生肉会觉得这集还行的，现在合同这勺芡汁一浇上去我才明白有的东西看不懂的话确实容易误判<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
