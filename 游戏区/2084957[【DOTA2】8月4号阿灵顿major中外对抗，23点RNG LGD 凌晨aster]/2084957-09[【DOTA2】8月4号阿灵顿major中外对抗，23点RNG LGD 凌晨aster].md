@@ -4949,3 +4949,169 @@ dota2抄csgo的瑞士论单败就是傻逼赛制没啥好说的，第一次瑞�
 
 越看越怪，16波士顿major是gsl小组赛，17基辅major是残疾版瑞士轮，18布加勒斯特major是完全体瑞士轮，只有这三个比赛是单败淘汰赛，除开这三个的所有major都是双败淘汰赛
 
+
+
+*****
+
+####  沈淮  
+##### 12578#         楼主| 发表于 2022-8-15 10:11
+
+dota2里面搞瑞士轮就是垃圾没啥好说，仅次于ti1的胜者组冠军天然拿一分
+
+*****
+
+####  朝奈  
+##### 12579#       发表于 2022-8-15 10:11
+
+坏消息是 当年的major冠军都不是TI冠军
+
+好消息是 当年的major亚军也都不是TI冠军
+
+那今年冠军只能是我拳酱了!
+
+*****
+
+####  ArowRocher  
+##### 12580#       发表于 2022-8-15 10:12
+
+major都打完了，再也没见到父子局solo的漏油
+
+*****
+
+####  阿垃垃圾历  
+##### 12581#       发表于 2022-8-15 10:12
+
+怎么不能是我rng  文武老将最后的战役了 
+
+*****
+
+####  nightmare902015  
+##### 12582#       发表于 2022-8-15 10:13
+
+别尬黑只是缩地了，你插真眼就能看见
+
+*****
+
+####  遍体精淋af  
+##### 12583#       发表于 2022-8-15 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">假设今年西恩ti4席，那么是干瘪和鳖茶加上rngxgig其中两位（ehomevg和清茶也有可能但是概率比较小），私心还是很想xg进ti的，毕竟lou算是新c，其他几个新c进ti的概率还是太小了
+
+*****
+
+####  nightmare902015  
+##### 12584#       发表于 2022-8-15 10:13
+
+别尬黑只是缩地了，你插真眼就能看见
+
+*****
+
+####  walfeds  
+##### 12585#       发表于 2022-8-15 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被暗黑决斗吞噬了
+
+*****
+
+####  沈淮  
+##### 12586#         楼主| 发表于 2022-8-15 10:13
+
+皮套狗还是滚回去直播撸狗游戏吧，别jb到处蹭了，最后被a畜vote了就好玩了
+
+*****
+
+####  百世诸侯  
+##### 12587#       发表于 2022-8-15 10:13
+
+别尬黑，领红包的时候出现了
+
+*****
+
+####  星野航  
+##### 12588#       发表于 2022-8-15 10:14
+
+xg今年进来也很难复刻vg前六了
+毕竟丁聪今年这状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  甩不出去的黄牌  
+##### 12589#       发表于 2022-8-15 10:14
+
+拉克希尔的楼友恐怕已经被打入虚空了吧
+
+*****
+
+####  沈淮  
+##### 12590#         楼主| 发表于 2022-8-15 10:14
+
+我上sg看看eesama还在不在
+
+*****
+
+####  一品堂官  
+##### 12591#       发表于 2022-8-15 10:15
+
+超级假赛论坛“关键时候nts站不出来”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 你给选个船长站个寄吧啊 
+
+为了洗地真的是什么屎都能喷 前两把nts的表现我都快给猴爹跪下了 能被这么说
+
+怪不得社区赛一个队都凑不出来 笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 劝群友们少搬 侮辱智商
+
+*****
+
+####  gorilla994  
+##### 12592#       发表于 2022-8-15 10:15
+
+#查询老干瘪无敌时间
+
+*****
+
+####  沈淮  
+##### 12593#         楼主| 发表于 2022-8-15 10:16
+
+我再知道lgd为什么拿不到TI冠军了
+[https://bbs.sgamer.com/thread-14170837-1-1.html](https://bbs.sgamer.com/thread-14170837-1-1.html)
+
+(出处: 超级玩家官方论坛)
+
+lio真的春春野种啊，22来评价18年的比赛
+
+*****
+
+####  seki_m  
+##### 12594#       发表于 2022-8-15 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">阿茶会不会被冲啊“把雪碧打醒了”
+
+*****
+
+####  ml1642879  
+##### 12595#       发表于 2022-8-15 10:17
+
+RNG游出预选 IG游出LCQ，求求了，我还想看一次TI8原班人马！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smkf013  
+##### 12596#       发表于 2022-8-15 10:18
+
+看了下liquipedia上第二把74分钟输完就跳过再而衰直接三而竭了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+严正告诉你们，你们不要太跳了，LGD不拿美酒冠军，是怕TI前就被V社削了，志在TI耳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chilno  
+##### 12597#       发表于 2022-8-15 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070930&amp;ptid=2084957" target="_blank">朝奈 发表于 2022-8-15 10:11</a>
+坏消息是 当年的major冠军都不是TI冠军
+
+好消息是 当年的major亚军也都不是TI冠军
+
+那今年冠军只能是我拳酱了 ...</blockquote>
+懂了，是我鳖鳖最后一春！
+
