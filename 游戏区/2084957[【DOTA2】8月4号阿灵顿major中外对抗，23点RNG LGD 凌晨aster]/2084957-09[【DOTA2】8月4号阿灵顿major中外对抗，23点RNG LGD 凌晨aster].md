@@ -13193,3 +13193,56 @@ misha是绝对的建队核心，虽然打得像个买号的老板
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">misha这签证看来是不可能过了
 
+
+
+*****
+
+####  CNFH1984  
+##### 13458#       发表于 2022-8-15 23:12
+
+幸好漏油记得名字，我翻半天都翻不到裁判文书，我还以为我记错了ruru那个弟弟没进去呢……
+
+*****
+
+####  何然  
+##### 13459#       发表于 2022-8-15 23:14
+
+0.25看了下仙贝在G4送的第一个头
+
+大家都以为是臂章没切出来是吧
+
+实际上我给你们讲，打到丝血的应该是拉比克的弱化能流
+
+我们仙贝他，根本没切臂章
+
+TP落地后直接开着臂章冲上去就没动过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 13460#       发表于 2022-8-15 23:18
+
+特么的，输了游戏，漏了萨特放波，哭哭惹
+
+*****
+
+####  反方向的波  
+##### 13461#       发表于 2022-8-15 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">哇，真mindfuck啊
+
+*****
+
+####  杜文乐超神归来  
+##### 13462#       发表于 2022-8-15 23:19
+
+<img src="https://img.saraba1st.com/forum/202208/15/231941ae5d4cs4gg5ck8el.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 23:19 上传
+
+照这个速度是不是猴爹也快了
+

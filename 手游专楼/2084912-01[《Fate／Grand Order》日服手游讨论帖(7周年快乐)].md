@@ -15092,3 +15092,14 @@ C呆快满绊了呀
 
 光头62发11连才5个エリセ，是要多难出
 
+
+
+*****
+
+####  gulant  
+##### 1417#       发表于 2022-8-15 23:17
+
+rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有点劝退了，就看三破泳装是否能回分。
+
