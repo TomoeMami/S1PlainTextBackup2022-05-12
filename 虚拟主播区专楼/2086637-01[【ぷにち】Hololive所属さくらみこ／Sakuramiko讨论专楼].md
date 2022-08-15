@@ -1258,3 +1258,14 @@ JP里叫人当然更方便但是建筑水平跟土人实在不能比而且效率
 
 刚才阿火rust下播这边MC同接涨了5000还行
 
+
+
+*****
+
+####  holoan  
+##### 115#         楼主| 发表于 2022-8-15 12:12
+
+苦力怕来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+果然miko的MC里少不了
+

@@ -7223,3 +7223,279 @@ naga怎么玩ti10总决g1不是教学局了吗，a畜学不会啊<img src="https
 
 第二把是真好看，9个世界级的对决
 
+
+
+*****
+
+####  百世诸侯  
+##### 12827#       发表于 2022-8-15 12:00
+
+虽然我在这楼里频繁给处长洗地，热衷于杠四赵云，但我确实不是集美，如果你们说我是集美就证明你们身份政治入脑了，水平不如nga😤
+
+*****
+
+####  zsu222  
+##### 12828#       发表于 2022-8-15 12:00
+
+娜迦感觉唯一出路就是回滚到  大招接团控combo版本了
+
+*****
+
+####  沈淮  
+##### 12829#         楼主| 发表于 2022-8-15 12:01
+
+<img src="https://fj2.sgamer.com/attachment/forum/202208/15/113822stpcarpzxb1arxbx.jpg" referrerpolicy="no-referrer">
+
+<img src="https://fj2.sgamer.com/attachment/forum/202208/15/113838hzdtvykc20muyeyt.jpg" referrerpolicy="no-referrer">
+
+兄弟们！Ceb和崩溃哥也加入咱们论坛了！
+[https://bbs.sgamer.com/thread-14171969-1-1.html](https://bbs.sgamer.com/thread-14171969-1-1.html)
+
+(出处: 超级玩家官方论坛)
+
+*****
+
+####  遍体精淋af  
+##### 12830#       发表于 2022-8-15 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072661&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-15 11:50</a>
+按说35冠军都拿过了什么荣誉都有了应该不至于有心态问题吧，也不知道怎么打成这个样子 ...</blockquote>
+按照决赛表现2&gt;3&gt;5&gt;4&gt;1也不能说没心态，胜决也是靠明鞭的无敌大锤翻的盘，文爱胖子才是真正的决赛心态崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 12831#       发表于 2022-8-15 12:01
+
+集美和A黑一直都相信着萧瑟哥哥，为什么不能互相理解呢
+
+*****
+
+####  BallanceHZ  
+##### 12832#       发表于 2022-8-15 12:01
+
+ 本帖最后由 BallanceHZ 于 2022-8-15 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072804&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 11:56</a>
+
+你自己在这玩拉踩，然后装李忠克意思是别人说不得？</blockquote>
+
+说得啊，但我不觉得你给我扣的帽子是对的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说实话，我还真去翻了下我在这次major间的回复，然后还是不理解为啥就多了个帽子
+
+*****
+
+####  lyjssj  
+##### 12833#       发表于 2022-8-15 12:03
+
+<img src="https://img.saraba1st.com/forum/202208/15/120252qz07000idtmr9kz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0663F21E-A2A4-4174-9040-5D3482816184.jpeg</strong> (23.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 12:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尽量搬点角度刁钻的shi
+
+*****
+
+####  Endle  
+##### 12834#       发表于 2022-8-15 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069380&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 08:41</a>
+不知道量子鞭看到那个斧王会不会想起六年前的自己</blockquote>
+我觉得应该能回忆起2018年的夏天吧
+
+*****
+
+####  CNFH1984  
+##### 12835#       发表于 2022-8-15 12:04
+
+还在4赵云，说过了345仨于禁，2庞德！
+
+*****
+
+####  CNFH1984  
+##### 12836#       发表于 2022-8-15 12:04
+
+哦刚刚翻了下阿绿的直播回放，还真是皮鞋说查理斯他们回不来了……那在外面打预选？
+
+*****
+
+####  zsu222  
+##### 12837#       发表于 2022-8-15 12:05
+
+真要说起来 DOTA2打瑞士轮我觉得有点不行
+
+*****
+
+####  mkii量产型  
+##### 12838#       发表于 2022-8-15 12:05
+
+nga那群太监已经开始吹崩溃兽王拉野了，这他妈不是天梯套路吗，3000分段都有人这样玩，甚至还有小up月初出视频详解了，太监们这样好一惊一乍的？不过他们都做集美了，可能真不知道
+
+*****
+
+####  BallanceHZ  
+##### 12839#       发表于 2022-8-15 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072941&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-15 12:05</a>
+真要说起来 DOTA2打瑞士轮我觉得有点不行</blockquote>
+瑞士轮那次major太难看了，现在赛制没啥大问题，就这样挺好的
+
+*****
+
+####  朝奈  
+##### 12840#       发表于 2022-8-15 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072610&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 11:47</a>
+
+旧时代面八的bp是突出四平八稳中稳一个字。
+
+啥强势选啥，啥好用选啥。</blockquote>
+得了吧,一开始还在李狗蛋打的时候面八的Ban也是有梗的,经常性头铁放对面绝活
+
+也没什么好稳的
+
+
+
+*****
+
+####  吃货红毛  
+##### 12841#       发表于 2022-8-15 12:06
+
+Lgd决赛又手腿都软了 雪碧进化速度是真的快 老说他们赛亚人这比喻真是够合适的 照这情况ti估计雪碧在小组赛就够他们玩懂新版本了来自: iPhone客户端
+
+*****
+
+####  百世诸侯  
+##### 12842#       发表于 2022-8-15 12:06
+
+别于禁了，于禁被水淹七军前大家都觉得他不比赵云差呢，时势造英雄懂又不懂啊
+
+*****
+
+####  沈淮  
+##### 12843#         楼主| 发表于 2022-8-15 12:07
+
+瑞士轮就是狗屎，波士顿major就定性了的，不过og打的是真的好
+
+*****
+
+####  CNFH1984  
+##### 12844#       发表于 2022-8-15 12:07
+
+<blockquote>百世诸侯 发表于 2022-8-15 12:06
+别于禁了，于禁被水淹七军前大家都觉得他不比赵云差呢，时势造英雄懂又不懂啊 ...</blockquote>
+所以于禁了嘛！
+
+*****
+
+####  北欧王座  
+##### 12845#       发表于 2022-8-15 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072951&amp;ptid=2084957" target="_blank">朝奈 发表于 2022-8-15 12:05</a>
+
+得了吧,一开始还在李狗蛋打的时候面八的Ban也是有梗的,经常性头铁放对面绝活
+
+也没什么好稳的 ...</blockquote>
+估计他意思这个稳属于固化的稳，不敢真的求变。一遇到事就炼金猛犸狼人小小，打的滚瓜烂熟的那几套体系，觉得这些才是版本强势，拿到才感觉自己心里有底的安稳感
+
+*****
+
+####  坚定的团子党  
+##### 12846#       发表于 2022-8-15 12:08
+
+所以说xg放弃major还是挺明智的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  莉拉厨  
+##### 12847#       发表于 2022-8-15 12:08
+
+别魏国了，魏国最后吃鸡了，lgd能吗？
+转念一想，最后吃鸡的好像是司马car<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CNFH1984  
+##### 12848#       发表于 2022-8-15 12:08
+
+努力散布于禁迷因，争取扭转赵云这种不符合真实评价的称号！
+
+*****
+
+####  夜光铃  
+##### 12849#       发表于 2022-8-15 12:08
+
+假赛论已经彻底把国内dota社区摧毁了，本来就是靠比赛吊着这项目最后一口气
+
+*****
+
+####  nightmare902015  
+##### 12850#       发表于 2022-8-15 12:08
+
+魏国经典亚军罢了
+
+*****
+
+####  反方向的波  
+##### 12851#       发表于 2022-8-15 12:09
+
+<img src="https://p.sda1.dev/6/761492f94a814067a49d9195a35833bb/CMP_20220815120758708.jpg" referrerpolicy="no-referrer">
+下一个比赛就是esl了，打卜上这次major的秘密ngm尸王gg都来了，哦尸王兵分两路还是来了，可怜谭大卫
+
+*****
+
+####  北欧王座  
+##### 12852#       发表于 2022-8-15 12:09
+
+其实绿八这些特征也是老问题了，所以去年吹科研队我都想笑。搞点花把式让粉丝到处吹，结果临阵又不敢了哈哈哈。
+
+*****
+
+####  CNFH1984  
+##### 12853#       发表于 2022-8-15 12:09
+
+<blockquote>莉拉厨 发表于 2022-8-15 12:08
+别魏国了，魏国最后吃鸡了，lgd能吗？
+
+转念一想，最后吃鸡的好像是司马car
+</blockquote>
+吃鸡的是晋不是魏嘛……
+
+*****
+
+####  百世诸侯  
+##### 12854#       发表于 2022-8-15 12:09
+
+有没有可能我们已经是后三国时代了，正在经历八王之乱
+
+*****
+
+####  joker9527  
+##### 12855#       发表于 2022-8-15 12:10
+
+在孙正直播间喷集美喷爽了，电脑上打字打了大概20分钟不停，一直在喷，可能发的实在太多了，有个房管看不下去了把我封了一天打了波掩护<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12856#       发表于 2022-8-15 12:10
+
+<blockquote>反方向的波 发表于 2022-8-15 12:09
+下一个比赛就是esl了，打卜上这次major的秘密ngm尸王gg都来了，哦尸王兵分两路还是来了，可怜谭大卫 ...</blockquote>
+就看姜维和廖化能不能进化惹
+
+*****
+
+####  林无德  
+##### 12857#       发表于 2022-8-15 12:10
+
+但凡在掉链子这件事上掉一回链子，lgd早举盾了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

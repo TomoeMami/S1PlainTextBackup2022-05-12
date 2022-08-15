@@ -13228,3 +13228,29 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 本来第1部就该完美退场的角色硬是拖到第2部后段了还要继续拖<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GALLADE  
+##### 1242#       发表于 2022-8-15 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072758&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-8-15 11:54</a>
+
+蘑菇为啥不能硬气点2.6就走玛修敌役路线，我举双手双脚支持
+
+本来第1部就该完美退场的角色硬是拖到第2部后段 ...</blockquote>
+本该转变一下的，老是逆成长和加拉哈德还没认同就很喂屎，加拉哈德风评被害座上破口大骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 1243#       发表于 2022-8-15 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071419&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-15 10:41</a>
+
+话说晴明的立绘还没有出场吗？</blockquote>
+255里完全没有立绘
+
+五年前有个舅舅说过晴明和太公只会落地一个，不知道靠谱不靠谱
+
