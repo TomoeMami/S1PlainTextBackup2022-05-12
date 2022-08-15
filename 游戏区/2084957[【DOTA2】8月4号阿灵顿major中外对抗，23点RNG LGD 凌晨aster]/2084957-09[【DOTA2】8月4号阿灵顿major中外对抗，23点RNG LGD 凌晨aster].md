@@ -5682,3 +5682,169 @@ MDY没有胡说刀塔还是少点味
 
 <blockquote>  不是很能理解石油杯网友一声不吭major全网高潮的现状   搞得好像major的奖励比石油杯高一样 </blockquote>
 
+
+
+*****
+
+####  沈淮  
+##### 12664#         楼主| 发表于 2022-8-15 10:50
+
+<img src="https://fj2.sgamer.com/attachment/forum/202208/15/083735dtd26gt6ep54tjw5.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12665#       发表于 2022-8-15 10:51
+
+看了下nts其实不能算于禁，已经很猛了，奈何确实无力回天
+
+那就三个于禁一个庞德带一个阿斗罢！
+
+*****
+
+####  沈淮  
+##### 12666#         楼主| 发表于 2022-8-15 10:51
+
+不是很能理解ti10网友一声不吭石油杯全网高潮的现状   搞得好像石油杯的奖励比ti高一样
+
+*****
+
+####  12481632  
+##### 12667#       发表于 2022-8-15 10:52
+
+不是很能理解ti10网友一声不吭石油杯全网高潮的现状   搞得好像石油杯的奖励比ti高一样
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  遍体精淋af  
+##### 12668#       发表于 2022-8-15 10:54
+
+<blockquote><strong>​曾经相信假赛的我今年是真被打服了</strong>
+我不是毒狗，我曾经相信假赛因为真的那个ti有些很难解释的东西。但是这一个利雅得一个major，雪碧真的把我打服了，这个队真是个值得尊敬的对手。</blockquote>
+
+*****
+
+####  百世诸侯  
+##### 12669#       发表于 2022-8-15 10:54
+
+TI10结束集美要是一声不吭就好了，刀圈也不至于被boom成今天这个引流狗到处乱踩的样子
+
+*****
+
+####  Minamizawa83  
+##### 12670#       发表于 2022-8-15 10:55
+
+不是很能理解ti10网友一声不吭石油杯全网高潮的现状   搞得好像石油杯的奖励比ti高一样（猴子尖啸
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  百世诸侯  
+##### 12671#       发表于 2022-8-15 10:55
+
+<img src="https://img.saraba1st.com/forum/202208/15/105549x29kiienqze9l2n8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:55 上传
+
+*****
+
+####  CNFH1984  
+##### 12672#       发表于 2022-8-15 10:56
+
+我觉得整个舆论环境都已经没救了
+
+NGA上大多数帖子现在底线已经在“虽然面八和LGD跟菠菜脱不了干系，但只要不下自己队就没事”这种状态
+
+头一次听说从业人员下菠菜没事这种鬼说法，集美为了让自己的话术圆滑一点真是脸都不要了。
+
+*****
+
+####  沈淮  
+##### 12673#         楼主| 发表于 2022-8-15 10:58
+
+是这样得，有材而得生，无材而得纵
+
+*****
+
+####  百世诸侯  
+##### 12674#       发表于 2022-8-15 10:59
+
+<img src="https://img.saraba1st.com/forum/202208/15/105754h41x3f3gfaazyq4t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:57 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105800d24yrswswqdmylt2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105805it5dsn9upn9gtkut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105810jve5rwv4kifdk44e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105817wk0i1crlc9nkollc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105833y6mgg0z0yz6z83h3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105840gb11mhztbbttq1jy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105848fpnvtgbgyyl8vl1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/105857ad8m88jgje8dysmx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:58 上传
+
