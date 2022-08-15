@@ -15191,3 +15191,14 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 我就一个要求，请让伊吹用一二破开宝具
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1426#       发表于 2022-8-16 00:57
+
+这次的宝具都喜欢加彩蛋，而且蓝莓和伊吹都是伸舌头，所以rba.....<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过宝具动画里连衣服都给固定了感觉还是很怪，以前有这样的吗
+
