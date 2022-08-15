@@ -7741,3 +7741,173 @@ https://bbs.sgamer.com/thread-14171704-1-1.html
 而且viper大圣，两个阵地战高手，没那么容易，还有痛苦拉。
 扫不了拖后期小娜迦本来就弱。
 
+
+
+*****
+
+####  nowaki  
+##### 12886#       发表于 2022-8-15 12:30
+
+娜迦带线早赢了 雪碧50分钟的时候就只剩一个兵营了
+
+*****
+
+####  沈淮  
+##### 12887#         楼主| 发表于 2022-8-15 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073306&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-15 12:27</a>
+
+Ceb真在傻狗有号？</blockquote>
+不是，一个萨特找ceb合影拍的照，还有跟collapse的
+
+*****
+
+####  沈淮  
+##### 12888#         楼主| 发表于 2022-8-15 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073321&amp;ptid=2084957" target="_blank">米德 发表于 2022-8-15 12:28</a>
+
+不是完美的问题 昨天现场有白皮猪举4v牌子恶心人</blockquote>
+我的
+
+*****
+
+####  VT1996  
+##### 12889#       发表于 2022-8-15 12:32
+
+令人感慨，为什么同样是从名不见经传到ti童话般夺冠，同样是撸狗老板夺冠后投资lol，为什么雪碧面对队内的国仇家恨还能重回巅峰，而wings却上演无耻的队友直接分崩离析？
+
+*****
+
+####  syndrome2032  
+##### 12890#       发表于 2022-8-15 12:33
+
+ 本帖最后由 syndrome2032 于 2022-8-15 12:37 编辑 
+
+从谁的事后回忆来看，ti6赛前翅膀更衣室气氛不就炸了。
+
+只不过ti6成绩好暂时把矛盾掩盖了。
+
+然后才是半年后基辅major五人出走变random，下面就是散伙被封杀出无耻的队友。再过半年ti7结束完美和valve回收赛事承办权导致封杀毫无意义。
+
+从上帝视角出发，random在ti7作为上届冠军高概率直邀。坚持过ti7 ace的封杀也会变成一纸空文。
+
+然而并没有那么多如果。
+
+*****
+
+####  尸体鲨  
+##### 12891#       发表于 2022-8-15 12:33
+
+Wings打完就想散伙了
+
+*****
+
+####  nightmare902015  
+##### 12892#       发表于 2022-8-15 12:33
+
+你的这些问题，ti10 truesight可以跟你解答
+
+*****
+
+####  acejoe  
+##### 12893#       发表于 2022-8-15 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073379&amp;ptid=2084957" target="_blank">VT1996 发表于 2022-8-15 12:32</a>
+令人感慨，为什么同样是从名不见经传到ti童话般夺冠，同样是撸狗老板夺冠后投资lol，为什么雪碧面对队内的 ...</blockquote>
+利益为先呗。
+
+*****
+
+####  CNFH1984  
+##### 12894#       发表于 2022-8-15 12:34
+
+wings气氛爆炸的关键到底是谁，现在可说不清了……
+
+*****
+
+####  尸体鲨  
+##### 12895#       发表于 2022-8-15 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073368&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 12:31</a>
+不是，一个萨特找ceb合影拍的照，还有跟collapse的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">萨特我砍砍砍
+
+*****
+
+####  遍体精淋af  
+##### 12896#       发表于 2022-8-15 12:35
+
+独联体地区撸狗有什么基本盘，666都能当肯德基代言人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 12897#       发表于 2022-8-15 12:36
+
+打ti6前就想散伙了吧，拿了冠军之后硬着头皮继续打，开始偿还出不了成绩自然就没了
+
+*****
+
+####  遍体精淋af  
+##### 12898#       发表于 2022-8-15 12:36
+
+<blockquote><strong>​雪碧让我想到了dk</strong>
+昨天和茶队的比赛的第二局 雪碧怎么被团灭经济就是不落下 团灭别人一波经济直接5k</blockquote>
+
+*****
+
+####  azccc52  
+##### 12899#       发表于 2022-8-15 12:36
+
+草啊，lgd输了爽了一早上没看楼，错过了楼友们的红包，我又要玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 12900#       发表于 2022-8-15 12:37
+
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没听说这个ace联盟管理或者相关事情呢。
+
+
+
+*****
+
+####  尸体鲨  
+##### 12901#       发表于 2022-8-15 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073470&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 12:37</a>
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来搞了几年被V社干了啊
+
+*****
+
+####  白色的120  
+##### 12902#       发表于 2022-8-15 12:38
+
+ 本帖最后由 白色的120 于 2022-8-15 12:39 编辑 
+
+乐，意思去年yatoro的表现还没能打服集美哈哈哈
+“yatoro这么强跟学习a畜绝对脱不了关系”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/3ae5281e8cf4b2a04300f97387b677ce/CMP_20220815123731590.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 12903#       发表于 2022-8-15 12:39
+
+a畜第二把的娜迦也太小丑了，正面团就是大圣的血包，不带线不偷塔。
+
+*****
+
+####  syndrome2032  
+##### 12904#       发表于 2022-8-15 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073427&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 12:34</a>
+wings气氛爆炸的关键到底是谁，现在可说不清了……</blockquote>
+最主流的证据是二冰压力怪+单身狗搞得34不和。
+
+唯一证据只有最后eh年代二冰跪在eh门口直接被vote，邪恶睿达选了文丑胖子打兄弟dota。
+

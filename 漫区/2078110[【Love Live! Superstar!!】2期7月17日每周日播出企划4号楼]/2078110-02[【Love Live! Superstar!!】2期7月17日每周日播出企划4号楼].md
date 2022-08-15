@@ -12422,3 +12422,29 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 下课吧
 
+
+
+*****
+
+####  L-JoeW  
+##### 2702#       发表于 2022-8-15 12:34
+
+大佬们，你们说的这个第三季是单纯对剧情节奏编排的调侃还是按现在的进度可能真的会有第三季才能讲完啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">没看过以前的动画，查了一下初代和sunshine好像都是两季就讲完了
+
+*****
+
+####  lj205  
+##### 2703#       发表于 2022-8-15 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073430&amp;ptid=2078110" target="_blank">L-JoeW 发表于 2022-8-15 12:34</a>
+
+大佬们，你们说的这个第三季是单纯对剧情节奏编排的调侃还是按现在的进度可能真的会有第三季才能讲完啊[f:0 ...</blockquote>
+第一季的时候我们觉得5个人12集怎样都能把人说的完整，谁想到有个人连个人回都没有，第二季又像拼命在赶路，一种“你们都知道这里怎么回事我就大概写一下就行了后面还有一堆事得说”，所以根本不知道他们到底怎么安排
+
+*****
+
+####  Enakina  
+##### 2704#       发表于 2022-8-15 12:41
+
+又想起了之前的访谈
+
