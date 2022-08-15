@@ -14851,3 +14851,40 @@ C呆快满绊了呀
 
 本当に三人で乗り切りやがった<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  密特里奈斯  
+##### 1392#       发表于 2022-8-15 21:16
+
+ 本帖最后由 密特里奈斯 于 2022-8-15 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077278&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:10</a>
+
+试玩关
+
+太公望+C呆+原版+自己全buff堆上去打了51NP
+
+我该说什么好，反正就是得换人是吧</blockquote>
+我用花嫁CBA小王子，回收60多
+
+还是2狂1骑，花嫁WCBA的话应该6加成打33X没问题想了想，这np打1.0甚至22X都够了
+
+问题是伤害……
+
+*****
+
+####  alucardcz  
+##### 1393#       发表于 2022-8-15 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁太乐了  各种暴笑言论 看的停不下来
+
+完了 今天晚上又要被耗掉了吗 我要填坑啊
+
+*****
+
+####  黑上シグマ  
+##### 1394#       发表于 2022-8-15 21:18
+
+バゲ子礼装连掉两张，巴姐礼装估计要等点数了……
+

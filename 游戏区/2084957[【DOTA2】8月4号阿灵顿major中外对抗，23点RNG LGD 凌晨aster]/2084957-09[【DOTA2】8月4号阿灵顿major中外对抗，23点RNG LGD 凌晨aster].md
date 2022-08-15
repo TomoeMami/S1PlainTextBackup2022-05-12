@@ -12277,3 +12277,67 @@ snare是懂亚军的</blockquote>
 
 打得就是四保一，不服打团，打团打到你服为止。
 
+
+
+*****
+
+####  Endle  
+##### 13365#       发表于 2022-8-15 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080173&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-15 20:49</a>
+哇，三十水人那一把队友都把对面淦烂了原来是绝境啊，真是司了马的csdx疯狂洗呀 ...</blockquote>
+帮你补充热知识，水人打猴子不是很好打，但在优势局里常规出装也不是不能打。有专业人士测试过
+
+[https://m.bilibili.com/video/BV1zS4y1X7w8?p=1](https://m.bilibili.com/video/BV1zS4y1X7w8?p=1)
+
+更何况，ti8可不是一般的优势局，而是超级巨大的优势
+
+*****
+
+####  poipanchao  
+##### 13366#       发表于 2022-8-15 21:16
+
+楼友们，常年不用斗鱼了
+
+求问录播在哪看啊？
+
+*****
+
+####  杜文乐超神归来  
+##### 13367#       发表于 2022-8-15 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080486&amp;ptid=2084957" target="_blank">poipanchao 发表于 2022-8-15 21:16</a>
+
+楼友们，常年不用斗鱼了
+
+求问录播在哪看啊？</blockquote>
+在直播间点主播头像进鱼吧，点视频有回放
+
+*****
+
+####  nowaki  
+##### 13368#       发表于 2022-8-15 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080486&amp;ptid=2084957" target="_blank">poipanchao 发表于 2022-8-15 21:16</a>
+
+楼友们，常年不用斗鱼了
+
+求问录播在哪看啊？</blockquote>
+直播间右侧弹幕窗上边有个直播回看
+
+*****
+
+####  六娃  
+##### 13369#       发表于 2022-8-15 21:21
+
+听说陈智豪刘嘉俊孙正三个逼疯狂复盘拷打处长，这热度切片man人呢
+
+*****
+
+####  tengshuo980  
+##### 13370#       发表于 2022-8-15 21:21
+
+有点等不急想看到ti上ame堪称精神变态的小丑表演了，要是今年还是亚军真不知道其他四个赵云是啥表情<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

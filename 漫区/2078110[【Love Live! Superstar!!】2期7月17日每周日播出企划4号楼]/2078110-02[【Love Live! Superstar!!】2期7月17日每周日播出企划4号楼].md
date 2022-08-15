@@ -13109,3 +13109,31 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 看到有人烤了那份合同，只能说夏美没被80到紫砂真是香音脾气好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以本子那边更愿意车这个，而不是可堇啊
 
+
+
+*****
+
+####  csolfans  
+##### 2767#       发表于 2022-8-15 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075289&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-15 14:55</a>
+
+三号楼发过
+
+三号楼的8296楼我好闲啊</blockquote>
+谢谢 真的谢谢
+
+*****
+
+####  稀勢のささ  
+##### 2768#       发表于 2022-8-15 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白纸黑字写的清清楚楚 又不是按着头逼香哥哥签的
+
+*****
+
+####  lj205  
+##### 2769#       发表于 2022-8-15 21:16
+
+香音这签的毫不犹豫像极了当初签装修合同的我
+
