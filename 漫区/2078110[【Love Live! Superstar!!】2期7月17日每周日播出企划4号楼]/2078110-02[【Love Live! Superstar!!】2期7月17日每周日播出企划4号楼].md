@@ -12554,3 +12554,32 @@ Pay：可堇关系是一大亮点→指变的更加恶劣
 
 这周日summer sonic了，先关心一下这个能不能正常演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2715#       发表于 2022-8-15 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073962&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-8-15 13:10</a>
+不是带节奏，单纯好奇，卑しい这词在日文里算过分的吗，相当于我们这骂人的话？ ...</blockquote>
+我个人来看……其实也没那么严重，卑しか女在闪耀色彩里还是个名梗
+
+*****
+
+####  JustW_3  
+##### 2716#       发表于 2022-8-15 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57068823&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-8-15 07:45</a>
+京吹的是吉川优子，吉田优子是夏美子啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草草草
+
+*****
+
+####  csolfans  
+##### 2717#       发表于 2022-8-15 14:06
+
+<blockquote>Enakina 发表于 2022-8-15 12:41
+又想起了之前的访谈</blockquote>
+什么访谈
+

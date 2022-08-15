@@ -8626,3 +8626,37 @@ fade就猛了那么几个月，被vg踢了，让皮鞋打四，差点minor都没
 
 看了雪碧三把比赛，治好了我的精神内耗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  撒撒  
+##### 12984#       发表于 2022-8-15 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074551&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 13:56</a>
+
+我只好奇357去哪了，都快打ti预选赛了还没队伍找357当救火队员吗？
+
+去年vg在357去之前bp把被爆，357去之后 ...</blockquote>
+我也好奇，非黑话，马后炮一句，major前就认为rng该找357当教练。不过去年赛季前fy，老11等人组队失败时有流言说357要价100w。
+
+*****
+
+####  沈淮  
+##### 12985#         楼主| 发表于 2022-8-15 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074644&amp;ptid=2084957" target="_blank">撒撒 发表于 2022-8-15 14:03</a>
+
+我也好奇，非黑话，马后炮一句，major前就认为rng该找357当教练。不过去年赛季前fy，老11等人组队失败时有 ...</blockquote>
+去年vg能走那么远，357的banpick取到了很大的作用，后来打完ti10没人要也是有点搞不懂
+
+*****
+
+####  撒撒  
+##### 12986#       发表于 2022-8-15 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074683&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 14:07</a>
+
+去年vg能走那么远，357的banpick取到了很大的作用，后来打完ti10没人要也是有点搞不懂 ...</blockquote>
+是呀很奇怪，100w或者更高的工资要求，要价太高了？
+
