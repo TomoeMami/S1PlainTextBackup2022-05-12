@@ -15052,3 +15052,27 @@ C呆快满绊了呀
 
 不得不说今天这本属实公主体验本了，我这咸鱼练度都能两公主加个没终破的伊吹乱杀，就是满破巴姐礼装比较难借到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 1412#       发表于 2022-8-15 22:43
+
+商店搬完了，彻底进入净亏模式
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 1413#       发表于 2022-8-15 22:45
+
+艹，爬着你们一个个说掉礼装的楼结果我也掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砂糖方块  
+##### 1414#       发表于 2022-8-15 22:50
+
+兄啊，最近的活动礼装都是轮替着单掉落的，掉妖高的本没巴姐
+

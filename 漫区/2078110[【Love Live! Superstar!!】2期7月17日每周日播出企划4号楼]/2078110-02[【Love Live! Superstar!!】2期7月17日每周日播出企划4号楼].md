@@ -13273,3 +13273,59 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 19年的老物件了</blockquote>
 懂了懂了谢谢
 
+
+
+*****
+
+####  古战场亡魂  
+##### 2782#       发表于 2022-8-15 22:44
+
+之前就知道是卖团合同，没想到卖的这么彻底，肖像权、摄影权、著作权白送。
+
+然后她们的还有履行合同义务和保密义务。
+
+香音是真的牛逼，不敢当部长不敢堂堂正正面对摄影机，但是敢当代表，代表5人签卖团合同。
+
+上面好歹没写违约金啥的，不然其他几个人翻脸都没用。
+
+香音你不在本子里被ceo弄下海简直天理难容。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gane1010  
+##### 2783#       发表于 2022-8-15 22:46
+
+虽说未成年人没有法律效应  但是这合同也太逆天了吧 制作组脑子怎么想的
+
+*****
+
+####  kirimori  
+##### 2784#       发表于 2022-8-15 22:46
+
+CEO入队用两话有点意外，都不知道该不该说上心了。不直接入队而是先当经纪人我猜单纯是因为直接入队的路子堇用过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 2785#       发表于 2022-8-15 22:47
+
+ 本帖最后由 古战场亡魂 于 2022-8-15 22:48 编辑 
+
+对了，因为大家都是未成年，合同没有监护人追认无效。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">香音在大气层呢。
+
+*****
+
+####  kata魂  
+##### 2786#       发表于 2022-8-15 22:48
+
+嗯，恋也两回，猜猜用没用心
+
+我片尾小曲子都暗示两个人一样了，到时候别怪我啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 2787#       发表于 2022-8-15 22:50
+
+这合同真的是傻子才签，大香老师到底是活菩萨还是阿库娅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

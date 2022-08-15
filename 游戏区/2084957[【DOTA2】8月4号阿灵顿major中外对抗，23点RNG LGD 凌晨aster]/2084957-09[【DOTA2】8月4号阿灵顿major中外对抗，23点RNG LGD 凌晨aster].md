@@ -12949,3 +12949,80 @@ ru婊的堂弟</blockquote>
 潘飞之前还在和小何开线上会议，是人在监狱开的吗</blockquote>
 不是哪个
 
+
+
+*****
+
+####  ishikawa_k  
+##### 13434#       发表于 2022-8-15 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081472&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 22:40</a>
+
+不是哪个</blockquote>
+那是哪个捏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 13435#       发表于 2022-8-15 22:43
+
+别清算我好吧，我是掀背铁粉，我选择在nga混入有质疑声的时候相信继续相信掀背！祝愿掀背ti11继续不负众望！基德基德
+
+口令：ti11继续相信掀背
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 逃离二次元| + 1|好评加鹅|
+| 莉拉厨| + 1|好好好|
+| 沈淮| + 1||
+| mkii量产型| + 1|好评加鹅|
+| a1370303| + 1|欢乐多|
+| 12481632| + 1|好评加鹅|
+| seki_m| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  一品堂官  
+##### 13436#       发表于 2022-8-15 22:48
+
+好难 狗头人抢不到<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 13437#         楼主| 发表于 2022-8-15 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">狂按f5
+
+*****
+
+####  百世诸侯  
+##### 13438#       发表于 2022-8-15 22:48
+
+ESL马来西亚官方文档公布，Chu在OG替补misha
+
+<img src="https://img.saraba1st.com/forum/202208/15/224651eh7hl69hcr38ee77.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 22:46 上传
+
+可以，到时候看看Chu的操作畜不畜
+
+*****
+
+####  沈淮  
+##### 13439#         楼主| 发表于 2022-8-15 22:49
+
+misha家里有事是吧
+
