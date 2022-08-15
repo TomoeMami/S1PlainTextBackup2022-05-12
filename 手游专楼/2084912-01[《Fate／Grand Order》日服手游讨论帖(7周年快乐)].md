@@ -15181,3 +15181,13 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rba这宝具还不如他的ex攻击。。。基本就一张图片  比当年杀肉丸还敷衍
 
+
+
+*****
+
+####  exiaexa  
+##### 1425#       发表于 2022-8-16 00:35
+
+我就一个要求，请让伊吹用一二破开宝具
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

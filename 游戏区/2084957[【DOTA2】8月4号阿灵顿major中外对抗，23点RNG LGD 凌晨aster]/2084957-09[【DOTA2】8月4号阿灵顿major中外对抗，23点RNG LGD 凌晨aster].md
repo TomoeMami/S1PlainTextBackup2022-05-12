@@ -13441,3 +13441,16 @@ V社只能说私人企业说话是真的硬气
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Cookiekira  
+##### 13481#       发表于 2022-8-16 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080114&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-15 20:45</a>
+感兴趣的漏油可以暗中观察一下collapse小号的天梯频率、英雄池和胜率，有惊喜
+
+三个号：302214028 165064674 ...</blockquote>
+mark了 一帧一帧学！
+
