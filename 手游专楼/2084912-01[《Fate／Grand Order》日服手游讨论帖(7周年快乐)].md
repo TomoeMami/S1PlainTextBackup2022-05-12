@@ -14777,3 +14777,12 @@ C呆快满绊了呀
 好消息 萌新也掉礼装了 坏消息 掉的是妖高</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我至今没掉
 
+
+
+*****
+
+####  alucardcz  
+##### 1384#       发表于 2022-8-15 20:10
+
+刚刚看到rba宝具正面立绘。。。。。。。。。。。。。这人体比例是不是有问题 给人一种矮肥圆的感觉
+

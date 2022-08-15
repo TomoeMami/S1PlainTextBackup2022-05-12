@@ -11688,3 +11688,149 @@ zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
 
 我都记不起王仙贝这赛季有没有爽过敌法了
 
+
+
+*****
+
+####  thistimeforlife  
+##### 13314#       发表于 2022-8-15 20:04
+
+<img src="https://img.saraba1st.com/forum/202208/15/200316f6ah9g26f7l66322.jpg" referrerpolicy="no-referrer">
+
+<strong>myboy.jpg</strong> (24.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:03 上传
+
+复习一下，北美a处和中国饭皇<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 13315#       发表于 2022-8-15 20:05
+
+感谢老干鳖 你的到来拯救了雪碧()
+<img src="https://p.sda1.dev/6/aa4a2107bce488d9fca7fea96d7f3189/CMP_20220815200448027.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">买瓶雪碧庆祝一下
+
+*****
+
+####  白野苍衣  
+##### 13316#       发表于 2022-8-15 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐，北美A处和中国饭皇还挺惺惺相惜的。
+
+*****
+
+####  朝游北海  
+##### 13317#       发表于 2022-8-15 20:07
+
+干，我只领到了三毛钱，漏油们开了特别提醒是吧
+
+*****
+
+####  六娃  
+##### 13318#       发表于 2022-8-15 20:08
+
+逐帧复盘了一下G2，结论是，9个高叟和一个买号的
+
+林老师应该去解说比赛，他可能是这个世界上最懂A畜之人
+
+*****
+
+####  何然  
+##### 13319#       发表于 2022-8-15 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079632&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 20:02</a>
+徐老鳖在宇宙第一赛事dac打OG好歹还能选个冠名am爽一把。
+
+我都记不起王仙贝这赛季有没有爽过敌法了 ...</blockquote>
+哥哥回家局拿敌法送鳖鳖上飞机已经够爽一辈子了好吧
+
+*****
+
+####  沈淮  
+##### 13320#         楼主| 发表于 2022-8-15 20:09
+
+莫奈特发的
+
+<img src="https://img.saraba1st.com/forum/202208/15/200919fck4cpx0kuwsz70m.jpg" referrerpolicy="no-referrer">
+
+<strong>psc (6).jpg</strong> (15.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/200919vhd8802z0pdkkk8r.jpg" referrerpolicy="no-referrer">
+
+<strong>psc (5).jpg</strong> (285.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/200920bvggnsqsazuu82a1.jpg" referrerpolicy="no-referrer">
+
+<strong>psc (4).jpg</strong> (325.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/200920kualtsa2ignuiiup.jpg" referrerpolicy="no-referrer">
+
+<strong>psc (3).jpg</strong> (400.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/200920rmm1uu111u57xcb3.jpg" referrerpolicy="no-referrer">
+
+<strong>psc (2).jpg</strong> (185.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 20:09 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IG.430| + 1||
+
+查看全部评分
+
+
+
+*****
+
+####  w2210059  
+##### 13321#       发表于 2022-8-15 20:11
+
+Ame the Choker of all time
+
+油管上这个评价还挺合适的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 13322#       发表于 2022-8-15 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079712&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 20:09</a>
+莫奈特发的</blockquote>
+厨子为什么对着他激凸了
+
+*****
+
+####  IG.430  
+##### 13323#       发表于 2022-8-15 20:12
+
+鹏子越看越谐
+
