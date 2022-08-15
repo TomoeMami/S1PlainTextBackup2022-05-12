@@ -12514,3 +12514,72 @@ ruru做vpgame做到家里人都进去踩缝纫机了，得亏当时做切割做�
 
 怎么回事呢
 
+
+
+*****
+
+####  nowaki  
+##### 13389#       发表于 2022-8-15 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080782&amp;ptid=2084957" target="_blank">希望之花 发表于 2022-8-15 21:40</a>
+
+有切片或者录播地址吗，急今晚下饭靠这个了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">谁敢做这个切片啊，真当集美缩了啊。
+
+霸气 hao 塞拉都在斗鱼直播，进他们直播间右侧弹幕窗上方有直播回放，看今天的就行。看核桃的最乐
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|谢谢指路|
+
+查看全部评分
+
+*****
+
+####  白野苍衣  
+##### 13390#       发表于 2022-8-15 21:43
+
+核桃毕竟冠军C就不多说了，孙正TI5的表现处长这辈子打不出来。
+
+*****
+
+####  izayoi39  
+##### 13391#       发表于 2022-8-15 21:45
+
+国内这些做切片的有多少都是水厂养的就不说了吧，很难有切片会去做这种拷打a/这个水厂二代偶像的片
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  idlerdy  
+##### 13392#       发表于 2022-8-15 21:46
+
+塞拉的解说林鳖切了
+
+*****
+
+####  白色的120  
+##### 13393#       发表于 2022-8-15 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080767&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 21:39</a>
+ruru做vpgame做到家里人都进去踩缝纫机了，得亏当时做切割做得好自己才没事
+
+这种人说什么亏不亏本赚不赚钱 ...</blockquote>
+靠lgd发家致富，转手踢了09的女人，能做赔本买卖？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你可以试试  
+##### 13394#       发表于 2022-8-15 21:46
+
+太后亲人真的进去了？不是很信，一直后台这么硬也没闹大，不可能就进去，顶多罚五杯吧
+

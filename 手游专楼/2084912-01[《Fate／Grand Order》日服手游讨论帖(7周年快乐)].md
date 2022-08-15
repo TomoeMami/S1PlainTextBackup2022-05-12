@@ -14916,3 +14916,19 @@ C呆快满绊了呀
 我也掉了这个本是不是概率调高过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至和上面那个全黑的人一样连掉2张。。满破了
 
+
+
+*****
+
+####  qixinno2  
+##### 1398#       发表于 2022-8-15 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 我也掉了
+
+*****
+
+####  khxooo  
+##### 1399#       发表于 2022-8-15 21:47
+
+没有掉过的看着你们豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
