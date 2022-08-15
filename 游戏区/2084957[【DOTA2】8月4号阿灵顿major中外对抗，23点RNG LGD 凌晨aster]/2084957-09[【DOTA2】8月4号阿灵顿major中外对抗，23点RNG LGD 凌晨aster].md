@@ -8076,3 +8076,154 @@ wings就算不解散也出不了成绩了，善良泽宇ti透支之后一直在�
 
 虽然major钱确实很少，但你萧瑟哥哥一生最高光的冠军也就是一个二次元major了
 
+
+
+*****
+
+####  walfeds  
+##### 12921#       发表于 2022-8-15 13:02
+
+后知后觉，atf连ceb分析台的班也要接是吧
+
+*****
+
+####  syndrome2032  
+##### 12922#       发表于 2022-8-15 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073841&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-15 13:02</a>
+后知后觉，atf连ceb分析台的班也要接是吧</blockquote>
+og.ceb再披战袍，atf转行解说
+
+*****
+
+####  usoda  
+##### 12923#       发表于 2022-8-15 13:04
+
+看了g2的复盘感觉有点离谱 你说莫言不熟悉光法没想到拉人就算了 这脑浆y当年最后一把自己不就是用的光法 敌法回马枪的时候他就开了大准备拉队友过来的 这都不提醒下莫言有这个思路吗？ 感觉当时应该是5个人全部脑浆了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12924#       发表于 2022-8-15 13:05
+
+杰出真的csdx啊 第一把萧瑟满分，第二把nts不出魔晶大锅，萧瑟切入完美 第三把bp问题，第四把量子鞭思想出了问题不当大哥，萧瑟跳刀切入完美不开bkb是小问题
+
+*****
+
+####  4591  
+##### 12925#       发表于 2022-8-15 13:05
+
+ 本帖最后由 4591 于 2022-8-15 13:06 编辑 
+
+ace彻底废掉是定下dpc赛制，本来老ACE解散但是海涛他们不是牵线和俱乐部还有那个贺富什么的不是搞了个新的，完美办的比赛都没俱乐部鸟，然后dpc赛制定下完美下场主办那个联盟瞬间鸡飞蛋打全部回头跪舔完美。就nb被禁赛那个赛季
+
+*****
+
+####  CNFH1984  
+##### 12926#       发表于 2022-8-15 13:05
+
+说了呀，脑浆刀塔肌肉刀塔呀
+
+杰畜，狠狠的拷打！
+
+*****
+
+####  lyjssj  
+##### 12927#       发表于 2022-8-15 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">g2的时候在看啊版解说，他在中期就一直重复后期靠娜迦a是赢不了的
+
+挺有先见之明的
+
+*****
+
+####  12481632  
+##### 12928#       发表于 2022-8-15 13:05
+
+上次ti10之后是文爱胖子开播吸引火力，这次谁来，不会全队缩壳到ti吧。
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 12929#         楼主| 发表于 2022-8-15 13:05
+
+这个alanpique是哪个漏油
+
+<img src="https://img.saraba1st.com/forum/202208/15/130545cbwn7mw9wh9j4ppu.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220815130532.png</strong> (22.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 13:05 上传
+
+*****
+
+####  belldandy_ye  
+##### 12930#       发表于 2022-8-15 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072443&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-15 11:39</a>
+
+皮球还是练练陈吧   让bbk玩太tm僵硬了</blockquote>
+陈这个英雄就不是一个人能练的，用某弟弟的话讲，玩老陈，最重要的是能喊的动队友，拳酱，PPY，大爹的陈为什么厉害，因为他们是队长，能指挥全队一起打陈的体系节奏.
+
+
+
+*****
+
+####  CNFH1984  
+##### 12931#       发表于 2022-8-15 13:07
+
+我之前就觉得，文爱胖子这种走钢丝的战法要不得
+
+你看，这不就摔死一次了？
+
+大胆预测还要接着摔
+
+*****
+
+####  nowaki  
+##### 12932#       发表于 2022-8-15 13:07
+
+g2萧瑟从出装到走路都没想过去带线，nts能怎么办
+
+*****
+
+####  血狂毘沙门  
+##### 12933#       发表于 2022-8-15 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073860&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-15 13:04</a>
+
+看了g2的复盘感觉有点离谱 你说莫言不熟悉光法没想到拉人就算了 这脑浆y当年最后一把自己不就是用的光法 敌 ...</blockquote>
+还是处长占了太多资源 345太穷了
+
+穷则思路僵硬
+
+*****
+
+####  沈淮  
+##### 12934#         楼主| 发表于 2022-8-15 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073895&amp;ptid=2084957" target="_blank">belldandy_ye 发表于 2022-8-15 13:06</a>
+
+陈这个英雄就不是一个人能练的，用某弟弟的话讲，玩老陈，最重要的是能喊的动队友，拳酱，PPY，大爹的陈 ...</blockquote>
+有没有可能拳酱跟ppy是一个人，而你要说的是kky
+
+*****
+
+####  沈淮  
+##### 12935#         楼主| 发表于 2022-8-15 13:09
+
+[https://live.bilibili.com/126380 ... ist.card_live.click](https://live.bilibili.com/12638007?spm_id_from=333.999.list.card_live.click)
+
+狗头人在复盘g2
+
+*****
+
+####  CNFH1984  
+##### 12936#       发表于 2022-8-15 13:09
+
+lgd这破队，要救只有把庞德抬出来。但是虾之国凉州血统，估计很难硬了
+

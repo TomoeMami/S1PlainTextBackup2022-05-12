@@ -13289,3 +13289,17 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  UNISONIA  
+##### 1246#       发表于 2022-8-15 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073682&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-15 12:51</a>
+
+就算靠谱，都5年了
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+这人现在还在lasengle工作
+
