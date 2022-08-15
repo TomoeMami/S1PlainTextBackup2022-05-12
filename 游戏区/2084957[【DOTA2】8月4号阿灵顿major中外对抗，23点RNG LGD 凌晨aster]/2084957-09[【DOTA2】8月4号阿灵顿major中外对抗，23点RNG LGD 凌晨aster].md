@@ -11834,3 +11834,92 @@ Ame the Choker of all time
 
 鹏子越看越谐
 
+
+
+*****
+
+####  CNFH1984  
+##### 13324#       发表于 2022-8-15 20:15
+
+很奇怪，在茶队人的脸上，居然能看出些许青春的笑容来，这样的笑容在老干瘪上面是很少见了……
+
+*****
+
+####  walfeds  
+##### 13325#       发表于 2022-8-15 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专门和冠军合影有buff加成是吧
+
+*****
+
+####  白野苍衣  
+##### 13326#       发表于 2022-8-15 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定直邀并且突破队史major最好成绩，能不开心吗？
+
+*****
+
+####  哈萨维·诺亚  
+##### 13327#       发表于 2022-8-15 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079773&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 20:15</a>
+
+很奇怪，在茶队人的脸上，居然能看出些许青春的笑容来，这样的笑容在老干瘪上面是很少见了…… ...</blockquote>
+突破队史了能不高兴吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 13328#       发表于 2022-8-15 20:18
+
+突破队史，重活第二世<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 13329#       发表于 2022-8-15 20:19
+
+ana激凸草<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">不会是杜鹏女装给a厨看了吧
+
+*****
+
+####  哈萨维·诺亚  
+##### 13330#       发表于 2022-8-15 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">有画面了
+
+*****
+
+####  没钱买手办  
+##### 13331#       发表于 2022-8-15 20:20
+
+最近两周工作上也是，我一个人带了个庞德一个于禁，两个废物阿斗新人，每天他们早早跑了，我一周五天有四天加班到晚上十二点半
+
+感谢A畜，完全把我治好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+口令:A畜治好了我的精神内耗
+
+100块包了五十个，应该大部分活跃的漏油都能拿到吧
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| CNFH1984| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  何然  
+##### 13332#       发表于 2022-8-15 20:20
+
+杜鹏状态起伏的原因找到了
+野王打野不带他，被澳大利亚人打来吃了
+

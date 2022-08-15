@@ -14786,3 +14786,14 @@ C呆快满绊了呀
 
 刚刚看到rba宝具正面立绘。。。。。。。。。。。。。这人体比例是不是有问题 给人一种矮肥圆的感觉
 
+
+
+*****
+
+####  白金口袋  
+##### 1385#       发表于 2022-8-15 20:19
+
+今天剧情根本是菌类的心声吧，正好刚出的一大堆2.6废案直接对应上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外我还是觉得伊吹撑死是螳螂，黄雀还是拿ASMR炸空钱宝的旧梅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
