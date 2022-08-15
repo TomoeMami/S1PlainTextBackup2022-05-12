@@ -9281,3 +9281,85 @@ https://www.bilibili.com/video/BV1bU4y1F7h6
 
 collapse昨天最伟大的表演还是那把有精灵的尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iriyano  
+##### 13053#       发表于 2022-8-15 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075891&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-15 16:36</a>
+别时光倒流了行不行，赶紧他妈的上游戏玩玩大锤戴泽宙斯电魂啊</blockquote>
+路人还是屠夫好用，以前还要钩或者跳
+现在A杖了直接走上去咬住，突出一个无脑
+
+*****
+
+####  12481632  
+##### 13054#       发表于 2022-8-15 15:42
+
+打什么国服天梯，玩最潮最in的4＋2和三国自走棋不好么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尖刺外婆  
+##### 13055#       发表于 2022-8-15 15:43
+
+国服天梯纯纯折磨自己，周末打了三把4个买号哥，打个吉尔
+
+*****
+
+####  何然  
+##### 13056#       发表于 2022-8-15 15:44
+
+建议假赛狗滚nga，那儿的大环境比较适合你
+
+*****
+
+####  灰烬白羽  
+##### 13057#       发表于 2022-8-15 15:45
+
+被吊打了三盘不是打不过是什么，但心态也确实是不行啊。第三把被碾就算了，第四把3打5开团，空滚土猫，跳刀杀刚背马的ck，亚军船长，连电魂回来送的精灵，各种葫芦娃，你说心态没崩我是不信的。
+
+*****
+
+####  沈淮  
+##### 13058#         楼主| 发表于 2022-8-15 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">假赛狗每次洗地的角度总是清奇，承认技不如人不行吗，4盘banpick 3盘是大优都输了
+
+*****
+
+####  dclara1  
+##### 13059#       发表于 2022-8-15 15:46
+
+好盒我开
+
+*****
+
+####  zris  
+##### 13060#       发表于 2022-8-15 15:50
+
+好贴我顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 13061#       发表于 2022-8-15 15:51
+
+核中核消息：周五更新！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 13062#       发表于 2022-8-15 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076112&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-15 15:51</a>
+
+核中核消息：周五更新！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+来源呢？
+

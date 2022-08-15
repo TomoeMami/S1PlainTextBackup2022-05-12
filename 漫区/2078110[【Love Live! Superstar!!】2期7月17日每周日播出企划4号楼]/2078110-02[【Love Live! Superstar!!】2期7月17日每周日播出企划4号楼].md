@@ -12839,3 +12839,39 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 反正现在看，夏美开始把开播前的担忧的雷开始踩了 ...</blockquote>
 我唯一能确定的就是正式入队后这事提都不会有人提因为没必要了，但之前会不会有堪比一期七八回的展开，拭目以待吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2740#       发表于 2022-8-15 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075908&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-15 15:37</a>
+#Liyuu[超话]# 好久没出门逛逛啦！</blockquote>
+能出门逛街，身体应该恢复得差不多了，鼻子上的胶布问题不大，可以靠化妆遮掩。周末前Nagi能康复的话，出演summer sonic 问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2741#       发表于 2022-8-15 15:47
+
+感觉还是有点拼了，虽然很想见到她们，但听说上映会小百合嗓子不太好的样子。不知道青山会怎样
+
+*****
+
+####  仟音一心  
+##### 2742#       发表于 2022-8-15 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076003&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-15 15:43</a>
+能出门逛街，身体应该恢复得差不多了，鼻子上的胶布问题不大，可以靠化妆遮掩。周末前Nagi能康复的话，出 ...</blockquote>
+相比之下最大的不确定因素还是那边的疫情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2743#       发表于 2022-8-15 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076054&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-15 15:47</a>
+感觉还是有点拼了，虽然很想见到她们，但听说上映会小百合嗓子不太好的样子。不知道青山会怎样 ...</blockquote>
+前面说了，小百合从宣布确诊到活动再开只过了8天，感觉像被催着上班一样。
+
