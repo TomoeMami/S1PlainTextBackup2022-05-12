@@ -10960,3 +10960,129 @@ ck那个问题不大吧？斧王魔晶天克ck，第一个裂隙没拍死，触�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是giegie水人打出94点伤害的理由吗
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 13235#       发表于 2022-8-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078126&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 18:05</a>
+有兴趣的可以看g4bp给的ame特写，我觉得是尿了，文爱胖子一直皱眉大概是闻到骚味了 ...</blockquote>
+要说特写，G2的时候我看BIAN表情就不是很好，结果整个决赛发挥就是差胜决很多…
+
+*****
+
+####  何然  
+##### 13236#       发表于 2022-8-15 18:10
+
+不是96点吗，你也学v🐍向下取整？
+
+*****
+
+####  哈萨维·诺亚  
+##### 13237#       发表于 2022-8-15 18:11
+
+v社不基德啊
+
+*****
+
+####  HydraCat  
+##### 13238#       发表于 2022-8-15 18:12
+
+valve你这是何意啊valve
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  百世诸侯  
+##### 13239#       发表于 2022-8-15 18:13
+
+扣Z为VP积攒元气，ZZZZZZZZ
+
+*****
+
+####  archfriend12  
+##### 13240#       发表于 2022-8-15 18:14
+
+杰出：我这几天从杰出变成杰畜变成出神变成出圣。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  9时34分  
+##### 13241#       发表于 2022-8-15 18:14
+
+我觉得森哥这辈子最大的黑点不是红包，也不是什么三连送谁是谁爹，而是当年没有把ame摁进显示器去矫正一下，所以遗毒无穷！徐林森，你真是西恩刀塔的大罪人。
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 13242#       发表于 2022-8-15 18:15
+
+“心态崩了”本质就是不愿承认处长是个菜逼，和假赛论是同一个借口的不同表现方式罢了
+
+*****
+
+####  c88711611  
+##### 13243#       发表于 2022-8-15 18:16
+
+xinq最后一盘瞎比送有森哥拉比克三连送的味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 13244#       发表于 2022-8-15 18:16
+
+赵子星：明知道娜迦不行
+
+打到70分钟还是22编队，大晕不出，TP死买飞鞋徒步赶战场，既不吃伤害也不打输出，带线都带不利索，是英雄不行还是别的什么不行呢
+
+]$LJ)69FFUXJ_]8U{7J{952.jpg
+(95.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/181540rl77klcugyetuuzl.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 13245#       发表于 2022-8-15 18:17
+
+我觉得森哥这辈子最大的黑点不是红包，也不是什么三连送谁是谁爹，而是当年没有把ame摁进显示器去矫正一下，所以遗毒无穷！徐林森，你真是西恩刀塔的大罪人。
+
+*****
+
+####  woyzeck  
+##### 13246#       发表于 2022-8-15 18:18
+
+xinq明显没觉得处长有问题，刚还赢了一起狂，输了萧瑟抗呢。
+
+*****
+
+####  qazkevin  
+##### 13247#       发表于 2022-8-15 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076198&amp;ptid=2084957" target="_blank">秘奥闪光 发表于 2022-08-15 15:57:38</a>
+当时被封杀的人里主要针对邪恶双雄啊。。其余三个mdy看到这两个人ydy了才决裂的，本来是一起同舟共济吧
+
+ ...</blockquote>必须的啊，不然脑浆双雄怎么就突然跳槽了，气坏剩下三人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  walfeds  
+##### 13248#       发表于 2022-8-15 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078227&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 18:13</a>
+扣Z为VP积攒元气，ZZZZZZZZ</blockquote>
+你攒的怕不是entity的元气罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

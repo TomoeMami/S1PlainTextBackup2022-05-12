@@ -14176,3 +14176,106 @@ rba不给群充也不给黄金律，真是难受
 居然给试用了，先不说这红绿参半压根就没打算救绿的设计，这宝具动画也太简陋了吧，看着还是水伊那样直接绑定三破形态，哪来的勇气放压轴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 水伊给5宝推销看来叶哥哥自己都知道主角是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1325#       发表于 2022-8-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077350&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-08-15 17:14:31</a>
+绿卡单核几乎没有区别  该寄还是寄
+
+大佬赶紧在多测测多核（</blockquote>不是群充，多核难，得看后面出的打手了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 1326#       发表于 2022-8-15 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078193&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-15 18:10</a>
+
+不是群充，多核难，得看后面出的打手了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不难不难 隔壁已经吹起狂兰了
+
+*****
+
+####  exiaexa  
+##### 1327#       发表于 2022-8-15 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078121&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 18:04</a>
+
+隔壁已经在吹什么和道满组队不错啥啥啥的 萌新没用过不敢乱喷</blockquote>
+因为是混沌·夏可以去混沌队嘛，不过我自己本质反暴击对我一点影响都没有
+
+反正暴击还是那个问题
+
+发牌员给你发三绿两蓝凑不出个ex，该歇还得歇
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 1328#       发表于 2022-8-15 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情后面还反转么，前面看你们说黑幕我信了，然后推完今天剧情在想还有没有反转的余地
+
+*****
+
+####  bikalu  
+##### 1329#       发表于 2022-8-15 18:15
+
+好歹是第2个绿拐，抽抽抽
+
+*****
+
+####  都谷捻柏  
+##### 1330#       发表于 2022-8-15 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078217&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-08-15 18:11:51</a>
+不难不难 隔壁已经吹起狂兰了</blockquote>在隔壁伊吹这个卡池是最鸡肋的，反正我是不敢苟同
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  poor  
+##### 1331#       发表于 2022-8-15 18:17
+
+ 本帖最后由 poor 于 2022-8-15 18:18 编辑 
+
+果然伊吹才是头奖，rba昨天想了想，宝具是大概率没法用的攻击宝具，除非疯了脚填数值，要不绿卡不可能超越C呆+伊吹于是提前下手，看来是正确的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">才不是忍不住了
+不过还有存货，抽还是要抽的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 1332#       发表于 2022-8-15 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下自己的34石 我提前宣布胜利 反正出不出货都毫无影响
+
+*****
+
+####  exiaexa  
+##### 1333#       发表于 2022-8-15 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078271&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-15 18:16</a>
+
+在隔壁伊吹这个卡池是最鸡肋的，反正我是不敢苟同
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+隔壁的思路是这样的
+
+大家人手5宝宇宙凛+5宝金钻头/大公，换成5宝伊吹费钱不说提升还不大
+
+那肯定划不来啊
+
+对比起来RBA只用抽1宝
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
