@@ -12341,3 +12341,92 @@ snare是懂亚军的</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  阿垃垃圾历  
+##### 13371#       发表于 2022-8-15 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080532&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-15 21:21</a>
+听说陈智豪刘嘉俊孙正三个逼疯狂复盘拷打处长，这热度切片man人呢</blockquote>
+直播拷打？
+
+*****
+
+####  何然  
+##### 13372#       发表于 2022-8-15 21:23
+
+天下苦水厂久矣
+
+*****
+
+####  白色的120  
+##### 13373#       发表于 2022-8-15 21:27
+
+太后跟嫪毐没分手啊，还在连麦解说，说做dota不好年年亏钱，用lol的钱养dota，亚军中亏，冠军小亏
+https://b23.tv/VOnCV0Q
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 13374#       发表于 2022-8-15 21:28
+
+<blockquote>有的选手，队伍里正是有了他，才得了亚军；感觉这句话用来评价ame还有霸气的职业生涯再好不过了了。</blockquote>
+
+*****
+
+####  六娃  
+##### 13375#       发表于 2022-8-15 21:28
+
+ru婊经典卖惨，怎么不说自己开赌场抽了多少流水，家里人进去要踩几年缝纫机
+
+*****
+
+####  CNFH1984  
+##### 13376#       发表于 2022-8-15 21:29
+
+嘻嘻玄月被水人和杰畜轮番拷打的时候何雍正一句话都说不出来
+
+这人是什么德行已经很清楚了
+
+*****
+
+####  百世诸侯  
+##### 13377#       发表于 2022-8-15 21:29
+
+有的选手，队伍里正是有了他，才得了亚军；感觉这句话用来评价ame还有霸气的职业生涯再好不过了了。
+
+*****
+
+####  何然  
+##### 13378#       发表于 2022-8-15 21:30
+
+这两年不好说，前几年lgd靠vp和卖人赚了不少的
+
+*****
+
+####  Yukino-Yukino  
+##### 13379#       发表于 2022-8-15 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080541&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-15 21:21</a>
+
+直播拷打？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，hao逼还yygq的，说要学ameck打团跳别人脸上开大先手。
+
+*****
+
+####  nowaki  
+##### 13380#       发表于 2022-8-15 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080541&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-15 21:21</a>
+
+直播拷打？</blockquote>
+赛拉直播第四把都快睡着了，看到斧王吼三个激动的喊了ceb，a畜盾起来bkbtp走，他在那喊吼！哦cd了。
+
+霸气，从第二把娜迦就开始diss，肥了没用纯刷的，不出飞鞋偷家就是等死。第四把直接说两边换clgd应该赢了。
+
+hao是最狠的，看着辉耀娜迦在那笑，说好好学，第四把ck三打五被破两路，这个CK要是谢彬打的，应该会说 “兄弟们别搞了啊”
+

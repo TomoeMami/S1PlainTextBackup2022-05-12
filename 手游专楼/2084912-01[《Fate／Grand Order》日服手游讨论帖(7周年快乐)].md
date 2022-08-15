@@ -14888,3 +14888,12 @@ C呆快满绊了呀
 
 バゲ子礼装连掉两张，巴姐礼装估计要等点数了……
 
+
+
+*****
+
+####  kiralzb  
+##### 1395#       发表于 2022-8-15 21:27
+
+我也掉妖高礼装了，难道这本掉率高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

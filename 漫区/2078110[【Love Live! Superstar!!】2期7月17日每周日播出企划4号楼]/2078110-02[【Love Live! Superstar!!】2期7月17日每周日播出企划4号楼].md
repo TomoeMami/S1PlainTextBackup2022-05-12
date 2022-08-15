@@ -13137,3 +13137,22 @@ https://tieba.baidu.com/p/7976245080?fid=1786526&amp;pid=145115843350&amp; ...</
 
 香音这签的毫不犹豫像极了当初签装修合同的我
 
+
+
+*****
+
+####  老1.5  
+##### 2770#       发表于 2022-8-15 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080480&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 21:16</a>
+
+香音这签的毫不犹豫像极了当初签装修合同的我</blockquote>
+草，大概能猜想到发生什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 2771#       发表于 2022-8-15 21:27
+
+这白纸黑字的合同，liella这是自愿往坑里跳，怨不得夏美（）
+
