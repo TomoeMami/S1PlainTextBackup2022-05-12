@@ -13350,3 +13350,28 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  風卷豹  
+##### 1251#       发表于 2022-8-15 15:18
+
+雷帝有了30充好歹也能打打5加成了，特攻范围也不小，周回想上还是能上的。非要在异闻带之王里比，不比完全被卑弥呼代替的大秦蛾子精地位要好点？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Jamaisvu  
+##### 1252#       发表于 2022-8-15 15:19
+
+TM在C100上卖的设定集《Avalon le Fae Synopsys》里面有2.6的草案设定：
+[https://card.weibo.com/article/m/show/id/2309404802498518188524](https://card.weibo.com/article/m/show/id/2309404802498518188524)
+
+看着比现在这种恶意满溢的故事正常一些...貌似删掉了加拉哈德和妖精亡主然后给奥伯龙加了海量的戏份...
+
+值得注意的是原计划Grand Saber阿尔托莉雅•阿瓦隆会出场（实际上只有一张妄想CG...），这大概算坐实了冠位剑的人选吧？（希望别把这个设定拿到街机去用...）
+
+武藏估计不会因为拿了冠位才回来了...复活的契机说不定是抑止力阿赖耶识看中其穿越世界的能力，强迫她和emiya们一样做打工仔？然后白发黑皮武藏，堂堂复活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（那岂不就成了舰C的武藏...）
+

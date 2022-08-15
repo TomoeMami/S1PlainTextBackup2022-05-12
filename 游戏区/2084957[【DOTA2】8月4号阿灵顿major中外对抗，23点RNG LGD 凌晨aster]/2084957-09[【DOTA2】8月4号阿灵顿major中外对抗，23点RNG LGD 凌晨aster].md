@@ -9111,3 +9111,55 @@ lgd输了，萧瑟giegie没输！</blockquote>
 新阵容的第一次Major以第三的成绩结束，这个成绩在也创造了我们Aste ...</blockquote>
 鳖茶还真的是不避梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woyzeck  
+##### 13033#       发表于 2022-8-15 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075391&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-15 15:02</a>
+
+戏来了是吧，不黑处就是集美，可以，这很野种</blockquote>
+刀圈野种舍ame其谁，把我勒的场外全学到了，甚至连我勒的实力都没有。
+
+*****
+
+####  阿垃垃圾历  
+##### 13034#       发表于 2022-8-15 15:17
+
+茶队这声明虽说句句属实 不过怎么就那么好笑呢 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 13035#       发表于 2022-8-15 15:18
+
+炸软仙贝😄
+
+*****
+
+####  黑暗剑qui  
+##### 13036#       发表于 2022-8-15 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075391&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-15 15:02</a>
+
+戏来了是吧，不黑处就是集美，可以，这很野种</blockquote>
+家里人死绝了，建议找个心理咨询师倾诉，一切都会好的。
+
+*****
+
+####  pikamee  
+##### 13037#       发表于 2022-8-15 15:21
+
+茶成绩远超预期，有余裕自黑
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  woyzeck  
+##### 13038#       发表于 2022-8-15 15:21
+
+我勒的场外大概也就是把21世纪实力前5的我勒包装成常务副goat，ame的场外是把一个畜生包装成41c，辱野种了，实在是太辱了。
+
