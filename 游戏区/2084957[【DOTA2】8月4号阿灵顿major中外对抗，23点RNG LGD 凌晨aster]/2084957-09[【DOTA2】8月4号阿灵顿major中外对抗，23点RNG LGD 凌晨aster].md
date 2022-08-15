@@ -11661,3 +11661,30 @@ zfb口令：感谢lgd为大家带来一天的快乐</blockquote>
 
 么么鳖职业生涯最高光的二次元major冠军对面不仅是rtz这个职业下限级的c，玩得也是斧王。
 
+
+
+*****
+
+####  一品堂官  
+##### 13311#       发表于 2022-8-15 19:56
+
+这抢红包的速度去打dota，你们早冠绝排名了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  坚定的团子党  
+##### 13312#       发表于 2022-8-15 20:01
+
+鳖鳖就算了吧，也是个躺都躺不明白的主，从ti2打到ti7，最好成绩才第四。粉丝倒是跳的飞起，和集美一个味
+
+*****
+
+####  adretyu67  
+##### 13313#       发表于 2022-8-15 20:02
+
+徐老鳖在宇宙第一赛事dac打OG好歹还能选个冠名am爽一把。
+
+我都记不起王仙贝这赛季有没有爽过敌法了
+

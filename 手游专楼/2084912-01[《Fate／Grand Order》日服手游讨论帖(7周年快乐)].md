@@ -14751,3 +14751,29 @@ C呆快满绊了呀
 那都多少年前的事了，现在说不定是奥伯龙呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能 绝对不可能 肯定会接着玩那套最初就是最终之类的玩意 最初的剑从者就是冠位剑
 
+
+
+*****
+
+####  alucardcz  
+##### 1381#       发表于 2022-8-15 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这期泳装活动隔壁的戏就没断过 暴笑了
+
+*****
+
+####  alucardcz  
+##### 1382#       发表于 2022-8-15 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 萌新也掉礼装了 坏消息 掉的是妖高
+
+*****
+
+####  qixinno2  
+##### 1383#       发表于 2022-8-15 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079607&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-15 19:59</a>
+
+好消息 萌新也掉礼装了 坏消息 掉的是妖高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我至今没掉
+
