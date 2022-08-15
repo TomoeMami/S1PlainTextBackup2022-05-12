@@ -6279,3 +6279,225 @@ ana跟司马kuku在一起打比赛这种事不要啊
 这话我倒是不同意，如果NGA去年真能把铁拳招换下来把老干瘪给突突了，那我觉得也算是净化圈子了。 ...</blockquote>
 铁拳经典一刀切，真来了怎么可能只突突突lgd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CNFH1984  
+##### 12725#       发表于 2022-8-15 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072071&amp;ptid=2084957" target="_blank">逸一死吾亦死 发表于 2022-8-15 11:19</a>
+
+集美转移目标用的，搅混水</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">目前来看确实是这样，就是仗着知道老干瘪肯定死不了所以才搅浑水
+
+甭管是出于什么目的，举报没把老干瘪真整死了是最可惜的
+
+*****
+
+####  遍体精淋af  
+##### 12726#       发表于 2022-8-15 11:21
+
+魏国什么时候来一个张辽啊，老是于禁庞德，或者从吴国淘一个吕蒙过来也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 12727#       发表于 2022-8-15 11:22
+
+到底啥样子能彻底清算集美啊，lgd ti一轮游行吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12728#       发表于 2022-8-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072085&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-15 11:20</a>
+
+铁拳经典一刀切，真来了怎么可能只突突突lgd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">那没事，一刀切了漏油们东南亚团建！
+
+没有中国队的比赛也不是不能看了
+
+这不关键是老干瘪没死么……
+
+*****
+
+####  adretyu67  
+##### 12729#       发表于 2022-8-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072102&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 11:21</a>
+
+目前来看确实是这样，就是仗着知道老干瘪肯定死不了所以才搅浑水
+
+甭管是出于什么目的，举报没把老 ...</blockquote>
+出于个人行为的举报这玩意大部分时候都没有用。
+
+这事就和刘睿哲举报ps4那事一样。
+
+铁拳也不想天天加班。
+
+*****
+
+####  坚定的团子党  
+##### 12730#       发表于 2022-8-15 11:22
+
+铁拳要真来了，直接一刀切把你游戏给禁了，你还没地方哭诉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 12731#       发表于 2022-8-15 11:23
+
+去年在东欧被KGB和寡头威胁
+
+今年在东南亚，肯定要被福清拿刀架脖子
+
+看好虾之国选手夺冠好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 12732#       发表于 2022-8-15 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072107&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 11:21</a>
+
+魏国什么时候来一个张辽啊，老是于禁庞德，或者从吴国淘一个吕蒙过来也行啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">魏国现在人口都不够惹，还想淘换张辽那真是想多了，可能淘了半天，还不如于禁……
+
+*****
+
+####  zsu222  
+##### 12733#       发表于 2022-8-15 11:23
+
+我觉得 鳖星这次也蛮搞的，银k这次bp真不错，奈何自己手上活儿不够硬，太糙了被ts拿捏了。
+
+*****
+
+####  米德  
+##### 12734#       发表于 2022-8-15 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正他们又不玩游戏 禁不禁游戏对他们有影响吗
+
+*****
+
+####  百世诸侯  
+##### 12735#       发表于 2022-8-15 11:24
+
+⑧说了，扣1一起为鹏子积攒元气
+
+*****
+
+####  沈淮  
+##### 12736#         楼主| 发表于 2022-8-15 11:25
+
+今年的猫鼠游戏如期而至啊，同样是8月中旬
+
+*****
+
+####  adretyu67  
+##### 12737#       发表于 2022-8-15 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072117&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-15 11:22</a>
+
+到底啥样子能彻底清算集美啊，lgd ti一轮游行吗</blockquote>
+没戏了。不如指望一个最大的活，败者组被茶队送上飞机。
+
+然后皮球直接来个ame=A bag of MonEy。
+
+不过整这么个活不是皮畜能解决的了
+
+*****
+
+####  北条早苗  
+##### 12738#       发表于 2022-8-15 11:25
+
+一号位挂件那个版本是敢给莫言选水人med，现在只能三猫dp船长
+
+*****
+
+####  星野航  
+##### 12739#       发表于 2022-8-15 11:26
+
+主要是，gpk这种连sdn这铁粉都会黑大场面拉稀的怎么跟场面越大越有发挥的老东京比
+
+觉得菜不要紧，当年topson出来的时候那也是公认og最菜，结果呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 12740#       发表于 2022-8-15 11:27
+
+石油杯＞sl9＞dac
+
+望周知
+
+*****
+
+####  CNFH1984  
+##### 12741#       发表于 2022-8-15 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">茶队现在的状况就像什么呢，就像是姜维带着夏侯霸赵广赵统廖化张翼几兄弟在汉中剑门反复横跳，你说不能打吧，还是能跟邓艾陈泰郭淮过两招，但你要说能打，只要姜维一犯病，大家就只有等廖化刷出山——廖化有这个本事吗，暂时没有……
+
+*****
+
+####  遍体精淋af  
+##### 12742#       发表于 2022-8-15 11:28
+
+dec全队加入xg二队打ti预选
+
+*****
+
+####  BallanceHZ  
+##### 12743#       发表于 2022-8-15 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072214&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 11:27</a>
+石油杯＞sl9＞dac
+
+望周知</blockquote>
+这就有点虚空了，这个lgd又不是没拿过major，比战绩也是谈animajor啊
+
+*****
+
+####  nowaki  
+##### 12744#       发表于 2022-8-15 11:28
+
+topson可不是对线梦想，脑东京是真的对线谁都打不过。
+
+脑东京的玩法就是换命开团，中单位的kaka好吧
+
+*****
+
+####  pikamee  
+##### 12745#       发表于 2022-8-15 11:28
+
+杰畜哥不如复盘下老东京强在哪
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  杜文乐超神归来  
+##### 12746#       发表于 2022-8-15 11:28
+
+也别周知了，TI10都被说是最没含金量的TI了
+
+*****
+
+####  adretyu67  
+##### 12747#       发表于 2022-8-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072148&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-15 11:23</a>
+
+我觉得 鳖星这次也蛮搞的，银k这次bp真不错，奈何自己手上活儿不够硬，太糙了被ts拿捏了。 ...</blockquote>
+张志成好歹清楚队内谁是大腿。奈何大腿不够粗是没啥办法。
+
+*****
+
+####  CNFH1984  
+##### 12748#       发表于 2022-8-15 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">RNG现在，每次出国打比赛或者打大点的比赛，就像是孙十万带大军往合肥啊或者襄阳这些地方去撞，每次都撞个头破血流
+
+超哥就是孙权，kaka就是陆逊呀……
+

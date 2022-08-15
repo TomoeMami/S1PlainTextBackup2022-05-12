@@ -12261,3 +12261,15 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 我想问问日本JK现在都是这么说话的吗？看了点切片，难受
 
+
+
+*****
+
+####  starring  
+##### 2686#       发表于 2022-8-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071905&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 11:11</a>
+我想问问日本JK现在都是这么说话的吗？看了点切片，难受</blockquote>
+也就纸片人会特地设定成那种说话方式。
+前三集头痛土妹子说话，才好了一集就冒出令人更加头痛的CEO。中二病的凸守说话方式也是那样，花田就好这口吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

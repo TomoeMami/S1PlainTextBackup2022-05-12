@@ -13195,3 +13195,25 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 话说晴明的立绘还没有出场吗？</blockquote>
 没有，到现在只是出现在对话框。
 
+
+
+*****
+
+####  _Usarak_  
+##### 1239#       发表于 2022-8-15 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072051&amp;ptid=2084912" target="_blank">新吾 发表于 2022-8-15 11:18</a>
+
+因为这本书的设定都不完善，不就只能在基础设定上稍微改改咯</blockquote>
+你哪怕技能改改效果叫个死神（夏）我都当你认真在敷衍了，一共三个技能两个是原版直接照搬的实在是很让人无语
+
+*****
+
+####  areklose  
+##### 1240#       发表于 2022-8-15 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070820&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-15 10:05</a>
+
+俺寻思一个单机游戏里出了个强力打手不是应该爽到吗，结果看到一堆人破防又是嫌太强又是嫌卡面丑，还喊着要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">其他游戏我还见过人说这卡太强了。要削。影响后续出卡什么一大堆。所以这很正常
+
