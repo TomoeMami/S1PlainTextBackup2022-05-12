@@ -9759,3 +9759,113 @@ G1屠夫跳高想法应该是想救viper，只是各种原因没退出来
 
 有没有可能Ti11也是你们争第二
 
+
+
+*****
+
+####  沈淮  
+##### 13106#         楼主| 发表于 2022-8-15 16:30
+
+有没有可能Ti11也是你们争第二
+
+*****
+
+####  nowaki  
+##### 13107#       发表于 2022-8-15 16:30
+
+对面小小开**，你萧瑟哥哥第一时间可没想着去跟着救**，是反手勾了小小宰了，小小死了之后**也是死定，这时候ame才跳上高地的。
+
+萧瑟宰完小小，**就剩160血了，等他走两步跳上去只剩60血了，真的是救**吗
+
+*****
+
+####  12481632  
+##### 13108#       发表于 2022-8-15 16:32
+
+版本更新晚一点让面八来不及偷的话，ti大概率打不过ts、og、秘密
+
+*****
+
+####  沈淮  
+##### 13109#         楼主| 发表于 2022-8-15 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076629&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 16:27</a>
+
+什么情况，文丑心态崩了？</blockquote>
+你到底是不是xinqsama黑粉啊，粉丝群都混进去了，黑到深处自然粉？
+
+*****
+
+####  何然  
+##### 13110#       发表于 2022-8-15 16:33
+
+可能是xincute的颜粉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  星野航  
+##### 13111#       发表于 2022-8-15 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076629&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 17:27</a>
+什么情况，文丑心态崩了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的是xinq瑞平自己的话么，怎么感觉不像
+瑞平自己语气是这样的么w
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 13112#       发表于 2022-8-15 16:33
+
+去水厂核中核粉丝群抓出一大票漏油我一点也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyuhiu  
+##### 13113#       发表于 2022-8-15 16:34
+
+这版本已经畸形到为了冲脸可以第一件bkb，第二三件刷新的夸张版本了。属性什么也完全没必要，只要肉和攻速攻击力就行
+
+普通远敏和法核怎么玩
+
+*****
+
+####  希望之花  
+##### 13114#       发表于 2022-8-15 16:34
+
+马西泳装！冰龙人形身心！隔壁风暴摆烂了能不能把厕所王皮肤毛过来
+
+*****
+
+####  何然  
+##### 13115#       发表于 2022-8-15 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要求不高，能不能把屎一样qopwrspecsnk至宝任务砍一刀！
+
+*****
+
+####  IG.430  
+##### 13116#       发表于 2022-8-15 16:38
+
+文丑这是复制了max/nga/weibo上的评论troll吧
+
+*****
+
+####  walfeds  
+##### 13117#       发表于 2022-8-15 16:38
+
+桀桀，你楼暗黑集美太多了
+
+*****
+
+####  坚定的团子党  
+##### 13118#       发表于 2022-8-15 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076629&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 16:27</a>
+
+什么情况，文丑心态崩了？</blockquote>
+还在3-0，先想想怎么进决赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
