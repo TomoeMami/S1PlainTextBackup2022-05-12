@@ -5553,3 +5553,132 @@ rng新冠了那没了啊，预选很快的……
 lgd的比赛还用看 醒来又是一场胜利
 真就一场<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 12649#       发表于 2022-8-15 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071350&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 10:37</a>
+
+牙脱落什么意思，不知道大圣是我家GieGie唯一指定T0英雄，拿出来班门弄斧是吧 ...</blockquote>
+萧 门 弄 圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陶矢  
+##### 12650#       发表于 2022-8-15 10:41
+
+最后一把老东京玩的好，女王硬中硬
+
+*****
+
+####  Centrum  
+##### 12651#       发表于 2022-8-15 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071307&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 10:35</a></blockquote>
+刚打的？
+
+*****
+
+####  lyjssj  
+##### 12652#       发表于 2022-8-15 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞东南亚远程打国内比赛是否可行
+
+*****
+
+####  沈淮  
+##### 12653#         楼主| 发表于 2022-8-15 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071420&amp;ptid=2084957" target="_blank">Centrum 发表于 2022-8-15 10:41</a>
+
+刚打的？</blockquote>
+就是今天bo5打的啊
+
+*****
+
+####  tengshuo980  
+##### 12654#       发表于 2022-8-15 10:43
+
+相信dota之神
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smkf013  
+##### 12655#       发表于 2022-8-15 10:43
+
+告诉梦想阿茶的一声，CSGO BLAST Premier19-28，比液体阿茶秘密好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 12656#       发表于 2022-8-15 10:44
+
+NGA确实有点恶心了，最后这把ame实打实在犯病，还在那硬洗
+
+*****
+
+####  12481632  
+##### 12657#       发表于 2022-8-15 10:44
+
+yatoro偷了giegie两个冠军不说，大圣冠名也要偷了吗
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  格雷殿下  
+##### 12658#       发表于 2022-8-15 10:45
+
+好家伙，今天日本投降了。可惜集美不会投降。😄
+
+*****
+
+####  Centrum  
+##### 12659#       发表于 2022-8-15 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071428&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 10:41</a>
+就是今天bo5打的啊</blockquote>
+啊 昨睡了只看了最后斧王CK那局
+
+*****
+
+####  沈淮  
+##### 12660#         楼主| 发表于 2022-8-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071489&amp;ptid=2084957" target="_blank">Centrum 发表于 2022-8-15 10:45</a>
+
+啊 昨睡了只看了最后斧王CK那局</blockquote>
+g2，很精彩的一局翻盘，有时间可以看看回放
+
+
+
+*****
+
+####  朝奈  
+##### 12661#       发表于 2022-8-15 10:48
+
+MDY没有胡说刀塔还是少点味
+
+23联动郑畜解说想必乐子也是不少
+
+别去TI了,多赚点爱国火箭吧啊
+
+*****
+
+####  百世诸侯  
+##### 12662#       发表于 2022-8-15 10:49
+
+游戏区今天发帖力压卓明谷，都是咱们刀楼的功劳💪
+
+*****
+
+####  反方向的波  
+##### 12663#       发表于 2022-8-15 10:50
+
+<blockquote>  不是很能理解石油杯网友一声不吭major全网高潮的现状   搞得好像major的奖励比石油杯高一样 </blockquote>
+

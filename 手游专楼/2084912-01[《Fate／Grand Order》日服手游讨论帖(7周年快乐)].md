@@ -13156,3 +13156,12 @@ raita每次新卡都要遇到这些逼事儿怎么搞得像第一天遇到一样
 那不就只能烧香拜佛期待自己喜欢的牛逼到爆炸，不然怎么证明自己不是慕强
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ネコカイザー  
+##### 1235#       发表于 2022-8-15 10:41
+
+话说晴明的立绘还没有出场吗？
+

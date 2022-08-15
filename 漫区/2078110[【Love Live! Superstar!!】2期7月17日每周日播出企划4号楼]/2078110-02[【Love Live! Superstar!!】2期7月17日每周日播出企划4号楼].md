@@ -12198,3 +12198,27 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 横田么，好像是第六集播前几天改的
 
+
+
+*****
+
+####  adw667  
+##### 2680#       发表于 2022-8-15 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070479&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-8-15 09:46</a>
+
+其实挺有意思的。这种跳脱出固定模板的偶像人设。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">建议多看管人
+
+*****
+
+####  qratosone  
+##### 2681#       发表于 2022-8-15 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070523&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-15 09:48</a>
+
+杂志访谈？哪个杂志，我去看看</blockquote>
+可以找下依然姐的动态，大体意思是夏美有喜欢的衣服但是买不起
+
