@@ -15030,3 +15030,25 @@ C呆快满绊了呀
 
 感觉现在np已经爆炸了，很多队伍能开出第4炮（当然是不换人的前提下）
 
+
+
+*****
+
+####  poor  
+##### 1410#       发表于 2022-8-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078670&amp;ptid=2084912" target="_blank">eyeego 发表于 2022-8-15 18:46</a>
+连B是1.5倍伤害都不知道 就硬云</blockquote>
+人家三个CBA都预测到了，搞不好8周年狂就给你改两倍<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  kiralzb  
+##### 1411#       发表于 2022-8-15 22:38
+
+不得不说今天这本属实公主体验本了，我这咸鱼练度都能两公主加个没终破的伊吹乱杀，就是满破巴姐礼装比较难借到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

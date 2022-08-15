@@ -12832,3 +12832,120 @@ LGD创造了很多亚军纪念品 比如经典亚军船长 传世亚军双解说
 
 老鳖暴露人品前多少有点DO1情怀分，而且DO1成绩实实在在，哪怕按照虎扑规矩远古冠军打对折也不是A畜能碰瓷的啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 13422#       发表于 2022-8-15 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081319&amp;ptid=2084957" target="_blank">笑颜最美谢蕾蕾 发表于 2022-8-15 22:26</a>
+
+没有群啊，就是支付宝点进去那个红包功能，你把口令弄长一点，发到楼里，没口令的人领不到的
+
+我也是今天才 ...</blockquote>
+学到了学到了
+
+*****
+
+####  9时34分  
+##### 13423#       发表于 2022-8-15 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081373&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-15 22:32</a>
+学到了学到了</blockquote>
+学了要用啊
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rubicon  
+##### 13424#       发表于 2022-8-15 22:34
+
+学了要用啊
+
+*****
+
+####  mkii量产型  
+##### 13425#       发表于 2022-8-15 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081373&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-15 22:32</a>
+
+学到了学到了</blockquote>
+学了要用啊
+
+*****
+
+####  反方向的波  
+##### 13426#       发表于 2022-8-15 22:34
+
+学了要用啊
+
+*****
+
+####  ishikawa_k  
+##### 13427#       发表于 2022-8-15 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57080767&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 21:39</a>
+
+ruru做vpgame做到家里人都进去踩缝纫机了，得亏当时做切割做得好自己才没事
+
+这种人说什么亏不亏本赚不赚钱 ...</blockquote>
+谁进去了
+
+*****
+
+####  沈淮  
+##### 13428#         楼主| 发表于 2022-8-15 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081373&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-15 22:32</a>
+
+学到了学到了</blockquote>
+学了要用啊
+
+*****
+
+####  tengshuo980  
+##### 13429#       发表于 2022-8-15 22:36
+
+学了要用啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沈淮  
+##### 13430#         楼主| 发表于 2022-8-15 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081408&amp;ptid=2084957" target="_blank">ishikawa_k 发表于 2022-8-15 22:35</a>
+
+谁进去了</blockquote>
+ru婊的堂弟
+
+*****
+
+####  kyl2001  
+##### 13431#       发表于 2022-8-15 22:39
+
+萨特v50<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ishikawa_k  
+##### 13432#       发表于 2022-8-15 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081412&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 22:36</a>
+
+ru婊的堂弟</blockquote>
+潘飞之前还在和小何开线上会议，是人在监狱开的吗
+
+*****
+
+####  沈淮  
+##### 13433#         楼主| 发表于 2022-8-15 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081466&amp;ptid=2084957" target="_blank">ishikawa_k 发表于 2022-8-15 22:40</a>
+
+潘飞之前还在和小何开线上会议，是人在监狱开的吗</blockquote>
+不是哪个
+
