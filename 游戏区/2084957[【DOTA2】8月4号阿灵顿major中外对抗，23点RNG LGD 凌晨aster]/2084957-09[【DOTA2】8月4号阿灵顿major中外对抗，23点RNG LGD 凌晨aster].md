@@ -8874,3 +8874,46 @@ Milnil101：
 
 现场这堆炒币广告是不是jesse放的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  遍体精淋af  
+##### 13007#       发表于 2022-8-15 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075047&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-15 14:37</a>
+想想真是感慨 去年决赛崩溃点了个斧王出来但是被宰了 说不定今天早上萧瑟看到又是斧王内心还在窃喜 没想 ...</blockquote>
+g4按照正常情况下确实老干瘪是bp优势的，斧王表现好的原因还是驾驶员的问题，这英雄版本下水道是没疑问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奈何处长和文丑心态崩了打肌肉dota
+
+*****
+
+####  syndrome2032  
+##### 13008#       发表于 2022-8-15 14:44
+
+ 本帖最后由 syndrome2032 于 2022-8-15 14:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075047&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-15 14:37</a>
+想想真是感慨 去年决赛崩溃点了个斧王出来但是被宰了 说不定今天早上萧瑟看到又是斧王内心还在窃喜 没想 ...</blockquote>
+有一说一，高地冲低地那波斧王吼真的很有ceeeeeeeeeeb感了!
+
+*****
+
+####  战狼PTSD  
+##### 13009#       发表于 2022-8-15 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我日，错过了那么多红包，玉玉了
+
+*****
+
+####  逃离二次元  
+##### 13010#       发表于 2022-8-15 14:46
+
+<blockquote>总有集美说喷lgd就是针对ame 我提一个啊 为什么呢 第一 据集美现在打得好等于以前无锅论 莫言滚滚 和414xinq没锅不能喷 第二 据集美成绩好无锅论 冠军358不能喷 第三 据硬实力冠军论 雪碧能赢肯定有其他因素 肯定不是雪碧打的好 所以得出结论 一切说雪碧打的好和lgd打的不好的都是a黑 总结完毕</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 13011#       发表于 2022-8-15 14:49
+
+文丑这成分存疑啊，众所周知，超级集美论坛这些地方都在清算队友，能直球辱骂处长的无非就几个地方<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">q鳖你在楼里就说句话
+<img src="https://p.sda1.dev/6/e202f4521e8eaac7d3f069a5d4003c23/8xQ2q-47yvK5ToS7q-22.jpg" referrerpolicy="no-referrer">
+
