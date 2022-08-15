@@ -14663,3 +14663,38 @@ FaMV4mGaUAA3AQ2.jpg
 以前得看对面的脸色
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1373#       发表于 2022-8-15 19:23
+
+ 本帖最后由 黑上シグマ 于 2022-8-15 19:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CBA满绊2年的表示，我的2宝水魔总能掏出来用了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C呆快满绊了呀
+
+*****
+
+####  angelooo  
+##### 1374#       发表于 2022-8-15 19:26
+
+<blockquote>黑上シグマ 发表于 2022-8-15 19:23
+CBA满绊2年的表示，我的2宝水魔总能掏出来用了？
+
+C呆快满绊了呀
+
+ ...</blockquote>
+我明白了，下一个蓝拐，攻击宝具的C呆马甲！
+
+*****
+
+####  alucardcz  
+##### 1375#       发表于 2022-8-15 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079189&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-15 19:26</a>
+
+我明白了，下一个蓝拐，攻击宝具的C呆马甲！</blockquote>
+新商法 换皮技能照搬拐（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
