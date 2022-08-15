@@ -8227,3 +8227,133 @@ g2萧瑟从出装到走路都没想过去带线，nts能怎么办
 
 lgd这破队，要救只有把庞德抬出来。但是虾之国凉州血统，估计很难硬了
 
+
+
+*****
+
+####  白色的120  
+##### 12937#       发表于 2022-8-15 13:10
+
+超级罕见论坛
+<img src="https://p.sda1.dev/6/f5b62d8ea6bffcf0234af3fe113c837f/CMP_20220815131020943.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  usoda  
+##### 12938#       发表于 2022-8-15 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073921&amp;ptid=2084957" target="_blank">血狂毘沙门 发表于 2022-8-15 13:07</a>
+
+还是处长占了太多资源 345太穷了
+
+穷则思路僵硬</blockquote>
+处长打这种局历来都是刷个好几万 然后鸟用没有的
+
+*****
+
+####  漂灵  
+##### 12939#       发表于 2022-8-15 13:12
+
+<blockquote>nightmare902015 发表于 2022-8-15 12:37
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没 ...</blockquote>
+ace联盟就是几个老板的微信群，无非是找个借口来封杀wings，之前之后都毫无存在感
+
+*****
+
+####  syndrome2032  
+##### 12940#       发表于 2022-8-15 13:12
+
+ 本帖最后由 syndrome2032 于 2022-8-15 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073909&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 13:07</a>
+我之前就觉得，文爱胖子这种走钢丝的战法要不得
+
+你看，这不就摔死一次了？
+
+大胆预测还要接着摔 ...</blockquote>
+文丑的走钢丝开团打视野有猴爹和量子鞭兜底。
+哪次他这么搞后面不都有两座大山准备冲上去宰人。
+这两个都没了再滚上去了自然就是送了。
+
+*****
+
+####  lyjssj  
+##### 12941#       发表于 2022-8-15 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073959&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 13:10</a>
+
+超级罕见论坛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死，确实
+
+*****
+
+####  沈淮  
+##### 12942#         楼主| 发表于 2022-8-15 13:13
+
+塑造集美的正确的历史记忆——集美言论合集2.0（8.5更新）
+[https://bbs.sgamer.com/thread-14170109-1-1.html](https://bbs.sgamer.com/thread-14170109-1-1.html)
+
+(出处: 超级玩家官方论坛)
+
+这个好像没人发过
+
+*****
+
+####  CNFH1984  
+##### 12943#       发表于 2022-8-15 13:14
+
+https://m.bilibili.com/video/BV17e4y1f7C8 森哥剪辑的ame集锦出了。你们谁跟森哥说一下，别整这个bgm了
+
+*****
+
+####  CNFH1984  
+##### 12944#       发表于 2022-8-15 13:14
+
+<blockquote>syndrome2032 发表于 2022-8-15 13:12
+文丑的走钢丝开团打视野有猴爹和量子鞭兜底。
+
+哪次他这么搞后面不都有两座大山准备冲上去宰人。
+
+这两个都 ...</blockquote>
+好家伙，颜良文丑于禁庞德是吧
+
+*****
+
+####  哈萨维·诺亚  
+##### 12945#       发表于 2022-8-15 13:15
+
+森哥一直用一个bgm就是在告诉妮 历史只会不断重演
+
+*****
+
+####  尸体鲨  
+##### 12946#       发表于 2022-8-15 13:16
+
+森哥一直用一个bgm就是在告诉妮 老了油了不知耻了
+
+*****
+
+####  逃离二次元  
+##### 12947#       发表于 2022-8-15 13:16
+
+森哥一直用一个bgm就是在告诉妮 老了油了不知耻了
+
+*****
+
+####  沈淮  
+##### 12948#         楼主| 发表于 2022-8-15 13:17
+
+森哥一直用一个bgm就是在告诉妮 老了油了不知耻了
+
+*****
+
+####  白野苍衣  
+##### 12949#       发表于 2022-8-15 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在这个23是爹的版本，LGD如果想赢处长就应该是TI5fear那种定位。
+
+稳定farm，合理出装，团战该吃伤害吃伤害，该打输出打输出。
+
+收起自己的表演欲，别tm搞那些脑残切入和整活出装，等四赵云队友凯瑞就行了。
+
