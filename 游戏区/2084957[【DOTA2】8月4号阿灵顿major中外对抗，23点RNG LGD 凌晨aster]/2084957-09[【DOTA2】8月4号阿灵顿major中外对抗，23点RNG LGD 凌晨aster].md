@@ -5115,3 +5115,249 @@ RNG游出预选 IG游出LCQ，求求了，我还想看一次TI8原班人马！<i
 那今年冠军只能是我拳酱了 ...</blockquote>
 懂了，是我鳖鳖最后一春！
 
+
+
+*****
+
+####  百世诸侯  
+##### 12598#       发表于 2022-8-15 10:20
+
+想看茶队夺冠的想象一下鳖鳖跳上主舞台从鹏子手里抢过冠军盾高高举起的那一幕<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12599#       发表于 2022-8-15 10:21
+
+然而这个版本强势英雄都是lgd玩的，怎么才能精准削倒ts呢
+
+*****
+
+####  smkf013  
+##### 12600#       发表于 2022-8-15 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071055&amp;ptid=2084957" target="_blank">chilno 发表于 2022-8-15 10:18</a>
+
+懂了，是我鳖鳖最后一春！</blockquote>
+秘鲁dota夺冠几率都比阿茶高吧<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  遍体精淋af  
+##### 12601#       发表于 2022-8-15 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">徐志雷举冠军盾这种事情不要啊，宁愿看ig从外卡杀到决赛举盾圆森哥的冠军梦（森哥毕竟献祭了头发
+
+*****
+
+####  格雷殿下  
+##### 12602#       发表于 2022-8-15 10:21
+
+啥，睡着了，最后一把是lgd被翻皮了吗，怎么样子的?
+
+*****
+
+####  修罗王  
+##### 12603#       发表于 2022-8-15 10:23
+
+ti雪碧还是要看老东京的发挥，这次major第一次打茶点两把，第二次打茶赢得两把，决赛打lgd都是绝对top级别的表现，但也有被骄阳和nts打爆的时候
+
+*****
+
+####  lyjssj  
+##### 12604#       发表于 2022-8-15 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只想看ti上rng/ig/茶能把lgd亲手淘汰出局
+
+如果成真的话，我就上nga把当天的发帖回帖全部截图下来，值得每年回味一次
+
+*****
+
+####  遍体精淋af  
+##### 12605#       发表于 2022-8-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071089&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 10:21</a>
+然而这个版本强势英雄都是lgd玩的，怎么才能精准削倒ts呢</blockquote>
+盯着mira削就行了
+
+*****
+
+####  TheOccuria  
+##### 12606#       发表于 2022-8-15 10:23
+
+不如说这版本是1号位坐牢2和3带飞的版本
+
+如果v社改了提升1的重要性..大家都相信处长吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 12607#         楼主| 发表于 2022-8-15 10:23
+
+sg开闸放水了，秒审核
+
+拷打一下lio这个野种
+
+*****
+
+####  北条早苗  
+##### 12608#       发表于 2022-8-15 10:23
+
+sven女王斧王还能怎么砍，把陈电棍戴泽砍了四赵云就抬不动a畜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 12609#       发表于 2022-8-15 10:23
+
+本来我看了都睡觉了 准备缩壳了 结果a÷好似 开香槟🍾🍾🍾
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 12610#       发表于 2022-8-15 10:24
+
+无限进化！
+
+*****
+
+####  Bernoulli  
+##### 12611#       发表于 2022-8-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071081&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 10:20</a>
+
+想看茶队夺冠的想象一下鳖鳖跳上主舞台从鹏子手里抢过冠军盾高高举起的那一幕 ...</blockquote>
+阿茶还有很大的进步空间（离冠军的水平差的比较远）
+
+*****
+
+####  阿垃垃圾历  
+##### 12612#       发表于 2022-8-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071115&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-15 10:23</a>
+
+只想看ti上rng/ig/茶能把lgd亲手淘汰出局
+
+如果成真的话，我就上nga把当天的发帖回帖全部截图下来， ...</blockquote>
++1
+
+*****
+
+####  白色的120  
+##### 12613#       发表于 2022-8-15 10:25
+
+ 本帖最后由 白色的120 于 2022-8-15 10:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071103&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-15 10:21</a>
+啥，睡着了，最后一把是lgd被翻皮了吗，怎么样子的?</blockquote>
+前期lgd三路对线优势，钢背兽都占不了线了，陈屯的野怪还被lgd抢了，大老师直接73开，然后雪碧借助视野优势，老东京和奔溃哥各种高水平打团发挥，用团战干烂了lgd
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ronso  
+##### 12614#       发表于 2022-8-15 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071115&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-15 10:23</a>
+只想看ti上rng/ig/茶能把lgd亲手淘汰出局
+
+如果成真的话，我就上nga把当天的发帖回帖全部截图下来， ...</blockquote>
+正确的
+
+*****
+
+####  syndrome2032  
+##### 12615#       发表于 2022-8-15 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071115&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-15 10:23</a>
+只想看ti上rng/ig/茶能把lgd亲手淘汰出局
+
+如果成真的话，我就上nga把当天的发帖回帖全部截图下来， ...</blockquote>
+那只剩茶多半能做到了。
+
+*****
+
+####  EigenVesper  
+##### 12616#       发表于 2022-8-15 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071103&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-15 10:21</a>
+
+啥，睡着了，最后一把是lgd被翻皮了吗，怎么样子的?</blockquote>
+印象中是这样：lgd带盾领先1w和雪碧打了一波团，集火钢背因为拉比克偷了幽灵船，钢背丝血没死，崩溃哥反手ceb附体跳吼三人，雪碧打赢一波，然后先辈ck在队友没活的情况下3打5又输一波，被雪碧连拆两路高地，然后就差不多了
+
+*****
+
+####  seki_m  
+##### 12617#       发表于 2022-8-15 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070872&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 10:08</a>
+
+意思是皮套人直接一个缩地</blockquote>
+达达圆我三亚梦
+
+*****
+
+####  聚散浮云  
+##### 12618#       发表于 2022-8-15 10:28
+
+有没有在现场的萨特发点图说什么在现场看到疑似克格勃了giegie眼角有泪到超级假赛论坛啊，想看点大乐子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 12619#       发表于 2022-8-15 10:28
+
+阿梓：亚军是谁我无所谓，我只想做亚军夫人
+
+*****
+
+####  百世诸侯  
+##### 12620#       发表于 2022-8-15 10:28
+
+8月23号中午12点，ESL ONE马来西亚开打，参赛队伍有OG，Fnatic，A队，液体，秘密，尼格玛，Enity，茶队，Boom，T1，TSM，TA，含金量还可以，茶队这个比赛要是能再次杀入决赛日甚至夺冠，那真的有点气势了
+
+*****
+
+####  沈淮  
+##### 12621#         楼主| 发表于 2022-8-15 10:29
+
+<img src="https://img.saraba1st.com/forum/202208/15/102954l5zgg1o74vo5465v.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220815102945.jpg</strong> (53.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:29 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/102908mhqgbuqf64hwsqmr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220815102455.png</strong> (95.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 10:29 上传
+
+*****
+
+####  何然  
+##### 12622#       发表于 2022-8-15 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不管，我要看杜鹏儿淘汰给LGD然后给志雷哥哥送上冠军队
+
+我想想立个什么flag
+
+黑丝这种事情还是太恶心了
+
+*****
+
+####  遍体精淋af  
+##### 12623#       发表于 2022-8-15 10:30
+
+rng也得冠了？据说回不来了
+
