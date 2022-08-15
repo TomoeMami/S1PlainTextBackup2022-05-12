@@ -12448,3 +12448,38 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 又想起了之前的访谈
 
+
+
+*****
+
+####  ads147147  
+##### 2705#       发表于 2022-8-15 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073430&amp;ptid=2078110" target="_blank">L-JoeW 发表于 2022-8-15 12:34</a>
+大佬们，你们说的这个第三季是单纯对剧情节奏编排的调侃还是按现在的进度可能真的会有第三季才能讲完啊[f:0 ...</blockquote>
+一期生升二年级，第二季。
+一期生升到三年级，自然就有第三季。
+一反常态一季讲一年的故事。
+一反常态一季只有12集。
+而且现在9人生日刚好分走9个星座，还有3个空位。
+
+所以可能性并不小。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玙璠  
+##### 2706#       发表于 2022-8-15 12:44
+
+<blockquote>L-JoeW 发表于 2022-8-15 12:34
+大佬们，你们说的这个第三季是单纯对剧情节奏编排的调侃还是按现在的进度可能真的会有第三季才能讲完啊[f:0 ...</blockquote>
+拉拉标配是两季动画+剧场版吧
+
+*****
+
+####  cybernetics31  
+##### 2707#       发表于 2022-8-15 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破疫情真的难受
+

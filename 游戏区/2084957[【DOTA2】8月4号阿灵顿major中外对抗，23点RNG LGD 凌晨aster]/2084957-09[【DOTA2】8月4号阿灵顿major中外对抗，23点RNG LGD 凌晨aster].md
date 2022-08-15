@@ -7911,3 +7911,117 @@ wings气氛爆炸的关键到底是谁，现在可说不清了……</blockquote
 
 唯一证据只有最后eh年代二冰跪在eh门口直接被vote，邪恶睿达选了文丑胖子打兄弟dota。
 
+
+
+*****
+
+####  nightmare902015  
+##### 12905#       发表于 2022-8-15 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073481&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-15 12:38</a>
+后来搞了几年被V社干了啊</blockquote>
+啥意思，搞什么事儿了，上海major？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 12906#       发表于 2022-8-15 12:42
+
+让A畜玩rat太难为他了，最畜的还是第四把的ck吧
+选个ck出来不切后排酱油，骑钢背被斧王吼住暴毙。上路野区那波四个队友被女王大走，一个人追着钢背屁股砍有反向波那味了
+
+*****
+
+####  莉拉厨  
+##### 12907#       发表于 2022-8-15 12:43
+
+ 本帖最后由 莉拉厨 于 2022-8-15 12:44 编辑 
+
+根本原因还是iceice这个压力怪，其他什么小明鞭出去找女朋友打炮都是可以调解的场外因素，性格的事影响到游戏场内了，队伍很难不崩盘
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  秘奥闪光  
+##### 12908#       发表于 2022-8-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073470&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 12:37</a>
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没 ...</blockquote>
+因为ace本来就没p用，wings解体是自己太菜打不下去了，邪恶双雄有队要想跑路，其余三人mdy
+
+*****
+
+####  walfeds  
+##### 12909#       发表于 2022-8-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073489&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 12:38</a>
+
+乐，意思去年yatoro的表现还没能打服集美哈哈哈
+
+“不觉得a畜比yatoro差”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仿效ti8ti9故事
+
+*****
+
+####  syndrome2032  
+##### 12910#       发表于 2022-8-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073470&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 12:37</a>
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没 ...</blockquote>
+ace实质是各个俱乐部联盟，你不在里面连和其他俱乐部训练的资格都没有，国内赛事报名说是可以用过ace鼓动自己成员罢赛搞得主办方没法邀请其他队伍。
+
+ti7结束后ti8赛季 valve和完美回收赛事举办权。major和minor赛制变成valve挂名，国内预选由完美组织。俱乐部再屌总不能跟着官方对着干吧。
+
+导致ace名存实亡。
+
+*****
+
+####  yourSwaTer  
+##### 12911#       发表于 2022-8-15 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073508&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 12:39</a>
+最主流的证据是二冰压力怪+单身狗搞得34不和。
+
+唯一证据只有最后eh年代二冰跪在eh门口直接被vote，邪恶 ...</blockquote>
+我记得之前斗鱼搞过一个企画，让那个台妹采访过bian，里面也有一些说法。视频我找不到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  尸体鲨  
+##### 12912#       发表于 2022-8-15 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073534&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 12:41</a>
+啥意思，搞什么事儿了，上海major？</blockquote>
+Major—minor赛制下ace联盟就没屁用了
+
+*****
+
+####  沈淮  
+##### 12913#         楼主| 发表于 2022-8-15 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57073470&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-15 12:37</a>
+
+有熟悉那段历史的哥们讲下当时所谓只手遮天的ace联盟推动wings解体，为啥之后的dota2战队和比赛里面也再没 ...</blockquote>
+v社后面推动了积分赛制和禁止一个俱乐部多个队伍参加ti，ace就废了
+
+*****
+
+####  nightmare902015  
+##### 12914#       发表于 2022-8-15 12:48
+
+ok谢谢漏油，大概搞懂来龙去脉了。
+
+*****
+
+####  沈淮  
+##### 12915#         楼主| 发表于 2022-8-15 12:49
+
+ 本帖最后由 沈淮 于 2022-8-15 12:50 编辑 
+
+ace当时唯一的作用就是在国内举办比赛，比如说过段时间要打的eslone，它可以决定有哪些队参加预选赛
+
+后来的巡回赛制都是完美举办的比赛，ace就插不上手了
+
