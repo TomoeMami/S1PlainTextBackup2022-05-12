@@ -10279,3 +10279,154 @@ sccc的军事化也算拧绳了。
 
 赛程针对，应该打单败赛制
 
+
+
+*****
+
+####  zsu222  
+##### 13165#       发表于 2022-8-15 17:20
+
+说起nb 那个   当时么么鳖还在cdecy吧  被猛刷战绩
+
+*****
+
+####  沈淮  
+##### 13166#         楼主| 发表于 2022-8-15 17:21
+
+bo7是吧
+
+*****
+
+####  woyzeck  
+##### 13167#       发表于 2022-8-15 17:22
+
+好像打到现在打了20多局了雪碧加起来赢了7把，lgd至少赢了13把，胜率65%，感觉不是一个档次的队啊，lgd硬实力还是高一档的。
+
+*****
+
+####  李喜睡  
+##### 13168#       发表于 2022-8-15 17:23
+
+新版本是大更新吗？
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  阿特洛玻丝  
+##### 13169#       发表于 2022-8-15 17:24
+
+看胜率的话可以考虑出门左转隔壁打联赛
+
+*****
+
+####  lyjssj  
+##### 13170#       发表于 2022-8-15 17:24
+
+<blockquote>战狼PTSD 发表于 2022-8-15 17:07
+整成CSGO那样吧，这样大家就不会喷中国队了</blockquote>
+这坨屎我刚刚也在隔壁看到了，想了想没搬过来，太晦气了
+
+像极了大清：开战前宣战八国挨个清算，战后量中国之物力结与国之欢心，真不愧是太监论坛233
+
+
+
+*****
+
+####  遍体精淋af  
+##### 13171#       发表于 2022-8-15 17:25
+
+算胜率的话vp有话说了，雪碧当了多久的vp热兵器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凭啥你现在是独联体一哥
+
+*****
+
+####  百世诸侯  
+##### 13172#       发表于 2022-8-15 17:26
+
+<img src="https://img.saraba1st.com/forum/202208/15/172601zbigrrtj75199ita.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 17:26 上传
+
+拒训拒训
+
+*****
+
+####  TheOccuria  
+##### 13173#       发表于 2022-8-15 17:27
+
+格斗游戏的做法是大家都双败，胜者组进决赛的输了一个bo5还能再打一个bo5
+
+不过格斗游戏短一个bo5撑死20分钟，dota2这么搞那就要单独出一天打决赛了
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 13174#       发表于 2022-8-15 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么都这么激动的，看来我还是粉得不够多，没被破防。
+
+复盘了第一第二把感觉没啥好黑的，水平确实顶尖，这两把精彩对局都够我看了。第三把bp烂爆没啥好说。第四把赛点操作变形，决赛心态不稳现实也有不少，什么高考清华水平结果只得个1本
+
+*****
+
+####  adretyu67  
+##### 13175#       发表于 2022-8-15 17:28
+
+傻狗们说去年lgd就是和雪碧练多了结果到决赛bo5开雾习惯和视野被人爆中爆了究竟真的假的啊。
+
+*****
+
+####  反方向的波  
+##### 13176#       发表于 2022-8-15 17:28
+
+出大事了，v社官网把vp的直邀偷了送给fnc了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/2c49dfdac480afadc19403267b9a7d60/851ee8df-13c3-4f6a-a50c-1ff2b0d76607.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 13177#       发表于 2022-8-15 17:28
+
+<blockquote>蛋炒蜂窝煤 发表于 2022-8-15 17:27
+怎么都这么激动的，看来我还是粉得不够多，没被破防。
+
+复盘了第一第二把感觉没啥好黑的，水平确实顶 ...</blockquote>
+隔壁才是破防，这边是高潮
+
+不知道治好了多少个人的精神内耗
+
+*****
+
+####  坚定的团子党  
+##### 13178#       发表于 2022-8-15 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077363&amp;ptid=2084957" target="_blank">方舟失智博士 发表于 2022-8-15 17:15</a>
+
+胖头鱼还是有意思和弹幕说 这个MAJOR亚军放在往年就是TI亚军又是经典亚军 但今年时间线变了  8月是MAJOR TI ...</blockquote>
+绷，那意思去年八月就是animajor换了ti咯，g胖小黑子石锤了呀，故意不让我家giegie拿冠军是吧<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 13179#       发表于 2022-8-15 17:30
+
+说起来之前v社csgo官网 major冠军一直定格在A队夺冠那一年
+
+*****
+
+####  外挂全家脚气  
+##### 13180#       发表于 2022-8-15 17:30
+
+说起进化，有没有人分析去年TS从ANIMAJOR到冠军到底进化了什么，对线，视野，决策，英雄池？
+
+*****
+
+####  seki_m  
+##### 13181#       发表于 2022-8-15 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">我现在还不敢看回放呢
+

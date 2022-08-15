@@ -13754,3 +13754,174 @@ rba更新了 绿拐
 那还是rba吧 至少可以暴了cba（</blockquote>
 那没事了，她的立绘目前来说也爆了原版的，等池子开了
 
+
+
+*****
+
+####  angelooo  
+##### 1287#       发表于 2022-8-15 17:21
+
+我觉得除了绿卡打手不行，她这50单充是真的不灵活……算了
+
+*****
+
+####  里村紅葉  
+##### 1288#       发表于 2022-8-15 17:22
+
+跟原版比就多了15绿魔放吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就一点都不肯多给
+
+*****
+
+####  sosgame67  
+##### 1289#       发表于 2022-8-15 17:23
+
+比原版强一点但是又没那么强，好像三个池子都不用抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1290#       发表于 2022-8-15 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077475&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-15 17:22</a>
+
+跟原版比就多了15绿魔放吗真就一点都不肯多给</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起大领导力？ 减防只有1面生效还会miss（
+
+
+
+*****
+
+####  exiaexa  
+##### 1291#       发表于 2022-8-15 17:23
+
+ 本帖最后由 exiaexa 于 2022-8-15 17:24 编辑 
+
+现在最佳出路是去给竞速组当玩具
+
+这个红爆、红集星中和出星那是真的行
+
+打不过就加入不丢人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+问题是这个配置tmd不是应该给梅林吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 1292#       发表于 2022-8-15 17:24
+
+绿卡倍率比原来高了
+降防改成了加攻
+然而最大的启动问题还是没解决
+论加成比不过蓝卡
+论伤害比不过红卡
+确实比原版强 但也强得有限 而且更多是加在了暴击上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1293#       发表于 2022-8-15 17:26
+
+艹，今年的同人展背景换了好多生草的东西
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1294#       发表于 2022-8-15 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有人开始吹狂兰重生了  太艹了  
+
+*****
+
+####  Jamaisvu  
+##### 1295#       发表于 2022-8-15 17:27
+
+搬一下吧友的截图：
+
+<img src="https://img.saraba1st.com/forum/202208/15/172325eelgfyoo6li6fejg.jpg" referrerpolicy="no-referrer">
+
+<strong>BA5381C2AC399E6E74CC52110DEEE29A.jpg</strong> (133.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/172325v8zyo6ty8fsnf00y.jpg" referrerpolicy="no-referrer">
+
+<strong>E943E2A0B5F24099758D3D98377F4451.jpg</strong> (137.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/172325h6u12pm1xti2hyzm.jpg" referrerpolicy="no-referrer">
+
+<strong>52B26EAC20E0A52336D6EB44BD2774AF.jpg</strong> (132.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202208/15/172325hdwblngb8rvgrgnn.jpg" referrerpolicy="no-referrer">
+
+<strong>C87B7986D3994127C3793A9A39A10B51.jpg</strong> (207.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-15 17:23 上传
+
+RBA还挺...普通的，红绿双拐，爆杀刑部姬（？）。
+
+绿卡就非得和暴击绑定是吧...除非以后出指定抽卡的技能，要不暴击流很不稳定的...
+
+现在无论红蓝光炮都是连发为主，蓝卡冲浪，红卡满充，也就是双兔体系遇到阴间骑本可能会暴击一回合...
+
+新绿拐不想着怎么发展连发体系，还在这暴击...还有待进步啊...
+
+（感觉不适合必需...省钱了，周三池子抽到大武后就当毕业了吧233）
+
+*****
+
+####  仰望神的括约肌  
+##### 1296#       发表于 2022-8-15 17:27
+
+两个斯卡蒂不行 那三个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1297#       发表于 2022-8-15 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077503&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:23</a>
+
+现在最佳出路是去给竞速组当玩具
+
+这个红爆、红集星中和出星那是真的行</blockquote>
+真正的红拐 3t100爆  虚假的红拐1t<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1298#       发表于 2022-8-15 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077570&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2022-8-15 17:27</a>
+
+两个斯卡蒂不行 那三个呢</blockquote>
+解决不了初动问题啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那个试玩阵容
+
+我太公望、本体、C呆、rba全buff套上去
+
+她自己只能回51
+
+也就是说你要么带宝石要么带公主+换人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
