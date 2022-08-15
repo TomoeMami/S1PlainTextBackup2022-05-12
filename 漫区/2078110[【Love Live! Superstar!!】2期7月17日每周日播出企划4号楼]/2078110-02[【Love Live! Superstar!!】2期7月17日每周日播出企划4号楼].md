@@ -12132,3 +12132,24 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 —— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  长日留痕  
+##### 2673#       发表于 2022-8-15 09:46
+
+其实挺有意思的。这种跳脱出固定模板的偶像人设。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 2674#       发表于 2022-8-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070389&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-15 09:40</a>
+
+显然是家里明显地穷啊，跟杂志访谈和三四集镜头都对得上。本集开头就有一个镜头是CEO的腰闪了，因为上一 ...</blockquote>
+杂志访谈？哪个杂志，我去看看
+

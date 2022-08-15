@@ -4166,3 +4166,265 @@ major打完了，懒🐶V社的更新呢，本子呢
 
 明天不更就周五，周五不更就下周再复读一次<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Keynes  
+##### 12496#       发表于 2022-8-15 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070308&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-15 09:36</a>
+ 居然是接不是揭</blockquote>
+打错了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 12497#       发表于 2022-8-15 09:41
+
+没鹅给发红包的同志加了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 12498#       发表于 2022-8-15 09:41
+
+听说是s1mple鸽了秋季赛端着awp瞄着ame
+
+哥哥眼角含泪，我哭了
+
+*****
+
+####  百世诸侯  
+##### 12499#       发表于 2022-8-15 09:42
+
+不是吧，四个红包一个都抢不到，尼玛比这么多不说话只扫楼的是吧
+
+*****
+
+####  反方向的波  
+##### 12500#       发表于 2022-8-15 09:42
+
+去外面看乐子连续错过🧧，徐林森能不能给我补发一下
+
+*****
+
+####  5678给  
+##### 12501#       发表于 2022-8-15 09:43
+
+哇，楼友抢红包的速度比集美清算楼友的速度还要快，哇哇哇，无敌了
+
+*****
+
+####  qazkevin  
+##### 12502#       发表于 2022-8-15 09:44
+
+AME当工具人老干爹还是能打，可惜了，恭喜雪碧，真的能打。
+有没有一种可能，下面八没忍得住把盘做到TI就吃了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  百世诸侯  
+##### 12503#       发表于 2022-8-15 09:44
+
+手速这么快，不会都是FY粉丝群里修炼出来的吧
+
+*****
+
+####  12481632  
+##### 12504#       发表于 2022-8-15 09:44
+
+哇，去看了眼集美论坛漏油就把红包全抢完了呀
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gorilla994  
+##### 12505#       发表于 2022-8-15 09:44
+
+<blockquote>莉拉厨 发表于 2022-8-15 08:47
+蛆海狂欢！我直接化身假赛集美点开术士八的微博！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1N ...</blockquote>
+术士8微博关了吧
+
+*****
+
+####  米德  
+##### 12506#       发表于 2022-8-15 09:45
+
+哇你们手速是真的快啊 能不能让我抢个回回血
+
+*****
+
+####  Asukalangley33  
+##### 12507#       发表于 2022-8-15 09:45
+
+/神不是核核么？
+集美就是流量包罢了
+
+拷打的时候只要留一点集美扣的空间，说点好听的，照样吸的飞起
+
+*****
+
+####  沈淮  
+##### 12508#         楼主| 发表于 2022-8-15 09:46
+
+假赛狗能不能去别的地方找画面？
+
+*****
+
+####  蛭人  
+##### 12509#       发表于 2022-8-15 09:46
+
+术士八专门点评谭雅把微博装回来了。
+
+*****
+
+####  沈淮  
+##### 12510#         楼主| 发表于 2022-8-15 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070457&amp;ptid=2084957" target="_blank">gorilla994 发表于 2022-8-15 09:44</a>
+
+术士8微博关了吧</blockquote>
+没关啊，前两天不还在赛垃圾的评论区跳了一波吗
+
+
+
+*****
+
+####  ml1642879  
+##### 12511#       发表于 2022-8-15 09:46
+
+水人变成蚂蚁也会缩地连击蝗虫，可它回不到过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色的120  
+##### 12512#       发表于 2022-8-15 09:47
+
+集美们已经开始石油杯单败bo3含金量大于major双败bo5了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sayuki1025  
+##### 12513#       发表于 2022-8-15 09:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">真的开心
+
+*****
+
+####  nowaki  
+##### 12514#       发表于 2022-8-15 09:47
+
+决赛lgdbp至少3把优，结果3-1
+
+*****
+
+####  何然  
+##### 12515#       发表于 2022-8-15 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070491&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-15 09:47</a>
+
+集美们已经开始石油杯单败bo3含金量大于major双败bo5了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Ne ...</blockquote>
+这就要把DAC降级为宇宙第二赛事了吗
+
+*****
+
+####  asd235614  
+##### 12516#       发表于 2022-8-15 09:48
+
+明明一晚上没睡但是上班上的神清气爽，感谢雪碧
+
+*****
+
+####  天堂蜘蛛  
+##### 12517#       发表于 2022-8-15 09:48
+
+石油杯原来是单败BO3？
+
+赛制这么脑瘫的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 12518#       发表于 2022-8-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070490&amp;ptid=2084957" target="_blank">ml1642879 发表于 2022-8-15 09:46</a>
+
+水人变成蚂蚁也会缩地连击蝗虫，可它回不到过去</blockquote>
+前两天不是说axo是食蚁兽了么？假盾冲击、虚张声势、卷土重来
+
+*****
+
+####  白色的120  
+##### 12519#       发表于 2022-8-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070496&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 09:47</a>
+决赛lgdbp至少3把优，结果3-1</blockquote>
+第二局被翻盘，第五局又被翻，集美怎么好意思怪bp
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 12520#       发表于 2022-8-15 09:49
+
+沙特金主要看个快的。
+
+*****
+
+####  沈淮  
+##### 12521#         楼主| 发表于 2022-8-15 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070525&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-15 09:48</a>
+
+前两天不是说axo是食蚁兽了么？假盾冲击、虚张声势、卷土重来</blockquote>
+还有一个中止卷土重来
+
+*****
+
+####  夏溪澪mio  
+##### 12522#       发表于 2022-8-15 09:50
+
+23号有比赛啊，这不更新那又要等比赛打完了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ml1642879  
+##### 12523#       发表于 2022-8-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070525&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-15 09:48</a>
+前两天不是说axo是食蚁兽了么？假盾冲击、虚张声势、卷土重来</blockquote>
+假盾冲击难绷
+
+*****
+
+####  遍体精淋af  
+##### 12524#       发表于 2022-8-15 09:50
+
+第一二四把应该都是优势或者均势以上，第三把大劣，其中第一二把的思路是对的赢一输一，第四把纯粹是脑浆了
+
+*****
+
+####  白色的120  
+##### 12525#       发表于 2022-8-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070524&amp;ptid=2084957" target="_blank">天堂蜘蛛 发表于 2022-8-15 09:48</a>
+石油杯原来是单败BO3？
+
+赛制这么脑瘫的么</blockquote>
+除了奖金高，赛制上和major没法比
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
