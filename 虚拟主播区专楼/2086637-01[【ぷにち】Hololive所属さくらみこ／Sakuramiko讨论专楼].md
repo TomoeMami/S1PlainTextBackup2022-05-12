@@ -1205,3 +1205,29 @@ MC的火建可能时间上排不出来没办法联动，如果搞不了就自己
 反正同一个社的 打不过就加入 两个合并一起办
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 110#         楼主| 发表于 2022-8-15 11:43
+
+<img src="https://img.saraba1st.com/forum/202208/15/114357tlcgcg0c761ceww0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 11:43 上传
+
+*****
+
+####  holoan  
+##### 111#         楼主| 发表于 2022-8-15 11:48
+
+合办当然是最好的怕是miko拉不下这个脸
+
+去年最忙的时候也只叫了486来帮忙做联络，绝大多数建筑作业都是miko自己一个人直播外完成
+
+今年还要把以前的会场推翻全部重做新的项目，这还要自己一个人做我觉得不实际
+

@@ -6823,3 +6823,266 @@ ame打不了功能c。
 你是不是集美你自己不会翻你的发帖记录？</blockquote>
 我翻了我也不觉得是啊，不过你一直反a不绝对就是绝对不反a，也没啥好讨论的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 12783#       发表于 2022-8-15 11:40
+
+皮球玩反手5顺手应该是鳖茶整体风格的问题。
+
+*****
+
+####  CNFH1984  
+##### 12784#       发表于 2022-8-15 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072447&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-15 11:39</a>
+
+所以lgd之前放养哥哥4赵云所向披靡
+
+怎么突然决赛开始4保1了
+
+有没有可能是4赵云自己尿了主动要求保哥哥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">于禁们看见水淹七军了不得赶紧跑路卖庞德？
+
+*****
+
+####  星野航  
+##### 12785#       发表于 2022-8-15 11:41
+
+ti8的时候topson的打法就是劣化版的ti9了，无非是当时对线吃屎的比例还是太高，至少对maybe肯定是这样的
+
+ti9那是唯一一档的水平，再往下是weehaa，再接着是其他中单
+
+主要是ti9那地图压制力印象太深
+
+今年ti，老东京要是也能打出这种控图水平，那绝对能逆转风评，成为新晋神仙
+
+*****
+
+####  尸体鲨  
+##### 12786#       发表于 2022-8-15 11:42
+
+相信莫大学霸好吧
+
+*****
+
+####  CNFH1984  
+##### 12787#       发表于 2022-8-15 11:42
+
+理性讨论，第二把小娜迦如果改个出装路线后期有没有救？
+
+*****
+
+####  usoda  
+##### 12788#       发表于 2022-8-15 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072447&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-15 11:39</a>
+ 所以lgd之前放养哥哥4赵云所向披靡 怎么突然决赛开始4保1了 有没有可能是4赵云自己尿了主动要求保哥哥 ...</blockquote>
+和去年ti一模一呀 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 每次一到回家局 面8一定会选择相信萧瑟的 只是仙贝稳定让人失望罢了 
+
+*****
+
+####  百世诸侯  
+##### 12789#       发表于 2022-8-15 11:42
+
+这楼里的真集美还得是昨晚那个第一把结束问四赵云去哪儿了的，很有A畜等四个爹带躺结果带躺失败还反咬一口的味儿
+
+*****
+
+####  哈曼的YY  
+##### 12790#       发表于 2022-8-15 11:43
+
+从ggez到hates Where are u
+期待老东京给我们带来更多的嘲讽 前提是前段时间经常拉夸的他ti能保持樱花模式
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nxmonitor  
+##### 12791#       发表于 2022-8-15 11:43
+
+第二局输了以后心态急躁了，最后一局中路输的那一波，没视野朝着树林里冲还被人全看见了，要是破雾退回来站高坡可能结果要好很多，茶那边的则是一点进化的迹象都没有，今年TI还是很难……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 12792#       发表于 2022-8-15 11:43
+
+面八bp梗真挺多的  选手时代有猛犸炼金、影魔飞机  教练时代也一堆名场面
+
+*****
+
+####  omoito  
+##### 12793#       发表于 2022-8-15 11:43
+
+路人问问，复盘一般看哪个源？在哪看？
+
+*****
+
+####  遍体精淋af  
+##### 12794#       发表于 2022-8-15 11:44
+
+娜迦出装刚正面肯定是不管出什么都刚不过大圣，但是选择杀酱油迂回拆家的话是有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 12795#         楼主| 发表于 2022-8-15 11:44
+
+ 本帖最后由 沈淮 于 2022-8-15 11:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">乐，能洗杰畜和吹nga的人 什么成分自己心里清楚
+
+*****
+
+####  Bernoulli  
+##### 12796#       发表于 2022-8-15 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072270&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-15 11:30</a>
+
+RNG现在，每次出国打比赛或者打大点的比赛，就像是孙十万带大军往合肥啊或者襄阳这些地方去撞，每次 ...</blockquote>
+等一出陆议被孙十万气死的好戏
+
+*****
+
+####  何然  
+##### 12797#       发表于 2022-8-15 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072525&amp;ptid=2084957" target="_blank">omoito 发表于 2022-8-15 11:43</a>
+
+路人问问，复盘一般看哪个源？在哪看？</blockquote>
+下个客户端自己看rep怎么样
+
+*****
+
+####  格雷殿下  
+##### 12798#       发表于 2022-8-15 11:45
+
+<blockquote>CNFH1984 发表于 2022-8-15 11:42
+理性讨论，第二把小娜迦如果改个出装路线后期有没有救？</blockquote>
+建议看一下上届冠军小娜迦怎么出装
+
+*****
+
+####  Endle  
+##### 12799#       发表于 2022-8-15 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071947&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-15 11:13</a>
+注意我戏来了
+比起楼友的兴奋我倒有一丝玉玉了，为什么在ti上击败老干瘪的队伍还需要在第二年一次又 ...</blockquote>
+因为现在的刀狗不行了呗，输了以后承认技不如人的气量都没有
+
+*****
+
+####  反方向的波  
+##### 12800#       发表于 2022-8-15 11:45
+
+<blockquote> 无论LGD什么表现漏油总是4赵云，所以个人比较好奇想看看到底要什么情况才会不是4赵云，结果这第一局打完没人出来4赵云了有点可惜啊 </blockquote>
+鳖尬黑，确实没赵云了，也确实让哥哥原形毕露了
+
+*****
+
+####  沈淮  
+##### 12801#         楼主| 发表于 2022-8-15 11:46
+
+刀狗？lxo！
+
+*****
+
+####  omoito  
+##### 12802#       发表于 2022-8-15 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072559&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-15 11:45</a>
+下个客户端自己看rep怎么样</blockquote>
+我也想啊但是人在公司想看老干爹操作下午饭啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 12803#       发表于 2022-8-15 11:46
+
+小娜迦有大又肥，完全可以去带线，雪碧会被玩死
+
+*****
+
+####  百世诸侯  
+##### 12804#       发表于 2022-8-15 11:46
+
+<blockquote>omoito 发表于 2022-8-15 11:46
+我也想啊但是人在公司想看老干爹操作下午饭啊</blockquote>
+B站直接搜LGD就有主舞台回放
+
+嫌太长可以等下午杰畜的地下dota更新
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| omoito| + 1|看主舞台下午饭去咯|
+
+查看全部评分
+
+*****
+
+####  adretyu67  
+##### 12805#       发表于 2022-8-15 11:47
+
+旧时代面八的bp是突出四平八稳中稳一个字。
+
+啥强势选啥，啥好用选啥。
+
+到eh和邪恶双雄合体后开始变得多样。
+
+但是到了大赛其实骨子里还是相信强势答案。
+
+ti10最后一局狼人小小，
+
+这个major其实也是，版本答案bkb刷新电魂，有条件上就直接选了。
+
+*****
+
+####  何然  
+##### 12806#       发表于 2022-8-15 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能哥哥就是听了你们说要去带线所以第二把辉耀
+
+*****
+
+####  CNFH1984  
+##### 12807#       发表于 2022-8-15 11:48
+
+这次比赛雄辩的证明了，确实没有什么4赵云1阿斗
+
+是TM3个CJB一遇到大场面就尿裤要投降的于禁，1个虽然还有点毅力但是确实无力回天的庞德，以及1个阿斗
+
+*****
+
+####  反方向的波  
+##### 12808#       发表于 2022-8-15 11:49
+
+xincutesama的黑粉已经癫了，令人感慨
+
+*****
+
+####  沈淮  
+##### 12809#         楼主| 发表于 2022-8-15 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072502&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 11:42</a>
+
+这楼里的真集美还得是昨晚那个第一把结束问四赵云去哪儿了的，很有A畜等四个爹带躺结果带躺失败还反咬一口 ...</blockquote>
+那货就是个撸狗，都不用讨论
+
+*****
+
+####  尸体鲨  
+##### 12810#       发表于 2022-8-15 11:50
+
+按说35冠军都拿过了什么荣誉都有了应该不至于有心态问题吧，也不知道怎么打成这个样子
+

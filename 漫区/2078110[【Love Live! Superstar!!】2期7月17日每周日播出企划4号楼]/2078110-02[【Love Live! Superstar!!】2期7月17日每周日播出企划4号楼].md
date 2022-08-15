@@ -12328,3 +12328,21 @@ L吧有人也看出来可堇是套模板了<img src="https://static.saraba1st.co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2693#       发表于 2022-8-15 11:47
+
+这季本来想追的结果第二集都没看完，感觉跟隔壁在播假面骑士似的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反正我改名  
+##### 2694#       发表于 2022-8-15 11:48
+
+最上面这是开始提纯了吧，花田属于刀架脖子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
