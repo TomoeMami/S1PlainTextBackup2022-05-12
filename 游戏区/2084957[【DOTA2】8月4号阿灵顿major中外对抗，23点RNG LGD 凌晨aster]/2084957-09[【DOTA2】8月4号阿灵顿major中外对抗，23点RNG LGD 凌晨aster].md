@@ -13026,3 +13026,81 @@ ESL马来西亚官方文档公布，Chu在OG替补misha
 
 misha家里有事是吧
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 13440#       发表于 2022-8-15 22:52
+
+MISHA据说是签证问题
+
+
+
+*****
+
+####  ishikawa_k  
+##### 13441#       发表于 2022-8-15 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081472&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 22:40</a>
+
+不是哪个</blockquote>
+那又是哪位呀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字不乱取  
+##### 13442#       发表于 2022-8-15 22:55
+
+从藏一个队变成藏一个人是吧，misha是和Rexxar一起去建设奥格瑞玛了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 13443#       发表于 2022-8-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081466&amp;ptid=2084957" target="_blank">ishikawa_k 发表于 2022-8-15 22:40</a>
+
+潘飞之前还在和小何开线上会议，是人在监狱开的吗</blockquote>
+潘坚。lgd的经理潘飞和ru婊只是刚好同姓。
+
+*****
+
+####  曲林妖梦  
+##### 13444#       发表于 2022-8-15 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070087&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-08-15 09:22:51</a>
+仙贝詹姆斯，冠超威斯特布鲁克。
+仙贝要赢要抱团，比如加入雪碧，冠超不可能赢，如同威少靠身体进了12年 ...</blockquote>虽然慕斯也很畜，但我觉得仙贝还是更像哈登<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一样的常规赛无敌第一分卫，一样的季后赛稳定拉胯，甚至一样组了两个夺了冠的队友，最后一样的关键时刻抽搐
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adretyu67  
+##### 13445#       发表于 2022-8-15 22:57
+
+说起来新og的教练chuvash好像是misha拉来的？也是cis人？
+
+*****
+
+####  Damenly  
+##### 13446#       发表于 2022-8-15 22:59
+
+N NGA N<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/15/225849tb6es91a61sne66t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-15 22:58 上传
+
+*****
+
+####  nowaki  
+##### 13447#       发表于 2022-8-15 23:02
+
+低分狗看不懂了啊，第二把最后肉山团小娜迦把分身拉过去打**，本体打女王刮痧是何意啊，被大圣**逮捕队友给薄葬，不交大直接tp又是何意啊，结果tp被断死了买活愣了半天慢悠悠从家走出来，这是何意啊。
+

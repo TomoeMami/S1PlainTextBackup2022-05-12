@@ -13329,3 +13329,22 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 这合同真的是傻子才签，大香老师到底是活菩萨还是阿库娅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2788#       发表于 2022-8-15 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081192&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-15 22:15</a></blockquote>
+这几张照片鲤鱼的男性气质好明显，尤其第一张照片把小辫子遮挡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2789#       发表于 2022-8-15 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57081637&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-15 22:57</a>
+这几张照片鲤鱼的男性气质好明显，尤其第一张照片把小辫子遮挡</blockquote>
+“不是帅哥，是美女”
+
