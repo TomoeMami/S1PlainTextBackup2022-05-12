@@ -13516,3 +13516,77 @@ https://card.weibo.com/article/m ...</blockquote>
 
 反正我对2.6也是大好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1265#       发表于 2022-8-15 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么居然还有更新？
+
+*****
+
+####  alucardcz  
+##### 1266#       发表于 2022-8-15 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077173&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-15 17:03</a>
+
+怎么居然还有更新？</blockquote>
+rba更新了 绿拐
+
+*****
+
+####  alucardcz  
+##### 1267#       发表于 2022-8-15 17:06
+
+65绿放 20领导力 单充50<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1268#       发表于 2022-8-15 17:07
+
+我看看啊
+
+1技能 绿魔放t+红卡爆伤3t
+
+2技能 全体攻击力、红卡、绿卡性能up3t+自身出星
+
+3技能 单体50+红卡集星+出星
+
+这算是打不过就加入嘛
+
+宝具群体秩序特攻
+
+你NP率呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1269#       发表于 2022-8-15 17:07
+
+虽然完爆了原版。。但强化幅度不大  绿卡救不起来啊?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1270#       发表于 2022-8-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57077231&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-15 17:07</a>
+
+我看看啊
+
+1技能 绿魔放t+红卡爆伤3t
+
+2技能 全体攻击力、红卡、绿卡性能up3t+自身出星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完爆了原版你还有什么不满意！绿卡还是最差问题不大！
+
+*****
+
+####  angelooo  
+##### 1271#       发表于 2022-8-15 17:09
+
+我看这绿卡是不是已经被放弃了？
+
