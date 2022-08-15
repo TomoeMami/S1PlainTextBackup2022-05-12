@@ -15021,3 +15021,12 @@ C呆快满绊了呀
 是没用 然后我看了看掉落列表 这本只掉妖高</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 1409#       发表于 2022-8-15 22:13
+
+感觉现在np已经爆炸了，很多队伍能开出第4炮（当然是不换人的前提下）
+

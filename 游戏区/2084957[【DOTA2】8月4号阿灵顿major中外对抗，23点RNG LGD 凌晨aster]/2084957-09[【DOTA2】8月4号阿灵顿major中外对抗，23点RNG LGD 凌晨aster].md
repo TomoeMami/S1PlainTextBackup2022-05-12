@@ -12741,3 +12741,29 @@ lgd强在邪恶双雄带来了wings的科研dota，配合ame对线强势能让�
 
 lgd才是硬实力输别人的那队，靠的就是一手套路多，灵活，打ti和major就像你学了凌波微步结果和别人打少林拳。
 
+
+
+*****
+
+####  12481632  
+##### 13411#       发表于 2022-8-15 22:13
+
+红包小团体拉我
+
+*****
+
+####  acejoe  
+##### 13412#       发表于 2022-8-15 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57078086&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 18:02</a>
+从TI8看到现在，AME在决赛中经常有大跌眼镜的表现。并不是AME喜欢整活，而是他觉得按常规套路，已经没什么 ...</blockquote>
+高情商：AME喜欢赌机会
+低情商：AME硬实力不如他们
+
+*****
+
+####  azccc52  
+##### 13413#       发表于 2022-8-15 22:18
+
+红包小群拉我，一天下来一个没领到，玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
