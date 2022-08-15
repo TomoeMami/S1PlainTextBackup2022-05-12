@@ -9530,3 +9530,90 @@ wings散伙绝对不是ace的问题
 
 小黑整个major好像都没人用过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zsu222  
+##### 13081#       发表于 2022-8-15 16:11
+
+敏捷核心感觉整体都很难 
+
+*****
+
+####  遍体精淋af  
+##### 13082#       发表于 2022-8-15 16:13
+
+<img src="https://p.sda1.dev/6/fe6225a4a8dc48bfecf68e9d989d1b78/CMP_20220815161312373.png" referrerpolicy="no-referrer">
+
+*****
+
+####  救死扶伤魔力瞎  
+##### 13083#       发表于 2022-8-15 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57075092&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 14:40</a>
+g4按照正常情况下确实老干瘪是bp优势的，斧王表现好的原因还是驾驶员的问题，这英雄版本下水道是没疑问的 ...</blockquote>
+我下录像复盘了几遍，斧王这把在上路抓回来的二人组之前没这人，而且大多数时候根本没操作空间，吼吃伤害到死。但就跟谜团一样，酱油整场无所谓，关键几个控就赢了。
+
+—— 来自 OPPO PGCM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  w2210059  
+##### 13084#       发表于 2022-8-15 16:13
+
+事实证明，现阶段的413还是崩溃哥，毕竟逆版本拿英雄打出效果比天天电棍的强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 13085#       发表于 2022-8-15 16:13
+
+自从进入bkb壮汉冲脸时代，小黑就很难选出来了吧。远敏基本上med/tb了。
+
+*****
+
+####  战狼PTSD  
+##### 13086#       发表于 2022-8-15 16:15
+
+傻逼冰蛙该把敏捷加移速挪回来了
+
+真的畜生平衡，先搞敏捷加移速，太BUG了砍英雄移速，还是BUG回调加速度，但是英雄移速没加回来
+
+*****
+
+####  zsu222  
+##### 13087#       发表于 2022-8-15 16:16
+
+我一直觉得小黑是马尔斯这英雄的最大受害者
+
+*****
+
+####  何然  
+##### 13088#       发表于 2022-8-15 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57076027&amp;ptid=2084957" target="_blank">灰烬白羽 发表于 2022-8-15 15:45</a>
+
+被吊打了三盘不是打不过是什么，但心态也确实是不行啊。第三把被碾就算了，第四把3打5开团，空滚土猫，跳刀 ...</blockquote>
+s1mple秋季赛都不打了知道为什么吗
+
+就是ykw专门请过去架了把狙对着LGD6个人
+
+这次是上面下了死命令要TS夺冠缓解俄乌局势
+
+被s1mple架着你心态能不崩？这怎么能怪他们心态不行
+
+*****
+
+####  walfeds  
+##### 13089#       发表于 2022-8-15 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这届major场数比上一届多40%，没被选过的英雄还多三个，没ban没选的多五个
+
+*****
+
+####  woyzeck  
+##### 13090#       发表于 2022-8-15 16:19
+
+ame四盘加起来输出勉强和丫头肉一场的持平，心态崩了，心态真是血崩了。
+
