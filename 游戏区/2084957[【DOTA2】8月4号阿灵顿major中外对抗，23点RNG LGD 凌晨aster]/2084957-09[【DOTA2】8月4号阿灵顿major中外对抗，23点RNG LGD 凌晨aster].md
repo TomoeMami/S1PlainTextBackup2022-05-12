@@ -3450,3 +3450,363 @@ shiro感觉还行，同批中算比较强的，eh又是水厂二队</blockquote>
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  walfeds  
+##### 12420#       发表于 2022-8-15 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069987&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-15 09:16</a>
+
+莫言估计船长ptsd了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次拿亚军船长倒在最不服的脑东京面前
+
+
+
+*****
+
+####  pigofsunny  
+##### 12421#       发表于 2022-8-15 09:20
+
+ 本帖最后由 pigofsunny 于 2022-8-15 09:26 编辑 
+
+假一真三，假二真一，假三真二，现代dota，best dota。LGD保一犯蠢，RNG纯二保KDA，Aster软三保软一，都是脑浆。
+
+只能说，Wings之魂在Spirit。
+
+—— 来自 Google Pixel 4a, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  米德  
+##### 12422#       发表于 2022-8-15 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070051&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-15 09:20</a>
+我也发个20块钱的(总额！
+口令：祝贺仙贝再夺一亚</blockquote>
+好好好 领到了
+
+*****
+
+####  lyjssj  
+##### 12423#       发表于 2022-8-15 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069995&amp;ptid=2084957" target="_blank">拿拿子 发表于 2022-8-15 09:17</a>
+
+集美论坛过于恶心了，明明自己就是最大饭圈到处扣饭圈帽子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及明明自己是迫害大王，还要一天到晚假装自己是人畜无害的受害者形象
+
+巨尼玛恶心
+
+*****
+
+####  ml1642879  
+##### 12424#       发表于 2022-8-15 09:22
+
+谢谢老板的荧光棒
+
+*****
+
+####  walfeds  
+##### 12425#       发表于 2022-8-15 09:22
+
+哇，楼友手速真的快
+
+*****
+
+####  acejoe  
+##### 12426#       发表于 2022-8-15 09:22
+
+ 本帖最后由 acejoe 于 2022-8-15 09:24 编辑 
+
+仙贝詹姆斯，冠超威斯特布鲁克。
+仙贝要赢要抱团，比如加入雪碧，冠超不可能赢，如同威少靠身体进了12年决赛，之后数据屌赢不了。
+
+*****
+
+####  dyxdyxyy  
+##### 12427#       发表于 2022-8-15 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070039&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-15 09:19</a>
+根据茶猪直播不是了吧。
+
+现在eh老板是刀锋电竞。</blockquote>
+孙一峰他们的赞助dream也是股东之一，看来水厂找了接盘侠
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  HydraCat  
+##### 12428#       发表于 2022-8-15 09:23
+
+假一真三？假一真五！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Centrum  
+##### 12429#       发表于 2022-8-15 09:23
+
+江山代有斧王出
+
+*****
+
+####  Philister  
+##### 12430#       发表于 2022-8-15 09:23
+
+阿版好恶心啊，EG赢了就是LGD赢了
+
+*****
+
+####  遍体精淋af  
+##### 12431#       发表于 2022-8-15 09:23
+
+这个版本的三号位就是大爹，三号位顺基本能抬着队伍走，除非下个版本大砍三号位或者加强一号位大哥，不然前几应该还是这几个队，顺便一提：三冰能用一己之力把秘密关到预选，三号位重要性可以一般<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 12432#       发表于 2022-8-15 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070054&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-15 09:20</a>
+每次拿亚军船长倒在最不服的脑东京面前</blockquote>
+建议吸取先进经验强袭分身黑鸟。他还有年龄优势，但是lgd不可能把造星资源丢在一个外国人身上。
+
+*****
+
+####  Bernoulli  
+##### 12433#       发表于 2022-8-15 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069752&amp;ptid=2084957" target="_blank">Burabura 发表于 2022-8-15 09:03</a>
+
+看集美论坛还以为lgd赢了呢
+
+好似</blockquote>
+奖金和利雅得比不值一提，没含金量吧。
+
+*****
+
+####  逃离二次元  
+##### 12434#       发表于 2022-8-15 09:24
+
+漏油们手速也忒快了
+
+*****
+
+####  夏溪澪mio  
+##### 12435#       发表于 2022-8-15 09:24
+
+昨天就想问了，虽然是版本末期了，有楼友说下为什么这版本是假三真一吗？三号位英雄普遍更强？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  HydraCat  
+##### 12436#       发表于 2022-8-15 09:24
+
+lgd夺冠只有一个办法了，那就是爆砍一号位。<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">建议集美一起给v社发邮件。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 12437#       发表于 2022-8-15 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070102&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 09:23</a>
+
+这个版本的三号位就是大爹，三号位顺基本能抬着队伍走，除非下个版本大砍三号位或者加强一号位大哥，不然前 ...</blockquote>
+然而ts是逆版本队伍，崩溃的三号位英雄池不是很适应这个版本。
+
+*****
+
+####  利剑Crazy-88  
+##### 12438#       发表于 2022-8-15 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070126&amp;ptid=2084957" target="_blank">HydraCat 发表于 2022-8-15 09:24</a>
+
+lgd夺冠只有一个办法了，那就是爆砍一号位。建议集美一起给v社发邮件。
+
+—— 来自 S1Fun ...</blockquote>
+有没有可能不用爆砍一号位，而是把打一号位这个人爆砍了呢。
+
+*****
+
+####  no1yaya  
+##### 12439#       发表于 2022-8-15 09:26
+
+懂不懂中东土豪办比赛的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">能和老major比肩的好吗
+
+*****
+
+####  沈淮  
+##### 12440#         楼主| 发表于 2022-8-15 09:26
+
+ts主要看蒙古人的状态的，经常蒙古人对线很劣势也能去边路帮13打开局面
+
+*****
+
+####  百世诸侯  
+##### 12441#       发表于 2022-8-15 09:26
+
+打开NGA，我就无法领到红包
+
+关闭NGA，我就无法收获乐子
+
+*****
+
+####  坚定的团子党  
+##### 12442#       发表于 2022-8-15 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070087&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-8-15 09:22</a>
+
+仙贝詹姆斯，冠超威斯特布鲁克。
+
+仙贝要赢要抱团，比如加入雪碧，冠超不可能赢，如同威少靠身体进了12年决 ...</blockquote>
+别尬黑，野种好歹有总冠军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 12443#       发表于 2022-8-15 09:27
+
+红包可以去徐林森那里领，乐子是别处没有的
+
+*****
+
+####  lyjssj  
+##### 12444#       发表于 2022-8-15 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个版本：1号位20分钟自动互换阵营
+
+*****
+
+####  pikamee  
+##### 12445#       发表于 2022-8-15 09:27
+
+我觉得最好笑的说法莫过于"版本末期了，版本答案全部被摸清了"<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 12446#       发表于 2022-8-15 09:28
+
+群友：如果说输球可以让lgd成长 那lgd已经是参天大树
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 12447#       发表于 2022-8-15 09:28
+
+迫不及待的想看畜sight正式版了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CNFH1984  
+##### 12448#       发表于 2022-8-15 09:28
+
+<blockquote>やト 发表于 2022-8-15 09:18
+关羽啥时候麦城</blockquote>
+已经麦城过了已经麦城过了，就那个土豪杯
+
+现在是船新的关羽，船新的版本！
+
+看好雪碧五个关羽再次暴打4于禁
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  沈淮  
+##### 12449#         楼主| 发表于 2022-8-15 09:28
+
+说的好像版本答案电魂没选一样
+
+*****
+
+####  遍体精淋af  
+##### 12450#       发表于 2022-8-15 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070127&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-15 09:24</a>
+然而ts是逆版本队伍，崩溃的三号位英雄池不是很适应这个版本。</blockquote>
+版本强势的vip崩溃绝活啊，然后电棍也学起来了，电棍vip+玛西的绝对强势组合也是他们的bp优势
+
+
+
+*****
+
+####  阿垃垃圾历  
+##### 12451#       发表于 2022-8-15 09:29
+
+好呀 好呀 漏油的手速也太快了  
+
+*****
+
+####  CNFH1984  
+##### 12452#       发表于 2022-8-15 09:29
+
+<blockquote>5678给 发表于 2022-8-15 09:19
+配张辽不行，可以配吕蒙啊！四个于禁去东南亚淘个吕蒙不过分吧！</blockquote>
+虾之国传统淘出来也是于禁
+
+*****
+
+####  acejoe  
+##### 12453#       发表于 2022-8-15 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57070118&amp;ptid=2084957" target="_blank">夏溪澪mio 发表于 2022-8-15 09:24</a>
+昨天就想问了，虽然是版本末期了，有楼友说下为什么这版本是假三真一吗？三号位英雄普遍更强？
+
+—— 来自  ...</blockquote>
+节奏快，中单不吃资源狂打架，3号位吃了资源可以快速站出来打架推塔。
+
+*****
+
+####  Thio  
+##### 12454#       发表于 2022-8-15 09:29
+
+老东京对线要是再强一点就好了，决赛日这7场怎么有种把劣的感觉
+
+*****
+
+####  HydraCat  
+##### 12455#       发表于 2022-8-15 09:29
+
+不过不好说啊，等一个lgd二三在ti爆发，两个核心当三个用，到时候集美涌入你楼清算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  迷途lite  
+##### 12456#       发表于 2022-8-15 09:29
+
+土豪杯是麦城的话，现在剧本演到哪了，温酒斩华雄？
+那ti刚好过五关斩六将了呗
+三十年雪碧粉丝不请自来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 12457#       发表于 2022-8-15 09:30
+
+重生之我是关羽x5
+
