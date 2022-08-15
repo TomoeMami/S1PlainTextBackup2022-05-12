@@ -13485,3 +13485,14 @@ CEO入队用两话有点意外，都不知道该不该说上心了。不直接�
 
 但问题是在星团世界观里面，真的是和缪水一个世界观吗，要是一个世界观，那么前两集有一个设定让我有点受伤<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  YZY  
+##### 2804#       发表于 2022-8-16 01:14
+
+还是听听三四话最后的endless circuit吧楼友们
+
+星团的歌还是不错的
+
