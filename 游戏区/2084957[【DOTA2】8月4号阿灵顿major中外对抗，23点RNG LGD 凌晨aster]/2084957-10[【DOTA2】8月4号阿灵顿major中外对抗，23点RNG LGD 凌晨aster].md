@@ -4344,3 +4344,47 @@ TB不是对线打VIPER的么
 
 🇰🇷车直播还有真的有弹幕，看来刀圈的流量还是卜够小<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蛭人  
+##### 13959#       发表于 2022-8-16 22:13
+
+皮套人也是纯蹭子好吧，挂dota2推荐打lol，看个比赛也在说lol，也就仗着自己皮套人比杰出粉丝多，不如dodo。
+
+*****
+
+####  seki_m  
+##### 13960#       发表于 2022-8-16 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">处长夫人本来就是铁血撸狗啊
+
+*****
+
+####  石狮鬼  
+##### 13961#       发表于 2022-8-16 22:14
+
+对比篮球的话，处长就是被崩溃哥1打1关死的那个，从对线到团战都被按着打不出东西<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">赢雪碧的局也都是因为崩溃哥难玩，没法稳定打儿子
+
+*****
+
+####  nowaki  
+##### 13962#       发表于 2022-8-16 22:17
+
+石油杯想着干处长给崩溃选毒 龙输了，major明显是冲着明鞭去的
+
+*****
+
+####  CNFH1984  
+##### 13963#       发表于 2022-8-16 22:18
+
+NTS周仓也行吧，但我觉得能力稍微高一点，应该算庞德，所以被关羽一冲就秒了
+
+*****
+
+####  CNFH1984  
+##### 13964#       发表于 2022-8-16 22:18
+
+风怒编辑
+

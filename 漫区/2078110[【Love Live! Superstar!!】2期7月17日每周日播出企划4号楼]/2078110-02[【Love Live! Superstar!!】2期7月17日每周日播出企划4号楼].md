@@ -14453,3 +14453,30 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 你不会真以为要是能抢笔星团里就liyuu一个想改吧
 
+
+
+*****
+
+####  沙茶酱  
+##### 2891#       发表于 2022-8-16 22:15
+
+ 本帖最后由 沙茶酱 于 2022-8-16 22:20 编辑 
+
+算了，等第六集看怎么圆吧，圆不了再骂
+
+*****
+
+####  cybernetics31  
+##### 2892#       发表于 2022-8-16 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">担心京吹3了………………京都：你不要过来啊
+
+*****
+
+####  starring  
+##### 2893#       发表于 2022-8-16 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094426&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-16 22:15</a>
+担心京吹3了………………京都：你不要过来啊</blockquote>
+京吹3倒不用担心，有原作兜底，也有石原把关，而且花田在京吹的用心程度明显更高，哪怕吹2的节奏上有点赶，也没出什么明显差错（除了丽奈在泷妻坟头吹奏这点
+
