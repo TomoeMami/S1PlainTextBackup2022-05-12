@@ -15624,3 +15624,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 1468#       发表于 2022-8-16 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁吹狂兰的回的人不少  有一个真正的计算贴没几个人看 太典了
+
