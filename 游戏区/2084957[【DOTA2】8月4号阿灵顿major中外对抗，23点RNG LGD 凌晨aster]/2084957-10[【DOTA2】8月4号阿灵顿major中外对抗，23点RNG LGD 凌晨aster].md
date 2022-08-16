@@ -2204,3 +2204,77 @@ AME就狂战拍拍是正向的艺术装。
 
 你一边要电魂不出双刀撒旦背锅，一边说a畜不开bkb切斧王没问题是何意啊，a畜如果只是个吃技能的玩意，出这一身装备不是最大锅？撑肉装不就行了？
 
+
+
+*****
+
+####  战狼PTSD  
+##### 13732#       发表于 2022-8-16 13:47
+
+​找到超哥成绩下滑的原因了
+[https://ngabbs.com/read.php?tid=33092321](https://ngabbs.com/read.php?tid=33092321)
+
+*****
+
+####  Yukino-Yukino  
+##### 13733#       发表于 2022-8-16 13:49
+
+<img src="https://img.saraba1st.com/forum/202208/16/134929sdohm771h2g77gk2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 13:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13734#       发表于 2022-8-16 13:50
+
+他这波不交bkb暴毙直接导致后面肉山团没法打，你大哥少个买活怎么打团，而且这ck三打五还导致破两路，放盾对面直接拆出超级兵。
+
+*****
+
+####  acejoe  
+##### 13735#       发表于 2022-8-16 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087884&amp;ptid=2084957" target="_blank">名字不乱取 发表于 2022-8-16 13:30</a>
+3打5那波我严重怀疑双酱油都不知道发生了什么，根本赶不上ck的速度
+
+低分猪顺便问一下马来人 ...</blockquote>
+不是什么强控，纯混子技能，用不好还会救对手。
+而且3 4号位出出，2号位出这个基本就是混子。
+
+*****
+
+####  IG.430  
+##### 13736#       发表于 2022-8-16 13:51
+
+呃啊，狠狠搬屎
+
+*****
+
+####  Yukino-Yukino  
+##### 13737#       发表于 2022-8-16 13:51
+
+<img src="https://img.saraba1st.com/forum/202208/16/135101gpptpljp2wlxzl2z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 13:51 上传
+
+蚌埠住了，吹还是你们能吹
+
+*****
+
+####  walfeds  
+##### 13738#       发表于 2022-8-16 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088132&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-16 13:49</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得不到就毁灭
+

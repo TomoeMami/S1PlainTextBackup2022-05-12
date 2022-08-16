@@ -13903,3 +13903,15 @@ Nagi回归的时间有说是什么时候吗？
 很努力在救了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直球借角色之口反驳剧中形象，已经是觉得救不了了吧，觉得能救的话像以前一样编个善意解释就好。这已经是在表达自己脑中形象和剧中形象要割席了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2840#       发表于 2022-8-16 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087934&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-16 13:33</a>
+
+直球借角色之口反驳剧中形象，已经是觉得救不了了吧，觉得能救的话像以前一样编个善意解释就好。 ...</blockquote>
+动画形象不是全部（） 能救一点算一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

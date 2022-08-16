@@ -15474,3 +15474,27 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 刚才又补了四单伊吹，还是2宝
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1454#       发表于 2022-8-16 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085657&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 10:57</a>
+
+34石拿头再抽一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做为本楼欧皇的你 34个石头够5宝了啊?
+
+*****
+
+####  alucardcz  
+##### 1455#       发表于 2022-8-16 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087871&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 13:29</a>
+
+我感觉阿叶再不开RBA池子我要疯掉了
+
+刚才又补了四单伊吹，还是2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钱多可以给我(
+
