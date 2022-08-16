@@ -4388,3 +4388,33 @@ NTS周仓也行吧，但我觉得能力稍微高一点，应该算庞德，所�
 
 风怒编辑
 
+
+
+*****
+
+####  thistimeforlife  
+##### 13965#       发表于 2022-8-16 22:23
+
+正能量，指g3输了直接下播缩壳，连割割最后尿满全场的g4都不愿看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 13966#       发表于 2022-8-16 22:26
+
+给双方都留点体面，可以了，不是真爱谁他妈游戏都不玩还能大半夜三点看到六点多吃屎，我是撸狗才不看这比赛呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13967#       发表于 2022-8-16 22:28
+
+有没有可能是a畜打完g3打开女朋友直播间发现她跑了最后一把彻底心态爆炸呢
+
+*****
+
+####  名字不乱取  
+##### 13968#       发表于 2022-8-16 22:31
+
+大肠最好祈祷ti11的lgd开始表演了，不然集美把他肠头里的屎都给挤出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
