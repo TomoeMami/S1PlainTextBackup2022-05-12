@@ -5266,3 +5266,15 @@ ui
 
 丽姐这种就是嗯直播不参与线下企划吧，纳凉祭结束就复播（找个新冠理由），去年vspo线下年会除了刚出道两个新人没参加就她没去。
 
+
+
+*****
+
+####  FCCHua  
+##### 16984#       发表于 2022-8-16 12:13
+
+ 本帖最后由 FCCHua 于 2022-8-16 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079737&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-8-15 20:11</a>
+hnn小号推都那么说了，有些人该消停会了吧，自己个人的两周年和生日怎么可能出图灵爱 ...</blockquote>
+直接老鼠台“开骂”，看来最近真的把她惹烦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

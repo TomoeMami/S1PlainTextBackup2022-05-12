@@ -13789,3 +13789,22 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 还有这种好事吗.jpg
 
+
+
+*****
+
+####  lj205  
+##### 2831#       发表于 2022-8-16 12:17
+
+明晚鲤鱼有直播，还是看看三次元平复一下吧
+
+*****
+
+####  老1.5  
+##### 2832#       发表于 2022-8-16 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086919&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-16 12:17</a>
+
+今晚鲤鱼有直播，还是看看三次元平复一下吧</blockquote>
+我记得是星期三？
+
