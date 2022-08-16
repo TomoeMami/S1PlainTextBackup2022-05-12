@@ -14,3 +14,42 @@
 
 vp确定不能直邀了，因为v社官网是向下取整所以没有小数点，最终以1019分低于fnc的1020分
 
+
+
+*****
+
+####  nomhrpls  
+##### 13503#       发表于 2022-8-16 08:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">navi可能是最急的
+
+*****
+
+####  逃离二次元  
+##### 13504#       发表于 2022-8-16 08:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 13505#       发表于 2022-8-16 08:06
+
+独联体输麻了，不愧美帝企业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈淮  
+##### 13506#         楼主| 发表于 2022-8-16 08:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有点不好说v🐍成分了，本来乌克兰队有机会预选出线的，现在好了直接被毛子关中关
+
+*****
+
+####  遍体精淋af  
+##### 13507#       发表于 2022-8-16 08:07
+
+对于vp肯定是没影响的，反正预选宰猪怎么都能出线，就是苦了独联体的其他兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

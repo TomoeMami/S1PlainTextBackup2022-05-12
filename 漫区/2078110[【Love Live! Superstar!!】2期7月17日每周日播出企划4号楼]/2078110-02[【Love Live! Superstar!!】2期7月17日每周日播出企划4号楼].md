@@ -13586,3 +13586,16 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 2812#       发表于 2022-8-16 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083469&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-8-16 07:21</a>
+https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这么一句台词，不至于写小论文
+
+<img src="https://p.sda1.dev/6/0ef39c21007076e24292e02cad723459/800px-长崎乌鸦.jpg" referrerpolicy="no-referrer">
+
