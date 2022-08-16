@@ -158,3 +158,91 @@ BB：你礼貌吗
 来个90++的稳定解</blockquote>
 问就是红卡自充奥伯龙干TMD
 
+
+
+*****
+
+####  阿提拉  
+##### 1517#       发表于 2022-8-16 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">90++当然是上蓝卡单体的王者——大公啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 1518#       发表于 2022-8-16 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092021&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 19:10</a>
+
+问就是红卡自充奥伯龙干TMD</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/16/191416xp496nphqndjbcsp.jpg" referrerpolicy="no-referrer">
+
+<strong>55555555.jpg</strong> (508.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/191419plalh59nt9heaeen.jpg" referrerpolicy="no-referrer">
+
+<strong>66666666666666.jpg</strong> (473.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 19:14 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这个好 不换人稳定秒
+
+*****
+
+####  alucardcz  
+##### 1519#       发表于 2022-8-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092014&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-16 19:09</a>
+
+来个90++的稳定解</blockquote>
+看我上面的回复  不换人5加成稳定解
+
+第1回合留给领导力第2回合开 第3回合用衣服补20np
+
+*****
+
+####  quanlix  
+##### 1520#       发表于 2022-8-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092021&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 19:10</a>
+
+问就是红卡自充奥伯龙干TMD</blockquote>
+永远不会抽奥贝隆的，所以pass，斋藤一加班
+
+*****
+
+####  exiaexa  
+##### 1521#       发表于 2022-8-16 19:16
+
+ 本帖最后由 exiaexa 于 2022-8-16 19:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092060&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:14</a>
+
+这个好 不换人稳定秒</blockquote>
+200特攻礼装有不起，我提前掉的是冰砖礼装
+
+等我有了再去找hajime酱
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 1522#       发表于 2022-8-16 19:20
+
+5宝80级技能9的斋藤一带满破特攻礼装加2个术呆可以直接一路3连90++
+
+*****
+
+####  katun  
+##### 1523#       发表于 2022-8-16 19:21
+
+礼装满破了的话哈吉咩酱不需要绑衣服，第一面礼装50+被动10+C呆2技能40=100，然后他每次能回80，C呆1技能2T3T各开一遍就是
+

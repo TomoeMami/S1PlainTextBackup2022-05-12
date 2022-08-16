@@ -3785,3 +3785,14 @@ G4的时候他还问，这不是A队经典精灵混沌，飞后排或者换家�
 
 杰畜也快忍不住指着处长鼻子骂了，只能说恰饭真的很不容易<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CNFH1984  
+##### 13902#       发表于 2022-8-16 19:17
+
+TMD，刀塔怎么成了这个样子
+
+打不好凭什么不喷？
+

@@ -2170,3 +2170,28 @@ ame最少向miko射了4次，一个人一共就7支箭
 
 今天定休，估计有在想企划了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 206#         楼主| 发表于 2022-8-16 19:15
+
+有在想要做啊，光想有什么用
+
+syl什么棒读
+
+*****
+
+####  zblack  
+##### 207#       发表于 2022-8-16 19:18
+
+想什么 直接从观众里面挑一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 208#         楼主| 发表于 2022-8-16 19:19
+
+上个月已经挑完了啊，问题是要做
+
