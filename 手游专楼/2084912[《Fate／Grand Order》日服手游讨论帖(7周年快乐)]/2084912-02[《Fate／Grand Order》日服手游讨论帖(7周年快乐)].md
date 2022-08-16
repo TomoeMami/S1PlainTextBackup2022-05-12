@@ -1330,3 +1330,39 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年到现在热度杠杠得。不过过几天就不行了。要一直长草到月底了
 
+
+
+*****
+
+####  exiaexa  
+##### 1612#       发表于 2022-8-16 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094170&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 21:55</a>
+
+笑死</blockquote>
+手办娘：没用的老东西，有本事来打6加成啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 1613#       发表于 2022-8-16 22:11
+
+周年这段时间以来是挺魔幻的，国服艾蕾池入坑的时候给我的感觉基本是纯厨力游戏，除了那几个大拐，其他角色几乎是可以完全看XP抽，最近这段时间对于战力的追求似乎又回潮了，这算是好起来了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 用黑杯剑双子试了一下90++本，前两面小怪血太薄，没法鞭尸，np根本不够，最后一面打小恩伤害又不够，之后要打还是用红卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 1614#       发表于 2022-8-16 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">C呆还差11W就15绊了，估计撑不过这个月……
+
+*****
+
+####  katun  
+##### 1615#       发表于 2022-8-16 22:12
+
+设计这个冰块礼装的是不是有点毛病，250w给你第5张，结果点数才300w冰块就没地方用了？
+

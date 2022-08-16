@@ -4335,3 +4335,12 @@ TB不是对线打VIPER的么
 
 妹妹下场为自己哥哥助阵了，可是我听说她之前看比赛，看到处长快输了直接下播缩鳖壳了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 13958#       发表于 2022-8-16 22:03
+
+🇰🇷车直播还有真的有弹幕，看来刀圈的流量还是卜够小<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

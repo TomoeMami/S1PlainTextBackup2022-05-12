@@ -14376,3 +14376,80 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 2884#       发表于 2022-8-16 22:04
+
+………………哎，开头如此美好…………结局真的要冲着前辈的最低纪录去了吗？
+
+*****
+
+####  古战场亡魂  
+##### 2885#       发表于 2022-8-16 22:04
+
+骂可可怎么了，就现在的表现不该骂？鲤鱼替角色背锅人气受影响惨是惨，但也没人骂鲤鱼啊。
+
+这偶像的活又不是干一辈子，能当跳板当跳板，不能当跳板也可以早日脱离苦海。
+
+*****
+
+####  starring  
+##### 2886#       发表于 2022-8-16 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093486&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-16 21:01</a>
+
+两期NK</blockquote>
+与其让大熊代理，不然给nako solo两期，不然还叫什么nakonagi radio，哪怕以guest的名义让别人参与都比代理好<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+不过真的一旦戴了滤镜，运营干啥都膈应<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2887#       发表于 2022-8-16 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一想到秋季还有皮套………………这……………
+
+*****
+
+####  ads147147  
+##### 2888#       发表于 2022-8-16 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094203&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-16 21:58</a>
+破纪录了吧？官方会稍微有点反思吗
+
+—— 来自 S1Fun</blockquote>
+还差一点就到水s1e13的水平了，如果后面还糟糕下去，破系列最差已经是板上钉钉了。
+
+说起来平均倒数已经是板上钉钉了吧。日升，万代，好好看看你们搞的什么jb。
+
+可可和岚珠的形象就这么逆转了，tmd我当年也不想看可可风评变这样啊。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 2889#       发表于 2022-8-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094276&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-16 22:04</a>
+
+………………哎，开头如此美好…………结局真的要冲着前辈的最低纪录去了吗？ ...</blockquote>
+星团有着四个团最美好的开头：因为中国人的加入所以备受关注，因为花田的超神发挥所以第三集在NICO上90好评（唯一一个能在前三集就上90%好评的团），因为小星星非常优秀所以得到众多的期待······
+
+然后，就没有然后了
+
+*****
+
+####  kata魂  
+##### 2890#       发表于 2022-8-16 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是可可跳出二次元操纵了你花田大爷写的这些戏份吧，我寻思着第一季第四集也没人骂堇没有礼貌对同学包含恶意啊，妮可回骂花田**不如公野小说，怎么到可可这双标就可以骂角色了？没人骂鲤鱼？这集最有问题的就是ceo那个合同但根本没人讨论，猜猜厕所为什么集体发帖攻击可可，第二季前三集说什么樱小路香音真爱，可可不熟，到了今天就直接说前三集稀烂，rz言论差不多得了外面品鉴的够多了
+
+你花田大爷写个一两年滚蛋准备祸害下一个，别人要背这个好几年的锅，
+
+你不会真以为要是能抢笔星团里就liyuu一个想改吧
+
