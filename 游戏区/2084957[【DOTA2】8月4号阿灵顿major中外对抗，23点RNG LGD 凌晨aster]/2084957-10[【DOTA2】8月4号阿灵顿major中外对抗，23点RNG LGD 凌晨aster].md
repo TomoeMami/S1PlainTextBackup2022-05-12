@@ -4138,3 +4138,38 @@ ti预选名额怎么分配的？中国区只有一个吗？
 
 VG看不出来有竞争力，坐等超哥全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 13942#       发表于 2022-8-16 20:42
+
+我希望森哥再去一次ti，我好看查猪解说<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 13943#       发表于 2022-8-16 20:44
+
+ 本帖最后由 六娃 于 2022-8-16 20:45 编辑 
+
+陈智豪有点卜基德了
+
+“这娜迦换我来赢不了，AME这时候三万一，换我只有一万一”
+
+把集美当傻子逗呢
+
+后面想了想玩笑开大了往回找甩锅，“还是换鲷哥玩吧”
+
+*****
+
+####  acejoe  
+##### 13944#       发表于 2022-8-16 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092781&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-16 20:10</a>
+2202年了还有人不知道lgd中路是全队最粗的那条腿吗?
+
+连默默无闻都说出来了。 ...</blockquote>
+你看切片和微博莫言从来没人夸过啊。
+

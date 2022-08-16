@@ -842,3 +842,55 @@ MD绿卡是真的废物，C呆+CBA+换人CBA
 不会啊 稳定秒  已经刷了一个30石了。。没失败过一次</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新好强啊 又开始刷羁绊石了
 
+
+
+*****
+
+####  alucardcz  
+##### 1579#       发表于 2022-8-16 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093254&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 20:42</a>
+
+萌新好强啊 又开始刷羁绊石了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就剩4万不到了  顺便把瓶子全用了
+
+*****
+
+####  qixinno2  
+##### 1580#       发表于 2022-8-16 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093263&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:43</a>
+
+本来就剩4万不到了  顺便把瓶子全用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我最少的也还剩30W+ 遥遥无期
+
+*****
+
+####  alucardcz  
+##### 1581#       发表于 2022-8-16 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093273&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 20:44</a>
+
+我最少的也还剩30W+ 遥遥无期</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开羁绊上限了 不然我日常本要没人能用了
+
+*****
+
+####  yangun22  
+##### 1582#       发表于 2022-8-16 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093228&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:40</a>
+
+不会啊 稳定秒  已经刷了一个30石了。。没失败过一次</blockquote>
+13技能9和礼装等级的关系吧，有时候会剩个1，2万血
+
+*****
+
+####  qixinno2  
+##### 1583#       发表于 2022-8-16 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093301&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:46</a>
+
+该开羁绊上限了 不然我日常本要没人能用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好强啊 我最高的C呆也才刚开第14绊
+
