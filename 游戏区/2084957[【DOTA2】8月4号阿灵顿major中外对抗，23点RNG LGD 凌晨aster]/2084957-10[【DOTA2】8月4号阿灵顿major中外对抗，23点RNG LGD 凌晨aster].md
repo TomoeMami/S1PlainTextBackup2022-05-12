@@ -3672,3 +3672,53 @@ G4的时候他还问，这不是A队经典精灵混沌，飞后排或者换家�
 
 还真以为观众报点有用？
 
+
+
+*****
+
+####  walfeds  
+##### 13890#       发表于 2022-8-16 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091634&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-16 18:39</a>
+老核弹粉就算几年没关注dota，游戏理解都比引流撸狗集美强
+当时和我一起连麦看比赛的某鳖孙，20多分钟的时 ...</blockquote>
+集美看得懂比赛就不会成为集美好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  逃离二次元  
+##### 13891#       发表于 2022-8-16 18:43
+
+贴吧发帖 霸气锐评ame
+
+回复“霸气成绩有ame好么，就在这评价？”
+
+贴吧发帖 核桃锐评ck
+
+回复“这个b现在还打不打天梯啊，就在这评价？”
+
+*****
+
+####  iriyano  
+##### 13892#       发表于 2022-8-16 18:44
+
+【霸气哥复盘lgd第二场75分钟大战，lgd打得怎么样，问题出在哪？-哔哩哔哩】 [https://b23.tv/NEJ394F](https://b23.tv/NEJ394F)
+
+*****
+
+####  nightmare902015  
+##### 13893#       发表于 2022-8-16 18:45
+
+也不一定。膈音棚这次貌似没有，而上次cago major是肯定没有。总监跳外场的同时全场爆发出巨大欢呼和闪光弹同时爆炸，电子哥赛后黑着脸直言“太吵了，我啥都听不见”。线下比赛这种小参差就当做运气和笑谈吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 13894#       发表于 2022-8-16 18:51
+
+笑死了，杰出这视频真的很努力不喷a÷了
+

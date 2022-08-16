@@ -41,3 +41,30 @@
 乐麻了，乐子人大胜利
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1505#       发表于 2022-8-16 18:45
+
+粉毛这卡图太有既视感了，孔明冲田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还是选学姐吧（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1506#       发表于 2022-8-16 18:46
+
+<blockquote>alucardcz 发表于 2022-8-16 18:33
+这个90++一出 隔壁又炸了 完了 今天晚上又要交代了吗</blockquote>
+为了打一个本反复考虑抽卡计划，难道其实他们box里什么都没有吗23333
+
+*****
+
+####  angelooo  
+##### 1507#       发表于 2022-8-16 18:47
+
+我现在愁啊，三个女武神，我原版喜欢的金毛，这次三选一，看到粉毛的灵衣幻视cc，结果满破一出，黑毛赢麻了，我到底选哪个啊艹
+
