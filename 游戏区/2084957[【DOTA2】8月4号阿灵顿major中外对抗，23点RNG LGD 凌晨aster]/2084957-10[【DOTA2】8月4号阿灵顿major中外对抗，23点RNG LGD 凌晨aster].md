@@ -3531,3 +3531,69 @@ fnc都直邀了东南亚鱼塘不是随便出线，topson去年好歹也是称�
 嘻嘻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的假的，没看出来跳刀杀妈和清算前队友有多友好啊
 
+
+
+*****
+
+####  百世诸侯  
+##### 13875#       发表于 2022-8-16 18:26
+
+<img src="https://img.saraba1st.com/forum/202208/16/182557nbmfxbskxbawjxdf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 18:25 上传
+
+高情商（健忘）
+
+低情商（畜）
+
+*****
+
+####  六娃  
+##### 13876#       发表于 2022-8-16 18:26
+
+听说rng被淘汰那天，卡神高兴的来了yy，说：这里玩apex不用加速器！
+
+*****
+
+####  belldandy_ye  
+##### 13877#       发表于 2022-8-16 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086870&amp;ptid=2084957" target="_blank">9时34分 发表于 2022-8-16 12:14</a>
+
+问个题外话，猩猩和库里历史地位怎么排
+
+—— 来自 OnePlus LE2120, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+库里稳定前3，拉塞尔、乔丹、库里，猩猩20守门.
+
+*****
+
+####  六娃  
+##### 13878#       发表于 2022-8-16 18:27
+
+<img src="https://img.saraba1st.com/forum/202208/16/182803pcidhdengv5v07d1.jpg" referrerpolicy="no-referrer">
+
+<strong>_2TF`08K8B[IHSBPS82LN@2.jpg</strong> (196.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 18:28 上传
+
+*****
+
+####  adretyu67  
+##### 13879#       发表于 2022-8-16 18:29
+
+天天鳖孙抬头，结果连鳖鳖两大名言都不知道吗，怕不是反的是空气鳖孙。
+
+*****
+
+####  遍体精淋af  
+##### 13880#       发表于 2022-8-16 18:32
+
+看预选名单，dec全队去了ybb，欧文切假腿切到了mgm，mgm的tzy转到了lbzs，mgm换了igv的5
+ybb买了dec的名额<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

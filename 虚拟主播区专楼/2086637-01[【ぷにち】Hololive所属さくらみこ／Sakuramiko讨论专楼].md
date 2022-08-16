@@ -2120,3 +2120,22 @@ ame最少向miko射了4次，一个人一共就7支箭
 
 而且如果叫人的话现在大家都沉迷rust，不一定叫得来
 
+
+
+*****
+
+####  rs5621  
+##### 202#       发表于 2022-8-16 18:30
+
+<img src="https://img.saraba1st.com/forum/202208/16/182745bmwxunsiime63ixg.bmp" id="aimg_1076200" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>NKG9D5YUQXS4JB`3INVYIVS.bmp</strong> (47.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 18:27 上传
+
+又转发抖音的视频
+
+看小图吓了一跳。有那么一点像。。。
+
