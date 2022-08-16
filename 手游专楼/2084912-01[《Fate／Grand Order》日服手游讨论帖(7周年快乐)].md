@@ -15611,3 +15611,16 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里版FGO对魔忍怒吃一井，不知道明天抽斯卡蒂会不会否极泰来
 
+
+
+*****
+
+####  poor  
+##### 1467#       发表于 2022-8-16 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087438&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-16 12:54</a>
+弓阶暴击猩猩还是很强的</blockquote>
+猩猩也就一般强吧，离红蓝王还是有点远的
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2726,3 +2726,39 @@ syl：众所周知，ti8 9 10是含金量最低的三届ti
 
 宇宙第一含金量比赛是二次元major
 
+
+
+*****
+
+####  lyjssj  
+##### 13785#       发表于 2022-8-16 15:46
+
+有点宇宙第一赛事sl9的味道了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">顺便，dkti4滚蛋的时候核弹粉在场外围着队伍说b神再打一年，现在集美们只会网上扣水，高下立判
+
+*****
+
+####  何然  
+##### 13786#       发表于 2022-8-16 15:47
+
+唯奖金论的话确实石油杯牛鼻
+
+毕竟ti牛鼻也是因为奖金第一嘛
+
+再次申明，含金量：石油杯&gt;SL9&gt;DAC
+
+*****
+
+####  沈淮  
+##### 13787#         楼主| 发表于 2022-8-16 15:48
+
+major含金量不行去年一堆集美对这animajor扣什么扣？
+
+*****
+
+####  遍体精淋af  
+##### 13788#       发表于 2022-8-16 15:49
+
+讲道理论比赛质量，阿灵顿应该是四个major里面最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为观众看得很爽
+
