@@ -550,3 +550,148 @@ BB：你礼貌吗
 艹 这三选一好烦啊 你们都选的哪个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便点了一个
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1554#       发表于 2022-8-16 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092649&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-16 20:00</a>
+
+我选的是金发的奥特琳德，因为感觉灵衣那个呆毛王发型的女武神表情比较可爱...
+
+绿毛这个属性无感（短发然 ...</blockquote>
+但，你说的那个是黑发（
+
+*****
+
+####  qixinno2  
+##### 1555#       发表于 2022-8-16 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092620&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-16 19:58</a>
+
+选的是粉毛，原因是某个本子的熏陶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">艹 那本子挺好用的 粉毛走起
+
+*****
+
+####  angelooo  
+##### 1556#       发表于 2022-8-16 20:05
+
+<blockquote>alucardcz 发表于 2022-8-16 20:02
+随便点了一个</blockquote>
+现在是你比较强
+
+要是我也能这么做就好了OTZ
+
+算了我还是选黑毛，那个满破把我击穿了
+
+*****
+
+####  qixinno2  
+##### 1557#       发表于 2022-8-16 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092626&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 19:58</a>
+
+现在我三个都想要了，太痛苦了艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗屎三选一 复刻了也要缺一个
+
+*****
+
+####  qixinno2  
+##### 1558#       发表于 2022-8-16 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092668&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:02</a>
+
+随便点了一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">豁达的萌新
+
+*****
+
+####  gpx234mqx  
+##### 1559#       发表于 2022-8-16 20:06
+
+就不能给大伊吹灵衣吗
+
+0E8B2E42-2A28-4CDB-9F5D-FF703FB1BB1C.png
+(810.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 20:06 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/200616oid446kk5559umm4.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 1560#       发表于 2022-8-16 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092553&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:53</a>
+
+艹 这三选一好烦啊 你们都选的哪个</blockquote>
+黑发看着很七咲直接选了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 1561#       发表于 2022-8-16 20:07
+
+ 本帖最后由 Jamaisvu 于 2022-8-16 20:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092677&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-16 20:03</a>
+
+但，你说的那个是黑发（</blockquote>
+哦哦，谢谢指正！我选的是金发的斯露德<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">声优是雨宫天。
+
+因为枪阶瓦尔基里羁绊资料4中三个人的名字是按三破一破初始的顺序写的，查的时候看反了...
+
+*****
+
+####  angelooo  
+##### 1562#       发表于 2022-8-16 20:07
+
+<blockquote>gpx234mqx 发表于 2022-8-16 20:06
+就不能给大伊吹灵衣吗</blockquote>
+可惜你游的卡都是竖着的，卡面是这样的话我直接拿去糊在某些傻逼脸上问这叫不叫丑
+
+*****
+
+####  exiaexa  
+##### 1563#       发表于 2022-8-16 20:08
+
+ 本帖最后由 exiaexa 于 2022-8-16 20:09 编辑 
+
+MD绿卡是真的废物，C呆+CBA+换人CBA
+
+剑刷、迦尔纳、平景清、BX全都打不到50
+
+这就是rba红暴的意义吗，强行用出星和暴击打掉T1T2其中一面
+
+让绿单体两发走人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们谁有阿福的试试看
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1564#       发表于 2022-8-16 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么记得阿福指令卡更丢人
+
+*****
+
+####  都谷捻柏  
+##### 1565#       发表于 2022-8-16 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092757&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:08</a>
+
+MD绿卡是真的废物，C呆+CBA+换人CBA
+
+剑刷、迦尔纳、平景清、BX全都打不到50</blockquote>
+阿福更丢人，唯一不丢人的莉莉丝给了30充能，然后被关了
+

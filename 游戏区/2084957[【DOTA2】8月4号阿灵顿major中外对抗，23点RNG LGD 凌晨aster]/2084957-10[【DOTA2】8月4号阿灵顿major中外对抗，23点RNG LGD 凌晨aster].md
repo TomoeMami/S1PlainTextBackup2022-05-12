@@ -3907,3 +3907,60 @@ VG没钱了，只能随便应付下，阿绿已经不想做了，再过几年国
 
 不是出圣么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asd235614  
+##### 13915#       发表于 2022-8-16 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修正一下细节，是出神，念起来比较顺口
+
+*****
+
+####  asd235614  
+##### 13916#       发表于 2022-8-16 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是这截图里面这回复看着DPC4-3的战绩怎么好意思说这种话的
+
+*****
+
+####  12481632  
+##### 13917#       发表于 2022-8-16 20:08
+
+DPC不是早就被定义为《施舍》了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 13918#       发表于 2022-8-16 20:09
+
+ 本帖最后由 seki_m 于 2022-8-16 20:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">畜畜cp粉，刚吃的晚饭都吐出来了
+
+*****
+
+####  syndrome2032  
+##### 13919#       发表于 2022-8-16 20:10
+
+2202年了还有人不知道lgd中路是全队最粗的那条腿吗?
+
+连默默无闻都说出来了。
+
+*****
+
+####  ArowRocher  
+##### 13920#       发表于 2022-8-16 20:12
+
+卜是劣势路吗
+
+
+
+*****
+
+####  掉头学姐  
+##### 13921#       发表于 2022-8-16 20:12
+
+集美真不知道<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
