@@ -5043,3 +5043,14 @@ BV17e4y1f7C8</blockquote>
 森哥也不认识</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">真不认识啊
 
+
+
+*****
+
+####  IG.430  
+##### 14031#       发表于 2022-8-17 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095912&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-17 00:19</a>
+看wtf，看到那个身上买了很多芒果的😄，是按了什么快捷键吗</blockquote>
+把芒果拖进快捷购买了罢<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
