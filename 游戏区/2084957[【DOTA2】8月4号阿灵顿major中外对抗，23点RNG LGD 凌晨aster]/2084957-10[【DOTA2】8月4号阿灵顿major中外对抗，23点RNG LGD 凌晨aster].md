@@ -150,3 +150,24 @@ navi吐了
 有没有人回忆一下ame这人除了决赛有这么努力的整过活吗，我觉得不是一个尿裤能说的过去的啊 ...</blockquote>
 20年血抬cdec的那段时间可以去看看
 
+
+
+*****
+
+####  c88711611  
+##### 13518#       发表于 2022-8-16 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083982&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-16 08:51</a>
+20年血抬cdec的那段时间可以去看看</blockquote>
+我的，没看明白
+
+*****
+
+####  白色的120  
+##### 13519#       发表于 2022-8-16 08:56
+
+乐，“决赛bo5，仅在胜冠2:3惜败时加单一局bo1定胜负”
+<img src="https://p.sda1.dev/6/16d4e033037ca638b5a5ef7b3fa2fa77/CMP_20220816085537725.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
