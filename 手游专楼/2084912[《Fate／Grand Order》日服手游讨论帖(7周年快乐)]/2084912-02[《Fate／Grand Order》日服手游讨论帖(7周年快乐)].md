@@ -742,3 +742,62 @@ MD绿卡是真的废物，C呆+CBA+换人CBA
 绿卡你们一群单体UCCU
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1570#       发表于 2022-8-16 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092910&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:19</a>
+
+你大公还是你大公
+
+我2宝666随便换人来个蓝拐都抠着脚打
+
+绿卡你们一群单体UCCU</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快 明天抽rba拯救绿王！
+
+*****
+
+####  alucardcz  
+##### 1571#       发表于 2022-8-16 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092910&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:19</a>
+
+你大公还是你大公
+
+我2宝666随便换人来个蓝拐都抠着脚打
+
+绿卡你们一群单体UCCU</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说大公2宝100级能不换人吗 
+
+*****
+
+####  angelooo  
+##### 1572#       发表于 2022-8-16 20:27
+
+算了还是让c呆阿一先上了，有其他阵容再换
+
+*****
+
+####  exiaexa  
+##### 1573#       发表于 2022-8-16 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093000&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:24</a>
+
+话说大公2宝100级能不换人吗</blockquote>
+没算过不知道
+
+我当时为了金方块卖过两个大公
+
+后来就摆烂懒得养了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砂糖方块  
+##### 1574#       发表于 2022-8-16 20:31
+
+能特攻到恩奇都的人真少啊……突然发现，花嫁倒是有特攻还红字，但是花嫁宝具1hit
+
