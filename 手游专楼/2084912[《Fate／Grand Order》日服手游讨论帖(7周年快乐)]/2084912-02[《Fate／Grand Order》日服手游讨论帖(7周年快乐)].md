@@ -116,3 +116,45 @@
 那rba在111的时候可能会比现在有用得多，总有一面你能把红卡甩出去
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 1513#       发表于 2022-8-16 19:06
+
+<blockquote>exiaexa 发表于 2022-8-16 19:01
+不过有句港剧，如果以后的90++都是这个水平
+
+那rba在111的时候可能会比现在有用得多，总有一面你能把红卡甩 ...</blockquote>
+我抽公主是为了强度吗？不，是为了你游史上最酷炫的抽卡特效23333
+
+BB：你礼貌吗
+
+*****
+
+####  芭德薇  
+##### 1514#       发表于 2022-8-16 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091732&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 18:46</a>
+
+为了打一个本反复考虑抽卡计划，难道其实他们box里什么都没有吗23333</blockquote>
+存一年石抽一个池那当然什么都没有了……
+
+*****
+
+####  quanlix  
+##### 1515#       发表于 2022-8-16 19:09
+
+来个90++的稳定解
+
+*****
+
+####  exiaexa  
+##### 1516#       发表于 2022-8-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092014&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-8-16 19:09</a>
+
+来个90++的稳定解</blockquote>
+问就是红卡自充奥伯龙干TMD
+
