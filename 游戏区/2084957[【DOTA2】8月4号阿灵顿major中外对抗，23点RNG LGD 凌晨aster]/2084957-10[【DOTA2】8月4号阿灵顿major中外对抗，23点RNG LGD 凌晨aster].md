@@ -2059,3 +2059,120 @@ major亚军季军殿军也都没夺过冠，看来今天是帕皮酱的盾了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087618&amp;ptid=2084957" target="_blank"> TheOccuria 发表于 2022-8-16 13:08</a> 看狗头人新歌后看了下动态，前几天dodo被集美冲了？发生啥了 </blockquote>
 完美实习生怒喷两小时nts滚滚然后超哥淘汰那天用官号转发讨厌黑超哥的言论环境来自: iPhone客户端
 
+
+
+*****
+
+####  战狼PTSD  
+##### 13718#       发表于 2022-8-16 13:23
+
+[https://ngabbs.com/read.php?tid=33094350](https://ngabbs.com/read.php?tid=33094350)
+
+确实，身边不少游戏都不打一年就看一次TI然后说假赛这游戏要死了的傻逼
+
+*****
+
+####  暂无此人N先生  
+##### 13719#       发表于 2022-8-16 13:24
+
+ 本帖最后由 暂无此人N先生 于 2022-8-16 13:25 编辑 
+
+记错了，原来不是ts亚军。是eg亚军。
+
+*****
+
+####  Litccc  
+##### 13720#       发表于 2022-8-16 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087618&amp;ptid=2084957" target="_blank">TheOccuria 发表于 2022-8-16 13:08</a>
+
+看狗头人新歌后看了下动态，前几天dodo被集美冲了？发生啥了</blockquote>
+dodo被冲是刚出道的时候说过一次处长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 13721#       发表于 2022-8-16 13:26
+
+哇，我真的惊了，原来ts选fw不仅是因为崩溃哥会玩，还是因为魔晶效果把ck直接爆了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+这下云玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+【【谭雅DOTA2】惊闻major最后一把混沌无数次试图单吃魔晶斧王-哔哩哔哩】 https://b23.tv/HRvZJZc
+
+*****
+
+####  lyjssj  
+##### 13722#       发表于 2022-8-16 13:28
+
+ 本帖最后由 lyjssj 于 2022-8-16 13:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087618&amp;ptid=2084957" target="_blank">TheOccuria 发表于 2022-8-16 13:08</a>
+
+看狗头人新歌后看了下动态，前几天dodo被集美冲了？发生啥了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像是过年那时候吧，那时候我还在看她直播
+
+直播时候有个观众供火，发了条sc给dodo问谁是刀圈处长，然后dodo把皮球踢给在场的完美工作人员，工作人员回答是ame，然后dodo笑了两声
+
+然后就被皮套人加集美狂暴鸿儒了
+
+447991CD-6BFA-4030-95C5-38F71ECF92AE.jpeg
+(180.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 13:26 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/132639jodrjqdtn0rnnoro.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  便秘的猫  
+##### 13723#       发表于 2022-8-16 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087868&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-16 13:28</a>
+ 好像是过年那时候吧，那时候我还在看她直播 直播时候有个观众供火，发了条sc给dodo问谁是刀圈处长 ...</blockquote>
+熊弟你怎么自己开自己盒了
+
+*****
+
+####  名字不乱取  
+##### 13724#       发表于 2022-8-16 13:30
+
+3打5那波我严重怀疑双酱油都不知道发生了什么，根本赶不上ck的速度<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+低分猪顺便问一下马来人船长为什么不憋个魔晶，我记得船长魔晶还是挺恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 13725#       发表于 2022-8-16 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087875&amp;ptid=2084957" target="_blank">便秘的猫 发表于 2022-8-16 13:29</a>
+
+熊弟你怎么自己开自己盒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传错了，这是我儿子的核酸码
+
+*****
+
+####  Keynes  
+##### 13726#       发表于 2022-8-16 13:31
+
+这斧王魔晶效果是给反击螺旋单位上一层伤害减少20%的buff，最高五层。
+a醋波波团对着这个斧王切真的csdx啊
+
+*****
+
+####  thistimeforlife  
+##### 13727#       发表于 2022-8-16 13:32
+
+老干瘪作为送了og打破魔咒的得力助手，不如做个梦，相信哥哥在巨大的魔咒和轮回感面前不会继续水漫金山
+
+*****
+
+####  acejoe  
+##### 13728#       发表于 2022-8-16 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087202&amp;ptid=2084957" target="_blank">VT1996 发表于 2022-8-16 12:36</a>
+后知后觉，ame在艺术出装方面的造诣是不是也不如yatoro啊？
+
+ame为人津津乐道的散失否决水人和龙心蝴蝶狗感 ...</blockquote>
+AME就狂战拍拍是正向的艺术装。
+

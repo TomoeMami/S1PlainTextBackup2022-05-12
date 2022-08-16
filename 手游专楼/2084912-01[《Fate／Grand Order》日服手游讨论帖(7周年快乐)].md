@@ -15462,3 +15462,15 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  exiaexa  
+##### 1453#       发表于 2022-8-16 13:29
+
+我感觉阿叶再不开RBA池子我要疯掉了
+
+刚才又补了四单伊吹，还是2宝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
