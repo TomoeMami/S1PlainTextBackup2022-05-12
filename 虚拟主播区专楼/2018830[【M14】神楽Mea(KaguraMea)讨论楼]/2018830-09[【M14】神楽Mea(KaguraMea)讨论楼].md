@@ -2867,3 +2867,14 @@ mea居然跑去给b站的22、33生日唱了首歌
 
 小数点后一位动了！赢
 
+
+
+*****
+
+####  Cushaw  
+##### 12310#       发表于 2022-8-16 13:55
+
+什么德川家康，早就是信长了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

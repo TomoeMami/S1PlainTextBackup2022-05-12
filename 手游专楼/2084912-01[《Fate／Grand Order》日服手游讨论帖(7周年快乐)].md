@@ -15498,3 +15498,33 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 刚才又补了四单伊吹，还是2宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钱多可以给我(
 
+
+
+*****
+
+####  exiaexa  
+##### 1456#       发表于 2022-8-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088109&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 13:47</a>
+
+钱多可以给我(</blockquote>
+给你又不能出货
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1457#       发表于 2022-8-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088177&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 13:53</a>
+
+给你又不能出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给了我 说不定只需要3石!
+
+*****
+
+####  alucardcz  
+##### 1458#       发表于 2022-8-16 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁怎么还是那么欢乐.....这几天对云玩家冲击这么大吗
+

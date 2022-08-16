@@ -2278,3 +2278,25 @@ AME就狂战拍拍是正向的艺术装。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088132&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-16 13:49</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得不到就毁灭
 
+
+
+*****
+
+####  战狼PTSD  
+##### 13739#       发表于 2022-8-16 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088149&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-16 13:51</a>
+
+呃啊，狠狠搬屎</blockquote>
+SG文学部不允许你这么诋毁
+
+*****
+
+####  哈萨维·诺亚  
+##### 13740#       发表于 2022-8-16 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088150&amp;ptid=2084957" target="_blank">Yukino-Yukino 发表于 2022-8-16 13:51</a>
+
+蚌埠住了，吹还是你们能吹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
