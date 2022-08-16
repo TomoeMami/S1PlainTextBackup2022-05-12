@@ -4545,3 +4545,111 @@ MDY没有胡说刀塔还是少点味
 
 A畜团战输出目标指南：1.离我最近的 2.欺负过我的 3.陈
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 13979#       发表于 2022-8-16 23:02
+
+我记得鳖鳖组个叫big god的队打dac的时候就闹过一次，外国人拍了个照片说鳖鳖摘耳机听现场报点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有现场有水友手举起来，手指张开就是5＝雾的意思
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夏溪澪mio  
+##### 13980#       发表于 2022-8-16 23:03
+
+ 本帖最后由 夏溪澪mio 于 2022-8-16 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094997&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-16 23:01</a>
+处长肉山团和中二塔团的两波不输出大圣真是太关键了，下意识把搂死对面大哥的任务交给海民，自信潇洒转身和 ...</blockquote>
+我记得当时看直播他应该是被viper法球粘住了走不动了，a不到大圣
+
+找录像看了一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我直播没注意到，他就是冲着viper去的
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  何然  
+##### 13981#       发表于 2022-8-16 23:05
+
+我觉得看起来更像是开了分身自动寻找目标去了
+
+*****
+
+####  一品堂官  
+##### 13982#       发表于 2022-8-16 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094946&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-16 22:58</a>
+
+“dota不是打打杀杀，dota是人情世故”，我是没想到第一个出来喷的居然是韩国车 ...</blockquote>
+签名我唱出声来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十年八月  
+##### 13983#       发表于 2022-8-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57072282&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-15 11:31</a>
+
+kaka最早在hgt还真是打中的，离开少林寺去的ehome才转的4，然后才硬实力不足了。
+
+ ...</blockquote>
+卡猴在HGT就转4了，HGT成绩最好的时候也就是临解散前的中单是air
+
+*****
+
+####  百世诸侯  
+##### 13984#       发表于 2022-8-16 23:09
+
+<img src="https://img.saraba1st.com/forum/202208/16/230939uh5jj3hs8hjq6htt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 23:09 上传
+
+亚达莫亚达，牡蛎某牡蛎<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 13985#       发表于 2022-8-16 23:09
+
+还真是踢人给厨子 顶儿子留坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/16/230929ok64j6ckeaz6j4xv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220816230854.png</strong> (69.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 23:09 上传
+
+*****
+
+####  逃离二次元  
+##### 13986#       发表于 2022-8-16 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 13987#       发表于 2022-8-16 23:11
+
+草，不要啊，上帝和顶级儿子还有kuku在一起，太他妈恐怖了
+
+*****
+
+####  adretyu67  
+##### 13988#       发表于 2022-8-16 23:12
+
+厨子和杀人犯这队服总觉得是p了个头接上去的
+
