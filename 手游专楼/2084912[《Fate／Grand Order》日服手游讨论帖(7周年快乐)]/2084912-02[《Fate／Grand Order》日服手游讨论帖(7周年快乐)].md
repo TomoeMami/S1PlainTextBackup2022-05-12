@@ -1387,3 +1387,35 @@ Fami通
 一堆没实装角色</blockquote>
 有不少甚至不一定要新角色，出个灵衣就行了，比如麦布女王，巨神海格力斯和白色小牛
 
+
+
+*****
+
+####  DARKGRAY  
+##### 1618#       发表于 2022-8-16 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094393&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-16 22:12</a>
+
+设计这个冰块礼装的是不是有点毛病，250w给你第5张，结果点数才300w冰块就没地方用了？ ...</blockquote>
+现在60多W点还差1800多，出之前真不会已经刷够冰块用不上了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 1619#       发表于 2022-8-16 22:35
+
+斋藤一只有1宝，还是用北斋吧
+
+*****
+
+####  exiaexa  
+##### 1620#       发表于 2022-8-16 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094630&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-8-16 22:35</a>
+
+现在60多W点还差1800多，出之前真不会已经刷够冰块用不上了么</blockquote>
+冰块刷完我现在300w+
+
+剩下的300w只能全程金材料礼装了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
