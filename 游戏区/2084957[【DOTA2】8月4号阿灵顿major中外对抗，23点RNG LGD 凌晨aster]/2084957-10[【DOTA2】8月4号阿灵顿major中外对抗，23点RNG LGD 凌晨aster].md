@@ -3722,3 +3722,43 @@ G4的时候他还问，这不是A队经典精灵混沌，飞后排或者换家�
 
 笑死了，杰出这视频真的很努力不喷a÷了
 
+
+
+*****
+
+####  尸体鲨  
+##### 13895#       发表于 2022-8-16 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091701&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-16 18:43</a>
+贴吧发帖 霸气锐评ame
+
+回复“霸气成绩有ame好么，就在这评价？”
+
+贴吧发帖 核桃锐评ck</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少没质疑豪b的成绩，说明确实百度过了
+
+*****
+
+####  六娃  
+##### 13896#       发表于 2022-8-16 18:58
+
+贝利踢过现代足球吗？
+奇才乔丹表现没看过？
+
+*****
+
+####  两三流浪者  
+##### 13897#       发表于 2022-8-16 18:58
+
+杰畜发视频喽
+
+*****
+
+####  战狼PTSD  
+##### 13898#       发表于 2022-8-16 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091635&amp;ptid=2084957" target="_blank">Aeons 发表于 2022-8-16 18:39</a>
+
+听说现场有人提示雪碧lgd开雾或者偷盾，感觉是非常赢之不武.jpg 好久没看到这种角度了。 ...</blockquote>
+这个角度我在撸圈见过
+

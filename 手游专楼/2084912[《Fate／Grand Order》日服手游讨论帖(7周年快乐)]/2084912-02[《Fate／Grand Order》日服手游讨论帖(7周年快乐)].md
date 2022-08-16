@@ -68,3 +68,51 @@
 
 我现在愁啊，三个女武神，我原版喜欢的金毛，这次三选一，看到粉毛的灵衣幻视cc，结果满破一出，黑毛赢麻了，我到底选哪个啊艹
 
+
+
+*****
+
+####  alucardcz  
+##### 1508#       发表于 2022-8-16 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091732&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 18:46</a>
+
+为了打一个本反复考虑抽卡计划，难道其实他们box里什么都没有吗23333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是很正常吗 毕竟动不动5宝xx入坑
+
+*****
+
+####  都谷捻柏  
+##### 1509#       发表于 2022-8-16 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091759&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 18:47</a>
+
+我现在愁啊，三个女武神，我原版喜欢的金毛，这次三选一，看到粉毛的灵衣幻视cc，结果满破一出，黑毛赢麻了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">灵衣图不是早就公布了吗
+
+*****
+
+####  angelooo  
+##### 1510#       发表于 2022-8-16 18:57
+
+<blockquote>都谷捻柏 发表于 2022-8-16 18:55
+灵衣图不是早就公布了吗</blockquote>
+满破刚出啊
+
+*****
+
+####  sosgame67  
+##### 1511#       发表于 2022-8-16 18:58
+
+隔壁就一个个日常论坛battle全图鉴侃侃而谈，虚空刷本有如转生号阵容贫瘠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1512#       发表于 2022-8-16 19:01
+
+不过有句港剧，如果以后的90++都是这个水平
+
+那rba在111的时候可能会比现在有用得多，总有一面你能把红卡甩出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
