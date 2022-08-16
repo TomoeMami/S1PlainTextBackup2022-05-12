@@ -745,3 +745,79 @@ ts整体搬塞尔维亚了  因为这个csgo分部主狙击手离队了
 我看你们不要跳，两个月后我们哥哥卧薪尝胆上演王者归来夺冠，退役，直播，结婚一条龙好吧
 反正我先缩壳了
 
+
+
+*****
+
+####  遍体精淋af  
+##### 13578#       发表于 2022-8-16 10:33
+
+蕾姆了
+<img src="https://p.sda1.dev/6/1333c1f4c0229ec1599e3b4bfe8089db/5aec3f736c569735.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 13579#       发表于 2022-8-16 10:35
+
+不哭不是真卵卵
+
+*****
+
+####  逃离二次元  
+##### 13580#       发表于 2022-8-16 10:36
+
+不哭不是真卵卵
+
+*****
+
+####  星野航  
+##### 13581#       发表于 2022-8-16 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085034&amp;ptid=2084957" target="_blank">Bernoulli 发表于 2022-8-16 11:14</a>
+TI冠军也有fear这种的啊，能力差点不是问题，知道自己该干啥有时候已经够了。 ...</blockquote>
+人fear ti5还有顶中顶飞机打猴子呢
+ti6还能转功能位打什么一号位斧王让sumail带着翻盘
+萧瑟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  外挂全家脚气  
+##### 13582#       发表于 2022-8-16 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085292&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-16 10:30</a>
+
+抛开光法不谈，对面两路半，小娜迦居然拿不下?一个英雄就可以分带三路上高，你守中上，下路进来就耗门牙 ...</blockquote>
+就是整个队已经打没脑子了啊，1想不到，2不知道，3没办法，4在73分钟才想起来，所有人只剩下一定要跟TS正面决战打赢的肌肉DOTA
+
+*****
+
+####  白色的120  
+##### 13583#       发表于 2022-8-16 10:40
+
+杰畜这个比大谈特谈大鞭哥出装问题，什么走最前面，对处长不开bkb的行为却轻描淡写
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aruruu  
+##### 13584#       发表于 2022-8-16 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084401&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-16 09:30</a>
+不光是比不了冠军c，处长在历届的亚军c里面也是一言难尽的存在，可能只比uuu9好一点只能说赵云太猛 ...</blockquote>
+uuu9如果挺到这个大哥吃屎的版本还真不好说，毕竟早就吃惯了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白色的120  
+##### 13585#       发表于 2022-8-16 10:41
+
+还有第二局小娜迦不带球，怪莫言不出魔晶，乐
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

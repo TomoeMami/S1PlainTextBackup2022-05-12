@@ -15327,3 +15327,23 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kiralzb  
+##### 1441#       发表于 2022-8-16 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084421&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 09:31</a>
+我在用伊吹冲浪 主要想刷出6绊点出被动</blockquote>
+再抽一宝不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1442#       发表于 2022-8-16 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084928&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 10:06</a>
+隔壁当然有正常人啊，但很多发主题的人就是真的蠢，比如问国服是不是要自选项哥，希望狂兰快点开单up池子的 ...</blockquote>
+绿卡现在只能等一个超级打手，rba都这样了，还惦念着旧时代的有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

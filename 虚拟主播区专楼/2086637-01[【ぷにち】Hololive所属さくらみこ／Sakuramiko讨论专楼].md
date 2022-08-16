@@ -1881,3 +1881,25 @@ rust来了
 
 2022-8-16 01:26 上传
 
+
+
+*****
+
+####  rs5621  
+##### 179#       发表于 2022-8-16 10:35
+
+ 本帖最后由 rs5621 于 2022-8-16 10:38 编辑 
+
+<img src="https://p.sda1.dev/6/8f472d1ae4ff3e1221777fa3bd7839ad/CMP_20220816103350604.jpg" referrerpolicy="no-referrer">https://youtu.be/3nC3UYcB8eA这段果然被剪辑出来了，miko又有新名言诞生
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 180#         楼主| 发表于 2022-8-16 10:36
+
+常规营业而已
+
+吓尿了说过好几次了
+
