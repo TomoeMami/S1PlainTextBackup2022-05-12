@@ -1521,3 +1521,22 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想到水伊有特攻啊  有没有算算减掉特攻还能不能杀穿这次111
 
+
+
+*****
+
+####  kiralzb  
+##### 1632#       发表于 2022-8-17 00:27
+
+用阿荣刷，要换人，终于用上之前推主线给的新服装，正面还挺帅的，就是这经验值怎么需要这么多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 1633#       发表于 2022-8-17 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095990&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-17 00:27</a>
+
+用阿荣刷，要换人，终于用上之前推主线给的新服装，正面还挺帅的，就是这经验值怎么需要这么多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多么仁慈，可以支持你换好久的人了
+
