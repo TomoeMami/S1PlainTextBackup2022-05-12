@@ -4810,3 +4810,30 @@ cn真正的第一c 和 定语第一c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">ku畜在这个利好3号位的版本能带队保级，我感觉已经可以备战ti12了。卡尔打的挺尽力了你把他换掉干什么？
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 14008#       发表于 2022-8-16 23:34
+
+ 本帖最后由 杜文乐超神归来 于 2022-8-16 23:37 编辑 
+
+圣水符版本就别指望顶儿子能带人了
+
+估计到了Ti一碰强队就碎，也就杀杀鱼腩保出线
+
+*****
+
+####  逃离二次元  
+##### 14009#       发表于 2022-8-16 23:35
+
+有没有别的东南亚队伍租借一下卡尔，想看他打预选<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  c88711611  
+##### 14010#       发表于 2022-8-16 23:42
+
+杰÷这个玩意，我拉黑很多年了，zsmj还在打的时候逮着吹hgt，然后就是当鳖孙吹憋，现在吃集美这顿饭，没有任何一个阶段不恶心我的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

@@ -14562,3 +14562,44 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 不过我个人认为，分锅的话企划：京极：花田≈6：3：1吧
 
+
+
+*****
+
+####  cxj649  
+##### 2902#       发表于 2022-8-16 23:31
+
+ 本帖最后由 cxj649 于 2022-8-16 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095374&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-16 23:28</a>
+
+别说什么看清不看清，国内讨论集中在可可身上到底为什么你当真不清楚吗 ...</blockquote>
+看前面啊，有老哥说花田对天朝人有意见啊，还有排名什么，问题是现在这样可可的问题已经不太重要了
+
+甚至拉版正在对着鲤鱼发情呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 2903#       发表于 2022-8-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095429&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-16 23:31</a>
+看前面啊，有老哥说花田对天朝人有意见啊，还有排名什么，问题是现在这样可可的问题已经不太重要了
+
+甚至拉 ...</blockquote>
+虽然我觉得不至于上升，但关心则乱你也应该多少能理解吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能要求国内对可可和别人重视程度看齐 日本人怎么想算个jb
+
+*****
+
+####  adw667  
+##### 2904#       发表于 2022-8-16 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天在阿姨家买可动手办的时候思索再三买了恋恋的
+
+*****
+
+####  奥柏伦亲王  
+##### 2905#       发表于 2022-8-16 23:37
+
+真没感觉是针对谁，就二期这些角色塑造，除了红蓝上了微不足道的一点分，还有哪个角色是正面的？不还都是一泡污。可可的戏份问题确实很大，其他几个人也是一样的，只是程度不同而已。这一季根本就没有什么正面角色，9个傻子在那尬演罢了。
+

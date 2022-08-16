@@ -1439,3 +1439,24 @@ Fami通
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 1623#       发表于 2022-8-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095390&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-8-16 23:29</a>
+
+满破了冰块礼装就可以腾出位置放别的加成礼装了啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我就不一样了 已经换成了5羁绊加成礼装
+
+*****
+
+####  alucardcz  
+##### 1624#       发表于 2022-8-16 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想这几天我都在高强度刷nga看戏。。。。这波亏大了 浪费了那么多时间
+
