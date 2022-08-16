@@ -1267,3 +1267,54 @@ ame应该是有一个精神状态阈值，在对手实力低下/赛事不重要�
 
 贴吧还有想清算haob霸气塞拉的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白色的120  
+##### 13631#       发表于 2022-8-16 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085550&amp;ptid=2084957" target="_blank">maju3 发表于 2022-8-16 10:47</a>
+
+杰畜还是很清楚自己基本盘的</blockquote>
+杰畜想喝水啊，现在还没出新视频拷打lgd，拷打rng时候积极多了
+
+*****
+
+####  坚定的团子党  
+##### 13632#       发表于 2022-8-16 11:45
+
+lgd基本上ti11没戏了，茶队也不像能指望的样子，还是看看预选、外卡能否有队伍能进化吧，但感觉也难<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拿拿子  
+##### 13633#       发表于 2022-8-16 11:45
+
+话说为啥在集美论坛可以叫人鳖但是不能叫人畜
+
+*****
+
+####  遍体精淋af  
+##### 13634#       发表于 2022-8-16 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086273&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-16 11:37</a>
+shiro最近那次水人还叫平庸吗，换油垃圾G3早赢了
+
+planet也是不错的，那个zeal我觉得不太可以 ...</blockquote>
+超神水人都什么时候的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近的那次水人还是和lgd打的那次，被暴打（虽然比赛最后赢了
+
+*****
+
+####  千千千千鸟  
+##### 13635#       发表于 2022-8-16 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 13636#       发表于 2022-8-16 11:49
+
+好久没看到厂公了，厂公今年还有机会打TI吗？
+
