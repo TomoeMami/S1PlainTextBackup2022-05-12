@@ -15359,3 +15359,25 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 再抽一宝不就行了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">34石拿头再抽一个
 
+
+
+*****
+
+####  angelooo  
+##### 1444#       发表于 2022-8-16 11:04
+
+<blockquote>kiralzb 发表于 2022-8-16 10:34
+绿卡现在只能等一个超级打手，rba都这样了，还惦念着旧时代的有啥用 ...</blockquote>
+所以我建议他们开始吃烟雾镜的桃子，希望冠位狂能救救绿拐
+
+*****
+
+####  poor  
+##### 1445#       发表于 2022-8-16 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085753&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 11:04</a>
+所以我建议他们开始吃烟雾镜的桃子，希望冠位狂能救救绿拐</blockquote>
+但是你游冠位有特别强的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅林应该不算冠位
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
