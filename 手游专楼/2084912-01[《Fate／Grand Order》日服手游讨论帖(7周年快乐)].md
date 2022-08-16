@@ -15415,3 +15415,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 艹 想友情池抽三星礼装满破 结果出了小黑 瞬间感觉少了一个五星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着欧气出手现在说不定还能抓到伊吹尾巴
 
+
+
+*****
+
+####  kiralzb  
+##### 1449#       发表于 2022-8-16 11:59
+
+羡慕，我都还未见过小黑呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
