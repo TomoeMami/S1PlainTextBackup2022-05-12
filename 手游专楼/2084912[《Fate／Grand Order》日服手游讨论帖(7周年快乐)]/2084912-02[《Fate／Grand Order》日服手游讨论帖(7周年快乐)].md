@@ -1476,3 +1476,23 @@ Fami通
 
 杀死比赛还是很简单的嘛，毕竟今天之前谁会讨论100w血环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1627#       发表于 2022-8-16 23:52
+
+ 本帖最后由 gpx234mqx 于 2022-8-16 23:54 编辑 
+
+这帮人太疯了，造了一个行走的尸体在南极徘徊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是埋雷吧
+
+*****
+
+####  霧谷藤乃  
+##### 1628#       发表于 2022-8-16 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么都方块毕业了，看到300冰块才兑换一个突破材料，我又继续刷冰块礼装好友了
+

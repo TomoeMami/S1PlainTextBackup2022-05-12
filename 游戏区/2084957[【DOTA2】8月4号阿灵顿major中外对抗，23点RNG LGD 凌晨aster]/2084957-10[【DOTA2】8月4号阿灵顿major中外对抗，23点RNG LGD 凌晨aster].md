@@ -4855,3 +4855,49 @@ karl，真正的东南亚猛男，外战硬得要死
 
 这是谁发的?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十年八月  
+##### 14013#       发表于 2022-8-16 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090514&amp;ptid=2084957" target="_blank">阿垃垃圾历 发表于 2022-8-16 16:59</a>
+
+hyz这个洗  怎么感觉是黑啊 笑死</blockquote>
+你想多了，太监就算去和鳖鳖的马连麦都不会真的黑A÷。
+
+太监舔A÷真是舔到天地动容。
+
+或者说整个MDY除了卡猴有点成绩再加上人可能还行之外，其他所有人都众星捧月的舔A÷和皮套人
+
+*****
+
+####  RGm  
+##### 14014#       发表于 2022-8-16 23:55
+
+今天，我手震…今天，我心痛。 …為什麼會這樣？ 
+
+*****
+
+####  VT1996  
+##### 14015#       发表于 2022-8-16 23:58
+
+杰出视频发了这么久，ame怎么还没来视频底下发评论支持啊？不给杰出赏饭了？
+
+*****
+
+####  沈淮  
+##### 14016#         楼主| 发表于 2022-8-16 23:59
+
+我上周看到kuku踢了12号位就发帖说了肯定是aba跟topson去，果不其然
+
+*****
+
+####  沈淮  
+##### 14017#         楼主| 发表于 2022-8-17 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092879&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-16 20:17</a>
+我怀疑你在讲翻墙笑话，美国上yy说话不要加速器的吗？</blockquote>
+好像是不用，我跟英国留学的朋友打游戏就是的
+
