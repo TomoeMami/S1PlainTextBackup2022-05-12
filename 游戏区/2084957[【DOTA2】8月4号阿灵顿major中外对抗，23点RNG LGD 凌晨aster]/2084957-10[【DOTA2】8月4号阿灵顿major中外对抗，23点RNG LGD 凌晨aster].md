@@ -5054,3 +5054,63 @@ BV17e4y1f7C8</blockquote>
 看wtf，看到那个身上买了很多芒果的😄，是按了什么快捷键吗</blockquote>
 把芒果拖进快捷购买了罢<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 14032#       发表于 2022-8-17 02:16
+
+<img src="https://img.saraba1st.com/forum/202208/17/021622dqd2nqlypmiqdi1p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 02:16 上传
+
+*****
+
+####  北欧王座  
+##### 14033#       发表于 2022-8-17 03:23
+
+ 本帖最后由 北欧王座 于 2022-8-17 03:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">皮套畜提前结晶化。打完了开始说黑他的是不是生活不如意，为什么对我哥哥有这么大恶意。嘿嘿你带着王淳煜这条狗跟集美消失在这个社区立马没有几个人黑你了，顶多像鳖孙一样遇到事被人嘲讽两句，你的线下生活没有人会打扰。
+
+打前全世界卖骚占地盘控评，打之后就哥哥勇敢抗击网路暴力哈哈。小组赛凡是黑哥哥的都是小蚂蚁小鳖孙，别人骂处长你骂maybe，小组赛打完了处长觉得自己能探头了，开始骑脸；现在决赛打完了，<strong>人呢？给老子说话！</strong>还有杂种up主出视频骂都是小蚂蚁。maybe和鳖孙的妈死了我都无所谓，最火大的就是你们这帮逼觉得我是哥哥对家的粉，啪扣个帽子。然后就是统一话术亚军不丢人，你能找个比lgd更好的中国队？哈哈抱歉，转型罕见，就是要骑你脸，就是粉og粉ts，他们的dota更加美丽。一帮帮水厂畜生up主吹神一样的lgd，外国人惊呼lgd不可战胜，切皮套畜甜甜切片。打完一个个全**缩壳了，抗击假赛阴谋论都不敢堂堂正正的发声明。再能逼逼的嘴，再多的借口，也掩盖不了这帮狗缩壳时候的丑态。你们自己的扭捏做作完美证明了，从来没有愿赌服输过，那冠冕堂皇的每一句话，每一句这个社区不行的指责，都是自己无耻最好的注脚。
+
+很喜欢那个小故事，胜者组打完众星拱月的lgd队员冷淡的应对粉丝，yatoro则像个路人一样端着咖啡从人群中默默走过。打完只有lgd不在场，选手们合照，无论胜者还是败者，每个人都像大男孩一样在微笑。昨天刚骂完杜鹏虚空铁cs的我，也只能苦笑，隐隐希望能够在某一日惊呼杜鹏对不起，不过在此之前我还是先骂着罢！这有一种使人宁静的东西在里面。我相信它是珍贵的。而我在lgd的社区里已经感受不到了。
+
+*****
+
+####  蛭人  
+##### 14034#       发表于 2022-8-17 03:25
+
+原来是ana叫topson去的，t1 ceo还挺有魄力的，上帝之子纯纯因为ana去然后也是sea区还能接受，如果不因为sea或者eu，ana还可以带着topson去cn区，可惜了，不然直接加入茶队起步直接话题度拉爆。
+
+*****
+
+####  格雷殿下  
+##### 14035#       发表于 2022-8-17 03:58
+
+不是直接加入rng?
+
+*****
+
+####  两三流浪者  
+##### 14036#       发表于 2022-8-17 05:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096716&amp;ptid=2084957" target="_blank">蛭人 发表于 2022-8-17 03:25</a>
+
+原来是ana叫topson去的，t1 ceo还挺有魄力的，上帝之子纯纯因为ana去然后也是sea区还能接受，如果不因为sea ...</blockquote>
+ana基本做不到正常中文交流，还想做翻译？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 14037#       发表于 2022-8-17 05:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096575&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-17 02:16</a></blockquote>
+a畜心态有问题的话，早退役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
