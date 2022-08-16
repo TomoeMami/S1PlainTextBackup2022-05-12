@@ -3879,3 +3879,31 @@ VG没钱了，只能随便应付下，阿绿已经不想做了，再过几年国
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
 
+
+
+*****
+
+####  反方向的波  
+##### 13912#       发表于 2022-8-16 19:54
+
+那3是谁呢，不会是srf吧
+
+*****
+
+####  白色的120  
+##### 13913#       发表于 2022-8-16 20:00
+
+ 本帖最后由 白色的120 于 2022-8-16 20:02 编辑 
+
+杰畜在批站都被捧成杰神了，<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/b1687d62b6a939894f420911b6fba460/CMP_20220816200228805.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 13914#       发表于 2022-8-16 20:01
+
+不是出圣么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

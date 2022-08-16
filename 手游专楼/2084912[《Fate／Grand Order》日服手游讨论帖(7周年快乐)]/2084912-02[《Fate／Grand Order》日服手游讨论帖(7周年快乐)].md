@@ -497,3 +497,56 @@ BB：你礼貌吗
 低宝自求多福
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 1549#       发表于 2022-8-16 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 这三选一好烦啊 你们都选的哪个
+
+*****
+
+####  保罗赫伯特  
+##### 1550#       发表于 2022-8-16 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092553&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:53</a>
+
+艹 这三选一好烦啊 你们都选的哪个</blockquote>
+选的是粉毛，原因是某个本子的熏陶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1551#       发表于 2022-8-16 19:58
+
+<blockquote>qixinno2 发表于 2022-8-16 19:53
+艹 这三选一好烦啊 你们都选的哪个</blockquote>
+现在我三个都想要了，太痛苦了艹
+
+*****
+
+####  Jamaisvu  
+##### 1552#       发表于 2022-8-16 20:00
+
+ 本帖最后由 Jamaisvu 于 2022-8-16 20:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092553&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:53</a>
+
+艹 这三选一好烦啊 你们都选的哪个</blockquote>
+我选的是金发的奥特琳德，因为感觉灵衣那个呆毛王发型的女武神表情比较可爱...
+
+绿毛这个属性无感（短发然后CV是东山奈央倒是可以...）；棕发还不错，看着像少女前线的角色<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不过表情有点严肃...
+
+...好吧我其实是按排序顺位选的，希望以后复刻能集齐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概关服前会复刻一次然后像万圣节那样来个总编集？
+
+*****
+
+####  alucardcz  
+##### 1553#       发表于 2022-8-16 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092553&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:53</a>
+
+艹 这三选一好烦啊 你们都选的哪个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便点了一个
+
