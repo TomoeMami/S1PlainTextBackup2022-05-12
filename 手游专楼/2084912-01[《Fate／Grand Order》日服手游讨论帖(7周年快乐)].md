@@ -15403,3 +15403,15 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹 想友情池抽三星礼装满破 结果出了小黑 瞬间感觉少了一个五星
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1448#       发表于 2022-8-16 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086069&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 11:25</a>
+
+艹 想友情池抽三星礼装满破 结果出了小黑 瞬间感觉少了一个五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着欧气出手现在说不定还能抓到伊吹尾巴
+
