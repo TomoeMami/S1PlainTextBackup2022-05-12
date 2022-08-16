@@ -15820,3 +15820,19 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">111，高宝狂大公唯一神？
 
+
+
+*****
+
+####  qixinno2  
+##### 1489#       发表于 2022-8-16 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我拿头打
+
+*****
+
+####  katun  
+##### 1490#       发表于 2022-8-16 18:01
+
+大妈觉得自己平安京写得非常好，于是觉得复刻一遍帮助大家回忆，她真的，我哭死
+
