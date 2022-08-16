@@ -15633,3 +15633,25 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁吹狂兰的回的人不少  有一个真正的计算贴没几个人看 太典了
 
+
+
+*****
+
+####  exiaexa  
+##### 1469#       发表于 2022-8-16 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089640&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 15:59</a>
+隔壁吹狂兰的回的人不少  有一个真正的计算贴没几个人看 太典了</blockquote>
+这rba有啥好算的，换我我也不看啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1470#       发表于 2022-8-16 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089994&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 16:26</a>
+
+这rba有啥好算的，换我我也不看啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是在算传说中的绿卡红爆吗  结论是狂兰不太行  结果没人看  吹的依然在吹 还什么自选狂兰 什么时候开狂兰up池（
+

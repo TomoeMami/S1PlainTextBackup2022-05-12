@@ -2950,3 +2950,104 @@ navi：老子真是草了
 网易buff，用这个脚本看比例
 [https://greasyfork.org/zh-CN/scr ... -%E6%8F%92%E4%BB%B6](https://greasyfork.org/zh-CN/scripts/410137-%E7%BD%91%E6%98%93buff%E4%BB%B7%E6%A0%BC%E6%AF%94%E4%BE%8B-%E6%89%BE%E6%8C%82%E5%88%80-%E6%8F%92%E4%BB%B6)
 
+
+
+*****
+
+####  尖刺外婆  
+##### 13809#       发表于 2022-8-16 16:23
+
+<img src="https://p.sda1.dev/6/4673add7a62c720b104d95690d7dbc0c/CMP_20220816162149772.jpg" referrerpolicy="no-referrer">
+
+不是我想搬屎，是真绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 13810#       发表于 2022-8-16 16:23
+
+ame三打五，何雍正：我只能说小王这波非常单纯。弹幕都绷不住了哈哈
+
+*****
+
+####  百世诸侯  
+##### 13811#       发表于 2022-8-16 16:25
+
+结果fly从背后拍了拍bian的肩膀 然后掏出来个汉堡 非常友好 非常细心
+
+国产homo片剧情
+
+*****
+
+####  nowaki  
+##### 13812#       发表于 2022-8-16 16:26
+
+g4ceb吼那波团，ck跳刀没拖上来没法切入，hyz：这不重要，没视野怎么切啊。然后就看着土猫滚上去切死了拉比克。
+
+3打5，hyz：小王太单纯了，看到人就想上
+
+*****
+
+####  百世诸侯  
+##### 13813#       发表于 2022-8-16 16:26
+
+[UUURA]EG官方Vtuber出道视频
+
+小鸽子也成套皮人了我操
+
+*****
+
+####  外挂全家脚气  
+##### 13814#       发表于 2022-8-16 16:27
+
+决赛几局，LGD不仅脑子打没了，肌肉也没TS硬啊，T上路包人被团灭就是典型的肌肉没人家硬
+
+不知道为什么这么不待见这个词，TS决赛表现就是现代DOTA同时有最硬的肌肉，TS的视野控制、团战策划、高压下的决策、拉扯、对自己阵容的优势利用以及抓对方阵容的漏洞都是顶级，这些有人能否认么
+
+*****
+
+####  超人苏坦纳  
+##### 13815#       发表于 2022-8-16 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089809&amp;ptid=2084957" target="_blank">撒撒 发表于 2022-8-16 16:12</a>
+
+中国队伍能去东南亚打东南亚赛区预选吗？</blockquote>
+你说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 13816#       发表于 2022-8-16 16:30
+
+这下A畜和北美A畜都有套皮人女朋友了
+
+*****
+
+####  杜文乐超神归来  
+##### 13817#       发表于 2022-8-16 16:31
+
+hyz：四成锅吧，五成有点多了。
+
+*****
+
+####  nowaki  
+##### 13818#       发表于 2022-8-16 16:31
+
+hyz：小王四成锅吧，队友前面犯得错更多，对他的期待太大了导致失误了。
+
+*****
+
+####  dclara1  
+##### 13819#       发表于 2022-8-16 16:32
+
+这皮套说话感觉没拆妮子味儿啊，真是天鸽？
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  遍体精淋af  
+##### 13820#       发表于 2022-8-16 16:32
+
+好呀好呀，不愧是处长的异时空同位体，北美a处也要有皮套女友，不过皮还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
