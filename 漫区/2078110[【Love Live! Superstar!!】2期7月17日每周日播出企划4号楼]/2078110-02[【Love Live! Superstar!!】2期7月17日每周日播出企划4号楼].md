@@ -13974,3 +13974,26 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 最近各种吸血论也大量引进了，最早从哪流传出来的，足球那边倒是挺多的</blockquote>
 什么吸血论？细说
 
+
+
+*****
+
+####  ViyViy  
+##### 2846#       发表于 2022-8-16 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088069&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-16 13:44</a>
+
+动画形象不是全部（） 能救一点算一点</blockquote>
+那些广播小剧场和LLD杂志的小散段各种样板的具足虫bot和“顺带还有堇”也不见得有多少巧思，更别说这些IP小读物正常肯定是动画为主其它为辅，毕竟星一开始就是上动画来引大流的…开播前的可堇桥段哪来的具足虫，开播后不还是老实跟进，除非企划亲手抹去动画的正名。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TRIScRE  
+##### 2847#       发表于 2022-8-16 14:48
+
+ 本帖最后由 TRIScRE 于 2022-8-16 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088663&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-8-16 14:34</a>
+
+什么吸血论？细说</blockquote>
+主吧首页就有好几个，本质恶臭钓鱼，激起两边大战
+
