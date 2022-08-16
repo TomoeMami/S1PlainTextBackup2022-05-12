@@ -801,3 +801,44 @@ MD绿卡是真的废物，C呆+CBA+换人CBA
 
 能特攻到恩奇都的人真少啊……突然发现，花嫁倒是有特攻还红字，但是花嫁宝具1hit
 
+
+
+*****
+
+####  yangun22  
+##### 1575#       发表于 2022-8-16 20:38
+
+5宝征姐妹的话也可以，第三波需缺10np需要衣服补一下，第三波火力是超过斋藤稳定打死的，斋藤有时候会漏一点没打死
+
+*****
+
+####  alucardcz  
+##### 1576#       发表于 2022-8-16 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093205&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-8-16 20:38</a>
+
+5宝征姐妹的话也可以，第三波需缺10np需要衣服补一下，第三波火力是超过斋藤稳定打死的，斋藤有时候会漏一 ...</blockquote>
+不会啊 稳定秒  已经刷了一个30石了。。没失败过一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1577#       发表于 2022-8-16 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092892&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-16 20:17</a>
+
+新出的活动free本，90+的基础羁绊值是1098，90++则是1318。
+
+之前发的星见茶壶貌似还有14天就过期了，也就 ...</blockquote>
+你忘了地球姫和doman也是20%+
+
+*****
+
+####  qixinno2  
+##### 1578#       发表于 2022-8-16 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093228&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 20:40</a>
+
+不会啊 稳定秒  已经刷了一个30石了。。没失败过一次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新好强啊 又开始刷羁绊石了
+

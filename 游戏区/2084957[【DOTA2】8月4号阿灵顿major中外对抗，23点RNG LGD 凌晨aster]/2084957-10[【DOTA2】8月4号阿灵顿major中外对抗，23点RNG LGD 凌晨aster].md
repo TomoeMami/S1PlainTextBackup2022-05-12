@@ -4065,3 +4065,76 @@ po3，之前在ob青训打过</blockquote>
 
 不过被vote这事上再蠢的人也看得出来票型3：1的那个3是谁吧。
 
+
+
+*****
+
+####  adretyu67  
+##### 13934#       发表于 2022-8-16 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092987&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-16 20:24</a>
+
+哦烈火的那个，都一度打到天梯第五了，究竟做错了什么要让秒男来保他</blockquote>
+鬼故事，皮鞋5
+
+*****
+
+####  白色的120  
+##### 13935#       发表于 2022-8-16 20:33
+
+皮鞋这比能挤掉fade打四，自然也能打五，毕竟陈清亲儿子
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白野苍衣  
+##### 13936#       发表于 2022-8-16 20:33
+
+这样看中国区预选也挺血腥的，RNG、XG、IG、VG、EH，脑浆都打出来了。
+
+*****
+
+####  白色的120  
+##### 13937#       发表于 2022-8-16 20:34
+
+ti预选名额怎么分配的？中国区只有一个吗？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 13938#       发表于 2022-8-16 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093030&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-16 20:27</a>
+面八当年不就训过二冰吗，带个线下比赛就知道代购买周边还是啥来着。好像是找选手要签名？
+
+不过被vote这事 ...</blockquote>
+不用猜，台妹采访自己就说了
+
+*****
+
+####  ArowRocher  
+##### 13939#       发表于 2022-8-16 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093130&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-16 20:34</a>
+ti预选名额怎么分配的？中国区只有一个吗？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next-鹅版 v2. ...</blockquote>
+<img src="https://p.sda1.dev/6/34a78c40150aa9cfb730d3a21de71b20/CMP_20220816203654957.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 13940#       发表于 2022-8-16 20:37
+
+嘻嘻有时候觉得西恩刀塔这屁样，职业圈死了就死了吧，就算国服没了开个加速器去东南亚甚至去日本也可以接着打
+
+*****
+
+####  战狼PTSD  
+##### 13941#       发表于 2022-8-16 20:37
+
+VG看不出来有竞争力，坐等超哥全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
