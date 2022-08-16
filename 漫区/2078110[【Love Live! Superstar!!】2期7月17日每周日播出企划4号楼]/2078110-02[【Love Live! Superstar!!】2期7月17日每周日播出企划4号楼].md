@@ -13644,3 +13644,14 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 说起来，这op Ed和插1是不是一周一张的节奏？
 
+
+
+*****
+
+####  Kfly  
+##### 2818#       发表于 2022-8-16 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083748&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-16 08:24</a>
+我第一反应也是这个，我寻思大家卑女梗玩的这么欢应该没多大事吧</blockquote>
+或许有不少人觉得这话对一些角色可以用，对堇就不可以（或者说不适合）用吧，尤其是在星团现在这个情况下……
+
