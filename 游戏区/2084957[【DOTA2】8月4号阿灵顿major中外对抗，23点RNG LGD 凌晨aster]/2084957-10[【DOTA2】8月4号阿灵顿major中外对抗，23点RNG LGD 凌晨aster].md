@@ -2300,3 +2300,31 @@ SG文学部不允许你这么诋毁
 蚌埠住了，吹还是你们能吹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TIZI  
+##### 13741#       发表于 2022-8-16 14:05
+
+怎么说呢，猴爹，量子鞭，文爱胖子和脑浆y的状态能一直爆种，4赵云都坐起来打可以赢过雪碧，关键是赵云也有cd，赵云躺下去了a/扶不起来的大局的，打雪碧每次bp感觉不如鳖星
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈曼的YY  
+##### 13742#       发表于 2022-8-16 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087692&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-08-16 13:14:34</a>
+major亚军季军殿军也都没夺过冠，看来今天是帕皮酱的盾了</blockquote>支持beautiful dota<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沈淮  
+##### 13743#         楼主| 发表于 2022-8-16 14:09
+
+弱智发言配上ac娘哪个弱智表情，只能说相得益彰
+

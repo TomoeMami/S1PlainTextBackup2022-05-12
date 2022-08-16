@@ -13915,3 +13915,17 @@ Nagi回归的时间有说是什么时候吗？
 直球借角色之口反驳剧中形象，已经是觉得救不了了吧，觉得能救的话像以前一样编个善意解释就好。 ...</blockquote>
 动画形象不是全部（） 能救一点算一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JY要塞  
+##### 2841#       发表于 2022-8-16 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087543&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-16 13:02</a>
+
+草，看人说别人全在退步，恋一直在原地踏步，反而算进步了，花田，是你守护了恋吗，你好温柔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是那句话，你觉得恋还行是因为还没轮到她的剧情
+
+虽然有没有还不知道
+
