@@ -893,3 +893,66 @@ chrisluck确实有意思啊<img src="https://static.saraba1st.com/image/smiley/f
 
 23458哪怕赢一百次，只要决赛失败一次，就是拖掀背后腿。
 
+
+
+*****
+
+####  usoda  
+##### 13594#       发表于 2022-8-16 10:53
+
+我看你们不要跳，两个月后我们哥哥卧薪尝胆上演王者归来夺冠，退役，直播，结婚一条龙好吧
+放风时间完毕决赛日见
+反正我先缩壳了
+
+*****
+
+####  tengshuo980  
+##### 13595#       发表于 2022-8-16 10:55
+
+就算是lgd能打到ti决赛，他们自己还能相信自己能赢吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acejoe  
+##### 13596#       发表于 2022-8-16 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084912&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-16 10:05</a>
+我记得有段时间，掀背把把玩巨魔大圣，站不出来基本就寄</blockquote>
+某个major吧，刚和ehome4人合体那阶段，ame不会打功能c疯狂输，面8就死里选版本强势c，让ame做自己。
+
+*****
+
+####  acejoe  
+##### 13597#       发表于 2022-8-16 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085128&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-16 10:19</a>
+我觉得最难崩的是   天天吹现代DOTA  尼玛么么鳖玩娜迦还TM手点幻象分路走 给我看傻了 ...</blockquote>
+还有啥高级操作？
+
+*****
+
+####  iriyano  
+##### 13598#       发表于 2022-8-16 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085648&amp;ptid=2084957" target="_blank">acejoe 发表于 2022-8-16 11:56</a>
+还有啥高级操作？</blockquote>
+额，分身可以编队的
+
+*****
+
+####  格雷殿下  
+##### 13599#       发表于 2022-8-16 10:59
+
+连个小娜迦都玩不明白，那也难怪小小会做tb血包了。对英雄的基本理解都是错的，什么时候该干什么也是，但凡做对一点，也不至于一点也不对。这就是cn第一c吗😄
+
+*****
+
+####  acejoe  
+##### 13600#       发表于 2022-8-16 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085416&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-16 10:37</a>
+就是整个队已经打没脑子了啊，1想不到，2不知道，3没办法，4在73分钟才想起来，所有人只剩下一定要跟TS正 ...</blockquote>
+这种肯定是要1号位自己想到的，打比赛哪有空帮别人想怎么打，肯定是玩娜迦的说“我去偷你们拉我”，然后别人听你的。
+

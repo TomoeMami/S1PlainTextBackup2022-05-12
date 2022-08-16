@@ -15347,3 +15347,15 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 隔壁当然有正常人啊，但很多发主题的人就是真的蠢，比如问国服是不是要自选项哥，希望狂兰快点开单up池子的 ...</blockquote>
 绿卡现在只能等一个超级打手，rba都这样了，还惦念着旧时代的有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 1443#       发表于 2022-8-16 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085329&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-16 10:32</a>
+
+再抽一宝不就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">34石拿头再抽一个
+
