@@ -821,3 +821,75 @@ uuu9如果挺到这个大哥吃屎的版本还真不好说，毕竟早就吃惯�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 13586#       发表于 2022-8-16 10:45
+
+chrisluck确实有意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">zamala
+
+*****
+
+####  莉拉厨  
+##### 13587#       发表于 2022-8-16 10:46
+
+永远铭记，所有集美的本质就是axo！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  maju3  
+##### 13588#       发表于 2022-8-16 10:47
+
+杰畜还是很清楚自己基本盘的
+
+*****
+
+####  百世诸侯  
+##### 13589#       发表于 2022-8-16 10:48
+
+鳖尬黑，畜长不敢带球还不是因为脑浆y视野被爆了畜长自己一去就死
+
+*****
+
+####  一品堂官  
+##### 13590#       发表于 2022-8-16 10:49
+
+我看你们不要跳，两个月后我们哥哥卧薪尝胆上演王者归来夺冠，退役，直播，结婚一条龙好吧
+
+放风时间完毕  决赛日见
+
+反正我先缩壳了
+
+
+
+*****
+
+####  slaysleepslow  
+##### 13591#       发表于 2022-8-16 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085416&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-16 10:37</a>
+就是整个队已经打没脑子了啊，1想不到，2不知道，3没办法，4在73分钟才想起来，所有人只剩下一定要跟TS正 ...</blockquote>
+一号位小娜迦连兵线都考虑不到那不就是菜逼？什么肌肉什么现代，为啥不能直接说出ame的菜逼本质？
+
+*****
+
+####  tengshuo980  
+##### 13592#       发表于 2022-8-16 10:51
+
+决赛bo5属实是lgd的心魔了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 13593#       发表于 2022-8-16 10:51
+
+量子鞭被清算不很正常吗。
+
+23458哪怕赢一百次，只要决赛失败一次，就是拖掀背后腿。
+

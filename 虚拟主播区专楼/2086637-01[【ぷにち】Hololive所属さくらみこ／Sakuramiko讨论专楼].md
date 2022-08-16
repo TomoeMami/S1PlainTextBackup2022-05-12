@@ -1903,3 +1903,25 @@ rust来了
 
 吓尿了说过好几次了
 
+
+
+*****
+
+####  rs5621  
+##### 181#       发表于 2022-8-16 10:49
+
+原来以前也说过啊，昨天第一次听她说的时候真是笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 182#         楼主| 发表于 2022-8-16 10:53
+
+直播里屎尿屁都说过了
+
+很自由
+
+还说过***的话题虽然不是直接提
+
