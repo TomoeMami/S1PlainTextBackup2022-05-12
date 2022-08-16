@@ -2891,3 +2891,62 @@ fnc直邀了对东南亚队真是重大利好，smg虽然不基德，但换完�
 
 navi：老子真是草了
 
+
+
+*****
+
+####  12481632  
+##### 13802#       发表于 2022-8-16 16:12
+
+讲道理二次元major是处长为数不多不算躺的比赛了，含金量应该是比石油杯高一点的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 13803#       发表于 2022-8-16 16:12
+
+也别什么肌肉dota，现代dota了，配吗？ 小娜迦阵容破两路半对面还能出来打僵持不是多亏了手点幻象的某carry 玩个带盾混沌不走最前面就算了，毕竟要展示独一档的“切入”，可是你在团战要爆发的时候把跳刀放格子里几个意思？ 肌肉dota，你起码得有肌肉，有脑子没肌肉是啥dota，霍金dota吗？ 还是nga有意思霍金dota
+
+*****
+
+####  撒撒  
+##### 13804#       发表于 2022-8-16 16:12
+
+中国队伍能去东南亚打东南亚赛区预选吗？
+
+*****
+
+####  nowaki  
+##### 13805#       发表于 2022-8-16 16:13
+
+第三个dpc ts干了navi navi干了vp vp干了ts三队6-1望周知
+
+*****
+
+####  walfeds  
+##### 13806#       发表于 2022-8-16 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">不管了，我要看到外卡血流成河
+
+*****
+
+####  莉拉厨  
+##### 13807#       发表于 2022-8-16 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089809&amp;ptid=2084957" target="_blank">撒撒 发表于 2022-8-16 16:12</a>
+中国队伍能去东南亚打东南亚赛区预选吗？</blockquote>
+不行，要所有队员连基地搬去东南雅一年才算sea队
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 13808#       发表于 2022-8-16 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089182&amp;ptid=2084957" target="_blank">maju3 发表于 2022-8-16 15:16</a>
+
+一般用啥平台啊</blockquote>
+网易buff，用这个脚本看比例
+[https://greasyfork.org/zh-CN/scr ... -%E6%8F%92%E4%BB%B6](https://greasyfork.org/zh-CN/scripts/410137-%E7%BD%91%E6%98%93buff%E4%BB%B7%E6%A0%BC%E6%AF%94%E4%BE%8B-%E6%89%BE%E6%8C%82%E5%88%80-%E6%8F%92%E4%BB%B6)
+
