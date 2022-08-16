@@ -4901,3 +4901,30 @@ hyz这个洗  怎么感觉是黑啊 笑死</blockquote>
 我怀疑你在讲翻墙笑话，美国上yy说话不要加速器的吗？</blockquote>
 好像是不用，我跟英国留学的朋友打游戏就是的
 
+
+
+*****
+
+####  ArowRocher  
+##### 14018#       发表于 2022-8-17 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095632&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-16 23:51</a>
+https://www.reddit.com/r/DotA2/comments/wpown1/hoping_to_share_some_insights_about_chinese_teams/
+
+这 ...</blockquote>
+还挺细的
+
+*****
+
+####  Keynes  
+##### 14019#       发表于 2022-8-17 00:08
+
+#ana乳化#topson乳化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你气不气  
+##### 14020#       发表于 2022-8-17 00:11
+
+量子边跟国外队伍这么友好，跟无耻的队友呢？
+

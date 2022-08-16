@@ -1496,3 +1496,19 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么都方块毕业了，看到300冰块才兑换一个突破材料，我又继续刷冰块礼装好友了
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1629#       发表于 2022-8-17 00:04
+
+隔壁怎么已经开始算111组队了，没事吧<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1630#       发表于 2022-8-17 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“剑北轻松6加成只需要开下被动“   太经典了
+
