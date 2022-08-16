@@ -171,3 +171,76 @@ navi吐了
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13520#       发表于 2022-8-16 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083982&amp;ptid=2084957" target="_blank">遍体精淋af 发表于 2022-8-15 20:51</a>
+
+20年血抬cdec的那段时间可以去看看</blockquote>
+不是质疑他能力，再怎么黑他终究还是目前第一档的carry，单纯感觉回回专挑决赛日尿裤真的离谱，想看看是不是平时也尿了但是关注度没那么高
+
+这次第二把的被翻盘他小娜迦思路僵硬，第三把直接被bp爆了没什么好说的（雪碧拿毒狗克小娜迦是不是打aster已经选过一把了），第四把明显看得出有点急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 13521#         楼主| 发表于 2022-8-16 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084106&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-16 09:04</a>
+
+不是质疑他能力，再怎么黑他终究还是目前第一档的carry，单纯感觉回回专挑决赛日尿裤真的离谱，想看看是 ...</blockquote>
+你好像理解错血抬的意思了
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13522#       发表于 2022-8-16 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083887&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-15 20:41</a></blockquote>
+笑死 别的也挺离谱的 别人打团专门先找你小精灵打，还让小精灵去插眼
+
+*****
+
+####  北欧王座  
+##### 13523#       发表于 2022-8-16 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">森哥视频看少了
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13524#       发表于 2022-8-16 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084121&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 21:05</a>
+
+你好像理解错血抬的意思了</blockquote>
+是吗 其实那个cdec我唯一记得的就是说他们carry还不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 13525#         楼主| 发表于 2022-8-16 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084150&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-16 09:08</a>
+
+是吗 其实那个cdec我唯一记得的就是说他们carry还不错</blockquote>
+[https://space.bilibili.com/43336874/search/video?keyword=cdec](https://space.bilibili.com/43336874/search/video?keyword=cdec)
+
+学吧，学无止境
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 大弹涂鱼潜伏| + 1|点进去能成为ame真爱粉吗|
+
+查看全部评分
+

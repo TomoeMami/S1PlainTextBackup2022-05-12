@@ -733,3 +733,36 @@ ETA PRIME 这个移动硬盘盒有点帅。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  weare17k  
+##### 63#       发表于 2022-8-16 09:04
+
+绿x的256sd上周五到货，痛玩几天，除了体积大占背包空间以外，重量握持手感屏幕性能游玩等等各方面体验都非常满意，对于我这种pc和主机玩游戏玩不动的人来说可以说是完美机器了，也弥补了ns在游戏阵容和读盘速度上的缺陷，顺便把之前预订的loki和aokzoe都退了。现在看sd对我唯一的缺点就是即开即玩即关即停方面的响应速度比不了ns，但我感觉这方面sd应该会比其他的win掌机强一点吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  bypass  
+##### 64#         楼主| 发表于 2022-8-16 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083806&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-8-16 08:31</a>
+
+天猫销量满三千的话群内优惠800元差不多4699，天猫上买满三千销量是优惠六百差不多4899。
+
+目前天猫销量还 ...</blockquote>
+以前真没想过会有 4699 的 6800u，只能说今年的 PC 掌机市场是真的卷。
+
+*****
+
+####  bypass  
+##### 65#         楼主| 发表于 2022-8-16 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084111&amp;ptid=2086469" target="_blank">weare17k 发表于 2022-8-16 09:04</a>
+
+绿x的256sd上周五到货，痛玩几天，除了体积大占背包空间以外，重量握持手感屏幕性能游玩等等各方面体验都非 ...</blockquote>
+要是能支持休眠下载就更完美了，不知道理论上能不能实现这一点。
+

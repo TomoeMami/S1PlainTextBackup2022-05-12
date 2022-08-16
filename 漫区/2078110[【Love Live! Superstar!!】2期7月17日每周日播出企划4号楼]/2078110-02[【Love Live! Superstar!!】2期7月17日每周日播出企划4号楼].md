@@ -13664,3 +13664,25 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 我记得花田大师是有推的来着，就现在这情况他的推文下是不是很热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2820#       发表于 2022-8-16 09:09
+
+插一的cw曲很好听啊，为什么正片里的选曲都那么微妙
+
+
+
+*****
+
+####  仟音一心  
+##### 2821#       发表于 2022-8-16 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083615&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-16 07:57</a>
+5. 名無しライバーさん:2022/08/15(月) 13:47:00
+璃奈「すみれちゃん、ニジガク来ない？」
+璃奈「堇酱，来 ...</blockquote>
+去虹咲就要和ksks竞争被迫害役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
