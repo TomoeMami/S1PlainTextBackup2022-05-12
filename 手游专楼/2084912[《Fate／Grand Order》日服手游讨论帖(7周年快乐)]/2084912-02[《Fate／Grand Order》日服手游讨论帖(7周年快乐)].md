@@ -436,3 +436,64 @@ BB：你礼貌吗
 
 我的斋藤一只有二宝，先不凑热闹了，一会试试水阿荣吧，这个还有活动加成...
 
+
+
+*****
+
+####  angelooo  
+##### 1543#       发表于 2022-8-16 19:45
+
+<blockquote>Jamaisvu 发表于 2022-8-16 19:41
+我用的是二宝征姐妹，宝具的红蓝buff能滚雪球...不过伤害和回收都不行，需要衣服补10NP、第三面补刀...
+
+ ...</blockquote>
+那我一宝二征还是洗洗睡了……
+
+*****
+
+####  alucardcz  
+##### 1544#       发表于 2022-8-16 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶配水伊吹还是能冲啊 失望    这次王姐是不是寄了？
+
+*****
+
+####  sosgame67  
+##### 1545#       发表于 2022-8-16 19:48
+
+最简单就是换人剑北斋，不过隔壁这时候仿佛都只会吹大公了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1546#       发表于 2022-8-16 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092497&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-16 19:48</a>
+
+最简单就是换人剑北斋，不过隔壁这时候仿佛都只会吹大公了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑北斋是送的 大概隔壁看不上吧
+
+*****
+
+####  angelooo  
+##### 1547#       发表于 2022-8-16 19:51
+
+<blockquote>sosgame67 发表于 2022-8-16 19:48
+最简单就是换人剑北斋，不过隔壁这时候仿佛都只会吹大公了</blockquote>
+大公的爽文剧本还能吹好几年
+
+可我没有大公啊，那没事了23333
+
+*****
+
+####  exiaexa  
+##### 1548#       发表于 2022-8-16 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092491&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:48</a>
+
+顶配水伊吹还是能冲啊 失望    这次王姐是不是寄了？</blockquote>
+王姐看情况，满宝闭着眼睛打，甚至多了40np没地儿扔
+
+低宝自求多福
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -3844,3 +3844,38 @@ fade回vg，皮鞋转5了好像
 
 VG没钱了，只能随便应付下，阿绿已经不想做了，再过几年国内俱乐部一只手都能数的过来了吧
 
+
+
+*****
+
+####  ffggty  
+##### 13909#       发表于 2022-8-16 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092356&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-16 19:37</a>
+假腿臂甲一起切是可以咋设置
+
+一个热键还能对应2个格子的？</blockquote>
+快捷键设成挨着，按俩键中间
+
+*****
+
+####  哈萨维·诺亚  
+##### 13910#       发表于 2022-8-16 19:50
+
+不只是没钱吧 也没啥希望了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 13911#       发表于 2022-8-16 19:50
+
+<img src="https://img.saraba1st.com/forum/202208/16/195035cwow2sg3spzqlg7u.png" referrerpolicy="no-referrer">
+
+<strong>unknown.png</strong> (19.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 19:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
+
