@@ -13997,3 +13997,40 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 什么吸血论？细说</blockquote>
 主吧首页就有好几个，本质恶臭钓鱼，激起两边大战
 
+
+
+*****
+
+####  老1.5  
+##### 2848#       发表于 2022-8-16 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088821&amp;ptid=2078110" target="_blank">TRIScRE 发表于 2022-8-16 14:48</a>
+
+主吧首页就有好几个，本质恶臭钓鱼，激起两边大战</blockquote>
+就这啊，我还以为什么事，吵架的人有几个心里能明白自己在干啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再逆天的事儿都能说出来。
+
+*****
+
+####  aoaoaodedede  
+##### 2849#       发表于 2022-8-16 14:56
+
+现在除了动画以外的杂志书籍之类的媒介，说句不好听的，很多都是给动画打补丁的，要这些传播能力可能相对小众的媒介起到扭转观感的作用那几乎不可能
+
+*****
+
+####  Gooddays  
+##### 2850#       发表于 2022-8-16 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57082570&amp;ptid=2078110" target="_blank">月夜凝雪 发表于 2022-8-16 00:22</a>
+去数数第一部和第二部的主角团人数</blockquote>
+如果这话是花田说或水团说便可以用你的理论，但星团的人有谁记着这两团（先假设这两团在同一世界）？更不要说可可更在乎那二人组合吧。
+
+
+
+*****
+
+####  优妮可  
+##### 2851#       发表于 2022-8-16 14:58
+
+帖子处理了。吵上头被钓就这样
+

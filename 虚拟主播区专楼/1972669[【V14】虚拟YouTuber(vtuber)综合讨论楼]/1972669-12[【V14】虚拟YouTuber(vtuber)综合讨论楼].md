@@ -5278,3 +5278,16 @@ ui
 hnn小号推都那么说了，有些人该消停会了吧，自己个人的两周年和生日怎么可能出图灵爱 ...</blockquote>
 直接老鼠台“开骂”，看来最近真的把她惹烦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 16985#       发表于 2022-8-16 14:58
+
+[https://youtu.be/k1xPqYugip8](https://youtu.be/k1xPqYugip8)
+
+【黛灰/葛葉】生意気な後輩と面倒くさい先輩の思い出【にじさんじ甲子園】
+
+有人剪了个100min的二人从出道开始的回顾向视频，真不知道该说长还是短
+
