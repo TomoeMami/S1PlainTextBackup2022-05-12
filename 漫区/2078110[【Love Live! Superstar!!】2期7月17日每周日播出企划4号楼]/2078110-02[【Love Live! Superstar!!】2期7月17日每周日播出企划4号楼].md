@@ -14292,3 +14292,87 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 自己造的孽，还开蛋？可惜几个姑娘们
 
+
+
+*****
+
+####  kata魂  
+##### 2875#       发表于 2022-8-16 21:54
+
+说明以后进步空间相当大了，未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 2876#       发表于 2022-8-16 21:54
+
+令人感叹
+
+*****
+
+####  aoaoaodedede  
+##### 2877#       发表于 2022-8-16 21:54
+
+这评分，既有点意外，但想了想反正现在也不需要对这个企划有太多同情，我一直觉得国内的粉丝骂得再厉害，企划方也不见得会多看看你，什么时候日本粉丝不满了，那或许才可能是个事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 2878#       发表于 2022-8-16 21:57
+
+但问题是
+
+这是NICO评分就是日本粉丝评的吧
+
+*****
+
+####  愛さ実  
+##### 2879#       发表于 2022-8-16 21:58
+
+破纪录了吧？官方会稍微有点反思吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 2880#       发表于 2022-8-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094166&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-16 21:54</a>
+这评分，既有点意外，但想了想反正现在也不需要对这个企划有太多同情，我一直觉得国内的粉丝骂得再厉害，企 ...</blockquote>
+我发现自己对于llsp这个企划真的看法变的好大，一年前这个情况我可能会难过，但现在我居然发自内心的开心
+
+
+
+*****
+
+####  寒风夜  
+##### 2881#       发表于 2022-8-16 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094203&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-16 21:58</a>
+
+破纪录了吧？官方会稍微有点反思吗
+
+—— 来自 S1Fun</blockquote>
+能赚米就笑嬉了，反思....
+
+*****
+
+####  寒风夜  
+##### 2882#       发表于 2022-8-16 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094203&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-16 21:58</a>
+
+破纪录了吧？官方会稍微有点反思吗
+
+—— 来自 S1Fun</blockquote>
+
+*****
+
+####  愛さ実  
+##### 2883#       发表于 2022-8-16 22:01
+
+前面说内网看不清的，看得清的已经不想讨论这烂作了，毫无意义
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

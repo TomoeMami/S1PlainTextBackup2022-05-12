@@ -4295,3 +4295,43 @@ TB不是对线打VIPER的么
 
 娜迦打主猪的兽王好打，但是崩溃哥直接主斧头不升猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iriyano  
+##### 13954#       发表于 2022-8-16 21:54
+
+哇，公主怎么一天到晚下乡啊，我要变成管人痴了
+
+哦，猪猪侦探不是皮套人，关注猪猪侦探，关注猪猪侦探谢谢喵
+
+*****
+
+####  蛭人  
+##### 13955#       发表于 2022-8-16 21:56
+
+韩国车怒其不争 点名王蠢鱼 https://b23.tv/2ebf3k1
+
+*****
+
+####  反方向的波  
+##### 13956#       发表于 2022-8-16 21:57
+
+皮套人和侦探能让我无端联想到doto的只有医者watson
+
+*****
+
+####  为了mf注册  
+##### 13957#       发表于 2022-8-16 22:01
+
+<img src="https://img.saraba1st.com/forum/202208/16/220047fzgt9n7sigo2tk7i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 22:00 上传
+
+妹妹下场为自己哥哥助阵了，可是我听说她之前看比赛，看到处长快输了直接下播缩鳖壳了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

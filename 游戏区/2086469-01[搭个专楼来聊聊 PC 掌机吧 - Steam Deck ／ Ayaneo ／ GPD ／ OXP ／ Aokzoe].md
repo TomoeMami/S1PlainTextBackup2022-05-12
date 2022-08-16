@@ -795,3 +795,56 @@ ETA PRIME 这个移动硬盘盒有点帅。
 
 6800u能不能让3a游戏在720p30fps稳定运行？如果可以的话我也想下手买了。。。
 
+
+
+*****
+
+####  时空之旅  
+##### 69#       发表于 2022-8-16 21:51
+
+<blockquote>紫煜 发表于 2022-8-16 08:31
+天猫销量满三千的话群内优惠800元差不多4699，天猫上买满三千销量是优惠六百差不多4899。
+
+目前天猫销量还 ...</blockquote>
+没看懂，啥叫销量满3千群内优惠800元，买满3千销量优惠600，这2个有啥区别。。。
+
+*****
+
+####  医生狼多  
+##### 70#       发表于 2022-8-16 21:52
+
+ 本帖最后由 医生狼多 于 2022-8-16 21:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094078&amp;ptid=2086469" target="_blank">时空之旅 发表于 2022-8-16 21:48</a>
+6800u能不能让3a游戏在720p30fps稳定运行？如果可以的话我也想下手买了。。。</blockquote>
+开放世界800p低画质基本稳30，其他特效再调低可以45-60(大表哥2077老头环之类)
+bf5啥的可以高画质50+帧数
+具体可以看下这里的视频
+【AOKZOE掌机的个人空间-哔哩哔哩】 https://b23.tv/xNn4UgY
+
+*****
+
+####  医生狼多  
+##### 71#       发表于 2022-8-16 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094124&amp;ptid=2086469" target="_blank">时空之旅 发表于 2022-8-16 21:51</a>
+没看懂，啥叫销量满3千群内优惠800元，买满3千销量优惠600，这2个有啥区别。。。 ...</blockquote>
+进群预订多200优惠
+现在没了
+
+*****
+
+####  那由  
+##### 72#       发表于 2022-8-16 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090473&amp;ptid=2086469" target="_blank">savagealexander 发表于 2022-8-16 16:57</a>
+
+一路看下来，所以想在掌机上玩PS3的VF5，exvsFB依然没有希望是吗？</blockquote>
+5560的ayaneoair都能跑exvsfb
+
+*****
+
+####  时空之旅  
+##### 73#       发表于 2022-8-16 21:59
+
+挺想掌上玩魂，虽然电脑上有，但是一直没玩，而且配置比较低玩起来也不太理想
+
