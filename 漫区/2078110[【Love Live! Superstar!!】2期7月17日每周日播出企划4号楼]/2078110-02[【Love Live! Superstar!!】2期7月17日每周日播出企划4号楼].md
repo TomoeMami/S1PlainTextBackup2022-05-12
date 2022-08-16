@@ -14034,3 +14034,25 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 帖子处理了。吵上头被钓就这样
 
+
+
+*****
+
+####  JustW_3  
+##### 2852#       发表于 2022-8-16 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088971&amp;ptid=2078110" target="_blank">Gooddays 发表于 2022-8-16 14:58</a>
+如果这话是花田说或水团说便可以用你的理论，但星团的人有谁记着这两团（先假设这两团在同一世界）？更不 ...</blockquote>
+可以理解成打破第四面墙的玩梗，本身问题不大，只是哪壶不开提哪壶。如果大家一开始就知道是九人，那么看到这个梗也不会感觉有问题。编剧还是没能体会观众心情，或者自以为借角色之口就能让观众开心接受。
+
+*****
+
+####  月夜凝雪  
+##### 2853#       发表于 2022-8-16 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088971&amp;ptid=2078110" target="_blank">Gooddays 发表于 2022-8-16 14:58</a>
+如果这话是花田说或水团说便可以用你的理论，但星团的人有谁记着这两团（先假设这两团在同一世界）？更不 ...</blockquote>
+就是一个官梗嘛，系列作品经常出现的东西
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

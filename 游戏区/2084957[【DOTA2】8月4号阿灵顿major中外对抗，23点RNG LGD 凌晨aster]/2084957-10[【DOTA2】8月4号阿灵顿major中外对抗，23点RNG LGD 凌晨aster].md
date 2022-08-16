@@ -2538,3 +2538,64 @@ hyz这复盘G2就是处刑bian是吧
 
 治水还是得靠大煜
 
+
+
+*****
+
+####  IG.430  
+##### 13766#       发表于 2022-8-16 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088746&amp;ptid=2084957" target="_blank">tengshuo980 发表于 2022-8-16 14:42</a>
+今年v社摆的也太离谱了
+
+—— 来自 S1Fun</blockquote>
+对不起小伙伴们，后面忘了，总之就是产能不足
+
+*****
+
+####  Keynes  
+##### 13767#       发表于 2022-8-16 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088669&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-16 14:35</a>
+ 妈的，看这段话感觉这周又没更新了，本子尼玛什么时候出呀，亏我6月就倒了余额，现在还没用上 ...</blockquote>
+咋倒的，带带
+
+*****
+
+####  格雷殿下  
+##### 13768#       发表于 2022-8-16 15:06
+
+<blockquote>杜文乐超神归来 发表于 2022-8-16 14:47
+hyz这复盘G2就是处刑bian是吧</blockquote>
+干嘛，三号位针对三号位怎么了。😄
+
+*****
+
+####  外挂全家脚气  
+##### 13769#       发表于 2022-8-16 15:07
+
+啥意思，确定FNATIC而不是VP进了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 13770#       发表于 2022-8-16 15:07
+
+倒csgo的安特卫普胶囊就行，前几天7折左右
+
+
+
+*****
+
+####  nightmare902015  
+##### 13771#       发表于 2022-8-16 15:11
+
+你让hyz这种人点评一四五他看得懂吗，他现在理解还算可以的也就二三，还有职业打出来的大局观
+
+*****
+
+####  外挂全家脚气  
+##### 13772#       发表于 2022-8-16 15:12
+
+IG至少证明了自己有不会怎么崩的大心脏，在这个3号位版本JT应该还是能有所发挥，剩下的就是期望FY的加入能起点好的化学反应吧
+
