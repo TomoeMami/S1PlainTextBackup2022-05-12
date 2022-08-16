@@ -246,3 +246,149 @@ BB：你礼貌吗
 
 礼装满破了的话哈吉咩酱不需要绑衣服，第一面礼装50+被动10+C呆2技能40=100，然后他每次能回80，C呆1技能2T3T各开一遍就是
 
+
+
+*****
+
+####  yangun22  
+##### 1524#       发表于 2022-8-16 19:24
+
+试了下水梅芙也可以3连，但是第三面火力不够
+
+*****
+
+####  alucardcz  
+##### 1525#       发表于 2022-8-16 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092146&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-16 19:21</a>
+
+礼装满破了的话哈吉咩酱不需要绑衣服，第一面礼装50+被动10+C呆2技能40=100，然后他每次能回80，C呆1技能2T ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没开被动 这就去开
+
+*****
+
+####  qixinno2  
+##### 1526#       发表于 2022-8-16 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了 我没有哈吉咩
+
+*****
+
+####  alucardcz  
+##### 1527#       发表于 2022-8-16 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092197&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:25</a>
+
+问题来了 我没有哈吉咩</blockquote>
+什么池里的 我tmd为什么5宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1528#       发表于 2022-8-16 19:27
+
+我阿一没满宝是不是寄了233
+
+*****
+
+####  exiaexa  
+##### 1529#       发表于 2022-8-16 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092210&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:26</a>
+
+什么池里的 我tmd为什么5宝</blockquote>
+枪龙马池子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1530#       发表于 2022-8-16 19:27
+
+ 本帖最后由 qixinno2 于 2022-8-16 19:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092210&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:26</a>
+
+什么池里的 我tmd为什么5宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我记得是卑弥呼 好像还有狂娜复刻
+
+
+
+*****
+
+####  alucardcz  
+##### 1531#       发表于 2022-8-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092219&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 19:27</a>
+
+枪龙马池子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有枪龙马
+
+*****
+
+####  alucardcz  
+##### 1532#       发表于 2022-8-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092223&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 19:27</a>
+
+我记得是卑弥呼 好像还有狂娜复刻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然也没有卑弥呼
+
+*****
+
+####  exiaexa  
+##### 1533#       发表于 2022-8-16 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092232&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:28</a>
+
+没有枪龙马</blockquote>
+记错了，就是卑弥呼不过
+
+你也有可能是白情池子捞狂娜的时候搞出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1534#       发表于 2022-8-16 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092242&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 19:29</a>
+
+记错了，就是卑弥呼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑弥呼当然也是没有的 怎么肥丝
+
+*****
+
+####  qixinno2  
+##### 1535#       发表于 2022-8-16 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092252&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 19:29</a>
+
+卑弥呼当然也是没有的 怎么肥丝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有卑弥呼没有哈吉咩
+
+*****
+
+####  kiralzb  
+##### 1536#       发表于 2022-8-16 19:31
+
+剑阿荣有机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1537#       发表于 2022-8-16 19:31
+
+<blockquote>alucardcz 发表于 2022-8-16 19:29
+卑弥呼当然也是没有的 怎么肥丝</blockquote>
+那一定是白情狂那了，吗的，突然想起来那个池子我扔了点石头就听了个响，什么都没出OTZ
+
+*****
+
+####  alucardcz  
+##### 1538#       发表于 2022-8-16 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092276&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 19:31</a>
+
+那一定是白情狂那了，吗的，突然想起来那个池子我扔了点石头就听了个响，什么都没出OTZ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个可能性就高很多了（
+

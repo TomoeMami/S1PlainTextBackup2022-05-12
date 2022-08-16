@@ -3796,3 +3796,19 @@ TMD，刀塔怎么成了这个样子
 
 打不好凭什么不喷？
 
+
+
+*****
+
+####  名字不乱取  
+##### 13903#       发表于 2022-8-16 19:26
+
+看ame的操作已经是一种享受了，我甚至在想等他退役了，下一代又有谁能挑起大梁能给我来一场华丽的表演<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13904#       发表于 2022-8-16 19:30
+
+克神dota best dota
+
