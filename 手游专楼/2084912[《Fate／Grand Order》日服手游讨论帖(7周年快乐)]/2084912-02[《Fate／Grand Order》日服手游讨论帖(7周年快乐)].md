@@ -1132,3 +1132,71 @@ C呆还差138,779到12绊</blockquote>
 有没有内种，6加成的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有 5宝狂娜已经有人试了 可以
 
+
+
+*****
+
+####  qixinno2  
+##### 1603#       发表于 2022-8-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 21:12</a>
+
+看了眼 没记错 大佬太强了居然14了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我杀狐奥伯龙9绊 王姐刚8 只能说蓝卡无脑冲习惯了懒得换
+
+*****
+
+####  Jamaisvu  
+##### 1604#       发表于 2022-8-16 21:27
+
+又找到了一个最xia优xia解ce<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202208/16/211913rriplo69o06pmork.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_211836_com.excean.gspace.jpg</strong> (533.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:19 上传
+
+自家的C呆带上羁绊礼装，全体NP率+10、攻击+10。
+
+征姐妹一面开一二技能，双C呆给二三技能，打完回收60NP。
+
+二面征姐妹开三技能（有20NP率），一个C呆开一技能，打完回收70NP。
+
+三面开剩下的技能，稳定打100W。衣服完全不用管。
+
+虽然要舍弃些加成，不过用的蛮舒心的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+（我是真的很想用征姐妹啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  不垃圾屌丝  
+##### 1605#       发表于 2022-8-16 21:28
+
+羡慕已经满破礼装的大佬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 1606#       发表于 2022-8-16 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093732&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-16 21:19</a>
+
+有没有内种，6加成的</blockquote>
+还真有
+
+狂那和王姐刷牌
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是最稳定的是手办娘，双C呆奥伯龙
+
+5宝稳定100w
+
+没想到吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

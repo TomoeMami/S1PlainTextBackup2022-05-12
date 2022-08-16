@@ -4219,3 +4219,31 @@ VG看不出来有竞争力，坐等超哥全杀了<img src="https://static.sarab
 
 真的假的
 
+
+
+*****
+
+####  joker9527  
+##### 13948#       发表于 2022-8-16 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093641&amp;ptid=2084957" target="_blank">hcf220 发表于 2022-8-16 21:12</a>
+
+当时他来时，刚换走897，vtfaded的时候他就打的不错了。虽说是船长人柱力，但那船长打得是真的挺不错。
+
+ ...</blockquote>
+客观点来讲，ame到关键局（他越是关键局越喜欢当小丑）不如一个心理素质够硬的2000分选手，我是2000分选手，站在ti8的g4，虚心请教4个队友出装，然后平A过去，甚至给队友共享一下英雄，也赢下了
+
+*****
+
+####  六娃  
+##### 13949#       发表于 2022-8-16 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093712&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-16 21:18</a>
+
+哎哟，我看了杰出的分析，我有点头晕了
+
+1 tb对线好打谜团</blockquote>
+谜团吊打上面两个无疑问
+
+但1V1娜迦确实很好打兽王的，只是这把有个宙斯配合清幻象，collapse直接小猪屯野把畜长补爆
+
