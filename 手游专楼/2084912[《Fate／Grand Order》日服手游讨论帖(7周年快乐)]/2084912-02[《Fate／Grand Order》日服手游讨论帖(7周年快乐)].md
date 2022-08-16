@@ -392,3 +392,47 @@ BB：你礼貌吗
 那一定是白情狂那了，吗的，突然想起来那个池子我扔了点石头就听了个响，什么都没出OTZ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个可能性就高很多了（
 
+
+
+*****
+
+####  alucardcz  
+##### 1539#       发表于 2022-8-16 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092274&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-16 19:31</a>
+
+剑阿荣有机会吗</blockquote>
+可以 换人5加成
+
+*****
+
+####  qixinno2  
+##### 1540#       发表于 2022-8-16 19:33
+
+好像换人剑北斋也可以
+
+*****
+
+####  katun  
+##### 1541#       发表于 2022-8-16 19:37
+
+玛德，有史以来第一次被没点满技能的C呆坑了，现在这UI的非好友真的好容易看错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1542#       发表于 2022-8-16 19:41
+
+<img src="https://img.saraba1st.com/forum/202208/16/193856t1qjqqoh1rq7wdrk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_193738_com.excean.gspace.jpg</strong> (322.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-16 19:38 上传
+
+我用的是二宝征姐妹，宝具的红蓝buff能滚雪球...不过伤害和回收都不行，需要衣服补10NP、第三面补刀...
+
+我的斋藤一只有二宝，先不凑热闹了，一会试试水阿荣吧，这个还有活动加成...
+
