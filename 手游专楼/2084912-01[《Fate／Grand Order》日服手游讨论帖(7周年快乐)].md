@@ -15528,3 +15528,47 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁怎么还是那么欢乐.....这几天对云玩家冲击这么大吗
 
+
+
+*****
+
+####  qixinno2  
+##### 1459#       发表于 2022-8-16 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088105&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 13:47</a>
+
+做为本楼欧皇的你 34个石头够5宝了啊?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今一个三宝五星没有的我算个屁欧皇
+
+*****
+
+####  qixinno2  
+##### 1460#       发表于 2022-8-16 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088177&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 13:53</a>
+
+给你又不能出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让萌新帮你代抽 十连三宝 二十连满宝
+
+*****
+
+####  exiaexa  
+##### 1461#       发表于 2022-8-16 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088437&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 14:14</a>
+让萌新帮你代抽 十连三宝 二十连满宝</blockquote>
+反正都是做梦我自己上不香？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 1462#       发表于 2022-8-16 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088451&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 14:15</a>
+
+反正都是做梦我自己上不香？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议使用玄学 换个时间或者抽友情池洗池子来给自己点心里安慰
+

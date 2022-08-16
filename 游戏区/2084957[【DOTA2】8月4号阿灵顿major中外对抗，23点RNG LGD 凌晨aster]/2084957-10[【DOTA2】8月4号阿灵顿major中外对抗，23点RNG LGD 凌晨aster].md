@@ -2328,3 +2328,64 @@ major亚军季军殿军也都没夺过冠，看来今天是帕皮酱的盾了</b
 
 弱智发言配上ac娘哪个弱智表情，只能说相得益彰
 
+
+
+*****
+
+####  walfeds  
+##### 13744#       发表于 2022-8-16 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能说少看太监论坛，会变傻逼
+
+刚看了一贴脑子就快融化了
+
+*****
+
+####  CNFH1984  
+##### 13745#       发表于 2022-8-16 14:11
+
+反正要贷款不如贷个大的，我看好EH超进化，00后天才少年shiro拳打飞飞脚踢ame，面对神中神关羽拔出自己的剑，最终举盾成功<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 13746#       发表于 2022-8-16 14:14
+
+原来你们这么爱看nga啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+反转了，我也爱看，要不是号被允峯，我也想反串一波集美呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 13747#       发表于 2022-8-16 14:14
+
+ehome三号位病得不轻，如果ti版本不大改还是三号位是爹的版本ehome大概率连预选都出不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 13748#       发表于 2022-8-16 14:17
+
+rng得冠好像是皮鞋经典造谣，rng今天下午就到上海了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 13749#       发表于 2022-8-16 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我还是相信森哥，至少先进一个外卡吧ig
+
+*****
+
+####  沈淮  
+##### 13750#         楼主| 发表于 2022-8-16 14:20
+
+希望森哥把撸狗给我关在国内
+
+*****
+
+####  12481632  
+##### 13751#       发表于 2022-8-16 14:22
+
+又开始搬屎环节了，疲惫<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

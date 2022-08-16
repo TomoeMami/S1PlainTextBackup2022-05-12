@@ -13929,3 +13929,36 @@ Nagi回归的时间有说是什么时候吗？
 
 虽然有没有还不知道
 
+
+
+*****
+
+####  Kfly  
+##### 2842#       发表于 2022-8-16 14:11
+
+ 本帖最后由 Kfly 于 2022-8-16 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088330&amp;ptid=2078110" target="_blank">JY要塞 发表于 2022-8-16 14:06</a>
+还是那句话，你觉得恋还行是因为还没轮到她的剧情
+
+虽然有没有还不知道 ...</blockquote>
+别真是塑造越多就越烂吧（按现在这情况，似乎还真要成为星团动画的某种定律了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  TRIScRE  
+##### 2843#       发表于 2022-8-16 14:12
+
+最近各种吸血论也大量引进了，最早从哪流传出来的，足球那边倒是挺多的
+
+*****
+
+####  星降る森  
+##### 2844#       发表于 2022-8-16 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083469&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-8-16 07:21</a>
+
+https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看 ...</blockquote>
+不管这台词怎么理解，这两人目前的角色互动都是极度单一的，再怎么婉转翻译也没法掩盖播出5话以来都缺乏拌嘴以外有效互动的事实。和看到什么都会缩的香音，叽叽喳喳后只会对对对的希柰子问题差不多，形象单一而片面。
+
+这感觉就和以前给我看绯弹越看越反感亚里亚差不多
+
