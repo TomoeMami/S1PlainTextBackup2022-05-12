@@ -5125,3 +5125,28 @@ a畜心态有问题的话，早退役了<img src="https://static.saraba1st.com/i
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  -SLSL-  
+##### 14039#       发表于 2022-8-17 07:23
+
+t1要打预选吗，该不会直接淹死吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14040#       发表于 2022-8-17 07:29
+
+t1分不够，当然要打预选。
+
+
+
+*****
+
+####  CNFH1984  
+##### 14041#       发表于 2022-8-17 07:29
+
+嘻嘻ame的心态，那不就是人家都在团队决策和猛汉王的时候装死吗，杀鳖少年终于还是变成了鳖，令人感叹！
+
