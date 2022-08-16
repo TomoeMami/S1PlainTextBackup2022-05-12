@@ -457,3 +457,34 @@ ti10c位表现就最夸张的就是丫头肉，老东京和崩溃都是负责给
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  何然  
+##### 13548#       发表于 2022-8-16 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084492&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-16 09:36</a>
+
+他天梯录像我每个版本想玩一的时候都会看看。
+
+就像路人二号位我经常看cty录像。路人习气很重，正好。 ...</blockquote>
+是啊，操作简单热键少，思路也很简单清晰
+
+不像什么ana之流看都看不懂
+
+*****
+
+####  百世诸侯  
+##### 13549#       发表于 2022-8-16 09:46
+
+<img src="https://img.saraba1st.com/forum/202208/16/094551er79gazgaekev2c8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 09:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猴爹每晚睡不着的时候就应该看看当初自己火枪单杀畜长敌法的切片治疗精神内耗
+
