@@ -21,3 +21,23 @@
 伊吹这灵衣为啥不用CG做卡图，我不能接受</blockquote>
 因为是简易灵衣，卡面只能改改立绘...剧情CG那张确实看着舒服...太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1503#       发表于 2022-8-16 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个90++一出 隔壁又炸了 完了 今天晚上又要交代了吗
+
+*****
+
+####  exiaexa  
+##### 1504#       发表于 2022-8-16 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091560&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 18:33</a>
+
+这个90++一出 隔壁又炸了 完了 今天晚上又要交代了吗</blockquote>
+乐麻了，乐子人大胜利
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

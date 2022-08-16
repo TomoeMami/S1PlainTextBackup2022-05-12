@@ -3597,3 +3597,78 @@ fnc都直邀了东南亚鱼塘不是随便出线，topson去年好歹也是称�
 看预选名单，dec全队去了ybb，欧文切假腿切到了mgm，mgm的tzy转到了lbzs，mgm换了igv的5
 ybb买了dec的名额<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 13881#       发表于 2022-8-16 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 13882#       发表于 2022-8-16 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刀塔受众群体到现在至少换了两茬了，不知道很正常
+
+现在在隔壁还时不时看见老核弹粉空降，上来一句“请问B神怎么了”然后被集美一个鳖孙帽子贴头上然后疯狂羞辱，跟杀猪一样
+
+*****
+
+####  遍体精淋af  
+##### 13883#       发表于 2022-8-16 18:33
+
+xg老板还挺有钱的，之前一直传闻他要放弃二队，结果一直续了这么久
+
+*****
+
+####  walfeds  
+##### 13884#       发表于 2022-8-16 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 13885#       发表于 2022-8-16 18:34
+
+杰出：铁亚军打法！
+
+*****
+
+####  kyl2001  
+##### 13886#       发表于 2022-8-16 18:37
+
+新人绝对有的，不过引流来的还是双修集美居多
+
+*****
+
+####  六娃  
+##### 13887#       发表于 2022-8-16 18:39
+
+ 本帖最后由 六娃 于 2022-8-16 18:42 编辑 
+
+老核弹粉就算几年没关注dota，游戏理解都比引流撸狗集美强
+当时和我一起连麦看比赛的某鳖孙，20多分钟的时候就发问：这naga怎么不带线。属于是刻进dna里的记忆了
+G4的时候他还问，这不是A队经典精灵混沌，飞后排或者换家都随便打啊。我反问：你看上一塔那波团之后精灵有主动连过这傻卵CK吗
+
+*****
+
+####  Aeons  
+##### 13888#       发表于 2022-8-16 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">听说现场有人提示雪碧lgd开雾或者偷盾，感觉是非常赢之不武.jpg
+
+*****
+
+####  adretyu67  
+##### 13889#       发表于 2022-8-16 18:41
+
+什么弱智，线下赛不早就上隔音棚+强制耳机不让摘了。
+
+还真以为观众报点有用？
+
