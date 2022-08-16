@@ -13548,3 +13548,41 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 或者。制作组真的有病。。
 
+
+
+*****
+
+####  ads147147  
+##### 2810#       发表于 2022-8-16 07:57
+
+5. 名無しライバーさん:2022/08/15(月) 13:47:00
+璃奈「すみれちゃん、ニジガク来ない？」
+璃奈「堇酱，来不来虹咲？」
+
+6. 名無しライバーさん:2022/08/15(月) 13:48:33
+※5
+すみれ「すみれちゃんじゃなくてすみれ先輩よ！！」
+※5
+堇「不是堇酱，是堇前辈！！」
+
+译文来源：唧喳喳翻译网
+
+译文链接：https://www.jizhazha.com/jv2058
+
+转发唧喳喳网译文请注明出处和译文链接，未经允许禁止复制内容转载至任何网站或公共平台。
+
+笑了w，什么金发猎人果断出击，不过璃奈应该会叫前辈吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 2811#       发表于 2022-8-16 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083469&amp;ptid=2078110" target="_blank">ces轴承仨 发表于 2022-8-16 07:21</a>
+https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假的。真的话。后面我还会每一集都看 ...</blockquote>
+我个人的意见是，不管这个词是什么意思，卖萌还是80，这整句话就不应该是可可能说出口的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

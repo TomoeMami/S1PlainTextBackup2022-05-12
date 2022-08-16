@@ -13645,3 +13645,35 @@ ti本子和新改动赶紧抬出来啊<img src="https://static.saraba1st.com/ima
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  杜文乐超神归来  
+##### 13499#       发表于 2022-8-16 07:53
+
+ 本帖最后由 杜文乐超神归来 于 2022-8-16 07:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083361&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-16 06:02</a>
+
+昨天晚上又看了各大主播的复盘，看了好几遍回放
+
+只能说第二盘lgd五个人脑子里哪怕有一个人想到能带 ...</blockquote><blockquote>从TI8看到现在，AME在决赛中经常有大跌眼镜的表现。并不是AME喜欢整活，而是他觉得按常规套路，已经没什么赢面了。
+
+当AME觉得按常规打法赢不了的时候，他就会兵行险着，做出反常规的打法和出装。</blockquote>
+集美早有洗的思路了啊。
+
+3打5是三个队友送局势在前，大厦将倾，我哥哥尝试力挽狂澜。无奈独木难支，被迫送出两路。
+
+Ame注定是一个棋走险着的刺客，他不是在绝境中逆天改命，就是在失败后被反攻倒算。
+
+他宁可冒着犯错给黑子送视频素材的风险，也不愿意什么都不做。或许这就是西恩第一C（现役）的风骨和担当
+
+*****
+
+####  沈淮  
+##### 13500#         楼主| 发表于 2022-8-16 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083571&amp;ptid=2084957" target="_blank">帽子戏法马夏尔 发表于 2022-8-16 07:48</a>
+看到楼里说vpgame，我记得ti6之前啥时候来着，那时候突然爆出ruru告了当时vpgame的合伙人，名字忘了，然后 ...</blockquote>
+是有这事
+
