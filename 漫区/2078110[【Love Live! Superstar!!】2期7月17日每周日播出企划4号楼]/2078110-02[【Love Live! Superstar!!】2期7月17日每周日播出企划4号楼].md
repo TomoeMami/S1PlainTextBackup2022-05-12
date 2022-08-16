@@ -14243,3 +14243,15 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 嚯，下手够狠
 
+
+
+*****
+
+####  lj205  
+##### 2870#       发表于 2022-8-16 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093744&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-16 21:21</a>
+
+是说内网S1 贴吧的网友</blockquote>
+毕竟现在女儿都给官方弄成这样，自己都顾不过来，哪有空顾别人？其实谁愿意这样？谁都不愿意这样。但现在就是内网一播完先车可可几天，你觉得可推就好受吗？那精力不就是也放在去沟通去交流，其他角色想讨论啊，某些个人听吗？
+

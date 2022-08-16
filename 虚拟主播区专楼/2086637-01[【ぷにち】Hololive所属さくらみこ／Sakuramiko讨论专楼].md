@@ -2213,3 +2213,16 @@ live的ED还特地拍了花絮，是为了拍花絮而拍花絮吧
 
 你像上上周直播说上周要公开那些要做的观众参与型企划的调查问卷 结果上周过了到今天周二了还什么都没发，这再等这周才发然后留一周时间再回收再审查再直播发表，8月早过了
 
+
+
+*****
+
+####  holoan  
+##### 211#         楼主| 发表于 2022-8-16 21:36
+
+[https://abema.tv/channels/anime-live/slots/8ck6Hhs5TPHJa3](https://abema.tv/channels/anime-live/slots/8ck6Hhs5TPHJa3)
+
+12:20~
+
+石川撒……
+

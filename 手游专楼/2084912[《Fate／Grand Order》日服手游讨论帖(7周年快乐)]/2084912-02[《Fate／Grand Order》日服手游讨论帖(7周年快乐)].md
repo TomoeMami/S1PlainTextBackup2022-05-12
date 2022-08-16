@@ -1200,3 +1200,15 @@ C呆还差138,779到12绊</blockquote>
 没想到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1607#       发表于 2022-8-16 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093729&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 21:19</a>
+
+你操作不对 满破礼装2宝就可以 不换人3t  隔壁都试了</blockquote>
+谢谢提醒，搜了一下好像用的是2004断片那身衣服，三技能NP率、一技能宝威，确实挺适合的。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

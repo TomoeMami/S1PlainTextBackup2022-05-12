@@ -4247,3 +4247,30 @@ VG看不出来有竞争力，坐等超哥全杀了<img src="https://static.sarab
 
 但1V1娜迦确实很好打兽王的，只是这把有个宙斯配合清幻象，collapse直接小猪屯野把畜长补爆
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 13950#       发表于 2022-8-16 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093712&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-16 21:18</a>
+
+哎哟，我看了杰出的分析，我有点头晕了
+
+1 tb对线好打谜团</blockquote>
+TB不是对线打VIPER的么
+
+幽鬼不是防谜团的么
+
+至于娜迦对线兽王不清楚
+
+
+
+*****
+
+####  蛭人  
+##### 13951#       发表于 2022-8-16 21:36
+
+处长的线上就不要指望了吧，典中典之养怪物。
+
