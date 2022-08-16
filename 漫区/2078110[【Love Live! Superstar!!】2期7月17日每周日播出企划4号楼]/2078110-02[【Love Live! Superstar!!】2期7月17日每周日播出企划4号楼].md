@@ -14713,3 +14713,27 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 你们说前三集可可写的好是不是官方本来想食中国饭，结果这边最近文化作品引进锁紧导致那边的计划泡汤，所以破罐子破摔拿纸片人出气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 2918#       发表于 2022-8-17 01:29
+
+すみれ:前面に押し出す&amp;イケメンムーブ
+
+かのん:陰キャやさぐれムーブ&amp;歌唱力アピール
+
+クゥクゥ:マスコット状態&amp;クーカーアピール
+
+きな子:かわいい声出させまくる
+
+恋:ゲーム廃人エロサイト
+
+ちぃちゃん:かのん狂信者アピール
+
+四季メイ:レズ
+
+今後はこれだけで余裕よ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

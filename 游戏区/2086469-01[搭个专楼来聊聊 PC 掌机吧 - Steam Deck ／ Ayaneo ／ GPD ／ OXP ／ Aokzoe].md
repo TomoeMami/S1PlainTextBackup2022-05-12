@@ -882,3 +882,17 @@ bf5啥的可以高画质50+帧数
 好奇 Aokzoe 开 28w 的风扇噪音如何，我之前的 Win 3 和 OXP 大于 18w 感觉噪音就遭不住了。 ...</blockquote>
 Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w，问题主要是没法调风扇曲线导致低功耗时噪音也那么大。
 
+
+
+*****
+
+####  恋妖壶  
+##### 77#       发表于 2022-8-17 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57069107&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-15 08:26</a>
+
+我倒是挺想用掌机来跑 PS3 模拟器玩 ICO，感觉这种级别的游戏应该能模拟得动吧… ...</blockquote>
+帮你试了，ICO进游戏就拖慢十几帧，基本处于不能玩的状态
+
+TOX倒是运行的很好
+
