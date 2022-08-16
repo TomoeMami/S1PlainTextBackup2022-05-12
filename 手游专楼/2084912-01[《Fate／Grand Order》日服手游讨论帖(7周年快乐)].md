@@ -15436,3 +15436,15 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 趁着欧气出手现在说不定还能抓到伊吹尾巴</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">洗洗睡了
 
+
+
+*****
+
+####  qixinno2  
+##### 1451#       发表于 2022-8-16 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086627&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-16 11:59</a>
+
+羡慕，我都还未见过小黑呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">友情池抽多了总会出的
+
