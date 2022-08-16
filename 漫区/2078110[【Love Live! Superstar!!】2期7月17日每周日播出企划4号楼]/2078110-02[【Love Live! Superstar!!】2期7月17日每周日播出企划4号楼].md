@@ -14507,3 +14507,15 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 然而花田的中二病第二季的除了凸守丹生谷以外，还有其他大问题，我个人只能倾向花田对于续作是没什么斗志的，写写交工完事
 
+
+
+*****
+
+####  ddy2811  
+##### 2897#       发表于 2022-8-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093744&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-16 21:21</a>
+
+是说内网S1 贴吧的网友</blockquote>
+毕竟可可/鲤鱼真的是自家人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

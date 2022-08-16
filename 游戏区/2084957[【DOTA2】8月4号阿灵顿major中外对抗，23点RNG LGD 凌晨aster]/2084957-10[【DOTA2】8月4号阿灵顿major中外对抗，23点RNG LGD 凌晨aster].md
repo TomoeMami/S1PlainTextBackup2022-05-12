@@ -4490,3 +4490,58 @@ ban上等马，战中等马，把下等÷放了，随便他选，没用的，冠
 
 脑东京这QOP玩的凶相无比，比超哥狂还狂，还能狂赢
 
+
+
+*****
+
+####  反方向的波  
+##### 13973#       发表于 2022-8-16 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">依稀记得看录像的时候g3张志成这手ban都被喷飞了，然后是经典为什么卜ban马尔斯
+
+*****
+
+####  thistimeforlife  
+##### 13974#       发表于 2022-8-16 22:56
+
+流量就让王处长和路副处扛着吧，鳖星快去esl和og打bo服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便再让我们看一眼秘密和nigma吧
+
+*****
+
+####  adretyu67  
+##### 13975#       发表于 2022-8-16 22:58
+
+有一说一，这个赛季雪碧选马尔斯输的挺多的。至于放精灵马尔斯例外
+
+*****
+
+####  Keynes  
+##### 13976#       发表于 2022-8-16 22:58
+
+“dota不是打打杀杀，dota是人情世故”，我是没想到第一个出来喷的居然是韩国车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十年八月  
+##### 13977#       发表于 2022-8-16 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57071539&amp;ptid=2084957" target="_blank">朝奈 发表于 2022-8-15 10:48</a>
+
+MDY没有胡说刀塔还是少点味
+
+23联动郑畜解说想必乐子也是不少
+
+别去TI了,多赚点爱国火箭吧啊 ...</blockquote>
+主要是MDY几个畜牲东西都是AME的舔狗，捎带着和皮套人高强度联动。所以就恶心起来了
+
+*****
+
+####  六娃  
+##### 13978#       发表于 2022-8-16 23:01
+
+处长肉山团和中二塔团的两波不输出大圣真是太关键了，下意识把搂死对面大哥的任务交给海民，自信潇洒转身和viper双向奔赴
+
+A畜团战输出目标指南：1.离我最近的 2.欺负过我的 3.陈
+
