@@ -2021,3 +2021,41 @@ og前还没有双冠呢<img src="https://static.saraba1st.com/image/smiley/face2
 
 最近三年有两年ti冠军不是直邀的 我建议lgd立刻解散组个新队去打海选哦
 
+
+
+*****
+
+####  walfeds  
+##### 13713#       发表于 2022-8-16 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是有请专业破咒者og吧
+
+*****
+
+####  12481632  
+##### 13714#       发表于 2022-8-16 13:14
+
+还在魔咒，不是A畜自己把TI8冠军送掉打破魔咒的么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 13715#       发表于 2022-8-16 13:14
+
+major亚军季军殿军也都没夺过冠，看来今天是帕皮酱的盾了
+
+*****
+
+####  反方向的波  
+##### 13716#       发表于 2022-8-16 13:19
+
+文爱这把土猫在近距离目睹了反方向的跳后终于嗷的一声成为了汉堡猫scofield
+
+*****
+
+####  cwlqxs  
+##### 13717#       发表于 2022-8-16 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087618&amp;ptid=2084957" target="_blank"> TheOccuria 发表于 2022-8-16 13:08</a> 看狗头人新歌后看了下动态，前几天dodo被集美冲了？发生啥了 </blockquote>
+完美实习生怒喷两小时nts滚滚然后超哥淘汰那天用官号转发讨厌黑超哥的言论环境来自: iPhone客户端
+
