@@ -13808,3 +13808,32 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 今晚鲤鱼有直播，还是看看三次元平复一下吧</blockquote>
 我记得是星期三？
 
+
+
+*****
+
+####  仟音一心  
+##### 2833#       发表于 2022-8-16 12:35
+
+<blockquote>稀勢のささ 发表于 2022-8-16 12:07
+很努力在救了</blockquote>
+老师也蚌埠住了
+
+<img src="https://img.saraba1st.com/forum/202208/16/123545vl98cuu1ljuebxcs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C6C00D0-248A-48E5-A407-CB35D176354E.jpeg</strong> (101.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-16 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/123546k98fg79x7kjfd938.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6352F783-CB3C-4212-9EC7-659263ACA135.jpeg</strong> (183.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-16 12:35 上传
+
