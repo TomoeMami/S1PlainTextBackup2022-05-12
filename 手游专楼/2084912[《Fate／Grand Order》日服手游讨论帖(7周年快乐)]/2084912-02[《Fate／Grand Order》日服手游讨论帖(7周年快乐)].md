@@ -1078,3 +1078,57 @@ C呆还差138,779到12绊</blockquote>
 
 因为打手们都不太争气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以只能出此下策了...
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1598#       发表于 2022-8-16 21:12
+
+等等，伪阶没真名解析啊，这是要等以后？
+
+*****
+
+####  exiaexa  
+##### 1599#       发表于 2022-8-16 21:15
+
+ 本帖最后由 exiaexa 于 2022-8-16 21:16 编辑 
+
+喷了，只要你肯换人
+
+2宝888的手办娘也可以稳定3t，第二面能回收到90
+
+绿卡啊绿卡，你给点呼吸啊.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1600#       发表于 2022-8-16 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093639&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-16 21:12</a>
+
+我是一面开打手技能，然后双C呆交二三技能。
+
+第二面一个C呆开一技能，然后换成水伊吹，一二技能。
+
+三面剩 ...</blockquote>
+你操作不对 满破礼装2宝就可以 不换人3t  隔壁都试了
+
+*****
+
+####  千叶铁矢  
+##### 1601#       发表于 2022-8-16 21:19
+
+有没有内种，6加成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1602#       发表于 2022-8-16 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093732&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-16 21:19</a>
+
+有没有内种，6加成的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有 5宝狂娜已经有人试了 可以
+

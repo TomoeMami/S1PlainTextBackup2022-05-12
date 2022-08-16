@@ -14132,3 +14132,74 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 现在这情势难免让人阴谋论官方是不是在试图故意人为操控人气，为了保证某人的人气一味硬捧，因为某人人气过 ...</blockquote>
 这次外网包括WW都比内网看得清，内网包括S1几个老哥自己都说只顾可可了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 2861#       发表于 2022-8-16 21:12
+
+ 本帖最后由 cxj649 于 2022-8-16 21:16 编辑 
+
+660名無しで叶える物語(らっかせい)2022/08/15(月) 20:12:36.73ID:2aJQpw/O
+
+かのんちゃんは教祖なので抗議とか無理
+
+当然非難は頭の弱い教祖様を狙い撃ちした
+
+邪教徒オニナッツにむく
+
+669<strong>名無しで叶える物語</strong>(SIM)2022/08/15(月) 20:21:21.41ID:UHA6TAd0
+ほぼ全キャラ株が下がってないか
+
+無害なのは恋と四季くらいでは
+
+673<strong>名無しで叶える物語</strong>(たこやき)2022/08/15(月) 20:24:25.79ID:nfdtZsvJ[size=0.7em][&gt;&gt;668](https://fate.5ch.net/test/read.cgi/lovelive/1660485517/668)
+教祖と部長で明確に役割分けて欲しいな
+
+勧誘と外交担当かのんで内政ちぃちゃん
+
+674<strong>名無しで叶える物語</strong>(もんじゃ)2022/08/15(月) 20:25:51.81ID:gYhqgJRR
+[&gt;&gt;670](https://fate.5ch.net/test/read.cgi/lovelive/1660485517/670)
+
+分断成功、これで意のままに。
+
+中の人に罪は無いけどこんな役柄凄い可哀想
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2862#       发表于 2022-8-16 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟是可可啊，自家人当然更关注了
+
+*****
+
+####  仟音一心  
+##### 2863#       发表于 2022-8-16 21:16
+
+<img src="https://p.sda1.dev/6/d322f1f32bfd68c091259ac57d46eb74/CMP_20220816211635757.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 2864#       发表于 2022-8-16 21:17
+
+<blockquote>cxj649 发表于 2022-8-16 21:11
+这次外网包括WW都比内网看得清，内网包括S1几个老哥自己都说只顾可可了 ...</blockquote>
+没看出来哪里只顾可可，明明是硬捧香音，重要情节和大量戏份几乎全在香音那里，可可的戏份还不如新人，也就比千和恋强点，而且都是些可有可无的情节，大部分时间都在怼堇当气氛组，而怼堇的那些情节只要是脑子正常的人都会对可可产生恶感，你要说这是捧可可那我无话可说。
+
+*****
+
+####  cxj649  
+##### 2865#       发表于 2022-8-16 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093710&amp;ptid=2078110" target="_blank">qty 发表于 2022-8-16 21:17</a>
+
+没看出来哪里只顾可可，明明是硬捧香音，重要情节和大量戏份几乎全在香音那里，可可的戏份还不如新人，也 ...</blockquote>
+是说内网S1 贴吧的网友
+
