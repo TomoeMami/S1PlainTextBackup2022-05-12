@@ -13697,3 +13697,14 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 2823#       发表于 2022-8-16 09:59
+
+纸片人什么的随它们怎么吵。
+
+但是往中之人引火的真是又蠢又坏，纯纯的nt<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

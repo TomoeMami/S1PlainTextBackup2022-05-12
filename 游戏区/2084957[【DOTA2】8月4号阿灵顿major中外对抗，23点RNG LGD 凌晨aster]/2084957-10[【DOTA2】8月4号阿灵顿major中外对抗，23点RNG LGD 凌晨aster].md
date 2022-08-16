@@ -488,3 +488,52 @@ ti10c位表现就最夸张的就是丫头肉，老东京和崩溃都是负责给
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猴爹每晚睡不着的时候就应该看看当初自己火枪单杀畜长敌法的切片治疗精神内耗
 
+
+
+*****
+
+####  nowaki  
+##### 13550#       发表于 2022-8-16 09:52
+
+一天过去了，除了傻狗是真的没人做决赛视频是吧。
+
+*****
+
+####  杜文乐超神归来  
+##### 13551#       发表于 2022-8-16 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084714&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-16 09:52</a>
+
+一天过去了，除了傻狗是真的没人做决赛视频是吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PSG.LGD的B站号做了个决赛切片
+
+*****
+
+####  格雷殿下  
+##### 13552#       发表于 2022-8-16 09:54
+
+什么时候有前职业观看集锦啊，好急好急
+
+*****
+
+####  nerugigannte  
+##### 13553#       发表于 2022-8-16 09:54
+
+我记得有段时间ehome23458带塞老师处刑了掀背的
+
+*****
+
+####  adretyu67  
+##### 13554#       发表于 2022-8-16 09:55
+
+就是cdec.一闪技术扶贫那段时间啊。
+
+我记得那段时间cdec唯一一个冠军吹的最多应该是XM打得好来着<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 13555#       发表于 2022-8-16 09:56
+
+那时xm打得很差吗
+
