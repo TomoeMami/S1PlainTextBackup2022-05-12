@@ -15572,3 +15572,22 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 反正都是做梦我自己上不香？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议使用玄学 换个时间或者抽友情池洗池子来给自己点心里安慰
 
+
+
+*****
+
+####  sosgame67  
+##### 1463#       发表于 2022-8-16 14:23
+
+隔壁这没有转生号的借口只能贩卖焦虑了啊，关键还是千里眼大战计算机玩家，突出一个云大战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1464#       发表于 2022-8-16 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088533&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-16 14:23</a>
+
+隔壁这没有转生号的借口只能贩卖焦虑了啊，关键还是千里眼大战计算机玩家，突出一个云大战 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是节目效果很好 看的差点笑出声
+

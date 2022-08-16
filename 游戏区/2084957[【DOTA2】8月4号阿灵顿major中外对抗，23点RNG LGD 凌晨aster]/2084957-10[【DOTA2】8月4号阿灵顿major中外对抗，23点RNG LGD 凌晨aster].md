@@ -2389,3 +2389,60 @@ rng得冠好像是皮鞋经典造谣，rng今天下午就到上海了<img src="h
 
 又开始搬屎环节了，疲惫<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 13752#       发表于 2022-8-16 14:24
+
+希望森哥把撸狗给我关在国内
+
+*****
+
+####  反方向的波  
+##### 13753#       发表于 2022-8-16 14:29
+
+随着本赛季的甲级联赛结束后，正式受邀参加国际邀请赛的12支队伍已经确定：
+
+ PSG.LGD
+
+ OG
+
+ Team Spirit
+
+ beastcoast
+
+ Team Aster
+
+ Thunder Awaken
+
+ BOOM Esports
+
+ TSM
+
+ Tundra Esports
+
+ Gaimin Gladiators
+
+ Evil Geniuses
+
+ Fnatic
+
+我们期待今年十月在新加坡见到这些实至名归的战队争夺冠军之神盾。
+
+国际邀请赛还有不少参赛名额，而下个开放的机会就是地区预选赛。 地区预选赛将于9月3-18日举行，六大赛区的冠军将受邀参加国际邀请赛。
+
+每个地区预选赛的亚军和季军还有最后一次机会获得最后的参赛名额——那就是10月8-12日举行的最终突围赛。 突围赛的前两支队伍将加入到国际邀请赛的参赛战队中。
+
+游戏性版本 7.32
+
+正如之前提到的，7.32游戏性版本将在国际邀请赛地区预选赛开始前的某个时候到来。
+
+*****
+
+####  反方向的波  
+##### 13754#       发表于 2022-8-16 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">#fnc偷走皮球湖人24号球衣
+
