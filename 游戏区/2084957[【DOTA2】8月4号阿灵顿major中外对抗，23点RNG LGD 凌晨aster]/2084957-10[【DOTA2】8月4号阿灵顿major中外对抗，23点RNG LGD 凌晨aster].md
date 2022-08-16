@@ -1894,3 +1894,130 @@ LGD一直赢太惯着你们了！
 
 10分钟：兄弟们这波没打起来，我补点金了啊
 
+
+
+*****
+
+####  ArowRocher  
+##### 13697#       发表于 2022-8-16 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087448&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-16 12:54</a>
+哇，小人怎么敢骂谭雅的，他自己当面也不敢骂偶像呀。谭雅当时甚至还是顶着官方身份的，能一样吗。金典双标 ...</blockquote>
+说了什么
+
+*****
+
+####  北条早苗  
+##### 13698#       发表于 2022-8-16 13:02
+
+看完ti8还没看出a畜就是个戏瘾极大的心理变态吗
+g4那出装不就想教上帝玩猴子，g5看到四队友动手带盾火猫看到锅点有人还T下来送，四兄弟要是翻盘了a畜不就没镜头了？
+
+*****
+
+####  nowaki  
+##### 13699#       发表于 2022-8-16 13:05
+
+下路那波本来是ck走第一个，他扭头不敢走在后面晃这才让电魂走前面了。而且后面电魂也已经出双刀做撒旦了，有人三打五送两路咋办啊。
+
+*****
+
+####  反方向的波  
+##### 13700#       发表于 2022-8-16 13:05
+
+<img src="https://p.sda1.dev/6/0e98d82abccd214b296e5ae90313cff6/CMP_20220816130501552.jpg" referrerpolicy="no-referrer">
+懂了懂了，是大便哥脑控的ck冲了上去<img src="https://p.sda1.dev/6/446c401ffd9e53be3ae748f623242aeb/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 13701#         楼主| 发表于 2022-8-16 13:07
+
+这，就是a畜
+
+*****
+
+####  thistimeforlife  
+##### 13702#       发表于 2022-8-16 13:07
+
+是泰迪指挥ck上去3打5的，懂不懂孤单英雄啊
+
+*****
+
+####  暂无此人N先生  
+##### 13703#       发表于 2022-8-16 13:07
+
+没有一个major冠军能夺ti，没夺major这不是好事吗。你看og都什么b样了。
+
+*****
+
+####  Litccc  
+##### 13704#       发表于 2022-8-16 13:08
+
+集美找不到四赵云的黑点只能从场外下功夫了，去年是假赛和岁月史书，今年是双败赛制和完美不作为，说实话完美把社区搞得乌烟瘴气这句话是从集美嘴里说出来的窝就觉得好笑
+
+*****
+
+####  TheOccuria  
+##### 13705#       发表于 2022-8-16 13:08
+
+看狗头人新歌后看了下动态，前几天dodo被集美冲了？发生啥了
+
+*****
+
+####  ArowRocher  
+##### 13706#       发表于 2022-8-16 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087608&amp;ptid=2084957" target="_blank">暂无此人N先生 发表于 2022-8-16 13:07</a>
+没有一个major冠军能夺ti，没夺major这不是好事吗。你看og都什么b样了。</blockquote>
+不要迷信所谓魔咒
+
+*****
+
+####  哈曼的YY  
+##### 13707#       发表于 2022-8-16 13:08
+
+og前还没有双冠呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 13708#       发表于 2022-8-16 13:09
+
+<blockquote>暂无此人N先生 发表于 2022-8-16 13:07
+没有一个major冠军能夺ti，没夺major这不是好事吗。你看og都什么b样了。</blockquote>
+有当年的major亚军夺ti的吗，热知识每年major前四都没拿ti的
+
+*****
+
+####  PigMourne  
+##### 13709#       发表于 2022-8-16 13:10
+
+试了一下娜迦大+伐木机轮子也是能跳走的，不过预输入跳刀不行，必须连着按
+
+*****
+
+####  北条早苗  
+##### 13710#       发表于 2022-8-16 13:10
+
+偶数年，双冠诅咒
+当年major冠军没拿过ti，亚军也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 13711#       发表于 2022-8-16 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13712#       发表于 2022-8-16 13:11
+
+最近三年有两年ti冠军不是直邀的 我建议lgd立刻解散组个新队去打海选哦
+
