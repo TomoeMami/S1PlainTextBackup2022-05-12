@@ -1460,3 +1460,19 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想这几天我都在高强度刷nga看戏。。。。这波亏大了 浪费了那么多时间
 
+
+
+*****
+
+####  yangun22  
+##### 1625#       发表于 2022-8-16 23:44
+
+试了下机娘5宝换人最后打出来80几万，需要c呆被动2开到10然后第三波先放个c呆宝具再开机娘的就可以稳定6加成了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 1626#       发表于 2022-8-16 23:47
+
+杀死比赛还是很简单的嘛，毕竟今天之前谁会讨论100w血环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

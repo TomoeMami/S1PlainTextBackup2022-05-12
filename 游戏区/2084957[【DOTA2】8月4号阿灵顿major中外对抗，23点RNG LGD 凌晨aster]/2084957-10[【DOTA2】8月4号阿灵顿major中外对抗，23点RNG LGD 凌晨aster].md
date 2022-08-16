@@ -4837,3 +4837,21 @@ cn真正的第一c 和 定语第一c
 
 杰÷这个玩意，我拉黑很多年了，zsmj还在打的时候逮着吹hgt，然后就是当鳖孙吹憋，现在吃集美这顿饭，没有任何一个阶段不恶心我的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 14011#       发表于 2022-8-16 23:51
+
+karl，真正的东南亚猛男，外战硬得要死
+
+*****
+
+####  两三流浪者  
+##### 14012#       发表于 2022-8-16 23:51
+
+[https://www.reddit.com/r/DotA2/c ... bout_chinese_teams/](https://www.reddit.com/r/DotA2/comments/wpown1/hoping_to_share_some_insights_about_chinese_teams/)
+
+这是谁发的?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

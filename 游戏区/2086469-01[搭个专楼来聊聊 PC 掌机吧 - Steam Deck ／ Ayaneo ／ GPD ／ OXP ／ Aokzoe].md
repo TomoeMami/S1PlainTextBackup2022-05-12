@@ -870,3 +870,15 @@ bf5啥的可以高画质50+帧数
 
 好奇 Aokzoe 开 28w 的风扇噪音如何，我之前的 Win 3 和 OXP 大于 18w 感觉噪音就遭不住了。
 
+
+
+*****
+
+####  83913536  
+##### 76#       发表于 2022-8-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094387&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-16 22:12</a>
+
+好奇 Aokzoe 开 28w 的风扇噪音如何，我之前的 Win 3 和 OXP 大于 18w 感觉噪音就遭不住了。 ...</blockquote>
+Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w，问题主要是没法调风扇曲线导致低功耗时噪音也那么大。
+
