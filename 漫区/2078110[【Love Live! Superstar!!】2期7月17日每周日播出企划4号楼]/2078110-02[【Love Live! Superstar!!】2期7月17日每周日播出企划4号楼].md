@@ -13962,3 +13962,15 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 这感觉就和以前给我看绯弹越看越反感亚里亚差不多
 
+
+
+*****
+
+####  老1.5  
+##### 2845#       发表于 2022-8-16 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57088409&amp;ptid=2078110" target="_blank">TRIScRE 发表于 2022-8-16 14:12</a>
+
+最近各种吸血论也大量引进了，最早从哪流传出来的，足球那边倒是挺多的</blockquote>
+什么吸血论？细说
+

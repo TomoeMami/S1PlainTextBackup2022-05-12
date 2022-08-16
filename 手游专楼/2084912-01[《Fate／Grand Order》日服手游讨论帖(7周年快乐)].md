@@ -15591,3 +15591,14 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 隔壁这没有转生号的借口只能贩卖焦虑了啊，关键还是千里眼大战计算机玩家，突出一个云大战 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是节目效果很好 看的差点笑出声
 
+
+
+*****
+
+####  angelooo  
+##### 1465#       发表于 2022-8-16 14:41
+
+<blockquote>alucardcz 发表于 2022-8-16 14:24
+但是节目效果很好 看的差点笑出声</blockquote>
+每天都有新节目，笑死我了
+

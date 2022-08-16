@@ -2446,3 +2446,51 @@ rng得冠好像是皮鞋经典造谣，rng今天下午就到上海了<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">#fnc偷走皮球湖人24号球衣
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 13755#       发表于 2022-8-16 14:32
+
+懒狗社不基德 欺负CIS<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 13756#       发表于 2022-8-16 14:34
+
+提一嘴，两个TI魔咒都是ame亲自打破的，相信萧瑟！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 13757#       发表于 2022-8-16 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很难不怀疑懒狗想给猴子匀个冠军，但他们有这实力吗
+
+*****
+
+####  坚定的团子党  
+##### 13758#       发表于 2022-8-16 14:35
+
+妈的，看这段话感觉这周又没更新了，本子尼玛什么时候出呀，亏我6月就倒了余额，现在还没用上
+
+*****
+
+####  遍体精淋af  
+##### 13759#       发表于 2022-8-16 14:38
+
+超级集美论坛因为处长的失利已经开始造神ig了，说到底总要有一个撸狗被太监论坛吹捧，那为什么不能说血统更纯的emo<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">只苦了还是担心能不能出预选的森哥，怕不是又要玉玉了
+
+*****
+
+####  tengshuo980  
+##### 13760#       发表于 2022-8-16 14:42
+
+今年v社摆的也太离谱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
