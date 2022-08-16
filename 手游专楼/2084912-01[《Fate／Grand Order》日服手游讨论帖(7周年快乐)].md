@@ -15708,3 +15708,36 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 狂兰神不是嘲讽用的老梗吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不清楚  不过隔壁昨天是真的成神了（
 
+
+
+*****
+
+####  qixinno2  
+##### 1477#       发表于 2022-8-16 16:44
+
+ 本帖最后由 qixinno2 于 2022-8-16 16:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090238&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 16:41</a>
+
+不清楚  不过隔壁昨天是真的成神了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是个老梗 我记得是个几年前说能上三个狂兰和用三个CBA拐狂兰秒霸王花的神人 最草的是2.6某关能上三个妖兰和现在出了RBA后的玩梗吧
+
+*****
+
+####  alucardcz  
+##### 1478#       发表于 2022-8-16 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090277&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 16:44</a>
+
+是个老梗 我记得是个几年前说能上三个狂兰和用三个CBA拐狂兰秒霸王花的神人 最草的是2.6某关能上三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是你对隔壁的爱比较深 （
+
+*****
+
+####  qixinno2  
+##### 1479#       发表于 2022-8-16 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090356&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 16:50</a>
+
+还是你对隔壁的爱比较深 （</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前看到过印象比较深
+
