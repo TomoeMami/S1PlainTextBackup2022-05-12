@@ -1428,3 +1428,14 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我冰块毕业后掉了冰块礼装 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 1622#       发表于 2022-8-16 23:29
+
+满破了冰块礼装就可以腾出位置放别的加成礼装了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

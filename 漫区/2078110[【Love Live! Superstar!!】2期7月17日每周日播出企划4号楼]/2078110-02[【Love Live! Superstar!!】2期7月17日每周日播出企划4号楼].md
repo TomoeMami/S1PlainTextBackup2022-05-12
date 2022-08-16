@@ -14530,3 +14530,35 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  JustW_3  
+##### 2899#       发表于 2022-8-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093618&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-16 21:11</a>
+这次外网包括WW都比内网看得清，内网包括S1几个老哥自己都说只顾可可了 ...</blockquote>
+别说什么看清不看清，国内讨论集中在可可身上到底为什么你当真不清楚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 2900#       发表于 2022-8-16 23:28
+
+大人急眼了？连夜拉人营业呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW_3  
+##### 2901#       发表于 2022-8-16 23:29
+
+ 本帖最后由 JustW_3 于 2022-8-16 23:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094699&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-8-16 22:41</a>
+到底现在是花田的问题大还是京极的问题大，据说花田对星团的态度就是上头叫写啥他就写啥 ...</blockquote>
+如果连每句台词都是上面让写什么他写什么，那花田还算是脚本吗，他就是根笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我个人认为，分锅的话企划：京极：花田≈6：3：1吧
+

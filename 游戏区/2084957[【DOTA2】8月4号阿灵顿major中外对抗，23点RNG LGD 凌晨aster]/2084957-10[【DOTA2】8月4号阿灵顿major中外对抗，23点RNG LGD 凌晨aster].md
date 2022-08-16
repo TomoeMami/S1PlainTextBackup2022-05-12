@@ -4769,3 +4769,44 @@ SEA预选都还没开，没这么急啊。先看看预选成绩再说。
 
 7.哎，我就是问一下，我以后玩ck的时候啊，我也是先跳过去再开大然后再c……哎你们tmd在说什么，我这是在学，虚心学习。
 
+
+
+*****
+
+####  thistimeforlife  
+##### 14003#       发表于 2022-8-16 23:23
+
+cn真正的第一c 和 定语第一c 
+
+*****
+
+####  聚散浮云  
+##### 14004#       发表于 2022-8-16 23:27
+
+这下真的乳化了
+
+*****
+
+####  为了mf注册  
+##### 14005#       发表于 2022-8-16 23:28
+
+说真的，现在的topson和上帝真能带的动kuku吗？我今年看好雪碧连冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14006#       发表于 2022-8-16 23:29
+
+0.25倍速又看了下肉山那波
+
+仙贝看到空血猴子选择了开分身，然后鼠标在左边就没动了，分身结束后自动往下走，于是仙贝就点viper去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至也不太好说是点过去打viper的还是只是拉了下屏幕，毕竟自动攻击也是找的viper
+
+*****
+
+####  反方向的波  
+##### 14007#       发表于 2022-8-16 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">ku畜在这个利好3号位的版本能带队保级，我感觉已经可以备战ti12了。卡尔打的挺尽力了你把他换掉干什么？
+
