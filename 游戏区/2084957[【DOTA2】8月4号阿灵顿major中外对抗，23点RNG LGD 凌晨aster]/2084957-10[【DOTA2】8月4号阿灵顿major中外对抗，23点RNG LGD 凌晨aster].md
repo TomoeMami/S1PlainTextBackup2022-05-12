@@ -3243,3 +3243,109 @@ hyz这个洗  怎么感觉是黑啊 笑死
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">那种事情不要啊
 
+
+
+*****
+
+####  遍体精淋af  
+##### 13843#       发表于 2022-8-16 17:04
+
+ 本帖最后由 遍体精淋af 于 2022-8-16 17:06 编辑 
+
+和司马ku一个队的话厨子多少有点晚节不保了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 13844#       发表于 2022-8-16 17:05
+
+司马kuku游出预选这种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 13845#       发表于 2022-8-16 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089069&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-16 15:07</a>
+
+倒csgo的安特卫普胶囊就行，前几天7折左右</blockquote>
+好卖吗，我看看，还有没有别的
+
+*****
+
+####  lyjssj  
+##### 13846#       发表于 2022-8-16 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没啥晚节不保的，除非道德出问题，或者是出现了真正的ti三冠王，不然上帝还是那个上帝
+
+*****
+
+####  AIDSL  
+##### 13847#       发表于 2022-8-16 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087853&amp;ptid=2084957" target="_blank">Keynes 发表于 2022-8-16 13:26</a>
+
+哇，我真的惊了，原来ts选fw不仅是因为崩溃哥会玩，还是因为魔晶效果把ck直接爆了
+
+这 ...</blockquote>
+我两个月前有一盘大劣斧王就是靠魔晶差点翻了对面的CK，就是他优势太大，幻象被我清了之后单体拍死我。
+
+然后我去做了测试，先锋血精散华，半管血之后往回涨…………
+
+*****
+
+####  反方向的波  
+##### 13848#       发表于 2022-8-16 17:08
+
+ 本帖最后由 反方向的波 于 2022-8-16 17:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fnc被尸王和v社抬进去了以后东南亚像个人的真的只有talon了，23你再复仇一次ku畜吧
+
+打错了bc
+
+*****
+
+####  蛭人  
+##### 13849#       发表于 2022-8-16 17:08
+
+恐怕是真的了，官方推特也关注他俩了。
+
+<img src="https://img.saraba1st.com/forum/202208/16/170841kzsofsg8sglsy8gy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 17:08 上传
+
+*****
+
+####  六娃  
+##### 13850#       发表于 2022-8-16 17:08
+
+司马ku现在是猴区话事人，懂又不懂啊
+
+*****
+
+####  修罗王  
+##### 13851#       发表于 2022-8-16 17:09
+
+还在尸王抬fnc，fnc这个major一分都没拿，不如说是bc抬fnc
+
+*****
+
+####  adretyu67  
+##### 13852#       发表于 2022-8-16 17:09
+
+猴ku当不了ceb的那样的绿叶，不当挂件就不错了。
+
+*****
+
+####  坚定的团子党  
+##### 13853#       发表于 2022-8-16 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090633&amp;ptid=2084957" target="_blank">修罗王 发表于 2022-08-16 17:09:21</a>
+还在尸王抬fnc，fnc这个major一分都没拿，不如说是bc抬fnc</blockquote>还不如说vp不基德，以为稳了就瞎比玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
