@@ -15602,3 +15602,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 但是节目效果很好 看的差点笑出声</blockquote>
 每天都有新节目，笑死我了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1466#       发表于 2022-8-16 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里版FGO对魔忍怒吃一井，不知道明天抽斯卡蒂会不会否极泰来
+

@@ -2648,3 +2648,81 @@ hyz想踢了明鞭和ame一起打gg不是一天两天了，就想oc还想回到t
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的我都信了，hyz有那个能力吗
 
+
+
+*****
+
+####  百世诸侯  
+##### 13779#       发表于 2022-8-16 15:32
+
+<img src="https://img.saraba1st.com/forum/202208/16/153108hvddg7nexeqrdicq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/153155pzoovzzycoyzvsif.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 15:31 上传
+
+假赛论双修农批爷新锐评
+
+*****
+
+####  百世诸侯  
+##### 13780#       发表于 2022-8-16 15:36
+
+NGA的搬完了，贴吧的也得搬搬
+
+<img src="https://img.saraba1st.com/forum/202208/16/153608dzk3czqjxc33ax3z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 15:36 上传
+
+*****
+
+####  沈淮  
+##### 13781#         楼主| 发表于 2022-8-16 15:37
+
+鳖倒垃圾了
+
+*****
+
+####  百世诸侯  
+##### 13782#       发表于 2022-8-16 15:37
+
+<img src="https://img.saraba1st.com/forum/202208/16/153653ms5gc7z70ywmy0yy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 15:36 上传
+
+major重要？用点脑子说话！
+
+*****
+
+####  战栗的小六  
+##### 13783#       发表于 2022-8-16 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">lgd嬴的比赛都重要，输的比赛都不重要，望周知
+
+syl：众所周知，ti8 9 10是含金量最低的三届ti
+
+*****
+
+####  nowaki  
+##### 13784#       发表于 2022-8-16 15:40
+
+宇宙第一含金量比赛是二次元major
+
