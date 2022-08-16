@@ -1512,3 +1512,12 @@ Fami通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“剑北轻松6加成只需要开下被动“   太经典了
 
+
+
+*****
+
+####  alucardcz  
+##### 1631#       发表于 2022-8-17 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想到水伊有特攻啊  有没有算算减掉特攻还能不能杀穿这次111
+

@@ -4928,3 +4928,80 @@ https://www.reddit.com/r/DotA2/comments/wpown1/hoping_to_share_some_insights_abo
 
 量子边跟国外队伍这么友好，跟无耻的队友呢？
 
+
+
+*****
+
+####  一品堂官  
+##### 14021#       发表于 2022-8-17 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095632&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-16 23:51</a>
+
+https://www.reddit.com/r/DotA2/comments/wpown1/hoping_to_share_some_insights_about_chinese_teams/
+
+这 ...</blockquote>
+离谱 梗太多老外都晕了吧
+
+另外外国这些上论坛的看发言都是老逼了 
+
+怀念zsmj tongfu啥的可还行
+
+*****
+
+####  陶矢  
+##### 14022#       发表于 2022-8-17 00:18
+
+杰出做的视频有啥问题吗。。直接评价ame高风险0回报，不就是刷了送吗。。
+
+*****
+
+####  尸体鲨  
+##### 14023#       发表于 2022-8-17 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095285&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-16 23:22</a>
+听傻狗们说hao的复盘拉满了，我去看了看发现几个有意思的地方
+
+1.ame飞鞋呢？还在see啊
+
+2.辉耀？嗷？学，不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最搞的不是当场宣布自己的偶像是眼少
+
+*****
+
+####  syndrome2032  
+##### 14024#       发表于 2022-8-17 00:19
+
+ 本帖最后由 syndrome2032 于 2022-8-17 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095828&amp;ptid=2084957" target="_blank">你气不气 发表于 2022-8-17 00:11</a>
+量子边跟国外队伍这么友好，跟无耻的队友呢？</blockquote>
+重庆major善良泽宇给厂公替补那会我记得有个ti6vsti7冠军的死亡模式的表演赛。
+
+五小只聚了会吃了顿火锅，算是彻底各奔东西了。也就这样吧。
+
+不过后来哪场比赛二冰还是老鸡头解说邪恶双雄的时候好像感觉二冰心里还是有气。
+
+*****
+
+####  ArowRocher  
+##### 14025#       发表于 2022-8-17 00:19
+
+不知道火星没有，发现一个叫naranbaatar的插画师，花了一些DOTA英雄
+https://www.artstation.com/naranbaatars
+
+<img src="https://p.sda1.dev/6/03dd6c6bbe2c3b6c0308b5533af6c58b/CMP_20220817001836935.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 14026#       发表于 2022-8-17 00:19
+
+看wtf，看到那个身上买了很多芒果的😄，是按了什么快捷键吗
+
+*****
+
+####  尖刺外婆  
+##### 14027#       发表于 2022-8-17 00:21
+
+国服超凡四五真的神仙分段，就比哪边买号狗多<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+司马买号狗把劳资的分吐出来
+
