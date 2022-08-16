@@ -695,3 +695,50 @@ MD绿卡是真的废物，C呆+CBA+换人CBA
 剑刷、迦尔纳、平景清、BX全都打不到50</blockquote>
 阿福更丢人，唯一不丢人的莉莉丝给了30充能，然后被关了
 
+
+
+*****
+
+####  alucardcz  
+##### 1566#       发表于 2022-8-16 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092757&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:08</a>
+
+MD绿卡是真的废物，C呆+CBA+换人CBA
+
+剑刷、迦尔纳、平景清、BX全都打不到50</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">垃圾yls 这本应该明天再开 今天开了明天就算rba能刷  也少了很多大戏啊
+
+*****
+
+####  gpx234mqx  
+##### 1567#       发表于 2022-8-16 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092746&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-16 20:07</a>
+
+可惜你游的卡都是竖着的，卡面是这样的话我直接拿去糊在某些傻逼脸上问这叫不叫丑 ...</blockquote>
+大伊吹比三破好看<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1568#       发表于 2022-8-16 20:17
+
+新出的活动free本，90+的基础羁绊值是1098，90++则是1318。
+
+之前发的星见茶壶貌似还有14天就过期了，也就是到月底，和泳装活动一起结束，有需求的朋友们记着刷图时用上啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+（活动从者中羁绊效率+50%的有阿瓦隆女士、水伊吹、泳装斯卡蒂三个五星以及赠送从者杀阶女武神，其他包括新的卡池四星泳装都是20%加成。如果想刷RBA池从者的羁绊，明天抽完卡再用茶壶也不迟。）
+
+*****
+
+####  exiaexa  
+##### 1569#       发表于 2022-8-16 20:19
+
+你大公还是你大公
+
+我2宝666随便换人来个蓝拐都抠着脚打
+
+绿卡你们一群单体UCCU
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

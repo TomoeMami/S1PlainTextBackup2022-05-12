@@ -3964,3 +3964,52 @@ DPC不是早就被定义为《施舍》了<img src="https://static.saraba1st.com
 
 集美真不知道<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 13922#       发表于 2022-8-16 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092404&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-16 19:41</a>
+
+VG没钱了，只能随便应付下，阿绿已经不想做了，再过几年国内俱乐部一只手都能数的过来了吧 ...</blockquote>
+国服就这点人，俱乐部没廉价的新人补充，全死透了都很正常
+
+*****
+
+####  白野苍衣  
+##### 13923#       发表于 2022-8-16 20:14
+
+TI8是王处这辈子最接近TI冠军的时候，但凡决赛做个人另外四兄弟都把他抬上领奖台了。
+
+*****
+
+####  TheOccuria  
+##### 13924#       发表于 2022-8-16 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实就是知道猴爹是大腿了，针对好中单别让他中期杀死比赛，后面处长会送的
+
+*****
+
+####  IG.430  
+##### 13925#       发表于 2022-8-16 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091487&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-16 18:26</a>
+听说rng被淘汰那天，卡神高兴的来了yy，说：这里玩apex不用加速器！</blockquote>
+我怀疑你在讲翻墙笑话，美国上yy说话不要加速器的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 13926#       发表于 2022-8-16 20:18
+
+这届major又是大龄中单获胜的一届，前六的中单只有bzm和nts是00后，其他都是9798还有95的曾娇阳，决赛的老东京也是又又一次证明了自己，还在说中单非要十几岁的小年轻的人应该没有了吧
+
+*****
+
+####  ArowRocher  
+##### 13927#       发表于 2022-8-16 20:20
+
+邪恶明鞭要说什么黑点，我觉得叫二冰来又vote比邪恶事件还重点
+
