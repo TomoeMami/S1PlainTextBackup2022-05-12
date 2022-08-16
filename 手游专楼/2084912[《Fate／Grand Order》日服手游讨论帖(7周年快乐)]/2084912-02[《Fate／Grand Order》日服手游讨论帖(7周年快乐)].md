@@ -894,3 +894,91 @@ MD绿卡是真的废物，C呆+CBA+换人CBA
 该开羁绊上限了 不然我日常本要没人能用了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好强啊 我最高的C呆也才刚开第14绊
 
+
+
+*****
+
+####  exiaexa  
+##### 1584#       发表于 2022-8-16 20:53
+
+头发浓密的我
+
+C呆还差138,779到12绊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 1585#       发表于 2022-8-16 20:57
+
+女武神换了希露德，早就定好了。90++一个个试了遍还是阿一最稳，主要现在倍卡还差两张满破，不然应该不用换人，绿卡是真的一个都不能用笑了
+
+*****
+
+####  qixinno2  
+##### 1586#       发表于 2022-8-16 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093390&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:53</a>
+
+头发浓密的我
+
+C呆还差138,779到12绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬花样多啊 不像我这种只能仇凛从头冲到尾
+
+*****
+
+####  gpx234mqx  
+##### 1587#       发表于 2022-8-16 20:58
+
+最后还是出了哥伦布的蛋真是....
+
+*****
+
+####  qixinno2  
+##### 1588#       发表于 2022-8-16 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿卡根本没得救
+
+*****
+
+####  Jamaisvu  
+##### 1589#       发表于 2022-8-16 20:59
+
+ 本帖最后由 Jamaisvu 于 2022-8-16 21:01 编辑 
+<blockquote>gpx234mqx 发表于 2022-8-16 20:41
+你忘了地球姫和doman也是20%+</blockquote>
+我的意思是，除了活动前就列出的那些加成从者（泳装女英灵、夏衣男英灵、公主）以外，卡池里的剑加雷斯、仇绘里濑、术武则天，都是20%加成......
+
+好吧，是我多言了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前也一样，四星从者吃不到EX的活动被动加成，只有五星和赠送才有...
+
+*****
+
+####  alucardcz  
+##### 1590#       发表于 2022-8-16 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093325&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-8-16 20:48</a>
+
+13技能9和礼装等级的关系吧，有时候会剩个1，2万血</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概是技能 我是10
+
+
+
+*****
+
+####  alucardcz  
+##### 1591#       发表于 2022-8-16 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093390&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 20:53</a>
+
+头发浓密的我
+
+C呆还差138,779到12绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 我拐没几个15羁绊的  但是几个日常用的狂都快要寄了
+
+*****
+
+####  DARKGRAY  
+##### 1592#       发表于 2022-8-16 21:01
+
+呆毛王硬砸，但要看发牌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
