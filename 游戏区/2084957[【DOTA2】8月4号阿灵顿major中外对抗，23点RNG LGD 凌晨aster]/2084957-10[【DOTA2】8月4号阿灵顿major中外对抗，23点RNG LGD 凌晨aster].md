@@ -377,3 +377,83 @@ nb wings点了踩？<img src="https://static.saraba1st.com/image/smiley/face2017
 
 最屌的亚军C是谁？ 眼少吧
 
+
+
+*****
+
+####  xuzy0919  
+##### 13541#       发表于 2022-8-16 09:32
+
+最屌是孙正吧
+
+*****
+
+####  哈曼的YY  
+##### 13542#       发表于 2022-8-16 09:35
+
+孙正:当时我再努力一点就冠军了
+a畜:队友全锅
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 13543#       发表于 2022-8-16 09:36
+
+好呀好呀，在杰出动态下面评论了句，反正你复盘ame就是团队决策浪费时间干嘛，一觉醒来被拉黑了啊。
+
+看来这波水厂折戟杰出吃了波暗亏，我的建议是别急，后面有你急的。
+
+*****
+
+####  nightmare902015  
+##### 13544#       发表于 2022-8-16 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084299&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-16 09:22</a>
+不管你们怎么黑哥哥
+
+我还是要说新手C看哥哥的第一视角是提升最大的</blockquote>
+他天梯录像我每个版本想玩一的时候都会看看。
+就像路人二号位我经常看cty录像。路人习气很重，正好。
+
+*****
+
+####  格雷殿下  
+##### 13545#       发表于 2022-8-16 09:38
+
+<blockquote>nowaki 发表于 2022-8-16 09:36
+好呀好呀，在杰出动态下面评论了句，反正你复盘ame就是团队决策浪费时间干嘛，一觉醒来被拉黑了啊。
+
+看来这 ...</blockquote>
+这你不去lga发杰畜黑料暴富一下😄
+
+*****
+
+####  adretyu67  
+##### 13546#       发表于 2022-8-16 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083931&amp;ptid=2084957" target="_blank">星野航 发表于 2022-8-16 08:46</a>
+
+吹ame那早就开始了，去年就开始了
+
+客观的说，萧瑟还是很有底子的，至少在一般局别人看不出他那套整活的心 ...</blockquote>
+集美假装看不见而已。
+
+雪碧三大哥，主要就是老东京挨黑多，丫头肉和崩溃的表现实在是怪物。
+
+ti10c位表现就最夸张的就是丫头肉，老东京和崩溃都是负责给丫头肉搭台子的。
+
+*****
+
+####  星野航  
+##### 13547#       发表于 2022-8-16 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084514&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-16 10:38</a>
+集美假装看不见而已。
+
+雪碧三大哥，主要就是老东京挨黑多，丫头肉和崩溃的表现实在是怪物。</blockquote>
+所以这回连老东京都站起来暴打了，那就真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

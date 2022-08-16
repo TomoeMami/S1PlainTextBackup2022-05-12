@@ -15273,3 +15273,19 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在用伊吹冲浪 主要想刷出6绊点出被动
 
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 1435#       发表于 2022-8-16 09:32
+
+公主的素材全7至少压力不大吧，就二技能点个10自己偷着用呗，不急着挂出来
+
+*****
+
+####  霧谷藤乃  
+##### 1436#       发表于 2022-8-16 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新很缺各种技能饼干的，之前点了一波BB；而且水迦摩应该是快要11绊了
+
