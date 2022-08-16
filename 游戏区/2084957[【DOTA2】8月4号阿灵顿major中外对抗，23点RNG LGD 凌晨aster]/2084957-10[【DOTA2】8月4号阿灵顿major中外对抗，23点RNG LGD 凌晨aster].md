@@ -643,3 +643,105 @@ G3 纯纯的BP被爆
 
 G4是整个队伍已经乱了没纪律性了，从BIAN无视野冲中路树林被干，到AME中路觉得别人露线就直接跳刀上去干，都是纯纯的脑浆操作
 
+
+
+*****
+
+####  ArowRocher  
+##### 13566#       发表于 2022-8-16 10:24
+
+faithbianVLOG说ana自己都不知道自己是厨子
+
+*****
+
+####  iriyano  
+##### 13567#       发表于 2022-8-16 10:25
+
+nga偷来的
+
+Collapse:
+游戏这个版本对我来说改动得很舒服，也因此我的英雄池越来越广。不过我根本不玩一些版本答案，比如维萨吉，我玩过，只不过根本不是我的菜。
+
+我不觉得(不玩维萨吉这个英雄)我失去了什么，相反，我得到了更好的，因为我得到了更多的英雄。随着版本节奏的变化，我变得更加多变。很多人认为Faith_bian和我之间存在一些竞争，但说老实话我对Faith_bian只有尊重，并不认为我们是对立的。Faith_bian的英雄池比我多得多，他是一个非常优秀的选手。我会看他的录像。当去年TI的时候我研究了他的录像并且从他身上学到了东西。时至今日，我有时候也会借鉴一些他的想法。
+
+I feel comfortable with the meta changes cause I'm adding more and more heroes to my pool, to the heroes I consider familiar. I don’t play some meta heroes at all, like Visage for example, I played him a couple of times and realized it just wasn’t my thing.
+
+I don't feel that I've lost anything, on the contrary, I got better cause I got more heroes. With the change in the meta, I became more variable. Many people think that there is some competition between Faith Bian and me, but to be honest, I just respect him and don't consider him my rival.
+
+I respect him because he has a lot more heroes than I do in my pool, he's a pretty good player, and I've watched his replays too. When he was playing at TI, I watched his replays and learned from him. Even now, I sometimes borrow some of his ideas
+
+*****
+
+####  maju3  
+##### 13568#       发表于 2022-8-16 10:25
+
+四个快捷键的一线c
+
+*****
+
+####  坚定的团子党  
+##### 13569#       发表于 2022-8-16 10:25
+
+第二局是真的可以偷家赢的，但lgd这队先知次次都玩出异味，比李斯还差，对带线的理解仅限于拖延上高这一点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 13570#       发表于 2022-8-16 10:26
+
+看了下是被迫从莫斯科搬走的，不知道他们现在是俄奸还是乌奸
+
+*****
+
+####  pikamee  
+##### 13571#       发表于 2022-8-16 10:26
+
+克神的za ma la还真是讲的中文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  no1yaya  
+##### 13572#       发表于 2022-8-16 10:27
+
+赢了是论精神属性，输了就是死一次都会被骂atme，会被网暴，压力太大，合着这些年拿不到冠军都是网友的锅<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 13573#       发表于 2022-8-16 10:28
+
+ts整体搬塞尔维亚了  因为这个csgo分部主狙击手离队了
+
+*****
+
+####  iriyano  
+##### 13574#       发表于 2022-8-16 10:28
+
+一想到是我让哥哥没拿到TI盾的更兴奋了
+
+*****
+
+####  何然  
+##### 13575#       发表于 2022-8-16 10:28
+
+我看你们不要跳，两个月后我们哥哥卧薪尝胆上演王者归来好吧
+
+反正我先缩壳了
+
+*****
+
+####  格雷殿下  
+##### 13576#       发表于 2022-8-16 10:30
+
+<blockquote>外挂全家脚气 发表于 2022-8-16 10:19
+杰出比赛刚打完就直播复盘了，G2说LGD明明手握优势局面Y队走位失误导致局势被翻，但是都可以赢的，但整个 ...</blockquote>
+抛开光法不谈，对面两路半，小娜迦居然拿不下?一个英雄就可以分带三路上高，你守中上，下路进来就耗门牙塔了。搞隐刀羊刀啥的，对面一没注意就要被先手了，十年膀胱荣耀老粉丝，我也想玩这种爽局😄
+
+*****
+
+####  12481632  
+##### 13577#       发表于 2022-8-16 10:30
+
+我看你们不要跳，两个月后我们哥哥卧薪尝胆上演王者归来夺冠，退役，直播，结婚一条龙好吧
+反正我先缩壳了
+
