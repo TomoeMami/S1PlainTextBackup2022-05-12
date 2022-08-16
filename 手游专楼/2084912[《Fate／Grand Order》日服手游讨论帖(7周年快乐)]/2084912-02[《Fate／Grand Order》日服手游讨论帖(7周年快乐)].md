@@ -982,3 +982,99 @@ C呆还差138,779到12绊</blockquote>
 
 呆毛王硬砸，但要看发牌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1593#       发表于 2022-8-16 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093342&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 20:49</a>
+
+好强啊 我最高的C呆也才刚开第14绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆11羁绊的看着你
+
+*****
+
+####  Jamaisvu  
+##### 1594#       发表于 2022-8-16 21:07
+
+ 本帖最后由 Jamaisvu 于 2022-8-16 21:10 编辑 
+
+因为不换人本质上是想多刷几个活动从者的羁绊，所以我突发奇想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">......
+
+让水伊吹当拐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+反正一二技能都能让队友吃到，可以解决很多蓝单打手的回收和伤害问题：
+
+<img src="https://img.saraba1st.com/forum/202208/16/210419zqso10z3x3xq837e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_205008_com.excean.gspace.jpg</strong> (531.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:04 上传
+
+二宝征姐妹，第二面把技能用完的C呆换成水伊吹，开一二技能，三面不用衣服加攻就能稳定打死。
+
+<img src="https://img.saraba1st.com/forum/202208/16/210420cd0cormd387h73ud.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_205357_com.excean.gspace.jpg</strong> (532.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:04 上传
+
+二宝斋藤，伤害还是差了点，看来只能等宝具本或者补宝了...其实这里没用衣服加攻，用了一样稳定打死<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">其实这种打法挺麻烦的，换人有些慢而且可能失误...
+
+权当娱乐，之后估计还是会用回大公吧...
+
+*****
+
+####  alucardcz  
+##### 1595#       发表于 2022-8-16 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093581&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-16 21:07</a>
+
+因为不换人本质上是想多刷几个活动从者的羁绊，所以我突发奇想......
+
+让水伊吹当拐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把你的水伊换成c呆  第3面在开个衣服技能不是就够了
+
+*****
+
+####  alucardcz  
+##### 1596#       发表于 2022-8-16 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093342&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 20:49</a>
+
+好强啊 我最高的C呆也才刚开第14绊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/16/211159ix722ytzmizxrq7a.png" referrerpolicy="no-referrer">
+
+<strong>3333344.png</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">看了眼 没记错 大佬太强了居然14了
+
+*****
+
+####  Jamaisvu  
+##### 1597#       发表于 2022-8-16 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093600&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 21:09</a>
+
+你把你的水伊换成c呆  第3面在开个衣服技能不是就够了</blockquote>
+我是一面开打手技能，然后双C呆交二三技能。
+
+第二面一个C呆开一技能，然后换成水伊吹，一二技能。
+
+三面剩下的C呆开一技能充能，之后宝具打BOSS。
+
+因为打手们都不太争气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以只能出此下策了...
+

@@ -14106,3 +14106,29 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 <img src="https://img.saraba1st.com/forum/202208/16/210100ppept1b798paapf0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 2858#       发表于 2022-8-16 21:02
+
+看了圈外网，感觉内网是已经无视其他人塑造问题是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 2859#       发表于 2022-8-16 21:07
+
+现在这情势难免让人阴谋论官方是不是在试图故意人为操控人气，为了保证某人的人气一味硬捧，因为某人人气过高刻意打压，在打压过程中顺带着给另一个人捞同情分。感觉隐隐约约能看见背后各方势力的勾心斗角，相互倾轧的样子了
+
+*****
+
+####  cxj649  
+##### 2860#       发表于 2022-8-16 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093578&amp;ptid=2078110" target="_blank">qty 发表于 2022-8-16 21:07</a>
+
+现在这情势难免让人阴谋论官方是不是在试图故意人为操控人气，为了保证某人的人气一味硬捧，因为某人人气过 ...</blockquote>
+这次外网包括WW都比内网看得清，内网包括S1几个老哥自己都说只顾可可了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
