@@ -5114,3 +5114,14 @@ ana基本做不到正常中文交流，还想做翻译？<img src="https://stati
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096575&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-17 02:16</a></blockquote>
 a畜心态有问题的话，早退役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 14038#       发表于 2022-8-17 07:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">为什么会这样呢
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
