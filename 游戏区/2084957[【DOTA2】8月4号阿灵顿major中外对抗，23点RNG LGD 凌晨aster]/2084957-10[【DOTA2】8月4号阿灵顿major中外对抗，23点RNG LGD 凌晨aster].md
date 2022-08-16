@@ -3496,3 +3496,16 @@ hyz真的和ruru复合了的话，怎么都不可能跑来黑处长的
 
 带着安全ku怕是游不出外卡，今年外卡要吃人的
 
+
+
+*****
+
+####  白色的120  
+##### 13872#       发表于 2022-8-16 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090951&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-16 17:36</a>
+hyz真的和ruru复合了的话，怎么都不可能跑来黑处长的</blockquote>
+一看就是复合了，直播连线解说比赛，调情
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

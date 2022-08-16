@@ -15836,3 +15836,24 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 大妈觉得自己平安京写得非常好，于是觉得复刻一遍帮助大家回忆，她真的，我哭死
 
+
+
+*****
+
+####  alucardcz  
+##### 1491#       发表于 2022-8-16 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091013&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 17:42</a>
+
+可以，关底100w的小恩
+
+阵容地震，想不换人都不行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天你还在隔壁跟我说血量太低（
+
+*****
+
+####  霧谷藤乃  
+##### 1492#       发表于 2022-8-16 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有强力单体怎么办啊，看来只能祈祷运气好让我捞点宇津见了
+
