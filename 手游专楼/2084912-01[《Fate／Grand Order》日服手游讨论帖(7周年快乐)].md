@@ -15655,3 +15655,56 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 这rba有啥好算的，换我我也不看啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是在算传说中的绿卡红爆吗  结论是狂兰不太行  结果没人看  吹的依然在吹 还什么自选狂兰 什么时候开狂兰up池（
 
+
+
+*****
+
+####  qb0079  
+##### 1471#       发表于 2022-8-16 16:36
+
+看了c100场刊，虽然这说法很怪，但社长竟然画过fate<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1472#       发表于 2022-8-16 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时给狂兰宝具本加三个技能本你们就知道什么是狂兰神了
+
+*****
+
+####  alucardcz  
+##### 1473#       发表于 2022-8-16 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090155&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-16 16:36</a>
+
+到时给狂兰宝具本加三个技能本你们就知道什么是狂兰神了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂兰神这词是隔壁昨天最搞笑的新词了   突出一个弱智到了极点
+
+*****
+
+####  ggyy0088  
+##### 1474#       发表于 2022-8-16 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090177&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 16:37</a>
+狂兰神这词是隔壁昨天最搞笑的新词了   突出一个弱智到了极点</blockquote>
+狂兰神不是嘲讽用的老梗吗
+
+*****
+
+####  angelooo  
+##### 1475#       发表于 2022-8-16 16:41
+
+我觉得yls脑子没坏的话哪怕是再出一个狂兰马甲也不会唐突强化狂兰，有钱不赚吗（然后一帮人因为要抽新卡开始狂喷新狂兰
+
+*****
+
+####  alucardcz  
+##### 1476#       发表于 2022-8-16 16:41
+
+ 本帖最后由 alucardcz 于 2022-8-16 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090219&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2022-8-16 16:40</a>
+
+狂兰神不是嘲讽用的老梗吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不清楚  不过隔壁昨天是真的成神了（
+

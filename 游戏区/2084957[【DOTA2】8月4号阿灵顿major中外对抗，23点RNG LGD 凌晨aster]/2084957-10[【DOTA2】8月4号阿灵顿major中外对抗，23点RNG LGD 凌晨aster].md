@@ -3051,3 +3051,94 @@ hyz：小王四成锅吧，队友前面犯得错更多，对他的期待太大�
 
 好呀好呀，不愧是处长的异时空同位体，北美a处也要有皮套女友，不过皮还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nightmare902015  
+##### 13821#       发表于 2022-8-16 16:34
+
+单纯 不就是老板对自己嫡系下属委婉说 蠢逼 呗。但这个四成锅我都搞不懂正鳖是黑还是洗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 13822#       发表于 2022-8-16 16:34
+
+等一个rtz官宣和小鸽子分手的微博
+
+*****
+
+####  莉拉厨  
+##### 13823#       发表于 2022-8-16 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090003&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-16 16:26</a>
+https://www.bilibili.com/video/av814562124
+
+EG官方Vtuber出道视频
+
+小鸽子也成套皮人了我操 ...</blockquote>
+呃呃，我直接化身管人吃，首播的时候先打1000$sc当榜一老头，获取定制奥斯曼人音声<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 13824#       发表于 2022-8-16 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090003&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-16 16:26</a>
+
+EG官方Vtuber出道视频
+
+小鸽子也成套皮人了我操 ...</blockquote>
+a处骑皮套人我也骑是吧，rtz什么这个世界上的另一个我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 13825#       发表于 2022-8-16 16:37
+
+是突厥人https://twitter.com/DeputyARUUU
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  asd235614  
+##### 13826#       发表于 2022-8-16 16:39
+
+推特看了眼应该不是张天鸽，自己发了照片
+
+*****
+
+####  nightmare902015  
+##### 13827#       发表于 2022-8-16 16:39
+
+ 本帖最后由 nightmare902015 于 2022-8-16 16:40 编辑 
+
+笑了，原来是被nga带节奏了啊
+
+*****
+
+####  百世诸侯  
+##### 13828#       发表于 2022-8-16 16:39
+
+又被NGA造谣的骗了，我的
+
+*****
+
+####  反方向的波  
+##### 13829#       发表于 2022-8-16 16:40
+
+嫪毐这个《客观》真是黑的深沉
+
+*****
+
+####  遍体精淋af  
+##### 13830#       发表于 2022-8-16 16:42
+
+快进到北美a处发推
+“Thank you all for your blessings. I'll divide it when the new year comes. Don't keep asking”
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
