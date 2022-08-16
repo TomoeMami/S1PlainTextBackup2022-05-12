@@ -3509,3 +3509,25 @@ hyz真的和ruru复合了的话，怎么都不可能跑来黑处长的</blockquo
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  灰烬白羽  
+##### 13873#       发表于 2022-8-16 18:13
+
+fnc都直邀了东南亚鱼塘不是随便出线，topson去年好歹也是称霸过西欧预选的。kuku虽然菜但kpii也没好到哪去吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  尸体鲨  
+##### 13874#       发表于 2022-8-16 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089755&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-16 16:08</a>
+嘻嘻这屁话轮到老干瘪战队的量子鞭两口子说出来真是绝了啊
+
+嘻嘻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的假的，没看出来跳刀杀妈和清算前队友有多友好啊
+

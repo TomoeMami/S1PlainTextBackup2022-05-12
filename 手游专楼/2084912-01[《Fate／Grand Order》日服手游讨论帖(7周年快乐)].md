@@ -15857,3 +15857,86 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有强力单体怎么办啊，看来只能祈祷运气好让我捞点宇津见了
 
+
+
+*****
+
+####  exiaexa  
+##### 1493#       发表于 2022-8-16 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091290&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 18:06</a>
+
+前几天你还在隔壁跟我说血量太低（</blockquote>
+讲道理啊，现在因为有礼装和角色双特攻，100w
+
+啥都没有不就是40w
+
+我没奶错啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1494#       发表于 2022-8-16 18:16
+
+好消息 想太多了 根本拦不住狂娜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1495#       发表于 2022-8-16 18:17
+
+就算我有倍卡但是我没材料拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1496#       发表于 2022-8-16 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091396&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 18:16</a>
+
+好消息 想太多了 根本拦不住狂娜</blockquote>
+说区区40w你们怂个啥嘛
+
+当年40w黑呆都能用圣诞阿提拉强杀
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1497#       发表于 2022-8-16 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091414&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-16 18:18</a>
+
+说区区40w你们怂个啥嘛
+
+当年40w黑呆都能用圣诞阿提拉强杀</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/16/181918k6lzx212bdl8k2kk.jpg" referrerpolicy="no-referrer">
+
+<strong>333333.jpg</strong> (484.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 18:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100万不行啊 丢人的  就怕个红down miss
+
+*****
+
+####  kiralzb  
+##### 1498#       发表于 2022-8-16 18:21
+
+伊吹这灵衣为啥不用CG做卡图，我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1499#       发表于 2022-8-16 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57091426&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-16 18:19</a>
+
+100万不行啊 丢人的  就怕个红down miss</blockquote>
+为了防止红DOWS miss当然是一切战术转红爆啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
