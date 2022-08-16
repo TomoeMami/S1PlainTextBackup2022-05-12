@@ -2914,3 +2914,14 @@ mea居然跑去给b站的22、33生日唱了首歌
 
 一脸懵逼
 
+
+
+*****
+
+####  楚暮秦朝  
+##### 12315#       发表于 2022-8-16 17:42
+
+这歌可以，挺配的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15811,3 +15811,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 阵容地震，想不换人都不行了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1488#       发表于 2022-8-16 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">111，高宝狂大公唯一神？
+
