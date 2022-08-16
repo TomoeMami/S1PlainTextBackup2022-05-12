@@ -244,3 +244,43 @@ navi吐了
 
 查看全部评分
 
+
+
+*****
+
+####  星野航  
+##### 13526#       发表于 2022-8-16 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084032&amp;ptid=2084957" target="_blank">白色的120 发表于 2022-8-16 09:56</a>
+乐，“决赛bo5，仅在胜冠2:3惜败时加单一局bo1定胜负”</blockquote>
+nb wings点了踩？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  walfeds  
+##### 13527#       发表于 2022-8-16 09:16
+
+建议bo服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胜者组冠军打到总分赢为止好吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13528#       发表于 2022-8-16 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084156&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-15 21:09</a>
+[https://space.bilibili.com/43336874/search/video?keyword=cdec](https://space.bilibili.com/43336874/search/video?keyword=cdec)
+
+学吧，学无止境</blockquote>
+这是ti9后的集锦吗，我还以为你们之前说的是很早以前cdec.y那段时候的，真畜力满满啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 13529#       发表于 2022-8-16 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">怎么不直接来个追偿机制，以后胜者组亚军和败者组冠军打的每一次比赛都计入ti决赛的分数，所以现在lgd：ts是7：6，直接追授lgdti10冠军
+
