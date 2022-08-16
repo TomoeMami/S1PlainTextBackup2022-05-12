@@ -15790,3 +15790,24 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 我觉得伊吹这个金眼版本放宝具时比原版帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 1486#       发表于 2022-8-16 17:33
+
+90++周回本出世<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  exiaexa  
+##### 1487#       发表于 2022-8-16 17:42
+
+可以，关底100w的小恩
+
+阵容地震，想不换人都不行了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

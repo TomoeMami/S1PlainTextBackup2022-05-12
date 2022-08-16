@@ -14056,3 +14056,17 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  cxj649  
+##### 2854#       发表于 2022-8-16 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57087778&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-16 13:20</a>
+
+还有堇啊，赚足同情分，二季结束说不定能坐到第二，可可不掉到第三档都算谢天谢地了 ...</blockquote>
+你还是下意识无视掉我大香音
+
+可可也就个人的问题，大香老师可是带崩全队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
