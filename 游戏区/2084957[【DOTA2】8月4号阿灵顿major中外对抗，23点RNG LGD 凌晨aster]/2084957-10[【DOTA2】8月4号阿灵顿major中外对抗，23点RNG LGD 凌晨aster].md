@@ -555,3 +555,91 @@ ti10c位表现就最夸张的就是丫头肉，老东京和崩溃都是负责给
 
 我记得那时候跟xm打，掀背把把玩巨魔大圣，站不出来基本就寄
 
+
+
+*****
+
+####  adretyu67  
+##### 13558#       发表于 2022-8-16 10:12
+
+cdec那段时间线劣自己抗玩大核自己刷自己的多点吧。可能是我补水补多了记忆修正了。
+
+反正横竖都是输，没啥区别。
+
+*****
+
+####  12481632  
+##### 13559#       发表于 2022-8-16 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084630&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-16 09:46</a>
+猴爹每晚睡不着的时候就应该看看当初自己火枪单杀畜长敌法的切片治疗精神内耗 ...</blockquote>
+
+错点到回复了。。
+
+<img src="https://p.sda1.dev/6/a631e0d9de08046aae8437d3854983b5/CMP_20220816101302584.jpg" referrerpolicy="no-referrer">
+
+说心态不行的呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 13560#       发表于 2022-8-16 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084338&amp;ptid=2084957" target="_blank">星野航 发表于 2022-8-16 09:25</a>
+
+萧瑟肯定是守门员c，至少比油神的c强不少
+
+说是近几年cn第一c也合理，但这毕竟是因为cn没人
+
+跟ti冠军 ...</blockquote>
+TI冠军也有fear这种的啊，能力差点不是问题，知道自己该干啥有时候已经够了。
+
+
+
+*****
+
+####  adretyu67  
+##### 13561#       发表于 2022-8-16 10:14
+
+猴子爹心态崩了关量子鞭什么事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 13562#       发表于 2022-8-16 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">sg线报，赛后自助餐lgd去都没去
+
+大概就是餐会上上帝和鳖星合影的吧
+
+*****
+
+####  pikamee  
+##### 13563#       发表于 2022-8-16 10:19
+
+ceb还抽空念了个master
+
+*****
+
+####  zsu222  
+##### 13564#       发表于 2022-8-16 10:19
+
+我觉得最难崩的是   天天吹现代DOTA  尼玛么么鳖玩娜迦还TM手点幻象分路走 给我看傻了
+
+*****
+
+####  外挂全家脚气  
+##### 13565#       发表于 2022-8-16 10:19
+
+ 本帖最后由 外挂全家脚气 于 2022-8-16 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084480&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-16 09:36</a>
+
+好呀好呀，在杰出动态下面评论了句，反正你复盘ame就是团队决策浪费时间干嘛，一觉醒来被拉黑了啊。
+
+看来这 ...</blockquote>
+杰出比赛刚打完就直播复盘了，G2说LGD明明手握优势局面Y队走位失误导致局势被翻，但是都可以赢的，但整个队伍直到73分钟才有人（XINQ）想起他们完全可以正面拉扯然后转偷家的，但是整个队伍就没人想这条路（莫言可能光法玩得不多不知道魔晶机制）
+
+G3 纯纯的BP被爆
+
+G4是整个队伍已经乱了没纪律性了，从BIAN无视野冲中路树林被干，到AME中路觉得别人露线就直接跳刀上去干，都是纯纯的脑浆操作
+
