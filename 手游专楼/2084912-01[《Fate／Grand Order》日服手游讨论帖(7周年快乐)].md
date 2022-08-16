@@ -15243,3 +15243,33 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">术酒吞 圣诞羽蛇神那种就挺有趣的 现在俩彩蛋全是鹤小姐同款吐舌 不想加可以不加
 
+
+
+*****
+
+####  angelooo  
+##### 1431#       发表于 2022-8-16 09:24
+
+怎么感觉新厂的建模组都开始摸鱼了（并没有说部分画师没有摸鱼
+
+*****
+
+####  qixinno2  
+##### 1432#       发表于 2022-8-16 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">今年社长摸得不行 目前只有公主和复制人泳装女武神
+
+*****
+
+####  霧谷藤乃  
+##### 1433#       发表于 2022-8-16 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这90本说是公主体验本，但是我公主根本没点技能，只好看水迦摩爆大数字了
+
+*****
+
+####  qixinno2  
+##### 1434#       发表于 2022-8-16 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在用伊吹冲浪 主要想刷出6绊点出被动
+

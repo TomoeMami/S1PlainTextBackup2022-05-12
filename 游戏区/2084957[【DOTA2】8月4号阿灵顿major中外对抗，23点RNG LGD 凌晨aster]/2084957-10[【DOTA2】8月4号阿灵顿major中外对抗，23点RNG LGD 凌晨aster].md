@@ -284,3 +284,96 @@ nb wings点了踩？<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">怎么不直接来个追偿机制，以后胜者组亚军和败者组冠军打的每一次比赛都计入ti决赛的分数，所以现在lgd：ts是7：6，直接追授lgdti10冠军
 
+
+
+*****
+
+####  星野航  
+##### 13530#       发表于 2022-8-16 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084279&amp;ptid=2084957" target="_blank">大弹涂鱼潜伏 发表于 2022-8-16 10:20</a>
+这是ti9后的集锦吗，我还以为你们之前说的是很早以前cdec.y那段时候的，真畜力满满啊 ...</blockquote>
+不止，那基本是萧瑟畜力合计
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  何然  
+##### 13531#       发表于 2022-8-16 09:22
+
+不管你们怎么黑哥哥
+
+我还是要说新手C看哥哥的第一视角是提升最大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尸体鲨  
+##### 13532#       发表于 2022-8-16 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面有说AME算门槛C，个人感觉说他算第一档C也说得过去，但是心脏不大戏瘾重，喜欢装最懂Dota2的，在最高强度的对抗里面容易成为突破点。喜欢赌机会，但是自己又没那个能力把握机会，然后就送了，总结为对ana拙劣的模仿
+
+*****
+
+####  refiver  
+##### 13533#       发表于 2022-8-16 09:24
+
+任何一种选拔制度都会有其相应的代价，双败让慢热队伍更有机会和能决出真正的实力者以外代价就是胜者组冠军凭空少了一条命
+
+目前没有完美的赛制，相对科学的瑞士轮我记得在DOTA推过，一是DOTA赛程时间久打完瑞士轮能把人累死，二是从解说到观众都狂骂看不懂所以没推了
+
+*****
+
+####  星野航  
+##### 13534#       发表于 2022-8-16 09:25
+
+萧瑟肯定是守门员c，至少比油神的c强不少
+说是近几年cn第一c也合理，但这毕竟是因为cn没人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+跟ti冠军级别看，那是真不行
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  恐怖利刃  
+##### 13535#       发表于 2022-8-16 09:26
+
+好几波都是差一点击杀对面核心，就是菜判断出问题还是运气不好
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 13536#       发表于 2022-8-16 09:27
+
+我只知道这届major牙托落崩溃哥还有faithbian是真的亮眼
+
+*****
+
+####  朝游北海  
+##### 13537#       发表于 2022-8-16 09:29
+
+讲道理，你看看国内这帮人，ame算个人了，莫奈之流连人都不是
+
+*****
+
+####  掉头学姐  
+##### 13538#       发表于 2022-8-16 09:29
+
+讲真，当初信任下眼少，等个眼少cd和大赛发挥，说不定能成第二个老fear
+
+*****
+
+####  遍体精淋af  
+##### 13539#       发表于 2022-8-16 09:30
+
+不光是比不了冠军c，处长在历届的亚军c里面也是一言难尽的存在，可能只比uuu9好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说赵云太猛了两次把处长抬到决赛舞台
+
+*****
+
+####  哈萨维·诺亚  
+##### 13540#       发表于 2022-8-16 09:31
+
+最屌的亚军C是谁？ 眼少吧
+
