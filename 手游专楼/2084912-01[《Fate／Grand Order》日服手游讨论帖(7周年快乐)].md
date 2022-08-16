@@ -15381,3 +15381,16 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  angelooo  
+##### 1446#       发表于 2022-8-16 11:19
+
+<blockquote>poor 发表于 2022-8-16 11:08
+但是你游冠位有特别强的吗？梅林应该不算冠位
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅 ...</blockquote>
+要给他们一些幻想，冠位目前好像还没绿卡23333
+

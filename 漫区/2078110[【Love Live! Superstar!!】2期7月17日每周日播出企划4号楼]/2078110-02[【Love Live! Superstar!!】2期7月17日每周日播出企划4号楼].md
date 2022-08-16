@@ -13735,3 +13735,19 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 
 看了看片段乐了，这个新式组合应该叫欢喜冤种吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GGnob  
+##### 2827#       发表于 2022-8-16 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083615&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-16 07:57</a>
+
+5. 名無しライバーさん:2022/08/15(月) 13:47:00
+
+璃奈「すみれちゃん、ニジガク来ない？」
+
+璃奈「堇酱，来 ...</blockquote>
+早该去虹咲了，去同好会不仅资源拉满还送体贴温柔的粉毛loli老婆，家庭事业双丰收，不比在啥也没有的结丘天天挨灰毛骂强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
