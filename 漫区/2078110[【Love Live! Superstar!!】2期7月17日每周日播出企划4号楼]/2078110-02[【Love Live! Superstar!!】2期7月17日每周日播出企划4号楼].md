@@ -13655,3 +13655,12 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 我第一反应也是这个，我寻思大家卑女梗玩的这么欢应该没多大事吧</blockquote>
 或许有不少人觉得这话对一些角色可以用，对堇就不可以（或者说不适合）用吧，尤其是在星团现在这个情况下……
 
+
+
+*****
+
+####  ViyViy  
+##### 2819#       发表于 2022-8-16 08:43
+
+我记得花田大师是有推的来着，就现在这情况他的推文下是不是很热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
