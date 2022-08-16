@@ -775,3 +775,14 @@ ETA PRIME 这个移动硬盘盒有点帅。
 
 一路看下来，所以想在掌机上玩PS3的VF5，exvsFB依然没有希望是吗？
 
+
+
+*****
+
+####  慕容断月  
+##### 67#       发表于 2022-8-16 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090473&amp;ptid=2086469" target="_blank">savagealexander 发表于 2022-8-16 16:57</a>
+一路看下来，所以想在掌机上玩PS3的VF5，exvsFB依然没有希望是吗？</blockquote>
+看sd的测试视频呗，或者让有的坛友帮忙测试下
+

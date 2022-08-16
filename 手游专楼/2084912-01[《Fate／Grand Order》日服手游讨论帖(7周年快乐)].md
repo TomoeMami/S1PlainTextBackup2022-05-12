@@ -15757,3 +15757,36 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在运营策略肯定不会大幅强化旧卡出弱新卡了吧，就水着这三五星拉宝具来看，还是钱重要啊
 
+
+
+*****
+
+####  qb0079  
+##### 1482#       发表于 2022-8-16 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">女武神满破，社长竟然画了3张，加灵衣难道是6张？
+
+*****
+
+####  qb0079  
+##### 1483#       发表于 2022-8-16 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心90++关底100W血小恩
+
+*****
+
+####  kiralzb  
+##### 1484#       发表于 2022-8-16 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57090868&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-16 17:27</a>
+
+女武神满破，社长竟然画了3张，加灵衣难道是6张？</blockquote>
+什么，之前随口说的居然成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1485#       发表于 2022-8-16 17:32
+
+我觉得伊吹这个金眼版本放宝具时比原版帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
