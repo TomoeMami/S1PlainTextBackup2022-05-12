@@ -1540,3 +1540,22 @@ Fami通
 用阿荣刷，要换人，终于用上之前推主线给的新服装，正面还挺帅的，就是这经验值怎么需要这么多 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多么仁慈，可以支持你换好久的人了
 
+
+
+*****
+
+####  kiralzb  
+##### 1634#       发表于 2022-8-17 00:58
+
+这天然冰需求意外的少啊，之后助战放什么礼装比较容易骗友情点啊，总之就是非常缺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1635#       发表于 2022-8-17 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096011&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-17 00:29</a>
+
+多么仁慈，可以支持你换好久的人了</blockquote>
+然而现在周回都讲究不换人，看不到尽头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
