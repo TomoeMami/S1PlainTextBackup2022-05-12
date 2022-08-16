@@ -1212,3 +1212,97 @@ C呆还差138,779到12绊</blockquote>
 你操作不对 满破礼装2宝就可以 不换人3t  隔壁都试了</blockquote>
 谢谢提醒，搜了一下好像用的是2004断片那身衣服，三技能NP率、一技能宝威，确实挺适合的。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1608#       发表于 2022-8-16 21:43
+
+ 本帖最后由 Jamaisvu 于 2022-8-16 21:49 编辑 
+
+话说刚才搜到一个很好玩的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+满NP被动道满+满NP被动倍卡金时+奥伯龙，衣服用总耶校服。
+
+一面对着僵尸用衣服二技能提高即死率，道满开三技能放宝具，宝具即死，过。
+
+（好吧，此处好像不太稳定，还是偏娱乐向...）
+
+二面奥伯龙一技能+衣服三技能给金时，宝具糊脸。
+
+三面金时一二技能+奥伯龙二三技能+衣服一技能，通关。
+
+属于是不换人不稳定3T<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不推荐，但是看着挺有意思。
+
+自己试了一下：
+
+<img src="https://img.saraba1st.com/forum/202208/16/214650n7ld41w7478zzh8p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_214523_com.excean.gspace.jpg</strong> (504.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/214651iethcdwcvuzbfa1w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_214546_com.excean.gspace.jpg</strong> (559.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/214652iuthqs401f2ttk93.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220816_214617_com.excean.gspace.jpg</strong> (524.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:46 上传
+
+三面顺手开了道满一技能，二宝金时伤害绝对是溢出的，不想用蓝卡队或者换人的朋友也许可以试试？
+
+（但是即死真的不能保证稳定...）
+
+*****
+
+####  gpx234mqx  
+##### 1609#       发表于 2022-8-16 21:47
+
+Fami通
+
+一堆没实装角色
+
+<img src="https://img.saraba1st.com/forum/202208/16/214719rozj4mi972r77xi9.jpg" referrerpolicy="no-referrer">
+
+<strong>i_wf0825_040.jpg</strong> (507.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:47 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/214720ilolaa8upuui8mja.jpg" referrerpolicy="no-referrer">
+
+<strong>i_wf0825_041.jpg</strong> (454.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:47 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/214703y2q32qz3bk54bhq8.jpg" referrerpolicy="no-referrer">
+
+<strong>i_wf0825_042.jpg</strong> (540.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:47 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/214703qc9ngg941udd2fnf.jpg" referrerpolicy="no-referrer">
+
+<strong>i_wf0825_043.jpg</strong> (565.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 21:47 上传
+

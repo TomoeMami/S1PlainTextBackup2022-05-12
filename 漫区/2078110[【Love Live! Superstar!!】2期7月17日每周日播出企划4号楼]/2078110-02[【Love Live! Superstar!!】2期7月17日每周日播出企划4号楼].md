@@ -14255,3 +14255,40 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 是说内网S1 贴吧的网友</blockquote>
 毕竟现在女儿都给官方弄成这样，自己都顾不过来，哪有空顾别人？其实谁愿意这样？谁都不愿意这样。但现在就是内网一播完先车可可几天，你觉得可推就好受吗？那精力不就是也放在去沟通去交流，其他角色想讨论啊，某些个人听吗？
 
+
+
+*****
+
+####  iuhehc  
+##### 2871#       发表于 2022-8-16 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093836&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-8-16 21:28</a>
+比想象中还要牛逼...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">意料之中咯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 2872#       发表于 2022-8-16 21:45
+
+ 本帖最后由 Enakina 于 2022-8-16 21:48 编辑 
+
+这评分，太厉害了
+有机会在低一点吗（）
+
+*****
+
+####  寒风夜  
+##### 2873#       发表于 2022-8-16 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企划这次对动画力度期望这么大，一公布就动画啊，初代阵容，还首个中国人加人，从3话过后一路走低，来个这个地步，难堪哦
+
+*****
+
+####  lj205  
+##### 2874#       发表于 2022-8-16 21:48
+
+自己造的孽，还开蛋？可惜几个姑娘们
+

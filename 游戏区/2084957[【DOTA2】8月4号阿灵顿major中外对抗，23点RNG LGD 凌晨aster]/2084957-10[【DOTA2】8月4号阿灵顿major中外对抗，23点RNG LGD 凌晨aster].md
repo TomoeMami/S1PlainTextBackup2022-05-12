@@ -4274,3 +4274,24 @@ TB不是对线打VIPER的么
 
 处长的线上就不要指望了吧，典中典之养怪物。
 
+
+
+*****
+
+####  hcf220  
+##### 13952#       发表于 2022-8-16 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57093761&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-16 21:22</a>
+
+客观点来讲，ame到关键局（他越是关键局越喜欢当小丑）不如一个心理素质够硬的2000分选手，我是2000分选 ...</blockquote>
+一个猜想，有点胡扯。
+
+就我感觉他的打法是当时lgd一系肌肉dota的延续，他强的点是肌肉dota需要的打钱刷装备能力和莽夫能力。他的打钱能力是他能在cndota屹立不倒的主要原因，而他的莽夫能力是他跟超哥他们一起养成的习惯(甚至觉得是心理状态）。
+
+*****
+
+####  nakeroudaibe  
+##### 13953#       发表于 2022-8-16 21:50
+
+娜迦打主猪的兽王好打，但是崩溃哥直接主斧头不升猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
