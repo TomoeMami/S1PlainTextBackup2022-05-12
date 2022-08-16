@@ -2599,3 +2599,22 @@ hyz这复盘G2就是处刑bian是吧</blockquote>
 
 IG至少证明了自己有不会怎么崩的大心脏，在这个3号位版本JT应该还是能有所发挥，剩下的就是期望FY的加入能起点好的化学反应吧
 
+
+
+*****
+
+####  maju3  
+##### 13773#       发表于 2022-8-16 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57089069&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-16 15:07</a>
+
+倒csgo的安特卫普胶囊就行，前几天7折左右</blockquote>
+一般用啥平台啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 13774#       发表于 2022-8-16 15:21
+
+惊了啊王志勇还能排到天梯第一的吗
+
