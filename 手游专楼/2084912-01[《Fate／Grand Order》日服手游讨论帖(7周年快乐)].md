@@ -15448,3 +15448,17 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 羡慕，我都还未见过小黑呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">友情池抽多了总会出的
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1452#       发表于 2022-8-16 12:54
+
+<blockquote>引用第1444楼poor于2022-08-16 11:08发表的  :
+
+引用:angelooo 发表于 2022-8-16 11:04所以我建议他们开始吃烟雾镜的桃子，希望......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓阶暴击猩猩还是很强的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

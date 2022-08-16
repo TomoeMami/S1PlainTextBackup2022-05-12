@@ -2847,3 +2847,14 @@ mea居然跑去给b站的22、33生日唱了首歌
 
 要做德川家康
 
+
+
+*****
+
+####  ashero  
+##### 12308#       发表于 2022-8-16 12:57
+
+就是那个苦情
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
