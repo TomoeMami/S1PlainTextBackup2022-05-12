@@ -15741,3 +15741,19 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 还是你对隔壁的爱比较深 （</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前看到过印象比较深
 
+
+
+*****
+
+####  quanlix  
+##### 1480#       发表于 2022-8-16 16:53
+
+看这ui布局，好像就这么多建筑了
+
+*****
+
+####  霧谷藤乃  
+##### 1481#       发表于 2022-8-16 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在运营策略肯定不会大幅强化旧卡出弱新卡了吧，就水着这三五星拉宝具来看，还是钱重要啊
+
