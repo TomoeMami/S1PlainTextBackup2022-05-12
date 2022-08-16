@@ -15394,3 +15394,12 @@ rba的攻击模组有点失望，感觉有点敷衍，那条大鱼有点吓人
 —— 来自 vivo V1981A, Android 11上的 S1Next-鹅 ...</blockquote>
 要给他们一些幻想，冠位目前好像还没绿卡23333
 
+
+
+*****
+
+####  qixinno2  
+##### 1447#       发表于 2022-8-16 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹 想友情池抽三星礼装满破 结果出了小黑 瞬间感觉少了一个五星
+

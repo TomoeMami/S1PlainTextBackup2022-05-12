@@ -13751,3 +13751,15 @@ https://www.bilibili.com/read/mobile?id=18117786     这玩意，真的假�
 璃奈「堇酱，来 ...</blockquote>
 早该去虹咲了，去同好会不仅资源拉满还送体贴温柔的粉毛loli老婆，家庭事业双丰收，不比在啥也没有的结丘天天挨灰毛骂强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 2828#       发表于 2022-8-16 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085903&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-8-16 11:15</a>
+
+早该去虹咲了，去同好会不仅资源拉满还送体贴温柔的粉毛loli老婆，家庭事业双丰收，不比在啥也没有的结丘 ...</blockquote>
+那确实，堇走了，可可也不用再嘴臭了，都得救了，皆大欢喜啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

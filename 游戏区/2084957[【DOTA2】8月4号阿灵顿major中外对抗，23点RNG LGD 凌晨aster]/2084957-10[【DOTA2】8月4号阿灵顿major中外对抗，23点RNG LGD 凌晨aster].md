@@ -1119,3 +1119,64 @@ lgd就是硬实力不行，不走偏门碰不过雪碧。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  反方向的波  
+##### 13618#       发表于 2022-8-16 11:22
+
+ 本帖最后由 反方向的波 于 2022-8-16 11:25 编辑 
+
+<img src="https://p.sda1.dev/6/c39f7cb19b2099817d6f98172ee1c57d/CMP_20220816111830052.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">窝看开了，肌肉xx现代xx不过就是另一种硬实力doto。残阵entity给队里两个3号位的配置实践出了一套有可行性更能打到小组第二 进了败者组也能连过两关的思路，最后还是成了肌肉doto
+
+*****
+
+####  seki_m  
+##### 13619#       发表于 2022-8-16 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57085828&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-16 11:09</a>
+
+AME是菜
+
+另外我真诚的希望CN能出个比AME强的C，MONET漏油都不信，飞飞本来新加坡MAJOR看得出大心脏，结果T ...</blockquote>
+lou可能有机会，shiro我觉得也可以
+
+*****
+
+####  adretyu67  
+##### 13620#       发表于 2022-8-16 11:28
+
+有没有一种可能，只有lgd打赢了的团才叫现代dota，除此以外的都是肌肉dota
+
+
+
+*****
+
+####  沈淮  
+##### 13621#         楼主| 发表于 2022-8-16 11:29
+
+有没有一种可能，只有lgd打赢了的团才叫现代dota，除此以外的都是肌肉dota
+
+*****
+
+####  c88711611  
+##### 13622#       发表于 2022-8-16 11:31
+
+现代dota不就是要跟以前的lgd切割么，方便集美岁月史书<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 13623#       发表于 2022-8-16 11:32
+
+有没有一种可能，只有lgd打赢了的团才叫现代dota，除此以外的都是肌肉dota
+
+*****
+
+####  朝游北海  
+##### 13624#       发表于 2022-8-16 11:32
+
+楼的英雄池问题很大的，不过目前倒没看见什么特别拉的名场面
+
