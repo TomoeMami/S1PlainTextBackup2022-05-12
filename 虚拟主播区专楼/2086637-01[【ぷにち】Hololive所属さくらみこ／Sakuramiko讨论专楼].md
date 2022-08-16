@@ -2010,3 +2010,53 @@ nene说miko家上面停了一架直升机
 
 botan精准射死miko
 
+
+
+*****
+
+####  holoan  
+##### 192#         楼主| 发表于 2022-8-16 13:36
+
+ame射掉miko 已经在敲砖块了
+
+*****
+
+####  holoan  
+##### 193#         楼主| 发表于 2022-8-16 13:37
+
+ame最少向miko射了4次，一个人一共就7支箭
+
+*****
+
+####  rs5621  
+##### 194#       发表于 2022-8-16 13:38
+
+都放水了没几个人射，安全爬到顶上。结果miko自己掉下来了？
+
+*****
+
+####  holoan  
+##### 195#         楼主| 发表于 2022-8-16 13:40
+
+ 本帖最后由 holoan 于 2022-8-16 13:41 编辑 
+
+感觉是ame射到了没站稳直接掉下来了
+
+因为在敲砖所以站得比较外面
+
+<img src="https://img.saraba1st.com/forum/202208/16/134137tgf9u6bj5pbrby7g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 13:41 上传
+
+<img src="https://img.saraba1st.com/forum/202208/16/134146i17clowouljeoql1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (232.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-16 13:41 上传
+

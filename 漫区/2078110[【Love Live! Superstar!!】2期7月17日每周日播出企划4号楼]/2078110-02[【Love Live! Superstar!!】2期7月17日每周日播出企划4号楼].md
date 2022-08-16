@@ -13891,3 +13891,15 @@ Nagi回归的时间有说是什么时候吗？
 草，看人说别人全在退步，恋一直在原地踏步，反而算进步了，花田，是你守护了恋吗，你好温柔 ...</blockquote>
 还有堇啊，赚足同情分，二季结束说不定能坐到第二，可可不掉到第三档都算谢天谢地了
 
+
+
+*****
+
+####  JustW_3  
+##### 2839#       发表于 2022-8-16 13:33
+
+ 本帖最后由 JustW_3 于 2022-8-16 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57086765&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-16 12:07</a>
+很努力在救了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直球借角色之口反驳剧中形象，已经是觉得救不了了吧，觉得能救的话像以前一样编个善意解释就好。这已经是在表达自己脑中形象和剧中形象要割席了。
+
