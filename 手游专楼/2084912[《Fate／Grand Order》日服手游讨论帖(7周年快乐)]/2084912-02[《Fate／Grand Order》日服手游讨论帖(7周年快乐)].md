@@ -1580,3 +1580,12 @@ Fami通
 
 没满破礼装好像都要换人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 1638#       发表于 2022-8-17 08:50
+
+研究了好几把现在决定就用大公了，都是3宝回收更稳，用阿一的话还要换人或绑定个加np的衣服，用大公还能继续练练极地服
+

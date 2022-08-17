@@ -5341,3 +5341,24 @@ ame在打apex呢，心态好的很
 
 哇，还在apex啊。早知道我玩暴雷去火化他的骨灰盒了
 
+
+
+*****
+
+####  joker9527  
+##### 14061#       发表于 2022-8-17 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097307&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-17 08:23</a>
+
+3打5和先手不开BKB的另一种解释，不愧是集美，处长估计也是这么想的
+
+只要处长一直保持畜中畜的状态，那就 ...</blockquote>
+ti8 g4水人波高地也是为了骗斧王交吼 猴子交买活是吧
+
+*****
+
+####  哈萨维·诺亚  
+##### 14062#       发表于 2022-8-17 08:51
+
+骗水友可以 别把自己给骗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
