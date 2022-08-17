@@ -3029,3 +3029,40 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">是什么蒙蔽了我的双眼
 
+
+
+*****
+
+####  areklose  
+##### 1776#       发表于 2022-8-17 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，点数够换2张卡满破了。一张都没掉过。这合理吗
+
+*****
+
+####  天王寺凯伊姆  
+##### 1777#       发表于 2022-8-17 22:44
+
+ 本帖最后由 天王寺凯伊姆 于 2022-8-17 22:48 编辑 
+
+就拿这个90++本，我看到的bx单核双rba+cba回收39，我还是觉得去押发牌员不靠谱，不知道wrba和c呆组合怎么样。当然，主要我这个号除了荚膜没什么单体打手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 1778#       发表于 2022-8-17 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110344&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-17 22:36</a>
+可是我200抽五星都出了2个诶，其他四星也一个没歪</blockquote>
+我国服5宝仇凛，简才3宝，这游戏就是这样，什么都有可能发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1779#       发表于 2022-8-17 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110459&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-8-17 22:44</a>
+
+就拿这个90++本，我看到的bx单核双rba+cba回收39，我还是觉得去押发牌员不靠谱，不知道wrba和c呆组合怎么样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找个30充的开被动强行2宝具  1面打暴击 例如总司
+

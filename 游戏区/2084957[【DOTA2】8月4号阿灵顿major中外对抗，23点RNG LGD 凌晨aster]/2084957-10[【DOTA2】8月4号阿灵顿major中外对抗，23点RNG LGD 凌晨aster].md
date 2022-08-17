@@ -8400,3 +8400,24 @@ og这个ceo也有点意思，明面上是20年年中才当的ceo，但是跟老o
 
 今天还没出本子，玉玉了
 
+
+
+*****
+
+####  十年八月  
+##### 14385#       发表于 2022-8-17 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109678&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-17 21:57</a>
+
+说颜值怎么能没我皮鞋
+
+会做发型后真的帅</blockquote>
+皮鞋那叫做发型？那是在陈清的医院做了一万个项目了吧
+
+*****
+
+####  ArowRocher  
+##### 14386#       发表于 2022-8-17 22:50
+
+<img src="https://p.sda1.dev/6/616eae7df4f8fd9ba7a7584dd359e0ba/8xQ2q-7a1ZbT3cSqo-t4.webp" referrerpolicy="no-referrer">
+

@@ -951,3 +951,14 @@ Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w�
 
 ayaneo air目前为止玩了快两周了，电量还是最大的痛点。
 
+
+
+*****
+
+####  yoyodty  
+##### 83#       发表于 2022-8-17 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57084111&amp;ptid=2086469" target="_blank">weare17k 发表于 2022-8-16 09:04</a>
+绿x的256sd上周五到货，痛玩几天，除了体积大占背包空间以外，重量握持手感屏幕性能游玩等等各方面体验都非 ...</blockquote>
+现在绿x sd 价格如何，有降一些么
+
