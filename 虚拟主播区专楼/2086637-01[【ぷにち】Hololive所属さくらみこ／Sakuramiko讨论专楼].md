@@ -2782,3 +2782,29 @@ MC的印象太深了其他的事件都忘了
 
 盗摄拍了几张露娜,给了坨恩济就跑了还行
 
+
+
+*****
+
+####  holoan  
+##### 262#         楼主| 发表于 2022-8-17 23:51
+
+跑回来教新人开游戏语音了
+
+*****
+
+####  rs5621  
+##### 263#       发表于 2022-8-17 23:55
+
+ 本帖最后由 rs5621 于 2022-8-17 23:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">miko又回来,手把手教新人露娜,弹幕看不下去了
+
+<img src="https://img.saraba1st.com/forum/202208/17/235728nky2smqvs00kdmtt.png" referrerpolicy="no-referrer">
+
+<strong>OMRM~(U9C5IQC`KIZ$HO1~B.png</strong> (3.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 23:57 上传
+
