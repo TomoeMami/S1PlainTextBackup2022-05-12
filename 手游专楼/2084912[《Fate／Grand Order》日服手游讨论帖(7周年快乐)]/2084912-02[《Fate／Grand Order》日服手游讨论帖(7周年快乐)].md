@@ -2604,3 +2604,37 @@ rba3破满破都差口气
 
 人品守恒定律是不存在的....只要别保底就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1738#       发表于 2022-8-17 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108662&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-17 21:01</a>
+
+抽公主前仓的加上周年送的有1600多石头和100多张护符
+
+现在仓库里多了2宝公主....1宝梅莉和水CBA.....还剩4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕  萌新0石了 甚至没有梅莉
+
+*****
+
+####  森兰丸  
+##### 1739#       发表于 2022-8-17 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108702&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 21:03</a>
+
+羡慕  萌新0石了 甚至没有梅莉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非洲人之前都差不多要1年没抽卡了
+
+*****
+
+####  qixinno2  
+##### 1740#       发表于 2022-8-17 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108702&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 21:03</a>
+
+羡慕  萌新0石了 甚至没有梅莉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕萌新有RBA
+

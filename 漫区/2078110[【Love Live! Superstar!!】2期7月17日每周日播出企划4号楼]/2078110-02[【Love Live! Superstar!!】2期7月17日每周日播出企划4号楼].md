@@ -15565,3 +15565,21 @@ FC的看板娘，鲤酱的周边也登场啦！
 
 像P过后的她
 
+
+
+*****
+
+####  lj205  
+##### 2985#       发表于 2022-8-17 21:08
+
+卧槽卧槽，我以为鲤鱼唠嗑会没戏了，没想到A店中了
+
+*****
+
+####  cybernetics31  
+##### 2986#       发表于 2022-8-17 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108767&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 21:08</a>
+卧槽卧槽，我以为鲤鱼唠嗑会没戏了，没想到A店中了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人品守恒，群里看到过a店一个没中的………………
+

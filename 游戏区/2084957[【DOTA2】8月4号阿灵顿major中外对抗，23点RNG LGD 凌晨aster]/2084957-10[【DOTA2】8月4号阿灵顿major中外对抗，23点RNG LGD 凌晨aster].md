@@ -8147,3 +8147,22 @@ jj事发前，很多粉丝啊，事发以后，有人直接开骂新加坡炮王
 <img src="https://p.sda1.dev/6/923692df15900826e727a9aea1b1da67/CMP_20220817210005560.jpg" referrerpolicy="no-referrer">
 感觉克神也被k1吸干了，现在不如ti9这般的阳光
 
+
+
+*****
+
+####  修罗王  
+##### 14358#       发表于 2022-8-17 21:02
+
+想到16年初的辉夜杯时傻狗论坛颜值投票ame力压sylarfy登顶，到现在又是鞋拔子又是巩汉林，只能说傻狗的审美观是个很搞笑的东西
+
+*****
+
+####  joker9527  
+##### 14359#       发表于 2022-8-17 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108441&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-17 20:49</a>
+
+不如回顾下皮球经典贴吧，漏油们。[白头] 稳得仿佛失去过什么（亲ma）一样[/backc ...</blockquote>
+这是真皮球嘛？ 
+
