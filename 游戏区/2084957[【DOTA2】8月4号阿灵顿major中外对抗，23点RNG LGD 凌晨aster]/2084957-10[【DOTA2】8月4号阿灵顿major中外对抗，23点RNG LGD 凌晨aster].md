@@ -8704,3 +8704,44 @@ B站都叫杰出杰神了啊，那能不能取后面的字叫出神呢</blockquo
 
 又到了我最爱的光一果版本了吗
 
+
+
+*****
+
+####  没钱买手办  
+##### 14420#       发表于 2022-8-18 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57111367&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-18 00:15</a>
+
+还有楼友不知道梓畜长什么样的？</blockquote>
+对不起，我也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 14421#       发表于 2022-8-18 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57111216&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-17 23:59</a>
+
+B站都叫杰出杰神了啊，那能不能取后面的字叫出神呢</blockquote>
+杰神 = 杰出神 
+
+干脆叫杰畜生吧
+
+*****
+
+####  dclara1  
+##### 14422#       发表于 2022-8-18 00:39
+
+出圣人
+
+*****
+
+####  两三流浪者  
+##### 14423#       发表于 2022-8-18 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57111496&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-18 00:35</a>
+
+对不起，我也不知道</blockquote>
+我记得贴吧应该有照片，搜赵若旸就行
+
