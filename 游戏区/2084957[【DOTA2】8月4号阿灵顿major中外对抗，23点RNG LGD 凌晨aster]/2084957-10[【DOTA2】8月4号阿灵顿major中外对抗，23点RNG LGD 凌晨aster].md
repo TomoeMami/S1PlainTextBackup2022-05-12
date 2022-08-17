@@ -8887,3 +8887,21 @@ image.png
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  9时34分  
+##### 14434#       发表于 2022-8-18 01:12
+
+那么问题来了，皮套人粉丝和集美哪个更恶心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  woyzeck  
+##### 14435#       发表于 2022-8-18 01:15
+
+好像是滚球兽提的分手吧。
+
