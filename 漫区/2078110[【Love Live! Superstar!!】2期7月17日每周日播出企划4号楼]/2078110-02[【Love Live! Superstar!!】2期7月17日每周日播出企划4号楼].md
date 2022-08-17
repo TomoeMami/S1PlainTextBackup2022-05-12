@@ -15618,3 +15618,15 @@ FC的看板娘，鲤酱的周边也登场啦！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">买谷远离日亚
 
+
+
+*****
+
+####  damian-wade  
+##### 2990#       发表于 2022-8-17 23:42
+
+今年没看直播慢慢补，感觉自己容忍度高了好多，还是觉得一期恋回那些比这集雷得多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+明明ceo是所有人齐的时候光明正大开始谈的合作，连合同都拿出来了，怎么镜头一转就变成只有香音知道，民警和其他人都懵然不知的，这里我是没看懂
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

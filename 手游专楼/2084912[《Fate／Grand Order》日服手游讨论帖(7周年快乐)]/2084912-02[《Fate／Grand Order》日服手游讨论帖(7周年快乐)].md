@@ -3368,3 +3368,27 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神</blockquot
 男人有点过多了，而且有些明显是一次性路人</blockquote>
 无名草帽和剪影对的上应该是要实装了。还有某个已经做了两套立绘去年公布为NPC时哀鸿遍野的高杉应该也快了吧。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1803#       发表于 2022-8-17 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57111024&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2022-8-17 23:39</a>
+
+无名草帽和剪影对的上应该是要实装了。还有某个已经做了两套立绘去年公布为NPC时哀鸿遍野的高杉应该也快 ...</blockquote>
+麦克斯韦妖呢，立绘也不少
+
+还有柴田和那个搞暗杀的谁，战斗模型都有
+
+*****
+
+####  khxooo  
+##### 1804#       发表于 2022-8-17 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110831&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2022-8-17 23:19</a>
+
+【【FGO竞速/咖啡馆】狂兰1t帝王花首杀！吃俺老兰三棒！狂兰1t200w血帝王花-哔哩哔哩】 https://b23.tv/B ...</blockquote>
+真的是神预言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
