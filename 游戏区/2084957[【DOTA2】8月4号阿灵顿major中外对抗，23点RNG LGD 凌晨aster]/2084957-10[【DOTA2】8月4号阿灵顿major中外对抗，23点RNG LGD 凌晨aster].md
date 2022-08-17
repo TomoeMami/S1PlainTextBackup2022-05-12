@@ -7066,3 +7066,50 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 
 2022-8-17 16:05 上传
 
+
+
+*****
+
+####  漂灵  
+##### 14250#       发表于 2022-8-17 16:19
+
+鸡哥这个节目效果无敌了
+
+
+
+*****
+
+####  夏溪澪mio  
+##### 14251#       发表于 2022-8-17 16:19
+
+说到dendi就是屠夫，说到sumail就是蓝猫，说到shadow就是虚空
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 14252#       发表于 2022-8-17 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105138&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 16:05</a>
+
+妮们可以猜一下这些都是液体百科上哪些英雄的界面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一圈，评价为瞎jb放
+
+*****
+
+####  thistimeforlife  
+##### 14253#       发表于 2022-8-17 16:22
+
+亚军船长我还是认可的 
+
+*****
+
+####  12481632  
+##### 14254#       发表于 2022-8-17 16:22
+
+<img src="https://p.sda1.dev/6/882bbec856856ec726a9482a686ff858/Screenshot_20220817-162123_NGA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/ccb2d9d2a5a366967f6abdc89edec429/Screenshot_20220817-162136_NGA.jpg" referrerpolicy="no-referrer">
+
+集美们真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
