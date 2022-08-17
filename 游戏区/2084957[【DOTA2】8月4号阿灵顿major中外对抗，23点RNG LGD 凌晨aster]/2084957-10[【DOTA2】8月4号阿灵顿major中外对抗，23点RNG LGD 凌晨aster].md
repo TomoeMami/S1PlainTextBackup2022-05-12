@@ -6717,3 +6717,28 @@ IG还真的挺适合的，jt和oli都是东南亚，森哥可能要玉玉了<img
 
 漏油是有多喜欢鹏子女装<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 14217#       发表于 2022-8-17 14:14
+
+有没有可能是不用和老北京一起打gg 厨子发自内心的笑了
+
+*****
+
+####  何然  
+##### 14218#       发表于 2022-8-17 14:20
+
+波波卡桑带其他兄弟们去打野
+
+在野区遇到了女装鹏儿和文乐<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 14219#       发表于 2022-8-17 14:20
+
+我记得当初ana在夺冠之后拍纪录片，说最开心的时候还是在ig打职业那会儿，可能白皮和黄皮多少有点不对付吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
