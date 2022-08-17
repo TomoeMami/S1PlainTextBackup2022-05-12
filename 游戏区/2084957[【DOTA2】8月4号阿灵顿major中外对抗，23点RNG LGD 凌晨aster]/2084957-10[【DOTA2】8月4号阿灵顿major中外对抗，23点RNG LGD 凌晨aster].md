@@ -7712,3 +7712,43 @@ ti10雪碧自己**号是均分10000分的战队。
 
 据说是男友粉已经全部润完了，直播间只剩下听歌粉和CP粉，还有A畜自带的集美大军
 
+
+
+*****
+
+####  ArowRocher  
+##### 14322#       发表于 2022-8-17 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106481&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-17 18:46</a>
+先不说叶涛骂鳖鳖的事情。
+
+当其他人都在缩卵，不敢得罪水厂的时候，皮球敢乳a畜，你能说皮球不勇敢吗?</blockquote>
+骂人=勇敢的核心逻辑就不成立，皮球那借着采访骂人的跳梁小丑行为还能用有种勇敢形容？跳刀杀妈也是跳梁小丑行为，配得上勇敢吗？
+
+退一万步讲，叶涛骂人是叶涛的事，为什么连带着拉高别人“有种”的判定线？那徐志雷骂送的像ruru也有种？一嘴炉灰渣子牛逼在哪了，比谁拉的下脸喷脏的，不喷就没种？
+
+*****
+
+####  ArowRocher  
+##### 14323#       发表于 2022-8-17 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106559&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-17 18:52</a>
+尼这个开头就说错了，第一个敢得罪水厂的是小马好吧</blockquote>
+准确地说是水厂欠薪得罪了他
+
+*****
+
+####  acejoe  
+##### 14324#       发表于 2022-8-17 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106382&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 18:39</a>
+豪逼最有意思的还是直播疯狂霸凌眼子，眼子在姚铮铮谢彬面前趾高气扬在豪逼面前唯唯诺诺连个屁都不敢放 ...</blockquote>
+haob正面对决眼子拿冠军，一问ti4，眼子就没话说了。
+
+*****
+
+####  沈淮  
+##### 14325#         楼主| 发表于 2022-8-17 19:29
+
+没有绿帽粉，比如那种:a畜轻点别弄疼了小婊梓的
+
