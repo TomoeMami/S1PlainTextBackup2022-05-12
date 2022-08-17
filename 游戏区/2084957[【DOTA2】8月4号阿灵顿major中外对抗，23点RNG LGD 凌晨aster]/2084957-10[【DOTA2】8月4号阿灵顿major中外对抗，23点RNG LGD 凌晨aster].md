@@ -6543,3 +6543,45 @@ ana本来是想来国内打预选的，他合同在ig不是正好踢了撸狗，
 
 rng打鱼腩也能天神下凡的
 
+
+
+*****
+
+####  反方向的波  
+##### 14196#       发表于 2022-8-17 13:05
+
+都下午了还没有yyxx织布机启动的细说🐴？
+
+*****
+
+####  4591  
+##### 14197#       发表于 2022-8-17 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102109&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-17 13:00</a>
+之前看ig比赛感觉有模有样的呀，不像rng，只会硬实力打，看着就没啥章法。 ...</blockquote>
+在a级有模有样，CDEC还比他有模有样呢，第二季dpc上去的蒲公英更是无敌之姿升级，结果呢
+
+*****
+
+####  六娃  
+##### 14198#       发表于 2022-8-17 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102203&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-17 13:05</a>
+都下午了还没有yyxx织布机启动的细说🐴？</blockquote>
+我只是说有这件事，又不会截聊天记录出来当小人
+
+*****
+
+####  IG.430  
+##### 14199#       发表于 2022-8-17 13:07
+
+回想一下上个dpc的rng，赢了的五把卜也是战术多样风格多变<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 14200#       发表于 2022-8-17 13:09
+
+冷知识，森哥在ig也只能给撸狗当狗，龙骑绝对不可能是森哥摁着他选的
+ig这个队的绝对核心程度比lfy还高，撸狗完全是说一不二的，打个比方，其他队的指挥是吩咐你去干嘛他去干嘛，ig的中单指挥是你想干嘛之前都要报备
+

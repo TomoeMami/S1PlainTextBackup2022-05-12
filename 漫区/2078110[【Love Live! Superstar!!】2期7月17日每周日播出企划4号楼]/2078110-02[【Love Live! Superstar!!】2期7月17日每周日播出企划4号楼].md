@@ -15140,3 +15140,23 @@ CEO：暂时不明，等下集
 
 诛心的想无非就是觉得可可太火人气太旺故意恶剪恶调搞臭突出某些主C呗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2954#       发表于 2022-8-17 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101990&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-8-17 12:53</a>
+这么说的话我记得可堇关系不好的源头也就堇把学园偶像当作演艺圈的跳板？
+
+那现在来了个把学园偶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是因为对ceo人设不满意的人已经跑路了吧，刚出来的时候节奏也不小 甚至包括乳化
+
+*****
+
+####  稀勢のささ  
+##### 2955#       发表于 2022-8-17 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为压根就没发现啊 花田大老师为了表现堇这些事见得多了  其他人多多少少都失去了脑子  
+
