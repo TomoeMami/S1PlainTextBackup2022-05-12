@@ -15285,3 +15285,26 @@ CEO：暂时不明，等下集
 
 我懂了，其实香音早就想赚很多金金金金金了，但官号开收益又要给其他人分成，所以独断签卖身契，视频发ceo号都是为了隐瞒收益，暗地里则和ceo约好三七分成，分裂一二年级也是香音的阴谋，都是为了从裂拉上榨出更多油水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2967#       发表于 2022-8-17 14:06
+
+ 本帖最后由 ads147147 于 2022-8-17 14:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102747&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-17 13:40</a>
+
+问题是理论上谁也不知道你这柴火有没有受潮不是。如果反过来，夏美是大手子，星团是默默无闻地下赔 ...</blockquote>
+其实那按个卖掉演出权和肖像权的合同，如果真的有效，甚至可以复刻某图鉴。。
+
+*****
+
+####  稀勢のささ  
+##### 2968#       发表于 2022-8-17 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102753&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-17 13:40</a>
+
+答案是liella的官号没开收益</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">民警同志设定上不也有在做主播  没道理不知道去申请收益化
+
