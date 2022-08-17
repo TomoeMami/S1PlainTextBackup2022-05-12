@@ -1480,3 +1480,14 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 
 哦对，2020年还有原神<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑夜守望者  
+##### 148#       发表于 2022-8-17 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096885&amp;ptid=2087305" target="_blank">司马千晶 发表于 2022-8-17 06:42</a>
+虽然是野鸡奖，但最好拿了吧，这样能有效缓解s1的破晓ptsd。</blockquote>
+那样我不乐意了，我最喜欢看s1 ptsd发作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

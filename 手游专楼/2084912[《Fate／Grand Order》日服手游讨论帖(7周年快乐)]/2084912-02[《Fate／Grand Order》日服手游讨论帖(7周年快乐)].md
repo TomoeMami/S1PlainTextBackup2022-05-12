@@ -2041,3 +2041,58 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5点本来准备进来看你们豹跳的，结果泥潭炸了
 
+
+
+*****
+
+####  kiralzb  
+##### 1682#       发表于 2022-8-17 18:33
+
+1单搞掂RBA，还是久违的双黄，最后再补2单3宝了伊吹，收工
+
+*****
+
+####  qixinno2  
+##### 1683#       发表于 2022-8-17 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有我非了么
+
+*****
+
+####  黑上シグマ  
+##### 1684#       发表于 2022-8-17 18:36
+
+20发11连才出……这次泳装总共70发11连以上………………
+
+又歪月神……这次泳装歪了2个月神………………
+
+这日子没法过了
+
+*****
+
+####  exiaexa  
+##### 1685#       发表于 2022-8-17 18:39
+
+ 本帖最后由 exiaexa 于 2022-8-17 18:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106350&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-17 18:36</a>
+
+20发11连才出……这次泳装总共70发11连以上………………
+
+又歪月神……这次泳装歪了2个月神………………</blockquote>
+我这次泳装送的1000+16单
+
+每样2个送了一个欧罗巴
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 1686#       发表于 2022-8-17 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106375&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 18:39</a>
+
+我这次泳装送的1000+16单
+
+每样2个送了一个欧罗巴</blockquote>
+然而我旧梅和RBA都只有1……歪了俩月神一大公，这日子没法过了………………
+
