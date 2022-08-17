@@ -6458,3 +6458,35 @@ RNG好歹dpc第一，揍xg还是轻松的
 
 ana本来是想来国内打预选的，他合同在ig不是正好踢了撸狗，森哥这不一下起飞。好气，顶儿子居然拒绝了，玉玉了
 
+
+
+*****
+
+####  usoda  
+##### 14185#       发表于 2022-8-17 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上帝好歹会说上海话 顶儿子来国内不是两眼一黑？
+
+*****
+
+####  Keynes  
+##### 14186#       发表于 2022-8-17 12:49
+
+语言不通怎么也起飞不了吧，真当职业比赛是天梯啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 14187#       发表于 2022-8-17 12:50
+
+撸狗心气应该打没了吧，卡卡刚离队的时候还嘴硬，直播跟弹幕掰头。结果IG迅速掉到A级游不出来，撸狗装死到现在。
+
+*****
+
+####  没钱买手办  
+##### 14188#       发表于 2022-8-17 12:50
+
+比赛打起来时候的告诉交流，语言不通没法玩吧
+
+可惜，要是哥哥只会英语不会中文，就好洗多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

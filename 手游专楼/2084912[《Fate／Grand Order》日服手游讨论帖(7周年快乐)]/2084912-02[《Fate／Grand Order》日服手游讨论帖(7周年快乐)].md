@@ -1736,3 +1736,14 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  qixinno2  
+##### 1653#       发表于 2022-8-17 12:43
+
+<blockquote>kiralzb 发表于 2022-8-17 12:24
+商店快换完看才发现冰块原来不能换钱啊</blockquote>
+能 没开而己
+
