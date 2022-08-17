@@ -3392,3 +3392,27 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神</blockquot
 【【FGO竞速/咖啡馆】狂兰1t帝王花首杀！吃俺老兰三棒！狂兰1t200w血帝王花-哔哩哔哩】 https://b23.tv/B ...</blockquote>
 真的是神预言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GameTheory  
+##### 1805#       发表于 2022-8-18 00:10
+
+吃了保底... 上次巴姐297抽左右差点儿吃到，光看镀金杖出则天大圣皇后了 也不歪别的5*从者
+
+*****
+
+####  exiaexa  
+##### 1806#       发表于 2022-8-18 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110983&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 23:34</a>
+
+你没病吧，我改啥楼
+
+我加了句“，而且二次，不嘴臭不爽是吧”</blockquote>
+所以你想告诉我，你不是傻逼你只是单纯的瞎？
+
+以至于看不见别人问什么也看不见自己打了什么咯
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
