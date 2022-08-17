@@ -973,3 +973,14 @@ ayaneo air目前为止玩了快两周了，电量还是最大的痛点。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zakas  
+##### 85#       发表于 2022-8-18 07:41
+
+<blockquote>饭冢武也 发表于 2022-8-16 02:10
+有结论上比Steam Deck更值得买的嘛</blockquote>
+没有
+
