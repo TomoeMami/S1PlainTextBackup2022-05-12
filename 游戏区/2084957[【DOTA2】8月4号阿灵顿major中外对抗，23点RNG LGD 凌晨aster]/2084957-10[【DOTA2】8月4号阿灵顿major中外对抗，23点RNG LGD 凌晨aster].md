@@ -7276,3 +7276,30 @@ LGD胜利你不复盘，输了复盘？？？！！
 跟有种有什么关系……</blockquote>
 联系上文，原因只有一个，因为叶涛直接骂了😄
 
+
+
+*****
+
+####  ArowRocher  
+##### 14271#       发表于 2022-8-17 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105933&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-17 16:50</a>
+联系上文，原因只有一个，因为叶涛直接骂了😄</blockquote>
+徐志雷直接来脏的进了YY都夹尾巴，不说张不张得开嘴，何雍正喷完了怎么去微博抢道德高地呢。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">叶涛喷完一击脱离一点包袱都没
+
+皮球这种跟有种半毛钱关系都没了。
+
+*****
+
+####  蛭人  
+##### 14272#       发表于 2022-8-17 16:56
+
+所以叶涛是谁？
+
+*****
+
+####  ArowRocher  
+##### 14273#       发表于 2022-8-17 17:00
+
+MDY次级人员
+
