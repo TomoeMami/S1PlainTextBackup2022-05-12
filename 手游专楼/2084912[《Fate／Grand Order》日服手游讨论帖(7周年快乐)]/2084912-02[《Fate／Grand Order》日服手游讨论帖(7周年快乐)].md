@@ -2518,3 +2518,23 @@ rba3破满破都差口气
 
 金方块一般换啥好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 1730#       发表于 2022-8-17 20:23
+
+是10宝的欧皇大佬，跪了
+
+*****
+
+####  exiaexa  
+##### 1731#       发表于 2022-8-17 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107803&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 20:14</a>
+
+看看你楼下</blockquote>
+对不起，是本非给各位欧洲人丢人了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
