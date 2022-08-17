@@ -6742,3 +6742,14 @@ IG还真的挺适合的，jt和oli都是东南亚，森哥可能要玉玉了<img
 
 我记得当初ana在夺冠之后拍纪录片，说最开心的时候还是在ig打职业那会儿，可能白皮和黄皮多少有点不对付吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14220#       发表于 2022-8-17 14:26
+
+如果有个世界线EHOME真把ANA喊回来打1了，然后正好赶上换阵容，和23458一起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+都他妈怪鸡畜啊
+

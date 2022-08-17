@@ -1759,3 +1759,16 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 能的
 但是不划算 50个才换1w
 
+
+
+*****
+
+####  ggyy0088  
+##### 1655#       发表于 2022-8-17 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101712&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-17 12:35</a>
+你这算啥，我抽伊吹可是彩圈大公
+
+----发送自 STAGE1 App for Android.</blockquote>
+您就是DC老师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
