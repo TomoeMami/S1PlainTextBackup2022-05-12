@@ -15369,3 +15369,37 @@ A店的活动录了个小视频，本来想开个线上活动的，但是考虑�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到开头拿出巨大的流水面机器就被迫去忙别的了，居然还有这种好物么
 
+
+
+*****
+
+####  仟音一心  
+##### 2975#       发表于 2022-8-17 19:54
+
+流水素面同好会
+
+<img src="https://img.saraba1st.com/forum/202208/17/195356msz17twijmiw2j1w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E1115A50-39B4-417C-BA84-6D0E3549F97E.jpeg</strong> (98.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-17 19:53 上传
+
+<img src="https://img.saraba1st.com/forum/202208/17/195402zmyi2ihmzqrslq1q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0C7362CE-F6F4-41E2-ACAF-B2C65FA63ACE.jpeg</strong> (72.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-17 19:54 上传
+
+*****
+
+####  lj205  
+##### 2976#       发表于 2022-8-17 19:56
+
+说起来下午照片里那件黄色卫衣还是借店员的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
