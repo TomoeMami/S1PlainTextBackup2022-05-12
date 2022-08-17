@@ -2565,3 +2565,22 @@ rba3破满破都差口气
 
 <img src="https://img.saraba1st.com/forum/202208/17/203925ahn1fgtoknthzztt.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 1734#       发表于 2022-8-17 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106585&amp;ptid=2084912" target="_blank">xunit 发表于 2022-8-17 18:54</a>
+
+那正好这次90++就能刷金蛋</blockquote>
+缺15个，刷到970万点总算刷完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉掉率一般，只能当刷绊附带
+
+*****
+
+####  gpx234mqx  
+##### 1735#       发表于 2022-8-17 20:45
+
+话说RBA这满破卡面是要干啥
+
