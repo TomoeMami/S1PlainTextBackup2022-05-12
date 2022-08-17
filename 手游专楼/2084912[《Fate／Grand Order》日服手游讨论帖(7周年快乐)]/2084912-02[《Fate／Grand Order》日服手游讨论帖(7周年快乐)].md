@@ -3262,3 +3262,72 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神
 
 我就告诉你了BX不能3T行了吧
 
+
+
+*****
+
+####  exiaexa  
+##### 1795#       发表于 2022-8-17 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110840&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 23:20</a>
+
+见人就说傻逼，你是嘴臭讨骂吗？</blockquote>
+哦，见人说傻逼是嘴臭讨骂
+
+那问为什么不用陈宫这种弱智问题的算什么，自己立个靶子瞎JB打的又算什么
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1796#       发表于 2022-8-17 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110800&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:16</a>
+
+试过了，都不稳，但是她已经是最稳的那批了
+
+因为BX比其他几个绿单有个好处是她自带20星，t1可以不扔rba的5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不不不 1面2面1张卡都没有的话 3面也能直接暴过去
+
+*****
+
+####  exiaexa  
+##### 1797#       发表于 2022-8-17 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110840&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 23:20</a>
+
+见人就说傻逼，你是嘴臭讨骂吗？
+
+好好的讨论你嘴贱干啥，而且二次，不嘴臭不爽是吧</blockquote>
+有种改回去啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被人戳软肋连改两楼你可太行了
+
+*****
+
+####  exiaexa  
+##### 1798#       发表于 2022-8-17 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110879&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 23:24</a>
+
+不不不 1面2面1张卡都没有的话 3面也能直接暴过去</blockquote>
+我试了十多把绿单没一次刷到这么王道的牌
+
+我现在都不确定这群绿单三面纯暴击能不能打100w
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1799#       发表于 2022-8-17 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110911&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:27</a>
+
+我试了十多把绿单没一次刷到这么王道的牌
+
+我现在都不确定这群绿单三面纯暴击能不能打100w
+
+ ...</blockquote>
+刚刚试了 总师傅一张红卡50万 2张红卡必杀（
+
