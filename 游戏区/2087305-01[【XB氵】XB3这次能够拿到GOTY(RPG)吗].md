@@ -1329,3 +1329,24 @@ xb2 从资料库的角度讲可能更闪光，但 xb3 从游戏的角度看不�
 
 拿tga年度rpg有两种办法，一种是获得tga年度游戏，这样被分在rpg组的xb3自然会获得年度rpg（历年tga得主也都是当年各自分组的类型得主）；第二种是祈祷今年tga年度不要从rpg组产生。
 
+
+
+*****
+
+####  LeViandier  
+##### 136#       发表于 2022-8-17 13:24
+
+一个野鸡奖突然有一年评出来的奖符合“不野鸡”的标准了，然后你就得费劲八百地去解释这是野鸡奖需要xx来证明自己、这一次不野鸡证明不了以前每一次都不野鸡balabala的，汴京太累了。希望tga继续野鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2024A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 137#       发表于 2022-8-17 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101960&amp;ptid=2087305" target="_blank">g675259102 发表于 2022-8-17 12:51</a>
+
+看你那个逼样还挂个百度五流贴吧吧务。。还特意说明了一下不是汉化组。。非要把自己是废物写的这么清楚干 ...</blockquote>
+加油喷粪，5块钱毕竟不算多。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

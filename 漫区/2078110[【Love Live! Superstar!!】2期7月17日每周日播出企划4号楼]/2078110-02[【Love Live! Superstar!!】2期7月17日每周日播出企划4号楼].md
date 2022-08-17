@@ -15200,3 +15200,33 @@ CEO：暂时不明，等下集
 按合同内容来看，签字的是香音（作为代表），可能只有堇是特地去了解的，另外六人连内容都不知道。这一状态下，夏美就是在“无偿劳动”，可可怎么会不不友善呢。
 但若是这么解读，堇也看了合同，竟然没异议，其实说不过去，难道堇也觉得赚的太多了？合同直说了要拿收益当报酬的啊
 
+
+
+*****
+
+####  adw667  
+##### 2959#       发表于 2022-8-17 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102331&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-17 13:12</a>
+
+平安名想当的是偶像，鬼冢一开始就说想当P，而且交涉的时候提到了不收费，但是为了必要支出也会把 ...</blockquote>
+堇是一开始想把学园偶像当跳板态度不认真才被可可怼的，现在一看夏美都想把学园偶像当柴火了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 2960#       发表于 2022-8-17 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如聊聊官号收入到底被谁吃了
+
+*****
+
+####  iuhehc  
+##### 2961#       发表于 2022-8-17 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102522&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-17 13:24</a>
+还不如聊聊官号收入到底被谁吃了</blockquote>
+果然扯到钱还是过于现实，既然都往这上面写了那深究也不过分对吧花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
