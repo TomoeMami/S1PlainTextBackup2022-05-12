@@ -5500,3 +5500,71 @@ newbee不就是老板润了，哈哈明带队员铤而走险不听兄弟萌安�
 
 pa至宝放武器上是真的最大败笔!
 
+
+
+*****
+
+####  lyjssj  
+##### 14079#       发表于 2022-8-17 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">B站弹幕看到个新绰号，笑死
+
+<strong>萧战</strong>
+
+*****
+
+####  tasuku  
+##### 14080#       发表于 2022-8-17 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098436&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-17 09:44</a>
+
+B站弹幕看到个新绰号，笑死
+
+萧战</blockquote>
+什么新称号
+
+我去年就玩过了
+
+*****
+
+####  吃货红毛  
+##### 14081#       发表于 2022-8-17 09:47
+
+来了个阳间的比赛时间，集中品茶
+
+*****
+
+####  哈萨维·诺亚  
+##### 14082#       发表于 2022-8-17 09:48
+
+TI11也是阳间时间 而且今年感觉队伍强度都挺高的（外卡）<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 14083#       发表于 2022-8-17 09:48
+
+<img src="https://p.sda1.dev/6/67af710a103476825b1792ada1b7bbad/CMP_20220817094749357.jpg" referrerpolicy="no-referrer">
+
+舒服了，支持sea年年承办线下大赛<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14084#       发表于 2022-8-17 09:49
+
+esl是不是又是虎牙独占的
+
+看不到光一哥哥解说哭哭了
+
+*****
+
+####  战栗的小六  
+##### 14085#       发表于 2022-8-17 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">虽然杨戬，但是工作狗还是看不了。
+
+啥时候能多点黄金时间来比赛就好了
+

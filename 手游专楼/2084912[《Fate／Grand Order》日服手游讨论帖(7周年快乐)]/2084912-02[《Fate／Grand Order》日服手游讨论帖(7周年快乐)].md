@@ -1598,3 +1598,15 @@ Fami通
 
 隔壁逼事真的多<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这几天真的大开眼界
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1640#       发表于 2022-8-17 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097603&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-08-17 08:50:28</a>
+研究了好几把现在决定就用大公了，都是3宝回收更稳，用阿一的话还要换人或绑定个加np的衣服，用大公还能继 ...</blockquote>开被动2有10np就够了，都不用升级，两个加攻先别加
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
