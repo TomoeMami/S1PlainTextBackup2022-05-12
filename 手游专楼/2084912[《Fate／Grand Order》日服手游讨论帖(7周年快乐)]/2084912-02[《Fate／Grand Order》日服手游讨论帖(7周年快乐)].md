@@ -3136,3 +3136,129 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 只能说好在rba有稳定出星
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1786#       发表于 2022-8-17 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110264&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 22:30</a>
+
+你看我上面发的Fami通的图
+
+上面还有那么多未实装啊</blockquote>
+男人有点过多了，而且有些明显是一次性路人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1787#       发表于 2022-8-17 23:14
+
+ 本帖最后由 gpx234mqx 于 2022-8-17 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110757&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:12</a>
+
+现在整个绿单就只能玩2面宝具1面暴击的路子
+
+只能说好在rba有稳定出星
+
+ ...</blockquote>
+那么麻烦干啥啊
+
+陈宫人肉炮弹三发解决一切问题<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+没人用陈宫吗？
+
+1千万也是一炮打死
+
+*****
+
+####  exiaexa  
+##### 1788#       发表于 2022-8-17 23:16
+
+ 本帖最后由 exiaexa 于 2022-8-17 23:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110459&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-8-17 22:44</a>
+
+就拿这个90++本，我看到的bx单核双rba+cba回收39，我还是觉得去押发牌员不靠谱，不知道wrba和c呆组合怎么样 ...</blockquote>
+试过了，都不稳，但是她已经是最稳的那批了
+
+因为BX比其他几个绿单有个好处是她自带20星，t1可以不扔rba的50充出星
+
+1面或者2面暴击其中一面就可以稳定过
+
+所以说敌在发牌员
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggyy0088  
+##### 1789#       发表于 2022-8-17 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110720&amp;ptid=2084912" target="_blank">zore 发表于 2022-8-17 23:08</a>
+你们说的狂兰神是哪个啊</blockquote>
+B站某20年已经就用上三CBA狂兰一发带走帝王花的大神
+
+*****
+
+####  exiaexa  
+##### 1790#       发表于 2022-8-17 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110779&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 23:14</a>
+
+那么麻烦干啥啊
+
+陈宫人肉炮弹三发解决一切问题</blockquote>
+能问出这种问题你是傻逼吗？
+
+*****
+
+####  gpx234mqx  
+##### 1791#       发表于 2022-8-17 23:17
+
+ 本帖最后由 gpx234mqx 于 2022-8-17 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110806&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:16</a>
+
+能问出这种问题你是傻逼吗？</blockquote>
+非要用绿卡不能用剑阿福啊，干啥用BX？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+剑阿福双RBA来3T完全不需要脑子
+
+*****
+
+####  ggyy0088  
+##### 1792#       发表于 2022-8-17 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110720&amp;ptid=2084912" target="_blank">zore 发表于 2022-8-17 23:08</a>
+你们说的狂兰神是哪个啊</blockquote>
+【【FGO竞速/咖啡馆】狂兰1t帝王花首杀！吃俺老兰三棒！狂兰1t200w血帝王花-哔哩哔哩】 [https://b23.tv/Bs4TdBR](https://b23.tv/Bs4TdBR)
+热评第一
+
+*****
+
+####  exiaexa  
+##### 1793#       发表于 2022-8-17 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110817&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 23:17</a>
+
+非要用绿卡不能用剑阿福啊，干啥用BX？</blockquote>
+我再问一遍你是傻逼吗
+
+从头到尾有任何一个人说过不能用阿福？
+
+*****
+
+####  gpx234mqx  
+##### 1794#       发表于 2022-8-17 23:20
+
+ 本帖最后由 gpx234mqx 于 2022-8-17 23:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110832&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:19</a>
+
+我再问一遍你是傻逼吗
+
+从头到尾有任何一个人说过不能用阿福？</blockquote>
+见人就说傻逼，你是嘴臭讨骂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+好好的讨论你嘴贱干啥
+
+我就告诉你了BX不能3T行了吧
+
