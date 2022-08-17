@@ -1512,3 +1512,12 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 
 这次音乐比2差了，2的音乐都没提名，3就更不用想了
 
+
+
+*****
+
+####  Vladimeow  
+##### 151#       发表于 2022-8-18 01:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇偶 XB3爆杀老头环 泥潭钦定
+

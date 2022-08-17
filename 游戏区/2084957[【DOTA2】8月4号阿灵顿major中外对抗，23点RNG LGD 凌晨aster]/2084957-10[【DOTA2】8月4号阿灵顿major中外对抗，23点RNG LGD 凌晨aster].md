@@ -8932,3 +8932,43 @@ image.png
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  两三流浪者  
+##### 14439#       发表于 2022-8-18 02:31
+
+每日一屎
+
+<img src="https://img.saraba1st.com/forum/202208/18/023145ma9mm2rrzb6bm4zm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 02:31 上传
+
+*****
+
+####  Keynes  
+##### 14440#       发表于 2022-8-18 03:09
+
+呃呃呃呃呃，这看起来也不够纯真啊
+
+*****
+
+####  两三流浪者  
+##### 14441#       发表于 2022-8-18 03:38
+
+感觉nga的缩壳速度真是独一档，这几天竟然能看到骂处长的了
+
+*****
+
+####  kyl2001  
+##### 14442#       发表于 2022-8-18 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112091&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-18 03:38</a>
+感觉nga的缩壳速度真是独一档，这几天竟然能看到骂处长的了</blockquote>
+nga从全员鳖孙到一口一个鳖也没几天
+
