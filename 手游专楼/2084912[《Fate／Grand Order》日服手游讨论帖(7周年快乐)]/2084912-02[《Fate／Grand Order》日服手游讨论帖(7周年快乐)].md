@@ -1661,3 +1661,23 @@ P阶转身faker<img src="https://static.saraba1st.com/image/smiley/face2017/124.
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  angelooo  
+##### 1646#       发表于 2022-8-17 11:02
+
+<blockquote>poor 发表于 2022-8-17 10:41
+P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要给我出起重机了吧
+
+—— 来自 vivo ...</blockquote>
+你们这些守门员不要过来啊！
+
+*****
+
+####  xiongxingyu  
+##### 1647#       发表于 2022-8-17 11:05
+
+完了，今天的每日一发出了上铺的兄弟，下午怕是要暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5959,3 +5959,109 @@ eg打得好我支持eg还不行吗？只不过对面会扣你罕见帽子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看A➗裤裆流翔差不多
 
+
+
+*****
+
+####  walfeds  
+##### 14126#       发表于 2022-8-17 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099780&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-17 10:57</a>
+
+马来爹带躺的外国俱乐部不汉奸？
+
+要支持就支持全华班</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们会跟你说全华班的华是华裔的华
+
+*****
+
+####  walfeds  
+##### 14127#       发表于 2022-8-17 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099842&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 11:00</a>
+
+画风又变了漏油们，现在变成喷A÷有当年喷刘翔的味道了
+
+我看A➗裤裆流翔差 ...</blockquote>
+csdx怎么好意思碰瓷刘翔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 14128#       发表于 2022-8-17 11:03
+
+A畜也配当刘翔？我看A畜当08年害刘翔没法比赛的那根骨刺还差不多
+
+*****
+
+####  scg2017  
+##### 14129#       发表于 2022-8-17 11:05
+
+刘翔是世界冠军，奥运冠军，破世界纪录，破奥运记录。
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thistimeforlife  
+##### 14130#       发表于 2022-8-17 11:06
+
+岳飞 刘翔 詹姆斯，把王淳煜放进来也太搞笑了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+时无英雄 竖子成名
+
+
+
+*****
+
+####  ArowRocher  
+##### 14131#       发表于 2022-8-17 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099708&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 10:53</a>
+大学dota群的几个集美又开始“就算是这么菜的ame，国内也没人打得过这支队伍”了
+
+怎 ...</blockquote>
+等待别的中国队拿个ti狠狠清算即可
+
+*****
+
+####  遍体精淋af  
+##### 14132#       发表于 2022-8-17 11:06
+
+刘翔有冠，处长怎么pay<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 14133#       发表于 2022-8-17 11:06
+
+刘翔有奥运金牌，A畜有啥<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14134#       发表于 2022-8-17 11:06
+
+我们哥哥明年就有刀圈至高荣誉亚运会金牌了
+
+*****
+
+####  ArowRocher  
+##### 14135#       发表于 2022-8-17 11:07
+
+亚运含金量比奥运高
+
+*****
+
+####  ArowRocher  
+##### 14136#       发表于 2022-8-17 11:07
+
+亚运含金量比奥运高
+
+*****
+
+####  百世诸侯  
+##### 14137#       发表于 2022-8-17 11:08
+
+2004年雅典奥运会金牌得主奖金是20万人民币，金牌造价3000元，而利亚德大师赛的冠军奖金就有150万美元，刘翔奥运会金牌的含金量还真比不上我家AME哥哥，望周知
+

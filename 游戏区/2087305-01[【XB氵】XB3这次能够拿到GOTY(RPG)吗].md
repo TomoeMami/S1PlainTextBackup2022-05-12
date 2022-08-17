@@ -776,3 +776,104 @@ p5怎么就拉啦，主线硬伤不多，就只有明智的部分处理得不好
 
 泥潭反奶稳了，有一说一3的二刺猿浓度可比2低多了和1差不多，这么看来2反而是个另类了，再加上这系列出到3代名气和宣发已经很到位了，有希望的
 
+
+
+*****
+
+####  漫漫来  
+##### 87#       发表于 2022-8-17 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099650&amp;ptid=2087305" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-8-17 10:50</a>
+p5怎么就拉啦，主线硬伤不多，就只有明智的部分处理得不好。xb3主线弄个大新闻，结果hold不住处处是硬伤啊 ...</blockquote>
+巨魔你在意他作甚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+发售前评分楼一堆踩p5和其他各路rpg的巨魔，发售后基本都销声匿迹了，这个帖子还能见到一个真是难得
+
+*****
+
+####  lly778  
+##### 88#       发表于 2022-8-17 11:04
+
+我个人觉得老头环的开放世界大地图设计确实不如xb3。
+
+*****
+
+####  clover293  
+##### 89#       发表于 2022-8-17 11:04
+
+谁的goty啊，泥潭的应该没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  余情自取  
+##### 90#       发表于 2022-8-17 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又到了我最喜欢的轮明智时间，还以为大伙玩p系列都是冲着coop养成呢，真有人认真看剧情啊
+
+
+
+*****
+
+####  g675259102  
+##### 91#       发表于 2022-8-17 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099893&amp;ptid=2087305" target="_blank">漫漫来 发表于 2022-8-17 11:03</a>
+
+巨魔你在意他作甚
+
+发售前评分楼一堆踩p5和其他各路rpg的巨魔，发售后基本都销声匿迹了，这个帖子 ...</blockquote>
+搞得好像屁五巨魔没在XB2的时候天天踩XB2一样
+
+但凡一个吹XB的帖子总能看到屁小将拿着自己那可怜的玩意到处碰瓷
+
+先把战斗系统超过DQ11和轨迹在说吧 多和仙剑学习一下迷宫怎么做
+
+下次开个出租车 别开个小巴士来搞什么5岁幼儿园了
+
+怎么就那么一两首爵士乐听腻了来着找乐子来了？
+
+*****
+
+####  keasen  
+##### 92#       发表于 2022-8-17 11:07
+
+求别拿，丢人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sanxgh571  
+##### 93#       发表于 2022-8-17 11:08
+
+把老头环、轨迹、p5踩得再低也改不了xb3大概率什么奖都没份的事实啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gane1010  
+##### 94#       发表于 2022-8-17 11:09
+
+单独把ost下载过来听 感觉质量还是很高的 看了一下评论 一堆原来这BGM那么好听啊  在游戏里怎么没感受到
+
+*****
+
+####  电磁炮233  
+##### 95#       发表于 2022-8-17 11:09
+
+goty有用，单项屌用没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  g675259102  
+##### 96#       发表于 2022-8-17 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099999&amp;ptid=2087305" target="_blank">sanxgh571 发表于 2022-8-17 11:08</a>
+
+把老头环、轨迹、p5踩得再低也改不了xb3大概率什么奖都没份的事实啊</blockquote>
+把XB踩的再低也改变不了屁五就是拉跨的事实啊
+
+说出来的东西你看都没人能反驳的。。好惨啊
+
+车枯卢话说了半天连个反驳战斗系统剧情人设迷宫的都站不出来
+
+也是 毕竟是IGN满分大作 玩家评分低一点肯定是有人故意黑啦<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
