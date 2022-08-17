@@ -14955,3 +14955,34 @@ CEO：暂时不明，等下集
 所以星团是日升的又一萝卜动画吗，怎么全是bot</blockquote>
 没办法，这些人固定行动模式太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2938#       发表于 2022-8-17 10:42
+
+<img src="https://img.saraba1st.com/forum/202208/17/104219aig4ji49jcts9cfn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DBEC5D47-ED04-496D-81CF-5ABA89F72518.jpeg</strong> (627.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 10:42 上传
+
+<img src="https://img.saraba1st.com/forum/202208/17/104220nlll21lo2h1l5mqq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>98DB2DEE-0C1E-4B87-A83D-BFDBE585B77A.jpeg</strong> (623.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 10:42 上传
+
+*****
+
+####  player3960  
+##### 2939#       发表于 2022-8-17 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099499&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 10:42</a></blockquote>
+这JUVENILE大先辈有点矮啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

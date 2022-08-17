@@ -2246,3 +2246,23 @@ live的ED还特地拍了花絮，是为了拍花絮而拍花絮吧
 
 你不知道吗，周四才播啊……我2楼也有写，这周有2天白天要出门不能直播的，周三和周五
 
+
+
+*****
+
+####  rs5621  
+##### 214#       发表于 2022-8-17 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊，才看到<img src="https://p.sda1.dev/6/c91cb35b90047767af950896959bbfb3/CMP_20220817104519606.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 215#       发表于 2022-8-17 10:50
+
+<img src="https://p.sda1.dev/6/cbe497203c9dd3d947bab0abd4b37f8a/CMP_20220817104948538.jpg" referrerpolicy="no-referrer">ともず老师最新画的八字母
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

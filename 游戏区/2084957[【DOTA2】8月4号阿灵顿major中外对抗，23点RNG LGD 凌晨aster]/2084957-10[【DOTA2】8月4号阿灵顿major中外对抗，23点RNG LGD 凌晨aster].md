@@ -5805,3 +5805,37 @@ aq不还是正常直播吗，时不时还有孝子来惋惜一下<img src="https
 
 就相当于外卖和后厨是吧
 
+
+
+*****
+
+####  ArowRocher  
+##### 14111#       发表于 2022-8-17 10:42
+
+听说aq在很多东南雅队当枪
+
+*****
+
+####  云图  
+##### 14112#       发表于 2022-8-17 10:45
+
+可惜aq还不如可惜ddz呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGP110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  何然  
+##### 14113#       发表于 2022-8-17 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">等哪天圈子真死了再来boom点核中核
+
+反正君子远庖厨吧...
+
+*****
+
+####  zsu222  
+##### 14114#       发表于 2022-8-17 10:46
+
+不只是aq啊  哈哈明他们那一堆人都是在东南亚叱咤风云
+
