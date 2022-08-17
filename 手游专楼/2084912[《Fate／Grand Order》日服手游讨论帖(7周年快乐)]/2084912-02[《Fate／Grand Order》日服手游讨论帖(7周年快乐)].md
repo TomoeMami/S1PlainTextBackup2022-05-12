@@ -1812,3 +1812,15 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 贴吧今天中午还在坚强的给狂那挽尊
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 1660#       发表于 2022-8-17 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103743&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-17 14:42</a>
+
+忘记了DC老师经典的水武藏吃10连双大公了？</blockquote>
+完全没印象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

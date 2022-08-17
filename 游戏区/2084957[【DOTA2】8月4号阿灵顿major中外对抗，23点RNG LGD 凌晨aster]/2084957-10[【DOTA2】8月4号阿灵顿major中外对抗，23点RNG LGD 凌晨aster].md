@@ -6838,3 +6838,51 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 
 窃格瓦拉明显是用来顶里番c的吧，鳖茶培养了这么久<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 14230#       发表于 2022-8-17 15:12
+
+只要重回中单核版本，C位三十岁拿冠军不是问题好吧，fear爹就是生涯末年抱住苏猴大腿蹭了个冠
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 14231#       发表于 2022-8-17 15:16
+
+谁抱谁大腿
+
+*****
+
+####  nowaki  
+##### 14232#       发表于 2022-8-17 15:17
+
+法核版本的畸形程度可比假三真一恐怖多了。
+
+*****
+
+####  syndrome2032  
+##### 14233#       发表于 2022-8-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103397&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-17 14:20</a>
+我记得当初ana在夺冠之后拍纪录片，说最开心的时候还是在ig打职业那会儿，可能白皮和黄皮多少有点不对付吧[ ...</blockquote>
+是他姐姐说收到ig的邀请是他最开心的一天。
+
+*****
+
+####  战狼PTSD  
+##### 14234#       发表于 2022-8-17 15:18
+
+惊了，鸡畜真下午东南亚单排辣
+
+*****
+
+####  六娃  
+##### 14235#       发表于 2022-8-17 15:19
+
+东南亚7000分战神，上来先投资一个迈达斯引擎盖
+
