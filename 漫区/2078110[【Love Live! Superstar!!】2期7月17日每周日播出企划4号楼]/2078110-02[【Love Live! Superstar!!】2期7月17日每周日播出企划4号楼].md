@@ -15538,3 +15538,21 @@ FC的看板娘，鲤酱的周边也登场啦！
 由手机上传
 2022-8-17 20:27 上传
 
+
+
+*****
+
+####  Enakina  
+##### 2982#       发表于 2022-8-17 20:35
+
+这个koi酱完全不像本人嘛
+
+*****
+
+####  仟音一心  
+##### 2983#       发表于 2022-8-17 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108149&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-17 20:35</a>
+这个koi酱完全不像本人嘛</blockquote>
+像呆唯，第一个cos的角色
+
