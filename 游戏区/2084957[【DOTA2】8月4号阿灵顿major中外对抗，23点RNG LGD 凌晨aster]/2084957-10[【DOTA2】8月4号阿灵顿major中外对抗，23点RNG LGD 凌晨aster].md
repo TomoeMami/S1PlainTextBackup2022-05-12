@@ -9017,3 +9017,30 @@ nga从全员鳖孙到一口一个鳖也没几天
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森哥白做视频了
 
+
+
+*****
+
+####  zhrs456  
+##### 14448#       发表于 2022-8-18 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112234&amp;ptid=2084957" target="_blank">wuwo2 发表于 2022-8-18 06:36</a>
+虽然lgd输了吧，但有的黑人黑的，说AME是世界第一傻逼carry的，我感觉是不是有点把其他cncarry黑得更狠啊。 ...</blockquote>
+一次失利 哪来的A畜儿子<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  逃离二次元  
+##### 14449#       发表于 2022-8-18 07:05
+
+一次失利？
+
+*****
+
+####  CNFH1984  
+##### 14450#       发表于 2022-8-18 07:11
+
+嘻嘻没有23458的掀背在cdec技术扶贫，一定很强吧？
+
