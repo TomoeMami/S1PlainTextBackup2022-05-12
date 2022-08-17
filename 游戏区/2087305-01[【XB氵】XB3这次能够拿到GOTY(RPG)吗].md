@@ -1199,3 +1199,35 @@ nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必�
 
 xb2拿不到部分奖项还可以可惜一下，xb3算了吧
 
+
+
+*****
+
+####  whzfjk  
+##### 123#       发表于 2022-8-17 12:22
+
+xb2 从资料库的角度讲可能更闪光，但 xb3 从游戏的角度看不是更进步了吗
+
+*****
+
+####  老纪  
+##### 124#       发表于 2022-8-17 12:27
+
+讲真很难，老头环拿完。
+
+— from samsung SM-G7810, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  kazamatsuri  
+##### 125#       发表于 2022-8-17 12:27
+
+建议任坛开个投票自己给自己颁个奖<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 126#       发表于 2022-8-17 12:30
+
+游戏区真温柔，一个上个月才注册的小号，在漫区放第一个屁时就被扣鹅了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

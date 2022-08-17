@@ -1701,3 +1701,12 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kiralzb  
+##### 1650#       发表于 2022-8-17 12:24
+
+商店快换完看才发现冰块原来不能换钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
