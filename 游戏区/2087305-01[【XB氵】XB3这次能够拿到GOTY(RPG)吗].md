@@ -961,3 +961,95 @@ xb3狠狠地爆杀了老头环的一马平川
 
 懂了。。肯定是那2首爵士乐让你灵魂升华了
 
+
+
+*****
+
+####  萩原组土狼p  
+##### 103#       发表于 2022-8-17 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100318&amp;ptid=2087305" target="_blank">g675259102 发表于 2022-8-17 11:21</a>
+
+怎么你不会以为别人没玩吧。。不会吧不会吧
+
+我只是玩了屁五感觉是个粪作出来喷两句你怎么还急了呢？怎么 ...</blockquote>
+不是你急了么
+
+别人吐槽两句你就和被捏到了卵蛋一样开始上蹿下跳
+
+只能说，你先别急，急也没有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g675259102  
+##### 104#       发表于 2022-8-17 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100369&amp;ptid=2087305" target="_blank">萩原组土狼p 发表于 2022-8-17 11:23</a>
+
+不是你急了么
+
+别人吐槽两句你就和被捏到了卵蛋一样开始上蹿下跳
+
+只能说，你先别急，急也没有 ...</blockquote>
+笑死。。。怎么别人是吐槽两句我不是吐槽两句？
+
+屁小将都是你这种双标玩意吗。。。不过一想到是天下第一的屁小将倒也合理
+
+意思是允许别人吐槽不让我吐槽？哈哈哈
+
+屁小将吐槽就是合理的。。我们吐槽屁五战斗系统是垃圾迷宫垃圾剧情不行人设无脑就是急了
+
+是有人急了。。谁嘛自己心里清楚
+
+你看你到现在都没能耐反驳啊。。不会吧  满分大作的粉丝就这点战斗力？
+
+除了急了没活了意思是
+
+不行咬咬打火机也好啊。。拉了啊 弟弟
+
+*****
+
+####  漫漫来  
+##### 105#       发表于 2022-8-17 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100369&amp;ptid=2087305" target="_blank">萩原组土狼p 发表于 2022-8-17 11:23</a>
+不是你急了么
+
+别人吐槽两句你就和被捏到了卵蛋一样开始上蹿下跳
+
+只能说，你先别急，急也没有 ...</blockquote>
+嗨呀，和他有什么好说的，当猴戏看他不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萩原组土狼p  
+##### 106#       发表于 2022-8-17 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100442&amp;ptid=2087305" target="_blank">漫漫来 发表于 2022-8-17 11:27</a>
+
+嗨呀，和他有什么好说的，当猴戏看他不香吗</blockquote>
+上班中午摸鱼
+
+逗猴玩呢，还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萩原组土狼p  
+##### 107#       发表于 2022-8-17 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100442&amp;ptid=2087305" target="_blank">漫漫来 发表于 2022-8-17 11:27</a>
+
+嗨呀，和他有什么好说的，当猴戏看他不香吗</blockquote>
+正好逗完了吃饭去了，正合适<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g675259102  
+##### 108#       发表于 2022-8-17 11:33
+
+经典抱团取暖相互对话<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+看起来又是自己赢得胜利的时刻了呢…
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

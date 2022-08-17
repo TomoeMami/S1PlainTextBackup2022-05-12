@@ -6146,3 +6146,21 @@ ti怎么能算奥运？更像是足球里的欧冠好吧。真要是奥运按国
 
 所以TS现在能有这个状态真是听感叹的 相信他们能更往前走一步吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tasuku  
+##### 14148#       发表于 2022-8-17 11:22
+
+参考什么隔壁，我们刀圈自有国情，
+
+含金量：石油杯&gt;animajor&gt;sl9&gt;dac
+
+*****
+
+####  百世诸侯  
+##### 14149#       发表于 2022-8-17 11:23
+
+我还真想看看俄罗斯人崩溃哥和乌克兰人鸭头肉对线的画面的，多少有点宿命感了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
