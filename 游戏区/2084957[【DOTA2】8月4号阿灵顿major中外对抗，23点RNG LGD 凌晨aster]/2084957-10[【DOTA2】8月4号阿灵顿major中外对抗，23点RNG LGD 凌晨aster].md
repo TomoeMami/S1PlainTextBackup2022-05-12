@@ -8465,3 +8465,64 @@ SG输出太高啦<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 舅舅透露下几个新英雄或者新道具？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14392#       发表于 2022-8-17 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110942&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-17 23:30</a>
+
+核中核，凌晨两点更新上线</blockquote>
+我信了，现在我就熬夜
+
+*****
+
+####  尖刺外婆  
+##### 14393#       发表于 2022-8-17 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107945&amp;ptid=2084957" target="_blank">maju3 发表于 2022-8-17 20:23</a>
+do圈这些太太前妻绯闻聊骚开房pc对象，最喜欢的还是师母，狐狸妈，妩媚猫，大王tara。谁赞成，谁反对？ ...</blockquote>
+小聚是你吗
+
+*****
+
+####  IG.430  
+##### 14394#       发表于 2022-8-17 23:39
+
+最近一次见到胡雅菁是抖音小游戏的广告里，滤镜都遮不住的飞柱<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 14395#       发表于 2022-8-17 23:41
+
+今天晚上一共打了4把，娜迦大圣刚背混沌，全宰了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joker9527  
+##### 14396#       发表于 2022-8-17 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110942&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-17 23:30</a>
+
+核中核，凌晨两点更新上线</blockquote>
+我信了，别不上线好吧
+
+*****
+
+####  Kazepollar  
+##### 14397#       发表于 2022-8-17 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110992&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-17 23:35</a>
+ 我信了，现在我就熬夜</blockquote>
+我看的贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，理智理智
+
+*****
+
+####  Litccc  
+##### 14398#       发表于 2022-8-17 23:41
+
+也妹说是北京时间凌晨两点啊
+

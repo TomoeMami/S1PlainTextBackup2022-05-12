@@ -3331,3 +3331,40 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神
  ...</blockquote>
 刚刚试了 总师傅一张红卡50万 2张红卡必杀（
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1800#       发表于 2022-8-17 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110889&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 23:25</a>
+
+有种改回去啊</blockquote>
+你没病吧，我改啥楼
+
+我加了句“，而且二次，不嘴臭不爽是吧”
+
+我可没骂你，是你连着两遍骂我傻逼
+
+
+
+*****
+
+####  zore  
+##### 1801#       发表于 2022-8-17 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110802&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2022-8-17 23:16</a>
+
+B站某20年已经就用上三CBA狂兰一发带走帝王花的大神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+*****
+
+####  ggyy0088  
+##### 1802#       发表于 2022-8-17 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110777&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-17 23:13</a>
+男人有点过多了，而且有些明显是一次性路人</blockquote>
+无名草帽和剪影对的上应该是要实装了。还有某个已经做了两套立绘去年公布为NPC时哀鸿遍野的高杉应该也快了吧。
+
