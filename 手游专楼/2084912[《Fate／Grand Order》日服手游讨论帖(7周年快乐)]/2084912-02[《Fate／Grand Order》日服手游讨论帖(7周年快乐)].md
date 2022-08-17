@@ -1865,3 +1865,179 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 激动人心的沉船时间开始了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qb0079  
+##### 1665#       发表于 2022-8-17 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105589&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-17 16:32</a>
+
+公主歪大象反正就……没看到特效就洗洗睡
+
+其他的还要等那卡面刷出来的瞬间简直折磨人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">关键是池子里月癌就公主和大象，歪其他阶职就算了，歪大象的概率多小，谁能想到月癌翻过来会是大象，简直是惊吓
+
+*****
+
+####  qixinno2  
+##### 1666#       发表于 2022-8-17 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">果然毛都没有
+
+*****
+
+####  alucardcz  
+##### 1667#       发表于 2022-8-17 17:04
+
+<img src="https://img.saraba1st.com/forum/202208/17/170359d22ulv1blbvvvjuj.jpg" referrerpolicy="no-referrer">
+
+<strong>444444444.jpg</strong> (535.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 17:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 1668#       发表于 2022-8-17 17:05
+
+缓存还没更完就看到你楼里豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1669#       发表于 2022-8-17 17:05
+
+<blockquote>alucardcz 发表于 2022-8-17 17:04
+</blockquote>
+太快（欧）了
+
+背景不错哇
+
+我继续
+
+*****
+
+####  黑上シグマ  
+##### 1670#       发表于 2022-8-17 17:05
+
+<blockquote>引用第1666楼alucardcz于2022-08-17 17:04发表的  :</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲限定佬威力不减啊，羡慕，羡慕
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  onemoment  
+##### 1671#       发表于 2022-8-17 17:05
+
+单发直接出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/17/170549ipkqpuq31tjgq7jd.png" referrerpolicy="no-referrer">
+
+<strong>99B4E73F-41FC-4496-B9F2-009E34F652A7.png</strong> (923.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 17:05 上传
+
+*****
+
+####  里村紅葉  
+##### 1672#       发表于 2022-8-17 17:06
+
+120抽一张四星都没有，倒是歪了个月神<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1673#       发表于 2022-8-17 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106196&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 17:04</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是萌新狗 非洲人甘拜下风
+
+*****
+
+####  angelooo  
+##### 1674#       发表于 2022-8-17 17:06
+
+<blockquote>qb0079 发表于 2022-8-17 17:02
+关键是池子里月癌就公主和大象，歪其他阶职就算了，歪大象的概率多小，谁能想到月癌翻过来会是大 ...</blockquote>
+守门员出现的概率你是无法解释的，感觉就是恶心人
+
+*****
+
+####  qixinno2  
+##### 1675#       发表于 2022-8-17 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106235&amp;ptid=2084912" target="_blank">onemoment 发表于 2022-8-17 17:05</a>
+
+单发直接出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕
+
+*****
+
+####  alucardcz  
+##### 1676#       发表于 2022-8-17 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剩下的allin水伊  金圈 狂  b叔 心肺。。。骤停
+
+*****
+
+####  exiaexa  
+##### 1677#       发表于 2022-8-17 18:29
+
+<img src="https://p.sda1.dev/6/a3ba4719c71c57071365f8eae9482baa/CMP_20220817182850729.jpg" referrerpolicy="no-referrer">
+
+我怀疑yls在搞我
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 1678#       发表于 2022-8-17 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106286&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 18:27</a>
+
+剩下的allin水伊  金圈 狂  b叔 心肺。。。骤停</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕萌新抽到大拐 非酋连个四星都没抽到
+
+*****
+
+####  exiaexa  
+##### 1679#       发表于 2022-8-17 18:30
+
+顺便真的跟前面预测的一样
+
+这次90++双rba绿单已经可以不换人稳定3t了
+
+问题就是有一、二面至少要有一张红
+
+如果是个究极霉逼
+
+关底红绿红不按计算器不知道能不能打掉
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1680#       发表于 2022-8-17 18:31
+
+抽完了，在接受范围内的石头吧，武则天也就一个，在犹豫要不要给水伊吹补宝，有点慌，话说这rba四张卡面把自己本体按在地上打吧，小山你这次做得好啊
+
+
+
+*****
+
+####  qb0079  
+##### 1681#       发表于 2022-8-17 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5点本来准备进来看你们豹跳的，结果泥潭炸了
+
