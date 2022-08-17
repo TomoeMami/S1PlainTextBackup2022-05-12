@@ -535,3 +535,40 @@ tga就是一坨屎
 
 结果最后获奖者怪物猎人破晓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  g675259102  
+##### 65#       发表于 2022-8-17 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57092839&amp;ptid=2087305" target="_blank">是这样 发表于 2022-8-16 20:13</a>
+
+不能，我宁愿相信白皮再给一次p5pc版
+
+— from Google Pixel 6, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+就屁五那狗屎一样的地图和战斗系统还有剧情也配
+
+*****
+
+####  栗悟饭177  
+##### 66#       发表于 2022-8-17 09:36
+
+前面有的真不是反串吗
+
+*****
+
+####  Bojenkins  
+##### 67#       发表于 2022-8-17 09:37
+
+tga要想保持一贯水准就应该把奖颁给xb3<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  耶耶抛的岔  
+##### 68#       发表于 2022-8-17 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097837&amp;ptid=2087305" target="_blank">火的意志 发表于 2022-8-17 09:06</a>
+你居然觉得老头环怪物丰富程度和室内结构比xb3强？你是魂批吗？</blockquote>
+怪物特点和招式差异确实比xb系列要多，xb3拉好奶好不ot基本就能应对，xb3为了向连xb2保姆导航都适应不了的弱智妥协做大做简了室内结构，这有什么看不出来的？
+

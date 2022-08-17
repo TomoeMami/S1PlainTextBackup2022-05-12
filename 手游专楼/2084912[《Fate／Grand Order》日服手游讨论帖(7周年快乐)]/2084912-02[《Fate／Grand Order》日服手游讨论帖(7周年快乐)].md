@@ -1589,3 +1589,12 @@ Fami通
 
 研究了好几把现在决定就用大公了，都是3宝回收更稳，用阿一的话还要换人或绑定个加np的衣服，用大公还能继续练练极地服
 
+
+
+*****
+
+####  Yason  
+##### 1639#       发表于 2022-8-17 09:32
+
+隔壁逼事真的多<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这几天真的大开眼界
+

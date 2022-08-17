@@ -14809,3 +14809,22 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 其实更担心新4人真人实力怎么样，动画五老星再怎么样，三次元好歹有表现出实力
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2926#       发表于 2022-8-17 09:38
+
+前偶像至少有底子多半问题不大吧 虽然角色一副要烂完的样子  重量级的还得看2期c练没练出来 毕竟说的是唱跳0经验
+
+*****
+
+####  沙茶酱  
+##### 2927#       发表于 2022-8-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097441&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-17 08:38</a>
+
+其实更担心新4人真人实力怎么样，动画五老星再怎么样，三次元好歹有表现出实力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我感觉现在星团只能指望中之人了，你这个担心要成真的话，那就很可怕了
+
