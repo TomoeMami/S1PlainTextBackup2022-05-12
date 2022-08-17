@@ -1053,3 +1053,46 @@ xb3狠狠地爆杀了老头环的一马平川
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  awy47  
+##### 109#       发表于 2022-8-17 11:33
+
+应该会给曙光或者战神吧，也有可能是给老头环，主要还是看下半年战神的发挥
+
+*****
+
+####  qiyu1234  
+##### 110#       发表于 2022-8-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096885&amp;ptid=2087305" target="_blank">司马千晶 发表于 2022-8-17 06:42</a>
+虽然是野鸡奖，但最好拿了吧，这样能有效缓解s1的破晓ptsd。</blockquote>
+拿不到才好，就喜欢看有的人继续发病
+
+*****
+
+####  clover293  
+##### 111#       发表于 2022-8-17 11:37
+
+战神哪里算RPG了。。。要给也是aadv<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唯美924  
+##### 112#       发表于 2022-8-17 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要把老头环开除RPG的行列就行了，一同如把MHW开除RPG的行列一样
+
+*****
+
+####  莉拉厨  
+##### 113#       发表于 2022-8-17 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100649&amp;ptid=2087305" target="_blank">clover293 发表于 2022-8-17 11:37</a>
+战神哪里算RPG了。。。要给也是aadv</blockquote>
+TGA的RPG的定义是最宽泛那一档的，只要你这个游戏需要扮演一个角色进行冒险，都算RPG
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

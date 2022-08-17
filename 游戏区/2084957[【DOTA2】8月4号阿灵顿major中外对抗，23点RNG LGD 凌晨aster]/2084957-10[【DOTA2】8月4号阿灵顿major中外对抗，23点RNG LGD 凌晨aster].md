@@ -6164,3 +6164,107 @@ ti怎么能算奥运？更像是足球里的欧冠好吧。真要是奥运按国
 
 我还真想看看俄罗斯人崩溃哥和乌克兰人鸭头肉对线的画面的，多少有点宿命感了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iriyano  
+##### 14150#       发表于 2022-8-17 11:34
+
+dota梅西ame
+梅西世界杯亚军
+ame TI亚军
+很般配
+
+*****
+
+####  ArowRocher  
+##### 14151#       发表于 2022-8-17 11:35
+
+踢皮球界世界杯含金量比联赛和xx杯高吗
+
+*****
+
+####  何然  
+##### 14152#       发表于 2022-8-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100601&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-17 11:35</a>
+踢皮球界世界杯含金量比联赛和xx杯高吗</blockquote>
+奥运冠军》美洲杯冠军》欧冠
+望周知
+
+*****
+
+####  Cantha  
+##### 14153#       发表于 2022-8-17 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我这段时间看topson的天梯，感觉这个人强的吓人，他们两个别起什么化学反应吧
+
+*****
+
+####  何然  
+##### 14154#       发表于 2022-8-17 11:38
+
+不过钢针，以前拿来比梅西的好歹也是鳖鳖，拿处长来有点侮辱人了
+
+*****
+
+####  哈萨维·诺亚  
+##### 14155#       发表于 2022-8-17 11:38
+
+起了反应厨子回来把RNG爆炒不是挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lamapocos  
+##### 14156#       发表于 2022-8-17 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">和司马kuku组队，那种事情不要啊
+
+*****
+
+####  ArowRocher  
+##### 14157#       发表于 2022-8-17 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100635&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-17 11:37</a>
+奥运冠军》美洲杯冠军》欧冠
+望周知</blockquote>
+世俱杯什么的呢
+
+*****
+
+####  12481632  
+##### 14158#       发表于 2022-8-17 11:40
+
+顶儿子虽然天梯乱杀，但玩了很多妖路英雄，谨慎看好吧
+
+*****
+
+####  subject07  
+##### 14159#       发表于 2022-8-17 11:40
+
+t1能和rng见面，估计唯一的机会就是外卡赛了
+
+*****
+
+####  ArowRocher  
+##### 14160#       发表于 2022-8-17 11:41
+
+ana队友稍微语言统一一点对位爆鬼对线爆李斯我觉得都很正常
+
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 14161#       发表于 2022-8-17 11:41
+
+漏油已经宣判RNG预选游不出来了吗
+
+*****
+
+####  别急来过两招  
+##### 14162#       发表于 2022-8-17 11:42
+
+支持IG<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
