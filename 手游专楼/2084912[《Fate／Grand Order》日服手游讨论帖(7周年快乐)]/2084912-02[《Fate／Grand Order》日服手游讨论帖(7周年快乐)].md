@@ -3078,3 +3078,61 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 90++</blockquote>
 原来90++就是最多的了吗，体感掉的冰块数和其他的本也差不了太多，为什么不搞一个纯冰块本啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1781#       发表于 2022-8-17 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110645&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-17 23:01</a>
+
+原来90++就是最多的了吗，体感掉的冰块数和其他的本也差不了太多，为什么不搞一个纯冰块本啊
+
+ ...</blockquote>
+大概是因为冰块需求太少，商店换完溢出几百个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1782#       发表于 2022-8-17 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110645&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-17 23:01</a>
+
+原来90++就是最多的了吗，体感掉的冰块数和其他的本也差不了太多，为什么不搞一个纯冰块本啊
+
+ ...</blockquote>
+1200个冰块很快的，每次可以掉70个吧，打个20周就好了
+
+*****
+
+####  zore  
+##### 1783#       发表于 2022-8-17 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说的狂兰神是哪个啊
+
+*****
+
+####  gpx234mqx  
+##### 1784#       发表于 2022-8-17 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110720&amp;ptid=2084912" target="_blank">zore 发表于 2022-8-17 23:08</a>
+
+你们说的狂兰神是哪个啊</blockquote>
+兰斯洛特双RBA吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1785#       发表于 2022-8-17 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110208&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-17 22:26</a>
+
+总司是要咋才能不换人3T……
+
+宝具打下去只回10NP啊……</blockquote>
+现在整个绿单就只能玩2面宝具1面暴击的路子
+
+只能说好在rba有稳定出星
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
