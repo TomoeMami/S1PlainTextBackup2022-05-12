@@ -2229,3 +2229,106 @@ rba花了22个十一连歪了一个拉二，之前2宝水伊花了700+，再算�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是那个公主啊 我还嫌不够呢 起码应该三套模组 三套宝具 再给一套灵衣吧
 
+
+
+*****
+
+####  kiralzb  
+##### 1702#       发表于 2022-8-17 19:02
+
+服了，RBA这最终卡图又是对不上模型的，而且乳形也没水武藏好看，只顾着大了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 1703#       发表于 2022-8-17 19:03
+
+看了一眼RBA的卡面，好家伙破满直接画成青子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1704#       发表于 2022-8-17 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106684&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-17 19:02</a>
+
+服了，RBA这最终卡图又是对不上模型的，而且乳形也没水武藏好看，只顾着大了是吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得3破好看前提是完整的卡面图   扣出来好像有点怪怪的
+
+*****
+
+####  alucardcz  
+##### 1705#       发表于 2022-8-17 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106669&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-17 19:01</a>
+
+那可是那个公主啊 我还嫌不够呢 起码应该三套模组 三套宝具 再给一套灵衣吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主也摸了  1破宝具也锁了衣服
+
+反正这次几张新卡宝具都摸的很透彻
+
+*****
+
+####  angelooo  
+##### 1706#       发表于 2022-8-17 19:05
+
+<blockquote>kiralzb 发表于 2022-8-17 19:02
+服了，RBA这最终卡图又是对不上模型的，而且乳形也没水武藏好看，只顾着大了是吧 ...</blockquote>
+她满破这身是穿在一破毛衣里面的23333
+
+*****
+
+####  kiralzb  
+##### 1707#       发表于 2022-8-17 19:06
+
+等等，终破图其实是1破那套，将毛衣和眼镜脱了就是<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1708#       发表于 2022-8-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106712&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-17 19:05</a>
+
+她满破这身是穿在一破毛衣里面的23333</blockquote>
+哈哈，发现了
+
+*****
+
+####  qixinno2  
+##### 1709#       发表于 2022-8-17 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106702&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 19:05</a>
+
+公主也摸了  1破宝具也锁了衣服
+
+反正这次几张新卡宝具都摸的很透彻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是的 今年出的角色都是各种摸
+
+*****
+
+####  alucardcz  
+##### 1710#       发表于 2022-8-17 19:09
+
+rba总体挺满意 就是想不通这正脸宝具又没什么特效为什么也能做崩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  eilot  
+##### 1711#       发表于 2022-8-17 19:10
+
+5*30
+
+一隻水CBA、一隻水武则天
+
+还有一个黑圣杯
+
+*****
+
+####  angelooo  
+##### 1712#       发表于 2022-8-17 19:12
+
+我最喜欢一破教导主任和翻车鱼，初始也很活泼可爱，三破确实，如果把人抠出来就emmm，但比起本体那还是强的多了
+

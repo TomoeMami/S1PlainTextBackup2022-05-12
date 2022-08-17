@@ -1491,3 +1491,15 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 虽然是野鸡奖，但最好拿了吧，这样能有效缓解s1的破晓ptsd。</blockquote>
 那样我不乐意了，我最喜欢看s1 ptsd发作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 149#       发表于 2022-8-17 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106430&amp;ptid=2087305" target="_blank">黑夜守望者 发表于 2022-8-17 18:43</a>
+
+那样我不乐意了，我最喜欢看s1 ptsd发作了</blockquote>
+但可以由破晓XB3同为年度rpg引出新的ptsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -921,3 +921,15 @@ TOX倒是运行的很好 ...</blockquote>
 Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w，问题主要是没法调风扇曲线导致低功耗时 ...</blockquote>
 对哦，忘记 OXP 家还有一个静音模式，1s 静音能压 28w 着实不错（1 我记得开 20+w 直接烫到怀疑人生），到时候自己体验看看吧。感谢！
 
+
+
+*****
+
+####  savagealexander  
+##### 80#       发表于 2022-8-17 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094191&amp;ptid=2086469" target="_blank">那由 发表于 2022-8-16 21:57</a>
+
+5560的ayaneoair都能跑exvsfb</blockquote>
+哇塞 太感谢了 能模拟ps3那就幸福了 准备订一个 ayaneo2
+
