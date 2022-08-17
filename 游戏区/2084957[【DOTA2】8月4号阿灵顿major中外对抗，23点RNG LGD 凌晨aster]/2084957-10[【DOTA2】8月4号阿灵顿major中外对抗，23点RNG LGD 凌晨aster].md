@@ -8658,3 +8658,49 @@ B站都叫杰出杰神了啊，那能不能取后面的字叫出神呢</blockquo
 
 出神洞悉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  两三流浪者  
+##### 14414#       发表于 2022-8-18 00:15
+
+还有楼友不知道梓畜长什么样的？
+
+*****
+
+####  Philister  
+##### 14415#       发表于 2022-8-18 00:16
+
+笑啦，我还以为会先发阿版那位的照片。凉掉的v也是v呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 14416#       发表于 2022-8-18 00:17
+
+经过调查与核实确认【夜饮潇湘】与【中单光一】并无任何关系，望周知
+
+*****
+
+####  掉头学姐  
+##### 14417#       发表于 2022-8-18 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57111370&amp;ptid=2084957" target="_blank">Philister 发表于 2022-8-18 00:16</a>
+笑啦，我还以为会先发阿版那位的照片。凉掉的v也是v呢</blockquote>
+你来啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 14418#       发表于 2022-8-18 00:19
+
+真转型管人楼了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 14419#       发表于 2022-8-18 00:19
+
+又到了我最爱的光一果版本了吗
+
