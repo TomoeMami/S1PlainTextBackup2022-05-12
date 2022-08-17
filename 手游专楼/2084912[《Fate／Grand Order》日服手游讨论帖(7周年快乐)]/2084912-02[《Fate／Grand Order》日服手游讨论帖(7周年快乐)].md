@@ -1772,3 +1772,24 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 ----发送自 STAGE1 App for Android.</blockquote>
 您就是DC老师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 1656#       发表于 2022-8-17 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103557&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2022-8-17 14:30</a>
+
+您就是DC老师？</blockquote>
+大肠老师不是退坑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 1657#       发表于 2022-8-17 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103649&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-17 14:37</a>
+大肠老师不是退坑了吗</blockquote>
+忘记了DC老师经典的水武藏吃10连双大公了？
+
