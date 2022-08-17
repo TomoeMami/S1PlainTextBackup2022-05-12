@@ -2184,3 +2184,48 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 欧羡慕 本论泳装萌新一个4星都没</blockquote>
 那不就是欧爆了吗喂！
 
+
+
+*****
+
+####  xunit  
+##### 1697#       发表于 2022-8-17 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106494&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-17 18:47</a>
+
+全论坛是不是只有我在缺金蛋</blockquote>
+那正好这次90++就能刷金蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eden_hazard  
+##### 1698#       发表于 2022-8-17 18:54
+
+ 本帖最后由 eden_hazard 于 2022-8-17 18:56 编辑 
+
+rba花了22个十一连歪了一个拉二，之前2宝水伊花了700+，再算上3宝旧梅这次泳装一共花了差不多2000石，要命了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gulant  
+##### 1699#       发表于 2022-8-17 18:55
+
+20连rba get~收工~
+
+*****
+
+####  alucardcz  
+##### 1700#       发表于 2022-8-17 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106537&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-8-17 18:50</a>
+
+这次三个五星的宝具真是摸得可以，伊吹加了个灵衣但宝具本质就是换了个色，其他两个不说了，rba卡面模组都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以宝具和建模攻击动作是不是2批人做的。。你看公主那个ex都可以当宝具动画了
+
+*****
+
+####  qixinno2  
+##### 1701#       发表于 2022-8-17 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是那个公主啊 我还嫌不够呢 起码应该三套模组 三套宝具 再给一套灵衣吧
+
