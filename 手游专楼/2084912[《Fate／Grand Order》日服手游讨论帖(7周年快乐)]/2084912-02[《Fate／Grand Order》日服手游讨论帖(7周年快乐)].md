@@ -2789,3 +2789,12 @@ RBA除了卡面还行外，不咋行啊
 发了辣么多石头啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全去抽公主了啊 然而公主不爱我只出来了俩
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1753#       发表于 2022-8-17 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头抽卡歪到飞啊wwwww
+

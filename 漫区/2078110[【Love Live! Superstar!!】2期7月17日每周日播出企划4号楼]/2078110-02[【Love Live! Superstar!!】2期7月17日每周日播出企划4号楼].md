@@ -15583,3 +15583,29 @@ FC的看板娘，鲤酱的周边也登场啦！
 卧槽卧槽，我以为鲤鱼唠嗑会没戏了，没想到A店中了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人品守恒，群里看到过a店一个没中的………………
 
+
+
+*****
+
+####  仟音一心  
+##### 2987#       发表于 2022-8-17 21:43
+
+<img src="https://img.saraba1st.com/forum/202208/17/214351kusa4o664b6unguf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D2CF03B0-3ABD-4EBB-9ED6-16012F685BC4.jpeg</strong> (119.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-17 21:43 上传
+
+*****
+
+####  iuhehc  
+##### 2988#       发表于 2022-8-17 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109424&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-17 21:43</a></blockquote>
+应该做一个snp的版本
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
