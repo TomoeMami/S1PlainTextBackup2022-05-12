@@ -7976,3 +7976,45 @@ atf还年轻，还有改造空间。需要一个ti的失利重塑他的dota观�
 这是皮套坦克吗，哇我真是惊了个大呆，这体型一屁股能把A畜仿佛吸了十年古柯碱的麻杆身材撅折吧 ...</blockquote>
 小恶魔学妹，懂吧！
 
+
+
+*****
+
+####  ArowRocher  
+##### 14345#       发表于 2022-8-17 20:13
+
+ 本帖最后由 ArowRocher 于 2022-8-17 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107516&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-17 19:58</a>
+来了嘛，
+
+抛开处长送盾，鳖鳖背后说人坏话，这些事实不谈。
+
+反正辱骂人的这个行为是不对的。</blockquote>
+那我明白了，你是把皮球说垃圾话的行为看做对巨大利益集团的孤勇反击，也是一种理解。
+
+那何雍正不当面骂徐志雷的联系我还是想不通
+
+*****
+
+####  walfeds  
+##### 14346#       发表于 2022-8-17 20:15
+
+[https://tieba.baidu.com/p/7790022783](https://tieba.baidu.com/p/7790022783)
+
+<img src="https://img.saraba1st.com/forum/202208/17/201448sc283rvool29xftl.jpg" referrerpolicy="no-referrer">
+
+<strong>a6054f2c11dfa9ecfe5066c227d0f703908fc13b.jpg</strong> (41.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 20:14 上传
+
+我寻思怎么看都能爆杀坦克了，大概giegie好这一口吧
+
+*****
+
+####  maju3  
+##### 14347#       发表于 2022-8-17 20:23
+
+do圈这些太太前妻绯闻聊骚开房pc对象，最喜欢的还是师母，狐狸妈，妩媚猫，大王tara。谁赞成，谁反对？
+

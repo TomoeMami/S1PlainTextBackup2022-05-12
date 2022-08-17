@@ -2497,3 +2497,24 @@ rba3破满破都差口气
 想抽5个武则天，卡在4个结果rba越抽越多</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果真的是十宝，真羡慕欧皇啊
 
+
+
+*****
+
+####  alucardcz  
+##### 1728#       发表于 2022-8-17 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107664&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 20:06</a>
+
+多按了一个0吧
+
+10宝rba那武后不得爆炸了，哪儿会才5个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看你楼下
+
+*****
+
+####  kiralzb  
+##### 1729#       发表于 2022-8-17 20:14
+
+金方块一般换啥好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
