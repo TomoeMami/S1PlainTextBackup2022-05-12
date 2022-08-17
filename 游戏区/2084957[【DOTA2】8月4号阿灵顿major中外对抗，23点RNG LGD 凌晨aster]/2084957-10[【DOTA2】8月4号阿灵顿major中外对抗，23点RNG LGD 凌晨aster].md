@@ -8283,3 +8283,38 @@ og这个ceo也有点意思，明面上是20年年中才当的ceo，但是跟老o
 
 顶儿子已经是上帝的舒适区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 14372#       发表于 2022-8-17 22:11
+
+楼友今天在刀楼发赵姐照片，明天就要在刀楼发谭姐照片，之后我都不敢想了！
+
+*****
+
+####  walfeds  
+##### 14373#       发表于 2022-8-17 22:12
+
+问就是超哥不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 14374#       发表于 2022-8-17 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108283&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-17 20:41</a>
+
+垃圾话是说球员直接互相挑衅攻击的话，不是说他说垃圾，也不是说皮球这个人垃圾。天经地义则是有点油麦了 ...</blockquote>
+别提了jj老炮王了 10年前就草粉出名 当然了比坤坤这种下三滥手段要高级多 基本都是快递
+
+*****
+
+####  百世诸侯  
+##### 14375#       发表于 2022-8-17 22:17
+
+你们套皮人圈子就没有好看的照片吗？以前管人痴发的那个大奶女王好像也不是本人，能不能来点烧的，抖音整形脸的都行
+

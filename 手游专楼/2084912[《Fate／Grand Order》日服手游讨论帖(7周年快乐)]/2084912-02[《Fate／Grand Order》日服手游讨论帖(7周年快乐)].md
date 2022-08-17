@@ -2887,3 +2887,15 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 应该是这个了，点进去要收钱，不给钱要慢慢赚分下载</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为了你的账号安全 试都别试
 
+
+
+*****
+
+####  gulant  
+##### 1762#       发表于 2022-8-17 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109926&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 22:09</a>
+
+为了你的账号安全 试都别试</blockquote>
+不试了不试了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，请假b站那里能看到最新的剧情，不是国服，是日服的，连载性质。
+
