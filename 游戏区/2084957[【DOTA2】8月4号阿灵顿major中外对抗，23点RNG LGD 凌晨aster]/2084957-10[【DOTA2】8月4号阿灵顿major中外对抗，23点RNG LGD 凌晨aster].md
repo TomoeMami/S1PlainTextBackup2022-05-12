@@ -6992,3 +6992,12 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然想起来，清茶就算进了预选前三真的能去新加坡吗
 
+
+
+*****
+
+####  一色いろは  
+##### 14248#       发表于 2022-8-17 16:02
+
+感觉只想看IG出线了
+
