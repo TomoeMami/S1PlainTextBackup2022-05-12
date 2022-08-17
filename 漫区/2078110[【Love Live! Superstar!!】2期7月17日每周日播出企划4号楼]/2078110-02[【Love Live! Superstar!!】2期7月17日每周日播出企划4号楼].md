@@ -15254,3 +15254,25 @@ CEO：暂时不明，等下集
 
 答案是liella的官号没开收益<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 2964#       发表于 2022-8-17 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102522&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-17 13:24</a>
+
+还不如聊聊官号收入到底被谁吃了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到这个我有点好奇，如果是油管，5W点击能换成多少钱
+
+*****
+
+####  player3960  
+##### 2965#       发表于 2022-8-17 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102773&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-17 13:42</a>
+
+说到这个我有点好奇，如果是油管，5W点击能换成多少钱</blockquote>
+正好油管那个全婆队长更新了第五话的视频，他自己油管一个视频6万播放量能拿2千多台币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

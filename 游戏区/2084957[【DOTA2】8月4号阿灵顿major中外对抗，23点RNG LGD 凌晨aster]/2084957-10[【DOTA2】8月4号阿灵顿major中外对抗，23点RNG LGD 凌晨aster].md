@@ -6645,3 +6645,26 @@ TI双冠选手、前OG战队队员Topson在Monkey Business谈话节目中解释�
 
 厨子可能还认得到一些中文字，捡一下也不是捡不起来，顶级儿子可算了吧……
 
+
+
+*****
+
+####  dclara1  
+##### 14208#       发表于 2022-8-17 13:44
+
+鞭女友说安厨一丁点中文都不会说，上海话倒是能说两三句
+
+*****
+
+####  北条早苗  
+##### 14209#       发表于 2022-8-17 13:45
+
+IG还真的挺适合的，jt和oli都是东南亚，森哥可能要玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 14210#       发表于 2022-8-17 13:49
+
+不是就俩外籍名额么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

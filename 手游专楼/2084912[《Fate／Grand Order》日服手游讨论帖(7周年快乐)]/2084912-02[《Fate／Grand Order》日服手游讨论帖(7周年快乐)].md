@@ -1747,3 +1747,15 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 商店快换完看才发现冰块原来不能换钱啊</blockquote>
 能 没开而己
 
+
+
+*****
+
+####  eyeego  
+##### 1654#       发表于 2022-8-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101534&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-17 12:24</a>
+商店快换完看才发现冰块原来不能换钱啊</blockquote>
+能的
+但是不划算 50个才换1w
+
