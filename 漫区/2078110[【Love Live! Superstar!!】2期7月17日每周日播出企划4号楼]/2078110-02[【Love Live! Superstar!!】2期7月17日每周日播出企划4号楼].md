@@ -15078,3 +15078,29 @@ CEO：暂时不明，等下集
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  沙茶酱  
+##### 2948#       发表于 2022-8-17 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100872&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-17 11:48</a>
+
+5月那会公布了就有人吐槽过了，搞不好我命由我不由天，绘森是在自救，现在看没准一语成谶了 ...</blockquote>
+说句题外话。看到你头像，让我有些难过，这么可爱的可可······
+
+只能说遇人不淑，真的遇人不淑啊
+
+别靠近花田，花田会让人不幸
+
+哦，对，还有京极
+
+*****
+
+####  仟音一心  
+##### 2949#       发表于 2022-8-17 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099499&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 10:42</a></blockquote>
+胶布果然还贴着。
+

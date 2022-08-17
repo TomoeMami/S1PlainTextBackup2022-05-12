@@ -2275,3 +2275,18 @@ live的ED还特地拍了花絮，是为了拍花絮而拍花絮吧
 
 感觉是要做周边用的小形象
 
+
+
+*****
+
+####  rs5621  
+##### 217#       发表于 2022-8-17 12:16
+
+ 本帖最后由 rs5621 于 2022-8-17 12:17 编辑 
+
+<img src="https://p.sda1.dev/6/e4f55103f2a29cdaa8faf47a296c1c12/CMP_20220817121528945.jpg" referrerpolicy="no-referrer">
+
+pm漫画更新了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

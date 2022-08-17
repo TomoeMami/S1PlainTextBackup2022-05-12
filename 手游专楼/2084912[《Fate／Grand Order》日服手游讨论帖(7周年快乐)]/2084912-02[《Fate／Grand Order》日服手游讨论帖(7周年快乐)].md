@@ -1690,3 +1690,14 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我将用我的40石5呼符证明我非洲血统的纯净 看谁敢污蔑我是欧洲人
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 1649#       发表于 2022-8-17 12:19
+
+点数刷到175W出第五张倍卡礼装的时候掉了第六张<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
