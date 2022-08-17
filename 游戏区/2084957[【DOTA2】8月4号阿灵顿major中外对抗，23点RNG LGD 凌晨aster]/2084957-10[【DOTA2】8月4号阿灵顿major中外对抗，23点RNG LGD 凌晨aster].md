@@ -6620,3 +6620,28 @@ TI双冠选手、前OG战队队员Topson在Monkey Business谈话节目中解释�
 
 我本子呢？我本子呢？我本子呢？
 
+
+
+*****
+
+####  尸体鲨  
+##### 14205#       发表于 2022-8-17 13:34
+
+厨子和rng搭伙了一段时间觉得这帮博登都能差点打进直邀，我们两兄弟打个预选岂不是简简单单
+
+*****
+
+####  尸体鲨  
+##### 14206#       发表于 2022-8-17 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102248&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 13:07</a>
+我只是说有这件事，又不会截聊天记录出来当小人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点谜语，版主是mxo还是axo
+
+*****
+
+####  CNFH1984  
+##### 14207#       发表于 2022-8-17 13:38
+
+厨子可能还认得到一些中文字，捡一下也不是捡不起来，顶级儿子可算了吧……
+

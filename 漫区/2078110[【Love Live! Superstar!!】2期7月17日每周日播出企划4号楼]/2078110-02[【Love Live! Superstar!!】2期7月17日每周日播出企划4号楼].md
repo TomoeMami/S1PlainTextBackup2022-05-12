@@ -15230,3 +15230,27 @@ CEO：暂时不明，等下集
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  星降る森  
+##### 2962#       发表于 2022-8-17 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102489&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-17 13:22</a>
+
+堇是一开始想把学园偶像当跳板态度不认真才被可可怼的，现在一看夏美都想把学园偶像当柴火了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是理论上谁也不知道你这柴火有没有受潮不是。如果反过来，夏美是大手子，星团是默默无闻地下赔钱货，做慈善的反过来就是夏美了。
+
+星动画很怪，以前的缪水都有过和钱直接有关的剧情，毕竟做衣服，出去比赛路费都要钱，水甚至特地有一回为了筹措部费去水族馆打工的剧情，到星这里，明明大家也没有特别有钱，自己忽略了经费，无偿帮夏美打工去了。
+
+因为对自己定位出现偏差导致自己血亏，到头来被批的是夏美。
+不过可以预感这段剧情以后必定是个本子素材（不是）
+
+*****
+
+####  ViyViy  
+##### 2963#       发表于 2022-8-17 13:40
+
+答案是liella的官号没开收益<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

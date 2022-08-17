@@ -1350,3 +1350,40 @@ xb2 从资料库的角度讲可能更闪光，但 xb3 从游戏的角度看不�
 看你那个逼样还挂个百度五流贴吧吧务。。还特意说明了一下不是汉化组。。非要把自己是废物写的这么清楚干 ...</blockquote>
 加油喷粪，5块钱毕竟不算多。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  g675259102  
+##### 138#       发表于 2022-8-17 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57102627&amp;ptid=2087305" target="_blank">仟音一心 发表于 2022-8-17 13:31</a>
+
+加油喷粪，5块钱毕竟不算多。</blockquote>
+搞了半天还是个复读机啊。。
+
+难怪这辈子最大的成就也就是在自己的简介后面加个不是汉化组成员了。。。
+
+哈哈哈
+
+*****
+
+####  Chia  
+##### 139#       发表于 2022-8-17 13:35
+
+婆罗门三部曲
+
+1.贷款吹
+
+XXX不可能翻车，我要吹爆XXX。
+
+2.公审媒体
+
+你给它8分，你什么成份？是不是黑人女权LGBT？有没有给AABBCC游戏打过高分。
+
+3.火烤评奖
+
+赢了是我的，输了是你的。赫赫，野鸡媒体，怎么还不开。
+
+好急，快端上来吧。
+
