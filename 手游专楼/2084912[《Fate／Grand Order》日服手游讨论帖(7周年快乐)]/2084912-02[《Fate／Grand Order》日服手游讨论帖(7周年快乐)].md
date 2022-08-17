@@ -2982,3 +2982,50 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 话说现在哪个本掉冰块的效率最高</blockquote>
 90++
 
+
+
+*****
+
+####  里村紅葉  
+##### 1771#       发表于 2022-8-17 22:34
+
+200抽没有武则天，这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1772#       发表于 2022-8-17 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110322&amp;ptid=2084912" target="_blank">里村红叶 发表于 2022-8-17 22:34</a>
+
+200抽没有武则天，这合理吗</blockquote>
+四星出不来很正常<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+以前美游和水莫就抽不到<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 1773#       发表于 2022-8-17 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110337&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 22:35</a>
+
+四星出不来很正常</blockquote>
+可是我200抽五星都出了2个诶，其他四星也一个没歪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 1774#       发表于 2022-8-17 22:38
+
+<blockquote>里村紅葉 发表于 2022-8-17 22:36
+可是我200抽五星都出了2个诶，其他四星也一个没歪</blockquote>
+我当初抽xx也是这样，习惯就好
+
+*****
+
+####  zore  
+##### 1775#       发表于 2022-8-17 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">是什么蒙蔽了我的双眼
+
