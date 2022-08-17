@@ -15104,3 +15104,19 @@ CEO：暂时不明，等下集
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099499&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 10:42</a></blockquote>
 胶布果然还贴着。
 
+
+
+*****
+
+####  masshiroo  
+##### 2950#       发表于 2022-8-17 12:32
+
+没看第二季，去啊B看了眼前五集总结，本堇厨只想说这是在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  masshiroo  
+##### 2951#       发表于 2022-8-17 12:33
+
+其实第一季表现的可堇关系就怪怪的了，第二季只是彻底暴露出来了吧
+

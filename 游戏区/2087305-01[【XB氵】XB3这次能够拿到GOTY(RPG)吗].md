@@ -1231,3 +1231,17 @@ xb2 从资料库的角度讲可能更闪光，但 xb3 从游戏的角度看不�
 
 游戏区真温柔，一个上个月才注册的小号，在漫区放第一个屁时就被扣鹅了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  g675259102  
+##### 127#       发表于 2022-8-17 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101635&amp;ptid=2087305" target="_blank">仟音一心 发表于 2022-8-17 12:30</a>
+
+游戏区真温柔，一个上个月才注册的小号，在漫区放第一个屁时就被扣鹅了。 ...</blockquote>
+搞了半天还是个猎吹跨区无能狂怒
+
+没活了给你富坚爹当人工靠椅让它多画2张 
+

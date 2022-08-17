@@ -1710,3 +1710,29 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 商店快换完看才发现冰块原来不能换钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1651#       发表于 2022-8-17 12:34
+
+<blockquote>引用第1641楼都谷捻柏于2022-08-17 10:24发表的  :
+
+引用:天王寺凯伊姆 发表于 2022-08-17 10:21:17因为我的硬币拿去喂圣杯了周年不是刚......</blockquote>
+有没有可能，是拿去造圣杯了（
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  黑上シグマ  
+##### 1652#       发表于 2022-8-17 12:35
+
+<blockquote>引用第1644楼poor于2022-08-17 10:41发表的  :
+
+P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要给我出起重机了吧—— 来自 vivo V......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这算啥，我抽伊吹可是彩圈大公
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
