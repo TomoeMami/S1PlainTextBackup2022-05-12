@@ -1571,3 +1571,12 @@ Fami通
 这天然冰需求意外的少啊，之后助战放什么礼装比较容易骗友情点啊，总之就是非常缺 ...</blockquote>
 友情点一直都是靠刷无限池吧，等开了多刷刷就多了
 
+
+
+*****
+
+####  千叶铁矢  
+##### 1637#       发表于 2022-8-17 08:03
+
+没满破礼装好像都要换人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

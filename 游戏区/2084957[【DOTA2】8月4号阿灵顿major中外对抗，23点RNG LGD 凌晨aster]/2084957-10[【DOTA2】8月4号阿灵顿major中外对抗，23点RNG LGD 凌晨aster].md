@@ -5250,3 +5250,39 @@ ame在打apex呢，心态好的很
 我自己没下过！</blockquote>
 帮朋友参考是吧草
 
+
+
+*****
+
+####  12481632  
+##### 14053#       发表于 2022-8-17 08:03
+
+处长是准备复刻一遍去年超哥的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14054#       发表于 2022-8-17 08:08
+
+一轮游的话就是#新加坡乳化#了
+
+*****
+
+####  syndrome2032  
+##### 14055#       发表于 2022-8-17 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097084&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-17 07:47</a>
+说起来我还是有个疑问，下面八ti假赛我肯定是不信的。
+
+但是我印象里下面八那次打电话暴露了下注过后，在微 ...</blockquote>
+参照去年ti10后小糯米撕逼的微博来看。
+
+应该没停过。
+
+*****
+
+####  nomhrpls  
+##### 14056#       发表于 2022-8-17 08:11
+
+看看nigma打液体如何，打不过就别想着去外卡了
+

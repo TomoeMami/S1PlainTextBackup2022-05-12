@@ -896,3 +896,28 @@ Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w�
 
 TOX倒是运行的很好
 
+
+
+*****
+
+####  bypass  
+##### 78#         楼主| 发表于 2022-8-17 08:05
+
+ 本帖最后由 bypass 于 2022-8-17 08:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57096375&amp;ptid=2086469" target="_blank">恋妖壶 发表于 2022-8-17 01:25</a>
+
+帮你试了，ICO进游戏就拖慢十几帧，基本处于不能玩的状态
+
+TOX倒是运行的很好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 谢谢测试！！看来的确不能对 PS3 模拟器抱有不切实际幻想的幻想，能玩是惊喜，跑不动才是符合预期。
+
+*****
+
+####  bypass  
+##### 79#         楼主| 发表于 2022-8-17 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57095593&amp;ptid=2086469" target="_blank">83913536 发表于 2022-8-16 23:48</a>
+
+Aokzoe应该还是onexplayer 1s的模组，散热OK开静音模式就能压28w，问题主要是没法调风扇曲线导致低功耗时 ...</blockquote>
+对哦，忘记 OXP 家还有一个静音模式，1s 静音能压 28w 着实不错（1 我记得开 20+w 直接烫到怀疑人生），到时候自己体验看看吧。感谢！
+
