@@ -6971,3 +6971,24 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 这次TI我还能看到奇迹卡吗</blockquote>
 先把卡去掉吧。。。
 
+
+
+*****
+
+####  星野航  
+##### 14246#       发表于 2022-8-17 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103672&amp;ptid=2084957" target="_blank">灰色的狐狸 发表于 2022-8-17 15:38</a>
+
+这个太逗了，什么大巴黎踢人传统</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这问题的区别是，干爹可以给萧瑟找四个赵云
+
+石油爹能给总监找10个赵云么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 14247#       发表于 2022-8-17 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然想起来，清茶就算进了预选前三真的能去新加坡吗
+
