@@ -2332,3 +2332,75 @@ rba总体挺满意 就是想不通这正脸宝具又没什么特效为什么也�
 
 我最喜欢一破教导主任和翻车鱼，初始也很活泼可爱，三破确实，如果把人抠出来就emmm，但比起本体那还是强的多了
 
+
+
+*****
+
+####  yangun22  
+##### 1713#       发表于 2022-8-17 19:12
+
+公主1600，旧梅700，伊吹2100，RBA3400,概率还是会持平的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 1714#       发表于 2022-8-17 19:13
+
+还是没忍住，1100多石头抽了10rba 5武后
+
+*****
+
+####  kiralzb  
+##### 1715#       发表于 2022-8-17 19:15
+
+武则天这三套发型还挺给力的啊，不是随便凑数应付的货
+
+现在宝具动画最拉的就是RBA了，可以说是毫无设计，正脸模型也有点畸形的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1716#       发表于 2022-8-17 19:15
+
+ 本帖最后由 exiaexa 于 2022-8-17 19:22 编辑 
+
+rba3破满破都差口气
+
+3破头发太怪了，满破完全看不出这是CBA，怎么看都是青子
+
+只能说小山临门一脚永远要出问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说个笑话，泳装前我转了日区
+
+泳装后我Google Play白金了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1717#       发表于 2022-8-17 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106802&amp;ptid=2084912" target="_blank">onemoment 发表于 2022-8-17 19:13</a>
+
+还是没忍住，1100多石头抽了10rba 5武后</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/17/191602jngzyn4m8nctgu9s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 19:16 上传
+
+*****
+
+####  angelooo  
+##### 1718#       发表于 2022-8-17 19:17
+
+<blockquote>kiralzb 发表于 2022-8-17 19:15
+武则天这三套发型还挺给力的啊，不是随便凑数应付的货
+
+现在宝具动画最拉的就是RBA了，可以说是毫无设计， ...</blockquote>
+我刚抽到武则天的时候看着那熟悉的卡面背景水夏ptsd都要犯了，一破那套衣服接受不能，还好三破满破都不错
+
