@@ -6943,3 +6943,31 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 
 不应该是绿色版本吗?三人转至少是肌肉肉搏, 绿色版本是纯纯的恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nomhrpls  
+##### 14243#       发表于 2022-8-17 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个大核版本吧，再让我看一次约旦人1V9吧
+
+*****
+
+####  12481632  
+##### 14244#       发表于 2022-8-17 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57104580&amp;ptid=2084957" target="_blank">nomhrpls 发表于 2022-8-17 15:34</a>
+来个大核版本吧，再让我看一次约旦人1V9吧</blockquote>
+这次TI我还能看到奇迹卡吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nomhrpls  
+##### 14245#       发表于 2022-8-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57104645&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-17 15:37</a>
+
+这次TI我还能看到奇迹卡吗</blockquote>
+先把卡去掉吧。。。
+
