@@ -2708,3 +2708,22 @@ MC的印象太深了其他的事件都忘了
 
 我记得两边的主动联系浓厚起来是加入火建之后才开始的
 
+
+
+*****
+
+####  holoan  
+##### 256#         楼主| 发表于 2022-8-17 21:13
+
+<img src="https://img.saraba1st.com/forum/202208/17/211236k5bjaieli5oobr57.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 21:12 上传
+
+反倒是点赞了luna的推特
+
+也就是说去luna那边露脸的可能性更大
+

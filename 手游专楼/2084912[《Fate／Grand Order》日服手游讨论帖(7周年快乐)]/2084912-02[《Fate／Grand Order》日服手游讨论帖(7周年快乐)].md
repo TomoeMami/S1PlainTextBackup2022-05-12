@@ -2638,3 +2638,52 @@ rba3破满破都差口气
 羡慕  萌新0石了 甚至没有梅莉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕萌新有RBA
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1741#       发表于 2022-8-17 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108831&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-17 21:11</a>
+
+羡慕萌新有RBA</blockquote>
+RBA除了卡面还行外，不咋行啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+宝具魔放还要水边，得上莉莉丝<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1742#       发表于 2022-8-17 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108805&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-17 21:10</a>
+
+非洲人之前都差不多要1年没抽卡了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">这论活动结束后我也开始不抽卡了 
+
+*****
+
+####  qixinno2  
+##### 1743#       发表于 2022-8-17 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108886&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 21:15</a>
+
+RBA除了卡面还行外，不咋行啊
+
+宝具魔放还要水边，得上莉莉丝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是我没有就很羡慕
+
+*****
+
+####  gpx234mqx  
+##### 1744#       发表于 2022-8-17 21:20
+
+ 本帖最后由 gpx234mqx 于 2022-8-17 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108940&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 21:17</a>
+
+这论活动结束后我也开始不抽卡了</blockquote>
+后面几个月应该没啥
+
+等年底大蜘蛛UO和冠剑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
