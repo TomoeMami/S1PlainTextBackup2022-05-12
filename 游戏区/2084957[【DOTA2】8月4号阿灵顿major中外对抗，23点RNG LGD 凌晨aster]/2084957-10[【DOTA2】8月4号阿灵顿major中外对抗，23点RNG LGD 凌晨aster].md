@@ -5389,3 +5389,39 @@ ti8 g4水人波高地也是为了骗斧王交吼 猴子交买活是吧
 
 你们对小王处到底有什么期待啊
 
+
+
+*****
+
+####  沈淮  
+##### 14066#         楼主| 发表于 2022-8-17 09:13
+
+a畜下次玩三国杀的时候叫我一声，我点个张任双头让他把白板
+
+*****
+
+####  白色的120  
+##### 14067#       发表于 2022-8-17 09:14
+
+菠菜这种事情，rotk不都说了，下别的队输赢，下自己队赢都不叫事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 14068#       发表于 2022-8-17 09:16
+
+你们比集美还想和a畜一起玩游戏啊
+
+*****
+
+####  何然  
+##### 14069#       发表于 2022-8-17 09:17
+
+下注这事其实也没啥好说的，懂的都懂
+
+圈内最好玩的还是打表演赛演员独走不听导演安排的
+
+那几次知名出圈的表演赛差不多就这样<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
