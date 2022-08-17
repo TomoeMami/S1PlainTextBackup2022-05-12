@@ -2687,3 +2687,105 @@ RBA除了卡面还行外，不咋行啊
 
 等年底大蜘蛛UO和冠剑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1745#       发表于 2022-8-17 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108962&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-17 21:18</a>
+
+但是我没有就很羡慕</blockquote>
+咋就没石头了呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+发了辣么多石头啊
+
+*****
+
+####  天王寺凯伊姆  
+##### 1746#       发表于 2022-8-17 21:23
+
+这rba抽是抽到了但真感觉用不上
+
+*****
+
+####  exiaexa  
+##### 1747#       发表于 2022-8-17 21:24
+
+ 本帖最后由 exiaexa 于 2022-8-17 21:27 编辑 
+
+说rba不行是认真的吗……
+
+现在单说这个111的90++
+
+绿卡单体里，剑刷、BX、阿清、总司都可以不换人3t了
+
+比起红卡换人一通折腾还要跟发牌员斗争，起码现在绿卡只需要跟发牌员斗争了
+
+真霉逼了换人充个50就是了
+
+单以这个本来说，绿单现在是实打实的可以暴打红卡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1748#       发表于 2022-8-17 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109074&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-8-17 21:23</a>
+
+这rba抽是抽到了但真感觉用不上</blockquote>
+没莉莉丝第二技能，RBA就打不出伤害<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+当拐半残，当光炮也半残<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1749#       发表于 2022-8-17 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109081&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 21:24</a>
+
+说rba不行是认真的吗……
+
+现在单说这个111的90++</blockquote>
+为什么红卡还要跟发牌员斗啊 萌新用狂娜宝具3连解决了啊？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+红卡单体不至于还不如一个光炮吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1750#       发表于 2022-8-17 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">啊对了 那么前几天的吹的狂兰神有了rba能打111了吗 有没有人试过
+
+*****
+
+####  exiaexa  
+##### 1751#       发表于 2022-8-17 21:31
+
+ 本帖最后由 exiaexa 于 2022-8-17 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109127&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 21:27</a>
+
+为什么红卡还要跟发牌员斗啊 萌新用狂娜宝具3连解决了啊？
+
+红卡单体不至于还不如一个光炮吧[f:244 ...</blockquote>
+红单有效自充太丢人了
+
+这个本好使的就两个，小贝和金时，而且必绑奥伯龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1752#       发表于 2022-8-17 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109065&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 21:23</a>
+
+咋就没石头了呢
+
+发了辣么多石头啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全去抽公主了啊 然而公主不爱我只出来了俩
+

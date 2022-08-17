@@ -8188,3 +8188,24 @@ Fy颜值高没的说，不看发际线就没事，实际上电竞这帮人只有
 
 xxs和ori我都觉得还不错啊
 
+
+
+*****
+
+####  ArowRocher  
+##### 14362#       发表于 2022-8-17 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108441&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-17 20:49</a>
+不如回顾下皮球经典贴吧，漏油们。[白头] 稳得仿佛失去过什么（亲ma）一样[/backc ...</blockquote>
+不是本人吧
+
+*****
+
+####  lyjssj  
+##### 14363#       发表于 2022-8-17 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57108764&amp;ptid=2084957" target="_blank">joker9527 发表于 2022-8-17 21:07</a>
+
+这是真皮球嘛？</blockquote>
+是标准的SG贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
