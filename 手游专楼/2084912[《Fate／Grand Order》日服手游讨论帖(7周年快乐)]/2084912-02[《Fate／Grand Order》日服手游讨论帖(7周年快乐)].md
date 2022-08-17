@@ -2824,3 +2824,66 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧情的我，请问用这类补丁会有删号风险吗？ ...</blockquote>
 有 而且风险相当高  不想要号的可以尝试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gulant  
+##### 1757#       发表于 2022-8-17 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109753&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 22:01</a>
+
+有 而且风险相当高  不想要号的可以尝试</blockquote>
+那算了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1758#       发表于 2022-8-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109793&amp;ptid=2084912" target="_blank">gulant 发表于 2022-8-17 22:03</a>
+
+那算了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这补丁我刚刚在nga看到过 是不是要收钱的那个  被举报过多贴好像已经被删了
+
+*****
+
+####  gulant  
+##### 1759#       发表于 2022-8-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109872&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 22:07</a>
+
+你说的这补丁我刚刚在nga看到过 是不是要收钱的那个  被举报过多贴好像已经被删了 ...</blockquote>
+应该是这个了，点进去要收钱，不给钱要慢慢赚分下载
+
+*****
+
+####  quanlix  
+##### 1760#       发表于 2022-8-17 22:09
+
+抽卡总结
+
+周年之前攒了600石，呼符+碎片差不多有100抽算300石，周年送800石
+
+公主池课2单，3宝公主，歪1钓鱼佬
+
+梅丽池课3单，2宝梅丽，歪1福利多
+
+伊吹池课10单，3宝伊吹，歪1拉二
+
+斯卡蒂池课6单，3宝斯卡蒂，武则天4宝，歪1源为朝
+
+5200+的石头出15个ssr
+
+钱包君炸裂，踏实回血到年底吧
+
+*****
+
+####  alucardcz  
+##### 1761#       发表于 2022-8-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109916&amp;ptid=2084912" target="_blank">gulant 发表于 2022-8-17 22:09</a>
+
+应该是这个了，点进去要收钱，不给钱要慢慢赚分下载</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为了你的账号安全 试都别试
+
