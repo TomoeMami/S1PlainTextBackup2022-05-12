@@ -1141,3 +1141,34 @@ nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必�
 
 老头环野外地图确实没啥可说的，但吊打老头环室内地图是否有点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  g675259102  
+##### 118#       发表于 2022-8-17 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100898&amp;ptid=2087305" target="_blank">广东侠 发表于 2022-8-17 11:49</a>
+nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必呢</blockquote>
+又一个经典批小将可以说xb但是xb不能说屁五的贵物啊…
+得改名了
+叫屁思林吧
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  g675259102  
+##### 119#       发表于 2022-8-17 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100898&amp;ptid=2087305" target="_blank">广东侠 发表于 2022-8-17 11:49</a>
+nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必呢</blockquote>
+自己在别的帖子说异度反派low
+别人吐槽屁五就成了你魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+太典了
+
+魔怔的到底是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

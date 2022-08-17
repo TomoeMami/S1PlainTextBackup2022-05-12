@@ -6347,3 +6347,25 @@ RNG IG确实可能性蛮大
 
 xg现在的短板还是35
 
+
+
+*****
+
+####  星野航  
+##### 14173#       发表于 2022-8-17 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有漏油透露一下丁聪这赛季为啥这么菜
+
+去年打了一年三国杀不也挺强的么
+
+*****
+
+####  尖刺外婆  
+##### 14174#       发表于 2022-8-17 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101012&amp;ptid=2084957" target="_blank">星野航 发表于 2022-8-17 11:54</a>
+有没有漏油透露一下丁聪这赛季为啥这么菜
+
+去年打了一年三国杀不也挺强的么 ...</blockquote>
+这赛季控制节奏三号位狗都不玩，要中单和酱油先手，以前躲在老11背后甩技能的双酱油就显形了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

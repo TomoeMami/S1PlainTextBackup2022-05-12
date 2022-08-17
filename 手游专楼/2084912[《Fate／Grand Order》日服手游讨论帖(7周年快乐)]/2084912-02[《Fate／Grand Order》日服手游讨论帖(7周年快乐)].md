@@ -1681,3 +1681,12 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 
 完了，今天的每日一发出了上铺的兄弟，下午怕是要暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 1648#       发表于 2022-8-17 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我将用我的40石5呼符证明我非洲血统的纯净 看谁敢污蔑我是欧洲人
+

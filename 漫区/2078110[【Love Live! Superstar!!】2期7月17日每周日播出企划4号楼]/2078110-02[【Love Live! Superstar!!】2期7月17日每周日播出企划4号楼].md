@@ -15067,3 +15067,14 @@ CEO：暂时不明，等下集
 如果你提前拿到剧本发现自己的角色已经没救了，三次元还不努力就完蛋了。 ...</blockquote>
 5月那会公布了就有人吐槽过了，搞不好我命由我不由天，绘森是在自救，现在看没准一语成谶了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  长日留痕  
+##### 2947#       发表于 2022-8-17 11:58
+
+着急营业这不挺符合二次元人设的嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
