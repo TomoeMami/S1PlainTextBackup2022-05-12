@@ -14986,3 +14986,16 @@ CEO：暂时不明，等下集
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099499&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 10:42</a></blockquote>
 这JUVENILE大先辈有点矮啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 2940#       发表于 2022-8-17 11:01
+
+中之人这部分不急着贷款吃屎，歌舞能力等oped活动披露后再评。
+
+就目前来说，绘森给人一种急着营业的感觉，也可能本人就是喜欢D妹子，对谁都是直呼名字，但愿不要应验我之前的猜想<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+铃原则与绘森相反，太青涩不会营业有点畏手畏脚
+

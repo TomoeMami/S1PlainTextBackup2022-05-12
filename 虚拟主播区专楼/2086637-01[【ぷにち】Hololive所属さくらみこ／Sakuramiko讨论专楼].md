@@ -2266,3 +2266,12 @@ live的ED还特地拍了花絮，是为了拍花絮而拍花絮吧
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 216#         楼主| 发表于 2022-8-17 10:53
+
+感觉是要做周边用的小形象
+

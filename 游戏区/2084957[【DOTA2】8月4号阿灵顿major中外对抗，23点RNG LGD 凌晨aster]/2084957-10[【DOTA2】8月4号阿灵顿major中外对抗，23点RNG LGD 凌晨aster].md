@@ -5839,3 +5839,123 @@ aq不还是正常直播吗，时不时还有孝子来惋惜一下<img src="https
 
 不只是aq啊  哈哈明他们那一堆人都是在东南亚叱咤风云
 
+
+
+*****
+
+####  acejoe  
+##### 14115#       发表于 2022-8-17 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099282&amp;ptid=2084957" target="_blank">12481632 发表于 2022-8-17 10:31</a>
+哈哈明这种明牌吃菜假赛的，现在都还能直播时不时和葑茖一起开个黑。我为yc不值（）
+只能说圈子早就 ...</blockquote>
+yc后面也直播过
+
+*****
+
+####  没钱买手办  
+##### 14116#       发表于 2022-8-17 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么反驳啊漏油们
+
+*****
+
+####  遍体精淋af  
+##### 14117#       发表于 2022-8-17 10:54
+
+反驳不了，一旦集美使出这一招的时候就说明脸不要了，不要脸则无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 14118#       发表于 2022-8-17 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099708&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 10:53</a>
+大学dota群的几个集美又开始“就算是这么菜的ame，国内也没人打得过这支队伍”了
+
+怎 ...</blockquote>
+无解，只希望国内队看了雪碧的思路学学学。
+
+*****
+
+####  yourSwaTer  
+##### 14119#       发表于 2022-8-17 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099708&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 10:53</a>
+大学dota群的几个集美又开始“就算是这么菜的ame，国内也没人打得过这支队伍”了
+
+怎 ...</blockquote>
+eg打得好我支持eg还不行吗？只不过对面会扣你罕见帽子
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  nowaki  
+##### 14120#       发表于 2022-8-17 10:56
+
+四赵云带上赛老师在国内也是最好的队伍啊
+
+*****
+
+####  何然  
+##### 14121#       发表于 2022-8-17 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099708&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 10:53</a>
+
+大学dota群的几个集美又开始“就算是这么菜的ame，国内也没人打得过这支队伍”了
+
+怎 ...</blockquote>
+你猜为什么上周一堆人求杜鹏儿化龙
+
+*****
+
+####  何然  
+##### 14122#       发表于 2022-8-17 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099753&amp;ptid=2084957" target="_blank">yourSwaTer 发表于 2022-8-17 10:55</a>
+
+eg打得好我支持eg还不行吗？只不过对面会扣你罕见帽子
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Nex ...</blockquote>
+马来爹带躺的外国俱乐部不汉奸？
+
+要支持就支持全华班
+
+*****
+
+####  12481632  
+##### 14123#       发表于 2022-8-17 10:57
+
+雪碧打的好我支持雪碧不行么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14124#       发表于 2022-8-17 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099708&amp;ptid=2084957" target="_blank">没钱买手办 发表于 2022-8-17 10:53</a>
+
+大学dota群的几个集美又开始“就算是这么菜的ame，国内也没人打得过这支队伍”了
+
+怎 ...</blockquote>
+指出是外国俱乐部请了马来爹中单
+
+不是纯血中国队
+
+*****
+
+####  没钱买手办  
+##### 14125#       发表于 2022-8-17 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099795&amp;ptid=2084957" target="_blank">何然 发表于 2022-8-17 10:58</a>
+
+指出是外国俱乐部请了马来爹中单
+
+不是纯血中国队</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画风又变了漏油们，现在变成喷A÷有当年喷刘翔的味道了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看A➗裤裆流翔差不多
+
