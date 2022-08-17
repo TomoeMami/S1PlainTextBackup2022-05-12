@@ -2584,3 +2584,23 @@ rba3破满破都差口气
 
 话说RBA这满破卡面是要干啥
 
+
+
+*****
+
+####  johnkamsar  
+##### 1736#       发表于 2022-8-17 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">日服总算能玩绿卡队了！！！！！！总算绿卡阵容不会残疾了！！！！！
+
+*****
+
+####  森兰丸  
+##### 1737#       发表于 2022-8-17 21:01
+
+抽公主前仓的加上周年送的有1600多石头和100多张护符
+
+现在仓库里多了2宝公主....1宝梅莉和水CBA.....还剩400多石头
+
+人品守恒定律是不存在的....只要别保底就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
