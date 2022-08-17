@@ -2226,3 +2226,14 @@ live的ED还特地拍了花絮，是为了拍花絮而拍花絮吧
 
 石川撒……
 
+
+
+*****
+
+####  rs5621  
+##### 212#       发表于 2022-8-17 10:31
+
+今天不播么，日本11点了还没消息
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

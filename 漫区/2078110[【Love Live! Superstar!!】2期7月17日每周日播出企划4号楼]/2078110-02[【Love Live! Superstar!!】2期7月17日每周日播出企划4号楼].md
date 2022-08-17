@@ -14874,3 +14874,60 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 ………………哎，开头如此美好…………结局真的要冲着前辈的最低纪录去了吗？ ...</blockquote>
 水S1E13是因为在nico播放的时候播放事故了，放了半话黑屏，星S2E5是靠实力烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 2932#       发表于 2022-8-17 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099072&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-17 10:21</a>
+水S1E13是因为在nico播放的时候播放事故了，放了半话黑屏，星S2E5是靠实力烂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓了，反正最后均分大概率最低了
+
+*****
+
+####  lj205  
+##### 2933#       发表于 2022-8-17 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098517&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-17 09:49</a>
+红蓝暂时还好，另2人有点危险，当然前偶像大概有经验，二期C就只能说动画塑造姑且负面的 ...</blockquote>
+听了几首歌，前偶像我是觉得也一般………………
+
+*****
+
+####  plok201  
+##### 2934#       发表于 2022-8-17 10:28
+
+不用慌，现在还只是埋炸弹阶段，等后面哪集随便炸一个，系列最低手到擒来好吧
+
+*****
+
+####  cxj649  
+##### 2935#       发表于 2022-8-17 10:29
+
+贴吧审核我帖子没出来，在这里也吐槽瞎下
+
+猜测下全员到齐后的各人行为模式
+
+香音：绝对主角，因为人设是要自闭，所以CEO入团后，继续满足人设再自闭几次
+
+可可：京极设定传达人，堇全否定BOT，虽然日语习惯直呼堇不带敬称是亲密象征（设定），个人支线未完
+
+千：个人支线已经完结，便乘BOT
+
+堇：吃瘪役，还有忍让役。常识役，因为被迫和可绑定，算双人支线未完
+
+恋：个人支线已经完结，非常识役女路人，便乘BOT2号
+
+樱小路：除非有第三季，这妹暂时子个人支线完结，会无限复读运动白痴的设定拖后腿
+
+红蓝；发糖。红；京极设定传达人2号，蓝：哆啦A梦，常识人2号
+
+CEO：暂时不明，等下集
+
+外网已经把香音戏称为教祖了。恶化程度比可高，可好歹有（可能）回国危机来救一点点声誉
+
+香音按集数和人设复读，我不看好花田就回来，有第三季话会更没救
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

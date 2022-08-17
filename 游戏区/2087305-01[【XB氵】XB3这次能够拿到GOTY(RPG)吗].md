@@ -623,3 +623,31 @@ xb3室内结构就是对你这种连雨林滑几个索道都觉得复杂的小�
 
 不行，硬伤过多
 
+
+
+*****
+
+####  g675259102  
+##### 73#       发表于 2022-8-17 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098696&amp;ptid=2087305" target="_blank">耶耶抛的岔 发表于 2022-8-17 09:59</a>
+
+雨林基本没有需要玩家找断头路跳下去的地方，没红线导航自己都能在下层跑酷，xb3室内结构就是对你这种这 ...</blockquote>
+那还真是抱歉了。。我玩2工厂那十几分钟就从蜘蛛那出去了
+
+唯一迷路的地方是初次进灵洞
+
+还在下层跑路都出来了。。绝大部分人不做到第七章拿始源碎片根本都去不了下层 我说雨林你说下层你在怕什么?整个上层没导航你连废弃铁巨神都去不了
+
+吃着导航的福利在这尬吹老头环那个一马平川的地图。。还好意思拿XB2来比
+
+*****
+
+####  g675259102  
+##### 74#       发表于 2022-8-17 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098785&amp;ptid=2087305" target="_blank">misaki_d 发表于 2022-8-17 10:05</a>
+
+不行，硬伤过多</blockquote>
+屁五和破晓这种垃圾不是硬伤更多。。差不多行了
+

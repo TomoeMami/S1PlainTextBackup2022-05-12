@@ -5692,3 +5692,54 @@ B站弹幕看到个新绰号，笑死
 但是我印象里下面八那次打电话暴露了下注过后，在微 ...</blockquote>
 年8前妻都放出在lgd时期下菠菜的证据了
 
+
+
+*****
+
+####  ArowRocher  
+##### 14099#       发表于 2022-8-17 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097084&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-17 07:47</a>
+说起来我还是有个疑问，下面八ti假赛我肯定是不信的。
+
+但是我印象里下面八那次打电话暴露了下注过后，在微 ...</blockquote>
+1.不要相信人性
+2.没有证据就是没有
+
+*****
+
+####  坚定的团子党  
+##### 14100#       发表于 2022-8-17 10:26
+
+早期这批选手，我估计基本都赌过，只是赌的多和少的区别<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  公交老司机  
+##### 14101#       发表于 2022-8-17 10:29
+
+esl这分组，可以看秘密啥成色了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  漂灵  
+##### 14102#       发表于 2022-8-17 10:29
+
+<blockquote>CNFH1984 发表于 2022-8-17 07:47
+说起来我还是有个疑问，下面八ti假赛我肯定是不信的。
+
+但是我印象里下面八那次打电话暴露了下注过后，在微 ...</blockquote>
+小糯米图都发了，茶队赢lgd 5000
+
+*****
+
+####  12481632  
+##### 14103#       发表于 2022-8-17 10:31
+
+哈哈明这种明牌吃菜假赛的，现在都还能直播时不时和葑茖一起开个黑。我为yc不值（）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+只能说圈子早就烂透了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
