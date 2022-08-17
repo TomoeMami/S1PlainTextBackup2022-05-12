@@ -15160,3 +15160,43 @@ CEO：暂时不明，等下集
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为压根就没发现啊 花田大老师为了表现堇这些事见得多了  其他人多多少少都失去了脑子  
 
+
+
+*****
+
+####  星降る森  
+##### 2956#       发表于 2022-8-17 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101990&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-8-17 12:53</a>
+
+这么说的话我记得可堇关系不好的源头也就堇把学园偶像当作演艺圈的跳板？
+
+那现在来了个把学园偶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平安名想当的是偶像，鬼冢一开始就说想当P，而且交涉的时候提到了不收费，但是为了必要支出也会把收益据为己有。
+
+这话从逻辑上问题没那么大，反而是Liella接受让鬼冢赚小钱平衡支出，却不接受让她赚大钱这点，看起来有点赌不起了。也就是动画人物介意的点只是自己把自己贱卖了。实际根本不该卖。
+
+所以鬼冢被揭穿压根就不该跑。自己又没做亏心事，大可说你星能赚的多是我运营的结果，盈亏自负嘛大家谁也别输不起。
+
+当然，为了避免这种现实剧情，这种东西最好是一点都别碰，一开始设定为“校园”也是为了避开这些，现在大家都搞得很像小丑。
+
+*****
+
+####  adw667  
+##### 2957#       发表于 2022-8-17 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101064&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-8-17 11:58</a>
+
+着急营业这不挺符合二次元人设的嘛。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+倒是有夏美一通操作播放三位数那味了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 2958#       发表于 2022-8-17 13:20
+
+按合同内容来看，签字的是香音（作为代表），可能只有堇是特地去了解的，另外六人连内容都不知道。这一状态下，夏美就是在“无偿劳动”，可可怎么会不不友善呢。
+但若是这么解读，堇也看了合同，竟然没异议，其实说不过去，难道堇也觉得赚的太多了？合同直说了要拿收益当报酬的啊
+
