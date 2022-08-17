@@ -1172,3 +1172,14 @@ nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必�
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  厄斯沃穆  
+##### 120#       发表于 2022-8-17 12:09
+
+感觉就像xb2成为了泥潭长久的白月光一样，xb3将成为泥潭心中长久不愈的一道伤口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
