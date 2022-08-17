@@ -5286,3 +5286,40 @@ ame在打apex呢，心态好的很
 
 看看nigma打液体如何，打不过就别想着去外卡了
 
+
+
+*****
+
+####  百世诸侯  
+##### 14057#       发表于 2022-8-17 08:23
+
+<img src="https://img.saraba1st.com/forum/202208/17/082056dcnfi00sjccf5fsn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 08:20 上传
+
+3打5和先手不开BKB的另一种解释，不愧是集美，处长估计也是这么想的
+
+<img src="https://img.saraba1st.com/forum/202208/17/082146vh991kw1v1891k27.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 08:21 上传
+
+只要处长一直保持畜中畜的状态，那就永远不用担心因为状态下滑被人清算，天才天才
+
+*****
+
+####  何然  
+##### 14058#       发表于 2022-8-17 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097134&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-17 07:57</a>
+
+帮朋友参考是吧草</blockquote>
+认真来说，除了几个实名菠菜的傻逼，其他人都几乎不会自己下注的
+

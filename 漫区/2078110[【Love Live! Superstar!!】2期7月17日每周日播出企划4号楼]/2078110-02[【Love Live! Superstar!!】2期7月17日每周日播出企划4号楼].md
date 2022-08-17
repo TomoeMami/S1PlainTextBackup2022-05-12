@@ -14770,3 +14770,21 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 2922#       发表于 2022-8-17 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57097166&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-17 08:04</a>
+本来之前我还预言说星2最多高不成低不就，不会再来恋恋那种烂活，不过第五集n站这个评价，是戳到了霓虹金的 ...</blockquote>
+还有题材的原因在，偶像动画对夏美目前的塑造并没有那么宽容，更何况还是三次元并行的偶像动画
+
+*****
+
+####  ViyViy  
+##### 2923#       发表于 2022-8-17 08:32
+
+我看天天抱怨上面管得宽，还是不够宽呐，能让这种情节和台词呈出来，这不是挺自由的吗，肆意做烂动画，还能爽报臭高层这不让干那不让干的怨，反正我绝对有人要，你这系列是死是活关我屁事。
+
