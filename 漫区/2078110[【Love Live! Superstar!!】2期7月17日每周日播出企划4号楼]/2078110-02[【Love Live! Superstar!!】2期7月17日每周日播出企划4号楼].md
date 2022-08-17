@@ -14850,3 +14850,27 @@ BA086B7C-C76F-46D9-B57C-00FD0F247613.jpeg
 我感觉现在星团只能指望中之人了，你这个担心要成真的话，那就很可怕了 ...</blockquote>
 红蓝暂时还好，另2人有点危险，当然前偶像大概有经验，二期C就只能说动画塑造姑且负面的
 
+
+
+*****
+
+####  星降る森  
+##### 2930#       发表于 2022-8-17 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098318&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-17 09:38</a>
+
+前偶像至少有底子多半问题不大吧 虽然角色一副要烂完的样子  重量级的还得看2期c练没练出来 毕竟说的是唱跳 ...</blockquote>
+久保田在iris待了这么多年唱的还是稀烂，说实话这种东西不能当参考。
+
+夏美这个角色只要粉丝别天天盯着旧账翻，最后反而很难烂，把吃瘪役写在脸上的角色卖几个蠢可能就没人记得开头那堆破事了。贪财这个属性出现在校园偶像身上就是个雷点，本身设定在校园就是为了回避现实里一些破事，结果这么一设定又捞回来了，入队以后如果还天天惦记钱，那倒是真的没救了
+
+*****
+
+####  星降る森  
+##### 2931#       发表于 2022-8-17 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57094276&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-16 22:04</a>
+
+………………哎，开头如此美好…………结局真的要冲着前辈的最低纪录去了吗？ ...</blockquote>
+水S1E13是因为在nico播放的时候播放事故了，放了半话黑屏，星S2E5是靠实力烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

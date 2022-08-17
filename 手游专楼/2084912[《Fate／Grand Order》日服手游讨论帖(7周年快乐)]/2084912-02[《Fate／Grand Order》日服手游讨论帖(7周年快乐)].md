@@ -1610,3 +1610,17 @@ Fami通
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 1641#       发表于 2022-8-17 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098458&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-17 09:46</a>
+
+开被动2有10np就够了，都不用升级，两个加攻先别加
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+因为我的硬币拿去喂圣杯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
