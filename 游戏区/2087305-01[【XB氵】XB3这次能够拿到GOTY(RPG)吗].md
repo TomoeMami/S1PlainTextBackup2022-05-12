@@ -1096,3 +1096,48 @@ TGA的RPG的定义是最宽泛那一档的，只要你这个游戏需要扮演�
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  clover293  
+##### 114#       发表于 2022-8-17 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100700&amp;ptid=2087305" target="_blank">莉拉厨 发表于 2022-8-17 11:41</a>
+
+TGA的RPG的定义是最宽泛那一档的，只要你这个游戏需要扮演一个角色进行冒险，都算RPG
+
+—— 来自 Xiaomi  ...</blockquote>
+？您当我没看过TGA，你就说战神啥时候算到RPG里
+
+*****
+
+####  shyso  
+##### 115#       发表于 2022-8-17 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100192&amp;ptid=2087305" target="_blank">ACGN若翼 发表于 2022-8-17 11:15</a>
+
+xb3狠狠地爆杀了老头环的一马平川
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+太喜欢这句了
+
+*****
+
+####  广东侠  
+##### 116#       发表于 2022-8-17 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099956&amp;ptid=2087305" target="_blank">g675259102 发表于 2022-8-17 11:06</a>
+
+搞得好像屁五巨魔没在XB2的时候天天踩XB2一样
+
+但凡一个吹XB的帖子总能看到屁小将拿着自己那可怜的玩意到 ...</blockquote>
+nga那个也是你吧，你有点魔怔了搞得跟手游疯子一样，何必呢
+
+*****
+
+####  BREEEEZE  
+##### 117#       发表于 2022-8-17 11:52
+
+老头环野外地图确实没啥可说的，但吊打老头环室内地图是否有点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

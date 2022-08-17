@@ -6268,3 +6268,82 @@ ana队友稍微语言统一一点对位爆鬼对线爆李斯我觉得都很正�
 
 支持IG<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  4591  
+##### 14163#       发表于 2022-8-17 11:43
+
+虽然xg大概率是没法拿到预选的直接出线名额我还是支持xg
+
+*****
+
+####  六娃  
+##### 14164#       发表于 2022-8-17 11:44
+
+我有强烈的预感，预选赛决赛是RNG和IG
+
+徐林森和胡良智的错位人生
+
+*****
+
+####  Litccc  
+##### 14165#       发表于 2022-8-17 11:44
+
+<img src="https://p.sda1.dev/6/14229603e48e7055d59c4493dea9b8bb/CMP_20220817114438494.jpg" referrerpolicy="no-referrer">
+
+爷青回
+
+*****
+
+####  哈萨维·诺亚  
+##### 14166#       发表于 2022-8-17 11:45
+
+RNG IG确实可能性蛮大
+
+*****
+
+####  12481632  
+##### 14167#       发表于 2022-8-17 11:45
+
+想看森哥和李斯连麦解说，支持XG（）
+
+*****
+
+####  walfeds  
+##### 14168#       发表于 2022-8-17 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100776&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-17 11:44</a>
+
+爷青回</blockquote>
+卧槽，瓜比也打刀了
+
+*****
+
+####  walfeds  
+##### 14169#       发表于 2022-8-17 11:48
+
+支持xg<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 14170#       发表于 2022-8-17 11:48
+
+**的 转发色图这么多年第一次被封，合理怀疑前两天喷集美太狠被盯着举报了，捏妈妈滴
+
+*****
+
+####  遍体精淋af  
+##### 14171#       发表于 2022-8-17 11:50
+
+支持xg主要是想看看新人c的成色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 14172#       发表于 2022-8-17 11:52
+
+xg现在的短板还是35
+

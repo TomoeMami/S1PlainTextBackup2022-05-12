@@ -15056,3 +15056,14 @@ CEO：暂时不明，等下集
 可能是我先入为主吧，绘森彩从一开始就是高强度自拍营业，现在更是光速拉人搞贴贴营业，反正给我的观感是挺 ...</blockquote>
 如果你提前拿到剧本发现自己的角色已经没救了，三次元还不努力就完蛋了。
 
+
+
+*****
+
+####  Enakina  
+##### 2946#       发表于 2022-8-17 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100602&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-17 11:35</a>
+如果你提前拿到剧本发现自己的角色已经没救了，三次元还不努力就完蛋了。 ...</blockquote>
+5月那会公布了就有人吐槽过了，搞不好我命由我不由天，绘森是在自救，现在看没准一语成谶了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
