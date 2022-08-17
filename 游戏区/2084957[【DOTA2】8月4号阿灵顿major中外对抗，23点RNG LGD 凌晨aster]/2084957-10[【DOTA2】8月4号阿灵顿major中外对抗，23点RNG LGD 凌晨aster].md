@@ -5568,3 +5568,62 @@ esl是不是又是虎牙独占的
 
 啥时候能多点黄金时间来比赛就好了
 
+
+
+*****
+
+####  沈淮  
+##### 14086#         楼主| 发表于 2022-8-17 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098436&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-17 09:44</a>
+
+B站弹幕看到个新绰号，笑死
+
+萧战</blockquote>
+萧烟四起，为瑟而来
+
+*****
+
+####  哈萨维·诺亚  
+##### 14087#       发表于 2022-8-17 09:53
+
+开个小窗偷偷看好吧 赖皮赖皮
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沈淮  
+##### 14088#         楼主| 发表于 2022-8-17 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098274&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-17 09:35</a>
+
+哈哈明赌棍这事儿倒是有听说，不是赌球赌马，就是打德州打扑克，赌了个倾家荡产女友跑路。
+
+后来另外找了一 ...</blockquote>
+没换女朋友啊 不还是之前那个吗
+
+*****
+
+####  六娃  
+##### 14089#       发表于 2022-8-17 09:57
+
+夜饮潇湘前几天在别人群里跟人白头冠超话题被窝发现了，织布机启动，嘟嘟嘟嘟嘟嘟嘟嘟
+
+*****
+
+####  Yukino-Yukino  
+##### 14090#       发表于 2022-8-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57098655&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 09:57</a>
+
+夜饮潇湘前几天在别人群里跟人白头冠超话题被窝发现了，织布机启动，嘟嘟嘟嘟嘟嘟嘟嘟 ...</blockquote>
+细说
+
+*****
+
+####  百世诸侯  
+##### 14091#       发表于 2022-8-17 10:02
+
+本子价格已添加，大的要来了
+
