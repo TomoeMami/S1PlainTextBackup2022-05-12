@@ -15403,3 +15403,43 @@ A店的活动录了个小视频，本来想开个线上活动的，但是考虑�
 
 说起来下午照片里那件黄色卫衣还是借店员的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2977#       发表于 2022-8-17 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107445&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-17 19:54</a>
+
+流水素面同好会</blockquote>
+第一眼还以为是sayuri，过于姐妹了w
+
+*****
+
+####  仟音一心  
+##### 2978#       发表于 2022-8-17 20:08
+
+2022.8.17
+
+kuma酱在line上给我发了「请看绘森彩的Twitter」，还在想是什么呢。
+
+这是什么可爱的生物啊🙂
+
+kumaaaa！！喜欢
+
+绘森彩回复：
+
+在line上跟你说的全名吗，这人真是。打扰你了😂
+
+<img src="https://img.saraba1st.com/forum/202208/17/200812neftahax11hx12fc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3368A0CB-9671-414B-B0EC-58DD2895E72A.jpeg</strong> (246.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-17 20:08 上传
+
+也就是说大熊是有推的，没公开？
+

@@ -7931,3 +7931,48 @@ Steam上记录的dota游戏时间一万九千小时，比赛场次接近一万�
 
 我感觉你做不得好
 
+
+
+*****
+
+####  nomhrpls  
+##### 14341#       发表于 2022-8-17 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107498&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-17 19:57</a>
+
+说到酬勤，想起来不是很受漏油待见的atf
+
+前段时间dotsbuff上查了查，打的最多的十个英雄的英雄分全都是世界 ...</blockquote>
+atf还年轻，还有改造空间。需要一个ti的失利重塑他的dota观念
+
+*****
+
+####  六娃  
+##### 14342#       发表于 2022-8-17 20:07
+
+<img src="https://img.saraba1st.com/forum/202208/17/200647pg5f56k76wjn1j9x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 20:06 上传
+
+这是皮套坦克吗，哇我真是惊了个大呆，这体型一屁股能把A畜仿佛吸了十年古柯碱的麻杆身材撅折吧
+
+*****
+
+####  格雷殿下  
+##### 14343#       发表于 2022-8-17 20:10
+
+那有前女友的照片不，对比一下😄
+
+*****
+
+####  maju3  
+##### 14344#       发表于 2022-8-17 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107687&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 20:07</a>
+这是皮套坦克吗，哇我真是惊了个大呆，这体型一屁股能把A畜仿佛吸了十年古柯碱的麻杆身材撅折吧 ...</blockquote>
+小恶魔学妹，懂吧！
+

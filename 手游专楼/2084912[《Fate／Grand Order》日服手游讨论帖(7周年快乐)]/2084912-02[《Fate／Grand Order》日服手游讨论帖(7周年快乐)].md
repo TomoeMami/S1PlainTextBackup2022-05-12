@@ -2431,3 +2431,69 @@ rba3破满破都差口气
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼内十宝斯卡蒂是什么状况，真羡慕你们有钱又欧
 
+
+
+*****
+
+####  alucardcz  
+##### 1722#       发表于 2022-8-17 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107573&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-17 20:01</a>
+
+楼内十宝斯卡蒂是什么状况，真羡慕你们有钱又欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新大受震撼 说不定只是别人的零花钱
+
+*****
+
+####  kiralzb  
+##### 1723#       发表于 2022-8-17 20:04
+
+没有积累真的难受，升级升不了，突破突不了，苹果也没有，只能躺平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1724#       发表于 2022-8-17 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107623&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 20:04</a>
+
+萌新大受震撼 说不定只是别人的零花钱</blockquote>
+重点是千石吧，十单都没有，甚至可能还歪了其他的，这就是欧皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1725#       发表于 2022-8-17 20:06
+
+ 本帖最后由 exiaexa 于 2022-8-17 20:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107573&amp;ptid=2084912" target="_blank">雾谷藤乃 发表于 2022-8-17 20:01</a>
+
+楼内十宝斯卡蒂是什么状况，真羡慕你们有钱又欧</blockquote>
+多按了一个0吧
+
+10宝rba那武后不得爆炸了，哪儿会才5个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我12单伊吹池砸下去els都看吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 1726#       发表于 2022-8-17 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107573&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-17 20:01</a>
+
+楼内十宝斯卡蒂是什么状况，真羡慕你们有钱又欧</blockquote>
+想抽5个武则天，卡在4个结果rba越抽越多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 1727#       发表于 2022-8-17 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57107688&amp;ptid=2084912" target="_blank">onemoment 发表于 2022-8-17 20:07</a>
+
+想抽5个武则天，卡在4个结果rba越抽越多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果真的是十宝，真羡慕欧皇啊
+
