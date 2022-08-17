@@ -1503,3 +1503,12 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 那样我不乐意了，我最喜欢看s1 ptsd发作了</blockquote>
 但可以由破晓XB3同为年度rpg引出新的ptsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jakelee1985  
+##### 150#       发表于 2022-8-18 01:49
+
+这次音乐比2差了，2的音乐都没提名，3就更不用想了
+

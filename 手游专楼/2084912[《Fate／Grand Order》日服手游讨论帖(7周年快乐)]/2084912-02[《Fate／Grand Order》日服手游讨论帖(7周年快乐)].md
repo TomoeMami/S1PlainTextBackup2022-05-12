@@ -3425,3 +3425,14 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神</blockquot
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">周年900石，公主+梅莉+水伊吹*1，亚洲水平吧
 
+
+
+*****
+
+####  kiralzb  
+##### 1808#       发表于 2022-8-18 01:49
+
+虽然没仔细统计过，这次回坑靠着周年送的和推完全部减半的中的主线给的石头，公主3宝，X毛2宝，小王子，到这里剩下不到600石，结果蓝莓寄了歪了伽拉忒亚(new)，开始氪金
+
+最后一共12单，蓝莓1宝，道满1宝，伊吹3宝，RBA 2宝，歪了奥德修斯(new)，四星也开了两个新图鉴，这样看来还算可以接受吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
