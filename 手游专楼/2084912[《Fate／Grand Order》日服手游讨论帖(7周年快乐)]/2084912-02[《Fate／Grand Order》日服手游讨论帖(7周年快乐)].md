@@ -2899,3 +2899,86 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 为了你的账号安全 试都别试</blockquote>
 不试了不试了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，请假b站那里能看到最新的剧情，不是国服，是日服的，连载性质。
 
+
+
+*****
+
+####  kiralzb  
+##### 1763#       发表于 2022-8-17 22:25
+
+之后还有啥池子预定啊，复刻？圣诞之类的？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 1764#       发表于 2022-8-17 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109081&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-17 21:24</a>
+
+说rba不行是认真的吗……
+
+现在单说这个111的90++</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总司是要咋才能不换人3T……
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">宝具打下去只回10NP啊……
+
+*****
+
+####  gpx234mqx  
+##### 1765#       发表于 2022-8-17 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109793&amp;ptid=2084912" target="_blank">gulant 发表于 2022-8-17 22:03</a>
+
+那算了</blockquote>
+修改游戏数据，封的就是你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+定期检测下账号就完了
+
+*****
+
+####  gpx234mqx  
+##### 1766#       发表于 2022-8-17 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110198&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-17 22:25</a>
+
+之后还有啥池子预定啊，复刻？圣诞之类的？</blockquote>
+你看我上面发的Fami通的图
+
+上面还有那么多未实装啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1767#       发表于 2022-8-17 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110208&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-17 22:26</a>
+
+总司是要咋才能不换人3T……
+
+宝具打下去只回10NP啊……</blockquote>
+
+我试了  有1面要暴击  开2次宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 1768#       发表于 2022-8-17 22:32
+
+话说现在哪个本掉冰块的效率最高
+
+*****
+
+####  gpx234mqx  
+##### 1769#       发表于 2022-8-17 22:32
+
+这次低难度任务，用陈宫双C呆就好了。4T解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 1770#       发表于 2022-8-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110292&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-8-17 22:32</a>
+
+话说现在哪个本掉冰块的效率最高</blockquote>
+90++
+

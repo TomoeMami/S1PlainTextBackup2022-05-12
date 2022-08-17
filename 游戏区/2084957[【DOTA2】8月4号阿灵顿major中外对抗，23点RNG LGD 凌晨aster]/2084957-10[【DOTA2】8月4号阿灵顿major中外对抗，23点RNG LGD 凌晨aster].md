@@ -8318,3 +8318,76 @@ og这个ceo也有点意思，明面上是20年年中才当的ceo，但是跟老o
 
 你们套皮人圈子就没有好看的照片吗？以前管人痴发的那个大奶女王好像也不是本人，能不能来点烧的，抖音整形脸的都行
 
+
+
+*****
+
+####  ArowRocher  
+##### 14376#       发表于 2022-8-17 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109980&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-17 22:13</a>
+别提了jj老炮王了 10年前就草粉出名 当然了比坤坤这种下三滥手段要高级多 基本都是快递 ...</blockquote>
+你说的到底是坤坤还是凡凡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，坤坤我怎么一点风声都没听到
+
+*****
+
+####  ArowRocher  
+##### 14377#       发表于 2022-8-17 22:24
+
+长得好看为什么套皮？没有舞蹈区吗？
+
+*****
+
+####  名字不乱取  
+##### 14378#       发表于 2022-8-17 22:24
+
+漏油什么时候来张版主照片<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 14379#       发表于 2022-8-17 22:28
+
+<img src="https://img.saraba1st.com/forum/202208/17/222848rdnwtktvpxznd6qf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 22:28 上传
+
+*****
+
+####  ArowRocher  
+##### 14380#       发表于 2022-8-17 22:29
+
+听说维阿盒照有全套的，真正的管人痴已经看过了
+
+*****
+
+####  Litccc  
+##### 14381#       发表于 2022-8-17 22:31
+
+看看zard就知道了，肥仔的时候天天套着卡比兽的鳖壳，减肥之后立马开摄像头穿鲨鱼卫衣下跪磕头一气呵成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 14382#       发表于 2022-8-17 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110153&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-17 22:23</a>
+
+你说的到底是坤坤还是凡凡，坤坤我怎么一点风声都没听到</blockquote>
+哦是 弄混了 
+
+是凡凡出事那段有人提jj私生活 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+娱乐圈大龄未婚的大多玩的很开只能说 
+
+*****
+
+####  六娃  
+##### 14383#       发表于 2022-8-17 22:32
+
+刚刚打了一把naga，17分钟分身紫苑开宰，30分钟龙心冰眼飞鞋三路堵兵线养猪，好爽
+
