@@ -2096,3 +2096,91 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 每样2个送了一个欧罗巴</blockquote>
 然而我旧梅和RBA都只有1……歪了俩月神一大公，这日子没法过了………………
 
+
+
+*****
+
+####  ネコカイザー  
+##### 1687#       发表于 2022-8-17 18:41
+
+本来不想抽RBA的，但是她的模型真的太完美了。。。。。。。。。
+
+（立绘方面我倒是觉得伊吹4破立绘比RBA好点。但是模型差距真的太大了）
+
+*****
+
+####  alucardcz  
+##### 1688#       发表于 2022-8-17 18:42
+
+不懂就问 建模攻击动作和宝具是同一批人做的吗。。。。。为什么rba宝具能拉成这样
+
+*****
+
+####  霧谷藤乃  
+##### 1689#       发表于 2022-8-17 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106286&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-17 18:27</a>
+
+剩下的allin水伊  金圈 狂  b叔 心肺。。。骤停</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好歹来个金狂，我伊吹池子扔进去8发11连没出伊吹就算了，宇津见还是最后出的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">斯卡蒂稍微好点10发11连出了，还带个拿皇凑双黄，这下子彻底没石头了，过几天登录石看能不能再拼一宝宇津见吧
+
+*****
+
+####  黑上シグマ  
+##### 1690#       发表于 2022-8-17 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我从月姬池开始，歪小太阳，歪月神，歪杰克，歪大公，再歪月神…………………………
+
+*****
+
+####  khxooo  
+##### 1691#       发表于 2022-8-17 18:46
+
+180个石头沉RBA，最操蛋的是只剩下14个付费圣晶石，但凡多一个就等以后的福袋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1692#       发表于 2022-8-17 18:47
+
+[https://www.bilibili.com/video/bv1NU4y1y7BC](https://www.bilibili.com/video/bv1NU4y1y7BC)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事录了个低难4t
+
+*****
+
+####  katun  
+##### 1693#       发表于 2022-8-17 18:47
+
+全论坛是不是只有我在缺金蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1694#       发表于 2022-8-17 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57106444&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-17 18:44</a>
+
+你好歹来个金狂，我伊吹池子扔进去8发11连没出伊吹就算了，宇津见还是最后出的
+
+斯卡蒂稍 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 本论泳装萌新一个4星都没
+
+*****
+
+####  angelooo  
+##### 1695#       发表于 2022-8-17 18:50
+
+这次三个五星的宝具真是摸得可以，伊吹加了个灵衣但宝具本质就是换了个色，其他两个不说了，rba卡面模组都很完美，宝具偷懒不说那正脸还不如她本体，简直了，不过她是不是基本也不会当打手用，宝具也不太需要开？
+
+*****
+
+####  angelooo  
+##### 1696#       发表于 2022-8-17 18:51
+
+<blockquote>alucardcz 发表于 2022-8-17 18:50
+欧羡慕 本论泳装萌新一个4星都没</blockquote>
+那不就是欧爆了吗喂！
+
