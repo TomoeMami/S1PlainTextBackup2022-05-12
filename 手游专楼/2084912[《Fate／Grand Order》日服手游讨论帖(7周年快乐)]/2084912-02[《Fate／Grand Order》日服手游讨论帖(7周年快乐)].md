@@ -1643,3 +1643,21 @@ Fami通
 
 竟然不是上午开池子  还等着看狗坛友豹跳
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1644#       发表于 2022-8-17 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等下午吧，我倒是大概率暴死了，反正已经暴死了一个游戏了
+
+*****
+
+####  poor  
+##### 1645#       发表于 2022-8-17 10:41
+
+P阶转身faker<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

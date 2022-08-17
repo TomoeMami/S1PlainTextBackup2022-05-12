@@ -5743,3 +5743,65 @@ esl这分组，可以看秘密啥成色了
 哈哈明这种明牌吃菜假赛的，现在都还能直播时不时和葑茖一起开个黑。我为yc不值（）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 只能说圈子早就烂透了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 14104#       发表于 2022-8-17 10:34
+
+说到假赛 aq是什么状态
+
+*****
+
+####  adretyu67  
+##### 14105#       发表于 2022-8-17 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099251&amp;ptid=2084957" target="_blank">漂灵 发表于 2022-8-17 10:29</a>
+
+小糯米图都发了，茶队赢lgd 5000</blockquote>
+那张图应该是eh时期的。
+
+重回lgd后的直接证据好像没有来着？但是只能说狗改不了吃屎。
+
+*****
+
+####  Keynes  
+##### 14106#       发表于 2022-8-17 10:35
+
+你不会指望一年没打过dota的葑茖来重整你圈风气吧，小僵尸和小集美哪个云玩家成分高一点我不好说
+
+*****
+
+####  遍体精淋af  
+##### 14107#       发表于 2022-8-17 10:37
+
+aq不还是正常直播吗，时不时还有孝子来惋惜一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 14108#       发表于 2022-8-17 10:39
+
+毒狗的事情不用纠结那么多，真的
+
+想想vp和lgd的关系
+
+还有各大表演赛，想多了你连看比赛都索然无味
+
+我18-20年几乎不看国内比赛你们猜是为什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 14109#       发表于 2022-8-17 10:40
+
+可惜神aq<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14110#       发表于 2022-8-17 10:40
+
+就相当于外卖和后厨是吧
+

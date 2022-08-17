@@ -14931,3 +14931,27 @@ CEO：暂时不明，等下集
 香音按集数和人设复读，我不看好花田就回来，有第三季话会更没救
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 2936#       发表于 2022-8-17 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099258&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-17 10:29</a>
+贴吧审核我帖子没出来，在这里也吐槽瞎下
+
+猜测下全员到齐后的各人行为模式
+
+香音：绝对主角，因为人设是要自 ...</blockquote>
+所以星团是日升的又一萝卜动画吗，怎么全是bot
+
+*****
+
+####  cxj649  
+##### 2937#       发表于 2022-8-17 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099316&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-17 10:33</a>
+所以星团是日升的又一萝卜动画吗，怎么全是bot</blockquote>
+没办法，这些人固定行动模式太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
