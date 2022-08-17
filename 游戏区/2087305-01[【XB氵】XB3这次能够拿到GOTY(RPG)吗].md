@@ -877,3 +877,87 @@ goty有用，单项屌用没有
 
 也是 毕竟是IGN满分大作 玩家评分低一点肯定是有人故意黑啦<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ACGN若翼  
+##### 97#       发表于 2022-8-17 11:15
+
+xb3狠狠地爆杀了老头环的一马平川
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萩原组土狼p  
+##### 98#       发表于 2022-8-17 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100063&amp;ptid=2087305" target="_blank">g675259102 发表于 2022-8-17 11:10</a>
+
+把XB踩的再低也改变不了屁五就是拉跨的事实啊
+
+说出来的东西你看都没人能反驳的。。好惨啊
+
+车枯卢话说了半 ...</blockquote>
+你这也太可怜了，p5到底对你造成了多大的精神伤害啊
+
+*****
+
+####  Diong  
+##### 99#       发表于 2022-8-17 11:17
+
+只是希望随便哪个奖有个提名就好了啊
+
+*****
+
+####  g675259102  
+##### 100#       发表于 2022-8-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100219&amp;ptid=2087305" target="_blank">萩原组土狼p 发表于 2022-8-17 11:16</a>
+
+你这也太可怜了，p5到底对你造成了多大的精神伤害啊</blockquote>
+你说的好啊。。
+
+尬吹屁五踩XB的到底是受到了XB多大的精神伤害啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+你看你又精神上胜利了一波 恭喜啊
+
+*****
+
+####  萩原组土狼p  
+##### 101#       发表于 2022-8-17 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100249&amp;ptid=2087305" target="_blank">g675259102 发表于 2022-8-17 11:17</a>
+
+你说的好啊。。
+
+尬吹屁五踩XB的到底是受到了XB多大的精神伤害啊</blockquote>
+0哦
+
+因为我都玩了
+
+你先别急哦
+
+*****
+
+####  g675259102  
+##### 102#       发表于 2022-8-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100272&amp;ptid=2087305" target="_blank">萩原组土狼p 发表于 2022-8-17 11:19</a>
+
+0哦
+
+因为我都玩了
+
+你先别急哦</blockquote>
+怎么你不会以为别人没玩吧。。不会吧不会吧
+
+我只是玩了屁五感觉是个粪作出来喷两句你怎么还急了呢？怎么你家IGN满分神作不让喷？
+
+也没见你拿屁五那牛逼的战斗系统远超仙剑的地下迷宫出来反驳我啊？
+
+屁粉在外面碰瓷的时候没看你急呢
+
+懂了。。肯定是那2首爵士乐让你灵魂升华了
+

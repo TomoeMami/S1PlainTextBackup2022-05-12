@@ -14999,3 +14999,30 @@ CEO：暂时不明，等下集
 
 铃原则与绘森相反，太青涩不会营业有点畏手畏脚
 
+
+
+*****
+
+####  saya1892  
+##### 2941#       发表于 2022-8-17 11:12
+
+0032 名無しで叶える物語(きびだんご) 2022/08/16(火) 19:48:23.17
+
+&gt;&gt;23
+
+背景と化してニコニコしてゲームしてただけの恋ちゃんが結果として一番評価を下げてない地獄
+
+说起来昨天广播绘森彩似乎提了一句「现在大家对我的评价多半很坏了吧」
+
+感觉声优为剧情挽尊尬聊已经成了星的传统
+
+*****
+
+####  老1.5  
+##### 2942#       发表于 2022-8-17 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099499&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-17 10:42</a></blockquote>
+昨晚熬夜看韩剧，一大早又被骚扰电话吵醒的怨气一下就没了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+阿鱼的腿真好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

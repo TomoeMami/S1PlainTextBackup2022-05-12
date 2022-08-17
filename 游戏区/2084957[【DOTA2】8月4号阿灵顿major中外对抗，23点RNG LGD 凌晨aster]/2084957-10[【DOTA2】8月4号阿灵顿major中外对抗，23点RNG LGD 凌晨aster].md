@@ -6065,3 +6065,84 @@ A畜也配当刘翔？我看A畜当08年害刘翔没法比赛的那根骨刺还�
 
 2004年雅典奥运会金牌得主奖金是20万人民币，金牌造价3000元，而利亚德大师赛的冠军奖金就有150万美元，刘翔奥运会金牌的含金量还真比不上我家AME哥哥，望周知
 
+
+
+*****
+
+####  lyjssj  
+##### 14138#       发表于 2022-8-17 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别贷款，等下输个菲律宾啥的就搞笑了
+
+顺便纯血西恩队在隔壁被叫东南亚队，真正带了个东南亚大腿的叫西恩唯一希望。
+
+就看下礼拜茶表现怎么样了，要是再认爹估计又要被转国籍了，集美们挺记仇的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 14139#       发表于 2022-8-17 11:12
+
+刘翔长得不像巩汉林 哥哥赢了
+
+*****
+
+####  ArowRocher  
+##### 14140#       发表于 2022-8-17 11:14
+
+乳了<img src="https://p.sda1.dev/6/596d62fb9a3f8c63a9b8b0b1fb31b035/CMP_20220817111422349.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 14141#       发表于 2022-8-17 11:14
+
+一早上真的把我乐醒了
+
+*****
+
+####  坚定的团子党  
+##### 14142#       发表于 2022-8-17 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099974&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-17 11:07</a>
+
+亚运含金量比奥运高</blockquote>
+ti怎么能算奥运？更像是足球里的欧冠好吧。真要是奥运按国籍分队伍，没几个国家能排出5个一线队选手
+
+*****
+
+####  哈萨维·诺亚  
+##### 14143#       发表于 2022-8-17 11:16
+
+真按国籍分 TS就被拆了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14144#       发表于 2022-8-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57100193&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-17 11:15</a>
+ti怎么能算奥运？更像是足球里的欧冠好吧。真要是奥运按国籍分队伍，没几个国家能排出5个一线队选手 ...</blockquote>
+上文不是说刘翔么，结合上文
+
+*****
+
+####  遍体精淋af  
+##### 14145#       发表于 2022-8-17 11:20
+
+按国籍分，雪碧直接就无耻的队友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前状态差看采访也有这个原因
+
+*****
+
+####  南条一间  
+##### 14146#       发表于 2022-8-17 11:20
+
+参考隔壁lol公众认可度，s赛冠军＞亚运会冠军＞msi
+
+*****
+
+####  哈萨维·诺亚  
+##### 14147#       发表于 2022-8-17 11:21
+
+所以TS现在能有这个状态真是听感叹的 相信他们能更往前走一步吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
