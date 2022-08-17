@@ -7113,3 +7113,38 @@ shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
 
 集美们真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thistimeforlife  
+##### 14255#       发表于 2022-8-17 16:24
+
+<img src="https://img.saraba1st.com/forum/202208/17/162338fhwf3pwwttw0ap83.jpg" referrerpolicy="no-referrer">
+
+<strong>嫪毐.jpg</strong> (120.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-17 16:23 上传
+
+配合楼上 嫪毐也配讲正能量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 14256#       发表于 2022-8-17 16:24
+
+但是liquipedia上的屠夫页面没有dendi<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14257#       发表于 2022-8-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57104814&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-17 15:48</a>
+突然想起来，清茶就算进了预选前三真的能去新加坡吗</blockquote>
+aster前缀去掉直接用ares还是Aquarius就行吧。
+
+ehk不就这么变得kg
+

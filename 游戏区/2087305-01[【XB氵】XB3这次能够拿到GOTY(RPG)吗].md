@@ -1431,3 +1431,52 @@ xb3怪物丰富？你认真的？
 
 话说p5和p5r有拿过tga什么奖吗？我模糊的记忆里面当时好像一个没给?
 
+
+
+*****
+
+####  rainsheep  
+##### 144#       发表于 2022-8-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105386&amp;ptid=2087305" target="_blank">久保由利香 发表于 2022-8-17 16:19</a>
+
+话说p5和p5r有拿过tga什么奖吗？我模糊的记忆里面当时好像一个没给?</blockquote>
+p5拿过年度rpg
+
+*****
+
+####  CQTK  
+##### 145#       发表于 2022-8-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105386&amp;ptid=2087305" target="_blank">久保由利香 发表于 2022-8-17 16:19</a>
+话说p5和p5r有拿过tga什么奖吗？我模糊的记忆里面当时好像一个没给?</blockquote>
+P5拿了最佳rpg，p5r好像是啥都没
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萩原组土狼p  
+##### 146#       发表于 2022-8-17 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105386&amp;ptid=2087305" target="_blank">久保由利香 发表于 2022-8-17 16:19</a>
+
+话说p5和p5r有拿过tga什么奖吗？我模糊的记忆里面当时好像一个没给?</blockquote>
+p5拿了年度rpg
+
+那年斩了神界2和尼尔机械纪元
+
+那年基本上是这几年最强的一届tga了，年度游戏使红绿帽子争
+
+*****
+
+####  萩原组土狼p  
+##### 147#       发表于 2022-8-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57105386&amp;ptid=2087305" target="_blank">久保由利香 发表于 2022-8-17 16:19</a>
+
+话说p5和p5r有拿过tga什么奖吗？我模糊的记忆里面当时好像一个没给?</blockquote>
+p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
+
+哦对，2020年还有原神<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

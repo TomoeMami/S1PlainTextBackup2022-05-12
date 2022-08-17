@@ -1824,3 +1824,27 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 忘记了DC老师经典的水武藏吃10连双大公了？</blockquote>
 完全没印象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qb0079  
+##### 1661#       发表于 2022-8-17 16:24
+
+<blockquote>poor 发表于 2022-8-17 10:41
+P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要给我出起重机了吧
+
+—— 来自 vivo ...</blockquote>
+我抽公主，彩圈月癌转身大象...
+
+*****
+
+####  angelooo  
+##### 1662#       发表于 2022-8-17 16:32
+
+<blockquote>qb0079 发表于 2022-8-17 16:24
+我抽公主，彩圈月癌转身大象...</blockquote>
+公主歪大象反正就……没看到特效就洗洗睡
+
+其他的还要等那卡面刷出来的瞬间简直折磨人
+
