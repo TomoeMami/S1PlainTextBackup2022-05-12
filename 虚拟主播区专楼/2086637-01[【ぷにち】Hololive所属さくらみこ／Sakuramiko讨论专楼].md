@@ -2344,3 +2344,22 @@ pm漫画更新了
 
 有时候是秒转
 
+
+
+*****
+
+####  rs5621  
+##### 222#       发表于 2022-8-17 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103641&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-17 14:36</a>
+
+这张图都远古老坟了2年前吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">频道里的人发的，还以为是最近的。
+
+*****
+
+####  holoan  
+##### 223#         楼主| 发表于 2022-8-17 15:01
+
+八字母图没有什么最近的不用想了，往苍天画廊一翻几个月都没有几张八字母
+

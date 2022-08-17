@@ -1793,3 +1793,22 @@ P阶转身faker水伊吹前面也出了个玉藻猫，我知道了，下午要�
 大肠老师不是退坑了吗</blockquote>
 忘记了DC老师经典的水武藏吃10连双大公了？
 
+
+
+*****
+
+####  sosgame67  
+##### 1658#       发表于 2022-8-17 14:54
+
+我连抽卡的世俗欲望都没有，坐看你们这些欧洲人豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1659#       发表于 2022-8-17 14:58
+
+看了一天，我觉得隔壁通解魔怔人还是不太行，一晚上就放弃了
+
+贴吧今天中午还在坚强的给狂那挽尊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6802,3 +6802,30 @@ shiro加项羽，有丶哈人的
 
 shiro明年22岁，再不出成绩，生涯该盖棺定论了
 
+
+
+*****
+
+####  9时34分  
+##### 14226#       发表于 2022-8-17 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57103774&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-17 14:44</a>
+shiro明年22岁，再不出成绩，生涯该盖棺定论了</blockquote>
+说起来a/这个年纪已经在决赛反向波了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 14227#       发表于 2022-8-17 14:59
+
+鸡畜怎么天天下午开播，害劳资吃夜宵的时候没东西看只能看major录像啊
+
+*****
+
+####  zsu222  
+##### 14228#       发表于 2022-8-17 15:00
+
+论年龄的话，还是看看远方的ulu神吧。
+
