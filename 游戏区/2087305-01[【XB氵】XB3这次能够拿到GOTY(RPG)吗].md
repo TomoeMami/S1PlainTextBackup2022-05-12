@@ -1387,3 +1387,18 @@ XXX不可能翻车，我要吹爆XXX。
 
 好急，快端上来吧。
 
+
+
+*****
+
+####  邪恶的shah  
+##### 140#       发表于 2022-8-17 13:53
+
+大概率又是竹篮打水
+
+学外野上次那样
+
+让版主开投票，大家下死鱼对赌，赌输的封1个月吼不吼啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我赌肯定没戏
+

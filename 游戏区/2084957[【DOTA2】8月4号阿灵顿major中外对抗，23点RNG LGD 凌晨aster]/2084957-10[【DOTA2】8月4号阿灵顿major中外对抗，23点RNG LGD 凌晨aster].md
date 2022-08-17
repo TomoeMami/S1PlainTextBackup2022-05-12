@@ -6668,3 +6668,29 @@ IG还真的挺适合的，jt和oli都是东南亚，森哥可能要玉玉了<img
 
 不是就俩外籍名额么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Centrum  
+##### 14211#       发表于 2022-8-17 13:57
+
+经典上海话不算中文
+
+*****
+
+####  a1370303  
+##### 14212#       发表于 2022-8-17 13:57
+
+茶队和上帝好开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/82a3db3b03d12d8dead2e3d36b686d2e/CMP_20220817135656119.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  尸体鲨  
+##### 14213#       发表于 2022-8-17 14:02
+
+厨子这造型怎么看着像个社交达人阳角
+

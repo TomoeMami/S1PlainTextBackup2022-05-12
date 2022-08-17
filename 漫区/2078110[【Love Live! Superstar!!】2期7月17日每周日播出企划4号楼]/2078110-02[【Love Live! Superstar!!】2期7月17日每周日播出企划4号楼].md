@@ -15276,3 +15276,12 @@ CEO：暂时不明，等下集
 说到这个我有点好奇，如果是油管，5W点击能换成多少钱</blockquote>
 正好油管那个全婆队长更新了第五话的视频，他自己油管一个视频6万播放量能拿2千多台币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GGnob  
+##### 2966#       发表于 2022-8-17 13:59
+
+我懂了，其实香音早就想赚很多金金金金金了，但官号开收益又要给其他人分成，所以独断签卖身契，视频发ceo号都是为了隐瞒收益，暗地里则和ceo约好三七分成，分裂一二年级也是香音的阴谋，都是为了从裂拉上榨出更多油水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
