@@ -2798,3 +2798,29 @@ RBA除了卡面还行外，不咋行啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头抽卡歪到飞啊wwwww
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1754#       发表于 2022-8-17 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这次111和高难感觉全是在针对伊吹，背刺来得如此之快，属实让人措手不及
+
+*****
+
+####  gulant  
+##### 1755#       发表于 2022-8-17 21:58
+
+fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧情的我，请问用这类补丁会有删号风险吗？
+
+*****
+
+####  alucardcz  
+##### 1756#       发表于 2022-8-17 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57109699&amp;ptid=2084912" target="_blank">gulant 发表于 2022-8-17 21:58</a>
+
+fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧情的我，请问用这类补丁会有删号风险吗？ ...</blockquote>
+有 而且风险相当高  不想要号的可以尝试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
