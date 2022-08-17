@@ -6490,3 +6490,56 @@ ana本来是想来国内打预选的，他合同在ig不是正好踢了撸狗，
 
 可惜，要是哥哥只会英语不会中文，就好洗多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 14189#       发表于 2022-8-17 12:53
+
+西恩刀塔粉最好期待ana作为敌人时也是这个水平<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 14190#       发表于 2022-8-17 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我已经玉玉大半天了，虽然知道OG和T1都是宝马牵头合作关系
+
+
+
+*****
+
+####  nowaki  
+##### 14191#       发表于 2022-8-17 12:56
+
+别尬黑哦，ig第三个dpc从a级游出来了，虽然被cdec干了是第二
+
+*****
+
+####  反方向的波  
+##### 14192#       发表于 2022-8-17 12:57
+
+第三赛季还行啊，森哥一上来就一边把撸狗头按进显示器一边选了两把龙骑，撸狗心气算是回来点了
+
+*****
+
+####  usoda  
+##### 14193#       发表于 2022-8-17 12:59
+
+森哥现在在IG不会是更衣室老大的定位吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 14194#       发表于 2022-8-17 13:00
+
+之前看ig比赛感觉有模有样的呀，不像rng，只会硬实力打，看着就没啥章法。
+
+*****
+
+####  nowaki  
+##### 14195#       发表于 2022-8-17 13:02
+
+rng打鱼腩也能天神下凡的
+

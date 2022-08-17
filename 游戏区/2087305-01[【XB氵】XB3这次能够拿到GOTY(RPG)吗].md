@@ -1280,3 +1280,43 @@ xb2 从资料库的角度讲可能更闪光，但 xb3 从游戏的角度看不�
 
 看来不是猴，是疯狗，开始到处咬人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 132#       发表于 2022-8-17 12:55
+
+不可能吧，论探索感觉真打不过老头环，美术也打不过，战斗类型不同，强的就是音乐
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  g675259102  
+##### 133#       发表于 2022-8-17 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101970&amp;ptid=2087305" target="_blank">漫漫来 发表于 2022-8-17 12:52</a>
+
+看来不是猴，是疯狗，开始到处咬人了</blockquote>
+屁思林看到不是欣赏水平有差距脑子还有问题。。
+
+你哥哥我明明在双开暴打屁思林和猎吹都看不懂
+
+属实是个弟弟
+
+话说你们屁思林能不能有点战斗力啊
+
+喷了半天地图迷宫战斗系统怎么连个出来站台吹逼你们世界第一RPG的人都没有
+
+就这战斗力还不如OP呢就知道个报团取暖2个人互相聊得嘚瑟
+
+笑死
+
+*****
+
+####  天堂蜘蛛  
+##### 134#       发表于 2022-8-17 12:58
+
+可以拿吧
+

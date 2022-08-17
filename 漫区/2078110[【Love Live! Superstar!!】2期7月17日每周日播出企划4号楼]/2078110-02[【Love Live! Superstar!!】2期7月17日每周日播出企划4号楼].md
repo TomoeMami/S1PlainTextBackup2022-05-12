@@ -15120,3 +15120,23 @@ CEO：暂时不明，等下集
 
 其实第一季表现的可堇关系就怪怪的了，第二季只是彻底暴露出来了吧
 
+
+
+*****
+
+####  Totokei  
+##### 2952#       发表于 2022-8-17 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101687&amp;ptid=2078110" target="_blank">masshiroo 发表于 2022-8-17 12:33</a>
+其实第一季表现的可堇关系就怪怪的了，第二季只是彻底暴露出来了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">这么说的话我记得可堇关系不好的源头也就堇把学园偶像当作演艺圈的跳板？
+
+那现在来了个把学园偶像当赚钱素材的咋那么友善
+
+*****
+
+####  liu461  
+##### 2953#       发表于 2022-8-17 13:01
+
+诛心的想无非就是觉得可可太火人气太旺故意恶剪恶调搞臭突出某些主C呗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
