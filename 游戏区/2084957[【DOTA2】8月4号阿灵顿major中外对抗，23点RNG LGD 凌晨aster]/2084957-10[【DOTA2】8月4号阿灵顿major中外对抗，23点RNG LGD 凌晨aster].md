@@ -8972,3 +8972,30 @@ image.png
 感觉nga的缩壳速度真是独一档，这几天竟然能看到骂处长的了</blockquote>
 nga从全员鳖孙到一口一个鳖也没几天
 
+
+
+*****
+
+####  wuwo2  
+##### 14443#       发表于 2022-8-18 06:36
+
+虽然lgd输了吧，但有的黑人黑的，说AME是世界第一傻逼carry的，我感觉是不是有点把其他cncarry黑得更狠啊。
+
+毕竟老干爹在中国区那真是宰猪一样的，一次失利就能把以前的崽猪行为全给抹没了吗。
+
+*****
+
+####  walfeds  
+##### 14444#       发表于 2022-8-18 06:40
+
+有人想把漏油治好的精神内耗还回去是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  格雷殿下  
+##### 14445#       发表于 2022-8-18 06:40
+
+一次失利?
+
