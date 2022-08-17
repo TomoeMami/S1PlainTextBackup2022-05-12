@@ -3066,3 +3066,15 @@ fgo贴吧有个日服汉化补丁，这个正适合又咸鱼又懒得翻看剧�
 就拿这个90++本，我看到的bx单核双rba+cba回收39，我还是觉得去押发牌员不靠谱，不知道wrba和c呆组合怎么样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找个30充的开被动强行2宝具  1面打暴击 例如总司
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 1780#       发表于 2022-8-17 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110310&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-17 22:33</a>
+
+90++</blockquote>
+原来90++就是最多的了吗，体感掉的冰块数和其他的本也差不了太多，为什么不搞一个纯冰块本啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

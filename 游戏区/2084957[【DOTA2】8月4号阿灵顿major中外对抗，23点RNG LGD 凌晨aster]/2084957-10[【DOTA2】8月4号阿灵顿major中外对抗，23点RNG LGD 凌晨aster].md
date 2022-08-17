@@ -8421,3 +8421,24 @@ og这个ceo也有点意思，明面上是20年年中才当的ceo，但是跟老o
 
 <img src="https://p.sda1.dev/6/616eae7df4f8fd9ba7a7584dd359e0ba/8xQ2q-7a1ZbT3cSqo-t4.webp" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tengshuo980  
+##### 14387#       发表于 2022-8-17 22:53
+
+v社不会真的要拖到九月份再出本子吧，不会吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  maju3  
+##### 14388#       发表于 2022-8-17 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57110505&amp;ptid=2084957" target="_blank">十年八月 发表于 2022-8-17 22:48</a>
+
+皮鞋那叫做发型？那是在陈清的医院做了一万个项目了吧</blockquote>
+毕竟侏儒男宠
+
