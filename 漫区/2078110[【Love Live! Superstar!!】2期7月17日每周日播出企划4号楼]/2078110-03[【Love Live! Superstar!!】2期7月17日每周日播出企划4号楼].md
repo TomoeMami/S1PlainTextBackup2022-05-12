@@ -263,3 +263,14 @@ nagi回归
 看了下盛大缪水打折后的周边，感觉好便宜，整了点。虽然听群友说是卖剩的草，但对比星的那个毛巾跳绳确实笑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">他要是上虹星的谷我说不定还真会买
 
+
+
+*****
+
+####  仟音一心  
+##### 3025#       发表于 2022-8-18 22:37
+
+<img src="https://p.sda1.dev/6/481320222f0bb6d7e4b38f7762011e9a/CMP_20220818223721544.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

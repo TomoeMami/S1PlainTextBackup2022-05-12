@@ -3507,3 +3507,21 @@ aki<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 过家家呢这
 
+
+
+*****
+
+####  rs5621  
+##### 337#       发表于 2022-8-18 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又是小打小闹的一天
+
+*****
+
+####  holoan  
+##### 338#         楼主| 发表于 2022-8-18 22:37
+
+今天唯一欣慰的是这比枪技成长很快，30分钟0死攻下油井
+
+这个节奏的话私下可以经常逛油井拿好的物资不至于太寒酸，这轮也不会随便拿钱赌了，生存情况会比上轮好很多
+
