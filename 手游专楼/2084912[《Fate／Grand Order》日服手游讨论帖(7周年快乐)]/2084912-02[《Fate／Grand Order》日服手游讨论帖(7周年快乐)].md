@@ -3838,3 +3838,29 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发生了什么 又有大戏能看了?
 
+
+
+*****
+
+####  exiaexa  
+##### 1843#       发表于 2022-8-18 12:51
+
+这不是好事吗，起码说明型月受众实打实的在变多嘛
+
+好多新人已经连fsn是黄油都不知道了，怎么可能知道阿菌的薄幸美人的性癖
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阿虚和阿菌虽然写作风格完全不一样，但本质是差不多的，都是喜欢在狗屎的世界里呼唤爱，只不过一个直男一点一个扭曲一点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 1844#       发表于 2022-8-18 12:51
+
+ 本帖最后由 exiaexa 于 2022-8-18 12:52 编辑 
+
+风怒
+

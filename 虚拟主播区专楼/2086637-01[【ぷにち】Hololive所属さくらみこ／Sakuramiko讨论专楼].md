@@ -2955,3 +2955,33 @@ Miko Ch. さくらみこ
 
 果然是大家想要看的
 
+
+
+*****
+
+####  holoan  
+##### 278#         楼主| 发表于 2022-8-18 12:44
+
+观众教了用虚拟键盘的F3
+
+活了
+
+*****
+
+####  rs5621  
+##### 279#       发表于 2022-8-18 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116612&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-18 12:44</a>
+
+观众教了用虚拟键盘的F3
+
+活了</blockquote>
+日期还在，死亡后世界没重置么？
+
+*****
+
+####  holoan  
+##### 280#         楼主| 发表于 2022-8-18 12:48
+
+重置了到不了100日也没意义了就放着继续计算了虽然也没意义自我安慰罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

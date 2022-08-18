@@ -10339,3 +10339,12 @@ lgd被1:3后，集美：<img src="https://static.saraba1st.com/image/smiley/face
 
 虚空至宝槽位要是不是头部是武器就好笑了，这两天又看见在屯足球棍的奸商了
 
+
+
+*****
+
+####  勤练带来力量  
+##### 14600#       发表于 2022-8-18 12:45
+
+还有41yy那个叶涛又是个什么csdx啊，连麦喷始祖鳖喷的飞起我还以为真是个正义使者呢结果转头就开始狂喝ru水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

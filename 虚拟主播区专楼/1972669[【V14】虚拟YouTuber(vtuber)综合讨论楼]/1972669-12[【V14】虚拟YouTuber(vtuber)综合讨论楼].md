@@ -5520,3 +5520,14 @@ hnn性格也是很要强的那种，不提这个事才不正常吧，更何况�
 
 axia大概就想要像传统游戏主播那样的，打得好说流弊打不好骂菜的对他来说比较能接受的氛围吧
 
+
+
+*****
+
+####  FCCHua  
+##### 17009#       发表于 2022-8-18 12:47
+
+ 本帖最后由 FCCHua 于 2022-8-18 12:50 编辑 
+
+那得看至今沉默什么都不说的kmt了，毕竟这不是一个人就能决定的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
