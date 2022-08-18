@@ -12187,3 +12187,24 @@ ti8a畜胜决tb打得蛮好，但是小黑畜中畜
 
 有一说一，梯i8决赛是我头像先来的，本来该上雕像的先是它<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Keynes  
+##### 14805#       发表于 2022-8-18 22:57
+
+白丝风行，我的白丝风行呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十年八月  
+##### 14806#       发表于 2022-8-18 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121202&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-18 17:48</a>
+
+想学多操英雄，应该从哪个入门比较好德鲁伊兽王狼人？还是幽鬼tb。。</blockquote>
+小鹿吧，先从1个额外操作对象练。
+
+幽鬼没有多操，小娜迦TB的多操其实就是打钱的时候右键点一下，练不出啥。
+
