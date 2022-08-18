@@ -4477,3 +4477,15 @@ c呆性格我觉的比现在的本体呆可爱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂肝一波点数拿了护符，带上界凸的几个石头凑了一波11连，毛也没有，这游戏怎么这么对待勤劳的人啊，我想拥有个2宝泛用单体打手都这么难
 
+
+
+*****
+
+####  alucardcz  
+##### 1900#       发表于 2022-8-18 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57124367&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-18 21:36</a>
+
+狂肝一波点数拿了护符，带上界凸的几个石头凑了一波11连，毛也没有，这游戏怎么这么对待勤劳的人啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光炮怎么就不能单体了呢 掏出你的5宝王姐啊
+
