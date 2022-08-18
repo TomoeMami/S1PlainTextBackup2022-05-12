@@ -10443,3 +10443,20 @@ dodo不夹的声音更好听，希望大家都来看dodo<img src="https://static
 
 又开始发癫了
 
+
+
+*****
+
+####  Asukalangley33  
+##### 14612#       发表于 2022-8-18 13:15
+
+最近那个一堆人播的打架吃鸡是不是商务啊？
+看Twitch 油管上反而没啥人播，很奇怪厂商做推广的逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 14613#       发表于 2022-8-18 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一直不清楚吃鸡能火，ob当年到底起了多大作用
+

@@ -3894,3 +3894,33 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 好多新人已经连fsn是黄油都不知道了，怎么可能知道阿菌 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 难道老虎钳这梗已经是老害还懂的东西了吗
 
+
+
+*****
+
+####  exiaexa  
+##### 1847#       发表于 2022-8-18 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116920&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-18 13:06</a>
+毕竟有不少人是看动画入圈的，哪怕看过FGO的H同人志也不知道原作者是个更加变本加厉的主
+
+不过2.6 ...</blockquote>
+昨前天不是还有个人在泥潭手游区开了个2.6暴论贴嘛
+
+说2.6映射日本现状，我就说你也太看得起阿菌的政治觉悟了，他单纯就是好这口
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 1848#       发表于 2022-8-18 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116989&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-18 13:12</a>
+什么 难道老虎钳这梗已经是老害还懂的东西了吗</blockquote>
+型月重工这个梗刚开始的那段时间，贴吧一堆震惊的，还有人绷不住恼羞成怒的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

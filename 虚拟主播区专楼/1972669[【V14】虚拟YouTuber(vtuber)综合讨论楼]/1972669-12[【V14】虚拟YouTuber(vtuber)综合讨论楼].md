@@ -5531,3 +5531,32 @@ axia大概就想要像传统游戏主播那样的，打得好说流弊打不好�
 
 那得看至今沉默什么都不说的kmt了，毕竟这不是一个人就能决定的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 17010#       发表于 2022-8-18 13:11
+
+印象里oreapo两个人火起来不就是因为各种磕cp的剪辑么，真要把这批粉丝切割不会被反噬吗
+
+
+
+*****
+
+####  Kokichi  
+##### 17011#       发表于 2022-8-18 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">训完粉断一个月联动保证cp粉凉一半，可男女主播每次玉玉完还是会一起打游戏啊。
+
+上次cr valo结束后俩人都撂狠话了，带点脑子的观众都觉得oreapo会降温了，连体人真烦人，然后俩接近mental break的主播一起fallguys了。
+
+这关系真的太扭曲了，比起cp更像是同为厄介受害者互舔伤口一样。
+
+*****
+
+####  格林卡罗尔  
+##### 17012#       发表于 2022-8-18 13:16
+
+这种事都是慢慢来的，慢慢下降联动频率，直到观众想不起上次联动是哪天就算完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
