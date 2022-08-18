@@ -10390,3 +10390,56 @@ dodo不夹的声音更好听，希望大家都来看dodo<img src="https://static
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Avantasi  
+##### 14606#       发表于 2022-8-18 13:03
+
+昨天在nga输出了一顿ru婊，今天发现果不其然帖子没了，清蒸鲈鱼跟ru婊凑不齐一个妈
+
+*****
+
+####  哈曼的YY  
+##### 14607#       发表于 2022-8-18 13:04
+
+看国v的收收味 像我这种看樱花妹的只在qq群发情<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  六娃  
+##### 14608#       发表于 2022-8-18 13:05
+
+我一个朋友刚刚排到Kuku，直接掏德鲁伊宰了，编号6712390805
+
+赛后锐评，排到这货很多次了，感觉和自己差不多，不懂这种人为什么能打职业
+
+双冠12，危
+
+*****
+
+####  ArowRocher  
+##### 14609#       发表于 2022-8-18 13:07
+
+贫困生出狂战斧有错吗？ - 知乎
+[https://www.zhihu.com/question/547134212](https://www.zhihu.com/question/547134212)
+
+*****
+
+####  nightmare902015  
+##### 14610#       发表于 2022-8-18 13:08
+
+耸肩，很多人也不懂鸡哥为什么能打职业。
+
+
+
+*****
+
+####  沈淮  
+##### 14611#         楼主| 发表于 2022-8-18 13:08
+
+又开始发癫了
+

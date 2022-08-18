@@ -3864,3 +3864,33 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 风怒
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1845#       发表于 2022-8-18 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116719&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-18 12:51</a>
+
+这不是好事吗，起码说明型月受众实打实的在变多嘛
+
+好多新人已经连fsn是黄油都不知道了，怎么可能知道阿菌 ...</blockquote>
+毕竟有不少人是看动画入圈的，哪怕看过FGO的H同人志也不知道原作者是个更加变本加厉的主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过2.6这点东西怎么看都是糟粕，蘑菇倒是把黑暗文精髓“把美好的东西掰碎了给人看”掌握的很好。
+
+说点不堪入耳的，妖精国简直就是inm里那个会员制餐厅，看着富丽堂皇，端上来的也都是乍看很正常的东西。但老板非得让顾客就着雪咽下去，还美其名曰这是与顾客身份相称的体验，最后客人还对招待其入门的服务员奥伯淳平产生了斯德哥尔摩情节。
+
+*****
+
+####  alucardcz  
+##### 1846#       发表于 2022-8-18 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116719&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-18 12:51</a>
+
+这不是好事吗，起码说明型月受众实打实的在变多嘛
+
+好多新人已经连fsn是黄油都不知道了，怎么可能知道阿菌 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 难道老虎钳这梗已经是老害还懂的东西了吗
+
