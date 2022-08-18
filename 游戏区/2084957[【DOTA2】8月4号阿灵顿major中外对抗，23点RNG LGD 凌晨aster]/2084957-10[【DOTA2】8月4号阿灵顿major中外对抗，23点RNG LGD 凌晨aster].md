@@ -11066,3 +11066,64 @@ into the breach一个大毛 ivy一个吉尔吉斯斯坦
 
 还有a畜和梓畜孝子就别装什么道德卫兵了，说topson长得像杀人犯，批评皮球和老东京长相的时候怎么看不到？孝盒梓开别人盒的时候又在哪？哦，原来梓畜已经和老东西切割了，现在直播间里只剩下一群当太监还不过瘾，还要抢着打钱给皮套坦克和A畜推屁股的绿帽奴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zsu222  
+##### 14676#       发表于 2022-8-18 16:54
+
+ 本帖最后由 zsu222 于 2022-8-18 17:02 编辑 
+
+ 记错了编辑
+
+*****
+
+####  六娃  
+##### 14677#       发表于 2022-8-18 16:59
+
+DOTA大电影之《小皮的游戏》《拯救大畜淳煜》《鳖孙大战：嫪毐的复仇》
+
+*****
+
+####  CNFH1984  
+##### 14678#       发表于 2022-8-18 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">maybe这几年最让我印象深刻的其实是他那条微博 <blockquote>就像做了一场很久很久的梦 梦的过程很开心 结局很难受 多希望一觉醒来是我们刚刚来温哥华的那天 吃饭的时候我把这个故事讲给队友们听 ​​​​</blockquote>
+
+当然要是一想到处长缩卵这条微博的感觉就更深刻了！
+
+*****
+
+####  tasuku  
+##### 14679#       发表于 2022-8-18 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120324&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-18 16:50</a>
+
+什么逻辑？能攻击皮套不能攻击中之人？那大舌头是机器人的是吧，你告诉我怎么个攻击法。
+
+再说就放几张照 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">后面我很喜欢，但是拿长相来说事真的没意思啊。
+
+*****
+
+####  adretyu67  
+##### 14680#       发表于 2022-8-18 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120478&amp;ptid=2084957" target="_blank">CNFH1984 发表于 2022-8-18 17:00</a>
+
+maybe这几年最让我印象深刻的其实是他那条微博</blockquote>
+从“打肿喷子的脸”到“事与愿违”
+
+大概是真的承认自己油了。
+
+*****
+
+####  六娃  
+##### 14681#       发表于 2022-8-18 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120393&amp;ptid=2084957" target="_blank">zsu222 发表于 2022-8-18 16:54</a>
+
+may皇ti6给我的印象实在是太差了  回家局那个中单敌法实在是  不过这个也是小八出走成立老肥羊的导火索 ...</blockquote>
+不是回家局，是小组赛最后一场，打的还是wings
+

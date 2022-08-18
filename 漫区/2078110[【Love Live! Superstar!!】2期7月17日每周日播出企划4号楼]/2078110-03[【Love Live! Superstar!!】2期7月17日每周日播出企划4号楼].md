@@ -89,3 +89,12 @@ nagi回归
 
 看了下盛大缪水打折后的周边，感觉好便宜，整了点。虽然听群友说是卖剩的草，但对比星的那个毛巾跳绳确实笑出声了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3009#       发表于 2022-8-18 16:55
+
+说起来真的怕了这动画了，就目前来看，只要动画没播出，角色就不会崩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
