@@ -15700,3 +15700,12 @@ FC的看板娘，鲤酱的周边也登场啦！
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 2997#       发表于 2022-8-18 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另类可恋是吧，太草了。
+

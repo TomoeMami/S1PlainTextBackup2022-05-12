@@ -1005,3 +1005,14 @@ ayaneo air目前为止玩了快两周了，电量还是最大的痛点。
 现在绿x sd 价格如何，有降一些么</blockquote>
 和一个月前降了不少，但是8月3号左右有一波惊慌抛售，那时候640刀左右就能买，甚至还有600的，现在涨回650了
 
+
+
+*****
+
+####  凡派尔  
+##### 88#       发表于 2022-8-18 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112706&amp;ptid=2086469" target="_blank">别里科夫 发表于 2022-8-18 08:27</a>
+话说这些掌上pc一般用途感觉怎么样？打字手感能比当年的文曲星吗？</blockquote>
+完全不建议任何pc掌机做游戏外的日常用途
+

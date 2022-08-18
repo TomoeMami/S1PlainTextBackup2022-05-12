@@ -5336,3 +5336,23 @@ hnn小号推都那么说了，有些人该消停会了吧，自己个人的两�
 
 感觉这个告知是讲艾葵传言全锅啊（
 
+
+
+*****
+
+####  越动天下  
+##### 16991#       发表于 2022-8-18 09:32
+
+ 本帖最后由 越动天下 于 2022-8-18 09:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女友粉厉害了 还有难道就没有你葵的男友粉吗😡😡
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dybang  
+##### 16992#       发表于 2022-8-18 09:33
+
+还以为🐏了，难道是家庭原因？
+

@@ -3506,3 +3506,21 @@ fami通那个NPC角色列举可能到最后实装的人数不到一只手的手�
 
 —— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  UNISONIA  
+##### 1816#       发表于 2022-8-18 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113393&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-18 09:24</a>
+
+现在来回顾的话
+
+第一池是真的废物，完全没有带来任何变化，加雷斯甚至挑不出亮点</blockquote>
+FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可以认为是暂时不会动画化）
+
+废狗这边还有一个比较现实的牵扯问题是，可能中原已经算退出画师阵容了
+
+旧剑相关的对话提了这次对B6的讨伐是不同于前两次（苍银一次，FP一次）的，估计要出也是承袭FP/苍银内容的新原创了
+
