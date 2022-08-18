@@ -2346,3 +2346,18 @@ blade是个什么东西</blockquote>
 从xb2最 ...</blockquote>
 九龙珠？那剑也挺神的
 
+
+
+*****
+
+####  yuwe0714  
+##### 207#       发表于 2022-8-19 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57126569&amp;ptid=2084988" target="_blank">linuy 发表于 2022-8-19 00:31</a>
+1跟2都有10章，并且第10章都叫最终章
+
+3只有7章，而且第7章就叫第7章
+
+合理怀疑季票内容是8-10章 ...</blockquote>
+1是17章，而且最后一章就叫17章而不是最终章，只有二代是最后一章标题就是最终章
+
