@@ -3468,3 +3468,41 @@ fami通那个NPC角色列举可能到最后实装的人数不到一只手的手�
 
 废案就是废案，难道以后论战的时候有人认闪级强豪芬恩战士吗
 
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 1813#       发表于 2022-8-18 09:23
+
+芬恩最后没出来啊，但妖崔三破不是还是很突兀的出来了吗，我不厨妖崔没研究那么细，这三破后来有什么说法吗？反正这废案妖崔结局第一个我就联想到了
+
+*****
+
+####  exiaexa  
+##### 1814#       发表于 2022-8-18 09:24
+
+现在来回顾的话
+第一池是真的废物，完全没有带来任何变化，加雷斯甚至挑不出亮点
+
+第二池伊吹带来了新玩法和新阵容，els暂时属于未来战士，看以后给什么本吧
+
+第三池rba也带来新玩法了，保底也拯救了一下绿单，如果愿意换人，150绿魔放也救了部分光炮。武后也是未来战士一个，看以后有没有发挥空间
+
+所以fp活动到底还开不开了，这一堆人都等着强化
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 1815#       发表于 2022-8-18 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113379&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-8-18 09:23</a>
+芬恩最后没出来啊，但妖崔三破不是还是很突兀的出来了吗，我不厨妖崔没研究那么细，这三破后来有什么说法吗 ...</blockquote>
+恭喜你，完全没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

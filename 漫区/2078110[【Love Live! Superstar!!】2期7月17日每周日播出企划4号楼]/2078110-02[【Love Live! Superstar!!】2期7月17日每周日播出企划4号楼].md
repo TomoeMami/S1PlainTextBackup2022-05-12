@@ -15687,3 +15687,16 @@ FC的看板娘，鲤酱的周边也登场啦！
 
 好想看香音是多重人格啊，主人格是遇到困难就红温的大香老师，拉人时自动切成嘴炮立德人格，还有签卖身契想看裂拉裂开的里人格乐子人香音<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2996#       发表于 2022-8-18 09:31
+
+现在每3集一次角色刷新，你信不信根本不管现在多扯淡傻逼，直接刷新人物形象和关系的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看到个评论 恋恋每次染上坏习惯都是因为可可，禁断的世界和ns，什么中华坏小子。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
