@@ -3924,3 +3924,29 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 —— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kiralzb  
+##### 1849#       发表于 2022-8-18 13:27
+
+论整活还是得蘑菇，2.6让人破防然后说原案肯定好，结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 1850#       发表于 2022-8-18 13:31
+
+又想了想，感觉蘑菇以前的作品没大面积炎上过，也许是因为他塑造的人物棱角比较鲜明，没什么太大的代入感。
+
+所以对于一些薄幸美人的遭遇，读者只是觉得“她很惨，但她是他的”，震撼感慨之余，也不会有多余的举动。
+
+（入戏太深寄刀片除外）
+
+但手游人物毕竟是真金白银卖给玩家的，玩家花钱抽了就会对角色有一个占有欲、归属感，“她很好，她是我的。”
+
+现在突然告诉他们：你的女人已经被玩坏啦<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+（蘑菇：抗议！马修明明是白送的！给白松狮用用不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">）
+
