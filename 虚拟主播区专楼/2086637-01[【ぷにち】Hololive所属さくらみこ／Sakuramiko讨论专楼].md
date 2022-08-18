@@ -3272,3 +3272,21 @@ ID直播外也很勤
 
 大概率全部坠落
 
+
+
+*****
+
+####  a2276382  
+##### 312#       发表于 2022-8-18 19:01
+
+这个直升机🚁可不兴做啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 313#         楼主| 发表于 2022-8-18 19:06
+
+成功了
+
