@@ -11876,3 +11876,32 @@ ti8也就fy是真可惜，霉鳖可真算了，起码也是个副处，算上场
 
 不知道能不能把两任四号位都打出精神问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 14771#       发表于 2022-8-18 19:23
+
+文爱胖子铁混子，不用想了，心里只有一个念头就是舔
+不过他比赛的第一视角很有意思，我抽空把四赵云的都说一下
+
+*****
+
+####  尖刺外婆  
+##### 14772#       发表于 2022-8-18 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121854&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 18:34</a>
+哇鸡畜居然排到窝朋友了，这下得吩咐他好好演</blockquote>
+妮朋友是不是死灵龙绝活哥
+
+*****
+
+####  六娃  
+##### 14773#       发表于 2022-8-18 19:27
+
+ 本帖最后由 六娃 于 2022-8-18 19:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57122541&amp;ptid=2084957" target="_blank">尖刺外婆 发表于 2022-8-18 19:26</a>
+妮朋友是不是死灵龙绝活哥</blockquote>
+赛后锐评“我的我的，差点就一打五了，排到鸡哥的水人你就偷着乐吧”
+
