@@ -193,3 +193,14 @@ nagi回归
 
 —— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 3019#       发表于 2022-8-18 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121241&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-18 17:50</a>
+看生肉的时候我还觉得这集也就那样了，不至于吵起来。结果可可一句话直接点燃炸药桶，现在星这边就是即将 ...</blockquote>
+谁能想到台词和合同内容竟能如此“用心”<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
