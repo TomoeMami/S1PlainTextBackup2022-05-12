@@ -9562,3 +9562,59 @@ vtu有个A综你去看看
 菜皇加盟复仇者炼盟</blockquote>
 菜皇打几？复仇者联盟不是缺4吗
 
+
+
+*****
+
+####  zsu222  
+##### 14510#       发表于 2022-8-18 10:24
+
+因为雪碧最新vlog   里面拍的有收到冠军盾画面吧
+
+*****
+
+####  zsu222  
+##### 14511#       发表于 2022-8-18 10:25
+
+<img src="https://img.saraba1st.com/forum/202208/18/102540t3ljkkqa6asearg3.jpg" referrerpolicy="no-referrer">
+
+<strong>750290078.jpg</strong> (64.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 10:25 上传
+
+*****
+
+####  ellis0811  
+##### 14512#       发表于 2022-8-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113201&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-18 09:11</a>
+
+虽然我挺讨厌这种凑cp搞热度的，但是这种攻击阿梓中之人就没必要了吧
+
+小妹妹也没做错什么啊，有点不基德了 ...</blockquote>
+正确的！因为酬勤相信ame，因为爱情支持梓瑟，加油！
+
+*****
+
+####  百世诸侯  
+##### 14513#       发表于 2022-8-18 10:27
+
+脑东京也太蒙古习气了
+
+*****
+
+####  12481632  
+##### 14514#       发表于 2022-8-18 10:31
+
+好呀好呀，管人痴都不装了呀。
+建议你楼移到管人区<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 14515#       发表于 2022-8-18 10:32
+
+要不是下面字幕我以为在舔盾
+

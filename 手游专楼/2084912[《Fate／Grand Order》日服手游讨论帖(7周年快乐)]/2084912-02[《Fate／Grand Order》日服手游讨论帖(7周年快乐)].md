@@ -3604,3 +3604,12 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 估计要扔进幕间去收了吧
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1823#       发表于 2022-8-18 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑北斋好强啊，阿叶什么时候把以前的活动都丢到金方块商店啊
+
