@@ -10214,3 +10214,74 @@ Reddit版规比贴吧执行好点，总体道德比百度公司强了不止一�
 
 九月才有Dota暖暖玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iriyano  
+##### 14586#       发表于 2022-8-18 12:23
+
+马西泳装还没出吗
+
+*****
+
+####  六娃  
+##### 14587#       发表于 2022-8-18 12:26
+
+理性讨论，A畜和04总决赛的强煎犯11总决赛的也中相比谁更畜
+
+*****
+
+####  反方向的波  
+##### 14588#       发表于 2022-8-18 12:27
+
+超级皮球论坛
+
+*****
+
+####  沈淮  
+##### 14589#         楼主| 发表于 2022-8-18 12:28
+
+尼格皮球能不能去sg讨论？
+
+*****
+
+####  Cookiekira  
+##### 14590#       发表于 2022-8-18 12:29
+
+管人痴 皮套醋 撸狗司马<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 14591#       发表于 2022-8-18 12:30
+
+本楼不欢迎皮球（dota2）选手以外的皮球讨论
+
+*****
+
+####  Centrum  
+##### 14592#       发表于 2022-8-18 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116362&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 12:26</a>
+理性讨论，A畜和04总决赛的强煎犯11总决赛的也中相比谁更畜</blockquote>
+头像是纯白？
+
+*****
+
+####  Kazepollar  
+##### 14593#       发表于 2022-8-18 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114731&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-18 10:45</a>
+ 俄语听不懂呀，兄弟们俄语入门用什么教材 说起来在东南亚天天说bobo，直接不知道bobo是哪国语言 东南亚人能 ...</blockquote>
+俄语难度就在听上面，要写其实比较容易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 14594#       发表于 2022-8-18 12:33
+
+偷的nga偷的红迪消息：俩本子，第一个九月份上线，第二个十二月份上线，每个本子都有专属rpg地图。
+确认有虚空天怒至宝，还有一个独特身心
+第一个本子会让人失望，但是第二个“richer”
+
