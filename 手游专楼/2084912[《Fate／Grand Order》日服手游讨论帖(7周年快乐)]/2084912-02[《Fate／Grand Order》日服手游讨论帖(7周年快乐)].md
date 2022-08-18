@@ -4457,3 +4457,14 @@ c呆性格我觉的比现在的本体呆可爱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不断地刷带攻击礼装的剑单支援，结果就用过剑北斋和冲田，其余剑单都很少见到，没法体验
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1898#       发表于 2022-8-18 20:53
+
+ 本帖最后由 霧谷藤乃 于 2022-8-18 20:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后我去查了查，结果发现原来女性剑单就只有9位，整体的话倒是有20+，下次碰上双子借来试试
+

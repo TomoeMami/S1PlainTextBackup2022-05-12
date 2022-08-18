@@ -11985,3 +11985,38 @@ B站有个主播，他的说法是5000以下德鲁伊中单或大哥，到6000�
 
 本子出的时间离TI这么近那奖金是不是要缩水了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  迷途lite  
+##### 14782#       发表于 2022-8-18 20:54
+
+少点好，捐给毛子或者捐给处长我都不开心
+
+*****
+
+####  ArowRocher  
+##### 14783#       发表于 2022-8-18 20:58
+
+被人喷我也要说一句，至宝绝版是司马商法
+
+*****
+
+####  千千千千鸟  
+##### 14784#       发表于 2022-8-18 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123731&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-18 20:58</a>
+
+被人喷我也要说一句，至宝绝版是司马商法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">我买Overwolf白嫖了，不然一辈子用不到不朽庭院地图
+
+*****
+
+####  ArowRocher  
+##### 14785#       发表于 2022-8-18 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123758&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-18 21:00</a>
+我买Overwolf白嫖了，不然一辈子用不到不朽庭院地图</blockquote>
+还能这样吗，我也买一个。
+
