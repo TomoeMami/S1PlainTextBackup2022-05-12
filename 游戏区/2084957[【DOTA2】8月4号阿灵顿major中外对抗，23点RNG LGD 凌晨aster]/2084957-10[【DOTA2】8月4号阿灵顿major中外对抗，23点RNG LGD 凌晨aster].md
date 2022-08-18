@@ -10182,3 +10182,12 @@ Reddit版规比贴吧执行好点，总体道德比百度公司强了不止一�
 
 我宣布楼上宣布的宣布有效
 
+
+
+*****
+
+####  反方向的波  
+##### 14582#       发表于 2022-8-18 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有的人外野拉完屎跑来楼里要求别人讲道德了还行，跟集美也没啥区别啊
+

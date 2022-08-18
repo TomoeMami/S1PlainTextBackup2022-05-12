@@ -3779,3 +3779,17 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1839#       发表于 2022-8-18 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115975&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-18 12:01</a>
+
+母女丼到底是啥？看隔壁一直在车妖崔有没有被轮的时候提到，意思是说摩根被分尸前也被轮了？但是没有人车 ...</blockquote>
+按贴吧的说法摩根被“リンチ”，字面是lynch私刑然后这个词也被用于性方面所以就发散到母女丼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+隔壁可能版本还没更新过来
+

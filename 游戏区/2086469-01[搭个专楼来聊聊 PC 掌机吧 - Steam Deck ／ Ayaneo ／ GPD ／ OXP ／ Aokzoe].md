@@ -1016,3 +1016,15 @@ ayaneo air目前为止玩了快两周了，电量还是最大的痛点。
 话说这些掌上pc一般用途感觉怎么样？打字手感能比当年的文曲星吗？</blockquote>
 完全不建议任何pc掌机做游戏外的日常用途
 
+
+
+*****
+
+####  波卡帕马  
+##### 89#       发表于 2022-8-18 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113521&amp;ptid=2086469" target="_blank">凡派尔 发表于 2022-8-18 09:33</a>
+
+完全不建议任何pc掌机做游戏外的日常用途</blockquote>
+对我来说是用来在外面和床头处理一些小东西（因为是 winmax，所以可以处理）。当然主要用途还是玩游戏。
+

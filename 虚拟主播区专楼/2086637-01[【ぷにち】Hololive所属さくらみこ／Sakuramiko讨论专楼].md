@@ -2905,3 +2905,42 @@ Miko Ch. さくらみこ
 这声音有点哑。。熬夜打游戏了吧</blockquote>
 以前刚睡起来就这声音了
 
+
+
+*****
+
+####  holoan  
+##### 274#         楼主| 发表于 2022-8-18 12:06
+
+这苹果要是晚吃几分钟就能保命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 275#       发表于 2022-8-18 12:09
+
+<img src="https://img.saraba1st.com/forum/202208/18/120824glx3p07alc3h6ydp.png" referrerpolicy="no-referrer">
+
+<strong>YN9H6FGS$Y@P%7LRP3LQFP5.png</strong> (33.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 12:08 上传
+
+<img src="https://img.saraba1st.com/forum/202208/18/120804ue5h7hmfxmzrm6gi.png" referrerpolicy="no-referrer">
+
+<strong>0VC4)~88SCK6Y6ZOR18O.png</strong> (24.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 12:08 上传
+
+坚持46天了，了不起。
+
+*****
+
+####  holoan  
+##### 276#         楼主| 发表于 2022-8-18 12:10
+
+刚才大家就在说那个刷怪笼是刷凋零怪的还没听进去 那个地方绝对会有的
+
