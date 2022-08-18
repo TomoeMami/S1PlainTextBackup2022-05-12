@@ -5680,3 +5680,12 @@ dtto之前说自己不是管人，加入scarz时倒反而官宣是vtuber了<img 
 
 syl，兔组快点好起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 17024#       发表于 2022-8-19 03:43
+
+马大师是没直播上吧含金量不足，yqqx可是直播上的
+

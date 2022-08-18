@@ -3982,3 +3982,120 @@ miko怕是这rust里羞辱对手最上手的
 
 没限制其他人玩啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 390#         楼主| 发表于 2022-8-19 01:52
+
+亲方深夜恶作剧电话来了
+
+
+
+*****
+
+####  rs5621  
+##### 391#       发表于 2022-8-19 01:53
+
+ 本帖最后由 rs5621 于 2022-8-19 01:56 编辑 
+
+狐狸么,又玩鬼来电吓miko<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面太狂了,是该好好吓吓.
+
+好,下播了
+
+*****
+
+####  holoan  
+##### 392#         楼主| 发表于 2022-8-19 01:55
+
+吓到下播
+
+*****
+
+####  holoan  
+##### 393#         楼主| 发表于 2022-8-19 01:56
+
+今天播12小时了
+
+白天3小时
+
+*****
+
+####  rs5621  
+##### 394#       发表于 2022-8-19 01:58
+
+<img src="https://img.saraba1st.com/forum/202208/19/015738ciricdyid0xly0cr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 01:57 上传
+
+不知不觉就8小时了,这游戏真的是时间黑洞
+
+*****
+
+####  holoan  
+##### 395#         楼主| 发表于 2022-8-19 01:59
+
+结束再生数46万
+
+今天有点可怕
+
+*****
+
+####  holoan  
+##### 396#         楼主| 发表于 2022-8-19 02:01
+
+<img src="https://img.saraba1st.com/forum/202208/19/020153nb2d5xjh1la595gl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 02:01 上传
+
+到底谁哦？
+
+*****
+
+####  rs5621  
+##### 397#       发表于 2022-8-19 02:20
+
+ 本帖最后由 rs5621 于 2022-8-19 02:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57127087&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-19 02:01</a>
+
+到底谁哦？</blockquote>
+草,原来是星姐打来的电话?
+
+*****
+
+####  holoan  
+##### 398#         楼主| 发表于 2022-8-19 02:27
+
+vc音质太差听不出来
+
+5ch说去年鬼屋营业的时候发出过这种声音
+
+属于极度罕见的萌音
+
+*****
+
+####  holoan  
+##### 399#         楼主| 发表于 2022-8-19 02:32
+
+<blockquote>名前：名无し＠18歳未満の入场禁止 无断転载禁止[] 投稿日：2022/08/19(金) 03:30:53.46 ID:j2qHNg510
+
+みこちのコメ栏厄介P沸いてるよ
+
+楽しかったでいいじゃねえかアドバイスなんかなくてもみこちと周りで面白いこと考えてるよ
+
+今日くらいはみこちを気持ちよく寝させてやれよ
+
+お前人间か？人の心持たないガイジかよってガイジの俺でも思わず思っちゃうわ
+
+配信者って大変だわ</blockquote>
+有些人就注定不适合看直播
+
