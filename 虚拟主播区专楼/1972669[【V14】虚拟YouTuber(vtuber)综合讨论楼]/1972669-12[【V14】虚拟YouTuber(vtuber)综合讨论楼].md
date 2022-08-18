@@ -5453,3 +5453,18 @@ hnn小号推都那么说了，有些人该消停会了吧，自己个人的两�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17002#       发表于 2022-8-18 11:42
+
+ 本帖最后由 格林卡罗尔 于 2022-8-18 11:44 编辑 
+
+太流弊了，可能是觉得妈妈粉的钱也恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真没想到是这么要强的主播
+
+syl hnn居然还提这事，要不要想想自己还要不要cp粉的钱
+
