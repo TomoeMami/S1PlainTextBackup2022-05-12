@@ -11374,3 +11374,51 @@ bkb+跳+刷新骑着别人脸干太扭曲了
 
 我已经迫不及待想要看到孽畜这个数值怪物上cm后的盛况了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  两三流浪者  
+##### 14712#       发表于 2022-8-18 17:31
+
+看切片才知道ana过去8天单排虚空的胜率只有25%，现在正在东南亚天梯苦练他的三个低胜率英雄：虚空、屠夫和德鲁伊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Avantasi  
+##### 14713#       发表于 2022-8-18 17:32
+
+狗头人发新歌啦
+
+*****
+
+####  战狼PTSD  
+##### 14714#       发表于 2022-8-18 17:33
+
+宙斯出刷新BKB在人脸上蹦的刺激感不亚于小孩开大车
+
+过去只敢远远放技能的弱气小正太现在变的又粗又大（DOTA1 BKB特效）骑着你脸蹂躏你，你还浑身无力（宙斯跳减一切抬手速度）无力反抗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14715#       发表于 2022-8-18 17:36
+
+再不多跳跳就要没了
+
+*****
+
+####  反方向的波  
+##### 14716#       发表于 2022-8-18 17:36
+
+ 本帖最后由 反方向的波 于 2022-8-18 17:38 编辑 
+
+别嗦了，今天晚上做梦就是这个画面了，自从这个跳和静电场对换以后再也没有得到对面宙斯中汝父的赞许
+
+*****
+
+####  外挂全家脚气  
+##### 14717#       发表于 2022-8-18 17:38
+
+妈个鸡啊，漏油这黑丝凉鞋的头像能不能换了啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

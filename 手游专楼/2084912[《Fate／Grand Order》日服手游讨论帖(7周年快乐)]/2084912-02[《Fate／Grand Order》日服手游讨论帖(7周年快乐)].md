@@ -4373,3 +4373,12 @@ galgame小公司因为体量小，所以只能靠点子出奇制胜去跟大公�
 2.6你让我平心而论写得怎么样，我觉得是有瑕疵，但是可以接受的范畴。阿菌在做角色上还是可以的 ...</blockquote>
 说到皮套角色我就不得不说，妖兰那种只叠名字的到没啥，C呆这种皮也一样的设定导致我经常出戏，呆毛本身的印象实在太深<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1889#       发表于 2022-8-18 17:39
+
+才发现bgo今天正好开妖崔摩根池子，太应景辣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
