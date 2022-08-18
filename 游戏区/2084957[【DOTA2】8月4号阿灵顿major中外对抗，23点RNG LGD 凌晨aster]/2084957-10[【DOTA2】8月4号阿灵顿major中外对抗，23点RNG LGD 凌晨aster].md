@@ -12020,3 +12020,97 @@ B站有个主播，他的说法是5000以下德鲁伊中单或大哥，到6000�
 我买Overwolf白嫖了，不然一辈子用不到不朽庭院地图</blockquote>
 还能这样吗，我也买一个。
 
+
+
+*****
+
+####  ArowRocher  
+##### 14786#       发表于 2022-8-18 21:03
+
+NGA的部分傻逼看到反对绝版就会蹦出来说我就是因为绝版才买，人无我有是他们最大的自我价值来源。跟主机界一些独占玩家一样<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 14787#       发表于 2022-8-18 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123758&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-8-18 21:00</a>
+
+我买Overwolf白嫖了，不然一辈子用不到不朽庭院地图</blockquote>
+细嗦怎么整
+
+*****
+
+####  woyzeck  
+##### 14788#       发表于 2022-8-18 21:04
+
+ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显是bp变形了，跟自己的预期出了很大的偏差，对方很容易一波打死自己，这时候，首先打破沉默的是队伍里稳重的三号位，“相信萧瑟吧”，是啊，这时候除了相信萧瑟，还能相信谁呢？于是声音如同细流汇聚成江河，烛光汇聚成，“相信萧瑟”“相信萧瑟”的声音，此起彼伏地响彻在对战房内，甚至，平日腼腆的一号位也在大喊“相信萧瑟”。五个人把手搭在一起，用他们最大的力气，为他们此生可能唯一的机会欢呼，“let’go spirit！”
+
+*****
+
+####  反方向的波  
+##### 14789#       发表于 2022-8-18 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123731&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-18 20:58</a>
+被人喷我也要说一句，至宝绝版是司马商法</blockquote>
+放在以前我可能真的会喷你，结果ti9没充💰的我2020年开始玩小牛，玩一次骂一次ctmd绝版<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 14790#       发表于 2022-8-18 21:07
+
+少点好，捐给毛子或者捐给处长我都不开心
+
+
+
+*****
+
+####  zhliiiii  
+##### 14791#       发表于 2022-8-18 21:07
+
+ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显是bp变形了，跟自己的预期出了很大的偏差，对方很容易一波打死自己，这时候，首先打破沉默的是队伍里稳重的三号位，“相信萧瑟吧”，是啊，这时候除了相信萧瑟，还能相信谁呢？于是声音如同细流汇聚成江河，烛光汇聚成，“相信萧瑟”“相信萧瑟”的声音，此起彼伏地响彻在对战房内，甚至，平日腼腆的一号位也在大喊“相信萧瑟”。五个人把手搭在一起，用他们最大的力气，为他们此生可能唯一的机会欢呼，“let’go spirit！”
+
+*****
+
+####  一品堂官  
+##### 14792#       发表于 2022-8-18 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123731&amp;ptid=2084957" target="_blank">ArowRocher 发表于 2022-8-18 20:58</a>
+
+被人喷我也要说一句，至宝绝版是司马商法</blockquote>
+确实 该复刻了 多出几个池子（）
+
+*****
+
+####  ArowRocher  
+##### 14793#       发表于 2022-8-18 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123827&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-18 21:07</a>
+放在以前我可能真的会喷你，结果ti9没充💰的我2020年开始玩小牛，玩一次骂一次ctmd绝版 ...</blockquote>
+你当时要充了，jerax说不定能过得更好点
+
+*****
+
+####  Litccc  
+##### 14794#       发表于 2022-8-18 21:10
+
+复刻可以，但是能不能给已经有的人一个额外款式，小卡尔复刻就加个尊享前缀真是司马了
+
+*****
+
+####  acg_s1  
+##### 14795#       发表于 2022-8-18 21:11
+
+完美之前卡尔身心“复刻”不是被告上法庭罚了20w吗
+
+*****
+
+####  战狼PTSD  
+##### 14796#       发表于 2022-8-18 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123876&amp;ptid=2084957" target="_blank">acg_s1 发表于 2022-8-18 21:11</a>
+
+完美之前卡尔身心“复刻”不是被告上法庭罚了20w吗</blockquote>
+因为V社没说身心会绝版，完美自己添油加醋了，所以虚假宣传被罚款
+
