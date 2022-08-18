@@ -4101,3 +4101,22 @@ Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  暗之谋者  
+##### 1865#       发表于 2022-8-18 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117565&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-18 13:55</a>
+
+先别说安茜了，菌皇以前灵光一闪写出来过琥珀这个级别的，现在不仅之后再也没写出来过这个水平的，甚至月姬 ...</blockquote>
+老月姬妙就妙在翡翠线最好看的是琥珀，但琥珀线最好看的是秋叶，那么秋叶线最好看的自然……没错还是秋叶。与其担心蘑菇现在还能不能写得好琥珀，不如担心如果里线不改，这翡翠的戏份就只有补魔了啊！（掩面）
+
+*****
+
+####  alucardcz  
+##### 1866#       发表于 2022-8-18 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 2。6在隔壁可是大受好评啊
+
