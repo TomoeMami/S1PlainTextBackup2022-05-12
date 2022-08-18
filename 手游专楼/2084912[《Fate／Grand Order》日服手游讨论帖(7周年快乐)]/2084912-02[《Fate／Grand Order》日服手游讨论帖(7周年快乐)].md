@@ -4321,3 +4321,43 @@ FGO作为一个16+手游，感觉可以再含蓄委婉点，比如翻译成“�
 
 我觉的蘑菇更像为人处事好不少的江南
 
+
+
+*****
+
+####  exiaexa  
+##### 1886#       发表于 2022-8-18 17:13
+
+ 本帖最后由 exiaexa 于 2022-8-18 17:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119131&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-18 15:40</a>
+虽然但是 2。6在隔壁可是大受好评啊</blockquote>
+邮局港剧
+2.6你让我平心而论写得怎么样，我觉得是有瑕疵，但是可以接受的范畴。阿菌在做角色上还是可以的，我头像的摩根在koikatsu里反反复复改了两个星期
+
+问题是内核真的太没救了，烂在根子上
+c呆一个跟不上版本的卖惨角色，奥伯龙一个吃屎赶不上热乎的角色，摩根迫真呆毛亲姐
+再加上大量的皮套人和烂尾角色，我甚至可以说我除了馋王姐身子2.6我一个亮点都找不到，还整出欧罗拉这种剧情摆烂专用人我真是服了
+
+galgame小公司因为体量小，所以只能靠点子出奇制胜去跟大公司竞争，问题是阿菌现在根本没有新点子了，制作水平又只配当个低配adv，卖惨都卖不过别人完全是被卷死了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我上述的一切全部基于阿菌被卷死了这句话，反过来说，如果没尝试过别的作品，安心吃阿菌的创意，那2.6很多缺点都可以接受嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1887#       发表于 2022-8-18 17:19
+
+ 本帖最后由 RiesbyfeAtlasia 于 2022-8-18 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117372&amp;ptid=2084912" target="_blank">poor 发表于 2022-8-18 13:41</a>
+
+但是我看人贴出来那段只有妖崔啊？摩根被“リンチ”是哪里写的？再妖崔说车性意味的也不是这个是侵犯吧
+
+ ...</blockquote>
+我看了下原文是说妖崔和摩根同罪被リンチ，根据这个嗯推的摩根也被リンチ了
+
+确实很牵强，用这个说法多少有点带节奏
+

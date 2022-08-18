@@ -107,3 +107,23 @@ nagi回归
 
 鬼故事，这才第五集，还有七集捏
 
+
+
+*****
+
+####  Enakina  
+##### 3011#       发表于 2022-8-18 17:17
+
+这动画简直是灾难了，还可能有第三季什么的，那种事不要啊……
+
+*****
+
+####  沙茶酱  
+##### 3012#       发表于 2022-8-18 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120600&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 17:08</a>
+鬼故事，这才第五集，还有七集捏</blockquote>
+如果真的是12星座，那么是还有19集<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
