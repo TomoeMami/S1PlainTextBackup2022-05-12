@@ -4489,3 +4489,27 @@ c呆性格我觉的比现在的本体呆可爱
 狂肝一波点数拿了护符，带上界凸的几个石头凑了一波11连，毛也没有，这游戏怎么这么对待勤劳的人啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光炮怎么就不能单体了呢 掏出你的5宝王姐啊
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1901#       发表于 2022-8-18 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57124485&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-18 21:43</a>
+
+光炮怎么就不能单体了呢 掏出你的5宝王姐啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是对人也太难为摩根了，回头研究下水BB带梵高怎么玩吧
+
+*****
+
+####  sk86  
+##### 1902#       发表于 2022-8-18 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120842&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-18 17:23</a>
+
+说到皮套角色我就不得不说，妖兰那种只叠名字的到没啥，C呆这种皮也一样的设定导致我经常出戏，呆毛本身 ...</blockquote>
+我对呆毛完全没印象了，fgo里基本只有片段
+
+只是觉得c呆为啥一定要完成使命，说服力有点低
+
