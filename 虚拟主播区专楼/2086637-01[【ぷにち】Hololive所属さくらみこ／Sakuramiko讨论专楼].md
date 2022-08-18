@@ -3606,3 +3606,39 @@ miko绝对会要想攻下peko的家，按照她的性格
 
 大家这么多年才看出来这个关键问题？我早就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以上次第一轮被raid我就说这个人没什么好担心的
 
+
+
+*****
+
+####  holoan  
+##### 348#         楼主| 发表于 2022-8-18 23:12
+
+miko提到了看其他人的rust直播画面画质很低，果然pro直播者会察觉到这个问题
+
+miko的直播比特率一直设在8000吧相当高了，当然也要确保网络没有问题
+
+*****
+
+####  rs5621  
+##### 349#       发表于 2022-8-18 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看miko吃瘪的反应确实很好玩
+
+*****
+
+####  holoan  
+##### 350#         楼主| 发表于 2022-8-18 23:15
+
+我们是以观众的角度看主播在整活没有什么心理负担，有的主播自己一直输会很不爽有时候还会跟观众吵起来
+
+所以主播要有一个好心态很重要
+
+*****
+
+####  holoan  
+##### 351#         楼主| 发表于 2022-8-18 23:20
+
+风化是一个严肃的课题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还是很在意miko的秘密小屋是什么玩意怕是这轮结束才公开吧
+
