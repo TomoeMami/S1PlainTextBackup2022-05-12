@@ -204,3 +204,15 @@ nagi回归
 看生肉的时候我还觉得这集也就那样了，不至于吵起来。结果可可一句话直接点燃炸药桶，现在星这边就是即将 ...</blockquote>
 谁能想到台词和合同内容竟能如此“用心”<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 3020#       发表于 2022-8-18 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121000&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 17:34</a>
+
+第五集已经变成这样了，下一集要是不行，是没人讨论呢，还是会继续吵啊 ...</blockquote>
+星团的烂是属于那种烂出一种境界的烂，是接近兽娘2和A5的烂，这种烂属于有话题的烂，属于大家都有话说的烂，某种意义上也是另一种火了。举个例子，NGA的7月动画专楼，星团楼是第一高，并且是第二高的两倍；只比较Lovelive系列，对比4月的虹团楼，虹团到结局是9000楼，而现在星团楼才第五集已经都朝着7000楼进发了。贴吧那里的话，拿战吧做例子，星团一个第五话NICO好评贴一夜之间就700回复了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

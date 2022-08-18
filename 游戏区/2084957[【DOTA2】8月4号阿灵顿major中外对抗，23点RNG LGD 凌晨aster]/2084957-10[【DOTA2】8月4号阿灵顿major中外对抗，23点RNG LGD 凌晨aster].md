@@ -11556,3 +11556,61 @@ tb比naga简单，毕竟大炮台。
 
 这次转5要是再不行职业圈应该是没人看得起yang神了
 
+
+
+*****
+
+####  Sabbah  
+##### 14733#       发表于 2022-8-18 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白帆即使打到转教练都没转过5，不知道周海洋想干嘛。
+
+*****
+
+####  tasuku  
+##### 14734#       发表于 2022-8-18 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120684&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-18 17:13</a>
+女主播搞饭圈营销，还不让看照片的咯？
+
+再说一遍我没说赵若旸长得丑，也不知道阿梓和她有什么关系，这些 ...</blockquote>
+啊？这倒霉头像终于刷出来了吗
+这哪里丑了，让达达抱抱不好吗？
+
+*****
+
+####  一品堂官  
+##### 14735#       发表于 2022-8-18 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121364&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-18 17:59</a>
+
+我的多操入门是naga。天赋加技能给你四个幻象，分身给两个幻象。那么3技能幻像编一队，本体和一个技能幻象 ...</blockquote>
+这版本娜迦出装有什么注意点么 
+
+看比赛ame第二把那分身龙心补冰眼出装感觉好刮啊 
+
+假如团战比较焦灼队友又缺输出 是否分身龙心之后补个血棘比较好再补冰眼比较好
+
+*****
+
+####  syndrome2032  
+##### 14736#       发表于 2022-8-18 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121419&amp;ptid=2084957" target="_blank">Sabbah 发表于 2022-8-18 18:03</a>
+白帆即使打到转教练都没转过5，不知道周海洋想干嘛。</blockquote>
+燃烧军团时期最早不就让他打5。效果太毁灭了才不得不转回3。
+
+*****
+
+####  六娃  
+##### 14737#       发表于 2022-8-18 18:10
+
+自信的naga分身紫苑就开始宰了，刷钱路上碰到酱油顺手就是一人头
+
+*****
+
+####  ArowRocher  
+##### 14738#       发表于 2022-8-18 18:10
+
+四字母真的是VG自己人，要打就来，仿佛过去从无嫌隙
+
