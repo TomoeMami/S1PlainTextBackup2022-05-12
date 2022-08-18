@@ -10943,3 +10943,67 @@ V社对EG也是狠，MAJOR亚军都直接砍没，三冰本来绝活就只剩一
 路垚id改成spirit了…
 不装了啊，霉神
 
+
+
+*****
+
+####  adretyu67  
+##### 14665#       发表于 2022-8-18 16:23
+
+老北京是真要请老东京上身？
+
+*****
+
+####  尖刺外婆  
+##### 14666#       发表于 2022-8-18 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119818&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-18 16:21</a>
+路垚id改成spirit了…
+不装了啊，霉神</blockquote>
+别咖黑，霉黄人猫合一了
+
+*****
+
+####  遍体精淋af  
+##### 14667#       发表于 2022-8-18 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119776&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-18 16:19</a>
+没郑竣文，ig估摸就直接垮了。没庄进祥，3458现在还不知道和哪个中单玩耍。
+
+那可能真是茶队挑大梁了。 ...</blockquote>
+在另一条世界线，庄进祥加入ehome打一，后面挤掉giegie的位置，感觉西恩刀塔好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 14668#       发表于 2022-8-18 16:28
+
+ 本帖最后由 反方向的波 于 2022-8-18 16:31 编辑 
+
+eu这地理意义上的东欧浓度已经很可怕了 
+og油垃圾二毛 misha大毛
+石头人skiter斯洛伐克人  nine算半个大毛
+角斗士dyrachyo大毛 中单boom捷克人
+秘密一个爱沙尼亚一个波兰一个大毛甚至还有一个吉尔吉斯斯坦
+entity14大毛 5号位三毛
+a鱼35大毛 小核桃保加利亚
+into the breach一个大毛 ivy一个吉尔吉斯斯坦
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">哪怕鹅国户口簿现在签证这么危险，都一堆毛子
+也就希腊人和马体还有钱四爷那队成分比较单纯
+
+德张：等欧洲人全投绿了窝就是欧洲⭐️刀塔教父了
+
+*****
+
+####  星野航  
+##### 14669#       发表于 2022-8-18 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119712&amp;ptid=2084957" target="_blank">nightmare902015 发表于 2022-8-18 17:15</a>
+
+那大可以削掉红蓝小人的真实视野，换成+1护甲。强度依旧高就再削弱2点护甲 ...</blockquote>
+那三级书意义也不大了
+
+当时版本主要是被召唤物推进恶心到了，加上很多辅助抱怨太多，直接给砍了
+
+其实是挺有特色的一个道具直接砍没了还是挺吃惊的
+
