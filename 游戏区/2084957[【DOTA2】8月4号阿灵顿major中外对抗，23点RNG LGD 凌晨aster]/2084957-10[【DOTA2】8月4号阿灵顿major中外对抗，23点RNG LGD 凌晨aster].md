@@ -10538,3 +10538,22 @@ do子缩壳在舰长群秀了两天美甲就自动退潮了
 
 kuku和raven靠ti6把奇迹鳖打的烂中爆烂，奠定了自己在东南亚五六年的江湖地位
 
+
+
+*****
+
+####  walfeds  
+##### 14623#       发表于 2022-8-18 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117224&amp;ptid=2084957" target="_blank">Sabbah 发表于 2022-8-18 13:30</a>
+
+杜文乐心心念念顶级儿子拉着他入队，万一顶级儿子和司马库冲突转披萨替补转lft那杜文乐怎么办。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杜文乐总不见得这种选择题都不会做吧
+
+*****
+
+####  沈淮  
+##### 14624#         楼主| 发表于 2022-8-18 13:44
+
+他不是已经输过一次了吗
+

@@ -5560,3 +5560,14 @@ axia大概就想要像传统游戏主播那样的，打得好说流弊打不好�
 
 这种事都是慢慢来的，慢慢下降联动频率，直到观众想不起上次联动是哪天就算完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17013#       发表于 2022-8-18 13:40
+
+ 本帖最后由 FCCHua 于 2022-8-18 13:44 编辑 
+
+然而如果没调整的话，21号就有旅团联动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

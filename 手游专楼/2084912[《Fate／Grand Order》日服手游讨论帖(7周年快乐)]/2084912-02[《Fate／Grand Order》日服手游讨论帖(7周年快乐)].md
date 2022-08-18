@@ -3980,3 +3980,43 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 上一个炎上过的作品是Fate/Extra Last Encore，唯二发行过原案集的，风评在原案集之后也没大规模反转
 
+
+
+*****
+
+####  poor  
+##### 1854#       发表于 2022-8-18 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116040&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-18 12:05</a>
+按贴吧的说法摩根被“リンチ”，字面是lynch私刑然后这个词也被用于性方面所以就发散到母女丼了
+
+ ...</blockquote>
+但是我看人贴出来那段只有妖崔啊？摩根被“リンチ”是哪里写的？再妖崔说车性意味的也不是这个是侵<strong></strong>犯吧
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  poor  
+##### 1855#       发表于 2022-8-18 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117232&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-18 13:31</a>
+又想了想，感觉蘑菇以前的作品没大面积炎上过，也许是因为他塑造的人物棱角比较鲜明，没什么太大的代入感。 ...</blockquote>
+但是妖崔也没有ML吧？况且就像我前面说的，3破都那样了，你还关心她有没有那个膜，意思就好像你全身上下被人捅烂都无所谓，只要膜还在就行，感觉比什么蘑菇醒脾恶心多了吧。再说被人轮过又ML落地的不还有个藤乃？我看人气不是挺高的
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  catspace  
+##### 1856#       发表于 2022-8-18 13:49
+
+玛修在原案里面完全是玛丽苏女主的待遇啊，霸道总裁狮子头，前任芬恩，虐恋贝利尔，还有现任咕哒，所以贴吧有人说这实际上是蘑菇少女心发作的产物
+
+*****
+
+####  霧谷藤乃  
+##### 1857#       发表于 2022-8-18 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于紫发女路人们的问题，在我看了少女革命后感觉都是琐事，蘑菇这辈子也掏不出安希那样的角色
+
