@@ -3290,3 +3290,27 @@ ID直播外也很勤
 
 成功了
 
+
+
+*****
+
+####  holoan  
+##### 314#         楼主| 发表于 2022-8-18 19:33
+
+那次事件之后自贩机的管理权被转到polka那边估计是因为开live没时间登陆又风化了
+
+*****
+
+####  rs5621  
+##### 315#       发表于 2022-8-18 19:38
+
+<img src="https://img.saraba1st.com/forum/202208/18/193811i1tektfzc011n2kp.png" referrerpolicy="no-referrer">
+
+<strong>5$UI`XP@7T{)~0~W49~Q0QJ.png</strong> (398.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 19:38 上传
+
+这是什么
+

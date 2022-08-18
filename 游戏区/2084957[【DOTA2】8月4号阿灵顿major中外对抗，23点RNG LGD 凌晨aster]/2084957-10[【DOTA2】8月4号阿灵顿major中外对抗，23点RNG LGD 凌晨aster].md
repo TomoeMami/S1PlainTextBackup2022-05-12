@@ -11905,3 +11905,12 @@ ti8也就fy是真可惜，霉鳖可真算了，起码也是个副处，算上场
 妮朋友是不是死灵龙绝活哥</blockquote>
 赛后锐评“我的我的，差点就一打五了，排到鸡哥的水人你就偷着乐吧”
 
+
+
+*****
+
+####  Cookiekira  
+##### 14774#       发表于 2022-8-18 19:34
+
+有没有懂哥说说noone现在是什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
