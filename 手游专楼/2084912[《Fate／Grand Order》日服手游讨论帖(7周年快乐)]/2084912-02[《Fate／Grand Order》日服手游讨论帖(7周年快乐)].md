@@ -3704,3 +3704,12 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 虽然很下流但是我确实想看 ...</blockquote>
 手游这种垃圾形式，限制了菌皇的发挥！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 1833#       发表于 2022-8-18 11:31
+
+反正我觉得妖崔三破差不多就是其他菌皇片场紫发美少女的待遇呗，他开心就好233
+
