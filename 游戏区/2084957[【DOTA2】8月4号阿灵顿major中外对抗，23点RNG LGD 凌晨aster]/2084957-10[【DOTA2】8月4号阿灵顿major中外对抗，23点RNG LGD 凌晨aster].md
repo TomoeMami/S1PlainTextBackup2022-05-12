@@ -10557,3 +10557,25 @@ kuku和raven靠ti6把奇迹鳖打的烂中爆烂，奠定了自己在东南亚�
 
 他不是已经输过一次了吗
 
+
+
+*****
+
+####  坚定的团子党  
+##### 14625#       发表于 2022-8-18 14:16
+
+v社是真的逆天，要是9月1日版本更新，9月3日开始打预选，就2天根本没时间去消化版本，估计到时候各种非ban即选<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 14626#       发表于 2022-8-18 14:21
+
+<img src="https://img.saraba1st.com/forum/202208/18/142107mkc8fug19eg8todt.jpg" referrerpolicy="no-referrer">
+
+<strong>1349401012.jpg</strong> (73.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 14:21 上传
+
