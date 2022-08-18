@@ -11914,3 +11914,19 @@ ti8也就fy是真可惜，霉鳖可真算了，起码也是个副处，算上场
 
 有没有懂哥说说noone现在是什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AIDSL  
+##### 14775#       发表于 2022-8-18 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57122050&amp;ptid=2084957" target="_blank">iriyano 发表于 2022-8-18 18:50</a>
+
+多操英雄肯定是版本答案chen啊
+
+要是能喊得动队友和你一起推路人无敌强</blockquote>
+B站有个主播，他的说法是5000以下德鲁伊中单或大哥，到6000分中单陈
+
+不过我看他打超凡的单子，队友常年不跟推，只要不跟推他的陈杀几个人之后就变成酱油等躺了。
+

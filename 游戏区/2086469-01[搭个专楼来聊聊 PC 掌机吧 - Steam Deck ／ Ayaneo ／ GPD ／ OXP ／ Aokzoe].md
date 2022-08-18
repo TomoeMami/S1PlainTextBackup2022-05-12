@@ -1028,3 +1028,31 @@ ayaneo air目前为止玩了快两周了，电量还是最大的痛点。
 完全不建议任何pc掌机做游戏外的日常用途</blockquote>
 对我来说是用来在外面和床头处理一些小东西（因为是 winmax，所以可以处理）。当然主要用途还是玩游戏。
 
+
+
+*****
+
+####  bypass  
+##### 90#         楼主| 发表于 2022-8-18 19:51
+
+<img src="https://img.saraba1st.com/forum/202208/18/195100b40j40q1qmhsxx10.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 19:51 上传
+
+Air Pro 的 up 评测应该也快了。
+
+
+
+*****
+
+####  战狼PTSD  
+##### 91#       发表于 2022-8-18 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你们记得保养好我的机子
+
+越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理智告诉我买个串流用的就差不多了，当成花钱买个不错的手柄
+
