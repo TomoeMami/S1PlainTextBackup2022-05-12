@@ -216,3 +216,15 @@ nagi回归
 第五集已经变成这样了，下一集要是不行，是没人讨论呢，还是会继续吵啊 ...</blockquote>
 星团的烂是属于那种烂出一种境界的烂，是接近兽娘2和A5的烂，这种烂属于有话题的烂，属于大家都有话说的烂，某种意义上也是另一种火了。举个例子，NGA的7月动画专楼，星团楼是第一高，并且是第二高的两倍；只比较Lovelive系列，对比4月的虹团楼，虹团到结局是9000楼，而现在星团楼才第五集已经都朝着7000楼进发了。贴吧那里的话，拿战吧做例子，星团一个第五话NICO好评贴一夜之间就700回复了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 3021#       发表于 2022-8-18 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121441&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-08-18 18:04:35</a>
+星团的烂是属于那种烂出一种境界的烂，是接近兽娘2和A5的烂，这种烂属于有话题的烂，属于大家都有话说的 ...</blockquote>接近兽娘2不至于，却不说兽娘1有多成功，兽娘2那跳脸比星这边可恶心太多了，而且Nico好评率可是个位数啊，星比的过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
