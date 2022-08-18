@@ -4120,3 +4120,12 @@ Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 2。6在隔壁可是大受好评啊
 
+
+
+*****
+
+####  sosgame67  
+##### 1867#       发表于 2022-8-18 15:48
+
+隔壁刚刚又爆破了一栋声讨玛修大楼，有异议全部掐死就岁月安好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

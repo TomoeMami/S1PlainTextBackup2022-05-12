@@ -10774,3 +10774,43 @@ ti9靠成熟期的芬兰金毛基本不需要啥针对BP就碾了绝大多数队
 
 去年秘密的BP够屌了，队内有短板照样被TS这种天赋队翻
 
+
+
+*****
+
+####  莉拉厨  
+##### 14647#       发表于 2022-8-18 15:48
+
+4分C是TI冠军，望周知！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 14648#       发表于 2022-8-18 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">西欧区这两年不是退步第一名吗
+
+疫情后四个major1个ti，就靠西恩缺席的major混了个冠军，其他没了
+
+中国拿了2major冠军
+
+东欧拿了1major1ti冠军
+
+南北美东南亚反正一直就没啥收获也没啥进步退步可说的
+
+以前能凑至少3个强队，现在凑一个强队还时灵时不灵的
+
+*****
+
+####  六娃  
+##### 14649#       发表于 2022-8-18 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119237&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-18 15:48</a>
+
+4分C是TI冠军，望周知！
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+4分C：说得好像你dendi没被430处刑一样，谁看不起谁呢
+
