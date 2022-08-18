@@ -4129,3 +4129,28 @@ Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
 
 隔壁刚刚又爆破了一栋声讨玛修大楼，有异议全部掐死就岁月安好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 1868#       发表于 2022-8-18 15:53
+
+前几天隔壁还有个帖子讨论如果奥尔加所长没死在序章，人气能不能超过马修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 1869#       发表于 2022-8-18 15:56
+
+别说奥尔加玛丽了，贴吧现在说齐格塑造比玛修强都没人骂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kisskick  
+##### 1870#       发表于 2022-8-18 15:59
+
+隔壁大受好评是真投票投出来的，以至于我看隔壁声讨帖的感觉就是能发出就不错，有人反对就怪堵嘴实在是有点手伸太长了
+
