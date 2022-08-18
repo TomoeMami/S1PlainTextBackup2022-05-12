@@ -12123,3 +12123,33 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 气的完美在幻塔里搞绝版
 
+
+
+*****
+
+####  walfeds  
+##### 14798#       发表于 2022-8-18 21:23
+
+曾几何时overwolf还是免费的，落泪了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 14799#       发表于 2022-8-18 21:23
+
+TB这英雄现在真傻逼啊，我900GPM打到50多分钟纯纯给对面三肉核搓澡，刷新bkb都顶不住，建议开除大核行列，根本比不上虚空一根寄吧毛
+
+*****
+
+####  千千千千鸟  
+##### 14800#       发表于 2022-8-18 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123800&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-18 21:04</a>
+
+细嗦怎么整</blockquote>
+[https://overwolf.gg/](https://overwolf.gg/)
+
+这个注册送7天免费时间，然后一个月26块钱吧，付款我是找淘宝代充了，因为没外国信用卡。看攻略说之前毛子国际形势没那么差的时候还可以有办法自己冲。貌似还能解锁dotaplus的会员啥的
+

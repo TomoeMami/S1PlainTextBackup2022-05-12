@@ -3473,3 +3473,26 @@ ID直播外也很勤
 
 又要被aki骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 333#       发表于 2022-8-18 21:22
+
+aki<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：休想把我当枪使了！
+
+*****
+
+####  holoan  
+##### 334#         楼主| 发表于 2022-8-18 21:27
+
+​内绪のラボ！？
+
+*****
+
+####  holoan  
+##### 335#         楼主| 发表于 2022-8-18 21:29
+
+还有其他地方存物资
+
