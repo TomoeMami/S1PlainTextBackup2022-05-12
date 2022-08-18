@@ -251,3 +251,15 @@ nagi回归
 
 今天确诊突破25万<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3024#       发表于 2022-8-18 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119205&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 15:45</a>
+
+看了下盛大缪水打折后的周边，感觉好便宜，整了点。虽然听群友说是卖剩的草，但对比星的那个毛巾跳绳确实笑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">他要是上虹星的谷我说不定还真会买
+
