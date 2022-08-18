@@ -9760,3 +9760,76 @@ ts看了集美视频以为lgd真核a畜于是被宰了
 
 挂着major官方直播间大撸特撸的撸狗无罪还行
 
+
+
+*****
+
+####  cyberpenk  
+##### 14532#       发表于 2022-8-18 10:53
+
+小点声，太监论坛看不得这个
+
+*****
+
+####  六娃  
+##### 14533#       发表于 2022-8-18 10:55
+
+老干鳖不是吹外国粉丝多吗，怎么现场除了中国留学生基本没有支持的，白皮全都想让PSG滚蛋
+
+*****
+
+####  Litccc  
+##### 14534#       发表于 2022-8-18 10:56
+
+红迪上吹lgd的帖子是谁发的不用说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 14535#       发表于 2022-8-18 10:57
+
+红迪那些吹lgd的大部分帖子，英语和梗再塑料一点。。。
+
+*****
+
+####  莉拉厨  
+##### 14536#       发表于 2022-8-18 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112741&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-18 08:31</a>
+别急，这才到哪啊，今年的整的大活还在后面。</blockquote>
+期待TI能整出点无法归咎于团队决策的大活，看看集美怎么表演<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dclara1  
+##### 14537#       发表于 2022-8-18 11:00
+
+黑还是吹，美国贴吧上聊干鳖的基本一眼拆妮子
+
+*****
+
+####  lyjssj  
+##### 14538#       发表于 2022-8-18 11:02
+
+<blockquote>莉拉厨 发表于 2022-8-18 10:59
+期待TI能整出点无法归咎于团队决策的大活，看看集美怎么表演
+
+—— 来自 Xiaomi Redmi Note 8 Pro ...</blockquote>
+波高已经是个人行为超级犯病了，要不是这次雪碧出手集美已经快要洗白白了
+
+*****
+
+####  六娃  
+##### 14539#       发表于 2022-8-18 11:02
+
+我早就说过了，白皮根本没有干鳖粉，只有fy somnus faith_bian粉
+
+*****
+
+####  遍体精淋af  
+##### 14540#       发表于 2022-8-18 11:02
+
+太监论坛经典说法：国外很多选手都是处长的粉丝，处长和约旦鳖一样都是白皮圈子选手的大众偶像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

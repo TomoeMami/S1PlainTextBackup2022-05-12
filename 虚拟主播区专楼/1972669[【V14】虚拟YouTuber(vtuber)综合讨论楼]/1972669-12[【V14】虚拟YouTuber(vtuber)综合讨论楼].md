@@ -5427,3 +5427,20 @@ hnn小号推都那么说了，有些人该消停会了吧，自己个人的两�
 
 让我想起昨天看到的哈弟箱的切片规定，里面提到reid全部禁止剪辑，已经上传的不会要求删除，恶意剪辑太多了
 
+
+
+*****
+
+####  fastary  
+##### 17000#       发表于 2022-8-18 10:51
+
+艾葵不是主要原因不过也算导火索之一吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+看repo除了关于粘着anti的部分也训了一直以来的看他做啥只会发好可爱的全肯定gachi和指示厨妈粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看到他抱怨每次联动这些粉丝都会去联动对象那边打扰或者指手画脚我就想起饭屋最后的线下联动那些攻击黛灰让fwgs告知自己开单窗不事先调整环境不配虑疫情etc的fwgs推了，真的有病<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+可惜没听到两人训粉只等到主播道歉……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+(倒也不是一定要fwgs训个粉，只是现在想起那群毒唯骂完达成目的还能爽开香槟仍然有点不爽)
+
