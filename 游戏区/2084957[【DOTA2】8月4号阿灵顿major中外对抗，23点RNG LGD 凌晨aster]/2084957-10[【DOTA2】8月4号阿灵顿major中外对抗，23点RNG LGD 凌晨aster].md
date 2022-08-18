@@ -10610,3 +10610,37 @@ v社是真的逆天，要是9月1日版本更新，9月3日开始打预选，就
 
 集美英语没那么烂，我建议你p一下图再说乳了
 
+
+
+*****
+
+####  walfeds  
+##### 14630#       发表于 2022-8-18 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57118004&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 14:28</a>
+
+这场Ti3外卡赛，锤猪剑客的成名战里，他的两个队友加一起连关了中国队三届Ti ...</blockquote>
+应该是他和他的两个队友，锤猪剑客ti9自己也有份啊
+
+*****
+
+####  六娃  
+##### 14631#       发表于 2022-8-18 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57118346&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-18 14:49</a>
+
+应该是他和他的两个队友，锤猪剑客ti9自己也有份啊</blockquote>
+锤猪剑客蹭老乡的，双冠教练还得是ppasarel
+
+*****
+
+####  Fam  
+##### 14632#       发表于 2022-8-18 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57099941&amp;ptid=2084957" target="_blank">scg2017 发表于 2022-8-17 11:05</a>
+
+刘翔是世界冠军，奥运冠军，破世界纪录，破奥运记录。
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12 ...</blockquote>
+我giegie是世界亚军，ti亚军，破ti魔咒（ti8），破ti魔咒（ti9）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

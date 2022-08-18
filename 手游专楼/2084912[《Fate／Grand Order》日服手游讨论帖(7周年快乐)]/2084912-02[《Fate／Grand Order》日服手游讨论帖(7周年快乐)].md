@@ -4065,3 +4065,14 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 妖崔棍，摩根酱，这种情节还是有点过激了。毕竟是手游，给玩家的体验不亚于本来晨间档在蹲光之美少女，突然放起了野崎窗的巴比伦（的第七集），那就真是给人意外的惊喜呀！
 
+
+
+*****
+
+####  Blackson  
+##### 1862#       发表于 2022-8-18 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117343&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-18 13:39</a>
+ 上一个炎上过的作品是Fate/Extra Last Encore，唯二发行过原案集的，风评在原案集之后也没大规模反转 ...</blockquote>
+Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
+
