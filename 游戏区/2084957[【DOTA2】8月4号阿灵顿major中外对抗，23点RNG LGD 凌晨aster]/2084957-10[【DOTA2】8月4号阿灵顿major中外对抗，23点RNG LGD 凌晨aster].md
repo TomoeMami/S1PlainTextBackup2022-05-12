@@ -9085,3 +9085,55 @@ nga从全员鳖孙到一口一个鳖也没几天
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Vladimeow  
+##### 14455#       发表于 2022-8-18 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112234&amp;ptid=2084957" target="_blank">wuwo2 发表于 2022-8-18 06:36</a>
+虽然lgd输了吧，但有的黑人黑的，说AME是世界第一傻逼carry的，我感觉是不是有点把其他cncarry黑得更狠啊。 ...</blockquote>
+一次失利一次失利一次失利
+
+*****
+
+####  12481632  
+##### 14456#       发表于 2022-8-18 08:24
+
+漏油们能不能发点美少女洗洗眼<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asaon  
+##### 14457#       发表于 2022-8-18 08:24
+
+好歹发发滚球兽啊
+
+*****
+
+####  坚定的团子党  
+##### 14458#       发表于 2022-8-18 08:25
+
+有一说一，处长整的活确实一年不如一年，整活效果：水人波&gt;小狗上高&gt;&gt;小小被换血&gt;&gt;混沌瞎逼敲人
+
+*****
+
+####  哈曼的YY  
+##### 14459#       发表于 2022-8-18 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112464&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-08-18 07:56:10</a>
+原来之前把小尿布白头走的是这个奈文摩尔大萌王啊</blockquote>说的是哪个管理
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  白野苍衣  
+##### 14460#       发表于 2022-8-18 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112695&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-18 08:25</a>
+
+有一说一，处长整的活确实一年不如一年，整活效果：水人波&gt;小狗上高&gt;&gt;小小被换血&gt;&gt;混沌瞎逼敲人 ...</blockquote>
+别急，这才到哪啊，今年的整的大活还在后面。
+
