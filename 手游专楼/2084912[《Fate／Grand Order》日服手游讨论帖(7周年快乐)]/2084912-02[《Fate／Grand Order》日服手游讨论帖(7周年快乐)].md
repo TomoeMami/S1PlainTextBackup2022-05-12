@@ -3722,3 +3722,60 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 蘑菇的尿性想必大家应该很早就看清了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HACHIMAN  
+##### 1835#       发表于 2022-8-18 11:54
+
+开卡池前去买了3w的点卡，抽的时候发现完全不够用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 买卡太磨叽了还是直接信用卡CI吧。一不注意7w就下去了
+
+加上攒的一点前后一共12单吧。说来这次动画模型里拿着剑，差不多剑阶斯卡哈也要提上日程了吧
+
+<img src="https://img.saraba1st.com/forum/202208/18/114955fybbhwjwuhflbtbb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>11A01550-9FC1-407C-90CC-62CBAD886BE2.jpeg</strong> (28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 11:49 上传
+
+*****
+
+####  miro112233  
+##### 1836#       发表于 2022-8-18 11:55
+
+看隔壁抠字眼论证“侵犯”不是性层面的样子，有261的时候说“碧玉破瓜”翻译的不对的感觉了
+
+都2022年了，别装什么清纯圣菌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  UNISONIA  
+##### 1837#       发表于 2022-8-18 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115888&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-18 11:55</a>
+
+看隔壁抠字眼论证“侵犯”不是性层面的样子，有261的时候说“碧玉破瓜”翻译的不对的感觉了
+
+都2022年了， ...</blockquote>
+贴吧也有三个帖子论证犯された不是主性层面的
+
+我觉得语言的问题有分歧自己去查一下最好
+
+*****
+
+####  poor  
+##### 1838#       发表于 2022-8-18 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114942&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-18 10:56</a>
+在9+手游里写母女丼也只有你菌敢想了，没写成还要废案发出来，真的纯纯乐子人
+
+虽然很下流但是我确实想看 ...</blockquote>
+母女丼到底是啥？看隔壁一直在车妖崔有没有被轮的时候提到，意思是说摩根被分尸前也被轮了？但是没有人车这个就很奇怪
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

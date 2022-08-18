@@ -39,3 +39,12 @@ nagi回归
 
 康复回来太好了，还有3天时间可以排练能赶得上周日的live
 
+
+
+*****
+
+####  player3960  
+##### 3005#       发表于 2022-8-18 11:52
+
+现阶段最后的5人表演了，希望能顺利<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
