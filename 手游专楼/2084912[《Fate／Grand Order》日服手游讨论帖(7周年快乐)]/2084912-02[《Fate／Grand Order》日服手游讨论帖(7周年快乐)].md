@@ -3436,3 +3436,19 @@ B站某20年已经就用上三CBA狂兰一发带走帝王花的大神</blockquot
 
 最后一共12单，蓝莓1宝，道满1宝，伊吹3宝，RBA 2宝，歪了奥德修斯(new)，四星也开了两个新图鉴，这样看来还算可以接受吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 1809#       发表于 2022-8-18 08:42
+
+fami通那个NPC角色列举可能到最后实装的人数不到一只手的手指
+
+*****
+
+####  areklose  
+##### 1810#       发表于 2022-8-18 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装出完了。索然无味了。
+
