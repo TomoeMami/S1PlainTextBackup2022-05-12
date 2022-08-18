@@ -11858,3 +11858,21 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 111，真出吗哥
 
+
+
+*****
+
+####  flame  
+##### 14769#       发表于 2022-8-18 19:14
+
+ti8也就fy是真可惜，霉鳖可真算了，起码也是个副处，算上场外鸽比赛打炮打枪什么的在我这里能上厅级
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+*****
+
+####  名字不乱取  
+##### 14770#       发表于 2022-8-18 19:18
+
+不知道能不能把两任四号位都打出精神问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
