@@ -4448,3 +4448,12 @@ c呆性格我觉的比现在的本体呆可爱
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1897#       发表于 2022-8-18 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不断地刷带攻击礼装的剑单支援，结果就用过剑北斋和冲田，其余剑单都很少见到，没法体验
+

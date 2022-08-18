@@ -11969,3 +11969,19 @@ B站有个主播，他的说法是5000以下德鲁伊中单或大哥，到6000�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Litccc  
+##### 14780#       发表于 2022-8-18 20:47
+
+本子出之前完美官号也会提前预热，所以明天肯定无了，下周要打esl大概率也没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_s1  
+##### 14781#       发表于 2022-8-18 20:51
+
+本子出的时间离TI这么近那奖金是不是要缩水了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
