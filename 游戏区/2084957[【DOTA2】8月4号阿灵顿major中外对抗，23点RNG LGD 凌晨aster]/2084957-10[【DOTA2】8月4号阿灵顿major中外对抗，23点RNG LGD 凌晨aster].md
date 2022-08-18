@@ -10644,3 +10644,12 @@ v社是真的逆天，要是9月1日版本更新，9月3日开始打预选，就
 —— 来自 Xiaomi Redmi K30 5G Speed, Android 12 ...</blockquote>
 我giegie是世界亚军，ti亚军，破ti魔咒（ti8），破ti魔咒（ti9）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woyzeck  
+##### 14633#       发表于 2022-8-18 14:53
+
+ceb天道酬勤啊，一天10把dota真的是有效果的，从被罗导打爆到打爆畜生狗头，一路走来风风雨雨，经历了太多。
+
