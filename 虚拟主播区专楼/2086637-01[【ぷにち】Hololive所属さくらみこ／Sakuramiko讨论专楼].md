@@ -3042,3 +3042,38 @@ Miko Ch. さくらみこ
 
 EVA！？
 
+
+
+*****
+
+####  rs5621  
+##### 288#       发表于 2022-8-18 14:03
+
+<img src="https://img.saraba1st.com/forum/202208/18/140324wzyyg9awpc2plwev.png" referrerpolicy="no-referrer">
+
+<strong>%Q744AXZHMW`@SZ}N66@ILD.png</strong> (59.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 14:03 上传
+
+这老哥画的35p系列都蛮好看的
+
+*****
+
+####  超紳士  
+##### 289#       发表于 2022-8-18 14:10
+
+死了？！怎么偏偏我忙搬家的时候死
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  holoan  
+##### 290#         楼主| 发表于 2022-8-18 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天一开场就说是高风险回了
+
+以为不会死的结果这个人还是能演死我也没辙了，该做的准备牛奶金苹果全装备都上了，最后因为自己太莽
+
