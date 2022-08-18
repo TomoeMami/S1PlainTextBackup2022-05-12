@@ -3793,3 +3793,48 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 隔壁可能版本还没更新过来
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1840#       发表于 2022-8-18 12:34
+
+蘑菇这个废案看着确实挺拱火的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毫不掩饰地展现着磅礴的恶意，移情别恋，战力崩坏，唐突反转，自嗨猎奇......
+
+不过这类废案其实就是把头脑风暴结束后一些舍不得又不得不割舍的奇思妙想拿出来赚一下眼球，就跟扎克施耐德说他的正义联盟三部曲最后路易斯怀了蝙蝠侠的孩子似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对此起反应只是对空气打拳罢了...当然想发泄还是可以的...
+
+其实单纯血腥的话，我倒能接受，但是非得扯到性方面甚至是Gore向，就过分了。
+
+若这是蘑菇强烈希望的，即便单独出个galgame细致描写也无妨（我记得虫爱少女好像就有几个纯拔作的外传）。但是想把这种剧情放手游里面纯粹就是露阴癖<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+不知道2.6现在的剧情是公款追星导致的，还是被运营组打回重写了，但是无论如何蘑菇对笔下人物的恶意都挺大的...贝利尔还有妖崔貌似就没打算好好塑造...
+
+最近的日本创作者不知道是不是共时性，时不时就出烂活，艾不要，辉摄影，连尾田荣一郎都说要整个读者想不到的结局来名垂千古...
+
+既然如此，我强烈建议蘑菇去学习一下港漫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这样说不定2.7就会看到：
+
+在南美洲的亚马逊丛林里，失去令咒的藤丸立香被锁链缓缓吊起，戴比特喝了一口酒，对着立香说：“我知道你作为图鉴党，一直都很想抽到冠位狂，所以我专门找了这四个人来招待你，相信他们能带给你惊喜呀！”
+
+然后放了一首《好运来》，从后面走出四个穿着很少布的大只佬—海克力斯、大流士、贝奥武夫、项羽，狂化的眼神，僵硬的笑意，心肺骤停的转身，一看就知道是限定卡池里的极品守门员<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+“他们每个都有过人之处，独门绝技更是给你意外惊喜啊！嘻嘻，给我吃保底呀！”
+
+“YLS，NMSL！”
+
+（实在不行还可以学学怎么给妖崔灌水银<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙虎门里好像有...）
+
+*****
+
+####  DARKGRAY  
+##### 1841#       发表于 2022-8-18 12:35
+
+ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1842#       发表于 2022-8-18 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发生了什么 又有大戏能看了?
+

@@ -5500,3 +5500,23 @@ syl hnn居然还提这事，要不要想想自己还要不要cp粉的钱
 
 hnn性格也是很要强的那种，不提这个事才不正常吧，更何况自己的二周年被cp粉恶心成那样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17007#       发表于 2022-8-18 12:35
+
+铁骨铮铮啊坚决不吃这口饭态度还挺强硬，母亲ヅラ、彼女ヅラ、ガチ恋势在rap里直接点名劈
+
+复归以后想走ライブ王这种路线？
+
+*****
+
+####  格林卡罗尔  
+##### 17008#       发表于 2022-8-18 12:40
+
+那我是不是可以期待一下oreapo终止营业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+axia大概就想要像传统游戏主播那样的，打得好说流弊打不好骂菜的对他来说比较能接受的氛围吧
+

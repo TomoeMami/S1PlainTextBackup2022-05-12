@@ -10285,3 +10285,57 @@ Reddit版规比贴吧执行好点，总体道德比百度公司强了不止一�
 确认有虚空天怒至宝，还有一个独特身心
 第一个本子会让人失望，但是第二个“richer”
 
+
+
+*****
+
+####  walfeds  
+##### 14595#       发表于 2022-8-18 12:34
+
+<blockquote>OG的CEO JMR Luna在播客里面稍微解释了一下misha的签证问题：
+
+(1)正常来说Misha需要回俄罗斯签证。但是Misha没服兵役，回俄罗斯就有可能被抽中去服兵役，所以他自己不想回俄罗斯，OG俱乐部也是一个想法(yuragi和misha都一样)。斯德哥尔摩Major Misha没拿到签证就是因为他不想回俄罗斯签。
+
+(2)一个俄罗斯人要在俄罗斯之外签的话，很难约到面签的位置(因为需要到俄罗斯免签的国家去面签)。OG俱乐部给所有需要签证的队员在沙特、塞尔维亚等地方的大使馆都排队了，但是排到你的时候当地大使馆只会在面签的几个小时前通知你，很有可能根本买不到机票飞过去。Misha有美国的运动员身份可以P签，但每次都需要重新签，所以下一次入美能不能拿到签证完全看能不能及时约上面签。这次没法参加阿灵顿Major就是因为排不上队。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回国随机抽兵役还行，什么在外难民
+
+*****
+
+####  六娃  
+##### 14596#       发表于 2022-8-18 12:35
+
+有天怒至宝没VS是吧，铁性别歧视
+
+*****
+
+####  六娃  
+##### 14597#       发表于 2022-8-18 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116425&amp;ptid=2084957" target="_blank">Centrum 发表于 2022-8-18 12:30</a>
+头像是纯白？</blockquote>
+鳖造谣，窝涛锅铁粉，支持涛锅枕头越卖越好
+
+*****
+
+####  lyjssj  
+##### 14598#       发表于 2022-8-18 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皮球除了年龄大了点，在一线队当5，和一众世界级选手对抗不管文斗武斗都不落下风，堪称宝藏5号位。
+
+结果喊了一声处长被直接被集美冲烂
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dodo除了声音夹了点，给deadgame站台，每天直播大部分时间都在高强度dota，堪称宝藏皮套人
+
+结果听到处长笑了一下也被集美冲烂了
+
+lgd被1:3后，集美：<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">为什么你们那么针对lgd，为什么你们这么大恶意，请你们队中国dota宽容一点
+
+可他妈赶紧闭肛吧
+
+*****
+
+####  勤练带来力量  
+##### 14599#       发表于 2022-8-18 12:41
+
+虚空至宝槽位要是不是头部是武器就好笑了，这两天又看见在屯足球棍的奸商了
+
