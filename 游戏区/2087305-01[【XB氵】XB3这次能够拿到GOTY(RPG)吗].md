@@ -1521,3 +1521,14 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇偶 XB3爆杀老头环 泥潭钦定
 
+
+
+*****
+
+####  chero  
+##### 152#       发表于 2022-8-18 09:03
+
+没这能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
