@@ -5669,3 +5669,14 @@ dtto之前说自己不是管人，加入scarz时倒反而官宣是vtuber了<img 
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rzrbtk  
+##### 17023#       发表于 2022-8-19 01:27
+
+自从上次郡盗司兔乱讲黄梗之后感觉路易斯人性值和谐度蹭蹭往上涨，这么久第一次对路易斯的恐惧心消退了...
+
+syl，兔组快点好起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
