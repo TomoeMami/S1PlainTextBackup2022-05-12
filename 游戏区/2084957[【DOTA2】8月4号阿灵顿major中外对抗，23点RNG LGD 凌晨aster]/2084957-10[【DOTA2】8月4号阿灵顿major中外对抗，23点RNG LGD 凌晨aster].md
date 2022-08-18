@@ -11644,3 +11644,51 @@ po3是批里批里直播那个走劣势路的，水平至少比周海洋强一�
 
 结巴爱在西元前开头这个lofi效果用的是真的好，点开狗头人新作一下子就感觉像编织者释放了大招一般<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 14743#       发表于 2022-8-18 18:23
+
+结巴的最神专范特西可不是闹着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遍体精淋af  
+##### 14744#       发表于 2022-8-18 18:25
+
+新vg要是赛季初就组起来还有点机会，现在临时组也就图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14745#       发表于 2022-8-18 18:25
+
+有一说一，“这次你们挣第二”图上配的是泰迪
+
+*****
+
+####  遍体精淋af  
+##### 14746#       发表于 2022-8-18 18:26
+
+不过po3竟然没去mgm
+
+*****
+
+####  战狼PTSD  
+##### 14747#       发表于 2022-8-18 18:26
+
+狗头人这新歌神了啊
+
+漏油只要学会给小娜迦幻象编队就可以比肩TI亚军CARRY了，不开玩笑，2022年了还在手点幻象的独此一家
+
+*****
+
+####  walfeds  
+##### 14748#       发表于 2022-8-18 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新歌搞这么厉害干什么，多听两遍
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
