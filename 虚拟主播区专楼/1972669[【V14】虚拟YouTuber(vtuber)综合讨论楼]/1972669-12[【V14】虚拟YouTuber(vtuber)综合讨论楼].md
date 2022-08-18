@@ -5656,3 +5656,16 @@ syl 现在对于之前上过大师的女管人们来说瓦是生活，派是工�
 
 bsyl，axia的事情老师和葵皇都有回应了，不知道受影响比较浅的千草有回应么
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17022#       发表于 2022-8-19 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57125159&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-18 22:27</a>
+dtto上是上了，不过她应该不算套皮管人了吧</blockquote>
+dtto之前说自己不是管人，加入scarz时倒反而官宣是vtuber了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
