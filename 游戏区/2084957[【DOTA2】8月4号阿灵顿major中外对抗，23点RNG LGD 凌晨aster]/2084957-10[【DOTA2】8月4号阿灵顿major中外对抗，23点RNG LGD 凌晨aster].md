@@ -9833,3 +9833,64 @@ ts看了集美视频以为lgd真核a畜于是被宰了
 
 太监论坛经典说法：国外很多选手都是处长的粉丝，处长和约旦鳖一样都是白皮圈子选手的大众偶像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 14541#         楼主| 发表于 2022-8-18 11:03
+
+ 干瘪粉丝还有个造谣，og在国外人人喊打
+
+*****
+
+####  哈曼的YY  
+##### 14542#       发表于 2022-8-18 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114725&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 10:44</a>
+
+提炼一下关键信息
+
+mipo：仓促搬到塞尔维亚时队伍状态很差，后来慢慢适应了，和女朋友异地很不爽；地图太久 ...</blockquote>
+我想起来上次major在假赛a视频下面看到这种狗东西
+
+<img src="https://img.saraba1st.com/forum/202208/18/110438ssut5auca9x9avee.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220818105618.png</strong> (18.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 11:04 上传
+
+*****
+
+####  adretyu67  
+##### 14543#       发表于 2022-8-18 11:04
+
+鬼佬谁关心你那堆中文黑话啊。一眼出口转内销。
+
+*****
+
+####  遍体精淋af  
+##### 14544#       发表于 2022-8-18 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115046&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 11:02</a>
+我早就说过了，白皮根本没有干鳖粉，只有fy somnus faith_bian粉</blockquote>
+明鞭粉还是翅膀遗老粉，当初wings确实在白皮圈子里面粉丝很多
+
+*****
+
+####  六娃  
+##### 14545#       发表于 2022-8-18 11:08
+
+mira：major决赛的g2和g4非常amazing，现场起码有30%的观众都在为我们欢呼
+老东京：30%？100%！
+
+*****
+
+####  六娃  
+##### 14546#       发表于 2022-8-18 11:11
+
+几个vlog看下来，collapse是玩世不恭又带点小孩性格的的那种人
+怪不得前几天有群友发癫说“窝想和collapse卓艾”
+

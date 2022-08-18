@@ -3690,3 +3690,17 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 虽然很下流但是我确实想看
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 1832#       发表于 2022-8-18 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114942&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-18 10:56</a>
+
+在9+手游里写母女丼也只有你菌敢想了，没写成还要废案发出来，真的纯纯乐子人
+
+虽然很下流但是我确实想看 ...</blockquote>
+手游这种垃圾形式，限制了菌皇的发挥！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
