@@ -3524,3 +3524,46 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 旧剑相关的对话提了这次对B6的讨伐是不同于前两次（苍银一次，FP一次）的，估计要出也是承袭FP/苍银内容的新原创了
 
+
+
+*****
+
+####  exiaexa  
+##### 1817#       发表于 2022-8-18 09:46
+
+ 本帖最后由 exiaexa 于 2022-8-18 09:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113632&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-18 09:40</a>
+FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可以认为是暂时不会动画化）
+
+废狗这边还有一个比 ...</blockquote>
+我也觉得最大的问题是中原，太长时间没消息了
+
+不过往好处想，最多就一张爱歌，他俩姐妹被逼急了甚至换森井也不是不行
+
+最惨的就是旧剑可能没有新马甲了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉莉橙  
+##### 1818#       发表于 2022-8-18 09:46
+
+靠换人+C呆宝具加攻也能让四宝哈吉咩一发宝具稳定砍出百万伤害了……再刷个20万顾客数就能满破礼装，就轻松了
+
+*****
+
+####  UNISONIA  
+##### 1819#       发表于 2022-8-18 09:51
+
+ 本帖最后由 UNISONIA 于 2022-8-18 09:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57113243&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2022-8-18 09:14</a>
+
+我今天才看到2.6原案摩根和妖崔那个，话说妖崔三破之前有说为什么吗？这个原案应该就是了吧 ...</blockquote>
+那段是出自这次Syno的第二部分“Plot”，Plot的意思是“大纲、情节布局”，就内容来看是现在执行的剧本的大纲，因为真正执笔时候存在局限性，细节上有取舍和小改动、甚至也有一些失误导致没执行的情况。
+
+真正的原案是第三部分“初期案”，点六的不少测试服流出的内容和这个初期案是对的上的。
+
+顺带这部分大纲依然没解释第三再临那套类似婚纱的衣服是怎么回事，也没解释第三再临的语音。
+

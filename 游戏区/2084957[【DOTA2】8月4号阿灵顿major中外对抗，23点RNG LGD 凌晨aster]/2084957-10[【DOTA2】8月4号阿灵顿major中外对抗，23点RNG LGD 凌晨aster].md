@@ -9471,3 +9471,21 @@ vtu有个A综你去看看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">皮套狗能不能换个地方讨论？说几句还上劲了是吧
 
+
+
+*****
+
+####  一品堂官  
+##### 14499#       发表于 2022-8-18 09:45
+
+咋了，发sc的管人痴不会就在漏油当中吧怎么没完没了
+
+记住，这就是管人痴的下场
+
+*****
+
+####  usoda  
+##### 14500#       发表于 2022-8-18 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 怎么都是看烂了的照片 发点没看过的
+
