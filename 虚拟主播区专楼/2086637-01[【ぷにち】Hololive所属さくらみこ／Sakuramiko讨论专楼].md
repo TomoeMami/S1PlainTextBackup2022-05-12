@@ -3855,3 +3855,28 @@ anya一回家(赌场)就问她要钱!<img src="https://static.saraba1st.com/imag
 
 看自己写的rust初心者指南笑，还放出来给观众看
 
+
+
+*****
+
+####  holoan  
+##### 375#         楼主| 发表于 2022-8-19 01:02
+
+干掉kanata了
+
+*****
+
+####  holoan  
+##### 376#         楼主| 发表于 2022-8-19 01:04
+
+这下kanata送快递了
+
+拿到了把很好的枪
+
+*****
+
+####  rs5621  
+##### 377#       发表于 2022-8-19 01:10
+
+拍了天哥的尸体照片还配文字感想,什么樱村拔刀斋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
