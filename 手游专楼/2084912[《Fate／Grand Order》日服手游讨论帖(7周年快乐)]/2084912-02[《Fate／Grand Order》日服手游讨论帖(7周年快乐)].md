@@ -4223,3 +4223,27 @@ FGO作为一个16+手游，感觉可以再含蓄委婉点，比如翻译成“�
 
 改线也不是改现在这个
 
+
+
+*****
+
+####  yangun22  
+##### 1876#       发表于 2022-8-18 16:33
+
+妖崔根据之前的typemoon ace的6章小册子看基本就是刚被摩根找到时被玩坏已经无法转世再生的状态，1，2破反而应该是摩根修出来的表象，3破才是真正形态，当然游戏里没明说也不能说死。
+
+另外国内观众G点多如对魔忍，有啥不好喷啊，所谓没人喷只是单纯没热度罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 1877#       发表于 2022-8-18 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119878&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-18 16:25</a>
+妖崔三破我感觉挺带感的，但是剧情里没好好描写，只剩下room台词了，感觉有点浪费...
+
+（难不成是魂系人设 ...</blockquote>
+感觉我们都没讨论到一个点上……不过，积怨爆发这点是个可以接受的最近节奏的理由
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
