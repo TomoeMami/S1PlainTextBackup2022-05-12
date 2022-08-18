@@ -1056,3 +1056,17 @@ Air Pro 的 up 评测应该也快了。
 
 越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理智告诉我买个串流用的就差不多了，当成花钱买个不错的手柄
 
+
+
+*****
+
+####  02031f84  
+##### 92#       发表于 2022-8-18 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57122888&amp;ptid=2086469" target="_blank">战狼PTSD 发表于 2022-8-18 19:54</a>
+
+你们记得保养好我的机子
+
+越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理 ...</blockquote>
+ps3模拟器还不太成熟，不过360模拟器在最近的更新后效果已经相当不错了，6800玩忍龙2能60帧了
+
