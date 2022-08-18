@@ -11422,3 +11422,62 @@ bkb+跳+刷新骑着别人脸干太扭曲了
 
 妈个鸡啊，漏油这黑丝凉鞋的头像能不能换了啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  两三流浪者  
+##### 14718#       发表于 2022-8-18 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121070&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-18 17:38</a>
+
+妈个鸡啊，漏油这黑丝凉鞋的头像能不能换了啊</blockquote>
+撸狗你妈什么时候和a畜一起暴毙啊
+
+*****
+
+####  外挂全家脚气  
+##### 14719#       发表于 2022-8-18 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121153&amp;ptid=2084957" target="_blank">两三流浪者 发表于 2022-8-18 17:44</a>
+
+撸狗你妈什么时候和a畜一起暴毙啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 14720#       发表于 2022-8-18 17:48
+
+霉皇找C,神人鬼三界都试过了，鸡哥试试畜界说不定可以一战
+
+*****
+
+####  一品堂官  
+##### 14721#       发表于 2022-8-18 17:48
+
+想学多操英雄，应该从哪个入门比较好德鲁伊兽王狼人？还是幽鬼tb。。
+
+*****
+
+####  六娃  
+##### 14722#       发表于 2022-8-18 17:49
+
+@老鸡奇遇记QAQ：害怕网络不够暴力
+
+*****
+
+####  tengshuo980  
+##### 14723#       发表于 2022-8-18 17:50
+
+剑圣，多操奶棒练练手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  六娃  
+##### 14724#       发表于 2022-8-18 17:51
+
+喊队友开共享，玩他的鸡
+

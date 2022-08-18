@@ -4382,3 +4382,28 @@ galgame小公司因为体量小，所以只能靠点子出奇制胜去跟大公�
 
 才发现bgo今天正好开妖崔摩根池子，太应景辣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 1890#       发表于 2022-8-18 17:45
+
+c呆性格我觉的比现在的本体呆可爱
+
+
+
+*****
+
+####  白金口袋  
+##### 1891#       发表于 2022-8-18 17:47
+
+只要2.7实装一切都会好起来.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 1892#       发表于 2022-8-18 17:47
+
+还有c呆原案有段我还挺喜欢，可惜c呆处理总体还是糙了点，多点时间打磨就好了
+

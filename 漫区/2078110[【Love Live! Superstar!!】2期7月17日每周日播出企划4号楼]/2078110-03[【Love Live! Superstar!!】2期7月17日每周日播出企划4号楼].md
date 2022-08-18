@@ -140,3 +140,56 @@ nagi回归
 —— 来自 S1Fun</blockquote>
 第五集已经变成这样了，下一集要是不行，是没人讨论呢，还是会继续吵啊
 
+
+
+*****
+
+####  Kfly  
+##### 3014#       发表于 2022-8-18 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121000&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 17:34</a>
+第五集已经变成这样了，下一集要是不行，是没人讨论呢，还是会继续吵啊 ...</blockquote>
+肯定会继续讨论啊
+星二又不是平平凡凡地烂（能这样都谢天谢地了），而是有爆点的烂，，哪怕是稍微好些的集数也是如此，非要留点隔应人的东西
+这种情况下，总会有人讨论的
+
+*****
+
+####  ads147147  
+##### 3015#       发表于 2022-8-18 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119205&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 15:45</a>
+看了下盛大缪水打折后的周边，感觉好便宜，整了点。虽然听群友说是卖剩的草，但对比星的那个毛巾跳绳确实笑 ...</blockquote>
+跳绳毛巾什么的，属于价格锚定品，本来就没打算卖多少，只是让你觉得与其掏5k买个没软用的跳绳不如去买bd抽卷之类的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 3016#       发表于 2022-8-18 17:49
+
+国内煽的风点的火最猛的地方跟本集的大纲有啥关系，现在是第一波波峰，后面还有一波呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3017#       发表于 2022-8-18 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121000&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-18 17:34</a>
+第五集已经变成这样了，下一集要是不行，是没人讨论呢，还是会继续吵啊 ...</blockquote>
+看生肉的时候我还觉得这集也就那样了，不至于吵起来。结果可可一句话直接点燃炸药桶，现在星这边就是即将崩溃的河堤，动画甚至还是干的只堵不疏的活，疯狂在老粉丝雷电跳舞，甚至还看不出是不是故意的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  普之舜舜  
+##### 3018#       发表于 2022-8-18 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57121218&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-18 17:49</a>
+国内煽的风点的火最猛的地方跟本集的大纲有啥关系，现在是第一波波峰，后面还有一波呢 ...</blockquote>
+希望后面可可回不要摆烂实在不行的话直接喝茶就好
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
