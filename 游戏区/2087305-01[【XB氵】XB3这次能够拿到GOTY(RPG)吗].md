@@ -1532,3 +1532,14 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  harmonytree  
+##### 153#       发表于 2022-8-18 09:15
+
+破晓传奇都能拿的奖，XB3凭什么不能拿？<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+正义之怒提名都没有的奖，XB3凭什么能拿？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
