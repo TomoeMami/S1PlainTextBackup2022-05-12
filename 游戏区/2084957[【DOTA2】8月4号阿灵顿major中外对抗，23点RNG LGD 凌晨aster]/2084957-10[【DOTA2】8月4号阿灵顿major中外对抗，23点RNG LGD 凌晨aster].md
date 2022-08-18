@@ -10673,3 +10673,12 @@ https://www.zhihu.com/question/547134212</blockquote>
 
 当年那批稚嫩（菜逼）的东欧人和西欧人接过了Navi和Alliance的抗西恩大旗，却惊讶地发现曾经强大不可战胜的邪恶红色帝国已经沦为了小丑马戏团
 
+
+
+*****
+
+####  usoda  
+##### 14636#       发表于 2022-8-18 15:12
+
+赛垃圾成天挂嘴边的一句话就是navi天下第一 毕竟三进决赛balabala，听都听烦了。 希望雪碧也能三进堵住眼子的嘴<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

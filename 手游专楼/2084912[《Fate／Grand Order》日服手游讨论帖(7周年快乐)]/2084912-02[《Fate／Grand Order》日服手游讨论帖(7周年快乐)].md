@@ -4076,3 +4076,15 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
  上一个炎上过的作品是Fate/Extra Last Encore，唯二发行过原案集的，风评在原案集之后也没大规模反转 ...</blockquote>
 Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
 
+
+
+*****
+
+####  UNISONIA  
+##### 1863#       发表于 2022-8-18 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57118065&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-18 14:32</a>
+
+妖崔的问题感觉是三破根本没设定好，毕竟一张卡的三个灵基也是其人设的一部分，塑造得合情合理也是一种残 ...</blockquote>
+现在菌的问题是写个曲世爱都写不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
