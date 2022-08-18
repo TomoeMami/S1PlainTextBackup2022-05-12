@@ -4088,3 +4088,16 @@ Shaft的烂制作使得无人关注该作，也不会留意最初的样子了
 妖崔的问题感觉是三破根本没设定好，毕竟一张卡的三个灵基也是其人设的一部分，塑造得合情合理也是一种残 ...</blockquote>
 现在菌的问题是写个曲世爱都写不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 1864#       发表于 2022-8-18 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57118065&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-18 14:32</a>
+妖崔的问题感觉是三破根本没设定好，毕竟一张卡的三个灵基也是其人设的一部分，塑造得合情合理也是一种残 ...</blockquote>
+妖崔那个3破怎么都说不上正常吧，难道因为剧情里没说就当成废案，然后就当成不存在了？摩根酱都多久之前的事了啊……不不不，我不是想探讨什么剧情合理性蘑菇恶趣味之类的，我就是好奇怎么好像早就有的剧情，这大纲出来后突然就一堆人破防了，还说着什么“母女井”“无法吃母女糖了”让人搞不懂的话，看这个我还以为是母女都被屑贝日了，或者是摩根把妖崔送给妖精虐的，让我怀疑我是不是有什么好康的我没看到
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10682,3 +10682,38 @@ https://www.zhihu.com/question/547134212</blockquote>
 
 赛垃圾成天挂嘴边的一句话就是navi天下第一 毕竟三进决赛balabala，听都听烦了。 希望雪碧也能三进堵住眼子的嘴<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 14637#       发表于 2022-8-18 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57118717&amp;ptid=2084957" target="_blank">usoda 发表于 2022-8-18 15:12</a>
+
+赛垃圾成天挂嘴边的一句话就是navi天下第一 毕竟三进决赛balabala，听都听烦了。 希望雪碧也能三进堵住眼子 ...</blockquote>
+除了陈智豪没人能治得了眼子的嘴
+
+*****
+
+####  修罗王  
+##### 14638#       发表于 2022-8-18 15:24
+
+西欧这两年被小丑马戏团吊着打，每家队里供着几个毛爹，还是别碰瓷东欧了
+
+*****
+
+####  bluebaby  
+##### 14639#       发表于 2022-8-18 15:29
+
+navi真的挺强的，虽然ti1我不认，但其实ti3的真不比a队差。那年kky还能出拉比克的饰品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 14640#       发表于 2022-8-18 15:30
+
+嘻嘻昨天第一假赛论坛好几个ruru帖子，今天全不见了
+
+哪天西恩刀塔噶了，第一假赛论坛这几个管理得弄去陪着ruru一起吊路灯。
+
