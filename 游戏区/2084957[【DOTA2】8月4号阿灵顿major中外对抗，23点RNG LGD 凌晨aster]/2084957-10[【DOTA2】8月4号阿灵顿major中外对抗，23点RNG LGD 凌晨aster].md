@@ -10488,3 +10488,53 @@ dodo不夹的声音更好听，希望大家都来看dodo<img src="https://static
 结果就因为真视范围小于绝大部分技能的施法距离和远程攻击距离，插一地真眼反不到假眼，靠眼钓鱼，很多队不适应不习惯，有再华丽的操作、再优秀的意识和反应速度也白搭</blockquote>
 别搞有的没的了，直接要求四个盾寄杭州去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 14617#       发表于 2022-8-18 13:30
+
+隔壁主播的长处在于流行语的制造，很多词我都不知道发源于那个游戏的主播
+
+*****
+
+####  Sabbah  
+##### 14618#       发表于 2022-8-18 13:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杜文乐心心念念顶级儿子拉着他入队，万一顶级儿子和司马库冲突转披萨替补转lft那杜文乐怎么办。
+
+*****
+
+####  seki_m  
+##### 14619#       发表于 2022-8-18 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116483&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-18 12:34</a>
+回国随机抽兵役还行，什么在外难民</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">yuragi和misha会不会战场见啊
+
+*****
+
+####  seki_m  
+##### 14620#       发表于 2022-8-18 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57116568&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-18 12:40</a>
+皮球除了年龄大了点，在一线队当5，和一众世界级选手对抗不管文斗武斗都不落下风，堪称宝藏5号位。
+
+ ...</blockquote>
+do子缩壳在舰长群秀了两天美甲就自动退潮了
+
+*****
+
+####  Kazepollar  
+##### 14621#       发表于 2022-8-18 13:35
+
+纯粹是隔壁人多所以喜欢到处刷梗，自然造梗要强呗。
+
+*****
+
+####  修罗王  
+##### 14622#       发表于 2022-8-18 13:36
+
+kuku和raven靠ti6把奇迹鳖打的烂中爆烂，奠定了自己在东南亚五六年的江湖地位
+

@@ -2994,3 +2994,19 @@ Miko Ch. さくらみこ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点摔死
 
+
+
+*****
+
+####  rs5621  
+##### 282#       发表于 2022-8-18 13:36
+
+真的有钻石，观众这都能看见
+
+*****
+
+####  holoan  
+##### 283#         楼主| 发表于 2022-8-18 13:37
+
+一个怪都没有反而像bug
+

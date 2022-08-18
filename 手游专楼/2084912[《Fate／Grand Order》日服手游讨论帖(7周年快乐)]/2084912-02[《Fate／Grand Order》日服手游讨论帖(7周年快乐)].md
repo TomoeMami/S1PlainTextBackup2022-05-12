@@ -3950,3 +3950,33 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 （蘑菇：抗议！马修明明是白送的！给白松狮用用不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1851#       发表于 2022-8-18 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57117091&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-18 13:19</a>
+
+昨前天不是还有个人在泥潭手游区开了个2.6暴论贴嘛
+
+说2.6映射日本现状，我就说你也太看得起阿菌的政治觉 ...</blockquote>
+艹，刚看到，笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+中国角神说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 1852#       发表于 2022-8-18 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉蘑菇就适合写都市传奇类型的，稍微大点题材都是一泡污。女性人物都是设定驱动，刚入宅那会儿还能被唬住，后来就变成看你还能怎么玩了
+
+*****
+
+####  UNISONIA  
+##### 1853#       发表于 2022-8-18 13:39
+
+上一个炎上过的作品是Fate/Extra Last Encore，唯二发行过原案集的，风评在原案集之后也没大规模反转
+
