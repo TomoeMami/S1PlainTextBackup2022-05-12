@@ -98,3 +98,12 @@ nagi回归
 
 说起来真的怕了这动画了，就目前来看，只要动画没播出，角色就不会崩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 3010#       发表于 2022-8-18 17:08
+
+鬼故事，这才第五集，还有七集捏
+
