@@ -15678,3 +15678,12 @@ FC的看板娘，鲤酱的周边也登场啦！
 
 本来五人已经把恋献祭出去了，结果剩下四人也没写好，现在还要加四人，设定还这么重量级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GGnob  
+##### 2995#       发表于 2022-8-18 08:18
+
+好想看香音是多重人格啊，主人格是遇到困难就红温的大香老师，拉人时自动切成嘴炮立德人格，还有签卖身契想看裂拉裂开的里人格乐子人香音<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -9062,3 +9062,26 @@ nga从全员鳖孙到一口一个鳖也没几天
 
 <img src="https://p.sda1.dev/6/0db4d22879368a26e86690b51121d1e9/-6180f79555f00dcd.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  何然  
+##### 14453#       发表于 2022-8-18 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112234&amp;ptid=2084957" target="_blank">wuwo2 发表于 2022-8-18 06:36</a>
+
+虽然lgd输了吧，但有的黑人黑的，说AME是世界第一傻逼carry的，我感觉是不是有点把其他cncarry黑得更狠啊。 ...</blockquote>
+很难不赞同
+
+我觉得CDEC的一闪才是世界第一傻逼carry
+
+*****
+
+####  白色的120  
+##### 14454#       发表于 2022-8-18 08:17
+
+滚球兽跟ame谈了好多年了，好像cdec时期就在谈了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
