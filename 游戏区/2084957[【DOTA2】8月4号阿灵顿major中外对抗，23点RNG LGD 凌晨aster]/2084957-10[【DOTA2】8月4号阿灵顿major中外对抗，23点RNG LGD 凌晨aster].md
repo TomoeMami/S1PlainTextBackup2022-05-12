@@ -11957,3 +11957,15 @@ B站有个主播，他的说法是5000以下德鲁伊中单或大哥，到6000�
 
 练多操的话感觉还真是娜迦最合适，或者小鹿其实也挺好的吧，多单位放技能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坚定的团子党  
+##### 14779#       发表于 2022-8-18 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57123058&amp;ptid=2084957" target="_blank">千千千千鸟 发表于 2022-08-18 20:06:19</a>
+明天真出本子吗</blockquote>出本子前一天v社会有预告，所以明天肯定不会出
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
