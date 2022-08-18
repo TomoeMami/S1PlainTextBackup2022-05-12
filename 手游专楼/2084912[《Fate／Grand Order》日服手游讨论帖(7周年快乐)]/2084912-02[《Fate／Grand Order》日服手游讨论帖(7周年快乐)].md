@@ -4020,3 +4020,19 @@ ARC三破那句都有翻成侵犯的呢，只能说发散过头了<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于紫发女路人们的问题，在我看了少女革命后感觉都是琐事，蘑菇这辈子也掏不出安希那样的角色
 
+
+
+*****
+
+####  UNISONIA  
+##### 1858#       发表于 2022-8-18 13:55
+
+先别说安茜了，菌皇以前灵光一闪写出来过琥珀这个级别的，现在不仅之后再也没写出来过这个水平的，甚至月姬R的里线已经是注定要改的面目全非了
+
+*****
+
+####  天王寺凯伊姆  
+##### 1859#       发表于 2022-8-18 14:00
+
+说着说着玛修变凌香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
