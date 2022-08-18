@@ -10055,3 +10055,55 @@ collapse酬勤一点啊，去年Ti到现在就打了两百多把天梯，打个m
 
 管人痴收收味
 
+
+
+*****
+
+####  12481632  
+##### 14567#       发表于 2022-8-18 11:34
+
+美国贴吧恶臭味比中国贴吧还冲
+
+*****
+
+####  walfeds  
+##### 14568#       发表于 2022-8-18 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115483&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-18 11:30</a>
+
+collapse酬勤一点啊，去年Ti到现在就打了两百多把天梯，打个major英雄池全靠现场练，我真的服了 ...</blockquote>
+崩溃神经常开小号打的，可以看dota2protracker
+
+*****
+
+####  六娃  
+##### 14569#       发表于 2022-8-18 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115554&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-18 11:35</a>
+
+崩溃神经常开小号打的，可以看dota2protracker</blockquote>
+我就是三个号一起看的，正儿八经的天梯就是只有两百多把
+
+他的天梯规律就是一个月抽出三四天集中打三四十把
+
+*****
+
+####  nowaki  
+##### 14570#       发表于 2022-8-18 11:36
+
+崩溃没拿冠军前有不少毛子喷他正面斧王反面马尔斯
+
+*****
+
+####  遍体精淋af  
+##### 14571#       发表于 2022-8-18 11:37
+
+毛子现在更支持ts还是vp
+
+*****
+
+####  六娃  
+##### 14572#       发表于 2022-8-18 11:38
+
+Collapse之前还吹他跟33哥学了一手兽王，我决赛看了大失所望，完全没get到33哥的精髓，进步不大，但作为常规英雄池宰处长够了
+

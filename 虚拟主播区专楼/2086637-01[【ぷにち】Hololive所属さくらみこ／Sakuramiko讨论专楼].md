@@ -2884,3 +2884,24 @@ Miko Ch. さくらみこ
 
 这声音有点哑。。熬夜打游戏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 272#       发表于 2022-8-18 11:35
+
+2点睡还行，比平时早
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 273#         楼主| 发表于 2022-8-18 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57115414&amp;ptid=2086637" target="_blank">zblack 发表于 2022-8-18 11:26</a>
+
+这声音有点哑。。熬夜打游戏了吧</blockquote>
+以前刚睡起来就这声音了
+
