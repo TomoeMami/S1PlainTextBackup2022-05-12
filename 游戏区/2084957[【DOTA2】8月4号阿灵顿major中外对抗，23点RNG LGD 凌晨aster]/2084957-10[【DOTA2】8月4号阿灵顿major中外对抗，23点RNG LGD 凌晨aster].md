@@ -9137,3 +9137,26 @@ nga从全员鳖孙到一口一个鳖也没几天
 有一说一，处长整的活确实一年不如一年，整活效果：水人波&gt;小狗上高&gt;&gt;小小被换血&gt;&gt;混沌瞎逼敲人 ...</blockquote>
 别急，这才到哪啊，今年的整的大活还在后面。
 
+
+
+*****
+
+####  朝奈  
+##### 14461#       发表于 2022-8-18 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112741&amp;ptid=2084957" target="_blank">白野苍衣 发表于 2022-8-18 08:31</a>
+
+别急，这才到哪啊，今年的整的大活还在后面。</blockquote>
+激动的搓手手
+
+*****
+
+####  syndrome2032  
+##### 14462#       发表于 2022-8-18 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57112695&amp;ptid=2084957" target="_blank">坚定的团子党 发表于 2022-8-18 08:25</a>
+有一说一，处长整的活确实一年不如一年，整活效果：水人波&gt;小狗上高&gt;&gt;小小被换血&gt;&gt;混沌瞎逼敲人 ...</blockquote>
+从最佳第六人到躺赢，自然就没机会整活了。
+
+等23458松懈一下回到萧瑟一次也不能死难度就可以看戏了
+
