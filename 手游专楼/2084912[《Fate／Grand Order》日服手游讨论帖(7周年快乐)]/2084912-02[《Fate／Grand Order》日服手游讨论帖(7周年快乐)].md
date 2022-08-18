@@ -4361,3 +4361,15 @@ galgame小公司因为体量小，所以只能靠点子出奇制胜去跟大公�
 
 确实很牵强，用这个说法多少有点带节奏
 
+
+
+*****
+
+####  kiralzb  
+##### 1888#       发表于 2022-8-18 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57120691&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-18 17:13</a>
+邮局港剧
+2.6你让我平心而论写得怎么样，我觉得是有瑕疵，但是可以接受的范畴。阿菌在做角色上还是可以的 ...</blockquote>
+说到皮套角色我就不得不说，妖兰那种只叠名字的到没啥，C呆这种皮也一样的设定导致我经常出戏，呆毛本身的印象实在太深<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

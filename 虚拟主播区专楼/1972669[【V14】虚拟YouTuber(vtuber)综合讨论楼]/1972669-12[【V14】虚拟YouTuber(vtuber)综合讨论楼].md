@@ -5602,3 +5602,41 @@ axia大概就想要像传统游戏主播那样的，打得好说流弊打不好�
 apex改排位之后jp女管人只有勇气千寻上大师？
 这赛季诸王赛季现在已经大师了。
 
+
+
+*****
+
+####  stmule  
+##### 17017#       发表于 2022-8-18 17:22
+
+<img src="https://pic.jitudisk.com/public/2022/08/18/76847a8bbd93a.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/18/172207w6sq8u6fqphjxuux.jpg" referrerpolicy="no-referrer">
+
+<strong>20220818_164847.jpg</strong> (576.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 17:22 上传
+
+世代交替.jpg
+
+*****
+
+####  FCCHua  
+##### 17018#       发表于 2022-8-18 17:24
+
+ 本帖最后由 FCCHua 于 2022-8-18 17:28 编辑 
+
+上大师的还有马自立<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+syl 现在对于之前上过大师的女管人们来说瓦是生活，派是工作，后者努力打的真不多了
+
+*****
+
+####  poipanchao  
+##### 17019#       发表于 2022-8-18 17:25
+
+马大师在哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+我记得yqqx是下半赛季上的，马大师是上半赛季？
+含金量秒了
+
