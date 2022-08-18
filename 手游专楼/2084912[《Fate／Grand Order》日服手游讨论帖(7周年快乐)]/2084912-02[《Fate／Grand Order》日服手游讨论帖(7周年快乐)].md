@@ -4247,3 +4247,33 @@ FGO作为一个16+手游，感觉可以再含蓄委婉点，比如翻译成“�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 1878#       发表于 2022-8-18 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57119250&amp;ptid=2084912" target="_blank">sosgame67 发表于 2022-8-18 15:48</a>
+
+隔壁刚刚又爆破了一栋声讨玛修大楼，有异议全部掐死就岁月安好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我菌皇写出来的东西你也敢说不好？ 不要命啦？
+
+*****
+
+####  angelooo  
+##### 1879#       发表于 2022-8-18 16:45
+
+<blockquote>kiralzb 发表于 2022-8-18 13:27
+论整活还是得蘑菇，2.6让人破防然后说原案肯定好，结果</blockquote>
+这不就是巨人最终卷单行本展开，谏人的加笔一定能力挽狂澜.jpg
+
+*****
+
+####  angelooo  
+##### 1880#       发表于 2022-8-18 16:51
+
+<blockquote>poor 发表于 2022-8-18 15:29
+妖崔那个3破怎么都说不上正常吧，难道因为剧情里没说就当成废案，然后就当成不存在了？摩根酱都多久之前 ...</blockquote>
+母女那啥是真正的发散性思维，我看了下原来设定也差不多是摩根酱了，妖崔也酱了（实际剧情里妖崔被拉过来当人质的时候就已经只剩一口气了，后面酱不酱都无所谓了），然后有个词的用法他们在争论她有没有被轮，结果有些人发散性思维脑补摩根也被轮了，虽然扯是扯了点，但蘑菇你看看你233333
+
