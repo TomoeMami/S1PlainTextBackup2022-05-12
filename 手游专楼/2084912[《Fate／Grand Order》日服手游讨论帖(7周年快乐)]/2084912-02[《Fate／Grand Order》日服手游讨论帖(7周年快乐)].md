@@ -4571,3 +4571,12 @@ appmedia又弄了个投票，三位女武神的选择情况。黑发的奥特琳
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三个相差不大，说明各有所爱各有千秋嘛，剩下的问题就是这沙雕运营不干人事
 
+
+
+*****
+
+####  kisskick  
+##### 1907#       发表于 2022-8-18 23:59
+
+老三被压百分之十，也不少
+
