@@ -3613,3 +3613,21 @@ FP/苍银现在的消息是不会动画化（主要是讨论苍银，当然可�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑北斋好强啊，阿叶什么时候把以前的活动都丢到金方块商店啊
 
+
+
+*****
+
+####  kisskick  
+##### 1824#       发表于 2022-8-18 10:35
+
+三破可能是3.0时代留下来的东西，现在这俩我怀疑都是蘑菇看图说话产物
+
+*****
+
+####  保罗赫伯特  
+##### 1825#       发表于 2022-8-18 10:41
+
+2.6废案是有点狂野，也不知道是蘑菇自己后来觉得过火了，还是游戏制作组按着他做了修改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想要女主站到主角团对立面，甚至离队，蘑菇对马修的角色理解还真是和大多玩家不同<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

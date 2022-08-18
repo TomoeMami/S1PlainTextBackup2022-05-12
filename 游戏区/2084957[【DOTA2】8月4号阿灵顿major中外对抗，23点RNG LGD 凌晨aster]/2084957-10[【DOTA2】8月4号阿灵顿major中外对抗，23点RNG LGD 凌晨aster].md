@@ -9618,3 +9618,68 @@ vtu有个A综你去看看
 
 要不是下面字幕我以为在舔盾
 
+
+
+*****
+
+####  IG.430  
+##### 14516#       发表于 2022-8-18 10:35
+
+该滴血认主了
+
+*****
+
+####  usoda  
+##### 14517#       发表于 2022-8-18 10:35
+
+舔盾+1
+
+*****
+
+####  反方向的波  
+##### 14518#       发表于 2022-8-18 10:37
+
+#丫头肉寡头  #老东京猥琐
+
+*****
+
+####  六道仙鱼  
+##### 14519#       发表于 2022-8-18 10:38
+
+管人痴真的不装了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">要是建议三个月内有管人区发言记录的楼友不得入内。本楼kpi是不是直接少了一大半
+
+*****
+
+####  六娃  
+##### 14520#       发表于 2022-8-18 10:39
+
+[https://youtu.be/wl-WKYxOoIk](https://youtu.be/wl-WKYxOoIk)阿灵顿夺冠采访，上油管的TS战队频道看就是了
+
+
+
+*****
+
+####  ArowRocher  
+##### 14521#       发表于 2022-8-18 10:41
+
+蒙古人杀一两脚羊一盘还不轻松
+
+*****
+
+####  反方向的波  
+##### 14522#       发表于 2022-8-18 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114592&amp;ptid=2084957" target="_blank">六道仙鱼 发表于 2022-8-18 10:38</a>
+管人痴真的不装了要是建议三个月内有管人区发言记录的楼友不得入内。本楼kpi是不是直接少了一大半 ...</blockquote>
+连楼主都进不来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道仙鱼  
+##### 14523#       发表于 2022-8-18 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57114680&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-18 10:42</a>
+
+连楼主都进不来了</blockquote>
+壳以，窝的<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
