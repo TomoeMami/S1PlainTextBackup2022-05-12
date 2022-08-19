@@ -13032,3 +13032,13 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 
 连续三年了都喊再买本子我是狗，连续买了三年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  难怪大神都走了  
+##### 14894#       发表于 2022-8-19 16:26
+
+【【初音ミク】硬实力硬实力——PSG.LGD ti11应援-哔哩哔哩】 [https://b23.tv/bcjCP63](https://b23.tv/bcjCP63)
+油菜花油菜花
+
