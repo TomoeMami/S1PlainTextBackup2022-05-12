@@ -12457,3 +12457,16 @@ https://bbs.sgamer.com/thread-14172261-1-1.html
 (出处: 超级玩家官方论坛)</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">写得好啊
 
+
+
+*****
+
+####  tasuku  
+##### 14832#       发表于 2022-8-19 10:06
+
+徒手用萝卜雕寿星的刀工，抡着一米多的擀面杖的大面案，
+
+拌凉菜只用自家秘制酱料的冷盘，还有像我父亲一样做了一辈子菜的大灶
+
+这俩说的是谁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
