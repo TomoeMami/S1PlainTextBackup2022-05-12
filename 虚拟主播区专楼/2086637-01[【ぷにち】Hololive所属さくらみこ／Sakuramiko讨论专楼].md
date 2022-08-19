@@ -4110,3 +4110,32 @@ vc音质太差听不出来
 
 上次有这么高数字的箱游直播要追溯到……好像除了运动会就没有这个规模的数字了
 
+
+
+*****
+
+####  rs5621  
+##### 401#       发表于 2022-8-19 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨晚那场直播有意思的地方还蛮多的。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 402#         楼主| 发表于 2022-8-19 10:46
+
+后段的切片到现在没几个，全部集中在前面被拆家的
+
+剪辑师后半以为没活都去睡觉了怕是
+
+*****
+
+####  a2276382  
+##### 403#       发表于 2022-8-19 10:49
+
+所以说 不到下播最后一刻 都不要走 说不定下播后还有活找上<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
