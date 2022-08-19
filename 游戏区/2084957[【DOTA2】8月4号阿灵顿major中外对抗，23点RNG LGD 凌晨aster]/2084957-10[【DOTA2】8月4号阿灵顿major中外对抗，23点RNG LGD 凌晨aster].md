@@ -12333,3 +12333,12 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 哈哈，你楼真是魔幻，在游戏区dota2专楼骂a畜没人举报,攻击一下皮套坦克就戳中孝子的g点了，梓畜粉怎么比集 ...</blockquote>
 你喷撸狗的时候带父母了，被撸狗举报了
 
+
+
+*****
+
+####  Kazepollar  
+##### 14820#       发表于 2022-8-19 08:35
+
+死了吗了v➗，一点更新消息都没啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
