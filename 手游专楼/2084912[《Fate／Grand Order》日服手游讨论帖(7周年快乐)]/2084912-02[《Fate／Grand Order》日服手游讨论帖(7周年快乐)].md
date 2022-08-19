@@ -4859,3 +4859,14 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 10吨啊这玩意</blockquote>
 人类觉悟的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1930#       发表于 2022-8-19 22:09
+
+罗亚一眼就看穿了亚从者的本质
+
+老所长搞得这个实验不简单啊
+

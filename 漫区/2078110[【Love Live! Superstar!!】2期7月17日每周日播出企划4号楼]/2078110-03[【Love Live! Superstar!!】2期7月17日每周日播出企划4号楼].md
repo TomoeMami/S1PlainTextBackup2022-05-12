@@ -358,3 +358,19 @@ nagi回归
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 3033#       发表于 2022-8-19 22:09
+
+今天鲤鱼广播聊的挺开心的啊
+
+*****
+
+####  starring  
+##### 3034#       发表于 2022-8-19 22:09
+
+绷不住，星无佬才是星动画的救世主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
