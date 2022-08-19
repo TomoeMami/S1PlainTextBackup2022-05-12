@@ -4881,3 +4881,17 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 在主线里乱入肯定是不可能的事情.....整个月姬联动活动目前看来也没啥可能啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1932#       发表于 2022-8-19 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140432&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-19 22:59</a>
+
+忽然想到公主就这么天降落地...连个剧情也没有么
+
+在主线里乱入肯定是不可能的事情.....整个月姬联 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">C呆落地时候不也没剧情
+

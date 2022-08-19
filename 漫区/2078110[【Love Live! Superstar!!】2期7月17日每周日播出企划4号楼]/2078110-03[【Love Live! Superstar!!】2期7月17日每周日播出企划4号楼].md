@@ -422,3 +422,15 @@ nagi回归
 星团第二季我到现在都没看，连二创都不想点进去，恶心死我了。请问如何进行心理建设以让我可以重新开始看。 ...</blockquote>
 建议还没看就暂时先别看，虽说不同人观看时着眼点不同，得到的观感也不一样，但是现在争议四起，这动画肯定是存在不少问题的，如果想瞅一瞅，不妨等这一季动画完结了，好有个数再看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 3039#       发表于 2022-8-19 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140170&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-19 22:45</a>
+
+建议还没看就暂时先别看，虽说不同人观看时着眼点不同，得到的观感也不一样，但是现在争议四起，这动画肯 ...</blockquote>
+我现在十分想看《水团偶像异界纵横》
+
