@@ -12982,3 +12982,19 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游页游的限定池也没说不复刻啊，Volvo的绝版那就是真没了
 
+
+
+*****
+
+####  subject07  
+##### 14888#       发表于 2022-8-19 15:51
+
+现在的自走棋是不是都凉了？
+
+*****
+
+####  12481632  
+##### 14889#       发表于 2022-8-19 15:52
+
+关键是懒狗V🐍绝版的东西搞了一堆不可交易的，这是真的恶心，你哪怕能去市场买也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
