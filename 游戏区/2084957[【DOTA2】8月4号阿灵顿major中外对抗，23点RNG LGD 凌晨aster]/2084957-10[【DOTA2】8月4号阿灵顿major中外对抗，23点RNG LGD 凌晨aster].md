@@ -12342,3 +12342,22 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 死了吗了v➗，一点更新消息都没啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  blackrubber  
+##### 14821#       发表于 2022-8-19 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57127882&amp;ptid=2084957" target="_blank">沈淮 发表于 2022-8-19 08:27</a>
+你喷撸狗的时候带父母了，被撸狗举报了</blockquote>
+无所谓了，510也全是撸狗
+看到这些畜生就恶心，我还是回傻狗论坛了
+
+*****
+
+####  tasuku  
+##### 14822#       发表于 2022-8-19 08:51
+
+直球输出太高了是容易被ban啊
+
