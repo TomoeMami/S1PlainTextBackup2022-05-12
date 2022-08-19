@@ -12961,3 +12961,15 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 
 去年V社好TM狗比，往年一个本子的货拆两个本子卖，又不用往池子里分钱，还拿之前的身心返场凑数，资本家嘴脸一览无遗
 
+
+
+*****
+
+####  walfeds  
+##### 14886#       发表于 2022-8-19 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57133125&amp;ptid=2084957" target="_blank">格雷殿下 发表于 2022-8-19 14:47</a>
+
+说起绝版商法，最近玩的一个dmm的，期期限定😭，还发现好像没井才是常态，我不玩了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">手游页游最不缺的就是限定池了，狗头人玩nm
+
