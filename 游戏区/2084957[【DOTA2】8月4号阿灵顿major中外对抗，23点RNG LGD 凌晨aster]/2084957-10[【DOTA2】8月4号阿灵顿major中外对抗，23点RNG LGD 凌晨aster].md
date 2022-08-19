@@ -13434,3 +13434,26 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172431</blockquote>
 
 这集美是不是船胖假扮的呀，阿格雷鲷是最垃圾的c都来了😄
 
+
+
+*****
+
+####  哈曼的YY  
+##### 14937#       发表于 2022-8-19 19:53
+
+五号位鸡鳖保一号位鸡鳖哪边会先开火？
+
+*****
+
+####  六娃  
+##### 14938#       发表于 2022-8-19 19:54
+
+刚刚就学到一手鸡哥的被动电魂打虚空，虽然这把是无了
+
+*****
+
+####  IG.430  
+##### 14939#       发表于 2022-8-19 20:00
+
+zhou确实不比ame差<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
