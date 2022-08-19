@@ -5825,3 +5825,14 @@ uiさん想要坚持每月会限，实质复活？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17035#       发表于 2022-8-20 00:07
+
+バズリズム02开始了，列了三大箱居然是774 holo 彩虹这个顺序草。
+
+为什么葛叶的king用的是bilibili的画面啊喂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
