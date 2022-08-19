@@ -12413,3 +12413,24 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 大哥你对成份的判断有误哦</blockquote>
 你都在帆船了，就当你帆船成功骗倒我了呗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tasuku  
+##### 14828#       发表于 2022-8-19 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算了还是换个头像，之前一直没刷出来，今天看了一个小时把自己都恶心到了
+
+*****
+
+####  哈曼的YY  
+##### 14829#       发表于 2022-8-19 09:41
+
+父亲
+[https://bbs.sgamer.com/thread-14172261-1-1.html](https://bbs.sgamer.com/thread-14172261-1-1.html)
+
+(出处: 超级玩家官方论坛)
+
+大神都回来了
+
