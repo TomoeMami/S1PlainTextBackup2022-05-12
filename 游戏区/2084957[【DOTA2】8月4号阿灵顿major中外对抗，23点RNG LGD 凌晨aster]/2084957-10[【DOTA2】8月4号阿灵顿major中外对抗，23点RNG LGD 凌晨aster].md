@@ -12389,3 +12389,15 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 贷在ti前为什么感觉远不如最伟大的亚军和祸源甲，是因为顺风输出没内味儿吗
 
+
+
+*****
+
+####  tasuku  
+##### 14826#       发表于 2022-8-19 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57128237&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-19 08:58</a>
+
+楼上的皮套孝子顶着这个头像感觉真是在跟楼友们相互恶心啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">大哥你对成份的判断有误哦
+
