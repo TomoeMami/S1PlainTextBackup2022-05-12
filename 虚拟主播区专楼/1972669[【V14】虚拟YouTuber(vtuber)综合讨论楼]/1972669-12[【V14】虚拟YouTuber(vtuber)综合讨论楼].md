@@ -5739,3 +5739,56 @@ QQ图片20220819170518.jpg
 
 <img src="https://img.saraba1st.com/forum/202208/19/170726paurrner9re4a9rv.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Porsche  
+##### 17029#       发表于 2022-8-19 21:22
+
+ 本帖最后由 Porsche 于 2022-8-19 21:29 编辑 
+
+ui的お知らせ揭晓
+
+结果是。。。
+
+开了会员<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/19/212937ejlqlyk7ffwuwa6f.png" referrerpolicy="no-referrer">
+
+<strong>222856.png</strong> (132.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 21:29 上传
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17030#       发表于 2022-8-19 21:22
+
+ 本帖最后由 rzrbtk 于 2022-8-19 21:25 编辑 
+
+一周没有VTA，感觉精神上枯竭了，
+
+虽说没有谁的直播是特别有趣的那种，但是12班那种团体感像在看选秀，在选秀节目全被禁的今天尤为珍贵....
+
+首先互动上就很足，目前比较还行的佐伯宇佐美有一种京阿尼南通滤镜下的咎人味，个人方面，感觉这么说不太好但是，当初觉得日下部很好就是因为她笑起来的方式很像某个我很喜欢的匿名音声声优（声音除了低音完全不像），
+
+结果上周忍笑直播嗯嗯啊啊的呼气就更...了，感觉听着真的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，如果都能出道就好惹...
+
+顺便一说我郡麻将三连TOP了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，时来运转！！
+
+*****
+
+####  fastary  
+##### 17031#       发表于 2022-8-19 21:23
+
+之前一直是看的文字repo，首页推荐出现原视频就打开听了下axia的原话，比我想象的还要不耐烦的感觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+本来我是觉得他这样说看似很刚但实际上更多的是吸引一堆单纯不爽噶吃的路人和提纯无自觉的全肯定，用休止来对抗厄介粉并不是很明智的决策
+
+看原视频回想起他好像是素人，又感觉像是接受炒作才有人气又不放弃用实力吸粉的娱乐圈新人发现饭圈的kimo超出了心理准备又不如老油条抗压，最终决定撂挑子不干了……反而释然了，不适应这一套的年轻人刚一些也好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
