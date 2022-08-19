@@ -4845,3 +4845,17 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 你别骗我....我都是等前天活动最后1个本开完嗑了好几个苹果才把建筑都升到了10级 ...</blockquote>
 就吃了几个吧，这活动前我苹果数0，现在金的4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 1929#       发表于 2022-8-19 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57136689&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-19 19:22</a>
+
+终章抡起盾痛打人王的一般人到底是
+
+10吨啊这玩意</blockquote>
+人类觉悟的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5792,3 +5792,12 @@ ui的お知らせ揭晓
 
 看原视频回想起他好像是素人，又感觉像是接受炒作才有人气又不放弃用实力吸粉的娱乐圈新人发现饭圈的kimo超出了心理准备又不如老油条抗压，最终决定撂挑子不干了……反而释然了，不适应这一套的年轻人刚一些也好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 17032#       发表于 2022-8-19 21:42
+
+我觉得单纯趁着这次机会，把一些可能会炎上的话直白的说了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有些话其实和这次事件没任何关系，换个场合说完全可以套个瞧不起观众的头衔。
+
