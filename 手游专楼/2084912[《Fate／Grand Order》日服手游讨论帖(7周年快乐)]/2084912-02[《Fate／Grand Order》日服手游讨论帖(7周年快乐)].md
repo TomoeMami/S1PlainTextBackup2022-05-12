@@ -4811,3 +4811,25 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 我基本靠自然回体，现在都满了，还想要更多奖励呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别骗我....我都是等前天活动最后1个本开完嗑了好几个苹果才把建筑都升到了10级
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1927#       发表于 2022-8-19 19:38
+
+ 本帖最后由 gpx234mqx 于 2022-8-19 19:41 编辑 
+
+诶，马修的宝具是可以转攻击性质的
+
+[size=18.8977px]决战术式 [size=18.8977px]アラウンド・マイマスター
+
+屏幕截图 2022-08-19 193716.png
+(139.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 19:38 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/193855sgmnim488dt28gp8.png" referrerpolicy="no-referrer">
+
