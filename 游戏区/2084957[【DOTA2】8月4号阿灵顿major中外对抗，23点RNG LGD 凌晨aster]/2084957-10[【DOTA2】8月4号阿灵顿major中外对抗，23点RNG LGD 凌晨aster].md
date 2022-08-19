@@ -13603,3 +13603,21 @@ m畜csgo会被清算，a畜apex却不会被清算
 能不能不要带皮套节奏了很无聊 
 只聊dota
 
+
+
+*****
+
+####  iriyano  
+##### 14958#       发表于 2022-8-19 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57138145&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-19 21:48</a>
+不会是4+2吧</blockquote>
+天梯啊，以为是饰品打完看了下并没有
+
+*****
+
+####  六娃  
+##### 14959#       发表于 2022-8-19 20:51
+
+死灵龙宰猪太厉害啦，我直接A杖黯灭狂杀
+
