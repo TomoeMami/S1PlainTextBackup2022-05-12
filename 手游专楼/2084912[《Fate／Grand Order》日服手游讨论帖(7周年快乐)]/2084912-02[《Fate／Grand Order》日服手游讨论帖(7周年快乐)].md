@@ -4833,3 +4833,15 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 <img src="https://img.saraba1st.com/forum/202208/19/193855sgmnim488dt28gp8.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1928#       发表于 2022-8-19 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57136780&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-19 19:27</a>
+
+你别骗我....我都是等前天活动最后1个本开完嗑了好几个苹果才把建筑都升到了10级 ...</blockquote>
+就吃了几个吧，这活动前我苹果数0，现在金的4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
