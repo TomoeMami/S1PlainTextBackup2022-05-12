@@ -13457,3 +13457,12 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172431</blockquote>
 
 zhou确实不比ame差<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asd235614  
+##### 14940#       发表于 2022-8-19 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看了会直播，狗头人喝高了在这舌战群儒
+
