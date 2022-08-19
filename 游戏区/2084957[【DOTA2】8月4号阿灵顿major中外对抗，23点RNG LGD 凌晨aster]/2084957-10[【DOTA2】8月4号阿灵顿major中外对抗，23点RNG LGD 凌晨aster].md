@@ -13637,3 +13637,12 @@ m畜csgo会被清算，a畜apex却不会被清算
 
 [media=x,500,375]【【初音ミク】硬实力硬实力——PSG.LGD ti11应援】 [https://www.bilibili.com/video/B ... bf4413a46b33590a68e](https://www.bilibili.com/video/BV1Wd4y1P7AK?share_source=copy_web&amp;vd_source=37b996ef078aabf4413a46b33590a68e)[/media]
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14962#       发表于 2022-8-19 21:10
+
+剑指西雅图周五
+
