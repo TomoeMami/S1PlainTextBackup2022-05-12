@@ -5801,3 +5801,16 @@ ui的お知らせ揭晓
 
 我觉得单纯趁着这次机会，把一些可能会炎上的话直白的说了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有些话其实和这次事件没任何关系，换个场合说完全可以套个瞧不起观众的头衔。
 
+
+
+*****
+
+####  fastary  
+##### 17033#       发表于 2022-8-19 21:55
+
+说到咎人，前两天那个伏见演播室和拿充电器的切片真是不得了……（回味）
+
+虽然单推都看不起cp民，但是客观而言对我这个磕管人cp全靠贴贴切片的蹭饭人来说咎人真的好tm香<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+目前为止听过那么多男管人的笑声，只有刀会让我每每产生“想看他当下面那个的同人”的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
