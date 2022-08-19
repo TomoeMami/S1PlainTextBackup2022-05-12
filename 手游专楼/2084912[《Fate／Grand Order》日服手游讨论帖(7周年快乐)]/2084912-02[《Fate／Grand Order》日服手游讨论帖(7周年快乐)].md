@@ -4968,3 +4968,17 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 
 真不认为运营敢让公主在主线里登场把戏份都给抢了去
 
+
+
+*****
+
+####  eyeego  
+##### 1938#       发表于 2022-8-20 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57142437&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-20 03:21</a>
+你看看都出了活动的215和214还有藤乃在废狗剧情里是啥待遇
+
+真不认为运营敢让公主在主线里登场把戏 ...</blockquote>
+那仨是以空境联动的名义
+公主目前半个字都没提过月姬联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
