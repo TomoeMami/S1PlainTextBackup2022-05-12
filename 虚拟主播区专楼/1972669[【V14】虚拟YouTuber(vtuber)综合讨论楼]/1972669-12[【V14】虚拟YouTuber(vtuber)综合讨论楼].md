@@ -5717,3 +5717,25 @@ syl，兔组快点好起来<img src="https://static.saraba1st.com/image/smiley/f
 不知不觉花谱武道馆也就几天了。
 感觉…
 
+
+
+*****
+
+####  毛头小希  
+##### 17028#       发表于 2022-8-19 17:07
+
+因虹甲而停了两周的3D接力继续
+
+虹EN也发了通知
+
+大约是第一场有EN嘉宾参与的虹人3D披露……？前面的3D披露也不是每场都看所以不是很清楚
+
+QQ图片20220819170518.jpg
+(510.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/170726paurrner9re4a9rv.jpg" referrerpolicy="no-referrer">
+

@@ -13090,3 +13090,43 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 lgd：猴子女王狼人谜团拉比克</blockquote>
 贷款决赛日，你改悔罢
 
+
+
+*****
+
+####  ArowRocher  
+##### 14900#       发表于 2022-8-19 17:03
+
+https://act.dota2.com.cn/story2022?fromB%20%E2%80%8B
+新活动，狗头人可以薅一下
+
+听说oc跟ana又架起来了，当主播离不开表演型人格
+
+*****
+
+####  Litccc  
+##### 14901#       发表于 2022-8-19 17:05
+
+路人不喷厨子0-9的亚巴顿去喷oc，oc骂厨子也不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 14902#       发表于 2022-8-19 17:06
+
+阿哈利姆要是常驻并且更新词条，大版本更新再加点英雄，谁寄吧去刷暗黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 14903#       发表于 2022-8-19 17:07
+
+阿哈利姆要是常驻并且更新词条，大版本更新再加点英雄，谁寄吧去刷那些游廊rpg啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 14904#       发表于 2022-8-19 17:11
+
+哇，粪坑有人用国外验证码平台捞出太监论坛一堆水军号
+
