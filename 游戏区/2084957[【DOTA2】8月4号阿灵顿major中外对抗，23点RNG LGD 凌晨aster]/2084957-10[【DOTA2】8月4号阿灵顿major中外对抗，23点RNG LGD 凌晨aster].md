@@ -12470,3 +12470,63 @@ https://bbs.sgamer.com/thread-14172261-1-1.html
 
 这俩说的是谁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈曼的YY  
+##### 14833#       发表于 2022-8-19 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57129178&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-19 10:06</a>
+
+徒手用萝卜雕寿星的刀工，抡着一米多的擀面杖的大面案，
+
+拌凉菜只用自家秘制酱料的冷盘，还有像我父亲一样 ...</blockquote>
+从后文看是上帝的大天使们
+
+*****
+
+####  哈曼的YY  
+##### 14834#       发表于 2022-8-19 10:34
+
+新月未明这个狗东西多少和水厂有点关系 8月15号把雪碧翻盘小火箭那视频一删后转头就大口喝ru水
+
+<img src="https://img.saraba1st.com/forum/202208/19/103414cq9ny6npxxpq75fj.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220819101753.png</strong> (31.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/103412tji4kxzzawuweiv4.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220819102432.png</strong> (90.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/103413ytgmhh3dzmpwdfqs.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220819101808.png</strong> (119.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/103413ju9bbzarbcrpage9.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220819101813.png</strong> (9.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 10:34 上传
+
+*****
+
+####  12481632  
+##### 14835#       发表于 2022-8-19 10:39
+
+下周再不出本子我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
