@@ -13242,3 +13242,16 @@ setsu把ana和oc打内讧了呀<img src="https://p.sda1.dev/6/ab20ffada360051cd1
 
 漏油咋还去钓鱼啦
 
+
+
+*****
+
+####  莉拉厨  
+##### 14917#       发表于 2022-8-19 17:44
+
+ 本帖最后由 莉拉厨 于 2022-8-19 17:46 编辑 
+
+记错了
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
