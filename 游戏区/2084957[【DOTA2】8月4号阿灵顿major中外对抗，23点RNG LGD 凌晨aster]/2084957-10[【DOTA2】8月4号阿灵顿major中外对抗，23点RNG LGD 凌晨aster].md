@@ -13147,3 +13147,53 @@ https://act.dota2.com.cn/story2022?fromB%20%E2%80%8B
 
 这下真的小水人了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 14907#       发表于 2022-8-19 17:27
+
+<img src="https://img.saraba1st.com/forum/202208/19/172730caoa77gb1gggfzbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 17:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 14908#       发表于 2022-8-19 17:28
+
+鸡哥结晶提纯不输七海，脑浆程度不输阿梓，热水器不输永雏塔菲
+
+*****
+
+####  Litccc  
+##### 14909#       发表于 2022-8-19 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57135282&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-19 17:28</a>
+
+鸡哥结晶提纯不输七海，脑浆程度不输阿梓，热水器不输永雏塔菲</blockquote>
+爱国程度不输东雪莲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  c88711611  
+##### 14910#       发表于 2022-8-19 17:29
+
+坏了，鸡哥历史地位第二人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  战狼PTSD  
+##### 14911#       发表于 2022-8-19 17:30
+
+oc有东雪莲般的爱国，七海般的专一，永雏塔菲般的清纟屯，不愧为刀圈第一人
+
