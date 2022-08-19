@@ -1070,3 +1070,14 @@ Air Pro 的 up 评测应该也快了。
 越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理 ...</blockquote>
 ps3模拟器还不太成熟，不过360模拟器在最近的更新后效果已经相当不错了，6800玩忍龙2能60帧了
 
+
+
+*****
+
+####  bypass  
+##### 93#         楼主| 发表于 2022-8-19 08:09
+
+[https://www.bilibili.com/video/BV1EN4y1F7Dr](https://www.bilibili.com/video/BV1EN4y1F7Dr)
+
+Taki 的 5825u Ayaneo Air Pro 评测视频出来了。
+
