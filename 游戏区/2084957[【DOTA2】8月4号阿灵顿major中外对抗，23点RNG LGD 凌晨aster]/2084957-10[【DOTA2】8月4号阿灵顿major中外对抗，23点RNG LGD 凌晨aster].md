@@ -12973,3 +12973,12 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 说起绝版商法，最近玩的一个dmm的，期期限定😭，还发现好像没井才是常态，我不玩了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">手游页游最不缺的就是限定池了，狗头人玩nm
 
+
+
+*****
+
+####  Yukino-Yukino  
+##### 14887#       发表于 2022-8-19 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游页游的限定池也没说不复刻啊，Volvo的绝版那就是真没了
+
