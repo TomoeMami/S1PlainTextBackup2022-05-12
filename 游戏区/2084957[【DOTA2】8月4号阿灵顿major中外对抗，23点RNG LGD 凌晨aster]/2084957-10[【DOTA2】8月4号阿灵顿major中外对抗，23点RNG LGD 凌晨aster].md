@@ -13689,3 +13689,36 @@ nga有人发毒誓今天凌晨
 
 @Eterna1Envy：我朋友是死灵龙，他说他差点就一打五了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14968#       发表于 2022-8-19 22:57
+
+<img src="https://img.saraba1st.com/forum/202208/19/225741ltgjqrwouo7h0djj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 22:57 上传
+
+节目效果无敌了，大喊一声啊？然后没了
+
+*****
+
+####  六娃  
+##### 14969#       发表于 2022-8-19 22:58
+
+笑死我了，点个举报直播间还真封了
+
+*****
+
+####  六娃  
+##### 14970#       发表于 2022-8-19 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140416&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-19 22:57</a>
+节目效果无敌了，大喊一声啊？然后没了</blockquote>
+带鱼屏狗萨特是吧，不装了
+
