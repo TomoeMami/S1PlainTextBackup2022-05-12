@@ -2391,3 +2391,44 @@ blade是个什么东西</blockquote>
 
 正式进入异度宇宙？
 
+
+
+*****
+
+####  liekongzero  
+##### 210#       发表于 2022-8-20 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062318&amp;ptid=2084988" target="_blank">古畑任三郎2015 发表于 2022-8-14 18:15</a>
+
+当年看雷老板说还有大家那里，一直没什么感觉
+
+你们都没看过青山刚昌的剑勇么不一样的桥段么
+
+从xb2最 ...</blockquote>
+其实“喜欢XX还有大家”还挺老梗的，很多恋爱漫画在拉扯阶段都有这么个桥段
+
+大家喜欢XB2这段主要还是因为大家喜欢妮娅，准确的来说是喜欢迫害妮娅（
+
+
+
+*****
+
+####  大江户战士  
+##### 211#       发表于 2022-8-20 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57062318&amp;ptid=2084988" target="_blank">古畑任三郎2015 发表于 2022-8-14 18:15</a>
+
+当年看雷老板说还有大家那里，一直没什么感觉
+
+你们都没看过青山刚昌的剑勇么不一样的桥段么
+
+从xb2最 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/20/011053q226w89905k9k11q.png" referrerpolicy="no-referrer">
+
+<strong>X`13W5[WK($US2UAI)TCK.png</strong> (591.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 01:10 上传
+
