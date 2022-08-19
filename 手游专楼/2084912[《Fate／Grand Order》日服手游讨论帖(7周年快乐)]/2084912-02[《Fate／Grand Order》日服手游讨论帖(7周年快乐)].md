@@ -4781,3 +4781,33 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 冰块需求剩下最后一顶贝雷帽了，点数也来到了240W，还真是差不多同步的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1925#       发表于 2022-8-19 19:22
+
+终章抡起盾痛打人王的一般人到底是<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+10吨啊这玩意
+
+屏幕截图 2022-08-19 192114.png
+(141.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/192217lb80gzf4pefwod0g.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 1926#       发表于 2022-8-19 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57136182&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-19 18:45</a>
+
+我基本靠自然回体，现在都满了，还想要更多奖励呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别骗我....我都是等前天活动最后1个本开完嗑了好几个苹果才把建筑都升到了10级
+
