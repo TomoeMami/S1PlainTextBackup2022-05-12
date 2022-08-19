@@ -4704,3 +4704,25 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 好像玛修melty blood那边又埋了个雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1918#       发表于 2022-8-19 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57135182&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-8-19 17:21</a>
+
+活动本的羁绊还是挺高的，90++的基础经验是1318，活动英灵单算上50%、20%加成就可以一次得到1977、1582的 ...</blockquote>
+那就随意了，现在啥都缺，狗粮素材都没了，free在1.5后也没怎么清过，全是红点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 1919#       发表于 2022-8-19 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57135714&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-8-19 18:04</a>
+
+好像玛修melty blood那边又埋了个雷</blockquote>
+特地去贴吧看，还以为有瓜，就这<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

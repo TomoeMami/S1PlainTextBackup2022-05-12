@@ -13323,3 +13323,52 @@ setsu把ana和oc打内讧了呀<img src="https://p.sda1.dev/6/ab20ffada360051cd1
 
 漫区已经不爽漏油很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 14926#       发表于 2022-8-19 18:15
+
+<blockquote>  引用:
+IWS2000 发表于 2022-8-19 16:29
+怎么突然进小黑屋了？可怕
+
+你应该问，为什么它现在才进小黑屋 </blockquote>
+
+*****
+
+####  沈淮  
+##### 14927#         楼主| 发表于 2022-8-19 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57135668&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-19 18:00</a>
+怎么又有漏油进去了
+
+你楼真是可怕</blockquote>
+难道不是现在才进去？
+
+*****
+
+####  反方向的波  
+##### 14928#       发表于 2022-8-19 18:17
+
+ 本帖最后由 反方向的波 于 2022-8-19 18:19 编辑 
+<blockquote> 皮套人的一生大致分为出生，死亡，晚上八点来谈谈。因为我不是皮套人，所以今晚大概七点来谈谈，至于为什么不是现在主要有两件事，一个是我要去买酒，一个是我在想要不要抽俩百香果茶（图是中午吃的烤肉） </blockquote><img src="https://p.sda1.dev/6/2325b5fa8b7e0cbf488f8046cb36559b/Screenshot_2022-08-19-18-17-22-03_149003a2d400f6adb210d7e357a3a646.jpg" referrerpolicy="no-referrer">
+
+搞那么厉害，毕业回！<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沈淮  
+##### 14929#         楼主| 发表于 2022-8-19 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57135874&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-19 18:17</a></blockquote>
+图呢
+
+*****
+
+####  战狼PTSD  
+##### 14930#       发表于 2022-8-19 18:20
+
+痛失波高水人
+
