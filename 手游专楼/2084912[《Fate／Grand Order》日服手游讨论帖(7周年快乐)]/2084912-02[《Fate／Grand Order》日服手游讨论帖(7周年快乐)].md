@@ -4726,3 +4726,28 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 好像玛修melty blood那边又埋了个雷</blockquote>
 特地去贴吧看，还以为有瓜，就这<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 1920#       发表于 2022-8-19 18:32
+
+这活动点数除了把所有建筑都升到10级外还有办法提高加成么
+
+把建筑都给升到10级后打一把阴间本也才9万点数....刷满可是要600万啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 1921#       发表于 2022-8-19 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57136027&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-19 18:32</a>
+
+这活动点数除了把所有建筑都升到10级外还有办法提高加成么
+
+把建筑都给升到10级后打一把阴间本也才9万点数. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">也就总共刷60多次就满了 要是60多次羁绊就能升级就好了
+
