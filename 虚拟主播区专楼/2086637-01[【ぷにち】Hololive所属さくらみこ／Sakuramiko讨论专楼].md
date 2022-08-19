@@ -4150,3 +4150,22 @@ vc音质太差听不出来
 
 这个比真的是分分钟活找上门，昨天kanata和星街都是自己上门的
 
+
+
+*****
+
+####  holoan  
+##### 405#         楼主| 发表于 2022-8-19 11:04
+
+<img src="https://img.saraba1st.com/forum/202208/19/110419l4y7ryvz9lyqcqrz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 11:04 上传
+
+[https://twitter.com/dodomayo/status/1560461621041934337](https://twitter.com/dodomayo/status/1560461621041934337)
+
+还是肉一点好看
+
