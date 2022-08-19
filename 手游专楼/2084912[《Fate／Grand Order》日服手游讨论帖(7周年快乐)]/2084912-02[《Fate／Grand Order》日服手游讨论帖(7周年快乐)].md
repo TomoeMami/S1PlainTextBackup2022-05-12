@@ -4695,3 +4695,12 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 如果想刷三个新五星以及杀阶女武神的羁绊，可以继续刷活动本....毕竟free本羁绊最高也就是22AP一把855羁绊...没意愿就可以自由支配了...
 
+
+
+*****
+
+####  白金口袋  
+##### 1917#       发表于 2022-8-19 18:04
+
+好像玛修melty blood那边又埋了个雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

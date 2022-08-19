@@ -13287,3 +13287,39 @@ setsu把ana和oc打内讧了呀<img src="https://p.sda1.dev/6/ab20ffada360051cd1
 
 你楼真是可怕
 
+
+
+*****
+
+####  syndrome2032  
+##### 14922#       发表于 2022-8-19 18:03
+
+ 本帖最后由 syndrome2032 于 2022-8-19 18:06 编辑 
+
+1718年的ehome双大哥一个老鸡一个cty，带不动归带不动。但3只能说是完美融入鱼塘，5是莫名其妙就死了。
+
+我记得那会好像ehome打个啥联赛都打成降级了?dpl?
+
+最起码那个状态的3是肯定当不了现在的赵云。
+
+*****
+
+####  很久就在那边l  
+##### 14923#       发表于 2022-8-19 18:05
+
+百合厨厨-1
+
+*****
+
+####  尖刺外婆  
+##### 14924#       发表于 2022-8-19 18:07
+
+你楼从头封到尾，只要撸狗是冤枉的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 14925#       发表于 2022-8-19 18:12
+
+漫区已经不爽漏油很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
