@@ -411,3 +411,14 @@ nagi回归
 现在我首页经常给我推星团动画杂谈/吐槽，印象里之前那几部没 ...</blockquote>
 因为大家都有情绪需要发泄吧，我也是，看了几个吐槽之后又看了一点剧情介绍，从文字中一股恶心就扑面而来。我真的不想吃屎，我国家队都避险了。为了看星团还把水团和虹咲踏破了。人麻了，真的
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3038#       发表于 2022-8-19 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57139818&amp;ptid=2078110" target="_blank">sjbssd 发表于 2022-8-19 22:18</a>
+星团第二季我到现在都没看，连二创都不想点进去，恶心死我了。请问如何进行心理建设以让我可以重新开始看。 ...</blockquote>
+建议还没看就暂时先别看，虽说不同人观看时着眼点不同，得到的观感也不一样，但是现在争议四起，这动画肯定是存在不少问题的，如果想瞅一瞅，不妨等这一季动画完结了，好有个数再看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
