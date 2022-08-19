@@ -397,3 +397,17 @@ nagi回归
 
 现在我首页经常给我推星团动画杂谈/吐槽，印象里之前那几部没这么多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 3037#       发表于 2022-8-19 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57139932&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-19 22:27</a>
+
+等完结后看有没有人出个重新剪辑配词版（）
+
+现在我首页经常给我推星团动画杂谈/吐槽，印象里之前那几部没 ...</blockquote>
+因为大家都有情绪需要发泄吧，我也是，看了几个吐槽之后又看了一点剧情介绍，从文字中一股恶心就扑面而来。我真的不想吃屎，我国家队都避险了。为了看星团还把水团和虹咲踏破了。人麻了，真的
+
