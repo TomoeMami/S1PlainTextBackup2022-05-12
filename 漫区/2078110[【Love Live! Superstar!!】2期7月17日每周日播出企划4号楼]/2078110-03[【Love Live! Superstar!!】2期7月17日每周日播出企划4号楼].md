@@ -374,3 +374,12 @@ nagi回归
 
 绷不住，星无佬才是星动画的救世主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 3035#       发表于 2022-8-19 22:18
+
+星团第二季我到现在都没看，连二创都不想点进去，恶心死我了。请问如何进行心理建设以让我可以重新开始看。
+

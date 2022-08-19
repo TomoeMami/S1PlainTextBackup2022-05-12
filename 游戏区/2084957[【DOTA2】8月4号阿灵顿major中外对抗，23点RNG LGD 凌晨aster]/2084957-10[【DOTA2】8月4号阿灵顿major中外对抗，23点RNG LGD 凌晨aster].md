@@ -13680,3 +13680,12 @@ nga有人发毒誓今天凌晨
 
 <img src="https://p.sda1.dev/6/237facbf6ebfe8e161e5f2510ac2cefb/4f991ximmki91.webp" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沈淮  
+##### 14967#         楼主| 发表于 2022-8-19 22:15
+
+@Eterna1Envy：我朋友是死灵龙，他说他差点就一打五了
+
