@@ -12998,3 +12998,14 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 
 关键是懒狗V🐍绝版的东西搞了一堆不可交易的，这是真的恶心，你哪怕能去市场买也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  12481632  
+##### 14890#       发表于 2022-8-19 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57134055&amp;ptid=2084957" target="_blank">subject07 发表于 2022-8-19 15:51</a>
+现在的自走棋是不是都凉了？</blockquote>
+凉个啥，刀区前三排全在三国自走棋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
