@@ -13804,3 +13804,35 @@ eesama在鸡哥直播间疯狂输出<img src="https://static.saraba1st.com/image
 
 @Eterna1Envy：喜欢b神的待人接物，喜欢zard的言而有信，喜欢鸡哥的赤忱爱国❤️
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14981#       发表于 2022-8-19 23:31
+
+<img src="https://img.saraba1st.com/forum/202208/19/233050cjfszxjs20ojd2pd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/233106tpalqzb27bep742a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 23:31 上传
+
+嗯了
+
+*****
+
+####  ArowRocher  
+##### 14982#       发表于 2022-8-19 23:38
+
+听说227229有1看，原来是补刀1，真晦气
+
