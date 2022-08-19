@@ -13621,3 +13621,19 @@ m畜csgo会被清算，a畜apex却不会被清算
 
 死灵龙宰猪太厉害啦，我直接A杖黯灭狂杀
 
+
+
+*****
+
+####  asd235614  
+##### 14960#       发表于 2022-8-19 21:01
+
+所以前几天核中核消息星期五更新就是谣言对么
+
+*****
+
+####  沈淮  
+##### 14961#         楼主| 发表于 2022-8-19 21:09
+
+[media=x,500,375]【【初音ミク】硬实力硬实力——PSG.LGD ti11应援】 [https://www.bilibili.com/video/B ... bf4413a46b33590a68e](https://www.bilibili.com/video/BV1Wd4y1P7AK?share_source=copy_web&amp;vd_source=37b996ef078aabf4413a46b33590a68e)[/media]
+
