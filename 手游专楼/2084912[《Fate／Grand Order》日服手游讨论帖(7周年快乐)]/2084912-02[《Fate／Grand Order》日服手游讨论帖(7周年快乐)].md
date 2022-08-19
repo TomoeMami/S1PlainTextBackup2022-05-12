@@ -4772,3 +4772,12 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是每100W给一个呼符 我TMD刷爆
 
+
+
+*****
+
+####  DARKGRAY  
+##### 1924#       发表于 2022-8-19 18:55
+
+冰块需求剩下最后一顶贝雷帽了，点数也来到了240W，还真是差不多同步的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
