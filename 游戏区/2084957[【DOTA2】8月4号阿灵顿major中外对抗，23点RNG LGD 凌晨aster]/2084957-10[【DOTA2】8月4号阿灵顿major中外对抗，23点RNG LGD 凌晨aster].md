@@ -12827,3 +12827,26 @@ lgd：猴子女王狼人谜团拉比克
 
 唯一一个盾是TI8充的，想想真是日了狗了。也是从那个时候开始变成铁干瘪黑
 
+
+
+*****
+
+####  反方向的波  
+##### 14870#       发表于 2022-8-19 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">看丁聪群里几个集美在讨论清算和反清算就想笑，不会以为他们自己没说过poyoyo曾焦阳脑十一给西恩最强45拖后腿吧
+
+*****
+
+####  没钱买手办  
+##### 14871#       发表于 2022-8-19 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 14872#       发表于 2022-8-19 14:17
+
+萨特我砍！
+
