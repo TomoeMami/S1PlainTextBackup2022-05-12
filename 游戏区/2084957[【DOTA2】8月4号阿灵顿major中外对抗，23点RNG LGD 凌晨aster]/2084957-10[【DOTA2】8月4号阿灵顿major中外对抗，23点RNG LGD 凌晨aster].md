@@ -13061,3 +13061,32 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 
 我ti9和去年是真没买，今年考虑下要不要支持ts
 
+
+
+*****
+
+####  啊哈  
+##### 14897#       发表于 2022-8-19 16:55
+
+绝版开放交易，感觉奸商能把奖金池再推上一个高度
+
+*****
+
+####  战狼PTSD  
+##### 14898#       发表于 2022-8-19 16:58
+
+去年幽鬼小黑没兴趣，今年如果真改成两个本子那还是不买了，目前泄露出来的虚空天怒还是没兴趣，什么时候给三猫出至宝啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14899#       发表于 2022-8-19 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57132549&amp;ptid=2084957" target="_blank">百世诸侯 发表于 2022-8-19 14:04</a>
+午睡梦见ti11总决赛第一把阵容：
+
+雪碧：大圣卡尔猛犸白牛精灵
+
+lgd：猴子女王狼人谜团拉比克</blockquote>
+贷款决赛日，你改悔罢
+
