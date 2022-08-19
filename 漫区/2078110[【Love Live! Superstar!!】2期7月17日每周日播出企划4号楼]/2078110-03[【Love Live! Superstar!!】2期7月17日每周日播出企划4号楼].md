@@ -345,3 +345,16 @@ nagi回归
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大熊长发应该更好看的，可惜了啊
 
+
+
+*****
+
+####  ads147147  
+##### 3032#       发表于 2022-8-19 20:17
+
+星团第五集为啥不这么拍 UP主: 星无 https://www.bilibili.com/video/BV18T411c7ka
+
+星无，我的田中仁jpg。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

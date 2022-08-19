@@ -13466,3 +13466,40 @@ zhou确实不比ame差<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看了会直播，狗头人喝高了在这舌战群儒
 
+
+
+*****
+
+####  反方向的波  
+##### 14941#       发表于 2022-8-19 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">进去就是cword
+
+*****
+
+####  morwhipppo  
+##### 14942#       发表于 2022-8-19 20:13
+
+狗头人一边骂一边吐也太好笑了吧，比哥哥还有节目效果
+
+*****
+
+####  asd235614  
+##### 14943#       发表于 2022-8-19 20:14
+
+“看AME打团看吐了”
+
+*****
+
+####  12481632  
+##### 14944#       发表于 2022-8-19 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">处长又在和皮套人双排打枪咯
+
+*****
+
+####  morwhipppo  
+##### 14945#       发表于 2022-8-19 20:18
+
+希望皮套快点吧处长吸干了，ti来波大的
+
