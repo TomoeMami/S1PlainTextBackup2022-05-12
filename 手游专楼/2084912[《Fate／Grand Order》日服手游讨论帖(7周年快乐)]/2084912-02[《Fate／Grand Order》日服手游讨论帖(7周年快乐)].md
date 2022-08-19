@@ -4681,3 +4681,17 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 死鱼这么多年第一个五宝呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬都算死鱼 我这种怕是鱼鳞了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 1916#       发表于 2022-8-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57133970&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-19 15:45</a>
+
+脑子一热伊吹补5宝了</blockquote>
+活动本的羁绊还是挺高的，90++的基础经验是1318，活动英灵单算上50%、20%加成就可以一次得到1977、1582的羁绊值。另外貌似棋子饼干素材的掉落也不错...
+
+如果想刷三个新五星以及杀阶女武神的羁绊，可以继续刷活动本....毕竟free本羁绊最高也就是22AP一把855羁绊...没意愿就可以自由支配了...
+

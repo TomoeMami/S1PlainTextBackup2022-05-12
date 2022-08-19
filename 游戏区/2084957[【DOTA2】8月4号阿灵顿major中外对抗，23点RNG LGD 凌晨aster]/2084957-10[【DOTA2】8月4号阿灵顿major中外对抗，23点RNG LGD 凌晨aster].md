@@ -13130,3 +13130,20 @@ https://act.dota2.com.cn/story2022?fromB%20%E2%80%8B
 
 哇，粪坑有人用国外验证码平台捞出太监论坛一堆水军号
 
+
+
+*****
+
+####  很久就在那边l  
+##### 14905#       发表于 2022-8-19 17:13
+
+老鸡早看ana不爽了
+[https://tieba.baidu.com/p/5096318591](https://tieba.baidu.com/p/5096318591)
+
+*****
+
+####  IG.430  
+##### 14906#       发表于 2022-8-19 17:18
+
+这下真的小水人了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
