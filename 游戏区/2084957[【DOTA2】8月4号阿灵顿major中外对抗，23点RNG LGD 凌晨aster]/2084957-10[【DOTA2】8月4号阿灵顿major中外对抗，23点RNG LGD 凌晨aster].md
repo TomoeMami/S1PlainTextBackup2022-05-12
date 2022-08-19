@@ -13401,3 +13401,12 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172431
 
 鸡哥直播看上去菜，但是我认识的排名哥都说鸡哥挺厉害的
 
+
+
+*****
+
+####  nowaki  
+##### 14934#       发表于 2022-8-19 19:14
+
+低配ana能不厉害吗
+
