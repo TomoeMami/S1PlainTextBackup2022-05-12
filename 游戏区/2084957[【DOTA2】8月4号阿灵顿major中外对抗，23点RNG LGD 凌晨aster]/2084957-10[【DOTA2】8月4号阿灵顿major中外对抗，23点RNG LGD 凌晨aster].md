@@ -13009,3 +13009,26 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 现在的自走棋是不是都凉了？</blockquote>
 凉个啥，刀区前三排全在三国自走棋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kyl2001  
+##### 14891#       发表于 2022-8-19 16:16
+
+我本子每年都是买个一级的意思一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 14892#       发表于 2022-8-19 16:19
+
+妈的，阿哈利姆就不能常驻嘛，每周更新点新房间新技能啥的，再加个随机掉落词条装备，我也好不当云玩家
+
+*****
+
+####  聚散浮云  
+##### 14893#       发表于 2022-8-19 16:20
+
+连续三年了都喊再买本子我是狗，连续买了三年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
