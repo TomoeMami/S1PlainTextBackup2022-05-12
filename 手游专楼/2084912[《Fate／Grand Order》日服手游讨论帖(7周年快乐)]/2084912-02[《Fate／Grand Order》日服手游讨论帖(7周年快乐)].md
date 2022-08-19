@@ -4895,3 +4895,21 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 在主线里乱入肯定是不可能的事情.....整个月姬联 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">C呆落地时候不也没剧情
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1933#       发表于 2022-8-20 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140432&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-19 22:59</a>
+
+忽然想到公主就这么天降落地...连个剧情也没有么
+
+在主线里乱入肯定是不可能的事情.....整个月姬联 ...</blockquote>
+这次马修不也传送失败到平行世界了嘛
+
+猫Arc还提出多元宇宙理论<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+下次来个联动穿越也不是不行啊
+
