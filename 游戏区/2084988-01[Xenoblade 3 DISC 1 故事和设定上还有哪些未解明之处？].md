@@ -2469,3 +2469,35 @@ blade是个什么东西</blockquote>
 是meta要素吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，如果不是等级碾压的话，z还挺难打的，如果失败了还是回到标题画面，意思是整场游戏的结局就是失败了。
 z是乐子人我倒觉得挺合理的，很符合他的设定。
 
+
+
+*****
+
+####  BREEEEZE  
+##### 215#       发表于 2022-8-20 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57142004&amp;ptid=2084988" target="_blank">loley 发表于 2022-8-20 01:18</a>
+
+有个情节有点印象，和Z开打之前Z还说你们已经无数次站到我的面前了，当时我还觉得Z的意思是他已经打倒了很 ...</blockquote>
+
+重看N的回忆，诺亚和弥央为首的衔尾蛇主角团不止一次去剧场
+
+*****
+
+####  沙发果冻  
+##### 216#       发表于 2022-8-20 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57142004&amp;ptid=2084988" target="_blank">loley 发表于 2022-8-20 01:18</a>
+ 有个情节有点印象，和Z开打之前Z还说你们已经无数次站到我的面前了，当时我还觉得Z的意思是他已经打倒了很 ...</blockquote>
+指衔尾蛇吧，Z显然打过很多次衔尾蛇了
+
+*****
+
+####  大江户战士  
+##### 217#       发表于 2022-8-20 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57142103&amp;ptid=2084988" target="_blank">Ne0 发表于 2022-8-20 01:36</a>
+
+是meta要素吧，如果不是等级碾压的话，z还挺难打的，如果失败了还是回到标题画面，意思是整场游戏 ...</blockquote>
+2代也是一样的，打永劫失败就会回标题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
