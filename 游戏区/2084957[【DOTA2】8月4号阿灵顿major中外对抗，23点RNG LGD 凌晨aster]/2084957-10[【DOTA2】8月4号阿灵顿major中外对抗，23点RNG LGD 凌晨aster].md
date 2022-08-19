@@ -13503,3 +13503,33 @@ zhou确实不比ame差<img src="https://static.saraba1st.com/image/smiley/face20
 
 希望皮套快点吧处长吸干了，ti来波大的
 
+
+
+*****
+
+####  tasuku  
+##### 14946#       发表于 2022-8-19 20:20
+
+漏油为什么对皮套人的直播这么关注，令人害怕
+
+*****
+
+####  adretyu67  
+##### 14947#       发表于 2022-8-19 20:22
+
+狗头人直播怎么在讲谭雅？我还以为要复盘仙贝第一视角
+
+*****
+
+####  asd235614  
+##### 14948#       发表于 2022-8-19 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在复盘啊，都复盘复吐了还强忍着继续复盘
+
+*****
+
+####  nowaki  
+##### 14949#       发表于 2022-8-19 20:26
+
+m畜csgo会被清算，a畜apex却不会被清算
+
