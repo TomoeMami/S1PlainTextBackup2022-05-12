@@ -2361,3 +2361,16 @@ blade是个什么东西</blockquote>
 合理怀疑季票内容是8-10章 ...</blockquote>
 1是17章，而且最后一章就叫17章而不是最终章，只有二代是最后一章标题就是最终章
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 208#       发表于 2022-8-19 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57126632&amp;ptid=2084988" target="_blank">whzfjk 发表于 2022-8-19 00:38</a>
+九龙珠？那剑也挺神的</blockquote>
+对，说起来风雷龙神剑珠子上会有汉字，1代的莫纳德可能也是借鉴了这个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
