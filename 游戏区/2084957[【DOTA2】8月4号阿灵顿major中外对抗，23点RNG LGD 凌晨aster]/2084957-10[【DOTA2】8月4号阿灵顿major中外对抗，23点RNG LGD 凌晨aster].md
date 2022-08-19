@@ -13419,3 +13419,18 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172431
 
 鸡哥第一视角细节很滑稽而且喜欢乱出装，但是有些思路相当好啊，特别是他的酱油玩的很不错。
 
+
+
+*****
+
+####  格雷殿下  
+##### 14936#       发表于 2022-8-19 19:43
+
+<blockquote>逃离二次元 发表于 2022-8-19 18:49
+幽默感拿捏住了
+
+https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172431</blockquote>
+先不谈集美完全就是在语无伦次了。
+
+这集美是不是船胖假扮的呀，阿格雷鲷是最垃圾的c都来了😄
+
