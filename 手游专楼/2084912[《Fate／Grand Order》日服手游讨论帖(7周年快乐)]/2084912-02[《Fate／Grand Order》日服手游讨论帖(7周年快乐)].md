@@ -4929,3 +4929,42 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 
 而且2.7已知有ort了那地球姬出场也合情合理
 
+
+
+*****
+
+####  森兰丸  
+##### 1935#       发表于 2022-8-20 03:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140794&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-19 23:19</a>
+
+C呆落地时候不也没剧情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">C呆当初卡面说明都说了是先行实装...而且2.6是异闻带不列颠的剧情这都是早就知道的事情啊
+
+*****
+
+####  森兰丸  
+##### 1936#       发表于 2022-8-20 03:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57141528&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-20 00:18</a>
+
+这次马修不也传送失败到平行世界了嘛
+
+猫Arc还提出多元宇宙理论</blockquote>
+FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 1937#       发表于 2022-8-20 03:21
+
+ 本帖最后由 森兰丸 于 2022-8-20 04:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57142148&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-20 01:45</a>
+
+肯定进主线的啊，周年从者没有和主线无关的
+
+而且2.7已知有ort了那地球姬出场也合情合理 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你看看都出了活动的215和214还有藤乃在废狗剧情里是啥待遇
+
+真不认为运营敢让公主在主线里登场把戏份都给抢了去
+
