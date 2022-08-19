@@ -12605,3 +12605,19 @@ ti6还是7那个树是方形的地图没入手感觉还蛮后悔的</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  百世诸侯  
+##### 14844#       发表于 2022-8-19 11:13
+
+去年摆了一年，幽鬼和小黑都没拿，感觉一下子没有全收集的心劲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 14845#       发表于 2022-8-19 11:20
+
+饰品mod自己用就好了，就别到处传了，别哪天g哥哥不高兴了，一刀下来，溅出来的血把其他mod都淹死了
+
