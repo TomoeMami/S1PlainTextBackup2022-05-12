@@ -12799,3 +12799,31 @@ ti7哪个海洋地图，也挺好绕树林的
 
 我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍我砍
 
+
+
+*****
+
+####  walfeds  
+##### 14867#       发表于 2022-8-19 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">萨特我砍
+
+*****
+
+####  百世诸侯  
+##### 14868#       发表于 2022-8-19 14:04
+
+午睡梦见ti11总决赛第一把阵容：
+
+雪碧：大圣卡尔猛犸白牛精灵
+
+lgd：猴子女王狼人谜团拉比克
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 14869#       发表于 2022-8-19 14:06
+
+唯一一个盾是TI8充的，想想真是日了狗了。也是从那个时候开始变成铁干瘪黑
+
