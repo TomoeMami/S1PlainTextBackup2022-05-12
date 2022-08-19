@@ -13788,3 +13788,19 @@ nga有人发毒誓今天凌晨
 
 eesama在鸡哥直播间疯狂输出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14979#       发表于 2022-8-19 23:23
+
+喜欢b神的待人接物，喜欢zard的言而有信，喜欢鸡哥的赤忱爱国❤️
+
+*****
+
+####  Litccc  
+##### 14980#       发表于 2022-8-19 23:24
+
+@Eterna1Envy：喜欢b神的待人接物，喜欢zard的言而有信，喜欢鸡哥的赤忱爱国❤️
+
