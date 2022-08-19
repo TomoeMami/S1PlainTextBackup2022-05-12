@@ -13722,3 +13722,39 @@ nga有人发毒誓今天凌晨
 节目效果无敌了，大喊一声啊？然后没了</blockquote>
 带鱼屏狗萨特是吧，不装了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 14971#       发表于 2022-8-19 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140444&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-19 22:59</a>
+
+带鱼屏狗萨特是吧，不装了</blockquote>
+截了部分而已，16:9的穷逼狗头<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 14972#       发表于 2022-8-19 23:02
+
+[杂谈] 发点太监论坛账号吧
+[https://bbs.sgamer.com/thread-14172433-1-1.html](https://bbs.sgamer.com/thread-14172433-1-1.html)
+
+水友们这不去拿个水军号玩一玩
+
+*****
+
+####  战狼PTSD  
+##### 14973#       发表于 2022-8-19 23:08
+
+排到b神后鸡哥真的开朗很多，这就是良性追星，偶像让粉丝变得更好的实例
+
+*****
+
+####  六娃  
+##### 14974#       发表于 2022-8-19 23:10
+
+听说227229漏的多，原来是说补刀。又说有哔看，原来是啥哔
+
