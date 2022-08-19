@@ -12434,3 +12434,26 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 大神都回来了
 
+
+
+*****
+
+####  a1370303  
+##### 14830#       发表于 2022-8-19 09:56
+
+大神都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 14831#       发表于 2022-8-19 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57128814&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-19 09:41</a>
+
+父亲
+
+https://bbs.sgamer.com/thread-14172261-1-1.html
+
+(出处: 超级玩家官方论坛)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">写得好啊
+
