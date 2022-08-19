@@ -12322,3 +12322,14 @@ ti10第五把bp结束的时候，五个人脸上的表情都不好看，明显�
 
 哈哈，你楼真是魔幻，在游戏区dota2专楼骂a畜没人举报,攻击一下皮套坦克就戳中孝子的g点了，梓畜粉怎么比集美还敏感啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">？还不敢正面对线，只敢像太监一样视奸偷偷举报，跟你家主子输了比赛缩壳一副尿性啊。
 
+
+
+*****
+
+####  沈淮  
+##### 14819#         楼主| 发表于 2022-8-19 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57127803&amp;ptid=2084957" target="_blank">blackrubber 发表于 2022-8-19 08:16</a>
+哈哈，你楼真是魔幻，在游戏区dota2专楼骂a畜没人举报,攻击一下皮套坦克就戳中孝子的g点了，梓畜粉怎么比集 ...</blockquote>
+你喷撸狗的时候带父母了，被撸狗举报了
+
