@@ -13042,3 +13042,22 @@ vgti10最应该感谢的还是教练吧，虽然教练现在人没了
 【【初音ミク】硬实力硬实力——PSG.LGD ti11应援-哔哩哔哩】 [https://b23.tv/bcjCP63](https://b23.tv/bcjCP63)
 油菜花油菜花
 
+
+
+*****
+
+####  nowaki  
+##### 14895#       发表于 2022-8-19 16:48
+
+【Dota2】值得反复品的LGD式梦幻团战，连解说都误以为萧瑟没开BKB是巨大失误其实却体现了普通选手跟他的差距
+
+25.9万播放 · 2022-08-12 08:17:45
+[https://www.bilibili.com/video/BV1tU4y1C759?share_source=copy_web](https://www.bilibili.com/video/BV1tU4y1C759?share_source=copy_web)
+
+*****
+
+####  seki_m  
+##### 14896#       发表于 2022-8-19 16:52
+
+我ti9和去年是真没买，今年考虑下要不要支持ts
+
