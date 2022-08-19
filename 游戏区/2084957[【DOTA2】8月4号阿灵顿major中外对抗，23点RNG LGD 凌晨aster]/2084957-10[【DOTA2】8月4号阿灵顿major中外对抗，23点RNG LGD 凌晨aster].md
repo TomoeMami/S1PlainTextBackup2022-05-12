@@ -12621,3 +12621,26 @@ ti6还是7那个树是方形的地图没入手感觉还蛮后悔的</blockquote>
 
 饰品mod自己用就好了，就别到处传了，别哪天g哥哥不高兴了，一刀下来，溅出来的血把其他mod都淹死了
 
+
+
+*****
+
+####  hyde_caesar  
+##### 14846#       发表于 2022-8-19 11:23
+
+方地图还挺开挂的, 绕树林路线什么的真的一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 14847#       发表于 2022-8-19 11:24
+
+大神都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14848#       发表于 2022-8-19 11:31
+
+萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特
+
