@@ -13197,3 +13197,48 @@ https://act.dota2.com.cn/story2022?fromB%20%E2%80%8B
 
 oc有东雪莲般的爱国，七海般的专一，永雏塔菲般的清纟屯，不愧为刀圈第一人
 
+
+
+*****
+
+####  nowaki  
+##### 14912#       发表于 2022-8-19 17:33
+
+2017年的鸡哥可是关住了邪恶35的男人
+
+*****
+
+####  Kazepollar  
+##### 14913#       发表于 2022-8-19 17:33
+
+太监论坛是这样的，没ru水我是不信
+
+*****
+
+####  六娃  
+##### 14914#       发表于 2022-8-19 17:38
+
+<img src="https://img.saraba1st.com/forum/202208/19/173825tgttgargys277q2m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 17:38 上传
+
+哥哥秃头也是妮们的锅
+
+*****
+
+####  ArowRocher  
+##### 14915#       发表于 2022-8-19 17:40
+
+setsu把ana和oc打内讧了呀<img src="https://p.sda1.dev/6/ab20ffada360051cd15e7eaeae1c8860/CMP_20220819173943914.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 14916#       发表于 2022-8-19 17:41
+
+漏油咋还去钓鱼啦
+
