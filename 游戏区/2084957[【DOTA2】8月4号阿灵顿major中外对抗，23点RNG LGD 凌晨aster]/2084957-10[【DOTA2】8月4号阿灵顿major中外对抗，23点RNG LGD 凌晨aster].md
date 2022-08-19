@@ -12555,3 +12555,42 @@ https://bbs.sgamer.com/thread-14172261-1-1.html
 
 萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特萨特
 
+
+
+*****
+
+####  seki_m  
+##### 14839#       发表于 2022-8-19 11:00
+
+ti6还是7那个树是方形的地图没入手感觉还蛮后悔的
+
+*****
+
+####  43453  
+##### 14840#       发表于 2022-8-19 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57128814&amp;ptid=2084957" target="_blank">哈曼的YY 发表于 2022-8-19 09:41</a>
+父亲
+
+https://bbs.sgamer.com/thread-14172261-1-1.html
+
+(出处: 超级玩家官方论坛)</blockquote>
+大神都回来了
+
+*****
+
+####  Lamapocos  
+##### 14841#       发表于 2022-8-19 11:01
+
+ti6最后悔的还是没直接充到军团不朽
+
+*****
+
+####  tasuku  
+##### 14842#       发表于 2022-8-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57130065&amp;ptid=2084957" target="_blank">seki_m 发表于 2022-8-19 11:00</a>
+
+ti6还是7那个树是方形的地图没入手感觉还蛮后悔的</blockquote>
+不朽庭院吧，入手方法楼上有说，有个什么鬼网站说是可以弄
+

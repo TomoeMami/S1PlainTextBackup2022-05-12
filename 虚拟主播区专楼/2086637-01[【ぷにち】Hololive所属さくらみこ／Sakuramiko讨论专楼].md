@@ -4139,3 +4139,14 @@ vc音质太差听不出来
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 404#         楼主| 发表于 2022-8-19 10:54
+
+别人是不是这样不知道，miko的直播是真的有时候你上个厕所回来就错过活了
+
+这个比真的是分分钟活找上门，昨天kanata和星街都是自己上门的
+
