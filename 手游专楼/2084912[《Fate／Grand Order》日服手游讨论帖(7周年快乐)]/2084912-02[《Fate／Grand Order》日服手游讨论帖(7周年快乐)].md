@@ -4751,3 +4751,24 @@ PS：我觉得芩那段点明马修自己的问题反而更具代表性，问了
 把建筑都给升到10级后打一把阴间本也才9万点数. ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">也就总共刷60多次就满了 要是60多次羁绊就能升级就好了
 
+
+
+*****
+
+####  kiralzb  
+##### 1922#       发表于 2022-8-19 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57136027&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-19 18:32</a>
+
+这活动点数除了把所有建筑都升到10级外还有办法提高加成么
+
+把建筑都给升到10级后打一把阴间本也才9万点数. ...</blockquote>
+我基本靠自然回体，现在都满了，还想要更多奖励呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1923#       发表于 2022-8-19 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是每100W给一个呼符 我TMD刷爆
+
