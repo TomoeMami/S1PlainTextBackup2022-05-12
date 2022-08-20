@@ -276,3 +276,21 @@ v社真是脸都不要了，还不出本子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议学管人区小号开楼防止楼主进去。
 
+
+
+*****
+
+####  恐怖利刃  
+##### 15031#       发表于 2022-8-20 12:03
+
+以前每年ti都有一个专楼的
+
+*****
+
+####  lyjssj  
+##### 15032#       发表于 2022-8-20 12:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好极了，这个楼下一次更名的时候,TI11冠军都已经决出一个月了
+
+还是整个新楼吧
+
