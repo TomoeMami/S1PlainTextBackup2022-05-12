@@ -374,3 +374,12 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172456&amp;fromguid=ne
 
 进去的频率有点高了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 15042#       发表于 2022-8-20 13:40
+
+能不能截个图，弱智SG每次都要验证手机，嫌麻烦
+
