@@ -503,3 +503,33 @@ nagi回归
 星团第二季我到现在都没看，连二创都不想点进去，恶心死我了。请问如何进行心理建设以让我可以重新开始看。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不去看的话就不好骂，骂不出来就会难受
 
+
+
+*****
+
+####  优妮可  
+##### 3047#       发表于 2022-8-20 17:24
+
+直播唠嗑不错，但在动画播之后，感觉弹幕要。。
+
+*****
+
+####  aoaoaodedede  
+##### 3048#       发表于 2022-8-20 17:27
+
+估计鲤鱼也抽不出其他啥时间吧，而且明天中午还有那个拼盘live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  crocccc  
+##### 3049#       发表于 2022-8-20 17:30
+
+星无佬是超人吧，重新配了之后感觉所有人都正常了
+
+*****
+
+####  稀勢のささ  
+##### 3050#       发表于 2022-8-20 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天至少是洗白回 （）
+

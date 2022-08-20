@@ -5124,3 +5124,28 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能其实是120+2000的陈sir
 
+
+
+*****
+
+####  exiaexa  
+##### 1951#       发表于 2022-8-20 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57147966&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 16:21</a>
+
+有没有可能其实是120+2000的陈sir</blockquote>
+我觉得隔壁不用陈sir论战的脸还是有的
+
+不然也太傻逼了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 1952#       发表于 2022-8-20 17:29
+
+卧槽前两天我们才在楼里说中原没消息，刚才随便刷了一下推，时隔5个月他终于动了一下
+
+甚至给人画了张专辑封面
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
