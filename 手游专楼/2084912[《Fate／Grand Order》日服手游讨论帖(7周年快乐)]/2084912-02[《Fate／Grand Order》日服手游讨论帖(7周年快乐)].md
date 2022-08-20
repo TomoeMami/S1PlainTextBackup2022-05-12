@@ -5149,3 +5149,35 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 甚至给人画了张专辑封面
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1953#       发表于 2022-8-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148694&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-20 17:27</a>
+
+我觉得隔壁不用陈sir论战的脸还是有的
+
+不然也太傻逼了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还是有几贴的 前几天大戏的时候看到过
+
+话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的高赞
+
+“刑部姬沉船的人绿卡时代掉队了吗”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来在隔壁眼里rba=刑部姬  震撼萌新一整年
+
+*****
+
+####  gpx234mqx  
+##### 1954#       发表于 2022-8-20 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148961&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 17:47</a>
+
+其实还是有几贴的 前几天大戏的时候看到过
+
+话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的 ...</blockquote>
+问题是rba算红拐啊
+
