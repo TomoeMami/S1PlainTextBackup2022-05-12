@@ -621,3 +621,12 @@ nagi回归
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3060#       发表于 2022-8-20 19:34
+
+鲤鱼姐真忙啊，演完summer sonic还要回家直播唠嗑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过也好，fanclub实在太收着了，没有直播说胡话有意思
+
