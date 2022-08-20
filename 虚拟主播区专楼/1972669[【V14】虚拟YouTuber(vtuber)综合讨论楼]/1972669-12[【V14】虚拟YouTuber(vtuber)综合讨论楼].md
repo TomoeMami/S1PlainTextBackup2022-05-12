@@ -5895,3 +5895,12 @@ VTA男团出道多久了跟金凤花好像只有MC虚空对话
 
 小视频好是好，感觉还是缺了点什么，不够养
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 17041#       发表于 2022-8-20 16:08
+
+小海牛太久没播了，今天这直播事故和obs拉扯了一个多小时了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
