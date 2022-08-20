@@ -954,3 +954,21 @@ Wings就解散了一次，你八王离婚都离两回了，好意思说我们？
 
 萧泓哔哔赖赖这么多，我拉娜娅呢，怎么还不开播
 
+
+
+*****
+
+####  a1370303  
+##### 15082#       发表于 2022-8-20 18:04
+
+管人痴被DC中出<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 15083#       发表于 2022-8-20 18:05
+
+破nmd次元壁，服务器都修不好的屑
+

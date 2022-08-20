@@ -549,3 +549,16 @@ nagi回归
 
 明天还是我生日，又有演出又有唠嗑下礼拜还有视频<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉快窒息…………
 
+
+
+*****
+
+####  ads147147  
+##### 3053#       发表于 2022-8-20 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148667&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-20 17:24</a>
+直播唠嗑不错，但在动画播之后，感觉弹幕要。。</blockquote>
+反正鲤鱼不能直接点评星的内容，我感觉问题不太大，除非花田真的整大活。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

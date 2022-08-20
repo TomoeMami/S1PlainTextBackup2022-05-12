@@ -5207,3 +5207,22 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 甚至给人画了张专辑封 ...</blockquote>
 他最近几年真的就是以半年单位失踪，偶尔冒了个泡也是去帮其他手游画官方同人图之类的事情，所以当时静谧灵衣出来时我已经很感动了，可能真的只是你月没offer而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1957#       发表于 2022-8-20 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149076&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-20 17:56</a>
+
+我感觉这句话的意思有之后可能会有强力真·绿拐出来？就像不行姬之后出了cba，当然贷款没啥意思就是了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行和绿拐有啥关系呢  色卡性能还在宝具里
+
+*****
+
+####  qixinno2  
+##### 1958#       发表于 2022-8-20 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不邢除了污染卡池外还有其他用么
+
