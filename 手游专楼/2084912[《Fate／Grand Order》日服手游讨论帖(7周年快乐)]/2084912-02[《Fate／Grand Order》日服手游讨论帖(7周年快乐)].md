@@ -4991,3 +4991,18 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 
 每日一发rba+1，三池rba3武则天2了，真实是四星比五星难抽，三个池子有2个都是五星比四星多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 1940#       发表于 2022-8-20 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然发现新人现在入坑挺爽的
+
+蓝卡捞个梅莉+酒吞+水艾，嫖个c呆好友就几乎横着走
+
+绿卡捞个rba+道满，狩猎本跟一些特殊本也能横着走
+
+然后一直攒石头到强势红卡或者直接xp抽卡就完美了
+

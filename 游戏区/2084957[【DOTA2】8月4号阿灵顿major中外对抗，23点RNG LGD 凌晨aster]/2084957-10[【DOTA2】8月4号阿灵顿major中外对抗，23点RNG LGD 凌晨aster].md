@@ -13996,3 +13996,17 @@ rnm，凌晨被粥批在叔叔家对话，说小狗出强袭是错误的，不�
 嗯了</blockquote>
 展开一哈啊
 
+
+
+*****
+
+####  IG.430  
+##### 15000#       发表于 2022-8-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57143277&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-20 08:56</a>
+“关于这场比赛，我能说什么...... 鉴于我参加过相当多的赛事，我会给这次赛事打5分 (满分10分)。PGL 的员 ...</blockquote>
+很喜欢csgo职业选手stewie2k一句话
+"""
+My bag is lost, ofc it's America.
+"""
+
