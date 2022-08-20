@@ -4623,3 +4623,20 @@ rust上线了，在zeta那
 
 一个排班表拖延症拖到周三才出，只遵守了周四的两个直播其中一个还改了时间，周五没直播，周六一个取消一个改时间，你这JB排班表有吊的意义？
 
+
+
+*****
+
+####  holoan  
+##### 448#         楼主| 发表于 2022-8-20 18:52
+
+<img src="https://img.saraba1st.com/forum/202208/20/185221s6ut4fgqmqgvfgqq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 18:52 上传
+
+外部出镜
+

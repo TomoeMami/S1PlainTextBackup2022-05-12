@@ -596,3 +596,28 @@ nagi回归
 
 我觉得问伤哪儿的更多，应该不需要担心，动画问题冲配音这儿来不就跟看电视剧电影的恶角不舒服去骂演员一样理亏？
 
+
+
+*****
+
+####  lj205  
+##### 3058#       发表于 2022-8-20 18:42
+
+ 本帖最后由 lj205 于 2022-8-20 18:46 编辑 
+
+这错字绝绝子
+
+不如问她明天音乐节感想吧
+
+*****
+
+####  player3960  
+##### 3059#       发表于 2022-8-20 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149704&amp;ptid=2078110" target="_blank">lj205 发表于 2022-08-20 18:42:59</a>
+这错字绝绝子
+
+不如问她明天音乐节感想吧</blockquote>问她和打铁有没有见到偶像彭薇薇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
