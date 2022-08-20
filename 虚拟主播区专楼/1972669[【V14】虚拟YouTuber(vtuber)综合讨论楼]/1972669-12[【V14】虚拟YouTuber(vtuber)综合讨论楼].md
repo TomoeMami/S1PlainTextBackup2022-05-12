@@ -5855,3 +5855,28 @@ uiさん想要坚持每月会限，实质复活？
 <img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h5cmlj2mkdj20x80imabt.jpg" referrerpolicy="no-referrer">
 <img src="http://tva4.sinaimg.cn/large/7c16af6bly1h5cmlo6qskj20xf0ikabv.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 17038#       发表于 2022-8-20 09:56
+
+还是遵从本心按年功序列发衣服，但感觉三期四期五期的衣服应该都好了
+
+*****
+
+####  毛头小希  
+##### 17039#       发表于 2022-8-20 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57138721&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-19 21:22</a>
+
+一周没有VTA，感觉精神上枯竭了，
+
+虽说没有谁的直播是特别有趣的那种，但是12班那种团体感像在看选秀，在选 ...</blockquote>
+我觉得这周更新的小视频都挺好的啊，平时没什么机会听到的VTA之间的相互对话可以直接听个够（不并不够）
+
+要是没有小视频的话要听他们对话就只有等到出道了或者出道都不一定有
+
+VTA男团出道多久了跟金凤花好像只有MC虚空对话
+

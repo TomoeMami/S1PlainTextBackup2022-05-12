@@ -5020,3 +5020,12 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 蓝卡捞个梅莉+酒吞+水艾，嫖个c呆好友就几乎横着走</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">乳公主了！
 
+
+
+*****
+
+####  kiralzb  
+##### 1942#       发表于 2022-8-20 09:58
+
+叶鸽鸽这波就是借公主热度拉一波新人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

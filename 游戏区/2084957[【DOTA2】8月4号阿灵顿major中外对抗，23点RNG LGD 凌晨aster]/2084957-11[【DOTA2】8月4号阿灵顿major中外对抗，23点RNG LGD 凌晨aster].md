@@ -39,3 +39,14 @@
 
 old chicken,dota2天才一号位，志在鼻得工作室创始人，邪恶35被关国内最大功臣，身怀六甲与肉山论剑亲历者，cme，余验志勇发明人，红鼻子海盗团团长，贴吧之子，少妇渴望者，电炎绝手唯一指定cp，新时代与旧时代的标杆鳖孙，227229直播间之主王志勇。
 
+
+
+*****
+
+####  tasuku  
+##### 15005#       发表于 2022-8-20 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦原来就是老鸡
+
+caonimadedaxuebi那位！
+
