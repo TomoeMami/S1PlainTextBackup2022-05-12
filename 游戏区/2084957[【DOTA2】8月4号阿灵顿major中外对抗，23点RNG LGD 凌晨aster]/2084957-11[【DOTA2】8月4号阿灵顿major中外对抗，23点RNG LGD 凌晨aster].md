@@ -1192,3 +1192,12 @@ sir,this way笑死人了
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  反方向的波  
+##### 15110#       发表于 2022-8-20 23:07
+
+徐林森不行啊topson都带不动
+

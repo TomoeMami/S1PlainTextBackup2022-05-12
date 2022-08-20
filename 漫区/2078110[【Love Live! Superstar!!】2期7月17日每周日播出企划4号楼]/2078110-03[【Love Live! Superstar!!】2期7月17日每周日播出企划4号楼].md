@@ -668,3 +668,20 @@ nagi回归
 
 就算讲估计鲤鱼也听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 3065#       发表于 2022-8-20 23:08
+
+这FC不行，怎么也不录个新的
+
+<img src="https://img.saraba1st.com/forum/202208/20/230756orku8dv77pkurr9r.png" referrerpolicy="no-referrer">
+
+<strong>AE9BD233-FA97-4D7D-9F29-E8775D31AFA2.png</strong> (149.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 23:07 上传
+
