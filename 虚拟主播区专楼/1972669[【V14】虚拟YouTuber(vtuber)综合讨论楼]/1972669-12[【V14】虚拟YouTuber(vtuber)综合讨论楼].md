@@ -6012,3 +6012,46 @@ ymn复出关永远留在虚拟世界的黛灰什么事<img src="https://static.s
 
 除非ymn再套皮回来整活或者堂堂正正用ymn身份和虹人联动<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17052#       发表于 2022-8-20 23:24
+
+ 本帖最后由 rzrbtk 于 2022-8-20 23:26 编辑 
+
+#不快女王时刻
+
+前情提要：昨天郡道在神域麻将南三局避路易斯听牌的西，最后路易斯自摸；
+
+大概七巡的时候郡就说了一句西/路易斯很可疑，按神域的五分钟延迟，能看到的牌还是上一局的，个人觉得是没有出千条件的；
+
+然后收到了质疑棉花糖（自作聪明程度和念左经网友差不多）
+
+<img src="https://img.saraba1st.com/forum/202208/20/231502hphoqpgmnqlxxzpx.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 027 - 郡道美玲🦙 在 Twitter_ _神域リーグも極まりすぎるとこんな.png</strong> (217.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 23:15 上传
+
+多井pro的stf应邀搞了个帅哥音朗读版，
+
+郡道受启发自己也念了还加了tag#郡道美玲毒マロチャレンジ（neta出道梗的#郡道美玲チャレンジ），
+
+天开（主办人）转推说想听工藤新一版本，
+
+几小时后：
+
+<img src="https://img.saraba1st.com/forum/202208/20/232116cgevzs4ex8a7e0s7.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 028 - 郡道美玲🦙 (@g9v9g_mirei) 的推文回复 _ Twitter - twitter..png</strong> (120.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 23:21 上传
+
+今天一想到这件事就笑容停不下来，我不要变成性格很差的坏人啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+

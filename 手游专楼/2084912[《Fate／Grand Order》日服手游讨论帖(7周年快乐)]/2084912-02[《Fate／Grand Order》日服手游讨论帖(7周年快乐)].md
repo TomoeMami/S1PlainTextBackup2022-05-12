@@ -5364,3 +5364,47 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泳装活动结束前大概还能抽个5发 有没有机会2宝伊师傅呢
 
+
+
+*****
+
+####  qixinno2  
+##### 1972#       发表于 2022-8-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153598&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 23:19</a>
+
+泳装活动结束前大概还能抽个5发 有没有机会2宝伊师傅呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又不知不觉豹跳了么
+
+*****
+
+####  霧谷藤乃  
+##### 1973#       发表于 2022-8-20 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153598&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 23:19</a>
+
+泳装活动结束前大概还能抽个5发 有没有机会2宝伊师傅呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧佬收收神通吧
+
+*****
+
+####  alucardcz  
+##### 1974#       发表于 2022-8-20 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153617&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-20 23:21</a>
+
+萌新又不知不觉豹跳了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">你的阅读理解能力越来越差了
+
+*****
+
+####  都谷捻柏  
+##### 1975#       发表于 2022-8-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57152961&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-8-20 22:25</a>
+
+那么老邢再来两次强化，色卡倍率调到和RBA一样强度，就没人说坏话了吧
+
+当初大公也是残疾，多次强化 ...</blockquote>
+那你要给我这种厨子来强化才行，让WYS来强化那是屁用没有
+
