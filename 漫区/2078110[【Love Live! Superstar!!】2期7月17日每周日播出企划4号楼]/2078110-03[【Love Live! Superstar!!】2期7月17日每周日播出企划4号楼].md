@@ -562,3 +562,19 @@ nagi回归
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  优妮可  
+##### 3054#       发表于 2022-8-20 18:22
+
+她不聊，弹幕sc会有刷的。
+
+*****
+
+####  kata魂  
+##### 3055#       发表于 2022-8-20 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那我就建议多刷点
+

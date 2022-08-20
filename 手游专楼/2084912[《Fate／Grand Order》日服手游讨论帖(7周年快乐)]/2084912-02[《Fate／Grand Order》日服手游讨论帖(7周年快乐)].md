@@ -5248,3 +5248,24 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 因为当时真的没绿拐嘛，只有武后能用，以至于当时见到一张新卡就说“这长得有点像录另” ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像 但她并不是啊（
 
+
+
+*****
+
+####  exiaexa  
+##### 1961#       发表于 2022-8-20 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149254&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-20 18:09</a>
+不邢除了污染卡池外还有其他用么</blockquote>
+答:几年见不到一次的骑阶无强化解除单挑本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  angelooo  
+##### 1962#       发表于 2022-8-20 18:26
+
+放过那个不行吧……
+

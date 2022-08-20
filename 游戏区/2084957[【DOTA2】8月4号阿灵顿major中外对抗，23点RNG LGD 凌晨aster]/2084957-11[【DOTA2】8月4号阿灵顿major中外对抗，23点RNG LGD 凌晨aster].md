@@ -981,3 +981,14 @@ Wings就解散了一次，你八王离婚都离两回了，好意思说我们？
 
 干TMD鸭头肉选个斯文，装TM最吊的
 
+
+
+*****
+
+####  walfeds  
+##### 15085#       发表于 2022-8-20 18:28
+
+溜了溜了，管人痴浓度太高了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
