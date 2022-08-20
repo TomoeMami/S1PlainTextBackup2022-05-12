@@ -5428,3 +5428,15 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 你游强化本越来越抠了，一年一次就算了，这次还只强化了两个五星
 
+
+
+*****
+
+####  qixinno2  
+##### 1978#       发表于 2022-8-21 05:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 23:27</a>
+
+你的阅读理解能力越来越差了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是抽到1宝才能2宝么
+

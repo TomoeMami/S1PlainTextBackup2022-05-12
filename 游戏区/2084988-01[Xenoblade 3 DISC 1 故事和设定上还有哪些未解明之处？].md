@@ -2510,3 +2510,40 @@ z是乐子人我倒觉得挺合理的，很符合他的设定。
 
 话说机神族的小孩不是几百年都是一个婴儿车的样子吗，怎么进化成兰兹这样了
 
+
+
+*****
+
+####  liekongzero  
+##### 219#       发表于 2022-8-21 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57154503&amp;ptid=2084988" target="_blank">skullgreymon 发表于 2022-8-21 00:46</a>
+
+话说机神族的小孩不是几百年都是一个婴儿车的样子吗，怎么进化成兰兹这样了 ...</blockquote>
+XB1那个几百年都不长大是有特殊原因的，有个支线就是解决这个问题
+
+*****
+
+####  Jietf  
+##### 220#       发表于 2022-8-21 03:11
+
+建议明年发售 XB3导剪版
+
+*****
+
+####  wyhman  
+##### 221#       发表于 2022-8-21 04:11
+
+话说请教一下，我在第七章做了大量支线，现在融了N救出梅利雅了，这主线剧情后面时间还长吗
+
+*****
+
+####  ParadiseMartyr  
+##### 222#       发表于 2022-8-21 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57155231&amp;ptid=2084988" target="_blank">wyhman 发表于 2022-8-21 04:11</a>
+话说请教一下，我在第七章做了大量支线，现在融了N救出梅利雅了，这主线剧情后面时间还长吗 ...</blockquote>
+进始源就没啥剧情了，打完这地图就通了
+后面就剩个最终boss了。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
