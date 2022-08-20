@@ -992,3 +992,12 @@ Wings就解散了一次，你八王离婚都离两回了，好意思说我们？
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tasuku  
+##### 15086#       发表于 2022-8-20 18:39
+
+国服这打起来比东南亚卡多了啊
+

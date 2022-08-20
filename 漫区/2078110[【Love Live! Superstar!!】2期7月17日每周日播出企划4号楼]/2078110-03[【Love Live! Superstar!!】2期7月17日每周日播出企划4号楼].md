@@ -578,3 +578,21 @@ nagi回归
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那我就建议多刷点
 
+
+
+*****
+
+####  player3960  
+##### 3056#       发表于 2022-8-20 18:33
+
+又有唠嗑好耶，反正鲤鱼不会回动画相关的啦，不如sc问点其他成员的事，说不定像上次那样又有爆言呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 3057#       发表于 2022-8-20 18:33
+
+我觉得问伤哪儿的更多，应该不需要担心，动画问题冲配音这儿来不就跟看电视剧电影的恶角不舒服去骂演员一样理亏？
+
