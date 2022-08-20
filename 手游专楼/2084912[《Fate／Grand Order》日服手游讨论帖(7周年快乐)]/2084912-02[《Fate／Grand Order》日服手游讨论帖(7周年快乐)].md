@@ -5290,3 +5290,22 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁好像很看不起狂娜? 还是云的人太多?  居然有人说113翻车率7%  不少人连无礼装能2发宝具都知道   惨 狂娜 惨
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 1965#       发表于 2022-8-20 19:14
+
+刑部，你就是不行.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 1966#       发表于 2022-8-20 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149864&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 18:58</a>
+
+隔壁好像很看不起狂娜? 还是云的人太多?  居然有人说113翻车率7%  不少人连无礼装能2发宝具都知道   ...</blockquote>
+隔壁基本是宇宙凛-陈宫-摩根吹为首吧..反正论坛虚空pvp不要钱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
