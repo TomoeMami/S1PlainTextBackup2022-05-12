@@ -13978,3 +13978,21 @@ rnm，凌晨被粥批在叔叔家对话，说小狗出强袭是错误的，不�
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  Litccc  
+##### 14998#       发表于 2022-8-20 09:12
+
+小狗这版本被剑圣完爆，要不直接把3技能换成臂章吧，这样就可以裸电锤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maju3  
+##### 14999#       发表于 2022-8-20 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140950&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-19 23:31</a>
+嗯了</blockquote>
+展开一哈啊
+

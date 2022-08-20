@@ -4982,3 +4982,12 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 那仨是以空境联动的名义
 公主目前半个字都没提过月姬联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 1939#       发表于 2022-8-20 09:18
+
+每日一发rba+1，三池rba3武则天2了，真实是四星比五星难抽，三个池子有2个都是五星比四星多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
