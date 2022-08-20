@@ -222,3 +222,57 @@ v社真是脸都不要了，还不出本子
 
 嗳，果然老年人就不要打大哥了，我要玩蓝胖！
 
+
+
+*****
+
+####  战狼PTSD  
+##### 15026#       发表于 2022-8-20 11:52
+
+这就是刀楼的宿命罢
+
+*****
+
+####  尸体鲨  
+##### 15027#       发表于 2022-8-20 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57140950&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-19 23:31</a>
+嗯了</blockquote>
+来点关键词
+
+*****
+
+####  战狼PTSD  
+##### 15028#       发表于 2022-8-20 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57145294&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-20 11:54</a>
+
+来点关键词</blockquote>
+就只有这个图，不是本子没关键词
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 尸体鲨| + 1|妈的，真过分|
+
+查看全部评分
+
+*****
+
+####  百世诸侯  
+##### 15029#       发表于 2022-8-20 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">TI预选开个新楼吧，用到新赛季DPC开始
+
+*****
+
+####  Yukino-Yukino  
+##### 15030#       发表于 2022-8-20 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议学管人区小号开楼防止楼主进去。
+
