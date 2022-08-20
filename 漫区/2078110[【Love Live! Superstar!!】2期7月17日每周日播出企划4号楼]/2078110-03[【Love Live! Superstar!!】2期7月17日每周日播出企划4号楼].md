@@ -491,3 +491,15 @@ nagi回归
 
 明天天气不错，最高不到30度，可能比之前南梦宫演出舒服些，昨晚鲤鱼宣传也包括明天的演出，看来目前来说还是按计划进行
 
+
+
+*****
+
+####  adw667  
+##### 3046#       发表于 2022-8-20 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57139818&amp;ptid=2078110" target="_blank">sjbssd 发表于 2022-8-19 22:18</a>
+
+星团第二季我到现在都没看，连二创都不想点进去，恶心死我了。请问如何进行心理建设以让我可以重新开始看。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不去看的话就不好骂，骂不出来就会难受
+

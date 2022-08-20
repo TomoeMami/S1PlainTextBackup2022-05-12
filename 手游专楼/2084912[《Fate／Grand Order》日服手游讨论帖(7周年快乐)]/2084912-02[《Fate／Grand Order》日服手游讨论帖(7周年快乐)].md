@@ -5108,3 +5108,19 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 那肯定不值得抽啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 1950#       发表于 2022-8-20 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57147959&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-20 16:19</a>
+
+你手握5宝仇凛，羁绊又没满，家里也没有矿的话
+
+那肯定不值得抽啊
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能其实是120+2000的陈sir
+
