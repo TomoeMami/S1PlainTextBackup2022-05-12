@@ -410,3 +410,28 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172456&amp;fromguid=ne
 
 司马粥畜皮套粉水人云玩家，还诬陷我是小蚂蚁。我可不会钻地，我只会出林肯😭
 
+
+
+*****
+
+####  nowaki  
+##### 15046#       发表于 2022-8-20 14:10
+
+杰畜为啥这么看不起ana，我只记得他是老鳖孙
+
+*****
+
+####  Kazepollar  
+##### 15047#       发表于 2022-8-20 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57146863&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-20 14:10</a>
+ 杰畜为啥这么看不起ana，我只记得他是老鳖孙</blockquote>
+因为他要喝水
+
+*****
+
+####  六娃  
+##### 15048#       发表于 2022-8-20 14:15
+
+这个版本打斧王就是以烂逼的思路去玩，裸bkb抱紧12大腿
+
