@@ -5226,3 +5226,25 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不邢除了污染卡池外还有其他用么
 
+
+
+*****
+
+####  katun  
+##### 1959#       发表于 2022-8-20 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149196&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 18:05</a>
+
+不行和绿拐有啥关系呢  色卡性能还在宝具里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为当时真的没绿拐嘛，只有武后能用，以至于当时见到一张新卡就说“这长得有点像录另”
+
+*****
+
+####  alucardcz  
+##### 1960#       发表于 2022-8-20 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57149313&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-20 18:15</a>
+
+因为当时真的没绿拐嘛，只有武后能用，以至于当时见到一张新卡就说“这长得有点像录另” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像 但她并不是啊（
+
