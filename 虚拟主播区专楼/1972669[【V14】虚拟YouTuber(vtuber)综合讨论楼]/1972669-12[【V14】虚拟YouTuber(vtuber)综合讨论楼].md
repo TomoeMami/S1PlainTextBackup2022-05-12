@@ -5904,3 +5904,19 @@ VTA男团出道多久了跟金凤花好像只有MC虚空对话
 
 小海牛太久没播了，今天这直播事故和obs拉扯了一个多小时了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 17042#       发表于 2022-8-20 19:55
+
+没看vspo瓦，妹妹那组是技不如人还是有战犯？不是夺冠大热吗
+
+*****
+
+####  FCCHua  
+##### 17043#       发表于 2022-8-20 19:59
+
+三个队都是一胜一负，没有人受伤的世界完成了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
