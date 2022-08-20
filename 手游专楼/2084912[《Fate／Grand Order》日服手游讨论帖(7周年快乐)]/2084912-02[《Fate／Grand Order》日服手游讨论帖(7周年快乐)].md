@@ -5344,3 +5344,14 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的 ...</blockquote>
 只看技能的话 确实可以把rba当作刑部姬的究极体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 1970#       发表于 2022-8-20 22:25
+
+那么老邢再来两次强化，色卡倍率调到和RBA一样强度，就没人说坏话了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+当初大公也是残疾，多次强化就强了不是
+
