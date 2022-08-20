@@ -5091,3 +5091,20 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 这个美国队长式的战斗模组很好看
 
+
+
+*****
+
+####  exiaexa  
+##### 1949#       发表于 2022-8-20 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57144822&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-20 11:18</a>
+
+隔壁都在伊吹不值得抽，你楼怎么还在给伊吹补宝
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+你手握5宝仇凛，羁绊又没满，家里也没有矿的话
+
+那肯定不值得抽啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
