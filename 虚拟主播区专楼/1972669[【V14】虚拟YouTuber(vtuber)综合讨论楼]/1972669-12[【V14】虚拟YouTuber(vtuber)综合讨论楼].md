@@ -5920,3 +5920,12 @@ VTA男团出道多久了跟金凤花好像只有MC虚空对话
 
 三个队都是一胜一负，没有人受伤的世界完成了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17044#       发表于 2022-8-20 20:26
+
+阿道在隔壁被轮着输出啊，真惨
+
