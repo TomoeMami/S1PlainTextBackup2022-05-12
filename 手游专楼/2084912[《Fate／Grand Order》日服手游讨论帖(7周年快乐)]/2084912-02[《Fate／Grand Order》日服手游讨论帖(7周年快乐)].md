@@ -5029,3 +5029,12 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 
 叶鸽鸽这波就是借公主热度拉一波新人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 1943#       发表于 2022-8-20 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干，拉加雷斯才发现这ATK下毒好厉害
+
