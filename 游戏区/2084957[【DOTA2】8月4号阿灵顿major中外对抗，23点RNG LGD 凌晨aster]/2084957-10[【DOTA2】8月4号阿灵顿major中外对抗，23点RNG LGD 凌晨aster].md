@@ -13952,3 +13952,29 @@ rnm，凌晨被粥批在叔叔家对话，说小狗出强袭是错误的，不�
 
 —— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  六娃  
+##### 14995#       发表于 2022-8-20 09:02
+
+这版本的lifestealer出什么都没用了
+
+*****
+
+####  nightmare902015  
+##### 14996#       发表于 2022-8-20 09:06
+
+哇这版本一号位就难玩，还一定要选被版本热门血马counter的小狗
+
+*****
+
+####  windhawind2  
+##### 14997#       发表于 2022-8-20 09:09
+
+看oc直播就是感觉他打c刷钱没问题很细 但一大团就发病 要么省bkb被一套按死要么队友打了半天了自己还在tpcd  好不容易团赢了一波自己冲高地四塔被反灭一波<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+倒是打酱油的节奏还行 不如转5吧 反正1骂5骂多了 这次5骂1应该也没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
