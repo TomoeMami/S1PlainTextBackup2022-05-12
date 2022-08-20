@@ -533,3 +533,19 @@ nagi回归
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天至少是洗白回 （）
 
+
+
+*****
+
+####  starring  
+##### 3051#       发表于 2022-8-20 17:35
+
+不知道明天的拼盘live有没有人转播
+
+*****
+
+####  lj205  
+##### 3052#       发表于 2022-8-20 17:40
+
+明天还是我生日，又有演出又有唠嗑下礼拜还有视频<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉快窒息…………
+
