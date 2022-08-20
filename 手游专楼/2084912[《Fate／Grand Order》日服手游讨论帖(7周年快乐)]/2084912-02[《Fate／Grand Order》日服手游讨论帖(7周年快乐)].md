@@ -5331,3 +5331,16 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 
 月r七成旧三成新吧
 
+
+
+*****
+
+####  eyeego  
+##### 1969#       发表于 2022-8-20 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148961&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 17:47</a>
+其实还是有几贴的 前几天大戏的时候看到过
+
+话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的 ...</blockquote>
+只看技能的话 确实可以把rba当作刑部姬的究极体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
