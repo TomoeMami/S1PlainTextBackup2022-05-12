@@ -648,3 +648,14 @@ nagi回归
 
 8点就睡觉，过期JK提早适应老年人养生生活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡辺梨加  
+##### 3063#       发表于 2022-8-20 22:01
+
+[【Liella!嘉宾Liyuu-广播沈黙の金曜日 8-19】](https://www.bilibili.com/video/BV1JP411j7QZ)
+
+听说鲤鱼姐要上沈金我就在期待会不会有什么名场面诞生，结果就只是普通的采访与宣传，明明鲤鱼姐登场前MC们还在拿人中当黄段子讲[【(中字)弓木奈于羞于露出人中】](https://www.bilibili.com/video/BV1Ra411V7Vq)<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
