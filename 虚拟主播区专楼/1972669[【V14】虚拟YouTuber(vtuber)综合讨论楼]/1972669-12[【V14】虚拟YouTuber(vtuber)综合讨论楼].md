@@ -5983,3 +5983,21 @@ somunia跟metro mew的声音真的蛮合，就是合唱起来有点分不清谁�
 
 还是我们虹女更pro一点捏，夜见和夏芽联动虽然确实有点虚无不过她俩很可爱就够了
 
+
+
+*****
+
+####  winda  
+##### 17049#       发表于 2022-8-20 22:11
+
+yamiem九月也有准备活动再开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近这虹毕业一个两个都转头复出了，真是悲伤不起来啊
+
+*****
+
+####  渡鸦骑士  
+##### 17050#       发表于 2022-8-20 22:16
+
+ 本帖最后由 渡鸦骑士 于 2022-8-20 22:17 编辑 
+
+22/7这个模型看起来挺能动挺可爱的啊（我怀疑是后期k的）……虽然后辈直接纸板好怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（眼神有点死）
+
