@@ -6001,3 +6001,14 @@ yamiem九月也有准备活动再开了<img src="https://static.saraba1st.com/im
 
 22/7这个模型看起来挺能动挺可爱的啊（我怀疑是后期k的）……虽然后辈直接纸板好怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（眼神有点死）
 
+
+
+*****
+
+####  fastary  
+##### 17051#       发表于 2022-8-20 22:55
+
+ymn复出关永远留在虚拟世界的黛灰什么事<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+除非ymn再套皮回来整活或者堂堂正正用ymn身份和虹人联动<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
