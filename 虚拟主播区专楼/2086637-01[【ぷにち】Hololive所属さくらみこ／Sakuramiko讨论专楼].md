@@ -4420,3 +4420,23 @@ polka拜访miko家
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 429#       发表于 2022-8-20 11:24
+
+明天要鸽了啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 430#         楼主| 发表于 2022-8-20 11:26
+
+是今天的不播移到明天
+
+我感觉干脆丢了别播了 又没数字又没什么好看的
+
