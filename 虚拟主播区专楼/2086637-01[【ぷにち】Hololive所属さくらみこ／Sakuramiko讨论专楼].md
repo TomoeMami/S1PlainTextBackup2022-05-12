@@ -4440,3 +4440,21 @@ polka拜访miko家
 
 我感觉干脆丢了别播了 又没数字又没什么好看的
 
+
+
+*****
+
+####  rs5621  
+##### 431#       发表于 2022-8-20 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">啊，那今晚的同步视听没了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 432#         楼主| 发表于 2022-8-20 11:35
+
+晚上有没有没说
+
