@@ -4398,3 +4398,25 @@ polka拜访miko家
 
 而且八字母画师多是男的，七字母是女的多
 
+
+
+*****
+
+####  holoan  
+##### 427#         楼主| 发表于 2022-8-20 11:19
+
+这周搞什么哦
+
+*****
+
+####  rs5621  
+##### 428#       发表于 2022-8-20 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57144700&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-20 11:09</a>
+还担心这有的没的，两者都不是一个系统的
+
+而且八字母画师多是男的，七字母是女的多 ...</blockquote>
+这个是在说啥
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

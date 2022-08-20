@@ -5047,3 +5047,14 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 
 月姬R这次哪有新人，杂志调查基本都是老害们的重复购买
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1945#       发表于 2022-8-20 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁都在伊吹不值得抽，你楼怎么还在给伊吹补宝
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
