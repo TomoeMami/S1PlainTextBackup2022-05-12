@@ -2501,3 +2501,12 @@ z是乐子人我倒觉得挺合理的，很符合他的设定。
 是meta要素吧，如果不是等级碾压的话，z还挺难打的，如果失败了还是回到标题画面，意思是整场游戏 ...</blockquote>
 2代也是一样的，打永劫失败就会回标题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  skullgreymon  
+##### 218#       发表于 2022-8-21 00:46
+
+话说机神族的小孩不是几百年都是一个婴儿车的样子吗，怎么进化成兰兹这样了
+
