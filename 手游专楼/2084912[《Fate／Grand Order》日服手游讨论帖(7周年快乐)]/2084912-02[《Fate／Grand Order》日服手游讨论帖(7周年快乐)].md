@@ -5006,3 +5006,17 @@ FTG游戏和手游是不同的啊...和手游<img src="https://static.saraba1st.
 
 然后一直攒石头到强势红卡或者直接xp抽卡就完美了
 
+
+
+*****
+
+####  areklose  
+##### 1941#       发表于 2022-8-20 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57143510&amp;ptid=2084912" target="_blank">新吾 发表于 2022-8-20 09:28</a>
+
+突然发现新人现在入坑挺爽的
+
+蓝卡捞个梅莉+酒吞+水艾，嫖个c呆好友就几乎横着走</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">乳公主了！
+
