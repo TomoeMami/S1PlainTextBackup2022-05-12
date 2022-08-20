@@ -88,3 +88,26 @@ caonimadedaxuebi那位！
 
 今天第一次解锁了虚灵刀和亡魂胸针的羁绊，对面TA人晕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CNFH1984  
+##### 15010#       发表于 2022-8-20 10:22
+
+草，斧王也太难了，我宁愿玩大鱼人……
+
+*****
+
+####  12481632  
+##### 15011#       发表于 2022-8-20 10:28
+
+又是没有本子的一天<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Damocles990609  
+##### 15012#       发表于 2022-8-20 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我本子呢。哦本子呢
+
