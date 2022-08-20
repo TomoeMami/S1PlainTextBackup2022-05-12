@@ -435,3 +435,32 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14172456&amp;fromguid=ne
 
 这个版本打斧王就是以烂逼的思路去玩，裸bkb抱紧12大腿
 
+
+
+*****
+
+####  UnhappyTails  
+##### 15049#       发表于 2022-8-20 15:04
+
+趁着没人开新楼宣传一下本楼在管人版分院
+
+管人痴含量为0 giegie真粉丝含量为100
+
+我作为楼主也将不断搬运贴吧和nga的集美言论供大家品鉴，等待大家的莅临<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 15050#       发表于 2022-8-20 15:04
+
+[https://bbs.saraba1st.com/2b/thread-2064223-4-1.html](https://bbs.saraba1st.com/2b/thread-2064223-4-1.html)
+
+*****
+
+####  chilno  
+##### 15051#       发表于 2022-8-20 15:07
+
+BB是什么弱智英雄，简直太适合我们哥哥了
+
+出个A打团就只需要xjb点然后不停QW就完了，堪称全dota最简单的英雄！
+
