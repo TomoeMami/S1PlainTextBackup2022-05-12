@@ -714,3 +714,24 @@ nagi回归
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">麻了
 
+
+
+*****
+
+####  ads147147  
+##### 3069#       发表于 2022-8-20 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153936&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-20 23:51</a>
+
+在群里聊天才知道，动画已经喜提7月bangumi倒数第二了………………麻了 ...</blockquote>
+？倒数第一是哪个神仙
+
+*****
+
+####  cybernetics31  
+##### 3070#       发表于 2022-8-20 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153981&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-20 23:54</a>
+？倒数第一是哪个神仙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">厕纸…………转生贤者的异世界生活………………
+
