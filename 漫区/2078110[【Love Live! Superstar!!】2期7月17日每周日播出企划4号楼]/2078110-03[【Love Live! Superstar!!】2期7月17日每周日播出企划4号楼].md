@@ -695,3 +695,22 @@ nagi回归
 <img src="https://p.sda1.dev/6/78532d1fa2b6926331b37c6104593680/Screenshot_20220820_233344.jpg" referrerpolicy="no-referrer">
 这难道是看衣服的尺码推测的吗
 
+
+
+*****
+
+####  靡宜  
+##### 3067#       发表于 2022-8-20 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153486&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-20 23:08</a>
+
+这FC不行，怎么也不录个新的</blockquote>
+生日快乐先。明年不知道会不会重录<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3068#       发表于 2022-8-20 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">麻了
+
