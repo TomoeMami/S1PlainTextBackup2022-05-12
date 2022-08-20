@@ -5181,3 +5181,29 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的 ...</blockquote>
 问题是rba算红拐啊
 
+
+
+*****
+
+####  katun  
+##### 1955#       发表于 2022-8-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148961&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-20 17:47</a>
+
+其实还是有几贴的 前几天大戏的时候看到过
+
+话说刚刚去隔壁看戏 看到有一个没抽到rba的讨论贴里的 ...</blockquote>
+我感觉这句话的意思有之后可能会有强力真·绿拐出来？就像不行姬之后出了cba，当然贷款没啥意思就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 1956#       发表于 2022-8-20 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57148712&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-20 17:29</a>
+
+卧槽前两天我们才在楼里说中原没消息，刚才随便刷了一下推，时隔5个月他终于动了一下
+
+甚至给人画了张专辑封 ...</blockquote>
+他最近几年真的就是以半年单位失踪，偶尔冒了个泡也是去帮其他手游画官方同人图之类的事情，所以当时静谧灵衣出来时我已经很感动了，可能真的只是你月没offer而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
