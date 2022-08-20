@@ -5281,3 +5281,12 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 答:几年见不到一次的骑阶无强化解除单挑本</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就是没用吗 我去年外到后至今技能还是111在仓库吃灰
 
+
+
+*****
+
+####  alucardcz  
+##### 1964#       发表于 2022-8-20 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁好像很看不起狂娜? 还是云的人太多?  居然有人说113翻车率7%  不少人连无礼装能2发宝具都知道   惨 狂娜 惨
+
