@@ -1044,3 +1044,248 @@ WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://s
 
 被自己菜醒.jpg
 
+
+
+*****
+
+####  ads147147  
+##### 3101#       发表于 2022-8-21 18:13
+
+因为自己太菜所以没什么追求，就去追求钱。。。
+
+什么干巧。。
+
+还有这个配音真的灾难，煽情都煽不起来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 3102#       发表于 2022-8-21 18:13
+
+我看是分还不够低
+
+*****
+
+####  JustW_3  
+##### 3103#       发表于 2022-8-21 18:14
+
+呃呃，我知道编剧想表达什么，但……先不评价好了
+
+*****
+
+####  仟音一心  
+##### 3104#       发表于 2022-8-21 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161112&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-21 18:13</a>
+因为自己太菜所以没什么追求，就去追求钱。。。
+
+什么干巧。。</blockquote>
+CEO的U咩，是飞电或人。
+
+*****
+
+####  普之舜舜  
+##### 3105#       发表于 2022-8-21 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161112&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-21 18:13</a>
+因为自己太菜所以没什么追求，就去追求钱。。。
+
+什么干巧。。</blockquote>
+。。。。
+
+—— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3106#       发表于 2022-8-21 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161134&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-21 18:14</a>
+CEO的U咩，是飞电或人。</blockquote>
+我觉得觉悟还不如修玛吉亚走狗的u咩人。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  离心  
+##### 3107#       发表于 2022-8-21 18:15
+
+转变的有点快了，小妹妹
+
+*****
+
+####  stygian  
+##### 3108#       发表于 2022-8-21 18:16
+
+前半的搞笑段子还不错的，花田真的是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3109#       发表于 2022-8-21 18:16
+
+草，香哥哥叕来收人头了！
+
+*****
+
+####  离心  
+##### 3110#       发表于 2022-8-21 18:16
+
+来了，香音拉人了
+
+*****
+
+####  JustW_3  
+##### 3111#       发表于 2022-8-21 18:16
+
+香音的爹为了香音收人头，殚精竭虑啊
+
+*****
+
+####  寒风夜  
+##### 3112#       发表于 2022-8-21 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她来了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3113#       发表于 2022-8-21 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看得出编剧很努力想把爱钱设定合理化，同时又不想人设偏离学院偶像的强烈求生欲
+
+*****
+
+####  iuhehc  
+##### 3114#       发表于 2022-8-21 18:16
+
+k头的卡密 kanon
+
+*****
+
+####  cxj649  
+##### 3115#       发表于 2022-8-21 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我不知道要说什么了
+
+*****
+
+####  JustW_3  
+##### 3116#       发表于 2022-8-21 18:17
+
+好鸡掰突兀的拉人
+
+*****
+
+####  JustW_3  
+##### 3117#       发表于 2022-8-21 18:17
+
+樱小路好歹聊了两秒u咩，你香音怎么知道的
+
+*****
+
+####  starring  
+##### 3118#       发表于 2022-8-21 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">先放一个真飞鸟在这里，然后尽情ttk
+
+*****
+
+####  寒风夜  
+##### 3119#       发表于 2022-8-21 18:18
+
+企划的死命令了属于
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3120#       发表于 2022-8-21 18:19
+
+9命，太浪漫了我真的会谢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  JustW_3  
+##### 3121#       发表于 2022-8-21 18:20
+
+香音宋江说，提前知晓九个人是谁，所以敢直接赚人。被赚者也是上应天星，一赚就成。
+
+*****
+
+####  仟音一心  
+##### 3122#       发表于 2022-8-21 18:20
+
+感谢香音传重新唤起各位了01之后的U咩ptsd。<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 3123#       发表于 2022-8-21 18:20
+
+哈哈哈哈哈哈哈
+
+*****
+
+####  ads147147  
+##### 3124#       发表于 2022-8-21 18:20
+
+果然九人曲了。京极，花田，ntm，为什么，你怎么敢！
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 3125#       发表于 2022-8-21 18:21
+
+反正这集生肉看下来我是觉得比恋回烂
+
+*****
+
+####  离心  
+##### 3126#       发表于 2022-8-21 18:21
+
+新歌不错啊
+
+*****
+
+####  阿姆罗二世  
+##### 3127#       发表于 2022-8-21 18:21
+
+这下真的蚌埠住了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3128#       发表于 2022-8-21 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是接受不了樱小路的嗓子 等live吧
+
+*****
+
+####  JustW_3  
+##### 3129#       发表于 2022-8-21 18:21
+
+我之前竟然觉得s1e6的香音瞬移+转头入团live突兀，现在想想拉千入团那段的说服力还是有的（）
+
+*****
+
+####  仟音一心  
+##### 3130#       发表于 2022-8-21 18:22
+
+9人曲终于来了，仿佛能看到京极花田如释重负的表现。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3131#       发表于 2022-8-21 18:23
+
+土妹子妈的CV还真是大谷育江啊
+

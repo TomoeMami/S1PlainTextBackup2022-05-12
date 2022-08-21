@@ -5137,3 +5137,14 @@ miko自己也被骗了
 
 你就一辈子播箱游吧
 
+
+
+*****
+
+####  rs5621  
+##### 494#       发表于 2022-8-21 18:16
+
+这人满脑子都是rust了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
