@@ -798,3 +798,12 @@ Holy Peak官网：[https://holypeak.com/feed/](https://holypeak.com/feed/)
 
 除此之外，RSSHub上还有个love live官网NEWS页的RSS：[https://docs.rsshub.app/anime.ht ... n-wang-zui-xin-news](https://docs.rsshub.app/anime.html#lovelive-anime-love-live-guan-wang-zui-xin-news)
 
+
+
+*****
+
+####  lj205  
+##### 3076#       发表于 2022-8-21 10:51
+
+结果线上只有一半的歌，还好是试看期，晚点取消续费
+

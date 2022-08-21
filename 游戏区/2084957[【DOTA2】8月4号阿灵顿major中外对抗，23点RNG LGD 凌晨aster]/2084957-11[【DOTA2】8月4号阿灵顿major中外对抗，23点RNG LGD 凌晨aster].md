@@ -1325,3 +1325,19 @@ pom比冰女更像谷爱凌
 
 下周会更新本子吗，懒狗v社<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 15125#       发表于 2022-8-21 10:43
+
+核只核周四出
+
+*****
+
+####  Kazepollar  
+##### 15126#       发表于 2022-8-21 10:44
+
+我怎么觉得周二出
+
