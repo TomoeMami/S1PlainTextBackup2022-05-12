@@ -5451,3 +5451,12 @@ FTG游戏和手游是不同的啊...和手游</blockquote>
 你游强化本越来越抠了，一年一次就算了，这次还只强化了两个五星</blockquote>
 每年又不是只有周年才有强化
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 1980#       发表于 2022-8-21 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新了一个去年的水着池？
+
