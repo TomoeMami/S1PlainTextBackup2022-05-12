@@ -5506,3 +5506,12 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 又或者，搞不定日替机制就不复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 1986#       发表于 2022-8-21 19:10
+
+荚膜不赶在伊吹之前复刻，说明新阶段至少蓝光炮全寄了。
+

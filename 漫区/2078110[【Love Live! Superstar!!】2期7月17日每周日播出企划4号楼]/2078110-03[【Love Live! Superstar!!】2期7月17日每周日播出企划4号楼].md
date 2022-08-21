@@ -1688,3 +1688,122 @@ TMD，你以为你写的是faiz么 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 3178#       发表于 2022-8-21 19:02
+
+新歌和deco27那路子哪里像了。。。
+
+编的挺好但是主调还是liella老一套大调有点腻歪，本来听前奏我还挺惊喜的
+
+*****
+
+####  仟音一心  
+##### 3179#       发表于 2022-8-21 19:03
+
+UR叶月恋
+
+<img src="https://img.saraba1st.com/forum/202208/21/190306vo9696ppui186i1a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4E6A6C94-F606-4C98-9CFC-DA92F6FBFD7D.jpeg</strong> (191.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-21 19:03 上传
+
+*****
+
+####  adw667  
+##### 3180#       发表于 2022-8-21 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161587&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-21 18:52</a>
+生肉没看，看了一圈下来貌似又是生硬和强行的老问题了，也不知道大伙观感怎么样
+有坛友能讲 ...</blockquote>
+低配第一季第六集，我以为夏美对标的是堇的贪婪，没想到对标的是千的自闭<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+以及熟悉的香音tp以及轻快的曲风还有最后的一转入队真的很难让人不想起上一季第六集
+
+
+
+*****
+
+####  starring  
+##### 3181#       发表于 2022-8-21 19:04
+
+动画怎样都没所谓了，不如来看看鲤鱼直播唠嗑（虽然安定的迟到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 3182#       发表于 2022-8-21 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161707&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-21 19:03</a>
+UR叶月恋</blockquote>
+艹 这头像拼接上去的
+
+*****
+
+####  仟音一心  
+##### 3183#       发表于 2022-8-21 19:07
+
+看这位置怎么感觉CP已经分完了。
+
+<img src="https://img.saraba1st.com/forum/202208/21/190650mlid5539zd5xm99z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4B1421CA-DFC2-42F1-BDFA-B11F7DA1BCCD.jpeg</strong> (161.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-21 19:06 上传
+
+*****
+
+####  adw667  
+##### 3184#       发表于 2022-8-21 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161695&amp;ptid=2078110" target="_blank">renkan119 发表于 2022-8-21 19:01</a>
+一年级组跟不上训练的问题也没提了 最后就小千看一年级组训练视频人气挺高的 发了舞步给一年级组就没了… ...</blockquote>
+原来小千还给一年级安排了训练，真就分开练习安排好一切，这下更有s1e6的味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脚底心，洗则白  
+##### 3185#       发表于 2022-8-21 19:08
+
+看完了，翻了几楼，诸位的精神状态还好吗？我们很有可能已经撑过最黑暗的时光了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3186#       发表于 2022-8-21 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那复刻第八话由谁来承担
+
+*****
+
+####  仟音一心  
+##### 3187#       发表于 2022-8-21 19:10
+
+胶布依旧
+
+*****
+
+####  ViyViy  
+##### 3188#       发表于 2022-8-21 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161778&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-21 19:09</a>
+
+那第八话由谁来承担</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不出意外神津岛泳装回
+
+*****
+
+####  JustW_3  
+##### 3189#       发表于 2022-8-21 19:10
+
+至少本季已经不会有拉人情节了，谢天谢地
+
