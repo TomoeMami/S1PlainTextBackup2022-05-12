@@ -1704,3 +1704,14 @@ v社不会真ti预选前一天更新版本吧，那还挺带感的
 
 真要到9月再出的话，一个多月的时间能吸多少钱？，要超前ti奖金恐怕是要像ti10那种2个女性至宝一个性转身心的大本子才行吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a1370303  
+##### 15165#       发表于 2022-8-21 20:21
+
+富哥v60买一级本<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

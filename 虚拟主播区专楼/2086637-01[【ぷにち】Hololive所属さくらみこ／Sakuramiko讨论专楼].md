@@ -5259,3 +5259,21 @@ miko家又升级了怕是要通电了
 
 不谨慎了
 
+
+
+*****
+
+####  rs5621  
+##### 506#       发表于 2022-8-21 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是默认开会限了吧
+
+*****
+
+####  holoan  
+##### 507#         楼主| 发表于 2022-8-21 20:28
+
+开播前一分钟手动开的
+
+这个默认不了
+
