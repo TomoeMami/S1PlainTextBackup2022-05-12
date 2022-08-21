@@ -1341,3 +1341,19 @@ pom比冰女更像谷爱凌
 
 我怎么觉得周二出
 
+
+
+*****
+
+####  bluebaby  
+##### 15127#       发表于 2022-8-21 10:54
+
+牛就怕有玩意关你啊，什么发条宙斯，遇到了就毫无游戏体验。
+
+*****
+
+####  Litccc  
+##### 15128#       发表于 2022-8-21 10:56
+
+下周二esl开打，下下周预选赛开始，要么预选赛队伍吃屎要么办加esl的队伍吃屎<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
