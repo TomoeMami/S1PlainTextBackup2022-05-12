@@ -2224,3 +2224,14 @@ vn：我还没上车呢jpg
 下半年可能还有大活的样子，说是机密</blockquote>
 应该个活吧，最好是个活，ll这边巡演已经是最大的了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 3236#       发表于 2022-8-21 22:20
+
+肯定是个活，星团活动没必要特意提了，都是日程上的事情
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
