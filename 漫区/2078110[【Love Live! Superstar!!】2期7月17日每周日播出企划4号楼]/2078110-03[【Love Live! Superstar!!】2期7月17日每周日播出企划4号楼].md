@@ -807,3 +807,14 @@ Holy Peak官网：[https://holypeak.com/feed/](https://holypeak.com/feed/)
 
 结果线上只有一半的歌，还好是试看期，晚点取消续费
 
+
+
+*****
+
+####  player3960  
+##### 3077#       发表于 2022-8-21 11:09
+
+能顺利演完就好，这段时间太波折了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

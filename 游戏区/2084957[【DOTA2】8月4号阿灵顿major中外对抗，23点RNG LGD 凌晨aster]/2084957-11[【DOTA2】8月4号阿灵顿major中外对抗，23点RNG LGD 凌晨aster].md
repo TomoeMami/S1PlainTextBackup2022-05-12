@@ -1357,3 +1357,12 @@ pom比冰女更像谷爱凌
 
 下周二esl开打，下下周预选赛开始，要么预选赛队伍吃屎要么办加esl的队伍吃屎<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 15129#       发表于 2022-8-21 11:03
+
+盒中盒九月出
+
