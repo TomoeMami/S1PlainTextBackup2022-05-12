@@ -5148,3 +5148,14 @@ miko自己也被骗了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 495#         楼主| 发表于 2022-8-21 18:30
+
+miko在线，空投物资掉到miko家了，kanata去抢死了
+
+miko家又升级了怕是要通电了
+
