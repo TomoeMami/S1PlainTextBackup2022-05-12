@@ -1928,3 +1928,15 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 致远星了这下</blockquote>
 他还是从前那个少年没有一丝丝改变
 
+
+
+*****
+
+####  反方向的波  
+##### 15186#       发表于 2022-8-22 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57165776&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-22 01:56</a>
+惊了 去看了下版主夜饮潇湘的帖子 感觉说话真的很像中单光一
+致远星了这下</blockquote>
+超级超级巨大的火星
+
