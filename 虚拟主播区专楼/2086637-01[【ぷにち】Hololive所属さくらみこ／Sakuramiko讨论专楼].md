@@ -5501,3 +5501,14 @@ miko才是最强星永民
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可太变态了,主播被观众们24小时盯着有没有再恰独食
 
+
+
+*****
+
+####  a2276382  
+##### 532#       发表于 2022-8-22 00:33
+
+还觉得摄像头不够多  每个居住地 都放一个 官台24小时直播放着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2404,3 +2404,15 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 看来是上周太烂了，这周感觉比预想中的好点。 CEO的那个梦意外的有真实感。
 
+
+
+*****
+
+####  1q11  
+##### 3254#       发表于 2022-8-22 00:36
+
+ 本帖最后由 1q11 于 2022-8-22 00:38 编辑 
+
+编辑了 再看再说
+—— 来自 HUAWEI JAD-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
