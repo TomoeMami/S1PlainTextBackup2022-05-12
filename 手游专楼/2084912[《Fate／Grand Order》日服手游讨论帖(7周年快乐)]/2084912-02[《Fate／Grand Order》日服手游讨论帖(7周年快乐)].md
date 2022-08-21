@@ -5515,3 +5515,25 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 荚膜不赶在伊吹之前复刻，说明新阶段至少蓝光炮全寄了。
 
+
+
+*****
+
+####  alucardcz  
+##### 1987#       发表于 2022-8-21 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161791&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-21 19:10</a>
+
+荚膜不赶在伊吹之前复刻，说明新阶段至少蓝光炮全寄了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁肯定会说 你懂不懂厨力  这2个卡面能比吗
+
+*****
+
+####  都谷捻柏  
+##### 1988#       发表于 2022-8-21 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161812&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-21 19:12</a>
+
+隔壁肯定会说 你懂不懂厨力  这2个卡面能比吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我喜欢的卡和隔壁拼命黑的卡，以及反过来的情况，都快形成互补关系了
+

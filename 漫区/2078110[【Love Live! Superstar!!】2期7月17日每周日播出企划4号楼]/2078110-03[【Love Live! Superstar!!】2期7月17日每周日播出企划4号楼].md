@@ -1807,3 +1807,66 @@ UR叶月恋</blockquote>
 
 至少本季已经不会有拉人情节了，谢天谢地
 
+
+
+*****
+
+####  qratosone  
+##### 3190#       发表于 2022-8-21 19:13
+
+其实这集至少前半段还可以，中间CEO的部分多少有了点隔壁爷的影子，现在我越发不理解策划到底是怎么样的神奇脑回路非要硬点香音拉人……
+
+*****
+
+####  cybernetics31  
+##### 3191#       发表于 2022-8-21 19:16
+
+鱼瘦了6斤，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3192#       发表于 2022-8-21 19:18
+
+💫CD情报💫
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+第6话挿入歌
+
+「ビタミンSUMMER！」を収録♪
+
+挿入歌シングル第二弾は
+
+9/21（水）発売🌟
+
+【A盘】のジャケットも公开💫
+
+商品情报はこちら
+
+▶️[https://www.lovelive-anime.jp/yuigaoka/music/cd22.php](https://www.lovelive-anime.jp/yuigaoka/music/cd22.php)
+<img src="https://p.sda1.dev/6/9fb72edc40a5744d97438a10e295b738/20220821_191741.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3193#       发表于 2022-8-21 19:19
+
+大致弱鱼
+
+*****
+
+####  starring  
+##### 3194#       发表于 2022-8-21 19:20
+
+“小百合为什么坐我怀里”“没有啊”
+
+这人做了的事不承认啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 3195#       发表于 2022-8-21 19:21
+
+看来封口令解除了
+

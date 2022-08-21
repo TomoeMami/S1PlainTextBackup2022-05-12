@@ -1561,3 +1561,31 @@ pom比冰女更像谷爱凌
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  acg_s1  
+##### 15151#       发表于 2022-8-21 19:13
+
+漏油在痛宰低分狗，我作为低分狗被痛宰，令人感叹
+
+*****
+
+####  莉拉厨  
+##### 15152#       发表于 2022-8-21 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57129838&amp;ptid=2084957" target="_blank">莉拉厨 发表于 2022-8-19 10:47</a>
+
+刚发了半狗奖金，今年打算充到1000拿盾
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 S1Next ...</blockquote>
+后续：笔记本突然坏了<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">，用了八年不打算修了，换新！今年买个一级本意思一下，lgd没夺冠再充到200级
+
+*****
+
+####  Litccc  
+##### 15153#       发表于 2022-8-21 19:18
+
+富哥们v我50
+
