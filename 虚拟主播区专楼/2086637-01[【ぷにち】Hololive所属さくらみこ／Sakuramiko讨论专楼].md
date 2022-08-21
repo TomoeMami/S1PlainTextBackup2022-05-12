@@ -5424,3 +5424,12 @@ miko今晚给星姐收割个痛快,飞机给玩炸,马被骑走,身上的物资�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">是的，还强调solo呢，solo就做好防御，被组队拆了又得干瞪眼。
 
+
+
+*****
+
+####  rs5621  
+##### 523#       发表于 2022-8-22 00:05
+
+监控装到星姐家旁了
+
