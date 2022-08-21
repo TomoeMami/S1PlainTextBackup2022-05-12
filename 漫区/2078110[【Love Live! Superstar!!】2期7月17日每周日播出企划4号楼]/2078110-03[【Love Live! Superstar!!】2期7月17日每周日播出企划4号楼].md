@@ -2139,3 +2139,31 @@ vn：我还没上车呢jpg
 
 草，今天朋友跟着一起看直播，评语就是“看着有点傻<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">”，我说本人也是这么评价
 
+
+
+*****
+
+####  cat1230  
+##### 3227#       发表于 2022-8-21 21:02
+
+路人突然看鲤鱼直播间的话只会惊讶这么多人为啥要给这么无聊的主播上舰，疯了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qratosone  
+##### 3228#       发表于 2022-8-21 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57163007&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-21 20:54</a>
+
+草，今天朋友跟着一起看直播，评语就是“看着有点傻”，我说本人也是这么评价 ...</blockquote>
+憨憨鱼的形象深入人心
+
+*****
+
+####  player3960  
+##### 3229#       发表于 2022-8-21 21:08
+
+鲤鱼还是那么憨的让人放心，今天直播信息量还蛮多的，车祸没伤到骨头只有皮外伤，队友有寄水果慰问，有提到菜宝，打铁，还有nagi，最绝的是关于打铁那几条，是真敢念啊，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

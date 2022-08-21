@@ -5564,3 +5564,17 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我没石头了 躺了
 
+
+
+*****
+
+####  alucardcz  
+##### 1992#       发表于 2022-8-21 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57162423&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-21 20:02</a>
+
+......还真的不复刻活动直接开池子啊
+
+然而没石头了......和我没关系....告辞～ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有2小时你就有3石了
+
