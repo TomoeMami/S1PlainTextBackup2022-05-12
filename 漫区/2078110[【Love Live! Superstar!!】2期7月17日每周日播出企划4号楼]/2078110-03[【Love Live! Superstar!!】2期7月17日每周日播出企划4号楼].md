@@ -899,3 +899,28 @@ WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 3086#       发表于 2022-8-21 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57157338&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-21 12:10</a>
+
+折腾了半天那直播平台结果还是没看成，等大佬传档了
+
+—— 来自 S1Fun ...</blockquote>
+今天不少人都蹲微信看的直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3087#       发表于 2022-8-21 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57157338&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-21 12:10</a>
+折腾了半天那直播平台结果还是没看成，等大佬传档了
+
+—— 来自 S1Fun ...</blockquote>
+直接注册下载个app就能看了啊，回头取消订阅就行
+
