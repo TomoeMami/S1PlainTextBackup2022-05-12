@@ -2579,3 +2579,16 @@ XB1那个几百年都不长大是有特殊原因的，有个支线就是解决�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  pandaman7777  
+##### 225#       发表于 2022-8-21 13:50
+
+没错，主线真的就说了个寂寞，尼亚和美里雅都是通关后才能去收的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+和1-2的联系，设定的情况，老角色的情况交代少得可怜
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
