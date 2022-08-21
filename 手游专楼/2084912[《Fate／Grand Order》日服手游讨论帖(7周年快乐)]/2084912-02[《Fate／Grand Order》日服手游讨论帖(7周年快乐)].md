@@ -5546,3 +5546,21 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 怎么还有池子的，石头是大风吹来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 1990#       发表于 2022-8-21 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">......还真的不复刻活动直接开池子啊
+
+然而没石头了......和我没关系....告辞～
+
+*****
+
+####  qixinno2  
+##### 1991#       发表于 2022-8-21 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我没石头了 躺了
+
