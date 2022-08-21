@@ -1366,3 +1366,12 @@ pom比冰女更像谷爱凌
 
 盒中盒九月出
 
+
+
+*****
+
+####  六娃  
+##### 15130#       发表于 2022-8-21 11:28
+
+刚打了一把分身冰眼大晕血辣蝴蝶银月的幽鬼，后期没荒芜对着莲花冰甲sk搓了快十秒才搓死，感觉这英雄只有出圣剑才能拯救了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
