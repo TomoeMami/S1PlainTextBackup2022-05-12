@@ -1937,3 +1937,23 @@ vn：我还没上车呢jpg
 
 "和菜宝出去玩也没有刷睫毛，太懒了。"<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 3203#       发表于 2022-8-21 19:44
+
+间谍过家家的cos要等到什么时候，感觉马上live排练什么就忙起来了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名津流  
+##### 3204#       发表于 2022-8-21 19:48
+
+约尔、阿妮亚、蕾塞，liyuu直播中画的cos饼已经欠下三个了
+
+应该来个人跟台长一样，每个投稿下都发帖提醒一下她欠的账
+
