@@ -5295,3 +5295,14 @@ miko家又升级了怕是要通电了
 
 这终于拿出梯子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 510#         楼主| 发表于 2022-8-21 21:30
+
+说设机枪的话有好有不好别人也不会接近了
+
+确实
+

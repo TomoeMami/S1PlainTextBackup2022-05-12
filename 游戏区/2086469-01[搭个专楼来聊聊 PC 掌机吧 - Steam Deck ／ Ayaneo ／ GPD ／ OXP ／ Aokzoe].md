@@ -1095,3 +1095,23 @@ Taki 的 5825u Ayaneo Air Pro 评测视频出来了。
 越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理 ...</blockquote>
 我就关心MGS4运行效果如何，Youtube上有人发了视频，不怎么理想。PW一样的20帧万岁水平
 
+
+
+*****
+
+####  bypass  
+##### 95#         楼主| 发表于 2022-8-21 21:30
+
+ 本帖最后由 bypass 于 2022-8-21 21:31 编辑 
+
+5560u 的 Air Pro 反倒是最慢的。
+
+image.png
+(204.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-21 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202208/21/212939cp0pos1vyw09avs2.png" referrerpolicy="no-referrer">
+
