@@ -1550,3 +1550,14 @@ pom比冰女更像谷爱凌
 
 漏油在痛宰低分狗，我作为低分狗被痛宰，令人感叹
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 15150#       发表于 2022-8-21 18:35
+
+估计esl打完更新了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要过高期待度假社
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1498,3 +1498,76 @@ TMD，你以为你写的是faiz么 ...</blockquote>
 
 看完生肉竟然被这话烂笑了，什么U咩人，什么阴魂不散的香哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 3157#       发表于 2022-8-21 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161352&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-21 18:31</a>
+
+有好几次，你感觉编剧都已经把A拉B入团的铺垫都打好了，就差拉了，然后香音空降收人头，我……难道是大人的 ...</blockquote>
+想起szb访谈说龙骑洋芋不能输<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CharlieZ-  
+##### 3158#       发表于 2022-8-21 18:34
+
+这是咋洗白的，没有啥事件自己突然就顿悟了吗
+
+真的是烂中烂活
+
+*****
+
+####  稀勢のささ  
+##### 3159#       发表于 2022-8-21 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真有人觉得戏份多人气就会高的 前两天战吧还有人问为什么卒给沙皇加了那么多戏还是没人气
+
+*****
+
+####  寒风夜  
+##### 3160#       发表于 2022-8-21 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161389&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-8-21 18:34</a>
+
+这是咋洗白的，没有啥事件自己突然就顿悟了吗
+
+真的是烂中烂活</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回忆杀 
+
+*****
+
+####  JustW_3  
+##### 3161#       发表于 2022-8-21 18:36
+
+ 本帖最后由 JustW_3 于 2022-8-21 18:40 编辑 
+<blockquote>CharlieZ- 发表于 2022-8-21 18:34
+这是咋洗白的，没有啥事件自己突然就顿悟了吗
+
+真的是烂中烂活</blockquote>
+我的理解是樱小路说的肺腑之言让ceo良心发作，做梦想起自己不是没有u咩而是因为太菜以前的u咩都破灭了才变成如今的money人，所以让并不菜的一年生三人好好追求自己的u咩
+
+这部分差了口气，表现力不行，和上一集相比转折太快，但逻辑还通，能看出编剧的求生欲。直到樱小路拉ceo无果后香音天降大谈u咩……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让ceo良心发作的是樱小路，和ceo谈起u咩的是樱小路，为什么收人头的是没聊过几句的香音
+
+*****
+
+####  Enakina  
+##### 3162#       发表于 2022-8-21 18:36
+
+你笑香音蠢，不看就签合同。香音笑你看不透，小小ceo，根本就是囊中之物，你以为被坑了？让她连合同带人都赔进来了
+
+*****
+
+####  寒风夜  
+##### 3163#       发表于 2022-8-21 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161419&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-21 18:36</a>
+
+我的理解是樱小路说的肺腑之言让ceo良心发作，做梦想起自己不是没有u咩而是因为太菜以前的u咩都破灭了才变 ...</blockquote>
++1 看着都没感觉
+
