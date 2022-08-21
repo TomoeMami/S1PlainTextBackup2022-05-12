@@ -1265,3 +1265,19 @@ ana的复建路任重道远啊，不过东南亚鱼塘也就23那队还有点战
 
 白牛小牛屠夫土猫小小给你点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 15118#       发表于 2022-8-21 10:08
+
+如果你不能接收天梯型四号位，那就去调整
+
+*****
+
+####  12481632  
+##### 15119#       发表于 2022-8-21 10:09
+
+建议打不过就加入<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
