@@ -5578,3 +5578,15 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 然而没石头了......和我没关系....告辞～ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有2小时你就有3石了
 
+
+
+*****
+
+####  森兰丸  
+##### 1993#       发表于 2022-8-21 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57163057&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-21 21:00</a>
+
+还有2小时你就有3石了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">萌新还不如来帮我算算还要多久才能有保底的石头
+
