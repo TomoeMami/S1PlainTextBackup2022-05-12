@@ -1494,3 +1494,14 @@ pom比冰女更像谷爱凌
 
 奇迹esl不打了，磨合的机会又少一个啊，更担心预选了
 
+
+
+*****
+
+####  莉拉厨  
+##### 15144#       发表于 2022-8-21 16:20
+
+漏油在痛宰低分狗，我作为低分狗被痛宰，令人感叹
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
