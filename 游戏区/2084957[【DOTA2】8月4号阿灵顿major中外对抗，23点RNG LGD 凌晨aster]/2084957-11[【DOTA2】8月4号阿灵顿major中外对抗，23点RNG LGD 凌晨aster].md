@@ -1840,3 +1840,25 @@ boom打polaris都能打满5局的吗<img src="https://static.saraba1st.com/image
 说说思路</blockquote>
 电锤分身魔晶晕锤跳刀啊，转进去卖给队友爹开视野
 
+
+
+*****
+
+####  百世诸侯  
+##### 15178#       发表于 2022-8-21 23:50
+
+<img src="https://img.saraba1st.com/forum/202208/21/235049bxnehqcpfufqfp19.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-21 23:50 上传
+
+*****
+
+####  战狼PTSD  
+##### 15179#       发表于 2022-8-21 23:52
+
+怎么还有人在玩怀旧服的，快跑
+
