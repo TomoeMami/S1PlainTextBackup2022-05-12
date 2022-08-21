@@ -6128,3 +6128,12 @@ syl 隔壁的怜也在新衣服回
 <img src="https://p.sda1.dev/6/987cc792a7a066737f5189d322e0c77f/IMG_CMP_75843572.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/0c62d0ebca58967df54908eff7b15d73/IMG_CMP_24408470.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 17061#       发表于 2022-8-21 20:36
+
+正统维阿模型不能共用那不还是维阿jp害的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一开始的艾因和ruki给的什么jb烂皮
+
