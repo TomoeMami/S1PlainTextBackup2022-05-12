@@ -2563,3 +2563,19 @@ XB1那个几百年都不长大是有特殊原因的，有个支线就是解决�
 —— 来自 S1Fun ...</blockquote>
 就这？感觉主线剧情说了个寂寞
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 224#       发表于 2022-8-21 12:54
+
+ 本帖最后由 ParadiseMartyr 于 2022-8-21 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57157569&amp;ptid=2084988" target="_blank">wyhman 发表于 2022-8-21 12:38</a>
+就这？感觉主线剧情说了个寂寞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊。就是打败乐子人sb编剧z的故事
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏着实就是为了第六章那个名场面那盘醋包的xb3这个游戏的饺子
+主要我觉得是，这作背了前两作剧情包袱，如果可以和前作隔绝的比较多的话，完全可以把填12世界融合坑的剧情和资源放在更有意思的收尾上(就像二代，和前作的联系稍微点一下就可以了，而不是像这一作一样需要花费心思)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
