@@ -5451,3 +5451,53 @@ miko今晚给星姐收割个痛快,飞机给玩炸,马被骑走,身上的物资�
 
 z?这下正义之师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qesto  
+##### 526#       发表于 2022-8-22 00:20
+
+嗨呀，防御做完善了，别人就不一定来了，别总用游戏脑思考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主播还是得追求效果
+
+*****
+
+####  holoan  
+##### 527#         楼主| 发表于 2022-8-22 00:24
+
+我刚才说过了啊，你设置自动炮塔最后结果就是没人来你家
+
+这个人还要运营商业航线呢怎么可能
+
+*****
+
+####  a2276382  
+##### 528#       发表于 2022-8-22 00:25
+
+miko的这个监控 24小时直播放着吧 正好可以看哪些人吃独食<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 529#         楼主| 发表于 2022-8-22 00:26
+
+刚才有人提议运营拿一个游戏内帐号授权这些摄像头开一个24小时窗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 530#         楼主| 发表于 2022-8-22 00:27
+
+这下​星待ち了
+
+miko才是最强星永民
+
+*****
+
+####  rs5621  
+##### 531#       发表于 2022-8-22 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可太变态了,主播被观众们24小时盯着有没有再恰独食
+
