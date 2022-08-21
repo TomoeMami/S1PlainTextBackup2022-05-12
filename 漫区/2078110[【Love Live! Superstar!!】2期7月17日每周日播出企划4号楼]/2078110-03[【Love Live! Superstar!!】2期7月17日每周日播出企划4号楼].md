@@ -2189,3 +2189,38 @@ vn：我还没上车呢jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 3232#       发表于 2022-8-21 21:45
+
+今晚的直播还是菜宝赢麻了，要是玩PC游戏可能就变成菜宝直播游戏的常客<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 3233#       发表于 2022-8-21 21:45
+
+下半年可能还有大活的样子，说是机密
+
+*****
+
+####  lj205  
+##### 3234#       发表于 2022-8-21 21:48
+
+今晚又增加COS的新债了
+
+说回动画，下一话是恋，然后还要合宿回，后面香音一回，VN一回，结局一回，啊这还有可可回咩？
+
+*****
+
+####  player3960  
+##### 3235#       发表于 2022-8-21 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57163535&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-21 21:45</a>
+
+下半年可能还有大活的样子，说是机密</blockquote>
+应该个活吧，最好是个活，ll这边巡演已经是最大的了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
