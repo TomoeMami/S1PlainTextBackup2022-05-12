@@ -1870,3 +1870,50 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 看来封口令解除了
 
+
+
+*****
+
+####  iuhehc  
+##### 3196#       发表于 2022-8-21 19:25
+
+鲤鱼捕捉的弹幕，自由起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 3197#       发表于 2022-8-21 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161799&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-21 19:10</a>
+至少本季已经不会有拉人情节了，谢天谢地</blockquote>
+vn：我还没上车呢jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3198#       发表于 2022-8-21 19:26
+
+鲤鱼：多说多错<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+真不是阴阳怪气吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 3199#       发表于 2022-8-21 19:30
+
+看来谷子卖的很好，，，，，<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3200#       发表于 2022-8-21 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说疫情耽误了太多
+
