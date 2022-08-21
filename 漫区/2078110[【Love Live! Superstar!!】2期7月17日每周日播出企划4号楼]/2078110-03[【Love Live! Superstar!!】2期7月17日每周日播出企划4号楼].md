@@ -2098,3 +2098,35 @@ vn：我还没上车呢jpg
 
 有些节奏sc弹幕看到没读
 
+
+
+*****
+
+####  cybernetics31  
+##### 3222#       发表于 2022-8-21 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">捡捡漏草
+
+*****
+
+####  ads147147  
+##### 3223#       发表于 2022-8-21 20:44
+
+鲤鱼居然没打耳洞吗，什么好孩子。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 3224#       发表于 2022-8-21 20:44
+
+我没有耳朵
+
+*****
+
+####  ces轴承仨  
+##### 3225#       发表于 2022-8-21 20:45
+
+我没有耳洞。我有耳朵
+
