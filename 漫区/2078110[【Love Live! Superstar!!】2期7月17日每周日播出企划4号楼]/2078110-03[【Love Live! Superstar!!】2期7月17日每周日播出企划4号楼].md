@@ -2289,3 +2289,25 @@ vn：我还没上车呢jpg
 看了一下熟肉，逻辑是夏美小时候不同阶段有不同的梦想，结果都因为先天硬伤而不可能实现——前面两个梦想运 ...</blockquote>
 整天money money地喊，这集看来其实money才是最没所谓，只是鬼夏拿来掩饰自己放弃u咩的手段。结果上一集搞得鬼夏这角色跟money有什么仇怨那样。
 
+
+
+*****
+
+####  qratosone  
+##### 3242#       发表于 2022-8-21 23:04
+
+ 本帖最后由 qratosone 于 2022-8-21 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57164369&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-21 23:01</a>
+
+整天money money地喊，这集看来其实money才是最没所谓，只是鬼夏拿来掩饰自己放弃u咩的手段。结果上一集 ...</blockquote>
+这么敏感的设定，没整出堪比隔壁AS的大雷就已经算是平安落地了……最后香音拉人那段明摆着破罐子破摔了
+
+*****
+
+####  iuhehc  
+##### 3243#       发表于 2022-8-21 23:08
+
+r3还能有一次重生的机会，星动画拿什么救<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+懂了，让大家多看点中之人
+

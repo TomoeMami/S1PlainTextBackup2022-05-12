@@ -1803,3 +1803,19 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 OC的混子jugg真的很有用，等着队友带躺就完事</blockquote>
 说说思路<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 15174#       发表于 2022-8-21 23:03
+
+我当兵的兄弟的都冯特了，天天拿到手机就问我出没出本子，v🐍瞧瞧你干的好事 
+
+*****
+
+####  yyf奇遇记  
+##### 15175#       发表于 2022-8-21 23:06
+
+两天没上s1怎么你们楼都让撸狗抢过去建了，我新号[@情商](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=558397)  还没养好呢
+
