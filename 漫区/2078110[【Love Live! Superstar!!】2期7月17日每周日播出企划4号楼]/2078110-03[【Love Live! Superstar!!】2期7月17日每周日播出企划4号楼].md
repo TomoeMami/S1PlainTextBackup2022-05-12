@@ -2130,3 +2130,12 @@ vn：我还没上车呢jpg
 
 我没有耳洞。我有耳朵
 
+
+
+*****
+
+####  lj205  
+##### 3226#       发表于 2022-8-21 20:54
+
+草，今天朋友跟着一起看直播，评语就是“看着有点傻<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">”，我说本人也是这么评价
+
