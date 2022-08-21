@@ -2601,3 +2601,17 @@ XB1那个几百年都不长大是有特殊原因的，有个支线就是解决�
 
 3代要么就跟前作强联系要么就完全不联系是最好的，现在这样给前作人物和世界挖了坑但又只是蜻蜓点水一下就很难受，DLC不把这部分讲清楚的话就相当于狗尾续貂了个XB3把前两作圆满的故事破坏了
 
+
+
+*****
+
+####  wyhman  
+##### 227#       发表于 2022-8-21 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57157720&amp;ptid=2084988" target="_blank">ParadiseMartyr 发表于 2022-8-21 12:54</a>
+
+是啊。就是打败乐子人sb编剧z的故事
+
+这游戏着实就是为了第六章那个名场面那盘醋包的xb3这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 下午花了点时间打通了，只能说一言难尽，毫无终章结局体验
+
