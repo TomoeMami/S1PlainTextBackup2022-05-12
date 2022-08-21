@@ -1781,3 +1781,25 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 这就是关于TI11勇士令状推出的事情了，大家有什么想法呢，欢迎在评论区告诉小编一起讨论哦
 
+
+
+*****
+
+####  反方向的波  
+##### 15172#       发表于 2022-8-21 22:25
+
+TI11勇士令状推出是怎么回事呢？TI11勇士令状相信大家都很熟悉，但是TI11勇士令状推出是怎么回事呢，下面就让小编带大家一起了解吧。
+
+TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶TI11勇士令状怎么会推出呢？但事实就是这样，小编也感到非常惊讶。
+
+这就是关于TI11勇士令状推出的事情了，大家有什么想法呢，欢迎在评论区告诉小编一起讨论哦
+
+*****
+
+####  tasuku  
+##### 15173#       发表于 2022-8-21 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57163618&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-21 21:52</a>
+OC的混子jugg真的很有用，等着队友带躺就完事</blockquote>
+说说思路<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
+
