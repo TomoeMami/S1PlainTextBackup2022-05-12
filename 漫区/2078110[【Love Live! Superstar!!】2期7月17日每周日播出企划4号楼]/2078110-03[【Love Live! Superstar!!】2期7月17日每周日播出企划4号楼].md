@@ -2427,3 +2427,14 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  今城果天  
+##### 3256#       发表于 2022-8-22 03:23
+
+现在除了四季和可可都是被香音拉进去的吧，四季和芽衣绑定不谈，我现在觉得可可回国回一定也是香音来追，变相达成香音招募全员的成就
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

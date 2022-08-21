@@ -1893,3 +1893,38 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 刚看处长新歌，最伟大的亚军，我哭死😭
 
+
+
+*****
+
+####  a1370303  
+##### 15183#       发表于 2022-8-22 01:53
+
+狗头人新歌最伟大的亚军MV重置版，还改词了。基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一品堂官  
+##### 15184#       发表于 2022-8-22 01:56
+
+ 本帖最后由 一品堂官 于 2022-8-22 01:58 编辑 
+
+惊了 去看了下版主夜饮潇湘的帖子 感觉说话真的很像中单光一<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+致远星了这下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  woyzeck  
+##### 15185#       发表于 2022-8-22 03:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57165776&amp;ptid=2084957" target="_blank">一品堂官 发表于 2022-8-22 01:56</a>
+
+惊了 去看了下版主夜饮潇湘的帖子 感觉说话真的很像中单光一
+
+致远星了这下</blockquote>
+他还是从前那个少年没有一丝丝改变
+
