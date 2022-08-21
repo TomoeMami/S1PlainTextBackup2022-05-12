@@ -1819,3 +1819,12 @@ OC的混子jugg真的很有用，等着队友带躺就完事</blockquote>
 
 两天没上s1怎么你们楼都让撸狗抢过去建了，我新号[@情商](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=558397)  还没养好呢
 
+
+
+*****
+
+####  反方向的波  
+##### 15176#       发表于 2022-8-21 23:25
+
+boom打polaris都能打满5局的吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

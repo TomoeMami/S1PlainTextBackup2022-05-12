@@ -2320,3 +2320,14 @@ r3还能有一次重生的机会，星动画拿什么救<img src="https://static
 
 新插曲我给串到偶活那边去了
 
+
+
+*****
+
+####  player3960  
+##### 3245#       发表于 2022-8-21 23:24
+
+有点担心这个live的服装效果，感觉拼色有点过于丰富了，万一到时候有色差岂不是很丑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

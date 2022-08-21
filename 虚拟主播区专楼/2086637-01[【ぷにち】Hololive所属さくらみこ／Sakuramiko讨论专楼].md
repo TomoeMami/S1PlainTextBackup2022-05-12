@@ -5406,3 +5406,12 @@ miko今晚给星姐收割个痛快,飞机给玩炸,马被骑走,身上的物资�
 
 又抢了小聋子不少，这下不亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 521#       发表于 2022-8-21 23:25
+
+这miko,不造点机枪塔放家里防守箱子,哪天别人来拆家就只能干瞪眼,墙壁弄得再厚,被拆也是时间的问题.<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
