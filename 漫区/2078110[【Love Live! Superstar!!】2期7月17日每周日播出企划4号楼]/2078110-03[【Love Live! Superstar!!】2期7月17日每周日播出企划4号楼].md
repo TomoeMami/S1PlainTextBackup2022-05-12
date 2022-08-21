@@ -1597,3 +1597,94 @@ TMD，你以为你写的是faiz么 ...</blockquote>
 生肉没看，看了一圈下来貌似又是生硬和强行的**病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 有坛友能讲讲是个啥剧情吗
 
+
+
+*****
+
+####  lj205  
+##### 3167#       发表于 2022-8-21 18:52
+
+新歌咋样？跟朋友吃饭没留意
+
+*****
+
+####  ViyViy  
+##### 3168#       发表于 2022-8-21 18:53
+
+呃，这么看就剩2集了，神津岛那票都买好了必去的，如果有千回又占一集……
+
+有个人两季埋了近20集才混来个人回还可能因为导演和编剧已经进入宕机状态大崩特崩，我不说是谁。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 3169#       发表于 2022-8-21 18:56
+
+新歌看弹幕反应还行
+
+*****
+
+####  ads147147  
+##### 3170#       发表于 2022-8-21 18:56
+
+我觉得原计划是不可能有恋恋个人回的，估计是京极花田看到评分对恋恋进行的找补，但是有用吗？我是一辈子忘不掉香音当着全校人的面弄哭恋恋底下人还鼓掌的逆向eva大结局。
+
+第七集大概率也得捆cp来卖，大概率就是夏美了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 3171#       发表于 2022-8-21 18:56
+
+虽然我也只能看懂一部分，ceo那么爱钱的理由是不是没说，光说了干啥都失败，所以才只能赚钱了吗
+
+*****
+
+####  ads147147  
+##### 3172#       发表于 2022-8-21 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57161623&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-21 18:56</a>
+新歌看弹幕反应还行</blockquote>
+风格像璃奈，水平差一个档。。live分镜京极也没发挥出璃奈回live的nb之处，还是老样子的怼脸。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3173#       发表于 2022-8-21 18:57
+
+不说了 看鲤鱼直播（但是我得去相亲了。。。）
+
+*****
+
+####  starring  
+##### 3174#       发表于 2022-8-21 18:59
+
+新歌还是可以的，只是打歌服很丑，颜色又杂又乱还加了RGB灯带
+
+*****
+
+####  renkan119  
+##### 3175#       发表于 2022-8-21 18:59
+
+<blockquote>Enakina 发表于 2022-8-21 18:56
+虽然我也只能看懂一部分，ceo那么爱钱的理由是不是没说，光说了干啥都失败，所以才只能赚钱了吗 ...</blockquote>
+干啥都失败 然后想要钱养老 就提了这两点
+
+*****
+
+####  renkan119  
+##### 3176#       发表于 2022-8-21 19:01
+
+一年级组跟不上训练的问题也没提了 最后就小千看一年级组训练视频人气挺高的 发了舞步给一年级组就没了…
+
+*****
+
+####  cybernetics31  
+##### 3177#       发表于 2022-8-21 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
