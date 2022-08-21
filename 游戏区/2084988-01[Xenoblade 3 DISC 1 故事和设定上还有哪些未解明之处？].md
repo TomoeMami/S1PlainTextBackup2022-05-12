@@ -2615,3 +2615,14 @@ XB1那个几百年都不长大是有特殊原因的，有个支线就是解决�
 这游戏着实就是为了第六章那个名场面那盘醋包的xb3这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 下午花了点时间打通了，只能说一言难尽，毫无终章结局体验
 
+
+
+*****
+
+####  oskneo  
+##### 228#       发表于 2022-8-21 22:46
+
+时狱篇完结，天狱篇还有希望吗
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
