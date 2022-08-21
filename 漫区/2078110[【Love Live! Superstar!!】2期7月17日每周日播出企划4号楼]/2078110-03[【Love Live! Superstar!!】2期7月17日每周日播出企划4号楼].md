@@ -869,3 +869,22 @@ OP略过，上来就是NF，还是斗舞，不错不错
 
 WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3083#       发表于 2022-8-21 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57153936&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-20 23:51</a>
+
+在群里聊天才知道，动画已经喜提7月bangumi倒数第二了………………麻了 ...</blockquote>
+原来在bangumi那里已经倒数第二了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3084#       发表于 2022-8-21 11:56
+
+妈妈不愧是妈妈，下台前还特意交代大家喝水
+

@@ -5013,3 +5013,22 @@ rust应该是不会上了
 
 依然习惯非常差，上次rust直播延期一天也是，昨天的置顶评论不懂得在当天撤销掉，很多人今天来看误以为是明天才开播，永远也改不了的习惯，还不如不置顶
 
+
+
+*****
+
+####  holoan  
+##### 484#         楼主| 发表于 2022-8-21 11:54
+
+ 本帖最后由 holoan 于 2022-8-21 11:55 编辑 
+
+<img src="https://img.saraba1st.com/forum/202208/21/115424iql3el3gnnlen2e5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-21 11:54 上传
+
+看巧可rust直播
+
