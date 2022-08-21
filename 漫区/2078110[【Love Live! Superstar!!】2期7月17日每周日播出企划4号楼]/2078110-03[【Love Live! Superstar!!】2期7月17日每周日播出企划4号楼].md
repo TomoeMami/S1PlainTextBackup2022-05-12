@@ -949,3 +949,14 @@ WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://s
 原来在bangumi那里已经倒数第二了吗，有个网站记录了bangumi评分的变化，https://netaba.re/subje ...</blockquote>
 看了下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 片还没播加人情报一出来就喜提7分了
 
+
+
+*****
+
+####  愛さ実  
+##### 3090#       发表于 2022-8-21 14:32
+
+这收音真是烂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
