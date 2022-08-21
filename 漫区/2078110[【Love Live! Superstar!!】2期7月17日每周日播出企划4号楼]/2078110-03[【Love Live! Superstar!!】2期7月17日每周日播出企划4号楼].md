@@ -777,3 +777,24 @@ nagi回归
 另外吐槽一下国区Apple Music，去年星团的歌上的都还挺勤的，印象中除了一单少一个版本之外所有正式发行的 ...</blockquote>
 可以去PC区找人凑家庭计划
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3075#       发表于 2022-8-21 09:20
+
+试了试几个RSS的通用路径，找到了几个事务所官网之类提供的RSS，用RSS的坛友可以看看
+
+鲤鱼官网NEWS：[https://liyuu0109.com/news/feed](https://liyuu0109.com/news/feed)
+
+HoriPro International官网information：[http://www.horipro-international.com/information/feed](http://www.horipro-international.com/information/feed)
+
+Apollo Bay官网NEWS：[https://apollobay.jp/news/feed/](https://apollobay.jp/news/feed/)
+
+Holy Peak官网：[https://holypeak.com/feed/](https://holypeak.com/feed/)
+
+（前面这几个网站貌似可能都是基于WordPerss的）
+
+除此之外，RSSHub上还有个love live官网NEWS页的RSS：[https://docs.rsshub.app/anime.ht ... n-wang-zui-xin-news](https://docs.rsshub.app/anime.html#lovelive-anime-love-live-guan-wang-zui-xin-news)
+
