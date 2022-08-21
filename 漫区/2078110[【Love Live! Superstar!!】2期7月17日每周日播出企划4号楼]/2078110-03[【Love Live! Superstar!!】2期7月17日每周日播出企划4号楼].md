@@ -858,3 +858,14 @@ OP略过，上来就是NF，还是斗舞，不错不错
 
 打铁看着很累啊
 
+
+
+*****
+
+####  starring  
+##### 3082#       发表于 2022-8-21 11:46
+
+现场的收音不太好吧，好几句唱出来都没声音
+
+WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
