@@ -1917,3 +1917,23 @@ vn：我还没上车呢jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说疫情耽误了太多
 
+
+
+*****
+
+####  JustW_3  
+##### 3201#       发表于 2022-8-21 19:34
+
+<blockquote>ads147147 发表于 2022-8-21 19:25
+vn：我还没上车呢jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+忘了这茬了
+
+*****
+
+####  仟音一心  
+##### 3202#       发表于 2022-8-21 19:35
+
+"和菜宝出去玩也没有刷睫毛，太懒了。"<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

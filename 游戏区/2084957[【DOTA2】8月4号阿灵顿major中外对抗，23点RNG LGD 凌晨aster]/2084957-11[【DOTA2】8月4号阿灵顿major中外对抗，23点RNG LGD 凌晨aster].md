@@ -1598,3 +1598,14 @@ pom比冰女更像谷爱凌
 
 最划算的一般都是先互赠100级吧？低分猪都找不到好友互赠<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 15155#       发表于 2022-8-21 19:33
+
+奇迹哥是不是又拉肚子了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">vr玩多了吧
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
