@@ -937,3 +937,15 @@ WAWD这套衣服看着就觉得热，打铁的出汗量超大<img src="https://s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  寒风夜  
+##### 3089#       发表于 2022-8-21 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57157216&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-21 11:56</a>
+
+原来在bangumi那里已经倒数第二了吗，有个网站记录了bangumi评分的变化，https://netaba.re/subje ...</blockquote>
+看了下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 片还没播加人情报一出来就喜提7分了
+

@@ -2547,3 +2547,19 @@ XB1那个几百年都不长大是有特殊原因的，有个支线就是解决�
 后面就剩个最终boss了。
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  wyhman  
+##### 223#       发表于 2022-8-21 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57155236&amp;ptid=2084988" target="_blank">ParadiseMartyr 发表于 2022-8-21 04:15</a>
+
+进始源就没啥剧情了，打完这地图就通了
+
+后面就剩个最终boss了。
+
+—— 来自 S1Fun ...</blockquote>
+就这？感觉主线剧情说了个寂寞
+
