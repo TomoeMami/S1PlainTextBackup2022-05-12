@@ -5386,3 +5386,23 @@ miko家又升级了怕是要通电了
 
 原来是星姐,这下通吃了
 
+
+
+*****
+
+####  rs5621  
+##### 519#       发表于 2022-8-21 22:52
+
+ 本帖最后由 rs5621 于 2022-8-21 22:55 编辑 
+
+miko今晚给星姐收割个痛快,飞机给玩炸,马被骑走,身上的物资还给刮分.
+
+星姐打不过,现在也就能欺负下天哥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行,在天哥身上搜刮到不少东西
+
+*****
+
+####  qesto  
+##### 520#       发表于 2022-8-21 22:58
+
+又抢了小聋子不少，这下不亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
