@@ -2676,3 +2676,43 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 按这种说法，后面ll再出新角色也可以用“年龄+除了xx没有别的事能带来获得感”来将她的所作所为一笔勾销吗？
 我的看法是，夏美的所作所为确实是能用你的说法来解释的，但这并不能彻底消除夏美身上的“污点”。夏美想摆脱有些“不堪回首”的过去，还需要再做点什么才行，类似于“将功补过”
 
+
+
+*****
+
+####  离心  
+##### 3277#       发表于 2022-8-22 09:26
+
+ 本帖最后由 离心 于 2022-8-22 09:29 编辑 
+
+我觉得最大的惊喜就是ceo爱钱就是单纯的爱钱，没有什么贫穷啊、家里出事啊等外力因素。什么合同啊、利益啊根本不可能往深入讲的，顶死天了就是个推进剧情的噱头罢了。上周就有人讲其他校园偶像甚至职业偶像都没讲利益相关的问题，你星团还讲了。充满了铜臭味（笑）这周如果真的把这些烂账给你扯清楚那更容易踩雷更不是ll了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 3278#       发表于 2022-8-22 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167156&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-22 09:18</a>
+
+虽然可以用年龄解释，但这不就有种“她还只是个孩子呀”的感觉了吗？
+
+按这种说法，后面ll再出新角色也可 ...</blockquote>
+比如大手一挥把之前用liella赚来的米给恋恋氪UR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光宗薫  
+##### 3279#       发表于 2022-8-22 09:29
+
+夏美这个角色聪出场开始就是一money魔怔人的形象，句句不离钱，还舍得去干外卖和搬家这种苦活累活，爱财的人设立的非常稳。也是因此她是二期生里面观感最好的那个，毕竟苦逼打工人谁没共鸣。
+然后这集就给撕的粉碎，花田你既然想让夏美抛弃爱财人设那之前就算不留铺垫那也至少别用力那么猛行不行，现在整个一被耍了的感觉。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 3280#       发表于 2022-8-22 09:30
+
+看到推上有位同人作者奶的：香音曾经对堇说过“想要center就来抢吧”，那我追可可机也算抢大香老师的center吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无懈可击
+
