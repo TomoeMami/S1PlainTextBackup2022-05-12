@@ -5769,3 +5769,31 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 没有杂谈部分直接关了，不知道晚上播不播
 
+
+
+*****
+
+####  rs5621  
+##### 558#       发表于 2022-8-22 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170726&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-22 13:37</a>
+
+知道holocure更新了9号
+
+这就结束了？？？？？？？？？今天做了什么啊就抓了只猫吧 ...</blockquote>
+好像出了miko的角色，晚上回去体验一下
+
+*****
+
+####  holoan  
+##### 559#         楼主| 发表于 2022-8-22 14:15
+
+9号才更新
+
+*****
+
+####  rs5621  
+##### 560#       发表于 2022-8-22 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">9号啊，发现现在才22号，还得等好久。
+

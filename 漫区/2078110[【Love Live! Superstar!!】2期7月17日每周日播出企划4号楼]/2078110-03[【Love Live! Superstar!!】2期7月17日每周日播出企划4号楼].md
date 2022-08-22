@@ -2901,3 +2901,22 @@ ceo与其说给了理由不如说b part跳了世界线，a part还想当标题�
 ceo与其说给了理由不如说b part跳了世界线，a part还想当标题党赚钱，b part就只会u咩了，还能催一年级训练 ...</blockquote>
 人物塑造割裂式跳跃发展是星团动画不得不品的特色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3297#       发表于 2022-8-22 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170228&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-22 12:52</a>
+
+说实话，还不如把剧情写成夏美原来追逐的梦想都很花钱，每次追逐梦想都因为缺钱失败，星来拉人告 ...</blockquote>
+可可：嗯？（警觉）
+
+*****
+
+####  adw667  
+##### 3298#       发表于 2022-8-22 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这集真就“教育频道的节目不要在意那么多”，尬到抠出别墅了属于是
+
