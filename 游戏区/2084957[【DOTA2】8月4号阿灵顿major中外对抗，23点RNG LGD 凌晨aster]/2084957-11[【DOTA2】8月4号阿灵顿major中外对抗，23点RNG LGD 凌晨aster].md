@@ -2596,3 +2596,25 @@ v社总不能不给那些队伍研究新版本的时间就去打预选赛吧。<
 
 9月3号开，肯定9月2号更新啊。
 
+
+
+*****
+
+####  Kazepollar  
+##### 15260#       发表于 2022-8-22 20:10
+
+赌一瓶酒明天凌晨更新，没更新就喝瓶酒上班<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 15261#       发表于 2022-8-22 20:16
+
+<img src="https://img.saraba1st.com/forum/202208/22/201623hqon2r22ra47o3c2.jpg" referrerpolicy="no-referrer">
+
+<strong>lvdzocd8i8j91.jpg</strong> (178.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 20:16 上传
+
