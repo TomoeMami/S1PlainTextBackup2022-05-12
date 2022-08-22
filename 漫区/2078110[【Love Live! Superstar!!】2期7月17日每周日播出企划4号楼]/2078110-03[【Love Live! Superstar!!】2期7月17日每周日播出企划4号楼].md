@@ -3458,3 +3458,12 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 
 官方谷店真就没有校对是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3340#       发表于 2022-8-22 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观音涩谷 嗯
+
