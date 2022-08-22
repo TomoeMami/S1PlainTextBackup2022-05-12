@@ -5842,3 +5842,19 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 【＃６８】hololive presents ホロのRadio～私たちの歌をきけッ！（２０２２年７月１７日放送回）
 
+
+
+*****
+
+####  holoan  
+##### 565#         楼主| 发表于 2022-8-22 18:06
+
+25号出演holosummer官方番组
+
+*****
+
+####  holoan  
+##### 566#         楼主| 发表于 2022-8-22 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这星期又要摸几天了，一会收录一会身体不舒服一会官方番组
+

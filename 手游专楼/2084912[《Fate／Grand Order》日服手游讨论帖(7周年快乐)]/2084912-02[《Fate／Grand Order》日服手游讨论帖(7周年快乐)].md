@@ -5807,3 +5807,19 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动怎么还有1星期。。感觉结束前还能出一个羁绊石
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2015#       发表于 2022-8-22 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172649&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-22 16:03</a>
+
+说不缺素材的你们没抽夏露露和克姐吗
+
+这俩狗比一个72*3的仪式剑，一个72*3的忘却灰
+
+简直有毒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了，技能一个都没点
+

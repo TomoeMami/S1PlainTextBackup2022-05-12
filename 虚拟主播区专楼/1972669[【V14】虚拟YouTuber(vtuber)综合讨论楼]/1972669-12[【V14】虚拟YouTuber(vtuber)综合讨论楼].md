@@ -6255,3 +6255,16 @@ syl 根据运营说的，应该是擅长valo
 我真的不想看valo…<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 好像没啥毕业人在转生池里吧？
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17071#       发表于 2022-8-22 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57173856&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-8-22 17:30</a>
+从伊甸组开始圭利就每出一批新人搞一个突击采访视频了
+
+要不是莎皇爆火估计这视频还能出的更早，伊甸组~VTA ...</blockquote>
+好吧，确实关注的少。
+
