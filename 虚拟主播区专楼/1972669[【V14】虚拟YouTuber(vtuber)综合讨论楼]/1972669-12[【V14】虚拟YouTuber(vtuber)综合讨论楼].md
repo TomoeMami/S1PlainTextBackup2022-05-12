@@ -6219,3 +6219,29 @@ syl 隔壁的怜也在新衣服回
 vspo怎么又这么唐突出新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 syl 根据运营说的，应该是擅长valo
 
+
+
+*****
+
+####  毛头小希  
+##### 17069#       发表于 2022-8-22 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57173433&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-22 16:58</a>
+
+但是就算如此，用的是视频而不是直播也</blockquote>
+从伊甸组开始圭利就每出一批新人搞一个突击采访视频了
+
+要不是莎皇爆火估计这视频还能出的更早，伊甸组~VTA两个团都是出道一个月内就搞定
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|哦，委员长那个|
+
+查看全部评分
+
