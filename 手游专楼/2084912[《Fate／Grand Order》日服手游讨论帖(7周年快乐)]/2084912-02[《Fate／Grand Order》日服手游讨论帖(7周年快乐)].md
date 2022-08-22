@@ -5841,3 +5841,12 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我水着迦摩大概还有十万拿羁绊石，但我感觉刷不动
 
+
+
+*****
+
+####  miro112233  
+##### 2018#       发表于 2022-8-22 19:53
+
+看着瓦尔基里180个火药需求不说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着周年减半刷QP把仓管很久的项羽点了技能是我手贱
+
