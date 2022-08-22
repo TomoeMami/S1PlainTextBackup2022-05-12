@@ -5904,3 +5904,12 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 没动力，我一发十连出货的次数很少，基本都是准备较为充分然后惨胜（保底 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以一发一发抽（
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2024#       发表于 2022-8-22 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现我红阎魔技能点满了，于是拉去试了试，第一把乱打了7回合，第二把倒是3T了，贴了一道令咒，于是老老实实回去借打手了
+
