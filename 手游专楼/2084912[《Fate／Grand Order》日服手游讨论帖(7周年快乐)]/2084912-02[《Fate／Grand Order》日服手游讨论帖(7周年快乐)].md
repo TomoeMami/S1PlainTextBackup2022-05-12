@@ -5850,3 +5850,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 看着瓦尔基里180个火药需求不说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着周年减半刷QP把仓管很久的项羽点了技能是我手贱
 
+
+
+*****
+
+####  alucardcz  
+##### 2019#       发表于 2022-8-22 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57175773&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-22 19:39</a>
+
+我水着迦摩大概还有十万拿羁绊石，但我感觉刷不动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">１０万?　刷这90++也就10来个苹果吧?
+
