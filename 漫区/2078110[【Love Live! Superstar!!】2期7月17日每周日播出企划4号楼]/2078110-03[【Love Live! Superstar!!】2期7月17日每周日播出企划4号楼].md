@@ -3038,3 +3038,24 @@ u1s1，网红能不能火这事属于玄学
 https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 魔爪配色都比这玩意鲜艳多了，毕竟魔爪罐子它反光<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 3308#       发表于 2022-8-22 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171195&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-22 14:19</a>
+这集真就“教育频道的节目不要在意那么多”，不管是合同问题还是入队问题都很强行，尬到抠出别墅了 ...</blockquote>
+不过就事论事，可可在第一季第七集的幻想还算比较符合实实际（恋那时在可可眼中掌权后真有可能废掉偶像部，就是幻想的演出夸张了点），堇这一集的想法就要离谱一些（堇啊，你真觉得新生会另组一团？）<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 3309#       发表于 2022-8-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172249&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-22 15:37</a>
+
+不过就事论事，可可在第一季第七集的幻想还算比较符合实实际（恋那时在可可眼中掌权后真有可能废掉偶像部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">只能说花田选择了弹幕最多的打法
+
