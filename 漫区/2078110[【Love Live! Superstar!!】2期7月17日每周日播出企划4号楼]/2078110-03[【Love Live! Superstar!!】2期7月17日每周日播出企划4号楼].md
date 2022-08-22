@@ -2971,3 +2971,26 @@ ceo与其说给了理由不如说b part跳了世界线，a part还想当标题�
 
 2022-8-22 14:52 上传
 
+
+
+*****
+
+####  今城果天  
+##### 3302#       发表于 2022-8-22 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171550&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 14:48</a>
+
+应该这样说，就是因为夏美不够聪明，也没什么天赋，才会去干重体力活来赚辛苦钱。但是这个和她华丽的标题 ...</blockquote>
+有说过她剪辑能力很强吗？感觉粉丝数是不是说明了其实她视频制作水平也没有多高
+
+*****
+
+####  qratosone  
+##### 3303#       发表于 2022-8-22 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171758&amp;ptid=2078110" target="_blank">今城果天 发表于 2022-8-22 15:03</a>
+有说过她剪辑能力很强吗？感觉粉丝数是不是说明了其实她视频制作水平也没有多高 ...</blockquote>
+u1s1，网红能不能火这事属于玄学
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
