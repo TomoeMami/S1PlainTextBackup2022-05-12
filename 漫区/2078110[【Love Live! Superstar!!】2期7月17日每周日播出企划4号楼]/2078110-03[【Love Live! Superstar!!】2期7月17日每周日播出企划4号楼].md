@@ -3302,3 +3302,15 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 薇恩这期就搞定的话实质2.5期生了，剩下的三期生惨
 
+
+
+*****
+
+####  cxj649  
+##### 3327#       发表于 2022-8-22 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57175571&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-22 19:23</a>
+
+看VN的CV结那这么努力给LLSP宣传，这个三期生的身份几乎跑不掉</blockquote>
+这算真的是R3之子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

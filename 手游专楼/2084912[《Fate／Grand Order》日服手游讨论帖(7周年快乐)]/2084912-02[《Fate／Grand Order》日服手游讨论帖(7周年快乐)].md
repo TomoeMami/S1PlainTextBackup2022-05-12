@@ -5862,3 +5862,45 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 我水着迦摩大概还有十万拿羁绊石，但我感觉刷不动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">１０万?　刷这90++也就10来个苹果吧?
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2020#       发表于 2022-8-22 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176355&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-22 20:31</a>
+
+１０万?　刷这90++也就10来个苹果吧?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我得刷好友借礼装北斋才能打这90++，麻烦的很，都怪阿叶不把旧活动塞商店
+
+*****
+
+####  alucardcz  
+##### 2021#       发表于 2022-8-22 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176462&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-22 20:42</a>
+
+我得刷好友借礼装北斋才能打这90++，麻烦的很，都怪阿叶不把旧活动塞商店 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷20ap的free（还能省不少苹果
+
+*****
+
+####  霧谷藤乃  
+##### 2022#       发表于 2022-8-22 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176467&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-22 20:43</a>
+
+刷20ap的free（还能省不少苹果</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没动力，我一发十连出货的次数很少，基本都是准备较为充分然后惨胜（保底
+
+*****
+
+####  alucardcz  
+##### 2023#       发表于 2022-8-22 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176503&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-22 20:46</a>
+
+没动力，我一发十连出货的次数很少，基本都是准备较为充分然后惨胜（保底 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以一发一发抽（
+
