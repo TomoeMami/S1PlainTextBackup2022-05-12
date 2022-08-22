@@ -2675,3 +2675,42 @@ yj，海猫，我宣布你对dota的热爱，超过了在场所有人，我真�
 
 哇老子投了多少年的ta至宝，就指望着v跌上点心了，能不能别给我来个马尔斯至宝啊，呕了。
 
+
+
+*****
+
+####  maju3  
+##### 15268#       发表于 2022-8-22 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176190&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-22 20:16</a></blockquote>
+小马厨消息恁灵通呢
+
+*****
+
+####  反方向的波  
+##### 15269#       发表于 2022-8-22 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">nmb手游痴这都要给超级假赛论坛画面真是操了
+
+*****
+
+####  逃离二次元  
+##### 15270#       发表于 2022-8-22 21:04
+
+玩手游的能不能手拉手退楼
+
+
+
+*****
+
+####  tengshuo980  
+##### 15271#       发表于 2022-8-22 21:05
+
+<img src="https://img.saraba1st.com/forum/202208/22/210519l288f2pf42zfok22.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220822210454.png</strong> (41.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 21:05 上传
+
