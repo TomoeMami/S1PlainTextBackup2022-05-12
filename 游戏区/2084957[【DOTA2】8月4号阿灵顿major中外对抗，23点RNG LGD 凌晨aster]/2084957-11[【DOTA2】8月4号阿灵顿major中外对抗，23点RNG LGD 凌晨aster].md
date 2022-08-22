@@ -2714,3 +2714,15 @@ yj，海猫，我宣布你对dota的热爱，超过了在场所有人，我真�
 
 2022-8-22 21:05 上传
 
+
+
+*****
+
+####  walfeds  
+##### 15272#       发表于 2022-8-22 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176190&amp;ptid=2084957" target="_blank">Litccc 发表于 2022-8-22 20:16</a></blockquote>
+这图我有印象，记得马尔斯是p的？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
