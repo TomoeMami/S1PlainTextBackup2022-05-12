@@ -3375,3 +3375,15 @@ VN的那个声优也是个履历怪物，不过实际混的好像也一般，有
 VN的那个声优也是个履历怪物，不过实际混的好像也一般，有这个机会她肯定乐意，最近的确在大力营业的感觉， ...</blockquote>
 薇恩·玛格丽特（Vayne Margaret吧大概）
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3333#       发表于 2022-8-22 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177269&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-22 21:53</a>
+
+VN的那个声优也是个履历怪物，不过实际混的好像也一般，有这个机会她肯定乐意，最近的确在大力营业的感觉， ...</blockquote>
+就叫薇恩啊 ウィーン・マルガレーテ
+
