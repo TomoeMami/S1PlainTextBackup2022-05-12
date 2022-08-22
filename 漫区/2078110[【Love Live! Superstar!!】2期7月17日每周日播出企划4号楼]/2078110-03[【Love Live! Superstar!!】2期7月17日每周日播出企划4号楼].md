@@ -3220,3 +3220,13 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 夏美那份合同只是和一期生签的，可能花田的意思是在有二期生在的情况下那份合同就无效了吧，所以夏美想怂恿二期生组建个姐妹团和裂啦分割。
 
+
+
+*****
+
+####  Kfly  
+##### 3321#       发表于 2022-8-22 18:44
+
+我现在已经能一眼望到香音杀穿三期生的剧情了
+如果三期生内部有cp的话那就只拉两个，反正薇恩肯定是必选的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

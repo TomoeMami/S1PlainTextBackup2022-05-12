@@ -5867,3 +5867,12 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得了，这下企划真的是不认识捏
 
+
+
+*****
+
+####  holoan  
+##### 568#         楼主| 发表于 2022-8-22 18:44
+
+zeta不可能知道miko的除非她看了miko的直播
+
