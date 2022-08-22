@@ -2858,3 +2858,26 @@ CEO怕不是变成手机自拍杆Oni~Natsu~这三样复读工具人罢了</block
 
 恋：我看创始人不爽
 
+
+
+*****
+
+####  星降る森  
+##### 3293#       发表于 2022-8-22 12:44
+
+反正这夏美剧情给出的理由不够充分，只能成为个本子素材，说到底单纯为了获得感而赚钱的女高中生会去选择做重体力活吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+拜金属性彻头彻底就是烂活。
+
+直接写夏美为了提升关注数去下套子还不至于有这么多口诛笔伐，女高中生想当个吸引眼球的网红社牛不比为了获得感赚钱合理多了
+
+*****
+
+####  星降る森  
+##### 3294#       发表于 2022-8-22 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57164787&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-21 23:34</a>
+
+熟肉看完了，夏美这角色反正是塑造的挺怪的，这一集实际上根本没有解决上一集夏美的人物塑造，爱财虽然俗了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，还不如把剧情写成夏美原来追逐的梦想都很花钱，每次追逐梦想都因为缺钱失败，星来拉人告诉她当校园偶像是一条不怎么花钱还能实现梦想的路，起码还能逻辑自洽一点
+
