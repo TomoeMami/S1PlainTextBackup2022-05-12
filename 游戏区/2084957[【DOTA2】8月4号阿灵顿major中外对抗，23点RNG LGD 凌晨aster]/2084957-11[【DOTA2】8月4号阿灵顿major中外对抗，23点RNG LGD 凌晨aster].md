@@ -2258,3 +2258,12 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 小骷髅在俺们低分猪这里，除非对线期死穿了，很容易就拖过弱势期然后宰了。臭酱油的视野和意识根本防不住小骷髅提款。
 
+
+
+*****
+
+####  IG.430  
+##### 15221#       发表于 2022-8-22 12:14
+
+eesama攻击性强，我支持eesama开新楼<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
