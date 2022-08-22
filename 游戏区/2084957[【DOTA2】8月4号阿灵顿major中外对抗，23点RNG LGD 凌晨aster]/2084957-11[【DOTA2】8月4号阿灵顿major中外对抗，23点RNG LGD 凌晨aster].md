@@ -3058,3 +3058,23 @@ hoho哥？homo哥！
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 15307#       发表于 2022-8-23 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177541&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-22 22:21</a>
+NGM.Miracle、Alliance.Aramis、OG.Misha、FNC.Raven缺席</blockquote>
+奇迹鳖真的灌了？
+
+*****
+
+####  yyf奇遇记  
+##### 15308#       发表于 2022-8-23 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179386&amp;ptid=2084957" target="_blank">nerugigannte 发表于 2022-8-23 07:05</a>
+跟漏油们说个好玩的，我上周女同事约我出去看电影我连手都没牵。女同事评价我毫无攻击性，无欲无求 ...</blockquote>
+好啊好啊，我建议直接出圣剑bd了，csdx
+
