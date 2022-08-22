@@ -3168,3 +3168,46 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 —— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qratosone  
+##### 3318#       发表于 2022-8-22 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57174602&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-22 18:15</a>
+她那想法没人知道啊，而且现在也入队“找到梦想”了，就这么糊弄过去了 ...</blockquote>
+一起跟着练结果把自己练进去了，本身倒也还算合理，如果最后去掉强行安排的香音拉人换成一年级组拉人，其实整体也挺好了。
+
+所以问题还是为什么某些大人物非得让香音拉人…
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 3319#       发表于 2022-8-22 18:25
+
+<blockquote>adw667 发表于 2022-8-22 17:51
+那还真是个纯纯的ylg，请唐女士严查入团动机
+
+说起来夏美现在像是要和恋绑一起的样子，可可 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/22/182456df697hrwj4d2wv4k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59CCEABC-7B95-47C2-956C-B2EA8D78335F.jpeg</strong> (85.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-22 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202208/22/182505dlvqmsqql9w5bl76.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>99FC2658-0037-440B-BE3F-0634F9510869.jpeg</strong> (350.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-22 18:25 上传
+
