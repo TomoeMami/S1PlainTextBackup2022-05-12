@@ -2379,3 +2379,26 @@ ok林仔300名局14连胜了</blockquote>意思是ok林仔＞鸡哥？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  我爱撩菜  
+##### 15235#       发表于 2022-8-22 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171013&amp;ptid=2084957" target="_blank">战狼PTSD 发表于 2022-8-22 14:02</a>
+
+ESL这活整挺好</blockquote>
+说的是那个同分奇葩1v1是吗 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+期待一下TI也来个solo king之类的，搞些什么竞赛之类的。什么反眼位比赛。多几个最多MVP、最高输出，最高医疗，最高建筑伤害，最高单次输出等等这些奖项 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+但想想就知道不可能 ，V社这懒狗感觉连TI都不想搞了。 
+
+*****
+
+####  nowaki  
+##### 15236#       发表于 2022-8-22 15:17
+
+尬黑 掀背举盾才能给ti画上句号
+

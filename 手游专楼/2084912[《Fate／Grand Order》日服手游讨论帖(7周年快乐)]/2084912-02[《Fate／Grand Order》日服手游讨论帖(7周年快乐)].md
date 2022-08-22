@@ -5700,3 +5700,14 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别装了，只有欧洲佬才会缺素材
 
+
+
+*****
+
+####  khxooo  
+##### 2006#       发表于 2022-8-22 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171081&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-22 14:09</a>
+无限池子其实应该快要来了</blockquote>
+一年两个无限池，上半年有奥特祭，正常情况就剩圣诞了。
+

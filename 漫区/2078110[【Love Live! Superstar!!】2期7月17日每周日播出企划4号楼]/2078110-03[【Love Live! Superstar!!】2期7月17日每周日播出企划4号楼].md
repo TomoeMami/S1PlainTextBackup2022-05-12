@@ -2994,3 +2994,35 @@ u1s1，网红能不能火这事属于玄学
 
 —— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 3304#       发表于 2022-8-22 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171758&amp;ptid=2078110" target="_blank">今城果天 发表于 2022-8-22 15:03</a>
+
+有说过她剪辑能力很强吗？感觉粉丝数是不是说明了其实她视频制作水平也没有多高 ...</blockquote>
+至少要比直接丢原片的liella官号好吧，这点得看看到时候肯不肯给后续画面，万一后面说插2的live就是夏美剪的呢。而且她的粉丝数低的吓人其实也是一个很奇怪的点，你见过有偶像脸的抖音油土鳖好会粉丝少么，播放少还能说题材问题，单纯粉丝少就很诡异。
+
+第六集只是看上去粘合的比较好，内容其实比第五集那个吵是不是真的80还空洞。
+
+*****
+
+####  ViyViy  
+##### 3305#       发表于 2022-8-22 15:17
+
+希望服装设计别再嗑药了，你的每一次奇思妙想最后都要回到可可身上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3306#       发表于 2022-8-22 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171945&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-22 15:17</a>
+希望服装设计别再嗑药了，你的每一次奇思妙想最后都要回到可可身上 ...</blockquote>
+你说星团传统吧，但是目前为止那么多演出服，不传统搞花活的演出服真不少。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
