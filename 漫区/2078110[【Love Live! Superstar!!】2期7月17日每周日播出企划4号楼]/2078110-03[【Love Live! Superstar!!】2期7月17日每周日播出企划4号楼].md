@@ -3324,3 +3324,17 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 就我在看第五集吗？
 我没懂，不是说好了视频收益给ceo吗？那为什么还因为她赚得多而吵架
 
+
+
+*****
+
+####  ads147147  
+##### 3329#       发表于 2022-8-22 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177123&amp;ptid=2078110" target="_blank">yanayosihana 发表于 2022-8-22 21:41</a>
+
+就我在看第五集吗？
+
+我没懂，不是说好了视频收益给ceo吗？那为什么还因为她赚得多而吵架 ...</blockquote>
+是的，这段毫无道理，just feeling
+
