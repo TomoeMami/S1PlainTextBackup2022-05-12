@@ -2536,3 +2536,17 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3266#       发表于 2022-8-22 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166520&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 08:06</a>
+
+立体攻击：洗掉了拜金，角色特色消失了。没洗掉，之前演了个寂寞。
+
+说到底这种抛开问题的做法很符合星一 ...</blockquote>
+这种写法就不可能让剧情好的了，埋不起伏笔，写不了人物长线发展
+
