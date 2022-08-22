@@ -1988,3 +1988,20 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 其实我认识的5000分以上都是开卫士小号
 统帅传奇局队友送几波就真翻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 15192#       发表于 2022-8-22 09:00
+
+<img src="https://img.saraba1st.com/forum/202208/22/090042ktn7rpi0bn000jrd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 09:00 上传
+
+大方向对了，细节差一点不要紧
+

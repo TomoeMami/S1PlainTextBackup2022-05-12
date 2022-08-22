@@ -2616,3 +2616,25 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 最后她通过自己加入liella的形式让恶心合同无效化了，本身也是自己清除了自己做的孽，这样一来上一集的恶心事就一笔勾销了，剩下的就是她的高光和可爱了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3272#       发表于 2022-8-22 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166932&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-22 08:59</a>
+
+可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">个人观点，抱歉不是特别能接受这个逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  renkan119  
+##### 3273#       发表于 2022-8-22 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166932&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-22 08:59</a>
+
+可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么 ...</blockquote>
+加入就一笔勾销是个什么逻辑…
+
