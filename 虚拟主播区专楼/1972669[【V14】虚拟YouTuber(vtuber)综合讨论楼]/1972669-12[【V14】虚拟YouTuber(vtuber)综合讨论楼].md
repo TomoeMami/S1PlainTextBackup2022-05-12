@@ -6355,3 +6355,19 @@ enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是�
 
 跌丝袜的推特订阅数终于也破百万了，可喜可贺。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17081#       发表于 2022-8-22 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177612&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-22 22:29</a>
+
+enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是自家搞的技术
+
+看隔壁b综提到现在3d门槛越来越低 ...</blockquote>
+业界用的都是VICON和OptiTrack这种光学式捕捉，主要区别在渲染和中控台，模型是外包。
+
+黛灰的模型外包是おいたん制作的，他还负责了安洁和小护士的模型，已经算是你虹除主流出道外质量最高的一批外包模型了...
+
