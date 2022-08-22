@@ -2021,3 +2021,21 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 一般是北京时间凌晨两点到四点更，esl时差不至于此
 
+
+
+*****
+
+####  北条早苗  
+##### 15195#       发表于 2022-8-22 10:00
+
+明天云顶杯开打？
+
+*****
+
+####  反方向的波  
+##### 15196#       发表于 2022-8-22 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167666&amp;ptid=2084957" target="_blank">北条早苗 发表于 2022-8-22 10:00</a>
+明天云顶杯开打？</blockquote>
+明天开
+

@@ -2767,3 +2767,46 @@ money人也不是没有经典反转的，比如蟹老板。穷困魔怔人也有
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 现在liella干啥都得经过香音，围着香音转，和韩国拳头觉得韩国LOL就得围着faker转真的异曲同工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3286#       发表于 2022-8-22 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166974&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-22 09:03</a>
+个人观点，抱歉不是特别能接受这个逻辑</blockquote>
+夏美一直到live开始前还在给自己的账号引流吧，这不是比堇一开始拿liella当跳板更恶劣吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gooddays  
+##### 3287#       发表于 2022-8-22 10:03
+
+ 本帖最后由 Gooddays 于 2022-8-22 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166932&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-22 08:59</a>
+可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么 ...</blockquote>
+你第一句试试把赚钱强为强X，打人，什至杀人，如不考虑当地法律，你觉得也没问题？
+
+还有加入 Liella 后合约当然能继续有效，合约中的金钱及权利她可以继续全都要，其他八人什么也不会有。她亲身参与跟分多少利益便不一定有任何关连。一般团体或组织便不一定平分利益，更不要说有白纸黑字的合约。
+
+*****
+
+####  adw667  
+##### 3288#       发表于 2022-8-22 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167416&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-22 09:40</a>
+我觉得马内这个口头禅不一定会消失啊，这玩意不写在设定上的吗，以后估计会成个搞笑属性，偶尔迫害一下 ...</blockquote>
+反正堇已经G不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3289#       发表于 2022-8-22 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167411&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-22 09:40</a>
+既然有希望去掉或者改良夏美的爱财如命人设，那能不能顺手把这个难听的要死的发声方式改一改，真的 ...</blockquote>
+这是真的同意，她和土妹的说话方式真的让我头疼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
