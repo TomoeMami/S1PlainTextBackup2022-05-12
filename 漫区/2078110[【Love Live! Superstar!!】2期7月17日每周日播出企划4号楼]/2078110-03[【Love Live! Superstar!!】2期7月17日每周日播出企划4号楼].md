@@ -2753,3 +2753,17 @@ money人也不是没有经典反转的，比如蟹老板。穷困魔怔人也有
 
 我觉得马内这个口头禅不一定会消失啊，这玩意不写在设定上的吗，以后估计会成个搞笑属性，偶尔迫害一下
 
+
+
+*****
+
+####  ViyViy  
+##### 3285#       发表于 2022-8-22 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167383&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 09:38</a>
+
+这个不是那个什么经典lol梗？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+现在liella干啥都得经过香音，围着香音转，和韩国拳头觉得韩国LOL就得围着faker转真的异曲同工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
