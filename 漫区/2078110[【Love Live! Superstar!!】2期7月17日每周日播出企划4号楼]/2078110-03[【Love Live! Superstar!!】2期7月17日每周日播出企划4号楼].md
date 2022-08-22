@@ -2716,3 +2716,40 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 看到推上有位同人作者奶的：香音曾经对堇说过“想要center就来抢吧”，那我追可可机也算抢大香老师的center吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无懈可击
 
+
+
+*****
+
+####  ads147147  
+##### 3281#       发表于 2022-8-22 09:35
+
+money人也不是没有经典反转的，比如蟹老板。穷困魔怔人也有经典反转的，比如痞老板。
+算了，海绵宝宝现在也写烂了，这个世界真炒蛋。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3282#       发表于 2022-8-22 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167293&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-22 09:30</a>
+看到推上有位同人作者奶的：香音曾经对堇说过“想要center就来抢吧”，那我追可可机也算抢大香老师的center ...</blockquote>
+这个不是那个什么经典lol梗？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  奥柏伦亲王  
+##### 3283#       发表于 2022-8-22 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然有希望去掉或者改良夏美的爱财如命人设，那能不能顺手把这个难听的要死的发声方式改一改，真的会有人觉得甲州弁可爱吗
+
+*****
+
+####  Enakina  
+##### 3284#       发表于 2022-8-22 09:40
+
+我觉得马内这个口头禅不一定会消失啊，这玩意不写在设定上的吗，以后估计会成个搞笑属性，偶尔迫害一下
+
