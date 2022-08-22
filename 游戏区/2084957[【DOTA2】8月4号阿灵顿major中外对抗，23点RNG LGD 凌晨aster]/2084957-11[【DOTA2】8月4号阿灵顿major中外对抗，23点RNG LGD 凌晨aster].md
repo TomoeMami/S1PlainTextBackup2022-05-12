@@ -2082,3 +2082,34 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167922&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-22 10:17</a></blockquote>
 @战狼ptsd
 
+
+
+*****
+
+####  seki_m  
+##### 15201#       发表于 2022-8-22 10:22
+
+还是希望啊版重振s1dota讨论环境，论坛里没必要那么v不说话装高手
+
+*****
+
+####  walfeds  
+##### 15202#       发表于 2022-8-22 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167922&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-22 10:17</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，第一眼很难不怀疑是p的
+
+*****
+
+####  六娃  
+##### 15203#       发表于 2022-8-22 10:23
+
+楼主虽然进去了，但还是排名哥，我支持楼主
+
+*****
+
+####  asd235614  
+##### 15204#       发表于 2022-8-22 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ESL官方有点意思
+
