@@ -2881,3 +2881,12 @@ CEO怕不是变成手机自拍杆Oni~Natsu~这三样复读工具人罢了</block
 熟肉看完了，夏美这角色反正是塑造的挺怪的，这一集实际上根本没有解决上一集夏美的人物塑造，爱财虽然俗了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，还不如把剧情写成夏美原来追逐的梦想都很花钱，每次追逐梦想都因为缺钱失败，星来拉人告诉她当校园偶像是一条不怎么花钱还能实现梦想的路，起码还能逻辑自洽一点
 
+
+
+*****
+
+####  GGnob  
+##### 3295#       发表于 2022-8-22 13:07
+
+ceo与其说给了理由不如说b part跳了世界线，a part还想当标题党赚钱，b part就只会u咩了，还能催一年级训练，完全不提钱的事，根本就不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

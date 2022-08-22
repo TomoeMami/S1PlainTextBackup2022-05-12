@@ -2276,3 +2276,12 @@ eesama攻击性强，我支持eesama开新楼<img src="https://static.saraba1st.
 
 【肥鼠边教你打造军团】 [https://www.bilibili.com/video/BV1aB4y1x7Bk](https://www.bilibili.com/video/BV1aB4y1x7Bk)
 
+
+
+*****
+
+####  六娃  
+##### 15223#       发表于 2022-8-22 13:01
+
+量子鞭已经放弃夺冠直接开始进行一个视频势的转型是吧
+
