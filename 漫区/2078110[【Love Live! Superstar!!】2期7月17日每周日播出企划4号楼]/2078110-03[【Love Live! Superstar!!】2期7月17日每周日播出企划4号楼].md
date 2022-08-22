@@ -3422,3 +3422,22 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 
 甚至前两天无敌级纪念上传的视频都比很多星二期曲子高了。。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3337#       发表于 2022-8-22 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">二期现在几首曲子确实一般，不抓耳
+
+*****
+
+####  沙茶酱  
+##### 3338#       发表于 2022-8-22 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177819&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 22:51</a>
+
+vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella最高的是op的we will，51w。。。还不赚她入 ...</blockquote>
+感觉这样肯定要赚她上结丘
+
