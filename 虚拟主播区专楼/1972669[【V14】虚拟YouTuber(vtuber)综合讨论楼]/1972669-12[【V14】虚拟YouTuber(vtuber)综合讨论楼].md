@@ -6161,3 +6161,22 @@ syl 隔壁的怜也在新衣服回
 
 于是结合这次事情来看锤子似乎为人是不怎么好? 而当年的谣言多少能属实? 
 
+
+
+*****
+
+####  sgssk  
+##### 17064#       发表于 2022-8-22 16:10
+
+纺音零跑路了，看起来像是单纯的合同期满，然后公司大方地让她带着形象走了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">暂不确定是否停止活动
+
+记得她挺久前说自己考了个讲师证后才来做v的，还两边兼顾了一段时间，干累了才辞了讲师来着？
+
+<img src="https://img.saraba1st.com/forum/202208/22/160716nooqzg9u2eep98ky.png" referrerpolicy="no-referrer">
+
+<strong>~V{8D`7(NM_OA2I~3CZD1.png</strong> (39.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 16:07 上传
+

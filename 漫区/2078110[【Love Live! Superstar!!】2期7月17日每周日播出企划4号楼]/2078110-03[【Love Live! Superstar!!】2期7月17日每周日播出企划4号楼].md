@@ -3073,3 +3073,14 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 虽然虹没有，但是虹真的内部分裂了，某种意义上虹更可怕。
 
+
+
+*****
+
+####  lj205  
+##### 3311#       发表于 2022-8-22 16:21
+
+[https://share.api.weibo.cn/share ... id=4804944886239504](https://share.api.weibo.cn/share/330006041,4804944886239504.html?weibo_id=4804944886239504)
+
+原来昨天还现场彩排了OP，结果实际演出却没唱
+
