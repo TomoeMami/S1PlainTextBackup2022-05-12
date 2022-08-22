@@ -6435,3 +6435,15 @@ yysy确实进步有（对比年初就知道了） 基本是ema中位数差不多
 
 咩咩启示录是买了彩虹的工商吗，都在播？
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17087#       发表于 2022-8-23 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178884&amp;ptid=1972669" target="_blank">小鸟游泉 发表于 2022-8-23 01:29</a>
+虹的3D拉是在说模型质量？3D技术的话虹明明是业界尖端好吧，一堆在柴卡这些人的脑洞引领下越玩越花的初次看 ...</blockquote>
+业界顶尖，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那这业界也未免太没有前途了
+
