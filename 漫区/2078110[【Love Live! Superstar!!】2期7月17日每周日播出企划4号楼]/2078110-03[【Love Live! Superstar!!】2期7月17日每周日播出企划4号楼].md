@@ -3507,3 +3507,12 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 至少要比直接丢原片的liella官号好吧，这点得看看到时候肯不肯给后续画面，万一后面说插2的live就是夏美 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平安名那偶像脸还只能当树呢，剧情需要的时候路人都是眼瞎的
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 3345#       发表于 2022-8-23 00:49
+
+VN是谁啊……
+
