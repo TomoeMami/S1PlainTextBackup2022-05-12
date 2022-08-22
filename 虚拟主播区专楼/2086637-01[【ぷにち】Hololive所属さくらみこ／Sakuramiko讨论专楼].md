@@ -5828,3 +5828,17 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 如果要出现就代表要播了
 
+
+
+*****
+
+####  holoan  
+##### 564#         楼主| 发表于 2022-8-22 17:51
+
+[https://www.youtube.com/watch?v=4bH7IMEw09c](https://www.youtube.com/watch?v=4bH7IMEw09c)
+
+【＃６７】hololive presents ホロのRadio～私たちの歌をきけッ！（２０２２年７月１０日放送回）
+[https://www.youtube.com/watch?v=cDYdviSgNIE](https://www.youtube.com/watch?v=cDYdviSgNIE)
+
+【＃６８】hololive presents ホロのRadio～私たちの歌をきけッ！（２０２２年７月１７日放送回）
+

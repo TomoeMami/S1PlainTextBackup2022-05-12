@@ -2510,3 +2510,12 @@ ok林仔300名局14连胜了</blockquote>
 
 gtmdace，我先去看追梦人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 15250#       发表于 2022-8-22 17:50
+
+一个carry如果19岁的时候是铁菜逼，后面就不可能变强
+
