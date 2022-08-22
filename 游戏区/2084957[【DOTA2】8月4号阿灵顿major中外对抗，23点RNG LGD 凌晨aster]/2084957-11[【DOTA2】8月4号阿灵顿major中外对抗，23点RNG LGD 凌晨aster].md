@@ -2796,3 +2796,12 @@ NGM.Miracle、Alliance.Aramis、OG.Misha、FNC.Raven缺席
 
 厂公又鸽了，esl比赛就是给老液体准备一轮游用的
 
+
+
+*****
+
+####  nowaki  
+##### 15279#       发表于 2022-8-22 22:32
+
+奇迹鳖何意啊，vr这么好玩吗
+

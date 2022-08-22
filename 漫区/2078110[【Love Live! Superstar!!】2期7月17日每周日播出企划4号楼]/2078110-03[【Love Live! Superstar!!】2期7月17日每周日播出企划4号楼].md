@@ -3399,3 +3399,15 @@ VN的那个声优也是个履历怪物，不过实际混的好像也一般，有
 这算真的是R3之子了</blockquote>
 要是能说一口流利的中英日三语我就承认她是R3之子<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3335#       发表于 2022-8-22 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176493&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-8-22 20:45</a>
+
+这算真的是R3之子了</blockquote>
+我感觉更像是青山姐的姐妹版本，反正那个履历是要比青山姐更二次元点。
+
