@@ -1967,3 +1967,14 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 死灵书没了以后我就没咋玩了，哥们儿虽然先锋，但是绝活狼人好吧
 
+
+
+*****
+
+####  IG.430  
+##### 15190#       发表于 2022-8-22 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166504&amp;ptid=2084957" target="_blank">尖刺外婆 发表于 2022-8-22 08:05</a>
+国服晚上传奇统帅开黑全是小号，没两个5000分带队纯纯的坐牢</blockquote>
+过了周末，一切都会好起来的
+
