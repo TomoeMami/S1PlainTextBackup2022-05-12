@@ -1949,3 +1949,12 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 还不更新，我也想宰猪啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  尖刺外婆  
+##### 15188#       发表于 2022-8-22 08:05
+
+国服晚上传奇统帅开黑全是小号，没两个5000分带队纯纯的坐牢
+

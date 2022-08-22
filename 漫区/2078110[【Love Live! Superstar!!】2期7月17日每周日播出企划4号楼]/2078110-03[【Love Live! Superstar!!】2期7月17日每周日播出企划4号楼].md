@@ -2492,3 +2492,47 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 你们觉得夏美太过分了，可能花田觉得刚刚好，只不过加了层夸张滤镜而已，大家都是好孩子前途光明的学园偶像哦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 3262#       发表于 2022-8-22 08:02
+
+不知道ceo身上的拜金属性以后还会不会存在
+
+*****
+
+####  ViyViy  
+##### 3263#       发表于 2022-8-22 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166176&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-22 06:28</a>
+
+这集大家在讨论夏美视频的时候，只有可可在看着手机，然后堇一过来她就把手机屏幕挡住了 ...</blockquote>
+这个感觉不靠谱，因为前几秒就是同样的卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且那么远能看清啥，甚至还可能是中文
+
+*****
+
+####  adw667  
+##### 3264#       发表于 2022-8-22 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57165336&amp;ptid=2078110" target="_blank">1q11 发表于 2022-8-22 00:36</a>
+
+没活了就去咬打火机吧 真的看乐了
+
+—— 来自 HUAWEI JAD-AL00, Android 11上的 S1Next-鹅版 v2.5.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为是致敬S1E6来着
+
+*****
+
+####  ads147147  
+##### 3265#       发表于 2022-8-22 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166487&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-22 08:02</a>
+不知道ceo身上的拜金属性以后还会不会存在</blockquote>
+立体攻击：洗掉了拜金，角色特色消失了。没洗掉，之前演了个寂寞。
+
+说到底这种抛开问题的做法很符合星一直以来剧本避重就轻，雷点跳舞后轻轻放下当雷点不存在的剧情特色。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
