@@ -5823,3 +5823,12 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 简直有毒</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了，技能一个都没点
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2016#       发表于 2022-8-22 19:06
+
+素材问题不大，QP倒是快坚持不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
