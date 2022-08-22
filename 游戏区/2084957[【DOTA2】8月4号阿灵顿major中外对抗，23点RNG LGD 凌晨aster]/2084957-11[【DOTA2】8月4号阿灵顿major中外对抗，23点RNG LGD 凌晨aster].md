@@ -2413,3 +2413,22 @@ ESL这活整挺好</blockquote>
 ok林仔300名局14连胜了</blockquote>
 哇，不愧是我们山西的骄傲
 
+
+
+*****
+
+####  Centrum  
+##### 15238#       发表于 2022-8-22 15:51
+
+ 本帖最后由 Centrum 于 2022-8-22 15:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171951&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-22 15:17</a>
+尬黑 掀背举盾才能给ti画上句号</blockquote>
+＃就是想赢啊＃
+
+*****
+
+####  六娃  
+##### 15239#       发表于 2022-8-22 15:53
+
+有人问强势英雄会怎么削，我的回答是注意他们15 20 25级的强势天赋，有些换位一下直接变下水道
+
