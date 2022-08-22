@@ -5668,3 +5668,19 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装抽的卡一个也没点技能，看到只有十几个狂辉石就烦，尺怎么吃这么多
 
+
+
+*****
+
+####  kiralzb  
+##### 2002#       发表于 2022-8-22 14:00
+
+还以为这楼里没有素材点技能的只有我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 2003#       发表于 2022-8-22 14:09
+
+无限池子其实应该快要来了
+
