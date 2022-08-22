@@ -5629,3 +5629,12 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那当然是池子复刻活动不复刻啦（
 
+
+
+*****
+
+####  圈量子  
+##### 1998#       发表于 2022-8-22 09:51
+
+隔壁不点名地说了一句给不复刻只开卡池洗地的人是yls孝子在几十个赞后被举报mute了，石砸狗叫了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
