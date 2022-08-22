@@ -2638,3 +2638,41 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么 ...</blockquote>
 加入就一笔勾销是个什么逻辑…
 
+
+
+*****
+
+####  ads147147  
+##### 3274#       发表于 2022-8-22 09:14
+
+ 本帖最后由 ads147147 于 2022-8-22 09:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167046&amp;ptid=2078110" target="_blank">renkan119 发表于 2022-8-22 09:11</a>
+加入就一笔勾销是个什么逻辑…</blockquote>
+原本香姥爷37分成，现在请客斩首收下当狗，自然是香姥爷全拿。
+
+突然发现之前承诺给堇的签约费有着落了，香音肯给，堇敢要吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 3275#       发表于 2022-8-22 09:17
+
+<blockquote>ads147147 发表于 2022-8-22 08:06
+立体攻击：洗掉了拜金，角色特色消失了。没洗掉，之前演了个寂寞。
+
+说到底这种抛开问题的做法很符合星一 ...</blockquote>
+这集说ceo赚钱是为了满足感，那么今后就没有拜金的必要了，或许这个属性就被拿掉了，那么一开始人设何必加这个属性呢，就为了前五集体现一下从此再也不见？八成是动画和最开始写人设的意见分歧，前者给后者擦屁股。
+
+*****
+
+####  Kfly  
+##### 3276#       发表于 2022-8-22 09:18
+
+ 本帖最后由 Kfly 于 2022-8-22 09:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166932&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-22 08:59</a>
+可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么 ...</blockquote>
+虽然可以用年龄解释，但这不就有种“她还只是个孩子呀”的感觉了吗？
+按这种说法，后面ll再出新角色也可以用“年龄+除了xx没有别的事能带来获得感”来将她的所作所为一笔勾销吗？
+我的看法是，夏美的所作所为确实是能用你的说法来解释的，但这并不能彻底消除夏美身上的“污点”。夏美想摆脱有些“不堪回首”的过去，还需要再做点什么才行，类似于“将功补过”
+
