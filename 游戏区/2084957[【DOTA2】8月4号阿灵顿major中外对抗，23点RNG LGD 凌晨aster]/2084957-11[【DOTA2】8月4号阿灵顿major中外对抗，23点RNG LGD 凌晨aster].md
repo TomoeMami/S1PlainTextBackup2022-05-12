@@ -2367,3 +2367,15 @@ ok林仔300名局14连胜了
 
 ESL这活整挺好
 
+
+
+*****
+
+####  TIZI  
+##### 15234#       发表于 2022-8-22 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170705&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-08-22 13:34:44</a>
+ok林仔300名局14连胜了</blockquote>意思是ok林仔＞鸡哥？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
