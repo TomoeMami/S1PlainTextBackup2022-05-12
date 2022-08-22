@@ -2213,3 +2213,39 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 当然最重要的还是这版本太冷门，纯属押题
 
+
+
+*****
+
+####  很久就在那边l  
+##### 15216#       发表于 2022-8-22 11:53
+
+学习了一个一千多场小骷髅高叟的打法，最近胜率还可以，虽然是传奇局
+<img src="https://p.sda1.dev/6/1bf4d8f2418a4b242487ac53fa5794eb/CMP_20220822114956905.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 15217#       发表于 2022-8-22 11:57
+
+我记得楼主不是一万个小号么，这次全DEAD了？
+
+*****
+
+####  yyf奇遇记  
+##### 15218#       发表于 2022-8-22 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57169543&amp;ptid=2084957" target="_blank">健康猹 发表于 2022-8-22 11:57</a>
+我记得楼主不是一万个小号么，这次全DEAD了？</blockquote>
+没啊，我在等新号过新手墙
+
+*****
+
+####  六娃  
+##### 15219#       发表于 2022-8-22 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57169490&amp;ptid=2084957" target="_blank">很久就在那边l 发表于 2022-8-22 11:53</a>
+
+学习了一个一千多场小骷髅高叟的打法，最近胜率还可以，虽然是传奇局</blockquote>
+这英雄对线发育都能兜底，刷打节奏好的时候还是厉害
+
