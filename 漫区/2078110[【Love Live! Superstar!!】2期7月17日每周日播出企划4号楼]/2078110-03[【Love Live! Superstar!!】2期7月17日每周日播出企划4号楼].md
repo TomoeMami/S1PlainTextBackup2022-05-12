@@ -2819,3 +2819,15 @@ money人也不是没有经典反转的，比如蟹老板。穷困魔怔人也有
 
 CEO怕不是变成手机自拍杆Oni~Natsu~这三样复读工具人罢了
 
+
+
+*****
+
+####  ads147147  
+##### 3291#       发表于 2022-8-22 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57168144&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-8-22 10:32</a>
+
+CEO怕不是变成手机自拍杆Oni~Natsu~这三样复读工具人罢了</blockquote>
+可可早就是露比异构体了，拉拉宇宙的妹妹都喜欢胶水手吗。
+
