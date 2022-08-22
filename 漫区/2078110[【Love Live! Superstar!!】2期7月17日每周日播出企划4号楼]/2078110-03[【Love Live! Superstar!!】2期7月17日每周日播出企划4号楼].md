@@ -3495,3 +3495,15 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 槽点过多
 堇那独一无二的标号是在暗示只有堇一个正常人吗（
 
+
+
+*****
+
+####  星降る森  
+##### 3344#       发表于 2022-8-23 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171912&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 15:14</a>
+
+至少要比直接丢原片的liella官号好吧，这点得看看到时候肯不肯给后续画面，万一后面说插2的live就是夏美 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平安名那偶像脸还只能当树呢，剧情需要的时候路人都是眼瞎的
+
