@@ -2929,3 +2929,18 @@ ceo与其说给了理由不如说b part跳了世界线，a part还想当标题�
 
 懂了 ，从money,,,money金金金人到U咩人只需要香音教祖规训即可<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3300#       发表于 2022-8-22 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170120&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-8-22 12:44</a>
+反正这夏美剧情给出的理由不够充分，只能成为个本子素材，说到底单纯为了获得感而赚钱的女高中生会去选择做 ...</blockquote>
+应该这样说，就是因为夏美不够聪明，也没什么天赋，才会去干重体力活来赚辛苦钱。但是这个和她华丽的标题党和剪辑能力是相冲突的，夏美能跟上裂啦的训练更说明夏美不是没天赋，只是找错了方向，这和夏美样样不行最终只能追求“平庸”的钱的设计是冲突的，难道偶像活动不需要克服困难，不需要努力吗？学习一开始不行就摆了不努力？
+
+事实上夏美的故事和角色转变矛盾太多，给小孩子看我都觉得是带坏小孩。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
