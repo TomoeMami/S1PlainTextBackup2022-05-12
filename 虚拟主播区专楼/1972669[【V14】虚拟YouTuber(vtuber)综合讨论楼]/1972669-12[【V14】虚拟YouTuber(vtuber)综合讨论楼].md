@@ -6312,3 +6312,13 @@ syl 根据运营说的，应该是擅长valo
 beni的瓦都已经这个段位了，绝大部分还是solo
 <img src="https://p.sda1.dev/6/7ac9ad847a58f082b43aa45b604527bc/-33bedcdc81fdf391.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17077#       发表于 2022-8-22 20:26
+
+之前beni都自嘲过solo valo是她的“驱邪”之路
+炎上那次太伤了，除了箱内的，比赛基本上都没法参加
+

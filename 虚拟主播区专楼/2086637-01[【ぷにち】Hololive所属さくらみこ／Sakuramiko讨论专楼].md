@@ -6010,3 +6010,16 @@ zeta不可能知道miko的除非她看了miko的直播
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 583#       发表于 2022-8-22 20:25
+
+ 本帖最后由 rs5621 于 2022-8-22 20:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，这是身体不舒服？只有嗓子不舒服吧？！再怎么样rust还是得玩的
+
+我是不信身体不舒服的，还能有精力玩游戏。
+
