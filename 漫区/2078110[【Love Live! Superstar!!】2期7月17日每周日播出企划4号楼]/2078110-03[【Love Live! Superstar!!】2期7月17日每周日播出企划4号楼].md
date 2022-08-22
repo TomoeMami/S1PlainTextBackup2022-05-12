@@ -3314,3 +3314,13 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 看VN的CV结那这么努力给LLSP宣传，这个三期生的身份几乎跑不掉</blockquote>
 这算真的是R3之子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yanayosihana  
+##### 3328#       发表于 2022-8-22 21:41
+
+就我在看第五集吗？
+我没懂，不是说好了视频收益给ceo吗？那为什么还因为她赚得多而吵架
+
