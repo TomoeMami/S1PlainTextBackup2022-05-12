@@ -3143,3 +3143,28 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">至少让堇去怼夏美吧
 
+
+
+*****
+
+####  ViyViy  
+##### 3316#       发表于 2022-8-22 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57174157&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-22 17:51</a>
+
+那还真是个纯纯的ylg，请唐女士严查入团动机
+
+说起来夏美现在像是要和恋绑一起的样子，可可 ...</blockquote>
+她那想法没人知道啊，而且现在也入队“找到梦想”了，就这么糊弄过去了
+
+*****
+
+####  qratosone  
+##### 3317#       发表于 2022-8-22 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172249&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-22 15:37</a>
+不过就事论事，可可在第一季第七集的幻想还算比较符合实实际（恋那时在可可眼中掌权后真有可能废掉偶像部 ...</blockquote>
+这集和上一集正好整反了，上一集是堇想得没问题结果被可可嘴臭，这集是堇真的没溜结果可可反而懒得吐槽
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
