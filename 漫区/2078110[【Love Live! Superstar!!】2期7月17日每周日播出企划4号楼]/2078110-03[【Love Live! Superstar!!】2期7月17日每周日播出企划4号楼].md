@@ -3230,3 +3230,36 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 我现在已经能一眼望到香音杀穿三期生的剧情了
 如果三期生内部有cp的话那就只拉两个，反正薇恩肯定是必选的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 3322#       发表于 2022-8-22 18:55
+
+3rd 的周边出来了，我就不买了，除了场刊
+
+<img src="https://img.saraba1st.com/forum/202208/22/185444nacrzz5nybzrxvbx.png" referrerpolicy="no-referrer">
+
+<strong>82570DCA-3DF4-4285-BA9F-D7BD21D7DBA4.png</strong> (475.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202208/22/185445xs0mjgb181srsxrf.png" referrerpolicy="no-referrer">
+
+<strong>789E2C68-EDBF-4233-897C-FCA9159CF6B6.png</strong> (529.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202208/22/185446cxsns6i51mq6hzxy.png" referrerpolicy="no-referrer">
+
+<strong>86473FF1-8B0C-4987-9607-0D5**7F894.png</strong> (423.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 18:54 上传
+
