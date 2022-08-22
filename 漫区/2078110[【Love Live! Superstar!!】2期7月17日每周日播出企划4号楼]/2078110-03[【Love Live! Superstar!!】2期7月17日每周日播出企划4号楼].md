@@ -3117,3 +3117,29 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  renkan119  
+##### 3314#       发表于 2022-8-22 17:46
+
+<blockquote>adw667 发表于 2022-8-22 16:53
+缪水我没看过，那两个团也有分家情节吗
+
+虹那个内部分队看起来跟整个同好会没那么对立所以 ...</blockquote>
+夏美提议拆队就是为了搞一个裂啦内讧的大新闻 
+
+*****
+
+####  adw667  
+##### 3315#       发表于 2022-8-22 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57174072&amp;ptid=2078110" target="_blank">renkan119 发表于 2022-8-22 17:46</a>
+
+夏美提议拆队就是为了搞一个裂啦内讧的大新闻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那还真是个纯纯的ylg，请唐女士严查入团动机
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来夏美现在像是要和恋绑一起的样子，可可该不会要复刻“那个会长→叶月同学→恋恋”的光速变脸情节吧，只有堇一个人被怼什么的不要啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">至少让堇去怼夏美吧
+
