@@ -5647,3 +5647,15 @@ yls不会真的是不舍得去年那点材料吧，反正泳装不复刻总之�
 
 YLS：今年石头发太多了，多开几个池子回收一下<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2000#       发表于 2022-8-22 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167551&amp;ptid=2084912" target="_blank">圈量子 发表于 2022-8-22 09:51</a>
+
+隔壁不点名地说了一句给不复刻只开卡池洗地的人是yls孝子在几十个赞后被举报mute了，石砸狗叫了属于是[f:03 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我原来说一句这游戏氪金母猪太多了，被禁了一周，理由是带节奏
+

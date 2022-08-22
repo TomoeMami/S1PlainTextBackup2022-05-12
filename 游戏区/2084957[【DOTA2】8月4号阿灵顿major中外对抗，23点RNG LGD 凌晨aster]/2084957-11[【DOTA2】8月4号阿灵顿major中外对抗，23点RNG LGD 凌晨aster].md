@@ -2113,3 +2113,12 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ESL官方有点意思
 
+
+
+*****
+
+####  adretyu67  
+##### 15205#       发表于 2022-8-22 10:30
+
+平分solo？
+
