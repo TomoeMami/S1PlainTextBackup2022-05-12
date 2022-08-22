@@ -2780,3 +2780,19 @@ Entity Talon
 
 【来LGD两年，仙贝治好了我的精神内耗-哔哩哔哩】 https://b23.tv/jwQhcub
 
+
+
+*****
+
+####  反方向的波  
+##### 15277#       发表于 2022-8-22 22:21
+
+NGM.Miracle、Alliance.Aramis、OG.Misha、FNC.Raven缺席
+
+*****
+
+####  adretyu67  
+##### 15278#       发表于 2022-8-22 22:23
+
+厂公又鸽了，esl比赛就是给老液体准备一轮游用的
+

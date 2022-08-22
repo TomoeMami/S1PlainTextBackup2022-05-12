@@ -6322,3 +6322,27 @@ beni的瓦都已经这个段位了，绝大部分还是solo
 之前beni都自嘲过solo valo是她的“驱邪”之路
 炎上那次太伤了，除了箱内的，比赛基本上都没法参加
 
+
+
+*****
+
+####  free  
+##### 17078#       发表于 2022-8-22 22:23
+
+[https://forbesjapan.com/30under30/2022/](https://forbesjapan.com/30under30/2022/)
+
+谱皇入选“30岁以下改变日本的30人”榜
+
+好像去年还是前年田角哥哥也当选过一次吧
+
+*****
+
+####  fastary  
+##### 17079#       发表于 2022-8-22 22:29
+
+enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是自家搞的技术
+
+看隔壁b综提到现在3d门槛越来越低虹的3d还是那么拉，让我想起现在这家公司虽然拉但是没用开源框架所以只能在屎山上拼命装修的软件<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+不过现在虹的3d比起以前竹节虫确实是好多了，可怜黛灰人设那么简单结果直到毕业也没等到3D模的优化<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
