@@ -6295,3 +6295,20 @@ syl 根据运营说的，应该是擅长valo
 
 看了眼一首歌唱完热度已经比某罕见高了
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 17075#       发表于 2022-8-22 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">她笑起来还是那么可爱。
+
+*****
+
+####  FCCHua  
+##### 17076#       发表于 2022-8-22 19:48
+
+beni的瓦都已经这个段位了，绝大部分还是solo
+<img src="https://p.sda1.dev/6/7ac9ad847a58f082b43aa45b604527bc/-33bedcdc81fdf391.jpg" referrerpolicy="no-referrer">
+

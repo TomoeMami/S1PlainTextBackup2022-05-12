@@ -2562,3 +2562,21 @@ v社总不能不给那些队伍研究新版本的时间就去打预选赛吧。
 v社总不能不给那些队伍研究新版本的时间就去打预选赛吧。</blockquote>
 第三赛季dpc的时候v社都没给战队适应版本的时间，你一个小小的第三方赛事还想要v社专门给参加战队留出时间吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tasuku  
+##### 15256#       发表于 2022-8-22 19:40
+
+可能是还没找到最适合哥哥的修改方式
+
+*****
+
+####  Centrum  
+##### 15257#       发表于 2022-8-22 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57175785&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-22 19:40</a>
+可能是还没找到最适合哥哥的修改方式</blockquote>
+直接在泉水的盾上把ti8910的名字改了 把ti11的名字写上不就行了吗 
+
