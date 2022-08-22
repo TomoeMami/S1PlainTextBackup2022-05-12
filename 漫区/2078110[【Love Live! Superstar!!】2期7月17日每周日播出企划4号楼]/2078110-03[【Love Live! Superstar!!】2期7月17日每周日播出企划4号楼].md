@@ -2462,3 +2462,33 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3259#       发表于 2022-8-22 07:55
+
+很难苟同，夏美的背景塑造并不能对之前的剧情里对Liella整出的骚操作作出令人信服的解释，这如何能消除她之前行为里让人讨厌的部分
+
+*****
+
+####  ads147147  
+##### 3260#       发表于 2022-8-22 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166354&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-22 07:37</a>
+和大家不一样，这集我觉得挺好看的
+前半在lovelive系列的一大核心乐趣——沙雕搞笑上做得很棒，冲淡了上一 ...</blockquote>
+这集，如果香音不是学院偶像，而是某些奇怪宗教团体的教主的话，这集夏美的角色人设成长弧度，拉人入伙依然可以成立。（如果舍弃角色特点，无视之前提出的问题也算角色成长的话）
+
+虽然偶像片和宗教总有千丝万缕无法分割的关系，但是星这里，香音嘴里的学园偶像和亚当再世，没有什么区别。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  永恒的王牌  
+##### 3261#       发表于 2022-8-22 07:59
+
+你们觉得夏美太过分了，可能花田觉得刚刚好，只不过加了层夸张滤镜而已，大家都是好孩子前途光明的学园偶像哦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
