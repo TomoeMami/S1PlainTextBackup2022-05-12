@@ -3516,3 +3516,22 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 
 VN是谁啊……
 
+
+
+*****
+
+####  Vacuolar  
+##### 3346#       发表于 2022-8-23 07:00
+
+讲句巨魔的，这社长剧情出来，我期待能走梦见璃亚梦一类的大开大合路线，甚至脑补了类似璃亚梦剧情里和地下偶像爱好者“打”成一片那样有自己理解的偶像路线，这样直接“你悔改罢”感觉真是无趣了。
+
+*****
+
+####  JustW_3  
+##### 3347#       发表于 2022-8-23 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178680&amp;ptid=2078110" target="_blank">Mc凉月奏酱 发表于 2022-8-23 00:49</a>
+
+VN是谁啊……</blockquote>
+第三集把liella打爆的初中生
+
