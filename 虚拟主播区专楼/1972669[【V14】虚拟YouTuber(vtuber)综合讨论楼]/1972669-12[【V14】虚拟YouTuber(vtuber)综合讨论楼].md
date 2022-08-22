@@ -6371,3 +6371,19 @@ enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是�
 
 黛灰的模型外包是おいたん制作的，他还负责了安洁和小护士的模型，已经算是你虹除主流出道外质量最高的一批外包模型了...
 
+
+
+*****
+
+####  fastary  
+##### 17082#       发表于 2022-8-23 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178281&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-22 23:51</a>
+
+业界用的都是VICON和OptiTrack这种光学式捕捉，主要区别在渲染和中控台，模型是外包。
+
+黛灰的模型外包是 ...</blockquote>
+听起来不像是有什么技术上的问题，所以果然还是都有做只是屯着慢慢发？还是说外包模型大家都在拖x<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+安洁和小护士的模就很好，但是黛灰3D模怎么看刘海都处理得有点显头大啊……明明没有什么比较花哨的配饰之类，总不会是越简单越难做？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
