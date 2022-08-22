@@ -2537,3 +2537,28 @@ gtmdace，我先去看追梦人了<img src="https://static.saraba1st.com/image/s
 
 明天esl就开打了，v社不会真摆烂到下周预选赛开赛前一天吧
 
+
+
+*****
+
+####  nomhrpls  
+##### 15253#       发表于 2022-8-22 19:33
+
+v社总不能不给那些队伍研究新版本的时间就去打预选赛吧。
+
+*****
+
+####  战狼PTSD  
+##### 15254#       发表于 2022-8-22 19:34
+
+回忆总最美： 看鸡哥直播就好像在看反向的ame，平时都很蠢，但就是有一天特别厉害
+
+*****
+
+####  逃离二次元  
+##### 15255#       发表于 2022-8-22 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57175709&amp;ptid=2084957" target="_blank">nomhrpls 发表于 2022-8-22 19:33</a>
+v社总不能不给那些队伍研究新版本的时间就去打预选赛吧。</blockquote>
+第三赛季dpc的时候v社都没给战队适应版本的时间，你一个小小的第三方赛事还想要v社专门给参加战队留出时间吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

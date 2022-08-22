@@ -3293,3 +3293,12 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  凡人  
+##### 3326#       发表于 2022-8-22 19:35
+
+薇恩这期就搞定的话实质2.5期生了，剩下的三期生惨
+

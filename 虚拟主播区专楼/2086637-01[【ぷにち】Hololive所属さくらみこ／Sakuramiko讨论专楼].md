@@ -5876,3 +5876,16 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 zeta不可能知道miko的除非她看了miko的直播
 
+
+
+*****
+
+####  holoan  
+##### 569#         楼主| 发表于 2022-8-22 19:34
+
+摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个月多少天晚上不播了 为了白天直播把身体搞坏然后最重要的晚上不播
+
+我也不知道该说什么了 对自己没点逼数
+
