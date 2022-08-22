@@ -3059,3 +3059,17 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 不过就事论事，可可在第一季第七集的幻想还算比较符合实实际（恋那时在可可眼中掌权后真有可能废掉偶像部 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">只能说花田选择了弹幕最多的打法
 
+
+
+*****
+
+####  ads147147  
+##### 3310#       发表于 2022-8-22 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172305&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-22 15:41</a>
+
+只能说花田选择了弹幕最多的打法</blockquote>
+俗套幻想吧，缪水都有，其实都不怎么合时宜，只是现在这个氛围，放大了这样桥段的问题。
+
+虽然虹没有，但是虹真的内部分裂了，某种意义上虹更可怕。
+

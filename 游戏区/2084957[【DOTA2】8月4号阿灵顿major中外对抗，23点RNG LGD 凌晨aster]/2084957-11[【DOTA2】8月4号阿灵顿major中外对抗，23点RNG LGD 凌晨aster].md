@@ -2402,3 +2402,14 @@ ESL这活整挺好</blockquote>
 
 尬黑 掀背举盾才能给ti画上句号
 
+
+
+*****
+
+####  iriyano  
+##### 15237#       发表于 2022-8-22 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170705&amp;ptid=2084957" target="_blank">山上徹也 发表于 2022-8-22 14:34</a>
+ok林仔300名局14连胜了</blockquote>
+哇，不愧是我们山西的骄傲
+
