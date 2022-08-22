@@ -2890,3 +2890,14 @@ CEO怕不是变成手机自拍杆Oni~Natsu~这三样复读工具人罢了</block
 
 ceo与其说给了理由不如说b part跳了世界线，a part还想当标题党赚钱，b part就只会u咩了，还能催一年级训练，完全不提钱的事，根本就不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3296#       发表于 2022-8-22 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57170403&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-8-22 13:07</a>
+ceo与其说给了理由不如说b part跳了世界线，a part还想当标题党赚钱，b part就只会u咩了，还能催一年级训练 ...</blockquote>
+人物塑造割裂式跳跃发展是星团动画不得不品的特色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
