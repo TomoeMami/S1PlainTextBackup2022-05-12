@@ -5729,3 +5729,72 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 窝巢，我已经忘记上半年开过什么无限池了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2009#       发表于 2022-8-22 16:03
+
+说不缺素材的你们没抽夏露露和克姐吗
+
+这俩狗比一个72*3的仪式剑，一个72*3的忘却灰
+
+简直有毒
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 2010#       发表于 2022-8-22 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172649&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-22 16:03</a>
+
+说不缺素材的你们没抽夏露露和克姐吗
+
+这俩狗比一个72*3的仪式剑，一个72*3的忘却灰
+
+简直有毒</blockquote>
+夏露露没抽到，飞嫂111摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UNISONIA  
+##### 2011#       发表于 2022-8-22 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172649&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-22 16:03</a>
+
+说不缺素材的你们没抽夏露露和克姐吗
+
+这俩狗比一个72*3的仪式剑，一个72*3的忘却灰
+
+简直有毒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装开之前我已经在265坐牢一个月了
+
+*****
+
+####  exiaexa  
+##### 2012#       发表于 2022-8-22 16:09
+
+看了一眼，这次泳装材料只有两个人下毒
+
+一个是武后60*3的忘却灰
+
+一个是加雷斯60*3的仪式剑
+
+只是这俩都不配点30
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 2013#       发表于 2022-8-22 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172706&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-22 16:07</a>
+
+泳装开之前我已经在265坐牢一个月了</blockquote>
+出狱了吗，我现在还在坐牢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
