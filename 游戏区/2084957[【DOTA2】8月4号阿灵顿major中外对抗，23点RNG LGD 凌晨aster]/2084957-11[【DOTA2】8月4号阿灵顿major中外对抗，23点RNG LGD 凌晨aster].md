@@ -3078,3 +3078,28 @@ NGM.Miracle、Alliance.Aramis、OG.Misha、FNC.Raven缺席</blockquote>
 跟漏油们说个好玩的，我上周女同事约我出去看电影我连手都没牵。女同事评价我毫无攻击性，无欲无求 ...</blockquote>
 好啊好啊，我建议直接出圣剑bd了，csdx
 
+
+
+*****
+
+####  逃离二次元  
+##### 15309#       发表于 2022-8-23 07:30
+
+那我的比龙心蝴蝶小狗的那个还新
+
+*****
+
+####  掉头学姐  
+##### 15310#       发表于 2022-8-23 07:37
+
+玩Dota的不都是中年吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15311#       发表于 2022-8-23 07:38
+
+Bkb？命运敕令！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
