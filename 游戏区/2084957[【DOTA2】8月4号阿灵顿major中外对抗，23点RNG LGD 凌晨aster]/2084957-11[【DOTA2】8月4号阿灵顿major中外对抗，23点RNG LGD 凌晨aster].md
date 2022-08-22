@@ -2267,3 +2267,12 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
 eesama攻击性强，我支持eesama开新楼<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  山上徹也  
+##### 15222#       发表于 2022-8-22 13:00
+
+【肥鼠边教你打造军团】 [https://www.bilibili.com/video/BV1aB4y1x7Bk](https://www.bilibili.com/video/BV1aB4y1x7Bk)
+
