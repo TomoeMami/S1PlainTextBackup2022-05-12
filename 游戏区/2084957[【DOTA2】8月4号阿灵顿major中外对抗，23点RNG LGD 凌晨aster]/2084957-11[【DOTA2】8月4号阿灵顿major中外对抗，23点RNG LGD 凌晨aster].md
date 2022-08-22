@@ -2814,3 +2814,12 @@ NGM.Miracle、Alliance.Aramis、OG.Misha、FNC.Raven缺席
 
 重要的是和兄弟们一起玩<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 15281#       发表于 2022-8-22 23:04
+
+打了一把点金裸大电血魔，被队友评价像处长，不过输出比四号位高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

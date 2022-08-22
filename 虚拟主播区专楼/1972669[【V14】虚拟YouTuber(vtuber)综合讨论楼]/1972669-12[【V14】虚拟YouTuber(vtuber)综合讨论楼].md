@@ -6346,3 +6346,12 @@ enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是�
 
 不过现在虹的3d比起以前竹节虫确实是好多了，可怜黛灰人设那么简单结果直到毕业也没等到3D模的优化<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 17080#       发表于 2022-8-22 23:08
+
+跌丝袜的推特订阅数终于也破百万了，可喜可贺。
+
