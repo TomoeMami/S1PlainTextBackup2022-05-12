@@ -2039,3 +2039,46 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 明天云顶杯开打？</blockquote>
 明天开
 
+
+
+*****
+
+####  asd235614  
+##### 15197#       发表于 2022-8-22 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以esl期间到底用哪栋楼现在
+
+*****
+
+####  dclara1  
+##### 15198#       发表于 2022-8-22 10:17
+
+<img src="https://img.saraba1st.com/forum/202208/22/101737tj8gyyys88ksdi64.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 10:17 上传
+
+*****
+
+####  walfeds  
+##### 15199#       发表于 2022-8-22 10:18
+
+感觉小组赛没啥看头
+
+话说动画都放完了该出新英雄了吧
+
+至宝看好TA，身心看好火女，露娜可以做但没必要
+
+冰龙身心来一个求你了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 15200#       发表于 2022-8-22 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167922&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-22 10:17</a></blockquote>
+@战狼ptsd
+
