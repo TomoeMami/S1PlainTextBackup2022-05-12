@@ -3084,3 +3084,19 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 原来昨天还现场彩排了OP，结果实际演出却没唱
 
+
+
+*****
+
+####  adw667  
+##### 3312#       发表于 2022-8-22 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172440&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-22 15:50</a>
+
+俗套幻想吧，缪水都有，其实都不怎么合时宜，只是现在这个氛围，放大了这样桥段的问题。
+
+虽然虹没有，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">缪水我没看过，那两个团也有分家情节吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虹那个内部分队看起来跟整个同好会没那么对立所以观感还不错（手游剧情另说）
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">说起来夏美拆队到底是为了啥啊，抛开逻辑不谈我挺想知道有什么事是要让二期瞒着一期才能办到
+

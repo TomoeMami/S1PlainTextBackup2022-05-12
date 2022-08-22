@@ -6189,3 +6189,21 @@ syl 隔壁的怜也在新衣服回
 
 <img src="http://tva3.sinaimg.cn/large/7c16af6bly1h5fmodsu45j20gn12an36.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小鸟游泉  
+##### 17066#       发表于 2022-8-22 16:53
+
+确实不愧是不怕死三人组……问的还各种刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+后面问的这几个问题算是打开社内联动的大门了
+
+*****
+
+####  渡鸦骑士  
+##### 17067#       发表于 2022-8-22 16:58
+
+但是就算如此，用的是视频而不是直播也<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
