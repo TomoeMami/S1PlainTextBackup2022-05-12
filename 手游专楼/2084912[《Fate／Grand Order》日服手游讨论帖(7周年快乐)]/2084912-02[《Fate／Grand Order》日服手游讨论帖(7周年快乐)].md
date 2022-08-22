@@ -5659,3 +5659,12 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 隔壁不点名地说了一句给不复刻只开卡池洗地的人是yls孝子在几十个赞后被举报mute了，石砸狗叫了属于是[f:03 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我原来说一句这游戏氪金母猪太多了，被禁了一周，理由是带节奏
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2001#       发表于 2022-8-22 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装抽的卡一个也没点技能，看到只有十几个狂辉石就烦，尺怎么吃这么多
+

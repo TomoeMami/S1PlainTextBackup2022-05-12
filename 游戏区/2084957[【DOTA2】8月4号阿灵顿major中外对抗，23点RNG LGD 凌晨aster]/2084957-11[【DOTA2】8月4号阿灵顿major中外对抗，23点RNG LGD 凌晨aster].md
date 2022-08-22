@@ -2140,3 +2140,43 @@ TI11勇士令状推出，其实就是小本子发布，大家可能会很惊讶T
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+
+*****
+
+####  逃离二次元  
+##### 15208#       发表于 2022-8-22 11:21
+
+能不能来个人开新楼<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">明天esl就开打了
+
+*****
+
+####  12481632  
+##### 15209#       发表于 2022-8-22 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57167922&amp;ptid=2084957" target="_blank">dclara1 发表于 2022-8-22 10:17</a></blockquote>
+[@战狼PTSD](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=507445) 漏油竟已打入鳖茶内部，能来点鹏子女装照吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 15210#       发表于 2022-8-22 11:26
+
+战狼队是esl发的吗？？？
+
+
+
+*****
+
+####  asd235614  
+##### 15211#       发表于 2022-8-22 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不是说等预选再开新的么，反正这楼还没开始卡页
+
+*****
+
+####  六娃  
+##### 15212#       发表于 2022-8-22 11:27
+
+开新楼的撸狗戏来了是吧，还有一群捧臭脚的傻狗
+
