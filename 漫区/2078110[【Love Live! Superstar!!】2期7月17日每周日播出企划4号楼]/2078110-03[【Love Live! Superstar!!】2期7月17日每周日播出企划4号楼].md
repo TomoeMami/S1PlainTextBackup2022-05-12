@@ -2578,3 +2578,41 @@ ceo入队有股**恶堕味<img src="https://static.saraba1st.com/image/smiley/fa
 
 最后live结束，夏美作感想总结的部分，你就不能直接连着live结束在舞台上面对台下观众给的欢呼来做出这段感想发言吗？非要突兀的变回校服再换个场景，简直就像考试最后没时间了作文必须收尾硬插进去的一段。印象中，两季动画到目前，所有的live部分，给出成员们收获喜悦获得感悟的演出时，全都是直接接着live，直接在舞台上穿着打歌服就做出来的吧？为什么这里非要例外啊？简直有种玩格斗游戏好不容易铺垫半天把怒气值攒满了，最后大招之前却不小心让怒气值清0导致输出低得可怜似的泄气感
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3269#       发表于 2022-8-22 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166716&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-22 08:37</a>
+
+其实我觉得LL系列的动画剧情一直都不值得期待，之前几期没有这么大反响主要是声优表现还可以，以及 ...</blockquote>
+可惜了2.5次元偶像企划的特色了，本来这种企划就应该是在动画和真人方面取得一个平衡的。要是动画不行那就只得偏向三次赚钱，三次元不行那就只能偏向动画吸粉。而LL无论在二次元还是三次元方向都很难达到TOP1水平，拿什么竞争力和别人比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 3270#       发表于 2022-8-22 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166755&amp;ptid=2078110" target="_blank">名津流 发表于 2022-8-22 08:42</a>
+
+这集熟肉看完
+
+我也觉得这集至少前2/3的部分观感回升了些，毕竟夏美这也勉强算先抑后扬的写法了，这集既然开 ...</blockquote>
+我觉得可能是因为打歌服不好画<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟是能干出来自己描自己上季动画分镜图的制作组，将就将就凑合凑合怎么好搞怎么来了，感觉和我写代码写到心力交瘁不考虑效率的时候差不多了
+
+
+
+*****
+
+####  雪城穗乃香  
+##### 3271#       发表于 2022-8-22 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57166452&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-22 07:55</a>
+
+很难苟同，夏美的背景塑造并不能对之前的剧情里对Liella整出的骚操作作出令人信服的解释，这如何能消除她之 ...</blockquote>
+可以解释，夏美才15岁，对她来说目前为止的人生里除了赚钱没什么事让她有过获得感，所以为了赚钱干出什么事来都不为过，在这年龄来说有这思想很正常。
+
+最后她通过自己加入liella的形式让恶心合同无效化了，本身也是自己清除了自己做的孽，这样一来上一集的恶心事就一笔勾销了，剩下的就是她的高光和可爱了。
+
