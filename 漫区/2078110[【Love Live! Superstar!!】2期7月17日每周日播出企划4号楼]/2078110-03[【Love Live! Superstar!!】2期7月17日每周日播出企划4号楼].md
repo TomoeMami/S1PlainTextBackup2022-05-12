@@ -3441,3 +3441,20 @@ vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella
 vn的曲子播放数依然高于liella二期的所有曲目，目前59w，liella最高的是op的we will，51w。。。还不赚她入 ...</blockquote>
 感觉这样肯定要赚她上结丘
 
+
+
+*****
+
+####  adw667  
+##### 3339#       发表于 2022-8-22 23:23
+
+<img src="https://img.saraba1st.com/forum/202208/22/232307ktibjkjiuzktz44i.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220822231137.png</strong> (21.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 23:23 上传
+
+官方谷店真就没有校对是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
