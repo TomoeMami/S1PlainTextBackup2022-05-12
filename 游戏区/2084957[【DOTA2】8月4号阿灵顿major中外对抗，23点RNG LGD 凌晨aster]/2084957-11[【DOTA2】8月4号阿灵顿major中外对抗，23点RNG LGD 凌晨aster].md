@@ -2726,3 +2726,17 @@ yj，海猫，我宣布你对dota的热爱，超过了在场所有人，我真�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  belichick  
+##### 15273#       发表于 2022-8-22 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57176833&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-22 21:14</a>
+
+这图我有印象，记得马尔斯是p的？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+傻狗短剧BV1La411P7YC
+
