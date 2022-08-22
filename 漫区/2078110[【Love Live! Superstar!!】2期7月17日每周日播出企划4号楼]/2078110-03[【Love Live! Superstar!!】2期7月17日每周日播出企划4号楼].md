@@ -3026,3 +3026,15 @@ u1s1，网红能不能火这事属于玄学
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 3307#       发表于 2022-8-22 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171617&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-8-22 14:52</a>
+
+https://twitter.com/wabe417/status/1561362512549138433</blockquote>
+魔爪配色都比这玩意鲜艳多了，毕竟魔爪罐子它反光<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
