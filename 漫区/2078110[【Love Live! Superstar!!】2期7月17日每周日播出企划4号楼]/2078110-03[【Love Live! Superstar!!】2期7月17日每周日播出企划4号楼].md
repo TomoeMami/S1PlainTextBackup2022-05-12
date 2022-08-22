@@ -3263,3 +3263,33 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 
 2022-8-22 18:54 上传
 
+
+
+*****
+
+####  ads147147  
+##### 3323#       发表于 2022-8-22 19:22
+
+按目前掏出来的曲子来看，这个3rd，很难让人期待。甚至说别唱动画曲直接Liella之歌和cw曲更好。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 3324#       发表于 2022-8-22 19:23
+
+看VN的CV结那这么努力给LLSP宣传，这个三期生的身份几乎跑不掉
+
+*****
+
+####  ads147147  
+##### 3325#       发表于 2022-8-22 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57175063&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-22 18:44</a>
+我现在已经能一眼望到香音杀穿三期生的剧情了
+如果三期生内部有cp的话那就只拉两个，反正薇恩肯定是必选的[ ...</blockquote>
+快的话，vn这期就能搞定了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

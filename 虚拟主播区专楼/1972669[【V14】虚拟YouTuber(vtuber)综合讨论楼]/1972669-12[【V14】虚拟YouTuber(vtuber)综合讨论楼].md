@@ -6277,3 +6277,21 @@ syl 根据运营说的，应该是擅长valo
 
 在星川直播间看到弹幕“热度不如罕见”就像正在吸珍珠奶茶的时候吸到了一大粒老鼠屎一样难受<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 17073#       发表于 2022-8-22 19:22
+
+都没花精力经营B站，热度低不是挺正常的么，没被说收租已经很好了 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 17074#       发表于 2022-8-22 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天星川首播啊，虽然这首播撞了好日子又延期一小时
+
+看了眼一首歌唱完热度已经比某罕见高了
+
