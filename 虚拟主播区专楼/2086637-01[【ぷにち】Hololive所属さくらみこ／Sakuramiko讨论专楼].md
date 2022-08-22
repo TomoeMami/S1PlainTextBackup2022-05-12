@@ -5808,3 +5808,14 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 反正不可能连日rust除非这人疯了
 
+
+
+*****
+
+####  a2276382  
+##### 562#       发表于 2022-8-22 17:15
+
+可能不播 但有可能在别人的直播看到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

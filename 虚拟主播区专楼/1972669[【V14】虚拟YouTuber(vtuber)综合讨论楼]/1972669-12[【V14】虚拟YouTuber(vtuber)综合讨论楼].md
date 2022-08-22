@@ -6207,3 +6207,15 @@ syl 隔壁的怜也在新衣服回
 
 但是就算如此，用的是视频而不是直播也<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17068#       发表于 2022-8-22 17:16
+
+ 本帖最后由 FCCHua 于 2022-8-22 17:18 编辑 
+
+vspo怎么又这么唐突出新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl 根据运营说的，应该是擅长valo
+
