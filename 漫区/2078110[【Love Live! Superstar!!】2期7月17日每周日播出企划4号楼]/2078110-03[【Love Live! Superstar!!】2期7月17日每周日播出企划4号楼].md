@@ -3100,3 +3100,20 @@ https://twitter.com/wabe417/status/1561362512549138433</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虹那个内部分队看起来跟整个同好会没那么对立所以观感还不错（手游剧情另说）
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">说起来夏美拆队到底是为了啥啊，抛开逻辑不谈我挺想知道有什么事是要让二期瞒着一期才能办到
 
+
+
+*****
+
+####  ads147147  
+##### 3313#       发表于 2022-8-22 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57173357&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-22 16:53</a>
+缪水我没看过，那两个团也有分家情节吗
+
+虹那个内部分队看起来跟整个同好会没那么对立所以 ...</blockquote>
+缪有凛幻想kke是arise的间谍，水是mari幻想露比跳到圣雪，就是单纯的搞笑情节，属于做包袱，然后被别人吐槽的情节，问题真的不大。
+
+虹的as手游是把这个幻想做成真事，然后故事爆炸人设炸了几乎整个虹团，堪称编剧界的灾难。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

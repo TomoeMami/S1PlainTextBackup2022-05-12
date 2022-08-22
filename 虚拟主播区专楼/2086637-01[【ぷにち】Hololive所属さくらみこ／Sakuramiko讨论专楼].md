@@ -5797,3 +5797,14 @@ miko：看了holo其他人的黑历史很有趣，自己的黑历史没什么有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">9号啊，发现现在才22号，还得等好久。
 
+
+
+*****
+
+####  holoan  
+##### 561#         楼主| 发表于 2022-8-22 17:09
+
+盲猜今晚会限
+
+反正不可能连日rust除非这人疯了
+
