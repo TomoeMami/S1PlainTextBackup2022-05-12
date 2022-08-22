@@ -2944,3 +2944,30 @@ ceo与其说给了理由不如说b part跳了世界线，a part还想当标题�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  saya1892  
+##### 3301#       发表于 2022-8-22 14:52
+
+[https://twitter.com/wabe417/status/1561362512549138433](https://twitter.com/wabe417/status/1561362512549138433)
+
+<img src="https://img.saraba1st.com/forum/202208/22/145155bnnc628c6424kyc4.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (131.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 14:51 上传
+
+还是不能接受这个魔爪配色<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/22/145242y11kfvqa5b89yqa8.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (24.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 14:52 上传
+
