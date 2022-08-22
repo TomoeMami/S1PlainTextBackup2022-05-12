@@ -6268,3 +6268,12 @@ syl 根据运营说的，应该是擅长valo
 要不是莎皇爆火估计这视频还能出的更早，伊甸组~VTA ...</blockquote>
 好吧，确实关注的少。
 
+
+
+*****
+
+####  HKGC296  
+##### 17072#       发表于 2022-8-22 19:19
+
+在星川直播间看到弹幕“热度不如罕见”就像正在吸珍珠奶茶的时候吸到了一大粒老鼠屎一样难受<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
