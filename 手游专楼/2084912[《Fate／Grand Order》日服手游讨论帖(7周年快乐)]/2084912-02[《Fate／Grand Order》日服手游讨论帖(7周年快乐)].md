@@ -6173,3 +6173,15 @@ c呆强度做坏了，求访谈
  为什么你的石头有灵魂 我的没有啊  羡慕</blockquote>
 说明前面垫的不够多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2047#       发表于 2022-8-23 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189159&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-23 20:56</a>
+
+说明前面垫的不够多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从公主算起我大概1200石3宝（2公主1rba） 隔壁红烧天堂绝赞80连无彩  你看我这都把隔壁也垫进去了还不够吗！
+

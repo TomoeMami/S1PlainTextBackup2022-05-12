@@ -5977,3 +5977,19 @@ boom前两天刚在泰国打完小比赛，可能打野了
 chu打线放技能不像买号哥misha，这个major还是有点竞争力</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真是太可怕了，chuvash天梯比misha还高了两百名还是三百名
 
+
+
+*****
+
+####  聚散浮云  
+##### 15661#       发表于 2022-8-23 21:03
+
+FNC这阵容把我看傻了
+
+*****
+
+####  nomhrpls  
+##### 15662#       发表于 2022-8-23 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mc你已经不是那个一人带四腿带进ti的mc了，已经不配玩斧王这种英雄了
+
