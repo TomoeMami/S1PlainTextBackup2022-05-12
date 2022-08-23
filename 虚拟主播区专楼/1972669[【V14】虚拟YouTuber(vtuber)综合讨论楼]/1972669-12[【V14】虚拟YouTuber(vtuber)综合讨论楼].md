@@ -6447,3 +6447,21 @@ yysy确实进步有（对比年初就知道了） 基本是ema中位数差不多
 业界顶尖，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 那这业界也未免太没有前途了
 
+
+
+*****
+
+####  高等黑暗  
+##### 17088#       发表于 2022-8-23 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179234&amp;ptid=1972669" target="_blank">裏命 发表于 2022-8-23 04:33</a>
+
+咩咩启示录是买了彩虹的工商吗，都在播？</blockquote>
+最新管人金游好吧
+
+说实话这游戏并不适合在油管播，可惜有经营twitch的虹人太少了
+
+这游戏在twitch上可以现场抽一个观众上台，抽中的观众在twitch网页上现场捏人，然后去干活或者当祭品都随主播的意
+
+观众还可以用频道点数给主播支援，还有隔段时间投票给主播支援或者妨碍
+
