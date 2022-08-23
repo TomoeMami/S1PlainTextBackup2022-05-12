@@ -3254,3 +3254,38 @@ ed是男人的福报
 
 还好我阳痿
 
+
+
+*****
+
+####  恐怖利刃  
+##### 15330#       发表于 2022-8-23 10:07
+
+<img src="https://img.saraba1st.com/forum/202208/23/100604rr7ia2u7pbid1aqc.png" referrerpolicy="no-referrer">
+
+<strong>02E0D707-9001-4F58-AB06-1699FDC8BA41.png</strong> (715.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 10:06 上传
+
+难绷，看第一句还以为他俩谈了15年了，结果说的是科比
+
+
+
+*****
+
+####  adretyu67  
+##### 15331#       发表于 2022-8-23 10:08
+
+15年怎么可能是量子鞭，15年前量子鞭才8岁。
+
+倒是吹了这么多，科比有这么牛？？？？
+
+*****
+
+####  walfeds  
+##### 15332#       发表于 2022-8-23 10:09
+
+这情真意切绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

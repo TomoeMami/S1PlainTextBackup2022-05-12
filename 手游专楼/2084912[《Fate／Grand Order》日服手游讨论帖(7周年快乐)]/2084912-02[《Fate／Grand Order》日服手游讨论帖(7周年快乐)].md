@@ -5925,3 +5925,22 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 出狱了吗，我现在还在坐牢</blockquote>
 就够了夏露露、小教授、飞嫂和张角的，罗兰堂吉诃德的技能一个没练<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2026#       发表于 2022-8-23 10:09
+
+等车的时候打了打rba
+
+是真的难顶，回收比卡莲好得多，但是伤害感人
+
+0NP的时候来一个30充可以原地起爆算是好事儿吧，可是要换人
+
+50np的时候不需要换人，可是伤害感人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最重要的是，紧张刺激的点技能战斗，点错一下想死，一管半体力里点错重开了三次
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

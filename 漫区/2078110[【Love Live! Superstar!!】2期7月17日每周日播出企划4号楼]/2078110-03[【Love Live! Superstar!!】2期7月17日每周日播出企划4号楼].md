@@ -3575,3 +3575,20 @@ VN是谁啊……</blockquote>
 
 而其他三人原以为是粉丝同好为兴趣而帮忙製作视频，没想过对方视自己为赚钱工具。即使合约签了不得不依从，但心情上总会觉得被骗的。现实中那种因对方是多年亲人朋友，不看清条款便签约，然后发现自己信错人后大吵大闹的事便不罕见。
 
+
+
+*****
+
+####  ads147147  
+##### 3351#       发表于 2022-8-23 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179709&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-23 08:19</a>
+请指出上图中的寨主，啊不，部长</blockquote>
+公明哥哥，宋香音；
+晁盖寨主，小千天王；
+黑旋风，唐可可；
+逼上梁山，林民警；
+背景板卢恋恋（
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
