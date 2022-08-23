@@ -6377,3 +6377,61 @@ Dota之神果然整大活了
 
 https://bbs.saraba1st.com/2b/thread-2088652-0-1.html
 
+
+
+*****
+
+####  Kazepollar  
+##### 15708#       发表于 2022-8-24 07:20
+
+随便看了两眼更新，兽王这什么derb技能啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 15709#       发表于 2022-8-24 07:20
+
+<blockquote>移除了中路附近的小型野怪营地</blockquote>
+
+圣水符没死，但是这个死了。
+
+猴爹的末日要到了？
+
+*****
+
+####  Asukalangley33  
+##### 15710#       发表于 2022-8-24 07:25
+
+ 本帖最后由 Asukalangley33 于 2022-8-24 07:27 编辑 
+
+Sf好叼啊
+打炮白送减速，25级天赋也是输出拉满<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+Qop A杖直接照搬天地迷宫可还行
+
+*****
+
+####  tasuku  
+##### 15711#       发表于 2022-8-24 07:26
+
+增加小兵可还行
+
+*****
+
+####  iriyano  
+##### 15712#       发表于 2022-8-24 07:27
+
+掘地
+现在没有持续施法时间，立刻生效
+冷却时间从50秒降低至40秒
+生命回复从60%减少至40%
+
+无敌大增强？
+
+*****
+
+####  健康猹  
+##### 15713#       发表于 2022-8-24 07:28
+
+感觉chen其实没怎么削，暗牧在数值上倒是挨了一刀
+
