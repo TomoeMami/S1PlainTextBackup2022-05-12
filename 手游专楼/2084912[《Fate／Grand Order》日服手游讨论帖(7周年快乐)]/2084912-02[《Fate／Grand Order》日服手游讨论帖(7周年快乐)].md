@@ -6151,3 +6151,14 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 满50天的石头终于出rba了算起来都3单才出，这下真的要等半年再抽卡了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你的石头有灵魂 我的没有啊  羡慕
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2045#       发表于 2022-8-23 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183408&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-23 13:33</a>
+没有提到过伯道上人。你游甚至连天狗道和修验道的始祖役小角都不正面提的（本来可以提的地方有：佩佩相关 ...</blockquote>
+c呆强度做坏了，求访谈
+
