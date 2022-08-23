@@ -4567,3 +4567,54 @@ NK
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  adw667  
+##### 3441#       发表于 2022-8-23 23:26
+
+小星星那憋了三集的大招吊打S2插1这种阿三情节一样的不是很正常嘛<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+OPED更别说了，S2ED要给MV磕头的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有就那官网整的什么几把玩意还想卖谷？也就日本国内买壶的会去那个官网买谷了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永恒的王牌  
+##### 3442#       发表于 2022-8-23 23:30
+
+你鲤鱼姐还说可堇关系是第二季看点，现在可可写成这样无非也就是S1E10加强版，这还不如不要呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3443#       发表于 2022-8-23 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望live表现能改观
+
+*****
+
+####  ads147147  
+##### 3444#       发表于 2022-8-23 23:31
+
+<img src="https://p.sda1.dev/6/dcd5a44621bde866b3f895e1596a21da/CMP_20220823232915081.jpg" referrerpolicy="no-referrer">
+
+甚至被迫炸了虹楼的评分贴，省的每周一挖。
+
+某种意义上星团已经赢了。
+
+虽然香音变成了这样，但是我真的没办法讨厌小百合啊，sayu真成了最大受害者了，这个运营我完全无法理解。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星降る森  
+##### 3445#       发表于 2022-8-23 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LL的动画再好办不过了吧，不怕白开水，只要不忘人设保证剧情四平八稳全力服务河豚插一首live曲起码也能保证基本盘的，无奈星2期骚操作不断。
+
+LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成现在这样呢
+
