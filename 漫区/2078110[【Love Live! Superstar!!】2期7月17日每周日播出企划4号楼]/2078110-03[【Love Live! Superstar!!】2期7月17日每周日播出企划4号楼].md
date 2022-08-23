@@ -3592,3 +3592,22 @@ VN是谁啊……</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_3  
+##### 3352#       发表于 2022-8-23 10:27
+
+ 本帖最后由 JustW_3 于 2022-8-23 10:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57180727&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-23 10:09</a>
+
+公明哥哥，宋香音；
+
+晁盖寨主，小千天王；
+
+黑旋风，唐可可；</blockquote>
+s1e8：宋香音对卢恋恋说道，这个center还是哥哥你来做罢
+
+不过有一说一，大聚义之后宋江就没缩卵了（之前也没缩几次），不知道你香音哥哥会如何
+
