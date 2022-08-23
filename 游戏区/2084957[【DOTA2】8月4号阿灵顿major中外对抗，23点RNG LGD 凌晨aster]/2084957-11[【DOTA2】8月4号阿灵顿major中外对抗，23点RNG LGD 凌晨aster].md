@@ -3400,3 +3400,19 @@ ti8被被拉比克干，ti9被冠军蓝胖干碎止步第三名，ti10好不容�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以nga会有人质疑双败赛制的公平性证明超级集美论坛连看上一支老干瘪的人都少了，大部分都是处长+23458组队后引流过来的
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 15343#       发表于 2022-8-23 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么又来了一个高达戏服
+
+*****
+
+####  adretyu67  
+##### 15344#       发表于 2022-8-23 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">只能建议加赛到lgd bo赢为止
+
