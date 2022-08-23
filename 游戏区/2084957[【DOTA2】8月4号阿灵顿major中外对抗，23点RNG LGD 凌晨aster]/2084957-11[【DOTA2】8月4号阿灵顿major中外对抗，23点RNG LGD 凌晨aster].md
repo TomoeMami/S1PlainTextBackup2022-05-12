@@ -5386,3 +5386,119 @@ esl这个回放有点搞笑啊</blockquote>
 对跳跳是不是有点狠了</blockquote>
 绿毛跳的气质堪称弱智儿童样板戏了
 
+
+
+*****
+
+####  bluebaby  
+##### 15584#       发表于 2022-8-23 18:50
+
+此处该有年轻dendi的地位
+
+*****
+
+####  walfeds  
+##### 15585#       发表于 2022-8-23 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">米扣演我zai是吧
+
+*****
+
+####  Aeons  
+##### 15586#       发表于 2022-8-23 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 15587#       发表于 2022-8-23 18:51
+
+这蓝猫真的小丑
+
+*****
+
+####  asd235614  
+##### 15588#       发表于 2022-8-23 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zai稍微坐起来一会m1cke躺下了
+
+*****
+
+####  Sabbah  
+##### 15589#       发表于 2022-8-23 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种局总有人来替术士zai抢黑枪子，地位真的独一档
+
+*****
+
+####  IG.430  
+##### 15590#       发表于 2022-8-23 18:54
+
+zai别说了，力中暴力
+
+*****
+
+####  43453  
+##### 15591#       发表于 2022-8-23 18:55
+
+油阿鸡也是虐菜无情啊，对阿茶和lgd的时候像个小丑的时候
+
+*****
+
+####  nomhrpls  
+##### 15592#       发表于 2022-8-23 18:56
+
+怎么ngm打的好好的突然发病了
+
+*****
+
+####  nowaki  
+##### 15593#       发表于 2022-8-23 18:57
+
+zai别说了！
+
+*****
+
+####  adretyu67  
+##### 15594#       发表于 2022-8-23 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187430&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 18:49</a>
+
+绿毛跳的气质堪称弱智儿童样板戏了</blockquote>
+营养不良吧。
+
+但是马桶的ID是最猥琐的。TI7后某次访谈不是说他的id来自一个黑人朋友，意思就是大黑屌
+
+*****
+
+####  Aeons  
+##### 15595#       发表于 2022-8-23 18:58
+
+喜欢刷钱不走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 15596#       发表于 2022-8-23 18:58
+
+og这c，真不怪ceb天天絮叨ana好吧
+
+*****
+
+####  六娃  
+##### 15597#       发表于 2022-8-23 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187574&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-23 18:58</a>
+营养不良吧。
+
+但是马桶的ID是最猥琐的。TI7后某次访谈不是说他的id来自一个黑人朋友，意思就是大黑屌 ...</blockquote>
+没被女王总理接见是有原因的
+
+*****
+
+####  nomhrpls  
+##### 15598#       发表于 2022-8-23 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">** 切过去看到苏少猴子出了个辉耀 csdx
+
