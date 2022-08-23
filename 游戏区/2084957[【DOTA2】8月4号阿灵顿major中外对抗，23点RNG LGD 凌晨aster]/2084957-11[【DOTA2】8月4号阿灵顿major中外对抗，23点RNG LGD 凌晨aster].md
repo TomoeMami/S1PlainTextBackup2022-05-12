@@ -5110,3 +5110,12 @@ a畜接管比赛的能力大概比鹏子强了一个油面。</blockquote>
 
 难绷，一想到大鞭哥女朋友喜欢科比但是把a畜叫做电竞科比，我就怀疑cn冠军三号位是不是被人下了奇怪的蛊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 15549#       发表于 2022-8-23 17:19
+
+不是希望a畜早点搭直升机吗
+
