@@ -5955,3 +5955,19 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 伯道＞晴明＞道满，现在道满强度都这么高，晴明怎么也得来个C呆级吧，伯道我都不敢想 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2028#       发表于 2022-8-23 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183088&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-23 13:04</a>
+
+突然想到一个事，晴明师傅伯道上人的卫星有没有升天啊 
+
+伯道＞晴明＞道满，现在道满强度都这么高， ...</blockquote>
+没有提到过伯道上人。你游甚至连天狗道和修验道的始祖役小角都不正面提的（本来可以提的地方有：佩佩相关剧情、鬼一法眼，甚至牛若那边）
+
+顺带今年这俩拐的设计不是证明了菌去年访谈说的那句是真的吗，他们内部觉得C呆的强度做坏了，以后也不打算再出C呆这个级别的拐了。道满受宠是因为武内更喜欢道满、身为第二部的使徒、樱井光花了一些力气去描写的角色等原因的
+
