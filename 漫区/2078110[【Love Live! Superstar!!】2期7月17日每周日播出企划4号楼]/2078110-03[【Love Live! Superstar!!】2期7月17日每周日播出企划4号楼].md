@@ -4736,3 +4736,29 @@ LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成�
 
 鲤鱼不上的理由找到了，怕她控制不住表情毁了欣欣向荣的美景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 3459#       发表于 2022-8-23 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190948&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-08-23 23:48:57</a>
+还能怎么评，当然是挑着还过得去的地方夸一夸呗</blockquote>我就是想看看她口是心非的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 3460#       发表于 2022-8-23 23:54
+
+下周结女广播鲤鱼不上了吗，公式的夸夸呗，挣得不就是这钱吗，话说我都好久没看过广播了，一期那会差不多每次聊的延迟一两集，下周大概会聊第几集啊
+
+*****
+
+####  lj205  
+##### 3461#       发表于 2022-8-23 23:57
+
+下周是大熊和朱茵上，估计聊红蓝
+

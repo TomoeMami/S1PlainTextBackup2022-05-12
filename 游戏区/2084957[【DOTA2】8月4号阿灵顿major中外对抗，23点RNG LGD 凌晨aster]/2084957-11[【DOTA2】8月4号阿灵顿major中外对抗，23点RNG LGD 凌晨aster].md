@@ -6190,3 +6190,19 @@ misha神这运气真的不行，签证材料都能被领事馆丢了</blockquote
 
 esl各种垃圾队伍，残阵还是版本最后的比赛看了两场我就关了还是等更新吧
 
+
+
+*****
+
+####  北条早苗  
+##### 15685#       发表于 2022-8-23 23:52
+
+这不会打完云顶杯misha的签证就要出问题了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 15686#       发表于 2022-8-23 23:57
+
+希望一觉醒来能看到本子更新<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
