@@ -6534,3 +6534,29 @@ ZETAを脱退しますがこれからもずっと
 
 怪不得很久没见现黄泉播了...
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17096#       发表于 2022-8-23 19:30
+
+[https://www.youtube.com/watch?v=u5i1IxPFC2U](https://www.youtube.com/watch?v=u5i1IxPFC2U)
+
+游戏部二代目那帮人现在变成这样了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 17097#       发表于 2022-8-23 19:37
+
+终于发了张没有雪饼的
+<img src="https://p.sda1.dev/6/71142c159552872be62ebd399ed06f8f/S~Y3M2_IO_E__BK0W_Y_A_A.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 17098#       发表于 2022-8-23 19:38
+
+算素颜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
