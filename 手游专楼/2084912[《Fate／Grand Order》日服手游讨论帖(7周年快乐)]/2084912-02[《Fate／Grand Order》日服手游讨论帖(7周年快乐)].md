@@ -6061,3 +6061,25 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 明天还有个登陆石，现在就很犹豫，不过明天也能抽马娘了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天我是一张护符  希望伊师傅别不知好歹
 
+
+
+*****
+
+####  kiralzb  
+##### 2037#       发表于 2022-8-23 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57184121&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-23 14:40</a>
+
+明天我是一张护符  希望伊师傅别不知好歹</blockquote>
+要表演一抽两宝了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2038#       发表于 2022-8-23 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185070&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-23 16:04</a>
+
+要表演一抽两宝了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">角色满破还有3石 甚至可以三宝
+

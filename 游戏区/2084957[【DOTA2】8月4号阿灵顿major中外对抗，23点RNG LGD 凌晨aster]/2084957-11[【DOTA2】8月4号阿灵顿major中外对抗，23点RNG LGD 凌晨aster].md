@@ -4709,3 +4709,78 @@ ngm真不行咱弃赛吧
 
 打得和4+2一样，出门就是5人打架
 
+
+
+*****
+
+####  聚散浮云  
+##### 15500#       发表于 2022-8-23 16:01
+
+这就是dpc56名的大战嘛 有点丑陋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 15501#       发表于 2022-8-23 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每次切过来都看见杜鹏的头像是灰的
+
+*****
+
+####  yourSwaTer  
+##### 15502#       发表于 2022-8-23 16:02
+
+丛林肉搏
+
+*****
+
+####  walfeds  
+##### 15503#       发表于 2022-8-23 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这打的血肉横飞，干就完事了
+
+*****
+
+####  尸体鲨  
+##### 15504#       发表于 2022-8-23 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看比赛，来个速报，现在阿茶退化回去了吗
+
+*****
+
+####  反方向的波  
+##### 15505#       发表于 2022-8-23 16:04
+
+t病毒
+
+*****
+
+####  walfeds  
+##### 15506#       发表于 2022-8-23 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹏子真的融入其中了
+
+*****
+
+####  聚散浮云  
+##### 15507#       发表于 2022-8-23 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185045&amp;ptid=2084957" target="_blank">尸体鲨 发表于 2022-8-23 16:03</a>
+
+没看比赛，来个速报，现在阿茶退化回去了吗</blockquote>
+鹏子的虚空，懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 15508#       发表于 2022-8-23 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22分钟60多个人头，什么肌肉dota。
+
+*****
+
+####  米奥莉奈  
+##### 15509#       发表于 2022-8-23 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a组明显是谁输下面三队谁丢人
+

@@ -3808,3 +3808,39 @@ lovelive大赛从缪到星，在我的印象中光是赛制就变了好几次，
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Enakina  
+##### 3367#       发表于 2022-8-23 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57184957&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-8-23 15:55</a>
+制作组迷惑行为+1
+
+希奈子老家原型发声明说之前和制作组约定不在作品中使用</blockquote>
+看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3368#       发表于 2022-8-23 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种错误还能再犯的吗
+
+*****
+
+####  lj205  
+##### 3369#       发表于 2022-8-23 16:09
+
+星团的运营都是初佬吗？能不能把这群祸害初老给换了？
+
+*****
+
+####  D麦林  
+##### 3370#       发表于 2022-8-23 16:09
+
+草台论力证又+1
+
+一样的事情怎么还能犯第二次的
+

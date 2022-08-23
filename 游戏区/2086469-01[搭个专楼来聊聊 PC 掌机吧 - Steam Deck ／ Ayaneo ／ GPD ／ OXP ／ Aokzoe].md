@@ -1153,3 +1153,12 @@ Aya 家的滑盖掌机。</blockquote>
 
 gpdwinmax现在拿去当网管百宝箱的时候比玩游戏的时候多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mzi  
+##### 99#       发表于 2022-8-23 16:10
+
+这种滑盖的键盘是不是和之前滑盖手机那种按键手感一样，还是说都用上笔记本那种巧克力键盘了
+
