@@ -4136,3 +4136,45 @@ esl这个回放是个jb，不打团你re个球，小小用道具躲了一次gank
 
 曾焦阳冲高地没看懂
 
+
+
+*****
+
+####  情商  
+##### 15430#       发表于 2022-8-23 12:52
+
+不是，见血封喉这个司马东西还有脸直播dota2比赛啊？
+
+*****
+
+####  morwhipppo  
+##### 15431#       发表于 2022-8-23 12:54
+
+kpii被打的面无血色
+
+*****
+
+####  恐怖利刃  
+##### 15432#       发表于 2022-8-23 12:54
+
+很久没见到三个熊被打死的酒仙了
+
+*****
+
+####  Kazepollar  
+##### 15433#       发表于 2022-8-23 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57182980&amp;ptid=2084957" target="_blank">情商 发表于 2022-8-23 12:52</a>
+ 不是，见血封喉这个司马东西还有脸直播dota2比赛啊？</blockquote>
+细说？他咋了
+
+*****
+
+####  情商  
+##### 15434#       发表于 2022-8-23 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183012&amp;ptid=2084957" target="_blank">Kazepollar 发表于 2022-8-23 12:55</a>
+
+细说？他咋了</blockquote>
+去年ti10结束带假赛节奏，说什么再也不弄dota2还是啥的 
+
