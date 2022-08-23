@@ -3880,3 +3880,51 @@ lovelive大赛从缪到星，在我的印象中光是赛制就变了好几次，
 
 <img src="https://p.sda1.dev/6/eed72efdd1cb3efb2952fd52e306516c/IMG_CMP_51259170.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 3375#       发表于 2022-8-23 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57184962&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-8-23 15:56</a>
+看了下叔叔家鲤鱼直播切片的评论区，给我感觉鲤鱼谷子比唐可可谷子好卖（国内来说）
+
+----发送自 Xiaomi Re ...</blockquote>
+这次感觉是活动企划们没想到国内买谷的会这么多，因为讲道理真核心粉基本都买了的，而且就三个城市。只能说鱼在国内受众比我想的大。
+
+*****
+
+####  优妮可  
+##### 3376#       发表于 2022-8-23 16:32
+
+这两种情况？一是制作组违约了，但作者不想闹大给了台阶下，二就是确实不是一个建筑，只是相似的？
+
+*****
+
+####  Enakina  
+##### 3377#       发表于 2022-8-23 16:34
+
+llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病的感觉
+插一初动1w9，s1插一好像是2w5？反正底子也就那样了，折腾呗
+
+*****
+
+####  ads147147  
+##### 3378#       发表于 2022-8-23 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185447&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 16:31</a>
+
+这次感觉是活动企划们没想到国内买谷的会这么多，因为讲道理真核心粉基本都买了的，而且就三个城市。只能 ...</blockquote>
+鱼的粉丝真的蛮多的，我这个小地方打牌都能遇到鱼的粉丝。
+
+*****
+
+####  aoaoaodedede  
+##### 3379#       发表于 2022-8-23 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185450&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-23 16:32</a>
+
+这两种情况？一是制作组违约了，但作者不想闹大给了台阶下，二就是确实不是一个建筑，只是相似的？ ...</blockquote>
+第二种情况也改变不了运营整烂活的问题，看上面说是事先交谈过的，即使动画的原型不是那个，按理来说也应该尽量避免相似才是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
