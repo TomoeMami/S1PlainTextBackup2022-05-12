@@ -5312,3 +5312,77 @@ dm是年轻人，水平偶有波动很正常，不可能把把下饭的
 
  ​​​<img src="https://p.sda1.dev/6/e627cca9716121ec0f35e9a2df76784d/9585f2cfeccc7823a5b1b360d67de660.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  syndrome2032  
+##### 15575#       发表于 2022-8-23 18:40
+
+独联体周海洋好歹是个万岁爷还有年轻，万一哪天蹭到个佛祖c还能起飞。
+
+2022年的术士zai就搞不懂那点好了
+
+*****
+
+####  米奥莉奈  
+##### 15576#       发表于 2022-8-23 18:42
+
+那么问题来了，老液体其他几个人和ti7比都没什么变化，难道玩vr还有这功能<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 15577#       发表于 2022-8-23 18:44
+
+esl这个回放有点搞笑啊
+
+*****
+
+####  情商  
+##### 15578#       发表于 2022-8-23 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187339&amp;ptid=2084957" target="_blank">迷途lite 发表于 2022-8-23 18:44</a>
+esl这个回放有点搞笑啊</blockquote>
+中午就喷过了
+
+*****
+
+####  情商  
+##### 15579#       发表于 2022-8-23 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187319&amp;ptid=2084957" target="_blank">米奥莉奈 发表于 2022-8-23 18:42</a>
+那么问题来了，老液体其他几个人和ti7比都没什么变化，难道玩vr还有这功能 ...</blockquote>
+这就扯了，奇迹鳖也胖的变相了好吧
+
+*****
+
+####  六娃  
+##### 15580#       发表于 2022-8-23 18:47
+
+欧美的几个冠军12里面论气质，奇迹鳖是nerd，芬兰金毛是阴湿狠人，厨子是自闭儿童，苏猴是弱智儿童，美国甲鱼是老头，独联体的俩大头儿子小头爸爸就更不提了
+真的只有年轻桶的阳光大男孩比较出挑
+
+*****
+
+####  IG.430  
+##### 15581#       发表于 2022-8-23 18:48
+
+迈克这蓝猫咋就这么难受呢
+
+*****
+
+####  nowaki  
+##### 15582#       发表于 2022-8-23 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对跳跳是不是有点狠了
+
+*****
+
+####  六娃  
+##### 15583#       发表于 2022-8-23 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187416&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-23 18:48</a>
+对跳跳是不是有点狠了</blockquote>
+绿毛跳的气质堪称弱智儿童样板戏了
+
