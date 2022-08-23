@@ -6139,3 +6139,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 满50天的石头终于出rba了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2044#       发表于 2022-8-23 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57186300&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-23 17:32</a>
+
+满50天的石头终于出rba了算起来都3单才出，这下真的要等半年再抽卡了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你的石头有灵魂 我的没有啊  羡慕
+
