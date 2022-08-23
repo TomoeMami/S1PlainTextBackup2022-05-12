@@ -3937,3 +3937,30 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在一个地方摔倒就躺那儿不起来了是吧
 
+
+
+*****
+
+####  a92063256  
+##### 3381#       发表于 2022-8-23 16:53
+
+官方回应来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/70879d21bff007b5f3834481227c1e2b/CMP_20220823165304652.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3382#       发表于 2022-8-23 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信不信企划：我不是，我没有。死不承认
+
+*****
+
+####  老1.5  
+##### 3383#       发表于 2022-8-23 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185494&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-23 16:35</a>
+
+鱼的粉丝真的蛮多的，我这个小地方打牌都能遇到鱼的粉丝。</blockquote>
+有时候也想不清楚怎么这么多人知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5067,3 +5067,37 @@ a畜接管比赛的能力大概比鹏子强了一个油面。</blockquote>
 
 电竞岳飞是最难绷的，其实还可以加一个电竞刘翔，集美永远这么能碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 15544#       发表于 2022-8-23 16:50
+
+参照上次dpc后更新速度，9月1号是可信的。
+
+上次好像是dpc开打2天前更新？
+
+*****
+
+####  很久就在那边l  
+##### 15545#       发表于 2022-8-23 16:53
+
+<blockquote>我在may皇身上看到了辛弃疾岳飞的影子，真正的英雄真是壮志难酬啊，总有奸佞小人陷害，我上小学时，老师让写作文介绍一名英雄，我写的就是may皇</blockquote>
+
+*****
+
+####  sodah  
+##### 15546#       发表于 2022-8-23 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185630&amp;ptid=2084957" target="_blank">adretyu67 发表于 2022-8-23 16:48</a>
+ 电竞诸葛亮-giegie  电竞岳飞-giegie </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是集美才能想的出来的比喻。
+
+*****
+
+####  nowaki  
+##### 15547#       发表于 2022-8-23 16:55
+
+你的a畜最多就是电竞赵构
+
