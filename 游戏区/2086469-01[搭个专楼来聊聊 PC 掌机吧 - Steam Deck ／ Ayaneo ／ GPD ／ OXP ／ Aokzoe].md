@@ -1132,3 +1132,15 @@ Aya 家的滑盖掌机。
 
 2022-8-23 12:17 上传
 
+
+
+*****
+
+####  泰坦失足  
+##### 97#       发表于 2022-8-23 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57182445&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-23 12:17</a>
+
+Aya 家的滑盖掌机。</blockquote>
+看上去挺可爱的，有了物理全键盘可以代替不少笔记本功能了..
+
