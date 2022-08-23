@@ -4651,3 +4651,88 @@ LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成�
 
 哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别忘了还有上映会呢
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3450#       发表于 2022-8-23 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急 这不还有40多好评 挑挑拣拣来信总有几封能读的 再不行自己编呗
+
+
+
+*****
+
+####  ads147147  
+##### 3451#       发表于 2022-8-23 23:44
+
+ 本帖最后由 ads147147 于 2022-8-23 23:45 编辑 
+
+鲤鱼：笑死，我根本不参加。
+
+硬要夸我现在就可以夸啊，甚至说命题作文连主题都强行塞给观众了，你要是写不出来夸夸只是因为你良心藏的还不够好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 3452#       发表于 2022-8-23 23:45
+
+太难蚌了，和观众一起看还要聊动画夸动画，还是直接斯密马赛吧
+
+*****
+
+####  player3960  
+##### 3453#       发表于 2022-8-23 23:46
+
+反正都没鲤鱼参加，爱咋咋地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过这二期都过半了，我还真想看看鲤鱼怎么评价这动画呢，推特上那点小短评不够味儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 3454#       发表于 2022-8-23 23:47
+
+虹团做得好的秘诀找到了，因为人家每集都要开上映会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 3455#       发表于 2022-8-23 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190929&amp;ptid=2078110" target="_blank">player3960 发表于 2022-8-23 23:46</a>
+反正都没鲤鱼参加，爱咋咋地
+不过这二期都过半了，我还真想看看鲤鱼怎么评价这动画呢，推特上那点小 ...</blockquote>
+还能怎么评，当然是挑着还过得去的地方夸一夸呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 3456#       发表于 2022-8-23 23:50
+
+希望太君能咬咬牙3rd别去了，让企划痛一次学学什么是尊重，反正你家大业大，有本事原地终止星系列。
+
+你企划觉得我会照样乖乖掏钱，我也觉得你企划不敢轻易放手，就拉扯，猜猜谁的枪里子弹多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听说之前live后还会复盘，建议先复盘一下自己现在在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3457#       发表于 2022-8-23 23:50
+
+估计生放还有两次，然后9-12的上映会，那四集整点能夸的剧情不会很难吧，花田桑。
+
+*****
+
+####  kata魂  
+##### 3458#       发表于 2022-8-23 23:52
+
+鲤鱼不上的理由找到了，怕她控制不住表情毁了欣欣向荣的美景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
