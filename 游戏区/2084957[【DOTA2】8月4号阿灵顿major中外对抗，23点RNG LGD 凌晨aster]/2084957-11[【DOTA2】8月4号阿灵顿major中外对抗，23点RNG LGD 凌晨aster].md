@@ -4265,3 +4265,93 @@ tpii这A还不如养给23<img src="https://static.saraba1st.com/image/smiley/fac
 
 fg现在敢说团队决策，以后敢说什么，想都不敢想
 
+
+
+*****
+
+####  百世诸侯  
+##### 15446#       发表于 2022-8-23 13:50
+
+触摸谁呢
+
+*****
+
+####  恐怖利刃  
+##### 15447#       发表于 2022-8-23 13:50
+
+六把碾压局
+
+*****
+
+####  反方向的波  
+##### 15448#       发表于 2022-8-23 13:51
+
+小林靖三郎对kpee精神攻击啊
+
+*****
+
+####  米奥莉奈  
+##### 15449#       发表于 2022-8-23 13:51
+
+开幕战不整点强强对抗没啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 15450#       发表于 2022-8-23 13:53
+
+宋淳还是没能原谅kpii
+
+
+
+*****
+
+####  米奥莉奈  
+##### 15451#       发表于 2022-8-23 13:53
+
+东南亚这么鱼厨子应该没可能游不出来，顶儿子还是有前瞻性的
+
+*****
+
+####  外挂全家脚气  
+##### 15452#       发表于 2022-8-23 13:55
+
+PPY弃疗了，小组赛就CHEN选出来大宰特宰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 15453#       发表于 2022-8-23 13:55
+
+带个kuku游出来也就恰个十二名烂钱了
+
+*****
+
+####  morwhipppo  
+##### 15454#       发表于 2022-8-23 13:55
+
+第二轮看赛程还是6个碾压局，B组可能还好看点
+
+*****
+
+####  米奥莉奈  
+##### 15455#       发表于 2022-8-23 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183628&amp;ptid=2084957" target="_blank">外挂全家脚气 发表于 2022-8-23 13:55</a>
+PPY弃疗了，小组赛就CHEN选出来&amp;#x59 ...</blockquote>
+陈基本必砍的，已经不是ppy能藏得住的，不如最后爽两把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 15456#       发表于 2022-8-23 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">一个细节彰显A鱼强大，对面纯净哥玩帕吉12分钟叠了11层力量
+
+*****
+
+####  Bernoulli  
+##### 15457#       发表于 2022-8-23 13:59
+
+这打的毫无波澜，都还没睡醒吗？
+
