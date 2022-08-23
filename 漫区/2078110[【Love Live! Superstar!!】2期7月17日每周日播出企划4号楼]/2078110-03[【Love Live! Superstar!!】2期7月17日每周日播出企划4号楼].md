@@ -4803,3 +4803,24 @@ LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成�
 
 你看这三次元九人都是一开始安排好的，动画剧情怕是早就定下了，第二年就出第二季没时间改了
 
+
+
+*****
+
+####  Enakina  
+##### 3467#       发表于 2022-8-24 00:24
+
+说实话，哪怕观众都已经觉得烂的无药可救了。但我觉得作为声优的话，还是会有和观众不同的看法的，不过实际想法究竟如何就不知道了
+
+*****
+
+####  愛さ実  
+##### 3468#       发表于 2022-8-24 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191236&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-8-24 00:16</a>
+我就想问，日本人不做市场调研吗？ 真就两耳不闻窗外事一直按照自己思路闷头做下去么？ 第一季动画结束后不 ...</blockquote>
+从瞒下二期生不就看出来了吗，大人们不懂哪来的迷之自信，觉得不管喂啥粉丝肯定吃。
+得让这帮人知道点痛了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

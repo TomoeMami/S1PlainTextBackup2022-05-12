@@ -1197,3 +1197,19 @@ PS3现在X86 兼容都一般把<img src="https://static.saraba1st.com/image/smil
 
 把air卖了等neo2了，win掌机做小还是妥协太多了
 
+
+
+*****
+
+####  饭冢武也  
+##### 103#       发表于 2022-8-24 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083690&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-16 08:13</a>
+
+还是得看需求吧，追求体积重量只有 Ayaneo Air（Pro）可以选，追求绝对性能那就下个月的 6800u 机型。
+
+ ...</blockquote>
+决定蹲个Ayaneo2了
+
+Steam Deck的大小和重量实在是出不了手
+
