@@ -6236,3 +6236,68 @@ esl各种垃圾队伍，残阵还是版本最后的比赛看了两场我就关�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">该更新客户端了
 
+
+
+*****
+
+####  walfeds  
+##### 15691#       发表于 2022-8-24 07:02
+
+哇，大更了
+bkb好似！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kazepollar  
+##### 15692#       发表于 2022-8-24 07:02
+
+人马那个什么技能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤尸藏人  
+##### 15693#       发表于 2022-8-24 07:02
+
+Dota之神果然整大活了
+
+*****
+
+####  杜文乐超神归来  
+##### 15694#       发表于 2022-8-24 07:05
+
+25级天赋从+80 攻击速度改为0.8秒延迟后再施放一个等离子场
+
+25级天赋从2 静电连接能量点数改为静电连接窃取攻击速度
+
+好啊好啊，大招完全不改，还放两个更厉害的25级天赋
+
+*****
+
+####  山上徹也  
+##### 15695#       发表于 2022-8-24 07:06
+
+<blockquote> 一定要在日历上标好日子，因为2022年勇士令状将于9月2日推出。</blockquote>
+
+*****
+
+####  12481632  
+##### 15696#       发表于 2022-8-24 07:06
+
+刷新bkb全砍了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 15697#       发表于 2022-8-24 07:07
+
+冰蛤蟆：“我想到一个很棒的余兴”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  修罗王  
+##### 15698#       发表于 2022-8-24 07:10
+
+来了来了
+
