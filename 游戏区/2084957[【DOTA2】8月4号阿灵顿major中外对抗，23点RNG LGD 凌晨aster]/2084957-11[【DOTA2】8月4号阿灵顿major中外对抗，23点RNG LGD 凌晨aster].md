@@ -5729,3 +5729,58 @@ fnc这小鹿怎么出了个辉耀
 <img src="https://p.sda1.dev/6/3a36f8e42ed7da370007f2ac63b62078/CMP_20220823193651705.jpg" referrerpolicy="no-referrer">
 屠夫+陈是吧
 
+
+
+*****
+
+####  nomhrpls  
+##### 15629#       发表于 2022-8-23 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nigma感觉最应该换个教练吧，现在这个就是kky的傀儡
+
+*****
+
+####  adretyu67  
+##### 15630#       发表于 2022-8-23 19:54
+
+韩国09还在秘密吗？感觉拳皇没请他吃披萨也是奇怪。
+
+
+
+*****
+
+####  subject07  
+##### 15631#       发表于 2022-8-23 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57188390&amp;ptid=2084957" target="_blank">nomhrpls 发表于 2022-8-23 19:50</a>
+nigma感觉最应该换个教练吧，现在这个就是kky的傀儡</blockquote>
+换个教练（kky你还是去当教练吧）
+
+*****
+
+####  walfeds  
+##### 15632#       发表于 2022-8-23 19:55
+
+啊？大哥夜魔？
+
+*****
+
+####  格雷殿下  
+##### 15633#       发表于 2022-8-23 19:56
+
+少个啊奇，差了点意思
+
+*****
+
+####  百世诸侯  
+##### 15634#       发表于 2022-8-23 19:58
+
+S戏戏戏看倪哥马打液体，节目效果来了
+
+*****
+
+####  反方向的波  
+##### 15635#       发表于 2022-8-23 19:59
+
+现在就要换教练，下一个要换谁我都不敢想了
+
