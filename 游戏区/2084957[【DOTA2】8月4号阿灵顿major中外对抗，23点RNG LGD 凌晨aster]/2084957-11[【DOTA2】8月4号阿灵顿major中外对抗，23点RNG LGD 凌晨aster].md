@@ -6301,3 +6301,79 @@ Dota之神果然整大活了
 
 来了来了
 
+
+
+*****
+
+####  山上徹也  
+##### 15699#       发表于 2022-8-24 07:10
+
+剑圣这25级天赋是来搞笑的吗
+
+*****
+
+####  百世诸侯  
+##### 15700#       发表于 2022-8-24 07:10
+
+把小松鼠搞这么厉害，冰蛤蟆topson粉丝是吧
+
+*****
+
+####  iriyano  
+##### 15701#       发表于 2022-8-24 07:11
+
+机械之心
+魔法消耗从0点增加至350点
+
+冰蛙小超人啊
+
+*****
+
+####  情商  
+##### 15702#       发表于 2022-8-24 07:13
+
+好，我要看脑浆大战
+
+*****
+
+####  恐怖利刃  
+##### 15703#       发表于 2022-8-24 07:15
+
+什么数值更新，这不是纯纯的版本大改，lgd危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 15704#       发表于 2022-8-24 07:15
+
+这翻译... 还不如叫追击呢<img src="https://p.sda1.dev/6/1afd61ca157f75346c1a57087c4dd234/d602490404913a0a8f5cc081447c4eba.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 15705#       发表于 2022-8-24 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189677&amp;ptid=2084957" target="_blank">tengshuo980 发表于 2022-8-23 21:43</a>
+今天会更新吗，给v社最后一次机会</blockquote>
+还愿<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杜文乐超神归来  
+##### 15706#       发表于 2022-8-24 07:17
+
+暗影之舞
+
+每秒生命恢复从5/6/7%最大生命调整为60/90/120点生命
+
+我是没想到还能这么砍，真有你的啊
+
+*****
+
+####  情商  
+##### 15707#       发表于 2022-8-24 07:20
+
+https://bbs.saraba1st.com/2b/thread-2088652-0-1.html
+
