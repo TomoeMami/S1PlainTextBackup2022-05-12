@@ -4458,3 +4458,37 @@ NK
 说不定高层才不理会评价只在乎卖的好不好呢，我看运营就算抓着部分核心粉薅了，就算看不爽动画，钱包还不是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不通啊 同样的投入难道动画能好了还能卖的更差吗 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3431#       发表于 2022-8-23 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个插1质量确实也不高啊，被一期小星星吊起来打的
+
+我还记得一开始你们都说start true dreams不好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3432#       发表于 2022-8-23 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企划该不会还以为还是水那个时候？真以为动画完了三次元还是会乖乖掏钱？
+
+*****
+
+####  player3960  
+##### 3433#       发表于 2022-8-23 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190268&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-08-23 22:43:35</a></blockquote>你还别说，小星星虽然初动输nofi，可是累计销量是星所有CD里最高的（除开三团联合单）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 3434#       发表于 2022-8-23 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是可香嘛
+
