@@ -4357,3 +4357,23 @@ NK
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">到时候v团也给你来个教主一样定位的角色（
 
+
+
+*****
+
+####  kata魂  
+##### 3419#       发表于 2022-8-23 22:18
+
+乐，乐死了
+
+先提前给恋恋开个香槟，下回稳了，日常肯定不会再低了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3420#       发表于 2022-8-23 22:20
+
+估计日本人也受不了香音转了
+
+卫衣买买买
+

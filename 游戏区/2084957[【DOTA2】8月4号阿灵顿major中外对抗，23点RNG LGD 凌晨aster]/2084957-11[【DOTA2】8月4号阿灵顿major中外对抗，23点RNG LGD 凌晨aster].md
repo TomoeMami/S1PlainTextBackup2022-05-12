@@ -6089,3 +6089,23 @@ v社说你别给我机会<img src="https://static.saraba1st.com/image/smiley/fac
 
 人生有梦，各自精彩！
 
+
+
+*****
+
+####  IG.430  
+##### 15675#       发表于 2022-8-23 22:12
+
+今晚花式红字，可能后天更新吧（悲）
+
+*****
+
+####  walfeds  
+##### 15676#       发表于 2022-8-23 22:12
+
+[https://ogs.gg/mishas-long-road-to-ti/](https://ogs.gg/mishas-long-road-to-ti/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">misha神这运气真的不行，签证材料都能被领事馆丢了
+
+这次为了搞新加坡签证回俄罗斯了所以打不了云顶
+
