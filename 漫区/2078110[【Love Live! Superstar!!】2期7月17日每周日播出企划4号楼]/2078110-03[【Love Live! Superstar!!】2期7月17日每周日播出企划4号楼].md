@@ -3928,3 +3928,12 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 这两种情况？一是制作组违约了，但作者不想闹大给了台阶下，二就是确实不是一个建筑，只是相似的？ ...</blockquote>
 第二种情况也改变不了运营整烂活的问题，看上面说是事先交谈过的，即使动画的原型不是那个，按理来说也应该尽量避免相似才是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3380#       发表于 2022-8-23 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在一个地方摔倒就躺那儿不起来了是吧
+

@@ -5004,3 +5004,66 @@ a畜接管比赛的能力大概比鹏子强了一个油面。</blockquote>
 
 没有诸葛亮 科比 岳飞 不是很信服
 
+
+
+*****
+
+####  情商  
+##### 15538#       发表于 2022-8-23 16:43
+
+血流成河
+
+*****
+
+####  woyzeck  
+##### 15539#       发表于 2022-8-23 16:44
+
+<blockquote>坚定的团子党 发表于 2022-8-23 16:29
+版本9月1号更新，3号预选。谁能在两天内找到版本答案，谁就能赢；反过来消化慢的，肯定会被淘汰，和“硬实 ...</blockquote>
+哪儿说的九月一号更新？
+
+*****
+
+####  sodah  
+##### 15540#       发表于 2022-8-23 16:46
+
+诸葛亮科比岳飞又是什么？
+
+
+
+*****
+
+####  adretyu67  
+##### 15541#       发表于 2022-8-23 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185616&amp;ptid=2084957" target="_blank">sodah 发表于 2022-8-23 16:46</a>
+
+诸葛亮科比岳飞又是什么？</blockquote>
+电竞诸葛亮-giegie
+
+电竞岳飞-giegie
+
+电竞科比-参照大便哥女友微博，把giegie比作08科比
+
+*****
+
+####  a1370303  
+##### 15542#       发表于 2022-8-23 16:49
+
+九月一号更新？消息来源sg？
+
+<img src="https://img.saraba1st.com/forum/202208/23/164900mh6b61s4squ9z491.jpg" referrerpolicy="no-referrer">
+
+<strong>f55d9fd6277f9e2fcc34fcba1230e924b999f352.jpg</strong> (33.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 16:49 上传
+
+*****
+
+####  米奥莉奈  
+##### 15543#       发表于 2022-8-23 16:49
+
+电竞岳飞是最难绷的，其实还可以加一个电竞刘翔，集美永远这么能碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

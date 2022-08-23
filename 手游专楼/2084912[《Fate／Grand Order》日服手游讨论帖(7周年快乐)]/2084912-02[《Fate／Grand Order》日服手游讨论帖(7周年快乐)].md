@@ -6083,3 +6083,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 要表演一抽两宝了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">角色满破还有3石 甚至可以三宝
 
+
+
+*****
+
+####  alucardcz  
+##### 2039#       发表于 2022-8-23 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185070&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-23 16:04</a>
+
+要表演一抽两宝了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 最极限现在能1抽3宝   卡在第10连 1发2抽 满破再来一抽(
+
