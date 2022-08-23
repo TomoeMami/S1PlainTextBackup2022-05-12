@@ -6004,3 +6004,25 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 刷了大半天累死了拿了水迦摩的羁绊石，结果丢进池子连个响儿都没有，这合理么，水伊吹这池子加起来1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的懒得刷的呢  你这样不诚啊！
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2032#       发表于 2022-8-23 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183792&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-23 14:10</a>
+
+我羁绊根本刷不动 放弃了 最近的一个都有40W+</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最近一个应该是摩根，跟着蹭还差30W左右满12绊了（应该
+
+*****
+
+####  霧谷藤乃  
+##### 2033#       发表于 2022-8-23 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183904&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-23 14:19</a>
+
+说好的懒得刷的呢  你这样不诚啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天还有个登陆石，现在就很犹豫，不过明天也能抽马娘了
+

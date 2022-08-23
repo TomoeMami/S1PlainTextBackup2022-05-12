@@ -4413,3 +4413,14 @@ PPY弃疗了，小组赛就CHEN选出来&amp;#x59 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  反方向的波  
+##### 15464#       发表于 2022-8-23 14:27
+
+<img src="https://p.sda1.dev/6/574466bd51550b6169545e6d51a4fedc/CMP_20220823142557506.jpg" referrerpolicy="no-referrer">
+
+阿奇赛前吃华 莱士之后ngm的比赛又不想看了
+
