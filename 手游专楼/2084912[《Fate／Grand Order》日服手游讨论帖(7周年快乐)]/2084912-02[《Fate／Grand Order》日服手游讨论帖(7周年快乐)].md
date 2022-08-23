@@ -6130,3 +6130,12 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 就算是做梦也请放过我们非洲人吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了  萌新也是非洲人 
 
+
+
+*****
+
+####  rooarr  
+##### 2043#       发表于 2022-8-23 17:32
+
+满50天的石头终于出rba了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
