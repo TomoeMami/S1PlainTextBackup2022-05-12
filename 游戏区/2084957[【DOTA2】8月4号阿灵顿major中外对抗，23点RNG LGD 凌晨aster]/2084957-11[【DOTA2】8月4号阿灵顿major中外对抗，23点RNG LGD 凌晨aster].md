@@ -4603,3 +4603,33 @@ talon早打完了吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">德张今年又要在家看ti了
 
+
+
+*****
+
+####  syndrome2032  
+##### 15486#       发表于 2022-8-23 15:20
+
+查询nigma解散进度
+
+*****
+
+####  北条早苗  
+##### 15487#       发表于 2022-8-23 15:25
+
+esl这赛程安排的，A组三场宰猪，第二场大家换个猪来宰
+
+*****
+
+####  maju3  
+##### 15488#       发表于 2022-8-23 15:25
+
+有公主？看看批
+
+*****
+
+####  walfeds  
+##### 15489#       发表于 2022-8-23 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会办比赛建议不要办
+
