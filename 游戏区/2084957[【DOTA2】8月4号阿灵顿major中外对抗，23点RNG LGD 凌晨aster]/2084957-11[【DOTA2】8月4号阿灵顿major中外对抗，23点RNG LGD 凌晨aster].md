@@ -5548,3 +5548,65 @@ zai哥好帅的黑洞！0.5秒后被打死了
 
 液体后期厉害一点，左边电魂ta后期真不厉害
 
+
+
+*****
+
+####  Aeons  
+##### 15605#       发表于 2022-8-23 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 15606#       发表于 2022-8-23 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">术士zai这个比不会还有下届吧？
+
+*****
+
+####  Aeons  
+##### 15607#       发表于 2022-8-23 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这蓝猫
+
+*****
+
+####  聚散浮云  
+##### 15608#       发表于 2022-8-23 19:12
+
+zai妹应该不会有下届了
+
+*****
+
+####  adretyu67  
+##### 15609#       发表于 2022-8-23 19:12
+
+boom怎么连湖南dk都打不过。。。。
+
+老挝c和有扒鸡咋回事啊
+
+*****
+
+####  nowaki  
+##### 15610#       发表于 2022-8-23 19:13
+
+想想去年集美最高潮一战对秘密，a畜对面是这个zai
+
+*****
+
+####  反方向的波  
+##### 15611#       发表于 2022-8-23 19:13
+
+ 本帖最后由 反方向的波 于 2022-8-23 19:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">术士zai怎么一个人丢下队友先跑路了
+
+*****
+
+####  adretyu67  
+##### 15612#       发表于 2022-8-23 19:14
+
+20年那会zai在秘密还有点回暖，结果21年又拉了。
+
