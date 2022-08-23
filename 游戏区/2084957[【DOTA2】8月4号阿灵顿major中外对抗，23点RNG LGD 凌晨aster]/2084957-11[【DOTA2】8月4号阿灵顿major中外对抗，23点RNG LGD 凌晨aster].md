@@ -6206,3 +6206,33 @@ esl各种垃圾队伍，残阵还是版本最后的比赛看了两场我就关�
 
 希望一觉醒来能看到本子更新<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我爱撩菜  
+##### 15687#       发表于 2022-8-24 06:51
+
+[https://www.dota2.com/patches/7.32](https://www.dota2.com/patches/7.32) 貌似是真的吧
+
+*****
+
+####  人別離苦  
+##### 15688#       发表于 2022-8-24 06:54
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 15689#       发表于 2022-8-24 06:54
+
+比赛开打了更新可真有你的呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杜文乐超神归来  
+##### 15690#       发表于 2022-8-24 06:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">该更新客户端了
+
