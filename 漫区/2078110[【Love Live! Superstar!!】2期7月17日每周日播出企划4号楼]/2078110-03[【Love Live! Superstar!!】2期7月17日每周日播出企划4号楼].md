@@ -3780,3 +3780,31 @@ lovelive大赛从缪到星，在我的印象中光是赛制就变了好几次，
 
 全世界哪怕不是游戏平衡看来都一个思路：只会先想削强的，毕竟抬弱的太多太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 3365#       发表于 2022-8-23 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">制作组迷惑行为+1
+
+希奈子老家原型发声明说之前和制作组约定不在作品中使用
+
+<img src="https://img.saraba1st.com/forum/202208/23/155553v74z4oo8lgra6k0l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5B16CA2D-8E6D-4BF4-B333-11432B93B63D.jpeg</strong> (403.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 15:55 上传
+
+*****
+
+####  cat1230  
+##### 3366#       发表于 2022-8-23 15:56
+
+看了下叔叔家鲤鱼直播切片的评论区，给我感觉鲤鱼谷子比唐可可谷子好卖（国内来说）
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

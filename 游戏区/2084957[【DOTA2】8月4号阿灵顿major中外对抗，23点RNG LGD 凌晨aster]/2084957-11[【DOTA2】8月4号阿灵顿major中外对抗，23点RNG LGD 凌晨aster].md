@@ -4665,3 +4665,47 @@ ngm真不行咱弃赛吧
 
 骄阳骄阳哭爹喊娘
 
+
+
+*****
+
+####  9时34分  
+##### 15494#       发表于 2022-8-23 15:51
+
+有公主？看看柰子<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 15495#       发表于 2022-8-23 15:51
+
+宋淳这胡说，怪不得只能亚军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15496#       发表于 2022-8-23 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TA这打的什么东西啊
+
+*****
+
+####  nomhrpls  
+##### 15497#       发表于 2022-8-23 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上一次听到这句话还是nigma混个保级还是不难的，逆境中才会爆发
+
+*****
+
+####  反方向的波  
+##### 15498#       发表于 2022-8-23 15:55
+
+杜鹏融入其中
+
+*****
+
+####  morwhipppo  
+##### 15499#       发表于 2022-8-23 15:59
+
+打得和4+2一样，出门就是5人打架
+
