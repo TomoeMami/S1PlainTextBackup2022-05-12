@@ -4535,3 +4535,35 @@ NK
 问题是他们能不能做好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 星四入队好歹也算是除了人设白纸一张了，我不觉得比动画r3入队难度要高多少
 
+
+
+*****
+
+####  Kfly  
+##### 3439#       发表于 2022-8-23 23:14
+
+ 本帖最后由 Kfly 于 2022-8-23 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190561&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-23 23:09</a>
+
+我突然觉得没有可可个人回也不错</blockquote>
+
+越塑造越崩坏的大环境下，可不是这样吗
+希奈子和夏美已经以身试法了；虹蓝如果用两集来讲，没准也是一样的下场<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3440#       发表于 2022-8-23 23:20
+
+<img src="https://img.saraba1st.com/forum/202208/23/232030tz9xnmwx8mknx7we.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1233.JPG</strong> (837.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 23:20 上传
+
+周六
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
