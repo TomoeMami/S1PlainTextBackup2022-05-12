@@ -4126,3 +4126,99 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  csolfans  
+##### 3399#       发表于 2022-8-23 21:27
+
+系列倒数第二
+
+QQ图片20220823212723.jpg
+(43.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202208/23/212735ixbox18hoo2rc188.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3400#       发表于 2022-8-23 21:29
+
+乐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 3401#       发表于 2022-8-23 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189398&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-23 21:20</a>
+听了一下确实是，anime stellar那个广播
+
+—— 来自 S1Fun</blockquote>
+挺好的，那算是把猜想给证实了
+输得不冤
+
+*****
+
+####  Enakina  
+##### 3402#       发表于 2022-8-23 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189495&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-8-23 21:27</a>
+系列倒数第二</blockquote>
+草，为啥比上集还低，那边的理由是啥啊
+
+*****
+
+####  仟音一心  
+##### 3403#       发表于 2022-8-23 21:32
+
+NK
+
+<img src="https://img.saraba1st.com/forum/202208/23/213202ay6vlvm7o5fog0oo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>431512A3-91CF-401C-AB0F-D4F36FA17089.jpeg</strong> (126.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-23 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202208/23/213202ck6tzmy2zbbbk0j3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>37F4390E-5AE8-4A77-94EA-AC88190F241E.jpeg</strong> (366.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-23 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202208/23/213202fz8f06fj9fubup0a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6E2682F1-4D92-4820-B148-59E1E12C63B5.jpeg</strong> (450.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-23 21:32 上传
+
+*****
+
+####  cybernetics31  
+##### 3404#       发表于 2022-8-23 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那边估计也是太烂崩不住了呗
+
+*****
+
+####  renkan119  
+##### 3405#       发表于 2022-8-23 21:32
+
+倒数第一还是因为直播事故黑屏造成的 实质上可以说是倒数第一了
+

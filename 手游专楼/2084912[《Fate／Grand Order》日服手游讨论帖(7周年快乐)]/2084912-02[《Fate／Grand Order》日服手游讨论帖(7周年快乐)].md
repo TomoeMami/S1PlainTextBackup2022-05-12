@@ -6185,3 +6185,14 @@ c呆强度做坏了，求访谈
 说明前面垫的不够多</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从公主算起我大概1200石3宝（2公主1rba） 隔壁红烧天堂绝赞80连无彩  你看我这都把隔壁也垫进去了还不够吗！
 
+
+
+*****
+
+####  johnkamsar  
+##### 2048#       发表于 2022-8-23 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183408&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-23 13:33</a>
+没有提到过伯道上人。你游甚至连天狗道和修验道的始祖役小角都不正面提的（本来可以提的地方有：佩佩相关 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道满受宠不是也有一群女性么？俺记得有好多女性玩家厨道满和以藏来着
+
