@@ -6095,3 +6095,26 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 要表演一抽两宝了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 最极限现在能1抽3宝   卡在第10连 1发2抽 满破再来一抽(
 
+
+
+*****
+
+####  exiaexa  
+##### 2040#       发表于 2022-8-23 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185605&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-23 16:45</a>
+最极限现在能1抽3宝   卡在第10连 1发2抽 满破再来一抽(</blockquote>
+就算是做梦也请放过我们非洲人吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  khxooo  
+##### 2041#       发表于 2022-8-23 17:07
+
+毕业了，去蹲厕所了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

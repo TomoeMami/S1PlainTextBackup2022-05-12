@@ -3964,3 +3964,28 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 鱼的粉丝真的蛮多的，我这个小地方打牌都能遇到鱼的粉丝。</blockquote>
 有时候也想不清楚怎么这么多人知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 3384#       发表于 2022-8-23 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185494&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-23 16:35</a>
+鱼的粉丝真的蛮多的，我这个小地方打牌都能遇到鱼的粉丝。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概真的是年轻人第一次追偶像吧，…………
+
+*****
+
+####  JustW_3  
+##### 3385#       发表于 2022-8-23 17:04
+
+去年和旁友去上海耍的时候正值s1e1播出，给旁友放了一下并展示了Liyuu照片，然后前几天他突然给我微信转发Liyuu直播切片链接……）
+
+*****
+
+####  Enakina  
+##### 3386#       发表于 2022-8-23 17:04
+
+官网：我说我没有
+
