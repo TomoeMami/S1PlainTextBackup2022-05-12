@@ -6416,3 +6416,20 @@ aki到下个月前不会活动，rust的miko组直接没了一个人，486也一
 
 该盯rust了
 
+
+
+*****
+
+####  rs5621  
+##### 625#       发表于 2022-8-24 00:10
+
+<img src="https://img.saraba1st.com/forum/202208/24/000956b3eqlzsq0fuvies9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 00:09 上传
+
+mc也不在,rust也没见,怕不是睡觉去了
+

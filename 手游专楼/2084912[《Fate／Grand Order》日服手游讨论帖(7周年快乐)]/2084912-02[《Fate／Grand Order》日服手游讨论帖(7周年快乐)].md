@@ -6196,3 +6196,12 @@ c呆强度做坏了，求访谈
 没有提到过伯道上人。你游甚至连天狗道和修验道的始祖役小角都不正面提的（本来可以提的地方有：佩佩相关 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道满受宠不是也有一群女性么？俺记得有好多女性玩家厨道满和以藏来着
 
+
+
+*****
+
+####  kisskick  
+##### 2049#       发表于 2022-8-24 00:02
+
+伯道大于晴明这盒子就挺怪的
+
