@@ -6454,3 +6454,28 @@ Qop A杖直接照搬天地迷宫可还行
 
 火女a杖会飞，大概是跟身心做铺垫了
 
+
+
+*****
+
+####  smlszh  
+##### 15716#       发表于 2022-8-24 07:43
+
+md冰蛙也是集美头子
+
+决赛lgd的英雄都加强了 雪碧的都砍了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AkaiSuisei  
+##### 15717#       发表于 2022-8-24 07:48
+
+下班逛着超市更了，本云玩家又要重新学习了
+
+*****
+
+####  12481632  
+##### 15718#       发表于 2022-8-24 07:50
+
+人马新技能太喜感了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
