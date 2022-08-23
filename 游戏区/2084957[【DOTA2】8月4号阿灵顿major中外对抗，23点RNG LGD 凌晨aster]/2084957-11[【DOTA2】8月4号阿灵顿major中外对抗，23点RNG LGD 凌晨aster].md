@@ -4364,3 +4364,52 @@ PPY弃疗了，小组赛就CHEN选出来&amp;#x59 ...</blockquote>
 
 会不会这比赛打一半更新
 
+
+
+*****
+
+####  tasuku  
+##### 15459#       发表于 2022-8-23 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181696&amp;ptid=2084957" target="_blank">宝儿 发表于 2022-8-23 11:27</a>
+别到时候一亮游戏时间你还没我久吧   有客户端跟我看不看比赛有什么关系呢?
+
+我csgo也很久没打了 不耽误 ...</blockquote>
+可是獭鸽秋季赛去新加坡架枪了
+
+*****
+
+####  宝儿  
+##### 15460#       发表于 2022-8-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183800&amp;ptid=2084957" target="_blank">tasuku 发表于 2022-8-23 14:10</a>
+
+可是獭鸽秋季赛去新加坡架枪了</blockquote>
+别问  问就是跟女主播打瓦  怒打1000w卢布
+
+*****
+
+####  健康猹  
+##### 15461#       发表于 2022-8-23 14:15
+
+比赛时间表再来个人发一下，发的漏油BKB刷新无CD
+
+*****
+
+####  walfeds  
+##### 15462#       发表于 2022-8-23 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183659&amp;ptid=2084957" target="_blank">反方向的波 发表于 2022-8-23 13:58</a>
+
+一个细节彰显A鱼强大，对面纯净哥玩帕吉12分钟叠了11层力量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本次赛事唯一指定a级队（指下届dpc开始）的含金量
+
+*****
+
+####  聚散浮云  
+##### 15463#       发表于 2022-8-23 14:17
+
+这比赛看着还不如一场高强度路人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

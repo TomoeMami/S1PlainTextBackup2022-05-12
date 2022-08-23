@@ -5992,3 +5992,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 刷了大半天累死了拿了水迦摩的羁绊石，结果丢进池子连个响儿都没有，这合理么，水伊吹这池子加起来1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我羁绊根本刷不动 放弃了 最近的一个都有40W+
 
+
+
+*****
+
+####  alucardcz  
+##### 2031#       发表于 2022-8-23 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183503&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-23 13:42</a>
+
+刷了大半天累死了拿了水迦摩的羁绊石，结果丢进池子连个响儿都没有，这合理么，水伊吹这池子加起来1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的懒得刷的呢  你这样不诚啊！
+
