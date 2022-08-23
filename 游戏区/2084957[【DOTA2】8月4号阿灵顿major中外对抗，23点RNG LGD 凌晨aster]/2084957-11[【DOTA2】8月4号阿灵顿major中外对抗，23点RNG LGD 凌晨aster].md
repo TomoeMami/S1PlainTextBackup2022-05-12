@@ -4519,3 +4519,87 @@ PPY弃疗了，小组赛就CHEN选出来&amp;#x59 ...</blockquote>
 
 感觉不如王志勇东南亚单排，曾焦阳奔驰稳了啊
 
+
+
+*****
+
+####  syndrome2032  
+##### 15476#       发表于 2022-8-23 15:12
+
+漏油也太看不起茶了。
+
+宰个talon还是没难度的
+
+*****
+
+####  米奥莉奈  
+##### 15477#       发表于 2022-8-23 15:13
+
+麻了都是宰猪局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主办方会不会安排比赛，好歹插一两场看起来有质量的局吧
+
+*****
+
+####  Bernoulli  
+##### 15478#       发表于 2022-8-23 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57184457&amp;ptid=2084957" target="_blank">syndrome2032 发表于 2022-8-23 15:12</a>
+
+漏油也太看不起茶了。
+
+宰个talon还是没难度的</blockquote>
+talon早打完了吧。
+
+*****
+
+####  恐怖利刃  
+##### 15479#       发表于 2022-8-23 15:15
+
+看了一眼alliance33-7
+
+*****
+
+####  外挂全家脚气  
+##### 15480#       发表于 2022-8-23 15:16
+
+第一轮这比赛，TALON TA A鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  战狼PTSD  
+##### 15481#       发表于 2022-8-23 15:17
+
+有公主？看看批
+
+*****
+
+####  哈萨维·诺亚  
+##### 15482#       发表于 2022-8-23 15:18
+
+这比赛差距这么大么..
+
+*****
+
+####  walfeds  
+##### 15483#       发表于 2022-8-23 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57184484&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-23 15:15</a>
+
+看了一眼alliance33-7</blockquote>
+别吓我，明明7-37<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点以为谁比a鱼还鱼
+
+*****
+
+####  nomhrpls  
+##### 15484#       发表于 2022-8-23 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉欧洲区预选这么血腥呢
+
+*****
+
+####  反方向的波  
+##### 15485#       发表于 2022-8-23 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">德张今年又要在家看ti了
+
