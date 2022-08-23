@@ -6026,3 +6026,38 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 说好的懒得刷的呢  你这样不诚啊！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天还有个登陆石，现在就很犹豫，不过明天也能抽马娘了
 
+
+
+*****
+
+####  poor  
+##### 2034#       发表于 2022-8-23 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183088&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-8-23 13:04</a>
+突然想到一个事，晴明师傅伯道上人的卫星有没有升天啊 
+
+伯道＞晴明＞道满，现在道满强度都这么高， ...</blockquote>
+这么说你游的各种冠位一定很强吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 2035#       发表于 2022-8-23 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183931&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-23 14:22</a>
+
+我最近一个应该是摩根，跟着蹭还差30W左右满12绊了（应该</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 我这突出一个遥遥无期 没一个能打的
+
+*****
+
+####  alucardcz  
+##### 2036#       发表于 2022-8-23 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57183944&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-23 14:22</a>
+
+明天还有个登陆石，现在就很犹豫，不过明天也能抽马娘了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天我是一张护符  希望伊师傅别不知好歹
+
