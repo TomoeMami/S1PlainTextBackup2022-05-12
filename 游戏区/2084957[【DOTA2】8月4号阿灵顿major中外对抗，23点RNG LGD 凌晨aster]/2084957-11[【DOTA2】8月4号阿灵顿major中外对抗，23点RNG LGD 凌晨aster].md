@@ -3367,3 +3367,36 @@ ti8被被拉比克干，ti9被冠军蓝胖干碎止步第三名，ti10好不容�
 
 蜗壳不是在贵州么，怎么操纵的日出日落云开云合
 
+
+
+*****
+
+####  IG.430  
+##### 15339#       发表于 2022-8-23 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57180760&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 10:12</a>
+笑死</blockquote>
+老鸡认爹记？
+老爹认鸡记！
+
+*****
+
+####  nowaki  
+##### 15340#       发表于 2022-8-23 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lgd每年都有复活赛，除了去年哪年不是被干到败者组。
+
+*****
+
+####  哈萨维·诺亚  
+##### 15341#       发表于 2022-8-23 10:58
+
+今天比赛只有虎牙有么
+
+*****
+
+####  米奥莉奈  
+##### 15342#       发表于 2022-8-23 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以nga会有人质疑双败赛制的公平性证明超级集美论坛连看上一支老干瘪的人都少了，大部分都是处长+23458组队后引流过来的
+
