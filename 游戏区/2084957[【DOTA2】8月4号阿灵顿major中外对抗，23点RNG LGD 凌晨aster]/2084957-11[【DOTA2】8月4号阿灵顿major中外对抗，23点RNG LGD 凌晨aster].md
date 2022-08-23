@@ -3823,3 +3823,99 @@ solo罢
 
 哇这esl真的业余，今年继续给亚军送奔驰了要
 
+
+
+*****
+
+####  情商  
+##### 15392#       发表于 2022-8-23 12:10
+
+[https://www.huya.com/123888](https://www.huya.com/123888)
+
+puck，小小
+
+*****
+
+####  杜文乐超神归来  
+##### 15393#       发表于 2022-8-23 12:11
+
+<img src="https://img.saraba1st.com/forum/202208/23/121103qt5291w5wz2ba135.png" referrerpolicy="no-referrer">
+
+<strong>VN1NM3BDY9_YDLBLPEUHD%U.png</strong> (69.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 12:11 上传
+
+看阵容猜队环节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 15394#       发表于 2022-8-23 12:12
+
+xxs玩得了vip吗，major好像没拿过吧
+
+*****
+
+####  IG.430  
+##### 15395#       发表于 2022-8-23 12:12
+
+ 本帖最后由 IG.430 于 2022-8-23 12:15 编辑 
+
+应该不是，编辑了
+
+*****
+
+####  格雷殿下  
+##### 15396#       发表于 2022-8-23 12:13
+
+幸亏没加小团体群😄😭
+
+*****
+
+####  Sabbah  
+##### 15397#       发表于 2022-8-23 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看见A圣差点给我中午饭恶心住
+
+*****
+
+####  情商  
+##### 15398#       发表于 2022-8-23 12:15
+
+ 本帖最后由 情商 于 2022-8-23 12:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">纯路人，银k这个墨客选出来有啥用？
+
+*****
+
+####  情商  
+##### 15399#       发表于 2022-8-23 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57182353&amp;ptid=2084957" target="_blank">IG.430 发表于 2022-8-23 12:12</a>
+
+应该不是，编辑了</blockquote>
+不是一个，这个baoer 是s1 各大qq群里面的知名公主
+
+*****
+
+####  格雷殿下  
+##### 15400#       发表于 2022-8-23 12:18
+
+这火枪手是最新研究出来打**刚被的吗
+
+*****
+
+####  nowaki  
+##### 15401#       发表于 2022-8-23 12:18
+
+火枪是吧
+
+*****
+
+####  恐怖利刃  
+##### 15402#       发表于 2022-8-23 12:19
+
+major不是有个人的火枪被刚背打烂了
+
