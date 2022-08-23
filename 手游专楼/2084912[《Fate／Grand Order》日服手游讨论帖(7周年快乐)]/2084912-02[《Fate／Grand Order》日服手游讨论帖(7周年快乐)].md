@@ -5913,3 +5913,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现我红阎魔技能点满了，于是拉去试了试，第一把乱打了7回合，第二把倒是3T了，贴了一道令咒，于是老老实实回去借打手了
 
+
+
+*****
+
+####  UNISONIA  
+##### 2025#       发表于 2022-8-23 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57172753&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-22 16:10</a>
+
+出狱了吗，我现在还在坐牢</blockquote>
+就够了夏露露、小教授、飞嫂和张角的，罗兰堂吉诃德的技能一个没练<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
