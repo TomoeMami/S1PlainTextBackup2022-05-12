@@ -6118,3 +6118,15 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 
 毕业了，去蹲厕所了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2042#       发表于 2022-8-23 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185837&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-23 17:01</a>
+
+就算是做梦也请放过我们非洲人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了  萌新也是非洲人 
+

@@ -3989,3 +3989,44 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 
 官网：我说我没有
 
+
+
+*****
+
+####  Gooddays  
+##### 3387#       发表于 2022-8-23 17:23
+
+ 本帖最后由 Gooddays 于 2022-8-23 17:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181291&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-23 10:55</a>
+想了很久，大赛这种机制，本质上就和每个人各有各的属性来尽可能扩展受众的做法是背道而驰的，因为大赛需要 ...</blockquote>
+大赛只是其中一步，团体中人是可以个别自己分开发展，不能发挥自身风格是当事人无能，而不是大赛的问题。
+
+他们想一个团队上台却各自跳起来，5个人分别同时 solo 也可以呀，只不过台下观众会如何想？台上五人各自修行乱成一团便能扩展观众吗？
+
+说到尾她们要组成大型团体便是因为单单一人无力吸引观众，堇在第一季时便是曾尝试独自努力，失败后才企图用 Lovelive 当踏脚石。而可可唱功体力不属顶流，香音自己唱不起来，星团在刚开始时便是三个失败者抱团的组合。
+
+像 Smap  那种团体我便不觉得团队有多大限制，一起表演时自然要舞步统一，但不在台上时各自性格喜好便显现出来了。
+
+以你的说法，各种运动比赛比 Lovelive 的问题大很多，Lovelive 大多数时间也是团体自由选择表演方式，即使加一点要求也是有很大自由度。但运动比赛例如足球篮球，从上场人数到场内比赛各重要求，需要的统一度比 Lovelive 多得多。
+
+*****
+
+####  ads147147  
+##### 3388#       发表于 2022-8-23 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185846&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 17:01</a>
+大概真的是年轻人第一次追偶像吧，…………</blockquote>
+应该是，我还和他讨论下星团（那时候2期还没播），最后他问我喜欢星团的谁，我直说我推的菜宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（要是让他知道我是恋推那还了得。）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 3389#       发表于 2022-8-23 17:28
+
+ 本帖最后由 Enakina 于 2022-8-23 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185846&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 17:01</a>
+大概真的是年轻人第一次追偶像吧，…………</blockquote>
+正面不好思考，也可以从反面入手，既然能滋生远超别人的阴暗和污泥，本来也得自己够亮才行，毕竟人都挺现实的，真的激不起浪的东西根本没啥意思
+
