@@ -6205,3 +6205,15 @@ c呆强度做坏了，求访谈
 
 伯道大于晴明这盒子就挺怪的
 
+
+
+*****
+
+####  森兰丸  
+##### 2050#       发表于 2022-8-24 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189252&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-23 21:04</a>
+
+从公主算起我大概1200石3宝（2公主1rba） 隔壁红烧天堂绝赞80连无彩  你看我这都把隔壁也垫进去了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新ブルアカ不玩了么
+
