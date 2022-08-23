@@ -3730,3 +3730,53 @@ C位资源吃满不干人事心态还不行；
 
 这pickup style，为什么要搞个蓝白长袜？光腿不好吗……感觉巨不协调
 
+
+
+*****
+
+####  川陀  
+##### 3362#       发表于 2022-8-23 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181924&amp;ptid=2078110" target="_blank">今城果天 发表于 2022-8-23 11:43</a>
+确实，lovelive这个大赛从举办到评分机制都暧昧不清，其实从制作组到观众都不会严肃对待，看起来可以夺冠就 ...</blockquote>
+lovelive大赛从缪到星，在我的印象中光是赛制就变了好几次，实在不像正经学园偶像全国大赛。只能说这个东西就是作为一个总的目标，参加大赛的过程不重要，借助love live塑造角色才是重要的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  saya1892  
+##### 3363#       发表于 2022-8-23 12:36
+
+<img src="https://img.saraba1st.com/forum/202208/23/123540y2wwqbneey9226np.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 12:35 上传
+
+「前三话发展下去人气会太偏了所以这是调整」
+
+「为什么只会贬低角色来调整人气呢」
+
+「因为没法提升角色啊」
+
+昨天在贴吧看到差不多意见的发言然后被人骂说可厨少自恋了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 3364#       发表于 2022-8-23 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57182746&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-8-23 12:36</a>
+
+「前三话发展下去人气会太偏了所以这是调整」
+
+「为什么只会贬低角色来调整人气呢」
+
+「因为没法提升角色啊 ...</blockquote>
+那些阴沟老鼠就是想骂可可罢了，它管别的？
+
+全世界哪怕不是游戏平衡看来都一个思路：只会先想削强的，毕竟抬弱的太多太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
