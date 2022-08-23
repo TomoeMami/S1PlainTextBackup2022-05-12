@@ -3544,3 +3544,20 @@ VN是谁啊……</blockquote>
 
 看了下拉版，中日意见都一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 3349#       发表于 2022-8-23 08:19
+
+<img src="https://img.saraba1st.com/forum/202208/23/081842wwwpvrm79lmwioh8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220823_080925.jpg</strong> (174.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 08:18 上传
+
+请指出上图中的寨主，啊不，部长
+
