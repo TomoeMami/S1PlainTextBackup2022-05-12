@@ -3656,3 +3656,15 @@ Liella!より葉月 恋＆米女メイが表紙を飾ります
 <img src="https://p.sda1.dev/6/b3b40ab0d5fef12477a73c1373212d66/20220823_111159.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/99a9ba22551d37adcb948b34469e85f6/20220823_111201.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3356#       发表于 2022-8-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181291&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-23 10:55</a>
+
+想了很久，大赛这种机制，本质上就和每个人各有各的属性来尽可能扩展受众的做法是背道而驰的，因为大赛需要 ...</blockquote>
+或许星的动画想求同存异，想即搞个人发展又搞团队发展，还想团结所有人（结丘？），但是星的动画里个人发展与集体发展之间的问题就挺多的，很无奈的观感不行
+

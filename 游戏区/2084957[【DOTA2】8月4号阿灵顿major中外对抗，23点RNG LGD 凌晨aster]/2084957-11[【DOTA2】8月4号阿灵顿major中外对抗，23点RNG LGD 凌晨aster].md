@@ -3493,3 +3493,84 @@ lgd的比赛还带着节奏 更是不得不品尝
 
 别问了，你大萹哥在跟科比打一场对人生而言非常重要的比赛
 
+
+
+*****
+
+####  nowaki  
+##### 15352#       发表于 2022-8-23 11:21
+
+只想看lgd去皮套狗直播间看玉玉小子打枪不就好了
+
+*****
+
+####  nowaki  
+##### 15353#       发表于 2022-8-23 11:21
+
+major冠军季军殿军都在的比赛没有激情，搞不好这就是亚军痴
+
+*****
+
+####  北条早苗  
+##### 15354#       发表于 2022-8-23 11:22
+
+云顶杯tier1这就不算比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米奥莉奈  
+##### 15355#       发表于 2022-8-23 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181646&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-23 11:21</a>
+major冠军季军殿军都在的比赛没有激情，搞不好这就是亚军痴</blockquote>
+雪碧好像没来
+
+*****
+
+####  六娃  
+##### 15356#       发表于 2022-8-23 11:24
+
+ 本帖最后由 六娃 于 2022-8-23 11:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181602&amp;ptid=2084957" target="_blank">宝儿 发表于 2022-8-23 11:17</a>
+
+这帽子一扣  太牛啦  刀楼攻击性这么强吗?</blockquote>
+我单纯对你攻击性强，客户端没有天天在各个S1群里拉水厂屎，你不会觉得你自己不够声名远扬吧
+
+*****
+
+####  宝儿  
+##### 15357#       发表于 2022-8-23 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181669&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 11:24</a>
+
+我单纯对你攻击性强，客户端没有天天在各个S1群里拉水厂屎，你不会觉得你自己不够声名远扬吧 ...</blockquote>
+笑死 我有客户端你要自杀么?
+
+*****
+
+####  asd235614  
+##### 15358#       发表于 2022-8-23 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">核酸吃饭准备午休品茶
+
+*****
+
+####  宝儿  
+##### 15359#       发表于 2022-8-23 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181669&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 11:24</a>
+
+我单纯对你攻击性强，客户端没有天天在各个S1群里拉水厂屎，你不会觉得你自己不够声名远扬吧 ...</blockquote>
+别到时候一亮游戏时间你还没我久吧   有客户端跟我看不看比赛有什么关系呢?
+
+我csgo也很久没打了 不耽误我想看simple比赛吧?
+
+*****
+
+####  尖刺外婆  
+##### 15360#       发表于 2022-8-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57180760&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 10:12</a>
+笑死</blockquote>
+庄老师牛逼
+
