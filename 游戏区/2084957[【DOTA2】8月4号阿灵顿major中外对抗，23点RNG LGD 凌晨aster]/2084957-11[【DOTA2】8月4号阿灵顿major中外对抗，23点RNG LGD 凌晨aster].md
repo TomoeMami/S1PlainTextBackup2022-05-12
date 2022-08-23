@@ -3765,3 +3765,61 @@ solo罢
 
 休赛期还行，dota有这说法么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 15385#       发表于 2022-8-23 12:05
+
+[@情商](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=558397) 新楼新楼<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  山上徹也  
+##### 15386#       发表于 2022-8-23 12:06
+
+去年中国队两个major冠军做到游戏主界面里了吗，我怎么感觉就雪碧跟og被做进来了
+
+*****
+
+####  情商  
+##### 15387#       发表于 2022-8-23 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">楼上这个叫baoer的，我以前没退黑球群的时候跟她白头过，天天在哪发破皮套人表情和玩烂梗，被我跟几个漏油阴阳怪气了几句就直接破防了。
+
+最神的一次是在黑球群还是论坛阴阳怪气二狗给封了，然后到处发电直接被二狗踢了
+
+*****
+
+####  哈萨维·诺亚  
+##### 15388#       发表于 2022-8-23 12:08
+
+支持刀楼搞陶片放逐
+
+*****
+
+####  百世诸侯  
+##### 15389#       发表于 2022-8-23 12:09
+
+好呀好呀。比赛开了没讨论，全在这battle呀
+
+*****
+
+####  情商  
+##### 15390#       发表于 2022-8-23 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57182253&amp;ptid=2084957" target="_blank">逃离二次元 发表于 2022-8-23 12:05</a>
+
+@情商 新楼新楼</blockquote>
+出本子或者新版本了在搞吧，这楼还能用
+
+
+
+*****
+
+####  反方向的波  
+##### 15391#       发表于 2022-8-23 12:10
+
+哇这esl真的业余，今年继续给亚军送奔驰了要
+
