@@ -4492,3 +4492,26 @@ NK
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是可香嘛
 
+
+
+*****
+
+####  Enakina  
+##### 3435#       发表于 2022-8-23 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190268&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-23 22:43</a>
+这个插1质量确实也不高啊，被一期小星星吊起来打的
+
+我还记得一开始你们都说start true dreams不好听 ...</blockquote>
+小星星目前是累计最高的一张，第三集也是好评率最高的一集，含金量还是有的
+
+*****
+
+####  starring  
+##### 3436#       发表于 2022-8-23 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190259&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 22:42</a>
+插1初动数据刚出，19429。oped 销量也不如1期核心粉已经有不愿意掏钱了的哦 ...</blockquote>
+企划需要纯度100%的粉丝给它掏钱，其它路人都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么时候把2nd和MTV live的BD出了再叫我给企划掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

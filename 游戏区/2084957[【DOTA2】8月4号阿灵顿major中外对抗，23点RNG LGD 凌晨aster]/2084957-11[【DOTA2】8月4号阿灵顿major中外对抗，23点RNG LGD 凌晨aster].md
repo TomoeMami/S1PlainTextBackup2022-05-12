@@ -6109,3 +6109,50 @@ v社说你别给我机会<img src="https://static.saraba1st.com/image/smiley/fac
 
 这次为了搞新加坡签证回俄罗斯了所以打不了云顶
 
+
+
+*****
+
+####  逃离二次元  
+##### 15677#       发表于 2022-8-23 22:50
+
+一号位：天梯一绝
+
+二号位：lio
+
+三号位：晨子鱼
+
+四号位：suibiandagg
+
+五号位：陈博士
+
+不谈，这个队去打Ti一点毛病没用。一号位崽种，菜花攻击；二号位上帝，大封禁术；三号位四号位职业选手皮鞋森哥；五号位sg智囊，运筹帷幄，最大的作用就是拴住一号位和二号位。
+
+*****
+
+####  莉拉厨  
+##### 15678#       发表于 2022-8-23 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189960&amp;ptid=2084957" target="_blank">walfeds 发表于 2022-8-23 22:12</a>
+
+https://ogs.gg/mishas-long-road-to-ti/
+
+misha神这运气真的不行，签证材料都能被领事馆丢了</blockquote>
+之前不是说怕被抓去打基辅major吗，怎么还是回去了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 15679#       发表于 2022-8-23 22:52
+
+这B比赛质量是真低啊，直接看决赛日了
+
+*****
+
+####  Litccc  
+##### 15680#       发表于 2022-8-23 22:56
+
+教练：谭雅
+
+领队：牛神
+
