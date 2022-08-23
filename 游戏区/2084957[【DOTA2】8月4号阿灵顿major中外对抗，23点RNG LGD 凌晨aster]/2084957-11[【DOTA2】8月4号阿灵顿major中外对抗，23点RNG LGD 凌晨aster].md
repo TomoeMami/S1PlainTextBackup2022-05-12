@@ -3416,3 +3416,80 @@ ti8被被拉比克干，ti9被冠军蓝胖干碎止步第三名，ti10好不容�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">只能建议加赛到lgd bo赢为止
 
+
+
+*****
+
+####  宝儿  
+##### 15345#       发表于 2022-8-23 11:12
+
+最近是休赛期嘛  啥时候能有正经比赛让我感受一下啊   天天围攻ame没有意思 没有味道啊   我想看lgd的比赛 看大bian哥的比赛啊
+
+*****
+
+####  杜文乐超神归来  
+##### 15346#       发表于 2022-8-23 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181530&amp;ptid=2084957" target="_blank">宝儿 发表于 2022-8-23 11:12</a>
+
+最近是休赛期嘛  啥时候能有正经比赛让我感受一下啊   天天围攻ame没有意思 没有味道啊   我想看lgd的比赛  ...</blockquote>
+今天12点有茶队，当然LGD是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 15347#       发表于 2022-8-23 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181530&amp;ptid=2084957" target="_blank">宝儿 发表于 2022-8-23 11:12</a>
+
+最近是休赛期嘛  啥时候能有正经比赛让我感受一下啊   天天围攻ame没有意思 没有味道啊   我想看lgd的比赛  ...</blockquote>
+12点esl，干瘪比赛没了，下次正式比赛就要等10月了
+
+*****
+
+####  六娃  
+##### 15348#       发表于 2022-8-23 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181530&amp;ptid=2084957" target="_blank">宝儿 发表于 2022-8-23 11:12</a>
+
+最近是休赛期嘛  啥时候能有正经比赛让我感受一下啊   天天围攻ame没有意思 没有味道啊   我想看lgd的比赛  ...</blockquote>
+引流撸狗蹭你妈呢，下个客户端睁大眼睛看看有没有比赛
+
+赌场队没比赛就是没比赛是吧
+
+*****
+
+####  宝儿  
+##### 15349#       发表于 2022-8-23 11:16
+
+ 本帖最后由 宝儿 于 2022-8-23 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181565&amp;ptid=2084957" target="_blank">杜文乐超神归来 发表于 2022-8-23 11:14</a>
+
+今天12点有茶队，当然LGD是没有的</blockquote>
+没有大鞭哥没有激情啊!  莫奈特人有问题 感觉有怪味儿 就说不上啥时候就爆炸的感觉  看比赛突出一个提心吊胆 
+
+lgd的比赛还带着节奏 更是不得不品尝
+
+*****
+
+####  宝儿  
+##### 15350#       发表于 2022-8-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57181578&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 11:15</a>
+
+引流撸狗蹭你妈呢，下个客户端睁大眼睛看看有没有比赛
+
+赌场队没比赛就是没比赛是吧 ...</blockquote>
+这帽子一扣  太牛啦  刀楼攻击性这么强吗?
+
+*****
+
+####  反方向的波  
+##### 15351#       发表于 2022-8-23 11:17
+
+ 本帖最后由 反方向的波 于 2022-8-23 11:19 编辑 
+
+上周一不是刚打过正经比赛么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+别问了，你大萹哥在跟科比打一场对人生而言非常重要的比赛
+
