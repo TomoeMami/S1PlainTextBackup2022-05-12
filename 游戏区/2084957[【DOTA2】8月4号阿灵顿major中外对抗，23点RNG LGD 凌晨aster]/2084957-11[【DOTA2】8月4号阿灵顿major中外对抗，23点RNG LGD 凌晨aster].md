@@ -4235,3 +4235,33 @@ A鱼是真的牛批，4分钟补刀数前六能让entity占5个的
 
 tpii这A还不如养给23<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格雷殿下  
+##### 15442#       发表于 2022-8-23 13:41
+
+这两个a喂来干嘛的😄
+
+*****
+
+####  Aeons  
+##### 15443#       发表于 2022-8-23 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">垃圾队真看不下去
+
+*****
+
+####  nowaki  
+##### 15444#       发表于 2022-8-23 13:43
+
+这就是厨子预选赛最大的对手了
+
+*****
+
+####  格雷殿下  
+##### 15445#       发表于 2022-8-23 13:48
+
+fg现在敢说团队决策，以后敢说什么，想都不敢想
+
