@@ -6181,3 +6181,12 @@ misha神这运气真的不行，签证材料都能被领事馆丢了</blockquote
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这b比赛只用看几场吧，看多感觉🧠要坏了。
 
+
+
+*****
+
+####  4591  
+##### 15684#       发表于 2022-8-23 23:33
+
+esl各种垃圾队伍，残阵还是版本最后的比赛看了两场我就关了还是等更新吧
+

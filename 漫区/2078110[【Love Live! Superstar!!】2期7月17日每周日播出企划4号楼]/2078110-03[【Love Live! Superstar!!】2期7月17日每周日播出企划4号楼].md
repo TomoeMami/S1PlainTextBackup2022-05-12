@@ -4618,3 +4618,36 @@ OPED更别说了，S2ED要给MV磕头的<img src="https://static.saraba1st.com/i
 
 LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成现在这样呢
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3446#       发表于 2022-8-23 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190762&amp;ptid=2078110" target="_blank">永恒的王牌 发表于 2022-8-23 23:30</a>
+你鲤鱼姐还说可堇关系是第二季看点，现在可可写成这样无非也就是S1E10加强版，这还不如不要呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能有s1ep10的水平已经谢天谢地了，刚刚还在推特上看到别人盛赞ep10：太好看了我已经看了一万遍了
+
+*****
+
+####  Enakina  
+##### 3447#       发表于 2022-8-23 23:38
+
+说起来一期是前三集很好，第四集有点怪，五六集迷惑，七八级离谱，9集一般，10集高升，十一十二平庸，整体起码罪不至死，还有地方可圈可点
+那么二期现在已经烂到一期七八集的水平了，能来个触底高弹吗
+
+*****
+
+####  优妮可  
+##### 3448#       发表于 2022-8-23 23:39
+
+周六生放她们要怎么聊这评分这么低的两集啊，红蓝还好，夏美这别搞得人家绘森彩在生放上道歉
+
+*****
+
+####  lj205  
+##### 3449#       发表于 2022-8-23 23:42
+
+哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别忘了还有上映会呢
+
