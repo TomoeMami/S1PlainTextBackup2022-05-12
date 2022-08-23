@@ -4304,3 +4304,40 @@ NK
 
 看到有猜与今天那个“没有再现外观”可能有关的
 
+
+
+*****
+
+####  player3960  
+##### 3415#       发表于 2022-8-23 21:53
+
+鲤鱼和juv借来穿的那个lemonade卫衣有卖的了，不过1万日元有点贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+008aFgDegy1h5h0tl1uqtj30i30qo753.jpg
+(39.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/23/215152lbrf0nh12rf29zok.jpg" referrerpolicy="no-referrer">
+
+008aFgDegy1h5h0tlnuq0j30hr0iijs6.jpg
+(38.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-23 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202208/23/215152saevqy7xy7kea4mk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3416#       发表于 2022-8-23 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189719&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-23 21:48</a>
+
+我还是比较好奇霓虹金这集不爽在哪里，比上集低实属意外</blockquote>
+五厕：肯定是虹信者在那边狂点5（笑。
+
