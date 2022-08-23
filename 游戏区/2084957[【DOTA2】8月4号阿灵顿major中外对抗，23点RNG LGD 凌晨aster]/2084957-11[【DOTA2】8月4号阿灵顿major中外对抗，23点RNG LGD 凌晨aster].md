@@ -3217,3 +3217,31 @@ ed是男人的福报
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">到了中年你会发现bkb好开，但是持续期间粘稠x液不太好放出来
 
+
+
+*****
+
+####  tengshuo980  
+##### 15326#       发表于 2022-8-23 09:32
+
+呃呃，我情愿看漏油们聊龙骑也不想听漏油分享开bkb经验
+
+*****
+
+####  maju3  
+##### 15327#       发表于 2022-8-23 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57180314&amp;ptid=2084957" target="_blank">lyjssj 发表于 2022-8-23 09:29</a>
+
+到了中年你会发现bkb好开，但是持续期间粘稠x液不太好放出来，带着无光之盾的时候更甚
+
+ ...</blockquote>
+雀氏，持续时间长了，龙心回血回不上来了
+
+*****
+
+####  IG.430  
+##### 15328#       发表于 2022-8-23 09:39
+
+什么中年阴湿油腻game
+
