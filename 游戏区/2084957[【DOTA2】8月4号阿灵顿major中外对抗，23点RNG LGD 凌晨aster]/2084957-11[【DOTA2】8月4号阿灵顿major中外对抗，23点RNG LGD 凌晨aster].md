@@ -6039,3 +6039,42 @@ zai别说了，ngm没救了
 
 感觉就鳖星entity秘密og像个人样
 
+
+
+*****
+
+####  subject07  
+##### 15669#       发表于 2022-8-23 21:40
+
+液体能和这ngm打成1比1，进ti都难
+
+*****
+
+####  walfeds  
+##### 15670#       发表于 2022-8-23 21:40
+
+好呀好呀，这替补还打赏桶哥的呀
+
+*****
+
+####  nomhrpls  
+##### 15671#       发表于 2022-8-23 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回去能不能给奇迹也享受这么一把啊
+
+*****
+
+####  tengshuo980  
+##### 15672#       发表于 2022-8-23 21:43
+
+今天会更新吗，给v社最后一次机会<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 15673#       发表于 2022-8-23 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57189677&amp;ptid=2084957" target="_blank">tengshuo980 发表于 2022-8-23 21:43</a>
+ 今天会更新吗，给v社最后一次机会</blockquote>
+v社说你别给我机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
