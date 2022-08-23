@@ -5944,3 +5944,14 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 最重要的是，紧张刺激的点技能战斗，点错一下想死，一管半体力里点错重开了三次
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2027#       发表于 2022-8-23 13:04
+
+突然想到一个事，晴明师傅伯道上人的卫星有没有升天啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+伯道＞晴明＞道满，现在道满强度都这么高，晴明怎么也得来个C呆级吧，伯道我都不敢想 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
