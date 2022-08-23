@@ -4784,3 +4784,98 @@ t病毒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a组明显是谁输下面三队谁丢人
 
+
+
+*****
+
+####  izayoi39  
+##### 15510#       发表于 2022-8-23 16:12
+
+对面这菜得过分了吧，茶队本子c的虚空和xxs的电棍都是典型脑浆打法，major上拿出来胜率就掉一大半的那种还能让茶队秀起来了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  12481632  
+##### 15511#       发表于 2022-8-23 16:12
+
+突然觉得西欧和东南亚的预选结果很明朗了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清真肥皂厂  
+##### 15512#       发表于 2022-8-23 16:14
+
+脑浆大乱斗啊，20分钟不到打了40多个人头了
+
+*****
+
+####  哈萨维·诺亚  
+##### 15513#       发表于 2022-8-23 16:14
+
+别急，等懒狗社版本更新，预选赛谁都别想不脑浆
+
+*****
+
+####  hcf220  
+##### 15514#       发表于 2022-8-23 16:15
+
+得，现在aster也是4个赵云带个阿斗
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 15515#       发表于 2022-8-23 16:16
+
+没意思啊这一下午打的，毫无转折，啥呀都是。
+
+*****
+
+####  morwhipppo  
+##### 15516#       发表于 2022-8-23 16:17
+
+看茶队脑浆大战竟然忘记去欣赏tpii的070伐木机了
+
+*****
+
+####  时之虫  
+##### 15517#       发表于 2022-8-23 16:17
+
+33分钟80个头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+打的好血腥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米奥莉奈  
+##### 15518#       发表于 2022-8-23 16:18
+
+东南亚可以说明朗，但是西欧区还是扑朔迷离<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">液体entity秘密和ngm其实我最不看好的是液体
+
+*****
+
+####  反方向的波  
+##### 15519#       发表于 2022-8-23 16:18
+
+entity也在杀猪，太阔怕了
+
+*****
+
+####  清真肥皂厂  
+##### 15520#       发表于 2022-8-23 16:19
+
+鹏子这虚空什么脑浆大，坑了曾焦阳
+
+*****
+
+####  adretyu67  
+##### 15521#       发表于 2022-8-23 16:19
+
+是液体自己傻逼了，连拳皇都忍不了zai于是把他踢了。
+
+你还请回来当大爷供着。
+

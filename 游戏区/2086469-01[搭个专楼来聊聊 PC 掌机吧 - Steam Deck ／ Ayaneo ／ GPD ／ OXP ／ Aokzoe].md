@@ -1162,3 +1162,17 @@ gpdwinmax现在拿去当网管百宝箱的时候比玩游戏的时候多<img src
 
 这种滑盖的键盘是不是和之前滑盖手机那种按键手感一样，还是说都用上笔记本那种巧克力键盘了
 
+
+
+*****
+
+####  zris  
+##### 100#       发表于 2022-8-23 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57122888&amp;ptid=2086469" target="_blank">战狼PTSD 发表于 2022-8-18 19:54</a>
+
+你们记得保养好我的机子
+
+越看越眼馋，现在就差PS3模拟器，STEAM DECK在模拟器上应该不如6800U吧。理 ...</blockquote>
+PS3现在X86 兼容都一般把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
