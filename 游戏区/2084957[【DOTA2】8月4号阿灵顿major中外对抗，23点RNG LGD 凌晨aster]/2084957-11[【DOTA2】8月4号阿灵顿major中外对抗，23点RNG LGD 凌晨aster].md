@@ -5932,3 +5932,37 @@ chu打线放技能不像买号哥misha，这个major还是有点竞争力
 
 all in 憋茶好吧
 
+
+
+*****
+
+####  walfeds  
+##### 15656#       发表于 2022-8-23 20:41
+
+boom这被tsm爆杀呀
+
+*****
+
+####  反方向的波  
+##### 15657#       发表于 2022-8-23 20:42
+
+boom前两天刚在泰国打完小比赛，可能打野了
+
+*****
+
+####  云图  
+##### 15658#       发表于 2022-8-23 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187395&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 18:47</a>
+欧美的几个冠军12里面论气质，奇迹鳖是nerd，芬兰金毛是阴湿狠人，厨子是自闭儿童，苏猴是弱智儿童，美国甲 ...</blockquote>
+瑞典秃子有话要说，谁年轻的时候还不是个帅哥呢
+
+—— 来自 OnePlus PGP110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 15659#       发表于 2022-8-23 20:49
+
+想起来了fnc是有偷家企业文化的，那个因新冠去世的Lakad Matataaaaag normalin normalin的解说就是在fnc偷家秘密那场贡献了经典轮盘
+
