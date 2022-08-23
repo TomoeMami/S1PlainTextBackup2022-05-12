@@ -3561,3 +3561,17 @@ VN是谁啊……</blockquote>
 
 请指出上图中的寨主，啊不，部长
 
+
+
+*****
+
+####  Gooddays  
+##### 3350#       发表于 2022-8-23 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177123&amp;ptid=2078110" target="_blank">yanayosihana 发表于 2022-8-22 21:41</a>
+就我在看第五集吗？
+我没懂，不是说好了视频收益给ceo吗？那为什么还因为她赚得多而吵架 ...</blockquote>
+没说好吧，至少堇便没有同意。
+
+而其他三人原以为是粉丝同好为兴趣而帮忙製作视频，没想过对方视自己为赚钱工具。即使合约签了不得不依从，但心情上总会觉得被骗的。现实中那种因对方是多年亲人朋友，不看清条款便签约，然后发现自己信错人后大吵大闹的事便不罕见。
+
