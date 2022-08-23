@@ -4402,3 +4402,59 @@ NK
 
 企划到底啥毛病……在动画里强推立德推到一堆人ptsd……
 
+
+
+*****
+
+####  renkan119  
+##### 3424#       发表于 2022-8-23 22:33
+
+第6话更低也不奇怪 上一话还有不少人抱着或许下一集能解释清楚的心态 这话则是准确的没救了 这评分准确说其实不是对单第6话的评分 是5 6话的总评分
+
+*****
+
+####  稀勢のささ  
+##### 3425#       发表于 2022-8-23 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要下集正常点不发颠 恋恋的人气多少能捞一下了吧 全靠队友衬托
+
+*****
+
+####  iuhehc  
+##### 3426#       发表于 2022-8-23 22:37
+
+说不定高层才不理会评价只在乎卖的好不好呢，我看运营就算抓着部分核心粉薅了，就算看不爽动画，钱包还不是乖乖给三次元打开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3427#       发表于 2022-8-23 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">正好前几天在重看灰姑娘的动画，这边是强捧leader观众蚌埠住了，那边是leader（？）几乎小透明到了最后几话自己蚌埠住了
+
+*****
+
+####  shine888kire  
+##### 3428#       发表于 2022-8-23 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190139&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-23 22:30</a>
+
+企划到底啥毛病……在动画里强推立德推到一堆人ptsd……</blockquote>
+要么就是企划的绑定合同真的没签多长，所以一方面抓紧变现，一方面堆资源给自己的嫡系
+
+*****
+
+####  cybernetics31  
+##### 3429#       发表于 2022-8-23 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">核心粉已经有不愿意掏钱了的哦
+
+*****
+
+####  稀勢のささ  
+##### 3430#       发表于 2022-8-23 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190216&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-8-23 22:37</a>
+说不定高层才不理会评价只在乎卖的好不好呢，我看运营就算抓着部分核心粉薅了，就算看不爽动画，钱包还不是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不通啊 同样的投入难道动画能好了还能卖的更差吗 
+
