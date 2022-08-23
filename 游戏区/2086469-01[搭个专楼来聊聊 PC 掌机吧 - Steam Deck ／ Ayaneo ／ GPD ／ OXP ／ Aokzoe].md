@@ -1144,3 +1144,12 @@ Aya 家的滑盖掌机。
 Aya 家的滑盖掌机。</blockquote>
 看上去挺可爱的，有了物理全键盘可以代替不少笔记本功能了..
 
+
+
+*****
+
+####  lucifer0607  
+##### 98#       发表于 2022-8-23 15:32
+
+gpdwinmax现在拿去当网管百宝箱的时候比玩游戏的时候多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

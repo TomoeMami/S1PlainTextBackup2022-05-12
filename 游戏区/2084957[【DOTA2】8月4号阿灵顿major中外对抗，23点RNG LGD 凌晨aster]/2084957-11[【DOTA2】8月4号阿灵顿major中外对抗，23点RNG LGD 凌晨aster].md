@@ -4633,3 +4633,26 @@ esl这赛程安排的，A组三场宰猪，第二场大家换个猪来宰
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会办比赛建议不要办
 
+
+
+*****
+
+####  nowaki  
+##### 15490#       发表于 2022-8-23 15:33
+
+ngm真不行咱弃赛吧
+
+*****
+
+####  米奥莉奈  
+##### 15491#       发表于 2022-8-23 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌，ngm混个外卡还是不难，逆中逆境才能爆发
+
+*****
+
+####  yourSwaTer  
+##### 15492#       发表于 2022-8-23 15:39
+
+为啥宙斯是红的啊
+
