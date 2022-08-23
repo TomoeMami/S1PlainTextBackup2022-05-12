@@ -4879,3 +4879,98 @@ entity也在杀猪，太阔怕了
 
 你还请回来当大爷供着。
 
+
+
+*****
+
+####  IG.430  
+##### 15522#       发表于 2022-8-23 16:20
+
+没想到有一天鹏子的智力也能在一局十个人里大放异彩
+
+*****
+
+####  外挂全家脚气  
+##### 15523#       发表于 2022-8-23 16:20
+
+看了全程的表示这个虚空还行吧，至于说4赵云，茶在MAJOR缺乏后期能力就是因为MONET接管不了比赛啊，谁叫国内没好的1呢，最顶的AME都那样，其他的1连AME都不如
+
+*****
+
+####  walfeds  
+##### 15524#       发表于 2022-8-23 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉术士zai要坑掉桶哥的最后一年了
+
+*****
+
+####  Bernoulli  
+##### 15525#       发表于 2022-8-23 16:22
+
+这比赛强度感觉有点低了，看不出真实水平
+
+*****
+
+####  izayoi39  
+##### 15526#       发表于 2022-8-23 16:22
+
+液体现在全看桶子哥能不能把节奏打起来，队伍里其他4个人的节奏能力是真得烂到家了
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 15527#       发表于 2022-8-23 16:22
+
+a畜接管过几次比赛？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yourSwaTer  
+##### 15528#       发表于 2022-8-23 16:25
+
+去wiki看了下，6个队6个BO2，结果三个队200，三个队002<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 15529#       发表于 2022-8-23 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">近战核心是不是该把小小的禁用帮助点上，感觉肉搏的时候也太容易丢到己方近战核了。
+
+*****
+
+####  nowaki  
+##### 15530#       发表于 2022-8-23 16:28
+
+a畜接管比赛的能力大概比鹏子强了一个油面。
+
+*****
+
+####  Bernoulli  
+##### 15531#       发表于 2022-8-23 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185372&amp;ptid=2084957" target="_blank">yourSwaTer 发表于 2022-8-23 16:25</a>
+
+去wiki看了下，6个队6个BO2，结果三个队200，三个队002</blockquote>
+比赛时长也差不多，基本上都是准时到点。
+
+*****
+
+####  坚定的团子党  
+##### 15532#       发表于 2022-8-23 16:29
+
+版本9月1号更新，3号预选。谁能在两天内找到版本答案，谁就能赢；反过来消化慢的，肯定会被淘汰，和“硬实力”没多大关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 15533#       发表于 2022-8-23 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185412&amp;ptid=2084957" target="_blank">nowaki 发表于 2022-8-23 16:28</a>
+a畜接管比赛的能力大概比鹏子强了一个油面。</blockquote>
+这不是妹强吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

@@ -3855,3 +3855,28 @@ lovelive大赛从缪到星，在我的印象中光是赛制就变了好几次，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3372#       发表于 2022-8-23 16:25
+
+属实是神仙运营了
+
+*****
+
+####  ads147147  
+##### 3373#       发表于 2022-8-23 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在充分验证这次星的制作人都是群饭桶。
+
+我现在坚信星动画的问题不是花田的问题，也不是京极的问题，是上面的大人物真的脑瘫，各种空降手谕
+
+*****
+
+####  Enakina  
+##### 3374#       发表于 2022-8-23 16:27
+
+<img src="https://p.sda1.dev/6/eed72efdd1cb3efb2952fd52e306516c/IMG_CMP_51259170.jpeg" referrerpolicy="no-referrer">
+
