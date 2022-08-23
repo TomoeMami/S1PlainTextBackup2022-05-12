@@ -4455,3 +4455,67 @@ PPY弃疗了，小组赛就CHEN选出来&amp;#x59 ...</blockquote>
 
 不是，野王是不是开了啊，三把小小，每把都有杂技玩具
 
+
+
+*****
+
+####  莉拉厨  
+##### 15468#       发表于 2022-8-23 15:03
+
+阿茶你变了，虐菜无情啊
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 15469#       发表于 2022-8-23 15:05
+
+凶相啊茶队
+
+*****
+
+####  a1370303  
+##### 15470#       发表于 2022-8-23 15:06
+
+卡尔电棍两兄弟好惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 15471#       发表于 2022-8-23 15:06
+
+这卡尔，我上去玩也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 15472#       发表于 2022-8-23 15:07
+
+有点哈人了
+
+*****
+
+####  百世诸侯  
+##### 15473#       发表于 2022-8-23 15:09
+
+曾焦阳搞这么厉害干什么，跟开了一样
+
+*****
+
+####  haruhiismer  
+##### 15474#       发表于 2022-8-23 15:09
+
+茶现在这么厉害吗，杀东南亚猴子毫不手软
+
+*****
+
+####  六娃  
+##### 15475#       发表于 2022-8-23 15:09
+
+感觉不如王志勇东南亚单排，曾焦阳奔驰稳了啊
+
