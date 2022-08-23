@@ -6162,3 +6162,14 @@ YLS：今年石头发太多了，多开几个池子回收一下<img src="https:/
 没有提到过伯道上人。你游甚至连天狗道和修验道的始祖役小角都不正面提的（本来可以提的地方有：佩佩相关 ...</blockquote>
 c呆强度做坏了，求访谈
 
+
+
+*****
+
+####  rooarr  
+##### 2046#       发表于 2022-8-23 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57186812&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-23 18:10</a>
+ 为什么你的石头有灵魂 我的没有啊  羡慕</blockquote>
+说明前面垫的不够多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5966,3 +5966,14 @@ boom前两天刚在泰国打完小比赛，可能打野了
 
 想起来了fnc是有偷家企业文化的，那个因新冠去世的Lakad Matataaaaag normalin normalin的解说就是在fnc偷家秘密那场贡献了经典轮盘
 
+
+
+*****
+
+####  反方向的波  
+##### 15660#       发表于 2022-8-23 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57188984&amp;ptid=2084957" target="_blank">六娃 发表于 2022-8-23 20:36</a>
+chu打线放技能不像买号哥misha，这个major还是有点竞争力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真是太可怕了，chuvash天梯比misha还高了两百名还是三百名
+
