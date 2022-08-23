@@ -4084,3 +4084,14 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 3395#       发表于 2022-8-23 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57188408&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 19:52</a>
+鱼群里看到说广播里提到彩参加了1期的面试 但是落选了？ emmmmmm</blockquote>
+结女广播？虽然不知道真假，但这是可以说的吗
+
