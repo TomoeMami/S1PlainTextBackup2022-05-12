@@ -4824,3 +4824,25 @@ LLDAYS小短文都挺会写，展开一下做剧情也不错，为什么变成�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 3469#       发表于 2022-8-24 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191236&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-8-24 00:16</a>
+我就想问，日本人不做市场调研吗？ 真就两耳不闻窗外事一直按照自己思路闷头做下去么？ 第一季动画结束后不 ...</blockquote>
+万代要是做市场调研，你骑士和奥的片场也不会越来越烂，星不过是这些年万代烂掉的缩影之一。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 3470#       发表于 2022-8-24 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191303&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-24 00:24</a>
+说实话，哪怕观众都已经觉得烂的无药可救了。但我觉得作为声优的话，还是会有和观众不同的看法的，不过实际 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不同的想法 指鱼觉得第七话欺负过头了 nagi觉得第八话玩砸了
+
