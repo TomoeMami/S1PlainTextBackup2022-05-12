@@ -6156,3 +6156,28 @@ misha神这运气真的不行，签证材料都能被领事馆丢了</blockquote
 
 领队：牛神
 
+
+
+*****
+
+####  acejoe  
+##### 15681#       发表于 2022-8-23 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57180689&amp;ptid=2084957" target="_blank">恐怖利刃 发表于 2022-8-23 10:07</a>
+难绷，看第一句还以为他俩谈了15年了，结果说的是科比</blockquote>
+竟然科密程度这么高！？
+
+*****
+
+####  -SLSL-  
+##### 15682#       发表于 2022-8-23 23:04
+
+难怪csdx今天又不见了，原来是和科比打复活赛被大bian哥关了
+
+*****
+
+####  Aeons  
+##### 15683#       发表于 2022-8-23 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这b比赛只用看几场吧，看多感觉🧠要坏了。
+

@@ -4515,3 +4515,23 @@ NK
 企划需要纯度100%的粉丝给它掏钱，其它路人都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 什么时候把2nd和MTV live的BD出了再叫我给企划掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 3437#       发表于 2022-8-23 23:09
+
+我突然觉得没有可可个人回也不错
+
+*****
+
+####  iuhehc  
+##### 3438#       发表于 2022-8-23 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57190263&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-23 22:42</a>
+
+说不通啊 同样的投入难道动画做好了还能卖的更差吗</blockquote>
+问题是他们能不能做好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+星四入队好歹也算是除了人设白纸一张了，我不觉得比动画r3入队难度要高多少
+
