@@ -4113,3 +4113,16 @@ llsp这个运营我也觉得是出大问题了，戏里戏外都透露着有病�
 
 看微博说去年香咲咖啡店那个事情，当时官推和官网的发文已经删了，这可真的乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 3398#       发表于 2022-8-23 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57188408&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-23 19:52</a>
+鱼群里看到说广播里提到彩参加了1期的面试 但是落选了？ emmmmmm</blockquote>
+听了一下确实是，anime stellar那个广播
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
