@@ -1346,3 +1346,27 @@ sd 赛博朋克和fh的数据肯定错了，都不用找测评，同是15w，680
 找视频下饭时刷到的(
 【Steam Deck Pro？ Aokzoe A1 windows掌机测评-哔哩哔哩】 https://b23.tv/748HGAU
 
+
+
+*****
+
+####  Mzi  
+##### 115#       发表于 2022-8-24 18:04
+
+ 本帖最后由 Mzi 于 2022-8-24 18:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/5d34910a4ba26e371e9dfe8c90d2d130/CMP_20220824180426127.jpg" referrerpolicy="no-referrer">steamos官方更新支持 aya  onexlpayer win600？
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 116#       发表于 2022-8-24 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57202361&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-8-24 18:04</a>
+steamos官方更新支持 aya  onexlpayer win600？
+
+—— 来自 OnePlus IN2010, Android 12上的 S1Next ...</blockquote>
+some fvcking thing是啥<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">代码会有这种东西吗
+

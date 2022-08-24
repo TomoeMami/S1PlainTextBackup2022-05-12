@@ -6571,3 +6571,19 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 然而观众参与型企划呢，问卷调查说8月中要出给大家做，到现在影子都没有
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 638#       发表于 2022-8-24 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57202041&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-24 17:42</a>
+
+她那时怎么说的，说的是需要运营审核的观众参与型企划可能会拖到9月份，可不是直接说所有企划8月份不做
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说rust全责
+
+看了下好像就做了个gta放烟花吧，还是赶紧把那堆吃东西的企划做了充数有个交代算了
+
