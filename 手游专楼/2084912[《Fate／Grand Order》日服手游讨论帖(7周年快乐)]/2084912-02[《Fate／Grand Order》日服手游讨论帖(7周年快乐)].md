@@ -6367,3 +6367,14 @@ c呆强度做坏了，求访谈</blockquote>
 这低难连rba都能4t 也别谈啥针不针对了吧</blockquote>
 RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
+
+
+*****
+
+####  khxooo  
+##### 2065#       发表于 2022-8-24 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57196974&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-24 12:46</a>
+强解耐性就是针对 你反针对了而已  而且这活动自带倍卡  看不出什么东西 ...</blockquote>
+那给个全体无敌我也能说成是针对水武藏以外呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
