@@ -6291,3 +6291,15 @@ c呆强度做坏了，求访谈</blockquote>
 
 我对狂吹主要迷惑在你既然打算出优于泳装武藏和S伊斯塔的打手了，那去年的泡馍为什么NP率还要下毒，合着真的樱井跟wys好说话啊
 
+
+
+*****
+
+####  alucardcz  
+##### 2058#       发表于 2022-8-24 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191990&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-8-24 02:56</a>
+
+萌新ブルアカ不玩了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">签到抽抽卡 不怎么玩 和公主连接太像了 感觉没意思
+
