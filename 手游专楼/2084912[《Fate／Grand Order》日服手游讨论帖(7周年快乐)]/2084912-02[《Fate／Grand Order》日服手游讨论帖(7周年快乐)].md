@@ -6277,3 +6277,17 @@ c呆强度做坏了，求访谈</blockquote>
 
 蓝卡的特性在那里，加强太好做了，绿卡可是现在都没想好，甚至去蹭红卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2057#       发表于 2022-8-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57194717&amp;ptid=2084912" target="_blank">圈量子 发表于 2022-8-24 10:49</a>
+
+后悔做失败了：指CBA后绿卡集体下毒，C呆后接着出泳装伊吹</blockquote>
+狂吹可以自己打打非地阵营的地铺测试的，回收和伤害都没活动里她是当期倍卡+特攻那么乐观，虽然还是超模的单核就是了（双核很微妙，限定泳装的黄金律也不能把飞嫂拐成金时那种用法）。当期高难她也是吃了大瘪的
+
+我对狂吹主要迷惑在你既然打算出优于泳装武藏和S伊斯塔的打手了，那去年的泡馍为什么NP率还要下毒，合着真的樱井跟wys好说话啊
+
