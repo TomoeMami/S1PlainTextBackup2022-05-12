@@ -1370,3 +1370,15 @@ steamos官方更新支持 aya  onexlpayer win600？
 —— 来自 OnePlus IN2010, Android 12上的 S1Next ...</blockquote>
 some fvcking thing是啥<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">代码会有这种东西吗
 
+
+
+*****
+
+####  rossokun  
+##### 117#       发表于 2022-8-24 19:11
+
+久违的看下群才知道onexp和aokzoe是一家，估计付费升级有的等了
+还有gpd和onexp都大方的承认兼容steamos了，aya非要说是自研系统，到底有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
