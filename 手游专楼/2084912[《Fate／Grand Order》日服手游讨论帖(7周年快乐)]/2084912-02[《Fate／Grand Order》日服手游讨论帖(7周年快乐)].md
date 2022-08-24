@@ -6334,3 +6334,15 @@ c呆强度做坏了，求访谈</blockquote>
 
 早上10个护肤没出水皇女，寄<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2062#       发表于 2022-8-24 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57196400&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-24 12:24</a>
+
+这次高难我两宝伊吹一样打了4t，感觉没有针对啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强解耐性就是针对 你反针对了而已  而且这活动自带倍卡  看不出什么东西
+

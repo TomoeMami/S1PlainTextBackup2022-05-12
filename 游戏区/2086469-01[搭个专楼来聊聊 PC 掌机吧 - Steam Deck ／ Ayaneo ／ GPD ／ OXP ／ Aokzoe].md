@@ -1322,3 +1322,15 @@ WIN3就是个触摸屏类的键盘。完全谈不上手感，就是偶然输入�
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  indtability  
+##### 113#       发表于 2022-8-24 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57195909&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-8-24 12:04</a></blockquote>
+sd 赛博朋克和fh的数据肯定错了，都不用找测评，同是15w，6800u和梵高拉不开这么大差距，除非 sd 是整机功耗，但这比的多半不是整机功耗，不然更离谱，能有这么明显的错误我觉得其余两项可能也有质疑的空间。我觉得转载前还是先查证一下比较好，或者有什么特殊的上下文也应该一并放出来。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
