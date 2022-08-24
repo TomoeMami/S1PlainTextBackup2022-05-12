@@ -4988,3 +4988,12 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 3484#       发表于 2022-8-24 13:27
+
+那个新的结女祭咖啡联动的立牌单买是盲盒制的，运营你在害怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+

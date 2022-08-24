@@ -6724,3 +6724,19 @@ dp感觉刀刀入肉了
 
 秘密有个选手长得挺像三冰，乍一看还以为三冰没被踢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 15744#       发表于 2022-8-24 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人马连奶棒都能拉还行，救护车是把
+
+*****
+
+####  TCone  
+##### 15745#       发表于 2022-8-24 13:28
+
+人马能拉着凤凰蛋，巫医变的棍跑吗？
+
