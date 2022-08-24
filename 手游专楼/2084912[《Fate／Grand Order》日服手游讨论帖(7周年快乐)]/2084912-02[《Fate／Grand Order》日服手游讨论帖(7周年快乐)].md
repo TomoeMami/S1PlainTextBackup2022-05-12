@@ -6390,3 +6390,12 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 那给个全体无敌我也能说成是针对水武藏以外呢</blockquote>
 全体无敌很常见  耐性解除很少见 你硬要说没针对 那就没针对咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2067#       发表于 2022-8-24 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令咒复活过得我深感自己的菜鸡
+

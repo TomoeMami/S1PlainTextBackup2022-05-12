@@ -5037,3 +5037,28 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 花田：我不会在乎读者的反馈的，众口难调，最多做点“商业上”的考虑。
 
+
+
+*****
+
+####  saya1892  
+##### 3487#       发表于 2022-8-24 15:29
+
+そうかな？←これ禁止カードにするべきだろ
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1661306776](https://itest.5ch.net/fate/test/read.cgi/lovelive/1661306776)
+
+ランジュ「相変わらずみたいね、あなた」かのん「そうかな？」
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1661312768](https://itest.5ch.net/fate/test/read.cgi/lovelive/1661312768)
+
+かのん教祖の语録を作ろう
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1661320799](https://itest.5ch.net/fate/test/read.cgi/lovelive/1661320799)
+
+宗教法人 结ヶ丘学园にありがちなこと
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1661320554](https://itest.5ch.net/fate/test/read.cgi/lovelive/1661320554)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 15:49:23.10
+
+そうかな？强すぎる
+
+相手が何言ってても何考えてても全て穿って自分の意见で贯く</blockquote>
+
