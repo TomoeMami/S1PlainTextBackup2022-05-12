@@ -5208,3 +5208,16 @@ Fa7CR22UEAE8HGh.jpg
 
 等几个动漫杂谈up来个什么七月最差之番，那差不多了
 
+
+
+*****
+
+####  ads147147  
+##### 3500#       发表于 2022-8-24 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57205727&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-24 22:08</a>
+等几个动漫杂谈up来个什么七月最差之番，那差不多了</blockquote>
+就算做烂片吐槽也不会做偶像番的，就好像游戏王烂了也没几个吐槽，受众还是和骑士，奥有天壤之别的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
