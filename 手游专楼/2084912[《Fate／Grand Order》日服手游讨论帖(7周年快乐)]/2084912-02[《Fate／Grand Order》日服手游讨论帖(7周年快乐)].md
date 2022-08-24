@@ -6259,3 +6259,12 @@ c呆强度做坏了，求访谈</blockquote>
 做成什么样自己心里没点逼数吗 cba以后的绿卡除了夹馍哪个不是被下毒的？ ...</blockquote>
 迦摩两个都被下毒了，按照设定算出来的理论NP率都比现在的高不少
 
+
+
+*****
+
+####  圈量子  
+##### 2055#       发表于 2022-8-24 10:49
+
+后悔做失败了：指CBA后绿卡集体下毒，C呆后接着出泳装伊吹<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
