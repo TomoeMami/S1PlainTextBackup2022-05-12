@@ -4893,3 +4893,32 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">突然觉得要是把第五集和第六集顺序颠倒一下乐子更大，夏美假意入团其实是为了把团卖了
 
+
+
+*****
+
+####  JustW_3  
+##### 3475#       发表于 2022-8-24 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191147&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-24 00:08</a>
+
+才知道原来第六集结束已经把学园祭过掉了？？？这是准备重点写大赛？他认真滴？？ ...</blockquote>
+学园祭就是给必然要插入的live找个理由罢了，总不能兴致来了就无缘无故在大街上开唱开跳吧（什么）
+
+*****
+
+####  ViyViy  
+##### 3476#       发表于 2022-8-24 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然来点子了，后面让可可丹砂VN然后提出条件让她加入liella，自己全身而退回国，可喜可贺
+
+*****
+
+####  JustW_3  
+##### 3477#       发表于 2022-8-24 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193492&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-24 09:26</a>
+
+突然来点子了，后面让可可丹砂VN然后提出条件让她加入liella，自己全身而退回国，可喜可贺 ...</blockquote>
+不错
+

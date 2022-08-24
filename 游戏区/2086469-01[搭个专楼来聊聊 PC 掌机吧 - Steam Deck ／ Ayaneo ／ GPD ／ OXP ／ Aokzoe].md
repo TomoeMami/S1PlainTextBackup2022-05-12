@@ -1213,3 +1213,15 @@ PS3现在X86 兼容都一般把<img src="https://static.saraba1st.com/image/smil
 
 Steam Deck的大小和重量实在是出不了手
 
+
+
+*****
+
+####  bypass  
+##### 104#         楼主| 发表于 2022-8-24 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185974&amp;ptid=2086469" target="_blank">yamato gun 发表于 2022-8-23 17:10</a>
+
+把air卖了等neo2了，win掌机做小还是妥协太多了</blockquote>
+想听听是什么原因，电池续航？
+
