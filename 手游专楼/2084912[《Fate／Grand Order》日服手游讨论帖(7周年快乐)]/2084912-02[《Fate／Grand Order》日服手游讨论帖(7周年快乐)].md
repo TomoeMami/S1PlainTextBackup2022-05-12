@@ -6346,3 +6346,12 @@ c呆强度做坏了，求访谈</blockquote>
 这次高难我两宝伊吹一样打了4t，感觉没有针对啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强解耐性就是针对 你反针对了而已  而且这活动自带倍卡  看不出什么东西
 
+
+
+*****
+
+####  eyeego  
+##### 2063#       发表于 2022-8-24 13:33
+
+这低难连rba都能4t 也别谈啥针不针对了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
