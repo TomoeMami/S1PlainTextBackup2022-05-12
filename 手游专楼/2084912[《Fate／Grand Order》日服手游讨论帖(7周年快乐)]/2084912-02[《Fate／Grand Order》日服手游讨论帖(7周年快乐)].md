@@ -6586,3 +6586,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 用谁能放2次宝具 总师傅一个宝具下去回收10</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟回收没关系，但要有30自充，这次50NP倍卡谁都能强制打两炮，我用的夏露露
 
+
+
+*****
+
+####  alucardcz  
+##### 2081#       发表于 2022-8-25 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57207577&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-25 00:52</a>
+
+跟回收没关系，但要有30自充，这次50NP倍卡谁都能强制打两炮，我用的夏露露 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又把总师傅的自充给忘了
+
