@@ -6466,3 +6466,16 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 你总不能想换绿的吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 2072#       发表于 2022-8-24 20:35
+
+120石
+
+一隻水咖摩(宝1)，没抽冲田池
+
+满足了，之前送的石也用光了，又可以慢慢储石
+
