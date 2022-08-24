@@ -6505,3 +6505,12 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">话说如果这次111  100万再第1面或者第2面 能拦住多少队伍呢 好奇.jpg
 
+
+
+*****
+
+####  khxooo  
+##### 2075#       发表于 2022-8-25 00:05
+
+草，突然有笔不小的收入，有想井RBA的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
