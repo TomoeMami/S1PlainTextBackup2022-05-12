@@ -6528,3 +6528,19 @@ md冰蛙也是集美头子
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bluebaby  
+##### 15724#       发表于 2022-8-24 08:31
+
+先知抄袭人马感觉都很有说法，小鹿我甚至没看懂，到底是不是冰龙大的意思
+
+*****
+
+####  bluebaby  
+##### 15725#       发表于 2022-8-24 08:31
+
+哦，还有个脑补无敌的黑贤末日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

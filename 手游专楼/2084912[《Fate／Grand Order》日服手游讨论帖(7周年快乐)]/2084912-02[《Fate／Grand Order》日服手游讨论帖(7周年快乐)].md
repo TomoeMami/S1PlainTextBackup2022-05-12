@@ -6217,3 +6217,12 @@ c呆强度做坏了，求访谈
 从公主算起我大概1200石3宝（2公主1rba） 隔壁红烧天堂绝赞80连无彩  你看我这都把隔壁也垫进去了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新ブルアカ不玩了么
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2051#       发表于 2022-8-24 08:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打狗粮界凸+强化本凑了30石，今儿一大早的30登录石都追加进去了，依旧是只出礼装，看来都是没有羁绊的石头啊
+
