@@ -6560,3 +6560,17 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 我现在就是这么打的，一场下来只需要放一次宝具，发牌好时一次都不用放，发牌极差时也只是放两次宝具的事，100万血放哪一面对我现在队伍都没影响<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2079#       发表于 2022-8-25 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57207357&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-25 00:34</a>
+
+我说的主要是双rba的暴击队，100万那面放宝具就行
+
+蓝卡问题是现在的打法都是必须要到3T才能buff量最大，而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用谁能放2次宝具 总师傅一个宝具下去回收10
+
