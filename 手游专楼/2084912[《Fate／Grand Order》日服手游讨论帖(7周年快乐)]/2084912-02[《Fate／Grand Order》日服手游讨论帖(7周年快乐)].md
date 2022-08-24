@@ -6268,3 +6268,12 @@ c呆强度做坏了，求访谈</blockquote>
 
 后悔做失败了：指CBA后绿卡集体下毒，C呆后接着出泳装伊吹<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2056#       发表于 2022-8-24 11:09
+
+蓝卡的特性在那里，加强太好做了，绿卡可是现在都没想好，甚至去蹭红卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
