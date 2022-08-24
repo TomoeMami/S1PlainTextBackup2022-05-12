@@ -4977,3 +4977,14 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 一般来说一季动画的制作周期可能会长达2-3年，个别还更长，星二期大概率在去年一期播出前就搭好架子了，后面调整空间有限，时间也紧张，我猜是处于“能拍完就不错”的状态中
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 3483#       发表于 2022-8-24 12:34
+
+我记得花田说过剧情大纲是大家一起讨论出来的？笑看一烂到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
