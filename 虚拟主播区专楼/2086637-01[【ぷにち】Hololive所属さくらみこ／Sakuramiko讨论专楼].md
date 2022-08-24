@@ -6596,3 +6596,20 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 这个月的mc100和夏日祭还没着落呢，先解决这两个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 640#         楼主| 发表于 2022-8-24 19:36
+
+<img src="https://img.saraba1st.com/forum/202208/24/193618emlgyli9znmdd2io.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 19:36 上传
+
+人家粉丝又在叫了
+
