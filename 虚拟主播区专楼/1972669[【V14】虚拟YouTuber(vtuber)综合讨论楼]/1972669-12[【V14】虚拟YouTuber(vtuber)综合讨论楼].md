@@ -6817,3 +6817,25 @@ nga哪个虹楼不是liver全肯定温馨大家庭的<img src="https://static.sa
 
 别的不说，这个军鸡真的绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17125#       发表于 2022-8-24 21:20
+
+日下部roko一起出道可以有啊，
+
+roko说上演技课的时候，日下部有句台词是要喊“前辈”的，下课以后日下部有点害羞地来找她，说：“喊”前辈“的时候是想象着roko前辈说的，感觉变成了平时的自己了，嘿嘿<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">。”
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+syl，浴衣可爱
+
+<img src="https://img.saraba1st.com/forum/202208/24/210839ez22lwpldpexseeg.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 029 - (3) 【日下部あずさ】フリーダム夏祭り - YouTube - www.yout.png</strong> (125.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:08 上传
+
