@@ -6444,3 +6444,30 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 627#         楼主| 发表于 2022-8-24 09:48
+
+上星期MC早窗就开了2天，观众问：100天到不了了吧，miko：可以的，下星期努力一下
+
+这星期MC又休了2天，只能开3天，我要看观众再问她能说什么，下周？下周8月就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+谁也没想到今年夏天成了miko直播史以来最大的一个笑话
+
+*****
+
+####  holoan  
+##### 628#         楼主| 发表于 2022-8-24 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193669&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-8-24 09:38</a>
+
+今晚有联动啊，有说是什么内容么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+是上星期rust直播提到的要拉新人进来rust教学的联动
+
+谁不知道，看今天其他人动态
+
