@@ -1225,3 +1225,14 @@ Steam Deck的大小和重量实在是出不了手
 把air卖了等neo2了，win掌机做小还是妥协太多了</blockquote>
 想听听是什么原因，电池续航？
 
+
+
+*****
+
+####  任天索尼子  
+##### 105#       发表于 2022-8-24 09:38
+
+奥克也出了自己的软件了 
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

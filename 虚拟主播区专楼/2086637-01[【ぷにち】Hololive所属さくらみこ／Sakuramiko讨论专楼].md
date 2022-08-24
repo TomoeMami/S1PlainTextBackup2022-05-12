@@ -6433,3 +6433,14 @@ aki到下个月前不会活动，rust的miko组直接没了一个人，486也一
 
 mc也不在,rust也没见,怕不是睡觉去了
 
+
+
+*****
+
+####  rs5621  
+##### 626#       发表于 2022-8-24 09:38
+
+今晚有联动啊，有说是什么内容么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
