@@ -4933,3 +4933,25 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 在看动画已经是纯折磨的现在，倒是很同情小百合，这么好的立德真的不需要乱捧，出歌搞live就行了
 
+
+
+*****
+
+####  ads147147  
+##### 3479#       发表于 2022-8-24 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193866&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-24 09:53</a>
+怎么又开始做梦了，星团动画连日常喝茶都拍不出来就别指望还能搞出什么精彩剧情了吧，现在这二期简 ...</blockquote>
+不U咩一下，怎么受得了现在的剧本，早就跑路了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 3480#       发表于 2022-8-24 10:05
+
+想不通啊
+香音传就香音传吧，也就拉人的时候隔应些
+怎么连平平淡淡、中规中矩地讲故事都做不到啊？新成员老成员的剧情一起踩雷，怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
