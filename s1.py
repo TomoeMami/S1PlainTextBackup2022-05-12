@@ -89,15 +89,15 @@ def FormatStr(namelist, replylist,totalreply):
         i = re.sub(r'电梯直达','1#',i)
         j = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)
         k = re.search(r'\d+',i)
-        if('#444' in i):
-            l = re.search(r'来自<span.+</span>',i)
-            m = re.sub(r'<span style=color:#444>','',l.group(0))
-            m = re.sub(r'</span>','',m)
-        #k = re.search(r'\d+', k.group(0))
-        #正则搜索返回的是正则match object
-            times.append(j.group(0)+m)
-        else:
-            times.append(j.group(0))
+        # if('#444' in i):
+        #     l = re.search(r'来自<span.+</span>',i)
+        #     m = re.sub(r'<span style=color:#444>','',l.group(0))
+        #     m = re.sub(r'</span>','',m)
+        # #k = re.search(r'\d+', k.group(0))
+        # #正则搜索返回的是正则match object
+        #     times.append(j.group(0)+m)
+        # else:
+        times.append(j.group(0))
         replynumber.append(int(k.group(0)))
     for i in replylist:
         i = re.sub(r'\r','\n',str(i))
