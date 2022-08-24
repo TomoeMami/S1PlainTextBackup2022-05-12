@@ -1252,3 +1252,43 @@ Steam Deck的大小和重量实在是出不了手
 
 补上链接，话说 s1 到底能不能直接插视频而非链接啊。
 
+
+
+*****
+
+####  bypass  
+##### 107#         楼主| 发表于 2022-8-24 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57083588&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-8-16 07:51</a>
+
+订了aokzoe，6800u512g容量到手大约4699，感觉还行，等过保了自己换个大容量固态
+
+  -- 来自 能搜索的 Stag ...</blockquote>
+更新一下，满 3000 了。Aokzoe 这个掌机吸引力越来越大了。
+
+<img src="https://img.saraba1st.com/forum/202208/24/095209hdygcnndtg8nnncy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 09:52 上传
+
+*****
+
+####  医生狼多  
+##### 108#       发表于 2022-8-24 09:52
+
+不错啊，感觉到时sd到手试玩下就换aok了
+
+*****
+
+####  nilren  
+##### 109#       发表于 2022-8-24 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57185163&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-8-23 16:10</a>
+这种滑盖的键盘是不是和之前滑盖手机那种按键手感一样，还是说都用上笔记本那种巧克力键盘了 ...</blockquote>
+WIN3就是个触摸屏类的键盘。完全谈不上手感，就是偶然输入密码、金手指什么的用就行。打字会很难受。我坚定认为win10掌机必须要有键盘。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
