@@ -3196,3 +3196,78 @@ b博感言
 
 你咩要和谁联动恐怖游戏？男的还是女的啊？
 
+
+
+*****
+
+####  千里夜雨  
+##### 12343#       发表于 2022-8-24 22:00
+
+ 本帖最后由 千里夜雨 于 2022-8-24 22:03 编辑 
+
+我突然发现B站官号cue我，我以为我被清算了又要翻旧账
+
+结果是不知道啥时候整的活动。居然还发了两次下载链接
+
+我正想说你们天狗屁事真多
+
+是不是图包里塞了洋葱所以毒唯怒喷给重新发了一份
+
+看了看不是。连图包也不是，就是感觉审美是哪个ABO漫画里出来的
+
+越看越觉得有滋味，然后做了这个：
+
+<img src="https://img.saraba1st.com/forum/202208/24/215044g3kff37nf1k38s13.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片2022082421502511111.png</strong> (80.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:50 上传
+
+显然有洁癖粉丝不乐意了。
+
+可我是一个除了花时间学工具外可以花时间干任何其他事情的人。
+
+于是我花了一个多小时重新用画图.exe描了这个
+
+<img src="https://img.saraba1st.com/forum/202208/24/214853ef2gwq3faqfq8qdo.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220823232444test2.png</strong> (174.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/24/215316yx6d6h6oufhrz62z.jpg" referrerpolicy="no-referrer">
+
+<strong>zaz.jpg</strong> (160.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:53 上传
+
+我不服，于是说，你行你上
+
+于是他来了这两个
+
+<img src="https://img.saraba1st.com/forum/202208/24/215432rg1rzq66171eyojj.jpg" referrerpolicy="no-referrer">
+
+<strong>白丝.jpg</strong> (151.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202208/24/215433ljntti95n3lfbbi3.jpg" referrerpolicy="no-referrer">
+
+<strong>黑丝.jpg</strong> (147.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:54 上传
+
+我觉得不行，我在这两张图没有看到他的思考，他的沉淀。
+
+希望他再接再厉，再接再厉。
+
