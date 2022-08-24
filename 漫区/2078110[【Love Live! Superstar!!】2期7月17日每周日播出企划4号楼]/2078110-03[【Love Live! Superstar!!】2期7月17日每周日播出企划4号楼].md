@@ -5241,3 +5241,20 @@ Fa7CR22UEAE8HGh.jpg
 — ...</blockquote>
 不是单做偶像番，就类似七月番完结吐槽评价那种，虽然每次瓶子泛式聊到星团，弹幕全是烂，寄那种。但他俩也觉得是花田企划的问题，有及时挽回方向的。其它up不清楚。
 
+
+
+*****
+
+####  Kfly  
+##### 3503#       发表于 2022-8-25 00:37
+
+<strong>《Tiny Stars》 发售一周年</strong>
+
+<img src="https://img.saraba1st.com/forum/202208/25/003645gqu8m6mwdi6cx8n8.jpg" referrerpolicy="no-referrer">
+
+<strong>Tiny_Stars_Liella!.jpg</strong> (505.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 00:36 上传
+

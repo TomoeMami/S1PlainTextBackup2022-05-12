@@ -6544,3 +6544,19 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 对暴击队没影响，下次就这么来吧，也该让蓝王退位了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对暴击队也有吧  1张卡又爆不死 这样翻车率就大多了
 
+
+
+*****
+
+####  katun  
+##### 2078#       发表于 2022-8-25 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57207282&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 00:29</a>
+
+对暴击队也有吧  1张卡又爆不死 这样翻车率就大多了</blockquote>
+我说的主要是双rba的暴击队，100万那面放宝具就行
+
+蓝卡问题是现在的打法都是必须要到3T才能buff量最大，而rba3T的buff量是持衡的
+
+我现在就是这么打的，一场下来只需要放一次宝具，发牌好时一次都不用放，发牌极差时也只是放两次宝具的事，100万血放哪一面对我现在队伍都没影响<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
