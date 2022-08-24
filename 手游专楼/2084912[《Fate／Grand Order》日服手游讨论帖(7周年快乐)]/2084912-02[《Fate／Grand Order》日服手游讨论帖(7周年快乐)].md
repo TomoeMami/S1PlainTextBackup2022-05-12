@@ -6488,3 +6488,20 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 主要是不知道以后90++是不是都111 ，是的话光炮都没什么用了
 
+
+
+*****
+
+####  alucardcz  
+##### 2074#       发表于 2022-8-24 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57205883&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-24 22:20</a>
+
+主要是不知道以后90++是不是都111 ，是的话光炮都没什么用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜:大声点 我听不见
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我觉得不太可能 估计和90+一样会变花样
+
+--------------------------------------
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">话说如果这次111  100万再第1面或者第2面 能拦住多少队伍呢 好奇.jpg
+
