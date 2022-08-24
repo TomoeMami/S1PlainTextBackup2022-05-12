@@ -6314,3 +6314,14 @@ c呆强度做坏了，求访谈</blockquote>
 狂吹可以自己打打非地阵营的地铺测试的，回收和伤害都没活动里她是当期倍卡+特攻那么乐观，虽然还是超模的 ...</blockquote>
 因为他们很清楚就算下毒了大家也会抽爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">redrop的卡面+宇宙凛短时间内复刻无望适合新入坑的当泛用光炮（满宝转生石头号另说）+去年那会儿谁敢想以后还能有伊吹
 
+
+
+*****
+
+####  khxooo  
+##### 2060#       发表于 2022-8-24 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57195063&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-24 11:15</a>
+狂吹可以自己打打非地阵营的地铺测试的，回收和伤害都没活动里她是当期倍卡+特攻那么乐观，虽然还是超模的 ...</blockquote>
+这次高难我两宝伊吹一样打了4t，感觉没有针对啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

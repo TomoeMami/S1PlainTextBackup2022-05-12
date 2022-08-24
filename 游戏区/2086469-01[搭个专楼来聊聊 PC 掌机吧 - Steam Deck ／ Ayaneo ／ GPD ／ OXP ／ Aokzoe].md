@@ -1311,3 +1311,14 @@ WIN3就是个触摸屏类的键盘。完全谈不上手感，就是偶然输入�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57195909&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-8-24 12:04</a></blockquote>
 点了半天播放键 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  任天索尼子  
+##### 112#       发表于 2022-8-24 12:26
+
+油管老外评测说是18w功耗是6800最平衡的。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
