@@ -79,7 +79,6 @@ def FormatStr(namelist, replylist,totalreply):
     output= ''
     replynumber = []
     lastreply = totalreply
-    print(namelist)
     for i in namelist:
         i = re.sub(r'[\r\n]',' ',str(i))
         nametime.append(re.sub(r'<.+?>','',i))
