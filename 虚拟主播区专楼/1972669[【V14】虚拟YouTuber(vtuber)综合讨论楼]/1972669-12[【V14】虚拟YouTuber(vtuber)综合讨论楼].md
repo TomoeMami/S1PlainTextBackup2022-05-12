@@ -6839,3 +6839,15 @@ syl，浴衣可爱
 
 2022-8-24 21:08 上传
 
+
+
+*****
+
+####  firedrop  
+##### 17126#       发表于 2022-8-25 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57204820&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-8-24 20:59</a>
+
+别的不说，这个军鸡真的绷不住了</blockquote>
+之前的金鸡已经够雷的了……没想到还有军鸡<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

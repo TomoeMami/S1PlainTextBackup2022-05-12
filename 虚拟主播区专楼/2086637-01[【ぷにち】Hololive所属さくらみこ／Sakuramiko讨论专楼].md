@@ -6822,3 +6822,35 @@ miko:青春的欧派?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">洗个澡回来看,这两人又没话题了啊
 
+
+
+*****
+
+####  rs5621  
+##### 663#       发表于 2022-8-25 00:18
+
+ 本帖最后由 rs5621 于 2022-8-25 00:19 编辑 
+
+乐,氛围再配上这声音还挺有意思的.我带着耳机听,声音有种在周围转的感觉.
+
+终于下播了,放错封面还行
+
+<img src="https://img.saraba1st.com/forum/202208/25/001908vrzoq777tcqq5trg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 00:19 上传
+
+*****
+
+####  holoan  
+##### 664#         楼主| 发表于 2022-8-25 00:19
+
+困
+
+MC的录音带每次都很有沉浸感
+
+其实去年就是用这个放的
+
