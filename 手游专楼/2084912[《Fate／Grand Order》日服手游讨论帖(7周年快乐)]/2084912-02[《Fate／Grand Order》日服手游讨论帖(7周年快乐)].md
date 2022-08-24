@@ -6432,3 +6432,14 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 至于自力更生的多核根本没有讨论价值，每次都在变阵，说不定以后蹲一辈子仓管也不是不可能
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2070#       发表于 2022-8-24 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57202060&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-08-24 17:43:48</a></blockquote>这次水伊吹最大的一刀是换了宝具颜色，宝具回收早就不是多重要的属性了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

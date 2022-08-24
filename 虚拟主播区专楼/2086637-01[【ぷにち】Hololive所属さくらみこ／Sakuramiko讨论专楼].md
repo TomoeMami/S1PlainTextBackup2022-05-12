@@ -6587,3 +6587,12 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 看了下好像就做了个gta放烟花吧，还是赶紧把那堆吃东西的企划做了充数有个交代算了
 
+
+
+*****
+
+####  rs5621  
+##### 639#       发表于 2022-8-24 18:23
+
+这个月的mc100和夏日祭还没着落呢，先解决这两个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
