@@ -85,6 +85,7 @@ def FormatStr(namelist, replylist,totalreply):
     names = nametime[::2]
     timestamp = nametime[1::2]
     for i in timestamp:
+        #print(i)
         i = re.sub(r'[\r\n]',' ',str(i))
         i = re.sub(r'电梯直达','1#',i)
         j = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)

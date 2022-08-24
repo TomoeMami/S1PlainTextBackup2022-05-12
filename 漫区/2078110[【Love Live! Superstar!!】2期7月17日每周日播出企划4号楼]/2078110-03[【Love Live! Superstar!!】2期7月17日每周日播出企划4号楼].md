@@ -4997,3 +4997,43 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 那个新的结女祭咖啡联动的立牌单买是盲盒制的，运营你在害怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
 
+
+
+*****
+
+####  仟音一心  
+##### 3485#       发表于 2022-8-24 15:08
+
+该上螺蛳粉了
+
+<img src="https://img.saraba1st.com/forum/202208/24/150750falv5waxwtb2l2ih.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74B8B2B6-FB4E-4D4A-8E4D-21DCFD7F10A8.jpeg</strong> (245.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-24 15:07 上传
+
+*****
+
+####  ads147147  
+##### 3486#       发表于 2022-8-24 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57196664&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2022-8-24 12:34</a>
+
+我记得花田说过剧情大纲是大家一起讨论出来的？笑看一烂到底
+
+—— 来自 OPPO PDRM00, Android 12上 ...</blockquote>
+大家一起讨论的，是田中仁和河村监督，虹一期还开了一个月的会和声优一起探讨
+
+至于花田大前辈：
+
+花田：我的剧本经常被监督（京极）修改。
+
+花田：酒井比京极更喜欢改我的剧本。
+
+花田：我就是个很方便的工具，所以才请我来写拉拉的。
+
+花田：我不会在乎读者的反馈的，众口难调，最多做点“商业上”的考虑。
+

@@ -6743,3 +6743,35 @@ nga哪个虹楼不是liver全肯定温馨大家庭的<img src="https://static.sa
 
 每次看到吵架兴冲冲跑去推和油管看热闹，发现骂/踩加起来不如微博一篇檄文转发多，感觉有点虚假宣传啊
 
+
+
+*****
+
+####  越动天下  
+##### 17118#       发表于 2022-8-24 15:04
+
+是这样的 国内打的热火朝天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  硫黄  
+##### 17119#       发表于 2022-8-24 15:05
+
+不战斗就没法生存
+
+*****
+
+####  poipanchao  
+##### 17120#       发表于 2022-8-24 15:07
+
+ 本帖最后由 poipanchao 于 2022-8-24 15:08 编辑 
+
+人家嗯妹妹只是按照习惯了的饭圈玩法在玩啊
+楼友怎么好像没见过微博集美打架似的
+
+唯粉才是历经考验的正确道路吧
+前有vr后有as，国内v圈讲温暖大家庭的都被炸过
+唯粉之间打来打去挺健康的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
