@@ -6851,3 +6851,16 @@ syl，浴衣可爱
 别的不说，这个军鸡真的绷不住了</blockquote>
 之前的金鸡已经够雷的了……没想到还有军鸡<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17127#       发表于 2022-8-25 01:10
+
+V.W.P是不是还没出专辑？
+
+那次live唱了一堆的曲子，正式公开的没几首的样子
+
+刷到上个月发的《共鸣》，感觉还不错
+
