@@ -6399,3 +6399,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令咒复活过得我深感自己的菜鸡
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2068#       发表于 2022-8-24 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57195063&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-24 11:15</a>
+
+狂吹可以自己打打非地阵营的地铺测试的，回收和伤害都没活动里她是当期倍卡+特攻那么乐观，虽然还是超模的 ...</blockquote>
+有可能狂伊吹已经退环境了，所以数据给高点也完全不影响以后卖卡。
+
