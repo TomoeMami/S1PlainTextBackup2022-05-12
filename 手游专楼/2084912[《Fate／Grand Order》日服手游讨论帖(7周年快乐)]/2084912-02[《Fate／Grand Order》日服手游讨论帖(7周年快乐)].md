@@ -6378,3 +6378,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 强解耐性就是针对 你反针对了而已  而且这活动自带倍卡  看不出什么东西 ...</blockquote>
 那给个全体无敌我也能说成是针对水武藏以外呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2066#       发表于 2022-8-24 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57199643&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-24 14:58</a>
+
+那给个全体无敌我也能说成是针对水武藏以外呢</blockquote>
+全体无敌很常见  耐性解除很少见 你硬要说没针对 那就没针对咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
