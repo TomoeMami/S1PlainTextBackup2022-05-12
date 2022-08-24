@@ -6443,3 +6443,26 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 2071#       发表于 2022-8-24 18:34
+
+ 本帖最后由 exiaexa 于 2022-8-24 18:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57202566&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-24 18:21</a>
+
+这次水伊吹最大的一刀是换了宝具颜色，宝具回收早就不是多重要的属性了。
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+就你游这非要做出区别的整法，这玩意儿要是个红的就最好就两种情况，50充地特攻摩根或者30充换个玩法的狂那
+
+根本没讨论价值
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+……………………………………
+
+你总不能想换绿的吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
