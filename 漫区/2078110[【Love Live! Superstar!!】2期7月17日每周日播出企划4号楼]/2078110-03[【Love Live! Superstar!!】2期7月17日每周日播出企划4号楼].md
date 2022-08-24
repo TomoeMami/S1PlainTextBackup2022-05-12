@@ -5097,3 +5097,48 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 把二期的歌又听了听，感觉除了op以外的歌还可以，但樱小路这音色真是不敢恭维，总跟含着块石子一样，听起来咯了吧唧的，跟其他人的声音一对比显得特别违和，这还是修过音以后的效果，以后live的效果感觉不太乐观。
 
+
+
+*****
+
+####  cxj649  
+##### 3491#       发表于 2022-8-24 20:04
+
+本子正在开香音教主，天朝某些地方继续开可可
+
+这波的可香<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3492#       发表于 2022-8-24 20:09
+
+ぺ仔<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+Fa7CTWvVsAAvS8D.jpg
+(90.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202208/24/200858cu6loa550j57zl5k.jpg" referrerpolicy="no-referrer">
+
+Fa7JyEhakAEct_p.jpg
+(619.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/24/200905h9abb5a3ioolxbbl.jpg" referrerpolicy="no-referrer">
+
+Fa7CR22UEAE8HGh.jpg
+(149.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202208/24/200910d6s8sfjim8cwpiqm.jpg" referrerpolicy="no-referrer">
+
