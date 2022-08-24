@@ -1334,3 +1334,15 @@ sd 赛博朋克和fh的数据肯定错了，都不用找测评，同是15w，680
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  医生狼多  
+##### 114#       发表于 2022-8-24 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57197026&amp;ptid=2086469" target="_blank">indtability 发表于 2022-8-24 12:48</a>
+sd 赛博朋克和fh的数据肯定错了，都不用找测评，同是15w，6800u和梵高拉不开这么大差距，除非 sd 是整机 ...</blockquote>
+找视频下饭时刷到的(
+【Steam Deck Pro？ Aokzoe A1 windows掌机测评-哔哩哔哩】 https://b23.tv/748HGAU
+

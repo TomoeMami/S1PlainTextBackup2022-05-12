@@ -6681,3 +6681,30 @@ dp感觉刀刀入肉了
 
 秘密还是强，第一把前期进攻直接把茶按住了
 
+
+
+*****
+
+####  walfeds  
+##### 15739#       发表于 2022-8-24 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秘密暴打鳖星
+
+泰隆竟然连a鱼都打不过惊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 15740#       发表于 2022-8-24 13:03
+
+<img src="https://p.sda1.dev/6/59410b216e33123dc1159c7c68f9a2c0/1661312492891.gif" referrerpolicy="no-referrer">
+
+能动么<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15741#       发表于 2022-8-24 13:10
+
+剧毒魔晶能晕bkb有点东西啊
+
