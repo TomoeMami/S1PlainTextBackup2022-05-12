@@ -6514,3 +6514,33 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 草，突然有笔不小的收入，有想井RBA的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 2076#       发表于 2022-8-25 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57206225&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-24 22:48</a>
+
+狂娜:大声点 我听不见
+
+不过我觉得不太可能 估计和90+一样会变花样
+
+----------------------- ...</blockquote>
+蓝卡寄了吧，不换人要么伤害不够要么回收不够
+
+对暴击队没影响，下次就这么来吧，也该让蓝王退位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2077#       发表于 2022-8-25 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57207210&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-25 00:24</a>
+
+蓝卡寄了吧，不换人要么伤害不够要么回收不够
+
+对暴击队没影响，下次就这么来吧，也该让蓝王退位了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对暴击队也有吧  1张卡又爆不死 这样翻车率就大多了
+
