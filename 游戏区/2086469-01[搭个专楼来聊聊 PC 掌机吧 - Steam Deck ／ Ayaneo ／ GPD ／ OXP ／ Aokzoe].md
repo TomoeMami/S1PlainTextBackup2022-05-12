@@ -1292,3 +1292,12 @@ WIN3就是个触摸屏类的键盘。完全谈不上手感，就是偶然输入�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  医生狼多  
+##### 110#       发表于 2022-8-24 12:04
+
+<img src="https://p.sda1.dev/6/f48183ee44855a5c04bef765e7258ef3/CMP_20220824120406151.jpg" referrerpolicy="no-referrer">
+

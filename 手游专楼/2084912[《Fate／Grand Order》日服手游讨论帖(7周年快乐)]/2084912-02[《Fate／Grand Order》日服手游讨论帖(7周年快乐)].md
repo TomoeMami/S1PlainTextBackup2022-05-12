@@ -6303,3 +6303,14 @@ c呆强度做坏了，求访谈</blockquote>
 萌新ブルアカ不玩了么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">签到抽抽卡 不怎么玩 和公主连接太像了 感觉没意思
 
+
+
+*****
+
+####  圈量子  
+##### 2059#       发表于 2022-8-24 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57195063&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-24 11:15</a>
+狂吹可以自己打打非地阵营的地铺测试的，回收和伤害都没活动里她是当期倍卡+特攻那么乐观，虽然还是超模的 ...</blockquote>
+因为他们很清楚就算下毒了大家也会抽爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">redrop的卡面+宇宙凛短时间内复刻无望适合新入坑的当泛用光炮（满宝转生石头号另说）+去年那会儿谁敢想以后还能有伊吹
+
