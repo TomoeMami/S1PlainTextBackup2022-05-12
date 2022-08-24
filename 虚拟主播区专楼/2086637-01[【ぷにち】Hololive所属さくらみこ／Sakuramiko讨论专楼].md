@@ -6693,3 +6693,14 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 650#         楼主| 发表于 2022-8-24 21:57
+
+这联动还是犯困
+
+虽然跟昨天不同的意义
+
