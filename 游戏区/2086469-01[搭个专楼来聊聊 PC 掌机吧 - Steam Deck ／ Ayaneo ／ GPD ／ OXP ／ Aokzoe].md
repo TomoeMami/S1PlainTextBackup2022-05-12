@@ -1382,3 +1382,17 @@ some fvcking thing是啥<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  83913536  
+##### 118#       发表于 2022-8-24 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57203316&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-8-24 19:11</a>
+
+久违的看下群才知道onexp和aokzoe是一家，估计付费升级有的等了
+
+还有gpd和onexp都大方的承认兼容steamos了 ...</blockquote>
+Aya是最早做自己前端的，这个也是他们及其粉丝认为的AYA的优势，如果大家都用steam那卖得最贵出货最晚的AYA不就傻逼了吗
+
