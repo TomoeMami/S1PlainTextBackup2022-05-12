@@ -6479,3 +6479,40 @@ md冰蛙也是集美头子
 
 人马新技能太喜感了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 15719#       发表于 2022-8-24 08:15
+
+就是啊（便乘）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过现在也就好玩了，可以等加强个移速
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bluebaby  
+##### 15720#       发表于 2022-8-24 08:18
+
+人马这个其实有点意思，不论是极限救下自家远敏反杀还是拉着大哥冲入人群送都很有节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  walfeds  
+##### 15721#       发表于 2022-8-24 08:18
+
+冰蛙看了major十分感动，然后把水人被晕也能变属性改成了魔晶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尤拉吉落泪
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我爱撩菜  
+##### 15722#       发表于 2022-8-24 08:18
+
+感觉更加加强三号位的能力了，是我错觉吗
+
