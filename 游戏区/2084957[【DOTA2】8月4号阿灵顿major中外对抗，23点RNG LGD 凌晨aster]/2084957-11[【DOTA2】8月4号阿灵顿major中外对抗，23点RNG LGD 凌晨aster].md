@@ -6740,3 +6740,21 @@ dp感觉刀刀入肉了
 
 人马能拉着凤凰蛋，巫医变的棍跑吗？
 
+
+
+*****
+
+####  walfeds  
+##### 15746#       发表于 2022-8-24 13:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ppy掏团队之手了还行
+
+*****
+
+####  情商  
+##### 15747#       发表于 2022-8-24 13:49
+
+鳖顶了啊，换地方了
+
+[https://www.saraba1st.com/2b/thread-2088652-1-1.html](https://www.saraba1st.com/2b/thread-2088652-1-1.html)
+

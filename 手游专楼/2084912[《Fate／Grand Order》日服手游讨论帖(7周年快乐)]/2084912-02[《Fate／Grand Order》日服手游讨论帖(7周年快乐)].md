@@ -6355,3 +6355,15 @@ c呆强度做坏了，求访谈</blockquote>
 
 这低难连rba都能4t 也别谈啥针不针对了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2064#       发表于 2022-8-24 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57198018&amp;ptid=2084912" target="_blank">eyeego 发表于 2022-8-24 13:33</a>
+
+这低难连rba都能4t 也别谈啥针不针对了吧</blockquote>
+RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
+
