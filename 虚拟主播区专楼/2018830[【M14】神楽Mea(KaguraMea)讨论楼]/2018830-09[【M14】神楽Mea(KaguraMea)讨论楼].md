@@ -3271,3 +3271,12 @@ b博感言
 
 希望他再接再厉，再接再厉。
 
+
+
+*****
+
+####  大林照人  
+##### 12344#       发表于 2022-8-25 07:29
+
+管人区没开IP显示啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
