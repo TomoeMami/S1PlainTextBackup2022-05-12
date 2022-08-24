@@ -5062,3 +5062,20 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 
 相手が何言ってても何考えてても全て穿って自分の意见で贯く</blockquote>
 
+
+
+*****
+
+####  starring  
+##### 3488#       发表于 2022-8-24 19:01
+
+10月23日SMA会员限定pay的单独event，时长有4小时
+
+<img src="https://img.saraba1st.com/forum/202208/24/190123pg5goei7oh4co9v9.png" referrerpolicy="no-referrer">
+
+<strong>5451.png</strong> (19.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 19:01 上传
+
