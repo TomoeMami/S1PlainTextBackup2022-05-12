@@ -6546,3 +6546,28 @@ mc也不在,rust也没见,怕不是睡觉去了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，那个企划会议里说了她的夏天是包括9月的
 
+
+
+*****
+
+####  holoan  
+##### 636#         楼主| 发表于 2022-8-24 17:40
+
+好了不出意外被放鸽子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟是连续几个大会都敢放鸽子的人也不知道怎么敢选她来联动
+
+不过白赚一个solo直播
+
+*****
+
+####  holoan  
+##### 637#         楼主| 发表于 2022-8-24 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57201877&amp;ptid=2086637" target="_blank">mqnwbeebwnqm 发表于 2022-8-24 17:30</a>
+
+虽然但是，那个企划会议里说了她的夏天是包括9月的</blockquote>
+她那时怎么说的，说的是需要运营审核的观众参与型企划可能会拖到9月份，可不是直接说所有企划8月份不做
+
+然而观众参与型企划呢，问卷调查说8月中要出给大家做，到现在影子都没有
+
