@@ -4884,3 +4884,12 @@ Lovelive 本来便是让参赛者自由表演的比赛，赛制自然能自由�
 说多错多，不是没道理</blockquote>
 个人回竟然会变成避之唯恐不及的东西，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3474#       发表于 2022-8-24 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">突然觉得要是把第五集和第六集顺序颠倒一下乐子更大，夏美假意入团其实是为了把团卖了
+

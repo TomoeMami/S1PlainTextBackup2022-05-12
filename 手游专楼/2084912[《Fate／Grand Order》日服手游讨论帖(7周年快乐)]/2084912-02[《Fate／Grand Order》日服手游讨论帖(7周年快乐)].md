@@ -6226,3 +6226,15 @@ c呆强度做坏了，求访谈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打狗粮界凸+强化本凑了30石，今儿一大早的30登录石都追加进去了，依旧是只出礼装，看来都是没有羁绊的石头啊
 
+
+
+*****
+
+####  UNISONIA  
+##### 2052#       发表于 2022-8-24 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187964&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-23 19:20</a>
+
+c呆强度做坏了，求访谈</blockquote>
+应该是去年10月famitsu的6周年特刊未收录部分，奈须说本来只打算小抬一下蓝卡队顺带提前提出“对肃正防御”的概念的（值得一提的是，无论2.6正文还是刚发售的2.6 Syno都完全没有提及对肃正防御）。原计划是打算让C呆和斯卡蒂差不多在一个水平，结果用力过猛导致绿卡几乎被淘汰了，他和制作组的人都感觉有些失败
+

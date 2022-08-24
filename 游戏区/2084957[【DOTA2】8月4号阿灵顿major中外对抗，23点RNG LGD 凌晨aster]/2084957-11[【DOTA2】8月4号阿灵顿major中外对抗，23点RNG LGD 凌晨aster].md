@@ -6544,3 +6544,24 @@ md冰蛙也是集美头子
 
 哦，还有个脑补无敌的黑贤末日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  やト  
+##### 15726#       发表于 2022-8-24 08:40
+
+以后刷新后开不出BKB要是常态了么
+
+*****
+
+####  百世诸侯  
+##### 15727#       发表于 2022-8-24 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57192821&amp;ptid=2084957" target="_blank">bluebaby 发表于 2022-8-24 08:31</a>
+
+先知抄袭人马感觉都很有说法，小鹿我甚至没看懂，到底是不是冰龙大的意思 ...</blockquote>
+只有双方小兵和野怪会去攻击被选中的，英雄不攻击。
+
+感觉是拿来打狼**王的
+
