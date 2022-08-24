@@ -40,9 +40,9 @@
     "newtitle": "[千年戦争アイギス 4.0（？）]"
   },
   "1972669": {
-    "totalreply": 17106,
+    "totalreply": 17107,
     "title": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1661292014,
+    "lastedit": 1661303420,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]"
@@ -272,10 +272,10 @@
     "active": false
   },
   "2082403": {
-    "totalreply": 6981,
+    "totalreply": 6985,
     "title": "[【明日方舟】国服8号楼丨「多索雷斯的假日」活动复刻7.26开启]",
     "newtitle": "[【明日方舟】国服8号楼丨限定寻访最后一天]",
-    "lastedit": 1661302981,
+    "lastedit": 1661303512,
     "category": "手游专楼",
     "active": true
   },
@@ -368,10 +368,10 @@
     "active": false
   },
   "2084818": {
-    "totalreply": 3841,
+    "totalreply": 3842,
     "title": "[『异度神剑3 ／ Xenoblade3』正式发售综合讨论专楼]",
     "newtitle": "[『异度神剑3 ／ Xenoblade3』正式发售综合讨论专楼]",
-    "lastedit": 1661302820,
+    "lastedit": 1661303426,
     "category": "游戏区",
     "active": true
   },
@@ -1712,10 +1712,10 @@
     "active": false
   },
   "2086571": {
-    "totalreply": 15829,
+    "totalreply": 15832,
     "title": "[【B61】VUP综合讨论楼]",
     "newtitle": "[【B61】VUP综合讨论楼]",
-    "lastedit": 1661302828,
+    "lastedit": 1661303432,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -1744,10 +1744,10 @@
     "active": false
   },
   "2086611": {
-    "totalreply": 8707,
+    "totalreply": 8709,
     "title": "[【A终极终极】A-SOUL讨论楼]",
     "newtitle": "[【A终极终极】A-SOUL讨论楼]",
-    "lastedit": 1661302828,
+    "lastedit": 1661303432,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2613,7 +2613,7 @@
     "newtitle": "[感觉现在互联网上骂人的词越来越脏了]",
     "lastedit": 1660698097,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2087176": {
     "totalreply": 151,
@@ -4344,10 +4344,10 @@
     "active": true
   },
   "2087604": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "[如龙7 随玩骂骂]",
     "newtitle": "[如龙7 随玩骂骂]",
-    "lastedit": 1661302338,
+    "lastedit": 1661303489,
     "category": "游戏区",
     "active": true
   },
@@ -4888,19 +4888,35 @@
     "active": true
   },
   "2088650": {
-    "totalreply": 84,
+    "totalreply": 93,
     "title": "[任正非：华为要活下去]",
     "newtitle": "[任正非：华为要活下去]",
-    "lastedit": 1661302947,
+    "lastedit": 1661303587,
     "category": "外野",
     "active": true
   },
   "2088658": {
-    "totalreply": 104,
+    "totalreply": 126,
     "title": "[20出头受过高等教育的中国籍男子不知道驱逐舰、巡洋舰、战列舰的可能性有多大？]",
     "newtitle": "[20出头受过高等教育的中国籍男子不知道驱逐舰、巡洋舰、战列舰的可能性有多大？]",
-    "lastedit": 1661302949,
+    "lastedit": 1661303588,
     "category": "外野",
+    "active": true
+  },
+  "2088573": {
+    "totalreply": 62,
+    "title": "[有重庆疫情楼吗？明天全员核酸]",
+    "newtitle": "[有重庆疫情楼吗？明天全员核酸]",
+    "lastedit": 1661303588,
+    "category": "外野",
+    "active": true
+  },
+  "2088652": {
+    "totalreply": 69,
+    "title": "[【DOTA2】7. 32更新，经验、地图、兵线大改，全新中立物品登录游戏]",
+    "newtitle": "[【DOTA2】7. 32更新，经验、地图、兵线大改，全新中立物品登录游戏]",
+    "lastedit": 1661303510,
+    "category": "游戏区",
     "active": true
   }
 }
