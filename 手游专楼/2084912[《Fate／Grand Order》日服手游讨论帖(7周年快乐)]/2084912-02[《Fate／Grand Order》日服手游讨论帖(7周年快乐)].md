@@ -6716,3 +6716,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 这还大戏，每年定番了吧</blockquote>
 今年bgo不是和谐了几轮嘛，已经从年番变成季番啦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2092#       发表于 2022-8-25 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57202772&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-24 18:34</a>
+
+就你游这非要做出区别的整法，这玩意儿要是个红的就最好就两种情况，50充地特攻摩根或者30充换个玩法的狂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">红宝具呀，就按这个狂的模板来，变成三红红宝，就算二技能不变成单色50红就很不错了吧
+
