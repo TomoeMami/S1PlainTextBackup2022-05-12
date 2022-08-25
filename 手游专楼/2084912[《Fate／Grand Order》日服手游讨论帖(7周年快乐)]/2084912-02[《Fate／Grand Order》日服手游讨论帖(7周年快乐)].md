@@ -7024,3 +7024,14 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 感觉二破好瑟</blockquote>
 绿卡未来可期？
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 2122#       发表于 2022-8-26 01:45
+
+隔壁天天研究六加成不换人能受得了自建菜刀打本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正不信
+
+好奇你游从自建到能3t90级周回需要多久
+
