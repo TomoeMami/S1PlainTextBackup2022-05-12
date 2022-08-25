@@ -6792,3 +6792,55 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 90个石头，迦摩、RBA和船长，&amp;#x8FD9 ...</blockquote>
 是<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">的力量
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2099#       发表于 2022-8-25 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215721&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 18:00</a>
+有的 吃2个领导力才能打100万  你得换人充能了</blockquote>
+我在用3宝在疼一打，上极地服就行
+
+*****
+
+####  霧谷藤乃  
+##### 2100#       发表于 2022-8-25 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BGO居然还能和谐啊，国内这环境……哎，我还是早点进厂拧螺丝算了……
+
+
+
+*****
+
+####  alucardcz  
+##### 2101#       发表于 2022-8-25 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215743&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-25 18:02</a>
+
+我在用3宝在疼一打，上极地服就行</blockquote>
+他说的是100万在第1面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你无论什么服都是2个领导力在打的第3面
+
+*****
+
+####  khxooo  
+##### 2102#       发表于 2022-8-25 18:05
+
+追了300多石头，道满也来了，剩下300个付费石头，安心等福袋了。
+
+*****
+
+####  都谷捻柏  
+##### 2103#       发表于 2022-8-25 18:07
+
+ 本帖最后由 都谷捻柏 于 2022-8-25 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215721&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 18:00</a>
+
+有的 吃2个领导力才能打100万  你得换人充能了</blockquote>
+对哦，得多按个换人（先找人上个buff换下去也行）。
+
+不过对个人来说不需要更换队伍和衣服，等同没影响（
+
