@@ -1396,3 +1396,12 @@ some fvcking thing是啥<img src="https://static.saraba1st.com/image/smiley/face
 还有gpd和onexp都大方的承认兼容steamos了 ...</blockquote>
 Aya是最早做自己前端的，这个也是他们及其粉丝认为的AYA的优势，如果大家都用steam那卖得最贵出货最晚的AYA不就傻逼了吗
 
+
+
+*****
+
+####  zombie_S  
+##### 119#       发表于 2022-8-25 10:23
+
+对奥克感兴趣，但是不知道一号本家的做工和质量如何？之前买GPD翻车过，痛苦的经历
+
