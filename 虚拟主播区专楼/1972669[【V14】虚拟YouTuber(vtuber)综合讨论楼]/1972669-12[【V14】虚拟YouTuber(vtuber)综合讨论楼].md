@@ -6864,3 +6864,15 @@ V.W.P是不是还没出专辑？
 
 刷到上个月发的《共鸣》，感觉还不错
 
+
+
+*****
+
+####  wuzhengkai  
+##### 17128#       发表于 2022-8-25 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57199030&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-24 14:21</a>
+
+我觉得虹en挺温暖大家庭的，只是嗯妹妹们不觉得</blockquote>
+确实 虽然我看不上vox但集美炎上的东西都只能说屁事都不算
+
