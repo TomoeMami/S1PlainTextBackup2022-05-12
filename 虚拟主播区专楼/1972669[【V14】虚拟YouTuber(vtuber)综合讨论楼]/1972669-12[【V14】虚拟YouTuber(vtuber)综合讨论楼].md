@@ -6940,3 +6940,19 @@ vspo这新人好紧张啊，开口第一句话音调像秋名山一样拐<img sr
 
 看起来是爱尾セナ
 
+
+
+*****
+
+####  winda  
+##### 17136#       发表于 2022-8-25 21:15
+
+valo solo不朽的实力，这也太卷了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17137#       发表于 2022-8-25 21:18
+
+似乎是丽的好友，通讯录+1
+
