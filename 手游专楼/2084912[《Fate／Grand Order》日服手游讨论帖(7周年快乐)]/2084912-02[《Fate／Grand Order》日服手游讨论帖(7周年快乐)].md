@@ -6629,3 +6629,12 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 绿卡BUFF最足宝具倍率最高，rba从t1开始就稳定供30星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">风水轮流转!
 
+
+
+*****
+
+####  alucardcz  
+##### 2084#       发表于 2022-8-25 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不过仔细想想要是真出这样的本 100万在前面2波  绿卡登基 隔壁是不是又有大戏能看了
+
