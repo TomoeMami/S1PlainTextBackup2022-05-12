@@ -3280,3 +3280,14 @@ b博感言
 
 管人区没开IP显示啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12345#       发表于 2022-8-25 08:31
+
+庄司的新皮不知道为什么给我一种里番画风的感觉，放大了尤其像
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
