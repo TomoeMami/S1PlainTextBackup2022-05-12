@@ -6693,3 +6693,14 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁居然又有大戏。。不要啊  我忙的要死没空看啊
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2090#       发表于 2022-8-25 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57214082&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 15:55</a>
+隔壁居然又有大戏。。不要啊  我忙的要死没空看啊</blockquote>
+这还大戏，每年定番了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
