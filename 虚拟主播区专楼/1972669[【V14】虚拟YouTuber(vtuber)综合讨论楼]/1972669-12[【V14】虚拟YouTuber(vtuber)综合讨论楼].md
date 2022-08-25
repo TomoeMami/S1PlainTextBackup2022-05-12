@@ -6894,3 +6894,21 @@ V.W.P是不是还没出专辑？
 
 名字怪点，设计相比金鹅那对电光蟑螂须好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓬莱广告  
+##### 17131#       发表于 2022-8-25 20:05
+
+vspo这新人好紧张啊，开口第一句话音调像秋名山一样拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17132#       发表于 2022-8-25 20:06
+
+无前世buff的情况下5W+了
+
+第三箱的底力
+
