@@ -6885,3 +6885,12 @@ V.W.P是不是还没出专辑？
 
 军鸡真的能让人往奇怪的地方联想啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 17130#       发表于 2022-8-25 18:21
+
+名字怪点，设计相比金鹅那对电光蟑螂须好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
