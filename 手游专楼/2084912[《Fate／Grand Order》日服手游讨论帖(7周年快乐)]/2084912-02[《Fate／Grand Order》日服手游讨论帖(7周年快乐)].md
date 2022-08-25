@@ -6615,3 +6615,17 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 那绿卡不是赢麻了，BUFF最足倍率最高，rba从t1开始就稳定供30星
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2083#       发表于 2022-8-25 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57210249&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-25 10:18</a>
+
+那红卡不是输麻了，要呼叫奥伯龙或者刷牌
+
+绿卡BUFF最足宝具倍率最高，rba从t1开始就稳定供30星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">风水轮流转!
+
