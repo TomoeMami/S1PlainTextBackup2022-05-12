@@ -6844,3 +6844,28 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 不过对个人来说不需要更换队伍和衣服，等同没影响（
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2104#       发表于 2022-8-25 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215784&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 18:05</a>
+他说的是100万在第1面
+
+你无论什么服都是2个领导力在打的第3面</blockquote>
+靠第一面，这是什么阴顶天
+
+*****
+
+####  alucardcz  
+##### 2105#       发表于 2022-8-25 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215946&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-25 18:17</a>
+
+靠第一面，这是什么阴顶天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是在虚空造本啊（ 
+
+下一次第1面100万就又有大戏能看了
+
