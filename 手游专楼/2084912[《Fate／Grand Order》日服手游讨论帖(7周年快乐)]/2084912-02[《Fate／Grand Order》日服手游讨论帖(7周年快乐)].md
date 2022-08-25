@@ -6598,3 +6598,20 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 跟回收没关系，但要有30自充，这次50NP倍卡谁都能强制打两炮，我用的夏露露 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又把总师傅的自充给忘了
 
+
+
+*****
+
+####  exiaexa  
+##### 2082#       发表于 2022-8-25 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57206225&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-24 22:48</a>
+
+狂娜:大声点 我听不见
+
+不过我觉得不太可能 估计和90+一样会变花样
+
+----------------------- ...</blockquote>
+那绿卡不是赢麻了，BUFF最足倍率最高，rba从t1开始就稳定供30星
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
