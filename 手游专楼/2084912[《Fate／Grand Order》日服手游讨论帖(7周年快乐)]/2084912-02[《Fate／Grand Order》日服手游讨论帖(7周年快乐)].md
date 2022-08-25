@@ -6928,3 +6928,26 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 隔壁现在说留的是狗托，说run的是号贩子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后国服的都是一个一个石头号 还是带拐的那种
 
+
+
+*****
+
+####  kiralzb  
+##### 2112#       发表于 2022-8-25 20:13
+
+为啥国服戏这么多，不是冷门游戏了吗
+
+*****
+
+####  kiralzb  
+##### 2113#       发表于 2022-8-25 20:16
+
+为啥国服戏这么多戏，不已经是冷门游戏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 2114#       发表于 2022-8-25 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再冷门也是 外国（还是日本）在华最大手游吧？按前不久没收和服的整体大情况来看，存在就是原罪
+
