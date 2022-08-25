@@ -5303,3 +5303,12 @@ Fa7CR22UEAE8HGh.jpg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 3509#       发表于 2022-8-25 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这表情像是刚唱完小星星就被按着头追了二期动画一样
+
