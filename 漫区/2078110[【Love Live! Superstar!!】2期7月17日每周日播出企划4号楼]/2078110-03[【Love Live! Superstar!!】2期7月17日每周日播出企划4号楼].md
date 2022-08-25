@@ -5321,3 +5321,170 @@ Fa7CR22UEAE8HGh.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议香堇一起飞上海劝，唐姐：”臭丫头能耐啊，脚踏两条船？“
 
+
+
+*****
+
+####  ads147147  
+##### 3511#       发表于 2022-8-25 14:25
+
+「中字」LoveLive! Superstar!!第2季夏美加入回的绝赞描绘【VOICEROID考察】|C子烤肉 UP主: CC萌 [https://www.bilibili.com/video/BV1re4y1o7s4](https://www.bilibili.com/video/BV1re4y1o7s4)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要找金针菇不还是找得到嘛，只不过里头还是充满了无法解释的矛盾感，只能说我们一般观众很俗，看不来京极的高深艺术。
+
+*****
+
+####  笋狐  
+##### 3512#       发表于 2022-8-25 15:47
+
+点进去就看到个企划全肯定自意识过剩傻卵搁评论区乱喷彩虹屁，晦气
+
+*****
+
+####  iuhehc  
+##### 3513#       发表于 2022-8-25 15:55
+
+ 本帖最后由 iuhehc 于 2022-8-25 16:23 编辑 
+
+编辑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星降る森  
+##### 3514#       发表于 2022-8-25 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57191236&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-8-24 00:16</a>
+
+我就想问，日本人不做市场调研吗？ 真就两耳不闻窗外事一直按照自己思路闷头做下去么？ 第一季动画结束后不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小众偶像番先不说吧，宝可梦这个大IP连续3年的联盟战小智被淘汰，剧本分别是打神兽男，6打5，烘托几周的大招扔出去自己趴了。如此精准3年雷很难让人不怀疑是故意的。
+
+回到LL，目前的剧本到底是不是烂我觉得多少是有逼数的，但是并不妨碍他们继续写，可能是企划大人物的傲慢吧。可怜声优一眼看出剧本垃圾还得想办法自救
+
+*****
+
+####  星降る森  
+##### 3515#       发表于 2022-8-25 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">某些人物属性写出来必定会被炎上，这种事情就算再蠢也能意识到的，拿虹团来说，小霞一开始那个“恶作剧”是通过贬低，坑其他人来抬高自己的，包括不限于写黑信散播谣言之类的，不过哪怕是被炎上的AS里这个初设都是被扔掉的，改成不痛不痒的“小恶魔系”。
+
+夏美这个拜金属性会不会搞出争议你要说他们一点都没想过我是不信的，要是一开始就无所谓，连偶像本身都不会设定为“校园偶像”
+
+*****
+
+####  ads147147  
+##### 3516#       发表于 2022-8-25 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57213963&amp;ptid=2078110" target="_blank">笋狐 发表于 2022-8-25 15:47</a>
+
+点进去就看到个企划全肯定自意识过剩傻卵搁评论区乱喷彩虹屁，晦气</blockquote>
+没塌在自家房的人说话总是可以硬气的。
+
+*****
+
+####  笋狐  
+##### 3517#       发表于 2022-8-25 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57214315&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-25 16:16</a>
+
+没塌在自家房的人说话总是可以硬气的。</blockquote>
+怪我话没说全，这位是能给ASR3剧情和雨野智晴洗地的罕见品种，火化爆出舍利子上面都得刻个孝的结晶体
+
+*****
+
+####  1q11  
+##### 3518#       发表于 2022-8-25 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57214368&amp;ptid=2078110" target="_blank">笋狐 发表于 2022-8-25 16:20</a>
+怪我话没说全，这位是能给ASR3剧情和雨野智晴洗地的罕见品种，火化爆出舍利子上面都得刻个孝的结晶体 ...</blockquote>
+那几个结晶在去年就一直和不喜欢as剧情的对线<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我就奇怪as为什么有这么大魅力吸引这些人给它洗地
+
+—— 来自 HUAWEI JAD-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+*****
+
+####  奥柏伦亲王  
+##### 3519#       发表于 2022-8-25 19:00
+
+小星星在我心中是LLSS最好的歌，貌似在日本那边人气也能至少前三了吧……不知道有多少被小星星拉进坑的人现如今还在坚持呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 3520#       发表于 2022-8-25 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57216381&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-25 19:00</a>
+小星星在我心中是LLSS最好的歌，貌似在日本那边人气也能至少前三了吧……不知道有多少被小星星拉进坑的人现 ...</blockquote>
+小星星现在依然是星团销量最高的CD
+
+*****
+
+####  灼眼的夏娜酱  
+##### 3521#       发表于 2022-8-25 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57204585&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-24 20:42</a>
+
+bangumi偶像tag下面倒数第五了，，，，，，，，，，，，灭亡吧</blockquote>
+看了一下bangumi有排名的动画一共7152部，星二期排在了7031位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3522#       发表于 2022-8-25 20:57
+
+看战吧人发的 评分偶像番里倒数第二 按bangumi算法排名倒一 
+
+*****
+
+####  lj205  
+##### 3523#       发表于 2022-8-25 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把香音语录做成GOODS来卖如何？比如像鲤鱼发声挂件那样的？
+
+*****
+
+####  Kfly  
+##### 3524#       发表于 2022-8-25 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57218337&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-25 21:26</a>
+
+把香音语录做成GOODS来卖如何？比如像鲤鱼发声挂件那样的？</blockquote>
+虽然没准能大卖（
+但那也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 3525#       发表于 2022-8-26 00:15
+
+昨天鲤鱼推粉-4，是liella第一次掉粉吗(／_＼)
+
+*****
+
+####  starring  
+##### 3526#       发表于 2022-8-26 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57218876&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-8-26 00:15</a>
+昨天鲤鱼推粉-4，是liella第一次掉粉吗(／_＼)</blockquote>
+二期开播以来五老星推特follow增长很少，而且推文点赞也大幅下降。
+gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是pay带照片的推文点赞大约只有七八千，鲤鱼和nako相对稳定一点，Nagi因为修养发推少还不是很清楚。
+
+*****
+
+####  aoaoaodedede  
+##### 3527#       发表于 2022-8-26 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57218876&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-8-26 00:15</a>
+昨天鲤鱼推粉-4，是liella第一次掉粉吗(／_＼)</blockquote>
+应该不算吧，据说一期动画开播前也有负增长的。
+其实没什么奇怪的，一个是本身关注的基数就大，相比基数少的，波动范围会大一点。二个是鲤鱼这俩个月无论个人还是企划那边都没有几个活动，曝光能力强一点的也没几个，吸粉效应不佳倒也正常
+
+*****
+
+####  Kfly  
+##### 3528#       发表于 2022-8-26 07:14
+
+感觉还算可以接受？
+看统计是整体的状态都不怎么好，鱼因为这几周参与活动相对较少，影响最大吧（推测）
+
