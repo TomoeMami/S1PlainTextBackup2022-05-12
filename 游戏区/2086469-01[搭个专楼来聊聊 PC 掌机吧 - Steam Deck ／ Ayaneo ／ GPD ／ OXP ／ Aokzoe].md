@@ -1427,3 +1427,15 @@ Aya是最早做自己前端的，这个也是他们及其粉丝认为的AYA的�
 
 oxp我买个一代，其他还好，屏幕素质实在不行
 
+
+
+*****
+
+####  83913536  
+##### 122#       发表于 2022-8-25 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57210719&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-8-25 10:56</a>
+
+oxp我买个一代，其他还好，屏幕素质实在不行</blockquote>
+得校色，其实本身就是普通的100% srgb屏
+
