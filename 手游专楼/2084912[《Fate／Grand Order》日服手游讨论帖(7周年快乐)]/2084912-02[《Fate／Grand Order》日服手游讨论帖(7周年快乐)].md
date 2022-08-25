@@ -7035,3 +7035,17 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 好奇你游从自建到能3t90级周回需要多久
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2123#       发表于 2022-8-26 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57219327&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-26 01:45</a>
+
+隔壁天天研究六加成不换人能受得了自建菜刀打本我反正不信
+
+好奇你游从自建到能3t90级周回需要多久 ...</blockquote>
+现在自建使劲氪把女梅林水伊吹抽满，拿个二世，然后疯狂赶主线进度喂起来抱术呆加换人打333，是不是就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
