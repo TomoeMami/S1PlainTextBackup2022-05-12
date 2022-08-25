@@ -1405,3 +1405,25 @@ Aya是最早做自己前端的，这个也是他们及其粉丝认为的AYA的�
 
 对奥克感兴趣，但是不知道一号本家的做工和质量如何？之前买GPD翻车过，痛苦的经历
 
+
+
+*****
+
+####  nilren  
+##### 120#       发表于 2022-8-25 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57210316&amp;ptid=2086469" target="_blank">zombie_S 发表于 2022-8-25 10:23</a>
+对奥克感兴趣，但是不知道一号本家的做工和质量如何？之前买GPD翻车过，痛苦的经历 ...</blockquote>
+虽然我是GPD的买家，但是壹号本掌机的做工品质和价格一直比GPD要强是事实。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  医生狼多  
+##### 121#       发表于 2022-8-25 10:56
+
+oxp我买个一代，其他还好，屏幕素质实在不行
+
