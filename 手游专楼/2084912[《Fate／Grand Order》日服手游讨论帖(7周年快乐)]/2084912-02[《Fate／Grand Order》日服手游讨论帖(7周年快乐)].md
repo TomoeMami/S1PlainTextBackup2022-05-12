@@ -6916,3 +6916,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 这逻辑太二逼了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">隔壁现在说留的是狗托，说run的是号贩子
 
+
+
+*****
+
+####  alucardcz  
+##### 2111#       发表于 2022-8-25 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57216708&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-25 19:28</a>
+
+隔壁现在说留的是狗托，说run的是号贩子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后国服的都是一个一个石头号 还是带拐的那种
+
