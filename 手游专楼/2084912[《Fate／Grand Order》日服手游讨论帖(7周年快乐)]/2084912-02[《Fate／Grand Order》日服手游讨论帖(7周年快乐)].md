@@ -6670,3 +6670,17 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 这歌果怕不是戈尔贡的谐音吧
 
+
+
+*****
+
+####  alucardcz  
+##### 2088#       发表于 2022-8-25 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57213413&amp;ptid=2084912" target="_blank">kulanyee 发表于 2022-8-25 14:57</a>
+
+111严格来说不算阴间本，它和333一样大把单打手3T方案
+
+113或者212这类型的才算比较阴间 ...</blockquote>
+113太白给了。。。建议131或者311  3至少得3个100万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
