@@ -6931,3 +6931,12 @@ vspo这新人好紧张啊，开口第一句话音调像秋名山一样拐<img sr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这音色真的和qb太近了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17135#       发表于 2022-8-25 20:44
+
+看起来是爱尾セナ
+
