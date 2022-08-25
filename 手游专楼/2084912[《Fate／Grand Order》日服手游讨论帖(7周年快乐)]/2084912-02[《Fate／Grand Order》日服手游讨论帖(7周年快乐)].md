@@ -7012,3 +7012,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  大巨傻  
+##### 2121#       发表于 2022-8-26 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57217487&amp;ptid=2084912" target="_blank">Lamas 发表于 2022-8-25 20:29</a>
+抽了个一宝水魔总 有吊大的说一下能用吗
+感觉二破好瑟</blockquote>
+绿卡未来可期？
+
