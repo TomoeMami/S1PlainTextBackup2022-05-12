@@ -7001,3 +7001,14 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 那人说，你让那帮买初始被孔明惯坏了的玩家来投票，那结果不是显而易见吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2120#       发表于 2022-8-26 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这开服号三个红拐一个都没，周回全靠多核队抱拐或者c呆毛，润过来的体验应该比我好
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
