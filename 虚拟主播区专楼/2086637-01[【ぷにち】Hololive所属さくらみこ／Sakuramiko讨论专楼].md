@@ -7016,3 +7016,34 @@ MC的录音带每次都很有沉浸感
 
 晒图去年elite咖啡厅联动就展出过了，能晒得就是外露胖次
 
+
+
+*****
+
+####  holoan  
+##### 683#         楼主| 发表于 2022-8-25 17:39
+
+<img src="https://img.saraba1st.com/forum/202208/25/173856fqr3vb5rv3jkvqk6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 17:38 上传
+
+又延期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很有意思
+
+*****
+
+####  rs5621  
+##### 684#       发表于 2022-8-25 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">草，延期到10月是吧？
+
+*****
+
+####  holoan  
+##### 685#         楼主| 发表于 2022-8-25 17:41
+
+这个是刚才推上刷出来的有人说这个事，这个人买的是日亚第三方的出品，当然第三方自己可以改发送时间也不一定就是真的延期
+
