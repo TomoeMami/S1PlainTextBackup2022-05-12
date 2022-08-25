@@ -5290,3 +5290,16 @@ Fa7CR22UEAE8HGh.jpg
 
 众望所归的追飞机会=可可又被安排说怪话，大概率又针对堇，然后跑路，香音教祖又使出无敌TP闪现一通自己都不信的嘴炮给遁回来<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3508#       发表于 2022-8-25 08:08
+
+小星星循环了那么多遍，真的不想说什么怪话唉。
+
+封面的十字相扣，可香绝唱。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
