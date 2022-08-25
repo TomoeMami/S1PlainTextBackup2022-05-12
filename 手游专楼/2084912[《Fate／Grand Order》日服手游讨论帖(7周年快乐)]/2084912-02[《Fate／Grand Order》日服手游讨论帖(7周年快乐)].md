@@ -6869,3 +6869,22 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 下一次第1面100万就又有大戏能看了
 
+
+
+*****
+
+####  jacatay  
+##### 2106#       发表于 2022-8-25 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 2107#       发表于 2022-8-25 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57216524&amp;ptid=2084912" target="_blank">jacatay 发表于 2022-8-25 19:13</a>
+
+隔壁推荐国服run来日服玩自建的是脑子瓦特了还是叔叔的托啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你不推荐自建号，你就是号贩子
+
