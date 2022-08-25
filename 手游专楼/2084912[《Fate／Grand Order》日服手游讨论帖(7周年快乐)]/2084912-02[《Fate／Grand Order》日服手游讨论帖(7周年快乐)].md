@@ -6728,3 +6728,67 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 就你游这非要做出区别的整法，这玩意儿要是个红的就最好就两种情况，50充地特攻摩根或者30充换个玩法的狂 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">红宝具呀，就按这个狂的模板来，变成三红红宝，就算二技能不变成单色50红就很不错了吧
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2093#       发表于 2022-8-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57206225&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-24 22:48</a>
+
+狂娜:大声点 我听不见
+
+不过我觉得不太可能 估计和90+一样会变花样
+
+----------------------- ...</blockquote>
+5加成不影响，6加成应该很难
+
+*****
+
+####  alucardcz  
+##### 2094#       发表于 2022-8-25 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215599&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-25 17:51</a>
+
+5加成不影响，6加成应该很难</blockquote>
+影响的  等于封杀了奥师傅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 2095#       发表于 2022-8-25 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215611&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-25 17:53</a>
+
+影响的  等于封杀了奥师傅</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧，我是拿斋藤一+wc呆毛刷的，那个队伍没影响
+
+*****
+
+####  khxooo  
+##### 2096#       发表于 2022-8-25 17:56
+
+ 本帖最后由 khxooo 于 2022-8-25 18:00 编辑 
+
+90个石头，迦摩、RBA和船长，这就是氪金的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2097#       发表于 2022-8-25 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215646&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-25 17:55</a>
+
+好吧，我是拿斋藤一+wc呆毛刷的，那个队伍没影响</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的 吃2个领导力才能打100万  你得换人充能了
+
+*****
+
+####  千叶铁矢  
+##### 2098#       发表于 2022-8-25 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215665&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-25 17:56</a>
+90个石头，迦摩、RBA和船长，&amp;#x8FD9 ...</blockquote>
+是<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">的力量
+
