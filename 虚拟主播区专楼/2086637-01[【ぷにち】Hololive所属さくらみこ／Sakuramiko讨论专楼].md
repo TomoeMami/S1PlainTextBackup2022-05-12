@@ -6971,3 +6971,12 @@ MC的录音带每次都很有沉浸感
 
 那看来暑假结束了也不影响太多，不过评论区的初见评论还有不少
 
+
+
+*****
+
+####  rs5621  
+##### 678#       发表于 2022-8-25 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今天的miko的pop手办应该出荷了吧，不知道国内的几时到
+
