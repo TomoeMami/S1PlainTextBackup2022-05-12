@@ -1439,3 +1439,17 @@ oxp我买个一代，其他还好，屏幕素质实在不行
 oxp我买个一代，其他还好，屏幕素质实在不行</blockquote>
 得校色，其实本身就是普通的100% srgb屏
 
+
+
+*****
+
+####  zombie_S  
+##### 123#       发表于 2022-8-25 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57210658&amp;ptid=2086469" target="_blank">nilren 发表于 2022-8-25 10:52</a>
+
+虽然我是GPD的买家，但是壹号本掌机的做工品质和价格一直比GPD要强是事实。
+
+—— 来自 S1Fun ...</blockquote>
+哦，那还是蛮好的，GPD小问题蛮多的，有点开宝箱碰运气的成分，每台机都不同<img src="https://static.saraba1st.com/image/smiley/goose2017/007.png" referrerpolicy="no-referrer">
+
