@@ -7164,3 +7164,29 @@ polka上MC在鬼屋旁边建东西
 
 按期发货了
 
+
+
+*****
+
+####  holoan  
+##### 699#         楼主| 发表于 2022-8-25 23:55
+
+有时间里rust没时间直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这人信用也就如此了
+
+*****
+
+####  rs5621  
+##### 700#       发表于 2022-8-26 00:01
+
+<img src="https://img.saraba1st.com/forum/202208/26/000046jybma8r9rmrymrdq.png" referrerpolicy="no-referrer">
+
+<strong>P~B~5W38HE9C3%CY526`HIT.png</strong> (50.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 00:00 上传
+
+又去给新人送装备了
+
