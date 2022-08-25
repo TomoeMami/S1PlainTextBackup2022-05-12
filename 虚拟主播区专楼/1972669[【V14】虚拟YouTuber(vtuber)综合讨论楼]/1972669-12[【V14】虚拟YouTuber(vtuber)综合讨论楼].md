@@ -6922,3 +6922,12 @@ vspo这新人好紧张啊，开口第一句话音调像秋名山一样拐<img sr
 声音还行。
 感觉有点耳熟的音色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 17134#       发表于 2022-8-25 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这音色真的和qb太近了
+
