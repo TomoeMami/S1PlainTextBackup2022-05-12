@@ -7006,3 +7006,12 @@ syl 根据前面楼友说的名字，搜了下她的推特，简介上写的:APE
 
 建议vspo以后新人先上lvg联动打打枪再来单播出道回<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 17143#       发表于 2022-8-26 06:39
+
+我又回看了一遍，17分左右说了没有超凡段位的时候单排到钻3。
+
