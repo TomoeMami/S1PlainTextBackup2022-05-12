@@ -6956,3 +6956,14 @@ valo solo不朽的实力，这也太卷了<img src="https://static.saraba1st.com
 
 似乎是丽的好友，通讯录+1
 
+
+
+*****
+
+####  Kokichi  
+##### 17138#       发表于 2022-8-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57218169&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-25 21:15</a>
+valo solo不朽的实力，这也太卷了</blockquote>
+组排的神话，单排是钻3。
+
