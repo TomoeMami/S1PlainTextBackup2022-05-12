@@ -6649,3 +6649,24 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 113或者212这类型的才算比较阴间
 
+
+
+*****
+
+####  阿提拉  
+##### 2086#       发表于 2022-8-25 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">做梦也没想到大流士的卡面也有被和谐的一天
+
+*****
+
+####  里村紅葉  
+##### 2087#       发表于 2022-8-25 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57213786&amp;ptid=2084912" target="_blank">阿提拉 发表于 2022-8-25 15:32</a>
+
+做梦也没想到大流士的卡面也有被和谐的一天</blockquote>
+我还是觉得R姐改名更魔幻一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这歌果怕不是戈尔贡的谐音吧
+
