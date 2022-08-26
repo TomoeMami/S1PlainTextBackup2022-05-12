@@ -6091,3 +6091,16 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 
 一巡才知道的话只能说运营垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鱼这么写也没错啊，粉丝那时候哪知道会被背刺啊，特别是一巡这么一波看下来的粉
 
+
+
+*****
+
+####  iuhehc  
+##### 3585#       发表于 2022-8-26 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225230&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-26 15:49</a>
+不过r3从游戏到动画都过了一年多了，等明年再看星这四人，估计也是没啥意见的了。 ...</blockquote>
+有意见的大概要不跑了要不单推了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
