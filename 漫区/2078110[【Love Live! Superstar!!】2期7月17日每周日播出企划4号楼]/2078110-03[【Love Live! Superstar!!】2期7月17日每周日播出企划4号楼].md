@@ -5945,3 +5945,27 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 动画比完五角星一点前兆都没有不说，官方S ...</blockquote>
 虹那也吵啊，只是玩游戏的不多，水花不大而已，而且虹同好会也没说是九人同好会什么，你星这五角星。。。
 
+
+
+*****
+
+####  adw667  
+##### 3570#       发表于 2022-8-26 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57223383&amp;ptid=2078110" target="_blank">Dark_Zagi 发表于 2022-8-26 13:09</a>
+
+铃原采访说1期生公布前就知道有2期了，也就是起码20年11月前，1期动画不至于这么早就开做了吧，就算开做 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">只有二期生知道自己是二期吧，如果老五人在一期角色公布之前就知道有二期的话那对烤肉外景的五人の绊是个不小的背刺吧
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 3571#       发表于 2022-8-26 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225044&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-26 15:33</a>
+
+只有二期生知道自己是二期吧，如果老五人在一期角色公布之前就知道有二期的话那对烤肉外景的五人 ...</blockquote>
+说起来，别忘了“五人の绊”是鲤鱼在年初在LieRadi（[https://www.bilibili.com/video/BV15q4y1A7tH](https://www.bilibili.com/video/BV15q4y1A7tH)）上写的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
