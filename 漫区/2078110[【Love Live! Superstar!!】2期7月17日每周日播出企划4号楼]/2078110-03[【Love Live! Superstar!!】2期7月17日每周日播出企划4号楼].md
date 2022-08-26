@@ -6053,3 +6053,22 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 
 反正过两周就是虹ive，到时候虹是剧场版还是动画应该都会有消息了。明年已经有水3，如果虹让开了档期，明年这时候星3也不奇怪。
 
+
+
+*****
+
+####  优妮可  
+##### 3581#       发表于 2022-8-26 16:46
+
+所以档期安排那么满，管人是来干嘛的，
+
+*****
+
+####  adw667  
+##### 3582#       发表于 2022-8-26 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225939&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-26 16:46</a>
+
+所以档期安排那么满，管人是来干嘛的，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是吔屎赶不上热乎
+
