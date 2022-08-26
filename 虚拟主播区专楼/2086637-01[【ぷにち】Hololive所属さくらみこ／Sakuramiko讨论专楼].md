@@ -7586,3 +7586,30 @@ mio又带了好吃的去工作室，买了甜甜圈
 
 当然如果硬撑不休息另说
 
+
+
+*****
+
+####  holoan  
+##### 742#         楼主| 发表于 2022-8-26 15:15
+
+<img src="https://img.saraba1st.com/forum/202208/26/151421lkbshmgchs4rgslr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (395.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202208/26/151441e6kg4kj4srdkp9wd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 15:14 上传
+
+更多返图来了
+
+看上去这批质量确实不差，脸也没见到崩的
+
