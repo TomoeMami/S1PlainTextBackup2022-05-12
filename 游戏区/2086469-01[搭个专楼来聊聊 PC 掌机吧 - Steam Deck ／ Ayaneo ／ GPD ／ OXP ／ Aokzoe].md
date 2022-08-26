@@ -1495,3 +1495,23 @@ Steam Deck产量爆炸了，现在预定都是10-12月发货
 加个硬盘几百</blockquote>
 有点心动了，哈哈
 
+
+
+*****
+
+####  snakeyou  
+##### 127#       发表于 2022-8-26 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57223864&amp;ptid=2086469" target="_blank">solora 发表于 2022-8-26 13:52</a>
+
+有点心动了，哈哈</blockquote>
+我8月14号订的，已经跑了50%的进度，离谱
+
+<img src="https://img.saraba1st.com/forum/202208/26/143000rzpbz1mlyqfhlyy6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 14:30 上传
+
