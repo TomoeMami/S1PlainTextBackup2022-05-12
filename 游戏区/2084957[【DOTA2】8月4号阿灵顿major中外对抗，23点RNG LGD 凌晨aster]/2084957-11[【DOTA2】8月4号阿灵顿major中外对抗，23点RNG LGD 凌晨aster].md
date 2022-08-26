@@ -6767,3 +6767,17 @@ dp感觉刀刀入肉了
 
 可以，打回来一局
 
+
+
+*****
+
+####  Endle  
+##### 15749#       发表于 2022-8-26 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57197925&amp;ptid=2084957" target="_blank">TCone 发表于 2022-8-24 13:28</a>
+
+人马能拉着凤凰蛋，巫医变的棍跑吗？</blockquote>
+看了一个b站视频，凤凰蛋还留在原地。炸出来的时候，眩晕效果跟着蛋走，但是凤凰复活在人马的车上。
+
+不知道是不是bug
+
