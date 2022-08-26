@@ -5969,3 +5969,38 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 只有二期生知道自己是二期吧，如果老五人在一期角色公布之前就知道有二期的话那对烤肉外景的五人 ...</blockquote>
 说起来，别忘了“五人の绊”是鲤鱼在年初在LieRadi（[https://www.bilibili.com/video/BV15q4y1A7tH](https://www.bilibili.com/video/BV15q4y1A7tH)）上写的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3572#       发表于 2022-8-26 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹怎么不吵啊，当时雪菜党都炸了，栞子要不是后面打脸快，当时第十人的时候就要炸。
+
+岚珠那段气得我懒得看主线了，甚至当时游戏差点拖缪水下水，足见脚本的恶劣程度。
+
+*****
+
+####  adw667  
+##### 3573#       发表于 2022-8-26 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225113&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-26 15:39</a>
+
+说起来，别忘了“五人の绊”是鲤鱼在年初在LieRadi（https://www.bilibili.com/video/BV15q4y1A7tH）上写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉再深究下去就要变成黑屁了
+
+*****
+
+####  优妮可  
+##### 3574#       发表于 2022-8-26 15:48
+
+那时候萌p和菜宝一直在当盾，萌p各种说好话转发评价，菜宝给成员画生日图。后来一次生放兔说了那些话之后基本就没啥反对意见了。
+
+*****
+
+####  优妮可  
+##### 3575#       发表于 2022-8-26 15:49
+
+不过r3从游戏到动画都过了一年多了，等明年再看星这四人，估计也是没啥意见的了。
+
