@@ -6241,3 +6241,18 @@ BV1sa41157R4
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 3597#       发表于 2022-8-27 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57229614&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-26 21:58</a>
+
+又节食又训练的。。。这个身体到底怎么进行健康管理的。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的  ...</blockquote>
+
+没节食，别乱想<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">肯定不止就喝了杯东西，她说了有吃东西，而且是特意补充说的
+
