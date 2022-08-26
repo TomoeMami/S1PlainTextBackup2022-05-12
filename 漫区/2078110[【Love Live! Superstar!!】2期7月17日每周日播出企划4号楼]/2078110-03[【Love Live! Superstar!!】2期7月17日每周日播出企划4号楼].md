@@ -5833,3 +5833,17 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 あs老师的夏美赚money记，翻译嵌字：洲崎惠梨</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">什么代餐
 
+
+
+*****
+
+####  沙茶酱  
+##### 3560#       发表于 2022-8-26 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221683&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-26 10:38</a>
+
+啊，忘了三期生了
+
+考虑到三期，确实得这么赶了</blockquote>
+假如只考虑动画制作周期，你看一期动画有半点加人的信息吗？从这可以看出，在企划最早肯定是没有想过加人的，加人估计是一期动画开始制作之后，在二期制作之前，大人们不知道为什么突发奇想想要加人。之所以分三期，我觉得是一个是“9个人”比较容易说服老粉，毕竟“9就是传奇数字”，后面等大家都接受加人了，那么第二次加人就顺理成章了，而且二期也有暗示了；第二个是分三期恰好可以是从学年上说得过去，等于星团每升一年级就加人。其实从构思上说的话，这个算是很好的创意，一年一年加人，比赛百折不挠，最终在第三年夺冠，这看起来也很有史诗感。
+
