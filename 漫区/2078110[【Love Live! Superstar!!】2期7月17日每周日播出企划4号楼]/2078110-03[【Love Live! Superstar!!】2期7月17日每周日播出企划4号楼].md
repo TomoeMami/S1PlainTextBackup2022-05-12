@@ -6004,3 +6004,12 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 
 不过r3从游戏到动画都过了一年多了，等明年再看星这四人，估计也是没啥意见的了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3576#       发表于 2022-8-26 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“五人の绊”这种事  加人这事一出楼友不就发散过了 你鲤鱼姐烤肉回都聊的成员 根本没提裂拉
+
