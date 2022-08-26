@@ -6032,3 +6032,24 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 感觉再深究下去就要变成黑屁了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实没必要说太多了
 
+
+
+*****
+
+####  ViyViy  
+##### 3579#       发表于 2022-8-26 16:10
+
+你说这现在一路坠到马里亚纳海沟的星二，三期动画总不能还是火急火燎的不到一年就上了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3580#       发表于 2022-8-26 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225456&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-26 16:10</a>
+
+你说这现在一路坠到马里亚纳海沟的星二，三期动画总不能还是火急火燎的不到一年就上了吧。 ...</blockquote>
+说不定万代高层还觉得蒸蒸日上呢，nico评分是什么垃圾。
+
+反正过两周就是虹ive，到时候虹是剧场版还是动画应该都会有消息了。明年已经有水3，如果虹让开了档期，明年这时候星3也不奇怪。
+
