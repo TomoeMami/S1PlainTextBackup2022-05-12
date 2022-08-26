@@ -7817,3 +7817,19 @@ mio又带了好吃的去工作室，买了甜甜圈
 
 钓鱼最弱
 
+
+
+*****
+
+####  rs5621  
+##### 767#       发表于 2022-8-26 21:55
+
+大头要气死了,miko死活上不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 768#       发表于 2022-8-26 21:59
+
+试图上货船浪费几套装备和船了？我看到的就死两次了
+
