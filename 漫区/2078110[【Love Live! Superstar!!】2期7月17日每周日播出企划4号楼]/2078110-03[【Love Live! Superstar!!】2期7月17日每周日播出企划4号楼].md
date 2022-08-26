@@ -5802,3 +5802,34 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 
 3.商业上考量，拉拉从过去的几年一作变成现在一年一作，甚至不同系列挤在同一年里，生态位上已经是取代了高达在日升商业运营的计划上的，面向的观众也比当年的萝卜片更宽广，算是业界标准答案了（然后被其他公司的偶像动画按在地上打，谁的错）
 
+
+
+*****
+
+####  Kfly  
+##### 3557#       发表于 2022-8-26 11:35
+
+ 本帖最后由 Kfly 于 2022-8-26 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57222245&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-26 11:20</a>
+往好的想法想，是有不少好理由的：
+
+1.初期人数少，集数相对多，可以更好是塑造角色（事实是恋寄了，小千 ...</blockquote>
+还能怎么说，实力不济呗，对自己的能力没点认识还要硬上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 3558#       发表于 2022-8-26 11:35
+
+重复编辑
+
+*****
+
+####  JustW_3  
+##### 3559#       发表于 2022-8-26 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57222086&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-26 11:07</a>
+
+あs老师的夏美赚money记，翻译嵌字：洲崎惠梨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">什么代餐
+
