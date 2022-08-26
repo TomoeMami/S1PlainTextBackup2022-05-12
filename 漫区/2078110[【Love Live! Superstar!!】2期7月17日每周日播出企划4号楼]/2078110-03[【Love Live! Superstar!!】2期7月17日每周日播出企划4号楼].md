@@ -5678,3 +5678,40 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  优妮可  
+##### 3547#       发表于 2022-8-26 10:36
+
+后天又是动画，好想跳过那天
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3548#       发表于 2022-8-26 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋回，还是先看看能整什么活
+
+*****
+
+####  Kfly  
+##### 3549#       发表于 2022-8-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221463&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-26 10:22</a>
+还太急？明明是不够急，说不定三期生还有两个在台下面看呢，这可是等两年的主，美少女哪能挥霍两年[f:037 ...</blockquote>
+啊，忘了三期生了
+考虑到三期，确实得这么赶了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+服了，所以分三批加成员有什么难以忽视的好处吗？整出这么多麻烦。一开始加直接加九个十二个的不行？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 3550#       发表于 2022-8-26 10:41
+
+写非主线的花田还是值得信赖……大概。要是连非主线的个人回都可以寄了，我建议花田封笔
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
