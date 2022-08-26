@@ -7096,3 +7096,15 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 
 一宝开个被动需要6绊
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2128#       发表于 2022-8-26 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221066&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-26 09:49</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是一宝只能说正常亚洲人吧
+

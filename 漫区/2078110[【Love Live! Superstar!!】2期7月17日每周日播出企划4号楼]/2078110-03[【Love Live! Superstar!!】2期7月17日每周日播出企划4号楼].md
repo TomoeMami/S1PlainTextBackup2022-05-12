@@ -5624,3 +5624,32 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3542#       发表于 2022-8-26 10:02
+
+继续前三集和小星星话题，我记得新四人中某位说过，自己母亲最喜欢听Tiny Star来着，开车时都要放……好东西大家都喜欢
+
+*****
+
+####  Kfly  
+##### 3543#       发表于 2022-8-26 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57220883&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-26 09:32</a>
+就是不上心，新四人你说时间紧拿捏不好可以勉强接受，老五人角色呢？我看现在企划最恨前三集，毕竟后面的 ...</blockquote>
+成也前三集，败也前三集
+出道即巅峰，这句话还挺符合星团动画的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 3544#       发表于 2022-8-26 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221214&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-26 10:02</a>
+继续前三集和小星星话题，我记得新四人中某位说过，自己母亲最喜欢听Tiny Star来着，开车时都要放……好东 ...</blockquote>
+是non在74期广播中说的……
+毕竟第三集剧情和live加起来很能打动人<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
