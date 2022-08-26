@@ -5653,3 +5653,28 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 是non在74期广播中说的……
 毕竟第三集剧情和live加起来很能打动人<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3545#       发表于 2022-8-26 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57220569&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-26 09:02</a>
+可能还是太急了吧，才隔一年就出第二季，能对角色有什么深刻理解呢………临时想改都来不及
+但烂成 ...</blockquote>
+还太急？明明是不够急，说不定三期生还有两个在台下面看呢，这可是等两年的主，美少女哪能挥霍两年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+二期赢家无疑是vn了，不仅是系列少数新人吊打老人的凤傲天设定，还能提前在二期这里登场，如果也是海选留下来的，那就是绝杀w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 3546#       发表于 2022-8-26 10:29
+
+这还确实是，二期起码是这点办到了，因为VN的缘故，我还是蛮期待有三期的；反正你TM都加人了，我也不介意你TM再加多点了。唯一担心就是该不会到时候加VN的时候还能又有什么逆天操作降低逼格吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
