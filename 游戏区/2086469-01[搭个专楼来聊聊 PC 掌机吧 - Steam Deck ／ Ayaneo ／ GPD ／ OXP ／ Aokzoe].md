@@ -1479,3 +1479,19 @@ oxp我买个一代，其他还好，屏幕素质实在不行</blockquote>
 
 性价比无敌，国产掌机我决定下一代再说了
 
+
+
+*****
+
+####  solora  
+##### 126#       发表于 2022-8-26 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57223848&amp;ptid=2086469" target="_blank">snakeyou 发表于 2022-8-26 13:50</a>
+
+Steam Deck产量爆炸了，现在预定都是10-12月发货
+
+64g国内到手2200-2600（被不被税）
+
+加个硬盘几百</blockquote>
+有点心动了，哈哈
+
