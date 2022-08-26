@@ -7405,3 +7405,28 @@ mio又带了好吃的去工作室，买了甜甜圈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这哭啥呢，突然叫这么大声，妈妈都叫出来了
 
+
+
+*****
+
+####  holoan  
+##### 722#         楼主| 发表于 2022-8-26 13:22
+
+要死了呗
+
+我是以为要死了，装备救了一命
+
+*****
+
+####  rs5621  
+##### 723#       发表于 2022-8-26 13:25
+
+可惜，怎么没打死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 724#         楼主| 发表于 2022-8-26 13:29
+
+命大呗，不过也活不了太长了
+
