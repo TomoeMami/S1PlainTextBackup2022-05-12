@@ -5561,3 +5561,21 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 可能还是太急了吧，才隔一年就出第二季，能对角色有什么深刻理解呢………临时想改都来不及<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 但烂成这样，不上心才是主要原因，剧情安排就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 3536#       发表于 2022-8-26 09:15
+
+草四个人也能担心的？推特光误封的都不知道多少人，更何况还有国内fq被锁的
+
+*****
+
+####  奥柏伦亲王  
+##### 3537#       发表于 2022-8-26 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57217131&amp;ptid=2078110" target="_blank">型月重工 发表于 2022-8-25 20:06</a>
+ 小星星现在依然是星团销量最高的CD</blockquote>
+那张很强的啊，除了tiny star还有小百合的未来预报，又是星第一张插曲
+
