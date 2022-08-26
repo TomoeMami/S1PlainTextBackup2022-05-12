@@ -5724,3 +5724,54 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 这么说吧，掉4个人跟洗澡的时候掉一根汗毛一个量级<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。最近不是在补7月落下的工作+8月原有的工作么，几乎不怎么露面，但粉丝活跃度和黏度还是很稳定，没啥值得在意的。
 
+
+
+*****
+
+####  Enakina  
+##### 3552#       发表于 2022-8-26 11:05
+
+ 本帖最后由 Enakina 于 2022-8-26 11:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57219868&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-26 07:42</a>
+看到评论说还和签名有关？这又是怎么了
+
+编辑：我就说好像没听到这方面的消息啊，没事就好 ...</blockquote>
+我还以为啥呢，还特意找找，就这<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，还想去5厕发个帖求门路的，自己去学日语啊，给我整乐了
+
+*****
+
+####  仟音一心  
+##### 3553#       发表于 2022-8-26 11:07
+
+あs老师的夏美赚money记，翻译嵌字：洲崎惠梨
+
+8172f224b899a901c3e5ffeb58950a7b0008f5da.jpg
+(267.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/26/110739tifc29i9h9hehuue.jpg" referrerpolicy="no-referrer">
+
+aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
+(286.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-26 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202208/26/110811a3439hub3532vqhb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3554#       发表于 2022-8-26 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57222086&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-26 11:07</a>
+
+あs老师的夏美赚money记，翻译嵌字：洲崎惠梨</blockquote>
+也是一种mamalive笑。
+
+金发猎人果断出手可还行。
+
