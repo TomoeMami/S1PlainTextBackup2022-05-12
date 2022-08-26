@@ -6226,3 +6226,18 @@ BV1sa41157R4
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 3596#       发表于 2022-8-26 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57229614&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-26 21:58</a>
+又节食又训练的。。。这个身体到底怎么进行健康管理的。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的  ...</blockquote>
+谁说节食的？没人说节食啊。太忙了没吃东西而已啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
