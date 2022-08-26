@@ -7080,3 +7080,19 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 总结下来水妹池 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  UNISONIA  
+##### 2127#       发表于 2022-8-26 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57217487&amp;ptid=2084912" target="_blank">Lamas 发表于 2022-8-25 20:29</a>
+
+抽了个一宝水魔总 有吊大的说一下能用吗
+
+感觉二破好瑟</blockquote>
+现在开被动+wrba基本算是村正+wcab体系的平替了，一宝打打克制还是不错的。比起村正优势是T2往后的产星充足，比起夏露露的优势是2红更契合暴击思路+自身暴击支援技能也更完备
+
+一宝开个被动需要6绊
+
