@@ -5506,3 +5506,15 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 看到评论说还和签名有关？这又是怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3531#       发表于 2022-8-26 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57219868&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-26 07:42</a>
+
+看到评论说还和签名有关？这又是怎么了</blockquote>
+那是啥谜语人行为，不知所云<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
