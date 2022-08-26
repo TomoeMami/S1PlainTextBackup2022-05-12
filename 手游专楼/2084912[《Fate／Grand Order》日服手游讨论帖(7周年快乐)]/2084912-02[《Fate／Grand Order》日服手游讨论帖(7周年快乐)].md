@@ -7049,3 +7049,34 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 好奇你游从自建到能3t90级周回需要多久 ...</blockquote>
 现在自建使劲氪把女梅林水伊吹抽满，拿个二世，然后疯狂赶主线进度喂起来抱术呆加换人打333，是不是就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2124#       发表于 2022-8-26 09:45
+
+现在石头号入坑也是有点尴尬的（同期能抽的卡的广度不如去年的七月、八月，去年石头号还特便宜）
+
+等到rts2.6那肝出来备战2.7的肝度也太高了。虽然打主线现在除了几个卡助战的基本也不需要自出打手吧
+
+*****
+
+####  霧谷藤乃  
+##### 2125#       发表于 2022-8-26 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">砸锅卖铁（误）又界凸了几个角色终于单抽出了宇津见2宝，水伊吹居然也来了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总结下来水妹池13发11连，伊吹也是13发11连，只有斯卡蒂用了10发11连，还是斯卡蒂对我好。至此石头护符全归零，重新攒石
+
+*****
+
+####  qixinno2  
+##### 2126#       发表于 2022-8-26 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221039&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-26 09:45</a>
+
+砸锅卖铁（误）又界凸了几个角色终于单抽出了宇津见2宝，水伊吹居然也来了。
+
+总结下来水妹池 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
