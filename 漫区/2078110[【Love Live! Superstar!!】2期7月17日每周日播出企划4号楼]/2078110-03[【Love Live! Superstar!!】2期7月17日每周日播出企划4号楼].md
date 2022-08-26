@@ -6072,3 +6072,22 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 所以档期安排那么满，管人是来干嘛的，</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是吔屎赶不上热乎
 
+
+
+*****
+
+####  ads147147  
+##### 3583#       发表于 2022-8-26 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225939&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-26 16:46</a>
+
+所以档期安排那么满，管人是来干嘛的，</blockquote>
+大企划下的小分支经常吃雪也赶不上热乎，很正常。我还是觉得这个企划是给老前辈回来出演用的。
+
+*****
+
+####  cybernetics31  
+##### 3584#       发表于 2022-8-26 16:53
+
+一巡才知道的话只能说运营垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鱼这么写也没错啊，粉丝那时候哪知道会被背刺啊，特别是一巡这么一波看下来的粉
+
