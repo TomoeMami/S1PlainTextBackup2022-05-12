@@ -5579,3 +5579,17 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
  小星星现在依然是星团销量最高的CD</blockquote>
 那张很强的啊，除了tiny star还有小百合的未来预报，又是星第一张插曲
 
+
+
+*****
+
+####  ViyViy  
+##### 3538#       发表于 2022-8-26 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57220569&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-26 09:02</a>
+
+可能还是太急了吧，才隔一年就出第二季，能对角色有什么深刻理解呢………临时想改都来不及
+
+但烂成 ...</blockquote>
+就是不上心，新四人你说时间紧拿捏不好可以勉强接受，老五人角色呢？我看现在企划最恨前三集，毕竟后面的“烂”都是前三集衬托出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
