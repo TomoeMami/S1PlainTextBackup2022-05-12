@@ -6256,3 +6256,18 @@ BV1sa41157R4
 
 没节食，别乱想<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">肯定不止就喝了杯东西，她说了有吃东西，而且是特意补充说的
 
+
+
+*****
+
+####  ads147147  
+##### 3598#       发表于 2022-8-27 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57230067&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-8-26 23:17</a>
+谁说节食的？没人说节食啊。太忙了没吃东西而已啊
+
+—— 来自 S1Fun</blockquote>
+我理解错了，还以为说就喝了一杯柠檬茶。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
