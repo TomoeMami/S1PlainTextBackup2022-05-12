@@ -6013,3 +6013,22 @@ aad9183b5bb5c9eadc23a73e9039b60038f3b3da.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“五人の绊”这种事  加人这事一出楼友不就发散过了 你鲤鱼姐烤肉回都聊的成员 根本没提裂拉
 
+
+
+*****
+
+####  starring  
+##### 3577#       发表于 2022-8-26 16:04
+
+一巡的场刊还写满五人这些字眼，2nd的场刊已经找不到这两个字，看得我都觉得五老星也被运行背刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 3578#       发表于 2022-8-26 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57225171&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-26 15:44</a>
+
+感觉再深究下去就要变成黑屁了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实没必要说太多了
+
