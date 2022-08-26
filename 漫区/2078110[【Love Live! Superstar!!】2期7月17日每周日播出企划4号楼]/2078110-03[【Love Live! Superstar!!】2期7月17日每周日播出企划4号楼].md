@@ -5715,3 +5715,12 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  老1.5  
+##### 3551#       发表于 2022-8-26 11:00
+
+这么说吧，掉4个人跟洗澡的时候掉一根汗毛一个量级<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。最近不是在补7月落下的工作+8月原有的工作么，几乎不怎么露面，但粉丝活跃度和黏度还是很稳定，没啥值得在意的。
+
