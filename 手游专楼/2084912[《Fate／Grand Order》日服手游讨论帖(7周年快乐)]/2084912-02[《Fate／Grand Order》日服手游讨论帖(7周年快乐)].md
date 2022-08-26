@@ -7108,3 +7108,14 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 欧 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是一宝只能说正常亚洲人吧
 
+
+
+*****
+
+####  poor  
+##### 2129#       发表于 2022-8-26 10:11
+
+隔壁嘴上这么敌视初始号，感觉全是叔叔的任务
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
