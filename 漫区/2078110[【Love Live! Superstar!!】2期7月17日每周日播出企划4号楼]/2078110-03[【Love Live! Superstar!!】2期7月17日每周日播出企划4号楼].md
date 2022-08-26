@@ -5547,3 +5547,17 @@ gachi粉很多的打铁最近带照片的推文点赞都没有过万，然后是
 
 重温了最初九人的fmt，壁咚那段真的笑死了，氛围又好，角色感觉又到位，很难想象接下里的动画居然是这样一副地狱景象。
 
+
+
+*****
+
+####  Kfly  
+##### 3535#       发表于 2022-8-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57220311&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-26 08:42</a>
+你说有四位数的变化也就算了，四个人
+
+说真的，2期这东西对新人影响还是比较大的，但是对于老5人来 ...</blockquote>
+可能还是太急了吧，才隔一年就出第二季，能对角色有什么深刻理解呢………临时想改都来不及<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+但烂成这样，不上心才是主要原因，剧情安排就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
