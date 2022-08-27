@@ -8211,3 +8211,27 @@ koyo的rust企划在30号周二
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了这下明天FF直播绝对没有了
 
+
+
+*****
+
+####  rs5621  
+##### 805#       发表于 2022-8-27 17:23
+
+<img src="https://img.saraba1st.com/forum/202208/27/172343elt28ffiv9m1fr8t.png" referrerpolicy="no-referrer">
+
+<strong>G%(U${2]})~4XJ95`S5_[7F.PNG</strong> (180.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-27 17:23 上传
+
+这封面，搞得这么瑟情，今晚两人要决战到天亮了
+
+*****
+
+####  holoan  
+##### 806#         楼主| 发表于 2022-8-27 17:27
+
+要搞什么就不知道了，看上去不准备播游戏
+
