@@ -8247,3 +8247,14 @@ koyo的rust企划在30号周二
 大家想问的事情/话题 募集中▽
 [链接](https://t.co/FTjgpEwtJk)
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 808#       发表于 2022-8-27 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄油味太冲了
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
