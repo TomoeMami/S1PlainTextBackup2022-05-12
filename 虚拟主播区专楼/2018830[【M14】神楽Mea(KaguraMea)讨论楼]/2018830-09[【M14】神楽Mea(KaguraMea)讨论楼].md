@@ -3387,3 +3387,14 @@ b博感言
 我呃呃怎么还带公开处刑的，我只是嫌你描一遍好麻烦啊，大哥我错了下次再也不嫌弃了（ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">不行，再画一张出来，要黑丝手套的
 
+
+
+*****
+
+####  病態極端  
+##### 12356#       发表于 2022-8-27 11:44
+
+<img src="https://p.sda1.dev/6/67460c0c7779a74ff7cb4e70133a737d/opai.png" referrerpolicy="no-referrer">
+
+這圖什麼梗？
+
