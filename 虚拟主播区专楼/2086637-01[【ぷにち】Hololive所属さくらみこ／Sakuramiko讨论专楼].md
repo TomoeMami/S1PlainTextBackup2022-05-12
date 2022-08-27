@@ -8578,3 +8578,21 @@ miko刚才那段呼吸真是不得了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画师夹带私货
 
+
+
+*****
+
+####  holoan  
+##### 836#         楼主| 发表于 2022-8-28 00:43
+
+这个人画的已经不是第一张了
+
+miko以前rt过
+
+*****
+
+####  rs5621  
+##### 837#       发表于 2022-8-28 00:47
+
+被miko拿了当过封面,不过私货部分好像没截进去
+
