@@ -525,3 +525,14 @@ IG啊，能有以前漫画宣传PV那质量我就满足了～
 设定挺有想象力的，但是故事情节明明挺狂的，看了却只给人一种”哦，知道了“的感觉，缺少冲击力。 ...</blockquote>
 确实是有点平淡，不如外天楼那种看着看着突然shock到的感觉。
 
+
+
+*****
+
+####  古桥一浩  
+##### 64#       发表于 2022-8-27 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/008.png" referrerpolicy="no-referrer">女仆咖啡厅也续一下呗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
