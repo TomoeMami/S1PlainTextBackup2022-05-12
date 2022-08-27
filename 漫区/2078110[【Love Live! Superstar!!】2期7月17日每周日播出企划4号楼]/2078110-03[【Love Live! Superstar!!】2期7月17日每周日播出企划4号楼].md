@@ -6316,3 +6316,21 @@ talk吗
 
 当初加人就注定会这样了。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3603#       发表于 2022-8-27 09:30
+
+五老星都挺能吃的，练的狠吃得多，不是还挺健康的吗，大概不用过多担心
+
+*****
+
+####  lj205  
+##### 3604#       发表于 2022-8-27 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57230716&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-8-27 00:49</a>
+talk吗</blockquote>
+是的
+
