@@ -6425,3 +6425,12 @@ sayu的抽签
 为啥不安排参加asl呢</blockquote>
 好像好久都没上了吧，不知道是不是因为割裂了武士道<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 3612#       发表于 2022-8-27 19:14
+
+转播的弹幕一如既往没眼看，号主也像个死人跟他说加几个房管也没反应。
+
