@@ -6334,3 +6334,22 @@ talk吗
 talk吗</blockquote>
 是的
 
+
+
+*****
+
+####  Kfly  
+##### 3605#       发表于 2022-8-27 10:49
+
+sayu的抽签
+
+《半吉》<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/27/104816y1nx9rrftory64r3.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ8p06-hy4lK2bT3cSsg-fh.jpg</strong> (86.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-27 10:48 上传
+
