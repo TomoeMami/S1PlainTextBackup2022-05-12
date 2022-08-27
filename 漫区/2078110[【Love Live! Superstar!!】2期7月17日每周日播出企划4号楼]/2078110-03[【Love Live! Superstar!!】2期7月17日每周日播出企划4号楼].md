@@ -6381,3 +6381,14 @@ sayu的抽签
 《半吉》</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">sayu需要大吉
 
+
+
+*****
+
+####  iuhehc  
+##### 3608#       发表于 2022-8-27 13:04
+
+这种算吉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
