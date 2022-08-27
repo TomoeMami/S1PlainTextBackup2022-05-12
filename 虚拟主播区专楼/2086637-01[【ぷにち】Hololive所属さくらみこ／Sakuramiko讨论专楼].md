@@ -8104,3 +8104,16 @@ pose完全不搭
 
 本来看ffx的也没几个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">即便有抱怨的也没几个
 
+
+
+*****
+
+####  holoan  
+##### 794#         楼主| 发表于 2022-8-27 12:53
+
+<blockquote>名前：名无し＠18歳未満の入场禁止 无断転载禁止[sage] 投稿日：2022/08/27(土) 13:49:41.91 ID:m3xUaC5B0 [5/4]
+
+なんでこいつFF10配信ぶっちしてんのに
+
+マイクラですらなくRUSTにいるんだ？？ </blockquote>
+
