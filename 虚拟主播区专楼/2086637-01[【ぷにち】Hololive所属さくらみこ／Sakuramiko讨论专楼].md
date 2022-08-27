@@ -8596,3 +8596,33 @@ miko以前rt过
 
 被miko拿了当过封面,不过私货部分好像没截进去
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 838#       发表于 2022-8-28 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天这个时长太短，感觉像因为别的事留宿顺便搞搞直播的样子
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  holoan  
+##### 839#         楼主| 发表于 2022-8-28 01:04
+
+别的事？
+
+*****
+
+####  mqnwbeebwnqm  
+##### 840#       发表于 2022-8-28 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57242049&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-28 01:04</a>
+别的事？</blockquote>
+谁知道呢，就为了这不到一小时的闲聊专门留宿效费比也太差了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从这个层面说反而很不商业
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
