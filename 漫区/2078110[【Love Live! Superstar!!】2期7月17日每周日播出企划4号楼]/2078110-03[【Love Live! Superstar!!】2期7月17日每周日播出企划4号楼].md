@@ -6353,3 +6353,17 @@ sayu的抽签
 
 2022-8-27 10:48 上传
 
+
+
+*****
+
+####  adw667  
+##### 3606#       发表于 2022-8-27 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57232709&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-27 10:49</a>
+
+sayu的抽签
+
+《半吉》</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能半吉？我想看大凶
+
