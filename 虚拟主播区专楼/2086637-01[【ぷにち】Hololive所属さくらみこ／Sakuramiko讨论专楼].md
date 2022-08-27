@@ -8296,3 +8296,21 @@ koyo的rust企划在30号周二
 
 什么时候偷学了煮饭技术
 
+
+
+*****
+
+####  rs5621  
+##### 812#       发表于 2022-8-27 21:49
+
+哎，20年圣诞节兔子来留宿，第二天的早饭不就是她做的么，还以为会啊。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 813#         楼主| 发表于 2022-8-27 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屡次料理直播只让人感觉做起来很不上手
+
