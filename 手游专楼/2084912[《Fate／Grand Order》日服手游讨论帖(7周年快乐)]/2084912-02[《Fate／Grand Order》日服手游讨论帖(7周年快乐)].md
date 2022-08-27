@@ -7132,3 +7132,218 @@ RBA自己主手是个合格的绿光炮啊，就是回收刀了一点而已
 总结下来水妹池 ...</blockquote>
 欧羡慕
 
+
+
+*****
+
+####  alucardcz  
+##### 2131#       发表于 2022-8-26 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57221039&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-26 09:45</a>
+
+砸锅卖铁（误）又界凸了几个角色终于单抽出了宇津见2宝，水伊吹居然也来了。
+
+总结下来水妹池 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 看看萌新什么都没有  以后欧洲人的称号就是你的了
+
+*****
+
+####  霧谷藤乃  
+##### 2132#       发表于 2022-8-26 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57224406&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-26 14:41</a>
+
+欧 羡慕 看看萌新什么都没有  以后欧洲人的称号就是你的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强行脱亚入欧是吧
+
+*****
+
+####  alucardcz  
+##### 2133#       发表于 2022-8-26 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57224928&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-26 15:23</a>
+
+强行脱亚入欧是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜师傅刚刚出了30羁绊石 丢下去无事发生 连个4星都没有 欧还是你欧
+
+*****
+
+####  alucardcz  
+##### 2134#       发表于 2022-8-26 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bgo那几张战斗图是认真的吗。。就算真要和谐也没必要这么敷衍吧
+
+*****
+
+####  霧谷藤乃  
+##### 2135#       发表于 2022-8-26 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经是手游史上奇观了吧，就这样还顽强苟活，看来我小瞧他B和新生代二次元的韧性（？）了！
+
+*****
+
+####  保罗赫伯特  
+##### 2136#       发表于 2022-8-26 20:58
+
+能感觉到，最近日服的好友申请变多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 2137#       发表于 2022-8-26 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早劝过了.该溜的都溜了
+
+剩下的都是不撞南墙不回头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 2138#       发表于 2022-8-26 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？原来主界面小地球都给和谐没了？
+
+*****
+
+####  angelooo  
+##### 2139#       发表于 2022-8-26 21:14
+
+bgo的人理已经毁灭了呀，迫真异闻带23333
+
+*****
+
+####  千叶铁矢  
+##### 2140#       发表于 2022-8-26 21:15
+
+爆笑，连地球仪都和谐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2141#       发表于 2022-8-26 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57228916&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-26 21:11</a>
+
+啊？原来主界面小地球都给和谐没了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人理寄了
+
+*****
+
+####  onemoment  
+##### 2142#       发表于 2022-8-26 23:15
+
+地球和谐看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 2143#       发表于 2022-8-27 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁也别笑谁，我敢打赌日服乱来一套照样氪佬照氪不误，早就提纯了好吧
+
+*****
+
+####  保罗赫伯特  
+##### 2144#       发表于 2022-8-27 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57230860&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-27 01:14</a>
+
+谁也别笑谁，我敢打赌日服乱来一套照样氪佬照氪不误，早就提纯了好吧 ...</blockquote>
+但是日服不会这么搞啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 2145#       发表于 2022-8-27 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57231034&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-08-27 01:57:05</a>
+但是日服不会这么搞啊</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以搞lgbt，不过你游的寿命可能等不到就是了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  霧谷藤乃  
+##### 2146#       发表于 2022-8-27 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿福：LGBT的任务我已经完成了呀
+
+*****
+
+####  rooarr  
+##### 2147#       发表于 2022-8-27 09:36
+
+bgo怎么又和谐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 2148#       发表于 2022-8-27 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57232126&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-27 09:36</a>
+bgo怎么又和谐看来可以清理一下好友重新加几个了</blockquote>
+说是去日服，能坚持下去的又有几个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 2149#       发表于 2022-8-27 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57231787&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-27 08:40</a>
+
+可以搞lgbt，不过你游的寿命可能等不到就是了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+是说摩根·勒菲和亚瑟王（♀）女女生子（♀）吗？
+
+*****
+
+####  exiaexa  
+##### 2150#       发表于 2022-8-27 13:12
+
+看不懂日语还要强玩日服是一种非常折磨的体验，不管是对自己还是对周围的人
+
+最典型的就是日服吧和futa吧每次剧情讨论，你都不知道对面是看的还是云的，云对了还是云错了
+
+最傻逼的是还有人拿着鸡毛当令箭的，撕逼的时候告诉你"xxx都说了xxx"，瞬间血压暴涨恨不得给他两耳刮子
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  都谷捻柏  
+##### 2151#       发表于 2022-8-27 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不知道那我也无话可说了
+
+*****
+
+####  katun  
+##### 2152#       发表于 2022-8-27 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57235135&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-27 15:20</a>
+
+LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不知道那我也无话可说了 ...</blockquote>
+画女硬说男追溯到漫画诞生甚至神话时期都行，跟lgbt有个啥关系，别学到个词就乱用好么
+
+*****
+
+####  都谷捻柏  
+##### 2153#       发表于 2022-8-27 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57237334&amp;ptid=2084912" target="_blank">katun 发表于 2022-8-27 19:02</a>
+
+画女硬说男追溯到漫画诞生甚至神话时期都行，跟lgbt有个啥关系，别学到个词就乱用好么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我觉得这两者有关系还是别人觉得有关系建议你仔细看看回复内容
+
+*****
+
+####  katun  
+##### 2154#       发表于 2022-8-27 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57237471&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-27 19:13</a>
+
+是我觉得这两者有关系还是别人觉得有关系建议你仔细看看回复内容</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要看回复的是你吧，“别人”是谁？你的背后灵吗
+

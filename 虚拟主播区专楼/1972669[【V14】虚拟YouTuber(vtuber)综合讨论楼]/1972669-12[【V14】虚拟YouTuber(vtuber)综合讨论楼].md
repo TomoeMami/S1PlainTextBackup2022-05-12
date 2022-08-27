@@ -7024,3 +7024,93 @@ syl 根据前面楼友说的名字，搜了下她的推特，简介上写的:APE
 
 虽然集美掐的有点低端，有点负反馈还是能让主包观众耗子尾汁点。全肯定捧上天了最后养出来混子白眼狼单飞跑路的事大家也没少见
 
+
+
+*****
+
+####  Suny08  
+##### 17145#       发表于 2022-8-26 16:43
+
+Konami这pwpr合作这么深入，其他游戏也多来点啊
+
+*****
+
+####  lhawp  
+##### 17146#       发表于 2022-8-26 18:24
+
+今年虹甲的pomu太惨了，每次出场都大炎上
+
+*****
+
+####  SuntoryNomu  
+##### 17147#       发表于 2022-8-26 19:52
+
+<img src="https://img.saraba1st.com/forum/202208/26/194845b7so7va4rvs7bobo.jpg" referrerpolicy="no-referrer">
+
+虚拟主播的真实工商
+
+*****
+
+####  NBXX  
+##### 17148#       发表于 2022-8-26 20:11
+
+<img src="https://p.sda1.dev/6/73e2984cd4868d8ef3ee5dc8c6dea1dc/078X@@L~4F0`RL8~_T4WE~L.png" referrerpolicy="no-referrer">
+
+菩提 ASMR视频转移到了专用的频道
+
+*****
+
+####  fastary  
+##### 17149#       发表于 2022-8-27 10:35
+
+ 本帖最后由 fastary 于 2022-8-27 11:11 编辑 
+
+虽然料想到了大buff加成的黛灰会是虹甲mvp，但是没想到居然好多人因此骂黛观众和火畜<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+把锅全扣到火畜和黛观众不认真投票上是否有点，既然mvp当之无愧是月之那其他70%左右没投她的人也都该骂吧<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+都是你们这群非要在奇怪的地方较真的厄介阴湿htj你虹才会变成现在这样啦！然后又要骂虹变得无聊了是吧！
+
+*****
+
+####  wuzhengkai  
+##### 17150#       发表于 2022-8-27 12:11
+
+rosemi新衣服换画师了啊是画西西军服的 难怪一个味
+
+*****
+
+####  dclara1  
+##### 17151#       发表于 2022-8-27 14:24
+
+玫瑰人获得boin boin buff
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  rzrbtk  
+##### 17152#       发表于 2022-8-27 15:46
+
+刷推看到enna对着fuu的b限大喊我们爱你（口音版）的视频，有一种微妙的东南亚姐妹接机内娱偶像的既视感...
+
+不过说实话，fuu真的可以考虑一下深耕b站啊，潜力不在当年lize之下
+
+*****
+
+####  alcoholic1000  
+##### 17153#       发表于 2022-8-27 17:13
+
+感觉fulgur精神安定程度吊锤本社到en的八成小年轻
+
+而且太战狼了，国动婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17154#       发表于 2022-8-27 17:28
+
+偶尔去en楼瞄到一眼fulgur的repo，太哈人了
+
+给我一种纯种国女性转的感觉
+
