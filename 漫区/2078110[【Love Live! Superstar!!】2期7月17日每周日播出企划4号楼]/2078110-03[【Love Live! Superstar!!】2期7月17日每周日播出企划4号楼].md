@@ -6404,3 +6404,12 @@ sayu的抽签
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 3610#       发表于 2022-8-27 17:07
+
+为啥不安排参加asl呢
+
