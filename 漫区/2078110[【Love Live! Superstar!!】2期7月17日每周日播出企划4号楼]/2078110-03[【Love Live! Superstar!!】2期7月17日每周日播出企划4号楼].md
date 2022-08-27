@@ -6392,3 +6392,15 @@ sayu的抽签
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 3609#       发表于 2022-8-27 16:12
+
+往好了说，前途坎坷但是也可以克服，好事多磨。
+往坏了说，不如先去吧花田京极这两个逆贼宰了吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
