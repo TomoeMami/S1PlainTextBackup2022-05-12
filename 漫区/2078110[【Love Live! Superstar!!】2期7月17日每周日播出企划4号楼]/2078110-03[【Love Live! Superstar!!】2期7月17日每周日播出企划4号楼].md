@@ -6413,3 +6413,15 @@ sayu的抽签
 
 为啥不安排参加asl呢
 
+
+
+*****
+
+####  靡宜  
+##### 3611#       发表于 2022-8-27 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57236115&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-27 17:07</a>
+
+为啥不安排参加asl呢</blockquote>
+好像好久都没上了吧，不知道是不是因为割裂了武士道<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
