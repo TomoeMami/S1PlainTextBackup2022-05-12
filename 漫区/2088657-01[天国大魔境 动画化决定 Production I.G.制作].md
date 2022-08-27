@@ -545,3 +545,14 @@ IG啊，能有以前漫画宣传PV那质量我就满足了～
 
 小说pv的氛围感深入我心，不知道能不能还原出来了
 
+
+
+*****
+
+####  clamp07830  
+##### 66#       发表于 2022-8-28 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57198837&amp;ptid=2088657" target="_blank">仟音一心 发表于 2022-8-24 14:10</a>
+想看《外天楼》动画化</blockquote>
+问新房
+
