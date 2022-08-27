@@ -8084,3 +8084,14 @@ pose完全不搭
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 792#       发表于 2022-8-27 11:19
+
+推特评论区一眼望去，都是全肯定民
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
