@@ -8258,3 +8258,30 @@ koyo的rust企划在30号周二
 
 —— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  holoan  
+##### 809#         楼主| 发表于 2022-8-27 20:47
+
+<blockquote>名前：名无し＠18歳未満の入场禁止 无断転载禁止[sage] 投稿日：2022/08/27(土) 21:46:40.47 ID:DA8pLExd0 [5/5]
+
+だんご大家族はみこちのピアノ弾きながらのやつが最质</blockquote>
+好像说过新家把钢琴也搬过来了？
+
+*****
+
+####  holoan  
+##### 810#         楼主| 发表于 2022-8-27 20:51
+
+<img src="https://img.saraba1st.com/forum/202208/27/205140tkkkkdd0qiuizrvo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-27 20:51 上传
+
+度日如年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
