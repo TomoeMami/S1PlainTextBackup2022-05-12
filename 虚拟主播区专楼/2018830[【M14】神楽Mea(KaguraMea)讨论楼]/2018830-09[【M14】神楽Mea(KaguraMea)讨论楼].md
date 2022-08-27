@@ -3376,3 +3376,14 @@ b博感言
 
 我呃呃怎么还带公开处刑的，我只是嫌你描一遍好麻烦啊，大哥我错了下次再也不嫌弃了（
 
+
+
+*****
+
+####  千里夜雨  
+##### 12355#       发表于 2022-8-27 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57232146&amp;ptid=2018830" target="_blank">zaz5554 发表于 2022-8-27 09:38</a>
+我呃呃怎么还带公开处刑的，我只是嫌你描一遍好麻烦啊，大哥我错了下次再也不嫌弃了（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">不行，再画一张出来，要黑丝手套的
+
