@@ -7114,3 +7114,28 @@ rosemi新衣服换画师了啊是画西西军服的 难怪一个味
 
 给我一种纯种国女性转的感觉
 
+
+
+*****
+
+####  Ketestrait  
+##### 17155#       发表于 2022-8-27 22:48
+
+这次国际接力歌会整了不少国际合唱挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 17156#       发表于 2022-8-27 23:05
+
+跌丝袜这歌唱的......没有技巧，全是感情！
+
+*****
+
+####  IL282  
+##### 17157#       发表于 2022-8-27 23:05
+
+莎小姐你这个画风和别人差别有点大啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
