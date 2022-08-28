@@ -7749,3 +7749,12 @@ no game no lovelive
 
 星动画这些细节是真经不起推敲，剧情本身也有很多强行的地方，最好还是放过自己别去细想比较好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3738#       发表于 2022-8-28 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都台词直接甩脸上了哪还用细想 不过这其实一点都不重要 我只是想说后面那句
+
