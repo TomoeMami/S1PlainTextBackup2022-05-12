@@ -7375,3 +7375,12 @@ LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒无所谓，也没怎么区分，这几天新加我的基本都通过了
 
+
+
+*****
+
+####  里村紅葉  
+##### 2158#       发表于 2022-8-28 13:42
+
+BGO过来的可能还不知道不用加好友也能用宝具的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
