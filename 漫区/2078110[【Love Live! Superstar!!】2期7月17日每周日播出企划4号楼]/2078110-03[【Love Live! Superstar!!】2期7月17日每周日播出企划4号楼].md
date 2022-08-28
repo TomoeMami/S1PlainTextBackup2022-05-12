@@ -7713,3 +7713,23 @@ no game no lovelive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 合着这一年多恋都是一个人在干学生会的工作  这玩砸了的效果也太强了
 
+
+
+*****
+
+####  ads147147  
+##### 3734#       发表于 2022-8-28 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57252956&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-28 22:06</a>
+不是 合着这一年多恋都是一个人在干学生会的工作  这玩砸了的效果也太强了 ...</blockquote>
+说实话，一期就几个班，百来人不到，真一个人管也不奇怪，问题是理事长还真敢就让恋恋一个人管，再怎么闺蜜女儿也不至于这样。二期就更诡异了，看时间线可能都暑假都过了，学生会早就到招人的时候，然后音乐班普通班的加起来是不是两百多人了，连个书记财务想参与的都没有，香音这个副会长一加入差不多可以说偶像部就是学生会，彻底架空整个学校管理层，影子理事长了属于。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 3735#       发表于 2022-8-28 22:19
+
+星二就别细想了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

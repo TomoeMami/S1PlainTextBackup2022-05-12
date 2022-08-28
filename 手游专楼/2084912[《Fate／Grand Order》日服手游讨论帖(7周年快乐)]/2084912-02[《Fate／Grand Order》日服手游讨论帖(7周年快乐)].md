@@ -7503,3 +7503,17 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 他们不会真觉得号贩子一天成百上千的卖号会没事干来找回吧
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2171#       发表于 2022-8-28 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57252463&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-28 21:37</a>
+
+我一直不理解隔壁为什么妖魔化初始号，不用打剧情+有关键拐+几千石头
+
+自建屁都没有还要从头打又臭又长的剧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能，他们只是不想看到别人爽
+
