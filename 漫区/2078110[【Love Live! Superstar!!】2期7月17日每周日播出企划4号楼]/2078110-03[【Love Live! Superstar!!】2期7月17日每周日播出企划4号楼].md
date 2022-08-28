@@ -7772,3 +7772,20 @@ no game no lovelive
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 ...</blockquote>
 那恋恋是不是有个姐姐叫<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3740#       发表于 2022-8-28 22:55
+
+ 本帖最后由 ads147147 于 2022-8-28 22:58 编辑 
+
+别的细节应该是玩笑，不过下集预告里出现其他学校的制服，大概率是学校公开参观日这样的活动了（虽然我很奇怪为什么不是校园祭的时候一起做。）加上奶了那么久的vn，第八集总归是要来的吧，加上第八集有live的可能，展现9人不是cjb的时候到了。
+
+而且时间跨度飞快，已经是长袖秋装了，差不多都到10月左右了吧，11月的9，10集追飞机，12月可能就是圣诞节拉拉大赛。真的是赶的饭都吃不上。
+
+<img src="https://p.sda1.dev/7/cef8a91599f9133a43ae2f0bed0a8c58/-5e42d00708e38429.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
