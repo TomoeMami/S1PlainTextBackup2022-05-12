@@ -8881,3 +8881,12 @@ HP属性和时间轴都会看了 ...</blockquote>
 
 有手办厨表示对这次popup的出品质量和价格区间非常满意
 
+
+
+*****
+
+####  rs5621  
+##### 864#       发表于 2022-8-28 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发推了，鬼屋没做完，rust还要维护，今晚电影还选3个多小时的，不舍弃点东西可搞不完
+
