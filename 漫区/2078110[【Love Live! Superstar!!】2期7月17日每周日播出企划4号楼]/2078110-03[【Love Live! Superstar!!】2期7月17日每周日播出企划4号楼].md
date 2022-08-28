@@ -7578,3 +7578,41 @@ CelticWhite
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 3722#       发表于 2022-8-28 20:24
+
+这集貌出现了学校的行程表，恋恋回这会儿已经是9月中了，下一集10月。难道真就如同第一集说的，真的又留一年？毕竟我这小脑子不理解11月12月回到中国接入学习能干什么锤子，你以为它花田在第五层，实际上它在地下室。12话比赛后可可无论结果不辞而别的几率急剧上升<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3723#       发表于 2022-8-28 20:27
+
+感谢收看第7话💫
+
+我很开心见到恋新的一面☕️
+
+看见大家大家对游戏充满热情真是太可爱了💓☺️
+
+#lovelive #Liella 
+
+<img src="https://img.saraba1st.com/forum/202208/28/202729nnh6j2rnfi0ib2if.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E6566EAF-183A-40C3-A998-F68696720D62.jpeg</strong> (152.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 20:27 上传
+
+*****
+
+####  GGnob  
+##### 3724#       发表于 2022-8-28 20:28
+
+同好会也才安插了两个学生会长，外加在学生会里发展了几个粉丝来暗中控制虹咲，现在结丘学生会就恋一个会长，香音当上副会长后其他人也来学生会帮忙，偶像部学生会事实合并，香音这是想明着掌控结丘啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

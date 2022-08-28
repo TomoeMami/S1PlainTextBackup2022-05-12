@@ -7432,3 +7432,14 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被封的有什么特别的地方吗
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2164#       发表于 2022-8-28 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同问，有什么vip标识吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
