@@ -6578,3 +6578,15 @@ sayu的抽签
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 3628#       发表于 2022-8-28 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57243660&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-28 09:44</a>
+
+扫了一遍水动画，当年还一堆弹幕说如果有奇迹，那一定是九人。那么到底是为什么可可说9就是传奇学院偶像会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">我房子在未来如风，他有本事就给这首也出9人版的
+
