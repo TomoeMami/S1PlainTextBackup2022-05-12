@@ -7292,3 +7292,59 @@ TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新�
 我还是等熟肉吧，目前有点迷糊的是学生会工作和沉迷游戏间的关系……？</blockquote>
 根本没有关系，其他人误以为恋恋看起来没有精神是学生会工作太忙了，但实际上是恋恋新入坑玩游戏上头了
 
+
+
+*****
+
+####  JustW_3  
+##### 3700#       发表于 2022-8-28 18:32
+
+红蓝浓度倒是已经爆表了）之前这企划有直球抛出女女交往恋爱梗吗
+
+*****
+
+####  GGnob  
+##### 3701#       发表于 2022-8-28 18:32
+
+至少这集红蓝很甜，磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CharlieZ-  
+##### 3702#       发表于 2022-8-28 18:35
+
+这话播完这动画已经算没救了吧，烂完了，好消息是有机会争夺年度最烂动画
+
+*****
+
+####  qratosone  
+##### 3703#       发表于 2022-8-28 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249499&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-8-28 18:29</a>
+
+这还不是香音传啊，非要撞到恋打游戏的是她才行吗，前面已经差不多集集都这样了，他把香音换成小千可堇任 ...</blockquote>
+那你的意思是以后直接没这个人比较合适？
+
+*****
+
+####  adw667  
+##### 3704#       发表于 2022-8-28 18:37
+
+我寻思你们喜欢打游戏就不能找老任公关一下做9个健身环进去吗，又能练体能又能打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3705#       发表于 2022-8-28 18:38
+
+我又准时出现了，恋厨们满意吗？第一季有专场第二季还有专场
+
+*****
+
+####  adw667  
+##### 3706#       发表于 2022-8-28 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249590&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:35</a>
+那你的意思是以后直接没这个人比较合适？</blockquote>
+大香老师截胡拿人头的操作太多了以至于现在一看到她参团就觉得她又要截胡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
