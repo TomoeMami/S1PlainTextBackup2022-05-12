@@ -7030,3 +7030,265 @@ s1e7的恋回其实很有趣的，惯例跟踪，打闹，狗狗舔，俗且有�
 
 2022-8-28 18:22 上传
 
+
+
+*****
+
+####  ads147147  
+##### 3676#       发表于 2022-8-28 18:23
+
+烂活不至于，但是梗很烂，用的也很过猛，感觉这集nico上的评分，不会好转的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3677#       发表于 2022-8-28 18:23
+
+采访一下看完本集的恋厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3678#       发表于 2022-8-28 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249379&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-28 18:23</a>
+采访一下看完本集的恋厨</blockquote>
+不如，我还是粉青山姐吧，外星人比游戏废人好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 3679#       发表于 2022-8-28 18:24
+
+本集主旨：不要一个人打游戏，要多人游戏（×）
+
+正经说，这集并不坏。红蓝发糖，可堇正常了点，欢乐日常凑活，中规中矩团建。恋这个设定加上去合适不合适，见仁见智。但香音真的……我感觉自己心态已经出问题了。
+
+*****
+
+####  qratosone  
+##### 3680#       发表于 2022-8-28 18:24
+
+u1s1，花田这不是能写队内交流么
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3681#       发表于 2022-8-28 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下周休刊！
+
+*****
+
+####  阿姆罗二世  
+##### 3682#       发表于 2022-8-28 18:25
+
+大香老师真是
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 3683#       发表于 2022-8-28 18:26
+
+预告看不出什么东西，标题还是卡农读的，下回香老师才要开始发功了吧，前面都是小菜
+
+*****
+
+####  离心  
+##### 3684#       发表于 2022-8-28 18:26
+
+不评价其他的，在乐子方面还是很有乐子的
+
+*****
+
+####  qratosone  
+##### 3685#       发表于 2022-8-28 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249393&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-28 18:24</a>
+
+本集主旨：不要一个人打游戏，要多人游戏（×）
+
+正经说，这集并不坏。红蓝发糖，可堇正常了点，欢乐日常凑 ...</blockquote>
+严格意义上这集明显不属于香音传，问题的解决实际上基本没有香音啥事，然后恋的设定跟之前的铺垫也是吻合的。
+
+*****
+
+####  阿姆罗二世  
+##### 3686#       发表于 2022-8-28 18:26
+
+马上精神攻击打爆薇恩
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 3687#       发表于 2022-8-28 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249394&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:24</a>
+u1s1，花田这不是能写队内交流么</blockquote>
+这种对内交流，更像是梁山了，各说各的，平时还哥哥弟弟的，到时候还是分山头分阶级。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  1096beam  
+##### 3688#       发表于 2022-8-28 18:27
+
+不得不说，今年笑得最开心的一集动画
+
+*****
+
+####  adw667  
+##### 3689#       发表于 2022-8-28 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249446&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:26</a>
+严格意义上这集明显不属于香音传，问题的解决实际上基本没有香音啥事，然后恋的设定跟之前的铺垫也是吻合 ...</blockquote>
+香音：不要慌，我只是来蹭个助攻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 3690#       发表于 2022-8-28 18:28
+
+ 本帖最后由 JustW_3 于 2022-8-28 18:30 编辑 
+<blockquote>qratosone 发表于 2022-8-28 18:26
+严格意义上这集明显不属于香音传，问题的解决实际上基本没有香音啥事，然后恋的设定跟之前的铺垫也是吻合 ...</blockquote>
+但之前连当部长都缩卵的香音，这集直接掏出钦定的副会长任命书，虽然能理解出发点是帮恋减压，但观感实在是……只能说我脑子里以往的印象已经难以扭转了
+
+大家猜测恋学生会事情太多→只有香音决定当副会长从旁辅之
+
+香音当副会长→全偶像部出动挤满学生会室
+
+
+
+*****
+
+####  Piano-Forest  
+##### 3691#       发表于 2022-8-28 18:29
+
+第八话「Chance Way」9月11日播出
+
+TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新型コロナウイルスの感染拡大の影响により制作スケジュールの変更が生じたため9/11(日)に放送します。
+
+9/4(日)は18时半から「スペシャル朗読动画＆TVアニメ2期第1话～第7话振り返り配信」をYouTubeにてお届けします！
+
+*****
+
+####  adw667  
+##### 3692#       发表于 2022-8-28 18:29
+
+不愧是教育台黄金时段的动画，很有教育意义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3693#       发表于 2022-8-28 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249446&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:26</a>
+
+严格意义上这集明显不属于香音传，问题的解决实际上基本没有香音啥事，然后恋的设定跟之前的铺垫也是吻合 ...</blockquote>
+这还不是香音传啊，非要撞到恋打游戏的是她才行吗，前面已经差不多集集都这样了，他把香音换成小千可堇任何一个人我都能接受，
+
+*****
+
+####  ViyViy  
+##### 3694#       发表于 2022-8-28 18:29
+
+我还是等熟肉吧，目前有点迷糊的是学生会工作和沉迷游戏间的关系……？
+
+*****
+
+####  仟音一心  
+##### 3695#       发表于 2022-8-28 18:30
+
+这话唯一观感算好的还是红蓝
+
+<img src="https://img.saraba1st.com/forum/202208/28/183006eqk6k0qxs1eqy3qq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B9921566-BB01-40C2-B233-742107054E78.jpeg</strong> (258.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/183014wwg3gfm3eg5gfs5g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1999A8B2-B99A-4FF1-BA09-19FB4050D510.jpeg</strong> (248.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/183025vyufkk5u4e4505yr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>83A48C2B-AA1A-4C80-BF18-7A8E62C13523.jpeg</strong> (248.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/183030x21ouy133ede85k2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>265B4A91-21EC-4D5E-8C79-F6C75F6AD7E5.jpeg</strong> (245.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/183036hnsn67b7604t46x0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0B0FC876-1B1A-4CDF-ABED-3E7349D03350.jpeg</strong> (259.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:30 上传
+
+*****
+
+####  adw667  
+##### 3696#       发表于 2022-8-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249477&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-8-28 18:28</a>
+但之前连当部长都缩卵的香音，这集直接掏出钦定的副会长任命书，虽然能理解出发点是帮恋减压，但观感实在 ...</blockquote>
+也许是对可可一言不合掏出转学申请的操作过于印象深刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 3697#       发表于 2022-8-28 18:31
+
+又停了
+
+*****
+
+####  1096beam  
+##### 3698#       发表于 2022-8-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249502&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-28 18:29</a>
+
+我还是等熟肉吧，目前有点迷糊的是学生会工作和沉迷游戏间的关系……？</blockquote>
+看恋发困以为是学生会工作太重了，结果只是打游戏
+
+*****
+
+####  qratosone  
+##### 3699#       发表于 2022-8-28 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249502&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-8-28 18:29</a>
+
+我还是等熟肉吧，目前有点迷糊的是学生会工作和沉迷游戏间的关系……？</blockquote>
+根本没有关系，其他人误以为恋恋看起来没有精神是学生会工作太忙了，但实际上是恋恋新入坑玩游戏上头了
+
