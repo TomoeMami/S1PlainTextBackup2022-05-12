@@ -6638,3 +6638,15 @@ sayu的抽签
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不可能比s1恋回还差吧！我觉得很稳
 
+
+
+*****
+
+####  adw667  
+##### 3634#       发表于 2022-8-28 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57244040&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-28 10:24</a>
+
+各位，准备好迎接今晚的刀子了吗</blockquote>
+我的黑条饥渴难耐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
