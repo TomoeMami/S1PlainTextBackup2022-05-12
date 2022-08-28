@@ -7590,3 +7590,15 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩的再久也没法攒下些什么吧
 
+
+
+*****
+
+####  马桶3  
+##### 2179#       发表于 2022-8-29 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57254214&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-28 23:38</a>
+
+申请了，不过我拐太菜，大概帮不了多少忙。角色名和论坛一样。</blockquote>
+谢谢各位大佬<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
