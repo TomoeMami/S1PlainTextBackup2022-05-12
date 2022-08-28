@@ -7832,3 +7832,14 @@ vn迟早会有的，我比较好奇三期生的其他人会不会露脸
 
 要是下期生放正好是剩下的4个人的话，那岂不就是liella的颜值精英合集了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 3746#       发表于 2022-8-29 00:18
+
+不是三期的话，现在结那这么用心营业有点说不通
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

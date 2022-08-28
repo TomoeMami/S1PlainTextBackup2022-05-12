@@ -7540,3 +7540,21 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 顺便贴一下ID，希望各位大佬有空位的话帮一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">申请了，不过我拐太菜，大概帮不了多少忙。角色名和论坛一样。
 
+
+
+*****
+
+####  kiralzb  
+##### 2174#       发表于 2022-8-29 00:15
+
+终于抽到小黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 2175#       发表于 2022-8-29 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是跑日服了，80买了个过2.6章五拐齐全的石头号，要我自己从头打一遍那是不可能的，早知道公主落地的时候就该跑了，现在还得等公主复刻，不过rba和梅莉还是香啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -9034,3 +9034,42 @@ rust租金交完了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电影看完了吧mikochi，该上线弄鬼屋了
 
+
+
+*****
+
+####  holoan  
+##### 879#         楼主| 发表于 2022-8-29 00:16
+
+不着急
+
+感想还有半小时
+
+*****
+
+####  holoan  
+##### 880#         楼主| 发表于 2022-8-29 00:19
+
+明天白天不播了
+
+*****
+
+####  ZQXY2002  
+##### 881#       发表于 2022-8-29 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">通宵搞鬼屋咯，又不播中午档，你何必呢，直接取消吧。
+
+*****
+
+####  holoan  
+##### 882#         楼主| 发表于 2022-8-29 00:20
+
+取消会被骂不取消也被骂
+
+*****
+
+####  ZQXY2002  
+##### 883#       发表于 2022-8-29 00:22
+
+是这样的，自作自受。
+
