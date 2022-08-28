@@ -7168,3 +7168,14 @@ vspo可以玩喷喷了？
 
 琥珀居然找到和kmt还有haseshin联动，终于10W订阅了，猎杀版夸皇
 
+
+
+*****
+
+####  free  
+##### 17161#       发表于 2022-8-28 21:18
+
+谱皇武道馆live看完了，其实真挺好看的，乐队阵容华丽，VWP居然全来了，虽然花鸟鱼虫风格的新衣服实在是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和大森靖子的合唱一定要看，笑死我了，还有valis这几个下次能不能套皮上来伴舞啊，腿太粗了！
+

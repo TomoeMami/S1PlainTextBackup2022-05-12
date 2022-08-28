@@ -1631,3 +1631,27 @@ AYANEO 2：
 
 然后刚刚打开直播间，居然还在直播，而且才刚刚说到重点，笑死我了。
 
+
+
+*****
+
+####  bypass  
+##### 134#         楼主| 发表于 2022-8-28 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57250984&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-8-28 20:03</a>
+
+这尾巴绝了，下午三点接到提醒说要开始直播，我没鸟。
+
+然后刚刚打开直播间，居然还在直播，而且才刚刚说到 ...</blockquote>
+别说这个点了，之前聊到通宵都有过，看到一点我熬不住就睡了，结果第二天一看，好家伙，直播到了晚上三点多。
+
+*****
+
+####  shanajiang  
+##### 135#       发表于 2022-8-28 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57226251&amp;ptid=2086469" target="_blank">平井姨夫 发表于 2022-8-26 17:08</a>
+
+PSV秽土转生</blockquote>
+pspgo
+
