@@ -7396,3 +7396,21 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧<img src="http
 BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 进过一次本也能发现吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2160#       发表于 2022-8-28 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬的烦恼 像我这种辣鸡根本没人加
+
+
+
+*****
+
+####  芭德薇  
+##### 2161#       发表于 2022-8-28 17:41
+
+快把大奥和通古斯的矿挖完时终于摸出一个武则天，然后满破3石彩圈RBA，这就是传说中有灵魂的石头吗
+

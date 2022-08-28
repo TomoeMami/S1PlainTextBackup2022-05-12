@@ -8855,3 +8855,29 @@ HP属性和时间轴都会看了 ...</blockquote>
 特么的4小时好吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这都行
 
+
+
+*****
+
+####  holoan  
+##### 862#         楼主| 发表于 2022-8-28 17:42
+
+双塔奇兵啊，正片3个半小时
+
+关键是星期天，这群社畜还要熬夜看到凌晨2点，我们早一小时还好，很同情
+
+*****
+
+####  holoan  
+##### 863#         楼主| 发表于 2022-8-28 17:49
+
+<img src="https://img.saraba1st.com/forum/202208/28/174828h2d111u5n71zx7zb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:48 上传
+
+有手办厨表示对这次popup的出品质量和价格区间非常满意
+
