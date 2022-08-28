@@ -7558,3 +7558,17 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  alucardcz  
+##### 2176#       发表于 2022-8-29 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57252463&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-8-28 21:37</a>
+
+我一直不理解隔壁为什么妖魔化初始号，不用打剧情+有关键拐+几千石头
+
+自建屁都没有还要从头打又臭又长的剧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人买一个带拐的石头号可能一瞬间就超过他几年的运营  当然得说不!
+
