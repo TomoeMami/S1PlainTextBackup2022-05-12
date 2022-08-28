@@ -7384,3 +7384,15 @@ LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不�
 
 BGO过来的可能还不知道不用加好友也能用宝具的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2159#       发表于 2022-8-28 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57246587&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-28 13:42</a>
+
+BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
+进过一次本也能发现吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

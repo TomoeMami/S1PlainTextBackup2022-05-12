@@ -8829,3 +8829,29 @@ HP属性和时间轴都会看了
 
 鬼屋还没建完，大概率不会直播内做
 
+
+
+*****
+
+####  rs5621  
+##### 860#       发表于 2022-8-28 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57248193&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-28 16:47</a>
+
+真是有意思每次让她直播外练级战斗能力就疯狂成长
+
+HP属性和时间轴都会看了 ...</blockquote>
+直播外不懂的地方可以翻攻略看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 861#       发表于 2022-8-28 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57248535&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-28 17:13</a>
+
+死都要同时视听
+
+特么的4小时好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这都行
+

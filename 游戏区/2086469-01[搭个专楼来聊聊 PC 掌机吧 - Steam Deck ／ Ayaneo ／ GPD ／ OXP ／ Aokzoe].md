@@ -1535,3 +1535,38 @@ Steam Deck产量爆炸了，现在预定都是10-12月发货
 据说win4</blockquote>
 PSV秽土转生
 
+
+
+*****
+
+####  bypass  
+##### 130#         楼主| 发表于 2022-8-28 17:23
+
+今天的饼会。AYANEO Next 2。
+
+<img src="https://img.saraba1st.com/forum/202208/28/172243nkgskt8z2gl1cine.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.038.jpeg</strong> (39.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/172256jyyjvijnyv5n5y3y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.040.jpeg</strong> (88.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:22 上传
+
+Air（不是 Pro）的发货进度：
+
+<img src="https://img.saraba1st.com/forum/202208/28/172344d0qgy7aikad0vf2a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.008.jpeg</strong> (196.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:23 上传
+
