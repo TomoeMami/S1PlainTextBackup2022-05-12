@@ -7423,3 +7423,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 删弃坑好友的时候发现里头居然有一个被封的，神奇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 2163#       发表于 2022-8-28 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被封的有什么特别的地方吗
+

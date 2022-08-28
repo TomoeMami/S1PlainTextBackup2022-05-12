@@ -7472,3 +7472,57 @@ TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新�
 已经养成不第一时间看星动画生肉的习惯了，逛了一圈，没看到整什么特别离谱的烂活，猜测大概还是老问题以及 ...</blockquote>
 主要的问题大概是“网瘾恋”&amp;“香音一集一次的闪现”这两个<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3718#       发表于 2022-8-28 19:32
+
+<img src="https://img.saraba1st.com/forum/202208/28/193154j6v96icii0eeaewe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>96A1DCAE-930D-4DD1-BC8F-FFA27E49BB40.jpeg</strong> (353.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/193154cmzwub1bvmwd99iq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C60EFB75-21BC-4DE0-BEB3-5F428ECB89C9.jpeg</strong> (194.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/193227dxky8ktwkvx46gcc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>42825F0D-F1E6-4FB6-BB28-F4B1AC8BD11E.jpeg</strong> (280.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/193233pvb82bz6y42nn20a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B460E48F-4FD8-4C49-A68D-3EC250F87117.jpeg</strong> (250.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/193241z32xx32q2x2zikrz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8308E2A6-B00A-42AD-9614-72684AEB0956.jpeg</strong> (254.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 19:32 上传
+
+CelticWhite
+
