@@ -7581,3 +7581,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 这个任务，估计长草了。
 
+
+
+*****
+
+####  zore  
+##### 2178#       发表于 2022-8-29 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩的再久也没法攒下些什么吧
+
