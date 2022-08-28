@@ -7443,3 +7443,30 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  里村紅葉  
+##### 2165#       发表于 2022-8-28 20:30
+
+被封的人删掉的时候会跳一个信息，说这个用户无法操作（但还是可以删掉）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马桶3  
+##### 2166#       发表于 2022-8-28 20:33
+
+亡命冲锋两天，终于基本活动毕业，还有几个金银棋子自回体刷了
+
+顺便贴一下ID，希望各位大佬有空位的话帮一把<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+177，613，336
+
+*****
+
+####  千叶铁矢  
+##### 2167#       发表于 2022-8-28 20:38
+
+妈的，nga又封我好。看来ios退款是真有人急了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
