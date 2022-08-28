@@ -7733,3 +7733,19 @@ no game no lovelive
 
 星二就别细想了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 3736#       发表于 2022-8-28 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真空啊，细节什么真没必要去纠结了
+
+*****
+
+####  Kfly  
+##### 3737#       发表于 2022-8-28 22:27
+
+星动画这些细节是真经不起推敲，剧情本身也有很多强行的地方，最好还是放过自己别去细想比较好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

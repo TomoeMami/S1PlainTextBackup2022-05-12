@@ -7517,3 +7517,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 自建屁都没有还要从头打又臭又长的剧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能，他们只是不想看到别人爽
 
+
+
+*****
+
+####  qixinno2  
+##### 2172#       发表于 2022-8-28 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就是纯粹的坏B 看不得别人随随便便就能爽
+
