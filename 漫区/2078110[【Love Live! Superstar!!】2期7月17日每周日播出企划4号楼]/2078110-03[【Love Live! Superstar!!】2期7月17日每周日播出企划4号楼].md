@@ -7805,3 +7805,30 @@ no game no lovelive
 
 vn迟早会有的，我比较好奇三期生的其他人会不会露脸
 
+
+
+*****
+
+####  优妮可  
+##### 3743#       发表于 2022-8-28 23:55
+
+你们是因为vn是初中生才觉得她是三期么，我咋感觉她跟桑尼帕一样用完就放置了，真有三期生估计也是要瞒着的吧
+
+*****
+
+####  一个陆仁贾  
+##### 3744#       发表于 2022-8-28 23:58
+
+要是真有不知道人设水平咋样的三期，选有好感的vn不好么<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名津流  
+##### 3745#       发表于 2022-8-29 00:01
+
+昨天生放是这5个人
+
+要是下期生放正好是剩下的4个人的话，那岂不就是liella的颜值精英合集了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
