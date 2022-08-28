@@ -7658,3 +7658,13 @@ no game no lovelive
 
 这集的裂裂歌我喜欢
 
+
+
+*****
+
+####  Enakina  
+##### 3729#       发表于 2022-8-28 21:28
+
+<img src="https://p.sda1.dev/7/90054efa08f93e190c7c88711f03d0a5/IMG_CMP_71783593.jpeg" referrerpolicy="no-referrer">
+大概和我想的差不多，恋可能真的就是个搞笑角色了
+
