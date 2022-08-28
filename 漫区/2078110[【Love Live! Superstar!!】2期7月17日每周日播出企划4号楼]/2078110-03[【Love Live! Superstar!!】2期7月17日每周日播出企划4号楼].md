@@ -6662,3 +6662,38 @@ sayu的抽签
 扫了一遍水动画，当年还一堆弹幕说如果有奇迹，那一定是九人。那么到底是为什么可可说9就是传奇学院偶像会 ...</blockquote>
 因为人家本来就是九人。大伙本来就对加人不满，这下上头而已如果一开始就是九人，那可说这个，一样会有人刷同样弹幕
 
+
+
+*****
+
+####  ads147147  
+##### 3636#       发表于 2022-8-28 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57244110&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-28 10:31</a>
+总不可能比s1恋回还差吧！我觉得很稳</blockquote>
+s1e7的恋回其实很有趣的，惯例跟踪，打闹，狗狗舔，俗且有效，这次游乐园玩一玩肯定没问题的（震声），而且我怀疑会有红薯梗。
+
+怕就怕这集欢乐闹一整集，结尾又给你来一刀什么废校啊，vn一串9啊什么的，那就完蛋了。
+
+而且我现在特别怕下一集预告就给你预告个始空，简直是虹团给你来跑路人的反面教材了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3637#       发表于 2022-8-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57244399&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-8-28 10:56</a>
+因为人家本来就是九人。大伙本来就对加人不满，这下上头而已如果一开始就是九人，那可说这个，一样会有人 ...</blockquote>
+其实水刷这个弹幕，已经是11集和圣雪跳了11人的舞之后了，其实偶像大联合的氛围也出来了，结果后面12，13又当圣雪不存在，满🌿的
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 3638#       发表于 2022-8-28 11:21
+
+VN的中之人营业的好勤快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

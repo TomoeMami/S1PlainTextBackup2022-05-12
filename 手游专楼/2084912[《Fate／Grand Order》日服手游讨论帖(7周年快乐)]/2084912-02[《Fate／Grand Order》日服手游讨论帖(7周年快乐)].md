@@ -7356,3 +7356,13 @@ LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不�
 
 终于160了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2156#       发表于 2022-8-28 11:10
+
+这几天看到好几个明显是BGO逃难过来的申请好友了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全拒了
+
