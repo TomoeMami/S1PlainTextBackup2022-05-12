@@ -7628,3 +7628,15 @@ CelticWhite
 同好会也才安插了两个学生会长，外加在学生会里发展了几个粉丝来暗中控制虹咲，现在结丘学生会就恋一个会长 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小小的偶像部已经满足不了香音了..目标未来就是理事长位置
 
+
+
+*****
+
+####  GGnob  
+##### 3726#       发表于 2022-8-28 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57251646&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2022-8-28 20:43</a>
+
+小小的偶像部已经满足不了香音了..目标未来就是理事长位置</blockquote>
+香音才不会当理事长这种背锅位，全结丘都知道香音是偶像部话事人，但她依旧推了小千当部长，所以想必西比西比之后依旧会推理事长当台前傀儡吧，自己则是众人皆知的结丘影子统领，之后以结丘为教派据点获取资金和发展信徒，终将暗中掌控世界口牙！音门🙏
+
