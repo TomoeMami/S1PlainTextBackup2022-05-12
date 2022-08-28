@@ -6612,3 +6612,29 @@ sayu的抽签
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 3631#       发表于 2022-8-28 10:24
+
+各位，准备好迎接今晚的刀子了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 3632#       发表于 2022-8-28 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57238156&amp;ptid=2078110" target="_blank">starring 发表于 2022-8-27 20:12</a>
+
+养眼，请再来多点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在别处看到这张图还以为是兔跟麻圆，原来是pay吗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3633#       发表于 2022-8-28 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不可能比s1恋回还差吧！我觉得很稳
+
