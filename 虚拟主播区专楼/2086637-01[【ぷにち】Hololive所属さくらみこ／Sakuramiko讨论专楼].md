@@ -8719,3 +8719,30 @@ miko以前rt过
 
 甚至没有同床过，我是不信的，一个晚上什么特别的都没做？那不是白白浪费掉
 
+
+
+*****
+
+####  holoan  
+##### 850#         楼主| 发表于 2022-8-28 12:54
+
+今天怎么回事 大招操作这么顺
+
+声音也恢复了不少
+
+昨晚上了什么大buff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 851#       发表于 2022-8-28 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来昨晚恢复得很好
+
+*****
+
+####  holoan  
+##### 852#         楼主| 发表于 2022-8-28 13:00
+
+不过刚才的存档27号凌晨4点练级，说明昨天白天确实想播的，这人日程管理还是太乱了
+
