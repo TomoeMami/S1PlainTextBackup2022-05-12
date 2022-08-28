@@ -8666,3 +8666,14 @@ miko以前rt过
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等不及听她杂谈了
 
+
+
+*****
+
+####  holoan  
+##### 845#         楼主| 发表于 2022-8-28 11:43
+
+但是2年前那个圣诞节后来也没谈什么东西
+
+结果最后都在猜到底发生了什么
+
