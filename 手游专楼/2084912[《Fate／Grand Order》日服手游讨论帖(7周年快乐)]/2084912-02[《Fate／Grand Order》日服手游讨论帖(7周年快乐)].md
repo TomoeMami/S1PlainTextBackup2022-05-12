@@ -7470,3 +7470,14 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 妈的，nga又封我好。看来ios退款是真有人急了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2168#       发表于 2022-8-28 20:46
+
+<blockquote>芭德薇 发表于 2022-8-28 17:41
+快把大奥和通古斯的矿挖完时终于摸出一个武则天，然后满破3石彩圈RBA，这就是传说中有灵魂的石头吗 ...</blockquote>
+牛逼，命中注定这个池子要毕业
+

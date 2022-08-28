@@ -7616,3 +7616,15 @@ CelticWhite
 
 同好会也才安插了两个学生会长，外加在学生会里发展了几个粉丝来暗中控制虹咲，现在结丘学生会就恋一个会长，香音当上副会长后其他人也来学生会帮忙，偶像部学生会事实合并，香音这是想明着掌控结丘啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 3725#       发表于 2022-8-28 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57251442&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-8-28 20:28</a>
+
+同好会也才安插了两个学生会长，外加在学生会里发展了几个粉丝来暗中控制虹咲，现在结丘学生会就恋一个会长 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小小的偶像部已经满足不了香音了..目标未来就是理事长位置
+
