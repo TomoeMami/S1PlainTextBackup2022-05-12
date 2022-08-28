@@ -7414,3 +7414,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 快把大奥和通古斯的矿挖完时终于摸出一个武则天，然后满破3石彩圈RBA，这就是传说中有灵魂的石头吗
 
+
+
+*****
+
+####  里村紅葉  
+##### 2162#       发表于 2022-8-28 19:18
+
+删弃坑好友的时候发现里头居然有一个被封的，神奇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

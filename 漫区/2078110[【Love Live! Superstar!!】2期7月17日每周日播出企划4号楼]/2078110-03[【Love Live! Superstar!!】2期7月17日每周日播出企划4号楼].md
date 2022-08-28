@@ -7460,3 +7460,15 @@ TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新�
 
 已经养成不第一时间看星动画生肉的习惯了，逛了一圈，没看到整什么特别离谱的烂活，猜测大概还是老问题以及剧情经不起细琢磨吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 3717#       发表于 2022-8-28 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57250083&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-28 19:10</a>
+
+已经养成不第一时间看星动画生肉的习惯了，逛了一圈，没看到整什么特别离谱的烂活，猜测大概还是老问题以及 ...</blockquote>
+主要的问题大概是“网瘾恋”&amp;“香音一集一次的闪现”这两个<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
