@@ -7843,3 +7843,14 @@ vn迟早会有的，我比较好奇三期生的其他人会不会露脸
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  damian-wade  
+##### 3747#       发表于 2022-8-29 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57254366&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-28 23:55</a>
+你们是因为vn是初中生才觉得她是三期么，我咋感觉她跟桑尼帕一样用完就放置了，真有三期生估计也是要瞒着的 ...</blockquote>
+Sp吹了这么久，连个live都没有，待遇根本不一样<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
