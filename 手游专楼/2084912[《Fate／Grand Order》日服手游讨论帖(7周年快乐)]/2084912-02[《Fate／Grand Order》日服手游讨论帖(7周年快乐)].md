@@ -7366,3 +7366,12 @@ LGBT最大的特点是画女硬说男还是色孽神选骑脸你们都装作不�
 这几天看到好几个明显是BGO逃难过来的申请好友了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全拒了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2157#       发表于 2022-8-28 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒无所谓，也没怎么区分，这几天新加我的基本都通过了
+
