@@ -7348,3 +7348,58 @@ TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新�
 那你的意思是以后直接没这个人比较合适？</blockquote>
 大香老师截胡拿人头的操作太多了以至于现在一看到她参团就觉得她又要截胡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 3707#       发表于 2022-8-28 18:41
+
+红蓝甜甜甜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+能不能后面几集分分cp发发糖 最后没夺冠说个但是我们收获了友情啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 3708#       发表于 2022-8-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249653&amp;ptid=2078110" target="_blank">adw667 发表于 2022-8-28 18:39</a>
+
+大香老师截胡拿人头的操作太多了以至于现在一看到她参团就觉得她又要截胡 ...</blockquote>
+问题是这不最后解决问题的是红毛+全队么，这还没算一开始先是千妈说的“挑战自己做不到的事情”
+
+*****
+
+####  ads147147  
+##### 3709#       发表于 2022-8-28 18:45
+
+香音现在又行了，等过两集大赛是不是又要被初中生打的自闭又要摸？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3710#       发表于 2022-8-28 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249687&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:42</a>
+问题是这不最后解决问题的是红毛+全队么，这还没算一开始先是千妈说的“挑战自己做不到的事情”
+
+ ...</blockquote>
+我个人看法，恋这一集用来拉人入队而不是哪来团建其实是更好的操作。给新人加游戏好友的设定并不难，这集也是红→蓝➕土→夏美➕一期的顺序，完全可以保留，红先入队也比土强行可香来的稳妥和令人接受。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 3711#       发表于 2022-8-28 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249687&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:42</a>
+问题是这不最后解决问题的是红毛+全队么，这还没算一开始先是千妈说的“挑战自己做不到的事情”
+
+ ...</blockquote>
+所以我才说香音这回只是参团<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+会长在和队友共斗的时候有没有想过自己也是被共斗的boss呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
