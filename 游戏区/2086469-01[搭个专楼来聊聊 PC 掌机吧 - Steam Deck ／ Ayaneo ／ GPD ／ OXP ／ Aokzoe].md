@@ -1570,3 +1570,36 @@ Air（不是 Pro）的发货进度：
 
 2022-8-28 17:23 上传
 
+
+
+*****
+
+####  bypass  
+##### 131#         楼主| 发表于 2022-8-28 17:41
+
+AYANEO Slide（的渲染图）：
+
+<img src="https://img.saraba1st.com/forum/202208/28/173912igi0t0p1zf7gt0lp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.043.jpeg</strong> (56.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/174040urypalc3fa2i2wqb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.044.jpeg</strong> (69.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202208/28/174117r0vlmgt0a3l30rfr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AYANEO 产品分享会_20220829.045.jpeg</strong> (91.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 17:41 上传
+
