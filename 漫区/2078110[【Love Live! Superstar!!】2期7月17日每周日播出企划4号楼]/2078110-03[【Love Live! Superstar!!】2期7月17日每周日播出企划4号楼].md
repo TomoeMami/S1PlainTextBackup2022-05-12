@@ -7758,3 +7758,17 @@ no game no lovelive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都台词直接甩脸上了哪还用细想 不过这其实一点都不重要 我只是想说后面那句
 
+
+
+*****
+
+####  4869Bi  
+##### 3739#       发表于 2022-8-28 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249189&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-28 18:12</a>
+
+恋恋，你老爹是不是斯宾塞啊？还给你送xbox360？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 ...</blockquote>
+那恋恋是不是有个姐姐叫<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
