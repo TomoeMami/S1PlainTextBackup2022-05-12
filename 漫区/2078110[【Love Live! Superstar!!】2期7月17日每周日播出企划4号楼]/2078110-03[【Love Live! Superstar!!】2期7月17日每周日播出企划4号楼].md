@@ -6716,3 +6716,36 @@ s1e7的恋回其实很有趣的，惯例跟踪，打闹，狗狗舔，俗且有�
 
 结那每天自拍抖音小视频之类不带停的，
 
+
+
+*****
+
+####  ads147147  
+##### 3641#       发表于 2022-8-28 11:37
+
+如果真的是3期生，这集vn真该登场了，之前弄成女鬼也要强行登场，现在去游乐园玩不登场说不过去吧？
+
+来一个vn一串9。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 3642#       发表于 2022-8-28 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57245055&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-28 11:37</a>
+
+如果真的是3期生，这集vn真该登场了，之前弄成女鬼也要强行登场，现在去游乐园玩不登场说不过去吧？
+
+来一 ...</blockquote>
+其实第六集就可以登场了
+
+<img src="https://img.saraba1st.com/forum/202208/28/113935iff6t0zxbvlzc5bl.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ180-6mjcZdT1kShs-11c.jpg</strong> (131.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-28 11:39 上传
+
