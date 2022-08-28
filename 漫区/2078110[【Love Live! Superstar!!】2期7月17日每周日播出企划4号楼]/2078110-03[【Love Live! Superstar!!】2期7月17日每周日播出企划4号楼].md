@@ -7403,3 +7403,30 @@ TVアニメ「ラブライブ！スーパースター!!」2期第8话は、新�
 所以我才说香音这回只是参团<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 会长在和队友共斗的时候有没有想过自己也是被共斗的boss呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3712#       发表于 2022-8-28 18:53
+
+<img src="https://img.saraba1st.com/forum/202208/28/185303dv0rpo5j6r5cu0cs.png" referrerpolicy="no-referrer">
+
+<strong>47D2934A-F437-4432-854D-5ED6C7751AD1.png</strong> (45.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-28 18:53 上传
+
+*****
+
+####  iuhehc  
+##### 3713#       发表于 2022-8-28 18:53
+
+ 本帖最后由 iuhehc 于 2022-8-28 18:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57249590&amp;ptid=2078110" target="_blank">qratosone 发表于 2022-8-28 18:35</a>
+
+那你的意思是以后直接没这个人比较合适？</blockquote>
+走极端？前面她K头少一点都没这么大怨气，那你意思是队友做小透明也能接受？我可不想上升角色
+
