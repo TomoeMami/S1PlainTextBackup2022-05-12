@@ -7526,3 +7526,17 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就是纯粹的坏B 看不得别人随随便便就能爽
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2173#       发表于 2022-8-28 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57251505&amp;ptid=2084912" target="_blank">马桶3 发表于 2022-8-28 20:33</a>
+
+亡命冲锋两天，终于基本活动毕业，还有几个金银棋子自回体刷了
+
+顺便贴一下ID，希望各位大佬有空位的话帮一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">申请了，不过我拐太菜，大概帮不了多少忙。角色名和论坛一样。
+
