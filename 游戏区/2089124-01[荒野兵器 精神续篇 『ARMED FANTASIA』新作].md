@@ -659,3 +659,17 @@ SHADE参与开发
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">整挺好，第一张图就感觉没问题。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 63#       发表于 2022-8-30 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57230824&amp;ptid=2089124" target="_blank">Piano-Forest 发表于 2022-8-27 01:06</a>
+
+8月30日1点开众筹：
+
+https://www.kickstarter.com/proj ... si ...</blockquote>
+众筹现已开启
+
