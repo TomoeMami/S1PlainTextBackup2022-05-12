@@ -9199,3 +9199,15 @@ mio 486 miko全体登录MC
 
 2022-8-29 14:22 上传
 
+
+
+*****
+
+####  rs5621  
+##### 897#       发表于 2022-8-29 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57260497&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-29 14:22</a>
+
+七字母都还没开始就已经有人贷款了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">七字母民要沸腾了
+
