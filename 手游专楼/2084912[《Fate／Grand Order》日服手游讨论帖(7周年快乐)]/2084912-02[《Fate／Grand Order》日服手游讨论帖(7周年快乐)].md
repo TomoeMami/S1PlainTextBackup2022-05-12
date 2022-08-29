@@ -7855,3 +7855,20 @@ RBA本身就能打，算是辅助加打手毕业了。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 2201#       发表于 2022-8-29 15:55
+
+ 本帖最后由 exiaexa 于 2022-8-29 15:58 编辑 
+
+别闹了，你们是不是一个都没用过金钻头……
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+金钻头跟els一模一样的问题，宝具伤害爆炸但是必须打蓝卡回NP
+
+你们啥时候见过拿金钻头打周回111的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
