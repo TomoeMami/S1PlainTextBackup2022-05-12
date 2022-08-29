@@ -7945,3 +7945,14 @@ ELS（开20NP）+徐福+C呆+C呆
 给罗大爷30np吧，小贝用吐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qb0079  
+##### 2207#       发表于 2022-8-29 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下时间，9月7日开rt7 2.4，中旬开新活动
+
+众所周知日服的中旬是20日左右，感觉三周时间开个泳⑥复刻还是有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
