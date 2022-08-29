@@ -1851,3 +1851,21 @@ AYA吹逼的地方多着，大部分都是大家都能买的配件（比如霍�
 其实这几家都是一丘之貉，说steamos开源，纯属放屁，只不过是能用民间提取改造的holoiso罢了，valve根本 ...</blockquote>
 Valve倒是说过系统会给其他家用，这点倒是没啥，国产的主要拿着玩家自己做的各种软件吹比steam强很搞笑，自己连个风扇调节都弄不出来。
 
+
+
+*****
+
+####  51569  
+##### 154#       发表于 2022-8-29 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256940&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-29 10:11</a>
+有原地址吗，我去瞅瞅看。</blockquote>
+http://b23.tv/OPHWU38 这里的评论区
+
+*****
+
+####  whzfjk  
+##### 155#       发表于 2022-8-29 20:35
+
+模具这么多，这是顺应着小众产品成本量产压不下来干脆霰弹枪式出产品？
+

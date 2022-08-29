@@ -8302,3 +8302,28 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没能让人先喜欢上角色还谈什么磕CP
 
+
+
+*****
+
+####  starring  
+##### 3796#       发表于 2022-8-29 20:41
+
+还是mzs老师有先见之明，比起资助这令女儿痛苦的破学校，还不如花重金买游戏机看女儿快乐玩游戏，这女儿控老爸哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/29/203729zr5rqaigqhekeagp.png" referrerpolicy="no-referrer">
+
+<strong>631.png</strong> (135.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202208/29/203733z4m2hf4kkp1j0foh.png" referrerpolicy="no-referrer">
+
+<strong>14.png</strong> (90.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 20:37 上传
+
