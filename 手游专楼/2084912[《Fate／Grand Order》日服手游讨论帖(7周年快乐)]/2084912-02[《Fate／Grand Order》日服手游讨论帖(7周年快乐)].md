@@ -7742,3 +7742,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 想补个旧梅但是看着那堆强化幕间本又躺平了，还是等新年福袋好了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2191#       发表于 2022-8-29 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧
+
