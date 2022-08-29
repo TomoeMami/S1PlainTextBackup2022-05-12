@@ -7763,3 +7763,12 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的。宝具回收挺拉胯的。
 
+
+
+*****
+
+####  khxooo  
+##### 2193#       发表于 2022-8-29 11:40
+
+RBA本身就能打，算是辅助加打手毕业了。
+
