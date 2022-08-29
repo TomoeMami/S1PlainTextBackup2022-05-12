@@ -8451,3 +8451,16 @@ image.png
 都没能让人先喜欢上角色还谈什么磕CP</blockquote>
 一针见血的
 
+
+
+*****
+
+####  ads147147  
+##### 3807#       发表于 2022-8-29 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264938&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-29 20:31</a>
+都没能让人先喜欢上角色还谈什么磕CP</blockquote>
+还可以让你喜欢上后再恨上，没想到还有这种操作吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
