@@ -7886,3 +7886,16 @@ Sp吹了这么久，连个live都没有，待遇根本不一样<img src="https:/
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 3750#       发表于 2022-8-29 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57252327&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-28 21:28</a>
+大概和我想的差不多，恋可能真的就是个搞笑角色了</blockquote>
+说不好听的，就是把人设当耗材用，美名曰新增人设。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
