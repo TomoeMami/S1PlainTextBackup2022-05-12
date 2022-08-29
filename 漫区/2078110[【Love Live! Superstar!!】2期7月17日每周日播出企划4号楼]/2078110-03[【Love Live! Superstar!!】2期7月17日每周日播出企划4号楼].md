@@ -8464,3 +8464,41 @@ image.png
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 3808#       发表于 2022-8-29 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264938&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-29 20:31</a>
+
+都没能让人先喜欢上角色还谈什么磕CP</blockquote>
+确实，稍微有些明白自己为什么目前对红蓝不太感冒了
+
+首先是过于直接的钦定cp，让我有些逆反心理。（如果红蓝写得好的话，这点倒是可以忽略的、次要的）
+
+其次（其实这才是主要的）是红蓝目前的互动………说实话我不太能感受到她们的羁绊。在这样的心境下看她们贴在一起，就感觉有些莫名其妙吧（不知道这个用词对不对，说“空洞”也差不多吧？）
+
+第一季前三集的可香、第十集的可堇，她们的互动都是能让人明显感受到的。
+
+相比之下，红蓝目前只是讲了一下过去相识的部分，具体经历了什么、是怎么才 变得这么姛的 变成如今的关系的，几乎没有讲太多
+
+情况比较相似的香千小时候的故事解释了小千为什么这么想帮助香音。
+
+红蓝现在大概就是缺少一个让观众更深入地了解她们“友情”的剧情/集数。（至少我还不太能get到她们友情如此之深的理由）
+
+在还没有巩固她们友情之前直接姛起来，对我而言的感想就是“知道你俩关系好，可竟然好到这种地步吗？怎么来的？”（仅指动画）<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3809#       发表于 2022-8-29 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57266671&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-29 23:05</a>
+
+确实，稍微有些明白自己为什么目前对红蓝不太感冒了
+
+首先是过于直接的钦定cp，让我有些逆反心理。（如果 ...</blockquote>
+会有的 第三季都会有的<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
