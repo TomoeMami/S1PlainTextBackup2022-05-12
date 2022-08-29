@@ -8210,3 +8210,23 @@ v团10月就要上了，怎么也来不及，不过说不定v团也会走加人�
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  有钱多买小人  
+##### 3788#       发表于 2022-8-29 19:24
+
+恋的游戏机xbox全有，ps却没有3和5。看来xbox真的翻身了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+当然大概是因为ps5实在太丑难画，不如xsx方盒子好画。
+
+*****
+
+####  有钱多买小人  
+##### 3789#       发表于 2022-8-29 19:24
+
+恋的游戏机xbox全有，ps却没有3和5。看来xbox真的翻身了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+当然大概是因为ps5实在太丑难画，不如xsx方盒子好画。
+
