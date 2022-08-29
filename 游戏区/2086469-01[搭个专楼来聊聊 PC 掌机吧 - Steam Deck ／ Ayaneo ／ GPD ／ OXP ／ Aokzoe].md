@@ -1791,3 +1791,14 @@ ns的jc…</blockquote>
 
 Next 2看着比SD小不了多少
 
+
+
+*****
+
+####  慕容断月  
+##### 149#       发表于 2022-8-29 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256949&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-29 10:11</a>
+尾巴的原话是  比 Deck 还要好用的触摸板。</blockquote>
+这就纯属吹逼了，用过sd和steam手柄的人没有会信这句话的
+
