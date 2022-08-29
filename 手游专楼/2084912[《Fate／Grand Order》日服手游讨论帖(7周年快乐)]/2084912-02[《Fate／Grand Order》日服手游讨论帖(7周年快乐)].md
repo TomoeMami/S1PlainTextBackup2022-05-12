@@ -7956,3 +7956,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 众所周知日服的中旬是20日左右，感觉三周时间开个泳⑥复刻还是有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  马桶3  
+##### 2208#       发表于 2022-8-29 17:56
+
+开主线送的灵脉石通用吗？我这号2.6都没打，我估摸着没灵脉石最后几个BOSS有点吃紧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 2209#       发表于 2022-8-29 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57263152&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-8-29 17:43</a>
+
+看了下时间，9月7日开rt7 2.4，中旬开新活动
+
+众所周知日服的中旬是20日左右，感觉三周时间开个泳⑥ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">卡池都开过了，就不要再做梦了
+
