@@ -1699,3 +1699,21 @@ AYANEO Next2 这个触摸板的位置没法用吧..
 AYANEO Next2 这个触摸板的位置没法用吧..</blockquote>
 尾巴的原话是 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 比 Deck 还要好用的触摸板。
 
+
+
+*****
+
+####  Mzi  
+##### 140#       发表于 2022-8-29 11:43
+
+说起来你们有用过ayaneo2这种按键和摇杆是垂直布局的机子吗，总感觉摇杆会挡住手指。尤其是geek还特意改了下布局，让人觉得2的布局更不合理的样子
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  asuss  
+##### 141#       发表于 2022-8-29 11:47
+
+这些机器里有哪些是有底座的，带上一大堆扩展槽加充电一体化的底座
+
