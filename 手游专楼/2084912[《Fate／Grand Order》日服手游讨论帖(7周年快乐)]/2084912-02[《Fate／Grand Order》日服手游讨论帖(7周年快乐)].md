@@ -7685,3 +7685,14 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 问题就是缺口NP
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 2186#       发表于 2022-8-29 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57255805&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-29 08:13</a>
+ 为啥泳6不复刻啊，yls指着这点材料养老吗？</blockquote>
+你没看Fami通的采访，说是接下来可能减少复刻活动的次数，给活动来点新花样。然而实际可能觉得泳六收益太便宜新入坑的玩家和老玩家了。你废狗折磨人倒是挺一绝的，顺便还使尺芬奇绝版了
+
