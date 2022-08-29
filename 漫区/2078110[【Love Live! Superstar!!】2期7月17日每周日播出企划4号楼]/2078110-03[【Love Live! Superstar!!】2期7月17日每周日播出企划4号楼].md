@@ -7899,3 +7899,15 @@ Sp吹了这么久，连个live都没有，待遇根本不一样<img src="https:/
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  巴麻耒  
+##### 3751#       发表于 2022-8-29 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57255632&amp;ptid=2078110" target="_blank">雪城穗乃香 发表于 2022-8-29 07:26</a>
+庆幸还好恋恋是沉迷游戏而不是沉迷上禁断网站
+虽然我一直希望回收一下这个情节但真要拿这个当主要整活点的 ...</blockquote>
+禁断的网站是可可电脑上发现的，游戏是在可可家玩的，不管沉迷哪个都是可可原罪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
