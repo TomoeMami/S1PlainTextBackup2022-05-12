@@ -8439,3 +8439,15 @@ image.png
 在电视上播的 应该有人会转</blockquote>
 我看鲤鱼那转推是卖票的，电视估计也就是放录播版本，而且还不定放哪天
 
+
+
+*****
+
+####  Dark_Zagi  
+##### 3806#       发表于 2022-8-29 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264938&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-29 20:31</a>
+
+都没能让人先喜欢上角色还谈什么磕CP</blockquote>
+一针见血的
+
