@@ -1811,3 +1811,17 @@ Next 2看着比SD小不了多少
 
 看直播ayaneo2卖相确实不错
 
+
+
+*****
+
+####  83913536  
+##### 151#       发表于 2022-8-29 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261170&amp;ptid=2086469" target="_blank">慕容断月 发表于 2022-8-29 15:22</a>
+
+这就纯属吹逼了，用过sd和steam手柄的人没有会信这句话的</blockquote>
+AYA吹逼的地方多着，大部分都是大家都能买的配件（比如霍尔摇杆），就是抢着做第一家而已。
+
+像软件这种，看他们的前端就知道...他们没那实力
+
