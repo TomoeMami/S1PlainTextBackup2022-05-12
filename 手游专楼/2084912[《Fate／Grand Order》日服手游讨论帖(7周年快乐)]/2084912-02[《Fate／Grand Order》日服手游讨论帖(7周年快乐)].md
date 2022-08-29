@@ -7641,3 +7641,28 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 所以cba什么时候给50冲加个点NP率上去，很急
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2183#       发表于 2022-8-29 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256091&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-29 08:48</a>
+我在犹豫要不要给RBA补宝具
+
+这两天试下来，公主+rba+cba打地铺本还可以</blockquote>
+难为自己用绿卡吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 2184#       发表于 2022-8-29 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57255805&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-29 08:13</a>
+
+为啥泳6不复刻啊，yls指着这点材料养老吗？</blockquote>
+可能yls觉得一次90+本有平均80AP一个随机金材料+附带掉率不错的银铜材料很亏吧
+
+你看这次泳7除了羁绊以外基本没有多刷的价值了
+
