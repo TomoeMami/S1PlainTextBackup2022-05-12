@@ -8404,3 +8404,38 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">才发现原来17号那个是live不是上音番打歌，能不能联动下啊，我想看和久井和青山姐唠嗑
 
+
+
+*****
+
+####  lj205  
+##### 3803#       发表于 2022-8-29 21:45
+
+ 本帖最后由 lj205 于 2022-8-29 21:46 编辑 
+
+还好是17号不是18号……………………<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">居然有偶活！！！！！！！！！！！那么怎样才能看到！！！！！
+
+看来2期生运营也知道拿不出来溜
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3804#       发表于 2022-8-29 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57265765&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-29 21:45</a>
+
+还好是17号不是18号……………………居然有偶活！！！！！！！！！！！那么怎样才能看到！！！！！
+
+ ...</blockquote>
+在电视上播的 应该有人会转
+
+*****
+
+####  lj205  
+##### 3805#       发表于 2022-8-29 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57265788&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-29 21:47</a>
+
+在电视上播的 应该有人会转</blockquote>
+我看鲤鱼那转推是卖票的，电视估计也就是放录播版本，而且还不定放哪天
+
