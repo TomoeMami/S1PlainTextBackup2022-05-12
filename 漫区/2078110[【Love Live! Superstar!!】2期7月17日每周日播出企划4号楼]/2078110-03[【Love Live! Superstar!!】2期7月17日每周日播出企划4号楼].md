@@ -8627,3 +8627,33 @@ LL系列的涉及方向倒是越来越多了，只是不知道这企划能经营
 LL系列的涉及方向倒是越来越多了，只是不知道这企划能经营成什么样子了，别到时候又整出来冷落哪个团的乐子 ...</blockquote>
 到最后干啥啥不行
 
+
+
+*****
+
+####  Skyline_R  
+##### 3823#       发表于 2022-8-30 00:18
+
+直接写“演出·脚本”的基本能确定是舞台剧
+
+看设定到关西去了，大概率又是新人，虽然不排除老成员剧中剧的可能性
+
+（演剧部部长给点作用啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  名津流  
+##### 3824#       发表于 2022-8-30 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57267239&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-30 00:05</a>
+
+中文教学还行，都是简体字，不像那些所谓中国风都用繁体字</blockquote>
+然而四格漫的第三格，具字写错了
+
+*****
+
+####  cybernetics31  
+##### 3825#       发表于 2022-8-30 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">导演不考虑下吗
+
