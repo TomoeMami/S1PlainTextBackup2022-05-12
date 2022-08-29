@@ -7751,3 +7751,15 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧
 
+
+
+*****
+
+####  areklose  
+##### 2192#       发表于 2022-8-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57257937&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-29 11:17</a>
+
+把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的。宝具回收挺拉胯的。
+
