@@ -7872,3 +7872,43 @@ RBA本身就能打，算是辅助加打手毕业了。
 你们啥时候见过拿金钻头打周回111的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2202#       发表于 2022-8-29 16:37
+
+顺便你们非要用也不是没有办法，我打了两个组合给你们参考
+
+金钻头+C呆+C呆+旧梅，技能只要满100就行，随便扔
+
+1T 83.5w 60np
+
+2T 58.5w 59np
+
+3T 89.7W 50NP
+
+ELS（开20NP）+徐福+C呆+C呆
+
+1T 44.8w，20NP进场，徐福全开然后换C呆，ELS二技能留到关底
+
+2T 61.3w，32NP进场，双C呆交掉20+20+30
+
+3T 117w，44NP进场，第二个C呆交掉30+ELS二技能30
+
+办法真的是人想出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 马桶3| + 1|好评加鹅|
+
+查看全部评分
+
