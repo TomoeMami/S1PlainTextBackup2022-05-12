@@ -9325,3 +9325,17 @@ MVP没跑了
 
 爆冷门了，miko跑第一哈哈
 
+
+
+*****
+
+####  holoan  
+##### 909#         楼主| 发表于 2022-8-29 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264036&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-8-29 19:08</a>
+
+连投厨是啥
+
+草好像懂了，是说pm连体厨吧？</blockquote>
+不是，是刚才第一批客人走了以后鬼屋里面的写字的书本要手动归页回第1页然后有指示厨一直在连投评论刷屏，miko看到评论区知道了就顺手把连投的人杀了
+
