@@ -7831,3 +7831,15 @@ RBA本身就能打，算是辅助加打手毕业了。
 开的迦摩池并不是绿卡。</blockquote>
 改了，3宝就没用过几次，写得时候顺手就写过去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2199#       发表于 2022-8-29 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57257937&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-29 11:17</a>
+
+把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧 ...</blockquote>
+泳装Erice是真的只有理论强度，回收和3T特攻都挺瞎眼的
+
