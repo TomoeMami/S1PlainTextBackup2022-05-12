@@ -7666,3 +7666,22 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 你看这次泳7除了羁绊以外基本没有多刷的价值了
 
+
+
+*****
+
+####  exiaexa  
+##### 2185#       发表于 2022-8-29 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256374&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-29 09:24</a>
+
+难为自己用绿卡吗</blockquote>
+这组合打地铺其实可以的，不用换人
+
+公主的问题是对队友0buff，而RBA的buff是超模级别的
+
+按技能方面反正红绿蓝大家都是激烈的点人战斗没区别
+
+问题就是缺口NP
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
