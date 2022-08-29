@@ -7843,3 +7843,15 @@ RBA本身就能打，算是辅助加打手毕业了。
 把宇津见拉起来发现打90++还是有点麻烦，算了不打了，还是继续刷种火本拉等级拿石头吧 ...</blockquote>
 泳装Erice是真的只有理论强度，回收和3T特攻都挺瞎眼的
 
+
+
+*****
+
+####  马桶3  
+##### 2200#       发表于 2022-8-29 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57260528&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-08-29 14:26:24</a>
+泳装Erice是真的只有理论强度，回收和3T特攻都挺瞎眼的</blockquote>确实，整了个5宝都不太舒服，还不如借个好友蓝卡剑和水伊吹打双核，基本稳3T
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

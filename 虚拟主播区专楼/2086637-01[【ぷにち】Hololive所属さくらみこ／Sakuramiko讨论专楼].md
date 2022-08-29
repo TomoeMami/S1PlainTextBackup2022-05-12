@@ -9211,3 +9211,33 @@ mio 486 miko全体登录MC
 七字母都还没开始就已经有人贷款了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">七字母民要沸腾了
 
+
+
+*****
+
+####  holoan  
+##### 898#         楼主| 发表于 2022-8-29 14:45
+
+完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年就没有其他看头了吗
+
+*****
+
+####  holoan  
+##### 899#         楼主| 发表于 2022-8-29 14:49
+
+<img src="https://img.saraba1st.com/forum/202208/29/144935ez1xtycm90a5my66.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 14:49 上传
+
+[https://www.goodsmile.info/ja/po ... A1%88%E5%86%85.html](https://www.goodsmile.info/ja/post/5682/2022%E5%B9%B49%E6%9C%88%E5%87%BA%E8%8D%B7%E4%BA%88%E5%AE%9A%E5%95%86%E5%93%81%E3%81%8A%E3%82%88%E3%81%B3%E7%99%BA%E5%A3%B2%E6%9C%88%E5%A4%89%E6%9B%B4%E3%81%AE%E3%81%94%E6%A1%88%E5%86%85.html)
+
+要出荷咯
+
+粘土人
+
