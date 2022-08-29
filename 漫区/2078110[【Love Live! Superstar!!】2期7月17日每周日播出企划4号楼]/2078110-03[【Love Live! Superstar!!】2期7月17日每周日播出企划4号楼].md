@@ -8253,3 +8253,32 @@ v团10月就要上了，怎么也来不及，不过说不定v团也会走加人�
 [https://twitter.com/tmk0636_/status/1563880205491396608](https://twitter.com/tmk0636_/status/1563880205491396608)
 <img src="https://p.sda1.dev/7/c2aed9473a6eb82f218e4ad10ac8f831/20220829_195405.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Skyline_R  
+##### 3792#       发表于 2022-8-29 20:17
+
+虽然台词很直，但是就她们行为表现和剧情铺垫来看，我感觉百合味儿甚至不如水团曜哥哥/“我喜欢樱坂雫”；
+
+看着挺姛的部分台词大概也是为了段子，太谐了，根本不是严肃的感情；甚至感觉不如之前的第4话。反正我是看着是没啥波动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 3793#       发表于 2022-8-29 20:20
+
+比较让我在意的还是这个游戏设备，拟真向的赛车模拟器要大几万已经很惊了，
+
+这个R360的发售价换算一下差不多现在人民币7位数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+image.png
+(46.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202208/29/200852ufoayiqhx6gei0oz.png" referrerpolicy="no-referrer">
+
