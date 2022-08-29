@@ -1839,3 +1839,15 @@ AYA吹逼的地方多着，大部分都是大家都能买的配件（比如霍�
 像软件这种， ...</blockquote>
 其实这几家都是一丘之貉，说steamos开源，纯属放屁，只不过是能用民间提取改造的holoiso罢了，valve根本就没开源过，国内做win掌机的至少aya吹归吹，但稍微守点基本法，其余的，根本不讲武德
 
+
+
+*****
+
+####  83913536  
+##### 153#       发表于 2022-8-29 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264010&amp;ptid=2086469" target="_blank">慕容断月 发表于 2022-8-29 19:05</a>
+
+其实这几家都是一丘之貉，说steamos开源，纯属放屁，只不过是能用民间提取改造的holoiso罢了，valve根本 ...</blockquote>
+Valve倒是说过系统会给其他家用，这点倒是没啥，国产的主要拿着玩家自己做的各种软件吹比steam强很搞笑，自己连个风扇调节都弄不出来。
+

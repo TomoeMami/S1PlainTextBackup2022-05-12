@@ -8282,3 +8282,23 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202208/29/200852ufoayiqhx6gei0oz.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 3794#       发表于 2022-8-29 20:22
+
+恋她老爸已经看透了学校只会让恋变得更忙碌，所以前面学校要倒闭不闻不问，后面看女儿撑不住了不忍心还是邮钱过来了
+
+现在看到女儿找到乐趣就算跟女儿性格相差太大，也不惜重金买这些
+
+所有人都误解恋爸了，多么深沉的父爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3795#       发表于 2022-8-29 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没能让人先喜欢上角色还谈什么磕CP
+
