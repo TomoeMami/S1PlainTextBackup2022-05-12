@@ -7618,3 +7618,26 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 
 为啥泳6不复刻啊，yls指着这点材料养老吗？
 
+
+
+*****
+
+####  exiaexa  
+##### 2182#       发表于 2022-8-29 08:48
+
+ 本帖最后由 exiaexa 于 2022-8-29 08:49 编辑 
+
+我在犹豫要不要给RBA补宝具
+
+这两天试下来，公主+rba+cba打地铺本还可以
+
+公主自启动+一个rba领导力一面可以砸单体5w+
+
+二面rba20+30+50
+
+三面50+回收，鞭尸数不够很容易卡97/98
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以cba什么时候给50冲加个点NP率上去，很急
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
