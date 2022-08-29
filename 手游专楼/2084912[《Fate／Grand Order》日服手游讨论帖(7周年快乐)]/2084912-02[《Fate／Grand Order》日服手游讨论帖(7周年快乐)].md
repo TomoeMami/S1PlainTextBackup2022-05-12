@@ -7796,3 +7796,17 @@ RBA本身就能打，算是辅助加打手毕业了。
 不过号贩子是真的赚麻了，六月c呆杀狐奥伯龙二宝狂娜+3000石还只要四五十，现在c呆杀狐奥伯龙别说低于一百 ...</blockquote>
 号贩子：多谢BGO的助攻，多来几次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2196#       发表于 2022-8-29 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256918&amp;ptid=2084912" target="_blank">Blackson 发表于 2022-8-29 10:09</a>
+
+你没看Fami通的采访，说是接下来可能减少复刻活动的次数，给活动来点新花样。然而实际可能觉得泳六收益太 ...</blockquote>
+今年减少复刻的真正原因应该还是road to 7
+
+实际上今年的产能是挺垃的了……出的卡的精细度也一般
+
