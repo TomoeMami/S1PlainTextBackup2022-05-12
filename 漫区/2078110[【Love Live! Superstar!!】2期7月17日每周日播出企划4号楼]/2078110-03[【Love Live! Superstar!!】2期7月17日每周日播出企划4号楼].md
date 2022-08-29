@@ -8352,3 +8352,46 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来一期生这个说法已经算定下来了啊
 
+
+
+*****
+
+####  adw667  
+##### 3798#       发表于 2022-8-29 21:14
+
+这集全员犯病，那就该车STAFF了（钟岚珠除外）
+开头的BS画面和CV表的香菜是不是代表这集预算太多没地方花了？就那游戏画面你说是联动广告我都信了
+整整半集都是恋在网瘾发作，他哪怕写点恋打游戏打得好都没这么尬，还是他觉得最后恋当指挥就是游戏打的好了？现在整得像小仙女买3DS摆拍一样，这就是教育台的节目吗，看完这集我确实觉得沉迷游戏不好了。
+还有这音监咋回事，恋恋大喊大叫的声音跟前三集樱小路的水平一样。
+管人你个水军头子差不多得了，是想把liella整成如龙6的泽村遥是吧，泽村遥那好歹是自爆，你这断章取义就算不怕网暴难道就不怕冲着liella来的学生集体退学吗
+这百合确实是糖精中的糖精，红毛跟蓝毛专属媚药一样稍微搭理一下蓝毛蓝毛就发病
+恋爹这行为十分合理，毕竟女儿沉迷游戏之后不仅不管lovelive，甚至连学校都没法管了，这样下去迟早人校双废，但是他没想到半路杀出个大香老师
+如果这集把二期BAN了再配合一个没看过前6集的脑子那将是最佳体验，可惜二期生没法去掉，我也没法换个脑子
+
+*****
+
+####  adw667  
+##### 3799#       发表于 2022-8-29 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57265375&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-8-29 21:08</a>
+
+原来一期生这个说法已经算定下来了啊</blockquote>
+现在居然还能看到一期生限定的活动吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L-JoeW  
+##### 3800#       发表于 2022-8-29 21:19
+
+好无聊的一集，打boss那段直接快进跳着看完的，就直球女同稍微有点乐子
+
+*****
+
+####  adw667  
+##### 3801#       发表于 2022-8-29 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57265488&amp;ptid=2078110" target="_blank">L-JoeW 发表于 2022-8-29 21:19</a>
+
+好无聊的一集，打boss那段直接快进跳着看完的，就直球女同稍微有点乐子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">他写恋恋和可可PK音游都算好的
+
