@@ -8395,3 +8395,12 @@ image.png
 好无聊的一集，打boss那段直接快进跳着看完的，就直球女同稍微有点乐子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">他写恋恋和可可PK音游都算好的
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3802#       发表于 2022-8-29 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">才发现原来17号那个是live不是上音番打歌，能不能联动下啊，我想看和久井和青山姐唠嗑
+
