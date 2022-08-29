@@ -9422,3 +9422,21 @@ miko亲自全程接待最高待遇的2人
 
 sora 阿心
 
+
+
+*****
+
+####  holoan  
+##### 918#         楼主| 发表于 2022-8-29 23:34
+
+カエルだけに。。。。
+
+最后只有一个非日本人察觉到了
+
+*****
+
+####  rs5621  
+##### 919#       发表于 2022-8-29 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团长跑哪去了
+

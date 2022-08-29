@@ -650,3 +650,12 @@ SHADE参与开发
 <img src="https://p.sda1.dev/7/1ec9742ad20cd67069fa9e9e4ad0a8d7/Penny-Blood_2022_08-26-22_018.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/f2f3ac6cc6ca2947dc6beab1b98cbfaa/Penny-Blood_2022_08-26-22_019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  afer  
+##### 62#       发表于 2022-8-29 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">整挺好，第一张图就感觉没问题。
+

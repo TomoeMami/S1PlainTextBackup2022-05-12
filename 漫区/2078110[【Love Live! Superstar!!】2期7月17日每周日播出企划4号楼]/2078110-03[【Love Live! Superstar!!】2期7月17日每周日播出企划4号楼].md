@@ -8531,3 +8531,41 @@ image.png
 
 以及这次主角都是理事长女儿这样的高位，和过去的主角都不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 3813#       发表于 2022-8-29 23:37
+
+可可中文教室 第二期
+
+<img src="https://img.saraba1st.com/forum/202208/29/233745mghcepgkt519o79c.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220829233742.jpg</strong> (686.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 23:37 上传
+
+*****
+
+####  稀勢のささ  
+##### 3814#       发表于 2022-8-29 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不明白这是要咋整 3D皮套舞台少女？
+
+*****
+
+####  aoaoaodedede  
+##### 3815#       发表于 2022-8-29 23:39
+
+看起来应该不是2月份说的那个“虚拟学院偶像”团吧
+
+*****
+
+####  cybernetics31  
+##### 3816#       发表于 2022-8-29 23:40
+
+不是啊，musical肯定真人吧…………感觉是新企划新团
+
