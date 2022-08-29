@@ -8657,3 +8657,25 @@ LL系列的涉及方向倒是越来越多了，只是不知道这企划能经营
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">导演不考虑下吗
 
+
+
+*****
+
+####  Enakina  
+##### 3826#       发表于 2022-8-30 00:22
+
+ 本帖最后由 Enakina 于 2022-8-30 00:24 编辑 
+
+我觉得这个音乐剧也好，管人也罢，感觉就是在广撒网，看看哪个能火，哪个火了就去推，不火就随便整整
+不过我个人还对这个舞台剧挺感兴趣的，奶一口能火吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 3827#       发表于 2022-8-30 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57267363&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-30 00:21</a>
+
+简单嘛，萌p，菜宝走起，都是大阪人，萌p舞台剧熟悉，接吻熟练导演不考虑下吗 ...</blockquote>
+90回~90回~90回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
