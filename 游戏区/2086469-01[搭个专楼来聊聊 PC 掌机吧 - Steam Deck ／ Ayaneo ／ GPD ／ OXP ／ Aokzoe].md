@@ -1687,3 +1687,15 @@ AYANEO Next2 这个触摸板的位置没法用吧..
 还能这么不要脸的，我看批站互喷说，人家吧steamos开源，有社区接手gpd就跑过去发个贴没人理他就回来说是合 ...</blockquote>
 有原地址吗，我去瞅瞅看。
 
+
+
+*****
+
+####  bypass  
+##### 139#         楼主| 发表于 2022-8-29 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57256673&amp;ptid=2086469" target="_blank">ky怪 发表于 2022-8-29 09:50</a>
+
+AYANEO Next2 这个触摸板的位置没法用吧..</blockquote>
+尾巴的原话是 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 比 Deck 还要好用的触摸板。
+
