@@ -7911,3 +7911,302 @@ Sp吹了这么久，连个live都没有，待遇根本不一样<img src="https:/
 虽然我一直希望回收一下这个情节但真要拿这个当主要整活点的 ...</blockquote>
 禁断的网站是可可电脑上发现的，游戏是在可可家玩的，不管沉迷哪个都是可可原罪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 3752#       发表于 2022-8-29 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57255936&amp;ptid=2078110" target="_blank">巴麻耒 发表于 2022-8-29 08:32</a>
+禁断的网站是可可电脑上发现的，游戏是在可可家玩的，不管沉迷哪个都是可可原罪 ...</blockquote>
+这下可恋了，可可要负起责任啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 3753#       发表于 2022-8-29 09:19
+
+最近沉迷一个叫regiments的新游戏，好几天没进专楼了，这周的生放和动画都没看，刚才上班摸鱼看完了第七话，乐了，感觉我最近的状态和恋恋蛮像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 3754#       发表于 2022-8-29 09:21
+
+刷到一个小百合和绘森彩参加广播节目的切片，按彩妹的说法，她参加一期选拔落选后很失落，偶然被youtube推送了一单的mv之后才又提起兴趣，最终决定参加二期选拔。从时间节点上来看参加二期选拔应该是在4月到9月之间（9月前后她改名很可能是确定入选），选拔时她是知道二期有哪几个角色的。
+
+所以我猜测一期生应该是比较晚才知道二期的消息，毕竟人很可能是21年下半年定下来的。二期动画的规划应当更早，一期开播时至少二期的框架已经定好了。
+
+*****
+
+####  ViyViy  
+##### 3755#       发表于 2022-8-29 10:10
+
+它京极就定了这么个勾八东西吗…花田也是，往里头填的也都是纯种，这中间哪怕有一个环节有人坐起来干活都不至于现在这样。
+
+*****
+
+####  凡人  
+##### 3756#       发表于 2022-8-29 10:11
+
+LL队内第一次认真讨论女同性恋问题，裂啦也算完成了它的历史使命，一些原教旨主义者已经开骂了，让我们期待在剩下的时间内花田老师能不能创造出LL史上第一对在动画出柜的情侣
+
+*****
+
+####  cybernetics31  
+##### 3757#       发表于 2022-8-29 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教育频道放这些，真有你的啊动画组
+
+*****
+
+####  长日留痕  
+##### 3758#       发表于 2022-8-29 10:20
+
+出柜是不可能的，但红蓝这对的直球程度连虹咲都自愧不如。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 3759#       发表于 2022-8-29 10:21
+
+你们真要讨论红蓝那个工业糖精中的糖精么。
+
+说到底，偶像的问题是恋爱本身，和谁恋爱应该是很无所谓的事吧。
+
+不过对于教育组来说，这不是lgbt的初级阶段么，隔壁美帝早就魔改进化了不知道多少个版本了。
+
+*****
+
+####  Yugao  
+##### 3760#       发表于 2022-8-29 10:25
+
+现在香音的人设已经要变成宋江了，人都是我拉的，都是坐第二把交椅，名义上的老大都那她没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3761#       发表于 2022-8-29 10:37
+
+随口胡说一下，下周停播是因为放了这个被教育台要求整改，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 3762#       发表于 2022-8-29 10:51
+
+ 本帖最后由 Kfly 于 2022-8-29 10:55 编辑 
+
+红蓝这个，二次元三次元明显有意往真姛靠的，都不装了的，直接把红蓝的卖点告诉你了，那肯定会分出喜欢这套和不喜欢这套的两拨人。
+不管红蓝后续如何，这肯定是在ll开此先河的情况下又往前迈进了一大步。效果好的话，没准五代就会有相同属性的两个角色出现<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 3763#       发表于 2022-8-29 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以最后反而是官方下场卖同炎上了？太草
+
+*****
+
+####  凡人  
+##### 3764#       发表于 2022-8-29 11:18
+
+v团10月就要上了，怎么也来不及，不过说不定v团也会走加人的路子
+
+*****
+
+####  优妮可  
+##### 3765#       发表于 2022-8-29 11:27
+
+这两天杂志差不多会透露虚拟偶像的消息
+
+*****
+
+####  ads147147  
+##### 3766#       发表于 2022-8-29 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57257541&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-29 10:51</a>
+
+红蓝这个，二次元三次元明显有意往真姛靠的，都不装了的，直接把红蓝的卖点告诉你了，那肯定会分出喜欢这套 ...</blockquote>
+三次元kuma那个营业，水平不行的。
+
+*****
+
+####  cybernetics31  
+##### 3767#       发表于 2022-8-29 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 3768#       发表于 2022-8-29 11:43
+
+尽管我是很狂热的河豚，但是作为拉拉人，我想说有些东西不是你看隔壁做了好像效果很好还拉了一大波观众就可以学的；学是可以学，但是不能过度啊，拉拉人里面的河豚数量绝对比很多人想象中要少，是有很多拉拉人吃CP，但是你要来玩真的那就是招黑兼劝退。
+
+*****
+
+####  Yugao  
+##### 3769#       发表于 2022-8-29 11:59
+
+上次大阪live，不是红的被嘉嘉特有homo壁咚差点牛走了，蓝的马上过来把人牵走了，看起来是运营认为就有人好这口玩真的，要做成二次元迷路彩了怕不是<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 3770#       发表于 2022-8-29 12:00
+
+ 本帖最后由 Yugao 于 2022-8-29 12:01 编辑 
+
+超级风怒
+
+*****
+
+####  Yugao  
+##### 3771#       发表于 2022-8-29 12:00
+
+风怒
+
+*****
+
+####  ads147147  
+##### 3772#       发表于 2022-8-29 12:01
+
+鲤鱼那段其实还没特别homo，但是kuma直接过来拉人感觉就是剧本演的过分了点。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 3773#       发表于 2022-8-29 12:02
+
+我是没兴趣操企划公司的心，拍的越直接越好，最好直接把上床都拍出来
+
+*****
+
+####  iuhehc  
+##### 3774#       发表于 2022-8-29 12:09
+
+好歹还是在教育台放的，还有小孩看，虹咲那个算暗示的话这里直接说koi koi不就一个直球大明示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 3775#       发表于 2022-8-29 12:09
+
+ 本帖最后由 Kfly 于 2022-8-29 12:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57258206&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-29 11:31</a>
+三次元kuma那个营业，水平不行的。</blockquote>
+水平是一回事，是否有意是另一回事
+鱼她们那个贴贴和角色设定关系不大，应该是真的挺 享受 自然的类型<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3776#       发表于 2022-8-29 12:24
+
+大熊和朱茵都不错，但我觉得这两没啥火花的感觉，看看合鲤和双N是怎么建立起来的联系，那可是就算官方要拆都能靠她们自己硬是稳定住一批粉。就算是鲤鱼和佩佩互动少点，但是一有互动也是感觉很自然。
+
+*****
+
+####  奥柏伦亲王  
+##### 3777#       发表于 2022-8-29 12:35
+
+显然比起官方CP，小偶像们在相处中自己组出来的配对看着更舒服，双N，合鲤，Pay子和绘森彩，每对组合都很自然
+
+*****
+
+####  starring  
+##### 3778#       发表于 2022-8-29 13:09
+
+不知道青山推看完这集什么感想，要我说的话AB社安排多一些个人工作给nagi赶紧单飞<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+动画毁角色的能力真是一等一的强<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3779#       发表于 2022-8-29 13:38
+
+想问下，它说下集没做完但看到好像有下集预告，这是做好了预告部分？
+
+*****
+
+####  Enakina  
+##### 3780#       发表于 2022-8-29 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259960&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-29 13:38</a>
+想问下，它说下集没做完但看到好像有下集预告，这是做好了预告部分？</blockquote>
+第8集或者第9集应该都做好了，现在可能在做10集或者11集了。真要做一集播一集，那才是工期爆炸了
+
+
+
+*****
+
+####  CharlieZ-  
+##### 3781#       发表于 2022-8-29 14:19
+
+虽然都说是搞笑过渡回，但我感觉。。。一点也不好笑
+
+*****
+
+####  Yugao  
+##### 3782#       发表于 2022-8-29 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你楼的讨论，怎么组cp都没有恋的事情，青山姐输麻了属于是
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3783#       发表于 2022-8-29 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟自我定位就是孤狼
+
+*****
+
+####  ads147147  
+##### 3784#       发表于 2022-8-29 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261382&amp;ptid=2078110" target="_blank">Yugao 发表于 2022-8-29 15:39</a>
+
+看你楼的讨论，怎么组cp都没有恋的事情，青山姐输麻了属于是</blockquote>
+这不是历代黑长直的宿命么，海，黛雅，雪菜，恋。海和黛雅的青梅竹马cp一直没有另外那对的稳，导致自己经常被拉下成为落单。
+
+还有live中飞吻就会变成孤身一人的传说。
+
+*****
+
+####  Kfly  
+##### 3785#       发表于 2022-8-29 15:51
+
+ 本帖最后由 Kfly 于 2022-8-29 15:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261460&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-29 15:44</a>
+这不是历代黑长直的宿命么，海，黛雅，雪菜，恋。海和黛雅的青梅竹马cp一直没有另外那对的稳，导致自己经 ...</blockquote>
+那个飞吻原来有这样的传说的吗，我说怎么看别人直播的时候都在恋飞吻的地方停一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还挺常见的？设定全能的角色不容易有cp什么的
+
+*****
+
+####  沙茶酱  
+##### 3786#       发表于 2022-8-29 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261460&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-29 15:44</a>
+
+这不是历代黑长直的宿命么，海，黛雅，雪菜，恋。海和黛雅的青梅竹马cp一直没有另外那对的稳，导致自己经 ...</blockquote>
+就讨论动画的话（除了动画，其他媒体其实有不同情况），海和黛雅主要是二年级三人行以及三年级三人行；雪菜没CP甚至是雪菜的特点（雪菜不想搞姛.jpg）。恋恋，我觉得单纯是制作组迫害<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 3787#       发表于 2022-8-29 17:35
+
+其实海和黛雅还好啦，果鸟海三人行果是两者通吃的，黛雅三人行黛雅还有露比平衡一下。恶心的是水二年级组官方把梨设定成天降女主跟曜搞小家子气的争风吃醋没完，后续的杂志还会在预告里暗示千曜结果正式发售就告诉你是二年级组三人行（但是2223的曜梨曲真好听）。至于恋，我身边的水獭推+恋推表示情绪稳定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
