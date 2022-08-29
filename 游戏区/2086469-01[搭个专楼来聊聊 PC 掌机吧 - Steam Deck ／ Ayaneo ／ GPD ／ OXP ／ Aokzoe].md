@@ -1717,3 +1717,36 @@ AYANEO Next2 这个触摸板的位置没法用吧..</blockquote>
 
 这些机器里有哪些是有底座的，带上一大堆扩展槽加充电一体化的底座
 
+
+
+*****
+
+####  硫黄  
+##### 142#       发表于 2022-8-29 12:04
+
+<blockquote>Mzi 发表于 2022-8-29 11:43
+说起来你们有用过ayaneo2这种按键和摇杆是垂直布局的机子吗，总感觉摇杆会挡住手指。尤其是geek还特意改了 ...</blockquote>
+ns的jc…
+
+*****
+
+####  Mzi  
+##### 143#       发表于 2022-8-29 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57258739&amp;ptid=2086469" target="_blank">硫黄 发表于 2022-8-29 12:04</a>
+ns的jc…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对哦，怎么忘了这个。那好像还在接受范围内
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mzi  
+##### 144#       发表于 2022-8-29 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57258739&amp;ptid=2086469" target="_blank">硫黄 发表于 2022-8-29 12:04</a>
+ns的jc…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对哦，怎么忘了这个。那好像还在接受范围内
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
