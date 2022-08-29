@@ -9339,3 +9339,22 @@ MVP没跑了
 草好像懂了，是说pm连体厨吧？</blockquote>
 不是，是刚才第一批客人走了以后鬼屋里面的写字的书本要手动归页回第1页然后有指示厨一直在连投评论刷屏，miko看到评论区知道了就顺手把连投的人杀了
 
+
+
+*****
+
+####  rs5621  
+##### 910#       发表于 2022-8-29 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264445&amp;ptid=2086637" target="_blank">holoan 发表于 2022-8-29 19:46</a>
+
+不是，是刚才第一批客人走了以后鬼屋里面的写字的书本要手动归页回第1页然后有指示厨一直在连投评论刷屏 ...</blockquote>
+哈哈，那可太沙雕了，好杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mqnwbeebwnqm  
+##### 911#       发表于 2022-8-29 19:58
+
+进去一看一堆人在赌马艹
+
