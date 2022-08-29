@@ -1750,3 +1750,44 @@ ns的jc…</blockquote>
 
 —— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  硫黄  
+##### 145#       发表于 2022-8-29 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57258816&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-8-29 12:10</a>
+
+对哦，怎么忘了这个。那好像还在接受范围内
+
+—— 来自 OnePlus IN2010, Android 12上的 S1Next- ...</blockquote>
+因为非对称，JC左边不会挡手指，右边稍微有一点点但问题不大
+
+我没实际摸过aya，但看图右边摇杆和十字键还是角度的，不是完全垂直
+
+*****
+
+####  Mzi  
+##### 146#       发表于 2022-8-29 12:14
+
+ 本帖最后由 Mzi 于 2022-8-29 12:15 编辑 
+
+风怒
+
+*****
+
+####  Mzi  
+##### 147#       发表于 2022-8-29 12:14
+
+ 本帖最后由 Mzi 于 2022-8-29 12:15 编辑 
+
+风怒
+
+*****
+
+####  饭冢武也  
+##### 148#       发表于 2022-8-29 12:14
+
+Next 2看着比SD小不了多少
+
