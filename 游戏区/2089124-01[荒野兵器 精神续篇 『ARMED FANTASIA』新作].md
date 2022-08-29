@@ -673,3 +673,12 @@ SHADE参与开发
 https://www.kickstarter.com/proj ... si ...</blockquote>
 众筹现已开启
 
+
+
+*****
+
+####  clover293  
+##### 64#       发表于 2022-8-30 07:46
+
+众筹肯定会成功，但72w刀做俩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
