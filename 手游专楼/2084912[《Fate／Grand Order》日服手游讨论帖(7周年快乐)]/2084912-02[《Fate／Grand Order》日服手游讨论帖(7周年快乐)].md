@@ -7819,3 +7819,15 @@ RBA本身就能打，算是辅助加打手毕业了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不说泳装宝具都是什么呀。不过这两年受疫情影响都是方方面面的，哎……
 
+
+
+*****
+
+####  exiaexa  
+##### 2198#       发表于 2022-8-29 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57257466&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-29 10:47</a>
+
+开的迦摩池并不是绿卡。</blockquote>
+改了，3宝就没用过几次，写得时候顺手就写过去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
