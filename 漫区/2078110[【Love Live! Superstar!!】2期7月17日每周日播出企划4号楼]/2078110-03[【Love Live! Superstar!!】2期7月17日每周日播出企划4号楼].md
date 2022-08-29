@@ -8569,3 +8569,30 @@ image.png
 
 不是啊，musical肯定真人吧…………感觉是新企划新团
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3817#       发表于 2022-8-29 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来个新的那我只能说大人们非常的自信了
+
+*****
+
+####  iuhehc  
+##### 3818#       发表于 2022-8-29 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57266971&amp;ptid=2078110" target="_blank">名津流 发表于 2022-8-29 23:37</a>
+可可中文教室 第二期</blockquote>
+虽然只是第二期还不清楚但我觉得企划还是会选投稿的，我投的名字和具足虫都有，感觉大家可以都去投投挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 3819#       发表于 2022-8-29 23:49
+
+LL系列的涉及方向倒是越来越多了，只是不知道这企划能经营成什么样子了，别到时候又整出来冷落哪个团的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
