@@ -7712,3 +7712,24 @@ BGO过来的可能还不知道不用加好友也能用宝具的吧</blockquote>
 甚至不打算立刻润日服的都建议搞一个抽抽看
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2188#       发表于 2022-8-29 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57257088&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-29 10:21</a>
+
+刚去看了一眼卡池，这波入坑的新人只要够狗那真是石头号入坑直接蓝绿半毕业草
+
+蓝卡：伊吹+els+旧梅</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开的迦摩池并不是绿卡。
+
+*****
+
+####  areklose  
+##### 2189#       发表于 2022-8-29 10:48
+
+我个人觉得绿卡抽个RBA就算了。剩下的打手我觉得还是看自己喜不喜欢。不喜欢就算了
+
