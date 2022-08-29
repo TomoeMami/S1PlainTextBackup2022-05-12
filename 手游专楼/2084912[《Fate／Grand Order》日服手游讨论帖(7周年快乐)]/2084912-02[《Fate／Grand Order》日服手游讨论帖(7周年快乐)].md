@@ -7977,3 +7977,27 @@ ELS（开20NP）+徐福+C呆+C呆
 众所周知日服的中旬是20日左右，感觉三周时间开个泳⑥ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">卡池都开过了，就不要再做梦了
 
+
+
+*****
+
+####  UNISONIA  
+##### 2210#       发表于 2022-8-29 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261614&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-29 15:55</a>
+
+别闹了，你们是不是一个都没用过金钻头……</blockquote>
+然而我说的就是单体高难，高难Erice没有自主出星暴击一条龙影响蛮大的……
+
+111周回基本上是回收高的那几个折腾的
+
+*****
+
+####  UNISONIA  
+##### 2211#       发表于 2022-8-29 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57263035&amp;ptid=2084912" target="_blank">الطائر 发表于 2022-8-29 17:32</a>
+
+话说 Erice 的资料6还没有解锁呢，这是暗示以后会有FR活动的复刻？也许要等小说出第3卷，今年是不指望了。 ...</blockquote>
+现在星空所有在FGO的活儿都转给茗荷屋了
+
