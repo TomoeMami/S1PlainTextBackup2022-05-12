@@ -9718,3 +9718,19 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脑回路的确异于常人
 
+
+
+*****
+
+####  rs5621  
+##### 947#       发表于 2022-8-30 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼顶放个钢琴，战前弹一曲提下士气。。。。
+
+*****
+
+####  rs5621  
+##### 948#       发表于 2022-8-30 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，都打过来了，还在楼顶到处逛有说有笑
+

@@ -7540,3 +7540,17 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 是的话那也是en独一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些
 
+
+
+*****
+
+####  OldGlory  
+##### 17195#       发表于 2022-8-30 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276564&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-30 18:09</a>
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+ ...</blockquote>
+后面又把自己的话全都吃回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
