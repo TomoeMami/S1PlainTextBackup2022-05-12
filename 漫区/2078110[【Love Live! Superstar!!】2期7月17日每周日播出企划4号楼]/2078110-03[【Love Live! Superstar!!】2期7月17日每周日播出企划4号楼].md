@@ -9221,3 +9221,26 @@ non个人感觉挺不错的，软实力足够了，就是硬实力还需要一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看业务水平，3rd一开就知道了
 
+
+
+*****
+
+####  lj205  
+##### 3879#       发表于 2022-8-30 12:27
+
+不是op和ed要单独举办一次mini live吗？等着看呗
+
+*****
+
+####  starring  
+##### 3880#       发表于 2022-8-30 12:28
+
+下个月的oped发售live就知道二期生实力如何，虽然目前的表现都一般，还不如结那吸引我<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3881#       发表于 2022-8-30 12:29
+
+推上说musical是完全新作。。。。那就基本上全新的团了
+
