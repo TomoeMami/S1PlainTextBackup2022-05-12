@@ -8977,3 +8977,14 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 musical看人啊，纯新人就算了，人不了解都。企划要是聪明点就直接跨团来，水虹好几个中之人都有舞台 ...</blockquote>
 抛开很多其他情况和推测不谈，星这边肯定不可能带的，舞台剧企划现在这俩个地的表演，每个地的日期上都有和星3rd Live重叠的部分：12.10，12.11，1.28，1.29<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 3857#       发表于 2022-8-30 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269612&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-30 09:50</a>
+抛开很多其他情况和推测不谈，星这边肯定不可能带的，舞台剧企划现在这俩个地的表演，每个地的日期上都有 ...</blockquote>
+结论是结那代表星上，毕竟舞台剧出身
+

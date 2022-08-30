@@ -9523,3 +9523,14 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 不过明天我猜大概率晚上会限或者不播 应该能休息一下
 
+
+
+*****
+
+####  rs5621  
+##### 929#       发表于 2022-8-30 09:58
+
+晚上在koyo那参加企划，不知道要打多久
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

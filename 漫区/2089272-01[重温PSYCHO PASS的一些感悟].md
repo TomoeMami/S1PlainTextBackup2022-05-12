@@ -624,3 +624,17 @@ ss时悬崖勒马，宁可让霜月跟之前的印象对不上也要把握住“
 
 在测温枪决定执行对象，七十二小时以上核酸直接开除人籍的当下，PP还是挺有那个意思的
 
+
+
+*****
+
+####  HYNDコン  
+##### 64#         楼主| 发表于 2022-8-30 09:56
+
+ 本帖最后由 HYNDコン 于 2022-8-30 09:57 编辑 
+
+[AI作画软件mimic大张旗鼓上线 日本画师集体抵制 - 动漫区 - STAGE1 (saraba1st.com)](https://bbs.saraba1st.com/2b/thread-2089869-1-1.html)
+
+大量画师抵制AI作画，宣布拒绝作品纳入训练集
+[https://bbs.saraba1st.com/2b/thread-2089904-1-1.html](https://bbs.saraba1st.com/2b/thread-2089904-1-1.html)
+
