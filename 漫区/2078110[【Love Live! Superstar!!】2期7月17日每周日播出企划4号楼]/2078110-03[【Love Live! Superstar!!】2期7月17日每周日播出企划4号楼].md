@@ -9069,3 +9069,57 @@ musical看人啊，纯新人就算了，人不了解都。企划要是聪明点�
 — ...</blockquote>
 但是她唱歌也不咋样啊
 
+
+
+*****
+
+####  Enakina  
+##### 3865#       发表于 2022-8-30 10:41
+
+ 本帖最后由 Enakina 于 2022-8-30 10:45 编辑 
+
+破企划虽然垃圾，但选人的眼光一向还可以，既然那么早要了铃原，还是青山和小百合后的第一顺位，可能铃原还是有点东西的，实际舞台出来再说吧
+不过现在好多人还寄希望于二期生舞台不要拉跨，这个也要没了的话，恐怕真的属于没啥盼头了
+
+*****
+
+####  优妮可  
+##### 3866#       发表于 2022-8-30 10:44
+
+<img src="https://img.saraba1st.com/forum/202208/30/104402j9z0hz2w0h622hlj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220830_104305.jpg</strong> (138.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 10:44 上传
+
+鱼，青山，熊
+
+*****
+
+####  Kfly  
+##### 3867#       发表于 2022-8-30 10:44
+
+ 本帖最后由 Kfly 于 2022-8-30 10:45 编辑 
+
+今明两鱼，鱼开始活跃起来了
+
+<img src="https://img.saraba1st.com/forum/202208/30/104428vvd7ffgvx78fjzdr.jpg" referrerpolicy="no-referrer">
+
+<strong>-1973192899.jpg</strong> (102.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 10:44 上传
+
+*****
+
+####  ads147147  
+##### 3868#       发表于 2022-8-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57270202&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-30 10:32</a>
+
+但是她唱歌也不咋样啊</blockquote>
+这得等等现场，现在土妹子的声线绝对是设计有问题了，比当初可可的声线还诡异。
+

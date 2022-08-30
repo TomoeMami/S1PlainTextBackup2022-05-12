@@ -559,3 +559,15 @@ lz应该是喜欢时髦洋气这种风格的
 
 我觉得火影的oped完全不比死神差
 
+
+
+*****
+
+####  圈量子  
+##### 67#       发表于 2022-8-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269994&amp;ptid=2089866" target="_blank">dev2ce 发表于 2022-8-30 10:18</a>
+梅泽演七大罪舞台剧还是tie上一回剧场版过，其他没什么印象，不靠质量卖歌就这样吧。过家家part1索尼一首 ...</blockquote>
+忘了梅泽的空扉，我的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过就这个我记得都是她自己甄选舞台剧后才有的CW
+这么说还有鸟月梅的映像研电视剧和电影<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">但是票房和圆盘也就那样吧……
+
