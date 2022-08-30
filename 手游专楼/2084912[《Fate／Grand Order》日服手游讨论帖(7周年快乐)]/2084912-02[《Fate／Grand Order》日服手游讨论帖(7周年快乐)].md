@@ -8001,3 +8001,19 @@ ELS（开20NP）+徐福+C呆+C呆
 话说 Erice 的资料6还没有解锁呢，这是暗示以后会有FR活动的复刻？也许要等小说出第3卷，今年是不指望了。 ...</blockquote>
 现在星空所有在FGO的活儿都转给茗荷屋了
 
+
+
+*****
+
+####  exiaexa  
+##### 2212#       发表于 2022-8-30 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57266734&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-8-29 23:12</a>
+然而我说的就是单体高难，高难Erice没有自主出星暴击一条龙影响蛮大的……
+
+111周回基本上是回收高的那几 ...</blockquote>
+？？？
+人上面说111周回不好使你跟人回高难cjb？
+你们装逼的时候都这么自由的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

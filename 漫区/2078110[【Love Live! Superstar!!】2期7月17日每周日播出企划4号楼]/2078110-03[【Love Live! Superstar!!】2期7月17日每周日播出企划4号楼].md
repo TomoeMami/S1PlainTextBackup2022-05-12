@@ -8775,3 +8775,15 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 3836#       发表于 2022-8-30 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268557&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-30 08:11</a>
+音乐剧的话，和我们这些外国观众就没啥大的关系了，看不到，感觉也没转播，而且不是现场的光影氛围，就算转 ...</blockquote>
+知道写不好 ≠ 可以写的烂
+制作组到底经历了什么，能把星二弄成这种击穿下限的模样，我倒是有些好奇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
