@@ -9645,3 +9645,14 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能联想，日本网民太可怕了
 
+
+
+*****
+
+####  holoan  
+##### 939#         楼主| 发表于 2022-8-30 18:37
+
+明早参加ame的rust内赛马企划
+
+这几天都是联动企划了
+

@@ -8151,3 +8151,14 @@ ELS（开20NP）+徐福+C呆+C呆
 —— 来自 OnePlus NE2210, Android 12上的 S1Next-鹅版 v2.5.2-play</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可大公他白送啊  甚至送了2宝啊（
 
+
+
+*****
+
+####  ggyy0088  
+##### 2224#       发表于 2022-8-30 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276356&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:53</a>
+可大公他白送啊  甚至送了2宝啊（</blockquote>
+抽水武藏甚至可以十连出两宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
