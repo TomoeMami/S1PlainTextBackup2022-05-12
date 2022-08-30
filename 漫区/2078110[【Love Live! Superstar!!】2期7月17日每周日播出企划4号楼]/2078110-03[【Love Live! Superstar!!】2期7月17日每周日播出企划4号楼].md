@@ -9538,3 +9538,15 @@ CelticWhite☕️🎮🆚📶🎮
 
 还行嘛，果然比起深仇大恨的整活还不如写日常
 
+
+
+*****
+
+####  ads147147  
+##### 3907#       发表于 2022-8-30 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279254&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-30 21:37</a>
+
+还行嘛，果然比起深仇大恨的整活还不如写日常</blockquote>
+第8话一眼就知道是主线了，人家vn说不定都要来，香音准备第二熟
+
