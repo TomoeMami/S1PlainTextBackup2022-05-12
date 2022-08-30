@@ -8886,3 +8886,28 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 感觉新人加入后，星团的图好多也拉了，上次看到感觉不错的图还是土妹子香音双裤袜的。。 ...</blockquote>
 下面这张不是挺好的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  凡人  
+##### 3847#       发表于 2022-8-30 09:01
+
+要是花田他们比铃原知道有二期的时间要晚，那就有点搞笑了
+
+*****
+
+####  cat1230  
+##### 3848#       发表于 2022-8-30 09:02
+
+打铁作为素人太强导致上头大人物以为香音也可以照样无敌<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  钞君  
+##### 3849#       发表于 2022-8-30 09:06
+
+岸本×小岛就是很传统的日本音乐剧风格，和歌剧少女那种不是一个类型。有兴趣了解的话可以看魔女宅急便，有中文版巡演，是他们俩的作品。
+
