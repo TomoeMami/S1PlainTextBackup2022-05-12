@@ -1989,3 +1989,39 @@ AYA老板做营销出身的，对于怎么炒热度，怎么搞饥饿营销这�
 
 我也退款了 不如等等2geek<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 166#         楼主| 发表于 2022-8-30 14:57
+
+插播一个非 PC 掌机新闻，腾讯与罗技合作的云掌机的泄露图：
+
+<img src="https://img.saraba1st.com/forum/202208/30/145551iyyys8zyys0yyasf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202208/30/145603uyyycc5mb94chmss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 14:56 上传
+
+Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客户端（怎么有两个 XBOX）。
+
+*****
+
+####  医生狼多  
+##### 167#       发表于 2022-8-30 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273971&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-30 14:57</a>
+插播一个非 PC 掌机新闻，腾讯与罗技合作的云掌机的泄露图：</blockquote>
+有无其他参数
+

@@ -7368,3 +7368,14 @@ vox简中最大的靠山当然还是年一管粉圈小姐妹，真htj估计占�
 
 全肯定全否定都nt 
 
+
+
+*****
+
+####  winda  
+##### 17181#       发表于 2022-8-30 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268798&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 08:43</a>
+泥哥htj拿“虹人生态”给vox洗地也是真的好恶心啊，你虹老喜欢讲直球黄段子和对同事开过激玩笑也只有他vox ...</blockquote>
+nina，reimu包括enna嘴也挺臭的<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">不知道这过激玩笑的边界在哪
+
