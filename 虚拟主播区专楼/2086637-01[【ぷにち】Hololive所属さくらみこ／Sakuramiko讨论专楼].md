@@ -9684,3 +9684,12 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是建鬼屋建习惯了
 
+
+
+*****
+
+####  rs5621  
+##### 943#       发表于 2022-8-30 20:10
+
+这房子整得太大了吧
+
