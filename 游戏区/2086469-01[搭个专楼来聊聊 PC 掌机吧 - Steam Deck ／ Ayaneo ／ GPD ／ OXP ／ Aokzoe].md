@@ -1941,3 +1941,25 @@ AYA老板做营销出身的，对于怎么炒热度，怎么搞饥饿营销这�
 
 +1，黑色的air pro 5560u版本，起个大早赶个晚集
 
+
+
+*****
+
+####  bypass  
+##### 161#         楼主| 发表于 2022-8-30 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273162&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2022-8-30 13:56</a>
+
++1，黑色的air pro 5560u版本，起个大早赶个晚集</blockquote>
+突然想起来我的白色好像还比你的黑色可能更快一点 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  luffyzhou  
+##### 162#       发表于 2022-8-30 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273306&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-30 14:07</a>
+
+突然想起来我的白色好像还比你的黑色可能更快一点</blockquote>
+这算互相伤害么<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
