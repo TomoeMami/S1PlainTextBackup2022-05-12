@@ -7518,3 +7518,12 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 
 — from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  CarlSteve  
+##### 17193#       发表于 2022-8-30 19:04
+
+相比嘴臭用vulgar形容他更贴切。一般纯路人也受不了他说的话，比如milk and cream。
+

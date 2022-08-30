@@ -685,3 +685,14 @@ s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两
 
 不都是一等一的高手
 
+
+
+*****
+
+####  动如雷霆  
+##### 77#       发表于 2022-8-30 19:06
+
+life is a boat我现在依然经常听
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
