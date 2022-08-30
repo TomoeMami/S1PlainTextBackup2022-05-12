@@ -7379,3 +7379,17 @@ vox简中最大的靠山当然还是年一管粉圈小姐妹，真htj估计占�
 泥哥htj拿“虹人生态”给vox洗地也是真的好恶心啊，你虹老喜欢讲直球黄段子和对同事开过激玩笑也只有他vox ...</blockquote>
 nina，reimu包括enna嘴也挺臭的<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">不知道这过激玩笑的边界在哪
 
+
+
+*****
+
+####  fastary  
+##### 17182#       发表于 2022-8-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273908&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-30 14:52</a>
+
+nina，reimu包括enna嘴也挺臭的不知道这过激玩笑的边界在哪</blockquote>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一份，和所谓“虹人生态”没有半毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

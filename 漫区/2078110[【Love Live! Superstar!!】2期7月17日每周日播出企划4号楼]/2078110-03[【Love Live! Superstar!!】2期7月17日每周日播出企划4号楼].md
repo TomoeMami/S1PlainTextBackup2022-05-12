@@ -9363,3 +9363,12 @@ fo数最高的是绘森彩，与其说是眼光，不如说4个新人里有2个�
 那结那的事务所你了解么，是没什么资源还是结那是富二代啊，看她好像天天去玩不用上班的样子。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不清楚 应该不是特别出名的事务所...日本女艺人都这种状态吧 好像演舞台剧多
 
+
+
+*****
+
+####  cybernetics31  
+##### 3895#       发表于 2022-8-30 16:53
+
+不知道这个musical是纯新人还是怎样…………之前的v也是一点消息都没
+
