@@ -9294,3 +9294,23 @@ v团+音乐剧团+三期生，今年结束之前LL世界可能会增加近20人<
 
 顺着问个题外话，不怎么了解音乐这方面，好奇有那种Live一直比CD好的歌手吗，我很自然的认为Live比CD好要么是歌手水平或者是熟练程度提升了，要么就是CD制作不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 3888#       发表于 2022-8-30 13:37
+
+唱跳的话基本不太可能，站桩倒是有很多的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 3889#       发表于 2022-8-30 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272886&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-30 13:30</a>
+ 顺着问个题外话，不怎么了解音乐这方面，好奇有那种Live一直比CD好的歌手吗，我很自然的认为Live比CD好要么 ...</blockquote>
+我觉得这种情况一般出现在摇滚乐队身上
+
