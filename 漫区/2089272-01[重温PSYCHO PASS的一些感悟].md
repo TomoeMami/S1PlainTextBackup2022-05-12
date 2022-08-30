@@ -703,3 +703,15 @@ ss时悬崖勒马，宁可让霜月跟之前的印象对不上也要把握住“
 
 更多的例子在第三季，记得是第二集吧，男一在追捕犯人时闪过一个平民在戴着老旧的VR设备在赛博模拟吃泡面
 
+
+
+*****
+
+####  Raising_Heart  
+##### 70#       发表于 2022-8-30 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268542&amp;ptid=2089272" target="_blank">elshaddai 发表于 2022-8-30 08:09</a>
+
+系统是由免罪体质的人的大脑组成的，那系统上线前如何找出这些人呢？</blockquote>
+人一直存在，但有分辨他们的办法以前他们都会被埋没。色相系统我记得第一部也提了，其完全接管是个很慢的过程
+
