@@ -7339,3 +7339,12 @@ htj看到纯种粉丝团集美进来吓都吓死了<img src="https://static.sara
 
 vox简中最大的靠山当然还是年一管粉圈小姐妹，真htj估计占比很小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Paisley  
+##### 17178#       发表于 2022-8-30 13:16
+
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
