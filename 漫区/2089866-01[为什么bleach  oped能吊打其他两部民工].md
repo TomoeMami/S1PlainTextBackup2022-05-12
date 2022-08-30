@@ -571,3 +571,14 @@ lz应该是喜欢时髦洋气这种风格的
 忘了梅泽的空扉，我的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过就这个我记得都是她自己甄选舞台剧后才有的CW
 这么说还有鸟月梅的映像研电视剧和电影<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">但是票房和圆盘也就那样吧……
 
+
+
+*****
+
+####  天宮奏  
+##### 68#       发表于 2022-8-30 11:39
+
+velonica不错，年少无知时被velonica典型的「用普通的词语将理所当然的事一脸得意地唱得有滋有味」的jpop歌词深深吸引，其他的是好听不过不喜欢
+
+钢炼算民工吗？如果算的话我觉得FA的OPED都很牛
+
