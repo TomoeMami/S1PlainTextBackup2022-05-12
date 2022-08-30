@@ -8162,3 +8162,12 @@ ELS（开20NP）+徐福+C呆+C呆
 可大公他白送啊  甚至送了2宝啊（</blockquote>
 抽水武藏甚至可以十连出两宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2225#       发表于 2022-8-30 21:37
+
+虽然点数给了一张，但是，泳7是不掉礼装的吗？毕业了一张没掉
+
