@@ -8228,3 +8228,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊
 
+
+
+*****
+
+####  qixinno2  
+##### 2231#       发表于 2022-8-30 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280056&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 23:05</a>
+
+萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经2200W+了
+

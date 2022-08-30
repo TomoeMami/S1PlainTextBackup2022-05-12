@@ -7578,3 +7578,14 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 看来你真的不看他直播</blockquote>
 他是在推特上把自己的话吃回去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17198#       发表于 2022-8-30 23:17
+
+确实不看了，有人骂观众的妈还上赶着送同接订阅，这事儿谁愿意谁上吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是否出于娱乐性质的自嘲和暴言，感觉还是不一样的
+
