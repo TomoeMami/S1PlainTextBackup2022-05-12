@@ -8044,3 +8044,14 @@ ELS（开20NP）+徐福+C呆+C呆
 
 我还以为只有NGA在吹仇绘高难<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2215#       发表于 2022-8-30 09:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为真萌新没有强力单体打手啊！活动试用的时候觉得伤害不错才狂砸石头抽的
+
+活动高难一般三令咒，这次倒是摩根直接A过去；之前刷90++也主要是借剑单，当然我不在意加成随便打的
+
