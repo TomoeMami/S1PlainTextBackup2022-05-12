@@ -9914,3 +9914,22 @@ miko盖房子熟练度是够了关键是chat栏每次告知时间都没注意一
 
 不知道要说什么
 
+
+
+*****
+
+####  rs5621  
+##### 968#       发表于 2022-8-31 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是rust好玩
+
+话说这播放量怎么越播越少了,昨晚看还是69w的
+
+<img src="https://img.saraba1st.com/forum/202208/31/003045zh8k2knfpln6xen4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 00:30 上传
+

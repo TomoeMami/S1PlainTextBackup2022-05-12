@@ -7589,3 +7589,12 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 
 是否出于娱乐性质的自嘲和暴言，感觉还是不一样的
 
+
+
+*****
+
+####  Paisley  
+##### 17199#       发表于 2022-8-31 00:39
+
+理解成本人贱又一堆集美护惹人烦就得了，遇到谁都能来一句你妈卖了还可劲护的观众真的挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

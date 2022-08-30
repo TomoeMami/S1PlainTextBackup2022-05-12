@@ -8313,3 +8313,20 @@ ELS（开20NP）+徐福+C呆+C呆
 不过我马娘备战充分结果3%概率400+抽5彩直接血崩，可能运气真献祭在这里了吧 ...</blockquote>
 那我估计就是公主连接170连3彩祭天了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2238#       发表于 2022-8-31 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下原来我刷的居然比印象中多
+
+<img src="https://img.saraba1st.com/forum/202208/31/003318lujez2phea269dae.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-08-31-01-25-58-08_13e7a6b10873871.jpg</strong> (465.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 00:33 上传
+
