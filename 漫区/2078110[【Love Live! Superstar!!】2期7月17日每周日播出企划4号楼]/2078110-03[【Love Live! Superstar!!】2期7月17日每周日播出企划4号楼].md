@@ -8804,3 +8804,14 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 可这是摆烂都不一定做得到的剧本，其中的一些细节甚至是有用心弄的
 我觉着这是处于用心&amp;摆烂的叠加态啊，半吊子的心态比直接摆烂伤害可大的多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3839#       发表于 2022-8-30 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268517&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-30 08:04</a>
+………无语了都</blockquote>
+其实还好，无非是获得了二期生选拔的时间，毕竟以铃原采访提供的信息来看，搞二期生早有计划了，只是觉得从铃原的 可能确定出演 到其他二期生开始选拔竟然过了这么久，也是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
