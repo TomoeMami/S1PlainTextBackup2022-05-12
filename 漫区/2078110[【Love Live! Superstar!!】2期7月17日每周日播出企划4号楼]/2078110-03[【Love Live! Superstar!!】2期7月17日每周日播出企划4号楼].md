@@ -8929,3 +8929,30 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 他这个有点歧义，联系上下文，我觉得指的是缪一期吧
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3852#       发表于 2022-8-30 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269225&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-8-30 09:21</a>
+ 他这个有点歧义，联系上下文，我觉得指的是缪一期吧</blockquote>
+我觉得应该指的就是星一期，yabu看缪是小时候的事情了。而且前几天emorin也说自己是在一单MV出来以后过了一段时间才参加的试镜，时间上也对得上。
+
+*****
+
+####  cybernetics31  
+##### 3853#       发表于 2022-8-30 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">musical看人啊，纯新人就算了，人不了解都。企划要是聪明点就直接跨团来，水虹好几个中之人都有舞台剧履历，带几个星，剧中剧效果不要太好。
+
+*****
+
+####  Enakina  
+##### 3854#       发表于 2022-8-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269258&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-30 09:23</a>
+我觉得应该指的就是星一期，yabu看缪是小时候的事情了。而且前几天emorin也说自己是在一单MV出来以后过了 ...</blockquote>
+那指的是星一期的话，就变成了yabu没参加过一期选拔，直接参加的二期了，不过上次铃原说自己一期刚落就被告知要不要参加二期生，这么看她的确是最特殊的一个了
+
