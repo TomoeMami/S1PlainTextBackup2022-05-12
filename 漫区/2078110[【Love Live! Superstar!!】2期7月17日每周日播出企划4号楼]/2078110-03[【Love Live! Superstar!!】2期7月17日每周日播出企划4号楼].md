@@ -9285,3 +9285,12 @@ v团+音乐剧团+三期生，今年结束之前LL世界可能会增加近20人<
 
 等live吧，确实现在铃原无论是录音室出来的效果还是动画配音都感觉是垫底的水平，我不知道现场表现力得多好才能被企划早早挑中，如果单凭长得有点可爱就上了实在是有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3887#       发表于 2022-8-30 13:30
+
+顺着问个题外话，不怎么了解音乐这方面，好奇有那种Live一直比CD好的歌手吗，我很自然的认为Live比CD好要么是歌手水平或者是熟练程度提升了，要么就是CD制作不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
