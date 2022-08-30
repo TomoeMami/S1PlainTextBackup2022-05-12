@@ -7242,3 +7242,14 @@ vspo可以玩喷喷了？
 
 国内这是要把vox赶出去的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17169#       发表于 2022-8-30 08:39
+
+不过是饭圈大战而已，支持vox的全肯定萌萌和要把他赶出去的过激集美哪个多还不好说呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不得不说泥哥因为部分fqmm破防了就(口头)支持另一部分fqmm推崇的人还挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
