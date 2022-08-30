@@ -9656,3 +9656,33 @@ Pay庆祝初音生日
 由手机上传
 2022-8-30 23:49 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3910#       发表于 2022-8-31 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280436&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-30 23:49</a>
+
+あs 翻译嵌字：洲崎惠梨</blockquote>
+最后面这个是P图吧，这图的原图出处可能不好找了，不过貌似去年11月的一个高赞和高转推的推或许是原出处
+
+*****
+
+####  仟音一心  
+##### 3911#       发表于 2022-8-31 00:04
+
+<blockquote>aoaoaodedede 发表于 2022-8-31 00:01
+最后面这个是P图吧，这图的原图出处可能不好找了，不过貌似去年11月的一个高赞和高转推的推或许是原出处 ...</blockquote>
+是的
+
+<img src="https://img.saraba1st.com/forum/202208/31/000439ccs4h3f3661z5104.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90FF5C27-5B50-42CD-A8FC-5492503B1777.jpeg</strong> (547.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-31 00:04 上传
+
