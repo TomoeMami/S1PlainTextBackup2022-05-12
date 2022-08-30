@@ -8261,3 +8261,20 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我马娘备战充分结果3%概率400+抽5彩直接血崩，可能运气真献祭在这里了吧
 
+
+
+*****
+
+####  qixinno2  
+##### 2234#       发表于 2022-8-30 23:40
+
+<img src="https://img.saraba1st.com/forum/202208/30/234013a386a3s13vvc1cad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (379.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:40 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经刷不动了
+
