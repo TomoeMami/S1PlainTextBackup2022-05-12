@@ -9534,3 +9534,31 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 930#         楼主| 发表于 2022-8-30 10:02
+
+45分钟准备+45分钟攻防，时间不会太长
+
+关键是这种事情你不直播前小组开会讨论战术上来随便瞎搞是不可能的，
+
+还记得上次直播最后和大头和马自立很自然地成立了联盟吗，因为那时就已经确定今天的组队名单了，这是个伏笔
+
+
+
+*****
+
+####  holoan  
+##### 931#         楼主| 发表于 2022-8-30 10:10
+
+<img src="https://img.saraba1st.com/forum/202208/30/101031nby5zqo6yq5pzqah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 10:10 上传
+

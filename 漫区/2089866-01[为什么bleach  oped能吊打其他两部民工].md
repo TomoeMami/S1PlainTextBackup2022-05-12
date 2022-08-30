@@ -508,3 +508,16 @@ being就这一个稳定热度的东西能不认真吗
 然后当时配了个迷惑MV，以火影的热度正经拍一个MV，或者动画内容做一个，ytb不是随便破亿，剪影都2亿了 ...</blockquote>
 确实挺不解的，后来13单配合冈妈的心叫也给了不少宣传，结果坂道系在那之后就不怎么tie动漫了。这两年也就日向坂给deemo里放了nibu当声优和拍了个声优相关日剧。明明间谍过家家原作者都是个狂热坂狗，都不知道安排个声优客串，也许到时候真人版塞两个演员？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cushaw  
+##### 62#       发表于 2022-8-30 10:05
+
+ 本帖最后由 Cushaw 于 2022-8-30 10:10 编辑 
+
+说一个不太相关的，钢炼的oped真不错吧
+色涂的メリッサ 彩虹的ready steady go 还有アジカン的リライト 哪首都很能打
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
