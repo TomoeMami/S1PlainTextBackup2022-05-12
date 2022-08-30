@@ -7503,3 +7503,18 @@ vox单纯就是能力支撑不了他这体量，菜是原罪<img src="https://st
 
 所谓“糊是最好的保护色”
 
+
+
+*****
+
+####  dclara1  
+##### 17192#       发表于 2022-8-30 18:45
+
+去找了些vox切片看抓马
+
+a对b开玩笑，结果c被冒犯了，要给b打抱不平
+
+美国人对这个就再熟悉不过了。想起key &amp; peele的其中一集
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
