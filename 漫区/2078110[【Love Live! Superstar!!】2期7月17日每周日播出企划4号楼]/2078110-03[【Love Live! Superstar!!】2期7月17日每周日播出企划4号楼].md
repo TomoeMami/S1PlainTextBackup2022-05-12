@@ -9276,3 +9276,12 @@ v团+音乐剧团+三期生，今年结束之前LL世界可能会增加近20人<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等公布后就该车资源问题了，好日子还在后头呢
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3886#       发表于 2022-8-30 13:08
+
+等live吧，确实现在铃原无论是录音室出来的效果还是动画配音都感觉是垫底的水平，我不知道现场表现力得多好才能被企划早早挑中，如果单凭长得有点可爱就上了实在是有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

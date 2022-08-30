@@ -7320,3 +7320,22 @@ obsydia全员boin boin
 
 htj看到纯种粉丝团集美进来吓都吓死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 17177#       发表于 2022-8-30 13:04
+
+ 本帖最后由 毛头小希 于 2022-8-30 13:06 编辑 
+
+我觉得尼姑庵的htj主要还是在liver全肯定的意义上护vox
+
+不是明面上跟另一个虹liver撕破脸或者明确的触犯法律或者经济条款问题比如金鱼或者雷速登那样的
+
+他们不会正面抨击任何一个虹liver
+
+实际上看楼的建设速度就懂了尼姑庵htj主要看的还是本家，EN除了真心喜爱热情盖楼的那几个其他基本属于爱屋及乌或者“不熟”
+
+vox简中最大的靠山当然还是年一管粉圈小姐妹，真htj估计占比很小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
