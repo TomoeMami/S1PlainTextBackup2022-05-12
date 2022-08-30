@@ -7527,3 +7527,16 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 
 相比嘴臭用vulgar形容他更贴切。一般纯路人也受不了他说的话，比如milk and cream。
 
+
+
+*****
+
+####  winda  
+##### 17194#       发表于 2022-8-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些
+
