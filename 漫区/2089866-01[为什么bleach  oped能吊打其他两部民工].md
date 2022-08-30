@@ -752,3 +752,14 @@ TV最终章要放了还不能吹一下优点，搞体育论坛谁菜谁没有呼
 
 死神的OP是真的时髦，这个加分估计不少，虽然本身歌就很好听
 
+
+
+*****
+
+####  zayrq  
+##### 83#       发表于 2022-8-30 22:26
+
+火影的op更有anisong的味，死神的op有些看起来更像mv
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
