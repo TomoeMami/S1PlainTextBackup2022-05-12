@@ -8017,3 +8017,21 @@ ELS（开20NP）+徐福+C呆+C呆
 你们装逼的时候都这么自由的吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2213#       发表于 2022-8-30 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268601&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-30 08:18</a>
+
+？？？
+
+人上面说111周回不好使你不忙帮解决问题也就算了，反而跟人回高难cjb？
+
+你们装逼的时候都这么自由 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这玩意一开始评价就是高难向啊
+
+我无非就是补了句高难打下来也不好使
+
