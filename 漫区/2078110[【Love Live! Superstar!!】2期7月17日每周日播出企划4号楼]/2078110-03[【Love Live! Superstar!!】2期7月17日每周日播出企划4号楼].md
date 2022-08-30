@@ -8787,3 +8787,20 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 知道写不好 ≠ 可以写的烂
 制作组到底经历了什么，能把星二弄成这种击穿下限的模样，我倒是有些好奇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 3837#       发表于 2022-8-30 08:22
+
+还能经历啥，制作组没厨力呗，又碰上加入这种事，估计上头的大人还各种要求，干脆直接躺平咯。这季度连歌的质量都下滑了不少，你就知道实属集体摆烂了。
+
+*****
+
+####  Kfly  
+##### 3838#       发表于 2022-8-30 08:30
+
+可这是摆烂都不一定做得到的剧本，其中的一些细节甚至是有用心弄的
+我觉着这是处于用心&amp;摆烂的叠加态啊，半吊子的心态比直接摆烂伤害可大的多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
