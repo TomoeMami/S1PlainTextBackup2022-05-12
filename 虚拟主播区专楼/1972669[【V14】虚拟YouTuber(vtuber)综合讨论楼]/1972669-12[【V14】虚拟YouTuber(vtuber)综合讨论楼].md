@@ -7393,3 +7393,36 @@ nina，reimu包括enna嘴也挺臭的不知道这过激玩笑的边界在哪</bl
 
 是的话那也是en独一份，和所谓“虹人生态”没有半毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 17183#       发表于 2022-8-30 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+用妈开玩笑具体是什么？
+
+如果是Your mom系列那就是英文玩笑老梗了，攻击性远没有中文语境看上去那么强
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Ronu  
+##### 17184#       发表于 2022-8-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+en就这样，氛围和jp那边不一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+互call bitch问候家人why you still alive，戳别人各种黑历史痛点找乐子什么的是家常便饭了
+
+不管再怎么说，我想正常主播都不会希望观众在那边瞎起哄强出头，尤其矛头还是对着自己合作过的同事。真有问题他们也会自己私下解决
+“我家推受委屈了呜呜呜”基本纯属幻想
+幕后委屈的事儿多着呢，但是应该基本都不是weibo集美们在冲的那些
+

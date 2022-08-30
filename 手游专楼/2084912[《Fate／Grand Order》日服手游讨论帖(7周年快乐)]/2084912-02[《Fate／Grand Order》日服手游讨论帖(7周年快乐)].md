@@ -8100,3 +8100,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们居然没有大公吗.jpg
 
+
+
+*****
+
+####  rooarr  
+##### 2220#       发表于 2022-8-30 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275714&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:07</a>
+
+你们居然没有大公吗.jpg</blockquote>
+1宝伤害不够.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
