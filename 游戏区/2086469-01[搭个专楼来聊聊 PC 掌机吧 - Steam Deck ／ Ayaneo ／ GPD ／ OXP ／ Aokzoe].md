@@ -2025,3 +2025,24 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 插播一个非 PC 掌机新闻，腾讯与罗技合作的云掌机的泄露图：</blockquote>
 有无其他参数
 
+
+
+*****
+
+####  bypass  
+##### 168#         楼主| 发表于 2022-8-30 15:03
+
+ 本帖最后由 bypass 于 2022-8-30 15:05 编辑 
+
+@医生狼多 暂时还没，老朋友 evleaks 发的泄露图：
+
+<img src="https://img.saraba1st.com/forum/202208/30/150312w2fflj767o8pz06p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 15:03 上传
+
+附上之前的那个官方博文：[https://blog.logitech.com/2022/0 ... dheld-cloud-gaming/](https://blog.logitech.com/2022/08/02/logitech-g-and-tencent-games-announce-partnership-to-advance-handheld-cloud-gaming/)
+
