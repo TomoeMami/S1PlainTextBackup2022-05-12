@@ -8815,3 +8815,28 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
 ………无语了都</blockquote>
 其实还好，无非是获得了二期生选拔的时间，毕竟以铃原采访提供的信息来看，搞二期生早有计划了，只是觉得从铃原的 可能确定出演 到其他二期生开始选拔竟然过了这么久，也是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3840#       发表于 2022-8-30 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268691&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-8-30 08:30</a>
+
+可这是摆烂都不一定做得到的剧本，其中的一些细节甚至是有“用心”弄的
+
+我觉着这是处于用心&amp;摆烂的叠加态啊 ...</blockquote>
+现在的op2，别的且不说，开头一过直接香音大饼脸，画的那叫个用心，也不想想这剧本让得了香音ptsd的人看到这个画面多惊吓。上头的大人物可能真觉得这样是好的。
+
+二期生这边，只能说时间点上可能说明播出前花田京极不知道要加人，个人感觉概率很小，最多10%。
+
+
+
+*****
+
+####  lj205  
+##### 3841#       发表于 2022-8-30 08:51
+
+啊这样土妹还真是钦定的二期C啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -7253,3 +7253,12 @@ vspo可以玩喷喷了？
 
 不得不说泥哥因为部分fqmm破防了就(口头)支持另一部分fqmm推崇的人还挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17170#       发表于 2022-8-30 08:43
+
+泥哥htj拿“虹人生态”给vox洗地也是真的好恶心啊，你虹老喜欢讲直球黄段子和对同事开过激玩笑也只有他vox独一份好吗
+
