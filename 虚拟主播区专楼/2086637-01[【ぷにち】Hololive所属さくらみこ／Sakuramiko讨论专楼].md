@@ -9734,3 +9734,19 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，都打过来了，还在楼顶到处逛有说有笑
 
+
+
+*****
+
+####  ZQXY2002  
+##### 949#       发表于 2022-8-30 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">难怪自家都不装陷阱，老是自爆
+
+*****
+
+####  qesto  
+##### 950#       发表于 2022-8-30 20:55
+
+mikochi杀疯了
+
