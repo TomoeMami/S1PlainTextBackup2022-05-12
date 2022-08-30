@@ -775,3 +775,15 @@ AI作画软件mimic大张旗鼓上线 日&amp;#x6 ...</blockquote>
 
 这是小说版方舟事件的剧情
 
+
+
+*****
+
+####  发财就收  
+##### 76#       发表于 2022-8-30 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272955&amp;ptid=2089272" target="_blank">Siran_China 发表于 2022-8-30 13:37</a>
+
+PP1情节忘得差不多了，正好问问坛友，剧里有没有提到过西比拉的创造者？到底是厚生省哪个崽种干的 ...</blockquote>
+没有提过西比拉的创造者（估计也不会提），只提过西比拉采用的大脑并行运算技术在故事开始的几十年前就在应用
+

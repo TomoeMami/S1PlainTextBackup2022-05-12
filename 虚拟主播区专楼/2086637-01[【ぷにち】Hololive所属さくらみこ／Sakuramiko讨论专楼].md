@@ -9625,3 +9625,14 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 937#         楼主| 发表于 2022-8-30 16:15
+
+开窗了
+
+不过时间好像搞错了
+
