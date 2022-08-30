@@ -9766,3 +9766,19 @@ mikochi杀疯了
 
 koyori先辈？
 
+
+
+*****
+
+####  rs5621  
+##### 953#       发表于 2022-8-30 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太痛了，3个火箭筒和c4没了
+
+*****
+
+####  rs5621  
+##### 954#       发表于 2022-8-30 21:18
+
+萝卜子来送c4了
+
