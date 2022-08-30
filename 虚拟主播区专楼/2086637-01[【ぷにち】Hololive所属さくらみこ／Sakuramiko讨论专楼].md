@@ -9656,3 +9656,13 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 这几天都是联动企划了
 
+
+
+*****
+
+####  rs5621  
+##### 940#       发表于 2022-8-30 18:58
+
+好，都不看评论！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸽子死了
+
