@@ -9702,3 +9702,19 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这房子弄的好脆弱啊，只能守家了
 
+
+
+*****
+
+####  rs5621  
+##### 945#       发表于 2022-8-30 20:31
+
+35这房子弯弯绕绕的还四处漏风，最重要的风化箱子还是裸着的，这下要完咯。
+
+*****
+
+####  mqnwbeebwnqm  
+##### 946#       发表于 2022-8-30 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脑回路的确异于常人
+
