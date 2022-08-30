@@ -9666,3 +9666,12 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 好，都不看评论！！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸽子死了
 
+
+
+*****
+
+####  holoan  
+##### 941#         楼主| 发表于 2022-8-30 19:13
+
+和amongus一样的
+
