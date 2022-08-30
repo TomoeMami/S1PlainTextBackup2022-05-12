@@ -658,3 +658,17 @@ s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两
 
 死神时髦，但没几首喜欢的，比火影好。
 
+
+
+*****
+
+####  ricarto  
+##### 75#       发表于 2022-8-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268445&amp;ptid=2089866" target="_blank">圈量子 发表于 2022-8-30 07:48</a>
+
+草，这首是第7张单曲バレッタ收录的，那个时候乃木坂销量还只有几十万呢 ...</blockquote>
+销量里火影的歌确实都是偏少的，大部分都不是什么大red，没办法。
+
+但是歌本身质量和画面契合度都是很优秀的
+
