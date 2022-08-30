@@ -7463,3 +7463,12 @@ syl
 
 ↑我无意伸张正义或是为其他en成员打抱不平，单纯觉得用“虹人生态”和“问题儿童收容所”去轻飘飘全肯定vox或者说en的混沌非常让我恶心
 
+
+
+*****
+
+####  Ronu  
+##### 17188#       发表于 2022-8-30 17:55
+
+vox单纯就是能力支撑不了他这体量，菜是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
