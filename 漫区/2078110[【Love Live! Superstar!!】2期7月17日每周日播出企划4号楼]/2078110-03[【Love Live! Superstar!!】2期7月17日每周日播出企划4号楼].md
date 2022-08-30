@@ -9029,3 +9029,43 @@ musical看人啊，纯新人就算了，人不了解都。企划要是聪明点�
 抛开很多其他情况和推测不谈，星这边肯定不可能带的，舞台剧企划现在这俩个地的表演，每个地的日期上都有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那就决定sunny passion上了
 
+
+
+*****
+
+####  ads147147  
+##### 3861#       发表于 2022-8-30 10:25
+
+看铃原的素质，确实应该是海选里小百合和青山往下第一人选了（我觉得动画配的难听完全是音监的问题。）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 3862#       发表于 2022-8-30 10:29
+
+是企划选好了人再安排进ab这个事务所么
+
+*****
+
+####  梶原ひかり  
+##### 3863#       发表于 2022-8-30 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57270157&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-30 10:29</a>
+
+是企划选好了人再安排进ab这个事务所么</blockquote>
+是的...当初甄选的一个要求就是加入amuse的事务所
+
+*****
+
+####  lj205  
+##### 3864#       发表于 2022-8-30 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57270111&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-8-30 10:25</a>
+
+看铃原的素质，确实应该是海选里小百合和青山往下第一人选了（我觉得动画配的难听完全是音监的问题。）
+
+— ...</blockquote>
+但是她唱歌也不咋样啊
+
