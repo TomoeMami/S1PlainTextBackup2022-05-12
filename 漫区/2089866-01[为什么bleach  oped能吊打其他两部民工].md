@@ -786,3 +786,16 @@ TV最终章要放了还不能吹一下优点，搞体育论坛谁菜谁没有呼
 
 当年热播的时候就记得火影的歌上过ASL，死海的有没上过没记住！
 
+
+
+*****
+
+####  bgmilk  
+##### 87#       发表于 2022-8-31 00:26
+
+ 本帖最后由 bgmilk 于 2022-8-31 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276514&amp;ptid=2089866" target="_blank">黑猫桑 发表于 2022-8-30 18:05</a>
+
+s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪 ...</blockquote>
+    海贼的动画确实是三个里最烂的啊，有什么好难堪的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

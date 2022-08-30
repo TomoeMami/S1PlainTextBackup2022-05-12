@@ -8292,3 +8292,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  alucardcz  
+##### 2236#       发表于 2022-8-31 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280166&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-30 23:18</a>
+
+我已经2200W+了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 我刷到后面刷牛津去了
+
+*****
+
+####  khxooo  
+##### 2237#       发表于 2022-8-31 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280323&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-30 23:37</a>
+不过我马娘备战充分结果3%概率400+抽5彩直接血崩，可能运气真献祭在这里了吧 ...</blockquote>
+那我估计就是公主连接170连3彩祭天了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
