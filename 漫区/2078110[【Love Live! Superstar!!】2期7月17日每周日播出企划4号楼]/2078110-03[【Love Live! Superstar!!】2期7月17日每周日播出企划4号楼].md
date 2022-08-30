@@ -9267,3 +9267,12 @@ non个人感觉挺不错的，软实力足够了，就是硬实力还需要一�
 
 v团+音乐剧团+三期生，今年结束之前LL世界可能会增加近20人<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3885#       发表于 2022-8-30 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等公布后就该车资源问题了，好日子还在后头呢
+
