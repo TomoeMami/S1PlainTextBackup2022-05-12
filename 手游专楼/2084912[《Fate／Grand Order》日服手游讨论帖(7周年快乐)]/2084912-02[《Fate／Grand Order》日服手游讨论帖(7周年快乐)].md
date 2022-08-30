@@ -8070,3 +8070,15 @@ ELS（开20NP）+徐福+C呆+C呆
 日服没千里眼本来就是有什么用什么，办法是人想的又不是计算器按出来的，我els都是抱着试试看的想法临时拉的30+20np
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2217#       发表于 2022-8-30 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57270970&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-30 11:21</a>
+
+日服没千里眼本来就是有什么用什么，办法是人想的又不是计算器按出来的，我els都是抱着试试看的想法临时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只是试试看打了两把罢了，第一把还换错人损失40AP.。反正日后有合适的场合就能拿出来用啦
+
