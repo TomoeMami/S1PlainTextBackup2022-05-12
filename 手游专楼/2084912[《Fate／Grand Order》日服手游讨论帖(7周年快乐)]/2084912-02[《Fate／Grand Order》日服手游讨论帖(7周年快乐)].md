@@ -8171,3 +8171,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 虽然点数给了一张，但是，泳7是不掉礼装的吗？毕业了一张没掉
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2226#       发表于 2022-8-30 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于吧…我好像刷了一千万点礼装掉了好几张，只不过都没法凑第二个满破
+
