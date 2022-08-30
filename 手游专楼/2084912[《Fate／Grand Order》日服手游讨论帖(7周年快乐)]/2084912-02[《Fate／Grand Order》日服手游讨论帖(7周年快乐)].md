@@ -8330,3 +8330,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 2022-8-31 00:33 上传
 
+
+
+*****
+
+####  铁柱子  
+##### 2239#       发表于 2022-8-31 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279980&amp;ptid=2084912" target="_blank">清风朗月 发表于 2022-8-30 22:55</a>
+
+20块日服号出了三个宝石老头，加上魔道元帅一共四个，现在冲刺拿一包女武神了 ...</blockquote>
+什么一宝，不睡觉也要拿满宝<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
