@@ -8278,3 +8278,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经刷不动了
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2235#       发表于 2022-8-31 00:11
+
+<blockquote>引用第2231楼雾谷藤乃于2022-08-30 23:23发表的  :
+
+引用:alucardcz 发表于 2022-8-30 23:05萌新我辛辛苦苦刷了快1200万了 为......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">备战有个蛋用，伊吹吃井，旧梅+RBA也是一井以上，非起来就这样
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
