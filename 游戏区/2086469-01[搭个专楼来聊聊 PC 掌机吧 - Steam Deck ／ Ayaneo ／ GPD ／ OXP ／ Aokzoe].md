@@ -1963,3 +1963,29 @@ AYA老板做营销出身的，对于怎么炒热度，怎么搞饥饿营销这�
 突然想起来我的白色好像还比你的黑色可能更快一点</blockquote>
 这算互相伤害么<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  恋妖壶  
+##### 163#       发表于 2022-8-30 14:12
+
+我退款了，马上拿到时候估计AOK也马上发货了，没必要了
+
+*****
+
+####  bypass  
+##### 164#         楼主| 发表于 2022-8-30 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273343&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2022-8-30 14:10</a>
+
+这算互相伤害么</blockquote>
+哈哈没差几天，难兄难弟了属于是。
+
+*****
+
+####  信长的呕吐  
+##### 165#       发表于 2022-8-30 14:21
+
+我也退款了 不如等等2geek<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

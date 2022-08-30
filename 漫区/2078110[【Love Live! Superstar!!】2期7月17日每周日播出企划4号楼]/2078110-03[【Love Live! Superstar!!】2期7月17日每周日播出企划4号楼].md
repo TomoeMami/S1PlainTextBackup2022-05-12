@@ -9323,3 +9323,15 @@ v团+音乐剧团+三期生，今年结束之前LL世界可能会增加近20人<
 
 鱼的一专不就是混音奇差，live的效果非常好
 
+
+
+*****
+
+####  星降る森  
+##### 3891#       发表于 2022-8-30 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57271754&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-8-30 12:09</a>
+
+有一说一，现阶段铃原粉应该是二期最高吧，这也算是眼光啊。</blockquote>
+fo数最高的是绘森彩，与其说是眼光，不如说4个新人里有2个太不会营业了
+
