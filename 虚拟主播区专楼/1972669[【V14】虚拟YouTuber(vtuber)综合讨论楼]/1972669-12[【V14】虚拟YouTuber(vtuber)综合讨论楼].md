@@ -7472,3 +7472,16 @@ syl
 
 vox单纯就是能力支撑不了他这体量，菜是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 17189#       发表于 2022-8-30 18:09
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+后面就没怎么关注了
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
