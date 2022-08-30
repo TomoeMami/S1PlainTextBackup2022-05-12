@@ -691,3 +691,14 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不会真觉得是靠众筹的金额来做游戏吧……除了星际公民这种极个别游戏，众筹的意义不都是考量市场和拉投资吗
 
+
+
+*****
+
+####  那由  
+##### 66#       发表于 2022-8-30 09:37
+
+众筹是为了给投资人信心的，真靠众筹的钱莎木3都做不出来
+
+所以一般玩家静待发售再支持也没什么
+

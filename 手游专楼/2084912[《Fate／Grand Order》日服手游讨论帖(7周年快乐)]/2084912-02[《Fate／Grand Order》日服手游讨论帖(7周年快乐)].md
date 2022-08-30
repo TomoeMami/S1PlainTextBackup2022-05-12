@@ -8035,3 +8035,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 我无非就是补了句高难打下来也不好使
 
+
+
+*****
+
+####  風卷豹  
+##### 2214#       发表于 2022-8-30 09:33
+
+我还以为只有NGA在吹仇绘高难<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -7273,3 +7273,14 @@ vspo可以玩喷喷了？
 
 她真的 我哭死
 
+
+
+*****
+
+####  IL282  
+##### 17172#       发表于 2022-8-30 09:31
+
+我就是selen女士的狗<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
