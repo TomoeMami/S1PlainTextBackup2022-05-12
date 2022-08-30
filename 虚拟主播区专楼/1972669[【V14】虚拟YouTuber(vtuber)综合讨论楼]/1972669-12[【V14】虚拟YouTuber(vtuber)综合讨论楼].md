@@ -7437,3 +7437,12 @@ vspo这新人开播A了，水平比妹妹和八云强不少。
 
 现在这排位保底是个白金到钻石。
 
+
+
+*****
+
+####  v沈馒馒v  
+##### 17186#       发表于 2022-8-30 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说明欧美圈文化受众变小了 都是好事啊
+
