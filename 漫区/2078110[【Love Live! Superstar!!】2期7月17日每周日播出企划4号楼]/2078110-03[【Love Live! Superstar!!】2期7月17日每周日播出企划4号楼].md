@@ -9351,3 +9351,15 @@ fo数最高的是绘森彩，与其说是眼光，不如说4个新人里有2个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在对于声优的硬实力要求更多可能是看脸
 
+
+
+*****
+
+####  梶原ひかり  
+##### 3894#       发表于 2022-8-30 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57271072&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-30 11:27</a>
+
+那结那的事务所你了解么，是没什么资源还是结那是富二代啊，看她好像天天去玩不用上班的样子。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不清楚 应该不是特别出名的事务所...日本女艺人都这种状态吧 好像演舞台剧多
+
