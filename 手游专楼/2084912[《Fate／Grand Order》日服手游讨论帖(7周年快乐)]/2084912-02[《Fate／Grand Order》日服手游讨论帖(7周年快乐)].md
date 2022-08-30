@@ -8207,3 +8207,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 20块日服号出了三个宝石老头，加上魔道元帅一共四个，现在冲刺拿一包女武神了
 
+
+
+*****
+
+####  alucardcz  
+##### 2230#       发表于 2022-8-30 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279356&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-30 21:48</a>
+
+不至于吧…我好像刷了一千万点礼装掉了好几张，只不过都没法凑第二个满破 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/30/230452zgqzqq2i4gz7vyqn.jpg" referrerpolicy="no-referrer">
+
+<strong>23434.jpg</strong> (484.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊
+
