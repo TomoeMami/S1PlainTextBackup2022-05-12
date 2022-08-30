@@ -682,3 +682,12 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 众筹肯定会成功，但72w刀做俩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 65#       发表于 2022-8-30 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不会真觉得是靠众筹的金额来做游戏吧……除了星际公民这种极个别游戏，众筹的意义不都是考量市场和拉投资吗
+
