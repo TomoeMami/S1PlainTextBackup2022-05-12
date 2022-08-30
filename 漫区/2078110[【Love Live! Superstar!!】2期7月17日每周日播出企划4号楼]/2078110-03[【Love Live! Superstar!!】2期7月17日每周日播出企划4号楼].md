@@ -9010,3 +9010,22 @@ musical看人啊，纯新人就算了，人不了解都。企划要是聪明点�
 
 以上是根据我看过的访谈和广播捋的信息，记忆有偏差的话欢迎修正。基本上可以确定二期选拔时间是21年7-9月。
 
+
+
+*****
+
+####  Enakina  
+##### 3859#       发表于 2022-8-30 10:11
+
+草，绘森参加坂道选拔和拉拉选拔时间是同期吗，我还以为是先后顺序的
+不过就她现在在拉拉的表现，和实际水平，我觉得坂道落的不冤，倒不如说拉拉能中也该烧烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3860#       发表于 2022-8-30 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269612&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-8-30 09:50</a>
+抛开很多其他情况和推测不谈，星这边肯定不可能带的，舞台剧企划现在这俩个地的表演，每个地的日期上都有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那就决定sunny passion上了
+

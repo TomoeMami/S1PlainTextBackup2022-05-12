@@ -521,3 +521,21 @@ being就这一个稳定热度的东西能不认真吗
 色涂的メリッサ 彩虹的ready steady go 还有アジカン的リライト 哪首都很能打
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dev2ce  
+##### 63#       发表于 2022-8-30 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269726&amp;ptid=2089866" target="_blank">圈量子 发表于 2022-8-30 09:59</a>
+确实挺不解的，后来13单配合冈妈的心叫也给了不少宣传，结果坂道系在那之后就不怎么tie动漫了。这两年也 ...</blockquote>
+梅泽演七大罪舞台剧还是tie上一回剧场版过，其他没什么印象，不靠质量卖歌就这样吧。过家家part1索尼一首都没拿到，作者意愿不重要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，而且胡男那首也hit了，续投可能性挺大的
+
+*****
+
+####  chivalry  
+##### 64#       发表于 2022-8-30 10:19
+
+银魂也不错
+
