@@ -9636,3 +9636,12 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 不过时间好像搞错了
 
+
+
+*****
+
+####  rs5621  
+##### 938#       发表于 2022-8-30 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能联想，日本网民太可怕了
+

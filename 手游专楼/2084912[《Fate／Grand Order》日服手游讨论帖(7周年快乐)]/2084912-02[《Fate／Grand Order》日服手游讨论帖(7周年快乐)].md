@@ -8124,3 +8124,16 @@ ELS（开20NP）+徐福+C呆+C呆
 1宝伤害不够.jpg</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以用圣杯和金副副cos 2宝  稳够
 
+
+
+*****
+
+####  里村紅葉  
+##### 2222#       发表于 2022-8-30 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275714&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:07</a>
+你们居然没有大公吗.jpg</blockquote>
+我还真没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
