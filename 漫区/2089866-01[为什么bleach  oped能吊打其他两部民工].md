@@ -582,3 +582,18 @@ velonica不错，年少无知时被velonica典型的「用普通的词语将理�
 
 钢炼算民工吗？如果算的话我觉得FA的OPED都很牛
 
+
+
+*****
+
+####  宛平南路600号  
+##### 69#       发表于 2022-8-30 13:47
+
+ 本帖最后由 宛平南路600号 于 2022-8-30 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57269372&amp;ptid=2089866" target="_blank">catartemis 发表于 2022-8-30 09:32</a>
+
+额……说起来，柯南的oped才独一份吧感觉其他都是歌/歌手傍上动画火，只有柯南是专门挑大牌歌手的歌 ...</blockquote>
+还有犬夜叉，只找大牌的来唱
+
+安室奈美惠、滨崎步、v6、大无限、小事乐团、BOA、泷与翼
+
