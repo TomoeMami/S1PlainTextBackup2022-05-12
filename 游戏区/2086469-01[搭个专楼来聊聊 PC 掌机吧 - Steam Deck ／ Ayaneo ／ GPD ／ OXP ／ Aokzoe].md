@@ -1898,3 +1898,15 @@ AYANEO 商城退款申请链接：[https://docs.qq.com/form/page/DVmxuT0tDaldWUm
 
 虽然说疫情影响能理解，但我对 Aya 的发货速度和说辞（x 月底发货，x + 1 月发完，但你下单的时候根本不知道自己选的型号颜色会是哪个批次发货的）一直都有些不满意。
 
+
+
+*****
+
+####  zombie_S  
+##### 157#       发表于 2022-8-30 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268783&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-30 08:42</a>
+
+虽然说疫情影响能理解，但我对 Aya 的发货速度和说辞（x 月底发货，x + 1 月发完，但你下单的时候根本不 ...</blockquote>
+AYA老板做营销出身的，对于怎么炒热度，怎么搞饥饿营销这套是信手拈来。所以aya对于消费级产品在国人心目中的重点也拿捏的很清楚，那就是颜值至上。但是aya毕竟是新入行，而且公司实力也还是是个创业公司，所以在供应链上有很多弱点。
+

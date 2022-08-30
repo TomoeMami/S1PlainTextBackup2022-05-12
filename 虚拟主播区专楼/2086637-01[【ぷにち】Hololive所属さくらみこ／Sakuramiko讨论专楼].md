@@ -9614,3 +9614,14 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 怎么还有死人在
 
+
+
+*****
+
+####  rs5621  
+##### 936#       发表于 2022-8-30 11:00
+
+是平行世界啦，润还好，时不时会出现在里面。毕业的coco几期前也有出场过。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
