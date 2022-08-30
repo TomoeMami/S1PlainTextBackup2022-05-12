@@ -629,3 +629,12 @@ alones Velonica  剧场版1的千の夜をこえて
 
 感慨柯南的选曲真是好很多很多。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 72#       发表于 2022-8-30 17:25
+
+翻了下wiki，OP的staff里好像没有音乐监制一职只有选曲和音监
+

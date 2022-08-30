@@ -9372,3 +9372,19 @@ fo数最高的是绘森彩，与其说是眼光，不如说4个新人里有2个�
 
 不知道这个musical是纯新人还是怎样…………之前的v也是一点消息都没
 
+
+
+*****
+
+####  梶原ひかり  
+##### 3896#       发表于 2022-8-30 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275539&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-30 16:53</a>
+
+不知道这个musical是纯新人还是怎样…………之前的v也是一点消息都没</blockquote>
+Vtuber 秋天才有消息 
+
+Musicial 一般不会选素人 科班出身或者有经验者 大部分人不认识的概率挺高的
+
+表演系 比 配音要求还是要高的吧
+
