@@ -8753,3 +8753,25 @@ yabu的访谈翻译，来源微博@依协莉丝_黑川
 
 yabu知道可以参加二期选拔是在一期动画开播之后…
 
+
+
+*****
+
+####  Kfly  
+##### 3834#       发表于 2022-8-30 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268440&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-8-30 07:47</a>
+yabu的访谈翻译，来源微博@依协莉丝_黑川</blockquote>
+………无语了都<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3835#       发表于 2022-8-30 08:11
+
+音乐剧的话，和我们这些外国观众就没啥大的关系了，看不到，感觉也没转播，而且不是现场的光影氛围，就算转播了效果感觉也不太好。（其实少歌真人舞台我是没感觉。）
+
+至于二期生知道选拔的时间点，我觉得没啥好分析了。二期生应该都追着动画吧，特别是看了动画了，面对一期78集的人物塑造，不会意识到自己角色要加进去这剧本会更完蛋么，或许不是大难临头大家总是心怀幻想吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
