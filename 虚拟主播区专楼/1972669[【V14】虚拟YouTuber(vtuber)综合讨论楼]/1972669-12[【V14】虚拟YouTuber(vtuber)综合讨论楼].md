@@ -7598,3 +7598,12 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 
 理解成本人贱又一堆集美护惹人烦就得了，遇到谁都能来一句你妈卖了还可劲护的观众真的挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lanslort  
+##### 17200#       发表于 2022-8-31 05:39
+
+Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂我觉得Vox大概骂不过她。不过我印象中她不会波及对方亲人，更不可能对粉丝这么说。她昨天因为歌回涨了不少粉还专门给新来的观众提过，而且说联动的话都会事先确认对方的底线。Vox这种就真的是什么锅什么盖了，不过我对他的梁木主要也还是感觉他不够pro，虽然也是云来的吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
