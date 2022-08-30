@@ -7566,3 +7566,15 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 后面又把自己的话全都吃回去了</blockquote>
 看来你真的不看他直播
 
+
+
+*****
+
+####  OldGlory  
+##### 17197#       发表于 2022-8-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+
+看来你真的不看他直播</blockquote>
+他是在推特上把自己的话吃回去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
