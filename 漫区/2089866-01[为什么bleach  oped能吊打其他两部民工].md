@@ -616,3 +616,16 @@ alones Velonica  剧场版1的千の夜をこえて
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  hulaoda007  
+##### 71#       发表于 2022-8-30 17:09
+
+ 本帖最后由 hulaoda007 于 2022-8-30 17:11 编辑 
+
+一般来说还是顽皮不如不利吃，不利吃不如哪路托，哪路托不如扣南吧？
+
+感慨柯南的选曲真是好很多很多。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

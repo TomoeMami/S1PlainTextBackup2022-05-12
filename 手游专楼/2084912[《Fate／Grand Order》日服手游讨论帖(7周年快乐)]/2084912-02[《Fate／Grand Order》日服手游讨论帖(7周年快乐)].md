@@ -8091,3 +8091,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 绘理世主要是回收不如其他蓝卡单体。但作为一个泛用蓝卡打手够了。实际上我也是用绘理世打90+。但是我是双打手，双蓝呆+ELS+自充单体剑。当然我觉得如果无限池子还是50充的飞嫂会好点。但是飞嫂满宝真的难啊。。
 
+
+
+*****
+
+####  alucardcz  
+##### 2219#       发表于 2022-8-30 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们居然没有大公吗.jpg
+
