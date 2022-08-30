@@ -9816,3 +9816,39 @@ koyori先辈？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">虽说是乌龙，tc这么暴漏就很，唉
 
+
+
+*****
+
+####  holoan  
+##### 959#         楼主| 发表于 2022-8-30 21:53
+
+确实是娱乐赛效果拉满了
+
+甚至怀疑直播里这些操作都是故意的
+
+反正当最终日raid前的预演也好，把自己问题都暴露出来
+
+那天的组队其实跟今天也差不太多就是 
+
+*****
+
+####  holoan  
+##### 960#         楼主| 发表于 2022-8-30 21:54
+
+TC的保护竟然6个人没有一个人发现有问题
+
+这个队是真的很厉害
+
+
+
+*****
+
+####  holoan  
+##### 961#         楼主| 发表于 2022-8-30 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57278956&amp;ptid=2086637" target="_blank">Achlys 发表于 2022-8-30 21:09</a>
+
+35放的钢琴变成火箭筒目标指示了</blockquote>
+钢琴是luna放的
+

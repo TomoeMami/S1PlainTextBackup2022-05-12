@@ -8180,3 +8180,19 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于吧…我好像刷了一千万点礼装掉了好几张，只不过都没法凑第二个满破
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2227#       发表于 2022-8-30 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">バゲ子礼装我直接掉满了第二张
+
+*****
+
+####  qixinno2  
+##### 2228#       发表于 2022-8-30 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肝出一发十连的石头 连个四星都没出 日了
+
