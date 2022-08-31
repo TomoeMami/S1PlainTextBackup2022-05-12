@@ -7906,3 +7906,14 @@ reimu和vox以前玩得挺开的，很有节目效果。reimu被搞的那次以�
 
 至于她和姐龙都是超越管人生涯的老熟人关系
 
+
+
+*****
+
+####  IL282  
+##### 17226#       发表于 2022-8-31 14:30
+
+我他妈这是在NGA还是S1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
