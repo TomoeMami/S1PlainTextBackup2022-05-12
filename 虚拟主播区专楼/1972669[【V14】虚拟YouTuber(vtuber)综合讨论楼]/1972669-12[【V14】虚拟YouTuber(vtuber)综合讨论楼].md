@@ -7756,3 +7756,31 @@ enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.
 
 人总喜欢脱离语境听到个fucking bitch就开始浮想联翩脑补剧情了，其实enna在其他时候对reimu说过一大堆肉麻到爆炸的话，没人看过没人记得
 
+
+
+*****
+
+####  wuzhengkai  
+##### 17214#       发表于 2022-8-31 12:52
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧
+
+*****
+
+####  dclara1  
+##### 17215#       发表于 2022-8-31 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285565&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-8-31 12:52</a>
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧</blockquote>
+每局赛后疯狂输出好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17216#       发表于 2022-8-31 13:00
+
+作为enna粉丝肯定要护两句 enna嘴臭很多情况下是下意识情况下的 尤其是她玩恐怖游戏的时候 或者那个最有名的切片里amongus里被刀的情况下 算个应激反应 她本人也说过经常无意识就swear了 我错了 下次还敢
+
+当然enna爱开snp笑话这个肯定就是她有意识情况下做出来的了
+
