@@ -9294,3 +9294,12 @@ ELS（开20NP）+徐福+C呆+C呆
 那堆泛用打手满宝，剩下全1又没满破宝石的，大概率就是转生号
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 2333#       发表于 2022-9-1 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家好,已经九月了(
+
