@@ -7917,3 +7917,12 @@ reimu和vox以前玩得挺开的，很有节目效果。reimu被搞的那次以�
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dybang  
+##### 17227#       发表于 2022-8-31 15:31
+
+老是被喷就因为太火了这也太饭圈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男国内一被饭圈化就没意思了，要么是对家的错要么对家更过分，吵不完的
+
