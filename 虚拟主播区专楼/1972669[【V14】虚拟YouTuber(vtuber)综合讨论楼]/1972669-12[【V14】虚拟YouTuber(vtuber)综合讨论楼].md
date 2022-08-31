@@ -7738,3 +7738,21 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
 vox错就错在他太火了，轮过分nina mc对往pomu聊天里发她直播一无是处，来看自己频道更过分点
 
+
+
+*****
+
+####  dclara1  
+##### 17213#       发表于 2022-8-31 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285406&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 12:39</a>
+
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一次amogus联动ewiwa，reimu甚至selen都被她突突突过
+
+人总喜欢脱离语境听到个fucking bitch就开始浮想联翩脑补剧情了，其实enna在其他时候对reimu说过一大堆肉麻到爆炸的话，没人看过没人记得
+
