@@ -8378,3 +8378,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 我只抽了1200
 
+
+
+*****
+
+####  リッチ  
+##### 2243#       发表于 2022-8-31 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282386&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 08:49</a>
+
+大佬3000石allin吗，这么狠的
+
+我只抽了1200</blockquote>
+泳7这几个池加上泡馍感觉都挺值得一抽的，就没能管住手<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

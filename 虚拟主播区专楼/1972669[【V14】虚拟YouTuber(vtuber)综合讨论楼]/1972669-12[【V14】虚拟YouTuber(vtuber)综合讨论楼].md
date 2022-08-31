@@ -7618,3 +7618,19 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 看来你真的不看他直播</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道不是他切割粉丝，然后又表示不切割粉丝吗？
 
+
+
+*****
+
+####  NBXX  
+##### 17202#       发表于 2022-8-31 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272737&amp;ptid=1972669" target="_blank">Paisley 发表于 2022-8-30 13:16</a>
+
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站</blockquote>
+除了nyaa，最有可能找到的公开地方一般在4chan的/vt/或者/t/，可以通过4chan备份站搜索历史帖。
+
+亦或是去[https://forum.holopirates.moe/](https://forum.holopirates.moe/) 
+
+虽然是holo的海盗站但是也有NIJI的资源。不过貌似活动就发过一部资源，其余都是音声和会员直播。但是有求物板可以发帖。
+
