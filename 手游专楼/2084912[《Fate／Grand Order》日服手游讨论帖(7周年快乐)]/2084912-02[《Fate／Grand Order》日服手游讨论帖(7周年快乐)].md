@@ -8674,3 +8674,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了
 
+
+
+*****
+
+####  khxooo  
+##### 2272#       发表于 2022-8-31 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286478&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 14:20</a>
+看不懂你在说什么。更新为什么会掉号 直接点更新不就完了</blockquote>
+估计是安卓更新客户端，有些人不懂操作导致号没了吧
+
+*****
+
+####  铁柱子  
+##### 2273#       发表于 2022-8-31 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287527&amp;ptid=2084912" target="_blank">清风朗月 发表于 2022-8-31 15:44</a>
+
+日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了 ...</blockquote>
+只保第一个池子up角色，出了就没了
+

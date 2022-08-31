@@ -7944,3 +7944,23 @@ vox和mysta怎么比老师和鹰宫贵这么多，气抖冷
 en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
 虹楼连本社几个法律咖犯法的事都能吹起来，嘴臭点当然没问题
 
+
+
+*****
+
+####  winda  
+##### 17230#       发表于 2022-8-31 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊
+
+*****
+
+####  poipanchao  
+##### 17231#       发表于 2022-8-31 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287622&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 15:50</a>
+暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">康米有什么问题，楼友不要尬黑
+
