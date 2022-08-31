@@ -880,3 +880,15 @@ A Hero has batman's body, spiderman's mask</blockquote>
 借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lisylfn  
+##### 62#       发表于 2022-8-31 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285606&amp;ptid=2088857" target="_blank">月影挽歌 发表于 2022-8-31 12:57</a>
+
+但它给的是batman's mask, spiderman's body啊</blockquote>
+你不说我都没注意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为他出了一堆超人, 蝙蝠侠, 蜘蛛侠的混合体
+

@@ -7845,3 +7845,24 @@ vox刚开展工作的时候是很会演嘛，纯纯一敬业工作狂形象，�
 
 而且有些朋友也云太厉害<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然鸟嘴真的脏但没见enna联动跑别人直播间对别人观众开这种范围地图炮
 
+
+
+*****
+
+####  Ronu  
+##### 17222#       发表于 2022-8-31 13:53
+
+enna特别喜欢嘴臭的几位都是熟人，而且一般是正面交锋
+
+背后会没事拉出来突突突的也就Uki吧，但是也是好姐妹啦她们<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+像是对几位好弟弟需要嘴臭的时候都会过一下脑子（luca和shu之类的），说出来的内容也很轻柔
+
+大部分情况则是往死里夸
+
+反正基本是感受不到她有什么恶意
+
+当然你说要嗯带节奏肯定是能带起来的。幸亏鸟本身体量不大，aloupeeps也都比较安分<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+我觉得在en那种氛围下面单纯嘴臭很难成为anti真正的理由，基本都是拿来当节奏的烟雾弹
+
