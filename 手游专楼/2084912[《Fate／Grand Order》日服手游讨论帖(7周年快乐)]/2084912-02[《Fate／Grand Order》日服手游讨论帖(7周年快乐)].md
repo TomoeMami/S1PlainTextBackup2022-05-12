@@ -9333,3 +9333,20 @@ ELS（开20NP）+徐福+C呆+C呆
 能掏出满破宝石翁的就不是转生石头号</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一人家欧怎么办 转生自带满破黑杯宝石
 
+
+
+*****
+
+####  exiaexa  
+##### 2337#       发表于 2022-9-1 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294201&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-1 00:26</a>
+
+万一人家欧怎么办 转生自带满破黑杯宝石</blockquote>
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的
+
+后来直接收了个二手号
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
