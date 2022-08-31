@@ -2078,3 +2078,20 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 配置也顺带泄露了：</blockquote>
 要是不靠云游戏服务，怕是连本地跑王者荣耀都不能60帧吧
 
+
+
+*****
+
+####  bypass  
+##### 171#         楼主| 发表于 2022-8-31 16:48
+
+<img src="https://img.saraba1st.com/forum/202208/31/164810do778izn4i68ouie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 16:48 上传
+
+Ayaneo 2 的这个边框的确还挺养眼。
+
