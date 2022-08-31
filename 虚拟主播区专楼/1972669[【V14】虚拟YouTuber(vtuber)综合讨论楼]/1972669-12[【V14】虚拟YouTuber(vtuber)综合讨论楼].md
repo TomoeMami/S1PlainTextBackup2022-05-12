@@ -7795,3 +7795,27 @@ enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.
 
 ethyria第一次联动玩抓鬼就已经非常母慈女孝，这四个人就没停过，乐坏我了，我就喜欢这种vibe<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 17218#       发表于 2022-8-31 13:10
+
+ 本帖最后由 越动天下 于 2022-8-31 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+话说有可能会有voms EN吗</blockquote>
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） 没必要去特意吧 然后g鸽也没说过这种东西吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wuzhengkai  
+##### 17219#       发表于 2022-8-31 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+
+话说有可能会有voms EN吗</blockquote>
+这得取决于能不能招到第二个pikamee吧
+

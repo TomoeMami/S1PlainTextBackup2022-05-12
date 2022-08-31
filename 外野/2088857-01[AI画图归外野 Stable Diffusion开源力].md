@@ -1,0 +1,882 @@
+
+
+*****
+
+####  dichromatism  
+##### 1#       楼主       发表于 2022-8-25 11:12
+
+最近Stable Diffusion开源了，试了试还挺好玩的。
+[Stable Diffusion的DEMO](https://huggingface.co/spaces/stabilityai/stable-diffusion) 傻瓜式，网页版，输入就有图
+[Stable Diffusion的Github](https://github.com/CompVis/stable-diffusion) 想本地跑的朋友可以试试，可以调参，理想状态下有10G显存即可，常规矿卡和A系列都没问题。
+
+给大家展示一下测试结果（均为demo）：
+
+1. 勃拉姆斯在宇宙中骑自行车
+
+<img src="https://img.saraba1st.com/forum/202208/25/110703t9j45xhw9747ekh5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220825110641.png</strong> (197.67 KB, 下载次数: 0)
+
+下载附件
+
+勃拉姆斯骑自行车
+2022-8-25 11:07 上传
+
+2. 勃拉姆斯和贝多芬相扑，浮世绘风格
+
+<img src="https://img.saraba1st.com/forum/202208/25/110739ld83v3ff66lyx33v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220825110631.png</strong> (151.21 KB, 下载次数: 0)
+
+下载附件
+
+勃拉姆斯和贝多芬相扑，浮世绘风格
+2022-8-25 11:07 上传
+
+3. 勃拉姆斯和贝多芬相扑，油画
+
+<img src="https://img.saraba1st.com/forum/202208/25/110747p6u01u6wlfz6chs1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220825110615.png</strong> (94.81 KB, 下载次数: 0)
+
+下载附件
+
+勃拉姆斯和贝多芬相扑，油画
+2022-8-25 11:07 上传
+
+另外还测试了一下midjourney,
+
+勃拉姆斯在宇宙中骑摩托，超现实主义
+
+<img src="https://img.saraba1st.com/forum/202208/25/111013flbn2tgpcub14a0u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220825110952.jpg</strong> (436.22 KB, 下载次数: 0)
+
+下载附件
+
+骑摩托
+2022-8-25 11:10 上传
+
+感觉还挺好的，没创意的时候可以让AI帮忙想想构图和元素。midjourney的结果更是帮你设计好了头盔。
+
+midjourney需要用discord，有兴趣的朋友可以自己搜搜玩一下。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 和真克瓦尔| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Jet.Black  
+##### 2#       发表于 2022-8-25 11:15
+
+好像不能画NSFW图？
+
+*****
+
+####  dichromatism  
+##### 3#         楼主| 发表于 2022-8-25 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57210991&amp;ptid=2088857" target="_blank">Jet.Black 发表于 2022-8-25 11:15</a>
+
+好像不能画NSFW图？</blockquote>
+不能，有限制器，但是本地跑可以尝试把限制器关掉或者通过调参调没，有兴趣可以研究一下
+
+*****
+
+####  处男鉴黄师  
+##### 4#       发表于 2022-8-25 11:21
+
+marie rose with big boobs
+
+数分钟后……
+
+ERROR: unsafe contents detected
+
+我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  耳朵  
+##### 5#       发表于 2022-8-25 12:45
+
+<img src="https://img.saraba1st.com/forum/202208/25/124529pp2rd6rbsizmkmh0.png" referrerpolicy="no-referrer">
+
+<strong>CFBC8E8F-BF87-4545-8D2D-86234BD6E84A.png</strong> (81.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 12:45 上传
+
+midjourney升级二次元属性了～还是这个好玩
+
+*****
+
+####  nexus1  
+##### 6#       发表于 2022-8-25 12:52
+
+我草，3060 12g显存终于有地方用了
+
+*****
+
+####  远野四季  
+##### 7#       发表于 2022-8-25 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57211988&amp;ptid=2088857" target="_blank">耳朵 发表于 2022-8-25 12:45</a>
+midjourney升级二次元属性了～还是这个好玩</blockquote>
+看起来像迷之生物变的美少女，头以下还没有完全成型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BTM  
+##### 8#       发表于 2022-8-25 13:15
+
+big tits , hands job 好奇英语咸湿话的输出。
+
+*****
+
+####  dichromatism  
+##### 9#         楼主| 发表于 2022-8-25 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57212347&amp;ptid=2088857" target="_blank">BTM 发表于 2022-8-25 13:15</a>
+
+big tits , hands job 好奇英语咸湿话的输出。</blockquote>
+如果想用不安全词，建议出门左转隔壁贴<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银镜  
+##### 10#       发表于 2022-8-25 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么玩意 用Kawase Hasui bamboo 这种人畜无害的词也给搞个erorr
+
+*****
+
+####  7217210868  
+##### 11#       发表于 2022-8-25 14:36
+
+收藏帖子！<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dichromatism  
+##### 12#         楼主| 发表于 2022-8-25 14:48
+
+<img src="https://img.saraba1st.com/forum/202208/25/144804jdo1vvvq1hqadava.png" referrerpolicy="no-referrer">
+
+<strong>下载 (1).png</strong> (62.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 14:48 上传
+
+栩栩如生的意大利屠杀者
+
+*****
+
+####  dichromatism  
+##### 13#         楼主| 发表于 2022-8-25 15:32
+
+ 本帖最后由 dichromatism 于 2022-8-25 15:54 编辑 
+
+达达主义的勃拉姆斯和贝多芬：
+
+<img src="https://img.saraba1st.com/forum/202208/25/155400xgp1490q4s4e71qe.png" referrerpolicy="no-referrer">
+
+<strong>下载.png</strong> (70.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 15:54 上传
+
+无题其一：
+
+QQ图片20220825155303.jpg
+(54.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 15:53 上传
+
+<img src="https://img.saraba1st.com/forum/202208/25/155353mvgc0xzp0c0g3ecv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  十二夜月下  
+##### 14#       发表于 2022-8-25 16:17
+
+贝多芬喝可口可乐<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/25/161724nzqkir0qsw7kf6od.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220825161705.png</strong> (337.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 16:17 上传
+
+*****
+
+####  superkidx  
+##### 15#       发表于 2022-8-25 17:08
+
+问一下LZ 这个Github下载的源码到底怎么用啊
+
+*****
+
+####  银光猹  
+##### 16#       发表于 2022-8-25 18:07
+
+ 本帖最后由 银光猹 于 2022-8-25 19:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202208/25/180847gilqqrzpijl0096l.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-25_18-08-25.png</strong> (119.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 18:08 上传
+
+贝多芬在踢足球
+
+<img src="https://img.saraba1st.com/forum/202208/25/183327q8lcc4bt87j9d4l7.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-25_18-32-57.png</strong> (251.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 18:33 上传
+
+宇宙诞生之初的一块大便，印象派
+
+<img src="https://img.saraba1st.com/forum/202208/25/184746oa0kpnm9saa992wb.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-25_18-47-03.png</strong> (142.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 18:47 上传
+
+大便行星，蒙德里安风格
+
+<img src="https://img.saraba1st.com/forum/202208/25/185551hzd2o7t27mmydotw.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-25_18-55-23.png</strong> (207.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 18:55 上传
+
+中国古塔，蒙德里安和埃舍尔风格
+
+<img src="https://img.saraba1st.com/forum/202208/25/191054hn91ehnk6g8ohkhg.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-08-25_19-10-26.png</strong> (200.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 19:10 上传
+
+在马桶上呐喊
+
+玩累了，我的描述能力太差。demo是不是只能语句描述？本地部署应该可控性更好
+
+*****
+
+####  月灵修  
+##### 17#       发表于 2022-8-25 18:08
+
+有点好玩
+
+*****
+
+####  narizen  
+##### 18#       发表于 2022-8-25 18:30
+
+让AI画了个JK吃香蕉，但香蕉不应该这么吃的吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/25/182956qmgrmhm45cf459k9.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-08-25 182615.jpg</strong> (227.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-25 18:29 上传
+
+*****
+
+####  与天争锋_LZ  
+##### 19#       发表于 2022-8-25 18:45
+
+我不知道我电脑多少显存取去查了一下，居然才2g
+
+*****
+
+####  dichromatism  
+##### 20#         楼主| 发表于 2022-8-26 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215014&amp;ptid=2088857" target="_blank">superkidx 发表于 2022-08-25 17:08:19</a>
+问一下LZ 这个Github下载的源码到底怎么用啊</blockquote>你用conda建个新环境，按照上面的说明安装即可，哪里没有装哪里，看看readme
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dichromatism  
+##### 21#         楼主| 发表于 2022-8-26 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215810&amp;ptid=2088857" target="_blank">银光猹 发表于 2022-08-25 18:07:27</a>
+在马桶上呐喊
+
+玩累了，我的描述能力太差。demo是不是只能语句描述？本地部署应该可控性更好
+
+ ...</blockquote>我也还没玩透，看别人玩demo和完全版输出的质量差好多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  十二夜月下  
+##### 22#       发表于 2022-8-29 14:33
+
+借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了
+
+<img src="https://img.saraba1st.com/forum/202208/29/143149kpyyj3969s3nxs6x.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (41.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/29/143155ky3c7n31rd471yo8.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (57.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202208/29/143200iekpk4oqz7k72hk7.jpg" referrerpolicy="no-referrer">
+
+<strong>33.jpg</strong> (52.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-29 14:32 上传
+
+*****
+
+####  comrade  
+##### 23#       发表于 2022-8-29 14:43
+
+ps 插件已出 https://weibo.com/1402400261/M39qugpLd
+
+*****
+
+####  rainwang  
+##### 24#       发表于 2022-8-29 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蛮有趣的，要是有什么点子可以随时试试
+
+*****
+
+####  tsukicn  
+##### 25#       发表于 2022-8-29 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57260612&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-8-29 14:33</a>
+借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了</blockquote>
+描述给下，我画出来的总很丑，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2004J7AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  εRemastered  
+##### 26#       发表于 2022-8-29 15:40
+
+10G显存即可
+
+*****
+
+####  99510782  
+##### 27#       发表于 2022-8-29 15:41
+
+我想看色色的图片  至少要比欧金金的色得多的那种
+
+*****
+
+####  十二夜月下  
+##### 28#       发表于 2022-8-29 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261390&amp;ptid=2088857" target="_blank">tsukicn 发表于 2022-8-29 15:39</a>
+
+描述给下，我画出来的总很丑，谢谢
+
+—— 来自 Xiaomi M2004J7AC, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+亚洲少女
+
+beautiful portrait painting an gorgeous asian girl wearing a teal kimono, oil painting, art by ruan jia
+
+吉普赛少女
+
+beautiful portrait painting a Gypsy Girl, oil painting, art by ruan jia
+
+乌克兰少女
+
+beautiful portrait painting a gorgeous Ukrainian girls wear Lolita clothes, oil painting, art by ruan jia
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚刚跑小美人鱼的时候，AI给我跑出黄图了…
+
+*****
+
+####  tsukicn  
+##### 29#       发表于 2022-8-29 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57261542&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-8-29 15:50</a>
+
+亚洲少女
+
+beautiful portrait painting an gorgeous asian girl wearing a teal kimono, oil painting, a ...</blockquote>
+谢谢，有空试试。3070只有8g很难，只能降低模型浮点数(没搞懂)，并且大小最大512。。。
+
+*****
+
+####  sjax001  
+##### 30#       发表于 2022-8-30 03:04
+
+在COLAB上跑了一晚上，还是不太好驯服，人物肖像和纯景物场景还行，两者一结合各种看不懂的后现代艺术
+
+
+
+*****
+
+####  卖节操  
+##### 31#       发表于 2022-8-30 03:53
+
+黑丝不屏蔽
+
+Lovely black stocking Japanese high school girl
+
+可以有女乃子图
+
+*****
+
+####  十二夜月下  
+##### 32#       发表于 2022-8-30 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57267051&amp;ptid=2088857" target="_blank">tsukicn 发表于 2022-8-29 23:46</a>
+
+谢谢，有空试试。3070只有8g很难，只能降低模型浮点数(没搞懂)，并且大小最大512。。。 ...</blockquote>
+用顶楼的傻瓜网页版就能跑出不错的结果了，5分钟左右4张
+
+*****
+
+####  akitox  
+##### 33#       发表于 2022-8-30 11:13
+
+看来需要一门绘画语言了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cmg1987  
+##### 34#       发表于 2022-8-30 12:14
+
+艹 这个很牛逼啊，刚好想搞点修仙小说同人图，请问下有人试过对应词条吗？这个词条应该怎么写…
+
+*****
+
+####  十二夜月下  
+##### 35#       发表于 2022-8-30 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57271835&amp;ptid=2088857" target="_blank">cmg1987 发表于 2022-8-30 12:14</a>
+
+艹 这个很牛逼啊，刚好想搞点修仙小说同人图，请问下有人试过对应词条吗？这个词条应该怎么写… ...</blockquote>
+可以从已有案例里找找有没有贴近的风格和效果，然后自己改描述和关键词测试，参考网站：[https://lexica.art/](https://lexica.art/)
+
+不过感觉东方的元素训练量比较少，很多时候生成的都不是很到位
+
+*****
+
+####  cmg1987  
+##### 36#       发表于 2022-8-30 12:27
+
+<img src="https://img.saraba1st.com/forum/202208/30/122728lyzf1p7x5xs4g797.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (125.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 12:27 上传
+
+这个AI不懂什么是chinese style啊
+
+*****
+
+####  Lewismain  
+##### 37#       发表于 2022-8-30 13:35
+
+<img src="https://img.saraba1st.com/forum/202208/30/133458kdsv25jiurdco52c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 13:34 上传
+
+看来是我太直白了吗
+
+*****
+
+####  sjax001  
+##### 38#       发表于 2022-8-30 13:47
+
+<blockquote>十二夜月下 发表于 2022-8-30 12:25
+可以从已有案例里找找有没有贴近的风格和效果，然后自己改描述和关键词测试，参考网站：https://lexica.a ...</blockquote>
+翻了一圈这网站Promp里的各种脑洞简直笑死，人类大脑里都是什么混沌
+
+人类:搞不清楚AI都在想些什么。
+
+AI:我才搞不清楚你们人类都在想些什么好吗
+
+*****
+
+####  Lisylfn  
+##### 39#       发表于 2022-8-30 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57267051&amp;ptid=2088857" target="_blank">tsukicn 发表于 2022-8-29 23:46</a>
+
+谢谢，有空试试。3070只有8g很难，只能降低模型浮点数(没搞懂)，并且大小最大512。。。 ...</blockquote>
+[https://github.com/basujindal/st ... ee/main/optimizedSD](https://github.com/basujindal/stable-diffusion/tree/main/optimizedSD)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tsukicn| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  十二夜月下  
+##### 40#       发表于 2022-8-30 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273059&amp;ptid=2088857" target="_blank">sjax001 发表于 2022-8-30 13:47</a>
+
+翻了一圈这网站Promp里的各种脑洞简直笑死，人类大脑里都是什么混沌
+
+人类:搞不清楚AI都在想些什么。
+
+AI: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">哈哈哈，以极低的成本解放想象力www
+
+*****
+
+####  jinyuede  
+##### 41#       发表于 2022-8-30 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268098&amp;ptid=2088857" target="_blank">卖节操 发表于 2022-8-30 03:53</a>
+
+黑丝不屏蔽
+
+Lovely black stocking Japanese high school girl</blockquote>
+我按你这画出来的是啥？都出来第三条腿了。。。吓死了
+
+<img src="https://img.saraba1st.com/forum/202208/30/142334xlnnzvy2l19b0ran.png" referrerpolicy="no-referrer">
+
+<strong>图像_2022-08-30_142334183.png</strong> (56.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 14:23 上传
+
+*****
+
+####  巫山苍苍  
+##### 42#       发表于 2022-8-30 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273503&amp;ptid=2088857" target="_blank">jinyuede 发表于 2022-8-30 14:23</a>
+我按你这画出来的是啥？都出来第三条腿了。。。吓死了</blockquote>
+蒋方舟?
+
+*****
+
+####  衛藤美彩  
+##### 43#       发表于 2022-8-30 14:50
+
+所以这个模型究竟用了多少数据啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看介绍用的是从5 billion数据里面筛出了一部分，也没看到更具体的量级描述了 
+
+*****
+
+####  巴特爱素子  
+##### 44#       发表于 2022-8-30 17:18
+
+人物合体的提词该怎么写啊，比如我要一个变形金刚和绿巨人的合体
+
+*****
+
+####  tsukicn  
+##### 45#       发表于 2022-8-30 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57270027&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-8-30 10:20</a>
+
+用顶楼的傻瓜网页版就能跑出不错的结果了，5分钟左右4张</blockquote>
+这个感觉慢了点，而且有过滤<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太吾士河  
+##### 46#       发表于 2022-8-30 22:24
+
+服役已六年的1066，一分钟一张图还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/30/222401g7jug8sl0ttbtlub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 22:24 上传
+
+*****
+
+####  LOLITA  
+##### 47#       发表于 2022-8-30 23:07
+
+ 本帖最后由 LOLITA 于 2022-8-30 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273503&amp;ptid=2088857" target="_blank">jinyuede 发表于 2022-8-30 14:23</a>
+
+我按你这画出来的是啥？都出来第三条腿了。。。吓死了</blockquote>
+我在他的描述后面加了，japan anime style
+
+出来的效果很不错。
+
+<img src="https://img.saraba1st.com/forum/202208/30/230830bnizv6ir9v6oivv2.png" referrerpolicy="no-referrer">
+
+<strong>下载.png</strong> (60.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:08 上传
+
+*****
+
+####  fuochai  
+##### 48#       发表于 2022-8-30 23:24
+
+<img src="https://img.saraba1st.com/forum/202208/30/232418ffuzztkllvzz61kg.png" referrerpolicy="no-referrer">
+
+<strong>05FDDCDC-6D6A-48DC-8333-CEF6CD389FCD.png</strong> (70.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:24 上传
+
+为什么generate不完啊
+
+*****
+
+####  十二夜月下  
+##### 49#       发表于 2022-8-30 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280219&amp;ptid=2088857" target="_blank">fuochai 发表于 2022-8-30 23:24</a>
+
+为什么generate不完啊</blockquote>
+超时就刷新重新跑一次
+
+你这个描述词太简单了，容易出现不可名状的抽象内容噗
+
+*****
+
+####  伊莉伊莉雅  
+##### 50#       发表于 2022-8-31 03:03
+
+大晚上的不要用AI画图.jpg
+
+Lovely black stocking Japanese high school girl，japan anime style
+
+<img src="https://img.saraba1st.com/forum/202208/31/030047w0446iwr944b4hih.jpg" referrerpolicy="no-referrer">
+
+<strong>蜂蜜浏览器_grid-0007.jpg</strong> (300.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 03:00 上传
+
+a beautiful girl lying on the beach and being strangled by the boy's hand，japanese anime style
+
+<img src="https://img.saraba1st.com/forum/202208/31/030219el4a5forvd4gudgf.jpg" referrerpolicy="no-referrer">
+
+<strong>蜂蜜浏览器_grid-0002.jpg</strong> (382.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 03:02 上传
+
+<img src="https://img.saraba1st.com/forum/202208/31/030219k5ir9gw7eahvylw9.jpg" referrerpolicy="no-referrer">
+
+<strong>蜂蜜浏览器_grid-0003.jpg</strong> (318.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 03:02 上传
+
+Asuka lay on the beach and was strangled by Shinji's hand，japanese anime style
+
+<img src="https://img.saraba1st.com/forum/202208/31/030253l2igp290cgp39apg.jpg" referrerpolicy="no-referrer">
+
+<strong>蜂蜜浏览器_grid-0006.jpg</strong> (358.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 03:02 上传
+
+*****
+
+####  mimighost  
+##### 51#       发表于 2022-8-31 04:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57281446&amp;ptid=2088857" target="_blank">伊莉伊莉雅 发表于 2022-8-31 03:03</a>
+
+大晚上的不要用AI画图.jpg
+
+</blockquote>
+络新妇
+
+*****
+
+####  卖节操  
+##### 52#       发表于 2022-8-31 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273503&amp;ptid=2088857" target="_blank">jinyuede 发表于 2022-8-30 14:23</a>
+
+我按你这画出来的是啥？都出来第三条腿了。。。吓死了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/31/071202rk4docx5x426c2b1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AD0B0BFC-B0CC-4273-ADC2-BD7F097BD473.jpeg</strong> (536.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 07:12 上传
+
+我没问题啊，默认参数
+
+*****
+
+####  Lisylfn  
+##### 53#       发表于 2022-8-31 09:18
+
+ 本帖最后由 Lisylfn 于 2022-8-31 09:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275887&amp;ptid=2088857" target="_blank">巴特爱素子 发表于 2022-8-30 17:18</a>
+
+人物合体的提词该怎么写啊，比如我要一个变形金刚和绿巨人的合体</blockquote>风怒
+
+*****
+
+####  Lisylfn  
+##### 54#       发表于 2022-8-31 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275887&amp;ptid=2088857" target="_blank">巴特爱素子 发表于 2022-8-30 17:18</a>
+
+人物合体的提词该怎么写啊，比如我要一个变形金刚和绿巨人的合体</blockquote>
+A Hero has batman's body, spiderman's mask <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/31/091737orwxbtbb911wx1bi.png" referrerpolicy="no-referrer">
+
+<strong>seed_843238_00008.png</strong> (45.39 KB, 下载次数: )
+
+下载附件
+
+2022-8-31 09:17 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 巴特爱素子| + 1|原来要说的那么细啊|
+
+查看全部评分
+
+*****
+
+####  fuochai  
+##### 55#       发表于 2022-8-31 12:27
+
+这引擎生成的二次元都好阴间
+
+*****
+
+####  fuochai  
+##### 56#       发表于 2022-8-31 12:27
+
+ 本帖最后由 fuochai 于 2022-8-31 12:30 编辑 
+
+风怒
+
+*****
+
+####  fuochai  
+##### 57#       发表于 2022-8-31 12:27
+
+ 本帖最后由 fuochai 于 2022-8-31 12:32 编辑 
+
+风怒
+
+*****
+
+####  fuochai  
+##### 58#       发表于 2022-8-31 12:29
+
+ 本帖最后由 fuochai 于 2022-8-31 12:31 编辑 
+
+风怒
+
+*****
+
+####  月影挽歌  
+##### 59#       发表于 2022-8-31 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282648&amp;ptid=2088857" target="_blank">Lisylfn 发表于 2022-8-31 09:18</a>
+
+A Hero has batman's body, spiderman's mask</blockquote>
+但它给的是batman's mask, spiderman's body啊
+
+*****
+
+####  月影挽歌  
+##### 60#       发表于 2022-8-31 13:00
+
+让它画人体容易出一些不可名状之物，严重掉SAN值
+
+
+
+*****
+
+####  格林达姆  
+##### 61#       发表于 2022-8-31 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57260612&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-8-29 14:33</a>
+借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
