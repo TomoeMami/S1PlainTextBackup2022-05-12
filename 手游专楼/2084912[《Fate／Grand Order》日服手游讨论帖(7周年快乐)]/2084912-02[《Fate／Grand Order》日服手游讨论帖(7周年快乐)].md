@@ -9250,3 +9250,15 @@ ELS（开20NP）+徐福+C呆+C呆
 那泥</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是欧洲萌新，我竟然毫不意外
 
+
+
+*****
+
+####  qixinno2  
+##### 2329#       发表于 2022-8-31 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293555&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:18</a>
+
+剩下6张护符丢进了弓0池并没有出货  这还能叫欧吗!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何等的欧狗发言 我10呼符甚至只有一个四星礼装
+
