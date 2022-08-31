@@ -8362,3 +8362,19 @@ ELS（开20NP）+徐福+C呆+C呆
 
 转生号3k石只抽到一张魔道元帅……<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2242#       发表于 2022-8-31 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282085&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-8-31 08:18</a>
+
+花1天半把泳7毕业了，正在90++冲刺最后的真理之卵
+
+转生号3k石只抽到一张魔道元帅…… ...</blockquote>
+大佬3000石allin吗，这么狠的
+
+我只抽了1200
+
