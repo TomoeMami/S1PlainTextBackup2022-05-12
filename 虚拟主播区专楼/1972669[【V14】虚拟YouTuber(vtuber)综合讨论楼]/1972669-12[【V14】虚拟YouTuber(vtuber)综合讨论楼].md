@@ -8171,3 +8171,16 @@ voms的en观众很多，但基本只看得懂pika，其他三个属于想看但�
 
 不过gyari的确不会有动力去搞就是了
 
+
+
+*****
+
+####  越动天下  
+##### 17251#       发表于 2022-9-1 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294565&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-9-1 01:27</a>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我），所以 ...</blockquote>
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉不太符合正常思维
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
