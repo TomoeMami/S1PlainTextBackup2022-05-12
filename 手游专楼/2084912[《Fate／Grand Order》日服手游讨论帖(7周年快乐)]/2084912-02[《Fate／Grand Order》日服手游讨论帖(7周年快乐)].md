@@ -9350,3 +9350,17 @@ ELS（开20NP）+徐福+C呆+C呆
 后来直接收了个二手号
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 2338#       发表于 2022-9-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:35</a>
+
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">满破宝石比满宝打手还难,想啥
+
