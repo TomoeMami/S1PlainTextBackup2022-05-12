@@ -8903,3 +8903,35 @@ ELS（开20NP）+徐福+C呆+C呆
 我TMD还没攒出石头来呢 拿头抽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续刷羁绊啊? 你的羁绊就这点程度吗
 
+
+
+*****
+
+####  qixinno2  
+##### 2295#       发表于 2022-8-31 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290713&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 19:33</a>
+
+继续刷羁绊啊? 你的羁绊就这点程度吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了 真的肝不动了 只能看看明天的五呼符了
+
+*****
+
+####  alucardcz  
+##### 2296#       发表于 2022-8-31 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290994&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 19:54</a>
+
+不行了 真的肝不动了 只能看看明天的五呼符了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇的发言  可怕
+
+*****
+
+####  qixinno2  
+##### 2297#       发表于 2022-8-31 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291005&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 19:55</a>
+
+欧皇的发言  可怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算个屁的欧皇发言 狗萌新无脑黑我
+
