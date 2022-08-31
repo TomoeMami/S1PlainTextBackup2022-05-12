@@ -9378,3 +9378,17 @@ ELS（开20NP）+徐福+C呆+C呆
 卖家根本不把这个当卖点的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 因为不是想抽就能抽到的 但是总有欧皇! 例如楼里的!
 
+
+
+*****
+
+####  铁柱子  
+##### 2340#       发表于 2022-9-1 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:35</a>
+
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的</blockquote>
+真相是早被挑完了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
