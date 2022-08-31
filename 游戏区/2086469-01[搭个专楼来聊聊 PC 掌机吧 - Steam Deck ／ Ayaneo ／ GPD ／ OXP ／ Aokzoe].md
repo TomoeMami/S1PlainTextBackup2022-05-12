@@ -2066,3 +2066,15 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 
 2022-8-31 14:55 上传
 
+
+
+*****
+
+####  泰坦失足  
+##### 170#       发表于 2022-8-31 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286830&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-31 14:55</a>
+
+配置也顺带泄露了：</blockquote>
+要是不靠云游戏服务，怕是连本地跑王者荣耀都不能60帧吧
+
