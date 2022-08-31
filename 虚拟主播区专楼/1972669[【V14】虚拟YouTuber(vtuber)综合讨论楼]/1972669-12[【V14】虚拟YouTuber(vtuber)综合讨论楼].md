@@ -7926,3 +7926,21 @@ reimu和vox以前玩得挺开的，很有节目效果。reimu被搞的那次以�
 
 老是被喷就因为太火了这也太饭圈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男国内一被饭圈化就没意思了，要么是对家的错要么对家更过分，吵不完的
 
+
+
+*****
+
+####  poipanchao  
+##### 17228#       发表于 2022-8-31 15:44
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷
+
+*****
+
+####  マドマコ  
+##### 17229#       发表于 2022-8-31 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+虹楼连本社几个法律咖犯法的事都能吹起来，嘴臭点当然没问题
+

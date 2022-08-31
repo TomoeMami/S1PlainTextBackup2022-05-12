@@ -8655,3 +8655,22 @@ ELS（开20NP）+徐福+C呆+C呆
 
 反正我拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2270#       发表于 2022-8-31 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286877&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 14:59</a>
+
+都习惯这么非了，否则怎么玩下来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于这么惨吧
+
+*****
+
+####  清风朗月  
+##### 2271#       发表于 2022-8-31 15:44
+
+日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了
+
