@@ -8935,3 +8935,25 @@ ELS（开20NP）+徐福+C呆+C呆
 欧皇的发言  可怕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算个屁的欧皇发言 狗萌新无脑黑我
 
+
+
+*****
+
+####  alucardcz  
+##### 2298#       发表于 2022-8-31 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291051&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 19:59</a>
+
+这算个屁的欧皇发言 狗萌新无脑黑我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 我叫非萌 别乱喊
+
+*****
+
+####  qixinno2  
+##### 2299#       发表于 2022-8-31 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291095&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 20:02</a>
+
+你好 我叫非萌 别乱喊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你算非的话我也非
+
