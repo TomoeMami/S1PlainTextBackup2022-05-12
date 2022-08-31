@@ -9047,3 +9047,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 卡多克这礼装实在是食之无味弃之可惜，不换又要等好久
 
+
+
+*****
+
+####  リッチ  
+##### 2310#       发表于 2022-8-31 21:52
+
+梦到在魔夜联动池抽出3星骑阶性转麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2311#       发表于 2022-8-31 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57292630&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-8-31 21:52</a>
+
+梦到在魔夜联动池抽出3星骑阶性转麻婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这也太怪了
+
