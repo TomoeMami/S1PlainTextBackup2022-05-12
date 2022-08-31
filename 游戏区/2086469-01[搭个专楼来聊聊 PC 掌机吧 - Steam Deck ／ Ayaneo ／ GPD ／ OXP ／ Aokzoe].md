@@ -2046,3 +2046,23 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 
 附上之前的那个官方博文：[https://blog.logitech.com/2022/0 ... dheld-cloud-gaming/](https://blog.logitech.com/2022/08/02/logitech-g-and-tencent-games-announce-partnership-to-advance-handheld-cloud-gaming/)
 
+
+
+*****
+
+####  bypass  
+##### 169#         楼主| 发表于 2022-8-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273988&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-8-30 14:58</a>
+
+有无其他参数</blockquote>
+配置也顺带泄露了：
+
+<img src="https://img.saraba1st.com/forum/202208/31/145507nq3iztvs7njgvqzb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 14:55 上传
+

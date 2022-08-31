@@ -945,3 +945,13 @@ jump少年漫改编动画里，除了一骑绝尘的SD外，幽游白书和浪�
 
 泥潭重新定义吊打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看热闹看热闹
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 100#       发表于 2022-8-31 14:52
+
+火影好的oped也不少啊，海贼才是真的没印象，死神的oped主要是感觉就很潮不是很“anisong”
+柯南犬夜叉我就觉得很土，不是不好听，但是很土（
+

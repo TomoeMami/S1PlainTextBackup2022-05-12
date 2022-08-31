@@ -8626,3 +8626,14 @@ ELS（开20NP）+徐福+C呆+C呆
 可能有人会掉号</blockquote>
 看不懂你在说什么。更新为什么会掉号 直接点更新不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2267#       发表于 2022-8-31 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285116&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 12:10</a>
+相信自己 你也可以的</blockquote>
+都习惯这么非了，否则怎么玩下来<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
