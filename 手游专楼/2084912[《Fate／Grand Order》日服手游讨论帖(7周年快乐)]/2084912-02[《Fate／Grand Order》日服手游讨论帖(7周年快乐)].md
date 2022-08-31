@@ -9022,3 +9022,28 @@ ELS（开20NP）+徐福+C呆+C呆
 天草定律是什么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天草PU后一定有大事发生
 
+
+
+*****
+
+####  铁柱子  
+##### 2307#       发表于 2022-8-31 21:11
+
+出个新大卫吧，现在这个b格不够
+
+*****
+
+####  qixinno2  
+##### 2308#       发表于 2022-8-31 21:15
+
+ 本帖最后由 qixinno2 于 2022-8-31 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐突落地提妈 众多被公主泳装三连骗光石头的御主发出痛苦的哀嚎 其实出麻婆也很应景
+
+*****
+
+####  铁柱子  
+##### 2309#       发表于 2022-8-31 21:18
+
+卡多克这礼装实在是食之无味弃之可惜，不换又要等好久
+
