@@ -8066,3 +8066,14 @@ b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bluebaby  
+##### 17242#       发表于 2022-8-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289043&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-31 17:27</a>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。但是我没想到钱是直接给啊b，由啊b来具体分配[f:0 ...</blockquote>
+很多up都提到过b站这套工商制度，具体分配不记得了可以去找找应该属于很好找的。
+
