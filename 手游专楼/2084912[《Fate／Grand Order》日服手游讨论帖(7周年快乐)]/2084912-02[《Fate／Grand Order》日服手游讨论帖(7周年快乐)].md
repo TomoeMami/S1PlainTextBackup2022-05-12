@@ -9068,3 +9068,34 @@ ELS（开20NP）+徐福+C呆+C呆
 梦到在魔夜联动池抽出3星骑阶性转麻婆</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这也太怪了
 
+
+
+*****
+
+####  qixinno2  
+##### 2312#       发表于 2022-8-31 22:02
+
+<img src="https://img.saraba1st.com/forum/202208/31/220145jqzi0qugg1xcp0uv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 22:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两年的无限池我都没这么肝过 顺便谁维护前没收菜现在还能领一次
+
+*****
+
+####  里村紅葉  
+##### 2313#       发表于 2022-8-31 22:03
+
+我这个收菜键点完了还是亮的，然后再点就无限断线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 2314#       发表于 2022-8-31 22:04
+
+这次天草定律大概率又成真，不说下周2.4回顾必然复刻狂娜，贴吧和NGA都有舅舅消息，接下来的9月新活动又要来一个AE职介的强度美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
