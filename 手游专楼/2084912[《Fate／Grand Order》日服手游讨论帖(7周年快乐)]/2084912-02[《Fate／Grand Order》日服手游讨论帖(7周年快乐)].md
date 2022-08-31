@@ -8704,3 +8704,20 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有几分钟 有没有事发生呢  例如幕间
 
+
+
+*****
+
+####  exiaexa  
+##### 2275#       发表于 2022-8-31 17:08
+
+这波池子，转生号赢麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 2276#       发表于 2022-8-31 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服疯了吧，这个时候复刻宇宙凛，下周应该就是复刻狂那了，要跑路了抢钱是吧？
+
