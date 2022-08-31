@@ -842,3 +842,37 @@ s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两
 
 先问是不是在问有没有，原来所谓的热度就靠一个小众的S1？销量、下载数和搜索热度总要来点数据吧？数据都没有大家都搁这口嗨。销量上死神火影海贼各有胜负。死神OP1的销量是最好，海贼是东方神起那首，火影大概乃木坂那首？其他的都半斤八两。
 
+
+
+*****
+
+####  病態極端  
+##### 92#       发表于 2022-8-31 11:06
+
+ 本帖最后由 病態極端 于 2022-8-31 11:11 编辑 
+
+Oricon<strong>公信榜</strong>
+
+<strong>历年动画单曲年冠</strong>
+2005年《[＊ ~アスタリスク~](https://zh.moegirl.org.cn/Asterisk(BLEACH))》《＊ ~アスタリスク~》ORANGE RANGEBLEACH OP12009年《Share The World》
+
+《[We Are!](https://zh.moegirl.org.cn/We_Are!)》
+
+《明日は来るから》《Share The World/ウィーアー!》东方神起海賊王 OP&amp;ED
+
+<strong>历年动画专辑年冠</strong>
+2007年《BLEACH THE BEST》Various ArtistsBLEACH2008年《マクロスF O.S.T.1 娘フロ。》CD Soundtrack超时空要塞F2009年《銀魂BEST》Various Artists银魂2010年《ONE PIECE MEMORIAL BEST》Various Artists海贼王2011年《銀魂BEST2》Various Artists银魂
+
+*****
+
+####  shinnluna  
+##### 93#       发表于 2022-8-31 11:09
+
+ 本帖最后由 shinnluna 于 2022-8-31 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283583&amp;ptid=2089866" target="_blank">ΑΑ 发表于 2022-8-31 10:26</a>
+
+销量是被东方神起的名气爆杀，却丝毫没给宅宅们留下一点印象</blockquote>
+所以他说的少女S吊打，而且他说是以流行歌曲角度看，也就是JPOP，也不知道吊打到哪里去了，海贼也不光是东方神起，TV还有安室奈美惠，泷&amp;翼，AAA等一线的，算上剧场版还有Avril Lavigne，棒棒鸡，孩子先生
+
+其他2家如果算JPOP角度，拿什么打
+

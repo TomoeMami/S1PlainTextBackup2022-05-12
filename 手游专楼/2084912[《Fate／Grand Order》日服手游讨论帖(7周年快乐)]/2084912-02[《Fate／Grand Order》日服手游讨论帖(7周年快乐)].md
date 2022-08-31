@@ -8408,3 +8408,31 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日啊 两种礼装都刷到第二张满破了 还是抽不到角色
 
+
+
+*****
+
+####  rollingusagi  
+##### 2246#       发表于 2022-8-31 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">没想到3天就毕业了，本来还以为时间不够，90++本收益好爽啊，嫖个斋藤一，带梅莉+c呆随便冲。顺带补了个道满二宝先当会临时打手，水伊吹宝具那个正脸实在丑的受不了嫖了几次就放弃了，强度再高我也不想伤害自己眼睛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  铁柱子  
+##### 2247#       发表于 2022-8-31 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283486&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-31 10:21</a>
+
+泡馍扔了1个10连没就放弃了。个人不是很喜欢三破。要是满破换成那个废案说不定我还会多抽几下 ...</blockquote>
+泡馍差点吃保底了，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 2248#       发表于 2022-8-31 11:07
+
+这收菜环节能不能直接常驻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

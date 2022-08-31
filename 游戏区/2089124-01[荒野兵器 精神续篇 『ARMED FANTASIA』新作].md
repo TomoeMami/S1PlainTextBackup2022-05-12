@@ -711,3 +711,16 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 看到这么美的项目想支持下，昨天点进众筹页面一看，**小小几十个选项把我看懵了，还只有英文，热情直接没了一大半
 
+
+
+*****
+
+####  Piano-Forest  
+##### 68#       发表于 2022-8-31 11:02
+
+众筹已达成75万美元首个档位。下一个档位是“开发主机版本”，目标为100万美元
+<img src="https://p.sda1.dev/7/e5389ea46501b52dd5dfef5287dc6f09/20220831_110154.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/bccf9c718986961ac8b62fcc735d9fdb/20220831_105255.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ecf7ba799d1970412fe7ee84ed9be5c2/20220831_105348.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/00b59d8d4b4400793f43ac66b5c90ea0/20220831_105325.jpg" referrerpolicy="no-referrer">
+
