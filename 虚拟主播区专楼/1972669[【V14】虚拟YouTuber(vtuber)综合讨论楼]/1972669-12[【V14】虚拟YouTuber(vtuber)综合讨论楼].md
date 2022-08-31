@@ -8028,3 +8028,21 @@ vox和mysta怎么比老师和鹰宫贵这么多，气抖冷</blockquote>
 云宝这是连b站都云了。
 b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站橄榄的。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17239#       发表于 2022-8-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288714&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-8-31 17:04</a>
+
+云宝这是连b站都云了。
+
+b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站 ...</blockquote>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。
+
+现在想来，这捆绑力度可就大了。
+
+不过，工商分成有人透露过吗？
+

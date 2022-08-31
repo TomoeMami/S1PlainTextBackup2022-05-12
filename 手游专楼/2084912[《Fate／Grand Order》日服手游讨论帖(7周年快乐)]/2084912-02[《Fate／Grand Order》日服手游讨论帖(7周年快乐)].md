@@ -8742,3 +8742,24 @@ ELS（开20NP）+徐福+C呆+C呆
 强行长草
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2279#       发表于 2022-8-31 17:26
+
+<blockquote>引用第2253楼qixinno2于2022-08-31 12:10发表的  :
+
+引用:雾谷藤乃 发表于 2022-8-31 11:52恭喜！太强了！只能说仇凛 强无敌 攒石等仇凛复......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这不就来了吗，快去
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 2280#       发表于 2022-8-31 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在说什么 转生号不都5宝新蓝王了   还抽什么宇宙0  直接5宝接下来的红王啊
+
