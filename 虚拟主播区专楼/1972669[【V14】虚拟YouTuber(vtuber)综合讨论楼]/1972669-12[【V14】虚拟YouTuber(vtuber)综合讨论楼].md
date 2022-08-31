@@ -8106,3 +8106,25 @@ b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过
 
 <img src="https://pbs.twimg.com/media/FbfQhhQVEAAH1rN?format=jpg&amp;name=4096x4096" id="aimg_ja66l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+
+*****
+
+####  OldGlory  
+##### 17246#       发表于 2022-8-31 20:50
+
+田角上市不到半年套不了现的
+
+*****
+
+####  AloissiolA  
+##### 17247#       发表于 2022-8-31 20:51
+
+ 本帖最后由 AloissiolA 于 2022-8-31 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291656&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-8-31 20:39</a>
+
+说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊...... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那从招股书也基本上可以看出来，公开发行的额外股占总发行股的5%都不到 就发行5w股，抛最多股（70%左右的总卖出）的是774的母公司株式会社アドウェイス和其持股子会社 ㈱インフルエンサーインベストメントホールディングス，基本上就是这家公司要cash out才上的场
+
+田角套现还要等一年，不过现在这股价是真的高的很诡异，之前以为稳定在6000+差不多了现在又弹回7000+了，ankr再回市值2000w之境
+
