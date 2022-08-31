@@ -8721,3 +8721,24 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服疯了吧，这个时候复刻宇宙凛，下周应该就是复刻狂那了，要跑路了抢钱是吧？
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2277#       发表于 2022-8-31 17:16
+
+营收这么不妙了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 2278#       发表于 2022-8-31 17:17
+
+看了一圈，一个幕间和强化都没有是不是不太好
+
+强行长草
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -908,3 +908,20 @@ A Hero has batman's body, spiderman's mask</blockquote>
 更加简单的方法（下面回复也有提到），直接用这个：
 [https://grisk.itch.io/stable-diffusion-gui](https://grisk.itch.io/stable-diffusion-gui)
 
+
+
+*****
+
+####  ΑΑ  
+##### 64#       发表于 2022-8-31 17:14
+
+<img src="https://img.saraba1st.com/forum/202208/31/171347mc4htt1sit5i1zss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220831_171305.jpg</strong> (39.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 17:13 上传
+
+我寻思我也没有输入什么太过分的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
