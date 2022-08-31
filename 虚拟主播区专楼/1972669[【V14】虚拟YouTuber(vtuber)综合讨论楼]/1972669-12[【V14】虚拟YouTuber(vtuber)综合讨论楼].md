@@ -7834,3 +7834,14 @@ ethyria第一次联动玩抓鬼就已经非常母慈女孝，这四个人就没�
 
 当然赚集美钱挨集美骂还是非常合理的 只不过集美的水平现在看也就在捡中闹闹了 要真能把vox怎么样了我只能说句好似喵
 
+
+
+*****
+
+####  Paisley  
+##### 17221#       发表于 2022-8-31 13:33
+
+vox刚开展工作的时候是很会演嘛，纯纯一敬业工作狂形象，后来发现咋地都有人打钱就飘了，集美自己造神又破防是挺搞笑，但观众本来不就是看个乐子，不高兴就骂也挺正常的，谁能说自己不对主播有点期待呢，她们比较夸张罢了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+而且有些朋友也云太厉害<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然鸟嘴真的脏但没见enna联动跑别人直播间对别人观众开这种范围地图炮
+
