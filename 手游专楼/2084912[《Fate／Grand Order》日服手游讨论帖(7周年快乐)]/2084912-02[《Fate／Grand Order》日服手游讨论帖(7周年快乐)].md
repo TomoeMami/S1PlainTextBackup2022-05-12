@@ -8976,3 +8976,12 @@ ELS（开20NP）+徐福+C呆+C呆
 仇凛现在是不是没必要2宝了啊，我开了图鉴就想跑路</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无敌的水伊吹仇凛确实没啥必要了 话说TMD就干开池子连个强化本都没有的么 哪怕给个幕间我都当他努力了
 
+
+
+*****
+
+####  quanlix  
+##### 2302#       发表于 2022-8-31 20:37
+
+看这次天草定律还管用不管用了
+
