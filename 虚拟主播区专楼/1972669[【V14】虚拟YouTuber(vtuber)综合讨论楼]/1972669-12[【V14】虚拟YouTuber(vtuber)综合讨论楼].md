@@ -8046,3 +8046,23 @@ b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过
 
 不过，工商分成有人透露过吗？
 
+
+
+*****
+
+####  真飞鸟i  
+##### 17240#       发表于 2022-8-31 17:37
+
+只能说虹血赚
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  真飞鸟i  
+##### 17241#       发表于 2022-8-31 17:37
+
+只能说虹血赚 风怒让虹赢俩次
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

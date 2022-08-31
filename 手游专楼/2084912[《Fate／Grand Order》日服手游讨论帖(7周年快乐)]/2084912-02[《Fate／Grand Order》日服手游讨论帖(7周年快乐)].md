@@ -8763,3 +8763,40 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在说什么 转生号不都5宝新蓝王了   还抽什么宇宙0  直接5宝接下来的红王啊
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2281#       发表于 2022-8-31 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宇宙凛复刻了，一定不要食言
+
+*****
+
+####  都谷捻柏  
+##### 2282#       发表于 2022-8-31 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288902&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-31 17:17</a>
+
+看了一圈，一个幕间和强化都没有是不是不太好
+
+强行长草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明掌握了精髓：开卡池就行了，强化什么的有必要吗，没有比我们废狗平衡性更好的游戏了
+
+*****
+
+####  铁柱子  
+##### 2283#       发表于 2022-8-31 17:32
+
+建议司马睿送佛送到西，速速上线新模型
+
+*****
+
+####  铁柱子  
+##### 2284#       发表于 2022-8-31 17:37
+
+不开强化仇凛只有厨子会抽吧？
+
+开强化也离谱
+

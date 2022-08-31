@@ -925,3 +925,22 @@ A Hero has batman's body, spiderman's mask</blockquote>
 
 我寻思我也没有输入什么太过分的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  afer  
+##### 65#       发表于 2022-8-31 17:34
+
+ 本帖最后由 afer 于 2022-8-31 17:35 编辑 
+
+<img src="https://img.saraba1st.com/forum/202208/31/173441oxfffffjntlyc7jj.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220831173427.jpg</strong> (65.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 17:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不违规，违规提示我删。
+
