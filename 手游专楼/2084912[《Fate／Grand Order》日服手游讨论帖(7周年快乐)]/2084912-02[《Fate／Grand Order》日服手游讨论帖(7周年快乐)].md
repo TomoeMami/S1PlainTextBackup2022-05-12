@@ -9262,3 +9262,12 @@ ELS（开20NP）+徐福+C呆+C呆
 剩下6张护符丢进了弓0池并没有出货  这还能叫欧吗!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何等的欧狗发言 我10呼符甚至只有一个四星礼装
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2330#       发表于 2022-8-31 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然能换十张护符，本想试试水，思考了下不厨凛，过
+
