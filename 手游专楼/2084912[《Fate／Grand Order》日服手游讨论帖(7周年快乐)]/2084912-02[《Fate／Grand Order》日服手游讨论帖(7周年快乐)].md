@@ -8500,3 +8500,15 @@ ELS（开20NP）+徐福+C呆+C呆
 恭喜！太强了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了
 
+
+
+*****
+
+####  qixinno2  
+##### 2255#       发表于 2022-8-31 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284928&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 11:57</a>
+
+欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">相信自己 你也可以的
+

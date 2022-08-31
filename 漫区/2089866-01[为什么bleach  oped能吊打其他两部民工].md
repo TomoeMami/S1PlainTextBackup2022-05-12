@@ -923,3 +923,16 @@ Oricon公信榜
 
 jump少年漫改编动画里，除了一骑绝尘的SD外，幽游白书和浪客剑心的动画单曲销量也高的一比
 
+
+
+*****
+
+####  渡辺梨加  
+##### 98#       发表于 2022-8-31 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273056&amp;ptid=2089866" target="_blank">宛平南路600号 发表于 2022-8-30 13:47</a>
+还有犬夜叉，只找大牌的来唱
+
+安室奈美惠、滨崎步、v6、大无限、小事乐团、BOA、泷与翼 ...</blockquote>
+不是只找大牌，是当年艾回旗下歌手能打
+
