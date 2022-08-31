@@ -892,3 +892,19 @@ A Hero has batman's body, spiderman's mask</blockquote>
 但它给的是batman's mask, spiderman's body啊</blockquote>
 你不说我都没注意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为他出了一堆超人, 蝙蝠侠, 蜘蛛侠的混合体
 
+
+
+*****
+
+####  厨具战士  
+##### 63#       发表于 2022-8-31 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57215014&amp;ptid=2088857" target="_blank">superkidx 发表于 2022-8-25 17:08</a>
+
+问一下LZ 这个Github下载的源码到底怎么用啊</blockquote>
+虽然可能你已经解决了这个问题……
+[https://www.bilibili.com/video/BV1rV4y1H7K3/](https://www.bilibili.com/video/BV1rV4y1H7K3/)
+
+更加简单的方法（下面回复也有提到），直接用这个：
+[https://grisk.itch.io/stable-diffusion-gui](https://grisk.itch.io/stable-diffusion-gui)
+

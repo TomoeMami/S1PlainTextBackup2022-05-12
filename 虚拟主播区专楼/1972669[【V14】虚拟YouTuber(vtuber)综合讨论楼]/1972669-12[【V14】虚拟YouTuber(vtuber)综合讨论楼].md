@@ -7981,3 +7981,29 @@ en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</
 <img src="https://p.sda1.dev/7/15210014a19b9f008b2f244124cd376a/714c5bca57c5c9b.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 17234#       发表于 2022-8-31 16:13
+
+郡道都要5w，相比之下vox20多w都显得有性价比了。
+
+*****
+
+####  心垂万刃  
+##### 17235#       发表于 2022-8-31 16:15
+
+30万应该是米桑给主播的工商费的极限了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17236#       发表于 2022-8-31 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287531&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-31 15:44</a>
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷</blockquote>
+考虑到观众潜在的付费能力差距？毕竟集美在批站给en男打钱都不眨眼
+
