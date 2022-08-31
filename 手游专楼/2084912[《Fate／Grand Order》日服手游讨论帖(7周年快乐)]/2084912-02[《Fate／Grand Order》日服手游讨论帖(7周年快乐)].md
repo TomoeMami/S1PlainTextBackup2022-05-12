@@ -8602,3 +8602,15 @@ ELS（开20NP）+徐福+C呆+C呆
 别说了 你就是欧皇</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多是个亚洲人 没有三宝限定的根本不配当欧皇
 
+
+
+*****
+
+####  铁柱子  
+##### 2265#       发表于 2022-8-31 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286098&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:45</a>
+
+这有什么乐子？</blockquote>
+可能有人会掉号
+

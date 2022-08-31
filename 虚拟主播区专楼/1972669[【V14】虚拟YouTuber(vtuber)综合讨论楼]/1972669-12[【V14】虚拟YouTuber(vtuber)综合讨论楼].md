@@ -7866,3 +7866,25 @@ enna特别喜欢嘴臭的几位都是熟人，而且一般是正面交锋
 
 我觉得在en那种氛围下面单纯嘴臭很难成为anti真正的理由，基本都是拿来当节奏的烟雾弹
 
+
+
+*****
+
+####  fastary  
+##### 17223#       发表于 2022-8-31 14:11
+
+<blockquote>winda 发表于 2022-8-31 12:39
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+那我只能说你们en混沌嘴臭自有文化氛围在，行，但是别拿本社来背书= 。=
+
+<img src="https://img.saraba1st.com/forum/202208/31/141103orjl0l1z0ykirlis.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022_0831_140620.png</strong> (245.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-31 14:11 上传
+
