@@ -8392,3 +8392,19 @@ ELS（开20NP）+徐福+C呆+C呆
 我只抽了1200</blockquote>
 泳7这几个池加上泡馍感觉都挺值得一抽的，就没能管住手<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2244#       发表于 2022-8-31 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泡馍扔了1个10连没就放弃了。个人不是很喜欢三破。要是满破换成那个废案说不定我还会多抽几下
+
+*****
+
+####  qixinno2  
+##### 2245#       发表于 2022-8-31 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日啊 两种礼装都刷到第二张满破了 还是抽不到角色
+

@@ -7643,3 +7643,21 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 
 啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的
 
+
+
+*****
+
+####  Suny08  
+##### 17204#       发表于 2022-8-31 10:21
+
+我是觉得之前一堆妹妹们说vox 很会说话很尊重女性非常绅士才入坑的，现在又变成他嘴臭不尊重女性还是挺有意思的
+
+*****
+
+####  皮卡丘小发卡  
+##### 17205#       发表于 2022-8-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283388&amp;ptid=1972669" target="_blank">米多里 发表于 2022-8-31 10:15</a>
+啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的 ...</blockquote>
+被粉丝把握得死死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

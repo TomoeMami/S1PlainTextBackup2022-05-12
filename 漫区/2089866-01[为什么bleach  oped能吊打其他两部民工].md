@@ -822,3 +822,14 @@ s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两
 
 [https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49](https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49) 这个
 
+
+
+*****
+
+####  ΑΑ  
+##### 90#       发表于 2022-8-31 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283338&amp;ptid=2089866" target="_blank">shinnluna 发表于 2022-8-31 10:12</a>
+别无知行不，说话都不过脑子，起码截至2021前，有专门节目统计的，海贼的OPED的唱片销量，远远大于死神和 ...</blockquote>
+销量是被东方神起的名气爆杀，却丝毫没给宅宅们留下一点印象<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
