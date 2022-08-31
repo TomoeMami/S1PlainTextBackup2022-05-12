@@ -9280,3 +9280,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然有5宝迦摩5宝水伊吹加我，感觉转生号气息太强了下意识拒绝了
 
+
+
+*****
+
+####  exiaexa  
+##### 2332#       发表于 2022-9-1 00:09
+
+我现在辨别是不是转生号，就看宝石翁
+
+能掏出满破宝石翁的就不是转生石头号
+
+那堆泛用打手满宝，剩下全1又没满破宝石的，大概率就是转生号
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
