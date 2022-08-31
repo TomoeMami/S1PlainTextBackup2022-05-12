@@ -7784,3 +7784,14 @@ enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.
 
 当然enna爱开snp笑话这个肯定就是她有意识情况下做出来的了
 
+
+
+*****
+
+####  dclara1  
+##### 17217#       发表于 2022-8-31 13:06
+
+其实就是熟才能当面输出，恭恭敬敬的不就是距离感嘛
+
+ethyria第一次联动玩抓鬼就已经非常母慈女孝，这四个人就没停过，乐坏我了，我就喜欢这种vibe<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
