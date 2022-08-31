@@ -9218,3 +9218,35 @@ ELS（开20NP）+徐福+C呆+C呆
 还是萌新狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">误会 都是误会 能换伊吹吗
 
+
+
+*****
+
+####  qixinno2  
+##### 2326#       发表于 2022-8-31 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293450&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:09</a>
+
+误会 都是误会 能换伊吹吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狗萌新随随便便一发单抽就露出了自己欧狗嘴脸 
+
+*****
+
+####  alucardcz  
+##### 2327#       发表于 2022-8-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293494&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 23:13</a>
+
+狗萌新随随便便一发单抽就露出了自己欧狗嘴脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">剩下6张护符丢进了弓0池并没有出货  这还能叫欧吗!
+
+*****
+
+####  霧谷藤乃  
+##### 2328#       发表于 2022-8-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是欧洲萌新，我竟然毫不意外
+
