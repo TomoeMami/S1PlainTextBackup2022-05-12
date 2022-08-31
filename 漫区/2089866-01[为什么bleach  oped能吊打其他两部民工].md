@@ -616,3 +616,186 @@ alones Velonica  剧场版1的千の夜をこえて
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  hulaoda007  
+##### 71#       发表于 2022-8-30 17:09
+
+ 本帖最后由 hulaoda007 于 2022-8-30 17:11 编辑 
+
+一般来说还是顽皮不如不利吃，不利吃不如哪路托，哪路托不如扣南吧？
+
+感慨柯南的选曲真是好很多很多。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  stygian  
+##### 72#       发表于 2022-8-30 17:25
+
+翻了下wiki，OP的staff里好像没有音乐监制一职只有选曲和音监
+
+
+
+*****
+
+####  黑猫桑  
+##### 73#       发表于 2022-8-30 18:05
+
+s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪
+
+*****
+
+####  rar1536770  
+##### 74#       发表于 2022-8-30 18:10
+
+只看个人的话，海贼王最适合我，曲调轻松明快。
+
+火影已经没有什么印象了，不过BGM五月雨倒是可以。
+
+死神时髦，但没几首喜欢的，比火影好。
+
+
+
+*****
+
+####  ricarto  
+##### 75#       发表于 2022-8-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268445&amp;ptid=2089866" target="_blank">圈量子 发表于 2022-8-30 07:48</a>
+
+草，这首是第7张单曲バレッタ收录的，那个时候乃木坂销量还只有几十万呢 ...</blockquote>
+销量里火影的歌确实都是偏少的，大部分都不是什么大red，没办法。
+
+但是歌本身质量和画面契合度都是很优秀的
+
+
+
+*****
+
+####  hanan1  
+##### 76#       发表于 2022-8-30 18:56
+
+看到有人提了漂白的OST
+
+另外两家也不差吧，火影的高梨康治，OP的田中+滨口
+
+不都是一等一的高手
+
+
+
+*****
+
+####  动如雷霆  
+##### 77#       发表于 2022-8-30 19:06
+
+life is a boat我现在依然经常听
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  肉搏光头  
+##### 78#       发表于 2022-8-30 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276514&amp;ptid=2089866" target="_blank">黑猫桑 发表于 2022-8-30 18:05</a>
+
+s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪 ...</blockquote>
+TV最终章要放了还不能吹一下优点，搞体育论坛谁菜谁没有呼吸权那套吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  タマネギ  
+##### 79#       发表于 2022-8-30 20:34
+
+不如犬夜叉
+
+
+
+*****
+
+####  asergh0630rx  
+##### 80#       发表于 2022-8-30 20:54
+
+火影好歌挺多的，海贼少一点。
+
+要我说死神bgm才是厉害，鹭巣诗郎在Bleach里搞了很多挺前卫的音效。
+
+像灵压、大虚的bgm都很经典。
+
+
+
+*****
+
+####  751984871  
+##### 81#       发表于 2022-8-30 21:36
+
+海贼OP变长前，没哪个OP的演出算得上“特别亮眼”，单纯说“好看”可以。OP变长后OP演出质量上升了，但长起来反而没以前更适合宣传了，还容易逼人快进。
+
+火影死神不少OP路人都觉得时髦。
+
+
+
+*****
+
+####  烤鱼饼  
+##### 82#       发表于 2022-8-30 22:16
+
+死神最喜欢乱舞旋律，火影最喜欢青鸟，海贼总体就没啥印象里
+
+死神的OP是真的时髦，这个加分估计不少，虽然本身歌就很好听
+
+
+
+*****
+
+####  zayrq  
+##### 83#       发表于 2022-8-30 22:26
+
+火影的op更有anisong的味，死神的op有些看起来更像mv
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+
+*****
+
+####  haruhiismer  
+##### 84#       发表于 2022-8-30 22:57
+
+感觉青鸟herocomeback秒死神全家了
+
+*****
+
+####  Bitter_bayberry  
+##### 85#       发表于 2022-8-30 22:57
+
+别尬黑 火影很多oped不管是分镜和歌曲契合度水平也很高 说吊打是不是太主观了
+
+*****
+
+####  我就是那条龙  
+##### 86#       发表于 2022-8-30 22:59
+
+当年热播的时候就记得火影的歌上过ASL，死海的有没上过没记住！
+
+
+
+*****
+
+####  bgmilk  
+##### 87#       发表于 2022-8-31 00:26
+
+ 本帖最后由 bgmilk 于 2022-8-31 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276514&amp;ptid=2089866" target="_blank">黑猫桑 发表于 2022-8-30 18:05</a>
+
+s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪 ...</blockquote>
+    海贼的动画确实是三个里最烂的啊，有什么好难堪的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

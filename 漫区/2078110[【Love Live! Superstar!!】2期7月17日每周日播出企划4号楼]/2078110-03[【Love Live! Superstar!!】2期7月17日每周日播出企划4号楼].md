@@ -9372,3 +9372,339 @@ fo数最高的是绘森彩，与其说是眼光，不如说4个新人里有2个�
 
 不知道这个musical是纯新人还是怎样…………之前的v也是一点消息都没
 
+
+
+*****
+
+####  梶原ひかり  
+##### 3896#       发表于 2022-8-30 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275539&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-8-30 16:53</a>
+
+不知道这个musical是纯新人还是怎样…………之前的v也是一点消息都没</blockquote>
+Vtuber 秋天才有消息 
+
+Musicial 一般不会选素人 科班出身或者有经验者 大部分人不认识的概率挺高的
+
+表演系 比 配音要求还是要高的吧
+
+
+
+*****
+
+####  Vacuolar  
+##### 3897#       发表于 2022-8-30 17:56
+
+<blockquote>aoaoaodedede 发表于 2022-8-30 13:30
+顺着问个题外话，不怎么了解音乐这方面，好奇有那种Live一直比CD好的歌手吗，我很自然的认为Live比CD好要么 ...</blockquote>
+古典乐和音乐剧经常有这种，录音室版本只是一个标准版，现场版本才会去挑战极限，偶尔会有翻车段落，但大部分时间里发挥比录音室版本好
+
+
+
+*****
+
+####  稀勢のささ  
+##### 3898#       发表于 2022-8-30 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“如果可可当部长咋样啊”鱼：“嗯....嗯...我确实想”
+
+
+
+*****
+
+####  saya1892  
+##### 3899#       发表于 2022-8-30 18:47
+
+79期小剧场 <blockquote>千「芽衣和四季从入学前开始关系就很好了对吧」
+
+四「对，我们是中学开始认识的」
+
+芽「干嘛这么高兴啊四季，开学前认识又不新鲜」
+
+千「但这样很不错啊，就像我和…」
+
+可「对，就像可可和千砂都一样！」
+
+芽「诶！？可可前辈和千砂都前辈…是这样的吗？！」
+
+四「等等，芽衣，可可前辈应该是…上海出身的」
+
+可「刚刚揭晓的过去……！其实以前，千砂都和家人一起去了上海旅行…！的时候，跟可可认识了！」
+
+千「嗯嗯，有一阵子只能用邮件交流，没想到在结丘还能跟可可再会……我说再怎么说也太勉强了吧，她们信以为真了怎么办？」
+
+可可「千砂都很会接话嘛。不过再怎么说这么明显的谎言应该不会相信……」
+
+四「在liella结成之前，竟然还有这种命运的相会……怎么办，在认识到这个事实之后，再听liella的曲子不就又有不同的感动了吗！咕……非常感谢！」
+
+千「那、那个，芽衣？」
+
+芽「哈……」
+
+四「过会儿我再跟她说。不过芽衣马上就会听信人家的话，不要再说怪话了」
+
+可「不好意思……」
+
+千「对不起了，我们要多小心了可可」
+
+可「知道了。下次要撒一个马上能拆穿的谎」
+
+千「这样又该惹四季生气了」</blockquote>
+
+
+
+*****
+
+####  ViyViy  
+##### 3900#       发表于 2022-8-30 19:19
+
+<blockquote>稀勢のささ 发表于 2022-8-30 18:39
+“如果可可当部长咋样啊”鱼：“嗯....嗯...我确实想”</blockquote>
+“我也想啊，导演不让啊”
+
+
+
+*****
+
+####  lj205  
+##### 3901#       发表于 2022-8-30 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276938&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-8-30 18:39</a>
+“如果可可当部长咋样啊”鱼：“嗯....嗯...我确实想”</blockquote>
+众望所归
+
+*****
+
+####  仟音一心  
+##### 3902#       发表于 2022-8-30 19:36
+
+<img src="https://img.saraba1st.com/forum/202208/30/193629qs33wyok8u4vxvfv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>81B14971-32E1-4D81-841D-C4D3EB928631.jpeg</strong> (337.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 19:36 上传
+
+
+
+*****
+
+####  仟音一心  
+##### 3903#       发表于 2022-8-30 20:04
+
+CelticWhite☕️🎮🆚📶🎮
+
+<img src="https://img.saraba1st.com/forum/202208/30/200436fryysss4xl4w1ygr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E0E349D8-7328-430B-89AA-28F5C94DDFDC.jpeg</strong> (301.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 20:04 上传
+
+
+
+*****
+
+####  ads147147  
+##### 3904#       发表于 2022-8-30 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57277766&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-30 19:36</a></blockquote>
+居然这么多都是少歌的人了。。
+
+
+
+*****
+
+####  仟音一心  
+##### 3905#       发表于 2022-8-30 21:36
+
+<img src="https://img.saraba1st.com/forum/202208/30/213616rv54vepd4p79zcsr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3C08286D-785F-4F1E-9F03-D53EBC62EF02.jpeg</strong> (83.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 21:36 上传
+
+*****
+
+####  lj205  
+##### 3906#       发表于 2022-8-30 21:37
+
+还行嘛，果然比起深仇大恨的整活还不如写日常
+
+
+
+*****
+
+####  ads147147  
+##### 3907#       发表于 2022-8-30 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279254&amp;ptid=2078110" target="_blank">lj205 发表于 2022-8-30 21:37</a>
+
+还行嘛，果然比起深仇大恨的整活还不如写日常</blockquote>
+第8话一眼就知道是主线了，人家vn说不定都要来，香音准备第二熟
+
+
+
+*****
+
+####  adw667  
+##### 3908#       发表于 2022-8-30 23:44
+
+<img src="https://img.saraba1st.com/forum/202208/30/234322z5z0115oj9soz495.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220830234213.png</strong> (93.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:43 上传
+
+本子那边的活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说真的看这个比直接看正片乐多了
+
+*****
+
+####  仟音一心  
+##### 3909#       发表于 2022-8-30 23:49
+
+あs 翻译嵌字：洲崎惠梨
+
+<img src="https://img.saraba1st.com/forum/202208/30/234812rv60e6dbcbewggmm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>15638D0A-5EE2-43EB-BCC5-32050202D94F.jpeg</strong> (366.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/30/234823lwhuouxqdkuxaszd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9046D611-D427-4251-8E72-3D88C1C74F22.jpeg</strong> (357.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/30/234823ntm7l5ijvloirivz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6080D312-EAAB-491F-A30E-66A0D164994F.jpeg</strong> (297.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:48 上传
+
+Pay庆祝初音生日
+
+<img src="https://img.saraba1st.com/forum/202208/30/234847y3mhmkg3ue9lhmvg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BCD60CC1-170F-42D8-A04B-5C74DA9BE884.jpeg</strong> (177.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202208/30/234854d4f70m5b9aae959b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>459E86F9-40FC-4B6A-B44A-002FFB9C1F9F.jpeg</strong> (173.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:48 上传
+
+没被蚊子咬
+
+<img src="https://img.saraba1st.com/forum/202208/30/234952sdddj4ozp4p1qoao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5902AF69-F558-4D1E-82E3-301B56413799.jpeg</strong> (89.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:49 上传
+
+截止第7话
+
+<img src="https://img.saraba1st.com/forum/202208/30/234910h1b8jj3eocjojht3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D5406035-E880-4882-AC63-DCCC08804932.jpeg</strong> (75.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:49 上传
+
+？？？
+
+<img src="https://img.saraba1st.com/forum/202208/30/234926c6y58lxr2ij5vvwa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>922494BB-0850-443C-9333-2B4740560CED.jpeg</strong> (499.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-30 23:49 上传
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 3910#       发表于 2022-8-31 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280436&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-8-30 23:49</a>
+
+あs 翻译嵌字：洲崎惠梨</blockquote>
+最后面这个是P图吧，这图的原图出处可能不好找了，不过貌似去年11月的一个高赞和高转推的推或许是原出处
+
+*****
+
+####  仟音一心  
+##### 3911#       发表于 2022-8-31 00:04
+
+<blockquote>aoaoaodedede 发表于 2022-8-31 00:01
+最后面这个是P图吧，这图的原图出处可能不好找了，不过貌似去年11月的一个高赞和高转推的推或许是原出处 ...</blockquote>
+是的
+
+<img src="https://img.saraba1st.com/forum/202208/31/000439ccs4h3f3661z5104.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90FF5C27-5B50-42CD-A8FC-5492503B1777.jpeg</strong> (547.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-31 00:04 上传
+
+
+
+*****
+
+####  凡人  
+##### 3912#       发表于 2022-8-31 00:27
+
+这比1-6一拳放送还高啊，看来女同还是有用的。
+
+
+
+*****
+
+####  ads147147  
+##### 3913#       发表于 2022-8-31 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280757&amp;ptid=2078110" target="_blank">凡人 发表于 2022-8-31 00:27</a>
+这比1-6一拳放送还高啊，看来女同还是有用的。</blockquote>
+不是女同有用，是红蓝间的互动才是正常人该有的情况，虽然默认les成立感觉也挺怪的。但不论超友谊关系，这个互动也正常的多。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7393,3 +7393,244 @@ nina，reimu包括enna嘴也挺臭的不知道这过激玩笑的边界在哪</bl
 
 是的话那也是en独一份，和所谓“虹人生态”没有半毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 17183#       发表于 2022-8-30 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+用妈开玩笑具体是什么？
+
+如果是Your mom系列那就是英文玩笑老梗了，攻击性远没有中文语境看上去那么强
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Ronu  
+##### 17184#       发表于 2022-8-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+en就这样，氛围和jp那边不一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+互call bitch问候家人why you still alive，戳别人各种黑历史痛点找乐子什么的是家常便饭了
+
+不管再怎么说，我想正常主播都不会希望观众在那边瞎起哄强出头，尤其矛头还是对着自己合作过的同事。真有问题他们也会自己私下解决
+“我家推受委屈了呜呜呜”基本纯属幻想
+幕后委屈的事儿多着呢，但是应该基本都不是weibo集美们在冲的那些
+
+
+
+*****
+
+####  天天座理世  
+##### 17185#       发表于 2022-8-30 17:26
+
+vspo这新人开播A了，水平比妹妹和八云强不少。
+
+现在这排位保底是个白金到钻石。
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17186#       发表于 2022-8-30 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说明欧美圈文化受众变小了 都是好事啊
+
+
+
+*****
+
+####  fastary  
+##### 17187#       发表于 2022-8-30 17:48
+
+<blockquote>dclara1 发表于 2022-8-30 17:16
+用妈开玩笑具体是什么？
+
+如果是Your mom系列那就是英文玩笑老梗了，攻击性远没有中文语境看上去那么强</blockquote>
+还有粉丝在回复提到她妈的时候调侃说她妈跟自己过了一晚上挺好的结果粉丝妈昨晚在住院…
+
+syl
+
+↑我无意伸张正义或是为其他en成员打抱不平，单纯觉得用“虹人生态”和“问题儿童收容所”去轻飘飘全肯定vox或者说en的混沌非常让我恶心
+
+
+
+*****
+
+####  Ronu  
+##### 17188#       发表于 2022-8-30 17:55
+
+vox单纯就是能力支撑不了他这体量，菜是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dclara1  
+##### 17189#       发表于 2022-8-30 18:09
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+后面就没怎么关注了
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  空集  
+##### 17190#       发表于 2022-8-30 18:16
+
+你说en氛围那为啥我记得nen只有一两期的时候没有后面听说的drama那么多....真不是嘴臭人积少成多么
+
+
+
+*****
+
+####  rzrbtk  
+##### 17191#       发表于 2022-8-30 18:23
+
+所谓“糊是最好的保护色”
+
+
+
+*****
+
+####  dclara1  
+##### 17192#       发表于 2022-8-30 18:45
+
+去找了些vox切片看抓马
+
+a对b开玩笑，结果c被冒犯了，要给b打抱不平
+
+美国人对这个就再熟悉不过了。想起key &amp; peele的其中一集
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  CarlSteve  
+##### 17193#       发表于 2022-8-30 19:04
+
+相比嘴臭用vulgar形容他更贴切。一般纯路人也受不了他说的话，比如milk and cream。
+
+
+
+*****
+
+####  winda  
+##### 17194#       发表于 2022-8-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些
+
+
+
+*****
+
+####  OldGlory  
+##### 17195#       发表于 2022-8-30 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276564&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-30 18:09</a>
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+ ...</blockquote>
+后面又把自己的话全都吃回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17196#       发表于 2022-8-30 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57278622&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-8-30 20:40</a>
+
+后面又把自己的话全都吃回去了</blockquote>
+看来你真的不看他直播
+
+
+
+*****
+
+####  OldGlory  
+##### 17197#       发表于 2022-8-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+
+看来你真的不看他直播</blockquote>
+他是在推特上把自己的话吃回去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17198#       发表于 2022-8-30 23:17
+
+确实不看了，有人骂观众的妈还上赶着送同接订阅，这事儿谁愿意谁上吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是否出于娱乐性质的自嘲和暴言，感觉还是不一样的
+
+
+
+*****
+
+####  Paisley  
+##### 17199#       发表于 2022-8-31 00:39
+
+理解成本人贱又一堆集美护惹人烦就得了，遇到谁都能来一句你妈卖了还可劲护的观众真的挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lanslort  
+##### 17200#       发表于 2022-8-31 05:39
+
+Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂我觉得Vox大概骂不过她。不过我印象中她不会波及对方亲人，更不可能对粉丝这么说。她昨天因为歌回涨了不少粉还专门给新来的观众提过，而且说联动的话都会事先确认对方的底线。Vox这种就真的是什么锅什么盖了，不过我对他的梁木主要也还是感觉他不够pro，虽然也是云来的吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  hulaoda007  
+##### 17201#       发表于 2022-8-31 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+看来你真的不看他直播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道不是他切割粉丝，然后又表示不切割粉丝吗？
+
+
+
+*****
+
+####  NBXX  
+##### 17202#       发表于 2022-8-31 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272737&amp;ptid=1972669" target="_blank">Paisley 发表于 2022-8-30 13:16</a>
+
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站</blockquote>
+除了nyaa，最有可能找到的公开地方一般在4chan的/vt/或者/t/，可以通过4chan备份站搜索历史帖。
+
+亦或是去[https://forum.holopirates.moe/](https://forum.holopirates.moe/) 
+
+虽然是holo的海盗站但是也有NIJI的资源。不过貌似活动就发过一部资源，其余都是音声和会员直播。但是有求物板可以发帖。
+

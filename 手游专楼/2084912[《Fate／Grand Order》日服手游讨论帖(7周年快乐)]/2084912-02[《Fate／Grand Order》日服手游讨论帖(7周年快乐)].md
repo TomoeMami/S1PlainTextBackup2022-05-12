@@ -8091,3 +8091,304 @@ ELS（开20NP）+徐福+C呆+C呆
 
 绘理世主要是回收不如其他蓝卡单体。但作为一个泛用蓝卡打手够了。实际上我也是用绘理世打90+。但是我是双打手，双蓝呆+ELS+自充单体剑。当然我觉得如果无限池子还是50充的飞嫂会好点。但是飞嫂满宝真的难啊。。
 
+
+
+*****
+
+####  alucardcz  
+##### 2219#       发表于 2022-8-30 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们居然没有大公吗.jpg
+
+
+
+*****
+
+####  rooarr  
+##### 2220#       发表于 2022-8-30 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275714&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:07</a>
+
+你们居然没有大公吗.jpg</blockquote>
+1宝伤害不够.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 2221#       发表于 2022-8-30 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275852&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-8-30 17:15</a>
+
+1宝伤害不够.jpg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以用圣杯和金副副cos 2宝  稳够
+
+
+
+*****
+
+####  里村紅葉  
+##### 2222#       发表于 2022-8-30 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275714&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:07</a>
+你们居然没有大公吗.jpg</blockquote>
+我还真没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  alucardcz  
+##### 2223#       发表于 2022-8-30 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276294&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-8-30 17:48</a>
+
+我还真没有
+
+—— 来自 OnePlus NE2210, Android 12上的 S1Next-鹅版 v2.5.2-play</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可大公他白送啊  甚至送了2宝啊（
+
+
+
+*****
+
+####  ggyy0088  
+##### 2224#       发表于 2022-8-30 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276356&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 17:53</a>
+可大公他白送啊  甚至送了2宝啊（</blockquote>
+抽水武藏甚至可以十连出两宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  铁柱子  
+##### 2225#       发表于 2022-8-30 21:37
+
+虽然点数给了一张，但是，泳7是不掉礼装的吗？毕业了一张没掉
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2226#       发表于 2022-8-30 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于吧…我好像刷了一千万点礼装掉了好几张，只不过都没法凑第二个满破
+
+
+
+*****
+
+####  黑上シグマ  
+##### 2227#       发表于 2022-8-30 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">バゲ子礼装我直接掉满了第二张
+
+*****
+
+####  qixinno2  
+##### 2228#       发表于 2022-8-30 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肝出一发十连的石头 连个四星都没出 日了
+
+
+
+*****
+
+####  清风朗月  
+##### 2229#       发表于 2022-8-30 22:55
+
+ 本帖最后由 清风朗月 于 2022-8-30 22:58 编辑 
+
+20块日服号出了三个宝石老头，加上魔道元帅一共四个，现在冲刺拿一包女武神了
+
+
+
+*****
+
+####  alucardcz  
+##### 2230#       发表于 2022-8-30 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279356&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-30 21:48</a>
+
+不至于吧…我好像刷了一千万点礼装掉了好几张，只不过都没法凑第二个满破 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/30/230452zgqzqq2i4gz7vyqn.jpg" referrerpolicy="no-referrer">
+
+<strong>23434.jpg</strong> (484.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊
+
+
+
+*****
+
+####  qixinno2  
+##### 2231#       发表于 2022-8-30 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280056&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 23:05</a>
+
+萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经2200W+了
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2232#       发表于 2022-8-30 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280056&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-30 23:05</a>
+
+萌新我辛辛苦苦刷了快1200万了 为什么啥都没抽到啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你备战不充分啊，我好歹是捏着一井进来的，当然我没去补宝公主
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2233#       发表于 2022-8-30 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我马娘备战充分结果3%概率400+抽5彩直接血崩，可能运气真献祭在这里了吧
+
+
+
+*****
+
+####  qixinno2  
+##### 2234#       发表于 2022-8-30 23:40
+
+<img src="https://img.saraba1st.com/forum/202208/30/234013a386a3s13vvc1cad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (379.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-30 23:40 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经刷不动了
+
+
+
+*****
+
+####  黑上シグマ  
+##### 2235#       发表于 2022-8-31 00:11
+
+<blockquote>引用第2231楼雾谷藤乃于2022-08-30 23:23发表的  :
+
+引用:alucardcz 发表于 2022-8-30 23:05萌新我辛辛苦苦刷了快1200万了 为......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">备战有个蛋用，伊吹吃井，旧梅+RBA也是一井以上，非起来就这样
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  alucardcz  
+##### 2236#       发表于 2022-8-31 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280166&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-30 23:18</a>
+
+我已经2200W+了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 我刷到后面刷牛津去了
+
+*****
+
+####  khxooo  
+##### 2237#       发表于 2022-8-31 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280323&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-30 23:37</a>
+不过我马娘备战充分结果3%概率400+抽5彩直接血崩，可能运气真献祭在这里了吧 ...</blockquote>
+那我估计就是公主连接170连3彩祭天了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2238#       发表于 2022-8-31 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下原来我刷的居然比印象中多
+
+<img src="https://img.saraba1st.com/forum/202208/31/003318lujez2phea269dae.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-08-31-01-25-58-08_13e7a6b10873871.jpg</strong> (465.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 00:33 上传
+
+
+
+*****
+
+####  铁柱子  
+##### 2239#       发表于 2022-8-31 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279980&amp;ptid=2084912" target="_blank">清风朗月 发表于 2022-8-30 22:55</a>
+
+20块日服号出了三个宝石老头，加上魔道元帅一共四个，现在冲刺拿一包女武神了 ...</blockquote>
+什么一宝，不睡觉也要拿满宝<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  铁柱子  
+##### 2240#       发表于 2022-8-31 08:12
+
+还是没忍住啊，她们太诱人了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+24发，迦摩池子跟斯卡蒂池子毕业
+
+*****
+
+####  リッチ  
+##### 2241#       发表于 2022-8-31 08:18
+
+花1天半把泳7毕业了，正在90++冲刺最后的真理之卵
+
+转生号3k石只抽到一张魔道元帅……<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  铁柱子  
+##### 2242#       发表于 2022-8-31 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282085&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-8-31 08:18</a>
+
+花1天半把泳7毕业了，正在90++冲刺最后的真理之卵
+
+转生号3k石只抽到一张魔道元帅…… ...</blockquote>
+大佬3000石allin吗，这么狠的
+
+我只抽了1200
+
+
+
+*****
+
+####  リッチ  
+##### 2243#       发表于 2022-8-31 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282386&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 08:49</a>
+
+大佬3000石allin吗，这么狠的
+
+我只抽了1200</blockquote>
+泳7这几个池加上泡馍感觉都挺值得一抽的，就没能管住手<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

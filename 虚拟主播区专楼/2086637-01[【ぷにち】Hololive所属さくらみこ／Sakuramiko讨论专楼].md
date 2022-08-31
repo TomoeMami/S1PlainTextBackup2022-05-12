@@ -9636,3 +9636,311 @@ koyo今天有一个大型rust企划，不过不是最终日raid的那个
 
 不过时间好像搞错了
 
+
+
+*****
+
+####  rs5621  
+##### 938#       发表于 2022-8-30 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能联想，日本网民太可怕了
+
+
+
+*****
+
+####  holoan  
+##### 939#         楼主| 发表于 2022-8-30 18:37
+
+明早参加ame的rust内赛马企划
+
+这几天都是联动企划了
+
+
+
+*****
+
+####  rs5621  
+##### 940#       发表于 2022-8-30 18:58
+
+好，都不看评论！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸽子死了
+
+
+
+*****
+
+####  holoan  
+##### 941#         楼主| 发表于 2022-8-30 19:13
+
+和amongus一样的
+
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 942#       发表于 2022-8-30 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是建鬼屋建习惯了
+
+
+
+*****
+
+####  rs5621  
+##### 943#       发表于 2022-8-30 20:10
+
+这房子整得太大了吧
+
+
+
+*****
+
+####  rs5621  
+##### 944#       发表于 2022-8-30 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这房子弄的好脆弱啊，只能守家了
+
+
+
+*****
+
+####  rs5621  
+##### 945#       发表于 2022-8-30 20:31
+
+35这房子弯弯绕绕的还四处漏风，最重要的风化箱子还是裸着的，这下要完咯。
+
+*****
+
+####  mqnwbeebwnqm  
+##### 946#       发表于 2022-8-30 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脑回路的确异于常人
+
+
+
+*****
+
+####  rs5621  
+##### 947#       发表于 2022-8-30 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼顶放个钢琴，战前弹一曲提下士气。。。。
+
+*****
+
+####  rs5621  
+##### 948#       发表于 2022-8-30 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，都打过来了，还在楼顶到处逛有说有笑
+
+
+
+*****
+
+####  ZQXY2002  
+##### 949#       发表于 2022-8-30 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">难怪自家都不装陷阱，老是自爆
+
+*****
+
+####  qesto  
+##### 950#       发表于 2022-8-30 20:55
+
+mikochi杀疯了
+
+
+
+*****
+
+####  Achlys  
+##### 951#       发表于 2022-8-30 21:09
+
+35放的钢琴变成火箭筒目标指示了
+
+*****
+
+####  Achlys  
+##### 952#       发表于 2022-8-30 21:11
+
+koyori先辈？
+
+
+
+*****
+
+####  rs5621  
+##### 953#       发表于 2022-8-30 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太痛了，3个火箭筒和c4没了
+
+*****
+
+####  rs5621  
+##### 954#       发表于 2022-8-30 21:18
+
+萝卜子来送c4了
+
+
+
+*****
+
+####  星期三下午五点  
+##### 955#       发表于 2022-8-30 21:23
+
+....
+
+*****
+
+####  rs5621  
+##### 956#       发表于 2022-8-30 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko是对面派来的卧底？这都能被炸死
+
+
+
+*****
+
+####  rs5621  
+##### 957#       发表于 2022-8-30 21:33
+
+结束了，输的不是很惨
+
+
+
+*****
+
+####  ZQXY2002  
+##### 958#       发表于 2022-8-30 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">虽说是乌龙，tc这么暴漏就很，唉
+
+
+
+*****
+
+####  holoan  
+##### 959#         楼主| 发表于 2022-8-30 21:53
+
+确实是娱乐赛效果拉满了
+
+甚至怀疑直播里这些操作都是故意的
+
+反正当最终日raid前的预演也好，把自己问题都暴露出来
+
+那天的组队其实跟今天也差不太多就是 
+
+*****
+
+####  holoan  
+##### 960#         楼主| 发表于 2022-8-30 21:54
+
+TC的保护竟然6个人没有一个人发现有问题
+
+这个队是真的很厉害
+
+
+
+*****
+
+####  holoan  
+##### 961#         楼主| 发表于 2022-8-30 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57278956&amp;ptid=2086637" target="_blank">Achlys 发表于 2022-8-30 21:09</a>
+
+35放的钢琴变成火箭筒目标指示了</blockquote>
+钢琴是luna放的
+
+
+
+*****
+
+####  holoan  
+##### 962#         楼主| 发表于 2022-8-30 22:10
+
+miko盖房子熟练度是够了关键是chat栏每次告知时间都没注意一直在犹豫这犹豫那最后时间分配没弄好很多东西没盖好就开始了
+
+大头也是基本没有盖房的经验所以帮不上什么忙，要是是马自立一起盖应该问题就不大了 最少会提醒把tc周边弄好
+
+不过要是tc弄好了可能最后就没结果了
+
+
+
+*****
+
+####  holoan  
+##### 963#         楼主| 发表于 2022-8-30 23:04
+
+推特报告了miko生日周边开始发送
+
+当然我们还早
+
+
+
+*****
+
+####  holoan  
+##### 964#         楼主| 发表于 2022-8-30 23:47
+
+明天没有直播，也就是说MC100天没达到8月就结束了
+
+嘛预想之内就是了
+
+
+
+*****
+
+####  rs5621  
+##### 965#       发表于 2022-8-31 00:14
+
+有没有说下个月mc100还播不播了
+
+*****
+
+####  holoan  
+##### 966#         楼主| 发表于 2022-8-31 00:15
+
+播了又有什么意义？
+
+还不如把FF赶紧播完然后进行其他企划
+
+*****
+
+####  holoan  
+##### 967#         楼主| 发表于 2022-8-31 00:17
+
+直播标题只到#11，去掉2次是上个月播的，这个月31天只播了9天
+
+不知道要说什么
+
+
+
+*****
+
+####  rs5621  
+##### 968#       发表于 2022-8-31 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是rust好玩
+
+话说这播放量怎么越播越少了,昨晚看还是69w的
+
+<img src="https://img.saraba1st.com/forum/202208/31/003045zh8k2knfpln6xen4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 00:30 上传
+
+
+
+*****
+
+####  holoan  
+##### 969#         楼主| 发表于 2022-8-31 01:27
+
+这也是youtube的式样，过了一天之后会修正掉所谓的spam点击量，基数越大的点击量被修正掉的也越多，反正现在youtube的数字已经被修得没有一个是可信的，全部仅供参考
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
