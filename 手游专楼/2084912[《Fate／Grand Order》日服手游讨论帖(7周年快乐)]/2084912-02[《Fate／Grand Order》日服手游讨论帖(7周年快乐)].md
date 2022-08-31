@@ -8488,3 +8488,15 @@ ELS（开20NP）+徐福+C呆+C呆
 这就是仇凛跟我的羁绊的力量</blockquote>
 欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2254#       发表于 2022-8-31 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284889&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-31 11:52</a>
+
+恭喜！太强了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了
+
