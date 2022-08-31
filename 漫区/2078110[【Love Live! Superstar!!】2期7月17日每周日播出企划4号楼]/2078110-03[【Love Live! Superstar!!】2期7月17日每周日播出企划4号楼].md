@@ -9708,3 +9708,21 @@ Pay庆祝初音生日
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 3914#       发表于 2022-8-31 10:03
+
+这集跟同也没多大关系吧，更多的是重度游戏宅的感同身受票<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我最蒙的就是一句话把蓝毛说醉了……她醉了，我也醉了……
+
+*****
+
+####  凡人  
+##### 3915#       发表于 2022-8-31 10:11
+
+四季最后倒下我的理解是之前她逼问芽衣的时候虽然表面上不动声色但内心是十分紧张的，于是消耗了很多精力在一切结束后就体力不支了。
+
