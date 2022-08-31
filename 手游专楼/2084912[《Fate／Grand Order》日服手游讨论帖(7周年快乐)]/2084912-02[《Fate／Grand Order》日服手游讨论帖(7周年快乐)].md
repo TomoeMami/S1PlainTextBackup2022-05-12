@@ -8560,3 +8560,45 @@ ELS（开20NP）+徐福+C呆+C呆
 不 这是欧皇的力量 非萌只能落泪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧个屁 就是仇凛跟我的羁绊 忘了之前哪个池子了 也是仇凛的羁绊石出的货
 
+
+
+*****
+
+####  铁柱子  
+##### 2261#       发表于 2022-8-31 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285964&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:32</a>
+
+啥事情？</blockquote>
+四点日服更新客户端<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2262#       发表于 2022-8-31 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286083&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 13:44</a>
+
+四点日服更新客户端</blockquote>
+这有什么乐子？
+
+*****
+
+####  alucardcz  
+##### 2263#       发表于 2022-8-31 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286006&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 13:37</a>
+
+欧个屁 就是仇凛跟我的羁绊 忘了之前哪个池子了 也是仇凛的羁绊石出的货 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了 你就是欧皇
+
+*****
+
+####  qixinno2  
+##### 2264#       发表于 2022-8-31 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286103&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:46</a>
+
+别说了 你就是欧皇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多是个亚洲人 没有三宝限定的根本不配当欧皇
+
