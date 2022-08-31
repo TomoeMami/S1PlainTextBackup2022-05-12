@@ -9154,3 +9154,67 @@ ELS（开20NP）+徐福+C呆+C呆
 舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
  宇宙樱 ae 苍月画的 100自充 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2320#       发表于 2022-8-31 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293199&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:44</a>
+
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AE阶的话先要和道满打一架，双道满不算1技能就有80加攻200爆伤了，还有80自充……
+
+*****
+
+####  alucardcz  
+##### 2321#       发表于 2022-8-31 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293199&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:44</a>
+
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度很美是正话还是反话啊
+
+*****
+
+####  qixinno2  
+##### 2322#       发表于 2022-8-31 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十个呼符毛都没出 GG
+
+*****
+
+####  alucardcz  
+##### 2323#       发表于 2022-8-31 23:07
+
+<img src="https://img.saraba1st.com/forum/202208/31/230726kxsotkykrowr6rlh.jpg" referrerpolicy="no-referrer">
+
+<strong>43434.jpg</strong> (496.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 23:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那泥
+
+*****
+
+####  qixinno2  
+##### 2324#       发表于 2022-8-31 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是萌新狗 
+
+*****
+
+####  alucardcz  
+##### 2325#       发表于 2022-8-31 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293445&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 23:08</a>
+
+还是萌新狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">误会 都是误会 能换伊吹吗
+
