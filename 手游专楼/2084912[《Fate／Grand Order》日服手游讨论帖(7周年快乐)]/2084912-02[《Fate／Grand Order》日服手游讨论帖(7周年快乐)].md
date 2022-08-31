@@ -9271,3 +9271,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然能换十张护符，本想试试水，思考了下不厨凛，过
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2331#       发表于 2022-8-31 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然有5宝迦摩5宝水伊吹加我，感觉转生号气息太强了下意识拒绝了
+
