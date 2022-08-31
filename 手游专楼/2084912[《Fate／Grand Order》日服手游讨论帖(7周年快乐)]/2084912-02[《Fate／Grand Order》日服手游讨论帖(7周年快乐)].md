@@ -9003,3 +9003,22 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像会出大卫星角色或超强角色
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2305#       发表于 2022-8-31 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂阿周那的强度还无法满足你们吗
+
+*****
+
+####  黑上シグマ  
+##### 2306#       发表于 2022-8-31 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291811&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-31 20:48</a>
+
+天草定律是什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天草PU后一定有大事发生
+
