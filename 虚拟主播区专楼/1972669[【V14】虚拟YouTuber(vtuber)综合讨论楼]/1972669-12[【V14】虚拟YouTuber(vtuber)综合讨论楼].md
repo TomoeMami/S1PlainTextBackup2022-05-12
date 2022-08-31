@@ -8095,3 +8095,14 @@ b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过
 
 说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊......
 
+
+
+*****
+
+####  free  
+##### 17245#       发表于 2022-8-31 20:45
+
+[https://twitter.com/LifeLikeaLive/status/1564948763633848321](https://twitter.com/LifeLikeaLive/status/1564948763633848321)
+
+<img src="https://pbs.twimg.com/media/FbfQhhQVEAAH1rN?format=jpg&amp;name=4096x4096" id="aimg_ja66l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
