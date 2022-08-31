@@ -876,3 +876,24 @@ Oricon<strong>公信榜</strong>
 
 其他2家如果算JPOP角度，拿什么打
 
+
+
+*****
+
+####  kirishin  
+##### 94#       发表于 2022-8-31 11:16
+
+火影的oped明明很强啊，找的很多都是流行歌手但跟角色和画面的契合度非常好，疾风传当时一开场op时髦值直接拉满，还有很多都列不完，不觉得比时髦神差……海贼那是歌很多本身就是为动画剧情写的典型anisong，时髦度不够但感情到位了，像fight together这种想起来都会眼眶一湿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华夷之辩  
+##### 95#       发表于 2022-8-31 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284207&amp;ptid=2089866" target="_blank">病態極端 发表于 2022-8-31 11:06</a>
+
+Oricon公信榜
+
+历年动画单曲年冠</blockquote>
+数据来了。感谢。
+
