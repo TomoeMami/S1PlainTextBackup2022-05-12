@@ -8157,3 +8157,17 @@ b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过
 唱的又多又好。
 终于找到方向了？
 
+
+
+*****
+
+####  dclara1  
+##### 17250#       发表于 2022-9-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285751&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-8-31 13:10</a>
+
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） ...</blockquote>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">），所以voms en的呼声还是很高的
+
+不过gyari的确不会有动力去搞就是了
+
