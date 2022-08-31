@@ -7661,3 +7661,14 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的 ...</blockquote>
 被粉丝把握得死死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17206#       发表于 2022-8-31 10:30
+
+<blockquote>winda 发表于 2022-8-30 19:51
+还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些</blockquote>
+呃所以nina现在集美风评也不好啊，vox的过激口嗨也还是独一份，你是想用比烂证明vox没问题还是想指责我替他们同事发正义春？还是想说我云en，其实虹就都是这样的？
+
