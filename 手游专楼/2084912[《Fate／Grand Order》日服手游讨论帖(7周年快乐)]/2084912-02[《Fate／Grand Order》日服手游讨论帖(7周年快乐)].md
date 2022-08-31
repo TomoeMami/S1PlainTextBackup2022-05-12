@@ -8614,3 +8614,15 @@ ELS（开20NP）+徐福+C呆+C呆
 这有什么乐子？</blockquote>
 可能有人会掉号
 
+
+
+*****
+
+####  alucardcz  
+##### 2266#       发表于 2022-8-31 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286385&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 14:11</a>
+
+可能有人会掉号</blockquote>
+看不懂你在说什么。更新为什么会掉号 直接点更新不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

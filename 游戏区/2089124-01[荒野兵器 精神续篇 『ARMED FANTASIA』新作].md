@@ -733,3 +733,15 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 技能特效字幕回来了。
 
+
+
+*****
+
+####  无动于衷  
+##### 70#       发表于 2022-8-31 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282485&amp;ptid=2089124" target="_blank">alingzero 发表于 2022-8-31 08:58</a>
+
+看到这么美的项目想支持下，昨天点进众筹页面一看，**小小几十个选项把我看懵了，还只有英文，热情直接没了 ...</blockquote>
+那个是跟影之心精神续作合在一起写的
+
