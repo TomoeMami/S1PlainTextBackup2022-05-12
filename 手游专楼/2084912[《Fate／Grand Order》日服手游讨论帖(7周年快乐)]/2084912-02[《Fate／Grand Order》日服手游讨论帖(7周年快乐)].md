@@ -8809,3 +8809,14 @@ ELS（开20NP）+徐福+C呆+C呆
 
 新礼装是谁？卡米拉？
 
+
+
+*****
+
+####  khxooo  
+##### 2286#       发表于 2022-8-31 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285109&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 12:10</a>
+只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了</blockquote>
+复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
