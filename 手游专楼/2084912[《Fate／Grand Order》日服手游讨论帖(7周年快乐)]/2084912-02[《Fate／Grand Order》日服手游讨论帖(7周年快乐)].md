@@ -8957,3 +8957,22 @@ ELS（开20NP）+徐福+C呆+C呆
 你好 我叫非萌 别乱喊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你算非的话我也非
 
+
+
+*****
+
+####  kiralzb  
+##### 2300#       发表于 2022-8-31 20:12
+
+仇凛现在是不是没必要2宝了啊，我开了图鉴就想跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2301#       发表于 2022-8-31 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291229&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-31 20:12</a>
+
+仇凛现在是不是没必要2宝了啊，我开了图鉴就想跑路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无敌的水伊吹仇凛确实没啥必要了 话说TMD就干开池子连个强化本都没有的么 哪怕给个幕间我都当他努力了
+
