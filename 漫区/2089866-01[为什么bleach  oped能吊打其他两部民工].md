@@ -799,3 +799,26 @@ TV最终章要放了还不能吹一下优点，搞体育论坛谁菜谁没有呼
 s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪 ...</blockquote>
     海贼的动画确实是三个里最烂的啊，有什么好难堪的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinnluna  
+##### 88#       发表于 2022-8-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264243&amp;ptid=2089866" target="_blank">angery 发表于 2022-8-29 19:29</a>
+
+作为动画歌可能吧。
+
+单拿出来当流行歌曲，火影除了青鸟以外根本没有。</blockquote>
+别无知行不，说话都不过脑子，起码截至2021前，有专门节目统计的，海贼的OPED的唱片销量，远远大于死神和火影的，还少女S吊打，脑子有病
+
+*****
+
+####  华安9527  
+##### 89#       发表于 2022-8-31 10:17
+
+题外话，死神OPED有声优翻唱版本，有一首弗利萨和钉宫理惠翻唱的ED超好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49](https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49) 这个
+
