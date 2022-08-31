@@ -7607,3 +7607,14 @@ a对b开玩笑，结果c被冒犯了，要给b打抱不平
 
 Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂我觉得Vox大概骂不过她。不过我印象中她不会波及对方亲人，更不可能对粉丝这么说。她昨天因为歌回涨了不少粉还专门给新来的观众提过，而且说联动的话都会事先确认对方的底线。Vox这种就真的是什么锅什么盖了，不过我对他的梁木主要也还是感觉他不够pro，虽然也是云来的吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 17201#       发表于 2022-8-31 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+看来你真的不看他直播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道不是他切割粉丝，然后又表示不切割粉丝吗？
+
