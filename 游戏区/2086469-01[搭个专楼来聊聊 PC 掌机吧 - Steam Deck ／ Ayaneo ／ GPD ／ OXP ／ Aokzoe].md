@@ -2095,3 +2095,12 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 
 Ayaneo 2 的这个边框的确还挺养眼。
 
+
+
+*****
+
+####  rak1  
+##### 172#       发表于 2022-8-31 16:51
+
+罗技这个720G能效怎么样，能效好配上大电池说不定真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

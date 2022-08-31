@@ -8695,3 +8695,12 @@ ELS（开20NP）+徐福+C呆+C呆
 日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了 ...</blockquote>
 只保第一个池子up角色，出了就没了
 
+
+
+*****
+
+####  alucardcz  
+##### 2274#       发表于 2022-8-31 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有几分钟 有没有事发生呢  例如幕间
+
