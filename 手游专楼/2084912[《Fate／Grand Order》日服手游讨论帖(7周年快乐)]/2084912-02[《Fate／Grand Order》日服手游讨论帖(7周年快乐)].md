@@ -9303,3 +9303,33 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家好,已经九月了(
 
+
+
+*****
+
+####  angelooo  
+##### 2334#       发表于 2022-9-1 00:20
+
+快，快进到是苍月画的高强度AE，我要看隔壁血流成河（虽然好像最近出血量已经够大了23333）
+
+*****
+
+####  保罗赫伯特  
+##### 2335#       发表于 2022-9-1 00:23
+
+原初女神的灵衣免费进商店了啊，好评！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+当时打星战活动的时候有事，剧情最后几关没过完，没拿到灵衣开放权，这次终于能补上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2336#       发表于 2022-9-1 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294055&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:09</a>
+
+我现在辨别是不是转生号，就看宝石翁
+
+能掏出满破宝石翁的就不是转生石头号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一人家欧怎么办 转生自带满破黑杯宝石
+
