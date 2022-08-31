@@ -897,3 +897,20 @@ Oricon公信榜
 历年动画单曲年冠</blockquote>
 数据来了。感谢。
 
+
+
+*****
+
+####  消防  
+##### 96#       发表于 2022-8-31 11:37
+
+ 本帖最后由 消防 于 2022-8-31 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284207&amp;ptid=2089866" target="_blank">病态极端 发表于 2022-8-31 11:06</a>
+
+Oricon公信榜
+
+历年动画单曲年冠</blockquote>
+银魂这么强<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+还觉得觉得第一季除了DOES其他都挺普通的，BGM和剧中插曲比较出彩，第二季才是好歌频出的时候
+
