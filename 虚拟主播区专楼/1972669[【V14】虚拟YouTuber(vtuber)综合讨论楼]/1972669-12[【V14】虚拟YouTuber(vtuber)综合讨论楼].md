@@ -7693,3 +7693,36 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 <img src="https://p.sda1.dev/7/fb6306f8e44f1e68f95f1d147d681956/6b6cb23e99c30254.jpg" referrerpolicy="no-referrer">
 ?
 
+
+
+*****
+
+####  dclara1  
+##### 17209#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  dclara1  
+##### 17210#       发表于 2022-8-31 12:28
+
+ 本帖最后由 dclara1 于 2022-8-31 12:30 编辑 
+
+风怒
+
+*****
+
+####  dclara1  
+##### 17211#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
