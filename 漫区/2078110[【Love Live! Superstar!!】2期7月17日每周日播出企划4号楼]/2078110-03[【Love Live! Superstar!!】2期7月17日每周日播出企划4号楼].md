@@ -9695,3 +9695,16 @@ Pay庆祝初音生日
 
 这比1-6一拳放送还高啊，看来女同还是有用的。
 
+
+
+*****
+
+####  ads147147  
+##### 3913#       发表于 2022-8-31 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57280757&amp;ptid=2078110" target="_blank">凡人 发表于 2022-8-31 00:27</a>
+这比1-6一拳放送还高啊，看来女同还是有用的。</blockquote>
+不是女同有用，是红蓝间的互动才是正常人该有的情况，虽然默认les成立感觉也挺怪的。但不论超友谊关系，这个互动也正常的多。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

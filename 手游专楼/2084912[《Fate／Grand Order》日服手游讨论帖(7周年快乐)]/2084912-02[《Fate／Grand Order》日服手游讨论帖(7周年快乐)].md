@@ -8342,3 +8342,23 @@ ELS（开20NP）+徐福+C呆+C呆
 20块日服号出了三个宝石老头，加上魔道元帅一共四个，现在冲刺拿一包女武神了 ...</blockquote>
 什么一宝，不睡觉也要拿满宝<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2240#       发表于 2022-8-31 08:12
+
+还是没忍住啊，她们太诱人了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+24发，迦摩池子跟斯卡蒂池子毕业
+
+*****
+
+####  リッチ  
+##### 2241#       发表于 2022-8-31 08:18
+
+花1天半把泳7毕业了，正在90++冲刺最后的真理之卵
+
+转生号3k石只抽到一张魔道元帅……<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
