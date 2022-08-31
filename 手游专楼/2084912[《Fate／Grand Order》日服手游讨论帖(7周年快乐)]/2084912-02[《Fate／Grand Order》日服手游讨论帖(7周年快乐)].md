@@ -8859,3 +8859,35 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来种火本减半了，可以继续刷起来了
 
+
+
+*****
+
+####  qixinno2  
+##### 2291#       发表于 2022-8-31 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290288&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-31 18:59</a>
+
+阿叶是不是在楼里啊，这么快就满足了你的愿望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD我都没石头拿头抽 过几个月复刻不好么
+
+*****
+
+####  qixinno2  
+##### 2292#       发表于 2022-8-31 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289660&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 18:08</a>
+
+复刻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹
+
+*****
+
+####  qixinno2  
+##### 2293#       发表于 2022-8-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289027&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-31 17:26</a>
+
+你看这不就来了吗，快去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我TMD还没攒出石头来呢 拿头抽
+
