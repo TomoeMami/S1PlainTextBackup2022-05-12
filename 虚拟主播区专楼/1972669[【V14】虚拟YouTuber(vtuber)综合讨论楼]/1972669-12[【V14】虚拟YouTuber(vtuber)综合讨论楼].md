@@ -7964,3 +7964,20 @@ en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</
 暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">康米有什么问题，楼友不要尬黑
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17232#       发表于 2022-8-31 16:09
+
+束棒发言我感觉日本那社会很常见。如果是我没记错的束棒发言的话。
+
+*****
+
+####  心垂万刃  
+##### 17233#       发表于 2022-8-31 16:09
+
+<img src="https://p.sda1.dev/7/15210014a19b9f008b2f244124cd376a/714c5bca57c5c9b.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
