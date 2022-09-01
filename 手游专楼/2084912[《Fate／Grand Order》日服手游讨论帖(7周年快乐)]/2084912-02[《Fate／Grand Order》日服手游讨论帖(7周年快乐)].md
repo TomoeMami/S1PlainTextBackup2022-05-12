@@ -9392,3 +9392,15 @@ ELS（开20NP）+徐福+C呆+C呆
 卖家根本不把这个当卖点的</blockquote>
 真相是早被挑完了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 2341#       发表于 2022-9-1 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+欧 羡慕 我怎么抽不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
