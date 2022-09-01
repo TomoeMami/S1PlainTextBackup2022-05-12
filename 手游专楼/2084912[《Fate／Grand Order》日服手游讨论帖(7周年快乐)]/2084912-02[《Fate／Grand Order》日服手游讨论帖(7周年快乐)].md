@@ -9404,3 +9404,18 @@ ELS（开20NP）+徐福+C呆+C呆
 那泥</blockquote>
 欧 羡慕 我怎么抽不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 2342#       发表于 2022-9-1 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294055&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:09</a>
+我现在辨别是不是转生号，就看宝石翁
+
+能掏出满破宝石翁的就不是转生石头号</blockquote>
+玩了5、6年才满破宝石的哭了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
