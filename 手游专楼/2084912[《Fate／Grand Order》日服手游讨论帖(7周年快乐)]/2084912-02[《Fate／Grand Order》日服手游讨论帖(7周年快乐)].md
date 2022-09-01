@@ -8392,3 +8392,1015 @@ ELS（开20NP）+徐福+C呆+C呆
 我只抽了1200</blockquote>
 泳7这几个池加上泡馍感觉都挺值得一抽的，就没能管住手<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2244#       发表于 2022-8-31 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泡馍扔了1个10连没就放弃了。个人不是很喜欢三破。要是满破换成那个废案说不定我还会多抽几下
+
+*****
+
+####  qixinno2  
+##### 2245#       发表于 2022-8-31 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日啊 两种礼装都刷到第二张满破了 还是抽不到角色
+
+
+
+*****
+
+####  rollingusagi  
+##### 2246#       发表于 2022-8-31 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">没想到3天就毕业了，本来还以为时间不够，90++本收益好爽啊，嫖个斋藤一，带梅莉+c呆随便冲。顺带补了个道满二宝先当会临时打手，水伊吹宝具那个正脸实在丑的受不了嫖了几次就放弃了，强度再高我也不想伤害自己眼睛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  铁柱子  
+##### 2247#       发表于 2022-8-31 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283486&amp;ptid=2084912" target="_blank">areklose 发表于 2022-8-31 10:21</a>
+
+泡馍扔了1个10连没就放弃了。个人不是很喜欢三破。要是满破换成那个废案说不定我还会多抽几下 ...</blockquote>
+泡馍差点吃保底了，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 2248#       发表于 2022-8-31 11:07
+
+这收菜环节能不能直接常驻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2249#       发表于 2022-8-31 11:49
+
+<img src="https://img.saraba1st.com/forum/202208/31/114903xqyykdymey833mzb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (340.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 11:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是仇凛跟我的羁绊的力量
+
+*****
+
+####  千叶铁矢  
+##### 2250#       发表于 2022-8-31 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2251#       发表于 2022-8-31 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284846&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 11:49</a>
+
+这就是仇凛跟我的羁绊的力量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恭喜！太强了！
+
+*****
+
+####  马桶3  
+##### 2252#       发表于 2022-8-31 11:54
+
+59分压轴上去收菜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 2253#       发表于 2022-8-31 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284846&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 11:49</a>
+这就是仇凛跟我的羁绊的力量</blockquote>
+欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2254#       发表于 2022-8-31 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284889&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-31 11:52</a>
+
+恭喜！太强了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了
+
+
+
+*****
+
+####  qixinno2  
+##### 2255#       发表于 2022-8-31 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284928&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 11:57</a>
+
+欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">相信自己 你也可以的
+
+
+
+*****
+
+####  铁柱子  
+##### 2256#       发表于 2022-8-31 12:21
+
+下午等着看隔壁血流成河了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 2257#       发表于 2022-8-31 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285232&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 12:21</a>
+
+下午等着看隔壁血流成河了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥事情？
+
+*****
+
+####  alucardcz  
+##### 2258#       发表于 2022-8-31 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284846&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 11:49</a>
+
+这就是仇凛跟我的羁绊的力量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 这是欧皇的力量 非萌只能落泪
+
+*****
+
+####  areklose  
+##### 2259#       发表于 2022-8-31 13:34
+
+宁愿长草也不复刻。奶一个下午DL吧
+
+*****
+
+####  qixinno2  
+##### 2260#       发表于 2022-8-31 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285968&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:33</a>
+
+不 这是欧皇的力量 非萌只能落泪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧个屁 就是仇凛跟我的羁绊 忘了之前哪个池子了 也是仇凛的羁绊石出的货
+
+
+
+*****
+
+####  铁柱子  
+##### 2261#       发表于 2022-8-31 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285964&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:32</a>
+
+啥事情？</blockquote>
+四点日服更新客户端<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2262#       发表于 2022-8-31 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286083&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 13:44</a>
+
+四点日服更新客户端</blockquote>
+这有什么乐子？
+
+*****
+
+####  alucardcz  
+##### 2263#       发表于 2022-8-31 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286006&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 13:37</a>
+
+欧个屁 就是仇凛跟我的羁绊 忘了之前哪个池子了 也是仇凛的羁绊石出的货 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了 你就是欧皇
+
+*****
+
+####  qixinno2  
+##### 2264#       发表于 2022-8-31 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286103&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:46</a>
+
+别说了 你就是欧皇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多是个亚洲人 没有三宝限定的根本不配当欧皇
+
+
+
+*****
+
+####  铁柱子  
+##### 2265#       发表于 2022-8-31 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286098&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 13:45</a>
+
+这有什么乐子？</blockquote>
+可能有人会掉号
+
+
+
+*****
+
+####  alucardcz  
+##### 2266#       发表于 2022-8-31 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286385&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-8-31 14:11</a>
+
+可能有人会掉号</blockquote>
+看不懂你在说什么。更新为什么会掉号 直接点更新不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 2267#       发表于 2022-8-31 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285116&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 12:10</a>
+相信自己 你也可以的</blockquote>
+都习惯这么非了，否则怎么玩下来<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UNISONIA  
+##### 2268#       发表于 2022-8-31 15:02
+
+现在就算掉号了写邮件也大概率一小时以内回复的【
+
+
+
+*****
+
+####  铁柱子  
+##### 2269#       发表于 2022-8-31 15:29
+
+反正我拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2270#       发表于 2022-8-31 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286877&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 14:59</a>
+
+都习惯这么非了，否则怎么玩下来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不至于这么惨吧
+
+*****
+
+####  清风朗月  
+##### 2271#       发表于 2022-8-31 15:44
+
+日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了
+
+
+
+*****
+
+####  khxooo  
+##### 2272#       发表于 2022-8-31 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286478&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 14:20</a>
+看不懂你在说什么。更新为什么会掉号 直接点更新不就完了</blockquote>
+估计是安卓更新客户端，有些人不懂操作导致号没了吧
+
+*****
+
+####  铁柱子  
+##### 2273#       发表于 2022-8-31 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287527&amp;ptid=2084912" target="_blank">清风朗月 发表于 2022-8-31 15:44</a>
+
+日服保底是只保第一宝的底么，昨晚第二宝水伊吹死活出不来，早知道抽泡馍了 ...</blockquote>
+只保第一个池子up角色，出了就没了
+
+
+
+*****
+
+####  alucardcz  
+##### 2274#       发表于 2022-8-31 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有几分钟 有没有事发生呢  例如幕间
+
+
+
+*****
+
+####  exiaexa  
+##### 2275#       发表于 2022-8-31 17:08
+
+这波池子，转生号赢麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 2276#       发表于 2022-8-31 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服疯了吧，这个时候复刻宇宙凛，下周应该就是复刻狂那了，要跑路了抢钱是吧？
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2277#       发表于 2022-8-31 17:16
+
+营收这么不妙了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 2278#       发表于 2022-8-31 17:17
+
+看了一圈，一个幕间和强化都没有是不是不太好
+
+强行长草
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黑上シグマ  
+##### 2279#       发表于 2022-8-31 17:26
+
+<blockquote>引用第2253楼qixinno2于2022-08-31 12:10发表的  :
+
+引用:雾谷藤乃 发表于 2022-8-31 11:52恭喜！太强了！只能说仇凛 强无敌 攒石等仇凛复......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这不就来了吗，快去
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 2280#       发表于 2022-8-31 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在说什么 转生号不都5宝新蓝王了   还抽什么宇宙0  直接5宝接下来的红王啊
+
+
+
+*****
+
+####  都谷捻柏  
+##### 2281#       发表于 2022-8-31 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宇宙凛复刻了，一定不要食言
+
+*****
+
+####  都谷捻柏  
+##### 2282#       发表于 2022-8-31 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288902&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-8-31 17:17</a>
+
+看了一圈，一个幕间和强化都没有是不是不太好
+
+强行长草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明掌握了精髓：开卡池就行了，强化什么的有必要吗，没有比我们废狗平衡性更好的游戏了
+
+*****
+
+####  铁柱子  
+##### 2283#       发表于 2022-8-31 17:32
+
+建议司马睿送佛送到西，速速上线新模型
+
+*****
+
+####  铁柱子  
+##### 2284#       发表于 2022-8-31 17:37
+
+不开强化仇凛只有厨子会抽吧？
+
+开强化也离谱
+
+
+
+*****
+
+####  vacuumsword  
+##### 2285#       发表于 2022-8-31 17:40
+
+新礼装是谁？卡米拉？
+
+
+
+*****
+
+####  khxooo  
+##### 2286#       发表于 2022-8-31 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285109&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 12:10</a>
+只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了</blockquote>
+复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 2287#       发表于 2022-8-31 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289230&amp;ptid=2084912" target="_blank">vacuumsword 发表于 2022-8-31 17:40</a>
+新礼装是谁？卡米拉？</blockquote>
+看描述，应该还是黑太太
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2288#       发表于 2022-8-31 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285109&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 12:10</a>
+
+只能说仇凛 强无敌 攒石等仇凛复刻必须扔石头 哪怕不出货我都认了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿叶是不是在楼里啊，这么快就满足了你的愿望
+
+
+
+*****
+
+####  kiralzb  
+##### 2289#       发表于 2022-8-31 19:01
+
+真准备跑路了？这能骗钱的卡池怎么不带停的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 2290#       发表于 2022-8-31 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来种火本减半了，可以继续刷起来了
+
+
+
+*****
+
+####  qixinno2  
+##### 2291#       发表于 2022-8-31 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290288&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-8-31 18:59</a>
+
+阿叶是不是在楼里啊，这么快就满足了你的愿望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TMD我都没石头拿头抽 过几个月复刻不好么
+
+*****
+
+####  qixinno2  
+##### 2292#       发表于 2022-8-31 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289660&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-8-31 18:08</a>
+
+复刻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹
+
+*****
+
+####  qixinno2  
+##### 2293#       发表于 2022-8-31 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289027&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-8-31 17:26</a>
+
+你看这不就来了吗，快去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我TMD还没攒出石头来呢 拿头抽
+
+
+
+*****
+
+####  alucardcz  
+##### 2294#       发表于 2022-8-31 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290501&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 19:15</a>
+
+我TMD还没攒出石头来呢 拿头抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续刷羁绊啊? 你的羁绊就这点程度吗
+
+
+
+*****
+
+####  qixinno2  
+##### 2295#       发表于 2022-8-31 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290713&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 19:33</a>
+
+继续刷羁绊啊? 你的羁绊就这点程度吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了 真的肝不动了 只能看看明天的五呼符了
+
+*****
+
+####  alucardcz  
+##### 2296#       发表于 2022-8-31 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57290994&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 19:54</a>
+
+不行了 真的肝不动了 只能看看明天的五呼符了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇的发言  可怕
+
+*****
+
+####  qixinno2  
+##### 2297#       发表于 2022-8-31 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291005&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 19:55</a>
+
+欧皇的发言  可怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算个屁的欧皇发言 狗萌新无脑黑我
+
+
+
+*****
+
+####  alucardcz  
+##### 2298#       发表于 2022-8-31 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291051&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 19:59</a>
+
+这算个屁的欧皇发言 狗萌新无脑黑我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 我叫非萌 别乱喊
+
+*****
+
+####  qixinno2  
+##### 2299#       发表于 2022-8-31 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291095&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 20:02</a>
+
+你好 我叫非萌 别乱喊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你算非的话我也非
+
+
+
+*****
+
+####  kiralzb  
+##### 2300#       发表于 2022-8-31 20:12
+
+仇凛现在是不是没必要2宝了啊，我开了图鉴就想跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2301#       发表于 2022-8-31 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291229&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-8-31 20:12</a>
+
+仇凛现在是不是没必要2宝了啊，我开了图鉴就想跑路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无敌的水伊吹仇凛确实没啥必要了 话说TMD就干开池子连个强化本都没有的么 哪怕给个幕间我都当他努力了
+
+
+
+*****
+
+####  quanlix  
+##### 2302#       发表于 2022-8-31 20:37
+
+看这次天草定律还管用不管用了
+
+
+
+*****
+
+####  都谷捻柏  
+##### 2303#       发表于 2022-8-31 20:48
+
+天草定律是什么
+
+
+
+*****
+
+####  qixinno2  
+##### 2304#       发表于 2022-8-31 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像会出大卫星角色或超强角色
+
+
+
+*****
+
+####  都谷捻柏  
+##### 2305#       发表于 2022-8-31 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂阿周那的强度还无法满足你们吗
+
+*****
+
+####  黑上シグマ  
+##### 2306#       发表于 2022-8-31 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291811&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2022-8-31 20:48</a>
+
+天草定律是什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天草PU后一定有大事发生
+
+
+
+*****
+
+####  铁柱子  
+##### 2307#       发表于 2022-8-31 21:11
+
+出个新大卫吧，现在这个b格不够
+
+*****
+
+####  qixinno2  
+##### 2308#       发表于 2022-8-31 21:15
+
+ 本帖最后由 qixinno2 于 2022-8-31 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐突落地提妈 众多被公主泳装三连骗光石头的御主发出痛苦的哀嚎 其实出麻婆也很应景
+
+*****
+
+####  铁柱子  
+##### 2309#       发表于 2022-8-31 21:18
+
+卡多克这礼装实在是食之无味弃之可惜，不换又要等好久
+
+
+
+*****
+
+####  リッチ  
+##### 2310#       发表于 2022-8-31 21:52
+
+梦到在魔夜联动池抽出3星骑阶性转麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2311#       发表于 2022-8-31 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57292630&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-8-31 21:52</a>
+
+梦到在魔夜联动池抽出3星骑阶性转麻婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这也太怪了
+
+
+
+*****
+
+####  qixinno2  
+##### 2312#       发表于 2022-8-31 22:02
+
+<img src="https://img.saraba1st.com/forum/202208/31/220145jqzi0qugg1xcp0uv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 22:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两年的无限池我都没这么肝过 顺便谁维护前没收菜现在还能领一次
+
+*****
+
+####  里村紅葉  
+##### 2313#       发表于 2022-8-31 22:03
+
+我这个收菜键点完了还是亮的，然后再点就无限断线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 2314#       发表于 2022-8-31 22:04
+
+这次天草定律大概率又成真，不说下周2.4回顾必然复刻狂娜，贴吧和NGA都有舅舅消息，接下来的9月新活动又要来一个AE职介的强度美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 2315#       发表于 2022-8-31 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0石的我只能吃瓜看欧狗们豹跳
+
+*****
+
+####  千叶铁矢  
+##### 2316#       发表于 2022-8-31 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57292802&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:04</a>
+这次天草定律大概率又成真，不说下周2.4回顾必然复刻狂娜，贴吧和NGA都有舅舅消息，接下来的9月新活动又要 ...</blockquote>
+来个舅舅
+
+
+
+*****
+
+####  qb0079  
+##### 2317#       发表于 2022-8-31 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57292802&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:04</a>
+
+这次天草定律大概率又成真，不说下周2.4回顾必然复刻狂娜，贴吧和NGA都有舅舅消息，接下来的9月新活动又要 ...</blockquote>
+看看舅舅
+
+
+
+*****
+
+####  miro112233  
+##### 2318#       发表于 2022-8-31 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57292921&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-8-31 22:16</a>
+
+来个舅舅</blockquote>
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  铁柱子  
+##### 2319#       发表于 2022-8-31 22:50
+
+ 本帖最后由 铁柱子 于 2022-8-31 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293199&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:44</a>
+
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
+ 宇宙樱 ae 苍月画的 100自充 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  都谷捻柏  
+##### 2320#       发表于 2022-8-31 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293199&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:44</a>
+
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AE阶的话先要和道满打一架，双道满不算1技能就有80加攻200爆伤了，还有80自充……
+
+*****
+
+####  alucardcz  
+##### 2321#       发表于 2022-8-31 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293199&amp;ptid=2084912" target="_blank">miro112233 发表于 2022-8-31 22:44</a>
+
+舅舅的说法就这些，女的，AE，卡面很拉，强度很美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度很美是正话还是反话啊
+
+*****
+
+####  qixinno2  
+##### 2322#       发表于 2022-8-31 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十个呼符毛都没出 GG
+
+*****
+
+####  alucardcz  
+##### 2323#       发表于 2022-8-31 23:07
+
+<img src="https://img.saraba1st.com/forum/202208/31/230726kxsotkykrowr6rlh.jpg" referrerpolicy="no-referrer">
+
+<strong>43434.jpg</strong> (496.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 23:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那泥
+
+*****
+
+####  qixinno2  
+##### 2324#       发表于 2022-8-31 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是萌新狗 
+
+*****
+
+####  alucardcz  
+##### 2325#       发表于 2022-8-31 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293445&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 23:08</a>
+
+还是萌新狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">误会 都是误会 能换伊吹吗
+
+
+
+*****
+
+####  qixinno2  
+##### 2326#       发表于 2022-8-31 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293450&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:09</a>
+
+误会 都是误会 能换伊吹吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狗萌新随随便便一发单抽就露出了自己欧狗嘴脸 
+
+*****
+
+####  alucardcz  
+##### 2327#       发表于 2022-8-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293494&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-8-31 23:13</a>
+
+狗萌新随随便便一发单抽就露出了自己欧狗嘴脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">剩下6张护符丢进了弓0池并没有出货  这还能叫欧吗!
+
+*****
+
+####  霧谷藤乃  
+##### 2328#       发表于 2022-8-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是欧洲萌新，我竟然毫不意外
+
+
+
+*****
+
+####  qixinno2  
+##### 2329#       发表于 2022-8-31 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293555&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:18</a>
+
+剩下6张护符丢进了弓0池并没有出货  这还能叫欧吗!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">何等的欧狗发言 我10呼符甚至只有一个四星礼装
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2330#       发表于 2022-8-31 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然能换十张护符，本想试试水，思考了下不厨凛，过
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 2331#       发表于 2022-8-31 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然有5宝迦摩5宝水伊吹加我，感觉转生号气息太强了下意识拒绝了
+
+
+
+*****
+
+####  exiaexa  
+##### 2332#       发表于 2022-9-1 00:09
+
+我现在辨别是不是转生号，就看宝石翁
+
+能掏出满破宝石翁的就不是转生石头号
+
+那堆泛用打手满宝，剩下全1又没满破宝石的，大概率就是转生号
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zore  
+##### 2333#       发表于 2022-9-1 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家好,已经九月了(
+
+
+
+*****
+
+####  angelooo  
+##### 2334#       发表于 2022-9-1 00:20
+
+快，快进到是苍月画的高强度AE，我要看隔壁血流成河（虽然好像最近出血量已经够大了23333）
+
+*****
+
+####  保罗赫伯特  
+##### 2335#       发表于 2022-9-1 00:23
+
+原初女神的灵衣免费进商店了啊，好评！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+当时打星战活动的时候有事，剧情最后几关没过完，没拿到灵衣开放权，这次终于能补上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2336#       发表于 2022-9-1 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294055&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:09</a>
+
+我现在辨别是不是转生号，就看宝石翁
+
+能掏出满破宝石翁的就不是转生石头号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一人家欧怎么办 转生自带满破黑杯宝石
+
+
+
+*****
+
+####  exiaexa  
+##### 2337#       发表于 2022-9-1 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294201&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-1 00:26</a>
+
+万一人家欧怎么办 转生自带满破黑杯宝石</blockquote>
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的
+
+后来直接收了个二手号
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zore  
+##### 2338#       发表于 2022-9-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:35</a>
+
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">满破宝石比满宝打手还难,想啥
+
+
+
+*****
+
+####  alucardcz  
+##### 2339#       发表于 2022-9-1 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:35</a>
+
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 因为不是想抽就能抽到的 但是总有欧皇! 例如楼里的!
+
+
+
+*****
+
+####  铁柱子  
+##### 2340#       发表于 2022-9-1 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-1 00:35</a>
+
+太难了，有段时间帮朋友看号的时候，真的完全找不到满破宝石或者黑杯的初始
+
+卖家根本不把这个当卖点的</blockquote>
+真相是早被挑完了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rooarr  
+##### 2341#       发表于 2022-9-1 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-8-31 23:07</a>
+
+那泥</blockquote>
+欧 羡慕 我怎么抽不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

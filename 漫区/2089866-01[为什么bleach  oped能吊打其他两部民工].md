@@ -799,3 +799,181 @@ TV最终章要放了还不能吹一下优点，搞体育论坛谁菜谁没有呼
 s1死神粉真是存在感好强，烂成这样想尽办法让死神在其他两部面前不是那么难堪 ...</blockquote>
     海贼的动画确实是三个里最烂的啊，有什么好难堪的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinnluna  
+##### 88#       发表于 2022-8-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57264243&amp;ptid=2089866" target="_blank">angery 发表于 2022-8-29 19:29</a>
+
+作为动画歌可能吧。
+
+单拿出来当流行歌曲，火影除了青鸟以外根本没有。</blockquote>
+别无知行不，说话都不过脑子，起码截至2021前，有专门节目统计的，海贼的OPED的唱片销量，远远大于死神和火影的，还少女S吊打，脑子有病
+
+*****
+
+####  华安9527  
+##### 89#       发表于 2022-8-31 10:17
+
+题外话，死神OPED有声优翻唱版本，有一首弗利萨和钉宫理惠翻唱的ED超好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49](https://c.y.qq.com/base/fcgi-bin/u?__=RyJsE49) 这个
+
+
+
+*****
+
+####  ΑΑ  
+##### 90#       发表于 2022-8-31 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283338&amp;ptid=2089866" target="_blank">shinnluna 发表于 2022-8-31 10:12</a>
+别无知行不，说话都不过脑子，起码截至2021前，有专门节目统计的，海贼的OPED的唱片销量，远远大于死神和 ...</blockquote>
+销量是被东方神起的名气爆杀，却丝毫没给宅宅们留下一点印象<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  华夷之辩  
+##### 91#       发表于 2022-8-31 10:42
+
+先问是不是在问有没有，原来所谓的热度就靠一个小众的S1？销量、下载数和搜索热度总要来点数据吧？数据都没有大家都搁这口嗨。销量上死神火影海贼各有胜负。死神OP1的销量是最好，海贼是东方神起那首，火影大概乃木坂那首？其他的都半斤八两。
+
+
+
+*****
+
+####  病態極端  
+##### 92#       发表于 2022-8-31 11:06
+
+ 本帖最后由 病態極端 于 2022-8-31 11:11 编辑 
+
+Oricon<strong>公信榜</strong>
+
+<strong>历年动画单曲年冠</strong>
+2005年《[＊ ~アスタリスク~](https://zh.moegirl.org.cn/Asterisk(BLEACH))》《＊ ~アスタリスク~》ORANGE RANGEBLEACH OP12009年《Share The World》
+
+《[We Are!](https://zh.moegirl.org.cn/We_Are!)》
+
+《明日は来るから》《Share The World/ウィーアー!》东方神起海賊王 OP&amp;ED
+
+<strong>历年动画专辑年冠</strong>
+2007年《BLEACH THE BEST》Various ArtistsBLEACH2008年《マクロスF O.S.T.1 娘フロ。》CD Soundtrack超时空要塞F2009年《銀魂BEST》Various Artists银魂2010年《ONE PIECE MEMORIAL BEST》Various Artists海贼王2011年《銀魂BEST2》Various Artists银魂
+
+*****
+
+####  shinnluna  
+##### 93#       发表于 2022-8-31 11:09
+
+ 本帖最后由 shinnluna 于 2022-8-31 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283583&amp;ptid=2089866" target="_blank">ΑΑ 发表于 2022-8-31 10:26</a>
+
+销量是被东方神起的名气爆杀，却丝毫没给宅宅们留下一点印象</blockquote>
+所以他说的少女S吊打，而且他说是以流行歌曲角度看，也就是JPOP，也不知道吊打到哪里去了，海贼也不光是东方神起，TV还有安室奈美惠，泷&amp;翼，AAA等一线的，算上剧场版还有Avril Lavigne，棒棒鸡，孩子先生
+
+其他2家如果算JPOP角度，拿什么打
+
+
+
+*****
+
+####  kirishin  
+##### 94#       发表于 2022-8-31 11:16
+
+火影的oped明明很强啊，找的很多都是流行歌手但跟角色和画面的契合度非常好，疾风传当时一开场op时髦值直接拉满，还有很多都列不完，不觉得比时髦神差……海贼那是歌很多本身就是为动画剧情写的典型anisong，时髦度不够但感情到位了，像fight together这种想起来都会眼眶一湿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华夷之辩  
+##### 95#       发表于 2022-8-31 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284207&amp;ptid=2089866" target="_blank">病態極端 发表于 2022-8-31 11:06</a>
+
+Oricon公信榜
+
+历年动画单曲年冠</blockquote>
+数据来了。感谢。
+
+
+
+*****
+
+####  消防  
+##### 96#       发表于 2022-8-31 11:37
+
+ 本帖最后由 消防 于 2022-8-31 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57284207&amp;ptid=2089866" target="_blank">病态极端 发表于 2022-8-31 11:06</a>
+
+Oricon公信榜
+
+历年动画单曲年冠</blockquote>
+银魂这么强<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+还觉得觉得第一季除了DOES其他都挺普通的，BGM和剧中插曲比较出彩，第二季才是好歌频出的时候
+
+
+
+*****
+
+####  今天不守尸  
+##### 97#       发表于 2022-8-31 11:52
+
+jump少年漫改编动画里，除了一骑绝尘的SD外，幽游白书和浪客剑心的动画单曲销量也高的一比
+
+
+
+*****
+
+####  渡辺梨加  
+##### 98#       发表于 2022-8-31 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273056&amp;ptid=2089866" target="_blank">宛平南路600号 发表于 2022-8-30 13:47</a>
+还有犬夜叉，只找大牌的来唱
+
+安室奈美惠、滨崎步、v6、大无限、小事乐团、BOA、泷与翼 ...</blockquote>
+不是只找大牌，是当年艾回旗下歌手能打
+
+
+
+*****
+
+####  七七見奈波  
+##### 99#       发表于 2022-8-31 14:41
+
+泥潭重新定义吊打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看热闹看热闹
+
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 100#       发表于 2022-8-31 14:52
+
+火影好的oped也不少啊，海贼才是真的没印象，死神的oped主要是感觉就很潮不是很“anisong”
+柯南犬夜叉我就觉得很土，不是不好听，但是很土（
+
+
+
+*****
+
+####  花礫  
+##### 101#       发表于 2022-8-31 15:27
+
+海贼OPED模式是固定了，旋律歌词都是为了动画服务。特别是取消ED后OP变长。就算是安妈来，fight together的歌词也是像阅读理解一样超完美契合艾斯之死和3D2Y。
+
+2年后TV最喜欢的Hands Up演唱者是新人，写歌的可是BACK-ON，还有AAA、小民工、V6。（除了一系列WE ○ 我是真欣赏不来。
+
+这样有坏处大部分人觉得土，也有好处，比如99年的大槻マキED1拿到20年后900多集的拉夫德鲁回还是杀疯了。
+
+
+
+*****
+
+####  wyq5486  
+##### 102#       发表于 2022-8-31 15:50
+
+死神确实不错，虽然连载时不少人说剧情灌水，但是时髦度还是一等一的
+

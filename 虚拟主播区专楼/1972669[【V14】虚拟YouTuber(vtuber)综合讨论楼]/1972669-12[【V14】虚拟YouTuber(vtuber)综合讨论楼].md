@@ -7634,3 +7634,578 @@ Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂�
 
 虽然是holo的海盗站但是也有NIJI的资源。不过貌似活动就发过一部资源，其余都是音声和会员直播。但是有求物板可以发帖。
 
+
+
+*****
+
+####  米多里  
+##### 17203#       发表于 2022-8-31 10:15
+
+啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的
+
+
+
+*****
+
+####  Suny08  
+##### 17204#       发表于 2022-8-31 10:21
+
+我是觉得之前一堆妹妹们说vox 很会说话很尊重女性非常绅士才入坑的，现在又变成他嘴臭不尊重女性还是挺有意思的
+
+*****
+
+####  皮卡丘小发卡  
+##### 17205#       发表于 2022-8-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283388&amp;ptid=1972669" target="_blank">米多里 发表于 2022-8-31 10:15</a>
+啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的 ...</blockquote>
+被粉丝把握得死死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 17206#       发表于 2022-8-31 10:30
+
+<blockquote>winda 发表于 2022-8-30 19:51
+还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些</blockquote>
+呃所以nina现在集美风评也不好啊，vox的过激口嗨也还是独一份，你是想用比烂证明vox没问题还是想指责我替他们同事发正义春？还是想说我云en，其实虹就都是这样的？
+
+
+
+*****
+
+####  越动天下  
+##### 17207#       发表于 2022-8-31 10:50
+
+本质还是太火了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  心垂万刃  
+##### 17208#       发表于 2022-8-31 11:28
+
+<img src="https://p.sda1.dev/7/fb6306f8e44f1e68f95f1d147d681956/6b6cb23e99c30254.jpg" referrerpolicy="no-referrer">
+?
+
+
+
+*****
+
+####  dclara1  
+##### 17209#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  dclara1  
+##### 17210#       发表于 2022-8-31 12:28
+
+ 本帖最后由 dclara1 于 2022-8-31 12:30 编辑 
+
+风怒
+
+*****
+
+####  dclara1  
+##### 17211#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  winda  
+##### 17212#       发表于 2022-8-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283651&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 10:30</a>
+呃所以nina现在集美风评也不好啊，vox的过激口嗨也还是独一份，你是想用比烂证明vox没问题还是想指责我替 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+vox错就错在他太火了，轮过分nina mc对往pomu聊天里发她直播一无是处，来看自己频道更过分点
+
+
+
+*****
+
+####  dclara1  
+##### 17213#       发表于 2022-8-31 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285406&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 12:39</a>
+
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一次amogus联动ewiwa，reimu甚至selen都被她突突突过
+
+人总喜欢脱离语境听到个fucking bitch就开始浮想联翩脑补剧情了，其实enna在其他时候对reimu说过一大堆肉麻到爆炸的话，没人看过没人记得
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17214#       发表于 2022-8-31 12:52
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧
+
+*****
+
+####  dclara1  
+##### 17215#       发表于 2022-8-31 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285565&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-8-31 12:52</a>
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧</blockquote>
+每局赛后疯狂输出好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17216#       发表于 2022-8-31 13:00
+
+作为enna粉丝肯定要护两句 enna嘴臭很多情况下是下意识情况下的 尤其是她玩恐怖游戏的时候 或者那个最有名的切片里amongus里被刀的情况下 算个应激反应 她本人也说过经常无意识就swear了 我错了 下次还敢
+
+当然enna爱开snp笑话这个肯定就是她有意识情况下做出来的了
+
+
+
+*****
+
+####  dclara1  
+##### 17217#       发表于 2022-8-31 13:06
+
+其实就是熟才能当面输出，恭恭敬敬的不就是距离感嘛
+
+ethyria第一次联动玩抓鬼就已经非常母慈女孝，这四个人就没停过，乐坏我了，我就喜欢这种vibe<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  越动天下  
+##### 17218#       发表于 2022-8-31 13:10
+
+ 本帖最后由 越动天下 于 2022-8-31 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+话说有可能会有voms EN吗</blockquote>
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） 没必要去特意吧 然后g鸽也没说过这种东西吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wuzhengkai  
+##### 17219#       发表于 2022-8-31 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+
+话说有可能会有voms EN吗</blockquote>
+这得取决于能不能招到第二个pikamee吧
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17220#       发表于 2022-8-31 13:21
+
+1是熟不熟 不看vox也不知道跟他嘴臭对象有多熟 不过从我看的有限的有他的联动来看他还蛮能自来熟的
+
+2是当前这个舆论环境下男女哪怕说同样的swear word造成的影响也不一样
+
+3说到底是跟集美在自己脑内构建的形象冲突了 当然我也不知道他自己单播是不是有意构建了这种形象 归根结底还是集美自顾自破防了 
+
+当然赚集美钱挨集美骂还是非常合理的 只不过集美的水平现在看也就在捡中闹闹了 要真能把vox怎么样了我只能说句好似喵
+
+
+
+*****
+
+####  Paisley  
+##### 17221#       发表于 2022-8-31 13:33
+
+vox刚开展工作的时候是很会演嘛，纯纯一敬业工作狂形象，后来发现咋地都有人打钱就飘了，集美自己造神又破防是挺搞笑，但观众本来不就是看个乐子，不高兴就骂也挺正常的，谁能说自己不对主播有点期待呢，她们比较夸张罢了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+而且有些朋友也云太厉害<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然鸟嘴真的脏但没见enna联动跑别人直播间对别人观众开这种范围地图炮
+
+
+
+*****
+
+####  Ronu  
+##### 17222#       发表于 2022-8-31 13:53
+
+enna特别喜欢嘴臭的几位都是熟人，而且一般是正面交锋
+
+背后会没事拉出来突突突的也就Uki吧，但是也是好姐妹啦她们<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+像是对几位好弟弟需要嘴臭的时候都会过一下脑子（luca和shu之类的），说出来的内容也很轻柔
+
+大部分情况则是往死里夸
+
+反正基本是感受不到她有什么恶意
+
+当然你说要嗯带节奏肯定是能带起来的。幸亏鸟本身体量不大，aloupeeps也都比较安分<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+我觉得在en那种氛围下面单纯嘴臭很难成为anti真正的理由，基本都是拿来当节奏的烟雾弹
+
+
+
+*****
+
+####  fastary  
+##### 17223#       发表于 2022-8-31 14:11
+
+<blockquote>winda 发表于 2022-8-31 12:39
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+那我只能说你们en混沌嘴臭自有文化氛围在，行，但是别拿本社来背书= 。=
+
+<img src="https://img.saraba1st.com/forum/202208/31/141103orjl0l1z0ykirlis.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022_0831_140620.png</strong> (245.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-31 14:11 上传
+
+
+
+*****
+
+####  dclara1  
+##### 17224#       发表于 2022-8-31 14:21
+
+reimu和vox以前玩得挺开的，很有节目效果。reimu被搞的那次以后，双方都明显很怕节奏了，很可惜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈玉礼  
+##### 17225#       发表于 2022-8-31 14:29
+
+我印象中没见过enna直球嘴臭别人妈的，有吗？
+
+至于她和姐龙都是超越管人生涯的老熟人关系
+
+
+
+*****
+
+####  IL282  
+##### 17226#       发表于 2022-8-31 14:30
+
+我他妈这是在NGA还是S1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  dybang  
+##### 17227#       发表于 2022-8-31 15:31
+
+老是被喷就因为太火了这也太饭圈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男国内一被饭圈化就没意思了，要么是对家的错要么对家更过分，吵不完的
+
+
+
+*****
+
+####  poipanchao  
+##### 17228#       发表于 2022-8-31 15:44
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷
+
+*****
+
+####  マドマコ  
+##### 17229#       发表于 2022-8-31 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+虹楼连本社几个法律咖犯法的事都能吹起来，嘴臭点当然没问题
+
+
+
+*****
+
+####  winda  
+##### 17230#       发表于 2022-8-31 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊
+
+*****
+
+####  poipanchao  
+##### 17231#       发表于 2022-8-31 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287622&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 15:50</a>
+暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">康米有什么问题，楼友不要尬黑
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17232#       发表于 2022-8-31 16:09
+
+束棒发言我感觉日本那社会很常见。如果是我没记错的束棒发言的话。
+
+*****
+
+####  心垂万刃  
+##### 17233#       发表于 2022-8-31 16:09
+
+<img src="https://p.sda1.dev/7/15210014a19b9f008b2f244124cd376a/714c5bca57c5c9b.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 17234#       发表于 2022-8-31 16:13
+
+郡道都要5w，相比之下vox20多w都显得有性价比了。
+
+*****
+
+####  心垂万刃  
+##### 17235#       发表于 2022-8-31 16:15
+
+30万应该是米桑给主播的工商费的极限了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17236#       发表于 2022-8-31 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287531&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-31 15:44</a>
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷</blockquote>
+考虑到观众潜在的付费能力差距？毕竟集美在批站给en男打钱都不眨眼
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17237#       发表于 2022-8-31 16:30
+
+关键难道不是明明是彩虹社的主播怎么是给啊b钱嘛，入股股东权利真的大诶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+照一般啊b分成工商收入会分给主播一半嘛？
+还挺奇妙的，在频道管理上我好像有些不理解啊b和彩虹这个合作模式
+
+
+
+*****
+
+####  bluebaby  
+##### 17238#       发表于 2022-8-31 17:04
+
+云宝这是连b站都云了。
+b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站橄榄的。
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17239#       发表于 2022-8-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288714&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-8-31 17:04</a>
+
+云宝这是连b站都云了。
+
+b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站 ...</blockquote>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。
+
+现在想来，这捆绑力度可就大了。
+
+不过，工商分成有人透露过吗？
+
+
+
+*****
+
+####  真飞鸟i  
+##### 17240#       发表于 2022-8-31 17:37
+
+只能说虹血赚
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  真飞鸟i  
+##### 17241#       发表于 2022-8-31 17:37
+
+只能说虹血赚 风怒让虹赢俩次
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  bluebaby  
+##### 17242#       发表于 2022-8-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289043&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-31 17:27</a>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。但是我没想到钱是直接给啊b，由啊b来具体分配[f:0 ...</blockquote>
+很多up都提到过b站这套工商制度，具体分配不记得了可以去找找应该属于很好找的。
+
+
+
+*****
+
+####  rzrbtk  
+##### 17243#       发表于 2022-8-31 19:00
+
+我郡是在否定法西斯的前提下要在自己直播间搞言论管制罢了，可不管乱讲😨
+
+
+
+*****
+
+####  Junchoon  
+##### 17244#       发表于 2022-8-31 20:39
+
+说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊......
+
+
+
+*****
+
+####  free  
+##### 17245#       发表于 2022-8-31 20:45
+
+[https://twitter.com/LifeLikeaLive/status/1564948763633848321](https://twitter.com/LifeLikeaLive/status/1564948763633848321)
+
+<img src="https://pbs.twimg.com/media/FbfQhhQVEAAH1rN?format=jpg&amp;name=4096x4096" id="aimg_ja66l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+*****
+
+####  OldGlory  
+##### 17246#       发表于 2022-8-31 20:50
+
+田角上市不到半年套不了现的
+
+*****
+
+####  AloissiolA  
+##### 17247#       发表于 2022-8-31 20:51
+
+ 本帖最后由 AloissiolA 于 2022-8-31 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291656&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-8-31 20:39</a>
+
+说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊...... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那从招股书也基本上可以看出来，公开发行的额外股占总发行股的5%都不到 就发行5w股，抛最多股（70%左右的总卖出）的是774的母公司株式会社アドウェイス和其持股子会社 ㈱インフルエンサーインベストメントホールディングス，基本上就是这家公司要cash out才上的场
+
+田角套现还要等一年，不过现在这股价是真的高的很诡异，之前以为稳定在6000+差不多了现在又弹回7000+了，ankr再回市值2000w之境
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17248#       发表于 2022-8-31 21:06
+
+卯月光：今晚小男孩和小女孩rrm要一起看线上烟花，一边读读者来信哦~来信的内容是“在夏天做过的事”。今晚北京时间晚上10点不见不散哦~
+
+1.jpg
+(613.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202208/31/210612l66hxfeleoupoouv.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17249#       发表于 2022-8-31 23:52
+
+小狮子这几天疯狂歌回啊。
+唱的又多又好。
+终于找到方向了？
+
+
+
+*****
+
+####  dclara1  
+##### 17250#       发表于 2022-9-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285751&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-8-31 13:10</a>
+
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） ...</blockquote>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">），所以voms en的呼声还是很高的
+
+不过gyari的确不会有动力去搞就是了
+
+
+
+*****
+
+####  越动天下  
+##### 17251#       发表于 2022-9-1 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294565&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-9-1 01:27</a>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我），所以 ...</blockquote>
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉不太符合正常思维
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  dclara1  
+##### 17252#       发表于 2022-9-1 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295149&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-9-1 07:47</a>
+
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的 感觉不太符合正常思维
+
+—— 来自 Xiao ...</blockquote>
+tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言多数英文，而且一眼看得出是不会日文的选手，只能回个"thx for your cozy stream tmsk/miu-chan/dmj"的那种
+
+英语voms粉大部分处于想看又看不懂又没切片的状态<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 17253#       发表于 2022-9-1 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没想到一直在球米桑给个工商的郡道早就接过米桑的工商了
+

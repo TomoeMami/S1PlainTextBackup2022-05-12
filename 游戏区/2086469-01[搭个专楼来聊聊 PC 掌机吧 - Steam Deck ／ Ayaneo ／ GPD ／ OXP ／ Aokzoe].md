@@ -2046,3 +2046,70 @@ Android 系统 + 定制 UI，前面几个应用应该是各家的云服务 / 客
 
 附上之前的那个官方博文：[https://blog.logitech.com/2022/0 ... dheld-cloud-gaming/](https://blog.logitech.com/2022/08/02/logitech-g-and-tencent-games-announce-partnership-to-advance-handheld-cloud-gaming/)
 
+
+
+*****
+
+####  bypass  
+##### 169#         楼主| 发表于 2022-8-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273988&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-8-30 14:58</a>
+
+有无其他参数</blockquote>
+配置也顺带泄露了：
+
+<img src="https://img.saraba1st.com/forum/202208/31/145507nq3iztvs7njgvqzb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 14:55 上传
+
+
+
+*****
+
+####  泰坦失足  
+##### 170#       发表于 2022-8-31 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286830&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-31 14:55</a>
+
+配置也顺带泄露了：</blockquote>
+要是不靠云游戏服务，怕是连本地跑王者荣耀都不能60帧吧
+
+
+
+*****
+
+####  bypass  
+##### 171#         楼主| 发表于 2022-8-31 16:48
+
+<img src="https://img.saraba1st.com/forum/202208/31/164810do778izn4i68ouie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 16:48 上传
+
+Ayaneo 2 的这个边框的确还挺养眼。
+
+
+
+*****
+
+####  rak1  
+##### 172#       发表于 2022-8-31 16:51
+
+罗技这个720G能效怎么样，能效好配上大电池说不定真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  bypass  
+##### 173#         楼主| 发表于 2022-9-1 09:24
+
+Aokzoe 可以领优惠券了，在公众号，之前在群里交定金的坛友记得去领一下。
+
