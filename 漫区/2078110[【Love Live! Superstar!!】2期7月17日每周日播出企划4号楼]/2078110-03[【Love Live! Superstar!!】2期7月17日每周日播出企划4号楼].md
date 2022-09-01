@@ -10123,3 +10123,14 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC
 由手机上传
 2022-9-1 11:41 上传
 
+
+
+*****
+
+####  damian-wade  
+##### 3956#       发表于 2022-9-1 11:51
+
+恋没什么台词做空气担当挺适合的，台词一多青山配的有够灾难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
