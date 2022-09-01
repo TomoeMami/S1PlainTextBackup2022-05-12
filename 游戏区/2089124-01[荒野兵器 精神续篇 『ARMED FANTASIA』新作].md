@@ -770,3 +770,17 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 100w目标到了，家用机版妥了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gofbayrf  
+##### 74#       发表于 2022-9-1 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57296421&amp;ptid=2089124" target="_blank">无动于衷 发表于 2022-9-1 10:20</a>
+
+100w目标到了，家用机版妥了
+
+要不追加个200w的目标请水树回来唱OP</blockquote>
+要麻生 不要水树
+

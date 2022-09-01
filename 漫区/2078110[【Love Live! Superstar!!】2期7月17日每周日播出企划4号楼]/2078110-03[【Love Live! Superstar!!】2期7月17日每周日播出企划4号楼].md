@@ -10087,3 +10087,12 @@ QQ图片20220901085633.jpg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295587&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-1 08:59</a></blockquote>
 怎么连原图都有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3954#       发表于 2022-9-1 11:23
+
+nagi直签谷子也太贵了吧……粉丝消费力有这么强吗
+
