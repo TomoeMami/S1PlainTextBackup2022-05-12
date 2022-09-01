@@ -9524,3 +9524,15 @@ ELS（开20NP）+徐福+C呆+C呆
 数值策划就没觉得哪里不对劲嘛</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是卖卡面吗（
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2353#       发表于 2022-9-1 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57299363&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-1 14:15</a>
+
+冰凉啊  哪有热量 我打隔壁工会战手机都发会烫 但fgo确实冰凉</blockquote>
+我这边刚开时刷起来倒是很热<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

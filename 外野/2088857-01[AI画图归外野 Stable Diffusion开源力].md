@@ -1034,3 +1034,12 @@ Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索�
 
 —— 来自 Xiaomi 21081111RG, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Kiraru  
+##### 74#       发表于 2022-9-1 19:04
+
+10g显存<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
