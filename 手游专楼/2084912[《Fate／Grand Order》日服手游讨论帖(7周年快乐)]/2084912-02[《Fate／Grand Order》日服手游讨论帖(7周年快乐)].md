@@ -9491,3 +9491,12 @@ ELS（开20NP）+徐福+C呆+C呆
 魔改肯定有，但官方只给战斗的发热量也确实很明显，还是不要了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">冰凉啊  哪有热量 我打隔壁工会战手机都发会烫 但fgo确实冰凉
 
+
+
+*****
+
+####  kulanyee  
+##### 2350#       发表于 2022-9-1 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是三星版的888或者gen1那么打fgo发热我还是能理解的
+
