@@ -9446,3 +9446,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 也可能我记错了？但是好像几年前是真的在手机上玩过60帧bgo的
 
+
+
+*****
+
+####  里村紅葉  
+##### 2346#       发表于 2022-9-1 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298128&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-1 12:21</a>
+
+也可能我记错了？但是好像几年前是真的在手机上玩过60帧bgo的</blockquote>
+我现在模拟器上的BGO就是60帧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
