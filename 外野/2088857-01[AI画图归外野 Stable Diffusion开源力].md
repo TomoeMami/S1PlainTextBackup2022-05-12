@@ -988,3 +988,25 @@ Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索�
 
 不会跑本地
 
+
+
+*****
+
+####  dichromatism  
+##### 70#         楼主| 发表于 2022-9-1 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288018&amp;ptid=2088857" target="_blank">厨具战士 发表于 2022-08-31 16:15:55</a>
+虽然可能你已经解决了这个问题……</blockquote>gui好用，网上一搜一堆教程，我这几天没跟进已经一大堆了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dichromatism  
+##### 71#         楼主| 发表于 2022-9-1 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57300812&amp;ptid=2088857" target="_blank">坦克 发表于 2022-09-01 16:10:03</a>
+不会跑本地</blockquote>需要能看懂命令行，具有半桶水的Python知识即可本地安装<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
