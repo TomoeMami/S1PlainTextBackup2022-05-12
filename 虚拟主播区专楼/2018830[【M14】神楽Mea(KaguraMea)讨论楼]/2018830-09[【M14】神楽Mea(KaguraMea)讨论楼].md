@@ -3472,3 +3472,12 @@ b博感言
 
 真实的0期生
 
+
+
+*****
+
+####  thisisaspider  
+##### 12365#       发表于 2022-9-1 23:58
+
+怎么没楼友了 楼友都开学了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
