@@ -1043,3 +1043,45 @@ Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索�
 
 10g显存<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dichromatism  
+##### 75#         楼主| 发表于 2022-9-1 19:43
+
+ 本帖最后由 dichromatism 于 2022-9-1 19:47 编辑 
+
+风怒<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dichromatism  
+##### 76#         楼主| 发表于 2022-9-1 19:44
+
+中秋节有时间试试A5000跑起来怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  巴特爱素子  
+##### 77#       发表于 2022-9-1 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289150&amp;ptid=2088857" target="_blank">afer 发表于 2022-8-31 17:34</a>
+
+应该不违规，违规提示我删。</blockquote>
+还有一只手在阻止他
+
+*****
+
+####  dichromatism  
+##### 78#         楼主| 发表于 2022-9-1 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57303939&amp;ptid=2088857" target="_blank">巴特爱素子 发表于 2022-9-1 19:46</a>
+
+还有一只手在阻止他</blockquote>
+我前几天试了试小金毛和三儿跳舞，生成的图像惟妙惟肖
+

@@ -10361,3 +10361,12 @@ miko polka luna四人组
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 1011#       发表于 2022-9-1 19:43
+
+笑死了，坐直升机围观给兔子的导弹aoe了
+
