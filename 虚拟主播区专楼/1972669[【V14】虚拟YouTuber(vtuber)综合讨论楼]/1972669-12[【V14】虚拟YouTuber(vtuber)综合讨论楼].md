@@ -8232,3 +8232,17 @@ tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言
 
 这个不是米桑吧…不是吧…？郡道是吃悠星米的啊
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17256#       发表于 2022-9-1 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298682&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-1 13:09</a>
+
+这个不是米桑吧…不是吧…？郡道是吃悠星米的啊</blockquote>
+这个一定是米桑，而且算是原神3.0活动的一环
+
+应该是米桑→B站→虹→郡道这样途径
+
