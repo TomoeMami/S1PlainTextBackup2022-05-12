@@ -8294,3 +8294,21 @@ tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言
 
 可我真的觉得os团企划没有他当v搞的那些东西有趣啊，难道是我管人痴的滤镜蒙蔽了我的大脑吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17261#       发表于 2022-9-1 20:57
+
+[https://www.bilibili.com/video/BV1SD4y167dr](https://www.bilibili.com/video/BV1SD4y167dr)
+
+Jike桑经常有做光君的切片，而且很认真和用心。还是希望有人支持一下。
+
+*****
+
+####  rzrbtk  
+##### 17262#       发表于 2022-9-1 20:58
+
+原来如此，那就等待我郡的敬业发挥了…
+
