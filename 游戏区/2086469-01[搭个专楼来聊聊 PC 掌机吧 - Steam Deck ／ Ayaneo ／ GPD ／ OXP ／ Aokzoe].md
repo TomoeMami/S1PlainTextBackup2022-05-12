@@ -2125,3 +2125,33 @@ Aokzoe 可以领优惠券了，在公众号，之前在群里交定金的坛友�
 Ayaneo 2 的这个边框的确还挺养眼。</blockquote>
 这看着好像和switch lite差不多大
 
+
+
+*****
+
+####  bypass  
+##### 175#         楼主| 发表于 2022-9-1 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298281&amp;ptid=2086469" target="_blank">饭冢武也 发表于 2022-9-1 12:33</a>
+
+这看着好像和switch lite差不多大</blockquote>
+跟 Ayaneo Air 的对比：
+
+<img src="https://img.saraba1st.com/forum/202209/01/142619n8614rfyzr848w1y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 14:26 上传
+
+Air 跟 NS Lite 的对比：
+
+<img src="https://img.saraba1st.com/forum/202209/01/142745y64dnlkjjvrsn9sp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 14:27 上传
+
