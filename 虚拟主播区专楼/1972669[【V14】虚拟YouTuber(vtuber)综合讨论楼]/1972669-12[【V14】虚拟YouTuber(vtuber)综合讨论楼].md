@@ -8209,3 +8209,17 @@ tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没想到一直在球米桑给个工商的郡道早就接过米桑的工商了
 
+
+
+*****
+
+####  v沈馒馒v  
+##### 17254#       发表于 2022-9-1 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282282&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2022-8-31 08:39</a>
+
+难道不是他切割粉丝，然后又表示不切割粉丝吗？</blockquote>
+切割的是过激粉啊
+
+一般梦女又没惹事又能爆米为什么要切割
+

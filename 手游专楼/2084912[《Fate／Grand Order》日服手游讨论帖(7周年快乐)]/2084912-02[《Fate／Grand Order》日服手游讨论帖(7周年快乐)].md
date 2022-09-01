@@ -9419,3 +9419,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sosgame67  
+##### 2343#       发表于 2022-9-1 10:49
+
+日服3年唯一的宝石翁是刚刚过去的自选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
