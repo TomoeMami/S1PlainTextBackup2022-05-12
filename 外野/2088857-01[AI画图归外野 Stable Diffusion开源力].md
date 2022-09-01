@@ -965,3 +965,26 @@ A Hero has batman's body, spiderman's mask</blockquote>
 
 想画几幅打印出来挂家里墙上当装饰画，用哪个ai比较好？
 
+
+
+*****
+
+####  十二夜月下  
+##### 68#       发表于 2022-9-1 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298213&amp;ptid=2088857" target="_blank">机器舞 发表于 2022-9-1 12:28</a>
+
+想画几幅打印出来挂家里墙上当装饰画，用哪个ai比较好？</blockquote>
+Midjourney：下限高，不用很复杂的描述词，就能生成不错的效果，目前SNS上流传较多的都是这款绘制的，就是一眼不明觉厉，看多了腻味
+
+Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索或者参考描述词的话，上限极高
+
+看你需要自己选择吧~
+
+*****
+
+####  坦克  
+##### 69#       发表于 2022-9-1 16:10
+
+不会跑本地
+

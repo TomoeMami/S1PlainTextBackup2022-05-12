@@ -10218,3 +10218,17 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  adw667  
+##### 3964#       发表于 2022-9-1 16:03
+
+ 本帖最后由 adw667 于 2022-9-1 16:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57300129&amp;ptid=2078110" target="_blank">爱さ実 发表于 2022-9-1 15:25</a>
+
+星团不自己整个游戏吗，以我的记忆想来当时无印能在国内火很大一部分原因是sif，至少认识的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">先不说动画蹦成这样有多少人愿意氪，光是游戏怎么出就有不少雷
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不如跟现有音游联动把歌丢过去就完事了
+
