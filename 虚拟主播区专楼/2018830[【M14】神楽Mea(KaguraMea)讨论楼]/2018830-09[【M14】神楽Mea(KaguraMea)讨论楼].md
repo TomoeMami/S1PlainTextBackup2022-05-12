@@ -3510,3 +3510,14 @@ b博感言
 
 楼友都被小团体吃掉了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12369#       发表于 2022-9-2 06:09
+
+这不是很正常，年初是休息期，上半年到8.2是活跃期，8.2到年末是平静期，年末是剧变期，大的要来至少还有三个月
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
