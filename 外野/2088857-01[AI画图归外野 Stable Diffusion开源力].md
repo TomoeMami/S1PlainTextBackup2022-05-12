@@ -1021,3 +1021,16 @@ Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索�
 
 红迪总结的，已经几十条了
 
+
+
+*****
+
+####  熊猫团  
+##### 73#       发表于 2022-9-1 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298213&amp;ptid=2088857" target="_blank">机器舞 发表于 2022-9-1 12:28</a>
+想画几幅打印出来挂家里墙上当装饰画，用哪个ai比较好？</blockquote>
+分辨率不够，别想了。要是有40系显卡当我没说
+
+—— 来自 Xiaomi 21081111RG, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
