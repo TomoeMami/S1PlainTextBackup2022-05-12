@@ -9500,3 +9500,27 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是三星版的888或者gen1那么打fgo发热我还是能理解的
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2351#       发表于 2022-9-1 17:13
+
+50友情<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+数值策划就没觉得哪里不对劲嘛
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 2352#       发表于 2022-9-1 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57301863&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-9-1 17:13</a>
+
+50友情
+
+数值策划就没觉得哪里不对劲嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是卖卡面吗（
+
