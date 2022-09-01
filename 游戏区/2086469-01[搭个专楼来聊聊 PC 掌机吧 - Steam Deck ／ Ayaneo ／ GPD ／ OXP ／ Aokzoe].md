@@ -2104,3 +2104,12 @@ Ayaneo 2 的这个边框的确还挺养眼。
 
 罗技这个720G能效怎么样，能效好配上大电池说不定真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 173#         楼主| 发表于 2022-9-1 09:24
+
+Aokzoe 可以领优惠券了，在公众号，之前在群里交定金的坛友记得去领一下。
+
