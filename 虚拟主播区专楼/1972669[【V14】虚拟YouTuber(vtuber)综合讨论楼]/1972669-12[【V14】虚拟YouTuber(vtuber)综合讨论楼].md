@@ -8184,3 +8184,19 @@ voms的en观众很多，但基本只看得懂pika，其他三个属于想看但�
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dclara1  
+##### 17252#       发表于 2022-9-1 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295149&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-9-1 07:47</a>
+
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的 感觉不太符合正常思维
+
+—— 来自 Xiao ...</blockquote>
+tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言多数英文，而且一眼看得出是不会日文的选手，只能回个"thx for your cozy stream tmsk/miu-chan/dmj"的那种
+
+英语voms粉大部分处于想看又看不懂又没切片的状态<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
