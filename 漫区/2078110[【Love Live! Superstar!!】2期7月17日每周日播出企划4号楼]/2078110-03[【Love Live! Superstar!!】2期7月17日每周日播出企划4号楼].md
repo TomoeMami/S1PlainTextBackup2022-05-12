@@ -10206,3 +10206,15 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 3963#       发表于 2022-9-1 15:25
+
+星团不自己整个游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，以我的记忆想来当时无印能在国内火很大一部分原因是sif，至少认识的很多是因为这入坑的。
+在动画摆烂的现在，搞个游戏出来感觉挺重要啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（虽然不知道哪时才能有国服了）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

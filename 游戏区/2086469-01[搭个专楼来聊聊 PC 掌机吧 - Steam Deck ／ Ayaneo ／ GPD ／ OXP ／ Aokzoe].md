@@ -2175,3 +2175,44 @@ Air 跟 NS Lite 的对比：
 
 aok领完是4699买16+512
 
+
+
+*****
+
+####  bypass  
+##### 178#         楼主| 发表于 2022-9-1 15:24
+
+ 本帖最后由 bypass 于 2022-9-1 15:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57299847&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-1 15:01</a>
+
+aok领完是4699买16+512</blockquote>
+
+Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。虽然体积还是大了点。
+
+<img src="https://img.saraba1st.com/forum/202209/01/152552gc6pc8nllljxnnhp.png" referrerpolicy="no-referrer">
+
+<strong>AOKZOE A1 Hands-On Impressions (Ryzen 7 6800U handheld) 7-5 screenshot.png</strong> (202.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 15:25 上传
+
+*****
+
+####  医生狼多  
+##### 179#       发表于 2022-9-1 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57300118&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-1 15:24</a>
+Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。虽然体积还是大了点。</blockquote>
+初代oxp我都玩下来了(
+
+*****
+
+####  bypass  
+##### 180#         楼主| 发表于 2022-9-1 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57300174&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-1 15:29</a>
+
+初代oxp我都玩下来了(</blockquote>
+233 我也有过初代 OXP，大是真的大。
+
