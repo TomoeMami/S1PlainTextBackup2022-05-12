@@ -9536,3 +9536,12 @@ ELS（开20NP）+徐福+C呆+C呆
 冰凉啊  哪有热量 我打隔壁工会战手机都发会烫 但fgo确实冰凉</blockquote>
 我这边刚开时刷起来倒是很热<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lv7  
+##### 2354#       发表于 2022-9-2 01:39
+
+沉的彻底，差一点就保底了，太惨了
+
