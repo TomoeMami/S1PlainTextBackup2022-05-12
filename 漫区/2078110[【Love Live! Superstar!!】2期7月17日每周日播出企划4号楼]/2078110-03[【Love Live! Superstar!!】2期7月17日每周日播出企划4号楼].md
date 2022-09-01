@@ -10134,3 +10134,24 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC
 
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 3957#       发表于 2022-9-1 11:53
+
+配的最好的还是小百合，虽然大香老师越写越抽象
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  plazum  
+##### 3958#       发表于 2022-9-1 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57297582&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-1 11:41</a>
+
+https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
+兄啊，会需要这个培训班的人，怎么看得懂你这外国话的通知啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
