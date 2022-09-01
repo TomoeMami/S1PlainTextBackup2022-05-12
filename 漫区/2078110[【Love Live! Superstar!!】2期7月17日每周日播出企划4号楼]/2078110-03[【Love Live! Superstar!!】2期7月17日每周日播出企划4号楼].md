@@ -10172,3 +10172,17 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 2022-9-1 12:30 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3960#       发表于 2022-9-1 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298247&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-1 12:30</a>
+
+会是什么呢？</blockquote>
+[https://lovelive-sif-fes.bushimo.jp/2022/countdown/](https://lovelive-sif-fes.bushimo.jp/2022/countdown/)
+
+网站是武士道的，至少和游戏有关
+

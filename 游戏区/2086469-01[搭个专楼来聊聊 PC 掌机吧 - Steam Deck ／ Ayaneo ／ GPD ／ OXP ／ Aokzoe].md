@@ -2113,3 +2113,15 @@ Ayaneo 2 的这个边框的确还挺养眼。
 
 Aokzoe 可以领优惠券了，在公众号，之前在群里交定金的坛友记得去领一下。
 
+
+
+*****
+
+####  饭冢武也  
+##### 174#       发表于 2022-9-1 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288484&amp;ptid=2086469" target="_blank">bypass 发表于 2022-8-31 16:48</a>
+
+Ayaneo 2 的这个边框的确还挺养眼。</blockquote>
+这看着好像和switch lite差不多大
+
