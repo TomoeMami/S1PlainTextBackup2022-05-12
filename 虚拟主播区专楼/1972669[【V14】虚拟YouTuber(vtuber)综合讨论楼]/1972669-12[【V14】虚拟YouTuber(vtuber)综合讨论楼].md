@@ -8281,3 +8281,16 @@ tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言
 
 如果绕过b站你号没了
 
+
+
+*****
+
+####  fastary  
+##### 17260#       发表于 2022-9-1 20:11
+
+看到ymn发推说自己的暑假到此结束+换写真照当头像+os团宣布开始定期实写直播和上传实写视频
+
+莫名就有种“啊啊这个人大概不会再与管人界有交集了吧”的强烈预感<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+可我真的觉得os团企划没有他当v搞的那些东西有趣啊，难道是我管人痴的滤镜蒙蔽了我的大脑吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
