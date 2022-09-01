@@ -4,9 +4,8 @@
 name: S1B
 
 on:
-  workflow_dispatch
-#  schedule:
-#    - cron: '0 21 * * *'
+  schedule:
+    - cron: '0 21 * * *'
 jobs:
   PushS1B:
     # needs: UpdateS1
@@ -27,7 +26,6 @@ jobs:
     - name: DataGenerate
       run: |
         python ./S1B.py
-        cat ./S1B/S1B-2022.json
     - name: Pushes S1B folder
       uses: crykn/copy_folder_to_another_repo_action@v1.0.6
       env:
