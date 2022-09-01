@@ -10232,3 +10232,12 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">先不说动画蹦成这样有多少人愿意氪，光是游戏怎么出就有不少雷
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不如跟现有音游联动把歌丢过去就完事了
 
+
+
+*****
+
+####  ViyViy  
+##### 3965#       发表于 2022-9-1 16:16
+
+要不继续搞搞音声小剧场，就像一期开播前那个二人时间的一样，做的长点。一期全卷特典那个方章鱼就不错。
+
