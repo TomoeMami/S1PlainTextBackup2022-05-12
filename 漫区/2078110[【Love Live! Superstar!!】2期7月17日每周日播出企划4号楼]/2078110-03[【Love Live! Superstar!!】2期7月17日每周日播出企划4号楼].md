@@ -10195,3 +10195,14 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 好多人猜星要进as啊，板上钉钉吗
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 3962#       发表于 2022-9-1 15:09
+
+瞎蒙一个开放世界动作冒险lovelive（
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
