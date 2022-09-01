@@ -761,3 +761,12 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 看着架势，主机版应该也是没跑了。荒野兵器和影之心的精神续作，可惜要2025年才发售。
 
+
+
+*****
+
+####  无动于衷  
+##### 73#       发表于 2022-9-1 10:20
+
+100w目标到了，家用机版妥了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -9944,3 +9944,303 @@ miko盖房子熟练度是够了关键是chat栏每次告知时间都没注意一
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  holoan  
+##### 970#         楼主| 发表于 2022-8-31 10:28
+
+我以为直播里说得写得那么辛苦是到底写了多少message上去结果就这
+
+<img src="https://img.saraba1st.com/forum/202208/31/102648f3477xzl7437929d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (629.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 10:26 上传
+
+这不还所有都写一样的吗，就这写了两三个月
+
+那看来是真的量很大了
+
+*****
+
+####  holoan  
+##### 971#         楼主| 发表于 2022-8-31 10:42
+
+9月份最理想的情况是FF通完结束，MC企划结束，rust少播或不播，开始做个人企划和箱内企划，平时播其他新的游戏或者以前很久没播的赛车wwe之类的单发游戏
+
+而实际到底会怎么样呢，搞不好比8月份更忙
+
+*****
+
+####  holoan  
+##### 972#         楼主| 发表于 2022-8-31 10:55
+
+<img src="https://img.saraba1st.com/forum/202208/31/105525br3oyzoqen9kvt5q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 10:55 上传
+
+转发这条是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 973#         楼主| 发表于 2022-8-31 11:07
+
+ame的企划移到明天了也就是说明天白天也不会播MC然后连续6天没播最后的结果就是miko直接把这个企划忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 974#       发表于 2022-8-31 11:25
+
+忘了也好，反正看的人不多，把时间拿去播其他的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 975#         楼主| 发表于 2022-8-31 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真忘了会招黑子的
+
+*****
+
+####  holoan  
+##### 976#         楼主| 发表于 2022-8-31 12:51
+
+<blockquote>名前：名无し＠18歳未満の入场禁止 无断転载禁止[] 投稿日：2022/08/31(水) 13:24:34.96 ID:a6Cnd87F0 [2/7]
+
+自爆や自阵の罠で死にまくり周りも见えてないアホなみこちがヘリ操作やエイムといったマウス操作だけは达者なのおもろいな</blockquote>
+
+确实了属于，周边环境感知力差但是微操很强
+
+*****
+
+####  rs5621  
+##### 977#       发表于 2022-8-31 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自从单刷油井后，miko的枪法一直很行了，这人成长得太快了吧
+
+*****
+
+####  holoan  
+##### 978#         楼主| 发表于 2022-8-31 13:03
+
+不是，对人近距是GTA练出来的
+
+油井不行单纯是狙以前没用过一开始不上手而已
+
+*****
+
+####  holoan  
+##### 979#         楼主| 发表于 2022-8-31 13:11
+
+不过别忘了前年GTA里stayhome的梗子爆火的那段视频，miko用的就是狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|哈哈，确实|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 980#         楼主| 发表于 2022-8-31 20:35
+
+？？？？？？？？
+
+*****
+
+####  holoan  
+##### 981#         楼主| 发表于 2022-8-31 21:11
+
+<img src="https://img.saraba1st.com/forum/202208/31/211147w5r8p0pen7rap35t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 21:11 上传
+
+这也能强行火建
+
+*****
+
+####  holoan  
+##### 982#         楼主| 发表于 2022-8-31 21:15
+
+<img src="https://img.saraba1st.com/forum/202208/31/211529sqxrdwrqrqxtbx00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 21:15 上传
+
+你模型很矮大家都知道了
+
+问题是
+
+*****
+
+####  holoan  
+##### 983#         楼主| 发表于 2022-8-31 21:45
+
+<img src="https://img.saraba1st.com/forum/202208/31/214532qzpr02uk2rwjeuyy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 21:45 上传
+
+minialbum期生版封面
+
+*****
+
+####  rs5621  
+##### 984#       发表于 2022-8-31 22:03
+
+<img src="https://img.saraba1st.com/forum/202208/31/220209xmpo5vtfrtxzk8v3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 22:02 上传
+
+草大叔miko的名言
+
+*****
+
+####  holoan  
+##### 985#         楼主| 发表于 2022-8-31 22:06
+
+今天一天推特就有数千份生日周边的返po多到把话题推到推特趋势榜了，光这就能看出来量了
+
+*****
+
+####  rs5621  
+##### 986#       发表于 2022-8-31 22:18
+
+上去看了一下好多啊,一直都有人在晒图
+
+*****
+
+####  holoan  
+##### 987#         楼主| 发表于 2022-8-31 22:19
+
+是的，是肉眼可以看得出来的量，和以前的周边情况比完全不是一个级别
+
+*****
+
+####  holoan  
+##### 988#         楼主| 发表于 2022-8-31 22:22
+
+看推特今天是相当闲了，平时一年也提不了一次的切片竟然主动拿出来分享
+
+说到这个说要做的上半年直播回顾总结直播什么时候做
+
+*****
+
+####  holoan  
+##### 989#         楼主| 发表于 2022-8-31 22:28
+
+还不时点赞了很多周边返图 应该一直在刷话题
+
+*****
+
+####  rs5621  
+##### 990#       发表于 2022-8-31 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被点赞的35p要爽死了
+
+
+
+*****
+
+####  holoan  
+##### 991#         楼主| 发表于 2022-8-31 22:36
+
+确实很爽，但是就这量来说概率很低了，几千分之一
+
+还不如平时画两张好看的FA拿点赞的概率更大
+
+*****
+
+####  holoan  
+##### 992#         楼主| 发表于 2022-8-31 23:51
+
+<img src="https://img.saraba1st.com/forum/202208/31/235135erovzjkc8e83vxiv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 23:51 上传
+
+很难不支持
+
+*****
+
+####  rs5621  
+##### 993#       发表于 2022-9-1 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草,你跑了,就剩我一个在看了
+
+*****
+
+####  holoan  
+##### 994#         楼主| 发表于 2022-9-1 01:31
+
+我压根就没看 就点进去截个图关闭了
+今天rust窗已经等不及开了，比开始时间提早半小时开播
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rs5621  
+##### 995#       发表于 2022-9-1 01:44
+
+<blockquote>最终日はルールなんてないんだ！20：00~23:00 无礼讲TIME</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次最终战的时间倒是挺长的
+
+*****
+
+####  qesto  
+##### 996#       发表于 2022-9-1 01:46
+
+<img src="https://img.saraba1st.com/forum/202209/01/014151n3yum55dllnuh3dn.png" referrerpolicy="no-referrer">
+
+<strong>12.png</strong> (280.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 01:41 上传
+
+重头戏来了
+
+*****
+
+####  rs5621  
+##### 997#       发表于 2022-9-1 01:48
+
+准备好零食等着明天看戏了
+

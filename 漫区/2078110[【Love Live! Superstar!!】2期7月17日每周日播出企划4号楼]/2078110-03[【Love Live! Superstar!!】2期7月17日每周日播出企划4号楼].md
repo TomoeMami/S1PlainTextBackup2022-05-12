@@ -9736,3 +9736,354 @@ Pay庆祝初音生日
 四季倒就倒吧，虽然我当时看着也挺懵的
  小两口的情 趣 
 
+
+
+*****
+
+####  优妮可  
+##### 3917#       发表于 2022-8-31 14:56
+
+<img src="https://img.saraba1st.com/forum/202208/31/145547z85z88z2czz5dqu8.jpg" referrerpolicy="no-referrer">
+
+<strong>-2ee1fc88d72bc9b6.jpg</strong> (169.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 14:55 上传
+
+鱼的代言？
+
+*****
+
+####  cybernetics31  
+##### 3918#       发表于 2022-8-31 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的，而且就在池袋那边
+
+*****
+
+####  JustW_3  
+##### 3919#       发表于 2022-8-31 14:58
+
+ 本帖最后由 JustW_3 于 2022-8-31 15:00 编辑 
+
+四季那个难道不是一到点就会睡过去的角色属性吗 类似齐木楠雄的班长，仿佛赤ちゃん一样的作息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是说我理解错了
+
+*****
+
+####  Kfly  
+##### 3920#       发表于 2022-8-31 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286840&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-31 14:56</a>
+鱼的代言？</blockquote>
+一眼看过去没绷住（无恶意）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 3921#       发表于 2022-8-31 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286840&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-8-31 14:56</a>
+
+鱼的代言？</blockquote>
+群里看到时都以为是p的，结果好多角度的照片出来，看来是真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 3922#       发表于 2022-8-31 15:13
+
+ 本帖最后由 Enakina 于 2022-8-31 15:37 编辑 
+
+这是像那种考研的升学机构吗？
+是个面向中国留学生的私塾的样子
+拼搏百天，我要上东京大学
+
+*****
+
+####  cybernetics31  
+##### 3923#       发表于 2022-8-31 15:44
+
+语言学校之类的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">n多人去问客服了………………
+
+*****
+
+####  lj205  
+##### 3924#       发表于 2022-8-31 15:57
+
+ 本帖最后由 lj205 于 2022-8-31 16:02 编辑 
+
+草，有钱拿就行
+
+但是鱼这憨憨样没什么说服力的样子啊
+
+*****
+
+####  stygian  
+##### 3925#       发表于 2022-8-31 16:02
+
+讲真，按鱼现在的粉丝年龄/家庭收入比例，这广告效果绝对好
+
+*****
+
+####  cybernetics31  
+##### 3926#       发表于 2022-8-31 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼初中粉都有，这代言挺好的
+
+*****
+
+####  甘蓝巧克力  
+##### 3927#       发表于 2022-8-31 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">劝学偶像，直播里鱼也在要求大家好好读书
+
+*****
+
+####  lj205  
+##### 3928#       发表于 2022-8-31 16:30
+
+中午飞到上海饭都赶不上吃就直奔外文书店，全场就我一人，看了两遍视频就赶紧离开了
+
+*****
+
+####  ads147147  
+##### 3929#       发表于 2022-8-31 16:35
+
+给我的感觉就是要樱花妹去上海找啊，去日本干什么jpg
+
+*****
+
+####  player3960  
+##### 3930#       发表于 2022-8-31 16:41
+
+快去工作阴角.JPG
+
+人要上班才能活下去.jpg
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 3931#       发表于 2022-8-31 17:43
+
+鲤鱼姐这波代言属于是搞清楚受众群体了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3932#       发表于 2022-8-31 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3933#       发表于 2022-8-31 21:03
+
+跟喜茶的合作也不知道什么时候能有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cat1230  
+##### 3934#       发表于 2022-9-1 00:09
+
+这广告成打卡点了，看到好几个up拍的短视频了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Erikas  
+##### 3935#       发表于 2022-9-1 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">喷了真接地气
+
+*****
+
+####  lj205  
+##### 3936#       发表于 2022-9-1 08:08
+
+那块广告牌要挂一年<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 3937#       发表于 2022-9-1 08:16
+
+官宣图看着其实蛮不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20220901081457.jpg
+(334.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 08:15 上传
+
+<img src="https://img.saraba1st.com/forum/202209/01/081557p6vm9q1yb6yyu9qa.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 3938#       发表于 2022-9-1 08:31
+
+ 本帖最后由 Kfly 于 2022-9-1 08:33 编辑 
+
+附带一个小视频
+
+<img src="https://img.saraba1st.com/forum/202209/01/083121jtzzhb9oabxg3cfy.jpg" referrerpolicy="no-referrer">
+
+<strong>aSoH_R2HYMIpryDp.jpg</strong> (108.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 08:31 上传
+
+*****
+
+####  adw667  
+##### 3939#       发表于 2022-9-1 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295361&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-1 08:31</a>
+
+附带一个小视频</blockquote>
+[f:067拍成大脸盘子了还行，多加点钱给鲤鱼让她把视频也剪了吧
+
+*****
+
+####  cybernetics31  
+##### 3940#       发表于 2022-9-1 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">校服好看
+
+*****
+
+####  cybernetics31  
+##### 3941#       发表于 2022-9-1 08:50
+
+话说nagi这带直签的谷子也太贵了吧………………对比起来菜宝满7000送直签简直便宜
+
+*****
+
+####  player3960  
+##### 3942#       发表于 2022-9-1 08:59
+
+<img src="https://img.saraba1st.com/forum/202209/01/085901pu8kk58ggu0b4tob.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220901085842.png</strong> (31.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 08:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20220901085633.jpg
+(137.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-1 08:58 上传
+
+<img src="https://img.saraba1st.com/forum/202209/01/085828yvme6oydmq0m6vld.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3943#       发表于 2022-9-1 09:09
+
+应该抱理科课本
+
+*****
+
+####  Enakina  
+##### 3944#       发表于 2022-9-1 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295507&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-1 08:50</a>
+话说nagi这带直签的谷子也太贵了吧………………对比起来菜宝满7000送直签简直便宜 ...</blockquote>
+之前还是珠宝代言，官方可能觉得青山粉丝有钱呗，五万五能多卖出去一张都是血赚啊
+
+*****
+
+####  优妮可  
+##### 3945#       发表于 2022-9-1 09:17
+
+抱个五年高考三年模拟
+
+*****
+
+####  ads147147  
+##### 3946#       发表于 2022-9-1 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295507&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-1 08:50</a>
+
+话说nagi这带直签的谷子也太贵了吧………………对比起来菜宝满7000送直签简直便宜 ...</blockquote>
+菜宝的谷子满7000送直签？噗，难怪之前有人找我拼菜宝的谷子，说差个2000，我还以为是包邮啥的。
+
+*****
+
+####  Kfly  
+##### 3947#       发表于 2022-9-1 09:21
+
+很快就会有人p的吧，这绝佳的素材<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3948#       发表于 2022-9-1 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295782&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-1 09:21</a>
+很快就会有人p的吧，这绝佳的素材</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天就有改图把书p成53了…………
+
+*****
+
+####  cybernetics31  
+##### 3949#       发表于 2022-9-1 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295778&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-1 09:20</a>
+菜宝的谷子满7000送直签？噗，难怪之前有人找我拼菜宝的谷子，说差个2000，我还以为是包邮啥的。 ...</blockquote>
+对啊，fc的谷子一次满7000就送直签
+
+*****
+
+####  cybernetics31  
+##### 3950#       发表于 2022-9-1 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295706&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-1 09:12</a>
+之前还是珠宝代言，官方可能觉得青山粉丝有钱呗，五万五能多卖出去一张都是血赚啊
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这价格配合这谷子商品我只能说很自信
+
+*****
+
+####  ads147147  
+##### 3951#       发表于 2022-9-1 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295835&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-1 09:27</a>
+
+对啊，fc的谷子一次满7000就送直签</blockquote>
+气了，居然还要我出邮费，找时间管他推邮费钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3952#       发表于 2022-9-1 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295912&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-1 09:33</a>
+气了，居然还要我出邮费，找时间管他推邮费钱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fc日常的880日元邮费………………
+
+*****
+
+####  plazum  
+##### 3953#       发表于 2022-9-1 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295587&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-1 08:59</a></blockquote>
+怎么连原图都有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
