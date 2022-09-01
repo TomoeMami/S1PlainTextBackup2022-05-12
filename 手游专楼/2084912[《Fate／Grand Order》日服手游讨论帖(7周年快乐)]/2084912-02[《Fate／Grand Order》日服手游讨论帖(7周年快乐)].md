@@ -9470,3 +9470,12 @@ ELS（开20NP）+徐福+C呆+C呆
 我现在模拟器上的BGO就是60帧的</blockquote>
 模拟器是比较早有60帧的，我看18年就有视频了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2348#       发表于 2022-9-1 13:11
+
+魔改肯定有，但官方只给战斗的发热量也确实很明显，还是不要了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
