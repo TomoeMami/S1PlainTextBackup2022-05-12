@@ -10442,3 +10442,21 @@ miko polka luna四人组
 
 <blockquote>みこのぽうぽう</blockquote>
 
+
+
+*****
+
+####  rs5621  
+##### 1020#       发表于 2022-9-1 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在赌场发病了,还想着你那20呢
+
+
+
+*****
+
+####  holoan  
+##### 1021#         楼主| 发表于 2022-9-1 23:01
+
+七字母太真了吧
+
