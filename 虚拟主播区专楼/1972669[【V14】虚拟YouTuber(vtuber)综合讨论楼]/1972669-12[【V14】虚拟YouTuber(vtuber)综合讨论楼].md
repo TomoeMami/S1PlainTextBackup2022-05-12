@@ -8267,3 +8267,17 @@ tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言
 这钱是之后要做的工商钱吧，未来时
 等来b限就会死命夸了
 
+
+
+*****
+
+####  v沈馒馒v  
+##### 17259#       发表于 2022-9-1 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57301479&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-1 16:51</a>
+
+不太懂，为什么会有b站做中间商，郡道最近唯一一次b限可是临时把原直播改成幻塔，而且昨晚播3.0的剧情点 ...</blockquote>
+在b站接工商都是找b站洽谈然后b站转给up的
+
+如果绕过b站你号没了
+

@@ -1010,3 +1010,14 @@ Stable Diffusion：下限低，一开始玩效果很平淡，如果愿意摸索�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  圈量子  
+##### 72#       发表于 2022-9-1 18:09
+
+[https://www.reddit.com/r/StableD ... _diffusion_systems/](https://www.reddit.com/r/StableDiffusion/comments/wqaizj/list_of_stable_diffusion_systems/)
+
+红迪总结的，已经几十条了
+
