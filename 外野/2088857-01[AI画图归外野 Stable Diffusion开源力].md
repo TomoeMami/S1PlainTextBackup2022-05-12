@@ -956,3 +956,12 @@ A Hero has batman's body, spiderman's mask</blockquote>
 应该不违规，违规提示我删。</blockquote>
 艹，这个不是真实发生的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  机器舞  
+##### 67#       发表于 2022-9-1 12:28
+
+想画几幅打印出来挂家里墙上当装饰画，用哪个ai比较好？
+
