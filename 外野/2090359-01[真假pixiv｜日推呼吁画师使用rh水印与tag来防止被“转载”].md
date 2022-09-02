@@ -1813,3 +1813,16 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 
 但是如果谷歌不忌讳ykw为啥要下架ykw的APP
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 188#       发表于 2022-9-2 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57314423&amp;ptid=2090359" target="_blank">夏延 发表于 2022-9-2 14:32</a>
+符咒这种东西，看多了就只会觉得乐。而且解决方法太多了，能检测到还不能定向删除吗，再不济把简介全删了不 ...</blockquote>
+github.com/Notsfsssf/pixez-flutter
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
