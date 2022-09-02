@@ -754,3 +754,40 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 你还别说，这招真的有用
 
+
+
+*****
+
+####  哈曼的YY  
+##### 82#       发表于 2022-9-2 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310300&amp;ptid=2090359" target="_blank">雪霜 发表于 2022-9-2 09:58</a>
+
+惊了，有这么好的网站一直不知道。。。现在还有这样的网站么</blockquote>
+kemono party依旧岁月静好
+
+*****
+
+####  HZLJ  
+##### 83#       发表于 2022-9-2 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309859&amp;ptid=2090359" target="_blank">响鬼 发表于 2022-9-2 09:31</a>
+
+AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东西</blockquote>
+你忽略了一点，灰色产业链也是产业链，也是有人能在中间赚钱的
+
+引来赵弹和铁拳把灰色产业链干烂，对于这些原作者来说是一种下作但能保护自身利益的方式
+
+[https://bbs.saraba1st.com/2b/thread-2071979-1-1.html](https://bbs.saraba1st.com/2b/thread-2071979-1-1.html)
+
+*****
+
+####  xiaoba329  
+##### 84#       发表于 2022-9-2 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310345&amp;ptid=2090359" target="_blank">nebulanoby 发表于 2022-9-2 10:01</a>
+不是为了让最终用户不收，看个二刺螈还在乎乳滑的本来就不是目标客户了，99.9%的画师对普通用户转载他的 ...</blockquote>
+想吸引铁拳直接举报有用多了，盈利+成人足够被抓一段时间了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
