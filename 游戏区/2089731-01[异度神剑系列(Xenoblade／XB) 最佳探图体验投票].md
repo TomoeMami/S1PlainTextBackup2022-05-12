@@ -592,3 +592,16 @@ X能开机甲，直接秒杀
 
 这帖子有几个孝子恶心到极点了，明知道XBX销量最低平台最差还好意思说投票比不过。
 
+
+
+*****
+
+####  ChengChung  
+##### 63#       发表于 2022-9-2 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57254008&amp;ptid=2089731" target="_blank">X轴正向速度 发表于 2022-8-28 23:19</a>
+XB3的地图相当于前代把几张地图拼到一起，而开全图的机制是需要整个区域都探索（包括上下层之类的），导致 ...</blockquote>
+包括冠名吗，或者说地标是否包括它
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
