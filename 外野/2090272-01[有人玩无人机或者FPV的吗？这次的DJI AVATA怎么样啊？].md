@@ -613,3 +613,15 @@ RX5808白嫖JLC手搓80
 
 连模拟器都没摸过的话，无脑上care吧，炸机成本趋向无穷大<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JAROD009  
+##### 62#       发表于 2022-9-3 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57321372&amp;ptid=2090272" target="_blank">看我派tank 发表于 2022-9-2 23:37</a>
+
+有没有啥教材可供参考呢？</blockquote>
+推荐上5imx论坛的穿越机区看看,有各种设备、装机、飞控PID调试的教程。机器可以从成品的空心杯室内机或者2.5寸室内机套机开始上手，这两种动力不强，机体轻而且基本都是涵道配置。
+
