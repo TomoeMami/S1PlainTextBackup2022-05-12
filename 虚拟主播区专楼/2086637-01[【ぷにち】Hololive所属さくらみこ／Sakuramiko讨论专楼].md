@@ -10843,3 +10843,22 @@ holo最强小团体了属于
 
 所以昨天是开玩笑的咯,感觉peko和夏哥进不去这队伍
 
+
+
+*****
+
+####  rs5621  
+##### 1060#       发表于 2022-9-2 23:45
+
+七字母焊得越来死了,<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我只能看看八字母的漫画回下血了
+
+<img src="https://img.saraba1st.com/forum/202209/02/234413teg9ztvzvdm3zad6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (283.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 23:44 上传
+
+[推特](https://twitter.com/usami_amroo/status/1565670674550517761?s=20&amp;t=uoAwmB7qfzjCB_odNdWoVQ)
+
