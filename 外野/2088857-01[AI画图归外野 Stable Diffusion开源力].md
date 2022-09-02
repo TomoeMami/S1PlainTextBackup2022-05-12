@@ -1197,3 +1197,25 @@ prompt: entrance to ethereal realm, rendered in unreal engine, central compositi
 
 github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 85#       发表于 2022-9-3 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57306904&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-9-1 23:33</a>
+
+今天在lexica上扒奥黛丽赫本的关键词时刷到的大佬作品，当时就觉得，如果《罗马假日》是吉普力的动画的话， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">啊，这个网站牛逼，可以抄作业了
+
+*****
+
+####  伊莉伊莉雅  
+##### 86#       发表于 2022-9-3 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57306904&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-9-1 23:33</a>
+
+今天在lexica上扒奥黛丽赫本的关键词时刷到的大佬作品，当时就觉得，如果《罗马假日》是吉普力的动画的话， ...</blockquote>
+顺便球一下这个prompts，搜了一下奥黛丽赫本没搜到
+

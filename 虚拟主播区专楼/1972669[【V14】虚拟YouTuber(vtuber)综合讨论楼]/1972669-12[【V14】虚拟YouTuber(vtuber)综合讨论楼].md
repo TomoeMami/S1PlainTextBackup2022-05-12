@@ -8428,3 +8428,14 @@ Jike桑经常有做光君的切片，而且很认真和用心。还是希望有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天nrk提了彩虹valo自定义的事，本来是因为有黑黑在才报名的，结果黑黑live不来导致比赛选手水平差拉大了，自己选sky打太狠也不行，放水太多也不行，评论都要闹，所以后面开始选rena摆烂。
 虹的关系性好麻烦
 
+
+
+*****
+
+####  硫黄  
+##### 17274#       发表于 2022-9-3 03:40
+
+<blockquote>rzrbtk 发表于 2022-9-2 18:38
+说不定郡道来个meso联动或者钟魈，不是我说b站用户真的很爱刷cp（没有恶意）；syl，dustcell新砖也太复制黏 ...</blockquote>
+今年的新歌每首点进去都差不多，△你咋回事啊…
+
