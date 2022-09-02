@@ -946,3 +946,37 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 两边都挺蠢的，网右和传话太监自顾自高潮，弄镜像站的人还专门去审核过滤内容，搞得自己仿佛在经营什么正经互联网业务似的
 
+
+
+*****
+
+####  haohaoh4  
+##### 102#       发表于 2022-9-2 11:11
+
+ 本帖最后由 haohaoh4 于 2022-9-2 11:21 编辑 
+
+写个关键词就是rh，你说是定向爆破关键词还差不多，之前萌娘百科好像就被爆破过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的签名是乳美了吗，爆破警告
+
+*****
+
+####  旋转吃草  
+##### 103#       发表于 2022-9-2 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309925&amp;ptid=2090359" target="_blank">艾诺琳 发表于 2022-9-2 09:34</a>
+
+那油管上盗国内的要怎么办？关键帧插ykw大头照？坚持两性观念？</blockquote>
+基本只能靠申诉
+
+对面没赵丹确实真的难办，像ls说的什么fbi警告那种，你要本身就是偏这方面的黄色也就算了。如果你本身是很正经的内容，或者合理的成人内容，干这种给自己身上涂shit的行为不是有病吗
+
+*****
+
+####  gaayas  
+##### 104#       发表于 2022-9-2 11:14
+
+管我屁事，反正都是不存在的网站<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
