@@ -1737,3 +1737,33 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 解构的不是国内是国外啊，你当白皮鬼子脱了裤子看本子第一页写个自xx港，解x**，看多了这口号不就成笑话了 ...</blockquote>
 解构不解构要看塔怎么想，今年多少个因为这个进去的了？
 
+
+
+*****
+
+####  AtlachNacha  
+##### 181#       发表于 2022-9-2 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57314194&amp;ptid=2090359" target="_blank">ShawElA 发表于 2022-9-2 14:14</a>
+
+是是是，漫天红脖乃美利坚网络第一军势，从推特到红迪胜了又胜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我只主张红脖子是货真价实的一半人口，少来一会儿一小撮一会儿漫天第一军势的二极管打滚。
+
+*****
+
+####  日本文化  
+##### 182#       发表于 2022-9-2 14:25
+
+日本acg作者没一个好东西，建议全部墙了
+
+*****
+
+####  xiaoba329  
+##### 183#       发表于 2022-9-2 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313486&amp;ptid=2090359" target="_blank">nebulanoby 发表于 2022-9-2 13:04</a>
+怎么那么多人在讨论怎么反弹回去给外面的人招外面铁拳，还想放YKW，外面那么多YKW视频假的吗？外面铁拳真没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">太君那倒是的确有些内容容易被马上举报掉，但同时得有号被阴湿蝗国太君疯狂骚扰的心理准备。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
