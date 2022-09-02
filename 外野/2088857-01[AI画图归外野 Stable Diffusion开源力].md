@@ -1175,3 +1175,16 @@ prompt: entrance to ethereal realm, rendered in unreal engine, central compositi
 
 2022-9-1 23:32 上传
 
+
+
+*****
+
+####  PalmTiger  
+##### 83#       发表于 2022-9-2 08:32
+
+[https://rentry.org/GUItard](https://rentry.org/GUItard)
+
+下那个整合包。啥都不用配马上可以用。。就是稍微要钻一下狗洞才能过初始验证
+
+然后我试了两台机子，移动3060可以用，10秒一张图，1080桌面版的系统有问题，一直报找不到frontend就很迷
+
