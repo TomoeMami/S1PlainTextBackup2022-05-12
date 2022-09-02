@@ -671,3 +671,24 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 —— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  repal  
+##### 73#       发表于 2022-9-2 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57308845&amp;ptid=2090359" target="_blank">头像才不霸气呢 发表于 2022-9-2 08:11</a>
+ 这玩意有了好几年了 魔法也有好几年了 昨天忽然被吵起来应该是冈务省看见南京大屠杀的照片才翻点热点抄抄 ...</blockquote>
+照片这事自己已经翻车了 约莫等不到外务省出手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nihilxp  
+##### 74#       发表于 2022-9-2 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309925&amp;ptid=2090359" target="_blank">艾诺琳 发表于 2022-9-2 09:34</a>
+
+那油管上盗国内的要怎么办？关键帧插ykw大头照？坚持两性观念？</blockquote>
+谁管你这，怕被盗直接全程米老鼠水印，美国佬敢偷直接被迪士尼扬了
+
