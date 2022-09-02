@@ -9705,3 +9705,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 目标是打算2宝的....结果400多石就出了1个....这下彻底被掏空了....慢慢继续攒石吧
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2370#       发表于 2022-9-2 22:13
+
+啥都没开的表示什么点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
