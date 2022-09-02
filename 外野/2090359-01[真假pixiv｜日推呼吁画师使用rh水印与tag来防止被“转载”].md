@@ -1047,3 +1047,48 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到个画师给大家传授“优良经验”，然后一堆看到别人反对安倍国葬就咬牙切齿的“爱国小画家”疯狂转发直让人感觉日本人真是欺软怕硬。
 
+
+
+*****
+
+####  头像才不霸气呢  
+##### 113#       发表于 2022-9-2 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310077&amp;ptid=2090359" target="_blank">repal 发表于 2022-9-2 09:44</a>
+
+照片这事自己已经翻车了 约莫等不到外务省出手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">毕竟冈本人做贼心虚 没事也要搅三分呢
+
+*****
+
+####  Nungesser  
+##### 114#       发表于 2022-9-2 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310787&amp;ptid=2090359" target="_blank">Anew620 发表于 2022-9-2 10:24</a>
+
+我突然想起来好些年前玩舰c的时候就有本子画师这么干，我记得有个铃谷的还是熊野的本子来着甚至直接把人和 ...</blockquote>
+因为那个画师操作得特别搞笑，以为能羞辱到我们，结果被我们这边当乐子看，类似德军给美军空头裸体妹子图片试图让他们思乡厌战，结果美军看到这些图片反而当场嗨起来了。
+
+*****
+
+####  Vtuber  
+##### 115#       发表于 2022-9-2 11:54
+
+属于是魔法结界了
+
+*****
+
+####  Urakawa  
+##### 116#       发表于 2022-9-2 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309925&amp;ptid=2090359" target="_blank">艾诺琳 发表于 2022-9-2 09:34</a>
+那油管上盗国内的要怎么办？关键帧插ykw大头照？坚持两性观念？</blockquote>
+配上《阳光彩虹小白马》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlgdc  
+##### 117#       发表于 2022-9-2 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赛雷塞雷 不要乳化 建议塞坦克
+
