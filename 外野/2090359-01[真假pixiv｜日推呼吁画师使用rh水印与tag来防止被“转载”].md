@@ -1589,3 +1589,29 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 
 这都什么奇思怪想<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天之叢云  
+##### 166#       发表于 2022-9-2 13:16
+
+别的不说，希望国内的垃圾搬运工和洗稿的全被铁拳整死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友善用户  
+##### 167#       发表于 2022-9-2 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">能暴露出脚盆鸡本性也未尝不是一件好事。
+
+*****
+
+####  nihilxp  
+##### 168#       发表于 2022-9-2 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313547&amp;ptid=2090359" target="_blank">代练水笔 发表于 2022-9-2 13:09</a>
+
+去推特对线，去直播间开独轮车，去ddos打网站。对面属性不一致没有aoe弱点只能单点暴发了。 ...</blockquote>
+对线没啥用，DDOS打小网站还行大APP也没啥用
+
