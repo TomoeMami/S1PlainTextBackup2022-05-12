@@ -1434,3 +1434,109 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 贴米老鼠作者自己先被下架吧</blockquote>
 那插支持ykw？
 
+
+
+*****
+
+####  🐳❕  
+##### 150#       发表于 2022-9-2 12:52
+
+更心安理得白嫖了＋1<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  samesame  
+##### 151#       发表于 2022-9-2 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313239&amp;ptid=2090359" target="_blank">DFFTTT 发表于 2022-9-2 12:48</a>
+
+应该插些什么内容召唤欧美铁拳？米老鼠？</blockquote>
+被英化是太君的荣幸啊，插米老鼠干啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士甄志丙  
+##### 152#       发表于 2022-9-2 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313290&amp;ptid=2090359" target="_blank">天使日又日 发表于 2022-9-2 12:51</a>
+
+港台up也喜欢搞这些，日本人的话我知道最傻逼就是在网页代码塞关键字的傻逼minori的傻逼社长
+
+—— 来自 So ...</blockquote>
+去淘宝底下留言我是知道，原来还有网页代码塞关键字的……这么魔怔死的不冤
+
+*****
+
+####  DFFTTT  
+##### 153#       发表于 2022-9-2 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313321&amp;ptid=2090359" target="_blank">samesame 发表于 2022-9-2 12:53</a>
+
+被英化是太君的荣幸啊，插米老鼠干啥</blockquote>
+我的意思是如果太君嫖中国画师或其他的时候
+
+*****
+
+####  猪圈傻事  
+##### 154#       发表于 2022-9-2 12:54
+
+要怎样才能乳到外国人，好急
+
+*****
+
+####  nebulanoby  
+##### 155#       发表于 2022-9-2 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313124&amp;ptid=2090359" target="_blank">qderaaa 发表于 2022-9-2 12:41</a>
+突然想到前几个月赛雷三分钟就是因为这种骚操作被封的吧。洗稿盗视频的时候没注意人家加了敏感防盗内容[f:0 ...</blockquote>
+他不是洗稿，他是真的直球引了那个视频来“批判”对面，谁知道塔根本不用他帮忙，只需要大家一起把那件事忘了……
+
+*****
+
+####  DFFTTT  
+##### 156#       发表于 2022-9-2 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313272&amp;ptid=2090359" target="_blank">龙城狂霸拽少 发表于 2022-9-2 12:50</a>
+
+贴米老鼠作者自己先被下架吧</blockquote>
+等等，迪斯尼能管到中国吗？
+
+*****
+
+####  代练水笔  
+##### 157#       发表于 2022-9-2 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313368&amp;ptid=2090359" target="_blank">DFFTTT 发表于 2022-9-2 12:56</a>
+等等，迪斯尼能管到中国吗？</blockquote>
+但是管的到日本啊
+
+*****
+
+####  DFFTTT  
+##### 158#       发表于 2022-9-2 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313380&amp;ptid=2090359" target="_blank">代练水笔 发表于 2022-9-2 12:57</a>
+
+但是管的到日本啊</blockquote>
+可能是我表达不清楚，其实我是想问外国盗版剽窃中国的画或小说的情况怎么通过这个方法反击
+
+*****
+
+####  magus  
+##### 159#       发表于 2022-9-2 12:59
+
+<blockquote>jing08 发表于 2022-9-2 12:33
+这招很早以前就有了，最早是是加在黄油里的，为的就是打击传播的人</blockquote>
+没毛用，亲眼见过一个ww的游戏在开头加了td标语。结果到了大陆就被人改成一个中国继续传播了
+
+*****
+
+####  samesame  
+##### 160#       发表于 2022-9-2 13:02
+
+<blockquote>DFFTTT 发表于 2022-9-2 12:54
+我的意思是如果太君嫖中国画师的时候</blockquote>
+那还不如找几个人去匿名区带此人亲中日奸的节奏XD说实话，这楼很多人是拿国人的思路去套这些日本画师，你们以为日本人气的是拿他们的图卖钱吗？不是的，ins推特上能有八万个无授权搬运日本二刺猿动漫图的各国语言账号怎么不见日本人冲上热搜，他们怕的是这个所谓中华系的网站copy蓝P，会把画师的个人信息卖给利维坦，拔高到了一个国家安全的地步属于是，所以什么大田区的议员都下场搅混水了
+
