@@ -9583,3 +9583,14 @@ ELS（开20NP）+徐福+C呆+C呆
 
 大奥没打完吧
 
+
+
+*****
+
+####  khxooo  
+##### 2359#       发表于 2022-9-2 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57316439&amp;ptid=2084912" target="_blank">rzxa 发表于 2022-9-2 17:06</a>
+大奥没打完吧</blockquote>
+哦，你这么一说都忘记大奥这东西了
+
