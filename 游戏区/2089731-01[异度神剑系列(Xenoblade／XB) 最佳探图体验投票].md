@@ -680,3 +680,14 @@ xbx能开高达体验确实是独一份，但是内容填充其实挺烂的，�
 
 这帖让我以为XBX的历史销量是1000万
 
+
+
+*****
+
+####  s1kuku  
+##### 72#       发表于 2022-9-3 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57317798&amp;ptid=2089731" target="_blank">zyxsqw 发表于 2022-9-2 18:49</a>
+虽然都说载具，但xbx肉身那个超高移速、跳跃高度，没有下落伤害加一起的探图体验就和xb123区别很大了，到处 ...</blockquote>
+xbx肉身跑步和跳跃除了性能好之外手感也远超其他几作，爬起山来特别舒服。
+
