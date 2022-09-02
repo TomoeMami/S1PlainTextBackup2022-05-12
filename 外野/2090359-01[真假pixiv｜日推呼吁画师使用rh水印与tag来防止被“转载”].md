@@ -807,3 +807,38 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 对全年龄作品可能有那么一丁点儿用 对R18的没什么卵用
 
+
+
+*****
+
+####  AtlachNacha  
+##### 87#       发表于 2022-9-2 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310180&amp;ptid=2090359" target="_blank">nihilxp 发表于 2022-9-2 09:50</a>
+
+谁管你这，怕被盗直接全程米老鼠水印，美国佬敢偷直接被迪士尼扬了</blockquote>
+自爆打法。你自己最先加的迪士尼核弹先打你。需要在自己本地完全合法但防偷地区零容忍绝对政治不正确的东西。上面举的政治不正确是另一半人口的政治正确，完全不行。
+
+*****
+
+####  代练水笔  
+##### 88#       发表于 2022-9-2 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310920&amp;ptid=2090359" target="_blank">AtlachNacha 发表于 2022-9-2 10:31</a>
+自爆打法。你自己最先加的迪士尼核弹先打你。需要在自己本地完全合法但防偷地区零容忍绝对政治不正确的东 ...</blockquote>
+我也想到这个，要嘛迪士尼一起管，要嘛都不管，根本没有特定杀伤力
+
+*****
+
+####  tako  
+##### 89#       发表于 2022-9-2 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> pixiv本站还有打赏功能？不是fanbox？
+
+*****
+
+####  椎名mahuyo  
+##### 90#       发表于 2022-9-2 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一大堆收费麦片的，买的人还不少，我觉得这种做法是有用的
+
