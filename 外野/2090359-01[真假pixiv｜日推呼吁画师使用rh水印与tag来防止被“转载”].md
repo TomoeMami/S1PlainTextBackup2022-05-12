@@ -842,3 +842,22 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一大堆收费麦片的，买的人还不少，我觉得这种做法是有用的
 
+
+
+*****
+
+####  samesame  
+##### 91#       发表于 2022-9-2 10:45
+
+太君又被湾湾舔的精神胜利了，国内铁拳打了多少轮了墙内还有看黄的地方？不都是翻出去看，既然已经翻出去了还管他辱不辱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  samesame  
+##### 92#       发表于 2022-9-2 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310787&amp;ptid=2090359" target="_blank">Anew620 发表于 2022-9-2 10:24</a>
+
+我突然想起来好些年前玩舰c的时候就有本子画师这么干，我记得有个铃谷的还是熊野的本子来着甚至直接把人和 ...</blockquote>
+毕竟要真爱国还玩什么君国主义黄赌游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
