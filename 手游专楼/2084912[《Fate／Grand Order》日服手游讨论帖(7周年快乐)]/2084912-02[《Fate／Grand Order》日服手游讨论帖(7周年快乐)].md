@@ -9594,3 +9594,22 @@ ELS（开20NP）+徐福+C呆+C呆
 大奥没打完吧</blockquote>
 哦，你这么一说都忘记大奥这东西了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2360#       发表于 2022-9-2 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天打种火本突发奇想把水伊吹掏出来技能拉满试了试，1宝90级用起来感觉不太顺手，三面不开决战服技能打不死，看来是要砸5个圣杯吧……
+
+*****
+
+####  alucardcz  
+##### 2361#       发表于 2022-9-2 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57318972&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-9-2 20:21</a>
+
+今天打种火本突发奇想把水伊吹掏出来技能拉满试了试，1宝90级用起来感觉不太顺手，三面不开决战服技 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝还会这样吗
+
