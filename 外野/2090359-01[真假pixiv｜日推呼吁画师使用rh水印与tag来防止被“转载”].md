@@ -917,3 +917,32 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 yt也是，好多视频会随机加一帧本朝禁忌画面。
 
+
+
+*****
+
+####  旋转吃草  
+##### 99#       发表于 2022-9-2 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309859&amp;ptid=2090359" target="_blank">响鬼 发表于 2022-9-2 09:31</a>
+
+AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东西</blockquote>
+这就不对了，澳门赌场的小广告肯定不是给境外观众准备的吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旋转吃草  
+##### 100#       发表于 2022-9-2 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310180&amp;ptid=2090359" target="_blank">nihilxp 发表于 2022-9-2 09:50</a>
+
+谁管你这，怕被盗直接全程米老鼠水印，美国佬敢偷直接被迪士尼扬了</blockquote>
+这种招数首先要自己没有任何影响，迪士尼会在美国出动忍者，他在中国就会放过你的视频吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  自賠ニャン  
+##### 101#       发表于 2022-9-2 11:11
+
+两边都挺蠢的，网右和传话太监自顾自高潮，弄镜像站的人还专门去审核过滤内容，搞得自己仿佛在经营什么正经互联网业务似的
+
