@@ -1694,3 +1694,24 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 什么立体防御。tgfc还天天小日本、tgbxs呢，真把一小撮当主流了？</blockquote>
 红州保守人是真实占据美国半壁江山。按隔壁罗琳楼说法，这些才是民心所向龙气缠身。甚至s1都支持<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  好much橘  
+##### 177#       发表于 2022-9-2 13:53
+
+不过“收费”我记得看到的是那个作者在网站介绍里加了个爱发电链接吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉倒像是语言不通+传话，搞得无限拔高了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShawElA  
+##### 178#       发表于 2022-9-2 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313798&amp;ptid=2090359" target="_blank">越动天下 发表于 2022-9-2 13:39</a>
+
+什么东西 大家都知道 说的这些犹太女人是一半人的政治正确 上面也有人发了反犹女人在油管能活 4ch的宅宅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁管你宅宅care不care啊，自己想想正确能量大还是宅宅能量大。你是没见过推上不够正确被炎上的，还是没见过H站的辣眼睛专区，还是怎么着就觉得二次元遗世独立了？你要说阿宅也有净土之4chan啦还是别的什么都好说，但4chan可不兴代表全体宅宅呢。就像tgfc、蜜桃客的氛围之于国内主流平台一样。
+
