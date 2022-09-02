@@ -1767,3 +1767,23 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  夏延  
+##### 184#       发表于 2022-9-2 14:32
+
+符咒这种东西，看多了就只会觉得乐。而且解决方法太多了，能检测到还不能定向删除吗，再不济把简介全删了不就行了。
+
+更重要的是翻完了本楼也没见人贴一些好用的pixiv镜像站<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShawElA  
+##### 185#       发表于 2022-9-2 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57314301&amp;ptid=2090359" target="_blank">AtlachNacha 发表于 2022-9-2 14:24</a>
+我只主张红脖子是货真价实的一半人口，少来一会儿一小撮一会儿漫天第一军势的二极管打滚。 ...</blockquote>
+一小撮是红脖缩卵的话语权，第一军势是讽刺。网络造势和现实位面主张的人数是两码事，印第安人还4000万呢。我这样说您能不自己转圈说别人打滚了么<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
