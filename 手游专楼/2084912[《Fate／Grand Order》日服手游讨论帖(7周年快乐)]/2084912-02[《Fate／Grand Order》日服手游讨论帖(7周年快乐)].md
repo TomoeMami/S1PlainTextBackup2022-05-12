@@ -9565,3 +9565,12 @@ ELS（开20NP）+徐福+C呆+C呆
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  khxooo  
+##### 2357#       发表于 2022-9-2 16:56
+
+突然发现地球仪那里日本有个闪光点，下个活动估计又是日本活动了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

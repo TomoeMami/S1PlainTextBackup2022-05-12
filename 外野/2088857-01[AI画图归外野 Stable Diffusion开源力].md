@@ -1188,3 +1188,12 @@ prompt: entrance to ethereal realm, rendered in unreal engine, central compositi
 
 然后我试了两台机子，移动3060可以用，10秒一张图，1080桌面版的系统有问题，一直报找不到frontend就很迷
 
+
+
+*****
+
+####  laotoutou  
+##### 84#       发表于 2022-9-2 16:54
+
+github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
