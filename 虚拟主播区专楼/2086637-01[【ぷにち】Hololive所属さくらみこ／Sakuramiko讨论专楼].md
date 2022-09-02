@@ -10619,3 +10619,21 @@ miko最后直播里说了leader是大头，硬要说也确实因为在之前直�
 
 还不发推，今晚应该没播了
 
+
+
+*****
+
+####  holoan  
+##### 1036#         楼主| 发表于 2022-9-2 20:14
+
+会限22点
+
+很好懂的
+
+*****
+
+####  holoan  
+##### 1037#         楼主| 发表于 2022-9-2 20:15
+
+<blockquote>（ASMRもちょっとやる）</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
