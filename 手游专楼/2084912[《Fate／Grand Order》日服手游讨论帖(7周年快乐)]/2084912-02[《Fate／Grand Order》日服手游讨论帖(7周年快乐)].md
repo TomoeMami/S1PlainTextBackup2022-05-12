@@ -9644,3 +9644,30 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕有伽摩的人
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2365#       发表于 2022-9-2 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57316439&amp;ptid=2084912" target="_blank">rzxa 发表于 2022-9-2 17:06</a>
+
+大奥没打完吧</blockquote>
+我大奥打完了也还是亮点
+
+*****
+
+####  alucardcz  
+##### 2366#       发表于 2022-9-2 21:19
+
+<img src="https://img.saraba1st.com/forum/202209/02/211902ejc2yc6zjd3ccjrd.jpg" referrerpolicy="no-referrer">
+
+<strong>343434343.jpg</strong> (390.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 21:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去看了下 的确有 大奥第1天就打完了
+
