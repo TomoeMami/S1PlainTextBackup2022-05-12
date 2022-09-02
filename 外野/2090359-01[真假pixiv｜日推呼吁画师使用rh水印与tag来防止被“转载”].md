@@ -620,3 +620,54 @@ r18加这些东西有啥用，都是见不得光的地方，谁管你乳不乳<i
 看到了。有说是从av行业取经的，在封面加了些国内敏感内容，防止被盗。</blockquote>
 AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiri.fonn  
+##### 67#       发表于 2022-9-2 09:32
+
+这招不是油管防盗视频早就有了，在视频关键帧里插入某人大头像。直接违禁词水印糊脸有点影响观感，还要被喷rh，不如都把老大哥头像放上去，这玩意国内审得更严而且一个讨论帖都不会留存，只放个头像你还不好说是rh。
+
+*****
+
+####  虚无连斩  
+##### 68#       发表于 2022-9-2 09:34
+
+昨天日推趋势的确吓人，只能把地址改成非洲某些国家，完全没有趋势
+
+这招我之前在棒子的上古卷轴mod站看到过，这下又有人学会了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾诺琳  
+##### 69#       发表于 2022-9-2 09:34
+
+那油管上盗国内的要怎么办？关键帧插ykw大头照？坚持两性观念？
+
+*****
+
+####  stygian  
+##### 70#       发表于 2022-9-2 09:35
+
+加tag自从有墙的时候就开始有了，以前有个日本资源互助的bbs kyo music city，也是被国内盗档太多直球在主页加了各种关键词，当年还是墙检测到关键词自动断国际网的年代
+
+*****
+
+####  satsuki1029  
+##### 71#       发表于 2022-9-2 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57309450&amp;ptid=2090359" target="_blank">hgfhg 发表于 2022-9-2 09:02</a>
+
+荒川宏老师走在时代前列了</blockquote>
+荒川宏这老逼就算了，本身作品在中国就有正规渠道出版，而且也收到该有的利益，出rh本纯粹是她和编辑的思想问题，没得洗。
+
+*****
+
+####  越动天下  
+##### 72#       发表于 2022-9-2 09:41
+
+加什么犹太黑人 又阻止不了4ch的人盗 4ch老哥怕看的更开心了 多盗
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
