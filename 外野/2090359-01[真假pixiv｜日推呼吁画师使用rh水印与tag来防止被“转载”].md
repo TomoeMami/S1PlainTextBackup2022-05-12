@@ -1092,3 +1092,36 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赛雷塞雷 不要乳化 建议塞坦克
 
+
+
+*****
+
+####  忘归然  
+##### 118#       发表于 2022-9-2 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57308850&amp;ptid=2090359" target="_blank">上下齐心 发表于 2022-9-2 08:11</a>
+p站可以发儿童色情吗，这我还真不知道</blockquote>
+中文网站一律禁止未成年和兽类主题的皇叔，但是可以去p站写。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Voyons  
+##### 119#       发表于 2022-9-2 12:05
+
+<blockquote>上下齐心 发表于 2022-9-2 08:06
+那加点什么可以防止白皮盗版</blockquote>
+问问米国前总统**，这个他熟
+
+*****
+
+####  艾诺琳  
+##### 120#       发表于 2022-9-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57311634&amp;ptid=2090359" target="_blank">旋转吃草 发表于 2022-9-2 11:12</a>
+基本只能靠申诉
+
+对面没赵丹确实真的难办，像ls说的什么fbi警告那种，你要本身就是偏这方面的黄色也就算了 ...</blockquote>
+油管上最大的政治正确不就是犹太人吗，其次是性别这方便赵弹更狠啊
+
