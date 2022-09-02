@@ -10739,3 +10739,60 @@ youtube又改版了
 
 原来是喷初代势
 
+
+
+*****
+
+####  holoan  
+##### 1048#         楼主| 发表于 2022-9-2 21:51
+
+真格涂地最喜欢，其他模式不喜欢（不会玩）
+
+*****
+
+####  rs5621  
+##### 1049#       发表于 2022-9-2 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重头戏来了 asmr!
+
+*****
+
+####  holoan  
+##### 1050#         楼主| 发表于 2022-9-2 21:55
+
+KU100看来状况良好
+
+还以为半年没用坏了
+
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 1051#       发表于 2022-9-2 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这吹的像是在吃辣椒，生艹
+
+*****
+
+####  rs5621  
+##### 1052#       发表于 2022-9-2 21:56
+
+草,怎么变成痴汉miko了
+
+*****
+
+####  holoan  
+##### 1053#         楼主| 发表于 2022-9-2 21:57
+
+上次吹的时候还很专业
+
+今天就比较随意了
+
+*****
+
+####  rs5621  
+##### 1054#       发表于 2022-9-2 21:58
+
+感觉我的耳朵旁边有个大叔miko在呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
