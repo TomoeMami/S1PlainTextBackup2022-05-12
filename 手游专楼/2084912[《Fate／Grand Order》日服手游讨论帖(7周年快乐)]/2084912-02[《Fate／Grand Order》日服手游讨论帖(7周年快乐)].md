@@ -9671,3 +9671,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去看了下 的确有 大奥第1天就打完了
 
+
+
+*****
+
+####  exiaexa  
+##### 2367#       发表于 2022-9-2 21:35
+
+我是亮的日本俄罗斯
+
+前段时间金方块没地儿用手贱把大奥和通古斯开了
+
+我为什么要开这俩.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
