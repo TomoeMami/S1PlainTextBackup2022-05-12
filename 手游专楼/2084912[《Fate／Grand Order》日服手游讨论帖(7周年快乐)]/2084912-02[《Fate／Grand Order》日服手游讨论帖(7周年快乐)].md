@@ -9613,3 +9613,25 @@ ELS（开20NP）+徐福+C呆+C呆
 今天打种火本突发奇想把水伊吹掏出来技能拉满试了试，1宝90级用起来感觉不太顺手，三面不开决战服技 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝还会这样吗
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2362#       发表于 2022-9-2 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57319023&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-2 20:24</a>
+
+5宝还会这样吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五宝对无课来说也太难了，不考虑。反正换换心情，过几天还是二宝水迦摩继续上班吧，毕竟刚给梦火不久
+
+*****
+
+####  alucardcz  
+##### 2363#       发表于 2022-9-2 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57319122&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-9-2 20:31</a>
+
+五宝对无课来说也太难了，不考虑。反正换换心情，过几天还是二宝水迦摩继续上班吧，毕竟刚给梦火 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
