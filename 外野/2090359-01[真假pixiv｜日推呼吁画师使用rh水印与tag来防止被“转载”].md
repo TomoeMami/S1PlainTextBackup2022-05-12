@@ -980,3 +980,12 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ishikawa_k  
+##### 105#       发表于 2022-9-2 11:24
+
+有些fc2up拍的本身就不行，还要加一些奇怪水印。再说我下个黄片看看还管你这魔法攻击是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
