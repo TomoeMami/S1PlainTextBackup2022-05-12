@@ -9685,3 +9685,12 @@ ELS（开20NP）+徐福+C呆+C呆
 我为什么要开这俩.JPG
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 2368#       发表于 2022-9-2 21:43
+
+我的亮点怎么是在日本南边海上的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
