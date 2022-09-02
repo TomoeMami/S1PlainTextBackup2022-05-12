@@ -989,3 +989,38 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 
 有些fc2up拍的本身就不行，还要加一些奇怪水印。再说我下个黄片看看还管你这魔法攻击是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HZLJ  
+##### 106#       发表于 2022-9-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310611&amp;ptid=2090359" target="_blank">xiaoba329 发表于 2022-9-2 10:16</a>
+
+想吸引铁拳直接举报有用多了，盈利+成人足够被抓一段时间了。
+
+—— 来自 S1Fun ...</blockquote>
+铁拳内部是有处理优先级，不得不承认乳化水印的处理速度比纯涩情内容要快很多，处理程度也比纯涩情要彻底
+
+*****
+
+####  屠夫  
+##### 107#       发表于 2022-9-2 11:37
+
+香港玩偶不早就干过这事了，算是传授了先进经验给外国友人了
+
+*****
+
+####  tobelovedwow  
+##### 108#       发表于 2022-9-2 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更心安理得地白嫖了
+
+*****
+
+####  haruhiismer  
+##### 109#       发表于 2022-9-2 11:39
+
+等我撸完进入圣人模式再批判不迟
+
