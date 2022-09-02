@@ -861,3 +861,59 @@ AV行业真是笑死，你的玩意儿本来就不是能在大陆合法上的东
 我突然想起来好些年前玩舰c的时候就有本子画师这么干，我记得有个铃谷的还是熊野的本子来着甚至直接把人和 ...</blockquote>
 毕竟要真爱国还玩什么君国主义黄赌游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  碟  
+##### 93#       发表于 2022-9-2 10:53
+
+主楼这趋势不是为你推荐吗，你感兴趣就会为你推荐的，和推特真正的搜索趋势是两回事啊……搜索趋势很难上的。
+
+*****
+
+####  icecry  
+##### 94#       发表于 2022-9-2 10:56
+
+<blockquote>碟 发表于 2022-9-2 10:53
+主楼这趋势不是为你推荐吗，你感兴趣就会为你推荐的，和推特真正的搜索趋势是两回事啊……搜索趋势很难上的 ...</blockquote>
+然而确实上趋势了，我昨天晚上看的时候在二十几，看别人截图早上时候趋势在11
+
+*****
+
+####  Burabura  
+##### 95#       发表于 2022-9-2 10:59
+
+昨天晚上看推确实看到很多画师转这个
+
+哈人
+
+*****
+
+####  越动天下  
+##### 96#       发表于 2022-9-2 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57311285&amp;ptid=2090359" target="_blank">碟 发表于 2022-9-2 10:53</a>
+主楼这趋势不是为你推荐吗，你感兴趣就会为你推荐的，和推特真正的搜索趋势是两回事啊……搜索趋势很难上的 ...</blockquote>
+<img src="https://p.sda1.dev/7/a32eb7507cf04779a30717d07c52dfb5/CMP_20220902105935576.jpg" referrerpolicy="no-referrer">这不是都有 第二
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 97#       发表于 2022-9-2 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57311346&amp;ptid=2090359" target="_blank">icecry 发表于 2022-9-2 10:56</a>
+然而确实上趋势了，我昨天晚上看的时候在二十几，看别人截图早上时候趋势在11 ...</blockquote>
+第二 图在上面
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fneasag  
+##### 98#       发表于 2022-9-2 11:00
+
+yt也是，好多视频会随机加一帧本朝禁忌画面。
+
