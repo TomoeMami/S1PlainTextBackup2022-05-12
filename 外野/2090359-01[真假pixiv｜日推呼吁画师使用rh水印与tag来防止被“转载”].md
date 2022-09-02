@@ -1787,3 +1787,29 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 我只主张红脖子是货真价实的一半人口，少来一会儿一小撮一会儿漫天第一军势的二极管打滚。 ...</blockquote>
 一小撮是红脖缩卵的话语权，第一军势是讽刺。网络造势和现实位面主张的人数是两码事，印第安人还4000万呢。我这样说您能不自己转圈说别人打滚了么<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiaoba329  
+##### 186#       发表于 2022-9-2 14:44
+
+ 本帖最后由 xiaoba329 于 2022-9-2 14:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">至于对洋人的魔法，这个得去问红脖老哥，他们可非常有经验，我可不止一次看到他们抱怨有些东西发出去秒删。某位先生的公子那点事的图在简中会因为涉及黄暴活一阵才被夹，在洋人那可是被无数红脖老哥抱怨马上就被夹了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  艾诺琳  
+##### 187#       发表于 2022-9-2 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313549&amp;ptid=2090359" target="_blank">上下齐心 发表于 2022-9-2 13:09</a>
+笑了，你以为泥潭川 普 会被替换成ykw，所以日本人在图上贴个支持ykw就会在盗图站被下架？
+
+这都什么奇思怪 ...</blockquote>
+这个我也不知道S1上ykw犯了什么忌讳，其他地方没问题
+
+但是如果谷歌不忌讳ykw为啥要下架ykw的APP
+
