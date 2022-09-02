@@ -1275,3 +1275,162 @@ p站可以发儿童色情吗，这我还真不知道</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  samesame  
+##### 133#       发表于 2022-9-2 12:41
+
+ 本帖最后由 samesame 于 2022-9-2 12:42 编辑 
+<blockquote>jing08 发表于 2022-9-2 12:33
+这招很早以前就有了，最早是是加在黄油里的，为的就是打击传播的人</blockquote>
+当时国内还没搞到qq群共享都会被封的地步，115还能在线看艾薇泥潭还有过艾薇讨论贴的时候可能还有点用，现在都被杀成一片白地了，颜色内容要么翻墙去看要么进小圈子讨钱，我都犯了银灰瑟琴的大罪了还在乎乳不乳化，数罪并罚都还只取最重的那个呢……
+
+*****
+
+####  广东侠  
+##### 134#       发表于 2022-9-2 12:42
+
+这种玩得多了就被解构了，太君还是没玩明白互联网
+
+*****
+
+####  samesame  
+##### 135#       发表于 2022-9-2 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313151&amp;ptid=2090359" target="_blank">广东侠 发表于 2022-9-2 12:42</a>
+
+这种玩得多了就被解构了，太君还是没玩明白互联网</blockquote>
+太君是第一天活在上个版本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么防盗，那么多英化本太君敢放半个字的屁么？本质反华尔
+
+*****
+
+####  上下齐心  
+##### 136#       发表于 2022-9-2 12:45
+
+不是，为什么你们老拿油管一搜就有的东西来防盗版。。。。想多了吧
+
+*****
+
+####  TR4835  
+##### 137#       发表于 2022-9-2 12:46
+
+原来是MJJ搞的网站啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qderaaa  
+##### 138#       发表于 2022-9-2 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310787&amp;ptid=2090359" target="_blank">Anew620 发表于 2022-09-02 10:24:38</a>
+我突然想起来好些年前玩舰c的时候就有本子画师这么干，我记得有个铃谷的还是熊野的本子来着甚至直接把人和 ...</blockquote>普，金，猫三部曲，不但没黑还挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  DFFTTT  
+##### 139#       发表于 2022-9-2 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313151&amp;ptid=2090359" target="_blank">广东侠 发表于 2022-9-2 12:42</a>
+
+这种玩得多了就被解构了，太君还是没玩明白互联网</blockquote>
+网络解构就解构 招铁拳好使就行
+
+*****
+
+####  mqnwbeebwnqm  
+##### 140#       发表于 2022-9-2 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">充分表现了泥潭对外国文化生态的天真认识
+
+*****
+
+####  屑屑代沟尼亚  
+##### 141#       发表于 2022-9-2 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这网站也筛选过一波了啊
+
+有上P站需求的一般也不要他来搬
+
+骗的就是傻子的钱啊
+
+*****
+
+####  DFFTTT  
+##### 142#       发表于 2022-9-2 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313181&amp;ptid=2090359" target="_blank">samesame 发表于 2022-9-2 12:44</a>
+
+太君是第一天活在上个版本吗什么防盗，那么多英化本太君敢放半个字的屁么？本质反华尔 ...</blockquote>
+应该插些什么内容召唤欧美铁拳？米老鼠？
+
+*****
+
+####  快乐好难123  
+##### 143#       发表于 2022-9-2 12:48
+
+油管只有版权炮下架视频比较常见，涉及政确的大多是黄标
+
+*****
+
+####  nebulanoby  
+##### 144#       发表于 2022-9-2 12:49
+
+ 本帖最后由 nebulanoby 于 2022-9-2 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310611&amp;ptid=2090359" target="_blank">xiaoba329 发表于 2022-9-2 10:16</a>
+想吸引铁拳直接举报有用多了，盈利+成人足够被抓一段时间了。
+
+—— 来自 S1Fun ...</blockquote>
+被盗的不是只有R18啊，原文里说了那个假站反而爬不了R-18的。我出于爱给自己的角色画个同人，却被扒了塞到自己的站里，然后打广告啥的，这样单幅画收益肯定不高，自己一个人跨国维权耗不起，干脆直球RH等赵蛋
+
+*****
+
+####  茴香蚪的马甲  
+##### 145#       发表于 2022-9-2 12:49
+
+ 本帖最后由 茴香蚪的马甲 于 2022-9-2 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313111&amp;ptid=2090359" target="_blank">代练水笔 发表于 2022-9-2 12:40</a>
+
+就像澳门赌场和fbiwarning一样成为笑话，变相把这些弱智口号解构了啊</blockquote>
+不一样，澳门赌场官方禁止你去吗？没有吧。FBI在国内被禁了吗？也没啊。
+
+那么，那些作者在作品里加入的“乳化”水印又是什么情况呢？是能在墙内随便提的东西吗？除非能搞成像某轮子那样反贼都嫌弃的东西，那或许能某种程度上被解构。
+
+*****
+
+####  龙城狂霸拽少  
+##### 146#       发表于 2022-9-2 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313239&amp;ptid=2090359" target="_blank">DFFTTT 发表于 2022-9-2 12:48</a>
+
+应该插些什么内容召唤欧美铁拳？米老鼠？</blockquote>
+贴米老鼠作者自己先被下架吧
+
+*****
+
+####  roP6lFN  
+##### 147#       发表于 2022-9-2 12:50
+
+e站墙日本ip某种意义上也是很有预见性了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天使日又日  
+##### 148#       发表于 2022-9-2 12:51
+
+港台up也喜欢搞这些，日本人的话我知道最傻逼就是在网页代码塞关键字的傻逼minori的傻逼社长
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  DFFTTT  
+##### 149#       发表于 2022-9-2 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57313272&amp;ptid=2090359" target="_blank">龙城狂霸拽少 发表于 2022-9-2 12:50</a>
+
+贴米老鼠作者自己先被下架吧</blockquote>
+那插支持ykw？
+
