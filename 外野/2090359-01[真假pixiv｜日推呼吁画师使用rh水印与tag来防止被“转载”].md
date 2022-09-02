@@ -1167,3 +1167,111 @@ p站可以发儿童色情吗，这我还真不知道</blockquote>
 打的就是盗版还卖钱的，自己看盗版有几个人管</blockquote>
 国内有偿汉化接广告汉化都好多年了，进去的罪名都是传播银灰瑟琴，没见过乳化进去的
 
+
+
+*****
+
+####  AtlachNacha  
+##### 125#       发表于 2022-9-2 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57312612&amp;ptid=2090359" target="_blank">艾诺琳 发表于 2022-9-2 12:08</a>
+
+油管上最大的政治正确不就是犹太人吗，其次是性别这方便赵弹更狠啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几百万播放量直球犹太阴谋视频和直球宣扬生理性别不可更改的视频在油管上呆得好好的，你插一秒在自己的视频里纯属刮痧。
+
+<img src="https://img.saraba1st.com/forum/202209/02/123226m7mwfg7707dmh7hf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C10F6947-0AE4-4759-9A69-51BB42BDAAB8.jpeg</strong> (311.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/02/123226irzbk3fdc7pmfcgz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A94D0933-53BC-4C0F-B2FE-6798D45DF697.jpeg</strong> (282.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/02/123227tphi4eukpyz4pi0z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0EDF48C1-A5AD-4D79-9721-EB0A5A6A6CDE.jpeg</strong> (366.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/02/123228wq5c58tsqcht95s9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>999C2B06-7CC6-4923-9279-69BA9C0D19D0.jpeg</strong> (252.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/02/123229at1xxyjetjr8xcne.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>992007F5-87BD-45FB-88E1-874B40DBC94B.jpeg</strong> (448.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 12:32 上传
+
+*****
+
+####  jing08  
+##### 126#       发表于 2022-9-2 12:33
+
+<blockquote>samesame 发表于 2022-9-2 12:31
+国内有偿汉化接广告汉化都好多年了，进去的罪名都是传播银灰瑟琴，没见过乳化进去的 ...</blockquote>
+这招很早以前就有了，最早是是加在黄油里的，为的就是打击传播的人
+
+*****
+
+####  代练水笔  
+##### 127#       发表于 2022-9-2 12:38
+
+我感觉最后老外会养成看到freexxxx就勃起的性癖<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nocode  
+##### 128#       发表于 2022-9-2 12:38
+
+所以这个vpixiv是个啥网站？爬虫盗版还冒充作者想盈利？更搞笑的是盗版+涉h的非法网站竟然还搞敏感词审查？？
+
+*****
+
+####  昵称怎么起  
+##### 129#       发表于 2022-9-2 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57308812&amp;ptid=2090359" target="_blank">上下齐心 发表于 2022-9-2 08:06</a>
+
+那加点什么可以防止白皮盗版</blockquote>
+爱泼斯坦？最近人又死了个商业伙伴
+
+*****
+
+####  代练水笔  
+##### 130#       发表于 2022-9-2 12:40
+
+就像澳门赌场和fbiwarning一样成为笑话，变相把这些弱智口号解构了啊
+
+*****
+
+####  BlueDrii  
+##### 131#       发表于 2022-9-2 12:40
+
+我寻思欧美各种booru站也不少啊
+
+*****
+
+####  qderaaa  
+##### 132#       发表于 2022-9-2 12:41
+
+突然想到前几个月赛雷三分钟就是因为这种骚操作被封的吧。洗稿盗视频的时候没注意人家加了敏感防盗内容<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
