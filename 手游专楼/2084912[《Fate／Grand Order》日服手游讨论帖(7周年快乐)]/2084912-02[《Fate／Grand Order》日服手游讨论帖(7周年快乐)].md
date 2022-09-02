@@ -9714,3 +9714,27 @@ ELS（开20NP）+徐福+C呆+C呆
 
 啥都没开的表示什么点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2371#       发表于 2022-9-2 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57320488&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-2 22:05</a>
+
+本来都已经决定没井不下池的.....挣扎了一天还是没忍住去抽了宇宙凛
+
+目标是打算2宝的....结果400多石就出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕 你是楼里唯一一个无课5宝限定的  继续抽啊
+
+*****
+
+####  森兰丸  
+##### 2372#       发表于 2022-9-2 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57320690&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-2 22:22</a>
+
+不要怕 你是楼里唯一一个无课5宝限定的  继续抽啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要萌新能够供应我神奇小卡片抽个50宝都不是问题
+

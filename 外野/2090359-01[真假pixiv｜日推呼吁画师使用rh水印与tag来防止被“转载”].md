@@ -1903,3 +1903,15 @@ github.com/Notsfsssf/pixez-flutter
 
 没有r18的镜像站还能叫镜像站么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  The_Ether_  
+##### 197#       发表于 2022-9-2 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57312285&amp;ptid=2090359" target="_blank">PPB3008 发表于 2022-9-2 11:49</a>
+
+说明确实有用啊，站直接都没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">顶多闹大了避避风头，过段时间就又出来了。搞这种网站的一般本人都不在国内，不怕举报。像前段时间那个被黑的在线看番的网站，是站长直接润日本搞的。而且加tag简单过滤下就行，大范围加水印p站自己也不好过。
+
