@@ -1615,3 +1615,28 @@ e站墙日本ip某种意义上也是很有预见性了<img src="https://static.s
 去推特对线，去直播间开独轮车，去ddos打网站。对面属性不一致没有aoe弱点只能单点暴发了。 ...</blockquote>
 对线没啥用，DDOS打小网站还行大APP也没啥用
 
+
+
+*****
+
+####  HZLJ  
+##### 169#       发表于 2022-9-2 13:27
+
+这楼里喊解构的最好笑
+
+你要不把你口中所谓的“解构”在铁拳面前表演一下
+
+我寻思李佳琦还没复活呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShawElA  
+##### 170#       发表于 2022-9-2 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57310035&amp;ptid=2090359" target="_blank">越动天下 发表于 2022-9-2 09:41</a>
+
+加什么犹太黑人性别 又阻止不了4ch的宅宅盗 4ch老哥怕看的更开心了 多盗
+
+—— 来自 Xiaomi M2102K1AC, And ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">什么立体防御。tgfc还天天小日本、tgbxs呢，真把一小撮当主流了？
+
