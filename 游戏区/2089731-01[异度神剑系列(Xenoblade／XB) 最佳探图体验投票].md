@@ -605,3 +605,17 @@ XB3的地图相当于前代把几张地图拼到一起，而开全图的机制�
 
 —— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Ne0  
+##### 64#       发表于 2022-9-2 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57316960&amp;ptid=2089731" target="_blank">ChengChung 发表于 2022-9-2 17:45</a>
+
+包括冠名吗，或者说地标是否包括它
+
+—— 来自 samsung SM-G9730, Android 12上的 S1Next-鹅版 v2.5.2-pl ...</blockquote>
+不包括
+
