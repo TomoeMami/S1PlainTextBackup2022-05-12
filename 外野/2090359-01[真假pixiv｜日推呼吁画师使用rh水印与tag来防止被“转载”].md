@@ -1826,3 +1826,12 @@ github.com/Notsfsssf/pixez-flutter
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zjdflying  
+##### 189#       发表于 2022-9-2 16:21
+
+这招倒是早就在用，过去的一些galgame为了防盗版，就会在游戏文件里放入充满国内违禁词汇的文档。但这些文档通常会在汉化过程中被发现，出的补丁里就删了…
+
