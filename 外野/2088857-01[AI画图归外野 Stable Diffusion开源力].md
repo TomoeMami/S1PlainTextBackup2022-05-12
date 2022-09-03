@@ -1299,3 +1299,14 @@ github搜textual-inversion，可以在不重新训练模型的情况下加入你
 
 我怎么感觉还是一堆素材拼起来的
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 94#       发表于 2022-9-3 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57323140&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-9-3 10:01</a>
+https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0https://lexica.art/prompt/51746258-e5e ...</blockquote>
+蟹蟹茄子
+
