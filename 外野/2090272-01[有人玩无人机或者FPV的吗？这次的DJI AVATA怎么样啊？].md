@@ -738,3 +738,15 @@ avata和御这种航拍机根本不是一个品类的
 玩穿越机的真心看不懂DJI用户的价值观念，7000块拿去玩自组穿越机，都足够炸几年的机从小白炸成大神了 ...</blockquote>
 “你的时间非常值钱”
 
+
+
+*****
+
+####  russianbear  
+##### 73#       发表于 2022-9-3 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57305955&amp;ptid=2090272" target="_blank">JAROD009 发表于 2022-9-1 22:20</a>
+
+摄影和和车不是易损品,但是穿越机就是易损品,不可避免.拿车打比方,那么穿越机就是越野拉力这种车,应用环境 ...</blockquote>
+10多年前四轴玩家也是类似的群体，我还记得和师兄花大几千块用APM飞控组的四轴也只是勉强能飞。现在不到2000的DJI MINI都带图传和光流，除了部分hardcore玩家真没人自组了。
+
