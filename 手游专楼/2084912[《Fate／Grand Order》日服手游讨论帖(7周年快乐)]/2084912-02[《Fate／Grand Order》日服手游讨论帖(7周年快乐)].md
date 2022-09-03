@@ -9819,3 +9819,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">这新钉子本可真恶心  
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2379#       发表于 2022-9-3 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57327142&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-3 18:37</a>
+
+这新钉子本可真恶心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">水伊吹孔明RBA，后排放了个旧梅，随便打打就过了啊
+
