@@ -9876,3 +9876,15 @@ ELS（开20NP）+徐福+C呆+C呆
 
 水诺子：现在知道谁是老大了哦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2384#       发表于 2022-9-3 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57328745&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-9-3 21:00</a>
+
+缺个强力单体周回打手，周一的B呆值得2宝吗？还是说继续等大公U？拐全</blockquote>
+没必要。单体我觉得完全没必要为了性能抽
+

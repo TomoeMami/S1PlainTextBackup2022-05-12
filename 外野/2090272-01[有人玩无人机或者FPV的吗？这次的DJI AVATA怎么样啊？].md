@@ -777,3 +777,14 @@ diy玩家正是因为dji一步到位，于是才去卷穿越机和极限远航�
 
 —— 来自 samsung SM-N975F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  blackeyed  
+##### 76#       发表于 2022-9-3 23:21
+
+全网(带新眼镜的版本)都没货…………卖得太火了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+蛋疼, 希望早点有货, 趁还有热情
+
