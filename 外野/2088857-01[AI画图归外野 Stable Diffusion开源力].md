@@ -1235,3 +1235,14 @@ github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/imag
 
 我照着跑过几次，结果和大佬展示的效果还是差不少，不过用这套描述词已经可以生成不错的可以看的日系风格的肖像了～
 
+
+
+*****
+
+####  gx19860411  
+##### 88#       发表于 2022-9-3 10:38
+
+求问怎么在模型的基础上用自己的数据集继续训练呢？求个指南啥的
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
