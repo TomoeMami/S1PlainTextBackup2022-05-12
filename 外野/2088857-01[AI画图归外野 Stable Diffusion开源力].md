@@ -1246,3 +1246,25 @@ github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ryanz  
+##### 89#       发表于 2022-9-3 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57303415&amp;ptid=2088857" target="_blank">Kiraru 发表于 2022-9-1 19:04</a>
+
+10g显存</blockquote>
+39楼的链接，fork后优化显存的版本，4G就够了，我的 rx6600 8G显存跑的很欢
+
+*****
+
+####  jing08  
+##### 90#       发表于 2022-9-3 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57260612&amp;ptid=2088857" target="_blank">十二夜月下 发表于 2022-8-29 14:33</a>
+
+借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了</blockquote>
+最好一张眼神好棒
+
