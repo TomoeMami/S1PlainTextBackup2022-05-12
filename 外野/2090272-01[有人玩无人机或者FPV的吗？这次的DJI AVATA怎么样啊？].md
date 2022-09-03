@@ -717,3 +717,12 @@ avata和御这种航拍机根本不是一个品类的
 这次的avtar没有手动挡，限速50。你买回来飞不出自组穿越机那种花式的。我觉得不如买个mini了 ...</blockquote>
 您太看得起我了，从没摸过真的无人机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  地上铁  
+##### 71#       发表于 2022-9-3 21:08
+
+这玩意搞vr会吐的吧
+

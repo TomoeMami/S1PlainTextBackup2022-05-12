@@ -9843,3 +9843,12 @@ ELS（开20NP）+徐福+C呆+C呆
 水伊吹孔明RBA，后排放了个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不能1回合秒了 难道不恶心吗
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2381#       发表于 2022-9-3 21:00
+
+缺个强力单体周回打手，周一的B呆值得2宝吗？还是说继续等大公U？拐全
+
