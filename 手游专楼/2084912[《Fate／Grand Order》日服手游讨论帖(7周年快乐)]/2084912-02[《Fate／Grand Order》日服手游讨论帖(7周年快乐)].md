@@ -9888,3 +9888,17 @@ ELS（开20NP）+徐福+C呆+C呆
 缺个强力单体周回打手，周一的B呆值得2宝吗？还是说继续等大公U？拐全</blockquote>
 没必要。单体我觉得完全没必要为了性能抽
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2385#       发表于 2022-9-3 23:20
+
+ 本帖最后由 千叶铁矢 于 2022-9-3 23:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57329929&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-3 22:37</a>
+
+云一下啊。。。我感觉除了回收跟白值，其他都被水诺子完爆啊回收比水诺子好一点，但一个宝具回收也回不了 ...</blockquote>
+
+水清有那么强吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我看双rba水清双特攻bx单特攻下，5宝水清约等于2.5宝bx，水清双特攻58个bx单特攻177个。对比bx唯一优势就是高额的爆伤了吧
+
