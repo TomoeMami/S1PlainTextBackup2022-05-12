@@ -1310,3 +1310,38 @@ github搜textual-inversion，可以在不重新训练模型的情况下加入你
 https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0https://lexica.art/prompt/51746258-e5e ...</blockquote>
 蟹蟹茄子
 
+
+
+*****
+
+####  mimighost  
+##### 95#       发表于 2022-9-3 16:57
+
+<img src="https://img.saraba1st.com/forum/202209/03/165834wxaoitsdhfjfh6ja.jpg" referrerpolicy="no-referrer">
+
+<strong>hdyw1o181el91.jpg</strong> (84.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-3 16:58 上传
+
+杰夫龙.扎克盖茨
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+hdyw1o181el91.webp
+
+2022-9-3 16:57 上传
+点击文件名下载附件
+
+564.25 KB, 下载次数: 0
+
+*****
+
+####  伊莉伊莉雅  
+##### 96#       发表于 2022-9-3 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">建了个群，有兴趣的话可以加群交流~
+
+772340869
+
