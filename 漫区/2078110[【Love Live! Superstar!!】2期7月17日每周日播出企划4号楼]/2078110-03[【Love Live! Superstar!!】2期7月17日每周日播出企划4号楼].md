@@ -10418,3 +10418,12 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 3977#       发表于 2022-9-3 23:08
+
+停播是好事啊，火药味随着真人活动一下就降下去了，这就是声优盾的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屡试不爽。
+

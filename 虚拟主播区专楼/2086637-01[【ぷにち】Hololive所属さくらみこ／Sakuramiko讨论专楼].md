@@ -11061,3 +11061,12 @@ ET和那个三兄弟是什么梗来着
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57329911&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-3 22:35</a></blockquote>
 这两首歌都一个味啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1081#         楼主| 发表于 2022-9-3 23:03
+
+同一个作者风格当然都一样
+
