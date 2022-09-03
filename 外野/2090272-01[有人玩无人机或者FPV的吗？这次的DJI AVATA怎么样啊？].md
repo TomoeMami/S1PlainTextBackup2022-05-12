@@ -705,3 +705,15 @@ avata和御这种航拍机根本不是一个品类的
 
 建议先玩玩mini3pro之类的,小于250g风险低一些，续航47分钟足够用了，唯一缺点就是没法用官方的眼镜。
 
+
+
+*****
+
+####  stannislas  
+##### 70#         楼主| 发表于 2022-9-3 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57326904&amp;ptid=2090272" target="_blank">水管锅炉 发表于 2022-9-3 18:10</a>
+
+这次的avtar没有手动挡，限速50。你买回来飞不出自组穿越机那种花式的。我觉得不如买个mini了 ...</blockquote>
+您太看得起我了，从没摸过真的无人机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
