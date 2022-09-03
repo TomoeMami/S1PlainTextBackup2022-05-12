@@ -10969,3 +10969,21 @@ amongus是你主催
 
 同步试听延迟一小时了
 
+
+
+*****
+
+####  holoan  
+##### 1072#         楼主| 发表于 2022-9-3 21:12
+
+明天FF取消咯
+
+*****
+
+####  rs5621  
+##### 1073#       发表于 2022-9-3 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ff下星期见
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
