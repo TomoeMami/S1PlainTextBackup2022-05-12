@@ -1268,3 +1268,16 @@ github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/imag
 借鉴了大佬的关键词，分别画了亚洲女性、吉普赛女性和乌克兰少女，AI在绘制肖像上已经很能打了</blockquote>
 最好一张眼神好棒
 
+
+
+*****
+
+####  圈量子  
+##### 91#       发表于 2022-9-3 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57323384&amp;ptid=2088857" target="_blank">gx19860411 发表于 2022-9-3 10:38</a>
+求问怎么在模型的基础上用自己的数据集继续训练呢？求个指南啥的
+
+—— 来自 Xiaomi M2011K2C, Android 12 ...</blockquote>
+github搜textual-inversion，可以在不重新训练模型的情况下加入你自己的东西，算是fine tune一下
+
