@@ -750,3 +750,14 @@ avata和御这种航拍机根本不是一个品类的
 摄影和和车不是易损品,但是穿越机就是易损品,不可避免.拿车打比方,那么穿越机就是越野拉力这种车,应用环境 ...</blockquote>
 10多年前四轴玩家也是类似的群体，我还记得和师兄花大几千块用APM飞控组的四轴也只是勉强能飞。现在不到2000的DJI MINI都带图传和光流，除了部分hardcore玩家真没人自组了。
 
+
+
+*****
+
+####  菲特妹  
+##### 74#       发表于 2022-9-3 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57329290&amp;ptid=2090272" target="_blank">russianbear 发表于 2022-9-3 21:41</a>
+10多年前四轴玩家也是类似的群体，我还记得和师兄花大几千块用APM飞控组的四轴也只是勉强能飞。现在不到2 ...</blockquote>
+diy玩家正是因为dji一步到位，于是才去卷穿越机和极限远航机，还有大载重
+
