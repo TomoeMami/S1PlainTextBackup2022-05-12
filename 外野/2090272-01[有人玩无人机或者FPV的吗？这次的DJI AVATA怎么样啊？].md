@@ -669,3 +669,24 @@ avata和御这种航拍机根本不是一个品类的
 
 —— 来自 samsung SM-N975F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  stannislas  
+##### 67#         楼主| 发表于 2022-9-3 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57326508&amp;ptid=2090272" target="_blank">forgotten 发表于 2022-9-3 17:33</a>
+
+avata和御这种航拍机根本不是一个品类的
+
+—— 来自 samsung SM-N975F, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+没玩过，感觉拍出来就有些镜头区别，算了明天去大疆店里问问好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水管锅炉  
+##### 68#       发表于 2022-9-3 18:10
+
+这次的avtar没有手动挡，限速50。你买回来飞不出自组穿越机那种花式的。我觉得不如买个mini了来自: iPhone客户端
+

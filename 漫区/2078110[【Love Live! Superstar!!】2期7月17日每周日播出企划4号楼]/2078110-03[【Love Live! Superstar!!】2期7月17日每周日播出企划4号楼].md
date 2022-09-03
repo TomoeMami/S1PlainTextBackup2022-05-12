@@ -10386,3 +10386,15 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 3974#       发表于 2022-9-3 18:05
+
+明天停播，无聊，难受，做了个视频
+【我竟然觉得鬼冢夏美超级可爱-哔哩哔哩】 https://b23.tv/vj7pNrj
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
