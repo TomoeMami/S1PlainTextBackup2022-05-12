@@ -10427,3 +10427,14 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 停播是好事啊，火药味随着真人活动一下就降下去了，这就是声优盾的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屡试不爽。
 
+
+
+*****
+
+####  愛さ実  
+##### 3978#       发表于 2022-9-3 23:49
+
+还有啥火药味，能坚持看到现在的累的都骂不动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
