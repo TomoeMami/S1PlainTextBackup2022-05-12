@@ -8500,3 +8500,12 @@ vspo现在的动捕看起来是真的舒服
 
 爱丽丝3.0的哭脸笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17280#       发表于 2022-9-3 22:55
+
+没有月之的管人世界比我预想的还要让人崩溃，郡道乐呵呵说九月又有开心事还大聊神域在她的管人生涯有多重要，能挤出的感想也只有恭喜恭喜，日下部很有趣，王道还有音乐剧联动，但我真的好想月之啊，犬号动动也好吧，真受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
