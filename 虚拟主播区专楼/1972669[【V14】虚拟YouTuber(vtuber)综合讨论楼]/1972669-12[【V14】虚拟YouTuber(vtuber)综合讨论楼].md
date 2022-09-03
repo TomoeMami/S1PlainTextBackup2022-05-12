@@ -8482,3 +8482,12 @@ vspo现在的动捕看起来是真的舒服
 
 你虹最近的工商都好日用百货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17278#       发表于 2022-9-3 19:38
+
+这些别说主播了，连代表色都看不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
