@@ -654,3 +654,18 @@ RX5808白嫖JLC手搓80
 推荐上5imx论坛的穿越机区看看,有各种设备、装机、飞控PID调试的教程。机器可以从成品的空心杯室内机或者 ...</blockquote>
 5imix，好的，谢谢～
 
+
+
+*****
+
+####  forgotten  
+##### 66#       发表于 2022-9-3 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57320786&amp;ptid=2090272" target="_blank">stannislas 发表于 2022-9-2 22:31</a>
+从没玩过无人机的，直接上御3会不会太快了
+
+这次看这个avata心动还有一大原因就是有框框，感觉不容 ...</blockquote>
+avata和御这种航拍机根本不是一个品类的
+
+—— 来自 samsung SM-N975F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
