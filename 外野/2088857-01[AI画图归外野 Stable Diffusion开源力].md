@@ -1290,3 +1290,12 @@ github搜textual-inversion，可以在不重新训练模型的情况下加入你
 
 除了reddit那个帖子外，github也有两个总结东西挺全的，一个是/Make-s/sd-akashic，一个是/awesome-stable-diffusion/awesome-stable-diffusion，有想找的东西可以优先搜一下这三个总结
 
+
+
+*****
+
+####  渊鲤  
+##### 93#       发表于 2022-9-3 12:36
+
+我怎么感觉还是一堆素材拼起来的
+
