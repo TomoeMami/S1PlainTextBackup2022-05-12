@@ -642,3 +642,15 @@ RX5808白嫖JLC手搓80
 不是有急切需要没什么立刻买的必要，大疆的刀法太狠，明年这时候再出个二代，比现在的贵几百但是对比起来前代就跟垃圾一样。
 看看评论区air2用户的哀嚎吧，等等党永不吃亏
 
+
+
+*****
+
+####  看我派tank  
+##### 65#       发表于 2022-9-3 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57322015&amp;ptid=2090272" target="_blank">JAROD009 发表于 2022-9-3 01:31</a>
+
+推荐上5imx论坛的穿越机区看看,有各种设备、装机、飞控PID调试的教程。机器可以从成品的空心杯室内机或者 ...</blockquote>
+5imix，好的，谢谢～
+
