@@ -9802,3 +9802,20 @@ ELS（开20NP）+徐福+C呆+C呆
 带着伊吹打平安京，结果面对对面不可解除的无敌瑟瑟发抖，无敌贯通李庄卖那么多个金方块太吓人了，只能等以 ...</blockquote>
 甜蜜水晶：三十年河东三十年河西，莫欺少年穷
 
+
+
+*****
+
+####  alucardcz  
+##### 2378#       发表于 2022-9-3 18:37
+
+<img src="https://img.saraba1st.com/forum/202209/03/183626yioy0866ziyizy9k.jpg" referrerpolicy="no-referrer">
+
+<strong>12456.jpg</strong> (276.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-3 18:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">这新钉子本可真恶心  
+
