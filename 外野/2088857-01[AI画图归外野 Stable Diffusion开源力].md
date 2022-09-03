@@ -1281,3 +1281,12 @@ github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/imag
 —— 来自 Xiaomi M2011K2C, Android 12 ...</blockquote>
 github搜textual-inversion，可以在不重新训练模型的情况下加入你自己的东西，算是fine tune一下
 
+
+
+*****
+
+####  圈量子  
+##### 92#       发表于 2022-9-3 11:43
+
+除了reddit那个帖子外，github也有两个总结东西挺全的，一个是/Make-s/sd-akashic，一个是/awesome-stable-diffusion/awesome-stable-diffusion，有想找的东西可以优先搜一下这三个总结
+
