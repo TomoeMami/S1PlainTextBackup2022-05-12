@@ -1219,3 +1219,19 @@ github趋势上一堆Stable Diffusion<img src="https://static.saraba1st.com/imag
 今天在lexica上扒奥黛丽赫本的关键词时刷到的大佬作品，当时就觉得，如果《罗马假日》是吉普力的动画的话， ...</blockquote>
 顺便球一下这个prompts，搜了一下奥黛丽赫本没搜到
 
+
+
+*****
+
+####  十二夜月下  
+##### 87#       发表于 2022-9-3 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57322226&amp;ptid=2088857" target="_blank">伊莉伊莉雅 发表于 2022-9-3 03:13</a>
+
+顺便球一下这个prompts，搜了一下奥黛丽赫本没搜到</blockquote>
+[[https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0](https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0)]([https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0](https://lexica.art/prompt/492ed720-00fc-44c4-9c97-4a5c53424dd0))
+
+[[https://lexica.art/prompt/51746258-e5e2-4f6b-8b11-061c89abceee](https://lexica.art/prompt/51746258-e5e2-4f6b-8b11-061c89abceee)]([https://lexica.art/prompt/51746258-e5e2-4f6b-8b11-061c89abceee](https://lexica.art/prompt/51746258-e5e2-4f6b-8b11-061c89abceee))
+
+我照着跑过几次，结果和大佬展示的效果还是差不少，不过用这套描述词已经可以生成不错的可以看的日系风格的肖像了～
+
