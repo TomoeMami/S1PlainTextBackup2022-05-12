@@ -726,3 +726,15 @@ avata和御这种航拍机根本不是一个品类的
 
 这玩意搞vr会吐的吧
 
+
+
+*****
+
+####  russianbear  
+##### 72#       发表于 2022-9-3 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57300836&amp;ptid=2090272" target="_blank">JAROD009 发表于 2022-9-1 16:11</a>
+
+玩穿越机的真心看不懂DJI用户的价值观念，7000块拿去玩自组穿越机，都足够炸几年的机从小白炸成大神了 ...</blockquote>
+“你的时间非常值钱”
+
