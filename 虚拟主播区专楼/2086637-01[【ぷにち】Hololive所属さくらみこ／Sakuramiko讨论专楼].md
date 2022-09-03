@@ -11092,3 +11092,21 @@ V+P你不做萌曲做什么
 
 水平什么就不多评价了 キノシタ这么多年不是都这味道有什么问题
 
+
+
+*****
+
+####  越动天下  
+##### 1084#       发表于 2022-9-3 23:34
+
+ 本帖最后由 越动天下 于 2022-9-3 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57330560&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-3 23:21</a>
+V+P你不做萌曲做什么
+
+水平什么就不多评价了 キノシタ这么多年不是都这味道有什么问题 ...</blockquote>
+先不说v只能萌曲是否有点额额
+我后面也说了风格这种东西 一个p主不应该苛求多 在自己的方向钻研也没问题 只不过说卖萌也应该要水平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 听听あつぞうくん的sm16483886 或者nem当年那张jazz专中的萌曲 るなちゅ作为流行写萌曲也没忘记自己的吉他 
+不过对石油王也无所谓了 反正他火了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
