@@ -10752,3 +10752,12 @@ JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 4003#       发表于 2022-9-4 23:04
+
+大熊和朱音还是跟青山学学怎么笑不露齿比较好<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
