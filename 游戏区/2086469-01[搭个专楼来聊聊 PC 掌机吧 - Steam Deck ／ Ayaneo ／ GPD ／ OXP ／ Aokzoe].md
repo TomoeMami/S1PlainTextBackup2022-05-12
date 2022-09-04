@@ -2300,3 +2300,22 @@ Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。�
 感谢，我完全不急，再等等也行，就是本来已经打定主意买steam deck不过查了一下才知道win掌机有这么多
 aok那个配置看着确实很香，所以一开始我其实是想问买aok还是steam deck的，但是仔细想了想我主要玩的游戏，还是买一款更适合自己的好<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  任天索尼子  
+##### 188#       发表于 2022-9-4 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57341813&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-9-4 22:26</a>
+
+6800U有什么梦中情机吗？能像SD那样系统级调节功耗啥的吗？</blockquote>
+AOKZOE就能调。
+
+*****
+
+####  饭冢武也  
+##### 189#       发表于 2022-9-4 22:49
+
+看了一个小红书评测说aya装steamOS体验很差？
+
