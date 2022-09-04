@@ -11274,3 +11274,42 @@ amongus封面又改了
 
 什么玩意，不知道
 
+
+
+*****
+
+####  rs5621  
+##### 1099#       发表于 2022-9-4 18:00
+
+ 本帖最后由 rs5621 于 2022-9-4 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57337250&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-4 17:42</a>
+[https://www.youtube.com/watch?v=uNw-1HmUL54](https://www.youtube.com/watch?v=uNw-1HmUL54)
+
+不知道什么时候剪掉了什么东西，有空确认</blockquote>
+\
+
+<img src="https://img.saraba1st.com/forum/202209/04/180220yzstyhhccwf6g7cg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-4 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202209/04/175939znzsyihfuxn1wnah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-4 17:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草,少的这几十秒宛如大海捞针
+
+*****
+
+####  holoan  
+##### 1100#         楼主| 发表于 2022-9-4 18:04
+
+可能剪掉了那个最大的问题发言片段，可以根据评论区的原时间戳找
+
