@@ -10447,3 +10447,21 @@ https://www.bilibili.com/video/BV1UU4y1B7ZC</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在确实有点骂都犯懒的感觉，只想快点播完吧
 
+
+
+*****
+
+####  Piano-Forest  
+##### 3980#       发表于 2022-9-4 08:45
+
+[https://twitter.com/maru_kys/status/1563834872631726082](https://twitter.com/maru_kys/status/1563834872631726082)
+
+ラブライブ！スーパースター！！2期#7
+
+ご視聴ありがとうございました
+
+LOでほんの少しだけ参加させてもらいました〜！メイちゃん可愛い！！
+
+(クレジットの名前間違えられてた…)
+<img src="https://p.sda1.dev/7/254927c9776342056f098ad69dbe5b75/20220904_084441.jpg" referrerpolicy="no-referrer">
+
