@@ -9966,3 +9966,22 @@ ELS（开20NP）+徐福+C呆+C呆
 日常周回基本叠不起oc，而且大部 ...</blockquote>
 你要说大英雄或者陈宫，那么确实是这样……但是课金卡……就……
 
+
+
+*****
+
+####  alucardcz  
+##### 2391#       发表于 2022-9-4 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近不知道哪个好友 天天在借奶光 萌新大受震撼
+
+*****
+
+####  qixinno2  
+##### 2392#       发表于 2022-9-4 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57340926&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-4 21:42</a>
+
+最近不知道哪个好友 天天在借奶光 萌新大受震撼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新啥都有 好羡慕
+
