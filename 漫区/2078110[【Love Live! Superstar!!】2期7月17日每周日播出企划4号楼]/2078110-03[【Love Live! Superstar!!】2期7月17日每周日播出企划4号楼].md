@@ -10707,3 +10707,12 @@ LOでほんの少しだけ参加させてもらいました〜！メイちゃん
 整套图都很微妙，封面拍出了颜值的阶级差距</blockquote>
 。。这个，不用拍也有丶差距的，总不能故意把老五人拍不好看吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 3999#       发表于 2022-9-4 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凑活了还能咋拍
+
