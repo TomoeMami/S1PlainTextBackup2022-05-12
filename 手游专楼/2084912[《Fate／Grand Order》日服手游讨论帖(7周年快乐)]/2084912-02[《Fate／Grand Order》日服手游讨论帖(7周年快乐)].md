@@ -9902,3 +9902,29 @@ ELS（开20NP）+徐福+C呆+C呆
 
 水清有那么强吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我看双rba水清双特攻bx单特攻下，5宝水清约等于2.5宝bx，水清双特攻58个bx单特攻177个。对比bx唯一优势就是高额的爆伤了吧
 
+
+
+*****
+
+####  铁柱子  
+##### 2386#       发表于 2022-9-4 09:53
+
+所以说是云的呀，光论宝具bx好一点，但是水清自buff全，而且三张红卡，更适合rba
+
+说到底打111也用不上这两个，打红卡上金时，打蓝卡上大公，压根没绿卡什么事
+
+*****
+
+####  exiaexa  
+##### 2387#       发表于 2022-9-4 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57330552&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-9-3 23:20</a>
+水清有那么强吗我看双rba水清双特攻bx单特攻下，5宝水清约等于2.5宝bx，对比bx唯一优势就是有自充 ...</blockquote>
+答:没有，特攻范围都是小事
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿清的问题是倒欠10np，这20np除非你有炮灰0破嘲讽c呆不然你基本可以当它不存在
+
+然后她是三红卡，高输出期望也就意味着回np期望会降低，上次111阿清用起来远没有bx稳定
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

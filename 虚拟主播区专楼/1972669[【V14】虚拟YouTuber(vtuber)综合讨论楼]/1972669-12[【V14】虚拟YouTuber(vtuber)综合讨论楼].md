@@ -8518,3 +8518,12 @@ vspo现在的动捕看起来是真的舒服
 
 vr还有歌回假唱的啊……大开眼界<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 17282#       发表于 2022-9-4 09:52
+
+假唱，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
