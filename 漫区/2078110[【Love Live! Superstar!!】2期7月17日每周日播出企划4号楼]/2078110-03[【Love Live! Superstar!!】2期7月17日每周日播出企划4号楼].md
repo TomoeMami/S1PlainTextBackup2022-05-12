@@ -10497,3 +10497,14 @@ LOでほんの少しだけ参加させてもらいました〜！メイちゃん
 
 之前说那个op和ed的活动啥时间开啊？
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 3985#       发表于 2022-9-4 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57333722&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-4 10:29</a>
+之前说那个op和ed的活动啥时间开啊？</blockquote>
+9月21号
+
