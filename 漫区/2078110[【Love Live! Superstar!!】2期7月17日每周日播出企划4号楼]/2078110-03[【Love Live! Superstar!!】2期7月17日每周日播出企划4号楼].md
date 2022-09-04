@@ -10570,3 +10570,15 @@ LOでほんの少しだけ参加させてもらいました〜！メイちゃん
 
 盲盒咯
 
+
+
+*****
+
+####  靡宜  
+##### 3992#       发表于 2022-9-4 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57334805&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-4 12:31</a>
+
+可可总算变成滞销那一栏的，企划满意了吗？</blockquote>
+其实骂归骂的，但是滞销估计不会。先不说别的，裤裤还是好看滴，看谷价也没太大变化<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
