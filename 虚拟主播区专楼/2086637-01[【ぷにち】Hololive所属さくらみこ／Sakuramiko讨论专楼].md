@@ -11614,3 +11614,22 @@ miko虐,开场就杀<img src="https://static.saraba1st.com/image/smiley/face2017
 
 草,当面变身!
 
+
+
+*****
+
+####  ZQXY2002  
+##### 1129#       发表于 2022-9-4 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">被怀疑就自乱阵脚了
+
+*****
+
+####  rs5621  
+##### 1130#       发表于 2022-9-4 22:28
+
+ 本帖最后由 rs5621 于 2022-9-4 22:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这时机不对啊,太急了有2个人在还下手
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈又被投了,正常结局
+
