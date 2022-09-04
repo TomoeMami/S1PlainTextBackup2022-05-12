@@ -10716,3 +10716,17 @@ LOでほんの少しだけ参加させてもらいました〜！メイちゃん
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凑活了还能咋拍
 
+
+
+*****
+
+####  starring  
+##### 4000#       发表于 2022-9-4 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57339744&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-4 20:51</a>
+
+。。这个，不用拍也有丶差距的，总不能故意把老五人拍不好看吧</blockquote>
+两张合照都把nagi拍成鞋拔子脸<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
+
