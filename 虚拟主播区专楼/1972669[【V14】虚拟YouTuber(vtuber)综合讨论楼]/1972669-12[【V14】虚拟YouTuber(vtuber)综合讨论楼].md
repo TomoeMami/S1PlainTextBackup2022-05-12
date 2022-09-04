@@ -8536,3 +8536,16 @@ vr还有歌回假唱的啊……大开眼界<img src="https://static.saraba1st.c
 
 云宝大/大方方来b综赢也没问题的，最近人不多kpi还挺低的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pansherry  
+##### 17284#       发表于 2022-9-5 00:21
+
+森中柴卡修女家长的睡衣联动。。。有毛病啊（褒义）<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+联动动机是想被柴卡骂的森中+（对森中）盐对应的柴卡+吐槽役家长+苦劳人全肯定修女
+
+还能有第二回么这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
