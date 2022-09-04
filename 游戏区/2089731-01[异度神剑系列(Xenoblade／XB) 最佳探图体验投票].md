@@ -704,3 +704,16 @@ xb系列近在眼前的箱子过不去是最气人的，xb3还有语音嘲讽一
 xbx因为要自己捏人没玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  deathomega  
+##### 74#       发表于 2022-9-4 16:22
+
+<blockquote>dren_zheng 发表于 2022-9-2 21:24
+这帖让我以为XBX的历史销量是1000万</blockquote>
+如果短版和长板差距不大，那确实是千万级。
+
+问题是短板的短和长板的长幅度差不多。
+
