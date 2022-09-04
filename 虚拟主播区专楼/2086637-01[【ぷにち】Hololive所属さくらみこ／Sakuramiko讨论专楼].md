@@ -11313,3 +11313,44 @@ amongus封面又改了
 
 可能剪掉了那个最大的问题发言片段，可以根据评论区的原时间戳找
 
+
+
+*****
+
+####  holoan  
+##### 1101#         楼主| 发表于 2022-9-4 18:11
+
+这看上去应该不只是火建的人参加联动
+
+<img src="https://img.saraba1st.com/forum/202209/04/181118gzy58zzyrrtcyaat.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (382.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-4 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202209/04/181123s2i96clvcb2962fc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-4 18:11 上传
+
+*****
+
+####  rs5621  
+##### 1102#       发表于 2022-9-4 18:14
+
+<blockquote>对于不知火フレア@ホロライブ3期生的推文：
+
+19时からなんと「不知火建设に案件がきた！？」ということで今回は代表してノエフレで绍介するよ</blockquote>就银火两人啊,行吧
+
+*****
+
+####  holoan  
+##### 1103#         楼主| 发表于 2022-9-4 18:17
+
+带货直播2w同接了，没什么问题
+
