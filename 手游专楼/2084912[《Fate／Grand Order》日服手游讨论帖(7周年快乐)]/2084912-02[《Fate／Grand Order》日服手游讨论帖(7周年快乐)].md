@@ -9928,3 +9928,14 @@ ELS（开20NP）+徐福+C呆+C呆
 然后她是三红卡，高输出期望也就意味着回np期望会降低，上次111阿清用起来远没有bx稳定
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2388#       发表于 2022-9-4 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57333474&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-4 09:59</a>
+答:没有，特攻范围都是小事</blockquote>
+确实20自充和30自充完全是天壤之别，水清如果是30自充的话没有np压力，可以极大的减轻发牌要求随意选择哪面暴击。
+
