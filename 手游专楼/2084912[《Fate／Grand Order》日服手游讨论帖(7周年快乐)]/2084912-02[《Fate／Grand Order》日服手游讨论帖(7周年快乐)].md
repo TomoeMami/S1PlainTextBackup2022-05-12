@@ -9952,3 +9952,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 好像只有低宝打高难的时候才需要oc的额外特攻倍率
 
+
+
+*****
+
+####  马桶3  
+##### 2390#       发表于 2022-9-4 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57336699&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-9-4 16:44</a>
+
+拿公主清幕间的时候突然意识到特攻倍率随宝具等级是不是对玩家利大于弊的
+
+日常周回基本叠不起oc，而且大部 ...</blockquote>
+你要说大英雄或者陈宫，那么确实是这样……但是课金卡……就……
+
