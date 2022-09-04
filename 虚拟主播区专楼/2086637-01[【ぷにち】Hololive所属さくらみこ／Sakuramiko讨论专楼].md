@@ -11363,3 +11363,36 @@ amongus封面又改了
 
 刚才游戏结束后的杂谈顺着父子关系的话题稍微聊了一下她自己的家庭关系，说是女性家族
 
+
+
+*****
+
+####  holoan  
+##### 1105#         楼主| 发表于 2022-9-4 19:44
+
+星街收录会迟到
+
+*****
+
+####  rs5621  
+##### 1106#       发表于 2022-9-4 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57338690&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-4 19:44</a>
+
+星街收录会迟到</blockquote>
+哎,是火建的收录么
+
+*****
+
+####  holoan  
+##### 1107#         楼主| 发表于 2022-9-4 19:48
+
+火建的收录那miko怎么没去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 1108#       发表于 2022-9-4 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎,那是什么收录?
+
