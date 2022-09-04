@@ -10739,3 +10739,16 @@ JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
 
 操，二次元拆三次元也拆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 4002#       发表于 2022-9-4 22:33
+
+凑合过咋了，还想拆队啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+想起因为播放延期了，5~8的上映回顾生放也延期了，真感觉这破剧情到底有啥好聊的。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

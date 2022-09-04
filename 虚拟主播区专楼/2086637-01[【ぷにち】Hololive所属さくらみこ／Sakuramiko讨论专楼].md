@@ -11633,3 +11633,21 @@ miko虐,开场就杀<img src="https://static.saraba1st.com/image/smiley/face2017
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这时机不对啊,太急了有2个人在还下手
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈又被投了,正常结局
 
+
+
+*****
+
+####  holoan  
+##### 1131#         楼主| 发表于 2022-9-4 22:31
+
+运气不好
+
+没办法
+
+*****
+
+####  holoan  
+##### 1132#         楼主| 发表于 2022-9-4 22:37
+
+结果还是火建关系太好的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说谎直接看破
+

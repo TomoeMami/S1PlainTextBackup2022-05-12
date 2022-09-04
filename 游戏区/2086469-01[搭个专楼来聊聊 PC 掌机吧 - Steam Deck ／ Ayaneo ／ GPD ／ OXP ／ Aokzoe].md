@@ -2287,3 +2287,16 @@ Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。�
 
 6800U有什么梦中情机吗？能像SD那样系统级调节功耗啥的吗？
 
+
+
+*****
+
+####  Sue  
+##### 187#       发表于 2022-9-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57341741&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-4 22:21</a>
+官网，不过现在发货很成问题……比较急的话建议闲鱼吃现，不急就官网预订一个
+国内这几个都是要早早预订 ...</blockquote>
+感谢，我完全不急，再等等也行，就是本来已经打定主意买steam deck不过查了一下才知道win掌机有这么多
+aok那个配置看着确实很香，所以一开始我其实是想问买aok还是steam deck的，但是仔细想了想我主要玩的游戏，还是买一款更适合自己的好<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
