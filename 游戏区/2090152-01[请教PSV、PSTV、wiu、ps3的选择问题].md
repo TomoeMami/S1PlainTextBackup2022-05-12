@@ -660,3 +660,17 @@ wiiu，和PS3同理
 
 wii上的街机模拟器超级麻烦，我到现在都没整出来。X360上的模拟器不知道为啥我安装的也是有问题，现在勉强用着。
 
+
+
+*****
+
+####  我被骗了五块钱  
+##### 63#       发表于 2022-9-5 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57343613&amp;ptid=2090152" target="_blank">萌宅之眼 发表于 2022-9-5 01:21</a>
+
+请问PSV的模拟器好整吗？
+
+wii上的街机模拟器超级麻烦，我到现在都没整出来。X360上的模拟器不知道为啥我 ...</blockquote>
+简单，而且现在收二手PSV一般都默认会带全能模拟器和PSP模拟器的吧，自己应该直接传一下ROM就好，PSP甚至可以直接用黑商店下载游戏
+
