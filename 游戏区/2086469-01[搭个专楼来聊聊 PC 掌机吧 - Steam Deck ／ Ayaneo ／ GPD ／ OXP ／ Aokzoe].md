@@ -2243,3 +2243,26 @@ Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。�
 
 自己大概搜了一下对aya aok sd onexplayer什么的完全没概念，感觉还是来S1问比较靠谱…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">先谢谢各位了
 
+
+
+*****
+
+####  医生狼多  
+##### 183#       发表于 2022-9-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57341424&amp;ptid=2086469" target="_blank">Sue 发表于 2022-9-4 22:06</a>
+搭车求问一下各位，之前没接触过win掌机，如果是下面的条件的话，大概买哪一款比较好
+
+.主要玩独立 ...</blockquote>
+你这需求基本就是ayaneo air了，重量性能都满足，主要问题是续航一个多小时
+
+*****
+
+####  Sue  
+##### 184#       发表于 2022-9-4 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57341609&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-4 22:15</a>
+你这需求基本就是ayaneo air了，重量性能都满足，主要问题是续航一个多小时 ...</blockquote>
+谢谢！续航一个多小时没问题，主要也就睡前打一打
+另外再请问一下这类掌机一般是去淘宝买还是官网订？淘宝搜了一下第一个跳出来的居然是闲鱼…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
