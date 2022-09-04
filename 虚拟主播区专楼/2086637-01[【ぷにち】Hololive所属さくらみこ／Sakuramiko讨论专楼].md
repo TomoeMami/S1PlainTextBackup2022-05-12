@@ -11573,3 +11573,28 @@ miko虐,开场就杀<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这下unkoyo了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1124#         楼主| 发表于 2022-9-4 22:01
+
+变身杀人
+
+你竟然懂了
+
+*****
+
+####  rs5621  
+##### 1125#       发表于 2022-9-4 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是被投了
+
+*****
+
+####  holoan  
+##### 1126#         楼主| 发表于 2022-9-4 22:09
+
+这就是这种杀法的缺点了
+

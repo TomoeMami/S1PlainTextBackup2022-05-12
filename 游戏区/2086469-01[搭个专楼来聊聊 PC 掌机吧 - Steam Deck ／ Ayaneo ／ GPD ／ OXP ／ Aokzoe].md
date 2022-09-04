@@ -2225,3 +2225,21 @@ Air Pro 再不发货我就去买 Aokzoe 了，这个价格还是很诱人的。�
 
 那说起来，这个pc掌机装mame玩stg方便吗？
 
+
+
+*****
+
+####  Sue  
+##### 182#       发表于 2022-9-4 22:06
+
+搭车求问一下各位，之前没接触过win掌机，如果是下面的条件的话，大概买哪一款比较好<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+.主要玩独立游戏和文字游戏，3A玩的很少，但要是机能允许也想试试老头环，不行也不强求
+.能畅玩ps2模拟器最好
+.偶尔出差会带，基本上还是躺着玩，大小没啥所谓但是希望重量别太健身
+.续航有两个小时就足够了(现在基本没有连续两小时的游戏时间)
+.没有办公需求(这是废话)
+.价格没所谓
+
+自己大概搜了一下对aya aok sd onexplayer什么的完全没概念，感觉还是来S1问比较靠谱…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">先谢谢各位了
+
