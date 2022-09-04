@@ -9985,3 +9985,17 @@ ELS（开20NP）+徐福+C呆+C呆
 最近不知道哪个好友 天天在借奶光 萌新大受震撼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新啥都有 好羡慕
 
+
+
+*****
+
+####  铁柱子  
+##### 2393#       发表于 2022-9-5 07:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57340926&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-4 21:42</a>
+
+最近不知道哪个好友 天天在借奶光 萌新大受震撼</blockquote>
+还不给他换个摩根狂娜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+赚点友情点啊
+
