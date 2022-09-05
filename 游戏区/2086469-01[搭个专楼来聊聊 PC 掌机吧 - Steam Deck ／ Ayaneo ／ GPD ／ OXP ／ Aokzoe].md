@@ -2319,3 +2319,17 @@ AOKZOE就能调。
 
 看了一个小红书评测说aya装steamOS体验很差？
 
+
+
+*****
+
+####  bypass  
+##### 190#         楼主| 发表于 2022-9-5 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57341424&amp;ptid=2086469" target="_blank">Sue 发表于 2022-9-4 22:06</a>
+
+搭车求问一下各位，之前没接触过win掌机，如果是下面的条件的话，大概买哪一款比较好
+
+.主要玩独立 ...</blockquote>
+我很有可能会把自己 512G 5560U 带惊喜盲订大礼包的 Ayaneo Air Pro 出掉（预计九月内发货），当然也<strong>不能百分百说一定出</strong>因为还得看我预定的其他机器的情况。如果你想要而且不着急的我到时候可以以我买的原价转给你。
+
