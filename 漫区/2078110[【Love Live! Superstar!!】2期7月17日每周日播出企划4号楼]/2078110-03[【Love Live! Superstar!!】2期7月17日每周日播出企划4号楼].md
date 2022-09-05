@@ -10791,3 +10791,15 @@ JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
 新镜头多吗？</blockquote>
 推荐看看，开头有pay子小百合nako三个人的感想
 
+
+
+*****
+
+####  lj205  
+##### 4007#       发表于 2022-9-5 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352195&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-5 17:59</a>
+
+推荐看看，开头有pay子小百合nako三个人的感想</blockquote>
+啊？不是nagi吗？怎么是打铁？我就看着两个人没上，推测应该是打铁感染加鲤鱼受伤那段时间录的
+
