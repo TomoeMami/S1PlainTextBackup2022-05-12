@@ -11194,3 +11194,29 @@ Screenshot_20220905_230525.jpg
 
 比起中国人喜欢的合鲤，日本人貌似更喜欢磕经鲤<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 4030#       发表于 2022-9-5 23:36
+
+ 本帖最后由 Enakina 于 2022-9-5 23:39 编辑 
+
+日宅：Liella!角色最新人气排行顺序确定！ #唧喳喳翻译网 https://www.jizhazha.com/jv2196?share_src=link
+这个也刚好更了
+
+*****
+
+####  永恒的王牌  
+##### 4031#       发表于 2022-9-5 23:39
+
+在不懈努力之下可可排名终于掉下来咯，噫<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4032#       发表于 2022-9-5 23:40
+
+中国人总算掉下去了，可喜可贺可喜可贺
+
