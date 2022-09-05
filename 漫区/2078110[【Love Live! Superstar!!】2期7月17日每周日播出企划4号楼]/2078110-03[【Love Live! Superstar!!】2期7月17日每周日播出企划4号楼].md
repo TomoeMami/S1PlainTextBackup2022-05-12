@@ -10815,3 +10815,52 @@ JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
 啊？不是nagi吗？怎么是打铁？我就看着两个人没上，推测应该是打铁感染加鲤鱼受伤那段时间录的 ...</blockquote>
 手滑了，是nagi，没有小百合，可能是打字的时候脑子里想着小百合于是就……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4009#       发表于 2022-9-5 19:04
+
+ 本帖最后由 仟音一心 于 2022-9-5 19:08 编辑 
+
+twi：hirasuke55
+
+翻译嵌字：洲崎惠梨
+
+<img src="https://img.saraba1st.com/forum/202209/05/190430hzxc1jldpxje1xxj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>42D61C56-F512-4A11-8059-7BB3AB6A4B2A.jpeg</strong> (637.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-5 19:04 上传
+
+*****
+
+####  JustW_3  
+##### 4010#       发表于 2022-9-5 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352979&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-5 19:04</a>
+每周官漫</blockquote>
+放到gl向里也毫不违和的对白<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4011#       发表于 2022-9-5 19:09
+
+<blockquote>JustW_3 发表于 2022-9-5 19:05
+放到gl向里也毫不违和的对白</blockquote>
+图发错了，这张才是官漫
+
+<img src="https://img.saraba1st.com/forum/202209/05/190935cdydq0vhxyykngk0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>30108D29-77EE-4460-A82A-FDF84D7EDDE9.jpeg</strong> (158.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-5 19:09 上传
+
