@@ -9999,3 +9999,17 @@ ELS（开20NP）+徐福+C呆+C呆
 
 赚点友情点啊
 
+
+
+*****
+
+####  alucardcz  
+##### 2394#       发表于 2022-9-5 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57344107&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-5 07:05</a>
+
+还不给他换个摩根狂娜
+
+赚点友情点啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 很明显都挂着
+
