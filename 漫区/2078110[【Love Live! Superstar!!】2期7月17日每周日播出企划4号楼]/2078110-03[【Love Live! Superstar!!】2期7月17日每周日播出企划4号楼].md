@@ -10803,3 +10803,15 @@ JP人那种把牙龈都要露出来的笑容，拍起照片真的挺难找角度
 推荐看看，开头有pay子小百合nako三个人的感想</blockquote>
 啊？不是nagi吗？怎么是打铁？我就看着两个人没上，推测应该是打铁感染加鲤鱼受伤那段时间录的
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4008#       发表于 2022-9-5 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352473&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-5 18:21</a>
+
+啊？不是nagi吗？怎么是打铁？我就看着两个人没上，推测应该是打铁感染加鲤鱼受伤那段时间录的 ...</blockquote>
+手滑了，是nagi，没有小百合，可能是打字的时候脑子里想着小百合于是就……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
