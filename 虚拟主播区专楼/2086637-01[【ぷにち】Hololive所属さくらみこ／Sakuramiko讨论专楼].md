@@ -11714,3 +11714,14 @@ miko虐,开场就杀<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1136#         楼主| 发表于 2022-9-5 17:42
+
+miko邀请了korone来amongus
+
+korosan拒绝了
+
