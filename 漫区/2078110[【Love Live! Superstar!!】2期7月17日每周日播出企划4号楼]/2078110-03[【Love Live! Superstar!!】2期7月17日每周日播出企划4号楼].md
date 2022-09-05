@@ -11288,3 +11288,25 @@ Screenshot_20220905_230525.jpg
 
 我不关心可可排名。只好奇唯一正常人堇怎么是倒数第一了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 4039#       发表于 2022-9-6 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57356080&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-5 23:40</a>
+
+中国人总算掉下去了，可喜可贺可喜可贺</blockquote>
+虽然但是，唯一正常人堇倒数第一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mc凉月奏酱  
+##### 4040#       发表于 2022-9-6 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57356641&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-9-6 00:43</a>
+
+虽然但是，唯一正常人堇倒&amp;# ...</blockquote>
+因为太过正常而格格不入
+
