@@ -10054,3 +10054,14 @@ ELS（开20NP）+徐福+C呆+C呆
 是不是脚本哥</blockquote>
 看不到使用记录，不知道是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 2399#       发表于 2022-9-5 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352678&amp;ptid=2084912" target="_blank">areklose 发表于 2022-9-5 18:36</a>
+是不是脚本哥</blockquote>
+脚本现在高级的都可以自己选礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
