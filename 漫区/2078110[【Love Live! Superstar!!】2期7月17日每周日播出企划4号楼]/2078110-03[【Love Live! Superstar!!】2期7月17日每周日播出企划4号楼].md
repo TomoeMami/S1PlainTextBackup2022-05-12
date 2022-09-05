@@ -11016,3 +11016,99 @@ twi：hirasuke55
 
 1108 
 
+
+
+*****
+
+####  kbtit  
+##### 4017#       发表于 2022-9-5 22:33
+
+○コメント数 
+
+四季 
+
+89 
+
+夏美 
+
+82 
+
+可可 
+
+81 
+
+かのん 
+
+80 
+
+メイ 
+
+72 
+
+きな子 
+
+62 
+
+恋 
+
+59 
+
+すみれ 
+
+55 
+
+千砂都 
+
+51 
+
+来源5ch
+
+*****
+
+####  ads147147  
+##### 4018#       发表于 2022-9-5 22:33
+
+不上十万，这点播放数很难说有什么实际差距。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 4019#       发表于 2022-9-5 22:34
+
+ 本帖最后由 ads147147 于 2022-9-5 22:35 编辑 
+
+风怒。
+
+现在还是太捕风捉影了，等第二季播完再说吧？
+
+*****
+
+####  starring  
+##### 4020#       发表于 2022-9-5 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57348540&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-5 13:24</a>
+
+富士2台的2nd剪辑版，好像把unisong仰拍青山的镜头给换掉了？这个镜头几乎构成了我对2巡80%的美好记忆，bd ...</blockquote>
+2nd几场的这个镜头都绝美，剪辑版切了其它镜头可惜了
+<img src="https://p.sda1.dev/7/346b83b2339be6022db861a2e68d1e29/5BE8ECCF281B2C75267A4038711DF48C _1_.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4021#       发表于 2022-9-5 22:38
+
+想吃回锅肉的鲤鱼真是太好玩了
+
+*****
+
+####  奥柏伦亲王  
+##### 4022#       发表于 2022-9-5 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57355418&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-5 22:38</a>
+ 2nd几场的这个镜头都绝美，剪辑版切了其它镜头可惜了</blockquote>
+希望能至少保留一场吧，青山姐绝美瞬间啊。而且还巨有史诗感，和歌曲无比般配
+
