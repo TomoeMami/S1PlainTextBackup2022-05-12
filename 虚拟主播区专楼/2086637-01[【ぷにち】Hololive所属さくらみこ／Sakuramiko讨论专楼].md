@@ -11799,3 +11799,16 @@ moona逛夏祭
 
 一张图告诉你0期生具体是什么玩意
 
+
+
+*****
+
+####  holoan  
+##### 1144#         楼主| 发表于 2022-9-5 21:30
+
+RT了那条官推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是机器人现在还没反应估计没那么快发结果
+
+看看到底是推谁
+
