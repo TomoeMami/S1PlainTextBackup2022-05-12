@@ -11167,3 +11167,21 @@ twi：hirasuke55
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以裂啦目前的体量感觉到10万播放有点难，这再生数感觉还是挺符合目前动画的环境的，只不过1期生目前唯一的“正常人”すみれ让我感觉有点意外
 
+
+
+*****
+
+####  player3960  
+##### 4028#       发表于 2022-9-5 23:07
+
+允悲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_20220905_230525.jpg
+(114 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-5 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202209/05/230744pbvpc6kpkkvkdkdf.jpg" referrerpolicy="no-referrer">
+
