@@ -11137,3 +11137,33 @@ twi：hirasuke55
 
 第八集是这周播嘛
 
+
+
+*****
+
+####  Kfly  
+##### 4026#       发表于 2022-9-5 22:53
+
+也可能是在说第三集的登场啊，不一定指第八集吧（不过感觉确实有往第八集登场的方向暗示就是，大概率第八集登场<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202209/05/225012apw9ybyuii90l0wj.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ8p5s-fezuK2qT1kSfv-sg.jpg</strong> (99.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-5 22:50 上传
+
+*****
+
+####  kbtit  
+##### 4027#       发表于 2022-9-5 22:55
+
+ 本帖最后由 kbtit 于 2022-9-5 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57355366&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-5 23:33</a>
+
+不上十万，这点播放数很难说有什么实际差距。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以裂啦目前的体量感觉到10万播放有点难，这再生数感觉还是挺符合目前动画的环境的，只不过1期生目前唯一的“正常人”すみれ让我感觉有点意外
+
