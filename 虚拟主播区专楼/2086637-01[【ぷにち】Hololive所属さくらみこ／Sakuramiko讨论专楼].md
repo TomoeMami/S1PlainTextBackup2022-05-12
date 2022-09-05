@@ -11703,3 +11703,14 @@ miko虐,开场就杀<img src="https://static.saraba1st.com/image/smiley/face2017
 
 2022-9-5 10:43 上传
 
+
+
+*****
+
+####  rs5621  
+##### 1135#       发表于 2022-9-5 11:46
+
+迟来的卖家秀
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
