@@ -2333,3 +2333,15 @@ AOKZOE就能调。
 .主要玩独立 ...</blockquote>
 我很有可能会把自己 512G 5560U 带惊喜盲订大礼包的 Ayaneo Air Pro 出掉（预计九月内发货），当然也<strong>不能百分百说一定出</strong>因为还得看我预定的其他机器的情况。如果你想要而且不着急的我到时候可以以我买的原价转给你。
 
+
+
+*****
+
+####  Sue  
+##### 191#       发表于 2022-9-5 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57344426&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-5 08:14</a>
+
+我很有可能会把自己 512G 5560U 带惊喜盲订大礼包的 Ayaneo Air Pro 出掉（预计九月内发货），当然也不能 ...</blockquote>
+感谢！我一点也不急，但是我现在还有点纠结，因为价格跟aok的也差别不大<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">在想要不要干脆直接买AOK算了
+
