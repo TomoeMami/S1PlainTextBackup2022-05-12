@@ -11319,3 +11319,12 @@ Screenshot_20220905_230525.jpg
 
 其实可可这里面还有中华票呢，周日棒球周边只有可千剩下，可可还是剩最多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不香的鱼干  
+##### 4042#       发表于 2022-9-6 02:26
+
+正常啊，如果不是人设可爱外加国人设定吊着这几集操作下来可可绝对是我最烦的角色，香音和可可刚开始是最推的角色了，穿越到开头打死都不信二季观感会从正数跌到倒数没有中间值的两个极端，而且不是其他角色出彩压过的而是角色自身糟糕化的方向<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
