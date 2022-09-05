@@ -11220,3 +11220,42 @@ Screenshot_20220905_230525.jpg
 
 中国人总算掉下去了，可喜可贺可喜可贺
 
+
+
+*****
+
+####  starring  
+##### 4033#       发表于 2022-9-5 23:52
+
+好消息：恋不再排第五
+
+坏消息：恋连前五都挤不进<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+被运营搞得这么丧，3rd live我是不看好能有什么成绩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4034#       发表于 2022-9-6 00:00
+
+クーカーの遗产だけで持っているシリーズ
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4035#       发表于 2022-9-6 00:00
+
+现在又变啦，可堇千恋占据后四名，新成员和香音占据前五名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话也就看个乐，还剩五集呢，天知道还会发生什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/05/235737zlf2qrsrzrzmfzqr.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-09-05 235654.png</strong> (227.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-5 23:57 上传
+
