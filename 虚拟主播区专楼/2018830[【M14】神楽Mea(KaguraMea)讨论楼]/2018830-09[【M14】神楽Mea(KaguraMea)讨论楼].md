@@ -3643,3 +3643,14 @@ b博感言
 
 还是不开台？
 
+
+
+*****
+
+####  往世雷书  
+##### 12384#       发表于 2022-9-5 15:15
+
+好吧，那十感交集好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
