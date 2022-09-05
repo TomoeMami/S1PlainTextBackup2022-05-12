@@ -10013,3 +10013,32 @@ ELS（开20NP）+徐福+C呆+C呆
 赚点友情点啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 很明显都挂着
 
+
+
+*****
+
+####  rooarr  
+##### 2395#       发表于 2022-9-5 18:32
+
+也不知道谁天天用我挂在all阶的215，换什么礼装都用的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 2396#       发表于 2022-9-5 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352624&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-9-5 18:32</a>
+
+也不知道谁天天用我挂在all阶的215，换什么礼装都用的那种现在直接换最新的友情礼装了，每天入账友 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是脚本哥
+
+*****
+
+####  alucardcz  
+##### 2397#       发表于 2022-9-5 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57352678&amp;ptid=2084912" target="_blank">areklose 发表于 2022-9-5 18:36</a>
+
+是不是脚本哥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太像 不然1天2000多友情也太少了! 少说2万起步吧!
+
