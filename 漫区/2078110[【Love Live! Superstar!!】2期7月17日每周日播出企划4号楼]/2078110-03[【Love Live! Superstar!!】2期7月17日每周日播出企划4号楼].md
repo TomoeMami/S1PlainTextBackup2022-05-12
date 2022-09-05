@@ -11185,3 +11185,12 @@ Screenshot_20220905_230525.jpg
 
 <img src="https://img.saraba1st.com/forum/202209/05/230744pbvpc6kpkkvkdkdf.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4029#       发表于 2022-9-5 23:23
+
+比起中国人喜欢的合鲤，日本人貌似更喜欢磕经鲤<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
