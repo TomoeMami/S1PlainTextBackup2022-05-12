@@ -11656,3 +11656,21 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://img.saraba1st.com/forum/202209/06/231536y5fke5i1kk7r5e7v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4072#       发表于 2022-9-6 23:40
+
+集体吐槽动画剧情
+
+<img src="https://img.saraba1st.com/forum/202209/06/234014x8q2lpqz8dzdp8k8.png" referrerpolicy="no-referrer">
+
+<strong>D4CDD6BB-C430-482E-8A48-066F1E768280.png</strong> (333.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-6 23:40 上传
+
