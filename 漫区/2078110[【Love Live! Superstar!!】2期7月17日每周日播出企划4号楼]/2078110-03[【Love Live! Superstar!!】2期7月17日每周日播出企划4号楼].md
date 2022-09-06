@@ -11597,3 +11597,15 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不兴开选举啊，你星这点小体量可吃不消中华炮
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 4067#       发表于 2022-9-6 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57365281&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-6 18:19</a>
+
+居然在鱼个人广播听到了liella曲</blockquote>
+其实已经播过好几次了
+
