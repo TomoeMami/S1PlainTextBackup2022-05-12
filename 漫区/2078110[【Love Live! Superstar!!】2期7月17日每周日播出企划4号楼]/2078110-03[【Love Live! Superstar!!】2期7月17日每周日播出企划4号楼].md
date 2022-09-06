@@ -11373,3 +11373,21 @@ Screenshot_20220905_230525.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正都这么拉了
 
+
+
+*****
+
+####  ViyViy  
+##### 4048#       发表于 2022-9-6 10:12
+
+底了但倒爷和团不降价不调价有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说，可可看板娘手办的消息呢，我看以往的看板娘手办公布都是宣布看板娘当年的10月左右开个直播公布的，今年这是没有了？经典“疫情”理由？
+
+*****
+
+####  starring  
+##### 4049#       发表于 2022-9-6 10:13
+
+看到结那的营业力度，再次想运营知道动画寄了提早安排中之人营业好当声优盾
+
