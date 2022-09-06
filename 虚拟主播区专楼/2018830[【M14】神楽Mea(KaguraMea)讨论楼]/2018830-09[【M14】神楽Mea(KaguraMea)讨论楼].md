@@ -3730,3 +3730,19 @@ fafa动态
 有两块显示器最近又买了一块专门打游 ...</blockquote>
 什么女同，可怕
 
+
+
+*****
+
+####  呓亘  
+##### 12392#       发表于 2022-9-7 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57357841&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-9-6 08:46</a>
+
+白天出门了下午睡到半夜
+
+有人推荐了蒜但她不看，最近在看恋爱连续剧
+
+有两块显示器最近又买了一块专门打游 ...</blockquote>
+居然不看蒜，anti了
+
