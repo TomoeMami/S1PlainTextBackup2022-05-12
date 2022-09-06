@@ -11629,3 +11629,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 4070#       发表于 2022-9-6 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真开鱼拉票的话也不好说呢
+
