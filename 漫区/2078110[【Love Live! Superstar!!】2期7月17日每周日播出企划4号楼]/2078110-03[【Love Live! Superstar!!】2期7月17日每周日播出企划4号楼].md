@@ -11420,3 +11420,21 @@ Screenshot_20220905_230525.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然而播放量多不能说明人气，还有推送机制算法啊，我b站明明看可可居多但视频推荐总给我推荐其他人的
 
+
+
+*****
+
+####  iuhehc  
+##### 4053#       发表于 2022-9-6 10:52
+
+等三巡看上座率 谷子价格差不多知道了，动画还没播完，虽然我觉得也不太会有什么变化了，香音+星四这可能就是高层想看到的吧…老五除了卡农不知道有什么高光，还能涨什么粉，不跌粉的都算好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  老1.5  
+##### 4054#       发表于 2022-9-6 10:56
+
+这么点播放量也就别讨论人气差距了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去食堂吃一顿15块钱饭和12块钱饭的差别
+

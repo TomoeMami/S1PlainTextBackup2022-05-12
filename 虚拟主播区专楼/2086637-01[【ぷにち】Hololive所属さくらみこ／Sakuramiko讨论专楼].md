@@ -11874,3 +11874,29 @@ babydance昨天播放50w了
 
 但是总不能12首曲子都是萌音系吧，想象不出来
 
+
+
+*****
+
+####  holoan  
+##### 1151#         楼主| 发表于 2022-9-6 10:52
+
+我一推没发给我推了个社长
+
+<img src="https://img.saraba1st.com/forum/202209/06/105227m4umnpn8r3rtjpzy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-6 10:52 上传
+
+*****
+
+####  holoan  
+##### 1152#         楼主| 发表于 2022-9-6 10:57
+
+京mafu的周边有事后通贩
+
+看看到时候直播怎么说
+
