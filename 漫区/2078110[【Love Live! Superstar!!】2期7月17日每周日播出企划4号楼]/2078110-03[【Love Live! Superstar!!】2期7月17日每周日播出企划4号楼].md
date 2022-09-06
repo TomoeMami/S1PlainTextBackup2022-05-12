@@ -11438,3 +11438,12 @@ Screenshot_20220905_230525.jpg
 
 这么点播放量也就别讨论人气差距了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去食堂吃一顿15块钱饭和12块钱饭的差别
 
+
+
+*****
+
+####  cybernetics31  
+##### 4055#       发表于 2022-9-6 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和cd bd销量也符合，本质还是加了个寂寞
+
