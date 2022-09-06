@@ -11909,3 +11909,16 @@ babydance昨天播放50w了
 
 错楼了
 
+
+
+*****
+
+####  rs5621  
+##### 1154#       发表于 2022-9-6 11:33
+
+ 本帖最后由 rs5621 于 2022-9-6 11:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太草了，官推给我整了个兔子<img src="https://p.sda1.dev/7/daeb21f3fcdae27b4d75afd3c11a6b7b/CMP_20220906113629561.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

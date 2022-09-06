@@ -10093,3 +10093,12 @@ ELS（开20NP）+徐福+C呆+C呆
 后知后觉这楼来了好多人，国服到底润了多少过来，终于不是自娱自乐楼了吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2403#       发表于 2022-9-6 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始各种缺凶骨缺羽毛缺很多材料了，于是停手种火开始收割强化本……
+
