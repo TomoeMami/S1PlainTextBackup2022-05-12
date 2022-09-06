@@ -11683,3 +11683,16 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 鲤鱼完全夸不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 4074#       发表于 2022-9-7 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57368775&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-6 23:15</a>
+以LINE上推的大熊</blockquote>
+没想到也是抽象表情包爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
