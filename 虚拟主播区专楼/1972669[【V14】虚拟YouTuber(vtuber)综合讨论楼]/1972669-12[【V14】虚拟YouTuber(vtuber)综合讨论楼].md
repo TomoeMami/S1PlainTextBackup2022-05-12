@@ -8650,3 +8650,29 @@ syl，怎么感觉enna才是en的同接一姐？
 
 你们有人记得以前有个3d短视频创作者吗，不是管人，在推特上活动的，大概形象是一个星空外观的人体内部有一个少女，设定上和宇宙有关，我死活想不起名字了。
 
+
+
+*****
+
+####  lhawp  
+##### 17294#       发表于 2022-9-7 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369393&amp;ptid=1972669" target="_blank">本间日阳 发表于 2022-9-7 00:19</a>
+
+你们有人记得以前有个3d短视频创作者吗，不是管人，在推特上活动的，大概形象是一个星空外观的人体内部有一 ...</blockquote>
+[https://twitter.com/dimegir](https://twitter.com/dimegir)
+
+这个？
+
+*****
+
+####  本间日阳  
+##### 17295#       发表于 2022-9-7 02:35
+
+ 本帖最后由 本间日阳 于 2022-9-7 02:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369971&amp;ptid=1972669" target="_blank">lhawp 发表于 2022-9-7 02:28</a>
+https://twitter.com/dimegir
+
+这个？</blockquote>
+是这个，谢谢！没想到还在活动啊，而且原来是个游戏企划……
+
