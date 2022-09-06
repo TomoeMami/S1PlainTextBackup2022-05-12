@@ -11491,3 +11491,57 @@ Screenshot_20220905_230525.jpg
 
 2022-9-6 12:00 上传
 
+
+
+*****
+
+####  saya1892  
+##### 4059#       发表于 2022-9-6 12:42
+
+ 本帖最后由 saya1892 于 2022-9-6 12:48 编辑 
+
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988](https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988)
+
+拉板又新开了一帖讨论24小时后的播放量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+除了播放量还考察了点赞数和评论数
+
+点赞→核心粉（推）
+
+低播放高评价→除了核心粉点开的人少
+
+高播放低评价→有人在刷（ry
+
+但播放量一万多和两万多的战斗实属空虚
+
+<img src="https://img.saraba1st.com/forum/202209/06/124230brenivdrqsvozohi.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (34.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-6 12:42 上传
+
+<img src="https://img.saraba1st.com/forum/202209/06/124238q1dyyngx1yj01k9m.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (37.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-6 12:42 上传
+
+看了下各人评论里提到声优的频次多了很多
+
+动画孱弱的确会导致观众流向中之人
+
+*****
+
+####  Enakina  
+##### 4060#       发表于 2022-9-6 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57360898&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-6 12:42</a>
+https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
+
+拉板又新开了一帖讨论24小时后的播放量[f: ...</blockquote>
+确实，一万两万无非比谁更菜而已，没啥分析的必要。话说怎么没人去开个帖子，[悲报]liella的视频播放量都好低，药丸之类的
+
