@@ -2345,3 +2345,25 @@ AOKZOE就能调。
 我很有可能会把自己 512G 5560U 带惊喜盲订大礼包的 Ayaneo Air Pro 出掉（预计九月内发货），当然也不能 ...</blockquote>
 感谢！我一点也不急，但是我现在还有点纠结，因为价格跟aok的也差别不大<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">在想要不要干脆直接买AOK算了
 
+
+
+*****
+
+####  cleaner  
+##### 192#       发表于 2022-9-6 13:47
+
+是不是不急的话最好等A家6800全面铺货？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  时空之旅  
+##### 193#       发表于 2022-9-6 13:48
+
+<blockquote>cleaner 发表于 2022-9-6 13:47
+是不是不急的话最好等A家6800全面铺货？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.2- ...</blockquote>
+我就是在等6800大量铺货看状况
+
