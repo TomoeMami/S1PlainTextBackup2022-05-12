@@ -10083,3 +10083,13 @@ ELS（开20NP）+徐福+C呆+C呆
 
 用助战奥伯龙拐2宝渡边纲刷迪瓦尔，有一种苦中作乐的快感
 
+
+
+*****
+
+####  exiaexa  
+##### 2402#       发表于 2022-9-6 09:23
+
+后知后觉这楼来了好多人，国服到底润了多少过来，终于不是自娱自乐楼了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
