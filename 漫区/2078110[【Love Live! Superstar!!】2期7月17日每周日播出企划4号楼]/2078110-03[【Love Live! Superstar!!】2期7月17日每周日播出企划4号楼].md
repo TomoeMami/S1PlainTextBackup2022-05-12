@@ -11588,3 +11588,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">居然在鱼个人广播听到了liella曲
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4066#       发表于 2022-9-6 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不兴开选举啊，你星这点小体量可吃不消中华炮
+
