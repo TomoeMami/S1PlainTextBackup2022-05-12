@@ -10149,3 +10149,15 @@ ELS（开20NP）+徐福+C呆+C呆
 看新公司的行事风格不像是会放过这个骗氪机会的样子
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">就算不复刻 也可以拿有偿石每日单抽赌宝石嘛
 
+
+
+*****
+
+####  都谷捻柏  
+##### 2408#       发表于 2022-9-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57364134&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-6 16:58</a>
+
+有没有可能，不复刻狂那？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不复刻，没准还附赠个强化呢
+
