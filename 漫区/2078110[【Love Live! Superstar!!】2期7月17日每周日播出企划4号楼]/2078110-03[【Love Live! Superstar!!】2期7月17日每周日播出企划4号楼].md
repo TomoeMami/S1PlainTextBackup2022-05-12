@@ -11609,3 +11609,23 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 居然在鱼个人广播听到了liella曲</blockquote>
 其实已经播过好几次了
 
+
+
+*****
+
+####  adw667  
+##### 4068#       发表于 2022-9-6 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候连中华炮都没有就是个大乐子，要是炮歪了更好玩
+
+*****
+
+####  iuhehc  
+##### 4069#       发表于 2022-9-6 21:08
+
+ 本帖最后由 iuhehc 于 2022-9-6 21:10 编辑 
+
+星热度降太多了，加人走一批，烂脚本走一批，悲观看中华炮说不定没伊达大叔威力大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
