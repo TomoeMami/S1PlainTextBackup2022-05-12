@@ -11554,3 +11554,19 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 再过段时间bd1就要开始卖了，到时候看看首发就知道谁在裸泳了。
 
+
+
+*****
+
+####  星降る森  
+##### 4062#       发表于 2022-9-6 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看这种东西没什么大用的，不开个C选举都是虚的
+
+*****
+
+####  cybernetics31  
+##### 4063#       发表于 2022-9-6 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真开还用比吗
+
