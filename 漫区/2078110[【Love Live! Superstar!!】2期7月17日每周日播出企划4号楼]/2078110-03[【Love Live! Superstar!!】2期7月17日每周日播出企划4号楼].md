@@ -11337,3 +11337,12 @@ Screenshot_20220905_230525.jpg
 
 反正啊，祝企划早日把它自己给玩死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4044#       发表于 2022-9-6 07:52
+
+池袋那个广告牌还是有点效应，加上第二本写真名字噱头，鱼上上周广播这几天一直排在前三
+
