@@ -11463,3 +11463,31 @@ Screenshot_20220905_230525.jpg
 由手机上传
 2022-9-6 11:30 上传
 
+
+
+*****
+
+####  csolfans  
+##### 4057#       发表于 2022-9-6 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57355916&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-5 23:23</a>
+
+比起中国人喜欢的合鲤，日本人貌似更喜欢磕经鲤</blockquote>
+坛友，你的头像有原图或者id吗？这张可可挺好看的，想收一收<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4058#       发表于 2022-9-6 12:00
+
+<blockquote>csolfans 发表于 2022-9-6 11:52
+坛友，你的头像有原图或者id吗？这张可可挺好看的，想收一收</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/06/120024a6oy7q1bvynp1i96.jpg" referrerpolicy="no-referrer">
+
+<strong>20210924_144637.jpg</strong> (142.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-6 12:00 上传
+
