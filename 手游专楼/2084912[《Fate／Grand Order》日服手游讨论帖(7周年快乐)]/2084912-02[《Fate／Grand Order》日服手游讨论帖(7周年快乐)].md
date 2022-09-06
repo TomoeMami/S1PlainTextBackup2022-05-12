@@ -10113,3 +10113,39 @@ ELS（开20NP）+徐福+C呆+C呆
 
 我必不可能沉船<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2405#       发表于 2022-9-6 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57358229&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-6 09:23</a>
+
+后知后觉这楼来了好多人，国服到底润了多少过来，终于不是自娱自乐楼了吗
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自娱自乐不好吗.jpg
+
+*****
+
+####  khxooo  
+##### 2406#       发表于 2022-9-6 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57362579&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-9-6 14:54</a>
+充了两单等明天抽狂娜
+
+我必不可能沉船</blockquote>
+有没有可能，不复刻狂那？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  リッチ  
+##### 2407#       发表于 2022-9-6 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57364134&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-6 16:58</a>
+
+有没有可能，不复刻狂那？</blockquote>
+看新公司的行事风格不像是会放过这个骗氪机会的样子
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">就算不复刻 也可以拿有偿石每日单抽赌宝石嘛
+

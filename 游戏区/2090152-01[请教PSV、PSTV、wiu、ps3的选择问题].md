@@ -694,3 +694,21 @@ psv有人整过大包，但是那个包不支持PSVTV
 
 整完PSV的全能包，打算顺手再整个Wiiu版本
 
+
+
+*****
+
+####  保科智子  
+##### 65#       发表于 2022-9-6 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57363154&amp;ptid=2090152" target="_blank">雨鱼 发表于 2022-9-6 15:34</a>
+
+wii确实超级麻烦，很多游戏都要转缓存，测试心累
+
+psv有人整过大包，但是那个包不支持PSVTV
+
+我对大包的游 ...</blockquote>
+整完了可以发在这吗，伸手<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+虽然因为按键太难受基本只用来补几个RPG，但菜单缩略图没有美化就总想折腾。
+

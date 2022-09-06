@@ -8597,3 +8597,16 @@ syl，怎么感觉enna才是en的同接一姐？
 
 现在出走了死忠粉感觉留下了1/3不到吧，应开全开，什么都收，之前走前开香火钱+音声全卖就有人说他在走前捞一笔了，现在看来他对之后的生活还挺担忧的，也符合一直以来的抑郁逼负面思考者印象
 
+
+
+*****
+
+####  Ketestrait  
+##### 17289#       发表于 2022-9-6 17:35
+
+ 本帖最后由 Ketestrait 于 2022-9-6 17:39 编辑 
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h5x0qi0vvzj20e107gwgj.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/SvE8YuQ7RJM](https://youtu.be/SvE8YuQ7RJM)
+
