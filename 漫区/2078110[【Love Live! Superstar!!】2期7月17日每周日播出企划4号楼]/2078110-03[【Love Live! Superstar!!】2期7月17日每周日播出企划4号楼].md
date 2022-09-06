@@ -11638,3 +11638,21 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真开鱼拉票的话也不好说呢
 
+
+
+*****
+
+####  仟音一心  
+##### 4071#       发表于 2022-9-6 23:15
+
+以LINE上推的大熊
+
+39A924D8-2BF7-4EBC-A492-0668980B47A9.jpeg
+(162.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-6 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202209/06/231536y5fke5i1kk7r5e7v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
