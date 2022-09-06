@@ -11579,3 +11579,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 先把店长手办给我吐出来，立牌简直让人想骂人，又小，图还是像素版
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4065#       发表于 2022-9-6 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">居然在鱼个人广播听到了liella曲
+

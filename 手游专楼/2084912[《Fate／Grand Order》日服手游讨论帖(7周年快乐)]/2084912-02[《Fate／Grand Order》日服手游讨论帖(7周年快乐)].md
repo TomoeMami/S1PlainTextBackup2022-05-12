@@ -10161,3 +10161,17 @@ ELS（开20NP）+徐福+C呆+C呆
 有没有可能，不复刻狂那？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不复刻，没准还附赠个强化呢
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2409#       发表于 2022-9-6 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57358229&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-6 09:23</a>
+
+后知后觉这楼来了好多人，国服到底润了多少过来，终于不是自娱自乐楼了吗
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自娱自乐挺好的，国服的说的大都听不懂的
+
