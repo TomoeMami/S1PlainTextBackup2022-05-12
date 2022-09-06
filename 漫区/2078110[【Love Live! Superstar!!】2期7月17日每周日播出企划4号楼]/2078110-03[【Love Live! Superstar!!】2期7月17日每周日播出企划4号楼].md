@@ -11570,3 +11570,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真开还用比吗
 
+
+
+*****
+
+####  lj205  
+##### 4064#       发表于 2022-9-6 15:34
+
+先把店长手办给我吐出来，立牌简直让人想骂人，又小，图还是像素版
+
