@@ -11705,3 +11705,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 真懒得说某些人，鬼子评论在需要的时候是有力论据婆罗门，不需要的时候是啥比太君友团帆船不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4076#       发表于 2022-9-7 18:41
+
+直播改吃播，靠吃水了10分钟
+
