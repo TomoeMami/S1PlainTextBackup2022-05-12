@@ -11967,3 +11967,23 @@ babydance昨天播放50w了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1158#         楼主| 发表于 2022-9-7 10:04
+
+以后别再说什么白天MC了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多少次说要播然后鸽了的
+
+自己每天要做什么事能不能播真的一点比数都没有
+
+突击直播3小时还行
+
+*****
+
+####  holoan  
+##### 1159#         楼主| 发表于 2022-9-7 10:07
+
+昨天休息了，周一收录一整天
+
