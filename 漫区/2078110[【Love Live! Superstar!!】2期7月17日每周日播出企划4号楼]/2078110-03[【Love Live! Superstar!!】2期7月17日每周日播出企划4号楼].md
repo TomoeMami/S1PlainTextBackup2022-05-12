@@ -11714,3 +11714,28 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 直播改吃播，靠吃水了10分钟
 
+
+
+*****
+
+####  仟音一心  
+##### 4077#       发表于 2022-9-7 20:00
+
+<img src="https://img.saraba1st.com/forum/202209/07/200032in9c0a4werpqz0cp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>106B0966-360D-4ED2-984F-CA3C44418A98.jpeg</strong> (233.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202209/07/200038ai8i89ooosnfwj81.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>868B62C6-1CA4-459F-B823-3E5AC0D6C70A.jpeg</strong> (163.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:00 上传
+
