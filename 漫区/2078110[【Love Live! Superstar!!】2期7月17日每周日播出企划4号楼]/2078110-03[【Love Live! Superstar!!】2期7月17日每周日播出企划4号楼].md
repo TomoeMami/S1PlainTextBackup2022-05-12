@@ -11696,3 +11696,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lage  
+##### 4075#       发表于 2022-9-7 15:51
+
+真懒得说某些人，鬼子评论在需要的时候是有力论据婆罗门，不需要的时候是啥比太君友团帆船不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
