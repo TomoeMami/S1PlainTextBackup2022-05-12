@@ -10175,3 +10175,12 @@ ELS（开20NP）+徐福+C呆+C呆
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自娱自乐挺好的，国服的说的大都听不懂的
 
+
+
+*****
+
+####  rooarr  
+##### 2410#       发表于 2022-9-7 12:39
+
+这里明明是海豹楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
