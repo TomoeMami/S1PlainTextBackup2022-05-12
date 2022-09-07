@@ -10553,3 +10553,29 @@ md10符歪了个三藏
 
 啥时候再复刻一下杀狐…
 
+
+
+*****
+
+####  khxooo  
+##### 2446#       发表于 2022-9-7 19:43
+
+彩圈，狐狸，金狂，狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，全部石头没了
+
+*****
+
+####  黑上シグマ  
+##### 2447#       发表于 2022-9-7 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">banana上次福袋4宝了，这次啥都不用抽
+
+*****
+
+####  超阳电子炮  
+##### 2448#       发表于 2022-9-7 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57379183&amp;ptid=2084912" target="_blank">音無麻理亜 发表于 2022-9-7 18:22</a>
+
+是上次更新的吗，之前完全没有这种感觉，我看28号2500天的截图还是18:9式的适配来的，多的这一点比例在三 ...</blockquote>
+上次更新就没有了，我还特意截图来着，所有宝具画面也都宽屏了，就是不知道改模会不会提上日程
+
