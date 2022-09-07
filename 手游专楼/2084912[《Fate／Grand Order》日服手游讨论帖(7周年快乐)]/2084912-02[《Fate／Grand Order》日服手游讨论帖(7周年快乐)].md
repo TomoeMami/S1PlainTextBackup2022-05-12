@@ -10219,3 +10219,12 @@ ELS（开20NP）+徐福+C呆+C呆
 不过wys估计不会从了玩家的愿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不加cd变50  可以撕了很多卡了（
 
+
+
+*****
+
+####  铁柱子  
+##### 2414#       发表于 2022-9-7 16:58
+
+狂娜会不会强化呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
