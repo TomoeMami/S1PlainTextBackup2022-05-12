@@ -10588,3 +10588,15 @@ md10符歪了个三藏
 
 泥潭有没有奶一奶下一章主线出的啥毁天灭地5x
 
+
+
+*****
+
+####  alucardcz  
+##### 2450#       发表于 2022-9-7 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57380466&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-7 19:46</a>
+
+banana上次福袋4宝了，这次啥都不用抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 为什么萌新会出了一个唯一不想要的武藏呢
+
