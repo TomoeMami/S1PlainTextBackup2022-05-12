@@ -8730,3 +8730,29 @@ gamers太温暖了<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 月奈是日本人！
 
+
+
+*****
+
+####  aritaatsu222  
+##### 17300#       发表于 2022-9-8 02:34
+
+不破哥不是第一次这样了🤣“绿仙这样的女孩子”
+
+*****
+
+####  lanslort  
+##### 17301#       发表于 2022-9-8 03:07
+
+<img src="https://img.saraba1st.com/forum/202209/08/030442w1ovcrabuv21y42k.png" referrerpolicy="no-referrer">
+
+<strong>1662576897752584.png</strong> (73.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 03:04 上传
+
+Luca操作不当把mc服务器回退版本结果把前辈一大堆东西给炸没了，备份还只有五月份的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Pomu现在重建
+
+要是Vox的话微博上大字报已经贴出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
