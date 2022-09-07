@@ -8676,3 +8676,12 @@ https://twitter.com/dimegir
 这个？</blockquote>
 是这个，谢谢！没想到还在活动啊，而且原来是个游戏企划……
 
+
+
+*****
+
+####  lhawp  
+##### 17296#       发表于 2022-9-7 15:14
+
+Elira的ASMR，我死了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
