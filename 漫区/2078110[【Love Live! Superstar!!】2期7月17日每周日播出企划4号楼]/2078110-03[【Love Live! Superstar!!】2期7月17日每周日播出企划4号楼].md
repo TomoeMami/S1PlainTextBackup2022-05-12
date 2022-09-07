@@ -11896,3 +11896,12 @@ kuma不开推的营业
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4089#       发表于 2022-9-7 22:34
+
+nako那段我听着很像在yygq啊 可能是我太阴湿了
+
