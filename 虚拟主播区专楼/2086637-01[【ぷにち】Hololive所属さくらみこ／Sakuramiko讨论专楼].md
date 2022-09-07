@@ -11996,3 +11996,29 @@ babydance昨天播放50w了
 
 早上起来就在看海贼王，完全沉迷了
 
+
+
+*****
+
+####  holoan  
+##### 1161#         楼主| 发表于 2022-9-7 10:56
+
+<img src="https://img.saraba1st.com/forum/202209/07/105632wwiwhiww5f3dptbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-7 10:56 上传
+
+我也不知道该说这人是推谁了
+
+*****
+
+####  rs5621  
+##### 1162#       发表于 2022-9-7 10:58
+
+露娜直接哭瞎
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
