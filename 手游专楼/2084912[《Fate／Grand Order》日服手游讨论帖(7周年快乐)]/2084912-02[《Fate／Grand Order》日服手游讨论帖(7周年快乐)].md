@@ -10609,3 +10609,32 @@ banana上次福袋4宝了，这次啥都不用抽</blockquote>
 
 这回顾剧情的第2次哪咤该怎么打....200多万的血3条命...速杀也杀不了....苟也苟不了啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2452#       发表于 2022-9-7 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381079&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-7 20:29</a>
+
+这回顾剧情的第2次哪咤该怎么打....200多万的血3条命...速杀也杀不了....苟也苟不了啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不打不就行了，你那么想要茶壶吗
+
+*****
+
+####  霧谷藤乃  
+##### 2453#       发表于 2022-9-7 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这PV居然不能跳过么，我点了半天发现几个给佬还在凸造型
+
+*****
+
+####  alucardcz  
+##### 2454#       发表于 2022-9-7 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381079&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-7 20:29</a>
+
+这回顾剧情的第2次哪咤该怎么打....200多万的血3条命...速杀也杀不了....苟也苟不了啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆梅呼脚打  但是为什么要去打呢
+
