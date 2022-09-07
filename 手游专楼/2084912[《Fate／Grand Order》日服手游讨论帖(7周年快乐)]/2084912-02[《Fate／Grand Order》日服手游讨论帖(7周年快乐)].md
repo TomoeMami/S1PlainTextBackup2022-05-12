@@ -10500,3 +10500,24 @@ md10符歪了个三藏
 
 2022-9-7 17:55 上传
 
+
+
+*****
+
+####  超阳电子炮  
+##### 2441#       发表于 2022-9-7 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378861&amp;ptid=2084912" target="_blank">音無麻理亜 发表于 2022-9-7 17:55</a>
+
+这次更新竟然能完全支持Xperia的21:9屏幕了，可谓是索尼音乐和索尼移动在one Sony上的重大突破
+
+ ...</blockquote>
+上次更新就能适配了，我都差异了，这就是新公司啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2442#       发表于 2022-9-7 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚攒的20抽 没有芭娜娜 GG
+
