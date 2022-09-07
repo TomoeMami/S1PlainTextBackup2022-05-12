@@ -10638,3 +10638,37 @@ banana上次福袋4宝了，这次啥都不用抽</blockquote>
 这回顾剧情的第2次哪咤该怎么打....200多万的血3条命...速杀也杀不了....苟也苟不了啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆梅呼脚打  但是为什么要去打呢
 
+
+
+*****
+
+####  森兰丸  
+##### 2455#       发表于 2022-9-7 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381111&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-7 20:31</a>
+
+不打不就行了，你那么想&amp;#x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">用3发令咒复活过了.......有个红点在那看着不难受么
+
+又刚打完了狂那竟然比哪咤还要简单....不知道在搞啥
+
+*****
+
+####  森兰丸  
+##### 2456#       发表于 2022-9-7 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381194&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-7 20:38</a>
+
+呆梅呼脚打  但是为什么要去打呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为关卡它就在那啊
+
+*****
+
+####  alucardcz  
+##### 2457#       发表于 2022-9-7 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381284&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-7 20:44</a>
+
+因为关卡它就在那啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几天就没了  我比较好奇大奥和ccc那个1你都特意重打一次吗
+
