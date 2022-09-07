@@ -10228,3 +10228,65 @@ ELS（开20NP）+徐福+C呆+C呆
 
 狂娜会不会强化呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 2415#       发表于 2022-9-7 17:04
+
+果然是大象强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2416#       发表于 2022-9-7 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪咤 印度贞德
+
+*****
+
+####  霧谷藤乃  
+##### 2417#       发表于 2022-9-7 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么登上去突然提示我版本过低？
+
+*****
+
+####  铁柱子  
+##### 2418#       发表于 2022-9-7 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378097&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-9-7 17:06</a>
+
+怎么登上去突然提示我版本过低？</blockquote>
+更新了2.6.0.5
+
+*****
+
+####  alucardcz  
+##### 2419#       发表于 2022-9-7 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后tmd缓存又被删光了 要重下7g+
+
+*****
+
+####  exiaexa  
+##### 2420#       发表于 2022-9-7 17:08
+
+给MC一个秩序特攻太草了
+
+狂+av，秩序只有els、宇宙凛、兰丸X三个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2421#       发表于 2022-9-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378135&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-7 17:08</a>
+
+给MC一个秩序特攻太草了
+
+狂+av，秩序只有els、宇宙凛、兰丸X三个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yls：你不会打白字或者蓝字？
+
