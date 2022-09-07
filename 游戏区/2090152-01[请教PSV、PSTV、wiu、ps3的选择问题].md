@@ -712,3 +712,16 @@ psv有人整过大包，但是那个包不支持PSVTV
 
 虽然因为按键太难受基本只用来补几个RPG，但菜单缩略图没有美化就总想折腾。
 
+
+
+*****
+
+####  雨鱼  
+##### 66#       发表于 2022-9-8 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57363463&amp;ptid=2090152" target="_blank">保科智子 发表于 2022-9-6 15:59</a>
+整完了可以发在这吗，伸手
+
+虽然因为按键太难受基本只用来补几个RPG，但菜单缩略图没有美化就总想 ...</blockquote>
+应该会吧，希望不鸽
+
