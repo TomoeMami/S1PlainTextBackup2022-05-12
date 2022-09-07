@@ -10369,3 +10369,29 @@ NMD开个图鉴都能双黄，能不能换个狂那给伊吹
 
 md10符歪了个三藏
 
+
+
+*****
+
+####  芭德薇  
+##### 2431#       发表于 2022-9-7 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378135&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-7 17:08</a>
+
+给MC一个秩序特攻太草了
+
+狂+av，秩序只有els、宇宙凛、兰丸X三个</blockquote>
+这是可以给别人的特攻吧？
+
+*****
+
+####  铁柱子  
+##### 2432#       发表于 2022-9-7 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378331&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-9-7 17:20</a>
+
+这是可以给别人的特攻吧？</blockquote>
+复合一回合无敌，三回合30黄金律30宝威50秩序特攻
+
+一个可以无视的debuff技能封印，还行吧？
+
