@@ -11931,3 +11931,19 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4092#       发表于 2022-9-8 01:31
+
+ 本帖最后由 稀勢のささ 于 2022-9-8 01:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57384024&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-9-8 00:26</a>
+能说下那一段吗有点好奇，新人一起录之后好少完整去听了
+
+—— 来自 S1Fun ...</blockquote>
+18分40秒左右开始的 
+就是聊到tp北海道的香音时 突然化身千用奇怪的语调说了几句“我家香音太棒了 说的话很能打动人”  完了直接开始熊外套可爱捏
+这半分多钟鱼一句话没说然后直接跳过香音起了个头开始聊CEO  看着还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
