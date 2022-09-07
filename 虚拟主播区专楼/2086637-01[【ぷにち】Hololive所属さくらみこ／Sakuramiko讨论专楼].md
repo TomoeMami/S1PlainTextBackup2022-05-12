@@ -11956,3 +11956,14 @@ babydance昨天播放50w了
 
 不过这个点还没睡，不会真的在看sora直播吧
 
+
+
+*****
+
+####  rs5621  
+##### 1157#       发表于 2022-9-7 08:48
+
+6点突击歌回，这谁起得来哦
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
