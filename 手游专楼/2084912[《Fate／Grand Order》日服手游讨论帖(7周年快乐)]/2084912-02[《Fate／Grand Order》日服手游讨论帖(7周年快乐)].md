@@ -10195,3 +10195,27 @@ ELS（开20NP）+徐福+C呆+C呆
 
 不过wys估计不会从了玩家的愿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2412#       发表于 2022-9-7 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57374530&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-9-7 12:39</a>
+
+这里明明是海豹楼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁在豹 是你吗!
+
+*****
+
+####  alucardcz  
+##### 2413#       发表于 2022-9-7 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57377661&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-9-7 16:34</a>
+
+狂娜强化给个50冲就完美了
+
+不过wys估计不会从了玩家的愿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不加cd变50  可以撕了很多卡了（
+
