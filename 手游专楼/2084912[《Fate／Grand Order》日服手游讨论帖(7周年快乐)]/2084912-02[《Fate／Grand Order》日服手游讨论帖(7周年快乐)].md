@@ -10521,3 +10521,17 @@ md10符歪了个三藏
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚攒的20抽 没有芭娜娜 GG
 
+
+
+*****
+
+####  音無麻理亜  
+##### 2443#       发表于 2022-9-7 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57379052&amp;ptid=2084912" target="_blank">超阳电子炮 发表于 2022-9-7 18:11</a>
+
+上次更新就能适配了，我都差异了，这就是新公司啊</blockquote>
+是上次更新的吗，之前完全没有这种感觉，我看28号2500天的截图还是18:9式的适配来的，多的这一点比例在三大金刚那个方向还是黑条来的。<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+现在是完全没有黑的区域了，当然出大蓝条的时候蓝条更粗了
+
