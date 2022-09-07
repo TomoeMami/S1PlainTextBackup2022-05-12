@@ -10460,3 +10460,26 @@ md10符歪了个三藏
 
 白方块已经见底，材料要刷到猴年马月了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2438#       发表于 2022-9-7 17:40
+
+说起来
+
+奥博龙是，60宝具威力、50红魔放
+
+大象是，20攻、30宝具威力、50特攻
+
+意义大概就是让绿卡蓝卡打秩序对象的时候也能体验奥博龙的特技感？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2439#       发表于 2022-9-7 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少50充怎么算  有的人自己带宝威的怎么算
+
