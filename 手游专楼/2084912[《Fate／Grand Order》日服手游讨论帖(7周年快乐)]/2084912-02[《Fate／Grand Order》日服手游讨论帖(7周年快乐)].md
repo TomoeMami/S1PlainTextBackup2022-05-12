@@ -10184,3 +10184,14 @@ ELS（开20NP）+徐福+C呆+C呆
 
 这里明明是海豹楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2411#       发表于 2022-9-7 16:34
+
+狂娜强化给个50冲就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+不过wys估计不会从了玩家的愿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8685,3 +8685,16 @@ https://twitter.com/dimegir
 
 Elira的ASMR，我死了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 17297#       发表于 2022-9-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369998&amp;ptid=1972669" target="_blank">本间日阳 发表于 2022-9-7 02:35</a>
+
+是这个，谢谢！没想到还在活动啊，而且原来是个游戏企划……</blockquote>
+同一个创作人的歌势V很不错，可以看看
+[https://twitter.com/metromew](https://twitter.com/metromew)
+
