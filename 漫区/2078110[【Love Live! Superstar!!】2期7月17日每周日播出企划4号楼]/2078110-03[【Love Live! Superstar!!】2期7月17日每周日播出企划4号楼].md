@@ -11787,3 +11787,12 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 由手机上传
 2022-9-7 20:57 上传
 
+
+
+*****
+
+####  adw667  
+##### 4080#       发表于 2022-9-7 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">80期广播讨论剧情给鱼干沉默了还行，上一个在节目里给鱼干沉默的是白草莓声优盾是真的恶心，我第一次觉得nako有点烦人
+
