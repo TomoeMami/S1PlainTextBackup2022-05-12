@@ -11796,3 +11796,15 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">80期广播讨论剧情给鱼干沉默了还行，上一个在节目里给鱼干沉默的是白草莓声优盾是真的恶心，我第一次觉得nako有点烦人
 
+
+
+*****
+
+####  愛さ実  
+##### 4081#       发表于 2022-9-7 21:23
+
+那咋办呢，打工人罢了。
+我们唯一能恶心下大人们的方法就是不给他们送钱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
