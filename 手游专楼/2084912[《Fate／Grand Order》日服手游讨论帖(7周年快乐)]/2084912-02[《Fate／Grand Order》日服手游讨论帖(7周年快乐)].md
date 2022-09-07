@@ -10600,3 +10600,12 @@ md10符歪了个三藏
 banana上次福袋4宝了，这次啥都不用抽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 为什么萌新会出了一个唯一不想要的武藏呢
 
+
+
+*****
+
+####  森兰丸  
+##### 2451#       发表于 2022-9-7 20:29
+
+这回顾剧情的第2次哪咤该怎么打....200多万的血3条命...速杀也杀不了....苟也苟不了啊
+
