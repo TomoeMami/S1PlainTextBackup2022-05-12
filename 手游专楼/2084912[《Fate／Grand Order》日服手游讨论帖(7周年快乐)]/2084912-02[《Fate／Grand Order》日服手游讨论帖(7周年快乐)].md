@@ -10694,3 +10694,12 @@ banana上次福袋4宝了，这次啥都不用抽</blockquote>
 CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了...大奥可是要你和活动一样重新一个个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完不是还有个1要再打一次boss吗
 
+
+
+*****
+
+####  在海岸  
+##### 2460#       发表于 2022-9-7 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这 抽前看了一眼楼 最后一票就出给了
+

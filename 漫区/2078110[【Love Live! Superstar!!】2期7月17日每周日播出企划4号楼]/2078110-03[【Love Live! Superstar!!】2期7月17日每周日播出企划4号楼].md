@@ -11808,3 +11808,35 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 4082#       发表于 2022-9-7 21:31
+
+鼻贴居然还没拿下来
+
+一会还有推歌节目吧？看看这期星团的多动儿蓝组都整点啥活
+
+*****
+
+####  starring  
+##### 4083#       发表于 2022-9-7 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381439&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-7 20:54</a></blockquote>
+“我可没有外遇哦”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+声R这期做得太好（拱火的意义上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4084#       发表于 2022-9-7 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381981&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-7 21:33</a>
+“我可没有外遇哦”
+
+声R这期做得太好（拱火的意义上</blockquote>
+然后hnk和麻油鸡卿卿我我的
+
