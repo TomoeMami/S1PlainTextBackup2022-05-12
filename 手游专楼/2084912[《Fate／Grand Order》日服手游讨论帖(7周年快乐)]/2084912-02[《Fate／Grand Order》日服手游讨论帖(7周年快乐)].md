@@ -10290,3 +10290,82 @@ ELS（开20NP）+徐福+C呆+C呆
 狂+av，秩序只有els、宇宙凛、兰丸X三个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yls：你不会打白字或者蓝字？
 
+
+
+*****
+
+####  铁柱子  
+##### 2422#       发表于 2022-9-7 17:13
+
+有狂娜抽，不错不错<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 2423#       发表于 2022-9-7 17:15
+
+30抽没出狂那，寄！
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  exiaexa  
+##### 2424#       发表于 2022-9-7 17:16
+
+NMD开个图鉴都能双黄，能不能换个狂那给伊吹
+
+我特么给伊吹充的钱返利到这儿了是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁柱子  
+##### 2425#       发表于 2022-9-7 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378256&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-7 17:16</a>
+
+NMD开个图鉴都能双黄，能不能换个狂那给伊吹
+
+我特么给伊吹充的钱返利到这儿了是吧</blockquote>
+欧洲大佬恐怖如斯
+
+*****
+
+####  angelooo  
+##### 2426#       发表于 2022-9-7 17:18
+
+大佬们又开始豹跳了23333，顺便2.3为什么啥都没，这也太惨了
+
+*****
+
+####  qb0079  
+##### 2427#       发表于 2022-9-7 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这么快就豹跳的嘛
+
+*****
+
+####  铁柱子  
+##### 2428#       发表于 2022-9-7 17:19
+
+四个呼符结束战斗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 2429#       发表于 2022-9-7 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378290&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-7 17:18</a>
+
+欧洲大佬恐怖如斯</blockquote>
+你找个卡池沉上十几单你也可以
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 2430#       发表于 2022-9-7 17:20
+
+md10符歪了个三藏
+
