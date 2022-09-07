@@ -10672,3 +10672,25 @@ banana上次福袋4宝了，这次啥都不用抽</blockquote>
 因为关卡它就在那啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几天就没了  我比较好奇大奥和ccc那个1你都特意重打一次吗
 
+
+
+*****
+
+####  森兰丸  
+##### 2458#       发表于 2022-9-7 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381319&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-7 20:46</a>
+
+过几天就没了  我比较好奇大奥和ccc那个1你都特意重打一次吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了...大奥可是要你和活动一样重新一个个房间跑完的.....捏着鼻子用了1个多星期才打完
+
+*****
+
+####  alucardcz  
+##### 2459#       发表于 2022-9-7 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381407&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-7 20:52</a>
+
+CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了...大奥可是要你和活动一样重新一个个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完不是还有个1要再打一次boss吗
+

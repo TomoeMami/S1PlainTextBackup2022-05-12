@@ -11739,3 +11739,51 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 由手机上传
 2022-9-7 20:00 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 4078#       发表于 2022-9-7 20:54
+
+<img src="https://img.saraba1st.com/forum/202209/07/205414rbiyqciix525ppqg.png" referrerpolicy="no-referrer">
+
+<strong>29A28C68-0046-4824-8D03-DC21ACA9714A.png</strong> (95.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:54 上传
+
+*****
+
+####  仟音一心  
+##### 4079#       发表于 2022-9-7 20:57
+
+<img src="https://img.saraba1st.com/forum/202209/07/205720oh3achw69ehdd1j9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B52296D1-1979-4473-9283-D9CFD46E9FB3.jpeg</strong> (541.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202209/07/205721mzkeotouwroyie2d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6DED6FB6-BA3F-41DE-B3C6-F4EED97CD28D.jpeg</strong> (524.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202209/07/205729bc91qhdv6smkqmk8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>877BB4DC-979C-4EB9-8B39-6934FB4C2B0B.jpeg</strong> (107.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 20:57 上传
+
