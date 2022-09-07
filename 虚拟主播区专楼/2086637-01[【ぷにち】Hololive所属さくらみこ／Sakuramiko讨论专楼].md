@@ -12111,3 +12111,14 @@ babydance昨天播放50w了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恰独食去了
 
+
+
+*****
+
+####  a2276382  
+##### 1172#       发表于 2022-9-7 18:43
+
+这货又在rust出现了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
