@@ -11840,3 +11840,37 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1662382988
 声R这期做得太好（拱火的意义上</blockquote>
 然后hnk和麻油鸡卿卿我我的
 
+
+
+*****
+
+####  仟音一心  
+##### 4085#       发表于 2022-9-7 21:53
+
+kuma不开推的营业
+
+<img src="https://img.saraba1st.com/forum/202209/07/215332uy131t3itbv3063i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B9D76B91-689B-4B92-8FAE-C9F7140F2981.jpeg</strong> (178.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 21:53 上传
+
+<img src="https://img.saraba1st.com/forum/202209/07/215338y3i1163psacr71i7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9158D4B7-ACA5-444E-B631-EEB770634C91.jpeg</strong> (121.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-7 21:53 上传
+
+*****
+
+####  cybernetics31  
+##### 4086#       发表于 2022-9-7 21:58
+
+所以大熊为啥不开推…………
+
