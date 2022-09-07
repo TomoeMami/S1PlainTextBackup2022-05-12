@@ -11918,3 +11918,16 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了
 一会还有推歌节目吧？看看这期星团的多动儿蓝组都整点啥活 ...</blockquote>
 今晚推歌也是酸菜鱼捏
 
+
+
+*****
+
+####  iuhehc  
+##### 4091#       发表于 2022-9-8 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57382821&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-7 22:34</a>
+nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
+能说下那一段吗有点好奇，新人一起录之后我几乎不听完整广播了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

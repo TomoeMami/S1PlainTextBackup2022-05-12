@@ -3764,3 +3764,14 @@ fafa动态
 
 唱完歌直接无缝101了还行
 
+
+
+*****
+
+####  十九号大侠  
+##### 12395#       发表于 2022-9-8 00:22
+
+行，睡觉了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
