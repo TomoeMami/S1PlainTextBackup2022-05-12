@@ -8711,3 +8711,22 @@ Elira的ASMR，我死了<img src="https://static.saraba1st.com/image/smiley/face
 
 熊猫人怎么还有这种特技的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17299#       发表于 2022-9-7 18:50
+
+ 本帖最后由 poipanchao 于 2022-9-7 18:53 编辑 
+
+明天月奈这个马车联动对象……不破和西西……
+
+为什么大家同为叛忍，待遇差这么多呢
+
+gamers太温暖了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+等下，这个阵容怎么就“国际交流”了，不破你什么意思
+
+月奈是日本人！
+
