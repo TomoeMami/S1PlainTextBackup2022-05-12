@@ -11874,3 +11874,25 @@ kuma不开推的营业
 
 所以大熊为啥不开推…………
 
+
+
+*****
+
+####  lj205  
+##### 4087#       发表于 2022-9-7 22:20
+
+这也是一种人设
+
+*****
+
+####  ads147147  
+##### 4088#       发表于 2022-9-7 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57381797&amp;ptid=2078110" target="_blank">adw667 发表于 2022-9-7 21:19</a>
+80期广播讨论剧情给鱼干沉默了还行，上一个在节目里给鱼干沉默的是白草莓声优盾是真的恶心，我第一 ...</blockquote>
+鲤鱼：我能骂人吗？不能啊，那我没啥说的jpg
+
+不过我觉得白草莓应该还好，鲤鱼的反应也不是难吃，鲤鱼大概只是找不到词形容（日语）。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
