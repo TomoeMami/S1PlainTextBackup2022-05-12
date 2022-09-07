@@ -10483,3 +10483,20 @@ md10符歪了个三藏
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少50充怎么算  有的人自己带宝威的怎么算
 
+
+
+*****
+
+####  音無麻理亜  
+##### 2440#       发表于 2022-9-7 17:55
+
+这次更新竟然能完全支持Xperia的21:9屏幕了，可谓是索尼音乐和索尼移动在one Sony上的重大突破<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/07/175534m1o8cd19yibb3cb0.jpg" referrerpolicy="no-referrer">
+
+<strong>721892dfgy1h5y6t5m9jhj22yo19oqv5.jpg</strong> (21.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-7 17:55 上传
+
