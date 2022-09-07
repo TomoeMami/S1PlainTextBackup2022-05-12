@@ -10395,3 +10395,68 @@ md10符歪了个三藏
 
 一个可以无视的debuff技能封印，还行吧？
 
+
+
+*****
+
+####  exiaexa  
+##### 2433#       发表于 2022-9-7 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378331&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-9-7 17:20</a>
+
+这是可以给别人的特攻吧？</blockquote>
+扔不出去啊
+
+大象给的NP率只有1t，单核可能会卡np
+
+多核大象自己伤害感人
+
+最后可能只会是个奥博龙的用法
+
+关底换人补个伤害
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 2434#       发表于 2022-9-7 17:30
+
+ 本帖最后由 eyeego 于 2022-9-7 17:32 编辑 
+
+大象主场依然没捞到强化 惨惨惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦草 在幕间强化了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2435#       发表于 2022-9-7 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378450&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-7 17:27</a>
+
+复合一回合无敌，三回合30黄金律30宝威50秩序特攻
+
+一个可以无视的debuff技能封印，还行吧？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么意义？ 扔完之后呢？ 队伍位置-1？
+
+*****
+
+####  alucardcz  
+##### 2436#       发表于 2022-9-7 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57378497&amp;ptid=2084912" target="_blank">eyeego 发表于 2022-9-7 17:30</a>
+
+大象主场依然没捞到强化 惨惨惨
+
+哦草 在幕间强化了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">但是小太阳没强化！
+
+*****
+
+####  リッチ  
+##### 2437#       发表于 2022-9-7 17:37
+
+10护符+360石两宝
+
+白方块已经见底，材料要刷到猴年马月了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
