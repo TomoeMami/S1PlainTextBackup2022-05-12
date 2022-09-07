@@ -12022,3 +12022,12 @@ babydance昨天播放50w了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1163#         楼主| 发表于 2022-9-7 11:00
+
+不过是在miko说要唱luna的曲子的时候才出现的
+
