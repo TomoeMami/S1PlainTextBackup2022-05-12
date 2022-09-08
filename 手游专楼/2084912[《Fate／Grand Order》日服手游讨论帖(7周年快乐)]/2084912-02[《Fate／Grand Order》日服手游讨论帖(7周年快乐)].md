@@ -10766,3 +10766,14 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 不过狂娜还是没强化，幕间本也没强化，看来叶子还未想好他如何强化才好...
 
+
+
+*****
+
+####  風卷豹  
+##### 2467#       发表于 2022-9-8 18:45
+
+这个哪咤真的是打吐了，没有卑只能带超人熊打暴击，凭什么第一条血那么长啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，狂那都比他合理一点
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
