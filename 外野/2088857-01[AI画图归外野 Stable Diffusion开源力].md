@@ -1615,3 +1615,17 @@ disco和stable diffusion都可以用Google colab跑，也有网页版UI，你花
 
 mark
 
+
+
+*****
+
+####  schneehertz  
+##### 109#       发表于 2022-9-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57398730&amp;ptid=2088857" target="_blank">拜拜 发表于 2022-9-8 21:01</a>
+
+一定要3060级别的才能玩吗
+
+—— 来自 Hisense HNR320T, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+1060就行
+
