@@ -8850,3 +8850,19 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Junchoon  
+##### 17309#       发表于 2022-9-8 19:01
+
+“サロメ嬢満点杯”都是什么鬼，这啥玩意啊......
+
+*****
+
+####  winda  
+##### 17310#       发表于 2022-9-8 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Luca这明说不会公开道歉，这么刚的么
+

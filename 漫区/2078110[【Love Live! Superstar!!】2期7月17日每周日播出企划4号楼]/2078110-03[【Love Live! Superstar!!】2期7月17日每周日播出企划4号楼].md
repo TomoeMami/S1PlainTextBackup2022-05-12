@@ -12335,3 +12335,37 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 鱼去看自己了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 4129#       发表于 2022-9-8 19:03
+
+<img src="https://img.saraba1st.com/forum/202209/08/190339rw8w0xxkpgg4wpw5.jpg" referrerpolicy="no-referrer">
+
+<strong>0f22eaf9f4373af63e9346527219dc8d.jpg</strong> (497.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202209/08/190347zv3cju1mcuaz3ui6.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-09-08 190227.png</strong> (14.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 19:03 上传
+
+*****
+
+####  ads147147  
+##### 4130#       发表于 2022-9-8 19:11
+
+是拍广告的时候还胖了点吗，现在感觉好瘦哦。
+
+鱼最开始宣布加入企划的时候，给的照片也是和现在不像是一个人一样。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
