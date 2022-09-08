@@ -1579,3 +1579,17 @@ marker 一下
 
 这个AI作画出来的玩意SAN值掉的好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  唯登诗树  
+##### 106#       发表于 2022-9-8 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57398730&amp;ptid=2088857" target="_blank">拜拜 发表于 2022-9-8 21:01</a>
+
+一定要3060级别的才能玩吗
+
+—— 来自 Hisense HNR320T, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+midjourney不用你的电脑算，只要出钱就行
+
