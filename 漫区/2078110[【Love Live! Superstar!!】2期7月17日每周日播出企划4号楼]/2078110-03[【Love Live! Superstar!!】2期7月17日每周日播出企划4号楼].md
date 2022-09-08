@@ -12051,3 +12051,42 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 双C的安康鱼亲女儿，云三岁和粉绿都是挂件，只不过没星那么离谱，而且要姐凭借女人唱歌男人死免于沦为挂件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 4102#       发表于 2022-9-8 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57391956&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-8 15:48</a>
+LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头都拉满，后半段各种拉跨。
+
+双C的安康鱼亲女儿， ...</blockquote>
+安康鱼可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在可不觉得香哥哥有啥吸引人的
+
+*****
+
+####  player3960  
+##### 4103#       发表于 2022-9-8 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57391956&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-8 15:48</a>
+
+LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头都拉满，后半段各种拉跨。
+
+双C的安康鱼亲女儿， ...</blockquote>
+我去年也在楼里吐槽像马三角了，海选素人主角，未成年中之人，动画前期神后面尿崩，出来的时候也是被f厨婊的飞起，销量不如前作恨铁不成钢，不过看看人家女武神这几年发展还是不错的，我看cd好像还能卖过5w啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4104#       发表于 2022-9-8 15:59
+
+这就不得不感谢一下花田了，真敢爆种，导致现在企划洗了半天脑都不怎么成功，而且现在报复性劣化角色和强推角色反而加强了小星星篇的含金量，只能说企划实在不服，有本事你remake阿！
+
+*****
+
+####  cybernetics31  
+##### 4105#       发表于 2022-9-8 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年马三角和f那碟没王之力可是上过圈榜第一的，人家核心粉这么多年，比不了比不了
+
