@@ -12300,3 +12300,29 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 就我个人而言星的歌好听的还是挺多的，二期的歌也还可以，表演起来效果如何那就得等到live见真章了。另外在这个楼里玩命提马三角干啥，根本就不是一个类别的玩意
 
+
+
+*****
+
+####  player3960  
+##### 4125#       发表于 2022-9-8 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57394287&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-09-08 17:46:10</a>
+就我个人而言星的歌好听的还是挺多的，二期的歌也还可以，表演起来效果如何那就得等到live见真章了。另外在 ...</blockquote>提马三角本意只是觉得这两企划蛮多相像的地方而已，成员构成，系列地位什么的，不知道怎么就歪到实力对比去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  梶原ひかり  
+##### 4126#       发表于 2022-9-8 17:56
+
+主要都有海选成分 所以容易拿来对照 比较吧..<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4127#       发表于 2022-9-8 18:00
+
+两个相像的企划，这边被运营搞得一团糟又爱又恨，越比较越酸了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
