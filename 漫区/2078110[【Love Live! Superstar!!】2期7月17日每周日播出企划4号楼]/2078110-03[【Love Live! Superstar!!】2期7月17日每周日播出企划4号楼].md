@@ -12564,3 +12564,24 @@ s1不是有屏蔽功能吗，估计已经在我黑名单里了<img src="https://
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  靡宜  
+##### 4148#       发表于 2022-9-9 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57401931&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-9 00:21</a>
+
+这个杂志不会提及未播出剧情吧？
+
+回国集不是早有预料么，天知道什么鬼理由（结果是回家过新年就笑死了） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">本来被328承认就不能说是什么事迹，直接派唐悠悠过来逮人也能圆
+
+*****
+
+####  ViyViy  
+##### 4149#       发表于 2022-9-9 00:28
+
+不会搞那种被初中生双杀然后自闭跑路的恶心桥段吧，而且第八话也不是大赛啊。真的要为了那逼追机把角色摔个粉碎？
+
