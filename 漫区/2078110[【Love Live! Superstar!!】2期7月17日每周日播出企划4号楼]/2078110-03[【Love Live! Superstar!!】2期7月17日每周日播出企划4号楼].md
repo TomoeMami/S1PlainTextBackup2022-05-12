@@ -12161,3 +12161,19 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 简直一模一样，星现在也被水虹粉婊得飞起，甚至自家粉丝也要婊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 虽说路线不一样，但是飞狗给女武神每个人的资源都很足，相比之下烂铁只将她们绑死在LL一个企划内
 
+
+
+*****
+
+####  Blackson  
+##### 4111#       发表于 2022-9-8 16:36
+
+话说这强推Leader的操作老让我想到今年的超级战队
+
+*****
+
+####  a92063256  
+##### 4112#       发表于 2022-9-8 16:36
+
+想起来9.21就是OPED发售活动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看二期生的成色究竟如何了
+

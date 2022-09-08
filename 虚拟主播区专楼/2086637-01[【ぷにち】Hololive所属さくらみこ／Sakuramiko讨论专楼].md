@@ -12499,3 +12499,34 @@ rust作业的时候在和其他人里通话不方便直播吧
 
 马自立据说要和其他人同居，大头也是
 
+
+
+*****
+
+####  rs5621  
+##### 1210#       发表于 2022-9-8 16:32
+
+ 本帖最后由 rs5621 于 2022-9-8 16:33 编辑 
+
+发推了，那个罐头是蛋糕啊，那这保质期还行吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合法吃桃（桃子味蛋糕），只能羡慕岛国的35p了
+
+J0KU%`_XT1LD_]{EGF4_0V8.jpg
+(111.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 16:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/08/163203sbr0rr9pzddollrk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1211#         楼主| 发表于 2022-9-8 16:37
+
+今晚播什么
+
+应该不能rust吧，什么进展都没有
+
+明天肯定是holocure和喷喷
+
