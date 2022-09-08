@@ -8814,3 +8814,12 @@ Fucking retard can not read
 
 Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID VR的联动，没想到跟JP联动也不少。其他EN多少能说点日语，她是真的一点都不懂，然后还能跑去跟几乎完全不懂英语的不破凑联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17306#       发表于 2022-9-8 11:36
+
+上班难受的时候就打开王子直播沾沾黑心企业离职人的喜气…
+
