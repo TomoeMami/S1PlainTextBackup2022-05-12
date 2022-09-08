@@ -12645,3 +12645,39 @@ MC要等运动会发表了才有内容播要不也没特别的事情做
 
 去撩ame了，果然是花心大萝卜
 
+
+
+*****
+
+####  a2276382  
+##### 1221#       发表于 2022-9-8 18:54
+
+ame 之前那个双马尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 1222#       发表于 2022-9-8 18:54
+
+不错不错，和ame在一起说话语气都变软的
+
+挂小窗听着就很棒
+
+*****
+
+####  a2276382  
+##### 1223#       发表于 2022-9-8 18:57
+
+这是什么世界名画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 1224#         楼主| 发表于 2022-9-8 18:57
+
+这3P了
+

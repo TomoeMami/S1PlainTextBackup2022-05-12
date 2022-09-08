@@ -10777,3 +10777,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2468#       发表于 2022-9-8 18:58
+
+哪咤搜到个方便操作的速通阵容，然而大腿没人挂输出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
