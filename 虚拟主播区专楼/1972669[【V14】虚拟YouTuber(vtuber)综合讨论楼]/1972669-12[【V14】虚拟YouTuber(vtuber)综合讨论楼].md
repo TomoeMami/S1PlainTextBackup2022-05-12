@@ -8756,3 +8756,17 @@ Luca操作不当把mc服务器回退版本结果把前辈一大堆东西给炸�
 
 要是Vox的话微博上大字报已经贴出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 17302#       发表于 2022-9-8 08:02
+
+<blockquote>Ketestrait 发表于 2022-9-7 18:41
+https://youtu.be/iitE8dOhxeM
+
+今まで隠していた特技をお见せします。
+</blockquote>
+评论“终于干了点像熊猫的事了”
+
