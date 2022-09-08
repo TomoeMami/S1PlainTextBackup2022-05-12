@@ -10800,3 +10800,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 换成一隻哪咤，刚好宝5...</blockquote>
 不是没想到而是没打算强化吧
 
+
+
+*****
+
+####  exiaexa  
+##### 2470#       发表于 2022-9-8 21:05
+
+等着做核酸的时候打完了
+
+翻车最多的是强化哪咤的眩晕，亲身证明不要不信邪，该换老换人服就换
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
