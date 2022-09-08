@@ -11958,3 +11958,29 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 
 虽然我觉得可能大家都去舔vn了也说不定，其实vn那个人设蛮戳我的（很光美）
 
+
+
+*****
+
+####  saya1892  
+##### 4094#       发表于 2022-9-8 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57384603&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-8 01:31</a>
+
+18分40秒左右开始的 
+
+就是聊到tp北海道的香音时 突然化身千用奇怪的语调说了几句“我家香音太棒了 说的话 ...</blockquote>
+不太像，可能是发自内心
+
+毕竟宫城小星星刚唱完就冲上来了（说实话这里有点倒胃口）
+
+*****
+
+####  仟音一心  
+##### 4095#       发表于 2022-9-8 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57384603&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-8 01:31</a>
+18分40秒左右开始的 
+就是聊到tp北海道的香音时 突然化身千用奇怪的语调说了几句“我家香音太棒了 说的话 ...</blockquote>
+我觉得已经实在没话说了吧，不然还能怎么办呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
