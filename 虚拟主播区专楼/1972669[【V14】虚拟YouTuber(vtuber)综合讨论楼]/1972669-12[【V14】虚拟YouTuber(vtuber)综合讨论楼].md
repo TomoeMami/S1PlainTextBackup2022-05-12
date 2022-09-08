@@ -8770,3 +8770,31 @@ https://youtu.be/iitE8dOhxeM
 </blockquote>
 评论“终于干了点像熊猫的事了”
 
+
+
+*****
+
+####  IL282  
+##### 17303#       发表于 2022-9-8 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57356933&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-9-6 01:51</a>
+toto终于被特定了啊，只剩下难攻不落的nzn了
+
+ema感觉是真实素人，不然这个声线能藏到现在实在不太现实</blockquote>
+y1s1好像确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Enna和Selen俩华裔过于强大
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 17304#       发表于 2022-9-8 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57385241&amp;ptid=1972669" target="_blank">lanslort 发表于 2022-9-8 03:07</a>
+Luca操作不当把mc服务器回退版本结果把前辈一大堆东西给炸没了，备份还只有五月份的Pomu现在重建
+
+ ...</blockquote>
+Fucking retard can not read<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

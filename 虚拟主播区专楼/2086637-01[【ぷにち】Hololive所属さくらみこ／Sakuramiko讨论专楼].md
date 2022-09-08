@@ -12316,3 +12316,12 @@ babydance昨天播放50w了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1193#         楼主| 发表于 2022-9-8 09:49
+
+推特陆续报告粘土到货了
+
