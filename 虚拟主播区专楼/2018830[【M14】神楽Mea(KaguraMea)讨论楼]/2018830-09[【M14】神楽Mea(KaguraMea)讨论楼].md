@@ -3775,3 +3775,14 @@ fafa动态
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蒋春霖  
+##### 12396#       发表于 2022-9-8 22:30
+
+仔细看了下公告，这个居然能在线上买，不用托人了！<img src="https://p.sda1.dev/7/332e6cf257f69dd23cf234e1e8ea6d77/IMG_CMP_74695616.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
