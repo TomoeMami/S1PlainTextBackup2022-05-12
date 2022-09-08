@@ -12027,3 +12027,27 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">强推的后果就是历代最差的一对青梅组，被步侑爆杀
 
+
+
+*****
+
+####  player3960  
+##### 4100#       发表于 2022-9-8 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57391503&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-8 15:24</a>
+
+我寻思之前的团也没这么推立德的啊</blockquote>
+apb和运营早就有py交易了，不然为啥海选必须签它下面，还一次签了3个素人，参与企划的就有4个人，估计立项前就决定猪肉要最大的那块了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4101#       发表于 2022-9-8 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57391503&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-8 15:24</a>
+
+我寻思之前的团也没这么推立德的啊</blockquote>
+LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头都拉满，后半段各种拉跨。
+
+双C的安康鱼亲女儿，云三岁和粉绿都是挂件，只不过没星那么离谱，而且要姐凭借女人唱歌男人死免于沦为挂件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
