@@ -12371,3 +12371,27 @@ babydance昨天播放50w了
 
 rust作业的时候在和其他人里通话不方便直播吧
 
+
+
+*****
+
+####  holoan  
+##### 1198#         楼主| 发表于 2022-9-8 12:12
+
+<img src="https://img.saraba1st.com/forum/202209/08/121233lt351c5na8agtr44.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (333.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 12:12 上传
+
+*****
+
+####  rs5621  
+##### 1199#       发表于 2022-9-8 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能这么玩啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
