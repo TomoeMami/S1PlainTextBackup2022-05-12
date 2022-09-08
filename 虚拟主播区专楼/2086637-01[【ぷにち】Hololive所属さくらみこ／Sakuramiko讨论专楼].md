@@ -12336,3 +12336,20 @@ babydance昨天播放50w了
 
 也是一种逆向欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正就看昨天播放量疯狂涨
 
+
+
+*****
+
+####  holoan  
+##### 1195#         楼主| 发表于 2022-9-8 11:01
+
+<img src="https://img.saraba1st.com/forum/202209/08/110115nf1agaahfwgd7ja7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 11:01 上传
+
+巧可得直播里看到了一个巨型塔状据点有人推测应该是micomet昨晚搭的
+
