@@ -11947,3 +11947,14 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 就是聊到tp北海道的香音时 突然化身千用奇怪的语调说了几句“我家香音太棒了 说的话很能打动人”  完了直接开始熊外套可爱捏
 这半分多钟鱼一句话没说然后直接跳过香音起了个头开始聊CEO  看着还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 4093#       发表于 2022-9-8 09:14
+
+突然意识到下周一中秋放假，可以在楼里鞭尸一整晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我觉得可能大家都去舔vn了也说不定，其实vn那个人设蛮戳我的（很光美）
+
