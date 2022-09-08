@@ -12177,3 +12177,23 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 想起来9.21就是OPED发售活动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看二期生的成色究竟如何了
 
+
+
+*****
+
+####  lage  
+##### 4113#       发表于 2022-9-8 16:48
+
+<blockquote>player3960 发表于 2022-9-8 15:57
+我去年也在楼里吐槽像马三角了，海选素人主角，未成年中之人，动画前期神后面尿崩，出来的时候也是被f厨 ...</blockquote>
+因为女武神歌没拉胯。女武神的歌和live薄纱星星。
+
+*****
+
+####  ads147147  
+##### 4114#       发表于 2022-9-8 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实际上第一期在11话出来前也没那么香音传啊，不过说起来第一期11话我还猜的追飞机，没想到的红温香音表演一年三熟。你们中国人还想要个人回，做梦jpg
+
+也不知道万代上头到底什么脑子，现在完全是捧杀，你当小百合是水树奈奈么。
+
