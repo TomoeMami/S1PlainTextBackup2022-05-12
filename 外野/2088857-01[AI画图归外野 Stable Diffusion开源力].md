@@ -1593,3 +1593,16 @@ marker 一下
 —— 来自 Hisense HNR320T, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 midjourney不用你的电脑算，只要出钱就行
 
+
+
+*****
+
+####  圈量子  
+##### 107#       发表于 2022-9-8 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57398730&amp;ptid=2088857" target="_blank">拜拜 发表于 2022-9-8 21:01</a>
+一定要3060级别的才能玩吗
+
+—— 来自 Hisense HNR320T, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+disco和stable diffusion都可以用Google colab跑，也有网页版UI，你花钱买点数或者买colab pro用谷歌这些公司的gpu跑就行了
+
