@@ -1515,3 +1515,38 @@ hdyw1o181el91.webp
 
 2022-9-8 19:39 上传
 
+
+
+*****
+
+####  唯登诗树  
+##### 102#       发表于 2022-9-8 19:51
+
+Lovely Japanese high school girl,intricate stunning highly detailed girl by artgerm and RHADS, portrait, soft studio lighting, ultra realistic, photorealistic, octane render, unreal engine, hyper detailed, volumetric lighting, hdr, octane render, fantasy, 
+
+<img src="https://img.saraba1st.com/forum/202209/08/195110ejvygplbajcqij7l.jpg" referrerpolicy="no-referrer">
+
+<strong>Takhiss_Lovely_Japanese_high_school_girlintricate_stunning_high_2a7681d2-7809-48.jpg</strong> (47.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 19:51 上传
+
+然后修正一下
+
+<img src="https://img.saraba1st.com/forum/202209/08/195110h1jhik3hhs78hj5s.jpg" referrerpolicy="no-referrer">
+
+<strong>grid_0 (42).jpg</strong> (40.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 19:51 上传
+
+<img src="https://img.saraba1st.com/forum/202209/08/195110i35m1djqz9ejz7rt.jpg" referrerpolicy="no-referrer">
+
+<strong>grid_0 (43).jpg</strong> (51.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 19:51 上传
+

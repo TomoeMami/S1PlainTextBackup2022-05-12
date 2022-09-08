@@ -10786,3 +10786,17 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 哪咤搜到个方便操作的速通阵容，然而大腿没人挂输出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2469#       发表于 2022-9-8 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57390145&amp;ptid=2084912" target="_blank">eilot 发表于 2022-9-8 13:39</a>
+
+昨天送的10张符
+
+换成一隻哪咤，刚好宝5...</blockquote>
+不是没想到而是没打算强化吧
+
