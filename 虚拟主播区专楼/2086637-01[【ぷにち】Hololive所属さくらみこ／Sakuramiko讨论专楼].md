@@ -12556,3 +12556,33 @@ MC要等运动会发表了才有内容播要不也没特别的事情做
 
 倒是0点喷3解禁但是播的可能性很低
 
+
+
+*****
+
+####  rs5621  
+##### 1214#       发表于 2022-9-8 17:20
+
+ 本帖最后由 rs5621 于 2022-9-8 17:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/08/172126drzppn0prcj5djnj.png" referrerpolicy="no-referrer">
+
+<strong>MN@W%`[[G1)B62`@W07SD`Q.PNG</strong> (183.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 17:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推来了，是rust捏！
+
+果然瘾大
+
+七字母同居，真！
+
+*****
+
+####  holoan  
+##### 1215#         楼主| 发表于 2022-9-8 17:24
+
+不知道是不是播到21点还是怎么样的
+
