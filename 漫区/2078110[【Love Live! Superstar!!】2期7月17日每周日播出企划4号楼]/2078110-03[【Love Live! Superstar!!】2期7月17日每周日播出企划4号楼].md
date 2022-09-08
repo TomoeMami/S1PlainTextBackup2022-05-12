@@ -12238,3 +12238,40 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 这些我当然知道，但你这垮服匹配就没意思了，当年人家f厨可是拿部长在薄纱呢，你铃果和junna拿什么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 4119#       发表于 2022-9-8 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，不是一个赛道的，打铁可没当年铃果和Junna这么惊艳，当初女武神2nd铃果和Junna那首love thunder glow，就铃果那和声的技巧打铁根本不会好嘛。
+
+*****
+
+####  cybernetics31  
+##### 4120#       发表于 2022-9-8 17:05
+
+别歪了啊，女武神比星，macross内部f和三角对比这个别拿本楼来啊(
+
+*****
+
+####  沙茶酱  
+##### 4121#       发表于 2022-9-8 17:06
+
+感觉跨赛道比不好吧，只能说别人选人确实有一手，甘拜下风。拉拉还是和拉拉自己前辈比吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 4122#       发表于 2022-9-8 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57393144&amp;ptid=2078110" target="_blank">lage 发表于 2022-9-8 16:56</a>
+我能说我从来没觉得她有多优秀吗
+
+千篇一律的捧杀词像买的通稿一样，队内都不算top级，别提队外比 ...</blockquote>
+打铁的天赋和实力都有，只不过运营打催熟剂那样不给她巩固基础的时间。以跨年live为分界线，打铁的状态只能说越来越微妙。但愿经过几年的磨练能得到应有的成长
+女武神那边最开始铃果也比不上junna，经过几年发展铃果的实力飞涨，反而junna的实力没怎么提升，唱歌的路子也变窄了。
+
