@@ -12135,3 +12135,29 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 安康鱼的表现还是对得起亲女儿的头衔，九月剧场版BD发售肯定还能再拉一票好感和同情分<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 至于香哥哥，花田大师还是土下座吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4109#       发表于 2022-9-8 16:15
+
+<img src="https://img.saraba1st.com/forum/202209/08/161511qvpimvkhevyvupwk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F2BCB29C-9392-46DD-8956-C0B1E7C17504.jpeg</strong> (149.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-8 16:15 上传
+
+*****
+
+####  starring  
+##### 4110#       发表于 2022-9-8 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392141&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-8 15:57</a>
+我去年也在楼里吐槽像马三角了，海选素人主角，未成年中之人，动画前期神后面尿崩，出来的时候也是被f厨 ...</blockquote>
+简直一模一样，星现在也被水虹粉婊得飞起，甚至自家粉丝也要婊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽说路线不一样，但是飞狗给女武神每个人的资源都很足，相比之下烂铁只将她们绑死在LL一个企划内
+

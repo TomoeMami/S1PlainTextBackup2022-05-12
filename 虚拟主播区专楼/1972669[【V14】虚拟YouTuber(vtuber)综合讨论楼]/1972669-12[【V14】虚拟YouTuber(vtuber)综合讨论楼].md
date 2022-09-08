@@ -8832,3 +8832,21 @@ Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID VR�
 
 喷惹 还真被预言中了 郡道下周B限和meso联动
 
+
+
+*****
+
+####  IL282  
+##### 17308#       发表于 2022-9-8 16:13
+
+ 本帖最后由 IL282 于 2022-9-8 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57387373&amp;ptid=1972669" target="_blank">lanslort 发表于 2022-9-8 10:27</a>
+因为EN服好像是Finana自己租的来着 
+
+Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID V ...</blockquote>
+哪怕先花钱雇一个mod呢，希望租期是半年或一年早点到期吧
+
+Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上跟闭了麦一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
