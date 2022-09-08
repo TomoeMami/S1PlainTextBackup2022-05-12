@@ -12197,3 +12197,44 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 也不知道万代上头到底什么脑子，现在完全是捧杀，你当小百合是水树奈奈么。
 
+
+
+*****
+
+####  ViyViy  
+##### 4115#       发表于 2022-9-8 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星二这除了中之人感觉都在摆的样子，高层内斗故意整蛊的阴谋论可以堂堂连载了。
+
+*****
+
+####  阿姆罗二世  
+##### 4116#       发表于 2022-9-8 16:55
+
+小百合被捧杀太严重了，明明业务能力过硬结果配了大香老师这个一言难尽的角色
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lage  
+##### 4117#       发表于 2022-9-8 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392991&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-8 16:48</a>
+
+实际上第一期在11话出来前也没那么香音传啊，不过说起来第一期11话我还猜的追飞机，没想到的红温香 ...</blockquote>
+我能说我从来没觉得她有多优秀吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+千篇一律的捧杀词像买的通稿一样，队内都不算top级，别提队外比较了
+
+*****
+
+####  player3960  
+##### 4118#       发表于 2022-9-8 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392982&amp;ptid=2078110" target="_blank">lage 发表于 2022-9-8 16:48</a>
+
+因为女武神歌没拉胯。女武神的歌和live薄纱星星。强推女主安康鱼不招黑，中之人铃木实力过硬还越来越强， ...</blockquote>
+
+这些我当然知道，但你这垮服匹配就没意思了，当年人家f厨可是拿部长在薄纱呢，你铃果和junna拿什么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
