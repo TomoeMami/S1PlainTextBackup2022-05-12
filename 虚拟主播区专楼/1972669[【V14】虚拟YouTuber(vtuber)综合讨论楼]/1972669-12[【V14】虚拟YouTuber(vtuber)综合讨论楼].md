@@ -8798,3 +8798,19 @@ Fucking retard can not read<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lanslort  
+##### 17305#       发表于 2022-9-8 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57386749&amp;ptid=1972669" target="_blank">IL282 发表于 2022-9-8 09:50</a>
+
+Fucking retard can not read
+
+不过en服这个管理，要不还是摊钱顾一个管理吧，或者让干脆Staff帮 ...</blockquote>
+因为EN服好像是Finana自己租的来着 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID VR的联动，没想到跟JP联动也不少。其他EN多少能说点日语，她是真的一点都不懂，然后还能跑去跟几乎完全不懂英语的不破凑联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
