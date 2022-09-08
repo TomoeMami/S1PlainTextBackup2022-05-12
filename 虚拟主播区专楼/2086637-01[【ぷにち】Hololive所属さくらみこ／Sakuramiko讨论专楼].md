@@ -12325,3 +12325,14 @@ babydance昨天播放50w了
 
 推特陆续报告粘土到货了
 
+
+
+*****
+
+####  holoan  
+##### 1194#         楼主| 发表于 2022-9-8 10:51
+
+说昨天早上歌回要转会限到现在还没转怕是沉迷rust直接忘光了
+
+也是一种逆向欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正就看昨天播放量疯狂涨
+
