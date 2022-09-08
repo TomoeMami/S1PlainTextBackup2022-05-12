@@ -12369,3 +12369,21 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 4131#       发表于 2022-9-8 19:38
+
+究极进化版
+
+<img src="https://img.saraba1st.com/forum/202209/08/193846qzzkzjt7qrmjzeqk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E9B24E4B-FC54-4048-9DDC-E30ADAB40265.jpeg</strong> (257.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-8 19:38 上传
+
