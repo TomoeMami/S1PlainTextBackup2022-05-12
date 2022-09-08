@@ -1606,3 +1606,12 @@ midjourney不用你的电脑算，只要出钱就行
 —— 来自 Hisense HNR320T, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 disco和stable diffusion都可以用Google colab跑，也有网页版UI，你花钱买点数或者买colab pro用谷歌这些公司的gpu跑就行了
 
+
+
+*****
+
+####  yoyokrieg  
+##### 108#       发表于 2022-9-8 22:16
+
+mark
+
