@@ -12275,3 +12275,19 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 打铁的天赋和实力都有，只不过运营打催熟剂那样不给她巩固基础的时间。以跨年live为分界线，打铁的状态只能说越来越微妙。但愿经过几年的磨练能得到应有的成长
 女武神那边最开始铃果也比不上junna，经过几年发展铃果的实力飞涨，反而junna的实力没怎么提升，唱歌的路子也变窄了。
 
+
+
+*****
+
+####  lage  
+##### 4123#       发表于 2022-9-8 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57393547&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-8 17:11</a>
+
+打铁的天赋和实力都有，只不过运营打催熟剂那样不给她巩固基础的时间。以跨年live为分界线，打铁的状态只 ...</blockquote>
+看起来是摆了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+当立德和空气一样，队里一团散沙各自为战，上生放没亮点，fmt下来mc控场整活水平可以和李玉竞争老五人垫底<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+这么摆的企划还能续多久
+
