@@ -1570,3 +1570,12 @@ marker 一下
 
 —— 来自 Hisense HNR320T, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  wolfwood  
+##### 105#       发表于 2022-9-8 21:24
+
+这个AI作画出来的玩意SAN值掉的好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
