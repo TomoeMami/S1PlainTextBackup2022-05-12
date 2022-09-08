@@ -12772,3 +12772,14 @@ hhh又玩火烧家了
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1233#         楼主| 发表于 2022-9-9 02:20
+
+每天光播rust就够了你这吊人，到底搞什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

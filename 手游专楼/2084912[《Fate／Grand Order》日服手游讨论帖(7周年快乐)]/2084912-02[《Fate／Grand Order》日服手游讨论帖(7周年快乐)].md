@@ -10812,3 +10812,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 翻车最多的是强化哪咤的眩晕，亲身证明不要不信邪，该换老换人服就换
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2471#       发表于 2022-9-9 02:03
+
+闲的无聊打算用钢哥跟茨木玩玩，谁知道钢哥一进去有个特殊Buff，1宝70级黑杯打了100多万。
+
