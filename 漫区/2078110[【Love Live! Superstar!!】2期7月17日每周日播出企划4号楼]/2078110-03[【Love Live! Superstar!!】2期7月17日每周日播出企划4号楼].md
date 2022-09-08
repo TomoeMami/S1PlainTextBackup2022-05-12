@@ -12018,3 +12018,12 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思之前的团也没这么推立德的啊
 
+
+
+*****
+
+####  kbtit  
+##### 4099#       发表于 2022-9-8 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">强推的后果就是历代最差的一对青梅组，被步侑爆杀
+
