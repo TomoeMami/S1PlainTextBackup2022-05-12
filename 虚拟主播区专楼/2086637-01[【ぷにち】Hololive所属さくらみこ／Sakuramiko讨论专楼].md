@@ -12421,3 +12421,12 @@ rust作业的时候在和其他人里通话不方便直播吧
 
 2022-9-8 12:38 上传
 
+
+
+*****
+
+####  rs5621  
+##### 1202#       发表于 2022-9-8 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下，昨天不是说今天mc的么，几时播，不会又忘了吧
+
