@@ -12430,3 +12430,12 @@ rust作业的时候在和其他人里通话不方便直播吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下，昨天不是说今天mc的么，几时播，不会又忘了吧
 
+
+
+*****
+
+####  holoan  
+##### 1203#         楼主| 发表于 2022-9-8 15:03
+
+不知道，反正说了之后不播已经见怪不怪了，懒得去想了
+
