@@ -12414,3 +12414,35 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 看了楼上某只生物在外野的发言，只能说不亏跟紫吧一丘之貉，都一副汉奸样，早就说过了紫吧与其反鲤鱼，不如说反华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4135#       发表于 2022-9-8 20:02
+
+谁啊，叫啥，我留个心眼
+
+*****
+
+####  we89623  
+##### 4136#       发表于 2022-9-8 20:05
+
+没想到厕所垃圾也混S1啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 4137#       发表于 2022-9-8 20:05
+
+这恨的呀，这么恨怎么还不润<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猫睛石  
+##### 4138#       发表于 2022-9-8 20:06
+
+没本事润吧，可以多练练游泳
+
