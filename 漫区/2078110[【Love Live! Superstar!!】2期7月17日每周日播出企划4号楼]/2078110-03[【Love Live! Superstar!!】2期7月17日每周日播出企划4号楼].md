@@ -12009,3 +12009,12 @@ nako那段我听着很像在yygq啊 可能是我太阴湿了</blockquote>
 
 虽然我个人是一期生箱推但我真心觉得这个企划的自我认知就是这样的，不然是无法解释这些连续的骚操作的
 
+
+
+*****
+
+####  cybernetics31  
+##### 4098#       发表于 2022-9-8 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思之前的团也没这么推立德的啊
+
