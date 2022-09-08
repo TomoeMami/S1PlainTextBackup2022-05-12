@@ -1559,3 +1559,14 @@ Lovely Japanese high school girl,intricate stunning highly detailed girl by artg
 
 marker 一下
 
+
+
+*****
+
+####  拜拜  
+##### 104#       发表于 2022-9-8 21:01
+
+一定要3060级别的才能玩吗
+
+—— 来自 Hisense HNR320T, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
