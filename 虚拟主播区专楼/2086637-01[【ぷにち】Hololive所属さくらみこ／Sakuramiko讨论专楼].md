@@ -12353,3 +12353,21 @@ babydance昨天播放50w了
 
 巧可得直播里看到了一个巨型塔状据点有人推测应该是micomet昨晚搭的
 
+
+
+*****
+
+####  a2276382  
+##### 1196#       发表于 2022-9-8 11:10
+
+这帮人 开直播多好 还有sc  干嘛要吃独食<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 1197#         楼主| 发表于 2022-9-8 11:12
+
+rust作业的时候在和其他人里通话不方便直播吧
+
