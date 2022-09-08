@@ -12549,3 +12549,18 @@ s1不是有屏蔽功能吗，估计已经在我黑名单里了<img src="https://
 
 啥理由啊 第八集再被初中生橄榄一次？
 
+
+
+*****
+
+####  ads147147  
+##### 4147#       发表于 2022-9-9 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57401570&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-8 23:53</a>
+完了啊，家人们，声p访谈，好像还是有回国剧情</blockquote>
+这个杂志不会提及未播出剧情吧？
+
+回国集不是早有预料么，天知道什么鬼理由（结果是回家过新年就笑死了）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
