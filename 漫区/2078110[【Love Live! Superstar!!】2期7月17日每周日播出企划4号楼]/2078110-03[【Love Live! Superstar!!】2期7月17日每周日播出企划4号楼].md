@@ -12090,3 +12090,48 @@ LL以外的倒是想到一个马三角，甚至同样的前半段剧情和噱头
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年马三角和f那碟没王之力可是上过圈榜第一的，人家核心粉这么多年，比不了比不了
 
+
+
+*****
+
+####  player3960  
+##### 4106#       发表于 2022-9-8 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392191&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-8 16:00</a>
+
+比销量？马三角一专初动可不止5万，最终销量我记得过10万了的今年马三角和f那碟没王之力可是 ...</blockquote>
+当年卖这么多还不是被f厨婊卖的不行，更别提bd1那个经典的卡九<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4107#       发表于 2022-9-8 16:10
+
+<img src="https://img.saraba1st.com/forum/202209/08/161015xb5frp07b0upr7fh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>57C1D022-02D5-4DDF-8B37-EE4820D12DEA.jpeg</strong> (717.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-8 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202209/08/161029pdaochd4aqpchsoo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2E7CF65D-08DC-4D27-8D72-1E7FD9D7B3AB.jpeg</strong> (124.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-8 16:10 上传
+
+*****
+
+####  starring  
+##### 4108#       发表于 2022-9-8 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392109&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-8 15:56</a>
+安康鱼可爱啊我现在可不觉得香哥哥有啥吸引人的</blockquote>
+安康鱼的表现还是对得起亲女儿的头衔，九月剧场版BD发售肯定还能再拉一票好感和同情分<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+至于香哥哥，花田大师还是土下座吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
