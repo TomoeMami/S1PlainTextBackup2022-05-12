@@ -10739,3 +10739,17 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 谢谢幕间，谢谢护符，谢谢单抽，谢谢BX的200石沉船，10护符+30石头+7发单抽获得狂那<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2465#       发表于 2022-9-8 12:37
+
+ 本帖最后由 exiaexa 于 2022-9-8 12:39 编辑 
+
+周年刷的13亿用光了
+
+回到了一贫如洗的生活，问题是现在材料也基本用光了
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
