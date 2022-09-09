@@ -13148,3 +13148,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tagerto  
+##### 4190#       发表于 2022-9-9 20:57
+
+下次上映会的人选来了，可堇香红蓝，果然可可飞机回的主要相关人员就是这两人了，接下来就看是二期一直绑死的堇赢到最后还是香音传的香音胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
