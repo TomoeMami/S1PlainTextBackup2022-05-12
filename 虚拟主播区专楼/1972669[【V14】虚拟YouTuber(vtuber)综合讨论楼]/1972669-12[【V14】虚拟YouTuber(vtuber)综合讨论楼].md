@@ -8875,3 +8875,14 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 兔兔兔兔兔兔兔兔！！！忙排练不播也行，开心就好啊😭
 
+
+
+*****
+
+####  fastary  
+##### 17312#       发表于 2022-9-9 09:47
+
+我自己也是倾向于主播不是观众的电子宠物那一派，但是en现在这种无论发生了什么都会一转“大家庭成员间的事主播间说开就好，没必要向观众作任何表示”“主播不急观众凭什么急”的黏糊氛围实在是让人……イライラする<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+大家庭什么时候撕破脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
