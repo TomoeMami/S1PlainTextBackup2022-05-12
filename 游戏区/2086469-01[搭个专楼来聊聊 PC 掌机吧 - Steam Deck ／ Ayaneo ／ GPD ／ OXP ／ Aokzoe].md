@@ -2406,3 +2406,15 @@ AIR Pro 5560U 16G 512G &amp; 1T (包含限定配色款): 预计将于 9 月 21 �
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  魔法酪饼  
+##### 196#       发表于 2022-9-9 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57392629&amp;ptid=2086469" target="_blank">bypass 发表于 2022-09-08 16:28:39</a>
+Ayaneo Air (Pro) 的发货时间：</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">真就耍猴呢。。。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
