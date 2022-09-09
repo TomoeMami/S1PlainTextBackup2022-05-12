@@ -2500,3 +2500,31 @@ HOLOISO基本还是只是把DECK上的STEAMOS3.0照搬过来，对于各路国�
 
 问下，这种东西搞个外接GPU有可行性么？没用过外界gpu不知道有什么限制？所有雷电3的接口都能用吧
 
+
+
+*****
+
+####  慕容断月  
+##### 203#       发表于 2022-9-10 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57416175&amp;ptid=2086469" target="_blank">那由 发表于 2022-9-9 21:06</a>
+
+Ayaneo Air到手了一个月了，硬件大致优缺点（唯一真正能算得上掌机的尺寸、完全不够用的续航、高功率散热太 ...</blockquote>
+其实就算不支持手柄，steam自带的映射功能也足以支撑
+
+x86掌机我觉得未来等valve公开3.0的官方渠道后，才会有更长远的进步，现在还是处于民间改造阶段，深度有限
+
+x86掌机真的不适合win系统，非要给steamdeck装win我也是无法理解的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 204#       发表于 2022-9-10 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57419166&amp;ptid=2086469" target="_blank">慕容断月 发表于 2022-9-10 00:14</a>
+
+其实就算不支持手柄，steam自带的映射功能也足以支撑
+
+x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquote>
+我确实想过SD到手装XGP<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+

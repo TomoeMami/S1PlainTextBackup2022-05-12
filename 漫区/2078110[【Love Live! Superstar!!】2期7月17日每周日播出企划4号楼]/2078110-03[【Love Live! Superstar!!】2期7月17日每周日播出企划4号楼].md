@@ -13364,3 +13364,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 我室友那俩睡邻床的哥们，第一天还吵的揍出鼻血，第二天就抱在一起睡午觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 4216#       发表于 2022-9-10 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">大学虽然和舍友没好到同穿一条裤子的地步但是确实是人生中最惬意的三年了，轻松到我现在偶尔会后悔当时要是努努力现在就会少很多压力
+
