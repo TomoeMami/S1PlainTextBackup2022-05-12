@@ -13352,3 +13352,21 @@ fbk的rust直播在参观七字母小屋
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些过激民差不多得了,感觉再发展下去又要步八字母后尘
 [https://youtu.be/drTZKesfprc](https://youtu.be/drTZKesfprc)
 
+
+
+*****
+
+####  神澈  
+##### 1291#       发表于 2022-9-9 22:11
+
+玩了下holocure，这第二关这么难？
+
+我还没35走的远。
+
+*****
+
+####  rs5621  
+##### 1292#       发表于 2022-9-9 22:16
+
+这代这么难的么,我也来试试
+
