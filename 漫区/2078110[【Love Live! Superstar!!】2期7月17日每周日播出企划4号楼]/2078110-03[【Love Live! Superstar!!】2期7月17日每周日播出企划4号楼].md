@@ -13373,3 +13373,15 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">大学虽然和舍友没好到同穿一条裤子的地步但是确实是人生中最惬意的三年了，轻松到我现在偶尔会后悔当时要是努努力现在就会少很多压力
 
+
+
+*****
+
+####  player3960  
+##### 4217#       发表于 2022-9-10 01:12
+
+以前大学室友其中两个天天玩wow，打个副本开语音半夜吵死人。
+还有一位老兄，很少玩游戏，每次被那俩吵的不行，就跟训小孩一样催他们赶紧睡觉，有一次还直接拔网线，明明是同年却跟老大哥一样，和这种人当室友还是蛮不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
