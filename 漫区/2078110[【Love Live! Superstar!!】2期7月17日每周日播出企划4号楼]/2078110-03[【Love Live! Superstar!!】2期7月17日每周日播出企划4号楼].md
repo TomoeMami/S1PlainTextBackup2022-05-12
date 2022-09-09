@@ -12805,3 +12805,22 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 你这想法有点吓人</blockquote>
 所以说了阴角啦；追飞机这种事，在”一定会留下来“的既定结果下不就是纯看劝诫方的闪光。当事人能有什么发挥，人形录音机而已。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 4170#       发表于 2022-9-9 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">也可以是家里知道可可被初中生薄纱两次觉得可可扶不动了强行召回
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我好想看liella去上海拍剧场版啊
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4171#       发表于 2022-9-9 10:28
+
+回国戏份基本是确定会有的，前几集有一次民警在部室说话，可可坐在旁边看手机，发现民警靠近立刻把手机屏幕挡住，应该就是在和家里人争论回国的问题
+
