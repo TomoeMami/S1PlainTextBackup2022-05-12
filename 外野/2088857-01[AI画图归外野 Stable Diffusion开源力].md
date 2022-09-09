@@ -1641,3 +1641,21 @@ mark
 用MJ比较好，前天晚上做的</blockquote>
 MJ似乎要钱？
 
+
+
+*****
+
+####  唯登诗树  
+##### 111#       发表于 2022-9-9 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57405324&amp;ptid=2088857" target="_blank">cmg1987 发表于 2022-9-9 09:26</a>
+
+MJ似乎要钱？</blockquote>
+是的，免费25张
+
+10美元200张
+
+30美元无限
+
+一开始10美元根本不够玩的
+

@@ -12791,3 +12791,17 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 贷款吃屎大可不必
 
+
+
+*****
+
+####  ViyViy  
+##### 4169#       发表于 2022-9-9 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57405564&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-9 09:40</a>
+
+草，不至于吧
+
+你这想法有点吓人</blockquote>
+所以说了阴角啦；追飞机这种事，在”一定会留下来“的既定结果下不就是纯看劝诫方的闪光。当事人能有什么发挥，人形录音机而已。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
