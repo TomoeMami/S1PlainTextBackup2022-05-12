@@ -1744,3 +1744,19 @@ esrgan
 一直用的PS，但看很多都不用PS放大反而用没听过的各种程式…我用PS是 ...</blockquote>
 TopazGigapixelAI
 
+
+
+*****
+
+####  唯登诗树  
+##### 118#       发表于 2022-9-9 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57408734&amp;ptid=2088857" target="_blank">eulereld 发表于 2022-9-9 12:43</a>
+
+求推介一下免费不麻烦的图片放大程式
+
+一直用的PS，但看很多都不用PS放大反而用没听过的各种程式…我用PS是 ...</blockquote>
+这个更好
+[https://www.arsrna.cn/app/esrgan](https://www.arsrna.cn/app/esrgan)
+[https://www.bilibili.com/video/BV18N4y1T7kz](https://www.bilibili.com/video/BV18N4y1T7kz)
+
