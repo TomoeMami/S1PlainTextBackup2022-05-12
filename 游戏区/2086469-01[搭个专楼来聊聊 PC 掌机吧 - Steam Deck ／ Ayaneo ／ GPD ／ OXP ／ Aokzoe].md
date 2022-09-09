@@ -2430,3 +2430,14 @@ Ayaneo Air (Pro) 的发货时间：</blockquote><img src="https://static.saraba1
 Ayaneo Air (Pro) 的发货时间：</blockquote>
 就是个作坊，真的无语了
 
+
+
+*****
+
+####  cleaner  
+##### 198#       发表于 2022-9-9 20:24
+
+这段时间看了很多评测，似乎6800u低功耗时表现还比不上SD那个定制化的APU？忽然有点拔草<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
