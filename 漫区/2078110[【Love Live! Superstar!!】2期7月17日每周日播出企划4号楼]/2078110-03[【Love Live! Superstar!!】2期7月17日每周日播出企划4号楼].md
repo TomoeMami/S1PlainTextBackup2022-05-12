@@ -13216,3 +13216,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 看来企划准备经典全都要然后啥都没有再全得罪
 
+
+
+*****
+
+####  kata魂  
+##### 4198#       发表于 2022-9-9 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回顾剧情c位曲应该是没了，其余的看天命呗
+
