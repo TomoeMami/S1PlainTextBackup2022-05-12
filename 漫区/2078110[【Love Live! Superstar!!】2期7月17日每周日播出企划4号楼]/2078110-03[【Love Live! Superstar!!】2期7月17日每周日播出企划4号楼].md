@@ -12894,3 +12894,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 既然都歪楼了就顺便问一下，马三角的禁绝边际线有一个完整版是美云唱第一段，鱼唱第二段然后合唱的，但是网 ...</blockquote>
 你说的是いけないボーダーライン ~album version~这个版本吧，是专辑Walküre Attack!里的，网易云上有
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 4178#       发表于 2022-9-9 14:59
+
+干脆把唐可可送回去掉线个两三集算了  <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

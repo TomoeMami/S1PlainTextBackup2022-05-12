@@ -12829,3 +12829,20 @@ hhh又玩火烧家了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是说七字母旁边新建的房子么？
 
+
+
+*****
+
+####  holoan  
+##### 1238#         楼主| 发表于 2022-9-9 14:51
+
+说的是这个
+
+<img src="https://img.saraba1st.com/forum/202209/09/145139hxsdb7chsllz7ocx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 14:51 上传
+
