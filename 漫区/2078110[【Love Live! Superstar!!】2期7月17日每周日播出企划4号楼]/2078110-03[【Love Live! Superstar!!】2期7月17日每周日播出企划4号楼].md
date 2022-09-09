@@ -13330,3 +13330,19 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 我从小学就开始住宿了，一般来说除非很奇葩，不然大家还是可以表面兄弟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW  
+##### 4212#       发表于 2022-9-9 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我大学宿舍到没有见过打架的，不过奇葩事不少，跳的也不少
+
+*****
+
+####  稀勢のささ  
+##### 4213#       发表于 2022-9-9 23:30
+
+我宿舍那哥们被人找上门来打过一次 结果上门的那位战斗力不太行被按在地上锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
