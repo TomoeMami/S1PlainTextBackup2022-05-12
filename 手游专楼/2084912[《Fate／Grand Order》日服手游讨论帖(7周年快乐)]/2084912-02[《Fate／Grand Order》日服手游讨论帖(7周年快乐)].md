@@ -10898,3 +10898,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">新活动大概有石田三成，PV里有他的家纹
 
+
+
+*****
+
+####  khxooo  
+##### 2479#       发表于 2022-9-10 02:47
+
+有3个特别任务，要求刷2.4的free3次，虽然只给5个茶壶，起码有蚊子肉。
+

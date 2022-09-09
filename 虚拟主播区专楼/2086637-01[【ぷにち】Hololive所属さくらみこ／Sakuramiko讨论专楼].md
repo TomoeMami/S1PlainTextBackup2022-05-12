@@ -13517,3 +13517,30 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 本周八字母糖
 
+
+
+*****
+
+####  holoan  
+##### 1306#         楼主| 发表于 2022-9-10 02:41
+
+寂寞还是受得了的，要不然3期生来之前在holo的第一年怎么过的，还能拿下直播时间前2还是前3的记录
+现在精神面上是指其他方面的问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rs5621  
+##### 1307#       发表于 2022-9-10 02:42
+
+[miko语音按钮](https://harutoblog.com/voiceCollection/hololive/sakura-miko/index.html)
+
+<img src="https://img.saraba1st.com/forum/202209/10/024325diycpcczpbpfpyhi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 02:43 上传
+
