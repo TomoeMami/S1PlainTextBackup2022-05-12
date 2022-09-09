@@ -12820,3 +12820,12 @@ hhh又玩火烧家了
 
 这个解释我认可了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 1237#       发表于 2022-9-9 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是说七字母旁边新建的房子么？
+
