@@ -13326,3 +13326,29 @@ fbk的rust直播在参观七字母小屋
 那个账号原来不止是过家家啊，这家伙又在藏啥</blockquote>
 搞什么企划呗
 
+
+
+*****
+
+####  rs5621  
+##### 1288#       发表于 2022-9-9 21:52
+
+来晚了,fbk跑掉了
+
+*****
+
+####  holoan  
+##### 1289#         楼主| 发表于 2022-9-9 21:56
+
+外面走廊挂了很多彩色的灯串装点，更像爱的小屋了
+
+*****
+
+####  rs5621  
+##### 1290#       发表于 2022-9-9 21:59
+
+这就是之前你说的那个百合营业么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些过激民差不多得了,感觉再发展下去又要步八字母后尘
+[https://youtu.be/drTZKesfprc](https://youtu.be/drTZKesfprc)
+
