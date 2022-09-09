@@ -2491,3 +2491,12 @@ HOLOISO基本还是只是把DECK上的STEAMOS3.0照搬过来，对于各路国�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57417464&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-9 22:23</a></blockquote>
 按照AIR的情况不看好半年以内能出货
 
+
+
+*****
+
+####  asuss  
+##### 202#       发表于 2022-9-9 23:00
+
+问下，这种东西搞个外接GPU有可行性么？没用过外界gpu不知道有什么限制？所有雷电3的接口都能用吧
+
