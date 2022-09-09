@@ -12914,3 +12914,30 @@ syl：昨晚的事件更新了
 
 不过家不会那么容易被烧掉就是了
 
+
+
+*****
+
+####  holoan  
+##### 1245#         楼主| 发表于 2022-9-9 16:21
+
+<img src="https://img.saraba1st.com/forum/202209/09/162136y1azma5tfbxftk5z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 16:21 上传
+
+？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？
+
+*****
+
+####  holoan  
+##### 1246#         楼主| 发表于 2022-9-9 16:28
+
+[https://ch.nicovideo.jp/kawahararekich/blomaga/ar2118607](https://ch.nicovideo.jp/kawahararekich/blomaga/ar2118607)
+[https://live.nicovideo.jp/watch/lv338194112](https://live.nicovideo.jp/watch/lv338194112)
+
+好像需要频道会员才能完整收看
+
