@@ -12739,3 +12739,20 @@ pay：只有堇知道这个事呢，第八话之后会怎样呢？敬请期待�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">贷款吃💩。可可被vn演出打击觉得之后比赛没希望了于是跑路，香音瞬移嘴炮“我们的希望还是**的有”，又给拉回来了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">总不可能比这还烂吧！
 
+
+
+*****
+
+####  ads147147  
+##### 4164#       发表于 2022-9-9 09:13
+
+VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾向于VN被打败，决定入伙后，可可决定跑路让出9人之位，然后追飞机从9跨10。
+
+*****
+
+####  starring  
+##### 4165#       发表于 2022-9-9 09:15
+
+香哥哥：回上海？そうかな？
+一套教义下来，可可放弃回国，唐家人选择放养小女儿，大家都有美好的结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
