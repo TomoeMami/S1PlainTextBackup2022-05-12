@@ -12882,3 +12882,15 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 4177#       发表于 2022-9-9 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57409411&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2022-9-9 13:34</a>
+
+既然都歪楼了就顺便问一下，马三角的禁绝边际线有一个完整版是美云唱第一段，鱼唱第二段然后合唱的，但是网 ...</blockquote>
+你说的是いけないボーダーライン ~album version~这个版本吧，是专辑Walküre Attack!里的，网易云上有
+
