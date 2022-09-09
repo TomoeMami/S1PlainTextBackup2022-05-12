@@ -13346,3 +13346,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 我宿舍那哥们被人找上门来打过一次 结果上门的那位战斗力不太行被按在地上锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4214#       发表于 2022-9-9 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大学宿舍的关系一般甚至经常有争吵，结果毕业后关系反而很好，人际关系真奇妙
+
