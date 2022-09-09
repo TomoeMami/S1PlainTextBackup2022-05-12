@@ -2481,3 +2481,13 @@ HOLOISO基本还是只是把DECK上的STEAMOS3.0照搬过来，对于各路国�
 
 <img src="https://p.sda1.dev/7/aa5569c58254c91ad0f535471d4bf7df/CMP_20220909222310369.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  任天索尼子  
+##### 201#       发表于 2022-9-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57417464&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-9 22:23</a></blockquote>
+按照AIR的情况不看好半年以内能出货
+

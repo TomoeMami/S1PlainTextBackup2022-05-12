@@ -13395,3 +13395,19 @@ fbk的rust直播在参观七字母小屋
 
 感觉她是兴趣不大，就是图看个新元素新鲜，沉迷不进去
 
+
+
+*****
+
+####  holoan  
+##### 1295#         楼主| 发表于 2022-9-9 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57417077&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-9-9 21:59</a>
+
+这就是之前你说的那个百合营业么
+
+这些过激民差不多得了,感觉再发展下去又要步八字母后尘</blockquote>
+星街这味我怎么看怎么是反着说的
+
+真的只维持business状态？两人看到推上几万张百合R18同人图没有什么感觉？
+
