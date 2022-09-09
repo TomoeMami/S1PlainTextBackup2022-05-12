@@ -8895,3 +8895,14 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 别急，在撕了，只不过脸皮比较厚要花点时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 17314#       发表于 2022-9-9 12:12
+
+人家企业势啊，你在办公室都知道尽量别和同事撕破脸，不然影响不好，他们专业主播当然知道不能在客户面前撕逼啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
