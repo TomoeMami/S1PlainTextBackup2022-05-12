@@ -12756,3 +12756,14 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 香哥哥：回上海？そうかな？
 一套教义下来，可可放弃回国，唐家人选择放养小女儿，大家都有美好的结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 4166#       发表于 2022-9-9 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点阴角的想法，pay指的是（堇在可可回的表现）很期待。
+
+不是鱼进行的提点和暗示都不想去信了，自己负责的角色到底如何只有自己才知道全貌。
+
