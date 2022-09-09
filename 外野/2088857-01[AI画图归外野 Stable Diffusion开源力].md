@@ -1687,3 +1687,13 @@ in the morning, Chinese buildings on the mountains, magnificent John Hower lands
 
 from [https://www.bilibili.com/video/BV1AF411g7Q6](https://www.bilibili.com/video/BV1AF411g7Q6)
 
+
+
+*****
+
+####  eulereld  
+##### 114#       发表于 2022-9-9 12:43
+
+求推介一下免费不麻烦的图片放大程式
+一直用的PS，但看很多都不用PS放大反而用没听过的各种程式…我用PS是因为买了正版用在其他地方而已，不清楚是不是效果最差的
+
