@@ -13121,3 +13121,21 @@ miko：什么马自立h创可贴，太色了，这贴哪里的？
 
 不容易
 
+
+
+*****
+
+####  rs5621  
+##### 1265#       发表于 2022-9-9 19:21
+
+终于出miko了，这非洲运气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allenz3  
+##### 1266#       发表于 2022-9-9 19:21
+
+抽到自己了，还妄图八字母失败
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
