@@ -2441,3 +2441,34 @@ Ayaneo Air (Pro) 的发货时间：</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  那由  
+##### 199#       发表于 2022-9-9 21:06
+
+ 本帖最后由 那由 于 2022-9-9 21:10 编辑 
+
+Ayaneo Air到手了一个月了，硬件大致优缺点（唯一真正能算得上掌机的尺寸、完全不够用的续航、高功率散热太差屏幕烫手）其实都很清楚了，另外简单说下AYA甚至现在所有win掌机普遍的软件的体验和经验
+
+首先windows是真的垃圾，臃肿耗电体验差，AYA的space也不好用，再加上air小尺寸1080P的手机库存屏幕看的眼疼，于是我在用了一个星期之后直接选择研究刷linux上，通过proton和valve对deck的优化努力，linux完全更适合x86掌机使用，全局FSR完美拯救了这块1080P屏幕下的非点对点游戏，只是目前AIR作为新机型，社区还没能解决休眠唤醒的功能，不过对于我来说只是稍微麻烦点不想玩就关机，最终还是没有选择重新刷回windows。
+
+先说说安装需要的工具，一个U盘，一个可以连接键盘的拓展坞（除了HOLOISO以外都要接键盘敲命令行），[balenaEtcher](https://www.balena.io/etcher/)（把镜像烧录到U盘的工具），USB网口（HOLOISO可选），然后我目前试用的有三个不同的社区维护分支：
+
+[HOLOISO](https://github.com/theVakhovskeIsTaken/holoiso)：
+
+这是最主流的STEAM DECK镜像，在更新了全GUI安装之后本来应该是安装体验最好的，甚至还准备好了屏幕键盘。结果因为网卡驱动问题，我的AIR的WIFI完全不可用，IWD无限重启，被迫翻出来了USB网口通过有线网络才能进行安装。
+
+HOLOISO基本还是只是把DECK上的STEAMOS3.0照搬过来，对于各路国产掌机的针对性优化很少，社区响应也很慢。在安装之后也不能通过原来的内建按键呼出主菜单和快捷菜单，TDP控制之类的也不可用（可以通过ChimeraOS开发者提供的[color=var(--sec)  !important][backcolor=var(--bg)][HandyGCCS](https://github.com/ShadowBlip/HandyGCCS)和[HandyPT](https://github.com/ShadowBlip/HandyPT)插件解决），很快就选择了放弃。
+
+[Chimera OS](https://chimeraos.org/)：
+
+这是另外一个主流的x86掌机的linux解决方案，使用的是类似以前的steam machine+big picture的模式，在v35更新之前甚至没有桌面环境，DECK UI也要通过命令行才能启用，开发者也在社区非常活跃，我也因为上面说的插件安装问题咨询了好几次也很热心的解答了。不过在目前的v34版本下air等几个新发售的机器存在屏幕倒转、按键不完全可用的情况，开发者也承诺在v35推出的时候会有相应的修复，本来说是上星期上线结果鸽了，可以期待一下。
+
+[HoloFork](https://github.com/Maccraft123/holofork)：
+
+顾名思义，这是HOLOISO的一个分支，也是我目前正在使用的一套。对比HOLOISO安装提供了更大的兼容性，主要做了一些关于AYANEO系和Anbernic的支持，手柄按键原生齐全可用，TDP控制通过HandyPT插件可以正常控制，音量键不可用（只能快捷菜单调），目前可以通过游戏720P+功耗限制+全局FSR提供了一套比较省电不影响观感的体验，肉眼感觉不太出来的情况下运行同等级的游戏续航至少提升60-80%，直接回不去了。到时候就是看chimeraos的v35体验如何，再决定会不会留守了。
+
+另外说说模拟器和非steam游戏导入，Flathub和EMUDECK已经可以非常自动和轻松的对模拟器游戏进行自动入库和管理运行了，CEMU最近2.0也提供了原生的LINUX BUILD，体验非常好。其他乱七八糟的黄油类也可以切换到桌面模式的客户端进行添加导入，只要记得导入后勾选强制steam play使用proton就可以了，欧美常用的黄油引擎和RM都有手柄支持，很不错。
+

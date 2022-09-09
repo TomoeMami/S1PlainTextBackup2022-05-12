@@ -13157,3 +13157,62 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 下次上映会的人选来了，可堇香红蓝，果然可可飞机回的主要相关人员就是这两人了，接下来就看是二期一直绑死的堇赢到最后还是香音传的香音胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4191#       发表于 2022-9-9 21:03
+
+有香教主，坏了
+
+*****
+
+####  优妮可  
+##### 4192#       发表于 2022-9-9 21:07
+
+<img src="https://img.saraba1st.com/forum/202209/09/210711tpfpwr2prdpr27fl.jpg" referrerpolicy="no-referrer">
+
+<strong>20220909_210650.jpg</strong> (325.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 21:07 上传
+
+*****
+
+####  JustW_3  
+##### 4193#       发表于 2022-9-9 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57413904&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-9 18:46</a>
+看群友说的，借了芽衣的传传传，然后跑路回上海</blockquote>
+游泳（？）回上海
+
+*****
+
+####  JustW_3  
+##### 4194#       发表于 2022-9-9 21:09
+
+风怒
+
+*****
+
+####  kata魂  
+##### 4195#       发表于 2022-9-9 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">红：我真是被小瞧了啊
+
+*****
+
+####  JustW_3  
+##### 4196#       发表于 2022-9-9 21:11
+
+所以你们说的是……后天播的内容？
+
+*****
+
+####  ViyViy  
+##### 4197#       发表于 2022-9-9 21:11
+
+看来企划准备经典全都要然后啥都没有再全得罪
+
