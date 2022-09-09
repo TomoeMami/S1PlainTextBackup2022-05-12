@@ -12720,3 +12720,12 @@ pay：只有堇知道这个事呢，第八话之后会怎样呢？敬请期待�
 先别做过多的期待，以目前香音在动画里的地位，可可回剧情几乎少不了香音，就不知道会把香音安排到哪个位置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我现在最低的期待是可可回只要没把可可越写越烂就勉强可以了
 
+
+
+*****
+
+####  player3960  
+##### 4162#       发表于 2022-9-9 08:56
+
+给我可c曲，烂穿地心我也能接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
