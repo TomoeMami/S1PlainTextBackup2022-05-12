@@ -10889,3 +10889,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 新活动别的不指望，可以让我bp个卑弥呼吗
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2478#       发表于 2022-9-9 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">新活动大概有石田三成，PV里有他的家纹
+
