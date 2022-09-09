@@ -12767,3 +12767,18 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 不是鱼进行的提点和暗示都不想去信了，自己负责的角色到底如何只有自己才知道全貌。
 
+
+
+*****
+
+####  Kfly  
+##### 4167#       发表于 2022-9-9 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57405405&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-9 09:30</a>
+
+有点阴角的想法，pay指的是（堇在可可回的表现）很期待。
+
+不是鱼进行的提点和暗示都不想去信了，自 ...</blockquote>
+草，不至于吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+你这想法有点吓人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
