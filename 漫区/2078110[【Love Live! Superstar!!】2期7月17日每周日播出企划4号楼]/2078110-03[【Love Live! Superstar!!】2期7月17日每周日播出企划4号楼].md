@@ -13355,3 +13355,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大学宿舍的关系一般甚至经常有争吵，结果毕业后关系反而很好，人际关系真奇妙
 
+
+
+*****
+
+####  L-JoeW  
+##### 4215#       发表于 2022-9-9 23:47
+
+我室友那俩睡邻床的哥们，第一天还吵的揍出鼻血，第二天就抱在一起睡午觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
