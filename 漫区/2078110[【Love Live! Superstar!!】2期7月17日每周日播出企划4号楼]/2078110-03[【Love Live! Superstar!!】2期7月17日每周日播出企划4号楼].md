@@ -12681,3 +12681,14 @@ pay：只有堇知道这个事呢，第八话之后会怎样呢？敬请期待�
 
 可能就是高高举起轻轻放下，本来回国探亲，堇就以为回国了然后闹的满城风雨，最后皆大欢喜
 
+
+
+*****
+
+####  Kfly  
+##### 4158#       发表于 2022-9-9 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57404306&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-9 08:07</a>
+只要不是香音收人头，我都是能接受的</blockquote>
+（以现在的走向来看）就算是这样的想法，也不一定能如愿啊……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
