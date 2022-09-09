@@ -12957,3 +12957,16 @@ syl：昨晚的事件更新了
 
 排面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1249#         楼主| 发表于 2022-9-9 16:44
+
+看了一下介绍文说是契机是去年JRAXSAO的案件时候被制作组认知的
+
+结果就是有马纪念直播——〉马娘——〉JRA案件——〉SAO案件这么个过程
+
+也是有意思
+
