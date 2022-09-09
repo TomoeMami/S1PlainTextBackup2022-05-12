@@ -2472,3 +2472,12 @@ HOLOISO基本还是只是把DECK上的STEAMOS3.0照搬过来，对于各路国�
 
 另外说说模拟器和非steam游戏导入，Flathub和EMUDECK已经可以非常自动和轻松的对模拟器游戏进行自动入库和管理运行了，CEMU最近2.0也提供了原生的LINUX BUILD，体验非常好。其他乱七八糟的黄油类也可以切换到桌面模式的客户端进行添加导入，只要记得导入后勾选强制steam play使用proton就可以了，欧美常用的黄油引擎和RM都有手柄支持，很不错。
 
+
+
+*****
+
+####  医生狼多  
+##### 200#       发表于 2022-9-9 22:23
+
+<img src="https://p.sda1.dev/7/aa5569c58254c91ad0f535471d4bf7df/CMP_20220909222310369.jpg" referrerpolicy="no-referrer">
+
