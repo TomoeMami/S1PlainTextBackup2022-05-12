@@ -12783,3 +12783,21 @@ hhh又玩火烧家了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rs5621  
+##### 1234#       发表于 2022-9-9 12:30
+
+分居？！
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 1235#         楼主| 发表于 2022-9-9 12:34
+
+不是，外观看上去不是普通的住房，有好几层一楼还有斜梯，可能是停飞机和车的
+
