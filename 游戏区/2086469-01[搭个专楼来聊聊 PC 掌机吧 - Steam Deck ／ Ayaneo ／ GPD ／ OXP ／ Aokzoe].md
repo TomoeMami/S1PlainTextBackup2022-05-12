@@ -2528,3 +2528,15 @@ x86掌机真的不适合win系统，非要给steamdeck装win我也是无法理�
 x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquote>
 我确实想过SD到手装XGP<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  慕容断月  
+##### 205#       发表于 2022-9-10 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57419226&amp;ptid=2086469" target="_blank">硫黄 发表于 2022-9-10 00:18</a>
+
+我确实想过SD到手装XGP</blockquote>
+不值得不值得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
