@@ -1659,3 +1659,31 @@ MJ似乎要钱？</blockquote>
 
 一开始10美元根本不够玩的
 
+
+
+*****
+
+####  icer  
+##### 112#       发表于 2022-9-9 11:32
+
+居然在我的半淘汰4代i5 + 8G内存 + 1050ti + ubuntu上跑起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icer  
+##### 113#       发表于 2022-9-9 11:35
+
+<img src="https://img.saraba1st.com/forum/202209/09/113403v85eze48ejm38pek.jpg" referrerpolicy="no-referrer">
+
+<strong>4x_seed_662227_00004.jpg</strong> (205.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 11:34 上传
+
+放一张参考B站视频的prompt，1050ti2分钟一张图，然后用realesrgan放大4倍
+
+in the morning, Chinese buildings on the mountains, magnificent John Hower landscape, lake, China dragon, clouds, farm, wlop fairy tale, light effect, dream, Greg rutkowski, artstation
+
+from [https://www.bilibili.com/video/BV1AF411g7Q6](https://www.bilibili.com/video/BV1AF411g7Q6)
+
