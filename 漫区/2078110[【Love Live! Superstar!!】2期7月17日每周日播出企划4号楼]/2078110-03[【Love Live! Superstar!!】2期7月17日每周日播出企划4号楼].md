@@ -12625,3 +12625,43 @@ s1不是有屏蔽功能吗，估计已经在我黑名单里了<img src="https://
 完了啊，家人们，声p访谈，好像还是有回国剧情</blockquote>
 能说说怎么说的么。
 
+
+
+*****
+
+####  Kfly  
+##### 4154#       发表于 2022-9-9 07:57
+
+ 本帖最后由 Kfly 于 2022-9-9 07:59 编辑 
+<blockquote>we89623 发表于 2022-9-9 07:16
+能说说怎么说的么。</blockquote>
+其实也就提了一嘴
+
+<img src="https://img.saraba1st.com/forum/202209/09/075631u6etl6urerbt0bye.jpg" referrerpolicy="no-referrer">
+
+<strong>-1305498011.jpg</strong> (21.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 07:56 上传
+
+这回国回酝酿了那么久，我倒要看看能有多大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 4155#       发表于 2022-9-9 08:02
+
+鱼：二期开始时还说过可可会不会回上海
+pay：只有堇知道这个事呢，第八话之后会怎样呢？敬请期待吧
+
+<img src="https://img.saraba1st.com/forum/202209/09/075845wtff3t8yr6319fa3.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3950.PNG</strong> (302 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 07:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
