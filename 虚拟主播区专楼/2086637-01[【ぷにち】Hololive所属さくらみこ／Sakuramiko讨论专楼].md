@@ -13139,3 +13139,17 @@ miko：什么马自立h创可贴，太色了，这贴哪里的？
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rs5621  
+##### 1267#       发表于 2022-9-9 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57414381&amp;ptid=2086637" target="_blank">allenz3 发表于 2022-9-9 19:21</a>
+
+抽到自己了，还妄图八字母失败
+
+—— 来自 Sony XQ-AS72, Android 12上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+是七字母，你打错了
+
