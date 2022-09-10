@@ -13789,3 +13789,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 果然很忙呢
 
+
+
+*****
+
+####  lj205  
+##### 4230#       发表于 2022-9-10 22:32
+
+啊这今天官方还玩唐可可的梗啊？这是在铺垫吗？你们还记得有这么个角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
