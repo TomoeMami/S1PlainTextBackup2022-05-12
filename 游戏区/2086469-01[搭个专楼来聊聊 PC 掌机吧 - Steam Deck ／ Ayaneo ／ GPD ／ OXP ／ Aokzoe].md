@@ -2653,3 +2653,51 @@ aya那个6800u机器4399有啥坑吗，感觉爆杀sd啊</blockquote>
 
 ayaneo 2说的6800u看着很好，但是他一口气发布这么多，我怕是饼
 
+
+
+*****
+
+####  bypass  
+##### 216#         楼主| 发表于 2022-9-10 14:07
+
+Aokzoe 似乎延期发货了，群里昨天吵得跟啥一样。
+
+<img src="https://img.saraba1st.com/forum/202209/10/140718u0l5reme4y0irrla.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 14:07 上传
+
+*****
+
+####  rossokun  
+##### 217#       发表于 2022-9-10 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57422933&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-10 11:54</a>
+还在啊，现在加群下单还有礼包</blockquote>
+还真是，看见官网标价3k以为是补尾款，没想到是定金<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+国内几家掌机什么都要加群属实坏文明
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bypass  
+##### 218#         楼主| 发表于 2022-9-10 14:08
+
+Ayaneo Geek 价格是很诱人，但是买过 Air Pro 之后我暂时不打算在他们家预购连大概的发货时间都没有的设备。
+
+*****
+
+####  bypass  
+##### 219#         楼主| 发表于 2022-9-10 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57424479&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-9-10 14:08</a>
+
+还真是，看见官网标价3k以为是补尾款，没想到是定金
+
+国内几家掌机什么都要加群属实坏文明</blockquote>
+最烦就是加这些破群，国产厂商真的好喜欢弄个小群体。
+
