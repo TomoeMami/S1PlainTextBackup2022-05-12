@@ -2582,3 +2582,17 @@ x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquot
 —— 来自 Sony G8342, Android 9上的 S1Next-鹅版 v ...</blockquote>
 也明白，就是想如果不打算买台式机了，上网办公买个轻薄本，把这个当纯粹游戏用PC，小游戏直接玩，大游戏插egpu
 
+
+
+*****
+
+####  rossokun  
+##### 209#       发表于 2022-9-10 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57421903&amp;ptid=2086469" target="_blank">asuss 发表于 2022-9-10 10:27</a>
+也明白，就是想如果不打算买台式机了，上网办公买个轻薄本，把这个当纯粹游戏用PC，小游戏直接玩，大游戏 ...</blockquote>
+我的体验是雷电线又短又硬，接上后基本要放弃掌机模式，最好能外接显示器+键鼠或手柄当个纯主机用，才能用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+另外那几位6800的机器，aok已经有人测过，usb4接雷电3的显卡坞没问题，其他几家没关注过，不好说有没有阉割过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
