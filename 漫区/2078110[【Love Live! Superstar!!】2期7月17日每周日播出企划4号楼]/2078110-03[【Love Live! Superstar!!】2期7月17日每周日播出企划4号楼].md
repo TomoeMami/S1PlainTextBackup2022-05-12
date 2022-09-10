@@ -13947,3 +13947,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 话说回来，今天官推也在拿牛舌和可可来宣传动画，前几天NHK那张第8集的图也有可可，不会第8集真是可可回吧[ ...</blockquote>
 希望不是吧，第八集必定塞live的，真的是一集可回加live，只能说现在就可以埋了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4248#       发表于 2022-9-11 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第八集九人口live被三星VN爆杀+跑路啊 不都安排好了
+
