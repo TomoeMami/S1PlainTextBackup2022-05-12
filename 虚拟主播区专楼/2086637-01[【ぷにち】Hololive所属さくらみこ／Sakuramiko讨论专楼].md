@@ -13686,3 +13686,29 @@ holo全员用miko打都通关了就miko自己打不过的世界
 
 みこちを使う<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1322#         楼主| 发表于 2022-9-10 20:25
+
+<img src="https://img.saraba1st.com/forum/202209/10/202512cvikav04ajez8ye4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 20:25 上传
+
+嘲讽+1
+
+*****
+
+####  holoan  
+##### 1323#         楼主| 发表于 2022-9-10 20:29
+
+不对，其他人再这么嘲讽下去自己玩得最差不就成最大的耻辱了
+
+我看一堆个人势v拿miko打也打得不差
+
