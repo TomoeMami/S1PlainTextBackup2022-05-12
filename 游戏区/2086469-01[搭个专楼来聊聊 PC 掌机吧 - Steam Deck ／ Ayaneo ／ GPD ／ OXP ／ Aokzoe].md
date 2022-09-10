@@ -2738,3 +2738,14 @@ geek的话aya群里好像说十一月底前发货，其实4399是800p的价格�
 不是不支持手柄，而是各家掌机很多功能键都是非标准的，拿air来说，home键、菜单键、上面两个额外的C键， ...</blockquote>
 你看错了，我说的是原生PC游戏，不支持手柄的pc游戏，你回歪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时空之旅  
+##### 223#       发表于 2022-9-10 18:17
+
+<blockquote>bypass 发表于 2022-9-10 14:07
+Aokzoe 似乎延期发货了，群里昨天吵得跟啥一样。</blockquote>
+这还行吧，感觉也是客观原因造成的，不是故意
+
