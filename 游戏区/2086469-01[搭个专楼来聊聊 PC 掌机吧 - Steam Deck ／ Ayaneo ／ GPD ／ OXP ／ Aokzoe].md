@@ -2540,3 +2540,18 @@ x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquot
 我确实想过SD到手装XGP</blockquote>
 不值得不值得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  那由  
+##### 206#       发表于 2022-9-10 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57419166&amp;ptid=2086469" target="_blank">慕容断月 发表于 2022-9-10 00:14</a>
+其实就算不支持手柄，steam自带的映射功能也足以支撑
+
+x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquote>
+不是不支持手柄，而是各家掌机很多功能键都是非标准的，拿air来说，home键、菜单键、上面两个额外的C键，在没有ayaspace的情况下都是无作用的，其他按键在steam里面会识别成一个标准xbox手柄，映射也不能用到那些非标的按键的，只能通过HandyGCCS解决
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
