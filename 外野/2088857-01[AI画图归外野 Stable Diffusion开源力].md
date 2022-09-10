@@ -1760,3 +1760,14 @@ TopazGigapixelAI
 [https://www.arsrna.cn/app/esrgan](https://www.arsrna.cn/app/esrgan)
 [https://www.bilibili.com/video/BV18N4y1T7kz](https://www.bilibili.com/video/BV18N4y1T7kz)
 
+
+
+*****
+
+####  猫出没注意  
+##### 119#       发表于 2022-9-10 18:26
+
+看游研社报导，这东西还能通过上传图片来生成一张相同构图的AI画作？GitHub那个页面能下载到吗，找不到运行程序<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+[https://www.yystv.cn/p/9714](https://www.yystv.cn/p/9714)
+[https://github.com/CompVis/stable-diffusion](https://github.com/CompVis/stable-diffusion)
+
