@@ -13918,3 +13918,21 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">我的我的，反正明天就知道了，不用想太多了，中秋快乐各位
 
+
+
+*****
+
+####  ads147147  
+##### 4245#       发表于 2022-9-10 23:35
+
+明天你们不看虹day2还追星直播？不是给自己找罪受吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，难道隔壁大马路live不够嗨吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 4246#       发表于 2022-9-10 23:35
+
+明晚有饭局看不了直播，希望都是假的
+
