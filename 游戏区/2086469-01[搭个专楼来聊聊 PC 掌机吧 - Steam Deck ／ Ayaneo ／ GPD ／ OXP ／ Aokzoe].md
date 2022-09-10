@@ -2627,3 +2627,29 @@ aya那个6800u机器4399有啥坑吗，感觉爆杀sd啊</blockquote>
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 213#       发表于 2022-9-10 11:53
+
+有没有统计过aya今年出了多少款机子了
+
+*****
+
+####  医生狼多  
+##### 214#       发表于 2022-9-10 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57422876&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-9-10 11:49</a>
+坑点一是发货时间不定，看他们家过去的战绩半年后发货正常，二是这是预定价格，现在已经不存在了
+ ...</blockquote>
+还在啊，现在加群下单还有礼包
+
+*****
+
+####  asuss  
+##### 215#       发表于 2022-9-10 11:54
+
+ayaneo 2说的6800u看着很好，但是他一口气发布这么多，我怕是饼
+
