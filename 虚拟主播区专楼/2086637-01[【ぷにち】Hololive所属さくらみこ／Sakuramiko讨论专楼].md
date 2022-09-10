@@ -13606,3 +13606,14 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 明天或许是FF最终回虽然看上去很难，HP都不够打的
 
+
+
+*****
+
+####  holoan  
+##### 1314#         楼主| 发表于 2022-9-10 17:27
+
+miko下播前：今晚很忙 要练级，不碰rust
+
+现在rust在马自立直播里出现了
+
