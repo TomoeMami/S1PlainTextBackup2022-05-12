@@ -9017,3 +9017,28 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 2022-9-10 12:56 上传
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17324#       发表于 2022-9-10 19:15
+
+<img src="https://img.saraba1st.com/forum/202209/10/191418ahndpslpnghip5kd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>KZH CUP in PUBG Day 1 .jpeg</strong> (754.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202209/10/191418z23b2cr2b3vrcdja.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>KZH CUP in PUBG Day 2.jpeg</strong> (978.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 19:14 上传
+
+还得是king<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
