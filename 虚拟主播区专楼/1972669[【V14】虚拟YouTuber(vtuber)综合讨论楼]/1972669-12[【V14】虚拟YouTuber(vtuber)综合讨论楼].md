@@ -9068,3 +9068,18 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 2022-9-10 21:58 上传
 
+
+
+*****
+
+####  IL282  
+##### 17327#       发表于 2022-9-10 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57428473&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-9-10 20:14</a>
+第一天怎么回事啊，人数都不是4的倍数
+
+syl原来是三人队</blockquote>
+草Enna<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
