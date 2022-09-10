@@ -1771,3 +1771,15 @@ TopazGigapixelAI
 [https://www.yystv.cn/p/9714](https://www.yystv.cn/p/9714)
 [https://github.com/CompVis/stable-diffusion](https://github.com/CompVis/stable-diffusion)
 
+
+
+*****
+
+####  凡人  
+##### 120#       发表于 2022-9-10 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57427123&amp;ptid=2088857" target="_blank">猫出没注意 发表于 2022-9-10 18:26</a>
+
+看游研社报导，这东西还能通过上传图片来生成一张相同构图的AI画作？GitHub那个页面能下载到吗，找不到运行 ...</blockquote>
+Img2Img，这功能实际操作起来难用的很。
+
