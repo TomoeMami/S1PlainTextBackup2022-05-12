@@ -13582,3 +13582,27 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别看霍比特人!我想看蜘蛛侠
 
+
+
+*****
+
+####  holoan  
+##### 1312#         楼主| 发表于 2022-9-10 17:12
+
+一下播就转台看别人的直播
+
+<img src="https://img.saraba1st.com/forum/202209/10/171228zcwmywamjwvvw8de.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 17:12 上传
+
+*****
+
+####  holoan  
+##### 1313#         楼主| 发表于 2022-9-10 17:16
+
+明天或许是FF最终回虽然看上去很难，HP都不够打的
+
