@@ -13637,3 +13637,25 @@ miko下播前：今晚很忙 要练级，不碰rust
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">老版和惊奇版都看完了，荷兰弟蜘蛛侠第一部也看了，要看第二部？话说她漫威系列补完了？直接看复联4之后的这作。
 
+
+
+*****
+
+####  holoan  
+##### 1317#         楼主| 发表于 2022-9-10 19:30
+
+ 本帖最后由 holoan 于 2022-9-10 19:32 编辑 
+
+第二部吧 说是看最近日亚会员里增加的
+
+不过第三部这人之前日本上映前试看会的时候看完了
+
+*****
+
+####  holoan  
+##### 1318#         楼主| 发表于 2022-9-10 19:38
+
+看别人玩自己比自己玩还上手不是滋味吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赶紧多练还来得及
+
