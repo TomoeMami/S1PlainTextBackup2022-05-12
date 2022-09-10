@@ -13936,3 +13936,14 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 明晚有饭局看不了直播，希望都是假的
 
+
+
+*****
+
+####  Enakina  
+##### 4247#       发表于 2022-9-11 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57431744&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-10 23:21</a>
+话说回来，今天官推也在拿牛舌和可可来宣传动画，前几天NHK那张第8集的图也有可可，不会第8集真是可可回吧[ ...</blockquote>
+希望不是吧，第八集必定塞live的，真的是一集可回加live，只能说现在就可以埋了
+
