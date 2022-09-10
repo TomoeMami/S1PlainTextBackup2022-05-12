@@ -10907,3 +10907,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 有3个特别任务，要求刷2.4的free3次，虽然只给5个茶壶，起码有蚊子肉。
 
+
+
+*****
+
+####  xiongxingyu  
+##### 2480#       发表于 2022-9-10 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57416044&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-9 20:57</a>
+
+估计是芹泽鸭吧，毕竟模型都有了，比山南更容易些。</blockquote>
+鬼柴田：说得好，那么我什么时候可以落地呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说正经的，按照PV里那个一闪而过的大一大万大吉旗，这个地狱回来的男人大概率是石田三成。
+
