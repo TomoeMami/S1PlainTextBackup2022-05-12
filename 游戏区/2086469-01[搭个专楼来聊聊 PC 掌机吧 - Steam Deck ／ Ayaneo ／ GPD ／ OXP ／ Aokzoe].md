@@ -2596,3 +2596,34 @@ x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquot
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  忽克連  
+##### 210#       发表于 2022-9-10 11:44
+
+aya那个6800u机器4399有啥坑吗，感觉爆杀sd啊
+
+
+
+*****
+
+####  医生狼多  
+##### 211#       发表于 2022-9-10 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57422800&amp;ptid=2086469" target="_blank">忽克連 发表于 2022-9-10 11:44</a>
+aya那个6800u机器4399有啥坑吗，感觉爆杀sd啊</blockquote>
+少说年底才能发货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rossokun  
+##### 212#       发表于 2022-9-10 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57422800&amp;ptid=2086469" target="_blank">忽克連 发表于 2022-9-10 11:44</a>
+aya那个6800u机器4399有啥坑吗，感觉爆杀sd啊</blockquote>
+坑点一是发货时间不定，看他们家过去的战绩半年后发货正常，二是这是预定价格，现在已经不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
