@@ -13837,3 +13837,41 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好嘞，翻车预定
 
+
+
+*****
+
+####  Enakina  
+##### 4236#       发表于 2022-9-10 22:52
+
+ 本帖最后由 Enakina 于 2022-9-10 22:59 编辑 
+
+草，这玩意还有舅舅党吗
+虽说不抱期待，但还是希望像s1千回一样，一集做个铺垫，下一集再讲
+等等，第八集就要塞live了啊，好了，完蛋预告了
+
+*****
+
+####  优妮可  
+##### 4237#       发表于 2022-9-10 23:00
+
+是一张聊天记录里的图，我先编辑了。
+
+*****
+
+####  aoaoaodedede  
+##### 4238#       发表于 2022-9-10 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57430800&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-10 22:36</a>
+
+一回就能讲完？</blockquote>
+如果是可可回，感觉不太可能一集能讲完，前几天发行的那个杂志里，pay提到了 <blockquote>それを知っているのはすみれちゃんだけだからね。第8话以降どうなるんだろう？というところなので、楽しみにしてください！</blockquote>
+那么即使第8集提到了可可的问题，从杂志访谈来推测也不太可能直接讲清楚了，当然如果是理解错误甚至是采访不实那就没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4239#       发表于 2022-9-10 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片不看算了
+
