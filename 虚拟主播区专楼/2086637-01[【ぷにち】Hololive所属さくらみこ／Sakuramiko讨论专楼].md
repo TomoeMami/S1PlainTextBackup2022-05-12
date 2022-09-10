@@ -13668,3 +13668,21 @@ miko下播前：今晚很忙 要练级，不碰rust
 
 holo全员用miko打都通关了就miko自己打不过的世界
 
+
+
+*****
+
+####  qesto  
+##### 1320#       发表于 2022-9-10 20:00
+
+船长：俺が一番うまくみこちを使えるんだ！
+
+
+
+*****
+
+####  holoan  
+##### 1321#         楼主| 发表于 2022-9-10 20:03
+
+みこちを使う<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
