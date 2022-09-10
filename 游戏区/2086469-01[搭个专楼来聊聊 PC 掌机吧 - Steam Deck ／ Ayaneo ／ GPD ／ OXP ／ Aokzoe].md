@@ -2555,3 +2555,16 @@ x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquot
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rossokun  
+##### 207#       发表于 2022-9-10 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57418030&amp;ptid=2086469" target="_blank">asuss 发表于 2022-9-9 23:00</a>
+问下，这种东西搞个外接GPU有可行性么？没用过外界gpu不知道有什么限制？所有雷电3的接口都能用吧 ...</blockquote>
+可行，但是实际连上之后完全就是脱裤子放屁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10943,3 +10943,16 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 又是日本从者，摸了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2483#       发表于 2022-9-10 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57421279&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-10 09:23</a>
+你这也太快了吧！
+
+新活动虽然大概率落地石田三成，但万一他们把壹与想起来了呢，然后顺带复刻一波卑弥呼 ...</blockquote>
+放心，肯定给你来个总司、土方，卑弥呼一条龙复刻
+
