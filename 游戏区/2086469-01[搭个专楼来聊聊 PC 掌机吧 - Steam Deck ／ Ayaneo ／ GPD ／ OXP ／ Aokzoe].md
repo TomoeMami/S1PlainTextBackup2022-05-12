@@ -2568,3 +2568,17 @@ x86掌机我觉得未来等valve公开3.0的官方渠道后，才 ...</blockquot
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  asuss  
+##### 208#       发表于 2022-9-10 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57421625&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-9-10 10:00</a>
+
+可行，但是实际连上之后完全就是脱裤子放屁
+
+—— 来自 Sony G8342, Android 9上的 S1Next-鹅版 v ...</blockquote>
+也明白，就是想如果不打算买台式机了，上网办公买个轻薄本，把这个当纯粹游戏用PC，小游戏直接玩，大游戏插egpu
+
