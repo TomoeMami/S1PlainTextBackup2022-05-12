@@ -2715,3 +2715,14 @@ Ayaneo Geek 价格是很诱人，但是买过 Air Pro 之后我暂时不打算�
 国内几家掌机什么都要加群属实坏文明</blockquote>
 极其傻逼的操作，而且限定群优惠，一股小家子气。
 
+
+
+*****
+
+####  紫煜  
+##### 221#       发表于 2022-9-10 16:26
+
+geek的话aya群里好像说十一月底前发货，其实4399是800p的价格，1200p高个两三百和aok差距不大，就是aok不知道能不能十一前发货，能的话可以绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
