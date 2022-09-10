@@ -2701,3 +2701,17 @@ Ayaneo Geek 价格是很诱人，但是买过 Air Pro 之后我暂时不打算�
 国内几家掌机什么都要加群属实坏文明</blockquote>
 最烦就是加这些破群，国产厂商真的好喜欢弄个小群体。
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 220#       发表于 2022-9-10 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57424479&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-9-10 14:08</a>
+
+还真是，看见官网标价3k以为是补尾款，没想到是定金
+
+国内几家掌机什么都要加群属实坏文明</blockquote>
+极其傻逼的操作，而且限定群优惠，一股小家子气。
+
