@@ -1783,3 +1783,14 @@ TopazGigapixelAI
 看游研社报导，这东西还能通过上传图片来生成一张相同构图的AI画作？GitHub那个页面能下载到吗，找不到运行 ...</blockquote>
 Img2Img，这功能实际操作起来难用的很。
 
+
+
+*****
+
+####  圈量子  
+##### 121#       发表于 2022-9-11 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57427123&amp;ptid=2088857" target="_blank">猫出没注意 发表于 2022-9-10 18:26</a>
+看游研社报导，这东西还能通过上传图片来生成一张相同构图的AI画作？GitHub那个页面能下载到吗，找不到运行 ...</blockquote>
+不要在原来那个上找，谷歌搜一下img2img，有一些现成的别人改好的网页式UI和谷歌colab笔记文件用
+
