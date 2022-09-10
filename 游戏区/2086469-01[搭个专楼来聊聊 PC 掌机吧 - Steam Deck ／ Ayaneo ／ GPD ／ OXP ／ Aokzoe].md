@@ -2726,3 +2726,15 @@ geek的话aya群里好像说十一月底前发货，其实4399是800p的价格�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  慕容断月  
+##### 222#       发表于 2022-9-10 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57421454&amp;ptid=2086469" target="_blank">那由 发表于 2022-9-10 09:43</a>
+
+不是不支持手柄，而是各家掌机很多功能键都是非标准的，拿air来说，home键、菜单键、上面两个额外的C键， ...</blockquote>
+你看错了，我说的是原生PC游戏，不支持手柄的pc游戏，你回歪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
