@@ -9042,3 +9042,12 @@ Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上
 
 还得是king<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17325#       发表于 2022-9-10 20:14
+
+第一天怎么回事啊，人数都不是4的倍数
+
