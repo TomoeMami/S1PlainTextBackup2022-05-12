@@ -13762,3 +13762,42 @@ holo全员用miko打都通关了就miko自己打不过的世界
 
 这人呢？
 
+
+
+*****
+
+####  holoan  
+##### 1328#         楼主| 发表于 2022-9-10 21:54
+
+吃完就睡
+
+*****
+
+####  rs5621  
+##### 1329#       发表于 2022-9-10 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57430032&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-10 21:46</a>
+
+八字母都来了
+
+这人呢？</blockquote>
+在外面迷路了刚到家，八字母在哪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1330#         楼主| 发表于 2022-9-10 21:57
+
+在peko的直播里，看回放吧
+
+现在七八字母合体了
+
+*****
+
+####  rs5621  
+##### 1331#       发表于 2022-9-10 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这么劲爆，必须得看了
+
+miko居然睡过头了，刚好赶上同步视听
+
