@@ -13891,3 +13891,21 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 啊？出了什么情报啊，传传传那个再怎么说也不可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 4242#       发表于 2022-9-10 23:15
+
+已经在谷底了不怕了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 4243#       发表于 2022-9-10 23:21
+
+话说回来，今天官推也在拿牛舌和可可来宣传动画，前几天NHK那张第八集的图也有可可，不会第8集真是可可回吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
