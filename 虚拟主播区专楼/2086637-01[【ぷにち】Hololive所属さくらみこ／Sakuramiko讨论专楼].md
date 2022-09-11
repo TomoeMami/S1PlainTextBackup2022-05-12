@@ -14132,3 +14132,14 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 大家都说作者特地为了让本人好通关调的平衡度
 
+
+
+*****
+
+####  a2276382  
+##### 1362#       发表于 2022-9-11 18:10
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
