@@ -1857,3 +1857,23 @@ b站有人整理了外国人做的整合包。 ...</blockquote>
 谢谢我试试，那个网页版不止慢，而且中途还会莫名其妙出错取消任务。是运行那个webui就行吗，编程 ...</blockquote>
 运行cmd，等它下载好然后在浏览器上输入弹出来的网址就能用了。
 
+
+
+*****
+
+####  猫出没注意  
+##### 126#       发表于 2022-9-11 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57438180&amp;ptid=2088857" target="_blank">凡人 发表于 2022-9-11 14:31</a>
+
+运行cmd，等它下载好然后在浏览器上输入弹出来的网址就能用了。</blockquote>
+原来运行完总是来回提示报错是因为开了梯子。但没有梯子直接下载又非常慢，太难了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">……
+
+<img src="https://img.saraba1st.com/forum/202209/11/160623lkzgtbkqgrwdrsgr.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-09-11_16-05-53.png</strong> (99.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 16:06 上传
+
