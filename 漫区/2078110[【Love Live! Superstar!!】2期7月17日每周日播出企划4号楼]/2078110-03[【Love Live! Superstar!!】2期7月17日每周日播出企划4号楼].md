@@ -14618,3 +14618,125 @@ BD2封面
 这预告怎么想都是寄</blockquote>
 如果有俩集，那也未必会寄，如果准备一集搞完，那么感觉寄了的可能性会很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4316#       发表于 2022-9-11 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说平时不聊舞台的事大家也无所谓 这花一集讲这个讲成这B样
+
+*****
+
+####  仟音一心  
+##### 4317#       发表于 2022-9-11 18:45
+
+为什么放五老星？
+
+<img src="https://img.saraba1st.com/forum/202209/11/184521wsgqzssz3xskktsg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B87EEFCE-75DE-4262-8BAB-52B1F96A266C.jpeg</strong> (192.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:45 上传
+
+*****
+
+####  csolfans  
+##### 4318#       发表于 2022-9-11 18:45
+
+有坛友截图了VN吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4319#       发表于 2022-9-11 18:46
+
+我说都铺垫这么久了，能不能来个大的
+
+千山万水总是情，给个C位行不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4320#       发表于 2022-9-11 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441234&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-11 18:40</a>
+如果有俩集，那也未必会寄，如果准备一集搞完，那么感觉寄了的可能性会很大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">“为了胜利”这个标题过于不安了
+
+
+
+*****
+
+####  we89623  
+##### 4321#       发表于 2022-9-11 18:46
+
+全网整集的讨论度还没有预告里的一帧画面高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 4322#       发表于 2022-9-11 18:47
+
+所以VN到底是跟踪狂，还是生活圈就在香音她们那片呢
+
+*****
+
+####  优妮可  
+##### 4323#       发表于 2022-9-11 18:48
+
+<img src="https://img.saraba1st.com/forum/202209/11/184805cvb93unn3d3vt15t.jpg" referrerpolicy="no-referrer">
+
+<strong>20220911_184724.jpg</strong> (386.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 18:48 上传
+
+鱼来了
+
+*****
+
+####  Piano-Forest  
+##### 4324#       发表于 2022-9-11 18:48
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+第6話挿入歌/第8話挿入歌
+
+「ビタミンSUMMER！ / Chance Day, Chance Way！」
+
+9/21発売
+<img src="https://p.sda1.dev/7/76e39b9349d37b5d1047cd528acf8c00/20220911_184415.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/89b62373c24754f221a3a96c6915048b/20220911_184418.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 4325#       发表于 2022-9-11 18:49
+
+ 本帖最后由 we89623 于 2022-9-11 18:50 编辑 
+
+下集大概率给可回做铺垫，真正的可回应该是第十话。
+
+这样也对应了第一季十话，只是这次攻受方反过来了。
+
+*****
+
+####  Piano-Forest  
+##### 4326#       发表于 2022-9-11 18:50
+
+Blu-ray
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+Blu-rayシリーズは9/28より発売
+<img src="https://p.sda1.dev/7/72e7deef4ea368f01297e965f1b4a0d9/20220911_184834.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/59eff947a827cb558881e4c4a619365a/bd08.jpg" referrerpolicy="no-referrer">
+
