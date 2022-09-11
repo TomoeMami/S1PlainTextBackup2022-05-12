@@ -15069,3 +15069,39 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  JustW_3  
+##### 4359#       发表于 2022-9-11 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以骂的地方也不是找不出来，但追到现在已经有丶懒得骂了
+
+*****
+
+####  saya1892  
+##### 4360#       发表于 2022-9-11 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">可可、可堇都进了趋势，也不能怪贴吧只讨论预告那一帧，实在是今天的动画淡出鸟
+
+<img src="https://img.saraba1st.com/forum/202209/11/212514xywee99buw0hzy2r.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (3.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 21:25 上传
+
+*****
+
+####  aoaoaodedede  
+##### 4361#       发表于 2022-9-11 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57444013&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-11 21:27</a>
+
+可可、可堇都进了趋势，也不能怪贴吧只讨论预告那一帧，实在是今天的动画淡出鸟
+
+ ...</blockquote>
+这个趋势是算法定制的吧，不算那个有排名的趋势吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
