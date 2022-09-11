@@ -14246,3 +14246,197 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 vn在台下
 
+
+
+*****
+
+####  JustW_3  
+##### 4283#       发表于 2022-9-11 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本集评价，直接看最后的live就行了，前面不看对剧情没影响，就是在憋一个live的前情提要
+
+*****
+
+####  ViyViy  
+##### 4284#       发表于 2022-9-11 18:23
+
+本直男审美忍不住了……星二的服装真的都是第一眼感觉很怪……设计师阿别磕药了阿！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4285#       发表于 2022-9-11 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草下集有可堇
+
+liella之歌是红蓝
+
+*****
+
+####  iuhehc  
+##### 4286#       发表于 2022-9-11 18:24
+
+可堇戏要来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4287#       发表于 2022-9-11 18:24
+
+千呼万唤的可可回来咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 4288#       发表于 2022-9-11 18:24
+
+ 本帖最后由 稀勢のささ 于 2022-9-11 18:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香哥哥说这条街连接着大家所以这地儿好 我只能你说是就是吧
+
+前面的看完就记得个黑暗料理
+
+*****
+
+####  Alicest  
+##### 4289#       发表于 2022-9-11 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+↑
+
+live
+
+↓
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 4290#       发表于 2022-9-11 18:25
+
+爱生活超级大明星第二季之香音和她的朋友们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ads147147  
+##### 4291#       发表于 2022-9-11 18:25
+
+支持vn爆杀这群莫名其妙的人。
+
+进会要分担，结果自己也忙不过来二次外包，真有你啊花田，这种傻逼剧情也想的出来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 4292#       发表于 2022-9-11 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4293#       发表于 2022-9-11 18:26
+
+ 本帖最后由 JustW_3 于 2022-9-11 18:27 编辑 
+
+歌我觉得比e6的强
+
+香音顿悟这点不如第一季想队名
+
+*****
+
+####  优妮可  
+##### 4294#       发表于 2022-9-11 18:26
+
+可回在预告里，早点结束吧，还得麻一周
+
+*****
+
+####  ViyViy  
+##### 4295#       发表于 2022-9-11 18:27
+
+我觉得就是先告诉你狼来了，预告那画面大概率是9话尾，具体得第十话说完
+
+*****
+
+####  aoaoaodedede  
+##### 4296#       发表于 2022-9-11 18:27
+
+云了一圈，没看生肉，看大家说衣服，好奇是个啥样子的
+
+*****
+
+####  Alicest  
+##### 4297#       发表于 2022-9-11 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441059&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-9-11 18:25</a>
+
+爱生活超级大明星第二季之香音和她的朋友们</blockquote>
+不如叫结丘的部长们<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4298#       发表于 2022-9-11 18:28
+
+ 本帖最后由 iuhehc 于 2022-9-11 18:31 编辑 
+
+看标题下一集应该还不是可回，感觉是下下集
+
+*****
+
+####  Kfly  
+##### 4299#       发表于 2022-9-11 18:28
+
+终于要来了吗，回国回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4300#       发表于 2022-9-11 18:28
+
+衣服就是秋日收获祭的祭典服
+
+*****
+
+####  we89623  
+##### 4301#       发表于 2022-9-11 18:28
+
+我对可回还是有点信心的，毕竟第一季可可当主役的都是神回<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4302#       发表于 2022-9-11 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4303#       发表于 2022-9-11 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441120&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-11 18:28</a>
+妹子营业了半天 结果vn就一个镜头</blockquote>
+毕竟是三期生，给太多戏份，第三季怎么演（不过再怎么演也是香音传就是了）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 4304#       发表于 2022-9-11 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441103&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-11 18:27</a>
+云了一圈，没看生肉，看大家说衣服，好奇是个啥样子的</blockquote>
+<img src="https://p.sda1.dev/7/5d80484f7667c5a9f268b26293994ca9/CMP_20220911182928592.jpg" referrerpolicy="no-referrer">
+
+改造自这种吧，专业的我也不懂
+
