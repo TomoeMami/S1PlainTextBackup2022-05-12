@@ -9116,3 +9116,14 @@ syl原来是三人队</blockquote>
 
 不过我就爱看三俗，不三俗不看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17331#       发表于 2022-9-11 11:29
+
+不会是看到这视频马上开了一窗练字直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+千桑这字还挺不错，明明是个ガキ写得比旁边的お嬢好
+
