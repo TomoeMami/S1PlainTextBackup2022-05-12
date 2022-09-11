@@ -13974,3 +13974,12 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 
 这片现在都这样了还担惊受怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便看看拉倒了
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 4251#       发表于 2022-9-11 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他人烂了还能当外人看，可鲤自家人是真看不得受这种委屈还要挨厕人造谣辱骂
+
