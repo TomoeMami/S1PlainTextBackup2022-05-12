@@ -15158,3 +15158,15 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  沙茶酱  
+##### 4368#       发表于 2022-9-11 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443928&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-11 21:23</a>
+
+可以骂的地方也不是找不出来，但追到现在已经有丶懒得骂了</blockquote>
+有一点不是喷点但是有点怪的，就是上集她们还在打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
