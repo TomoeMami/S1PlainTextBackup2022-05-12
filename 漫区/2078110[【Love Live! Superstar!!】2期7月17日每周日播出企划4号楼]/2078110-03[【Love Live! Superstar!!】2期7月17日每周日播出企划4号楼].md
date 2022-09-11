@@ -14901,3 +14901,25 @@ Blu-rayシリーズは9/28より発売
 别磨磨唧唧最后搞出来个可堇双C曲就行</blockquote>
 没准是可堇版tinystar呢
 
+
+
+*****
+
+####  saya1892  
+##### 4344#       发表于 2022-9-11 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441904&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-9-11 19:36</a>
+
+可可回是烂是神看下集能猜个大概了吧
+
+—— 来自 S1Fun</blockquote>
+不好说，看1期789你也不能想象10是个神回
+
+但10话小毛病也很不少，最大的问题还是突然出现的堇让C这个线索，拉板经常嘲笑的王冠天上飞反倒根本不是个事了
+
+现在大家最怕的还是不管剧情怎么严肃催泪最后还是卡农教祖出来摘桃子这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+如果香哥哥从头开始就很努力另说
+
+ 再摆出那个圣母笑出来迷魂一握可可就傻乎乎不走了那我这辈子永远是香音黑 
+
