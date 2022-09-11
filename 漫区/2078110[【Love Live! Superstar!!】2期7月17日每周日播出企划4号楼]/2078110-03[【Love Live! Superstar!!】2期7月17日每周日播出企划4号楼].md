@@ -14440,3 +14440,181 @@ live
 
 改造自这种吧，专业的我也不懂
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4305#       发表于 2022-9-11 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这预告怎么想都是寄
+
+*****
+
+####  仟音一心  
+##### 4306#       发表于 2022-9-11 18:35
+
+<blockquote>aoaoaodedede 发表于 2022-9-11 18:27
+云了一圈，没看生肉，看大家说衣服，好奇是个啥样子的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/11/183514w2g4r4tzto2s54s6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>08ECDD89-8BD5-442B-AC43-70375303FB9A.jpeg</strong> (404.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183514kagwwjawgglbn5jw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DE8D5080-62DF-44C3-9F35-F483E2AE5820.jpeg</strong> (414.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183514rzccwr3eqqfheewh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>81B2333D-DBDB-45EB-B638-FB207236D835.jpeg</strong> (427.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183514kho5lwl3l9zahhwk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0247A18B-6E3F-4EB4-AEF5-9FBA3C366E65.jpeg</strong> (421.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183514xstobhvxtvbtxvrv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1A0980E8-B36D-4BDB-BC78-77FD8A3DE668.jpeg</strong> (398.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183529uutnzeeectbtpppt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F7034DBB-EDC0-4F6B-8654-057B645014E6.jpeg</strong> (338.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183538i79pgyu674ak979g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AD1100F7-ED80-4B01-A3DC-0DB18FD5156F.jpeg</strong> (526.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:35 上传
+
+*****
+
+####  仟音一心  
+##### 4307#       发表于 2022-9-11 18:36
+
+我怕了
+
+<img src="https://img.saraba1st.com/forum/202209/11/183602qdzmfoidtox00vxm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0CE9A210-4056-4F94-8F10-E42E925CC498.jpeg</strong> (214.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202209/11/183602x7lzp4lmz9w992nc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4A3DC7AB-F6E4-40E6-AB59-A4BE3FE4DC05.jpeg</strong> (144.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:36 上传
+
+*****
+
+####  仟音一心  
+##### 4308#       发表于 2022-9-11 18:36
+
+BD2封面
+
+<img src="https://img.saraba1st.com/forum/202209/11/183633lz43m33clljloqal.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BC6D1D67-AD53-4EF6-99D4-8FB86E85B2B2.jpeg</strong> (192.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-11 18:36 上传
+
+*****
+
+####  aoaoaodedede  
+##### 4309#       发表于 2022-9-11 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441187&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-11 18:35</a></blockquote>
+好像没我想的那么难看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4310#       发表于 2022-9-11 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">衣服和歌我觉得都比e6强吧，e6太抽象了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4311#       发表于 2022-9-11 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">和隔壁闪耀色彩里放课后最新一轮的打歌服完全一致
+
+*****
+
+####  player3960  
+##### 4312#       发表于 2022-9-11 18:39
+
+话说亚里亚的中之人，松永茜，和鲤鱼是一个事务所的吧，看可可邀请她的时候，想这要是真能进三期就有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JustW_3  
+##### 4313#       发表于 2022-9-11 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441224&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-11 18:39</a>
+话说亚里亚的中之人，松永茜，和鲤鱼是一个事务所的吧，看可可邀请她的时候，想这要是真能进三期就有趣了[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你别说，真可能
+
+*****
+
+####  ViyViy  
+##### 4314#       发表于 2022-9-11 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱们估计还要被多拉扯一周呢，除非花田京极逆天到只用半个part讲完可可的事情，剩下半个又在为了那逼大赛不明所以
+
+*****
+
+####  aoaoaodedede  
+##### 4315#       发表于 2022-9-11 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441168&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-11 18:34</a>
+
+这预告怎么想都是寄</blockquote>
+如果有俩集，那也未必会寄，如果准备一集搞完，那么感觉寄了的可能性会很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
