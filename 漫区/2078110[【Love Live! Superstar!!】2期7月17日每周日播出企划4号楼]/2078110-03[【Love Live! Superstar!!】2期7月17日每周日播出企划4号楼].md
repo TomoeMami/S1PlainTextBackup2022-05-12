@@ -14142,3 +14142,107 @@ VN真要是还让liella红温，那战绩已经远超as岚珠了，我还是倾�
 由手机上传
 2022-9-11 18:10 上传
 
+
+
+*****
+
+####  iuhehc  
+##### 4270#       发表于 2022-9-11 18:13
+
+这集想说什么啊
+
+*****
+
+####  JustW_3  
+##### 4271#       发表于 2022-9-11 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">找个靠live振兴街道由头？←其实就是找舞台
+
+*****
+
+####  稀勢のささ  
+##### 4272#       发表于 2022-9-11 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57440892&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-9-11 18:13</a>
+
+这集想说什么啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">香哥哥说  我们也必须找到  找啥我暂且蒙古
+
+*****
+
+####  JustW_3  
+##### 4273#       发表于 2022-9-11 18:15
+
+ 本帖最后由 JustW_3 于 2022-9-11 18:17 编辑 
+
+？？粉丝帮忙干学生会还行
+
+这逻辑有点怪，三个偶像+一个粉丝组成的学生会，由于偶像太忙就变成了三个粉丝干活，那你偶像进学生会是为什么，刷资历吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4274#       发表于 2022-9-11 18:16
+
+这哭的是否太快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4275#       发表于 2022-9-11 18:18
+
+香老师又悟了
+
+*****
+
+####  JustW_3  
+##### 4276#       发表于 2022-9-11 18:18
+
+宣传图的地点吧
+
+*****
+
+####  稀勢のささ  
+##### 4277#       发表于 2022-9-11 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“你们怎么了”“我们看你好像发大病了”
+
+*****
+
+####  cybernetics31  
+##### 4278#       发表于 2022-9-11 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4279#       发表于 2022-9-11 18:19
+
+ 本帖最后由 JustW_3 于 2022-9-11 18:21 编辑 
+
+马自立花车
+
+*****
+
+####  JustW_3  
+##### 4280#       发表于 2022-9-11 18:21
+
+有v味儿和霓虹味儿的歌，不错
+
+*****
+
+####  player3960  
+##### 4281#       发表于 2022-9-11 18:21
+
+还是快点下集预告吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JustW_3  
+##### 4282#       发表于 2022-9-11 18:22
+
+vn在台下
+
