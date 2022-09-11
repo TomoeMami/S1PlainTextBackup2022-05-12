@@ -1983,3 +1983,40 @@ ImportError: DLL load failed while importing _fblas: 找不到指定的模块。
 lexica
 另外推上有些人发图会带上描述
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 135#       发表于 2022-9-11 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">今天看到群友提到的用d站图片训练的数据集waifu diffusion，试了下效果的确顶 <blockquote>extremely detailed CG unity 8k wallpaper of a loli girl with pink long wavy hairstyle and white marble glowing skin and perfect symmetrical pretty face with blush cheeks, cleavage of huge_breasts from azur_lane, wearing fantasic dress with many frills, standing in the baroque architecture, art by krenz cushart and violet_evergarden, golden hour lighting, strong rim light, intense shadows, taken by Canon EOS, SIGMA Art Lens 35mm F1.4, ISO 200 Shutter Speed 2000</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/11/210944o28kz2sklckdeq20.jpg" referrerpolicy="no-referrer">
+
+<strong>grid-00131.jpg</strong> (690.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 21:09 上传
+
+然后又试了下trinart的数据集，不同的风格，效果也很不错
+
+<img src="https://img.saraba1st.com/forum/202209/11/210943c3we5uq3kvmuubpq.jpg" referrerpolicy="no-referrer">
+
+<strong>grid-0013.jpg</strong> (711.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 21:09 上传
+
+ <blockquote>japanese anime of a cute girl, fantasy costume, fantasy background, fantasy landscap, beautiful composition, cinematic lighting, pixiv, digital painting, Masayoshi Tanaka, Makoto Shinkai, kimi no namae wa, your name, tenki no ko, Weathering With You, cel shade,  light novel,  isekai, sharp focus,  ray tracing,  8k,  cinematic postprocessing</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/11/210944xc9jowlbl18bmbci.jpg" referrerpolicy="no-referrer">
+
+<strong>grid-0014.jpg</strong> (979.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 21:09 上传
+

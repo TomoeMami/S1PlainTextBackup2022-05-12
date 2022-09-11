@@ -15046,3 +15046,26 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 吃完饭了，这集怎样？新歌那个衣服我不希望做出来，穿上又是给鲤鱼招一波不是人的物体 ...</blockquote>
 看生肉很水，夸骂都找不出地方来，快进到live和预告就是了
 
+
+
+*****
+
+####  Kfly  
+##### 4357#       发表于 2022-9-11 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443409&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-11 20:59</a>
+
+看生肉很水，夸骂都找不出地方来，快进到live和预告就是了</blockquote>
+我猜，熟肉一出就有骂的地方了（经验谈）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 4358#       发表于 2022-9-11 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443680&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-11 21:12</a>
+我猜，熟肉一出就有骂的地方了（经验谈）</blockquote>
+熟肉比生肉多人骂，这属于星二期特色了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
