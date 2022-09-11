@@ -15147,3 +15147,14 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 那个好像是可可怼堇的话翻译了就爆炸了</blockquote>
 不只那一次，反正我感觉熟肉一出就马上开始第二波ttk（非贬义）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 4367#       发表于 2022-9-11 22:44
+
+忘记生放了，等熟肉。没弹幕吐槽了少了乐趣啊。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
