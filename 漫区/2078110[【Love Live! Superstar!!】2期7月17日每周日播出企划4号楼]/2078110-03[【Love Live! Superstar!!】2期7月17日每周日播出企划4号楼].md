@@ -15170,3 +15170,19 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 可以骂的地方也不是找不出来，但追到现在已经有丶懒得骂了</blockquote>
 有一点不是喷点但是有点怪的，就是上集她们还在打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4369#       发表于 2022-9-11 23:35
+
+学生会都是apb的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 4370#       发表于 2022-9-11 23:39
+
+熟肉啥时候有啊，好久没看熟肉了。
+
