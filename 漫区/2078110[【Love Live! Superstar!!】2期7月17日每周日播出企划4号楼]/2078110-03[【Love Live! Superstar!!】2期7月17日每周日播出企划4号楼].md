@@ -14937,3 +14937,23 @@ Blu-rayシリーズは9/28より発売
 但10话小毛病也很不少，最大的问题还是突然出现的堇让C这个线索 ...</blockquote>
 这个想法，还别说，可可现在是老香音推了，真写出这种剧情，在某种意义上也不完全是毫无逻辑，只是可可塑造肯定就烂了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4346#       发表于 2022-9-11 20:14
+
+甚至希望它晚点来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+双C曲确定，别是香音就好
+
+*****
+
+####  ads147147  
+##### 4347#       发表于 2022-9-11 20:22
+
+现在这个势头想要躲开香音是不可能的吧，真的逆天，一年前还在喊可香可香，现在对香音避之不及。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
