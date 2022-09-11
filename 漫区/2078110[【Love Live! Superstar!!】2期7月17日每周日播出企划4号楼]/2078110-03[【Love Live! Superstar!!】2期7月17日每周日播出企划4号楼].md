@@ -14957,3 +14957,44 @@ Blu-rayシリーズは9/28より発売
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 4348#       发表于 2022-9-11 20:24
+
+BD第二卷的特典是裂啦去哪，不过只有二期生四人
+
+*****
+
+####  稀勢のささ  
+##### 4349#       发表于 2022-9-11 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常最烂也就“我要润了”“そうかな” 了吧   为了黑角色写剧情另说
+
+*****
+
+####  iuhehc  
+##### 4350#       发表于 2022-9-11 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442715&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-11 20:24</a>
+正常最烂也就“我要润了”“そうかな” 了吧   为了黑角色写剧情另说 ...</blockquote>
+我还真觉得有这个可能，“我要润了”　“そうかな”
+然后又被工具人千堇说服，化身教主散发魅力留下可可
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  名津流  
+##### 4351#       发表于 2022-9-11 20:30
+
+ 本帖最后由 名津流 于 2022-9-11 20:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441324&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-11 18:48</a>
+
+鱼来了</blockquote>
+上期生放之后我在3745楼就说过，希望下次让剩下4个来，颜值就是团内最顶配了，想不到居然成真了（多带了个上期的yabu）
+
