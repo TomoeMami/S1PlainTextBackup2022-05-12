@@ -15186,3 +15186,14 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 熟肉啥时候有啊，好久没看熟肉了。
 
+
+
+*****
+
+####  player3960  
+##### 4371#       发表于 2022-9-11 23:58
+
+迷额，安排把会计让三巨头之一七当也就算了，还专门让可可来一句她也想当，那你倒是给可可没当成的理由啊，好歹睡觉都能答题的人，数学不虚的吧，还是说只是为了接下来迫害一下堇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
