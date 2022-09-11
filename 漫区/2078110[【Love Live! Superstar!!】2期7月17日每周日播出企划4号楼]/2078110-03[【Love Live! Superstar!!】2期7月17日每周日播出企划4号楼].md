@@ -14740,3 +14740,21 @@ Blu-rayシリーズは9/28より発売
 <img src="https://p.sda1.dev/7/72e7deef4ea368f01297e965f1b4a0d9/20220911_184834.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/59eff947a827cb558881e4c4a619365a/bd08.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 4327#       发表于 2022-9-11 18:57
+
+说起这个BD封面阿，我有个桃子，照第六卷必是全员的规律，前五卷要么22235，要么22221，第五卷正好对应9、10话，不谜语了，要么可可单独一个BD封面，要么老五星！花田京极清醒一点，写的好了星二的第五卷也算有意义了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4328#       发表于 2022-9-11 19:00
+
+胜利のために，显然下集核心还是比赛，可可回应该在第十集
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭怎么还能把日文汉字转成简体字的
+
