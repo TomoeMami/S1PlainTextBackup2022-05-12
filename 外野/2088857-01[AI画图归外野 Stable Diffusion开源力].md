@@ -1911,3 +1911,19 @@ b站有人整理了外国人做的整合包。 ...</blockquote>
 
 描述词很关键，不知道从哪里入手。
 
+
+
+*****
+
+####  套路设计师  
+##### 129#       发表于 2022-9-11 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57438180&amp;ptid=2088857" target="_blank">凡人 发表于 2022-9-11 14:31</a>
+
+运行cmd，等它下载好然后在浏览器上输入弹出来的网址就能用了。</blockquote>
+一直显示：
+
+ImportError: DLL load failed while importing _fblas: 找不到指定的模块。
+
+是什么情况呢？
+
