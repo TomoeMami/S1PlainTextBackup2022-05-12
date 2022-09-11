@@ -15105,3 +15105,45 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
  ...</blockquote>
 这个趋势是算法定制的吧，不算那个有排名的趋势吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4362#       发表于 2022-9-11 21:46
+
+我想看那个禁断的世界<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4363#       发表于 2022-9-11 21:47
+
+<blockquote>Kfly 发表于 2022-9-11 21:12
+我猜，熟肉一出就有骂的地方了（经验谈）</blockquote>
+那个好像是可可怼堇的话翻译了就爆炸了
+
+*****
+
+####  renkan119  
+##### 4364#       发表于 2022-9-11 21:51
+
+这集就同学说帮忙做学生会工作 然后一群人开始哇哇哭看着很尴 还有就是搞不懂为什么要在学生会里塞三个裂啦的人
+
+*****
+
+####  renkan119  
+##### 4365#       发表于 2022-9-11 21:51
+
+这集就同学说帮忙做学生会工作 然后一群人开始哇哇哭看着很尴 还有就是搞不懂为什么要在学生会里塞三个裂啦的人
+
+*****
+
+####  Kfly  
+##### 4366#       发表于 2022-9-11 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57444359&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-11 21:47</a>
+
+那个好像是可可怼堇的话翻译了就爆炸了</blockquote>
+不只那一次，反正我感觉熟肉一出就马上开始第二波ttk（非贬义）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
