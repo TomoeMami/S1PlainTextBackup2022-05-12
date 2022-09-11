@@ -1794,3 +1794,23 @@ Img2Img，这功能实际操作起来难用的很。
 看游研社报导，这东西还能通过上传图片来生成一张相同构图的AI画作？GitHub那个页面能下载到吗，找不到运行 ...</blockquote>
 不要在原来那个上找，谷歌搜一下img2img，有一些现成的别人改好的网页式UI和谷歌colab笔记文件用
 
+
+
+*****
+
+####  猫出没注意  
+##### 122#       发表于 2022-9-11 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57434154&amp;ptid=2088857" target="_blank">圈量子 发表于 2022-9-11 06:48</a>
+
+不要在原来那个上找，谷歌搜一下img2img，有一些现成的别人改好的网页式UI和谷歌colab笔记文件用 ...</blockquote>
+谢谢。不过这个好慢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有其他人排队等着用。不知道能不能下载到电脑里跑，我CPU和显卡都是比较新的够用了。
+
+<img src="https://img.saraba1st.com/forum/202209/11/104647wt3jhejx584t34q7.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-09-11_10-45-47.png</strong> (3.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-11 10:46 上传
+
