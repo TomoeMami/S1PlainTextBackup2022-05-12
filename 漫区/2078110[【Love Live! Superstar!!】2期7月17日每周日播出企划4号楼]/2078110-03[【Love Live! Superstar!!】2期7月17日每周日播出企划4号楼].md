@@ -15197,3 +15197,23 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Skyline_R  
+##### 4372#       发表于 2022-9-12 01:56
+
+[https://www.bilibili.com/video/BV1zP411G77y?p=3](https://www.bilibili.com/video/BV1zP411G77y?p=3)
+
+周六泛式直播，P3 33分48秒开始，扭曲/政斗向解读第7话恋回
+
+属实给我看乐了，台长不出个好汉歌真的可惜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 4373#       发表于 2022-9-12 04:37
+
+这练习与干别的事情，说句不好听的，感觉可以玩偿还与透支的梗了。
+

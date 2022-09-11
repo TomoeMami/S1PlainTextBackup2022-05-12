@@ -14387,3 +14387,39 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 不过如果放晚上播的话确实同接能更高
 
+
+
+*****
+
+####  rs5621  
+##### 1385#       发表于 2022-9-12 02:14
+
+<img src="https://img.saraba1st.com/forum/202209/12/021339apun1kp5tl15xit5.png" referrerpolicy="no-referrer">
+
+<strong>40Y}}2DAAVP{O}$C{]50C.png</strong> (104.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 02:13 上传
+
+[推特](https://twitter.com/Kishiro_0202/status/1568512740461023232?s=20&amp;t=Nzq1ttsRQ5wgMJJ23p8BAw)
+
+这张八字母的画得不错
+
+*****
+
+####  rs5621  
+##### 1386#       发表于 2022-9-12 05:46
+
+ 本帖最后由 rs5621 于 2022-9-12 05:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/12/055501u4lhhehbdi5j5jnb.jpg" referrerpolicy="no-referrer">
+
+<strong>s1 巫女楼贺图.jpg</strong> (278.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 05:55 上传
+
+画了张贺图庆祝一下
+
