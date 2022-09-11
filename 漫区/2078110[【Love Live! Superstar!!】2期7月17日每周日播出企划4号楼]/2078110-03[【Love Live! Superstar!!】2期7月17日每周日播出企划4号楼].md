@@ -14923,3 +14923,17 @@ Blu-rayシリーズは9/28より発売
 
  再摆出那个圣母笑出来迷魂一握可可就傻乎乎不走了那我这辈子永远是香音黑 
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 4345#       发表于 2022-9-11 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442246&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-11 20:02</a>
+
+不好说，看1期789你也不能想象10是个神回
+
+但10话小毛病也很不少，最大的问题还是突然出现的堇让C这个线索 ...</blockquote>
+这个想法，还别说，可可现在是老香音推了，真写出这种剧情，在某种意义上也不完全是毫无逻辑，只是可可塑造肯定就烂了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
