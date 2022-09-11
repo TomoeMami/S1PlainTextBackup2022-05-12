@@ -14184,3 +14184,14 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 阿心打得确实比miko自己还好
 
+
+
+*****
+
+####  rs5621  
+##### 1366#       发表于 2022-9-11 19:08
+
+想整2天连着定休日
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
