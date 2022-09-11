@@ -14195,3 +14195,12 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1367#         楼主| 发表于 2022-9-11 19:23
+
+今天晚上看上去也要找借口鸽了
+

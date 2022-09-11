@@ -1953,3 +1953,12 @@ ImportError: DLL load failed while importing _fblas: 找不到指定的模块。
 装下Anaconda3试试？还不行的话去官网找找https://rentry.co/GUItard</blockquote>
 谢谢
 
+
+
+*****
+
+####  Ura赤  
+##### 132#       发表于 2022-9-11 19:24
+
+想本地玩玩，折腾了半天，最后才想起来我是a卡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

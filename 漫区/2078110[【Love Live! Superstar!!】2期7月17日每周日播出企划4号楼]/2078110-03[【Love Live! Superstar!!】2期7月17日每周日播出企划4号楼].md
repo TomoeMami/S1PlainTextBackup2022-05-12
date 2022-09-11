@@ -14826,3 +14826,33 @@ Blu-rayシリーズは9/28より発売
 目前没有任何直接的消息能说明可回的剧情早就写好了吧，还是先别认为可可回的剧情是被打磨过的为好[f:009 ...</blockquote>
 可可回国这事第一季就在铺垫，就算不是完全写好，但大纲大概率是定下来了的。
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 4337#       发表于 2022-9-11 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我要看可可高光而不是给他人作嫁衣裳
+
+*****
+
+####  Kfly  
+##### 4338#       发表于 2022-9-11 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441755&amp;ptid=2078110" target="_blank">甘蓝巧克力 发表于 2022-9-11 19:24</a>
+
+我要看可可高光而不是给他人作嫁衣裳</blockquote>
+难，高光一般不会给被动的一方的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 4339#       发表于 2022-9-11 19:29
+
+ 本帖最后由 we89623 于 2022-9-11 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441784&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-11 19:26</a>
+
+难，高光一般不会给被动的一方的吧</blockquote>
+其实也不一定，毕竟可可的性格就算被动也不是受，其实可以期待下第一季前三集的可可回归。当然...我是说花田京极靠谱的情况下。
+
