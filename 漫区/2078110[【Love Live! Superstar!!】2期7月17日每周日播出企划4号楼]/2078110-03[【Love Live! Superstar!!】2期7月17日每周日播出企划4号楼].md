@@ -14797,3 +14797,32 @@ Blu-rayシリーズは9/28より発売
 
 最多是有个大概的框架，怎么填内容和安排节奏还是需要花田，这个人恶心起来啥样子第五集也看到了，整的我那周日一晚上没睡，靠。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 4334#       发表于 2022-9-11 19:16
+
+别磨磨唧唧最后搞出来个可堇双C曲就行
+
+*****
+
+####  aoaoaodedede  
+##### 4335#       发表于 2022-9-11 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441536&amp;ptid=2078110" target="_blank">we89623 发表于 2022-9-11 19:06</a>
+
+这么说，可回的剧情应该是在第一季前就已经写好了，如果在拉星的动画就真没救了。 ...</blockquote>
+目前没有任何直接的消息能说明可回的剧情早就写好了吧，还是先别认为可可回的剧情是被打磨过的为好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 4336#       发表于 2022-9-11 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441668&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-11 19:18</a>
+
+目前没有任何直接的消息能说明可回的剧情早就写好了吧，还是先别认为可可回的剧情是被打磨过的为好[f:009 ...</blockquote>
+可可回国这事第一季就在铺垫，就算不是完全写好，但大纲大概率是定下来了的。
+
