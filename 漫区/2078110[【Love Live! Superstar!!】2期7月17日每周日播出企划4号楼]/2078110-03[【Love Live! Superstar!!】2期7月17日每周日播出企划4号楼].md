@@ -14998,3 +14998,51 @@ BD第二卷的特典是裂啦去哪，不过只有二期生四人
 鱼来了</blockquote>
 上期生放之后我在3745楼就说过，希望下次让剩下4个来，颜值就是团内最顶配了，想不到居然成真了（多带了个上期的yabu）
 
+
+
+*****
+
+####  kata魂  
+##### 4352#       发表于 2022-9-11 20:53
+
+可可回赶紧结束吧，就不用受动画折磨了，这玩意爱谁看谁看吧
+
+*****
+
+####  lj205  
+##### 4353#       发表于 2022-9-11 20:53
+
+吃完饭了，这集怎样？新歌那个衣服我不希望做出来，穿上又是给鲤鱼招一波不是人的物体
+
+*****
+
+####  JustW_3  
+##### 4354#       发表于 2022-9-11 20:54
+
+ 本帖最后由 JustW_3 于 2022-9-11 20:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443317&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-11 20:53</a>
+吃完饭了，这集怎样？新歌那个衣服我不希望做出来，穿上又是给鲤鱼招一波不是人的物体 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接看live切片就好的一集
+
+live前面的部分也不是说好还是坏，但每一分钟我都能感受到这是为了最后的live硬憋硬凑出来的
+
+*****
+
+####  lj205  
+##### 4355#       发表于 2022-9-11 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443329&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-11 20:54</a>
+直接看live切片就好的一集
+
+live前面的部分也不是说好还是坏，但每一分钟我都能感受到这是为了最 ...</blockquote>
+嗷，那我看完了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4356#       发表于 2022-9-11 20:59
+
+<blockquote>lj205 发表于 2022-9-11 20:53
+吃完饭了，这集怎样？新歌那个衣服我不希望做出来，穿上又是给鲤鱼招一波不是人的物体 ...</blockquote>
+看生肉很水，夸骂都找不出地方来，快进到live和预告就是了
+

@@ -1971,3 +1971,15 @@ ImportError: DLL load failed while importing _fblas: 找不到指定的模块。
 
 链接出来了，但输入关键词后怎么一直在loading
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 134#       发表于 2022-9-11 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57439568&amp;ptid=2088857" target="_blank">masariro 发表于 2022-9-11 16:37</a>
+描述词很关键，不知道从哪里入手。</blockquote>
+lexica
+另外推上有些人发图会带上描述
+
