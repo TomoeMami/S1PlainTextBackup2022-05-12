@@ -14856,3 +14856,26 @@ Blu-rayシリーズは9/28より発売
 难，高光一般不会给被动的一方的吧</blockquote>
 其实也不一定，毕竟可可的性格就算被动也不是受，其实可以期待下第一季前三集的可可回归。当然...我是说花田京极靠谱的情况下。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 4340#       发表于 2022-9-11 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441697&amp;ptid=2078110" target="_blank">we89623 发表于 2022-9-11 19:19</a>
+
+可可回国这事第一季就在铺垫，就算不是完全写好，但大纲大概率是定下来了的。 ...</blockquote>
+有大纲，这具体表现也未必精彩，从一期动画第4集开始，我就没觉得他们搞动画的有多么好好对待可可这个角色，先别做过多的期待。
+
+可可的问题积了这么久，如果剧情准备搞激烈的矛盾冲突，我感觉那么要么神，要么烂，至于平平淡淡过完可可回，想想也挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4341#       发表于 2022-9-11 19:36
+
+可可回是烂是神看下集能猜个大概了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
