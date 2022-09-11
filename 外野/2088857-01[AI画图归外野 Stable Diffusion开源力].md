@@ -1814,3 +1814,19 @@ Img2Img，这功能实际操作起来难用的很。
 
 2022-9-11 10:46 上传
 
+
+
+*****
+
+####  凡人  
+##### 123#       发表于 2022-9-11 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57435664&amp;ptid=2088857" target="_blank">猫出没注意 发表于 2022-9-11 10:46</a>
+
+谢谢。不过这个好慢还有其他人排队等着用。不知道能不能下载到电脑里跑，我CPU和显卡都是比较新的 ...</blockquote>
+[https://pan.baidu.com/s/1iQErzSPmWnuft-EM12LLJA](https://pan.baidu.com/s/1iQErzSPmWnuft-EM12LLJA) 
+
+提取码：5555 
+
+b站有人整理了外国人做的整合包。
+
