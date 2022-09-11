@@ -1846,3 +1846,14 @@ https://pan.baidu.com/s/1iQErzSPmWnuft-EM12LLJA
 b站有人整理了外国人做的整合包。 ...</blockquote>
 谢谢我试试，那个网页版不止慢，而且中途还会莫名其妙出错取消任务。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  凡人  
+##### 125#       发表于 2022-9-11 14:31
+
+<blockquote>猫出没注意 发表于 2022-9-11 12:46
+谢谢我试试，那个网页版不止慢，而且中途还会莫名其妙出错取消任务。是运行那个webui就行吗，编程 ...</blockquote>
+运行cmd，等它下载好然后在浏览器上输入弹出来的网址就能用了。
+
