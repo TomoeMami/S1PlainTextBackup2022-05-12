@@ -1830,3 +1830,19 @@ Img2Img，这功能实际操作起来难用的很。
 
 b站有人整理了外国人做的整合包。
 
+
+
+*****
+
+####  猫出没注意  
+##### 124#       发表于 2022-9-11 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57436652&amp;ptid=2088857" target="_blank">凡人 发表于 2022-9-11 12:04</a>
+
+https://pan.baidu.com/s/1iQErzSPmWnuft-EM12LLJA 
+
+提取码：5555 
+
+b站有人整理了外国人做的整合包。 ...</blockquote>
+谢谢我试试，那个网页版不止慢，而且中途还会莫名其妙出错取消任务。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
