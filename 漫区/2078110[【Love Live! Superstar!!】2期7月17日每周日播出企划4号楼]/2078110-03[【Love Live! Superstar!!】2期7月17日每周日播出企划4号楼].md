@@ -15595,3 +15595,15 @@ VN这种敌团设定，我觉得是不会入团的
 最后</blockquote>
 谢谢
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 4408#       发表于 2022-9-12 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57451687&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-12 15:12</a>
+
+演出是一期生，talk二期生一块</blockquote>
+话说一期生talk应该也在的吧
+
