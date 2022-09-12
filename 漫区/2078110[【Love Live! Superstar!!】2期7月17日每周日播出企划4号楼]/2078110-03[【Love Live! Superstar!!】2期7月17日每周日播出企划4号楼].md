@@ -15347,3 +15347,24 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 可回别给可招黑就行了，给别人做台阶就做吧，又不是第一次了
 
+
+
+*****
+
+####  仟音一心  
+##### 4386#       发表于 2022-9-12 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441286&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-9-11 18:45</a>
+
+有坛友截图了VN吗</blockquote>
+最后
+
+E0451C95-D9F6-4290-B8E3-D8FBC4ABDC20.jpeg
+(99.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 11:20 上传
+
+<img src="https://img.saraba1st.com/forum/202209/12/112003qfdgfdcbyf55ygem.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
