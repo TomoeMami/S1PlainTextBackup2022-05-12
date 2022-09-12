@@ -767,3 +767,12 @@ boss是弱智，
 
 我们Todd鸽鸽的游戏boss通通是跟玩家一个模板的npc捏，要的就是这口代入感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  570654836  
+##### 77#       发表于 2022-9-12 18:50
+
+boss为什么盯着肉盾打。因为威胁最高。为什么威胁最高。因为伤害最高。所以。把坦克伤害修改成全体最高就能解释了
+
