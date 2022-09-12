@@ -15696,3 +15696,14 @@ VN这种敌团设定，我觉得是不会入团的
 
 土妹子情绪一高还带破音，鬼夏那说话方式始终适应不了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 4418#       发表于 2022-9-12 21:31
+
+ 本帖最后由 adw667 于 2022-9-12 21:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">还行
+
