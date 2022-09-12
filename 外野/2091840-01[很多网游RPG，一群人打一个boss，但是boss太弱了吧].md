@@ -628,3 +628,16 @@ boss是弱智，
 
 要求这么高还打什么游戏 建议去参军
 
+
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 66#       发表于 2022-9-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57450531&amp;ptid=2091840" target="_blank">gzwind 发表于 2022-9-12 13:14</a>
+阿尔萨斯，不要让仇恨蒙蔽了你的双眼。
+
+我的意思是，你这傻逼要是无视仇恨，先去砍他们的治疗谁能打败你。 ...</blockquote>
+然后来了20个奶骑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
