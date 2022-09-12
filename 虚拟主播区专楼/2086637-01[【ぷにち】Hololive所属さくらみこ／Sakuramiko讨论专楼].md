@@ -14542,3 +14542,12 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 席梦思出现的频率也太高了，席梦思打钱！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1398#         楼主| 发表于 2022-9-12 13:06
+
+SAO看了多少遍了
+
