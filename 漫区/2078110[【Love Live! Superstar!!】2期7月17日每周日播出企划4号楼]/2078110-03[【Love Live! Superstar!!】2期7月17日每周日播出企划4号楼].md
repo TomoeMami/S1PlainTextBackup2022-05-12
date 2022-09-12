@@ -15312,3 +15312,17 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 4383#       发表于 2022-9-12 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57448453&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-12 10:12</a>
+
+夏美这个算是旧病复发，是我第五集开始就担心的东西，然后果不其然
+
+制作组应该是打算把这当 ...</blockquote>
+可能不是很好理解，但是我觉得星二季是夏美做的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
