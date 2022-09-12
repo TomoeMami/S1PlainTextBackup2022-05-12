@@ -10956,3 +10956,14 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 新活动虽然大概率落地石田三成，但万一他们把壹与想起来了呢，然后顺带复刻一波卑弥呼 ...</blockquote>
 放心，肯定给你来个总司、土方，卑弥呼一条龙复刻
 
+
+
+*****
+
+####  風卷豹  
+##### 2484#       发表于 2022-9-12 13:29
+
+奶一波五星石田和秀吉，送4星竹千代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
