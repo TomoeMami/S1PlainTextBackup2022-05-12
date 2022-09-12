@@ -15285,3 +15285,19 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 
 话说，这季有两次给鱼安排了莫名的“一定要出声”的哭哭，是不是给个人回练手，毕竟哭这个情感还是蛮有考验的（尤其是如果剧本烂的鱼毫无感情，要我怎么调动情绪啊？真当我专业CV啊霓虹金！）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 4381#       发表于 2022-9-12 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57448119&amp;ptid=2078110" target="_blank">adw667 发表于 2022-9-12 09:27</a>
+
+这集很多一看就知道是为了捧角色连逻辑都不讲了的操作还是留到弹幕里吐槽算了，但是
+
+鬼冢夏美 ...</blockquote>
+夏美这个算是旧病复发，是我第五集开始就担心的东西，然后果不其然制作组应该是打算把这当做一个玩笑（反正一定会被谁阻止），触发机制类似可堇互怼（堇说啥→可可怼）
+问题是现在星二本身就是个笑话了，开这样的玩笑………就有些变味了
+这样的讨论氛围还是星二选择的，也是没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
