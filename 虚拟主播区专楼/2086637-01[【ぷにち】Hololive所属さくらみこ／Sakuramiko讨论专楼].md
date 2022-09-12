@@ -15277,3 +15277,27 @@ nico弹幕<blockquote>これからみこちの配信见るとき先生いると�
 
 MTG延后半小时开始
 
+
+
+*****
+
+####  holoan  
+##### 1476#         楼主| 发表于 2022-9-12 21:11
+
+<img src="https://img.saraba1st.com/forum/202209/12/211135zkldwhvvv3nl52l2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 21:11 上传
+
+*****
+
+####  holoan  
+##### 1477#         楼主| 发表于 2022-9-12 21:17
+
+阿心下了
+
+GG
+
