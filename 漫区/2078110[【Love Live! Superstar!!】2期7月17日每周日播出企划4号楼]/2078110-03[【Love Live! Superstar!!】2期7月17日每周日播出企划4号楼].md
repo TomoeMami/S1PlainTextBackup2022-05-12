@@ -15516,3 +15516,12 @@ VN这种敌团设定，我觉得是不会入团的
 
 看这视频里对她们的身高感到迷惑了，Pay这身高不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4400#       发表于 2022-9-12 15:12
+
+演出是一期生，talk二期生一块<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
