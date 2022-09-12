@@ -10967,3 +10967,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2485#       发表于 2022-9-12 18:35
+
+棒子那边动不动就炸的，我不信敢出猴子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
