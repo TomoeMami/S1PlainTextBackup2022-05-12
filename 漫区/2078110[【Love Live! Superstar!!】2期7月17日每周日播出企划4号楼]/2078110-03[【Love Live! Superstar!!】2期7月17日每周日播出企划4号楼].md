@@ -15629,3 +15629,12 @@ VN这种敌团设定，我觉得是不会入团的
 
 还在担心别给可回别给可可招黑？这季为了杀可可人气让可可说怪话发癫还少不成？<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4411#       发表于 2022-9-12 18:26
+
+倒不是杀人气吧，只是没本事写好剧情都崩了而已
+
