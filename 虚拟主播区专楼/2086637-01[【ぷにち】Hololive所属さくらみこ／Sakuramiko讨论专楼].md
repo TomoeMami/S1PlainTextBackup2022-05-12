@@ -14492,3 +14492,35 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 回说反而不是很喜欢杯面之类的，但是很喜欢​カレーメシ怀疑是故意工商
 
+
+
+*****
+
+####  holoan  
+##### 1394#         楼主| 发表于 2022-9-12 12:30
+
+<img src="https://img.saraba1st.com/forum/202209/12/123008u5z29m2trmvftv22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 12:30 上传
+
+什么奇怪的人，时不时会在评论区见到
+
+*****
+
+####  holoan  
+##### 1395#         楼主| 发表于 2022-9-12 12:36
+
+2年前去酒店吃自助吃到吐的事又提了一遍
+
+<img src="https://img.saraba1st.com/forum/202209/12/123625ao31xb3rufhuqoxo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 12:36 上传
+
