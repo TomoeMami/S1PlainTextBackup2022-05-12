@@ -15368,3 +15368,18 @@ E0451C95-D9F6-4290-B8E3-D8FBC4ABDC20.jpeg
 
 <img src="https://img.saraba1st.com/forum/202209/12/112003qfdgfdcbyf55ygem.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 4387#       发表于 2022-9-12 12:18
+
+看了下熟肉，很多台词乍一看没问题，仔细一想都是阴阳怪气。
+
+什么学生会也要有非音乐科的，你这学生会除了恋全是普通科。恋恋谜一样的选举赢过了堇，但是学生会其他人全是钦定，选举个寂寞。
+
+还有那个选择大马路当结丘象征，vn不是香音扭曲厨估计都该骂了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
