@@ -15651,3 +15651,12 @@ VN这种敌团设定，我觉得是不会入团的
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 4413#       发表于 2022-9-12 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正公认花田京极已经神智不清的时候别没事吹没遭毒手的角色“正常人”就行，这看的我血压也挺高的，说难听点这不就是吃血馒头吗？
+
