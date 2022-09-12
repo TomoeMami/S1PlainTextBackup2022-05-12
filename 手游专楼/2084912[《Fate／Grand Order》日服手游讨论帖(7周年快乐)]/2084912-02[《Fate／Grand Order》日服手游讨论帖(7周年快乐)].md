@@ -10976,3 +10976,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 棒子那边动不动就炸的，我不信敢出猴子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 2486#       发表于 2022-9-12 18:53
+
+希望送4星性转千利休<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
