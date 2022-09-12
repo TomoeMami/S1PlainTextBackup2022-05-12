@@ -11006,3 +11006,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备攒石到明年 希望能忍住不手贱
 
+
+
+*****
+
+####  リッチ  
+##### 2489#       发表于 2022-9-12 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57454607&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-12 19:44</a>
+
+好，只性转，给你个老太</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">落地成美少女才方便卖千利休信长猴子的三角怪味cp！
+
