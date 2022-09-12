@@ -14889,3 +14889,88 @@ staff里还有35P
 
 还特地提了一下幽灵爹
 
+
+
+*****
+
+####  rs5621  
+##### 1431#       发表于 2022-9-12 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，变成粉丝见面会了
+
+*****
+
+####  holoan  
+##### 1432#         楼主| 发表于 2022-9-12 18:10
+
+SC。。。。。。。
+
+不要了越线了
+
+*****
+
+####  holoan  
+##### 1433#         楼主| 发表于 2022-9-12 18:12
+
+很尴尬，其他人赶快把话题收回来要不然这都放松事故了
+
+*****
+
+####  rs5621  
+##### 1434#       发表于 2022-9-12 18:12
+
+川原老贼肉眼可见的紧张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1435#         楼主| 发表于 2022-9-12 18:13
+
+延期例行土下座
+
+*****
+
+####  holoan  
+##### 1436#         楼主| 发表于 2022-9-12 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57453634&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-9-12 18:12</a>
+
+川原老贼肉眼可见的紧张</blockquote>
+没想到这群小说作者漫画师最后都来看v了
+
+太可怕了
+
+*****
+
+####  holoan  
+##### 1437#         楼主| 发表于 2022-9-12 18:15
+
+阿夸的话题来了
+
+很尴尬
+
+非常
+
+*****
+
+####  rs5621  
+##### 1438#       发表于 2022-9-12 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hololive的dd无处不在，涉及各行各业的人员。粉丝太多啦。
+
+*****
+
+####  holoan  
+##### 1439#         楼主| 发表于 2022-9-12 18:19
+
+又开始了
+
+和声优疯狂找共同话题借机接近距离
+
+*****
+
+####  holoan  
+##### 1440#         楼主| 发表于 2022-9-12 18:20
+
+miko晚餐批萨确定无误了
+

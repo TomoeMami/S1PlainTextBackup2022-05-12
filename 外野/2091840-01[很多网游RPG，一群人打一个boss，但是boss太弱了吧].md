@@ -758,3 +758,12 @@ boss是弱智，
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kanaviz  
+##### 76#       发表于 2022-9-12 18:15
+
+我们Todd鸽鸽的游戏boss通通是跟玩家一个模板的npc捏，要的就是这口代入感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
