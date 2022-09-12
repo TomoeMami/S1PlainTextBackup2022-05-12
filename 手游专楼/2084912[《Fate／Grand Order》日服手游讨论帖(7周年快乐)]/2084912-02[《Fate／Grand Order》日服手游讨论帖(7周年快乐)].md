@@ -10985,3 +10985,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 希望送4星性转千利休<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2487#       发表于 2022-9-12 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57454084&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-9-12 18:53</a>
+
+希望送4星性转千利休</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好，只性转，给你个老太
+

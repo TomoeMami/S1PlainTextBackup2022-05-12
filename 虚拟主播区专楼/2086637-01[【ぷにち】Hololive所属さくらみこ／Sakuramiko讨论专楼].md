@@ -15175,3 +15175,62 @@ miko的所有直播都看了我看
 
 怎么席梦思都知道
 
+
+
+*****
+
+####  rs5621  
+##### 1464#       发表于 2022-9-12 19:40
+
+草，终极35p了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 1465#         楼主| 发表于 2022-9-12 19:45
+
+川原对miko和阿心的关系非常在意，问出来了最后一个问题
+
+*****
+
+####  holoan  
+##### 1466#         楼主| 发表于 2022-9-12 19:47
+
+结束了
+
+*****
+
+####  rs5621  
+##### 1467#       发表于 2022-9-12 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57454617&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-12 19:45</a>
+川原对miko和阿心的关系非常在意，问出来了最后一个问题</blockquote>
+这个miko怎么说
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 1468#         楼主| 发表于 2022-9-12 19:47
+
+ 本帖最后由 holoan 于 2022-9-12 19:49 编辑 
+
+编辑：我还要打SC
+
+*****
+
+####  holoan  
+##### 1469#         楼主| 发表于 2022-9-12 19:48
+
+miko为了让川原理解直接举了个作品里的例子，意思就是说阿心是miko的推
+
+*****
+
+####  holoan  
+##### 1470#         楼主| 发表于 2022-9-12 19:50
+
+录像要传哪？
+
