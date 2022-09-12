@@ -837,3 +837,14 @@ boss为什么盯着肉盾打。因为威胁最高。为什么威胁最高。因�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  v894523  
+##### 84#       发表于 2022-9-13 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57448706&amp;ptid=2091840" target="_blank">玛基 发表于 2022-9-12 10:36</a>
+因为这样可以让菜狗玩家更有参与感，设计成哐哐两刀把菜狗都砍死躺地上看大腿膏丸玩儿无伤单杀，这游戏你玩 ...</blockquote>
+你要搜索的是不是女武神玛莲妮娅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
