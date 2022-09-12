@@ -699,3 +699,21 @@ boss是弱智，
 
  要怪 就怪暴雪吧
 
+
+
+*****
+
+####  费罗米隆  
+##### 71#       发表于 2022-9-12 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> ff14主角的战斗力很可怕，大部分boss都是主角单挑干掉的。
+
+后面打不过了还可以摇其他世界的自己
+
+*****
+
+####  PENTAX-DA  
+##### 72#       发表于 2022-9-12 17:29
+
+FF14那是网络组队打生命共享的音游
+

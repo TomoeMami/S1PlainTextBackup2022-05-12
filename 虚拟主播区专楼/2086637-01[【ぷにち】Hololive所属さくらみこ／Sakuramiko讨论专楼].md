@@ -14792,3 +14792,20 @@ youtube也有直播窗nico频道也有有料直播，这两个直播内容是不
 问题是你码那么多字miko看不懂啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，码得也太多了吧。
 
+
+
+*****
+
+####  holoan  
+##### 1420#         楼主| 发表于 2022-9-12 17:20
+
+ 本帖最后由 holoan 于 2022-9-12 17:25 编辑 
+
+哦，好象有一点不一样
+
+youtube开播时间20：00
+
+nico频道开播时间19：00
+
+我感觉不一样，看了一眼以前nico频道直播时长1小时以上也就是说前1小时是不是nico频道独占
+
