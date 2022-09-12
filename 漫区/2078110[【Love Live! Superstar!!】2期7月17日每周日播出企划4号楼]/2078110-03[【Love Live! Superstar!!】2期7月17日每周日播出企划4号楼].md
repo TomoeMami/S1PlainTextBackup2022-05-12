@@ -15447,3 +15447,44 @@ E0451C95-D9F6-4290-B8E3-D8FBC4ABDC20.jpeg
 
 这个时候都不上一单难道等决赛再上还是等下一季12人再说<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4393#       发表于 2022-9-12 14:22
+
+<img src="https://img.saraba1st.com/forum/202209/12/142229zqqgnzz6gni6d646.png" referrerpolicy="no-referrer">
+
+<strong>_U(T`N]Y(@VOV[Q@DKR9)`R.png</strong> (20.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 14:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">还有talk好评啊
+
+*****
+
+####  yturieowpq1  
+##### 4394#       发表于 2022-9-12 14:24
+
+老实说吧，星团里面唯一有可能让我厨的就是VN了，其他爱不起来啊
+
+*****
+
+####  lj205  
+##### 4395#       发表于 2022-9-12 14:29
+
+VN这种敌团设定，我觉得是不会入团的
+
+*****
+
+####  lj205  
+##### 4396#       发表于 2022-9-12 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57451233&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-12 14:22</a>
+
+还有talk好评啊</blockquote>
+双厨狂喜
+
