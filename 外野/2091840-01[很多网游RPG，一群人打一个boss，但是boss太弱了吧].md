@@ -737,3 +737,24 @@ FF14那是网络组队打生命共享的音游
 
 远程溜boss，boss溜近战
 
+
+
+*****
+
+####  月黑杀人夜  
+##### 75#       发表于 2022-9-12 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57451300&amp;ptid=2091840" target="_blank">MeMeMagic 发表于 2022-09-12 14:28:47</a>
+boss是弱智，
+
+有人嘲讽就打皮厚的。
+
+但凡有点智商都会先打治疗，
+
+这个仇恨系统设计的就很幼稚。
+
+让我想起 ...</blockquote>没有仇恨系统的游戏也有很多啊，不还是一样被吐槽弱智。
+如果boss不弱智，那就该轮到玩家哭爹喊娘了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
