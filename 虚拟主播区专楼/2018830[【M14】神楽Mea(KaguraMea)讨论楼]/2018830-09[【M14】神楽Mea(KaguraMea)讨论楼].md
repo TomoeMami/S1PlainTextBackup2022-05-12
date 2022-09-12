@@ -4074,3 +4074,14 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  往世雷书  
+##### 12428#       发表于 2022-9-12 19:15
+
+本来想说这种量产型格言不值一提，后来想想多传播一下也好，她的甜言蜜语听多了以后再听别的女人量产格言就不会被轻易迷住了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
