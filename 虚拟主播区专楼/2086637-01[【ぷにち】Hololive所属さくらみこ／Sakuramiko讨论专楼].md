@@ -14704,3 +14704,29 @@ SAO看了多少遍了
 
 反正这种错误也没人在意就是
 
+
+
+*****
+
+####  rs5621  
+##### 1413#       发表于 2022-9-12 16:05
+
+<img src="https://img.saraba1st.com/forum/202209/12/155649lf3z3smb4njm4szb.jpg" referrerpolicy="no-referrer">
+
+<strong>X0ELLZZR@9~Z)YV1ECEZ_Z0.jpg</strong> (365.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 15:56 上传
+
+再来个peko头，就能还原2年前的mc场景了
+
+*****
+
+####  holoan  
+##### 1414#         楼主| 发表于 2022-9-12 16:06
+
+玩起来了玩起来了
+
+这头如果再吐个岩浆就更还原了
+

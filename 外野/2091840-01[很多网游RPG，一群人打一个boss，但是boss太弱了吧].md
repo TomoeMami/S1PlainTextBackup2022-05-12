@@ -641,3 +641,12 @@ boss是弱智，
 我的意思是，你这傻逼要是无视仇恨，先去砍他们的治疗谁能打败你。 ...</blockquote>
 然后来了20个奶骑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  trentswd  
+##### 67#       发表于 2022-9-12 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">认真回答就是游戏是给你玩的 剧情都是次要的 甚至高达八成网游玩家不看剧情
+
