@@ -15488,3 +15488,15 @@ VN这种敌团设定，我觉得是不会入团的
 还有talk好评啊</blockquote>
 双厨狂喜
 
+
+
+*****
+
+####  老1.5  
+##### 4397#       发表于 2022-9-12 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57450544&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-12 13:16</a>
+
+是我错觉吗？怎么感觉除了鲤鱼全胖了？</blockquote>
+我第一眼看着也是，尤其pay怎么脸肉嘟嘟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
