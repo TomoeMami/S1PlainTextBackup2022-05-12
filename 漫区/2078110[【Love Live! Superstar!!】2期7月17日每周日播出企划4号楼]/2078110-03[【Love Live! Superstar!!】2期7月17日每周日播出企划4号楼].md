@@ -15434,3 +15434,16 @@ E0451C95-D9F6-4290-B8E3-D8FBC4ABDC20.jpeg
 
 不过说归说，笑归笑，薇恩人设真不错，想到这还是挺期待三期的
 
+
+
+*****
+
+####  Totokei  
+##### 4392#       发表于 2022-9-12 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真的好怪
+
+前面文戏坛友都总结得差不多了，最后教主发表演讲的时候，这个看起来就是初披露的背景地再配合这段话怎么看都是一单的气氛，结果一转庙会曲猝不及防
+
+这个时候都不上一单难道等决赛再上还是等下一季12人再说<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+

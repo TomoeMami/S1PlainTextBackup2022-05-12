@@ -14607,3 +14607,19 @@ SAO看了多少遍了
 
 正确的，赶紧结束，过于失败的mc企划。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1405#         楼主| 发表于 2022-9-12 14:01
+
+她要达到100天才结束啊，严格算实际天数那不是进展得更快吗，如果完全不管就按她这样游戏内过3天算1天的进度更慢要播更久，这才是关键问题
+
+*****
+
+####  rs5621  
+##### 1406#       发表于 2022-9-12 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然差这么多天，观众没人提醒她么（我看的转播）
+
