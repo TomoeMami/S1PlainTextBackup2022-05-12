@@ -15391,3 +15391,23 @@ GG
 
 开始急了,疯狂跑尸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ZQXY2002  
+##### 1486#       发表于 2022-9-12 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看睡着了，今天跑尸有点多。
+
+*****
+
+####  rs5621  
+##### 1487#       发表于 2022-9-12 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57458132&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-9-12 23:26</a>
+看睡着了，今天跑尸有点多。</blockquote>
+今天都没啥活
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
