@@ -14778,3 +14778,17 @@ youtube也有直播窗nico频道也有有料直播，这两个直播内容是不
 
 到时候两边都开起来看看再说
 
+
+
+*****
+
+####  rs5621  
+##### 1419#       发表于 2022-9-12 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57452588&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-12 16:35</a>
+
+海外FF粉的热度也很强了
+
+问题是你码那么多字miko看不懂啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，码得也太多了吧。
+
