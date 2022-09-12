@@ -15607,3 +15607,25 @@ VN这种敌团设定，我觉得是不会入团的
 演出是一期生，talk二期生一块</blockquote>
 话说一期生talk应该也在的吧
 
+
+
+*****
+
+####  lj205  
+##### 4409#       发表于 2022-9-12 18:07
+
+ 本帖最后由 lj205 于 2022-9-12 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57452667&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-12 16:43</a>
+
+话说一期生talk应该也在的吧</blockquote>
+那还是在的
+
+这个我只是印象中看到有这么说，可能是我记岔了，各位就当我随便多嘴
+
+*****
+
+####  liu461  
+##### 4410#       发表于 2022-9-12 18:08
+
+还在担心别给可回别给可可招黑？这季为了杀可可人气让可可说怪话发癫还少不成？<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
