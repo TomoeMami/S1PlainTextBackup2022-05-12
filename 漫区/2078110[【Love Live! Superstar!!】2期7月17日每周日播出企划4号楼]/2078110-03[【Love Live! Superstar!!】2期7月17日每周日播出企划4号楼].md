@@ -15301,3 +15301,14 @@ live前面的部分也不是说好还是坏，但每一分钟我都能感受到�
 问题是现在星二本身就是个笑话了，开这样的玩笑………就有些变味了
 这样的讨论氛围还是星二选择的，也是没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 4382#       发表于 2022-9-12 10:20
+
+等晚上看看阿b的评论区怎么样，我感觉是，大家都没什么希望了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
