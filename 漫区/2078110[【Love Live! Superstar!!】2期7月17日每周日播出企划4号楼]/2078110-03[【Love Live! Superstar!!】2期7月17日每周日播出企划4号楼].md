@@ -15411,3 +15411,26 @@ E0451C95-D9F6-4290-B8E3-D8FBC4ABDC20.jpeg
 由手机上传
 2022-9-12 12:57 上传
 
+
+
+*****
+
+####  lj205  
+##### 4390#       发表于 2022-9-12 13:16
+
+是我错觉吗？怎么感觉除了鲤鱼全胖了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 4391#       发表于 2022-9-12 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57450274&amp;ptid=2078110" target="_blank">ffz 发表于 2022-9-12 12:53</a>
+
+上次一穿六，这次听说又加了三个，来看看怎么样，就这</blockquote>
+按一期的话其他人入伙之前的表现，这个画面应该是暗示薇恩悸动
+
+结丘第十把交椅该有人坐了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+不过说归说，笑归笑，薇恩人设真不错，想到这还是挺期待三期的
+

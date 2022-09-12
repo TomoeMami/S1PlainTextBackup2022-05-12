@@ -1,0 +1,576 @@
+
+
+*****
+
+####  晴天不吃西瓜  
+##### 1#       楼主       发表于 2022-9-11 19:24
+
+比如魔兽世界  剑三  ff14之类的 
+
+伊利丹 基尔加丹 打玩家这种级别的不是应该一刀就秒了
+
+行，魔幻世界有个奶妈  
+
+那不会给奶妈先杀了吗
+
+虽然我知道是游戏，但是有点太蠢了…
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cooffee|-1|欢乐多|
+| 迪米特里|-2|想杀奶问过坦没有|
+
+查看全部评分
+
+*****
+
+####  终将不惑  
+##### 2#       发表于 2022-9-11 19:25
+
+楼主，你需要的是不是，黑暗之魂？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大秦男女  
+##### 3#       发表于 2022-9-11 19:25
+
+不发游戏区？
+
+*****
+
+####  Gunter  
+##### 4#       发表于 2022-9-11 19:26
+
+你必须攻击拥有嘲讽的随从
+
+*****
+
+####  last_regret  
+##### 5#       发表于 2022-9-11 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">wow有个任务就是扮演伊利丹打贪婪的冒险者
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ryj  
+##### 6#       发表于 2022-9-11 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是"反派抓住主角不赶紧杀掉 话那么多干嘛"的游戏版么
+
+*****
+
+####  脑洞  
+##### 7#       发表于 2022-9-11 19:29
+
+有的boss就是潜行者，干嘛不潜行跑路<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ccchirose  
+##### 8#       发表于 2022-9-11 19:29
+
+照你这么说，那很多boss也不该有血条，大家都是一条命，凭什么你的就多呢
+
+而且为啥要**咧咧冲上去和boss打，等他上厕所的时候溜进去刺杀不好吗
+
+或者再前进一点，魔幻世界那么多能量，大家一起发展宇宙飞船探索宇宙多有趣，或者搞脑后插管yy自己的世界，打来打去干嘛
+
+*****
+
+####  humphrey  
+##### 9#       发表于 2022-9-11 19:29
+
+耐法当看客的时候就懂这道理
+
+当然为啥自己上的时候忘了就说不清了
+
+*****
+
+####  nalanchen  
+##### 10#       发表于 2022-9-11 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泰坦一拳打飞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kamarus  
+##### 11#       发表于 2022-9-11 19:31
+
+你这个问题太大了，从剧情设定到游戏机制<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+现在网游的话基本上没法脱离t奶dps体系，就算搞的无非也是单体搞成复合型dps+奶+t。
+至于这种队伍配置在剧情上十分坑爹也是被嘀咕有个几十年了，因为坦克拉住仇恨这个东西一旦搞成详细描写就确实会变得很蠢。
+
+*****
+
+####  猫狗猫  
+##### 12#       发表于 2022-9-11 19:31
+
+很多网络论坛 一群弱智troll一个版主 但是版主太弱了吧
+比如s1 nga之类的
+活久见 北狗神拳 塞楼主这种级别的不是应该一键就塞了吗
+行 网络世界有比楼主还弱智的
+那就不会把他们都塞了吗
+虽然我知道楼主是装弱智 但还是太弱智了...
+
+—— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  待宵  
+##### 13#       发表于 2022-9-11 19:38
+
+想想为什么ACG中的强力高逼格反派面对主角时利器神器几乎都会变成钝器只让主角吃灰不能直接送他们上路，因为他们知道对面有光环是真爸爸，所以装装样子出点力念念台词，不然作品就BE会被玩家/观众/读者骂。
+
+同理，网游里BOSS太强，随便杀玩家角色，这游戏就没人玩，游戏就会关服，策划和程序员都会喷这个BOSS哪个傻叉设计的砸了自己的饭碗。
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 14#       发表于 2022-9-11 19:41
+
+不是没玩过混乱仇恨的行动模式，但凡体验过玩家都恨不得把策划全家送上天
+
+*****
+
+####  pliee  
+##### 15#       发表于 2022-9-11 19:42
+
+照你这么说boss凭啥这么能抗，也应该一刀就死阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tyauto  
+##### 16#       发表于 2022-9-11 19:48
+
+一直有疑问这种boss战很少有多对多的团战
+
+*****
+
+####  Vtuber  
+##### 17#       发表于 2022-9-11 19:50
+
+那游戏还玩个🔨
+
+*****
+
+####  劳动塑造人  
+##### 18#       发表于 2022-9-11 19:53
+
+有PVP的BOSS战啊，比如进化
+
+*****
+
+####  里村紅葉  
+##### 19#       发表于 2022-9-11 19:53
+
+以前凯尔萨斯好像有个仇恨BUG会导致下场先杀奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  织云纺雪  
+##### 20#       发表于 2022-9-11 19:54
+
+ 本帖最后由 织云纺雪 于 2022-9-11 19:58 编辑 
+
+现在很多BOSS都是靠机制拖时间，血条在神装玩家面前就是个摆设，把机制保护去掉，活不过30秒。
+
+*****
+
+####  大天  
+##### 21#       发表于 2022-9-11 20:00
+
+BOSS能出钱买月卡吗
+
+*****
+
+####  humphrey  
+##### 22#       发表于 2022-9-11 20:02
+
+<blockquote>tyauto 发表于 2022-9-11 19:48
+一直有疑问这种boss战很少有多对多的团战</blockquote>
+有啊，打一把moba不就多对多了
+
+甚至还能一对多呢（
+
+*****
+
+####  cqduoluo  
+##### 23#       发表于 2022-9-11 20:03
+
+100级的BOSS确实可以秒1级的玩家，但如果秒100级的玩家，玩家凭什么充钱。
+
+*****
+
+####  codecloud  
+##### 24#       发表于 2022-9-11 20:06
+
+这就是我一直不喜欢铁三角修脚工玩法的原因.
+
+boss放着玻璃大炮不管,专门一心踢铁板的ai怎么想怎么蠢也就罢了.关键是这种玩法基本都是时间轴玩法,一群人全文背诵,我以前玩狒狒14,甚至碰到过有的野队开荒高压图,进本之前还要随机抽查时间轴让你现场背书的.<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+反而是很早以前魔力石器那种随机攻击的方式,还更舒服一点,至少不用背课文.
+
+*****
+
+####  ycchen226  
+##### 25#       发表于 2022-9-11 20:10
+
+FF14的你可不是脚男。。。
+
+叠N层 身份背景BUFF了 怎么可能一刀被秒。。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看脸  
+##### 26#       发表于 2022-9-11 20:12
+
+因为设计上要让所有玩家都有实在的参与感
+
+要是现在还像远古网游DDO那样，在太空一个平台上打红龙，一个吐息随机吹飞几名玩家掉落地球（等于直接掉出副本），经验拿不到，装备也没有，一周时间白等，还不得被用户投诉爆啊
+
+*****
+
+####  夜贼外卖  
+##### 27#       发表于 2022-9-11 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441798&amp;ptid=2091840" target="_blank">last_regret 发表于 2022-9-11 19:27</a>
+
+wow有个任务就是扮演伊利丹打贪婪的冒险者
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+那个团还有挂机的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亡魂之海  
+##### 28#       发表于 2022-9-11 21:03
+
+然后就出现了奶坦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪儿  
+##### 29#       发表于 2022-9-11 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442124&amp;ptid=2091840" target="_blank">里村紅葉 发表于 2022-9-11 19:53</a>
+以前凯尔萨斯好像有个仇恨BUG会导致下场先杀奶</blockquote>
+转阶段不清仇恨 他本体飘在天上无敌 T没法拉 但奶妈一直在加 导致落地直接奔着治疗去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快乐好难123  
+##### 30#       发表于 2022-9-11 21:18
+
+像darkestdungeon这种嘛，bot的倾向是让你快速减员，玩家的正确思路是控场
+
+
+
+*****
+
+####  zayrq  
+##### 31#       发表于 2022-9-11 21:20
+
+仇恨系统是这样的。白膜快滚去吃疾风<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  俾斯麥  
+##### 32#       发表于 2022-9-11 21:22
+
+我还奇怪为啥BOSS那边从来都是一个个送呢，大BOSS手下那么多得力干将，全部集中在BOSS身边坐等主角团上门，岂不是随便乱杀，这么多年最接近这个范畴的居然是斑的五个影分身打五影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 33#       发表于 2022-9-11 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57443905&amp;ptid=2091840" target="_blank">俾斯麥 发表于 2022-9-11 21:22</a>
+我还奇怪为啥BOSS那边从来都是一个个送呢，大BOSS手下那么多得力干将，全部集中在BOSS身边坐等主角团上门， ...</blockquote>
+就算是邪恶势力，也得工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  淡蓝色幽灵  
+##### 34#       发表于 2022-9-11 23:12
+
+楼主需要的是不是女武神玛丽莲娜？
+
+*****
+
+####  头像才不霸气呢  
+##### 35#       发表于 2022-9-11 23:24
+
+dnd段子 战法牧打boss半天 boss给自己奶一口回满了 于是牧师冲上去一个即死把boss秒了
+
+*****
+
+####  redfea  
+##### 36#       发表于 2022-9-11 23:31
+
+其实魔兽世界剧情里有交代，玩家杀的boss只是一个游戏性娱乐而已，像伊利丹阿尔萨斯这些其实都是被英雄人物干掉的，玩家啥用都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  humphrey  
+##### 37#       发表于 2022-9-11 23:33
+
+<blockquote>codecloud 发表于 2022-9-11 20:06
+这就是我一直不喜欢铁三角修脚工玩法的原因.
+
+boss放着玻璃大炮不管,专门一心踢铁板的ai怎么想怎么蠢也就罢 ...</blockquote>
+4.0之后的wow我不咋了解了，之前的话相比之下背板这个事情ff14要严重些
+
+所以我不觉得铁三角一定会导致背板
+
+只不过没有仇恨优先级顺序，会等于让队伍缺少结构，那要么大家都是睾丸个个秀上天（根本不可能）要么大腿包打一切其他人喊666就完了
+
+*****
+
+####  PENTAX-DA  
+##### 38#       发表于 2022-9-11 23:56
+
+ 本帖最后由 PENTAX-DA 于 2022-9-11 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442062&amp;ptid=2091840" target="_blank">tyauto 发表于 2022-9-11 19:48</a>
+
+一直有疑问这种boss战很少有多对多的团战</blockquote>
+TOC老2我觉得是暴雪少有的不靠英雄角色设计的有趣boss站
+
+但好像被广大的木桩玩家所鄙视
+
+*****
+
+####  chaoslee  
+##### 39#       发表于 2022-9-12 00:02
+
+山口山的BOSS都是有NPC参与的啊，实际剧情里不是脚男打死的
+
+*****
+
+####  ramiel  
+##### 40#       发表于 2022-9-12 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57446145&amp;ptid=2091840" target="_blank">PENTAX-DA 发表于 2022-9-11 23:56</a>
+
+TOC老2我觉得是暴雪少有的不靠英雄角色设计的有趣boss站
+
+但好像被广大的木桩玩家所鄙视
+
+ ...</blockquote>
+有趣的boss多半是白给，搁当年的风气那就是被喷便当
+
+所以玩家屁股也该挨点板子
+
+*****
+
+####  南宫月汐  
+##### 41#       发表于 2022-9-12 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57446145&amp;ptid=2091840" target="_blank">PENTAX-DA 发表于 2022-9-11 23:56</a>
+TOC老2我觉得是暴雪少有的不靠英雄角色设计的有趣boss站
+
+但好像被广大的木桩玩家所鄙视
+
+ ...</blockquote>
+你想说的是不是老三，老二是加拉克苏斯大王
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  洞庭湖  
+##### 42#       发表于 2022-9-12 02:38
+
+因为游戏的功能是用来开心的呀。
+
+智人最大的开心就是：
+
+找规律。
+
+找到了别人没找到的规律，我很聪明。
+
+*****
+
+####  张元英  
+##### 43#       发表于 2022-9-12 02:41
+
+ 本帖最后由 张元英 于 2022-9-12 02:42 编辑 
+
+高中的时候租小说看， 有一次中午去借书， 看到老板在打一个boss， 然后放学了去还书， 发现老板还在打那个boss， 中间看书的时候他终于打完了，  好像是奇迹， 可能早期网游是这种几十号人一打好几个小时的设计
+
+*****
+
+####  斯勒恩鬼歌  
+##### 44#       发表于 2022-9-12 02:55
+
+BOSS要是这么乱杀，那唯一可能就是他本身也是有个机制让他肯定会被另一种方式打死。打不死的BOSS会被无视没人去打的。
+
+坦克仇恨这东西，就是等于有人把门口堵着，然后一堆人在墙后枪孔输出。就是你不把堵门的打死，你是打不了里面的人。OT就像是BOSS的神射激活通过枪孔打到里面的人。
+
+*****
+
+####  Yinacona  
+##### 45#       发表于 2022-9-12 03:17
+
+《记录的地平线》里，pvp时战士战吼都能拉仇恨的解释是如果对方仇恨不在他那里背对他的话这时会受到战士伤害翻倍，所以敌人不得不第一个去怼t。感觉有这样设定的话倒是挺合理的，不过真实mko这么玩的话可能ot就不是失误而是变成一种流派玩法？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  jpcl  
+##### 46#       发表于 2022-9-12 03:37
+
+以前就不懂了
+
+为啥RPG里面的boss打得那么吃力
+
+最后加入我方阵营以后又菜的一闭
+
+*****
+
+####  UniqueDiablo  
+##### 47#       发表于 2022-9-12 03:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57445812&amp;ptid=2091840" target="_blank">redfea 发表于 2022-9-11 23:31</a>
+其实魔兽世界剧情里有交代，玩家杀的boss只是一个游戏性娱乐而已，像伊利丹阿尔萨斯这些其实都是被英雄人物 ...</blockquote>
+魔兽世界剧情里玩家早就不是脚男了好么，各个大领主起步
+
+*****
+
+####  旋转吃草  
+##### 48#       发表于 2022-9-12 05:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442411&amp;ptid=2091840" target="_blank">ycchen226 发表于 2022-9-11 20:10</a>
+FF14的你可不是脚男。。。
+
+叠N层 身份背景BUFF了 怎么可能一刀被秒。。 ...</blockquote>
+可如果你不t，确实可能被boss一拳就秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旋转吃草  
+##### 49#       发表于 2022-9-12 05:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442342&amp;ptid=2091840" target="_blank">codecloud 发表于 2022-9-11 20:06</a>
+这就是我一直不喜欢铁三角修脚工玩法的原因.
+
+boss放着玻璃大炮不管,专门一心踢铁板的ai怎么想怎么蠢也就罢 ...</blockquote>
+铁三角修脚工算是现在折中接受度最好的设计了吧，要不然boss数值太难设计了
+
+ff14背课文那是它自己的问题
+
+*****
+
+####  水琴楽树  
+##### 50#       发表于 2022-9-12 05:36
+
+你咋不说很多游戏都有物理免疫、法术免疫的之类机制BOSS，随便组合一下AI给力点不是乱杀，结果非要拆开来用，给对方各个击破。
+
+*****
+
+####  俾斯麥  
+##### 51#       发表于 2022-9-12 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57445411&amp;ptid=2091840" target="_blank">月珊瑚与紫鸢尾 发表于 2022-9-11 22:56</a>
+
+就算是邪恶势力，也得工作啊，一直都待boss身边，那什么都干不了，脚男还去打他们干啥 ...</blockquote>
+这种事情交给杂兵和中层干部去就可以了啊，大干部没必要自己去送啊，或者说没必要全都去送啊，团战才是硬道理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝色梦魇  
+##### 52#       发表于 2022-9-12 10:21
+
+无序仇恨一般就要吃控，然而boss一但吃控就会白给
+
+*****
+
+####  zhangwohang  
+##### 53#       发表于 2022-9-12 10:31
+
+我身为新大陆的苍蓝星 黑龙之流不是应该趴下给我**吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  藤井紫  
+##### 54#       发表于 2022-9-12 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57448027&amp;ptid=2091840" target="_blank">俾斯麥 发表于 2022-9-12 09:13</a>
+这种事情交给杂兵和中层干部去就可以了啊，大干部没必要自己去送啊，或者说没必要全都去送啊，团战才是硬 ...</blockquote>
+问题是信息差
+玩家玩的是rpg，只需要关卡主将，城市首领，首都大王那样一路打过去
+boss玩的是ck3维多利亚三国志，不会有个箭头指着告诉你“这是光之战士”
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玛基  
+##### 55#       发表于 2022-9-12 10:36
+
+因为这样可以让菜狗玩家更有参与感，设计成哐哐两刀把菜狗都砍死躺地上看大腿膏丸玩儿无伤单杀，这游戏你玩么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fc733  
+##### 56#       发表于 2022-9-12 10:38
+
+都设计成世界boss 几千人打一个，那不成传奇了
+
+*****
+
+####  radeon12  
+##### 57#       发表于 2022-9-12 10:40
+
+暗黑3不就是无仇恨。。。然后就是大家都是数值怪了
+
+*****
+
+####  Atail  
+##### 58#       发表于 2022-9-12 11:01
+
+ff14光战6.0都星球顶级战斗力了，单刷神龙buff芝诺斯，单挑前阿谢姆，啥boss能一巴掌拍死啊
+
+—— 来自 Xiaomi 22061218C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  εRemastered  
+##### 59#       发表于 2022-9-12 11:04
+
+为什么不玩eve呢(
+
+*****
+
+####  askl80  
+##### 60#       发表于 2022-9-12 13:01
+
+<blockquote>last_regret 发表于 2022-9-11 19:27
+wow有个任务就是扮演伊利丹打贪婪的冒险者
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+7.0时代的单人副本任务吧？扮演伊利丹，中间过程巨恶搞。有打团挂机的。。。。。。。
+
+
+
+*****
+
+####  gzwind  
+##### 61#       发表于 2022-9-12 13:14
+
+阿尔萨斯，不要让仇恨蒙蔽了你的双眼。
+
+我的意思是，你这傻逼要是无视仇恨，先去砍他们的治疗谁能打败你。
+

@@ -4009,3 +4009,32 @@ mea更喜欢甜一点的吧，比如绿豆糕一类的。而且今天选的都�
 
 第一次喷三献给了野男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 12422#       发表于 2022-9-12 13:10
+
+读棉花糖的时候有聊送礼物的选择，你麻说送男女朋友那样（亲近）的朋友会买对方喜欢的品牌，送没那么熟的朋友只买shiro和sabon的东西
+
+ジェラピケ我不好说
+
+*****
+
+####  呓亘  
+##### 12423#       发表于 2022-9-12 13:15
+
+这段话真帅啊
+
+出处：[https://www.bilibili.com/video/B ... 1de11066577fac1047c](https://www.bilibili.com/video/BV1zW4y1B7M3?spm_id_from=333.337.search-card.all.click&amp;vd_source=c2a2703e970e61de11066577fac1047c)
+
+image.png
+(344.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 13:14 上传
+
+<img src="https://img.saraba1st.com/forum/202209/12/131403muaa90g47z7ylca1.png" referrerpolicy="no-referrer">
+
