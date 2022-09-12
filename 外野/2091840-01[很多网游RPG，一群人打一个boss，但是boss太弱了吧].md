@@ -807,3 +807,12 @@ boss为什么盯着肉盾打。因为威胁最高。为什么威胁最高。因�
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  影之诱惑  
+##### 81#       发表于 2022-9-12 22:05
+
+也许游戏不只是脚男跟boss互殴，还是玩家和游戏制作人博弈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大部分时间玩家被游戏**，等熟悉了套路之后开始爽，有些人陷进一种游戏接受不了别的游戏，有些人能接受多种游戏享受不同快感，时间长了玩家总结出各种经验反过来批判不够爽的游戏，而优秀的游戏制作人能玩出新的花活去**玩家让他们适应。
+
