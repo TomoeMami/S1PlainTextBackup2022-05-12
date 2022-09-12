@@ -15543,3 +15543,22 @@ VN这种敌团设定，我觉得是不会入团的
 
 笑死，怎么还有这种操作的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 4403#       发表于 2022-9-12 15:42
+
+建议星团企划上面的大人查一下整个企划所有人的成分，是不是有内鬼混进去了
+
+*****
+
+####  starring  
+##### 4404#       发表于 2022-9-12 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57451687&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-12 15:12</a>
+
+演出是一期生，talk二期生一块</blockquote>
+没找到这信息，哪里说的？
+

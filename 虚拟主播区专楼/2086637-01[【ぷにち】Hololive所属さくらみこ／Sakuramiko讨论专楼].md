@@ -14661,3 +14661,30 @@ SAO看了多少遍了
 
 2022-9-12 15:39 上传
 
+
+
+*****
+
+####  holoan  
+##### 1410#         楼主| 发表于 2022-9-12 15:47
+
+[https://youtu.be/EeR96RBz-u4](https://youtu.be/EeR96RBz-u4)
+
+<img src="https://img.saraba1st.com/forum/202209/12/154648v7zt2xox2stzl1eq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 15:46 上传
+
+<img src="https://img.saraba1st.com/forum/202209/12/154722scvf0fiyfetuke3t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 15:47 上传
+
+又被夸了，最近是不是又跑去给别人糊封面了
+
