@@ -15678,3 +15678,21 @@ VN这种敌团设定，我觉得是不会入团的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说起来到现在为止都看不出有什么原宿风，白瞎这设定了
 
+
+
+*****
+
+####  lj205  
+##### 4416#       发表于 2022-9-12 20:43
+
+不能说庙会啊………………那里可是明治神宫………………………………………………………………………………
+
+*****
+
+####  starring  
+##### 4417#       发表于 2022-9-12 20:50
+
+土妹子和鬼夏这两人一说话就脑壳痛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+土妹子情绪一高还带破音，鬼夏那说话方式始终适应不了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
