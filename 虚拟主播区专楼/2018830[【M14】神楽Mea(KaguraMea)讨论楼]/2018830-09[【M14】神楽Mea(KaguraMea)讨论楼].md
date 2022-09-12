@@ -4038,3 +4038,19 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202209/12/131403muaa90g47z7ylca1.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TomDu  
+##### 12424#       发表于 2022-9-12 14:53
+
+看得挺透。咩门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 12425#       发表于 2022-9-12 14:57
+
+古早前不是就说过差不多的（喷3竟然玩这么久，你麻还蛮厉害
+
