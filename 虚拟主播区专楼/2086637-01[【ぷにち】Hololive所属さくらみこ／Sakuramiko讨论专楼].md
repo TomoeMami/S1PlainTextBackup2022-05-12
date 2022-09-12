@@ -15427,3 +15427,24 @@ GG
 
 真TM叫得有直播效果
 
+
+
+*****
+
+####  holoan  
+##### 1490#         楼主| 发表于 2022-9-13 00:08
+
+这地图的地形对飞机着落也不利
+
+还是需要开车
+
+*****
+
+####  rs5621  
+##### 1491#       发表于 2022-9-13 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57458523&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-12 23:56</a>
+
+真TM叫得有直播效果</blockquote>
+后面给机枪扫到差点就死,也难怪她这么叫了
+
