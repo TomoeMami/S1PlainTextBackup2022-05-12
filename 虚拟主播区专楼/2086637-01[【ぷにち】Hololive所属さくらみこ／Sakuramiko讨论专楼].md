@@ -14459,3 +14459,14 @@ holocure0.4新档玩了一下，miko的强度真的比其它角色强一截，�
 
 耳朵太小用不了入耳式的耳机只能用头戴式的
 
+
+
+*****
+
+####  rs5621  
+##### 1391#       发表于 2022-9-12 11:34
+
+可以啊，一天都没玩rust
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
