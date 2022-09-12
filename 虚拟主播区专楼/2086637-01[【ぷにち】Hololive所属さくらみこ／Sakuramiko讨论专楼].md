@@ -14634,3 +14634,13 @@ SAO看了多少遍了
 
 今天是真的评论区一个人都没说日期错误的事了 不过今天观众也少就是
 
+
+
+*****
+
+####  holoan  
+##### 1408#         楼主| 发表于 2022-9-12 15:14
+
+[https://youtu.be/Hi-1RoNsrEs](https://youtu.be/Hi-1RoNsrEs)<blockquote>【みこち】兎鞠まりちゃんがバ美肉な话をしてたら怒られてしまい谢罪</blockquote>
+所以说，作为主播来说，要慎言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
