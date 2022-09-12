@@ -14644,3 +14644,20 @@ SAO看了多少遍了
 [https://youtu.be/Hi-1RoNsrEs](https://youtu.be/Hi-1RoNsrEs)<blockquote>【みこち】兎鞠まりちゃんがバ美肉な话をしてたら怒られてしまい谢罪</blockquote>
 所以说，作为主播来说，要慎言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1409#         楼主| 发表于 2022-9-12 15:39
+
+正论精选
+
+<img src="https://img.saraba1st.com/forum/202209/12/153941csh0oqjho0g1qyyd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-12 15:39 上传
+
