@@ -945,3 +945,17 @@ RPG这种游戏的根子就注定了如果DM（现在就是游戏制作者）和
 其实把t的仇恨值换成缠斗值不就解决了，就像武侠小说里经常写的一样，伤害虽然不高但是就是能拖住你身边脱不了身去干别的事。
 t一直挡在boss脸上，boss想去单点杀奶和dps也脱不开身。只能放点群攻意思一下。
 
+
+
+*****
+
+####  ZYV121  
+##### 94#       发表于 2022-9-13 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57441765&amp;ptid=2091840" target="_blank">终将不惑 发表于 2022-9-11 19:25</a>
+
+楼主，你需要的是不是，黑暗之魂？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+魔兽高端团本比黑魂难多了。
+
