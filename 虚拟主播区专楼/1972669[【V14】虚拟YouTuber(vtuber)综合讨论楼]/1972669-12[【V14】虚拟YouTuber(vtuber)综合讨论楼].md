@@ -9219,3 +9219,26 @@ vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face
 
 先不说琥珀天天出现在oreapo的个人窗里，她一年多之前就和hnn联动过apex吧，当时还有qu酱。kmt那我有印象是从rust开始<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17341#       发表于 2022-9-14 01:59
+
+郡郡回顾麻将赛聊到终于能跟阿喵喵关系变好很开心，说是一直以来跟可爱系的相处的时候不被对面粉丝认可，
+
+搁现在还给口了留面子，哭了，不如直接骂李林事儿逼<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tt13  
+##### 17342#       发表于 2022-9-14 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179393&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-23 07:07</a>
+
+业界顶尖，
+
+那这业界也未免太没有前途了</blockquote>
+我至今还没有见过一个比润滑液冰壶更令我愉快的管人3D节目，是顶尖没错吧？
+
