@@ -16075,3 +16075,12 @@ CP头子亲自下场
 
 对了，光顾着看可可回的问题了，差点忘了件事：东京决赛，9人行，5人不行，这”闲话“怕是要跟随星到解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找机会由5人打败一次snp弥补遗憾的猜测也破灭了。
 
+
+
+*****
+
+####  cybernetics31  
+##### 4447#       发表于 2022-9-13 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">群里可香人说勺子倒影是打铁(………………属于实在没货就各种磕了
+

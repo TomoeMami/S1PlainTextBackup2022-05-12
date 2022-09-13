@@ -972,3 +972,16 @@ t一直挡在boss脸上，boss想去单点杀奶和dps也脱不开身。只能�
 其实把t的仇恨值换成缠斗值不就解决了，就像武侠小说里经常写的一样，伤害虽然不高但是就是能拖住你身边脱 ...</blockquote>
 远程跟AOE又不吃ZOC效果  武侠小说那是有打断效果  那真是单刷BOSS的
 
+
+
+*****
+
+####  macshi  
+##### 96#       发表于 2022-9-13 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57466779&amp;ptid=2091840" target="_blank">gofbayrf 发表于 2022-9-13 16:30</a>
+远程跟AOE又不吃ZOC效果  武侠小说那是有打断效果  那真是单刷BOSS的</blockquote>
+我的意思就是权当换一个皮解释，并不是真就要武侠那种见招拆招招招打断。
+t的缠斗技巧越高越能掩护进攻的其他队友，让boss无暇脱身；dps输出太猛导致ot了，就是进攻过于激进，漏出了更多破绽t掩护不住。至于aoe、强制点名/远程那些也可以用反派暗藏一手或者其他理由什么的搪塞。
+本质还是仇恨值，可能比千篇一律仇恨值相对更合理点吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
