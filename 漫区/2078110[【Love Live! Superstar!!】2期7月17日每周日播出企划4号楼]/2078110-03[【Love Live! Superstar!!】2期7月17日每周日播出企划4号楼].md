@@ -16449,3 +16449,14 @@ emorin:有人要逃跑了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Totokei  
+##### 4482#       发表于 2022-9-13 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看见群友转图首先反应是“？”，毕竟凭印象虽然不咋地但有歌怎么也能60以上甚至靠近70，看来风评已经积重难返了
+
+然后看了眼战吧现在连开香槟的都没几个了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
