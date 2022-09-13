@@ -9156,3 +9156,19 @@ syl原来是三人队</blockquote>
 
 啊胜活动休止……？
 
+
+
+*****
+
+####  FCCHua  
+##### 17335#       发表于 2022-9-13 13:34
+
+ 本帖最后由 FCCHua 于 2022-9-13 13:39 编辑 
+
+✨　重　大　発　表　✨
+Crazy Raccoon Cup Apex Legends 9.5🔥
+＼＼📢　开　催　决　定　‼／／
+📺配信日时📺
+9月18日（日）18:00～
+第9.5回的话，应该会延续上回大部分的阵容吧，怪不得最近hnn打派的频率有所回升<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
