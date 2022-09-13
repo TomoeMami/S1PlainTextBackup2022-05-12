@@ -11029,3 +11029,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 好，只性转，给你个老太</blockquote>
 好像废狗真没有出出过外形是老奶奶的角色。开个先河也不错？
 
+
+
+*****
+
+####  onemoment  
+##### 2491#       发表于 2022-9-13 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57454826&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-9-12 20:01</a>
+
+准备攒石到明年 希望能忍住不手贱</blockquote>
+同开始攒石头了，感觉我会忍不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

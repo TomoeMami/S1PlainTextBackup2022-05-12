@@ -9181,3 +9181,12 @@ Crazy Raccoon Cup Apex Legends 9.5🔥
 
 vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 17337#       发表于 2022-9-13 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">16 17葛cup 18号crcup 应该是为了cr让路吧 原来pv都是17 18号的吧
+
