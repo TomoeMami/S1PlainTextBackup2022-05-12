@@ -9190,3 +9190,12 @@ vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">16 17葛cup 18号crcup 应该是为了cr让路吧 原来pv都是17 18号的吧
 
+
+
+*****
+
+####  Kokichi  
+##### 17338#       发表于 2022-9-13 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">crapex有群人要是不复健的话确实纯娱乐赛了。
+
