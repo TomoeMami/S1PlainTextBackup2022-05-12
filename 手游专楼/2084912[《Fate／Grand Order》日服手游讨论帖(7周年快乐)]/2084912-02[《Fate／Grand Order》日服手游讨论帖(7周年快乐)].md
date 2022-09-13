@@ -11050,3 +11050,15 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 打2.4这几个超高难让我再一次体会到C呆才是这个游戏最硬的人权卡，尤其是对狂娜那关，最后一罐血上来那个3t无敌贯通buff，没C呆就是死路一条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2493#       发表于 2022-9-13 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57467203&amp;ptid=2084912" target="_blank">onemoment 发表于 2022-9-13 16:58</a>
+
+同开始攒石头了，感觉我会忍不住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信自己 肯定攒不住
+
