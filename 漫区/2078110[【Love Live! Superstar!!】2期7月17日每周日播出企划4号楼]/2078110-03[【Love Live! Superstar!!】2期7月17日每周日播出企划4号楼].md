@@ -15803,3 +15803,30 @@ C曲也好高光也罢，没有希望就没有失望，既然是为了留下可�
 
 跨年live的making内容太注水了，几乎都只是不同镜头的表演
 
+
+
+*****
+
+####  仟音一心  
+##### 4427#       发表于 2022-9-13 11:21
+
+<img src="https://img.saraba1st.com/forum/202209/13/112131fx8xffwz9u7xjdxj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>29C0771F-5F2A-480F-84A2-2A6535DAAFB4.jpeg</strong> (584.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-13 11:21 上传
+
+纸灯笼也卖周边啊
+
+<img src="https://img.saraba1st.com/forum/202209/13/112112rtzucmsuonqmqbj0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>537947E0-B42E-4C7D-9D6C-B11A390E5030.jpeg</strong> (431.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-13 11:21 上传
+

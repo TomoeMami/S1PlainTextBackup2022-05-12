@@ -910,3 +910,17 @@ RPG这种游戏的根子就注定了如果DM（现在就是游戏制作者）和
 
 没看出任何战术和乐趣。完美符合你的想象。只可惜没有几万个lz充点卡来支持这么优秀又真实的网游
 
+
+
+*****
+
+####  adrftgyh  
+##### 91#       发表于 2022-9-13 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57442468&amp;ptid=2091840" target="_blank">看脸 发表于 2022-9-11 20:12</a>
+
+因为设计上要让所有玩家都有实在的参与感
+
+要是现在还像远古网游DDO那样，在太空一个平台上打红龙，一个吐 ...</blockquote>
+没玩过，ddo不是龙与地下城吗，还有太空这么高端的副本环境？？
+
