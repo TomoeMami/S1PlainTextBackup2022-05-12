@@ -16349,3 +16349,48 @@ CP头子亲自下场
 不是，是一直在营业的结那</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">竟然是结那，这侧影太像了
 
+
+
+*****
+
+####  仟音一心  
+##### 4473#       发表于 2022-9-13 21:22
+
+听译：百合粥不加糖
+广播现场表演鲨吹和鲨黑同框
+emorin问sayu给自己的形象定位是什么
+sayu:说了你们不要笑。认真，冷峻(emorin开始问号)，沉着冷静，不怎么爱开玩笑。
+鲤鱼:是的，非常赞同。
+emorin:(憋不住爆笑)
+sayu:有什么问题吗？如果是烘托气氛或者表示同感那可以笑。
+emorin:第一个认真我懂。
+鲤鱼:全都说得对，全部。
+sayu:鲤酱今天很不错哟。
+鲤鱼:就...就是这样。
+emorin:冷峻是怎么回事？
+sayu:就是说冷峻，沉着。我们可以下一个话题了吗？
+emorin:有人要逃跑了。
+
+*****
+
+####  kata魂  
+##### 4474#       发表于 2022-9-13 21:29
+
+51.5  好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4475#       发表于 2022-9-13 21:29
+
+评分
+
+67C8CAB1-16EB-4A0E-BA2F-3B4FBCC13585.jpeg
+(77.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202209/13/212954xkh7fezk3yxfcxzy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
