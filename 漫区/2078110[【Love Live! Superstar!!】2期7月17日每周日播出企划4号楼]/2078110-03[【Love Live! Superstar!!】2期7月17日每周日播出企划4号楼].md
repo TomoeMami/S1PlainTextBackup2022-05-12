@@ -16431,3 +16431,21 @@ emorin:有人要逃跑了。
 
 感觉是受到星二整体低迷的评价所致<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4480#       发表于 2022-9-13 22:04
+
+上一话好歹有乐子，这一话没乐子，然后还有整个学生会被你偶像部架空然后为了偶像活动还推卸外包这种蚌埠剧情。
+
+*****
+
+####  iuhehc  
+##### 4481#       发表于 2022-9-13 22:06
+
+已经结束咧！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9208,3 +9208,14 @@ vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face
 
 大家不会都是白银了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17340#       发表于 2022-9-13 22:01
+
+ 本帖最后由 FCCHua 于 2022-9-13 22:09 编辑 
+
+先不说琥珀天天出现在oreapo的个人窗里，她一年多之前就和hnn联动过apex吧，当时还有qu酱。kmt那我有印象是从rust开始<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
