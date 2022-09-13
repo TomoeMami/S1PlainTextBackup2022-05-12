@@ -15794,3 +15794,12 @@ C曲也好高光也罢，没有希望就没有失望，既然是为了留下可�
 有无利用起可可被反输入的cosplay属性在机场乔装骗过众人还故意给她们指错路，然后堇故意掉队单独识破的环 ...</blockquote>
 全知全能的涉谷观音大师是不会被这种凡夫俗子的低级伎俩蒙蔽的。香门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4426#       发表于 2022-9-13 11:01
+
+跨年live的making内容太注水了，几乎都只是不同镜头的表演
+
