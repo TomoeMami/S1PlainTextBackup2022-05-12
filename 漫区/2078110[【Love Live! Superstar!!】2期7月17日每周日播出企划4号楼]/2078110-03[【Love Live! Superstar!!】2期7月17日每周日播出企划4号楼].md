@@ -16328,3 +16328,24 @@ CP头子亲自下场
 第一张是谁啊</blockquote>
 结那……
 
+
+
+*****
+
+####  仟音一心  
+##### 4471#       发表于 2022-9-13 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57470229&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-13 20:39</a>
+铃原</blockquote>
+不是，是一直在营业的结那
+
+*****
+
+####  starring  
+##### 4472#       发表于 2022-9-13 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57470261&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-13 20:42</a>
+
+不是，是一直在营业的结那</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">竟然是结那，这侧影太像了
+
