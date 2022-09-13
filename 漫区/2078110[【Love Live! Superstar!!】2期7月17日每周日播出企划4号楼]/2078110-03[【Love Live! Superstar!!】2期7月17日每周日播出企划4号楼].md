@@ -16057,3 +16057,21 @@ CP头子亲自下场
 
 合鲤这周下周广播连庄，至少9话肯定是不会直接进主题的，企划蠢但没有那么坏，看下下周的广播都是谁就知道了。
 
+
+
+*****
+
+####  player3960  
+##### 4445#       发表于 2022-9-13 17:04
+
+今天小剧场，红毛也是库卡人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4446#       发表于 2022-9-13 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典全都要是吧
+
+对了，光顾着看可可回的问题了，差点忘了件事：东京决赛，9人行，5人不行，这”闲话“怕是要跟随星到解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找机会由5人打败一次snp弥补遗憾的猜测也破灭了。
+
