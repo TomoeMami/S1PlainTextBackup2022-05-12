@@ -181,3 +181,22 @@
 
 有其他人今天发推说周末有其他的holo内喷联动，搞不好
 
+
+
+*****
+
+####  holoan  
+##### 1517#         楼主| 发表于 2022-9-13 20:31
+
+刚发出来没多久推特就有目击报告了
+
+<img src="https://img.saraba1st.com/forum/202209/13/203103n9ryguimm36gl74u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 20:31 上传
+
+自爆了属于
+
