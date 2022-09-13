@@ -16460,3 +16460,26 @@ emorin:有人要逃跑了。
 
 然后看了眼战吧现在连开香槟的都没几个了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_3  
+##### 4483#       发表于 2022-9-13 22:53
+
+前几集还有围观看乐子的，最近连看乐子的都没了，甚至动画评论区好多直接要当集文字总结的，根据总结判断要不要看……（）
+
+*****
+
+####  adw667  
+##### 4484#       发表于 2022-9-13 22:53
+
+有歌咋了，很好听吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 4485#       发表于 2022-9-13 22:54
+
+私心还挺想看学生会剧情，能造的校园zz假药比动画剧情乐多了，而且坏女人香音真的好带感我好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
