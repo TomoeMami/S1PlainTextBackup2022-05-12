@@ -16585,3 +16585,20 @@ emorin:有人要逃跑了。
 反正最近的生放也没多少看点，甚至能一边做其它事一边听，反正是念信加工商，而且气氛还微妙的尴尬。说白了就是新老人拆散混一起，关系也还没好到像之前五老星那样相互背刺的程度。
 一个阴暗的想法，这几期生放送也还是五人，彷佛运营在告诉粉丝，你们喜欢五人组就整给你们看，只不过是新老人混合<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 4497#       发表于 2022-9-14 00:52
+
+<img src="https://img.saraba1st.com/forum/202209/14/005136wujf3zd7lk6982z9.jpg" referrerpolicy="no-referrer">
+
+<strong>-ec91bd27bb586f5.jpg</strong> (161.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 00:51 上传
+
+草，看个狸动画都能看到抱怨香音的
+
