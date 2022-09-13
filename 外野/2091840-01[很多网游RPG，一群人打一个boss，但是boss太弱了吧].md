@@ -959,3 +959,16 @@ t一直挡在boss脸上，boss想去单点杀奶和dps也脱不开身。只能�
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 魔兽高端团本比黑魂难多了。
 
+
+
+*****
+
+####  gofbayrf  
+##### 95#       发表于 2022-9-13 16:30
+
+ 本帖最后由 gofbayrf 于 2022-9-13 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57462998&amp;ptid=2091840" target="_blank">macshi 发表于 2022-9-13 11:47</a>
+
+其实把t的仇恨值换成缠斗值不就解决了，就像武侠小说里经常写的一样，伤害虽然不高但是就是能拖住你身边脱 ...</blockquote>
+远程跟AOE又不吃ZOC效果  武侠小说那是有打断效果  那真是单刷BOSS的
+
