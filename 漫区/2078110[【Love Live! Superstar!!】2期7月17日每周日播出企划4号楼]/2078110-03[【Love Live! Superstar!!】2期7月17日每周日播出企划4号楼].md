@@ -15902,3 +15902,57 @@ C曲也好高光也罢，没有希望就没有失望，既然是为了留下可�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一季打歌服设计至少还能看看的，第二季从op那个皮夹克+豹纹裙开始就向着弃疗路线一去不复返了
 
+
+
+*****
+
+####  GGnob  
+##### 4436#       发表于 2022-9-13 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57466131&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-13 15:35</a>
+
+虹2的追飞机有什么节奏，感觉还好吧，反正追飞机也就得这么拍吧。难道是说，追飞机的是米娅，然后最关键叫 ...</blockquote>
+虹二是嫌追飞机的人太多了，有人感觉是集体给压力80，但星二要是集体追飞机到好了，还是香音传节奏小不了
+
+*****
+
+####  仟音一心  
+##### 4437#       发表于 2022-9-13 15:55
+
+<img src="https://img.saraba1st.com/forum/202209/13/155533w8o86806vq9jeyrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DB2D2F15-8B58-4F48-9E33-01F18E2C39AE.jpeg</strong> (124.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-13 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202209/13/155540ckku5kj0bf6xrzs4.png" referrerpolicy="no-referrer">
+
+<strong>2DF18FCF-9D28-402E-A218-CA6EC6FCBAB0.png</strong> (202.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-13 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202209/13/155546i7eor73e7eow6qer.png" referrerpolicy="no-referrer">
+
+<strong>F660CCF0-B2BC-457D-B092-4008B1E21F7F.png</strong> (168.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-13 15:55 上传
+
+*****
+
+####  ads147147  
+##### 4438#       发表于 2022-9-13 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57466356&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-13 15:55</a></blockquote>
+星总是在一些很奇怪的地方扣细节扣的特准。这段我当时第一反应也是青山的感觉。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
