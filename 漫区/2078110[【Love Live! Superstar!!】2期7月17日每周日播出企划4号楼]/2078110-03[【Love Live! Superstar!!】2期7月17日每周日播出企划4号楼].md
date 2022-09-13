@@ -16410,3 +16410,24 @@ emorin:有人要逃跑了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">其实这话观感还行，这个评分有点积重难返的意思了，看好最后一话打破水s2ep13评分
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4478#       发表于 2022-9-13 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只评价歌的话这集确实还可以（）
+
+*****
+
+####  Kfly  
+##### 4479#       发表于 2022-9-13 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57471135&amp;ptid=2078110" target="_blank">GGnob 发表于 2022-9-13 21:45</a>
+
+有歌都这么低，星二是真的药丸</blockquote>
+第六集有歌也低啊，这集也就水了点，评价却和第六集接近
+
+感觉是受到星二整体低迷的评价所致<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

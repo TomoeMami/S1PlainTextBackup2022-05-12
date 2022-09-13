@@ -240,3 +240,20 @@ luna爹作的那首曲和去年百万订阅纪念cover曲同时达到了百万�
 
 cover曲是有点意思这人每次选的cover曲好像都很合大部分粉丝的胃口，每首风格还不重复的
 
+
+
+*****
+
+####  holoan  
+##### 1522#         楼主| 发表于 2022-9-13 21:50
+
+<img src="https://img.saraba1st.com/forum/202209/13/215049a0v67u3uw3vndxuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 21:50 上传
+
+画面信息量
+
