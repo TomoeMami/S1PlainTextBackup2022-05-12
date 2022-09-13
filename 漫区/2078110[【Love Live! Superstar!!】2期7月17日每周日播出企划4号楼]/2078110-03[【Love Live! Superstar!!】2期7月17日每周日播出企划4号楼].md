@@ -16521,3 +16521,14 @@ emorin:有人要逃跑了。
 
 没三期从一年级开始干嘛，就为了到时候剧场版时间合理？那我愿意称企划傻逼。
 
+
+
+*****
+
+####  lj205  
+##### 4490#       发表于 2022-9-13 23:27
+
+三期肯定有
+
+就是这打分吧，也就这样了，讨论热度越来越低反而是好事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
