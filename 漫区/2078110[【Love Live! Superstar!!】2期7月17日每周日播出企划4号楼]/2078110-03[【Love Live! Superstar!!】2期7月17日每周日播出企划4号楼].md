@@ -16138,3 +16138,28 @@ CP头子亲自下场
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 4454#       发表于 2022-9-13 18:33
+
+看衣服，估计是去看广告牌当天录的广播
+
+*****
+
+####  player3960  
+##### 4455#       发表于 2022-9-13 18:35
+
+打铁发推了，实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 4456#       发表于 2022-9-13 18:37
+
+打铁那个香音立牌和鱼第一张的摆放完全对的上的
+
