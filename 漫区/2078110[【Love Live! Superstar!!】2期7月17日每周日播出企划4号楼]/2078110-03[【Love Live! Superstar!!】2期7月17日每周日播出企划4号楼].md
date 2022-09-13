@@ -16163,3 +16163,61 @@ CP头子亲自下场
 
 打铁那个香音立牌和鱼第一张的摆放完全对的上的
 
+
+
+*****
+
+####  cybernetics31  
+##### 4457#       发表于 2022-9-13 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是打铁，我也磕了
+
+*****
+
+####  Kfly  
+##### 4458#       发表于 2022-9-13 18:46
+
+ 本帖最后由 Kfly 于 2022-9-13 18:50 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/13/184614aszcmpfsn7mn6qa7.jpg" referrerpolicy="no-referrer">
+
+<strong>Fch2eUVacAE4zc5.jpg</strong> (474.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202209/13/184621uetlppljtlluxp0e.jpg" referrerpolicy="no-referrer">
+
+<strong>Fch2eUXaIAAYbIh.jpg</strong> (595.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202209/13/184630iu80vh3z83uyjvy3.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ8pad-8x4nZgT3cShs-1cn.jpg</strong> (157.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-13 18:46 上传
+
+磕到了磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kbtit  
+##### 4459#       发表于 2022-9-13 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">死去的cp突然攻击我
+
+*****
+
+####  ads147147  
+##### 4460#       发表于 2022-9-13 18:50
+
+真是可香，只要鲤鱼还在我就不会抛弃可香的！
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
