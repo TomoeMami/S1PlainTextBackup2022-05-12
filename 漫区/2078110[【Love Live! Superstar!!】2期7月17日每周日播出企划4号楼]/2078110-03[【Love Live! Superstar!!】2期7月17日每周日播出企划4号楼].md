@@ -16394,3 +16394,19 @@ emorin:有人要逃跑了。
 
 <img src="https://img.saraba1st.com/forum/202209/13/212954xkh7fezk3yxfcxzy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GGnob  
+##### 4476#       发表于 2022-9-13 21:45
+
+有歌都这么低，星二是真的药丸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4477#       发表于 2022-9-13 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">其实这话观感还行，这个评分有点积重难返的意思了，看好最后一话打破水s2ep13评分
+
