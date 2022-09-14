@@ -904,3 +904,44 @@ steam同步吗，不想买ps5</blockquote>
 
 卖相感觉不如三国人亡，也不知道是不是我对三国偏心了
 
+
+
+*****
+
+####  Merdesony  
+##### 104#       发表于 2022-9-14 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477544&amp;ptid=2092342" target="_blank">uponutopia 发表于 2022-9-14 09:46</a>
+安田之前采访不是说的很明白么，卧龙给小小小弟练手的，这个自己披挂上阵总导演的，“做不好会十分不妙”的 ...</blockquote>
+居然拿中国题材给日本题材练手，乳化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9080, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clover293  
+##### 105#       发表于 2022-9-14 11:34
+
+2024是target发售日，又不代表不能延期。其实延到2025的话，也就差不多是忍组正常的效率了
+
+*****
+
+####  BadYanL  
+##### 106#       发表于 2022-9-14 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479301&amp;ptid=2092342" target="_blank">hkguty 发表于 2022-9-14 11:28</a>
+
+卖相感觉不如三国人亡，也不知道是不是我对三国偏心了</blockquote>
+仁王能套三国皮，这个成功的话以后KT也能套三国。
+
+*****
+
+####  bad_alloc  
+##### 107#       发表于 2022-9-14 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479337&amp;ptid=2092342" target="_blank">Merdesony 发表于 2022-9-14 11:31</a>
+居然拿中国题材给日本题材练手，乳化了
+
+—— 来自 samsung SM-S9080, Android 12上的 S1Next-鹅 ...</blockquote>
+想开点，仁王给卧龙练过两次手啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

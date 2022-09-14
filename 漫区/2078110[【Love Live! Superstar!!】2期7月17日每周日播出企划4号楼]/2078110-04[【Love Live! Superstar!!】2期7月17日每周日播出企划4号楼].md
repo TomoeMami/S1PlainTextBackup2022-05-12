@@ -431,3 +431,31 @@ nagi
 本来这句没什么的，但接后 ...</blockquote>
 总之还是个老问题，这剧情经不起细想<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4543#       发表于 2022-9-14 11:32
+
+学生会为啥非得这海选三人组？其他人就没资格呗？有点自知之明
+
+*****
+
+####  ViyViy  
+##### 4544#       发表于 2022-9-14 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478945&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-14 11:06</a>
+
+我觉得微妙的点是 堇说“学生会长离我更遥远了”可可回了一句“你还没放弃啊”
+
+本来这句没什么的，但接后 ...</blockquote>
+这里的问题应该是恋这个学生会长毕业前不会变动了吧，所以这次人选都没会长之位你说你馋会长之位干啥呢，都没给你选的机会。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4545#       发表于 2022-9-14 11:36
+
+早就说过了，这企划最大的那块猪肉就是apb的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
