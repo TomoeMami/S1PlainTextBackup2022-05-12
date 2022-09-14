@@ -635,3 +635,12 @@ coser太瘦了，四肢一点肉都没有，不太想像
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这衣服正面看着还行，侧面和背面感觉就太露骨了，没有着衣的美感
 
+
+
+*****
+
+####  kira1988  
+##### 65#       发表于 2022-9-14 14:57
+
+油管看了她其他视频，脸好怪，就是车灯打，不知道天然的还是后期加工的
+
