@@ -468,3 +468,14 @@ nagi
 
 难蚌，刚发现这个游戏和动画企划是在AI的陪伴下驾驶机器人探险的感觉，青山姐怕不是要配个无机质声线的AI妹子，可以安心（？）的继续棒读了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chichengjerry  
+##### 4547#       发表于 2022-9-14 13:39
+
+<blockquote>lj205 发表于 2022-9-14 11:05
+海选三人资源真好，hori pro什么时候给鱼安排一下其他业务？cos挂了这么久都没商单，我反正是不信什么业务 ...</blockquote>
+既然定位是歌手，拿tie up也是业务（11月3单），我更希望看到在solo歌唱事业上多活动活动，反而Cosplay对我来说是可有可无
+

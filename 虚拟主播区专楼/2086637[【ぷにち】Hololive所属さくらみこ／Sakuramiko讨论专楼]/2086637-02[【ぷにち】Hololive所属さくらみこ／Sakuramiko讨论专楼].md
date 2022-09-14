@@ -370,3 +370,25 @@ miko回复了，那没事了…
 
 卡片先导者，商业开始的地方，虽然之后我看到的只有各种贴贴
 
+
+
+*****
+
+####  ZQXY2002  
+##### 1533#       发表于 2022-9-14 13:40
+
+当时是真的硬贴啊，卡牌联动直播还客客气气的。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1534#         楼主| 发表于 2022-9-14 13:41
+
+<img src="https://img.saraba1st.com/forum/202209/14/134104r2r4uzk50zggtw0x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 13:41 上传
+
