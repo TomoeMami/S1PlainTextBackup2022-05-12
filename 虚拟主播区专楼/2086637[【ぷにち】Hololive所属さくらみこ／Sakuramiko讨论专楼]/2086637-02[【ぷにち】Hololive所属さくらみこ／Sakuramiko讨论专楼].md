@@ -720,3 +720,20 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌，这个c100还在开的时候就说过了，是c100七字母合集的商稿吧
 
+
+
+*****
+
+####  rs5621  
+##### 1566#       发表于 2022-9-14 18:13
+
+<img src="https://img.saraba1st.com/forum/202209/14/180953y3jvfpl5ps137flv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:09 上传
+
+还得是pvp才有意思
+
