@@ -850,3 +850,21 @@ wwe的BGM就直接用上了？
 
 还好有anya帮忙传达消息给moona,miko轻松了不少
 
+
+
+*****
+
+####  rs5621  
+##### 1578#       发表于 2022-9-14 23:46
+
+欢乐,输的人都喜欢场外追着赢的人打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1579#         楼主| 发表于 2022-9-14 23:48
+
+场外乱斗是传统艺能了
+
+以后可以搞团体赛
+

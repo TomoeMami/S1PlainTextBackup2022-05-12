@@ -1626,3 +1626,14 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 翻个毛的车，真三八如果能上仁王系或者忍龙系的战斗系统我都舔爆<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yason  
+##### 180#       发表于 2022-9-14 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487923&amp;ptid=2092342" target="_blank">hotsmile 发表于 2022-9-14 22:04</a>
+用了新引擎</blockquote>
+新引擎看这个预告片感觉画面还是一坨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
