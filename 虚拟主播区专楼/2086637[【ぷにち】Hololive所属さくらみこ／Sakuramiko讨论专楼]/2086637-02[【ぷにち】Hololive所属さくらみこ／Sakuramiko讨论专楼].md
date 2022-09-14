@@ -634,3 +634,14 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚搞斗技场？能看血流成河了
 
+
+
+*****
+
+####  holoan  
+##### 1560#         楼主| 发表于 2022-9-14 17:16
+
+还不如直接raid呢
+
+竞技场感觉就是小打小闹
+
