@@ -1291,3 +1291,15 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 至少像幕末志士传那样写个凑合的长主线也好啊。1863到戊辰战争也有几年呢，不打内战又没什么“黑”料，总不能像仁王2那样按章跳时间。
 
+
+
+*****
+
+####  popchong  
+##### 146#       发表于 2022-9-14 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481671&amp;ptid=2092342" target="_blank">Heliopoleia 发表于 2022-9-14 14:20</a>
+
+Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打打和探探探吧……虽然不太可能，但我还是比较 ...</blockquote>
+主线够扎实叙事节奏好的话，只靠打打打和探探探也能蒙混过关，没错我说的是对马岛
+
