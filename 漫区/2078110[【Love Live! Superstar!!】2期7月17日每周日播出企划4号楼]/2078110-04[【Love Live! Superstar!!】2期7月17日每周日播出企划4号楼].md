@@ -405,3 +405,29 @@ nagi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为amuse子公司，有时候觉得ab比amuse资源还多………………
 
+
+
+*****
+
+####  ddy2811  
+##### 4541#       发表于 2022-9-14 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478647&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-14 10:48</a>
+
+聊到学生会这破剧情，属实难绷
+
+上一集香音还说要帮恋的忙于是加入学生会来着，这一集直接默认接受了 ...</blockquote>
+所以联系上面的说法，这句是“卿莫近禁脔”的意思？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4542#       发表于 2022-9-14 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478945&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-14 11:06</a>
+
+我觉得微妙的点是 堇说“学生会长离我更遥远了”可可回了一句“你还没放弃啊”
+
+本来这句没什么的，但接后 ...</blockquote>
+总之还是个老问题，这剧情经不起细想<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
