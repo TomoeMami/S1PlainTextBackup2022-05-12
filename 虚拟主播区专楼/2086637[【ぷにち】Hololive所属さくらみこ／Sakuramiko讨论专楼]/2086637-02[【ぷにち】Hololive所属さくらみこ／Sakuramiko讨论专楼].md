@@ -690,3 +690,24 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 大概是前两次rust是忘了开了我还以为这轮限制放宽了还是怎么的
 
+
+
+*****
+
+####  holoan  
+##### 1564#         楼主| 发表于 2022-9-14 17:55
+
+<img src="https://img.saraba1st.com/forum/202209/14/175352uks11rtdvyyyy0d0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1004.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 17:53 上传
+
+[https://twitter.com/taniyan_holo/status/1569987085502943235](https://twitter.com/taniyan_holo/status/1569987085502943235)
+
+ともず老师转画七字母了
+
+这个世界的八字母画师又少了一个
+
