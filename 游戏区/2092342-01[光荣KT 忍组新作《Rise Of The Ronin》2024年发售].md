@@ -1637,3 +1637,12 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 用了新引擎</blockquote>
 新引擎看这个预告片感觉画面还是一坨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lbzlxx  
+##### 181#       发表于 2022-9-15 00:02
+
+358也是开放世界啊，KT自己心里没点B数吗
+

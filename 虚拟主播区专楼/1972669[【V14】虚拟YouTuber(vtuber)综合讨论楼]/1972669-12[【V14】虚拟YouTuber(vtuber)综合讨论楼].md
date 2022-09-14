@@ -9287,3 +9287,14 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 
 你虹4到7月一个季度就赚了14亿啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 17347#       发表于 2022-9-15 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最近越看越感觉oreapo已经是cp梗用光轮流被折磨开始玉玉，但想不出什么新コンテンツ所以俩人每次玉玉完都自我和解继续有一搭没一搭的营业。
+
+最近有印象的只有ava那次的高质量<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能不能出完图灵爱就像国产六字母一样来点美学解放彼此（
+
