@@ -9255,3 +9255,17 @@ vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face
  ...</blockquote>
 那我还是那句话，这就是顶尖的话这业界未免也太没有前途了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 17344#       发表于 2022-9-14 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57468885&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-9-13 19:06</a>
+
+大家不会都是白银了吧
+
+syl こはく居然就能和oreapo联动了，明明今年五月前还是个不知名个人势猎杀， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秋雪小姐是dtto老姬友了，靠她的关系和selen很早就搭上线了
+

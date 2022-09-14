@@ -945,3 +945,32 @@ steam同步吗，不想买ps5</blockquote>
 —— 来自 samsung SM-S9080, Android 12上的 S1Next-鹅 ...</blockquote>
 想开点，仁王给卧龙练过两次手啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sandro  
+##### 108#       发表于 2022-9-14 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479337&amp;ptid=2092342" target="_blank">Merdesony 发表于 2022-9-14 11:31</a>
+居然拿中国题材给日本题材练手，乳化了
+
+—— 来自 samsung SM-S9080, Android 12上的 S1Next-鹅 ...</blockquote>
+三国志一直是信野练手作咯
+
+*****
+
+####  etdgcb  
+##### 109#       发表于 2022-9-14 11:47
+
+和capcom一样，新引擎一搞好就高产起来了
+
+*****
+
+####  TTAA  
+##### 110#       发表于 2022-9-14 11:52
+
+安田之前说过23年是rise of team ninja，看来暗合这次发布的游戏标题，这游戏十有八九是忍组全力以赴的作品
+
+我就怕为了这个把卧龙献祭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
