@@ -459,3 +459,12 @@ nagi
 
 早就说过了，这企划最大的那块猪肉就是apb的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4546#       发表于 2022-9-14 12:10
+
+难蚌，刚发现这个游戏和动画企划是在AI的陪伴下驾驶机器人探险的感觉，青山姐怕不是要配个无机质声线的AI妹子，可以安心（？）的继续棒读了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

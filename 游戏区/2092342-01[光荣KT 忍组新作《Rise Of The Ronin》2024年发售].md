@@ -1037,3 +1037,42 @@ steam同步吗，不想买ps5</blockquote>
 
 按推特那个KT员工爆料的，现在甚至在五开。还有忍龙，仁王3和山际的新动作游戏。这三个估计都是前期
 
+
+
+*****
+
+####  TTAA  
+##### 118#       发表于 2022-9-14 12:03
+
+五开这个看得实在有点慌，TN现在哪来这么多人，总不能把沙排的都抽过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病態極端  
+##### 119#       发表于 2022-9-14 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479777&amp;ptid=2092342" target="_blank">雨翼free 发表于 2022-9-14 12:01</a>
+
+按推特那个KT员工爆料的，现在甚至在五开。还有忍龙，仁王3和山际的新动作游戏。这三个估计都是前期 ...</blockquote>
+來源？
+
+*****
+
+####  你好s1  
+##### 120#       发表于 2022-9-14 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479777&amp;ptid=2092342" target="_blank">雨翼free 发表于 2022-9-14 12:01</a>
+
+按推特那个KT员工爆料的，现在甚至在五开。还有忍龙，仁王3和山际的新动作游戏。这三个估计都是前期 ...</blockquote>
+
+  仁王3肯定不可能了，卧龙明显就是仁王3改个名字
+
+
+
+*****
+
+####  415452356  
+##### 121#       发表于 2022-9-14 12:08
+
+  要做那么多项目那肯定要把无双组和doa组空出来的人手都拿去做才勉强够，我最多信个五成
+
