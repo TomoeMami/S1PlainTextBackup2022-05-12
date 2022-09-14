@@ -11497,3 +11497,77 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 算上换人也大概能比rba猛一点</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁说咋说算上被动30黄金率  6hit 宝具 寄了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2534#       发表于 2022-9-14 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485770&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 19:14</a>
+
+这千利休，回收有NP率，居然总体比rba好一点
+
+算上换人也大概能比rba猛一点</blockquote>
+毕竟是狂阶，人之力的范围也不RBA的秩序大一些...，被动的绿卡NP率+10也挺给力...
+
+就是太清新脱俗了，三绿狂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉还是项羽这个三红暴击更适合RBA体系...
+
+*****
+
+####  exiaexa  
+##### 2535#       发表于 2022-9-14 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485845&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-14 19:20</a>
+
+隔壁说咋说算上被动30黄金率  6hit 宝具 寄了</blockquote>
+rba当打手自己也寄啊，就强一点那不就是两个一起寄了
+
+反正都干不过红蓝，没毛病
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 2536#       发表于 2022-9-14 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">扔了几张呼符想抽个五星礼装，结果出了老太……
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">礼装四星的都没出，寄
+
+*****
+
+####  Jamaisvu  
+##### 2537#       发表于 2022-9-14 19:24
+
+ 本帖最后由 Jamaisvu 于 2022-9-14 19:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485833&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-14 19:19</a>
+
+3绿你说适合rba？</blockquote>
+哦哦，看错技能了，忘了两个BBA的一技能都是指定色卡暴击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那这家伙还挺复古的，比较适合CBA的绿爆体系...
+别是压稿吧
+
+感觉会让抽了RBA的人很尴尬，给千利休当拐也不是，作为打手新人换旧人更不对劲...
+
+*****
+
+####  angelooo  
+##### 2538#       发表于 2022-9-14 19:25
+
+三绿不适合rba啊，rba要的是三红，是不是把她的技能组换给项哥就真起飞了，可惜换不得
+
+*****
+
+####  quanlix  
+##### 2539#       发表于 2022-9-14 19:26
+
+狼头+大手子，这是老头环后遗症吧
+
+*****
+
+####  黑上シグマ  
+##### 2540#       发表于 2022-9-14 19:27
+
+妈的这千利休睁大眼吓死人
+
