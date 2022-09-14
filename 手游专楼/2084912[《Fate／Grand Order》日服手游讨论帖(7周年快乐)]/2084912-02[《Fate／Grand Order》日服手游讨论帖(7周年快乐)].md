@@ -11395,3 +11395,105 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 千利休这老和尚没女儿吧</blockquote>
 不过他有妻子和红颜知己之类的......但是不知道电影有多少虚构成分，废狗编剧会不会采用...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2526#       发表于 2022-9-14 19:12
+
+新从者解包来啦：
+
+<img src="https://img.saraba1st.com/forum/202209/14/191247p6erjueeaeu6e25b.jpg" referrerpolicy="no-referrer">
+
+<strong>31ECDCFEC864D3E0BFEC1B94FB52D083.jpg</strong> (410.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202209/14/191248cssgf7j8j80poz14.jpg" referrerpolicy="no-referrer">
+
+<strong>861E5C18A54FBEDDCB32B79570218E08.jpg</strong> (125.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202209/14/191249v343131wnhhde1he.jpg" referrerpolicy="no-referrer">
+
+<strong>3EE10B88758D2541AAFA1E6199F383CB.jpg</strong> (115.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 19:12 上传
+
+*****
+
+####  alucardcz  
+##### 2527#       发表于 2022-9-14 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么现在的光炮个个都有充能和特攻
+
+*****
+
+####  angelooo  
+##### 2528#       发表于 2022-9-14 19:14
+
+连个50充都不舍得给？绿卡很强吗？
+
+*****
+
+####  exiaexa  
+##### 2529#       发表于 2022-9-14 19:14
+
+ 本帖最后由 exiaexa 于 2022-9-14 19:16 编辑 
+
+这千利休，回收有NP率，居然总体比rba好一点
+
+算上换人也大概能比rba猛一点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2530#       发表于 2022-9-14 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485742&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 19:12</a>
+
+新从者解包来啦：</blockquote>
+山南敬助算是兰陵王的同类，二技能的魔放30比魔性之貌的20高，不过加攻方面算上宝具兰陵王要高10。
+
+千利休这个三Q狂战真的惊到我了，大概挺适合RBA体系？3Q，88。
+
+*****
+
+####  葛林TOP  
+##### 2531#       发表于 2022-9-14 19:18
+
+看过战国鬼才传后没法直视了
+
+*****
+
+####  alucardcz  
+##### 2532#       发表于 2022-9-14 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485813&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 19:18</a>
+
+山南敬助算是兰陵王的同类，二技能的魔放30比魔性之貌的20高，不过加攻方面算上宝具兰陵王要高10。
+
+千利 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3绿你说适合rba？
+
+*****
+
+####  alucardcz  
+##### 2533#       发表于 2022-9-14 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485770&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 19:14</a>
+
+这千利休，回收有NP率，居然总体比rba好一点
+
+算上换人也大概能比rba猛一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁说咋说算上被动30黄金率  6hit 宝具 寄了
+
