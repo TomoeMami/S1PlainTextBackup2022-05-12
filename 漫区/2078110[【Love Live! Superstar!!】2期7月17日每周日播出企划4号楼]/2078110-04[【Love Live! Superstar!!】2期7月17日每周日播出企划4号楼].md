@@ -208,3 +208,22 @@ nagi
 青山姐接活好耶，这下让我们看看到底是本人太棒读还是LLSS的音监垃圾 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星虹的音监都是同一个人，所以。。。。。考虑鱼的表现，我是觉得音监没啥锅。
 
+
+
+*****
+
+####  starring  
+##### 4521#       发表于 2022-9-14 10:18
+
+对她们签的卖身契更好奇了，重心肯定在LL，但是这以外的企划能参与多少很迷，像深夜番子供番还有其它的多媒体企划（马娘pjsk之类
+
+*****
+
+####  奥柏伦亲王  
+##### 4522#       发表于 2022-9-14 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477542&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-14 09:46</a>
+
+星虹的音监都是同一个人，所以。。。。。考虑鱼的表现，我是觉得音监没啥锅。 ...</blockquote>
+主要星的CV表现落差挺大的，作为素人有小百合这种惊喜的，有鲤鱼这种超出预期的，有青山这种棒读的，还有铃原和绘森这种令人崩溃的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以有时候真的怀疑音监是不是没怎么指导啊
+
