@@ -794,3 +794,21 @@ nene胜出，一石头一个holomen
 
 什么婴儿车
 
+
+
+*****
+
+####  holoan  
+##### 1572#         楼主| 发表于 2022-9-14 22:26
+
+wwe的BGM就直接用上了？
+
+*****
+
+####  a2276382  
+##### 1573#       发表于 2022-9-14 22:28
+
+这应该没版权吧 话说这是迪厅还是竞技场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
