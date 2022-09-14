@@ -227,3 +227,36 @@ nagi
 星虹的音监都是同一个人，所以。。。。。考虑鱼的表现，我是觉得音监没啥锅。 ...</blockquote>
 主要星的CV表现落差挺大的，作为素人有小百合这种惊喜的，有鲤鱼这种超出预期的，有青山这种棒读的，还有铃原和绘森这种令人崩溃的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以有时候真的怀疑音监是不是没怎么指导啊
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 4523#       发表于 2022-9-14 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478075&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-14 10:19</a>
+
+主要星的CV表现落差挺大的，作为素人有小百合这种惊喜的，有鲤鱼这种超出预期的，有青山这种棒读的，还有 ...</blockquote>
+非专业出身有点差别不挺正常的，Liella!现在这几个cast，真正科班出身的应该是nako，yabu，kuma吧
+
+*****
+
+####  cybernetics31  
+##### 4524#       发表于 2022-9-14 10:27
+
+音色和配音真的就是看天赋，企划又要求一定角色音，鱼有菜宝帮忙可能更容易上手些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山岚夜雨  
+##### 4525#       发表于 2022-9-14 10:28
+
+如果有音监就能大幅提高演技不行的cv演技那还要cv本身干嘛，最终不还是看自己吗
+
+*****
+
+####  ads147147  
+##### 4526#       发表于 2022-9-14 10:28
+
+我觉得土妹子和夏美现在的音色，完全是监督的锅，就是要弄那种刻板印象的声音。
+
