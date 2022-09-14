@@ -1324,3 +1324,45 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 —— 来自 samsung SM-S9080, Android 12上的 S1Next-鹅 ...</blockquote>
 光荣三国志很长时间以来都是信野的试水
 
+
+
+*****
+
+####  巴特爱素子  
+##### 149#       发表于 2022-9-14 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479754&amp;ptid=2092342" target="_blank">TTAA 发表于 2022-9-14 12:00</a>
+
+真是撂狠话了要么成要么死
+
+这个唯恐避之不及我只能想到明治时期的对外侵略了，这点也是很多日本 ...</blockquote>
+我觉得按日本人的尿性多半只涉及利用又镇压农民起义（赤报队之事）、西南武士被利用完丢弃、农民到了明治时期反而过得不如幕府时期这些东西。
+
+*****
+
+####  巴特爱素子  
+##### 150#       发表于 2022-9-14 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57480923&amp;ptid=2092342" target="_blank">病態極端 发表于 2022-9-14 13:17</a></blockquote>
+三国忍龙？
+
+
+
+*****
+
+####  巴特爱素子  
+##### 151#       发表于 2022-9-14 14:46
+
+另外s1果然隔版如隔山，看到这个不该想到浪客剑心来了吗？新撰组？万事屋？
+
+*****
+
+####  电磁炮233  
+##### 152#       发表于 2022-9-14 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481999&amp;ptid=2092342" target="_blank">巴特爱素子 发表于 2022-9-14 14:46</a>
+另外s1果然隔版如隔山，看到这个不该想到浪客剑心来了吗？新撰组？万事屋？ ...</blockquote>
+要是其他厂商那还可以二次元一下，这可是光荣啊。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
