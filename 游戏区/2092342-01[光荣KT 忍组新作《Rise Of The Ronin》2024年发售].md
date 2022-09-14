@@ -1497,3 +1497,15 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 日本刺客信条？
 
+
+
+*****
+
+####  bm7号  
+##### 167#       发表于 2022-9-14 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481999&amp;ptid=2092342" target="_blank">巴特爱素子 发表于 2022-9-14 14:46</a>
+
+另外s1果然隔版如隔山，看到这个不该想到浪客剑心来了吗？新撰组？万事屋？ ...</blockquote>
+不应该是冈本喜八吗？
+

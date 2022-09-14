@@ -645,3 +645,37 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 竞技场感觉就是小打小闹
 
+
+
+*****
+
+####  holoan  
+##### 1561#         楼主| 发表于 2022-9-14 17:22
+
+ 本帖最后由 holoan 于 2022-9-14 17:23 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/14/172319tnng773h0atfnmgl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 17:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/14/172212neziffdl04jce0e8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 17:22 上传
+
+*****
+
+####  rs5621  
+##### 1562#       发表于 2022-9-14 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会读空气，该杀
+
