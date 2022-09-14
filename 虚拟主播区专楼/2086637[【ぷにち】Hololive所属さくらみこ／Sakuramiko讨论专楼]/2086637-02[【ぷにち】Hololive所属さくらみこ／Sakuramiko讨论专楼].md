@@ -349,3 +349,15 @@ cover曲是有点意思这人每次选的cover曲好像都很合大部分粉丝�
 
 miko回复了，那没事了…
 
+
+
+*****
+
+####  rs5621  
+##### 1531#       发表于 2022-9-14 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57480029&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-9-14 12:18</a>
+
+这下真商业贴贴了</blockquote>
+真商业贴贴来了，七字母工商
+
