@@ -1444,3 +1444,12 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 24年无非就是ff7rebirth，除非sp真把对马岛2摸出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kemyes  
+##### 161#       发表于 2022-9-14 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然个人对开放世界不怎么感兴趣，但到时出了还得支持。
+
