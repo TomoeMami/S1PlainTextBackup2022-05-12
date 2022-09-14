@@ -11234,3 +11234,77 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 好，只性转，给你个老太</blockquote>
 你们都把废狗的套路摸透了啊……
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2510#       发表于 2022-9-14 18:40
+
+石田三成难道又是不实装的俊美NPC男人<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 2511#       发表于 2022-9-14 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这利休真的挺老太的
+
+*****
+
+####  Jamaisvu  
+##### 2512#       发表于 2022-9-14 18:41
+
+千利休这个脸长得好像犬夜叉的神无啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 2513#       发表于 2022-9-14 18:45
+
+看剧情吧，感觉山南撑不起这标题，二池保不定还有个男的
+
+*****
+
+####  黑上シグマ  
+##### 2514#       发表于 2022-9-14 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485381&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-14 18:45</a>
+
+看剧情吧，感觉山南撑不起这标题，二池保不定还有个男的</blockquote>
+这次打包票没二池
+
+*****
+
+####  alucardcz  
+##### 2515#       发表于 2022-9-14 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485381&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-14 18:45</a>
+
+看剧情吧，感觉山南撑不起这标题，二池保不定还有个男的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要有2池呢
+
+*****
+
+####  Jamaisvu  
+##### 2516#       发表于 2022-9-14 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485381&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-14 18:45</a>
+
+看剧情吧，感觉山南撑不起这标题，二池保不定还有个男的</blockquote>
+很有可能啊，上次阿国后面跟着个枪龙马，骗了我好多石头（主要是想捞二宝结果全打水漂了...），这次也许会UP石田三成？
+
+（如果是犬神附体的AE芹泽鸭...我就省钱了...）
+
+*****
+
+####  exiaexa  
+##### 2517#       发表于 2022-9-14 18:49
+
+看解包强度？
+
+感觉如果千利休拉了就很可能有二池
+
+完全没理由但是我就是这么感觉的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
