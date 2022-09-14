@@ -106,3 +106,63 @@ nagi
 这算不算入团后第一个参加的其它动画的配音（游戏不算）</blockquote>
 算的，目前配过其他动画的可能只有跑过龙套的yabu。
 
+
+
+*****
+
+####  cybernetics31  
+##### 4511#       发表于 2022-9-14 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hori pro能不能不要让鱼单走歌手一条路啊，主角不要求，配角搞个也好啊
+
+*****
+
+####  仟音一心  
+##### 4512#       发表于 2022-9-14 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477121&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-14 09:19</a>
+
+果然还得是Apollo Bay啊，没想到星这边cast第一个出去配动画的是nagi（除开鲤鱼入团前客串配音那次）
+
+不知 ...</blockquote>
+鲤鱼走的主要还是歌手路线，OPED唱了好几首了
+
+*****
+
+####  damian-wade  
+##### 4513#       发表于 2022-9-14 09:34
+
+学生会那点破事越发散越离谱，原本阿恋自己能处理好的事(甚至还能抽出大量时间打游戏)，整得那么多路人来插手，一点也不让人感动啊好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 4514#       发表于 2022-9-14 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477307&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-14 09:32</a>
+
+鲤鱼走的主要还是歌手路线，OPED唱了好几首了</blockquote>
+其实也才俩首而已，跨度都俩年的事了
+
+*****
+
+####  player3960  
+##### 4515#       发表于 2022-9-14 09:38
+
+我感觉horipro在声优方面资源不太丰富的样子，旗下还有职业声优要养，除非指定，不然我觉得鲤鱼的顺位不高，而且以前最大牌的声优应该是茅原实里吧，今年还退社了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4516#       发表于 2022-9-14 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477352&amp;ptid=2078110" target="_blank">damian-wade 发表于 2022-9-14 09:34</a>
+
+学生会那点破事越发散越离谱，原本阿恋自己能处理好的事(甚至还能抽出大量时间打游戏)，整得那么多路人来插 ...</blockquote>
+看心意不看能力吧，否则就没完没了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+比如说，香樱也不该加入学生会不是，恋能力那么强 
+ 就是为了支配学生会，那本来也只有恋一个人啊，这支配力还不够吗 
+
