@@ -16613,3 +16613,12 @@ emorin:有人要逃跑了。
 
 而且这集故事逻辑非常感谢强行充斥着赶快下一段这集要live的味道，公司狗只能做到这一步了。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 4499#       发表于 2022-9-14 08:23
+
+动画早烂了，希望可可回不要太拉也是出于对鲤鱼的感情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等live见真章，动画就是走走形式
+
