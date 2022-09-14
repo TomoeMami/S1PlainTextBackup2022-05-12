@@ -974,3 +974,66 @@ steam同步吗，不想买ps5</blockquote>
 
 我就怕为了这个把卧龙献祭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 111#       发表于 2022-9-14 11:53
+
+看贴吧说还有忍龙新作在做
+
+*****
+
+####  leove25  
+##### 112#       发表于 2022-9-14 11:56
+
+这年头说24年发售不就和没定发售日一样吗？也不着急，慢慢做就行。
+
+*****
+
+####  qwewdfff  
+##### 113#       发表于 2022-9-14 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478728&amp;ptid=2092342" target="_blank">量产失败型 发表于 2022-9-14 10:53</a>
+
+幕末大表哥?听着很诱人但日厂的开发能力做开放世界...</blockquote>
+法环和荒野之息是哪国的游戏？欧美除了大镖客以外还有什么牛逼的开放世界吗？
+
+*****
+
+####  性兽阿怪  
+##### 114#       发表于 2022-9-14 11:57
+
+这周六就能初步判断卧龙到底是不是被献祭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 115#       发表于 2022-9-14 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479665&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2022-9-14 11:53</a>
+
+看贴吧说还有忍龙新作在做</blockquote>
+  虽然我很想信但是我不觉得忍者组可以三开
+
+*****
+
+####  TTAA  
+##### 116#       发表于 2022-9-14 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477224&amp;ptid=2092342" target="_blank">Piano-Forest 发表于 2022-9-14 09:26</a>
+
+大家好，我们是Team Ninja，很高兴&amp;# ...</blockquote><blockquote>利用多年来获得的所有技能与知识，鉅细靡遗地描绘日本历史上最关键的革命，包括许多人避之唯恐不及、极为黑暗且丑陋不堪的章节。</blockquote>
+
+真是撂狠话了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">要么成要么死
+
+这个唯恐避之不及我只能想到明治时期的对外侵略了，这点也是很多日本游戏影视都不会提到的
+
+*****
+
+####  雨翼free  
+##### 117#       发表于 2022-9-14 12:01
+
+按推特那个KT员工爆料的，现在甚至在五开。还有忍龙，仁王3和山际的新动作游戏。这三个估计都是前期
+

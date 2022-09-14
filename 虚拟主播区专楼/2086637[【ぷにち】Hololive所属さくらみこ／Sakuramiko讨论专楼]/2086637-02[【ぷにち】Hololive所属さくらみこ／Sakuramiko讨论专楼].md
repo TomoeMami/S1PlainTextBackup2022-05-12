@@ -298,3 +298,20 @@ cover曲是有点意思这人每次选的cover曲好像都很合大部分粉丝�
 
 说播皮克敏都说了一年了企划都臭了
 
+
+
+*****
+
+####  rs5621  
+##### 1526#       发表于 2022-9-14 11:54
+
+<img src="https://img.saraba1st.com/forum/202209/14/115215o9tab17sza71t77n.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220914_114521_com.tencent.mobileqq.png</strong> (162.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 11:52 上传
+
+卧槽有八字母，会不会让图里这几个人开个联动
+
