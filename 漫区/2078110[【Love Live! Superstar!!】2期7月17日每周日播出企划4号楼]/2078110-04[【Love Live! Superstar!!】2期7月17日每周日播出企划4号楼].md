@@ -94,3 +94,15 @@ nagi
 
 不知道Horipro什么时候能给鲤鱼多安排点非粉丝向的工作
 
+
+
+*****
+
+####  仟音一心  
+##### 4510#       发表于 2022-9-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477068&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-14 09:16</a>
+
+这算不算入团后第一个参加的其它动画的配音（游戏不算）</blockquote>
+算的，目前配过其他动画的可能只有跑过龙套的yabu。
+
