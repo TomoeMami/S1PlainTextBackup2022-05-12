@@ -11375,3 +11375,23 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 茶道大师千利休？！！还是娘化...不知道会不会又是亲戚上身...</blockquote>
 千利休这老和尚没女儿吧
 
+
+
+*****
+
+####  rooarr  
+##### 2524#       发表于 2022-9-14 19:05
+
+居然是绿卡群体的巴萨卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2525#       发表于 2022-9-14 19:07
+
+ 本帖最后由 Jamaisvu 于 2022-9-14 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485554&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-9-14 18:58</a>
+
+千利休这老和尚没女儿吧</blockquote>
+不过他有妻子和红颜知己之类的......但是不知道电影有多少虚构成分，废狗编剧会不会采用...
+
