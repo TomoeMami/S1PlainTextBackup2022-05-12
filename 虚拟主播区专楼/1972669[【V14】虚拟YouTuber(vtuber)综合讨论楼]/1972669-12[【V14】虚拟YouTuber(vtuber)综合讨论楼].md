@@ -9298,3 +9298,16 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 
 最近有印象的只有ava那次的高质量<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能不能出完图灵爱就像国产六字母一样来点美学解放彼此（
 
+
+
+*****
+
+####  poipanchao  
+##### 17348#       发表于 2022-9-15 00:36
+
+出歌分手是什么管人CP的仪式吗
+
+破局方法很简单，kmt找个女友就行了
+
+不过看起来目前两人还是不想放弃管人第一bg的流量的
+
