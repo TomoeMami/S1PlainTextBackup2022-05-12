@@ -1572,3 +1572,39 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 就算是阿育那种checklist但是战斗方面至少有保障，不至于像英灵殿一样玩了十个小时之后烂尾了吧
 
+
+
+*****
+
+####  hotsmile  
+##### 174#       发表于 2022-9-14 22:03
+
+开放世界的销量下限高吧，很多人吐槽罐头，但更多人喜欢罐头
+
+*****
+
+####  415452356  
+##### 175#       发表于 2022-9-14 22:04
+
+  实在不行做成如龙那种城市里面不能拔刀砍人也是可以的，忍者组没有开放世界的经验就不要硬去做无缝超大开放世界，要出事的，而且他们那个古董引擎估计也顶不住
+
+*****
+
+####  hotsmile  
+##### 176#       发表于 2022-9-14 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487915&amp;ptid=2092342" target="_blank">415452356 发表于 2022-9-14 22:04</a>
+
+实在不行做成如龙那种城市里面不能拔刀砍人也是可以的，忍者组没有开放世界的经验就不要硬去做无缝超大开 ...</blockquote>
+用了新引擎
+
+*****
+
+####  415452356  
+##### 177#       发表于 2022-9-14 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487923&amp;ptid=2092342" target="_blank">hotsmile 发表于 2022-9-14 22:04</a>
+
+用了新引擎</blockquote>
+  说了是他们搞的那个katana引擎？那么快就用上了？
+
