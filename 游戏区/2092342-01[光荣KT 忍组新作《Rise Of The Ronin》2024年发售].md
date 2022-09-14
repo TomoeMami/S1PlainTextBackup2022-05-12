@@ -1175,3 +1175,57 @@ KT终于又支棱起来了
 
 <img src="https://p.sda1.dev/7/dba32dc0d0aa4047cf7ab2152d94bf88/1663109111286652.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  1a不解释  
+##### 134#       发表于 2022-9-14 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57480303&amp;ptid=2092342" target="_blank">雨翼free 发表于 2022-9-14 12:36</a>
+按这个kt员工森田宏明说的，doa开发团队已经解散了，估计都挪到其他项目里去了 ...</blockquote>
+没有新的doa了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  stair楼梯  
+##### 135#       发表于 2022-9-14 13:24
+
+其实两边看一下，卧龙的优势可能是武器种类更多样，敌人差异化更大，浪人这边是开放世界，加上钩锁性能更强
+
+*****
+
+####  415452356  
+##### 136#       发表于 2022-9-14 13:25
+
+  三国志gaiden啥玩意，忍龙系统的三国？
+
+*****
+
+####  病態極端  
+##### 137#       发表于 2022-9-14 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481000&amp;ptid=2092342" target="_blank">415452356 发表于 2022-9-14 13:25</a>
+
+三国志gaiden啥玩意，忍龙系统的三国？</blockquote>
+就是臥龍吧
+
+*****
+
+####  zzp05402  
+##### 138#       发表于 2022-9-14 13:28
+
+街霸6和铁拳8都要出了，doa不拼一把吗，格斗游戏市场现在还不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tomoyo1  
+##### 139#       发表于 2022-9-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57480923&amp;ptid=2092342" target="_blank">病態極端 发表于 2022-9-14 13:17</a></blockquote>
+woc 忍龙，我信了
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
