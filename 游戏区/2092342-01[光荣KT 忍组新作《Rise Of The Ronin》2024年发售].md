@@ -1303,3 +1303,24 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打打和探探探吧……虽然不太可能，但我还是比较 ...</blockquote>
 主线够扎实叙事节奏好的话，只靠打打打和探探探也能蒙混过关，没错我说的是对马岛
 
+
+
+*****
+
+####  siro1987  
+##### 147#       发表于 2022-9-14 14:38
+
+让我想起PS2的游戏侍道
+
+*****
+
+####  巴特爱素子  
+##### 148#       发表于 2022-9-14 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479337&amp;ptid=2092342" target="_blank">Merdesony 发表于 2022-9-14 11:31</a>
+
+居然拿中国题材给日本题材练手，乳化了
+
+—— 来自 samsung SM-S9080, Android 12上的 S1Next-鹅 ...</blockquote>
+光荣三国志很长时间以来都是信野的试水
+

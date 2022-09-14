@@ -447,3 +447,24 @@ miko一直强调商业贴贴这个限制狂热粉的阀门，不让连体人过�
 
 七字母民只敢在小号发癫，画图也不爱打tag，卑微的连体人
 
+
+
+*****
+
+####  rs5621  
+##### 1541#       发表于 2022-9-14 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481773&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-9-14 14:29</a>
+
+七字母民只敢在小号发癫，画图也不爱打tag，卑微的连体人</blockquote>
+八字母民也差不多，都是卑微的连体人
+
+*****
+
+####  Scardy  
+##### 1542#       发表于 2022-9-14 14:36
+
+七字母什么时候发原创曲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
