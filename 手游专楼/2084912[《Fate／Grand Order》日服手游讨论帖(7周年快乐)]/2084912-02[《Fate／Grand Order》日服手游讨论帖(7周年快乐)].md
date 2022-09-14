@@ -11970,3 +11970,14 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 
 千利休还行吧，没那么强度美啊，舅舅误我
 
+
+
+*****
+
+####  リッチ  
+##### 2574#       发表于 2022-9-14 23:57
+
+拉不满rba和千利休技能，算上加成礼装只凑得出98np
+
+迪瓦尔坐牢了继续<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
