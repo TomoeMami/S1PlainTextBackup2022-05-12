@@ -679,3 +679,14 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会读空气，该杀
 
+
+
+*****
+
+####  holoan  
+##### 1563#         楼主| 发表于 2022-9-14 17:44
+
+今天开了会限评论
+
+大概是前两次rust是忘了开了我还以为这轮限制放宽了还是怎么的
+
