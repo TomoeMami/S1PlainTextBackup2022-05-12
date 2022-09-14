@@ -291,3 +291,48 @@ nagi
  就是 ...</blockquote>
 香音和土妹加入学生会本来就莫名其妙的 上话说是为了帮恋分担工作 但这话看下来偶像部不忙时恋一个人能处理学生会 偶像部忙时香音和土妹也没精力处理学生会  那不如一开始就让其他同学加入学生会啊？
 
+
+
+*****
+
+####  愛さ実  
+##### 4530#       发表于 2022-9-14 10:44
+
+棒读何尝不是一种传承<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  starring  
+##### 4531#       发表于 2022-9-14 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478480&amp;ptid=2078110" target="_blank">renkan119 发表于 2022-9-14 10:40</a>
+香音和土妹加入学生会本来就莫名其妙的 上话说是为了帮恋分担工作 但这话看下来偶像部不忙时恋一个人能处 ...</blockquote>
+其实是为了告诉粉丝，这里（企划）的话事人是Apollo Bay<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4532#       发表于 2022-9-14 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478582&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-14 10:45</a>
+
+其实是为了告诉粉丝，这里（企划）的话事人是Apollo Bay</blockquote>
+草，确实正好是这三位<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4533#       发表于 2022-9-14 10:48
+
+聊到学生会这破剧情，属实难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上一集香音还说要帮恋的忙于是加入学生会来着，这一集直接默认接受了三巨头的帮忙的好意，合着你们这加入学生会就是让别人来帮忙的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没有金刚钻别揽瓷器活，如果没能力兼顾训练和学生会的事务，那就不要加，这种挺心安理得的接受三巨头帮忙的好意我个人感觉挺难绷的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+同样，以这种帮她们学生会的人干她们本职工作来体现结丘同学与Liella!之间“连结”之意，我觉得这剧情不怎么样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

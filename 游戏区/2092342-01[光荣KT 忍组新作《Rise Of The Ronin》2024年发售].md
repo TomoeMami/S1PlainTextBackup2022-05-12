@@ -819,3 +819,15 @@ http://t.cn/A6SnKEgD
 
   估计还是章节逐渐解锁可以探索区域的模式吧
 
+
+
+*****
+
+####  浅色轮回  
+##### 94#       发表于 2022-9-14 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477075&amp;ptid=2092342" target="_blank">hosino 发表于 2022-9-14 09:16</a>
+
+steam同步吗，不想买ps5</blockquote>
+参考死亡搁浅，大概率独占半年
+
