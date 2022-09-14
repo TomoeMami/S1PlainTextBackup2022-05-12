@@ -11062,3 +11062,12 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 同开始攒石头了，感觉我会忍不住</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信自己 肯定攒不住
 
+
+
+*****
+
+####  新吾  
+##### 2494#       发表于 2022-9-14 16:58
+
+11月2.6回顾应该有奥伯龙吧，不知道能攒多少抽
+
