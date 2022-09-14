@@ -392,3 +392,31 @@ miko回复了，那没事了…
 
 2022-9-14 13:41 上传
 
+
+
+*****
+
+####  holoan  
+##### 1535#         楼主| 发表于 2022-9-14 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481191&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-9-14 13:40</a>
+
+当时是真的硬贴啊，卡牌联动直播还客客气气的。</blockquote>
+当时相互的称呼和今天都完全不一样了你品品
+
+*****
+
+####  rs5621  
+##### 1536#       发表于 2022-9-14 14:04
+
+miko一直强调商业贴贴这个限制狂热粉的阀门，不让连体人过度发癫
+
+就是不知道七字母民认不认这个说法了
+
+*****
+
+####  holoan  
+##### 1537#         楼主| 发表于 2022-9-14 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">表面是这么说的实际怎么样都懂
+

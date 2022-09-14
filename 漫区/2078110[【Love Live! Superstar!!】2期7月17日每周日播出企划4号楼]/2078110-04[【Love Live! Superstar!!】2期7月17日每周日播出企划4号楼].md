@@ -491,3 +491,24 @@ nagi
 既然定位是歌手，拿tie up也是业务（11月3单），我更希望看到在solo歌唱事业上多活动活动，反而Cosplay对 ...</blockquote>
 资源本来就不多，热门的人家自己都有资源，现在更多也是吃星团的本。接cos主要是来钱多，而且能接触多些资本，要是资源多点那不做cos也可以。
 
+
+
+*****
+
+####  cat1230  
+##### 4549#       发表于 2022-9-14 14:03
+
+动画歌手没好动画资源没有用啊，10月这动画目前看着pv和制作组感觉也不是会火的，恋上换装娃娃这种黑马级别直接把歌手捧红的这些年太少了。
+确实多搞点手游配音不错，锻炼能力还能拓展人脉。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Enakina  
+##### 4550#       发表于 2022-9-14 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478978&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-14 11:08</a>
+作为amuse子公司，有时候觉得ab比amuse资源还多………………</blockquote>
+可能ab人少的原因，而且明显钱都花在刀刃上了，ab别的人明显拿到的资源没小百合和青山多
+

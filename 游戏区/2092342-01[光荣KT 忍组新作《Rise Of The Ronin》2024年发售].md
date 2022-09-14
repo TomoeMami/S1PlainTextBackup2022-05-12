@@ -1271,3 +1271,12 @@ woc 忍龙，我信了
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  415452356  
+##### 144#       发表于 2022-9-14 14:05
+
+  doa6一崩到底制作人也走了，算是已经入土了
+
