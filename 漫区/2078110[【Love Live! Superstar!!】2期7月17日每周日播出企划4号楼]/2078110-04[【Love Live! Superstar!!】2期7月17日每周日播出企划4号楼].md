@@ -352,3 +352,56 @@ nagi
 
 能配不用回国啊，在那边录个音就行的事
 
+
+
+*****
+
+####  仟音一心  
+##### 4536#       发表于 2022-9-14 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478075&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-14 10:19</a>
+
+主要星的CV表现落差挺大的，作为素人有小百合这种惊喜的，有鲤鱼这种超出预期的，有青山这种棒读的，还有 ...</blockquote>
+音监的指导是有限的，铃原和彩妹明显都有角色音的要求，和本人说话差距很大，尤其是彩妹硬要说这个日本人都听不太懂的方言，这个真的只能硬上了。
+
+*****
+
+####  lj205  
+##### 4537#       发表于 2022-9-14 11:05
+
+海选三人资源真好，hori pro什么时候给鱼安排一下其他业务？cos挂了这么久都没商单，我反正是不信什么业务冲突的，看看Nagi现在都配新动画了
+
+*****
+
+####  Kfly  
+##### 4538#       发表于 2022-9-14 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478647&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-14 10:48</a>
+
+聊到学生会这破剧情，属实难绷
+
+上一集香音还说要帮恋的忙于是加入学生会来着，这一集直接默认接受了 ...</blockquote>
+我觉得微妙的点是 堇说“学生会长离我更遥远了”可可回了一句“你还没放弃啊”
+
+本来这句没什么的，但接后面“学生会副会长，涉谷香音”的时候，可可和小千一脸雀跃的表情………
+
+就，有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4539#       发表于 2022-9-14 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478647&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-14 10:48</a>
+聊到学生会这破剧情，属实难绷
+
+上一集香音还说要帮恋的忙于是加入学生会来着，这一集直接默认接受了 ...</blockquote>
+毕竟apb 
+
+*****
+
+####  cybernetics31  
+##### 4540#       发表于 2022-9-14 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为amuse子公司，有时候觉得ab比amuse资源还多………………
+
