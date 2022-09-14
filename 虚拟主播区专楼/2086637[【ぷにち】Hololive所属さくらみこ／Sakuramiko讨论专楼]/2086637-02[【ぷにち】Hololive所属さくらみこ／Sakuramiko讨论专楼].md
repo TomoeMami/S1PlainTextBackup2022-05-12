@@ -711,3 +711,12 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 这个世界的八字母画师又少了一个
 
+
+
+*****
+
+####  rs5621  
+##### 1565#       发表于 2022-9-14 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌，这个c100还在开的时候就说过了，是c100七字母合集的商稿吧
+
