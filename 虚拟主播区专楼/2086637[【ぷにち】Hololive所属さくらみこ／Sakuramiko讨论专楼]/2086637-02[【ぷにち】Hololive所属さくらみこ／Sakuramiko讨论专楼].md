@@ -468,3 +468,26 @@ miko一直强调商业贴贴这个限制狂热粉的阀门，不让连体人过�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  holoan  
+##### 1543#         楼主| 发表于 2022-9-14 15:02
+
+先问miko什么时候把第二首七字母cover曲吐出来
+
+*****
+
+####  holoan  
+##### 1544#         楼主| 发表于 2022-9-14 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481773&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-9-14 14:29</a>
+
+七字母民只敢在小号发癫，画图也不爱打tag，卑微的连体人</blockquote>
+结果每次不打tag的七字母连体图被miko直接RT
+
+反观打了tag的八字母图甚至连点赞都不配
+
+这不是完全胜利吗
+
