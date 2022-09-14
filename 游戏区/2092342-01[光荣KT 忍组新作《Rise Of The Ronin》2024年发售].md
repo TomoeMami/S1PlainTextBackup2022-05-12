@@ -1256,3 +1256,18 @@ woc 忍龙，我信了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cauchua  
+##### 143#       发表于 2022-9-14 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479754&amp;ptid=2092342" target="_blank">TTAA 发表于 2022-9-14 12:00</a>
+真是撂狠话了要么成要么死
+
+这个唯恐避之不及我只能想到明治时期的对外侵略了，这点也是很多日本 ...</blockquote>
+你想多了，多半是明治维新的长萨史观的解构，幕府也是忠君爱国的套路
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
