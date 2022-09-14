@@ -531,3 +531,22 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转
 
 这算是清洗成功了？
 
+
+
+*****
+
+####  rs5621  
+##### 1549#       发表于 2022-9-14 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57482719&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-9-14 15:39</a>
+
+RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</blockquote>
+画师圈本来就是个小圈子，几个经常画miko二创的画师都差不多互相关注和转推的，她也关注进去了，会转给她那些不带tag的二创也不稀奇。
+
+*****
+
+####  tesparu  
+##### 1550#       发表于 2022-9-14 15:56
+
+七字母民以为自己藏的很好，其实全都被看光光了
+
