@@ -16622,3 +16622,27 @@ emorin:有人要逃跑了。
 
 动画早烂了，希望可可回不要太拉也是出于对鲤鱼的感情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等live见真章，动画就是走走形式
 
+
+
+*****
+
+####  仟音一心  
+##### 4500#       发表于 2022-9-14 09:01
+
+万代南梦宫SF新作「SYNDUALITY」动画化 &amp; 游戏化
+
+人物原案：neco
+
+机设：形部一平
+<img src="https://p.sda1.dev/7/39d68e56942ea090907f272573234b45/20220914_064400.jpg" referrerpolicy="no-referrer">
+
+动画CAST
+
+古贺葵
+
+青山渚
+
+M·A·O
+
+真的是“叶月恋 出击”了
+
