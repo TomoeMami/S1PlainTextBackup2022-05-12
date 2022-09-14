@@ -166,3 +166,45 @@ nagi
 比如说，香樱也不该加入学生会不是，恋能力那么强 
  就是为了支配学生会，那本来也只有恋一个人啊，这支配力还不够吗 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4517#       发表于 2022-9-14 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">holy peak给点作用啊，nako还是要走cv路线的啊
+
+*****
+
+####  仟音一心  
+##### 4518#       发表于 2022-9-14 09:43
+
+ 本帖最后由 仟音一心 于 2022-9-14 09:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477408&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-14 09:38</a>
+
+其实也才俩首而已，跨度都俩年的事了</blockquote>
+
+今年十月又有一首，《夫妇以上，恋人未满》的OP《TRUE FOOL LOVE》
+
+*****
+
+####  aoaoaodedede  
+##### 4519#       发表于 2022-9-14 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477410&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-14 09:38</a>
+
+我感觉horipro在声优方面资源不太丰富的样子，旗下还有职业声优要养，除非指定，不然我觉得鲤鱼的顺位不高 ...</blockquote>
+茅原也是中途进HoriPro International的，要说比较“原生”的应该是Horipro曾经搞得“次世代声优”试镜出来的那几个人，像Hego，马池口，木戸衣吹等等
+
+*****
+
+####  cybernetics31  
+##### 4520#       发表于 2022-9-14 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57476974&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-14 09:09</a>
+微博上刷到刚想发过来
+
+青山姐接活好耶，这下让我们看看到底是本人太棒读还是LLSS的音监垃圾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星虹的音监都是同一个人，所以。。。。。考虑鱼的表现，我是觉得音监没啥锅。
+

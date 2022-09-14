@@ -657,3 +657,61 @@ http://t.cn/A6SnKEgD
 
 这么多线操作，有点担心卧龙的质量了，不会卧龙只是个试水小品作，这个才是真正的500W新IP吧？
 
+
+
+*****
+
+####  415452356  
+##### 75#       发表于 2022-9-14 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477446&amp;ptid=2092342" target="_blank">Yui_hirasawa 发表于 2022-9-14 09:40</a>
+
+这么多线操作，有点担心卧龙的质量了，不会卧龙只是个试水小品作，这个才是真正的500W新IP吧？ ...</blockquote>
+  卧龙最早的采访，安田就说自己在带一个“不认真做会很不妙的项目”，卧龙是上了双监督，都是设计仁王战斗系统的优秀新人，所以质量肯定不用担心，你不如担心安田会不会把这个做砸
+
+*****
+
+####  popchong  
+##### 76#       发表于 2022-9-14 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477446&amp;ptid=2092342" target="_blank">Yui_hirasawa 发表于 2022-9-14 09:40</a>
+
+这么多线操作，有点担心卧龙的质量了，不会卧龙只是个试水小品作，这个才是真正的500W新IP吧？ ...</blockquote>
+您好，是的，卧龙应该是针对高低差大关卡的一次技术练兵，开花结果就是开放世界。
+
+但如果卧龙销量给力，2代还是有希望成为大的
+
+*****
+
+####  TheOccuria  
+##### 77#       发表于 2022-9-14 09:46
+
+这就是那个500w？
+
+话说忍者组人手真多，这个看起来有点开放世界德味道，应该开发好多年了，中间还能做仁王ffo卧龙
+
+*****
+
+####  uponutopia  
+##### 78#       发表于 2022-9-14 09:46
+
+安田之前采访不是说的很明白么，卧龙给小小小弟练手的，这个自己披挂上阵总导演的，“做不好会十分不妙”的项目，这阵仗看来确实拉胯了会十分不妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漫漫来  
+##### 79#       发表于 2022-9-14 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57477446&amp;ptid=2092342" target="_blank">Yui_hirasawa 发表于 2022-9-14 09:40</a>
+这么多线操作，有点担心卧龙的质量了，不会卧龙只是个试水小品作，这个才是真正的500W新IP吧？ ...</blockquote>
+卧龙首发xgp，看起来kt就没那么重视这个项目，但说是试水作业不至于
+
+*****
+
+####  ranapocket  
+##### 80#       发表于 2022-9-14 09:51
+
+忍者组好忙啊
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
