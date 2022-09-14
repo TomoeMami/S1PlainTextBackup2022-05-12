@@ -11902,3 +11902,22 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 
 剧情上说是男的，但是总觉得欧派有点明显啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白金口袋  
+##### 2568#       发表于 2022-9-14 22:44
+
+咕哒咕哒终于连前景提要都懒得编了吗，我一进去还以为少看一段剧情，直接就进特异点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2569#       发表于 2022-9-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57488325&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-14 22:34</a>
+
+剧情上说是男的，但是总觉得欧派有点明显啊</blockquote>
+那不是他那长手套吗。。
+

@@ -559,3 +559,21 @@ nagi
 这个机设我第一眼完全没看出来是形部一平做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 虽然他的一些固有要素（折角刻线和铆钉细节）依然健在
 
+
+
+*****
+
+####  仟音一心  
+##### 4555#       发表于 2022-9-14 22:48
+
+这边也发一下吧，声优パラダイスR50期
+
+<img src="https://img.saraba1st.com/forum/202209/14/224802eygu6ugglg00dmko.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A746A056-101D-42BE-B394-3B62931059B4.jpeg</strong> (171.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-14 22:48 上传
+
