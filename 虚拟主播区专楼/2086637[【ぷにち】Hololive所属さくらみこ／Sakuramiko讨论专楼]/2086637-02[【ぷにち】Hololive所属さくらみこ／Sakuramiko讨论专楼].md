@@ -420,3 +420,21 @@ miko一直强调商业贴贴这个限制狂热粉的阀门，不让连体人过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">表面是这么说的实际怎么样都懂
 
+
+
+*****
+
+####  rs5621  
+##### 1538#       发表于 2022-9-14 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都心照不宣罢了
+
+*****
+
+####  holoan  
+##### 1539#         楼主| 发表于 2022-9-14 14:12
+
+当然再怎那么说现在还有一条她们自己定的线没有破就是线下联动直播
+
+虽然星街家都私下去过好几次了说这个也没什么特别的意义，说不定什么时候这条也破了
+
