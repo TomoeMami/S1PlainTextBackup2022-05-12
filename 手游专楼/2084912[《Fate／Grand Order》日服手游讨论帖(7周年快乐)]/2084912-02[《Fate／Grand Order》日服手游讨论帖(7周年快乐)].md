@@ -11308,3 +11308,70 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 完全没理由但是我就是这么感觉的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2518#       发表于 2022-9-14 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485436&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 18:49</a>
+
+看解包强度？
+
+感觉如果千利休拉了就很可能有二池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能就算有2池也跟强度没关系
+
+*****
+
+####  exiaexa  
+##### 2519#       发表于 2022-9-14 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485455&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-14 18:50</a>
+
+有没有可能就算有2池也跟强度没关系</blockquote>
+我不知道啊
+
+就是突然有种奇妙的感觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 2520#       发表于 2022-9-14 18:54
+
+都明说这次就2个了，别2池了，官方去年也受够教训了
+
+
+
+*****
+
+####  gpx234mqx  
+##### 2521#       发表于 2022-9-14 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485196&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 18:29</a>
+
+上个活动打完了一般都会觉得是弟弟吧</blockquote>
+没有的事
+
+上次就是壹与叫来卑呼弥的
+
+*****
+
+####  風卷豹  
+##### 2522#       发表于 2022-9-14 18:58
+
+没2池没意思，肯定又是一堆卫星上天。只能期待女老头别像去年阿国一样被两男人抢走几乎所有关注
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  gpx234mqx  
+##### 2523#       发表于 2022-9-14 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485323&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 18:39</a>
+
+茶道大师千利休？！！还是娘化...不知道会不会又是亲戚上身...</blockquote>
+千利休这老和尚没女儿吧
+
