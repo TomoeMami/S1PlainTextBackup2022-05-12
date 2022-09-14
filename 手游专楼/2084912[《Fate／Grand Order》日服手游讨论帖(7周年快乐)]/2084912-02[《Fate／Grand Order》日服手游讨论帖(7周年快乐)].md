@@ -11921,3 +11921,34 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 剧情上说是男的，但是总觉得欧派有点明显啊</blockquote>
 那不是他那长手套吗。。
 
+
+
+*****
+
+####  alucardcz  
+##### 2570#       发表于 2022-9-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486552&amp;ptid=2084912" target="_blank">DLSDFY 发表于 2022-9-14 20:17</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/14/225038ysqz5pm70s0b1usz.png" referrerpolicy="no-referrer">
+
+<strong>3333.png</strong> (47.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 22:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么理解如何
+
+*****
+
+####  khxooo  
+##### 2571#       发表于 2022-9-14 22:51
+
+ 本帖最后由 khxooo 于 2022-9-14 22:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57488456&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-14 22:45</a>
+
+那不是他那长手套吗。。</blockquote>衣服上面有点类似肉体的描边，如果真是这样，那么也可以说是欧派的描边啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过男的不抽就是了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
