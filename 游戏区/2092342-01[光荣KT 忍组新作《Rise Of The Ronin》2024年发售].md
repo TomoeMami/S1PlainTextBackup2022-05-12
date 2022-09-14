@@ -1531,3 +1531,14 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 不应该是冈本喜八吗？</blockquote>
 你可以看看这游戏出来以后多少人会起什么人斩、拔刀斋、冲田总司、新八几之类的ID
 
+
+
+*****
+
+####  Dasboat  
+##### 170#       发表于 2022-9-14 20:35
+
+画面看上去好烂，预告片透露的元素各种缝合<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉会翻车啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
