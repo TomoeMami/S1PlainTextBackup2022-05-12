@@ -11778,3 +11778,66 @@ rba当打手自己也寄啊，就强一点那不就是两个一起寄了
 
 剧情里三成出来了，这真不落地？不愧是卫星发射中心
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2558#       发表于 2022-9-14 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486402&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-14 20:07</a>
+
+这个新狂是不是rba的梦中情打手？</blockquote>
+单纯图宝具连发的话肯定是RBA的65绿魔放给力，就是不清楚NP回收如何，被动倒是加了10绿卡NP率...
+
+但要是阴间本需要暴击的话，三绿的配卡还是得请出CBA。RBA适合的是绿宝具和红暴击，CBA则是正统一色青...
+
+*****
+
+####  Jamaisvu  
+##### 2559#       发表于 2022-9-14 20:12
+
+ 本帖最后由 Jamaisvu 于 2022-9-14 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486424&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-14 20:08</a>
+
+剧情里三成出来了，这真不落地？不愧是卫星发射中心</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/14/201158fejrw06vrj6cw06j.png" referrerpolicy="no-referrer">
+
+<strong>1663157502590.png</strong> (91.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202209/14/201159zqeabkzqjbx6o5dy.png" referrerpolicy="no-referrer">
+
+<strong>1663157505062.png</strong> (89.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 20:11 上传
+
+有眼镜简易灵衣，还是pako画的，落地可能性up！
+
+*****
+
+####  DLSDFY  
+##### 2560#       发表于 2022-9-14 20:17
+
+<img src="https://img.saraba1st.com/forum/202209/14/201718ezvv1ftkgutrvtpt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220914201653.jpg</strong> (223.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202209/14/201723mzx4avba4rvmaza4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220914201702.png</strong> (14.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 20:17 上传
+
