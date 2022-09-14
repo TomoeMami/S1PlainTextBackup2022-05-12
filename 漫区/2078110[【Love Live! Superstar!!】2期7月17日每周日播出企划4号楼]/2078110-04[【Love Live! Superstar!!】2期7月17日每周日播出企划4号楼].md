@@ -548,3 +548,14 @@ nagi
 
 一个两个过生日都有偶像祝贺是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 4554#       发表于 2022-9-14 21:49
+
+这个企划给我最深刻的感觉
+这个机设我第一眼完全没看出来是形部一平做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然他的一些固有要素（折角刻线和铆钉细节）依然健在
+

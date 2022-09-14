@@ -1554,3 +1554,12 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 另外s1果然隔版如隔山，看到这个不该想到浪客剑心来了吗？新撰组？万事屋？ ...</blockquote>
 “s1果然隔版如隔山”，你好歹了解一下光荣在游戏区的定位，就不会说这些蠢话。 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  刘震云  
+##### 172#       发表于 2022-9-14 21:49
+
+可以可以，看起来不错，我PS5终于有留下来的理由哩
+
