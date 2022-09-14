@@ -11071,3 +11071,54 @@ CCC和大奥怎么比....CCC基本就是个活动简化版没几关就打完了.
 
 11月2.6回顾应该有奥伯龙吧，不知道能攒多少抽
 
+
+
+*****
+
+####  exiaexa  
+##### 2495#       发表于 2022-9-14 18:24
+
+NMD乌龟怎么变成萌妹子了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2496#       发表于 2022-9-14 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485153&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 18:24</a>
+
+NMD乌龟怎么变成萌妹子了</blockquote>
+引自百度百科：卑弥呼死后（约248年），又立男王，但因国中不服而复立卑弥呼之女台与为王，内乱始定。
+
+<img src="https://img.saraba1st.com/forum/202209/14/182608o69duc6icwhhiuui.png" referrerpolicy="no-referrer">
+
+<strong>1663151147047.png</strong> (246.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:26 上传
+
+这个角色好像历史上就是女的吧...
+
+*****
+
+####  白金口袋  
+##### 2497#       发表于 2022-9-14 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485172&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 18:26</a>
+
+引自百度百科：卑弥呼死后（约248年），又立男王，但因国中不服而复立卑弥呼之女台与为王，内乱始定。</blockquote>
+上次活动就声出演了啊，说自己也想见见未来君结果卑弥呼直接撂挑子跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 2498#       发表于 2022-9-14 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485172&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 18:26</a>
+
+引自百度百科：卑弥呼死后（约248年），又立男王，但因国中不服而复立卑弥呼之女台与为王，内乱始定。</blockquote>
+上个活动打完了一般都会觉得是弟弟吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
