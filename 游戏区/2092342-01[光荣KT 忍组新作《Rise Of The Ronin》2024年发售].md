@@ -525,3 +525,12 @@ ps4和xboxs呢</blockquote>
 
 确实是那个500万
 
+
+
+*****
+
+####  hosino  
+##### 63#       发表于 2022-9-14 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">steam同步吗，不想买ps5
+
