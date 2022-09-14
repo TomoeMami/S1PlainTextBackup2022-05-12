@@ -11850,3 +11850,14 @@ rba当打手自己也寄啊，就强一点那不就是两个一起寄了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才打第2个本就掉礼装了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2562#       发表于 2022-9-14 21:52
+
+又是fgo经典的鬼神附身艺术家嘛
+
+syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起），受一些大河剧切片的影响，对他的映像还是成男
+
