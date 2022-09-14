@@ -11893,3 +11893,12 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">于是战国系卫星已经有了柴田，光秀，三成，怕不是明年咕哒咕哒再来个秀吉一起落地
 
+
+
+*****
+
+####  khxooo  
+##### 2567#       发表于 2022-9-14 22:34
+
+剧情上说是男的，但是总觉得欧派有点明显啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

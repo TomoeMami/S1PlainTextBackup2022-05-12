@@ -812,3 +812,12 @@ wwe的BGM就直接用上了？
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1574#         楼主| 发表于 2022-9-14 22:30
+
+那个BGM是有人特地做给miko的本来也不是wwe的游戏内BGM
+
