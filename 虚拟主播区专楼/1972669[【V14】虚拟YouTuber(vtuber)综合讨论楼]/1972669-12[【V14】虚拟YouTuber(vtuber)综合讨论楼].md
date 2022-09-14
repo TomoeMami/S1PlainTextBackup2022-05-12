@@ -9278,3 +9278,12 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 
 这个月虹感觉没啥活了，全在准备fes感觉大部分人直播频率都降下来了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17346#       发表于 2022-9-14 21:20
+
+你虹4到7月一个季度就赚了14亿啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
