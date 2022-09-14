@@ -11122,3 +11122,115 @@ NMD乌龟怎么变成萌妹子了</blockquote>
 上个活动打完了一般都会觉得是弟弟吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2499#       发表于 2022-9-14 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485196&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-14 18:29</a>
+
+上个活动打完了一般都会觉得是弟弟吧</blockquote>
+剧情忘的差不多了...我还以为她弟弟是那个无名之龟呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2500#       发表于 2022-9-14 18:33
+
+没新5？
+
+*****
+
+####  白金口袋  
+##### 2501#       发表于 2022-9-14 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485226&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 18:31</a>
+
+剧情忘的差不多了...我还以为她弟弟是那个无名之龟呢</blockquote>
+你没记错，弟弟（乌龟）灵基并入信胜才让他能落地的
+
+二代目是最后的迷之空间里跟卑弥呼说相声的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 2502#       发表于 2022-9-14 18:36
+
+壹与送的？太好了能省钱了，估计池子里的是男人吧233
+
+*****
+
+####  Jamaisvu  
+##### 2503#       发表于 2022-9-14 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485258&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-14 18:34</a>
+
+你没记错，弟弟（乌龟）灵基并入信胜才让他能落地的
+
+二代目是最后的迷之空间里跟卑弥呼说相声的 ...</blockquote>
+哦哦，谢谢，查了一下，上次活动终章开头两个光球在里面交cha接ke使da命hun的时候壹与出场了...
+
+没想到直接变成赠送四星ruler了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2504#       发表于 2022-9-14 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星山南
+
+*****
+
+####  Jamaisvu  
+##### 2505#       发表于 2022-9-14 18:37
+
+ 本帖最后由 Jamaisvu 于 2022-9-14 18:39 编辑 
+
+山南敬助也是四星，新画了立绘，不知道新选组制服那张有没有重画呢...
+
+<img src="https://img.saraba1st.com/forum/202209/14/183808gfhz0wp9tf4t09ew.png" referrerpolicy="no-referrer">
+
+<strong>1663151880622.png</strong> (195.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:38 上传
+
+五星应该是石田三成了吧。
+
+（靠，秒打脸<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  alucardcz  
+##### 2506#       发表于 2022-9-14 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是。。千利休。。。。。。不过（
+
+*****
+
+####  exiaexa  
+##### 2507#       发表于 2022-9-14 18:39
+
+省！钱！了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2508#       发表于 2022-9-14 18:39
+
+茶道大师千利休？！！还是娘化...不知道会不会又是亲戚上身...
+
+*****
+
+####  芭德薇  
+##### 2509#       发表于 2022-9-14 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57454607&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-12 19:44</a>
+
+好，只性转，给你个老太</blockquote>
+你们都把废狗的套路摸透了啊……
+
