@@ -11981,3 +11981,15 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 
 迪瓦尔坐牢了继续<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2575#       发表于 2022-9-15 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486061&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-14 19:37</a>
+
+这千利休吓死人了好吗</blockquote>
+看了看睁眼那张图，感觉有点可爱？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
