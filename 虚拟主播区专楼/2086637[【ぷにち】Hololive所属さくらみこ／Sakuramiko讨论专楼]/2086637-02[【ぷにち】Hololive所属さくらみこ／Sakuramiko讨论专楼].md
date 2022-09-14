@@ -748,3 +748,20 @@ RT没打tag的图，作者都在小号吐槽了，这家伙有图她是真转</b
 
 昏睡了5天了
 
+
+
+*****
+
+####  rs5621  
+##### 1568#       发表于 2022-9-14 20:21
+
+ 本帖最后由 rs5621 于 2022-9-14 20:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rust服wwe
+
+裸体石头对决一期生
+
+skmt   菈米  nene
+
+nene胜出，一石头一个holomen
+
