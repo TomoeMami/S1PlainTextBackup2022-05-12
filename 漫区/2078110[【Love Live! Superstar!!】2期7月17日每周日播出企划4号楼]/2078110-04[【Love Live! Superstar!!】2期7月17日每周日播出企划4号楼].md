@@ -479,3 +479,15 @@ nagi
 海选三人资源真好，hori pro什么时候给鱼安排一下其他业务？cos挂了这么久都没商单，我反正是不信什么业务 ...</blockquote>
 既然定位是歌手，拿tie up也是业务（11月3单），我更希望看到在solo歌唱事业上多活动活动，反而Cosplay对我来说是可有可无
 
+
+
+*****
+
+####  lj205  
+##### 4548#       发表于 2022-9-14 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57481178&amp;ptid=2078110" target="_blank">chichengjerry 发表于 2022-9-14 13:39</a>
+
+既然定位是歌手，拿tie up也是业务（11月3单），我更希望看到在solo歌唱事业上多活动活动，反而Cosplay对 ...</blockquote>
+资源本来就不多，热门的人家自己都有资源，现在更多也是吃星团的本。接cos主要是来钱多，而且能接触多些资本，要是资源多点那不做cos也可以。
+
