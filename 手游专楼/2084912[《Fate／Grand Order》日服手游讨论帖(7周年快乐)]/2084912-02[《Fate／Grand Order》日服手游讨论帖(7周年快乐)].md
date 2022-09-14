@@ -11644,3 +11644,72 @@ rba当打手自己也寄啊，就强一点那不就是两个一起寄了
 
 勉强能冲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2547#       发表于 2022-9-14 19:41
+
+千利休后两张卡面锁剧情了，不过风格还是挺带感的，民俗怪谈瓷娃娃...
+
+<img src="https://img.saraba1st.com/forum/202209/14/193805u1uvclc8e366nl1j.jpg" referrerpolicy="no-referrer">
+
+<strong>5dbfe49d6f706ae49d7a232b436dd77d686bbaad_raw.jpg</strong> (70.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 19:38 上传
+
+<img src="https://img.saraba1st.com/forum/202209/14/193805o82t1gptn8n9f3ff.jpg" referrerpolicy="no-referrer">
+
+<strong>4c7c301469f655831e98f1ab8ca96103bf7641aa_raw.jpg</strong> (96.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 19:38 上传
+
+（气质有点像阎魔爱？不过不是红瞳，声优也不是能登...）
+
+*****
+
+####  黑上シグマ  
+##### 2548#       发表于 2022-9-14 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486083&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-9-14 19:39</a>
+
+睁大眼睛那个表情差分看过了
+
+勉强能冲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你不对劲
+
+*****
+
+####  里村紅葉  
+##### 2549#       发表于 2022-9-14 19:46
+
+这老太语音是按女鬼的感觉配的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2550#       发表于 2022-9-14 19:46
+
+哦哦，小泽亚李登月了啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">不知道月刊少女野崎君第二季还有没有...
+
+我还以为她会以玛丽安宁（长绳麻理亚）的狗的形态出击呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 2551#       发表于 2022-9-14 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486144&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-9-14 19:46</a>
+
+这老太语音是按女鬼的感觉配的吗</blockquote>
+声音园崎未惠还真在OVA动画学校怪谈里配过裂口女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我不太熟她，就去搜了下，结果发现她配过猎天使魔女的贞德、街霸4的红毒蛇，还有魔兵传奇的奇美拉<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">熟悉的陌生人啊
+
