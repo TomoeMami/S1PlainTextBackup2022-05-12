@@ -9269,3 +9269,12 @@ vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face
 syl こはく居然就能和oreapo联动了，明明今年五月前还是个不知名个人势猎杀， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秋雪小姐是dtto老姬友了，靠她的关系和selen很早就搭上线了
 
+
+
+*****
+
+####  Suny08  
+##### 17345#       发表于 2022-9-14 13:03
+
+这个月虹感觉没啥活了，全在准备fes感觉大部分人直播频率都降下来了
+
