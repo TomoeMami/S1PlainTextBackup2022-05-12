@@ -831,3 +831,28 @@ http://t.cn/A6SnKEgD
 steam同步吗，不想买ps5</blockquote>
 参考死亡搁浅，大概率独占半年
 
+
+
+*****
+
+####  量产失败型  
+##### 95#       发表于 2022-9-14 10:53
+
+幕末大表哥?听着很诱人但日厂的开发能力做开放世界...<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 96#       发表于 2022-9-14 10:53
+
+咋感觉画面有点糊
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  normalli  
+##### 97#       发表于 2022-9-14 10:57
+
+会和仁王一个世界观么，能捏幕末第一美少女么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
