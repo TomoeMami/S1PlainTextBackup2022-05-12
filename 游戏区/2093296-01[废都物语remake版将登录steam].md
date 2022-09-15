@@ -1778,3 +1778,31 @@ woc 起立！
 
 天角啊，怕不是打入内部的同志
 
+
+
+*****
+
+####  asd235614  
+##### 209#       发表于 2022-9-15 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">卧槽这真的是有生之年了，不知道能不能联系到卷公用上原汉化
+
+*****
+
+####  暗之谋者  
+##### 210#       发表于 2022-9-15 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57496676&amp;ptid=2093296" target="_blank">asd235614 发表于 2022-9-15 14:43</a>
+
+卧槽这真的是有生之年了，不知道能不能联系到卷公用上原汉化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">确实有生之年，人活着就会发生好事啊！
+
+
+
+*****
+
+####  yunxyz  
+##### 211#       发表于 2022-9-15 14:50
+
+对了，高清生而不为人吗？
+
