@@ -12113,3 +12113,17 @@ wrba单红就判死刑了，至少俩ba混吧
 
 应该是缝合了其他存在吧，背后还有个奇怪的雕像，也许融合了什么本土神？
 
+
+
+*****
+
+####  longrider  
+##### 2586#       发表于 2022-9-15 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57495295&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-15 12:48</a>
+
+千利休三破好像被解包出来了，抱着个琵琶，上面的双雀家纹有点像上杉家的？</blockquote>
+琵琶上还有伊达、细川、上杉跟今川（？疑似）的家纹
+
+不是又把利休七哲跟他的那堆大名徒弟缝合进来了吧
+

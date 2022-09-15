@@ -1831,3 +1831,17 @@ woc 起立！
 
 活久见啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chaucerling  
+##### 215#       发表于 2022-9-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57495681&amp;ptid=2093296" target="_blank">xwr 发表于 2022-9-15 13:21</a>
+
+按电击的报道来说，会场放了PV，不过现在流媒体上还没有。急
+
+话说原作者后来不是没消息了么？真就找 ...</blockquote>
+18年出版的小说就是角川发行的，虽然游戏是免费的，但着作权还是在枯草那里，应该是当时联系到了原作者要到了授权
+
