@@ -2269,3 +2269,35 @@ Ruina 廃都の物语 2：[https://www.amazon.co.jp/-/zh/dp/B07M87WFHS](https://
 
 感觉自己圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 258#       发表于 2022-9-15 21:39
+
+听说他最后一贴是DIO吃切糕的屌图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fkinway  
+##### 259#       发表于 2022-9-15 22:06
+
+大的真的来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+真是粉丝行为的话估计套用汉化组的汉化，不会出来些低水准的汉化了
+废都物语能补的剧情好多啊，大河物语的部分不说骑士线能翻倍了
+
+*****
+
+####  hentianwuya  
+##### 260#       发表于 2022-9-15 22:13
+
+好顶赞！能用上这种用爱发电的汉化是最好的，退而求其次是实在不行再考虑商业汉化~
+
+*****
+
+####  hentianwuya  
+##### 261#       发表于 2022-9-15 22:13
+
+好顶赞！能用上这种用爱发电的汉化是最好的，退而求其次是实在不行再考虑商业汉化~
+

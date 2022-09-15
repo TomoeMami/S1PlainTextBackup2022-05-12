@@ -12179,3 +12179,92 @@ wrba单红就判死刑了，至少俩ba混吧
 咕哒咕哒进入商战篇了吗</blockquote>
 信长现在政治数值都给满了，区区石田<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 2592#       发表于 2022-9-15 21:32
+
+这个活动1宝水伊吹明显不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2593#       发表于 2022-9-15 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我用黑杯强行冲 毕竟仇凛羁绊已经满了
+
+*****
+
+####  alucardcz  
+##### 2594#       发表于 2022-9-15 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57502709&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-9-15 21:32</a>
+
+这个活动1宝水伊吹明显不行了不得已掏出2宝村正凑合</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 狂本不可能充的动先不说  其他的也不行？
+
+*****
+
+####  rooarr  
+##### 2595#       发表于 2022-9-15 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57502975&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-15 21:48</a>
+狂本不可能充的动先不说  其他的也不行？</blockquote>
+3面伤害不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2596#       发表于 2022-9-15 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503208&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-9-15 22:04</a>
+
+3面伤害不够只能打11万</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100+2000请
+
+*****
+
+####  rooarr  
+##### 2597#       发表于 2022-9-15 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503246&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-15 22:06</a>
+100+2000请</blockquote>
+不值得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2598#       发表于 2022-9-15 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503271&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-9-15 22:07</a>
+
+不值得老老实实打克制，又不是没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掏出你的水武藏啊 不是乱冲的
+
+*****
+
+####  rooarr  
+##### 2599#       发表于 2022-9-15 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503310&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-15 22:09</a>
+掏出你的水武藏啊 不是乱冲的</blockquote>
+刷一次看到np明显溢出我才会用水武藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 2600#       发表于 2022-9-15 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">壹与这杂鱼吃瘪自曝人设，爱了爱了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kiralzb  
+##### 2601#       发表于 2022-9-15 22:18
+
+抽了3十连刚好没石头居然出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
