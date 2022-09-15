@@ -2434,3 +2434,59 @@ DB59274E-6C0E-44D4-A895-26122C1F02AD.jpeg
 
 啊~那种从岁月时光中探寻到真迹的感觉
 
+
+
+*****
+
+####  liekongzero  
+##### 273#       发表于 2022-9-15 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499649&amp;ptid=2093296" target="_blank">turtlejk 发表于 2022-9-15 18:11</a>
+
+这帖前面我说了发售抽十份2333
+
+还在疯狂联系卷公中
+
+虽然没啥希望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">既然卷公不愿意再冒头，我觉得你的润色建议可以直接发官方（
+
+*****
+
+####  turtlejk  
+##### 274#       发表于 2022-9-15 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57504403&amp;ptid=2093296" target="_blank">liekongzero 发表于 2022-9-15 23:23</a>
+
+既然卷公不愿意再冒头，我觉得你的润色建议可以直接发官方（</blockquote>
+让天角自己润吧2333 反正看起来他们还是很负责的
+
+他们本身就要根据卷公文本重新修订的 不可能直接照搬
+
+毕竟原作者修改了世界观设定和一些背景的细节 文案很多都要跟着改动的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| liekongzero| + 1||
+
+查看全部评分
+
+*****
+
+####  liekongzero  
+##### 275#       发表于 2022-9-15 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57504462&amp;ptid=2093296" target="_blank">turtlejk 发表于 2022-9-15 23:30</a>
+
+让天角自己润吧2333 反正看起来他们还是很负责的
+
+他们本身就要根据卷公文本重新修订的 不可能直接照搬
+
+毕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">辛苦了，也算功成身退了
+
