@@ -2865,3 +2865,29 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 一边踩sd一边说我们支持steamos，然后又说是由valve 进行适配，看下来感觉 val ...</blockquote>
 国内小作坊都是捣鼓硬件然后靠爱好者做软件，除了AYA有自己弄前端，但受限于win体验还是差太远了
 
+
+
+*****
+
+####  满满一大杯  
+##### 232#       发表于 2022-9-15 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57494574&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-15 11:55</a>
+
+补个官宣链接：https://mp.weixin.qq.com/s/EHdebRucQjkNhR11C9xAvg
+
+其实我还挺喜欢现在 Windows 掌机外 ...</blockquote>
+真应该是真的，根据阀门的小册子上写的情况：
+
+<img src="https://img.saraba1st.com/forum/202209/15/152309lsqokdz2csljecz2.jpg" referrerpolicy="no-referrer">
+
+<strong>InkedSumatraPDF_aUGuSHURvu.jpg</strong> (137.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 15:23 上传
+
+但这个"Valve 公司提供系统适配"怕不是坐等阀门推出通用PC安装器（
+
+至于“另外，我们即将向其它希望打造自己游戏装置的製造商开放 SteamOS。”说的到底是阀门干活帮他们适配，还是阀门允许他们在其售卖的商品上使用SteamOS，就不得而知了。
+
