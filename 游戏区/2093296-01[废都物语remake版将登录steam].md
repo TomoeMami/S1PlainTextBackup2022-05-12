@@ -2185,3 +2185,40 @@ S1人才辈出啊，怎么都在这个小地方<img src="https://static.saraba1s
 
 天啊居然有小说,小说哪里找啊
 
+
+
+*****
+
+####  Tring  
+##### 251#       发表于 2022-9-15 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499628&amp;ptid=2093296" target="_blank">电磁炮233 发表于 2022-9-15 18:09</a>
+
+S1人才辈出啊，怎么都在这个小地方
+
+—— 来自 S1Fun</blockquote>
+活过20年的游戏论坛，也没剩几个了。
+
+*****
+
+####  BT有理  
+##### 252#       发表于 2022-9-15 19:57
+
+天闻角川开发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满满一大杯  
+##### 253#       发表于 2022-9-15 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57500794&amp;ptid=2093296" target="_blank">十个印地男孩 发表于 2022-9-15 19:51</a>
+
+天啊居然有小说,小说哪里找啊</blockquote>
+正经购买的话，有日亚kindle，2卷腰斩：
+
+Ruina 廃都の物语 1：[https://www.amazon.co.jp/-/zh/dp/B07B3V5KFX](https://www.amazon.co.jp/-/zh/dp/B07B3V5KFX)
+
+Ruina 廃都の物语 2：[https://www.amazon.co.jp/-/zh/dp/B07M87WFHS](https://www.amazon.co.jp/-/zh/dp/B07M87WFHS)
+
+不正经的话，贴吧有汉化，具体见贴吧置顶帖：[https://tieba.baidu.com/p/7846467097](https://tieba.baidu.com/p/7846467097)
+
