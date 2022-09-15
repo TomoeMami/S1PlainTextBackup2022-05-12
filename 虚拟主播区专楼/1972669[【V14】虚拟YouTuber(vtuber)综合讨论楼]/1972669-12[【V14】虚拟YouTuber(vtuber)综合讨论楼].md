@@ -9411,3 +9411,15 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 四轮草复活！？
 今年是哪年？<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17358#       发表于 2022-9-15 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499920&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2022-9-15 18:30</a>
+
+二哥2w7在出榜边缘，大概就六万基本盘，不过盒皇还没卖呢，潜在市场很大 ...</blockquote>
+我好酸啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二哥都2w7了
+
