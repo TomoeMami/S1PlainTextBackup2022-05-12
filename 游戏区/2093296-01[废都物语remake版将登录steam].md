@@ -952,3 +952,67 @@ UI优化
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
+
+
+*****
+
+####  病少爷  
+##### 116#       发表于 2022-9-15 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这两天仿佛过年
+
+*****
+
+####  chaucerling  
+##### 117#       发表于 2022-9-15 11:04
+
+wc，不知道能不能保持原汁原味的体验
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 118#       发表于 2022-9-15 11:05
+
+感觉联系上作者的难度比重制的难度还大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bighand3714  
+##### 119#       发表于 2022-9-15 11:09
+
+可别是个隐形守护者，音乐行不行，文本行不行，画面意境行不行，会不会瞎加东西，感觉都是坑啊，担心极了<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  re73589  
+##### 120#       发表于 2022-9-15 11:10
+
+我能想到的加料方法只有多加cg了，游戏挺完整的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+
+*****
+
+####  与天争锋_LZ  
+##### 121#       发表于 2022-9-15 11:11
+
+最近都是好消息啊
+
+*****
+
+####  Rainwedell  
+##### 122#       发表于 2022-9-15 11:12
+
+加个语音也是极好的。这几张新立绘都不错
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  吃我大dio  
+##### 123#       发表于 2022-9-15 11:12
+
+我超 
+
