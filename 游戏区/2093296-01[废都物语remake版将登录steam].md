@@ -1959,3 +1959,14 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 这真是我今年听到的最好的游戏消息了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  幻月天伤  
+##### 229#       发表于 2022-9-15 16:33
+
+ 本帖最后由 幻月天伤 于 2022-9-15 16:34 编辑 
+
+监修这职位真的只能笑一笑了，rm2000能体验的换成高清素材后的体验并不会提升，而且卷公失踪很多年了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
