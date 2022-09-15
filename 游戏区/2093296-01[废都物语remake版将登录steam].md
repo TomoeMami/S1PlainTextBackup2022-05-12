@@ -1864,3 +1864,28 @@ woc 起立！
 
 马上掏出贴吧置顶版温习一下，神官路线我还没走过<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  七千星  
+##### 218#       发表于 2022-9-15 15:32
+
+不知道能不能重现迷雾散去,天空出现,斗转星移这些场景
+
+当然最怕的,就是重置汉化带日轻翻译腔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 219#       发表于 2022-9-15 15:34
+
+又看看了看 感觉是公费追星啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好事
+
+*****
+
+####  SY.Autumnman  
+##### 220#       发表于 2022-9-15 15:36
+
+正好可以把剩下的线打完了 奈斯奈斯
+
