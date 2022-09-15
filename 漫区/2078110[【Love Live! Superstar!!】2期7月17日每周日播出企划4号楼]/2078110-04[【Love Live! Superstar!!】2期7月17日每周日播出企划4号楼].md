@@ -877,3 +877,30 @@ nagi
 
 手办什么时候给我吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 4569#       发表于 2022-9-15 17:32
+
+用机翻粗看了下，这个新图貌似是可可原宿看板娘的”新企划“第一弹发表，手办，估计快了？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 4570#       发表于 2022-9-15 17:35
+
+<blockquote>qty 发表于 2022-9-15 16:43
+这写真有几张怎么拍的青山法令纹这么明显</blockquote>
+YJ太素了
+
+*****
+
+####  靡宜  
+##### 4571#       发表于 2022-9-15 17:36
+
+<blockquote>优妮可 发表于 2022-9-15 17:05
+</blockquote>
+这个好康
+
