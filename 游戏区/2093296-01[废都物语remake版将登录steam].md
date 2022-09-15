@@ -1989,3 +1989,29 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 原作者人找到了？但是当年汉化的大佬难找了吧。。。。</blockquote>
 枯草章吉在ruina小说（前几年出版，其它人执笔）的后记里发过言的，卷公则是多年前突然就断网。
 
+
+
+*****
+
+####  stormist  
+##### 232#       发表于 2022-9-15 16:54
+
+希望这个项目有始有终，美好的开局，圆满的落地<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s32244153  
+##### 233#       发表于 2022-9-15 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57497727&amp;ptid=2093296" target="_blank">耶耶抛的岔 发表于 2022-9-15 16:07</a>
+
+enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战和超位者无所谓，幻之都bgm一定要用ending2 ...</blockquote>
+都被角川并了 应该能用....吧?
+
+*****
+
+####  cuslaa  
+##### 234#       发表于 2022-9-15 16:58
+
+希望天闻角川能看清楚自己的水平，只改进画面，别改脚本。
+
