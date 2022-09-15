@@ -2851,3 +2851,17 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  83913536  
+##### 231#       发表于 2022-9-15 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57495733&amp;ptid=2086469" target="_blank">indtability 发表于 2022-9-15 13:24</a>
+
+看了眼，全程地铁老人手机
+
+一边踩sd一边说我们支持steamos，然后又说是由valve 进行适配，看下来感觉 val ...</blockquote>
+国内小作坊都是捣鼓硬件然后靠爱好者做软件，除了AYA有自己弄前端，但受限于win体验还是差太远了
+
