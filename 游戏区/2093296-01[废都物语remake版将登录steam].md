@@ -2043,3 +2043,12 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 汉化者退网十年了，感觉比联系上作者更难<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  banrendacha  
+##### 238#       发表于 2022-9-15 17:25
+
+本来非常高兴，但是一流看下来，心情又复杂了
+
