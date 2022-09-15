@@ -12049,3 +12049,21 @@ wrba单红就判死刑了，至少俩ba混吧
 这次礼装真心容易掉</blockquote>
 我昨晚一口气刷了20W点数，根本没有李庄，说好的李庄狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2581#       发表于 2022-9-15 10:51
+
+欧洲人：这游戏出货/掉礼装好容易的，为什么你们要抱怨？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+非洲人：<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 2582#       发表于 2022-9-15 10:58
+
+那么问题来了，舅舅说的强度美的AE是啥时候落地来着，是下个活动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

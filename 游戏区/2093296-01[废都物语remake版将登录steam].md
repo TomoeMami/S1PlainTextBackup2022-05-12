@@ -876,3 +876,79 @@ UI优化
 
 桃一个全语音
 
+
+
+*****
+
+####  电磁炮233  
+##### 107#       发表于 2022-9-15 10:52
+
+语音就算了吧。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冷笑猫  
+##### 108#       发表于 2022-9-15 10:53
+
+这可是天大的好消息！
+
+*****
+
+####  brittlehollow  
+##### 109#       发表于 2022-9-15 10:54
+
+这个绝对是超大的惊喜了
+
+*****
+
+####  acropolis  
+##### 110#       发表于 2022-9-15 10:54
+
+我超，不用虚拟机能玩就是赢
+
+*****
+
+####  紫川狼羽  
+##### 111#       发表于 2022-9-15 10:56
+
+我草我草卧槽！！！！
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 112#       发表于 2022-9-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493584&amp;ptid=2093296" target="_blank">acropolis 发表于 2022-9-15 10:54</a>
+
+我超，不用虚拟机能玩就是赢</blockquote>
+？win11直接就能跑原版，哪个次元的废都物语要虚拟机才能玩？
+
+*****
+
+####  lain.faye  
+##### 113#       发表于 2022-9-15 10:58
+
+别瞎整文本就是胜利，什么音乐立绘cg都是添头<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  turtlejk  
+##### 114#       发表于 2022-9-15 10:59
+
+过年了过年了 我从坟里爬出来了
+
+到时出了买十份抽奖
+
+*****
+
+####  re73589  
+##### 115#       发表于 2022-9-15 10:59
+
+记得重装机兵3也是角川复活的，好像是因为角川社长儿子是系列铁粉？反正记得肯定是有角川富二代的关系
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
