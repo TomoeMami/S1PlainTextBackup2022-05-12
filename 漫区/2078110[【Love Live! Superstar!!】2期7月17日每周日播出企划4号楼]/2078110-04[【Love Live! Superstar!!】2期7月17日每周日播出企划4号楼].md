@@ -809,3 +809,16 @@ nagi
 
 原来鲤鱼之前的秘密活动是去金泽旅游，不知道会不会拍点视频
 
+
+
+*****
+
+####  愛さ実  
+##### 4563#       发表于 2022-9-15 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57497348&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-15 15:36</a>
+原来鲤鱼之前的秘密活动是去金泽旅游，不知道会不会拍点视频</blockquote>
+不是去旅行，是说“旅行みたい”，有正事做的，具体干了啥马内甲说下个月应该会说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
