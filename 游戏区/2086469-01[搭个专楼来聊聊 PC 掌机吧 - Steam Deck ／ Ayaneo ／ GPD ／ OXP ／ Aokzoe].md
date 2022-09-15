@@ -2819,3 +2819,18 @@ GPD WIN4官宣了。6寸1080P感觉还是略小。很快就开始预订 ，发�
 
 真的吗 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nilren  
+##### 229#       发表于 2022-9-15 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57494574&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-15 11:55</a>
+补个官宣链接：https://mp.weixin.qq.com/s/EHdebRucQjkNhR11C9xAvg
+
+其实我还挺喜欢现在 Windows 掌机外 ...</blockquote>
+GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴于他家宣传一贯的德行，谨慎听之，看实物吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
