@@ -1845,3 +1845,22 @@ woc 起立！
 话说原作者后来不是没消息了么？真就找 ...</blockquote>
 18年出版的小说就是角川发行的，虽然游戏是免费的，但着作权还是在枯草那里，应该是当时联系到了原作者要到了授权
 
+
+
+*****
+
+####  黑暗之眼  
+##### 216#       发表于 2022-9-15 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57496069&amp;ptid=2093296" target="_blank">awy47 发表于 2022-9-15 13:50</a>
+
+天闻角川，这不就是tx做吗，&amp;# ...</blockquote>
+不要老是把公司行为上升到股东行为啊
+
+*****
+
+####  绕指流光  
+##### 217#       发表于 2022-9-15 15:17
+
+马上掏出贴吧置顶版温习一下，神官路线我还没走过<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
