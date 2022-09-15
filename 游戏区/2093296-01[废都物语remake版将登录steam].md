@@ -1806,3 +1806,28 @@ woc 起立！
 
 对了，高清生而不为人吗？
 
+
+
+*****
+
+####  masterkeaton  
+##### 212#       发表于 2022-9-15 14:52
+
+哇，希望后面有新作
+
+*****
+
+####  L_ZY  
+##### 213#       发表于 2022-9-15 14:59
+
+心情复杂，原版珠玉在前，其实场景立绘高清化+改操作方式就满足了，大刀阔斧地改反而有点不安
+
+但总归是好消息<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牧月萌  
+##### 214#       发表于 2022-9-15 15:01
+
+活久见啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
