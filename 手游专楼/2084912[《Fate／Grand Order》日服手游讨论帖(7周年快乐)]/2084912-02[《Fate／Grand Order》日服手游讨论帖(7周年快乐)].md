@@ -12167,3 +12167,15 @@ wrba单红就判死刑了，至少俩ba混吧
 
 ……刷了50W点数了，为啥还是没有李庄<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2591#       发表于 2022-9-15 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57500701&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-9-15 19:43</a>
+
+咕哒咕哒进入商战篇了吗</blockquote>
+信长现在政治数值都给满了，区区石田<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

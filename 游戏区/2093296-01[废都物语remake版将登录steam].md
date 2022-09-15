@@ -2222,3 +2222,31 @@ Ruina 廃都の物语 2：[https://www.amazon.co.jp/-/zh/dp/B07M87WFHS](https://
 
 不正经的话，贴吧有汉化，具体见贴吧置顶帖：[https://tieba.baidu.com/p/7846467097](https://tieba.baidu.com/p/7846467097)
 
+
+
+*****
+
+####  qiaoyicc  
+##### 254#       发表于 2022-9-15 20:17
+
+商业成功板上钉钉
+
+就怕换个引擎，BGM版权问题一改然后就味儿不对了
+
+枯草加油啊
+
+*****
+
+####  Ehekatl  
+##### 255#       发表于 2022-9-15 20:21
+
+贴吧那边说已经找到卷公了
+
+<img src="https://img.saraba1st.com/forum/202209/15/202101eezwowgr99gdfg8z.png" referrerpolicy="no-referrer">
+
+<strong>_@JVP3)]QY{4UG(G))DR.png</strong> (46.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 20:21 上传
+
