@@ -1950,3 +1950,12 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 角川微博说如果认识天然卷请联系他们
 
+
+
+*****
+
+####  夜来  
+##### 228#       发表于 2022-9-15 16:29
+
+这真是我今年听到的最好的游戏消息了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
