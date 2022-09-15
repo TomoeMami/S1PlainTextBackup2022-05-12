@@ -2355,3 +2355,23 @@ DB59274E-6C0E-44D4-A895-26122C1F02AD.jpeg
 
 沉寂多年的神作复活，甚至二次发酵，希望能成为一段佳话吧
 
+
+
+*****
+
+####  折木奉太喵  
+##### 264#       发表于 2022-9-15 22:43
+
+我操。太大了
+
+—— 来自 HUAWEI SCMR-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  折木奉太喵  
+##### 265#       发表于 2022-9-15 22:43
+
+我操。太大了
+
+—— 来自 HUAWEI SCMR-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

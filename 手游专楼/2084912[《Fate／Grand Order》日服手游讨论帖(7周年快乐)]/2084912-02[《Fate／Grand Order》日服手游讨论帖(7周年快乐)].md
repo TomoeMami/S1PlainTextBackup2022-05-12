@@ -12299,3 +12299,15 @@ wrba单红就判死刑了，至少俩ba混吧
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 看剧情一与应该是对面洗白投向卑弥呼的，这样就解释了为什么宝具给个后置诅咒了。
 
+
+
+*****
+
+####  廖化  
+##### 2605#       发表于 2022-9-15 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503708&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-09-15 22:34:01</a>
+这么快就开始刷了？</blockquote>日服盒子浅，前面关卡能无脑3T，后面血厚就不行了……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
