@@ -2301,3 +2301,57 @@ Ruina 廃都の物语 2：[https://www.amazon.co.jp/-/zh/dp/B07M87WFHS](https://
 
 好顶赞！能用上这种用爱发电的汉化是最好的，退而求其次是实在不行再考虑商业汉化~
 
+
+
+*****
+
+####  FantaPants  
+##### 262#       发表于 2022-9-15 22:27
+
+已经联系到原汉化者咯～卷公也在和天闻角川对接了
+
+（原贴被吞，截图来自废都物语贴吧群）
+
+503081DB-6A66-4B5B-89DE-5942271E3644.jpeg
+(257 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202209/15/222334mio5boixczfi2xf2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+DB59274E-6C0E-44D4-A895-26122C1F02AD.jpeg
+(595.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202209/15/222334xy1ttg62yyn5a6zy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+422AE06C-D519-43BD-BE49-0DE7D6AEFA1D.jpeg
+(315.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202209/15/222334kt1c6xtc8sjjqaxj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+48151E44-B4A3-4987-AA96-111874BB42AC.jpeg
+(301.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202209/15/222335f1zcjc6ofgk4o1kf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xxxllz  
+##### 263#       发表于 2022-9-15 22:31
+
+沉寂多年的神作复活，甚至二次发酵，希望能成为一段佳话吧
+
