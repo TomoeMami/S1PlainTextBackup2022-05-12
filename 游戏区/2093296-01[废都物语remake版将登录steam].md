@@ -1970,3 +1970,22 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 监修这职位真的只能笑一笑了，rm2000能体验的换成高清素材后的体验并不会提升，而且卷公失踪很多年了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  astrayl  
+##### 230#       发表于 2022-9-15 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原作者人找到了？但是当年汉化的大佬难找了吧。。。。
+
+*****
+
+####  幻月天伤  
+##### 231#       发表于 2022-9-15 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57498276&amp;ptid=2093296" target="_blank">astrayl 发表于 2022-9-15 16:47</a>
+
+原作者人找到了？但是当年汉化的大佬难找了吧。。。。</blockquote>
+枯草章吉在ruina小说（前几年出版，其它人执笔）的后记里发过言的，卷公则是多年前突然就断网。
+
