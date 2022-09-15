@@ -2834,3 +2834,20 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  indtability  
+##### 230#       发表于 2022-9-15 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57494574&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-15 11:55</a>
+补个官宣链接：https://mp.weixin.qq.com/s/EHdebRucQjkNhR11C9xAvg
+
+其实我还挺喜欢现在 Windows 掌机外 ...</blockquote>
+看了眼，全程地铁老人手机
+一边踩sd一边说我们支持steamos，然后又说是由valve 进行适配，看下来感觉 valve 这什么冤大头舔狗，巴巴给这么个玩意做适配，适配完了人还来一句，“我们有双系统，sd没有”，？？？？？？？。
+吹了个什么自定义tdp，说比sd强，仔细一看是别人开发的，又吹 playnite 支持各种游戏商店，这跟你有啥关系？合着您是一点力没出啊？想来产品能做下去应该没亏钱吧，怎么连一个程序员都舍不得请，看下来就突出一个缝，行吧，缝吧缝吧，凑凑活活，反正他们又看不到，缝的家伙们正在隔壁忙tgs呢，valve 还给 sd 整了个大场馆，对比下来感觉也怪可怜的。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
