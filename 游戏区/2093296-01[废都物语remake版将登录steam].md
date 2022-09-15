@@ -2034,3 +2034,12 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 天闻角川干脆给原版汉化组一点酬金，光明正大把原文本照搬过来算了</blockquote>
 这游戏是初代吧主个人汉化的，汉化完功成身退了，要找本人估计也不容易
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 237#       发表于 2022-9-15 17:17
+
+汉化者退网十年了，感觉比联系上作者更难<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
