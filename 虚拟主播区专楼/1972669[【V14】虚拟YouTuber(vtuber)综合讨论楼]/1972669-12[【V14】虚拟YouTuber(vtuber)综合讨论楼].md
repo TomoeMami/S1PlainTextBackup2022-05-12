@@ -9390,3 +9390,14 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 本周葛叶、rof-mao、mgo出榜，上周收64779、63631、11100，空妈四专初动1940</blockquote>
 是不是可以认为虹女粉基本盘6万<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃咸菜的  
+##### 17356#       发表于 2022-9-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499585&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-9-15 18:07</a>
+是不是可以认为虹女粉基本盘6万</blockquote>
+二哥2w7在出榜边缘，大概就六万基本盘，不过盒皇还没卖呢，潜在市场很大
+
