@@ -2015,3 +2015,22 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 希望天闻角川能看清楚自己的水平，只改进画面，别改脚本。
 
+
+
+*****
+
+####  lvcha  
+##### 235#       发表于 2022-9-15 17:07
+
+有ns版吗？
+
+*****
+
+####  jy000129  
+##### 236#       发表于 2022-9-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57495523&amp;ptid=2093296" target="_blank">564381634 发表于 2022-9-15 13:06</a>
+
+天闻角川干脆给原版汉化组一点酬金，光明正大把原文本照搬过来算了</blockquote>
+这游戏是初代吧主个人汉化的，汉化完功成身退了，要找本人估计也不容易
+
