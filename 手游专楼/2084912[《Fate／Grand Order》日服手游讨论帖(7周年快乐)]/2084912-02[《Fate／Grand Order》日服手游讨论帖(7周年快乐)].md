@@ -12067,3 +12067,15 @@ wrba单红就判死刑了，至少俩ba混吧
 
 那么问题来了，舅舅说的强度美的AE是啥时候落地来着，是下个活动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 2583#       发表于 2022-9-15 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57488185&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-14 22:23</a>
+
+于是战国系卫星已经有了&amp;#x67 ...</blockquote>
+不太可能，就咕哒咕哒活动分配的从者数，还得扣掉一个空降美少女名额，估计最多就三成。柴田应该是在跟森长可决定实装谁的战斗中死去了，光秀那个颜值不管是抽是送都很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

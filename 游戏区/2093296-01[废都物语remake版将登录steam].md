@@ -1016,3 +1016,54 @@ wc，不知道能不能保持原汁原味的体验
 
 我超 
 
+
+
+*****
+
+####  parasolsa  
+##### 124#       发表于 2022-9-15 11:14
+
+我焯，这个大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  武内P  
+##### 125#       发表于 2022-9-15 11:15
+
+天闻角川啊，希望别做砸了
+
+*****
+
+####  莉拉厨  
+##### 126#       发表于 2022-9-15 11:17
+
+原版的压缩包还在桌面上没解压呢，看来不用了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 127#       发表于 2022-9-15 11:19
+
+厉害了
+
+*****
+
+####  acropolis  
+##### 128#       发表于 2022-9-15 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493620&amp;ptid=2093296" target="_blank">Suzutsuki.Mk.II 发表于 2022-9-14 19:57</a>
+
+？win11直接就能跑原版，哪个次元的废都物语要虚拟机才能玩？</blockquote>
+我win10不开xp虚拟机跑不了，win11什么情况不知道
+
+*****
+
+####  正锑  
+##### 129#       发表于 2022-9-15 11:21
+
+希望来个增量豪华版，多加点人物场景玩法啥的，不影响主线剧情。
+
