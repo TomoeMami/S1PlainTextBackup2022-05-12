@@ -1518,3 +1518,33 @@ bgm看下pv什么效果吧，如果不行最好给个替换bgm补丁
 
 急急急急急急
 
+
+
+*****
+
+####  苇原雪道  
+##### 182#       发表于 2022-9-15 12:53
+
+卧槽，不过谨慎不看好，天角估计找不到当年那么NB的译者。
+
+*****
+
+####  shimotsuki14  
+##### 183#       发表于 2022-9-15 12:57
+
+前段时间那个做了上中两期剧情的视频作者已经隔了快一周多也没出下集了，不禁过度联想
+
+*****
+
+####  Hukyouwaon  
+##### 184#       发表于 2022-9-15 13:00
+
+这都行<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罐头卡  
+##### 185#       发表于 2022-9-15 13:01
+
+玩不到废都物语重制版，感觉身上有夜种王在爬<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
