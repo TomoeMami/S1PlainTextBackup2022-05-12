@@ -12151,3 +12151,19 @@ wrba单红就判死刑了，至少俩ba混吧
 
 三成之后肯定要拉猴子，等解释呗
 
+
+
+*****
+
+####  里村紅葉  
+##### 2589#       发表于 2022-9-15 19:43
+
+咕哒咕哒进入商战篇了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  廖化  
+##### 2590#       发表于 2022-9-15 19:47
+
+……刷了50W点数了，为啥还是没有李庄<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

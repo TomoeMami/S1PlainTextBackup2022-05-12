@@ -2167,3 +2167,21 @@ S1人才辈出啊，怎么都在这个小地方<img src="https://static.saraba1s
 
 以前干这行，大部分时候能找到人比获得授权难…
 
+
+
+*****
+
+####  fuochai  
+##### 249#       发表于 2022-9-15 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57496073&amp;ptid=2093296" target="_blank">为了mf注册 发表于 2022-9-15 13:50</a>
+第一次玩的话，一个流程大概十多个小时，熟练了后不追求隐藏武器的话一个周目也就4、5个小时。建议一周目 ...</blockquote>
+感觉 玩儿玩儿 还以为会很长
+
+*****
+
+####  十个印地男孩  
+##### 250#       发表于 2022-9-15 19:51
+
+天啊居然有小说,小说哪里找啊
+
