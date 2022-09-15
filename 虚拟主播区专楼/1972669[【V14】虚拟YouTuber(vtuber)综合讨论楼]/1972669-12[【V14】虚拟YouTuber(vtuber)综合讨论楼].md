@@ -9355,3 +9355,15 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 不是第一bg叻，输完るなレイ输エマレイ，接下来输父女组，要输光光了。
 只能等俩人都彻底想开或者某个人彻底想不开去掀桌子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">慢性死亡还是太闹心了，不想听主播お気持ち。
 
+
+
+*****
+
+####  FCCHua  
+##### 17353#       发表于 2022-9-15 12:21
+
+ 本帖最后由 FCCHua 于 2022-9-15 12:23 编辑 
+
+父女组不会指的kmt和妹妹吧？
+那还是更喜欢dexyuku和hnn的父女组，甚至在不同的平台有看到同人文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

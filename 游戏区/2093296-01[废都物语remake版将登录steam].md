@@ -1457,3 +1457,37 @@ bgm看下pv什么效果吧，如果不行最好给个替换bgm补丁
 
 希望别乱改，保持原作风味就好
 
+
+
+*****
+
+####  桜夢  
+##### 175#       发表于 2022-9-15 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  emmerMK2  
+##### 176#       发表于 2022-9-15 12:27
+
+这是粉丝追梦成功吗
+
+*****
+
+####  Gmanager  
+##### 177#       发表于 2022-9-15 12:29
+
+我去，牛逼！
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Gmanager  
+##### 178#       发表于 2022-9-15 12:29
+
+我去，牛逼！
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
