@@ -628,3 +628,163 @@ remake还行，这算是国人粉丝厨力的超级形态吗？
 
 怪事
 
+
+
+*****
+
+####  haze.l  
+##### 79#       发表于 2022-9-15 10:31
+
+今回のリメイク版では、オリジナル版の魅力はそのままに、原作者の枯草章吉氏の完全監修のもと、グラフィックの強化やUIや操作性などシステムの改善、また追加シナリオなどの導入など、さまざまな部分でパワーアップが施され、新たにPC用ゲームとして発売されます。
+
+*****
+
+####  格林达姆  
+##### 80#       发表于 2022-9-15 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493113&amp;ptid=2093296" target="_blank">胧楼 发表于 2022-9-15 10:23</a>
+希望能保持原作风味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说到这个，万一这remake就是用高清素材拿rm再做一遍该咋办
+
+*****
+
+####  电磁炮233  
+##### 81#       发表于 2022-9-15 10:34
+
+其实完全可以考虑上主机啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xxxllz  
+##### 82#       发表于 2022-9-15 10:34
+
+隐形守护者当中，因为原作的bgm大部分都没有买，故事剧情演出的效果都差很多，废都物语应该没有这个版权问题吧。。。
+
+*****
+
+####  Evomenon  
+##### 83#       发表于 2022-9-15 10:34
+
+等等看，原着玩了个开头玩不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  highLH  
+##### 84#       发表于 2022-9-15 10:34
+
+希望重制别破坏原版那股浪漫韵味
+
+*****
+
+####  a94939291  
+##### 85#       发表于 2022-9-15 10:34
+
+原作者<strong>完全监修</strong>
+
++
+
+画面强化
+
++
+
+UI优化
+
++
+
+操作优化
+
++
+
+追加新剧情
+
+这下威力加强版了
+
+*****
+
+####  Dgnic_  
+##### 86#       发表于 2022-9-15 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493132&amp;ptid=2093296" target="_blank">双刀少女 发表于 2022-9-15 10:25</a>
+
+天闻角川做过哪些游戏？</blockquote>
+没做过吧，之前不是个出版社吗，出版了不少日本轻小说和漫画
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 87#       发表于 2022-9-15 10:36
+
+我记得这项目是广州做的，之前差点就投了做这个的公司的简历来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  胧楼  
+##### 88#       发表于 2022-9-15 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493250&amp;ptid=2093296" target="_blank">格林达姆 发表于 2022-9-15 10:33</a>
+
+说到这个，万一这remake就是用高清素材拿rm再做一遍该咋办</blockquote>
+那就当玩玩新内容了
+
+*****
+
+####  mandora  
+##### 89#       发表于 2022-9-15 10:37
+
+原版那些免费音乐素材也不能用了吧，希望新的bgm不要太烂
+
+*****
+
+####  二重梦境  
+##### 90#       发表于 2022-9-15 10:37
+
+最担心的不是画面而是氛围…
+
+
+
+*****
+
+####  fallout  
+##### 91#       发表于 2022-9-15 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我就想增加一个对鼠标的支持，这样玩的舒服点
+
+*****
+
+####  Kaltsit  
+##### 92#       发表于 2022-9-15 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493267&amp;ptid=2093296" target="_blank">xxxllz 发表于 2022-9-15 10:34</a>
+隐形守护者当中，因为原作的bgm大部分都没有买，故事剧情演出的效果都差很多，废都物语应该没有这个版权问 ...</blockquote>
+虽然没有版权问题，但都remake了不太可能还用原版的免费音乐素材了吧，尤其是那些rm2000自带的。
+
+*****
+
+####  亚瑟摩根  
+##### 93#       发表于 2022-9-15 10:39
+
+卧槽，大的要来了
+
+*****
+
+####  RainbowSealife  
+##### 94#       发表于 2022-9-15 10:39
+
+我超，去年才把贤者弟子线通关<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 95#       发表于 2022-9-15 10:39
+
+角川，甚至还是没有做游戏经验的天闻角川，哪怕只是单纯的重置我都怀疑他们到底有没有能力做好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 96#       发表于 2022-9-15 10:40
+
+细嗦小龙女
+
