@@ -1898,3 +1898,19 @@ woc 起立！
 
 期待一下 还没玩过= =
 
+
+
+*****
+
+####  无悼一人庸  
+##### 222#       发表于 2022-9-15 15:57
+
+感觉最重要的就是能不能保持原版汉化翻译的水准，或者找到作者授权
+
+*****
+
+####  tansapple  
+##### 223#       发表于 2022-9-15 16:00
+
+月经坛游居然remake，有高清版的祖奶奶可以舔了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
