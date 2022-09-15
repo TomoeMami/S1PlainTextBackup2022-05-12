@@ -2384,3 +2384,44 @@ DB59274E-6C0E-44D4-A895-26122C1F02AD.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wjccc  
+##### 267#       发表于 2022-9-15 23:03
+
+是个好开头，希望有个好收尾
+
+*****
+
+####  tengshuo980  
+##### 268#       发表于 2022-9-15 23:05
+
+真好啊。真好啊
+
+*****
+
+####  武藤代代  
+##### 269#       发表于 2022-9-15 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">快点端出来吧
+
+不过按照目前招人的情况看，好像还在demo做完批量造场景的阶段，估计最快也要24年了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  苇原雪道  
+##### 270#       发表于 2022-9-15 23:09
+
+活着总是会有好事情发生的啊！
+
+
+
+*****
+
+####  julia黑  
+##### 271#       发表于 2022-9-15 23:11
+
+能联系上译者真是太好了，时隔十年找到人，跟这游戏整体的基调也太搭了
+
