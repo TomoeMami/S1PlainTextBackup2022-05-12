@@ -12037,3 +12037,15 @@ wrba单红就判死刑了，至少俩ba混吧
 才打第2个本就掉礼装了</blockquote>
 这次礼装真心容易掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  廖化  
+##### 2580#       发表于 2022-9-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57492612&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-15 09:51</a>
+
+这次礼装真心容易掉</blockquote>
+我昨晚一口气刷了20W点数，根本没有李庄，说好的李庄狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
