@@ -1734,3 +1734,20 @@ bgm看下pv什么效果吧，如果不行最好给个替换bgm补丁
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  翻滚吧熊犊子  
+##### 204#       发表于 2022-9-15 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">活着就是会发生好事情的！
+
+*****
+
+####  mifarkin  
+##### 205#       发表于 2022-9-15 14:18
+
+原作本身快接近纯文字rpg了
+对不存在的画面搞“画面增强”很难看好啊
+
