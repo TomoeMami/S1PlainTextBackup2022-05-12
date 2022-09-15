@@ -12011,3 +12011,17 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坛友依然那么豹跳
 
+
+
+*****
+
+####  UNISONIA  
+##### 2578#       发表于 2022-9-15 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485813&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-14 19:18</a>
+
+山南敬助算是兰陵王的同类，二技能的魔放30比魔性之貌的20高，不过加攻方面算上宝具兰陵王要高10。
+
+千利 ...</blockquote>
+wrba单红就判死刑了，至少俩ba混吧
+

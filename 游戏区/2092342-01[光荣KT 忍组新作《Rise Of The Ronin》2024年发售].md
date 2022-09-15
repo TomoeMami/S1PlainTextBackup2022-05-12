@@ -1658,3 +1658,12 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 358也是开放世界啊，KT自己心里没点B数吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无双组是无双组，忍组是忍组啊。而且之前卧龙访谈时就有暗戳戳说358不行，说不定忍组的人悟道了呢。
 
+
+
+*****
+
+####  天宮奏  
+##### 183#       发表于 2022-9-15 08:51
+
+对马岛20发售的吗？光一个1就做了6年，24年摸出对马岛2我很担忧
+
