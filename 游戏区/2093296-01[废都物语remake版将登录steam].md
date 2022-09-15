@@ -788,3 +788,91 @@ UI优化
 
 细嗦小龙女
 
+
+
+*****
+
+####  Leliel  
+##### 97#       发表于 2022-9-15 10:42
+
+作者完全监修这种话我觉得听听就算了
+
+连现场都到不了的人能掌握多少开发决策<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好好好好好好好  
+##### 98#       发表于 2022-9-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493350&amp;ptid=2093296" target="_blank">妄想中毒 发表于 2022-9-15 10:39</a>
+
+角川，甚至还是没有做游戏经验的天闻角川，哪怕只是单纯的重置我都怀疑他们到底有没有能力做好 ...</blockquote>
+可能是外包出去吧
+
+*****
+
+####  Pingbeici  
+##### 99#       发表于 2022-9-15 10:43
+
+前一阵子叔叔家那支片如果是业配的话，我还是第一次看见这种新颖的业配形式，不过这种业配也不会让人讨厌<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  delphinian  
+##### 100#       发表于 2022-9-15 10:44
+
+又细想了一下，这游戏的大头就是文本翻译，什么高清贴图UI操控都是附带的，这么看专门搞出版的天角反而还算专业对口？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满满一大杯  
+##### 101#       发表于 2022-9-15 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493172&amp;ptid=2093296" target="_blank">北野苍术 发表于 2022-9-15 10:28</a>
+
+看到原作者监制+天闻角川震惊之余充满了一种国内铁粉爬到公司高层之后有能力了能决定做什么的错觉
+
+ ...</blockquote>
+死宅高层砸钱圆梦（总不见得指望这玩意儿赚大钱吧……）
+
+所以在质量管控上（拉的承包开发商的靠谱程度上）应该能期待一下？
+
+*****
+
+####  xbhuang  
+##### 102#       发表于 2022-9-15 10:46
+
+这才是真的核弹啊，话说不上主机吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kaltsit  
+##### 103#       发表于 2022-9-15 10:47
+
+封面人物是尤利娅，然后pv里是希冯和琪莉雅，最后一张倒着的是芙兰、艾妲、妮露、帕里斯、拉邦?这几个感觉还不错，除了芙兰和原版差别比较大。队友里还有艾尔森和梅罗达克的立绘没公布?
+
+*****
+
+####  KyonSuzumiya  
+##### 104#       发表于 2022-9-15 10:48
+
+卧槽，大的要来了
+
+*****
+
+####  oskneo  
+##### 105#       发表于 2022-9-15 10:49
+
+还是继续等主机板，pc连显卡都没了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 106#       发表于 2022-9-15 10:49
+
+桃一个全语音
+
