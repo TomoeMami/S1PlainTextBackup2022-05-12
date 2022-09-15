@@ -1751,3 +1751,14 @@ bgm看下pv什么效果吧，如果不行最好给个替换bgm补丁
 原作本身快接近纯文字rpg了
 对不存在的画面搞“画面增强”很难看好啊
 
+
+
+*****
+
+####  verniy  
+##### 206#       发表于 2022-9-15 14:22
+
+好好好好好
+
+另希望地下宫殿别重置的太恐怖，原版氛围已经挺吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
