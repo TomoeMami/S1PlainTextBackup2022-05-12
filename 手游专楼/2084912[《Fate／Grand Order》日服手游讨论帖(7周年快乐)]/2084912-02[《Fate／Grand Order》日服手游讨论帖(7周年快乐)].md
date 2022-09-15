@@ -12268,3 +12268,34 @@ wrba单红就判死刑了，至少俩ba混吧
 
 抽了3十连刚好没石头居然出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2602#       发表于 2022-9-15 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57500749&amp;ptid=2084912" target="_blank">廖化 发表于 2022-9-15 19:47</a>
+……刷了50W点数了，为啥还是没有李庄</blockquote>
+这么快就开始刷了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 2603#       发表于 2022-9-15 22:36
+
+壹与这出身怎么一股卡面来打的味
+
+敌我同源，出身是狗奴，掌握得是黑暗的力量，背负的是破灭的命运，但励志走上光明的道路，反过来与狗奴为敌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 2604#       发表于 2022-9-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503442&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-9-15 22:17</a>
+壹与这杂鱼吃瘪自曝人设，爱了爱了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+看剧情一与应该是对面洗白投向卑弥呼的，这样就解释了为什么宝具给个后置诅咒了。
+
