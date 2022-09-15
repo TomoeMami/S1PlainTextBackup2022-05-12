@@ -1914,3 +1914,21 @@ woc 起立！
 
 月经坛游居然remake，有高清版的祖奶奶可以舔了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赞卡机  
+##### 224#       发表于 2022-9-15 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57496979&amp;ptid=2093296" target="_blank">chaucerling 发表于 2022-9-15 15:06</a>
+18年出版的小说就是角川发行的，虽然游戏是免费的，但着作权还是在枯草那里，应该是当时联系到了原作者要 ...</blockquote>
+当时小说我记得枯草章吉在后记里有访谈，话说天角怎么不做做本职工作把那两卷小说引进一下
+
+*****
+
+####  耶耶抛的岔  
+##### 225#       发表于 2022-9-15 16:07
+
+enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战和超位者无所谓，幻之都bgm一定要用ending2，用其他bgm没那味儿
+
