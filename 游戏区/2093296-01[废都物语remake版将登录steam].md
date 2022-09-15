@@ -2260,3 +2260,12 @@ Ruina 廃都の物语 2：[https://www.amazon.co.jp/-/zh/dp/B07M87WFHS](https://
 希望不要毁原作，之前做的梦日记就是一坨
 买肯定是买的，就当捐钱给原作者来自: iPhone客户端
 
+
+
+*****
+
+####  ruina  
+##### 257#       发表于 2022-9-15 21:12
+
+感觉自己圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
