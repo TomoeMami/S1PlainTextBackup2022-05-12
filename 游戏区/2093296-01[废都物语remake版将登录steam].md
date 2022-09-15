@@ -2375,3 +2375,12 @@ DB59274E-6C0E-44D4-A895-26122C1F02AD.jpeg
 
 —— 来自 HUAWEI SCMR-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  futamn  
+##### 266#       发表于 2022-9-15 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
