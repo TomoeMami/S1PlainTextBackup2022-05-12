@@ -2052,3 +2052,15 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 本来非常高兴，但是一流看下来，心情又复杂了
 
+
+
+*****
+
+####  564381634  
+##### 239#       发表于 2022-9-15 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57498624&amp;ptid=2093296" target="_blank">jy000129 发表于 2022-9-15 17:08</a>
+
+这游戏是初代吧主个人汉化的，汉化完功成身退了，要找本人估计也不容易 ...</blockquote>
+要不以作者的名义捐点物资给希望小学当酬金吧。班长：“感谢天然卷的传承者叔叔捐赠的凉宫春日500册”
+
