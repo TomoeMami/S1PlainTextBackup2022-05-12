@@ -1154,3 +1154,90 @@ nice爷爷弹舌.gif
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Renkonsai  
+##### 141#       发表于 2022-9-15 11:31
+
+………………我觉得就那一堆できそこない就要被和谐
+
+天角最大的问题其实还不是技不技术，就怕他们把各种屏蔽已经刻进脑子了……
+
+*****
+
+####  满满一大杯  
+##### 142#       发表于 2022-9-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57494113&amp;ptid=2093296" target="_blank">moshizhe 发表于 2022-9-15 11:28</a>
+
+天闻角川和角川是什么关系</blockquote>
+广州天闻角川动漫有限公司由湖南天闻动漫传媒有限公司（中南出版传媒集团股份有限公司的子公司，出资51%）与角川集团亚洲有限公司（日本角川集团在香港设立的子公司，出资49%）于2010年4月12日合资成立。2016年9月5日，腾讯公司收购天闻角川41%的股权，成为天闻角川第二大股东。 
+
+*****
+
+####  Rary  
+##### 143#       发表于 2022-9-15 11:33
+
+ 本帖最后由 Rary 于 2022-9-15 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57494177&amp;ptid=2093296" target="_blank">Renkonsai 发表于 2022-9-15 11:31</a>
+
+………………我觉得就那一堆できそこない就要被和谐
+
+天角最大的问题其实还不是技不技术，就怕他们把各种屏 ...</blockquote>
+确实，说不定会和谐些内容，尤其是说不定还想申请版号，上手机平台
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 144#       发表于 2022-9-15 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493965&amp;ptid=2093296" target="_blank">acropolis 发表于 2022-9-15 11:20</a>
+
+我win10不开xp虚拟机跑不了，win11什么情况不知道</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/15/113419j1jkvkcjidb9ibb9.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220915113334.png</strong> (115.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 11:34 上传
+
+建议检查系统组件是不是跟什么冲突了，虽然工作电脑不是11，但11我在家试了，没问题
+
+*****
+
+####  Ehekatl  
+##### 145#       发表于 2022-9-15 11:35
+
+等不及了快点端上来罢罢罢罢罢罢罢罢罢<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ehekatl  
+##### 146#       发表于 2022-9-15 11:35
+
+狠狠地风怒了
+
+*****
+
+####  s32244153  
+##### 147#       发表于 2022-9-15 11:36
+
+虽然期待重制
+
+但我认为RM2K像素带来的朦胧感和这游戏已经是完美契合
+
+怕最后出来的是像以前FF重制上直接拉皮然后套个新UI<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 148#       发表于 2022-9-15 11:41
+
+就当交信仰费了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+本来也从来没期待过可能会有的东西有了就是赚
+
