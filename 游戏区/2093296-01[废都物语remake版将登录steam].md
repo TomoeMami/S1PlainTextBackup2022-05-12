@@ -1491,3 +1491,30 @@ bgm看下pv什么效果吧，如果不行最好给个替换bgm补丁
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  siriii  
+##### 179#       发表于 2022-9-15 12:44
+
+我梦到过，我真的梦到过有这么一天<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  grax  
+##### 180#       发表于 2022-9-15 12:49
+
+希望有生之年能玩到续作
+
+
+
+*****
+
+####  ttdsw  
+##### 181#       发表于 2022-9-15 12:49
+
+急急急急急急
+

@@ -12079,3 +12079,37 @@ wrba单红就判死刑了，至少俩ba混吧
 于是战国系卫星已经有了&amp;#x67 ...</blockquote>
 不太可能，就咕哒咕哒活动分配的从者数，还得扣掉一个空降美少女名额，估计最多就三成。柴田应该是在跟森长可决定实装谁的战斗中死去了，光秀那个颜值不管是抽是送都很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2584#       发表于 2022-9-15 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">惊了 我竟然也掉礼装了 这次活动是不是有问题
+
+*****
+
+####  Jamaisvu  
+##### 2585#       发表于 2022-9-15 12:48
+
+<img src="https://img.saraba1st.com/forum/202209/15/124059np2vh7077g7n72tv.jpg" referrerpolicy="no-referrer">
+
+<strong>7B0461575F2B073DF7907318C31691DD.jpg</strong> (85.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 12:40 上传
+
+千利休三破好像被解包出来了，抱着个琵琶，上面的双雀家纹有点像上杉家的？
+
+<img src="https://img.saraba1st.com/forum/202209/15/124614l5k9pieslo0g4o04.png" referrerpolicy="no-referrer">
+
+<strong>114P94242-4.png</strong> (71.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 12:46 上传
+
+应该是缝合了其他存在吧，背后还有个奇怪的雕像，也许融合了什么本土神？
+
