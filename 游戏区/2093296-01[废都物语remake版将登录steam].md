@@ -2090,3 +2090,52 @@ enterbrain有没有授权过其他引擎游戏使用rpgmaker的bgm？魔将战�
 
 我觉得比较好的处理就是搞个中规中矩的商业翻译，但是文件不加密，私下发布个工具把 rm 原档的汉化文本移植进去
 
+
+
+*****
+
+####  电磁炮233  
+##### 243#       发表于 2022-9-15 18:09
+
+S1人才辈出啊，怎么都在这个小地方<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  turtlejk  
+##### 244#       发表于 2022-9-15 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499372&amp;ptid=2093296" target="_blank">苇原雪道 发表于 2022-9-15 17:54</a>
+
+@turtlejk
+
+虽然找不到卷公，但是当年一起润色的大佬就在s1哦～</blockquote>
+这帖前面我说了发售抽十份2333
+
+还在疯狂联系卷公中
+
+虽然没啥希望<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 大暗月| + 1|联系到了我也随10份！|
+| 蚊仔蚊仔蚊仔| + 1|伟大！！！|
+
+查看全部评分
+
+*****
+
+####  Hqchan  
+##### 245#       发表于 2022-9-15 18:12
+
+才反应过来，意思是会有要翻译的新内容吗
+
+那希望能把高好感度结局做长点，加一两个小故事什么的，最后和琪莉雅高好感度结局有点意犹未尽<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

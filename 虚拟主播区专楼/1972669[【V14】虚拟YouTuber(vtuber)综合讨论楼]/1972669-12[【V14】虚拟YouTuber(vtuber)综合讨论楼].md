@@ -9379,3 +9379,14 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 <img src="https://p.sda1.dev/7/0c00e31a4f553a51421056d3a7be613c/IMG_20220915_173555.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/0d323803a8df3bf32b3f671dd1206b15/IMG_20220915_173441.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17355#       发表于 2022-9-15 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499126&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2022-9-15 17:37</a>
+本周葛叶、rof-mao、mgo出榜，上周收64779、63631、11100，空妈四专初动1940</blockquote>
+是不是可以认为虹女粉基本盘6万<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
