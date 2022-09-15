@@ -2139,3 +2139,12 @@ S1人才辈出啊，怎么都在这个小地方<img src="https://static.saraba1s
 
 那希望能把高好感度结局做长点，加一两个小故事什么的，最后和琪莉雅高好感度结局有点意犹未尽<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tansapple  
+##### 246#       发表于 2022-9-15 18:56
+
+泥潭就是牌面多<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
