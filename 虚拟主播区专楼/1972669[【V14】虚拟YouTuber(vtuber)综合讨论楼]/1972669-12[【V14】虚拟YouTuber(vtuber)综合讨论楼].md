@@ -9329,3 +9329,17 @@ syl こはく居然就能和oreapo联动了，明明今年五月前还是个不�
 
 也可以不出，然后kmt顺势油管毕业去老鼠台播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17351#       发表于 2022-9-15 08:36
+
+ 本帖最后由 poipanchao 于 2022-9-15 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57491017&amp;ptid=1972669" target="_blank">天天座理世 发表于 2022-9-15 06:13</a>
+猫汰喷3发售还没开直播播过这游戏，这喷涂设计白搭了，我都怀疑猫汰当初的皮是给露娜，露娜的紫色皮预定bor ...</blockquote>
+搬家中，没法播。玩可能会玩，但是键鼠玩家就别指望有啥实力了，只狼怪猎都是键鼠玩的…
+另外衣服的颜料设计其实是代表了画画而不是喷喷，出道的时候解释过
+67出道的时候bora还没毕业…
+
