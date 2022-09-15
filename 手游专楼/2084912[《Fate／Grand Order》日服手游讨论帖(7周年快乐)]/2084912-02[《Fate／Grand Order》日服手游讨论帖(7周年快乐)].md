@@ -12025,3 +12025,57 @@ syl 石田三成怎么是个正太啊（或者是tomboy?看胸部有点隆起）
 千利 ...</blockquote>
 wrba单红就判死刑了，至少俩ba混吧
 
+
+
+*****
+
+####  白金口袋  
+##### 2579#       发表于 2022-9-15 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57486992&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-14 20:53</a>
+
+才打第2个本就掉礼装了</blockquote>
+这次礼装真心容易掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  廖化  
+##### 2580#       发表于 2022-9-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57492612&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-15 09:51</a>
+
+这次礼装真心容易掉</blockquote>
+我昨晚一口气刷了20W点数，根本没有李庄，说好的李庄狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 2581#       发表于 2022-9-15 10:51
+
+欧洲人：这游戏出货/掉礼装好容易的，为什么你们要抱怨？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+非洲人：<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 2582#       发表于 2022-9-15 10:58
+
+那么问题来了，舅舅说的强度美的AE是啥时候落地来着，是下个活动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  風卷豹  
+##### 2583#       发表于 2022-9-15 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57488185&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-14 22:23</a>
+
+于是战国系卫星已经有了&amp;#x67 ...</blockquote>
+不太可能，就咕哒咕哒活动分配的从者数，还得扣掉一个空降美少女名额，估计最多就三成。柴田应该是在跟森长可决定实装谁的战斗中死去了，光秀那个颜值不管是抽是送都很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -2749,3 +2749,54 @@ geek的话aya群里好像说十一月底前发货，其实4399是800p的价格�
 Aokzoe 似乎延期发货了，群里昨天吵得跟啥一样。</blockquote>
 这还行吧，感觉也是客观原因造成的，不是故意
 
+
+
+*****
+
+####  bypass  
+##### 224#         楼主| 发表于 2022-9-15 10:33
+
+Aokzoe 的内测机发货了（然而我并没有）。
+
+*****
+
+####  bypass  
+##### 225#         楼主| 发表于 2022-9-15 10:39
+
+顺便把我的 Air Pro 也给退了，机器外观我很喜欢，但还是接受不了最早一批盲订，最晚发货。
+
+
+
+*****
+
+####  kirito_wst  
+##### 226#       发表于 2022-9-15 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493339&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-15 10:39</a>
+
+顺便把我的 Air Pro 也给退了，机器外观我很喜欢，但还是接受不了最早一批盲订，最晚发货。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">退了小黄鸭的前来祝贺脱离苦海
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bypass| + 1|好评加鹅|
+
+查看全部评分
+
+
+
+*****
+
+####  nilren  
+##### 227#       发表于 2022-9-15 11:10
+
+GPD WIN4官宣了。6寸1080P感觉还是略小。很快就开始预订 ，发货没说，估计得明年。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

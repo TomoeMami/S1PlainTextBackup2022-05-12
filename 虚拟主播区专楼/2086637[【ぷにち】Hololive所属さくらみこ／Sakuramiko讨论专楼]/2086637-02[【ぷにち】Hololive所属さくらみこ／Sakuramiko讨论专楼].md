@@ -884,3 +884,25 @@ wwe的BGM就直接用上了？
 
 刚才弄电路太消耗脑子现在困了
 
+
+
+*****
+
+####  holoan  
+##### 1582#         楼主| 发表于 2022-9-15 10:39
+
+发个直播预告推结果发现是抄周一的推特连直播间地址都没改
+
+看来还没睡醒
+
+
+
+*****
+
+####  Scardy  
+##### 1583#       发表于 2022-9-15 10:49
+
+什么铸币<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
