@@ -2800,3 +2800,22 @@ GPD WIN4官宣了。6寸1080P感觉还是略小。很快就开始预订 ，发�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  bypass  
+##### 228#         楼主| 发表于 2022-9-15 11:55
+
+ 本帖最后由 bypass 于 2022-9-15 11:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493824&amp;ptid=2086469" target="_blank">nilren 发表于 2022-9-15 11:10</a>
+
+GPD WIN4官宣了。6寸1080P感觉还是略小。很快就开始预订 ，发货没说，估计得明年。
+
+—— 来自 S1Fun ...</blockquote>
+补个官宣链接：[https://mp.weixin.qq.com/s/EHdebRucQjkNhR11C9xAvg](https://mp.weixin.qq.com/s/EHdebRucQjkNhR11C9xAvg)
+
+其实我还挺喜欢现在 Windows 掌机外观百花齐放的样子（虽然也是抄的别人）。 <blockquote>支持 Windows 10 / 11 和 SteamOS（Valve 公司提供系统适配）</blockquote>
+
+真的吗 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

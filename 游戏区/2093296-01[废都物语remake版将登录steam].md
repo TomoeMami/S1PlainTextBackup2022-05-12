@@ -1317,3 +1317,57 @@ nice爷爷弹舌.gif
 
 肯定要买了，希望能做的好一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 159#       发表于 2022-9-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57492946&amp;ptid=2093296" target="_blank">gcxonly 发表于 2022-9-15 10:12</a>
+对了，还有个问题是日本三大同人rpg，除了废都物语还有帽子世界，还有一个是什么，帽子世界玩了重制版以后 ...</blockquote>
+根据知名度，大概是elona吧
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  哈尔摩尼亚N  
+##### 160#       发表于 2022-9-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57492946&amp;ptid=2093296" target="_blank">gcxonly 发表于 2022-9-15 10:12</a>
+对了，还有个问题是日本三大同人rpg，除了废都物语还有帽子世界，还有一个是什么，帽子世界玩了重制版以后 ...</blockquote>
+风怒
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  guiminan  
+##### 161#       发表于 2022-9-15 11:57
+
+过年啦<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">但原版的免费BGM恐怕得全换了，新BGM不一定比旧的好
+
+*****
+
+####  guiminan  
+##### 162#       发表于 2022-9-15 11:57
+
+怒
+
+*****
+
+####  Vladimeow  
+##### 163#       发表于 2022-9-15 11:58
+
+好！可以补啦
+
+*****
+
+####  maiyunfei  
+##### 164#       发表于 2022-9-15 11:59
+
+🐮逼
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
