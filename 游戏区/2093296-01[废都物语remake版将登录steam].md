@@ -2148,3 +2148,22 @@ S1人才辈出啊，怎么都在这个小地方<img src="https://static.saraba1s
 
 泥潭就是牌面多<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Gmanager  
+##### 247#       发表于 2022-9-15 19:35
+
+在大学宿舍群里看到两位平常压根不玩jrpg的室友激烈讨论废都重制吃了一惊，一问才知道都是看了b站那个视频开始尝试游玩的，并且都给出了绝赞好评(虽然还没打完)
+看来这种推广还是有效果的嘛，之前还一度担心云玩家会激增<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  平昭·南宫司卿  
+##### 248#       发表于 2022-9-15 19:39
+
+以前干这行，大部分时候能找到人比获得授权难…
+
