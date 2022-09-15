@@ -2538,3 +2538,12 @@ elona算是rpg吗
 
 我要买好几份疯狂安利朋友玩<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinnfin  
+##### 281#       发表于 2022-9-16 07:39
+
+废都物语、帽子世界 、月夜响荡曲、 以及魔坏屋姐妹 被称为RM制的免费JRPG的“四大天王”
+
