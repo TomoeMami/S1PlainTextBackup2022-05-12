@@ -5461,3 +5461,34 @@ ufo是和索尼音乐混的，米哈游是和索尼游戏混的，索尼游戏�
 真要说的话，稻妻录ost的时候也和索尼音乐搭上了。
 不知道跟这次合作有几成关系。
 
+
+
+*****
+
+####  Alicest  
+##### 598#       发表于 2022-9-17 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518545&amp;ptid=2094448" target="_blank">Alfie刘 发表于 2022-9-17 01:21</a>
+来点为了草碧而草碧的文</blockquote>
+蓝p01bz搜搜不到处都是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+说起来这些手游带起的劣质刘备风属实一言难尽
+
+*****
+
+####  故事会  
+##### 599#       发表于 2022-9-17 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518513&amp;ptid=2094448" target="_blank">links8018 发表于 2022-9-17 01:17</a>
+
+yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销量一定能打的过 ...</blockquote>
+你说的这个本体只有移动端，作为能让索尼开通全平台又到处帮忙站台发奖的游戏，PS上盈利必然是不会低的，分成都拿的手软，至于日本PC就不考虑了。
+
+*****
+
+####  skyrakero  
+##### 600#       发表于 2022-9-17 01:49
+
+米桑这么扣的人，还有人觉得能买bd送ssr？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
