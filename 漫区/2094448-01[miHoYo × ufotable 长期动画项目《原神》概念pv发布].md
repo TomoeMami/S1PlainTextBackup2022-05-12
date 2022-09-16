@@ -4376,3 +4376,121 @@ khara早就给米哈游做过片子了，之前崩3 Reburn: II就是ProjectStudi
 当然即便逃掉很多海外收入，米哈游以后仍然会是纳税光荣户。 ...</blockquote>
 米哈游这种出海创收大户国家肯定盯得很紧，不管你逃税多少，只要给国内叫交了足够的钱，政府基本就睁一只眼闭一只眼了
 
+
+
+*****
+
+####  愚人节快乐  
+##### 492#       发表于 2022-9-16 23:52
+
+ 本帖最后由 愚人节快乐 于 2022-9-16 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517463&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-16 23:49</a>
+
+米哈游这种出海创收大户国家肯定盯得很紧，不管你逃税多少，只要给国内叫交了足够的钱，政府基本就睁一只 ...</blockquote>
+海外收入海外花，国内政府也没权去收的啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 493#       发表于 2022-9-16 23:53
+
+前有双城之战，后有赛博朋克边缘行者
+
+业界已经证明游戏改动画是能做成无出其右的杰作的
+
+你米要做出什么样的动画才能对得起自己现在的流量，好好想想吧
+
+*****
+
+####  wyq5486  
+##### 494#       发表于 2022-9-16 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">以如今原神的热度，加上飞碟社出品，搞搞捆绑销售动画出来应该随便破壁
+
+*****
+
+####  lyz1196  
+##### 495#       发表于 2022-9-16 23:55
+
+12+剧情放低期待，虚幻五后原神书请来更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 496#       发表于 2022-9-16 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517532&amp;ptid=2094448" target="_blank">单脚着地 发表于 2022-9-16 23:53</a>
+前有双城之战，后有赛博朋克边缘行者
+
+业界已经证明游戏改动画是能做成无出其右的杰作的
+
+你米要做出什么样的 ...</blockquote>
+先有龙之血水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 497#       发表于 2022-9-16 23:55
+
+ 本帖最后由 型月重工 于 2022-9-16 23:57 编辑 
+<blockquote>愚人节快乐 发表于 2022-9-16 23:52
+海外收入海外花，政府也没权去收的啊</blockquote>
+你说没权就没权？你是不是太小看我国政府铁拳了。拿纸现给你写张都可以。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Black-A2333  
+##### 498#       发表于 2022-9-16 23:57
+
+真年轻人的第一款二次元手游，这不就是人日本玩烂的那一套，我看其他地方好多人吹上天了，什么我氪的钱变成了音乐会，动画和更高的游戏质量<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">多接触点日本二次元手游也不会这么说了，尤其那些2.5次元偶像企划
+
+*****
+
+####  we89623  
+##### 499#       发表于 2022-9-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517522&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:52</a>
+海外收入海外花，国内政府也没权去收的啊</blockquote>
+你还是不了解老爷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alfie劉  
+##### 500#       发表于 2022-9-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517532&amp;ptid=2094448" target="_blank">单脚着地 发表于 2022-9-16 23:53</a>
+前有双城之战，后有赛博朋克边缘行者
+
+业界已经证明游戏改动画是能做成无出其右的杰作的
+
+你米要做出什么样的 ...</blockquote>
+选飞碟有点功利了，不像是要追求你说的那些的样子
+
+*****
+
+####  DET  
+##### 501#       发表于 2022-9-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517593&amp;ptid=2094448" target="_blank">Black-A2333 发表于 2022-9-16 23:57</a>
+真年轻人的第一款二次元手游，这不就是人日本玩烂的那一套，我看其他地方好多人吹上天了，什么我氪的钱变成 ...</blockquote>
+原友要是知道怎么会被称为原○的？<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿虚家的三味  
+##### 502#       发表于 2022-9-16 23:59
+
+真正的拯救漫区神作来了，到时候粉黑流量一起吃不是直接上天<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyq5486  
+##### 503#       发表于 2022-9-17 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517621&amp;ptid=2094448" target="_blank">阿虚家的三味 发表于 2022-9-16 23:59</a>
+
+真正的拯救漫区神作来了，到时候粉黑流量一起吃不是直接上天</blockquote>
+漫区复兴近在眼前<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
