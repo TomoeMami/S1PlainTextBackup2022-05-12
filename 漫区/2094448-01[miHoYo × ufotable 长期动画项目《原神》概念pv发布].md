@@ -3234,3 +3234,221 @@ fate不是蔡喵的梦想？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D-JoeII  
+##### 376#       发表于 2022-9-16 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516601&amp;ptid=2094448" target="_blank">Duc_d'_Muka 发表于 2022-9-16 22:46</a>
+
+我大原朝能斩鬼灭🐴，一统二次元天下否</blockquote>
+片子拍得好有机会,拍不好就算了
+
+王之力可以是x10,但多少x10还是要看动画本身拍得如何
+
+*****
+
+####  Ichthy  
+##### 377#       发表于 2022-9-16 22:51
+
+大伟作为资深二次元怎么找飞碟这种不靠谱的？
+
+*****
+
+####  摸鱼2号  
+##### 378#       发表于 2022-9-16 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516658&amp;ptid=2094448" target="_blank">Dmitry 发表于 2022-9-16 22:50</a>
+
+鸡厂不是说要做中国一流动画公司吗？怎么全外包了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">建议品鉴pako的事，外包不过是打工的，功劳始终还是mhy的，懂了吧
+
+*****
+
+####  防辐射的  
+##### 379#       发表于 2022-9-16 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516455&amp;ptid=2094448" target="_blank">swordreader 发表于 2022-9-16 22:35</a>
+
+你看过几部动画啊，市面上至少有80%的动画里植物就是树草花，动物就是马猫狗，更多的就是拿张风景 ...</blockquote>
+一开始来S1就是混漫区的，看过的动画应该有一两百部了。当然只是看个热闹，不懂门道。
+
+我是希望能就照着写实一点的漂亮风景做，别拘泥于还原设定了...这pv对还原游戏有种莫名其妙的执着，游戏里没有的动植物一概没有，有一种很虚的感觉。
+
+别的制作好一点的动画，背景细节都挺丰富的，至少有种真实的生活感。
+
+*****
+
+####  futamn  
+##### 380#       发表于 2022-9-16 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个概念片播风景播的束手束脚的感觉
+
+*****
+
+####  三点几，饮茶啦  
+##### 381#       发表于 2022-9-16 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516609&amp;ptid=2094448" target="_blank">菟原手兒奈 发表于 2022-9-16 22:47</a>
+看了几楼蚌埠住了，蔡喵是指蔡浩宇吗？国内是否只有原友会把老板叫得这么亲热啊 ...</blockquote>
+那没有，国内手游圈，人人都有爱称捏。
+比如大陆秀夫（
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  摸鱼2号  
+##### 382#       发表于 2022-9-16 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516676&amp;ptid=2094448" target="_blank">Ichthy 发表于 2022-9-16 22:51</a>
+
+大伟作为资深二次元怎么找飞碟这种不靠谱的？</blockquote>
+话题拉满就行了，最后做烂了也有人洗地怕什么
+
+*****
+
+####  绯田美琴  
+##### 383#       发表于 2022-9-16 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516609&amp;ptid=2094448" target="_blank">菟原手兒奈 发表于 2022-9-16 22:47</a>
+
+看了几楼蚌埠住了，蔡喵是指蔡浩宇吗？国内是否只有原友会把老板叫得这么亲热啊 ...</blockquote>
+那某羽中哥哥是？
+
+*****
+
+####  小小雪空  
+##### 384#       发表于 2022-9-16 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516642&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-9-16 22:49</a>
+
+管人痴里米黑有点多，不建议引流。到时候漫区就是战场。</blockquote>
+有点多×
+
+国内99%黑原流量都是由管人痴提供的O
+
+*****
+
+####  weary11  
+##### 385#       发表于 2022-9-16 22:54
+
+只要战斗不是放光炮打铁就行。
+
+*****
+
+####  MaxFOrder  
+##### 386#       发表于 2022-9-16 22:55
+
+pv本身没什么感觉，看后续了。有些人也不要贷款吃屎，除非急着想去广电举报的是你本人
+
+*****
+
+####  bububupupupu  
+##### 387#       发表于 2022-9-16 22:55
+
+加的国产动画q群可都在感叹这块肥肉终究还是落日本人嘴里了呢 谁让米桑念旧呢
+
+*****
+
+####  愚人节快乐  
+##### 388#       发表于 2022-9-16 22:55
+
+ 本帖最后由 愚人节快乐 于 2022-9-16 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516601&amp;ptid=2094448" target="_blank">Duc_d'_Muka 发表于 2022-9-16 22:46</a>
+
+我大原朝能斩鬼灭🐴，一统二次元天下否</blockquote>
+大哉干原（神），二次元之始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 389#       发表于 2022-9-16 22:56
+
+反正我不看好这个项目，日本人最爱坑中国人的easymoney，米忽悠又是个没逼数的
+
+*****
+
+####  快乐好难123  
+##### 390#       发表于 2022-9-16 22:56
+
+ 本帖最后由 快乐好难123 于 2022-9-16 22:58 编辑 
+
+锁妖塔的又闻着味来了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">算了就当拯救漫区了
+
+
+
+*****
+
+####  Ichthy  
+##### 391#       发表于 2022-9-16 22:56
+
+如果真很早就做了不可能只有个概念pv这种东西，我倾向应该是最近定下的。考虑现在飞碟主力在做鬼灭，期望值不高。
+
+*****
+
+####  兰开夏  
+##### 392#       发表于 2022-9-16 22:57
+
+这两人都是骨灰二次元
+
+*****
+
+####  yanayosihana  
+##### 393#       发表于 2022-9-16 22:57
+
+拯救漫区流量来了
+
+*****
+
+####  封印的右手  
+##### 394#       发表于 2022-9-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516609&amp;ptid=2094448" target="_blank">菟原手兒奈 发表于 2022-9-16 22:47</a>
+看了几楼蚌埠住了，蔡喵是指蔡浩宇吗？国内是否只有原友会把老板叫得这么亲热啊 ...</blockquote>
+因为这蔡浩宇（早年）说话经常结尾带“喵”，所以外号就成了“蔡喵”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ursa  
+##### 395#       发表于 2022-9-16 22:58
+
+可以光明正大讨论O了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 396#       发表于 2022-9-16 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516789&amp;ptid=2094448" target="_blank">封印的右手 发表于 2022-9-16 22:57</a>
+
+因为这蔡浩宇（早年）说话经常结尾带“喵”，所以外号就成了“蔡喵”
+
+—— 来自 S1Fun ...</blockquote>
+竟然还有口癖的设定。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alfie劉  
+##### 397#       发表于 2022-9-16 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516609&amp;ptid=2094448" target="_blank">菟原手兒奈 发表于 2022-9-16 22:47</a>
+看了几楼蚌埠住了，蔡喵是指蔡浩宇吗？国内是否只有原友会把老板叫得这么亲热啊 ...</blockquote>
+他名字太普了，记不住本名。
+原u都是这两年引流来的，很多只认识大伟甚至连大伟都不认识
+
+*****
+
+####  sanae  
+##### 398#       发表于 2022-9-16 23:00
+
+这下门当户对咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最终质量我觉得还要看mhy对制作能干涉到什么程度
+
