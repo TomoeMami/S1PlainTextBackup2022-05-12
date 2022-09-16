@@ -4731,3 +4731,147 @@ ufo是和索尼音乐混的，米哈游是和索尼游戏混的，索尼游戏�
 米哈游这种出海创收大户国家肯定盯得很紧，不管你逃税多少，只要给国内叫交了足够的钱，政府基本就睁一只 ...</blockquote>
 哦，那之前被整改的四个角色是怎么回事呐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  单脚着地  
+##### 525#       发表于 2022-9-17 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517840&amp;ptid=2094448" target="_blank">mimighost 发表于 2022-09-17 00:16:25</a>
+对于mhy来说钱可真不是问题，或者是小问题
+
+但是要把游戏的叙事改成动漫还真不是一个小工作
+
+用旅行者走 ...</blockquote>我是觉得原这个游戏现在本身怎样都不是问题，lol那个设定乱七八糟各种缺失和吃书的玩意儿，法国佬能给你改这么一出戏来，还让玩家满意。说到底还是看你编剧和演出是不是真牛逼，真牛逼萝卜都能给你雕出花来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 526#       发表于 2022-9-17 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517892&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 00:20</a>
+
+这老哥也在玩？</blockquote>
+他一直有在玩的，也做过原神的视频，不止一期
+
+B站随便搜搜就有熟肉
+
+*****
+
+####  Ichthy  
+##### 527#       发表于 2022-9-17 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517522&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:52</a>
+海外收入海外花，国内政府也没权去收的啊</blockquote>
+那是旧时代了，CRS了解下。
+
+*****
+
+####  幽远ghofar  
+##### 528#       发表于 2022-9-17 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517684&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-17 00:03</a>
+
+那肯定是啦。不过，写张纸就干预市场，也有，毕竟在某片土地几张A4纸就能绕过立法直接干死某个行业，当时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">装啥纯呢，你没见识过洋人怎么干死的某手机厂商？甚至还能直接人身抓捕关上几年呢。
+
+*****
+
+####  Ichthy  
+##### 529#       发表于 2022-9-17 00:23
+
+在漫版还有人认为有钱就能请大手动画公司？
+
+*****
+
+####  诚司  
+##### 530#       发表于 2022-9-17 00:24
+
+所以漫区政治引流没人管吗
+
+还是只有反串黑不管<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 531#       发表于 2022-9-17 00:24
+
+ 本帖最后由 we89623 于 2022-9-17 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517895&amp;ptid=2094448" target="_blank">dqjsss 发表于 2022-9-17 00:20</a>
+哦，那之前被整改的四个角色是怎么回事呐</blockquote>
+孩子 你没发现这四个角色都是所谓非热度角色吗，当时女拳冲的最狠的人气角色甘雨现在屁事没有。
+
+什么意思？就是找四个免费非人气角色糊弄一下老爷我好交差。其他比这四个更加涩情的人气角色屁事没有。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 532#       发表于 2022-9-17 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517963&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-17 00:24</a>
+孩子 你没发现这四个角色都是所谓非热度角色吗，当时女拳冲的最狠的人气角色甘雨现在屁事没用。 ...</blockquote>
+我觉得那个下半身只穿裤袜的女巫人气挺高的，还出手办了吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愚人节快乐  
+##### 533#       发表于 2022-9-17 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517923&amp;ptid=2094448" target="_blank">幽远ghofar 发表于 2022-9-17 00:22</a>
+
+装啥纯呢，你没见识过洋人怎么干死的某手机厂商？甚至还能直接人身抓捕关上几年呢。
+
+ ...</blockquote>
+只能说人家至少有立个法，违法被抓，而且是抓外国人；哪像几页A4就能秒掉全行业，还是内部的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽远ghofar  
+##### 534#       发表于 2022-9-17 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517995&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-17 00:26</a>
+
+只能说人家至少有立个法，违法被抓，而且是抓外国人；哪像几页A4就能秒掉全行业，还是内部的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">行了，知道你这四月注册就-51鹅是怎么来的了
+
+*****
+
+####  愚人节快乐  
+##### 535#       发表于 2022-9-17 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517918&amp;ptid=2094448" target="_blank">Ichthy 发表于 2022-9-17 00:22</a>
+
+那是旧时代了，CRS了解下。</blockquote>
+CRS也是做做样子，G20内两大巨头在跨国公司全球避税上可是谈不到一起的
+
+*****
+
+####  愚人节快乐  
+##### 536#       发表于 2022-9-17 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518025&amp;ptid=2094448" target="_blank">幽远ghofar 发表于 2022-9-17 00:28</a>
+
+行了，知道你这四月注册&amp;#x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">知道就好。反正几页A4纸直接干掉一个行业是事实，那些大公司都明白谁才是这片土地的话事人
+
+*****
+
+####  whzfjk  
+##### 537#       发表于 2022-9-17 00:31
+
+从系统表现上看起来更像是主角幻化成别的角色，他们按道理也都有自己的生活或工作。不过白送时说的是邀请。
+
+*****
+
+####  绯夜殃雨  
+##### 538#       发表于 2022-9-17 00:31
+
+只要动画化，就肯定有宣传作用。当年情热传说那么无聊，我还是坚持看完了。我相信经过了鬼灭的洗礼，ufo应该拍不出那么无聊的动画了。
+
