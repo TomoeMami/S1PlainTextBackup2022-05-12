@@ -1408,3 +1408,33 @@ luna送了200个南瓜画了块宣传牌还给录了一段音频，音频内容�
 
 实物图
 
+
+
+*****
+
+####  rs5621  
+##### 1636#       发表于 2022-9-16 17:32
+
+<img src="https://img.saraba1st.com/forum/202209/16/173117e0a7a4bou475aa5o.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220916_172751_com.twitter.android.png</strong> (281.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 17:31 上传
+
+完了，连体人太多，点赞到1w2了
+
+呜呜不要放弃八字母
+
+*****
+
+####  holoan  
+##### 1637#         楼主| 发表于 2022-9-16 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了完了认真画个八字母没人看没人赞
+
+随便摸个七字母万赞
+
+咋差距这么大呢
+
