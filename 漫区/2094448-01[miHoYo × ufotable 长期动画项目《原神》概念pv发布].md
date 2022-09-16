@@ -1676,3 +1676,192 @@ op+ufo，好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.
 
 有生之年系列，必须顶
 
+
+
+*****
+
+####  starash  
+##### 197#       发表于 2022-9-16 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515587&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-9-16 21:36</a>
+
+怎么说？有好哥哥说说原神主线剧情怎么样吗</blockquote>
+12-
+
+*****
+
+####  fuck♂bili  
+##### 198#       发表于 2022-9-16 21:43
+
+这下看过的都是原友了捏
+
+*****
+
+####  rr1984  
+##### 199#       发表于 2022-9-16 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515652&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-16 21:42</a>
+
+不太行，相对好的部分也就普通水平，烂的部分就更别提了，稻妻主线虎头蛇尾逻辑硬伤。最近一年的文案有所 ...</blockquote>
+那就是说原这次合作准备是做日常番了
+
+*****
+
+####  Alicest  
+##### 200#       发表于 2022-9-16 21:43
+
+等下，要是以后原pv是ufo做的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+那这楼能算是小原楼嘛
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 201#       发表于 2022-9-16 21:44
+
+虽然不玩，不过对这个真没啥坏印象，因为它贡献了很多好用的本子<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rr1984  
+##### 202#       发表于 2022-9-16 21:45
+
+至少漫区活过来了，终于不是死气沉沉的
+
+*****
+
+####  螺旋卷钩生  
+##### 203#       发表于 2022-9-16 21:45
+
+主线前面很烂，3.0目前看着比前面好点。但是至少7国+古代王国来算，现在主线一半都没讲完，不好下结论<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新吾  
+##### 204#       发表于 2022-9-16 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏了，以后漫区要有第一部禁止讨论的动画了吗
+
+*****
+
+####  BallanceHZ  
+##### 205#       发表于 2022-9-16 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515510&amp;ptid=2094448" target="_blank">lilisipis 发表于 2022-9-16 21:32</a>
+要是动画在国内没有过审，原u会不会冲击广电呢</blockquote>
+广电这审核制度有没有这茬都该喷<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 206#       发表于 2022-9-16 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515587&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-09-16 21:36:47</a>
+怎么说？有好哥哥说说原神主线剧情怎么样吗</blockquote>基本是垃圾水平
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  最强惠酱  
+##### 207#       发表于 2022-9-16 21:47
+
+灭鬼斩马你⭕在所不辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这要是王之力什么咒术东京复仇者简直就是街边小喽啰
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  最强惠酱  
+##### 208#       发表于 2022-9-16 21:48
+
+灭鬼斩马你⭕在所不辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这要是王之力什么咒术东京复仇者简直就是街边小喽啰
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿姆罗二世  
+##### 209#       发表于 2022-9-16 21:48
+
+3.0写的还行，但是故事没完结不能下定论
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  wenze  
+##### 210#       发表于 2022-9-16 21:49
+
+占个座捏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  愚人节快乐  
+##### 211#       发表于 2022-9-16 21:49
+
+ 本帖最后由 愚人节快乐 于 2022-9-16 21:51 编辑 
+
+发展下去会不会原友才是婆罗门，而S1原婆罗门就只能在原楼外阴阳怪气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+简称除你婆籍？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有这个可能  
+##### 212#       发表于 2022-9-16 21:50
+
+占个座<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月独  
+##### 213#       发表于 2022-9-16 21:50
+
+请双方辩手有序入场
+
+*****
+
+####  M乔梦  
+##### 214#       发表于 2022-9-16 21:50
+
+还得看b站评论区
+
+*****
+
+####  Mchaos  
+##### 215#       发表于 2022-9-16 21:50
+
+箪食壶浆以迎王师<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">，谢谢你米桑
+
+*****
+
+####  zbdyg  
+##### 216#       发表于 2022-9-16 21:51
+
+动画做的差不多了在做几部电影
+
+*****
+
+####  M乔梦  
+##### 217#       发表于 2022-9-16 21:51
+
+还得看b站评论区
+
+*****
+
+####  阿姆罗二世  
+##### 218#       发表于 2022-9-16 21:52
+
+好
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
