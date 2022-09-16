@@ -5330,3 +5330,77 @@ yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销�
 
 漫区的流量有救啦<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alfie劉  
+##### 585#       发表于 2022-9-17 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518479&amp;ptid=2094448" target="_blank">阿姆罗二世 发表于 2022-9-17 01:13</a>
+先不贷款开香槟稻妻前期剧情也不错的，原神剧情都是愚人众出场过后崩的
+
+  -- 来自 能看大图的 Stag ...</blockquote>
+要不把愚人众的设定删了，大家装失忆吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remediosOlOOOO  
+##### 586#       发表于 2022-9-17 01:21
+
+成功常驻漫区！源批的优越感瞬间暴增！劲增！狂增！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alfie劉  
+##### 587#       发表于 2022-9-17 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518499&amp;ptid=2094448" target="_blank">编木马者死户口 发表于 2022-9-17 01:15</a>
+崩了×，压根他妈就没讲完√
+
+我的建议是不如为了草比而草比才诞生的那种文章 ...</blockquote>
+来点为了草碧而草碧的文
+
+*****
+
+####  Silencieuse  
+##### 588#       发表于 2022-9-17 01:22
+
+大半夜你们聊这么起劲 已经可以想象以后来点情报来个PV就车个几百楼的样子了 我简直迫不及待想看到开播<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  静夜观星  
+##### 589#       发表于 2022-9-17 01:23
+
+沾上米桑肯定不会好的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smallstop  
+##### 590#       发表于 2022-9-17 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515191&amp;ptid=2094448" target="_blank">Tnzbt 发表于 2022-9-16 21:17</a>
+草e灭化</blockquote>
+醒醒，这俩已经过去式了
+
+*****
+
+####  sjbssd  
+##### 591#       发表于 2022-9-17 01:27
+
+这就是钱的力量啊兄弟们
+
+*****
+
+####  yujiacyl  
+##### 592#       发表于 2022-9-17 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518513&amp;ptid=2094448" target="_blank">links8018 发表于 2022-9-17 01:17</a>
+yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销量一定能打的过 ...</blockquote>
+米哈游真要卖盘子肯定是全球一起发行，这两个游戏全球玩家数量差了一个量级的<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
