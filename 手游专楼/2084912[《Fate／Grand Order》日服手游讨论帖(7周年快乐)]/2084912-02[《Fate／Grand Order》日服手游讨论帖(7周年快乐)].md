@@ -12366,3 +12366,24 @@ wrba单红就判死刑了，至少俩ba混吧
 
 一个基础形态从头打到尾、外传发了个改模皮套的吃瘪暗之副骑Yamatai Ruler Kick Miko<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2611#       发表于 2022-9-16 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516176&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-16 22:16</a>
+
+有基础、过渡、最终三大形态，开天辟地的华丽光之主骑——Yamatai Ruler Punch Miko
+
+一个基础形 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么地狱姐妹
+
+*****
+
+####  黑上シグマ  
+##### 2612#       发表于 2022-9-16 22:45
+
+不会吧，开始卡楼了？
+

@@ -3033,3 +3033,204 @@ fate不是蔡喵的梦想？
 前两次模型被回炉和谐不也没事，你当国内是谁话事人呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就是知道国内谁话事才这样说的阿。。。等一波收回《原神》版号
 
+
+
+*****
+
+####  rr1984  
+##### 353#       发表于 2022-9-16 22:40
+
+我还以为大伟哥二次元浓度很高
+
+*****
+
+####  iopkliopkl  
+##### 354#       发表于 2022-9-16 22:41
+
+飞碟社能有档期的吗，不会给新人练手糊弄吧
+
+*****
+
+####  Alicest  
+##### 355#       发表于 2022-9-16 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516474&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-16 22:37</a>
+
+为啥会觉得广电卡这个</blockquote>
+1.光腍日常不当人
+
+2.总有人要害哥哥
+
+*****
+
+####  愚人节快乐  
+##### 356#       发表于 2022-9-16 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516480&amp;ptid=2094448" target="_blank">方舟售票员 发表于 2022-9-16 22:38</a>
+
+原神这种表面卡通偏儿童风的，不正是上面最喜欢的儿童向动画片吗
+
+又不带血又不断肢，过审稳的一B好吧，至 ...</blockquote>
+不能这样说。不能推测克鲁苏的想法，万一又一张纸干掉一个行业呢<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三尖酸努努  
+##### 357#       发表于 2022-9-16 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516487&amp;ptid=2094448" target="_blank">狂鸟渡渡 发表于 2022-9-16 22:38</a>
+为什么都在阴阳怪气 好可怕...... 后悔花钱来这个论坛了。</blockquote>
+第一次逛s1？巨魔论坛是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 358#       发表于 2022-9-16 22:42
+
+漫区有救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rr1984  
+##### 359#       发表于 2022-9-16 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516487&amp;ptid=2094448" target="_blank">狂鸟渡渡 发表于 2022-9-16 22:38</a>
+
+为什么都在阴阳怪气 好可怕...... 后悔花钱来这个论坛了。</blockquote>
+看原还是得去手游专楼
+
+*****
+
+####  sandro  
+##### 360#       发表于 2022-9-16 22:44
+
+幽浮桌动画不看好啊，文戏肯定要烂
+
+
+
+*****
+
+####  摸鱼2号  
+##### 361#       发表于 2022-9-16 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516562&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-16 22:44</a>
+
+幽浮桌动画不看好啊，文戏肯定要烂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，烂了就是鬼子不上心，又洗一波粉，不亏
+
+*****
+
+####  愚人节快乐  
+##### 362#       发表于 2022-9-16 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516528&amp;ptid=2094448" target="_blank">Alicest 发表于 2022-9-16 22:41</a>
+
+1.光腍日常不当人
+
+2.总有人要害哥哥</blockquote>
+对上负责，上层一句话卡死都有可能。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 363#       发表于 2022-9-16 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">漫区流量赶上卓明谷、超越管人区、强于游戏区就在今天，是原神拯救了业界，是业界的希望之光
+
+*****
+
+####  nemuru_baka  
+##### 364#       发表于 2022-9-16 22:45
+
+做好了看婆罗门翻车，做烂了喷〇和飞碟桌，有点爽。
+
+*****
+
+####  亚瑟邓特  
+##### 365#       发表于 2022-9-16 22:46
+
+我靠300楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Duc_d'_Muka  
+##### 366#       发表于 2022-9-16 22:46
+
+我大原朝能斩鬼灭🐴，一统二次元天下否来自: iPhone客户端
+
+*****
+
+####  mimighost  
+##### 367#       发表于 2022-9-16 22:47
+
+暗无天日，不见五指
+
+慢区复兴，还看我原
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  菟原手兒奈  
+##### 368#       发表于 2022-9-16 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯田美琴  
+##### 369#       发表于 2022-9-16 22:47
+
+看这架势要不把v区也迎回来算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 370#       发表于 2022-9-16 22:48
+
+<blockquote>狂鸟渡渡 发表于 2022-9-16 22:38
+为什么都在阴阳怪气 好可怕...... 后悔花钱来这个论坛了。</blockquote>
+谁叫祂找的日常被阴阳怪气的ufo
+
+*****
+
+####  花开安菲路  
+##### 371#       发表于 2022-9-16 22:48
+
+看了这楼nbht还有这档子事啊，真是纯纯的小丑，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 372#       发表于 2022-9-16 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔不亲热吗
+
+*****
+
+####  rr1984  
+##### 373#       发表于 2022-9-16 22:49
+
+管人痴里米黑有点多，不建议引流。到时候漫区就是战场。
+
+*****
+
+####  愚人节快乐  
+##### 374#       发表于 2022-9-16 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516609&amp;ptid=2094448" target="_blank">菟原手兒奈 发表于 2022-9-16 22:47</a>
+
+看了几楼蚌埠住了，蔡喵是指蔡浩宇吗？国内是否只有原友会把老板叫得这么亲热啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">有粉必有黑，蔡浩宇跌落神坛的时候就变菜狗了
+
+*****
+
+####  Dmitry  
+##### 375#       发表于 2022-9-16 22:50
+
+鸡厂不是说要做中国一流动画公司吗？怎么全外包了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
