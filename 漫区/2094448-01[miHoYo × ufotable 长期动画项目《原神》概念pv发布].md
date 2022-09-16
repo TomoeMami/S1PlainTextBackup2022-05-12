@@ -4875,3 +4875,113 @@ CRS也是做做样子，G20内两大巨头在跨国公司全球避税上可是�
 
 只要动画化，就肯定有宣传作用。当年情热传说那么无聊，我还是坚持看完了。我相信经过了鬼灭的洗礼，ufo应该拍不出那么无聊的动画了。
 
+
+
+*****
+
+####  型月重工  
+##### 539#       发表于 2022-9-17 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518041&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-17 00:30</a>
+
+知道就好。反正几页A4纸直接干掉一个行业是事实，那些大公司都明白谁才是这片土地的话事人 ...</blockquote>
+这是社会主义中国，吃人资本家滚出去吧。
+
+*****
+
+####  sandro  
+##### 540#       发表于 2022-9-17 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517994&amp;ptid=2094448" target="_blank">DET 发表于 2022-9-17 00:26</a>
+
+我觉得那个下半身只穿裤袜的女巫人气挺高的，还出手办了吧
+
+—— 来自 S1Fun ...</blockquote>
+确实，搞得现在我玩外服在剧情动画里也只能看河蟹版
+
+
+
+*****
+
+####  小小雪空  
+##### 541#       发表于 2022-9-17 00:31
+
+正经讨论一下，老实说，这东西能动画化的确几震惊的，不过想了想，感觉主角又是对我来说毫无代入感的男性（明明游戏可以选两个性别，一动画化就变成只有男主角），感觉真出了也是被我无视的命……×
+
+*****
+
+####  we89623  
+##### 542#       发表于 2022-9-17 00:32
+
+ 本帖最后由 we89623 于 2022-9-17 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517994&amp;ptid=2094448" target="_blank">DET 发表于 2022-9-17 00:26</a>
+我觉得那个下半身只穿裤袜的女巫人气挺高的，还出手办了吧
+
+—— 来自 S1Fun ...</blockquote>
+莫娜人气再高也是普通池子就能抽到的角色，基本是可以说是人手一只的免费角色了。跟甘雨比人气差远了。
+
+还有就算只比普通池子角色人气，莫娜也比不过刻晴
+
+*****
+
+####  愚人节快乐  
+##### 543#       发表于 2022-9-17 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518054&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-17 00:31</a>
+
+确实，搞得现在我玩外服在剧情动画里也只能看河蟹版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">开服玩家有送补偿服装
+
+*****
+
+####  DET  
+##### 544#       发表于 2022-9-17 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518067&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-17 00:32</a>
+莫娜人气再高也是普通池子就能抽到的角色，基本是可以说是人手一只的免费角色了。跟甘雨比人气差远了。 ...</blockquote>
+确实还是黑丝胸罩的冲击力比较大<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sandro  
+##### 545#       发表于 2022-9-17 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517593&amp;ptid=2094448" target="_blank">Black-A2333 发表于 2022-9-16 23:57</a>
+
+真年轻人的第一款二次元手游，这不就是人日本玩烂的那一套，我看其他地方好多人吹上天了，什么我氪的钱变成 ...</blockquote>
+最气的是我fgo课的金都变成了什么垃圾，希望原神不要这样
+
+*****
+
+####  mimighost  
+##### 546#       发表于 2022-9-17 00:38
+
+giguk很搞笑
+
+最近直播了几次原神了，还说自己复吸了，笑死我了
+
+结果拿着刻师傅和77打通了璃月主线，简直崩不住
+
+*****
+
+####  枪聆弹语  
+##### 547#       发表于 2022-9-17 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LGA FGO区被跳脸了，能不能有朝一日能看看月原大战啊
+
+*****
+
+####  whzfjk  
+##### 548#       发表于 2022-9-17 00:38
+
+往好了想其实有莫娜的剧情过场并不多
+
+*****
+
+####  we89623  
+##### 549#       发表于 2022-9-17 00:40
+
+那就怪fate离开ufo那堆动画拍的是什么妖魔鬼怪了当年月厨还嫌弃飞碟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
