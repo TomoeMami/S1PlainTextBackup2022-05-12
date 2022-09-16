@@ -6103,3 +6103,40 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  5353  
+##### 661#       发表于 2022-9-17 07:32
+
+<blockquote>月夜凝雪 发表于 2022-9-17 07:30
+十月漫改虽然有31部，但原创也有16部，游戏改和小说改加起来才是原创的数量
+
+—— 来自 Xiaomi M2006J10C ...</blockquote>
+重新定义原创？
+
+*****
+
+####  月夜凝雪  
+##### 662#       发表于 2022-9-17 07:37
+
+ 本帖最后由 月夜凝雪 于 2022-9-17 07:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519362&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 07:32</a>
+
+重新定义原创？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/17/074002cczu7mjbceu70jnc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-09-17-07-34-22-370_tv.danmaku.bili.jpg</strong> (274.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 07:40 上传
+
+【【秋季新番】2022年10月新番介绍-哔哩哔哩】 [https://b23.tv/iagm7Cj](https://b23.tv/iagm7Cj)
+
+你难道要说B没买的等于没有？
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
