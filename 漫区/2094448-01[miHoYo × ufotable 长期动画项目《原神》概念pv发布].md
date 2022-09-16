@@ -4619,3 +4619,115 @@ khara早就给米哈游做过片子了，之前崩3 Reburn: II就是ProjectStudi
 
 随随便便就拿到了10年长期饭票
 
+
+
+*****
+
+####  MaxFOrder  
+##### 516#       发表于 2022-9-17 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">汴，接着汴，这下看出来究竟是谁比较喜欢漫区zz引流了
+
+*****
+
+####  bartholo4  
+##### 517#       发表于 2022-9-17 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517766&amp;ptid=2094448" target="_blank">广东侠 发表于 2022-9-17 00:10</a>
+我觉得米哈游现在手里的钱请扳机是能请的，说实话多花点钱fortiche我觉得也是能请到的，选UFO估计就是准备 ...</blockquote>
+同意
+飞碟做不出花儿来
+心疼自己氪的648
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  不灭人形  
+##### 518#       发表于 2022-9-17 00:14
+
+ 本帖最后由 不灭人形 于 2022-9-17 00:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517386&amp;ptid=2094448" target="_blank">percy1234 发表于 2022-9-16 23:43</a>
+
+其实我更好奇是走什么门路拉到ufo的，印象里ufo并不是那么好请的来着。
+
+是不是又和索尼py了 ...</blockquote>
+ufo是和索尼音乐混的，米哈游是和索尼游戏混的，索尼游戏和索尼音乐两个部门不搞内斗吗？
+
+这种长期合作肯定要和ANIPLEX谈的吧，我不太信米哈游能直接越过索尼游戏和ANIPLEX直接找UFO谈
+
+毕竟占动画产能的，UFO做动画都要他A爹点头。
+
+*****
+
+####  mimighost  
+##### 519#       发表于 2022-9-17 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517532&amp;ptid=2094448" target="_blank">单脚着地 发表于 2022-9-16 23:53</a>
+
+前有双城之战，后有赛博朋克边缘行者
+
+业界已经证明游戏改动画是能做成无出其右的杰作的
+
+你米要做出什么样的 ...</blockquote>
+对于mhy来说钱可真不是问题，或者是小问题
+
+但是要把游戏的叙事改成动漫还真不是一个小工作
+
+用旅行者走路绝对是一小撮，从美术和机制上大家都喜欢用限定代步。但是动画基本上只可能是旅行者第一视角，这就有冲突，而且容易烦躁。
+
+游戏里面的旅行者也是怪异的存在，前期当哑巴，2.x之后越来越多内心独白，3.0直接有语音了，让你带入也不让你带入
+
+*****
+
+####  mimighost  
+##### 520#       发表于 2022-9-17 00:17
+
+扳机那个画风
+
+做原不合适，ufo这种漂白工业风其实被争议的可能性最小，比较保险
+
+*****
+
+####  z_shaw  
+##### 521#       发表于 2022-9-17 00:17
+
+这动画做得好的话，是比游戏更好看的，动画比游戏更有魅力
+
+*****
+
+####  名津流  
+##### 522#       发表于 2022-9-17 00:19
+
+前段时间的原神游戏内不定期的问卷调查里有这么一题：
+
+<img src="https://img.saraba1st.com/forum/202209/17/001839cztynyyyc5yykd8b.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220917001715.png</strong> (25.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 00:18 上传
+
+说明已经在做用户调研了
+
+*****
+
+####  哈里-谢顿  
+##### 523#       发表于 2022-9-17 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515406&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-16 21:27</a>
+
+毒舌老外已经绷不住了</blockquote>
+这老哥也在玩？
+
+*****
+
+####  dqjsss  
+##### 524#       发表于 2022-9-17 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517463&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-16 23:49</a>
+
+米哈游这种出海创收大户国家肯定盯得很紧，不管你逃税多少，只要给国内叫交了足够的钱，政府基本就睁一只 ...</blockquote>
+哦，那之前被整改的四个角色是怎么回事呐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
