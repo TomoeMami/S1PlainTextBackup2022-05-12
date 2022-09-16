@@ -9441,3 +9441,14 @@ iwa怎么把那条我不关心大箱崛起我只在乎小v温饱的推删了<img
 
 听郡台还能听到cn崛起论（褒义），真的好乐啊，据她说就是，“中国的手游真的好劲，工商价格都不是两倍这个程度了，超高，每天睡前对着cn的方向感谢yostar”。我也谢谢悠星爹这个比赛，比我想的要欢乐十倍，希望这份欢乐能延续到喷喷赛…
 
+
+
+*****
+
+####  winda  
+##### 17361#       发表于 2022-9-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57508998&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-16 12:42</a>
+听郡台还能听到cn崛起论（褒义），真的好乐啊，据她说就是，“中国的手游真的好劲，工商价格都不是两倍这个 ...</blockquote>
+nrk一样吹过cn的es谷和公式绘，甚至吹到了想去cn线下活动的地步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文化输出全靠手游
+

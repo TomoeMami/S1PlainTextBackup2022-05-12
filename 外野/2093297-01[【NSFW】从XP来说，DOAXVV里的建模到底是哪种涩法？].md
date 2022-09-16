@@ -687,3 +687,12 @@ omega边女人设计的也不错啊
 <img src="https://s1.ax1x.com/2022/09/16/vzRphF.jpg" referrerpolicy="no-referrer">
 <img src="https://s1.ax1x.com/2022/09/16/vzRsH0.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  51569  
+##### 70#       发表于 2022-9-16 15:19
+
+我就想说5代之后铃音就不好看了，画风真实点就不能还原二代铃音那种娃娃脸傲娇妹吗？还是紫毛太二次元了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
