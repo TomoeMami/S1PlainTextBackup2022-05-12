@@ -1689,3 +1689,17 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  hosino  
+##### 186#       发表于 2022-9-16 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57508879&amp;ptid=2092342" target="_blank">acg_gyancDF 发表于 2022-9-16 12:30</a>
+
+这意思是全平台，xbox也上？真的假的？
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原定全平台，现在索尼买了主机独占了，pc时间未知
+

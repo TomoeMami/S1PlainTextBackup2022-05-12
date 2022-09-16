@@ -2616,3 +2616,12 @@ elona算是rpg吗
 
 废都物语就是当年的年度最佳フリゲ，其他的说法都太夸张了。
 
+
+
+*****
+
+####  AeonsTorn  
+##### 289#       发表于 2022-9-16 13:46
+
+有没有针对只想看剧情的玩家的保姆级攻略啊，现在玩游戏已经越来越不想动脑子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
