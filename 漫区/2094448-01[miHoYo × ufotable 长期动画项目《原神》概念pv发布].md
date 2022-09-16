@@ -3884,3 +3884,225 @@ b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作�
 b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">时代变了，老东西该爆金币啦
 
+
+
+*****
+
+####  三尖酸努努  
+##### 439#       发表于 2022-9-16 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517074&amp;ptid=2094448" target="_blank">Arsaces 发表于 2022-9-16 23:18</a>
+进楼看破防乐子，笑死我了
+那个孤勇者的真是要笑死我
+谁是急急国王？</blockquote>
+这楼哪有破防乐子，不都是乐子人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  healeveryone  
+##### 440#       发表于 2022-9-16 23:22
+
+什么叫做时代的车轮滚滚向前啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唯美924  
+##### 441#       发表于 2022-9-16 23:22
+
+不知道和xb2xb3的辣鸡剧情相比如何
+
+*****
+
+####  leleq  
+##### 442#       发表于 2022-9-16 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517076&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-16 23:18</a>
+
+现在游戏里是中日韩英四国配音</blockquote>
+它国语言版谁发呢 果然是要上网飞吧
+
+*****
+
+####  枪聆弹语  
+##### 443#       发表于 2022-9-16 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫区生面孔开始增加
+
+*****
+
+####  swordreader  
+##### 444#       发表于 2022-9-16 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517124&amp;ptid=2094448" target="_blank">唯美924 发表于 2022-9-16 23:22</a>
+
+不知道和xb2xb3的辣鸡剧情相比如何</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/16/232334h2labyycuaaep2nl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220916232323.png</strong> (50.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 23:23 上传
+
+*****
+
+####  三点几，饮茶啦  
+##### 445#       发表于 2022-9-16 23:24
+
+ 本帖最后由 三点几，饮茶啦 于 2022-9-16 23:25 编辑 
+
+噗，本子果然还是对核废水这件事暗搓搓的不爽，但又不好明说<img src="https://p.sda1.dev/7/5051b49d2155e609df061f4bb616129c/CMP_20220916232438093.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sandro  
+##### 446#       发表于 2022-9-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517008&amp;ptid=2094448" target="_blank">消防 发表于 2022-9-16 23:13</a>
+那我不同意，mhy首先2D修了pako的祖传歪脸，再成功3D画风统一建模，接着做动捕赋予角色动作特色，尤其最后 ...</blockquote>
+感觉提主任的人物塑造有80%已经由无穷小亮完成了。。。。
+
+*****
+
+####  唯美924  
+##### 447#       发表于 2022-9-16 23:25
+
+<blockquote>swordreader 发表于 2022-9-16 23:23
+</blockquote>
+fgo动画节奏改的差，原作后面几章可并不差，至少比xb2强出一个xb3吧
+
+*****
+
+####  haze.l  
+##### 448#       发表于 2022-9-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516138&amp;ptid=2094448" target="_blank">桥田至 发表于 2022-9-16 22:15</a>
+
+概念PV而已 究竟怎样还得看正式PV</blockquote>
+[https://www.bilibili.com/video/BV1ut411i7kJ](https://www.bilibili.com/video/BV1ut411i7kJ) 概念PV做得好的已经死了，这就是背叛ufo的代价吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快乐好难123  
+##### 449#       发表于 2022-9-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517036&amp;ptid=2094448" target="_blank">用户名就算了吧 发表于 2022-9-16 23:15</a>
+
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
+没有数字支撑的商业动画算不得英雄，空境什么cylx，打得过鬼灭一根毛🐎
+
+*****
+
+####  龙之峰  
+##### 450#       发表于 2022-9-16 23:26
+
+mhy缺少制作动画的经验，动画脚本还是分镜演出都缺少，飞碟社能出多少力难说，而且飞碟社的策略也不能说很强，反正我是经常感觉飞碟社的动画无聊。感觉这个动画前期会不太行，做一段时间后才会渐入佳境。
+
+时间的话，快的明年能出，慢的就得24年了。
+
+
+
+*****
+
+####  Nagoya  
+##### 451#       发表于 2022-9-16 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫区在今天亡了，什么霸权，遇到原都是渣渣
+
+*****
+
+####  acejoe  
+##### 452#       发表于 2022-9-16 23:26
+
+米哈游不是刚被爆出买金融产品投资被黑了么
+
+*****
+
+####  MONSTERS  
+##### 453#       发表于 2022-9-16 23:27
+
+ 本帖最后由 MONSTERS 于 2022-9-16 23:29 编辑 
+
+喷了，这下冻鳗伏地魔要在各大宅宅社区刷脸了
+
+话说以后有人敢在漫区砖楼外面水〇的角色和涩图什么的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六十分的美好  
+##### 454#       发表于 2022-9-16 23:27
+
+感觉这楼撑不到第一部番剧动画出来
+
+*****
+
+####  rr1984  
+##### 455#       发表于 2022-9-16 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517173&amp;ptid=2094448" target="_blank">acejoe 发表于 2022-9-16 23:26</a>
+
+米哈游不是刚被爆出买金融产品投资被黑了么</blockquote>
+几个月的事了吧，我也不知道真假
+
+*****
+
+####  XIEGC  
+##### 456#       发表于 2022-9-16 23:28
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 457#       发表于 2022-9-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517173&amp;ptid=2094448" target="_blank">acejoe 发表于 2022-9-16 23:26</a>
+
+米哈游不是刚被爆出买金融产品投资被黑了么</blockquote>
+五矿那档子事？好像说是信托暴雷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">米哈游好像说投了几十个亿在里面
+
+*****
+
+####  waterstars  
+##### 458#       发表于 2022-9-16 23:29
+
+2022年一共发生两件大事
+
+俄罗斯攻击乌克兰
+
+oo区攻击xx区
+
+*****
+
+####  rar1536770  
+##### 459#       发表于 2022-9-16 23:30
+
+超长篇？
+
+*****
+
+####  愚人节快乐  
+##### 460#       发表于 2022-9-16 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517171&amp;ptid=2094448" target="_blank">Nagoya 发表于 2022-9-16 23:26</a>
+
+漫区在今天亡了，什么霸权，遇到原都是渣渣</blockquote>
+这叫新朝雅政<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">那里亡了
+
+*****
+
+####  sdh45e6  
+##### 461#       发表于 2022-9-16 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nagoya  
+##### 462#       发表于 2022-9-16 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不配拥有名字
+
