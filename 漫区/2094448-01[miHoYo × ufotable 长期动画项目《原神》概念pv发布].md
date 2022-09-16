@@ -6140,3 +6140,26 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  萝莉的伙伴  
+##### 663#       发表于 2022-9-17 07:45
+
+乐，游戏丢了两月了，居然出动画了，楼盖的真快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  5353  
+##### 664#       发表于 2022-9-17 07:49
+
+<blockquote>月夜凝雪 发表于 2022-9-17 07:37
+【【秋季新番】2022年10月新番介绍-哔哩哔哩】 https://b23.tv/iagm7Cj
+
+你难道要说B没买的等于没有？
+</blockquote>
+你说的 游戏改和小说改加起来才是原创的数量。我理解的是 原创＝小说改+游戏改，重新定义什么是原创。
+
