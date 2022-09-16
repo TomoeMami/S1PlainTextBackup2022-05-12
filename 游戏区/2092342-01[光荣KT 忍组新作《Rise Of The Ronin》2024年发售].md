@@ -1676,3 +1676,16 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
 这个新引擎粒子特效还是老的，看着非常割裂，包括ffo和卧龙
 
+
+
+*****
+
+####  acg_gyancDF  
+##### 185#       发表于 2022-9-16 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57476515&amp;ptid=2092342" target="_blank">星海坊主 发表于 2022-9-14 08:27</a>
+隔壁都说了这就是光脱自认的销量500万的那个作品（5ch也有相关讨论），彻底盖棺定论的事情你们有啥好乱猜 ...</blockquote>
+这意思是全平台，xbox也上？真的假的？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
