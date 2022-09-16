@@ -4494,3 +4494,128 @@ khara早就给米哈游做过片子了，之前崩3 Reburn: II就是ProjectStudi
 真正的拯救漫区神作来了，到时候粉黑流量一起吃不是直接上天</blockquote>
 漫区复兴近在眼前<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  naynaydes  
+##### 504#       发表于 2022-9-17 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雷攻姛人  
+##### 505#       发表于 2022-9-17 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517621&amp;ptid=2094448" target="_blank">阿虚家的三味 发表于 2022-9-16 23:59</a>
+真正的拯救漫区神作来了，到时候粉黑流量一起吃不是直接上天</blockquote>
+为什么要到时候，3个小时500楼，现在没上天吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Labborn  
+##### 506#       发表于 2022-9-17 00:02
+
+单纯讨论这个pv，只能说真遗憾
+远景像游戏，看得出一条条的3d模型，还有米式画风，近景像fate，3d巨拉，2d巨精细
+人物帧数巨低，一开始我看到一顿一顿的派蒙，我：说不定是特色，嗯
+然后看到俩主角，近景，fps10，我：说不定是特色，不是吧？
+再看到俩主角远景，直接搬3d木头人，我直接就一个大无语了家人们
+还好这就是个pv，还是有很大的希望的不是吗？不过别照搬游戏剧情，稍微改一点点吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咕噜咕噜立  
+##### 507#       发表于 2022-9-17 00:02
+
+已经看见o批在b站挂婆罗门了，这下乐子大了
+
+*****
+
+####  愚人节快乐  
+##### 508#       发表于 2022-9-17 00:03
+
+ 本帖最后由 愚人节快乐 于 2022-9-17 00:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517575&amp;ptid=2094448" target="_blank">型月重工 发表于 2022-9-16 23:55</a>
+
+你说没权就没权？你是不是太小看我国政府铁拳了。拿纸现给你写张都可以。 ...</blockquote>
+那肯定是啦。不过，写张纸就干预市场，也有，毕竟在某片土地几张A4纸就能绕过立法直接干死某个行业，当时海外都惊呆了————在经济上还能怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+有了这个先例后各行各业尤其是被关注着的无不变成寒蝉，然后想法设法在海外造个窝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与天争锋_LZ  
+##### 509#       发表于 2022-9-17 00:05
+
+谨慎看好，另外我不认为动画化的是游戏剧情
+
+*****
+
+####  单脚着地  
+##### 510#       发表于 2022-9-17 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517615&amp;ptid=2094448" target="_blank">Alfie刘 发表于 2022-9-16 23:58</a>
+
+选飞碟有点功利了，不像是要追求你说的那些的样子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">选飞碟我估计还是评估下来能保整完成吧再加上画风算合适，主要还是编剧。如果还是前三国的那种低幼剧情谁来都是白给。动画的剧情能保证支线森林书那种水准就算不丑了。
+
+
+
+*****
+
+####  月夜凝雪  
+##### 511#       发表于 2022-9-17 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517593&amp;ptid=2094448" target="_blank">Black-A2333 发表于 2022-9-16 23:57</a>
+
+真年轻人的第一款二次元手游，这不就是人日本玩烂的那一套，我看其他地方好多人吹上天了，什么我氪的钱变成 ...</blockquote>
+不也有神击的巴哈姆特
+
+*****
+
+####  percy1234  
+##### 512#       发表于 2022-9-17 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517434&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-16 23:46</a>
+20年末就有消息说挺多动画公司都给mhy打电话谈过
+
+和索尼py也是找A1啊</blockquote>
+那还是我保守了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟原神后mhy的海外运营和以前相比简直直接升维
+
+*****
+
+####  umi0-0  
+##### 513#       发表于 2022-9-17 00:08
+
+乐子人要赢麻了
+
+—— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  广东侠  
+##### 514#       发表于 2022-9-17 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517532&amp;ptid=2094448" target="_blank">单脚着地 发表于 2022-09-16 23:53:20</a>
+前有双城之战，后有赛博朋克边缘行者
+
+业界已经证明游戏改动画是能做成无出其右的杰作的
+
+你米要做出什么样的 ...</blockquote>我觉得米哈游现在手里的钱请扳机是能请的，说实话多花点钱fortiche我觉得也是能请到的，选UFO估计就是准备做个粉丝向的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  mimighost  
+##### 515#       发表于 2022-9-17 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517456&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-16 23:48</a>
+
+好巧不巧悠木碧现在基本是原神义务推广大使了。</blockquote>
+派蒙、空荧的声优这下赚翻了
+
+随随便便就拿到了10年长期饭票
+
