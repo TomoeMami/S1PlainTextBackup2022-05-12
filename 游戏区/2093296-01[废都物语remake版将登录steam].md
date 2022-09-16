@@ -2547,3 +2547,21 @@ elona算是rpg吗
 
 废都物语、帽子世界 、月夜响荡曲、 以及魔坏屋姐妹 被称为RM制的免费JRPG的“四大天王”
 
+
+
+*****
+
+####  ネコカイザー  
+##### 282#       发表于 2022-9-16 08:44
+
+怎么一人一个说法ww<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我记得我当初玩废都物语的机缘就是听别人说废都物语是啥“独立双杰”之一。（另一个是elona。没扯到帽子世界。）
+
+*****
+
+####  Renkonsai  
+##### 283#       发表于 2022-9-16 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">居然还真的有这种美谈哦
+
