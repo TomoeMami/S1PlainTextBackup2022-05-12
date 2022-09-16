@@ -6081,3 +6081,25 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 财大气粗 真的霸权来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夫诸过处  
+##### 659#       发表于 2022-9-17 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517234&amp;ptid=2094448" target="_blank">Nagoya 发表于 2022-9-16 23:31</a>
+今后⚪神只有一个意思，这只不配拥有名字</blockquote>
+这只已经不能被我们观测了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 660#       发表于 2022-9-17 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519297&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 07:01</a>
+不是，现在一年才多少原创。大部分都是改编动画。</blockquote>
+十月漫改虽然有31部，但原创也有16部，游戏改和小说改加起来才是原创的数量
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
