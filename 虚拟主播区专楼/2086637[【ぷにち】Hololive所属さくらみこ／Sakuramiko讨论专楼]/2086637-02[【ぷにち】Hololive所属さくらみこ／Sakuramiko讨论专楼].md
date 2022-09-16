@@ -1314,3 +1314,12 @@ luna送了200个南瓜画了块宣传牌还给录了一段音频，音频内容�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切，原来星姐还会再rust出现啊。昨天休息的消息出来，可把那些七字母连体人急死了
 
+
+
+*****
+
+####  holoan  
+##### 1627#         楼主| 发表于 2022-9-16 12:59
+
+去年你在等ファントム的时候也是这个反应。。。。
+
