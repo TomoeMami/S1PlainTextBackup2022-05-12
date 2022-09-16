@@ -1712,3 +1712,25 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 
   有第一方的宣发渠道应该不是问题，不过第一方管不管也看情况的，你看卧龙首发xgp结果xbox的tgs直播没他，现场试玩我看到的都是ps5版
 
+
+
+*****
+
+####  斯库鲁多  
+##### 188#       发表于 2022-9-16 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57509700&amp;ptid=2092342" target="_blank">415452356 发表于 2022-9-16 13:55</a>
+
+有第一方的宣发渠道应该不是问题，不过第一方管不管也看情况的，你看卧龙首发xgp结果xbox的tgs直播没他， ...</blockquote>
+tgs上的内容不就是在xbox直播里放出来的吗？
+
+*****
+
+####  ouyang菌  
+##### 189#       发表于 2022-9-16 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57491769&amp;ptid=2092342" target="_blank">天宮奏 发表于 2022-09-15 08:51:20</a>
+对马岛20发售的吗？光一个1就做了6年，24年摸出对马岛2我很担忧</blockquote>sp不是说不打算做对马岛2吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
