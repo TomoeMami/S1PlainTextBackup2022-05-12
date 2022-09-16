@@ -2544,3 +2544,282 @@ ufotable 可不可以称得上动画界米哈游，部分指标高但有老害�
 
 乐子人欢乐max，期待对线双方以后多整点好活和爆典吧
 
+
+
+*****
+
+####  流枫水叶  
+##### 300#       发表于 2022-9-16 22:21
+
+保守估计88w<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看热闹不嫌事大
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  阿姆罗二世  
+##### 301#       发表于 2022-9-16 22:21
+
+可能不砸吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼对米桑的剧情是有什么幻想吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rr1984  
+##### 302#       发表于 2022-9-16 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516232&amp;ptid=2094448" target="_blank">濡鸦之羽_ 发表于 2022-9-16 22:20</a>
+
+看见nbht那b站动态了，笑死</blockquote>
+草，以后nbht得剪原神进去了。我想想那弹幕就绷不住了
+
+*****
+
+####  lilisipis  
+##### 303#       发表于 2022-9-16 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">以后介绍飞碟社都是说做原神那家公司了
+
+*****
+
+####  bgmilk  
+##### 304#       发表于 2022-9-16 22:23
+
+这下好了  婆罗门最大的乐子来了  漫区有救了
+
+*****
+
+####  bgmilk  
+##### 305#       发表于 2022-9-16 22:23
+
+这下好了  婆罗门最大的乐子来了  漫区有救了
+
+*****
+
+####  whzfjk  
+##### 306#       发表于 2022-9-16 22:23
+
+<blockquote>快乐好难123 发表于 2022-9-16 22:15
+原友一直赢的地方从不看的，就爱看剧情反转的</blockquote>
+湾湾这种带意识形态的要么找爹要么自渎，还不如看镇妖塔
+
+*****
+
+####  kraoo  
+##### 307#       发表于 2022-9-16 22:23
+
+ufo现在鬼灭都没做完，mhy得再等个两年吧。年番也别指望，现在有几个敢做年番的，分割放送两季以上就算mhy出钱多
+
+*****
+
+####  kraoo  
+##### 308#       发表于 2022-9-16 22:23
+
+ufo现在鬼灭都没做完，mhy得再等个两年吧。年番也别指望，现在有几个敢做年番的，分割放送两季以上就算mhy出钱多
+
+*****
+
+####  天青月白  
+##### 309#       发表于 2022-9-16 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516249&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-9-16 22:22</a>
+草，以后nbht得剪原神进去了。我想想那弹幕就绷不住了</blockquote>
+nbht和米有什么过往？
+
+*****
+
+####  天青月白  
+##### 310#       发表于 2022-9-16 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516249&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-9-16 22:22</a>
+草，以后nbht得剪原神进去了。我想想那弹幕就绷不住了</blockquote>
+nbht和米有什么过往？
+
+*****
+
+####  哈里-谢顿  
+##### 311#       发表于 2022-9-16 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516232&amp;ptid=2094448" target="_blank">濡鸦之羽_ 发表于 2022-9-16 22:20</a>
+
+看见nbht那b站动态了，笑死</blockquote>
+咋啦？
+
+*****
+
+####  咸鱼无双  
+##### 312#       发表于 2022-9-16 22:25
+
+Make 漫区 Great Again<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">拯救漫区还得看原<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枪聆弹语  
+##### 313#       发表于 2022-9-16 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月厨嫌弃的UFO和原神媾和去了
+
+*****
+
+####  方舟售票员  
+##### 314#       发表于 2022-9-16 22:25
+
+上一个在3个区都有专楼的还是碧蓝航线吧，希望别再做杂了
+
+*****
+
+####  流行云  
+##### 315#       发表于 2022-9-16 22:25
+
+不管怎么说都有乐子看。mhy加ufo制作上估计不会差，剧情嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  三尖酸努努  
+##### 316#       发表于 2022-9-16 22:25
+
+居然是长篇？那我不看好
+
+*****
+
+####  we89623  
+##### 317#       发表于 2022-9-16 22:25
+
+ 本帖最后由 we89623 于 2022-9-16 22:27 编辑 
+
+米哈游这么有钱，重金请个名编剧重铸动画剧情也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就看日本人有没有职业道德拿钱认真办事而不是敷衍，不过这次米哈游话语权应该很大就是了。
+
+*****
+
+####  三点几，饮茶啦  
+##### 318#       发表于 2022-9-16 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516268&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:24</a>
+nbht和米有什么过往？</blockquote>
+做完崩坏3的商单，转手就在自己的号阴阳怪气
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  诚司  
+##### 319#       发表于 2022-9-16 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516267&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:23</a>
+
+nbht和米有什么过往？</blockquote>
+收了钱做视频，想在视频里阴阳怪气金主，被制止了
+
+然后憋不住发了视频出来还阴阳怪气
+
+然后anitama里有别的人忍不了他，在知乎上都公开撕了，私下里不知道闹成什么样呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 320#       发表于 2022-9-16 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516268&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:24</a>
+
+nbht和米有什么过往？</blockquote>
+有过吹崩三动画的一期视频，然后小号自爆是工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 321#       发表于 2022-9-16 22:27
+
+同类型的都是只能看看作画，剧情不看好<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RUANHYC  
+##### 322#       发表于 2022-9-16 22:28
+
+拯救漫区流量
+
+*****
+
+####  kyonkoism  
+##### 323#       发表于 2022-9-16 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516268&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:24</a>
+
+nbht和米有什么过往？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">过往？一切的源头！
+
+正是因为表面昨晚广告背后阴阳怪气，这事就变成了nbht低情商最大代表性事件，anitama分崩离析的导火索！搞得牛逼火腿现在只能寄叔叔篱下做些为婆罗门不齿的蹭热度diss与冻鳗科普，他妈的！都是米哈游害的！
+
+*****
+
+####  pandaman7777  
+##### 324#       发表于 2022-9-16 22:28
+
+牛逼火腿的动态笑死了
+
+原神，站在一切领域【婆罗门】对立面的存在，伟哉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀神探女、  
+##### 325#       发表于 2022-9-16 22:28
+
+漫区复兴第一楼
+
+*****
+
+####  愚人节快乐  
+##### 326#       发表于 2022-9-16 22:28
+
+ 本帖最后由 愚人节快乐 于 2022-9-16 22:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/16/222831xjt2dc253l5zz5d3.png" referrerpolicy="no-referrer">
+
+<strong>670b27b8-1cd4-4474-8fda-6d1988ef9621.png</strong> (586.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 22:28 上传
+
+二次元衙门已下跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/16/222839km63mzvef73lvlu7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220916_222603_tv.danmaku.bili.jpg</strong> (250.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 22:28 上传
+
+*****
+
+####  Alicest  
+##### 327#       发表于 2022-9-16 22:29
+
+第一个翻车的婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我猜台长这时候在改稿了，该在水星女皇的赞歌里加点东西了
+
+<img src="https://img.saraba1st.com/forum/202209/16/222824villmi5ij5xl5ufl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 22:28 上传
+
+*****
+
+####  雪霜  
+##### 328#       发表于 2022-9-16 22:29
+
+主角是个哑巴对话全靠派蒙这点做成动画岂不是很尬。。。
+
