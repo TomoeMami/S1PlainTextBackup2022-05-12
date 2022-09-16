@@ -5185,3 +5185,77 @@ N年以后，老人们会向年轻人诉说，当年，是o的降临，拯救
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  小红飞翼  
+##### 571#       发表于 2022-9-17 01:04
+
+漫区也要迎来黑暗降临的那天
+
+*****
+
+####  愚人节快乐  
+##### 572#       发表于 2022-9-17 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518377&amp;ptid=2094448" target="_blank">月夜凝雪 发表于 2022-9-17 01:01</a>
+
+支线比较有机会好好写完一个故事而主线需要受到角色池子的影响和游戏载体很多剧情无法详细做只能略过形成 ...</blockquote>
+我觉得有可能做成单元剧。几个美少女轮流出场
+
+*****
+
+####  leia_rolando  
+##### 573#       发表于 2022-9-17 01:05
+
+<blockquote>ViviR 发表于 2022-9-17 00:42
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士的一篇评价原的稻妻剧情的文章 ...</blockquote>
+原剧情牛逼的是支线任务。稻妻那么多看着毫不相干的支线任务最后建成一个完整的稻事世界观脉络，完全脱离了12+，可以说非常放飞。
+
+*****
+
+####  阿姆罗二世  
+##### 574#       发表于 2022-9-17 01:05
+
+稻妻支线感觉加起来不如一个森林书
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  卢迪乌斯  
+##### 575#       发表于 2022-9-17 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518337&amp;ptid=2094448" target="_blank">纸皮 发表于 2022-9-17 00:57</a>
+
+哇靠乐子好大
+
+虽然你们很多都在玩梗但我怀疑有的胡吹要成真
+
+手游王之力不是吃素的！ ...</blockquote>
+我觉得mhy未必会想赚这碟片钱
+
+但是就为了搞宣传创造历史巨魔打脸等等
+
+故意搞个碟片第一真是有可能的……
+
+*****
+
+####  编木马者死户口  
+##### 576#       发表于 2022-9-17 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518310&amp;ptid=2094448" target="_blank">月夜凝雪 发表于 2022-9-17 00:56</a>
+
+不是说up角色那些算是购买随便改是违反了其他法律条文么？
+
+听说碧蓝航线某些被要求下架的皮肤也只是不能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会改？要不你看看飞狗和谐了啥？你谈法律我都觉得搞笑.jpg；碧蓝哪里下架了，周年卖几天过年卖几天，外服是直接常驻，一开始就是和谐的哪有改的必要。
+
+*****
+
+####  plok201  
+##### 577#       发表于 2022-9-17 01:09
+
+稻妻看大纲还行，实际成品拉跨，最搞的还是同期支线和活动剧情都挺好，像一个西餐厅，他最好的是饭后甜品和饮料，也就这次草国意外的主线行了
+
