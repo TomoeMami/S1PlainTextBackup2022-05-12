@@ -1865,3 +1865,122 @@ op+ufo，好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  如月尤菲  
+##### 219#       发表于 2022-9-16 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515510&amp;ptid=2094448" target="_blank">lilisipis 发表于 2022-9-16 21:32</a>
+要是动画在国内没有过审，原u会不会冲击广电呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钦定文化输出，一刀不砍直接秒过啦
+
+*****
+
+####  愚人节快乐  
+##### 220#       发表于 2022-9-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515781&amp;ptid=2094448" target="_blank">Mchaos 发表于 2022-9-16 21:50</a>
+
+箪食壶浆以迎王师，谢谢你米桑</blockquote>
+米桑终于到达了TA忠实的漫区<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 221#       发表于 2022-9-16 21:54
+
+都不装了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 222#       发表于 2022-9-16 21:54
+
+长期动画是什么意思，如果把现在的主线剧情全做完，一个年番都不够吧
+
+*****
+
+####  愚人节快乐  
+##### 223#       发表于 2022-9-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515828&amp;ptid=2094448" target="_blank">如月尤菲 发表于 2022-9-16 21:53</a>
+
+钦定文化输出，一刀不砍直接秒过啦</blockquote>
+中华文化优秀代表，传统文化加现代文化的完美结合，各国政客接连高呼“文化入侵”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯田美琴  
+##### 224#       发表于 2022-9-16 21:56
+
+做前传吧，做主线多少有点无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 225#       发表于 2022-9-16 21:56
+
+ 本帖最后由 バーチャルS1er 于 2022-9-16 21:58 编辑 
+
+原来台长早已看透这一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 226#       发表于 2022-9-16 21:57
+
+说起来做的最好的手游主线动画化是哪个？想了下我看完的也就FGO，还是冲着前几集作画勉强看完的
+
+*****
+
+####  rr1984  
+##### 227#       发表于 2022-9-16 21:57
+
+我感觉就是原神的一些宣传动画吧
+
+*****
+
+####  kraoo  
+##### 228#       发表于 2022-9-16 21:58
+
+这盖楼速度，漫区有救了
+
+*****
+
+####  kraoo  
+##### 229#       发表于 2022-9-16 21:58
+
+这盖楼速度，漫区有救了
+
+*****
+
+####  卡蓮  
+##### 230#       发表于 2022-9-16 21:59
+
+长期合作大概率会有大量的2DPV产出，，看情况给个tv动画或者剧场版之类的
+
+*****
+
+####  kraoo  
+##### 231#       发表于 2022-9-16 22:01
+
+这盖楼速度，漫区有救了
+
+*****
+
+####  バーチャルS1er  
+##### 232#       发表于 2022-9-16 22:01
+
+ 本帖最后由 バーチャルS1er 于 2022-9-16 22:02 编辑 
+
+S1今天太卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skyuni  
+##### 233#       发表于 2022-9-16 22:01
+
+有一说一，不让荧妹来当主角我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
