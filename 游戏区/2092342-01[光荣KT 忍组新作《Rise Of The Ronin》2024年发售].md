@@ -1746,3 +1746,17 @@ tgs上的内容不就是在xbox直播里放出来的吗？
 对马岛20发售的吗？光一个1就做了6年，24年摸出对马岛2我很担忧</blockquote>
 对马岛为什么要出2，那么小个岛探索完了故事该讲的也讲完了。
 
+
+
+*****
+
+####  BadYanL  
+##### 191#       发表于 2022-9-16 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57511458&amp;ptid=2092342" target="_blank">Yui_hirasawa 发表于 2022-9-16 16:18</a>
+
+对马岛为什么要出2，那么小个岛探索完了故事该讲的也讲完了。</blockquote>
+因为卖了快1000万份？
+
+续作也不一定要在对马岛，Ghost of XXXXX日本地区可以随便套。
+
