@@ -6072,3 +6072,12 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 有现成的人物，场景，设定，做起来应该比纯原创快一点吧</blockquote>
 不是，现在一年才多少原创。大部分都是改编动画。
 
+
+
+*****
+
+####  natmk  
+##### 658#       发表于 2022-9-17 07:15
+
+财大气粗 真的霸权来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
