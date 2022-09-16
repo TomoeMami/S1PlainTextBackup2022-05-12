@@ -2625,3 +2625,25 @@ elona算是rpg吗
 
 有没有针对只想看剧情的玩家的保姆级攻略啊，现在玩游戏已经越来越不想动脑子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kamarus  
+##### 290#       发表于 2022-9-16 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57509603&amp;ptid=2093296" target="_blank">AeonsTorn 发表于 2022-9-16 13:46</a>
+有没有针对只想看剧情的玩家的保姆级攻略啊，现在玩游戏已经越来越不想动脑子了 ...</blockquote>
+攻略有，至于保姆级。。。。这游戏哪怕简单难度也得研究boss针对啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电磁炮233  
+##### 291#       发表于 2022-9-16 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57509603&amp;ptid=2093296" target="_blank">AeonsTorn 发表于 2022-9-16 13:46</a>
+有没有针对只想看剧情的玩家的保姆级攻略啊，现在玩游戏已经越来越不想动脑子了 ...</blockquote>
+这游戏的战斗和探索更接近解密，不动脑子很无聊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
