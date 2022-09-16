@@ -5259,3 +5259,74 @@ N年以后，老人们会向年轻人诉说，当年，是o的降临，拯救
 
 稻妻看大纲还行，实际成品拉跨，最搞的还是同期支线和活动剧情都挺好，像一个西餐厅，他最好的是饭后甜品和饮料，也就这次草国意外的主线行了
 
+
+
+*****
+
+####  小小雪空  
+##### 578#       发表于 2022-9-17 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518441&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 01:07</a>
+
+我觉得mhy未必会想赚这碟片钱
+
+但是就为了搞宣传创造历史巨魔打脸等等
+
+故意搞个碟片第一真是有可能的…… ...</blockquote>
+有一说一，我看销量厨很多mhy粉啊（至少壁吧遍地都是），真创造碟片第一的历史真能打脸吗，我看销量厨根本不在意这种东西……
+
+*****
+
+####  阿姆罗二世  
+##### 579#       发表于 2022-9-17 01:13
+
+先不贷款开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">稻妻前期剧情也不错的，原神剧情都是愚人众出场过后崩的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  编木马者死户口  
+##### 580#       发表于 2022-9-17 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518479&amp;ptid=2094448" target="_blank">阿姆罗二世 发表于 2022-9-17 01:13</a>
+
+先不贷款开香槟稻妻前期剧情也不错的，原神剧情都是愚人众出场过后崩的
+
+  -- 来自 能看大图的 Stag ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">崩了×，压根他妈就没讲完√
+
+我的建议是不如为了草比而草比才诞生的那种文章
+
+*****
+
+####  冷子银  
+##### 581#       发表于 2022-9-17 01:17
+
+米桑之力，强而有力啊！！
+
+*****
+
+####  诚司  
+##### 582#       发表于 2022-9-17 01:17
+
+只说日本的话，如果是平均质量，那大概最多赛马娘六七成水平，不会再高了，当然也挺高的了……
+
+马娘当初的热度太高了，很难复制马娘的奇迹，只不过现在热度下来了，显然也不太能持续太久。只考虑移动端畅销榜，原神弱于常态的fgo，fgo弱于马娘。不过考虑免费榜，在流水前十的游戏里原神还是挺高的，证明哪怕只考虑移动端玩的人也不少，但平均氪金低于马娘和fgo。
+
+日推热度而论倒是真的无敌了，在马娘热度下来之后再无敌手，但是巅峰也不比马娘，应该是冲不出来马娘第二季的销量
+
+*****
+
+####  links8018  
+##### 583#       发表于 2022-9-17 01:17
+
+yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销量一定能打的过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RedSpecial  
+##### 584#       发表于 2022-9-17 01:18
+
+漫区的流量有救啦<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
