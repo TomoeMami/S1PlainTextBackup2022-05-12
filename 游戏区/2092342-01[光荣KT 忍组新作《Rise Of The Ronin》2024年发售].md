@@ -1734,3 +1734,15 @@ tgs上的内容不就是在xbox直播里放出来的吗？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Yui_hirasawa  
+##### 190#       发表于 2022-9-16 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57491769&amp;ptid=2092342" target="_blank">天宮奏 发表于 2022-9-15 08:51</a>
+
+对马岛20发售的吗？光一个1就做了6年，24年摸出对马岛2我很担忧</blockquote>
+对马岛为什么要出2，那么小个岛探索完了故事该讲的也讲完了。
+
