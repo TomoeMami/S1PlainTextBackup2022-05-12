@@ -4985,3 +4985,82 @@ giguk很搞笑
 
 那就怪fate离开ufo那堆动画拍的是什么妖魔鬼怪了当年月厨还嫌弃飞碟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小小雪空  
+##### 550#       发表于 2022-9-17 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518128&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-17 00:40</a>
+
+那就怪fate离开ufo拍的那堆动画是什么妖魔鬼怪了，当年月厨还嫌弃飞碟，没想到飞碟离开fate依然活的很好， ...</blockquote>
+人就是这样的，永远不知道满足，真搞砸了又会想回到过去，否定过去的自己，明明这搞砸的未来是自己选择的……
+
+*****
+
+####  kletka  
+##### 551#       发表于 2022-9-17 00:44
+
+原神的剧情就是中规中矩的还行和中规中矩的拉胯交错来，一般支线都还行，3.0之前主线都拉胯，但是实际也就中规中矩，没有很多人说得那么天崩地裂的拉胯，就是一般的拉胯罢了
+
+*****
+
+####  不知道还一直说  
+##### 552#       发表于 2022-9-17 00:45
+
+如果做日常搞笑向的可以保个下限，如果做剧情向的话上限高下限低
+
+*****
+
+####  十个印地男孩  
+##### 553#       发表于 2022-9-17 00:45
+
+反正我没玩，爽了
+
+*****
+
+####  酥蕤  
+##### 554#       发表于 2022-9-17 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这pv也不行啊，前后远近景和人物都不统一画风的
+
+*****
+
+####  十个印地男孩  
+##### 555#       发表于 2022-9-17 00:46
+
+男主角更好，我不想看女的
+
+*****
+
+####  阿姆罗二世  
+##### 556#       发表于 2022-9-17 00:46
+
+稻妻主线是最煞笔的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">须弥3.0倒是有眼前一亮的感觉，不知道后面能不能收得住
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  小小解学士  
+##### 557#       发表于 2022-9-17 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士提到原的稻妻剧情张口闭口幽玄 ...</blockquote>
+主线很拉。  世界任务的剧情倒是有很多比较不错的
+
+—— 来自 OPPO PERM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  诚司  
+##### 558#       发表于 2022-9-17 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518183&amp;ptid=2094448" target="_blank">酥蕤 发表于 2022-9-17 00:45</a>
+
+这pv也不行啊，前后远近景和人物都不统一画风的</blockquote>
+这才叫hoyoverse ×ufotable
+
+场景明显是游戏素材高模渲染出来的，然后把飞碟社画的东西缝起来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
