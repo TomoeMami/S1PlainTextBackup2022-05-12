@@ -1984,3 +1984,304 @@ S1今天太卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 有一说一，不让荧妹来当主角我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jinyuede  
+##### 234#       发表于 2022-9-16 22:02
+
+十页都是前排
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Quzs  
+##### 235#       发表于 2022-9-16 22:03
+
+反超外野看我原神
+
+—— 来自 OnePlus LE2100, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  叁號線  
+##### 236#       发表于 2022-9-16 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515779&amp;ptid=2094448" target="_blank">M乔梦 发表于 2022-9-16 21:50</a>
+
+还得看b站评论区</blockquote>
+绷
+
+*****
+
+####  whzfjk  
+##### 237#       发表于 2022-9-16 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515775&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 21:49</a>
+
+发展下去会不会原友才是婆罗门，而S1原婆罗门就只能在原楼外阴阳怪气
+
+简称除你婆籍？ ...</blockquote>
+你这是在咒原神过气，出警警告
+
+*****
+
+####  Alicest  
+##### 238#       发表于 2022-9-16 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515779&amp;ptid=2094448" target="_blank">M乔梦 发表于 2022-9-16 21:50</a>
+
+还得看b站评论区</blockquote>
+萌二评论就别搬了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  (wing)  
+##### 239#       发表于 2022-9-16 22:04
+
+好久没逛漫区了，占个前排<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chaucerling  
+##### 240#       发表于 2022-9-16 22:04
+
+漫区有救了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  PascalLefèvre  
+##### 241#       发表于 2022-9-16 22:04
+
+前排，有血流成河的预感，起码干倒一个动画区百万粉级别up主
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  快乐好难123  
+##### 242#       发表于 2022-9-16 22:04
+
+锁妖塔同温层circle jerk没啥看头，还是k岛蛙友急得支来支去有意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何でやねん  
+##### 243#       发表于 2022-9-16 22:05
+
+我记得mhy不是有自家的动画组嘛，怎么还要找上飞碟卓<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枪聆弹语  
+##### 244#       发表于 2022-9-16 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经开始对标双城之战和赛博朋克了，怕怕
+
+*****
+
+####  rr1984  
+##### 245#       发表于 2022-9-16 22:05
+
+出个电影吧，看看能不能超哪咤
+
+*****
+
+####  茴香蚪的马甲  
+##### 246#       发表于 2022-9-16 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515888&amp;ptid=2094448" target="_blank">FanFun 发表于 2022-9-16 21:57</a>
+
+说起来做的最好的手游主线动画化是哪个？想了下我看完的也就FGO，还是冲着前几集作画勉强看完的 ...</blockquote>
+我觉得FGO巴比伦尼亚动画绝对能算最好的手游改TV动画之一了（不计“多媒体企划”），主要是手游改动画整体实在太拉。
+
+*****
+
+####  Alfie劉  
+##### 247#       发表于 2022-9-16 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515243&amp;ptid=2094448" target="_blank">Rhantolk 发表于 2022-9-16 21:19</a>
+感觉这pv就是想让人吹“啊这光啊这水”
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v ...</blockquote>
+你确定是吹不是玩梗
+
+*****
+
+####  白帽子  
+##### 248#       发表于 2022-9-16 22:06
+
+好家伙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bg54188  
+##### 249#       发表于 2022-9-16 22:07
+
+特意来看血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meailove  
+##### 250#       发表于 2022-9-16 22:07
+
+到时候你敢说原神剧情不行，直接销量打你脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alfie劉  
+##### 251#       发表于 2022-9-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515277&amp;ptid=2094448" target="_blank">FanFun 发表于 2022-9-16 21:21</a>
+王之力上自选五星能超马吗</blockquote>
+反过来都不可能，想捡钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rr1984  
+##### 252#       发表于 2022-9-16 22:07
+
+mhy舍得用王之力吗？
+
+*****
+
+####  carroy  
+##### 253#       发表于 2022-9-16 22:08
+
+前十页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+乐
+
+*****
+
+####  kraoo  
+##### 254#       发表于 2022-9-16 22:08
+
+本来点进去想看看有没有什么作画片段，结果这pv突出一个意义不明，一看才是个概念pv，不是说早就开始准备了么
+
+*****
+
+####  we89623  
+##### 255#       发表于 2022-9-16 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515980&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-9-16 22:04</a>
+
+锁妖塔同温层circle jerk没啥看头，还是k岛蛙友急得支来支去有意思</blockquote>
+你可以去巴哈原神区看看不一样的湾湾
+
+*****
+
+####  interzhang  
+##### 256#       发表于 2022-9-16 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜空哥肯定是主角，虽然现在的流量密码已经是女性主角的时代了
+
+*****
+
+####  诚司  
+##### 257#       发表于 2022-9-16 22:09
+
+建议版主把这帖踢到游戏区，然后把lz封了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 258#       发表于 2022-9-16 22:09
+
+ufotable 可不可以称得上动画界米哈游，部分指标高但有老害看不入眼的地方，年轻粉丝多市场认可杀得老害怀疑人生，际遇非常好一步接一步登天。
+
+*****
+
+####  kyonkoism  
+##### 259#       发表于 2022-9-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515888&amp;ptid=2094448" target="_blank">FanFun 发表于 2022-9-16 21:57</a>
+
+说起来做的最好的手游主线动画化是哪个？想了下我看完的也就FGO，还是冲着前几集作画勉强看完的 ...</blockquote>
+赛马娘吧，圆盘还把EVA踢下了神坛<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯田美琴  
+##### 260#       发表于 2022-9-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515989&amp;ptid=2094448" target="_blank">何でやねん 发表于 2022-9-16 22:05</a>
+
+我记得mhy不是有自家的动画组&amp; ...</blockquote>
+3d动画费时费力，崩3一年才有几个动画短片？还外包了不少出去，怎么可能自己做💧
+
+*****
+
+####  愚人节快乐  
+##### 261#       发表于 2022-9-16 22:10
+
+<blockquote>meailove 发表于 2022-9-16 22:07
+到时候你敢说原神剧情不行，直接销量打你脸</blockquote>
++1，原神动画，必定神作！！！
+
+*****
+
+####  hcf220  
+##### 262#       发表于 2022-9-16 22:10
+
+希望米哈游和ufo知道自己的斤两，拍个原神嘉年华来哄哄粉丝们得了。真要讲故事怕是会让角色风评被害
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Alfie劉  
+##### 263#       发表于 2022-9-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515453&amp;ptid=2094448" target="_blank">haze.l 发表于 2022-9-16 21:29</a>
+没见过这么无聊的pv看后半&amp;#x ...</blockquote>
+我还以为是纯风景cm合作，一点剧情都不带<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+话说上次那个cm是谁做的来着
+
+*****
+
+####  hcf220  
+##### 264#       发表于 2022-9-16 22:10
+
+希望米哈游和ufo知道自己的斤两，拍个原神嘉年华来哄哄粉丝们得了。真要讲故事怕是会让角色风评被害
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 265#       发表于 2022-9-16 22:11
+
+按之前中日合作动画项目看，不太看好。而且飞碟社怎么都是更适合崩坏3动画啊，看来原神真的很赚钱。
+
+*****
+
+####  Alicest  
+##### 266#       发表于 2022-9-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515998&amp;ptid=2094448" target="_blank">枪聆弹语 发表于 2022-9-16 22:05</a>
+
+已经开始对标双城之战和赛博朋克了，怕怕</blockquote>
+既然原能对标单机，反正日本那些动画公司都没区别ufo对标个trigger，那我原anime对标个edge runnners也没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+既然能对标edge runners，那超日赶法追上、不，甚至是薄纱arcane也没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+原的下一步是LOL！
+
+*****
+
+####  天青月白  
+##### 267#       发表于 2022-9-16 22:12
+
+按之前中日合作动画项目看，不太看好。而且飞碟社怎么都是更适合崩坏3动画啊，看来原神真的很赚钱。
+
+*****
+
+####  cjcjiang  
+##### 268#       发表于 2022-9-16 22:12
+
+凑个热闹，看看后续<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
