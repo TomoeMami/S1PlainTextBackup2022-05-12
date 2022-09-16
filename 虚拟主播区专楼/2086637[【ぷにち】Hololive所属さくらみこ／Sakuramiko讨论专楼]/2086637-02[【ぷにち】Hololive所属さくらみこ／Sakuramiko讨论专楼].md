@@ -1391,3 +1391,20 @@ luna送了200个南瓜画了块宣传牌还给录了一段音频，音频内容�
 
 那不是挺好的各有各的幸福
 
+
+
+*****
+
+####  holoan  
+##### 1635#         楼主| 发表于 2022-9-16 16:06
+
+<img src="https://img.saraba1st.com/forum/202209/16/160625h29d7q95vbbuu4qf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (744.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 16:06 上传
+
+实物图
+
