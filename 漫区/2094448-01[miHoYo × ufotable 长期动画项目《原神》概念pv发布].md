@@ -6026,3 +6026,15 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 还有umb和古贺葵说相声的日常番绝对比这 ...</blockquote>
 米忽悠扣指的是他游戏福利，其他地方出手可是给钱大气的很，比如工商，各种音乐会。动画他们肯定会砸钱
 
+
+
+*****
+
+####  FRlogic  
+##### 654#       发表于 2022-9-17 06:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518627&amp;ptid=2094448" target="_blank">partrue 发表于 2022-09-17 01:32:55</a>
+漫区有救了 v2.5.4</blockquote>十分同意，就算做相对好一些的须弥主线复读仍然会无聊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
