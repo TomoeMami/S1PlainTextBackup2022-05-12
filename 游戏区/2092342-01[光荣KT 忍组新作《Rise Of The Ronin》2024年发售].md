@@ -1703,3 +1703,12 @@ Team Ninja做动作的本事无可置疑，但开放世界RPG不好只靠打打�
 论坛助手,iPhone</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原定全平台，现在索尼买了主机独占了，pc时间未知
 
+
+
+*****
+
+####  415452356  
+##### 187#       发表于 2022-9-16 13:55
+
+  有第一方的宣发渠道应该不是问题，不过第一方管不管也看情况的，你看卧龙首发xgp结果xbox的tgs直播没他，现场试玩我看到的都是ps5版
+
