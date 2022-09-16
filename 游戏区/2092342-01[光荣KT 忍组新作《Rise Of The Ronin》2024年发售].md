@@ -1794,3 +1794,16 @@ sp不是说不打算做对马岛2吗
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  acg_gyancDF  
+##### 195#       发表于 2022-9-16 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57509648&amp;ptid=2092342" target="_blank">hosino 发表于 2022-9-16 13:50</a>
+原定全平台，现在索尼买了主机独占了，pc时间未知</blockquote>
+哦哦，这样啊，感谢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
