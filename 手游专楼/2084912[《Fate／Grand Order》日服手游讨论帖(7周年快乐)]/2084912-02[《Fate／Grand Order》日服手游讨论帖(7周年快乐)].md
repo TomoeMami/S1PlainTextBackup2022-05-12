@@ -12350,3 +12350,19 @@ wrba单红就判死刑了，至少俩ba混吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头抽老太婆井了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2610#       发表于 2022-9-16 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503750&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-15 22:36</a>
+
+壹与这出身怎么一股卡面来打的味
+
+敌我同源，出身是狗奴，掌握得是黑暗的力量，背负的是破灭的命运，但励志 ...</blockquote>
+有基础、过渡、最终三大形态，开天辟地的华丽光之主骑——Yamatai Ruler Punch Miko<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+一个基础形态从头打到尾、外传发了个改模皮套的吃瘪暗之副骑Yamatai Ruler Kick Miko<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

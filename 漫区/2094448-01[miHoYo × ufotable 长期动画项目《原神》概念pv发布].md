@@ -2285,3 +2285,262 @@ ufotable 可不可以称得上动画界米哈游，部分指标高但有老害�
 
 凑个热闹，看看后续<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qw7608290  
+##### 269#       发表于 2022-9-16 22:12
+
+我去，这种顶级乐子简直可遇不可求<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freka  
+##### 270#       发表于 2022-9-16 22:12
+
+怎么就快三百楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，漫区流量有望了
+
+
+
+*****
+
+####  freka  
+##### 271#       发表于 2022-9-16 22:12
+
+怎么就快三百楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，漫区流量有望了
+
+*****
+
+####  we89623  
+##### 272#       发表于 2022-9-16 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516077&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 22:10</a>
+
+我还以为是纯风景cm合作，一点剧情都不带
+
+话说上次那个cm是谁做的来着 ...</blockquote>
+因为这个只是<strong>概念</strong>PV
+
+*****
+
+####  we89623  
+##### 273#       发表于 2022-9-16 22:13
+
+ 本帖最后由 we89623 于 2022-9-16 22:16 编辑 
+
+风怒
+
+*****
+
+####  Kokichi  
+##### 274#       发表于 2022-9-16 22:14
+
+漫区救星
+
+*****
+
+####  吃我大dio  
+##### 275#       发表于 2022-9-16 22:14
+
+日日合作 赢！
+
+*****
+
+####  桥田至  
+##### 276#       发表于 2022-9-16 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515453&amp;ptid=2094448" target="_blank">haze.l 发表于 2022-9-16 21:29</a>
+
+没见过这么无聊的pv看后半&amp;#x ...</blockquote>
+概念PV而已 究竟怎样还得看正式PV
+
+*****
+
+####  愚人节快乐  
+##### 277#       发表于 2022-9-16 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516091&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:11</a>
+
+按之前中日合作动画项目看，不太看好。而且飞碟社怎么都是更适合崩坏3动画啊，看来原神真的很赚钱。 ...</blockquote>
+的确很赚，友商都馋哭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柠奇无时  
+##### 278#       发表于 2022-9-16 22:15
+
+占个前10页的尾巴见证历史<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 279#       发表于 2022-9-16 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等漫区靠原神动画对刚明年野炊2的游戏区流量
+
+*****
+
+####  哈里-谢顿  
+##### 280#       发表于 2022-9-16 22:15
+
+感觉会是个坑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这几年代工的都是啥各位应该都有印象
+
+不过这风景还行，这是把几个大场景做剧场版？
+
+*****
+
+####  快乐好难123  
+##### 281#       发表于 2022-9-16 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516046&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-16 22:08</a>
+
+你可以去巴哈原神区看看不一样的湾湾</blockquote>
+原友一直赢的地方从不看的，就爱看剧情反转的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Makinohara  
+##### 282#       发表于 2022-9-16 22:16
+
+这盖楼速度，不愧是顶流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 283#       发表于 2022-9-16 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516154&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-16 22:15</a>
+
+感觉会是个坑这几年代工的都是啥各位应该都有印象
+
+不过这风景还行，这是把几个大场景做剧场版？ ...</blockquote>
+这风景一看就是mhy做的，改了渲染高模而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗剑  
+##### 284#       发表于 2022-9-16 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">漫区的大救星来辣
+
+*****
+
+####  穷且坚强着  
+##### 285#       发表于 2022-9-16 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">米哈游随便塞点东西进去有得是O友买爆
+
+*****
+
+####  防辐射的  
+##### 286#       发表于 2022-9-16 22:17
+
+仔细想了想，我真的不觉得能做好，游戏内现有的无论是美术还是剧情设定素材都太少了，远远不够支撑起一部动画的，除非为了动画项目额外补充大量新的设定。你能想象一个大陆只有那么几种动物？那么几种路人造型？除了小城镇就是一片片大同小异的绿地？游戏那种信息密度，做出来的世界只会让人觉得很枯燥单调，没有什么生命力，哪怕用精细的作画和宏大的远景镜头也拉不回来。
+
+*****
+
+####  广东侠  
+##### 287#       发表于 2022-9-16 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516092&amp;ptid=2094448" target="_blank">Alicest 发表于 2022-9-16 22:11</a>
+
+既然原能对标单机，反正日本那些动画公司都没区别ufo对标个trigger，那我原anime对标个edge runnners也没 ...</blockquote>
+原友在撸狗面前翻身，功毕其一役！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南猫猫猫猫  
+##### 288#       发表于 2022-9-16 22:18
+
+季番还是年番？
+
+*****
+
+####  海鸟封  
+##### 289#       发表于 2022-9-16 22:19
+
+🌿🐴灭👻来了是吧
+
+*****
+
+####  rr1984  
+##### 290#       发表于 2022-9-16 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516191&amp;ptid=2094448" target="_blank">南猫猫猫猫 发表于 2022-9-16 22:18</a>
+
+季番还是年番？</blockquote>
+长篇动画，应该是年番级别
+
+*****
+
+####  爵士人生  
+##### 291#       发表于 2022-9-16 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">漫区最黑暗的一天
+
+*****
+
+####  interzhang  
+##### 292#       发表于 2022-9-16 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要空哥做主角肯定没啥新意，除非魔改重写前三国的故事，现在就得要美少女当主角才有流量堵嘴
+
+*****
+
+####  interzhang  
+##### 293#       发表于 2022-9-16 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要空哥做主角肯定没啥新意，除非魔改重写前三国的故事，现在就得要美少女当主角才有流量堵嘴
+
+*****
+
+####  火箭布雷器  
+##### 294#       发表于 2022-9-16 22:19
+
+这个再做砸就说明日本人只有吃了东风才知道和中国人做生意要讲规矩。
+
+*****
+
+####  首领  
+##### 295#       发表于 2022-9-16 22:19
+
+急了急了急了急了急了急了急了
+
+*****
+
+####  流枫水叶  
+##### 296#       发表于 2022-9-16 22:19
+
+保守估计88w<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看热闹不嫌事大
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  愚人节快乐  
+##### 297#       发表于 2022-9-16 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516184&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-16 22:17</a>
+
+仔细想了想，我真的不觉得能做好，游戏内现有的无论是美术还是剧情设定素材都太少了，远远不够支撑起一部动 ...</blockquote>
+动画做成美少女动画都有人买爆，其他的无所谓的啦
+
+*****
+
+####  濡鸦之羽_  
+##### 298#       发表于 2022-9-16 22:20
+
+看见nbht那b站动态了，笑死
+
+*****
+
+####  pandaman7777  
+##### 299#       发表于 2022-9-16 22:20
+
+游戏区专楼   1/1
+
+漫区专楼     ？/1
+
+乐子人欢乐max，期待对线双方以后多整点好活和爆典吧
+
