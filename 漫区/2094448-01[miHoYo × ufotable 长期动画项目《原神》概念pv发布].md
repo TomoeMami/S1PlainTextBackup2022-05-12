@@ -5404,3 +5404,60 @@ yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销�
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  partrue  
+##### 593#       发表于 2022-9-17 01:32
+
+漫区有救了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+最好是抛弃本篇做全新剧情，什么蒙德解放战争璃月魔神争霸稻妻稻妻坎瑞亚入侵都可以做……
+复读游戏剧情那大可不必
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  月夜凝雪  
+##### 594#       发表于 2022-9-17 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518453&amp;ptid=2094448" target="_blank">plok201 发表于 2022-9-17 01:09</a>
+稻妻看大纲还行，实际成品拉跨，最搞的还是同期支线和活动剧情都挺好，像一个西餐厅，他最好的是饭后甜品和 ...</blockquote>
+明显太赶了，为了在2.1跑到雷神的剧情一路飙火箭，这次草神池子在3.2才出就多了时间铺垫，邪眼事件真按动画算起码能做三话以上的剧情浓缩到了半话的幅度
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  卢迪乌斯  
+##### 595#       发表于 2022-9-17 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518612&amp;ptid=2094448" target="_blank">yujiacyl 发表于 2022-9-17 01:30</a>
+
+米哈游真要卖盘子肯定是全球一起发行，这两个游戏全球玩家数量差了一个量级的
+
+—— 来自 samsung ...</blockquote>
+不如对标akb握手卷<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舆水沉浮  
+##### 596#       发表于 2022-9-17 01:36
+
+EVA多年来的第一终于要被打破了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  percy1234  
+##### 597#       发表于 2022-9-17 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517822&amp;ptid=2094448" target="_blank">不灭人形 发表于 2022-9-17 00:14</a>
+ufo是和索尼音乐混的，米哈游是和索尼游戏混的，索尼游戏和索尼音乐两个部门不搞内斗吗？
+
+这种长期合作肯 ...</blockquote>
+真要说的话，稻妻录ost的时候也和索尼音乐搭上了。
+不知道跟这次合作有几成关系。
+
