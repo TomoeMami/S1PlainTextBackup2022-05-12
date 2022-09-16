@@ -2823,3 +2823,213 @@ nbht和米有什么过往？</blockquote>
 
 主角是个哑巴对话全靠派蒙这点做成动画岂不是很尬。。。
 
+
+
+*****
+
+####  Alfie劉  
+##### 329#       发表于 2022-9-16 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515510&amp;ptid=2094448" target="_blank">lilisipis 发表于 2022-9-16 21:32</a>
+要是动画在国内没有过审，原u会不会冲击广电呢</blockquote>
+不如说一开始过审了，后面也可能被举报回炉吧
+
+*****
+
+####  兰开夏  
+##### 330#       发表于 2022-9-16 22:31
+
+有点圆梦的感觉。大伟哥真的爽
+
+
+
+*****
+
+####  绯田美琴  
+##### 331#       发表于 2022-9-16 22:32
+
+nbht怎么不展前几年讲理律片子反手小号阴阳的风采了呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 332#       发表于 2022-9-16 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516380&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 22:31</a>
+
+不如说一开始过审了，后面也可能被举报回炉吧</blockquote>
+上了再下那就得面对千万原友的怒火了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得光腚不会作死的
+
+*****
+
+####  Sza  
+##### 333#       发表于 2022-9-16 22:33
+
+能不能搞点黑深残，像痛觉残留那样，蒙德女骑士、璃月特工、稻妻将领身陷丘丘人老巢、愚人众营地、浪人藏身处啥的
+
+*****
+
+####  摸鱼2号  
+##### 334#       发表于 2022-9-16 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516408&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 22:32</a>
+
+上了再下那就得面对千万原友的怒火了我觉得光腚不会作死的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">广电会怕这个？
+
+*****
+
+####  阿姆罗二世  
+##### 335#       发表于 2022-9-16 22:34
+
+广电就笑笑，让改模还不是一样改，真以为原油能影响走弹啊，笑话
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  冰寒之月  
+##### 336#       发表于 2022-9-16 22:34
+
+原不愧是国产巫妖王 只要一出来就有流量
+
+*****
+
+####  kiririno  
+##### 337#       发表于 2022-9-16 22:34
+
+也是，劝广电不要不知好歹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 338#       发表于 2022-9-16 22:34
+
+这主线说得我还挺想看崩3动画化的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞碟印象中大长线没经验啊，也不知道最后会弄出什么来
+
+*****
+
+####  愚人节快乐  
+##### 339#       发表于 2022-9-16 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516425&amp;ptid=2094448" target="_blank">摸鱼2号 发表于 2022-9-16 22:33</a>
+
+广电会怕这个？</blockquote>
+怕倒是不怕，但肯定会被骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像之前集体下架奥特曼什么的
+
+*****
+
+####  Alfie劉  
+##### 340#       发表于 2022-9-16 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516408&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 22:32</a>
+上了再下那就得面对千万原友的怒火了我觉得光腚不会作死的</blockquote>
+前两次模型被回炉和谐不也没事，你当国内是谁话事人呢
+
+*****
+
+####  rr1984  
+##### 341#       发表于 2022-9-16 22:35
+
+大伟哥的梦想都有些啥？eva，fate还有sao？
+
+*****
+
+####  swordreader  
+##### 342#       发表于 2022-9-16 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516184&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-16 22:17</a>
+
+仔细想了想，我真的不觉得能做好，游戏内现有的无论是美术还是剧情设定素材都太少了，远远不够支撑起一部动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你看过几部动画啊，市面上至少有80%的动画里植物就是树草花，动物就是马猫狗，更多的就是拿张风景照给你描个背景了，谁有功夫给你整这玩意。
+
+*****
+
+####  快乐好难123  
+##### 343#       发表于 2022-9-16 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516259&amp;ptid=2094448" target="_blank">whzfjk 发表于 2022-9-16 22:23</a>
+
+湾湾这种带意识形态的要么找爹要么自渎，还不如看镇妖塔</blockquote>
+你自己脑补的吧，k岛湾友又不是全都政治厨，19年比简中论坛还一边倒，现在则是有人急有人乐，而且论婆度是比台球谭要高的。锁妖塔就那几个老选手互撸互导，狗嘴也吐不出象牙，话术也是偷的贴吧那套，那还不如玩贴吧呢还不用交五块钱。
+
+*****
+
+####  绯田美琴  
+##### 344#       发表于 2022-9-16 22:37
+
+fate不是蔡喵的梦想？
+
+最开始做游戏的时候比着苍崎青子的原画画的琪亚娜呢
+
+*****
+
+####  Alfie劉  
+##### 345#       发表于 2022-9-16 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516184&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-16 22:17</a>
+仔细想了想，我真的不觉得能做好，游戏内现有的无论是美术还是剧情设定素材都太少了，远远不够支撑起一部动 ...</blockquote>
+装备道具里碎片化叙事足够多，问题在于和主线无关，
+而动画显然还是要围绕主角来写，卡在这了
+
+*****
+
+####  kletka  
+##### 346#       发表于 2022-9-16 22:37
+
+为啥会觉得广电卡这个
+
+*****
+
+####  方舟售票员  
+##### 347#       发表于 2022-9-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516408&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 22:32</a>
+
+上了再下那就得面对千万原友的怒火了我觉得光腚不会作死的</blockquote>
+原神这种表面卡通偏儿童风的，不正是上面最喜欢的儿童向动画片吗
+
+又不带血又不断肢，过审稳的一B好吧，至于深度剧情...谁管啊
+
+*****
+
+####  nerugigannte  
+##### 348#       发表于 2022-9-16 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前排
+
+*****
+
+####  发财就收  
+##### 349#       发表于 2022-9-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515930&amp;ptid=2094448" target="_blank">skyuni 发表于 2022-9-16 22:01</a>
+
+有一说一，不让荧妹来当主&amp;#x8 ...</blockquote>
+毕竟妹妹的声优悠木碧配过一个与原神谐音的知名角色，当初米哈游找她配女主相信不是乱找的
+
+*****
+
+####  狂鸟渡渡  
+##### 350#       发表于 2022-9-16 22:38
+
+为什么都在阴阳怪气 好可怕...... 后悔花钱来这个论坛了。 
+
+*****
+
+####  Alfie劉  
+##### 351#       发表于 2022-9-16 22:39
+
+刘伟其实二次元浓度没那么高吧，
+蔡喵我记得是型月厨的，但选ufo应该跟这个没关系
+
+*****
+
+####  愚人节快乐  
+##### 352#       发表于 2022-9-16 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516450&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 22:35</a>
+
+前两次模型被回炉和谐不也没事，你当国内是谁话事人呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就是知道国内谁话事才这样说的阿。。。等一波收回《原神》版号
+
