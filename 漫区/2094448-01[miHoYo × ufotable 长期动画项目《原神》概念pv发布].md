@@ -4106,3 +4106,147 @@ oo区攻击xx区
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不配拥有名字
 
+
+
+*****
+
+####  三点几，饮茶啦  
+##### 463#       发表于 2022-9-16 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517203&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:29</a>
+五矿那档子事？好像说是信托暴雷米哈游好像说投了几十个亿在里面</blockquote>
+一共就几十亿，被坑的还有很多公司啦，米哈游没给多少
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kletka  
+##### 464#       发表于 2022-9-16 23:32
+
+几十亿还行，估计就几百万吧
+
+*****
+
+####  愚人节快乐  
+##### 465#       发表于 2022-9-16 23:32
+
+<blockquote>Nagoya 发表于 2022-9-16 23:31
+今后⚪神只有一个意思，这只不配拥有名字</blockquote>
+快进到《原神》动画为什么是神？首先是犯下XX之罪的《圆神》
+
+*****
+
+####  Alfie劉  
+##### 466#       发表于 2022-9-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517036&amp;ptid=2094448" target="_blank">用户名就算了吧 发表于 2022-9-16 23:15</a>
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
+长江后浪推前浪，原神玩家也未必还知道崩二呀
+
+*****
+
+####  z_shaw  
+##### 467#       发表于 2022-9-16 23:33
+
+火钳留名
+
+*****
+
+####  扶扶老奶奶  
+##### 468#       发表于 2022-9-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517234&amp;ptid=2094448" target="_blank">Nagoya 发表于 2022-9-16 23:31</a>
+今后⚪神只有一个意思，这只不配拥有名字</blockquote>
+都是umb，没差啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 469#       发表于 2022-9-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517234&amp;ptid=2094448" target="_blank">Nagoya 发表于 2022-9-16 23:31</a>
+
+今后⚪神只有一个意思，这只不配拥有名字</blockquote>
+你先问问原友UMB在来说好不好
+
+*****
+
+####  Nagoya  
+##### 470#       发表于 2022-9-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517220&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:30</a>
+
+这叫新朝雅政那里亡了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊对对对，⚪亨利贞，冻鳗之始
+
+*****
+
+####  枪聆弹语  
+##### 471#       发表于 2022-9-16 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉现在最难崩的就是月厨，手游要一直被拉踩，动画来了又被双厨狂喜
+
+*****
+
+####  MaxFOrder  
+##### 472#       发表于 2022-9-16 23:34
+
+我建议这楼还是转型锁妖塔吧，到底谁比较魔怔不好说了
+
+*****
+
+####  Nagoya  
+##### 473#       发表于 2022-9-16 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议这楼标题改为“漫区崖山”
+
+*****
+
+####  防辐射的  
+##### 474#       发表于 2022-9-16 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517084&amp;ptid=2094448" target="_blank">swordreader 发表于 2022-9-16 23:19</a>
+
+没活可以咬个打火机，没几个动画为了折腾你这点真实的生活感搞你说的这些东西的，何况一个幻想IP ...</blockquote>
+就这么说吧，就这pv才几个镜头，你已经把蒙德的动植物环境生态看了一半了，如果拉长成番剧水平，野外这个环境怕是要复读几十遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">稍微想像一下，就觉得很无聊了。
+
+并不是说要服务我的意思，只是找个角度唱衰一下动画罢了，个人反正不是很看好这个项目
+
+*****
+
+####  绯田美琴  
+##### 475#       发表于 2022-9-16 23:38
+
+归根到底还是要看ufo的制作人和监督啊，现在就个融合的很奇怪的概念pv没啥能说道的
+
+*****
+
+####  we89623  
+##### 476#       发表于 2022-9-16 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516865&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 23:03</a>
+有没有可能是尽量把赚的外汇在外面花掉，一分不上国内税</blockquote>
+想太多 米哈游交的税可是上海政府点名表扬
+
+*****
+
+####  fsz1987  
+##### 477#       发表于 2022-9-16 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516091&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:11</a>
+
+按之前中日合作动画项目看，不太看好。而且飞碟社怎么都是更适合崩坏3动画啊，看来原神真的很赚钱。 ...</blockquote>
+3蹦子应该是留给khara了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yujiacyl  
+##### 478#       发表于 2022-9-16 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517195&amp;ptid=2094448" target="_blank">XIEGC 发表于 2022-9-16 23:28</a>
+乐，希望原友们不会草e灭巨了就功劳归mhy，拉了就ufo来背锅</blockquote>
+卖不卖盘子还两说，就算给你卖出10W卷均也不够O几天的流水<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
