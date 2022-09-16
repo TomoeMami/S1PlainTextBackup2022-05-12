@@ -5064,3 +5064,124 @@ giguk很搞笑
 
 场景明显是游戏素材高模渲染出来的，然后把飞碟社画的东西缝起来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rainknine  
+##### 559#       发表于 2022-9-17 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士的一篇评价提到原的稻妻剧情的 ...</blockquote>
+个人意见
+
+好故事最重要的永远不是看什么哲学意义深刻思考，那种东西，文艺作品的讨论水平不如正经哲学的一根毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么“自由之神赋予的自由算不算自由”，什么“契约之神废除的契约”，什么“永恒与一瞬的辩证对立”
+本质上都是供人吹逼看上去唬人实质上与作品质量无关的陷阱。
+最近genshin风评回升的新版本，靠的是终于步入正轨的故事节奏、演出和人物塑造和关卡设计。
+否则再来个稻妻故事复刻那也还是一样的拉
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  防辐射的  
+##### 560#       发表于 2022-9-17 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士提到原的稻妻剧情张口闭口幽玄 ...</blockquote>
+有一部分支线和角色个人线还是挺不错的，但主线确实不敢恭维
+
+*****
+
+####  asami  
+##### 561#       发表于 2022-9-17 00:54
+
+每个国做剧场版还是可以的啊，不会太折磨
+
+*****
+
+####  Alicest  
+##### 562#       发表于 2022-9-17 00:55
+
+tm原的力量！<img src="https://p.sda1.dev/7/83cdd18434e6cba50b9368ba584ca455/Screenshot_20220917_005231.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 563#       发表于 2022-9-17 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518067&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-17 00:32</a>
+莫娜人气再高也是普通池子就能抽到的角色，基本是可以说是人手一只的免费角色了。跟甘雨比人气差远了。
+
+ ...</blockquote>
+不是说up角色那些算是购买随便改是违反了其他法律条文么？
+听说碧蓝航线某些被要求下架的皮肤也只是不能再买到但已经拥有的不会被改
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  isowowsl  
+##### 564#       发表于 2022-9-17 00:56
+
+ 本帖最后由 isowowsl 于 2022-9-17 00:59 编辑 
+
+大胆点，前100页都是前排！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+N年以后，老人们会向年轻人诉说，当年，是o的降临，拯救
+
+了漫区！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪乌斯  
+##### 565#       发表于 2022-9-17 00:56
+
+下个版本的流量密码，来到了他忠诚的漫区<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不知道还一直说  
+##### 566#       发表于 2022-9-17 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515510&amp;ptid=2094448" target="_blank">lilisipis 发表于 2022-9-16 21:32</a>
+
+要是动画在国内没有过审，原u会不会冲击广电呢</blockquote>
+骂广电还需要等原神动画?这都骂了十年了吧
+
+*****
+
+####  纸皮  
+##### 567#       发表于 2022-9-17 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哇靠乐子好大
+虽然你们很多都在玩梗但我怀疑有的胡吹要成真
+手游王之力不是吃素的！
+
+*****
+
+####  小红飞翼  
+##### 568#       发表于 2022-9-17 00:59
+
+米桑：动画是最好的宣传广告
+
+*****
+
+####  讴歌青春  
+##### 569#       发表于 2022-9-17 01:00
+
+有些人能不能别在这里键政
+
+*****
+
+####  月夜凝雪  
+##### 570#       发表于 2022-9-17 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518248&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-17 00:51</a>
+有一部分支线和角色个人线还是挺不错的，但主线确实不敢恭维</blockquote>
+支线能够好好写完一个故事而主线需要受到角色池子的影响和游戏载体很多剧情无法详细做只能略过形成了不少弊端吧，动画就没那么多限制，而且还可以展开说其他人的剧情不用镜头一直只跟着主角走
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
