@@ -4250,3 +4250,129 @@ b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作�
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Alfie劉  
+##### 479#       发表于 2022-9-16 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517335&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-16 23:39</a>
+想太多 米哈游交的税可是上海政府点名表扬</blockquote>
+那是去年啊，今年hoyoverse可是新加坡公司，
+当然即便逃掉很多海外收入，米哈游以后仍然会是纳税光荣户。
+
+*****
+
+####  Kokichi  
+##### 480#       发表于 2022-9-16 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只关心bd会塞多少东西，动画本体能期待个画面就行了。
+要是给小圆盘塞爆王之力能卖多少啊。
+
+
+
+*****
+
+####  percy1234  
+##### 481#       发表于 2022-9-16 23:41
+
+ 本帖最后由 percy1234 于 2022-9-16 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516091&amp;ptid=2094448" target="_blank">天青月白 发表于 2022-9-16 22:11</a>
+按之前中日合作动画项目看，不太看好。而且飞碟社怎么都是更适合崩坏3动画啊，看来原神真的很赚钱。 ...</blockquote>
+有一说一崩3的短篇全是中日合作的，分镜国内出，3d部分日本做，效果一样很好。
+当然长篇+2d为主难度肯定不一样就是了
+
+*****
+
+####  percy1234  
+##### 482#       发表于 2022-9-16 23:43
+
+其实我更好奇是走什么门路拉到ufo的，印象里ufo并不是那么好请的来着。
+是不是又和索尼py了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 483#       发表于 2022-9-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517203&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:29</a>
+五矿那档子事？好像说是信托暴雷米哈游好像说投了几十个亿在里面</blockquote>
+mhy 莉莉丝和好多一起公司合几十亿一起告的，结果大家就记住mhy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 484#       发表于 2022-9-16 23:45
+
+ 本帖最后由 愚人节快乐 于 2022-9-16 23:47 编辑 
+<blockquote>Alfie刘 发表于 2022-9-16 23:41
+那是去年啊，今年hoyoverse可是新加坡公司，
+
+当然即便逃掉很多海外收入，米哈游以后仍然会是纳税光荣户。 ...</blockquote>
+能避税肯定避税啦，国内的游戏市场环境本来就有很多风险，钱留外面可备不时之需，万一被一张A4纸砸了也能在海外东山再起
+
+*****
+
+####  icecry  
+##### 485#       发表于 2022-9-16 23:45
+
+<blockquote>愚人节快乐 发表于 2022-9-16 23:29
+五矿那档子事？好像说是信托暴雷米哈游好像说投了几十个亿在里面</blockquote>
+mhy只是投资公司其中之一，而且估计只有几百万。结果外面新闻写的好像几个亿都是mhy投的，毕竟流量密码
+
+*****
+
+####  剑布衣  
+##### 486#       发表于 2022-9-16 23:46
+
+好耶，我要看尸山血海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 487#       发表于 2022-9-16 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517386&amp;ptid=2094448" target="_blank">percy1234 发表于 2022-9-16 23:43</a>
+
+其实我更好奇是走什么门路拉到ufo的，印象里ufo并不是那么好请的来着。
+
+是不是又和索尼py了 ...</blockquote>
+20年末就有消息说挺多动画公司都给mhy打电话谈过
+
+和索尼py也是找A1啊
+
+*****
+
+####  绯田美琴  
+##### 488#       发表于 2022-9-16 23:47
+
+khara早就给米哈游做过片子了，之前崩3 Reburn: II就是ProjectStudio Q做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯夜殃雨  
+##### 489#       发表于 2022-9-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517234&amp;ptid=2094448" target="_blank">Nagoya 发表于 2022-9-16 23:31</a>
+
+今后⚪神只有一个意思，这只不配拥有名字</blockquote>
+好巧不巧悠木碧现在基本是原神义务推广大使了。
+
+*****
+
+####  codezwei  
+##### 490#       发表于 2022-9-16 23:49
+
+8w8算个屁，看我O批888w8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 491#       发表于 2022-9-16 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517358&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 23:41</a>
+那是去年啊，今年hoyoverse可是新加坡公司，
+当然即便逃掉很多海外收入，米哈游以后仍然会是纳税光荣户。 ...</blockquote>
+米哈游这种出海创收大户国家肯定盯得很紧，不管你逃税多少，只要给国内叫交了足够的钱，政府基本就睁一只眼闭一只眼了
+
