@@ -2576,3 +2576,18 @@ elona算是rpg吗
 
 谨慎看好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liekongzero  
+##### 285#       发表于 2022-9-16 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57506385&amp;ptid=2093296" target="_blank">ネコカイザー 发表于 2022-9-16 08:44</a>
+怎么一人一个说法ww
+
+我记得我当初玩废都物语的机缘就是听别人说废都物语是啥“独立双杰”之一。（ ...</blockquote>
+日本独立游戏里地位最高的是 洞窟物语 吧，始祖级+高完成度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
