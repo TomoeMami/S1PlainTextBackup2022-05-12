@@ -3452,3 +3452,167 @@ pv本身没什么感觉，看后续了。有些人也不要贷款吃屎，除非
 
 最终质量我觉得还要看mhy对制作能干涉到什么程度
 
+
+
+*****
+
+####  绯田美琴  
+##### 399#       发表于 2022-9-16 23:01
+
+给国内制作很不现实
+
+首先以米哈游一直做动画的准则至少三渲二的管道你得成熟，米哈游2d目前水平最高的也就羊廷牧那个片子，再往下就是震雷做的那种女武神的餐桌了
+
+原神这种正反流量拉满的，还是找个境外的比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 400#       发表于 2022-9-16 23:02
+
+ 本帖最后由 Alicest 于 2022-9-16 23:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/16/231011o09009h9a6hut96t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 23:10 上传
+
+*****
+
+####  Alfie劉  
+##### 401#       发表于 2022-9-16 23:03
+
+有没有可能是尽量把赚的外汇在外面花掉，一分不上国内税
+
+*****
+
+####  月夜凝雪  
+##### 402#       发表于 2022-9-16 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516366&amp;ptid=2094448" target="_blank">雪霜 发表于 2022-9-16 22:29</a>
+
+主角是个哑巴对话全靠派蒙这点做成动画岂不是很尬。。。</blockquote>
+你可以看看伊苏动画
+
+*****
+
+####  Viteeee  
+##### 403#       发表于 2022-9-16 23:04
+
+来啦来啦，以后这个就是你们漫区的锁妖塔啦<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 404#       发表于 2022-9-16 23:05
+
+虚假的漫区复兴：水魔 大河内
+
+真正的漫区复兴：元<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 405#       发表于 2022-9-16 23:05
+
+顺带有没有一种可能：原和飞碟的长期合作并不是指做完一部半年或者年番而是持续的把七国剧情全部动画化。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ichthy  
+##### 406#       发表于 2022-9-16 23:05
+
+这么一说倒是提醒我了，这片如果是3d的话，不一定是飞碟做，更有可能是飞碟负责前期，米哈游自组团队负责中后期。
+
+*****
+
+####  愚人节快乐  
+##### 407#       发表于 2022-9-16 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516865&amp;ptid=2094448" target="_blank">Alfie劉 发表于 2022-9-16 23:03</a>
+
+有没有可能是尽量把赚的外汇在外面花掉，一分不上国内税</blockquote>
+这样倒也正常，好像国内很多公司都是学苹果公司把赚来的“米”屯海外。。。。海内外两套账
+
+*****
+
+####  Nagoya  
+##### 408#       发表于 2022-9-16 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接拿游戏素材拼一个不好吗
+
+*****
+
+####  愚人节快乐  
+##### 409#       发表于 2022-9-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516906&amp;ptid=2094448" target="_blank">单脚着地 发表于 2022-9-16 23:05</a>
+
+顺带有没有一种可能：原和飞碟的长期合作并不是指做完一部半年或者年番而是持续的把七国剧情全部动画化。[f ...</blockquote>
+那这长期合同就大了去了。不过米哈游自己不组团队做动画？
+
+*****
+
+####  carroy  
+##### 410#       发表于 2022-9-16 23:08
+
+ 本帖最后由 carroy 于 2022-9-16 23:10 编辑 
+
+看这概念pv一半是渲的
+
+我还以为像宝石之国或者双城
+
+ufo只负责手绘做个脚本或者动画参考
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+仔细看了下人物镜头都是二维
+
+我的妈这两边对3D不是折磨死了
+
+*****
+
+####  yuusei_  
+##### 411#       发表于 2022-9-16 23:10
+
+mhy自己的动画团队的产能就是崩三那边一年一两个不到十分钟的动画短片，还得找日方原画师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 还差得远呐
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jietf  
+##### 412#       发表于 2022-9-16 23:10
+
+原神里人气排前包括我喜欢的，都是限定池里的角色
+
+真不想看露肚脐的弱鸡0男当主角
+
+*****
+
+####  leleq  
+##### 413#       发表于 2022-9-16 23:10
+
+对了 原的话是要有海外多语言版吧 ？！
+
+*****
+
+####  yuusei_  
+##### 414#       发表于 2022-9-16 23:10
+
+mhy自己的动画团队的产能就是崩三那边一年一两个不到十分钟的动画短片，还得找日方原画师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 还差得远呐
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  单脚着地  
+##### 415#       发表于 2022-9-16 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516936&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:07</a>
+
+那这长期合同就大了去了。不过米哈游自己不组团队做动画？</blockquote>
+国内主业专精做动画的公司都没有特别多长篇的成功案里出来，以MHY以往的行事风格我不觉得他们会好高骛远的平地起高楼
+
