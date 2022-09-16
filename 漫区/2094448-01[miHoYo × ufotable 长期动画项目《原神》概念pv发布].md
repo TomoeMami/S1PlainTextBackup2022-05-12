@@ -5492,3 +5492,537 @@ yysy，原神游戏本体在日本也被马娘暴打吧，为什么认为bd销�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  月夜凝雪  
+##### 601#       发表于 2022-9-17 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518733&amp;ptid=2094448" target="_blank">战星辰 发表于 2022-9-17 01:53</a>
+所以为什么动画那么便宜的赚口碑方式，手游公司都不乐意去搞呢感觉国内资本多少有点思维定式。
+好多 ...</blockquote>
+流水又不等于利润，得先剔除各种必要支出，真能另外投进去的钱有限
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  诚司  
+##### 602#       发表于 2022-9-17 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518733&amp;ptid=2094448" target="_blank">战星辰 发表于 2022-9-17 01:53</a>
+
+所以为什么动画那么便宜的赚口碑方式，手游公司都不乐意去搞呢感觉国内资本多少有点思维定式。
+
+好多 ...</blockquote>
+日本手游有动画的太多了，前排的手游更会搞
+
+国内主要是被日本人坑惨了，yostar都自己招人做动画了
+
+*****
+
+####  whzfjk  
+##### 603#       发表于 2022-9-17 01:59
+
+<blockquote>战星辰 发表于 2022-9-17 01:53
+所以为什么动画那么便宜的赚口碑方式，手游公司都不乐意去搞呢感觉国内资本多少有点思维定式。
+
+好多 ...</blockquote>
+碧蓝，碧蓝，乖离和少钱的口碑都不太行。唯一比较好的休止符也就圈地自萌。马娘动画算是平级的，论外。碧蓝档案如果动画化的话可能比较有希望。
+
+*****
+
+####  小小雪空  
+##### 604#       发表于 2022-9-17 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518733&amp;ptid=2094448" target="_blank">战星辰 发表于 2022-9-17 01:53</a>
+
+所以为什么动画那么便宜的赚口碑方式，手游公司都不乐意去搞呢感觉国内资本多少有点思维定式。
+
+好多 ...</blockquote>
+我记得之前就有几个国产手游改，不过做得不好被忘记了吧，这次是因为mhy×ufo，才让人回想起，原来可以这样……（简单来说：好的创意不一定会引起跟风，但火的东西绝对会引起跟风……）
+
+*****
+
+####  stonego  
+##### 605#       发表于 2022-9-17 02:00
+
+都600楼了就没有玩过游戏正经讨论PV内容的？开头的两颗紫星，大量没见过的地形和一个没见过的遗迹，结尾同时出现的双子，基本明示是要拍前原神书了，估计成品最早也在明年周年庆后，那时候主线的进展差不多也该讲讲500年前到底是怎么回事了。
+
+*****
+
+####  yujiacyl  
+##### 606#       发表于 2022-9-17 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518784&amp;ptid=2094448" target="_blank">stonego 发表于 2022-9-17 02:00</a>
+都600楼了就没有玩过游戏正经讨论PV内容的？开头的两颗紫星，大量没见过的地形和一个没见过的遗迹，结尾同 ...</blockquote>
+开头还有个派蒙呢，说白了就是个概念pv，成品说不定和这个一点关系都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  stonego  
+##### 607#       发表于 2022-9-17 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518795&amp;ptid=2094448" target="_blank">yujiacyl 发表于 2022-9-17 02:03</a>
+
+开头还有个派蒙呢，说白了就是个概念pv，成品说不定和这个一点关系都没有
+
+—— 来自 samsung SM- ...</blockquote>
+应急食品时间之神的碎片，随便穿越洒洒水啦
+
+*****
+
+####  影之诱惑  
+##### 608#       发表于 2022-9-17 02:06
+
+艹游灭野就在今天！<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战星辰  
+##### 609#       发表于 2022-9-17 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518767&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 01:58</a>
+日本手游有动画的太多了，前排的手游更会搞
+
+国内主要是被日本人坑惨了，yostar都自己招人做动画了 ...</blockquote>
+国内这几部拉主要还是脚本和时效性问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，手游好多活不过两年，但是动画一般打底一年多才能做出来，脚本也是，可能手游厂和动画公司都不会写剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+但是这些坑都是可以前人踩了可以躲开的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只能说国内属实韭菜太多了躺着赚太舒服了，稍微不躺的行为都没人乐意去干。
+米哈游这种开服流水够从早期开始酝酿不压工期其实也不是多难的一件事，只能说低端韭菜厂活该被高端韭菜厂薄纱了。
+
+*****
+
+####  月夜凝雪  
+##### 610#       发表于 2022-9-17 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518784&amp;ptid=2094448" target="_blank">stonego 发表于 2022-9-17 02:00</a>
+都600楼了就没有玩过游戏正经讨论PV内容的？开头的两颗紫星，大量没见过的地形和一个没见过的遗迹，结尾同 ...</blockquote>
+500年前也不是一起的，按照现有信息，500年前醒了一个完成了一次世界之旅，然后五百年后另一个醒来后不久就遇到了天理，之后就是游戏的故事
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  hidebumi  
+##### 611#       发表于 2022-9-17 02:12
+
+我要看岩王帝君薄纱奥赛尔<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G7810, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  诚司  
+##### 612#       发表于 2022-9-17 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518821&amp;ptid=2094448" target="_blank">战星辰 发表于 2022-9-17 02:07</a>
+
+国内这几部拉主要还是脚本和时效性问题吧，手游好多活不过两年，但是动画一般打底一年多才能做出 ...</blockquote>
+舰b流水一直国内国外都很好，天冲那部不也一样
+
+yostar应该也是怕了，否则不至于自己成立动画部门
+
+梅露可物语、偶像梦幻祭都相对还好，不过乐元素的日化可比yostar深多了，而且舰b yostar还是代理，没有明日方舟那种关系。
+
+*****
+
+####  方舟售票员  
+##### 613#       发表于 2022-9-17 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518832&amp;ptid=2094448" target="_blank">月夜凝雪 发表于 2022-9-17 02:09</a>
+
+500年前也不是一起的，按照现有信息，500年前醒了一个完成了一次世界之旅，然后五百年后另一个醒来后不久 ...</blockquote>
+刚来这个世界时肯定还是一起的，最后那个双子一起的画面，可能是刚穿越到提瓦特
+
+*****
+
+####  stonego  
+##### 614#       发表于 2022-9-17 02:14
+
+ 本帖最后由 stonego 于 2022-9-17 02:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518832&amp;ptid=2094448" target="_blank">月夜凝雪 发表于 2022-9-17 02:09</a>
+
+500年前也不是一起的，按照现有信息，500年前醒了一个完成了一次世界之旅，然后五百年后另一个醒来后不久 ...</blockquote>
+他俩明显是一起来到的提瓦特，在遇到天理前没有分开的理由，而且反主的旅行，是开头被天理的维系者封印（传送？）之后才开始的，所以后来他/她才会让另一位去重走他/她的路来沉淀对世界的理解。
+
+*****
+
+####  RedBaby  
+##### 615#       发表于 2022-9-17 02:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我可以说一点也不意外嘛，原神是冲着全球ip去的，很多外国玩家都是因为这种anime风格入坑的原。那选一家拥有超高知名度的日本动画公司出长篇动画，可以说就跟买初始号一样是一个具有超高性价比的选择，选国内公司质量和认可度都远远不可能有现在这个效果。对于粉丝来说就是情理之中意料之外的炸弹。
+
+*****
+
+####  流川枫枫  
+##### 616#       发表于 2022-9-17 02:20
+
+有没有可能只是找他们做个过场动画？来自: iPhone客户端
+
+*****
+
+####  haorhea  
+##### 617#       发表于 2022-9-17 02:22
+
+养得起名作级长篇动画的手游哪有那么多啊，还得算上一堆2.5企划本来就有动画。
+
+说到剧情的话，那mhy还真没有在动画里复读过游戏主线，餐桌也是复读的漫画。bbb短篇也只复读一点点前情提要。除非不读不行，否则连漫画和小说都几乎不在游戏里复读。
+
+我就说好几块蒙德我怎么不认得，原来不是我脑干缺失嘛<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+预告pv放兄妹派蒙，这个选择倒是很正常。
+但应该说兄妹手牵手贴贴的场景在游戏里，乃至可考证剧情(来提瓦特之后)里都从来没出现过，500年前他俩就是分开旅行的(过期食品)，唯一一次一起出门就被unknown god拘留了，醒来又是一个人。
+
+如果不是梦里的剧情或者后原神书，那基本就是给人看一眼画风的作用吧……
+以及空哥的辫子是不是被吃掉了
+
+*****
+
+####  风浦可符香(P.N)  
+##### 618#       发表于 2022-9-17 02:23
+
+谁能想到电锯人连半个国家队都当不上，开播前就被判了死刑，最后是你原拯救漫区XD  不过泥潭开原区是不是指日可待了，漫区务必珍惜当下，艹管灭野的美好愿景等分出去就没了XD 
+
+*****
+
+####  kletka  
+##### 619#       发表于 2022-9-17 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518876&amp;ptid=2094448" target="_blank">流川枫枫 发表于 2022-9-17 02:20</a>
+有没有可能只是找他们做个过场动画？</blockquote>
+大伟说了是长篇
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  诚司  
+##### 620#       发表于 2022-9-17 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518876&amp;ptid=2094448" target="_blank">流川枫枫 发表于 2022-9-17 02:20</a>
+
+有没有可能只是找他们做个过场动画？</blockquote>
+都说了做长篇动画了
+
+看了破晓传说还有人会找ufo做过场动画？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+崩3的动画也不是和飞碟社合作的
+
+*****
+
+####  FanFun  
+##### 621#       发表于 2022-9-17 02:30
+
+想起来锁链战记动画完连个水声都听不到<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">动画不一定能起多少正面作用
+
+*****
+
+####  Silencieuse  
+##### 622#       发表于 2022-9-17 02:34
+
+ 本帖最后由 Silencieuse 于 2022-9-17 02:39 编辑 
+
+还是比较期待做魔神战争时代吧 最后的结局有了 不至于乱搞 和游戏里现有内容关系也最紧密，关联地图的同时能覆盖相当一部分高人气角色
+关键是主线不成熟的地方 为了商业目的妥协的地方实在太多 就让它搁那吧别折腾了
+
+*****
+
+####  Silencieuse  
+##### 623#       发表于 2022-9-17 02:34
+
+风怒
+
+*****
+
+####  风浦可符香(P.N)  
+##### 624#       发表于 2022-9-17 02:36
+
+有句讲句，要是能做个七成是umb和古贺葵说相声三成是美少女（美少年）废话流水账的片我真挺愿意看的，而且也挺能打的，但显然不可能
+
+*****
+
+####  大江户战士  
+##### 625#       发表于 2022-9-17 02:38
+
+这个pv更像是动起来的美术设定，画面全是会出现在设定集里的那样
+
+不清楚动画大纲是否已经定下来了
+
+*****
+
+####  月夜凝雪  
+##### 626#       发表于 2022-9-17 02:40
+
+ 本帖最后由 月夜凝雪 于 2022-9-17 02:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518853&amp;ptid=2094448" target="_blank">stonego 发表于 2022-9-17 02:14</a>
+他俩明显是一起来到的提瓦特，在遇到天理前没有分开的理由，而且反主的旅行，是开头被天理的维系者封印（ ...</blockquote>
+回去再看了一下片头，看来是记错了是两个都被封了，
+不过他们遇到天理应该是早于五百年，然后五百年前甚至还早点反主醒来先旅行了一趟，还和肯瑞亚有很深的关系，
+而五百年后主角醒来开始故事，那他们在提亚特还是除了一开始也没怎么在一起过
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天人五衰  
+##### 627#       发表于 2022-9-17 02:45
+
+动画要是先做魔神战争坎瑞亚篇不是给自己拆台么
+
+*****
+
+####  ひびき  
+##### 628#       发表于 2022-9-17 02:45
+
+ 本帖最后由 ひびき 于 2022-9-17 02:47 编辑 
+
+别奶什么王之力了，米哈游这种手游葛朗台，一卷一抽顶天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有umb和古贺葵说相声的日常番绝对比这个看起来要搞大事情的开头靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 保底能破壁
+
+搞这大事情搞失败了就不仅是动画暴死的事了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 全球炎上大概率
+
+*****
+
+####  云卷花开  
+##### 629#       发表于 2022-9-17 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518915&amp;ptid=2094448" target="_blank">Silencieuse 发表于 2022-9-17 02:34</a>
+还是比较期待做魔神战争时代吧 最后的结局有了 不至于乱搞 和游戏里现有内容关系也最紧密，关联地图的同时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">快进到归终出场复刻钟离2.0
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我的爱是订书机  
+##### 630#       发表于 2022-9-17 02:51
+
+<blockquote>skyrakero 发表于 2022-9-17 01:49
+米桑这么扣的人，还有人觉得能买bd送ssr？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+全卷特典给个648应该问题不大
+
+
+
+*****
+
+####  sjbssd  
+##### 631#       发表于 2022-9-17 02:51
+
+速通了这栋楼，没有找到快乐，撤了，这动画估计还有一年出来，到时候再说吧
+
+*****
+
+####  akari1864  
+##### 632#       发表于 2022-9-17 02:52
+
+<blockquote>战星辰 发表于 2022-9-17 01:53
+所以为什么动画那么便宜的赚口碑方式，手游公司都不乐意去搞呢感觉国内资本多少有点思维定式。
+
+好多 ...</blockquote>
+大部分手游是空有设定剧情空有大纲（甚至可能没有大纲）然后想哪写到哪的。红了之后有追求的吃书重整，没追求的躺平摆烂。
+
+没玩过原不过听别人说起过，感觉就是这种故事藏在文本里，主线还没完全展开的方式非常不适合做动画啊。
+
+*****
+
+####  suttv  
+##### 633#       发表于 2022-9-17 02:55
+
+长篇动画对标的概念是泡面番，其实也就tv长度的动画的意思
+
+*****
+
+####  AraTurambar  
+##### 634#       发表于 2022-9-17 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518951&amp;ptid=2094448" target="_blank">天人五衰 发表于 2022-9-17 02:45</a>
+
+动画要是先做魔神战争坎瑞亚篇不是给自己拆台么</blockquote>
+双城之战做了六年，赛博朋克做了四年，米哈游如果真的愿意投入极大量资金做动画，估计动画出来的时候提瓦特篇已经结束了，到时候正好补完前原神书。
+
+*****
+
+####  大江户战士  
+##### 635#       发表于 2022-9-17 02:58
+
+原神剧情也就公路片那套
+
+<img src="https://img.saraba1st.com/forum/202209/17/025802vz29hhto2rupduwp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 02:58 上传
+
+*****
+
+####  asuss  
+##### 636#       发表于 2022-9-17 03:01
+
+没来过漫区，我也来发言了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这个动画能有LOL那边的双城那种高度就好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战星辰  
+##### 637#       发表于 2022-9-17 03:01
+
+ 本帖最后由 战星辰 于 2022-9-17 03:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518976&amp;ptid=2094448" target="_blank">akari1864 发表于 2022-9-17 02:52</a>
+
+大部分手游是空有设定剧情空有大纲（甚至可能没有大纲）然后想哪写到哪的。红了之后有追求的吃书重整，没 ...</blockquote>
+所有手游都不适合做动画其实，在漫区隔壁楼我就提过这个问题了，做成正剧必然有角色厨炎上的，但是可以做成单刷时髦的或者日常。但是对于调教好的氪金母猪的话，我不确定。 <blockquote>数据库游戏本质就是卖人设，剧情就是用来凹人设的，重要性绝对不低，尤其是在推动二创亚文化这方面。啤酒烧烤，七都，fgo，○粥崩少前都是明晃晃的例子。只是手游玩家的审美水平感受不到剧情凹的强行程度，只会沉浸在哥哥好帅姐姐好飒的氛围里，从他们讨论剧情时候的切入点就知道了，他们从来不在乎剧情是怎么“发展”的，而是永远在聊谁，在哪干了什么，体现了什么性格，手游的剧情是完全根据所服务的角色切割成碎片的。因为手游的绝大多数角色是不存在成长，或者只是在该角色为主的篇章成长到抽到家里以后的设定的形态，但为了卖角色和讨好玩家，还会不断地让已完成的角色重复的刷存在感，但他们永远遵守作为被完成的人物设定而不会有任何改变，因为这个人物的建立就是为了吃这个设定的玩家所服务的，如果要改变，或是仅仅填充未知部分都有机会会被炎上，这方面例子数不胜数了。这注定了手游剧情整体不可能到达一个正常故事的及格线水平，只是一堆设定文档纠缠出的乱麻。
+
+与其说是手游没有剧情，不如说手游的剧情就像综艺节目，或者楼上说的t台，只是为了营造“明星”的人设讨好这部分爱好者罢了。
+
+syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和手游这种凹人设没啥区别，只不过明星从角色变成设定罢了。</blockquote>
+
+*****
+
+####  小小雪空  
+##### 638#       发表于 2022-9-17 03:01
+
+ 本帖最后由 小小雪空 于 2022-9-17 03:10 编辑 
+
+原神的剧情哪有这么玄乎，不就是主角到各个国家旅行的公路片吗，目前手游进度是到了第四个国家……×
+
+补充：想了想，原作是公路片反而是难点，因为大部分手游都是有据点的东西，可以在据点日常，但公路片的话，要突出主角游行者的身份，反而要四处走动……×
+
+*****
+
+####  云卷花开  
+##### 639#       发表于 2022-9-17 03:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦结局或者其他世界线的故事之类的其实以原神世界观来说也不是不能考虑的，不过要我桃的话那大概是希望这个动画可以认认真真的作为提瓦特世界观构建的一部分，与游戏主线一起把现在游戏里的谜语给圆了，而不是纯复读，那太没意思了。
+至于剧情之外的，原神这边如果涉及到魔神的话的话字面意义上的大场面挺多的，游戏里目前表现得其实挺一般或者挺侧面的。不知道动画能不能做出来靠谱的魔神大战的场景来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ひびき  
+##### 640#       发表于 2022-9-17 03:05
+
+ 本帖最后由 ひびき 于 2022-9-17 03:14 编辑 
+
+当年舰娘明明集集日常番就能轻松6w6甚至8w8，非要去凹他那傻卵剧情<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 教训犹在眼前啊
+
+动画就是做这种卖角色的日常番才有优势，因为游戏不好切视角
+
+做500年前剧情还不如直接游戏里搞前原神书，讲主线的话游戏的演出是动画拍马都比不上的，别说3D游戏了，连fgo的adv演出都能吊打ufo的动画<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">我随便举两个例子，王哈斩提妈，剧场版英灵集结
+
+*****
+
+####  sjbssd  
+##### 641#       发表于 2022-9-17 03:11
+
+原神的剧情可能是循环梦境那种。雷神喜欢说尘世是一场泡影，草神也在说。一周目主角其实经历和二周目差不多，天空的星星写好了世界里人物的命运，派蒙的能力是时间的加快，原神的世界只有月亮没有太阳。其实已经信息很多了。大概是一个会循环的世界观。米哈游的崩坏剧情也是。
+
+*****
+
+####  Silencieuse  
+##### 642#       发表于 2022-9-17 03:14
+
+ 本帖最后由 Silencieuse 于 2022-9-17 03:15 编辑 
+
+就原神这个公路片剧情 按照TV动画的模式 容易沦为角色打个照面走过场吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 最好的形式应该是做剧场版了 之前三幕剧的格式都是现成的
+
+*****
+
+####  不可能翻车  
+##### 643#       发表于 2022-9-17 03:17
+
+这下真的是感觉不如原神画质了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tornadoDA  
+##### 644#       发表于 2022-9-17 03:19
+
+<blockquote>AraTurambar 发表于 2022-9-17 02:56
+双城之战做了六年，赛博朋克做了四年，米哈游如果真的愿意投入极大量资金做动画，估计动画出来的时候提瓦 ...</blockquote>
+那样的话这饼也画得太早了吧，质量肯定不可能达到双城那种级别，双城算是拳头自己把控，当初放出消息过了1年多就上了，除非米哈游在19年内测时就同时再做动画了
+
+*****
+
+####  大江户战士  
+##### 645#       发表于 2022-9-17 03:20
+
+一般来说tv动画从立项到播出的制作周期是2~3年
+
+*****
+
+####  不知道还一直说  
+##### 646#       发表于 2022-9-17 03:47
+
+有现成的人物，场景，设定，做起来应该比纯原创快一点吧
+
+*****
+
+####  ViviR  
+##### 647#       发表于 2022-9-17 03:58
+
+ 本帖最后由 ViviR 于 2022-9-17 03:59 编辑 
+
+看了眼nbnt那个动态都2000多评价了，不用点进去都知道是啥画风。这还是大晚上，过个一天怕不是要翻倍了。说白了一开始就不该提这茬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  posthoc  
+##### 648#       发表于 2022-9-17 04:01
+
+原来……你们……这么多人……
+
+都玩过原神的吗<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八汰乌  
+##### 649#       发表于 2022-9-17 04:33
+
+这是UFO第一次接国外IP吗
+
+*****
+
+####  Standpronder  
+##### 650#       发表于 2022-9-17 04:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519103&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-09-17 03:58:24</a></blockquote>被仙驱团建了可不是这样么。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nejiang  
+##### 651#       发表于 2022-9-17 04:59
+
+节目里提到冬夜愚戏热度超出预期，我估计UFO这个就是用正经动画代替L2D做类似的短片，1.5-3个月出一集的短片OVA，长篇的意思是一直出到原神7国出完
+
+*****
+
+####  Standpronder  
+##### 652#       发表于 2022-9-17 05:26
+
+好家伙，机核这条新闻下面居然也能吵起来。
+他们难道不知道米哈游投资了机核么。。。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  icecry  
+##### 653#       发表于 2022-9-17 05:41
+
+<blockquote>ひびき 发表于 2022-9-17 02:45
+别奶什么王之力了，米哈游这种手游葛朗台，一卷一抽顶天了
+
+还有umb和古贺葵说相声的日常番绝对比这 ...</blockquote>
+米忽悠扣指的是他游戏福利，其他地方出手可是给钱大气的很，比如工商，各种音乐会。动画他们肯定会砸钱
+
