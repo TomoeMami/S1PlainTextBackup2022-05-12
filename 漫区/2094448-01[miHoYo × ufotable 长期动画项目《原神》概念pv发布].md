@@ -3616,3 +3616,271 @@ mhy自己的动画团队的产能就是崩三那边一年一两个不到十分�
 那这长期合同就大了去了。不过米哈游自己不组团队做动画？</blockquote>
 国内主业专精做动画的公司都没有特别多长篇的成功案里出来，以MHY以往的行事风格我不觉得他们会好高骛远的平地起高楼
 
+
+
+*****
+
+####  Nakano66666  
+##### 416#       发表于 2022-9-16 23:11
+
+好呀<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我很费纸  
+##### 417#       发表于 2022-9-16 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516383&amp;ptid=2094448" target="_blank">兰开夏 发表于 2022-9-16 22:31</a>
+有点圆梦的感觉。大伟哥真的爽</blockquote>
+从当年的eva联动到现在的动画
+
+米桑公司里至少是有一批真肥宅圆梦了的
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Viteeee  
+##### 418#       发表于 2022-9-16 23:12
+
+倒是快点放出来啊，我已经等不及要看鉴赏区+2和-2的世纪大战了！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 419#       发表于 2022-9-16 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516936&amp;ptid=2094448" target="_blank">愚人节快乐 发表于 2022-9-16 23:07</a>
+
+那这长期合同就大了去了。不过米哈游自己不组团队做动画？</blockquote>
+除非做纯3D否则国产动画成本只会更高吧
+
+*****
+
+####  UnhappyTails  
+##### 420#       发表于 2022-9-16 23:12
+
+ 本帖最后由 UnhappyTails 于 2022-9-16 23:15 编辑 
+
+【齐、自豪地】古川 必胜客 飞碟 索大法 全部准备好马上开船啦
+
+【独、娓娓道来地】我们这里有一个好项目 你们做动画我们赞助
+
+明年的bd销量恐怖 保守估计有九位数
+
+虽然做了口碑万劫不复 但看在钱的份上就赌一赌
+
+想办法先把pv给披露 让粉丝把热度留住
+
+【齐、欢快地】近藤 近藤 b格去哪里啦
+
+让他替月厨还贷别忘啦
+
+米桑 米桑 成本是五比五
+
+剩下九十op付
+
+【独、自豪地】我们从来就没洗地分部 对业界贡献自是罄竹难书
+
+2021年营收看清楚 金币骑脸无人能阻
+
+【齐、欢快地】近藤 近藤 b格去哪里啦
+
+又氪金又买光盘好贵呀
+
+米桑 米桑 磨刀霍霍宰猪
+
+你懂啥陶朱之术
+
+近藤 近藤 b格去哪里啦
+
+顶级作画来搞顶级手法
+
+米桑 米桑 版权法不见啦
+
+这才叫顶级手法
+
+古川 必胜客 飞碟 索大法 全部准备好马上开船啦
+
+别问 别问 业界入不敷出 全靠米桑来救赎！
+
+古川 必胜客 飞碟 索大法 全部准备好马上开船啦
+
+别问 别问 文化输出辛苦 谁管o黑服不服！
+
+
+
+*****
+
+####  消防  
+##### 421#       发表于 2022-9-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516685&amp;ptid=2094448" target="_blank">摸鱼2号 发表于 2022-9-16 22:51</a>
+
+建议品鉴pako的事，外包不过是打工的，功劳始终还是mhy的，懂了吧</blockquote>
+那我不同意，mhy首先2D修了pako的祖传歪脸，再成功3D画风统一建模，接着做动捕赋予角色动作特色，尤其最后一点可是从本质把2D立绘和3D建模给区分开了
+
+论功行赏pako做了个中规中矩的人设只能算20%的功劳，建模动捕才是角色的灵魂所在
+
+*****
+
+####  NaAgfykp  
+##### 422#       发表于 2022-9-16 23:13
+
+太吓人了，两小时400楼。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愚人节快乐  
+##### 423#       发表于 2022-9-16 23:13
+
+<blockquote>yuusei_ 发表于 2022-9-16 23:10
+mhy自己的动画团队的产能就是崩三那边一年一两个不到十分钟的动画短片，还得找日方原画师 还差得远 ...</blockquote>
+怕不是不肯砸钱，手游实在是太好赚了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 424#       发表于 2022-9-16 23:13
+
+振兴s1漫区，给🐶叔的论坛建设添砖加瓦。😄
+
+*****
+
+####  normalli  
+##### 425#       发表于 2022-9-16 23:14
+
+我看到男主会胃疼，如果非要用男主只能放弃了，暴死最好
+
+*****
+
+####  诚司  
+##### 426#       发表于 2022-9-16 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517000&amp;ptid=2094448" target="_blank">Viteeee 发表于 2022-9-16 23:12</a>
+
+倒是快点放出来啊，我已经等不及要看鉴赏区+2和-2的世纪大战了！</blockquote>
+还不如看bangumi
+
+泥潭这re0都能打成负的，动画评分一丝都没有可看的
+
+*****
+
+####  CamphorLife  
+##### 427#       发表于 2022-9-16 23:15
+
+哥哥视角？
+
+FGO也选了咕哒夫而不是人气压倒性更高的咕哒子
+
+*****
+
+####  用户名就算了吧  
+##### 428#       发表于 2022-9-16 23:15
+
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那知道学美和双恋a是不是都该入土了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，果然时代是一步步重演的，当初fatezero是闭嘴番，然后鬼灭来了，现在轮到原了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  katern  
+##### 429#       发表于 2022-9-16 23:16
+
+害怕，这下可以光明正大占领漫区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Viteeee  
+##### 430#       发表于 2022-9-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517020&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-16 23:14</a>
+
+还不如看bangumi
+
+泥潭这re0都能打成负的，动画评分一丝都没有可看的</blockquote>
+对对对就是这个味<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+要不然贿赂一下正经侠，先把鉴赏区贴子开了让大家过一个对轰的瘾吧<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 431#       发表于 2022-9-16 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516366&amp;ptid=2094448" target="_blank">雪霜 发表于 2022-9-16 22:29</a>
+
+主角是个哑巴对话全靠派蒙这点做成动画岂不是很尬。。。</blockquote>
+现在主角动不动用选项代替说话外加一堆心理活动描述，早就不是哑巴了
+
+*****
+
+####  kuluwu  
+##### 432#       发表于 2022-9-16 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517036&amp;ptid=2094448" target="_blank">用户名就算了吧 发表于 2022-9-16 23:15</a>
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
+去看了下，连最强动画公司都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 433#       发表于 2022-9-16 23:18
+
+我感觉最后飞碟桌要被原友冲烂，还会说给日本人不如国人自己做
+
+*****
+
+####  Arsaces  
+##### 434#       发表于 2022-9-16 23:18
+
+进楼看破防乐子，笑死我了
+那个孤勇者的真是要笑死我
+谁是急急国王？<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  icecry  
+##### 435#       发表于 2022-9-16 23:18
+
+<blockquote>leleq 发表于 2022-9-16 23:10
+对了 原的话是要有海外多语言版吧 ？！</blockquote>
+现在游戏里是中日韩英四国配音
+
+*****
+
+####  愚人节快乐  
+##### 436#       发表于 2022-9-16 23:19
+
+<blockquote>kuluwu 发表于 2022-9-16 23:17
+去看了下，连最强动画公司都出来了</blockquote>
+怕不是不知道东映动画。。。
+
+*****
+
+####  swordreader  
+##### 437#       发表于 2022-9-16 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516693&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-16 22:52</a>
+
+一开始来S1就是混漫区的，看过的动画应该有一两百部了。当然只是看个热闹，不懂门道。
+
+我是希望能就照着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没活可以咬个打火机，没几个动画为了折腾你这点真实的生活感搞你说的这些东西的，何况一个幻想IP的重点是照顾你的真实的生活感吗。
+
+*****
+
+####  swordreader  
+##### 438#       发表于 2022-9-16 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517036&amp;ptid=2094448" target="_blank">用户名就算了吧 发表于 2022-9-16 23:15</a>
+
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">时代变了，老东西该爆金币啦
+
