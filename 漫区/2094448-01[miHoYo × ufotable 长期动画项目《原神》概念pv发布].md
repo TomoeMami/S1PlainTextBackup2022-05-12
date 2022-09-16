@@ -1352,3 +1352,327 @@ op+ufo，好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.
 
 不如猜是什么形式吧，我觉得长期合作估计是单元剧，要不然剧情没法写，角色也太多了
 
+
+
+*****
+
+####  快乐好难123  
+##### 157#       发表于 2022-9-16 21:31
+
+哦对了，莫娜是原版还是阉割后的呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唯登诗树  
+##### 158#       发表于 2022-9-16 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515309&amp;ptid=2094448" target="_blank">kyonkoism 发表于 2022-9-16 21:22</a>
+
+呱！！！一想到动画播出后，全国，不，全世界的原神粉狂暴轰入世界各大动画社区论坛彻底征服的样子，我就兴 ...</blockquote>
+笑，到时发现原本就是一伙人
+
+*****
+
+####  whzfjk  
+##### 159#       发表于 2022-9-16 21:32
+
+倒也没什么不敢相信的，有钱人的玩法迟早会有，不过ufo也算是门当户对了，要是京都或pa可能会惊讶一下
+
+*****
+
+####  yuusei_  
+##### 160#       发表于 2022-9-16 21:32
+
+感觉不如原神……作画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+做得怎么样不说，乐子反正少不了了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  故事会  
+##### 161#       发表于 2022-9-16 21:32
+
+还专门开了一个动画官号
+
+20220916213145.jpg
+(46.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/213201sc5sseucsgg5u5pb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lilisipis  
+##### 162#       发表于 2022-9-16 21:32
+
+要是动画在国内没有过审，原u会不会冲击广电呢
+
+*****
+
+####  七千星  
+##### 163#       发表于 2022-9-16 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈,做好做崩都会是乐子
+
+*****
+
+####  戏谑二次元  
+##### 164#       发表于 2022-9-16 21:32
+
+前排前排<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">情迷弗朗西西之后漫区最感兴趣的
+
+*****
+
+####  防辐射的  
+##### 165#       发表于 2022-9-16 21:32
+
+先打一架，原神主线水平比fz差多少个鬼灭？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 166#       发表于 2022-9-16 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515468&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-16 21:30</a>
+
+不知道舅舅可信度多少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mhy烧了那么多钱，怎么可能低话语权
+
+*****
+
+####  越动天下  
+##### 167#       发表于 2022-9-16 21:33
+
+漫区时代 沸腾期待
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒光一闪  
+##### 168#       发表于 2022-9-16 21:33
+
+腥风血雨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  REALISM  
+##### 169#       发表于 2022-9-16 21:33
+
+原批堂堂正正回宫是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tnzbt  
+##### 170#       发表于 2022-9-16 21:33
+
+欢迎来到漫区最高楼 哎呀这不…
+
+*****
+
+####  七千星  
+##### 171#       发表于 2022-9-16 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如猜猜到时候国内版会不会打圣光
+
+*****
+
+####  cloudcc  
+##### 172#       发表于 2022-9-16 21:33
+
+漫区最黑暗一天
+
+*****
+
+####  cloudcc  
+##### 173#       发表于 2022-9-16 21:33
+
+漫区最黑暗一天
+
+*****
+
+####  哆哆鸡  
+##### 174#       发表于 2022-9-16 21:34
+
+能艹马灭e吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qingshuihe  
+##### 175#       发表于 2022-9-16 21:35
+
+超王之力对轰要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愚人节快乐  
+##### 176#       发表于 2022-9-16 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515469&amp;ptid=2094448" target="_blank">新的瑞拉 发表于 2022-9-16 21:30</a>
+
+如果送等价抽数，或者限定道具的话，会不会创造bd销量历史啊</blockquote>
+世纪霸权预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  InkEgg  
+##### 177#       发表于 2022-9-16 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515549&amp;ptid=2094448" target="_blank">哆哆鸡 发表于 2022-9-16 21:34</a>
+能艹马灭e吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+艹🐴灭e？又一封写给eva的情书！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  InkEgg  
+##### 178#       发表于 2022-9-16 21:36
+
+ 本帖最后由 InkEgg 于 2022-9-16 21:37 编辑 
+
+风怒编辑
+
+*****
+
+####  发霉的面包  
+##### 179#       发表于 2022-9-16 21:36
+
+见证漫区历史，先占个位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Alicest  
+##### 180#       发表于 2022-9-16 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515168&amp;ptid=2094448" target="_blank">楠芽吹 发表于 2022-9-16 21:16</a></blockquote>
+忘了哪一期了，台长说自己是马成功路上不可获取的一环，难道台长没有骗我<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  枪聆弹语  
+##### 181#       发表于 2022-9-16 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如...飞碟桌...特效
+
+*****
+
+####  ElderDriver  
+##### 182#       发表于 2022-9-16 21:36
+
+○配碟，黑暗联手，天作之合。德不配位的跨界合作，剧场版拳打鬼灭500亿，tv脚踢赛马娘28w8。原神时代，沸腾期待!跟我一起香槟开起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rr1984  
+##### 183#       发表于 2022-9-16 21:36
+
+怎么说？有好哥哥说说原神主线剧情怎么样吗
+
+*****
+
+####  发霉的面包  
+##### 184#       发表于 2022-9-16 21:36
+
+见证漫区历史，先占个位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  standa  
+##### 185#       发表于 2022-9-16 21:37
+
+限定角色或道具的话能卖多少我都不敢想.....
+
+*****
+
+####  绯田美琴  
+##### 186#       发表于 2022-9-16 21:37
+
+原神主线剧情不如崩3一根
+
+*****
+
+####  ae云岚  
+##### 187#       发表于 2022-9-16 21:38
+
+出动画倒是没有意外，意外这么早出动画，我还以为起码要三四年后原神热度下降了出动画拉一波人气
+
+*****
+
+####  愚人节快乐  
+##### 188#       发表于 2022-9-16 21:38
+
+这长期是有多长，十年？？？
+
+*****
+
+####  nixidek  
+##### 189#       发表于 2022-9-16 21:38
+
+前十页都是前排系列……
+
+*****
+
+####  kyonkoism  
+##### 190#       发表于 2022-9-16 21:38
+
+成功与飞碟合作，原神的黑暗之力立刻暴增、狂增、劲增！！！杀杀杀杀杀杀！此刻的OP泛滥程度比任何的时候也要更强大五十倍！无比霸念、无比狂态。。。。。如此的可恶魔神（迫真），。。天下间还有什么可以抵挡？他妈的，天下间还有什么可以抵挡了！！！！
+
+*****
+
+####  Silencieuse  
+##### 191#       发表于 2022-9-16 21:40
+
+看乐子太久都忘了前排占个座了
+
+*****
+
+####  三月的老虎  
+##### 192#       发表于 2022-9-16 21:41
+
+前排留名<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无证madam  
+##### 193#       发表于 2022-9-16 21:41
+
+不是 长期是随游戏更新啊？
+
+*****
+
+####  Troy_VoV  
+##### 194#       发表于 2022-9-16 21:41
+
+乐啊，很乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  防辐射的  
+##### 195#       发表于 2022-9-16 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515587&amp;ptid=2094448" target="_blank">rr1984 发表于 2022-9-16 21:36</a>
+
+怎么说？有好哥哥说说原神主线剧情怎么样吗</blockquote>
+不太行，相对好的部分也就普通水平，烂的部分就更别提了，稻妻主线虎头蛇尾逻辑硬伤。最近一年的文案有所回升，但是目前还不知道须弥主线到底写得怎么样。
+
+*****
+
+####  M82  
+##### 196#       发表于 2022-9-16 21:43
+
+有生之年系列，必须顶
+
