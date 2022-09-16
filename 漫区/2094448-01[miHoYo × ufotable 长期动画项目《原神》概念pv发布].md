@@ -854,3 +854,501 @@ S1漫区流量救星<img src="https://static.saraba1st.com/image/smiley/face2017
 
 前10楼都是前排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 98#       发表于 2022-9-16 21:21
+
+原！
+
+*****
+
+####  Tiny9  
+##### 99#       发表于 2022-9-16 21:21
+
+不管怎么说，漫区流量吃饱吃满了
+
+*****
+
+####  消防  
+##### 100#       发表于 2022-9-16 21:21
+
+哦对，以UFO稀烂的文戏和原神稀烂的剧本
+
+想想都……白开水
+
+*****
+
+####  FanFun  
+##### 101#       发表于 2022-9-16 21:21
+
+王之力上自选五星能超马吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tide777  
+##### 102#       发表于 2022-9-16 21:21
+
+最后两人一出场，一股传说味扑面而来
+
+*****
+
+####  小万邦  
+##### 103#       发表于 2022-9-16 21:21
+
+莉可莉丝也就图一乐，真漫区万丈高楼还得是原
+
+*****
+
+####  快乐好难123  
+##### 104#       发表于 2022-9-16 21:21
+
+主要还是上次请国内工作室做的太抽象，米孝子都唬不住了，不如加钱请日本人了。但上次中日合作的我还有印象的就一个大圣归来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blckfyre  
+##### 105#       发表于 2022-9-16 21:21
+
+这pv一股子滚6宣传片的饼味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 106#       发表于 2022-9-16 21:22
+
+<blockquote>we89623 发表于 2022-9-16 21:09
+是长期项目。 也就是说跟飞碟保持长期合作，大概意思就是不单单指拍个一季TV动画就了事，可能之后游戏需要 ...</blockquote>
+有钱是真的为所欲为了。
+
+*****
+
+####  仟音一心  
+##### 107#       发表于 2022-9-16 21:22
+
+反正我拿到消息时没敢发贴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一看漫区这楼就起来了。
+
+*****
+
+####  月夜凝雪  
+##### 108#       发表于 2022-9-16 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515162&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-16 21:15</a>
+
+主角是哥哥还是妹妹？</blockquote>
+按照标准宣传正篇主角是哥哥，如果是前传历史那主角就应该是妹妹
+
+*****
+
+####  阿姆罗二世  
+##### 109#       发表于 2022-9-16 21:22
+
+里克里克肯定罢行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  若风之景  
+##### 110#       发表于 2022-9-16 21:22
+
+卫星飞翔中
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一色いろは  
+##### 111#       发表于 2022-9-16 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正也就先画个饼，2024估计都看不到
+
+*****
+
+####  云卷花开  
+##### 112#       发表于 2022-9-16 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515229&amp;ptid=2094448" target="_blank">13街的居住民 发表于 2022-9-16 21:18</a>
+有钱真的能使鬼推磨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以中日合作这状态，真不崩再说鬼推磨的事吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kyonkoism  
+##### 113#       发表于 2022-9-16 21:22
+
+呱！！！一想到动画播出后，全国，不，全世界的原神粉狂暴轰入世界各大动画社区论坛彻底征服的样子，我就兴奋到扯旗啊！！吔！！！<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酥蕤  
+##### 114#       发表于 2022-9-16 21:23
+
+这玩意儿来王之力不得了
+
+*****
+
+####  marlinfish  
+##### 115#       发表于 2022-9-16 21:23
+
+这下make 漫区great again了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bobby312123  
+##### 116#       发表于 2022-9-16 21:23
+
+见证历史，漫区流量有救了
+
+*****
+
+####  uponutopia  
+##### 117#       发表于 2022-9-16 21:23
+
+这PV不咋地啊，这便宜3D还不如游戏过场呢，人物更是便宜味道，估计是低配FGO改，不过也无所谓就是了
+
+*****
+
+####  Chayacha  
+##### 118#       发表于 2022-9-16 21:23
+
+现在还算前排<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久保由利香  
+##### 119#       发表于 2022-9-16 21:23
+
+留给魔怔人的地方不多了
+
+*****
+
+####  山口達也  
+##### 120#       发表于 2022-9-16 21:23
+
+拳打鬼灭，脚踩咒术
+
+
+
+*****
+
+####  欢乐柠檬果  
+##### 121#       发表于 2022-9-16 21:24
+
+流量严肃拉满
+
+*****
+
+####  tornadoDA  
+##### 122#       发表于 2022-9-16 21:24
+
+又一个原神真爱楼
+
+*****
+
+####  月夜凝雪  
+##### 123#       发表于 2022-9-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515306&amp;ptid=2094448" target="_blank">一色いろは 发表于 2022-9-16 21:22</a>
+
+反正也就先画个饼，2024估计都看不到</blockquote>
+慢慢做总好过企鹅那样宣布和开播就间隔个半年的超赶工然后被人说吧
+
+*****
+
+####  阿姆罗二世  
+##### 124#       发表于 2022-9-16 21:24
+
+带点王之力，卷均五十万算不上什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyz1196  
+##### 125#       发表于 2022-9-16 21:24
+
+我帮台长想标题之——王之力落幕，神之力降临<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  shenduke  
+##### 126#       发表于 2022-9-16 21:24
+
+前排留个名先<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  沧海nog  
+##### 127#       发表于 2022-9-16 21:24
+
+说真的，原神的主线水平还是算了别丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是乐子肯定很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 128#       发表于 2022-9-16 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515277&amp;ptid=2094448" target="_blank">FanFun 发表于 2022-9-16 21:21</a>
+
+王之力上自选五星能超马吗</blockquote>
+讲真自选五星过于廉价....绝版皮肤吧
+
+*****
+
+####  磁翻板液位计  
+##### 129#       发表于 2022-9-16 21:25
+
+好好好好好艹👻灭🐴
+
+*****
+
+####  we89623  
+##### 130#       发表于 2022-9-16 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515187&amp;ptid=2094448" target="_blank">whzfjk 发表于 2022-9-16 21:16</a>
+
+长期项目长篇动画这提法都挺怪的，ufo变成长期签约乙方这点好看出来，但具体形式似乎也不明了。如果真是年 ...</blockquote>
+CEO在直播说了，长篇动画
+
+*****
+
+####  saynie  
+##### 131#       发表于 2022-9-16 21:26
+
+感觉。。。画质。。不如。。
+
+*****
+
+####  erlic  
+##### 132#       发表于 2022-9-16 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">高楼预定
+
+*****
+
+####  北山玖公  
+##### 133#       发表于 2022-9-16 21:26
+
+万丈高楼平地起！！
+
+我要看黑暗之力轰入全球婆罗门的大脑呀！<img src="https://static.saraba1st.com/image/smiley/carton2017/346.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 134#       发表于 2022-9-16 21:26
+
+反正游戏里过任务剧情非常烦躁
+
+希望动画观感能好一些
+
+*****
+
+####  空气小姐  
+##### 135#       发表于 2022-9-16 21:26
+
+前排
+
+*****
+
+####  阿姆罗二世  
+##### 136#       发表于 2022-9-16 21:26
+
+错了，标准格式是感觉不如……，画质
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cobymar  
+##### 137#       发表于 2022-9-16 21:26
+
+漫区流量有救了
+
+*****
+
+####  arrru  
+##### 138#       发表于 2022-9-16 21:27
+
+在推上看到的时候还不敢相信自己的眼睛……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 139#       发表于 2022-9-16 21:27
+
+<img src="https://img.saraba1st.com/forum/202209/16/212706e5u2018u2t86i522.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220916211846.jpg</strong> (115.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:27 上传
+
+毒舌老外已经绷不住了
+
+*****
+
+####  摸鱼2号  
+##### 140#       发表于 2022-9-16 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515396&amp;ptid=2094448" target="_blank">半年 发表于 2022-9-16 21:26</a>
+
+反正游戏里过任务剧情非常烦躁
+
+希望动画观感能好一些</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没有好脚本的ufo做动画啥样，我想不用举例了吧
+
+*****
+
+####  天风绯炎  
+##### 141#       发表于 2022-9-16 21:27
+
+op+ufo，好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zzs2338645  
+##### 142#       发表于 2022-9-16 21:27
+
+这里就是漫区最高楼吗
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 143#       发表于 2022-9-16 21:27
+
+哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  susan28  
+##### 144#       发表于 2022-9-16 21:28
+
+反正乐子不会少，哈哈！？
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  RedBaby  
+##### 145#       发表于 2022-9-16 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前排占一个。超高楼预定了。
+
+*****
+
+####  zwc80000  
+##### 146#       发表于 2022-9-16 21:29
+
+等一个8w8
+
+*****
+
+####  大江户战士  
+##### 147#       发表于 2022-9-16 21:29
+
+流量拉满
+
+<img src="https://img.saraba1st.com/forum/202209/16/212928xfb381clnfxwtb3h.png" referrerpolicy="no-referrer">
+
+<strong>)W)~(`J$Z(V59N]J{IK79MJ.png</strong> (148.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:29 上传
+
+*****
+
+####  阿姆罗二世  
+##### 148#       发表于 2022-9-16 21:29
+
+8W8?88W！！！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  haze.l  
+##### 149#       发表于 2022-9-16 21:29
+
+没见过这么无聊的pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看后半段的时候脑子里全是tox的op
+
+*****
+
+####  未熟串烧  
+##### 150#       发表于 2022-9-16 21:29
+
+原神没在我黑名单里但楼主在，这下漫区横竖少一行了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  人生长恨水长东  
+##### 151#       发表于 2022-9-16 21:30
+
+好久没来漫区了，有种回娘家的感觉
+
+*****
+
+####  Blaze626  
+##### 152#       发表于 2022-9-16 21:30
+
+霸权预定
+
+不玩原神只打算看看动画算入了原籍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yujiacyl  
+##### 153#       发表于 2022-9-16 21:30
+
+好久没来了，占个座<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  icecry  
+##### 154#       发表于 2022-9-16 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道舅舅可信度多少
+
+<img src="https://img.saraba1st.com/forum/202209/16/213029u9n2z278njd29bsd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220916212954.png</strong> (55.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:30 上传
+
+*****
+
+####  新的瑞拉  
+##### 155#       发表于 2022-9-16 21:30
+
+如果送等价抽数，或者限定道具的话，会不会创造bd销量历史啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilisipis  
+##### 156#       发表于 2022-9-16 21:30
+
+不如猜是什么形式吧，我觉得长期合作估计是单元剧，要不然剧情没法写，角色也太多了
+
