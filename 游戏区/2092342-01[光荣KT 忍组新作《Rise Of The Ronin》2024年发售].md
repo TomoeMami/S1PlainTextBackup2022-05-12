@@ -1769,3 +1769,17 @@ tgs上的内容不就是在xbox直播里放出来的吗？
 
 希望是侍道LIKE的那种多周目玩法
 
+
+
+*****
+
+####  天宮奏  
+##### 193#       发表于 2022-9-16 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57509825&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2022-9-16 14:05</a>
+
+sp不是说不打算做对马岛2吗
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+误会，我说的对马岛2和世界2一样是个代称，指他们正在做的日本古代相关的那个新作
+
