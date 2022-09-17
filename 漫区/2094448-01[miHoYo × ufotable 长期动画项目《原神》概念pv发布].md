@@ -12587,3 +12587,116 @@ ufo用3d背景也算是老手了，不过以前都是只有打斗中激烈运镜
 
 这PV画背景就交差了？没啥动作镜头，两个呆呆站着
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 1261#       发表于 2022-9-18 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531708&amp;ptid=2094448" target="_blank">wildarm 发表于 2022-9-18 00:09</a>
+
+这PV画背景就交差了？没啥动作镜头，两个呆呆站着</blockquote>
+比概念pv还概念pv的概念pv把，就像是滚6一样，一样是只有小麦种子，滚6只给了个俯瞰的画面就跳标题没了，这么一对比是不是就良心多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 1262#       发表于 2022-9-18 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531397&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 23:56</a>
+
+昨晚听几个作豚的分析，这PV除了人之外都是3D的…</blockquote>
+这还用作豚分析？这不一眼就能看出来的吗
+
+*****
+
+####  大江户战士  
+##### 1263#       发表于 2022-9-18 00:12
+
+ 本帖最后由 大江户战士 于 2022-9-18 00:13 编辑 
+
+说不定背景都不是ufo画的（
+
+<img src="https://img.saraba1st.com/forum/202209/18/001210nx0b6b9jkl2k0wqx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-18 00:12 上传
+
+整个pv我最不满意的就是这个瀑布，粒子效果太假了
+
+<img src="https://img.saraba1st.com/forum/202209/18/001338fn2gan6u0reou7nr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-18 00:13 上传
+
+相比而言雪山的建模和渲染相当出色
+
+*****
+
+####  诚司  
+##### 1264#       发表于 2022-9-18 00:12
+
+中配主角的声优说过，3.0主线录得比爱莉西亚还早
+
+那样的话，按理说写的时候应该没看过寒蝉卒，所以让田村发表的厕所发言是和寒蝉碰上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 1265#       发表于 2022-9-18 00:14
+
+飞碟桌这段时间还有档期做原神动画，魔夜鬼灭原神几个多开？
+
+*****
+
+####  再迷  
+##### 1266#       发表于 2022-9-18 00:15
+
+真纯3d还外包合作个啥，米哈游内部不就搞定了么，游戏也有不少3d过场了，实在不行搞帮人动补扣动作都够了
+
+*****
+
+####  Fuero  
+##### 1267#       发表于 2022-9-18 00:16
+
+分享些我觉得游戏本体内做的比较好的过场：
+
+《原神》危途疑踪过场动画——「生死一刹」
+[https://www.bilibili.com/video/BV1Uv4y1w73T](https://www.bilibili.com/video/BV1Uv4y1w73T)
+
+《原神》飞彩镌流年活动过场动画-「岁华流彩」
+[https://www.bilibili.com/video/BV1Nr4y1Y7V5](https://www.bilibili.com/video/BV1Nr4y1Y7V5)
+
+风起鹤归过场
+[https://www.bilibili.com/video/BV1o3411Y7VH/](https://www.bilibili.com/video/BV1o3411Y7VH/)
+
+雷电将军传说任务 - 天下人之章第二幕
+[https://www.bilibili.com/video/BV1P44y1p77m](https://www.bilibili.com/video/BV1P44y1p77m)
+
+八重神子传说任务 - 仙狐之章第一幕
+[https://www.bilibili.com/video/BV1CZ4y1R7nG](https://www.bilibili.com/video/BV1CZ4y1R7nG)
+
+*****
+
+####  kletka  
+##### 1268#       发表于 2022-9-18 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531751&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-18 00:12</a>
+
+说不定背景都不是ufo画的（</blockquote>
+是的这雪山无论光影反射还是那些云都特别的有质感
+
+*****
+
+####  MaxFOrder  
+##### 1269#       发表于 2022-9-18 00:18
+
+3.0剧情出彩的地方还是在于在相对挺短的篇幅里把这个loop故事讲得很明晰，人没了那段把人看得还有点情绪波动，这种东西写不好很容易让看客一头雾水。前面有朋友说不搞重复演出达成的就是这个效果，我是比较服气的。这种人才留着抓一抓动画正合适，做游戏剧情还是有点束手束脚
+
