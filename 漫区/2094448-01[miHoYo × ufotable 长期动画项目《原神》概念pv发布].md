@@ -7044,3 +7044,62 @@ saki一直是一边工作一边做主播，是挺现成的
 
 至于neru，无论怎么看都是现充吧…………
 
+
+
+*****
+
+####  interzhang  
+##### 749#       发表于 2022-9-17 12:22
+
+ 本帖最后由 interzhang 于 2022-9-17 12:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521884&amp;ptid=2094448" target="_blank">五性八卦 发表于 2022-9-17 12:15</a>
+
+问一下子，fgo区当时是什么论调啊。我是正好在原神出前不久的泳装活动弃的fgo，没看过fgo版讨论原神。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了，越是玩FGO的越是对月球怒其不争，无非沉没成本只能吊着继续玩罢了，当初NGA月球人和骑空士的大战，本质上其实是月球人和弃坑的月球人之间的内战
+
+很多FGO，月球和蘑菇的黑点，不是玩FGO的人根本就不知道那些梗为什么会变成黑点
+
+*****
+
+####  greemoore1981  
+##### 750#       发表于 2022-9-17 12:23
+
+说是长期企划，打算做几季？如果关系和钱都到位，能让原神变成每年都有一季看的长篇其实也不是不可能
+
+
+
+*****
+
+####  751984871  
+##### 751#       发表于 2022-9-17 12:24
+
+其实，感觉在扳机一片叫好的这个节骨眼要是宣布是扳机，各网站会比宣布是飞碟还爆炸。（
+
+主要飞碟此前和国外合作不算怎么积极的样子。而扳机以及从扳机出来的人和中美IP合作是真的积极。
+
+*****
+
+####  marisa233  
+##### 752#       发表于 2022-9-17 12:25
+
+有乐子看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楠芽吹  
+##### 753#       发表于 2022-9-17 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521679&amp;ptid=2094448" target="_blank">七征心 发表于 2022-9-17 11:58</a>
+
+这去年哪一期啊，想不起来，找不到啦。虽然这句话很有印象2333</blockquote>
+[TV2] 2021动漫吐槽大会AnimeRoast（上半场）[https://www.bilibili.com/video/BV1wL4y1J7cj](https://www.bilibili.com/video/BV1wL4y1J7cj)
+
+*****
+
+####  MaxFOrder  
+##### 754#       发表于 2022-9-17 12:29
+
+楼里的原友都在聊动画，某些婆罗门倒是进来一个就甩一句“有乐子看了”，究竟哪些人更加心系漫区的讨论主题我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
