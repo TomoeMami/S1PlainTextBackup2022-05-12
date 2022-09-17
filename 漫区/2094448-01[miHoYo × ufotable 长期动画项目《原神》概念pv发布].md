@@ -10383,3 +10383,155 @@ nga来说，其实大部分恨意都是对nga版务管理失能的迁怒罢了�
 </blockquote>
 你这堆关键词跟这两游戏的玩家，不能说是零重合度，只能说是毫不相关
 
+
+
+*****
+
+####  哈里-谢顿  
+##### 1054#       发表于 2022-9-17 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528543&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-17 21:29</a>
+
+原神发布前那种全网舆论一&amp;#x8 ...</blockquote>
+但是一片倒的骂的确不正常，塞尔达的受众群体也没这么大流量，挺奇怪的
+
+但当时对手厂家真未卜先知就提前开黑也不太可能吧？
+
+蛮奇怪的，原黑有点类似狗粉丝？
+
+*****
+
+####  jyky  
+##### 1055#       发表于 2022-9-17 21:51
+
+你们二刺螈真是好闲啊，跟追星的看着也没什么差别<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jiangchrr  
+##### 1056#       发表于 2022-9-17 21:52
+
+漫区雄起了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neroyuzhang  
+##### 1057#       发表于 2022-9-17 21:53
+
+幽浮桌啊 …… 当年是 fate zero，如今又是原神，感叹
+
+*****
+
+####  unlimited_blade  
+##### 1058#       发表于 2022-9-17 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528870&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 21:51</a>
+
+但是一片倒的骂的确不正常，塞尔达的受众群体也没这么大流量，挺奇怪的
+
+但当时对手厂家真未卜先知就提前 ...</blockquote>
+有人说是因为没给渠道商分成什么的，鬼知道真的假的
+
+*****
+
+####  neroyuzhang  
+##### 1059#       发表于 2022-9-17 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528860&amp;ptid=2094448" target="_blank">我的爱是订书机 发表于 2022-9-17 21:50</a>
+
+你这堆关键词跟这两游戏的玩家，不能说是零重合度，只能说是毫不相关</blockquote>
+不用听反团扯淡
+
+*****
+
+####  Ronu  
+##### 1060#       发表于 2022-9-17 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528807&amp;ptid=2094448" target="_blank">黄字 发表于 2022-9-17 21:47</a>
+
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者</blockquote>
+虽然提这个很下头，但是这两个画像有类似什么数据支持吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+主要是我仅从身边感受这两个游戏群体的玩家并不是很符合这两个画像
+
+就，以这个为前提进行讨论对我来说比较困难吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小雪空  
+##### 1061#       发表于 2022-9-17 21:55
+
+你们是不是对论坛有一种谜之自信，事实上，就算S1和NGA全网都黑一种东西，也影响不了大环境的风评啊……
+
+*****
+
+####  RedBaby  
+##### 1062#       发表于 2022-9-17 21:55
+
+前原神时代崩3手游玩家就是个小透明吧，我反正没啥见过，除了官号发的动画会去看看。
+
+*****
+
+####  江戸前ルナ  
+##### 1063#       发表于 2022-9-17 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528870&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 21:51</a>
+
+但是一片倒的骂的确不正常，塞尔达的受众群体也没这么大流量，挺奇怪的
+
+但当时对手厂家真未卜先知就提前 ...</blockquote>
+之前不就有个视频分析那时的宣传手法。
+
+那位做过游戏文章编辑的先去解说一下写一篇原创的带截图带GIF带对比的游戏分析文章或者视频要多久，好像一般至少3天还是4天来着，然后某PV出来后多少时间（好像是4小时？0抄袭对比的文章/视频通稿就全网飞了。有素材了剩下的网民们自然会发挥啦。
+
+*****
+
+####  黑暗剑  
+##### 1064#       发表于 2022-9-17 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528807&amp;ptid=2094448" target="_blank">黄字 发表于 2022-9-17 21:47</a>
+
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那像楼主这种两边都占的在你那是不是属于精神分裂？
+
+*****
+
+####  whzfjk  
+##### 1065#       发表于 2022-9-17 21:56
+
+<blockquote>黄字 发表于 2022-9-17 21:47
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者
+
+</blockquote>
+文化素养说到底也是谁有钱跟谁走，找看客多的地方
+
+*****
+
+####  yujiacyl  
+##### 1066#       发表于 2022-9-17 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528846&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 21:50</a>
+
+呵呵，那为什么你不看内容也不去反驳呢？里面你所说“黑”的内容很多就是喷各种“典”的言论，而这些言论 ...</blockquote>
+因为大部分人是来玩游戏的，不是来跟人汴京的，每天下班做完日常看下二创就该睡觉了，哪还有空把宝贵的时间浪费在毫无意义的吵架上，这就是别人疑惑的原因，毕竟原友是要每天玩游戏才坚持的下来，而原黑的动力属实未解之谜了，像我就把这帖子里的几个人给拉黑了，而不是成天盯着他们的回帖记录挨个反驳。
+
+*****
+
+####  卡蓮  
+##### 1067#       发表于 2022-9-17 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528937&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 21:55</a>
+
+之前不就有个视频分析那时的宣传手法。
+
+那位做过游戏文章编辑的先去解说一下写一篇原创的带截图带GIF带对 ...</blockquote>
+阿牧的那个视频分析的，一个新对比视频，要分析，要找素材，要搓视频，要上传，要等B站审核，从正常的出片角度怎么想都不可能4小时就发出来，所以大概率是自导自演
+
+然后阿牧就变成了原神里一个反派NPC了
+
