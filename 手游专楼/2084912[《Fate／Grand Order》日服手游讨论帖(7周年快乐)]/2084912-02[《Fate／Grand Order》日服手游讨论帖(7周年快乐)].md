@@ -12495,3 +12495,17 @@ wrba单红就判死刑了，至少俩ba混吧
 
 虽然我知道这楼里根本没人在乎剧情，但是我搞不懂三成这货反正都要复活个丰臣为啥不选猴子而选儿子啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 2624#       发表于 2022-9-18 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527399&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-17 20:16</a>
+
+虽然我知道这楼里根本没人在乎剧情，但是我搞不懂三成这货反正都要复活个丰臣为啥不选猴子而选儿子啊[f:117 ...</blockquote>
+大概是因为丰臣就是在秀赖这代亡的吧
+
+话说我更心疼魔总被砍的那一刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

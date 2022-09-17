@@ -12850,3 +12850,17 @@ fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无�
 
 下次新版本的时候，UFO做几个10秒CM给大家开开眼就好了
 
+
+
+*****
+
+####  月夜凝雪  
+##### 1284#       发表于 2022-9-18 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532244&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-18 00:47</a>
+
+这么多中国甲方，不可能都不知道工期问题很重要
+
+之前腾讯那边的人大概是和deen还是哪里合作，表达的意思 ...</blockquote>
+企鹅和DEEN不就是离谱的动画化宣布半年后开播的工期么
+
