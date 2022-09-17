@@ -7150,3 +7150,80 @@ saki一直是一边工作一边做主播，是挺现成的
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  哈里-谢顿  
+##### 761#       发表于 2022-9-17 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520618&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 10:50</a>
+
+蘑菇玩，其实我觉得什么时候型月和米联动我都不奇怪</blockquote>
+纳尼？蘑菇玩原神？？
+
+*****
+
+####  哈里-谢顿  
+##### 762#       发表于 2022-9-17 12:43
+
+说下，你弄不好原神在日本动画界还是有点人脉
+
+之前我的老号专门转载过羊廷牧大佬的动画制作杂谈系列，他可是在日本业界混了很多年，然后他回国创业，接的活就有崩3的PV……
+
+*****
+
+####  jellyfis  
+##### 763#       发表于 2022-9-17 12:43
+
+什么？你们玩游戏还看剧情的？
+
+*****
+
+####  月夜凝雪  
+##### 764#       发表于 2022-9-17 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522022&amp;ptid=2094448" target="_blank">greemoore1981 发表于 2022-9-17 12:23</a>
+
+说是长期企划，打算做几季？如果关系和钱都到位，能让原神变成每年都有一季看的长篇其实也不是不可能 ...</blockquote>
+中文直播里大伟哥亲口说的长篇动画，以他的浓度不至于做一个季度会说是长篇吧，分季播放一般也不会说长篇动画
+
+<img src="https://img.saraba1st.com/forum/202209/17/124421syhzaaac3dctvpvi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220917124355.png</strong> (76.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 12:44 上传
+
+*****
+
+####  五性八卦  
+##### 765#       发表于 2022-9-17 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522285&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:42</a>
+纳尼？蘑菇玩原神？？</blockquote>
+开服那时期他接受其他访谈，在内容完全无关的情况下特意提的原神，说自己玩的很嗨，玩温迪可莉梗，大概是给fgo玩家拉了不少对原神的关注的。现在是否还在玩就不知道了，我没有持续关注。
+
+*****
+
+####  绯田美琴  
+##### 766#       发表于 2022-9-17 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522294&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:43</a>
+
+说下，你弄不好原神在日本动画界还是有点人脉
+
+之前我的老号专门转载过羊廷牧大佬的动画制作杂谈系列，他可 ...</blockquote>
+去cgworld搜几篇不就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，米桑做3dcg这块早就有说法了
+[https://cgworld.jp/feature/201809-cgw241hs-houkai3rd01.html](https://cgworld.jp/feature/201809-cgw241hs-houkai3rd01.html)
+
+*****
+
+####  哈里-谢顿  
+##### 767#       发表于 2022-9-17 12:50
+
+不过说起来，原神和其他游戏联动好像真不多，那个索尼的还是上PS4时候的？
+
+是不是因为他这个是3D建模等等很麻烦，不像其他加个立绘和LIVE2D就可以开始剧情了？
+

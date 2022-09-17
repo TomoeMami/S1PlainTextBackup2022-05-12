@@ -2740,3 +2740,12 @@ elona算是rpg吗
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  guiminan  
+##### 301#       发表于 2022-9-17 12:43
+
+急，tgs播的pv禁止外传，lofter上有人放立绘也被官方提醒删了，不知道为啥藏这么严实<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
