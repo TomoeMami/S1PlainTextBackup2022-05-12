@@ -6298,3 +6298,45 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 所以妹妹的脑袋是星魂。
 
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 677#       发表于 2022-9-17 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士的一篇评价原的稻妻剧情的文章 ...</blockquote>
+稻妻剧情确实很日本，和日本现在的99%ACGN一样垃圾，差不多XB3水平。
+
+*****
+
+####  Nanachi  
+##### 678#       发表于 2022-9-17 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">别整得和腾讯做的那几波中日合作动画那样就好
+
+*****
+
+####  Tissuesea  
+##### 679#       发表于 2022-9-17 08:54
+
+楼好高，怪不得漫区第一，慢慢往下翻来看
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  xxxllz  
+##### 680#       发表于 2022-9-17 08:59
+
+漫画其实还可以，反而没有主角更好看
+
+*****
+
+####  xxxllz  
+##### 681#       发表于 2022-9-17 09:00
+
+说真的，这种声势和产品矩阵让我想到口袋妖怪
+
