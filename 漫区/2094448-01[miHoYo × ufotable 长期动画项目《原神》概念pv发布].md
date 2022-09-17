@@ -6439,3 +6439,16 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 改编的话会把水分去掉，体验怎么样都会比原作好的，而且还能拖进度条2倍速播放<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 693#       发表于 2022-9-17 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519792&amp;ptid=2094448" target="_blank">间宮夏生 发表于 2022-9-17 09:14</a>
+就原这主线，怎么做正剧？怕不是各种角色厨激怒，温迪被打后来女士死了也就罢了，战犯公子怎么说，更不用说 ...</blockquote>
+看卖角色卖得怎么样而已，像金闪闪和dio还有多少人在意他们十恶不赦
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
