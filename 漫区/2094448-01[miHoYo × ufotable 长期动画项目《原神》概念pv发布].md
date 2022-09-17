@@ -7287,3 +7287,28 @@ saki一直是一边工作一边做主播，是挺现成的
 是不是因为他这个是3D建模等等 ...</blockquote>
 游戏内联动非常少，仅有的两个肯德基和埃洛伊，基本肯定是开服前就定下来的联动。原神的火爆是出乎所有人意料的，公司内部肯定也在找定位，不断适应。
 
+
+
+*****
+
+####  五性八卦  
+##### 773#       发表于 2022-9-17 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522419&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:54</a>
+我反正不乐观
+
+这几年代工的水平大伙都看到了……什么狗屁日本匠人</blockquote>
+大家基本都会是这样想的，就是日本动画本身，也是好作品完全看运气，精美的垃圾越来越多。原神自己做的短动画就挺好看了，我也没那么在乎这长动画了，昨天我都没想到来动漫区讨论233
+
+*****
+
+####  间宮夏生  
+##### 774#       发表于 2022-9-17 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520003&amp;ptid=2094448" target="_blank">月夜凝雪 发表于 2022-9-17 09:48</a>
+看卖角色卖得怎么样而已，像金闪闪和dio还有多少人在意他们十恶不赦
+
+—— 来自 Xiaomi M2006J10C, Andro ...</blockquote>
+其实公子后面谐星化了，加上没和其它角色有冲突所以其实不是最糟糕的，最糟糕是稻妻这几个，尤其是雷神和散兵，这俩厨子都挺多的，而且还分别是男粉和女粉，稍有不慎就是超级大节奏，游戏里散兵快实装了，我反正已经准备好塔塔开了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不过能出动画当然是好事，能大改主线甚至不做更好，我本人是希望能多点双子戏份的
+
