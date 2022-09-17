@@ -6835,3 +6835,45 @@ pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两
 
 多少还是期待一下吧。。。
 
+
+
+*****
+
+####  月夜凝雪  
+##### 731#       发表于 2022-9-17 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521034&amp;ptid=2094448" target="_blank">bartholo4 发表于 2022-9-17 11:15</a>
+算的没问题
+
+时间加速60倍，说明本来移动一米可以移动60米
+
+那蒙德到璃月的距离就应该180km</blockquote>
+蒙德本来就小吧，而且游戏里那个是直线距离，真按路移动计算那些弯弯绕绕这180怎么也有250
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  MaxFOrder  
+##### 732#       发表于 2022-9-17 11:47
+
+所以动画最好能把提瓦特大陆实际的辽阔展现出来，别搞一个城市就几栋房这样的场面，掉价。看pv里面蒙德的场景已经在表现大片植被的景象了，算是能补充一下游戏在这方面的桎梏
+
+*****
+
+####  BlueDrii  
+##### 733#       发表于 2022-9-17 11:48
+
+以后就是鬼咒万间原了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萝莉的伙伴  
+##### 734#       发表于 2022-9-17 11:50
+
+不过看有人说前传不应该吧，还那么多角色呢，前传的话不跟现在的角色没关系了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
