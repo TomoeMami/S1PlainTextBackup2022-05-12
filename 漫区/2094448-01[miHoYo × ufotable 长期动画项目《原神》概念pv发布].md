@@ -8707,3 +8707,76 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 原黑的行 ...</blockquote>
 其实一开始我也相信这套说辞的，毕竟很经典的刻板印象。但自从看到游戏的年龄层统计、不同声音的社区来源和行为模式后，我觉得会不会原友才是大龄二次元，原黑才是在网络社区氛围恶化后培养出的新生代（尤其是贴吧、微博）
 
+
+
+*****
+
+####  starash  
+##### 901#       发表于 2022-9-17 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525002&amp;ptid=2094448" target="_blank">雷攻姛人 发表于 2022-9-17 17:00</a>
+
+其实一开始我也相信这套说辞的，毕竟很经典的刻板印象。但自从看到游戏的年龄层统计、不同声音的社区来源 ...</blockquote>
+你的做法和台长并没有什么不同，划分一个框子然后套圈圈。
+
+我不赞同这种做法。
+
+*****
+
+####  快乐好难123  
+##### 902#       发表于 2022-9-17 17:06
+
+锁妖塔的还是回游戏区发癫吧，毕竟是个直球辱骂也有人喝彩的好地方，对你俩这种把自己母亲生殖器挂嘴边的不是很有交流的兴趣🤓
+
+*****
+
+####  kletka  
+##### 903#       发表于 2022-9-17 17:09
+
+按年龄论的话我的确算大龄二次元了，毕竟都三十多了
+
+*****
+
+####  blckfyre  
+##### 904#       发表于 2022-9-17 17:09
+
+原神现在的舆论不是年一游和自认为的主机婆罗门大战就能简单解释得，掺上了乐子人狗粉丝和管人痴后实在是一团乱麻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 905#       发表于 2022-9-17 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524808&amp;ptid=2094448" target="_blank">不知道还一直说 发表于 2022-9-17 16:40</a>
+
+椅子哥事件注定是吧友的胜利，因为太适合传播了，一句话就把人物事件笑点全概括了，还没有复杂词汇。
+
+你 ...</blockquote>
+确实是绝妙的笑话，原友四处拉踩有目共睹，感觉不如原神这梗听说是反串的，但对原友生态的总结非常准确。
+
+这次也可能是原友到处刷椅子能坐在先，然后有椅子哥调侃原友的大惊小怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 906#       发表于 2022-9-17 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+针对游戏本身原黑其实没那多也不会那么持久，主要是OP爆典太多+营销力度非常大入侵各种圈子，还有经典饭圈化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雷攻姛人  
+##### 907#       发表于 2022-9-17 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525067&amp;ptid=2094448" target="_blank">starash 发表于 2022-9-17 17:06</a>
+
+你的做法和台长并没有什么不同，划分一个框子然后套圈圈。
+
+我不赞同这种做法。 ...</blockquote>
+我承认确实想的简单了，这事情从头到尾各方参入的势力太多，已经说不清阵营了。
+
+但本楼本来好好的聊动画制作，结果中途又有人阴阳怪气的想往那方面带才是最可笑的，就跟那点小心思别人看不出来似的
+
