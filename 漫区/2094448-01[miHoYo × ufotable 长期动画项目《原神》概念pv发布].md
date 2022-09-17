@@ -7820,3 +7820,140 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 欧美人不至于 ...</blockquote>
 个人觉得手机上能跑出这个游戏世界就还是有点水平，虽然很多人黑他和塞尔达，但我觉得还是有一说一比较好
 
+
+
+*****
+
+####  中野梓  
+##### 820#       发表于 2022-9-17 14:21
+
+角色好看呀，万叶让我陷入黑暗
+
+*****
+
+####  武男  
+##### 821#       发表于 2022-9-17 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523354&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:17</a>
+
+国内卖盘可能性不大，倒是国外可能有点戏</blockquote>
+用王之力嘛，比如说在游戏里面送点啥，好家伙一看是昨天发的，这流量漫区第一了。
+
+*****
+
+####  哈里-谢顿  
+##### 822#       发表于 2022-9-17 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523346&amp;ptid=2094448" target="_blank">cloudcc 发表于 2022-9-17 14:17</a>
+
+不夸张的说，几乎是国内唯一达成手游工业化的游戏，出色的品质是靠比其他手游多3倍以上的人力资金来维持的 ...</blockquote>
+赞同，要维持游戏内容和玩法迭代，不断叠加补充，本身就是需要强力管理和组织，类似育碧那种全球工作室流水线接力
+
+这可不是国内一般公司用一套引擎加若干美工及主创人员搓剧情这么快捷（不是说国内其他公司很容易）
+
+*****
+
+####  编木马者死户口  
+##### 823#       发表于 2022-9-17 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523346&amp;ptid=2094448" target="_blank">cloudcc 发表于 2022-9-17 14:17</a>
+
+不夸张的说，几乎是国内唯一达成手游工业化的游戏，出色的品质是靠比其他手游多3倍以上的人力资金来维持的 ...</blockquote>
+“流水线批量生产没有匠人精神，是辣鸡！是辣鸡！！啊啊啊啊啊！”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 824#       发表于 2022-9-17 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523160&amp;ptid=2094448" target="_blank">printer22 发表于 2022-9-17 13:56</a>
+
+天际中心白漫城不也只有十几栋房</blockquote>
+游戏里这么做完全理解，可你动画还这样谁会服气
+
+*****
+
+####  MuramasaSP  
+##### 825#       发表于 2022-9-17 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521884&amp;ptid=2094448" target="_blank">五性八卦 发表于 2022-9-17 12:15</a>
+
+问一下子，fgo区当时是什么论调啊。我是正好在原神出前不久的泳装活动弃的fgo，没看过fgo版讨论原神。
+
+ ...</blockquote>
+昨天有个人在fgo版发原神动画化的帖子，意思大概是（记不太清了）说fgo无能后续动画化不力。
+
+前几楼都是正常吐槽，然后突然有个人进来跳脸“我就喜欢看你们破防的样子”（关键是前几楼并没有人破防），引发众怒，然后就是一如既往的op之类的论战。
+
+我不觉得ky是什么大罪，但确实有些人太喜欢刷存在感了。
+
+*****
+
+####  MaxFOrder  
+##### 826#       发表于 2022-9-17 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523206&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 14:01</a>
+
+开服的时候比现在火，虽然没有赛马娘在日本那么夸张，但是已经非常夸张了，出场就是顶流
+
+后来长草了一段时 ...</blockquote>
+在欧美火不火不能光盯着红迪原神版说事啊，红迪原神版那不是因为去年周年庆冲米搞得太过难看，恶心走了一大群人么
+
+*****
+
+####  快乐好难123  
+##### 827#       发表于 2022-9-17 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523328&amp;ptid=2094448" target="_blank">武男 发表于 2022-9-17 14:16</a>
+
+我现在比较好奇如果用王之力商法会把TV圆盘的销量推到啥地步</blockquote>
+只算日本，打不过cy那些的；但是国内官方开淘宝卖碟的话，屮e灭🐎也不是没可能
+
+*****
+
+####  kletka  
+##### 828#       发表于 2022-9-17 14:26
+
+国内卖盘的最大障碍，不是购买力，也不是二次元的接受度
+
+是现在国内已经没有碟机播放器这个市场了，现在要么流媒体要么手机，tv基本都是网络连线，已经没什么人买播放器了，唯一能读盘的，可能就剩下主机玩家的那个光驱了
+
+*****
+
+####  ViviR  
+##### 829#       发表于 2022-9-17 14:27
+
+<blockquote>MuramasaSP 发表于 2022-9-17 14:24
+昨天有个人在fgo版发原神动画化的帖子，意思大概是（记不太清了）说fgo无能后续动画化不力。
+
+前几楼都是 ...</blockquote>
+笑了，每次看到这种逆天我甚至忍不住想亲自查下成分以免误伤纯良原友。
+
+*****
+
+####  plok201  
+##### 830#       发表于 2022-9-17 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523245&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:05</a>
+
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+虽然游戏区天天黑O德不配位，但是这2年原运营下来基本保证的大量的更新和活动
+
+用单机比喻，每个版本的大地图基本有一个大型单机DLC的量了
+
+而且虽然楼里基本都在吐槽主线，但是如果只说手游的话，原这个主线量和演出对比还在2D小人打架和GAL对话框的各类手游算是降维打击了
+
+*****
+
+####  诚司  
+##### 831#       发表于 2022-9-17 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523442&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 14:26</a>
+
+国内卖盘的最大障碍，不是购买力，也不是二次元的接受度
+
+是现在国内已经没有碟机播放器这个市场了，现在要 ...</blockquote>
+其实就算是日本人，买盘也未必是拿来放的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

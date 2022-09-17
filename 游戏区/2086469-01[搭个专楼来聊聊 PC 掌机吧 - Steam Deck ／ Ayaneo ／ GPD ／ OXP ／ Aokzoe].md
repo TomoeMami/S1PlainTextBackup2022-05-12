@@ -2912,3 +2912,25 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 真应该是真的，根据阀门的小册子上写的情况：</blockquote>
 百分百后者，就GPD他们公司那尿性，黑的都能给你吹成五彩斑斓的白
 
+
+
+*****
+
+####  魔法酪饼  
+##### 235#       发表于 2022-9-17 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57493339&amp;ptid=2086469" target="_blank">bypass 发表于 2022-09-15 10:39:09</a>
+顺便把我的 Air Pro 也给退了，机器外观我很喜欢，但还是接受不了最早一批盲订，最晚发货。 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">握爪，一样。。。5月14下单，八月底听说要九月下旬就直接退款了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  魔法酪饼  
+##### 236#       发表于 2022-9-17 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520405&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-09-17 10:32:40</a>
+主玩PS5和XSX串流、副玩轻度负载PC游戏的话，现在有推荐的好选择吗？（重视续航和握持） ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">预算多少？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
