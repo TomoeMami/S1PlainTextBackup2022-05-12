@@ -7985,3 +7985,19 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 其实就算是日本人，买盘也未必是拿来放的</blockquote>
 买盘不就是拿来放的?<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绯田美琴  
+##### 834#       发表于 2022-9-17 14:43
+
+现在无论是实体专辑还是BD基本都是供着的啊，或者就是有特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 835#       发表于 2022-9-17 14:47
+
+还有一点就是mhy显然很知道如何依靠主场优势拿捏那些近五六年刚跨入二刺螈圈子的玩家。试想过去日方主导二游业界的年代有啥好事儿要么磨磨蹭蹭，要么干脆轮不到国内玩家，以前顶多是给俩枣现在忽然每个月都塞你好几个瓜，谁不乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且乐团现场演奏视频跟音乐会这些也能让年轻玩家们一下觉得自己玩的东西很有档次，既满足了玩家自我陶醉的欲望，又向外传达出了“你的营收我都用在刀刃上回馈你”的信息，只能说还是有点高明的
+
