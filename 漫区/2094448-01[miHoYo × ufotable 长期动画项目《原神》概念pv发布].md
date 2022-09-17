@@ -6217,3 +6217,23 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 一大早就看到nbht蹭热度失败也是笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然总归要带走一个不如就nbht了吧
 
+
+
+*****
+
+####  Ditfran  
+##### 670#       发表于 2022-9-17 08:36
+
+原神的烧鸡还是不错的，懒得玩游戏正好可以看看动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  partrue  
+##### 671#       发表于 2022-9-17 08:40
+
+看评论说妹妹头上的花不应该这么软所以是作画失误……
+会不会真的是坎瑞亚前传
+蒙德地形对不上也可以解释
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
