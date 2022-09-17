@@ -7638,3 +7638,106 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 和索尼py也是找A1啊</blockquote>
 20年原神那么火？我就知道碧蓝航线也是开了一段时间后才有人找上门的
 
+
+
+*****
+
+####  诚司  
+##### 805#       发表于 2022-9-17 14:01
+
+ 本帖最后由 诚司 于 2022-9-17 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523161&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 13:56</a>
+
+20年原神那么火？我就知道碧蓝航线也是开了一段时间后才有人找上门的</blockquote>
+开服的时候比现在火，虽然没有赛马娘在日本那么夸张，但是已经非常夸张了，出场就是顶流
+
+后来长草了一段时间，除了国内，热度都回落了
+
+再后来稻妻后期厚积薄发，在日本到了现在这个程度，只论日推基本无敌
+
+欧美倒是很难回暖到开服了，要知道reddit原神区当了很长时间的红迪第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈里-谢顿  
+##### 806#       发表于 2022-9-17 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523206&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 14:01</a>
+
+开服的时候比现在火，虽然没有赛马娘在日本那么夸张，但是已经非常夸张了，出场就是顶流
+
+后来长草了一段时 ...</blockquote>
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？
+
+*****
+
+####  第贰个十年1  
+##### 807#       发表于 2022-9-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523245&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:05</a>
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+优质回答：我不知道
+反正对我来讲原神唯一有存在价值的东西是它的色图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  诚司  
+##### 808#       发表于 2022-9-17 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523245&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:05</a>
+
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+很难说到底因为什么，要说的话应该是卖相好，其实还在测试的时候官号关注数就非常多了，T台第一天全是播genshin的
+
+*****
+
+####  printer22  
+##### 809#       发表于 2022-9-17 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523245&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:05</a>
+
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+错，是二次元美少女开放世界，以前除了打满MOD的老滚5，根本没有开放世界能操纵二刺猿美少女爬上爬下的，而且MOD终究是MOD，比不上原生态
+
+*****
+
+####  cloudcc  
+##### 810#       发表于 2022-9-17 14:08
+
+<blockquote>哈里-谢顿 发表于 2022-9-17 14:05
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+你下一个玩一下就知道，靠的时不断高速进化的游戏质量
+
+
+
+*****
+
+####  哈里-谢顿  
+##### 811#       发表于 2022-9-17 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523261&amp;ptid=2094448" target="_blank">第贰个十年1 发表于 2022-9-17 14:07</a>
+
+优质回答：我不知道
+
+反正对我来讲原神唯一有存在价值的东西是它的色图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这倒是，我关注过的色图大佬好多人都画过原神图了
+
+*****
+
+####  cloudcc  
+##### 812#       发表于 2022-9-17 14:11
+
+初期蒙德练手，璃月有文化加成，稻妻开始尝试自己的路子，到了最新的虚拟网，已经是不折不扣二次元第一3a品质了
+
