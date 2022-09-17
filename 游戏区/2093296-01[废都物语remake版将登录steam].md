@@ -2793,3 +2793,26 @@ elona算是rpg吗
 今天在b站刷到一个貌似是pv的视频，也就是主楼那几张图分图层动起来，要是这就是现场pv那有什么捂着的必要 ...</blockquote>
 那个用至圣所bgm的pv是up主自制的
 
+
+
+*****
+
+####  谈月色  
+##### 306#       发表于 2022-9-17 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524777&amp;ptid=2093296" target="_blank">fuochai 发表于 2022-9-17 16:38</a>
+
+借楼问下 还差18经验获得sp 但是整个地下都刷不出野怪了 怎么办</blockquote>
+当天的遇怪点数用完了，如果你有没用掉的休息点可以去睡一觉，比如龙之塔上层钓痴旁边或妖精之塔下层入口处
+
+不过说实在的没必要那么在意sp点，等到了大废墟，很容易一次性获得超过5k经验值，一举拿到所有sp
+
+*****
+
+####  柠奇无时  
+##### 307#       发表于 2022-9-17 17:48
+
+也不知道为啥要捂着不放，b站那个视频播放都快两万了，微博转发也是一天就干到了两千
+
+这么好的流量留着自己发它不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

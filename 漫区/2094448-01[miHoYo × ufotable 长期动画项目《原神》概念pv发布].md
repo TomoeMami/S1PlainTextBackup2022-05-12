@@ -9023,3 +9023,82 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 
 原来你们还没屏蔽4Dai等几位，上次他跑手游专楼时就觉得大家还是别浪费时间了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  穷且坚强着  
+##### 933#       发表于 2022-9-17 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">要汴京这些东西能不能去游戏区专楼，这好歹是动画专楼
+
+*****
+
+####  Kokichi  
+##### 934#       发表于 2022-9-17 17:42
+
+王之力取决于你米某些e厨有没有过小圆盘艹e的野心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说有王之力也不奇怪。
+
+*****
+
+####  大坏旦  
+##### 935#       发表于 2022-9-17 17:43
+
+为什么原友和原黑互相看不起，都觉得自己是对的 却不肯像楼友们拉开距离客观评价呢 是做不到吗
+
+*****
+
+####  (wing)  
+##### 936#       发表于 2022-9-17 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525447&amp;ptid=2094448" target="_blank">穷且坚强着 发表于 2022-9-17 17:41</a>
+
+要汴京这些东西能不能去游戏区专楼，这好歹是动画专楼</blockquote>
+4DAI这种撒比在锁妖塔鹅都快加正了，上次在手游区里是被版主出面塞了才消停，不塞就会一直歪楼，主要在手游区专楼会被塞，在锁妖塔又没人汴，只能出来恶心人
+
+*****
+
+####  MaxFOrder  
+##### 937#       发表于 2022-9-17 17:46
+
+ 本帖最后由 MaxFOrder 于 2022-9-17 17:49 编辑 
+
+原神玩家基数足够大，年龄分布范围足够广，年轻人必然占很大一部分，事实上对外行为比较极端的也确实是这批人数庞大的年轻人，台长的判断没啥毛病。问题是有些网友很乐于用一个“X批”或是“X友”的帽子把原神玩家一网打尽，这就很不体面了，本质跟地狱嗨和X拳更相近一些。倘若这些网友真的是觉得“X批”或是“X友”是正儿八经的斗争对象，那好歹得理解什么叫分化打击，而不是用扣帽子方式让所有原神玩家不自主地愈发团结起来，最后不得不粉黑大战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这楼就挺典型的，从上午到下午4点来钟大伙还在认真从有限的动画化信息里试图讨论出一点什么来，结果来了几个锁妖塔网友一下又汴起来了，那这下总不能说是原神玩家先撩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kletka  
+##### 938#       发表于 2022-9-17 17:47
+
+ 本帖最后由 kletka 于 2022-9-17 17:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525483&amp;ptid=2094448" target="_blank">大坏旦 发表于 2022-9-17 17:43</a>
+
+为什么原友和原黑互相看不起，都觉得自己是对的 却不肯像楼友们拉开距离客观评价呢 是做不到吗 ...</blockquote>
+在网络上，连客观都是相对的，自己觉得的客观其实并没有说服力，你的态度和思维，总会或多或少收到自身遭遇，价值观，看到的事态发展，自己的立场等一大堆东西而变化，所以不管黑还是厨，劝架的往往以为自己客观，其实就像胖虎一样，是在无意识的拉偏架
+
+下场无路人，劝架，看戏，逗乐子，都是不同意义的下场
+
+*****
+
+####  雷攻姛人  
+##### 939#       发表于 2022-9-17 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525483&amp;ptid=2094448" target="_blank">大坏旦 发表于 2022-9-17 17:43</a>
+
+为什么原友和原黑互相看不起，都觉得自己是对的 却不肯像楼友们拉开距离客观评价呢 是做不到吗 ...</blockquote>
+这跟对错有什么关系，直球辱骂属于对错范畴吗？这楼大家也看到了，本来讨论的好好的，突然就闯进来开始挑事，这种模式这两年不停的重演，都麻木了
+
+*****
+
+####  月夜凝雪  
+##### 940#       发表于 2022-9-17 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525176&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 17:16</a>
+文戏不行是演出不行，而游戏里很多场面就是靠演出来拉高的，比如龟龟跳舞，我都想不到ufo会画成什么鬼样 ...</blockquote>
+真做主线动画这段起码要五十话开外太遥远了，正经做不大量省略蒙德就不止一个季度了吧，动画肯定要补充大量其他角色的视觉
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
