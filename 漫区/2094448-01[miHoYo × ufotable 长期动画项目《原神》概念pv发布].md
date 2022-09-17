@@ -9884,3 +9884,15 @@ https://www.jizhazha.co ...</blockquote>
 
 素质真够差的
 
+
+
+*****
+
+####  Dmitry  
+##### 1011#       发表于 2022-9-17 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527571&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-09-17 20:26:29</a>
+有身为倭奴的自知就少打汉奸牌吧，实在不利于精神健康</blockquote>那么问题来了，你说我倭奴是因为头像还是因为我反感米倭游呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
