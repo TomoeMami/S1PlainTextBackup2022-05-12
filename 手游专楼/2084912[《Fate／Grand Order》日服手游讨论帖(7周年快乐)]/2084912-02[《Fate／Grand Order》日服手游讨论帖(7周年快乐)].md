@@ -12396,3 +12396,15 @@ wrba单红就判死刑了，至少俩ba混吧
 
 千利休缝的好像是驹姬
 
+
+
+*****
+
+####  里村紅葉  
+##### 2614#       发表于 2022-9-17 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516262&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-16 22:23</a>
+
+什么地狱姐妹</blockquote>
+但这描述看着更像天道和加贺美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
