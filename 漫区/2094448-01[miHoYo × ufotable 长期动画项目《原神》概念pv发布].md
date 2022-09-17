@@ -7004,3 +7004,43 @@ pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两
 这去年哪一期啊，想不起来，找不到啦。虽然这句话很有印象2333</blockquote>
 [TV2] 2021动漫吐槽大会AnimeRoast（上半场）
 
+
+
+*****
+
+####  五性八卦  
+##### 746#       发表于 2022-9-17 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518107&amp;ptid=2094448" target="_blank">枪聆弹语 发表于 2022-9-17 00:38</a>
+LGA FGO区被跳脸了，能不能有朝一日能看看月原大战啊</blockquote>
+问一下子，fgo区当时是什么论调啊。我是正好在原神出前不久的泳装活动弃的fgo，没看过fgo版讨论原神。
+
+至于大战，基本不可能吧，nga原神版吸了很多fgo的玩家，基本都是你中有我我中有你了。
+
+*****
+
+####  七征心  
+##### 747#       发表于 2022-9-17 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521820&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-17 12:09</a>
+
+[TV2] 2021动漫吐槽大会AnimeRoast（上半场）</blockquote>
+okok，摸到了，重获笑容2333
+
+*****
+
+####  诚司  
+##### 748#       发表于 2022-9-17 12:18
+
+ 本帖最后由 诚司 于 2022-9-17 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521688&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-17 11:59</a>
+
+吐槽一下，好几个日本主播都认不出飞碟社</blockquote>
+主要是ya酱和saki吧
+
+ya酱一直是看起来什么都可能不知道的样子
+
+saki一直是一边工作一边做主播，是挺现成的
+
+至于neru，无论怎么看都是现充吧…………
+
