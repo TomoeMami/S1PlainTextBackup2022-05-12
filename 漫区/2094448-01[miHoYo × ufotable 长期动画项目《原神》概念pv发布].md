@@ -9519,3 +9519,35 @@ PERSONA这种游戏本身就和GAL分支一样把各种都写进剧本里，但�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  冰冻火柴  
+##### 980#       发表于 2022-9-17 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526438&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 19:09</a>
+这个跑完七国后回蒙德概率挺大的
+
+不是很多人注意到蒙德风神雕塑下面那一圈字翻译，弄不好到时候齐集七种 ...</blockquote>
+是说这个吧，通往天空岛的门。
+这次的“荧荧微光”PV，妹妹和渊上对话提起以前的旅行，也有种让人感觉动画会做500年前旅行的感觉
+<img src="https://p.sda1.dev/7/0e9f6f7fac8bc62cfc1b08bd71d36ec8/CMP_20220917192236952.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nagoya  
+##### 981#       发表于 2022-9-17 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快上千了，婆罗门跳楼没有啊，不能丢人现眼.jpg
+
+*****
+
+####  sylccll  
+##### 982#       发表于 2022-9-17 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526534&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 19:15</a>
+
+不是，正常来说不该找互补么，你这不成了越做越短，我到现在还记得ufo的光污染和二人转 ...</blockquote>
+不一定非要找补啊，把自己的优势发挥到最大也是一种制作思路，何况这年头真正爱看文戏的观众可能比想象中少的多，文戏的投入产出比是很低的，好的文戏要比好的打戏耗费数倍的心血而且观众未必能看懂，不如把资源投入到资源利用率更高，而且自己的受众也更加喜闻乐见的方向上，原神，fz和鬼灭的商业成绩已经足够说明这一点
+
