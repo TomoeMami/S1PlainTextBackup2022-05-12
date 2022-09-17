@@ -11709,3 +11709,102 @@ https://www.bilibili.com/video/av900670514<img src="https://static.saraba1st.com
 
 网友的吹逼从来都吹不出个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  砂雪  
+##### 1174#       发表于 2022-9-17 23:11
+
+这层之后粉黑大战双方各14天起，善用举报。
+
+*****
+
+####  不知道还一直说  
+##### 1175#       发表于 2022-9-17 23:11
+
+S1关于原最出圈的帖子其实是“KFC联动让外国人意识到疫情被控制住了”。说不定当时骗进来一些mmr，进了游戏区大呼上当
+
+*****
+
+####  Hqchan  
+##### 1176#       发表于 2022-9-17 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530379&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 23:06</a>
+
+我没逛过nga，但去年夏活之前更多得离谱</blockquote>
+你说的不是NGA？那我误会了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+不过我印象里S1的粥楼从来都是说男人池子省资源的环境，可能是跟S1粥群记串了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大江户战士  
+##### 1177#       发表于 2022-9-17 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529698&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 22:39</a>
+
+这也是我看不懂的地方，海猫和羽中是和平分手
+
+然后两边粉丝打得头破血流…</blockquote>
+舰R和舰B的粉丝斗争实属最无厘头的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡蓮  
+##### 1178#       发表于 2022-9-17 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是讨论动画本身吧，不知道mhy日本分社在日本的人脉怎么样，中日合拍最怕的就是花了大钱然后被日本人当凯子，最终效果不如最好的“3D动画公司”
+
+*****
+
+####  Standpronder  
+##### 1179#       发表于 2022-9-17 23:14
+
+说真的NGA那个游戏环境基本上已经臭掉了，我至今没想明白NGA是怎么做到让两边都认为论坛本身屁股歪的。
+
+机核那边也有逆天闹事，结果被杀了好几个。
+
+*****
+
+####  Standpronder  
+##### 1180#       发表于 2022-9-17 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530542&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 23:13</a>
+
+还是讨论动画本身吧，不知道mhy日本分社在日本的人脉怎么样，中日合拍最怕的就是花了大钱然后被日本 ...</blockquote>
+比悠星靠谱吧，明日方舟 十月份的动画我看就是一个寄
+
+*****
+
+####  诚司  
+##### 1181#       发表于 2022-9-17 23:16
+
+讲真，虽然我不玩，但绝对防御利维坦都看得很开心，要求不要太高好吧
+
+*****
+
+####  黄字  
+##### 1182#       发表于 2022-9-17 23:17
+
+<blockquote>Standpronder 发表于 2022-9-17 23:14
+比悠星靠谱吧，明日方舟 十月份的动画我看就是一个寄</blockquote>
+明日方舟前面的剧情你就是给足了钱找日升给你做都是个寄。更别说现在pv这水平了。
+
+*****
+
+####  ΑΑ  
+##### 1183#       发表于 2022-9-17 23:19
+
+虽然我不玩原神也不打算看原神动画，但不得不感叹拯救漫区还得看原神，今天这流量超过管人和游戏区，甚至跟外野打平手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡蓮  
+##### 1184#       发表于 2022-9-17 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530558&amp;ptid=2094448" target="_blank">Standpronder 发表于 2022-9-17 23:14</a>
+
+比悠星靠谱吧，明日方舟 十月份的动画我看就是一个寄</blockquote>
+那玩意属于悠星职员在我面前吹我就不信的，妥妥的要寄
+
