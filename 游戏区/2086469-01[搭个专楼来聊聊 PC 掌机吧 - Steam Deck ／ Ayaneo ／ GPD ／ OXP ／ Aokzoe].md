@@ -2900,3 +2900,15 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 主玩PS5和XSX串流、副玩轻度负载PC游戏的话，现在有推荐的好选择吗？（重视续航和握持）
 
+
+
+*****
+
+####  慕容断月  
+##### 234#       发表于 2022-9-17 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57497256&amp;ptid=2086469" target="_blank">满满一大杯 发表于 2022-9-15 15:27</a>
+
+真应该是真的，根据阀门的小册子上写的情况：</blockquote>
+百分百后者，就GPD他们公司那尿性，黑的都能给你吹成五彩斑斓的白
+

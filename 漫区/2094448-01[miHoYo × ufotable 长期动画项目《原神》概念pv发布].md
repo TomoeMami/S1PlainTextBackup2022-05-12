@@ -7227,3 +7227,63 @@ saki一直是一边工作一边做主播，是挺现成的
 
 是不是因为他这个是3D建模等等很麻烦，不像其他加个立绘和LIVE2D就可以开始剧情了？
 
+
+
+*****
+
+####  五性八卦  
+##### 768#       发表于 2022-9-17 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522294&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:43</a>
+说下，你弄不好原神在日本动画界还是有点人脉
+
+之前我的老号专门转载过羊廷牧大佬的动画制作杂谈系列，他可 ...</blockquote>
+有肯定是有，就不知道给原神做好动画够不够用233这种事大家也只能自己推测了。
+
+*****
+
+####  fkinway  
+##### 769#       发表于 2022-9-17 12:52
+
+700楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天这么热闹原来是因为这个
+
+*****
+
+####  月夜凝雪  
+##### 770#       发表于 2022-9-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522376&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:50</a>
+不过说起来，原神和其他游戏联动好像真不多，那个索尼的还是上PS4时候的？
+
+是不是因为他这个是3D建模等等 ...</blockquote>
+肯定有这个原因在，而且联动往往是想要靠其他IP带动人气，自身人气够高就完全不需要啊，反而是给别人送嫁衣
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  哈里-谢顿  
+##### 771#       发表于 2022-9-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522395&amp;ptid=2094448" target="_blank">五性八卦 发表于 2022-9-17 12:51</a>
+
+有肯定是有，就不知道给原神做好动画够不够用233这种事大家也只能自己推测了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我反正不乐观
+
+这几年代工的水平大伙都看到了……什么狗屁日本匠人
+
+希望这次能弄得好看点就行，要求不会太高.
+
+不过PV这风景不错的样子
+
+*****
+
+####  五性八卦  
+##### 772#       发表于 2022-9-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522376&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:50</a>
+不过说起来，原神和其他游戏联动好像真不多，那个索尼的还是上PS4时候的？
+
+是不是因为他这个是3D建模等等 ...</blockquote>
+游戏内联动非常少，仅有的两个肯德基和埃洛伊，基本肯定是开服前就定下来的联动。原神的火爆是出乎所有人意料的，公司内部肯定也在找定位，不断适应。
+
