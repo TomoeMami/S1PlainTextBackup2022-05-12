@@ -7568,3 +7568,73 @@ b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作�
 双联A泥潭评价不错的，我十年前来的时候可是拿双联A和Fz比，双联A还是空镜有泥塑动画，优抚桌早年还是有 ...</blockquote>
 fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什么垃圾，也配和双恋A比<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  酷乐  
+##### 799#       发表于 2022-9-17 13:51
+
+ 本帖最后由 酷乐 于 2022-9-17 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522940&amp;ptid=2094448" target="_blank">bin哥厉害 发表于 2022-9-17 13:30</a>
+
+我怀疑是被羽中那次坑怕了</blockquote>
+习习中的经验能套别人？他们没搞定的战场女武神，梦战去年就上了，而且还是作为银魂联动被监修打回后延期的备胎，很不重视，人物强度和宣传力度都垫底的那种。而且原神怎么不联动？PS5版就有地平线的女主。
+
+*****
+
+####  间宮夏生  
+##### 800#       发表于 2022-9-17 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522868&amp;ptid=2094448" target="_blank">编木马者死户口 发表于 2022-9-17 13:23</a>
+看那样子就是周本BOSS啊，这有啥，女士不也有粉</blockquote>
+散兵会自机入池啊
+
+*****
+
+####  Mc凉月奏酱  
+##### 801#       发表于 2022-9-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522037&amp;ptid=2094448" target="_blank">751984871 发表于 2022-9-17 12:24</a>
+
+其实，感觉在扳机一片叫好的这个节骨眼要是宣布是扳机，各网站会比宣布是飞碟还爆炸。（
+
+主要飞碟此前和国 ...</blockquote>
+trigger的风格跟原也太不搭了 除非是吉成耀那条线的
+
+但是那条线的产能可不咋地 属于是钱到位活儿到不了位的程度
+
+名声在外又档期充裕  也就是飞碟社了 
+
+*****
+
+####  哈里-谢顿  
+##### 802#       发表于 2022-9-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523110&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 13:50</a>
+
+fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什么垃圾，也配和双恋A比 ...</blockquote>
+说句不好听的，自从王之力和FZ这类开启类似老谋子英雄一样的动画大片时代，有意思有心思的精良小作品是越来越少了
+
+*****
+
+####  printer22  
+##### 803#       发表于 2022-9-17 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521498&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-17 11:47</a>
+
+所以动画最好能把提瓦特大陆实际的辽阔展现出来，别搞一个城市就几栋房这样的场面，掉价。看pv里面蒙德的场 ...</blockquote>
+天际中心白漫城不也只有十几栋房
+
+*****
+
+####  哈里-谢顿  
+##### 804#       发表于 2022-9-17 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517434&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-16 23:46</a>
+
+20年末就有消息说挺多动画公司都给mhy打电话谈过
+
+和索尼py也是找A1啊</blockquote>
+20年原神那么火？我就知道碧蓝航线也是开了一段时间后才有人找上门的
+
