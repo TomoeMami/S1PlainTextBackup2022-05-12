@@ -2963,3 +2963,15 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Fuero  
+##### 239#       发表于 2022-9-17 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524451&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2022-9-17 16:08</a>
+
+那就上aok（8寸）的车呗，现在定下个月上旬应该ok。。。aya的air屏太小，串流主机游戏够呛看得清， ...</blockquote>
+谢谢，看了一圈现货确实也没什么心仪的，都太重了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

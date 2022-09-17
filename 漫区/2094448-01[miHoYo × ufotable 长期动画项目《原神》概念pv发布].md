@@ -8388,3 +8388,145 @@ bbb在日本开服名声就臭了<img src="https://static.saraba1st.com/image/sm
 
 建议和管人区一样赶出漫区！
 
+
+
+*****
+
+####  starash  
+##### 875#       发表于 2022-9-17 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+根本原因还是类粉圈宗教化，因为中国游戏的正常发展进程被强行打断太久了。
+
+当广袤无垠的屎之海洋中出现一个堪堪可以一用的异类时，过多的目光投向了过来，出圈的同时也引爆了宗教战争。
+
+而且现在网络大泛滥，打一场低成本的嘴仗太容易了。
+
+证明中国人民唯物辩证主义的学习进程还很漫长。
+
+*****
+
+####  ganeid  
+##### 876#       发表于 2022-9-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+原友行为非常好解释，年轻人喜欢一个东西的时候必然疯狂安利，并且觉得他喜欢的东西天下第一；
+
+原黑的行为则是国内大龄核心玩家意识到自己心心念念的国产单机/主机大作彻底无望，被手游弯道超车之后无能狂怒的总爆发。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 广东侠| + 1|台肯，欢乐多|
+
+查看全部评分
+
+*****
+
+####  bgmilk  
+##### 877#       发表于 2022-9-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+     任索才几个人，别看这两天天在游戏圈闹腾但是在国内游戏玩家群里加起来都不占总群体的一成，和原完全不是一个量级。
+
+*****
+
+####  新吾  
+##### 878#       发表于 2022-9-17 16:33
+
+<blockquote>yth329 发表于 2022-9-17 16:15
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+本质上是几个完全敌对的势力整合到一个战场了。
+
+分别是
+
+手游vs主机
+
+国产vs国外
+
+国内画师圈（juan）vs米孝子
+
+鉴抄人vs冰清玉洁
+
+帆船vs帆船
+
+魔怔人vs魔怔人
+
+…
+
+楼下补充
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 879#       发表于 2022-9-17 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524513&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-9-17 16:14</a>
+bbb在日本开服名声就臭了你搜下“崩壊3rd おま国”就知道为什么了，到现在5ch太君都还记得 ...</blockquote>
+记得日服没保底？而且后续跟着国服和谐，触碰系统后续的角色都没有了，装备立绘也和谐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starash  
+##### 880#       发表于 2022-9-17 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524721&amp;ptid=2094448" target="_blank">ganeid 发表于 2022-9-17 16:33</a>
+
+原友行为非常好解释，年轻人喜欢一个东西的时候必然疯狂安利，并且觉得他喜欢的东西天下第一；
+
+原黑的行 ...</blockquote>
+等等，伟大的占星术士尕奶德终于出现了。
+
+*****
+
+####  绯田美琴  
+##### 881#       发表于 2022-9-17 16:36
+
+bbb想割太君韭菜被炎上了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nejiang  
+##### 882#       发表于 2022-9-17 16:37
+
+都说王之力8万8，我觉得这片大概率不卖盘，这片是mhy独资而不是制作委员会制度，卖盘谁来发行怎么全球发行都是问题，大概率直接网络上放
+
+不是每周更新而是1-3个月一集的话没准和音乐会一样不要钱直接看
+
+*****
+
+####  starash  
+##### 883#       发表于 2022-9-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524771&amp;ptid=2094448" target="_blank">nejiang 发表于 2022-9-17 16:37</a>
+
+都说王之力8万8，我觉得这片大概率不卖盘，这片是mhy独资而不是制作委员会制度，卖盘谁来发行怎么全球发行 ...</blockquote>
+圆盘应该还是会卖的，直钩钓鱼
+
+*****
+
+####  不知道还一直说  
+##### 884#       发表于 2022-9-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524422&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-9-17 16:05</a>
+
+锁妖塔出来的不会不知道椅子哥是你队友吧</blockquote>
+椅子哥事件注定是吧友的胜利，因为太适合传播了，一句话就把人物事件笑点全概括了，还没有复杂词汇。
+
+你要反驳这句话则困难重重，不但要解释反串是什么，乐子人是什么，还要解释为什么会有人反串，两拨人有什么渊源，最重要的是你需要解释你为什么要出来解释。
+
+解释到最后，发现对方其实一开始就知道椅子哥是他的队友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+互联网，很神奇吧
+

@@ -2749,3 +2749,12 @@ elona算是rpg吗
 
 急，tgs播的pv禁止外传，lofter上有人放立绘也被官方提醒删了，不知道为啥藏这么严实<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fuochai  
+##### 302#       发表于 2022-9-17 16:38
+
+借楼问下 还差18经验获得sp 但是整个地下都刷不出野怪了 怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
