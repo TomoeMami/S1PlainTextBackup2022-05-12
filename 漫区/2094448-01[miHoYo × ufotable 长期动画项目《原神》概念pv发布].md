@@ -6189,3 +6189,31 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 就是一搅屎棍。
 
+
+
+*****
+
+####  AraTurambar  
+##### 667#       发表于 2022-9-17 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519044&amp;ptid=2094448" target="_blank">tornadoDA 发表于 2022-9-17 03:19</a>
+
+那样的话这饼也画得太早了吧，质量肯定不可能达到双城那种级别，双城算是拳头自己把控，当初放出消息过了 ...</blockquote>
+据说已经接触了18个月了，立项时间不清楚。
+
+可能已经做了一些了，如果加起来能有三四年工期那应该还是可以期待的。
+
+*****
+
+####  快乐好难123  
+##### 668#       发表于 2022-9-17 08:12
+
+牛逼火腿感觉要在原神这里翻第二次车了😭
+
+*****
+
+####  米奥莉奈  
+##### 669#       发表于 2022-9-17 08:19
+
+一大早就看到nbht蹭热度失败也是笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然总归要带走一个不如就nbht了吧
+
