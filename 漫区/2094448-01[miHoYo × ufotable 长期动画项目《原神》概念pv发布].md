@@ -9796,3 +9796,39 @@ https://www.jizhazha.co ...</blockquote>
 原神pc和ps顶两个手机端，说明两端需求还是一样的</blockquote>
 这是天时地利人和，前人都失败了
 
+
+
+*****
+
+####  Dmitry  
+##### 1003#       发表于 2022-9-17 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527241&amp;ptid=2094448" target="_blank">MuramasaSP 发表于 2022-09-17 20:06:33</a>
+为什么要挂着倭国黄油女主的头像说这个话</blockquote>爱撕衣不是日漫痴论坛吗？那拿这个当头像不是很正常
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  快乐好难123  
+##### 1004#       发表于 2022-9-17 20:26
+
+<blockquote>Dmitry 发表于 2022-9-17 20:21
+爱撕衣不是日漫痴论坛吗？那拿这个当头像不是很正常
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+有身为倭奴的自知就少打汉奸牌吧，实在不利于精神健康
+
+*****
+
+####  unlimited_blade  
+##### 1005#       发表于 2022-9-17 20:26
+
+ 本帖最后由 unlimited_blade 于 2022-9-17 20:30 编辑 
+
+反正就我的记忆而言，大部分被骂成OP的人都不知道原神是个什么东西的时候，原黑就已经有现在这种如杀父之仇的成熟形态了，除了各种直接把一款国产本质氪金手游对标顶尖3A批判的迷惑行为以外，各种盘外招满天飞。
+
+一上来就对着各种所谓“年一游”的轻度萌萌二刺螈火力全开，让别人给你跪下，能培养出什么环境，这不明摆着吗？然后两边就螺旋上升一直坚持到现在。
+
+当然了，他们的理由是“米哈游早就不做人了很久了，你现在才知道”，“米孝子就是3a标准吹的，所以我就是要满世界这么对标吆喝”，md我怎么不知道原神成功之前的米哈游这么叼的吗？跟反派终极boss似的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不得不让我产生各种猜想。
+
