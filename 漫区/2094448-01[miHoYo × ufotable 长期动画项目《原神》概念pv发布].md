@@ -12262,3 +12262,219 @@ fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无�
 感觉这帖子越来越跑题了，还是看看今天新出的绝区零pv吧，家人们。那动画做得真是不错 ...</blockquote>
 绝必秒原！
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 1231#       发表于 2022-9-17 23:51
+
+其实原在3.0之前只要是受好评的剧情，基本都是什么活动剧情啦，个人剧情啦，像宝可梦那样做个人故事或者那种和主线无关的短篇故事，我觉得都很不错，尤其是把帝君相关拿出来+点新剧情整个两集，我无法想象郡道美玲看到这动画的反应，可能直接狂暴尖叫+狂暴哭泣然后晕厥过去吧（
+
+*****
+
+####  kletka  
+##### 1232#       发表于 2022-9-17 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531221&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-17 23:47</a>
+
+其实最需要注意的还是这个长期项目的说法
+
+虽然大伟哥说的是长篇动画，但是正式公布的pv标题也好都是长期项 ...</blockquote>
+可以像fgo那样，间中来个剧场版，间中来个半年番
+
+*****
+
+####  大江户战士  
+##### 1233#       发表于 2022-9-17 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531268&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 23:49</a>
+
+反正我是不看好，nga一堆说pv效果爆炸的，要我说什么玩意
+
+你这画质放游戏里我绝对叫好，放动画里……哪个动 ...</blockquote>
+这pv就是概念美术而已，啥也看不出来
+
+*****
+
+####  kletka  
+##### 1234#       发表于 2022-9-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531268&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 23:49</a>
+
+反正我是不看好，nga一堆说pv效果爆炸的，要我说什么玩意
+
+你这画质放游戏里我绝对叫好，放动画里……哪个动 ...</blockquote>
+其实我看了几次那pv
+
+我现在很怀疑，双子出来之前的那段特别精细的风景cg
+
+是米忽悠自己拿基础素材搭个场景做的
+
+*****
+
+####  JustW_3  
+##### 1235#       发表于 2022-9-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531221&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-17 23:47</a>
+其实最需要注意的还是这个长期项目的说法
+
+虽然大伟哥说的是长篇动画，但是正式公布的pv标题也好都是长期项 ...</blockquote>
+有的理解是，有长篇动画，但不止是长篇动画
+
+*****
+
+####  MaxFOrder  
+##### 1236#       发表于 2022-9-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531268&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 23:49</a>
+
+反正我是不看好，nga一堆说pv效果爆炸的，要我说什么玩意
+
+你这画质放游戏里我绝对叫好，放动画里……哪个动 ...</blockquote>
+pv究竟有什么效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在我看来只能传达出我要做动画，动画里大概会有蒙德场景，可能是3D2D结合，角色大概有派蒙、空、荧这几项信息之外什么都没透露，什么画质画风和未来的成品不会有一毛钱关系，不然干嘛叫概念PV
+
+*****
+
+####  诚司  
+##### 1237#       发表于 2022-9-17 23:53
+
+如果按PV来说，应该是背景用3D引擎，人物用手绘，反正PV是挺不搭的
+
+纯3D是完全不可能的，原因很简单，如果能纯3D，干嘛不直接放游戏里做播片呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism二号机  
+##### 1238#       发表于 2022-9-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531262&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-17 23:48</a>
+
+顺便一提，我一直觉得纯3D动画这个方向是没有错的，不过这次合作，大概会变成2D和3D混合风的动画…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">纯3D动画咋做啊，飞碟有做过纯3D么，专业不对口吧
+
+*****
+
+####  fireawayac  
+##### 1239#       发表于 2022-9-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530485&amp;ptid=2094448" target="_blank">砂雪 发表于 2022-9-17 23:11</a>
+
+这层之后动画无关的粉黑大战双方各三个月起，善用举报（用举报排除异己的小心自己被塞嗷 ...</blockquote>
+我还是太天真太年轻了，以为真的会处理“动画无关的粉黑大战”，听信版主的话去举报，嗨，我太傻了。
+
+<img src="https://img.saraba1st.com/forum/202209/17/235122z66cwaoiij7gasi8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220917234814.png</strong> (57.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/235137whaa6kdk61bt71ak.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220917234836.png</strong> (31.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 23:51 上传
+
+*****
+
+####  kyonkoism二号机  
+##### 1240#       发表于 2022-9-17 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531357&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 23:53</a>
+
+我还是太天真太年轻了，以为真的会处理“动画无关的粉黑大战”，听信版主的话去举报，嗨，我太傻了。</blockquote>
+不是的，，这是在笑台长视频里的段子，连这都无法接受确实让人怀疑你的成分了（
+
+*****
+
+####  卡蓮  
+##### 1241#       发表于 2022-9-17 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531262&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-17 23:48</a>
+
+顺便一提，我一直觉得纯3D动画这个方向是没有错的，不过这次合作，大概会变成2D和3D混合风的动画…… ...</blockquote>
+昨晚听几个作豚的分析，这PV除了人之外都是3D的…
+
+*****
+
+####  kyonkoism二号机  
+##### 1242#       发表于 2022-9-17 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531397&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 23:56</a>
+
+昨晚听几个作豚的分析，这PV除了人之外都是3D的…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为是飞碟一如既往把2D用自家超酷特效整的像3D，结果真是3D啊
+
+*****
+
+####  砂雪  
+##### 1243#       发表于 2022-9-17 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531357&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 23:53</a>
+
+我还是太天真太年轻了，以为真的会处理“动画无关的粉黑大战”，听信版主的话去举报，嗨，我太傻了。</blockquote>
+因为这不是粉黑大战。这都受不了的话我可以帮你戒S1
+
+*****
+
+####  防辐射的  
+##### 1244#       发表于 2022-9-17 23:57
+
+ 本帖最后由 防辐射的 于 2022-9-17 23:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531312&amp;ptid=2094448" target="_blank">kyonkoism二号机 发表于 2022-9-17 23:51</a>
+
+其实原在3.0之前只要是受好评的剧情，基本都是什么活动剧情啦，个人剧情啦，像宝可梦那样做个人故事或者那 ...</blockquote>
+我也觉得不如做成宝可梦算了，每集讲个小故事，中途穿插一些自机角色回，主线魔改一下缝在里面，但不要只有主线。动画应该是进一步完善和补充受限于游戏机能无法表现的内容，应该是让世界和风土人情更生动，而不是去还原游戏。
+
+*****
+
+####  hein  
+##### 1245#       发表于 2022-9-17 23:58
+
+如何让原黑原地爆炸
+
+就是等动画播出时，单开一个泥原标签<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 1246#       发表于 2022-9-17 23:58
+
+不，这怎么看都是3D啊，手绘能画成这样怎么可能，这就是游戏里的场景<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1247#       发表于 2022-9-17 23:59
+
+3.0究竟找了个什么高人写主线脚本的，能不能派过去抓一下动画？
+
+*****
+
+####  大江户战士  
+##### 1248#       发表于 2022-9-18 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531344&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 23:53</a>
+
+其实我看了几次那pv
+
+我现在很怀疑，双子出来之前的那段特别精细的风景cg
+
+是米忽悠自己拿基础素材搭个场景 ...</blockquote>
+双子的牵手和脸那几个镜头很明显是画出来的
+
+后面切到全身应该就是渲染的了
+
+*****
+
+####  黄字  
+##### 1249#       发表于 2022-9-18 00:01
+
+<blockquote>MaxFOrder 发表于 2022-9-17 23:59
+3.0究竟找了个什么高人写主线脚本的，能不能派过去抓一下动画？</blockquote>
+可能你不知道，崩坏3也是路边随便找了个健身教练来当编剧以后剧情开始好起来的。。
+

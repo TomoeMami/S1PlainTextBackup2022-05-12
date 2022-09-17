@@ -2852,3 +2852,13 @@ elona算是rpg吗
 
 原材料备齐了，就看天闻角川怎么做了
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 311#       发表于 2022-9-17 23:58
+
+老婆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+不知道这次能不能给狼人妹画一个变身立绘<img src="https://p.sda1.dev/7/8523058949d4cc679fcb797daaf71699/CMP_20220917235740862.jpg" referrerpolicy="no-referrer">
+
