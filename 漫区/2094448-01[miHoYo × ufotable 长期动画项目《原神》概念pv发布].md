@@ -8975,3 +8975,51 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 那最关键的化学系统物理系统怎么没有，抄都抄不像是吧😏</blockquote>
 说起物理引擎，我发现无论从哪个方向用弓射丘丘人的头，它被击飞的方向绝对与它面朝的方向相反，与箭射中的方向无关。这个地方的物理这么粗糙是因为mhy没有实力，还是说偷懒了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ganeid  
+##### 928#       发表于 2022-9-17 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525002&amp;ptid=2094448" target="_blank">雷攻姛人 发表于 2022-9-17 17:00</a>
+
+其实一开始我也相信这套说辞的，毕竟很经典的刻板印象。但自从看到游戏的年龄层统计、不同声音的社区来源 ...</blockquote>
+国内所有带防沉迷规制的手游和视频网站的年龄层统计都是搞笑的，王者和吃鸡的活跃用户还全是20-39呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快乐好难123  
+##### 929#       发表于 2022-9-17 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525279&amp;ptid=2094448" target="_blank">百合豚 发表于 2022-9-17 17:24</a>
+
+矛盾激化之前只不过是正常的游戏圈对喷，某个时间点米厂学了一手微博饭圈固粉模式，这个时候部分被pua的 ...</blockquote>
+你是会发明历史的，原批19年就被抗蛆叫上了，那时候还是和华为战狼绑定一块骂爱国营销，结果现在又成了株式会社这是最搞笑的。顺便一提，那时候游戏区专楼流量比这楼大多了，现在只剩了提纯过后的同温层生物了
+
+*****
+
+####  不知道还一直说  
+##### 930#       发表于 2022-9-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525341&amp;ptid=2094448" target="_blank">ganeid 发表于 2022-9-17 17:31</a>
+
+国内所有带防沉迷规制的手游和视频网站的年龄层统计都是搞笑的，王者和吃鸡的活跃用户还全是20-39呢[f:06 ...</blockquote>
+话别说太死，说不定王者和吃鸡的活跃用户年龄确实不小
+
+
+
+*****
+
+####  elflie  
+##### 931#       发表于 2022-9-17 17:35
+
+别桃什么王之力了，还送东西想多了，这可是个国产游戏
+
+*****
+
+####  故事会  
+##### 932#       发表于 2022-9-17 17:36
+
+原来你们还没屏蔽4Dai等几位，上次他跑手游专楼时就觉得大家还是别浪费时间了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

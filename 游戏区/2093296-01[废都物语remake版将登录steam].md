@@ -2769,3 +2769,27 @@ elona算是rpg吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  谈月色  
+##### 304#       发表于 2022-9-17 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522296&amp;ptid=2093296" target="_blank">guiminan 发表于 2022-9-17 12:43</a>
+
+急，tgs播的pv禁止外传，lofter上有人放立绘也被官方提醒删了，不知道为啥藏这么严实
+
+ ...</blockquote>
+立绘有人存吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谈月色  
+##### 305#       发表于 2022-9-17 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525175&amp;ptid=2093296" target="_blank">Jumbohard 发表于 2022-9-17 17:16</a>
+
+今天在b站刷到一个貌似是pv的视频，也就是主楼那几张图分图层动起来，要是这就是现场pv那有什么捂着的必要 ...</blockquote>
+那个用至圣所bgm的pv是up主自制的
+
