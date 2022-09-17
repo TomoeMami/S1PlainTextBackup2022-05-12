@@ -9150,3 +9150,24 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 
 这种仇恨分型普适到有点好笑，就是想不到像草台论那么高度概括性的总结法
 
+
+
+*****
+
+####  大坏旦  
+##### 946#       发表于 2022-9-17 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525543&amp;ptid=2094448" target="_blank">雷攻姛人 发表于 2022-9-17 17:50</a>
+
+这跟对错有什么关系，直球辱骂属于对错范畴吗？这楼大家也看到了，本来讨论的好好的，突然就闯进来开始挑 ...</blockquote>
+我见过有人说直球辱骂是真性情的 还说总比阴阳怪气好 
+
+*****
+
+####  Ronu  
+##### 947#       发表于 2022-9-17 18:10
+
+这楼如果歪了那给出反应的人也是帮凶。虽然很严格，但是还是得有点自觉<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+syl我还是想不出蒙德那剧情能怎么拍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

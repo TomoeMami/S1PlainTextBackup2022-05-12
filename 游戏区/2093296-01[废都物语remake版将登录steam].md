@@ -2816,3 +2816,16 @@ elona算是rpg吗
 
 这么好的流量留着自己发它不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jumbohard  
+##### 308#       发表于 2022-9-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525424&amp;ptid=2093296" target="_blank">谈月色 发表于 2022-9-17 17:39</a>
+那个用至圣所bgm的pv是up主自制的</blockquote>
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
