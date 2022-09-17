@@ -9832,3 +9832,55 @@ https://www.jizhazha.co ...</blockquote>
 
 当然了，他们的理由是“米哈游早就不做人了很久了，你现在才知道”，“米孝子就是3a标准吹的，所以我就是要满世界这么对标吆喝”，md我怎么不知道原神成功之前的米哈游这么叼的吗？跟反派终极boss似的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不得不让我产生各种猜想。
 
+
+
+*****
+
+####  不知道还一直说  
+##### 1006#       发表于 2022-9-17 20:32
+
+看楼上这个表现，估计是来这个楼自由搏击了。顺便一说，这两天新鲜劲一过，还留在这里讨论的基本上是原神
+
+*****
+
+####  阿姆罗二世  
+##### 1007#       发表于 2022-9-17 20:33
+
+真炸不多得了😅😅
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 1008#       发表于 2022-9-17 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527093&amp;ptid=2094448" target="_blank">xiaoba329 发表于 2022-9-17 19:58</a>
+
+草</blockquote>
+你这截图怎么就剩一条发言了，我昨天在群里看到这图的时候，有的发言yygq得更厉害<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/17/203213zolto7i7r5l7ssdo.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220917152143.png</strong> (74.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 20:32 上传
+
+*****
+
+####  不知道还一直说  
+##### 1009#       发表于 2022-9-17 20:34
+
+<blockquote>不知道还一直说 发表于 2022-9-17 20:32
+看楼上这个表现，估计是来这个楼自由搏击了。顺便一说，这两天新鲜劲一过，还留在这里讨论的基本上是原神 ...</blockquote>
+核心受众了，浓度会比手游区更高，如果想赢的话还是建议回游戏区。
+
+*****
+
+####  Re.Troy  
+##### 1010#       发表于 2022-9-17 20:38
+
+素质真够差的
+
