@@ -9598,3 +9598,66 @@ PERSONA这种游戏本身就和GAL分支一样把各种都写进剧本里，但�
 和派蒙聊天也提过，很多世界的炼金术 ...</blockquote>
 感觉原神里万智牌的梗不多
 
+
+
+*****
+
+####  雪霜  
+##### 987#       发表于 2022-9-17 19:41
+
+说到平台，一直想知道那些传统单机大作为什么就是不肯多平台，非要搞主机独占？为什么他们那么多年都没有想过把游戏搬到手机上呢
+
+*****
+
+####  哈里-谢顿  
+##### 988#       发表于 2022-9-17 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526849&amp;ptid=2094448" target="_blank">雪霜 发表于 2022-9-17 19:41</a>
+
+说到平台，一直想知道那些传统单机大作为什么就是不肯多平台，非要搞主机独占？为什么他们那么多年都没有想 ...</blockquote>
+原因很多、移植复杂，手机性能限制
+
+收入渠道分成等等
+
+*****
+
+####  StarForceTi  
+##### 989#       发表于 2022-9-17 19:47
+
+ 本帖最后由 StarForceTi 于 2022-9-17 19:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526849&amp;ptid=2094448" target="_blank">雪霜 发表于 2022-9-17 19:41</a>
+
+说到平台，一直想知道那些传统单机大作为什么就是不肯多平台，非要搞主机独占？为什么他们那么多年都没有想 ...</blockquote>
+搬过，比如 ff15口袋版之类，反响不咋样。更远的有gameloft各种花式山寨单机大作。
+
+说到底，移动端和主机端需求是非常不同的。之前成功的也就堡垒之夜。
+
+*****
+
+####  冰冻火柴  
+##### 990#       发表于 2022-9-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526849&amp;ptid=2094448" target="_blank">雪霜 发表于 2022-9-17 19:41</a>
+
+说到平台，一直想知道那些传统单机大作为什么就是不肯多平台，非要搞主机独占？为什么他们那么多年都没有想 ...</blockquote>
+没技术呗，真有技术暴雪为什么要找网易做手机版暗黑，欧美没玩手机游戏的习惯，自然就没技术积累
+
+
+
+*****
+
+####  名津流  
+##### 991#       发表于 2022-9-17 19:49
+
+推荐阅读：
+
+日宅：原神3.1直播观看人数破纪录，宣布由ufotable制作动画，霸权来了
+[https://www.jizhazha.com/jv2268](https://www.jizhazha.com/jv2268)
+
+*****
+
+####  宵神乐  
+##### 992#       发表于 2022-9-17 19:50
+
+就一个PPT pv都能干聊30几页<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
