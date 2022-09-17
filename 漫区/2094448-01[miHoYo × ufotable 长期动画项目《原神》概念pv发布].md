@@ -7741,3 +7741,82 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 
 初期蒙德练手，璃月有文化加成，稻妻开始尝试自己的路子，到了最新的虚拟网，已经是不折不扣二次元第一3a品质了
 
+
+
+*****
+
+####  printer22  
+##### 813#       发表于 2022-9-17 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523268&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 14:08</a>
+
+很难说到底因为什么，要说的话应该是卖相好，其实还在测试的时候官号关注数就非常多了，T台第一天全是播g ...</blockquote>
+进游戏走两步就知道引擎调教得非常好，动捕数据几乎完美呈现，走路不像一边滑冰一边播放走路动画而是真的用脚在走路，极少游戏能够达到这个标准。之后就看填充什么内容，如果没内容底子再好也没用。事实上也确实有好几个版本的时间超长长草流失了很多玩家，不过现在产能已经完全上来了陆陆续续都回来了。
+
+*****
+
+####  哈里-谢顿  
+##### 814#       发表于 2022-9-17 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523272&amp;ptid=2094448" target="_blank">cloudcc 发表于 2022-9-17 14:08</a>
+
+你下一个玩一下就知道，靠的时不断高速进化的游戏质量</blockquote>
+这我知道，要不是疫情，我绝壁不会玩。
+
+现在须弥和之前那一堆阴间地图和剧情好太多
+
+比较赞同前面那个老哥说的二次元老滚5
+
+*****
+
+####  诚司  
+##### 815#       发表于 2022-9-17 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523292&amp;ptid=2094448" target="_blank">printer22 发表于 2022-9-17 14:11</a>
+
+进游戏走两步就知道引擎调教得非常好，动捕数据几乎完美呈现，走路不像一边滑冰一边播放走路动画而是真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一般也就日本人会比较惊奇，谁让中流日厂人均滑步，日本人还不玩洋game呢
+
+欧美人不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 816#       发表于 2022-9-17 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523245&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:05</a>
+
+我真是孤陋寡闻了，今年才开始关注这游戏
+
+原神当初这么火就是因为手机开放世界？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在比较好奇如果用王之力商法会把TV圆盘的销量推到啥地步
+
+*****
+
+####  cloudcc  
+##### 817#       发表于 2022-9-17 14:17
+
+不夸张的说，几乎是国内唯一达成手游工业化的游戏，出色的品质是靠比其他手游多3倍以上的人力资金来维持的，我毫不怀疑以后竞品会出现，但你如果学不会这个高速进化迭代维持住游戏品质的话，终究还是没希望打得过米忽悠
+
+*****
+
+####  哈里-谢顿  
+##### 818#       发表于 2022-9-17 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523328&amp;ptid=2094448" target="_blank">武男 发表于 2022-9-17 14:16</a>
+
+我现在比较好奇如果用王之力商法会把TV圆盘的销量推到啥地步</blockquote>
+国内卖盘可能性不大，倒是国外可能有点戏
+
+*****
+
+####  哈里-谢顿  
+##### 819#       发表于 2022-9-17 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523304&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 14:13</a>
+
+这一般也就日本人会比较惊奇，谁让中流日厂人均滑步，日本人还不玩洋game呢
+
+欧美人不至于 ...</blockquote>
+个人觉得手机上能跑出这个游戏世界就还是有点水平，虽然很多人黑他和塞尔达，但我觉得还是有一说一比较好
+
