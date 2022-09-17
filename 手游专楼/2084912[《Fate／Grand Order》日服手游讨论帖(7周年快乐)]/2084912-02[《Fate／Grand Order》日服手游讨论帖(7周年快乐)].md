@@ -12465,3 +12465,15 @@ wrba单红就判死刑了，至少俩ba混吧
 
 出了魔信没出森长可，过几天龙马池子再捞吧
 
+
+
+*****
+
+####  alucardcz  
+##### 2621#       发表于 2022-9-17 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525195&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-17 17:17</a>
+
+哟西，2发11连出魔王信长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 
+

@@ -9415,3 +9415,17 @@ BD销量已经不足以刻画o的热度了（当然这也和BD市场本身一直
 
 见证历史，黑暗降临漫区
 
+
+
+*****
+
+####  greemoore1981  
+##### 971#       发表于 2022-9-17 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526072&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-17 18:38</a>
+
+其实我挺喜欢沙雕日常的，最好是像弱酸性百万亚瑟王、人偶学园、少女前线小剧场那种狂乱的风格
+
+但 ...</blockquote>
+沙雕日常可以找别的厂子做泡面番，不冲突
+
