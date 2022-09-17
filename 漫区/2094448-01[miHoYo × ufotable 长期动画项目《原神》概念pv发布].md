@@ -9661,3 +9661,85 @@ PERSONA这种游戏本身就和GAL分支一样把各种都写进剧本里，但�
 
 就一个PPT pv都能干聊30几页<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whzfjk  
+##### 993#       发表于 2022-9-17 19:51
+
+<blockquote>StarForceTi 发表于 2022-9-17 19:47
+搬过，比如 ff15口袋版之类，反响不咋样。更远的有gameloft各种花式山寨单机大作。
+
+说到底，移动端和主机 ...</blockquote>
+原神pc和ps顶两个手机端，说明两端需求还是一样的
+
+*****
+
+####  バーチャルS1er  
+##### 994#       发表于 2022-9-17 19:52
+
+回忆了一下以前看过的手游改动画的大概印象
+
+少前：剧情基于游戏主线，评价：制作烂、剧情无聊透顶，看在OP、ED还不错的份上，1分
+
+fgo：剧情基于游戏主线，评价：制作一般、剧情无聊，2分
+
+碧蓝航线：游戏没剧情，评价：制作一般偏差、剧情无聊，1.5分
+
+舰C：游戏没剧情，评价：制作一般、剧情无聊，2分
+
+马娘2：设定和比赛结果基于真马、然后填充田径训练+偶像化。制作还行、剧情一般，4分
+
+巴哈姆特之怒：设定部分参考手游、剧情原创。制作还行、剧情一般，4.1分
+
+GBF：剧情基于游戏主线，评价：制作一般、剧情无聊，2分
+
+兽娘动物园1：设定部分参考手游、剧情原创，评价：制作贫穷但有爱、剧情还行，4.3分
+
+碧蓝档案短篇动画：评价：1分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+===========================================
+
+这么来预想O的话，以我对ufo的印象2分是已经有了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yenvy  
+##### 995#       发表于 2022-9-17 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526967&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-17 19:49</a>
+
+推荐阅读：
+
+日宅：原神3.1直播观看人数破纪录，宣布由ufotable制作动画，霸权来了
+
+https://www.jizhazha.co ...</blockquote>
+「反正早晚要过去打工的」<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaoba329  
+##### 996#       发表于 2022-9-17 19:58
+
+草
+
+草232323.jpg
+(9.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 19:58 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/195815tp8pykhk88ophp2w.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Dmitry  
+##### 997#       发表于 2022-9-17 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525624&amp;ptid=2094448" target="_blank">suttv 发表于 2022-09-17 17:58:20</a>
+别的不说，天天把女性生殖器挂嘴边只能是没教养</blockquote>是的，我一般都叫倭叩
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
