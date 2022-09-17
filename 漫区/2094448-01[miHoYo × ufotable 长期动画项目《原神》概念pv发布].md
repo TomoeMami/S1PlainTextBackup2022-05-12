@@ -10535,3 +10535,201 @@ nga来说，其实大部分恨意都是对nga版务管理失能的迁怒罢了�
 
 然后阿牧就变成了原神里一个反派NPC了
 
+
+
+*****
+
+####  蜜瓜包  
+##### 1068#       发表于 2022-9-17 22:02
+
+ 本帖最后由 蜜瓜包 于 2022-9-17 22:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528846&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 21:50</a>
+
+呵呵，那为什么你不看内容也不去反驳呢？里面你所说“黑”的内容很多就是喷各种“典”的言论，而这些言论 ...</blockquote>
+没有不让你们骂阿，我只是对原黑的热情感到迷惑，就靠着对原神的恨就能驱动他们这么持之以恒的骂原神我觉得也挺闲的。网上那么多迷惑言论每个我都骂一遍日子还过么。
+
+另外就我看到的，这楼就是讨论原神动画，一些人就在这里挑事开骂总不能是原友先挑事吧？
+
+*****
+
+####  yujiacyl  
+##### 1069#       发表于 2022-9-17 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528989&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 21:59</a>
+
+阿牧的那个视频分析的，一个新对比视频，要分析，要找素材，要搓视频，要上传，要等B站审核，从正常的出 ...</blockquote>
+今天周末，我就陪陪你吧
+[https://www.bilibili.com/read/cv16285522/](https://www.bilibili.com/read/cv16285522/)
+
+信息茧房就是这样的，大家都活在自己的圈子里<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穷且坚强着  
+##### 1070#       发表于 2022-9-17 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528780&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-17 21:45</a>
+
+粥有统治过二次元圈子的时期吗？</blockquote>
+开服半壁江山那段时间算是吧
+
+*****
+
+####  neroyuzhang  
+##### 1071#       发表于 2022-9-17 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528924&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 21:54</a>
+
+虽然提这个很下头，但是这两个画像有类似什么数据支持吗
+
+主要是我仅从身边感受这两个游戏群体的 ...</blockquote>
+老群友统计法，舟原狂热粉基本都是同一批人，选了不同 “阵营” 有惯性了而已
+
+前两年舟友里键政人略多一点，如今提瓦特也可以键，已经匀得差不多了
+
+*****
+
+####  江戸前ルナ  
+##### 1072#       发表于 2022-9-17 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529029&amp;ptid=2094448" target="_blank">yujiacyl 发表于 2022-9-17 22:02</a>
+
+今天周末，我就陪陪你吧
+
+https://www.bilibili.com/read/cv16285522/
+
+信息茧房就是这样的，大家都活在自 ...</blockquote>
+那原友可不可以先解答下PV后4小时出对比片的事，我并不关心NPC是否叫阿牧，以及这张图片怎么来的。
+
+*****
+
+####  哈里-谢顿  
+##### 1073#       发表于 2022-9-17 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528937&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 21:55</a>
+
+之前不就有个视频分析那时的宣传手法。
+
+那位做过游戏文章编辑的先去解说一下写一篇原创的带截图带GIF带对 ...</blockquote>
+的确、这么快就出对比是说不清
+
+蛮奇怪为啥会有提前黑这种，又不是类似白龙对少女前线那种专门黑
+
+PS，我一直希望有文艺范的制作社按照17版麦克白风格，把翼之归处拍成片，可惜这类好作品一直无缘印象化
+
+*****
+
+####  绯夜殃雨  
+##### 1074#       发表于 2022-9-17 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528846&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 21:50</a>
+
+呵呵，那为什么你不看内容也不去反驳呢？里面你所说“黑”的内容很多就是喷各种“典”的言论，而这些言论 ...</blockquote>
+NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句同样是抄袭作品，怎么对星露谷物语之类的游戏没这么大恨意。还有滑翔翼和爬墙都是刺客信条都有的东西啊。
+
+结果半小时被喷了100楼，各种不堪入目的脏字都来了。版主迅速把我删帖+封号。直接把我逼上米山。我是真没想到能恨到这个地步。那时候游戏都还没出，也不存在你所谓的各种玩家爆典。但恨意已经浓厚到这个地步。
+
+*****
+
+####  yujiacyl  
+##### 1075#       发表于 2022-9-17 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529072&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 22:05</a>
+
+那原友可不可以先解答下PV后4小时出对比片的事，我并不关心NPC是否叫阿牧，以及这张图片怎么来的。 ...</blockquote>
+就像我也不关心你怎么看，所以我也没有回复你那一条<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fireawayac  
+##### 1076#       发表于 2022-9-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528501&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-17 21:27</a>
+
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+个人感觉，有些人是羞刀难入鞘，以前鄙视过辱骂过原神，如果现在承认原神好，岂不是说明自己以前错了？
+
+就像某些人恨国，向往欧美，费劲心思出国后却混得很差，眼看国内的亲戚朋友日子越来越好，自己却住地下室捡垃圾，于是心态失衡了，加倍痛骂国内。这种心态，大概有一点类似。
+
+所以原神做得越好，反而越要针对痛骂，人是无法承认自己错误的。
+
+*****
+
+####  卡蓮  
+##### 1077#       发表于 2022-9-17 22:08
+
+那那条我道歉，毕竟没事不会关注那么多，而且有郑翔的前车之鉴，原神里人名梗那么多，很难让人不发生联想
+
+*****
+
+####  kletka  
+##### 1078#       发表于 2022-9-17 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528989&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 21:59</a>
+
+阿牧的那个视频分析的，一个新对比视频，要分析，要找素材，要搓视频，要上传，要等B站审核，从正常的出 ...</blockquote>
+其实这里存在一个很特别的信息茧房
+
+阿牧或者说鼠坊主阿牧，这个npc，有人在一个早期的稻妻beta版本解包出来了，也就是说这个名字甚至比这两个up出现得还早
+
+解包位置book225.txt,解包时间是21年的年中，大概六月份，比阿牧这个up出现在b站的时间更早
+
+*****
+
+####  whzfjk  
+##### 1079#       发表于 2022-9-17 22:09
+
+<blockquote>yujiacyl 发表于 2022-9-17 21:57
+因为大部分人是来玩游戏的，不是来跟人汴京的，每天下班做完日常看下二创就该睡觉了，哪还有空把宝贵的时 ...</blockquote>
+游戏区专楼也不是每个季度都天天顶，A转个乐子EFG附和，B转个乐子EFG附和，虽然是连续两次但也没多费劲。本楼这么大的话题自然是不逛白不逛
+
+*****
+
+####  江戸前ルナ  
+##### 1080#       发表于 2022-9-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529088&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-17 22:06</a>
+
+NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句同样是抄袭作品，怎么对星露谷物语之类的游戏没 ...</blockquote>
+游戏都没出跟现在的手综不是一回事……
+
+
+
+*****
+
+####  编木马者死户口  
+##### 1081#       发表于 2022-9-17 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想那位高位截瘫消防员被贴吧骚扰一年，还有最近那个纯攻略up被开盒，你们是真对米忽悠有仇呢还是“公报私仇”，我就说不好了
+
+*****
+
+####  Mchaos  
+##### 1082#       发表于 2022-9-17 22:09
+
+原友怎么这会才进驻啊，动作是不是有点慢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yujiacyl  
+##### 1083#       发表于 2022-9-17 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529121&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 22:08</a>
+
+那那条我道歉，毕竟没事不会关注那么多，而且有郑翔的前车之鉴，原神里人名梗那么多，很难让人不发生联想 ...</blockquote>
+没有道歉的必要，说实话你不知道才是正常的，因为讨厌某样东西就根本不会去深入了解它，除非是大仇大恨，“最了解你的是你的敌人”。<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 1084#       发表于 2022-9-17 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529084&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 22:06</a>
+
+的确、这么快就出对比是说不清
+
+蛮奇怪为啥会有提前黑这种，又不是类似白龙对少女前线那种专门黑</blockquote>
+……太冷了，也太难了。或许等那边的市场哪一天兴起那类作品风格的时候，才可能有那么点机会。
+
