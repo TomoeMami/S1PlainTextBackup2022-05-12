@@ -8062,3 +8062,46 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 
 品质啊，米哈游自己弄的都黑泡面番。还有崩3的pv。长篇目前没见过。
 
+
+
+*****
+
+####  yujiacyl  
+##### 843#       发表于 2022-9-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523855&amp;ptid=2094448" target="_blank">cloudcc 发表于 2022-9-17 15:08</a>
+看你们说的，只要发动王之力，一切都会好起来的是么吧？还是要看品质如何的 ...</blockquote>
+必胜客难吃的要死依旧被挤爆，二刺螈不能用常理去套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 844#       发表于 2022-9-17 15:17
+
+哇 一看 发现居然800讨论了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 845#       发表于 2022-9-17 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后知后觉，没想到漫区也迎来了黑暗降临的一天
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名津流  
+##### 846#       发表于 2022-9-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523292&amp;ptid=2094448" target="_blank">printer22 发表于 2022-9-17 14:11</a>
+
+进游戏走两步就知道引擎调教得非常好，动捕数据几乎完美呈现，走路不像一边滑冰一边播放走路动画而是真的 ...</blockquote>
+我也觉得进游戏头几分钟就能感受到这游戏综合完成度很高，综合的卖相是真的好
+
+我一年多前第一次进游戏的时候，进主城之前至少到处逛了一个多小时，当时就注意到云和影子好像是有互动的，但不太确定。我在刚开场那海滩边就发现随便找一块石头、或者台阶站上去，脚不仅不会穿模，还会根据放置的平面不同而产生不同的站姿。我印象中只有部分单机大作会在这种细节上下功夫吧？网游rpg几乎都是直接穿模的
+
