@@ -6802,3 +6802,36 @@ pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两
 
 我寻思这年头游戏分章节卖怎么说也是dssq了，怎么还有人拿这个说事儿，真要指责是半成品拿出来卖那中枪的所谓3A大作可多了去了，何况这游戏还不是买断制<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">稻妻的部分剧情有大问题也算是共识，但你总得找对角度喷吧
 
+
+
+*****
+
+####  诚司  
+##### 728#       发表于 2022-9-17 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521203&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-17 11:27</a>
+
+我寻思这年头游戏分章节卖怎么说也是dssq了，怎么还有人拿这个说事儿，真要指责是半成品拿出来卖那中枪的所 ...</blockquote>
+之前在nga遇到一个人，说他被欺诈了，本来以为是单机，下完了玩才发现不是，mhy该死。
+
+我问他你没花钱下载下来的吧，会觉得免费下载下来的东西是单机游戏，你以为官网是3dm吧？
+
+只能说什么人都有，脑子不是谁都有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 729#       发表于 2022-9-17 11:37
+
+今个漫区流量这么高，我一开始以为是因为边缘行者，后来觉得是因为广告哥？点进来一看原来是因为圆神，彳亍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来太子搁那底下真是引了波大的啊，笑死了
+台长还是naive，拿动画片巨魔球用没有，不如太子一竹竿子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  终将不惑  
+##### 730#       发表于 2022-9-17 11:39
+
+多少还是期待一下吧。。。
+

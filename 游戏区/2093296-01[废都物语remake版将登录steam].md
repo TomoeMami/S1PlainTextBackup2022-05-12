@@ -2718,3 +2718,14 @@ elona算是rpg吗
 
 卧槽
 
+
+
+*****
+
+####  Dgnic_  
+##### 299#       发表于 2022-9-17 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519542&amp;ptid=2093296" target="_blank">forrea 发表于 2022-9-17 08:25</a>
+前些天b站那个热门视频到底是不是叔叔推的，如果是的话，为什么重制版公布在b站反而没什么动静 ...</blockquote>
+有可能是，也有可能不是，毕竟那个 UP 之前还推过星际拓荒，游戏品味还可以，推个废都物语也很正常。无论怎么样，让这款游戏被更多人知道，还是好事一件。
+
