@@ -7414,3 +7414,55 @@ saki一直是一边工作一边做主播，是挺现成的
 米忽悠游戏内不联动的习惯从崩崩崩就开始了，也就是他们走3d化之后，eva纯属老板追梦。因此原神不联动也 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑是被羽中那次坑怕了
 
+
+
+*****
+
+####  940045933  
+##### 784#       发表于 2022-9-17 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522294&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:43</a>
+说下，你弄不好原神在日本动画界还是有点人脉
+
+之前我的老号专门转载过羊廷牧大佬的动画制作杂谈系列，他可 ...</blockquote>
+ufo做动画基本是社内人员，哪里还看什么人脉不人脉的
+
+—— 来自 vivo V2186A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈里-谢顿  
+##### 785#       发表于 2022-9-17 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522915&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-17 13:28</a>
+
+醒醒吧，扳机只有婆罗门认识，出了婆圈谁还认识。国内能比飞碟话题性爆炸的估计也只有京阿尼
+
+ ...</blockquote>
+京阿怡可能性很小，而且大火以后元气大伤，很惨
+
+*****
+
+####  bloodalone  
+##### 786#       发表于 2022-9-17 13:37
+
+<blockquote>bin哥厉害 发表于 2022-9-17 13:30
+我怀疑是被羽中那次坑怕了</blockquote>
+崩崩还在各种联动，推测是跟别人联动要搞3d建模，自己吃亏，索性就不搞了
+
+*****
+
+####  jie2000  
+##### 787#       发表于 2022-9-17 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522868&amp;ptid=2094448" target="_blank">编木马者死户口 发表于 2022-9-17 13:23</a>
+看那样子就是周本BOSS啊，这有啥，女士不也有粉</blockquote>
+不不不，散兵是自机角色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三合一出现  
+##### 788#       发表于 2022-9-17 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">啥情况，一个消息直接27页
+
