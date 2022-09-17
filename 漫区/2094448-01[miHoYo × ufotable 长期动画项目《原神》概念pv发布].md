@@ -9316,3 +9316,72 @@ BD销量已经不足以刻画o的热度了（当然这也和BD市场本身一直
 
 应该不会只想做P5动画那种
 
+
+
+*****
+
+####  绯田美琴  
+##### 961#       发表于 2022-9-17 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525893&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-17 18:25</a>
+
+首先既然说是长篇，就小概率做角色日常。看这个PV像是兄妹刚来提瓦特时的样子，怎么感觉动画不会复读游戏剧 ...</blockquote>
+概念pv这种不一定和要讲的故事有关系，可能只是展示美术
+
+不过我猜应该也是前传，讲主线一是比较无聊，二是按照崩3的思路应该也是出各种作品来补全世界观
+
+*****
+
+####  卢迪乌斯  
+##### 962#       发表于 2022-9-17 18:31
+
+单说动画吧，我觉得疯房子更好，最近几年，这种科幻加魔幻，二次元味儿又重的，就是游戏人生剧场版，风格太适合了
+
+*****
+
+####  jyky  
+##### 963#       发表于 2022-9-17 18:34
+
+啥都没有聊了三十几页，你们对这俩强强联合好有信心啊
+
+*****
+
+####  大江户战士  
+##### 964#       发表于 2022-9-17 18:35
+
+这个pv看着就像动起来的美术设定图，很难推测要怎么做
+
+*****
+
+####  JustW_3  
+##### 965#       发表于 2022-9-17 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525809&amp;ptid=2094448" target="_blank">五性八卦 发表于 2022-9-17 18:15</a>
+这样啊，和稻妻期间黑宵宫心海的人差不多，我喜欢的牛逼你喜欢的垃圾这种傻逼思维，有些人就是这么烦人[f ...</blockquote>
+稻妻期间一堆人黑心海这件事，你还是应该去问mhy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再过几年，心海传说任务还是会钉在榜单最上边
+
+*****
+
+####  plok201  
+##### 966#       发表于 2022-9-17 18:36
+
+500年前的那堆事大概率是七国逛完后，第一部大结局那里用来当高潮和爆点的
+
+而且游戏剧情那边挺多空白的，编点新支线和活动剧情再把个人剧情混进去够了，大家要看的是花钱的卡池角色动起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰冻火柴  
+##### 967#       发表于 2022-9-17 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525940&amp;ptid=2094448" target="_blank">不知道还一直说 发表于 2022-9-17 18:28</a>
+
+仔细想了一下，讲旧时间线和现在时间线都有点问题。
+
+如果讲旧的，那现有人物没什么机会出场
+
+如果讲新的，那 ...</blockquote>
+其实我挺喜欢沙雕日常的，最好是像弱酸性百万亚瑟王、人偶学园、少女前线小剧场那种狂乱的风格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但看这PV秀作画的阵仗，实在不像是要做日常的样子
+
