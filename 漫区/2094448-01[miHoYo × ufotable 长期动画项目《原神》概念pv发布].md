@@ -6489,3 +6489,44 @@ PV这纪录片运镜有点意思，游戏里的大陆太小了，期待动画能
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  codezwei  
+##### 698#       发表于 2022-9-17 10:22
+
+原批女角色很多吧，统统做成百合贴贴，岂不美哉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MaxFOrder  
+##### 699#       发表于 2022-9-17 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520242&amp;ptid=2094448" target="_blank">阿姆罗二世 发表于 2022-9-17 10:17</a>
+
+游戏里时间加速了60倍，面积也缩小了3600倍嘛
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+什么平方反比【
+
+一直觉得游戏里的距离单位设定得太过草率，一个国的幅员才几千米，虽然理解地图做太大了机能和游戏性都要受影响，但真还不如虚构一个单位来得方便。璃月港和蒙德城相距3000单位，给人的感觉总比距离3000m强
+
+*****
+
+####  小小雪空  
+##### 700#       发表于 2022-9-17 10:29
+
+作为新世纪霸权（预定），当然要把理论上能加进去的二次元元素全加进去，对死宅进行360度全方位打击×
+
+*****
+
+####  天青月白  
+##### 701#       发表于 2022-9-17 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517348&amp;ptid=2094448" target="_blank">fsz1987 发表于 2022-9-16 23:40</a>
+3蹦子应该是留给khara了</blockquote>
+想得美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">崩3挣钱少，khara也不会给你干这个
+
