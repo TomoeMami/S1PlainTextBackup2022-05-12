@@ -6237,3 +6237,64 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lqd1984  
+##### 672#       发表于 2022-9-17 08:46
+
+不管怎么样，反正原神来了，漫区的青天就有了，漫区就活了，从此不愁流量了。
+原神“我到漫区就办三件事，流量，流量，还是TMD流量。”
+
+另外，希望漫区不要不知好歹驱逐原神……不过想想驱逐原神粉丝也不亏，毕竟被漫区驱逐的就可以独立建区了。从此原神粉丝在S1也能有阳光下的土地了。WINWIN
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fantuanxiaoyi  
+##### 673#       发表于 2022-9-17 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515243&amp;ptid=2094448" target="_blank">Rhantolk 发表于 2022-9-16 21:19</a>
+
+感觉这pv就是想让人吹“啊这光啊这水”
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v ...</blockquote>
+这光这水还不如游戏里的呢。
+
+*****
+
+####  cloudcc  
+##### 674#       发表于 2022-9-17 08:48
+
+以后漫区就少一行了233333
+
+*****
+
+####  fantuanxiaoyi  
+##### 675#       发表于 2022-9-17 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518767&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 01:58</a>
+
+日本手游有动画的太多了，前排的手游更会搞
+
+国内主要是被日本人坑惨了，yostar都自己招人做动画了 ...</blockquote>
+自己招人就做出个现在明日方舟这样的？还不如不招。
+
+*****
+
+####  treexper  
+##### 676#       发表于 2022-9-17 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519614&amp;ptid=2094448" target="_blank">partrue 发表于 2022-9-17 08:40</a>
+
+看评论说妹妹头上的花不应该这么软所以是作画失误……
+
+会不会真的是坎瑞亚前传
+
+蒙德地形对不上也可以解释</blockquote>
+妹妹头上的花不是插在国土上就是软的么？
+
+所以妹妹的脑袋是星魂。
+
