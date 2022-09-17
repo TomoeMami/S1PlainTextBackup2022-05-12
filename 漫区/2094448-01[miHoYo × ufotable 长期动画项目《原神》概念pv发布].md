@@ -11608,3 +11608,104 @@ NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句�
 比如微博按理说是女性活跃度更 ...</blockquote>
 这个的原因是米哈游目前为止没在国内发商单，看上的画师基本都直接收纳，同时基本网上也见不到人了，这跟微博办公的小画家们的怎么可能不打起来？
 
+
+
+*****
+
+####  hypnossz86  
+##### 1163#       发表于 2022-9-17 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530121&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 22:56</a>
+真希望游戏区原神专楼也有您这样认真负责的版主呀。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">锁妖塔那个楼主就是典型的“玩原黑原”的婆罗门
+还是个超版，已经给那个楼定下了基调
+
+所以为什么要去那个楼，去手游区不好吗？
+
+*****
+
+####  小小雪空  
+##### 1164#       发表于 2022-9-17 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530217&amp;ptid=2094448" target="_blank">小红飞翼 发表于 2022-9-17 22:59</a>
+
+看了这楼 原能活过两年也是奇迹了</blockquote>
+请认清S1没有用的事实，S1发生什么都不会影响到中等体量以上的圈子，所以原能活多少年其实跟S1并没有关系……
+
+*****
+
+####  Hqchan  
+##### 1165#       发表于 2022-9-17 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529806&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:43</a>
+
+不得不说，明日方舟夏活节奏后，抱怨角色男女比不平衡的、每天骂我女我也的，稍微少了一些 ...</blockquote>
+夏活不会是指今年夏活吧，我寻思去年夏活直到今年四五月我被恶心到不看NGA粥版的时候，抱怨男角少的帖子和里面的回复简直疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 1166#       发表于 2022-9-17 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530355&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:04</a>
+
+夏活不会是指今年夏活吧，我寻思去年夏活直到今年四五月我被恶心到不看NGA粥版的时候，抱怨男角少的帖子 ...</blockquote>
+我没逛过nga，但去年夏活之前更多得离谱
+
+*****
+
+####  weary11  
+##### 1167#       发表于 2022-9-17 23:07
+
+绝区零的PV做得真好 妹妹表情太可爱了。
+
+*****
+
+####  冰冻火柴  
+##### 1168#       发表于 2022-9-17 23:08
+
+干脆改名叫手游大战楼得了，不是说好聊动画的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三杉酸宁碱  
+##### 1169#       发表于 2022-9-17 23:08
+
+https://www.bilibili.com/video/av900670514<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 1170#       发表于 2022-9-17 23:08
+
+，
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  MaxFOrder  
+##### 1171#       发表于 2022-9-17 23:09
+
+行了各位，别汴京了，是粉是黑光汴也没用，动画信息现在不多就再等等吧，没必要复盘整个粉黑大战过程
+
+*****
+
+####  楠芽吹  
+##### 1172#       发表于 2022-9-17 23:09
+
+加急更新笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kletka  
+##### 1173#       发表于 2022-9-17 23:10
+
+其实对于原神现在几千万月活（全球）的体量来说，现在的所有网络论战都是没啥影响的，还不如某国家经济崩盘导致全跑去那边氪金，和日元贬值美国市场整体疲软之类的经济因素影响大
+
+网友的吹逼从来都吹不出个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
