@@ -10925,3 +10925,195 @@ NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句�
 不同游戏类型，受冲击的程度不一样。单机游戏玩完就算，没有排他性，我一年能玩十个单机，不会说刺客信条 ...</blockquote>
 这事也是信息茧房。当时有个猴子发了弹幕风暴，所以才会产生满屏的效果
 
+
+
+*****
+
+####  小小雪空  
+##### 1102#       发表于 2022-9-17 22:21
+
+说实话，你们聊的东西，我作为路人都是不知道的，听我说一句，别看到路人多，就急不及待来个黑料大发送，事实上路人只会觉得你傻逼……
+
+*****
+
+####  neroyuzhang  
+##### 1103#       发表于 2022-9-17 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529301&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:20</a>
+
+比如幻塔战双吧，之前看到有帖子替他们不值。不过我也没怎么关注过流水榜，不是很懂。 ...</blockquote>
+战双玩家觉得不服倒是合乎这个逻辑，但实际上（在我之前还会观察各大社区的时候）没见到有什么冲突
+
+*****
+
+####  哈里-谢顿  
+##### 1104#       发表于 2022-9-17 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529164&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 22:11</a>
+
+……太冷了，也太难了。或许等那边的市场哪一天兴起那类作品风格的时候，才可能有那么点机会。 ...</blockquote>
+哎……文字很优美
+
+之前边境圣骑士都拍了，突然有点想法
+
+现在看还不如不拍，还有那边境老骑士也是
+
+*****
+
+####  不知道还一直说  
+##### 1105#       发表于 2022-9-17 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529146&amp;ptid=2094448" target="_blank">Mchaos 发表于 2022-9-17 22:09</a>
+
+原友怎么这会才进驻啊，动作是不是有点慢了
+
+—— 来自 S1Fun</blockquote>
+这个楼里的原友以后会越来越多，如果想定风向把原友赶走的话这几天是最佳时机。
+
+但是也要注意方式方法，前几页那个用力过猛的已经不见了。
+
+*****
+
+####  发财就收  
+##### 1106#       发表于 2022-9-17 22:23
+
+楼里说的bd卖不卖问题，干脆米哈游把bd的收益大部分让给幽浮桌好了，这样日方至少会认真做吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  大江户战士  
+##### 1107#       发表于 2022-9-17 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529166&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:11</a>
+
+可以从我的角度谈谈舟原玩家矛盾由来（虽然这已经超出动画专楼的范畴了）
+
+表面原因有很多，比如崩3节奏期 ...</blockquote>
+米哈游和鹰角粉丝的争斗，颇有当年AB站粉丝争论的味道
+
+*****
+
+####  哈里-谢顿  
+##### 1108#       发表于 2022-9-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529177&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 22:11</a>
+
+四小时是原片发布后，不是原片制作出之后。这当中的事谁知道呢，也许幕后操盘者早就拿到视频了，2019年的 ...</blockquote>
+看起来2019年米哈游在豪赌啊
+
+*****
+
+####  编木马者死户口  
+##### 1109#       发表于 2022-9-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529315&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-17 22:21</a>
+
+说实话，你们聊的东西，我作为路人都是不知道的，听我说一句，别看到路人多，就急不及待来个黑料大发送，事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">粉丝向动画难有路人啊
+
+*****
+
+####  卡蓮  
+##### 1110#       发表于 2022-9-17 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">粥现在的体量差太多了，没戏的。
+
+回归板块话题，动画改编就靠原这种水平的主线基本没救，几个大支线做做剧场版还有戏，就是不好卖角色，而且我估计大概率tv动画没有米哈游自己做的3d动画好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  JustW_3  
+##### 1111#       发表于 2022-9-17 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529269&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 22:18</a>
+
+不同游戏类型，受冲击的程度不一样。单机游戏玩完就算，没有排他性，我一年能玩十个单机，不会说刺客信条 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我还想说的一个理由是查成分风气日盛。从索任大战到撸塔大战再到今天的手游juan，查“成分”变成了一件前所未有方便的事情，但这种成分其实没有任何坚实的依据，人不会因为玩一个游戏而在户籍上多登记上一项。双chu也好反串也好，都毫无门槛，但很多人还是热衷于靠成分来判断，无论是这楼里给原友扣帽子的，还是给别人扣帽子的原友，都陷入了这种判断。——不过往大了说这是人局限性导致的必然结果，或许无法改变，只能enjoy it
+
+*****
+
+####  绯夜殃雨  
+##### 1112#       发表于 2022-9-17 22:26
+
+ 本帖最后由 绯夜殃雨 于 2022-9-17 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529166&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:11</a>
+
+可以从我的角度谈谈舟原玩家矛盾由来（虽然这已经超出动画专楼的范畴了）
+
+表面原因有很多，比如崩3节奏期 ...</blockquote>
+粥原矛盾有很多层次
+
+1、二游里粥游长年是排在前列的，一个领域里排名靠前的游戏之间有矛盾是正常的。日本原神和马娘玩家之间也天天大战。FF14和wow的关系也自不必提。
+
+2、粥游许多玩家是画师圈的粉丝，而这个圈子痛恨抄袭，所以以抄袭闻名于世的原神自然被痛恨。所以粥游玩家和反原人士重合度就很高。
+
+3、在崩3的兔女郎事件里，不少粥游玩家下场开嘲讽。有方舟UP做了播放量百万的视频开团，而国内崩3玩家和原神玩家重合度很高，所以也在原神圈里产生了记恨。于是后面逐渐就出现各种摩擦。
+
+*****
+
+####  liangyi345  
+##### 1113#       发表于 2022-9-17 22:26
+
+这楼的走势是原吹楼还是原黑楼?
+
+*****
+
+####  kletka  
+##### 1114#       发表于 2022-9-17 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529401&amp;ptid=2094448" target="_blank">卡蓮 发表于 2022-9-17 22:26</a>
+
+粥现在的体量差太多了，没戏的。
+
+回归板块话题，动画改编就靠原这种水平的主线基本没救，几个大支 ...</blockquote>
+崩的动画基本就是整个剧情的收尾，路人看其实就看个光污染，所有的感情和情绪都是get不到的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 1115#       发表于 2022-9-17 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529420&amp;ptid=2094448" target="_blank">liangyi345 发表于 2022-9-17 22:26</a>
+
+这楼的走势是原吹楼还是原黑楼?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子人看戏楼（
+
+*****
+
+####  starash  
+##### 1116#       发表于 2022-9-17 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529315&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-17 22:21</a>
+ 说实话，你们聊的东西，我作为路人都是不知道的，听我说一句，别看到路人多，就急不及待来个黑料大发送，事 ...</blockquote>
+只是聊聊过去的事情，已经不重要了。
+但我入坑原神时是真的好奇有什么游戏能吸引到如此之多的火力，好像它已经背弃了全国人民一样。
+
+*****
+
+####  starash  
+##### 1117#       发表于 2022-9-17 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529420&amp;ptid=2094448" target="_blank">liangyi345 发表于 2022-9-17 22:26</a>
+ 这楼的走势是原吹楼还是原黑楼?</blockquote>
+可能会变成马马耶夫岗
+
+*****
+
+####  哈里-谢顿  
+##### 1118#       发表于 2022-9-17 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529349&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-17 22:23</a>
+
+米哈游和鹰角粉丝的争斗，&amp;# ...</blockquote>
+艹，这俩游戏我都玩过，压根都不是一类都吵得起来？
+
+相互比自己更高贵吗？看不懂
+
+不过年底油星在日本做的TVA要出来了，拭目以待（其实也不抱太大希望）
+
+话说起来可怜的少女前线培养了这么多后来的二次元手游人才，现在有点小透明
+
