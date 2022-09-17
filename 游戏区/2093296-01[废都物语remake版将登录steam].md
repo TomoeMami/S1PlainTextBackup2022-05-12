@@ -2882,3 +2882,21 @@ elona算是rpg吗
 
 lofter上立绘有人存吗？ 我也想问
 
+
+
+*****
+
+####  RedSpecial  
+##### 314#       发表于 2022-9-18 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57492747&amp;ptid=2093296" target="_blank">shinnfin 发表于 2022-9-15 09:59</a>
+前段时间才有怀旧贴  这就有重制了？？？</blockquote>
+前段时间？每年都有！
+
+*****
+
+####  ftfkjb  
+##### 315#       发表于 2022-9-18 05:46
+
+我还在猜山顶无形者的名字∠( ᐛ 」∠)＿
+

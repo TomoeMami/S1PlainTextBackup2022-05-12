@@ -13006,3 +13006,168 @@ fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无�
 
 提示: 作者被禁止或删除 内容自动屏蔽
 
+
+
+*****
+
+####  sekai-R  
+##### 1296#       发表于 2022-9-18 01:53
+
+企划是长篇动画没必要剧情做长篇线性的，搞几个独立的单元剧在剧情上要好把握得多，时间线不搞线性的就可以穿插描写两个主角在不同的时间点在同一个国家的见闻，这样就能尽可能端平双子的戏份
+
+*****
+
+####  大江户战士  
+##### 1297#       发表于 2022-9-18 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532840&amp;ptid=2094448" target="_blank">theworld 发表于 2022-9-18 01:41</a>
+
+一万多人投票最后五五开</blockquote>
+5ch上为了男女主到底选谁上吵，回来一看国内群体也在吵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naoki123  
+##### 1298#       发表于 2022-9-18 01:56
+
+蒙德都能水50集，主线短？不会把邀约穿插进去？这么多人物，相关的版本事件，好好规划下每个区域50集都不够
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  月夜凝雪  
+##### 1299#       发表于 2022-9-18 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532967&amp;ptid=2094448" target="_blank">naoki123 发表于 2022-9-18 01:56</a>
+
+蒙德都能水50集，主线短？不会把邀约穿插进去？这么多人物，相关的版本事件，好好规划下每个区域50集都不够 ...</blockquote>
+邀约应该插不了什么，那个完全是多周目操作选一个也不怎么好，而且一些角色在主线里和主角也没熟络到那个程度
+
+*****
+
+####  绯夜殃雨  
+##### 1300#       发表于 2022-9-18 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532967&amp;ptid=2094448" target="_blank">naoki123 发表于 2022-9-18 01:56</a>
+
+蒙德都能水50集，主线短？不会把邀约穿插进去？这么多人物，相关的版本事件，好好规划下每个区域50集都不够 ...</blockquote>
+在一个地域待太久不好吧。不利于推广新人物。估计还是会尽量往雨露均沾方面发展
+
+*****
+
+####  nejiang  
+##### 1301#       发表于 2022-9-18 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529348&amp;ptid=2094448" target="_blank">发财就收 发表于 2022-9-17 22:23</a>
+
+楼里说的bd卖不卖问题，干脆米哈游把bd的收益大部分让给幽浮桌好了，这样日方至少会认真做吧
+
+----发送自 S ...</blockquote>
+UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员会，然后这个发行方就会把卖碟的大部分收益吃掉，UFO只能拿制作费
+
+我觉得不卖碟的主要原因是这片不可能只在日本发行，全世界发行的话就只有靠网络了
+
+*****
+
+####  小小雪空  
+##### 1302#       发表于 2022-9-18 02:30
+
+在互联网时代，动画当然要免费看才对，做完直接发在网上，永远可以一直看，就不卖碟了×
+
+*****
+
+####  新吾  
+##### 1303#       发表于 2022-9-18 02:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个pv能水44页，漫区昨天久违的赢了游戏区，等到播第一集能赢外野吗
+
+*****
+
+####  亚崔迪公爵  
+##### 1304#       发表于 2022-9-18 03:03
+
+如果从吸引观众入坑的角度考虑，应该先将藏在游戏文本里面的背景故事做成动画吧。例如炎之魔女的生平、雪山古国往事、鹤观岛祭祀、白夜国往事、八酝岛的怪病、层岩巨渊的战争之类的，不用担心刀子，靠剧情冲击性把胃口吊起来。这样每个故事做几集动画正好，本来游戏里面的留白也比较多，最后的结局也确定了，可以方便动画自由发挥不容易吃书
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Sza  
+##### 1305#       发表于 2022-9-18 03:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533304&amp;ptid=2094448" target="_blank">新吾 发表于 2022-9-18 02:39</a>
+
+一个pv能水44页，漫区昨天久违的赢了游戏区，等到播第一集能赢外野吗 ...</blockquote>
+流量多得像是被奶油灌得满满的泡芙，s1娘心满意足地晕了过去
+
+*****
+
+####  Silencieuse  
+##### 1306#       发表于 2022-9-18 03:06
+
+ 本帖最后由 Silencieuse 于 2022-9-18 03:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533447&amp;ptid=2094448" target="_blank">亚崔迪公爵 发表于 2022-9-18 03:03</a>
+
+如果从吸引观众入坑的角度考虑，应该先将藏在游戏文本里面的背景故事做成动画吧。例如炎之魔女的生平、雪山 ...</blockquote>
+不是，不用担心刀子是咋回事，你列举这些我感觉全是彻头彻尾的悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+这些支线都是游戏里面留白让玩家脑内补全，你这一全放一起我感觉真的会被脑内自制假药感动到<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 1307#       发表于 2022-9-18 03:09
+
+去年被崩3某争议事件气退坑了所有二次元手游，有没有了解情况的老哥说说miHoYo Anime那边现在啥情况啊，以前玩崩3基本都还只是一年出几个短片，最惊艳的好像还是真红的哪个间章动画（分镜和渲染都做得很好），现在产能上来没有？（虽然肯定没到能做TV动画的等级吧，但崩坏剧场版鸽了好多年了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  partrue  
+##### 1308#       发表于 2022-9-18 03:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529771&amp;ptid=2094448" target="_blank">weary11 发表于 2022-9-17 22:42</a>
+真做成空境的OVA质量 那就好了。</blockquote>
+对头哇
+甚至都不用做40分钟
+随便拉个传说任务，出场角色多一点的4星约会任务，甚至过去的限时活动做成分part就已经回票价了
+反正都是卖角色，短篇多做几个先找找玩家的痛点，再上什么tva或者大电影
+这年头都是看个抖音就入坑的时代
+会关心世界观背景剧情之类的考察的深度玩家太少太少，还不如做成旅游观光片，这次的pv有几个航拍镜头整得跟国家地理似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  smdzh2  
+##### 1309#       发表于 2022-9-18 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533475&amp;ptid=2094448" target="_blank">Skyline_R 发表于 2022-9-18 04:09</a>
+去年被崩3某争议事件气退坑了所有二次元手游，有没有了解情况的老哥说说miHoYo Anime那边现在啥情况啊，以 ...</blockquote>
+没区别，依然是一年两部短片，大电影遥遥无期<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpbzpb123123  
+##### 1310#       发表于 2022-9-18 04:46
+
+我觉得动画如果讲现在的剧情而不是500年前啥的话，可以花篇幅丰富一下游戏主线赶的要死的地方吧，比如海祇岛抵抗军，来个小兵视点讲讲啥的
+
+然后虽然多半没戏，但我是妹妹主角派
+
+*****
+
+####  starash  
+##### 1311#       发表于 2022-9-18 04:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531544&amp;ptid=2094448" target="_blank">kyonkoism二号机 发表于 2022-9-18 00:02</a>
+ 因为之前被科普过伤物语开头阿良良木在天台跳楼那段，场景是手绘不是3D，导致我看到这种很像3D但 ...</blockquote>
+不要拿吉成钢这种人肉3d绘师当通例。
+
+*****
+
+####  冰冻火柴  
+##### 1312#       发表于 2022-9-18 05:58
+
+同希望动画做点精彩的战斗，尤其是主角能同时用多种元素力，游戏里只有在公子战过场体现了一下。要是动画来一个不同元素技能连招，加自己打元素反应，大概就理解提瓦特普通人对主角“我很能打”的尊敬了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
