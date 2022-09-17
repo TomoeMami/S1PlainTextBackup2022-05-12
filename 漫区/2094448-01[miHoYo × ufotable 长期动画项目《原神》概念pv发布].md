@@ -11117,3 +11117,224 @@ NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句�
 
 话说起来可怜的少女前线培养了这么多后来的二次元手游人才，现在有点小透明
 
+
+
+*****
+
+####  hypnossz86  
+##### 1119#       发表于 2022-9-17 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529420&amp;ptid=2094448" target="_blank">liangyi345 发表于 2022-9-17 22:26</a>
+
+这楼的走势是原吹楼还是原黑楼?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是克什米尔缓冲（冲突）区
+
+*****
+
+####  ひびき  
+##### 1120#       发表于 2022-9-17 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529419&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-17 22:26</a>
+
+粥原矛盾有很多层次
+
+1、二游里粥游长年是排在前列的，一个领域里排名靠前的游戏之间有矛盾是正常的。日本 ...</blockquote>
+这个圈子痛恨抄袭 x
+
+洋爹抄国人唯唯诺诺，国人抄洋爹重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 1121#       发表于 2022-9-17 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是中日合作手游改？这玩意有成功的先例吗？要我说米桑这么有钱，学拳头找几个学院派的自己攒个工作室专职给他做动画多好。
+
+*****
+
+####  bgmilk  
+##### 1122#       发表于 2022-9-17 22:33
+
+ 本帖最后由 bgmilk 于 2022-9-17 22:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529476&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 22:30</a>
+
+艹，这俩游戏我都玩过，压根都不是一类都吵得起来？
+
+相互比自己更高贵吗？看不懂</blockquote>
+     你还提少前，当年少前玩家可是反粥主力军啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。手游圈子的争斗那可真是一门斗虫史（屎）书。顺便和你说一下，二次元手游和同人市场有天然的重合性，你火了就抢了我的同人市场资源，最早期的二游内斗就是这么来的，不过原完全超脱二游的概念了，卷入的势力那可多了去了。
+
+*****
+
+####  不知道还一直说  
+##### 1123#       发表于 2022-9-17 22:33
+
+别在这里讨论原粥了，真想知道啥消息的早就能去自己想去的地方知道自己想知道的专属真相了。
+
+我不觉得这里有很多既充满好奇心又没有既定屁股的路人
+
+*****
+
+####  反正我改名  
+##### 1124#       发表于 2022-9-17 22:33
+
+砸PS4的四条狗既不是反串也不是黑红或者收米，因为我16年就因为LOL知道这号人物。说他是个普通小丑其实是低看他，他很会写一些煽动情绪的作文，虽然稍微有点常识就知道是胡扯，辩不过又开始人身攻击，说自己北京有房有钱买兵人你有么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纸皮  
+##### 1125#       发表于 2022-9-17 22:34
+
+端详了一会儿卡池流水，不论是从剧情的有意思还是从更挣钱来说肯定是做船新剧情更好且更赚，二次元3D游戏本来就能动还不会崩还能转视角主线都有配音，连“能动起来就行”都不占了，重置剧情也过于重复体验了
+
+要是能靠船新剧情的动画做出原创人气角色，落地能卡池流水猛涨的那种，也比BD的小钱强得多的多
+
+自己就有二刺螈变现最好渠道了，放着不走的话大概是真不想挣钱
+
+*****
+
+####  JustW_3  
+##### 1126#       发表于 2022-9-17 22:35
+
+ 本帖最后由 JustW_3 于 2022-9-17 22:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529419&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-17 22:26</a>
+
+粥原矛盾有很多层次
+
+1、二游里粥游长年是排在前列的，一个领域里排名靠前的游戏之间有矛盾是正常的。日本 ...</blockquote>
+第二点也能体现两家公司风格的差异。鹰角起家于同人画师，至今同人画师都掌握着极高话语权，每个角色都公开负责画师，主要的几个画师可以把控从设定到剧情的很多方面，画师在微博推特等社区还有高活跃度，形成自己的小圈子（以前一些二游的“通病”）。米哈游则更类似cy那样对美术进行规范化工业化管理，不存在一个画师主导一个角色的现象，这让游戏风格有更好的统一性，也减小一些个别画师拉胯造成的后果，还有减少外行指导内行。前者觉得后者不够自由没有散司，后者觉得前者设圈规矩多破事更多。打个很不恰当的比方，这是美术和程序两种文化之间的冲突。
+
+*****
+
+####  绯夜殃雨  
+##### 1127#       发表于 2022-9-17 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529524&amp;ptid=2094448" target="_blank">ひびき 发表于 2022-9-17 22:32</a>
+
+这个圈子痛恨抄袭 x
+
+洋爹抄国人唯唯诺诺，国人抄洋爹重拳出击</blockquote>
+我觉得未必是绘圈崇洋媚外导致的。
+
+很大可能性是网络怎么宣传，他们就怎么信。大部分人还是跟着网络大势走的。
+
+就像有人做视频说国产游戏想要生原神必须死，圈外人一看这么多视频都是这个观点，大家都在支持，那么原神肯定罪大恶极。
+
+然后看到泛式这种敢做原神推广的，就觉得这人助纣为虐，一定要冲了他。
+
+就很多人反而是真的在某种正义感的驱使下去搞事的。但因为他们获得的信息非常片面，所以出现了误判。
+
+因为我其实就曾经是这样的一员过，所以我很理解他们的心情。
+
+*****
+
+####  topia  
+##### 1128#       发表于 2022-9-17 22:35
+
+吓人，这里是新的锁妖塔吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  首领  
+##### 1129#       发表于 2022-9-17 22:36
+
+不是需要打起来的理由
+
+是阻止你打起来的理由在网上不存在
+
+网络世界比real更real
+
+人生来好斗
+
+*****
+
+####  黄字  
+##### 1130#       发表于 2022-9-17 22:37
+
+<blockquote>哈里-谢顿 发表于 2022-9-17 22:30
+艹，这俩游戏我都玩过，压根都不是一类都吵得起来？
+
+相互比自己更高贵吗？看不懂
+</blockquote>
+哪一边觉得自己高贵很好看出来吧？哪怕是随便看过一两个月这两个游戏的讨论环境，或者看看本楼里某些卫兵的历史发言。
+
+*****
+
+####  紫木一姬  
+##### 1131#       发表于 2022-9-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529439&amp;ptid=2094448" target="_blank">starash 发表于 2022-9-17 22:28</a>
+只是聊聊过去的事情，已经不重要了。
+但我入坑原神时是真的好奇有什么游戏能吸引到如此之多的火力，好像 ...</blockquote>
+老问题，圈子大了总有傻逼，特别是米哈游养粉圈的能力比较强，kol吹的也凶，结果就养出了一帮整天拉踩的玩家和无脑护的玩家（比例可能不高，但是绝对数量不少），难免会在各种地方结怨
+矛盾扩大化之后谁对谁错大部分时间已经没有意义就是啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  kyonkoism  
+##### 1132#       发表于 2022-9-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529427&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 22:27</a>
+
+崩的动画基本就是整个剧情的收尾，路人看其实就看个光污染，所有的感情和情绪都是get不到的 ...</blockquote>
+慕名看过最后一课 薪炎永燃和查拉图斯特拉如是说，我感觉还是分动画吧，让一般路过二次元看最后一课+些许讲解这背后发生啥事后接着看薪炎永燃，情绪多半是会被调动起来的
+
+台词动作BGM带来的情绪调动甚至强到你不需要去认识其中的角色，只要知道这是主角，这是敌人，这是恩师就够，不难理解acg阅历不够深的年轻二次元跟着打完看完片直接变结晶崩批（
+
+但如果让人直接去看查拉图斯特拉如是说就看不太懂了，我还是加上弹幕和评论区科普才知道发生了啥这人在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈里-谢顿  
+##### 1133#       发表于 2022-9-17 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529556&amp;ptid=2094448" target="_blank">bgmilk 发表于 2022-9-17 22:33</a>
+
+你还提少前，当年少前玩家可是反粥主力军啊。手游圈子的争斗那可真是一门斗虫史（屎）书。顺 ...</blockquote>
+这也是我看不懂的地方，海猫和羽中是和平分手
+
+然后两边粉丝打得头破血流…
+
+我最早玩的是舰R，然后时代太久远，舰R的粉丝好多军佬，形成一个独特的圈子，也非常特别
+
+感觉国内粉圈都有点魔愣
+
+*****
+
+####  fireawayac  
+##### 1134#       发表于 2022-9-17 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529415&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:26</a>
+
+其实我还想说的一个理由是查成分风气日盛。从索任大战到撸塔大战再到今天的手游juan，查“成分” ...</blockquote>
+被小仙女痛骂的国男，又有什么有效手段来应对？当社区管理者对某些恶劣手段视若无睹甚至推波助澜的时候，就别想能看到什么良好的讨论氛围了。
+
+比如某个论坛的游戏区，里面的原神专楼可以随便痛骂原神玩家，你知道这个论坛管理者是什么态度，能想象出这个专楼是什么臭味了。
+
+*****
+
+####  绯夜殃雨  
+##### 1135#       发表于 2022-9-17 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529600&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:35</a>
+
+第二点也能体现两家公司风格的差异。鹰角起家于同人画师，至今同人画师都掌握着极高话语权，每个角色都公 ...</blockquote>
+前者的游戏由于公开画师，画师也积极参与同人，所以能获得画师粉丝的支持。
+
+比如微博按理说是女性活跃度更高的平台，但微博上连碧蓝这样的女性们深恶痛绝的标准媚宅游戏都能风评是正的。可见画师影响力对于游戏在社区的作用。
+
+而米哈游非常重视同人，不惜花重金买同人创作，却没能讨好到绘圈，我想主要原因还是早期抄袭节奏的负面影响太大了。
+
+*****
+
+####  火箭布雷器  
+##### 1136#       发表于 2022-9-17 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529166&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:11</a>
+
+可以从我的角度谈谈舟原玩家矛盾由来（虽然这已经超出动画专楼的范畴了）
+
+表面原因有很多，比如崩3节奏期 ...</blockquote>
+我倒希望这些女玩家哪儿来回哪儿去，nga原区现在已经变成一堆女人坐地排卵发情的地方了。
+
