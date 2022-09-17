@@ -8600,3 +8600,110 @@ bbb想割太君韭菜被炎上了而已<img src="https://static.saraba1st.com/im
 还是太干巴，就光坐在那没个踢腿啥的小动作</blockquote>
 这个的确比较少，成人角色基本没啥动作，小女孩角色会有个小幅度的摆腿动作
 
+
+
+*****
+
+####  尼卡·七浦  
+##### 891#       发表于 2022-9-17 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524832&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 16:43</a>
+有一说一，原神的loli角色，坐上椅子是有好几种不同动作的，动作特别可爱
+
+左边是直接一屁股崩上去， ...</blockquote>
+mhy有能力给每个角色设计小动作，但后来放弃了，还是标准模板香
+
+*****
+
+####  诚司  
+##### 892#       发表于 2022-9-17 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524771&amp;ptid=2094448" target="_blank">nejiang 发表于 2022-9-17 16:37</a>
+
+都说王之力8万8，我觉得这片大概率不卖盘，这片是mhy独资而不是制作委员会制度，卖盘谁来发行怎么全球发行 ...</blockquote>
+是制作委员会制度
+
+直播没说，但是通稿说的是奥创视界负责协力制作委员会
+
+*****
+
+####  starash  
+##### 893#       发表于 2022-9-17 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524880&amp;ptid=2094448" target="_blank">编木马者死户口 发表于 2022-9-17 16:47</a>
+
+还是太干巴，就光坐在那没个踢腿啥的小动作</blockquote>
+踢腿是有的，确实干巴。
+
+*****
+
+####  yanghuangu  
+##### 894#       发表于 2022-9-17 16:52
+
+主要现在细节太少，就“长篇动画”“长期项目合作”也太模糊了，用幕间PV的形式也是有可能的，卖不卖碟都难说
+
+*****
+
+####  MaxFOrder  
+##### 895#       发表于 2022-9-17 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524721&amp;ptid=2094448" target="_blank">ganeid 发表于 2022-9-17 16:33</a>
+
+原友行为非常好解释，年轻人喜欢一个东西的时候必然疯狂安利，并且觉得他喜欢的东西天下第一；
+
+原黑的行 ...</blockquote>
+台肯！
+
+其实我觉得要说起刻板印象中的魔怔原友形象，可能还是原黑网友们努力反串的时候表演出来的模样最为符合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monamona  
+##### 896#       发表于 2022-9-17 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524158&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-9-17 15:41</a>
+
+那最关键的化学系统物理系统怎么没有，抄都抄不像是吧😏</blockquote>
+米就是只有这种水平，抄塞尔达都抄不像，所以才让人觉得各种尬吹的原批们逆天啊
+
+*****
+
+####  尼卡·七浦  
+##### 897#       发表于 2022-9-17 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524932&amp;ptid=2094448" target="_blank">yanghuangu 发表于 2022-9-17 16:52</a>
+主要现在细节太少，就“长篇动画”“长期项目合作”也太模糊了，用幕间PV的形式也是有可能的，卖不卖碟都难 ...</blockquote>
+这点信息聊了900楼，开播了怕不是每集聊9000楼
+
+*****
+
+####  starash  
+##### 898#       发表于 2022-9-17 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524965&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-17 16:56</a>
+
+这点信息聊了900楼，开播了怕不是每集聊9000楼</blockquote>
+现在气氛还算平和，但感觉好像是给红黑大战找了个主战场。
+
+*****
+
+####  Dmitry  
+##### 899#       发表于 2022-9-17 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524422&amp;ptid=2094448" target="_blank">快乐好难123 发表于 2022-09-17 16:05:17</a>
+锁妖塔出来的不会不知道椅子哥是你队友吧</blockquote>倭叩都是这样的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  雷攻姛人  
+##### 900#       发表于 2022-9-17 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524721&amp;ptid=2094448" target="_blank">ganeid 发表于 2022-9-17 16:33</a>
+
+原友行为非常好解释，年轻人喜欢一个东西的时候必然疯狂安利，并且觉得他喜欢的东西天下第一；
+
+原黑的行 ...</blockquote>
+其实一开始我也相信这套说辞的，毕竟很经典的刻板印象。但自从看到游戏的年龄层统计、不同声音的社区来源和行为模式后，我觉得会不会原友才是大龄二次元，原黑才是在网络社区氛围恶化后培养出的新生代（尤其是贴吧、微博）
+
