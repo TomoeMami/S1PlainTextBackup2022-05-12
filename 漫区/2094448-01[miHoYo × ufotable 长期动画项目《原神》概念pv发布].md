@@ -11476,3 +11476,135 @@ NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句�
  冲水是啥意思啊？顺带也还想问马马耶夫岗是啥意思（</blockquote>
 冲水就是删楼，马马耶夫岗是斯大林格勒保卫战里一个苏德反复争夺的高地，比上甘岭还激烈。
 
+
+
+*****
+
+####  kyonkoism  
+##### 1150#       发表于 2022-9-17 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529944&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-17 22:49</a>
+
+感觉这帖子越来越跑题了，还是看看今天新出的绝区零pv吧，家人们。那动画做得真是不错 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">看了，表情特别灵动，看着就让人觉得开心
+
+*****
+
+####  fireawayac  
+##### 1151#       发表于 2022-9-17 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529384&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 22:25</a>
+
+看起来2019年米哈游在豪赌啊</blockquote>
+所以我从来不信什么黑红说。
+
+第一，PV发布到原神公测隔了一年多，任何炒作都是为了迅速变现流量，一年多的时间要么流量被遗忘，要么黑得深入人心，都只有害处没有益处。
+
+第二，这种压上整个公司的大项目，输了不说破产，至少也是一蹶不振，那么宣发策略肯定求稳，越是对自己游戏质量有自信，越不会弄险给自己找麻烦。
+
+*****
+
+####  starash  
+##### 1152#       发表于 2022-9-17 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529944&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-17 22:49</a>
+ 感觉这帖子越来越跑题了，还是看看今天新出的绝区零pv吧，家人们。那动画做得真是不错 ...</blockquote>
+你这不更是跑题么。
+
+*****
+
+####  kyonkoism  
+##### 1153#       发表于 2022-9-17 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529945&amp;ptid=2094448" target="_blank">starash 发表于 2022-9-17 22:49</a>
+
+冲水就是删楼，马马耶夫岗是斯大林格勒保卫战里一个苏德反复争夺的高地，比上甘岭还激烈。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">谢科普，但相比于游戏区一边倒的倒黑泥锁妖塔，漫区能交流的温和派太多了，这根本不像马马耶夫岗嘛
+
+*****
+
+####  (么么哒)  
+##### 1154#       发表于 2022-9-17 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529944&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-17 22:49</a>
+
+感觉这帖子越来越跑题了，还是看看今天新出的绝区零pv吧，家人们。那动画做得真是不错 ...</blockquote>
+绝区零的评价是这动画居然能打游戏
+
+*****
+
+####  江戸前ルナ  
+##### 1155#       发表于 2022-9-17 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529750&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 22:41</a>
+
+"另外我针对的就一个当年出片的情况，然后为什么反驳回复的都是发散之后各种的人生百态呢？"</blockquote>
+哦。不反驳我的问题还问我为什么不可以发散，但我还很奇怪为什么不反驳我问题而去发散呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+我前面提了个当时的情况，然后回复的左右而言他。
+
+等于
+
+ “先不说你的话对与错，你们米卫兵可是说过这个那个”这种发散性回复吗？
+
+我还没说过这句话呢，然后阁下就帮我说帮我下判定游戏区讨论的帖子里所讨论的言论的性质以及讨论的坛友的内容和性质了。发散到这里逻辑我跟不上阁下了呢。S1也没噤言，希望阁下自己去游戏区那里下定义呢。
+
+*****
+
+####  fireawayac  
+##### 1156#       发表于 2022-9-17 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529860&amp;ptid=2094448" target="_blank">砂雪 发表于 2022-9-17 22:46</a>
+
+绝大部分楼层都毫无营养，这楼之后定期冲水。</blockquote>
+真希望游戏区原神专楼也有您这样认真负责的版主呀。
+
+*****
+
+####  kyo96127  
+##### 1157#       发表于 2022-9-17 22:57
+
+原神玩家这么讨厌粥友就不得不提NGA的几次RPG事件了，比如着名的“痰友事件”，一件漏洞百出的RPG帖子，舟版用户在帖子里疯狂攻击原神玩家2000多楼。
+
+*****
+
+####  小红飞翼  
+##### 1158#       发表于 2022-9-17 22:59
+
+看了这楼 原能活过两年也是奇迹了
+
+*****
+
+####  绯夜殃雨  
+##### 1159#       发表于 2022-9-17 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529579&amp;ptid=2094448" target="_blank">纸皮 发表于 2022-9-17 22:34</a>
+
+端详了一会儿卡池流水，不论是从剧情的有意思还是从更挣钱来说肯定是做船新剧情更好且更赚，二次元3D游戏本 ...</blockquote>
+马娘第二季的神迹证明了动画做好了，对收入是相辅相成的。
+
+*****
+
+####  黄字  
+##### 1160#       发表于 2022-9-17 23:00
+
+说实话ufo做游戏改几乎就没好过，更是没接过什么剧情好的游戏改，ubw可能是剧情最好的了？也做的一坨屎。原到现在的剧情见ubwhf一根毛都比不上。至于战斗，这游戏甚至没什么靠谱的战斗分镜给动画制作借鉴，米哈游自己一做过场也还是到处抄袭的层次。除了音乐你就挑不出一个这动画能成功的点，再看看fgo两个动画改音乐都拉了，所以你连音乐都信不过。
+
+*****
+
+####  iopkliopkl  
+##### 1161#       发表于 2022-9-17 23:00
+
+我最开始玩舟的，舟就是很典型的让我觉得你赚了那么多钱都花哪去了的游戏，所以后来就弃了，原的话开始确实挺无聊的，不过后来每次大版本更新都挺实在的，比舟这种类型的算是良心多了
+
+*****
+
+####  WindBlade  
+##### 1162#       发表于 2022-9-17 23:00
+
+<blockquote>绯夜殃雨 发表于 2022-9-17 22:40
+前者的游戏由于公开画师，画师也积极参与同人，所以能获得画师粉丝的支持。
+
+比如微博按理说是女性活跃度更 ...</blockquote>
+这个的原因是米哈游目前为止没在国内发商单，看上的画师基本都直接收纳，同时基本网上也见不到人了，这跟微博办公的小画家们的怎么可能不打起来？
+
