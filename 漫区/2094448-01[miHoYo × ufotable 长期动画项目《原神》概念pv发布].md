@@ -12055,3 +12055,105 @@ S1关于原最出圈的帖子其实是“KFC联动让外国人意识到疫情被
 https://www.bilibili.com/video/av900670514</blockquote>
 这期感觉很赶，也就EVA情书那段有点感觉……
 
+
+
+*****
+
+####  kyonkoism  
+##### 1209#       发表于 2022-9-17 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530911&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 23:30</a>
+
+不要对日本人有这种期待啊，不管干什么反正都是那套流程，干什么都没用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实在不行，台长不说了么，还有老索兜底，索尼给点作用吧索尼
+
+*****
+
+####  大江户战士  
+##### 1210#       发表于 2022-9-17 23:32
+
+○POP那里喷出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 1211#       发表于 2022-9-17 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530934&amp;ptid=2094448" target="_blank">kyonkoism 发表于 2022-9-17 23:31</a>
+
+实在不行，台长不说了么，还有老索兜底，索尼给点作用吧索尼</blockquote>
+fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无论SIE还是游戏都和SME还是竞争对手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisaka  
+##### 1212#       发表于 2022-9-17 23:36
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  kyonkoism  
+##### 1213#       发表于 2022-9-17 23:36
+
+ 本帖最后由 kyonkoism 于 2022-9-17 23:37 编辑 
+
+笑死，最后那段EVA我感受到真情实感了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+讲道理最后这个阵容真能成，别说10亿，20亿大伟哥都能掏出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cyberalogo  
+##### 1214#       发表于 2022-9-17 23:37
+
+旅行者兄妹身边没有派蒙，派蒙是通过第一人视角发现的。
+
+押一手动画版主角是全新的人物，独立于游戏故事线之外，以旁观者的角度参与各种重要的事件，在旅行者看不到的地方发挥作用。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yujiacyl  
+##### 1215#       发表于 2022-9-17 23:37
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  fault  
+##### 1216#       发表于 2022-9-17 23:37
+
+好家伙，一天40多页<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大江户战士  
+##### 1217#       发表于 2022-9-17 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530934&amp;ptid=2094448" target="_blank">kyonkoism 发表于 2022-9-17 23:31</a>
+
+实在不行，台长不说了么，还有老索兜底，索尼给点作用吧索尼</blockquote>
+索尼不一定参与进来，这只是台长在口嗨而已
+
+*****
+
+####  黄字  
+##### 1218#       发表于 2022-9-17 23:38
+
+<blockquote>kyonkoism 发表于 2022-9-17 23:29
+说实话一个玩意的影响力如果足够大，我相信是能够颠覆业界里规则的，尤其是人脉这块，给几乎可以算 ...</blockquote>
+你猜猜日本动画界是怎么对待顶级ip马里奥塞尔达和最终幻想的？几十年了从来没好好合作过。
+
+*****
+
+####  MuramasaSP  
+##### 1219#       发表于 2022-9-17 23:39
+
+话说原作剧情不好的手游改动画上限是哪部作品？应该算是动物朋友吧，靠导演自由发挥的。少女歌剧虽然有手游，但是算“多媒体企划”，也是随导演自由发挥的。按照原作拍肯定是死路一条。
+
+至于原作剧情好的手游改动画，好像不存在剧情好的手游，fgo第七章本来也不咋地。
+
+扩大到游戏改动画，其实原作剧情好没什么用，rewrite动画烂到了一定地步，muv和yuno我没玩过，据说也不行。风评不错的只有cl、石之门和fsn（fsn其实大众评价很高，我本身觉得hf做的非常好），phantom还可以但是不够爆款。
+
+也就是说原神动画真正的活路是赌一把，找个对原神世界观有兴趣的导演，然后以他为主随他的意思拍。
+
