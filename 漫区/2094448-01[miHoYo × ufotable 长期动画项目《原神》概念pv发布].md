@@ -6949,3 +6949,58 @@ pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两
 
 吐槽一下，好几个日本主播都认不出飞碟社
 
+
+
+*****
+
+####  MaxFOrder  
+##### 742#       发表于 2022-9-17 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521688&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-17 11:59</a>
+
+吐槽一下，好几个日本主播都认不出飞碟社</blockquote>
+日本主播（包括很大一部分皮套人）里面二刺螈浓度真不见得有多高
+
+*****
+
+####  JustW  
+##### 743#         楼主| 发表于 2022-9-17 12:03
+
+【【原神/熟肉/meso】泪流满面！米将军看到原神动画化PV激动到当场泪奔-哔哩哔哩】 https://b23.tv/r2cK5sO
+
+【【原神/熟肉】日本大叔Zetsu看原神动画化+音乐会预告 主播先坐下不要激动-哔哩哔哩】 https://b23.tv/PUSlFJE
+
+【【原神/熟肉】猫猫头看七圣召唤和原神动画化PV乐开了花-哔哩哔哩】 https://b23.tv/fNuooh9
+
+【【原神熟肉/OkCode/国外氪佬】氪佬看到原神动画化的预告-哔哩哔哩】 https://b23.tv/K8Rgoft
+
+【【原神/熟肉】垂死梦中惊坐起，郡道老师看《原神》动画化概念PV大脑过载-哔哩哔哩】 https://b23.tv/pNBkTO4
+
+【【原神/熟肉】前歌剧演唱家Marco小哥欣赏原神动画PV音乐-哔哩哔哩】 https://b23.tv/SXaONcc
+
+【【原神/熟肉】彻底疯狂！！Bran看《原神》动画长期项目启动PV-哔哩哔哩】 https://b23.tv/oakDzv6
+
+【【原神/熟肉】sevy小姐姐看原神动画化，激动到捶桌-哔哩哔哩】 https://b23.tv/abRUeKR
+
+↑一些reaction视频收集
+
+*****
+
+####  萝莉的伙伴  
+##### 744#       发表于 2022-9-17 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521623&amp;ptid=2094448" target="_blank">我的爱是订书机 发表于 2022-09-17 11:55:19</a>
+角色不都是能活很多年的神吗</blockquote>我说里面的自机角色啊，有神是不假，不还有不是神的，像可莉早柚这些，前传怕不是还没出生，但动画里是肯定有的吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  小小雪空  
+##### 745#       发表于 2022-9-17 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521679&amp;ptid=2094448" target="_blank">七征心 发表于 2022-9-17 11:58</a>
+
+这去年哪一期啊，想不起来，找不到啦。虽然这句话很有印象2333</blockquote>
+[TV2] 2021动漫吐槽大会AnimeRoast（上半场）
+
