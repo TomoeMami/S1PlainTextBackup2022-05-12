@@ -12940,3 +12940,69 @@ fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  theworld  
+##### 1290#       发表于 2022-9-18 01:41
+
+<img src="https://img.saraba1st.com/forum/202209/18/014123tg47ra5q6dd05lyq.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220918014112.jpg</strong> (96.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-18 01:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">一万多人投票最后五五开
+
+
+
+*****
+
+####  五性八卦  
+##### 1291#       发表于 2022-9-18 01:43
+
+原神这个动画不可能做真日常。
+
+崩坏三是已经做过了很多日常搞笑动画的，女武神的餐桌两季，人偶学院，或许还有，如果原神也是做这种内容，那完全没必要去找ufo，用他们熟悉的人更好。
+
+*****
+
+####  小小雪空  
+##### 1292#       发表于 2022-9-18 01:46
+
+ 本帖最后由 小小雪空 于 2022-9-18 01:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532840&amp;ptid=2094448" target="_blank">theworld 发表于 2022-9-18 01:41</a>
+
+一万多人投票最后五五开</blockquote>
+我不信，这绝对是平衡教派的阴谋，一定是有人看那边人多就投人少的那一边，不可能50/50这么完整的……×
+
+补充：上推看了一下，希望女主角的人最终50.1%，赢！
+
+*****
+
+####  五性八卦  
+##### 1293#       发表于 2022-9-18 01:47
+
+我是希望动画里能多点好看的战斗。我自己是有两年没看动画了，上一个看的还是东离剑游纪，就是因为他们打的真的好看。
+
+其实，也是因为我对所有动画的剧情都没什么期望了，失望的次数太多，现在能有个视觉效果看看就可以了。
+
+*****
+
+####  ReginaldMorgan  
+##### 1294#       发表于 2022-9-18 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525802&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-17 18:14</a>
+就结果而言，国产二次元手游，甚至扩大到手游和国产游戏这个范畴，原神是绝对的划时代作品，国产游戏被划分 ...</blockquote>
+反正我自始至终的观点都是，原神的问题多如牛毛，但是这不关键。它反映出来的最大的问题是国产游戏厂商百分之九十五以上都是废物，二游厂商百分之百都是废物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nagoya  
+##### 1295#       发表于 2022-9-18 01:48
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
