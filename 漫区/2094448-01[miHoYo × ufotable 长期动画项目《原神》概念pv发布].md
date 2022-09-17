@@ -10171,3 +10171,215 @@ nga来说，其实大部分恨意都是对nga版务管理失能的迁怒罢了�
 当年国产垃圾骗钱游戏不可胜数，但突然原神成了垃圾代表，人人得而诛之，是让我非常疑惑的。我记得之前贪玩 ...</blockquote>
 贪玩蓝月又不会大赚特赚某些人养爹的钱，赚的都是他们最痛恨的同胞的钱，他们夸还来不及呢怎么会去记恨
 
+
+
+*****
+
+####  whzfjk  
+##### 1037#       发表于 2022-9-17 21:41
+
+<blockquote>大江户战士 发表于 2022-9-17 21:40
+说起来抄袭和黑子，十几年前的cs和cf也差不多
+
+当年贴吧一个劲嘲讽cf小学生，“抄袭cf”的梗现在还时不时有 ...</blockquote>
+赛尔号反杀融合了吗（
+
+*****
+
+####  marquez  
+##### 1038#       发表于 2022-9-17 21:42
+
+35页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 1039#       发表于 2022-9-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528694&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 22:40</a>
+因为就是在nga搞起来的，冲击崩3版，互相反串造谣之类的，确实有仇，说到底是nga的问题
+
+不过基本还是在 ...</blockquote>
+又又反米可以理解，和大眼吵起来又是什么情况？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 1040#       发表于 2022-9-17 21:43
+
+稍稍看了一下飞碟桌的履历发现他们一直以来都跟“游戏”关系密切啊
+
+从07年诞生了“学美线”的学美向前冲开始展露头角之后，后续所有干过的项目里，只有空之境界系列和鬼灭两个IP（和一个超冷门的剧场版 小魔女姐妹悠悠与妮妮）不是游戏
+
+其他所有的作品，fate、情热、噬神者、刀剑、FGO、魔法使之夜、东方、原神，甚至难产的Girl's Work，全是游戏相关
+
+更何况人家本来就常年在接给游戏打工的活：
+
+<img src="https://img.saraba1st.com/forum/202209/17/214111sumuuzdv5socss5u.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220917213325.png</strong> (69.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 21:41 上传
+
+*****
+
+####  诚司  
+##### 1041#       发表于 2022-9-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528740&amp;ptid=2094448" target="_blank">smdzh2 发表于 2022-9-17 21:43</a>
+
+又又反米可以理解，和大眼吵起来又是什么情况？</blockquote>
+不算吵，就是普通地互相黑的程度
+
+*****
+
+####  绯夜殃雨  
+##### 1042#       发表于 2022-9-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528501&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-17 21:27</a>
+
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+恨，当然不是无缘无故的。很多人小看了网络KOL的影响力。
+
+比如stn快报、瓶子君152这种几百万粉丝的，他们带头冲锋，自然会对他们的粉丝产生影响。很多看这种节目的人都非常信这些UP主，UP主说什么他们跟什么。
+
+至于stn快报、瓶子君152这些人为什么要带头冲锋，就是另外一个问题了。
+
+*****
+
+####  yujiacyl  
+##### 1043#       发表于 2022-9-17 21:45
+
+怎么歪到另一个游戏去了，我要拨动这个马桶搋子拯救这辆电车啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 1044#       发表于 2022-9-17 21:45
+
+<blockquote>蜜瓜包 发表于 2022-9-17 21:27
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+游戏区那边的原点是穷人老实人被薅羊毛不爽（穷与老实的概念是相对的），本来mhy在崩上就小煎炒不断。
+
+*****
+
+####  名津流  
+##### 1045#       发表于 2022-9-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528551&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 21:29</a>
+
+粥反正当初确实也是统治过二次元圈子的，会产生冲突也不奇怪
+
+不过粥原对撞本身就是那阵子整个长期 ...</blockquote>
+粥有统治过二次元圈子的时期吗？
+
+*****
+
+####  卢迪乌斯  
+##### 1046#       发表于 2022-9-17 21:46
+
+<blockquote>大江户战士 发表于 2022-9-17 21:40
+说起来抄袭和黑子，十几年前的cs和cf也差不多
+
+当年贴吧一个劲嘲讽cf小学生，cf那边也是各种爆典，“抄袭cf ...</blockquote>
+不一样，阵营都要有个组织核心的，就像刀撸，双方平时骂完，是要靠自家游戏回来补充信仰的，可米黑这种……
+
+*****
+
+####  黄字  
+##### 1047#       发表于 2022-9-17 21:47
+
+ 本帖最后由 黄字 于 2022-9-17 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528551&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 21:29</a>
+
+粥反正当初确实也是统治过二次元圈子的，会产生冲突也不奇怪
+
+不过粥原对撞本身就是那阵子整个长期 ...</blockquote>
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者
+
+新中产 理想蔚来 华为  国产电视剧和院线大片 偶尔玩PC或主机游戏 不一定爱御三家  鬼灭来打奥特曼 某游爱好者
+
+大概就是这两个游戏氪金主力，几乎是天然对立，你也可以说是某一个更下沉。
+
+另外有一个关键是前者画像的人群这些年消费水平不一定有更下沉的高了，甚至文化素养。
+
+*****
+
+####  kletka  
+##### 1048#       发表于 2022-9-17 21:48
+
+原神的热度，本身代表着一种话语权的蚕食，所谓的ky，骂玩家，其实都是对一个热度超出自己舒适圈的群体是排斥应激反应
+
+是一种因兴趣和社区环境造成的排他情绪
+
+和慕强类似，只是慕强是看到热度，就去追捧
+
+而这种排他，是只要见到不属于自己圈子的东西，就想尽办法排他
+
+当初还是日漫火热时期，那些闭嘴番，就是引动了一部分人的排斥心理，不是因为质量如何，而是他们天然的对大热的东西，反感，不信任，排他
+
+*****
+
+####  小小雪空  
+##### 1049#       发表于 2022-9-17 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528787&amp;ptid=2094448" target="_blank">卢迪乌斯 发表于 2022-9-17 21:46</a>
+
+不一样，阵营都要有个组织核心的，就像刀撸，双方平时骂完，是要靠自家游戏回来补充信仰的，可米黑这种… ...</blockquote>
+信仰混乱和乐子啊，这个世界需要的不是和平，我悟了，任何组织都是有害的，本身没有存在的必要……×
+
+*****
+
+####  江戸前ルナ  
+##### 1050#       发表于 2022-9-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528501&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-17 21:27</a>
+
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+呵呵，那为什么你不看内容也不去反驳呢？里面你所说“黑”的内容就是喷各种“典”的言论，而这些言论又是怎么来的呢？
+
+啊对了，还有一个事，比如那里转的最大的“言论”来源NGA，为什么在NGA那里没人“能”反喷原，而只能在这里黑呢？
+
+
+
+*****
+
+####  Ronu  
+##### 1051#       发表于 2022-9-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528780&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-17 21:45</a>
+
+粥有统治过二次元圈子的时期吗？</blockquote>
+说得有点夸张了
+
+算是横空出世了一个算是高密度的手游玩家社区吧，之前没有那么密集都比较散
+
+*****
+
+####  neroyuzhang  
+##### 1052#       发表于 2022-9-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528807&amp;ptid=2094448" target="_blank">黄字 发表于 2022-9-17 21:47</a>
+
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我的爱是订书机  
+##### 1053#       发表于 2022-9-17 21:50
+
+<blockquote>黄字 发表于 2022-9-17 21:47
+给你两个画像：
+
+小布尔乔亚 留学生 女白领 FF14玩家 偶尔玩主机热爱任索 美剧日剧 扳机骨头 某游爱好者
+
+</blockquote>
+你这堆关键词跟这两游戏的玩家，不能说是零重合度，只能说是毫不相关
+
