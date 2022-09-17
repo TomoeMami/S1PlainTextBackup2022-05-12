@@ -11808,3 +11808,250 @@ S1关于原最出圈的帖子其实是“KFC联动让外国人意识到疫情被
 比悠星靠谱吧，明日方舟 十月份的动画我看就是一个寄</blockquote>
 那玩意属于悠星职员在我面前吹我就不信的，妥妥的要寄
 
+
+
+*****
+
+####  Hqchan  
+##### 1185#       发表于 2022-9-17 23:20
+
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动画是哥哥，日常的主角是妹妹吧
+
+按这么说做成前传的话主角就会是妹妹了吧
+
+*****
+
+####  绯夜殃雨  
+##### 1186#       发表于 2022-9-17 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530603&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 23:16</a>
+
+讲真，虽然我不玩，但绝对防御利维坦都看得很开心，要求不要太高好吧</blockquote>
+我情热传说都能看得津津有味。只要能超过这个，我觉得就够了。
+
+*****
+
+####  封印的右手  
+##### 1187#       发表于 2022-9-17 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529999&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-17 22:52</a>
+所以我从来不信什么黑红说。
+
+第一，PV发布到原神公测隔了一年多，任何炒作都是为了迅速变现流量，一年多 ...</blockquote>
+本来就是，黑红可能确实有帮助了营销 但那是结果反推，一个稳定发展的正常公司，谁会拿黑红营销来赌公司拿整个身家投入的项目?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chaucerling  
+##### 1188#       发表于 2022-9-17 23:22
+
+天不生原神，万古如长夜，一天就把v区反超了
+
+*****
+
+####  封印的右手  
+##### 1189#       发表于 2022-9-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530693&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:20</a>
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动 ...</blockquote>
+游戏宣传pv一般都是哥哥为主角 妹妹是深渊一派
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  诚司  
+##### 1190#       发表于 2022-9-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530693&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:20</a>
+
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动 ...</blockquote>
+前传就没有派蒙了，一个拿来当游戏图标的角色再动画里不存在那还行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 1191#       发表于 2022-9-17 23:23
+
+中日合作、以及同类手游改就没大成功的案例，我是已经把期望调的很低了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 1192#       发表于 2022-9-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530693&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:20</a>
+
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动 ...</blockquote>
+官方这里，空莹的待遇确实和FGO一样，咕哒夫都是作为活动宣传orPV演示的玩家代表，咕哒子则是民间最喜欢玩梗和二创出场率最高的角色
+
+所以我是觉得动画超大概率还是空主视角
+
+*****
+
+####  sjbssd  
+##### 1193#       发表于 2022-9-17 23:23
+
+所以说可以好好聊动画了是吗？我盲猜一手动画的剧情和pv关系不大
+
+*****
+
+####  绯夜殃雨  
+##### 1194#       发表于 2022-9-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530693&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:20</a>
+
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动 ...</blockquote>
+主角肯定是哥哥。原神所有官方pv里主角都是哥哥。这是正史。
+
+比如足迹PV里，戴因说我还记得她喜欢那朵花，都是以反主是妹妹的视角说的。
+
+*****
+
+####  MaxFOrder  
+##### 1195#       发表于 2022-9-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530693&amp;ptid=2094448" target="_blank">Hqchan 发表于 2022-9-17 23:20</a>
+
+请问下楼友知道现在动画主角是哥哥还是妹妹了吗。
+
+印象里原PV的默认主角是哥哥来着，不会跟FGO一样，主线动 ...</blockquote>
+没消息，但有很大可能是哥哥，mhy对哥哥有着近乎魔怔的执着，尽管70%的玩家选了妹妹做主角但还是没用
+
+*****
+
+####  elflie  
+##### 1196#       发表于 2022-9-17 23:24
+
+我觉得这个pv不需要分析太多，实际成品跟pv可能一点关系都没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisaka  
+##### 1197#       发表于 2022-9-17 23:26
+
+嗨嗨嗨，nga手游版都快成op聚集地了都，敢在手游版说原神不好就一定会被封号甚至锁号，甚至反驳op也是同罪，那简直是天堂一般的地方。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  smdzh2  
+##### 1198#       发表于 2022-9-17 23:26
+
+隔壁撅区零演示用的也是哥哥，倾向已经很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  封印的右手  
+##### 1199#       发表于 2022-9-17 23:26
+
+刚刚看了绝区零这播片，感觉比原神更适合做动画啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  幽远ghofar  
+##### 1200#       发表于 2022-9-17 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522037&amp;ptid=2094448" target="_blank">751984871 发表于 2022-9-17 12:24</a>
+
+其实，感觉在扳机一片叫好的这个节骨眼要是宣布是扳机，各网站会比宣布是飞碟还爆炸。（
+
+主要飞碟此 ...</blockquote>
+别闹了，扳机那种骨子里的疯逼cult味儿根本不适合原神的风格
+
+以后ZZZ能动画化找扳机社还差不多
+
+
+
+*****
+
+####  fireawayac  
+##### 1201#       发表于 2022-9-17 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530764&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-17 23:23</a>
+
+没消息，但有很大可能是哥哥，mhy对哥哥有着近乎魔怔的执着，尽管70%的玩家选了妹妹做主角但还是没用 ...</blockquote>
+也不能说执着吧，应该是原本的设定如此。就像刺客信条奥德赛，虽然能选男主或女主，但官方正史是卡姐。
+
+*****
+
+####  unlimited_blade  
+##### 1202#       发表于 2022-9-17 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530746&amp;ptid=2094448" target="_blank">封印的右手 发表于 2022-9-17 23:23</a>
+游戏宣传pv一般都是哥哥为主角 妹妹是深渊一派
+
+—— 来自 S1Fun</blockquote>
+考虑到日配男女主角声优，我猜二选一的话会上男的
+
+—— 来自 Xiaomi 2201122C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starash  
+##### 1203#       发表于 2022-9-17 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530431&amp;ptid=2094448" target="_blank">三杉酸宁碱 发表于 2022-9-17 23:08</a>
+ https://www.bilibili.com/video/av900670514</blockquote>
+现糊了副地图是吧
+
+*****
+
+####  weary11  
+##### 1204#       发表于 2022-9-17 23:28
+
+剧情不是说是上一轮回 兄妹一起旅行么
+
+游戏剧情的现在是兄妹要跑路被空之执政拦下来没跑掉
+
+*****
+
+####  kyonkoism  
+##### 1205#       发表于 2022-9-17 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说实话一个玩意的影响力如果足够大，我相信是能够颠覆业界里规则的，尤其是人脉这块，给几乎可以算是世界第一手游IP打工可是很好的履历，这个时候打2万一卡我层层外包出去能赚多少的小算盘就太没有大局观了
+
+而且天冲和碧蓝航线共同孕育出来的灾难动画也是个很醒目的警告，这种大项目不大可能重蹈覆辙
+
+*****
+
+####  卡蓮  
+##### 1206#       发表于 2022-9-17 23:29
+
+概念PV只是概念啦，不能当真的
+
+*****
+
+####  诚司  
+##### 1207#       发表于 2022-9-17 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530896&amp;ptid=2094448" target="_blank">kyonkoism 发表于 2022-9-17 23:29</a>
+
+说实话一个玩意的影响力如果足够大，我相信是能够颠覆业界里规则的，尤其是人脉这块，给几乎可以算 ...</blockquote>
+不要对日本人有这种期待啊，不管干什么反正都是那套流程，干什么都没用
+
+*****
+
+####  小小雪空  
+##### 1208#       发表于 2022-9-17 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530431&amp;ptid=2094448" target="_blank">三杉酸宁碱 发表于 2022-9-17 23:08</a>
+
+https://www.bilibili.com/video/av900670514</blockquote>
+这期感觉很赶，也就EVA情书那段有点感觉……
+
