@@ -8153,3 +8153,44 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 
 其实碟片对原神来说真的不算多重要，毕竟就算卖到一卷20w销量，算下来可能还没有一个星期公司收到的流水多，动画主要是作为人气扩充的手段
 
+
+
+*****
+
+####  we89623  
+##### 852#       发表于 2022-9-17 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523275&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:09</a>
+
+这倒是，我关注过的色图大佬好多人都画过原神图了</blockquote>
+只关心色图那眼里只有色图，其实原神女性向二创也非常非常多
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 853#       发表于 2022-9-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523937&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-17 15:17</a>
+
+我也觉得进游戏头几分钟就能感受到这游戏综合完成度很高，综合的卖相是真的好
+
+我一年多前第一次进游戏的 ...</blockquote>
+天上的云和地上的影子无关，我觉得这个效果之所以存在是因为botw有，那O也搞一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  穷且坚强着  
+##### 854#       发表于 2022-9-17 15:39
+
+德不配位2.0
+
+*****
+
+####  诚司  
+##### 855#       发表于 2022-9-17 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523974&amp;ptid=2094448" target="_blank">wxhcr 发表于 2022-9-17 15:23</a>
+
+必胜客哪有那么难吃，有些人天天把难吃挂嘴上，搞不懂。</blockquote>
+因为真的难吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
