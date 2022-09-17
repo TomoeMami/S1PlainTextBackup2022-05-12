@@ -6163,3 +6163,29 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 </blockquote>
 你说的 游戏改和小说改加起来才是原创的数量。我理解的是 原创＝小说改+游戏改，重新定义什么是原创。
 
+
+
+*****
+
+####  月夜凝雪  
+##### 665#       发表于 2022-9-17 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519407&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 07:49</a>
+你说的 游戏改和小说改加起来才是原创的数量。我理解的是 原创＝小说改+游戏改，重新定义什么是原创。 ...</blockquote>
+十月漫改31，原创16，小说9，游戏7
+
+只是这个月数量正巧而已
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  wxhcr  
+##### 666#       发表于 2022-9-17 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517614&amp;ptid=2094448" target="_blank">we89623 发表于 2022-9-16 23:58</a>
+你还是不了解老爷啊</blockquote>
+这家伙一开始说一纸禁令如何如何，现在又无权这这那那
+
+就是一搅屎棍。
+
