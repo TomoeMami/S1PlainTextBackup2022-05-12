@@ -7466,3 +7466,105 @@ ufo做动画基本是社内人员，哪里还看什么人脉不人脉的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">啥情况，一个消息直接27页
 
+
+
+*****
+
+####  jie2000  
+##### 789#       发表于 2022-9-17 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522995&amp;ptid=2094448" target="_blank">bloodalone 发表于 2022-9-17 13:37</a>
+崩崩还在各种联动，推测是跟别人联动要搞3d建模，自己吃亏，索性就不搞了 ...</blockquote>
+然后强度还不好搞，整个吉祥物合作方不满意，整个T1且不说影响自己角色的流水，就mhy这种活动过期不复刻的习惯，后入坑的直接缺个强力角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  show1hand  
+##### 790#       发表于 2022-9-17 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521328&amp;ptid=2094448" target="_blank">朔方原的星 发表于 2022-9-17 11:37</a>
+
+今个漫区流量这么高，我一开始以为是因为边缘行者，后来觉得是因为广告哥？点进来一看原来是因为圆神，彳亍 ...</blockquote>
+这个太子是以前的石立太一吗，就记得经常剪作画mad，几年前只是觉得是深度作豚，现在这么抽象了呀。
+
+*****
+
+####  NaAgfykp  
+##### 791#       发表于 2022-9-17 13:44
+
+其实我觉得要是O能让khara接这个活的话乐子会更大。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  武男  
+##### 792#       发表于 2022-9-17 13:47
+
+有王之力商法嘛？不过制作上面应该不用担心什么。。
+
+*****
+
+####  哈里-谢顿  
+##### 793#       发表于 2022-9-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517036&amp;ptid=2094448" target="_blank">用户名就算了吧 发表于 2022-9-16 23:15</a>
+
+b站评论在科普UFO是做过鬼灭的，666，还有说啥，知道UFO制作过空之境界和fate都是老人了？不是吧，就这？那 ...</blockquote>
+双联A泥潭评价不错的，我十年前来的时候可是拿双联A和Fz比，双联A还是空镜有泥塑动画，优抚桌早年还是有点文艺水准，不过好像这批人全跑了
+
+*****
+
+####  kletka  
+##### 794#       发表于 2022-9-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522037&amp;ptid=2094448" target="_blank">751984871 发表于 2022-9-17 12:24</a>
+
+其实，感觉在扳机一片叫好的这个节骨眼要是宣布是扳机，各网站会比宣布是飞碟还爆炸。（
+
+主要飞碟此前和国 ...</blockquote>
+感觉扳机的风格更适合做三蹦子或者绝区零
+
+*****
+
+####  武男  
+##### 795#       发表于 2022-9-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522920&amp;ptid=2094448" target="_blank">扶扶老奶奶 发表于 2022-9-17 13:29</a>
+
+才是个企划公布漫区就压着外野打，这要是真开播那得啥样啊，真不敢想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫区最好的时代是国家队的时期，每一话基本上两百页起步。。
+
+*****
+
+####  cloudcc  
+##### 796#       发表于 2022-9-17 13:49
+
+<img src="https://img.saraba1st.com/forum/202209/17/134856uln5sv17o7721pc1.jpg" referrerpolicy="no-referrer">
+
+<strong>-716938a6fa3e3f38.jpg</strong> (71.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 13:48 上传
+
+*****
+
+####  Mc凉月奏酱  
+##### 797#       发表于 2022-9-17 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523006&amp;ptid=2094448" target="_blank">三合一出现 发表于 2022-9-17 13:39</a>
+
+啥情况，一个消息直接27页</blockquote>
+毕竟是流量最高的游戏
+
+*****
+
+####  诚司  
+##### 798#       发表于 2022-9-17 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523093&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 13:48</a>
+
+双联A泥潭评价不错的，我十年前来的时候可是拿双联A和Fz比，双联A还是空镜有泥塑动画，优抚桌早年还是有 ...</blockquote>
+fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什么垃圾，也配和双恋A比<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
