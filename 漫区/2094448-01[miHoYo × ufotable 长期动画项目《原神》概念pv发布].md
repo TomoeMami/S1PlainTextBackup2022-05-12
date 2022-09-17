@@ -6588,3 +6588,107 @@ PV这纪录片运镜有点意思，游戏里的大陆太小了，期待动画能
 原+ufo，手游改，debuff叠满了这文戏还能救吗提到这个单纯好奇，经常见到声优说沉迷原，那有哪个脚 ...</blockquote>
 蘑菇玩，其实我觉得什么时候型月和米联动我都不奇怪
 
+
+
+*****
+
+####  电子妖精雪风  
+##### 708#       发表于 2022-9-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520036&amp;ptid=2094448" target="_blank">东郃子 发表于 2022-9-17 09:54</a>
+
+主线其实没什么大问题，支线有挺不错的。不过太赶了要卖角色砍了很多东西导致连不起来，终归到底产能跟不 ...</blockquote>
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天人五衰  
+##### 709#       发表于 2022-9-17 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519775&amp;ptid=2094448" target="_blank">七千星 发表于 2022-9-17 09:09</a>
+前期大量描写因将军政策导致的民间疾苦,故事最后将军陪主角逛逛街,顺便说我错了道个歉,故事就结束了,没有 ...</blockquote>
+没给你本子弄个神里土下座九条切腹谢罪，已经很不现实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暖气  
+##### 710#       发表于 2022-9-17 10:52
+
+难得漫区薄纱外野<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  诚司  
+##### 711#       发表于 2022-9-17 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看到这种说法就觉得牛逼
+
+你见过把主线做完了然后才拿出来让人玩的网游吗，说这话是怎么想的，年轻人的第一款网游？
+
+*****
+
+####  yt5wt2c  
+##### 712#       发表于 2022-9-17 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+下次能不能举个别的例子，环怎么也跟完整扯不上关系
+
+*****
+
+####  brook55  
+##### 713#       发表于 2022-9-17 10:56
+
+米哈游明显要ACG全面发力，无论个人的好恶，新时代的脚步无法阻挡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  电子妖精雪风  
+##### 714#       发表于 2022-9-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520671&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 10:54</a>
+
+看到这种说法就觉得牛逼
+
+你见过把主线做完了然后才拿出来让人玩的网游吗，说这话是怎么想的，年轻 ...</blockquote>
+你觉得这算网游的话，那"年轻人的第一款网游"请你自己收好
+
+*****
+
+####  unlsycn  
+##### 715#       发表于 2022-9-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57514901&amp;ptid=2094448" target="_blank">JustW 发表于 2022-9-16 21:00</a>
+可以
+
+小号发帖还得审核才换了大号又发了一次，那个可以删掉</blockquote>
+你这个号不是说有人捐款买这号不发言吗，还是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小雪空  
+##### 716#       发表于 2022-9-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+用小说来比喻，网文有网文的玩法，实体书有实体书的玩法，原神作为一个在互联网连载的故事，性质明显更接近网文，而不是实体书……
+
+*****
+
+####  brook55  
+##### 717#       发表于 2022-9-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+魔兽世界刚出来就两片大陆，不还是完爆当时所有网游，这也算半成品吗。
+
+更何况现在的手游都是长线运营，要是不更新你看会不会被骂死<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
