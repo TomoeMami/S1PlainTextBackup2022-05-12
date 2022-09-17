@@ -10060,3 +10060,114 @@ https://www.jizhazha.co ...</blockquote>
 
 二次元圈子本身其实没什么战斗力，粥原都半斤八两<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈里-谢顿  
+##### 1027#       发表于 2022-9-17 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528501&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-17 21:27</a>
+
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+互联网就是粪坑，无缘无故的恨很多且很多（如江歌案到现在还有一堆支持那个贱女人的团体）
+
+*****
+
+####  小小雪空  
+##### 1028#       发表于 2022-9-17 21:34
+
+有句话怎么说，当有人会无缘无故讨厌某种东西，终有一天会无缘无故喜欢某种东西，终究是理性思维的缺失……
+
+*****
+
+####  Ronu  
+##### 1029#       发表于 2022-9-17 21:37
+
+就像前面也有楼友说了
+
+你以为是甲和乙在对冲
+
+其实是甲乙里面的丙在同时冲两家
+
+粥原这个，反正我是觉得其中一大部分在冲的人一定看粥原都是傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一般网友其实只在乎能不能赢而已啦，没有那种什么“需要守护的信仰”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+特别天朝这种把各种社区都当成匿名串用的地方更是如此了
+
+*****
+
+####  绯夜殃雨  
+##### 1030#       发表于 2022-9-17 21:38
+
+ 本帖最后由 绯夜殃雨 于 2022-9-17 21:39 编辑 
+
+当年国产垃圾骗钱游戏不可胜数，但突然原神成了垃圾代表，人人得而诛之，是让我非常疑惑的。我记得之前贪玩蓝月在b站做推广直播的时候，大部分人都是来看搞笑找乐子，没几个开口骂的。但论抄袭、骗钱、病毒营销这可是真的很有代表性的游戏。
+
+原神质量总比贪玩蓝月好，但遭受的辱骂可是多了无数倍的。所以让人觉得原神最初的舆论很不正常。
+
+不过现在基本很少人谈原神游戏质量了，大部分火力都变成玩家素质低所以要抵制原神了。
+
+*****
+
+####  kletka  
+##### 1031#       发表于 2022-9-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528657&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 21:37</a>
+
+就像前面也有楼友说了
+
+你以为是甲和乙在对冲
+
+其实是甲乙里面的丙在同时冲两家</blockquote>
+nga来说，其实大部分恨意都是对nga版务管理失能的迁怒罢了，都多少次了，整天整出各种幺蛾子
+
+*****
+
+####  caupollen  
+##### 1032#       发表于 2022-9-17 21:40
+
+翻了下前面5ch的原串发现原串是公主链接的串，在用原神狂踩和嘲讽玩赛马娘的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游阵营大战感觉冈本人也差不多啊
+
+*****
+
+####  printer22  
+##### 1033#       发表于 2022-9-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528501&amp;ptid=2094448" target="_blank">蜜瓜包 发表于 2022-9-17 21:27</a>
+
+米孝子的思路其实很好懂，但是原黑我一直想不明白，游戏区搞个专楼出来全天候不停的黑，外野有原神的帖子就 ...</blockquote>
+这种很大程度与神神重叠的啊，只要有中国产品能赚养爹的钱他们就会极度仇恨该产品，不管是手机还是手机游戏都是一样的
+
+*****
+
+####  诚司  
+##### 1034#       发表于 2022-9-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528187&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 21:04</a>
+
+我直到现在都不理解明日方舟和原到底有什么深仇大恨。nga那群人总是莫名其妙开始一转骂方舟。 ...</blockquote>
+因为就是在nga搞起来的，冲击崩3版，互相反串造谣之类的，确实有仇，说到底是nga的问题
+
+不过基本还是在手游圈内的感觉吧，这么个破圈子，连战双崩3大眼都能吵起来，明明是一拨人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大江户战士  
+##### 1035#       发表于 2022-9-17 21:40
+
+说起来抄袭和黑子，十几年前的cs和cf也差不多
+
+当年贴吧一个劲嘲讽cf小学生，“抄袭cf”的梗现在还时不时有人提。现在嘛，cf那代小学生长大了，风评逆转了，cs和cf群体甚至都融合了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  printer22  
+##### 1036#       发表于 2022-9-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528663&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-17 21:38</a>
+
+当年国产垃圾骗钱游戏不可胜数，但突然原神成了垃圾代表，人人得而诛之，是让我非常疑惑的。我记得之前贪玩 ...</blockquote>
+贪玩蓝月又不会大赚特赚某些人养爹的钱，赚的都是他们最痛恨的同胞的钱，他们夸还来不及呢怎么会去记恨
+
