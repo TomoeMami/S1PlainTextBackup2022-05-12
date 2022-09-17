@@ -8281,3 +8281,56 @@ jzgg为什么能做出最好的偶像动画，因为他对偶像大师真有爱�
 
 感觉会不行，毕竟日本动画公司给代工的动画之前几部都是烂到反人类了把。
 
+
+
+*****
+
+####  临界点  
+##### 865#       发表于 2022-9-17 16:13
+
+ufo别的不说 作画起码不会摆烂  只是原神这剧情  不魔改也太白开水了  但魔改的话要让粉丝满意也挺难的   出些角色的原创剧情可能是个比较好的选择？ 
+
+至于碟片销量  米哈游还在乎这个？一天的全球营收都比这个高吧
+
+*****
+
+####  茛菪  
+##### 866#       发表于 2022-9-17 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523937&amp;ptid=2094448" target="_blank">名津流 发表于 2022-9-17 15:17</a>
+
+我也觉得进游戏头几分钟就能感受到这游戏综合完成度很高，综合的卖相是真的好
+
+我一年多前第一次进游戏的 ...</blockquote>
+foot ik这玩意ps3时期就是大路货了吧，原神用的unity也自带ik API，相关实现一搜一堆。
+
+*****
+
+####  快乐好难123  
+##### 867#       发表于 2022-9-17 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524373&amp;ptid=2094448" target="_blank">13街的居住民 发表于 2022-9-17 16:00</a>
+
+太降维打击了
+
+让我想起当初bbb去jp开服后都在说降维，降维降了几年啦 ...</blockquote>
+bbb在日本开服名声就臭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你搜下“崩壊3rd おま国”就知道为什么了，到现在5ch太君都还记得
+
+*****
+
+####  yth329  
+##### 868#       发表于 2022-9-17 16:15
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某一方攻击，而且那阵势比什么神兔大战吓人多了，也就粉圈不太熟可能值得一提；当年从主机大战到厂商之争都没这场面，什么索匪任豚相比起来简直温柔可爱
+
+*****
+
+####  月夜凝雪  
+##### 869#       发表于 2022-9-17 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523855&amp;ptid=2094448" target="_blank">cloudcc 发表于 2022-9-17 15:08</a>
+看你们说的，只要发动王之力，一切都会好起来的是么吧？还是要看品质如何的 ...</blockquote>
+你要不要看看当年AKB那些扔二手店超便宜的CD，一堆人为了赠品买碟然后碟扔二手店
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
