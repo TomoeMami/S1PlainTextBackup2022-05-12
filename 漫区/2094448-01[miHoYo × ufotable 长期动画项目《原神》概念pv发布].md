@@ -6569,3 +6569,22 @@ PV这纪录片运镜有点意思，游戏里的大陆太小了，期待动画能
 原+ufo，手游改，debuff叠满了这文戏还能救吗提到这个单纯好奇，经常见到声优说沉迷原，那有哪个脚 ...</blockquote>
 蘑菇
 
+
+
+*****
+
+####  filo916  
+##### 706#       发表于 2022-9-17 10:45
+
+[@ganeid](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=224480) 台长说话！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kletka  
+##### 707#       发表于 2022-9-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520406&amp;ptid=2094448" target="_blank">Arcan9 发表于 2022-9-17 10:32</a>
+
+原+ufo，手游改，debuff叠满了这文戏还能救吗提到这个单纯好奇，经常见到声优说沉迷原，那有哪个脚 ...</blockquote>
+蘑菇玩，其实我觉得什么时候型月和米联动我都不奇怪
+
