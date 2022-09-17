@@ -2948,3 +2948,18 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 5k上下吧
 
+
+
+*****
+
+####  魔法酪饼  
+##### 238#       发表于 2022-9-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523566&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-09-17 14:37:46</a>
+5k上下吧</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">那就上aok（8寸）的车呗，现在定下个月上旬应该ok。。。aya的air屏太小，串流主机游戏够呛看得清，我个人串流的话估计会要个8寸屏。
+如果不急着用，能等到年底的话，win4（6寸）也可以看看。
+不说ayaneo2是因为我定的air pro发货日上个月底刚被耍了猴一怒退款了，对aya新机的发售时间不报信心。
+最后，不推荐现在去咸鱼买各路二手老机器，要买也要等6800系大量发货。我个人就不推荐老机器了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

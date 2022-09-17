@@ -8250,3 +8250,34 @@ jzgg为什么能做出最好的偶像动画，因为他对偶像大师真有爱�
 太降维打击了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 让我想起当初bbb去jp开服后都在说降维，降维降了几年啦<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MaxFOrder  
+##### 862#       发表于 2022-9-17 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524373&amp;ptid=2094448" target="_blank">13街的居住民 发表于 2022-9-17 16:00</a>
+
+太降维打击了
+
+让我想起当初bbb去jp开服后都在说降维，降维降了几年啦 ...</blockquote>
+问题是bbb确实不够看啊，在jp营收赶得上原神几位数的零头？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快乐好难123  
+##### 863#       发表于 2022-9-17 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524304&amp;ptid=2094448" target="_blank">哈之分舍瓦 发表于 2022-9-17 15:55</a>
+
+有些老哥的吹法颇有椅子能坐那味了XD</blockquote>
+锁妖塔出来的不会不知道椅子哥是你队友吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddmmmm1  
+##### 864#       发表于 2022-9-17 16:06
+
+感觉会不行，毕竟日本动画公司给代工的动画之前几部都是烂到反人类了把。
+
