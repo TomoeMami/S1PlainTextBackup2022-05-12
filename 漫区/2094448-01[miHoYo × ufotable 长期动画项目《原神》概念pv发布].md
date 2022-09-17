@@ -7957,3 +7957,31 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 是现在国内已经没有碟机播放器这个市场了，现在要 ...</blockquote>
 其实就算是日本人，买盘也未必是拿来放的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MaxFOrder  
+##### 832#       发表于 2022-9-17 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523297&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 14:12</a>
+
+这我知道，要不是疫情，我绝壁不会玩。
+
+现在须弥和之前那一堆阴间地图和剧情好太多</blockquote>
+讲真距离老滚5还有很长距离，这话不能说大。我2.0入坑一开始还真是冲着老滚5的预期去玩的，结果没多久就种草，那时候大地图许多地方看似风景秀美细节丰富，然而实际游玩要素空空荡荡，只能说成品内容尚不足以支撑游戏体验。
+
+现在入坑大概好很多，须弥极大扩展了地图使用率，限时活动以及版本更新频率也加快了（这点说不好听点是上半年魔都疫情的结果，因祸得福），玩几天就长草这种事短期内不会再出现。
+
+其实抛开游戏体验本身，原神激发出来的社群活力大概也是吸引这么多玩家的重要因素。虽然社群活跃这一点在国内造成的印象经常是负面的，但确实保证了大量的二创流量，说夸张点我甚至嗅到了一点2010年左右车万圈子的那种味道。
+
+*****
+
+####  fsz1987  
+##### 833#       发表于 2022-9-17 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523471&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 14:29</a>
+
+其实就算是日本人，买盘也未必是拿来放的</blockquote>
+买盘不就是拿来放的?<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
