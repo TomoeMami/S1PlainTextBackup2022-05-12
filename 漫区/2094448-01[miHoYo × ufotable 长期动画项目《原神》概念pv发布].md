@@ -12700,3 +12700,57 @@ ufo用3d背景也算是老手了，不过以前都是只有打斗中激烈运镜
 
 3.0剧情出彩的地方还是在于在相对挺短的篇幅里把这个loop故事讲得很明晰，人没了那段把人看得还有点情绪波动，这种东西写不好很容易让看客一头雾水。前面有朋友说不搞重复演出达成的就是这个效果，我是比较服气的。这种人才留着抓一抓动画正合适，做游戏剧情还是有点束手束脚
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 1270#       发表于 2022-9-18 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531827&amp;ptid=2094448" target="_blank">Fuero 发表于 2022-9-18 00:16</a>
+
+分享些我觉得游戏本体内做的比较好的过场：
+
+《原神》危途疑踪过场动画——「生死一刹」</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有羽毛最爱的村姑跳舞我不是很认可，这可是能让一个游戏终极老逼再次感受到游戏能带来的最纯粹快乐的过场啊
+
+*****
+
+####  月夜凝雪  
+##### 1271#       发表于 2022-9-18 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531054&amp;ptid=2094448" target="_blank">黄字 发表于 2022-9-17 23:38</a>
+
+你猜猜日本动画界是怎么对待顶级ip马里奥塞尔达和最终幻想的？几十年了从来没好好合作过。 ...</blockquote>
+最终幻想既出过动画也出过漫画，只不过无论动画还是漫画都和游戏的剧本无关是独立的故事，
+
+马里奥以前出过动画，是日本制作还是欧美制作就不记得了太过久远，
+
+*****
+
+####  whzfjk  
+##### 1272#       发表于 2022-9-18 00:26
+
+ 本帖最后由 whzfjk 于 2022-9-18 00:27 编辑 
+
+公主连接动画s1e1也有个非常大的草原远景，我是觉得日本动画大远景还是太少了
+
+*****
+
+####  Meiien  
+##### 1273#       发表于 2022-9-18 00:27
+
+一个毫无信息量的PV能讨论四十多页，真几把闲
+
+*****
+
+####  大江户战士  
+##### 1274#       发表于 2022-9-18 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531834&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-18 00:17</a>
+
+是的这雪山无论光影反射还是那些云都特别的有质感</blockquote>
+ufo本来就非常擅长3d cg和2d作画的融合，但我觉得米哈游可能提供了技术支持
+
+和年初fgo空境联动pv对比，渲染风格有很大区别
+

@@ -2862,3 +2862,14 @@ elona算是rpg吗
 老婆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 不知道这次能不能给狼人妹画一个变身立绘<img src="https://p.sda1.dev/7/8523058949d4cc679fcb797daaf71699/CMP_20220917235740862.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  杉田悠一  
+##### 312#       发表于 2022-9-18 00:22
+
+我尼玛……，
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
