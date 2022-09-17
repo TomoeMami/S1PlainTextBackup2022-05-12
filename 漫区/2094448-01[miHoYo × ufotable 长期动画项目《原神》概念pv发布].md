@@ -7362,3 +7362,55 @@ saki一直是一边工作一边做主播，是挺现成的
 游戏内联动非常少，仅有的两个肯德基和埃洛伊，基本肯定是开服前就定下来的联动。原神的火爆是出乎所有人 ...</blockquote>
 米忽悠游戏内不联动的习惯从崩崩崩就开始了，也就是他们走3d化之后，eva纯属老板追梦。因此原神不联动也正常
 
+
+
+*****
+
+####  编木马者死户口  
+##### 779#       发表于 2022-9-17 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522691&amp;ptid=2094448" target="_blank">间宮夏生 发表于 2022-9-17 13:10</a>
+
+其实公子后面谐星化了，加上没和其它角色有冲突所以其实不是最糟糕的，最糟糕是稻妻这几个，尤其是雷神和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看那样子就是周本BOSS啊，这有啥，女士不也有粉
+
+*****
+
+####  we89623  
+##### 780#       发表于 2022-9-17 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522037&amp;ptid=2094448" target="_blank">751984871 发表于 2022-9-17 12:24</a>
+
+其实，感觉在扳机一片叫好的这个节骨眼要是宣布是扳机，各网站会比宣布是飞碟还爆炸。（
+
+主要飞碟此前和国 ...</blockquote>
+醒醒吧，扳机只有婆罗门认识，出了婆圈谁还认识。国内能比飞碟话题性爆炸的估计也只有京阿尼
+
+
+
+*****
+
+####  扶扶老奶奶  
+##### 781#       发表于 2022-9-17 13:29
+
+才是个企划公布漫区就压着外野打，这要是真开播那得啥样啊，真不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icecry  
+##### 782#       发表于 2022-9-17 13:30
+
+<blockquote>间宮夏生 发表于 2022-9-17 13:10
+其实公子后面谐星化了，加上没和其它角色有冲突所以其实不是最糟糕的，最糟糕是稻妻这几个，尤其是雷神和 ...</blockquote>
+公子搞个恢复出厂设置就行，博士选个好切片，不过看剧情博士很早就变恶人了，不好洗。
+
+*****
+
+####  bin哥厉害  
+##### 783#       发表于 2022-9-17 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522824&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-17 13:20</a>
+
+米忽悠游戏内不联动的习惯从崩崩崩就开始了，也就是他们走3d化之后，eva纯属老板追梦。因此原神不联动也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑是被羽中那次坑怕了
+
