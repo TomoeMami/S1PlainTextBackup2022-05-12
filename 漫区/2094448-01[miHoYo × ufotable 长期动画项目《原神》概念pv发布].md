@@ -11338,3 +11338,141 @@ NGA怎么不能喷原神。我当年就是很好奇，在nga发帖问了一句�
 表面原因有很多，比如崩3节奏期 ...</blockquote>
 我倒希望这些女玩家哪儿来回哪儿去，nga原区现在已经变成一堆女人坐地排卵发情的地方了。
 
+
+
+*****
+
+####  JustW_3  
+##### 1137#       发表于 2022-9-17 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529698&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 22:39</a>
+
+这也是我看不懂的地方，海猫和羽中是和平分手
+
+然后两边粉丝打得头破血流…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你都知道是饭圈了，饭圈里俩偶像没怎么样，但是粉丝先打了个头破血流的事情不是每天都有吗
+
+*****
+
+####  卢迪乌斯  
+##### 1138#       发表于 2022-9-17 22:41
+
+ 本帖最后由 卢迪乌斯 于 2022-9-17 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529290&amp;ptid=2094448" target="_blank">江戸前ルナ 发表于 2022-9-17 22:20</a>
+
+所以，当年的事就一句“中计了”就不谈不应该谈然后就任由谈的人去喜欢怎么说就怎么说吗？垃圾书记以前发 ...</blockquote>
+"另外我针对的就一个当年出片的情况，然后为什么反驳回复的都是发散之后各种的人生百态呢？"
+
+为什么不可以发散呢？
+
+您进帖子第一个回复就说了“里面你所说“黑”的内容很多就是喷各种“典”的言论，而这些言论又是怎么来的呢？”
+
+原黑的立身之本以及和人键盘的依据不就是“先不说你的话对与错，你们米卫兵可是说过这个那个”这种发散性回复吗？
+
+喷的时候就拉整体“你们的各种典中典”
+
+回复的时候就“人生百态”啦？
+
+当初我也错进过锁妖塔，有几位在那和我喷，喷到最后我的言论没见他们反驳成几句，大体都是再说“xxxxxx可是你们米卫兵自己说的”这种
+
+*****
+
+####  SYH617  
+##### 1139#       发表于 2022-9-17 22:41
+
+<blockquote>卡蓮 发表于 2022-9-17 22:08
+那那条我道歉，毕竟没事不会关注那么多，而且有郑翔的前车之鉴，原神里人名梗那么多，很难让人不发生联想 ...</blockquote>
+郑翔那个也是假的啊，先不说读音也不同，和人民军队同名能是侮辱人的话也就哪些狗汉奸说得出来。
+
+*****
+
+####  weary11  
+##### 1140#       发表于 2022-9-17 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">真做成空境的OVA质量 那就好了。
+
+
+
+*****
+
+####  JustW_3  
+##### 1141#       发表于 2022-9-17 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529738&amp;ptid=2094448" target="_blank">火箭布雷器 发表于 2022-9-17 22:40</a>
+
+我倒希望这些女玩家哪儿来回哪儿去，nga原区现在已经变成一堆女人坐地排卵发情的地方了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说，明日方舟夏活节奏后，抱怨角色男女比不平衡的、每天骂我女我也的，稍微少了一些
+
+*****
+
+####  CSWQ  
+##### 1142#       发表于 2022-9-17 22:44
+
+我记得动画魂的蓝女士当时采访海猫时他手机里还有崩坏三，结果到今天两家受众大有不死不休的意味，也是好笑
+
+*****
+
+####  哈里-谢顿  
+##### 1143#       发表于 2022-9-17 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529743&amp;ptid=2094448" target="_blank">JustW_3 发表于 2022-9-17 22:41</a>
+
+你都知道是饭圈了，饭圈里俩偶像没怎么样，但是粉丝先打了个头破血流的事情不是每天都有吗 ...</blockquote>
+饭圈傻逼太多，不想掺合，有时候吵起来莫名其妙
+
+*****
+
+####  砂雪  
+##### 1144#       发表于 2022-9-17 22:46
+
+绝大部分楼层都毫无营养，这楼之后定期冲水。
+
+*****
+
+####  紫木一姬  
+##### 1145#       发表于 2022-9-17 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529760&amp;ptid=2094448" target="_blank">SYH617 发表于 2022-9-17 22:41</a>
+郑翔那个也是假的啊，先不说读音也不同，和人民军队同名能是侮辱人的话也就哪些狗汉奸说得出来。 ...</blockquote>
+毕竟这事我这边玩原神的朋友也是津津乐道的，尤其是后面还发生了“郑翔和米哈游和解后专门让他去英雄救美”这种事。
+牵强附会这种东西往往会有附会的原因，谁都不是米哈游员工嘛
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  kyonkoism  
+##### 1146#       发表于 2022-9-17 22:48
+
+冲水是啥意思啊？顺带也还想问马马耶夫岗是啥意思（
+
+*****
+
+####  JustW_3  
+##### 1147#       发表于 2022-9-17 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529734&amp;ptid=2094448" target="_blank">绯夜殃雨 发表于 2022-9-17 22:40</a>
+
+前者的游戏由于公开画师，画师也积极参与同人，所以能获得画师粉丝的支持。
+
+比如微博按理说是女性活跃度更 ...</blockquote>
+（日推热搜这种东西含金量远不如微博热搜啊，大物管人一次直播也能上，偶像团体一次live也能上，深夜动画播出一集也能上……其它区推特不熟）
+
+我觉得到今天还在纠结抄袭的“绘圈人”其实没那么多，很多是自己搞过的二次元圈子被原神玩家涌入心生不满，很多是奉行自由主义不想接受编排。但更多“绘圈人”其实都是什么热门画什么，毕竟这个时代的微博推特等平台数据是真的可以左右求职路的，有流量不吃难道是傻子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  防辐射的  
+##### 1148#       发表于 2022-9-17 22:49
+
+感觉这帖子越来越跑题了，还是看看今天新出的绝区零pv吧，家人们。那动画做得真是不错
+
+*****
+
+####  starash  
+##### 1149#       发表于 2022-9-17 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529917&amp;ptid=2094448" target="_blank">kyonkoism 发表于 2022-9-17 22:48</a>
+ 冲水是啥意思啊？顺带也还想问马马耶夫岗是啥意思（</blockquote>
+冲水就是删楼，马马耶夫岗是斯大林格勒保卫战里一个苏德反复争夺的高地，比上甘岭还激烈。
+
