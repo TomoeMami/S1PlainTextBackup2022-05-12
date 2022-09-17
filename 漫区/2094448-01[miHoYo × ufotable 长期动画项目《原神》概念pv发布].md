@@ -8780,3 +8780,147 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 
 但本楼本来好好的聊动画制作，结果中途又有人阴阳怪气的想往那方面带才是最可笑的，就跟那点小心思别人看不出来似的
 
+
+
+*****
+
+####  kletka  
+##### 908#       发表于 2022-9-17 17:11
+
+这不就来了么
+
+*****
+
+####  icecry  
+##### 909#       发表于 2022-9-17 17:12
+
+某些人的目地不就是把这楼搞得乌烟瘴气，不要理的为好
+
+*****
+
+####  诚司  
+##### 910#       发表于 2022-9-17 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525104&amp;ptid=2094448" target="_blank">バーチャルS1er 发表于 2022-9-17 17:10</a>
+
+针对游戏本身原黑其实没那多也不会那么持久，主要是OP爆典太多+营销力度非常大入侵各种圈子，还有经典饭 ...</blockquote>
+从19年pv出来到20年9月都多长时间了，还不持久啊
+
+那时候哪有玩家
+
+*****
+
+####  不知道还一直说  
+##### 911#       发表于 2022-9-17 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525098&amp;ptid=2094448" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-9-17 17:09</a>
+
+确实是绝妙的笑话，原友四处拉踩有目共睹，感觉不如原神这梗听说是反串的，但对原友生态的总结非常准确。 ...</blockquote>
+谢谢你给我的说理添加了实例<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monamona  
+##### 912#       发表于 2022-9-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525098&amp;ptid=2094448" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-9-17 17:09</a>
+
+确实是绝妙的笑话，原友四处拉踩有目共睹，感觉不如原神这梗听说是反串的，但对原友生态的总结非常准确。 ...</blockquote>
+很符合原批们给人的热衷于岁月史书的印象呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 913#       发表于 2022-9-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524965&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-17 16:56</a>
+
+这点信息聊了900楼，开播了怕不是每集聊9000楼</blockquote>
+那拯救漫区啊，应该是让漫区再度伟大
+
+*****
+
+####  starash  
+##### 914#       发表于 2022-9-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525107&amp;ptid=2094448" target="_blank">雷攻姛人 发表于 2022-9-17 17:10</a>
+
+我承认确实想的简单了，这事情从头到尾各方参入的势力太多，已经说不清阵营了。
+
+但本楼本来好好的聊动画 ...</blockquote>
+明显的典最好的处理方式就是不要理（不管是黑是红是反串）。
+
+出格的时候使用举报就行了。
+
+*****
+
+####  MaxFOrder  
+##### 915#       发表于 2022-9-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525107&amp;ptid=2094448" target="_blank">雷攻姛人 发表于 2022-9-17 17:10</a>
+
+我承认确实想的简单了，这事情从头到尾各方参入的势力太多，已经说不清阵营了。
+
+但本楼本来好好的聊动画 ...</blockquote>
+那你还是来晚了，昨晚有俩原黑魔怔人进来拼命政治引流来着，今天上面这几个锁妖塔网友已经算是攻击性不那么强的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 916#       发表于 2022-9-17 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">有钱就是能骑脸为所欲为
+
+*****
+
+####  kletka  
+##### 917#       发表于 2022-9-17 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525142&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-17 17:13</a>
+
+那你还是来晚了，昨晚有俩原黑魔怔人进来拼命政治引流来着，今天上面这几个锁妖塔网友已经算是攻击性不那 ...</blockquote>
+基本都是些古墓派一样的贼喊抓贼逻辑
+
+*****
+
+####  JustW_3  
+##### 918#       发表于 2022-9-17 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525142&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-17 17:13</a>
+那你还是来晚了，昨晚有俩原黑魔怔人进来拼命政治引流来着，今天上面这几个锁妖塔网友已经算是攻击性不那 ...</blockquote>
+如果你是指愚人节快乐的话，我必须指出，他与其说是原黑，不如说是巨魔cosplay，在任何帖子下面都会强行找个奇怪角度咬住，装疯卖傻
+
+*****
+
+####  卢迪乌斯  
+##### 919#       发表于 2022-9-17 17:16
+
+<blockquote>Buttercry 发表于 2022-9-17 12:31
+飞碟桌不是挺搭的，至于说文戏不行，难道你们玩原神是冲着剧情去的吗 ...</blockquote>
+文戏不行是演出不行，而游戏里很多场面就是靠演出来拉高的，比如龟龟跳舞，我都想不到ufo会画成什么鬼样子
+
+*****
+
+####  icecry  
+##### 920#       发表于 2022-9-17 17:17
+
+<blockquote>kletka 发表于 2022-9-17 16:43
+有一说一，原神的loli角色，坐上椅子是有好几种不同动作的，动作特别可爱
+
+左边是直接一屁股崩上去， ...</blockquote>
+现在萝莉都是阿拉蕾跑路还是太偷懒了点
+
+*****
+
+####  长谷川红叶  
+##### 921#       发表于 2022-9-17 17:17
+
+误入漫区，错失前10。
+
+*****
+
+####  xxxllz  
+##### 922#       发表于 2022-9-17 17:19
+
+二次元华为是吧
+

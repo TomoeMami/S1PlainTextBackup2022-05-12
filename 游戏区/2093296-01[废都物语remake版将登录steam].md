@@ -2758,3 +2758,14 @@ elona算是rpg吗
 
 借楼问下 还差18经验获得sp 但是整个地下都刷不出野怪了 怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jumbohard  
+##### 303#       发表于 2022-9-17 17:16
+
+今天在b站刷到一个貌似是pv的视频，也就是主楼那几张图分图层动起来，要是这就是现场pv那有什么捂着的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
