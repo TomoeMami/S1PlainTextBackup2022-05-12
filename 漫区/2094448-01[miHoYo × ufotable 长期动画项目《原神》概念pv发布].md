@@ -9171,3 +9171,100 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 
 syl我还是想不出蒙德那剧情能怎么拍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nejiang  
+##### 948#       发表于 2022-9-17 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524923&amp;ptid=2094448" target="_blank">诚司 发表于 2022-09-17 16:51:40</a>
+是制作委员会制度
+
+直播没说，但是通稿说的是奥创视界负责协力制作委员会 ...</blockquote>有制作委员会那我觉得药丸
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  hgcfgbv  
+##### 949#       发表于 2022-9-17 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521754&amp;ptid=2094448" target="_blank">JustW 发表于 2022-9-17 12:03</a>
+【【原神/熟肉/meso】泪流满面！米将军看到原神动画化PV激动到当场泪奔-哔哩哔哩】 https://b23.tv/r2cK5sO ...</blockquote>
+不知道怎么收藏单独一层，回复标记下
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  大江户战士  
+##### 950#       发表于 2022-9-17 18:14
+
+ 本帖最后由 大江户战士 于 2022-9-17 18:17 编辑 
+
+就结果而言，国产二次元手游，甚至扩大到手游和国产游戏这个范畴，原神是绝对的划时代作品，国产游戏被划分成了前原神时代和后原神时代
+
+传统MMO不再吃香，二次元手游也不再是2d小人抽卡就能满足国内玩家了。原神以一己之力提高了国内玩家的品味（在此之前可以说是明日方舟也通过独特的美术风格开创了新时代，但是明日方舟本质上还是前原神时代的传统二次元手游）
+
+当然像从头就开始批判原神的主机/单机玩家，这个群体是看不起f2p网游的，自然天生看不起原神，更别提原神美术风格和开发世界的玩法照搬了被封为圣经的botw，属于罪加一等。
+
+但这群人终究是少数派。对于国内更大的玩家群体生态，原神可以算是“黑船来航”了
+
+而且原神能在世界上取得成功就说明它不仅仅是对于相对见得少的国内玩家来说属于王炸级作品，本身素质也相当高。
+
+观察国外舆论，虽然也有类似的原神抄袭botw的言论，但是并没有出现国内这样的极端的舆论环境。
+
+另外我观察到一个有趣的现象是，欧美的原神玩家群体和JRPG爱好者群体有很大程度的重合。
+
+*****
+
+####  戏谑二次元  
+##### 951#       发表于 2022-9-17 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525744&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 18:10</a>
+这楼如果歪了那给出反应的人也是帮凶。虽然很严格，但是还是得有点自觉
+
+syl我还是想不出蒙德那剧情 ...</blockquote>
+让霓虹金先做稻妻篇吧，稻妻能写的东西蛮多的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五性八卦  
+##### 952#       发表于 2022-9-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523420&amp;ptid=2094448" target="_blank">MuramasaSP 发表于 2022-9-17 14:24</a>
+昨天有个人在fgo版发原神动画化的帖子，意思大概是（记不太清了）说fgo无能后续动画化不力。
+
+前几楼都是 ...</blockquote>
+这样啊，和稻妻期间黑宵宫心海的人差不多，我喜欢的牛逼你喜欢的垃圾这种傻逼思维，有些人就是这么烦人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反正我改名  
+##### 953#       发表于 2022-9-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524501&amp;ptid=2094448" target="_blank">临界点 发表于 2022-9-17 16:13</a>
+
+ufo别的不说 作画起码不会摆烂  只是原神这剧情  不魔改也太白开水了  但魔改的话要让粉丝满意也挺难的    ...</blockquote>
+魔改有可能算应对国内审核的曲线救国，支线和大世界文本明显想把剧情写的黑深残一些，有些内容放日本番剧都得和谐。主要是看改的质量，双城之战再一次吃书，但是who care
+
+*****
+
+####  kletka  
+##### 954#       发表于 2022-9-17 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525744&amp;ptid=2094448" target="_blank">Ronu 发表于 2022-9-17 18:10</a>
+
+这楼如果歪了那给出反应的人也是帮凶。虽然很严格，但是还是得有点自觉
+
+syl我还是想不出蒙德那剧情 ...</blockquote>
+蒙德只是无聊点，塞点角色的料和说点蒙德的隐秘故事之类的就能扩着写，而且蒙德这地方估计会是原神七国之后的回归点
+
+*****
+
+####  卡蓮  
+##### 955#       发表于 2022-9-17 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">心海的问题大了去了好吧，不只是强度问题，主线、传说、内容分配都是问题，被黑不冤枉
+
