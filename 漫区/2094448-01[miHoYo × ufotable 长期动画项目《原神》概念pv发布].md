@@ -9784,3 +9784,15 @@ https://www.jizhazha.co ...</blockquote>
   -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 为什么要挂着倭国黄油女主的头像说这个话
 
+
+
+*****
+
+####  StarForceTi  
+##### 1002#       发表于 2022-9-17 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527013&amp;ptid=2094448" target="_blank">whzfjk 发表于 2022-9-17 19:51</a>
+
+原神pc和ps顶两个手机端，说明两端需求还是一样的</blockquote>
+这是天时地利人和，前人都失败了
+

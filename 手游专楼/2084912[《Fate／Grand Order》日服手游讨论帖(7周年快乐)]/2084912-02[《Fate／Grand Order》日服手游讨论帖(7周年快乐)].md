@@ -12486,3 +12486,12 @@ wrba单红就判死刑了，至少俩ba混吧
 
 10单3宝歪他妈4个
 
+
+
+*****
+
+####  白金口袋  
+##### 2623#       发表于 2022-9-17 20:16
+
+虽然我知道这楼里根本没人在乎剧情，但是我搞不懂三成这货反正都要复活个丰臣为啥不选猴子而选儿子啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
