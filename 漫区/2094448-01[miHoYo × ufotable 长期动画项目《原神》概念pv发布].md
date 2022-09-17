@@ -9385,3 +9385,33 @@ BD销量已经不足以刻画o的热度了（当然这也和BD市场本身一直
 
 但看这PV秀作画的阵仗，实在不像是要做日常的样子
 
+
+
+*****
+
+####  大江户战士  
+##### 968#       发表于 2022-9-17 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526072&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-17 18:38</a>
+
+其实我挺喜欢沙雕日常的，最好是像弱酸性百万亚瑟王、人偶学园、少女前线小剧场那种狂乱的风格
+
+但 ...</blockquote>
+日常的话找国内就好了，ufo不擅长做日常的
+
+*****
+
+####  三杉酸宁碱  
+##### 969#       发表于 2022-9-17 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57526013&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-17 18:34</a>
+啥都没有聊了三十几页，你们对这俩强强联合好有信心啊</blockquote>
+难道不是因为没有信心才聊这么多楼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Spik3  
+##### 970#       发表于 2022-9-17 18:48
+
+见证历史，黑暗降临漫区
+
