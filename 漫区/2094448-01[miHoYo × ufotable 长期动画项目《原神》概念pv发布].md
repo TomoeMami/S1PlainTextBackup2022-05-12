@@ -8334,3 +8334,57 @@ bbb在日本开服名声就臭了<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  诚司  
+##### 870#       发表于 2022-9-17 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+这大概就是所谓的社会学舆论复杂动力学了，任何一个简单原因都没法解释
+
+原友当然不知道为什么，原黑的解释是mhy雇人黑自己，红黑营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  编木马者死户口  
+##### 871#       发表于 2022-9-17 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当驴叫和十字教坐在一起并且手里有gun（指键盘
+
+*****
+
+####  尼卡·七浦  
+##### 872#       发表于 2022-9-17 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+原友黑之争就是神兔之争的上位替代啊
+
+*****
+
+####  zuoci1977  
+##### 873#       发表于 2022-9-17 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524525&amp;ptid=2094448" target="_blank">yth329 发表于 2022-9-17 16:15</a>
+
+比起游戏出圈的原因，我作为老年网友更想知道国内原友原黑为何如此势不两立，任何人都可能因为一句话遭到某 ...</blockquote>
+硬要说就是当年撸农的复刻
+
+等到原友这一代玩家长大掌握话语权后，说不定又有新的巫妖王出现
+
+*****
+
+####  魔法使い2019  
+##### 874#       发表于 2022-9-17 16:29
+
+建议和管人区一样赶出漫区！
+
