@@ -6692,3 +6692,56 @@ PV这纪录片运镜有点意思，游戏里的大陆太小了，期待动画能
 
 更何况现在的手游都是长线运营，要是不更新你看会不会被骂死<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诚司  
+##### 718#       发表于 2022-9-17 11:02
+
+ 本帖最后由 诚司 于 2022-9-17 11:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520749&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:59</a>
+
+你觉得这算网游的话，那"年轻人的第一款网游"请你自己收好</blockquote>
+喷了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+只能说懂得都懂，你也知道你在说什么吧
+
+*****
+
+####  JustW  
+##### 719#         楼主| 发表于 2022-9-17 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520758&amp;ptid=2094448" target="_blank">unlsycn 发表于 2022-9-17 10:59</a>
+你这个号不是说有人捐款买这号不发言吗，还是我记错了</blockquote>
+详情见我发的上上上上上上个主题帖
+
+*****
+
+####  Perfectfullmoon  
+##### 720#       发表于 2022-9-17 11:02
+
+pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两倍（
+
+
+
+*****
+
+####  东郃子  
+##### 721#       发表于 2022-9-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+其实不能算半成品从几个支线来看，稻妻的故事脉络早就想好了。不过偏执于碎片化叙事所有支线过一遍才能缕清稻妻剧情颇有几分炫技的味道，不过被教做人玩家根本不吃这一套。
+
+*****
+
+####  JC_AR  
+##### 722#       发表于 2022-9-17 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57520636&amp;ptid=2094448" target="_blank">电子妖精雪风 发表于 2022-9-17 10:51</a>
+
+归根结底是他做了个半成品就拿出来卖，他要做的像老头环一样完整，直接卖3A单机，就没这些破事了 ...</blockquote>
+我只能缓缓打出一个问号
+
