@@ -6340,3 +6340,47 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 说真的，这种声势和产品矩阵让我想到口袋妖怪
 
+
+
+*****
+
+####  sylccll  
+##### 682#       发表于 2022-9-17 09:02
+
+米哈游的剧情+ufo的文戏，画面太美我不敢想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 683#       发表于 2022-9-17 09:03
+
+早上了，估计这楼要进入不少不明生物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  小万邦  
+##### 684#       发表于 2022-9-17 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519013&amp;ptid=2094448" target="_blank">ひびき 发表于 2022-9-17 03:05</a>
+当年舰娘明明集集日常番就能轻松6w6甚至8w8，非要去凹他那傻卵剧情 教训犹在眼前啊
+
+动画就是做这种 ...</blockquote>
+田中谦介就是二次元这块最大的风口猪
+
+*****
+
+####  kraoo  
+##### 685#       发表于 2022-9-17 09:07
+
+漫区压着外野，原的流量我还是认可的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七千星  
+##### 686#       发表于 2022-9-17 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士的一篇评价原的稻妻剧情的文章 ...</blockquote>
+前期大量描写因将军政策导致的民间疾苦,故事最后将军陪主角逛逛街,顺便说我错了道个歉,故事就结束了,没有人负责和被清算,十分日本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太君看了都说我知道现实这样但我不想在游戏里看见这些
+
