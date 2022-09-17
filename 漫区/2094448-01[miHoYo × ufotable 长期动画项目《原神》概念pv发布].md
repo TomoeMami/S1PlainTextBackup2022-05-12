@@ -12824,3 +12824,29 @@ fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无�
 
 不过毕竟是ufo，唯一值得放心的就是画面了，至少动画出来后名场景和mad素材不会缺吧。
 
+
+
+*****
+
+####  StarForceTi  
+##### 1281#       发表于 2022-9-18 00:55
+
+其实拍成公路片单元剧挺好的，死磕主线大概率要崩
+
+*****
+
+####  751984871  
+##### 1282#       发表于 2022-9-18 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530820&amp;ptid=2094448" target="_blank">幽远ghofar 发表于 2022-9-17 23:26</a>
+
+别闹了，扳机那种骨子里的&amp;# ...</blockquote>
+我指的是话题性而不是搭不搭。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 1283#       发表于 2022-9-18 00:59
+
+下次新版本的时候，UFO做几个10秒CM给大家开开眼就好了
+
