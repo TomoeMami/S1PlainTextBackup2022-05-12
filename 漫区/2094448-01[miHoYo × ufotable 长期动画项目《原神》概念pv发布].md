@@ -6452,3 +6452,22 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  桐野心音  
+##### 694#       发表于 2022-9-17 09:53
+
+一卷送一个角色皮肤，那销量不得百万起？就看敢不敢这么干了。
+
+*****
+
+####  东郃子  
+##### 695#       发表于 2022-9-17 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518146&amp;ptid=2094448" target="_blank">ViviR 发表于 2022-9-17 00:42</a>
+
+原的主线看楼上评价好像不咋地啊。之前我看知乎上有个爱发原神相关的什么博士的一篇评价原的稻妻剧情的文章 ...</blockquote>
+主线其实没什么大问题，支线有挺不错的。不过太赶了要卖角色砍了很多东西导致连不起来，终归到底产能跟不上。须弥已经好起来了体量是稻妻的几倍，就看后续怎么样了。
+
