@@ -13171,3 +13171,14 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 同希望动画做点精彩的战斗，尤其是主角能同时用多种元素力，游戏里只有在公子战过场体现了一下。要是动画来一个不同元素技能连招，加自己打元素反应，大概就理解提瓦特普通人对主角“我很能打”的尊敬了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冰冻火柴  
+##### 1313#       发表于 2022-9-18 06:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533447&amp;ptid=2094448" target="_blank">亚崔迪公爵 发表于 2022-9-18 03:03</a>
+如果从吸引观众入坑的角度考虑，应该先将藏在游戏文本里面的背景故事做成动画吧。例如炎之魔女的生平、雪山 ...</blockquote>
+我也希望把隐藏历史做一下，尤其是七神聚会、各国刚建立时的故事，但这种做法就不是吸引新玩家吧，这明显是服务老玩家的，而且是喜欢故事背景的重度老玩家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
