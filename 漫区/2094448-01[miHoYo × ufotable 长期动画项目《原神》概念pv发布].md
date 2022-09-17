@@ -9102,3 +9102,51 @@ mhy有能力给每个角色设计小动作，但后来放弃了，还是标准�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  kaiser-william  
+##### 941#       发表于 2022-9-17 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525511&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-09-17 17:46:00</a></blockquote>你在想什么，好多人叫“X批”就是图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不少人连二刺螈都不沾，很多都是抽象系和LOL的人在那叫。
+我玩战双帕弥什，我那几个玩LOL的舍友都以为我在玩原，还问我这些二游有啥区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  suttv  
+##### 942#       发表于 2022-9-17 17:58
+
+别的不说，天天把女性生殖器挂嘴边只能是没教养
+
+*****
+
+####  DET  
+##### 943#       发表于 2022-9-17 18:00
+
+那批发是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酥蕤  
+##### 944#       发表于 2022-9-17 18:00
+
+圆盘配上手写ID拍照放主页不比转发抽奖买装扮当盾资格多了，看好新时代
+
+*****
+
+####  tiro_finale  
+##### 945#       发表于 2022-9-17 18:00
+
+表面上，甲在全天候攻击乙
+
+若用显微镜看甲的内部，可以发现一部分甲在全天候攻击另一部分甲
+
+再去看乙的内部，一部分乙也在全天候攻击另一部分乙
+
+如果在远处用望远镜把甲乙放一起观察，甲乙在的整体正在被丙全天候攻击
+
+这种仇恨分型普适到有点好笑，就是想不到像草台论那么高度概括性的总结法
+
