@@ -8224,3 +8224,29 @@ fz动画，把原作好的部分除去，只算飞碟社的部分，那都是什
 
 这周估计有很多人因为看了edgerunners而入坑/重新下了2077
 
+
+
+*****
+
+####  starash  
+##### 859#       发表于 2022-9-17 15:54
+
+这个质量上限呢，要看主创团队里有多少原神死忠了
+
+jzgg为什么能做出最好的偶像动画，因为他对偶像大师真有爱啊。
+
+*****
+
+####  哈之分舍瓦  
+##### 860#       发表于 2022-9-17 15:55
+
+有些老哥的吹法颇有椅子能坐那味了XD
+
+*****
+
+####  13街的居住民  
+##### 861#       发表于 2022-9-17 16:00
+
+太降维打击了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+让我想起当初bbb去jp开服后都在说降维，降维降了几年啦<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
