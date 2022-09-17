@@ -9743,3 +9743,44 @@ https://www.jizhazha.co ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Fuero  
+##### 998#       发表于 2022-9-17 20:01
+
+翻了几页不出所料，污名化和直球AOE整个玩家群体的氛围我以前也只在主机大战的时候见过，只能说江湖没有新鲜事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+没新料前这楼估计又是循环
+
+*****
+
+####  hypnossz86  
+##### 999#       发表于 2022-9-17 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527146&amp;ptid=2094448" target="_blank">Fuero 发表于 2022-9-17 20:01</a>
+翻了几页不出所料，污名化和直球AOE整个玩家群体的氛围我以前也只在主机大战的时候见过，只能说江湖没有新 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁发了个任天堂直面会同接数吊打索尼发布会的帖
+结果下面回帖纷纷表示有op那个拿流水和同接吹逼的味道了
+属实是0079像seed
+
+*****
+
+####  whzfjk  
+##### 1000#       发表于 2022-9-17 20:05
+
+群体盾（
+
+*****
+
+####  MuramasaSP  
+##### 1001#       发表于 2022-9-17 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527101&amp;ptid=2094448" target="_blank">Dmitry 发表于 2022-9-17 19:58</a>
+
+是的，我一般都叫倭叩
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+为什么要挂着倭国黄油女主的头像说这个话
+
