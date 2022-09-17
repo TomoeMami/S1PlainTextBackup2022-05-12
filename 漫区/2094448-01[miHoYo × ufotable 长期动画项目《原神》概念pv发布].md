@@ -9957,3 +9957,66 @@ https://www.jizhazha.co ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  kletka  
+##### 1018#       发表于 2022-9-17 21:11
+
+ 本帖最后由 kletka 于 2022-9-17 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528187&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 21:04</a>
+
+我直到现在都不理解明日方舟和原到底有什么深仇大恨。nga那群人总是莫名其妙开始一转骂方舟。 ...</blockquote>
+很大一部分原因，是nga的版务的锅
+
+倒不如说舟原的骂战，很多事件的根源都是nga
+
+包括血牙酱在内的一众大小版务都涉及到
+
+另外原神的nga版面，出过差不多四次版务的不信任事件，最差的是预设立场和理由开幽夜版，结果塑造出了个类似法外之地兼微博贴吧众殖民地的混合型粪坑，最大的是发现大概率是个精神罕见
+
+当然，如果在nga外比如s1问起，某些人只会像个卡壳的复读机一样在一直吹嘘是米玩家先动手，自己只是正义喷粪和正义殴打
+
+*****
+
+####  monamona  
+##### 1019#       发表于 2022-9-17 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528187&amp;ptid=2094448" target="_blank">5353 发表于 2022-9-17 21:04</a>
+
+我直到现在都不理解明日方舟和原到底有什么深仇大恨。nga那群人总是莫名其妙开始一转骂方舟。 ...</blockquote>
+原批们一开始自己逆天惹了众怒，只能随便挑了个倒霉蛋作为靶子来发泄负面情绪这样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈里-谢顿  
+##### 1020#       发表于 2022-9-17 21:11
+
+原神和粥游怎么会有这么大仇？
+
+
+
+*****
+
+####  baiducaonima  
+##### 1021#       发表于 2022-9-17 21:12
+
+制作肯定不差钱，动画质量有保障
+
+*****
+
+####  unlimited_blade  
+##### 1022#       发表于 2022-9-17 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528140&amp;ptid=2094448" target="_blank">whzfjk 发表于 2022-9-17 21:01</a>
+
+老原黑看到对面直接转头冲明日方舟也很错愕
+
+彼此都有互相不了解的历史因缘
+
+ ...</blockquote>
+原黑=友商水军的说法的信奉者呗，本来就看明日方舟不顺眼的什么人也可以顺势而上，甚至单纯就是想吃瓜看戏，血流成河最好在那里拱火的乐子人也不是不可能。
+
+其实舆论雪球滚得这么大的现在，很难定义清楚的，或者说什么类型动机的人可能都有一些。
+
