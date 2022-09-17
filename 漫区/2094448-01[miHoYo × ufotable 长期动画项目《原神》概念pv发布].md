@@ -8530,3 +8530,73 @@ bbb想割太君韭菜被炎上了而已<img src="https://static.saraba1st.com/im
 
 互联网，很神奇吧
 
+
+
+*****
+
+####  謓言  
+##### 885#       发表于 2022-9-17 16:42
+
+芜湖，上次在漫区追的番还是革命机，最后赌输还被塞了抹布。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kletka  
+##### 886#       发表于 2022-9-17 16:43
+
+ 本帖最后由 kletka 于 2022-9-17 16:47 编辑 
+
+有一说一，原神的loli角色，坐上椅子是有好几种不同动作的，动作特别可爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/17/164715jagoslg48g1yvsbf.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220917164507.jpg</strong> (35.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/164715d7way6ta6s7pgo2t.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220917164617.png</strong> (42.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 16:47 上传
+
+左边是直接一屁股崩上去，右边是手脚并用的爬上去
+
+*****
+
+####  编木马者死户口  
+##### 887#       发表于 2022-9-17 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524832&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-17 16:43</a>
+
+有一说一，原神的loli角色，坐上椅子是有好几种不同动作的，动作特别可爱 ...</blockquote>
+还是太干巴，就光坐在那没个踢腿啥的小动作
+
+*****
+
+####  MaxFOrder  
+##### 888#       发表于 2022-9-17 16:47
+
+你别说，还真不排除不卖圆盘的可能，或者根本不在意圆盘卖多少，这玩意在mhy看来搞不好定位和那些高逼格音乐会一样，我就是图一个回馈玩家赚名声我痛快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尼卡·七浦  
+##### 889#       发表于 2022-9-17 16:49
+
+卖圆盘有个🥚用。在动画里随便塞个新角色，完结后宣布实装，一个卡池直接回本。
+
+*****
+
+####  kletka  
+##### 890#       发表于 2022-9-17 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524880&amp;ptid=2094448" target="_blank">编木马者死户口 发表于 2022-9-17 16:47</a>
+
+还是太干巴，就光坐在那没个踢腿啥的小动作</blockquote>
+这个的确比较少，成人角色基本没啥动作，小女孩角色会有个小幅度的摆腿动作
+
