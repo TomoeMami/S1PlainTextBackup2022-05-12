@@ -6877,3 +6877,75 @@ pv的场景比游戏大气多了，按照这个尺度蒙德璃月也该放大两
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  MaxFOrder  
+##### 735#       发表于 2022-9-17 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521548&amp;ptid=2094448" target="_blank">萝莉的伙伴 发表于 2022-9-17 11:50</a>
+
+不过看有人说前传不应该吧，还那么多角色呢，前传的话不跟现在的角色没关系了
+
+  -- 来自 能看大图的 Stage ...</blockquote>
+换个角度想想没啥关系也挺好的，不影响游戏独占内容捞钱
+
+*****
+
+####  我的爱是订书机  
+##### 736#       发表于 2022-9-17 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521548&amp;ptid=2094448" target="_blank">萝莉的伙伴 发表于 2022-9-17 11:50</a>
+
+不过看有人说前传不应该吧，还那么多角色呢，前传的话不跟现在的角色没关系了
+
+  -- 来自 能看大图的 Stage ...</blockquote>
+角色不都是能活很多年的神吗
+
+*****
+
+####  lucky95  
+##### 737#       发表于 2022-9-17 11:55
+
+唯一指定至尊霸权来了
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  防辐射的  
+##### 738#       发表于 2022-9-17 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521548&amp;ptid=2094448" target="_blank">萝莉的伙伴 发表于 2022-9-17 11:50</a>
+
+不过看有人说前传不应该吧，还那么多角色呢，前传的话不跟现在的角色没关系了
+
+  -- 来自 能看大图的 Stage ...</blockquote>
+只有长生种族永远不输是吧，随便你跳时间线我永远在那里
+
+*****
+
+####  无证madam  
+##### 739#       发表于 2022-9-17 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57521328&amp;ptid=2094448" target="_blank">朔方原的星 发表于 2022-9-17 11:37</a>
+
+今个漫区流量这么高，我一开始以为是因为边缘行者，后来觉得是因为广告哥？点进来一看原来是因为圆神，彳亍 ...</blockquote>
+早上起来看见给我笑喷了 这下百大之路始于足下了
+
+*****
+
+####  七征心  
+##### 740#       发表于 2022-9-17 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515168&amp;ptid=2094448" target="_blank">楠芽吹 发表于 2022-9-16 21:16</a></blockquote>
+这去年哪一期啊，想不起来，找不到啦。虽然这句话很有印象2333
+
+*****
+
+####  icecry  
+##### 741#       发表于 2022-9-17 11:59
+
+吐槽一下，好几个日本主播都认不出飞碟社
+
