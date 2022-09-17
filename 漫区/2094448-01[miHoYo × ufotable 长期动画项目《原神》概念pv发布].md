@@ -7312,3 +7312,53 @@ saki一直是一边工作一边做主播，是挺现成的
 其实公子后面谐星化了，加上没和其它角色有冲突所以其实不是最糟糕的，最糟糕是稻妻这几个，尤其是雷神和散兵，这俩厨子都挺多的，而且还分别是男粉和女粉，稍有不慎就是超级大节奏，游戏里散兵快实装了，我反正已经准备好塔塔开了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 不过能出动画当然是好事，能大改主线甚至不做更好，我本人是希望能多点双子戏份的
 
+
+
+*****
+
+####  dxx9664  
+##### 775#       发表于 2022-9-17 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522425&amp;ptid=2094448" target="_blank">五性八卦 发表于 2022-9-17 12:54</a>
+
+游戏内联动非常少，仅有的两个肯德基和埃洛伊，基本肯定是开服前就定下来的联动。原神的火爆是出乎所有人 ...</blockquote>
+[https://www.douyin.com/video/7144017879912975620](https://www.douyin.com/video/7144017879912975620)
+
+大伟自己说当初开服只想着最好也就是1亿美金流水
+
+最后直接3亿
+
+*****
+
+####  诚司  
+##### 776#       发表于 2022-9-17 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522376&amp;ptid=2094448" target="_blank">哈里-谢顿 发表于 2022-9-17 12:50</a>
+
+不过说起来，原神和其他游戏联动好像真不多，那个索尼的还是上PS4时候的？
+
+是不是因为他这个是3D建模等等 ...</blockquote>
+崩2联动就很多，崩3除了自家原神之外只和eva联动过
+
+应该主要是制作流程就没考虑联动
+
+*****
+
+####  终将不惑  
+##### 777#       发表于 2022-9-17 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522194&amp;ptid=2094448" target="_blank">吴怀在 发表于 2022-9-17 12:35</a>
+马上外野发帖数就超漫区了</blockquote>
+没办法，这才是个预告的预告呢。等正片出了，压倒外野不成问题<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  icecry  
+##### 778#       发表于 2022-9-17 13:20
+
+<blockquote>五性八卦 发表于 2022-9-17 12:54
+游戏内联动非常少，仅有的两个肯德基和埃洛伊，基本肯定是开服前就定下来的联动。原神的火爆是出乎所有人 ...</blockquote>
+米忽悠游戏内不联动的习惯从崩崩崩就开始了，也就是他们走3d化之后，eva纯属老板追梦。因此原神不联动也正常
+
