@@ -12478,3 +12478,112 @@ pv究竟有什么效果啊<img src="https://static.saraba1st.com/image/smiley/fa
 3.0究竟找了个什么高人写主线脚本的，能不能派过去抓一下动画？</blockquote>
 可能你不知道，崩坏3也是路边随便找了个健身教练来当编剧以后剧情开始好起来的。。
 
+
+
+*****
+
+####  kletka  
+##### 1250#       发表于 2022-9-18 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531489&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-18 00:00</a>
+
+双子的牵手和脸那几个镜头&amp;# ...</blockquote>
+不是，我的意思是，双子的那个分镜之前，就是开场派蒙钻树林出来，到温迪的七天神像的那段，有很明显的游戏建模痕迹
+
+*****
+
+####  kyonkoism二号机  
+##### 1251#       发表于 2022-9-18 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531457&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 23:58</a>
+
+不，这怎么看都是3D啊，手绘能画成这样怎么可能，这就是游戏里的场景 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为之前被科普过伤物语开头阿良良木在天台跳楼那段，场景是手绘不是3D，导致我看到这种很像3D但是又有点像2D的部分的时候都不敢下判断了
+
+*****
+
+####  fireawayac  
+##### 1252#       发表于 2022-9-18 00:02
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Buttercry  
+##### 1253#       发表于 2022-9-18 00:03
+
+3.0其实也就那样，只能说主笔很二次元罢了，好多都是轮回读档系的老梗，感觉像个大型田村厨发病现场
+
+*****
+
+####  快乐好难123  
+##### 1254#       发表于 2022-9-18 00:05
+
+<blockquote>大江户战士 发表于 2022-9-17 21:40
+说起来抄袭和黑子，十几年前的cs和cf也差不多
+
+当年贴吧一个劲嘲讽cf小学生，cf那边也是各种爆典，“抄袭cf ...</blockquote>
+抄袭cf其实也是cf黑发明的😹，互联网真是太好玩了
+
+*****
+
+####  小小雪空  
+##### 1255#       发表于 2022-9-18 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531544&amp;ptid=2094448" target="_blank">kyonkoism二号机 发表于 2022-9-18 00:02</a>
+
+因为之前被科普过伤物语开头阿良良木在天台跳楼那段，场景是手绘不是3D，导致我看到这种很像3D但 ...</blockquote>
+阿良良木在天台跳楼那段我感觉也很2D的，个人感觉3D是很难表达那种效果……
+
+*****
+
+####  Oshino57  
+##### 1256#       发表于 2022-9-18 00:07
+
+提示: 该帖被管理员或版主屏蔽
+
+*****
+
+####  kyonkoism二号机  
+##### 1257#       发表于 2022-9-18 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531554&amp;ptid=2094448" target="_blank">fireawayac 发表于 2022-9-18 00:02</a>
+
+还真不知道，我是个游戏玩家，最近几年没怎么看新番了，如果没带恶意的话，我道歉。
+
+等等，那为什么版主 ...</blockquote>
+[https://www.bilibili.com/video/BV1nP4y1o79x](https://www.bilibili.com/video/BV1nP4y1o79x)
+
+可以看一下，也不是新番，是一个坛友做的新番吐槽栏目，赶着原神动画企划的档加急出视频蹭热度，本质是乐子人，恨透了鬼灭咒术马娘东万尤其是马娘，很爱EVA，前面的内容你都当巨魔讲段子，最后聊到庵野真情实感就出来了，蛮乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大江户战士  
+##### 1258#       发表于 2022-9-18 00:09
+
+ 本帖最后由 大江户战士 于 2022-9-18 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531541&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-18 00:02</a>
+
+不是，我的意思是，双子的那个分镜之前，就是开场派蒙钻树林出来，到温迪的七天神像的那段，有很明显的游 ...</blockquote>
+这个pv所有的背景都是3d的吧
+
+ufo用3d背景也算是老手了，不过以前都是只有打斗中激烈运镜才会用3d背景
+
+那个瀑布的水明显是3d软件物理演算出来的，效果有点奇怪
+
+*****
+
+####  黄字  
+##### 1259#       发表于 2022-9-18 00:09
+
+<blockquote>Buttercry 发表于 2022-9-18 00:03
+3.0其实也就那样，只能说主笔很二次元罢了，好多都是轮回读档系的老梗，感觉像个大型田村厨发病现场 ...</blockquote>
+轮回系玩的越多才越觉得这段水平高，他整段几乎没有什么让你重复操作的地方和演出，并不是那种为了让你带入才做的轮回，为的就是让你尽快看明白，这和很多轮回系卖点就是故弄玄虚很不同，如果不是非常了解轮回系eroge绝对做不出来。
+
+*****
+
+####  wildarm  
+##### 1260#       发表于 2022-9-18 00:09
+
+这PV画背景就交差了？没啥动作镜头，两个呆呆站着
+
