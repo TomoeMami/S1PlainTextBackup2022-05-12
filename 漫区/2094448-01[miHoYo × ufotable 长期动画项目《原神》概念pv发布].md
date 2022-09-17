@@ -9896,3 +9896,26 @@ https://www.jizhazha.co ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kletka  
+##### 1012#       发表于 2022-9-17 20:53
+
+将网络垃圾话当成力量，在漫威世界，多少可以叫做 垃圾·人
+
+*****
+
+####  稀勢のささ  
+##### 1013#       发表于 2022-9-17 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真能聊啊
+
+*****
+
+####  小小雪空  
+##### 1014#       发表于 2022-9-17 21:00
+
+没有所谓的，我在这楼的定位是纯路人，就算有人骂OP也没有什么大事，毕竟感觉不是攻击我，不过原黑的管人痴味道真是大到爆炸……
+
