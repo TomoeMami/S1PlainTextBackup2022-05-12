@@ -12754,3 +12754,34 @@ ufo本来就非常擅长3d cg和2d作画的融合，但我觉得米哈游可能�
 
 和年初fgo空境联动pv对比，渲染风格有很大区别
 
+
+
+*****
+
+####  快乐好难123  
+##### 1275#       发表于 2022-9-18 00:34
+
+看了下绝区零的pv（这只是游戏里的实时过场吧，要是原也能有这水平的过场，也不用在没有成功先例的中日合作上花钱了
+
+*****
+
+####  消防  
+##### 1276#       发表于 2022-9-18 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531751&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-18 00:12</a>
+
+说不定背景都不是ufo画的（</blockquote>
+港道理这PV效果就挺不伦不类的，一部分追求真实感一部分又卡通话
+
+原神跟着野吹的设计，角色和美术风格至少挺统一，UFO 3D背景能力做游戏动画也就糊一下纯2D纸片人纸片背景的（譬如fate）和小投资兼风格还不成熟的3D游戏（譬如传说系列）
+
+*****
+
+####  AraTurambar  
+##### 1277#       发表于 2022-9-18 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57530957&amp;ptid=2094448" target="_blank">诚司 发表于 2022-9-17 23:32</a>
+
+fgo索尼都没兜底，鬼佬占领的SIE影响力比SME差多了，何况无论SIE还是游戏都和SME还是竞争对手 ...</blockquote>
+比起业界影响力什么的，可能还是工期更重要，慢慢磨工期跟着监控催着改钱给够总能做好。
+
