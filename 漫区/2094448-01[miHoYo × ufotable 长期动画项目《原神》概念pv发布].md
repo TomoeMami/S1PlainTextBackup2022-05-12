@@ -6410,3 +6410,32 @@ syl：对我来说来自深渊和战锤之类的这种设定轰炸的作品和�
 节目里提到冬夜愚戏热度超出预期，我估计UFO这个就是用正经动画代替L2D做类似的短片，1.5-3个月出一集的短 ...</blockquote>
 不是没可能，但要真的前瞻里没说清楚结果只是做短片那可不得被冲死。。
 
+
+
+*****
+
+####  AP0rt_  
+##### 690#       发表于 2022-9-17 09:31
+
+首先中日合拍就没见到过好玩意儿，其次按飞碟桌的档期来看。。。得好久之后了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sandro  
+##### 691#       发表于 2022-9-17 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57519775&amp;ptid=2094448" target="_blank">七千星 发表于 2022-9-17 09:09</a>
+前期大量描写因将军政策导致的民间疾苦,故事最后将军陪主角逛逛街,顺便说我错了道个歉,故事就结束了,没有 ...</blockquote>
+三奉行被清算了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 692#       发表于 2022-9-17 09:35
+
+主线大部分时间都在站桩balabala，说设定、卖弄杂学、玩尬梗抖机灵，可能是mhy对字数有要求，写手就各种水。
+
+改编的话会把水分去掉，体验怎么样都会比原作好的，而且还能拖进度条2倍速播放<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
