@@ -2873,3 +2873,12 @@ elona算是rpg吗
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zet  
+##### 313#       发表于 2022-9-18 01:32
+
+lofter上立绘有人存吗？ 我也想问
+
