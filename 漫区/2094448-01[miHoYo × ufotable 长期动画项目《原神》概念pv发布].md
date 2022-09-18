@@ -14024,3 +14024,28 @@ ufo近年唯二一次调动情绪直接让它升天了（
  ...</blockquote>
 没啥啊，公布动画后推特也开了，就是到时候专门放动画消息的号而已
 
+
+
+*****
+
+####  消防  
+##### 1393#       发表于 2022-9-18 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57539374&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 15:42</a>
+
+因为男主是长发吧，妹妹反而是短发。BL二创中常年被压在下面，男主这又耳环又露脐的，有句话怎么说来着" ...</blockquote>
+男主长发女主短发算最少用的一种组合了
+
+而且原神对少年角色的把握很棒，正是刚开始长身体的四肢修长体格柔软雌雄莫辨的时期，多一分都是恶臭宅男味（看隔壁型月）
+
+*****
+
+####  尼卡·七浦  
+##### 1394#       发表于 2022-9-18 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57540388&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 17:10</a>
+刚发现米忽悠在B站单独开了一个账号“原神动画项目”，怎么有种大的要来了的感觉
+
+ ...</blockquote>
+主楼不是写了吗
+
