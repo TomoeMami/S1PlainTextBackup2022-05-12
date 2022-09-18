@@ -13538,3 +13538,22 @@ ufoable又不是没其他活儿了</blockquote>
 
 自机bg如果是玩家成分单纯的游戏根本不敢有，归终只是个镜子而已
 
+
+
+*****
+
+####  jyky  
+##### 1347#       发表于 2022-9-18 11:35
+
+怎么又开始归终了，有一说一，现在想要归终自机的大部分都是想恶心解解而不是真喜欢这个卫星想她落地，那米桑得罪一方再出一个根本没什么人想抽的自机不是纯吃力不讨好给自己找事吗，想通这个米桑埋了归终就很正常了，爱丽丝那种女方先出男方没啥存在感的夫妻就还好，当然以后落地肯定也免不了有自绿党
+
+*****
+
+####  kxh007458  
+##### 1348#       发表于 2022-9-18 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533304&amp;ptid=2094448" target="_blank">新吾 发表于 2022-9-18 02:39</a>
+
+一个pv能水44页，漫区昨天久违的赢了游戏区，等到播第一集能赢外野吗 ...</blockquote>
+到时直接转进到外野，到底谁文化入侵谁，然后外野就赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

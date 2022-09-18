@@ -2925,3 +2925,23 @@ lofter上立绘有人存吗？ 我也想问
 lofter上立绘有人存吗？ 我也想问</blockquote>
 头像是尤利娅吗？求个原图<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chaucerling  
+##### 318#       发表于 2022-9-18 11:33
+
+发行是轻语吗，那本地化翻译有轻语和天角这两个经验丰富的和卷大的译本，基本不用担心了
+
+立绘也很还原原作的特点，就差音乐这块了
+
+*****
+
+####  pandaman7777  
+##### 319#       发表于 2022-9-18 11:39
+
+那就等重制版再补了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好事
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
