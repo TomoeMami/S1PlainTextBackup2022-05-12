@@ -13309,3 +13309,26 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 比起钟离和若陀的故事我更想看归终和钟离，最重要是可以看到归钟CP让集美们破防 ...</blockquote>
 我超别，到时候再反手举办就不好玩了，我个人的意见是动画最好别搞太激进的CP
 
+
+
+*****
+
+####  751984871  
+##### 1326#       发表于 2022-9-18 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532840&amp;ptid=2094448" target="_blank">theworld 发表于 2022-9-18 01:41</a>
+
+一万多人投票最后五五开</blockquote>
+好奇两边投票的性别成分。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+选男主是想舔男主的小姐姐多，还是想代入男主甩帅并且看不惯女人甩帅的大老爷多？
+
+选女主的又是LSP多，还是当妹妹当女儿看的阿姨多？
+
+*****
+
+####  やト  
+##### 1327#       发表于 2022-9-18 09:37
+
+你看个动画又不是生小孩，看女主不好么，  碧蓝幻想的姬塔回不比古兰的主线正片好玩有趣得多？
+

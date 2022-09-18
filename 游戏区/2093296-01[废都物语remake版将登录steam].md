@@ -2913,3 +2913,15 @@ lofter上立绘有人存吗？ 我也想问
 <img src="https://p.sda1.dev/7/4c5ddc80e704efc6cb8fea7f01ed9743/610955.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/0ea3aeb6debeb126c296f0a6d3cbc0cf/610956.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谈月色  
+##### 317#       发表于 2022-9-18 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57532751&amp;ptid=2093296" target="_blank">zet 发表于 2022-9-18 01:32</a>
+
+lofter上立绘有人存吗？ 我也想问</blockquote>
+头像是尤利娅吗？求个原图<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
