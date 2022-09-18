@@ -13276,3 +13276,15 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 虽然这种玩法得是原把七国出完了剧情讲得差不多了才比较适用。坎瑞亚部分的剧情要是抖出来了那真的就只剩天理这条底裤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  故事会  
+##### 1323#       发表于 2022-9-18 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531926&amp;ptid=2094448" target="_blank">kyonkoism二号机 发表于 2022-9-18 00:23</a>
+
+没有羽毛最爱的村姑跳舞我不是很认可，这可是能让一个游戏终极老逼再次感受到游戏能带来的最纯粹 ...</blockquote>
+明明是假爱，连等级都不提升下<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
