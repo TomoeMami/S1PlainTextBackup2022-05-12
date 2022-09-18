@@ -12593,3 +12593,19 @@ wrba单红就判死刑了，至少俩ba混吧
 
 毕竟他也就能搞搞内政了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白金口袋  
+##### 2633#       发表于 2022-9-18 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542512&amp;ptid=2084912" target="_blank">zooandtoo 发表于 2022-9-18 19:53</a>
+
+三成比起太阁的恩情更想证明不是自己不行吧
+
+毕竟人皆为己
+
+但你就是不行啊</blockquote>
+想起纪大人名言：“刑部，你就是不行！”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
