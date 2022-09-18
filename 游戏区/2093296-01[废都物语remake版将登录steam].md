@@ -3005,3 +3005,12 @@ lofter上立绘有人存吗？ 我也想问</blockquote>
 
 PV：[https://youtu.be/zc78hfduqgo](https://youtu.be/zc78hfduqgo)
 
+
+
+*****
+
+####  Ehekatl  
+##### 326#       发表于 2022-9-18 18:17
+
+好好好好好好好好，BGM也是原版的重置，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

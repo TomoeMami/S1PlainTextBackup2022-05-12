@@ -12532,3 +12532,12 @@ wrba单红就判死刑了，至少俩ba混吧
 
 今天驹姬的新差分有点吓人啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2627#       发表于 2022-9-18 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别告诉我利休这体重是约30颗人头的重量……
+
