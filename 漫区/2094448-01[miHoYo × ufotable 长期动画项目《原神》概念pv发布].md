@@ -14161,3 +14161,16 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 原神一点儿也不百合，百合的cp也大多不掺合主角
 
+
+
+*****
+
+####  s7syphus  
+##### 1406#       发表于 2022-9-19 04:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57538757&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 14:51</a>
+我说了可能要被打成米卫兵，但我还是要说ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画 ...</blockquote>
+真要说大场面，飞碟肯定还是比○强啊，○的过场小场面都还可以，看看风起鹤归打奥赛尔老婆那里的那几个弓兵我都想笑。说起崩三的过场动画是不是khara做的？我觉得薪炎永燃做的还挺不错的，无论是作画还是音乐，真能拉来做原神动画这又何尝不是一种ntr<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
