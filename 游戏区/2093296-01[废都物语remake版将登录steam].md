@@ -3134,3 +3134,32 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 话说这就是美术重绘版本吧，其他的不用动，角川也能搞得来
 
+
+
+*****
+
+####  无悼一人庸  
+##### 338#       发表于 2022-9-18 21:22
+
+操作方式希望能加入手柄，
+
+另外看这意思，应该是刚刚开始<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 339#       发表于 2022-9-18 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543691&amp;ptid=2093296" target="_blank">无悼一人庸 发表于 2022-9-18 21:22</a>
+操作方式希望能加入手柄，
+
+另外看这意思，应该是刚刚开始</blockquote>
+就上下左右回车几个键位，映射一下就好啦
+
+*****
+
+####  流川枫枫  
+##### 340#       发表于 2022-9-18 21:27
+
+仅仅求个mac版！！！
+
