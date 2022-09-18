@@ -12509,3 +12509,17 @@ wrba单红就判死刑了，至少俩ba混吧
 
 话说我更心疼魔总被砍的那一刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 2625#       发表于 2022-9-18 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57527399&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-17 20:16</a>
+
+虽然我知道这楼里根本没人在乎剧情，但是我搞不懂三成这货反正都要复活个丰臣为啥不选猴子而选儿子啊[f:117 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">或许，因为野史传的石田三成跟茶茶有不清不楚的关系（x
+
+正经讲，可能猴子临死把丰臣家交到了他手上，结果这货菜的不行直接害的丰臣家灭亡，为了弥补遗憾就复活秀赖再来一次。
+

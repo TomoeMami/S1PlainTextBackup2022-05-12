@@ -13861,3 +13861,17 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 飞碟桌做动画只会按部就班的改编，从空境开始一直都是这样，到了鬼灭愈发束手束脚 ...</blockquote>
 我说了可能要被打成米卫兵，但我还是要说ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大江户战士  
+##### 1377#       发表于 2022-9-18 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57538757&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 14:51</a>
+
+我说了可能要被打成米卫兵，但我还是要说ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画 ...</blockquote>
+往好的方面想，ufo很擅长好钢用在刀刃上，鬼灭原作那么烂的战斗都能给拍出花来
+
+我觉得可以拿情热传说当参考
+
