@@ -12541,3 +12541,12 @@ wrba单红就判死刑了，至少俩ba混吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别告诉我利休这体重是约30颗人头的重量……
 
+
+
+*****
+
+####  白金口袋  
+##### 2628#       发表于 2022-9-18 18:34
+
+没有什么比揭露所有人都猜到的谜题的谜底更无聊的了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
