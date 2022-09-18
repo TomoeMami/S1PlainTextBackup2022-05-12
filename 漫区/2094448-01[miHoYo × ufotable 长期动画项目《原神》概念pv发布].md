@@ -13982,3 +13982,12 @@ ufo近年唯二一次调动情绪直接让它升天了（
 
 这楼开始不切实际的幻想，那我奶一个【成为偶像】吧×
 
+
+
+*****
+
+####  绯田美琴  
+##### 1389#       发表于 2022-9-18 16:31
+
+芭芭拉不就能成为偶像？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
