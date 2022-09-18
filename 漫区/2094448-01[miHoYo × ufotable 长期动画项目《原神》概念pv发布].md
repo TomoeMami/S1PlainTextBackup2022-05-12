@@ -13252,3 +13252,27 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 我觉得处理男女主争议最好的方法就是轮流登场，讲一段荧在500年前第一次旅行的故事，再讲一段空在同一个地点现在旅行的故事
 
+
+
+*****
+
+####  icecry  
+##### 1321#       发表于 2022-9-18 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534265&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 08:49</a>
+
+我觉得处理男女主争议最好的方法就是轮流登场，讲一段荧在500年前第一次旅行的故事，再讲一段空在同一个地 ...</blockquote>
+双时间线动画，感觉难度有点高
+
+*****
+
+####  Ronu  
+##### 1322#       发表于 2022-9-18 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534265&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 08:49</a>
+
+我觉得处理男女主争议最好的方法就是轮流登场，讲一段荧在500年前第一次旅行的故事，再讲一段空在同一个地 ...</blockquote>
+像来自深渊黄金乡这样，围绕不同场景在莉可队和罡甲之间切换视角补全故事背景的方式感觉是可以的
+
+虽然这种玩法得是原把七国出完了剧情讲得差不多了才比较适用。坎瑞亚部分的剧情要是抖出来了那真的就只剩天理这条底裤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
