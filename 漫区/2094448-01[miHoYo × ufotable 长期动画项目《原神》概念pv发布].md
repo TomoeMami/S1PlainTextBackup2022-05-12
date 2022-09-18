@@ -14142,3 +14142,22 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 会做成百合贴贴作品引发河豚和老婆党大战吗
 
+
+
+*****
+
+####  诚司  
+##### 1404#       发表于 2022-9-19 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57546501&amp;ptid=2094448" target="_blank">fgddf 发表于 2022-9-19 00:40</a>
+
+会做成百合贴贴作品引发河豚和老婆党大战吗</blockquote>
+这不是pcr也不是崩坏3，做百合贴贴首先被集美炎上
+
+*****
+
+####  mimighost  
+##### 1405#       发表于 2022-9-19 01:37
+
+原神一点儿也不百合，百合的cp也大多不掺合主角
+
