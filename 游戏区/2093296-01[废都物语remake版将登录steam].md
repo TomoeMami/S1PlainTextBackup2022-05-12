@@ -3023,3 +3023,14 @@ PV：[https://youtu.be/zc78hfduqgo](https://youtu.be/zc78hfduqgo)
 
 RM游戏三大神作那个我记得是废都物语、帽子世界、梦日记
 
+
+
+*****
+
+####  北野苍术  
+##### 328#       发表于 2022-9-18 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 看了PV感觉比预想的好
+
+地图精细化感觉还是挺保留原味的
+
