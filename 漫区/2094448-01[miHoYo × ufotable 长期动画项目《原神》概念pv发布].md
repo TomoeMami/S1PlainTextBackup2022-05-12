@@ -13819,3 +13819,26 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 国内萤碾压，日本那边不清楚应该也是萤多，英文社区的话之前有个投票记得是55开 ...</blockquote>
 推特女的多
 
+
+
+*****
+
+####  eienyami  
+##### 1373#       发表于 2022-9-18 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534265&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 08:49</a>
+我觉得处理男女主争议最好的方法就是轮流登场，讲一段荧在500年前第一次旅行的故事，再讲一段空在同一个地 ...</blockquote>
+原神不好处理，因为一个在现在剧情里是黑的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以谁登场主线那另一个就黑了，在某个剧情留下冷漠的背影
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jyky  
+##### 1374#       发表于 2022-9-18 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57537076&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-18 12:48</a>
+
+其实完全可以不往bg方向写的，目前文案顶多是有点暧昧，但往战友方向展开，写成一个能独自行走的，有魅力 ...</blockquote>
+高人气的角色很难了，远的就不说了已经埋了，近的就愚人众的那几个打算拿出来卖的，男女之间要不就是不熟要不就是不熟且关系不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
