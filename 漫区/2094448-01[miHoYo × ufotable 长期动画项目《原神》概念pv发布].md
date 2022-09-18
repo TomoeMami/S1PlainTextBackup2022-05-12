@@ -13935,3 +13935,24 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 ufo近年唯二一次调动情绪直接让它升天了（
 
+
+
+*****
+
+####  冰冻火柴  
+##### 1384#       发表于 2022-9-18 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57539331&amp;ptid=2094448" target="_blank">穷且坚强着 发表于 2022-9-18 15:37</a>
+
+二游受众还是男性居多，对荧妹肯定是天生更有好感的
+
+动画主角我更希望是空哥来，主要是空哥这一副烧0样 ...</blockquote>
+因为男主是长发吧，妹妹反而是短发。BL二创中常年被压在下面，男主这又耳环又露脐的，有句话怎么说来着"你比你妹sao多了"<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Corfu丶  
+##### 1385#       发表于 2022-9-18 15:47
+
+更好奇卖不卖碟塞不塞游戏道具，给碟片市场以及壁吧那伙人送上终极一击<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
