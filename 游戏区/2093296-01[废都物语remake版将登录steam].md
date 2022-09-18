@@ -3181,3 +3181,12 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 有点原汁原味的感觉了
 
+
+
+*****
+
+####  s32244153  
+##### 343#       发表于 2022-9-18 22:20
+
+题外话 不知道能不能附赠个RM2K的原版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
