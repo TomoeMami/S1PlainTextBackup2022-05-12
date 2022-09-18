@@ -3034,3 +3034,35 @@ RM游戏三大神作那个我记得是废都物语、帽子世界、梦日记
 
 地图精细化感觉还是挺保留原味的
 
+
+
+*****
+
+####  whzfjk  
+##### 329#       发表于 2022-9-18 19:05
+
+新立绘整体软化了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 330#       发表于 2022-9-18 19:07
+
+ 本帖最后由 宛若青空 于 2022-9-18 19:10 编辑 
+
+PV里美术背景的对比来看，重制版的美术风格可以看出来是尽量贴近原作的风格来制作的，色彩也用得很克制；
+
+角色立绘、背景美术、音乐、甚至连中文文本都让人很安心，该不会推动这个重制版的人真的是某个成为大老板的粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+（现在就希望国内的天闻角川不要抱着想过审的想法去和谐掉什么了）
+
+图片上是原版，下是重制版。
+<img src="https://img.gejiba.com/images/60f182a80e302d1644b5a056165a4a26.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/c94397168b30187d37948a80c06b47a6.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/98d70159f685781b73de4e64a09b3425.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/89315d592c839ea2185896403d4ef1fe.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/f1ea03be0bfd119fbb72a76bf0710444.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/6542217cd3205aa2a2c4121ee00d987e.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/87998c989746ff556b73c5f6fef02df9.jpg" referrerpolicy="no-referrer">
+<img src="https://img.gejiba.com/images/3310c5621489dea9de4fad0b9431c7eb.jpg" referrerpolicy="no-referrer">
+
