@@ -13432,3 +13432,37 @@ ufoable又不是没其他活儿了</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  jyky  
+##### 1337#       发表于 2022-9-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534628&amp;ptid=2094448" target="_blank">751984871 发表于 2022-9-18 09:35</a>
+
+好奇两边投票的性别成分。
+
+选男主是想舔男主的小姐姐多，还是想代入男主甩帅并且看不惯女人甩帅的 ...</blockquote>
+我选的男主，因为想看反主妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism二号机  
+##### 1338#       发表于 2022-9-18 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534214&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-18 08:43</a>
+
+主要是动画+音乐烘托的好，这方面米很擅长带动人的感情，比如逐月，海灯节动画，层岩动画。其实原最好的 ...</blockquote>
+我觉得鹤观的剧情也很好，但是神樱大祓鹤观森林书这种大型地图支线也算是主线的一部分了，做了就剧透
+
+*****
+
+####  亚崔迪公爵  
+##### 1339#       发表于 2022-9-18 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57533801&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-09-18 06:04:53</a>
+我也希望把隐藏历史做一下，尤其是七神聚会、各国刚建立时的故事，但这种做法就不是吸引新玩家吧，这明显 ...</blockquote>其实如果不专门去看考据，了解这些暗线剧情的老玩家比例应该不太大的，毕竟信息比较零散。动画视角还可以稍微取巧，不是用主角而是用旁边普通人的视角去表现。例如女士剧情就用蒙德普通民众视角，白夜国就用乌帽子的视角。最好是让没看过考据的观众一时间猜不出来故事原型，等结局时再一棍子打醒，这样的观感就最好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
