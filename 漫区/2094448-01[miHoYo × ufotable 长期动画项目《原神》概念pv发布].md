@@ -13767,3 +13767,34 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 前两天手游区楼猜的，归终是男的钟离是女的，钟离为了纪念原配所以用了归终的样子。整点大药。 ...</blockquote>
 钟离是妹子那大药就不是钟离和归钟，而是钟离和胖陀了吧…………
 
+
+
+*****
+
+####  吴怀在  
+##### 1368#       发表于 2022-9-18 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522194&amp;ptid=2094448" target="_blank">吴怀在 发表于 2022-9-17 12:35</a>
+马上外野发帖数就超漫区了</blockquote>
+原不如蒜。昨天这会儿外野发帖已追上漫区，今天现在漫区发帖数还远超外野
+
+*****
+
+####  zzggo  
+##### 1369#       发表于 2022-9-18 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57537268&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-18 13:00</a>
+
+一斗九条这对CP我以前就觉得莫名其妙，一个行政执法人员为什么就能跟一个涉嫌扰乱治安的流氓拉上CP关系？至 ...</blockquote>
+伊利丹马维都能炒cp还有啥对立关系的cp吵不起来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小雪空  
+##### 1370#       发表于 2022-9-18 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57537877&amp;ptid=2094448" target="_blank">吴怀在 发表于 2022-9-18 13:42</a>
+
+原不如蒜。昨天这会儿外野发帖已追上漫区，今天现在漫区发帖数还远超外野 ...</blockquote>
+一个连PV都算不上的概念视频，你们能聊这么多，已经很让人意外了……
+
