@@ -13583,3 +13583,26 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 口嗨的比较多，但bg党是真实存在的，要不然也不会巨魔到给人做二创，而且没有意识到自己会给别人添麻烦。 ...</blockquote>
 我是欢迎搞bg的，但手游搞cp的安全区就是同性cp，非ml的bg只要还想卖卡就趁早别搞，远的迪卢克和琴不也埋了，上次手游区专楼有人拉皇女和班尼特都有厨子受不了，如果给高人气女自机搞bg怕是只会被炎上得更狠，你游玩家基数大，邪教bg也有人产出，大小姐和万叶，神子和绫人的同人其实也不少，bg真的只能玩家自己私下搞搞算了，也不知道现在怎么会变成这个风气
 
+
+
+*****
+
+####  月杜  
+##### 1351#       发表于 2022-9-18 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536075&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 11:35</a>
+
+怎么又开始归终了，有一说一，现在想要归终自机的大部分都是想恶心解解而不是真喜欢这个卫星想她落地，那米 ...</blockquote>
+讲道理，二游这种看脸的世界，只要放出来的归终人设够好看立马就能养出死忠厨子，然后变成解解和giegie一起破防<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kletka  
+##### 1352#       发表于 2022-9-18 12:09
+
+其实想出归终的
+除了乐子人和bg党
+也有我这种单纯想出归终的人
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
