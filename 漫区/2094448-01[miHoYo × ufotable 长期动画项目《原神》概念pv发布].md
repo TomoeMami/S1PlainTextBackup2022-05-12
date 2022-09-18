@@ -13747,3 +13747,23 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 基本就是莽撞老大，加女手下，加女公家宿敌（女警女检察官之类的）的标准混混系男主角配置了
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 1366#       发表于 2022-9-18 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57518784&amp;ptid=2094448" target="_blank">stonego 发表于 2022-9-17 02:00</a>
+都600楼了就没有玩过游戏正经讨论PV内容的？开头的两颗紫星，大量没见过的地形和一个没见过的遗迹，结尾同 ...</blockquote>
+这pv就差左上角摆四个白色大字“请您欣赏”了，有啥剧情上的要素可讨论么
+
+*****
+
+####  jhjy217  
+##### 1367#       发表于 2022-9-18 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57535053&amp;ptid=2094448" target="_blank">AraTurambar 发表于 2022-9-18 10:12</a>
+前两天手游区楼猜的，归终是男的钟离是女的，钟离为了纪念原配所以用了归终的样子。整点大药。 ...</blockquote>
+钟离是妹子那大药就不是钟离和归钟，而是钟离和胖陀了吧…………
+
