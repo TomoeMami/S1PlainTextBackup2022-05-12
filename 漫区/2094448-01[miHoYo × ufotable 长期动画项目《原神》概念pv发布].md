@@ -13991,3 +13991,22 @@ ufo近年唯二一次调动情绪直接让它升天了（
 
 芭芭拉不就能成为偶像？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 1390#       发表于 2022-9-18 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57539439&amp;ptid=2094448" target="_blank">Corfu丶 发表于 2022-9-18 15:47</a>
+
+更好奇卖不卖碟塞不塞游戏道具，给碟片市场以及壁吧那伙人送上终极一击 ...</blockquote>
+放个皮肤进去应该会成为历史吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰冻火柴  
+##### 1391#       发表于 2022-9-18 17:10
+
+刚发现米忽悠在B站单独开了一个账号“原神动画项目”，怎么有种大的要来了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
