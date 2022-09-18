@@ -13807,3 +13807,15 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 九条一斗的交流好玩啊，而且起码还有个交流呢，有些邪道CP脸都没见过就发糖发到飞起才神奇
 
+
+
+*****
+
+####  东郃子  
+##### 1372#       发表于 2022-9-18 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534786&amp;ptid=2094448" target="_blank">icecry 发表于 2022-9-18 09:49</a>
+
+国内萤碾压，日本那边不清楚应该也是萤多，英文社区的话之前有个投票记得是55开 ...</blockquote>
+推特女的多
+
