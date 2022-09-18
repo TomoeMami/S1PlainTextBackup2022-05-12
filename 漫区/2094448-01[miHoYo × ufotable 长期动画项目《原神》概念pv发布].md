@@ -13288,3 +13288,12 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 没有羽毛最爱的村姑跳舞我不是很认可，这可是能让一个游戏终极老逼再次感受到游戏能带来的最纯粹 ...</blockquote>
 明明是假爱，连等级都不提升下<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  穷且坚强着  
+##### 1324#       发表于 2022-9-18 09:14
+
+比起钟离和若陀的故事我更想看归终和钟离，最重要是可以看到归钟CP让集美们破防<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
