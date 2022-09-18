@@ -3086,3 +3086,15 @@ PV里美术背景的对比来看，重制版的美术风格可以看出来是尽
 
 原版幻都那段笛声出来，真的是让人百感交集，仿佛桑海桑田时过境迁就在眼前
 
+
+
+*****
+
+####  厄斯沃穆  
+##### 333#         楼主| 发表于 2022-9-18 20:29
+
+重制版PV已出，地址：https://youtu.be/zc78hfduqgo
+b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトトレイラー  废都物语重制版正式pv-哔哩哔哩】 https://b23.tv/jnaWjsX
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
