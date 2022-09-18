@@ -14010,3 +14010,17 @@ ufo近年唯二一次调动情绪直接让它升天了（
 
 刚发现米忽悠在B站单独开了一个账号“原神动画项目”，怎么有种大的要来了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  icecry  
+##### 1392#       发表于 2022-9-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57540388&amp;ptid=2094448" target="_blank">冰冻火柴 发表于 2022-9-18 17:10</a>
+
+刚发现米忽悠在B站单独开了一个账号“原神动画项目”，怎么有种大的要来了的感觉
+
+ ...</blockquote>
+没啥啊，公布动画后推特也开了，就是到时候专门放动画消息的号而已
+
