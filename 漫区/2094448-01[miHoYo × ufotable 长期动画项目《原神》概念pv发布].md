@@ -13875,3 +13875,26 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 我觉得可以拿情热传说当参考
 
+
+
+*****
+
+####  冰冻火柴  
+##### 1378#       发表于 2022-9-18 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57539012&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-18 15:10</a>
+
+往好的方面想，ufo很擅长好钢用在刀刃上，鬼灭原作那么烂的战斗都能给拍出花来
+
+我觉得可以拿情热传说当参 ...</blockquote>
+我觉得鬼灭漫画那种压抑的气氛渲染的很好，当时没动画化时就有一票吹粉，反而是动画0.75倍速把大部分剧情弄得拖沓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果原神动画真按游戏剧情做，那做几场华丽的战斗也算成功，好歹出几个GIF图当梗用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a29156871  
+##### 1379#       发表于 2022-9-18 15:31
+
+感觉大概率还是做主线，不过会扩充内容，加上多方视角，这样既解决游戏里篇幅跟第一视角产生的问题又能增加各个自机的戏份，做前传还要重新设计各种东西，到时候跟游戏后期内容产生冲突也麻烦，做日常也没必要找飞碟
+
