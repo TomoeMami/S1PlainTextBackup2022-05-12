@@ -13212,3 +13212,43 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实能不能把魔神战争做出来，我要看七神打架啊
 
+
+
+*****
+
+####  icecry  
+##### 1317#       发表于 2022-9-18 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57531312&amp;ptid=2094448" target="_blank">kyonkoism二号机 发表于 2022-9-17 23:51</a>
+
+其实原在3.0之前只要是受好评的剧情，基本都是什么活动剧情啦，个人剧情啦，像宝可梦那样做个人故事或者那 ...</blockquote>
+主要是动画+音乐烘托的好，这方面米很擅长带动人的感情，比如逐月，海灯节动画，层岩动画。其实原最好的剧情都是无配音的支线，神樱大祓，森林书。
+
+*****
+
+####  物理毒狗  
+##### 1318#       发表于 2022-9-18 08:43
+
+ 本帖最后由 物理毒狗 于 2022-9-18 08:45 编辑 
+
+单论这pv，我觉得挺莫名其妙的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">让我想起老滚6那个空头支票pv，当然这边时长多点
+
+*****
+
+####  starash  
+##### 1319#       发表于 2022-9-18 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534218&amp;ptid=2094448" target="_blank">物理毒狗 发表于 2022-9-18 08:43</a>
+
+单论这pv，我觉得挺莫名其妙的让我想起老滚6那个空头支票pv，当然这边时长多点 ...</blockquote>
+其实不能叫P（review）V
+
+应该叫B（anner）V
+
+*****
+
+####  冰冻火柴  
+##### 1320#       发表于 2022-9-18 08:49
+
+我觉得处理男女主争议最好的方法就是轮流登场，讲一段荧在500年前第一次旅行的故事，再讲一段空在同一个地点现在旅行的故事
+
