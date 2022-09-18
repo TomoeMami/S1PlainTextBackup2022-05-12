@@ -12559,3 +12559,28 @@ wrba单红就判死刑了，至少俩ba混吧
 
 好家伙，比仁王的三成还low，三十秒被翻盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zooandtoo  
+##### 2630#       发表于 2022-9-18 19:53
+
+ 本帖最后由 zooandtoo 于 2022-9-18 19:55 编辑 
+
+三成比起太阁的恩情更想证明不是自己不行吧
+
+毕竟人皆为己
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你就是不行啊
+
+不如说这种三句不离刺的说话方式猴子挂了居然没被人砍死？
+
+*****
+
+####  xiongxingyu  
+##### 2631#       发表于 2022-9-18 19:57
+
+11区的创作者们在迫害治部少辅上真是出奇地一致啊，我就没见过哪个作品里三成不吃瘪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这反转简直杀人诛心。什么，原来你是反贼？你也是反贼？你们都是反贼？其实我才是真正的反贼？
+
+光三成最后那个表情我就能下三碗饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
