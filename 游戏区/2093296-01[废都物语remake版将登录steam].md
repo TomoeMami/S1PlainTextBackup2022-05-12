@@ -3014,3 +3014,12 @@ PV：[https://youtu.be/zc78hfduqgo](https://youtu.be/zc78hfduqgo)
 
 好好好好好好好好，BGM也是原版的重置，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fufusako  
+##### 327#       发表于 2022-9-18 18:49
+
+RM游戏三大神作那个我记得是废都物语、帽子世界、梦日记
+
