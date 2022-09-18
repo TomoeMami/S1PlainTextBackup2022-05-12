@@ -3066,3 +3066,12 @@ PV里美术背景的对比来看，重制版的美术风格可以看出来是尽
 <img src="https://img.gejiba.com/images/87998c989746ff556b73c5f6fef02df9.jpg" referrerpolicy="no-referrer">
 <img src="https://img.gejiba.com/images/3310c5621489dea9de4fad0b9431c7eb.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  二重梦境  
+##### 331#       发表于 2022-9-18 19:22
+
+这个pv可以啊，一下子把期待值拉满了…
+
