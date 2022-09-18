@@ -12584,3 +12584,12 @@ wrba单红就判死刑了，至少俩ba混吧
 
 光三成最后那个表情我就能下三碗饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2632#       发表于 2022-9-18 20:56
+
+毕竟他也就能搞搞内政了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
