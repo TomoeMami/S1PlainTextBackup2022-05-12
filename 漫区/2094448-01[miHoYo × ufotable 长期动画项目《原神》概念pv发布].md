@@ -13842,3 +13842,22 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 其实完全可以不往bg方向写的，目前文案顶多是有点暧昧，但往战友方向展开，写成一个能独自行走的，有魅力 ...</blockquote>
 高人气的角色很难了，远的就不说了已经埋了，近的就愚人众的那几个打算拿出来卖的，男女之间要不就是不熟要不就是不熟且关系不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大江户战士  
+##### 1375#       发表于 2022-9-18 14:48
+
+飞碟桌做动画只会按部就班的改编，从空境开始一直都是这样，到了鬼灭愈发束手束脚
+
+*****
+
+####  jyky  
+##### 1376#       发表于 2022-9-18 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57538714&amp;ptid=2094448" target="_blank">大江户战士 发表于 2022-9-18 14:48</a>
+
+飞碟桌做动画只会按部就班的改编，从空境开始一直都是这样，到了鬼灭愈发束手束脚 ...</blockquote>
+我说了可能要被打成米卫兵，但我还是要说ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
