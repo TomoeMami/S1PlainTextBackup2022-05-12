@@ -2987,3 +2987,12 @@ lofter上立绘有人存吗？ 我也想问</blockquote>
 
 为什么是天闻角川？我还以为是原作者亲自重置<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，自我感觉新版立绘过于美型，没有原版的神韵。还是喜欢原版的。如果是给原作者创收的话支持，不太报期望
 
+
+
+*****
+
+####  Narrative  
+##### 324#       发表于 2022-9-18 16:44
+
+天闻角川不是卖书的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
