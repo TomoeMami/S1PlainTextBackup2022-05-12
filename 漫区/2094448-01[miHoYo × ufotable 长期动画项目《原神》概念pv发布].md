@@ -14082,3 +14082,15 @@ ufo近年唯二一次调动情绪直接让它升天了（
 UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员会，然后这个发行方就会把卖碟的大部分收益吃 ...</blockquote>
 找发行商合作的话估计较大可能是aniplex吧
 
+
+
+*****
+
+####  AraTurambar  
+##### 1398#       发表于 2022-9-18 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57539527&amp;ptid=2094448" target="_blank">小小雪空 发表于 2022-9-18 15:56</a>
+
+这楼开始不切实际的幻想，那我奶一个【成为偶像】吧×</blockquote>
+可是芭芭拉已经成为偶像了，而且芭芭拉是从一本杂志上看到的偶像这个概念，可见提瓦特是有偶像团体的，这个不算不切实际。
+
