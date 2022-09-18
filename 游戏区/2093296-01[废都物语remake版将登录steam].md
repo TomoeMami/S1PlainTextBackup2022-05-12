@@ -3107,3 +3107,30 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 这重置版P感觉还是没啥东西啊，感觉都还没开始做似的
 
+
+
+*****
+
+####  八云烧鸡鸡  
+##### 335#       发表于 2022-9-18 20:43
+
+看完PV，感觉没乱改东西，感动哭了
+
+*****
+
+####  Rainwedell  
+##### 336#       发表于 2022-9-18 20:46
+
+制作决定pv嘛
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  红魔馆的糖  
+##### 337#       发表于 2022-9-18 20:47
+
+急急急急急急死我了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+话说这就是美术重绘版本吧，其他的不用动，角川也能搞得来
+
