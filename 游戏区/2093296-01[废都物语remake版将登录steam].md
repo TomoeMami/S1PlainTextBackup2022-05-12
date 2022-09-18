@@ -2966,3 +2966,15 @@ lofter上立绘有人存吗？ 我也想问</blockquote>
 当天的遇怪点数用完了，如果你有没用掉的休息点可以去睡一觉，比如龙之塔上层钓痴旁边或妖精之塔下层入口 ...</blockquote>
 每次探索，资源快消耗完时，直接回去休息是吗？感觉自己过于在意SP点数了，已经被外野的杀人兔折磨疯了
 
+
+
+*****
+
+####  zebra97  
+##### 322#       发表于 2022-9-18 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57506055&amp;ptid=2093296" target="_blank">shinnfin 发表于 2022-9-16 07:39</a>
+
+废都物语、帽子世界 、月夜响荡曲、 以及魔坏屋姐妹 被称为RM制的免费JRPG的“四大天王” ...</blockquote>
+其他几个都没听说过啊，有这么神？
+
