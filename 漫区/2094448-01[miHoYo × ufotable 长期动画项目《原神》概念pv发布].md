@@ -13606,3 +13606,28 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 —— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  防辐射的  
+##### 1353#       发表于 2022-9-18 12:17
+
+ 本帖最后由 防辐射的 于 2022-9-18 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536075&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 11:35</a>
+
+怎么又开始归终了，有一说一，现在想要归终自机的大部分都是想恶心解解而不是真喜欢这个卫星想她落地，那米 ...</blockquote>
+其实这么说博士也是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">除了少数狂热反派厨，真的会有人想要这个角色自机吗，可是似乎还是有剧情和落地计划
+
+*****
+
+####  kyonkoism二号机  
+##### 1354#       发表于 2022-9-18 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536631&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-18 12:17</a>
+
+其实这么说博士也是一样的除了少数狂热反派厨，真的会有多人想抽他吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">博士还远着呢，最近的就是在稻妻卖冰害死一堆人的散兵，这究竟怎么洗才能入队，真是令人期待啊（大嘘，别是什么灵魂爆散了留个躯壳失忆或者压根是叫散兵的另一个人，那就没意思了
+
+倒不如说放到acg作品这么大的范围，卖冰害死一堆人还能就这么入队的角色就没多少吧
+
