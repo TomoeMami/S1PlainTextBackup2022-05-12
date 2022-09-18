@@ -13644,3 +13644,24 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 博士还是不讨论了
 
+
+
+*****
+
+####  jyky  
+##### 1356#       发表于 2022-9-18 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536631&amp;ptid=2094448" target="_blank">防辐射的 发表于 2022-9-18 12:17</a>
+
+其实这么说博士也是一样的除了少数狂热反派厨，真的会有人想要这个角色自机吗，落地除了讨好少数人 ...</blockquote>
+但反派自机很常见，而给自机搞bg被捶死的有前车之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实能不能搞bg主要还是心理预期值不一样，比如艾丽丝那种一开始就告诉你有cp但是人气还是很高的和人气很高后来突然告诉你有官配的是两种心理预期，不然你区整那破鞋十二神将是干嘛呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 1357#       发表于 2022-9-18 12:39
+
+ 整破鞋12神将的人不是死了？
+
