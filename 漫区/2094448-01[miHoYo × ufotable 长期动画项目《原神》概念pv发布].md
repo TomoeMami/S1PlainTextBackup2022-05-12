@@ -13714,3 +13714,15 @@ nga因为统战价值原因归终以外的这种人很多，只是不说归终�
 
 你这么处处针对我又不打死我，一定是小学生恋爱吧
 
+
+
+*****
+
+####  Fuero  
+##### 1363#       发表于 2022-9-18 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57537268&amp;ptid=2094448" target="_blank">MaxFOrder 发表于 2022-9-18 13:00</a>
+
+一斗九条这对CP我以前就觉得莫名其妙，一个行政执法人员为什么就能跟一个涉嫌扰乱治安的流氓拉上CP关系？至 ...</blockquote>
+脑补成了那种“虽然身份立场相悖，时常针锋相对，但在大是大非前是并肩作战的正义伙伴”的CP感吧（虽然后半句还没相关剧情）
+
