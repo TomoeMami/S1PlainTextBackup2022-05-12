@@ -13385,3 +13385,29 @@ ufoable又不是没其他活儿了
 我体感是萤厨比较多，喜欢空的主要是图个代入感，当然这说的都是男玩家……但是投票结果五五开我就看不懂 ...</blockquote>
 国内萤碾压，日本那边不清楚应该也是萤多，英文社区的话之前有个投票记得是55开
 
+
+
+*****
+
+####  kletka  
+##### 1333#       发表于 2022-9-18 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534769&amp;ptid=2094448" target="_blank">mimighost 发表于 2022-9-18 09:48</a>
+
+什么五十集你想多了
+
+ufoable又不是没其他活儿了</blockquote>
+米忽悠做动画，其实不太需要商业动机，算是本来就在公司目标里面的东西
+
+*****
+
+####  mimighost  
+##### 1334#       发表于 2022-9-18 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534813&amp;ptid=2094448" target="_blank">kletka 发表于 2022-9-18 09:53</a>
+
+米忽悠做动画，其实不太需要商业动机，算是本来就在公司目标里面的东西 ...</blockquote>
+是没错，但是这种做一部就热情耗尽
+
+后面的就是工作
+
