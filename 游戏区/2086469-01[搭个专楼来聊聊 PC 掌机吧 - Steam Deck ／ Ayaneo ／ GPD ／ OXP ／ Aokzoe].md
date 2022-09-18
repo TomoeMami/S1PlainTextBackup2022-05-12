@@ -2984,3 +2984,12 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 这两天用 Deck 感觉休眠唤醒是又快又稳定（我自己测试的几个游戏），话说现在 Windows 掌机的休眠效果如何？
 
+
+
+*****
+
+####  老黑305  
+##### 241#       发表于 2022-9-18 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉GPD WIN4那种尺寸才会让我真正有带出去的欲望呢，不然像SD和AOKZOE那种尺寸，也就只能在家躺着玩了
+
