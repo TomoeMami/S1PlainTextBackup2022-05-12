@@ -13523,3 +13523,18 @@ ufoable又不是没其他活儿了</blockquote>
 
 因为长期这个措辞很精华，很有可能和游戏设计寿命或者版本更新周期对应
 
+
+
+*****
+
+####  诚司  
+##### 1346#       发表于 2022-9-18 11:26
+
+ 本帖最后由 诚司 于 2022-9-18 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534431&amp;ptid=2094448" target="_blank">穷且坚强着 发表于 2022-9-18 09:14</a>
+
+比起钟离和若陀的故事我更想看归终和钟离，最重要是可以看到归钟CP让集美们破防 ...</blockquote>
+你猜喜欢(非ml的)bg的男的多还是女的多
+
+自机bg如果是玩家成分单纯的游戏根本不敢有，归终只是个镜子而已
+
