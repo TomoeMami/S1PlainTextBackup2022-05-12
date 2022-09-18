@@ -12550,3 +12550,12 @@ wrba单红就判死刑了，至少俩ba混吧
 
 没有什么比揭露所有人都猜到的谜题的谜底更无聊的了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 2629#       发表于 2022-9-18 19:36
+
+好家伙，比仁王的三成还low，三十秒被翻盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
