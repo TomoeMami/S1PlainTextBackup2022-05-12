@@ -13297,3 +13297,15 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 
 比起钟离和若陀的故事我更想看归终和钟离，最重要是可以看到归钟CP让集美们破防<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MaxFOrder  
+##### 1325#       发表于 2022-9-18 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534431&amp;ptid=2094448" target="_blank">穷且坚强着 发表于 2022-9-18 09:14</a>
+
+比起钟离和若陀的故事我更想看归终和钟离，最重要是可以看到归钟CP让集美们破防 ...</blockquote>
+我超别，到时候再反手举办就不好玩了，我个人的意见是动画最好别搞太激进的CP
+
