@@ -2975,3 +2975,12 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 那就上aok（8寸）的车呗，现在定下个月上旬应该ok。。。aya的air屏太小，串流主机游戏够呛看得清， ...</blockquote>
 谢谢，看了一圈现货确实也没什么心仪的，都太重了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 240#         楼主| 发表于 2022-9-18 16:40
+
+这两天用 Deck 感觉休眠唤醒是又快又稳定（我自己测试的几个游戏），话说现在 Windows 掌机的休眠效果如何？
+
