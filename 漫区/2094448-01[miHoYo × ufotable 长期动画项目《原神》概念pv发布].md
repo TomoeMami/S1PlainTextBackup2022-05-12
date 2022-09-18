@@ -13557,3 +13557,17 @@ ufoable又不是没其他活儿了</blockquote>
 一个pv能水44页，漫区昨天久违的赢了游戏区，等到播第一集能赢外野吗 ...</blockquote>
 到时直接转进到外野，到底谁文化入侵谁，然后外野就赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诚司  
+##### 1349#       发表于 2022-9-18 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536075&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 11:35</a>
+
+怎么又开始归终了，有一说一，现在想要归终自机的大部分都是想恶心解解而不是真喜欢这个卫星想她落地，那米 ...</blockquote>
+口嗨的比较多，但bg党是真实存在的，要不然也不会巨魔到给人做二创，而且没有意识到自己会给别人添麻烦。
+
+nga因为统战价值原因归终以外的这种人很多，只是不说归终而已，这先按下不表。官方又不是巨魔，他如果不是弱智，那一开始就不应该受这些人(无论是内部的还是外部的)影响。归终本质就是没有b数的表现，官方没有b数的话什么事都可能发生
+

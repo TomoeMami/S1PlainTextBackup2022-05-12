@@ -2945,3 +2945,12 @@ lofter上立绘有人存吗？ 我也想问</blockquote>
 
 —— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  宛若青空  
+##### 320#       发表于 2022-9-18 11:41
+
+立绘挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
