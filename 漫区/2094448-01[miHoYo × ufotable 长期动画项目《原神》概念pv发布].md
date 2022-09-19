@@ -14568,3 +14568,19 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 我上边说的“一个 ...</blockquote>
 即使是预渲染，也存在两个问题：首先是预渲染动画体积会比较大，如果做的太高精度游戏容量撑不住；其次是预渲染不能太明显的让用户感知到这个是预渲染，所以模型和场景还是只能使用游戏原本得，不可能突然变成高模。所以综合来看即使是录播也仍然会受到游戏本身载体的限制，不能做到像做动画这么大手大脚去挥霍资源。
 
+
+
+*****
+
+####  放大镜  
+##### 1443#       发表于 2022-9-19 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57550252&amp;ptid=2094448" target="_blank">shihomasturi 发表于 2022-9-19 12:08</a>
+
+即使是预渲染，也存在两个问题：首先是预渲染动画体积会比较大，如果做的太高精度游戏容量撑不住；其次是 ...</blockquote>
+我只是想说明米氏的过场并不涉及技术难题，关于动画的优势部分如前所述，我同意。
+
+毕竟手法娴熟的导演用几个镜头就能调动观众的联想让他们自己进行要素补完，而游戏里玩家可以实地考察，分分钟遮不住。
+
+最典型的就是FF15，电影版里边那个主城简直大得不敢认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
