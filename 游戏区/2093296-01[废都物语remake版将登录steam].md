@@ -3267,3 +3267,17 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 steam都有了，ns安排一下啊
 
+
+
+*****
+
+####  Renkonsai  
+##### 352#       发表于 2022-9-19 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57548894&amp;ptid=2093296" target="_blank">anmdrree 发表于 2022-9-19 10:39</a>
+
+steam都有了，ns安排一下啊</blockquote>
+最大的悬念可能是……………………………………
+
+天角未必有开发机
+
