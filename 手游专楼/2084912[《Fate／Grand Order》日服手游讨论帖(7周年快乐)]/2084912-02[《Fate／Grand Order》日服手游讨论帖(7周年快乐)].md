@@ -12665,3 +12665,14 @@ wrba单红就判死刑了，至少俩ba混吧
 
 可以开始攒石等拉斯普京落地了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2640#       发表于 2022-9-19 17:37
+
+笑死，大家都是二五仔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
