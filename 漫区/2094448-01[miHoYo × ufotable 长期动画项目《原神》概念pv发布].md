@@ -14254,3 +14254,60 @@ op+ufo，好活
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Re.Troy  
+##### 1413#       发表于 2022-9-19 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547271&amp;ptid=2094448" target="_blank">s7syphus 发表于 2022-9-19 04:18</a>
+
+真要说大场面，飞碟肯定还是比○强啊，○的过场小场面都还可以，看看风起鹤归打奥赛尔老婆那里的那几个弓 ...</blockquote>
+目前只是蹦三有个概念动画拉到了痞子的project q做
+
+*****
+
+####  尼卡·七浦  
+##### 1414#       发表于 2022-9-19 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57538757&amp;ptid=2094448" target="_blank">jyky 发表于 2022-9-18 14:51</a>
+我说了可能要被打成米卫兵，但我还是要说ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画 ...</blockquote>
+指的是稻妻心海军师从天而降挽救村头械斗的不利局势这样吗
+
+*****
+
+####  sandro  
+##### 1415#       发表于 2022-9-19 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549262&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:04</a>
+指的是稻妻心海军师从天而降挽救村头械斗的不利局势这样吗</blockquote>
+奥塞尔夫妇和层岩的都不错
+
+*****
+
+####  尼卡·七浦  
+##### 1416#       发表于 2022-9-19 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549271&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:05</a>
+奥塞尔夫妇和层岩的都不错</blockquote>
+层岩我不知道你说的哪段，夜叉回忆还是钟离救人，但海灯节那个只能说申鹤秒杀村队，没了。
+
+*****
+
+####  sandro  
+##### 1417#       发表于 2022-9-19 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549312&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:07</a>
+层岩我不知道你说的哪段，夜叉回忆还是钟离救人，但海灯节那个只能说申鹤秒杀村队，没了。 ...</blockquote>
+夜叉和钟离救人不都挺好的
+
+*****
+
+####  尼卡·七浦  
+##### 1418#       发表于 2022-9-19 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549320&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:08</a>
+夜叉和钟离救人不都挺好的</blockquote>
+但我回复的那位不是说大场面吗，我没想到原神目前有什么大场面
+
