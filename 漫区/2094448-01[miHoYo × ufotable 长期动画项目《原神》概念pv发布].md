@@ -14765,3 +14765,15 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 我看最重要的明明是金主的预算、导演的敬业精神和P的人脉吧（茶
 
+
+
+*****
+
+####  partrue  
+##### 1460#       发表于 2022-9-19 21:58
+
+……不就因为原里面没有够味的大场面所以原的动画化才有这种热度、所以米桑才找到ufo？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+漫区纯度这几年越来越拉了不是错觉，没几楼能出点有价值的东西，都想当乐子人开辟第二战场
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
