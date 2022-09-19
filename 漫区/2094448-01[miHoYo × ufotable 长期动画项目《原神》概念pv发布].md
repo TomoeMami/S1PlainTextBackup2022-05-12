@@ -14483,3 +14483,61 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 大场面。
 
+
+
+*****
+
+####  尼卡·七浦  
+##### 1435#       发表于 2022-9-19 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549666&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:28</a>
+所以是阅读理解，ufo的大场面甚至不如原神，是在黑ufo，不是在捧原神，难道你觉得ufo大场面很好？ ...</blockquote>
+你不能对着没有的东西进行比较，not even wrong
+
+*****
+
+####  sandro  
+##### 1436#       发表于 2022-9-19 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549704&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:31</a>
+你不能对着没有的东西进行比较，not even wrong</blockquote>
+又回到阅读理解和逻辑题了
+
+*****
+
+####  尼卡·七浦  
+##### 1437#       发表于 2022-9-19 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549725&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:32</a>
+又回到阅读理解和逻辑题了</blockquote>
+你觉得这算逻辑题，也不奇怪你为什么要反驳我了
+
+*****
+
+####  shihomasturi  
+##### 1438#       发表于 2022-9-19 11:35
+
+ 本帖最后由 shihomasturi 于 2022-9-19 11:36 编辑 
+
+其实本来做动画和做游戏就没有可比性，做动画可以接受几分钟渲染一帧的成本，做游戏内过场必须压到几毫秒一帧。
+
+你让米忽悠不用考虑实机性能，放开了去造，这次概念pv里的龙脊雪山精度和气势也基本可以做到碾压游戏里的建模。
+
+*****
+
+####  尼卡·七浦  
+##### 1439#       发表于 2022-9-19 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549762&amp;ptid=2094448" target="_blank">shihomasturi 发表于 2022-9-19 11:35</a>
+其实本来做动画和做游戏就没有可比性，做动画可以接受几分钟渲染一帧的成本，做游戏内过场必须压到几毫秒一 ...</blockquote>
+动画的优势就是可以不管机能限制地把场面、地图往大了做，仅概念pv这几秒就比游戏开阔n倍了，强行跨界比较没有意义，各自发挥长处就完了
+
+*****
+
+####  尼卡·七浦  
+##### 1440#       发表于 2022-9-19 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549762&amp;ptid=2094448" target="_blank">shihomasturi 发表于 2022-9-19 11:35</a>
+其实本来做动画和做游戏就没有可比性，做动画可以接受几分钟渲染一帧的成本，做游戏内过场必须压到几毫秒一 ...</blockquote>
+动画的优势就是可以不管机能限制地把场面、地图往大了做，仅概念pv这几秒就比游戏开阔n倍了，强行跨界比较没有意义，各自发挥长处就完了
+
