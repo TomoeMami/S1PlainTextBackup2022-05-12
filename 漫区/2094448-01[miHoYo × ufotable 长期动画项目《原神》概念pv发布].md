@@ -14720,3 +14720,26 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 你说ufo哪天被买了我也信
 
+
+
+*****
+
+####  两个路人  
+##### 1456#       发表于 2022-9-19 20:59
+
+<blockquote>防辐射的 发表于 2022-9-16 22:17
+仔细想了想，我真的不觉得能做好，游戏内现有的无论是美术还是剧情设定素材都太少了，远远不够支撑起一部动 ...</blockquote>
+如果正经做主线，以空轨为标准的话，目前3-4个国，应该能憋出7-8话OVA的吧，毕竟飞碟社在拖剧情上面经验足（UBW实在是印象深刻）
+
+不过吧，还是千万别做主线了。老实Q版喝茶泡面讲讲女仆的日常就好了
+
+*****
+
+####  诚司  
+##### 1457#       发表于 2022-9-19 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556909&amp;ptid=2094448" target="_blank">两个路人 发表于 2022-9-19 20:59</a>
+
+如果正经做主线，以空轨为标准的话，目前3-4个国，应该能憋出7-8话OVA的吧，毕竟飞碟社在拖剧情上面经验 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
