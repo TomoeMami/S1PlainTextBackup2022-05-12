@@ -14311,3 +14311,63 @@ op+ufo，好活
 夜叉和钟离救人不都挺好的</blockquote>
 但我回复的那位不是说大场面吗，我没想到原神目前有什么大场面
 
+
+
+*****
+
+####  sandro  
+##### 1419#       发表于 2022-9-19 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549373&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:11</a>
+但我回复的那位不是说大场面吗，我没想到原神目前有什么大场面</blockquote>
+大场面不是指ufo的？
+
+*****
+
+####  尼卡·七浦  
+##### 1420#       发表于 2022-9-19 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549403&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:13</a>
+大场面不是指ufo的？</blockquote>
+“ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画”
+
+我觉得这句话不说对不对，讨论前提是原神有大场面吧
+
+*****
+
+####  sandro  
+##### 1421#       发表于 2022-9-19 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549444&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:15</a>
+“ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画”
+
+我觉得这句话不说对不对，讨论前提是原神 ...</blockquote>
+都阅读理解了那没啥讨论了
+
+*****
+
+####  尼卡·七浦  
+##### 1422#       发表于 2022-9-19 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549472&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:16</a>
+都阅读理解了那没啥讨论了</blockquote>
+是你要反驳我的，我反驳的又不是你，总不能我说汉堡不好吃，你说可乐还行吧
+
+*****
+
+####  尼卡·七浦  
+##### 1423#       发表于 2022-9-19 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549472&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:16</a>
+都阅读理解了那没啥讨论了</blockquote>
+是你要反驳我的，我反驳的又不是你，总不能我说汉堡不好吃，你说可乐还行吧
+
+*****
+
+####  sandro  
+##### 1424#       发表于 2022-9-19 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549494&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:18</a>
+是你要反驳我的，我反驳的又不是你，总不能我说汉堡不好吃，你说可乐还行吧 ...</blockquote>
+硬抬杠咯，拿个差的就说没有，没说头了
+
