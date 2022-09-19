@@ -3343,3 +3343,13 @@ steam都有了，ns安排一下啊</blockquote>
 这中文PV让我对翻译质量产生了一点不安</blockquote>
 主体应该还是卷公的翻译吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kamarus  
+##### 359#       发表于 2022-9-20 00:48
+
+来来来，你们要的高清版生而不为人来了
+<img src="https://p.sda1.dev/7/7c34287e077734bbbacc9d9ab7f24a98/CMP_20220920004805970.jpg" referrerpolicy="no-referrer">艹
+
