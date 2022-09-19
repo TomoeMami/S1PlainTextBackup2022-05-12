@@ -3316,3 +3316,19 @@ steam都有了，ns安排一下啊</blockquote>
 
 中文pv
 
+
+
+*****
+
+####  宛若青空  
+##### 356#       发表于 2022-9-19 18:26
+
+中文官方微博也开通了，接下来就希望能开发顺利到发售了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wingzerocos  
+##### 357#       发表于 2022-9-19 18:28
+
+这中文PV让我对翻译质量产生了一点不安<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
