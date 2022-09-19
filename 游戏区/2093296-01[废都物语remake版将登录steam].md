@@ -3353,3 +3353,14 @@ steam都有了，ns安排一下啊</blockquote>
 来来来，你们要的高清版生而不为人来了
 <img src="https://p.sda1.dev/7/7c34287e077734bbbacc9d9ab7f24a98/CMP_20220920004805970.jpg" referrerpolicy="no-referrer">艹
 
+
+
+*****
+
+####  宛若青空  
+##### 360#       发表于 2022-9-20 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560522&amp;ptid=2093296" target="_blank">azccc52 发表于 2022-9-20 00:37</a>
+主体应该还是卷公的翻译吧虽然这pv让我也隐隐不安</blockquote>
+其实不用太担心，这类PV的文案翻译基本上和游戏本体的翻译不是同一批人做的。
+
