@@ -3294,3 +3294,14 @@ steam都有了，ns安排一下啊</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天气姐姐  
+##### 354#       发表于 2022-9-19 17:12
+
+能不能顺手改一个rmmv版的，这样主机版也能玩了
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

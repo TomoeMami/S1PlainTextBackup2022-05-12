@@ -12654,3 +12654,14 @@ wrba单红就判死刑了，至少俩ba混吧
 
 100W，终于掉李庄了，我也是有满破50充李庄的马斯塔了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 2639#       发表于 2022-9-19 17:19
+
+卑弥呼200石收工，歪了一个老邢
+
+可以开始攒石等拉斯普京落地了
+
