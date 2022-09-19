@@ -14584,3 +14584,17 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 最典型的就是FF15，电影版里边那个主城简直大得不敢认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ztkong  
+##### 1444#       发表于 2022-9-19 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547974&amp;ptid=2094448" target="_blank">shihomasturi 发表于 2022-9-19 08:59</a>
+
+我个人认为不会是按部就班的做游戏主线改编。
+
+从米忽悠这家公司的尿性来分析，这10年来他们从一家只能做 ...</blockquote>
+所以，除掉番剧或者电影外。。。会不会是游戏内部分，或者是各种活动有合作？比如音乐会，甚至官方补赞助动画给生日会周年庆啥的。。。
+
