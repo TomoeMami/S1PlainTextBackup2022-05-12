@@ -14743,3 +14743,12 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 如果正经做主线，以空轨为标准的话，目前3-4个国，应该能憋出7-8话OVA的吧，毕竟飞碟社在拖剧情上面经验 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 1458#       发表于 2022-9-19 21:19
+
+已经是旗舰作品了
+
