@@ -14664,3 +14664,12 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Re.Troy  
+##### 1451#       发表于 2022-9-19 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">原来的头图是怎样的，也是最新的动画作品吗
+
