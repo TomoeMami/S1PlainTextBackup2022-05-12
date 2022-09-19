@@ -14371,3 +14371,115 @@ op+ufo，好活
 是你要反驳我的，我反驳的又不是你，总不能我说汉堡不好吃，你说可乐还行吧 ...</blockquote>
 硬抬杠咯，拿个差的就说没有，没说头了
 
+
+
+*****
+
+####  shihomasturi  
+##### 1425#       发表于 2022-9-19 11:21
+
+ 本帖最后由 shihomasturi 于 2022-9-19 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549444&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:15</a>
+
+“ufo的大场面情绪调动能力可能还不如米桑自己搞的过场动画”
+
+我觉得这句话不说对不对，讨论前提是原神 ...</blockquote>
+
+其实他不一定指的是原神，一般来讲如果拿来跟ufo对比，拿崩三的过场动画当例子更合适。因为原神哪个过场大部分实际上不能叫做“动画”，就算真的有2D动画也是以背景介绍为主，例如若陀的哪个2D，灶神哪个2D，还有夜叉哪个2D，就算再加上这次层岩最后浮舍得也没啥“大场面”一说。
+
+当然以上不代表我认为崩三的过场动画“大场面”超过ufo，我觉得他就是在带节奏钓鱼，坛友不要被钓了。
+
+*****
+
+####  尼卡·七浦  
+##### 1426#       发表于 2022-9-19 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549515&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:19</a>
+硬抬杠咯，拿个差的就说没有，没说头了</blockquote>
+那你反驳我呗，说说原神有什么大场面，我不举例子，你举。
+
+*****
+
+####  放大镜  
+##### 1427#       发表于 2022-9-19 11:22
+
+我是不明白你们为什么会觉得游戏能跟动画/电影比场面。
+
+专业水平且不论，单说一个量，动画和电影可以乱开空头支票不用制作实景，最多最多到下边这个水平。
+
+https://www.bilibili.com/video/BV1Ms411S7SU
+
+即便如此电影也不用考虑实机交互，如果不是游戏里的暴风镇拖了后腿，电影里的暴风城还可以做得更大。而且做出来他还不一定用得上，你说气不气。
+
+*****
+
+####  sandro  
+##### 1428#       发表于 2022-9-19 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549559&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:21</a>
+那你反驳我呗，说说原神有什么大场面，我不举例子，你举。</blockquote>
+奥塞尔夫妇和层岩
+
+*****
+
+####  尼卡·七浦  
+##### 1429#       发表于 2022-9-19 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549558&amp;ptid=2094448" target="_blank">shihomasturi 发表于 2022-9-19 11:21</a>
+其实他不一定指的是原神，一般来讲如果拿来跟ufo对比，拿崩三的过场动画当例子更合适。因为原神哪个过场 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">至少我觉得原神动画也有能夸的，但非要从大场面这个角度踩动画公司是什么意思，是想说mhy脑子不好非要找ufo吗
+
+*****
+
+####  尼卡·七浦  
+##### 1430#       发表于 2022-9-19 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549570&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:22</a>
+奥塞尔夫妇和层岩</blockquote>
+你觉得这算大场面，那我也不好说什么了
+
+*****
+
+####  尼卡·七浦  
+##### 1431#       发表于 2022-9-19 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549567&amp;ptid=2094448" target="_blank">放大镜 发表于 2022-9-19 11:22</a>
+我是不明白你们为什么会觉得游戏能跟动画/电影比场面。
+
+专业水平且不论，单说一个量，动画和电影可以乱开 ...</blockquote>
+是这个道理
+
+*****
+
+####  尼卡·七浦  
+##### 1432#       发表于 2022-9-19 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549567&amp;ptid=2094448" target="_blank">放大镜 发表于 2022-9-19 11:22</a>
+我是不明白你们为什么会觉得游戏能跟动画/电影比场面。
+
+专业水平且不论，单说一个量，动画和电影可以乱开 ...</blockquote>
+是这个道理
+
+*****
+
+####  sandro  
+##### 1433#       发表于 2022-9-19 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549595&amp;ptid=2094448" target="_blank">尼卡·七浦 发表于 2022-9-19 11:23</a>
+至少我觉得原神动画也有能夸的，但非要从大场面这个角度踩动画公司是什么意思，是想说mhy脑子不好 ...</blockquote>
+所以是阅读理解，ufo的大场面甚至不如原神，是在黑ufo，不是在捧原神，难道你觉得ufo大场面很好？
+
+*****
+
+####  放大镜  
+##### 1434#       发表于 2022-9-19 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549570&amp;ptid=2094448" target="_blank">sandro 发表于 2022-9-19 11:22</a>
+
+奥塞尔夫妇和层岩</blockquote>
+第一次打大水蛇，得胜后主角一行回到港口，璃月老幼稽首相谢，总共来了：
+
+一个门卫，一个小孩。
+
+大场面。
+
