@@ -3219,3 +3219,12 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 原汁原味对素材进行高清化那就对了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xwr  
+##### 347#       发表于 2022-9-19 09:21
+
+看起来不错，高清化+新立绘。
+
