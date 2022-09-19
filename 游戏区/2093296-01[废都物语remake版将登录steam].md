@@ -3332,3 +3332,14 @@ steam都有了，ns安排一下啊</blockquote>
 
 这中文PV让我对翻译质量产生了一点不安<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  azccc52  
+##### 358#       发表于 2022-9-20 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554524&amp;ptid=2093296" target="_blank">wingzerocos 发表于 2022-9-19 18:28</a>
+这中文PV让我对翻译质量产生了一点不安</blockquote>
+主体应该还是卷公的翻译吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
