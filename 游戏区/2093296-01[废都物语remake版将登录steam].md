@@ -3281,3 +3281,16 @@ steam都有了，ns安排一下啊</blockquote>
 
 天角未必有开发机
 
+
+
+*****
+
+####  siriii  
+##### 353#       发表于 2022-9-19 15:05
+
+有那味，画风真的有那味<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+好极啦!
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

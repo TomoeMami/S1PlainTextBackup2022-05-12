@@ -14598,3 +14598,39 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 从米忽悠这家公司的尿性来分析，这10年来他们从一家只能做 ...</blockquote>
 所以，除掉番剧或者电影外。。。会不会是游戏内部分，或者是各种活动有合作？比如音乐会，甚至官方补赞助动画给生日会周年庆啥的。。。
 
+
+
+*****
+
+####  亚崔迪公爵  
+##### 1445#       发表于 2022-9-19 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57549570&amp;ptid=2094448" target="_blank">sandro 发表于 2022-09-19 11:22:19</a>
+奥塞尔夫妇和层岩</blockquote>大场面应该是第一次海灯节的过场动画吧，漫天霄灯都是实时演算出来的，好像有部分玩家的设备疯狂掉帧甚至卡死，于是以后都采用播片方式为主了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  shihomasturi  
+##### 1446#       发表于 2022-9-19 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57551286&amp;ptid=2094448" target="_blank">ztkong 发表于 2022-9-19 14:06</a>
+
+所以，除掉番剧或者电影外。。。会不会是游戏内部分，或者是各种活动有合作？比如音乐会，甚至官方补赞助 ...</blockquote>
+这种可能性很小。
+
+他们在公布概念pv前，特意提到了之前受好评的几个动画短片，大伟哥还说玩家经常叫他们“提供更好的内容”，这个说的就是每次短片都会有人提的“快做原神动画”式评论，他们心里很清楚玩家希望要的是什么。刚开始看短片的时候也有人认为会不会只是宣传pv什么的，不一定就是正经番剧或者剧场版。所以最后大伟哥特意明确了一下，“我们原神终于也要有自己的长篇动画了”。
+
+至于为什么正式发表要用“长期合作项目”这种模糊的说法，有的人认为是悬念营销，我比较倾向于认为合作形式可能比较复杂，很难一下说清楚。他们的目标可能不只是外包给ufo做一个广告动画这么简单，长期目标可能包括提升本社的动画制作能力，革新动画制作体制等等。当然玩家期望得到的原神长篇动画肯定也是这种合作的成果之一，周年庆上当作礼物拿出来的东西，总不至于最后跟你们说就是开了个玩笑吧？
+
+*****
+
+####  诚司  
+##### 1447#       发表于 2022-9-19 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57551286&amp;ptid=2094448" target="_blank">ztkong 发表于 2022-9-19 14:06</a>
+
+所以，除掉番剧或者电影外。。。会不会是游戏内部分，或者是各种活动有合作？比如音乐会，甚至官方补赞助 ...</blockquote>
+游戏内部分不会找飞碟社的，原神奔着传说系列去那也太扯了，之前崩3和日方合作的好好的
+
