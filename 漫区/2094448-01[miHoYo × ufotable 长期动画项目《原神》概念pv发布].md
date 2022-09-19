@@ -14673,3 +14673,28 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">原来的头图是怎样的，也是最新的动画作品吗
 
+
+
+*****
+
+####  kletka  
+##### 1452#       发表于 2022-9-19 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552347&amp;ptid=2094448" target="_blank">三点几，饮茶啦 发表于 2022-9-19 15:34</a>
+飞碟，你在做什么啊（
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+《他们给的钱太多了》<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shihomasturi  
+##### 1453#       发表于 2022-9-19 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552867&amp;ptid=2094448" target="_blank">Re.Troy 发表于 2022-9-19 16:11</a>
+
+原来的头图是怎样的，也是最新的动画作品吗</blockquote>
+不止是官推换了，连官网进去开屏都是一个**的原神。
+
