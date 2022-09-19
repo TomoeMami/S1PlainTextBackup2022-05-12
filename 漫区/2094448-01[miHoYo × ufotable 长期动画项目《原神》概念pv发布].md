@@ -14239,3 +14239,18 @@ UFO只有制作能力没有发行能力，卖BD就得拉发行方进制作委员
 真要说大场面，飞碟肯定还是比○强啊，○的过场小场面都还可以，看看风起鹤归打奥赛尔老婆那里的那几个弓 ...</blockquote>
 崩的游戏动画大部分是自己做的，但是产能有问题。如果产能厉害也不会找什么飞碟了，早自己来了
 
+
+
+*****
+
+####  serial  
+##### 1412#       发表于 2022-9-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515413&amp;ptid=2094448" target="_blank">天风绯炎 发表于 2022-9-16 21:27</a>
+op+ufo，好活
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+什么ofo<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
