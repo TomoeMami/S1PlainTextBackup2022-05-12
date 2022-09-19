@@ -3210,3 +3210,12 @@ b站地址：【「Ruina 廃都の物语」リメイク版のコンセプトト�
 
 还有高清生而不为人
 
+
+
+*****
+
+####  tansapple  
+##### 346#       发表于 2022-9-19 09:13
+
+原汁原味对素材进行高清化那就对了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

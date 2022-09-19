@@ -12636,3 +12636,12 @@ wrba单红就判死刑了，至少俩ba混吧
 毕竟看三成吃瘪是种乐趣啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 2637#       发表于 2022-9-19 09:15
+
+石田三这等废材，丰臣已无可用之兵
+
