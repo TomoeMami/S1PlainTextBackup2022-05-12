@@ -6297,3 +6297,30 @@ That’s the way to think. If they take action while I’m still alive and healt
 
 也就B站那些烂片刺客的up粉丝会有一些有零星兴趣来看看到底有没有说的这么搞子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 5123#       发表于 2022-9-20 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563846&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-20 10:52</a>
+
+花田过去也很喜欢这样写，问题是不会有这么长的情感冲突加如此长时间的现实时间的空隔，
+
+不论是果果还是 ...</blockquote>
+那倒也没有 曜就挺长的
+
+友情yosoro之前一直时不时描写曜在旁边看看千歌
+
+当时也有过曜厨火了的
+
+当然最后结果算好就一切都好
+
+*****
+
+####  aoaoaodedede  
+##### 5124#       发表于 2022-9-20 11:08
+
+我又想了下，前面坛友这句“观众觉得可可没理由讨厌堇没理由对堇态度不好和实际呈现出来的出现了巨大的反差也可以说是完全相悖”，从这一集我知道可可确实有讨厌堇的理由，但是这并不能为之前那种人物相处模式作出什么合理的解释，如果只看那些符合这一集的伏笔而忽略了那些有问题的地方，这能说明这是个好故事吗？
+
