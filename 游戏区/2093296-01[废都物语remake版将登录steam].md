@@ -3567,3 +3567,14 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">废瘾最严重的一次，下略。
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">怎么还没出
 
+
+
+*****
+
+####  lil_is  
+##### 376#       发表于 2022-9-21 02:05
+
+一周目贤者线Te通关，感觉真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，有时间打个ge出来。
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
