@@ -6375,3 +6375,37 @@ That’s the way to think. If they take action while I’m still alive and healt
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564207&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-20 11:14</a></blockquote>
 这是哪个采访来着
 
+
+
+*****
+
+####  lj205  
+##### 5130#       发表于 2022-9-20 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564499&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 11:32</a>
+
+这是哪个采访来着</blockquote>
+某期广播的内容
+
+说起来今天下午的广播，应该不会谈这集吧，毕竟提前录好的，不过我倒是想听听就合鲤在的情况下她们要怎么聊
+
+
+
+*****
+
+####  稀勢のささ  
+##### 5131#       发表于 2022-9-20 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564499&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 11:32</a>
+
+这是哪个采访来着</blockquote>
+这篇是声优G10月号的采访 吹泡泡那期 广播里也有过类似的内容
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 只能说非常的难蚌
+
+*****
+
+####  ViyViy  
+##### 5132#       发表于 2022-9-20 11:54
+
+这么重量级的肯定是要让当事人pay来大书特书，鱼下期会不会继续连庄就不知道了，我觉得不会。
+
