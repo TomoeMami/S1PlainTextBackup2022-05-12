@@ -6214,3 +6214,64 @@ That’s the way to think. If they take action while I’m still alive and healt
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 5115#       发表于 2022-9-20 10:43
+
+ 本帖最后由 Kfly 于 2022-9-20 10:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563503&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-9-20 10:32</a>
+
+土妹子这是推失败了吧 虽然三集后就查无此人  什么香樱传都是骗人的</blockquote>
+感觉到现在芽衣倒更像是个小立德，新成员中她的发挥最出色，希奈子唯一能真正嘴炮人的还是第六集和夏美那部分，结果理所当然地被香音截胡了
+
+也就堇和芽衣不会被香音截胡，谁顺位更高显而易见啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5116#       发表于 2022-9-20 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563515&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-9-20 10:33</a>
+因为要表现的重心是可可讨厌堇以及两人间的隔阂，而不是对立。这集讨厌这个词一出前面那些互动的创作意 ...</blockquote>
+思路很好，但是我个人无法认同这种创作手法，现在的出演效果也没法说服我可可是会干从s1e10到s2e9之间长达10集的诡异行动的。如果这一集直接塞在s1最后，那间隔的部分可以说瑕不掩瑜，塞在十集后叫马后炮。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 5117#       发表于 2022-9-20 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563676&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-20 10:43</a>
+感觉到现在芽衣倒更像是个小立德，新成员中她的发挥最出色，希奈子唯一能真正嘴炮人的还是第六集和夏美那 ...</blockquote>
+香哥哥：钦定位给你了 偶遇也给你了 剩下的自己好好努力 不要不识好歹
+
+*****
+
+####  aoaoaodedede  
+##### 5118#       发表于 2022-9-20 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563515&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-9-20 10:33</a>
+
+因为要表现的重心是可可讨厌堇以及两人间的隔阂，而不是对立。这集讨厌这个词一出前面那些互动的创作意 ...</blockquote>
+那这种做法只能说是强烈的离了大谱了，罢了，反正可可这唱白脸是习惯了，一二期动画都在尝试引起强烈的矛盾冲突来叙事，殊不知这样到底会直接对角色产生多大的负面影响
+
+*****
+
+####  靡宜  
+##### 5119#       发表于 2022-9-20 10:48
+
+<blockquote>Enakina 发表于 2022-9-20 09:32
+可能不放过coser这个头衔，只是为了噱头了。h社之前签了yami，之后就开了个fc，偶尔做做fc直播，就没动静 ...</blockquote>
+还是疫情耽误了许多。。。不然国内估计也会有多一点活动，这样搭起来才能更顺利推
+
+*****
+
+####  ViyViy  
+##### 5120#       发表于 2022-9-20 10:49
+
+香教主经典管杀不管埋，除了自己的千妃其他人自己有问题的时候只能求别人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
