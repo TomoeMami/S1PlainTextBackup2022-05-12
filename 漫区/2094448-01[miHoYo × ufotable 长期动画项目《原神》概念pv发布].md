@@ -14861,3 +14861,14 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 你们看了这么多年动画，还不明白这是个团队系统性工程吗？编剧剧本写得再好，导演想不出镜头，不还是只能 ...</blockquote>
 如果是深度合作的话，其实mhy自己也有动画团队的，从各种过场动画和pv的水平来看，他们还不至于放任导演整二人转这种烂活
 
+
+
+*****
+
+####  川_大可  
+##### 1468#       发表于 2022-9-20 18:20
+
+动画部分是外包的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 6, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
