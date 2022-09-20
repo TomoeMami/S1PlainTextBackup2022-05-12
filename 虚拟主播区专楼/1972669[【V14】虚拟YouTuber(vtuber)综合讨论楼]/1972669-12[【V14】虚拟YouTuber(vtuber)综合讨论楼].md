@@ -2790,3 +2790,6665 @@ king5月这特训运……
 
 不过本来赫高和神速就分在AB两组不一定能遇得上，A组其他2人不说，赫高和加大的正赛说实话完全无法预测，加大的打线完全有可能撕开赫高的防守，但是反过来加大那满是洞的防守也完全有可能被赫高打烂。。。
 
+
+
+*****
+
+####  Suny08  
+##### 16744#       发表于 2022-8-4 11:21
+
+我觉得拿形容森破的天生赢家去形容king挺合适得，去年king吃瘪对虹甲数字影响真挺大的，今年可以看看上限了，king越宰猪数字才能越高，现在king和皇女基本就是主角位了，虽然西西社长看起来也还可以，但都是先扬后抑，明显不如先抑后扬的观感好，还有就是社长西西队里外人和小废物太多了，本社高人气liver 不足也是个问题，可能整体观感上这届没啥意思了，但不管最后是king赢还是皇女赢最后数字估计都是爆炸高，碾压上届问题不大
+
+
+
+*****
+
+####  永远喜欢  
+##### 16745#       发表于 2022-8-4 11:49
+
+话糙理不糙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 确实是越宰猪越厉害 最好还是葛宰 别的不太行 还有碾压肯定不大 大概要看看能不能过黛灰这个同接口了 这个过了应该是最好的（就目前还是预测一下25吧）
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  poipanchao  
+##### 16746#       发表于 2022-8-4 12:41
+
+放屁，对盒皇尊重点<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  wuzhengkai  
+##### 16747#       发表于 2022-8-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56922147&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-8-4 00:00</a>
+
+Enna：十（shi）人（ren）十（shi）色（se）
+
+Petra：ITS KANJI LMAO</blockquote>
+草 哪个直播的 有链接吗
+
+
+
+*****
+
+####  Ketestrait  
+##### 16748#       发表于 2022-8-4 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56926732&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-8-4 14:23</a>
+
+草 哪个直播的 有链接吗</blockquote>
+Enna昨晚的练歌回，petra只是出现在评论栏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小鸟游泉  
+##### 16749#       发表于 2022-8-4 20:23
+
+ 本帖最后由 小鸟游泉 于 2022-8-4 20:26 编辑 
+
+[https://twitter.com/Sepiast_7/status/1555146528473329664](https://twitter.com/Sepiast_7/status/1555146528473329664)
+https://weibo.com/6979797100/LFsKngWAV?type=like#_rnd1659615861473
+
+にじさんじ所属ライバー7名で結成した男装ユニット。キャラクターデザイン：Lowro様
+
+澪-Mio-(戌亥とこ) 柊-Shu-(樋口楓)蓮-Ren-(静凛) 帳-Tobari-(夕陽リリ) 唯-Yui-(ニュイ・ソシエール) 貂-Ten-(フミ)紫-Yukari-(白雪巴)
+
+虹这组合企划有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 16750#       发表于 2022-8-4 20:28
+
+连女性liver都要吃女性向市场是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16751#       发表于 2022-8-4 21:24
+
+enkr的奇策<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16752#       发表于 2022-8-4 23:36
+
+西西这触发了甲子园采访事件，然后什么都没获得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 16753#       发表于 2022-8-4 23:49
+
+月之是去拍片了还是给自己放大假，看着IFEELFANTASTIC眼泪停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Suny08  
+##### 16754#       发表于 2022-8-5 20:29
+
+帕特姐好会扭
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16755#       发表于 2022-8-5 20:54
+
+兔！！我想死你了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16756#       发表于 2022-8-5 20:59
+
+阿花是不是太久没直播，声线好像不对劲啊……
+
+
+
+*****
+
+####  rzrbtk  
+##### 16757#       发表于 2022-8-5 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56944379&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-5 20:59</a>
+
+阿花是不是太久没直播，声线好像不对劲啊……</blockquote>
+也还好，六天前刚跟神田工商，麦的缘故吧？
+
+组合成员看就是下克上+elu，郡道对帕特兰本来就那个所以暂且不说，敢邀请休息中的兔大前辈，牛啊，可能已经被骂习惯了；
+
+syl，放某句歌词的时候评论栏里“eden！？？？”刷屏把我逗乐了，我懂（这种痛苦）！
+
+
+
+*****
+
+####  高等黑暗  
+##### 16758#       发表于 2022-8-6 02:21
+
+豆猫可太惨了，最后一年总算是赢了县大会，代价是胃皇的对危机也变成了F，不然原本的对左没消掉还变成了大红人（
+
+
+
+*****
+
+####  毛头小希  
+##### 16759#       发表于 2022-8-6 10:12
+
+结果豆猫高这波还真变少年漫展开了吗
+
+濒临废部的弱小棒球队一步步走向甲子园让众人大跌眼镜<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16760#       发表于 2022-8-6 15:17
+
+子兔音只能联动id了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  winda  
+##### 16761#       发表于 2022-8-6 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫队伍问题不大，一年生slm强投的底子还在，ssk倒是感觉寄了大半了
+
+下一个要面对大问题的就是牛姨了，前辈毕业后投手阵容几无可战之兵了
+
+
+
+*****
+
+####  say_gg_plz  
+##### 16762#       发表于 2022-8-6 19:48
+
+ib太惨了，看不下去了
+
+*****
+
+####  Suny08  
+##### 16763#       发表于 2022-8-6 19:49
+
+我感觉油男要被炎上了
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16764#       发表于 2022-8-6 19:58
+
+ 本帖最后由 alcoholic1000 于 2022-8-6 19:59 编辑 
+
+虹en一期生lazulight，以及元ID所属的Hana将要在#にじフェス2022 进行3D先行披露
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16765#       发表于 2022-8-6 20:13
+
+id也有3D了，落泪，这下3d披露排表得把idkr排进去了
+
+
+
+*****
+
+####  Ketestrait  
+##### 16766#       发表于 2022-8-6 20:20
+
+西西这采访事件说出就出，太tm不讲道理了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 16767#       发表于 2022-8-6 20:48
+
+感觉西西监督的2020采访可以用一辈子
+
+
+
+*****
+
+####  FCCHua  
+##### 16768#       发表于 2022-8-6 21:38
+
+id终于也有3d了，不容易<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16769#       发表于 2022-8-6 22:07
+
+ 本帖最后由 alcoholic1000 于 2022-8-6 22:09 编辑 
+
+hana很久之前就确定有了吧，她一直想等其他成员
+
+Syl，millie删除推文<blockquote>&gt;millie: see you all in tokyo
+
+&gt;seffy: i can't wait for nijifes</blockquote>
+mysta也在杂谈中提到准备护照文件，计划去日本
+
+🤔
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16770#       发表于 2022-8-7 00:28
+
+三期都去日本，感觉像是单纯去玩
+
+
+
+*****
+
+####  lhawp  
+##### 16771#       发表于 2022-8-7 03:20
+
+社长第三年甲子园优胜了，今年是真的离谱
+
+*****
+
+####  Ketestrait  
+##### 16772#       发表于 2022-8-7 03:21
+
+ 本帖最后由 Ketestrait 于 2022-8-7 03:46 编辑 
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h4xnf20isoj20xw0j2n3v.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h4xnf7boxkj20cg09j3zf.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4xnfb9x0hj20xv0izte1.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h4xnfewg1mj20xt0j1tew.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h4xo6b5h6pj20xx0ix7ae.jpg" referrerpolicy="no-referrer">
+
+アツい、アツすぎる<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+｢じゃあ、打撃で｣
+
+*****
+
+####  alcoholic1000  
+##### 16773#       发表于 2022-8-7 03:30
+
+ 本帖最后由 alcoholic1000 于 2022-8-7 03:33 编辑 
+
+激打！これが加賀美大附属！
+
+新生运勉勉强强却培育出了转生级的选手，创造了虹甲育成历史的新纪录
+
+hks的本太关键了，3人U18
+
+期待虹甲名门校VS名门校
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16774#       发表于 2022-8-7 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">好像对桃桃画师画的fes立绘都不太满意，微博上。
+
+
+
+*****
+
+####  Paisley  
+##### 16775#       发表于 2022-8-7 14:53
+
+有几个还行但整体画的太烂，但看推也不是画不好，我还挺喜欢桃的新皮的，姑且认为是你虹低薪雇一个人画60个一模一样的衬衫的锅 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Junchoon  
+##### 16776#       发表于 2022-8-7 15:54
+
+帕特姐这是在搞戒赌宣传吗？快21小时了......
+
+
+
+*****
+
+####  D-JoeII  
+##### 16777#       发表于 2022-8-7 16:39
+
+打到一半響警報目前算不算以色列V獨有體驗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14363s)
+[https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s](https://www.youtube.com/watch?v=EeUoeP9G3zg&amp;t=14534s)
+
+
+
+*****
+
+####  Ketestrait  
+##### 16778#       发表于 2022-8-7 17:29
+
+证明赌狗不得……
+
+syl
+
+牛姨第三年道大会4-5负于S级止步决赛，豆猫第三年夏甲0-1负于A级首战败退， 都差一口气<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 16779#       发表于 2022-8-7 17:33
+
+豆猫毕竟前两年太惨了，加上这最后一年可以说戏剧性拉满，只要正赛哪怕赢一场不至于被虐杀都算功德圆满了吧
+
+反正我已经佛了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16780#       发表于 2022-8-7 18:33
+
+草生，猫汰出道那两次打了apex就没再开过游戏了
+
+
+
+*****
+
+####  FCCHua  
+##### 16781#       发表于 2022-8-7 18:46
+
+hnn刚直播有说等会apex排位，成员里有她
+
+
+
+*****
+
+####  poipanchao  
+##### 16782#       发表于 2022-8-7 18:52
+
+hnn、tsuna还有nayuta
+
+现在apex已经是过气黄花了没办法
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16783#       发表于 2022-8-7 19:20
+
+就是因为要打apex她才推特晒了下截图，是真的这个月碰都没碰过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  adcdqre  
+##### 16784#       发表于 2022-8-7 19:37
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16785#       发表于 2022-8-7 21:31
+
+虹en四期ike的这唱法也太有十五年前nico唱见那感觉了，比本社老生主还味道纯正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不怕伤嗓子吗
+
+
+
+*****
+
+####  FCCHua  
+##### 16786#       发表于 2022-8-7 21:57
+
+sky8月也有b限啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 16787#       发表于 2022-8-7 21:59
+
+rize这对面的投手，就是小宫山悟本人啊，这怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16788#       发表于 2022-8-8 04:54
+
+<img src="https://img.saraba1st.com/forum/202208/08/044635cgy7g9egshh9s9oc.png" referrerpolicy="no-referrer">
+
+<strong>【 #にじさんじ甲子園 】最後の夏 追う者の夏【 パワプロ2022 】.png</strong> (152.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 04:46 上传
+
+13-1绝对优势取胜，全国制霸，春秋夏三连霸
+
+黛灰从不过百的白板被监督养成500+星怪物，最终成为神速绝对的ACE
+
+无论虹甲最终谁能问鼎，神速高校已经是传说了
+
+
+
+*****
+
+####  高等黑暗  
+##### 16789#       发表于 2022-8-8 08:44
+
+ 本帖最后由 高等黑暗 于 2022-8-8 08:46 编辑 
+
+神速三连霸可以说养成过程已经满中满了
+
+唯一剩下的问题就是AI操作能发挥几成实力
+
+不过捕手B+双威压爆锤B组西西以外的2人大概率是没问题的，这次下四校想翻上四校真有难度
+
+
+
+*****
+
+####  gaiadc  
+##### 16790#       发表于 2022-8-8 08:51
+
+没看到最后，不过凭印象来说，葛皇队伍突破口是黛灰的体力，其他方面应该是无死角的
+
+
+
+*****
+
+####  poipanchao  
+##### 16791#       发表于 2022-8-8 09:03
+
+昨晚最后几场黛灰拿了翘屁股，加上之前就学到的根性
+僵尸投手老叶再临也未可知
+
+
+
+*****
+
+####  Ketestrait  
+##### 16792#       发表于 2022-8-8 14:07
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h4zbqzpjyxj21kw11xwpr.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/gyokuro1175/status/1556511969905356800](https://twitter.com/gyokuro1175/status/1556511969905356800)
+
+这个表做得不错，slm和yugo是真的可惜
+
+
+
+*****
+
+####  poipanchao  
+##### 16793#       发表于 2022-8-8 14:48
+
+题外话，昨天hnn的apex好菜.
+打到后面月奈找回手感以后简直是拖着队伍上分…
+
+
+
+*****
+
+####  高等黑暗  
+##### 16794#       发表于 2022-8-8 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56972656&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-8 09:03</a>
+
+昨晚最后几场黛灰拿了翘屁股，加上之前就学到的根性
+
+僵尸投手老叶再临也未可知 ...</blockquote>
+不太可能这么玩
+
+僵尸叶自身的强度比黛灰高太多了，金特，对危机，青特也更强，球速比黛灰高10几，总变量也高了好多
+
+而且僵尸叶的另一个原因是2021的西西实际上没有能用的副投，她的副投比叶差得可太远了，这次神速在黛灰之后可是有2个不比黛灰差多少的副投等着的（属性BB+数个青特），这两个副投都倒了还有一个威压感关门投手
+
+比起让黛灰一个人一直喘，这几个轮流上墙多了
+
+
+
+*****
+
+####  lhawp  
+##### 16795#       发表于 2022-8-8 16:07
+
+今年综合投手力感觉还是赫高跟虹高最强，可惜这俩不在一组大概率看不到直接对决
+
+
+
+*****
+
+####  FCCHua  
+##### 16796#       发表于 2022-8-8 16:40
+
+她这个赛季的排位打的都很一般，虽然就没打几次
+
+
+
+*****
+
+####  winda  
+##### 16797#       发表于 2022-8-8 21:35
+
+cr杯这20kg盐来真的啊，nrk这边要把这些盐扔会社了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16798#       发表于 2022-8-8 21:37
+
+king还是把奖杯寄过去吧
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16799#       发表于 2022-8-8 21:40
+
+挺好的，上四校都有来有回，有得看了
+
+*****
+
+####  rzrbtk  
+##### 16800#       发表于 2022-8-8 21:49
+
+虹高选手有够卖力
+
+
+
+*****
+
+####  Ketestrait  
+##### 16801#       发表于 2022-8-8 21:49
+
+要是皇女能多两个魔物的话，现在就该是名门四校了
+
+
+
+*****
+
+####  gaiadc  
+##### 16802#       发表于 2022-8-8 21:56
+
+甚至可能不需要魔物，有个Mood就能名门了
+
+可惜皇女贪小便宜，三过Mood而不入
+
+*****
+
+####  高等黑暗  
+##### 16803#       发表于 2022-8-8 21:59
+
+想多了，西西甚至有ムードX
+
+灵能棒球你不得不服
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16804#       发表于 2022-8-8 22:04
+
+没差吧，小夜有ムードO，正好抵消
+
+*****
+
+####  gaiadc  
+##### 16805#       发表于 2022-8-8 22:07
+
+虽然西西和其他人玩的不是一个游戏，但小夜和力一都有Mood
+
+
+
+*****
+
+####  poipanchao  
+##### 16806#       发表于 2022-8-8 22:20
+
+有没有mood就差5m5p，有毛用
+
+*****
+
+####  高等黑暗  
+##### 16807#       发表于 2022-8-8 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982783&amp;ptid=1972669" target="_blank">gaiadc 发表于 2022-8-8 22:07</a>
+
+虽然西西和其他人玩的不是一个游戏，但小夜和力一都有Mood</blockquote>
+所以实际上西西就是没ムード啊
+
+月撇有胜运西西还没有呢，实际上算buff的话lz比西西还强
+
+*****
+
+####  gaiadc  
+##### 16808#       发表于 2022-8-8 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982986&amp;ptid=1972669" target="_blank">高等黑暗 发表于 2022-8-8 22:24</a>
+
+所以实际上西西就是没ムード啊
+
+月撇有胜运西西还没有呢，实际上算buff的话lz比西西还强 ...</blockquote>
+西西两个○一个×，有Mood啊
+
+
+
+*****
+
+####  poipanchao  
+##### 16809#       发表于 2022-8-8 22:34
+
+月奈每次都深夜valo吃不消啊……
+
+今天竟然有老叶，可以开始跟虹大联特联了吧
+
+
+
+*****
+
+####  FCCHua  
+##### 16810#       发表于 2022-8-8 22:58
+
+在那个微妙的时间点醒了后hnn果然没选择继续打apex，再加上还有妹妹邀请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Junchoon  
+##### 16811#       发表于 2022-8-9 13:33
+
+看不懂棒球游戏，但豆猫高校挺燃的......
+
+
+
+*****
+
+####  Ketestrait  
+##### 16812#       发表于 2022-8-9 13:53
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h50gynwdhxj21kw11xnd6.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16813#       发表于 2022-8-9 15:28
+
+レオス監督へのイラストを描こうとサロメ嬢を誘った時の話をする樋口楓【にじさんじ甲子園/にじさんじ切り抜き】
+
+[https://youtu.be/ET1PItgelWQ](https://youtu.be/ET1PItgelWQ)
+
+
+
+*****
+
+####  毛头小希  
+##### 16814#       发表于 2022-8-9 15:36
+
+豆猫高中靠豆猫吉祥物和emo展开产出了超多高质量FA
+
+相对的球场英姿的FA就少很多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“怎么都没有在打棒球的”
+
+“都在玩”
+
+“不是，是都在学习”
+
+三年级全员学力满级草
+
+进甲子园的梦已经圆了，接下来就是考上东大当人生赢家了
+
+
+
+*****
+
+####  吃咸菜的  
+##### 16815#       发表于 2022-8-9 16:17
+
+二哥次周2k3，感觉最后能收在4w不到吧
+<img src="https://p.sda1.dev/6/9b0541ab135fc1f05802efd2cb6b0f99/IMG_20220809_161511.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Porsche  
+##### 16816#       发表于 2022-8-10 07:47
+
+看了虹甲对真的甲子园感兴趣的可以速速打开直播
+现在是弱小C级学校挑战S级绝对王者的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后3-0领先了
+
+
+
+*****
+
+####  rzrbtk  
+##### 16817#       发表于 2022-8-10 11:33
+
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en也许真的在cn很火😅
+
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 16818#       发表于 2022-8-10 12:41
+
+vox粉黑都很傻逼，没有娱乐精神。
+
+*****
+
+####  IL282  
+##### 16819#       发表于 2022-8-10 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-10 11:33</a>
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en ...</blockquote>
+underaged chinks 是这样的，世界闻名了都
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  poipanchao  
+##### 16820#       发表于 2022-8-10 20:06
+
+<img src="https://img.saraba1st.com/forum/202208/10/200551gehz6hblktrswwlk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220810200536.png</strong> (138.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-10 20:05 上传
+
+reid你该死了
+
+
+
+*****
+
+####  SuntoryNomu  
+##### 16821#       发表于 2022-8-11 00:45
+
+还是会想她，有时候。
+
+
+
+*****
+
+####  pikamee  
+##### 16822#       发表于 2022-8-11 01:43
+
+个人暴论，en皮套人之于这代人，完全可以等同为老友记之于上一代人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+所以我相信EN皮套人在cn的市场还有极大挖掘空间
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  宫宝兔丁  
+##### 16823#       发表于 2022-8-11 03:12
+
+金银铜憨憨的新歌听着还行啊 就是差点没认出来人
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16824#       发表于 2022-8-11 20:49
+
+甲子园能把黑黑联动压到1W多的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16825#       发表于 2022-8-11 22:02
+
+react又又又出新人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Suny08  
+##### 16826#       发表于 2022-8-11 23:31
+
+这虹甲终于知道如何流量变现了啊，把解说都整付费了，真有你的，感觉现在要看虹标配得起步你自己推的会员+fanclub +官号会员了
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16827#       发表于 2022-8-11 23:55
+
+一段时间没看虹en,没想到进入明面开火的阶段了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  空集  
+##### 16828#       发表于 2022-8-12 00:25
+
+你虹en那个人字拖怎么又在到处乱蹭了啊
+
+
+
+*****
+
+####  OldGlory  
+##### 16829#       发表于 2022-8-12 00:46
+
+只要主播之间别撕破脸，粉丝怎么打都无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越打越忠诚
+
+*****
+
+####  poipanchao  
+##### 16830#       发表于 2022-8-12 00:47
+
+我当时看的感觉就是朋友打闹啊
+
+粉丝饭圈入脑才打起来的吧？
+
+
+
+*****
+
+####  CarlSteve  
+##### 16831#       发表于 2022-8-12 00:50
+
+「打闹」，指被另一方完全无视
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16832#       发表于 2022-8-12 08:02
+
+ 本帖最后由 渡鸦骑士 于 2022-8-12 08:09 编辑 
+
+你盒这么容易上火啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看了一下事情的经过（偏向报道）
+en大家庭演不下去了？
+
+
+
+*****
+
+####  pikamee  
+##### 16833#       发表于 2022-8-12 08:16
+
+经典嗯造drama<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 16834#       发表于 2022-8-12 09:07
+
+贴吧：en大家庭终于不演了，瘟好似
+
+虹en楼和萌萌：都是故意造节目效果，大家感情好着呢
+
+我不看en不好说哪边真，不过大家庭感觉早就是演的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  andeloz  
+##### 16835#       发表于 2022-8-12 09:20
+
+真有什么大家庭感吗 我一直以为那是引流来的集美才会相信的东西<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  皮卡丘小发卡  
+##### 16836#       发表于 2022-8-12 09:25
+
+都是同事罢了，不会真有人相信大家庭吧？
+
+
+
+*****
+
+####  fastary  
+##### 16837#       发表于 2022-8-12 10:01
+
+信不信是一回事，看en目前这串门和交流的频率我觉得还是挺敬业在演大家庭的
+
+
+
+*****
+
+####  pikamee  
+##### 16838#       发表于 2022-8-12 10:21
+
+不懂什么叫大家庭感，但en的联动我觉得大部分都挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16839#       发表于 2022-8-12 11:07
+
+不懂你们阴湿虹人
+
+
+
+*****
+
+####  Ketestrait  
+##### 16840#       发表于 2022-8-12 12:15
+
+ 本帖最后由 Ketestrait 于 2022-8-12 12:18 编辑 
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h53uzgt27kj218e0p3gs9.jpg" referrerpolicy="no-referrer">
+
+有赞助奖品了，第三个这命中广告牌个人奖如果中的是海外选手还要发国外吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+吃瓜围观群众：
+
+【#にじさんじ甲子園 2022】 NIJISANJI EN A LEAGUE WATCHALONG 【NIJISANJI EN | Elira Pendora】
+[https://youtu.be/egh7oDegru8](https://youtu.be/egh7oDegru8)
+
+【#にじさんじ甲子園 2022】スポーツバーDERAS 2022 本戦Aリーグ応援配信【ベルモンド・バンデラス/にじさんじ】
+[https://youtu.be/rn5cqrZb9VA](https://youtu.be/rn5cqrZb9VA)
+
+顺便现在真・甲子园那边也是刺激无比<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16841#       发表于 2022-8-12 12:27
+
+顺便B站也有力量棒球的玩家UP在解说，最近看的时候都是看这个台的。
+[https://live.bilibili.com/24895181](https://live.bilibili.com/24895181)
+
+*****
+
+####  alcoholic1000  
+##### 16842#       发表于 2022-8-12 12:31
+
+一表莎乐美体力已经掉了一多半，一个寄提前送给豆猫高校
+
+
+
+*****
+
+####  lhawp  
+##### 16843#       发表于 2022-8-12 12:45
+
+这个强力走垒设定，感觉神速稳赢了吧
+
+
+
+*****
+
+####  Ketestrait  
+##### 16844#       发表于 2022-8-12 13:43
+
+社长两次关键点失败，熊猫人要下克上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16845#       发表于 2022-8-12 13:50
+
+第一cjb，拿下
+
+*****
+
+####  格林卡罗尔  
+##### 16846#       发表于 2022-8-12 13:51
+
+熊猫人这阵容数据平均差了一百点也能翻，流弊
+
+*****
+
+####  FCCHua  
+##### 16847#       发表于 2022-8-12 13:51
+
+熊猫人名监督！
+
+*****
+
+####  say_gg_plz  
+##### 16848#       发表于 2022-8-12 13:52
+
+熊猫人今天选择和运气都好，BUFF吃满了，社长危机时候换投换晚了
+
+*****
+
+####  lhawp  
+##### 16849#       发表于 2022-8-12 13:55
+
+熊猫人牛逼！
+
+*****
+
+####  alcoholic1000  
+##### 16850#       发表于 2022-8-12 13:56
+
+不会决赛是我们gamers内战吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LilighT  
+##### 16851#       发表于 2022-8-12 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">太精彩了
+
+
+
+*****
+
+####  hulaoda007  
+##### 16852#       发表于 2022-8-12 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看战报好精彩。
+
+
+
+*****
+
+####  rzrbtk  
+##### 16853#       发表于 2022-8-12 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57003525&amp;ptid=1972669" target="_blank">IL282 发表于 2022-8-10 12:42</a>
+
+underaged chinks 是这样的，世界闻名了都
+
+—— 来自 OnePlus IN2025, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+主要是骂战两边都给我一种“啊啊啊你不要跟她跳舞啊啊啊”感，liver之间互相锐评/云/串门我倒是觉得挺好的...
+
+syl，已经开始无法预测的命运之舞台了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">，替虹高祈福
+
+*****
+
+####  Ketestrait  
+##### 16854#       发表于 2022-8-12 14:24
+
+豆猫完全压制住了社长，加贺美大附危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16855#       发表于 2022-8-12 14:25
+
+加賀美大附属高校？
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16856#       发表于 2022-8-12 14:34
+
+德比关键三振拿下转折点！ 风向来到了社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 16857#       发表于 2022-8-12 14:34
+
+莎皇一人队，唯一的ACE独木难支
+跟现实中的莎皇一致性
+
+
+
+*****
+
+####  Ketestrait  
+##### 16858#       发表于 2022-8-12 14:50
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h53zggmp91j20py0el0wn.jpg" referrerpolicy="no-referrer">
+
+背后灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16859#       发表于 2022-8-12 15:13
+
+lize你也是cjb？
+
+*****
+
+####  Ketestrait  
+##### 16860#       发表于 2022-8-12 15:17
+
+EN吃瓜群众把VoxYashiro背后灵供起来之后yashiro就爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16861#       发表于 2022-8-12 15:27
+
+真没想到会悬念拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赛前我都默认两上两下，下二校的数据只有上二的75%这也能有悬念
+
+
+
+*****
+
+####  高等黑暗  
+##### 16862#       发表于 2022-8-12 15:40
+
+1发胜负就是什么都有可能发生的 去年帝华数据和今年豆猫差不多惨最后第三好吧
+
+现在来说
+
+豆猫：除非社长被LZ爆锤否则稳定第四
+
+ssk：lz不胜的情况下只要赢豆猫就第一 lz胜的情况下必须得分超过lz也就是血洗豆猫10点以上
+
+lz：赢社长并且豆猫不被血洗
+
+社长：赢lz并且ssk输豆猫
+
+最有利的我觉得是ssk
+
+*****
+
+####  alcoholic1000  
+##### 16863#       发表于 2022-8-12 15:47
+
+插播一条：
+
+<img src="https://img.saraba1st.com/forum/202208/12/154614gkccjcasewjl1sw1.png" referrerpolicy="no-referrer">
+
+<strong>English-speaking Gamers.png</strong> (132.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 15:46 上传
+
+ <blockquote>Male character VTuber Auditions for <strong>English-speaking Gamers</strong> open now!</blockquote>
+你这图上五个b哪个称得上Gamer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 16864#       发表于 2022-8-12 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男里能找出一个正经gamer吗我怎么不知道
+
+应该走的就不是这个路数吧
+
+*****
+
+####  fastary  
+##### 16865#       发表于 2022-8-12 16:10
+
+只要平时直播打游戏就是gamer
+
+
+
+*****
+
+####  高等黑暗  
+##### 16866#       发表于 2022-8-12 16:28
+
+lz和社长的比赛决定一切了
+
+lz赢 顺位是lz 熊猫人 社长 豆猫
+
+社长赢 熊猫人 社长 lz 豆猫
+
+
+
+*****
+
+####  poipanchao  
+##### 16867#       发表于 2022-8-12 16:48
+
+难道社长就是虹甲第一cjb？
+
+
+
+*****
+
+####  更喜欢狗是吗  
+##### 16868#       发表于 2022-8-12 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> B组第二吹JB会是谁呢？
+
+
+
+*****
+
+####  Ketestrait  
+##### 16869#       发表于 2022-8-12 17:05
+
+关键的转折点buff被三振，风向不在社长这边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 16870#       发表于 2022-8-12 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上次垫底的赫高锁定前2了！3bk没有3年垫底！
+
+*****
+
+####  say_gg_plz  
+##### 16871#       发表于 2022-8-12 17:11
+
+不愧是卯月剧场，最后这场也太好看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16872#       发表于 2022-8-12 17:12
+
+ 本帖最后由 alcoholic1000 于 2022-8-12 17:17 编辑 
+
+铁壁赫高！王道！王道！王道！
+
+不过没想到社长队打成这样
+
+<img src="https://img.saraba1st.com/forum/202208/12/171743jxzp3x773dxixtt6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【Aリーグ最終結果】 .jpeg</strong> (347.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 17:17 上传
+
+【Aリーグ最終結果】
+
+1位:王立ヘルエスタ
+
+2位:パンパカパンダ
+
+3位:加賀美大附属
+
+4位:楽園村立まめねこ
+
+
+
+*****
+
+####  FCCHua  
+##### 16873#       发表于 2022-8-12 17:23
+
+ 本帖最后由 FCCHua 于 2022-8-12 17:27 编辑 
+
+下午在hnn弹幕栏里刷kmt和oreapo的真有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报告给运营，虽然我觉得后者没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 16874#       发表于 2022-8-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035047&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-12 15:47</a>
+
+插播一条：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mysta的瓦实力还是要尊敬下的，倒是sunny这军团高玩没选进来挺意外的
+
+*****
+
+####  winda  
+##### 16875#       发表于 2022-8-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57002364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-10 11:33</a>
+
+在微博查个完全不相干关键词误入vox粉大战其他粉战场，感觉以前只在伏黑惠番位大战那里见过这种场面，虹en ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简中限定炎上真的很有节目效果
+
+这点drama 700踩和ib虹甲捏人优遇en男的1400踩比起来啥都不算
+
+
+
+*****
+
+####  poipanchao  
+##### 16876#       发表于 2022-8-12 17:41
+
+豆猫这成绩不行，fanart倒是挺多的
+这队剧情特别王道就是了
+乡下学校来了个天才选手莎皇
+努力了三年带队进甲子园
+莎皇的形象又有特点，画面感强
+
+*****
+
+####  poipanchao  
+##### 16877#       发表于 2022-8-12 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036309&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-8-12 17:23</a>
+下午在hnn弹幕栏里刷kmt和oreapo的属实有点现象级了，主播发现后特地不ban等最后快下播的时候公开处刑和报 ...</blockquote>
+下午播啥了就开刷？
+
+
+
+*****
+
+####  FCCHua  
+##### 16878#       发表于 2022-8-12 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036557&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-12 17:43</a>
+下午播啥了就开刷？</blockquote>
+vspo四人＋aim组排valo
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16879#       发表于 2022-8-12 23:10
+
+<img src="https://img.saraba1st.com/forum/202208/12/231006e5ff5du51andf9e9.png" referrerpolicy="no-referrer">
+
+<strong>6315a4e8f771bd109de5aabc702e428c.png</strong> (19.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-12 23:10 上传
+
+值了呀，蓝莓
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16880#       发表于 2022-8-12 23:50
+
+在nhk上面把daze唱成这样算不算公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16881#       发表于 2022-8-13 12:26
+
+ 本帖最后由 Ketestrait 于 2022-8-13 12:29 编辑 
+
+yugo这二回表体力就要寄了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+惨案，比豆猫还惨<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  alcoholic1000  
+##### 16882#       发表于 2022-8-13 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57036345&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-12 17:26</a>
+
+mysta的瓦实力还是要尊敬下的，倒是sunny这军团高玩没选进来挺意外的</blockquote>
+这两人现在走的都是エンターテイナー路线吧，不展示游戏力，有时候clip看见他们巨魔发言还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+反倒是歌势的几个人进来以后整天嗯打游戏
+
+*****
+
+####  alcoholic1000  
+##### 16883#       发表于 2022-8-13 12:29
+
+二回表就打成筛子，只有yugo防不住啊
+
+king也太狠了
+
+*****
+
+####  布莱士·西伯利  
+##### 16884#       发表于 2022-8-13 12:30
+
+8-0，油惨。
+
+
+
+*****
+
+####  IL282  
+##### 16885#       发表于 2022-8-13 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57035047&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-12 15:47</a>
+插播一条：</blockquote>
+赶紧去请rpr
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  zpbzpb123123  
+##### 16886#       发表于 2022-8-13 12:44
+
+没看油的育成直播 这野手咋练的啊 上位打线两维全是d，e。4棒都是c，e
+
+*****
+
+####  Ketestrait  
+##### 16887#       发表于 2022-8-13 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046289&amp;ptid=1972669" target="_blank">zpbzpb123123 发表于 2022-8-13 12:44</a>
+
+没看油的育成直播 这野手咋练的啊 上位打线两维全是d，e。4棒都是c，e</blockquote>
+背负了虹甲所有的非洲酋长运，每场比赛都是自动失分开场然后追分进延长苦战惨胜or惨败，本届育成唯一一个没有打进过甲子园的
+
+
+
+*****
+
+####  Ketestrait  
+##### 16888#       发表于 2022-8-13 13:25
+
+投手战力差距令人绝望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 16889#       发表于 2022-8-13 13:29
+
+这昨天比去年昨天跳的有点高呀 大概是人员更好了 还是预测个黛灰那个数字吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  稀勢のささ  
+##### 16890#       发表于 2022-8-13 13:33
+
+ 本帖最后由 稀勢のささ 于 2022-8-13 13:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么虐菜局   嗯蹭是吧
+
+
+
+*****
+
+####  Ketestrait  
+##### 16891#       发表于 2022-8-13 14:00
+
+油男这1回里AI觉醒完美配合啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16892#       发表于 2022-8-13 14:04
+
+ 本帖最后由 alcoholic1000 于 2022-8-13 14:05 编辑 
+
+yugo睡醒了！
+
+控球s怎么还四坏啊
+
+<img src="https://img.saraba1st.com/forum/202208/13/140542lr5yfoi6vdnno6ag.png" referrerpolicy="no-referrer">
+
+<strong>【#にじさんじ甲子園 2022】NIJISANJI EN B LEAGUE WATCHALONG【NIJISANJI EN | Luca .png</strong> (116.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 14:05 上传
+
+真热闹
+
+
+
+*****
+
+####  Ketestrait  
+##### 16893#       发表于 2022-8-13 14:13
+
+能维持住战线后，帝高的走力也开始发挥作用了； 不过yugo体力见底下去了，风向尚不可知
+
+*****
+
+####  poipanchao  
+##### 16894#       发表于 2022-8-13 14:15
+
+虹甲第二cjb？
+
+
+
+*****
+
+####  Ketestrait  
+##### 16895#       发表于 2022-8-13 14:23
+
+上位打线沉默，这局感觉西西寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  更喜欢狗是吗  
+##### 16896#       发表于 2022-8-13 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这赛制输了一局等于失去争夺第一的资格了，
+
+*****
+
+####  Ketestrait  
+##### 16897#       发表于 2022-8-13 14:29
+
+投手，投手，还是投手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16898#       发表于 2022-8-13 14:30
+
+人笑大福CJB
+
+大福笑人不懂直播
+
+这就是4投手的含金量！
+
+*****
+
+####  alcoholic1000  
+##### 16899#       发表于 2022-8-13 14:32
+
+渡鸦帝国立继投守不住，还让西西吃到了buff<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+演了6回就等现在！
+
+*****
+
+####  稀勢のささ  
+##### 16900#       发表于 2022-8-13 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是节目效果
+
+*****
+
+####  FCCHua  
+##### 16901#       发表于 2022-8-13 14:35
+
+大福稳住了就好...
+
+*****
+
+####  格林卡罗尔  
+##### 16902#       发表于 2022-8-13 14:35
+
+被换投气死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  poipanchao  
+##### 16903#       发表于 2022-8-13 14:44
+
+原来虹甲第二CJB是king吗？！
+
+*****
+
+####  alcoholic1000  
+##### 16904#       发表于 2022-8-13 14:48
+
+别尬黑，我king必不可能输，让2是吸血鬼的仁慈<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Junchoon  
+##### 16905#       发表于 2022-8-13 15:10
+
+西西声音太大了，根本听不见牛姨说话......
+
+
+
+*****
+
+####  poipanchao  
+##### 16906#       发表于 2022-8-13 15:22
+
+原来king也选择了同接最高的打法
+
+*****
+
+####  FCCHua  
+##### 16907#       发表于 2022-8-13 15:23
+
+牛姨尽力了，能打的有来有回<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16908#       发表于 2022-8-13 15:25
+
+king打法没问题，是牛姨最后一轮不上威压感继投enna而是上了宝三家同期，属于选了同接最高的打法
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ketestrait  
+##### 16909#       发表于 2022-8-13 15:27
+
+虽然输了，但珠穆朗玛高耸不倒<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16910#       发表于 2022-8-13 15:51
+
+牛油战还蛮好看的。<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  Ketestrait  
+##### 16911#       发表于 2022-8-13 16:07
+
+三次转折点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，谁拿下这里谁基本就赢
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16912#       发表于 2022-8-13 16:12
+
+索西埃路五五开
+
+
+
+*****
+
+####  高等黑暗  
+##### 16913#       发表于 2022-8-13 16:26
+
+2020年 lz首位拿ange 最后被暴打 0胜末位
+
+2021 ange自己上 被暴打 0胜末位
+
+2022 牛姨首位牛了lz的ange 被暴打 目前0胜准备打末位战 lz没用ange，已经确定决赛了
+
+可不可以说ange就是甲子园瘟神w
+
+
+
+*****
+
+####  Ketestrait  
+##### 16914#       发表于 2022-8-13 16:30
+
+神速的看板，当然是我...Captain Shiba！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16915#       发表于 2022-8-13 16:57
+
+期待VOX对阵VASHIRO。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiadc  
+##### 16916#       发表于 2022-8-13 16:57
+
+标准结局了
+
+*****
+
+####  格林卡罗尔  
+##### 16917#       发表于 2022-8-13 16:58
+
+咲唯，命中注定的ライバル<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 16918#       发表于 2022-8-13 16:59
+
+排位赛定了
+
+赫高对神速
+
+咲唯贴贴
+
+海马vs马利克
+
+村高山高伊甸内战，不是，争首胜
+
+
+
+*****
+
+####  你谁  
+##### 16919#       发表于 2022-8-13 17:03
+
+ 本帖最后由 你谁 于 2022-8-13 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57046847&amp;ptid=1972669" target="_blank">你谁 发表于 2022-8-13 13:29</a>
+这昨天比去年昨天跳的有点高呀 大概是人员更好了 到黛灰那个数字就是最好情况
+
+—— 来自 Xiaomi M2102K1AC ...</blockquote>
+看来不是最好而是稳了 
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  FCCHua  
+##### 16920#       发表于 2022-8-13 18:02
+
+ 本帖最后由 FCCHua 于 2022-8-13 18:10 编辑 
+
+切り抜きチャンネル怎么删了刚发的切片，评论区的双标还没品鉴够<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16921#       发表于 2022-8-13 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56991174&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-8-9 15:28</a>
+
+レオス監督へのイラストを描こうとサロメ嬢を誘った時の話をする樋口楓【にじさんじ甲子園/にじさんじ切り ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202208/13/180712gqzjilpoopklp1lc.jpg" referrerpolicy="no-referrer">
+
+<strong>FZ2WipYVEAAZtOI.jpg</strong> (458.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/13/180713qjs0g8jjsjasrtqq.jpg" referrerpolicy="no-referrer">
+
+<strong>FZ2WkadUcAEo8Tc.jpg</strong> (353.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-13 18:07 上传
+
+[https://twitter.com/nanafuji_man/status/1557566689125888000](https://twitter.com/nanafuji_man/status/1557566689125888000)
+
+
+
+*****
+
+####  Kokichi  
+##### 16922#       发表于 2022-8-13 23:10
+
+那个切片只看到标题没来得及看，是逆向独角兽又暴动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望对前队友aim的私信手下留情。
+男女主播就这么一套场外翻来覆去地闹，已经看厌了。
+
+
+
+*****
+
+####  FCCHua  
+##### 16923#       发表于 2022-8-13 23:48
+
+bobhina贴贴不行，kmt和其他人可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 16924#       发表于 2022-8-14 00:16
+
+夜观历史资料，感觉mrra虽然长得mihiru，但实际上更hsmk啊（五期生万能）
+
+
+
+*****
+
+####  OldGlory  
+##### 16925#       发表于 2022-8-14 01:29
+
+别吧，hsmk纯纯的观众强行配出来的产物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 16926#       发表于 2022-8-14 01:45
+
+不要岁月史书，hsmk自己也主动营业了的
+
+mhr才是后来的！
+
+
+
+*****
+
+####  FlinN  
+##### 16927#       发表于 2022-8-14 07:33
+
+Hsmk 还有一阵绿组交情 一个白毛玩原一个歌势一个平板闷骚有维阿三马鹿可能好伐
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16928#       发表于 2022-8-14 11:12
+
+en5期……？
+
+
+
+*****
+
+####  IDIDIDID  
+##### 16929#       发表于 2022-8-14 15:59
+
+我情弱，能有老害帮忙科普下vox和pomu又咋了吗，微博随手一搜集美对vox意见很大啊
+
+
+
+*****
+
+####  Ketestrait  
+##### 16930#       发表于 2022-8-14 16:46
+
+[https://youtu.be/Dy03XXJidwo](https://youtu.be/Dy03XXJidwo)
+
+Enna: Mom is like so freaking tall <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16931#       发表于 2022-8-14 17:34
+
+可以提前宣布牛姨寄了，安洁的诅咒生效吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16932#       发表于 2022-8-14 17:42
+
+Manami这次表现都很出彩呢，但提前安洁咒。明年多个梗可以玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16933#       发表于 2022-8-14 17:49
+
+楼友好奶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16934#       发表于 2022-8-14 17:54
+
+安洁对不起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 16935#       发表于 2022-8-14 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豆猫这完全是被帕特姐一个人打崩了
+
+6打席6安打
+
+相信着送出的帕特姐（
+
+*****
+
+####  FCCHua  
+##### 16936#       发表于 2022-8-14 18:09
+
+没事，今天的比分差现实比游戏还残酷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16937#       发表于 2022-8-14 18:11
+
+帕特姐念在旧情，送了一个漏接，这是最后的仁慈，我不回村了，勿念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sgssk  
+##### 16938#       发表于 2022-8-14 18:21
+
+随手搜了下看到个“vox把pomu的末影农场给淹了”，一窝子末影虫没了
+
+*****
+
+####  Ketestrait  
+##### 16939#       发表于 2022-8-14 18:29
+
+社长怎么又开局落后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16940#       发表于 2022-8-14 18:36
+
+前两场都说明，威压感太有用了
+
+
+
+*****
+
+####  Ketestrait  
+##### 16941#       发表于 2022-8-14 18:44
+
+芙莲：chance是什么？G又是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16942#       发表于 2022-8-14 19:03
+
+再这么打下去帝高就要没投手用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16943#       发表于 2022-8-14 19:28
+
+重头戏VOX和VASHIRO的对决了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 16944#       发表于 2022-8-14 20:25
+
+虹高继投sonny哥怎么感觉比首发ACE发挥还好<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 16945#       发表于 2022-8-14 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57063735&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-14 20:25</a>
+
+虹高继投sonny哥怎么感觉比首发ACE发挥还好</blockquote>
+剑持育成的时候第一年为了提高能力给了个超慢球
+
+实际上这个球一直被认为是坑逼二直，拥有所有球种里最低的球质，只要被捕捉非常容易飞出外野甚至变成全垒打，仅次于失投
+
+*****
+
+####  你谁  
+##### 16946#       发表于 2022-8-14 20:46
+
+lize打葛呀 这同接爆炸呀
+
+*****
+
+####  布莱士·西伯利  
+##### 16947#       发表于 2022-8-14 20:47
+
+ 本帖最后由 布莱士·西伯利 于 2022-8-14 20:48 编辑 
+
+不知道会不会变成投手局，也很燃就是了。
+
+呜诶？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16948#       发表于 2022-8-14 20:48
+
+白板战神！！nrk！
+
+
+
+*****
+
+####  Ketestrait  
+##### 16949#       发表于 2022-8-14 21:08
+
+不倒的黛灰，King选择了用胜利为代价给黛灰送行<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16950#       发表于 2022-8-14 21:10
+
+ 本帖最后由 格林卡罗尔 于 2022-8-14 21:17 编辑 
+
+不过客观来说不换黛灰有机会在七里有换代打的机会，也算是一种决策
+
+草，换了个弱投然后代打了
+
+syl 寸前三铳士要来了吗
+
+zsyl 九里神速不是上位打线，神速走远了
+
+
+
+*****
+
+####  真飞鸟i  
+##### 16951#       发表于 2022-8-14 21:13
+
+30w+同接了，好强，虹棒真的是每年都在突飞猛进啊。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑暗剑  
+##### 16952#       发表于 2022-8-14 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">战犯卯月
+
+*****
+
+####  布莱士·西伯利  
+##### 16953#       发表于 2022-8-14 21:20
+
+虽然光君撒...
+
+但是比赛变得精彩起来了！
+
+
+
+*****
+
+####  Ketestrait  
+##### 16954#       发表于 2022-8-14 21:20
+
+卯月得威压感至少保住了不是本垒打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 16955#       发表于 2022-8-14 21:21
+
+ 本帖最后由 alcoholic1000 于 2022-8-14 21:25 编辑 
+
+神速这个三连打太假了！不带这样的，严查knm后台是不是在改数据<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+inui！！！她安打好多
+
+*****
+
+####  Ketestrait  
+##### 16956#       发表于 2022-8-14 21:24
+
+赫高之柱高耸，神速该走远了
+
+*****
+
+####  高等黑暗  
+##### 16957#       发表于 2022-8-14 21:29
+
+LZ登基！
+
+
+
+*****
+
+####  黑暗剑  
+##### 16958#       发表于 2022-8-14 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">莉兹监督不动如山，也是一种莉光
+
+*****
+
+####  格林卡罗尔  
+##### 16959#       发表于 2022-8-14 21:30
+
+恭喜lize，明年又能看赫高了
+
+*****
+
+####  FCCHua  
+##### 16960#       发表于 2022-8-14 21:30
+
+nice，恭喜皇女<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北山玖公  
+##### 16961#       发表于 2022-8-14 21:32
+
+恭喜皇女，一直看皇女打五五开棒球，最后也算是如愿以偿了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 16962#       发表于 2022-8-14 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 16963#       发表于 2022-8-14 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连B站解说虹棒的人也哭了。
+
+*****
+
+####  zebra8888cz  
+##### 16964#       发表于 2022-8-14 21:56
+
+卵用剧场的节目效果真的拉的满中满 4坏接抓双杀然后经典高飞ngo接杀
+
+*****
+
+####  Ketestrait  
+##### 16965#       发表于 2022-8-14 21:59
+
+天开哭，“なんで泣いてるんですか？”，皇女这个梗还要被玩多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 16966#       发表于 2022-8-14 22:00
+
+ssk最后的留言写了个thank you for vox<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16967#       发表于 2022-8-14 22:29
+
+绿仙又整了个24h企划，只不过是接力歌回
+
+<img src="https://img.saraba1st.com/forum/202208/14/222923zcic8f46pyc8r8zr.jpg" referrerpolicy="no-referrer">
+
+<strong>FaIGoYeaMAAjAir.jpg</strong> (76.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/222921geqe9ed5hgiqedq2.jpg" referrerpolicy="no-referrer">
+
+<strong>FaIGoYSaUAE3AFF.jpg</strong> (139.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202208/14/222922pzbsesu8qbhub8o1.jpg" referrerpolicy="no-referrer">
+
+<strong>FaIGoYaacAIvsDK.jpg</strong> (181.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-14 22:29 上传
+
+https://twitter.com/midori_2434/status/1558815719449853952?s=20&amp;t=cE05t4rRVm8ZTOcSoCSzUg
+
+*****
+
+####  Ketestrait  
+##### 16968#       发表于 2022-8-14 22:29
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1h56nyzg0p8j20gh0ksmzp.jpg" referrerpolicy="no-referrer">
+
+竟然有莎小姐<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16969#       发表于 2022-8-14 22:36
+
+看着郡道在大片的虹甲感言推特里大聊特聊one peace电影感想有些好笑，这最新一个推“にじさんじ個人勢です”蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 16970#       发表于 2022-8-14 22:55
+
+[https://www.youtube.com/watch?v=T9IbKRMiK74](https://www.youtube.com/watch?v=T9IbKRMiK74)
+
+樋口楓の一言で男泣きするレオス監督
+
+
+
+*****
+
+####  Junchoon  
+##### 16971#       发表于 2022-8-14 23:02
+
+跌丝袜这活真的不是事先准备的吗？真的厉害......
+
+*****
+
+####  Ketestrait  
+##### 16972#       发表于 2022-8-14 23:02
+
+莎小姐这电脑宕机回来都要临时整个灵异小节目，她真的……<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 16973#       发表于 2022-8-14 23:10
+
+没看棒球，有人讲讲葛叶是不是彩虹lgd
+
+
+
+*****
+
+####  rzrbtk  
+##### 16974#       发表于 2022-8-14 23:37
+
+<blockquote>格林卡罗尔 发表于 2022-8-14 22:36
+看着郡道在大片的虹甲感言推特里大聊特聊one peace电影感想有些好笑，这最新一个推“にじさんじ個人勢です ...</blockquote>
+我郡一直是直球撞3D撞大活撞毕业直播的个人势liver呀（
+
+
+
+*****
+
+####  Suny08  
+##### 16975#       发表于 2022-8-15 14:14
+
+<blockquote>OldGlory 发表于 2022-8-14 23:10
+没看棒球，有人讲讲葛叶是不是彩虹lgd</blockquote>
+King每年大赛都拿了多少冠军了，等Lgd拿了tI才配和king比好吧，虹棒参加人数太少了只能算个major
+
+今年真是游戏厂商给虹赏饭啊，除了实况力量棒球下半年还有喷喷3和gen9，年底还有带马车dlc的马车杯，这送上门的饭可别不吃了
+
+*****
+
+####  poipanchao  
+##### 16976#       发表于 2022-8-15 14:18
+
+之前虾提过一嘴的niji vs vspo的喷喷战也不知道有没有希望
+不过在虾基本淡出虹中坚圈的现状下可能确实不大就是了
+
+
+
+*****
+
+####  高等黑暗  
+##### 16977#       发表于 2022-8-15 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57074777&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-15 14:14</a>
+
+King每年大赛都拿了多少冠军了，等Lgd拿了tI才配和king比好吧，虹棒参加人数太少了只能算个major
+
+今年真 ...</blockquote>
+虽然我也觉得拿葛叶和lgd比不好
+
+但是看参加人数少把虹甲说成major属实看低了
+
+虹甲这三年一直是彩虹大活动顶流，育成部分就有强大的引流效应，哪怕是平时只有几百个人看的底边只要是虹甲都有几万同接（去年女将）
+
+这次决赛最高同接甚至达到32w，其他大活动连虹甲的一半都达不到，不知道你所认为的彩虹TI是什么
+
+
+
+*****
+
+####  FCCHua  
+##### 16978#       发表于 2022-8-15 20:11
+
+hnn小号推都那么说了，有些人该消停会了吧，自己个人的两周年和生日怎么可能出图灵爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓬莱广告  
+##### 16979#       发表于 2022-8-15 20:20
+
+诺宝终于联动了，虽然全是老人
+
+
+
+*****
+
+####  Porsche  
+##### 16980#       发表于 2022-8-15 23:06
+
+ui
+
+@__ui4s
+
+·
+
+1時間
+
+8/19 (fri) 22:00~ YouTube LIVEします
+お知らせもあります〜来てね^_^
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 16981#       发表于 2022-8-16 00:08
+
+月之这个整蛊舞蹈，就是初期她讲的那个跳着跳着踩到学友手机导致学友疑似被特的那个吧，好怀念…
+
+
+
+*****
+
+####  winda  
+##### 16982#       发表于 2022-8-16 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下iwaiwa箱新人第一个妹妹，valo白金一，喷喷游戏时间约10000h的x段，来虹的话估计能混进小圈子里吃保底了
+
+
+
+*****
+
+####  天天座理世  
+##### 16983#       发表于 2022-8-16 03:31
+
+丽姐这种就是嗯直播不参与线下企划吧，纳凉祭结束就复播（找个新冠理由），去年vspo线下年会除了刚出道两个新人没参加就她没去。
+
+
+
+*****
+
+####  FCCHua  
+##### 16984#       发表于 2022-8-16 12:13
+
+ 本帖最后由 FCCHua 于 2022-8-16 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57079737&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-8-15 20:11</a>
+hnn小号推都那么说了，有些人该消停会了吧，自己个人的两周年和生日怎么可能出图灵爱 ...</blockquote>
+直接老鼠台“开骂”，看来最近真的把她惹烦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 16985#       发表于 2022-8-16 14:58
+
+[https://youtu.be/k1xPqYugip8](https://youtu.be/k1xPqYugip8)
+
+【黛灰/葛葉】生意気な後輩と面倒くさい先輩の思い出【にじさんじ甲子園】
+
+有人剪了个100min的二人从出道开始的回顾向视频，真不知道该说长还是短
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 16986#       发表于 2022-8-17 20:53
+
+月奈回到了她忠诚的Apex
+
+
+
+*****
+
+####  poipanchao  
+##### 16987#       发表于 2022-8-17 21:31
+
+这么多枪女看下来，我觉得月奈的apex是最有速度感和爽快感的
+
+
+
+*****
+
+####  FCCHua  
+##### 16988#       发表于 2022-8-18 09:08
+
+好突然的活动休止，发生啥了吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  asdhai  
+##### 16989#       发表于 2022-8-18 09:19
+
+真就一月来一个
+
+
+
+*****
+
+####  rzrbtk  
+##### 16990#       发表于 2022-8-18 09:28
+
+感觉这个告知是讲艾葵传言全锅啊（
+
+
+
+*****
+
+####  越动天下  
+##### 16991#       发表于 2022-8-18 09:32
+
+ 本帖最后由 越动天下 于 2022-8-18 09:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女友粉厉害了 还有难道就没有你葵的男友粉吗😡😡
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dybang  
+##### 16992#       发表于 2022-8-18 09:33
+
+还以为🐏了，难道是家庭原因？
+
+
+
+*****
+
+####  Suny08  
+##### 16993#       发表于 2022-8-18 09:48
+
+男友粉事儿比女友粉事儿少多了好吧，去冲男人频道男友粉不会做的，最多冒菜自嘲一下，葵皇现在男友粉还挺多的，不过虹男自己砸自己饭碗还是闻所未闻了，其他虹男怕是笑嘻了，又有鲸落吃了
+
+
+
+*****
+
+####  poipanchao  
+##### 16994#       发表于 2022-8-18 09:54
+
+ 本帖最后由 poipanchao 于 2022-8-18 09:57 编辑 
+
+挺糊的，沙丁鱼落吧
+上一次你虹有战斗力的男友粉是不是要追溯到gbr和露露时代了？
+
+说起来前几天看巴布太郎同接就500了，耐久的jumpking也没啥播放量
+她到底是想干什么呢…
+
+*****
+
+####  渡鸦骑士  
+##### 16995#       发表于 2022-8-18 09:56
+
+你虹女粉势力暴涨典型后果加一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qwera3469  
+##### 16996#       发表于 2022-8-18 10:01
+
+<blockquote>Suny08 发表于 2022-8-18 09:48
+男友粉事儿比女友粉事儿少多了好吧，去冲男人频道男友粉不会做的，最多冒菜自嘲一下，葵皇现在男友粉还挺多 ...</blockquote>
+这两三千同接的鲸也太小了
+
+*****
+
+####  蓬莱广告  
+##### 16997#       发表于 2022-8-18 10:04
+
+在外看不了视频谁能说下讲了啥
+
+还是看hnn小号推才知道这事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 16998#       发表于 2022-8-18 10:12
+
+虹人虹事罢了，嗷的一声疯了全频道拉💩的粉丝，被波及一脸懵的同事，遭不住直球开喷的主播，指责主播对不起粉丝的正义路人，管是管了但也就只能销anti号的诽谤中伤team，然后主播歇了。口了，你听见管人粉呼唤你（和你的虚拟诽谤中伤法）的声音了吗😭
+
+
+
+*****
+
+####  FCCHua  
+##### 16999#       发表于 2022-8-18 10:44
+
+ 本帖最后由 FCCHua 于 2022-8-18 10:47 编辑 
+
+让我想起昨天看到的哈弟箱的切片规定，里面提到reid全部禁止剪辑，已经上传的不会要求删除，恶意剪辑太多了
+
+
+
+*****
+
+####  fastary  
+##### 17000#       发表于 2022-8-18 10:51
+
+艾葵不是主要原因不过也算导火索之一吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+看repo除了关于粘着anti的部分也训了一直以来的看他做啥只会发好可爱的全肯定gachi和指示厨妈粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看到他抱怨每次联动这些粉丝都会去联动对象那边打扰或者指手画脚我就想起饭屋最后的线下联动那些攻击黛灰让fwgs告知自己开单窗不事先调整环境不配虑疫情etc的fwgs推了，真的有病<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+可惜没听到两人训粉只等到主播道歉……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+(倒也不是一定要fwgs训个粉，只是现在想起那群毒唯骂完达成目的还能爽开香槟仍然有点不爽)
+
+
+
+*****
+
+####  心垂万刃  
+##### 17001#       发表于 2022-8-18 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17002#       发表于 2022-8-18 11:42
+
+ 本帖最后由 格林卡罗尔 于 2022-8-18 11:44 编辑 
+
+太流弊了，可能是觉得妈妈粉的钱也恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真没想到是这么要强的主播
+
+syl hnn居然还提这事，要不要想想自己还要不要cp粉的钱
+
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 17003#       发表于 2022-8-18 12:00
+
+上次mh直接怼黑子就挺倔的，不过敢休应该是暂时不缺钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心垂万刃  
+##### 17004#       发表于 2022-8-18 12:01
+
+和口了一样休止吧，又没退社，不播也可以学口了那样只出谷子和音声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 17005#       发表于 2022-8-18 12:04
+
+这话说得像是律师折腾完就会回来播的，估计是不太能确定要折腾多久先写个无限期
+
+
+
+*****
+
+####  FCCHua  
+##### 17006#       发表于 2022-8-18 12:11
+
+hnn性格也是很要强的那种，不提这个事才不正常吧，更何况自己的二周年被cp粉恶心成那样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17007#       发表于 2022-8-18 12:35
+
+铁骨铮铮啊坚决不吃这口饭态度还挺强硬，母亲ヅラ、彼女ヅラ、ガチ恋势在rap里直接点名劈
+
+复归以后想走ライブ王这种路线？
+
+*****
+
+####  格林卡罗尔  
+##### 17008#       发表于 2022-8-18 12:40
+
+那我是不是可以期待一下oreapo终止营业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+axia大概就想要像传统游戏主播那样的，打得好说流弊打不好骂菜的对他来说比较能接受的氛围吧
+
+
+
+*****
+
+####  FCCHua  
+##### 17009#       发表于 2022-8-18 12:47
+
+ 本帖最后由 FCCHua 于 2022-8-18 12:50 编辑 
+
+那得看至今沉默什么都不说的kmt了，毕竟这不是一个人就能决定的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  _Ra1nMaker  
+##### 17010#       发表于 2022-8-18 13:11
+
+印象里oreapo两个人火起来不就是因为各种磕cp的剪辑么，真要把这批粉丝切割不会被反噬吗
+
+
+
+*****
+
+####  Kokichi  
+##### 17011#       发表于 2022-8-18 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">训完粉断一个月联动保证cp粉凉一半，可男女主播每次玉玉完还是会一起打游戏啊。
+
+上次cr valo结束后俩人都撂狠话了，带点脑子的观众都觉得oreapo会降温了，连体人真烦人，然后俩接近mental break的主播一起fallguys了。
+
+这关系真的太扭曲了，比起cp更像是同为厄介受害者互舔伤口一样。
+
+*****
+
+####  格林卡罗尔  
+##### 17012#       发表于 2022-8-18 13:16
+
+这种事都是慢慢来的，慢慢下降联动频率，直到观众想不起上次联动是哪天就算完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FCCHua  
+##### 17013#       发表于 2022-8-18 13:40
+
+ 本帖最后由 FCCHua 于 2022-8-18 13:44 编辑 
+
+然而如果没调整的话，21号就有旅团联动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17014#       发表于 2022-8-18 14:15
+
+被郡郡的健闘を祈る笑晕，看起来确实挺喜欢甸组几位的
+
+
+
+*****
+
+####  poipanchao  
+##### 17015#       发表于 2022-8-18 15:12
+
+这么扭曲下去，很难不假戏真做啊
+昨天串里还说hnn精神崩溃下播，去看了下切片
+虽然文字描述没错，但完全是两回事啊
+只能说语言的艺术了
+
+
+
+*****
+
+####  天天座理世  
+##### 17016#       发表于 2022-8-18 16:49
+
+apex改排位之后jp女管人只有勇气千寻上大师？
+这赛季诸王赛季现在已经大师了。
+
+
+
+*****
+
+####  stmule  
+##### 17017#       发表于 2022-8-18 17:22
+
+<img src="https://pic.jitudisk.com/public/2022/08/18/76847a8bbd93a.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/18/172207w6sq8u6fqphjxuux.jpg" referrerpolicy="no-referrer">
+
+<strong>20220818_164847.jpg</strong> (576.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-18 17:22 上传
+
+世代交替.jpg
+
+*****
+
+####  FCCHua  
+##### 17018#       发表于 2022-8-18 17:24
+
+ 本帖最后由 FCCHua 于 2022-8-18 17:28 编辑 
+
+上大师的还有马自立<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+syl 现在对于之前上过大师的女管人们来说瓦是生活，派是工作，后者努力打的真不多了
+
+*****
+
+####  poipanchao  
+##### 17019#       发表于 2022-8-18 17:25
+
+马大师在哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+我记得yqqx是下半赛季上的，马大师是上半赛季？
+含金量秒了
+
+
+
+*****
+
+####  winda  
+##### 17020#       发表于 2022-8-18 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dtto上是上了，不过她应该不算套皮管人了吧
+
+*****
+
+####  winda  
+##### 17021#       发表于 2022-8-18 22:28
+
+bsyl，axia的事情老师和葵皇都有回应了，不知道受影响比较浅的千草有回应么
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17022#       发表于 2022-8-19 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57125159&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-18 22:27</a>
+dtto上是上了，不过她应该不算套皮管人了吧</blockquote>
+dtto之前说自己不是管人，加入scarz时倒反而官宣是vtuber了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  rzrbtk  
+##### 17023#       发表于 2022-8-19 01:27
+
+自从上次郡盗司兔乱讲黄梗之后感觉路易斯人性值和谐度蹭蹭往上涨，这么久第一次对路易斯的恐惧心消退了...
+
+syl，兔组快点好起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  天天座理世  
+##### 17024#       发表于 2022-8-19 03:43
+
+马大师是没直播上吧含金量不足，yqqx可是直播上的
+
+
+
+*****
+
+####  Suzutsuki  
+##### 17025#       发表于 2022-8-19 13:09
+
+我第一喜欢的hada selen bobon组合又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IDIDIDID  
+##### 17026#       发表于 2022-8-19 14:09
+
+有没有人科普下黑枪咋了，怎么休止了
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17027#       发表于 2022-8-19 14:15
+
+不知不觉花谱武道馆也就几天了。
+感觉…
+
+
+
+*****
+
+####  毛头小希  
+##### 17028#       发表于 2022-8-19 17:07
+
+因虹甲而停了两周的3D接力继续
+
+虹EN也发了通知
+
+大约是第一场有EN嘉宾参与的虹人3D披露……？前面的3D披露也不是每场都看所以不是很清楚
+
+QQ图片20220819170518.jpg
+(510.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202208/19/170726paurrner9re4a9rv.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Porsche  
+##### 17029#       发表于 2022-8-19 21:22
+
+ 本帖最后由 Porsche 于 2022-8-19 21:29 编辑 
+
+ui的お知らせ揭晓
+
+结果是。。。
+
+开了会员<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202208/19/212937ejlqlyk7ffwuwa6f.png" referrerpolicy="no-referrer">
+
+<strong>222856.png</strong> (132.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 21:29 上传
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17030#       发表于 2022-8-19 21:22
+
+ 本帖最后由 rzrbtk 于 2022-8-19 21:25 编辑 
+
+一周没有VTA，感觉精神上枯竭了，
+
+虽说没有谁的直播是特别有趣的那种，但是12班那种团体感像在看选秀，在选秀节目全被禁的今天尤为珍贵....
+
+首先互动上就很足，目前比较还行的佐伯宇佐美有一种京阿尼南通滤镜下的咎人味，个人方面，感觉这么说不太好但是，当初觉得日下部很好就是因为她笑起来的方式很像某个我很喜欢的匿名音声声优（声音除了低音完全不像），
+
+结果上周忍笑直播嗯嗯啊啊的呼气就更...了，感觉听着真的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，如果都能出道就好惹...
+
+顺便一说我郡麻将三连TOP了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，时来运转！！
+
+*****
+
+####  fastary  
+##### 17031#       发表于 2022-8-19 21:23
+
+之前一直是看的文字repo，首页推荐出现原视频就打开听了下axia的原话，比我想象的还要不耐烦的感觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+本来我是觉得他这样说看似很刚但实际上更多的是吸引一堆单纯不爽噶吃的路人和提纯无自觉的全肯定，用休止来对抗厄介粉并不是很明智的决策
+
+看原视频回想起他好像是素人，又感觉像是接受炒作才有人气又不放弃用实力吸粉的娱乐圈新人发现饭圈的kimo超出了心理准备又不如老油条抗压，最终决定撂挑子不干了……反而释然了，不适应这一套的年轻人刚一些也好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  hulaoda007  
+##### 17032#       发表于 2022-8-19 21:42
+
+我觉得单纯趁着这次机会，把一些可能会炎上的话直白的说了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有些话其实和这次事件没任何关系，换个场合说完全可以套个瞧不起观众的头衔。
+
+
+
+*****
+
+####  fastary  
+##### 17033#       发表于 2022-8-19 21:55
+
+说到咎人，前两天那个伏见演播室和拿充电器的切片真是不得了……（回味）
+
+虽然单推都看不起cp民，但是客观而言对我这个磕管人cp全靠贴贴切片的蹭饭人来说咎人真的好tm香<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+目前为止听过那么多男管人的笑声，只有刀会让我每每产生“想看他当下面那个的同人”的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17034#       发表于 2022-8-19 22:11
+
+uiさん想要坚持每月会限，实质复活？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17035#       发表于 2022-8-20 00:07
+
+バズリズム02开始了，列了三大箱居然是774 holo 彩虹这个顺序草。
+
+为什么葛叶的king用的是bilibili的画面啊喂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17036#       发表于 2022-8-20 00:59
+
+黛灰还给星川发fa看啊
+
+
+
+*****
+
+####  Ketestrait  
+##### 17037#       发表于 2022-8-20 02:15
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h5cmlj2mkdj20x80imabt.jpg" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h5cmlo6qskj20xf0ikabv.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Suny08  
+##### 17038#       发表于 2022-8-20 09:56
+
+还是遵从本心按年功序列发衣服，但感觉三期四期五期的衣服应该都好了
+
+*****
+
+####  毛头小希  
+##### 17039#       发表于 2022-8-20 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57138721&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-8-19 21:22</a>
+
+一周没有VTA，感觉精神上枯竭了，
+
+虽说没有谁的直播是特别有趣的那种，但是12班那种团体感像在看选秀，在选 ...</blockquote>
+我觉得这周更新的小视频都挺好的啊，平时没什么机会听到的VTA之间的相互对话可以直接听个够（不并不够）
+
+要是没有小视频的话要听他们对话就只有等到出道了或者出道都不一定有
+
+VTA男团出道多久了跟金凤花好像只有MC虚空对话
+
+
+
+*****
+
+####  rzrbtk  
+##### 17040#       发表于 2022-8-20 14:56
+
+<blockquote>毛头小希 发表于 2022-8-20 09:57
+我觉得这周更新的小视频都挺好的啊，平时没什么机会听到的VTA之间的相互对话可以直接听个够（不并不够）
+
+ ...</blockquote>
+一期核心的roko还在里面我觉得复刻以前的关系是有点难，但还是能互怼我觉得还好，roko不出道可能为了未来一二期关系也搭个桥？不过照这么说二期最组织力强人的九埜也要延迟出道了。
+
+小视频好是好，感觉还是缺了点什么，不够养
+
+
+
+*****
+
+####  酒瓶止迁  
+##### 17041#       发表于 2022-8-20 16:08
+
+小海牛太久没播了，今天这直播事故和obs拉扯了一个多小时了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  天天座理世  
+##### 17042#       发表于 2022-8-20 19:55
+
+没看vspo瓦，妹妹那组是技不如人还是有战犯？不是夺冠大热吗
+
+*****
+
+####  FCCHua  
+##### 17043#       发表于 2022-8-20 19:59
+
+三个队都是一胜一负，没有人受伤的世界完成了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17044#       发表于 2022-8-20 20:26
+
+阿道在隔壁被轮着输出啊，真惨
+
+
+
+*****
+
+####  poipanchao  
+##### 17045#       发表于 2022-8-20 20:31
+
+ 本帖最后由 poipanchao 于 2022-8-20 20:34 编辑 
+
+要不是净胜分差太多
+
+月奈队差点就赢了，竞猜分赢太多
+
+beni队总分第一但是输给了总分最低的nzn队，nzn硬实力冠军
+
+月奈被13-3暴打以后，反过来nzn打了个10-2
+
+总的来说确实皆大欢喜
+
+*****
+
+####  渡鸦骑士  
+##### 17046#       发表于 2022-8-20 20:32
+
+<img src="https://img.saraba1st.com/forum/202208/20/203206jiq8uypnmu0qpcqu.png" referrerpolicy="no-referrer">
+
+<strong>@G00$VNC8NKW5AH}RB[V)JE.png</strong> (15.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 20:32 上传
+
+三世……不得不说和神乐七奈小姐一样，在星咏者方面还是很铁血的
+
+
+
+*****
+
+####  灵思之风jacke  
+##### 17047#       发表于 2022-8-20 20:50
+
+somunia跟metro mew的声音真的蛮合，就是合唱起来有点分不清谁是谁了（）
+
+
+
+*****
+
+####  Suny08  
+##### 17048#       发表于 2022-8-20 21:22
+
+虚无青マラにかわいいかわいい连呼するまんさんと虚无れな姉にかわいいかわいい连呼するアンスレ民ってどこに违いがあんの？
+
+还是我们虹女更pro一点捏，夜见和夏芽联动虽然确实有点虚无不过她俩很可爱就够了
+
+
+
+*****
+
+####  winda  
+##### 17049#       发表于 2022-8-20 22:11
+
+yamiem九月也有准备活动再开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近这虹毕业一个两个都转头复出了，真是悲伤不起来啊
+
+*****
+
+####  渡鸦骑士  
+##### 17050#       发表于 2022-8-20 22:16
+
+ 本帖最后由 渡鸦骑士 于 2022-8-20 22:17 编辑 
+
+22/7这个模型看起来挺能动挺可爱的啊（我怀疑是后期k的）……虽然后辈直接纸板好怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（眼神有点死）
+
+
+
+*****
+
+####  fastary  
+##### 17051#       发表于 2022-8-20 22:55
+
+ymn复出关永远留在虚拟世界的黛灰什么事<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+除非ymn再套皮回来整活或者堂堂正正用ymn身份和虹人联动<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17052#       发表于 2022-8-20 23:24
+
+ 本帖最后由 rzrbtk 于 2022-8-20 23:26 编辑 
+
+#不快女王时刻
+
+前情提要：昨天郡道在神域麻将南三局避路易斯听牌的西，最后路易斯自摸；
+
+大概七巡的时候郡就说了一句西/路易斯很可疑，按神域的五分钟延迟，能看到的牌还是上一局的，个人觉得是没有出千条件的；
+
+然后收到了质疑棉花糖（自作聪明程度和念左经网友差不多）
+
+<img src="https://img.saraba1st.com/forum/202208/20/231502hphoqpgmnqlxxzpx.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 027 - 郡道美玲🦙 在 Twitter_ _神域リーグも極まりすぎるとこんな.png</strong> (217.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 23:15 上传
+
+多井pro的stf应邀搞了个帅哥音朗读版，
+
+郡道受启发自己也念了还加了tag#郡道美玲毒マロチャレンジ（neta出道梗的#郡道美玲チャレンジ），
+
+天开（主办人）转推说想听工藤新一版本，
+
+几小时后：
+
+<img src="https://img.saraba1st.com/forum/202208/20/232116cgevzs4ex8a7e0s7.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 028 - 郡道美玲🦙 (@g9v9g_mirei) 的推文回复 _ Twitter - twitter..png</strong> (120.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-20 23:21 上传
+
+今天一想到这件事就笑容停不下来，我不要变成性格很差的坏人啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17053#       发表于 2022-8-21 19:14
+
+修女这风格变化www
+
+*****
+
+####  FCCHua  
+##### 17054#       发表于 2022-8-21 19:15
+
+修女这身新衣服感觉很符合那首印象曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+syl 隔壁的怜也在新衣服回
+
+*****
+
+####  布莱士·西伯利  
+##### 17055#       发表于 2022-8-21 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">反而感觉还蛮克雷雅的。
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17056#       发表于 2022-8-21 19:30
+
+怜这一身也太帅了吧…
+
+*****
+
+####  Porsche  
+##### 17057#       发表于 2022-8-21 19:32
+
+看看人家维阿jp的皮，从来都是和以前的模型共通的，想换哪个换哪个
+这边只有鲨鱼能做到
+
+
+
+*****
+
+####  天衣亚弥  
+##### 17058#       发表于 2022-8-21 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">恶堕了，感觉很涩。
+
+
+
+*****
+
+####  雪見世子  
+##### 17059#       发表于 2022-8-21 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">已经限界化了
+
+救済执行 ！！！
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17060#       发表于 2022-8-21 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/6/987cc792a7a066737f5189d322e0c77f/IMG_CMP_75843572.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/0c62d0ebca58967df54908eff7b15d73/IMG_CMP_24408470.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 17061#       发表于 2022-8-21 20:36
+
+正统维阿模型不能共用那不还是维阿jp害的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一开始的艾因和ruki给的什么jb烂皮
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17062#       发表于 2022-8-21 22:04
+
+看修女的脸还是感觉憨憨的。还是带口罩色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  妹控使徒  
+##### 17063#       发表于 2022-8-22 09:06
+
+[https://b23.tv/A5rvXiN](https://b23.tv/A5rvXiN)
+
+最近刷到这个吐槽贴  似乎最近张锤子又出事了  
+
+而记得当年谢拉引退    引入牡丹失败时也是惹出一堆风波,   当时也附带有一些不好的谣言.
+
+于是结合这次事情来看锤子似乎为人是不怎么好? 而当年的谣言多少能属实? 
+
+
+
+*****
+
+####  sgssk  
+##### 17064#       发表于 2022-8-22 16:10
+
+纺音零跑路了，看起来像是单纯的合同期满，然后公司大方地让她带着形象走了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">暂不确定是否停止活动
+
+记得她挺久前说自己考了个讲师证后才来做v的，还两边兼顾了一段时间，干累了才辞了讲师来着？
+
+<img src="https://img.saraba1st.com/forum/202208/22/160716nooqzg9u2eep98ky.png" referrerpolicy="no-referrer">
+
+<strong>~V{8D`7(NM_OA2I~3CZD1.png</strong> (39.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-22 16:07 上传
+
+
+
+*****
+
+####  Ketestrait  
+##### 17065#       发表于 2022-8-22 16:34
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h5fmodsu45j20gn12an36.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小鸟游泉  
+##### 17066#       发表于 2022-8-22 16:53
+
+确实不愧是不怕死三人组……问的还各种刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+后面问的这几个问题算是打开社内联动的大门了
+
+*****
+
+####  渡鸦骑士  
+##### 17067#       发表于 2022-8-22 16:58
+
+但是就算如此，用的是视频而不是直播也<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FCCHua  
+##### 17068#       发表于 2022-8-22 17:16
+
+ 本帖最后由 FCCHua 于 2022-8-22 17:18 编辑 
+
+vspo怎么又这么唐突出新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl 根据运营说的，应该是擅长valo
+
+
+
+*****
+
+####  毛头小希  
+##### 17069#       发表于 2022-8-22 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57173433&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-22 16:58</a>
+
+但是就算如此，用的是视频而不是直播也</blockquote>
+从伊甸组开始圭利就每出一批新人搞一个突击采访视频了
+
+要不是莎皇爆火估计这视频还能出的更早，伊甸组~VTA两个团都是出道一个月内就搞定
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|哦，委员长那个|
+
+查看全部评分
+
+
+
+*****
+
+####  poipanchao  
+##### 17070#       发表于 2022-8-22 17:54
+
+我真的不想看valo…<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+好像没啥毕业人在转生池里吧？
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17071#       发表于 2022-8-22 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57173856&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-8-22 17:30</a>
+从伊甸组开始圭利就每出一批新人搞一个突击采访视频了
+
+要不是莎皇爆火估计这视频还能出的更早，伊甸组~VTA ...</blockquote>
+好吧，确实关注的少。
+
+
+
+*****
+
+####  HKGC296  
+##### 17072#       发表于 2022-8-22 19:19
+
+在星川直播间看到弹幕“热度不如罕见”就像正在吸珍珠奶茶的时候吸到了一大粒老鼠屎一样难受<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  _Ra1nMaker  
+##### 17073#       发表于 2022-8-22 19:22
+
+都没花精力经营B站，热度低不是挺正常的么，没被说收租已经很好了 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 17074#       发表于 2022-8-22 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天星川首播啊，虽然这首播撞了好日子又延期一小时
+
+看了眼一首歌唱完热度已经比某罕见高了
+
+
+
+*****
+
+####  SuntoryNomu  
+##### 17075#       发表于 2022-8-22 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">她笑起来还是那么可爱。
+
+*****
+
+####  FCCHua  
+##### 17076#       发表于 2022-8-22 19:48
+
+beni的瓦都已经这个段位了，绝大部分还是solo
+<img src="https://p.sda1.dev/6/7ac9ad847a58f082b43aa45b604527bc/-33bedcdc81fdf391.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17077#       发表于 2022-8-22 20:26
+
+之前beni都自嘲过solo valo是她的“驱邪”之路
+炎上那次太伤了，除了箱内的，比赛基本上都没法参加
+
+
+
+*****
+
+####  free  
+##### 17078#       发表于 2022-8-22 22:23
+
+[https://forbesjapan.com/30under30/2022/](https://forbesjapan.com/30under30/2022/)
+
+谱皇入选“30岁以下改变日本的30人”榜
+
+好像去年还是前年田角哥哥也当选过一次吧
+
+*****
+
+####  fastary  
+##### 17079#       发表于 2022-8-22 22:29
+
+enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是自家搞的技术
+
+看隔壁b综提到现在3d门槛越来越低虹的3d还是那么拉，让我想起现在这家公司虽然拉但是没用开源框架所以只能在屎山上拼命装修的软件<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+不过现在虹的3d比起以前竹节虫确实是好多了，可怜黛灰人设那么简单结果直到毕业也没等到3D模的优化<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Junchoon  
+##### 17080#       发表于 2022-8-22 23:08
+
+跌丝袜的推特订阅数终于也破百万了，可喜可贺。
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17081#       发表于 2022-8-22 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57177612&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-22 22:29</a>
+
+enkr有说过3D是用的自家动捕技术之类的吗？只知道虹的l2d是自家搞的技术
+
+看隔壁b综提到现在3d门槛越来越低 ...</blockquote>
+业界用的都是VICON和OptiTrack这种光学式捕捉，主要区别在渲染和中控台，模型是外包。
+
+黛灰的模型外包是おいたん制作的，他还负责了安洁和小护士的模型，已经算是你虹除主流出道外质量最高的一批外包模型了...
+
+
+
+*****
+
+####  fastary  
+##### 17082#       发表于 2022-8-23 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178281&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-8-22 23:51</a>
+
+业界用的都是VICON和OptiTrack这种光学式捕捉，主要区别在渲染和中控台，模型是外包。
+
+黛灰的模型外包是 ...</blockquote>
+听起来不像是有什么技术上的问题，所以果然还是都有做只是屯着慢慢发？还是说外包模型大家都在拖x<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+安洁和小护士的模就很好，但是黛灰3D模怎么看刘海都处理得有点显头大啊……明明没有什么比较花哨的配饰之类，总不会是越简单越难做？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17083#       发表于 2022-8-23 01:08
+
+因为虹杏太过庞大，vspo民斗虫一向是玩闹为主
+
+不过进入2022年以后，发展趋势越来越好了
+
+上位势8月均值同接虽然依然战不过上位虹男杏女，但已经超过不少虹女了
+
+有生之年有没有机会再看一次下克上呢
+
+
+
+*****
+
+####  小鸟游泉  
+##### 17084#       发表于 2022-8-23 01:29
+
+虹的3D拉是在说模型质量？3D技术的话虹明明是业界尖端好吧，一堆在柴卡这些人的脑洞引领下越玩越花的初次看到时让人觉得像是黑科技的场景道具
+
+
+
+*****
+
+####  你谁  
+##### 17085#       发表于 2022-8-23 04:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178782&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-23 01:08</a>
+因为虹杏太过庞大，vspo民斗虫一向是玩闹为主
+
+不过进入2022年以后，发展趋势越来越好了
+
+上位势8月均值同接 ...</blockquote>
+yysy确实进步有（对比年初就知道了） 基本是ema中位数差不多上了一千（需要关注的是勇者斗恶龙的同接） 丽姐大概也上了一千 hnn进步最大 不过上面几个也得利于直播内容就是 其他的没怎么变 不过我一直觉得大赛对同接是抑制作用（整个的训练赛数据高只对部分有用）还是要看看后面参赛的数据 虽说增长 但是虹杏这边也有增长 也就是感觉到万的人感觉是渐渐多了 虽然虹是在甲子园 虹这边的lize和安洁凭借自己杂谈能稳过万 这几个月也算是在万上稳住脚跟 至于其他的女V就不多说 感觉除了特定游戏下一些女V还行和slm的存在 就像你说的vspo几人也基本上摸到了只有3bk和slm能稳压了 和牛姨 ·e ssk浮动差不多了  虽然叶今年来很少万了 但是把不破给养出来了（虽然不如去年的叶稳定） 后面三支和ib也还行 同时也应该关注社长最近的发挥（虽说是携甲子园余威）和虹en同接的问题（和你中国风评感觉也是分不开的） 至于你木口jp现在基本20个过万 除了那几个永远不火的人 其他也基本在8000以上带着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 总之感觉超越还是很有难度
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  裏命  
+##### 17086#       发表于 2022-8-23 04:33
+
+咩咩启示录是买了彩虹的工商吗，都在播？
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17087#       发表于 2022-8-23 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57178884&amp;ptid=1972669" target="_blank">小鸟游泉 发表于 2022-8-23 01:29</a>
+虹的3D拉是在说模型质量？3D技术的话虹明明是业界尖端好吧，一堆在柴卡这些人的脑洞引领下越玩越花的初次看 ...</blockquote>
+业界顶尖，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那这业界也未免太没有前途了
+
+
+
+*****
+
+####  高等黑暗  
+##### 17088#       发表于 2022-8-23 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179234&amp;ptid=1972669" target="_blank">裏命 发表于 2022-8-23 04:33</a>
+
+咩咩启示录是买了彩虹的工商吗，都在播？</blockquote>
+最新管人金游好吧
+
+说实话这游戏并不适合在油管播，可惜有经营twitch的虹人太少了
+
+这游戏在twitch上可以现场抽一个观众上台，抽中的观众在twitch网页上现场捏人，然后去干活或者当祭品都随主播的意
+
+观众还可以用频道点数给主播支援，还有隔段时间投票给主播支援或者妨碍
+
+
+
+*****
+
+####  溴麝香草酚蓝  
+##### 17089#       发表于 2022-8-23 10:27
+
+咋回事捏<img src="https://p.sda1.dev/6/d3855731e34094a21bf04dc241a3915b/CMP_20220823102732847.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蓬莱广告  
+##### 17090#       发表于 2022-8-23 10:28
+
+隔壁抱怨的不是nijiapp吗？维阿3d和虹没啥关系吧
+
+
+
+*****
+
+####  rzrbtk  
+##### 17091#       发表于 2022-8-23 11:04
+
+维阿3D挺好的吧，有段时间感觉维阿一二哥的模秒了黑黑啊（新模倒是好看的）
+
+3D还得讲究一个风格，郡道也抱怨过自己3D头大，隔壁店长2D颜色漂亮但3D就感觉上色有问题
+
+
+
+*****
+
+####  fastary  
+##### 17092#       发表于 2022-8-23 11:13
+
+隔壁抱怨的是个人势用笔电都能上家用3D了维阿出3D还要卡虹那银盾线，主要还是说的产能拉？或者说(技术不够好导致)发放门槛高吧。模型是我顺劈的。话说维阿3D感觉模型动捕之类都是维阿自己的，至于其他有没有必须依靠虹的技术支持的地方就不清楚了……
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17093#       发表于 2022-8-23 12:07
+
+银盾线都什么版本的事了…现在是最新最in的营收指标
+
+*****
+
+####  蓬莱广告  
+##### 17094#       发表于 2022-8-23 12:08
+
+风怒
+
+
+
+*****
+
+####  FCCHua  
+##### 17095#       发表于 2022-8-23 14:14
+
+大変お世话になりました！
+ZETAを脱退しますがこれからもずっと
+応援させていただきます🙌
+ありがとうございました😭🫶
+
+活动自体は今后の自分の体调次第なので今はまだ何とも言えませんが、一応疗养中なのでしっかり体调や环境を整えて、また改めてご报告出来たらいいなと思います！
+ずっと言えずのままですみません…😔
+
+怪不得很久没见现黄泉播了...
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17096#       发表于 2022-8-23 19:30
+
+[https://www.youtube.com/watch?v=u5i1IxPFC2U](https://www.youtube.com/watch?v=u5i1IxPFC2U)
+
+游戏部二代目那帮人现在变成这样了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 17097#       发表于 2022-8-23 19:37
+
+终于发了张没有雪饼的
+<img src="https://p.sda1.dev/6/71142c159552872be62ebd399ed06f8f/S~Y3M2_IO_E__BK0W_Y_A_A.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 17098#       发表于 2022-8-23 19:38
+
+算素颜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Map-2  
+##### 17099#       发表于 2022-8-23 19:41
+
+qsmf同款磨皮
+
+*****
+
+####  NBXX  
+##### 17100#       发表于 2022-8-23 19:41
+
+十层砂纸磨皮后的素颜
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17101#       发表于 2022-8-23 19:50
+
+之前不是挖了照片，那个是素颜
+
+虽然磨皮了但脸型还是没变的
+
+*****
+
+####  越动天下  
+##### 17102#       发表于 2022-8-23 19:54
+
+只能说皮肤没有人样
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  OldGlory  
+##### 17103#       发表于 2022-8-24 00:08
+
+感觉楼友分不清技术和创意的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虹3d最值得吹的应该是动捕房面积了
+
+
+
+*****
+
+####  IDIDIDID  
+##### 17104#       发表于 2022-8-24 00:30
+
+嗯男又上微博热搜了，太🔥了🙇‍♂️🙇‍♂️🙇‍♂️
+
+
+
+*****
+
+####  poipanchao  
+##### 17105#       发表于 2022-8-24 01:14
+
+月奈明言新人不算同期
+
+感觉是不想把当年kr的那两个的同期位子给替换了
+
+隐退前最后的推特也是转了那两人
+
+
+
+*****
+
+####  2L模仿47哥  
+##### 17106#       发表于 2022-8-24 02:21
+
+谁告诉我en男又犯啥事了
+
+
+
+*****
+
+####  fastary  
+##### 17107#       发表于 2022-8-24 09:08
+
+简单来说是vox推荐mysta看一个粉丝二创视频并告诉他不用担心版权问题自己也在直播里看过(没放出声音和画面)，mysta在90k纪念回打开看了然后现在可能因为版权问题不能留录播。
+
+现在一边在骂vox故意害同期，一边反驳说vox原话不用担心“watch along”指同步视听错的是mysta没有好好确认版权
+
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 17108#       发表于 2022-8-24 09:28
+
+大家庭比单打独斗好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sfqjsml  
+##### 17109#       发表于 2022-8-24 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193263&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-24 09:08</a>
+
+简单来说是vox推荐mysta看一个粉丝二创视频并告诉他不用担心版权问题自己也在直播里看过(没放出声音和画面) ...</blockquote>
+我怎么看好像是vox骂sonny的妈是鸡来着
+
+*****
+
+####  心垂万刃  
+##### 17110#       发表于 2022-8-24 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193625&amp;ptid=1972669" target="_blank">sfqjsml 发表于 2022-8-24 09:35</a>
+我怎么看好像是vox骂sonny的妈是鸡来着</blockquote>
+那是上一个🍉了，最新的🍉就是这个
+
+*****
+
+####  hulaoda007  
+##### 17111#       发表于 2022-8-24 09:39
+
+最近瓜好多。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sfqjsml  
+##### 17112#       发表于 2022-8-24 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57193660&amp;ptid=1972669" target="_blank">心垂万刃 发表于 2022-8-24 09:38</a>
+
+那是上一个🍉了，最新的🍉就是这个</blockquote>
+不管是哪个瓜，嗯男粉丝都让人大开眼界
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17113#       发表于 2022-8-24 11:23
+
+黄豆最近发的fanart都好可爱
+
+
+
+*****
+
+####  マドマコ  
+##### 17114#       发表于 2022-8-24 12:35
+
+nga哪个虹楼不是liver全肯定温馨大家庭的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Paisley  
+##### 17115#       发表于 2022-8-24 13:31
+
+最近一个月好像三四个嗯男瓜还都是vox搞出来的，已经有点金盾仗势欺人那味了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Suny08  
+##### 17116#       发表于 2022-8-24 14:21
+
+我觉得虹en挺温暖大家庭的，只是嗯妹妹们不觉得
+
+
+
+*****
+
+####  rzrbtk  
+##### 17117#       发表于 2022-8-24 14:53
+
+每次看到吵架兴冲冲跑去推和油管看热闹，发现骂/踩加起来不如微博一篇檄文转发多，感觉有点虚假宣传啊
+
+
+
+*****
+
+####  越动天下  
+##### 17118#       发表于 2022-8-24 15:04
+
+是这样的 国内打的热火朝天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  硫黄  
+##### 17119#       发表于 2022-8-24 15:05
+
+不战斗就没法生存
+
+*****
+
+####  poipanchao  
+##### 17120#       发表于 2022-8-24 15:07
+
+ 本帖最后由 poipanchao 于 2022-8-24 15:08 编辑 
+
+人家嗯妹妹只是按照习惯了的饭圈玩法在玩啊
+楼友怎么好像没见过微博集美打架似的
+
+唯粉才是历经考验的正确道路吧
+前有vr后有as，国内v圈讲温暖大家庭的都被炸过
+唯粉之间打来打去挺健康的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 17121#       发表于 2022-8-24 15:25
+
+好想要黛灰指偶好想要黛灰指偶(打滚)
+
+三年了大锅饭周边也没吃到几口，一直在等黛灰的三丽鸥和立绘配件实体化的周边结果先等来的是毕业，enkr你欠我的拿什么还(捶地)
+
+
+
+*****
+
+####  free  
+##### 17122#       发表于 2022-8-24 19:23
+
+<img src="https://img.saraba1st.com/forum/202208/24/192357mpi5v7piq4q1q776.png" referrerpolicy="no-referrer">
+
+<strong>鸡.png</strong> (62.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 19:23 上传
+
+*****
+
+####  渡鸦骑士  
+##### 17123#       发表于 2022-8-24 19:29
+
+感觉没有沙花叉的设计好看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 17124#       发表于 2022-8-24 20:59
+
+别的不说，这个军鸡真的绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17125#       发表于 2022-8-24 21:20
+
+日下部roko一起出道可以有啊，
+
+roko说上演技课的时候，日下部有句台词是要喊“前辈”的，下课以后日下部有点害羞地来找她，说：“喊”前辈“的时候是想象着roko前辈说的，感觉变成了平时的自己了，嘿嘿<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">。”
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+syl，浴衣可爱
+
+<img src="https://img.saraba1st.com/forum/202208/24/210839ez22lwpldpexseeg.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 029 - (3) 【日下部あずさ】フリーダム夏祭り - YouTube - www.yout.png</strong> (125.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-24 21:08 上传
+
+
+
+*****
+
+####  firedrop  
+##### 17126#       发表于 2022-8-25 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57204820&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-8-24 20:59</a>
+
+别的不说，这个军鸡真的绷不住了</blockquote>
+之前的金鸡已经够雷的了……没想到还有军鸡<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17127#       发表于 2022-8-25 01:10
+
+V.W.P是不是还没出专辑？
+
+那次live唱了一堆的曲子，正式公开的没几首的样子
+
+刷到上个月发的《共鸣》，感觉还不错
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17128#       发表于 2022-8-25 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57199030&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-8-24 14:21</a>
+
+我觉得虹en挺温暖大家庭的，只是嗯妹妹们不觉得</blockquote>
+确实 虽然我看不上vox但集美炎上的东西都只能说屁事都不算
+
+
+
+*****
+
+####  wuzu  
+##### 17129#       发表于 2022-8-25 16:59
+
+军鸡真的能让人往奇怪的地方联想啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ryuuseigun  
+##### 17130#       发表于 2022-8-25 18:21
+
+名字怪点，设计相比金鹅那对电光蟑螂须好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17131#       发表于 2022-8-25 20:05
+
+vspo这新人好紧张啊，开口第一句话音调像秋名山一样拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17132#       发表于 2022-8-25 20:06
+
+无前世buff的情况下5W+了
+
+第三箱的底力
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17133#       发表于 2022-8-25 20:10
+
+声音还行。
+感觉有点耳熟的音色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kokichi  
+##### 17134#       发表于 2022-8-25 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这音色真的和qb太近了
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17135#       发表于 2022-8-25 20:44
+
+看起来是爱尾セナ
+
+
+
+*****
+
+####  winda  
+##### 17136#       发表于 2022-8-25 21:15
+
+valo solo不朽的实力，这也太卷了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17137#       发表于 2022-8-25 21:18
+
+似乎是丽的好友，通讯录+1
+
+
+
+*****
+
+####  Kokichi  
+##### 17138#       发表于 2022-8-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57218169&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-25 21:15</a>
+valo solo不朽的实力，这也太卷了</blockquote>
+组排的神话，单排是钻3。
+
+
+
+*****
+
+####  FCCHua  
+##### 17139#       发表于 2022-8-25 21:43
+
+ 本帖最后由 FCCHua 于 2022-8-25 21:49 编辑 
+
+valo确实说的是组排，不过单排钻石不是指的一年之前的apex吗？
+syl 根据前面楼友说的名字，搜了下她的推特，简介上写的:APEXSeason7ソロダイヤ达成
+
+*****
+
+####  poipanchao  
+##### 17140#       发表于 2022-8-25 21:45
+
+好像是S8的钻3，apex
+
+
+
+*****
+
+####  free  
+##### 17141#       发表于 2022-8-26 01:09
+
+[https://www.youtube.com/watch?v=z2Tp0A7WVvY](https://www.youtube.com/watch?v=z2Tp0A7WVvY)
+
+【MV】Possible Girl / みすみゆうか
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17142#       发表于 2022-8-26 01:31
+
+建议vspo以后新人先上lvg联动打打枪再来单播出道回<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kokichi  
+##### 17143#       发表于 2022-8-26 06:39
+
+我又回看了一遍，17分左右说了没有超凡段位的时候单排到钻3。
+
+
+
+*****
+
+####  FlinN  
+##### 17144#       发表于 2022-8-26 07:52
+
+虽然集美掐的有点低端，有点负反馈还是能让主包观众耗子尾汁点。全肯定捧上天了最后养出来混子白眼狼单飞跑路的事大家也没少见
+
+
+
+*****
+
+####  Suny08  
+##### 17145#       发表于 2022-8-26 16:43
+
+Konami这pwpr合作这么深入，其他游戏也多来点啊
+
+*****
+
+####  lhawp  
+##### 17146#       发表于 2022-8-26 18:24
+
+今年虹甲的pomu太惨了，每次出场都大炎上
+
+*****
+
+####  SuntoryNomu  
+##### 17147#       发表于 2022-8-26 19:52
+
+<img src="https://img.saraba1st.com/forum/202208/26/194845b7so7va4rvs7bobo.jpg" referrerpolicy="no-referrer">
+
+虚拟主播的真实工商
+
+*****
+
+####  NBXX  
+##### 17148#       发表于 2022-8-26 20:11
+
+<img src="https://p.sda1.dev/6/73e2984cd4868d8ef3ee5dc8c6dea1dc/078X@@L~4F0`RL8~_T4WE~L.png" referrerpolicy="no-referrer">
+
+菩提 ASMR视频转移到了专用的频道
+
+*****
+
+####  fastary  
+##### 17149#       发表于 2022-8-27 10:35
+
+ 本帖最后由 fastary 于 2022-8-27 11:11 编辑 
+
+虽然料想到了大buff加成的黛灰会是虹甲mvp，但是没想到居然好多人因此骂黛观众和火畜<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+把锅全扣到火畜和黛观众不认真投票上是否有点，既然mvp当之无愧是月之那其他70%左右没投她的人也都该骂吧<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+都是你们这群非要在奇怪的地方较真的厄介阴湿htj你虹才会变成现在这样啦！然后又要骂虹变得无聊了是吧！
+
+*****
+
+####  wuzhengkai  
+##### 17150#       发表于 2022-8-27 12:11
+
+rosemi新衣服换画师了啊是画西西军服的 难怪一个味
+
+*****
+
+####  dclara1  
+##### 17151#       发表于 2022-8-27 14:24
+
+玫瑰人获得boin boin buff
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  rzrbtk  
+##### 17152#       发表于 2022-8-27 15:46
+
+刷推看到enna对着fuu的b限大喊我们爱你（口音版）的视频，有一种微妙的东南亚姐妹接机内娱偶像的既视感...
+
+不过说实话，fuu真的可以考虑一下深耕b站啊，潜力不在当年lize之下
+
+*****
+
+####  alcoholic1000  
+##### 17153#       发表于 2022-8-27 17:13
+
+感觉fulgur精神安定程度吊锤本社到en的八成小年轻
+
+而且太战狼了，国动婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17154#       发表于 2022-8-27 17:28
+
+偶尔去en楼瞄到一眼fulgur的repo，太哈人了
+
+给我一种纯种国女性转的感觉
+
+
+
+*****
+
+####  Ketestrait  
+##### 17155#       发表于 2022-8-27 22:48
+
+这次国际接力歌会整了不少国际合唱挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 17156#       发表于 2022-8-27 23:05
+
+跌丝袜这歌唱的......没有技巧，全是感情！
+
+*****
+
+####  IL282  
+##### 17157#       发表于 2022-8-27 23:05
+
+莎小姐你这个画风和别人差别有点大啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  IL282  
+##### 17158#       发表于 2022-8-28 14:29
+
+恶魔人！？
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  poipanchao  
+##### 17159#       发表于 2022-8-28 17:33
+
+vspo可以玩喷喷了？
+
+
+
+*****
+
+####  天天座理世  
+##### 17160#       发表于 2022-8-28 19:50
+
+琥珀居然找到和kmt还有haseshin联动，终于10W订阅了，猎杀版夸皇
+
+
+
+*****
+
+####  free  
+##### 17161#       发表于 2022-8-28 21:18
+
+谱皇武道馆live看完了，其实真挺好看的，乐队阵容华丽，VWP居然全来了，虽然花鸟鱼虫风格的新衣服实在是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和大森靖子的合唱一定要看，笑死我了，还有valis这几个下次能不能套皮上来伴舞啊，腿太粗了！
+
+
+
+*****
+
+####  pansherry  
+##### 17162#       发表于 2022-8-28 23:07
+
+夜见这鼻音，果然是新冠啊
+
+
+
+*****
+
+####  midearth  
+##### 17163#       发表于 2022-8-28 23:14
+
+莎皇这演技还行
+
+
+
+*****
+
+####  dclara1  
+##### 17164#       发表于 2022-8-29 13:35
+
+话说有可能会有voms EN吗
+
+
+
+*****
+
+####  rzrbtk  
+##### 17165#       发表于 2022-8-29 20:36
+
+不是我说，连郡道都没有像多井今天那样被打得烂掉诶，惨！
+
+
+
+*****
+
+####  lhawp  
+##### 17166#       发表于 2022-8-29 20:59
+
+去补了ngo昨天的歌回，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Junchoon  
+##### 17167#       发表于 2022-8-29 22:16
+
+跌丝袜这工商就是尬聊吗？来点活啊.......
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17168#       发表于 2022-8-30 08:02
+
+国内这是要把vox赶出去的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 17169#       发表于 2022-8-30 08:39
+
+不过是饭圈大战而已，支持vox的全肯定萌萌和要把他赶出去的过激集美哪个多还不好说呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不得不说泥哥因为部分fqmm破防了就(口头)支持另一部分fqmm推崇的人还挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 17170#       发表于 2022-8-30 08:43
+
+泥哥htj拿“虹人生态”给vox洗地也是真的好恶心啊，你虹老喜欢讲直球黄段子和对同事开过激玩笑也只有他vox独一份好吗
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17171#       发表于 2022-8-30 09:14
+
+哇 selen这衣服和新背景
+
+她真的 我哭死
+
+
+
+*****
+
+####  IL282  
+##### 17172#       发表于 2022-8-30 09:31
+
+我就是selen女士的狗<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Ketestrait  
+##### 17173#       发表于 2022-8-30 10:37
+
+selen这动态背景全息评论栏不错啊
+
+
+
+*****
+
+####  dclara1  
+##### 17174#       发表于 2022-8-30 11:36
+
+obsydia全员boin boin
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17175#       发表于 2022-8-30 12:12
+
+我认识的htj包括我都不太喜欢vox就是了。
+
+
+
+*****
+
+####  Porsche  
+##### 17176#       发表于 2022-8-30 13:00
+
+htj看到纯种粉丝团集美进来吓都吓死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 17177#       发表于 2022-8-30 13:04
+
+ 本帖最后由 毛头小希 于 2022-8-30 13:06 编辑 
+
+我觉得尼姑庵的htj主要还是在liver全肯定的意义上护vox
+
+不是明面上跟另一个虹liver撕破脸或者明确的触犯法律或者经济条款问题比如金鱼或者雷速登那样的
+
+他们不会正面抨击任何一个虹liver
+
+实际上看楼的建设速度就懂了尼姑庵htj主要看的还是本家，EN除了真心喜爱热情盖楼的那几个其他基本属于爱屋及乌或者“不熟”
+
+vox简中最大的靠山当然还是年一管粉圈小姐妹，真htj估计占比很小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Paisley  
+##### 17178#       发表于 2022-8-30 13:16
+
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  本间日阳  
+##### 17179#       发表于 2022-8-30 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272737&amp;ptid=1972669" target="_blank">Paisley 发表于 2022-8-30 13:16</a>
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站</blockquote>
+这里？<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 17180#       发表于 2022-8-30 13:59
+
+全肯定全否定都nt 
+
+
+
+*****
+
+####  winda  
+##### 17181#       发表于 2022-8-30 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57268798&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 08:43</a>
+泥哥htj拿“虹人生态”给vox洗地也是真的好恶心啊，你虹老喜欢讲直球黄段子和对同事开过激玩笑也只有他vox ...</blockquote>
+nina，reimu包括enna嘴也挺臭的<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">不知道这过激玩笑的边界在哪
+
+
+
+*****
+
+####  fastary  
+##### 17182#       发表于 2022-8-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57273908&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-30 14:52</a>
+
+nina，reimu包括enna嘴也挺臭的不知道这过激玩笑的边界在哪</blockquote>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一份，和所谓“虹人生态”没有半毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dclara1  
+##### 17183#       发表于 2022-8-30 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+用妈开玩笑具体是什么？
+
+如果是Your mom系列那就是英文玩笑老梗了，攻击性远没有中文语境看上去那么强
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Ronu  
+##### 17184#       发表于 2022-8-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+en就这样，氛围和jp那边不一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+互call bitch问候家人why you still alive，戳别人各种黑历史痛点找乐子什么的是家常便饭了
+
+不管再怎么说，我想正常主播都不会希望观众在那边瞎起哄强出头，尤其矛头还是对着自己合作过的同事。真有问题他们也会自己私下解决
+“我家推受委屈了呜呜呜”基本纯属幻想
+幕后委屈的事儿多着呢，但是应该基本都不是weibo集美们在冲的那些
+
+
+
+*****
+
+####  天天座理世  
+##### 17185#       发表于 2022-8-30 17:26
+
+vspo这新人开播A了，水平比妹妹和八云强不少。
+
+现在这排位保底是个白金到钻石。
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17186#       发表于 2022-8-30 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说明欧美圈文化受众变小了 都是好事啊
+
+
+
+*****
+
+####  fastary  
+##### 17187#       发表于 2022-8-30 17:48
+
+<blockquote>dclara1 发表于 2022-8-30 17:16
+用妈开玩笑具体是什么？
+
+如果是Your mom系列那就是英文玩笑老梗了，攻击性远没有中文语境看上去那么强</blockquote>
+还有粉丝在回复提到她妈的时候调侃说她妈跟自己过了一晚上挺好的结果粉丝妈昨晚在住院…
+
+syl
+
+↑我无意伸张正义或是为其他en成员打抱不平，单纯觉得用“虹人生态”和“问题儿童收容所”去轻飘飘全肯定vox或者说en的混沌非常让我恶心
+
+
+
+*****
+
+####  Ronu  
+##### 17188#       发表于 2022-8-30 17:55
+
+vox单纯就是能力支撑不了他这体量，菜是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dclara1  
+##### 17189#       发表于 2022-8-30 18:09
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+后面就没怎么关注了
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  空集  
+##### 17190#       发表于 2022-8-30 18:16
+
+你说en氛围那为啥我记得nen只有一两期的时候没有后面听说的drama那么多....真不是嘴臭人积少成多么
+
+
+
+*****
+
+####  rzrbtk  
+##### 17191#       发表于 2022-8-30 18:23
+
+所谓“糊是最好的保护色”
+
+
+
+*****
+
+####  dclara1  
+##### 17192#       发表于 2022-8-30 18:45
+
+去找了些vox切片看抓马
+
+a对b开玩笑，结果c被冒犯了，要给b打抱不平
+
+美国人对这个就再熟悉不过了。想起key &amp; peele的其中一集
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  CarlSteve  
+##### 17193#       发表于 2022-8-30 19:04
+
+相比嘴臭用vulgar形容他更贴切。一般纯路人也受不了他说的话，比如milk and cream。
+
+
+
+*****
+
+####  winda  
+##### 17194#       发表于 2022-8-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57275616&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-30 16:59</a>
+不看en只吃瓜，所以她们也会拿同事原创曲改小黄曲的词或是拿别人妈开玩笑玩烂梗吗？
+
+是的话那也是en独一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些
+
+
+
+*****
+
+####  OldGlory  
+##### 17195#       发表于 2022-8-30 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57276564&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-30 18:09</a>
+
+之前reimu被攻击那会，vox不是发过声明坚决跟过激集美切割吗？我觉得处理的挺好的。发癫粉丝就得坚决切割
+
+ ...</blockquote>
+后面又把自己的话全都吃回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17196#       发表于 2022-8-30 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57278622&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-8-30 20:40</a>
+
+后面又把自己的话全都吃回去了</blockquote>
+看来你真的不看他直播
+
+
+
+*****
+
+####  OldGlory  
+##### 17197#       发表于 2022-8-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+
+看来你真的不看他直播</blockquote>
+他是在推特上把自己的话吃回去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17198#       发表于 2022-8-30 23:17
+
+确实不看了，有人骂观众的妈还上赶着送同接订阅，这事儿谁愿意谁上吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是否出于娱乐性质的自嘲和暴言，感觉还是不一样的
+
+
+
+*****
+
+####  Paisley  
+##### 17199#       发表于 2022-8-31 00:39
+
+理解成本人贱又一堆集美护惹人烦就得了，遇到谁都能来一句你妈卖了还可劲护的观众真的挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lanslort  
+##### 17200#       发表于 2022-8-31 05:39
+
+Enna嘴臭得不行，下三路起来也一点不逊色，你让她跟Vox对骂我觉得Vox大概骂不过她。不过我印象中她不会波及对方亲人，更不可能对粉丝这么说。她昨天因为歌回涨了不少粉还专门给新来的观众提过，而且说联动的话都会事先确认对方的底线。Vox这种就真的是什么锅什么盖了，不过我对他的梁木主要也还是感觉他不够pro，虽然也是云来的吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  hulaoda007  
+##### 17201#       发表于 2022-8-31 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57279539&amp;ptid=1972669" target="_blank">v沈馒馒v 发表于 2022-8-30 22:06</a>
+看来你真的不看他直播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道不是他切割粉丝，然后又表示不切割粉丝吗？
+
+
+
+*****
+
+####  NBXX  
+##### 17202#       发表于 2022-8-31 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57272737&amp;ptid=1972669" target="_blank">Paisley 发表于 2022-8-30 13:16</a>
+
+来问一下虹大型活动的海盗资源一般在哪找啊，除了nyaa站</blockquote>
+除了nyaa，最有可能找到的公开地方一般在4chan的/vt/或者/t/，可以通过4chan备份站搜索历史帖。
+
+亦或是去[https://forum.holopirates.moe/](https://forum.holopirates.moe/) 
+
+虽然是holo的海盗站但是也有NIJI的资源。不过貌似活动就发过一部资源，其余都是音声和会员直播。但是有求物板可以发帖。
+
+
+
+*****
+
+####  米多里  
+##### 17203#       发表于 2022-8-31 10:15
+
+啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的
+
+
+
+*****
+
+####  Suny08  
+##### 17204#       发表于 2022-8-31 10:21
+
+我是觉得之前一堆妹妹们说vox 很会说话很尊重女性非常绅士才入坑的，现在又变成他嘴臭不尊重女性还是挺有意思的
+
+*****
+
+####  皮卡丘小发卡  
+##### 17205#       发表于 2022-8-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283388&amp;ptid=1972669" target="_blank">米多里 发表于 2022-8-31 10:15</a>
+啊？难道不是铁幕演说训粉之后，又痛哭流涕表示离不开粉丝吗？之前看热闹云来的情节是这样的 ...</blockquote>
+被粉丝把握得死死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 17206#       发表于 2022-8-31 10:30
+
+<blockquote>winda 发表于 2022-8-30 19:51
+还真是云的啊，要狠还是nina给人塞不吃的蔬菜塞到吐了严重些</blockquote>
+呃所以nina现在集美风评也不好啊，vox的过激口嗨也还是独一份，你是想用比烂证明vox没问题还是想指责我替他们同事发正义春？还是想说我云en，其实虹就都是这样的？
+
+
+
+*****
+
+####  越动天下  
+##### 17207#       发表于 2022-8-31 10:50
+
+本质还是太火了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  心垂万刃  
+##### 17208#       发表于 2022-8-31 11:28
+
+<img src="https://p.sda1.dev/7/fb6306f8e44f1e68f95f1d147d681956/6b6cb23e99c30254.jpg" referrerpolicy="no-referrer">
+?
+
+
+
+*****
+
+####  dclara1  
+##### 17209#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  dclara1  
+##### 17210#       发表于 2022-8-31 12:28
+
+ 本帖最后由 dclara1 于 2022-8-31 12:30 编辑 
+
+风怒
+
+*****
+
+####  dclara1  
+##### 17211#       发表于 2022-8-31 12:28
+
+看了一圈切片，en那些所谓抓马基本全是中文圈子自嗨，外面圈子看了只会呃呃
+
+什么时候搞出个火出中文圈的大新闻，我再关注下
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  winda  
+##### 17212#       发表于 2022-8-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57283651&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 10:30</a>
+呃所以nina现在集美风评也不好啊，vox的过激口嗨也还是独一份，你是想用比烂证明vox没问题还是想指责我替 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+vox错就错在他太火了，轮过分nina mc对往pomu聊天里发她直播一无是处，来看自己频道更过分点
+
+
+
+*****
+
+####  dclara1  
+##### 17213#       发表于 2022-8-31 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285406&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 12:39</a>
+
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+enna的fucking bitch都写进她的wiki页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一次amogus联动ewiwa，reimu甚至selen都被她突突突过
+
+人总喜欢脱离语境听到个fucking bitch就开始浮想联翩脑补剧情了，其实enna在其他时候对reimu说过一大堆肉麻到爆炸的话，没人看过没人记得
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17214#       发表于 2022-8-31 12:52
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧
+
+*****
+
+####  dclara1  
+##### 17215#       发表于 2022-8-31 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285565&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-8-31 12:52</a>
+
+虽然但是 enna嘴臭也没什么当面嘴臭的啊 amongus被刀了骂两句很正常吧</blockquote>
+每局赛后疯狂输出好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17216#       发表于 2022-8-31 13:00
+
+作为enna粉丝肯定要护两句 enna嘴臭很多情况下是下意识情况下的 尤其是她玩恐怖游戏的时候 或者那个最有名的切片里amongus里被刀的情况下 算个应激反应 她本人也说过经常无意识就swear了 我错了 下次还敢
+
+当然enna爱开snp笑话这个肯定就是她有意识情况下做出来的了
+
+
+
+*****
+
+####  dclara1  
+##### 17217#       发表于 2022-8-31 13:06
+
+其实就是熟才能当面输出，恭恭敬敬的不就是距离感嘛
+
+ethyria第一次联动玩抓鬼就已经非常母慈女孝，这四个人就没停过，乐坏我了，我就喜欢这种vibe<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  越动天下  
+##### 17218#       发表于 2022-8-31 13:10
+
+ 本帖最后由 越动天下 于 2022-8-31 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+话说有可能会有voms EN吗</blockquote>
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） 没必要去特意吧 然后g鸽也没说过这种东西吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wuzhengkai  
+##### 17219#       发表于 2022-8-31 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57259932&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-8-29 13:35</a>
+
+话说有可能会有voms EN吗</blockquote>
+这得取决于能不能招到第二个pikamee吧
+
+
+
+*****
+
+####  wuzhengkai  
+##### 17220#       发表于 2022-8-31 13:21
+
+1是熟不熟 不看vox也不知道跟他嘴臭对象有多熟 不过从我看的有限的有他的联动来看他还蛮能自来熟的
+
+2是当前这个舆论环境下男女哪怕说同样的swear word造成的影响也不一样
+
+3说到底是跟集美在自己脑内构建的形象冲突了 当然我也不知道他自己单播是不是有意构建了这种形象 归根结底还是集美自顾自破防了 
+
+当然赚集美钱挨集美骂还是非常合理的 只不过集美的水平现在看也就在捡中闹闹了 要真能把vox怎么样了我只能说句好似喵
+
+
+
+*****
+
+####  Paisley  
+##### 17221#       发表于 2022-8-31 13:33
+
+vox刚开展工作的时候是很会演嘛，纯纯一敬业工作狂形象，后来发现咋地都有人打钱就飘了，集美自己造神又破防是挺搞笑，但观众本来不就是看个乐子，不高兴就骂也挺正常的，谁能说自己不对主播有点期待呢，她们比较夸张罢了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+而且有些朋友也云太厉害<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然鸟嘴真的脏但没见enna联动跑别人直播间对别人观众开这种范围地图炮
+
+
+
+*****
+
+####  Ronu  
+##### 17222#       发表于 2022-8-31 13:53
+
+enna特别喜欢嘴臭的几位都是熟人，而且一般是正面交锋
+
+背后会没事拉出来突突突的也就Uki吧，但是也是好姐妹啦她们<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+像是对几位好弟弟需要嘴臭的时候都会过一下脑子（luca和shu之类的），说出来的内容也很轻柔
+
+大部分情况则是往死里夸
+
+反正基本是感受不到她有什么恶意
+
+当然你说要嗯带节奏肯定是能带起来的。幸亏鸟本身体量不大，aloupeeps也都比较安分<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+我觉得在en那种氛围下面单纯嘴臭很难成为anti真正的理由，基本都是拿来当节奏的烟雾弹
+
+
+
+*****
+
+####  fastary  
+##### 17223#       发表于 2022-8-31 14:11
+
+<blockquote>winda 发表于 2022-8-31 12:39
+虹en还差不多就这样了，上回among us enna盯着reimu骂f**king b**h就没停过
+
+vox错就错在他太火了 ...</blockquote>
+那我只能说你们en混沌嘴臭自有文化氛围在，行，但是别拿本社来背书= 。=
+
+<img src="https://img.saraba1st.com/forum/202208/31/141103orjl0l1z0ykirlis.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022_0831_140620.png</strong> (245.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-8-31 14:11 上传
+
+
+
+*****
+
+####  dclara1  
+##### 17224#       发表于 2022-8-31 14:21
+
+reimu和vox以前玩得挺开的，很有节目效果。reimu被搞的那次以后，双方都明显很怕节奏了，很可惜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈玉礼  
+##### 17225#       发表于 2022-8-31 14:29
+
+我印象中没见过enna直球嘴臭别人妈的，有吗？
+
+至于她和姐龙都是超越管人生涯的老熟人关系
+
+
+
+*****
+
+####  IL282  
+##### 17226#       发表于 2022-8-31 14:30
+
+我他妈这是在NGA还是S1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  dybang  
+##### 17227#       发表于 2022-8-31 15:31
+
+老是被喷就因为太火了这也太饭圈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗯男国内一被饭圈化就没意思了，要么是对家的错要么对家更过分，吵不完的
+
+
+
+*****
+
+####  poipanchao  
+##### 17228#       发表于 2022-8-31 15:44
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷
+
+*****
+
+####  マドマコ  
+##### 17229#       发表于 2022-8-31 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+虹楼连本社几个法律咖犯法的事都能吹起来，嘴臭点当然没问题
+
+
+
+*****
+
+####  winda  
+##### 17230#       发表于 2022-8-31 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286384&amp;ptid=1972669" target="_blank">fastary 发表于 2022-8-31 14:11</a>
+en混沌嘴臭自有文化氛围在，行，fine。但是别拿本社来背书</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊
+
+*****
+
+####  poipanchao  
+##### 17231#       发表于 2022-8-31 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287622&amp;ptid=1972669" target="_blank">winda 发表于 2022-8-31 15:50</a>
+暴言老师的法xi斯发言可是比康米nina的前世还厉害的，别切割啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">康米有什么问题，楼友不要尬黑
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17232#       发表于 2022-8-31 16:09
+
+束棒发言我感觉日本那社会很常见。如果是我没记错的束棒发言的话。
+
+*****
+
+####  心垂万刃  
+##### 17233#       发表于 2022-8-31 16:09
+
+<img src="https://p.sda1.dev/7/15210014a19b9f008b2f244124cd376a/714c5bca57c5c9b.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 17234#       发表于 2022-8-31 16:13
+
+郡道都要5w，相比之下vox20多w都显得有性价比了。
+
+*****
+
+####  心垂万刃  
+##### 17235#       发表于 2022-8-31 16:15
+
+30万应该是米桑给主播的工商费的极限了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 17236#       发表于 2022-8-31 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57287531&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-8-31 15:44</a>
+
+vox和mysta怎么比老师和鹰宫贵这么多，气抖冷</blockquote>
+考虑到观众潜在的付费能力差距？毕竟集美在批站给en男打钱都不眨眼
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17237#       发表于 2022-8-31 16:30
+
+关键难道不是明明是彩虹社的主播怎么是给啊b钱嘛，入股股东权利真的大诶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+照一般啊b分成工商收入会分给主播一半嘛？
+还挺奇妙的，在频道管理上我好像有些不理解啊b和彩虹这个合作模式
+
+
+
+*****
+
+####  bluebaby  
+##### 17238#       发表于 2022-8-31 17:04
+
+云宝这是连b站都云了。
+b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站橄榄的。
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17239#       发表于 2022-8-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57288714&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-8-31 17:04</a>
+
+云宝这是连b站都云了。
+
+b站上的广告公商一直是b站一直把持，洽谈，分发的，不经过b站手自己恰工商是会被b站 ...</blockquote>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。
+
+现在想来，这捆绑力度可就大了。
+
+不过，工商分成有人透露过吗？
+
+
+
+*****
+
+####  真飞鸟i  
+##### 17240#       发表于 2022-8-31 17:37
+
+只能说虹血赚
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  真飞鸟i  
+##### 17241#       发表于 2022-8-31 17:37
+
+只能说虹血赚 风怒让虹赢俩次
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  bluebaby  
+##### 17242#       发表于 2022-8-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57289043&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-31 17:27</a>
+嗯……那意思是在接广告上，广告商一定统一面对的是啊b。但是我没想到钱是直接给啊b，由啊b来具体分配[f:0 ...</blockquote>
+很多up都提到过b站这套工商制度，具体分配不记得了可以去找找应该属于很好找的。
+
+
+
+*****
+
+####  rzrbtk  
+##### 17243#       发表于 2022-8-31 19:00
+
+我郡是在否定法西斯的前提下要在自己直播间搞言论管制罢了，可不管乱讲😨
+
+
+
+*****
+
+####  Junchoon  
+##### 17244#       发表于 2022-8-31 20:39
+
+说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊......
+
+
+
+*****
+
+####  free  
+##### 17245#       发表于 2022-8-31 20:45
+
+[https://twitter.com/LifeLikeaLive/status/1564948763633848321](https://twitter.com/LifeLikeaLive/status/1564948763633848321)
+
+<img src="https://pbs.twimg.com/media/FbfQhhQVEAAH1rN?format=jpg&amp;name=4096x4096" id="aimg_ja66l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+*****
+
+####  OldGlory  
+##### 17246#       发表于 2022-8-31 20:50
+
+田角上市不到半年套不了现的
+
+*****
+
+####  AloissiolA  
+##### 17247#       发表于 2022-8-31 20:51
+
+ 本帖最后由 AloissiolA 于 2022-8-31 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57291656&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-8-31 20:39</a>
+
+说起来彩虹上市3个月了，好像除了给田角套现外（误），一点用也没有啊...... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那从招股书也基本上可以看出来，公开发行的额外股占总发行股的5%都不到 就发行5w股，抛最多股（70%左右的总卖出）的是774的母公司株式会社アドウェイス和其持股子会社 ㈱インフルエンサーインベストメントホールディングス，基本上就是这家公司要cash out才上的场
+
+田角套现还要等一年，不过现在这股价是真的高的很诡异，之前以为稳定在6000+差不多了现在又弹回7000+了，ankr再回市值2000w之境
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17248#       发表于 2022-8-31 21:06
+
+卯月光：今晚小男孩和小女孩rrm要一起看线上烟花，一边读读者来信哦~来信的内容是“在夏天做过的事”。今晚北京时间晚上10点不见不散哦~
+
+1.jpg
+(613.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-31 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202208/31/210612l66hxfeleoupoouv.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17249#       发表于 2022-8-31 23:52
+
+小狮子这几天疯狂歌回啊。
+唱的又多又好。
+终于找到方向了？
+
+
+
+*****
+
+####  dclara1  
+##### 17250#       发表于 2022-9-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57285751&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-8-31 13:10</a>
+
+不太可能 voms在en感觉火的程度就已经很大了（指对比自己的同接 看那个对比观众和平时论坛讨论就知道了） ...</blockquote>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">），所以voms en的呼声还是很高的
+
+不过gyari的确不会有动力去搞就是了
+
+
+
+*****
+
+####  越动天下  
+##### 17251#       发表于 2022-9-1 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57294565&amp;ptid=1972669" target="_blank">dclara1 发表于 2022-9-1 01:27</a>
+voms的en观众很多，但基本只看得懂pika，其他三个属于想看但又啃不动日文还缺切片（包括我），所以 ...</blockquote>
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉不太符合正常思维
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  dclara1  
+##### 17252#       发表于 2022-9-1 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57295149&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-9-1 07:47</a>
+
+我的意思就是g鸽因为在en还算火 所以不出 毕竟g鸽是这样的 感觉不太符合正常思维
+
+—— 来自 Xiao ...</blockquote>
+tmsk, miu, dmj几个月都没一个切片，点开他们的直播回放，留言多数英文，而且一眼看得出是不会日文的选手，只能回个"thx for your cozy stream tmsk/miu-chan/dmj"的那种
+
+英语voms粉大部分处于想看又看不懂又没切片的状态<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  高等黑暗  
+##### 17253#       发表于 2022-9-1 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没想到一直在球米桑给个工商的郡道早就接过米桑的工商了
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17254#       发表于 2022-9-1 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57282282&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2022-8-31 08:39</a>
+
+难道不是他切割粉丝，然后又表示不切割粉丝吗？</blockquote>
+切割的是过激粉啊
+
+一般梦女又没惹事又能爆米为什么要切割
+
+
+
+*****
+
+####  rzrbtk  
+##### 17255#       发表于 2022-9-1 13:09
+
+这个不是米桑吧…不是吧…？郡道是吃悠星米的啊
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17256#       发表于 2022-9-1 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57298682&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-1 13:09</a>
+
+这个不是米桑吧…不是吧…？郡道是吃悠星米的啊</blockquote>
+这个一定是米桑，而且算是原神3.0活动的一环
+
+应该是米桑→B站→虹→郡道这样途径
+
+
+
+*****
+
+####  rzrbtk  
+##### 17257#       发表于 2022-9-1 16:51
+
+<blockquote>格林卡罗尔 发表于 2022-9-1 15:38
+这个一定是米桑，而且算是原神3.0活动的一环
+
+应该是米桑→B站→虹→郡道这样途径 ...</blockquote>
+不太懂，为什么会有b站做中间商，郡道最近唯一一次b限可是临时把原直播改成幻塔，而且昨晚播3.0的剧情点评可是完全不宽容，莫非这就是我郡的工商态度吗😶
+
+*****
+
+####  poipanchao  
+##### 17258#       发表于 2022-9-1 16:53
+
+这钱是之后要做的工商钱吧，未来时
+等来b限就会死命夸了
+
+
+
+*****
+
+####  v沈馒馒v  
+##### 17259#       发表于 2022-9-1 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57301479&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-1 16:51</a>
+
+不太懂，为什么会有b站做中间商，郡道最近唯一一次b限可是临时把原直播改成幻塔，而且昨晚播3.0的剧情点 ...</blockquote>
+在b站接工商都是找b站洽谈然后b站转给up的
+
+如果绕过b站你号没了
+
+
+
+*****
+
+####  fastary  
+##### 17260#       发表于 2022-9-1 20:11
+
+看到ymn发推说自己的暑假到此结束+换写真照当头像+os团宣布开始定期实写直播和上传实写视频
+
+莫名就有种“啊啊这个人大概不会再与管人界有交集了吧”的强烈预感<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+可我真的觉得os团企划没有他当v搞的那些东西有趣啊，难道是我管人痴的滤镜蒙蔽了我的大脑吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17261#       发表于 2022-9-1 20:57
+
+[https://www.bilibili.com/video/BV1SD4y167dr](https://www.bilibili.com/video/BV1SD4y167dr)
+
+Jike桑经常有做光君的切片，而且很认真和用心。还是希望有人支持一下。
+
+*****
+
+####  rzrbtk  
+##### 17262#       发表于 2022-9-1 20:58
+
+原来如此，那就等待我郡的敬业发挥了…
+
+
+
+*****
+
+####  高等黑暗  
+##### 17263#       发表于 2022-9-2 10:20
+
+目测临时改直播幻塔的原因就是接了这个工商
+
+不想把自己的内容消耗在那次直播
+
+另外我觉得郡道对3.0的评价还挺高的，不要光看纠结最后评价一个角色死活那里
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17264#       发表于 2022-9-2 11:04
+
+不过主线打完了工商播啥啊，已经忘了之前大小姐工商干的啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17265#       发表于 2022-9-2 12:14
+
+播森林书啊.png
+
+
+
+*****
+
+####  rzrbtk  
+##### 17266#       发表于 2022-9-2 12:41
+
+郡道这种一贯overacting的人都是那个反应的话，感觉抽卡都有点萎，她这次的评价跟稻妻差不多吧，主要是考虑到本来就蛮喜欢埃及的，结果还是没戳中她惹
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17267#       发表于 2022-9-2 13:09
+
+埃及要到沙漠开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+森林这块感觉还是很印度和**
+
+
+
+*****
+
+####  rzrbtk  
+##### 17268#       发表于 2022-9-2 13:12
+
+她也喜欢印度，最爱电影是巴霍巴利王…没事就这样缓缓对原失去兴趣吧，也该和好妹妹们打瓦了
+
+
+
+*****
+
+####  高等黑暗  
+##### 17269#       发表于 2022-9-2 15:32
+
+原神在彩虹的工商没一个是跑主线的 跑主线都是自己想玩才玩的
+
+按照以往lz和憨憨的工商来看的话 逛地图，玩玩4399小游戏，介绍下新活动
+
+
+
+*****
+
+####  rzrbtk  
+##### 17270#       发表于 2022-9-2 18:38
+
+说不定郡道来个meso联动或者钟魈，不是我说b站用户真的很爱刷cp（没有恶意）；syl，dustcell新砖也太复制黏贴，知道想走划风但真的单一…
+
+
+
+*****
+
+####  M乔梦  
+##### 17271#       发表于 2022-9-2 19:28
+
+属实是把我整不会了,这是什么管人农双厨运营才能整出的阴间活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/02/192835uhtc6cgggffckv6c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-2 19:28 上传
+
+
+
+*****
+
+####  fastary  
+##### 17272#       发表于 2022-9-2 20:36
+
+看了ymm的新告知视频，感觉他本质还是喜欢当颜出ytber……看到【演绎是我的人生】这句字幕不禁百感交集，感觉自己像是追了一年特摄之后还被囚禁在剧中试图从演员身上寻找角色影子的阴湿粉一样(抹泪)
+
+
+
+*****
+
+####  winda  
+##### 17273#       发表于 2022-9-3 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天nrk提了彩虹valo自定义的事，本来是因为有黑黑在才报名的，结果黑黑live不来导致比赛选手水平差拉大了，自己选sky打太狠也不行，放水太多也不行，评论都要闹，所以后面开始选rena摆烂。
+虹的关系性好麻烦
+
+
+
+*****
+
+####  硫黄  
+##### 17274#       发表于 2022-9-3 03:40
+
+<blockquote>rzrbtk 发表于 2022-9-2 18:38
+说不定郡道来个meso联动或者钟魈，不是我说b站用户真的很爱刷cp（没有恶意）；syl，dustcell新砖也太复制黏 ...</blockquote>
+今年的新歌每首点进去都差不多，△你咋回事啊…
+
+
+
+*****
+
+####  Suzutsuki  
+##### 17275#       发表于 2022-9-3 18:23
+
+67新衣服同接也有3w5了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓬莱广告  
+##### 17276#       发表于 2022-9-3 18:38
+
+vspo现在的动捕看起来是真的舒服
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17277#       发表于 2022-9-3 18:49
+
+<img src="https://img.saraba1st.com/forum/202209/03/184214ln4uwqlfrrncnn3u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>#でたわね！！！ ＼ #オーラツー ×VTuber #三枝明那 コラボ決定✨.jpeg</strong> (297.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-3 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202209/03/184808utftxoarfyqz4s68.png" referrerpolicy="no-referrer">
+
+<strong>【MY G-SHOCK】イカした時計をカスタマイズする【かなえと】.png</strong> (132.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-3 18:48 上传
+
+你虹最近的工商都好日用百货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17278#       发表于 2022-9-3 19:38
+
+这些别说主播了，连代表色都看不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  酒瓶止迁  
+##### 17279#       发表于 2022-9-3 22:17
+
+爱丽丝3.0的哭脸笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17280#       发表于 2022-9-3 22:55
+
+没有月之的管人世界比我预想的还要让人崩溃，郡道乐呵呵说九月又有开心事还大聊神域在她的管人生涯有多重要，能挤出的感想也只有恭喜恭喜，日下部很有趣，王道还有音乐剧联动，但我真的好想月之啊，犬号动动也好吧，真受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17281#       发表于 2022-9-4 08:12
+
+vr还有歌回假唱的啊……大开眼界<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 17282#       发表于 2022-9-4 09:52
+
+假唱，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  mmbk  
+##### 17283#       发表于 2022-9-4 10:48
+
+云宝大/大方方来b综赢也没问题的，最近人不多kpi还挺低的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  pansherry  
+##### 17284#       发表于 2022-9-5 00:21
+
+森中柴卡修女家长的睡衣联动。。。有毛病啊（褒义）<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+联动动机是想被柴卡骂的森中+（对森中）盐对应的柴卡+吐槽役家长+苦劳人全肯定修女
+
+还能有第二回么这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17285#       发表于 2022-9-6 01:51
+
+ 本帖最后由 poipanchao 于 2022-9-6 02:12 编辑 
+
+toto终于被特定了啊，只剩下难攻不落的nzn了
+
+ema感觉是真实素人，不然这个声线能藏到现在实在不太现实
+
+syl，怎么感觉enna才是en的同接一姐？
+
+
+
+*****
+
+####  FlinN  
+##### 17286#       发表于 2022-9-6 07:06
+
+原来游戏回Selen比较高最近24H接力歌回后鸟涨幅较高
+
+
+
+*****
+
+####  皮卡丘小发卡  
+##### 17287#       发表于 2022-9-6 10:01
+
+鸟7月底同接就起来了
+
+
+
+*****
+
+####  高等黑暗  
+##### 17288#       发表于 2022-9-6 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">其实ymn这几次直播看下来感觉最深的是生活所迫
+
+之前在彩虹可以靠卖周边卖音声躺着赚钱，甚至能2年赚下1000w捐给孤儿院
+
+为了自己的矜持sc不开会员也不开
+
+现在出走了死忠粉感觉留下了1/3不到吧，应开全开，什么都收，之前走前开香火钱+音声全卖就有人说他在走前捞一笔了，现在看来他对之后的生活还挺担忧的，也符合一直以来的抑郁逼负面思考者印象
+
+
+
+*****
+
+####  Ketestrait  
+##### 17289#       发表于 2022-9-6 17:35
+
+ 本帖最后由 Ketestrait 于 2022-9-6 17:39 编辑 
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h5x0qi0vvzj20e107gwgj.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/SvE8YuQ7RJM](https://youtu.be/SvE8YuQ7RJM)
+
+
+
+*****
+
+####  Ketestrait  
+##### 17290#       发表于 2022-9-6 18:27
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h5x28gxibhj20y00kw422.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/Wnq_ZVsr3bw](https://youtu.be/Wnq_ZVsr3bw)
+
+
+
+*****
+
+####  Junchoon  
+##### 17291#       发表于 2022-9-6 18:59
+
+跌丝袜的剪辑能力提升得太快了。
+
+话说她首播还是什么时候列过一份“想要做的事”的清单，她不会真全做了吧......
+
+
+
+*****
+
+####  CielChloe  
+##### 17292#       发表于 2022-9-6 22:44
+
+莎宝在动手能力方面我是无比信赖的，现在我甚至怀疑她的第一次剪辑hitman也不是不会剪辑，而是那种想尽量让人看不出剪辑痕迹的风格。
+
+
+
+*****
+
+####  本间日阳  
+##### 17293#       发表于 2022-9-7 00:19
+
+你们有人记得以前有个3d短视频创作者吗，不是管人，在推特上活动的，大概形象是一个星空外观的人体内部有一个少女，设定上和宇宙有关，我死活想不起名字了。
+
+
+
+*****
+
+####  lhawp  
+##### 17294#       发表于 2022-9-7 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369393&amp;ptid=1972669" target="_blank">本间日阳 发表于 2022-9-7 00:19</a>
+
+你们有人记得以前有个3d短视频创作者吗，不是管人，在推特上活动的，大概形象是一个星空外观的人体内部有一 ...</blockquote>
+[https://twitter.com/dimegir](https://twitter.com/dimegir)
+
+这个？
+
+*****
+
+####  本间日阳  
+##### 17295#       发表于 2022-9-7 02:35
+
+ 本帖最后由 本间日阳 于 2022-9-7 02:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369971&amp;ptid=1972669" target="_blank">lhawp 发表于 2022-9-7 02:28</a>
+https://twitter.com/dimegir
+
+这个？</blockquote>
+是这个，谢谢！没想到还在活动啊，而且原来是个游戏企划……
+
+
+
+*****
+
+####  lhawp  
+##### 17296#       发表于 2022-9-7 15:14
+
+Elira的ASMR，我死了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灵思之风jacke  
+##### 17297#       发表于 2022-9-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57369998&amp;ptid=1972669" target="_blank">本间日阳 发表于 2022-9-7 02:35</a>
+
+是这个，谢谢！没想到还在活动啊，而且原来是个游戏企划……</blockquote>
+同一个创作人的歌势V很不错，可以看看
+[https://twitter.com/metromew](https://twitter.com/metromew)
+
+
+
+*****
+
+####  Ketestrait  
+##### 17298#       发表于 2022-9-7 18:41
+
+[https://youtu.be/iitE8dOhxeM](https://youtu.be/iitE8dOhxeM)
+
+今まで隠していた特技をお见せします。
+
+熊猫人怎么还有这种特技的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17299#       发表于 2022-9-7 18:50
+
+ 本帖最后由 poipanchao 于 2022-9-7 18:53 编辑 
+
+明天月奈这个马车联动对象……不破和西西……
+
+为什么大家同为叛忍，待遇差这么多呢
+
+gamers太温暖了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+等下，这个阵容怎么就“国际交流”了，不破你什么意思
+
+月奈是日本人！
+
+
+
+*****
+
+####  aritaatsu222  
+##### 17300#       发表于 2022-9-8 02:34
+
+不破哥不是第一次这样了🤣“绿仙这样的女孩子”
+
+*****
+
+####  lanslort  
+##### 17301#       发表于 2022-9-8 03:07
+
+<img src="https://img.saraba1st.com/forum/202209/08/030442w1ovcrabuv21y42k.png" referrerpolicy="no-referrer">
+
+<strong>1662576897752584.png</strong> (73.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-8 03:04 上传
+
+Luca操作不当把mc服务器回退版本结果把前辈一大堆东西给炸没了，备份还只有五月份的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Pomu现在重建
+
+要是Vox的话微博上大字报已经贴出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 17302#       发表于 2022-9-8 08:02
+
+<blockquote>Ketestrait 发表于 2022-9-7 18:41
+https://youtu.be/iitE8dOhxeM
+
+今まで隠していた特技をお见せします。
+</blockquote>
+评论“终于干了点像熊猫的事了”
+
+
+
+*****
+
+####  IL282  
+##### 17303#       发表于 2022-9-8 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57356933&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-9-6 01:51</a>
+toto终于被特定了啊，只剩下难攻不落的nzn了
+
+ema感觉是真实素人，不然这个声线能藏到现在实在不太现实</blockquote>
+y1s1好像确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Enna和Selen俩华裔过于强大
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 17304#       发表于 2022-9-8 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57385241&amp;ptid=1972669" target="_blank">lanslort 发表于 2022-9-8 03:07</a>
+Luca操作不当把mc服务器回退版本结果把前辈一大堆东西给炸没了，备份还只有五月份的Pomu现在重建
+
+ ...</blockquote>
+Fucking retard can not read<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  lanslort  
+##### 17305#       发表于 2022-9-8 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57386749&amp;ptid=1972669" target="_blank">IL282 发表于 2022-9-8 09:50</a>
+
+Fucking retard can not read
+
+不过en服这个管理，要不还是摊钱顾一个管理吧，或者让干脆Staff帮 ...</blockquote>
+因为EN服好像是Finana自己租的来着 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID VR的联动，没想到跟JP联动也不少。其他EN多少能说点日语，她是真的一点都不懂，然后还能跑去跟几乎完全不懂英语的不破凑联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17306#       发表于 2022-9-8 11:36
+
+上班难受的时候就打开王子直播沾沾黑心企业离职人的喜气…
+
+
+
+*****
+
+####  高等黑暗  
+##### 17307#       发表于 2022-9-8 15:32
+
+喷惹 还真被预言中了 郡道下周B限和meso联动
+
+
+
+*****
+
+####  IL282  
+##### 17308#       发表于 2022-9-8 16:13
+
+ 本帖最后由 IL282 于 2022-9-8 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57387373&amp;ptid=1972669" target="_blank">lanslort 发表于 2022-9-8 10:27</a>
+因为EN服好像是Finana自己租的来着 
+
+Selen这种大阳角实在太强大了，之前我只看过她到处拉KR ID V ...</blockquote>
+哪怕先花钱雇一个mod呢，希望租期是半年或一年早点到期吧
+
+Selen比较神奇，联动同时交流人数4人以内是大阳角,5人及以上跟闭了麦一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Junchoon  
+##### 17309#       发表于 2022-9-8 19:01
+
+“サロメ嬢満点杯”都是什么鬼，这啥玩意啊......
+
+*****
+
+####  winda  
+##### 17310#       发表于 2022-9-8 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Luca这明说不会公开道歉，这么刚的么
+
+
+
+*****
+
+####  rzrbtk  
+##### 17311#       发表于 2022-9-8 22:42
+
+兔兔兔兔兔兔兔兔！！！忙排练不播也行，开心就好啊😭
+
+
+
+*****
+
+####  fastary  
+##### 17312#       发表于 2022-9-9 09:47
+
+我自己也是倾向于主播不是观众的电子宠物那一派，但是en现在这种无论发生了什么都会一转“大家庭成员间的事主播间说开就好，没必要向观众作任何表示”“主播不急观众凭什么急”的黏糊氛围实在是让人……イライラする<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+大家庭什么时候撕破脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  asdhai  
+##### 17313#       发表于 2022-9-9 09:51
+
+别急，在撕了，只不过脸皮比较厚要花点时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IL282  
+##### 17314#       发表于 2022-9-9 12:12
+
+人家企业势啊，你在办公室都知道尽量别和同事撕破脸，不然影响不好，他们专业主播当然知道不能在客户面前撕逼啊
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17315#       发表于 2022-9-9 13:58
+
+死喷乱涂还挺热闹，谢林和阿喵喵都在广场上转悠，还有别的一些vtuber
+
+
+
+*****
+
+####  rzrbtk  
+##### 17316#       发表于 2022-9-9 16:55
+
+下周VTA首次联动，最期待的是佐伯一彻×宇佐美リト
+
+
+
+*****
+
+####  毛头小希  
+##### 17317#       发表于 2022-9-9 17:09
+
+两个胖虎魔音灌耳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我对九埜x御子柴和小柳x星导也挺感兴趣的
+
+两个阳角存疑和两个阴角
+
+
+
+*****
+
+####  free  
+##### 17318#       发表于 2022-9-9 17:28
+
+怎么变成手机评测up主了，这个视频恰饭了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=UsGlCGnZ-Lc](https://www.youtube.com/watch?v=UsGlCGnZ-Lc)
+
+<img src="https://img.saraba1st.com/forum/202209/09/172837qg1ik188gj810itg.jpg" referrerpolicy="no-referrer">
+
+<strong>iphone14.jpg</strong> (279.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 17:28 上传
+
+
+
+*****
+
+####  SuntoryNomu  
+##### 17319#       发表于 2022-9-10 10:10
+
+<blockquote>「我がさいね姉妹は永久に不灭です！」</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/10/100944eyr1yyqjnlwe11zj.jpg" referrerpolicy="no-referrer">
+
+<strong>20220910_100807.jpg</strong> (260.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 10:09 上传
+
+*****
+
+####  lanslort  
+##### 17320#       发表于 2022-9-10 10:15
+
+问一个问题，油管频道会员不同区域有不同的标价（比如美区4.99刀换到日区只用490yen），那频道主从两个区域会员拿到的钱是一样的吗？如果是SC的话是像会员一样有价格对应还是按照真实汇率计算？
+
+
+
+*****
+
+####  Achlys  
+##### 17321#       发表于 2022-9-10 10:26
+
+拿到的钱不一样，sc如果指颜色的话不同区域不同定价
+
+
+
+*****
+
+####  宫宝兔丁  
+##### 17322#       发表于 2022-9-10 11:22
+
+<blockquote>lanslort 发表于 2022-9-10 10:15
+问一个问题，油管频道会员不同区域有不同的标价（比如美区4.99刀换到日区只用490yen），那频道主从两个区域 ...</blockquote>
+按汇率  你4.99刀的会员最后到手也是扣除分成后的美刀再折算日元而不是按日元定价490yen扣分成 
+
+
+
+*****
+
+####  Alicest  
+##### 17323#       发表于 2022-9-10 12:57
+
+[どんな衣装を着ていても](https://twitter.com/herioscope/status/1568162420694159360)
+
+<img src="https://img.saraba1st.com/forum/202209/10/125637tkzoc6zoonh6nnop.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 12:56 上传
+
+
+
+*****
+
+####  alcoholic1000  
+##### 17324#       发表于 2022-9-10 19:15
+
+<img src="https://img.saraba1st.com/forum/202209/10/191418ahndpslpnghip5kd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>KZH CUP in PUBG Day 1 .jpeg</strong> (754.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202209/10/191418z23b2cr2b3vrcdja.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>KZH CUP in PUBG Day 2.jpeg</strong> (978.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 19:14 上传
+
+还得是king<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17325#       发表于 2022-9-10 20:14
+
+第一天怎么回事啊，人数都不是4的倍数
+
+
+
+*****
+
+####  free  
+##### 17326#       发表于 2022-9-10 21:58
+
+[https://www.2022.animefestival.asia/](https://www.2022.animefestival.asia/)
+
+<img src="https://img.saraba1st.com/forum/202209/10/215804mp661pecggyd6fz2.jpg" referrerpolicy="no-referrer">
+
+<strong>AFA.jpg</strong> (339.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-10 21:58 上传
+
+
+
+*****
+
+####  IL282  
+##### 17327#       发表于 2022-9-10 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57428473&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-9-10 20:14</a>
+第一天怎么回事啊，人数都不是4的倍数
+
+syl原来是三人队</blockquote>
+草Enna<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Junchoon  
+##### 17328#       发表于 2022-9-10 22:45
+
+跌丝袜是打了40多分钟终于能吃蛋糕了？
+
+
+
+*****
+
+####  2black  
+##### 17329#       发表于 2022-9-11 04:13
+
+ 本帖最后由 2black 于 2022-9-11 04:14 编辑 
+
+不知道各位看过这视频了没<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  CielChloe  
+##### 17330#       发表于 2022-9-11 11:15
+
+ 本帖最后由 CielChloe 于 2022-9-11 11:16 编辑 
+
+怎么突然就来这种节奏，明明莎宝热度都要过去了，这蹭热度都赶不上热乎吗？
+
+不过我就爱看三俗，不三俗不看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17331#       发表于 2022-9-11 11:29
+
+不会是看到这视频马上开了一窗练字直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+千桑这字还挺不错，明明是个ガキ写得比旁边的お嬢好
+
+
+
+*****
+
+####  OldGlory  
+##### 17332#       发表于 2022-9-11 14:21
+
+支持中青报，早该管管了
+
+
+
+*****
+
+####  CielChloe  
+##### 17333#       发表于 2022-9-11 14:48
+
+开了赛马直播，这下实锤黄赌毒了，莎宝要被封杀了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+什么，她都不在国内播，那没事了。
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17334#       发表于 2022-9-11 17:56
+
+啊胜活动休止……？
+
+
+
+*****
+
+####  FCCHua  
+##### 17335#       发表于 2022-9-13 13:34
+
+ 本帖最后由 FCCHua 于 2022-9-13 13:39 编辑 
+
+✨　重　大　発　表　✨
+Crazy Raccoon Cup Apex Legends 9.5🔥
+＼＼📢　开　催　决　定　‼／／
+📺配信日时📺
+9月18日（日）18:00～
+第9.5回的话，应该会延续上回大部分的阵容吧，怪不得最近hnn打派的频率有所回升<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Suzutsuki  
+##### 17336#       发表于 2022-9-13 15:50
+
+vspo的喷喷王——67<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  死体残留  
+##### 17337#       发表于 2022-9-13 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">16 17葛cup 18号crcup 应该是为了cr让路吧 原来pv都是17 18号的吧
+
+
+
+*****
+
+####  Kokichi  
+##### 17338#       发表于 2022-9-13 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">crapex有群人要是不复健的话确实纯娱乐赛了。
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 17339#       发表于 2022-9-13 19:06
+
+大家不会都是白银了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FCCHua  
+##### 17340#       发表于 2022-9-13 22:01
+
+ 本帖最后由 FCCHua 于 2022-9-13 22:09 编辑 
+
+先不说琥珀天天出现在oreapo的个人窗里，她一年多之前就和hnn联动过apex吧，当时还有qu酱。kmt那我有印象是从rust开始<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17341#       发表于 2022-9-14 01:59
+
+郡郡回顾麻将赛聊到终于能跟阿喵喵关系变好很开心，说是一直以来跟可爱系的相处的时候不被对面粉丝认可，
+
+搁现在还给口了留面子，哭了，不如直接骂李林事儿逼<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tt13  
+##### 17342#       发表于 2022-9-14 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57179393&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-8-23 07:07</a>
+
+业界顶尖，
+
+那这业界也未免太没有前途了</blockquote>
+我至今还没有见过一个比润滑液冰壶更令我愉快的管人3D节目，是顶尖没错吧？
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17343#       发表于 2022-9-14 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57475736&amp;ptid=1972669" target="_blank">tt13 发表于 2022-9-14 04:19</a>
+我至今还没有见过一个比润滑液冰壶更令我愉快的管人3D节目，是顶尖没错吧？
+
+ ...</blockquote>
+那我还是那句话，这就是顶尖的话这业界未免也太没有前途了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  winda  
+##### 17344#       发表于 2022-9-14 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57468885&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-9-13 19:06</a>
+
+大家不会都是白银了吧
+
+syl こはく居然就能和oreapo联动了，明明今年五月前还是个不知名个人势猎杀， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秋雪小姐是dtto老姬友了，靠她的关系和selen很早就搭上线了
+
+
+
+*****
+
+####  Suny08  
+##### 17345#       发表于 2022-9-14 13:03
+
+这个月虹感觉没啥活了，全在准备fes感觉大部分人直播频率都降下来了
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17346#       发表于 2022-9-14 21:20
+
+你虹4到7月一个季度就赚了14亿啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kokichi  
+##### 17347#       发表于 2022-9-15 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最近越看越感觉oreapo已经是cp梗用光轮流被折磨开始玉玉，但想不出什么新コンテンツ所以俩人每次玉玉完都自我和解继续有一搭没一搭的营业。
+
+最近有印象的只有ava那次的高质量<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能不能出完图灵爱就像国产六字母一样来点美学解放彼此（
+
+
+
+*****
+
+####  poipanchao  
+##### 17348#       发表于 2022-9-15 00:36
+
+出歌分手是什么管人CP的仪式吗
+
+破局方法很简单，kmt找个女友就行了
+
+不过看起来目前两人还是不想放弃管人第一bg的流量的
+
+
+
+*****
+
+####  天天座理世  
+##### 17349#       发表于 2022-9-15 06:13
+
+猫汰喷3发售还没开直播播过这游戏，这喷涂设计白搭了，我都怀疑猫汰当初的皮是给露娜，露娜的紫色皮预定bora氏。不过现在露娜的结果是好的毕竟后辈感足这皮还是挺搭，猫汰这几天没播是不是练习喷3去了。
+
+
+
+*****
+
+####  FCCHua  
+##### 17350#       发表于 2022-9-15 07:58
+
+也可以不出，然后kmt顺势油管毕业去老鼠台播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 17351#       发表于 2022-9-15 08:36
+
+ 本帖最后由 poipanchao 于 2022-9-15 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57491017&amp;ptid=1972669" target="_blank">天天座理世 发表于 2022-9-15 06:13</a>
+猫汰喷3发售还没开直播播过这游戏，这喷涂设计白搭了，我都怀疑猫汰当初的皮是给露娜，露娜的紫色皮预定bor ...</blockquote>
+搬家中，没法播。玩可能会玩，但是键鼠玩家就别指望有啥实力了，只狼怪猎都是键鼠玩的…
+另外衣服的颜料设计其实是代表了画画而不是喷喷，出道的时候解释过
+67出道的时候bora还没毕业…
+
+
+
+*****
+
+####  Kokichi  
+##### 17352#       发表于 2022-9-15 10:41
+
+ 本帖最后由 Kokichi 于 2022-9-15 10:43 编辑 
+
+不是第一bg叻，输完るなレイ输エマレイ，接下来输父女组，要输光光了。
+只能等俩人都彻底想开或者某个人彻底想不开去掀桌子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">慢性死亡还是太闹心了，不想听主播お気持ち。
+
+
+
+*****
+
+####  FCCHua  
+##### 17353#       发表于 2022-9-15 12:21
+
+ 本帖最后由 FCCHua 于 2022-9-15 12:23 编辑 
+
+父女组不会指的kmt和妹妹吧？
+那还是更喜欢dexyuku和hnn的父女组，甚至在不同的平台有看到同人文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  吃咸菜的  
+##### 17354#       发表于 2022-9-15 17:37
+
+本周葛叶、rof-mao、mgo出榜，上周收64779、63631、11100，空妈四专初动1940
+<img src="https://p.sda1.dev/7/e539b4a91885bb171b8976a1374086f0/IMG_20220915_173532.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/0c00e31a4f553a51421056d3a7be613c/IMG_20220915_173555.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/0d323803a8df3bf32b3f671dd1206b15/IMG_20220915_173441.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17355#       发表于 2022-9-15 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499126&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2022-9-15 17:37</a>
+本周葛叶、rof-mao、mgo出榜，上周收64779、63631、11100，空妈四专初动1940</blockquote>
+是不是可以认为虹女粉基本盘6万<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  吃咸菜的  
+##### 17356#       发表于 2022-9-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499585&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-9-15 18:07</a>
+是不是可以认为虹女粉基本盘6万</blockquote>
+二哥2w7在出榜边缘，大概就六万基本盘，不过盒皇还没卖呢，潜在市场很大
+
+
+
+*****
+
+####  黑之和  
+##### 17357#       发表于 2022-9-15 18:41
+
+四轮草复活！？
+今年是哪年？<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 17358#       发表于 2022-9-15 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57499920&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2022-9-15 18:30</a>
+
+二哥2w7在出榜边缘，大概就六万基本盘，不过盒皇还没卖呢，潜在市场很大 ...</blockquote>
+我好酸啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二哥都2w7了
+
+
+
+*****
+
+####  OldGlory  
+##### 17359#       发表于 2022-9-16 00:21
+
+iwa怎么把那条我不关心大箱崛起我只在乎小v温饱的推删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 17360#       发表于 2022-9-16 12:42
+
+听郡台还能听到cn崛起论（褒义），真的好乐啊，据她说就是，“中国的手游真的好劲，工商价格都不是两倍这个程度了，超高，每天睡前对着cn的方向感谢yostar”。我也谢谢悠星爹这个比赛，比我想的要欢乐十倍，希望这份欢乐能延续到喷喷赛…
+
+
+
+*****
+
+####  winda  
+##### 17361#       发表于 2022-9-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57508998&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-16 12:42</a>
+听郡台还能听到cn崛起论（褒义），真的好乐啊，据她说就是，“中国的手游真的好劲，工商价格都不是两倍这个 ...</blockquote>
+nrk一样吹过cn的es谷和公式绘，甚至吹到了想去cn线下活动的地步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文化输出全靠手游
+

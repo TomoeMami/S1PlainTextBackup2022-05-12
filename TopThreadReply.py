@@ -109,12 +109,12 @@ if __name__ == '__main__':
             thdata=json.load(f)
         for i in range(threadnum):
             rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
-        rstr = rstr + '\n' + '[b]回帖数量前'+str(threadnum)+'的用户：[/b]\n'
-        for i in range(threadnum):
-            nameth = replydict1[k][today][nameorder[i][0]]
-            nameth.pop('num')
-            norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
-            rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
+        # rstr = rstr + '\n' + '[b]回帖数量前'+str(threadnum)+'的用户：[/b]\n'
+        # for i in range(threadnum):
+        #     nameth = replydict1[k][today][nameorder[i][0]]
+        #     nameth.pop('num')
+        #     norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
+        #     rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
         rstr = rstr + '===========\n\n'
     rstr = rstr + '[url=https://tomoemami.gitee.io/tomoemami.github.io/]历史日回帖统计在线图表[/url]\n'
     # print(rstr)

@@ -4,7 +4,8 @@
 name: get_a_thread_id
 
 on:
-  push
+  workflow_dispatch
+#  push
 jobs:
   S1TopThreads:
     runs-on: ubuntu-latest
