@@ -6275,3 +6275,25 @@ That’s the way to think. If they take action while I’m still alive and healt
 
 香教主经典管杀不管埋，除了自己的千妃其他人自己有问题的时候只能求别人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 5121#       发表于 2022-9-20 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563759&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 10:48</a>
+那这种做法只能说是强烈的离了大谱了，罢了，反正可可这唱白脸是习惯了，一二期动画都在尝试引起强烈的矛 ...</blockquote>
+花田过去也很喜欢这样写，问题是不会有这么长的情感冲突加如此长时间的现实时间的空隔，
+
+不论是果果还是mari，又或者去南极，至多几集就结束了，这隔了一年最后给我说这两个人哭一顿就好了，或许补番的会比追番的体验更好吧，shit，谁会推荐补星团啊。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 5122#       发表于 2022-9-20 10:56
+
+也就B站那些烂片刺客的up粉丝会有一些有零星兴趣来看看到底有没有说的这么搞子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
