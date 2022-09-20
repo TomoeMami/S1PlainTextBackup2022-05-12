@@ -3502,3 +3502,14 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 什么都不怕，就怕简中翻译有没有民间汉化那么用心啊
 
+
+
+*****
+
+####  首领  
+##### 373#       发表于 2022-9-20 17:50
+
+这粪game窗口模式头好晕
+
+之前玩有那么晕吗
+
