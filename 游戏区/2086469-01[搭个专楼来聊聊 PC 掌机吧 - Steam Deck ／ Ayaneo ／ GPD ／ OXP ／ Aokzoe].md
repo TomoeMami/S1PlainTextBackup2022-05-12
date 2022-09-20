@@ -3007,3 +3007,30 @@ GPD几年前就提过说v社找他们合作他们没答应什么的。不过鉴�
 
 而且大部分还会比它差一些。
 
+
+
+*****
+
+####  asuss  
+##### 243#       发表于 2022-9-20 04:37
+
+GPD win4看着不错啊，但是他们公关是怎么回事？这两天又去碰G胖了这是？
+
+<img src="https://img.saraba1st.com/forum/202209/20/043636tm69hpjx9w766pdx.jpg" referrerpolicy="no-referrer">
+
+<strong>Scree.jpg</strong> (104.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 04:36 上传
+
+*****
+
+####  bypass  
+##### 244#         楼主| 发表于 2022-9-20 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57561461&amp;ptid=2086469" target="_blank">asuss 发表于 2022-9-20 04:37</a>
+
+GPD win4看着不错啊，但是他们公关是怎么回事？这两天又去碰G胖了这是？</blockquote>
+GPD 的营销一直都是这鸟样 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 也算是自家特色了
+

@@ -9452,3 +9452,249 @@ iwa怎么把那条我不关心大箱崛起我只在乎小v温饱的推删了<img
 听郡台还能听到cn崛起论（褒义），真的好乐啊，据她说就是，“中国的手游真的好劲，工商价格都不是两倍这个 ...</blockquote>
 nrk一样吹过cn的es谷和公式绘，甚至吹到了想去cn线下活动的地步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文化输出全靠手游
 
+
+
+*****
+
+####  Suny08  
+##### 17362#       发表于 2022-9-16 17:30
+
+这到底是king的面子还是谁的面子啊，拉赞助这么强的吗
+
+*****
+
+####  rzrbtk  
+##### 17363#       发表于 2022-9-16 21:57
+
+小野町春香のASMRチャンネルが开设されました！！
+
+耳かきや耳つぼ、オイルマッサージします
+
+今夜の睡眠のお供に使ってもらえたら嬉しいな
+
+古参してください🍵
+
+チャンネル登録よろしくね！
+[https://youtube.com/channel/UCSUZugdxy9Wcrkp781cFt1w](https://youtube.com/channel/UCSUZugdxy9Wcrkp781cFt1w)
+
+#拡散希望　#小野町春香　#ASMR
+
+不是我说，这也许是虹最值得订阅的sub号<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 17364#       发表于 2022-9-16 22:47
+
+后知后觉你虹财报一发股价又起飞了。
+en确实强无敌。
+
+*****
+
+####  dclara1  
+##### 17365#       发表于 2022-9-17 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516604&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-9-16 22:47</a>
+
+后知后觉你虹财报一发股价又起飞了。
+
+en确实强无敌。</blockquote>
+en专吃亚洲市场是最搞的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lanslort  
+##### 17366#       发表于 2022-9-17 10:16
+
+那毕竟亚洲还是不讲日语的比讲日语的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 而且现在看EN的日本虹人也不少了吧
+
+之前在4chan看到的图，不知道数据的真实性，不过看4chan也经常喷staff屁用没有，这么一说VR还挺虹的
+
+<img src="https://img.saraba1st.com/forum/202209/17/101502kfx21g1s2ddcd2i2.png" referrerpolicy="no-referrer">
+
+<strong>1660472507268.png</strong> (52.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 10:15 上传
+
+*****
+
+####  渡鸦骑士  
+##### 17367#       发表于 2022-9-17 12:35
+
+ 本帖最后由 渡鸦骑士 于 2022-9-17 12:45 编辑 
+
+营业外收入差距是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看了一下解释，有固定资产的，政府补助，还有罚金。
+等等……罚金……。
+润羽露西娅的活动资金……嘛？
+
+*****
+
+####  lanslort  
+##### 17368#       发表于 2022-9-17 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这赛车比赛感觉比昨天的打枪好看多了
+
+*****
+
+####  天天座理世  
+##### 17369#       发表于 2022-9-17 18:20
+
+cr9.5重赛，直接让vspo俩个新人有机会参加了，看猫汰当mainy翻译了
+
+*****
+
+####  Suny08  
+##### 17370#       发表于 2022-9-17 19:26
+
+欧巴出尽了风头，还是来当日本人吧，早就起飞了
+
+
+
+*****
+
+####  FCCHua  
+##### 17371#       发表于 2022-9-17 20:43
+
+hnn今天下午的车队好有意思，什么时候三人能组第二回，聊着相声上大分<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devi_Lito  
+##### 17372#       发表于 2022-9-17 22:18
+
+珊瑚的周六晚定期杂谈要停1个月<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊克路西安  
+##### 17373#       发表于 2022-9-17 23:21
+
+感觉莎乐美现在的声线比起刚出道的时候陌生了很多啊
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ketestrait  
+##### 17374#       发表于 2022-9-17 23:46
+
+低了一些，没有那么尖了，大概一直保持那样嗓子撑不住吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小鸟游泉  
+##### 17375#       发表于 2022-9-17 23:58
+
+前阵子换了麦和声卡这整套环境应该也有一定影响，她现在会用一些声卡上的功能调音了，估计加了降噪和音域控制
+
+*****
+
+####  noHentai  
+##### 17376#       发表于 2022-9-18 00:14
+
+<img src="https://p.sda1.dev/7/6fe5963fda172b905bb449c422c888a8/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Longinus_  
+##### 17377#       发表于 2022-9-18 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57479587&amp;ptid=1972669" target="_blank">winda 发表于 2022-9-14 11:49</a>
+
+秋雪小姐是dtto老姬友了，靠她的关系和selen很早就搭上线了</blockquote>
+才发现秋雪现在的头像就是前几天dtto约的贺图
+
+*****
+
+####  winda  
+##### 17378#       发表于 2022-9-18 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">king连续两天kzh赏指名阿喵喵在的队伍，加上虹棒也是直接指名阿喵喵，king这喜爱完全不藏的
+
+*****
+
+####  渡鸦骑士  
+##### 17379#       发表于 2022-9-18 11:44
+
+你虹如今的可爱担当只能是啊喵喵了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17380#       发表于 2022-9-18 12:03
+
+可能是平常吃腻了姐系吧
+
+镜头给到nari，king的声调都不一样的
+
+*****
+
+####  winda  
+##### 17381#       发表于 2022-9-18 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">皇女对社长22年和21年虹棒冠军对打，皇女这守备走力可以说是碾压社长赢下比赛了
+
+*****
+
+####  Ketestrait  
+##### 17382#       发表于 2022-9-18 18:35
+
+[https://youtu.be/om0Xf9N6egw](https://youtu.be/om0Xf9N6egw)
+
+大小姐、章鱼乌贼.avi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 17383#       发表于 2022-9-18 21:27
+
+cpt和姐姐又是cr杯冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 17384#       发表于 2022-9-19 00:38
+
+三冠王すみれ，带妹王cpt
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Map-2  
+##### 17385#       发表于 2022-9-19 20:09
+
+影之诗联动彩虹社
+
+e0926da11764b6fa4cb68519514729d1.jpg
+(188.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/19/200924q7vwplwo0vjokrok.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CielChloe  
+##### 17386#       发表于 2022-9-20 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556124&amp;ptid=1972669" target="_blank">Map-2 发表于 2022-9-19 20:09</a>
+影之诗联动彩虹社</blockquote>
+好吧，冲这点我决定入坑试试<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊克路西安  
+##### 17387#       发表于 2022-9-20 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560427&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-9-20 00:29</a>
+好吧，冲这点我决定入坑试试</blockquote>
+提醒一下，联动的是实体卡，不是本体
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

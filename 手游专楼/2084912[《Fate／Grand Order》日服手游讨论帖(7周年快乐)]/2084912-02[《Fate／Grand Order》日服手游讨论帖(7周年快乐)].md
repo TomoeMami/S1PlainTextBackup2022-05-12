@@ -12676,3 +12676,164 @@ wrba单红就判死刑了，至少俩ba混吧
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  khxooo  
+##### 2641#       发表于 2022-9-19 18:11
+
+女武神快乐本，就是拉二要补刀。
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 2642#       发表于 2022-9-19 18:16
+
+90本道中十万血很离谱吗，隔壁怎么又开始数据膨胀了
+
+*****
+
+####  白金口袋  
+##### 2643#       发表于 2022-9-19 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554057&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-9-19 17:37</a>
+
+笑死，大家都是二五仔
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+明天驹姬突然跳反把祖兽砍了表示：最后的二五仔，就是我自身也化为二五仔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zooandtoo  
+##### 2644#       发表于 2022-9-19 19:01
+
+ 本帖最后由 zooandtoo 于 2022-9-19 19:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这真的是我们之中有一个人不是叛徒了艹
+
+不过茶茶开日轮城自爆还以为要有二池呢这被三成捞回来了。。。
+
+目前为止GDGD系列看得最起劲的一次
+
+果然我还是喜欢泥泞的部分，最后利休又开始追求“理想”就瞬间没劲
+
+*****
+
+####  khxooo  
+##### 2645#       发表于 2022-9-19 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554869&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-9-19 18:53</a>
+明天驹姬突然跳反把祖兽砍了表示：最后的二五仔，就是我自身也化为二五仔 ...</blockquote>
+这不是很正常吗，咕哒都和正牌驹姬有链接了，估计最后就是经典的我杀我自己。
+
+*****
+
+####  v22325  
+##### 2646#       发表于 2022-9-19 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这月球秀吉这几章写的太昏君吓人了……和经验值偶尔登场的乐天黄毛感觉印象对不上
+
+*****
+
+####  黑上シグマ  
+##### 2647#       发表于 2022-9-19 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556249&amp;ptid=2084912" target="_blank">v22325 发表于 2022-9-19 20:17</a>
+
+这月球秀吉这几章写的太昏君吓人了……和经验值偶尔登场的乐天黄毛感觉印象对不上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去瞄眼这货的设定就知道了，你看到的乐天黄毛大概是木下藤吉郎状态，但最终会变成老害模式的丰臣秀吉
+
+*****
+
+####  森兰丸  
+##### 2648#       发表于 2022-9-19 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554318&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-19 18:11</a>
+
+女武神快乐本，就是拉二要补刀。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">女武神310带满破宝石和双水BA这NP也不够回啊...要怎么快乐的起来
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 2649#       发表于 2022-9-19 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556430&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-9-19 20:28</a>
+
+女武神310带满破宝石和双水BA这NP也不够回啊...要怎么快乐的起来</blockquote>
+泳七送的蓝光炮杀阶女武神
+
+*****
+
+####  森兰丸  
+##### 2650#       发表于 2022-9-19 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556520&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-9-19 20:34</a>
+
+泳七送的蓝光炮杀阶女武神</blockquote>
+..................草了
+
+之前一直以为这女武神是绿光炮....又上线看了下才发现竟然是蓝光炮<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 2651#       发表于 2022-9-19 20:41
+
+历史上的秀吉反差也不小，很难让人把织田军的智多星、交际花和后来不自量力入侵朝鲜又疯狂杀自己人的魔怔人联系到一起。秀吉的人生经历就是那种标准的照着拍成电影会被人喷创造历史，异想天开的粪作那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以大多数以秀吉为主角的娱乐作品都会避开他的晚年，毕竟实在是太秀了，都不知道让人要怎么魔改了。
+
+话说在fgo最近几个反派各种洗白和谐星化的潮流里，千利秋简直是一股清流啊，迦勒底那些顶着avanger头衔的谐星们真该好好看看什么叫真正的“复仇者”，这手虾仁还要猪心简直漂亮，最后狗哥跳反那里对三成的嘲讽简直绝了，伤害很大，侮辱性更强，老子就是要看你这气到肺炸又不能拿我怎样的表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2652#       发表于 2022-9-19 20:57
+
+这骑本不是过期水武藏都乱杀的本吗。怎么就膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 2653#       发表于 2022-9-19 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后狗哥又跳反背刺千利休了，结果这期还是没有真正意义的纯坏人，最坏的千利休也是有同情余地的坏人。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zooandtoo  
+##### 2654#       发表于 2022-9-19 21:21
+
+ 本帖最后由 zooandtoo 于 2022-9-19 21:23 编辑 
+
+没吧，那老头不就是想追求诧寂之极放祖兽顺便干死猴子关系人报复取乐么。。
+
+够邪恶了吧，为了自己的欲望蹂躏他人
+
+猴子倒是没什么难理解的
+
+魔怔的护犊子聪明人这智力DEBUFF都套了不知道几重了。。
+
+*****
+
+####  真飞鸟i  
+##### 2655#       发表于 2022-9-19 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57557277&amp;ptid=2084912" target="_blank">zooandtoo 发表于 2022-9-19 21:21</a>
+没吧，那老头不就是想追求诧寂之极放祖兽顺便干死猴子关系人报复取乐么。。
+
+够邪恶了吧，为了自己的欲望蹂 ...</blockquote>
+主要是目前fate的千利休可能缝了驹姬所以有一定的同情余地，但是也不是不可能其实没有缝合，只是千利休的恶趣味，这样的话就是纯恶人了。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  angelooo  
+##### 2656#       发表于 2022-9-20 08:37
+
+这三成没多大意思啊，还是本子玩剩下的被迫害人设，登场角色人手一个标签什么死脑筋没朋友往上贴就是了，就算以后能落地感觉也要继续被迫害23333利休缝驹姬这玩法简直了，但是剧情里这立绘一出来就有人猜到锁后两个灵基有意义吗，剧情还没完不知道还有没有什么变化
+

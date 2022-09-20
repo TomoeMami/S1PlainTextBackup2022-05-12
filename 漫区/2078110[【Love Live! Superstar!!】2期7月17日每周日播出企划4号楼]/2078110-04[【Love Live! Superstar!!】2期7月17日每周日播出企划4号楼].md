@@ -964,3 +964,5209 @@ YJ太素了</blockquote>
 
 因为动画没救了
 
+
+
+*****
+
+####  优妮可  
+##### 4577#       发表于 2022-9-16 17:07
+
+ 本帖最后由 优妮可 于 2022-9-16 17:11 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/16/171136vu0dhq0d8q0gh08m.jpg" referrerpolicy="no-referrer">
+
+<strong>20220916_170319.jpg</strong> (381.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 17:11 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/171137k9w355v9944hlltw.jpg" referrerpolicy="no-referrer">
+
+<strong>20220916_170318.jpg</strong> (254.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 17:11 上传
+
+*****
+
+####  player3960  
+##### 4578#       发表于 2022-9-16 17:14
+
+这是三单的造型吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 4579#       发表于 2022-9-16 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一看手套(
+
+*****
+
+####  仟音一心  
+##### 4580#       发表于 2022-9-16 17:59
+
+ 本帖最后由 仟音一心 于 2022-9-16 18:41 编辑 
+<blockquote>优妮可 发表于 2022-9-16 17:07
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/16/175904y3ijooj7i3iu5zoi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A2BBD94F-C874-490B-B558-CB572FB5500B.jpeg</strong> (357.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/175914xqn2neqh0zd2s2y9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>56EDB862-B944-4A84-A288-46A099C5ABB1.jpeg</strong> (191.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 17:59 上传
+
+*****
+
+####  lj205  
+##### 4581#       发表于 2022-9-16 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说全靠脸输出…………
+
+*****
+
+####  稀勢のささ  
+##### 4582#       发表于 2022-9-16 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 4583#       发表于 2022-9-16 18:53
+
+ 本帖最后由 Enakina 于 2022-9-16 19:00 编辑 
+
+感觉还不如百万ed，符合番剧制作水平的op吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这衣服好复古风，可能20年前比较流行
+那个手套和我家拧拖布的同款了最速同款
+
+*****
+
+####  emmer  
+##### 4584#       发表于 2022-9-16 18:55
+
+这衣服什么鬼啊，全靠脸撑着
+
+*****
+
+####  GGnob  
+##### 4585#       发表于 2022-9-16 18:56
+
+手套真的蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4586#       发表于 2022-9-16 19:03
+
+橡胶洗碗手套同款
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4587#       发表于 2022-9-16 19:05
+
+哦豁
+
+*****
+
+####  cat1230  
+##### 4588#       发表于 2022-9-16 19:13
+
+弹幕一堆紫吧的，遭不住
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ViyViy  
+##### 4589#       发表于 2022-9-16 19:18
+
+开着当BGM了 具体还是等烤肉 有鱼在不怕烤制速度的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4590#       发表于 2022-9-16 19:20
+
+管那里看了，没必要去破站找不痛快
+
+
+
+*****
+
+####  优妮可  
+##### 4591#       发表于 2022-9-16 19:20
+
+传播up不管也不找房管，没办法
+
+*****
+
+####  稀勢のささ  
+##### 4592#       发表于 2022-9-16 19:21
+
+聊这剧情是真没意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4593#       发表于 2022-9-16 19:21
+
+ 本帖最后由 优妮可 于 2022-9-16 19:23 编辑 
+
+编辑
+
+*****
+
+####  稀勢のささ  
+##### 4594#       发表于 2022-9-16 19:21
+
+ 本帖最后由 稀勢のささ 于 2022-9-16 19:22 编辑 
+
+风怒
+
+*****
+
+####  优妮可  
+##### 4595#       发表于 2022-9-16 19:21
+
+ 本帖最后由 优妮可 于 2022-9-16 19:24 编辑 
+
+编辑
+
+*****
+
+####  优妮可  
+##### 4596#       发表于 2022-9-16 19:21
+
+ 本帖最后由 优妮可 于 2022-9-16 19:24 编辑 
+
+编辑
+
+*****
+
+####  稀勢のささ  
+##### 4597#       发表于 2022-9-16 19:22
+
+ 本帖最后由 稀勢のささ 于 2022-9-16 19:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">原来钦定是因为成长了
+
+*****
+
+####  优妮可  
+##### 4598#       发表于 2022-9-16 19:22
+
+ 本帖最后由 优妮可 于 2022-9-16 19:24 编辑 
+
+编辑
+
+*****
+
+####  稀勢のささ  
+##### 4599#       发表于 2022-9-16 19:22
+
+风怒
+
+*****
+
+####  qty  
+##### 4600#       发表于 2022-9-16 19:26
+
+鲤鱼在这种小场地坐边上显得比别人大一圈
+
+*****
+
+####  lj205  
+##### 4601#       发表于 2022-9-16 19:33
+
+念信好无聊
+
+*****
+
+####  Kfly  
+##### 4602#       发表于 2022-9-16 19:35
+
+浓浓的任务感………主要是剧情无趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4603#       发表于 2022-9-16 19:40
+
+生放前小视频
+
+<img src="https://img.saraba1st.com/forum/202209/16/194005pdfc2jijci4iczoj.png" referrerpolicy="no-referrer">
+
+<strong>Liella!9-16生放送前小视频 @00-04.19 1663328272134.png</strong> (190.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 19:40 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/194004sar8raaxpgtga5xa.png" referrerpolicy="no-referrer">
+
+<strong>Liella!9-16生放送前小视频 @00-06.86 1663328261031.png</strong> (185.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 19:40 上传
+
+*****
+
+####  starring  
+##### 4604#       发表于 2022-9-16 19:44
+
+剧情已经念无可念，只好化身无情的卡哇伊机器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4605#       发表于 2022-9-16 19:47
+
+pay酱这个海豚笑真的绷不住了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 4606#       发表于 2022-9-16 19:54
+
+念信也好，不需要即兴表演
+
+*****
+
+####  qty  
+##### 4607#       发表于 2022-9-16 19:57
+
+工商够多的
+
+*****
+
+####  lj205  
+##### 4608#       发表于 2022-9-16 20:01
+
+无情的卡哇伊机器
+
+*****
+
+####  lj205  
+##### 4609#       发表于 2022-9-16 20:03
+
+ 本帖最后由 lj205 于 2022-9-16 20:04 编辑 
+
+魔怔人满足了吧？今天鲤鱼给满福利
+
+终于9人生放了
+
+*****
+
+####  ViyViy  
+##### 4610#       发表于 2022-9-16 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57513917&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-16 20:03</a>
+
+魔怔人满足了吧？今天鲤鱼给满福利
+
+终于9人生放了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">指望那些得寸进尺的满足，很难的啦
+
+*****
+
+####  优妮可  
+##### 4611#       发表于 2022-9-16 20:08
+
+开机器人来刷的，别指望
+
+*****
+
+####  仟音一心  
+##### 4612#       发表于 2022-9-16 20:09
+
+指望这些货满足？我在这个楼里的回贴内容都会被紫吧蛆截图过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4613#       发表于 2022-9-16 20:11
+
+提到第9话时，鲤鱼和pay那表情欲言又止，是好是坏大概都憋了很久吧
+
+*****
+
+####  稀勢のささ  
+##### 4614#       发表于 2022-9-16 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10话后的9人生放 就赌这一波了是吧
+
+*****
+
+####  稀勢のささ  
+##### 4615#       发表于 2022-9-16 20:12
+
+ 本帖最后由 稀勢のささ 于 2022-9-16 20:13 编辑 
+
+风怒
+
+*****
+
+####  Kfly  
+##### 4616#       发表于 2022-9-16 20:13
+
+倒是希望有好活，但星二现状………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4617#       发表于 2022-9-16 20:14
+
+鱼说恋这发型像海未
+
+<img src="https://img.saraba1st.com/forum/202209/16/201353wpjfpb73ibmbi45z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A7C44590-EA85-4520-93E5-CBEFD7C540C4.jpeg</strong> (381.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/201405yxyb7xyauqyxpnyq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>03CBAF18-F248-4FEF-AD81-2FFAE05A3A73.jpeg</strong> (134.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 20:14 上传
+
+*****
+
+####  kbtit  
+##### 4618#       发表于 2022-9-16 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1也会被视奸啊，花5块钱就为了截个图回去高潮一番吗，不如攒着买飞机杯
+
+*****
+
+####  aoaoaodedede  
+##### 4619#       发表于 2022-9-16 20:22
+
+看帖又不要花钱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4620#       发表于 2022-9-16 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57514158&amp;ptid=2078110" target="_blank">kbtit 发表于 2022-9-16 20:16</a>
+
+s1也会被视奸啊，花5块钱就为了截个图回去高潮一番吗，不如攒着买飞机杯 ...</blockquote>
+视奸不要钱，回复要，也难怪会被截图
+
+
+
+*****
+
+####  kbtit  
+##### 4621#       发表于 2022-9-16 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57514247&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-16 21:22</a>
+
+视奸不要钱，回复要，也难怪会被截图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我的，把这里当v版了
+
+*****
+
+####  player3960  
+##### 4622#       发表于 2022-9-16 20:31
+
+咱楼有啥好视奸的，不就是正常讨论吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 4623#       发表于 2022-9-16 20:38
+
+那当然是正常讨论的东西它们不喜欢，不是它们想要的咯。
+
+*****
+
+####  kata魂  
+##### 4624#       发表于 2022-9-16 20:39
+
+这帮fw除了会截图还有啥能力啊，可怜一下吧
+
+*****
+
+####  we89623  
+##### 4625#       发表于 2022-9-16 20:57
+
+你们对恨国蛆有啥幻想吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4626#       发表于 2022-9-16 21:30
+
+ 本帖最后由 Kfly 于 2022-9-16 21:32 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/16/213128v0641zcqq4sqf01c.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQmscn-vuyZdT3cSsg-ik.jpg</strong> (130.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/213002lwz4ztvao494dadb.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ9og-8e0fZdT3cSsg-g0.jpg</strong> (130.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 21:30 上传
+
+*****
+
+####  Enakina  
+##### 4627#       发表于 2022-9-16 21:39
+
+ 本帖最后由 Enakina 于 2022-9-16 21:43 编辑 
+
+编辑
+
+*****
+
+####  Enakina  
+##### 4628#       发表于 2022-9-16 21:39
+
+嘶，这个时间，10集刚放送后
+是着急拿来当盾吗，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4629#       发表于 2022-9-16 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515623&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-16 21:39</a>
+
+嘶，这个时间，10集刚放送后
+
+是着急拿来当盾吗，我不好说</blockquote>
+确实不好说，下周有OP&amp;ED发售活动，然后第10集和sif那个现在还不知道是啥的东西都在星期天
+
+其实看起来第10集倒是像凑巧的那个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4630#       发表于 2022-9-16 21:54
+
+水煮鱼给我狠狠地贴<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4631#       发表于 2022-9-16 21:55
+
+最近合照都是水渚鱼
+
+<img src="https://img.saraba1st.com/forum/202209/16/215450wrc4b4fbrbbumr2r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>656CBEB9-FA66-4D21-92A7-79D23892F163.jpeg</strong> (497.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/215450eyz33cmmbgg989m1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4F471F94-AE01-420B-8108-C3FDCD4B8FA5.jpeg</strong> (495.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/215500gknqrzlr1youn3qo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>39EF2CE6-A3EE-4697-9E03-77EAA453AB2A.jpeg</strong> (419.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/215501ktr00xo05z9c2wvc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CE70BD30-7E0B-4FDF-B24A-8A23F2C9D0F9.jpeg</strong> (364.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/215509sb1eeq9e1xb6y66y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2CA781D3-5DE8-4FD6-84D3-68809A9ADBB1.jpeg</strong> (102.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/215516z9q2o8vzjo67rjel.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88963D28-47D3-4B28-8E3B-339E3C0C1090.jpeg</strong> (232.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-16 21:55 上传
+
+*****
+
+####  Kfly  
+##### 4632#       发表于 2022-9-16 21:58
+
+ 本帖最后由 Kfly 于 2022-9-16 22:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515857&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-16 21:55</a>
+
+最近合照都是水渚鱼</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/16/220431alh8qhyw7a8guah7.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQptz4-ac7bZbT3cSlc-sg.jpg</strong> (109.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202209/16/220434e7bgt81gpq0bxpdj.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ7i87-52akK24T3cSsg-lc.jpg</strong> (78.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-16 22:04 上传
+
+*****
+
+####  Kfly  
+##### 4633#       发表于 2022-9-16 21:58
+
+ 本帖最后由 Kfly 于 2022-9-16 22:01 编辑 
+
+编辑
+
+*****
+
+####  Kfly  
+##### 4634#       发表于 2022-9-16 21:58
+
+ 本帖最后由 Kfly 于 2022-9-16 22:02 编辑 
+
+编辑
+
+*****
+
+####  aoaoaodedede  
+##### 4635#       发表于 2022-9-16 22:00
+
+这是帖子又出bug了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老1.5  
+##### 4636#       发表于 2022-9-16 22:03
+
+看样子不止是逢年过节水渚鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 4637#       发表于 2022-9-16 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515739&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-16 21:47</a>
+确实不好说，下周有OP&amp;ED发售活动，然后第10集和sif那个现在还不知道是啥的东西都在星期天
+
+其实看起来第1 ...</blockquote>
+的确，这个说要聊リリース的，是因为意外延了一集，不然碰不上。不过刚看完第十集，被创的不行，然后在接生放的话，是否有点……
+
+*****
+
+####  稀勢のささ  
+##### 4638#       发表于 2022-9-16 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是第十集能整个大的再接生放 那场面我都不敢想
+
+*****
+
+####  稀勢のささ  
+##### 4639#       发表于 2022-9-16 22:23
+
+风怒
+
+*****
+
+####  Kfly  
+##### 4640#       发表于 2022-9-16 22:24
+
+总之一定会是很精彩的一天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4641#       发表于 2022-9-16 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57515739&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-16 21:47</a>
+确实不好说，下周有OP&amp;ED发售活动，然后第10集和sif那个现在还不知道是啥的东西都在星期天
+
+其实看起来第1 ...</blockquote>
+要不是疫情，第十集这周就放了，确实更像是巧合的那个。
+
+只不过这个可可回，我觉得下限铁血上限age
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甘蓝巧克力  
+##### 4642#       发表于 2022-9-16 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">谁能想到一年之后大家都这么害怕面对即将到来的可可回呢，可推真是哭都哭不出来了
+
+*****
+
+####  iuhehc  
+##### 4643#       发表于 2022-9-16 22:34
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4644#       发表于 2022-9-16 22:47
+
+鱼的三单比较挑电波，喜欢的人会很喜欢，接受不了的人那就真接受不了
+
+*****
+
+####  player3960  
+##### 4645#       发表于 2022-9-16 22:51
+
+鲤鱼的三单暂时听着感觉一般，不过还有首cw曲，希望能给力点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 4646#       发表于 2022-9-16 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该支持还是会支持
+
+*****
+
+####  lj205  
+##### 4647#       发表于 2022-9-16 23:22
+
+本来这次还打算买20个码做个唠嗑抽签试验，结果刷了几天煤炉都没看到有人放出来，等特典图出了再看看吧
+
+*****
+
+####  靡宜  
+##### 4648#       发表于 2022-9-16 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57516611&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-16 22:47</a>
+
+鱼的三单比较挑电波，喜欢的人会很喜欢，接受不了的人那就真接受不了</blockquote>
+这个番就限定了这种曲风<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">作曲好像说是个大佬，确实要对电波。CW是葛佳慧，这下合作确实不少
+
+*****
+
+####  靡宜  
+##### 4649#       发表于 2022-9-16 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517127&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-16 23:22</a>
+
+本来这次还打算买20个码做个唠嗑抽签试验，结果刷了几天煤炉都没看到有人放出来，等特典图出了再看看吧 ...</blockquote>
+要等发售吧才会有人放？
+
+*****
+
+####  lj205  
+##### 4650#       发表于 2022-9-16 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517351&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-16 23:40</a>
+
+要等发售吧才会有人放？</blockquote>
+A店现在预定的话就会直接给码，G店我记得线下预定也会给码，线上则是发售后发放，反正再等等
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 4651#       发表于 2022-9-16 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517340&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-16 23:39</a>
+
+这个番就限定了这种曲风作曲好像说是个大佬，确实要对电波。CW是葛佳慧，这下合作确实不少 ...</blockquote>
+话说CW的消息是在哪个地方
+
+*****
+
+####  cat1230  
+##### 4652#       发表于 2022-9-17 00:34
+
+ 本帖最后由 cat1230 于 2022-9-17 00:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517340&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-16 23:39</a>
+
+这个番就限定了这种曲风作曲好像说是个大佬，确实要对电波。CW是葛佳慧，这下合作确实不少 ...</blockquote>
+葛佳慧我以为是作词，原来作词作曲都包办的吗？厉害的。反正目前这OP单独听真不大行，看看便宜动画画面加成有没有惊喜，看了下这个的词曲：
+主题歌「TRUE FOOL LOVE」は元JUDY AND MARYのTAKUYAによる作词・作曲、本间昭光による编曲でTVアニメのオープニングテーマにふさわしい豪华な布阵
+
+*****
+
+####  caicaistar  
+##### 4653#       发表于 2022-9-17 00:51
+
+鱼的新单...旋律可以，唱的可以，这个混音一言难尽...好的混音富有层次，这个混音堪称耳机打结
+
+*****
+
+####  仟音一心  
+##### 4654#       发表于 2022-9-17 10:07
+
+<img src="https://img.saraba1st.com/forum/202209/17/100728a75dew5bff9obik3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C08196C1-623E-4F76-8BC2-E0D61B4A9F01.jpeg</strong> (87.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 10:07 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/100728hn6zd6nakiammxnn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B070FEA5-1E62-4F07-85CC-39553F891CC0.jpeg</strong> (201.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 10:07 上传
+
+*****
+
+####  优妮可  
+##### 4655#       发表于 2022-9-17 10:10
+
+<img src="https://img.saraba1st.com/forum/202209/17/101042xyizdyiop1hurdhp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220917_101021.jpg</strong> (51.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 10:10 上传
+
+pay回复了
+
+*****
+
+####  靡宜  
+##### 4656#       发表于 2022-9-17 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57517509&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-16 23:52</a>
+
+话说CW的消息是在哪个地方</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/17/101305l0dltii1m11m11wi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 10:13 上传
+
+*****
+
+####  稀勢のささ  
+##### 4657#       发表于 2022-9-17 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+キャスト生配信→累计4100、95.6%
+
+アニメ生配信→累计2600、51.5%
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4658#       发表于 2022-9-17 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不利于动画的话不要说
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4659#       发表于 2022-9-17 13:19
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-9-17 15:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拼盘live没人气啊，现在还在卖当日票
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，听现地佬跟别人聊天说好多拉拉人因为担心偶活和虾泥厄介太多（指掰大闪转风火轮高跳）治安不好所以不来了，现地佬也担心到时候被拉拉人出警说不发癫了。想来也特别好玩，水那时候厄的厉害，liella反而全员mmr了
+
+还有半小时，这人也忒少了
+
+<img src="https://img.saraba1st.com/forum/202209/17/153437olo7lltn7l8qlp1n.jpg" referrerpolicy="no-referrer">
+
+<strong>(B_T51AEGRF$EN16AVKFXTF.jpg</strong> (638.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 15:34 上传
+
+*****
+
+####  仟音一心  
+##### 4660#       发表于 2022-9-17 13:49
+
+Celticwhite老师的昨天生放，打断施法的名场面
+<img src="https://p.sda1.dev/7/675d8ceefededde89395c1ab86c0fa5b/CMP_20220917134802629.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4661#       发表于 2022-9-17 16:34
+
+ 本帖最后由 player3960 于 2022-9-17 16:35 编辑 
+
+今天的歌单
+
+1.枪声
+
+2.拍手歌
+
+3.交响乐
+
+4.一单
+
+5.nofi
+
+6.day1
+
+7.op1
+
+今天导播收音都不错，很多好镜头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4662#       发表于 2022-9-17 16:35
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-9-17 16:42 编辑 
+
+鱼的耳机掉了
+
+歌单
+
+<img src="https://img.saraba1st.com/forum/202209/17/164219hz0k8ap44wfw4f0p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 16:42 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4663#       发表于 2022-9-17 16:46
+
+<img src="https://img.saraba1st.com/forum/202209/17/164646f51zhl5hcbypnu53.jpg" referrerpolicy="no-referrer">
+
+<strong>0LULW~B}9G(QNX~F`3P]BD6.jpg</strong> (178.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/164642f002g68qd609gdgg.jpg" referrerpolicy="no-referrer">
+
+<strong>B6H31Y3D`)KWE}B~{DZPJYM.jpg</strong> (203.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 16:46 上传
+
+*****
+
+####  靡宜  
+##### 4664#       发表于 2022-9-17 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522815&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-17 13:19</a>
+
+拼盘live没人气啊，现在还在卖当日票
+
+草，听现地佬跟别人聊天说好多拉拉人因为担心偶活和虾 ...</blockquote>
+开场就挺满了，不过拉拉人好像没有那么多
+
+*****
+
+####  靡宜  
+##### 4665#       发表于 2022-9-17 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57524872&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-17 16:46</a></blockquote>
+今天运镜真的可以，值得回味
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4666#       发表于 2022-9-17 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57525044&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-17 17:04</a>
+
+开场就挺满了，不过拉拉人好像没有那么多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定，基本都去看虹了，在场的拉拉人多半是今天虹5th抽选没抽到的
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4667#       发表于 2022-9-17 17:17
+
+<img src="https://img.saraba1st.com/forum/202209/17/171748qjfbbzn8ceswv6hv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (661.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 17:17 上传
+
+*****
+
+####  cat1230  
+##### 4668#       发表于 2022-9-17 17:52
+
+live叔叔家已经有了，看了下果然还是5人比较看到习惯。
+
+*****
+
+####  ces轴承仨  
+##### 4669#       发表于 2022-9-17 18:37
+
+对可可回感到恐惧。真是开播前想都没想到的情况
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4670#       发表于 2022-9-17 18:44
+
+这次talk好有意思www，piyo买了liella的bd就等着这次求签名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虾泥和偶活也整了个cv梗的活笑死我了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4671#       发表于 2022-9-17 18:45
+
+piyo：后台看day1感觉人生圆满，把小百合吓死。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不停地夸，nako：求求你不要再说了再说我要给你跪下磕头了
+
+*****
+
+####  starring  
+##### 4672#       发表于 2022-9-17 18:52
+
+每个人的状态都很好，不过可能是设备问题，几次出现和声的音量盖过主唱
+
+最后唱OP的运镜很有意思，每个人都怼脸特写，鲤鱼鼻子受伤留下的印都看到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4673#       发表于 2022-9-17 19:13
+
+ 本帖最后由 aoaoaodedede 于 2022-9-17 19:17 编辑 
+
+不懂音乐，听视频感觉不知道是混音出来的效果还是回声又或者是垫音给的很足的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  caicaistar  
+##### 4674#       发表于 2022-9-17 19:16
+
+感觉就鱼的台风变得更好了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4675#       发表于 2022-9-17 19:25
+
+群友repo：
+偶活问两边都是历史悠久的组合了，有没有从前辈那边传承下来什么？
+nako：我们是这个L手示！这是love live的L！
+和久井：我们是🤟，不过与其说是传承，🤟是我们sc自己的手势，我们这边每个团都不一样的
+りえ：我们自己的话，可能是就是圆阵了，今天圆阵失败了！本来应该是“アイカツ！！！”结果喊出来就变成了“啊———”就寻思着今天真的没问题吗
+
+*****
+
+####  仟音一心  
+##### 4676#       发表于 2022-9-17 19:37
+
+<img src="https://img.saraba1st.com/forum/202209/17/193756sden3rgsri1mw2nw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1670713F-A3F2-4798-B126-0B9F9C22FE65.jpeg</strong> (844.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 19:37 上传
+
+*****
+
+####  adw667  
+##### 4677#       发表于 2022-9-17 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">没忍住还是对wish song那套景品下手了，下个目标是肥姑妈的夏服
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4678#       发表于 2022-9-17 19:55
+
+继续repo:
+
+小百合：我们组合很怪
+nako：？？？你在说什么
+小百合：我是说我们组合怪的人很多
+nako：我不是我没有你别瞎说啊[怒]
+小百合：我们组的人会，就突然去摸队友，到处摸，然后模仿队友的舞蹈动作，明明不是她自己的part，就特意在担当这个part的成员面前跳，还会怼脸跳
+然后nako进行了一个迷惑行为大赏的表演
+小百合：那我想问一下您四位组合有没有这种让人觉着“好奇怪啊…”的行为呢
+和久井：….？？？啊这，这没法超越了吧
+りえ：嗯…啊…这…确实是真的很怪啊你们
+小百合：？
+nako：？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| adw667| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  仟音一心  
+##### 4679#       发表于 2022-9-17 21:13
+
+twi：nmgmkn
+
+<img src="https://img.saraba1st.com/forum/202209/17/211317g3o19pq9hgd44wga.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3A46F6F7-08C9-4B7B-AEA3-C05E6542881B.jpeg</strong> (463.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 21:13 上传
+
+前三弹
+
+<img src="https://img.saraba1st.com/forum/202209/17/211328o99w9lokkiq2lvr6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4F0BB559-8FF2-4C7B-807A-8914C2A99CEF.jpeg</strong> (347.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/211333uzy4o6k9g1q666x4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A0896256-C0EC-49BD-9C24-04F1E6317931.jpeg</strong> (401.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/211339frq0r8fjqvklfrz8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4BE660B9-4C01-4BC0-A5C2-768475E543DB.jpeg</strong> (467.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 21:13 上传
+
+*****
+
+####  仟音一心  
+##### 4680#       发表于 2022-9-17 21:14
+
+小百合最后有个偷吻鲤鱼的动作
+
+<img src="https://img.saraba1st.com/forum/202209/17/211413u3hiwts2d2wiozw2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D2DDD524-AFF6-4954-A5FB-D162DA7563E2.jpeg</strong> (231.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-17 21:14 上传
+
+
+
+*****
+
+####  player3960  
+##### 4681#       发表于 2022-9-17 21:58
+
+文化差异，鲤鱼的手势是中国的九，pay和Nako是日本的九<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_20220917_215533_com.gongjudaquan.flashlighttool.jpg
+(221.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-17 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202209/17/215841wh0hlanbzhm2lpsh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 4682#       发表于 2022-9-17 21:59
+
+这场发挥的真是好，除了现场收音貌似有点问题之外堪称今年最佳了
+
+*****
+
+####  lj205  
+##### 4683#       发表于 2022-9-17 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+想起明天又兴奋不起来，距离处刑只剩下半天多点的时间了………………<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4684#       发表于 2022-9-17 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">果然我还是喜欢看她们五个人唱歌
+
+*****
+
+####  lj205  
+##### 4685#       发表于 2022-9-17 22:24
+
+这场演出是不是有垫音啊？
+
+*****
+
+####  player3960  
+##### 4686#       发表于 2022-9-17 22:26
+
+今天返图真多啊，这是干啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  甘蓝巧克力  
+##### 4687#       发表于 2022-9-17 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">断头饭呢各位
+
+*****
+
+####  cybernetics31  
+##### 4688#       发表于 2022-9-17 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57529412&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-17 22:26</a>
+今天返图真多啊，这是干啥啊
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">基本上是最后一次全场5人live了
+
+*****
+
+####  Kfly  
+##### 4689#       发表于 2022-9-17 22:32
+
+真的要成绝唱了吗…………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4690#       发表于 2022-9-17 22:32
+
+原来是最后的疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qty  
+##### 4691#       发表于 2022-9-17 22:38
+
+新四人估计压力也不小，老五人这么多场live下来，对上台表演已经算是驾轻就熟了，新四人哪怕天赋异禀在唱功上能赶上老五人，表演的台风也不是一时半会儿能练出来的，到时候上台难免要被观众看出落差。
+
+*****
+
+####  lj205  
+##### 4692#       发表于 2022-9-17 22:47
+
+这场导播太神了，企划那什么垃圾导播，学学人家
+
+*****
+
+####  愛さ実  
+##### 4693#       发表于 2022-9-17 22:53
+
+好像这次是live现场采音，有环境混响，有时还能听到音响轰鸣声
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 4694#       发表于 2022-9-17 22:54
+
+OP&amp;ED发售活动之后估计一般情况很难有不是9人的live了吧，总不可能经常拆分一二期生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4695#       发表于 2022-9-17 22:59
+
+除非来那种拼盘live，两天的一天一期，一天二期。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4696#       发表于 2022-9-17 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4697#       发表于 2022-9-17 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 可惜以后估计是没机会了
+
+*****
+
+####  starring  
+##### 4698#       发表于 2022-9-17 23:15
+
+返图好多，大家都把合照放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 4699#       发表于 2022-9-17 23:15
+
+鲤鱼鼻子上那块估计还是留下疤了，之前贴了半天胶布感觉没啥效果啊
+
+*****
+
+####  lj205  
+##### 4700#       发表于 2022-9-17 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">遮瑕手段还是很多的…………但毕竟是靠脸吃饭………………………………………………能不能要赔偿啊……
+
+*****
+
+####  甘蓝巧克力  
+##### 4701#       发表于 2022-9-17 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">是不是还贴着胶带被汗水浸湿了才会显得颜色深
+
+*****
+
+####  iuhehc  
+##### 4702#       发表于 2022-9-17 23:33
+
+鼻子的伤好的很慢的
+
+*****
+
+####  cybernetics31  
+##### 4703#       发表于 2022-9-17 23:46
+
+不慌的，日本局部整形发达，这点伤慢慢会好的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">又看了遍录像，下载下载，果然还是得5个人
+
+*****
+
+####  adw667  
+##### 4704#       发表于 2022-9-17 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">最后一首换成未来如风将是绝杀，真·ED
+
+*****
+
+####  奥柏伦亲王  
+##### 4705#       发表于 2022-9-17 23:52
+
+回放看了，这场的机位确实挺有意思的，能关注到很多以前不容易看到的点，比如非虚构里鲤鱼扭胯的姿势真优美<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不确定耳返有没有问题，但音响师肯定是没调好，垫音比现场音慢，一部分人的麦声音很小背景音又很大，五个人瞬间翻倍变十个人了属于是……
+
+*****
+
+####  仟音一心  
+##### 4706#       发表于 2022-9-18 00:07
+
+<img src="https://p.sda1.dev/7/612630bbd07562f76fca0791a13856d6/CMP_20220918000716878.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4707#       发表于 2022-9-18 00:17
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-9-18 10:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">找到完整档了，没事了
+
+*****
+
+####  仟音一心  
+##### 4708#       发表于 2022-9-18 00:51
+
+ 本帖最后由 仟音一心 于 2022-9-18 00:54 编辑 
+
+<img src="https://p.sda1.dev/7/ae1c065f568596d19c78dcc6d3eadef5/CMP_20220918001602901.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4709#       发表于 2022-9-18 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pay在狂奶，这下拭目以待了
+
+*****
+
+####  名津流  
+##### 4710#       发表于 2022-9-18 11:10
+
+有人说CDTV第四首一单曲的时候看不到甩出来的衣服？因为只有没拿liella色色过的人才能看到外套哦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ads147147  
+##### 4711#       发表于 2022-9-18 11:36
+
+不如看看远处的结娜吧，说起来她那么努力的营业我都觉得不好意思了。而且肉体厨过于吃这套<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可堇回我不觉得花田会写出问题问题，怕就怕最后突然大香老师冒出来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 4712#       发表于 2022-9-18 11:37
+
+凶多吉少，我越发预感会一集解决交差的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 4713#       发表于 2022-9-18 11:50
+
+还是那个想法，不是鱼说的没有用。
+
+一集交差应该不会，我觉得要”对应“S1E10可能是上面的任务。
+
+*****
+
+####  starring  
+##### 4714#       发表于 2022-9-18 12:14
+
+结那也去了联动餐厅，没有自己的角色只好拿其他人的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4715#       发表于 2022-9-18 12:21
+
+这么努力的营业，不做三期生说不过去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 4716#       发表于 2022-9-18 13:11
+
+不止是3期，必须是3期c位。另外2位3期生可能都还在准备选拔
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ViyViy  
+##### 4717#       发表于 2022-9-18 13:22
+
+我有个问题啊，为了体现歌舞时的center最好是单数，虹是12是因为本身也不是非常强调团体性歌舞的；
+
+所以星有没有可能，只会再加2个人？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这样可以完美解决企划有想硬绑的couple（说你呢红蓝），在分小组的时候直接指定让剩下的9个去333斗法，毕竟谁想当灯泡坐大牢啊！
+
+*****
+
+####  aoaoaodedede  
+##### 4718#       发表于 2022-9-18 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57537441&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-18 13:11</a>
+
+不止是3期，必须是3期c位。另外2位3期生可能都还在准备选拔
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+为什么3期c不会是Apollo Bay的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 4719#       发表于 2022-9-18 13:56
+
+<blockquote>ViyViy 发表于 2022-9-18 13:22
+我有个问题啊，为了体现歌舞时的center最好是单数，虹是12是因为本身也不是非常强调团体性歌舞的；
+
+所以星 ...</blockquote>
+12星座啊，对应要
+
+*****
+
+####  靡宜  
+##### 4720#       发表于 2022-9-18 13:56
+
+<blockquote>aoaoaodedede 发表于 2022-9-18 13:39
+为什么3期c不会是Apollo Bay的</blockquote>
+雀氏
+
+*****
+
+####  凡人  
+##### 4721#       发表于 2022-9-18 15:24
+
+要么加三个要么加四个
+
+*****
+
+####  尼卡·七浦  
+##### 4722#       发表于 2022-9-18 15:27
+
+那加四个不就完了，十二星座围绕地球，就看地球是谁了
+
+*****
+
+####  lj205  
+##### 4723#       发表于 2022-9-18 17:51
+
+还是不敢看，等大家反馈吧
+
+*****
+
+####  JustW_3  
+##### 4724#       发表于 2022-9-18 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给大家试毒了
+
+*****
+
+####  JustW_3  
+##### 4725#       发表于 2022-9-18 18:01
+
+似曾相识的开头
+
+*****
+
+####  JustW_3  
+##### 4726#       发表于 2022-9-18 18:02
+
+似曾相识的开头
+
+*****
+
+####  JustW_3  
+##### 4727#       发表于 2022-9-18 18:02
+
+草，sp拉了，没过预选<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4728#       发表于 2022-9-18 18:03
+
+我靠，真往最雷的那个方向走了
+
+*****
+
+####  ViyViy  
+##### 4729#       发表于 2022-9-18 18:03
+
+完蛋，难道真给那个小up说中了？
+
+*****
+
+####  稀勢のささ  
+##### 4730#       发表于 2022-9-18 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有snp 这lovelive参不参加都没啥意思了 润了算了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4731#       发表于 2022-9-18 18:04
+
+希望别来什么胜之不武<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4732#       发表于 2022-9-18 18:05
+
+vn薄纱了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4733#       发表于 2022-9-18 18:05
+
+snp都被vn单杀了
+
+*****
+
+####  JustW_3  
+##### 4734#       发表于 2022-9-18 18:05
+
+可预想的最差发展<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 4735#       发表于 2022-9-18 18:05
+
+vn杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4736#       发表于 2022-9-18 18:06
+
+看来并没有什么回国，倒是要上岛
+
+*****
+
+####  JustW_3  
+##### 4737#       发表于 2022-9-18 18:06
+
+可可果然有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷偷看聊天记录
+
+*****
+
+####  ads147147  
+##### 4738#       发表于 2022-9-18 18:07
+
+笑死了，vn这么强，要怎么做才能赚她上山啊
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 4739#       发表于 2022-9-18 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再也没机会看到的snp血条
+
+*****
+
+####  JustW_3  
+##### 4740#       发表于 2022-9-18 18:08
+
+vn是幽灵吧果然
+
+
+
+*****
+
+####  a92063256  
+##### 4741#       发表于 2022-9-18 18:08
+
+看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4742#       发表于 2022-9-18 18:08
+
+小千：一年生还是太菜了
+
+*****
+
+####  iuhehc  
+##### 4743#       发表于 2022-9-18 18:08
+
+vn这跟个鬼一样
+
+*****
+
+####  GGnob  
+##### 4744#       发表于 2022-9-18 18:08
+
+哈人，香音怎么都出幻觉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4745#       发表于 2022-9-18 18:09
+
+我懂了，要可可回国or切割一年生 终极二选一了
+
+*****
+
+####  JustW_3  
+##### 4746#       发表于 2022-9-18 18:09
+
+可可：不准切割
+
+*****
+
+####  JustW_3  
+##### 4747#       发表于 2022-9-18 18:10
+
+我超，可堇
+
+*****
+
+####  稀勢のささ  
+##### 4748#       发表于 2022-9-18 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切割  不许切
+
+*****
+
+####  JustW_3  
+##### 4749#       发表于 2022-9-18 18:11
+
+雨中
+
+可可：这和堇没关系
+堇：怎么会没关系
+可可落泪
+
+*****
+
+####  JustW_3  
+##### 4750#       发表于 2022-9-18 18:11
+
+雨中
+
+可可：这和堇没关系
+堇：怎么会没关系
+可可落泪
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4751#       发表于 2022-9-18 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">香音你不要出来啊！ 还好还好是vn
+
+*****
+
+####  JustW_3  
+##### 4752#       发表于 2022-9-18 18:11
+
+可堇这段还行
+
+vn又开始闪现香音家门口了
+
+*****
+
+####  稀勢のささ  
+##### 4753#       发表于 2022-9-18 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了  让VN控住大香老师之后就有可堇看了
+
+*****
+
+####  ViyViy  
+##### 4754#       发表于 2022-9-18 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541247&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-18 18:12</a>
+
+懂了  让VN控住大香老师之后就有可堇看了</blockquote>
+我超，VN，她还在输出！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4755#       发表于 2022-9-18 18:13
+
+堇要自爆了
+
+“下次只让二年生上”
+
+*****
+
+####  iuhehc  
+##### 4756#       发表于 2022-9-18 18:13
+
+切割
+
+*****
+
+####  JustW_3  
+##### 4757#       发表于 2022-9-18 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">为了可可，故意当恶人役的堇
+
+*****
+
+####  JustW_3  
+##### 4758#       发表于 2022-9-18 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">为了可可，故意当恶人役的堇
+
+*****
+
+####  ads147147  
+##### 4759#       发表于 2022-9-18 18:14
+
+切割，狠狠的切割！
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  馬斯特壺  
+##### 4760#       发表于 2022-9-18 18:14
+
+“花田的求救信号”<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4761#       发表于 2022-9-18 18:14
+
+她真的 我哭死
+
+*****
+
+####  JustW_3  
+##### 4762#       发表于 2022-9-18 18:15
+
+堇说谎自己是为了拿liella当跳板，香音生气爆发，可可打断了香音的破颜掌，堇跑了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4763#       发表于 2022-9-18 18:15
+
+草差点巴掌
+
+*****
+
+####  JustW_3  
+##### 4764#       发表于 2022-9-18 18:15
+
+堇说谎自己是为了拿liella当跳板，香音生气爆发，可可打断了香音的破颜掌，堇跑了
+
+*****
+
+####  ads147147  
+##### 4765#       发表于 2022-9-18 18:16
+
+人心散了，队伍不好带了，水浒变西游。
+
+这故事真的越发往下水道狂奔了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 4766#       发表于 2022-9-18 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541277&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-18 18:13</a>
+
+为了可可，故意当恶人役的堇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4767#       发表于 2022-9-18 18:17
+
+堇，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4768#       发表于 2022-9-18 18:17
+
+花田大师，你说好的不想写那么现实的呢，这也太现实了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4769#       发表于 2022-9-18 18:17
+
+堇，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4770#       发表于 2022-9-18 18:18
+
+一年生跑到神社门口，在堇面前，突然开始抱团唱歌了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iuhehc  
+##### 4771#       发表于 2022-9-18 18:18
+
+玩尬的是吧
+
+*****
+
+####  JustW_3  
+##### 4772#       发表于 2022-9-18 18:18
+
+一年生跑到神社门口，在堇面前，突然开始抱团唱歌了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4773#       发表于 2022-9-18 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要干嘛
+
+*****
+
+####  lj205  
+##### 4774#       发表于 2022-9-18 18:20
+
+噢哟~~~~~~~~~~~~~~~~~~~~~~
+
+*****
+
+####  JustW_3  
+##### 4775#       发表于 2022-9-18 18:20
+
+可可：我觉得无所谓，你为什么要想多余的事情
+
+堇：我不愿意，我想和你一起唱一起上高三<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">你这个笨蛋
+
+二期生树后偷看
+
+堇拿出定情信物，说出真相
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4776#       发表于 2022-9-18 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出还行
+
+*****
+
+####  稀勢のささ  
+##### 4777#       发表于 2022-9-18 18:21
+
+谢谢你  cst
+
+*****
+
+####  JustW_3  
+##### 4778#       发表于 2022-9-18 18:21
+
+我曹，我以为亲上去了
+
+*****
+
+####  JustW_3  
+##### 4779#       发表于 2022-9-18 18:21
+
+我曹，我以为亲上去了
+
+*****
+
+####  JustW_3  
+##### 4780#       发表于 2022-9-18 18:21
+
+我曹，我以为亲上去了
+
+*****
+
+####  JustW_3  
+##### 4781#       发表于 2022-9-18 18:21
+
+我曹，我以为亲上去了
+
+*****
+
+####  ads147147  
+##### 4782#       发表于 2022-9-18 18:22
+
+就我来说，看的哭笑不得。单领出来可以，但是逻辑怎么都对不上。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4783#       发表于 2022-9-18 18:22
+
+一话强行结束了
+
+*****
+
+####  JustW_3  
+##### 4784#       发表于 2022-9-18 18:22
+
+可堇互诉衷肠，二人幸终
+
+*****
+
+####  iuhehc  
+##### 4785#       发表于 2022-9-18 18:22
+
+ 本帖最后由 iuhehc 于 2022-9-18 18:24 编辑 
+
+我的可堇<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">  行了我满足了不敢要太多了
+
+*****
+
+####  胧楼  
+##### 4786#       发表于 2022-9-18 18:22
+
+不亲一口太可惜了
+
+*****
+
+####  稀勢のささ  
+##### 4787#       发表于 2022-9-18 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">垫就垫了  这集真可以了 虽然就这一集
+
+*****
+
+####  JustW_3  
+##### 4788#       发表于 2022-9-18 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可堇ed
+
+*****
+
+####  lj205  
+##### 4789#       发表于 2022-9-18 18:23
+
+给个SOLO ED很难吗？！！！！！！！！！！！草泥马！！！！！！！！！！！！！！！！！！！！！
+
+*****
+
+####  lj205  
+##### 4790#       发表于 2022-9-18 18:23
+
+给个SOLO ED很难吗？！！！！！！！！！！！草泥马！！！！！！！！！！！！！！！！！！！！！
+
+*****
+
+####  cxj649  
+##### 4791#       发表于 2022-9-18 18:23
+
+所以每次可可主场观感变好是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tjshibc21  
+##### 4792#       发表于 2022-9-18 18:24
+
+虽然我不吃可瑾 但是可以说是二期比较舒服的级数了 自己的问题还是自己解决 大香老师别瞎掺和就行
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4793#       发表于 2022-9-18 18:24
+
+这样看起来动画里应该是没有可c的歌了
+
+*****
+
+####  iuhehc  
+##### 4794#       发表于 2022-9-18 18:24
+
+下回又是香音回<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4795#       发表于 2022-9-18 18:24
+
+大香老师个人回草<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 4796#       发表于 2022-9-18 18:24
+
+个人回就这样了？
+
+*****
+
+####  JustW_3  
+##### 4797#       发表于 2022-9-18 18:25
+
+本集评价：可堇之外不评价。可堇这段单拎出来虽然套路，但是还行吧，双向奔赴的浓度蛮高的。但花田之前写可可单方面怼堇，还真是为了先抑后扬这一集啊艹，用力过猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一季就嗯先抑后扬，没学到教训。
+
+*****
+
+####  JustW_3  
+##### 4798#       发表于 2022-9-18 18:25
+
+本集评价：可堇之外不评价。可堇这段单拎出来虽然套路，但是还行吧，双向奔赴的浓度蛮高的。但花田之前写可可单方面怼堇，还真是为了先抑后扬这一集啊艹，用力过猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一季就嗯先抑后扬，没学到教训。
+
+*****
+
+####  ViyViy  
+##### 4799#       发表于 2022-9-18 18:25
+
+娘的，这根本不是啥个人回啊，CP回吧草。
+
+*****
+
+####  cybernetics31  
+##### 4800#       发表于 2022-9-18 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ffz  
+##### 4801#       发表于 2022-9-18 18:25
+
+大香老师这也太ky了，怎么这种时候还想冲上去，好在小千拽住了
+
+*****
+
+####  JustW_3  
+##### 4802#       发表于 2022-9-18 18:25
+
+这集还是偏堇和给vn铺垫，可可回还是得等
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4803#       发表于 2022-9-18 18:25
+
+一集还是太短了，后面就是“快给我哭出来！”然后光速收尾不留到下一话
+
+*****
+
+####  ads147147  
+##### 4804#       发表于 2022-9-18 18:26
+
+没有追飞机，巴掌也没打，算之前的伏笔就这样收了，要我说这个第一季就应该写了，硬生生拖到第二季，突出个莫名其妙。
+
+只能说花田尽力圆了，但是vn那个，我不好说。
+
+远离大赛，远离大香老师，对我们都好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 4805#       发表于 2022-9-18 18:26
+
+没有追飞机，巴掌也没打，算之前的伏笔就这样收了，要我说这个第一季就应该写了，硬生生拖到第二季，突出个莫名其妙。
+
+只能说花田尽力圆了，但是vn那个，我不好说。
+
+远离大赛，远离大香老师，对我们都好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 4806#       发表于 2022-9-18 18:26
+
+还个人回呢？这算个人回？C曲做梦吧
+
+*****
+
+####  Enakina  
+##### 4807#       发表于 2022-9-18 18:27
+
+本质堇回罢了……
+
+*****
+
+####  JustW_3  
+##### 4808#       发表于 2022-9-18 18:27
+
+不过最后跪地捧脸那段，画的让我不太满意，可可仿佛在说“就是这幅表情，我想的就是你这幅xxxx的表情”.jpg
+
+*****
+
+####  老1.5  
+##### 4809#       发表于 2022-9-18 18:27
+
+还好大香老师被千妈拦住了，害得是妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4810#       发表于 2022-9-18 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急  真上飞机还得在后面呢  到时候还得看大香老师的
+
+*****
+
+####  iuhehc  
+##### 4811#       发表于 2022-9-18 18:28
+
+ 本帖最后由 iuhehc 于 2022-9-18 18:29 编辑 
+
+我也觉得还有个可回，要留给大香老师的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4812#       发表于 2022-9-18 18:28
+
+没看生肉，可可这问题是怎么写出来然后解决的？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4813#       发表于 2022-9-18 18:28
+
+感觉之后的发展就是，爆打vn→可不用回国了皆大欢喜，vn也作为小弟收入囊中，香音大胜利，音门🙏
+
+*****
+
+####  JustW_3  
+##### 4814#       发表于 2022-9-18 18:28
+
+香音那手都抬起来了，就差打上去了，还好没打，否则直接爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花田太喜欢破颜掌了
+
+*****
+
+####  starring  
+##### 4815#       发表于 2022-9-18 18:28
+
+正义的切割没成功啊，这下子要是真有追飞机就可以名正言顺地全员追，香哥哥负责收人头<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4816#       发表于 2022-9-18 18:29
+
+如果能忽略之前一堆破事，这一幕还有那么点感人
+<img src="https://p.sda1.dev/7/43c6e009045e1b77b9ecd289668dc1cd/2uzq1t39rnh707glbshjudv5x.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4817#       发表于 2022-9-18 18:30
+
+ 本帖最后由 稀勢のささ 于 2022-9-18 18:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不佩服花田大老师 这样都能圆回去方便之后让大香老师收人头
+
+*****
+
+####  lj205  
+##### 4818#       发表于 2022-9-18 18:30
+
+是不是全系列唯一一个没个人回和C曲的角色？年代久远我记忆不好
+
+*****
+
+####  CharlieZ-  
+##### 4819#       发表于 2022-9-18 18:30
+
+ 本帖最后由 CharlieZ- 于 2022-9-18 18:35 编辑 
+
+虽然这集还算可以，但鉴于这集之前可可对堇的态度，还是对这角色喜欢不起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">香音也是可以，拿不到冠军对自己人重拳出击是吧，你有本事去揍vn 
+
+*****
+
+####  saya1892  
+##### 4820#       发表于 2022-9-18 18:31
+
+其实是3年前在上海，可可救了一只被蜘蛛网缠住的蝴蝶，3年后，为了报答可可的恩情，VN化身成人用蜘蛛网缠住教祖保持了可堇回，这就是，结草衔环的故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 4821#       发表于 2022-9-18 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541512&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-18 18:29</a>
+如果能忽略之前一堆破事，这一幕还有那么点感人</blockquote>
+是的，团长的男人死女人唱歌也是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 4822#       发表于 2022-9-18 18:32
+
+ 本帖最后由 ads147147 于 2022-9-18 18:33 编辑 
+
+风怒，今天是服务器问题吗？
+
+*****
+
+####  JustW_3  
+##### 4823#       发表于 2022-9-18 18:34
+
+ 本帖最后由 JustW_3 于 2022-9-18 18:36 编辑 
+
+就是用力过猛，你先抑后扬，抑得太猛，扬的水平也就马马虎虎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结合起来，就是想夸也难张嘴。算了，这周不说了，救了一部分可堇同人的血压也算积德了，看下周吧。下集预告忘看了。
+
+*****
+
+####  lj205  
+##### 4824#       发表于 2022-9-18 18:35
+
+难怪之前一直是佩在推这集，鲤鱼连提都不提
+
+*****
+
+####  zfy666  
+##### 4825#       发表于 2022-9-18 18:35
+
+起码挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zfy666  
+##### 4826#       发表于 2022-9-18 18:35
+
+起码挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 4827#       发表于 2022-9-18 18:36
+
+三分钟的工业糖精也能吹<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4828#       发表于 2022-9-18 18:37
+
+后面9人暴打vn可不回国 就是[5个人打不过snp 9个人能打赢 人数优势是吧] [9个人打赢了snp都赢不了的vn] 变相绕圈子
+
+*****
+
+####  仟音一心  
+##### 4829#       发表于 2022-9-18 18:37
+
+可堇回个锤子，这一话就是堇回！可就负责帮堇煽情。<img src="https://p.sda1.dev/7/ce14f44576283f319e140e0c7222fdfc/-10d78bb7db56eb91.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4830#       发表于 2022-9-18 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541582&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-18 18:35</a>
+
+难怪之前一直是佩在推这集，鲤鱼连提都不提</blockquote>
+我算是理解当初Febri访谈里含含糊糊的提示了，这不就啥也没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4831#       发表于 2022-9-18 18:38
+
+但凡是个可可推，都不会说这是可回，不服算你对
+
+*****
+
+####  Enakina  
+##### 4832#       发表于 2022-9-18 18:38
+
+暴言其实我也觉得一集下来可可就单纯抬堇的工具人
+这是可以说的吗
+
+*****
+
+####  JustW_3  
+##### 4833#       发表于 2022-9-18 18:39
+
+snp实惨，这季非给人家按了一个想连冠的梦想，上集还渲染情绪，原来都是为了给vn垫这么一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚开播还有弹幕说vn初中生不能参赛，转头就被打脸
+
+*****
+
+####  稀勢のささ  
+##### 4834#       发表于 2022-9-18 18:40
+
+ 本帖最后由 稀勢のささ 于 2022-9-18 18:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早都说了可会被拿来垫人啊  还是你们自己说的
+
+*****
+
+####  ViyViy  
+##### 4835#       发表于 2022-9-18 18:40
+
+snp也是够惨的，该不会是一巡的水平企划看不上就直接毙了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4836#       发表于 2022-9-18 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541626&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-18 18:38</a>
+暴言其实我也觉得一集下来可可就单纯抬堇的工具人
+这是可以说的吗 ...</blockquote>
+从二期一期某一段开始不就是这样了吗，还缺这一集么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4837#       发表于 2022-9-18 18:42
+
+一年生抱团唱歌也有丶意味不明<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4838#       发表于 2022-9-18 18:42
+
+:-D，空我回垫了香音，可堇回垫了堇，是不是第三季还要再去垫下vn，大家放弃吧，霓虹金可能就是这个尿性。
+
+（菜宝和鲤鱼是人气零和博弈是吧）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 4839#       发表于 2022-9-18 18:42
+
+这集连大香老师都屈尊给堇做白脸了，可可还想不垫？
+
+*****
+
+####  starring  
+##### 4840#       发表于 2022-9-18 18:43
+
+不这集虽然放在二期算不错，但这三板斧剧情真的能吹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除了修补一下可堇的关系，高光都在堇那边，可回又被完美回避，真就连体婴捆一起。
+
+*****
+
+####  kata魂  
+##### 4841#       发表于 2022-9-18 18:43
+
+还好我tm没抱期待什么c位
+
+*****
+
+####  CharlieZ-  
+##### 4842#       发表于 2022-9-18 18:44
+
+妈的越想越不对劲，明明要回去的是可可，为什么是堇哭那么惨，可可反应也太小了吧，感觉堇真不值得
+
+虽然程度比昨天的泷奈可能好那么一点，但也是半斤八两<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 4843#       发表于 2022-9-18 18:44
+
+香音虽然没有掌握信息，但是急什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ceo当初把你们卖了，你第一反应还是这里面一定有隐情呢。多少有点对外人唯唯诺诺，对同伴重拳出击
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4844#       发表于 2022-9-18 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来现在还有香音角色厨吗，这话香音唱白脸属实有点难崩
+
+*****
+
+####  JustW_3  
+##### 4845#       发表于 2022-9-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541680&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-18 18:43</a>
+不这集虽然放在二期算不错，但这三板斧剧情真的能吹吗
+除了修补一下可堇的关系，高光都在堇那边，可 ...</blockquote>
+当然只能在二期内部比，现在还能和谁比，早已经没有对手啦（
+
+*****
+
+####  lj205  
+##### 4846#       发表于 2022-9-18 18:45
+
+本来从一期开始我还是个坚定的可堇推，到这集前我依然觉得可以救，这集一出再见了你
+
+*****
+
+####  Kfly  
+##### 4847#       发表于 2022-9-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541632&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-18 18:39</a>
+
+snp实惨，这季非给人家按了一个想连冠的梦想，上集还渲染情绪，原来都是为了给vn垫这么一下 ...</blockquote>
+她们甚至连个完整的live都没有，已经是最惨对手团了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4848#       发表于 2022-9-18 18:46
+
+真就游戏平衡，太强了砍一刀，然后大家数值上去了我又太弱了回调，一来二去躺着拿钱
+
+*****
+
+####  稀勢のささ  
+##### 4849#       发表于 2022-9-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541680&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-18 18:43</a>
+
+不这集虽然放在二期算不错，但这三板斧剧情真的能吹吗
+
+除了修补一下可堇的关系，高光都在堇那边，可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了自己那还能跟谁比啊 已经快天下无敌了
+
+*****
+
+####  JustW_3  
+##### 4850#       发表于 2022-9-18 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541689&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-9-18 18:44</a>
+妈的越想越不对劲，明明要回去的是可可，为什么是堇哭那么惨，可可反应也太小了吧，感觉堇真不值得
+
+虽然程 ...</blockquote>
+昨晚刚看完蒜，今天看星团，相比一下可可确实强不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是制作组塑造可可的思路就是究极嘴硬，都跪了还要补一句すみれ你老是想多余的事情，要是没有最后的大好き，今晚又有很多人睡不着了
+
+*****
+
+####  iuhehc  
+##### 4851#       发表于 2022-9-18 18:47
+
+ 本帖最后由 iuhehc 于 2022-9-18 19:10 编辑 
+
+上周预告也没觉得这是可回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 当作一期10集同样位置看的
+
+*****
+
+####  Kfly  
+##### 4852#       发表于 2022-9-18 18:49
+
+这集顶破天可堇回，笔墨并没有花太多在可可身上，堇才是主导这一集走向的那个
+
+行吧，至少后面可堇被再搞的像前面那么僵好吧，最低的要求了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+ 我的可C和可回什么时候来啊啊啊啊啊啊啊啊啊 
+
+*****
+
+####  lj205  
+##### 4853#       发表于 2022-9-18 18:50
+
+噢。还说呢，他妈的最后可可抱堇那里不就是复刻一季三话可可抱香音吗？合着我们囡囡就是个脚垫设定呗
+
+*****
+
+####  starring  
+##### 4854#       发表于 2022-9-18 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541722&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-18 18:46</a>
+除了自己那还能跟谁比啊 已经快天下无敌了</blockquote>
+真就战胜懦弱的自己就天下无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除了可最不值的就是snp，动画无live还被vn爆杀，怕不是以后的真人live都不会登场
+
+*****
+
+####  aoaoaodedede  
+##### 4855#       发表于 2022-9-18 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541777&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-18 18:50</a>
+
+噢。还说呢，他妈的最后可可抱堇那里不就是复刻一季三话可可抱香音吗？合着我们囡囡就是个脚垫设定呗 ...</blockquote>
+不是一直都是吗，本质工具人，工具人的伏笔当然是用来捧其他人的啦
+
+*****
+
+####  Enakina  
+##### 4856#       发表于 2022-9-18 18:53
+
+还特别离谱的一点，最后所有人都知道了内情后，居然一个有反应的都没有，香音还笑
+最后，哦！大家加油吧……
+哦你个头啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4857#       发表于 2022-9-18 18:53
+
+有个很坏的情况，后面三期有可回估计也是和恋一个路数，强行加个属性然后解决，原地踏步，然后可香可堇两头吃米，我真的，今晚TM又要睡不着了草
+
+*****
+
+####  lj205  
+##### 4858#       发表于 2022-9-18 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541841&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-18 18:53</a>
+
+有个很坏的情况，后面三期有可回估计也是和恋一个路数，强行加个属性然后解决，原地踏步，然后可香可堇两头 ...</blockquote>
+别想了，以后不会有的了，最关键的这集都给人当垫脚石了，还有可回？做梦呢
+
+*****
+
+####  Kfly  
+##### 4859#       发表于 2022-9-18 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541834&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-18 18:53</a>
+
+还特别离谱的一点，最后所有人都知道了内情后，居然一个有反应的都没有，香音还笑
+
+最后，哦！大家加油吧… ...</blockquote>
+真不能细想，这集随随便便地把埋了十几集的东西一笔带过了…………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 4860#       发表于 2022-9-18 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541675&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-18 18:42</a>
+
+:-D，空我回垫了香音，可堇回垫了堇，是不是第三季还要再去垫下vn，大家放弃吧，霓虹金可能就是这个尿性。
+
+ ...</blockquote>
+拉tm倒吧
+
+就算AS最地狱的那段时间也没几个人迁怒菜宝的
+
+正常人也不会觉得这和鲤鱼有什么关系
+
+把剧情问题拿来莫名其妙车鲤鱼的从一开始就一群人
+
+
+
+*****
+
+####  we89623  
+##### 4861#       发表于 2022-9-18 18:58
+
+ 本帖最后由 we89623 于 2022-9-18 19:37 编辑 
+
+第二季的熟肉我一集没看 本想等可可回在补的 看样不需要了
+
+*****
+
+####  we89623  
+##### 4862#       发表于 2022-9-18 18:58
+
+风怒
+
+*****
+
+####  Piano-Forest  
+##### 4863#       发表于 2022-9-18 18:59
+
+[https://twitter.com/kamatamanankotu/status/1571447690864611328](https://twitter.com/kamatamanankotu/status/1571447690864611328)
+<img src="https://p.sda1.dev/7/b0599a4b342a5c38c57b4d5d8703276b/20220918_185409.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4864#       发表于 2022-9-18 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 4865#       发表于 2022-9-18 19:00
+
+可可的刻画确实有问题，说好听点叫圣人化，说难听点就是工具人
+
+*****
+
+####  稀勢のささ  
+##### 4866#       发表于 2022-9-18 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想应该是昨天的蒜救了我  现在随便发点糖我都能吃
+
+*****
+
+####  CharlieZ-  
+##### 4867#       发表于 2022-9-18 19:00
+
+反正到目前香音和可可是我最讨厌的两个角色，香音这集想揍队友已经彻底无药可救了，可可虽然这集拉回来一点，但还是救不了前面的各种逆天发言和互动
+
+*****
+
+####  lj205  
+##### 4868#       发表于 2022-9-18 19:01
+
+我现在宁愿这集拿个系列最低分，都想让他们能给可可个真正的个人回，为什么就这么难？那也就算了，甚至连个人solo ed都不给
+
+*****
+
+####  aoaoaodedede  
+##### 4869#       发表于 2022-9-18 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541934&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-18 19:00</a>
+可可的刻画确实有问题，说好听点叫圣人化，说难听点就是工具人</blockquote>
+圣人个锤子哦，见过写的这么烂，塑造的莫名其妙的“圣人”吗，还不如说香教祖的亚萨西更圣人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4870#       发表于 2022-9-18 19:06
+
+编辑
+
+*****
+
+####  D麦林  
+##### 4871#       发表于 2022-9-18 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541934&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-18 19:00</a>
+
+可可的刻画确实有问题，说好听点叫圣人化，说难听点就是工具人</blockquote>
+还圣人化呢 不是反派化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集剧情框架简直就是主角自愿担骂名救赎苦大仇深型反派的套路
+
+*****
+
+####  we89623  
+##### 4872#       发表于 2022-9-18 19:07
+
+看样给中国人个人回和SOLO对日本人来说是不允许的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4873#       发表于 2022-9-18 19:08
+
+ 本帖最后由 lj205 于 2022-9-18 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542009&amp;ptid=2078110" target="_blank">we89623 发表于 2022-9-18 19:07</a>
+
+看样给中国人个人回和SOLO对日本人来说是不允许的</blockquote>
+你别忘了狼蛛
+
+不过确实，纯种中国人就鲤鱼
+
+*****
+
+####  aoaoaodedede  
+##### 4874#       发表于 2022-9-18 19:09
+
+最近是坛的问题还是这个帖的问题，总会看到重复发帖的问题
+
+*****
+
+####  qty  
+##### 4875#       发表于 2022-9-18 19:12
+
+<blockquote>D麦林 发表于 2022-9-18 19:07
+还圣人化呢 不是反派化吗
+
+这集剧情框架简直就是主角自愿担骂名救赎苦大仇深型反派的套路 ...</blockquote>
+是说最后和堇对手戏的情感描写部分，给人感觉实在是有点过于平淡，过于波澜不惊了，不像是正常人类在这种情境下该有的情感表现。
+
+*****
+
+####  gane1010  
+##### 4876#       发表于 2022-9-18 19:13
+
+辣鸡
+
+*****
+
+####  gane1010  
+##### 4877#       发表于 2022-9-18 19:13
+
+辣鸡
+
+*****
+
+####  ViyViy  
+##### 4878#       发表于 2022-9-18 19:13
+
+二单选举呢？是时候让拉民看看什么叫真正的中华炮了，真是笑死，系列顺位二就这待遇，甚至这集不搞前面那些弱智操作都没问题它还是硬搞，真G8恶心，想骂都不知道怎么组织语言了。
+
+*****
+
+####  we89623  
+##### 4879#       发表于 2022-9-18 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542084&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-18 19:13</a>
+
+二单选举呢？是时候让拉民看看什么叫真正的中华炮了，真是笑死，系列顺位二就这待遇，甚至这集不搞前面那些 ...</blockquote>
+有用吗，真不让中国人当C，黑箱操作一下完事，中华炮没啥用。
+
+*****
+
+####  lj205  
+##### 4880#       发表于 2022-9-18 19:18
+
+我现在只想骂他妈的小日本
+
+*****
+
+####  iuhehc  
+##### 4881#       发表于 2022-9-18 19:19
+
+所以接下来的就是看输不输vn 输了可能可回还有戏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 4882#       发表于 2022-9-18 19:20
+
+建议过了VN然后12话又被神秘组合薄纱，可可直接不辞而别，三期堂堂开演。
+
+*****
+
+####  player3960  
+##### 4883#       发表于 2022-9-18 19:24
+
+果然什么都没有.JPG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 4884#       发表于 2022-9-18 19:26
+
+气的我饭都没心情吃
+
+*****
+
+####  甘蓝巧克力  
+##### 4885#       发表于 2022-9-18 19:30
+
+我吃了饭还差点吐出来，后劲过大
+
+*****
+
+####  ces轴承仨  
+##### 4886#       发表于 2022-9-18 19:30
+
+。没有期待没有失望。等个熟看一下。
+
+*****
+
+####  we89623  
+##### 4887#       发表于 2022-9-18 19:31
+
+天天扮黑脸被人喷不说。
+
+两季连个人SOLO的ED都没有。
+
+更别说动画LIVE的C位了。
+
+高光集数都是给其他角色垫脚。
+
+综上所述建议唐可可女士回国算了。
+
+*****
+
+####  Kfly  
+##### 4888#       发表于 2022-9-18 19:35
+
+不至于吧，这集还算可以了 只是相对的 
+
+心里确实为可可和snp感到不值就是了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4889#       发表于 2022-9-18 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是想点好的，起码现在再有某些毒唯腐唯指点可可或者说什么独美，可以直接对线了，得寸进尺了属于是，可可牌抹布，脏东西我擦，洗干净了对折个几十次给人垫高高，太好用了，孩子很喜欢，五星好评，会回购。
+
+*****
+
+####  cybernetics31  
+##### 4890#       发表于 2022-9-18 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4891#       发表于 2022-9-18 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542310&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-18 19:35</a>
+
+不至于吧，这集还算可以了 只是相对的 
+
+心里确实为可可和snp感到不值就是了 ...</blockquote>
+为了今天这集等了差不多一年，你真觉得可以吗？
+
+*****
+
+####  aoaoaodedede  
+##### 4892#       发表于 2022-9-18 19:39
+
+在气头上的发言，有点偏激
+
+虽然我很不想这样去说，但是纵观这两部动画，从我这个观众的角度出发，就好像前三集给可可一点好的，然后后面怎么写都可以了。
+
+香音魔怔单推人，可堇相处时盛气凌人似的唱白脸，可香不复存在，拆东墙补西墙似的CP塑造，团队创始人之一也没人在乎甚至遗忘。
+
+说不定他们做企划的，做动画的觉得给你这么个角色一点点甜的地方就足够了，推的人一定能忍受这种剧情任他们宰割。
+
+至于整个星团企划里到底也没有别有用心的日本人，呵呵，从这个企划两次修改生日，再到可可如此微妙的人物塑造和剧情，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  L-JoeW  
+##### 4893#       发表于 2022-9-18 19:42
+
+什么情况，海岛二人组跪了吗，这进度是不是没第三季了
+
+*****
+
+####  一个陆仁贾  
+##### 4894#       发表于 2022-9-18 19:43
+
+原来雪雪才是LL里对手团待遇最好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 4895#       发表于 2022-9-18 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来可以想象到场外的乐子会更精彩，可推堇推互掐，可堇推炫耀然后跟其它CP推互掐，再夹杂一些不明生物倒垃圾
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可鲤是把好枪，哪里需要就哪里打一枪
+
+*****
+
+####  Kfly  
+##### 4896#       发表于 2022-9-18 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542356&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-18 19:39</a>
+
+为了今天这集等了差不多一年，你真觉得可以吗？</blockquote>
+我只是觉得这集不是没有可取之处
+
+等了这么久，我肯定也生气，但星二走到现在这一步，有些东西我都不敢去奢求它了，可堇后面别再写得那么僵算是我最低限度的要求吧
+
+真的是，有些麻木了，但我还能奢求星二给些我什么呢？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 4897#       发表于 2022-9-18 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542412&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-18 19:43</a>
+
+接下来可以想象到场外的乐子会更精彩，可推堇推互掐，可堇推炫耀然后跟其它CP推互掐，再夹杂一些不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">堇推要真有脑子就该闭麦，这个2番位给你好了，我是个寄吧2番？
+
+*****
+
+####  lj205  
+##### 4898#       发表于 2022-9-18 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542449&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-18 19:47</a>
+
+我只是觉得这集不是没有可取之处
+
+等了这么久，我肯定也生气，但星二走到现在这一步，有些东西我都不敢去 ...</blockquote>
+我宁愿今天这集拿突破记录的低平，但是好歹有个真正属于自己的回合，现在甚至是连solo ed都没有，再结合前面中之人拼命推的态度差别我更加呵呵
+
+*****
+
+####  D麦林  
+##### 4899#       发表于 2022-9-18 19:52
+
+不管是谁都不可能闭麦的
+
+CP双方粉丝不共戴天这种戏 见得多的应该已经品鉴过无数回了
+
+可堇现在的状况是企划方和动画制作阵等多方面开摆联合造成的结果
+
+已经没人能阻止了
+<img src="https://static.saraba1st.com/image/smiley/carton2017/027.png" referrerpolicy="no-referrer">
+
+这就是结果！
+
+是明知结局还要不断走向的路！
+
+*****
+
+####  凡人  
+##### 4900#       发表于 2022-9-18 20:01
+
+VN这设定可以叠出个LL历史第一天赋了，保底一冠好吧，有点好奇要匹配上VN的强度其他三期生得是什么卧龙凤雏了。这届裂啦要是没夺冠二期生太尴尬了，这届输了你们害得，下届赢了VN带的。
+
+*****
+
+####  iuhehc  
+##### 4901#       发表于 2022-9-18 20:04
+
+这算什么可可回啊问题是，只是摊牌要回家这事，并没有说最后要不要回
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Acatv  
+##### 4902#       发表于 2022-9-18 20:07
+
+本来没看第二季了，刷到可堇片段，只想问花田这是何意啊何意啊何意啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4903#       发表于 2022-9-18 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期生尴尬就尴尬吧 反正尴尬的又不是大香老师  输了大香老师还能再拉一次人
+
+*****
+
+####  iuhehc  
+##### 4904#       发表于 2022-9-18 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542505&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-18 19:52</a>
+不管是谁都不可能闭麦的
+
+CP双方粉丝不共戴天这种戏 见得多的应该已经品鉴过无数回了
+
+可堇现在的状况是企划 ...</blockquote>
+等高层运营玩火把自己玩死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 4905#       发表于 2022-9-18 20:10
+
+所以结那营业多是因为她真的是三期生，还是她也觉得薇恩秒杀前辈过意不去
+
+*****
+
+####  aoaoaodedede  
+##### 4906#       发表于 2022-9-18 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542742&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-18 20:10</a>
+
+所以结那营业多是因为她真的是三期生，还是她也觉得薇恩秒杀前辈过意不去 ...</blockquote>
+其实结那这平常也没看到有啥其他的个活
+
+*****
+
+####  player3960  
+##### 4907#       发表于 2022-9-18 20:13
+
+估计就是到时候提一嘴赢了然后可可不用回国了，这么一笔带过呗，就和恋爸给钱一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 4908#       发表于 2022-9-18 20:16
+
+<blockquote>aoaoaodedede 发表于 2022-9-18 20:12
+其实结那这平常也没看到有啥其他的个活</blockquote>
+是呀，我是一直觉得她很闲的，她不止营业，平时玩的更多，之前想做个搬运她抖音和图的号，发现她几乎天天发太多了就退却了。但大伙都觉得她像三期的。
+
+*****
+
+####  aoaoaodedede  
+##### 4909#       发表于 2022-9-18 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542810&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-18 20:16</a>
+
+是呀，我是一直觉得她很闲的，她不止营业，平时玩的更多，之前想做个搬运她抖音和图的号，发现她几乎天天 ...</blockquote>
+所以我觉得可能是她好不容易有一个比较大企划的角色，多营业也能涨自己的人气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4910#       发表于 2022-9-18 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542810&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-18 20:16</a>
+
+是呀，我是一直觉得她很闲的，她不止营业，平时玩的更多，之前想做个搬运她抖音和图的号，发现她几乎天天 ...</blockquote>
+这混熟脸的营业力度，如果不是三期生就有点可怜，不然就是真爱自己首次参演的作品
+
+*****
+
+####  lj205  
+##### 4911#       发表于 2022-9-18 20:22
+
+可能是真没啥活
+
+*****
+
+####  cybernetics31  
+##### 4912#       发表于 2022-9-18 20:22
+
+拉进来也不奇怪，年轻好看，做3期也行，反正已经加人了(
+
+*****
+
+####  lj205  
+##### 4913#       发表于 2022-9-18 20:24
+
+既不是阿波罗的人也不是SMA的人，想多了
+
+*****
+
+####  kata魂  
+##### 4914#       发表于 2022-9-18 20:25
+
+我明白了，马上就要搞个大活
+
+最后两集liella没有赢，但vn也没赢
+
+胜者是新二人组
+
+一下子三期铺垫完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4915#       发表于 2022-9-18 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那又何必做个live呢   难道是不想给6人单独做吗
+
+*****
+
+####  cybernetics31  
+##### 4916#       发表于 2022-9-18 20:27
+
+二期都有贤pro和im 的………………不是ab 和sma不很正常，口子都开了，企划又不是ab 家开的
+
+*****
+
+####  iuhehc  
+##### 4917#       发表于 2022-9-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542775&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-18 20:13</a>
+估计就是到时候提一嘴赢了然后可可不用回国了，这么一笔带过呗，就和恋爸给钱一样
+
+  -- 来自 能搜 ...</blockquote>
+所以说这一集只是应付cp人，可爸可妈可姐一个没登场没戏份连条短信连通电话都没有，这算解决什么可可问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 4918#       发表于 2022-9-18 20:30
+
+<blockquote>starring 发表于 2022-9-18 20:20
+这混熟脸的营业力度，如果不是三期生就有点可怜，不然就是真爱自己首次参演的作品 ...</blockquote>
+想不透官方的操作，二期生藏得那么严实。（假设薇恩是）三期生就这样动画出来了，还各种暴打前辈团，还要加入，想不通。而且凭啥你薇恩的待遇又要比没出的三期生好。
+
+*****
+
+####  lj205  
+##### 4919#       发表于 2022-9-18 20:32
+
+这次9人演出捂真紧，以前没事就放练舞视频，这次真是憋到最后一刻
+
+*****
+
+####  稀勢のささ  
+##### 4920#       发表于 2022-9-18 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢了再也没有个人回 输了垫给大香老师追飞机 究极二选一
+
+
+
+*****
+
+####  Vacuolar  
+##### 4921#       发表于 2022-9-18 20:59
+
+除了本该伤心和急的是可可，这集确实没啥雷的。但前面的问题都还在呢，二期到现在也看不出有啥融入和作用可言，这个团队到现在也没为大赛努力，可可为啥那么多怪话，大香老师形象继续往观众反感一路狂奔。只能说，嗯，这周总算过去了，没引爆火药桶。
+
+*****
+
+####  aoaoaodedede  
+##### 4922#       发表于 2022-9-18 21:03
+
+ 本帖最后由 aoaoaodedede 于 2022-9-18 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543371&amp;ptid=2078110" target="_blank">Vacuolar 发表于 2022-9-18 20:59</a>
+
+除了本该伤心和急的是可可，这集确实没啥雷的。但前面的问题都还在呢，二期到现在也看不出有啥融入和作用可 ...</blockquote>
+还是犯了个第6集相同的问题，那就是“前面的问题不是问题”，他们做动画的或许根本没觉得那个剧情有什么问题，人物塑造有什么问题，导致了和观众的巨大割裂，然后有些他们觉得顺理成章的剧情推动在我们观众看来就变得微妙了起来
+
+*****
+
+####  lj205  
+##### 4923#       发表于 2022-9-18 21:07
+
+输了最好，赶紧输啊
+
+*****
+
+####  ads147147  
+##### 4924#       发表于 2022-9-18 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541897&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-18 18:57</a>
+拉tm倒吧
+
+就算AS最地狱的那段时间也没几个人迁怒菜宝的
+
+正常人也不会觉得这和鲤鱼有什么关系</blockquote>
+现在莫名其妙的人确实多了不少，是动画这个烂缝的蛋让小丑更跳了。
+
+不过讲真可可就不应该变成这样的角色，香音也是，tm的为什么。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 4925#       发表于 2022-9-18 21:15
+
+ 本帖最后由 player3960 于 2022-9-18 21:17 编辑 
+
+队伍里唯一的可香人红毛，来点作用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 4926#       发表于 2022-9-18 21:15
+
+<blockquote>——可可酱背负着的巨大秘密，很好奇在第二季中会如何描写呢
+
+Liyuu   对于可可酱来说，也许会非常艰难......？或许会有让人十分感动的事情也说不定，还请大家尽请期待！
+[https://www.bilibili.com/read/cv15591160](https://www.bilibili.com/read/cv15591160) 出处：bilibili</blockquote>
+又去回看了这篇采访，别告诉我这一集就是那个所谓的“十分感人”的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liu461  
+##### 4927#       发表于 2022-9-18 21:17
+
+两个单人c曲基本上live回回上，还有个人高光cp回，受点委屈收获一堆同情票，现在可可自己的机场回也成了垫脚石，真就是不被安排说怪话就算胜利叻是吧<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 4928#       发表于 2022-9-18 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543597&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-18 21:15</a>
+
+又去回看了这篇采访，别告诉我这一集就是那个所谓的“十分感人”的事吧
+
+ ...</blockquote>
+如果就在二期内比的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你就说在二期剧情里面这集算不算感人嘛
+
+*****
+
+####  ads147147  
+##### 4929#       发表于 2022-9-18 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543597&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-18 21:15</a>
+又去回看了这篇采访，别告诉我这一集就是那个所谓的“十分感人”的事吧
+
+ ...</blockquote>
+我当年看团长死也很感人啊，干碎我的是最后一集三明被枭首，现在星团的希望之花其实已经有了，就等那最后一根稻草了<img src="https://static.saraba1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 4930#       发表于 2022-9-18 21:25
+
+现在顶多是陆姥爷（香哥哥）你不要过来，还不至于希望之花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YZY  
+##### 4931#       发表于 2022-9-18 21:26
+
+演的还行，挺甜的，就是脸有点怪
+
+*****
+
+####  kata魂  
+##### 4932#       发表于 2022-9-18 21:28
+
+我现在有点搞不懂的是小千按住香音那段
+
+是tm制作组自己都明白了香音剧情的问题 然后还要打算这么干，以至于多画几帧？
+
+*****
+
+####  尼卡·七浦  
+##### 4933#       发表于 2022-9-18 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543765&amp;ptid=2078110" target="_blank">YZY 发表于 2022-9-18 21:26</a>
+演的还行，挺甜的，就是脸有点怪</blockquote>
+<img src="https://p.sda1.dev/7/496b76c4df3e182138193f44f4ab2d4e/CMP_20220918212842711.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| YZY| + 1|その顔が見たかった、私に嫉妬するその顔が.|
+
+查看全部评分
+
+*****
+
+####  稀勢のささ  
+##### 4934#       发表于 2022-9-18 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543791&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-18 21:28</a>
+
+我现在有点搞不懂的是小千按住香音那段
+
+是tm制作组自己都明白了香音剧情的问题 然后还要打算这么干，以至于 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田的求救信号
+
+*****
+
+####  kata魂  
+##### 4935#       发表于 2022-9-18 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543805&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-18 21:29</a>
+
+花田的求救信号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可能是画师的求救信号【快跑，原剧情是打算让香音上的】
+
+*****
+
+####  qratosone  
+##### 4936#       发表于 2022-9-18 21:32
+
+这是不是每一集都分包出去了，导致前后割裂？
+
+*****
+
+####  凡人  
+##### 4937#       发表于 2022-9-18 21:32
+
+现在想来，一期的时候就已经决定了萨尼帕会被VN干碎吧，所以连个live都懒得画，毕竟只是个垫脚石而已
+
+*****
+
+####  aoaoaodedede  
+##### 4938#       发表于 2022-9-18 21:34
+
+ 本帖最后由 aoaoaodedede 于 2022-9-18 21:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543646&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-18 21:18</a>
+
+如果就在二期内比的话
+
+你就说在二期剧情里面这集算不算感人嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等我看完熟肉再来好好评价一下
+
+其实我主要意思是如果这个“十分感动”确实是这个剧情，那么可可在这一季动画之后的剧情里可能确实什么也没了
+
+*****
+
+####  adw667  
+##### 4939#       发表于 2022-9-18 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">没赶上直播
+
+*****
+
+####  cat1230  
+##### 4940#       发表于 2022-9-18 23:11
+
+所有非议的一切问题的根源在于动画不好看+歌曲不够好听<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 4941#       发表于 2022-9-18 23:19
+
+可可人气“失控”，香音扶不起，不难猜幕后大人们的想法，结果就是两个一起毁了
+
+*****
+
+####  ads147147  
+##### 4942#       发表于 2022-9-18 23:22
+
+ 本帖最后由 ads147147 于 2022-9-18 23:25 编辑 
+
+确认了熟肉，逻辑还是顺的，花田有料的（虽然主线烂的不行。）
+
+首先香音对vn的恐惧感描写的很好，所以她才会对民警5人出战的提案反应特别剧烈，甚至要动手，以至于她都忘了（或许是花田忘了）香音最没资格批评堇说自己要重返演艺界，香音s1e4就是以民警通过Liella回到演艺圈为由头拉民警入伙的，所以谁都可以训斥民警这种想法不对但是香音不行，因为这是香音给的承诺（就和夏美那个莫名其妙的合同一样，这个剧本的细节问题有时候没有有时候又特别大）。
+
+没安排巴掌打下去也算正常，毕竟真打了心就寒了，队伍直接散了还打个屁大赛（虽然这个大赛真的cjb）。虽然我个人真的很想看香音一巴掌下去，这个队赶紧散伙各回各家。本质上就和虹1小霞霞和雪菜的争论一样，虹团是花了一季度动画讲清楚大家怎么才能重新粘合在一起，如果真打了巴掌，这一季讲不完这个坑，但是我感觉第三季vn上山后有可能会有团队分裂再整合的路数。
+
+可可这边估计真的没有什么回家的危机，追飞机这事已经到此为止了。也算是倒果为因，因为剧情上必赢vn，所以大家也不会担心可可会因此回国。
+
+下一话估计就是让一年三熟的香音克服对vn的恐惧9人歌爆杀vn，然后最后两集里赚她上山。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  L-JoeW  
+##### 4943#       发表于 2022-9-18 23:23
+
+ 本帖最后由 L-JoeW 于 2022-9-19 01:22 编辑 
+
+熟肉看完了，两季以来好像头一回中场开始气氛就搞的这么沉重，圣香音真狠啊，差点一个巴掌就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">二期唐突合声有点尬，氪金部分还行吧，比前面的能看。vn这季结尾不知道怎么处理，看上去赢面挺大。
+
+喔对了为什么其他人对回上海这事反应这么平淡啊，是被姛吓到了吗
+拥抱那段的bgm怎么搞的那么突兀，一下气氛就没了
+
+*****
+
+####  ViyViy  
+##### 4944#       发表于 2022-9-18 23:24
+
+说真的，第九集演的这，除了之前两段问上海的事情，跟之前那些可堇烂活有什么强关联吗？
+
+真的是老伎俩，为了醋包饺子，问题是这次是为了早就过期的醋，包的饺子用的也是发霉的馅和皮<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4945#       发表于 2022-9-18 23:38
+
+ 本帖最后由 starring 于 2022-9-18 23:57 编辑 
+
+pay ins
+<img src="https://p.sda1.dev/7/70e09c7b4845670e1505277e22952387/307645294_416287340618674_1341082387809368723_n.jpg" referrerpolicy="no-referrer">
+
+nagi SYNDUALITY（那个万南的新动画/游戏
+
+<img src="https://p.sda1.dev/7/d075c32ca557300e5e4b7c89c3bd21aa/Fc7030WaMAAg4wb.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/d36929b02ada8571dbe8b14f6b473bbd/Fc76OpoaIAcGbVG.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/b9b1e2e42f269eb1c8ae7089f84f7ae1/Fc8d7hSaIAEgMQ3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 4946#       发表于 2022-9-18 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542628&amp;ptid=2078110" target="_blank">凡人 发表于 2022-9-18 20:01</a>
+
+VN这设定可以叠出个LL历史第一天赋了，保底一冠好吧，有点好奇要匹配上VN的强度其他三期生得是什么卧龙凤雏 ...</blockquote>
+伞木希美级别的待遇了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 4947#       发表于 2022-9-19 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57541689&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-9-18 18:44</a>
+
+妈的越想越不对劲，明明要回去的是可可，为什么是堇哭那么惨，可可反应也太小了吧，感觉堇真不值得
+
+虽然程 ...</blockquote>
+可：这都什么破团？回去算了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosone  
+##### 4948#       发表于 2022-9-19 00:09
+
+行吧，也别搞什么狗屁单人回了，两个CP回叠加也算可可高光时刻了，真单人回按照花田这个尿性还不是烂完
+
+*****
+
+####  沙茶酱  
+##### 4949#       发表于 2022-9-19 00:09
+
+这集固然有这样那样的问题，甚至我很同情被天降伟人初中生击败的第二季唯一正能量上届冠军，但是如果只和二期其他集数比较，这集已经是逻辑最通顺的一集，这点放在二期这里实在难得了。不过我有点感慨的是，其实一期我对五人里面，对堇的好感算是后面的，但是二期这塑造下来，我觉得对堇的好感可以排前二了，关键是一期那些让我喜欢的角色，二期真是一言难尽。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 4950#       发表于 2022-9-19 00:13
+
+熟肉看完，就还行吧，在星二期里算好的，放在LL缪水星三代动画里排中上也毫无问题，不过么，糖精味是挺重，可可捧香音脸那里的分镜也是怪怪的，让我觉得很浪费画力<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总的来说我不会批评这集，毕竟我对这破动画是0期待，能稍微挽回点可可人气就当赚到了。马上就是一单发售和生放送，三巡也在路上，显然还是真人更令人期待
+
+
+
+*****
+
+####  lj205  
+##### 4951#       发表于 2022-9-19 00:14
+
+我反正不看好评分
+
+*****
+
+####  player3960  
+##### 4952#       发表于 2022-9-19 00:18
+
+积重难返，评分能过60就烧高香了，虽然已经没啥意义了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 4953#       发表于 2022-9-19 00:23
+
+说不定cp人狂喜给他怼到90呢，虽然我觉得不太容易。
+
+评分一直都是图一乐，更多的是反馈观众的情绪而不是作品本身的价值，按现在的大氛围下，不看好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 4954#       发表于 2022-9-19 00:24
+
+不可能的，花田作到现在肯定会得罪一边，我力押可香太君恶意爆刷到30%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4955#       发表于 2022-9-19 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57546333&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-19 00:24</a>
+不可能的，花田作到现在肯定会得罪一边，我力押可香太君恶意爆刷到30% ...</blockquote>
+现在哪有可香党刷差评，肯定是虹信干的（那个姿势的字jpg）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 4956#       发表于 2022-9-19 00:31
+
+就是经典的这边感觉还行，然后一看评分不超过60
+
+*****
+
+####  iuhehc  
+##### 4957#       发表于 2022-9-19 00:35
+
+ 本帖最后由 iuhehc 于 2022-9-19 00:38 编辑 
+
+就算烂爆立本cp人也许能冲个75吧看看推看看拉板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 4958#       发表于 2022-9-19 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57546418&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-19 00:31</a>
+就是经典的这边感觉还行，然后一看评分不超过60</blockquote>
+也可能出现这边感觉不行但是评分很行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 4959#       发表于 2022-9-19 00:44
+
+就我的观察，NICO那边的评分，他们着重点一般是剧情能不能自圆其说以及人物行动符不符合逻辑。只要不是那种“不是，大哥你到底在拍啥？你知道你拍的是什么？你知道这个角色在干什么吗？他会这样干吗？”的程度，只要逻辑讲得通和人物合逻辑。都是可以合格线以上的。NICO那边其实要很低分还是挺难的，某种意义上星二期前面这个分数，比起拿高分更难，只能说制作组逆天。
+
+*****
+
+####  卡罗斯  
+##### 4960#       发表于 2022-9-19 00:47
+
+真的服了，先把上届冠军直接垫了，然后还要让香音差点打巴掌。当年你拉菫的时候就是以回演艺圈为噱头，现在你有什么jb资格打人，太典了，急了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 4961#       发表于 2022-9-19 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57543597&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-18 21:15</a>
+又去回看了这篇采访，别告诉我这一集就是那个所谓的“十分感人”的事吧
+
+ ...</blockquote>
+“かもしれない”，不能否认确实有人感动到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4962#       发表于 2022-9-19 01:01
+
+谁拼命推那就是谁感动到了呗
+
+*****
+
+####  hc04  
+##### 4963#       发表于 2022-9-19 01:01
+
+听说这集还不错，第二季一集没看的我立马进行了一个下载。感想是：确实还不错，贴贴还是很香的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+逻辑嘛大体通顺，整体观感流畅，没有发生上一季恋回和结尾的灾难性场面，虽然得在脑海里刨去隔壁的大香老师假药和vn的蜜汁哈人闪现<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+可回什么的，说实话云的你们风评对二季已经没有丝毫期待，真上还怕他做崩了，cp回做的还行算意外之喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">(当然个人回还是要有的
+
+*****
+
+####  aoaoaodedede  
+##### 4964#       发表于 2022-9-19 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57546682&amp;ptid=2078110" target="_blank">hc04 发表于 2022-9-19 01:01</a>
+听说这集还不错，第二季一集没看的我立马进行了一个下载。感想是：确实还不错，贴贴还是很香的阿堇 ...</blockquote>
+巧了，如果第二季没看，来看这集反而能获得比较好的观感，毕竟没看过之前可堇之间难以理解的相处模式，整体观感反而会顺滑很多
+
+*****
+
+####  L-JoeW  
+##### 4965#       发表于 2022-9-19 01:26
+
+<img src="https://p.sda1.dev/7/d026b9b2327731ccd0152f5188a27753/IMG_20220919_012502.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/4e1b5c983b366fed2b3f65e756186eb2/CMP_20220919012551596.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  光宗薫  
+##### 4966#       发表于 2022-9-19 01:55
+
+那巴掌就轮不到大香老师打（虽然大香老师也的确没打），毕竟系列传统能抽嘴巴的都是cp(海爷抽果皇，鞠莉抽果南)，要打堇那也是可可来打
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dragrass  
+##### 4967#       发表于 2022-9-19 03:13
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  CharlieZ-  
+##### 4968#       发表于 2022-9-19 04:21
+
+虽然好像都在说这集是堇回，可可就是个垫子，但我觉得最后堇破防大哭那段真的好像个小丑啊，感觉全队就她一个人急了，其他人都是无所谓的态度<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4969#       发表于 2022-9-19 04:32
+
+snp输其实我倒觉得不难理解，甲子园前一年冠军第二年地方预选莫名其妙输掉也没少发生过，毕竟按照设定学园偶像只是业余水准，发生什么都不奇怪，问题还是在于一个初中生怎么跑来参加高中生大会的，还有就是三期除非snp成为职业偶像不然基本就没戏分了，圣雪落败的过程也是一言难尽但是好歹戏外还卖了专辑开了专场
+
+*****
+
+####  lj205  
+##### 4970#       发表于 2022-9-19 06:57
+
+推的趋势，四季比可可还高，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4971#       发表于 2022-9-19 07:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得更多人用的是クゥクゥ吧，可可打起来不方便
+
+*****
+
+####  尼卡·七浦  
+##### 4972#       发表于 2022-9-19 07:18
+
+还有一个点。第一季的时候，看到可可说自己家里让她在lovelive里拿不到成绩就回国，我觉得是挺中国式家长挺合理的。但到了第二季就稍有点不对味儿了，正常家庭可能非要让都在日本上了快两年学的孩子退学回国吗 这高三能跟得上吗 不过想想恋的爹更是个离谱人，无所谓了。
+
+*****
+
+####  名津流  
+##### 4973#       发表于 2022-9-19 07:30
+
+ 本帖最后由 名津流 于 2022-9-19 07:32 编辑 
+
+动画都把气氛炒到这个地步了，以后鱼也不敢再经常无视pay子的倒贴了吧，多少该多给点回应了
+
+*****
+
+####  lj205  
+##### 4974#       发表于 2022-9-19 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547478&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-19 07:17</a>
+我觉得更多人用的是クゥクゥ吧，可可打起来不方便</blockquote>
+就是クゥクゥ啊
+
+*****
+
+####  名津流  
+##### 4975#       发表于 2022-9-19 08:10
+
+都说这集算二季里比较好的，逻辑还算通顺，但仔细想想这剧情逻辑真的通顺吗？
+
+可可掉落的玩偶是想表达啥？还以为坦诚心底话那段要把玩偶拿出来还给可可作为你给我皇冠的回礼还是什么的，反正可能是想互相给东西形成照应，但最后没提这茬还自己挂上了是什么情况？
+
+二期生集体唱歌又想表达啥？还以为是二期生想到了个解决办法是像三次元9人fmt的live部分那样，5人在前面唱歌，4人在后面牵着手当“伴奏”“伴舞”，等于9人一起上台但实际上只有一期生在表演，也算现实反哺动画的操作，结果说已经想法传达给了堇？这牵手哼唱连歌词都没有，到底传达了啥啊
+
+更不用手可可的秘密铺垫了两季以后的公开，大家就这点反应？危机不是还在吗，除了堇其他人连点着急的样子都没有... 
+
+*****
+
+####  aoaoaodedede  
+##### 4976#       发表于 2022-9-19 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547696&amp;ptid=2078110" target="_blank">名津流 发表于 2022-9-19 08:10</a>
+
+都说这集算二季里比较好的，逻辑还算通顺，但仔细想想这剧情逻辑真的通顺吗？
+
+可可掉落的玩偶是想表达啥？ ...</blockquote>
+所以说的就是可可再想有个人回就难了，这一集绝对不算个人回，但是这一集大家都不怎么在乎的样子，这B剧情可能就直接忘了这个茬了，到时候像一期12集恋爸那样，就算“皆大欢喜”解决问题了
+
+*****
+
+####  lj205  
+##### 4977#       发表于 2022-9-19 08:32
+
+所以我昨天就问，是不是全系列唯一一个没有个人回没有solo ed没有c歌的角色？
+
+*****
+
+####  ViyViy  
+##### 4978#       发表于 2022-9-19 08:45
+
+ 本帖最后由 ViyViy 于 2022-9-19 08:49 编辑 
+
+故意搞莫名其妙的关系回退就是为了这集去规避最重点的最难写的问题，花田是不是等着我们夸他老脚本师的聪明圆滑呢。
+
+这种近乎牺牲一个角色目前形象和问题和资源配置（当然这个不是花田京极能决定的）在未来所有的可能性的“扬长避短”来满足企划强推的目的，被牺牲的不是垫子是啥啊？
+
+能不能别什么太监急皇上不急了，你这么急建议魂穿花田把可可写急，不然我要跟你急了，真的是22集了什么勾八东西没得到自己以前最高光的作用被疯狂解构，灰毛之耻啊。
+
+话说严重点，”可可回国“这个包袱甚至都是为了这一刻继续抬高堇的形象的，可可回国关可可什么事情？
+
+*****
+
+####  aoaoaodedede  
+##### 4979#       发表于 2022-9-19 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547806&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-19 08:32</a>
+
+所以我昨天就问，是不是全系列唯一一个没有个人回没有solo ed没有c歌的角色？ ...</blockquote>
+硬要说，二期生有部分也能符合这个说法，只是竟然要和二期生比，真棒哦
+
+*****
+
+####  靡宜  
+##### 4980#       发表于 2022-9-19 09:02
+
+<blockquote>lj205 发表于 2022-9-19 08:32
+所以我昨天就问，是不是全系列唯一一个没有个人回没有solo ed没有c歌的角色？ ...</blockquote>
+说⑧定第十集要可可c薄纱vn，也不是没可能（
+
+
+
+*****
+
+####  ViyViy  
+##### 4981#       发表于 2022-9-19 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57548000&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-19 09:02</a>
+
+说⑧定第十集要可可c薄纱vn，也不是没可能（</blockquote>
+下一集标题都涩谷了，肯定不可能啦，无论是双关还是单指香音，肯定是香哥哥C啦。
+
+*****
+
+####  尼卡·七浦  
+##### 4982#       发表于 2022-9-19 09:05
+
+梦里啥都有
+
+*****
+
+####  lj205  
+##### 4983#       发表于 2022-9-19 09:15
+
+ 本帖最后由 lj205 于 2022-9-19 09:26 编辑 
+
+想多了，这集里除了可堇，还有就是为下集大香跟VN对决做铺垫，小日本那个傻逼回路他们觉得可可（堇）问题算是解决了，下一集就是大香要克服自己带领团队干翻VN给SNP报仇，顺带着把可可的回国搞定。
+
+你看看那些人的态度，直接就是下集大香带着我们赢小事一桩你民警急个啥，连演都不带演的
+
+*****
+
+####  Kfly  
+##### 4984#       发表于 2022-9-19 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57548000&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-19 09:02</a>
+说⑧定第十集要可可c薄纱vn，也不是没可能（</blockquote>
+想多了，薇恩就只盯着香音呢，显然是香音c，要是可可跳出来她可能还奇怪你谁啊，这是我和香音的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4985#       发表于 2022-9-19 09:20
+
+重复编辑
+
+*****
+
+####  aoaoaodedede  
+##### 4986#       发表于 2022-9-19 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57548139&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-19 09:20</a>
+
+想多了，薇恩就只盯着香音呢，显然是香音c，要是可可跳出来她可能还奇怪你谁啊，这是我和香音的事 ...</blockquote>
+不得不说香音在剧情里属实有好几个gachi了
+
+*****
+
+####  优妮可  
+##### 4987#       发表于 2022-9-19 10:30
+
+我网页端发不了图草
+
+*****
+
+####  尼卡·七浦  
+##### 4988#       发表于 2022-9-19 10:34
+
+香音又要成长了
+
+*****
+
+####  aoaoaodedede  
+##### 4989#       发表于 2022-9-19 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57548771&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-19 10:30</a>
+
+我网页端发不了图草</blockquote>
+巧了，我网页端表情也选择不了
+
+最近是坛在维护还是贴的问题，这俩天体验都挺糟糕的
+
+*****
+
+####  优妮可  
+##### 4990#       发表于 2022-9-19 11:04
+
+<blockquote>aoaoaodedede 发表于 2022-9-19 10:40
+巧了，我网页端表情也选择不了
+
+最近是坛在维护还是贴的问题，这俩天体验都挺糟糕的 ...</blockquote>
+一直上传失误，还以为是我网问题
+
+*****
+
+####  稀勢のささ  
+##### 4991#       发表于 2022-9-19 11:04
+
+一切终究还是要收束到大香老师这里  香门<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 4992#       发表于 2022-9-19 11:17
+
+ 本帖最后由 Kfly 于 2022-9-19 22:37 编辑 
+
+本周官漫
+
+第十二话
+
+“唔，是去年也不会做的难题呢”
+<img src="https://img.nga.178.com/attachments/mon_202209/19/-9lddQjl3-e15zK2nT1kShs-hs.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/19/223702ryaonm9taa0o270y.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQjl3-e15zK2nT1kShs-hs.jpg</strong> (100.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 22:37 上传
+
+*****
+
+####  lj205  
+##### 4993#       发表于 2022-9-19 11:20
+
+鲤鱼的新look更新，真的要用那个洗碗手套吗？真的要用吗？真的吗？
+
+*****
+
+####  saya1892  
+##### 4994#       发表于 2022-9-19 12:28
+
+ 本帖最后由 saya1892 于 2022-9-19 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57547845&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-19 08:45</a>
+
+故意搞莫名其妙的关系回退就是为了这集去规避最重点的最难写的问题，花田是不是等着我们夸他老脚本师的聪明 ...</blockquote>
+
+说得好
+
+可可为什么不能反应平淡？理由她早就说过好几次了，这不关堇的事，是堇自己擅自着急上火而已。
+
+总有人以为可可瞒到底是因为嘴硬，有没有想过这可能是可可的真实想法呢？
+
+她始终想的是大家一起搞学园偶像才开心，自己回去不回去是自己的事情，不需要别人操心。
+
+就算可可不想回去，但她不希望别人因为自己的事影响到别人，她可是能亲手把降低标准的海报张贴到告示板上的人，就说明了她决定了不去跟别人求救，也不希望别人用这个事来干涉自己。
+
+可可代表的就是享受过程，结果怎么样无所谓的那一派。如果不是因为回国的事，输赢对她来说本来就无所谓，这集还跟千一起制定给一年级的新训练计划。
+
+而且回国这事一直到现在都没有彻底交代清楚，还有很多解释空间，并不一定是我们以为的输了就回国。
+
+至于别人反应平淡是因为没有反应时间，话都妹说两句就哭，你让几个刚加入不明所以的一年级怎么反应？
+
+这集可可说堇擅作主张也没说错，s1e11千是你妈以为你冷，s2e9就不是吗？
+
+说到底为什么可可非得接受堇擅作主张的好意？
+
+这集其实只解决了堇的心态问题，回国问题本身则没有任何进展。
+
+当然从meta角度来说是要靠团队获胜来使这个问题变为不存在，但假如确定要搞3期，那2期肯定也还是赢不了，还是一笔烂账。
+
+*****
+
+####  lj205  
+##### 4995#       发表于 2022-9-19 12:32
+
+想了好久，我说怎么有种似曾相似的感觉，这不就是那种男的公开搞什么求婚仪式，逼女的答应吗？然后一群看热闹不嫌事大的就在起哄，不答应还要被骂呗
+
+*****
+
+####  Piano-Forest  
+##### 4996#       发表于 2022-9-19 12:33
+
+https://twitter.com/imaziro/status/1568914555765669888
+
+ラブライブ!スーパースター!! 8话演出でした。おつかれさまでした。
+<img src="https://p.sda1.dev/7/2b07a59a13483965cbcd09199ee53a05/20220919_123025.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/74a3bb8d2fb4fa72025b926186f847b9/20220919_123155.jpg" referrerpolicy="no-referrer">
+
+https://twitter.com/imaziro/status/1571473469468213249
+
+リエラのうた　絵コンテやらせてもらってます
+
+08,09 メイと四季
+
+衣装はこんな感じで描いてました
+<img src="https://p.sda1.dev/7/90f689bd4c208209ecf27df742a6ac3e/20220919_123034.jpg" referrerpolicy="no-referrer">
+
+https://twitter.com/east_sha2/status/1571509690206650369
+
+9话すみれちゃん宇宙一かっこよかった
+<img src="https://p.sda1.dev/7/423b15876225b8e0f9996b1090193036/20220919_123030.jpg" referrerpolicy="no-referrer">
+
+https://twitter.com/kage_33/status/1571462813243297793
+
+大嫌いで、大好き
+<img src="https://p.sda1.dev/7/13d1e654c6268c6d8b693d0ec59e68ae/20220919_123011.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4997#       发表于 2022-9-19 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一年级的反应有啊 红毛一脸我推可香别给我看这个的表情
+
+*****
+
+####  aoaoaodedede  
+##### 4998#       发表于 2022-9-19 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57550453&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-19 12:28</a>
+
+说得好
+
+可可为什么不能反应平淡？理由她早就说过好几次了，这不关堇的事，是堇自己擅自着急上火而已。
+
+总 ...</blockquote>
+这个角度很妙，那可堇就有点像俩个傲娇一样，一个不想让别人管，一个就急，就要管。这集最后也就是让可可认识到堇的好意是好意，确实没解决什么根本问题
+
+*****
+
+####  dragrass  
+##### 4999#       发表于 2022-9-19 14:18
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  稀勢のささ  
+##### 5000#       发表于 2022-9-19 14:36
+
+这集是第几次 一年级菜 》》》x人一起上才是liella 了啊 感觉比观众还急<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 5001#       发表于 2022-9-19 14:38
+
+都在说可堇那我说点别的
+
+SNP这怎么淘汰的？输VN就没赢别的队吗？VN还是及格线了不成？
+
+有没有人对比一下VN和AS岚珠谁更狂？我想看粉毛哭。不过夏美都快把liella卖了也没人说什么估计VN最后也是一笔带过
+
+堇这集持续盯防管人干得漂亮，这小兔崽子真就三天不打上房揭瓦，要是决赛拦在星团面前的是SNP我估计她也不会犹豫
+
+名场面真的很棒，真的，抛开逻辑不谈我就喜欢堇一边喊一遍蹲下来这种大声把情绪宣泄出来的套路，让我想起来第一季可可开头吼香音和第十集在楼梯上吼堇的场面了。另外在这种时候插一段香音被打断的镜头是想骗弹幕吐槽吗？
+
+建议这次还是不要夺冠，这样到了第三季还可以接着用一二期生水平不一，可可要回国，香音一年三熟等烂梗
+
+最近网页端BUG用不了黑条，正好这集气氛也到了干脆不用了
+
+*****
+
+####  稀勢のささ  
+##### 5002#       发表于 2022-9-19 14:44
+
+CEO没能当场掏出手机开拍说明业务还不够熟练<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 5003#       发表于 2022-9-19 14:50
+
+对了，那个义乌皇冠怎么买，没有官方店链接哪怕是老马家的给个关键词也行
+
+*****
+
+####  adw667  
+##### 5004#       发表于 2022-9-19 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57551666&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-19 14:44</a>
+
+CEO没能当场掏出手机开拍说明业务还不够熟练</blockquote>
+这人就这样，好的不拍就知道整烂活
+
+*****
+
+####  lj205  
+##### 5005#       发表于 2022-9-19 15:09
+
+明晚广播不会讨论昨天那集吧？
+
+*****
+
+####  starring  
+##### 5006#       发表于 2022-9-19 15:09
+
+目前二季9话下来，二期生里芽衣的形象算是最好，虽然一开说把五老星的设定拆散缝合一起，但是缝得不错。除了傲娇模板有点差，比土妹子更像立德，比CEO少黑点，也不是me too复读机，人气高不是没理由
+
+*****
+
+####  奥柏伦亲王  
+##### 5007#       发表于 2022-9-19 15:32
+
+这动画恨不能每集都提醒观众一次一年级很菜，我就希望二期生真人不要言出法随
+
+*****
+
+####  Kfly  
+##### 5008#       发表于 2022-9-19 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552320&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-19 15:32</a>
+
+这动画恨不能每集都提醒观众一次一年级很菜，我就希望二期生真人不要言出法随 ...</blockquote>
+希望别，这别真是什么提前铺垫吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+ 官方：听说你们喜欢铺垫？ 
+
+*****
+
+####  adw667  
+##### 5009#       发表于 2022-9-19 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552034&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-19 15:09</a>
+
+目前二季9话下来，二期生里芽衣的形象算是最好，虽然一开说把五老星的设定拆散缝合一起，但是缝得不错。除 ...</blockquote>
+她和唐女士的区别就是嘴没那么臭
+
+*****
+
+####  starring  
+##### 5010#       发表于 2022-9-19 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552541&amp;ptid=2078110" target="_blank">adw667 发表于 2022-9-19 15:49</a>
+
+她和唐女士的区别就是嘴没那么臭</blockquote>
+不嘴臭但是动不动就吼人，然后解释为傲娇......
+
+
+
+*****
+
+####  ViyViy  
+##### 5011#       发表于 2022-9-19 16:08
+
+我看了熟肉，可可捧脸那段花田你真的写完自己思考过对不对吗？还是说故意的？你让人当了两个月莫名其妙的怼怼bot然后说你一直和我干反面，真的，这种时候了还要再恶心一手我是真佩服了。
+
+银狼还说能单独开一期吹，我当时就是一头问号，这能吹啥，你看那台词和前面的烂活对照，我等着你出，怕是现在还没发现问题，更别说B友们了，合着都是cp推，真的绝望了。
+
+*****
+
+####  ads147147  
+##### 5012#       发表于 2022-9-19 16:09
+
+芽衣的话，与其说唐女士，不如说是真姬，而且因为TomBoy属性强行加了个0给她。
+
+现在看到小千说一句sodayo我脑壳就疼。
+
+*****
+
+####  沙茶酱  
+##### 5013#       发表于 2022-9-19 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57552832&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-19 16:08</a>
+
+我看了熟肉，可可捧脸那段花田你真的写完自己思考过对不对吗？还是说故意的？你让人当了两个月莫名其妙的怼 ...</blockquote>
+没办法，银狼很早就明牌自己是堇推，并且说过自己现在还能追得动星二期，其中一个很大的动力就是因为堇。
+
+*****
+
+####  dragrass  
+##### 5014#       发表于 2022-9-19 16:27
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  优妮可  
+##### 5015#       发表于 2022-9-19 16:35
+
+怎么说呢，你们两方都是对的，说不好确实做的不行，说好的也只是相对之前好了点。是不同的观点但不应该是对立的，唉也不知道咋说好了。
+
+*****
+
+####  Enakina  
+##### 5016#       发表于 2022-9-19 17:09
+
+简单来说就是对于路人观众，这集在二期里肯定是强上不少，要是堇推更是赢麻了。但对于可推，这集就是烂中之烂，因为这一集算是把棺材板给定死了，可可这个角色现在还是个空壳，并且以后也很难有机会了
+
+*****
+
+####  cybernetics31  
+##### 5017#       发表于 2022-9-19 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">该单推了朋友们
+
+*****
+
+####  稀勢のささ  
+##### 5018#       发表于 2022-9-19 17:17
+
+ 本帖最后由 稀勢のささ 于 2022-9-19 17:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我期待够低 动画里没被接着黑不错了
+
+只要下一集又重置一下 一切都会坏起来的
+
+*****
+
+####  player3960  
+##### 5019#       发表于 2022-9-19 17:27
+
+虽然早就是单推中之人了，大部分伤害都免疫了，可是还是没等来自推的资源，失望透顶<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+单推人也不好过啊…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  凡人  
+##### 5020#       发表于 2022-9-19 17:35
+
+可推现在就祈祷vn下周大破裂啦吧，这样还能再掰扯点戏份
+
+*****
+
+####  adw667  
+##### 5021#       发表于 2022-9-19 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554045&amp;ptid=2078110" target="_blank">凡人 发表于 2022-9-19 17:35</a>
+
+可推现在就祈祷vn下周大破裂啦吧，这样还能再掰扯点戏份</blockquote>
+我要看回上海
+
+*****
+
+####  ViyViy  
+##### 5022#       发表于 2022-9-19 17:40
+
+这是什么电竞赛事，期待对手赢然后送自己（不配的）主队回家，草。
+
+*****
+
+####  稀勢のささ  
+##### 5023#       发表于 2022-9-19 17:41
+
+下集必是香哥哥肉身成圣感化VN  只有这样才能集爱生活之力去跟隔壁那尊大佛过过招（指卖碟
+
+*****
+
+####  稀勢のささ  
+##### 5024#       发表于 2022-9-19 17:42
+
+ 本帖最后由 稀勢のささ 于 2022-9-19 17:49 编辑 
+
+风怒
+
+*****
+
+####  稀勢のささ  
+##### 5025#       发表于 2022-9-19 17:42
+
+ 本帖最后由 稀勢のささ 于 2022-9-19 17:48 编辑 
+
+风怒
+
+*****
+
+####  沙茶酱  
+##### 5026#       发表于 2022-9-19 18:07
+
+要是VN加入裂啦，那么星团世界观还有能赢裂啦的队伍吗
+
+还是说竞技赛事定律，银河战舰喜欢沉船？或者传统的“成为队友弱十分”？
+
+*****
+
+####  JustW_3  
+##### 5027#       发表于 2022-9-19 18:12
+
+这段放到别的片里是挺糙的，但是！这是在星团2里面的一集，那确实可以小吹。毕竟星团2现在不是普通程度的没拍好，而是现在进行时创造历史级别的没拍好。bangumi 4.6，你在偶像类里很难找到更低的，放在今年比魔寄、少前甚至泡泡都低。所以这一集已经足够很多人谢天谢地了。
+
+*****
+
+####  Kfly  
+##### 5028#       发表于 2022-9-19 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554270&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-19 18:07</a>
+要是VN加入裂啦，那么星团世界观还有能赢裂啦的队伍吗
+
+还是说竞技赛事定律，银河战舰喜欢沉船？或者传统的 ...</blockquote>
+到时候薇恩肯定不能一直solo了，这不就好办了，说薇恩不适合团体是天生的单人选手云云，liella在拖薇恩的后腿云云，变相削弱，完美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 5029#       发表于 2022-9-19 18:18
+
+重复编辑
+
+*****
+
+####  沙茶酱  
+##### 5030#       发表于 2022-9-19 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554399&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-19 18:18</a>
+
+到时候薇恩肯定不能一直solo了，这不就好办了，说薇恩不适合团体是天生的单人选手云云，liella在拖薇恩的 ...</blockquote>
+那三期就可以拿VN怎么改变自己孤傲的个性说事，看VN一步一步融入团队。这个你还别说，这样的话立意还不错。
+
+其实还可以加一些有趣感人的故事，比如VN在加入之前怎么帮助裂啦，让观众觉得这都不拉人是在说不过之类的。
+
+*****
+
+####  D麦林  
+##### 5031#       发表于 2022-9-19 18:36
+
+信不信给你玩再演
+假设有三期
+二期Liella惜败VN
+但VN从此感到LL的乐趣
+然后三期VN上高中和人组团
+结果又突然天降一个新敌团把VN给秒了
+
+*****
+
+####  renkan119  
+##### 5032#       发表于 2022-9-19 18:44
+
+这从头到尾都没提规则  完全看不懂snp是怎么输的 如果参照一期9话的规则 那应该起码有5组能进大赛  拿snp就因为vn在后面唱 就直接从冠军跌到预赛前五都没有了？ 又或者改规则变分组争第一了？ 那为啥vn会跑去神津岛参加预赛？
+
+*****
+
+####  尼卡·七浦  
+##### 5033#       发表于 2022-9-19 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554750&amp;ptid=2078110" target="_blank">renkan119 发表于 2022-9-19 18:44</a>
+
+这从头到尾都没提规则  完全看不懂snp是怎么输的 如果参照一期9话的规则 那应该起码有5组能进大赛  拿snp就 ...</blockquote>
+因为东京太大了，所以先分几个区预选。星团第一季突破了预选，但在东京大赛不敌snp，snp晋级了全国大赛，甚至还拿到了优胜。这一次是snp在预选就被vn打败了，至于vn为什么和神津岛划在一个区里……可能是学校离神津岛比较近吧（）
+
+*****
+
+####  ViyViy  
+##### 5034#       发表于 2022-9-19 19:01
+
+我现在怀疑老是反复说一年级菜就是为了三期再加新一年级实力很强不需要再担心了，真是好算盘啊
+
+*****
+
+####  稀勢のささ  
+##### 5035#       发表于 2022-9-19 19:16
+
+ 本帖最后由 稀勢のささ 于 2022-9-19 19:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说菜是为了后面那句9个人才是liella啊 
+
+怕有人还不接受于是搁那儿念经  只要念的多了 团队感就有了（）
+
+*****
+
+####  lj205  
+##### 5036#       发表于 2022-9-19 19:18
+
+提前打预防针，免得看到二期生跟不上喷的厉害？
+
+*****
+
+####  tuna  
+##### 5037#       发表于 2022-9-19 19:30
+
+ 本帖最后由 tuna 于 2022-9-19 19:41 编辑 
+
+太哈人了
+
+<img src="https://img.saraba1st.com/forum/202209/19/192949bp4upcjzt4csovvv.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220919155130.png</strong> (15.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 19:29 上传
+
+<img src="https://img.saraba1st.com/forum/202209/19/192949oisz797t2p6666h2.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220919155118.png</strong> (29 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 19:29 上传
+
+QQ截图20220919194038.png
+(8.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202209/19/194146ycnqj8j8xnjjqyb8.png" referrerpolicy="no-referrer">
+
+QQ截图20220919194120.png
+(12.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202209/19/194146ioizvuv4busbqiii.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5038#       发表于 2022-9-19 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经超越A5了吗 历史性突破
+
+*****
+
+####  阿姆罗二世  
+##### 5039#       发表于 2022-9-19 19:39
+
+不至于这么烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JustW_3  
+##### 5040#       发表于 2022-9-19 19:42
+
+都说了是现在进行时 创造历史中了，哪怕现在是跟风/情绪上头导致偏低，完结后回升一些，这历史也创造完了
+
+
+
+*****
+
+####  ViyViy  
+##### 5041#       发表于 2022-9-19 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得等跟风和情绪过去了它甚至能更低。
+
+*****
+
+####  kata魂  
+##### 5042#       发表于 2022-9-19 20:13
+
+结尾再次败给vn，香音又没有可信心，小千再次提起"没有你就没有liella"，香音重新振作，多好，又过了一集
+
+*****
+
+####  凡人  
+##### 5043#       发表于 2022-9-19 20:16
+
+要是没Vn那花田也不会裂啦输给snp两次，今年裂啦也该夺冠了，明年照样是卫冕冠军守擂的心态，不如说是有了VN能写的更多点。
+
+*****
+
+####  a92063256  
+##### 5044#       发表于 2022-9-19 20:31
+
+昨天看生肉的时候有一句台词应该是：“五人即使获胜了也没有任何意义”，简直震撼我心，我不想看第二遍了，不知道这句是不是我理解错了，但是真的很搞
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 5045#       发表于 2022-9-19 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经比a5还低了吗………………
+
+*****
+
+####  六道之彼方  
+##### 5046#       发表于 2022-9-19 21:36
+
+ 本帖最后由 六道之彼方 于 2022-9-19 21:43 编辑 
+
+这不拉拉大明星嘛 几天不见怎么比A5还低了
+
+*****
+
+####  D麦林  
+##### 5047#       发表于 2022-9-19 21:38
+
+哦对说起来还有帮SNP做卫冕成就这一茬
+那看来本季能夺冠希望还是很大的
+就是这么夺冠又有多大意义呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5048#       发表于 2022-9-19 21:42
+
+本来想看看这集姐姐到底说了啥的，用我这破眼睛就看清一句“有空的时候记得打电话”？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+主要还是太糊了，估计看得清也不会是什么有用的信息
+
+*****
+
+####  aoaoaodedede  
+##### 5049#       发表于 2022-9-19 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556477&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-9-19 20:31</a>
+
+昨天看生肉的时候有一句台词应该是：“五人即使获胜了也没有任何意义”，简直震撼我心，我不想看第二遍了， ...</blockquote>
+啊，确实有这么一句话，小千的台词，大概13分33秒这个地方
+
+*****
+
+####  D麦林  
+##### 5050#       发表于 2022-9-19 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57555642&amp;ptid=2078110" target="_blank">JustW_3 发表于 2022-9-19 19:42</a>
+都说了是现在进行时 创造历史中了，哪怕现在是跟风/情绪上头导致偏低，完结后回升一些，这历史也创造完了 ...</blockquote>
+要回升怎么也得之后做的好点或者起码平稳展开吧
+就现在的趋势我真没这个自信
+之前我已经很多次产生了可以再给花田一次机会的幻觉了 然而现在<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5051#       发表于 2022-9-19 21:52
+
+小千说的五人即使获胜了也没有任何意义，在堇说最好还是五人去东京决赛这段，我觉得出于安抚是没啥问题的。
+
+*****
+
+####  D麦林  
+##### 5052#       发表于 2022-9-19 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57557789&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-19 21:52</a>
+小千说的五人即使获胜了也没有任何意义，在堇说最好还是五人去东京决赛这段，我觉得出于安抚是没啥问题的。 ...</blockquote>
+对这话的怨气远远不止对剧情本身
+同时扩展到整个动画甚至整个企划都是这样
+现在搞成这样是积重难返的结果
+虽然当时我没有太多不满但是现在我也不得不承认
+可能从4月28号杂志公布开始我们就已经走上另一条世界线了
+
+*****
+
+####  Erikas  
+##### 5053#       发表于 2022-9-19 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，推特搜了下snp浮上的词条
+サニパ　かませ
+サニパ　扱い
+サニパ　噛ませ
+
+*****
+
+####  Alicest  
+##### 5054#       发表于 2022-9-19 22:25
+
+ 本帖最后由 Alicest 于 2022-9-19 22:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不是你自己信嘛
+
+<img src="https://img.saraba1st.com/forum/202209/19/222443xa2grgf5wrta961o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 22:24 上传
+
+退位让贤是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/19/222638apmhmuputeesfsom.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (198.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 22:26 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5055#       发表于 2022-9-19 22:26
+
+<img src="https://img.saraba1st.com/forum/202209/19/222626gqfesmmwakkjee11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 22:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">嗯嗯
+
+*****
+
+####  长日留痕  
+##### 5056#       发表于 2022-9-19 22:29
+
+感觉sp的舞台会在第三季或是剧场版出现。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 5057#       发表于 2022-9-19 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558491&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-9-19 22:29</a>
+
+感觉sp的舞台会在第三季或是剧场版出现。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+真的吗，难道不会直接不给了？就现在这待遇也是没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dragrass  
+##### 5058#       发表于 2022-9-19 22:39
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  长日留痕  
+##### 5059#       发表于 2022-9-19 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558593&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-19 22:35</a>
+真的吗，难道不会直接不给了？就现在这待遇也是没谁了</blockquote>
+我看这一集有一段sp舞台的片段，像是从完整舞台里截出来的，所以我猜sp舞台其实已经做好了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然我不懂动画制作所以只是一厢情愿的猜测罢了。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5060#       发表于 2022-9-19 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558673&amp;ptid=2078110" target="_blank">dragrass 发表于 2022-9-19 22:39</a>
+我觉得不会有三期
+除非三期换人或者花田觉醒
+如果花田按这个套路再来十二集，怕是分数要崩到四以下</blockquote>
+怕啥，当年萝卜大师评价都怎么样了，不还是拍完了。我们普通人看乐子就好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 5061#       发表于 2022-9-19 22:48
+
+都这样了，能咋办，凑合过吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虽然老说着不行跑路，但看了几天前的拼盘，发现还是很dokidoki，作为5人制的收尾，有个这样的小live也算满足了
+
+*****
+
+####  leleq  
+##### 5062#       发表于 2022-9-19 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57554789&amp;ptid=2078110" target="_blank">尼卡·七浦 发表于 2022-9-19 18:48</a>
+
+因为东京太大了，所以先分几个区预选。星团第一季突破了预选，但在东京大赛不敌snp，snp晋级了全国大赛， ...</blockquote>
+我猜vn是故意挑snp那里去报名的 
+
+vn：冠军候补就这
+
+vn: 冠军就这就这
+
+*****
+
+####  aoaoaodedede  
+##### 5063#       发表于 2022-9-19 22:52
+
+发点长篇大论，一点自己的理解，不一定对
+
+  额，看了一遍B站的熟肉，这一集怎么说呢，要是撇开了之前的剧情，单看这一集，那确实可能有愉快的看番体验，但是说实话，我很难以这种心态来看这个剧情。
+
+  这个剧情，我是感觉和一期10集有那么点类似，区别是这一集在我看来是劣化的一期10集，一期10集之前可堇的互动在我看来属于“有的放矢”，因为当时剧情里好几次表现出了堇对Lovelive大赛的轻视和不在乎，可可对堇 的不满则在逻辑上更加的合理。而这一集之前可堇的互动简直是灾难性的，动画展现出来的不少抖仿佛是可可的无厘头调侃和堇的无厘头忍让，这使得这一集在解决之前可堇问题上变得无比的牵强，甚至这种互动根本没有必要出现，可堇之间根本不需要这种过激的剧情来引发如此的“矛盾冲突”，不知道动画制作组究竟是出于什么原因，为何要如此搞这种剧情？
+
+  这一集可可对堇的台词里有这么几句：“尽是做些可可讨厌的事”，“反对可可做的决定”，“只要可可开口就一定会插嘴”，说句实话，这些点在之前的剧情里并没有怎么体现出来，如果之前剧情里总是出现”堇先调侃可可，可可再怼回去“那么这么几句可可的台词才可能合理一些，而在动画现在展现的剧情来看，这种台词显然太过于牵强了一点。
+
+  之前也看过别的坛友的分析，个人觉得，根据第9集可堇摊牌的剧情来看，这俩人更像是两个傲娇，一个不愿意别人操心（不愿意别人为了她怎么怎么样），一个我硬是要操心（因为曾经被可可拯救过，所以更在意她），这种情况或许只需要一个敞开心扉的和解就可以。然而这之前的剧情里却写的一塌糊涂，明明应该写一对互损的好友，可是俩人互喷确实是严重失衡的，结果就成了可可单方面的态度恶劣。甚至按照前文我截取出来的三句台词，实际上堇才更应该是前面可堇互动中“充当恶人”的角色，然而实际上这个恶人角色却是可可，那三句台词就显得更加离谱了，这是什么垃圾写法？
+
+  你要说完全不会写，那这一集结尾可堇的互怼台词： <blockquote>堇：
+
+办得到吗
+
+你这个没体力的爱哭鬼
+
+可：
+
+这句话原封不动还给你
+
+你这只爱哭鬼具足虫</blockquote>
+这不就挺好的么，那么之前那些剧情究竟是为什么要出现，为什么一定要搞那种离谱CP写法，第9集整的那些打破天窗说亮话的剧情又有多少能与之前可堇的互动对上？
+
+*****
+
+####  iuhehc  
+##### 5064#       发表于 2022-9-19 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558444&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-19 22:26</a>
+
+嗯嗯</blockquote>
+香门
+
+*****
+
+####  lj205  
+##### 5065#       发表于 2022-9-19 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558444&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-19 22:26</a>
+
+嗯嗯</blockquote>
+放他妈的屁！
+
+*****
+
+####  ViyViy  
+##### 5066#       发表于 2022-9-19 23:03
+
+ 本帖最后由 ViyViy 于 2022-9-19 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558919&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-19 22:52</a>
+
+发点长篇大论，一点自己的理解，不一定对
+
+  额，看了一遍B站的熟肉，这一集怎么说呢，要是撇开了之前的剧 ...</blockquote>
+loft上有人从一期开始总结这三句话；
+
+<img src="https://img.saraba1st.com/forum/202209/19/230435nrznrncrampmn976.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220919230409.png</strong> (160.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-19 23:04 上传
+
+但说实话，除了前两个，后面真的没有完完全全对的上的，属实是越描越黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的麻了，就是我一开始说的，你这么写第九集的立意二期之前那些烂活根本没必要，保留询问上海的那两次就够了，结果呢？
+
+*****
+
+####  aoaoaodedede  
+##### 5067#       发表于 2022-9-19 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558919&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-19 22:52</a>
+
+发点长篇大论，一点自己的理解，不一定对
+
+  额，看了一遍B站的熟肉，这一集怎么说呢，要是撇开了之前的剧 ...</blockquote>
+以及这集其他一些槽点
+
+① 这剧情怎么又提起了一年级可能“不太行”的问题，夺冠和让新人参赛本来就是一个有点难调和的问题，这破事第2集来讲过一次了，怎么这一集又给你端上来继续讨论，而且讨论的结果根本没有什么建设性，最后又回到了要一期参赛和加大训练量上来……
+
+② 夏美一如既往的“整烂活”塑造法，虽然总能被其他人叫停，但是这种剧情真有你的啊
+
+③ 以及一年级4人在参赛和不参赛这之间那些互动有点让我摸不着头脑
+
+*****
+
+####  aoaoaodedede  
+##### 5068#       发表于 2022-9-19 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57559125&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-19 23:03</a>
+
+loft上有人从一期开始总结这三句话；但说实话，除了前两个，后面真的没有完完全全对的上的，属实是越描越 ...</blockquote>
+有细节，但是完全掩盖不了二期那么几集里的问题塑造，那些东西确实根本没必要存在<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 5069#       发表于 2022-9-19 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558673&amp;ptid=2078110" target="_blank">dragrass 发表于 2022-9-19 22:39</a>
+
+我觉得不会有三期
+
+除非三期换人或者花田觉醒
+
+如果花田按这个套路再来十二集，怕是分数要崩到四以下</blockquote>
+三期基本是板上钉钉有的，不然一开始就不会设定成1年级，LL就是一个萝卜一个坑的企划，不出个星同生态位的团我都不信官方有那个魄力忘记沉没成本把星砍了
+
+*****
+
+####  ces轴承仨  
+##### 5070#       发表于 2022-9-19 23:36
+
+3倍速看完，我在想为啥没有5倍速。除了有点意思的几个点，全程快进。这番感觉没救了
+
+
+
+*****
+
+####  星降る森  
+##### 5071#       发表于 2022-9-19 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558872&amp;ptid=2078110" target="_blank">leleq 发表于 2022-9-19 22:49</a>
+
+我猜vn是故意挑snp那里去报名的 
+
+vn：冠军候补就这
+
+vn: 冠军就这就这</blockquote>
+神秘就神秘在这预赛是<strong>远程大会</strong>，我感觉像几个方案没协调好吃书了
+
+*****
+
+####  凡人  
+##### 5072#       发表于 2022-9-19 23:40
+
+VN目前来看就是黑化的千，扭曲的香音厨，觉得香音不该在LL这种级别的比赛浪费时间。我挺好奇花田之后打算怎么圆VN是怎么厨上香音的，别跟我说香音失声的时候VN就在下面甚至香音失声后上去救场了。
+
+*****
+
+####  D麦林  
+##### 5073#       发表于 2022-9-20 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57559769&amp;ptid=2078110" target="_blank">凡人 发表于 2022-9-19 23:40</a>
+
+VN目前来看就是黑化的千，扭曲的香音厨，觉得香音不该在LL这种级别的比赛浪费时间。我挺好奇花田之后打算怎 ...</blockquote>
+我现在觉得极有可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+毕竟除此之外你没法圆为什么她单对香音有如此的执念
+
+*****
+
+####  D麦林  
+##### 5074#       发表于 2022-9-20 00:02
+
+话说我在b第9集下面发的评论怎么还看不到了
+
+也不止我一个人在喷啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 5075#       发表于 2022-9-20 00:14
+
+ 本帖最后由 starring 于 2022-9-20 00:16 编辑 
+
+打铁还有高桥优啊，完全错过了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+D0D40BE5-D477-440E-8907-7D291226E651.jpeg
+(236.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 00:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/20/001338vo5we5955zwe3hup.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5076#       发表于 2022-9-20 00:16
+
+Hori你给点力啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 5077#       发表于 2022-9-20 00:25
+
+ 本帖最后由 aoaoaodedede 于 2022-9-20 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560279&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-20 00:16</a>
+
+Hori你给点力啊</blockquote>
+其实我现在有点琢磨不透horipro的态度了，就像我之前说的，鱼的1st演唱会（2月）之后，就基本没有多少非粉丝向的活动，其实写真集和BD发售我也不知道能算在粉丝向还是非粉丝向里的，fmt倒是办了几场了，之后还有……
+
+没有多少内容产出，粉丝干等着也只能干等着了，像有些时候一周的个活只剩下定番的广播……
+
+我现在只能理解horipro僧多肉少了
+
+哦对了，之前看鲤鱼一专的staff表，Producer是Horipro（金城雄文）和烂铁（木下光正）俩边的人，我再翻了翻之前鱼的单曲，金城雄文之前一直和樱井优香一起写在General Producer那一栏里，那看起来一专的制作是用了心的，只是我实在是觉得一专呈现的效果一般，与鱼的Live效果相比也挺明显的……也不知道是哪里出了问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 5078#       发表于 2022-9-20 00:28
+
+主要是千好歹和香音不是一个赛道的，可vn目前在同一条道上设定比香音强多了，还这么厨就，除非后面再给vn加一个有绝症命不久矣的设定
+
+*****
+
+####  ViyViy  
+##### 5079#       发表于 2022-9-20 00:36
+
+我也是，特地去出差评论回头也发现不见了，是被送进审核了还是触发什么词直接ban掉了。
+
+还有啊，我听人说，缪水的歪果仁都是剧场版C？所以？
+
+*****
+
+####  稀勢のささ  
+##### 5080#       发表于 2022-9-20 00:38
+
+ 本帖最后由 稀勢のささ 于 2022-9-20 00:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560516&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-20 00:36</a>
+我也是，特地去出差评论回头也发现不见了，是被送进审核了还是触发什么词直接ban掉了。
+
+还有啊，我听人说， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西班牙血统的含金量 不要多想有的没的了  要给早给了
+
+*****
+
+####  lj205  
+##### 5081#       发表于 2022-9-20 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560402&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 00:25</a>
+其实我现在有点琢磨不透horipro的态度了，就像我之前说的，鱼的1st演唱会（2月）之后，就基本没有多少非粉 ...</blockquote>
+确实基本上都是粉丝向的活，只能等三单宣传了…………
+
+*****
+
+####  ViyViy  
+##### 5082#       发表于 2022-9-20 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560529&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-20 00:38</a>
+
+西班牙血统的含金量 不要多想有的没的了  要给早给了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">行，路都给堵死了，我这个傻逼一年前就不该点开这B番剧！
+
+*****
+
+####  Kfly  
+##### 5083#       发表于 2022-9-20 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560529&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-20 00:38</a>
+西班牙血统的含金量 不要多想有的没的了  要给早给了</blockquote>
+是在说香音的四分之一西班牙血统？动画写到现在像被吃了一样，要是剧场版还拿这个说事，我只能说官方你开心就好，就继续香音传呗，贯彻始终是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5084#       发表于 2022-9-20 00:53
+
+新插曲歌出来了，但是我完全没有听的想法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 5085#       发表于 2022-9-20 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560567&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-20 00:42</a>
+
+确实基本上都是粉丝向的活，只能等三单宣传了…………</blockquote>
+这动画浓浓廉价感，曲子也一般，就算宣传3单也还是个自己粉丝买账的个活啊，吸新粉没啥可能的样子。
+
+作为阿尼送歌手，资源属实是很差了。不过毕竟是签了星团卖身契，也没辙，好歹有个保底工资。
+
+*****
+
+####  aoaoaodedede  
+##### 5086#       发表于 2022-9-20 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57561058&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-20 01:35</a>
+这动画浓浓廉价感，曲子也一般，就算宣传3单也还是个自己粉丝买账的个活啊，吸新粉没啥可能的样子。
+
+作为 ...</blockquote>
+所以我就不明白horipro到底现在是个什么态度了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 5087#       发表于 2022-9-20 02:04
+
+<img src="https://img.saraba1st.com/forum/202209/20/020418bnnqq5rbza4plze1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1472.PNG</strong> (661.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 02:04 上传
+
+<img src="https://img.saraba1st.com/forum/202209/20/020422iucar6buwscuufru.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1467.JPG</strong> (562.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 02:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mc凉月奏酱  
+##### 5088#       发表于 2022-9-20 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57558919&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-19 22:52</a>
+
+发点长篇大论，一点自己的理解，不一定对
+
+  额，看了一遍B站的熟肉，这一集怎么说呢，要是撇开了之前的剧 ...</blockquote>
+这都不叫无厘头了 这唐可可简直跟个精神病人一样
+
+真的离谱，只要开口就要霸凌一下同事，你要是有来有回拌拌嘴也就算了，平安名堇还忍着就硬鳖，纯纯的受欺负
+
+然后唐可可单方面对平安名堇的疯狂虚区发展到这集还在嘴硬一口一个“真的讨厌你”，窝要是平安名堇要气晕过去了，只能说爱得深沉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尼卡·七浦  
+##### 5089#       发表于 2022-9-20 06:38
+
+<blockquote>ViyViy 发表于 2022-9-20 00:36
+我也是，特地去出差评论回头也发现不见了，是被送进审核了还是触发什么词直接ban掉了。
+
+还有啊，我听人说， ...</blockquote>
+在阿b的评论短时间内被多人举报可能就没了
+
+*****
+
+####  尼卡·七浦  
+##### 5090#       发表于 2022-9-20 06:39
+
+<blockquote>长日留痕 发表于 2022-9-19 22:29
+感觉sp的舞台会在第三季或是剧场版出现。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+第三季sp不都毕业了
+
+*****
+
+####  lj205  
+##### 5091#       发表于 2022-9-20 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57561458&amp;ptid=2078110" target="_blank">Mc凉月奏酱 发表于 2022-9-20 04:36</a>
+这都不叫无厘头了 这唐可可简直跟个精神病人一样
+
+真的离谱，只要开口就要霸凌一下同事，你要是有来有回拌 ...</blockquote>
+差不多得了，到现在还来提80呢？那我可不可以说其他人知道可可输了回国没反应也是在80可可？麻烦自己去搜一下真正的霸凌是什么
+
+*****
+
+####  lj205  
+##### 5092#       发表于 2022-9-20 07:12
+
+ 本帖最后由 lj205 于 2022-9-20 07:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57561058&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-20 01:35</a>
+
+这动画浓浓廉价感，曲子也一般，就算宣传3单也还是个自己粉丝买账的个活啊，吸新粉没啥可能的样子。
+
+作为 ...</blockquote>
+
+这动画我只当是有了能发歌的载体，曲子很挑电波，还是看现场吧。现在不光看hori可能还要看烂铁那边的资源，本就僧多粥少。但是我到现在还接受不了三单这造型<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">弄点正常的不好吗
+
+只能等看看三单能不能卖的比一专好
+
+*****
+
+####  aoaoaodedede  
+##### 5093#       发表于 2022-9-20 07:21
+
+唉，挺麻的……<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 5094#       发表于 2022-9-20 08:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这集劲有点大，我现在还没反应过来这集看了个什么玩意
+
+*****
+
+####  ads147147  
+##### 5095#       发表于 2022-9-20 08:16
+
+外面真的是海茫茫的真甜，我满足了的评论。
+
+只能说受众抓的很准，nico评分，可推牢骚？你算哪根葱啊。
+
+希望他们买周边的时候也能这么有行动力。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 5096#       发表于 2022-9-20 08:21
+
+毕竟是外国人，按日本人这种畏首畏尾的保守性格，如果不入籍的话是不会真正下力气去作为主力去推的
+
+*****
+
+####  尼卡·七浦  
+##### 5097#       发表于 2022-9-20 08:35
+
+这集nico评分出了吗
+
+*****
+
+####  ViyViy  
+##### 5098#       发表于 2022-9-20 08:38
+
+评分今天晚上吧？给我低！支持剧情党、可香可推太君暴怒粉碎可堇推和堇推的美好幻境，做了两天甜梦该醒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  cat1230  
+##### 5099#       发表于 2022-9-20 08:43
+
+把Nico评分怒那些不错可以党么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不过感觉不至于太低啦
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  aoaoaodedede  
+##### 5100#       发表于 2022-9-20 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57562000&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-20 08:21</a>
+
+毕竟是外国人，按日本人这种畏首畏尾的保守性格，如果不入籍的话是不会真正下力气去作为主力去推的 ...</blockquote>
+曾经看过Horipro社长的采访，还是能感觉到他们还是有想法多搏一搏的，虽然这里主要还是指的Horipro的一些商业战略方向，当然现在又是怎么想的，也不好说，不过七月份才和腾讯音乐合作搞了个叫HT Entertainment的公司<blockquote>Nothing ventured, nothing gained
+
+For better or worse, there are very few other family-owned companies in the entertainment industry. Most entertainment companies think the best way of scoring a perfect 10 is to avoid taking risks while you’re in charge so you don’t have any failures. But we’re family-owned, and if we begin thinking of no failure as a perfect 10, we’ll disappear as a company one day. Stars will never be born. Rather than thinking about how to avoid failure at all times, we only think about how to succeed. There’s not a single entertainer who goes into the business thinking they won’t be successful. Everyone’s always convinced they’ll become stars.
+
+That’s the way to think. If they take action while I’m still alive and healthy (points to Mr. Yatabe), their generation will do it next, and the next generation after that. But if we don’t do it now, even if we make mistakes... for the next 20 or 30 years, if the business structure of Japan’s entertainment industry doesn’t change, it will all crumble, and we’ll say: “Too bad, that’s the end. We should have acted when we had the chance.” I don’t want that to happen, that’s all.
+
+摘录于：[https://grapee.jp/en/103521](https://grapee.jp/en/103521)（Interview With Horipro International CEO Yoshitaka Hori (Part 1): Founding Motives）</blockquote>
+
+
+
+*****
+
+####  Enakina  
+##### 5101#       发表于 2022-9-20 09:08
+
+ 本帖最后由 Enakina 于 2022-9-20 09:10 编辑 
+
+编辑
+
+*****
+
+####  Enakina  
+##### 5102#       发表于 2022-9-20 09:08
+
+ 本帖最后由 Enakina 于 2022-9-20 09:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57561131&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 01:49</a>
+所以我就不明白horipro到底现在是个什么态度了</blockquote>
+不取消的话应该在有个铃木爱理节目和大石的平盘和h社的团建
+同期烂铁出道的熊田其实也接了不少不错的动画歌曲了，本田小狼，史莱姆日记之类的，还在史莱姆里混了个龙套，应该算是ab的功劳吗虽然还是糊穿地心了
+之前我就觉得，熊田和鲤鱼的歌手发展模式挺像的，同期出道，后面发了几首单曲，一专发售都是同期，宣传上的广播也是那几个。然后接了个1st，虽然规模完全没法比。可能对于歌曲那边，烂铁负责的更多？
+
+*****
+
+####  lj205  
+##### 5103#       发表于 2022-9-20 09:23
+
+7月受伤真的是损失很多…………………………………………………………………………………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 5104#       发表于 2022-9-20 09:24
+
+ 本帖最后由 aoaoaodedede 于 2022-9-20 09:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57562458&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-20 09:08</a>
+
+不取消的话应该在有个铃木爱理节目和大石的平盘和h社的团建
+
+同期烂铁出道的熊田其实也接了不少不错的动画 ...</blockquote>
+熊田算是声优歌手，走的路其实要宽很多，而且Apollo Bay确实也能推，鲤鱼现在算是cosplayer/歌手，但是coser这边的事务基本停滞了，不知道Horipro在想什么，要说鲤鱼忙cos不好搞，我觉得也不太可能比海选Apollo Bay俩人忙，就挺迷的（cos这边的业务我以前在坛里举过例子，像龙约那样的，甚至我个人觉得像鲤鱼现在推特上挂的五等分的花嫁，基本是2019年上传推特的，不能排除是商单的可能，总不可能现在越混cos方面的资源越少了吧……）
+
+*****
+
+####  saya1892  
+##### 5105#       发表于 2022-9-20 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57559713&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-9-19 23:36</a>
+
+神秘就神秘在这预赛是远程大会，我感觉像几个方案没协调好吃书了</blockquote><blockquote>0052 名無しで叶える物語(しうまい) 2022/09/19(月) 12:05:16.51
+
+去年ボク「へえ離島でサンバやってるアホおるわ投票したろｗ」
+
+今年ボク「へえ中坊で鳥のコスプレしてるアホおるわ投票したろｗ」
+
+　↑
+
+これやろ</blockquote>
+去年 看到离岛有穿成桑巴的傻瓜投她们一票吧
+
+今年 看到有穿成鸟一样的中学生傻瓜就投她吧
+
+大概是这样吧，浮动票仓把固定票仓干死了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5106#       发表于 2022-9-20 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57562634&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 09:24</a>
+熊田算是声优歌手，走的路其实要宽很多，而且Apollo Bay确实也能推，鲤鱼现在算是cosplayer/歌手，但是cos ...</blockquote>
+可能不放过coser这个头衔，只是为了噱头了。h社之前签了yami，之后就开了个fc，偶尔做做fc直播，就没动静了。她也一直在上海，没去日本的意思，没法当参考。
+还就就是更衣人偶那个，我觉得就挺成功的，算是吧coser和歌手完美结合了，算是第一批吃螃蟹的了
+
+*****
+
+####  aoaoaodedede  
+##### 5107#       发表于 2022-9-20 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57562731&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-20 09:32</a>
+
+可能不放过coser这个头衔，只是为了噱头了。h社之前签了yami，之后就开了个fc，偶尔做做fc直播，就没动静 ...</blockquote>
+更衣人偶那个属于极少见可遇不可求的东西，噱头这东西就挺乐的，我记得鲤鱼几次上节目都提到了cos那边的事，但是h社就是没给coser的活<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5108#       发表于 2022-9-20 10:07
+
+说白还是hori资源也一般，特别是二次元向的应该更少
+
+*****
+
+####  cybernetics31  
+##### 5109#       发表于 2022-9-20 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那边歌手竞争这么激烈…………给点cv资源吧hori，现在基本就单条路走，有点难，三单我是会买，但估计到最后也就粉丝会买……………………
+
+*****
+
+####  plazum  
+##### 5110#       发表于 2022-9-20 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560054&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-20 00:02</a>
+
+我现在觉得极有可能
+
+毕竟除此之外你没法圆为什么她单对香音有如此的执念 ...</blockquote>
+我都看到有人说她是香音的黑暗面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 5111#       发表于 2022-9-20 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57563183&amp;ptid=2078110" target="_blank">plazum 发表于 2022-9-20 10:09</a>
+我都看到有人说她是香音的黑暗面了什么真假美猴王</blockquote>
+香音克服自己不能唱歌的恐惧的时候意外分裂出去的黑暗面分身是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最后被列拉的表演说服和香音合二为一成为超级香音
+他要真这么整我倒可以给算个好活
+
