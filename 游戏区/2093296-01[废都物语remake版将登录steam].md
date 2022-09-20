@@ -3401,3 +3401,25 @@ steam都有了，ns安排一下啊</blockquote>
 
 remake的消息出来了又去简单了解了下相关信息。这游戏玩起来是不是就是老博德那种crpg，但是堆料到极致的感觉？
 
+
+
+*****
+
+####  电磁炮233  
+##### 364#       发表于 2022-9-20 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57566895&amp;ptid=2093296" target="_blank">哆哆鸡 发表于 2022-9-20 14:58</a>
+久闻该作大名，以前也因为看到很多人吹所以去搜了一下相关的视频，然后发现是用rm做的，再一看画面就直接劝 ...</blockquote>
+独立游戏怎么和商业作品比堆料。。。更像是JRPG里融入了大量旁白性质的描述文字，所以读起来有CRPG的味道
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  曼陀罗肥  
+##### 365#       发表于 2022-9-20 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57566895&amp;ptid=2093296" target="_blank">哆哆鸡 发表于 2022-9-20 14:58</a>
+ 久闻该作大名，以前也因为看到很多人吹所以去搜了一下相关的视频，然后发现是用rm做的，再一看画面就直接劝 ...</blockquote>
+你但凡认真了解几分钟都不会说出crpg，老博得，堆料到极致这三个词。。。
+
