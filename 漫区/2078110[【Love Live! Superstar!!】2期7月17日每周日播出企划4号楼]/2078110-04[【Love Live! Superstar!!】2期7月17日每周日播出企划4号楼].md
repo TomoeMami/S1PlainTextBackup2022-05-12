@@ -6356,3 +6356,12 @@ That’s the way to think. If they take action while I’m still alive and healt
 站在观众角度就是不合理的，星整个动画都有很大的问题，可堇线的问题只是大问题下的一个缩影。这个动画组 ...</blockquote>
 那只能说是想法很好，表达出来稀烂
 
+
+
+*****
+
+####  darkendless  
+##### 5128#       发表于 2022-9-20 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烂都烂了，像上面坛友发的，中之人还要圆呢，也是辛苦几个小姐姐了。所以这破企划还是多发歌多开三次元活动吧，少做垃圾动画对大家都好。
+
