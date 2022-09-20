@@ -3493,3 +3493,12 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  christiny  
+##### 372#       发表于 2022-9-20 17:39
+
+什么都不怕，就怕简中翻译有没有民间汉化那么用心啊
+

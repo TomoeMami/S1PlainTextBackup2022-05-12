@@ -14814,3 +14814,26 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 有关那边pv评论海关掉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 1464#       发表于 2022-9-20 17:36
+
+ 本帖最后由 月夜凝雪 于 2022-9-20 17:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57556909&amp;ptid=2094448" target="_blank">两个路人 发表于 2022-9-19 20:59</a>
+如果正经做主线，以空轨为标准的话，目前3-4个国，应该能憋出7-8话OVA的吧，毕竟飞碟社在拖剧情上面经验足 ...</blockquote>
+其实伊苏才是最接近的例子吧，伊苏1那点故事当年都能出11话OVA，同样是主角SOLO的剧情（请忽略毫无战斗力的应急食品）
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  icecry  
+##### 1465#       发表于 2022-9-20 17:37
+
+<blockquote>兰开夏 发表于 2022-9-20 17:18
+有关那边pv评论海关掉了</blockquote>
+油管两个号正常，没关评论啊
+
