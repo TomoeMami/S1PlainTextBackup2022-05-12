@@ -14837,3 +14837,27 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 有关那边pv评论海关掉了</blockquote>
 油管两个号正常，没关评论啊
 
+
+
+*****
+
+####  性欲モンスター  
+##### 1466#       发表于 2022-9-20 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57540841&amp;ptid=2094448" target="_blank">消防 发表于 2022-9-18 17:49</a>
+
+男主长发女主短发算最少用的一种组合了
+
+而且原神对少年角色的把握很棒，正是刚开始长身体的四肢修长体格 ...</blockquote>
+我和我两个念中学的外甥都觉得男猪耳环长发露脐装都散发着一股娘娘腔小鲜肉的恶臭，而且他们两个还觉得他和多莉那种肿胀的裤子丑。
+
+*****
+
+####  防辐射的  
+##### 1467#       发表于 2022-9-20 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57557482&amp;ptid=2094448" target="_blank">两个路人 发表于 2022-9-19 21:33</a>
+
+你们看了这么多年动画，还不明白这是个团队系统性工程吗？编剧剧本写得再好，导演想不出镜头，不还是只能 ...</blockquote>
+如果是深度合作的话，其实mhy自己也有动画团队的，从各种过场动画和pv的水平来看，他们还不至于放任导演整二人转这种烂活
+
