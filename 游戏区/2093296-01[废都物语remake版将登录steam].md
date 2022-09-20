@@ -3453,3 +3453,43 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 <img src="https://p.sda1.dev/7/85113e6bd95b1c0607c2f5dfb8ccaacf/2.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/9f790d36c9283888387ae739e2b009e0/1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大暗月  
+##### 369#       发表于 2022-9-20 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">微博上有个参与了制作组的画师说“已经不是新建文件夹很久了”
+
+虽然挺模糊的吧，但是感觉可以期待不用等太久了
+
+*****
+
+####  Piano-Forest  
+##### 370#       发表于 2022-9-20 15:21
+
+官博：[https://m.weibo.cn/u/7791171653](https://m.weibo.cn/u/7791171653)
+
+[https://m.weibo.cn/detail/4815489761808527](https://m.weibo.cn/detail/4815489761808527)
+
+废都物语重制版官宣惹！！！！
+
+速速摸出贺图*1
+
+——————————
+
+虽菜但是也参与了重制版制作，感谢让我一览这个绝赞世界
+
+（已经不是新建文件夹很久了！！！！）
+<img src="https://p.sda1.dev/7/f6948da3c7f37b432488787d9ad6dfb6/007eFwFngy1h6c4enhlqtj31j328aq9k.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  纯狐娘娘  
+##### 371#       发表于 2022-9-20 15:22
+
+希望能够加点料吧，老实说如果战斗能够有个过场动画，那表现力就提升了不止一个等级
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
