@@ -14786,3 +14786,14 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 唉，希望三周年前能看到正片吧，做哪里我觉得都行，如果做其他时间线问题就是现在的角色都没法出现在动画里，感觉不太行啊
 
+
+
+*****
+
+####  unlimited_blade  
+##### 1462#       发表于 2022-9-20 16:31
+
+不如做各人气角色的单元剧算了，比如璃月汉弗莱的悠闲一日假期？
+
+—— 来自 Xiaomi 2201122C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
