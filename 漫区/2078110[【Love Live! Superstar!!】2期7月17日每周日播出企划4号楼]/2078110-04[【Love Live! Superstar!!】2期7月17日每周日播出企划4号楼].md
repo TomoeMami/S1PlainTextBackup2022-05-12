@@ -6365,3 +6365,13 @@ That’s the way to think. If they take action while I’m still alive and healt
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烂都烂了，像上面坛友发的，中之人还要圆呢，也是辛苦几个小姐姐了。所以这破企划还是多发歌多开三次元活动吧，少做垃圾动画对大家都好。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5129#       发表于 2022-9-20 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564207&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-20 11:14</a></blockquote>
+这是哪个采访来着
+

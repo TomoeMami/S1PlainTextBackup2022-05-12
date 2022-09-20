@@ -1807,3 +1807,16 @@ sp不是说不打算做对马岛2吗
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 196#         楼主| 发表于 2022-9-20 11:39
+
+Sony XDEV JP 协助忍组、山际真晃开发
+
+[https://twitter.com/JasonStewart74/status/1571713365470318594](https://twitter.com/JasonStewart74/status/1571713365470318594)
+
+Privileged to work on an exciting title as RiseOfTheRonin with Yasuda-san of  @TeamNINJAStudio @giwamasa and our @Sony_XDEV JP team. Only right to visit the Meiji Jingu Shrine. Birth of the Charter Oath in Five Articles and end of Feudal Shogunate Japan 
+
