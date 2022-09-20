@@ -3423,3 +3423,33 @@ remake的消息出来了又去简单了解了下相关信息。这游戏玩起�
  久闻该作大名，以前也因为看到很多人吹所以去搜了一下相关的视频，然后发现是用rm做的，再一看画面就直接劝 ...</blockquote>
 你但凡认真了解几分钟都不会说出crpg，老博得，堆料到极致这三个词。。。
 
+
+
+*****
+
+####  kamarus  
+##### 366#       发表于 2022-9-20 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57566895&amp;ptid=2093296" target="_blank">哆哆鸡 发表于 2022-9-20 14:58</a>
+久闻该作大名，以前也因为看到很多人吹所以去搜了一下相关的视频，然后发现是用rm做的，再一看画面就直接劝 ...</blockquote>
+全是槽点。
+就一退休老害做的免费独立游戏怎么成crpg了。
+
+*****
+
+####  天堂蜘蛛  
+##### 367#       发表于 2022-9-20 15:17
+
+新的人物立绘真的好棒
+
+prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 368#       发表于 2022-9-20 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57534527&amp;ptid=2093296" target="_blank">Piano-Forest 发表于 2022-9-18 09:24</a></blockquote>
+<img src="https://p.sda1.dev/7/85113e6bd95b1c0607c2f5dfb8ccaacf/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/9f790d36c9283888387ae739e2b009e0/1.jpg" referrerpolicy="no-referrer">
+
