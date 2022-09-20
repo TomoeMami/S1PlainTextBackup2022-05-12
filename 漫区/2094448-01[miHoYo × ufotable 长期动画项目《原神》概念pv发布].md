@@ -14777,3 +14777,12 @@ https://www.bilibili.com/video/BV1Ms411S7SU
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  莫拉尔moral  
+##### 1461#       发表于 2022-9-20 15:46
+
+唉，希望三周年前能看到正片吧，做哪里我觉得都行，如果做其他时间线问题就是现在的角色都没法出现在动画里，感觉不太行啊
+
