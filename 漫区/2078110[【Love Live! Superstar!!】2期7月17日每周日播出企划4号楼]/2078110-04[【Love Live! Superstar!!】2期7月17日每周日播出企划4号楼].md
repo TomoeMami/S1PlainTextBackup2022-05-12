@@ -6324,3 +6324,35 @@ That’s the way to think. If they take action while I’m still alive and healt
 
 我又想了下，前面坛友这句“观众觉得可可没理由讨厌堇没理由对堇态度不好和实际呈现出来的出现了巨大的反差也可以说是完全相悖”，从这一集我知道可可确实有讨厌堇的理由，但是这并不能为之前那种人物相处模式作出什么合理的解释，如果只看那些符合这一集的伏笔而忽略了那些有问题的地方，这能说明这是个好故事吗？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5125#       发表于 2022-9-20 11:14
+
+<blockquote>————确实。在这方面来讲是个非常有趣的故事呢。绘森小姐感觉如何呢。
+
+绘森：啊......只能说很抱歉夏美做出了那么奇怪的事情（笑）。虽然她做出这种行动的理由在第6话中有解释，但无论什么理由都不可以想把Liella!分裂！因此，感到对粉丝非常抱歉。 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 5126#       发表于 2022-9-20 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564112&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-20 11:08</a>
+
+我又想了下，前面坛友这句“观众觉得可可没理由讨厌堇没理由对堇态度不好和实际呈现出来的出现了巨大的反差 ...</blockquote>
+站在观众角度就是不合理的，星整个动画都有很大的问题，可堇线的问题只是大问题下的一个缩影。这个动画组就是不考虑粉丝感受只为了完成任务或者说是一些自己的创作意图在使用角色。所以对这个粪动画真的没必要对情节本身过于纠结，不带入任何粉丝视角和立场站在场外去分析比较好。在网上跟节奏最后难受的是粉丝自己。
+
+*****
+
+####  aoaoaodedede  
+##### 5127#       发表于 2022-9-20 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57564256&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-9-20 11:17</a>
+
+站在观众角度就是不合理的，星整个动画都有很大的问题，可堇线的问题只是大问题下的一个缩影。这个动画组 ...</blockquote>
+那只能说是想法很好，表达出来稀烂
+
