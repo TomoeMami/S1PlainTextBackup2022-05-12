@@ -3578,3 +3578,18 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  灰狼  
+##### 377#       发表于 2022-9-21 06:12
+
+<blockquote>lil_is 发表于 2022-9-21 02:05
+一周目贤者线Te通关，感觉真不错，有时间打个ge出来。
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1 ...</blockquote>
+如果骑士线是史诗，那神官线唯有神话可形容
+
+感觉神官线其实适合最后打
+
