@@ -8502,3 +8502,147 @@ non开口差点把我带走<img src="https://static.saraba1st.com/image/smiley/f
 我没看直播 看松雾说强的…好像还是这首交响曲…</blockquote>
 松雾的话听听就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 5334#       发表于 2022-9-21 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581974&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 16:05</a>
+感觉运营层已经在隐约的转移主推点了，这段时间感觉小百合的露脸次数下降不少，青山却越来越多，之前的生 ...</blockquote>
+啊这，槽点太多了不知怎么说，只能说我没看出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kata魂  
+##### 5335#       发表于 2022-9-21 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582066&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-21 16:10</a>
+
+松雾的话听听就好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">好吧…反正也没看就不评断了 
+
+*****
+
+####  ads147147  
+##### 5336#       发表于 2022-9-21 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582053&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-21 16:09</a>
+
+原来二期动画一直在给我们灌输二期生不行是认真的，看来真的是不断强调好让大家提前做好心理准备 ...</blockquote>
+那么作为三期生的结那，会很强很强吗。。。
+
+*****
+
+####  Enakina  
+##### 5337#       发表于 2022-9-21 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582053&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-21 16:09</a>
+原来二期动画一直在给我们灌输二期生不行是认真的，看来真的是不断强调好让大家提前做好心理准备 ...</blockquote>
+就事论事，我觉得除了铃原都还不错
+就这个最早钦定的公招第三人，只能说失望了
+
+*****
+
+####  稀勢のささ  
+##### 5338#       发表于 2022-9-21 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我只听了后面 但彩这也没好到哪儿去吧
+
+*****
+
+####  沙茶酱  
+##### 5339#       发表于 2022-9-21 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582087&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-21 16:11</a>
+那么作为三期生的结那，会很强很强吗。。。</blockquote>
+就薇恩第三集的表现，估计不会很差
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 5340#       发表于 2022-9-21 16:15
+
+大熊和朱茵我一开始就看好，前偶像嘛，真的就是，刚才交响曲跟鲤鱼一前一后唱，我真觉得对她打击挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5341#       发表于 2022-9-21 16:17
+
+彩下去估计要哭鼻子了，卡拉OK唱法肯定不能长久的啦，该补课咯
+
+*****
+
+####  starring  
+##### 5342#       发表于 2022-9-21 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582085&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-21 16:11</a>
+
+好吧…反正也没看就不评断了</blockquote>
+他作为一个纯正的企划粉，护短的话说过太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+化军已经上传了交响曲，特地去听了，开口真的把我送走<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+尤其是二期四人唱完接五老星，那差距还能用滤镜遮挡的话，只能说是纯度100%星厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 5343#       发表于 2022-9-21 16:19
+
+重听了一遍，emorin跑调的地方比non还多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qty  
+##### 5344#       发表于 2022-9-21 16:20
+
+逢田妹我觉得还好，下下苦工还是有希望的，铃原这个真的有点悬，感觉是天生的缺陷，不知道当时怎么把她选上来的。
+
+*****
+
+####  saya1892  
+##### 5345#       发表于 2022-9-21 16:20
+
+大雄有一句也大白嗓了，yabu一直保持得不错
+
+第二首感觉有点太低了全员嗓子都很紧下不去
+
+晚上曲目一样吗，不一样来个九人始空让我听听啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 5346#       发表于 2022-9-21 16:21
+
+这波啊，这波是二三次元同步<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adw667  
+##### 5347#       发表于 2022-9-21 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581974&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 16:05</a>
+
+感觉运营层已经在隐约的转移主推点了，这段时间感觉小百合的露脸次数下降不少，青山却越来越多，之前的生 ...</blockquote>
+他要是安排五人常夏我就信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5348#       发表于 2022-9-21 16:21
+
+不过还有一点要说，今天是二期第一次表演，后面还有提升的空间，离三巡还有时间，还能提高
+
