@@ -13549,3 +13549,43 @@ yls有良心就每单多点石头呗
 摩根5宝110还有5w的补刀量
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2717#       发表于 2022-9-21 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584861&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-21 19:20</a>
+
+单说一面卡莲比摩根能打多了
+
+靠着WRBA+CBA，90级3宝一面补刀需求只有四位数
+
+摩根5宝110还有5w的补刀量</blockquote>
+我看了几个攻略，发现有人开始拿RBA代替奥伯龙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果50NP够用的情况下要打红暴...
+
+*****
+
+####  alucardcz  
+##### 2718#       发表于 2022-9-21 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584851&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:20</a>
+
+如果有奥伯龙和C呆的话可以抄这个攻略，一与六加成：
+
+【【FGO超阴间本】数值崩坏？关低100w血！ 90++ 月癌 ...</blockquote>
+这开2个宝具=多2个回合。。本末倒置了
+
+*****
+
+####  alucardcz  
+##### 2719#       发表于 2022-9-21 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584897&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:22</a>
+
+我看了几个攻略，发现有人开始拿RBA代替奥伯龙了如果50NP够用的情况下要打红暴... ...</blockquote>
+打红爆哪需要这么多事 狂娜一红就够了 问题还是这不能算稳定解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说是不是没有6加成不换人的阵容
+

@@ -9136,3 +9136,40 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 现在在回放中，b想在b站看的朋友可以来
 
+
+
+*****
+
+####  cybernetics31  
+##### 5404#       发表于 2022-9-21 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 5405#       发表于 2022-9-21 19:27
+
+有点晚感觉，很多up聊过了
+
+*****
+
+####  稀勢のささ  
+##### 5406#       发表于 2022-9-21 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是交响曲 有心理准备后倒是不会心肺急停 但这是嘴里卡痰了吗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5407#       发表于 2022-9-21 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">铃原这唱歌声音接受不了，而且面部表情管理也有点糟。
+
+*****
+
+####  ViyViy  
+##### 5408#       发表于 2022-9-21 19:30
+
+台长套个定型文带过也没说啥东西呀，而且居然还给5.5，太客气了，建议低点。
+
