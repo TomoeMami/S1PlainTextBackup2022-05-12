@@ -9601,3 +9601,13 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 小百合和yabu的合影是鲤鱼拍的，本人还专门跑到yabu推下邀功<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是liella拍照大师
 
+
+
+*****
+
+####  starring  
+##### 5446#       发表于 2022-9-21 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588074&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-21 23:05</a></blockquote>
+这种露指露半只手掌的手套本应该好涩，但是这个皮质又不够贴合一点都不涩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

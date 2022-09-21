@@ -14091,3 +14091,29 @@ bilibili.com/video/av558257404/
 
 翻了下这次礼装我还没掉一个，没法满破……
 
+
+
+*****
+
+####  alucardcz  
+##### 2763#       发表于 2022-9-21 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588375&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-9-21 23:28</a>
+
+没钱，光棍一条消费欲望低下而已
+
+翻了下这次礼装我还没掉一个，没法满破…… ...</blockquote>
+还是说明钱多  没钱饭都没的吃了你还能在这嘻嘻哈哈上s1？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 2764#       发表于 2022-9-21 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588416&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 23:32</a>
+
+还是说明钱多  没钱饭都没的吃了你还能在这嘻嘻哈哈上s1？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为我是真废物住在老家啊，吃的不花钱买快乐水喝花钱而已
+
+90++有点硬……没摩根卡的话感觉没法2T结束的……
+
