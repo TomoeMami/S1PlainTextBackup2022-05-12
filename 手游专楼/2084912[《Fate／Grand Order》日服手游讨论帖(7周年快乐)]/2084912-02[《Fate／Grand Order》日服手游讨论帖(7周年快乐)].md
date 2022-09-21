@@ -14155,3 +14155,17 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，结果后面几把发牌制裁直接就没法打了，我黑杯只有一张试用了下也不太行
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 2767#       发表于 2022-9-21 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588649&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 23:50</a>
+
+试了下 这组合稳定换人6加成  有需要的朋友可以试试看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很可惜我不抽奥伯龙所以用不了这个阵容
+
+把剩下几张护符丢到千利休池里果然没出货，看了下持续到10月，就不用石头补到11连了……
+
