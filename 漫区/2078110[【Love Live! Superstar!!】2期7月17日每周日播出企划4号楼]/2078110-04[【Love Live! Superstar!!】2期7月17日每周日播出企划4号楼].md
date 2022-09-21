@@ -9220,3 +9220,66 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 相关链接居然有漫才就鲤谱</blockquote>
 笑死 不愧是她<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 5414#       发表于 2022-9-21 19:41
+
+唉，盾就盾吧。
+
+*****
+
+####  cybernetics31  
+##### 5415#       发表于 2022-9-21 19:43
+
+？？？所以non是去了去年那次无观众活动？企划要点脸吧 艹<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 5416#       发表于 2022-9-21 19:46
+
+怎么感觉鱼要绷不住
+
+*****
+
+####  qty  
+##### 5417#       发表于 2022-9-21 19:48
+
+真绷不住了啊
+
+*****
+
+####  aoaoaodedede  
+##### 5418#       发表于 2022-9-21 19:48
+
+ 本帖最后由 aoaoaodedede 于 2022-9-21 19:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585261&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-21 19:43</a>
+？？？所以non是去了去年那次无观众活动？企划要点脸吧 艹</blockquote>
+是指去年那个oped发售活动么？还是指一单发售活动？
+
+*****
+
+####  Enakina  
+##### 5419#       发表于 2022-9-21 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585261&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-21 19:43</a>
+？？？所以non是去了去年那次无观众活动？企划要点脸吧 艹</blockquote>
+这不早就公开的消息了吗，没看铃原访谈吗，她在5人公布前就钦定了，所以企划看上她啥了
+
+*****
+
+####  优妮可  
+##### 5420#       发表于 2022-9-21 19:49
+
+心情复杂，二次元三次元都不顺唉
+
+*****
+
+####  稀勢のささ  
+##### 5421#       发表于 2022-9-21 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">平时应该玩的挺开心的 挺好的
+

@@ -13694,3 +13694,107 @@ yls有良心就每单多点石头呗
 可惜没有 ...</blockquote>
 千利休是倍卡。。。。。还要5宝 这不是在丢人？ 还绿王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 2728#       发表于 2022-9-21 19:42
+
+我租的1宝90级卡莲队，是带100级黑杯，wrba换人奥伯龙，稳定2T击杀，不需要补刀
+
+RBA换CBA就不行了，第二面要补刀。唯一的问题是是RBA太难找了
+
+*****
+
+####  alucardcz  
+##### 2729#       发表于 2022-9-21 19:43
+
+ 本帖最后由 alucardcz 于 2022-9-21 19:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585209&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-21 19:41</a>
+
+这肯定啊，摩根打50攻要捏到第三面
+
+1面有效的buff就30宝具威力+100红魔放+被动8，啥特攻都没有
+
+你带黑杯， ...</blockquote>
+哦 你1技能第2面才开？
+
+那没事了 不开12技能第1面我试过好像要补4万
+
+不过因为带黑杯 第2面不需要降防就能秒 所以我第1面全开了
+
+*****
+
+####  exiaexa  
+##### 2730#       发表于 2022-9-21 19:46
+
+ 本帖最后由 exiaexa 于 2022-9-21 19:48 编辑 
+
+搬出了无敌的bx大仙
+
+2宝90级打了75w，来个5宝肯定全杀了
+
+高配应该是最稳定的那批之一
+
+两个宝具稳杀1面和bb，然后随便打一刀
+
+或者有红卡就直接砸死1面，然后2t随便打
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  铁柱子  
+##### 2731#       发表于 2022-9-21 19:47
+
+早知道看眼论坛，这1kw的大BB好悬没翻车。。。叶良树疯了吗没倍卡这么玩
+
+*****
+
+####  铁柱子  
+##### 2732#       发表于 2022-9-21 19:48
+
+明天还有个主线？看他能整出个什么活
+
+*****
+
+####  alucardcz  
+##### 2733#       发表于 2022-9-21 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585317&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-21 19:47</a>
+
+早知道看眼论坛，这1kw的大BB好悬没翻车。。。叶良树疯了吗没倍卡这么玩</blockquote>
+醒醒  1kw的话现在已经腥风血雨了
+
+*****
+
+####  qb0079  
+##### 2734#       发表于 2022-9-21 19:49
+
+1宝黑杯金时双杀狐换人奥伯龙，只要2面金时有1张红卡就是2T
+
+*****
+
+####  alucardcz  
+##### 2735#       发表于 2022-9-21 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585345&amp;ptid=2084912" target="_blank">qb0079 发表于 2022-9-21 19:49</a>
+
+1宝黑杯金时双杀狐换人奥伯龙，只要2面金时有1张红卡就是2T</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗蛋1宝就能打100万？
+
+*****
+
+####  Jamaisvu  
+##### 2736#       发表于 2022-9-21 19:50
+
+<blockquote>alucardcz 发表于 2022-9-21 19:42
+千利休是倍卡。。。。。还要5宝 这不是在丢人？ 还绿王</blockquote>
+因为是倍卡所以正好适合这个活动嘛...
+
+其实我还看到一个一宝千利休的3T，不过是个日服萌新组的队，打手和拐的技能都很低（411的千利休，635的RBA），稍微升升级应该就不用像视频里那样换人上来充能加攻了，看着也还行吧...：
+
+【【FGO日服】一宝千利休3T90++活动（平民娱乐向）-哔哩哔哩】 https://b23.tv/Fd3n7X8
+
