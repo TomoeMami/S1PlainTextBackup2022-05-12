@@ -8834,3 +8834,84 @@ B站有上传，没看的可以看看
 突然想到这snp寄了 哪怕结尾不入队3rd也会把vn摇过来吧  到时候就有你什么冠军看了 ...</blockquote>
 巡演肯定会让结那来出演solo啊，到时候就见真章了。
 
+
+
+*****
+
+####  starring  
+##### 5371#       发表于 2022-9-21 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582641&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-21 16:47</a>
+
+巡演肯定会让结那来出演solo啊，到时候就见真章了。</blockquote>
+看别处说法结那有玩过乐队，鉴于前偶像emo今天的表现，得谨慎看待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5372#       发表于 2022-9-21 16:52
+
+铃原我是觉得在好好练练吧，别以后整得唱好了一次都得夸的程度
+
+*****
+
+####  沙茶酱  
+##### 5373#       发表于 2022-9-21 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582390&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-21 16:31</a>
+主要是这套solo感觉不比岚珠的轻松到哪里去，有点怀疑。</blockquote>
+说到这个，我突然间想到一个问题，感觉虹哪怕后面再加人加到15个或者16个，我都不觉得哪里突兀；但是星这边加人，一开始让我有一种很奇怪的违和感，哪怕现在我都还有种难以置信的不现实感。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名津流  
+##### 5374#       发表于 2022-9-21 16:56
+
+star宣言 BV1X14y1Y7ny 
+
+这首感觉是不是高低音动态变化太大了，经验不足的人确实不好驾驭，头一句低音的时候其实大家都有一点怪，哪怕是一期生最稳的鱼pay渚三人第一句这么低其实也谈不上多好听，至于最惨的sayu和non那就不提了
+
+但切换到高音的时候大家就好一些，比如02:09 这句non酱吼上去了感觉就好不少
+
+*****
+
+####  aoaoaodedede  
+##### 5375#       发表于 2022-9-21 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582779&amp;ptid=2078110" target="_blank">名津流 发表于 2022-9-21 16:56</a>
+
+star宣言 BV1X14y1Y7ny 
+
+这首感觉是不是高低音动态变化太大了，经验不足的人确实不好驾驭，头一句低音的时 ...</blockquote>
+女声低音恐怕不怎么好唱吧
+
+*****
+
+####  奥柏伦亲王  
+##### 5376#       发表于 2022-9-21 16:58
+
+其实熊这个有点过度用力的表演方式是更适合在二期里充当sayu的角色的，响度足，动作幅度大，虽然音准不如yabu但是感染力很强。铃原是真的唱不上去，更适合做一个衬托的角色
+
+*****
+
+####  稀勢のささ  
+##### 5377#       发表于 2022-9-21 17:00
+
+<blockquote>バーカ
+
+最初から上手かったら苦労しないっつーの</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5378#       发表于 2022-9-21 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582714&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-21 16:52</a>
+说到这个，我突然间想到一个问题，感觉虹哪怕后面再加人加到15个或者16个，我都不觉得哪里突兀；但是星这 ...</blockquote>
+虹这边已经更像是偶像大师那块了，只是团队相处处理的更好（排除as主线）。虹那边相互乱炖给人的感觉也不突兀，还有企划中最特别的侑。
+星这边，只能说雪崩的时候每一片雪花都在勇闯天涯，光是中之人再怎么顶，也是顶不住的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

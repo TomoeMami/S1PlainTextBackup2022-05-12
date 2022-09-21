@@ -4428,3 +4428,16 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 犬山那明摆着录像，你想啥呢。</blockquote>
 2场都是录播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">甚至跳舞不是本人
 
+
+
+*****
+
+####  往世雷书  
+##### 12469#       发表于 2022-9-21 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57580808&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-9-21 15:02</a>
+2场都是录播甚至跳舞不是本人</blockquote>
+舞替？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
