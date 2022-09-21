@@ -8646,3 +8646,75 @@ non开口差点把我带走<img src="https://static.saraba1st.com/image/smiley/f
 
 不过还有一点要说，今天是二期第一次表演，后面还有提升的空间，离三巡还有时间，还能提高
 
+
+
+*****
+
+####  ViyViy  
+##### 5349#       发表于 2022-9-21 16:21
+
+日系最喜欢的璞玉文化呗，只能说大家的等待都有时限，就看看这个时限里你这璞玉能雕的多好了
+
+*****
+
+####  Enakina  
+##### 5350#       发表于 2022-9-21 16:23
+
+B站有上传，没看的可以看看
+评论大多挺友善，也挺好，难听的话就在别处说吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 5351#       发表于 2022-9-21 16:24
+
+喜欢璞玉怎么不去饼圈挑人
+
+*****
+
+####  csolfans  
+##### 5352#       发表于 2022-9-21 16:25
+
+ 本帖最后由 csolfans 于 2022-9-21 16:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过还有很长时间，希望能成为一块好玉。不过交响乐二期生唱开头真不是一个很好的选择，对比sayu和nagi差距太明显了
+
+*****
+
+####  starring  
+##### 5353#       发表于 2022-9-21 16:27
+
+只有这楼能说难听的话，B站评论区和微博全是善意的评论
+
+二期四人，yabu算是表现最好，大熊唱歌太用力了声音像崩出来那样，剩下两人只能说未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5354#       发表于 2022-9-21 16:30
+
+第一场活动就全开麦让大家听，倒是挺真诚的，接着看吧
+
+*****
+
+####  愛さ実  
+##### 5355#       发表于 2022-9-21 16:30
+
+微博之于推特，S1之于5ch，拉圈讨论环境怎么被同化这么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 5356#       发表于 2022-9-21 16:30
+
+照现在这情况，三巡前几场估计是不用太过关注了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等中段或最后看看？
+
+*****
+
+####  aoaoaodedede  
+##### 5357#       发表于 2022-9-21 16:30
+
+不怎么懂唱歌，铃原这个私のsymphony的开头感觉太软了，只能说是另辟风格
+
