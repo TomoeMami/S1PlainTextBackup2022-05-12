@@ -13972,3 +13972,19 @@ bilibili.com/video/av558257404/
 清完体力没事干，打开了抽卡界面，发现今天有一张呼符，扔进去，彩圈，阿国……………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  eyeego  
+##### 2751#       发表于 2022-9-21 22:09
+
+5宝摩根还在射程范围内啊 愿意换人的话这也不难杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2752#       发表于 2022-9-21 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前还没看到一个6加成不换人稳定杀的队伍  怎么肥似啊
+
