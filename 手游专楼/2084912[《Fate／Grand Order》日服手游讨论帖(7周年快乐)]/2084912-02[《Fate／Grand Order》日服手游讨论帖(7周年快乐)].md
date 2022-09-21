@@ -14230,3 +14230,12 @@ bilibili.com/video/av558257404/
 看了眼1000w血第一反应是掏妹妹打，结果发现2宝妹妹根本打不动，换人都打不动
 然后想起来我狗了2宝千利休<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2774#       发表于 2022-9-22 07:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是100W么 为什么要加个0
+
