@@ -14220,3 +14220,13 @@ bilibili.com/video/av558257404/
 
 上巴姐啊 套个贯通跟强解耐性<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 2773#       发表于 2022-9-22 04:02
+
+看了眼1000w血第一反应是掏妹妹打，结果发现2宝妹妹根本打不动，换人都打不动
+然后想起来我狗了2宝千利休<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
