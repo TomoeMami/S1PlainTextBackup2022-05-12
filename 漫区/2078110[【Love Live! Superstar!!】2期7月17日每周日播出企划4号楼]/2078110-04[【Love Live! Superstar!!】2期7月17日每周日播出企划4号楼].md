@@ -8304,3 +8304,116 @@ non开口差点把我带走<img src="https://static.saraba1st.com/image/smiley/f
 
 我不接受这首让她们唱……………………………………………………………………………………………………………………………………………………
 
+
+
+*****
+
+####  csolfans  
+##### 5310#       发表于 2022-9-21 15:52
+
+我觉得sayu还行……是因为我太久没看星的live了吗
+
+
+
+*****
+
+####  Kfly  
+##### 5311#       发表于 2022-9-21 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581670&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-21 15:49</a>
+我草 这开头两句 要杀我不用这样</blockquote>
+差点被送走……………<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 5312#       发表于 2022-9-21 15:54
+
+手套真的丑到爆，这材质配上这颜色像是上门修水管的一样。
+
+*****
+
+####  csolfans  
+##### 5313#       发表于 2022-9-21 15:54
+
+彩蚌埠住了
+
+*****
+
+####  稀勢のささ  
+##### 5314#       发表于 2022-9-21 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱就算了 唱成这个B样 没法和解了
+
+*****
+
+####  Enakina  
+##### 5315#       发表于 2022-9-21 15:55
+
+铃原这是怎么钦定了
+
+*****
+
+####  愛さ実  
+##### 5316#       发表于 2022-9-21 15:56
+
+唱就算了，还是symphony
+无伴奏，游走在调子边缘的大白嗓<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+劲太大了，还没缓过来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 5317#       发表于 2022-9-21 15:57
+
+小百合唱跳走音逐渐离谱
+
+新四人交响炸裂出离愤怒
+
+横批：心态炸裂
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5318#       发表于 2022-9-21 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">unison不会也要出9人吧
+
+*****
+
+####  a92063256  
+##### 5319#       发表于 2022-9-21 15:58
+
+铃原唱symphony确实有点翻车翻得太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5320#       发表于 2022-9-21 15:58
+
+交响曲还让一期生上来唱，你要么让二期生全唱完，毁了就毁了，这对比那么明显不是打击二期生？
+
+*****
+
+####  挖坑毕挺尸  
+##### 5321#       发表于 2022-9-21 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一单会不会排上9人版
+
+*****
+
+####  ViyViy  
+##### 5322#       发表于 2022-9-21 16:00
+
+看到5改9突然心生阴暗，前几天出去抱怨被说拍手可C堵嘴巴，运营麻烦动一下，让这些人看看这曲子到底谁C
+
+*****
+
+####  Enakina  
+##### 5323#       发表于 2022-9-21 16:00
+
+有人说铃原唱的很好？？？？
+是我耳朵的问题，还是不会欣赏
+

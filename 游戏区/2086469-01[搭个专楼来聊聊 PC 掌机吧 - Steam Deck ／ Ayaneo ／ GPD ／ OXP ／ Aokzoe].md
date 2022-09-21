@@ -3134,3 +3134,22 @@ GPD这营销真的是，几个员工装路人发几个泄漏视频，群里也�
 GPD这营销真的是，几个员工装路人发几个所谓“泄漏”视频，群里也一堆装路人的水军，几张lowb宣传图还说是 ...</blockquote>
 关键那几个员工从来不换号<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 255#         楼主| 发表于 2022-9-21 15:56
+
+[https://www.bilibili.com/video/BV1nG411g7jM/](https://www.bilibili.com/video/BV1nG411g7jM/)
+
+Ayaneo 2 的实际，边框的确不错。
+
+<img src="https://img.saraba1st.com/forum/202209/21/155626wzdogkxyxwxwdnon.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 15:56 上传
+
