@@ -9008,3 +9008,12 @@ star宣言 BV1X14y1Y7ny
 
 新四人里声音资质最好的应该就是大熊了，气真的足，音域也高，再练一段时间感觉能跟pay不相上下，yabu的音色很不错，但还是有点气短，高音唱起来有些吃力
 
+
+
+*****
+
+####  cybernetics31  
+##### 5389#       发表于 2022-9-21 18:30
+
+求个地址、、、、、、、、、、<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+

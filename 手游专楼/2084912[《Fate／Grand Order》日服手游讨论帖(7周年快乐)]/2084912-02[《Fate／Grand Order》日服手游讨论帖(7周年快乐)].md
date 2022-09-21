@@ -13359,3 +13359,48 @@ yls有良心就每单多点石头呗
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那问题来了 无敌的狂娜5宝满配不带黑杯第2面伤海够吗 第1面反正2宝就够了
 
+
+
+*****
+
+####  廖化  
+##### 2702#       发表于 2022-9-21 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583282&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 17:33</a>
+
+100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?</blockquote>
+看了下国服可以用这个配置，日服……日服还是老老实实刷术本吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2703#       发表于 2022-9-21 18:32
+
+试了两个阵容：
+
+第一个是五宝狂娜带活动礼装+双杀狐，一面狂娜技能全开，俩狐狸交三技能开宝具，二面是狐狸技能全开，狂娜开第二次一技能，加上衣服加攻，打不死...要三回合：
+
+<img src="https://img.saraba1st.com/forum/202209/21/182615f0j0tmmd2ttu80c8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220921_181930_com.excean.gspace.jpg</strong> (792.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 18:26 上传
+
+第二个是二宝壹与带活动礼装+双C呆，因为一面是不克制的单体，所以需要三卡连携带extra并且算上宝具的诅咒才能打死，不过正好回NP了。二面打不死，用了四回合再开宝具才过关：
+
+<img src="https://img.saraba1st.com/forum/202209/21/182815b0qdz9tzddtt9yyv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220921_182242_com.excean.gspace.jpg</strong> (796.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 18:28 上传
+
+不知道高宝小教授的对善特攻宝具打混沌善的BB效果如何...但无论如何这个本都很难打...也许千利休会好用一些？一二面都职介克制，宝具人之力特攻对BB有效？
+
+等大佬开发出稳定不换人阵容吧......
+
+没倍卡打100W血确实难顶，再变本加厉的话搞不好下次的90++本关底BOSS该自带宝具抗性了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

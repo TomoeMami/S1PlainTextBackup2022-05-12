@@ -4441,3 +4441,18 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ashero  
+##### 12470#       发表于 2022-9-21 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582827&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-9-21 17:00</a>
+舞替？
+
+—— 来自 S1Fun</blockquote>
+想多了 请不起的 反正这世界上没有别人能模仿她的奇葩小动作<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
