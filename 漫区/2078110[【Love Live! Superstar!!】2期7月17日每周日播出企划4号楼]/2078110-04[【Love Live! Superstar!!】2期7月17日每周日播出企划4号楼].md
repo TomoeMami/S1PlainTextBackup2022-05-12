@@ -9341,3 +9341,38 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">交响曲看了一截还是没看下去，真的不想看这四位了，她们9个私下开心就行
 
+
+
+*****
+
+####  adw667  
+##### 5428#       发表于 2022-9-21 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585127&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-21 19:37</a>
+
+【鲤式唱法-哔哩哔哩】 https://b23.tv/4mpV9AF
+
+相关链接居然有漫才就鲤谱</blockquote>
+我直接笑成一个千<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  unconsolable  
+##### 5429#       发表于 2022-9-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585201&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-21 19:40</a>
+
+笑死 不愧是她</blockquote>
+[TV2] 4.6分！不如A5！史上最拉！脸都不要了！2022年7月新番大爆炸（2）
+[https://www.bilibili.com/video/BV1824y1o7M2/](https://www.bilibili.com/video/BV1824y1o7M2/)
+
+*****
+
+####  darkendless  
+##### 5430#       发表于 2022-9-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585261&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-21 19:43</a>
+
+？？？所以non是去了去年那次无观众活动？企划要点脸吧 艹</blockquote>
+根据采访铃原是在最终审查后挺长时间的某一天突然接到电话问要参加二期吗，并且本人见证了一期生cast的发表，也去了出道单曲的发售活动。具体可以见[LoveLive!Days Vol.30 铃原希实访谈翻译](https://weibo.com/ttarticle/p/show?id=2309404796425837084695)。
+

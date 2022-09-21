@@ -13833,3 +13833,12 @@ rba、奥宝和千利休都没练满技能<img src="https://static.saraba1st.com
 狗蛋1宝就能打100万？</blockquote>
 能打130W
 
+
+
+*****
+
+####  里村紅葉  
+##### 2740#       发表于 2022-9-21 20:22
+
+三宝卡莲第二面打了180W总伤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜还是要带黑杯
+
