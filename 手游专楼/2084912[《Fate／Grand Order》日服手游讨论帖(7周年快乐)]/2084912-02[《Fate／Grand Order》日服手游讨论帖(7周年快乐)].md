@@ -14117,3 +14117,41 @@ bilibili.com/video/av558257404/
 
 90++有点硬……没摩根卡的话感觉没法2T结束的……
 
+
+
+*****
+
+####  alucardcz  
+##### 2765#       发表于 2022-9-21 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588516&amp;ptid=2084912" target="_blank">霧谷藤乃 发表于 2022-9-21 23:40</a>
+
+因为我是真废物住在老家啊，吃的不花钱买快乐水喝花钱而已
+
+90++有点硬……没摩根卡的话感觉没法2 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/21/234910fxbw6xxe7nhezen7.jpg" referrerpolicy="no-referrer">
+
+<strong>23232323.jpg</strong> (524.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/234923c88iwix10ff0i9fi.jpg" referrerpolicy="no-referrer">
+
+<strong>2334343545.jpg</strong> (721.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 23:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下 这组合稳定换人6加成  有需要的朋友可以试试看
+
+*****
+
+####  霧谷藤乃  
+##### 2766#       发表于 2022-9-21 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，结果后面几把发牌制裁直接就没法打了，我黑杯只有一张试用了下也不太行
+
