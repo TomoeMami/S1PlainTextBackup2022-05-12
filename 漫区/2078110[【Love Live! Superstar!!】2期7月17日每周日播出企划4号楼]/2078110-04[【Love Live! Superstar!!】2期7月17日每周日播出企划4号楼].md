@@ -7944,3 +7944,35 @@ https://twitter.com/_hokuna</blockquote>
 演出哪里能看？求个指路。谢谢</blockquote>
 bilibili23862727，有指路
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5282#       发表于 2022-9-21 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以新人水平有什么说法吗 
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5283#       发表于 2022-9-21 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上班没空看 等repo
+
+*****
+
+####  奥柏伦亲王  
+##### 5284#       发表于 2022-9-21 15:30
+
+只能说大熊没让我失望
+
+*****
+
+####  csolfans  
+##### 5285#       发表于 2022-9-21 15:31
+
+<blockquote>稀勢のささ 发表于 2022-9-21 15:26
+所以新人水平有什么说法吗</blockquote>
+气都挺稳
+

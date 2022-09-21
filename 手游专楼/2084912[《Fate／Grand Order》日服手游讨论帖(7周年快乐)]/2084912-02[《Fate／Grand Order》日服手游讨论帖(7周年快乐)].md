@@ -13131,3 +13131,15 @@ yls有良心就每单多点石头呗
 
 现在狗粮本效率很夸张的，刷一刷就有了
 
+
+
+*****
+
+####  廖化  
+##### 2683#       发表于 2022-9-21 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57579862&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-9-21 14:04</a>
+
+不优先拉满c呆反而先给孔老师310看不懂，这次活动送的2宝壹与+双c呆能冲所有333本，技能都不用点的 ...</blockquote>
+你认真看下我ID呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
