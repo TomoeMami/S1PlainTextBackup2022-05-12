@@ -8782,3 +8782,55 @@ B站有上传，没看的可以看看
 
 预料之中吧，水平差距。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5365#       发表于 2022-9-21 16:42
+
+想快速查询liella9人状态我建议去阿B搜一下star宣言<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5366#       发表于 2022-9-21 16:43
+
+让你们质疑动画一直在说二期生差，没想到是事实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就这能赢VN？
+
+*****
+
+####  奥柏伦亲王  
+##### 5367#       发表于 2022-9-21 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582564&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-21 16:43</a>
+
+让你们质疑动画一直在说二期生差，没想到是事实吧，就这能赢VN？</blockquote>
+懂了，五老星带一个土妹，不输VN才怪（我好刻薄
+
+*****
+
+####  稀勢のささ  
+##### 5368#       发表于 2022-9-21 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到这snp寄了 哪怕结尾不入队3rd也会把vn摇过来吧  到时候就有你什么冠军看了
+
+*****
+
+####  ViyViy  
+##### 5369#       发表于 2022-9-21 16:47
+
+那这周第十集赶快输罢，然后11、12真可可回搞个可香被刺第九集，究极巨魔！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+输了反而三期祖宗之法了，输了怎么拉VN？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5370#       发表于 2022-9-21 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582610&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-21 16:46</a>
+
+突然想到这snp寄了 哪怕结尾不入队3rd也会把vn摇过来吧  到时候就有你什么冠军看了 ...</blockquote>
+巡演肯定会让结那来出演solo啊，到时候就见真章了。
+
