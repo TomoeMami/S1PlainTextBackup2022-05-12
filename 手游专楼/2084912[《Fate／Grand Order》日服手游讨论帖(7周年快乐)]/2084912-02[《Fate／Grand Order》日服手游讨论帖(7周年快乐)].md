@@ -13214,3 +13214,27 @@ yls有良心就每单多点石头呗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑杯王姐换人稳定2回合 不带黑杯要补刀
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2691#       发表于 2022-9-21 17:33
+
+以后100万血是90++常规配置了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2692#       发表于 2022-9-21 17:33
+
+<img src="https://img.saraba1st.com/forum/202209/21/173238q8k1yyu98iczwijk.jpg" referrerpolicy="no-referrer">
+
+<strong>3345.jpg</strong> (735.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 17:32 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?
+
