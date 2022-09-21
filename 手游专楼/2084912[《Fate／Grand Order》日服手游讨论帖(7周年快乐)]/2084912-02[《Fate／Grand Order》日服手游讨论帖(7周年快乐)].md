@@ -14018,3 +14018,19 @@ bilibili.com/video/av558257404/
 清完体力没事干，打开了抽卡界面，发现今天有一张呼符，天启，扔进去，彩圈，阿国……………… ...</blockquote>
 我就不一样了，我金圈卑弥呼<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2756#       发表于 2022-9-21 22:58
+
+草，跟着大佬追了个10连，我也出了阿国了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁柱子  
+##### 2757#       发表于 2022-9-21 22:59
+
+大佬们这个活动要狠刷吗？还是等无限池，现在感觉最缺的是友情点方块饼干，材料倒是还有700多个白方块，吃点蓝苹果刷差不多了吧？但是他这个活动茶粉加成好像可以一直叠？
+
