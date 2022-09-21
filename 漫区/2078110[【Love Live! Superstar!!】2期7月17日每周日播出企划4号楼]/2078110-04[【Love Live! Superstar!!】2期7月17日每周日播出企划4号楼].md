@@ -9654,3 +9654,12 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  qty  
+##### 5451#       发表于 2022-9-22 00:19
+
+本来加人就弄得老粉心里有疙瘩，动画又摆烂的这么彻底，再加上之前虹二期珠玉在前，那落差可不是一般的大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
