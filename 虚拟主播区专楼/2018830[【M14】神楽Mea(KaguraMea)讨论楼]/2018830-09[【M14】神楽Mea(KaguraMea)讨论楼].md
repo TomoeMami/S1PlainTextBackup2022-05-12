@@ -4416,3 +4416,15 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 12468#       发表于 2022-9-21 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57580700&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-9-21 14:55</a>
+
+犬山那明摆着录像，你想啥呢。</blockquote>
+2场都是录播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">甚至跳舞不是本人
+
