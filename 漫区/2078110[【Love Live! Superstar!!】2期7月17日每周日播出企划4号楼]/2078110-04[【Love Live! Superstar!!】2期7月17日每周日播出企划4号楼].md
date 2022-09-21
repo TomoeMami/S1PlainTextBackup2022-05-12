@@ -9663,3 +9663,21 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 
 本来加人就弄得老粉心里有疙瘩，动画又摆烂的这么彻底，再加上之前虹二期珠玉在前，那落差可不是一般的大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5452#       发表于 2022-9-22 00:23
+
+第二场比第一场状态好了不是一星半点，特别是小百合。大熊有点哑，彩稳定了一点点，铃原交响曲好很多，前面四首还是没声……这么看来二期应该是yabu&gt;熊&gt;彩&gt;铃原，而且都和一期差距挺大的，一期这几个在舞台上太自信了。
+
+鲤鱼这都打了好久酱油了，好不容易做一场焦点。本身鲤鱼也是全团最有节目效果的，破企划多给点关注度吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">星团在国内人气低不光是因为动画，鲤鱼曝光率降低绝对是重要原因
+
+*****
+
+####  稀勢のささ  
+##### 5453#       发表于 2022-9-22 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是也想切上面流行那段聊天 一搜发现已经有了就算了
+
