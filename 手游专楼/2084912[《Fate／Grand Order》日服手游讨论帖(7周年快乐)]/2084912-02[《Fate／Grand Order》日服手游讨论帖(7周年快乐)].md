@@ -12837,3 +12837,288 @@ wrba单红就判死刑了，至少俩ba混吧
 
 这三成没多大意思啊，还是本子玩剩下的被迫害人设，登场角色人手一个标签什么死脑筋没朋友往上贴就是了，就算以后能落地感觉也要继续被迫害23333利休缝驹姬这玩法简直了，但是剧情里这立绘一出来就有人猜到锁后两个灵基有意义吗，剧情还没完不知道还有没有什么变化
 
+
+
+*****
+
+####  exiaexa  
+##### 2657#       发表于 2022-9-20 13:21
+
+猜到了的剧情：三成和信长一如既往的吃瘪
+
+完全猜不到的：炼狱alter，鹤松
+
+能把鹤松给拖出来玩这真是脑洞大开
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 2658#       发表于 2022-9-20 17:31
+
+ 本帖最后由 exiaexa 于 2022-9-20 17:33 编辑 
+
+本日感想：你们这些长得奇奇怪怪的东西不要在煽情情节里突然冒出来啊kora
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 2659#       发表于 2022-9-20 17:47
+
+10月5号开始苹果课金要提价了，要喜迎手游集体涨价了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  里村紅葉  
+##### 2660#       发表于 2022-9-20 18:56
+
+狗子的宝具怎么没名字的，不要因为不落地就偷懒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 2661#       发表于 2022-9-20 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57569065&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-20 17:31</a>
+
+本日感想：你们这些长得奇奇怪怪的东西不要在煽情情节里突然冒出来啊kora
+
+ ...</blockquote>
+虽然极其不想承认，但我居然有被废狗吓到的一天
+
+明明都是逐个告别的气氛了，突然卧槽了一下子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 2662#       发表于 2022-9-20 19:07
+
+课金涨价，我记得消费税上涨时候也加过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 2663#       发表于 2022-9-20 19:37
+
+安卓别给我也跟着涨吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 2664#       发表于 2022-9-20 19:40
+
+苹果涨价是连安卓服一起涨吗...FGO接下来该落地不少重量级卫星了，担心石头的储备...感觉应该趁着礼品卡没涨价之前大氪一波了......
+
+*****
+
+####  黑上シグマ  
+##### 2665#       发表于 2022-9-20 19:41
+
+想啥呢要涨肯定一起涨啊，3年前不就已经涨过一次了吗
+
+*****
+
+####  Jamaisvu  
+##### 2666#       发表于 2022-9-20 19:44
+
+这个活动还不错，虽然反派们来回跳反有点搞笑，但是千利休的狂气我是感受到了，挺赞的。兽剑、星辰镜、月御珠对应三神器草薙剑、八咫镜、八尺琼勾玉也挺有想法。
+
+不过我看到千利休这张大脸怼屏幕时，还以为变成了去年的凶神土偶那种东西，准备开始刷柱子，没想到只是局部放大...：
+
+<img src="https://img.saraba1st.com/forum/202209/20/194341oygb97xexegjeegm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220920_191639_com.excean.gspace.jpg</strong> (272.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-20 19:43 上传
+
+*****
+
+####  stefanie张  
+##### 2667#       发表于 2022-9-20 19:44
+
+yls有良心就每单多点石头呗
+
+*****
+
+####  Jamaisvu  
+##### 2668#       发表于 2022-9-20 19:52
+
+搜了一下2019年的涨价公告，大概就是一单涨了200日元：
+
+<img src="https://img.saraba1st.com/forum/202209/20/194848nmcmauncnbzcaxgx.jpg" referrerpolicy="no-referrer">
+
+<strong>6d83dad7912397dd0c167f1a5682b2b7d1a287f9.jpg</strong> (313.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-20 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202209/20/194848vgyropgvggtg2chn.jpg" referrerpolicy="no-referrer">
+
+<strong>74625b1001e939019f6d6a2074ec54e737d196f9.jpg</strong> (257.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-20 19:48 上传
+
+现在代充价位还算便宜，我看看能挤多少钱出来吧...不知道第七章分几个阶段完结...如果致敬第一部，圣诞节那天送戴比特去见罗曼尼，然后过了新年池开始up中田让治的角色...姑且先准备四五个月的充值量吧......
+
+*****
+
+####  Jamaisvu  
+##### 2669#       发表于 2022-9-20 19:54
+
+<img src="https://img.saraba1st.com/forum/202209/20/195355nozaouovxzveza4u.png" referrerpolicy="no-referrer">
+
+<strong>1663674827658.png</strong> (220.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-20 19:53 上传
+
+利休的三破和满破卡面。满破有点素啊，发型也是初始白短发而不是黑长直...好像还没有画师的贺图好看...
+
+*****
+
+####  黑上シグマ  
+##### 2670#       发表于 2022-9-20 20:01
+
+ 本帖最后由 黑上シグマ 于 2022-9-20 20:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57570824&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-20 19:52</a>
+
+搜了一下2019年的涨价公告，大概就是一单涨了200日元：</blockquote>
+这次可是最低价直接从120涨到160日元，大涨
+
+瞄了眼推，10000大概要涨到12800
+
+
+
+*****
+
+####  Jamaisvu  
+##### 2671#       发表于 2022-9-20 20:16
+
+ 本帖最后由 Jamaisvu 于 2022-9-21 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57570927&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-20 20:01</a>
+
+这次可是最低价直接从120涨到 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/20/201155zd7ep74z1xxif1hu.png" referrerpolicy="no-referrer">
+
+<strong>1663675902600.png</strong> (73.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 20:11 上传
+
+这涨幅确实触目惊心啊，FGO官方之前也陆续进行过优化，4石一抽改到3石一抽、一单增加27个无偿石、十连变11连、五星保底...
+
+不过之前苹果税率从8%涨到10%的时候，FGO每单9800涨到10000日元，却只加了一个石头（120日元），估计这次涨价哪怕增加无偿石也比现在氪金要亏...
+
+不过TM的角色拿出来是真的骗氪啊，早晚要氪金的，真涨到12800，直接换算下来每单就贵了130多...
+
+想氪还是当机立断吧，以后出了紫苑和教授之类的人物抽不到再氪金可就该后悔了......那句话怎么说来着？“明天就是现在！”。
+
+*****
+
+####  森兰丸  
+##### 2672#       发表于 2022-9-20 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这炼狱オルタ我是没想到灵衣（皮肤）还能汉化的....
+
+别说在废狗里了....就算整个手游里好像也是第一次见到
+
+*****
+
+####  zooandtoo  
+##### 2673#       发表于 2022-9-20 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狗哥这剑镜玉就他一个没宝具名真的遭不住。。。
+
+不过你居然真的刑部位啊
+
+*****
+
+####  khxooo  
+##### 2674#       发表于 2022-9-20 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57570684&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-20 19:40</a>
+
+苹果涨价是连安卓服一起涨吗...FGO接下来该落地不少重量级卫星了，担心石头的储备...感觉应该趁着礼品卡没 ...</blockquote>
+这么好的涨价理由谷歌怎么可能不涨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2675#       发表于 2022-9-20 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天是不是就会出第2个90++了  是不是又有大戏能看了
+
+*****
+
+####  exiaexa  
+##### 2676#       发表于 2022-9-21 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57572620&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-20 22:27</a>
+明天是不是就会出第2个90++了  是不是又有大戏能看了</blockquote>
+关底估计神性狂或者通常职阶人二选一吧
+限定和活动从者总得推一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不至于放个大象
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 2677#       发表于 2022-9-21 11:54
+
+石田三成这个人设..怎么说呢，有点“年轻有为”？感觉经验值笔下的家康一定是个巨魔（先不算之前设定那个多职阶的设定），才能跟石田对应
+
+*****
+
+####  廖化  
+##### 2678#       发表于 2022-9-21 12:33
+
+日服萌新已经打不过90的剧情了
+
+能拿得出手的只有1宝的狂那和1宝的特总，拐也只有孔老师310，C呆还卡着材料<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马桶3  
+##### 2679#       发表于 2022-9-21 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57578678&amp;ptid=2084912" target="_blank">廖化 发表于 2022-9-21 12:33</a>
+
+日服萌新已经打不过90的剧情了
+
+能拿得出手的只有1宝的狂那和1宝的特总，拐也只有孔老师310，C呆还卡着材料[ ...</blockquote>
+把活动从者拉起来，两个C呆给BUFF，打手给个白杯或者黑杯，应该还是可以打打的，有卑迷糊送前置宝具，C呆盾层数很足的，最多4T令咒充能打手再多开一炮
+
+*****
+
+####  廖化  
+##### 2680#       发表于 2022-9-21 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57578708&amp;ptid=2084912" target="_blank">马桶3 发表于 2022-9-21 12:35</a>
+
+把活动从者拉起来，两个C呆给BUFF，打手给个白杯或者黑杯，应该还是可以打打的，有卑迷糊送前置宝具，C呆 ...</blockquote>
+没有料到会卡剧情，把种火全送山南了。现在想办法把特种拉满，再嫖个梅林希望能过<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 2681#       发表于 2022-9-21 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不优先拉满c呆反而先给孔老师310看不懂，这次活动送的2宝壹与+双c呆能冲所有333本，技能都不用点的
+

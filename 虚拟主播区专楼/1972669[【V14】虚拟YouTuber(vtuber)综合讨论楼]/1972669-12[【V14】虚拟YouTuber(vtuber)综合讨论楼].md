@@ -9698,3 +9698,215 @@ e0926da11764b6fa4cb68519514729d1.jpg
 
 —— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CielChloe  
+##### 17388#       发表于 2022-9-20 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560642&amp;ptid=1972669" target="_blank">伊克路西安 发表于 2022-9-20 00:48</a>
+提醒一下，联动的是实体卡，不是本体
+
+—— 来自 Xiaomi 21051182G, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+看到了，而且要到12月才发售呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 17389#       发表于 2022-9-20 12:34
+
+ 本帖最后由 Suzutsuki 于 2022-9-20 12:36 编辑 
+
+紫宫学塾又要开课了，现在真成しのみや先生了，把big master的每个人都教了一遍，是不是该赐予Big_紫宫_MATSER的称号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 17390#       发表于 2022-9-20 16:18
+
+pikamee直播说她也想整voms EN，但gyari说他搞不来<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 17391#       发表于 2022-9-20 16:23
+
+v圈喷喷实力天王峰之战shnmy对天帝forte<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">shnmy靠开宗立派先下一程
+
+*****
+
+####  poipanchao  
+##### 17392#       发表于 2022-9-20 16:29
+
+什么菜鸡互啄…打的过不破吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 17393#       发表于 2022-9-20 16:42
+
+<img src="https://img.saraba1st.com/forum/202209/20/164029gg7bnssxa1kjhzhb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>39D7E973-29AB-4170-BEA5-EFA6645A5C89.jpeg</strong> (472.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-20 16:40 上传
+
+论虹中层现在的内卷，因压力过大导致的绝食和晕厥
+
+*****
+
+####  CielChloe  
+##### 17394#       发表于 2022-9-20 17:09
+
+ 本帖最后由 CielChloe 于 2022-9-20 17:17 编辑 
+
+何止是虹，现在整个冈本都是越来越卷的
+
+*****
+
+####  winda  
+##### 17395#       发表于 2022-9-20 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568178&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-9-20 16:29</a>
+
+什么菜鸡互啄…打的过不破吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不破的水平，去和noah争t2第一去吧，和这两不是一个定位的
+
+*****
+
+####  poipanchao  
+##### 17396#       发表于 2022-9-20 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57570827&amp;ptid=1972669" target="_blank">winda 发表于 2022-9-20 19:52</a>
+
+不破的水平，去和noah争t2第一去吧，和这两不是一个定位的</blockquote>
+noah<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 17397#       发表于 2022-9-20 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568744&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-9-20 17:09</a>
+
+何止是虹，现在整个冈本都是越来越卷的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 外野的弱智发明就不要带到别的版了 
+
+*****
+
+####  rzrbtk  
+##### 17398#       发表于 2022-9-20 21:52
+
+月之，要说什么，我害怕
+
+*****
+
+####  古战场亡魂  
+##### 17399#       发表于 2022-9-20 22:26
+
+米哈游给了郡道多少钱，让她顶着1000同接播崩坏3……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 17400#       发表于 2022-9-20 22:40
+
+牛姨也播了崩三，甚至连阿逼蕾皇祖宗gigguk都收了米哈游钱做崩3推广，它的钱实在太多了.jpg
+
+
+
+*****
+
+####  rzrbtk  
+##### 17401#       发表于 2022-9-20 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57572594&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-9-20 22:26</a>
+
+米哈游给了郡道多少钱，让她顶着1000同接播崩坏3……</blockquote>
+前天刚一千同接播了五小时喷喷，本来就是湖笔，打完麻将回归本色了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海洋队手下mayo  
+##### 17402#       发表于 2022-9-21 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568178&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-9-20 16:29</a>
+什么菜鸡互啄…打的过不破吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道你是云玩家还是云观众 差不多得了，紫宫虽然现在空白期太久 直播看不出来，那可是传说有xp2800 最高15位的，全国都得有名有姓的gachi势，按你们apex大概得有CR带队的级别
+这种碾压级的差距拿来黑虹人也太没意思了…赶紧恢复到最佳状态去喷喷大会复仇只有xp2700的hanjou，让找茬的喷喷小鬼破防才是真。
+不破这种二代最高只见过25 稳定也就24的娱乐玩家，打得还行 说一套喷喷惯口逗逗趣就是看客对他最大的期待了 小鬼都不屑一顾
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">天帝不太清楚 据说是比紫宫高一个梯队，但比xp2800 全国15位再高一个梯队也太可怕了，本人的喷喷水平有限 有没有懂的说说
+
+*****
+
+####  秋月孝三  
+##### 17403#       发表于 2022-9-21 09:39
+
+ 本帖最后由 秋月孝三 于 2022-9-21 09:44 编辑 
+
+日本2800+遍地都是吧，2900开始才是一些有头有脸的ガチ势，还要看大会实绩。不过泛管人圈有大会实绩的V恐怕只有......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+天帝フォルテ中之人是だーくぱかぴーん，这个确实是有头有脸的，女玩家里的top5甚至top3
+
+*****
+
+####  poipanchao  
+##### 17404#       发表于 2022-9-21 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57575726&amp;ptid=1972669" target="_blank">海洋队手下mayo 发表于 2022-9-21 09:00</a>
+不知道你是云玩家还是云观众 差不多得了，紫宫虽然现在空白期太久 直播看不出来，那可是传说有xp2 ...</blockquote>
+我是想说同接来着。应该拿king或者杏当棒的
+
+不玩任任的，不懂实力分配
+如果67这么强的话，为啥之前串里聊箱际对抗赛的时候表示要被虹秒呢
+
+*****
+
+####  天天座理世  
+##### 17405#       发表于 2022-9-21 10:36
+
+ 本帖最后由 天天座理世 于 2022-9-21 10:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57576440&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-9-21 09:50</a>
+我是想说同接来着。应该拿king或者杏当棒的
+
+不玩任任的，不懂实力分配</blockquote>
+因为箱内其他人喷喷水平可见的辣，除了67就noah一个s，其他人要么初见，要么s都没。noah自己s晋级赛还开了两次直播才上？虹管关注少，不过油管推送时候，就我看虹现在喷3s的能组俩三队吧，s+应该能凑1队。vspo连凑4个s都没。
+喷3出了虽然出了没多久，但到现在都没s+的就别说实力了
+
+*****
+
+####  秋月孝三  
+##### 17406#       发表于 2022-9-21 11:06
+
+倒也未必。3代现在的12图里有8图是狙图。🌈要是不知道凑两个导弹怪恶心狙佬的话恐怕要被狙到连🐴都不认识
+
+— from OPPO PDEM30, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  FCCHua  
+##### 17407#       发表于 2022-9-21 11:12
+
+vspo里对喷喷感兴趣的太少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海洋队手下mayo  
+##### 17408#       发表于 2022-9-21 11:13
+
+ 本帖最后由 海洋队手下mayo 于 2022-9-21 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57576280&amp;ptid=1972669" target="_blank">秋月孝三 发表于 2022-9-21 09:39</a>
+
+日本2800+遍地都是吧，2900开始才是一些有头有脸的ガチ势，还要看大会实绩。不过泛管人圈有大会实绩的V恐怕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播者来说xp不高也不少吧，虽然其中好些大会选手
+
+但至少xp有个2700就已经不是该和虹人喷喷比的水平了 虹人专心考虑直播效果，箱内开大会可以打个有来有回就好
+
+该不该吐槽一句天帝有着ガチ势该有的数字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">令人安心的低同接
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上那个串是什么串 vspo还是虹，我觉得可能也取决于他们把紫宫算成2800还是2400，他们给算成2400的话默认和不破一个水平
+

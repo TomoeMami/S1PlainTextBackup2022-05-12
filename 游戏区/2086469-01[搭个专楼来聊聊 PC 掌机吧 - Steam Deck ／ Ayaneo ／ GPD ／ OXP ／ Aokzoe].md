@@ -3034,3 +3034,80 @@ GPD win4看着不错啊，但是他们公关是怎么回事？这两天又去碰
 GPD win4看着不错啊，但是他们公关是怎么回事？这两天又去碰G胖了这是？</blockquote>
 GPD 的营销一直都是这鸟样 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 也算是自家特色了
 
+
+
+*****
+
+####  闇の魔導師  
+##### 245#       发表于 2022-9-20 16:28
+
+我的机器终于清关结束了。。估计明天就能到手了吧。。去和onexplayer躺一起吃灰吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dpls  
+##### 246#       发表于 2022-9-20 16:35
+
+gpd win4价格下来了么
+
+*****
+
+####  白徵明  
+##### 247#       发表于 2022-9-21 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568271&amp;ptid=2086469" target="_blank">dpls 发表于 2022-9-20 16:35</a>
+gpd win4价格下来了么</blockquote>
+不会低于4299但会比5999低，这玩意最大的问题是第一批正式发布会搞不好要圣诞节后
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫煜  
+##### 248#       发表于 2022-9-21 07:13
+
+奥克下单了，不晓得13秒几号能发货<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  bypass  
+##### 249#         楼主| 发表于 2022-9-21 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57575064&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-9-21 07:13</a>
+
+奥克下单了，不晓得13秒几号能发货
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+10s 下单，15s 付款，低配续航版，本来很着急，这两天用 Deck 突然…又不着急了。
+
+*****
+
+####  bypass  
+##### 250#         楼主| 发表于 2022-9-21 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57574255&amp;ptid=2086469" target="_blank">白徵明 发表于 2022-9-21 00:56</a>
+
+不会低于4299但会比5999低，这玩意最大的问题是第一批正式发布会搞不好要圣诞节后
+
+—— 来自 Xiaomi 220 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 到时候一起围观下 GPD WIN 4 和 Ayaneo Geek 哪个发货更慢。
+
+*****
+
+####  医生狼多  
+##### 251#       发表于 2022-9-21 08:31
+
+靠，忘记aok付款的事了，早上醒来才下单
+
+*****
+
+####  白徵明  
+##### 252#       发表于 2022-9-21 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57575074&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-21 07:19</a>
+
+到时候一起围观下 GPD WIN 4 和 Ayaneo Geek 哪个发货更慢。</blockquote>
+我4G的win max2都要到了，5560u的air pro都还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
