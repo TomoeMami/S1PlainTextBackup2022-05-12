@@ -13238,3 +13238,15 @@ yls有良心就每单多点石头呗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?
 
+
+
+*****
+
+####  khxooo  
+##### 2693#       发表于 2022-9-21 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583282&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 17:33</a>
+
+100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?</blockquote>
+拿不出这个配置谢谢，非洲人只能乖乖用活动从者了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
