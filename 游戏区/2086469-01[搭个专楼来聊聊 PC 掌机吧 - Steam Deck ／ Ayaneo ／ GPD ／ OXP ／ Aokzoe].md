@@ -3122,3 +3122,15 @@ GPD这营销真的是，几个员工装路人发几个泄漏视频，群里也�
 
 本来还有点兴趣的，没想到这家营销还是这么low。
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 254#       发表于 2022-9-21 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57580599&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2022-9-21 14:49</a>
+
+GPD这营销真的是，几个员工装路人发几个所谓“泄漏”视频，群里也一堆装路人的水军，几张lowb宣传图还说是 ...</blockquote>
+关键那几个员工从来不换号<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
