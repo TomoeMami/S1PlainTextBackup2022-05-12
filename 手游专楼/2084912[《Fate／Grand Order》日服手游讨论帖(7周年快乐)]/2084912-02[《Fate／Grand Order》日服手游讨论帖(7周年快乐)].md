@@ -13306,3 +13306,56 @@ yls有良心就每单多点石头呗
 
 可乐茶是什么鬼东西啊！
 
+
+
+*****
+
+####  千叶铁矢  
+##### 2698#       发表于 2022-9-21 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583626&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 17:58</a>
+狂娜也可以！
+
+据说公主也可以 我没试</blockquote>
+公主不行。狂那很行，只需要二面一张红卡
+
+*****
+
+####  alucardcz  
+##### 2699#       发表于 2022-9-21 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583817&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-9-21 18:12</a>
+
+公主不行。狂那很行，只需要二面一张红卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2面有一张红卡不稳定啊  还是带黑杯直接1宝具带走好
+
+*****
+
+####  exiaexa  
+##### 2700#       发表于 2022-9-21 18:14
+
+ 本帖最后由 exiaexa 于 2022-9-21 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583282&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 17:33</a>
+
+100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?</blockquote>
+答：活动礼装的话，用奥伯龙110就可以，用枪赖光剩10w
+
+问题是第一面伤害不够，很容易从2t变成3t过本极限脸黑直接退本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 2701#       发表于 2022-9-21 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583856&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-21 18:14</a>
+
+答：活动礼装的话，用奥伯龙110就可以，用枪赖光剩10w
+
+问题是第一面伤害不够
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那问题来了 无敌的狂娜5宝满配不带黑杯第2面伤海够吗 第1面反正2宝就够了
+
