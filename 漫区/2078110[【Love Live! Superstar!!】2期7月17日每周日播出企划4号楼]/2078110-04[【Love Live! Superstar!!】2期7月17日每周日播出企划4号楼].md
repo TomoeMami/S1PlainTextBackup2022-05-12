@@ -8718,3 +8718,67 @@ B站有上传，没看的可以看看
 
 不怎么懂唱歌，铃原这个私のsymphony的开头感觉太软了，只能说是另辟风格
 
+
+
+*****
+
+####  ads147147  
+##### 5358#       发表于 2022-9-21 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582149&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-21 16:15</a>
+
+就薇恩第三集的表现，估计不会很差
+
+—— 来自 S1Fun</blockquote>
+主要是这套solo感觉不比岚珠的轻松到哪里去，有点怀疑。
+
+*****
+
+####  lj205  
+##### 5359#       发表于 2022-9-21 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 5360#       发表于 2022-9-21 16:32
+
+看了B站上传的片段，小百合这状态确实相当危险了，star宣言第一句，老五人其他四个都稳的一B，就他一句唱出来居然比上两句的逢田妹和铃原效果还差，吓了我一跳。
+
+*****
+
+####  csolfans  
+##### 5361#       发表于 2022-9-21 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582332&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-21 16:27</a>
+
+只有这楼能说难听的话，B站评论区和微博全是善意的评论
+
+二期四人，yabu算是表现最好，大熊唱歌太用力了声音 ...</blockquote>
+没事呢NGA也差不多 就略好
+
+*****
+
+####  adw667  
+##### 5362#       发表于 2022-9-21 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582403&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 16:32</a>
+
+看了B站上传的片段，小百合这状态确实相当危险了，star宣言第一句，老五人其他四个都稳的一B，就他一句唱出 ...</blockquote>
+有传送门吗搜了一圈没搜到
+
+*****
+
+####  qty  
+##### 5363#       发表于 2022-9-21 16:38
+
+上b站搜liella，按时间排序就行，不过画质很糟糕
+
+*****
+
+####  优妮可  
+##### 5364#       发表于 2022-9-21 16:39
+
+预料之中吧，水平差距。
+
