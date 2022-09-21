@@ -14189,3 +14189,25 @@ bilibili.com/video/av558257404/
 
 这最后BOSS战是设计给自己打自己的？虽然千利休看着技能组是挺好的，但是我根本没素材升级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2770#       发表于 2022-9-22 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57589232&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-9-22 00:37</a>
+
+这最后BOSS战是设计给自己打自己的？虽然千利休看着技能组是挺好的，但是我根本没素材升级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叫你用绿卡  例如bx
+
+*****
+
+####  kiralzb  
+##### 2771#       发表于 2022-9-22 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57589282&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-22 00:41</a>
+
+叫你用绿卡  例如bx</blockquote>
+这不就是变相体验本嘛，然而我拉不起来只能用其他角色，就很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
