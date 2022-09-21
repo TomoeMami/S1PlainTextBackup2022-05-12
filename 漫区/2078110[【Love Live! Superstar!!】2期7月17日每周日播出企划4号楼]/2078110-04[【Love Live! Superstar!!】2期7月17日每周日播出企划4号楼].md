@@ -9643,3 +9643,14 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  愛さ実  
+##### 5450#       发表于 2022-9-22 00:01
+
+不说别的，之前这种活动一结束b站就切片满天飞了，今天也就寥寥几个。只能说核心粉数量真少了好多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
