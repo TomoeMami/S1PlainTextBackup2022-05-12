@@ -13589,3 +13589,108 @@ yls有良心就每单多点石头呗
 
 话说是不是没有6加成不换人的阵容
 
+
+
+*****
+
+####  alucardcz  
+##### 2720#       发表于 2022-9-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584861&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-21 19:20</a>
+
+单说一面卡莲比摩根能打多了
+
+靠着WRBA+CBA，90级3宝一面补刀需求只有四位数
+
+摩根5宝110还有5w的补刀量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑杯这么强的吗  2宝比5宝伤害还高？  2宝100级黑杯1面不需要补刀啊 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为不算奥师傅的3技能2宝带黑杯顶多cos下4宝
+
+*****
+
+####  exiaexa  
+##### 2721#       发表于 2022-9-21 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585063&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 19:32</a>
+
+黑杯这么强的吗  2宝比5宝伤害还高？  2宝100级黑杯1面不需要补刀啊 
+
+我还以为不算奥师傅 ...</blockquote>
+醒醒，没有黑杯，有黑杯早杀了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 2722#       发表于 2022-9-21 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584851&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:20</a>
+如果有奥伯龙和C呆的话可以抄这个攻略，一与六加成：
+
+【【FGO超阴间本】数值崩坏？关低100w血！ 90++ 月癌 ...</blockquote>
+这是不是NGA那个多宝C呆的？貌似看讨论至少得自备两宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 2723#       发表于 2022-9-21 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585087&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-21 19:34</a>
+
+醒醒，没有黑杯，有黑杯早杀了</blockquote>
+你理解错了 我意思就是2宝100带黑杯伤害怎么比5宝110还高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2724#       发表于 2022-9-21 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">非洲穷B还是乖乖黑杯换人2T了
+
+*****
+
+####  Jamaisvu  
+##### 2725#       发表于 2022-9-21 19:39
+
+<blockquote>alucardcz 发表于 2022-9-21 19:29
+打红爆哪需要这么多事 狂娜一红就够了 问题还是这不能算稳定解
+
+</blockquote>
+我脑补的理想情况是假若有个很厉害的蓝单ruler，宝具buff能滚雪球，双C呆加持下冲浪一穿三...
+
+可惜没有，金钻头和尺番茄都难当重任...
+
+一个宝具打掉100W血应该是不可能了，不过刚才看到一个六加成千利休2T的，感觉NP挺足的，特攻也起了作用，补刀的伤害需求也降低了...就是五宝配置太苛刻了...
+
+【绿王千利休2T超阴间本-哔哩哔哩】 https://b23.tv/hLCTlry
+
+*****
+
+####  exiaexa  
+##### 2726#       发表于 2022-9-21 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585153&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 19:38</a>
+
+你理解错了 我意思就是2宝100带黑杯伤害怎么比5宝110还高</blockquote>
+这肯定啊，摩根打50攻要捏到第三面
+
+1面有效的buff就30宝具威力+100红魔放+被动8，啥特攻都没有
+
+你带黑杯，1面比我多了1700攻+80宝具威力
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2727#       发表于 2022-9-21 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585182&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:39</a>
+
+我脑补的理想情况是假若有个很厉害的蓝单ruler，宝具buff能滚雪球，双C呆加持下冲浪一穿三...
+
+可惜没有 ...</blockquote>
+千利休是倍卡。。。。。还要5宝 这不是在丢人？ 还绿王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

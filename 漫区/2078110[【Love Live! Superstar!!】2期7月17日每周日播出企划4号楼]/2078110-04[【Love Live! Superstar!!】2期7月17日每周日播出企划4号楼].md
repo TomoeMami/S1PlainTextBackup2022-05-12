@@ -9173,3 +9173,50 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 台长套个定型文带过也没说啥东西呀，而且居然还给5.5，太客气了，建议低点。
 
+
+
+*****
+
+####  saya1892  
+##### 5409#       发表于 2022-9-21 19:35
+
+谢谢鲤，拯救了我被豹纹和9人シンフォニー坏掉的心情
+
+*****
+
+####  仟音一心  
+##### 5410#       发表于 2022-9-21 19:37
+
+【鲤式唱法-哔哩哔哩】 [https://b23.tv/4mpV9AF](https://b23.tv/4mpV9AF)
+
+相关链接居然有漫才就鲤谱
+
+*****
+
+####  qty  
+##### 5411#       发表于 2022-9-21 19:37
+
+铃原绷不住了
+
+*****
+
+####  cxj649  
+##### 5412#       发表于 2022-9-21 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584933&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-21 19:24</a>
+
+台长新视频 评星团了</blockquote>
+台长是哪个
+
+*****
+
+####  cybernetics31  
+##### 5413#       发表于 2022-9-21 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585127&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-21 19:37</a>
+
+【鲤式唱法-哔哩哔哩】 https://b23.tv/4mpV9AF
+
+相关链接居然有漫才就鲤谱</blockquote>
+笑死 不愧是她<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
