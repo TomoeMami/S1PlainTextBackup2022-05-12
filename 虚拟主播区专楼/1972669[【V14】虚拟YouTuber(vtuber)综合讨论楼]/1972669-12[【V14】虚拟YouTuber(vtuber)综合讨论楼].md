@@ -9926,3 +9926,13 @@ Vocal:犬山たまき
 Movie:鬼灯わらベ
 SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊谷タクマ
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17410#       发表于 2022-9-21 23:20
+
+最近流行纪念死人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但是波尔卡还活着啊
+
