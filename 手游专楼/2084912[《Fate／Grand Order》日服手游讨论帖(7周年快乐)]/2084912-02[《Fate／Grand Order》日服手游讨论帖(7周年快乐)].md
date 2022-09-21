@@ -13798,3 +13798,14 @@ RBA换CBA就不行了，第二面要补刀。唯一的问题是是RBA太难找�
 
 【【FGO日服】一宝千利休3T90++活动（平民娱乐向）-哔哩哔哩】 https://b23.tv/Fd3n7X8
 
+
+
+*****
+
+####  リッチ  
+##### 2737#       发表于 2022-9-21 19:56
+
+rba、奥宝和千利休都没练满技能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不知道活动结束之前能不能赶上3t90艹
+

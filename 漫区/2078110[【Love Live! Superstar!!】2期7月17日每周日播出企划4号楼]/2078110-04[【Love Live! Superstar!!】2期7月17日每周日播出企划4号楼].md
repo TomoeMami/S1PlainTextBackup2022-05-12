@@ -9283,3 +9283,36 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">平时应该玩的挺开心的 挺好的
 
+
+
+*****
+
+####  cybernetics31  
+##### 5422#       发表于 2022-9-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585343&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-21 19:49</a>
+
+这不早就公开的消息了吗，没看铃原访谈吗，她在5人公布前就钦定了，所以企划看上她啥了 ...</blockquote>
+没看 ，，，，，看完这次后我更不知道企划看上她啥了，，，，，，
+
+大概那边都好这口养成感（？<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5423#       发表于 2022-9-21 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585127&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-21 19:37</a>
+
+【鲤式唱法-哔哩哔哩】 https://b23.tv/4mpV9AF
+
+相关链接居然有漫才就鲤谱</blockquote>
+草，还挺好听
+
+*****
+
+####  darkendless  
+##### 5424#       发表于 2022-9-21 20:01
+
+一期生和二期生确实在实力上还有不小的差距，不过考虑到二期生这是首次参与live表演也算可以了，特别是yabu酱。鲤鱼姐提到yabu酱最开始也不擅长舞步想起了以前的自己的时候还挺感慨的。之后就看三巡又会有怎样的进步吧。
+
