@@ -13988,3 +13988,21 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前还没看到一个6加成不换人稳定杀的队伍  怎么肥似啊
 
+
+
+*****
+
+####  铁柱子  
+##### 2753#       发表于 2022-9-21 22:28
+
+<blockquote>alucardcz 发表于 2022-9-21 19:49
+醒醒  1kw的话现在已经腥风血雨了</blockquote>
+100w，看花了眼
+
+*****
+
+####  铁柱子  
+##### 2754#       发表于 2022-9-21 22:31
+
+请问40级黑杯与一换人能打吗？能打赶紧去拉一个
+
