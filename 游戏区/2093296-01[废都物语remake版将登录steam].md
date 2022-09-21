@@ -3637,3 +3637,15 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 这就玩上了</blockquote>
 这么硬
 
+
+
+*****
+
+####  lil_is  
+##### 382#       发表于 2022-9-21 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584587&amp;ptid=2093296" target="_blank">Ehekatl 发表于 2022-9-21 19:02</a>
+
+这就玩上了</blockquote>
+制作组是懂的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">第一次看到曲奇谜题的汉化时把我惊艳了。
+

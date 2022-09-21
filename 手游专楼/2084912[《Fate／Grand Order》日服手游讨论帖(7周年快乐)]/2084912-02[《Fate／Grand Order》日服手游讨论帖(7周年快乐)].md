@@ -13881,3 +13881,31 @@ rba、奥宝和千利休都没练满技能<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">高难有什么作业能抄的么
 
+
+
+*****
+
+####  eilot  
+##### 2743#       发表于 2022-9-21 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584381&amp;ptid=2084912" target="_blank">马桶3 发表于 2022-9-21 18:49</a>
+
+6个魔总怎么打？</blockquote>
+狂那(宝2、黑圣杯满了)，+双杀狐，后面一隻孔明
+
+T1孔明宝具&gt;狂那宝具&gt;随便打
+
+T2，狂那宝具
+
+*****
+
+####  khxooo  
+##### 2744#       发表于 2022-9-21 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57586667&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-9-21 21:26</a>
+
+高难有什么作业能抄的么</blockquote>
+bilibili.com/video/av558257404/
+
+参考一下
+
