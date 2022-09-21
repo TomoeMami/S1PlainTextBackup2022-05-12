@@ -13842,3 +13842,33 @@ rba、奥宝和千利休都没练满技能<img src="https://static.saraba1st.com
 
 三宝卡莲第二面打了180W总伤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜还是要带黑杯
 
+
+
+*****
+
+####  alucardcz  
+##### 2741#       发表于 2022-9-21 20:57
+
+ 本帖最后由 alucardcz 于 2022-9-21 21:01 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/21/205713ep7pkzr7j76baj22.jpg" referrerpolicy="no-referrer">
+
+<strong>656565.jpg</strong> (518.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/205717m5228ljzwhz8t7jj.jpg" referrerpolicy="no-referrer">
+
+<strong>6565656.jpg</strong> (621.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 20:57 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这居然真可以。。6加成不换人。。但是老问题 第2回合必须要有黑狗的卡 红卡或者出ex  我这把就一张都没所以寄了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那么同理 狗蛋是不是也可以？
+
+上面图的衣服穿错了  应该是极地服
+
