@@ -9517,3 +9517,48 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57586749&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-21 21:30</a></blockquote>
 笑喷，不愧是你，风采依旧
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5439#       发表于 2022-9-21 23:03
+
+<img src="https://img.saraba1st.com/forum/202209/21/230150pl66lmmemitizmub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (313.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 23:01 上传
+
+四季这个应援色和可可的也太像了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 5440#       发表于 2022-9-21 23:05
+
+<img src="https://img.saraba1st.com/forum/202209/21/230449oy8epu68fh3ef88p.jpg" referrerpolicy="no-referrer">
+
+<strong>FdMBHbxagAYW00y.jpg</strong> (385.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/230457hrzcsi5s50svrvya.jpg" referrerpolicy="no-referrer">
+
+<strong>FdMBHbvaUAIWclC.jpg</strong> (524.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 23:04 上传
+
+*****
+
+####  cat1230  
+##### 5441#       发表于 2022-9-21 23:11
+
+鲤鱼这抒情唱法有点像马克罗斯F里女王（May'n）那种唱腔。感觉开发一下可以正经唱歌机战曲。
+

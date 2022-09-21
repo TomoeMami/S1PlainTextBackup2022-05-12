@@ -14034,3 +14034,32 @@ bilibili.com/video/av558257404/
 
 大佬们这个活动要狠刷吗？还是等无限池，现在感觉最缺的是友情点方块饼干，材料倒是还有700多个白方块，吃点蓝苹果刷差不多了吧？但是他这个活动茶粉加成好像可以一直叠？
 
+
+
+*****
+
+####  khxooo  
+##### 2758#       发表于 2022-9-21 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587977&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-21 22:59</a>
+大佬们这个活动要狠刷吗？还是等无限池，现在感觉最缺的是友情点方块饼干，材料倒是还有700多个白方块，吃 ...</blockquote>
+新人建议等无限池
+
+*****
+
+####  angelooo  
+##### 2759#       发表于 2022-9-21 23:07
+
+艹，你们又在豹跳了233
+
+*****
+
+####  霧谷藤乃  
+##### 2760#       发表于 2022-9-21 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎…最近开始找工作没很多时间玩了，虽然还是一直拖延着没什么太大的实际行动，NEET害人啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">千利休这和驹姬来回变…只能说我开始玩太阁5就是打了美少女百合补丁玩的，游戏里千宗易的立绘改城了赤い纟的梦姐姐，驹姬是玩战国IXA才认识的，有张特卡人设也很喜欢，所以总的来说倒没太大违和感
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于90++……我还没开始打，回头试试看吧
+
