@@ -13909,3 +13909,27 @@ bilibili.com/video/av558257404/
 
 参考一下
 
+
+
+*****
+
+####  qixinno2  
+##### 2745#       发表于 2022-9-21 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57586902&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-21 21:40</a>
+
+bilibili.com/video/av558257404/
+
+参考一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没看已经过了 看隔壁说的还以为多难 后面扔个宝石狼王 第二条血换上来一个强化解除一个宝具带走
+
+*****
+
+####  khxooo  
+##### 2746#       发表于 2022-9-21 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57586211&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 20:57</a>
+
+这居然真可以。。6加成不换人。。但是老问题 第2回合必须要有黑狗的卡 红卡或者出ex  我这把就一 ...</blockquote>
+可以，我试过了，1宝金时+80级黑杯可以接近无发牌2T，当然2T的时候没有狗蛋的卡有点麻烦就是了。
+
