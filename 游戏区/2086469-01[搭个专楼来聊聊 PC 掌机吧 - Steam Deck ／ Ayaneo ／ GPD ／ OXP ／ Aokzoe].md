@@ -3111,3 +3111,14 @@ gpd win4价格下来了么</blockquote>
 到时候一起围观下 GPD WIN 4 和 Ayaneo Geek 哪个发货更慢。</blockquote>
 我4G的win max2都要到了，5560u的air pro都还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  筒井彩芽  
+##### 253#       发表于 2022-9-21 14:49
+
+GPD这营销真的是，几个员工装路人发几个泄漏视频，群里也一堆装路人的水军，几张lowb宣传图还说是粉丝做的，粉丝都有你一手的渲染图是吧。
+
+本来还有点兴趣的，没想到这家营销还是这么low。
+
