@@ -9052,3 +9052,37 @@ star宣言 BV1X14y1Y7ny
 
 QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
+
+
+*****
+
+####  iuhehc  
+##### 5394#       发表于 2022-9-21 18:51
+
+是没要求么这个，绘森彩这完全没用角色音唱吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cat1230  
+##### 5395#       发表于 2022-9-21 18:52
+
+叔叔直播那个只有声音
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  稀勢のささ  
+##### 5396#       发表于 2022-9-21 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 磕到了 谢谢
+
+*****
+
+####  lj205  
+##### 5397#       发表于 2022-9-21 19:01
+
+鲤鱼，这转音可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
