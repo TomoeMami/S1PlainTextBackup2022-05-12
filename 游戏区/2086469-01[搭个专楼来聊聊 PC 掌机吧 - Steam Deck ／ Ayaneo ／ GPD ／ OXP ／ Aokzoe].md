@@ -3153,3 +3153,15 @@ Ayaneo 2 的实际，边框的确不错。
 
 2022-9-21 15:56 上传
 
+
+
+*****
+
+####  恋妖壶  
+##### 256#       发表于 2022-9-21 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57575068&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-21 07:16</a>
+
+10s 下单，15s 付款，低配续航版，本来很着急，这两天用 Deck 突然…又不着急了。 ...</blockquote>
+看到这帖刚想起来去付款，我这发货时间是不是无了
+

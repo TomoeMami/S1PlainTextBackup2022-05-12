@@ -8983,3 +8983,12 @@ star宣言 BV1X14y1Y7ny
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码颜值过关啊
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5386#       发表于 2022-9-21 17:54
+
+重看了回放，彩可能真的是唱交响曲的时候过于激动了，一开嗓眼睛就红了，情绪收不住导致破音我可以理解，虽然和我收不住的方向不太一样……
+

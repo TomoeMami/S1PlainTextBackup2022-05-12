@@ -13250,3 +13250,26 @@ yls有良心就每单多点石头呗
 100万太少了  对了 5宝120是不是可以不带黑杯直接一宝具秒了?</blockquote>
 拿不出这个配置谢谢，非洲人只能乖乖用活动从者了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2694#       发表于 2022-9-21 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583545&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-21 17:51</a>
+
+拿不出这个配置谢谢，非洲&amp;# ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/21/175806j5jo5oczh994woh5.jpg" referrerpolicy="no-referrer">
+
+<strong>25345.jpg</strong> (657.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-21 17:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">狂娜也可以！
+
+据说公主也可以 我没试
+
