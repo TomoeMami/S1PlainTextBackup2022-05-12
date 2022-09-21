@@ -8915,3 +8915,44 @@ star宣言 BV1X14y1Y7ny
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 5379#       发表于 2022-9-21 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582714&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-21 16:52</a>
+
+说到这个，我突然间想到一个问题，感觉虹哪怕后面再加人加到15个或者16个，我都不觉得哪里突兀；但是星这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">因为星五人团建力度贼高
+
+*****
+
+####  1096beam  
+##### 5380#       发表于 2022-9-21 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582714&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-21 16:52</a>
+
+说到这个，我突然间想到一个问题，感觉虹哪怕后面再加人加到15个或者16个，我都不觉得哪里突兀；但是星这 ...</blockquote>
+星团能做到一人一个solo live，你也不会觉得突兀的
+
+其实一开始第一季5人就给香哥哥一个无live的solo，其余还是传统的有多少人上多少人的模式，不少人是有意见的
+
+*****
+
+####  qty  
+##### 5381#       发表于 2022-9-21 17:05
+
+看了一二期初见面的录像，一期生在那坐成一排跟面试官一样太逗了，还有为啥鲤鱼坐下来显得这么矮，只比小百合高一点，是鲤鱼没直起腰还是樱花妹腿太短了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 5382#       发表于 2022-9-21 17:09
+
+太忙没看直播来看看repo 看到这种评价没忍住去看了切片 
+铃原怎么被选上的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
