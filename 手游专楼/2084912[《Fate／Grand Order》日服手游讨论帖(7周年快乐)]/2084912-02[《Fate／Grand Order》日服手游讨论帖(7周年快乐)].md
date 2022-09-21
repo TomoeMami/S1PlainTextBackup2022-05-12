@@ -14006,3 +14006,15 @@ bilibili.com/video/av558257404/
 
 请问40级黑杯与一换人能打吗？能打赶紧去拉一个
 
+
+
+*****
+
+####  铁柱子  
+##### 2755#       发表于 2022-9-21 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587140&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-21 21:58</a>
+
+清完体力没事干，打开了抽卡界面，发现今天有一张呼符，天启，扔进去，彩圈，阿国……………… ...</blockquote>
+我就不一样了，我金圈卑弥呼<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
