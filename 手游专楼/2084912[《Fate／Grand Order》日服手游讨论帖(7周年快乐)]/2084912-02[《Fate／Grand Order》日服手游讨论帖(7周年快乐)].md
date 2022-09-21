@@ -13933,3 +13933,42 @@ bilibili.com/video/av558257404/
 这居然真可以。。6加成不换人。。但是老问题 第2回合必须要有黑狗的卡 红卡或者出ex  我这把就一 ...</blockquote>
 可以，我试过了，1宝金时+80级黑杯可以接近无发牌2T，当然2T的时候没有狗蛋的卡有点麻烦就是了。
 
+
+
+*****
+
+####  alucardcz  
+##### 2747#       发表于 2022-9-21 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587022&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-21 21:49</a>
+
+可以，我试过了，1宝金时+80&amp;#x7EA7 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就在奥师傅身上 你看错人了吧
+
+*****
+
+####  黑上シグマ  
+##### 2748#       发表于 2022-9-21 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">清完体力没事干，打开了抽卡界面，发现今天有一张呼符，天启，扔进去，彩圈，阿国………………
+
+*****
+
+####  khxooo  
+##### 2749#       发表于 2022-9-21 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587112&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 21:56</a>
+
+本来就在奥师傅身上 你看错人了吧</blockquote>
+看见了，最近估计你的奥贝隆都会被我嫖了。
+
+*****
+
+####  qixinno2  
+##### 2750#       发表于 2022-9-21 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587140&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-21 21:58</a>
+
+清完体力没事干，打开了抽卡界面，发现今天有一张呼符，扔进去，彩圈，阿国……………… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
