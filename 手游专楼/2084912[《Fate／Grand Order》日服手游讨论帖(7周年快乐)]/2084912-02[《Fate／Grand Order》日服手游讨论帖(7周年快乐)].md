@@ -13440,3 +13440,26 @@ yls有良心就每单多点石头呗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么久了怎么还没有一个不要高宝的5加成不换人的稳定配置  
 
+
+
+*****
+
+####  eilot  
+##### 2707#       发表于 2022-9-21 18:43
+
+杀狐和奥伯隆会是日后基本配套吗...
+
+*****
+
+####  Jamaisvu  
+##### 2708#       发表于 2022-9-21 18:46
+
+不知道土方+陈宫+奥伯龙的阵容能不能打，一面陈宫拿开了二技能的土方当炮弹，二面陈宫宝具+土方宝具...我没有土方实验不了，不过感觉NP不太够用的样子...
+
+*****
+
+####  马桶3  
+##### 2709#       发表于 2022-9-21 18:49
+
+6个魔总怎么打？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
