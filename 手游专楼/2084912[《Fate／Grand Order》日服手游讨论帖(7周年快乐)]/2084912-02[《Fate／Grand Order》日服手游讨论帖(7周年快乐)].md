@@ -13486,3 +13486,66 @@ yls有良心就每单多点石头呗
 
 果然还是要靠狂阶啊...等等看千利休的表现...
 
+
+
+*****
+
+####  poor  
+##### 2712#       发表于 2022-9-21 19:16
+
+有没有6加成换人3T低宝作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 2713#       发表于 2022-9-21 19:17
+
+看到一个不换人2/3T的打法，高宝满被动黑杯狂娜+杀狐+奥伯龙，带阿特拉斯院衣服：
+
+一面狂娜开一二技能，杀狐给一三技能，奥伯龙不动，宝具轰掉一面。
+
+二面：（1）如果有狂娜，奥伯龙技能全给狂娜，杀狐二技能给狂娜，衣服给狂娜减CD开一二技能，宝具+红卡暴击收工。
+
+（2）没狂娜红卡，狂娜开三技能生存一下，反正buff还在，等第三回合有红卡了再打输出...
+
+如果三张狂娜红卡都跑一面了，就暴击打小怪，给BB留两次宝具。
+
+*****
+
+####  リッチ  
+##### 2714#       发表于 2022-9-21 19:19
+
+おのれ抹茶ラテ
+
+*****
+
+####  Jamaisvu  
+##### 2715#       发表于 2022-9-21 19:20
+
+ 本帖最后由 Jamaisvu 于 2022-9-21 19:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584790&amp;ptid=2084912" target="_blank">poor 发表于 2022-9-21 19:16</a>
+
+有没有6加成换人3T低宝作业
+
+—— 来自 vivo V1981A, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+如果有奥伯龙和C呆的话可以抄这个攻略，一与六加成：
+
+【【FGO超阴间本】数值崩坏？关低100w血！ 90++ 月癌关底！-哔哩哔哩】 [https://b23.tv/09EHF07](https://b23.tv/09EHF07)第四个分P：（六加成）一与
+
+*****
+
+####  exiaexa  
+##### 2716#       发表于 2022-9-21 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584676&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:08</a>
+
+卡莲宝具有个混沌特攻，自己又是ruler，对BB输出还是挺高的，不过也得补暴击。而且一面的怪貌似高宝也打不 ...</blockquote>
+单说一面卡莲比摩根能打多了
+
+靠着WRBA+CBA，90级3宝一面补刀需求只有四位数
+
+摩根5宝110还有5w的补刀量
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
