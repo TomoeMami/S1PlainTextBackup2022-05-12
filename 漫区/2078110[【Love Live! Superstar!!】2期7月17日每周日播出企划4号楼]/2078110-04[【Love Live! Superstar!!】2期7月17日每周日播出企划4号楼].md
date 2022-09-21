@@ -9562,3 +9562,42 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 鲤鱼这抒情唱法有点像马克罗斯F里女王（May'n）那种唱腔。感觉开发一下可以正经唱歌机战曲。
 
+
+
+*****
+
+####  愛さ実  
+##### 5442#       发表于 2022-9-21 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588162&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-21 23:11</a>
+鲤鱼这抒情唱法有点像马克罗斯F里女王（May'n）那种唱腔。感觉开发一下可以正经唱歌机战曲。 ...</blockquote>
+两人同社，说不定就是may‘n教的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 5443#       发表于 2022-9-21 23:19
+
+草，细看才发现新的鞋也是换套鞋，莫不是把旧的专门涂黑吧
+
+*****
+
+####  aoaoaodedede  
+##### 5444#       发表于 2022-9-21 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57588233&amp;ptid=2078110" target="_blank">爱さ実 发表于 2022-9-21 23:17</a>
+
+两人同社，说不定就是may‘n教的
+
+—— 来自 S1Fun</blockquote>
+你别说，感觉还真有可能，之前h社那个原定的团建活动好像是有翻唱环节的，说不定鱼真的去学过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5445#       发表于 2022-9-21 23:21
+
+小百合和yabu的合影是鲤鱼拍的，本人还专门跑到yabu推下邀功<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是liella拍照大师
+

@@ -9910,3 +9910,19 @@ vspo里对喷喷感兴趣的太少了<img src="https://static.saraba1st.com/imag
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上那个串是什么串 vspo还是虹，我觉得可能也取决于他们把紫宫算成2800还是2400，他们给算成2400的话默认和不破一个水平
 
+
+
+*****
+
+####  FCCHua  
+##### 17409#       发表于 2022-9-21 23:14
+
+ 本帖最后由 FCCHua 于 2022-9-21 23:20 编辑 
+
+犬山这个新翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://youtu.be/JaNS_-s3pBg](https://youtu.be/JaNS_-s3pBg)
+繋いだ手を离さないでよ
+Vocal:犬山たまき
+Movie:鬼灯わらベ
+SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊谷タクマ
+
