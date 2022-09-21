@@ -13404,3 +13404,39 @@ yls有良心就每单多点石头呗
 
 没倍卡打100W血确实难顶，再变本加厉的话搞不好下次的90++本关底BOSS该自带宝具抗性了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2704#       发表于 2022-9-21 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583886&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-21 18:17</a>
+
+那问题来了 无敌的狂娜5宝满配不带黑杯第2面伤海够吗 第1面反正2宝就够了 ...</blockquote>
+你好，XP不对，没有5宝
+
+不过按了下计算器，应该不能
+
+阿囧根本问题是他吃到的天地人是0.9，而摩根是1.1
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2705#       发表于 2022-9-21 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57584118&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 18:32</a>
+
+试了两个阵容：
+
+第一个是五宝狂娜带活动礼装+双杀狐，一面狂娜技能全开，俩狐狸交三技能开宝具，二面是狐狸 ...</blockquote>
+不换人肯定高宝 别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2706#       发表于 2022-9-21 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么久了怎么还没有一个不要高宝的5加成不换人的稳定配置  
+
