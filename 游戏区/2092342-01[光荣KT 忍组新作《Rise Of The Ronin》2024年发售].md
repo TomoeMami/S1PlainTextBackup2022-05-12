@@ -1820,3 +1820,30 @@ Sony XDEV JP 协助忍组、山际真晃开发
 
 Privileged to work on an exciting title as RiseOfTheRonin with Yasuda-san of  @TeamNINJAStudio @giwamasa and our @Sony_XDEV JP team. Only right to visit the Meiji Jingu Shrine. Birth of the Charter Oath in Five Articles and end of Feudal Shogunate Japan 
 
+
+
+*****
+
+####  医生狼多  
+##### 197#       发表于 2022-9-21 15:33
+
+据VGC报道，索尼旗下XDev工作室也已经确认与忍者组合作共同开发《浪人崛起》。
+
+索尼Xdev工作室与全球各地的外部工作室合作，提供制作、管理、设计和出版支持以及其他服务。Xdev日本团队目前主要负责公司国内外部项目的合作。游戏制作人安田文彦也曾透露，自七年前开始开展该项目以来，索尼一直在支持忍者组。
+
+Xdev的高级制作人Jason Stewart也在推特上表示对此次合作十分激动和期待之情
+
+据了解，总部位于英国利物浦的 XDev 此前曾帮助在欧洲创建和发布外部开发的游戏，包括《麻布仔大冒险》、《暴雨》、《超凡双生》和《Returnal》等。
+
+*****
+
+####  彩虹肥宅  
+##### 198#       发表于 2022-9-21 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581410&amp;ptid=2092342" target="_blank">医生狼多 发表于 2022-9-21 15:33</a>
+
+据VGC报道，索尼旗下XDev工作室也已经确认与忍者组合作共同开发《浪人崛起》。
+
+索尼Xdev工作室与全球各地 ...</blockquote>
+怎么不让sp的人来帮
+
