@@ -8015,3 +8015,292 @@ bilibili23862727，有指路
 
 小百合，哎……
 
+
+
+*****
+
+####  挖坑毕挺尸  
+##### 5291#       发表于 2022-9-21 15:43
+
+二期生yabu跟kuma可以，emorin和non大白嗓痕迹太明显
+
+以及小百合是不是真没救了，op一嗓子差点把我送走<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 5292#       发表于 2022-9-21 15:44
+
+小百合感觉嗓子坏了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  奥柏伦亲王  
+##### 5293#       发表于 2022-9-21 15:45
+
+我挺喜欢小百合的，但有时候会忍不住想，如果就让她像隔壁灯露一样站着唱是不是反倒好点，虽然也就是瞎想想，而且她舞蹈那么有感染力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 5294#       发表于 2022-9-21 15:47
+
+二期瘦了好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qty  
+##### 5295#       发表于 2022-9-21 15:47
+
+小百合看前几天的拼盘live感觉还恢复的可以啊，怎么听你们说的好像又要完了？
+
+*****
+
+####  奥柏伦亲王  
+##### 5296#       发表于 2022-9-21 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581645&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 15:47</a>
+小百合看前几天的拼盘live感觉还恢复的可以啊，怎么听你们说的好像又要完了？ ...</blockquote>
+前几天那个拼盘垫的和十个人唱的一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5297#       发表于 2022-9-21 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草 这开头两句 要杀我不用这样
+
+*****
+
+####  奥柏伦亲王  
+##### 5298#       发表于 2022-9-21 15:49
+
+长发熊虽然脸盘子大但是还是很漂亮
+
+*****
+
+####  愛さ実  
+##### 5299#       发表于 2022-9-21 15:49
+
+拼盘那时不知垫了多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿姆罗二世  
+##### 5300#       发表于 2022-9-21 15:49
+
+小百合属于出道即巅峰了吧，刚刚出道的时候多惊艳啊，后来就拉了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  奥柏伦亲王  
+##### 5301#       发表于 2022-9-21 15:49
+
+草，唱交响曲我可不乐意了啊，还有点毁歌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 5302#       发表于 2022-9-21 15:50
+
+non开口差点把我带走<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 5303#       发表于 2022-9-21 15:50
+
+<img src="https://img.saraba1st.com/forum/202209/21/154923m4x9l2z9xmdxrxl2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>992B79FE-AB59-4273-A433-3D3018B66932.jpeg</strong> (128.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154923dz8cfhtmkmf8l6h9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9F65F5D7-B6E1-4CF9-8FBF-B7BC34C9FE3D.jpeg</strong> (149.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154936sxppxaobpsb3rp3e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>067F9ABC-02FE-4828-BCF7-344B5894830A.jpeg</strong> (180.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154936mrzszeng62xee2gz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>12D76049-5C89-4806-9D61-6A0BAAD7A29E.jpeg</strong> (170.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154936uxdfdvkkks4rxw0s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2D58E27A-CEBD-4A74-BA5C-CA0F7E8736B9.jpeg</strong> (203.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154950tsy77yc5zc1nd1py.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1779E6C0-92FA-4002-8495-7BDD11DB8236.jpeg</strong> (261.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154950z5p3vhl35pgapglh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C23548E3-9FDC-4555-B549-4BBEEDF1966F.jpeg</strong> (264.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154950fwo2bobksfz0ehhb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>631AFF3B-EDEF-4B68-89CD-1D537C9942BC.jpeg</strong> (181.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154951yk7b8bm6j6oilzs7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BB09EEE8-BB21-4A73-A700-73AD507C4CFF.jpeg</strong> (281.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/154951ik093h63k0j30au0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5F620D09-548E-4D23-9E19-A494E1520BE8.jpeg</strong> (317.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/155007mqt66i5ts6sjigdz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5C5CD536-F565-4545-ABD6-47E9678EA094.jpeg</strong> (228.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/155007ilksjasmsi7pmjs1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>32A9A3AD-9D2A-470F-82CE-404D6BE6B7DD.jpeg</strong> (268.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/155007piilfkt5t9xlzi5k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>64155EB9-031F-4CB0-B136-B6B80209F267.jpeg</strong> (208.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/155008raoaabssdcqtqes3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DC4C869C-C9A0-4F99-BD19-ECA6EE1DF7DC.jpeg</strong> (187.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202209/21/155008yjt55t58ad1biamu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>58EB2C83-4C91-4C58-9049-82795F93F24E.jpeg</strong> (186.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-21 15:50 上传
+
+*****
+
+####  starring  
+##### 5304#       发表于 2022-9-21 15:50
+
+看群截图，是把一二期生见面的过程放出来吗
+
+*****
+
+####  qty  
+##### 5305#       发表于 2022-9-21 15:50
+
+<blockquote>奥柏伦亲王 发表于 2022-9-21 15:48
+前几天那个拼盘垫的和十个人唱的一样</blockquote>
+好吧，那现在看来三次元也不太乐观，一期二期两个C位状态都不行。
+
+*****
+
+####  稀勢のささ  
+##### 5306#       发表于 2022-9-21 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来这就是心肺急停
+
+*****
+
+####  aoaoaodedede  
+##### 5307#       发表于 2022-9-21 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581696&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-21 15:50</a>
+
+看群截图，是把一二期生见面的过程放出来吗</blockquote>
+是的
+
+*****
+
+####  奥柏伦亲王  
+##### 5308#       发表于 2022-9-21 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581701&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 15:50</a>
+好吧，那现在看来三次元也不太乐观，一期二期两个C位状态都不行。</blockquote>
+是时候推出可堇C了！（胡言乱语
+
+*****
+
+####  lj205  
+##### 5309#       发表于 2022-9-21 15:51
+
+我不接受这首让她们唱……………………………………………………………………………………………………………………………………………………
+

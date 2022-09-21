@@ -1847,3 +1847,31 @@ Xdev的高级制作人Jason Stewart也在推特上表示对此次合作十分激
 索尼Xdev工作室与全球各地 ...</blockquote>
 怎么不让sp的人来帮
 
+
+
+*****
+
+####  医生狼多  
+##### 199#       发表于 2022-9-21 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581439&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2022-9-21 15:35</a>
+怎么不让sp的人来帮</blockquote>
+因为安田没有岛哥哥的面子果实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 200#       发表于 2022-9-21 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581524&amp;ptid=2092342" target="_blank">医生狼多 发表于 2022-9-21 15:41</a>
+
+因为安田没有岛哥哥的面子果实吧</blockquote>
+如果对马岛的画面风格+忍组的战斗那不是无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 201#       发表于 2022-9-21 15:48
+
+  有点难为欧美工作室要折腾日厂的破烂自研了
+

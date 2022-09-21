@@ -13143,3 +13143,15 @@ yls有良心就每单多点石头呗
 不优先拉满c呆反而先给孔老师310看不懂，这次活动送的2宝壹与+双c呆能冲所有333本，技能都不用点的 ...</blockquote>
 你认真看下我ID呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2684#       发表于 2022-9-21 15:43
+
+这有啥想不通的，玩游戏不就是随心所欲
+
+上次为了给坛友试一下els打111本，直接拉满了30+20np，然后再也没掏出来用过
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
