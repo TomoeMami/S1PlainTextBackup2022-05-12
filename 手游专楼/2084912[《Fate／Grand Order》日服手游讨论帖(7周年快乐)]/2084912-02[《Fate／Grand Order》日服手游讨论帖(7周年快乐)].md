@@ -13809,3 +13809,27 @@ rba、奥宝和千利休都没练满技能<img src="https://static.saraba1st.com
 
 不知道活动结束之前能不能赶上3t90艹
 
+
+
+*****
+
+####  poor  
+##### 2738#       发表于 2022-9-21 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585369&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-21 19:50</a>
+因为是倍卡所以正好适合这个活动嘛...
+
+其实我还看到一个一宝千利休的3T，不过是个日服萌新组的队，打手 ...</blockquote>
+这个换个CBA抱个高宝大腿貌似可以抄
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qb0079  
+##### 2739#       发表于 2022-9-21 20:18
+
+<blockquote>alucardcz 发表于 2022-9-21 19:50
+狗蛋1宝就能打100万？</blockquote>
+能打130W
+
