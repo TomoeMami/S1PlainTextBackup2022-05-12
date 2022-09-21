@@ -13164,3 +13164,44 @@ yls有良心就每单多点石头呗
 
 艹是月癌
 
+
+
+*****
+
+####  alucardcz  
+##### 2686#       发表于 2022-9-21 17:11
+
+2面 1面1个19万 2面100万血+一个5万杂兵.
+
+这次没有倍卡哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  alucardcz  
+##### 2687#       发表于 2022-9-21 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57582975&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-9-21 17:10</a>
+
+艹是月癌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是100万血哦  没倍卡哦(
+
+*****
+
+####  khxooo  
+##### 2688#       发表于 2022-9-21 17:13
+
+无倍卡100W，差不多按着玩家说，给我用活动从者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2689#       发表于 2022-9-21 17:18
+
+ 本帖最后由 alucardcz 于 2022-9-21 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583013&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-21 17:13</a>
+
+无倍卡100W，差不多按着玩家说 ...</blockquote>
+试了下 狂娜单红还差10万 高配稳定2回合基本脚打...
+
+像我这种要稳定得3回合(不换人)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

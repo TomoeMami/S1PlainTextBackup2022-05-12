@@ -8956,3 +8956,21 @@ star宣言 BV1X14y1Y7ny
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 5383#       发表于 2022-9-21 17:14
+
+听完star宣言只想说，打铁唱的都什么鬼
+
+然后emo唱这歌不是挺好嘛，为什么交响曲会唱成那个样子
+
+*****
+
+####  adw667  
+##### 5384#       发表于 2022-9-21 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">说起来一二期生的见面日期确定了吗
+
