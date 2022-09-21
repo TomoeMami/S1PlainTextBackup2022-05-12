@@ -8417,3 +8417,88 @@ non开口差点把我带走<img src="https://static.saraba1st.com/image/smiley/f
 有人说铃原唱的很好？？？？
 是我耳朵的问题，还是不会欣赏
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5324#       发表于 2022-9-21 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁说的就让谁循环这首交响曲
+
+*****
+
+####  kata魂  
+##### 5325#       发表于 2022-9-21 16:04
+
+我没看直播 看松雾说强的…好像还是这首交响曲…
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5326#       发表于 2022-9-21 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说有二期生跳常夏的片段？nagi zaima
+
+*****
+
+####  qty  
+##### 5327#       发表于 2022-9-21 16:05
+
+<blockquote>奥柏伦亲王 发表于 2022-9-21 15:51
+是时候推出可堇C了！（胡言乱语</blockquote>
+感觉运营层已经在隐约的转移主推点了，这段时间感觉小百合的露脸次数下降不少，青山却越来越多，之前的生放送也是青山坐中间，看楼友发的截图青山在表演时的站位也越来越靠中间了，结合之前青山接的机甲番的活，我怀疑上面资方在把资源重心逐渐倒向青山。
+
+*****
+
+####  稀勢のささ  
+##### 5328#       发表于 2022-9-21 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个开头让我颤了五分钟 连音宝都做不到
+
+*****
+
+####  aoaoaodedede  
+##### 5329#       发表于 2022-9-21 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581974&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 16:05</a>
+
+感觉运营层已经在隐约的转移主推点了，这段时间感觉小百合的露脸次数下降不少，青山却越来越多，之前的生 ...</blockquote>
+感觉不至于，个活是看事务所能力，而且sayu露脸的次数绝对不算少了
+
+*****
+
+####  愛さ実  
+##### 5330#       发表于 2022-9-21 16:09
+
+“嗓子打开了真的很强”，没打开呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+高情商说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 5331#       发表于 2022-9-21 16:09
+
+原来二期动画一直在给我们灌输二期生不行是认真的，看来真的是不断强调好让大家提前做好心理准备
+
+*****
+
+####  奥柏伦亲王  
+##### 5332#       发表于 2022-9-21 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581974&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-21 16:05</a>
+感觉运营层已经在隐约的转移主推点了，这段时间感觉小百合的露脸次数下降不少，青山却越来越多，之前的生 ...</blockquote>
+不至于，青山就是条件好，业务好，能接活实属正常。
+
+*****
+
+####  starring  
+##### 5333#       发表于 2022-9-21 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57581953&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-21 16:04</a>
+
+我没看直播 看松雾说强的…好像还是这首交响曲…</blockquote>
+松雾的话听听就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
