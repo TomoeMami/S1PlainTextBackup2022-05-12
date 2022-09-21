@@ -9086,3 +9086,44 @@ QQ频道好像要内测资格才能使用？要是有腾讯会议的源就好了
 
 鲤鱼，这转音可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 5398#       发表于 2022-9-21 19:01
+
+鲤鱼今天绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5399#       发表于 2022-9-21 19:02
+
+原来cdtv里突然唱抒情版歌的是鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 5400#       发表于 2022-9-21 19:08
+
+这唱的是谁的歌呀？还是在模仿谁？
+
+
+
+*****
+
+####  稀勢のささ  
+##### 5401#       发表于 2022-9-21 19:09
+
+“liella的歌都能这么唱”“不只我后台这么唱 还有那个鲨鱼”
+
+*****
+
+####  奥柏伦亲王  
+##### 5402#       发表于 2022-9-21 19:10
+
+草，人在地铁上啥也看不到，就很急<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
