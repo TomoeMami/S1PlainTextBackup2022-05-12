@@ -9681,3 +9681,23 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是也想切上面流行那段聊天 一搜发现已经有了就算了
 
+
+
+*****
+
+####  starring  
+##### 5454#       发表于 2022-9-22 00:35
+
+第二场的表现确实好不少，emo没第一场那么紧张发挥得也可以了。不太懂，总觉得大熊也是用大白嗓唱歌，下午也说过她唱得太用力声音反而放不开像崩出来
+
+滤镜也好歧视也罢，打铁和铃原合唱的部分真的是灾难<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5455#       发表于 2022-9-22 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57589220&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-22 00:35</a>
+第二场的表现确实好不少，emo没第一场那么紧张发挥得也可以了。不太懂，总觉得大熊也是用大白嗓唱歌，下午 ...</blockquote>
+铃原音准其实不差，但是就是不出声，第二场symphony可能是逼急了喊出来了……如果她将来能一直做到大声唱歌的话垫底的大概会是彩
+

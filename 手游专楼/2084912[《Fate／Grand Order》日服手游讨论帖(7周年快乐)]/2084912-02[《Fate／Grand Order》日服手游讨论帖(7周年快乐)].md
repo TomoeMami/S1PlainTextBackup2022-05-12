@@ -14180,3 +14180,12 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢个上面配置的录像
 
+
+
+*****
+
+####  kiralzb  
+##### 2769#       发表于 2022-9-22 00:37
+
+这最后BOSS战是设计给自己打自己的？虽然千利休看着技能组是挺好的，但是我根本没素材升级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
