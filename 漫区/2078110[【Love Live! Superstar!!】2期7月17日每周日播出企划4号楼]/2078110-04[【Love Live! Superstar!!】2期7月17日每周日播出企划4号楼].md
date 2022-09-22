@@ -9781,3 +9781,12 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 
 live首秀表现成这样还行吧，后面看看3rd怎样
 
+
+
+*****
+
+####  cybernetics31  
+##### 5463#       发表于 2022-9-22 08:39
+
+钱都留给个人势了，谁还给企划钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
