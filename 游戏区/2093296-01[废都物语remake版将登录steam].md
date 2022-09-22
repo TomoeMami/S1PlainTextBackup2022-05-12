@@ -3754,3 +3754,16 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 微博是打算一天一动了吗</blockquote>
 毕竟unite了，是也没啥关系（
 
+
+
+*****
+
+####  Evomenon  
+##### 391#       发表于 2022-9-22 19:19
+
+憋互动了，赶紧地出，虽然出不出我都要先通原版了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不得不说这个序章熬过去之后，正篇是真的带感。相比RPG更接近跑团？的感觉，代入感确实不一样<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+从PV看起来重制版背景、立绘、音乐都有点东西了，会不会有主要角色全语音？
+

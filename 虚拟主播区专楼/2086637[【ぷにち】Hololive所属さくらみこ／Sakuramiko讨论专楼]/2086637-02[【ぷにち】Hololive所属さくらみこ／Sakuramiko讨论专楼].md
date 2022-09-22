@@ -2573,3 +2573,12 @@ mc100终于结束了，<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，前世就在玩了啊
 
+
+
+*****
+
+####  rs5621  
+##### 1752#       发表于 2022-9-22 19:18
+
+rust刚上线就跑去串门了
+
