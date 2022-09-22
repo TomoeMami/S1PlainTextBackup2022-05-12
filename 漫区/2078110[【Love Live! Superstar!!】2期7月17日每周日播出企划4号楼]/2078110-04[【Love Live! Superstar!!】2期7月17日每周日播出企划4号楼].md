@@ -10283,3 +10283,12 @@ non的新作
 
 目前看来花田他们对二期生花的力气和二期生的水平基本相符，结那是三期生的话什么时候会公布值得一乐，是二季完了就加进来或者等到三季和剩下的一起宣布
 
+
+
+*****
+
+####  cybernetics31  
+##### 5503#       发表于 2022-9-22 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说是我记错了，实际没有不允许单人参赛的规矩？
+
