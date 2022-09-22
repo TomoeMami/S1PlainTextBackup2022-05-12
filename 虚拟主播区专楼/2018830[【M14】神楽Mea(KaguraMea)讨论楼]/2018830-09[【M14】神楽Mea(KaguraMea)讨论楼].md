@@ -4701,3 +4701,15 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 真可爱
 
+
+
+*****
+
+####  ashero  
+##### 12498#       发表于 2022-9-22 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57601471&amp;ptid=2018830" target="_blank">海风的巴萨诺瓦 发表于 2022-9-22 20:56</a>
+
+话说这个企划半死不活的不是先想点办法推广还先卖谷子啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推广有毛用啊 当然是趁着还有这组合趁机割一波
+
