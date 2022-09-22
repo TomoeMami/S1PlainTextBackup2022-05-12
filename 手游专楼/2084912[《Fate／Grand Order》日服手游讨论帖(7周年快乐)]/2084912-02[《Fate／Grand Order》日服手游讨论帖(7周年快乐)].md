@@ -14259,3 +14259,22 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 超千利休笑死，日本人又老配战国鬼才传的图，千利休这角色在我心里的形象已经完蛋了。
 
+
+
+*****
+
+####  الطائر  
+##### 2777#       发表于 2022-9-22 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57583796&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-9-21 18:10</a>
+
+可乐茶是什么鬼东西啊！</blockquote>
+剩下三个是腌黄萝卜干茶、姑姑的麦粥茶、魔神柱哈艮地茶 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 原来可乐茶才是最正常的
+
+*****
+
+####  yangun22  
+##### 2778#       发表于 2022-9-22 11:07
+
+不吃特攻硬帮你加上去，小教授加金钻头，术武后加铁拳圣女，2波敌人这种可以玩出很多花啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

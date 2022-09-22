@@ -9829,3 +9829,34 @@ live首秀表现成这样还行吧，后面看看3rd怎样
 
 看了一下晚场的切片，私のsymphony最后那个切镜有点……
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5468#       发表于 2022-9-22 11:05
+
+【表紙W初公開】
+
+唐 可可＆平安名すみれ＆鬼塚夏美が表紙のLoveLive!Daysラブライブ！総合マガジン Vol.32は９月29日（木）発売！
+
+唐 可可と平安名すみれが表紙の電撃G’s magazine 11月号は９月30日（金）発売です！
+
+どちらもお見逃しなく
+<img src="https://p.sda1.dev/7/11276603905b9d3133ae90f4d1a8a121/20220922_110049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/37c8bc3a13e2147468188d1ce2f693e4/20220922_110053.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 5469#       发表于 2022-9-22 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57591495&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-22 09:25</a>
+
+第九集都演到这地步了还能输吗，一旦赢了可可就啥包袱都没有了，建议现在就能开始收拾垃圾跑路了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说得对，看二期这个样子也没不会有啥回旋了，大家赢了皆大欢喜就当啥事没发生。之前本来一直都期待9-10集能展开一下，现在啥都没，两个最喜欢的角色还因此成为动画组以及节奏大师的黑泥工具人。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两天确实也在反思自己追企划到底图啥，越想越觉得热情殆尽。虽然有点遗憾，但希望下次再见破企划就是它倒闭的新闻。但还是希望中之人小姐姐们个人事业能顺利红火。
+
