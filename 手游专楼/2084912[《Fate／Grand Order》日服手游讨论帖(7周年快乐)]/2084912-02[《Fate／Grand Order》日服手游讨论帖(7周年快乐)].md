@@ -14406,3 +14406,15 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没啊 在想屁吃而已
 
+
+
+*****
+
+####  廖化  
+##### 2791#       发表于 2022-9-22 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57595946&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-22 14:22</a>
+
+你见过自选五星让你选过限定？</blockquote>
+艹忘记王姐是限定了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
