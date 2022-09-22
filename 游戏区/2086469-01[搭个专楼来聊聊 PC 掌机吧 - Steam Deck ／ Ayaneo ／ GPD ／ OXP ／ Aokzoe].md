@@ -3190,3 +3190,17 @@ Ayaneo 2 的实际，边框的确不错。
 
 ·USB-C耳机支持，3.5毫米耳机孔
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 258#       发表于 2022-9-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57597589&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-22 16:28</a>
+
+罗技云掌机，300刀
+
+罗技与腾讯联合宣布，其合作推出的云游戏掌机将于10月17日正式发售，售价349.9美元（约 ...</blockquote>
+这玩意不是被奥丁薄纱
+
