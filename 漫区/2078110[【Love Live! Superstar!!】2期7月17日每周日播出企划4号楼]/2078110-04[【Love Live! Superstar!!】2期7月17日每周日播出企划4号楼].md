@@ -10431,3 +10431,14 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 5515#       发表于 2022-9-23 07:48
+
+日月组转生成三期生吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
