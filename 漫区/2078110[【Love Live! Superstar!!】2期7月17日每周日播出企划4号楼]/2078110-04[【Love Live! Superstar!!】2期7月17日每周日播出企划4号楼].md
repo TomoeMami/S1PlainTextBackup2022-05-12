@@ -10058,3 +10058,64 @@ Liella这边马上开场了却找不到香音的人
 突然被唤醒过来因为过大的冲击昏厥过去
 在精神世界里面和VN对唱以后成功说服VN 和里人格合一成为三度进化的超级香音 和同伴一起走向最后的舞台
 
+
+
+*****
+
+####  愛さ実  
+##### 5485#       发表于 2022-9-22 20:43
+
+不会的，结那要进团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活可就大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 5486#       发表于 2022-9-22 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57601088&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 20:29</a>
+
+我现在越来越觉得这个VN香音一体说有力了
+
+首先VN几次出场都是单独和香音接触
+
+其他人都没近距离遇到VN 第一 ...</blockquote>
+原来如此，能远距离和snp对决也就能说得通了，毕竟香音会瞬移啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ 说实话如果大花老师真这么写，那我会由衷钦佩它，这下“实现我的故事”就完成啦！
+ 如果没有公开声优，声优表一直是马赛克状态的话还真有可能啊，我说真的，sayu还要一直装不知道（ 
+
+*****
+
+####  ads147147  
+##### 5487#       发表于 2022-9-22 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57601088&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 20:29</a>
+我现在越来越觉得这个VN香音一体说有力了
+首先VN几次出场都是单独和香音接触
+其他人都没近距离遇到VN 第一 ...</blockquote>
+如果是高达片场，我觉得可能性很大。
+
+可惜拉拉片场再魔幻也不会这样搞的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  plazum  
+##### 5488#       发表于 2022-9-22 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57586749&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-21 21:30</a>
+<img src="https://img.saraba1st.com/forum/202209/21/213050hru6udbisb60rlnz.jpeg" referrerpolicy="no-referrer"></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 5489#       发表于 2022-9-22 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585343&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-9-21 19:49</a>
+
+这不早就公开的消息了吗，没看铃原访谈吗，她在5人公布前就钦定了，所以企划看上她啥了 ...</blockquote>
+是五人公布之前吗？印象中是说看着一期发表，但是说后续要跟他们一起搞活动是后期一段时间后收到staff消息的时候<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道有没有记错
+
