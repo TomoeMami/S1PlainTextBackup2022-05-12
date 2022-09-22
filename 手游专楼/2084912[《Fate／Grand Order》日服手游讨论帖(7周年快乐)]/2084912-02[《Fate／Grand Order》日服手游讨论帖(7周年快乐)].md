@@ -14550,3 +14550,15 @@ bilibili.com/video/av558257404/
 话说伊莉雅是不是领先版本理解XX年 巴萨卡是最强的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好的 下个版本100万外星人
 
+
+
+*****
+
+####  qixinno2  
+##### 2803#       发表于 2022-9-22 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599751&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-22 18:57</a>
+
+好的 下个版本100万外星人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有上将机龙娘可斩外星人
+
