@@ -10018,3 +10018,18 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 
 同台还能有啥压力 隔壁去年菜宝和秀还是第一次上台呢<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5483#       发表于 2022-9-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57600192&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-22 19:28</a>
+今年如果再跨年就是九人了吧，新成员开了几场live后和前辈的前辈们同台，感觉挺有压力的
+
+ ...</blockquote>
+有sww陪着呢，不怕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

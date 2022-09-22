@@ -3204,3 +3204,17 @@ Ayaneo 2 的实际，边框的确不错。
 罗技与腾讯联合宣布，其合作推出的云游戏掌机将于10月17日正式发售，售价349.9美元（约 ...</blockquote>
 这玩意不是被奥丁薄纱
 
+
+
+*****
+
+####  rossokun  
+##### 259#       发表于 2022-9-22 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57597589&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-22 16:28</a>
+罗技云掌机，300刀
+罗技与腾讯联合宣布，其合作推出的云游戏掌机将于10月17日正式发售，售价349.9美元（约 ...</blockquote>
+这什么电子垃圾，纯串流还比ns重和贵，直接搞个破解ns不得了
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
