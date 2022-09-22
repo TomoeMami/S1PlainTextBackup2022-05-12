@@ -9899,3 +9899,14 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 
 希望二期完结的时候音监出来采访QA一下，土妹子和夏美的声线是他在什么精神状态下决定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 5473#       发表于 2022-9-22 12:43
+
+星团在国内能卖出钱一半功劳归谁不知道日本人真不知道。我们唯一不知道的是体现在财报上的中国大陆市场究竟送了多少钱给对岸而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
