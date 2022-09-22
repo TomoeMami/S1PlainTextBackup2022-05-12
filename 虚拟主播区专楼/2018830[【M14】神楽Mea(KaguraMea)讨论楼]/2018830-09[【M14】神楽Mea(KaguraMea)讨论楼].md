@@ -4758,3 +4758,12 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 索尼日常断气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 12504#       发表于 2022-9-22 22:47
+
+其实我至今没搞清楚三个新人到底是哪里人，有没有前世<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
