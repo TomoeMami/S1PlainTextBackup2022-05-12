@@ -608,3 +608,31 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 
 第一张我也猜塞尔达，一翻到后面的图……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CswStar  
+##### 63#       发表于 2022-9-22 17:55
+
+ 本帖最后由 CswStar 于 2022-9-22 17:58 编辑 
+
+两个小时冲完了，一大半都没猜出来。有的图片也太搞了，血源我玩了上百小时，愣是到第三张才看出来，mgs2没玩过居然还一眼看出来了。最近几期的难度明显降了，老游戏少了，没有之前的难。
+
+<img src="https://img.saraba1st.com/forum/202209/22/175456zr0n0jrj1n1jj0np.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-09-22-17-48-40-933_mark.via.jpg</strong> (77.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-22 17:54 上传
+
+*****
+
+####  kimihung  
+##### 64#       发表于 2022-9-22 17:56
+
+好多游戏都没玩过，但是很多靠图片上的画面渲染风格，第一时间就想到某个游戏。
+
+视觉果然是游戏的第一要素
+
