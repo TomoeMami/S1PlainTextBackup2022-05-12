@@ -10350,3 +10350,14 @@ non的新作
 只是从来都是两人以上，所以默认不会是单人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能单人的话雪菜唱个chase怕不是就赢了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5508#       发表于 2022-9-23 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57603723&amp;ptid=2078110" target="_blank">qty 发表于 2022-9-22 23:15</a>
+看了熟肉，talk环节yabu是真的有点放不开，铃原反倒是挺适应的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">适应啥啊 7分钟就说了个嗯
+
