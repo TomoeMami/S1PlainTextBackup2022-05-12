@@ -14510,3 +14510,24 @@ bilibili.com/video/av558257404/
 
 2765楼那个就是带个光炮换人6加成的
 
+
+
+*****
+
+####  alucardcz  
+##### 2799#       发表于 2022-9-22 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599472&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-22 18:37</a>
+
+谢谢，看到了，2741楼。但是不带光炮的话确实比伤害不够更需要红卡补刀，不过也是个好思路，我去试一下～
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗蛋2宝伤害不如黑狗的。。。甚至3宝也不够必须顶配才行
+
+*****
+
+####  eyeego  
+##### 2800#       发表于 2022-9-22 18:47
+
+二面丢两个宝具效率低啊 虽然这伪无限池也不用抠那么死就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
