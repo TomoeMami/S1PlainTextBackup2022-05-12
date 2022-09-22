@@ -10292,3 +10292,35 @@ non的新作
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说是我记错了，实际没有不允许单人参赛的规矩？
 
+
+
+*****
+
+####  愛さ実  
+##### 5504#       发表于 2022-9-22 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602967&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 22:20</a>
+话说回来 为什么这么多人这么确信结那是三期生啊
+这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
+官方这待遇，结那这勤奋<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">确实没实证，只能说99.99%可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沙茶酱  
+##### 5505#       发表于 2022-9-23 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57603901&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-22 23:26</a>
+
+话说啥时候LL大赛能单人参赛了还是说是我记错了，实际没有不允许单人参赛的规矩？ ...</blockquote>
+其实还真的没说不能单人
+
+只是从来都是两人以上，所以默认不会是单人
+
+而虹那代才正式提出不能单人的说法。
+
+只是没想到星立马背刺
+
+不过初中生不可参赛倒是一开始就有明说
+
