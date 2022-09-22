@@ -9925,3 +9925,14 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 
 2022-9-22 13:07 上传
 
+
+
+*****
+
+####  Enakina  
+##### 5475#       发表于 2022-9-22 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57593229&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-9-22 11:06</a>
+你说得对，看二期这个样子也没不会有啥回旋了，大家赢了皆大欢喜就当啥事没发生。之前本来一直都 ...</blockquote>
+真的退坑其实也简单，当初水二期后我就退坑了，是属于那种真的一点消息都在不关注的那种了。某天刷到虹一期动画我都很意外，后来星团才重新关注。虽然不知道之后会不会在放弃一次，但我也衷心的期待有生之年能看到你破企划彻底完蛋的那一天呢<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
