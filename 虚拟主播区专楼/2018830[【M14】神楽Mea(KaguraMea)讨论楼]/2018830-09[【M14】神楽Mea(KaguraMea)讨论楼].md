@@ -4776,3 +4776,23 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">现在不知道是索尼先断气还是叔叔先断气捏
 
+
+
+*****
+
+####  ashero  
+##### 12506#       发表于 2022-9-23 05:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57603344&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2022-9-22 22:47</a>
+其实我至今没搞清楚三个新人到底是哪里人，有没有前世</blockquote>
+除了薄荷都有前世 第一天就挖干净了 
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雪风utopia  
+##### 12507#       发表于 2022-9-23 05:54
+
+第一天就挖干净了，好快的速度
+

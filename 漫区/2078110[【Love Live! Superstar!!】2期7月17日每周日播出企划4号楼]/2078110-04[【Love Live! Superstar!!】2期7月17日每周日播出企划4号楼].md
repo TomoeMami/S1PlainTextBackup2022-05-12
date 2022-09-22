@@ -10395,3 +10395,28 @@ non的新作
 这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
 我也觉得不很像，我想到的原因很简单，现在Liella九个人明显都是室田雄平做的角色原案，而SunnyPassion二人是斋藤敦史自己创作形象的角色，VN更像是后者，子供向风格的感觉太强了。虽然也说不准三期生会不会都没有室田原案，但总感觉风格不太对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kbtit  
+##### 5512#       发表于 2022-9-23 02:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">为啥看5chかのすみ的小黄文总给我这对很火的错觉，而且すみれ永远是带把的那个
+
+*****
+
+####  luozijin000  
+##### 5513#       发表于 2022-9-23 03:21
+
+<img src="https://img.saraba1st.com/forum/202209/23/031738agoboghrs11nlgsq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8EFD68A5-D576-4AB8-A43E-8FBB351D5159.jpeg</strong> (258.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-23 03:17 上传
+
+snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推
+
