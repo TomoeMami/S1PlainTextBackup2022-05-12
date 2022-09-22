@@ -14901,3 +14901,14 @@ UFOtable就是光污染嘛，动作场面做的稀烂，真的不如给日升。
 
 还是没有大概什么时候播的消息吗，我好急
 
+
+
+*****
+
+####  长谷川红叶  
+##### 1472#       发表于 2022-9-22 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57570807&amp;ptid=2094448" target="_blank">天堂懵懂人 发表于 2022-9-20 20:50</a>
+刚看了鬼魅之刃前两集 背景和人物感觉比PV做得还好</blockquote>
+不如说这才是正常的现象吧。是什么改变了你，好莱坞预告片吗？
+
