@@ -14388,3 +14388,12 @@ bilibili.com/video/av558257404/
 等2.5复刻得捞个狗蛋回来</blockquote>
 狗蛋应该是下一个DL纪念或者新年的日替了，不会塞在rts 2.5，因为2.5他实际上也没正面登场
 
+
+
+*****
+
+####  里村紅葉  
+##### 2789#       发表于 2022-9-22 16:02
+
+啥时候说要自选五星了，我上一次自选五星还没选啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
