@@ -3649,3 +3649,23 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 这就玩上了</blockquote>
 制作组是懂的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">第一次看到曲奇谜题的汉化时把我惊艳了。
 
+
+
+*****
+
+####  Evomenon  
+##### 383#       发表于 2022-9-22 10:35
+
+想国庆把原版先补了，借楼请教下，路线上有什么讲究吗？比如哪条线建议在哪条线之前打之类的
+
+*****
+
+####  红魔馆的糖  
+##### 384#       发表于 2022-9-22 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57592713&amp;ptid=2093296" target="_blank">Evomenon 发表于 2022-9-22 10:35</a>
+想国庆把原版先补了，借楼请教下，路线上有什么讲究吗？比如哪条线建议在哪条线之前打之类的 ...</blockquote>
+路线对历史的解构有深有浅。。
+
+虽说从浅到深抽丝剥茧比较好，但是这游戏一周目体验是最好的，一步到位反而好些，所以我建议玩贤者线
+
