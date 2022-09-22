@@ -14250,3 +14250,12 @@ bilibili.com/video/av558257404/
 
 半夜上头去淘宝买了个全拐1宝摩根初始把现在的伊吹初始覆盖了
 
+
+
+*****
+
+####  v22325  
+##### 2776#       发表于 2022-9-22 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 超千利休笑死，日本人又老配战国鬼才传的图，千利休这角色在我心里的形象已经完蛋了。
+
