@@ -14453,3 +14453,24 @@ bilibili.com/video/av558257404/
 
 查看全部评分
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2794#       发表于 2022-9-22 18:25
+
+看到一个泳装武则天、金时、奥伯龙的不换人六加成攻略，问题是配置比较高，圣杯和宝具都需要，感觉不好复刻...：
+
+【【FGO】新邪马台90艹，不换6加成-哔哩哔哩】 [https://b23.tv/EGcqz9Y](https://b23.tv/EGcqz9Y)
+
+*****
+
+####  alucardcz  
+##### 2795#       发表于 2022-9-22 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599342&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-22 18:25</a>
+
+看到一个泳装武则天、金时、奥伯龙的不换人六加成攻略，问题是配置比较高，圣杯和宝具都需要，感觉不好复刻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前面那个阵容把黑狗换120 5宝狗蛋 就可以6加成不换人了 狗蛋要求太高 反正我好友里没这样的
+
