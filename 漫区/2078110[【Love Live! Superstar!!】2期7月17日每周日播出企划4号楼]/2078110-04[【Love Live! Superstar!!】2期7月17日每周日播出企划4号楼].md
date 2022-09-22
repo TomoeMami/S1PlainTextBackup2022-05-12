@@ -10215,3 +10215,16 @@ non的新作
 这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
 最主要是因为初三这个设定 如果不是为了当三期生 实在想不通为什么要弄这么一个史无前例的初中生参加LL
 
+
+
+*****
+
+####  Kfly  
+##### 5496#       发表于 2022-9-22 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602967&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 22:20</a>
+话说回来 为什么这么多人这么确信结那是三期生啊
+这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
+保底新对手，上限三期生
+为了她都把snp给请下场了，还叫lovelive大赛让道了，这么给面子猜一个三期生不过分吧？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
