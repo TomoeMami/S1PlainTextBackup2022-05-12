@@ -9790,3 +9790,12 @@ live首秀表现成这样还行吧，后面看看3rd怎样
 
 钱都留给个人势了，谁还给企划钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yugao  
+##### 5464#       发表于 2022-9-22 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铃原希实也是nozomi，等她退部你们就知道错了
+
