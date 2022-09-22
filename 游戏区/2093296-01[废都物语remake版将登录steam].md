@@ -3767,3 +3767,12 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 从PV看起来重制版背景、立绘、音乐都有点东西了，会不会有主要角色全语音？
 
+
+
+*****
+
+####  iuiuk2  
+##### 392#       发表于 2022-9-22 19:31
+
+我记得这个游戏本来就是作者为了推自己的跑团规则出的吧，像跑团很正常，话说现在越看越觉得这重制版是某个原作狂热粉当上领导后自己搞得了，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
