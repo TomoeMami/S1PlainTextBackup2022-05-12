@@ -4655,3 +4655,40 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  掉头学姐  
+##### 12492#       发表于 2022-9-22 20:50
+
+肥婆二连
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 12493#       发表于 2022-9-22 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可爱
+
+*****
+
+####  Rem-清曲  
+##### 12494#       发表于 2022-9-22 20:51
+
+还行，手能贴着肚子，还有一点穿膜，没有超膜 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 12495#       发表于 2022-9-22 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">话说这个企划半死不活的不是先想点办法推广还先卖谷子啊
+
+*****
+
+####  clvan_  
+##### 12496#       发表于 2022-9-22 20:57
+
+日本b站搞得，能搞满一年就不错了，哪来的能力搞推广<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
