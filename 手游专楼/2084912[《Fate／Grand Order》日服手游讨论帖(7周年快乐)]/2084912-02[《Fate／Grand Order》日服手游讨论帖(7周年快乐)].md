@@ -14427,3 +14427,29 @@ bilibili.com/video/av558257404/
 
 高难还没打，有没有大佬讲解一下机制和打法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2793#       发表于 2022-9-22 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599026&amp;ptid=2084912" target="_blank">马桶3 发表于 2022-9-22 18:00</a>
+
+高难还没打，有没有大佬讲解一下机制和打法</blockquote>
+不想直接爆破的话就是苟住 然后几个树满后有一回合输出机会 就这样循环
+
+第2条血直接用一个有强化解除的角色一宝具秒了就是
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 马桶3| + 1|好评加鹅|
+
+查看全部评分
+

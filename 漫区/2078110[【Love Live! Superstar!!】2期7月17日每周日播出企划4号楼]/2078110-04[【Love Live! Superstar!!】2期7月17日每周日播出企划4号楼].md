@@ -9959,3 +9959,26 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 星团在国内能卖出钱一半功劳归谁不知道日本人真不知道。我们唯一不知道的是体现在财报上的中国大陆市场究竟 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只能说当初小日本儿跟鱼谈合同的时候别加什么跟大陆市场挂钩的码给她就行了，企划这烂样也好意思幻想让一个打工人来挖市场呢。有吸引人的水平没有留住人的水平。
 
+
+
+*****
+
+####  优妮可  
+##### 5478#       发表于 2022-9-22 18:06
+
+<img src="https://img.saraba1st.com/forum/202209/22/180558u4kuquu7zl4ddeu4.jpg" referrerpolicy="no-referrer">
+
+<strong>20220922_180137.jpg</strong> (106.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-22 18:05 上传
+
+<img src="https://img.saraba1st.com/forum/202209/22/180559bn5nxhxvxaxinxzx.jpg" referrerpolicy="no-referrer">
+
+<strong>20220922_180145.jpg</strong> (311.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-22 18:05 上传
+
