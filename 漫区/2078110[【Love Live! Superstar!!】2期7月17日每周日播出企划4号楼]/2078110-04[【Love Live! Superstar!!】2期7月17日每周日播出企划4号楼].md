@@ -10420,3 +10420,14 @@ non的新作
 
 snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推
 
+
+
+*****
+
+####  iuhehc  
+##### 5514#       发表于 2022-9-23 07:12
+
+也不是第一次声优不满剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
