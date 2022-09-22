@@ -14337,3 +14337,16 @@ bilibili.com/video/av558257404/
 
 我3500石已经饥渴难耐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2784#       发表于 2022-9-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57596327&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-9-22 14:53</a>
+说起来摩根是不是快复刻了啊，我看了下好像上次复刻是4月？
+
+我3500石已经饥渴难耐了 ...</blockquote>
+如果没有意外，2.6回忆应该妖兰、摩根和奥伯龙一条龙复刻。
+
