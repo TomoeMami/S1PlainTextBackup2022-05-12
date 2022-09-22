@@ -9860,3 +9860,12 @@ live首秀表现成这样还行吧，后面看看3rd怎样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两天确实也在反思自己追企划到底图啥，越想越觉得热情殆尽。虽然有点遗憾，但希望下次再见破企划就是它倒闭的新闻。但还是希望中之人小姐姐们个人事业能顺利红火。
 
+
+
+*****
+
+####  starring  
+##### 5470#       发表于 2022-9-22 11:41
+
+这破企划每天都在玩火挑战粉丝极限，哪天突破底线都不奇怪，转个人推才是唯一出路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
