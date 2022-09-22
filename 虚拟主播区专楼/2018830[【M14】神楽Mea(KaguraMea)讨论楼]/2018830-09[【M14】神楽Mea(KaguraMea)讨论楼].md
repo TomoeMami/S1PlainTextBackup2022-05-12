@@ -4796,3 +4796,16 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 第一天就挖干净了，好快的速度
 
+
+
+*****
+
+####  往世雷书  
+##### 12508#       发表于 2022-9-23 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602756&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2022-9-22 22:08</a>
+我记得一开始说的是企划到期之后三个新人都会毕业，luna前两天已经说了自己未来可能会以不是现在的自己的身 ...</blockquote>
+那还挺可惜的，这企划就更加意义不明了，索尼财大气粗做实验？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
