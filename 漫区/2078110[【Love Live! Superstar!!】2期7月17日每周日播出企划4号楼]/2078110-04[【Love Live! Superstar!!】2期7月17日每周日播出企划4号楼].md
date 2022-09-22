@@ -10009,3 +10009,12 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 
 今年再跨年就是九人了吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 5482#       发表于 2022-9-22 19:41
+
+同台还能有啥压力 隔壁去年菜宝和秀还是第一次上台呢<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+

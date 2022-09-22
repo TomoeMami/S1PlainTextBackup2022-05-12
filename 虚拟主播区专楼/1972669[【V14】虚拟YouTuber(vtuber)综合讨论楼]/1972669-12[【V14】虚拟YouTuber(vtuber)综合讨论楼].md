@@ -9936,3 +9936,12 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 最近流行纪念死人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 但是波尔卡还活着啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 17411#       发表于 2022-9-22 19:32
+
+每次看郡郡蹭顶边的时候都怕她搞出岔子，莎乐美协力人选突出一个没关联，估计discord点赞找的吧
+
