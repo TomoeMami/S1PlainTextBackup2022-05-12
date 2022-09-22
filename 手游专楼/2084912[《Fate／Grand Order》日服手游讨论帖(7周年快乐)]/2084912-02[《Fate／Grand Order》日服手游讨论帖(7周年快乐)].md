@@ -14474,3 +14474,39 @@ bilibili.com/video/av558257404/
 看到一个泳装武则天、金时、奥伯龙的不换人六加成攻略，问题是配置比较高，圣杯和宝具都需要，感觉不好复刻 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前面那个阵容把黑狗换120 5宝狗蛋 就可以6加成不换人了 狗蛋要求太高 反正我好友里没这样的
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2796#       发表于 2022-9-22 18:37
+
+ 本帖最后由 Jamaisvu 于 2022-9-22 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599377&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-22 18:28</a>
+
+我前面那个阵容把黑狗换120 5宝狗蛋 就可以6加成不换人了 狗蛋要求太高 反正我好友里没这样的 ...</blockquote>
+谢谢，看到了，2741楼。但是不带光炮的话确实比伤害不够更需要红卡补刀，不过也是个好思路，我去试一下～
+
+其实这种二面的不追求2T也不算难，毕竟BUFF持续三回合。第二回合发牌好的话先打死茶nobu，第三回合再宝具轰炸也不迟。
+
+*****
+
+####  qixinno2  
+##### 2797#       发表于 2022-9-22 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">咸鱼还是乖乖换人2T爆破了 不换人的都太高端了
+
+*****
+
+####  alucardcz  
+##### 2798#       发表于 2022-9-22 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599472&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-22 18:37</a>
+
+谢谢，看到了，2741楼。但是不带光炮的话确实比伤害不够更需要红卡补刀，不过也是个好思路，我去试一下～
+
+ ...</blockquote>
+2741楼的那个要赌个红刀
+
+2765楼那个就是带个光炮换人6加成的
+
