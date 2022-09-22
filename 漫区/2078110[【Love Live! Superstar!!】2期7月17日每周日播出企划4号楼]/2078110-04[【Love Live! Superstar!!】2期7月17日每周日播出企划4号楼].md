@@ -9799,3 +9799,24 @@ live首秀表现成这样还行吧，后面看看3rd怎样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铃原希实也是nozomi，等她退部你们就知道错了
 
+
+
+*****
+
+####  ViyViy  
+##### 5465#       发表于 2022-9-22 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57590571&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-9-22 07:48</a>
+
+粉丝提纯罢了，真的很抗拒的人应该加人后就退坑了吧，残党本身已经算比较能接受的一类人了。之后只要 ...</blockquote>
+第九集都演到这地步了还能输吗，一旦赢了可可就啥包袱都没有了，建议现在就能开始收拾垃圾跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本大冤种爱的深沉走不动道了，但现在也只想等看板娘手办了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5466#       发表于 2022-9-22 09:28
+
+偶像就意味着梦想，鲤鱼姐给观众梦想，不是很好吗
+
