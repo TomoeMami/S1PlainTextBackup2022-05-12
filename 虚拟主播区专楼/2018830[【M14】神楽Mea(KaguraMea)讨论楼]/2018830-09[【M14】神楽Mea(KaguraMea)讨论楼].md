@@ -4767,3 +4767,12 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 其实我至今没搞清楚三个新人到底是哪里人，有没有前世<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 12505#       发表于 2022-9-22 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">现在不知道是索尼先断气还是叔叔先断气捏
+

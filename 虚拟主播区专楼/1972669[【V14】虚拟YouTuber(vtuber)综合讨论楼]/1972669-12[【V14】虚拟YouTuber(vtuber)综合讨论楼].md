@@ -9963,3 +9963,13 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 跌丝袜的歌动画原来是翻唱，我还以为是原创曲，看样子之后还是应该会有个原创曲的。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17414#       发表于 2022-9-22 23:19
+
+听说犬山要转幕后了？
+那整这么一出就<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
