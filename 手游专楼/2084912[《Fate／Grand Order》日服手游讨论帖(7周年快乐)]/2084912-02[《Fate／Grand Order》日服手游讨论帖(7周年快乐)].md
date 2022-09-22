@@ -14531,3 +14531,22 @@ bilibili.com/video/av558257404/
 
 二面丢两个宝具效率低啊 虽然这伪无限池也不用抠那么死就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2801#       发表于 2022-9-22 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">话说伊莉雅是不是领先版本理解XX年 巴萨卡是最强的
+
+*****
+
+####  alucardcz  
+##### 2802#       发表于 2022-9-22 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599706&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-9-22 18:54</a>
+
+话说伊莉雅是不是领先版本理解XX年 巴萨卡是最强的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好的 下个版本100万外星人
+
