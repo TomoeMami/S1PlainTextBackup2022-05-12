@@ -2646,3 +2646,22 @@ miko和kanata吵架吵半天，按不住杀人本性，直接把人打死，还�
 
 这是改和kanata同居了？这地方视野不错啊，可以跑楼上用狙直接打邻居
 
+
+
+*****
+
+####  holoan  
+##### 1759#         楼主| 发表于 2022-9-22 21:29
+
+这个人每次直播不掉飞机不爽吗，不管是别人的飞机还是自己的
+
+*****
+
+####  holoan  
+##### 1760#         楼主| 发表于 2022-9-22 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57601467&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-9-22 20:56</a>
+
+这是改和kanata同居了？这地方视野不错啊，可以跑楼上用狙直接打邻居</blockquote>
+kananta在之前直播外摸了miko这个塔的TC，所以就有建造权了，但是门有密码锁进不去只能在外面建造
+
