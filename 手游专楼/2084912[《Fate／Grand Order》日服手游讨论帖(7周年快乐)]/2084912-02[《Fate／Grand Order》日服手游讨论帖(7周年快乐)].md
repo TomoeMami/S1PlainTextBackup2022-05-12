@@ -14369,3 +14369,22 @@ bilibili.com/video/av558257404/
 
 等2.5复刻得捞个狗蛋回来
 
+
+
+*****
+
+####  qixinno2  
+##### 2787#       发表于 2022-9-22 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">与其这么挨骂不如整个三月一次之类的的自选池子 让玩家自己选哪个五星限时UP
+
+*****
+
+####  UNISONIA  
+##### 2788#       发表于 2022-9-22 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57596981&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-9-22 15:48</a>
+
+等2.5复刻得捞个狗蛋回来</blockquote>
+狗蛋应该是下一个DL纪念或者新年的日替了，不会塞在rts 2.5，因为2.5他实际上也没正面登场
+
