@@ -14319,3 +14319,21 @@ bilibili.com/video/av558257404/
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2782#       发表于 2022-9-22 14:51
+
+总是可以期待的，只不过到时候再过多久关服就说不准了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 2783#       发表于 2022-9-22 14:53
+
+说起来摩根是不是快复刻了啊，我看了下好像上次复刻是4月？
+
+我3500石已经饥渴难耐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
