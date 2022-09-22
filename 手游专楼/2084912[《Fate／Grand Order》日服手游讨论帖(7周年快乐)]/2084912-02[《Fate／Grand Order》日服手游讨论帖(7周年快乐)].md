@@ -14580,3 +14580,22 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最强蓝卡和绿卡不依然是巴萨卡么
 
+
+
+*****
+
+####  exiaexa  
+##### 2806#       发表于 2022-9-22 19:46
+
+这个高难是真的有病
+
+就硬和你耗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2807#       发表于 2022-9-22 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这高难有人1T秒杀了
+
