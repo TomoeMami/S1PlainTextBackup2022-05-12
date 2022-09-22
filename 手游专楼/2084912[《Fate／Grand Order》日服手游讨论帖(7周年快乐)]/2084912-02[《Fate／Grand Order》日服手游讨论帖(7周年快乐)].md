@@ -14239,3 +14239,14 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是100W么 为什么要加个0
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2775#       发表于 2022-9-22 09:49
+
+我以为我是一个纯粹的强度党，然后被伊吹击倒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+半夜上头去淘宝买了个全拐1宝摩根初始把现在的伊吹初始覆盖了
+
