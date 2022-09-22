@@ -9748,3 +9748,27 @@ b站评价还是跟推特评价类似吧 看着像都接受了，生放同接却
 国内热度本身也比较虚，最后还是得看立本人愿意不愿意买帐。不过认识的几个比较有厨力买东西的朋友都对企划摆烂态度和国内这乌烟瘴气的舆论环境很失望，纷纷出东西准备收拾跑路了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果二期动画到最后也没有可可回（对破企划唯一的念想，其他都已经无所谓了）自己也要卖垃圾跑路了，本来搞消费主义奶头乐就是为了开心，结果开心没有反而难受，谁愿意花钱买不乐意啊。
 
+
+
+*****
+
+####  ads147147  
+##### 5460#       发表于 2022-9-22 07:58
+
+看切片被鲤鱼姐又燃起不必要的希望感了。唉，被pua也不过如此吧
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  ads147147  
+##### 5461#       发表于 2022-9-22 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57589140&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-22 00:29</a>
+我也想切流行那段的聊天 准备打轴了结果发现已经有了就算了 过程中倒是发现铃原这基本地藏状态 ...</blockquote>
+感觉铃原的问题就是太怯场，素质还是有的。所以才更让我对樱小路的声线设计感觉到深深的绝望，感觉这个角色不应该是这样搞。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
