@@ -14350,3 +14350,22 @@ bilibili.com/video/av558257404/
 我3500石已经饥渴难耐了 ...</blockquote>
 如果没有意外，2.6回忆应该妖兰、摩根和奥伯龙一条龙复刻。
 
+
+
+*****
+
+####  UNISONIA  
+##### 2785#       发表于 2022-9-22 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57596453&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-9-22 15:04</a>
+
+如果没有意外，2.6回忆应该妖兰、摩根和奥伯龙一条龙复刻。</blockquote>
+甚至可能把村正也塞进去。今年是明摆着旧卡要顶着骂声全复刻一遍的
+
+*****
+
+####  quanlix  
+##### 2786#       发表于 2022-9-22 15:48
+
+等2.5复刻得捞个狗蛋回来
+
