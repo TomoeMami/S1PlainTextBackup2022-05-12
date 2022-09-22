@@ -10163,3 +10163,42 @@ non的新作
 
 2022-9-22 21:05 上传
 
+
+
+*****
+
+####  D麦林  
+##### 5493#       发表于 2022-9-22 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57601263&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-9-22 20:43</a>
+不会的，结那要进团的难道是ll史上第一位精神分裂系成员双中之人？这活可就大了
+
+— ...</blockquote>
+话说回来 为什么这么多人这么确信结那是三期生啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这事完全没有实证吧 只不过是一种猜测
+
+*****
+
+####  仟音一心  
+##### 5494#       发表于 2022-9-22 22:21
+
+结那
+
+<img src="https://img.saraba1st.com/forum/202209/22/222127b545mwzmqmpymt8n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>553A7515-255D-4B2C-A22D-9E20FE2B032C.jpeg</strong> (501.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-22 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202209/22/222127pizx8phnpx5sr8cq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6E9DE33A-3DC0-4F2E-B16A-56E8DBC77D79.jpeg</strong> (570.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-22 22:21 上传
+

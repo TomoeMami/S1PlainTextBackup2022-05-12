@@ -2676,3 +2676,43 @@ kananta在之前直播外摸了miko这个塔的TC，所以就有建造权了，�
 
 下次一定坠落，大家在一起的时候
 
+
+
+*****
+
+####  rs5621  
+##### 1762#       发表于 2022-9-22 22:17
+
+这都能把直升机开进去
+
+*****
+
+####  rs5621  
+##### 1763#       发表于 2022-9-22 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602051&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-22 21:30</a>
+
+kananta在之前直播外摸了miko这个塔的TC，所以就有建造权了，但是门有密码锁进不去只能在外面建造 ...</blockquote>
+这下是黏上miko了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1764#         楼主| 发表于 2022-9-22 22:19
+
+我还以为要停屋顶
+
+*****
+
+####  ZQXY2002  
+##### 1765#       发表于 2022-9-22 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今天意外的很顺利，没有吃瘪少了点什么。
+
+*****
+
+####  holoan  
+##### 1766#         楼主| 发表于 2022-9-22 22:20
+
+少了精彩片段
+
