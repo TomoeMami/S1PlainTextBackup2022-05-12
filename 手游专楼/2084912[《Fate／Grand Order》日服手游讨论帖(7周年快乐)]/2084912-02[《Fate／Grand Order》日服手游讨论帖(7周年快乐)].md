@@ -14294,3 +14294,14 @@ bilibili.com/video/av558257404/
 
 反正3T肯定可以
 
+
+
+*****
+
+####  廖化  
+##### 2780#       发表于 2022-9-22 13:03
+
+开活动之前：抽不到山南我要死了；开活动之后：随不到宝石翁王姐我要死了！
+
+自选五星能选王姐吗已经变成王姐的形状惹<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
