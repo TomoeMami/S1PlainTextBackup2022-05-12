@@ -14616,3 +14616,12 @@ bilibili.com/video/av558257404/
 
 就用这队刷了
 
+
+
+*****
+
+####  廖化  
+##### 2809#       发表于 2022-9-22 21:03
+
+点数和商店都搬完了，高难打不过，躺了躺了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
