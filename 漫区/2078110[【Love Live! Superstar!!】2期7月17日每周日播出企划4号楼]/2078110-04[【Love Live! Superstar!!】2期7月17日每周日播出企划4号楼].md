@@ -10381,3 +10381,17 @@ non的新作
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一次生放的时候鱼话也少(
 
+
+
+*****
+
+####  Skyline_R  
+##### 5511#       发表于 2022-9-23 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602967&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 22:20</a>
+
+话说回来 为什么这么多人这么确信结那是三期生啊
+
+这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
+我也觉得不很像，我想到的原因很简单，现在Liella九个人明显都是室田雄平做的角色原案，而SunnyPassion二人是斋藤敦史自己创作形象的角色，VN更像是后者，子供向风格的感觉太强了。虽然也说不准三期生会不会都没有室田原案，但总感觉风格不太对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
