@@ -668,3 +668,20 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 视觉果然是游戏的第一要素 ...</blockquote>
 我也是这样。尤其前几天有个The Simpsons: Hit &amp; Run，我第三还是第四图就猜出来了，还没出现任何熟悉的辛普森一家要素。可我对这游戏唯一的印象就是xbox360时代看过新闻网站上几张截图而已。记忆真是奇妙
 
+
+
+*****
+
+####  ybfelix  
+##### 68#       发表于 2022-9-22 21:31
+
+我打电动打太多了 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> （或者说翻游戏商店目录太多）。其实有左上角文字提示难度就还可以，也基本都是meta高分的名作。错了两个，一个赛车游戏年份代数，一个Glover这是啥游戏？！没听过
+
+<img src="https://img.saraba1st.com/forum/202209/22/212725j7wdddd99xzdd227.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20220922212651.png</strong> (24.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-22 21:27 上传
+

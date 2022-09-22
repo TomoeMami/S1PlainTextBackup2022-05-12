@@ -4713,3 +4713,23 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 话说这个企划半死不活的不是先想点办法推广还先卖谷子啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推广有毛用啊 当然是趁着还有这组合趁机割一波
 
+
+
+*****
+
+####  ashero  
+##### 12499#       发表于 2022-9-22 21:35
+
+麻麻的 为什么这人3d小动作能那么多的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  十九号大侠  
+##### 12500#       发表于 2022-9-22 21:36
+
+这个组合，新人感觉只有中国妹能活得久点
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
