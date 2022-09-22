@@ -14305,3 +14305,17 @@ bilibili.com/video/av558257404/
 
 自选五星能选王姐吗已经变成王姐的形状惹<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2781#       发表于 2022-9-22 14:22
+
+<blockquote>引用第2779楼廖化于2022-09-22 13:03发表的  :
+
+开活动之前：抽不到山南我要死了；开活动之后：随不到宝石翁王姐我要死了！自选五星能选王姐吗已经变成王姐......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你见过自选五星让你选过限定？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
