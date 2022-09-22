@@ -654,3 +654,17 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 
 第1图BOTW，第2图skip，第3图O，这是不是标准流程？
 
+
+
+*****
+
+####  ybfelix  
+##### 67#       发表于 2022-9-22 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57598965&amp;ptid=2095456" target="_blank">kimihung 发表于 2022-9-22 17:56</a>
+
+好多游戏都没玩过，但是很多靠图片上的画面渲染风格，第一时间就想到某个游戏。
+
+视觉果然是游戏的第一要素 ...</blockquote>
+我也是这样。尤其前几天有个The Simpsons: Hit &amp; Run，我第三还是第四图就猜出来了，还没出现任何熟悉的辛普森一家要素。可我对这游戏唯一的印象就是xbox360时代看过新闻网站上几张截图而已。记忆真是奇妙
+

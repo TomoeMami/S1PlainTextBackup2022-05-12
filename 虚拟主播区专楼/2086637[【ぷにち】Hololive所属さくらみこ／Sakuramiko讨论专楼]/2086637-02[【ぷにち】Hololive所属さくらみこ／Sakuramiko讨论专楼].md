@@ -2622,3 +2622,16 @@ rust刚上线就跑去串门了
 
 和平了半个多月，战斗狂的本性按不住了
 
+
+
+*****
+
+####  rs5621  
+##### 1757#       发表于 2022-9-22 20:17
+
+miko和kanata吵架吵半天，按不住杀人本性，直接把人打死，还搜刮掉光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这kanata也是惨，昨晚被兔子拆家，电梯给打掉了。今天和miko吵架还被杀
+
+这两人是用方言说话么，好好笑
+
