@@ -10237,3 +10237,33 @@ non的新作
 
 怎么感觉像资方老板养的小秘？为了硬推啥都不管
 
+
+
+*****
+
+####  ViyViy  
+##### 5498#       发表于 2022-9-22 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我来个更离谱的，是给V团预热的
+
+*****
+
+####  长日留痕  
+##### 5499#       发表于 2022-9-22 22:57
+
+看了二期生第一次现场，大熊挺有偶像范的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  1096beam  
+##### 5500#       发表于 2022-9-22 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602967&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 22:20</a>
+
+话说回来 为什么这么多人这么确信结那是三期生啊
+
+这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
+因为出场就有3D模型<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
