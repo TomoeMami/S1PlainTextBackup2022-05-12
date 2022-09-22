@@ -10324,3 +10324,29 @@ non的新作
 
 不过初中生不可参赛倒是一开始就有明说
 
+
+
+*****
+
+####  沙茶酱  
+##### 5506#       发表于 2022-9-23 00:03
+
+ 本帖最后由 沙茶酱 于 2022-9-23 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57602967&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-22 22:20</a>
+
+话说回来 为什么这么多人这么确信结那是三期生啊
+
+这事完全没有实证吧 只不过是一种猜测 ...</blockquote>
+就目前的待遇来看，如果不是三期生，那只能是有可能企划是她家有赞助，所以让她来过把瘾
+
+*****
+
+####  cybernetics31  
+##### 5507#       发表于 2022-9-23 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57604363&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-23 00:02</a>
+其实还真的没说不能单人
+
+只是从来都是两人以上，所以默认不会是单人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能单人的话雪菜唱个chase怕不是就赢了
+
