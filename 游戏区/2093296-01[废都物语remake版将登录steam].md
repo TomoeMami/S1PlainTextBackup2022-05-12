@@ -3776,3 +3776,30 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 我记得这个游戏本来就是作者为了推自己的跑团规则出的吧，像跑团很正常，话说现在越看越觉得这重制版是某个原作狂热粉当上领导后自己搞得了，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  钛制饼干  
+##### 393#       发表于 2022-9-22 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57565013&amp;ptid=2093296" target="_blank">汪达 发表于 2022-9-20 12:09</a>
+
+千万不要完全原汁原味，粉丝对原作的热爱和听到新消息的兴奋会让反馈失真
+
+原作的战斗表现注定小众，至少得 ...</blockquote>
+有魔女旅团那个战斗画面观感就不错了
+
+暗黑地牢那种做模型的风格UI反而不适合，做出来也是吃力不讨好的
+
+*****
+
+####  满满一大杯  
+##### 394#       发表于 2022-9-22 20:35
+
+说起来，泥潭以前不也有想要用u3d remake废都的潭友嘛，所以说还得要位高权重（不是）才行：
+
+[PC] 废都物语推广计划 [https://bbs.saraba1st.com/2b/thread-1829088-1-1.html](https://bbs.saraba1st.com/2b/thread-1829088-1-1.html)
+
+[多平台] 废都物语同人制作组招人了 [https://bbs.saraba1st.com/2b/thread-1829926-1-1.html](https://bbs.saraba1st.com/2b/thread-1829926-1-1.html)
+
