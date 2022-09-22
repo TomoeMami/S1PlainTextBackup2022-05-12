@@ -14278,3 +14278,19 @@ bilibili.com/video/av558257404/
 
 不吃特攻硬帮你加上去，小教授加金钻头，术武后加铁拳圣女，2波敌人这种可以玩出很多花啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  马桶3  
+##### 2779#       发表于 2022-9-22 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587559&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-9-21 22:31</a>
+
+请问40级黑杯与一换人能打吗？能打赶紧去拉一个</blockquote>
+我自己与一带活动掉落双C呆换人奥伯龙可以3T
+
+黑杯的话应该可以2T
+
+反正3T肯定可以
+
