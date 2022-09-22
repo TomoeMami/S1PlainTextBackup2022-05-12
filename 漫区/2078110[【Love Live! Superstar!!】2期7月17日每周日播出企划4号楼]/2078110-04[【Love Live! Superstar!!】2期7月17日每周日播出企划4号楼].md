@@ -9947,3 +9947,15 @@ YTB的2期朗读动画留言下不少人都提到了可可声线变柔和了更�
 
 —— 来自 OPPO PDKM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 5477#       发表于 2022-9-22 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57594836&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-22 12:43</a>
+
+星团在国内能卖出钱一半功劳归谁不知道日本人真不知道。我们唯一不知道的是体现在财报上的中国大陆市场究竟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只能说当初小日本儿跟鱼谈合同的时候别加什么跟大陆市场挂钩的码给她就行了，企划这烂样也好意思幻想让一个打工人来挖市场呢。有吸引人的水平没有留住人的水平。
+
