@@ -14745,3 +14745,32 @@ bilibili.com/video/av558257404/
 一面俩杀兔技能扔完，一个扔掉50np换奥伯龙，奥伯龙上1技能</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬有没有顶配狗蛋  萌新也想体验下6加成不换人
 
+
+
+*****
+
+####  exiaexa  
+##### 2820#       发表于 2022-9-23 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57619148&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-23 22:26</a>
+
+大佬有没有顶配狗蛋  萌新也想体验下6加成不换人</blockquote>
+狗蛋是我第一次千石0宝
+
+然后再也没碰过
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 2821#       发表于 2022-9-23 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57619234&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-23 22:32</a>
+
+狗蛋是我第一次千石0宝
+
+然后再也没碰过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬！！！
+
