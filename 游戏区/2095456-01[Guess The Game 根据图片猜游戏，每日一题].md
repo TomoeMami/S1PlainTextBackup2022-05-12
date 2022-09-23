@@ -709,3 +709,22 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 
 老滚4的树一眼就认出来了, 毕竟当时配置差, 为了在画面和帧数之间寻找一个平衡点不知道数树皮输了多久(悲
 
+
+
+*****
+
+####  nukejoker  
+##### 71#       发表于 2022-9-23 20:26
+
+<img src="https://img.saraba1st.com/forum/202209/23/202529vossrcv0dnvza5x1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 20:25 上传
+
+讨厌的独立小游戏太多了。
+
+遇到这种我都是直接6连skip送走的。
+
