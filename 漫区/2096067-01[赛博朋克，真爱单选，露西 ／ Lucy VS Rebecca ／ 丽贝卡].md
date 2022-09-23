@@ -746,3 +746,23 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 但蕾贝卡派系是不灭的！<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 82#       发表于 2022-9-23 23:22
+
+感觉是露西党是路人多，萝莉党战斗力强，最后萝莉反超露西了之后露西突然票数暴涨，应该是露西党去拉票了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿姆罗二世  
+##### 83#       发表于 2022-9-23 23:23
+
+不过在泥潭那就是爆鲨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萝莉党怎么挣扎都没用
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

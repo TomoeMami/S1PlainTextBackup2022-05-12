@@ -4943,3 +4943,21 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 咩姐：下月还有，但内容完全不一样
 
+
+
+*****
+
+####  07579394  
+##### 12523#       发表于 2022-9-23 23:21
+
+不是生唱有点失望，但看在他们跳完三首歌累到趴下的就算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 12524#       发表于 2022-9-23 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说啥呢，你咩姐参演的这些live，只要有b站参与的基本都是一眼播片好吧
+
+只要认准开始唱跳时候有没有切屏就明白了（而且切屏穿帮的次数也挺多的
+
