@@ -10802,3 +10802,14 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 什么妙手回春<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5550#       发表于 2022-9-23 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57613222&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-23 16:18</a>
+不少人已经成功自我催眠接受了一切，只是我很担心再加三期生，特别是还有这个仇恨拉满的vn的时候，他们还 ...</blockquote>
+VN中之人挺漂亮的，我应该能接受，当然我属于不是特别在乎动画只爱看真人的那部分受众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

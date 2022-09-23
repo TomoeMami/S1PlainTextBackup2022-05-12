@@ -4840,3 +4840,12 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 什么时候3D歌回、3D演唱会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 12512#       发表于 2022-9-23 16:39
+
+本来原以为今天fan meeting的场馆远得不行已经没想着要去结果刚刚搜了一下才发现距离上班位置近的一b然鹅却因为又要加班无法去现场于是充分感受到了社畜的悲哀（悲
+
