@@ -10788,3 +10788,17 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  plazum  
+##### 5549#       发表于 2022-9-23 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612770&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-23 15:49</a>
+
+「像彗星一样出现，拯救了         ...</blockquote>
+“像彗星一样出现，拯救了香音和堇的人生的救世主可可”
+
+什么妙手回春<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
