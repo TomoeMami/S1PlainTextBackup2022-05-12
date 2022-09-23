@@ -10442,3 +10442,15 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 5516#       发表于 2022-9-23 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57605376&amp;ptid=2078110" target="_blank">luozijin000 发表于 2022-09-23 03:21:07</a>
+snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推 ...</blockquote>@某A声优 @某L声优<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
