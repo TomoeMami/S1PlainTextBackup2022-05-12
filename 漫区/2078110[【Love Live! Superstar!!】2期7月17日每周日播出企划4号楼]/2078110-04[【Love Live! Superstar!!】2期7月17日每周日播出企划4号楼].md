@@ -10479,3 +10479,23 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看5厕说的那位不是粉丝 是snp的公式画师 虽然我不知道有画些啥
 
+
+
+*****
+
+####  ViyViy  
+##### 5519#       发表于 2022-9-23 10:24
+
+这安排突出一个随便好吧。不满也是情有可原。
+
+之前说的那个薇香一体论其实挺有意思的，但是我有个更恶意的想法，VN才是那个临时加入搅动画浑水的角色。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得VN出场的这些桥段删了真的不太影响剧情的，就是剧情表现的冲突性会弱很多，但也不至于现在这种砸祖宗本不买账的情况。
+
+*****
+
+####  stygian  
+##### 5520#       发表于 2022-9-23 10:30
+
+喷花田喷京极喷运营都正常，嘴中之人就算了吧，当初一号楼一帮人怎么嘴🐟的都忘了么
+
