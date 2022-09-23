@@ -10855,3 +10855,21 @@ VN中之人挺漂亮的，我应该能接受，当然我属于不是特别在乎
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">已经是铁血单推了，给我可all鲤all就吃，反正live蓝光都白嫖，只收个人谷
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5556#       发表于 2022-9-23 17:04
+
+[https://www.jizhazha.com/jv2315](https://www.jizhazha.com/jv2315) 【日宅：维恩已经可以确定是Liella!三期生了吧？】
+
+这个串有人提到了香音的妹妹亚里亚，翻了翻资料，感觉可以奶<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5557#       发表于 2022-9-23 17:06
+
+主要是香音妹这个形象定了啊，她这个一看就是比较路人的形象要怎么加
+
