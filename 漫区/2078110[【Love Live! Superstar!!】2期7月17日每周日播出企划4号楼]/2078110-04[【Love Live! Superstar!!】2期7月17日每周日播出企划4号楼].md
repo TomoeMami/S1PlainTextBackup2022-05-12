@@ -10724,3 +10724,38 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 看隔壁搬的5厕帖子又恶心了起来，果然不少说可可捧脸那段的台词安 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行了 之前都是直接转进 这次基本都是在喷脚本以及怀念前三集
 
+
+
+*****
+
+####  沙茶酱  
+##### 5544#       发表于 2022-9-23 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611338&amp;ptid=2078110" target="_blank">ddy2811 发表于 2022-9-23 14:09</a>
+
+这不就是AS第二季犯过的错么……
+
+怎么还能蕉笼手的</blockquote>
+其实还挺对应的吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+星一期的恋可以对应AS未入团之前的栞子，星二期的VN可以对应AS未入团之前的岚珠
+
+破案了！原来花田的中之人是雨野！
+
+*****
+
+####  saya1892  
+##### 5545#       发表于 2022-9-23 15:49
+
+「像彗星一样出现，拯救了香音和堇的人生的救世主可可虽然是最强的，但一个大意就会从身边消失不见，也是缥缈无常的。把她比喻成流星的香音确实是天才」
+
+<img src="https://img.saraba1st.com/forum/202209/23/154728dvvkgup0707z0wkp.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (30.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 15:47 上传
+
+昨晚看到这条推突然非常伤感，又去回顾了一下2nd大阪站小星星
+
