@@ -10196,3 +10196,14 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 最近因为vspo的缘故时隔两年左右又重新开始看v，现在管人好像是越来越火了但总感觉大家同接都变低了是我的 ...</blockquote>
 讲道理vspo和两年前茫茫多的一般小箱相比已经是天壤之别了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17440#       发表于 2022-9-24 00:13
+
+虽然观测的人(黛灰)也在被(观众)观测这个东西也是他自己的世界观表现出来的东西之一
+
+但是居然在观众面前杀自己两次，我好崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
