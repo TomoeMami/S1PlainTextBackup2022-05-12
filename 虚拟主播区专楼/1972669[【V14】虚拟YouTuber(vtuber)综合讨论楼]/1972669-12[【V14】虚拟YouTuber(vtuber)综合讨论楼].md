@@ -10185,3 +10185,14 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 王霸山开始玩卧龙试玩版了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17439#       发表于 2022-9-23 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620057&amp;ptid=1972669" target="_blank">輝夜月 发表于 2022-9-23 23:35</a>
+最近因为vspo的缘故时隔两年左右又重新开始看v，现在管人好像是越来越火了但总感觉大家同接都变低了是我的 ...</blockquote>
+讲道理vspo和两年前茫茫多的一般小箱相比已经是天壤之别了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

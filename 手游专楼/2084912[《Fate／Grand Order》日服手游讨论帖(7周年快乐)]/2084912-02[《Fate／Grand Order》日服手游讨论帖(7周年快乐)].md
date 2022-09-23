@@ -14774,3 +14774,12 @@ bilibili.com/video/av558257404/
 然后再也没碰过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬！！！
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2822#       发表于 2022-9-23 23:55
+
+为了能刷90++抽了个3宝千利休，现在只剩2100石迎接摩根了，2100石4宝感觉很艰难啊 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
