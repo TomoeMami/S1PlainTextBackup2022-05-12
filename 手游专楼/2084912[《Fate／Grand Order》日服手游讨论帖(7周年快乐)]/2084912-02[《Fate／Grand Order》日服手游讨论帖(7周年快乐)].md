@@ -14625,3 +14625,14 @@ bilibili.com/video/av558257404/
 
 点数和商店都搬完了，高难打不过，躺了躺了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rollingusagi  
+##### 2810#       发表于 2022-9-23 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">90+这火药掉率还挺高的，那我还刷个锤子的90++啊，收益体感也没差多少
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -10534,3 +10534,19 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 可堇/香千的出轨小作文都有了 大家都有光明的未来  除了恋  上次看到恋为主的还是写大家都准备要把她踢掉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议别整出轨小作文了，直接四人行小作文吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 5524#       发表于 2022-9-23 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说vn是金主爸爸设计出来硬塞的倒也没啥问题
+
+*****
+
+####  ads147147  
+##### 5525#       发表于 2022-9-23 11:09
+
+下一集可是响彻涉谷的歌声呢，现在的jpop拿得出这种水平的歌吗，别到时候还是vn的solo油管播放量最多就笑死了。
+
