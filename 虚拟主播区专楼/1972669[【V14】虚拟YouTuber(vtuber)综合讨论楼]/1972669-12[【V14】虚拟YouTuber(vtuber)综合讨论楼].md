@@ -10176,3 +10176,12 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 最近因为vspo的缘故时隔两年左右又重新开始看v，现在管人好像是越来越火了但总感觉大家同接都变低了是我的错觉吗？关注列表里的好多中层虹人的同接都变底边了是怎么回事。vspo虽然很有趣不过平时同接也挺一般的
 
+
+
+*****
+
+####  Ketestrait  
+##### 17438#       发表于 2022-9-23 23:44
+
+王霸山开始玩卧龙试玩版了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
