@@ -4820,3 +4820,14 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  十九号大侠  
+##### 12510#       发表于 2022-9-23 08:47
+
+索尼能把月下7子了搞死，也不在乎一个二个
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
