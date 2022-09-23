@@ -616,3 +616,19 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  栗悟饭177  
+##### 68#       发表于 2022-9-23 16:01
+
+不是丽贝卡不好，但是露西太好了
+
+*****
+
+####  悲叹的夜想曲  
+##### 69#       发表于 2022-9-23 16:06
+
+露西更烧，我投露西
+
