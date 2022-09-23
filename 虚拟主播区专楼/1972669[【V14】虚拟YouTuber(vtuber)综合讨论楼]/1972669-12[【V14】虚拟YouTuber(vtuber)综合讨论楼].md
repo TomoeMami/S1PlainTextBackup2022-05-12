@@ -10116,3 +10116,20 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 兔头有兴趣搞24小时跟踪小黑那个企划吗？虽然不可能。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Devi_Lito  
+##### 17431#       发表于 2022-9-23 21:54
+
+非公式的那个niji wiki的确是神中神，上面甚至连VR的资料都比VR自己搞了不知道多少时间弄出来的官网还全<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 17432#       发表于 2022-9-23 21:57
+
+兔头刚结束
+发现ui4s也要开播<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
