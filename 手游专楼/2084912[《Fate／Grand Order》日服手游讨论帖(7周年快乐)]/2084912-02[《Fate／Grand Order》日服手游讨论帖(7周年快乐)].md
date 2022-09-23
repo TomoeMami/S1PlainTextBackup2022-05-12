@@ -14804,3 +14804,15 @@ bilibili.com/video/av558257404/
 
 之前无聊搞过一个2宝百级2000芙芙的bx，没想到这次居然能6加成上班。双水斯哈卡配奥伯龙，1面宝具回收29，不能更精准了，2面用2宝大腿可以正好打死小怪，拐带攻击宝具是好文明。
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2825#       发表于 2022-9-24 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620409&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-24 00:09</a>
+
+为了刷90++抽3宝倍卡？ 迷惑操作。。你用活动从者不好吗？</blockquote>
+活动从者怎么配队能秒第二面那个100W啊 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

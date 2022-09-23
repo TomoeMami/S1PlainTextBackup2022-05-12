@@ -4970,3 +4970,12 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">有演出 有小动作 还来个回顾会来个两三首生唱 太爽了吧
 
+
+
+*****
+
+####  路人庚  
+##### 12526#       发表于 2022-9-24 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草死
+
