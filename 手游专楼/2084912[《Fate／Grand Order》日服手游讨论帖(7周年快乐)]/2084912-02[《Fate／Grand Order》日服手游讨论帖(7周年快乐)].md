@@ -14636,3 +14636,17 @@ bilibili.com/video/av558257404/
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 2811#       发表于 2022-9-23 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57608443&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-9-23 11:02</a>
+90+这火药掉率还挺高的，那我还刷个锤子的90++啊，收益体感也没差多少
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+掉2.65的灰啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

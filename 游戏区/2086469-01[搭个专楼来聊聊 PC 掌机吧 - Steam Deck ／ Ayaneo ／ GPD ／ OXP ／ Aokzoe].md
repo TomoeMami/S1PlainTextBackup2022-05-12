@@ -3306,3 +3306,21 @@ Aya 家的 2 &amp; Geek 发布会定时间了：
 只有2和geek，不是说ayaneo 对标win4的是叫ayaslide 的么</blockquote>
 Slide 这个大饼还不知道什么时候能把小麦种出来…
 
+
+
+*****
+
+####  雲夢淵澤  
+##### 267#       发表于 2022-9-23 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612007&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-23 14:57</a>
+
+虽然知道小厂的做工肯定参差不齐…不过你这个经历是有点惨 
+
+不能直接给你换新吗。 ...</blockquote>
+屏幕的事情还不清楚怎么回事。
+
+反正我跟他们说的就是解决掉这个问题，不管是修好还行换新的。
+
+反正寄回来再有问题我就直接投诉了
+

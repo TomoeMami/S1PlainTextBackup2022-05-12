@@ -10639,3 +10639,49 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是别唱了吧  对大家都好
 
+
+
+*****
+
+####  starring  
+##### 5535#       发表于 2022-9-23 15:11
+
+应该早点唱出来，大家都早点破防迎接最后两话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 5536#       发表于 2022-9-23 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我说一单最合适的地方就是庙会曲那个时候，虽然现在看来唱完一单然后搞分裂怪怪的
+
+*****
+
+####  yicihanshu  
+##### 5537#       发表于 2022-9-23 15:13
+
+都知道早晚要唱，那他不唱那就只能有一个原因人没齐，所以还是唱了吧，起码大家安心点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不用再看半季拉人。
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 5538#       发表于 2022-9-23 15:15
+
+ 本帖最后由 ViyViy 于 2022-9-23 15:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱还是输了把剩下两集写可可回吧
+
+看隔壁搬的5厕帖子又恶心了起来，果然不少说可可捧脸那段的台词安排的，花田现在真的是连这种它比较擅长的戏码都一塌糊涂了，剧场和三期能把他换了吗？京极也一块儿换。如果霓虹金喜欢问卷对线的话，3巡问卷动画估计要被喷爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 5539#       发表于 2022-9-23 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612268&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2022-9-23 15:13</a>
+
+都知道早晚要唱，那他不唱那就只能有一个原因人没齐，所以还是唱了吧，起码大家安心点，不用再看半 ...</blockquote>
+9人ver要唱，12人ver也要唱才对得起粉丝的期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

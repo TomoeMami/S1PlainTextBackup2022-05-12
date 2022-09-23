@@ -602,3 +602,17 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 丽贝卡不是真爱
 
+
+
+*****
+
+####  潜水艇君  
+##### 67#       发表于 2022-9-23 15:18
+
+ 本帖最后由 潜水艇君 于 2022-9-23 15:20 编辑 
+
+评论全是萝莉控在拉票，一看投票都快2比1倍杀了
+标题写“作为观众最喜欢的女性角色”可能还有点悬念，大卫真爱是Lucy这还用说吗
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
