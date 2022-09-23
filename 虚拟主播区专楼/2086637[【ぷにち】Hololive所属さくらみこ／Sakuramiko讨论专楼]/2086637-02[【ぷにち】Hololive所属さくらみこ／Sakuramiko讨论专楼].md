@@ -2957,3 +2957,42 @@ miko边玩边配音，我要笑死了
 
 疯狂吃瘪
 
+
+
+*****
+
+####  qesto  
+##### 1794#       发表于 2022-9-23 18:40
+
+miko「我这边可是堵上了频道在战斗啊！」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 1795#       发表于 2022-9-23 18:41
+
+ 本帖最后由 rs5621 于 2022-9-23 18:43 编辑 
+
+草，和35p战斗了这野生35p狂放水
+
+*****
+
+####  holoan  
+##### 1796#         楼主| 发表于 2022-9-23 18:46
+
+表演赛开始了
+
+*****
+
+####  qesto  
+##### 1797#       发表于 2022-9-23 18:47
+
+这东西居然还要500日元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1798#         楼主| 发表于 2022-9-23 18:49
+
+最后的live部分值这个钱了
+
