@@ -3835,3 +3835,20 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 更别提日本人都在改变，DQ3最新复刻版都加上己方角色动画了
 
+
+
+*****
+
+####  Ehekatl  
+##### 397#       发表于 2022-9-23 18:31
+
+<img src="https://img.saraba1st.com/forum/202209/23/183001ukwejw3osenkhks4.png" referrerpolicy="no-referrer">
+
+<strong>1Y~{5E6K~UI{]3EH2%`JECK.png</strong> (40.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 18:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今日解谜
+

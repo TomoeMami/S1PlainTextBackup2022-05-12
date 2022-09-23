@@ -14682,3 +14682,12 @@ bilibili.com/video/av558257404/
 
 兔子王配双杀狐+cd服也不错
 
+
+
+*****
+
+####  alucardcz  
+##### 2815#       发表于 2022-9-23 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐+黑狗那套6加成稳定2t挺好的。。可惜没有顶配狗蛋 好友也刷不出来 不然可以6加成不换人了
+

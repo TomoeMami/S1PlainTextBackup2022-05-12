@@ -2885,3 +2885,59 @@ syl申请了个什么新的剧情类游戏反正八成是海外游戏
 
 草，还没打，这人自己就乐起来了
 
+
+
+*****
+
+####  rs5621  
+##### 1786#       发表于 2022-9-23 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑战油管底线
+
+<img src="https://img.saraba1st.com/forum/202209/23/182259gyhvvm8qlmryeqzy.png" referrerpolicy="no-referrer">
+
+<strong>6)ZW0[219AM2)CSAOHN{]YY.png</strong> (42.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 18:22 上传
+
+*****
+
+####  holoan  
+##### 1787#         楼主| 发表于 2022-9-23 18:23
+
+好可怕的游戏
+
+日本人都这样的趣味吗
+
+*****
+
+####  rs5621  
+##### 1788#       发表于 2022-9-23 18:26
+
+合体了，什么恶趣味
+
+还好意思要观众救她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 1789#       发表于 2022-9-23 18:28
+
+miko边玩边配音，我要笑死了
+
+*****
+
+####  tesparu  
+##### 1790#       发表于 2022-9-23 18:30
+
+太糟糕了，画面
+
+*****
+
+####  rs5621  
+##### 1791#       发表于 2022-9-23 18:30
+
+这游戏太恶趣味了
+
