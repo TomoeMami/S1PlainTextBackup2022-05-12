@@ -3236,3 +3236,25 @@ Ayaneo 2 的实际，边框的确不错。
 
 win4有点长草，但是趴在地上想了想我的需求只有躺床上玩gal根本用不着这么高的性能，还是继续等air plus吧
 
+
+
+*****
+
+####  bypass  
+##### 262#         楼主| 发表于 2022-9-23 11:20
+
+Aya 家的 2 &amp; Geek 发布会定时间了：
+ <blockquote>北京时间 9 月 25 日（周日），下午 2 点见。
+
+全面不一样的 6800U 掌机 AYANEO 2 &amp; 超值又超强的 6800U 掌机 AYANEO GEEK 发布会正式定档。
+
+全面不一样，一起精彩。 </blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/23/112021uv4ph54kzhjolp7p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (281.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 11:20 上传
+
