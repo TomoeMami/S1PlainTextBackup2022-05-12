@@ -10550,3 +10550,12 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 下一集可是响彻涉谷的歌声呢，现在的jpop拿得出这种水平的歌吗，别到时候还是vn的solo油管播放量最多就笑死了。
 
+
+
+*****
+
+####  cybernetics31  
+##### 5526#       发表于 2022-9-23 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星到现在都还是小星星卖的最好就很能说明问题。一直想不明白为啥隔壁虹能找各路人马来写歌(菜宝都自己上了bushi ，星这边的歌反而很保守。
+
