@@ -10822,3 +10822,36 @@ VN中之人挺漂亮的，我应该能接受，当然我属于不是特别在乎
 
 一季前三集简直是能媲美缪斯前三集的“如此美妙的开局”，粉丝都开香槟准备庆祝liella能“重铸LL荣光吾辈义不容辞”了，一手好牌怎么就打成了现在这幅样子呢
 
+
+
+*****
+
+####  starring  
+##### 5552#       发表于 2022-9-23 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57613222&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-23 16:18</a>
+
+不少人已经成功自我催眠接受了一切，只是我很担心再加三期生，特别是还有这个仇恨拉满的vn的时候，他们还 ...</blockquote>
+这很简单，让VN吃瘪捶地痛哭，被香哥哥拿下后成为重女，跟小千互开重力场。别的地方不提，战吧肯定会高度接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tuna  
+##### 5553#       发表于 2022-9-23 16:58
+
+谔谔，河豚虽然确实沾点好糊弄，但是真没有这么好糊弄<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5554#       发表于 2022-9-23 17:00
+
+要是好糊弄第9集能继续新低？
+
+*****
+
+####  甘蓝巧克力  
+##### 5555#       发表于 2022-9-23 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">已经是铁血单推了，给我可all鲤all就吃，反正live蓝光都白嫖，只收个人谷
+
