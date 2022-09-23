@@ -568,3 +568,28 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57599555&amp;ptid=2096067" target="_blank">大江户战士 发表于 2022-9-22 18:43</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">作弊是不对的，开挂啊这属于是
 
+
+
+*****
+
+####  尸体鲨  
+##### 63#       发表于 2022-9-23 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萝莉厨的垂死挣扎！
+
+*****
+
+####  尸体鲨  
+##### 64#       发表于 2022-9-23 12:25
+
+风怒
+
+
+
+*****
+
+####  reficul  
+##### 65#       发表于 2022-9-23 13:14
+
+丽贝卡代入大卫的话，感觉还是亏欠的感觉更多一些，已经超过了一般的队友关系，但是真爱无疑是露西，露西你带我走吧我不能没有你
+
