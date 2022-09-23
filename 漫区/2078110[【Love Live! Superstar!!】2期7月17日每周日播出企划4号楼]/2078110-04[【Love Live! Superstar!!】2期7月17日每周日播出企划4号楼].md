@@ -11362,3 +11362,41 @@ N站早就是LL版了
 
 &gt;&gt;回复93L：还有三集呢，绝对会突破39的
 
+
+
+*****
+
+####  ads147147  
+##### 5562#       发表于 2022-9-23 18:52
+
+别发了，别发了，三个地方鞭尸了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5563#       发表于 2022-9-23 18:52
+
+ 本帖最后由 ads147147 于 2022-9-23 18:54 编辑 
+
+vn入队如果处理不好，或许星2真的要完蛋了。什么学院偶像：边缘行者
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 5564#       发表于 2022-9-23 19:03
+
+直接看这个网站就行：[https://www.jizhazha.com](https://www.jizhazha.com)
+
+*****
+
+####  Kfly  
+##### 5565#       发表于 2022-9-23 19:06
+
+难，我不觉得星的制作组能像虹的制作组那样力挽狂澜（至少在角色风评上）。
+
+不推波助澜就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
