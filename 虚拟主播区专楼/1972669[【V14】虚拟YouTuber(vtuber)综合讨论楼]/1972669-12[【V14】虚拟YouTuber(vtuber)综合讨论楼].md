@@ -9973,3 +9973,12 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 听说犬山要转幕后了？
 那整这么一出就<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 17415#       发表于 2022-9-23 14:18
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h6gil33qbcj20n00r3q44.jpg" referrerpolicy="no-referrer">
+
