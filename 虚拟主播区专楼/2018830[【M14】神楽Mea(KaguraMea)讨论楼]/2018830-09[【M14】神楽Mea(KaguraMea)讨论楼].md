@@ -4923,3 +4923,23 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 回来接着播还行，敬业先锋啊
 
+
+
+*****
+
+####  十九号大侠  
+##### 12521#       发表于 2022-9-23 23:10
+
+又兴奋的睡不着吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  路人庚  
+##### 12522#       发表于 2022-9-23 23:17
+
+下个月再来一场fan meeting还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+咩姐：下月还有，但内容完全不一样
+
