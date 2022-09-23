@@ -10685,3 +10685,21 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 都知道早晚要唱，那他不唱那就只能有一个原因人没齐，所以还是唱了吧，起码大家安心点，不用再看半 ...</blockquote>
 9人ver要唱，12人ver也要唱才对得起粉丝的期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5540#       发表于 2022-9-23 15:23
+
+主要是得卖CD啊，你整个始空9人ver那真不一定能行，10话12话各一首新歌总不会错。
+
+去年10话的插曲盘是nonfiction和Day1，希望今年也能来点狠的
+
+*****
+
+####  ViyViy  
+##### 5541#       发表于 2022-9-23 15:30
+
+从卖歌角度，今年也不可能无冠了，不知道前面那些歌褒贬不一的水平是不是因为就精力全在最后两张了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

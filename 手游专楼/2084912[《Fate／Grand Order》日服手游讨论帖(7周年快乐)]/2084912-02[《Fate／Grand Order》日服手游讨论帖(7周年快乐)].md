@@ -14650,3 +14650,17 @@ bilibili.com/video/av558257404/
 掉2.65的灰啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2812#       发表于 2022-9-23 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57608443&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-9-23 11:02</a>
+
+90+这火药掉率还挺高的，那我还刷个锤子的90++啊，收益体感也没差多少
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别体感 差多了  而且这还是无限池
+
