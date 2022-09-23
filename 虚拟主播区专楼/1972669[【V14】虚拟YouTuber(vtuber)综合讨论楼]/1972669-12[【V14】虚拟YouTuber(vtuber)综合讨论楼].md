@@ -10218,3 +10218,15 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 讲道理vspo和两年前茫茫多的一般小箱相比已经是天壤之别了</blockquote>
 确实vspo能有现在的程度已经很厉害了，我以前也只是知道花芽姐妹和丽姐但却从来没有听说过vspo
 
+
+
+*****
+
+####  OldGlory  
+##### 17442#       发表于 2022-9-24 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620514&amp;ptid=1972669" target="_blank">輝夜月 发表于 2022-9-24 00:20</a>
+
+确实vspo能有现在的程度已经很厉害了，我以前也只是知道花芽姐妹和丽姐但却从来没有听说过vspo ...</blockquote>
+因为只有花芽姐妹那会还不叫vspo
+
