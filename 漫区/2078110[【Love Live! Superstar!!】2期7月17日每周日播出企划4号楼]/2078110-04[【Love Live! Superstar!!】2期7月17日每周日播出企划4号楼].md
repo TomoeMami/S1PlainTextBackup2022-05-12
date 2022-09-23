@@ -10703,3 +10703,24 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 从卖歌角度，今年也不可能无冠了，不知道前面那些歌褒贬不一的水平是不是因为就精力全在最后两张了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5542#       发表于 2022-9-23 15:37
+
+当然是NO FI9人版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5543#       发表于 2022-9-23 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612304&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-23 15:15</a>
+
+咱还是输了把剩下两集写可可回吧
+
+看隔壁搬的5厕帖子又恶心了起来，果然不少说可可捧脸那段的台词安 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行了 之前都是直接转进 这次基本都是在喷脚本以及怀念前三集
+
