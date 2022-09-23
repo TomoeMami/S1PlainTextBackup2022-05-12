@@ -11471,3 +11471,15 @@ vn入队如果处理不好，或许星2真的要完蛋了。什么学院偶像�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 5571#       发表于 2022-9-23 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57613861&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-23 17:00</a>
+要是好糊弄第9集能继续新低？</blockquote>
+我觉得就9集b站部分评论来看真挺好糊弄的
+9集新低只是说明这种人不是多数吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

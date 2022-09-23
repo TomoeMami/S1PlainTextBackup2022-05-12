@@ -10091,3 +10091,28 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 还有首应该是kemt和咎人的歌投稿
 
+
+
+*****
+
+####  暮星弥空  
+##### 17428#       发表于 2022-9-23 21:31
+
+姬发兔好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devi_Lito  
+##### 17429#       发表于 2022-9-23 21:32
+
+草，兔头这个不是水曜日搞过好多次的企划嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关键水曜这个企划每次搞得都挺无聊的。。
+
+*****
+
+####  布莱士·西伯利  
+##### 17430#       发表于 2022-9-23 21:39
+
+兔头有兴趣搞24小时跟踪小黑那个企划吗？虽然不可能。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
