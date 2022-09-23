@@ -1,11 +1,3 @@
 
-list index out of range
-!!error:id=2094853
-list index out of range
-!!error:id=2095233
-list index out of range
-!!error:id=2095983
-list index out of range
-!!error:id=2095252
-list index out of range
-!!error:id=2096021
+'NoneType' object has no attribute 'group'
+!!error:id=2095664
