@@ -14703,3 +14703,15 @@ bilibili.com/video/av558257404/
 兔子王配双杀狐+cd服也不错</blockquote>
 为啥我的2宝兔子王打一面差小半管血……
 
+
+
+*****
+
+####  quanlix  
+##### 2817#       发表于 2022-9-23 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57617773&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-9-23 21:07</a>
+
+为啥我的2宝兔子王打一面差小半管血……</blockquote>
+两面都要靠宝具之后红卡打暴击，就靠兔子王和衣服的三次洗牌
+
