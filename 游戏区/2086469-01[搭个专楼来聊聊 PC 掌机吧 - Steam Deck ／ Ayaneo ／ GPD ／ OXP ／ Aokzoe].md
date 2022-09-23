@@ -3218,3 +3218,12 @@ Ayaneo 2 的实际，边框的确不错。
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bypass  
+##### 260#         楼主| 发表于 2022-9-23 10:11
+
+还是打算继续用我的 Deck 吧，没时间折腾新掌机了。我第一批群内预定 15s 付款的 Aokzoe A1L 16G/512G，原价转给有需要的坛友，没赶上车的坛友可以考虑。
+
