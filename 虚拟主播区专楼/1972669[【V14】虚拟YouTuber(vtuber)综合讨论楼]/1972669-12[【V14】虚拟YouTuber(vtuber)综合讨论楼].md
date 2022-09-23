@@ -10142,3 +10142,12 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 看会物语<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17434#       发表于 2022-9-23 22:10
+
+感觉月之那个说法明天必有杏人（期待转播组），又想到去年凸的唯一杏人已经没法再凸了，就感觉，活着最重要。以及，不知道会不会有前/现虹一姐对谈捏
+
