@@ -4894,3 +4894,14 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 不是说半小时吗，应该就前三首歌吧
 
+
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 12518#       发表于 2022-9-23 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">还行，就这几个曲子也对得起169了
+
+这3D质量蛮高的
+

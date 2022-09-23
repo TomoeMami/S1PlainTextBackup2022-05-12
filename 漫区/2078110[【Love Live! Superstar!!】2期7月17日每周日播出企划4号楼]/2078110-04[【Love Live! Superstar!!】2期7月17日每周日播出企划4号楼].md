@@ -11459,3 +11459,15 @@ vn入队如果处理不好，或许星2真的要完蛋了。什么学院偶像�
 
 鲤鱼:我发推和微博时经常出错，而且都不是自己注意到，都是靠大家留言提醒。我的检查工作很不到位，以后是应该多注意一下了，每次都想着快点发，不然就赶不上了。</blockquote>
 
+
+
+*****
+
+####  player3960  
+##### 5570#       发表于 2022-9-23 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57616986&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-09-23 20:33:29</a>
+听译：百合粥不加糖</blockquote>发推和微博出错已经算是一种特色了，请保持<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
