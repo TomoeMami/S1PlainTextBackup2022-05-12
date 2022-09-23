@@ -14715,3 +14715,33 @@ bilibili.com/video/av558257404/
 为啥我的2宝兔子王打一面差小半管血……</blockquote>
 两面都要靠宝具之后红卡打暴击，就靠兔子王和衣服的三次洗牌
 
+
+
+*****
+
+####  exiaexa  
+##### 2818#       发表于 2022-9-23 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57617773&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-9-23 21:07</a>
+
+为啥我的2宝兔子王打一面差小半管血……</blockquote>
+兔子就老老实实换人奥伯龙+黑杯
+
+一面俩杀兔技能扔完，一个扔掉50np换奥伯龙，奥伯龙上1技能
+
+看牌，有一张红稳定秒，没有的话蓝+绿可秒，没有就洗牌
+
+第二面buff全开砸下去应该就剩个10w上下，随便扔张卡就没了
+
+*****
+
+####  alucardcz  
+##### 2819#       发表于 2022-9-23 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57619129&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-9-23 22:25</a>
+
+兔子就老老实实换人奥伯龙+黑杯
+
+一面俩杀兔技能扔完，一个扔掉50np换奥伯龙，奥伯龙上1技能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬有没有顶配狗蛋  萌新也想体验下6加成不换人
+

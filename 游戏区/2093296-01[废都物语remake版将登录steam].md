@@ -3852,3 +3852,15 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今日解谜
 
+
+
+*****
+
+####  azccc52  
+##### 398#       发表于 2022-9-23 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57615337&amp;ptid=2093296" target="_blank">Ehekatl 发表于 2022-9-23 18:31</a>
+今日解谜</blockquote>
+解题思路是pv时间和行列答案是“全部重新绘制”（转自贴吧）
+我古代知识确实不行，该专职菜刀了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
