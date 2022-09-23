@@ -10559,3 +10559,27 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星到现在都还是小星星卖的最好就很能说明问题。一直想不明白为啥隔壁虹能找各路人马来写歌(菜宝都自己上了bushi ，星这边的歌反而很保守。
 
+
+
+*****
+
+####  ddy2811  
+##### 5527#       发表于 2022-9-23 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57607934&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-23 10:40</a>
+
+剧情冲突这个我感觉是星动画这边一个很突出的问题，就是为了写激烈的矛盾冲突而写，没管过这么写对角色的 ...</blockquote>
+这不就是AS第二季犯过的错么……
+
+怎么还能蕉笼手的<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 5528#       发表于 2022-9-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57605376&amp;ptid=2078110" target="_blank">luozijin000 发表于 2022-9-23 03:21</a>
+
+snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">捉个虫，这人不是粉丝，是官方画师。水团那个冬2223曲那套丑的一逼的衣服就是他设计的，现在这个画师接的是LLDAYS那个snp的专栏（我有点不记得这个专栏有没有后续），不过snp快寄了他的活也得换了
+
