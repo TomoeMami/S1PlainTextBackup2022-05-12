@@ -10010,3 +10010,14 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 风怒
 
+
+
+*****
+
+####  lanslort  
+##### 17419#       发表于 2022-9-23 20:10
+
+台风不太理解，是国际航班停了么？东京受灾也有那么严重么 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+随便搜了下微博, Selen跟Pomu换皮播都能被劈 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
