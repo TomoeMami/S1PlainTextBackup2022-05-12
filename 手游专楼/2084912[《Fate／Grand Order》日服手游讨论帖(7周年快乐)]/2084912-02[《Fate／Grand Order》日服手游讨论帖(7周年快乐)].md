@@ -14840,3 +14840,14 @@ bilibili.com/video/av558257404/
 完全忘了尺子克月癌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 反正初始号就这样吧，摩根以外也没啥特别想抽的
 
+
+
+*****
+
+####  sin.yugi  
+##### 2828#       发表于 2022-9-24 02:35
+
+只有3宝90级狗蛋<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
