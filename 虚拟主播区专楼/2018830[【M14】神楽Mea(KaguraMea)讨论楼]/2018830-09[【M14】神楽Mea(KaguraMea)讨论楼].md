@@ -4961,3 +4961,12 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 只要认准开始唱跳时候有没有切屏就明白了（而且切屏穿帮的次数也挺多的
 
+
+
+*****
+
+####  ashero  
+##### 12525#       发表于 2022-9-24 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">有演出 有小动作 还来个回顾会来个两三首生唱 太爽了吧
+

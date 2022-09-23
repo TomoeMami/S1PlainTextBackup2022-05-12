@@ -14783,3 +14783,15 @@ bilibili.com/video/av558257404/
 
 为了能刷90++抽了个3宝千利休，现在只剩2100石迎接摩根了，2100石4宝感觉很艰难啊 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2823#       发表于 2022-9-24 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620259&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-9-23 23:55</a>
+
+为了能刷90++抽了个3宝千利休，现在只剩2100石迎接摩根了，2100石4宝感觉很艰难啊  ...</blockquote>
+为了刷90++抽3宝倍卡？ 迷惑操作。。你用活动从者不好吗？
+
