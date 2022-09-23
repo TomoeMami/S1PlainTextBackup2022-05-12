@@ -10882,3 +10882,19 @@ VN中之人挺漂亮的，我应该能接受，当然我属于不是特别在乎
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是眼镜娘啊 多大的事
 
+
+
+*****
+
+####  cat1230  
+##### 5559#       发表于 2022-9-23 17:53
+
+<blockquote>引用第5556楼ViyViy于2022-09-23 17:06发表的  :
+
+主要是香音妹这个形象定了啊，她这个一看就是比较路人的形象要怎么加</blockquote>
+@ViyViy
+
+摘下眼镜
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
