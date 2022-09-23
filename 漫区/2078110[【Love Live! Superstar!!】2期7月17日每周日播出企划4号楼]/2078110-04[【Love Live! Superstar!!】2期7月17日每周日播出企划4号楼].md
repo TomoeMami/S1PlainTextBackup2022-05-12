@@ -10775,3 +10775,16 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 观众们都在伤春悲秋，让我们看看是谁在糟蹋角色和故事？哦是企划自己啊，那没事了
 
+
+
+*****
+
+####  ads147147  
+##### 5548#       发表于 2022-9-23 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612903&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-23 15:58</a>
+观众们都在伤春悲秋，让我们看看是谁在糟蹋角色和故事？哦是企划自己啊，那没事了 ...</blockquote>
+不少人已经成功自我催眠接受了一切，只是我很担心再加三期生，特别是还有这个仇恨拉满的vn的时候，他们还能继续接受吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
