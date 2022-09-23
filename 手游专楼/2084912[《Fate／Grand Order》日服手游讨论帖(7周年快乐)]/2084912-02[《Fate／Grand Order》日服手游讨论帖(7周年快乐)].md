@@ -14828,3 +14828,15 @@ bilibili.com/video/av558257404/
 活动从者怎么配队能秒第二面那个100W啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为他也是倍卡。。配对已经满地都是了 你去叔叔那或者隔壁看看 
 
+
+
+*****
+
+####  ネコカイザー  
+##### 2827#       发表于 2022-9-24 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620693&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-24 00:41</a>
+ 因为他也是倍卡。。配对已经满地都是了 你去叔叔那或者隔壁看看</blockquote>
+完全忘了尺子克月癌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+反正初始号就这样吧，摩根以外也没啥特别想抽的
+
