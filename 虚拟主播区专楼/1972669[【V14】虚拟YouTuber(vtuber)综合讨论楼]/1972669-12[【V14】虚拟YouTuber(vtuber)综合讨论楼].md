@@ -9982,3 +9982,15 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 <img src="http://tvax1.sinaimg.cn/large/7c16af6bly1h6gil33qbcj20n00r3q44.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 17416#       发表于 2022-9-23 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611469&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-9-23 14:18</a></blockquote>
+新冠都没打倒，被台风干挺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
