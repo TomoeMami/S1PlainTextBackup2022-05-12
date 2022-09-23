@@ -10468,3 +10468,14 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5518#       发表于 2022-9-23 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57605376&amp;ptid=2078110" target="_blank">luozijin000 发表于 2022-9-23 03:21</a>
+snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被淘汰了完全不感到开心”的粉丝推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看5厕说的那位不是粉丝 是snp的公式画师 虽然我不知道有画些啥
+
