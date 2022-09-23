@@ -14816,3 +14816,15 @@ bilibili.com/video/av558257404/
 为了刷90++抽3宝倍卡？ 迷惑操作。。你用活动从者不好吗？</blockquote>
 活动从者怎么配队能秒第二面那个100W啊 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 2826#       发表于 2022-9-24 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57620601&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-9-24 00:31</a>
+
+活动从者怎么配队能秒第二面那个100W啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为他也是倍卡。。配对已经满地都是了 你去叔叔那或者隔壁看看 
+
