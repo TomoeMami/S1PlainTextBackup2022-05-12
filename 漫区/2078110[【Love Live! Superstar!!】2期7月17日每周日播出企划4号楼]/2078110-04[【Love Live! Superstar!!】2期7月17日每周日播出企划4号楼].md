@@ -11409,3 +11409,22 @@ vn入队如果处理不好，或许星2真的要完蛋了。什么学院偶像�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来现在还没完蛋吗
 
+
+
+*****
+
+####  愛さ実  
+##### 5567#       发表于 2022-9-23 19:44
+
+草，如果妹妹真进来，中之人年纪比小百合大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉有点ooc啊，特别喊姐姐时不违和吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 5568#       发表于 2022-9-23 19:51
+
+我觉得妹妹从发型来说就排除三期生了。。不够异端啊
+
