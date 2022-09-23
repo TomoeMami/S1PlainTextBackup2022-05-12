@@ -10614,3 +10614,19 @@ snp紫毛的cv暗暗地点了一个赞给“虽然是可堇回但是因为snp被
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我突然有点怕，万一第十集是九人版始空呢，用一单爆杀vn顺便爆杀了一路追下来的粉丝，实在是太适合了。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5532#       发表于 2022-9-23 14:57
+
+我倒是觉得9人应该唱一唱始空，虽然动画里还是应该唱新曲
+
+*****
+
+####  lj205  
+##### 5533#       发表于 2022-9-23 15:01
+
+大家的底线一降再降<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

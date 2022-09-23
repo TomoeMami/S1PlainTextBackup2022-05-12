@@ -3271,3 +3271,26 @@ Aya 家的 2 &amp; Geek 发布会定时间了：
 
 半个月他妈返修了两次，再要有问题我就直接打12315投诉退款了。
 
+
+
+*****
+
+####  bypass  
+##### 264#         楼主| 发表于 2022-9-23 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610436&amp;ptid=2086469" target="_blank">云梦渊泽 发表于 2022-9-23 13:08</a>
+
+买的ayaneo air8号拿到当天开箱右边霍尔扳机就他妈是次品，当场返修。
+
+中秋过完给我寄回来开始屏幕随机出现 ...</blockquote>
+虽然知道小厂的做工肯定参差不齐…不过你这个经历是有点惨 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+不能直接给你换新吗。
+
+*****
+
+####  asuss  
+##### 265#       发表于 2022-9-23 14:59
+
+只有2和geek，不是说ayaneo 对标win4的是叫ayaslide 的么
+
