@@ -2846,3 +2846,42 @@ syl申请了个什么新的剧情类游戏反正八成是海外游戏
 
 每次miko的捏人环节都一群人看什么癖好
 
+
+
+*****
+
+####  holoan  
+##### 1781#         楼主| 发表于 2022-9-23 18:16
+
+又火建了
+
+不提会死是吧
+
+*****
+
+####  qesto  
+##### 1782#       发表于 2022-9-23 18:18
+
+可以开始holo相扑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 1783#       发表于 2022-9-23 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以捏holo成员
+
+*****
+
+####  tesparu  
+##### 1784#       发表于 2022-9-23 18:20
+
+裤子自己飞了
+
+*****
+
+####  rs5621  
+##### 1785#       发表于 2022-9-23 18:21
+
+草，还没打，这人自己就乐起来了
+
