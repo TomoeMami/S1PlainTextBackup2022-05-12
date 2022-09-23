@@ -14691,3 +14691,15 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐+黑狗那套6加成稳定2t挺好的。。可惜没有顶配狗蛋 好友也刷不出来 不然可以6加成不换人了
 
+
+
+*****
+
+####  芭德薇  
+##### 2816#       发表于 2022-9-23 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57614844&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-9-23 17:59</a>
+
+兔子王配双杀狐+cd服也不错</blockquote>
+为啥我的2宝兔子王打一面差小半管血……
+
