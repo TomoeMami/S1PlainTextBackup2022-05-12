@@ -692,3 +692,57 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官推才7W粉
 
+
+
+*****
+
+####  朔方原的星  
+##### 76#       发表于 2022-9-23 22:52
+
+坏了，最后两分钟差距又拉大了，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 77#       发表于 2022-9-23 22:53
+
+说话间又回到5149了，尽力了
+
+*****
+
+####  kraoo  
+##### 78#       发表于 2022-9-23 22:54
+
+原来这个是投真爱啊，我还以为是比人气呢，投人气是不是不会输这么惨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">蕾贝卡党最后的倔强
+
+*****
+
+####  朔方原的星  
+##### 79#       发表于 2022-9-23 22:55
+
+<img src="https://p.sda1.dev/7/a53032f9e5e56f9cfb2ee058893bf7af/IMG_CMP_29153784.jpeg" referrerpolicy="no-referrer">
+
+尽力了，只差一点
+
+*****
+
+####  OedoSoldier  
+##### 80#       发表于 2022-9-23 22:58
+
+<img src="https://img.saraba1st.com/forum/202209/23/225800bu3igk3akkkqv3un.png" referrerpolicy="no-referrer">
+
+<strong>YGIJBK_KC8@Q$Z(%XUX43Q4.png</strong> (73.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-23 22:58 上传
+
+*****
+
+####  信仰之山  
+##### 81#       发表于 2022-9-23 23:00
+
+露西党投完就走，关心票数的大多是萝莉厨
+
+但蕾贝卡派系是不灭的！<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
