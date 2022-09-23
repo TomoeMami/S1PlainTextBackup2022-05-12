@@ -3294,3 +3294,15 @@ Aya 家的 2 &amp; Geek 发布会定时间了：
 
 只有2和geek，不是说ayaneo 对标win4的是叫ayaslide 的么
 
+
+
+*****
+
+####  bypass  
+##### 266#         楼主| 发表于 2022-9-23 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612040&amp;ptid=2086469" target="_blank">asuss 发表于 2022-9-23 14:59</a>
+
+只有2和geek，不是说ayaneo 对标win4的是叫ayaslide 的么</blockquote>
+Slide 这个大饼还不知道什么时候能把小麦种出来…
+
