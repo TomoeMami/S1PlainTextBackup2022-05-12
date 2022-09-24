@@ -4979,3 +4979,17 @@ b站app直播页面挂了个冰火秋日游的版头，用的是nb的配图。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草死
 
+
+
+*****
+
+####  gongge666  
+##### 12527#       发表于 2022-9-24 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57619949&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-9-23 23:27</a>
+
+说啥呢，你咩姐参演的这些live，只要有b站参与的基本都是一眼播片好吧
+
+只要认准开始唱跳时候有没有 ...</blockquote>
+自从bls之后脑子没问题肯定不会再搞直播了，本来就没啥互动的说法，硬搞两地直播，最后出问题的还是自己搭不到手的日方。B站企划里也就vr可以搞直播了
+
