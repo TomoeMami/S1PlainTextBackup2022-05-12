@@ -3232,3 +3232,22 @@ VARK运营全责
 
 心的就卡得少多了
 
+
+
+*****
+
+####  rs5621  
+##### 1819#       发表于 2022-9-24 18:55
+
+<img src="https://img.saraba1st.com/forum/202209/24/185240eoz26c22t6t0o2jp.jpg" referrerpolicy="no-referrer">
+
+<strong>`@BR%XF9C5K4V8@X_KT[5YP.jpg</strong> (370.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 18:52 上传
+
+[推特](https://twitter.com/Siriusagimugi/status/1573623378426048512?t=WPl6GCKg2It9ou5des5QfA&amp;s=19) <blockquote>みこちの歌う吉原ラメントのイメージで描いてみました
+
+19:23くらいから始まるんですけど好きすぎて永远に闻いてる....</blockquote>这段确实很让人有想法，我自己都经常听
+
