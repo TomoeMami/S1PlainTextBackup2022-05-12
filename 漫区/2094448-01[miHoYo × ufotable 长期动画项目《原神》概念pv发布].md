@@ -14939,3 +14939,17 @@ UFOtable就是光污染嘛，动作场面做的稀烂，真的不如给日升。
 
 锁妖塔！
 
+
+
+*****
+
+####  bartholo4  
+##### 1476#       发表于 2022-9-24 12:08
+
+最好还是要出大电影
+先来一季动画
+后面每年一部电影
+商业收益 影响力破圈都能更好
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
