@@ -5022,3 +5022,17 @@ live是录播不是业界心照不宣的嘛，说起来你麻这个企划一年�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ashero  
+##### 12531#       发表于 2022-9-24 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624375&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-9-24 12:49</a>
+
+明年结束这个是官方信息还是大家猜的，索尼会不会把12月当成一年的结尾
+
+—— 来自 S1Fun ...</blockquote>
+不是 官方自己做过倒计时的 就是365天结束
+
