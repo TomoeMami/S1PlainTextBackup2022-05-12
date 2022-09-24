@@ -3070,3 +3070,37 @@ vark官推说现在打开vark的手机app可以看到今天两个人的特别音
 
 <img src="https://img.saraba1st.com/forum/202209/24/155024y89txbzdbjzds74l.bmp" id="aimg_1105812" onclick="zoom(this, this.src, 0, 0, 0)" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qesto  
+##### 1806#       发表于 2022-9-24 15:54
+
+把音声给录下来了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+就很简单的一句话
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+video_20220924_154737_edit.mp3
+
+2022-9-24 15:52 上传
+点击文件名下载附件
+
+332.7 KB, 下载次数: 3
+
+*****
+
+####  rs5621  
+##### 1807#       发表于 2022-9-24 15:57
+
+不错不错
+
+*****
+
+####  holoan  
+##### 1808#         楼主| 发表于 2022-9-24 15:59
+
+nico侧通信障害可能会画面跳动
+
