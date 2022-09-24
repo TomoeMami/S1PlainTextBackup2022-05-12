@@ -11976,3 +11976,15 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 在一期公式书中，鲤鱼和青山姐几乎是直白式表示这剧情不太行</blockquote>
 一期只能说还有讨论的余地，二期在一期的基础上瞎搞，糟糕程度是加倍的，而且一期起码还有一部分不错一部分能看，现在是能看的都没了。出来直接开喷，讨论的点儿都没有。
 
+
+
+*****
+
+####  csolfans  
+##### 5617#       发表于 2022-9-24 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57634102&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-24 23:23</a>
+
+一期只能说还有讨论的余地，二期在一期的基础上瞎搞，糟糕程度是加倍的，而且一期起码还有一部分不错一部 ...</blockquote>
+已经不懂花田在想啥呢
+
