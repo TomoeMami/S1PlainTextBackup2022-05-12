@@ -11803,3 +11803,44 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 没有任何消息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 5602#       发表于 2022-9-24 20:33
+
+「鲤酱是不是对2期完全死心了」「1期每集都有感想推2期基本略过」 <blockquote>85名無しで叶える物語(SB-Android)2022/09/24(土) 10:38:04.37ID:efCpPqdX
+
+&gt;&gt;72
+
+教祖→ツイートあり
+
+悪態→ツイートなし
+
+信者→ツイートなし
+
+葉月恋→ツイートなし
+
+葉月恋と変わらん行為を2期でした奴→ツイートあり
+
+実力不足の空気→ツイートあり
+
+実力不足だけど良心1→ツイートあり
+
+実力不足だけど良心2→ツイッターなし
+
+実力不足の畜生→ツイートあり
+
+答え出てて草</blockquote>
+说起来这帖说「大熊没开推难道是预见到了动画这种情况吗」<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5603#       发表于 2022-9-24 20:34
+
+鲤鱼姐微博都不发感想了，其实也没有什么需要感想的不是吗。这些集根本上就没有底层情感，什么东西都是表面化的，想说的都被花田说干净了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
