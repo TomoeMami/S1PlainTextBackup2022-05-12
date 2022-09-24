@@ -11918,3 +11918,27 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 鲤鱼应该就会在推特上称赞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 5612#       发表于 2022-9-24 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57629773&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-24 20:34</a>
+
+鲤鱼姐微博都不发感想了，其实也没有什么需要感想的不是吗。这些集根本上就没有底层情感，什么东西都是表面 ...</blockquote>
+虽然不少人这么说，但是让人感觉有点无形的压力诶。鲤鱼姐这看得要是真有想法也不敢说了。。。待会说不好或者跟大家方向有点出入这咋搞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5613#       发表于 2022-9-24 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57631401&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-24 21:35</a>
+
+别急，上映会就快了，鲤鱼躲不掉的
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+读信就好了，到时候就是sodayobot，完美省电
+

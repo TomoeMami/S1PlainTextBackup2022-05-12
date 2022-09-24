@@ -10364,3 +10364,15 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 今晚这个逆凸阵容从太多意义上来说都太欢乐了
 
+
+
+*****
+
+####  noHentai  
+##### 17458#       发表于 2022-9-24 22:35
+
+没想到已经进化成这样了，感觉来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+【#まれれ1stバンドライブ】はじめてのまちあわせ ～Happy Birthday ララ!!～【まって！レイニーレタス / シアーミュージックV】
+[https://www.youtube.com/watch?v=J2SuVzjeiFg](https://www.youtube.com/watch?v=J2SuVzjeiFg)
+
