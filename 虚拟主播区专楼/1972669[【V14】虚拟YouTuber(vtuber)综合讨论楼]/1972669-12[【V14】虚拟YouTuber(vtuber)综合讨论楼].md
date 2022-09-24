@@ -10340,3 +10340,18 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 按照弹幕想看的话那接下来该逆凸yagoo了</blockquote>
 先按顺序面完三期生四天王才有资格直面老板！
 
+
+
+*****
+
+####  Ketestrait  
+##### 17456#       发表于 2022-9-24 21:58
+
+ぽむちゃん
+
+サロメさん
+
+其他直书其名
+
+请阅读理解大师入场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
