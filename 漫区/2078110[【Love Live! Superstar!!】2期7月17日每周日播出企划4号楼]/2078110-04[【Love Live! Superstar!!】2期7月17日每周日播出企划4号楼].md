@@ -12020,3 +12020,14 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊，原来明天放的这集会是ll系列动画的第一百集，真期待呢（
 
+
+
+*****
+
+####  ads147147  
+##### 5621#       发表于 2022-9-25 00:54
+
+现在的问题是，剧情扯了也就算了，歌是怎么回事，哪怕写口水歌也不至于裂化成这个样子。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
