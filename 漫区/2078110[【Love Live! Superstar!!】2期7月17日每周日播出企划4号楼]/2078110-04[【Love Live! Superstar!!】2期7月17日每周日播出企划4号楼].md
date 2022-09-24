@@ -11587,3 +11587,15 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 今のお前ら「なぎさ…ラブライブを踏み台にして报われてくれ…」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5580#       发表于 2022-9-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624584&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-9-24 13:10</a></blockquote>
+乐，建议单飞是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话Apollo Bay那边俩人个活都给的挺不错的了；鲤鱼那边有点微妙；pay和nako感觉基本刚起步，pay的活稍微多那么一点点
+
