@@ -14869,3 +14869,12 @@ bilibili.com/video/av558257404/
 
 新高难appmedia上巴洁特的8t剧本有点稳。这种攻击/受击计数机制还真适合她。
 
+
+
+*****
+
+####  龙星丸  
+##### 2831#       发表于 2022-9-24 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">B服的提早问问，听说这次活动也是无限池？给的素材是什么啊？
+
