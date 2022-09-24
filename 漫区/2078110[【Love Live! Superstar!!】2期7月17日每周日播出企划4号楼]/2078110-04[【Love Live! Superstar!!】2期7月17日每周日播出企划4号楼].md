@@ -11951,3 +11951,16 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 看过以前鲤鱼直播，鲤鱼对动画片儿好不好看还挺严厉的，就星2这个剧本，她肯定是看不上的，要是自己不是参演者，妥妥的喷这是烂片。
 
+
+
+*****
+
+####  csolfans  
+##### 5615#       发表于 2022-9-24 23:08
+
+ 本帖最后由 csolfans 于 2022-9-24 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57633594&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-24 23:01</a>
+
+看过以前鲤鱼直播，鲤鱼对动画片儿好不好看还挺严厉的，就星2这个剧本，她肯定是看不上的，要是自己不是参 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在一期公式书中，鲤鱼和青山姐几乎是直白式表示这剧情不太行
+
