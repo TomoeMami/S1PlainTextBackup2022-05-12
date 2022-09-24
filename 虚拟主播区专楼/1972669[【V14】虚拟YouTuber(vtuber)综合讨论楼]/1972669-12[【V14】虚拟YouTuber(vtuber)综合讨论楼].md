@@ -10280,3 +10280,26 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 果然会有木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Devi_Lito  
+##### 17449#       发表于 2022-9-24 20:56
+
+莎皇也来了，猜得真准啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 17450#       发表于 2022-9-24 20:57
+
+易北河会师了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 17451#       发表于 2022-9-24 20:57
+
+大前辈以第一人称为由80新人现场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
