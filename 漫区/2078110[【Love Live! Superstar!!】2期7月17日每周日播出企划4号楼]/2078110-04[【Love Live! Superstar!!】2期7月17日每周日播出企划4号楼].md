@@ -11964,3 +11964,15 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 看过以前鲤鱼直播，鲤鱼对动画片儿好不好看还挺严厉的，就星2这个剧本，她肯定是看不上的，要是自己不是参 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在一期公式书中，鲤鱼和青山姐几乎是直白式表示这剧情不太行
 
+
+
+*****
+
+####  cat1230  
+##### 5616#       发表于 2022-9-24 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57633769&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-9-24 23:08</a>
+
+在一期公式书中，鲤鱼和青山姐几乎是直白式表示这剧情不太行</blockquote>
+一期只能说还有讨论的余地，二期在一期的基础上瞎搞，糟糕程度是加倍的，而且一期起码还有一部分不错一部分能看，现在是能看的都没了。出来直接开喷，讨论的点儿都没有。
+
