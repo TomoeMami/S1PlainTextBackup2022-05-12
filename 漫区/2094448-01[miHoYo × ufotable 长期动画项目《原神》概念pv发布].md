@@ -15009,3 +15009,17 @@ https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share
 
 肯定得改编吧，不然就原神那水平的剧情压根没兴趣看。
 
+
+
+*****
+
+####  Fuero  
+##### 1483#       发表于 2022-9-24 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57628521&amp;ptid=2094448" target="_blank">从零开始的ccc 发表于 2022-9-24 19:07</a>
+
+原神后面的剧情怎么样，云了一下第一个国家的剧情感觉很一般啊</blockquote>
+主线：3.0开始好起来了
+
+支线：一直处于比较不错的水准，围绕2.0的神樱大拔和3.0的森林书都足够撑起一季动画
+

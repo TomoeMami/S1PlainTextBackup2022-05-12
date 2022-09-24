@@ -11730,3 +11730,14 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不星动画还在放 等放完马上开搞管人团
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5594#       发表于 2022-9-24 19:16
+
+还是感觉星现在这样子有点降上限，作为一个2.5次元偶像企划，二次元和三次元同样重要吧，现在作为二次元方向大头的动画整这个样子……
+
+别人是从二次元与三次元互相映射来得到1+1&gt;2的感动，星现在这样子恐怕在有些角度已经是1+1&lt;2了，甚至说不定还有&lt;1的呢
+
