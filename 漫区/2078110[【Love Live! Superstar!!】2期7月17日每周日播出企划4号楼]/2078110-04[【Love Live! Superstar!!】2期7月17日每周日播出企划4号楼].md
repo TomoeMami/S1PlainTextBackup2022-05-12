@@ -11576,3 +11576,14 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 可能是动员会，所以算学校性的，得让恋恋这个学生会长站左边，这种时候左边才是头位（我编完了）
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5579#       发表于 2022-9-24 13:10
+
+<blockquote>キャスト発表时のお前ら「青山こいつラブライブを踏み台にしようとしてる！ギャオオオオン！」
+
+今のお前ら「なぎさ…ラブライブを踏み台にして报われてくれ…」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
