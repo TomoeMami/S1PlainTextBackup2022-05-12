@@ -11681,3 +11681,23 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 大环境问题吧，虹星要达到缪和水的高度很难了。
 
+
+
+*****
+
+####  ads147147  
+##### 5589#       发表于 2022-9-24 17:25
+
+过于小看万代了吧，万代明显把拉拉当高达养着了，你敢对万代说高达已经寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 5590#       发表于 2022-9-24 17:28
+
+还有两个新坑等着开呢，万代应该有的是钱试错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
