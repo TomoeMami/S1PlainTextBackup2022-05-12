@@ -10248,3 +10248,35 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 兔头生日逆凸首棒居然是inui，总感觉两人之前各种活动应该联系不少了
 
+
+
+*****
+
+####  Devi_Lito  
+##### 17445#       发表于 2022-9-24 20:46
+
+杏来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17446#       发表于 2022-9-24 20:46
+
+我感觉当初月之跟润的几次小互动还挺有化学反应的
+
+可惜人已经没了
+
+*****
+
+####  hulaoda007  
+##### 17447#       发表于 2022-9-24 20:46
+
+大脸猫也还行。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">弹幕好有趣。
+
+*****
+
+####  FCCHua  
+##### 17448#       发表于 2022-9-24 20:48
+
+果然会有木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

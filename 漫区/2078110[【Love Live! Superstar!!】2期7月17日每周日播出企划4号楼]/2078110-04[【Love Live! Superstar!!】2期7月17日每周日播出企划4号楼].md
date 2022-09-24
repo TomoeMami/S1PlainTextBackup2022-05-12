@@ -11844,3 +11844,26 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5604#       发表于 2022-9-24 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又有新的五老星胃痛小作文 点进去就看到恋被安排出国了
+
+*****
+
+####  starring  
+##### 5605#       发表于 2022-9-24 20:43
+
+二期开始什么都变了，动画相关的内容鲤鱼都只是工商转推，而打铁的推已经变成工商Bot<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5606#       发表于 2022-9-24 20:46
+
+又没多少戏份，每集出来就是给别人衬托包容和亚萨西的工具有啥好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
