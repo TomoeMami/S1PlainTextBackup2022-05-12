@@ -11654,3 +11654,12 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 现在的LL企划系列，确实有点摇摇欲坠的黄昏帝国的感觉了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家水虹发展的挺好的
 
+
+
+*****
+
+####  沙茶酱  
+##### 5586#       发表于 2022-9-24 16:39
+
+其实你该反过来想，星这个企划一直在作死，又是策划加四人，又是动画摆大烂，还有杂七杂八的摆烂操作，竟然还可以活得不错，你放在别的企划那里，估计现在早该寄了，所以LL这个招牌的含金量不言而喻<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
