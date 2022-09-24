@@ -3271,3 +3271,69 @@ nico:卡
 
 多动症患者
 
+
+
+*****
+
+####  rs5621  
+##### 1822#       发表于 2022-9-24 19:54
+
+ 本帖最后由 rs5621 于 2022-9-24 19:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上发的视频笑死了，像个孩子一样在台下大喊大叫的。
+
+<img src="https://img.saraba1st.com/forum/202209/24/195413gotbg8btjbr9t99c.png" referrerpolicy="no-referrer">
+
+<strong>{FT]W06CQN2U3B1I3P}L2{W.png</strong> (66.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/24/195414hu27bhqs2ru3h5f1.png" referrerpolicy="no-referrer">
+
+<strong></strong> (82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 19:54 上传
+
+这表情有紫色小学生那味
+
+*****
+
+####  holoan  
+##### 1823#         楼主| 发表于 2022-9-24 19:54
+
+<img src="https://img.saraba1st.com/forum/202209/24/195348se9r4egy49jjxqzp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 19:53 上传
+
+很多人都很生气就是了
+
+*****
+
+####  holoan  
+##### 1824#         楼主| 发表于 2022-9-24 19:55
+
+<img src="https://img.saraba1st.com/forum/202209/24/195502vg1pziuiujigkazp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 19:55 上传
+
+相当生气了
+
+*****
+
+####  rs5621  
+##### 1825#       发表于 2022-9-24 19:59
+
+草这次的差评这么多，运营商背大锅
+

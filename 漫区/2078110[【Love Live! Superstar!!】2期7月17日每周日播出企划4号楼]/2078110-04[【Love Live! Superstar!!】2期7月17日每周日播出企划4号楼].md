@@ -11750,3 +11750,24 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 没辙，除非它企划知耻愿意模因删除重置星二，不然这十字你要背一辈子，要是自己企划内烂还好，但现在是快成一个类型里最烂的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yicihanshu  
+##### 5596#       发表于 2022-9-24 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57628946&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-24 19:46</a>
+没辙，除非它企划知耻愿意模因删除重置星二，不然这十字你要背一辈子，要是自己企划内烂还好，但现在是快成 ...</blockquote>
+明天马上出新游戏重置剧情就行
+虹动画重置游戏剧情，星自然也可以游戏重置动画剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 5597#       发表于 2022-9-24 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全指望明天生放是吧 大的要来了（）
+

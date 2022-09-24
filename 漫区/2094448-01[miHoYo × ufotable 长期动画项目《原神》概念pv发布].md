@@ -15056,3 +15056,19 @@ https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share
 森林书做动画</blockquote>
 森林书我跑任务都觉得有点审美疲劳了，做动画可算了吧
 
+
+
+*****
+
+####  一色いろは  
+##### 1487#       发表于 2022-9-24 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57628521&amp;ptid=2094448" target="_blank">从零开始的ccc 发表于 2022-9-24 19:07</a>
+
+原神后面的剧情怎么样，云了一下第一个国家的剧情感觉很一般啊</blockquote>
+前面3个国家产能有限的情况下，剧情的篇幅都拿来卖角色了“你看这角色很不错吧快来抽”
+
+但是故事又远不如FGO大部分段落，导致用剧情卖角色这个目的基本没达到
+
+须弥开始大概是产能上来了，增加了讲故事的比重和篇幅
+
