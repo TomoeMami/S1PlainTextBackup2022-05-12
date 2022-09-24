@@ -11988,3 +11988,17 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 一期只能说还有讨论的余地，二期在一期的基础上瞎搞，糟糕程度是加倍的，而且一期起码还有一部分不错一部 ...</blockquote>
 已经不懂花田在想啥呢
 
+
+
+*****
+
+####  player3960  
+##### 5618#       发表于 2022-9-24 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57633594&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-09-24 23:01:09</a>
+看过以前鲤鱼直播，鲤鱼对动画片儿好不好看还挺严厉的，就星2这个剧本，她肯定是看不上的，要是自己不是参 ...</blockquote>都是国内环境看动画过来的人，她还经常回来冲浪，咱们这边什么感受她肯定知道，而且她的口味和思维多半还是和这边比较一致。只不过碍于身份，只能说些不痛不痒的，虽然也偶有“锐评”。
+
+已经好多次了，生放和广播鲤鱼谈一些东西时，我总觉得在微博上看到过，她怕不是也看到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
