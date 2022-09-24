@@ -11780,3 +11780,26 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 你们这么确定是新游戏吗，不是老游戏接着叠盒子？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5599#       发表于 2022-9-24 20:11
+
+xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 5600#       发表于 2022-9-24 20:18
+
+新游戏的消息哪里来的？我不抱希望了。
+
+*****
+
+####  稀勢のささ  
+##### 5601#       发表于 2022-9-24 20:19
+
+没有任何消息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
