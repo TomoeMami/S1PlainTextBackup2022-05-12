@@ -14878,3 +14878,12 @@ bilibili.com/video/av558257404/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">B服的提早问问，听说这次活动也是无限池？给的素材是什么啊？
 
+
+
+*****
+
+####  kidoo  
+##### 2832#       发表于 2022-9-24 22:59
+
+千利休换人的话一宝都能稳定3t，概率2t
+
