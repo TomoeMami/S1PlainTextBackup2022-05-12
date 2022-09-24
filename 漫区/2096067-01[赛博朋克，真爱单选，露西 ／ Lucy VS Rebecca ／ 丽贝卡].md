@@ -766,3 +766,16 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Tungsten  
+##### 84#       发表于 2022-9-24 08:16
+
+神秘，危险，代表着未知与冒险
+
+同时仔细了解后又会见到她的深情与奉献
+
+不是不喜欢Rebecca，只是Lucy实在是过于在我的好球带上跳舞
+
