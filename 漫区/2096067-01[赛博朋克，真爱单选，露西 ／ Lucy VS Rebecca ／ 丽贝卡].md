@@ -779,3 +779,14 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 不是不喜欢Rebecca，只是Lucy实在是过于在我的好球带上跳舞
 
+
+
+*****
+
+####  Tree洞  
+##### 85#       发表于 2022-9-24 09:22
+
+没看见投票之前一度以为其实所有人都是rebecca党 还以为我个lucy党是个异端呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
