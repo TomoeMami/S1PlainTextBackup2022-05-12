@@ -10303,3 +10303,22 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 
 大前辈以第一人称为由80新人现场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17452#       发表于 2022-9-24 21:04
+
+感觉就是月之把大伙儿想看的都端上来了
+
+*****
+
+####  Devi_Lito  
+##### 17453#       发表于 2022-9-24 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57630521&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-24 21:04</a>
+
+感觉就是月之把大伙儿想看的都端上来了</blockquote>
+按照弹幕想看的话那接下来该逆凸yagoo了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
