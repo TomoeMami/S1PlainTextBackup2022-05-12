@@ -15032,3 +15032,15 @@ https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森林书做动画
 
+
+
+*****
+
+####  OedoSoldier  
+##### 1485#       发表于 2022-9-24 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57627916&amp;ptid=2094448" target="_blank">Fuero 发表于 2022-9-24 18:22</a>
+
+三蹦子这个不知道谁整的https://www.bilibili.com/video/BV1LN4y1K72J/</blockquote>
+这种作画感觉很像国产，而且张数很低看着难受
+
