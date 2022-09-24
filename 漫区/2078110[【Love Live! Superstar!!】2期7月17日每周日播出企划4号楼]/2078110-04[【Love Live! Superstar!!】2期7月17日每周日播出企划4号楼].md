@@ -11741,3 +11741,12 @@ https://www.jizhazha.com/jv2315 【日宅：维恩已经可以确定是Liella!�
 
 别人是从二次元与三次元互相映射来得到1+1&gt;2的感动，星现在这样子恐怕在有些角度已经是1+1&lt;2了，甚至说不定还有&lt;1的呢
 
+
+
+*****
+
+####  ViyViy  
+##### 5595#       发表于 2022-9-24 19:46
+
+没辙，除非它企划知耻愿意模因删除重置星二，不然这十字你要背一辈子，要是自己企划内烂还好，但现在是快成一个类型里最烂的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
