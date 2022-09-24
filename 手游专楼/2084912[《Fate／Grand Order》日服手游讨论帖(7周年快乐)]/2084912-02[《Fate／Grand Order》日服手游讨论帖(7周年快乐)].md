@@ -14851,3 +14851,12 @@ bilibili.com/video/av558257404/
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 2829#       发表于 2022-9-24 16:43
+
+新年理查应该稳了吧，一年外星人一年剑明年正好轮到剑，感觉会有一个全卡变红的技能
+

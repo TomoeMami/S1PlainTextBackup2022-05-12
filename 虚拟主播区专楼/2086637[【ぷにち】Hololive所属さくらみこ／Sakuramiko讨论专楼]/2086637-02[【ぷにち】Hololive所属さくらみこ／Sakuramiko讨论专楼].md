@@ -3153,3 +3153,39 @@ nico侧通信障害可能会画面跳动
 
 草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试图重连，连不上又重连
 
+
+
+*****
+
+####  holoan  
+##### 1814#         楼主| 发表于 2022-9-24 16:47
+
+<blockquote>ベイビーダンス（nico无料part）
+
+MC
+
+秘密の扉から会いに来て
+
+MC
+
+ワンダーステラ
+
+MC
+
+ユメヲカケル
+
+MC
+
+RED HEART
+
+ENDING</blockquote>
+
+*****
+
+####  holoan  
+##### 1815#         楼主| 发表于 2022-9-24 16:48
+
+和上次micomet一样最后一首都留给相互的原创曲了
+
+确实相当emo
+
