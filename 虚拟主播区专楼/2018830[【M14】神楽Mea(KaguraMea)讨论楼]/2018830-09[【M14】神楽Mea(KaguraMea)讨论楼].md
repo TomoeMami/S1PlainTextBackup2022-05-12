@@ -5009,3 +5009,16 @@ live是录播不是业界心照不宣的嘛，说起来你麻这个企划一年�
 
 企划明年3月31号结束，还有半年呢
 
+
+
+*****
+
+####  往世雷书  
+##### 12530#       发表于 2022-9-24 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624237&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2022-9-24 12:36</a>
+企划明年3月31号结束，还有半年呢</blockquote>
+明年结束这个是官方信息还是大家猜的，索尼会不会把12月当成一年的结尾
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
