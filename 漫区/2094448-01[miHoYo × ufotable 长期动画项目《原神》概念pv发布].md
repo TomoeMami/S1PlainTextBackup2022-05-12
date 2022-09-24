@@ -14953,3 +14953,14 @@ UFOtable就是光污染嘛，动作场面做的稀烂，真的不如给日升。
 
 —— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  (wing)  
+##### 1477#       发表于 2022-9-24 16:28
+
+[https://www.bilibili.com/video/B ... 8dadc7b363e4c34a1d8](https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share_from=ugc&amp;share_medium=iphone&amp;share_plat=ios&amp;share_session_id=F825CBD9-6222-4493-9B3C-11C17DDE5737&amp;share_source=QQ&amp;share_tag=s_i&amp;timestamp=1663998704&amp;unique_k=EvKhq70&amp;vd_source=5ebb05119192f8dadc7b363e4c34a1d8)
+
+按隔壁崩3这个质量就可以了
+
