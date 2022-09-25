@@ -14969,3 +14969,12 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此时一个商店还没搬空的萌新默默的走过
 
+
+
+*****
+
+####  刹海之绊  
+##### 2840#       发表于 2022-9-25 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">活动已经毕业了，攒蓝苹果中
+

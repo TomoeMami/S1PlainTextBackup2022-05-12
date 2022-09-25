@@ -12890,3 +12890,55 @@ VN曲风适合少鸽，不过都是口水歌，都差不多
 
 这集过于正常都有点不习惯了
 
+
+
+*****
+
+####  damian-wade  
+##### 5714#       发表于 2022-9-25 18:27
+
+日常练习看着还行，除了vn的对LL的挑衅发言……Vn两首新歌带live，待遇薄纱snp<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新歌还行，但我觉得差不多就55开，没什么优势(除了人数），下集预告应该要攻略vn了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  damian-wade  
+##### 5715#       发表于 2022-9-25 18:27
+
+ 本帖最后由 damian-wade 于 2022-9-25 18:28 编辑 
+
+重复了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cat1230  
+##### 5716#       发表于 2022-9-25 18:28
+
+都不咋地的歌，snp真惨啊，vn都2live了，她俩一个都没，企划不是人啊。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ffz  
+##### 5717#       发表于 2022-9-25 18:29
+
+9打1，胜之不武<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 5718#       发表于 2022-9-25 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集确实能说一个正常，虽然不知道为什么结果要放到下一集，这集没法评价了。
+
+*****
+
+####  1096beam  
+##### 5719#       发表于 2022-9-25 18:30
+
+下集VN连第二都没有，因为得罪了主办方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
