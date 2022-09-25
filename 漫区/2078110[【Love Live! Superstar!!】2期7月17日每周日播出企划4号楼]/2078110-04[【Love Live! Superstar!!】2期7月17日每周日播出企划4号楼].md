@@ -13082,3 +13082,88 @@ vn的cd都可以单独发了，岚珠都没这待遇，r3之子恐怖如斯。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上可堇/鲤pay厨对堇画衣服那一幕直呼磕到了，可问题是那衣服好像是香音/小百合的，太尴尬了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5735#       发表于 2022-9-25 19:01
+
+vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期生来说都挺不公平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 5736#       发表于 2022-9-25 19:02
+
+可惜snp了，血条都没资格亮，只配给裂啦vn当垫脚石
+
+*****
+
+####  Kfly  
+##### 5737#       发表于 2022-9-25 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644090&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-25 18:59</a>
+
+推上可堇/鲤pay厨对堇画衣服那一幕直呼磕到了，可问题是那衣服好像是香音/小百合的，太尴尬了 ...</blockquote>
+为什么不能是可可穿着堇的衣服呢
+
+被这疯狂的想法惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/25/190207ohg03zif3gigwwhw.png" referrerpolicy="no-referrer">
+
+<strong>【中字】Liella! CDTV LIVE⚡LIVE FESTIVAL演出 @11-12.03 1664103006204.png</strong> (180.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-25 19:02 上传
+
+*****
+
+####  player3960  
+##### 5738#       发表于 2022-9-25 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644090&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-09-25 18:59:14</a>
+推上可堇/鲤pay厨对堇画衣服那一幕直呼磕到了，可问题是那衣服好像是香音/小百合的，太尴尬了 ...</blockquote>明显是打铁，鲤鱼可没这待遇。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说这集可堇人一堆东西磕，封面都给了，还缺这点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 5739#       发表于 2022-9-25 19:03
+
+小百合和香音头发没那么卷吧，而且堇也是立领，这波啊，这波，不知道该怎么描述。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5740#       发表于 2022-9-25 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644134&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-25 19:02</a>
+
+为什么不能是可可穿着堇的衣服呢
+
+被这疯狂的想法惊到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是，pay的衣服也是立领的
+
+*****
+
+####  凡人  
+##### 5741#       发表于 2022-9-25 19:03
+
+香堇还在输出？
+
+*****
+
+####  ads147147  
+##### 5742#       发表于 2022-9-25 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644126&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-25 19:01</a>
+vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期生来说都挺不公平的 ...</blockquote>
+偶像界什么时候有过公平<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
