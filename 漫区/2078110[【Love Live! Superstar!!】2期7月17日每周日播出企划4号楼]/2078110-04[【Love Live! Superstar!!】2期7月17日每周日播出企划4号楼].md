@@ -12354,3 +12354,22 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 
 看来以后别说可香，合鲤都会越来越少<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">害得被迫吃可堇…………
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5652#       发表于 2022-9-25 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641482&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-25 14:47</a>
+
+红蓝恋，香千路，氪金鬼。跟软糖一致。不过倒是没有必要发散</blockquote>
+但愿吧，如果只有一次，一个方面，倒是没什么好说的，如果出现好几次，倒是可以猜测是不是成为常用的固定组合了
+
+*****
+
+####  稀勢のささ  
+##### 5653#       发表于 2022-9-25 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那种事情不要啊
+
