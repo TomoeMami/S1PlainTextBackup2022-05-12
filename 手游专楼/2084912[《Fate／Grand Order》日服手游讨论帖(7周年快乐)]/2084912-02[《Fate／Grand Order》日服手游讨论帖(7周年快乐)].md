@@ -14916,3 +14916,17 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  snakeling  
+##### 2835#       发表于 2022-9-25 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641968&amp;ptid=2084912" target="_blank">J-002 发表于 2022-9-25 15:32</a>
+
+打本掉落三种茶叶，我带+7打90++本平均每次每种各100左右
+
+茶叶用来抽扭蛋机，用茶叶组合可以指定素材的出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">为什么就核桃掉到铜材料那档了。
+
