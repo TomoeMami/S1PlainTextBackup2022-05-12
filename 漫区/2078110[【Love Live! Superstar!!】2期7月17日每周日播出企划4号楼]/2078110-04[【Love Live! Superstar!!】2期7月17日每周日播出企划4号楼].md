@@ -13438,3 +13438,85 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 
 啥开会一样的生放送啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 5773#       发表于 2022-9-25 20:12
+
+这种剧情怎么夸啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 5774#       发表于 2022-9-25 20:12
+
+TVアニメ「ラブライブ！スーパースター!!」2期 
+
+第10話挿入歌 
+
+「Sing！Shine！Smile！」を収録♪ 
+
+挿入歌シングル第三弾は 
+
+10/19(水)発売
+
+【A盤】のジャケットを公開しました
+
+商品情報はこちら 
+[https://www.lovelive-anime.jp/yuigaoka/music/cd24.php](https://www.lovelive-anime.jp/yuigaoka/music/cd24.php)
+<img src="https://p.sda1.dev/7/7b24d87229b987e84cb0191bbc8239b7/20220925_201158.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5775#       发表于 2022-9-25 20:12
+
+看到9人一起出场就想到，自从5变9之后就发现其实你星的整活之王就只有鲤鱼姐，再加上双N比较有梗，这三个人不在的时候无论是生放送还是广播都很无聊……尤其是yabu，non和彩这仨，坐牢三天王了属于是
+
+*****
+
+####  ads147147  
+##### 5776#       发表于 2022-9-25 20:12
+
+第九集真的没啥好说的，读信加sodayo糊弄过去不是很好嘛。
+现在不也就是再这样。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 5777#       发表于 2022-9-25 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644676&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-25 20:01</a>
+
+看资料结那小学四年级就开始演艺活动，高中玩乐队担任主唱和吉他手，做过歌曲mv的主要，还在木村昴所在的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单看个人条件，这未免太强了吧，有才有貌有资历
+
+*****
+
+####  iuhehc  
+##### 5778#       发表于 2022-9-25 20:15
+
+吹成神回是认真的吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 5779#       发表于 2022-9-25 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">やめてよ（你让我说 我说什么啊  突然唱歌吗）
+
+*****
+
+####  优妮可  
+##### 5780#       发表于 2022-9-25 20:17
+
+那也不能开骂咋，听听就行了
+
