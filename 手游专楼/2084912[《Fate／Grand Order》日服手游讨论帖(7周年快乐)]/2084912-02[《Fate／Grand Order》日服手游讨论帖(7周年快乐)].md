@@ -14950,3 +14950,22 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这破活动什么时候完啊 几天前就开始干刷 池子也只剩千利休了 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2838#       发表于 2022-9-25 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57643363&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-9-25 17:41</a>
+
+这破活动什么时候完啊 几天前就开始干刷 池子也只剩千利休了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有10天
+
+*****
+
+####  alucardcz  
+##### 2839#       发表于 2022-9-25 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此时一个商店还没搬空的萌新默默的走过
+
