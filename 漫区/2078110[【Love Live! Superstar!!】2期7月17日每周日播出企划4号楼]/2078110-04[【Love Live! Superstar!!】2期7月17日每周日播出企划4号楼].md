@@ -13703,3 +13703,14 @@ Kuma 拍照技术可以啊
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 5801#       发表于 2022-9-25 22:55
+
+VN的新歌比3话那首好听很多，高贵的solo mv也好看
+
+snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起来就是后娘捡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
