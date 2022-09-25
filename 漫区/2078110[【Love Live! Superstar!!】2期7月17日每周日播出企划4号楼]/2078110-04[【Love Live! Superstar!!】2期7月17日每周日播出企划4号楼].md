@@ -12550,3 +12550,168 @@ sif2，哈哈哈
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 ，<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">干不过打铁大叔粉，除非鱼在微博拉票了
 
+
+
+*****
+
+####  JustW_3  
+##### 5672#       发表于 2022-9-25 18:02
+
+合宿回
+
+可可：去上海！
+
+*****
+
+####  ads147147  
+##### 5673#       发表于 2022-9-25 18:03
+
+小千突然重女。。这个剧本里的角色怎么各种反复无常啊。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5674#       发表于 2022-9-25 18:03
+
+ 本帖最后由 ads147147 于 2022-9-25 18:06 编辑 
+
+你们这样还想着打败vn啊，什么鬼。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 5675#       发表于 2022-9-25 18:04
+
+这OP现在我满脑子都是鱼唱的版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5676#       发表于 2022-9-25 18:05
+
+好，是蓝毛c，可可是什么垃圾jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JustW_3  
+##### 5677#       发表于 2022-9-25 18:06
+
+ 本帖最后由 JustW_3 于 2022-9-25 18:08 编辑 
+
+一二年级之间两两（三）组队？
+
+小千-四季
+
+恋-芽衣
+
+香音-樱
+
+可堇-夏美
+
+*****
+
+####  JustW_3  
+##### 5678#       发表于 2022-9-25 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可堇继续欢喜冤家
+
+*****
+
+####  ads147147  
+##### 5679#       发表于 2022-9-25 18:09
+
+流水的拉拉，铁打的偶像大师主持人
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tjshibc21  
+##### 5680#       发表于 2022-9-25 18:10
+
+VN拽什么拽 今年你就是亚军
+
+*****
+
+####  ads147147  
+##### 5681#       发表于 2022-9-25 18:10
+
+好，对所有人都宣战宣言wwww
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5682#       发表于 2022-9-25 18:10
+
+好，对所有人都宣战宣言wwww
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 5683#       发表于 2022-9-25 18:11
+
+土妹那边真就强行复刻玩尬的
+
+*****
+
+####  JustW_3  
+##### 5684#       发表于 2022-9-25 18:12
+
+香音：本当的歌……到底是什么
+
+该开悟了，成长了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5685#       发表于 2022-9-25 18:13
+
+千从第一季开始就很重女吧
+
+*****
+
+####  ads147147  
+##### 5686#       发表于 2022-9-25 18:13
+
+大赛前，当然是玩玩玩啊
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 5687#       发表于 2022-9-25 18:14
+
+《VN在练习》
+
+*****
+
+####  稀勢のささ  
+##### 5688#       发表于 2022-9-25 18:14
+
+《VN在练习》
+
+*****
+
+####  lj205  
+##### 5689#       发表于 2022-9-25 18:15
+
+超级赛亚人的余裕
+
+*****
+
+####  JustW_3  
+##### 5690#       发表于 2022-9-25 18:16
+
+堇设计衣服啊
+
