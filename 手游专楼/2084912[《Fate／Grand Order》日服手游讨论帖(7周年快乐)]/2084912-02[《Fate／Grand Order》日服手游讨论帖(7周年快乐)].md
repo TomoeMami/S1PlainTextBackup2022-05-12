@@ -15012,3 +15012,15 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 看你前面讨论6加成那么积极 结果还没搬完商店么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究完后就自然回了 为什么要刷
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2844#       发表于 2022-9-25 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57643548&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-9-25 17:58</a>
+
+此时一个商店还没搬空的萌新默默的走过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说商店了，连高难都还没打的表示你还差远了
+
