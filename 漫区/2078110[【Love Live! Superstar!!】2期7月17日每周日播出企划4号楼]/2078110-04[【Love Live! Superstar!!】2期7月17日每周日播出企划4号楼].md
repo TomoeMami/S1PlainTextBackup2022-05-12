@@ -12058,3 +12058,34 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 先默认它烂了，评分40起步
 
+
+
+*****
+
+####  player3960  
+##### 5625#       发表于 2022-9-25 08:53
+
+朗报，维他命summer油管播放量追平了VN，看走势超过应该也只是时间问题，虽然是菜鸡互啄，但还是可喜可贺。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 5626#       发表于 2022-9-25 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57638299&amp;ptid=2078110" target="_blank">player3960 发表于 2022-9-25 08:53</a>
+朗报，维他命summer油管播放量追平了VN，看走势超过应该也只是时间问题，虽然是菜鸡互啄，但还是可喜可贺。 ...</blockquote>
+结合第十集就要爆杀vn，非常合理的曲线呢。
+
+今天晚上能看到粉毛捶地哭吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 5627#       发表于 2022-9-25 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么都这个时候了一期歌的碟还要预约啊，本子那边没有存货的吗？月初买碟提示是预约结果这都快一个月了都没动静
+
