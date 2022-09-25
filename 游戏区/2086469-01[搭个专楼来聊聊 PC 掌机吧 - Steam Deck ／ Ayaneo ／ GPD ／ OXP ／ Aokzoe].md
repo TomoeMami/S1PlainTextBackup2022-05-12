@@ -3342,3 +3342,21 @@ Slide 这个大饼还不知道什么时候能把小麦种出来…
 
 ayaneo2这个hd震动，配合声音控制震动。说不定还真挺适合玩复古游戏的，不过有这技术用在air上不是更符合定位吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Freesil  
+##### 270#       发表于 2022-9-25 17:07
+
+看了一下ayaneo2 顶配预订价差不多7800 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zdn  
+##### 271#       发表于 2022-9-25 17:09
+
+这个发货时间要笑死 还好下周steamdeck补款
+
