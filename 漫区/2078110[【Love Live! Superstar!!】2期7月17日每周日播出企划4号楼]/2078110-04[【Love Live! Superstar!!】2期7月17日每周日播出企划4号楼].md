@@ -13239,3 +13239,25 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 那确实，只能说是亲女儿待遇了。不说公平了，就说端水与平衡吧，哦，这个是星做的最差的东西了，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5751#       发表于 2022-9-25 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">きな粉那不能怪别人 可香都给她偷完了
+
+*****
+
+####  ads147147  
+##### 5752#       发表于 2022-9-25 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644230&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-25 19:15</a>
+那确实，只能说是亲女儿待遇了。不说公平了，就说端水与平衡吧，哦，这个是星做的最差的东西了，那没事了 ...</blockquote>
+突然想想，vn那么有个性的solo衣服，一入团，就会被团服同化掉，我还为vn不值呢（:-D。
+
+只能说草台运营是这样，你总是搞不清楚他们为什么会在大众预料之外的地方疯狂发力，还问粉丝为什么你们不接受我们的爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
