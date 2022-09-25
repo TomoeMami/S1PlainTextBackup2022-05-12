@@ -12942,3 +12942,98 @@ VN曲风适合少鸽，不过都是口水歌，都差不多
 
 下集VN连第二都没有，因为得罪了主办方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 5720#       发表于 2022-9-25 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57643843&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-9-25 18:28</a>
+
+都不咋地的歌，snp真惨啊，vn都2live了，她俩一个都没，企划不是人啊。
+
+----发送自 Xiaomi Redmi K20 Pro, ...</blockquote>
+简单说就是32PA就是用完就弃的女人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">VN估计要上山的
+
+*****
+
+####  cat1230  
+##### 5721#       发表于 2022-9-25 18:32
+
+对了，突然好奇这集nico评分会新低么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5722#       发表于 2022-9-25 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">3rd西武巨蛋有snp出场吗？我看vn是肯定有的
+
+*****
+
+####  player3960  
+##### 5723#       发表于 2022-9-25 18:36
+
+真是省啊，直接上2nd打歌服的没想到的，越来越觉得2nd是加塞了的live了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 5724#       发表于 2022-9-25 18:40
+
+千这部长屁用没有 居然还得靠我香哥哥眼疾手快一把抢过话筒开始输出 完事了为了安慰她还得说自己也紧张 什么叫成长啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 5725#       发表于 2022-9-25 18:42
+
+symphony给新人一起唱，这套衣服也要一起穿，<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5726#       发表于 2022-9-25 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57643928&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-25 18:40</a>
+
+千这部长屁用没有 居然还得靠我香哥哥眼疾手快一把抢过话筒开始输出 完事了为了安慰她还得说自己也紧张 什 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">香门：俺寻思你也妹在说话啊
+
+*****
+
+####  cxj649  
+##### 5727#       发表于 2022-9-25 18:47
+
+&amp;#x1F4AB;3rdライブ&amp;#x1F4AB;
+
+今冬開催「ラブライブ！スーパースター!! #Liella! 3rd LoveLive! Tour ～WE WILL!!～」全14公演に
+
+結那(ウィーン・マルガレーテ役)のゲスト出演が決定&amp;#x1F38A;
+
+宮城・愛知公演のチケット最速先行抽選申込を受付中&amp;#x1F4E2;
+
+更にグッズの第2回事前通販も✨
+
+#lovelive
+[https://twitter.com/LoveLive_staff/status/1573985478247780352](https://twitter.com/LoveLive_staff/status/1573985478247780352)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5728#       发表于 2022-9-25 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在就差官宣三期生这窗户纸没捅破了
+
+*****
+
+####  稀勢のささ  
+##### 5729#       发表于 2022-9-25 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全程参演 别说什么guest了吧
+
