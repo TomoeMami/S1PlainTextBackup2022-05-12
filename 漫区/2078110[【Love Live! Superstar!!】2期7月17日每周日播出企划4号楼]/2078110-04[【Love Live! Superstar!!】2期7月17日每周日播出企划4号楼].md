@@ -12386,3 +12386,12 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 5655#       发表于 2022-9-25 15:17
+
+没必要过度发散，真人live在MC时的站位还是五老星并排站中间，合鲤双N的互动就不会少。
+
