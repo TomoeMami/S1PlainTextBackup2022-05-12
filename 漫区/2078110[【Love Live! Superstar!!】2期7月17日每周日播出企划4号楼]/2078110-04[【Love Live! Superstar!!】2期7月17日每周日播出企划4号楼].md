@@ -13037,3 +13037,48 @@ symphony给新人一起唱，这套衣服也要一起穿，<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全程参演 别说什么guest了吧
 
+
+
+*****
+
+####  player3960  
+##### 5730#       发表于 2022-9-25 18:52
+
+装啥外宾啊，能不能赶紧官宣了算了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  ViyViy  
+##### 5731#       发表于 2022-9-25 18:53
+
+等14场最后一场宣布加入呗，真滴是脸都8要，第三季还要看几集拉人水集数。
+
+*****
+
+####  ads147147  
+##### 5732#       发表于 2022-9-25 18:55
+
+所以说是策划+5人，花田第一季五人都没写清楚，现在第二季写10人，是我我也要摆，写个j。
+
+vn的cd都可以单独发了，岚珠都没这待遇，r3之子恐怖如斯。刚好12星座还缺个魔蝎也可以塞给vn，之后香音教主怎么调教vn大家都可以自行想象了。
+
+这集的1+2的好评率我觉得应该不会太低，虽然我感觉乐子人多了，可能选2的人会更多点，1会少点，毕竟vn的solo确实可以，黑不得。我现在就是vn小姐的狗了（不是，vn小姐就是我的狗了。
+
+*****
+
+####  稀勢のささ  
+##### 5733#       发表于 2022-9-25 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可怜另外俩位
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5734#       发表于 2022-9-25 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上可堇/鲤pay厨对堇画衣服那一幕直呼磕到了，可问题是那衣服好像是香音/小百合的，太尴尬了
+
