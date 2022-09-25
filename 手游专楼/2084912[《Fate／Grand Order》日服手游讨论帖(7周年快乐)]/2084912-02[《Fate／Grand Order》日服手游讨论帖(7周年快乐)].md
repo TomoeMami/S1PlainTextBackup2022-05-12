@@ -14887,3 +14887,14 @@ bilibili.com/video/av558257404/
 
 千利休换人的话一宝都能稳定3t，概率2t
 
+
+
+*****
+
+####  wfantasia  
+##### 2833#       发表于 2022-9-25 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57632599&amp;ptid=2084912" target="_blank">龙星丸 发表于 2022-9-24 22:30</a>
+B服的提早问问，听说这次活动也是无限池？给的素材是什么啊？</blockquote>
+新材料就一个鬼炎鬼灯
+
