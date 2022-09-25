@@ -13714,3 +13714,13 @@ VN的新歌比3话那首好听很多，高贵的solo mv也好看
 
 snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起来就是后娘捡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 5802#       发表于 2022-9-25 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是大人们的博弈啦，不奇怪(
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正长得可以，三期进来凑个整数也挺好
+
