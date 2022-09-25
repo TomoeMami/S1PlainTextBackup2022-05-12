@@ -12395,3 +12395,25 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 
 没必要过度发散，真人live在MC时的站位还是五老星并排站中间，合鲤双N的互动就不会少。
 
+
+
+*****
+
+####  靡宜  
+##### 5656#       发表于 2022-9-25 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641547&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-25 14:53</a>
+
+但愿吧，如果只有一次，一个方面，倒是没什么好说的，如果出现好几次，倒是可以猜测是不是成为常用的固定 ...</blockquote>
+因为听部分人说，水就是按投票的来，当然不知道有没有黑幕
+
+*****
+
+####  靡宜  
+##### 5657#       发表于 2022-9-25 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641517&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-25 14:50</a>
+
+看来以后别说可香，合鲤都会越来越少害得被迫吃可堇…………</blockquote>
+如果真分组，可香肯定不可能一起的，就看其他怎么分了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
