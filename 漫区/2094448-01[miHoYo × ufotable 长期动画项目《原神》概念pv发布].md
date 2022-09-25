@@ -15103,3 +15103,22 @@ https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share
 
 另外剧情投票70%选游戏再现，30%选原创。
 
+
+
+*****
+
+####  污陨血红  
+##### 1491#       发表于 2022-9-25 23:38
+
+<img src="https://img.saraba1st.com/forum/202209/25/233546qeo48eahq78qabeq.jpg" referrerpolicy="no-referrer">
+
+<strong>bwQnb5k-jlx2K2eT1kShs-13i.jpg</strong> (88.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-25 23:35 上传
+
+这次音乐会好像有鹭巢诗郎
+
+不知道到时候动画会不会也让他搞
+

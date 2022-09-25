@@ -13766,3 +13766,29 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 毕竟可香完全出乎意料不可控，就是放到现在依然秒杀官推
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5808#       发表于 2022-9-25 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57648389&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-25 23:23</a>
+
+星是不是推的最猛也是绑得最死的一届了，完全不给其它机会，不知道3rd巡演问卷太君会不会把官方喷到 ...</blockquote>
+还是给了机会的，就可香来说，你看1st宫城day2不还特别再唱了小星星吗，这星二期动画里可可不是有贴香音的镜头吗，就是它这个诚意怎么样，吃相好不好看就是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5809#       发表于 2022-9-25 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但凡后面做的阳间点，至于大家到现在都还在磕可香吗
+
+*****
+
+####  甘蓝巧克力  
+##### 5810#       发表于 2022-9-25 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香目前也只是肉体上贴贴精神上陌路人，还是念着前三话吧
+
