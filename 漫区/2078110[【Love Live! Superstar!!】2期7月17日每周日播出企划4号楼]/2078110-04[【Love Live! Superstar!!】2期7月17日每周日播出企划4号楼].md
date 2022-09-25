@@ -12484,3 +12484,28 @@ sif2，哈哈哈
 
 —— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 5665#       发表于 2022-9-25 16:48
+
+这饼保底两年起吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kbtit  
+##### 5666#       发表于 2022-9-25 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才新建文件夹吗，那等到那时候黄花菜都凉了，还是这波是在大气层，等过个几年什么pjsk都死完来一款音游爆款
+
+*****
+
+####  优妮可  
+##### 5667#       发表于 2022-9-25 16:51
+
+新游戏新剧情能把动画的重置掉嘛
+
