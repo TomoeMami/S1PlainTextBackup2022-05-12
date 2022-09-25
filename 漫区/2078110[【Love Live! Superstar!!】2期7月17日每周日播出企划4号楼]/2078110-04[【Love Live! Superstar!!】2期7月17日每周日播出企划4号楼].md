@@ -12715,3 +12715,178 @@ VN拽什么拽 今年你就是亚军
 
 堇设计衣服啊
 
+
+
+*****
+
+####  JustW_3  
+##### 5691#       发表于 2022-9-25 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">vn的新歌艹
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5692#       发表于 2022-9-25 18:18
+
+vn才是亲女儿吧，snp要哭了
+
+*****
+
+####  仟音一心  
+##### 5693#       发表于 2022-9-25 18:18
+
+拍手歌的骑士打歌服
+
+*****
+
+####  ads147147  
+##### 5694#       发表于 2022-9-25 18:19
+
+vn这个完全是复刻缪和arise的对决啊，arise先上，然后缪上梦门。。
+
+好，粉毛怎么捶地哭呢
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 5695#       发表于 2022-9-25 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">草，呵
+
+*****
+
+####  JustW_3  
+##### 5696#       发表于 2022-9-25 18:19
+
+先vn后liella，稳了
+
+*****
+
+####  JustW_3  
+##### 5697#       发表于 2022-9-25 18:19
+
+先vn后liella，稳了
+
+*****
+
+####  仟音一心  
+##### 5698#       发表于 2022-9-25 18:20
+
+先亮血条必输，VN寄了。
+
+*****
+
+####  JustW_3  
+##### 5699#       发表于 2022-9-25 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两首歌接在一起，感觉肯定有人走错赛场了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5700#       发表于 2022-9-25 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两首都挺一般的
+
+
+
+*****
+
+####  tjshibc21  
+##### 5701#       发表于 2022-9-25 18:22
+
+rnm到底是谁第二
+
+*****
+
+####  cybernetics31  
+##### 5702#       发表于 2022-9-25 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5703#       发表于 2022-9-25 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得vn可以去少歌那边 虽然这首不太行
+
+*****
+
+####  仟音一心  
+##### 5704#       发表于 2022-9-25 18:24
+
+这关子有什么好卖到下一话的？<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_3  
+##### 5705#       发表于 2022-9-25 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有c part，下集预告小千拽vn
+
+*****
+
+####  阿姆罗二世  
+##### 5706#       发表于 2022-9-25 18:25
+
+VN曲风适合少鸽，不过都是口水歌，都差不多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 5707#       发表于 2022-9-25 18:25
+
+这看样子就是VN输了呗，这有啥好藏得，属实是前面一堆乱七八糟的烂活整的没时长了直接略过抱抱和感动
+
+*****
+
+####  优妮可  
+##### 5708#       发表于 2022-9-25 18:26
+
+卧槽，千牛逼啊，单擒薇恩是吧，不比隔壁那个cst厉害？
+
+*****
+
+####  ads147147  
+##### 5709#       发表于 2022-9-25 18:26
+
+别想了，梦门回肯定是赢了。下一集要赚vn上山的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5710#       发表于 2022-9-25 18:27
+
+别想了，梦门回肯定是赢了。下一集要赚vn上山的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5711#       发表于 2022-9-25 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我觉得还是前面的日常比获胜抱抱要好，这我完全看不出是怎么赢的，感动不起来啊
+
+*****
+
+####  优妮可  
+##### 5712#       发表于 2022-9-25 18:27
+
+卧槽，千牛逼啊，单擒薇恩是吧，不比隔壁那个cst厉害？
+
+*****
+
+####  凡人  
+##### 5713#       发表于 2022-9-25 18:27
+
+这集过于正常都有点不习惯了
+
