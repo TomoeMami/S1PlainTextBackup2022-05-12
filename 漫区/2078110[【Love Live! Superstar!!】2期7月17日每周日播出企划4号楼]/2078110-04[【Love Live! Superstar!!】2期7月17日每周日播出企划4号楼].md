@@ -13167,3 +13167,75 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 5743#       发表于 2022-9-25 19:12
+
+说起来，虽然很像，但是vn有两套演出服（虽然snp也画了第二套演出服，但是没输出就被干掉了）。
+
+第二套的破损裤袜，还有黑纱头巾真的很色，我宣布vn是我Liella第一推的角色了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5744#       发表于 2022-9-25 19:12
+
+说起来，虽然很像，但是vn有两套演出服（虽然snp也画了第二套演出服，但是没输出就被干掉了）。
+
+第二套的破损裤袜，还有黑纱头巾真的很色，我宣布vn是我Liella第一推的角色了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5745#       发表于 2022-9-25 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来如果三期vn入团了话，是不是又要有新的敌团出场了？感觉要和snp一样了（指0live待遇）
+
+*****
+
+####  稀勢のささ  
+##### 5746#       发表于 2022-9-25 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便那个投票活动目前可堇小赢60来个  赞倒是多很多
+
+*****
+
+####  starring  
+##### 5747#       发表于 2022-9-25 19:13
+
+14场演出全参加也好，r3之子的中之人是凤凰还是山鸡不用再猜测一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可怜的snp在动画被薄纱，中之人在live上也是更衣时间工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5748#       发表于 2022-9-25 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便那个投票活动目前可堇小赢60来个  赞倒是多很多
+
+*****
+
+####  凡人  
+##### 5749#       发表于 2022-9-25 19:14
+
+别说三期生，二期c和VN比起来也就占了出场时间更长的便宜，以为是香樱传，其实是香V传
+
+*****
+
+####  aoaoaodedede  
+##### 5750#       发表于 2022-9-25 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644183&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-25 19:10</a>
+
+偶像界什么时候有过公平
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+那确实，只能说是亲女儿待遇了。不说公平了，就说端水与平衡吧，哦，这个是星做的最差的东西了，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
