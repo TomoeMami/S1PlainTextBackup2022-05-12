@@ -3557,3 +3557,24 @@ s1又抽风了
 
 太难了
 
+
+
+*****
+
+####  rs5621  
+##### 1847#       发表于 2022-9-25 19:46
+
+ 本帖最后由 rs5621 于 2022-9-25 19:48 编辑 
+
+有在学英文啊,不错
+
+<img src="https://img.saraba1st.com/forum/202209/25/194714zq0jw23j20bj00w0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-25 19:47 上传
+
+乱涂乱画扣分!
+

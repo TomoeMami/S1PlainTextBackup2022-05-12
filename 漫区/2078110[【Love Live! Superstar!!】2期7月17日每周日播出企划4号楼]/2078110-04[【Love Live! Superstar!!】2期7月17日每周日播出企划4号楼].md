@@ -13261,3 +13261,58 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cxj649  
+##### 5753#       发表于 2022-9-25 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644210&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-25 19:13</a>
+
+顺便那个投票活动目前可堇小赢60来个  赞倒是多很多</blockquote>
+已经超80了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5754#       发表于 2022-9-25 19:43
+
+<blockquote>稀勢のささ 发表于 2022-9-25 19:21
+きな粉那不能怪别人 可香都给她偷完了</blockquote>
+这投票就是可堇推大战伊达大叔，其它粉可以忽略不计了
+
+*****
+
+####  kata魂  
+##### 5755#       发表于 2022-9-25 19:45
+
+合希最强，合希最强！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+三十年河东，三十年合希
+
+总之就是莫欺少年穷就对了
+
+*****
+
+####  沙茶酱  
+##### 5756#       发表于 2022-9-25 19:48
+
+如果VN入团的话，那么VN将会是待遇最好的成员，你其他成员有两个SOLO？哪怕是结丘及时雨、西部鸭卡农香公明哥哥，只不过有一段SOLO
+
+*****
+
+####  qty  
+##### 5757#       发表于 2022-9-25 19:48
+
+这VN待遇确实有点好，都让人怀疑是不是走后门进来的
+
+*****
+
+####  稀勢のささ  
+##### 5758#       发表于 2022-9-25 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644467&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-25 19:43</a>
+这投票就是可堇推大战伊达大叔，其它粉可以忽略不计了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是说角色待遇辣
+
