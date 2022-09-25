@@ -13824,3 +13824,21 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 看懂哥说的那个转推的玩意其他人的之后也会在推上放出来  意义不明的企划 人气调查？ ...</blockquote>
 这玩意是nhk那个节目整的东西，这也想的挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddy2811  
+##### 5814#       发表于 2022-9-26 00:14
+
+他们怀念的又何止是可香？那个时候是星团最光明的时代啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5815#       发表于 2022-9-26 00:16
+
+可香甚至是创新求变做的最好的时期了，现在我挺想说花田京极别再搞什么微创新了。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
