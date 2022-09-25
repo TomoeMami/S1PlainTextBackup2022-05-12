@@ -15042,3 +15042,15 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 
 刷了800w点的路过
 
+
+
+*****
+
+####  里村紅葉  
+##### 2847#       发表于 2022-9-25 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644362&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-9-25 19:33</a>
+
+别说商店了，连高难都还&amp;#x ...</blockquote>
+4年没打高难了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
