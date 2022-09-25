@@ -12279,3 +12279,37 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 5644#       发表于 2022-9-25 14:33
+
+这么说开始拆三次元了是吧？
+
+*****
+
+####  aoaoaodedede  
+##### 5645#       发表于 2022-9-25 14:36
+
+话说看生放送，不会以后分组就按立牌那个排吧……之前杂志营业的组合方式也挺相似的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 5646#       发表于 2022-9-25 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被迫rt了鲤P，但怎么看都是屈居第二的命
+
+打铁大叔粉多挺好理解的吧，对偶像来说唱歌是很重要的部分但远远不是全部，而且小百合当初的惊艳程度实在是太无敌了
+
+*****
+
+####  lj205  
+##### 5647#       发表于 2022-9-25 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641352&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-25 14:36</a>
+话说看生放送，不会以后分组就按立牌那个排吧……之前杂志营业的组合方式也挺相似的 ...</blockquote>
+立牌怎么排？
+
