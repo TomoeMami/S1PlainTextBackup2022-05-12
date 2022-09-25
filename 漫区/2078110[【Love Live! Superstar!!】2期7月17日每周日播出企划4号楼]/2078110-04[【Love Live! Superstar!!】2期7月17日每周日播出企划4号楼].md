@@ -13655,3 +13655,12 @@ payko，速哭，第九话她确实很中意。
 
 最终话当天生放，这是对自己没信心紧急出动声优盾是吧
 
+
+
+*****
+
+####  ViyViy  
+##### 5796#       发表于 2022-9-25 22:27
+
+这集的S!S!S!我喜欢可可一开始“假如 过去和未来”这段的运镜，从自己一个人到香音在身边，和歌词搭配还是有点感触的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
