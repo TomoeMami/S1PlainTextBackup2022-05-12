@@ -13792,3 +13792,15 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香目前也只是肉体上贴贴精神上陌路人，还是念着前三话吧
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5811#       发表于 2022-9-25 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57648370&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-25 23:22</a>
+
+因为啥打架，这次投票？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥原因 就是经典的可香可堇团 毕竟这动画现在这个B样
+
