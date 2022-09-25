@@ -13673,3 +13673,33 @@ payko，速哭，第九话她确实很中意。
 
 Kuma 拍照技术可以啊
 
+
+
+*****
+
+####  player3960  
+##### 5798#       发表于 2022-9-25 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57647681&amp;ptid=2078110" target="_blank">lj205 发表于 2022-09-25 22:39:59</a>
+Kuma 拍照技术可以啊
+
+打铁发推那张照片是不是故意的？还专门选了有鲤鱼的，然后还不模糊处理 ...</blockquote>都直接在推文里cue鲤鱼了，绝对故意的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5799#       发表于 2022-9-25 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这生放好无聊(
+
+*****
+
+####  长日留痕  
+##### 5800#       发表于 2022-9-25 22:51
+
+怀疑大熊没开推是在憋大活。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
