@@ -13733,3 +13733,36 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕的CP厨打架好有意思啊
 
+
+
+*****
+
+####  lj205  
+##### 5804#       发表于 2022-9-25 23:21
+
+目前领先200票，还是很胶着啊
+
+*****
+
+####  kata魂  
+##### 5805#       发表于 2022-9-25 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57648181&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-25 23:11</a>
+
+5厕的CP厨打架好有意思啊</blockquote>
+因为啥打架，这次投票？
+
+*****
+
+####  ViyViy  
+##### 5806#       发表于 2022-9-25 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星是不是推的最猛也是绑得最死的一届了，完全不给其它机会，不知道3rd巡演问卷太君会不会把官方喷到拆掉
+
+*****
+
+####  lj205  
+##### 5807#       发表于 2022-9-25 23:25
+
+毕竟可香完全出乎意料不可控，就是放到现在依然秒杀官推
+
