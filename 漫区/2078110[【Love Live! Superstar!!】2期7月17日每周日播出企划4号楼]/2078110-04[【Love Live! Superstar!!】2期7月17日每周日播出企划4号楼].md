@@ -13316,3 +13316,51 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 这投票就是可堇推大战伊达大叔，其它粉可以忽略不计了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是说角色待遇辣
 
+
+
+*****
+
+####  ViyViy  
+##### 5759#       发表于 2022-9-25 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644543&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-25 19:50</a>
+
+我是说角色待遇辣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我还在想企划是不是有所准备呢，先上个投票让你可堇爽几天，后面香千回2.0直接薄纱告诉你系列的真谛，但看样子好像还是没我想的那么阴角
+
+*****
+
+####  奥柏伦亲王  
+##### 5760#       发表于 2022-9-25 19:55
+
+ 本帖最后由 奥柏伦亲王 于 2022-9-25 19:56 编辑 
+
+还是那句话咯，最起码从外形上结那更接近一期生水平，剩下的就看live了，真再来个才色双绝大家发癫都来不及
+
+
+
+*****
+
+####  stygian  
+##### 5761#       发表于 2022-9-25 19:55
+
+进团不过也就是复制下藤本美贵旧事罢了
+
+况且我倒是越来越觉得不会进了，下集看和ありあ会不会有交集
+
+*****
+
+####  稀勢のささ  
+##### 5762#       发表于 2022-9-25 19:58
+
+ 本帖最后由 稀勢のささ 于 2022-9-25 20:01 编辑 
+
+怎么抽风到发不了图了都<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5763#       发表于 2022-9-25 20:00
+
+确实，我也觉得可能就当一辈子劲敌了，下集还是不太理解遂离开日本继续深造，然后三期回归继续切磋，最后还是败给liella，但是在过程中逐渐理解了什么是真のidol<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
