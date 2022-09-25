@@ -12245,3 +12245,37 @@ xjb奶不犯法 反正我不玩<img src="https://static.saraba1st.com/image/smil
 
 thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 5640#       发表于 2022-9-25 14:12
+
+其实有点不理解为啥小百合粉忠诚度这么高的，尤其是现在声音水平不尽人意的时候。
+
+
+
+*****
+
+####  lj205  
+##### 5641#       发表于 2022-9-25 14:16
+
+鲤鱼没宣传我就不转了
+
+*****
+
+####  lj205  
+##### 5642#       发表于 2022-9-25 14:19
+
+现在也没中华炮优势，打铁大叔粉太恐怖
+
+*****
+
+####  player3960  
+##### 5643#       发表于 2022-9-25 14:21
+
+热门的合鲤，双n，打铁一个人还占俩选项，不如直接给了算了，不过为了鲤鱼，还是转了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
