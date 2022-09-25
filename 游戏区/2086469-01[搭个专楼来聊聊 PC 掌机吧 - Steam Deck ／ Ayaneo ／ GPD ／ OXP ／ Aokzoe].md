@@ -3360,3 +3360,16 @@ ayaneo2这个hd震动，配合声音控制震动。说不定还真挺适合玩�
 
 这个发货时间要笑死 还好下周steamdeck补款
 
+
+
+*****
+
+####  nilren  
+##### 272#       发表于 2022-9-25 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57580599&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2022-9-21 14:49</a>
+GPD这营销真的是，几个员工装路人发几个所谓“泄漏”视频，群里也一堆装路人的水军，几张lowb宣传图还说是 ...</blockquote>
+习惯就好，他家东西和售后是真不错。之前的宣传更加low穿地心&amp;道德败坏的，最近都算是凑合能看了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
