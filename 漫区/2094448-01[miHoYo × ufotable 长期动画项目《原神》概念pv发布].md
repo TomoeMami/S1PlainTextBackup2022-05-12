@@ -15133,3 +15133,17 @@ https://www.bilibili.com/video/BV1eV4y1K7c7/?is_story_h5=false&amp;p=1&amp;share
 
 能用2DLIVE做出来的东西确实很精致  但是一旦回到要【动】起来的话画面  就全崩了  没有一点和精致沾边的东西  
 
+
+
+*****
+
+####  天堂懵懂人  
+##### 1493#       发表于 2022-9-26 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57593026&amp;ptid=2094448" target="_blank">长谷川红叶 发表于 2022-9-22 10:52</a>
+
+不如说这才是正常的现象吧。是什么改变了你，好莱坞预告片吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">然后就断档了十几集，基本都是前两集的“兼用卡” 到18集左右才算是有让人耳目一新的画面  
+
+看样子估计还是要去看剧场版才行
+
