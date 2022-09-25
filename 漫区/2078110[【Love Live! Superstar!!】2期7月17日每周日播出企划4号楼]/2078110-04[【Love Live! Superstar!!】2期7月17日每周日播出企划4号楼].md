@@ -13364,3 +13364,77 @@ vn这待遇，要是进Liella!了，无论对老人还是存不存在的三期�
 
 确实，我也觉得可能就当一辈子劲敌了，下集还是不太理解遂离开日本继续深造，然后三期回归继续切磋，最后还是败给liella，但是在过程中逐渐理解了什么是真のidol<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 5764#       发表于 2022-9-25 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644590&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-25 19:55</a>
+还是那句话咯，最起码从外形上结那更接近一期生水平，剩下的就看live了，真再来个才色双绝大家发癫都来不及 ...</blockquote>
+看资料结那小学四年级就开始演艺活动，高中玩乐队担任主唱和吉他手，做过歌曲mv的主要，还在木村昴所在的天才戏团参演了两部舞台剧，演艺经历比其她人要丰富<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 5765#       发表于 2022-9-25 20:03
+
+ 本帖最后由 iuhehc 于 2022-9-25 20:08 编辑 
+
+这生放座位排的什么东西？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">真想吐运营一脸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 5766#       发表于 2022-9-25 20:05
+
+这座位，真会排
+
+*****
+
+####  奥柏伦亲王  
+##### 5767#       发表于 2022-9-25 20:06
+
+这生放送的座位布置实在是神秘……
+
+*****
+
+####  aoaoaodedede  
+##### 5768#       发表于 2022-9-25 20:07
+
+随机一点也挺好，至少少了定式，也能少一些猜想
+
+*****
+
+####  lj205  
+##### 5769#       发表于 2022-9-25 20:08
+
+如果是这个分组我赞成
+
+*****
+
+####  稀勢のささ  
+##### 5770#       发表于 2022-9-25 20:09
+
+ 本帖最后由 稀勢のささ 于 2022-9-25 20:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上来就是重量级 
+切割 画面要切割 剧情也要切割
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5771#       发表于 2022-9-25 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">换这么大个场不是让你们继续读信的啊
+
+*****
+
+####  aoaoaodedede  
+##### 5772#       发表于 2022-9-25 20:10
+
+啥开会一样的生放送啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
