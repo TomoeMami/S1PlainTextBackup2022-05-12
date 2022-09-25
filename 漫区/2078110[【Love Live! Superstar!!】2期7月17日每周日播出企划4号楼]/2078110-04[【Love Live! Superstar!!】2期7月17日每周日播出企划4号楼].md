@@ -13882,3 +13882,21 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 5819#       发表于 2022-9-26 00:55
+
+《论大香老师为什么是神》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 5820#       发表于 2022-9-26 00:58
+
+就现在这一路来写的剧情，其实Liella!赢也好，输也罢，我觉得都就那样了。输了也挺好，先让做动画的把这个团的团队感表达好再说吧…至于赢了，我也很难有多少感动之类的感觉，输赢只在他们做动画的一念之间，就很没意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
