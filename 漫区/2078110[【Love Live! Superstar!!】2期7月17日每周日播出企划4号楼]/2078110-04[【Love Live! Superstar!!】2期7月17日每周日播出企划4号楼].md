@@ -13804,3 +13804,12 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 因为啥打架，这次投票？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥原因 就是经典的可香可堇团 毕竟这动画现在这个B样
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5812#       发表于 2022-9-25 23:52
+
+看懂哥说的那个转推的玩意其他人的之后也会在推上放出来  意义不明的企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 人气调查？
+
