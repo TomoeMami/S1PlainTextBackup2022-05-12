@@ -14941,3 +14941,12 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 开始换鬼灯
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2837#       发表于 2022-9-25 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这破活动什么时候完啊 几天前就开始干刷 池子也只剩千利休了 
+

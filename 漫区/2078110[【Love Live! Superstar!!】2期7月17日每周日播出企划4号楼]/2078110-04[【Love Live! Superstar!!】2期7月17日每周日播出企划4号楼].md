@@ -12525,3 +12525,15 @@ sif2，哈哈哈
 
 草，那个转发……鲤鱼没转经纪人转了…………那只能转了……
 
+
+
+*****
+
+####  player3960  
+##### 5670#       发表于 2022-9-25 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57642908&amp;ptid=2078110" target="_blank">lj205 发表于 2022-09-25 16:59:54</a>
+草，那个转发……鲤鱼没转经纪人转了…………那只能转了……</blockquote>鲤鱼点了喜欢，快去转吧，就当看鱼了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
