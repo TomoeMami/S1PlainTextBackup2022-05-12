@@ -13813,3 +13813,14 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 看懂哥说的那个转推的玩意其他人的之后也会在推上放出来  意义不明的企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 人气调查？
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5813#       发表于 2022-9-26 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57648760&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-25 23:52</a>
+看懂哥说的那个转推的玩意其他人的之后也会在推上放出来  意义不明的企划 人气调查？ ...</blockquote>
+这玩意是nhk那个节目整的东西，这也想的挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
