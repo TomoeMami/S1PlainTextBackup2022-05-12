@@ -13520,3 +13520,32 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 
 那也不能开骂咋，听听就行了
 
+
+
+*****
+
+####  ads147147  
+##### 5781#       发表于 2022-9-25 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644915&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-25 20:13</a>
+单看个人条件，这未免太强了吧，有才有貌有资历</blockquote>
+没点资本凭什么有两个solo。而且vn应该是输在主题风格上，曲子本身问题不大。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5782#       发表于 2022-9-25 20:23
+
+payko，速哭，第九话她确实很中意。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 5783#       发表于 2022-9-25 20:31
+
+纯情jk
+
