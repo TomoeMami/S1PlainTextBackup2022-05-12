@@ -12442,3 +12442,45 @@ sif2，哈哈哈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制 作 决 定 
 
+
+
+*****
+
+####  kata魂  
+##### 5661#       发表于 2022-9-25 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57642467&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-25 16:26</a>
+
+以往组小组有多少是官推+灯泡的组合的？</blockquote>
+缪的果鸟+花阳，妮姬+绘里
+
+水的千曜+露比，夜梨+鞠莉
+
+当然了，不能说官推和电灯泡，只能说确实有大热cp在里面
+
+*****
+
+####  kata魂  
+##### 5662#       发表于 2022-9-25 16:34
+
+哇 新游戏 好开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5663#       发表于 2022-9-25 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yicihanshu  
+##### 5664#       发表于 2022-9-25 16:42
+
+就说了有新游戏，那不出新游戏怎么捞钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虹有as，星单纯往sif里塞不可能是长久之计。
+
+星短期进不了as大概受到as扭曲的平行宇宙时间线影响，毕竟人家仨团都是一年的故事，到as里甚至神奇的三团同年。星三年的故事，不到第三年大概as时间线也解释不出来。
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

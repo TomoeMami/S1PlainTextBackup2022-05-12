@@ -3333,3 +3333,12 @@ Slide 这个大饼还不知道什么时候能把小麦种出来…
 
 可算拿到了5560的AYANEO Air Pro，整体的工业数据的确是甩其他几家很长距离，就是模具水准有点感人，后盖4个角不能形成一个平面，放在桌面上居然会晃。
 
+
+
+*****
+
+####  Mzi  
+##### 269#       发表于 2022-9-25 16:33
+
+ayaneo2这个hd震动，配合声音控制震动。说不定还真挺适合玩复古游戏的，不过有这技术用在air上不是更符合定位吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
