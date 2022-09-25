@@ -12417,3 +12417,28 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 看来以后别说可香，合鲤都会越来越少害得被迫吃可堇…………</blockquote>
 如果真分组，可香肯定不可能一起的，就看其他怎么分了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 5658#       发表于 2022-9-25 16:26
+
+以往组小组有多少是官推+灯泡的组合的？
+
+*****
+
+####  cat1230  
+##### 5659#       发表于 2022-9-25 16:29
+
+sif2，哈哈哈
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  稀勢のささ  
+##### 5660#       发表于 2022-9-25 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制 作 决 定 
+
