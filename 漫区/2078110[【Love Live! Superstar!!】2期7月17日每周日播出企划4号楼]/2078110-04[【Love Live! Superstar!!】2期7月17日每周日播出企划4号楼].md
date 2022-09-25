@@ -12373,3 +12373,16 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那种事情不要啊
 
+
+
+*****
+
+####  愛さ実  
+##### 5654#       发表于 2022-9-25 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641482&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-9-25 14:47</a>
+红蓝恋，香千路，氪金鬼。跟软糖一致。不过倒是没有必要发散</blockquote>
+氪金鬼哈哈哈哈哈哈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
