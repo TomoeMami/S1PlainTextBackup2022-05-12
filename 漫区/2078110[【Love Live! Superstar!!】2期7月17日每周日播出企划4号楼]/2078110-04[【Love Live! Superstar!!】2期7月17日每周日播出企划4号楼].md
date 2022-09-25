@@ -12313,3 +12313,44 @@ thanksmessage企划 鬼知道是个啥 重点在斗虫<img src="https://static.s
 话说看生放送，不会以后分组就按立牌那个排吧……之前杂志营业的组合方式也挺相似的 ...</blockquote>
 立牌怎么排？
 
+
+
+*****
+
+####  靡宜  
+##### 5648#       发表于 2022-9-25 14:46
+
+<blockquote>qty 发表于 2022-9-25 14:12
+其实有点不理解为啥小百合粉忠诚度这么高的，尤其是现在声音水平不尽人意的时候。 ...</blockquote>
+毕竟爱豆厨，唱不是绝对的
+
+*****
+
+####  靡宜  
+##### 5649#       发表于 2022-9-25 14:47
+
+<blockquote>lj205 发表于 2022-9-25 14:42
+立牌怎么排？</blockquote>
+红蓝恋，香千路，氪金鬼。跟软糖一致。不过倒是没有必要发散
+
+*****
+
+####  aoaoaodedede  
+##### 5650#       发表于 2022-9-25 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57641414&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-25 14:42</a>
+
+立牌怎么排？</blockquote>
+恋，四季，芽衣
+
+千，希奈子，香
+
+可，堇，夏美
+
+*****
+
+####  lj205  
+##### 5651#       发表于 2022-9-25 14:50
+
+看来以后别说可香，合鲤都会越来越少<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">害得被迫吃可堇…………
+
