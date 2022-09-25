@@ -10376,3 +10376,15 @@ SpecialThanks:织田信姫 白雪みしろ 爱宫みるく 姫咲ゆずる 熊�
 【#まれれ1stバンドライブ】はじめてのまちあわせ ～Happy Birthday ララ!!～【まって！レイニーレタス / シアーミュージックV】
 [https://www.youtube.com/watch?v=J2SuVzjeiFg](https://www.youtube.com/watch?v=J2SuVzjeiFg)
 
+
+
+*****
+
+####  NBXX  
+##### 17459#       发表于 2022-9-25 11:58
+
+以下内容需要积分高于 0923 才可浏览
+
+[20220923] HACHI 2nd ONE-MAN LIVE 「Midnight blue」
+[https://40.gigafile.nu/0102-pdfc83fd4471f68bea792b6ee5024cf07](https://40.gigafile.nu/0102-pdfc83fd4471f68bea792b6ee5024cf07)
+
