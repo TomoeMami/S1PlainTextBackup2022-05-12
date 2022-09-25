@@ -13646,3 +13646,12 @@ payko，速哭，第九话她确实很中意。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像在看线上庭审
 
+
+
+*****
+
+####  lj205  
+##### 5795#       发表于 2022-9-25 21:52
+
+最终话当天生放，这是对自己没信心紧急出动声优盾是吧
+
