@@ -13965,3 +13965,15 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
 有没有可能声优们私底下也在一起骂领导<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddy2811  
+##### 5827#       发表于 2022-9-26 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57651874&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-9-26 09:36</a>
+
+感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
+也许这就是虹团那么有团队感的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

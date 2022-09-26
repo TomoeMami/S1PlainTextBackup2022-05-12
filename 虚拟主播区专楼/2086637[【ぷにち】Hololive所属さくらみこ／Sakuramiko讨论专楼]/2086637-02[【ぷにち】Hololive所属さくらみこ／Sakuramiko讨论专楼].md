@@ -3834,3 +3834,15 @@ miko好像真的在认真看
 
 明天晚上参加koyo的rust企划，这次企划升级了有3队看上去全都是菜逼，不知道怎么搞
 
+
+
+*****
+
+####  rs5621  
+##### 1876#       发表于 2022-9-26 10:05
+
+给35p抓到这人大半夜不睡觉，在那刷物资。
+这分组，koyo还是懂miko的，jp的金发都塞给她
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
