@@ -14069,3 +14069,26 @@ akb？
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 5835#       发表于 2022-9-26 12:12
+
+AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，算上打酱油的富田美忧就有10个<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钞君  
+##### 5836#       发表于 2022-9-26 12:12
+
+娘哦怎么胖了那么多
+
+*****
+
+####  cybernetics31  
+##### 5837#       发表于 2022-9-26 12:17
+
+这个明显实验性质吧………………官网位置还放在下面呢
+

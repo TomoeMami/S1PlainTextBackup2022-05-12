@@ -15054,3 +15054,21 @@ B服的提早问问，听说这次活动也是无限池？给的素材是什么�
 别说商店了，连高难都还&amp;#x ...</blockquote>
 4年没打高难了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2848#       发表于 2022-9-26 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57626567&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-9-24 16:43</a>
+
+新年理查应该稳了吧，一年外星人一年剑明年正好轮到剑，感觉会有一个全卡变红的技能 ...</blockquote>
+最近三年新年卡除了涉及hack测试服的内容，只有暗狐有人猜到的
+
+FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
+
+至今为止出的新年角全是东方人，而且全和日本有关
+
+当然也有真是理查的可能性，只是别把话说的太满了，另外最好回忆一下2016年上半年有个什么传言
+
