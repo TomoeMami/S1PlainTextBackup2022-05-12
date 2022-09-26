@@ -14261,3 +14261,12 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕可推最近大概是在指望剧场版
 
+
+
+*****
+
+####  we89623  
+##### 5851#       发表于 2022-9-26 20:19
+
+什么，上海那个福利蛋立像终于能在拉拉动画里出场了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
