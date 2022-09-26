@@ -3484,3 +3484,14 @@ ayaneo air似乎是把掌机上的按键映射成一个xbox手柄，接扩展坞
 拿到steamdeck了 比我想象中的大好多..肯定不是那种能塞裤兜拿出去的机器…</blockquote>
 对，到手第一感觉是，这个盒子好长……
 
+
+
+*****
+
+####  luffyzhou  
+##### 284#       发表于 2022-9-26 23:15
+
+我的5560u黑色air pro终于到了，做工没问题，尺寸、重量和手感相比之前的2021好太多了，要是个6600u多好
+
+—— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
