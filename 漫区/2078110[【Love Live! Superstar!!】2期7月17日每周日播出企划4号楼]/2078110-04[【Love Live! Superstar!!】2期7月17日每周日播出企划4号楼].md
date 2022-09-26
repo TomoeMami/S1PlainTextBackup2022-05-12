@@ -14497,3 +14497,15 @@ FdlhPL_UoAA_A22.jpg
 
 <img src="https://p.sda1.dev/7/a9e33e3694298e6ef653203fe7301759/841176758.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 5873#       发表于 2022-9-27 00:53
+
+个人回都过了第二季都准备结束了还能体现啥独特性<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+不过说きな子是二期的c，戏里戏外我都没感受到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，除了位置确实是在center没错。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
