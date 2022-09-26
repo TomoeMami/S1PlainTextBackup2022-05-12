@@ -3846,3 +3846,12 @@ miko好像真的在认真看
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1877#         楼主| 发表于 2022-9-26 10:30
+
+反正哪队都是不会玩的新手，今天全看miko演技
+
