@@ -13900,3 +13900,12 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 就现在这一路来写的剧情，其实Liella!赢也好，输也罢，我觉得都就那样了。输了也挺好，先让做动画的把这个团的团队感表达好再说吧…至于赢了，我也很难有多少感动之类的感觉，输赢只在他们做动画的一念之间，就很没意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5821#       发表于 2022-9-26 08:11
+
+10话又更加正常了一些，live也用心做了，以LL系列动画受众的平均要求来衡量，二期能把所有live回都做到这个水平的话口碑一定会很好，可惜制作方不这么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
