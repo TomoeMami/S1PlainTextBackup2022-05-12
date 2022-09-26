@@ -14509,3 +14509,16 @@ FdlhPL_UoAA_A22.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ruffian  
+##### 5874#       发表于 2022-9-27 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664305&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-09-27 00:22:41</a>
+可可是不是该再获得些新的“独特性”呢？</blockquote>硬要说独特性，团内所有分工都是安排给复数人的，其实也没有谁的工作是完全不可替代的吧(可能千妈的编舞其他人暂时还接不了班？)
+感觉动画比起抹消了唐可可的“独特性”，更大的问题在于无意或有意地掩盖了她的“重要性”
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
