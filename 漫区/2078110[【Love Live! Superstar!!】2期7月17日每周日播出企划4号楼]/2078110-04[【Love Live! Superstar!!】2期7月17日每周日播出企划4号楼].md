@@ -14207,3 +14207,17 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 5846#       发表于 2022-9-26 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57657071&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-26 15:09</a>
+
+我有一个不确定的想法，当然也不是帮京极花田洗白，但是我觉得星最大的问题会不会是上面的大人一方面想揠苗 ...</blockquote>
+万代和日升的老传统了，老光头的V因为三癞子卖给万代上面的大人物插手导致前期播放一片混乱，旧高父的种命除了自己和他老婆的问题，同样有大人物插手的因素，前段时间旧高父发推就说过二十多个无关人士开会什么结果都没有。
+
+星团的发展没有上面大人物干涉是不可能，只是有人选择摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
