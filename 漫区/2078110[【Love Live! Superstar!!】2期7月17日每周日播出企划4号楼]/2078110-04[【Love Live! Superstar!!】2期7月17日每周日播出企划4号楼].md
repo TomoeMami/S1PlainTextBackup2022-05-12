@@ -14533,3 +14533,12 @@ FdlhPL_UoAA_A22.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 5876#       发表于 2022-9-27 03:32
+
+自残企划这么疯狂自残都要打压可可捧土妹还是没效果，他们可不恨死可可，现在说不定都在考虑什么套路让可可历史性退团呢，这动画趋势都给人一种这破团没有可可没区别的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

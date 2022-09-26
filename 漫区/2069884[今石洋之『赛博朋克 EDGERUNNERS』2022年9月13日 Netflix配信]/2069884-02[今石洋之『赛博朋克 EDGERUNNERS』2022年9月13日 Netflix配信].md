@@ -16851,3 +16851,189 @@ gm也没用，影响不到大公司；
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  拎壶冲_  
+##### 2918#       发表于 2022-9-27 02:30
+
+提一个问题，第八集大卫向露西提出分手的原因是什么? 我的第一观感居然是大卫嫌露西不干活，想不通了…
+
+*****
+
+####  sunbeach  
+##### 2919#       发表于 2022-9-27 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665145&amp;ptid=2069884" target="_blank">拎壶冲_ 发表于 2022-9-27 02:30</a>
+提一个问题，第八集大卫向露西提出分手的原因是什么? 我的第一观感居然是大卫嫌露西不干活，想不通了… ...</blockquote>
+他知道自己已经要疯了，不想连累她
+
+*****
+
+####  三千珈蓝  
+##### 2920#       发表于 2022-9-27 03:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665145&amp;ptid=2069884" target="_blank">拎壶冲_ 发表于 2022-9-27 02:30</a>
+
+提一个问题，第八集大卫向露西提出分手的原因是什么? 我的第一观感居然是大卫嫌露西不干活，想不通了… ...</blockquote>
+那是和义体大夫拿了那九管猛药之后，大夫说了药用完了你也就彻底疯特了，他在现场见过大哥大嫂的下场，不想连累lucy所以提分手
+
+*****
+
+####  stannislas  
+##### 2921#       发表于 2022-9-27 03:54
+
+<blockquote>@lias 发表于 2022-9-26 23:31
+银手炸塔是2023年啊
+
+夜之城在2030年代大概有个十年左右的重建期</blockquote>
+动画有说发生在哪一年吗？
+
+*****
+
+####  欧米娜  
+##### 2922#       发表于 2022-9-27 03:56
+
+ 本帖最后由 欧米娜 于 2022-9-27 03:59 编辑 
+
+提分手确实是有点生气了
+
+David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，在夜之城混黑道只能依靠力量
+
+在他看来Lucy什么都不懂，还让他放弃义体放弃力量
+
+提出让Lucy回归，而Lucy拒绝还不说理由，更是印证了”你不理解我，也不想理解我“
+
+所以David才会强调”我们不一样了“，Lucy你根本不懂我现在做的事情
+
+后面分道扬镳就是顺嘴说的气话了，第二天不还是电话打爆
+
+另外拿特效药应该不是说马上就要疯
+
+当时david和lucy的情绪根本不像被下了死亡通知一样
+
+九瓶药并不是定时注射，如果没有高强度使用义体完全可以不注射
+
+最后一单要是平平淡淡做完，钱到手跑路，把义体拆一些就行了
+
+*****
+
+####  stannislas  
+##### 2923#       发表于 2022-9-27 03:58
+
+<blockquote>lucky95 发表于 2022-9-27 01:42
+强烈建议开二周体验斯安+武士刀切菜流
+
+— from Google Pixel 6, Android 13 of S1 Next Goose v2 ...</blockquote>
+太久没玩了，请问现在什么流派强一点啊？一周目是黑客流，貌似当时有个什么穿透手枪还是什么爆头流伤害巨高也不知道现在还有没？
+
+另外这个游戏支持多周目了吗？能继承什么吗？还是就跟巫师3那个样？
+
+*****
+
+####  stannislas  
+##### 2924#       发表于 2022-9-27 04:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665308&amp;ptid=2069884" target="_blank">欧米娜 发表于 2022-9-27 03:56</a>
+
+提分手确实是有点生气了
+
+David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，在夜之城混黑道只能依 ...</blockquote>
+当时他们还都17岁的感觉，话说lucy有说多大吗？
+
+*****
+
+####  stannislas  
+##### 2925#       发表于 2022-9-27 04:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57536755&amp;ptid=2069884" target="_blank">rainknine 发表于 2022-9-18 12:25</a>
+
+虽然我原本想说夜之城这种狗屁地方，多苟几年真的没意义，多出来的时间在故事里也只会成为第六集到第七集之 ...</blockquote>
+这个离2077才一年！擦，可以考虑出个dlc叫v接盘lucy啊，看人设比judy和帕南香多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琦玉  
+##### 2926#       发表于 2022-9-27 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665312&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 03:58</a>
+
+太久没玩了，请问现在什么流派强一点啊？一周目是黑客流，貌似当时有个什么穿透手枪还是什么爆头流伤害巨 ...</blockquote>
+1.6感觉好多枪的穿透都被削废了，多周末还是没有，打完结局依旧是跳回余烬门口问你是不是要再干一票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琦玉  
+##### 2927#       发表于 2022-9-27 04:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665315&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 04:00</a>
+
+当时他们还都17岁的感觉，话说lucy有说多大吗？</blockquote>
+cdpr那边的制片人在红迪上说1-6集大卫是17，变大只佬后是18，露西和瑞贝卡都是20左右，队里其他人都是30代后半
+
+*****
+
+####  stannislas  
+##### 2928#       发表于 2022-9-27 04:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665342&amp;ptid=2069884" target="_blank">琦玉 发表于 2022-9-27 04:24</a>
+
+1.6感觉好多枪的穿透都被削废了，多周末还是没有，打完结局依旧是跳回余烬门口问你是不是要再干一票[f:06 ...</blockquote>
+擦 这么一说 又没啥回去的动力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+之前有个档地图上感叹号都清光了，这两天开开一看，技能全洗了，都不知道怎么点了，就貌似多出来一个两个任务吧，不知道是不是这次联动的
+
+*****
+
+####  琦玉  
+##### 2929#       发表于 2022-9-27 04:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664459&amp;ptid=2069884" target="_blank">未向heart 发表于 2022-9-27 00:39</a>
+
+重锤和美智子约过会呢，人家重锤可不是一般人，差点当了荒坂三郎的孙女婿 ...</blockquote>
+好像不是约会吧，那时是美智子刚毕业然后在酒吧庆祝的时候跟重锤搞上了，大概就是ons而已，不得不说她口味挺独特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heresiarch  
+##### 2930#       发表于 2022-9-27 04:56
+
+因为听说这动画很好，于是把2年前就买了但一点都没玩的2077拿出来玩，发现的确没有想象中糟糕；第一章还未玩完，就立刻去看动画，一晚上全看了。
+
+一方面真的是太难受了，看铺垫就知道主角团后面的发展，也只能眼睁睁看着疯的疯死的死；但另一方面主角团大部分人的下场还真都是自讨的，最后活下来的人都是因为比较理性和没有做出作死的事。
+
+这作现在给我玩2077游戏最大的启示是，同样是CYBERPUNK类游戏，我把2077当作DEUS EX那样尽量不杀人的玩法是毫无必要的，夜城的人命太不值钱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外就是，2077的技术流和造枪好不好玩啊，据说2077造枪好花时间和钱，但带来的提升也一般般，不如黑客流当个法师好玩，我想重开了
+
+*****
+
+####  mimighost  
+##### 2931#       发表于 2022-9-27 05:16
+
+ 本帖最后由 mimighost 于 2022-9-27 05:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57661475&amp;ptid=2069884" target="_blank">意大利面 发表于 2022-9-26 20:31</a>
+
+说偶像剧过分了点，谁家偶像剧伙伴几乎全灭的，韩剧么？</blockquote>
+早期的韩剧的确是有全灭的
+
+日本的偶像剧全灭的也不少
+
+但是这个不是决定这个偶像剧的feel的主要原因。这个故事本身还是太日式校园了，成为最强+神秘美少女确定关系作为最后的奖赏这一套日本人都快玩儿了40多年了。你把大卫换成某个最近丧母的高中生，加入学校某个underdog的不良社团的也完全不违和。所以感觉既赛朋，又没那么赛朋，毕竟gibson那一套的赛朋是从硬汉侦探小说拐过来的。
+
+看完全片的人不应该有疑问，这个剧本的主导权在谁手里，这种剧本只有可能日本人自己来操作才会有这个风味儿，波兰人估计主要是定了一些事件的情节点和world building的部分。
+
+*****
+
+####  肉搏光头  
+##### 2932#       发表于 2022-9-27 05:30
+
+ 本帖最后由 肉搏光头 于 2022-9-27 05:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665386&amp;ptid=2069884" target="_blank">mimighost 发表于 2022-9-27 05:16</a>
+
+早期的韩剧的确是有全灭的
+
+日本的偶像剧全灭的也不少</blockquote>
+把神秘美少女换成病弱少女/好兄弟就是过去的港片，说白了这是个经典地不能再经典的自我牺牲悲剧故事，新瓶装旧酒，观众就是喜欢这种故事。
+
