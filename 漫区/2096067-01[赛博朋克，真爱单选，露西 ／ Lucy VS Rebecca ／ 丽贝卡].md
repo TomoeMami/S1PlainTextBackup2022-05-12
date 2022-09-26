@@ -865,3 +865,14 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 lucy跟Rebecca双方人设互换我觉得也是lucy赢
 
+
+
+*****
+
+####  otakun  
+##### 93#       发表于 2022-9-26 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57652043&amp;ptid=2096067" target="_blank">少年游不游 发表于 2022-9-26 09:48</a>
+lucy跟Rebecca双方人设互换我觉得也是lucy赢</blockquote>
+互换人设就没这片了
+
