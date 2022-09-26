@@ -13977,3 +13977,22 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
 也许这就是虹团那么有团队感的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 5828#       发表于 2022-9-26 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞台少女，两个akb 还行
+
+*****
+
+####  aoaoaodedede  
+##### 5829#       发表于 2022-9-26 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57654033&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-26 11:35</a>
+
+舞台少女，两个akb 还行</blockquote>
+另外，真不愧是Apollo Bay，它家的艺人又在[caststaff](https://www.lovelive-anime.jp/special/musical/caststaff.php)的最上面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
