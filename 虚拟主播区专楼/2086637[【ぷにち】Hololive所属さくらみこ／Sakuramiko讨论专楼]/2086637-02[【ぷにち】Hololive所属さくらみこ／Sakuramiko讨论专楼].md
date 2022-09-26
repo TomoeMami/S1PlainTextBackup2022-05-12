@@ -3945,3 +3945,20 @@ miko连续两次企划都是全程带新人，自己的能力完全发挥不出�
 还是昨晚深夜和2金发互动有意思
 [https://youtu.be/P2Ko3k8sAeA?t=18265](https://youtu.be/P2Ko3k8sAeA?t=18265)
 
+
+
+*****
+
+####  rs5621  
+##### 1887#       发表于 2022-9-27 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57663594&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-26 23:19</a>
+上次就说了miko不适合做leader气质太弱发令谁都不听
+
+这次就是上次的再放送而已，所以真的没有看点
+
+下次再这 ...</blockquote>
+miko太难了，老是被包抄，要是马自立在就好了。几个新人都没玩几次，打起来基本就是大眼瞪小眼
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
