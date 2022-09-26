@@ -16838,3 +16838,16 @@ gm也没用，影响不到大公司；
 重锤和美智子约过会呢，人家重锤可不是一般人，差点当了荒坂三郎的孙女婿 ...</blockquote>
    重锤估计早就切掉了，怎么当人家的孙女婿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lucky95  
+##### 2917#       发表于 2022-9-27 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664128&amp;ptid=2069884" target="_blank">蕉遇鹿 发表于 2022-9-27 00:05</a>
+原来是捡的赛博疯子的植入体，哪个型号的？我都是玩黑客潜入流没加过反应用不了斯安威斯坦，大卫捡了个这么 ...</blockquote>
+强烈建议开二周体验斯安+武士刀切菜流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
