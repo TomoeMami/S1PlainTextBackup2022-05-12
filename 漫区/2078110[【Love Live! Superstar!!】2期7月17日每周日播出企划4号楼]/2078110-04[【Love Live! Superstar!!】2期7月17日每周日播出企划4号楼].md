@@ -14182,3 +14182,17 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 好像知乎今天一堆这种格式问题被匿名提出来，还圈到我回答，比如</blockquote>
 这是个问题还是专栏，我没搜到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 5844#       发表于 2022-9-26 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57656416&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-26 14:23</a>
+
+这是个问题还是专栏，我没搜到</blockquote>
+问题。
+
+说起来我隔壁也讲过星团现在就是不上不下卡在那，又说要搞创新，又只是微创新大框架还是缪那套死东西。搞得现在所有人都难受
+
