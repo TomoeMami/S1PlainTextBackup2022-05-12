@@ -14252,3 +14252,12 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 真就为了合理化堵人抱怨待遇的嘴无所不用，搞得单推太君很满意现在的待遇一样，不也是搁那儿幻想Center和真个人回。而且咱们直接mail企划是真的有用的。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5850#       发表于 2022-9-26 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5厕可推最近大概是在指望剧场版
+
