@@ -15072,3 +15072,12 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 
 当然也有真是理查的可能性，只是别把话说的太满了，另外最好回忆一下2016年上半年有个什么传言
 
+
+
+*****
+
+####  areklose  
+##### 2849#       发表于 2022-9-26 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我出差加班这几天才终于开始打主线。等着回家玩轨迹。十分感激三周
+

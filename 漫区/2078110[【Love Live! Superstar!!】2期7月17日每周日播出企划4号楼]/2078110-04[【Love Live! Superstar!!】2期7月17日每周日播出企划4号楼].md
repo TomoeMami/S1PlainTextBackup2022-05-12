@@ -14221,3 +14221,23 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 星团的发展没有上面大人物干涉是不可能，只是有人选择摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5847#       发表于 2022-9-26 16:06
+
+鲤鱼，APB的克星，难怪安排行程都要那么防着鲤鱼，现在盯上土妹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+顺便老乡川沙妲己也攻入裂裂内部
+
+*****
+
+####  ads147147  
+##### 5848#       发表于 2022-9-26 16:07
+
+押注太狠最终翻车历史上屡见不鲜。资本草台论
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
