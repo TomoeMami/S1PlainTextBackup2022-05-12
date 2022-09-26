@@ -13909,3 +13909,71 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 10话又更加正常了一些，live也用心做了，以LL系列动画受众的平均要求来衡量，二期能把所有live回都做到这个水平的话口碑一定会很好，可惜制作方不这么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 5822#       发表于 2022-9-26 09:27
+
+话说二单是不是一定会有了，始空再怎么5改9也改不了是五人出道的事实，还是得出一个正经代表9人的单，虽然大概率不选举直接硬推non和土妹。
+
+还要之前不是说和sif有联动单曲吗，曲子呢……？
+
+*****
+
+####  优妮可  
+##### 5823#       发表于 2022-9-26 09:32
+
+<img src="https://img.saraba1st.com/forum/202209/26/093142p2of6wco4i58qwqh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220926_092914_com.bilibili.app.blue.jpg</strong> (158.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-26 09:31 上传
+
+不对劲，pay你怎么那么随口的就说出了kiss这个词，马萨卡
+
+
+
+*****
+
+####  a92063256  
+##### 5824#       发表于 2022-9-26 09:36
+
+感觉我们办公室里整天纠集在一起骂领导的程序员小队都比动画裂拉有团体感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 5825#       发表于 2022-9-26 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57651756&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-26 09:27</a>
+
+话说二单是不是一定会有了，始空再怎么5改9也改不了是五人出道的事实，还是得出一个正经代表9人的单，虽然 ...</blockquote>
+感觉现在出新单得有东西抽选吧，3rd最后一场是明年3月份，bd6应该是抽追加，那么追加应该在3-4月份的样子，假如有第三季，且还是明年7月开播的话，中间空窗期也就3个月的样子，时间不太够。假如没有第三季，倒是变数就多了，出单出专来抽4th的可能性就很大了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5826#       发表于 2022-9-26 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57651874&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-9-26 09:36</a>
+感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
+有没有可能声优们私底下也在一起骂领导<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ddy2811  
+##### 5827#       发表于 2022-9-26 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57651874&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-9-26 09:36</a>
+
+感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
+也许这就是虹团那么有团队感的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
