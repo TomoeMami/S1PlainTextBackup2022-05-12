@@ -14131,3 +14131,42 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 2022-9-26 13:34 上传
 
+
+
+*****
+
+####  ads147147  
+##### 5841#       发表于 2022-9-26 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57655745&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-26 13:34</a>
+
+翻知乎的时候发现的，乐</blockquote>
+好像知乎今天一堆这种格式问题被匿名提出来，还圈到我回答，比如 <blockquote>《 lovelive 》中为何说星团打破了系列的桎梏？</blockquote>
+
+*****
+
+####  梶原ひかり  
+##### 5842#       发表于 2022-9-26 14:07
+
+ラブライブ！ミュージカル「スクールアイドルミュージカル」 CAST 所属事务所情况
+
+椿 ルリカ 堀内まり菜 Apollo Bay 所属
+
+皇 ユズハ 浅井七海 AKB48 TeamB
+
+北条ユキノ 杏ジュリア STARDUST 所属
+
+天草ヒカル 小山璃奈 BOX 所属
+
+三笠マーヤ 佐藤美波 AKB48 TeamB
+
+滝沢アンズ 関根优那 avex艾回
+
+若槻ミスズ 西叶瑞希 STAR 所属
+
+来栖トア 星守纱凪 ASTER Office 所属
+
+铃贺レナ 三田美吹 STARDUST 所属
+
+晴风サヤカ 青山瑠里 ORCHARD 所属
+
