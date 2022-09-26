@@ -13909,3 +13909,29 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 
 10话又更加正常了一些，live也用心做了，以LL系列动画受众的平均要求来衡量，二期能把所有live回都做到这个水平的话口碑一定会很好，可惜制作方不这么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 5822#       发表于 2022-9-26 09:27
+
+话说二单是不是一定会有了，始空再怎么5改9也改不了是五人出道的事实，还是得出一个正经代表9人的单，虽然大概率不选举直接硬推non和土妹。
+
+还要之前不是说和sif有联动单曲吗，曲子呢……？
+
+*****
+
+####  优妮可  
+##### 5823#       发表于 2022-9-26 09:32
+
+<img src="https://img.saraba1st.com/forum/202209/26/093142p2of6wco4i58qwqh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220926_092914_com.bilibili.app.blue.jpg</strong> (158.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-26 09:31 上传
+
+不对劲，pay你怎么那么随口的就说出了kiss这个词，马萨卡
+

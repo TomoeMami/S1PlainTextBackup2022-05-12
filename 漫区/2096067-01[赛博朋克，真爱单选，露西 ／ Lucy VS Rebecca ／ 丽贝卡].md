@@ -845,3 +845,14 @@ s1的Rebecca厨不如洋人一根貂毛<img src="https://static.saraba1st.com/im
 
 结束咧
 
+
+
+*****
+
+####  皇甫延  
+##### 91#       发表于 2022-9-26 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624139&amp;ptid=2096067" target="_blank">skgaminger1988 发表于 2022-9-24 12:27</a>
+真爱意思不就是观众喜欢谁 怎么还能有其他解释的 萝莉党嘴真嗯</blockquote>
+第二页露西党自己说真爱指的男主真爱，怎么还倒打一耙的。
+
