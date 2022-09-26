@@ -15081,3 +15081,12 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我出差加班这几天才终于开始打主线。等着回家玩轨迹。十分感激三周
 
+
+
+*****
+
+####  khxooo  
+##### 2850#       发表于 2022-9-26 23:42
+
+铜和青铜苹果都吃完了，自回体吧，以防下个活动又是类无限池。
+

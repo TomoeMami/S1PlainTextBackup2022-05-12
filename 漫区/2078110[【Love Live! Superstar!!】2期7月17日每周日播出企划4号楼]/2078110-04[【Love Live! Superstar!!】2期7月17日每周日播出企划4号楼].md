@@ -14341,3 +14341,81 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 疯狂贬低和解构可可之于团队的作用不知道有什么意义，一期前三话人气的失控就让你企划忌惮到现在吗？
 
+
+
+*****
+
+####  ads147147  
+##### 5859#       发表于 2022-9-26 23:33
+
+说起来，隔壁不说我都忘了可香情节已经被香樱完全取代了，除了knk不说那个奇怪的中文（不过奇怪的北海道口癖在日本人眼里都差不多吧）现在连作词也拿走了，还有啥好说的，中国人，不要太自信
+
+*****
+
+####  甘蓝巧克力  
+##### 5860#       发表于 2022-9-26 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拆那人还妄想碾压本国人，给你十七分割喽
+
+*****
+
+####  稀勢のささ  
+##### 5861#       发表于 2022-9-26 23:37
+
+早都说过了啊 可香都被她偷完了 只不过效果另说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  starring  
+##### 5862#       发表于 2022-9-26 23:38
+
+结那，21岁（还有依旧蹲点发贺生祝福的打铁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+QQ截图20220926233323.png
+(88.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-26 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202209/26/233823blrge41q3aqd3jdb.png" referrerpolicy="no-referrer">
+
+FdlxjUtaIAARZNh.jpg
+(161.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-26 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202209/26/233828n592q7cqc7hq37zm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 5863#       发表于 2022-9-26 23:41
+
+只能说这企划又想挣中国人的钱，又使了劲的整烂活，怕不是以为中国人的钱好赚，随便敷衍一下就行了，要是这逼心态，我看这企划永远别想搞国际化
+
+*****
+
+####  ViyViy  
+##### 5864#       发表于 2022-9-26 23:42
+
+狗企划别忘了可推构成不是100%拆尼斯就行了，别整得最后本地人都绷不住了撕破脸然后在那甩锅到我们境外势力头上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么欧洲限俄天然气，新世纪搬石头砸自己人脚。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 5865#       发表于 2022-9-26 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">傻卵运营只会出更多的新角色来割dd的韭菜啦，到时候注意力一转移真就无人在意的唐可可了
+
+*****
+
+####  iuhehc  
+##### 5866#       发表于 2022-9-26 23:49
+
+什么作词猫猫嘴运动苦手追星人甚至现在的设计衣服的设定全重合一遍先
+
