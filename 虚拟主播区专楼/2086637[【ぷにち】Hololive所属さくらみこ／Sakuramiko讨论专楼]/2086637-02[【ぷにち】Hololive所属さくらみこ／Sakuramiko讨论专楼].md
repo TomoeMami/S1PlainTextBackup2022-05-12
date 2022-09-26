@@ -3962,3 +3962,35 @@ miko太难了，老是被包抄，要是马自立在就好了。几个新人都�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 1888#       发表于 2022-9-27 01:05
+
+ 本帖最后由 rs5621 于 2022-9-27 01:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644642&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-9-25 19:59</a>
+
+嗯?短裙辣妹
+
+贴心,特意画出来让大家看</blockquote>
+
+image.png
+(582.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 01:04 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/010403v1999dhud19j4jkd.png" referrerpolicy="no-referrer">
+
+image.png
+(582.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 01:04 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/010400s8z8134374mnbtqa.png" referrerpolicy="no-referrer">
+
