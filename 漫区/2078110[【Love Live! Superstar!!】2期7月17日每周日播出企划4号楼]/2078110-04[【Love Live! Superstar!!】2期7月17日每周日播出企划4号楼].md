@@ -14446,3 +14446,45 @@ FdlhPL_UoAA_A22.jpg
 
 <img src="https://img.saraba1st.com/forum/202209/26/235208h263xbb546k5h4bn.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 5868#       发表于 2022-9-27 00:22
+
+角色分工会有重合倒也算是有预见的吧，知道要加人的时候就有讨论过新角色有些东西好像和老角色重合了什么的，只是没想到能重合地这么彻底
+
+不过说实话，我觉得过于刻意的还是前三集，很多地方都复刻了一遍，实在很难不多想。而作词的话，也还行吧，憧憬的是香音，在这方面上希奈子和她看齐也算正常（不如说这个前几集就有的设定你们现在才吐槽啊？）
+
+现在可可剩下的比较明显的特征大概就是强大的基建能力吧，除此之外：体力苦手经过锻炼已经退环境了（毕竟是前辈，经过一年已经成长了）、热情倒是不减（有芽衣做伴，大概更起劲了）、做衣服能力有堇搭手（有人帮忙没啥不好）
+变成现在这样，可可本人大概是没有什么不满的，但在观众看来，可可缺少了“独特性”，不再是那个不可替代的可可了，真的成了一个<strong>地虎侠</strong>
+
+可可是不是该再获得些新的“独特性”呢？
+
+*****
+
+####  plazum  
+##### 5869#       发表于 2022-9-27 00:23
+
+弹幕（第10集）<blockquote>（08:07）不就是块板子，看我用学园偶像给推回去</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 5870#       发表于 2022-9-27 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57662344&amp;ptid=2078110" target="_blank">cxj649 发表于 2022-9-26 21:40</a>
+
+话说你们为什么打黑底啊</blockquote>
+防剧透吧
+
+*****
+
+####  aoaoaodedede  
+##### 5871#       发表于 2022-9-27 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664305&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-27 00:22</a>
+角色分工会有重合倒也算是有预见的吧，知道要加人的时候就有讨论过新角色有些东西好像和老角色重合了什么的 ...</blockquote>
+之前的相似之处早吐槽过了，只不过现在变本加厉，能吐槽的更厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
