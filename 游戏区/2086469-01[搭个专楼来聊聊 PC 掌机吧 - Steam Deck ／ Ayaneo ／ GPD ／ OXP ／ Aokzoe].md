@@ -3373,3 +3373,114 @@ GPD这营销真的是，几个员工装路人发几个所谓“泄漏”视频�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  bypass  
+##### 273#         楼主| 发表于 2022-9-25 18:27
+
+ 本帖最后由 bypass 于 2022-9-25 18:29 编辑 
+
+直接上官方的一图流吧。
+
+<img src="https://img.saraba1st.com/forum/202209/25/182905bp7g7lup7t5l7a8n.jpg" referrerpolicy="no-referrer">
+
+<strong>57185d0bgy1h6j0wbl54nj217fbuy4i4.jpg</strong> (765.04 KB, 下载次数: 1)
+
+下载附件
+
+2022-9-25 18:29 上传
+
+*****
+
+####  02031f84  
+##### 274#       发表于 2022-9-25 18:49
+
+为什么不跟奥克一样搞个大电池版本呢？我玩sd的时候就想电池能大点就好了
+
+*****
+
+####  Fuero  
+##### 275#       发表于 2022-9-25 19:19
+
+做了很豪华的介绍，但是貌似没看到续航是多少小时？
+
+*****
+
+####  时空之旅  
+##### 276#       发表于 2022-9-25 19:32
+
+<blockquote>Fuero 发表于 2022-9-25 19:19
+做了很豪华的介绍，但是貌似没看到续航是多少小时？</blockquote>
+对目前的所有win掌机尤其是6800掌机来说续航的意义为零，以1个小时的续航为打算就行了
+
+*****
+
+####  dpheix1  
+##### 277#       发表于 2022-9-25 20:45
+
+ayaneo air似乎是把掌机上的按键映射成一个xbox手柄，接扩展坞连电视之后再蓝牙接了个xbox手柄似乎被认成了2p，游戏里都无法操作，系统界面倒是能操作鼠标。怎么调整两个手柄的主副顺序，不知道有人试过么？
+
+*****
+
+####  Fuero  
+##### 278#       发表于 2022-9-25 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644353&amp;ptid=2086469" target="_blank">时空之旅 发表于 2022-9-25 19:32</a>
+
+对目前的所有win掌机尤其是6800掌机来说续航的意义为零，以1个小时的续航为打算就行了 ...</blockquote>
+1小时也太那啥了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nilren  
+##### 279#       发表于 2022-9-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57643997&amp;ptid=2086469" target="_blank">02031f84 发表于 2022-9-25 18:49</a>
+为什么不跟奥克一样搞个大电池版本呢？我玩sd的时候就想电池能大点就好了 ...</blockquote>
+10000mAh电池大概要多250克，玩3A也就多一小时，划算吗 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  02031f84  
+##### 280#       发表于 2022-9-25 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57645819&amp;ptid=2086469" target="_blank">nilren 发表于 2022-9-25 21:01</a>
+
+10000mAh电池大概要多250克，玩3A也就多一小时，划算吗 
+
+—— 来自 S1Fun</blockquote>
+哪有那么夸张啊，a1和a1L差5000mah也就重60g。729g 65wh还是可以接受的范围吧
+
+*****
+
+####  83913536  
+##### 281#       发表于 2022-9-25 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644353&amp;ptid=2086469" target="_blank">时空之旅 发表于 2022-9-25 19:32</a>
+
+对目前的所有win掌机尤其是6800掌机来说续航的意义为零，以1个小时的续航为打算就行了 ...</blockquote>
+7寸标准45-48w，又不需要都开28w，开15w和deck同样水平，那就是1.5-2小时续航。
+
+如果是7寸往上的巨无霸，max2和奥克，能有3小时续航。
+
+*****
+
+####  風舞雪  
+##### 282#       发表于 2022-9-26 02:24
+
+拿到steamdeck了 比我想象中的大好多..肯定不是那种能塞裤兜拿出去的机器…
+
+*****
+
+####  bypass  
+##### 283#         楼主| 发表于 2022-9-26 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57650050&amp;ptid=2086469" target="_blank">風舞雪 发表于 2022-9-26 02:24</a>
+
+拿到steamdeck了 比我想象中的大好多..肯定不是那种能塞裤兜拿出去的机器…</blockquote>
+对，到手第一感觉是，这个盒子好长……
+
