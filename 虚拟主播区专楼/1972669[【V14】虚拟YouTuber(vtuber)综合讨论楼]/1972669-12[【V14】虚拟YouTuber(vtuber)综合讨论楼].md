@@ -10411,3 +10411,22 @@ https://gofile.io/d/UX3V0o
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fastary  
+##### 17462#       发表于 2022-9-26 20:53
+
+ 本帖最后由 fastary 于 2022-9-26 20:55 编辑 
+
+正式毕业之后还有一个月的甲子园又有怪奇物语还留了个保健室，黛灰是目前毕业后留下最多存在感的一个了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（不过保健室组应该就是最后的最后了……
+
+syl
+
+为什么虹默认甚至不能露手vox还能在推上放下半身的照片，这下虹人也没法拿en就是这样来洗地了吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">（虽然好像那边无人在意就是了，呃呃
+
+明明刚出道还挺注意rp的结果做起来之后越发狂了，论敬业真是不如jpking一根毛<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
