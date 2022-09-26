@@ -3891,3 +3891,14 @@ miko好像真的在认真看
 
 tc放楼顶还行
 
+
+
+*****
+
+####  rs5621  
+##### 1882#       发表于 2022-9-26 22:33
+
+miko这床的位置真的服了，起来就挨枪
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
