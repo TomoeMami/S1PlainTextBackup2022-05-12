@@ -3902,3 +3902,16 @@ miko这床的位置真的服了，起来就挨枪
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 1883#         楼主| 发表于 2022-9-26 23:02
+
+miko连续两次企划都是全程带新人，自己的能力完全发挥不出来
+
+估计已经累了不会有下次了
+
+不知道为什么每次都要给miko塞满新人
+
