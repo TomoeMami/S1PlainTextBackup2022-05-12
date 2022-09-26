@@ -14488,3 +14488,12 @@ FdlhPL_UoAA_A22.jpg
 角色分工会有重合倒也算是有预见的吧，知道要加人的时候就有讨论过新角色有些东西好像和老角色重合了什么的 ...</blockquote>
 之前的相似之处早吐槽过了，只不过现在变本加厉，能吐槽的更厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 5872#       发表于 2022-9-27 00:34
+
+<img src="https://p.sda1.dev/7/a9e33e3694298e6ef653203fe7301759/841176758.jpg" referrerpolicy="no-referrer">
+
