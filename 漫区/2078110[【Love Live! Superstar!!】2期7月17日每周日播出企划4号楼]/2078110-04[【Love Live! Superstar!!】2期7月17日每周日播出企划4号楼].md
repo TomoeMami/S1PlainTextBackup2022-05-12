@@ -13954,3 +13954,14 @@ snp那破待遇彻底成为笑话，如果VN真是三期生，二期生对比起
 话说二单是不是一定会有了，始空再怎么5改9也改不了是五人出道的事实，还是得出一个正经代表9人的单，虽然 ...</blockquote>
 感觉现在出新单得有东西抽选吧，3rd最后一场是明年3月份，bd6应该是抽追加，那么追加应该在3-4月份的样子，假如有第三季，且还是明年7月开播的话，中间空窗期也就3个月的样子，时间不太够。假如没有第三季，倒是变数就多了，出单出专来抽4th的可能性就很大了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5826#       发表于 2022-9-26 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57651874&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-9-26 09:36</a>
+感觉我们办公室里整天纠集&amp;#x5 ...</blockquote>
+有没有可能声优们私底下也在一起骂领导<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
