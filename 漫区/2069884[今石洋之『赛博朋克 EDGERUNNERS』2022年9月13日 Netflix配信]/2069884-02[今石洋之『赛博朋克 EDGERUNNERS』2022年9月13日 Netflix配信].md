@@ -17060,3 +17060,14 @@ cdpr那边的制片人在红迪上说1-6集大卫是17，变大只佬后是18，
 提一个问题，第八集大卫向露西提出分手的原因是什么? 我的第一观感居然是大卫嫌露西不干活，想不通了… ...</blockquote>
 当然是想让露西不要被自己连累，一般会搭配这几种台词：“我们还是分开吧”“以后不要跟我扯上关系”“我一直以来都只是利用她而已，不要误会了”
 
+
+
+*****
+
+####  JY要塞  
+##### 2935#       发表于 2022-9-27 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665330&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 04:14</a>
+这个离2077才一年！擦，可以考虑出个dlc叫v接盘lucy啊，看人设比judy和帕南香多了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是v也活不了多久，让Lucy 守两遍寡是吧
+
