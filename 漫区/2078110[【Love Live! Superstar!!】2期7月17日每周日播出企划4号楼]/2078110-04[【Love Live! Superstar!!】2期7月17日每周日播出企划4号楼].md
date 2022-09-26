@@ -14170,3 +14170,15 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 晴风サヤカ 青山瑠里 ORCHARD 所属
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5843#       发表于 2022-9-26 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57656150&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-26 14:03</a>
+
+好像知乎今天一堆这种格式问题被匿名提出来，还圈到我回答，比如</blockquote>
+这是个问题还是专栏，我没搜到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
