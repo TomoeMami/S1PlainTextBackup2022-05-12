@@ -14290,3 +14290,25 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 话说你们为什么打黑底啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 5854#       发表于 2022-9-26 21:42
+
+说点不用黑条的
+
+要真给夏美当上公司CEO大概会整天拿kpi折磨员工和自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打歌服直接用CDTV那套算是把5个人的东西分给9个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在看OP直奔鲤鱼改编的那段（之前基本没听到了这集才发现这一段在OP里还挺靠后的）就像ED直奔音响协力法元明菜一样，啥时候安排鲤鱼版全曲啊，当做愚人节企划也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5855#       发表于 2022-9-26 21:45
+
+这企划能记得有可可这号人物就不错了，还期望能给她单独演出？
+
