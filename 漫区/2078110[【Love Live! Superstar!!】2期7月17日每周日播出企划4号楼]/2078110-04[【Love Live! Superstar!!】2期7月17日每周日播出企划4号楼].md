@@ -14321,3 +14321,12 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 一首太少了，多来几首，ED也整上。
 
+
+
+*****
+
+####  cybernetics31  
+##### 5857#       发表于 2022-9-26 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">标题画面原画编号还在…………
+
