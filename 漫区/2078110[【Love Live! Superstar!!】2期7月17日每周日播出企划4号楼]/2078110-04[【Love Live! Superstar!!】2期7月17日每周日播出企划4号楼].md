@@ -14092,3 +14092,25 @@ AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，�
 
 这个明显实验性质吧………………官网位置还放在下面呢
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 5838#       发表于 2022-9-26 12:21
+
+“《学园偶像音乐剧》是以拥有全国水平的学力和传统的兵库名门升学学校椿咲花女子高中与拥有艺能课程偶像部的大阪人气著名高中泷樱女学院——位于关西的2所传统学校为舞台的完全原创新作。与新创作的乐曲一起，描绘了10个少女们的青春学园歌剧。”
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  梶原ひかり  
+##### 5839#       发表于 2022-9-26 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57654631&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-26 12:12</a>
+AB社（amuse）在LL企划里是什么位置，旗下9个cv都在企划里，算上打酱油的富田美忧就有10个 ...</blockquote>
+在水团时期就开始负责事务所统合以及成员行程安排管理...
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
