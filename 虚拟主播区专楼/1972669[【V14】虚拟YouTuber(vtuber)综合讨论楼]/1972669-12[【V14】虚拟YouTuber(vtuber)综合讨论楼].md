@@ -10459,3 +10459,15 @@ vspo你再想想？看看你这尺寸再看看价格？エマ和べに定价不�
 
 <img src="https://p.sda1.dev/7/df0f2cf7e3b973639958400a88a43574/IMG_CMP_135608972.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 17466#       发表于 2022-9-27 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57662597&amp;ptid=1972669" target="_blank">蓬莱广告 发表于 2022-9-26 22:02</a>
+
+vspo你再想想？看看你这尺寸再看看价格？エマ和べに定价不是挺正常吗？</blockquote>
+八云那个袋子都卖2000了，这个卖3000没啥问题吧
+

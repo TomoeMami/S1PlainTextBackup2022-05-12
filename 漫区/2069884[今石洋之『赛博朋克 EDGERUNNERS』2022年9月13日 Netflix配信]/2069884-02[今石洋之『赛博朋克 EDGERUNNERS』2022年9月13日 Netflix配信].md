@@ -16814,3 +16814,27 @@ gm也没用，影响不到大公司；
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">“看啊妈妈，我就站在荒坂塔的顶端！”
 
+
+
+*****
+
+####  blackjeo1  
+##### 2915#       发表于 2022-9-27 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57659193&amp;ptid=2069884" target="_blank">lancelot9 发表于 2022-9-26 17:33</a>
+
+看完了
+
+感觉世界观跟游戏是整个割裂的，你看的时候必须把游戏里的一切忘掉，把他当成是独立的一部剧，同样 ...</blockquote>
+    V不靠义体单靠个人能力？你在游戏里可以给V加点加技能的这算不算开挂的一种？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackjeo1  
+##### 2916#       发表于 2022-9-27 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664459&amp;ptid=2069884" target="_blank">未向heart 发表于 2022-9-27 00:39</a>
+
+重锤和美智子约过会呢，人家重锤可不是一般人，差点当了荒坂三郎的孙女婿 ...</blockquote>
+   重锤估计早就切掉了，怎么当人家的孙女婿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

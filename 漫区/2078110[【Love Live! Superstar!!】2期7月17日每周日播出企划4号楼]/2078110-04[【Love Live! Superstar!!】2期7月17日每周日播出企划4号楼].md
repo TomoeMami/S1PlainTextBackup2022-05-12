@@ -14522,3 +14522,14 @@ FdlhPL_UoAA_A22.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 5875#       发表于 2022-9-27 01:37
+
+说起来，二期生人设刚出来时很多人都觉得夏美和堇很像，最被担心二期生分走设定的是堇，结果没想到吧？被瓜分的最彻底的是可可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
