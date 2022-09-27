@@ -17697,3 +17697,13 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  jacket  
+##### 2984#       发表于 2022-9-28 01:07
+
+[https://twitter.com/xyanaid/status/1574669378984955904](https://twitter.com/xyanaid/status/1574669378984955904)
+<img src="https://img.imoutomoe.net/images/2022/09/28/1574669378984955904.png" referrerpolicy="no-referrer">
+
