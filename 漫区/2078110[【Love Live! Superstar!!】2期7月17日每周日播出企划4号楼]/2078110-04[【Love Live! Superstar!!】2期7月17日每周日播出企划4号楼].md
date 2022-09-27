@@ -14662,3 +14662,25 @@ FdlhPL_UoAA_A22.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好几把怪啊 官推昨天发的个新趴趴的谷子 结果只有一期生+きなこ
 
+
+
+*****
+
+####  ruffian  
+##### 5886#       发表于 2022-9-27 11:06
+
+土妹子也不算崩吧？只是没什么亮眼的表现而已，说阴谋论一点这动画对角色的喜恶太容易看出来了……不过土妹子偶尔蹦出句缺心眼的逆天言论对我来说倒是个萌点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  愛さ実  
+##### 5887#       发表于 2022-9-27 11:08
+
+不是想塑造成中式傲娇没成功吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+何况可如果像恋那样强加设定为的是写一个搞笑过渡回楼友就能满意了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以实质就是这季动画人物塑造太烂了，即使描写最多的大香老师也是一塌糊涂。
+我更希望动画别着墨了，三次元能像oped发售活动夜场那样着墨多点就是最好了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这才是天然的有趣
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
