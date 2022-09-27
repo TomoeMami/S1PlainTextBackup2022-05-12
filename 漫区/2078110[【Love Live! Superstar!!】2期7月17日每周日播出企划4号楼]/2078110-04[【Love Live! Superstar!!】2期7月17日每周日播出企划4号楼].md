@@ -15453,3 +15453,33 @@ snp下一年该毕业了还怎么念
 
 CP投票结束就删了，我早上看可堇领先接近300转，不知道最后怎样
 
+
+
+*****
+
+####  ruffian  
+##### 5963#       发表于 2022-9-27 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673851&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-09-27 18:18:21</a>
+其实我的解读一直是，自称&amp;# ...</blockquote>其实早期官漫二人时间可千篇里，可可就稍微带点孤独感，有个国人画师挺喜欢针对这一点进行创作的，不过那时的可可真的是个小太阳，看见她心情就会好起来，我还挺怀念漫画里的唐可可的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  甘蓝巧克力  
+##### 5964#       发表于 2022-9-27 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又不是三体星系，只有一个太阳当然会有孤独感啊，谁敢真的靠近太阳
+
+*****
+
+####  iuhehc  
+##### 5965#       发表于 2022-9-27 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673851&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-9-27 18:18</a>
+其实我的解读一直是，自称&amp;# ...</blockquote>
+这样解释也挺好的，可花田真会写到这种层面去么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

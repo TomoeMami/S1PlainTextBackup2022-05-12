@@ -17561,3 +17561,27 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 公司v不是反情报部二把手，给v派活的詹金斯才是反情报部副部长，他们提到的艾伯 ...</blockquote>
 那俩人叫Kate和Douglas
 
+
+
+*****
+
+####  机械烈海王  
+##### 2974#       发表于 2022-9-27 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673825&amp;ptid=2069884" target="_blank">Schwarzess 发表于 2022-9-27 18:16</a>
+爬完了，有个想纠正的点。
+公司v不是反情报部二把手，给v派活的詹金斯才是反情报部副部长，他们提到的艾伯 ...</blockquote>
+艾伯纳西的职位不是荒坂特别行动总监吗，肯定是詹金斯上级，不过听起来不像是只管反情报部门的
+
+*****
+
+####  Dashuaibi  
+##### 2975#       发表于 2022-9-27 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673825&amp;ptid=2069884" target="_blank">Schwarzess 发表于 2022-9-27 18:16</a>
+
+爬完了，有个想纠正的点。
+
+公司v不是反情报部二把手，给v派活的詹金斯才是反情报部副部长，他们提到的艾伯 ...</blockquote>
+艾伯纳西是特别行动部总监，不知道是反情报部下属部门还是同级，但至少比詹金斯官大。
+
