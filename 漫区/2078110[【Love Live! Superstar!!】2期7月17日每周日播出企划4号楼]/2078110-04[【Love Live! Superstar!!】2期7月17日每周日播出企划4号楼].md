@@ -15039,3 +15039,40 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 贴吧连一堆可推围攻堇推这种话都说的出来还能怎样，动画内岁月史书场外也跟着一起岁月史书是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 5925#       发表于 2022-9-27 15:43
+
+两边楼的人成份都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那边换了二期楼后走了一批人，一期楼后面都默认倒黑泥会折叠起来，新一批人有部分没那么自觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 5926#       发表于 2022-9-27 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671626&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-09-27 15:33:01</a>
+上周黑泥集中喷发已经打击到正常人
+我现在也在努力劝说大家让讨论氛围回复 现在…倒还好了
+就是主要劝大 ...</blockquote>感觉二期以来讨论氛围就变得不太好，然后许多平台都被蔓延到了。我体感上叔叔家和微博单推比较多，其他平台除了贴吧成分太混沌了都还是dd占多数的，泥潭前两天可能是话题集中在可可身上，不满被集中点燃了，过了这段时间应该会慢慢冷静下来的……大概
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 5927#       发表于 2022-9-27 15:49
+
+这动画还是早点放完吧， 没二期这动画的时候不比现在的社区环境好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5928#       发表于 2022-9-27 15:50
+
+骑士服怎么没光速出谷，那些奇装异服倒是出的那么快。
+

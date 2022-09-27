@@ -17360,3 +17360,50 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 2022-9-27 15:39 上传
 
+
+
+*****
+
+####  丹德里恩  
+##### 2959#       发表于 2022-9-27 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669534&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 12:53</a>
+
+uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫色护甲插件了 ...</blockquote>
+肉体流玩拳击/霰弹，反应流玩突突/刀剑，反正都是配合时停，大差不差
+
+18工程20镇定几乎是必点的，剩下的点自己看着分，还能点满一个的
+
+*****
+
+####  stannislas  
+##### 2960#       发表于 2022-9-27 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669554&amp;ptid=2069884" target="_blank">JY要塞 发表于 2022-9-27 12:55</a>
+
+还可以用摄像头啊</blockquote>
+嗨。。。那有啥区别啊，以前我记得不是黑客也有距离限制吗？
+
+*****
+
+####  鱼雷鲨  
+##### 2961#       发表于 2022-9-27 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671718&amp;ptid=2069884" target="_blank">Lokad 发表于 2022-9-27 15:39</a>
+
+没，有一份记录是太空居住感想，里面提到月球殖民地是要点脸面的人都不会去的地方。有从欧空局手里武装独 ...</blockquote>
+这人是真的有钱，钞能力啊……
+
+夜氏上月球的计划是这里提的
+[https://cyberpunk.fandom.com/wiki/Entry_37](https://cyberpunk.fandom.com/wiki/Entry_37)
+
+*****
+
+####  鱼雷鲨  
+##### 2962#       发表于 2022-9-27 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57666034&amp;ptid=2069884" target="_blank">01一14 发表于 2022-9-27 08:54</a>
+
+看了前三集，剧本太标准了，哪里有激励事件，哪里该有突发事件，哪里会有虚假的成功，这应该是cdrp给的架构 ...</blockquote>
+大卫是一开始就确定的全套剧情
+
