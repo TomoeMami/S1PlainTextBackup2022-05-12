@@ -17309,3 +17309,15 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 现在黑客流穿墙只能穿设备，而且电不死会回溯找定位（之前只有对面的黑客能找），比之前弱多了，不过之前那种实在太无敌，也没什么意思。
 
+
+
+*****
+
+####  琦玉  
+##### 2956#       发表于 2022-9-27 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57666044&amp;ptid=2069884" target="_blank">未向heart 发表于 2022-9-27 08:55</a>
+
+我记得有人问过庞麦德重锤平时干啥，他回了一句和美智子约会，还有看动画啥的，我也不知道是不是 ...</blockquote>
+看动画草，什么Uruz 1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
