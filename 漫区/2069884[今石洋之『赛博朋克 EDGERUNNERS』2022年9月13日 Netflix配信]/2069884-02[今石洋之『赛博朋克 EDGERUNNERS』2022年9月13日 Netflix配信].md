@@ -17765,3 +17765,15 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 我看底层生活状态感觉年人口死亡率至少两位数往上。可是游戏和 ...</blockquote>
 纽约天天死人 会缺人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  terminator1990  
+##### 2989#       发表于 2022-9-28 07:44
+
+没玩过游戏，花了两三天把片子补完了，音画质量当然是顶级的水平，但一路看下来还是没法代入进去，感觉就像在旁观一群癫狂的人在癫狂的世界中一步步走向已经注定的悲惨末路，是那种看了个开头就能隐约猜到最后下场的路子，因而真到了结局也是按部就班排队便当，甚至有些地方觉得就是他们自己作的才导致了那个结局，因而也没太感到意难平，借用泛式的批话来说就是“哇他们好惨啊，可是这和俺又有什么关系呢。”
+倒是这帮人最终话对着两家企业大闹特闹成那样后竟然没有死光光还是有点出乎了我的意料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
