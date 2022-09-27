@@ -14551,3 +14551,15 @@ FdlhPL_UoAA_A22.jpg
 
 可可啥也不剩其实开播前是有预见的，我没想到他真的这么干，这么不想写这个角色可以一了百了的，现在你让鱼配个纯日本人我看没问题的，就这么办吧。
 
+
+
+*****
+
+####  ruffian  
+##### 5878#       发表于 2022-9-27 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665276&amp;ptid=2078110" target="_blank">lj205 发表于 2022-09-27 03:32:07</a>
+自残企划这么疯狂自残都要打压可可捧土妹还是没效果，他们可不恨死可可，现在说不定都在考虑什么套路让可可 ...</blockquote>突然想到……如果把可可看成一个多余的人，倒是能想通很多事了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">（阴谋论了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
