@@ -17287,3 +17287,16 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫色护甲插件了 ...</blockquote>
 护甲+时停拿武士刀螳螂刀或是霰弹枪糊脸就好
 
+
+
+*****
+
+####  Piano-Forest  
+##### 2954#         楼主| 发表于 2022-9-27 13:15
+
+[https://twitter.com/A_ntiqueWhite/status/1573886646755282945](https://twitter.com/A_ntiqueWhite/status/1573886646755282945)
+
+水中月
+<img src="https://p.sda1.dev/7/a9a938fc43cab95d053018f71b6753c1/illust_101474554_20220927_123740.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/07f94cdd38e9a652f5b9fe8602da36bd/illust_101474554_20220927_130750.jpg" referrerpolicy="no-referrer">
+
