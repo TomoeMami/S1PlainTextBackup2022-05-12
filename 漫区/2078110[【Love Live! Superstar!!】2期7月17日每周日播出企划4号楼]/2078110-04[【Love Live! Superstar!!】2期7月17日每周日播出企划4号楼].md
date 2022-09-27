@@ -15542,3 +15542,27 @@ nako：？她这次不会来啊
 
 妈妈：？这是要你带回去东京给nagi</blockquote>
 
+
+
+*****
+
+####  lj205  
+##### 5971#       发表于 2022-9-27 21:14
+
+草，鲤鱼这么高脚这么小的吗
+
+*****
+
+####  adw667  
+##### 5972#       发表于 2022-9-27 21:18
+
+我知道把头发和双手拆开是因为双手打开太宽不好放盒子里以及头发太细防止运输造成损伤，但是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/27/211511j130z38j8ci81zck.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220927211220.jpg</strong> (490.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 21:15 上传
+
