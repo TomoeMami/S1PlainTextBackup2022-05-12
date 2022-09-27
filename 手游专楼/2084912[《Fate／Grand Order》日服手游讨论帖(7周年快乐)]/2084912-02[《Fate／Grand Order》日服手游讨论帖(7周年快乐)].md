@@ -15108,3 +15108,12 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 
 自回体的表示连商店都没空，甚至感觉铜只能勉强赶上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2853#       发表于 2022-9-27 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这送的蓝卡回收是不是有点悲剧。。
+
