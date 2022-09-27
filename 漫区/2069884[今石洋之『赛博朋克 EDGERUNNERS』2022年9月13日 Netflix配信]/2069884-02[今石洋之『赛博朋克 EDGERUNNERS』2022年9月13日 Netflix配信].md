@@ -17321,3 +17321,20 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 我记得有人问过庞麦德重锤平时干啥，他回了一句和美智子约会，还有看动画啥的，我也不知道是不是 ...</blockquote>
 看动画草，什么Uruz 1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mimighost  
+##### 2957#       发表于 2022-9-27 15:13
+
+我真的很想在你家过夜的后颈真强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+回到作品本身，可能是我对于david这个角色没啥代入。对我来说，这个角色的提线木偶感太强，一个被命运和巧合驱动的人，是大写的people pleaser（贬义，一味讨好他人来回避正面冲突的人）。去月球，也指不定是为了把到lucy来讲给自己的谎话。
+
+倒霉的工具人
+
+所以最后他被锤了，我反而有种解脱感，他终于不用继续当工具了。
+
+只是可怜了丽贝卡，她真的很好，也没做错什么，却被锤了个稀巴烂，这才是本片真正毒到我的地方。
+
