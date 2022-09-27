@@ -14999,3 +14999,14 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只看过那一次 说错了是我的锅
 
+
+
+*****
+
+####  ruffian  
+##### 5921#       发表于 2022-9-27 15:28
+
+泥潭那边大多数都是DD吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
