@@ -17222,3 +17222,34 @@ David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，�
 
 黑客控制绕背扭脖子，或者黑客辅助找把武器输出都挺好玩。
 
+
+
+*****
+
+####  acejoe  
+##### 2948#       发表于 2022-9-27 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669195&amp;ptid=2069884" target="_blank">jacket 发表于 2022-9-27 12:29</a>
+纯黑客流太无敌，等级上去了跟人打起来没有互动，站原地穿墙透视把全场怪弄死自己上去捡东西，跟后台输入 ...</blockquote>
+现在黑客不能穿墙了
+
+*****
+
+####  stannislas  
+##### 2949#       发表于 2022-9-27 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665541&amp;ptid=2069884" target="_blank">JY要塞 发表于 2022-9-27 07:29</a>
+
+但是v也活不了多久，让Lucy 守两遍寡是吧</blockquote>
+伤心欲绝的小寡妇<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stannislas  
+##### 2950#       发表于 2022-9-27 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669481&amp;ptid=2069884" target="_blank">acejoe 发表于 2022-9-27 12:49</a>
+
+现在黑客不能穿墙了</blockquote>
+哈？黑不进室内了？那怎么玩啊？近期跟人肉搏读条吗。
+
