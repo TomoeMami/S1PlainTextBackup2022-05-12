@@ -4042,3 +4042,12 @@ image.png
 
 [推特](https://twitter.com/Hoshinosaya1/status/1574645683411251201?t=I3mxLSisgXibqSwvRywxlA&amp;s=19)
 
+
+
+*****
+
+####  rs5621  
+##### 1892#       发表于 2022-9-27 16:59
+
+发推，终于准备弄企划了。
+

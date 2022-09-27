@@ -15275,3 +15275,23 @@ twi：@unyanai
 
 低级骂战姑且不提，不管哪个社区分析剧情的基本全在说堇，从可视角来分析的几乎都见不到，这个作为CP回肯定是失败的
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5947#       发表于 2022-9-27 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关注的可堇画师里有个第一天磕爽了后面越想越不对劲的
+
+*****
+
+####  D麦林  
+##### 5948#       发表于 2022-9-27 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672193&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-9-27 16:12</a>
+vn还是别入团了，入团了之后又要有倒霉蛋来凑敌团的名额了。snp好歹被念叨了两期大概率还会被继续念 ...</blockquote>
+snp下一年该毕业了还怎么念
+作为大学生/社会人再登场？
+总不能真留级再战LL大赛吧
+
