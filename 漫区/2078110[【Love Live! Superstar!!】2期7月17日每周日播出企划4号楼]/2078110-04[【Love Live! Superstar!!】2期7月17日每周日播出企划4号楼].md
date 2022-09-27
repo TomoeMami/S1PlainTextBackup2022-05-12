@@ -15404,3 +15404,35 @@ snp下一年该毕业了还怎么念
 
 也不怪霓虹本地可推开始搞回国文学遗憾文学了，这帮子人就是欠痛，真的失去了才知道啥叫痛贯天灵。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 5959#       发表于 2022-9-27 18:10
+
+我之前还觉得二期干脆就让可可不管什么原因掉线几天，让她们好好感受感受什么叫失去了才知道珍惜。现在我觉得我太自作多情了，可可哪有这么重要，不配被珍惜吼
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5960#       发表于 2022-9-27 18:17
+
+打铁这写真比鲤鱼还色气<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 5961#       发表于 2022-9-27 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673393&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-27 17:38</a>
+
+虽然正片吃设定也算老传统了，但我还是不想看见可可人设里那句“小太阳”被真的扔掉。仔细想想动画里的可可 ...</blockquote>
+其实我的解读一直是，自称可可扮可爱的那个形象属于伪装，或者你叫高中出道也行
+
+可可在国内读书时应该就是有点冷漠麻木的，不然就不会可香回一次可堇回一次自称「私」了
+
+2期鲤鱼配的那个低音声线可能就是可可原本的声线
+
