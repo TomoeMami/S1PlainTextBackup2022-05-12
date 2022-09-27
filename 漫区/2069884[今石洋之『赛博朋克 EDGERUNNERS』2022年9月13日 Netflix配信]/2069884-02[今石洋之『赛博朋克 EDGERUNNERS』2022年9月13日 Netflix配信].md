@@ -17511,3 +17511,28 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 忘了 ...</blockquote>
 居然是Lizzy的，主要一片赛博空间出现个女人让蓝色遍布城市，满满AI味儿。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 2970#       发表于 2022-9-27 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57467134&amp;ptid=2069884" target="_blank">Asukalangley33 发表于 2022-9-13 16:54</a>
+
+第一集看完了，能处
+
+但是这是扳机的前几集嘛....</blockquote>
+第一集其实是CDPR自己做的……
+
+
+
+*****
+
+####  Labborn  
+##### 2971#       发表于 2022-9-27 17:05
+
+<img src="https://p.sda1.dev/7/1cf499b45b28edb3a5988493216621b5/CMP_20220927170339612.jpg" referrerpolicy="no-referrer">
+[闷茶子，我的超人……](https://share.api.weibo.cn/share/338261412,4818349219910323.html?weibo_id=4818349219910323)
+<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
