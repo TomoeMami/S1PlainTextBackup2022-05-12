@@ -17638,3 +17638,15 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 闷茶子，我的超人……</blockquote>
 可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武装野狼  
+##### 2980#       发表于 2022-9-27 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57649643&amp;ptid=2069884" target="_blank">lucky95 发表于 2022-9-26 01:15</a>
+
+上一次玩2077，没打通全结局和玩的是骇客流不打架，所以这次二周目体验很不错及感受到了更多边缘行者的彩蛋 ...</blockquote>
+大卫主要缺乏主见，梦想都是别人的自己根本不知道应该干嘛，有了斯安威斯坦也从来没想过如何最大发挥优势，只能单纯的照抄别人的跑步跑不过就换肺。战斗只会硬刚，第一次和富二代打架时候一拳差点把自己手打断，后来有了手炮还是上去就一拳，没成才紧急跳走开炮。
+

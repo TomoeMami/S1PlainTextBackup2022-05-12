@@ -15606,3 +15606,89 @@ nako：？她这次不会来啊
  ...</blockquote>
 碇 真 嗣
 
+
+
+*****
+
+####  kata魂  
+##### 5977#       发表于 2022-9-27 21:31
+
+现在第一项已经没法看了，只能看二三了
+
+*****
+
+####  优妮可  
+##### 5978#       发表于 2022-9-27 21:32
+
+23加起来34%
+
+*****
+
+####  adw667  
+##### 5979#       发表于 2022-9-27 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57675954&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-27 21:26</a></blockquote>
+跟上集一比算是有所回升，上一集4和5加起来有30%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 5980#       发表于 2022-9-27 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676001&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-27 21:29</a>
+感觉下集没写好要直接突破黑屏了</blockquote>
+现在这个评分想向上突破挺难的
+想向下突破我感觉还挺简单
+我来想就是
+比如这集结尾卖关子结果下集告诉你输了
+估计就能超越黑屏了
+
+*****
+
+####  D麦林  
+##### 5981#       发表于 2022-9-27 21:38
+
+难绷 看了眼5ch怎么拉版也在清蒜啊
+再看看 哦原来是虹信和星信拿蒜作棒进行大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 5982#       发表于 2022-9-27 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57542935&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-18 20:25</a>
+
+我明白了，马上就要搞个大活
+
+最后两集liella没有赢，但vn也没赢
+
+胜者是新二人组</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">花田，你敢不敢这么玩
+
+*****
+
+####  Kfly  
+##### 5983#       发表于 2022-9-27 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676089&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-27 21:37</a>
+
+现在这个评分想向上突破挺难的
+
+想向下突破我感觉还挺简单
+
+我来想就是</blockquote>
+实在想象不出什么样的精神状况下才能让liella再输一次，那样薇恩都不是亲女儿了，应该是亲妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 5984#       发表于 2022-9-27 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676089&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-09-27 21:37:19</a>
+现在这个评分想向上突破挺难的
+想向下突破我感觉还挺简单
+我来想就是
+比如这集结尾卖关子结果下集告诉你 ...</blockquote>这个可以有，这样可可就能回国了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
