@@ -14867,3 +14867,35 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kfly  
+##### 5908#       发表于 2022-9-27 12:03
+
+ 本帖最后由 Kfly 于 2022-9-27 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668505&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-27 11:42</a>
+
+vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的拉拉大赛很cjb。
+
+并且黑长直高马尾似乎是debuf ...</blockquote>
+塑造的太少提名一个可可
+
+大赛现在是拉了，但不是有那么一个道理吗，“我们骂它是想让它变好，什么时候轮到你来骂了？”
+
+就，薇恩瞧不起lovelive(很大概率)是因为她一开始就没有去去了解过，只不过她说的正好符合事实而已，和“知道lovelive大赛为什么不行”有明显不同
+
+这样一个人竟然随随便便就打败了追求振兴和连霸的snp，要怎么喜欢的起来呢？所以“瞧不起lovelive”才会是debuff
+
+不过我也只是说第一印象上薇恩得塑造比恋还差，后面肯定还有洗白不是？（先前的态度大概要永远作为黑历史存在了）
+
+人气上薇恩大概还是会比恋高的，恋就是这么惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5909#       发表于 2022-9-27 12:07
+
+中式傲娇是啥玩意，我看得少，还有这种属性？
+

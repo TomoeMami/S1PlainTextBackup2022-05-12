@@ -15099,3 +15099,12 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 
 除了高难全打完了，商店也搬空了……但是有心脏可以换不要停下来啊丞相！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2852#       发表于 2022-9-27 12:03
+
+自回体的表示连商店都没空，甚至感觉铜只能勉强赶上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
