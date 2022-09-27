@@ -17157,3 +17157,17 @@ cdpr那边的制片人在红迪上说1-6集大卫是17，变大只佬后是18，
 David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，在夜之城混黑道只能依 ...</blockquote>
 有打爆电话的这个情节吗，我印象里二人那晚后的第一次通话就露西被抓了
 
+
+
+*****
+
+####  treexper  
+##### 2944#       发表于 2022-9-27 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665374&amp;ptid=2069884" target="_blank">heresiarch 发表于 2022-9-27 04:56</a>
+
+因为听说这动画很好，于是把2年前就买了但一点都没玩的2077拿出来玩，发现的确没有想象中糟糕；第一章还未 ...</blockquote>
+现在最优解已经出来了，只用造诗篇和应龙两把即可。
+
+然后配一把序章给的武士刀。
+
