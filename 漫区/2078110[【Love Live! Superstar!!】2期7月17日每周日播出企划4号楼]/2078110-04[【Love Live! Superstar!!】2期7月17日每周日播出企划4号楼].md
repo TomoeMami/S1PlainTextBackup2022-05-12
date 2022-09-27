@@ -15168,3 +15168,33 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 微博不是有吗</blockquote>
 主要是想看看能不能吃自助（
 
+
+
+*****
+
+####  ViyViy  
+##### 5939#       发表于 2022-9-27 16:23
+
+除非三期喝茶流谈笑间连冠，不然VN继续当劲敌这个想法我还挺赞同的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5940#       发表于 2022-9-27 16:25
+
+ 本帖最后由 稀勢のささ 于 2022-9-27 16:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还不是因为宁愿祖宗之法都不要了也要搞成初3 不是三期的话何必呢
+
+
+
+*****
+
+####  plazum  
+##### 5941#       发表于 2022-9-27 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671734&amp;ptid=2078110" target="_blank">甘蓝巧克力 发表于 2022-9-27 15:39</a>
+
+贴吧连一堆可推围攻堇推这种话都说的出来还能怎样，动画内岁月史书场外也跟着一起岁月史书是吧 ...</blockquote>
+一堆可推围攻堇推，这何尝不是一种欢喜冤家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

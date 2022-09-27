@@ -17477,3 +17477,23 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 唯一GE的可能性就是放下老妈和大哥的悲愿——站在荒坂塔顶和「我就到这里了接下来该你走下去了」——成为露西一个人的梦想伙伴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jacket  
+##### 2968#       发表于 2022-9-27 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672066&amp;ptid=2069884" target="_blank">Lokad 发表于 2022-9-27 16:04</a>
+
+太阳结局蓝眼睛先生发的袭击水晶宫任务是夜氏上太空的开端。
+
+可惜2077半成品就留个新美dlc了。
+
+ ...</blockquote>
+那个是游戏发售前官方宣传Lizzy Wizzy以及她的歌曲，Lizzy Wizzy本人出演自己的歌曲MV，不是奥特。
+
+忘了是谁最先把Lizzy Wizzy在MV里的造型看成后来游戏里出场的奥特，然后各种分析解读传来传去。
+
+以前游戏专楼里讨论过。
+
