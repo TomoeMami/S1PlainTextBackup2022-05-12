@@ -17300,3 +17300,12 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 <img src="https://p.sda1.dev/7/a9a938fc43cab95d053018f71b6753c1/illust_101474554_20220927_123740.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/07f94cdd38e9a652f5b9fe8602da36bd/illust_101474554_20220927_130750.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  treexper  
+##### 2955#       发表于 2022-9-27 13:38
+
+现在黑客流穿墙只能穿设备，而且电不死会回溯找定位（之前只有对面的黑客能找），比之前弱多了，不过之前那种实在太无敌，也没什么意思。
+
