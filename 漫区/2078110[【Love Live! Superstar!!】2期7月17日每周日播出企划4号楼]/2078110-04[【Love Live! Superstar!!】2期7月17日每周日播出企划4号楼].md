@@ -15842,3 +15842,51 @@ liella第一、vn第二，那我觉得京极也太自我感觉良好了，中山
 
 看看nagi
 
+
+
+*****
+
+####  we89623  
+##### 5994#       发表于 2022-9-27 22:12
+
+ 本帖最后由 we89623 于 2022-9-27 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676187&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-9-27 21:45</a>
+
+如果最后一集
+
+“新学期开始了，但，可可消失了”
+
+作为最后一句话收尾，把第二季完结，我tm直接跟大花老师一 ...</blockquote>
+对，剧场版8人去上海找可可，然后在福利蛋下唱歌跳舞，万代计划通。
+
+*****
+
+####  ads147147  
+##### 5995#       发表于 2022-9-27 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676405&amp;ptid=2078110" target="_blank">凡人 发表于 2022-9-27 22:07</a>
+携手出线，两组共用一个名额，12集9+1夺冠</blockquote>
+如果是九➕一出线打到夺冠，对于一潭死水的现状来说还真是突破性的安排，我只能说你们牛逼我陪不起。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 5996#       发表于 2022-9-27 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676428&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-9-27 22:09</a>
+看看nagi</blockquote>
+真就是静态美人了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 5997#       发表于 2022-9-27 22:21
+
+<blockquote>优妮可 发表于 2022-9-27 22:09
+看看nagi</blockquote>
+感觉拍得不太好，打光有点问题
+
