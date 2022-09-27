@@ -46,3 +46,23 @@
 
 unya可千可恋都画过的
 
+
+
+*****
+
+####  ruffian  
+##### 6006#       发表于 2022-9-27 23:45
+
+鱼今年无论是角色还是中之人过生日祝福都挺随意的，也就去年一人一幅画
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 6007#       发表于 2022-9-27 23:49
+
+うにゃ可堇本还没整理完呢 我理想可堇就是他二期前画的几个小故事那种 哎<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
