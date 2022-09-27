@@ -15513,3 +15513,15 @@ CP投票结束就删了，我早上看可堇领先接近300转，不知道最后
 
 还是广播有意思
 
+
+
+*****
+
+####  ViyViy  
+##### 5969#       发表于 2022-9-27 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57674579&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-27 19:17</a>
+
+但是京极和花田只是用动画把歌串起来而已，哪一集唱什么歌，c位是谁，这些不是他们能决断的。可可到现在没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪还指望曲子，人写清楚先，曲子，我们用抢的（指选举）
+
