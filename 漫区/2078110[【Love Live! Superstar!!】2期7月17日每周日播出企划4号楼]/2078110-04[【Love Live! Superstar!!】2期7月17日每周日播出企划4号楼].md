@@ -15355,3 +15355,36 @@ snp下一年该毕业了还怎么念
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5955#       发表于 2022-9-27 17:53
+
+ 本帖最后由 稀勢のささ 于 2022-9-27 17:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">憋着不说的理由第一季不就提过了
+真把liella的目标变成为了不让可可被带回去才怪吧  我说难听点 你可可配吗 又不是香哥哥 真这么写也只会难看还招黑
+
+*****
+
+####  ViyViy  
+##### 5956#       发表于 2022-9-27 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673558&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-27 17:52</a>
+
+不是嗷，动画开播前官网上就有了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+好吧，失格了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 5957#       发表于 2022-9-27 18:01
+
+星二期BD1什么销量
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
