@@ -14625,3 +14625,20 @@ FdlhPL_UoAA_A22.jpg
 
 结那来看她们的live，巡演也全程参与，这点互动感觉还好吧。要不是薇恩设定是初中生，真感觉她是桑尼帕高待遇版。
 
+
+
+*****
+
+####  lj205  
+##### 5883#       发表于 2022-9-27 10:51
+
+<img src="https://img.saraba1st.com/forum/202209/27/104952i1jl7tomj1iopj0t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7454BD8C-5E81-4D8F-B741-9FF4BE4892CA.jpeg</strong> (207.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 10:49 上传
+
+官方要么气死，花死力气都没把土妹捧起来还崩了。要么觉得，我们都这么压制你可可还有人买单，那可以继续放心继续呗
+
