@@ -17753,3 +17753,15 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 
 —— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  saverok  
+##### 2988#       发表于 2022-9-28 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678676&amp;ptid=2069884" target="_blank">蕉遇鹿 发表于 2022-9-28 07:07</a>
+我有一个疑问，夜之城的死亡率到底有多高。
+我看底层生活状态感觉年人口死亡率至少两位数往上。可是游戏和 ...</blockquote>
+纽约天天死人 会缺人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
