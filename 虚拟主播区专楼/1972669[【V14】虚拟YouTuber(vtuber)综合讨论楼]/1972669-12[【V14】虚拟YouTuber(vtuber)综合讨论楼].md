@@ -10482,3 +10482,16 @@ vspo你再想想？看看你这尺寸再看看价格？エマ和べに定价不�
 八云那个袋子都卖2000了，这个卖3000没啥问题吧</blockquote>
 べに那个皮的啊，去掉周边要素也差不1000日元左右，但67这个尺寸的挂偶宝可梦的官方版都不过1500左右。
 
+
+
+*****
+
+####  IL282  
+##### 17468#       发表于 2022-9-27 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57661962&amp;ptid=1972669" target="_blank">FlinN 发表于 2022-9-26 21:09</a>
+坏头都是finana先开的（</blockquote>
+finana那个事比较大,应该论外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
