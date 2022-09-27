@@ -3517,3 +3517,17 @@ ANBERNIC RG353V及RG353VS 开售；
 
 KTR1开发订单登记；</blockquote>
 
+
+
+*****
+
+####  02031f84  
+##### 286#       发表于 2022-9-27 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57647188&amp;ptid=2086469" target="_blank">83913536 发表于 2022-9-25 22:11</a>
+
+7寸标准45-48w，又不需要都开28w，开15w和deck同样水平，那就是1.5-2小时续航。
+
+如果是7寸往上的巨无霸， ...</blockquote>
+看了小峰峰的视频在15w的情况下帧数和sd差不多，但续航领先太多了。
+

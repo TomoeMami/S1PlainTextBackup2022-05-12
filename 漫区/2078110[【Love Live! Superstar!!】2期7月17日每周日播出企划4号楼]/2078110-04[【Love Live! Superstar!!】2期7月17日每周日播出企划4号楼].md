@@ -14748,3 +14748,63 @@ margaret说的没错这届school idol确实不行，同样单人舞台自己就�
 
 赌一下，到时候vn和土妹子的差距会差一个恋恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 5895#       发表于 2022-9-27 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668277&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-27 11:28</a>
+
+赌一下，到时候vn和土妹子的差距会差一个恋恋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来之前谷子价格总价恋是最低的
+
+*****
+
+####  沙茶酱  
+##### 5896#       发表于 2022-9-27 11:35
+
+那我觉得VN入团会是高人气角色之一
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  凡人  
+##### 5897#       发表于 2022-9-27 11:37
+
+那不也没差多少吗
+
+*****
+
+####  稀勢のささ  
+##### 5898#       发表于 2022-9-27 11:38
+
+衣服挺色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 5899#       发表于 2022-9-27 11:39
+
+就VN这塑造，没被炎上算不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下一集来个惊天洗白，然后中之人实力全团最强说不定能挽救
+
+*****
+
+####  Kfly  
+##### 5900#       发表于 2022-9-27 11:39
+
+真的会是高人气吗…………
+
+薇恩的第一印象实在是有些糟糕啊，这点上比恋还要严重，恋还有“学生会长真香”传统加成呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真人另说
+
+*****
+
+####  优妮可  
+##### 5901#       发表于 2022-9-27 11:40
+
+结那也可以涩
+
