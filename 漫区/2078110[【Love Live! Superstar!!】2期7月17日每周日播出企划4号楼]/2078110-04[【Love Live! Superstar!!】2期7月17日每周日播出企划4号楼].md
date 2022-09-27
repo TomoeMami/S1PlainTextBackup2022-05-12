@@ -14939,3 +14939,12 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 隔壁LGA论坛哪个在这视奸再跑那边说可单推魔怔？有话这里说呗？合着别人怎么喷可可都可以，可推调侃一下就是阴谋论还招黑，可真了不得<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 5914#       发表于 2022-9-27 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或许他说的隔壁是贴吧
+
