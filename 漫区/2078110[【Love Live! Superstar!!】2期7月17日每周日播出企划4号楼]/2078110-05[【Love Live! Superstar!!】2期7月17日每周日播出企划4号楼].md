@@ -107,3 +107,25 @@ twi@erumsostkkcsrn
 
 现在感觉要是真的有其他三期生，这明显很不公平
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6013#       发表于 2022-9-28 00:24
+
+ 本帖最后由 稀勢のささ 于 2022-9-28 00:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">广播还得尬吹剧情也太惨了 我看她们吹的自己都快蚌不住想笑了
+
+*****
+
+####  player3960  
+##### 6014#       发表于 2022-9-28 00:29
+
+ 本帖最后由 player3960 于 2022-9-28 00:31 编辑 
+
+该说幸亏鲤鱼这几期不上，那天生放看她也没想说啥的样子<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
