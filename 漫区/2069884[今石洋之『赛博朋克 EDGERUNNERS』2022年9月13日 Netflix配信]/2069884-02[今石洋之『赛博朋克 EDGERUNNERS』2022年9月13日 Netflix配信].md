@@ -17338,3 +17338,25 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 只是可怜了丽贝卡，她真的很好，也没做错什么，却被锤了个稀巴烂，这才是本片真正毒到我的地方。
 
+
+
+*****
+
+####  Lokad  
+##### 2958#       发表于 2022-9-27 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57648194&amp;ptid=2069884" target="_blank">鱼雷鲨 发表于 2022-9-25 23:12</a>
+
+月球是真的世外桃源，但是2077里有文件说夜氏公司正准备武力征服月球…… ...</blockquote>
+没，有一份记录是太空居住感想，里面提到月球殖民地是要点脸面的人都不会去的地方。有从欧空局手里武装独立出来的城市，号称能够自给自足（一群挖矿的武装独立，改了个轨道打击武器）
+
+真体面人都是待私人空间站的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/27/153938fx6jjkajj32gkmqq.jpg" referrerpolicy="no-referrer">
+
+<strong>f46fc0773912b31bc1859cf6c318367ad8b4e163.jpg</strong> (274.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 15:39 上传
+

@@ -15010,3 +15010,32 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 5922#       发表于 2022-9-27 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671575&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-27 15:28</a>
+泥潭那边大多数都是DD吧？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+上周黑泥集中喷发已经打击到正常人
+我现在也在努力劝说大家让讨论氛围回复 现在…倒还好了
+就是主要劝大家不要没事去注视深渊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 5923#       发表于 2022-9-27 15:33
+
+经典招黑，也不知道是哪家搁那儿合流男女厕“纯路人”双标骂角色上升中之人天天在叔叔家被害妄想企划针对你推，谁欺负你推，搁那儿单飞独美转学三件套的再出个正常人之靴。我也不想看啊，奈何她喇叭那么大我躲都躲不掉啊，既然这么想我记着那我就记着了。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 5924#       发表于 2022-9-27 15:39
+
+贴吧连一堆可推围攻堇推这种话都说的出来还能怎样，动画内岁月史书场外也跟着一起岁月史书是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
