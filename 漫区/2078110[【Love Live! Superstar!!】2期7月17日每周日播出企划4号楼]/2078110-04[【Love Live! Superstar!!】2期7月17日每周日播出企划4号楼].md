@@ -15198,3 +15198,19 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 贴吧连一堆可推围攻堇推这种话都说的出来还能怎样，动画内岁月史书场外也跟着一起岁月史书是吧 ...</blockquote>
 一堆可推围攻堇推，这何尝不是一种欢喜冤家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5942#       发表于 2022-9-27 16:34
+
+VN入队之后大概能很好的占据被可嘴臭的生态位  这第十集就不能嘴臭了制作组指不定憋得慌<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 5943#       发表于 2022-9-27 16:36
+
+vn不入团的话以目前的待遇来看至少能有3个mv
+

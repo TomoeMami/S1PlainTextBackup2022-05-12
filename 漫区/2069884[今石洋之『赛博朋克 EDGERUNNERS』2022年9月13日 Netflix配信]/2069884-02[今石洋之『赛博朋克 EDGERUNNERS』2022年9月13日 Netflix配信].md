@@ -17497,3 +17497,17 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 以前游戏专楼里讨论过。
 
+
+
+*****
+
+####  Lokad  
+##### 2969#       发表于 2022-9-27 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672468&amp;ptid=2069884" target="_blank">jacket 发表于 2022-9-27 16:32</a>
+
+那个是游戏发售前官方宣传Lizzy Wizzy以及她的歌曲，Lizzy Wizzy本人出演自己的歌曲MV，不是奥特。
+
+忘了 ...</blockquote>
+居然是Lizzy的，主要一片赛博空间出现个女人让蓝色遍布城市，满满AI味儿。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
