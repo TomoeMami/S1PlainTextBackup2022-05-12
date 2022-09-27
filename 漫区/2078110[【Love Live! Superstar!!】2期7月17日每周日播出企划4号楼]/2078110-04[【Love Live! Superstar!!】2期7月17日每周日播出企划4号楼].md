@@ -15754,3 +15754,91 @@ liella第一、vn第二，那我觉得京极也太自我感觉良好了，中山
 名次都公布到第3了 总不能说Liella和VN有一个直接掉到圈外了 那不真成LL史上最大冲击波了
 突破预选决赛又败退…我只能说可能性不是0<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 5991#       发表于 2022-9-27 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676350&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-9-27 22:01</a>
+
+都输了应该不会
+
+名次都公布到第3了 总不能说Liella和VN有一个直接掉到圈外了 那不真成LL史上最大冲击波了
+
+ ...</blockquote>
+其实也可能………平手？感觉现在的ll大赛真是什么情况都有可能出现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但考虑到只有十二集有live&amp;还要演决赛，这情况不太可能就是了
+
+*****
+
+####  凡人  
+##### 5992#       发表于 2022-9-27 22:07
+
+携手出线，两组共用一个名额，12集9+1夺冠
+
+*****
+
+####  优妮可  
+##### 5993#       发表于 2022-9-27 22:09
+
+<img src="https://img.saraba1st.com/forum/202209/27/220916bkdeuz07gbyyuob4.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285610604.jpg</strong> (95.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220916zy1puymuu7tddsky.jpg" referrerpolicy="no-referrer">
+
+<strong>20220927_212919.jpg</strong> (319.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220916f255kdbl1rye1goo.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285612478.jpg</strong> (107.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220916ramrhrhemph1ympa.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285614038.jpg</strong> (97.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220917fo0f3lflguum1gf7.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285615664.jpg</strong> (111.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220917v4fa0f0v8v90fval.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285617671.jpg</strong> (102.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202209/27/220917m4oaoujnqp33a3ul.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1664285619278.jpg</strong> (163.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 22:09 上传
+
+看看nagi
+
