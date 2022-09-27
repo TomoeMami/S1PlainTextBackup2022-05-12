@@ -15436,3 +15436,20 @@ snp下一年该毕业了还怎么念
 
 2期鲤鱼配的那个低音声线可能就是可可原本的声线
 
+
+
+*****
+
+####  lj205  
+##### 5962#       发表于 2022-9-27 18:34
+
+<img src="https://img.saraba1st.com/forum/202209/27/183251ypb06y0bg0uggnu5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>21F45F68-8234-4591-96E3-014C41923642.jpeg</strong> (644.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-27 18:32 上传
+
+CP投票结束就删了，我早上看可堇领先接近300转，不知道最后怎样
+
