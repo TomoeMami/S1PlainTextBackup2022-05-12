@@ -17684,3 +17684,16 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 说错，是CDPR自己做了第一集全部分镜然后拿给一堆动画公司看，扳机和IG愿意接手
 
+
+
+*****
+
+####  lucky95  
+##### 2983#       发表于 2022-9-28 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676051&amp;ptid=2069884" target="_blank">武装野狼 发表于 2022-9-27 21:34</a>
+大卫主要缺乏主见，梦想都是别人的自己根本不知道应该干嘛，有了斯安威斯坦也从来没想过如何最大发挥优势 ...</blockquote>
+一个高中生，脑瓜里又没有John Wick ，又不是转生到赛博异世界的爱因斯坦，能有什么主见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
