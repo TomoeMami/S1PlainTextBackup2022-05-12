@@ -15723,3 +15723,34 @@ nako：？她这次不会来啊
 
 这集明显比上一集好多了，1超过50,2和3超过34，要知道上一集4和5加起来都30了
 
+
+
+*****
+
+####  ruffian  
+##### 5988#       发表于 2022-9-27 21:52
+
+下一集vn和liella都输了还真不是没可能。或者这次打败vn挺进决赛，然后第12集决赛输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Skyline_R  
+##### 5989#       发表于 2022-9-27 21:59
+
+要我说，vn和liella不管谁拿第二我都觉得有问题
+
+vn第一、liella第二肯定是要被骂的，liella直接菜中菜、第10集的开摆日常回跟小丑一样
+
+liella第一、vn第二，那我觉得京极也太自我感觉良好了，中山直哉合作的分镜演出能爆杀京极他自己的live分镜，还敢给自己排第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 5990#       发表于 2022-9-27 22:01
+
+都输了应该不会
+名次都公布到第3了 总不能说Liella和VN有一个直接掉到圈外了 那不真成LL史上最大冲击波了
+突破预选决赛又败退…我只能说可能性不是0<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
