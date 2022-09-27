@@ -17666,3 +17666,21 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 
 我身边评价最高的就是第一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 2982#       发表于 2022-9-28 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57677542&amp;ptid=2069884" target="_blank">咸鱼无双 发表于 2022-9-28 00:04</a>
+
+卧槽
+
+这消息出处是哪
+
+我身边评价最高的就是第一集</blockquote>
+[https://www.youtube.com/watch?v=VgUv3wZnX-Q](https://www.youtube.com/watch?v=VgUv3wZnX-Q)
+
+说错，是CDPR自己做了第一集全部分镜然后拿给一堆动画公司看，扳机和IG愿意接手
+
