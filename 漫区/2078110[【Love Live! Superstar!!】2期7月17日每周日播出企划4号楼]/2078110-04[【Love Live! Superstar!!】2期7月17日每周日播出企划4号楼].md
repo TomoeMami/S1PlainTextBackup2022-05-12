@@ -15388,3 +15388,19 @@ snp下一年该毕业了还怎么念
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ViyViy  
+##### 5958#       发表于 2022-9-27 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673564&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-27 17:53</a>
+
+憋着不说的理由第一季不就提过了
+
+真把liella的目标变成为了不让可可被带回去才怪吧  我说难听点 你 ...</blockquote>
+所以极端点说S2E9CP回都不是，就是堇的形象再深化，23集下来可可的中心思想不仅没变过还早在S1E10说得清清楚楚了，就是没人听进去了，好家伙现在还是没多少人听进去，甚至事情都抖出来了屁也不放一个，你好歹补一个可可对大家说别放在心上也好吧。
+
+也不怪霓虹本地可推开始搞回国文学遗憾文学了，这帮子人就是欠痛，真的失去了才知道啥叫痛贯天灵。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
