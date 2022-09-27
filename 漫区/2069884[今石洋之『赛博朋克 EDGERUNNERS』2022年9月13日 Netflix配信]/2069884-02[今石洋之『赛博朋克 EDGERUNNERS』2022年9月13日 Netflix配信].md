@@ -17650,3 +17650,19 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 上一次玩2077，没打通全结局和玩的是骇客流不打架，所以这次二周目体验很不错及感受到了更多边缘行者的彩蛋 ...</blockquote>
 大卫主要缺乏主见，梦想都是别人的自己根本不知道应该干嘛，有了斯安威斯坦也从来没想过如何最大发挥优势，只能单纯的照抄别人的跑步跑不过就换肺。战斗只会硬刚，第一次和富二代打架时候一拳差点把自己手打断，后来有了手炮还是上去就一拳，没成才紧急跳走开炮。
 
+
+
+*****
+
+####  咸鱼无双  
+##### 2981#       发表于 2022-9-28 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672882&amp;ptid=2069884" target="_blank">鱼雷鲨 发表于 2022-9-27 17:03</a>
+
+第一集其实是CDPR自己做的……</blockquote>
+卧槽
+
+这消息出处是哪
+
+我身边评价最高的就是第一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
