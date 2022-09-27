@@ -3495,3 +3495,25 @@ ayaneo air似乎是把掌机上的按键映射成一个xbox手柄，接扩展坞
 
 —— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bypass  
+##### 285#         楼主| 发表于 2022-9-27 08:19
+
+[https://www.bilibili.com/video/BV1R14y1h7Fs](https://www.bilibili.com/video/BV1R14y1h7Fs)
+
+本周国产掌机周报。
+ <blockquote>ONEXPLAYER 发布多款WIN掌机；
+
+AYANEO发布“AYANEO 2 &amp; GEEK 详细内容；
+
+AOKZOE展示专属手柄全控软键盘；
+
+GKD下周四线上直播预告；
+
+ANBERNIC RG353V及RG353VS 开售；
+
+KTR1开发订单登记；</blockquote>
+
