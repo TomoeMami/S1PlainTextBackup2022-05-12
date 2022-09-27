@@ -17091,3 +17091,35 @@ cdpr那边的制片人在红迪上说1-6集大卫是17，变大只佬后是18，
 如果带入露西的视角，会发现这是一个严重缺乏安全感的人对于亲密关系得而复失的故事，本来吧一个人也活的挺洒脱的，但是建立了想都不敢想的亲密关系后又无可挽救的失去，这种感觉太难受了。
 所以有人说bmg只是一层皮，你只看bmg打boss那确实看不出什么来，你说这就是古早言情剧也不能说没有道理，只不过和电视剧拉扯大几十集不同，一切给你压缩到10集的赛博朋世界观下，那确实是剂量很大
 
+
+
+*****
+
+####  未向heart  
+##### 2938#       发表于 2022-9-27 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664882&amp;ptid=2069884" target="_blank">blackjeo1 发表于 2022-9-27 01:36</a>
+
+重锤估计早就切掉了，怎么当人家的孙女婿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重锤换过不少义体，咱们现在看到的这个版本，是最新版本，他之前还有别的义体，好像是有更接近人类的版本，再说有神经传感器，直接制造感觉给大脑，所以哪怕是铁的，只要传感器够灵敏，应该也能感觉到柔软
+
+*****
+
+####  01一14  
+##### 2939#       发表于 2022-9-27 08:54
+
+看了前三集，剧本太标准了，哪里有激励事件，哪里该有突发事件，哪里会有虚假的成功，这应该是cdrp给的架构。
+看过巫师3一个女编剧的采访，她说她比较喜欢有趣的反派，让法拉第当主角不知道是不是她写？她写的巫师3那段应该是血腥男爵？
+
+*****
+
+####  未向heart  
+##### 2940#       发表于 2022-9-27 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665366&amp;ptid=2069884" target="_blank">琦玉 发表于 2022-9-27 04:44</a>
+
+好像不是约会吧，那时是美智子刚毕业然后在酒吧庆祝的时候跟重锤搞上了，大概就是ons而已，不得不说她口 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得有人问过庞麦德重锤平时干啥，他回了一句和美智子约会，还有看动画啥的，我也不知道是不是认真的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还提过三郎废了不少劲让重锤别给美智子看门之类的，还有什么不分手重锤会被坦克碾之类的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美智子和重锤是后来分手的，应该
+
