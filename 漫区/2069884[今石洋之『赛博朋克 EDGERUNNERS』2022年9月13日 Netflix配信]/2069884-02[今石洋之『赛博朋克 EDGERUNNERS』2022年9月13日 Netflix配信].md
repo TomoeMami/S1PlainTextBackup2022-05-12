@@ -17445,3 +17445,35 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 话说荒坂还有自己的学校？游戏里没见过校服妹子</blockquote>
 不是被拆了，是普通医院水平不行，可能甚至不如去找卖片的黑诊所
 
+
+
+*****
+
+####  Lokad  
+##### 2966#       发表于 2022-9-27 16:04
+
+ 本帖最后由 Lokad 于 2022-9-27 16:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671877&amp;ptid=2069884" target="_blank">鱼雷鲨 发表于 2022-9-27 15:50</a>
+
+这人是真的有钱，钞能力啊……
+
+夜氏上月球的计划是这里提的</blockquote>
+太阳结局蓝眼睛先生发的袭击水晶宫才是夜氏上太空的开端。
+
+蓝眼睛要全部的客户数据，加上支线任务里夜氏的洗/脑能力+超强骇客能力，明示DLC/续作新boss了，对奥特说谢谢也会说真的要谢我吗？除了大公司压迫外还有一条AI接管社会的暗线。（有个歌曲pv奥特是钻进夜之城市中心橄榄整个夜之城，配上夜氏暗线更美味。）
+
+可惜2077半成品就留个新美dlc了。
+
+*****
+
+####  瓦西里耶维奇  
+##### 2967#       发表于 2022-9-27 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671342&amp;ptid=2069884" target="_blank">mimighost 发表于 2022-9-27 15:13</a>
+我真的很想在你家过夜的后颈真强
+
+回到作品本身，可能是我对于david这个角色没啥代入。对我来说，这 ...</blockquote>
+我在Q群里形容大卫是「失败版的卫宫士郎」，理想全是借来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+唯一GE的可能性就是放下老妈和大哥的悲愿——站在荒坂塔顶和「我就到这里了接下来该你走下去了」——成为露西一个人的梦想伙伴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

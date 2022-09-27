@@ -15123,3 +15123,21 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 出了啊 那个一期加きなこ的趴趴就是</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没说清楚，我主要指立牌那些，这个趴趴感觉还是校服那一套最可爱
 
+
+
+*****
+
+####  星降る森  
+##### 5934#       发表于 2022-9-27 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VN入团必不可能高人气，要是靠中之人就能高人气那恋早就薄纱了，纸片人的VN除了像鬼一样stalk点名装逼以外有什么实质表现吗？
+
+我觉得这么多代劲敌形象加起来可能都没arise能打，可惜arise没赶上好时候
+
+*****
+
+####  奥柏伦亲王  
+##### 5935#       发表于 2022-9-27 16:09
+
+问个问题，青山姐的新写真实在太香了，搜了下发现有一键下载的油猴脚本，就直接去grajapa上买了数字版，但是好象不能下<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在只能翻着看，放大缩小也不方便，请问有人在这个网站上下过写真照片吗
+
