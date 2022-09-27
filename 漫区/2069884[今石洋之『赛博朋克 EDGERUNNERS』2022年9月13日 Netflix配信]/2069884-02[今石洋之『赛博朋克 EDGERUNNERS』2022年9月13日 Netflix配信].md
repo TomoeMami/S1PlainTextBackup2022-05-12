@@ -17585,3 +17585,32 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 公司v不是反情报部二把手，给v派活的詹金斯才是反情报部副部长，他们提到的艾伯 ...</blockquote>
 艾伯纳西是特别行动部总监，不知道是反情报部下属部门还是同级，但至少比詹金斯官大。
 
+
+
+*****
+
+####  白左  
+##### 2976#       发表于 2022-9-27 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671342&amp;ptid=2069884" target="_blank">mimighost 发表于 2022-9-27 15:13</a>
+
+我真的很想在你家过夜的后颈真强
+
+回到作品本身，可能是我对于david这个角色没啥代入。对我来说，这 ...</blockquote>
+她真的很温柔，温柔到不像是夜之城里的人
+
+如此温柔的灵魂毫无价值、毫无意义、莫名其妙地被随手践踏掉了
+
+这正是cyberpunk世界观下的日常
+
+这口屎真的有毒，但是我还是吞下去了
+
+*****
+
+####  JY要塞  
+##### 2977#       发表于 2022-9-27 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672899&amp;ptid=2069884" target="_blank">Labborn 发表于 2022-9-27 17:05</a>
+闷茶子，我的超人……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">多发点
+
