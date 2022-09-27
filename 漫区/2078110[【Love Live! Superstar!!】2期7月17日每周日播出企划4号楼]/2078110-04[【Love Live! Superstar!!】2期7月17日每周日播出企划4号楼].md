@@ -14572,3 +14572,14 @@ FdlhPL_UoAA_A22.jpg
 
 看到打铁和铃原回复结那的推，猜测她们一起排练有一段时间，还有yunana也给了鼓励的话。上面大人物装死，cv们还是清楚自己的处境<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 5880#       发表于 2022-9-27 09:42
+
+结那到底是不是三期生就看11集了，要是VN说她要报考结丘，那么跑不掉了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
