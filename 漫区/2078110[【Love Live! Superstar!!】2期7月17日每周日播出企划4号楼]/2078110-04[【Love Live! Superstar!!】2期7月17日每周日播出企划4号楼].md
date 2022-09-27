@@ -15336,3 +15336,22 @@ snp下一年该毕业了还怎么念
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 5953#       发表于 2022-9-27 17:45
+
+可那个小太阳好像是后加的？我记得最开始人物介绍没写，然后是菜鱼节目鱼第一次说了，随后官方开国际抖音的时候把小太阳加上去了。
+
+*****
+
+####  ruffian  
+##### 5954#       发表于 2022-9-27 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57673471&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-09-27 17:45:38</a>
+可那个小太阳好像是后加的？我记得最开始人物介绍没写，然后是菜鱼节目鱼第一次说了，随后官方开国际抖音的 ...</blockquote>不是嗷，动画开播前官网上就有了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
