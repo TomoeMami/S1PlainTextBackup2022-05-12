@@ -15160,3 +15160,15 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 都是送的为啥差别那么大</blockquote>
 EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2858#       发表于 2022-9-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57675562&amp;ptid=2084912" target="_blank">areklose 发表于 2022-9-27 20:51</a>
+
+这送的蓝卡回收是不是有点悲剧。。</blockquote>
+活动里能上就行了，还要什么自行车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
