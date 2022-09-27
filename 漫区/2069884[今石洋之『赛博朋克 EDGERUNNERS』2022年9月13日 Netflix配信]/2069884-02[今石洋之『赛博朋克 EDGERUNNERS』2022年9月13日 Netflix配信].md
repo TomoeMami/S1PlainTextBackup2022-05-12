@@ -17614,3 +17614,15 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 闷茶子，我的超人……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">多发点
 
+
+
+*****
+
+####  机械烈海王  
+##### 2978#       发表于 2022-9-27 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57672899&amp;ptid=2069884" target="_blank">Labborn 发表于 2022-9-27 17:05</a>
+
+闷茶子，我的超人……</blockquote>
+产量好高啊，多画点
+
