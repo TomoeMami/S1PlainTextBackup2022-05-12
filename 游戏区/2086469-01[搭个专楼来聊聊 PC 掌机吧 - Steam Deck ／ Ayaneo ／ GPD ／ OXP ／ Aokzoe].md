@@ -3540,3 +3540,14 @@ KTR1开发订单登记；</blockquote>
 
 有交流群嘛 多机种的
 
+
+
+*****
+
+####  弑古斯  
+##### 288#       发表于 2022-9-27 18:57
+
+上次deck预订过期了一周我才发现，这次加强了查看邮箱的频率，结果预订从通知到过期只给2天时间，又晚了2天直到今天才发现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不买了还不行么，被恶心到了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
