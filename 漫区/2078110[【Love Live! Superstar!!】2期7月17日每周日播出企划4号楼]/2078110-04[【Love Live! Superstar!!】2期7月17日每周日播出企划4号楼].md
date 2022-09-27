@@ -14912,3 +14912,12 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5911#       发表于 2022-9-27 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星的角色人气什么的 不如说二期这么搞大家都不咋地 虽然可可涨不了  但大家都不行（）
+
