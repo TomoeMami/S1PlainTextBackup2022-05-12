@@ -14642,3 +14642,23 @@ FdlhPL_UoAA_A22.jpg
 
 官方要么气死，花死力气都没把土妹捧起来还崩了。要么觉得，我们都这么压制你可可还有人买单，那可以继续放心继续呗
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5884#       发表于 2022-9-27 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57667648&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-27 10:51</a>
+官方要么气死，花死力气都没把土妹捧起来还崩了。要么觉得，我们都这么压制你可可还有人买单，那可以继 ...</blockquote>
+没怎么关注，为啥说捧土妹子失败了？
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 5885#       发表于 2022-9-27 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好几把怪啊 官推昨天发的个新趴趴的谷子 结果只有一期生+きなこ
+
