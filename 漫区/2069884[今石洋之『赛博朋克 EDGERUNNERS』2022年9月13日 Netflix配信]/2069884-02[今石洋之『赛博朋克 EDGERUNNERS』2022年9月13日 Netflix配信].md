@@ -17187,3 +17187,24 @@ David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，�
 
 这游戏二周目就是重开，不过能靠打mod继承一周目的物品和经验
 
+
+
+*****
+
+####  lucky95  
+##### 2946#       发表于 2022-9-27 11:57
+
+ 本帖最后由 lucky95 于 2022-9-27 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665374&amp;ptid=2069884" target="_blank">heresiarch 发表于 2022-9-27 04:56</a>
+
+因为听说这动画很好，于是把2年前就买了但一点都没玩的2077拿出来玩，发现的确没有想象中糟糕；第一章还未 ...</blockquote>
+造枪是中后期才比较值得点的技能，尤其是后期要打出逆天伤害只能靠造枪造插件了
+
+这JB游戏武器都不会随着玩家自身等级提升，前中期捡到神器用5-6个等级就不如白板了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+不自己做武器后期伤害只能不停地去捡枪，提升有限
+
+要打枪砍人，前期点身体敏捷战力上来才是重点
+
+当然骇客流就是完全不同的体验，基本就是无战斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

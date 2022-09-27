@@ -14849,3 +14849,21 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为阿虚（不是，个人还是很喜欢长马尾的，而且恋恋的特色也只剩下用长马尾攻击敌人了。
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 5906#       发表于 2022-9-27 11:58
+
+二期单纯就是写烂了，什么打压可可都属于自我意识过剩，二期9个角色，最起码烂了5-6个吧，别人且不说，香音和土妹都是明着要力捧的，不也一样烂到无力吐槽
+
+*****
+
+####  沙茶酱  
+##### 5907#       发表于 2022-9-27 12:00
+
+二期属于写得少就不会烂，写得多就一定烂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
