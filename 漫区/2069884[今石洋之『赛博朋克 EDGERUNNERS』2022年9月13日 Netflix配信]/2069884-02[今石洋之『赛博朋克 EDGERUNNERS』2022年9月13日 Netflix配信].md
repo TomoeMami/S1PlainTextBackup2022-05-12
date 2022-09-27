@@ -17208,3 +17208,17 @@ David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，�
 
 当然骇客流就是完全不同的体验，基本就是无战斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jacket  
+##### 2947#       发表于 2022-9-27 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665374&amp;ptid=2069884" target="_blank">heresiarch 发表于 2022-9-27 04:56</a>
+
+因为听说这动画很好，于是把2年前就买了但一点都没玩的2077拿出来玩，发现的确没有想象中糟糕；第一章还未 ...</blockquote>
+纯黑客流太无敌，等级上去了跟人打起来没有互动，站原地穿墙透视把全场怪弄死自己上去捡东西，跟后台输入无敌指令差不多。
+
+黑客控制绕背扭脖子，或者黑客辅助找把武器输出都挺好玩。
+

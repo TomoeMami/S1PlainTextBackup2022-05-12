@@ -14899,3 +14899,16 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 中式傲娇是啥玩意，我看得少，还有这种属性？
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5910#       发表于 2022-9-27 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668103&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-9-27 11:18</a>
+你是没看到他发的商品情报图吧</blockquote>
+哎呀，网络不好，没看到图
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
