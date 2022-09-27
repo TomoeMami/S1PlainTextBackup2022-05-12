@@ -15138,3 +15138,25 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 这送的蓝卡回收是不是有点悲剧。。</blockquote>
 回收牛逼的蓝卡不是上期活动送过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 2856#       发表于 2022-9-27 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57675913&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-9-27 21:22</a>
+
+回收牛逼的蓝卡不是上期活动送过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是送的为啥差别那么大
+
+*****
+
+####  里村紅葉  
+##### 2857#       发表于 2022-9-27 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676826&amp;ptid=2084912" target="_blank">areklose 发表于 2022-9-27 22:47</a>
+
+都是送的为啥差别那么大</blockquote>
+EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
