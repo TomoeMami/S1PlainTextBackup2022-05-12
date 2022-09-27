@@ -14808,3 +14808,44 @@ margaret说的没错这届school idol确实不行，同样单人舞台自己就�
 
 结那也可以涩
 
+
+
+*****
+
+####  ads147147  
+##### 5902#       发表于 2022-9-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668471&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-27 11:39</a>
+
+真的会是高人气吗…………
+
+薇恩的第一印象实在是有些糟糕啊，这点上比恋还要严重，恋还有“学生会长真香” ...</blockquote>
+vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的拉拉大赛很cjb。
+
+并且黑长直高马尾似乎是debuff。
+
+*****
+
+####  稀勢のささ  
+##### 5903#       发表于 2022-9-27 11:42
+
+ 本帖最后由 稀勢のささ 于 2022-9-27 11:50 编辑 
+
+恋就没啥能出人气的地方吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 还被上了debuff
+各种二创也不带她玩 别人至少还能固固粉
+甚至连cp都没有 
+
+*****
+
+####  starring  
+##### 5904#       发表于 2022-9-27 11:47
+
+最初人设图放出来就有人说过恋没特色，结果动画不但没补救还加一堆debuff<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5905#       发表于 2022-9-27 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为阿虚（不是，个人还是很喜欢长马尾的，而且恋恋的特色也只剩下用长马尾攻击敌人了。
+

@@ -17171,3 +17171,19 @@ David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，�
 
 然后配一把序章给的武士刀。
 
+
+
+*****
+
+####  lucky95  
+##### 2945#       发表于 2022-9-27 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665312&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 03:58</a>
+
+太久没玩了，请问现在什么流派强一点啊？一周目是黑客流，貌似当时有个什么穿透手枪还是什么爆头流伤害巨 ...</blockquote>
+最强还是黑客流和开斯安砍菜流
+
+手枪不自己做的话伤害低得可怜<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+这游戏二周目就是重开，不过能靠打mod继承一周目的物品和经验
+
