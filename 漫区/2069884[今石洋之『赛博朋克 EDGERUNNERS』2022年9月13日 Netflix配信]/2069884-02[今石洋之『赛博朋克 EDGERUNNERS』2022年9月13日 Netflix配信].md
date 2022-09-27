@@ -17123,3 +17123,24 @@ cdpr那边的制片人在红迪上说1-6集大卫是17，变大只佬后是18，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还提过三郎废了不少劲让重锤别给美智子看门之类的，还有什么不分手重锤会被坦克碾之类的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美智子和重锤是后来分手的，应该
 
+
+
+*****
+
+####  拎壶冲_  
+##### 2941#       发表于 2022-9-27 09:26
+
+<blockquote>三千珈蓝 发表于 2022-9-27 03:38
+那是和义体大夫拿了那九管猛药之后，大夫说了药用完了你也就彻底疯特了，他在现场见过大哥大嫂的下场，不 ...</blockquote>
+这种说法有佐证吗，他刚刚还要求露西归队做黑客，怎么也不像怕连累露西的样子。
+
+*****
+
+####  MrHPQ  
+##### 2942#       发表于 2022-9-27 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57665374&amp;ptid=2069884" target="_blank">heresiarch 发表于 2022-9-27 04:56</a>
+
+因为听说这动画很好，于是把2年前就买了但一点都没玩的2077拿出来玩，发现的确没有想象中糟糕；第一章还未 ...</blockquote>
+2077还特意给出了许多方式让你不用鲨人，比如装在歧路司上的义体插件，装了镇定弹的手炮，黑客流在四相装武器故障、系统重置，重启义眼、记忆擦除打小怪跟打崽一样，20来级满智力满声望就已经天下无敌惹
+

@@ -14563,3 +14563,12 @@ FdlhPL_UoAA_A22.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 5879#       发表于 2022-9-27 09:30
+
+看到打铁和铃原回复结那的推，猜测她们一起排练有一段时间，还有yunana也给了鼓励的话。上面大人物装死，cv们还是清楚自己的处境<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
