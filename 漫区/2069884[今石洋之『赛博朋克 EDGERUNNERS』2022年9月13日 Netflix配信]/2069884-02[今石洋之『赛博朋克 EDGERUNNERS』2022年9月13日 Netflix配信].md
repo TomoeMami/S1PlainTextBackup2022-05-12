@@ -17253,3 +17253,37 @@ David觉得自己这么拼都是为了给兄弟们还有Lucy搏一条生路，�
 现在黑客不能穿墙了</blockquote>
 哈？黑不进室内了？那怎么玩啊？近期跟人肉搏读条吗。
 
+
+
+*****
+
+####  stannislas  
+##### 2951#       发表于 2022-9-27 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668660&amp;ptid=2069884" target="_blank">lucky95 发表于 2022-9-27 11:52</a>
+
+最强还是黑客流和开斯安砍菜流
+
+手枪不自己做的话伤害低得可怜</blockquote>
+uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫色护甲插件了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JY要塞  
+##### 2952#       发表于 2022-9-27 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669514&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 12:52</a>
+
+哈？黑不进室内了？那怎么玩啊？近期跟人肉搏读条吗。</blockquote>
+还可以用摄像头啊
+
+*****
+
+####  lucky95  
+##### 2953#       发表于 2022-9-27 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57669534&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-27 12:53</a>
+
+uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫色护甲插件了 ...</blockquote>
+护甲+时停拿武士刀螳螂刀或是霰弹枪糊脸就好
+
