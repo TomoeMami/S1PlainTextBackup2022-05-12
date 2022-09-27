@@ -15117,3 +15117,12 @@ FSF特番动画化是Aniplex USA直接负责的，跟Aniplex Japan几乎无关
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这送的蓝卡回收是不是有点悲剧。。
 
+
+
+*****
+
+####  新吾  
+##### 2854#       发表于 2022-9-27 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送你老婆卡就别这么高要求了，而且某些情况也能当对策卡
+
