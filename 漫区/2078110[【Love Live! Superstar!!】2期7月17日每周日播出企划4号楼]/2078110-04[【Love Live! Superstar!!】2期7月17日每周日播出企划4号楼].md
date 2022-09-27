@@ -14719,3 +14719,32 @@ FdlhPL_UoAA_A22.jpg
 
 鱼处境有点像TI9的苏跳跳，自己是挺厉害的，但是被自己人搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 5892#       发表于 2022-9-27 11:26
+
+ 本帖最后由 starring 于 2022-9-27 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57667790&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2022-9-27 11:00</a>
+
+没怎么关注，为啥说捧土妹子失败了？
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+花了那么大气力去捧，不论角色和中之人都没有香音+打铁那么强势，二期生里跟鬼夏+emo挣垫底
+
+*****
+
+####  花達香奈  
+##### 5893#       发表于 2022-9-27 11:28
+
+margaret说的没错这届school idol确实不行，同样单人舞台自己就是被狼蛛爆杀的货色<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5894#       发表于 2022-9-27 11:28
+
+赌一下，到时候vn和土妹子的差距会差一个恋恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
