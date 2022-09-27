@@ -17407,3 +17407,41 @@ uhhh 那现在还是护甲流最强吗？我看了下档，全是拆下来的紫
 看了前三集，剧本太标准了，哪里有激励事件，哪里该有突发事件，哪里会有虚假的成功，这应该是cdrp给的架构 ...</blockquote>
 大卫是一开始就确定的全套剧情
 
+
+
+*****
+
+####  stannislas  
+##### 2963#       发表于 2022-9-27 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671342&amp;ptid=2069884" target="_blank">mimighost 发表于 2022-9-27 15:13</a>
+
+我真的很想在你家过夜的后颈真强
+
+回到作品本身，可能是我对于david这个角色没啥代入。对我来说，这 ...</blockquote>
+哎，她这种人设基本上注定就是这个下场啦，从开始喜欢主角那一刻开始...
+
+*****
+
+####  jacket  
+##### 2964#       发表于 2022-9-27 15:56
+
+各路金曲在脑内抢占播放位置
+
+[https://www.reddit.com/r/LowSodi ... r_fade_away_for_me/](https://www.reddit.com/r/LowSodiumCyberpunk/comments/xmyjgj/it_wont_ever_fade_away_for_me/)
+<img src="https://img.imoutomoe.net/images/2022/09/27/40ify8t4bup91.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼雷鲨  
+##### 2965#       发表于 2022-9-27 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57664052&amp;ptid=2069884" target="_blank">蕉遇鹿 发表于 2022-9-26 23:58</a>
+
+刚看第一集
+
+怎么赛博疯子的散弹枪能90°弹射，是哪把枪？
+
+话说荒坂还有自己的学校？游戏里没见过校服妹子</blockquote>
+不是被拆了，是普通医院水平不行，可能甚至不如去找卖片的黑诊所
+

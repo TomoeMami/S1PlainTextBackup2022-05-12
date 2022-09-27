@@ -15076,3 +15076,50 @@ vn说实话塑造的太少，反而有优势，而且大家确实觉得现在的
 
 骑士服怎么没光速出谷，那些奇装异服倒是出的那么快。
 
+
+
+*****
+
+####  starring  
+##### 5929#       发表于 2022-9-27 15:52
+
+3rd live开始后一切都会好起来（指声优盾挡伤害
+
+*****
+
+####  ruffian  
+##### 5930#       发表于 2022-9-27 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671734&amp;ptid=2078110" target="_blank">甘蓝巧克力 发表于 2022-09-27 15:39:56</a>
+贴吧连一堆可推围攻堇推这种话都说的出来还能怎样，动画内岁月史书场外也跟着一起岁月史书是吧 ...</blockquote>恕我直言贴吧某些堇推(也可能是反串乐子人)多少有点欠收拾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当他们说你围攻他，你最好真的围攻了.jpg
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 5931#       发表于 2022-9-27 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671873&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-27 15:50</a>
+骑士服怎么没光速出谷，那些奇装异服倒是出的那么快。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出了啊 那个一期加きなこ的趴趴就是
+
+*****
+
+####  优妮可  
+##### 5932#       发表于 2022-9-27 15:57
+
+贴吧还是看id吧，受厕所侵蚀严重，有些很明显搞事的，
+
+*****
+
+####  ViyViy  
+##### 5933#       发表于 2022-9-27 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57671911&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-27 15:53</a>
+
+出了啊 那个一期加きなこ的趴趴就是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没说清楚，我主要指立牌那些，这个趴趴感觉还是校服那一套最可爱
+
