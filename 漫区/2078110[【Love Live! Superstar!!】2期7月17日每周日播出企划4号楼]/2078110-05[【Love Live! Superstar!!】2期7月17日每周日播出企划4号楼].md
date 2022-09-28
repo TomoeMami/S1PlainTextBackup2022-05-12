@@ -203,3 +203,30 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 这一集细节再不值得推敲，观感还是过得去的，没有惊艳的点，也没有第二天想起来要恶心半天的点。只能说，如果第二季所以剧情都是这水平，肯定不是这个样子。
 
+
+
+*****
+
+####  lj205  
+##### 6019#       发表于 2022-9-28 08:53
+
+<img src="https://img.saraba1st.com/forum/202209/28/085310w122qffn22cbs151.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20220928085219.jpg</strong> (32.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 08:53 上传
+
+这是什么奇怪的安排？就算让她拿母语讲都搞不来这个吧？
+
+*****
+
+####  aoaoaodedede  
+##### 6020#       发表于 2022-9-28 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57679328&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-28 08:53</a>
+
+这是什么奇怪的安排？就算让她拿母语讲都搞不来这个吧？</blockquote>
+啊这，这是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

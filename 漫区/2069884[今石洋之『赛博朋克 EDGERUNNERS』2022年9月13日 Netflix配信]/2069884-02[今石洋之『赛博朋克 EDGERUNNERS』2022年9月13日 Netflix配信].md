@@ -17862,3 +17862,17 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 荒坂学院想成学区房。
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  武装野狼  
+##### 2997#       发表于 2022-9-28 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678993&amp;ptid=2069884" target="_blank">蕉遇鹿 发表于 2022-9-28 08:19</a>
+
+动画里和游戏里感受的氛围真的是普通人活过一年都是一个挑战。
+
+—— 来自 realme RMX2117, Android 10上 ...</blockquote>
+你也知道那是动画和游戏了，不搞得激烈点天天喝茶谁看啊，某小学生到哪都死人也没见如何。
+
