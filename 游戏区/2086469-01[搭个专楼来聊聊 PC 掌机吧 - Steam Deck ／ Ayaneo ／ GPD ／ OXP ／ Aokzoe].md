@@ -3620,3 +3620,15 @@ KTR1开发订单登记；</blockquote>
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  恋妖壶  
+##### 294#       发表于 2022-9-28 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57681639&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-28 11:45</a>
+
+我的 Aokzoe 等待揽收了。</blockquote>
+你什么时候付的尾款啊，我也是群内预订的，但是当天尾款付晚了，现在还没动静
+
