@@ -746,3 +746,14 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 
 每次更新一周的量吗？提前玩完143又要等一周了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dgnic_  
+##### 74#       发表于 2022-9-28 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一开始看图片我以为是 FF，结果发现是一款我甚至没听说过的游戏。
+
+这游戏中文译名好像叫《宝贝万岁》，真没听过...
+

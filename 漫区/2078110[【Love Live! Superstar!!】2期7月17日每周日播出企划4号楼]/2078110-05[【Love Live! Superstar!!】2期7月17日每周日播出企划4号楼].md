@@ -678,3 +678,16 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 请把可堇再绑死一点，这Liella给我最后的乐子也就是看可香人满地打滚的哀嚎了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 6063#       发表于 2022-9-28 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57682001&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-28 12:10</a>
+第九集那种 跟可可一起搞学园偶像＞＞＞＞＞＞什么狗屁liella团队 我可以磕 这种就没啥意思 ...</blockquote>
+NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低，想到这点就很乐"，虽然感觉有点因爱生恨的极端感，不过某种意义上，应该说这是星团制作组自己惹的祸<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
