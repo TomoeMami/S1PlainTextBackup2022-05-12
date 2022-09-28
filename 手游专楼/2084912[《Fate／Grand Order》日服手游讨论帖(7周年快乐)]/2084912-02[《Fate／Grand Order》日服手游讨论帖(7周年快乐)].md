@@ -15296,3 +15296,12 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 其实第二面那个三头狗除了宝具封印和每回合一次无敌也不算太强，感觉打了合适纹章的单体杀（伽摩、王哈，etc.）也许能单刷它...
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2868#       发表于 2022-9-28 23:15
+
+不停刷新，继续指望大腿的输出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
