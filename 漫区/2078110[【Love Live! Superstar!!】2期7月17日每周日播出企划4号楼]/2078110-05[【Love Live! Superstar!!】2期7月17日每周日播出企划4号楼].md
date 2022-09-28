@@ -1024,3 +1024,27 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 真是温暖的世界，还是听个响算了，真拿来打感觉像在逃课<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 然而水和初音联动的那首就完全不是这么回事
 
+
+
+*****
+
+####  ViyViy  
+##### 6093#       发表于 2022-9-28 22:53
+
+说起酒，老看日本一些二创设定大学或成年给她们加喝酒的设定，好怪，为啥一定要沾酒呢？
+
+*****
+
+####  Kfly  
+##### 6094#       发表于 2022-9-28 23:00
+
+鱼的ins快拍
+
+<img src="https://img.saraba1st.com/forum/202209/28/225807cdi5ulmwq3dm43ld.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>koi_liyuu-20220928_214117-309155134_666827295068893_4329511484829756806_n.jpeg</strong> (130.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 22:58 上传
+
