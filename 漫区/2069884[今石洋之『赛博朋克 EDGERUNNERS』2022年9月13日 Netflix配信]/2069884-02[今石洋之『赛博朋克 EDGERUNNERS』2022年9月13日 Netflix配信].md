@@ -17892,3 +17892,35 @@ Because TRIGGER
 
 游戏夜之城夜景房间强对比晃得头晕但屋外日景还是很漂亮的，人在强视觉刺激容易引起眩晕，如果取舍无度（不及时变换场景和色指定）就会造成这种结果
 
+
+
+*****
+
+####  琳翠  
+##### 2999#       发表于 2022-9-28 09:46
+
+David早期设定，拉美人特征更重
+
+<img src="https://img.saraba1st.com/forum/202209/28/094628dp6huu7cu1ug8hkk.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220928092813.jpg</strong> (108.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202209/28/094632tnyx5hb2ku4ypopw.jpg" referrerpolicy="no-referrer">
+
+<strong>FdrV93FXkAANCBZ.jpg</strong> (310.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 09:46 上传
+
+*****
+
+####  qderaaa  
+##### 3000#       发表于 2022-9-28 09:51
+
+有没有不曾直接玩过游戏，也没云玩过游戏的朋友讲讲，观感是怎样的。我和一些玩过游戏的朋友都认为，如果不玩游戏的话，很多基础设定搞不明白。没人讲解背景设定很难看懂。
+

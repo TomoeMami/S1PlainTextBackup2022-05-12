@@ -302,3 +302,22 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 我还是最喜欢第9集在天台上香音吼小堇的那一句，那是我第一次在这部动画中感受到演技<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6029#       发表于 2022-9-28 09:49
+
+是不是这周上映会？
+
+*****
+
+####  player3960  
+##### 6030#       发表于 2022-9-28 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680050&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-28 09:49</a>
+
+是不是这周上映会？</blockquote>
+还早吧，我记得好像是要放8-11话，得等11话先播了
+
