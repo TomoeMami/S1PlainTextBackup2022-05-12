@@ -1069,3 +1069,24 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 说起酒，老看日本一些二创设定大学或成年给她们加喝酒的设定，好怪，为啥一定要沾酒呢？ ...</blockquote>
 多半是因为日本法律规定20岁（成人年龄）才能饮酒，所以喝酒这一行为就被间接赋予了“成熟”的象征
 
+
+
+*****
+
+####  stygian  
+##### 6097#       发表于 2022-9-28 23:23
+
+拉板小百合串根本没人提这茬
+再联想到隔壁蒜一群冲国河豚怒冲bg画师
+
+我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甘蓝巧克力  
+##### 6098#       发表于 2022-9-28 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟cp跳脸跟一些奇葩gachi行为相比只是洒水水
+
