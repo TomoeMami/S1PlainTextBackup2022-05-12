@@ -894,3 +894,21 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么鬼…………
 
+
+
+*****
+
+####  优妮可  
+##### 6081#       发表于 2022-9-28 19:23
+
+鲤鱼这个平时评论区和直播经常有的，除了cp还有喊老婆的。这次倒是鲨鱼的回答让我感觉好搞哦，怕是粉丝们会跑去问鲤鱼
+
+*****
+
+####  ruffian  
+##### 6082#       发表于 2022-9-28 19:27
+
+跳脸鱼当然也很不礼貌啊……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
