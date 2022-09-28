@@ -3594,3 +3594,29 @@ KTR1开发订单登记；</blockquote>
 
 这个真不是G胖的锅
 
+
+
+*****
+
+####  ivly  
+##### 292#       发表于 2022-9-28 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57668328&amp;ptid=2086469" target="_blank">02031f84 发表于 2022-9-27 11:31</a>
+看了小峰峰的视频在15w的情况下帧数和sd差不多，但续航领先太多了。</blockquote>
+续航领先太多是哪个机型啊
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  任天索尼子  
+##### 293#       发表于 2022-9-28 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57682423&amp;ptid=2086469" target="_blank">ivly 发表于 2022-9-28 12:44</a>
+续航领先太多是哪个机型啊
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+奥克有续航版
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

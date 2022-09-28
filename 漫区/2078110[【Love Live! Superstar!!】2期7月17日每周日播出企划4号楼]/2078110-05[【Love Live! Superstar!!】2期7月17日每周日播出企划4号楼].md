@@ -548,3 +548,23 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 这种基本杜绝了和其他人<strong>深入</strong>互动的描写方式真的好吗………绑的未免有些太死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 6050#       发表于 2022-9-28 12:47
+
+感觉动画二期之后可堇就捆绑得越来越严重了。不过官方再怎么锁死也不可能强制所有人都磕这一对，而且真想锁死难以想象yura是怎么出现的……(我现在觉得可千cb向最好嗑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 6051#       发表于 2022-9-28 12:51
+
+仔细想想香千也是锁得死死的，两期的liella之歌都是和香音，cp曲也是她俩，可堇算得上cp曲的就只有二期的liella之歌吧？还没yura和小星星露骨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
