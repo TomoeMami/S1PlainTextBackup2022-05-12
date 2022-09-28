@@ -133,3 +133,26 @@ David早期设定，拉美人特征更重</blockquote>
 突然感觉是日本人拍的出来的玩意</blockquote>
 这不是蒜的剧情吗？....
 
+
+
+*****
+
+####  acejoe  
+##### 3012#       发表于 2022-9-28 11:49
+
+<img src="https://p.sda1.dev/7/e4de242db1fb1e15ac2b77ba6988f29e/CMP_20220928114753853.jpg" referrerpolicy="no-referrer">
+
+最早的宣传图倒是照着原版画的。
+
+*****
+
+####  机械烈海王  
+##### 3013#       发表于 2022-9-28 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57681431&amp;ptid=2069884" target="_blank">acejoe 发表于 2022-9-28 11:30</a>
+
+很有网飞几个欧美人主导动画的味。
+
+不过这人物设定也太游戏了，动画基本不会这么画，除非做3d动画 ...</blockquote>
+制作人说这个人设只是为了起个头，后面CDPR那边就没再出人设稿子了
+

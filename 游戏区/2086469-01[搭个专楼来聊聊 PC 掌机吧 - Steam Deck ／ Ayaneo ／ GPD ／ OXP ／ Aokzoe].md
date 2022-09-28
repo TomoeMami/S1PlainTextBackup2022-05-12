@@ -3563,3 +3563,20 @@ KTR1开发订单登记；</blockquote>
 上次deck预订过期了一周我才发现，这次加强了查看邮箱的频率，结果预订从通知到过期只给2天时间，又晚了2天 ...</blockquote>
 这个不应该每天看邮件吗...
 
+
+
+*****
+
+####  bypass  
+##### 290#         楼主| 发表于 2022-9-28 11:45
+
+我的 Aokzoe 等待揽收了。
+
+<img src="https://img.saraba1st.com/forum/202209/28/114525epkkvz33uabv33ru.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:45 上传
+
