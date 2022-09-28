@@ -331,3 +331,47 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 昨天的广播渚佩熊的情绪好高，语速还越说越快<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 好几期广播没听，这三人凑一起也很有趣（铃原依旧空气
 
+
+
+*****
+
+####  川陀  
+##### 6032#       发表于 2022-9-28 10:27
+
+有没有可能是二期夺冠，然后在可能有的三期继承snp遗志卫冕创造历史？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 6033#       发表于 2022-9-28 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57679783&amp;ptid=2078110" target="_blank">plazum 发表于 2022-9-28 09:27</a>
+我还是最喜欢第9集在天台上香音吼小堇的那一句，那是我第一次在这部动画中感受到演技 ...</blockquote>
+我记得那段有人表示“太真了让我感到不适”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 6034#       发表于 2022-9-28 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680575&amp;ptid=2078110" target="_blank">川陀 发表于 2022-9-28 10:27</a>
+有没有可能是二期夺冠，然后在可能有的三期继承snp遗志卫冕创造历史？
+
+—— 来自 S1Fun ...</blockquote>
+如果是这样的话，倒是符合最早的宣传语，"创造新的历史"
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沙茶酱  
+##### 6035#       发表于 2022-9-28 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680579&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-9-28 10:27</a>
+我记得那段有人表示“太真了让我感到不适”</blockquote>
+其实队伍成员内讧我觉得会是雷点，我觉得大部分拉拉人更加想看到的是团结一致的团队。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
