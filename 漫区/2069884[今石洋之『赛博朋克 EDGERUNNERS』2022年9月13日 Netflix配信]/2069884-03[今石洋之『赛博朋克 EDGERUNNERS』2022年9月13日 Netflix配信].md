@@ -217,3 +217,15 @@ David早期设定，拉美人特征更重</blockquote>
 
 亚当重锤你太卑鄙辣<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stannislas  
+##### 3019#       发表于 2022-9-28 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678793&amp;ptid=2069884" target="_blank">terminator1990 发表于 2022-9-28 07:44</a>
+
+没玩过游戏，花了两三天把片子补完了，音画质量当然是顶级的水平，但一路看下来还是没法代入进去，感觉就像 ...</blockquote>
+其实没啥问题，本质赛博朋克其实算是世界末日的一种，所以里面社会问题都是过度极端化的，完全没有共鸣是很正常的...
+
