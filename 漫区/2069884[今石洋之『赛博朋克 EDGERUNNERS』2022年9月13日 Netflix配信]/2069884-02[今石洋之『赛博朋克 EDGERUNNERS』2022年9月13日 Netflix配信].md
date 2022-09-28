@@ -17777,3 +17777,28 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  mimighost  
+##### 2990#       发表于 2022-9-28 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678793&amp;ptid=2069884" target="_blank">terminator1990 发表于 2022-9-28 07:44</a>
+
+没玩过游戏，花了两三天把片子补完了，音画质量当然是顶级的水平，但一路看下来还是没法代入进去，感觉就像 ...</blockquote>
+不能移情大卫和露西的话
+
+感觉观感有个上限
+
+可能是我已经是老**儿了，什么去月球之类的东西，第一反应是有点荒唐。如果换个地方能解决生活的所有问题，那个地方只能是天堂了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  terminator1990  
+##### 2991#       发表于 2022-9-28 07:58
+
+另外动画里表现的那种赛博朋克世界，让我感到像是被强行拉到年轻人尽情畅饮蹦迪的喧闹酒吧里自己却被酒臭熏到被灯光闪到还被音响轰得头晕脑胀，但像两部银翼杀手电影里的那种赛博朋克世界就感觉很舒服，不知道是啥原因…
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
