@@ -102,3 +102,22 @@
 
 动画完全没有看不懂的地方，或者说如果有稍微看不懂的名词会认为是翻译用词问题，暂停一下看看画面上有没有写出来的英文之类的就行了（因为节奏很快，其实画面上的许多文字都看不完）
 
+
+
+*****
+
+####  hummysiren  
+##### 3009#       发表于 2022-9-28 11:24
+
+玉玉了，要是能停在露西看到大卫幻影结束就好，结果还把幻影消失露西笑容消失放出来，制作组你没有心<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 3010#       发表于 2022-9-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680008&amp;ptid=2069884" target="_blank">琳翠 发表于 2022-9-28 09:46</a>
+David早期设定，拉美人特征更重</blockquote>
+很有网飞几个欧美人主导动画的味。
+不过这人物设定也太游戏了，动画基本不会这么画，除非做3d动画
+
