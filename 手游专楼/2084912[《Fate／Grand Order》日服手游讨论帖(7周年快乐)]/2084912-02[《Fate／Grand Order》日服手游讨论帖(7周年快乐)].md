@@ -15305,3 +15305,15 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 不停刷新，继续指望大腿的输出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sesuna  
+##### 2869#       发表于 2022-9-28 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684632&amp;ptid=2084912" target="_blank">yzj134100 发表于 2022-9-28 15:44</a>
+
+突然想起来咸了一周还没去打90++，昨晚试了下90++用的摩根+W杀狐+奥伯龙有点看发牌员 ...</blockquote>
+双CABER,奥贝龙拐,主C 80级310一与就可以了....唯一缺点就是2T没蓝红就得挨多一回合
+
