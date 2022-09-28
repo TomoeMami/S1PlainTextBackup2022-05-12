@@ -14,3 +14,15 @@
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  超人苏坦纳  
+##### 3002#       发表于 2022-9-28 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57679063&amp;ptid=2069884" target="_blank">Labborn 发表于 2022-9-28 08:29</a>
+
+突然感觉是日本人拍的出来的玩意</blockquote>
+海外孙渣了属于是
+
