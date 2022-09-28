@@ -275,3 +275,30 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 这广播怎么还是在读第八集的信，第九集gkd，我要看怎么吹的呢
 
+
+
+*****
+
+####  ruffian  
+##### 6026#       发表于 2022-9-28 09:24
+
+一个杂志封面都让pay子磕上头了，等吹到第9集孩子怕不是要磕昏过去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 6027#       发表于 2022-9-28 09:26
+
+小熊真的好懂，可堇那个杂志封面，两个人的手随意的搭在一起确实比十指紧扣还劲大
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  plazum  
+##### 6028#       发表于 2022-9-28 09:27
+
+我还是最喜欢第9集在天台上香音吼小堇的那一句，那是我第一次在这部动画中感受到演技<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
