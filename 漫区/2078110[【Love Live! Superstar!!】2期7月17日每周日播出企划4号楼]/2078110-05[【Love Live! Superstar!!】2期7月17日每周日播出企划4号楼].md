@@ -1048,3 +1048,24 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 2022-9-28 22:58 上传
 
+
+
+*****
+
+####  lj205  
+##### 6095#       发表于 2022-9-28 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57689788&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-28 22:53</a>
+说起酒，老看日本一些二创设定大学或成年给她们加喝酒的设定，好怪，为啥一定要沾酒呢？ ...</blockquote>
+日本人是真喜欢喝酒<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 6096#       发表于 2022-9-28 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57689788&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-28 22:53</a>
+
+说起酒，老看日本一些二创设定大学或成年给她们加喝酒的设定，好怪，为啥一定要沾酒呢？ ...</blockquote>
+多半是因为日本法律规定20岁（成人年龄）才能饮酒，所以喝酒这一行为就被间接赋予了“成熟”的象征
+
