@@ -240,3 +240,14 @@ David早期设定，拉美人特征更重</blockquote>
 David早期设定，拉美人特征更重</blockquote>
 这就是个amigo吧
 
+
+
+*****
+
+####  Labborn  
+##### 3021#       发表于 2022-9-28 22:41
+
+<img src="https://p.sda1.dev/7/43b124e37e69aa539cbfa45157f1cb4d/CMP_20220928224119622.jpg" referrerpolicy="no-referrer">
+[来源链接](https://share.api.weibo.cn/share/338539516,4818796315413826.html?weibo_id=4818796315413826)
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

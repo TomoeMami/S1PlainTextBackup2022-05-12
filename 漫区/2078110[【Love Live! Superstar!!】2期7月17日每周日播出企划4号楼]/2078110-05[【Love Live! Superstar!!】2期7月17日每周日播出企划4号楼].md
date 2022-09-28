@@ -991,3 +991,36 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 编辑错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6091#       发表于 2022-9-28 22:42
+
+<img src="https://img.saraba1st.com/forum/202209/28/224112obd9zggpyg8i8cc9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1E6C5386-24B6-4E88-9ABF-85F7CA7528DA.jpeg</strong> (114.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 22:41 上传
+
+打铁提前开始生日模式了，20岁可以喝酒了，希望不要变成酒鬼
+
+*****
+
+####  adw667  
+##### 6092#       发表于 2022-9-28 22:51
+
+<img src="https://img.saraba1st.com/forum/202209/28/224940lbz8hm33bkr36mzi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220928224919.png</strong> (72.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 22:49 上传
+
+真是温暖的世界，还是听个响算了，真拿来打感觉像在逃课<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+然而水和初音联动的那首就完全不是这么回事
+
