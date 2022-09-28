@@ -824,3 +824,12 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 <img src="https://p.sda1.dev/7/0e198fea46e7ae71951616ef9bb5bba7/CMP_20220928181450018.jpg" referrerpolicy="no-referrer">
 クエ老师总能整些让人眼前一黑的活
 
+
+
+*****
+
+####  lj205  
+##### 6075#       发表于 2022-9-28 18:51
+
+草，直球问打铁什么时候跟鲤鱼结婚？结果打铁说不能结婚是鲤鱼的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以打铁你自己是想对吗
+
