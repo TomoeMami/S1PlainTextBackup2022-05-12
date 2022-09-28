@@ -178,3 +178,14 @@ David早期设定，拉美人特征更重</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jacket  
+##### 3016#       发表于 2022-9-28 12:36
+
+看了那个另外制作的片尾曲MV，土的我浑身难受。
+
+这导演干干自己画头像的本行就好了，偏偏喜欢拓展业务跟各种项目合作。
+

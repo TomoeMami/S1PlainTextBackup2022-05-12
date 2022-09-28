@@ -539,3 +539,12 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 说到杂志封面，有人看出来&amp;#x6 ...</blockquote>
 倒不如说捆这么死已经有点反胃了
 
+
+
+*****
+
+####  Kfly  
+##### 6049#       发表于 2022-9-28 12:39
+
+这种基本杜绝了和其他人<strong>深入</strong>互动的描写方式真的好吗………绑的未免有些太死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
