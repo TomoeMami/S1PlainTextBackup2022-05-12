@@ -425,3 +425,51 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  优妮可  
+##### 6041#       发表于 2022-9-28 11:13
+
+<img src="https://img.saraba1st.com/forum/202209/28/111314qqp2ki222ll78n2i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_110145.jpg</strong> (79.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/28/111314tie0j7ll7srhqj6l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_110701_com.twitter.android_edit_8184577395624.jpg</strong> (127.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/28/111315ieappthaogahwbwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_110655_com.twitter.android_edit_8191957182081.jpg</strong> (89.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202209/28/111315rieisvibe2g9v9ue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_110437_com.twitter.android_edit_7712146004550.jpg</strong> (147.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:13 上传
+
+你们这个社团都是高咲侑嘛
+
+*****
+
+####  lj205  
+##### 6042#       发表于 2022-9-28 11:16
+
+也不错，某种意义来说，算是阿宅见阿宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
