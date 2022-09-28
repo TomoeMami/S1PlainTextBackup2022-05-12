@@ -156,3 +156,12 @@ David早期设定，拉美人特征更重</blockquote>
 不过这人物设定也太游戏了，动画基本不会这么画，除非做3d动画 ...</blockquote>
 制作人说这个人设只是为了起个头，后面CDPR那边就没再出人设稿子了
 
+
+
+*****
+
+####  marclevy6  
+##### 3014#       发表于 2022-9-28 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -473,3 +473,31 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 也不错，某种意义来说，算是阿宅见阿宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 6043#       发表于 2022-9-28 11:52
+
+ 本帖最后由 saya1892 于 2022-9-28 11:54 编辑 
+
+说到杂志封面，有人看出来是D大调卡农<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">也就是常在婚礼上放的曲子
+
+不是，有必要绑得这么死吗
+
+<img src="https://img.saraba1st.com/forum/202209/28/115002eme8ffzrxjnbjeee.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (125.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 11:50 上传
+
+*****
+
+####  仟音一心  
+##### 6044#       发表于 2022-9-28 11:52
+
+主要这是“脱口秀”怎么搞啊？
+
