@@ -17813,3 +17813,16 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 另外动画里表现的那种赛博朋克世界，让我感到像是被强行拉到年轻人尽情畅饮蹦迪的喧闹酒吧里自己却被酒臭熏 ...</blockquote>
 色彩鲜艳，故事节奏飞快，音乐插入更多更快
 
+
+
+*****
+
+####  蕉遇鹿  
+##### 2993#       发表于 2022-9-28 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678760&amp;ptid=2069884" target="_blank">saverok 发表于 2022-9-28 07:34</a>
+纽约天天死人 会缺人吗</blockquote>
+动画里和游戏里感受的氛围真的是普通人活过一年都是一个挑战。
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
