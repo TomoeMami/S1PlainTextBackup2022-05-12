@@ -88,3 +88,17 @@
 去月球：可以理解为美好的梦想，我游戏实况 ...</blockquote>
 很复杂的概念也能讲清楚，不特意了解背景的观众也能看懂。很有水平，比很多粉丝向动画、电影高到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  catartemis  
+##### 3008#       发表于 2022-9-28 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680065&amp;ptid=2069884" target="_blank">qderaaa 发表于 2022-9-28 09:51</a>
+
+有没有不曾直接玩过游戏，也没云玩过游戏的朋友讲讲，观感是怎样的。我和一些玩过游戏的朋友都认为，如果不 ...</blockquote>
+没玩过也没云玩过，只看过宣传片（也可能是开头的动画？）
+
+动画完全没有看不懂的地方，或者说如果有稍微看不懂的名词会认为是翻译用词问题，暂停一下看看画面上有没有写出来的英文之类的就行了（因为节奏很快，其实画面上的许多文字都看不完）
+
