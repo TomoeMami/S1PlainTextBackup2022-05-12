@@ -182,3 +182,24 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 <img src="https://img.saraba1st.com/forum/202209/28/065219ta0vvpvb004uga3u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6017#       发表于 2022-9-28 08:28
+
+说的好像香音龙场悟道悟清楚了，s2e10看到vn还在那红温然后说啥真正的唱歌不是这个。
+说到底没有解的东西强行说有个解，最后也没能拿出来什么理念说服观众，或者有足够的情感冲击能刺激观众忽视这个问题。
+
+之前那个同时出线，结果必须九加一的假药我蛮中意的，要是这样写，反而可以削减大赛夺取闪耀的恶心程度，不是说胜利是一切吗，你们要赢就给我组队，给你们两集时间去磨合，搞的大赛只有battle没有cooperation。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Vacuolar  
+##### 6018#       发表于 2022-9-28 08:31
+
+这一集细节再不值得推敲，观感还是过得去的，没有惊艳的点，也没有第二天想起来要恶心半天的点。只能说，如果第二季所以剧情都是这水平，肯定不是这个样子。
+

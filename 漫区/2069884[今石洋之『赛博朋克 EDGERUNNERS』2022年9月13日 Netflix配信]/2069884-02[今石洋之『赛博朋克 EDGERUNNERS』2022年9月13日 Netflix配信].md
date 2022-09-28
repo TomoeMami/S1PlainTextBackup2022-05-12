@@ -17826,3 +17826,22 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 
 —— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2994#       发表于 2022-9-28 08:24
+
+<img src="https://p.sda1.dev/7/9d30f1139752e9062c1ebbf7e41c1e7a/CMP_20220928082422301.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Labborn  
+##### 2995#       发表于 2022-9-28 08:29
+
+<img src="https://p.sda1.dev/7/86996a6d6a5d6ca7a9c7b16e025a8a14/CMP_20220928082823461.jpg" referrerpolicy="no-referrer">
+突然感觉是日本人拍的出来的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
