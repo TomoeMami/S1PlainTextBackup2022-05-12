@@ -691,3 +691,17 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kfly  
+##### 6064#       发表于 2022-9-28 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684671&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-28 15:47</a>
+
+NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低，想到这点就很乐"，虽然感觉有点因爱生恨的 ...</blockquote>
+直接说就是制作组的锅都可以
+
+来互相伤害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

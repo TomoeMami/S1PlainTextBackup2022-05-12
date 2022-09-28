@@ -3864,3 +3864,70 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 解题思路是pv时间和行列答案是“全部重新绘制”（转自贴吧）
 我古代知识确实不行，该专职菜刀了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  厄斯沃穆  
+##### 399#         楼主| 发表于 2022-9-26 17:42
+
+今日解密<img src="https://p.sda1.dev/7/a1f93cb3d46d1a3fe9751f8f4b376d8f/img-16641848216955d9f05ecaa3f42a0f20c76ede5e054d9.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒蝉  
+##### 400#       发表于 2022-9-26 17:54
+
+希望能保留之前汉化那版的文本，没有那位的汉化润色废都至少会减少了三分一的魅力。万一改成弱智机翻那就扑街了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  正锑  
+##### 401#       发表于 2022-9-26 18:12
+
+原版的战斗演出如果改得太花里胡哨就没那味了，本来整体美术就是羊皮纸那种老旧的风格，战斗演出如果太炫反而违和。
+
+*****
+
+####  风浦可符香(P.N)  
+##### 402#       发表于 2022-9-26 20:17
+
+前几年我完全抱着开玩笑的心态说，我有个小心愿，梦日记和废都物语能上steam，让那帮臭鱼烂虾看看什么叫好游戏
+
+妹想到居然成真了，人还是要有梦想XD
+
+*****
+
+####  Case  
+##### 403#       发表于 2022-9-26 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57659504&amp;ptid=2093296" target="_blank">寒蝉 发表于 2022-9-26 17:54</a>
+
+希望能保留之前汉化那版的文本，没有那位的汉化润色废都至少会减少了三分一的魅力。万一改成弱智机翻那就扑 ...</blockquote>
+原文本的翻译已经授权给重制的开发团队了。
+
+*****
+
+####  反作用于指甲盖  
+##### 404#       发表于 2022-9-27 08:56
+
+我倒希望战斗技能特效能做精致点，有些技能既诗意又跟角色、剧情紧密相关，比如十二方位之风，箱庭的记忆，伟大秘仪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反作用于指甲盖  
+##### 405#       发表于 2022-9-27 08:57
+
+风怒
+
+*****
+
+####  厄斯沃穆  
+##### 406#         楼主| 发表于 2022-9-28 14:31
+
+<img src="https://p.sda1.dev/7/92e624b8523569e48045719206c9db0c/CMP_20220928143106123.jpg" referrerpolicy="no-referrer">伤害上限改成9999了，看来战斗系统也有改动？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
