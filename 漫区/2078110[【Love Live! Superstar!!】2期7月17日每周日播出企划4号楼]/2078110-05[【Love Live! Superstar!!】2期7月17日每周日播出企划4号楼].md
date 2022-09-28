@@ -230,3 +230,39 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 这是什么奇怪的安排？就算让她拿母语讲都搞不来这个吧？</blockquote>
 啊这，这是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6021#       发表于 2022-9-28 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57679328&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-28 08:53</a>
+这是什么奇怪的安排？就算让她拿母语讲都搞不来这个吧？</blockquote>
+这个应该是学院祭的特邀嘉宾吧，这个倒是看过这些套路，不知道是哪来的人脉，鲤鱼也不是校友。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 6022#       发表于 2022-9-28 09:05
+
+ 本帖最后由 player3960 于 2022-9-28 09:07 编辑 
+
+我看群里截图是东京工业大学动画声优研究会，估计是请的嘉宾去访谈一下吧，怕不是里面有鲤友，不然把鲤鱼这种不算专职声优的请过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6023#       发表于 2022-9-28 09:06
+
+还以为是脱口秀，什么时候拓展搞笑艺人
+
+*****
+
+####  lj205  
+##### 6024#       发表于 2022-9-28 09:07
+
+有钱拿就好
+
