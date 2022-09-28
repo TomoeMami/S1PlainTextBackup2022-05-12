@@ -4188,3 +4188,19 @@ Kobo什么情况
 
 小学生打游戏
 
+
+
+*****
+
+####  tesparu  
+##### 1905#       发表于 2022-9-28 15:47
+
+在staff面前一直暴言
+
+*****
+
+####  rs5621  
+##### 1906#       发表于 2022-9-28 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">staff：这就是hololive么，可怕！
+
