@@ -4427,3 +4427,31 @@ Kobo什么情况
 
 寸止
 
+
+
+*****
+
+####  rs5621  
+##### 1931#       发表于 2022-9-29 01:31
+
+这人太坏了,最后还要赖一会再下播
+
+*****
+
+####  holoan  
+##### 1932#         楼主| 发表于 2022-9-29 01:34
+
+不过下个月开始还是得播箱游只不过不是rust了
+
+我是觉得播MC比rust好就是
+
+*****
+
+####  rs5621  
+##### 1933#       发表于 2022-9-29 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57691074&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-29 01:29</a>
+
+寸止</blockquote>
+笑死,日本人都顶不住了
+
