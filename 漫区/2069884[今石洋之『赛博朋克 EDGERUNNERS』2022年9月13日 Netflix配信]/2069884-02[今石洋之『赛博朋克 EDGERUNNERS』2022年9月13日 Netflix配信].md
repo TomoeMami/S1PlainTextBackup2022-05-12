@@ -17802,3 +17802,14 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  isummon  
+##### 2992#       发表于 2022-9-28 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678867&amp;ptid=2069884" target="_blank">terminator1990 发表于 2022-9-28 07:58</a>
+另外动画里表现的那种赛博朋克世界，让我感到像是被强行拉到年轻人尽情畅饮蹦迪的喧闹酒吧里自己却被酒臭熏 ...</blockquote>
+色彩鲜艳，故事节奏飞快，音乐插入更多更快
+
