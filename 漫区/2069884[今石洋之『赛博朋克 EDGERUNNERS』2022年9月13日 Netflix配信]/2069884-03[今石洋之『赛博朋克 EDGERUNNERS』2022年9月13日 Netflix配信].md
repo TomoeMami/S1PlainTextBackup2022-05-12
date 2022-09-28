@@ -204,3 +204,16 @@ David早期设定，拉美人特征更重</blockquote>
 这导演干干自己画头像的本行就好了，偏偏喜欢拓展业务跟各 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉CDPR可能非常喜欢这画师，CDPR的Narrative Manager和边缘行者的执行制作人Rafal和制作人Elder用的都是他画的头像，一眼看过去风格整整齐齐的
 
+
+
+*****
+
+####  qderaaa  
+##### 3018#       发表于 2022-9-28 14:56
+
+这早期设定的大卫一股子东北往事味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+亚当重锤我告诉你嗷，别让我在夜之城看见你<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+亚当重锤你太卑鄙辣<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+

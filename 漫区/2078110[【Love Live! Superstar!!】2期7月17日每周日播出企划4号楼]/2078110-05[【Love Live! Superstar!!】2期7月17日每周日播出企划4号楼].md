@@ -648,3 +648,15 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 好几期广播没听，这三人凑一起也很有趣（铃原依旧空气 ...</blockquote>
 我觉得铃原比之前好多了，还能讲几个冷笑话，二期参加完发售活动之后更融入些了（鲤鱼姐依然常驻空气嘉宾，不愧是liella名言制造机
 
+
+
+*****
+
+####  starring  
+##### 6060#       发表于 2022-9-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57683618&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-9-28 14:27</a>
+
+我觉得铃原比之前好多了，还能讲几个冷笑话，二期参加完发售活动之后更融入些了（鲤鱼姐依然常驻空气嘉宾 ...</blockquote>
+之前就察觉到铃原的存在感不是很高，发现在节目里经常其她人聊了很久才注意到她好久没发言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来日方长，真正融入团队里或许就能放开地聊
+
