@@ -165,3 +165,16 @@ David早期设定，拉美人特征更重</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  潜水艇君  
+##### 3015#       发表于 2022-9-28 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680008&amp;ptid=2069884" target="_blank">琳翠 发表于 2022-9-28 09:46</a>
+David早期设定，拉美人特征更重</blockquote>
+你截图告诉我这是Jackie前传我都信
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
