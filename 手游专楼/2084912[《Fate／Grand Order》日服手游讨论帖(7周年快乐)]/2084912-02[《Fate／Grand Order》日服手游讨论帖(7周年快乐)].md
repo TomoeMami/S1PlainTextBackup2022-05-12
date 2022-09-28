@@ -15219,3 +15219,14 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 2.4起码有个印度贞德强化了，真就2.3没有一个强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 2864#       发表于 2022-9-28 17:25
+
+<blockquote>khxooo 发表于 2022-9-28 17:15
+2.4起码有个印度贞德强化了，&amp; ...</blockquote>
+这也太难看了，要是252和2.6也都捞到强化的话就……
+
