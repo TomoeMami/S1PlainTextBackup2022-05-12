@@ -321,3 +321,13 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 是不是这周上映会？</blockquote>
 还早吧，我记得好像是要放8-11话，得等11话先播了
 
+
+
+*****
+
+####  starring  
+##### 6031#       发表于 2022-9-28 09:53
+
+昨天的广播渚佩熊的情绪好高，语速还越说越快<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+好几期广播没听，这三人凑一起也很有趣（铃原依旧空气
+
