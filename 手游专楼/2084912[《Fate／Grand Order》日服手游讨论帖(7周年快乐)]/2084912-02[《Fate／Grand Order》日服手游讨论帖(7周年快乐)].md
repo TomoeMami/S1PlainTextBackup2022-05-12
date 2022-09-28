@@ -15254,3 +15254,45 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 不过刷2.5.1的Free3次都掉了煌星，终于将伽摩满破了。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2867#       发表于 2022-9-28 21:46
+
+ 本帖最后由 Jamaisvu 于 2022-9-28 21:49 编辑 
+<blockquote>khxooo 发表于 2022-9-28 21:03
+这次茶壶本放弃了，没有高 ...</blockquote>
+第一个茶壶本因为没法借助战，我就用征呆狐苟过去了：
+
+<img src="https://img.saraba1st.com/forum/202209/28/212051u8lk6oc5ypfcsc4o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_190409_com.excean.gspace.jpg</strong> (378.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-28 21:20 上传
+
+（为啥是征姐妹？一方面为了打输出，同时想靠着宝具回血增加生存率，另外三技能的暴击抗性也稍微有点用...当然主要原因还是没有梅林...）
+
+第二个茶壶本简单，正常的卑梅呆抗过去了，难点在于最后一条血的时候有两个即死效率提升，宝具很容易秒人，roll了几次后不再出即死才过关...：
+
+<img src="https://img.saraba1st.com/forum/202209/28/212311cqe3n2qn0s2uesqg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220928_205708_com.excean.gspace.jpg</strong> (304.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-28 21:23 上传
+
+第三个...嗯，进去之后中间那个40W血的机器人一回合打不死的话会放一个强化无效的debuff...然后第二面的狗动不动就宝具封印...果然还是你狗，让我苟无可苟...
+
+最后的办法是红卡队进去连续爆破，全员阵亡后三令咒再来一波...
+
+（打得太难看了所以没有截图）
+
+其实第二面那个三头狗除了宝具封印和每回合一次无敌也不算太强，感觉打了合适纹章的单体杀（伽摩、王哈，etc.）也许能单刷它...
+
