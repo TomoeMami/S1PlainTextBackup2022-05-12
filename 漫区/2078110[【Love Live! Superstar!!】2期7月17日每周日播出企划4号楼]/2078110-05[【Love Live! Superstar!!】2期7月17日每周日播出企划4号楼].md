@@ -375,3 +375,24 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  plazum  
+##### 6036#       发表于 2022-9-28 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680579&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-9-28 10:27</a>
+
+我记得那段有人表示“太真了让我感到不适”</blockquote>
+对我来说，我感受到了香音这个人物的温度，所以我很满足<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+其实我一直觉得香音挺可爱的，只是一直没有好的戏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6037#       发表于 2022-9-28 10:37
+
+这回snp抛这个连冠的梗不就是为了三期liella接的吗，三期肯定是连冠作为目标的
+

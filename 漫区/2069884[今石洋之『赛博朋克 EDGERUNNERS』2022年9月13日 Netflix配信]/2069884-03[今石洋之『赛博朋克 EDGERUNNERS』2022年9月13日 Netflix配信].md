@@ -61,3 +61,30 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  eulereld  
+##### 3006#       发表于 2022-9-28 10:35
+
+ 本帖最后由 eulereld 于 2022-9-28 10:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680551&amp;ptid=2069884" target="_blank">qderaaa 发表于 2022-9-28 10:25</a>
+像是“荒坂”、“去月球”、“赛博精神病”、“创伤小组”、这种世界观里独有的东西，会很难理解吗。 ...</blockquote>
+荒坂：这公司有家以它冠名的贵族私学校呢，一看就知道是财阀
+去月球：可以理解为美好的梦想，我游戏实况只看到银手出场，对游戏的了解不太深，月球的破事也是看专楼才知道，不阻碍理解
+赛博精神病：一路看下去会理解到，当然不是直白地解说赛博精神病是啥啥啥
+创伤小组：他们第一次出场第一句对白就理解是什么东西了，我看过的实况片段里没出现过那种情况，更能展示它们是什么玩意
+
+*****
+
+####  qderaaa  
+##### 3007#       发表于 2022-9-28 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680692&amp;ptid=2069884" target="_blank">eulereld 发表于 2022-9-28 10:35</a>
+
+荒坂：这公司有家以它冠名的贵族私学校呢，一看就知道是财阀
+
+去月球：可以理解为美好的梦想，我游戏实况 ...</blockquote>
+很复杂的概念也能讲清楚，不特意了解背景的观众也能看懂。很有水平，比很多粉丝向动画、电影高到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
