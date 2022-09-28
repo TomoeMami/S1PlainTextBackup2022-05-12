@@ -121,3 +121,15 @@ David早期设定，拉美人特征更重</blockquote>
 很有网飞几个欧美人主导动画的味。
 不过这人物设定也太游戏了，动画基本不会这么画，除非做3d动画
 
+
+
+*****
+
+####  stannislas  
+##### 3011#       发表于 2022-9-28 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57679063&amp;ptid=2069884" target="_blank">Labborn 发表于 2022-9-28 08:29</a>
+
+突然感觉是日本人拍的出来的玩意</blockquote>
+这不是蒜的剧情吗？....
+
