@@ -4327,3 +4327,33 @@ Kobo什么情况
 
 不错,好多没听过的bgm
 
+
+
+*****
+
+####  rs5621  
+##### 1920#       发表于 2022-9-29 00:50
+
+ 本帖最后由 rs5621 于 2022-9-29 00:56 编辑 
+
+居然让她出m249了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打爽了,舍得要下播
+
+
+
+*****
+
+####  ZQXY2002  
+##### 1921#       发表于 2022-9-29 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">都没人玩了还隔着研究rust呢，早点结束吧
+
+*****
+
+####  holoan  
+##### 1922#         楼主| 发表于 2022-9-29 00:59
+
+自我满足感
+
+今天服务器没人登陆得进去其实只有miko一个人
+

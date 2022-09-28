@@ -251,3 +251,38 @@ David早期设定，拉美人特征更重</blockquote>
 [来源链接](https://share.api.weibo.cn/share/338539516,4818796315413826.html?weibo_id=4818796315413826)
 <img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千本blur  
+##### 3022#       发表于 2022-9-29 00:57
+
+前六集封神。最后几集观感下滑严重，一个是男主变得陌生而且头上死兆星闪得晃眼，一个是扳机味的夸张演出消解了前半部分的严肃性。结局请出亚当重锤收走男主也算是对一路看到最后一集的观众的尊重了。
+
+*****
+
+####  鱼雷鲨  
+##### 3023#       发表于 2022-9-29 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680223&amp;ptid=2069884" target="_blank">古桥一浩 发表于 2022-9-28 10:02</a>
+
+赛博朋克社会背景，就是科技高度发达，
+
+但底层人民被不可持续性的竭泽而渔到没有生存下去的机会，
+
+我没玩过 ...</blockquote>
+夜之城的自然人口增长率是负的，但每年都有大量夜漂入住，介于三和大神和中关村之间
+
+*****
+
+####  鱼雷鲨  
+##### 3024#       发表于 2022-9-29 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680692&amp;ptid=2069884" target="_blank">eulereld 发表于 2022-9-28 10:35</a>
+
+荒坂：这公司有家以它冠名的贵族学校呢，一看就知道是财阀
+
+去月球：可以理解为美好的梦想，我游戏实况只 ...</blockquote>
+美版创伤小组的喇叭就是喊人让路，日版更有无情大公司味：首先是明确飞机让路，其次还带着广告和公司使命什么的
+
