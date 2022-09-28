@@ -10537,3 +10537,18 @@ finana那个事比较大,应该论外<img src="https://static.saraba1st.com/imag
 
 惊了，鸠羽又动了
 
+
+
+*****
+
+####  dclara1  
+##### 17473#       发表于 2022-9-29 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57675234&amp;ptid=1972669" target="_blank">IL282 发表于 2022-9-27 20:21</a>
+finana那个事比较大,应该论外
+
+—— 来自 OnePlus IN2025, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+Finana什么瓜
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
