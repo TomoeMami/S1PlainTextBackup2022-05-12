@@ -728,3 +728,12 @@ outer wilds我也是看到飞船才认出来的……主要前两张图类似游
 
 遇到这种我都是直接6连skip送走的。
 
+
+
+*****
+
+####  osborn  
+##### 72#       发表于 2022-9-28 15:19
+
+今天的那个游戏我完全没听说过，又是向达利特滑落的一天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

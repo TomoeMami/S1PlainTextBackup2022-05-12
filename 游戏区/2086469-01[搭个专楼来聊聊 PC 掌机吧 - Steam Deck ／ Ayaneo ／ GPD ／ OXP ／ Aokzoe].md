@@ -3644,3 +3644,15 @@ KTR1开发订单登记；</blockquote>
 我早上九点差不多才付尾款的，也在揽收中了
 估计是按配置来决定发货顺序的
 
+
+
+*****
+
+####  bypass  
+##### 296#         楼主| 发表于 2022-9-28 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57683705&amp;ptid=2086469" target="_blank">恋妖壶 发表于 2022-9-28 14:33</a>
+
+你什么时候付的尾款啊，我也是群内预订的，但是当天尾款付晚了，现在还没动静 ...</blockquote>
+群内第一批预购（但是很晚才交定金），15s 尾款。
+
