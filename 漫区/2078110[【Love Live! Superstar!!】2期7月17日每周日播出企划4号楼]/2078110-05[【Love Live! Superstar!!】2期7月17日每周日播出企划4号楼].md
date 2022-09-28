@@ -1151,3 +1151,16 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 说到CP问题，我觉得有一点很奇怪：动画CP和中之人CP也不一定要一致吧，你瞧隔壁也只有一对是和动画CP一致吧，其他对不上，都是自己爱和谁玩就和谁玩<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 6101#       发表于 2022-9-29 01:05
+
+lld本期封面可堇夏，下期土妹子单独封面，不能理解这安排<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+不是新老搭配么
+还是说abc的两代立德必须高贵单独封面
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -286,3 +286,31 @@ David早期设定，拉美人特征更重</blockquote>
 去月球：可以理解为美好的梦想，我游戏实况只 ...</blockquote>
 美版创伤小组的喇叭就是喊人让路，日版更有无情大公司味：首先是明确飞机让路，其次还带着广告和公司使命什么的
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3025#       发表于 2022-9-29 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57681431&amp;ptid=2069884" target="_blank">acejoe 发表于 2022-9-28 11:30</a>
+
+很有网飞几个欧美人主导动画的味。
+
+不过这人物设定也太游戏了，动画基本不会这么画，除非做3d动画 ...</blockquote>
+很多二创里他都是杰克的侄子或者外甥
+
+这个脸型在有些动画里也有，比如嘎子
+
+*****
+
+####  saverok  
+##### 3026#       发表于 2022-9-29 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57690886&amp;ptid=2069884" target="_blank">千本blur 发表于 2022-9-29 00:57</a>
+
+前六集封神。最后几集观感下滑严重，一个是男主变得陌生而且头上死兆星闪得晃眼，一个是扳机味的夸张演出消 ...</blockquote>
+扳机样板戏
+
+大哥手抖的时候剧情结局至少能猜个8成了，区别只是怎么到结局
+
