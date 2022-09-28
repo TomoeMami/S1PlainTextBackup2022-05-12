@@ -15230,3 +15230,14 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 2.4起码有个印度贞德强化了，&amp; ...</blockquote>
 这也太难看了，要是252和2.6也都捞到强化的话就……
 
+
+
+*****
+
+####  リッチ  
+##### 2865#       发表于 2022-9-28 17:40
+
+400石1宝超人熊，歪了个南丁<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+本来想顺便抽个金钻头的结果毛也没有……
+
