@@ -634,3 +634,17 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 能不能整个散发的千<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 6059#       发表于 2022-9-28 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680096&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-28 09:53</a>
+
+昨天的广播渚佩熊的情绪好高，语速还越说越快
+
+好几期广播没听，这三人凑一起也很有趣（铃原依旧空气 ...</blockquote>
+我觉得铃原比之前好多了，还能讲几个冷笑话，二期参加完发售活动之后更融入些了（鲤鱼姐依然常驻空气嘉宾，不愧是liella名言制造机
+
