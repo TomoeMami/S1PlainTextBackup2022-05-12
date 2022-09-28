@@ -15192,3 +15192,21 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 闲得无聊找了最新的设定集，发现宇宙凛的因缘人物有游星，甚至宇宙凛君临银河的时候就已经存在，在苍辉宇宙都能活下来。甚至宇宙凛庇护的生命圈都受到它的侵害。以宇宙凛的性格不可能不管，能在宇宙凛手下活下来，设定有点厉害啊。如果有SW3的话，作为最终Boss的机会略大？
 
+
+
+*****
+
+####  alucardcz  
+##### 2861#       发表于 2022-9-28 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脚后跟宝具本
+
+*****
+
+####  黑上シグマ  
+##### 2862#       发表于 2022-9-28 17:10
+
+下个新活动10月中旬
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
