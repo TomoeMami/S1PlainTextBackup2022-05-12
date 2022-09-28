@@ -17845,3 +17845,20 @@ cdpr做的第一集和现在的第一集不是一回事吧，故事中心都不�
 <img src="https://p.sda1.dev/7/86996a6d6a5d6ca7a9c7b16e025a8a14/CMP_20220928082823461.jpg" referrerpolicy="no-referrer">
 突然感觉是日本人拍的出来的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古桥一浩  
+##### 2996#       发表于 2022-9-28 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678793&amp;ptid=2069884" target="_blank">terminator1990 发表于 2022-9-28 07:44</a>
+
+没玩过游戏，花了两三天把片子补完了，音画质量当然是顶级的水平，但一路看下来还是没法代入进去，感觉就像 ...</blockquote>
+把街边那些看H超梦的无业路人想成三和大神，
+
+创伤小队不救主角想成得了大病却不在医保范畴内，
+
+荒坂学院想成学区房。
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
