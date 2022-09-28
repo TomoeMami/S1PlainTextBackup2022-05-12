@@ -15241,3 +15241,16 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 本来想顺便抽个金钻头的结果毛也没有……
 
+
+
+*****
+
+####  khxooo  
+##### 2866#       发表于 2022-9-28 21:03
+
+ 本帖最后由 khxooo 于 2022-9-28 21:05 编辑 
+
+这次茶壶本放弃了，没有高宝的术单体搞不掂夏洛特，那三头犬开始40多W的小兵直接两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过刷2.5.1的Free3次都掉了煌星，终于将伽摩满破了。
+
