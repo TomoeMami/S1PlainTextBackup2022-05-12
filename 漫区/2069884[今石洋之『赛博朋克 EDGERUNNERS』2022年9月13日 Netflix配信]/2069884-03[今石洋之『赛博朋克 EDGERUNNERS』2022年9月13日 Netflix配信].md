@@ -189,3 +189,18 @@ David早期设定，拉美人特征更重</blockquote>
 
 这导演干干自己画头像的本行就好了，偏偏喜欢拓展业务跟各种项目合作。
 
+
+
+*****
+
+####  机械烈海王  
+##### 3017#       发表于 2022-9-28 13:15
+
+ 本帖最后由 机械烈海王 于 2022-9-28 13:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57682318&amp;ptid=2069884" target="_blank">jacket 发表于 2022-9-28 12:36</a>
+
+看了那个另外制作的片尾曲MV，土的我浑身难受。
+
+这导演干干自己画头像的本行就好了，偏偏喜欢拓展业务跟各 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉CDPR可能非常喜欢这画师，CDPR的Narrative Manager和边缘行者的执行制作人Rafal和制作人Elder用的都是他画的头像，一眼看过去风格整整齐齐的
+
