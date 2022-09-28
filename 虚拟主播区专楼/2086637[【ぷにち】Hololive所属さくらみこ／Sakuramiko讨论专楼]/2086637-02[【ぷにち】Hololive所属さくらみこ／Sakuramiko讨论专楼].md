@@ -4204,3 +4204,12 @@ Kobo什么情况
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">staff：这就是hololive么，可怕！
 
+
+
+*****
+
+####  rs5621  
+##### 1907#       发表于 2022-9-28 16:19
+
+嚎了一个小时，今晚看看会播啥
+
