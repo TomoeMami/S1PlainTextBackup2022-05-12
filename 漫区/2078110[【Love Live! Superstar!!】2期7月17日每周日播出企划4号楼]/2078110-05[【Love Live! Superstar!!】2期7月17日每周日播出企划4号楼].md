@@ -731,3 +731,14 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 芽衣作为铁血可香推却没什么表现，实属 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是给了一个表情的  四个人就她一副“我可香人别给我看这个”
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6067#       发表于 2022-9-28 16:52
+
+<blockquote>NHKワールドJAPAN presents SONGS OF TOKYO FES 2022に
+
+#Liella!の出演が决定</blockquote>
+
