@@ -3580,3 +3580,17 @@ KTR1开发订单登记；</blockquote>
 
 2022-9-28 11:45 上传
 
+
+
+*****
+
+####  恋妖壶  
+##### 291#       发表于 2022-9-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57674373&amp;ptid=2086469" target="_blank">弑古斯 发表于 2022-9-27 18:57</a>
+
+上次deck预订过期了一周我才发现，这次加强了查看邮箱的频率，结果预订从通知到过期只给2天时间，又晚了2天 ...</blockquote>
+？这个你看百分比差不多了就每天看了啊，或者手机邮件客户端给个推送不就得了
+
+这个真不是G胖的锅
+

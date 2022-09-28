@@ -501,3 +501,29 @@ D67883B0-7E66-4B39-A2FA-C7AAF756620A.jpeg
 
 主要这是“脱口秀”怎么搞啊？
 
+
+
+*****
+
+####  ruffian  
+##### 6045#       发表于 2022-9-28 12:05
+
+合理怀疑企划内部有扭曲的可堇厨<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6046#       发表于 2022-9-28 12:06
+
+聊天吧就( 鱼最近工作倒是不多
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可怕
+
+*****
+
+####  稀勢のささ  
+##### 6047#       发表于 2022-9-28 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第九集那种 跟可可一起搞学园偶像＞＞＞＞＞＞什么狗屁liella团队 我可以磕 这种就没啥意思
+
