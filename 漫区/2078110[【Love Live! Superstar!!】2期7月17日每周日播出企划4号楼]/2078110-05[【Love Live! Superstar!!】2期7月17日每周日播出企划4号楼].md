@@ -971,3 +971,12 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 请把可堇再绑死一点，这Liella给我最后的乐子也就是看可香人满地打滚的哀嚎了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能，双方毒唯现在也很不满捆绑销售
 
+
+
+*****
+
+####  凡人  
+##### 6089#       发表于 2022-9-28 22:28
+
+一期可堇黏死二期红蓝绑死可推三期还有一对贴死的CP
+

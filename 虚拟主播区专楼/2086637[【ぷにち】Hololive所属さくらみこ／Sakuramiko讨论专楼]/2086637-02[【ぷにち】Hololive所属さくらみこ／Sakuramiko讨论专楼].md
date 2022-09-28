@@ -4298,3 +4298,14 @@ Kobo什么情况
 
 3个月rust也该腻了，平时都没几个人玩都跑去打喷喷
 
+
+
+*****
+
+####  rs5621  
+##### 1917#       发表于 2022-9-28 22:23
+
+惨，上船送了一波
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
