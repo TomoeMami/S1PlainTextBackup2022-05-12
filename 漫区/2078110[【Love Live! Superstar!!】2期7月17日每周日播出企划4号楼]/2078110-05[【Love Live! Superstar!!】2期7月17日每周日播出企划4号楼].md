@@ -941,3 +941,12 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ViyViy  
+##### 6086#       发表于 2022-9-28 20:08
+
+唉，看板娘手办啥时候有消息哇，等的花儿都谢了，还有奸笑的Q版小人，香哥哥都出了多久了，可可也该跟上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
