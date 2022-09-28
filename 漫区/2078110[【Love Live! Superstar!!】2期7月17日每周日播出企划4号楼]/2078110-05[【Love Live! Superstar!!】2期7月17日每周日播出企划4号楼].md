@@ -705,3 +705,29 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 来互相伤害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6065#       发表于 2022-9-28 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684494&amp;ptid=2078110" target="_blank">saglork 发表于 2022-9-28 15:34</a>
+请把可堇再绑死一点，这Liella给我最后的乐子也就是看可香人满地打滚的哀嚎了 ...</blockquote>
+现在可香党看到任何非可香互动的地方都可以那种事情不要啊jpg。
+
+芽衣作为铁血可香推却没什么表现，实属唏嘘。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 6066#       发表于 2022-9-28 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684878&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-9-28 16:03</a>
+现在可香党看到任何非可香互动的地方都可以那种事情不要啊jpg。
+
+芽衣作为铁血可香推却没什么表现，实属 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是给了一个表情的  四个人就她一副“我可香人别给我看这个”
+
