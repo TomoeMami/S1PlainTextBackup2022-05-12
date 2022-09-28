@@ -15210,3 +15210,12 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  khxooo  
+##### 2863#       发表于 2022-9-28 17:15
+
+2.4起码有个印度贞德强化了，真就2.3没有一个强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

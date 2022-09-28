@@ -4240,3 +4240,16 @@ Kobo什么情况
 
 一般有告知才会专门有个歌回，等下一个原创曲出了大概
 
+
+
+*****
+
+####  blackdrrr  
+##### 1911#       发表于 2022-9-28 17:16
+
+我超，居然今天才看到miko有专楼了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虽然现在已经是偶尔看看35了，但还是很难忘当年看gta的美好时光<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+真是越来越好了啊，miko亲
+
