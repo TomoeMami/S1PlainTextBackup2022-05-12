@@ -2936,3 +2936,21 @@ BOX Ⅳ 数量限定生产版特典
 
 整部动画的气势都变了
 
+
+
+*****
+
+####  艾特娜  
+##### 1763#       发表于 2022-9-29 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这才是抹布拉布的味儿啊
+
+*****
+
+####  luciferion  
+##### 1764#       发表于 2022-9-29 21:48
+
+[中文二期PV2](https://b23.tv/u0cQzUs)
+
+这个比一期的PV好多了啊，歌也还行
+
