@@ -1164,3 +1164,13 @@ lld本期封面可堇夏，下期土妹子单独封面，不能理解这安排<i
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 6102#       发表于 2022-9-29 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57690224&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-28 23:31</a></blockquote>
+pay的眼睛好大，兔的脸好小<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
