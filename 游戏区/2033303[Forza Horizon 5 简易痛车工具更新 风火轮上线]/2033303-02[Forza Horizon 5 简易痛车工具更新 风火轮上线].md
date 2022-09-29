@@ -10362,3 +10362,15 @@ DLC2有影子了么……
 不过国内车厂快出跑车吧，不然在游戏里不够看啊 ...</blockquote>
 国内没有这方面的市场，经常是嚷嚷声大，实际买的没几个。有钱的看不上，想要的没钱买
 
+
+
+*****
+
+####  4ckc  
+##### 2482#       发表于 2022-9-29 22:52
+
+草这周蛇头过于欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+建议开那辆GMC
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

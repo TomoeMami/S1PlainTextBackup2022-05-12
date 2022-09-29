@@ -1631,3 +1631,12 @@ Fdzr1ezVIAEuh-V.jpg
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 6149#       发表于 2022-9-29 22:56
+
+yabu目前舞台是四个人里最好的，和一期接近的水平，现在你企划告诉我剩下那仨确实不如，因为她们都是淘汰下来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">成心恶心人是吧……
+
