@@ -1374,3 +1374,24 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但non同学我是真没看到啥优势，大概日本人就好这口养成感？
 
+
+
+*****
+
+####  长日留痕  
+##### 6125#       发表于 2022-9-29 16:45
+
+一年级：人生的大落大起实在是太刺激了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 6126#       发表于 2022-9-29 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57697981&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-29 16:43</a>
+
+老五人确实选的好但non同学我是真没看到啥优势，大概日本人就好这口养成感？ ...</blockquote>
+听说日本那边对新四皇里面，最喜欢的是kuma
+
