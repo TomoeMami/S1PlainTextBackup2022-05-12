@@ -1,11 +1,7 @@
 
 [Errno 2] No such file or directory: './虚拟主播区专楼/1921517[A站虚拟偶像(AVUP)综合讨论楼]'
 !!error:id=1921517
-list index out of range
-!!error:id=2075863
 [Errno 2] No such file or directory: './外野/2090017-01[魔都疫情还能聊吗？].md'
 !!error:id=2090017
-list index out of range
-!!error:id=2096352
 [Errno 2] No such file or directory: './虚拟主播区专楼/1941125[夏色（なついろ）まつり／夏色祭 祭丝日记楼]'
 !!error:id=1941125
