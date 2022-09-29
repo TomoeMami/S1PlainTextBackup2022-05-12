@@ -1544,3 +1544,17 @@ non其实一次选拔时候可能就已经定了，为了封 锁 消 息
 
 哪有把差距当卖点的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就没想过如果一直无法抹平该怎么办？
 
+
+
+*****
+
+####  靡宜  
+##### 6142#       发表于 2022-9-29 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57698903&amp;ptid=2078110" target="_blank">stygian 发表于 2022-9-29 18:00</a>
+
+non其实一次选拔时候可能就已经定了，为了封 锁 消 息
+
+草这都和谐的</blockquote>
+以前不是有青山姐破格一说吗，不知道后面有没有辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">而且non说自己是落选一期的，这个选定的情况不好说
+

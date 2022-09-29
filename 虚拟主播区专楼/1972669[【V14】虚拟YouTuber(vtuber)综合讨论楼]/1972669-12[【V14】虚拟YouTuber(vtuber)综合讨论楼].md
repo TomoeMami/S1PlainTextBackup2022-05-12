@@ -10603,3 +10603,14 @@ vspo团建成员基本上把东京在住包圆了吧，除了ema
 
 のあ　不仲
 
+
+
+*****
+
+####  FCCHua  
+##### 17478#       发表于 2022-9-29 19:24
+
+ 本帖最后由 FCCHua 于 2022-9-29 19:28 编辑 
+
+有一说一上次ktv的团建怜就在，包括前几个月和lisa、beni一起去hnn新家，这次hnn主导的团建她为什么没来就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
