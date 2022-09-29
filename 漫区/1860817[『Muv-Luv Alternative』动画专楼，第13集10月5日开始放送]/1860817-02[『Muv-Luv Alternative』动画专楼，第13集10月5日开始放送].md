@@ -3079,3 +3079,43 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Toby_dak  
+##### 1776#       发表于 2022-9-30 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703011&amp;ptid=1860817" target="_blank">UnrealApartheid 发表于 2022-9-30 00:52</a>
+
+上一季第十二话就透露了被驹木救出来的女孩子已经加入女武神中队了……
+
+  -- 来自 能搜索的 Stage1官方 An ...</blockquote>
+进队也不一定要当卫士吧，跟遥一起当command post不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 1777#       发表于 2022-9-30 00:17
+
+不是10.5吗，是有先行？
+
+*****
+
+####  Rhantolk  
+##### 1778#       发表于 2022-9-30 00:18
+
+不是10.5吗，是有先行？
+
+*****
+
+####  kamarus  
+##### 1779#       发表于 2022-9-30 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703191&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-9-30 00:09</a>
+动画看下来人物塑造集中在主角和香月上，希望第二季别把女主丢了
+
+—— 来自 OnePlus HD1900, And ...</blockquote>
+al真不好说女主。
+非要说纯夏的话看样子少不了的，00unit的就差贴pv脑门上了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

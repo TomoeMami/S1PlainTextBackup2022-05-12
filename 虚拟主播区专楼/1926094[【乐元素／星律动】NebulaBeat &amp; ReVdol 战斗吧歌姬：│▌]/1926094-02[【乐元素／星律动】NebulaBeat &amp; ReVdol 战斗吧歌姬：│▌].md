@@ -4381,3 +4381,37 @@ syl，这么说的话九夏鸭鸭看来也没必要再在北京 ...</blockquote>
 
 当时就觉得不太对，回上海为何定位会出现浙江，但那时候还完全没要走的征兆，我的猜想是去亲戚家聚餐了，现在看看都能连上了……
 
+
+
+*****
+
+####  汶水君  
+##### 1980#       发表于 2022-9-30 00:14
+
+楼友脑补能力令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ladiesman802  
+##### 1981#       发表于 2022-9-30 00:14
+
+所以就是因为一个定位而推断出跳槽？而且放着nb一姐不做，去一个新企划从头开始，甚至不是在上海的
+
+不管怎么样，晚上拷打一下再说
+
+*****
+
+####  MaxFOrder  
+##### 1982#       发表于 2022-9-30 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703250&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-30 00:14</a>
+
+所以就是因为一个定位而推断出跳槽？而且放着nb一姐不做，去一个新企划从头开始，甚至不是在上海的
+
+不管怎 ...</blockquote>
+当然不能石锤，就看明天或者是两个月之后会不会见分晓了。
+
+倘若真要跳了那真的是属实把粉丝和nb厂当狗了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">国V观众哪见过这么刺激的场面啊
+
