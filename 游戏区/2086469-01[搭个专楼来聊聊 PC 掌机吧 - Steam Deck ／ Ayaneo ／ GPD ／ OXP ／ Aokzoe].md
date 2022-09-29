@@ -3709,3 +3709,51 @@ KTR1开发订单登记；</blockquote>
 不知道有谁发货了，30号发好尴尬，国庆回家收不到</blockquote>
 没有人收到，问了客服，现在货都没到呢，就是录入了一下单号而已。
 
+
+
+*****
+
+####  医生狼多  
+##### 302#       发表于 2022-9-29 12:54
+
+ 本帖最后由 医生狼多 于 2022-9-29 13:04 编辑 
+
+g3xgen1是个啥芯片，看了下好像去年就公开了
+
+雷蛇在拉斯维加斯世界移动大会上公布了世界首款5G移动游戏掌机Razer Edge 5G
+据了解，该掌机由雷蛇、Qualcomm和Verizon合作开发，采用高通骁龙G3x Gen1芯片，配备Adreno GPU，能够以144的帧率运行安卓游戏，支持内置10位HDR。此外还支持 sub-6Hz 5G、毫米波5G和Wi-Fi 6E，还可输出到4K显示器，或通过USB-C接口与MR头显连接。不仅可以游玩本地游戏，还支持云游戏。
+
+官方承诺，将在10月15日的RazerCon上公布更多关于这款掌机的信息。
+
+*****
+
+####  Fuero  
+##### 303#       发表于 2022-9-29 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57695331&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 12:54</a>
+
+雷蛇在拉斯维加斯世界移动大会上公布了世界首款5G移动游戏掌机Razer Edge 5G</blockquote>
+阿这，本来还想入g cloud玩串流的，这下又纠结了
+
+*****
+
+####  医生狼多  
+##### 304#       发表于 2022-9-29 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57695421&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-9-29 13:03</a>
+阿这，本来还想入g cloud玩串流的，这下又纠结了</blockquote>
+价格不是一个赛道的吧
+另外我觉得和前面人说的一样，g cloud被奥丁完爆，不如考虑二手奥丁
+
+*****
+
+####  distrowatch  
+##### 305#       发表于 2022-9-29 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57695331&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 12:54</a>
+
+g3xgen1是个啥芯片，看了下好像去年就公开了
+
+雷蛇在拉斯维加斯世界移动大会上公布了世界首款5G移动游戏掌 ...</blockquote>
+TSMC N6版的888
+
