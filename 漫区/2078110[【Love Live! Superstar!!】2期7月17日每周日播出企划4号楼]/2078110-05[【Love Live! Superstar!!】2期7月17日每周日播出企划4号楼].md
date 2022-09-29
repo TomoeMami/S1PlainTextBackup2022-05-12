@@ -1174,3 +1174,29 @@ lld本期封面可堇夏，下期土妹子单独封面，不能理解这安排<i
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57690224&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-9-28 23:31</a></blockquote>
 pay的眼睛好大，兔的脸好小<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 6103#       发表于 2022-9-29 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57690641&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-29 00:20</a>
+
+说到CP问题，我觉得有一点很奇怪：动画CP和中之人CP也不一定要一致吧，隔壁也只有一对是和动画CP一致吧，其 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有人都D到隔壁去了不是吗
+
+*****
+
+####  仟音一心  
+##### 6104#       发表于 2022-9-29 09:54
+
+<img src="https://p.sda1.dev/7/b04b3878269e182967cad32a4d41b13a/CMP_20220929095355997.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6105#       发表于 2022-9-29 09:54
+
+<img src="https://p.sda1.dev/7/b04b3878269e182967cad32a4d41b13a/CMP_20220929095355997.jpg" referrerpolicy="no-referrer">
+
