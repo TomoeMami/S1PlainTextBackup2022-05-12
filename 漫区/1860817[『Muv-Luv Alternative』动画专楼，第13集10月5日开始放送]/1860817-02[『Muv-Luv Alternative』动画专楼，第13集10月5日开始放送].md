@@ -2825,3 +2825,25 @@ pv1内容大概就是第一集了吧，毕业然后模拟战，最后名场景�
 
 2期OP是JAM+栗子
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 1755#       发表于 2022-9-29 20:15
+
+ 本帖最后由 UnrealApartheid 于 2022-9-29 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57700005&amp;ptid=1860817" target="_blank">hlazd 发表于 2022-09-29 19:45:32</a>
+
+2期OP是JAM+栗子</blockquote>
+ED是上一季OP的组合V.W.P.
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  亚尔古水手  
+##### 1756#       发表于 2022-9-29 20:20
+
+小——麻——<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
