@@ -1404,3 +1404,14 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 看好kuma和yabu，有了星团以后声优这条道多少也能拓宽
 
+
+
+*****
+
+####  a92063256  
+##### 6128#       发表于 2022-9-29 17:09
+
+二期生里个人觉得kuma不错，但是暂时也没什么推的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
