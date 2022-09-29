@@ -1343,3 +1343,34 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 绝了，什么貂毛操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 6122#       发表于 2022-9-29 16:38
+
+ 本帖最后由 沙茶酱 于 2022-9-29 16:41 编辑 
+
+我琢磨是不是星的策划还觉得星现在节奏不够多，所以特意下场加薪助燃是吧
+
+如果以后还有第五团，建议除了星负责选中之人的相关人员可以过去帮忙，其他搅屎棍全部列入黑名单，不要再靠近Lovelive企划
+
+星的策划，除了选人有一手，其他业务能力不敢苟同
+
+*****
+
+####  ruffian  
+##### 6123#       发表于 2022-9-29 16:41
+
+星的沙缺策划除了抽卡手气欧了点之外还整过别的好活吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6124#       发表于 2022-9-29 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但non同学我是真没看到啥优势，大概日本人就好这口养成感？
+
