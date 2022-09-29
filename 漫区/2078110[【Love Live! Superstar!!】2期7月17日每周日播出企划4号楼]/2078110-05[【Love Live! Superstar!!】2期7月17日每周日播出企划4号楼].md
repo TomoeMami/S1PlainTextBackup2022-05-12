@@ -1481,3 +1481,23 @@ yabu我挺喜欢的，不好说现在的文静样是还没放开还是本性如�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  stygian  
+##### 6135#       发表于 2022-9-29 17:35
+
+大熊的访谈里只说了参加一期选拔失败后再战二期，你们是从哪里得出的“一期落选里挑二期”的结论的。。。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 6136#       发表于 2022-9-29 17:38
+
+怎么开始讨论起“XXX我挺喜欢的”、“XXX还行啊”之类的话题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+隔壁提醒才想到，yabu是直接选拔二期生的，不是一期落选啊
+
