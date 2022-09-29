@@ -1665,3 +1665,14 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">鲤鱼这祝福，最后那句是打算做什么
 
+
+
+*****
+
+####  player3960  
+##### 6153#       发表于 2022-9-29 23:47
+
+鲤鱼的中心思想就一个字“吃”，各种意义上的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

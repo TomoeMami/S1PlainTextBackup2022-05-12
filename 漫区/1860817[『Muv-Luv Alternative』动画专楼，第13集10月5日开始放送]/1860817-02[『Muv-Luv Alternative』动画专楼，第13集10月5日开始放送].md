@@ -3011,3 +3011,15 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 艹啊，13台不知火。
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 1770#       发表于 2022-9-29 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57702867&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-09-29 23:39:44</a>
+艹啊，13台不知火。</blockquote>上一季第十二话就透露了被驹木救出来的女孩子已经加入女武神中队了……
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
