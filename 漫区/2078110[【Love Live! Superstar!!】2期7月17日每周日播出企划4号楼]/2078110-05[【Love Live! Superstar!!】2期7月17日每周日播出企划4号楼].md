@@ -1200,3 +1200,25 @@ pay的眼睛好大，兔的脸好小<img src="https://static.saraba1st.com/image
 
 <img src="https://p.sda1.dev/7/b04b3878269e182967cad32a4d41b13a/CMP_20220929095355997.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 6106#       发表于 2022-9-29 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684671&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-9-28 15:47</a>
+
+NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低，想到这点就很乐"，虽然感觉有点因爱生恨的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第9话还没事故啊？我只能说海外对sp莫名其妙翻车的反应远比国内大
+
+*****
+
+####  ViyViy  
+##### 6107#       发表于 2022-9-29 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57693479&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-9-29 10:48</a>
+
+第9话还没事故啊？我只能说海外对sp莫名其妙翻车的反应远比国内大</blockquote>
+说的是水的放送黑屏这种观看事故啦，抛去水黑屏集星S2E9确实是全企划动画评价最低的一集。
+
