@@ -10348,3 +10348,17 @@ DLC2有影子了么……
 
 不过国内车厂快出跑车吧，不然在游戏里不够看啊
 
+
+
+*****
+
+####  stormquantage  
+##### 2481#       发表于 2022-9-29 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57698503&amp;ptid=2033303" target="_blank">行政裁定书 发表于 2022-9-29 17:21</a>
+
+领克03+终于来了吗，就差byd了。
+
+不过国内车厂快出跑车吧，不然在游戏里不够看啊 ...</blockquote>
+国内没有这方面的市场，经常是嚷嚷声大，实际买的没几个。有钱的看不上，想要的没钱买
+

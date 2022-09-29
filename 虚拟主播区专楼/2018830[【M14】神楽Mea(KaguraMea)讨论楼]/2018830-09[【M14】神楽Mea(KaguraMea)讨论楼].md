@@ -5074,3 +5074,21 @@ live是录播不是业界心照不宣的嘛，说起来你麻这个企划一年�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 12536#       发表于 2022-9-29 21:15
+
+连着搞3Dlive是这样的，马上10月底还有一场呢
+
+*****
+
+####  往世雷书  
+##### 12537#       发表于 2022-9-29 21:19
+
+这不比19年上半年手写封面那段时间幸福多了，回想起来都感觉榨干热情，要知足啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
