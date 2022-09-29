@@ -4511,3 +4511,14 @@ woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一叶丈育  
+##### 1991#       发表于 2022-9-30 07:47
+
+漏油的发散我是认的。星律动还是吸到新人了啊，没有mmr那种氛围了都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

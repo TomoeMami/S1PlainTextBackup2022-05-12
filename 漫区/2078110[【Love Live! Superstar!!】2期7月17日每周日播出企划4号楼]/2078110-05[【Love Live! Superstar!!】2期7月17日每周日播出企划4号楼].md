@@ -1726,3 +1726,31 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 6159#       发表于 2022-9-30 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57704518&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-9-30 07:39</a>
+话说这消息从哪来的，我看着sao官方卖的不是个bdbox吗</blockquote>
+『SAO』アニメ10周年を记念した、ファン必携アイテムが登场!
+
+『ソードアート・、オンライン』アニメ10周年をお祝いしたアニバーサリームック。
+アニメ始动当初から剧场版『SAOP』に至るまで、电撃G’sマガジンに掲载した川原砾先生のインタビューを厳选収録。
+小説诞生秘话やキャラクター诞生秘话など、ファン必読の内容です。
+さらに川原砾先生&amp;abec先生のお祝いメッセージ、キリト役・松冈祯丞さんとアスナ役・戸松遥さんのインタビュー、歴代监督のコメントなど新规収録も盛りだくさん。
+トリビュート企画として『ラブライブ!スーパースター!!』可可役のLiyuuさんによるアスナのコスプレグラビアも掲载しています♪
+
+*****
+
+####  aoaoaodedede  
+##### 6160#       发表于 2022-9-30 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57704540&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-30 07:44</a>
+『SAO』アニメ10周年を记念した、ファン必携アイテムが登场!
+
+『ソードアート・、オンライン』アニメ10周 ...</blockquote>
+行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
