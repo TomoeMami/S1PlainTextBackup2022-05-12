@@ -2963,3 +2963,22 @@ BOX Ⅳ 数量限定生产版特典
 
 看了pv感觉还行，新一集出了吗
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1766#       发表于 2022-9-29 22:09
+
+ 本帖最后由 再买自检星剁手 于 2022-9-29 22:10 编辑 
+
+回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+追加了社霞观看凄乃皇初次出击的画面
+
+还有为了跨越自己，白银单挑六七只要塞级的画面
+
+这次能把剧情做完么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+战术机起飞的那个引导员动作，记得是鸡枞推上点过赞的（美航母战斗机起飞图片），不知道是不是动画组特意做的
+
