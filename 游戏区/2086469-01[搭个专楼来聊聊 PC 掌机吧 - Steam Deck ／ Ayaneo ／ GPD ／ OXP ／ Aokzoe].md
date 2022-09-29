@@ -3674,3 +3674,38 @@ KTR1开发订单登记；</blockquote>
 
 楼友们目前有共识哪个综合起来比较好使吗
 
+
+
+*****
+
+####  bypass  
+##### 299#         楼主| 发表于 2022-9-29 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57684129&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-28 15:07</a>
+
+我早上九点差不多才付尾款的，也在揽收中了
+
+估计是按配置来决定发货顺序的 ...</blockquote>
+然而昨晚并没有发货，估计要等明天才会一起发吧。
+
+*****
+
+####  医生狼多  
+##### 300#       发表于 2022-9-29 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57694043&amp;ptid=2086469" target="_blank">bypass 发表于 2022-9-29 11:21</a>
+然而昨晚并没有发货，估计要等明天才会一起发吧。</blockquote>
+不知道有谁发货了，30号发好尴尬，国庆回家收不到
+
+
+
+*****
+
+####  bypass  
+##### 301#         楼主| 发表于 2022-9-29 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57694081&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 11:23</a>
+
+不知道有谁发货了，30号发好尴尬，国庆回家收不到</blockquote>
+没有人收到，问了客服，现在货都没到呢，就是录入了一下单号而已。
+
