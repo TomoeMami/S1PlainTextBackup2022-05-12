@@ -7,3 +7,5 @@
 !!error:id=2090017
 [Errno 2] No such file or directory: './虚拟主播区专楼/1941125[夏色（なついろ）まつり／夏色祭 祭丝日记楼]'
 !!error:id=1941125
+list index out of range
+!!error:id=2096168
