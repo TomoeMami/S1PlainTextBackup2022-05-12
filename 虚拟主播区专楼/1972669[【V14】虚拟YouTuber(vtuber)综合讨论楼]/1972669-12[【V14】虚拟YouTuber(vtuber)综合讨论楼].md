@@ -10614,3 +10614,25 @@ vspo团建成员基本上把东京在住包圆了吧，除了ema
 
 有一说一上次ktv的团建怜就在，包括前几个月和lisa、beni一起去hnn新家，这次hnn主导的团建她为什么没来就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 17479#       发表于 2022-9-29 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57696861&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-9-29 15:07</a>
+私联打游戏算什么事，们口了（等人）也干过啊</blockquote>
+主要是这事和她后来连发口嗨，比较有节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 17480#       发表于 2022-9-29 20:04
+
+Selen这个笔记本麦，现在声音和她前世一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

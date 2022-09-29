@@ -1558,3 +1558,31 @@ non其实一次选拔时候可能就已经定了，为了封 锁 消 息
 草这都和谐的</blockquote>
 以前不是有青山姐破格一说吗，不知道后面有没有辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">而且non说自己是落选一期的，这个选定的情况不好说
 
+
+
+*****
+
+####  starring  
+##### 6143#       发表于 2022-9-29 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">跑错片场打错人的海爷 @KitaharaTomoe
+
+Fdzr1ezVIAEuh-V.jpg
+(153.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/200354t9y93tyi3372yte2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 6144#       发表于 2022-9-29 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57700213&amp;ptid=2078110" target="_blank">starring 发表于 2022-9-29 20:05</a>
+
+跑错片场打错人的海爷 @KitaharaTomoe</blockquote>
+毕竟都是橙毛
+
