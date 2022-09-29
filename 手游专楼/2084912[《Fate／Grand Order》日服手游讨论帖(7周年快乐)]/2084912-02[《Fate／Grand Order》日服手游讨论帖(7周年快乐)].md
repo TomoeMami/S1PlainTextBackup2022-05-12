@@ -15317,3 +15317,20 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 突然想起来咸了一周还没去打90++，昨晚试了下90++用的摩根+W杀狐+奥伯龙有点看发牌员 ...</blockquote>
 双CABER,奥贝龙拐,主C 80级310一与就可以了....唯一缺点就是2T没蓝红就得挨多一回合
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2870#       发表于 2022-9-29 09:20
+
+ 本帖最后由 保罗赫伯特 于 2022-9-29 09:22 编辑 
+
+2.51的回忆活动和2.4隔得也太短了，这是要抓紧时间在年末开2.7之前把剩下几个主线的回忆关卡开完嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有点意外三个关卡的选择，本来以为一定会有波塞冬的真体机神战（虽然也就是打换皮的圣杯球体模型和马老师），结果安排的是凯尼斯，夏洛蒂和三头犬的关卡复刻，是单纯不想选，还是因为波塞冬的舰艇是剧情里的一个临时地图，觉得要复刻出来比较麻烦才不做的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+个人体感几个多倍血量高难里，夏洛蒂最简单，没啥抗性，基本就是肉桩。凯尼斯稍微多了一点复习机制的难度，但用超人熊打五下破完第一罐血和消除抗性buff之后也变肉桩了。最难的是三头犬，一面多一面单的配置本来就很难受（有个枪介小怪还不能用大英雄秒），三头犬每回合概率封宝具是真的难扛，手办娘三技能虽然可以给自己和队友解除debuff，也就只有三回合，时间一长也不行。之后要打的话，要从速战速决和增强debuff抗性两条路径思考<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
+顺便一提，在这种不能用重复从者的场合，就体现出梅莉和RBA这些新副拐的重要性了，这也算是一种售后吧<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
