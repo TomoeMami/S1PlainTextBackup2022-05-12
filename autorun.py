@@ -8,8 +8,11 @@ import io
 import os
 import json
 
-old_number = 2095520+int((int(time.time())-1664154428)/86400)*175
-
+#2022-09-19
+old_number = 2095520
+# old_number = 2095520++int((int(time.time())-1664434472)/86400)*175
+#2021-01-01
+# dead_number = 1980710
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
     soup = BeautifulSoup(html, 'html.parser')
@@ -21,17 +24,18 @@ def parse_html(html,threadict):
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
             if levels:
                 #在这里进行是否添加的检查
-                if(int(threadid) > old_number):
-                    level = re.sub(r'</a></span>','',str(levels.group(0)))
-                    lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
-                    replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                    if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
-                        threadict[threadid] = {}
-                        threadict[threadid]['replytime'] = replytime
-                        threadict[threadid]['level'] = level
+                # if(int(threadid) > old_number):
+                level = re.sub(r'</a></span>','',str(levels.group(0)))
+                lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
+                replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
+                if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
+                    threadict[threadid] = {}
+                    threadict[threadid]['replytime'] = replytime
+                    threadict[threadid]['level'] = level
 
 if __name__ == '__main__':
-    blacklist = [2056385]
+    blacklist = [2056385,1842868,334540,1971007,1915305]
+    high_level = 9
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
     with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
@@ -51,7 +55,8 @@ if __name__ == '__main__':
     session = requests.session()
     for k in forumdict.keys():
         threadict = {}
-        for i in range(1,3):
+        # 仅查看第一页
+        for i in range(1,2):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
@@ -64,28 +69,27 @@ if __name__ == '__main__':
         for l in threadict.keys():
             if (int(l) not in blacklist):
                 if l in ids:
-                    if thdata[l]['totalreply']//30 > 29:
+                    if thdata[l]['totalreply']//30 > high_level:
                         if thdata[l]['totalreply']//30 < int(threadict[l]['level']):
                             thdata[l]['active'] = True
                     else:
                         thdata[l]['active'] = True
                 else:
-                    if(int(l) > old_number):
-                        thdata[l] = {}
-                        thdata[l]['totalreply'] =0
-                        thdata[l]['title'] = "待更新"
-                        thdata[l]['newtitle'] = "待更新"
-                        thdata[l]['lastedit'] = int(threadict[l]['replytime'])
-                        thdata[l]['category']= k
-                        thdata[l]["active"] =  True
-                        print('add:'+l)
+                    thdata[l] = {}
+                    thdata[l]['totalreply'] =0
+                    thdata[l]['title'] = "待更新"
+                    thdata[l]['newtitle'] = "待更新"
+                    thdata[l]['lastedit'] = int(threadict[l]['replytime'])
+                    thdata[l]['category']= k
+                    thdata[l]["active"] =  True
+                    print('add:'+l)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     activethdata={}
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > 29):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
