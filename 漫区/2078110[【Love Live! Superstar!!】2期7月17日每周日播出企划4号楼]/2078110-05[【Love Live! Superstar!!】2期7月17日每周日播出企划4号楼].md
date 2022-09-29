@@ -1528,3 +1528,19 @@ non其实一次选拔时候可能就已经定了，为了封 锁 消 息
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  凡人  
+##### 6140#       发表于 2022-9-29 18:32
+
+感觉一期生和二期生的差距本身也是企划想卖的一个卖点，提了太多次了
+
+*****
+
+####  ViyViy  
+##### 6141#       发表于 2022-9-29 18:35
+
+哪有把差距当卖点的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就没想过如果一直无法抹平该怎么办？
+
