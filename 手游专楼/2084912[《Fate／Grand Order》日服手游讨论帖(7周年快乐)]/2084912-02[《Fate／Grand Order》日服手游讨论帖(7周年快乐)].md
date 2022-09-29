@@ -15334,3 +15334,22 @@ EX职阶占模<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 顺便一提，在这种不能用重复从者的场合，就体现出梅莉和RBA这些新副拐的重要性了，这也算是一种售后吧<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 2871#       发表于 2022-9-29 10:04
+
+因为11月初就开rts的2.7了
+
+rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有什么区别
+
+*****
+
+####  Blackson  
+##### 2872#       发表于 2022-9-29 10:09
+
+接下来的新活动得打过2.5才能玩，而且还是十月中旬的活动（万圣节？还是别的什么活动？）
+总感觉用这种方式来逼迫玩家去通关主线的做法真是粗暴
+
