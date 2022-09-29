@@ -3795,3 +3795,14 @@ steam dick补尾款了
 当伸手党求推荐替换用的硬盘和教程</blockquote>
 <img src="https://p.sda1.dev/7/eb66e0a8c522f3eaf092945cb956ba9b/CMP_20220929211243418.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  魔法酪饼  
+##### 309#       发表于 2022-9-30 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57701018&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-09-29 21:13:10</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">2230的ssd坑这么深吗。。。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
