@@ -3,5 +3,3 @@
 !!error:id=1921517
 [Errno 2] No such file or directory: './外野/2090017-01[魔都疫情还能聊吗？].md'
 !!error:id=2090017
-[Errno 2] No such file or directory: './外野/2045670-01[2022年股票讨论贴。].md'
-!!error:id=2045670

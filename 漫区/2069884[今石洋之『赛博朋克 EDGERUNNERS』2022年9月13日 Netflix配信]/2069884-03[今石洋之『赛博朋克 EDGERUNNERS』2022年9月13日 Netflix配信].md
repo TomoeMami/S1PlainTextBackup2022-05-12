@@ -347,3 +347,15 @@ David早期设定，拉美人特征更重</blockquote>
 格罗瑞亚是哪位</blockquote>
 大卫他妈，Gloria
 
+
+
+*****
+
+####  七堂伽蓝  
+##### 3030#       发表于 2022-9-29 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57686645&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-9-28 18:18</a>
+
+其实没啥问题，本质赛博朋克其实算是世界末日的一种，所以里面社会问题都是过度极端化的，完全没有共鸣是 ...</blockquote>
+就算是看神经漫游者这位也不会带入的，那之后的赛博作品就更不用说了，这个就是关于题材的欣赏问题。可能这位理解的赛博朋克是技术探讨，但其实这个题材的内核还是社会和人。
+

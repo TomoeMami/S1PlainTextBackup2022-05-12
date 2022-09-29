@@ -1298,3 +1298,48 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 这企划咋总搞这种细想就犯恶心的操作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  Enakina  
+##### 6117#       发表于 2022-9-29 16:21
+
+这操作不老套路了，水团落选的萌p多年后又加了虹
+
+*****
+
+####  cybernetics31  
+##### 6118#       发表于 2022-9-29 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概日本人的脑回路是这落选的正好，还能省钱吧(
+
+*****
+
+####  Kfly  
+##### 6119#       发表于 2022-9-29 16:23
+
+不知道结那是什么情况，难道也是败者组？可能未公开的成员也是？有些吓人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6120#       发表于 2022-9-29 16:24
+
+其实是企划为了配合动画才那样搞，连访谈都每人一次说跟五老星有差距<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  player3960  
+##### 6121#       发表于 2022-9-29 16:25
+
+本来加4人，我以为官方会想宣传的是“我这道菜啊，加了4种新材料，虽然总份量不变，但是你可以尝到新的口味。”<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+然后现在我的实际观感是“你这道菜啊，接近一半食材都用的没以前好啊，而且份量也没变。”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看完访谈后，官方：“你的感觉是对的。”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+绝了，什么貂毛操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
