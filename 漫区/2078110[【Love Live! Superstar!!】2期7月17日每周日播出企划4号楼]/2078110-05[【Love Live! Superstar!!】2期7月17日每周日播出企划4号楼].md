@@ -1685,3 +1685,13 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 鲤鱼这表情用的妙，20岁了，吃啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6155#       发表于 2022-9-30 00:26
+
+<img src="https://p.sda1.dev/7/b3c10b13eb6dc20b3963e3b1ae6619c7/20220930_002244.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/defe481beba2b3b9ae1e1a079cb35493/20220930_002247.jpg" referrerpolicy="no-referrer">
+

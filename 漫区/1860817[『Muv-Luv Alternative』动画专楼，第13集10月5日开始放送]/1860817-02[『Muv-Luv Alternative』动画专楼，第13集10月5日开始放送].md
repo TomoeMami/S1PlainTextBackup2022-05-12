@@ -3119,3 +3119,36 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 al真不好说女主。
 非要说纯夏的话看样子少不了的，00unit的就差贴pv脑门上了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  humphrey  
+##### 1780#       发表于 2022-9-30 00:23
+
+话说回来武爷穿越回来那首翼挺好的，不知道能不能情怀一把…
+
+*****
+
+####  再买自检星剁手  
+##### 1781#       发表于 2022-9-30 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703271&amp;ptid=1860817" target="_blank">Rhantolk 发表于 2022-9-30 00:17</a>
+不是10.5吗，是有先行？</blockquote>
+目前新内容都是新pv获得的
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  再买自检星剁手  
+##### 1782#       发表于 2022-9-30 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703268&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-9-30 00:17</a>
+进队也不一定要当卫士吧，跟遥一起当command post不好吗</blockquote>
+进了女武神队还能有简单的任务？
+
+个人认为最好的结局是甲21因为经验不足战死，落叶归根<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
