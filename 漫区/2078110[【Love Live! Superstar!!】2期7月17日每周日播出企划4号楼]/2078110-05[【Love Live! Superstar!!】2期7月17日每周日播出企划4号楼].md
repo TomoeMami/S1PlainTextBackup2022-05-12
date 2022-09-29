@@ -1459,3 +1459,25 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 既然都贷款吃屎了，猜一个三期生只有VN，然后动画再次上演“你们Liella冠军的实力让别人止步”，这样就不会有三期生被雪藏的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6133#       发表于 2022-9-29 17:24
+
+ 本帖最后由 稀勢のささ 于 2022-9-29 17:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">yabu多好啊 脸盘子也变小了 就是说话不多接梗接不上
+kuma不用角色音唱歌就没那味儿  整的好不好先不说愿意整活
+另外两个不评价
+
+*****
+
+####  ruffian  
+##### 6134#       发表于 2022-9-29 17:29
+
+yabu我挺喜欢的，不好说现在的文静样是还没放开还是本性如此，会染红头发涂红指甲反差也太大了，难道是女版宫村吗X<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
