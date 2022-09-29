@@ -2847,3 +2847,67 @@ ED是上一季OP的组合V.W.P.
 
 小——麻——<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1757#       发表于 2022-9-29 20:32
+
+◤￣￣￣￣￣￣
+
+第二弾PV解禁！
+
+＿＿＿＿＿＿◢
+
+纯夏の悲痛な叫びや、巨大兵器「凄乃皇・弐型」の登场、激化するBETAとの戦い―。
+
+第二期の见所が诘まった映像となっています！
+
+そして主题歌解禁！
+
+OP「暁を撃て」／JAM Project , 栗林みな実
+
+ED「再会」／V.W.P
+
+[https://youtu.be/_MdNEjLtmeA](https://youtu.be/_MdNEjLtmeA)
+
+*****
+
+####  Piano-Forest  
+##### 1758#       发表于 2022-9-29 20:34
+
+ 本帖最后由 Piano-Forest 于 2022-9-29 20:36 编辑 
+
+二期两卷，共12话
+
+◤￣￣￣￣￣￣
+
+第二期Blu-ray
+
+　発売决定！
+
+＿＿＿＿＿＿◢
+
+BOX Ⅲ 初回生产限定版特典
+
+メインキャスト出演オリジナルドラマCD
+
+BOX Ⅳ 数量限定生产版特典
+
+コトブキヤ製プラモデル「不知火 伊隅ヴァルキリーズ フルオプションセット クリアーver.」
+
+[https://muv-luv-alternative-anime.com/news/detail.php?id=1103002](https://muv-luv-alternative-anime.com/news/detail.php?id=1103002)
+<img src="https://p.sda1.dev/7/d20c12032d0c0b6aa7c46ab570b592a2/20220929_203230.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/b65bbe1d3cea7b94a38552ebd47ae95d/84d569456e5fb5956d3f8e331a2d73880ee0e6ff_63343d306f89b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/7a99c8f8ab5af160d3c84396d54998de/20220929_203233.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/45877b65b1134b671280fce0682d42f8/c4bc75fc9cd6fd47d5078533c3ba1b1e2d372104_63343d7a7d08a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/c7ed9b6be129696b19ed525140fac88c/20220929_203235.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  SorroFrost  
+##### 1759#       发表于 2022-9-29 20:35
+
+起码在op这块走在了正确的道路上
+
