@@ -4298,3 +4298,14 @@ syl，这么说的话九夏鸭鸭看来也没必要再在北京 ...</blockquote>
 
 贴吧有人分析说是kino去了asoul2团
 
+
+
+*****
+
+####  龙娘777  
+##### 1973#       发表于 2022-9-29 23:40
+
+ 本帖最后由 龙娘777 于 2022-9-29 23:41 编辑 
+
+讲真但凡脑子还清醒点的au 把整个事串起来想想 出大事后几个月 projectX提上日程 地点杭州 小一羊驼先后出走 kino这个先放一边 答案呼之欲出了 只不过隔壁那楼只剩mmr了已经很难思考了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

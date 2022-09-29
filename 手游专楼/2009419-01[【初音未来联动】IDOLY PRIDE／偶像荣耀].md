@@ -8144,3 +8144,12 @@ suzu，我的新时代女主角。。。
 
 优来照顾生病的马内甲了，还有喂饭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kos_mos  
+##### 736#       发表于 2022-9-29 23:32
+
+强制更新后就卡标题画面了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

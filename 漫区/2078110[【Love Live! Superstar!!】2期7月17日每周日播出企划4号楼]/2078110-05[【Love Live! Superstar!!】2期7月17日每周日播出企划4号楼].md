@@ -1649,3 +1649,19 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 祝打铁生日快乐
 
+
+
+*****
+
+####  kata魂  
+##### 6151#       发表于 2022-9-29 23:33
+
+20岁了，到了喝酒的年龄了啊，是个大人了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6152#       发表于 2022-9-29 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">鲤鱼这祝福，最后那句是打算做什么
+
