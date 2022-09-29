@@ -4337,3 +4337,47 @@ syl，这么说的话九夏鸭鸭看来也没必要再在北京 ...</blockquote>
 
 如果kino真的跳槽到乐华，那多少有点恶心
 
+
+
+*****
+
+####  龙娘777  
+##### 1976#       发表于 2022-9-30 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703090&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-29 23:59</a>
+
+所以答案是什么？我不看a手
+
+如果kino真的跳槽到乐华，那多少有点恶心</blockquote>
+我倾向就是这么回事 因为巧合太多就不是巧合了 反正等几个月有答案了
+
+*****
+
+####  MaxFOrder  
+##### 1977#       发表于 2022-9-30 00:07
+
+别忘了，吉某人第一次回老家的时候，有个动态定位就是浙江<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1978#       发表于 2022-9-30 00:10
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202209/30/000959lyf4gwnlrtf10w1f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220930_000900.jpg</strong> (200.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-30 00:09 上传
+
+*****
+
+####  MaxFOrder  
+##### 1979#       发表于 2022-9-30 00:11
+
+当时就觉得不太对，回上海为何定位会出现浙江，但那时候还完全没要走的征兆，我的猜想是去亲戚家聚餐了，现在看看都能连上了……
+

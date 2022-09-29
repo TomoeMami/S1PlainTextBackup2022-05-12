@@ -4755,3 +4755,12 @@ ark都快2年前了记忆还那么清楚，果然还是ark直播最有东西
 
 哈哈哈上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要引退了
 
+
+
+*****
+
+####  rs5621  
+##### 1966#       发表于 2022-9-30 00:06
+
+换刷子了,刷子专用战吼真好听
+

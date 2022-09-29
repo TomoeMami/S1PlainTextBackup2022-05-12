@@ -3065,3 +3065,17 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 原本就是活到最后的。
 资源总不可能给那群便当的吧不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1775#       发表于 2022-9-30 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703107&amp;ptid=1860817" target="_blank">kamarus 发表于 2022-9-30 00:01</a>
+原本就是活到最后的。
+资源总不可能给那群便当的吧不是</blockquote>
+动画看下来人物塑造集中在主角和香月上，希望第二季别把女主丢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
