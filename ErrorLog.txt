@@ -1,3 +1,9 @@
 
-list index out of range
-!!error:id=2097065
+[Errno 2] No such file or directory: './虚拟主播区专楼/1921517[A站虚拟偶像(AVUP)综合讨论楼]'
+!!error:id=1921517
+[Errno 2] No such file or directory: './虚拟主播区专楼/1989968-01[纯良玉米人的日记专楼【转生成为白上吹雪的弟弟】].md'
+!!error:id=1989968
+[Errno 2] No such file or directory: './手游专楼/2059365-01[天命之子续作——NIKKE命运女神，你喜欢射击嘛？].md'
+!!error:id=2059365
+[Errno 2] No such file or directory: './手游专楼/1854449-01[八月社页游 あいりすミスティリア! 二周年庆免费10连].md'
+!!error:id=1854449

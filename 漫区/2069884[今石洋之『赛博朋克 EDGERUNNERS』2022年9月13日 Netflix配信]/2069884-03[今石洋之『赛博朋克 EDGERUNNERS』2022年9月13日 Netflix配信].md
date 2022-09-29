@@ -314,3 +314,36 @@ David早期设定，拉美人特征更重</blockquote>
 
 大哥手抖的时候剧情结局至少能猜个8成了，区别只是怎么到结局
 
+
+
+*****
+
+####  竹间待雪  
+##### 3027#       发表于 2022-9-29 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57678544&amp;ptid=2069884" target="_blank">mimighost 发表于 2022-9-28 05:02</a>
+
+全片唯一让我有点儿感触的地方就在丽贝卡学着格罗瑞亚的口吻让大卫爬到arasaka大楼的顶点那里
+
+其实不只 ...</blockquote>
+格罗瑞亚是哪位
+
+*****
+
+####  三葉Mitsuha  
+##### 3028#       发表于 2022-9-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57696970&amp;ptid=2069884" target="_blank">竹间待雪 发表于 2022-9-29 15:18</a>
+ 格罗瑞亚是哪位</blockquote>
+大卫老妈
+
+*****
+
+####  毒菇  
+##### 3029#       发表于 2022-9-29 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57696970&amp;ptid=2069884" target="_blank">竹间待雪 发表于 2022-9-29 15:18</a>
+
+格罗瑞亚是哪位</blockquote>
+大卫他妈，Gloria
+

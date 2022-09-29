@@ -4493,3 +4493,53 @@ rust的角斗场要是拿来搞个holo wwe应该蛮有意思的.
 
 5ch有人贴了个未知来源的推特截图说周年纪念的证明书印刷依赖6万份，找不到谁发的，暂时存疑
 
+
+
+*****
+
+####  rs5621  
+##### 1937#       发表于 2022-9-29 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57694799&amp;ptid=2086637" target="_blank">holoan 发表于 2022-9-29 12:09</a>
+刚好周六了</blockquote>
+只求别看霍比特人
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 1938#       发表于 2022-9-29 14:05
+
+原来你昨天说的是这个啊
+
+{OKL343~}H`BB`%D)8UC~FI.PNG
+(845.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:05 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/140542n642qt22trcfxl2g.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 1939#         楼主| 发表于 2022-9-29 14:08
+
+是，意义不明
+
+*****
+
+####  rs5621  
+##### 1940#       发表于 2022-9-29 14:23
+
+miko今天也发现了，kobo后续不来个返图就说不过去
+
+*****
+
+####  holoan  
+##### 1941#         楼主| 发表于 2022-9-29 14:26
+
+其实当天就知道了，点过赞了今天才回复推特
+

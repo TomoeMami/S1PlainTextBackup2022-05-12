@@ -1,0 +1,4233 @@
+
+
+*****
+
+####  十神白夜神月  
+##### 1501#       发表于 2022-6-19 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56320081&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-18 18:57</a>
+
+卧槽艾白这是不是明示了啊</blockquote>
+怎样明示，没看她毕业回
+
+*****
+
+####  H2Ofrozen  
+##### 1502#       发表于 2022-6-19 00:55
+
+很奇妙的一场直播
+
+*****
+
+####  awy47  
+##### 1503#       发表于 2022-6-19 07:32
+
+ 本帖最后由 awy47 于 2022-6-19 07:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56323655&amp;ptid=1926094" target="_blank">十神白夜神月 发表于 2022-6-19 00:22</a>
+
+怎样明示，没看她毕业回</blockquote>
+[唐九夏修仙生日会 2022年6月18日18点场](https://www.bilibili.com/video/BV16a411s7n3?spm_id_from=333.851.header_right.history_list.click&amp;vd_source=adfb1a35e51585c17a8e5908f805581c)31:26那会，然后艾白自己毕业直播好像是说自己被道士抓去隔离了
+
+昨天晚上没看最后一段，外星人也太有意思了，最后这一段很不错
+
+*****
+
+####  十神白夜神月  
+##### 1504#       发表于 2022-6-19 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56324761&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-19 07:32</a>
+
+唐九夏修仙生日会 2022年6月18日18点场31:26那会，然后艾白自己毕业直播好像是说自己被道士抓去隔离了
+
+昨 ...</blockquote>
+生日会这里为什么是明示啊，没懂
+
+*****
+
+####  ladiesman802  
+##### 1505#       发表于 2022-6-19 19:42
+
+这次kino是真的拉了，拉到无法直播了
+
+*****
+
+####  佛皇  
+##### 1506#       发表于 2022-6-20 12:38
+
+套皮是真的有瘾啊，贝拉好像也要套皮了，好像除了大小姐明确表示是影武者没套皮外，前歌姬中之人都套皮了
+
+*****
+
+####  ladiesman802  
+##### 1507#       发表于 2022-6-20 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56338531&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-6-20 12:38</a>
+
+套皮是真的有瘾啊，贝拉好像也要套皮了，好像除了大小姐明确表示是影武者没套皮外，前歌姬中之人都套皮了 ...</blockquote>
+咩咩出个皮应该是为了以后好联动吧，总不能同行联动你放一只羊。不过加入前雪风的箱是没想到
+
+*****
+
+####  喜闻乐见  
+##### 1508#         楼主| 发表于 2022-6-20 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56338531&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-6-20 12:38</a>
+套皮是真的有瘾啊，贝拉好像也要套皮了，好像除了大小姐明确表示是影武者没套皮外，前歌姬中之人都套皮了 ...</blockquote>
+vtb已经是初代的地雷项了
+
+*****
+
+####  ladiesman802  
+##### 1509#       发表于 2022-6-20 20:05
+
+咩咩的皮公开了，还不错
+
+不过她最近几乎都不直播，雪风不会亏本吗？
+
+*****
+
+####  awy47  
+##### 1510#       发表于 2022-6-20 20:31
+
+都在北京，是好事！
+
+*****
+
+####  ladiesman802  
+##### 1511#       发表于 2022-6-20 22:04
+
+貌似三位都有小闪电了。
+
+今天官号又被冲了，冲也没啥用，天要下雨娘要嫁人，要走就随她去吧
+
+要改变舆论压力估计就是等艾白过来救场了，来的话
+
+*****
+
+####  水松涛木  
+##### 1512#       发表于 2022-6-20 22:08
+
+罗总咋不见了，是辞职了吗
+
+*****
+
+####  awy47  
+##### 1513#       发表于 2022-6-20 22:35
+
+可能中之人不想干了，现在正在拉扯吧
+
+*****
+
+####  ladiesman802  
+##### 1514#       发表于 2022-6-21 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56345590&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-20 22:35</a>
+
+可能中之人不想干了，现在正在拉扯吧</blockquote>
+我很好奇，两次首播400多舰，生日600多舰，未来还有和存娘的合作，那么多的资源居然不想干了。kino看了都流口水了
+
+*****
+
+####  佛皇  
+##### 1515#       发表于 2022-6-21 07:36
+
+人各有志吧
+
+*****
+
+####  awy47  
+##### 1516#       发表于 2022-6-21 14:31
+
+<blockquote>ladiesman802 发表于 2022-6-21 00:42
+我很好奇，两次首播400多舰，生日600多舰，未来还有和存娘的合作，那么多的资源居然不想干了。kino看了都 ...</blockquote>
+可能素人不习惯直播环境，中之人本身更想去整歌剧表演类，但是平时背台本和普通直播占据了大多数时间所以不想干了吧（纯个人猜测）
+
+*****
+
+####  一叶丈育  
+##### 1517#       发表于 2022-6-21 16:13
+
+现在才发觉我无比的平静，看到直播日历里罗总那一栏的休息甚至感受不到一点波澜。究竟是我变得冷无缺了还是见的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+不过我会把我的爱意投给九夏的<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛皇  
+##### 1518#       发表于 2022-6-21 17:38
+
+感觉歌姬中之人搞的皮都蛮一般的，2d一个好的皮可太影响观感了，感觉都好量产化啊
+
+*****
+
+####  ladiesman802  
+##### 1519#       发表于 2022-6-21 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56354046&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-6-21 16:13</a>
+
+现在才发觉我无比的平静，看到直播日历里罗总那一栏的休息甚至感受不到一点波澜。究竟是我变得冷无缺了还是 ...</blockquote>
+可能是因为罗总只陪了我们不到5个月吧
+
+*****
+
+####  ladiesman802  
+##### 1520#       发表于 2022-6-21 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56355311&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-6-21 17:38</a>
+
+感觉歌姬中之人搞的皮都蛮一般的，2d一个好的皮可太影响观感了，感觉都好量产化啊 ...</blockquote>
+主要是没有kino和九夏那么细，看起来下半身很僵硬，毕竟2个皮工期只有1个月
+
+*****
+
+####  水松涛木  
+##### 1521#       发表于 2022-6-22 09:54
+
+kino和九夏在一起真爱说怪话啊
+
+*****
+
+####  喜闻乐见  
+##### 1522#         楼主| 发表于 2022-6-22 21:00
+
+真不错 九夏出战国风水友会
+
+*****
+
+####  ladiesman802  
+##### 1523#       发表于 2022-6-24 12:49
+
+九夏最近的翻唱投稿频率好高啊，估计想学学隔壁那样？
+[https://www.bilibili.com/video/BV1jr4y1G74Y?share_source=copy_web](https://www.bilibili.com/video/BV1jr4y1G74Y?share_source=copy_web)
+
+*****
+
+####  awy47  
+##### 1524#       发表于 2022-6-24 12:57
+
+ 本帖最后由 awy47 于 2022-6-24 12:58 编辑 
+
+什么，今天又投稿了吗
+
+但是歌你还是得买推广啊，希望有视频稍微火了买点推广推推吧。
+
+*****
+
+####  ba娜娜  
+##### 1525#       发表于 2022-6-24 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+九夏kino这俩人好甜啊，kdl
+
+*****
+
+####  ladiesman802  
+##### 1526#       发表于 2022-6-24 22:10
+
+鸭鸭真的是团宠，不单止厂长宠她，连kino九夏也是，然后还能近距离嗑糖！
+
+*****
+
+####  水松涛木  
+##### 1527#       发表于 2022-6-25 09:36
+
+卡缇娅好可爱
+
+*****
+
+####  水松涛木  
+##### 1528#       发表于 2022-6-25 09:36
+
+昨天晚上脑内一直循环可达鸭
+
+*****
+
+####  喜闻乐见  
+##### 1529#         楼主| 发表于 2022-6-25 20:49
+
+好听捏
+
+*****
+
+####  rainker  
+##### 1530#       发表于 2022-6-26 18:38
+
+乐元素这牙看着好怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  awy47  
+##### 1531#       发表于 2022-6-26 19:39
+
+今天又是暗杀厂工的一天
+
+*****
+
+####  喜闻乐见  
+##### 1532#         楼主| 发表于 2022-6-26 19:39
+
+ 本帖最后由 喜闻乐见 于 2022-6-26 20:04 编辑 
+
+这身挺仙，色彩也挺搭渲染的
+
+重回月头过六一 紧急再放送
+
+*****
+
+####  awy47  
+##### 1533#       发表于 2022-6-26 20:05
+
+草什么儿童节环节
+
+*****
+
+####  ladiesman802  
+##### 1534#       发表于 2022-6-26 21:30
+
+今晚的生日回确实不尽人意，只能说尽力了。贴吧那边已经说得比较中肯了，一是没啥新活，二是中之人的实力还不足以撑起整个大型活动。厂子那边确实听取了意见，今晚都没有看二创了，但是居然没有嘉宾祝福，也没有设置b站生日礼物。鸭鸭作为歌姬出道，歌力一般，舞力为0，杂谈还不错，但是光是可爱真的不太够，很难留住路人。不知道歌姬出道一年时的生日回办得怎么样，感觉现在光是唱歌跳舞很难满足大众的需要，玩游戏吧又显得很水。如果3个小时能有至少3个新的技术展示或者泪点，那我可以打满分。今天给7分吧
+
+*****
+
+####  awy47  
+##### 1535#       发表于 2022-6-26 22:34
+
+毕竟闪招素人
+
+*****
+
+####  ladiesman802  
+##### 1536#       发表于 2022-6-26 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56424841&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-26 22:34</a>
+
+毕竟闪招素人</blockquote>
+所以这是解不开的矛盾，一方面粉丝希望快点有新人，另一方面降低要求招人就是像鸭鸭那样。我倒想看看找一个有前世的v来做歌姬老粉会有什么反应
+
+*****
+
+####  ba娜娜  
+##### 1537#       发表于 2022-6-27 09:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+昨晚直播前一个半小时还不错，后面鸭鸭单播就有点Hold不住了
+
+*****
+
+####  ladiesman802  
+##### 1538#       发表于 2022-6-27 12:16
+
+罗总毕业公告来了。也不知道说啥，希望下一个找个稳定点的吧
+
+*****
+
+####  喜闻乐见  
+##### 1539#         楼主| 发表于 2022-6-27 12:18
+
+看来确实是等一手鸭生日过完
+
+*****
+
+####  awy47  
+##### 1540#       发表于 2022-6-27 12:49
+
+果然毕业了啊，感觉还是别找素人了
+
+*****
+
+####  水松涛木  
+##### 1541#       发表于 2022-6-27 12:58
+
+鸭鸭可爱
+
+*****
+
+####  rainker  
+##### 1542#       发表于 2022-6-27 12:59
+
+罗，我的小罗😭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  佛皇  
+##### 1543#       发表于 2022-6-27 13:32
+
+可惜了给小罗续了5个月舰长，唉，感觉对歌姬的爱差不多也消耗差不多了
+
+*****
+
+####  一叶丈育  
+##### 1544#       发表于 2022-6-27 13:33
+
+呜呜呜，昏迷了家人们，本来想学学画画照着等待戈多画一个等待了罗兹的，这直接把结局说出来了就没法进行了
+
+*****
+
+####  ladiesman802  
+##### 1545#       发表于 2022-6-27 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56430652&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-27 12:49</a>
+
+果然毕业了啊，感觉还是别找素人了</blockquote>
+跟素不素人没啥关系，关键是有没有做tvb的热情，过来玩几个月就走，要么身体不好，要么郁郁症，还有什么家人反对，学业问题。乐元素不追究中之人违约金已经求神拜佛了
+
+*****
+
+####  awy47  
+##### 1546#       发表于 2022-6-27 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56432671&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-6-27 15:34</a>
+
+跟素不素人没啥关系，关键是有没有做tvb的热情，过来玩几个月就走，要么身体不好，要么郁郁症，还有什么 ...</blockquote>
+确实，看着之前3d回那个话剧感觉是回家走家里人安排的路了
+
+*****
+
+####  lmslardar  
+##### 1547#       发表于 2022-6-27 16:05
+
+问一下，像唐久夏kino这种跟歌姬还有关系吗，有没有人稍微讲讲
+
+*****
+
+####  ladiesman802  
+##### 1548#       发表于 2022-6-27 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56433123&amp;ptid=1926094" target="_blank">lmslardar 发表于 2022-6-27 16:05</a>
+
+问一下，像唐久夏kino这种跟歌姬还有关系吗，有没有人稍微讲讲</blockquote>
+没关系，她们是完全新人，nb旗下。歌姬其实除了名字和歌曲继承外，也和以前完全不一样
+
+*****
+
+####  佛皇  
+##### 1549#       发表于 2022-6-27 18:18
+
+要接受乐元素的偶像企划只有一场线下live的真实，从星梦手记到歌姬一直这样的
+
+*****
+
+####  awy47  
+##### 1550#       发表于 2022-6-27 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56434986&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-6-27 18:18</a>
+
+要接受乐元素的偶像企划只有一场线下live的真实，从星梦手记到歌姬一直这样的 ...</blockquote>
+大哥你名字居然都改了<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
+是我猪鼻了
+
+*****
+
+####  rainker  
+##### 1551#       发表于 2022-6-27 19:21
+
+厂工米线疑似哈哈了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安姆闲人  
+##### 1552#       发表于 2022-6-28 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">罗总生日礼盒终于到了，这是确认毕业了才开始动起来发货么
+
+*****
+
+####  ladiesman802  
+##### 1553#       发表于 2022-6-28 18:22
+
+昨晚鸭鸭的录播居然撤了，厂公罪大恶极，要是鸭鸭挨铁拳了真的鸭要把厂公撒了！
+
+*****
+
+####  喜闻乐见  
+##### 1554#         楼主| 发表于 2022-6-28 20:56
+
+关注九夏喵 关注九夏谢谢喵
+
+*****
+
+####  龙娘777  
+##### 1555#       发表于 2022-6-28 21:03
+
+等白子来了把你们全关注了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ba娜娜  
+##### 1556#       发表于 2022-6-29 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56448151&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-6-28 18:22</a>
+
+昨晚鸭鸭的录播居然撤了，厂公罪大恶极，要是鸭鸭挨铁拳了真的鸭要把厂公撒了！ ...</blockquote>
+昨晚咋了，我刚准备补录播
+
+*****
+
+####  awy47  
+##### 1557#       发表于 2022-6-29 08:37
+
+<blockquote>ba娜娜 发表于 2022-6-29 08:08
+昨晚咋了，我刚准备补录播</blockquote>
+周一3d录播吧，整了几个恶俗问题
+
+*****
+
+####  一叶丈育  
+##### 1558#       发表于 2022-6-29 08:41
+
+什么？！厂工罪大恶极，zdy代刀<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛皇  
+##### 1559#       发表于 2022-6-29 20:48
+
+九夏的腰，杀人的刀，上次感觉这么涩涩还是我头像的罗总露背
+
+*****
+
+####  ladiesman802  
+##### 1560#       发表于 2022-6-29 23:23
+
+今晚鸭鸭的狼人杀没怎么看，但是结束前唱了几首歌，真的进步很大，从以前的跟不上节奏，笑场，到现在连续唱完几首还不怎么拉，挺好的。
+
+作为一个北漂的女孩子，生活压力都不小，但是对直播依然那么热爱，也没有什么低气压直播，鸭鸭值得大家的肯定
+
+
+
+*****
+
+####  佛皇  
+##### 1561#       发表于 2022-6-30 17:48
+
+二罗无了，歌姬企划果然重启失败寄了
+
+*****
+
+####  一叶丈育  
+##### 1562#       发表于 2022-6-30 22:58
+
+重铸歌姬荣光，鸭鸭义不容辞
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  awy47  
+##### 1563#       发表于 2022-6-30 23:07
+
+ 本帖最后由 awy47 于 2022-6-30 23:12 编辑 
+
+怎么突然二罗无了，说的还是新罗兹退的那事吗？看到qa了，现在把资源集中在现有的这三个身上也行吧
+
+*****
+
+####  ladiesman802  
+##### 1564#       发表于 2022-6-30 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56478371&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-30 23:07</a>
+
+怎么突然二罗无了，说的还是新罗兹退的那事吗？看到qa了，现在把资源集中在现有的这三个身上也行吧
+
+ ...</blockquote>
+言下之意艾白不来nb了？
+
+*****
+
+####  awy47  
+##### 1565#       发表于 2022-6-30 23:15
+
+ 本帖最后由 awy47 于 2022-6-30 23:17 编辑 
+<blockquote>ladiesman802 发表于 2022-6-30 23:13
+言下之意艾白不来nb了？</blockquote>
+这个看后续吧，我放个qa原话得了<blockquote>Q7、请问厂长，目前歌姬企划还存在吗，还会继续招募新歌姬吗？罗兹的账号是会直接永久封存还是会在未来某一天重新启用呢？
+
+A：谢谢战姬众的关心，关于歌姬企划后续的规划我们还在做讨论，目前会把更多的精力投入到正在活动的三位艺人的发展上。关于罗兹Blazing的账号，该账号下的形象、设定、内容都是团队与中之人共同商定、创作的，随着中之人停止活动，该账号也会停止运营，后续不打算继续更新或重新启用</blockquote>
+
+*****
+
+####  ladiesman802  
+##### 1566#       发表于 2022-6-30 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56478471&amp;ptid=1926094" target="_blank">awy47 发表于 2022-6-30 23:15</a>
+
+这个看后续吧，我放个qa原话得了“Q7、请问厂长，目前歌姬企划还存在吗，还会继续招募新歌姬吗？罗兹的账 ...</blockquote>
+意思就是罗总这个烂摊子就不管了，招人也不会继承这个账号的意思
+
+*****
+
+####  ba娜娜  
+##### 1567#       发表于 2022-7-1 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+鸭鸭的声音好特别，真的喜欢
+
+不如说三位的声音都非常符合我的xp
+
+*****
+
+####  ladiesman802  
+##### 1568#       发表于 2022-7-1 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56488669&amp;ptid=1926094" target="_blank">ba娜娜 发表于 2022-7-1 19:04</a>
+
+鸭鸭的声音好特别，真的喜欢
+
+不如说三位的声音都非常符合我的xp</blockquote>
+乐元素，又称国v界的黄埔军校，挑人很准的
+
+*****
+
+####  一叶丈育  
+##### 1569#       发表于 2022-7-2 13:58
+
+那么v界黄埔军校什么时候向外输送人才阿<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">，单纯的好奇
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 1570#       发表于 2022-7-2 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56495408&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-7-2 13:58</a>
+
+那么v界黄埔军校什么时候向外输送人才阿，单纯的好奇
+
+—— 来自 Xiaomi M2012K11AC, Android 12上 ...</blockquote>
+saku和夏老大算不算
+
+*****
+
+####  rainker  
+##### 1571#       发表于 2022-7-2 19:54
+
+鸭鸭什么筋肉萝莉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一叶丈育  
+##### 1572#       发表于 2022-7-2 19:56
+
+哈哈，吉无力
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一叶丈育  
+##### 1573#       发表于 2022-7-2 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56497052&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-2 17:44</a>
+saku和夏老大算不算</blockquote>
+确实，她们是宝藏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainker  
+##### 1574#       发表于 2022-7-2 20:37
+
+今天好像是首次三人团舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ladiesman802  
+##### 1575#       发表于 2022-7-2 21:16
+
+三人团舞笑死，鸭鸭又萌又暴躁，还很大力，会算命，法号灭绝师太
+
+*****
+
+####  awy47  
+##### 1576#       发表于 2022-7-2 21:51
+
+饭局没看到，只能补录播了
+
+*****
+
+####  逸yi  
+##### 1577#       发表于 2022-7-3 20:18
+
+草 什么vjuan样板戏<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1578#       发表于 2022-7-3 22:13
+
+鸭鸭今晚唱得很嗨，唱了3遍重启，1遍旧版的，还有cool girl和woth
+
+*****
+
+####  水松涛木  
+##### 1579#       发表于 2022-7-4 00:08
+
+鸭鸭是幼儿园老师吧
+
+*****
+
+####  ladiesman802  
+##### 1580#       发表于 2022-7-4 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56513559&amp;ptid=1926094" target="_blank">水松涛木 发表于 2022-7-4 00:08</a>
+
+鸭鸭是幼儿园老师吧</blockquote>
+确实是，之前透露过，去学校面试写错字被骂，还有为人太单纯，容易被学生欺负。
+
+*****
+
+####  ba娜娜  
+##### 1581#       发表于 2022-7-4 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56514301&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-4 01:45</a>
+
+确实是，之前透露过，去学校面试写错字被骂，还有为人太单纯，容易被学生欺负。 ...</blockquote>
+幼教鸭鸭，什么人皮合一
+
+*****
+
+####  十神白夜神月  
+##### 1582#       发表于 2022-7-5 05:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56513559&amp;ptid=1926094" target="_blank">水松涛木 发表于 2022-7-4 00:08</a>
+
+鸭鸭是幼儿园老师吧</blockquote>
+小学吧，幼儿园怎么会有拼音
+
+*****
+
+####  安姆闲人  
+##### 1583#       发表于 2022-7-5 13:49
+
+这下兼职了
+
+<img src="https://img.saraba1st.com/forum/202207/05/134905fmtmt4bjt4jjxooz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220705_134608_tv.danmaku.bili.jpg</strong> (563.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-5 13:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  水松涛木  
+##### 1584#       发表于 2022-7-6 14:24
+
+鸭鸭怎么越来越混沌了
+
+*****
+
+####  水松涛木  
+##### 1585#       发表于 2022-7-6 17:41
+
+为什么鸭鸭力气那么大
+
+*****
+
+####  ladiesman802  
+##### 1586#       发表于 2022-7-6 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56548359&amp;ptid=1926094" target="_blank">水松涛木 发表于 2022-7-6 17:41</a>
+
+为什么鸭鸭力气那么大</blockquote>
+杀厂公练出来的
+
+*****
+
+####  ladiesman802  
+##### 1587#       发表于 2022-7-7 20:39
+
+【【鱼一翻跳】Cool Girl - 战斗吧歌姬！-哔哩哔哩】 [https://b23.tv/OIRa58F](https://b23.tv/OIRa58F)
+
+类目
+
+*****
+
+####  喜闻乐见  
+##### 1588#         楼主| 发表于 2022-7-7 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56564289&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-7 20:39</a>
+【【鱼一翻跳】Cool Girl - 战斗吧歌姬！-哔哩哔哩】 https://b23.tv/OIRa58F
+
+类目</blockquote>
+评论区含金量可以
+
+*****
+
+####  一叶丈育  
+##### 1589#       发表于 2022-7-8 19:36
+
+还我清楚鸭鸭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一叶丈育  
+##### 1590#       发表于 2022-7-8 19:37
+
+我超，厂长！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  ba娜娜  
+##### 1591#       发表于 2022-7-8 20:00
+
+卧槽，三个人i叫的好大声
+
+*****
+
+####  awy47  
+##### 1592#       发表于 2022-7-8 20:11
+
+<img src="https://img.saraba1st.com/forum/202207/08/201110ehvi29iwztefv20f.jpg" referrerpolicy="no-referrer">
+
+<strong>872022-下午-81002.jpg</strong> (29.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202207/08/201110yvnbtzsjwxww7tib.jpg" referrerpolicy="no-referrer">
+
+<strong>872022-下午-81008.jpg</strong> (20.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-8 20:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ba娜娜| + 1|正确的|
+
+查看全部评分
+
+*****
+
+####  ladiesman802  
+##### 1593#       发表于 2022-7-8 22:04
+
+孩子果然还是亲妈妈多
+
+kino做爸爸的还怕鬼怕得要死
+
+*****
+
+####  一叶丈育  
+##### 1594#       发表于 2022-7-8 22:21
+
+太宠鸭鸭了，酸死了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  水松涛木  
+##### 1595#       发表于 2022-7-9 11:41
+
+甜甜甜
+
+*****
+
+####  rainker  
+##### 1596#       发表于 2022-7-9 15:57
+
+yysy厂长声音有点像奶绿🥵
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ladiesman802  
+##### 1597#       发表于 2022-7-9 20:13
+
+厂长给鱼宝生日发了100sc
+
+最搞笑是大伙叫鱼宝唱傲，鱼宝说没申请，厂长私信：你没申请是不是怕翻车？
+
+*****
+
+####  喜闻乐见  
+##### 1598#         楼主| 发表于 2022-7-9 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56586456&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-9 20:13</a>
+
+厂长给鱼宝生日发了100sc
+
+最搞笑是大伙叫鱼宝唱傲，鱼宝说没申请，厂长私信：你没申请是不是怕翻车？ ...</blockquote>
+看歌会仨人主持错过 太搞笑了吧 厂长
+
+*****
+
+####  ladiesman802  
+##### 1599#       发表于 2022-7-9 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56587414&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-7-9 21:21</a>
+
+看歌会仨人主持错过 太搞笑了吧 厂长</blockquote>
+开头唱了绝对has come，然后是傲，中间没看，最后结尾唱了wish you
+
+最后还说厂长是当时日本的工作人员之一，回国后还问过鱼一要不要来北京继续
+
+*****
+
+####  一叶丈育  
+##### 1600#       发表于 2022-7-9 22:52
+
+厂长以前是工作人员<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那以前称呼小妹真的是因为工作人员都是女生吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  awy47  
+##### 1601#       发表于 2022-7-9 23:19
+
+什么，厂长也是以前的人？
+
+*****
+
+####  awy47  
+##### 1602#       发表于 2022-7-9 23:19
+
+<blockquote>一叶丈育 发表于 2022-7-9 22:52
+厂长以前是工作人员那以前称呼小妹真的是因为工作人员都是女生吗
+
+—— 来自 Xiaomi M2012K11AC, An ...</blockquote>
+可能那会负责人也是个女主管吧
+
+*****
+
+####  喜闻乐见  
+##### 1603#         楼主| 发表于 2022-7-10 00:36
+
+假唱对口型是吧<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水松涛木  
+##### 1604#       发表于 2022-7-10 10:05
+
+kino都吓哭了
+
+*****
+
+####  ladiesman802  
+##### 1605#       发表于 2022-7-12 00:21
+
+其实今晚的主题不是特别吸引，倒是kino一个人杂谈整活把整个主题升华了，kino杂谈方面确实是nb一姐，跳舞也是
+
+*****
+
+####  喜闻乐见  
+##### 1606#         楼主| 发表于 2022-7-12 23:05
+
+假的巨人： 充气巨大化kino
+
+真的巨人：扑倒厂长的鸭
+
+*****
+
+####  awy47  
+##### 1607#       发表于 2022-7-13 19:26
+
+【[卡缇娅也不知道鸭] 我是一个一个一个好大儿鸭-哔哩哔哩】 [https://b23.tv/FAqNIiA](https://b23.tv/FAqNIiA)喷了，儿子军团
+
+*****
+
+####  喜闻乐见  
+##### 1608#         楼主| 发表于 2022-7-14 20:00
+
+流石nb幼儿园 速通snp
+
+*****
+
+####  佛皇  
+##### 1609#       发表于 2022-7-15 07:36
+
+唉，今天收到了二罗的上舰立派，东西还是很实在的，就这时机一点都没有想弄的感觉了
+
+*****
+
+####  ladiesman802  
+##### 1610#       发表于 2022-7-15 19:44
+
+不行了，今晚真是笑死我了，kino和九夏的rp，鸭鸭的可爱，九夏的**，还有超管的误杀，要素太多，无法吐槽
+
+*****
+
+####  ladiesman802  
+##### 1611#       发表于 2022-7-15 20:08
+
+哈哈哈哈，这sc笑死我。我都分不清是a÷还是歌姬遗老在挑起战争了
+
+*****
+
+####  安姆闲人  
+##### 1612#       发表于 2022-7-16 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">昨天没看，SC打了什么啊，唱超级敏感也没啥啊
+
+*****
+
+####  ladiesman802  
+##### 1613#       发表于 2022-7-16 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56667780&amp;ptid=1926094" target="_blank">安姆闲人 发表于 2022-7-16 12:27</a>
+
+昨天没看，SC打了什么啊，唱超级敏感也没啥啊</blockquote>
+好像说隔壁贝拉生日日期和歌姬的撞车，厂长也不说什么，现在又唱他们的歌，让老战集众很伤心。
+
+我的评价是：你jb谁啊
+
+*****
+
+####  安姆闲人  
+##### 1614#       发表于 2022-7-16 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56668403&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-16 13:45</a>
+
+好像说隔壁贝拉生日日期和歌姬的撞车，厂长也不说什么，现在又唱他们的歌，让老战集众很伤心。
+
+我的评价 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如出一辙的巨婴味
+
+*****
+
+####  喜闻乐见  
+##### 1615#         楼主| 发表于 2022-7-16 19:16
+
+鸭鸭这短视频可以的
+
+*****
+
+####  一叶丈育  
+##### 1616#       发表于 2022-7-16 22:56
+
+我鸭梗呢？没有鸭梗看仿佛身上有椰子在爬<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  awy47  
+##### 1617#       发表于 2022-7-17 08:31
+
+我缺的鸭梗这块谁来给我补啊
+
+*****
+
+####  ladiesman802  
+##### 1618#       发表于 2022-7-17 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56676798&amp;ptid=1926094" target="_blank">awy47 发表于 2022-7-17 08:31</a>
+
+我缺的鸭梗这块谁来给我补啊</blockquote>
+别吉，厂公肝已经被鸭鸭打爆
+
+*****
+
+####  ladiesman802  
+##### 1619#       发表于 2022-7-19 13:26
+
+【【卡缇娅/吉诺儿/唐九夏】我是牛牛-哔哩哔哩】 [https://b23.tv/jOnprSq](https://b23.tv/jOnprSq)
+
+可爱鸭鸭
+
+*****
+
+####  喜闻乐见  
+##### 1620#         楼主| 发表于 2022-7-19 17:42
+
+saku回归的惊喜翻唱 莫非就是。。。
+
+
+
+*****
+
+####  龙娘777  
+##### 1621#       发表于 2022-7-19 19:55
+
+厂子这么抽象的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 1622#       发表于 2022-7-19 21:47
+
+入脑了，已上舰，原来没有舰长群啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 1623#         楼主| 发表于 2022-7-19 22:42
+
+卧槽  竟然脱凉鞋牛逼啊saku
+
+*****
+
+####  ladiesman802  
+##### 1624#       发表于 2022-7-20 17:06
+
+鸭鸭下午直播只看了前一个小时，可恶只能看录播了
+
+*****
+
+####  喜闻乐见  
+##### 1625#         楼主| 发表于 2022-7-21 20:28
+
+ 本帖最后由 喜闻乐见 于 2022-7-21 20:31 编辑 
+
+美工发力叻<strong><img src="http://tva1.sinaimg.cn/large/732205bcgy1h4etp08yotj20fd0dxgth.jpg" referrerpolicy="no-referrer"></strong>
+<strong><img src="http://tva1.sinaimg.cn/large/732205bcgy1h4etp8nlyij20uj0mtto2.jpg" referrerpolicy="no-referrer"></strong>
+<strong><img src="http://tva1.sinaimg.cn/large/732205bcgy1h4etpbh7y1j20in081q46.jpg" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  龙娘777  
+##### 1626#       发表于 2022-7-21 20:41
+
+不合理伐
+
+*****
+
+####  ladiesman802  
+##### 1627#       发表于 2022-7-21 20:51
+
+泳装和浴巾都想要周边
+
+最后的一人团舞泪目，后面还有三人团舞woth
+
+*****
+
+####  Niyah  
+##### 1628#       发表于 2022-7-22 23:11
+
+买钥匙扣！
+
+*****
+
+####  一叶丈育  
+##### 1629#       发表于 2022-7-23 14:07
+
+想买鼠标垫，这个周边是一套买还是可以单独买
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  喜闻乐见  
+##### 1630#         楼主| 发表于 2022-7-23 20:28
+
+ 本帖最后由 喜闻乐见 于 2022-7-23 20:30 编辑 
+
+Guten Tag!
+
+糖九夏水友赛
+
+*****
+
+####  安姆闲人  
+##### 1631#       发表于 2022-7-25 11:54
+
+ 本帖最后由 安姆闲人 于 2022-7-25 11:55 编辑 
+
+吉两件白色的衣服都比原皮舒服，但是要论给人留下印象确实不如原皮<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这套有点想起以前初音家族第二位的双子了，应该叫镜音？
+
+<img src="https://img.saraba1st.com/forum/202207/25/115440cmc60ym5pmewmkdy.jpg" referrerpolicy="no-referrer">
+
+<strong>18c41c9bb538446849cf9139076130df1383815813.jpg</strong> (305.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-25 11:54 上传
+
+*****
+
+####  ladiesman802  
+##### 1632#       发表于 2022-7-25 11:55
+
+好看
+
+*****
+
+####  ladiesman802  
+##### 1633#       发表于 2022-7-25 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56791028&amp;ptid=1926094" target="_blank">安姆闲人 发表于 2022-7-25 11:54</a>
+
+吉两件白色的衣服都比原皮舒服，但是要论给人留下印象确实不如原皮这套有点想起以前初音家族第二位 ...</blockquote>
+还不是因为平时直播像个猴一样，穿啥都策划气质盖过去
+
+*****
+
+####  喜闻乐见  
+##### 1634#         楼主| 发表于 2022-7-26 14:21
+
+saku阳了
+
+*****
+
+####  ladiesman802  
+##### 1635#       发表于 2022-7-26 14:34
+
+出名的声优必经之路
+
+*****
+
+####  喜闻乐见  
+##### 1636#         楼主| 发表于 2022-7-26 20:24
+
+周五厂长出道
+
+*****
+
+####  ladiesman802  
+##### 1637#       发表于 2022-7-26 22:59
+
+强烈安利kino今晚的2d直播，互动拉满，不断爆典，老板又被骂得开心，笑死
+
+*****
+
+####  ba娜娜  
+##### 1638#       发表于 2022-7-27 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+中途看了一段，疯狂cue敌台，弹幕全在投降
+
+*****
+
+####  awy47  
+##### 1639#       发表于 2022-7-27 13:04
+
+昨天晚上杂谈真不错，中间老板找骂笑死我了
+
+*****
+
+####  一叶丈育  
+##### 1640#       发表于 2022-7-27 17:18
+
+看到小程序三个字心里咯噔一下<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一叶丈育  
+##### 1641#       发表于 2022-7-27 18:41
+
+是我最喜欢的鸭梗环节<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  龙娘777  
+##### 1642#       发表于 2022-7-27 19:44
+
+有没有卡提亚御姐音指条路 夹不住的时候感觉应该是很御姐的声线<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 1643#         楼主| 发表于 2022-7-27 20:26
+
+ 本帖最后由 喜闻乐见 于 2022-7-27 21:45 编辑 
+
+可以 难念的经雷哭的确实好听
+
+*****
+
+####  ladiesman802  
+##### 1644#       发表于 2022-7-28 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56827926&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-7-27 19:44</a>
+
+有没有卡提亚御姐音指条路 夹不住的时候感觉应该是很御姐的声线</blockquote>
+鸭鸭是本音吧，去按摩还被店员质问是不是学生
+
+*****
+
+####  龙娘777  
+##### 1645#       发表于 2022-7-28 01:09
+
+另外她原来真的干过幼儿园老师吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  МаксФёд  
+##### 1646#       发表于 2022-7-28 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56831220&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-7-28 01:09</a>
+
+另外她原来真的干过幼儿园老师吗</blockquote>
+更可能是小学老师。513后半部分问答环节说过不干v了就回老家当老师，说自己其实不适合当老师，同事说她镇不住学生，试讲的时候把拼音写错了还被下面的同学安慰老师别急。k9在这个环节一点个人信息都没透露，就鸭鸭巴拉巴拉说了一大堆自己的过去经历，该说这小姑娘是纯真呢还是
+
+*****
+
+####  МаксФёд  
+##### 1647#       发表于 2022-7-28 01:44
+
+我也闹不懂现在应聘进小学当老师的都一般是什么学历，认识的读师范大学的朋友大多还是去初高中了，而我本世纪初读小学的时候学校老师还大多数是师范学校（大专）毕业生。
+
+*****
+
+####  安姆闲人  
+##### 1648#       发表于 2022-7-28 08:14
+
+ 本帖最后由 安姆闲人 于 2022-7-28 08:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来Asoul这边联动直播一个月，速成金牌幼教
+
+我知道的教师学历还挺杂的，师范有，也有本科毕业后再去考教师执照做老师的
+
+*****
+
+####  白日依山尽  
+##### 1649#       发表于 2022-7-28 08:24
+
+这两年教育改革，非师范类考教师资格很严格了
+
+*****
+
+####  水松涛木  
+##### 1650#       发表于 2022-7-28 11:58
+
+鸭鸭可爱
+
+
+
+*****
+
+####  一叶丈育  
+##### 1651#       发表于 2022-7-28 14:18
+
+鸭鸭变成现在这样，真的鸭几分功劳？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 1652#       发表于 2022-7-28 20:59
+
+今天kino庆祝回，然而九夏哭了
+
+*****
+
+####  awy47  
+##### 1653#       发表于 2022-7-28 22:28
+
+不知道为啥，我更喜欢看kino杂谈，所以她说不喜欢这样我比较理解也有点怅然的，希望她能找到自己3d播的卖点吧
+
+*****
+
+####  一叶丈育  
+##### 1654#       发表于 2022-7-29 07:49
+
+爱发癫怎么还不上架，是我搜错了还是厂工没上班，急急急急急
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ba娜娜  
+##### 1655#       发表于 2022-7-29 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56842882&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-7-28 20:59</a>
+
+今天kino庆祝回，然而九夏哭了</blockquote>
+为啥呀
+
+*****
+
+####  ladiesman802  
+##### 1656#       发表于 2022-7-29 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56847073&amp;ptid=1926094" target="_blank">ba娜娜 发表于 2022-7-29 08:34</a>
+
+为啥呀</blockquote>
+读粉丝的信哭了，不过九夏本来就是小哭包
+
+*****
+
+####  一叶丈育  
+##### 1657#       发表于 2022-7-29 15:21
+
+我吉了我吉了，厂工咋还不上架商品啊啊啊，不会是要晚上开带货直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  安姆闲人  
+##### 1658#       发表于 2022-7-29 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">鸭鸭给吉诺儿带桃子那段的切片感觉已经是生活必需品了，鸭鸭摇得好魔性
+
+*****
+
+####  喜闻乐见  
+##### 1659#         楼主| 发表于 2022-7-29 19:27
+
+不愧是后场经验十足的厂长
+
+*****
+
+####  Niyah  
+##### 1660#       发表于 2022-7-29 19:35
+
+麻大了
+
+*****
+
+####  一叶丈育  
+##### 1661#       发表于 2022-7-29 19:47
+
+麻了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 1662#       发表于 2022-7-29 20:27
+
+怀疑厂长是当时的退役伊贞，又会扭腰，说话也很有磁性，关键是太会拿捏三位员工了
+
+*****
+
+####  水松涛木  
+##### 1663#       发表于 2022-7-29 20:47
+
+厂长御姐啊
+
+*****
+
+####  喜闻乐见  
+##### 1664#         楼主| 发表于 2022-7-31 12:10
+
+今日QA
+歌寄，
+
+*****
+
+####  ladiesman802  
+##### 1665#       发表于 2022-8-1 20:46
+
+今晚九夏漏勺：厂长开车超速，kino深夜躲厕所聊电话半小时，笑得很大声。鸭鸭吃多了放屁。九夏长期便秘。鸭鸭被电动门吓到跳起舞
+
+*****
+
+####  МаксФёд  
+##### 1666#       发表于 2022-8-1 22:35
+
+九夏这是什么层次学校学啥专业出身的，线性代数教材用的是英文<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1667#       发表于 2022-8-1 22:48
+
+鸭鸭也太可爱了吧，怕鬼的时候会念经，还会被自动门吓到，然后躲在九夏的背后，一切都像个小学生一样
+
+*****
+
+####  龙娘777  
+##### 1668#       发表于 2022-8-2 19:06
+
+找到流量密码了 找几个声音清纯小姑娘聊黄色内容<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1669#       发表于 2022-8-2 19:43
+
+鸭鸭说有员工说她是80岁的老太太尝试融入年轻人，kino问是哪个厂公。鸭鸭说这是可以说的吗？然后两人很惊讶？难道是新妹妹？
+
+*****
+
+####  ba娜娜  
+##### 1670#       发表于 2022-8-3 11:13
+
+九夏开始养gachi走小女友路线了吗，最后的睡前读小王子太会养了
+
+*****
+
+####  ladiesman802  
+##### 1671#       发表于 2022-8-3 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56915096&amp;ptid=1926094" target="_blank">ba娜娜 发表于 2022-8-3 11:13</a>
+
+九夏开始养gachi走小女友路线了吗，最后的睡前读小王子太会养了</blockquote>
+小王子好久之前就讲过了吧
+
+*****
+
+####  水松涛木  
+##### 1672#       发表于 2022-8-3 14:48
+
+鸭鸭变成了怪话王
+
+*****
+
+####  一叶丈育  
+##### 1673#       发表于 2022-8-3 14:55
+
+真好啊，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ba娜娜  
+##### 1674#       发表于 2022-8-3 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56910806&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-8-2 19:43</a>
+
+鸭鸭说有员工说她是80岁的老太太尝试融入年轻人，kino问是哪个厂公。鸭鸭说这是可以说的吗？然后两人很惊讶 ...</blockquote>
+白子说话！
+
+*****
+
+####  龙娘777  
+##### 1675#       发表于 2022-8-3 15:29
+
+然而白子还在老家炫果汁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1676#       发表于 2022-8-4 13:35
+
+我知道九夏泳装很色，但没想到那么色
+
+泥潭今天用不了图片，可恶
+
+*****
+
+####  喜闻乐见  
+##### 1677#         楼主| 发表于 2022-8-4 14:02
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h4up4zx4xgj20u01hctsi.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  竜騎士07  
+##### 1678#       发表于 2022-8-4 14:27
+
+看到联合投稿了一个消消乐的东西才发现原来是乐元素下面的
+
+*****
+
+####  一叶丈育  
+##### 1679#       发表于 2022-8-4 15:15
+
+九夏啊啊啊啊啊啊🥵🥵🥵
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 1680#       发表于 2022-8-4 16:53
+
+nb也会上bml，不知道表演什么，新歌还是woth的团舞？
+
+
+
+*****
+
+####  喜闻乐见  
+##### 1681#         楼主| 发表于 2022-8-4 18:38
+
+ 本帖最后由 喜闻乐见 于 2022-8-4 19:25 编辑 
+
+3d利用这块属实拿捏住了
+
+nb3d2
+
+*****
+
+####  ladiesman802  
+##### 1682#       发表于 2022-8-4 21:25
+
+想不到看完九夏还有不少人去支持kino，咱们的粉丝确实越来越多，也越来越多不同推了
+
+*****
+
+####  ladiesman802  
+##### 1683#       发表于 2022-8-7 20:23
+
+卧槽，kino妈唱歌真不错
+
+*****
+
+####  喜闻乐见  
+##### 1684#         楼主| 发表于 2022-8-9 19:16
+
+下海福利吉
+
+*****
+
+####  ladiesman802  
+##### 1685#       发表于 2022-8-9 22:52
+
+鸭鸭周四泳装发布
+
+*****
+
+####  ladiesman802  
+##### 1686#       发表于 2022-8-12 19:50
+
+咩咩来了！
+
+*****
+
+####  喜闻乐见  
+##### 1687#         楼主| 发表于 2022-8-16 18:38
+
+ 本帖最后由 喜闻乐见 于 2022-8-16 19:23 编辑 
+
+好似喵 下班！
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h58tu6b0hsj208u0epjs3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1688#       发表于 2022-8-16 22:12
+
+最后的合唱不错，鸭鸭绷住唱歌还是不错的
+
+*****
+
+####  佛皇  
+##### 1689#       发表于 2022-8-17 09:14
+
+NB大手笔啊
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+4eb0be80714a78545d1c81b1ebb23019_7e62776cb02cda67f634fe933af704571383815813.jpg@1295w.webp
+
+2022-8-17 09:14 上传
+点击文件名下载附件
+
+371.02 KB, 下载次数: 26
+
+*****
+
+####  ladiesman802  
+##### 1690#       发表于 2022-8-19 15:05
+
+<img src="https://img.saraba1st.com/forum/202208/19/150447aehran6936e0t6e9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>75006F29-F84D-4574-8AF4-FBF7FD53566F.jpeg</strong> (298.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-19 15:04 上传
+
+新衣服
+
+*****
+
+####  ba娜娜  
+##### 1691#       发表于 2022-8-19 15:45
+
+草，又是这种风格，比较想看kino穿公主裙之类的
+
+*****
+
+####  ladiesman802  
+##### 1692#       发表于 2022-8-19 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57133967&amp;ptid=1926094" target="_blank">ba娜娜 发表于 2022-8-19 15:45</a>
+
+草，又是这种风格，比较想看kino穿公主裙之类的</blockquote>
+我也觉得出一套三人同一风格的打歌服好一点，就是偶像大师那种
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ba娜娜| + 1||
+
+查看全部评分
+
+*****
+
+####  ladiesman802  
+##### 1693#       发表于 2022-8-20 11:01
+
+今天！大吉老师nb一姐加油
+
+*****
+
+####  ladiesman802  
+##### 1694#       发表于 2022-8-20 19:33
+
+波波派都是好兄弟！
+
+*****
+
+####  喜闻乐见  
+##### 1695#         楼主| 发表于 2022-8-20 20:12
+
+千了
+
+*****
+
+####  竜騎士07  
+##### 1696#       发表于 2022-8-20 20:33
+
+千了牛啊
+
+*****
+
+####  ladiesman802  
+##### 1697#       发表于 2022-8-20 20:51
+
+1197，还差几个1200了
+
+*****
+
+####  ladiesman802  
+##### 1698#       发表于 2022-8-21 00:26
+
+回到家还开了2d，我哭死
+
+*****
+
+####  佛皇  
+##### 1699#       发表于 2022-8-21 08:31
+
+kino敲架子鼓很帅
+
+*****
+
+####  awy47  
+##### 1700#       发表于 2022-8-22 15:04
+
+ 本帖最后由 awy47 于 2022-8-22 15:13 编辑 
+
+好久没看了，居然千舰了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1701#       发表于 2022-8-22 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57171760&amp;ptid=1926094" target="_blank">awy47 发表于 2022-8-22 15:04</a>
+
+好久没看了，居然千舰了</blockquote>
+天道酬勤
+
+*****
+
+####  ladiesman802  
+##### 1702#       发表于 2022-8-22 20:14
+
+kino小时候还去过意大利演出，有点牛
+
+*****
+
+####  ba娜娜  
+##### 1703#       发表于 2022-8-23 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+这几天循环了几十次九夏给Kino做的手书，呜呜呜，太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了太甜了
+
+*****
+
+####  yangqizhi45  
+##### 1704#       发表于 2022-8-23 18:55
+
+鸭鸭好可爱，看鸭鸭有点入脑了，好想去当厂工<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 1705#         楼主| 发表于 2022-8-23 20:01
+
+被80到下班走不了
+
+*****
+
+####  ladiesman802  
+##### 1706#       发表于 2022-8-24 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57187522&amp;ptid=1926094" target="_blank">yangqizhi45 发表于 2022-8-23 18:55</a>
+
+鸭鸭好可爱，看鸭鸭有点入脑了，好想去当厂工</blockquote>
+至少要到核心技术人员或者经纪人的水平才能接触中之人吧
+
+*****
+
+####  yangqizhi45  
+##### 1707#       发表于 2022-8-24 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57197524&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-8-24 13:09</a>
+
+至少要到核心技术人员或者经纪人的水平才能接触中之人吧</blockquote>
+没这么夸张，星律动这种小型科技公司顶多10来20人吧，懂得动作捕捉设备和直播设备的操作和维护就可以当直播现场操作的厂工了。
+
+*****
+
+####  水松涛木  
+##### 1708#       发表于 2022-8-24 21:59
+
+太棒了恭喜kino
+
+*****
+
+####  ladiesman802  
+##### 1709#       发表于 2022-8-25 15:14
+
+吉老师昨晚说错话了，今天3d表演个土下座吧要不
+
+*****
+
+####  ladiesman802  
+##### 1710#       发表于 2022-8-25 21:20
+
+鸭鸭的水友歌会比3d回还好看
+
+
+
+*****
+
+####  竜騎士07  
+##### 1711#       发表于 2022-8-26 18:50
+
+今天3d这节目不好说了  长工指定最近玩过什么游戏 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1712#       发表于 2022-8-28 15:58
+
+趴趴有实物图了
+
+我买了鸭鸭，鸭鸭最可爱了
+
+*****
+
+####  ladiesman802  
+##### 1713#       发表于 2022-8-28 23:56
+
+鸭鸭好多女粉，而且应该是学生
+
+九夏歌会的投稿质量也很高
+
+*****
+
+####  天青月白  
+##### 1714#       发表于 2022-8-29 04:26
+
+ 本帖最后由 天青月白 于 2022-8-29 04:27 编辑 
+
+一段时间没关注她们，kino竟然千舰了。九夏给kino做的那首歌，太甜了啊<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+nb厂能不能给他们整个团服啊
+
+*****
+
+####  ladiesman802  
+##### 1715#       发表于 2022-8-29 20:07
+
+楼里面有没有中奖的？看了那么多年直播，也就只中过鱼宝的红包
+
+*****
+
+####  佛皇  
+##### 1716#       发表于 2022-8-30 14:17
+
+中过鱼宝的鼠标垫
+
+*****
+
+####  ladiesman802  
+##### 1717#       发表于 2022-8-31 12:08
+
+九夏一周年前应该能达到20w了，希望厂子准备些大活吧，冲个千舰没问题
+
+*****
+
+####  喜闻乐见  
+##### 1718#         楼主| 发表于 2022-8-31 14:28
+
+中过九夏的生日二创征集，虽然好像还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1719#       发表于 2022-8-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57286564&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-8-31 14:28</a>
+
+中过九夏的生日二创征集，虽然好像还没发货</blockquote>
+10w粉二创征集礼物都发货了
+
+*****
+
+####  天青月白  
+##### 1720#       发表于 2022-9-1 19:26
+
+nb厂技术真可以，kino这个房间还挺好玩的。
+
+*****
+
+####  喜闻乐见  
+##### 1721#         楼主| 发表于 2022-9-2 20:17
+
+鸭子坐鸭鸭似乎有丶丶出道时候的纯真
+
+*****
+
+####  ladiesman802  
+##### 1722#       发表于 2022-9-4 12:23
+
+kino要出装扮了，可以投降了
+
+*****
+
+####  一叶丈育  
+##### 1723#       发表于 2022-9-4 13:32
+
+看到kino要出装扮非常开心，转念一想又要给叔叔送钱就又难过了起来
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  安姆闲人  
+##### 1724#       发表于 2022-9-4 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">又要充钱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ladiesman802  
+##### 1725#       发表于 2022-9-4 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57335327&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-9-4 13:32</a>
+
+看到kino要出装扮非常开心，转念一想又要给叔叔送钱就又难过了起来
+
+—— 来自 Xiaomi M2012K11AC, Android ...</blockquote>
+上舰也是给叔叔送一半钱。唯一不送钱的只有买周边了
+
+*****
+
+####  喜闻乐见  
+##### 1726#         楼主| 发表于 2022-9-5 19:36
+
+魔法 还是得看近战
+
+*****
+
+####  ladiesman802  
+##### 1727#       发表于 2022-9-5 20:15
+
+<img src="https://img.saraba1st.com/forum/202209/05/201435bhh6qrzrb46zvjrj.png" referrerpolicy="no-referrer">
+
+<strong>877C1C69-7820-466D-BDF6-D289DC482487.png</strong> (525.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-5 20:14 上传
+
+祖国人笑死
+
+*****
+
+####  喜闻乐见  
+##### 1728#         楼主| 发表于 2022-9-6 20:23
+
+光速下播
+还有回马枪 
+
+*****
+
+####  天青月白  
+##### 1729#       发表于 2022-9-6 20:35
+
+鸭鸭今天唱得真不错
+
+*****
+
+####  ladiesman802  
+##### 1730#       发表于 2022-9-7 11:37
+
+贴吧群魔乱舞笑死，合理怀疑贴吧有不少厂公
+
+*****
+
+####  天青月白  
+##### 1731#       发表于 2022-9-8 20:10
+
+草，九夏给妈妈打电话直播还行，玩挺大
+
+*****
+
+####  ladiesman802  
+##### 1732#       发表于 2022-9-8 20:30
+
+“妈，厂子要倒闭了”
+
+“那太好了！”
+
+*****
+
+####  天青月白  
+##### 1733#       发表于 2022-9-9 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57397878&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-8 20:30</a>
+“妈，厂子要倒闭了”
+
+“那太好了！”</blockquote>
+“等我们收拾完手尾工作就可以走了”
+“搞快点”
+听到gkd的时候真的差点喷水
+
+*****
+
+####  MaxFOrder  
+##### 1734#       发表于 2022-9-9 12:30
+
+厂里疑似没活了，连RP都要公开征集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1735#       发表于 2022-9-9 12:49
+
+挺好的，指导民有活干了，而且还有钱收，大家快上啊，折磨中之人的机会来了
+
+*****
+
+####  喜闻乐见  
+##### 1736#         楼主| 发表于 2022-9-9 20:32
+
+九夏这一听就是专业训练过的
+音准也好
+
+*****
+
+####  ladiesman802  
+##### 1737#       发表于 2022-9-9 21:25
+
+神回！
+
+kino：我们厂要倒闭了
+
+kino妈：太好了，什么破公司……
+
+*****
+
+####  天青月白  
+##### 1738#       发表于 2022-9-12 23:51
+
+有人能给我指路一下斑比的youtube吗
+
+*****
+
+####  ladiesman802  
+##### 1739#       发表于 2022-9-13 04:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57458458&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-12 23:51</a>
+
+有人能给我指路一下斑比的youtube吗</blockquote>
+[https://youtube.com/c/BambiChannel](https://youtube.com/c/BambiChannel)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天青月白| + 1|谢谢|
+
+查看全部评分
+
+*****
+
+####  一叶丈育  
+##### 1740#       发表于 2022-9-13 20:22
+
+鸭鸭这个猜动漫也太坐牢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+主播坐牢观众也坐牢
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  ladiesman802  
+##### 1741#       发表于 2022-9-13 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57469983&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-9-13 20:22</a>
+
+鸭鸭这个猜动漫也太坐牢了
+
+主播坐牢观众也坐牢</blockquote>
+我也觉得，搞个主题歌回比这ppt直播还好。开头看到ppt就知道不妙了
+
+*****
+
+####  天青月白  
+##### 1742#       发表于 2022-9-13 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57469983&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-9-13 20:22</a>
+鸭鸭这个猜动漫也太坐牢了
+主播坐牢观众也坐牢</blockquote>
+我觉得鸭鸭如果不是演人设就是有点摆了
+
+*****
+
+####  ladiesman802  
+##### 1743#       发表于 2022-9-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57472009&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-13 22:25</a>
+
+我觉得鸭鸭如果不是演人设就是有点摆了</blockquote>
+鸭鸭还挺努力的吧，经常下播后还继续练舞。还不如说最近厂子都在摆烂，我都怀疑九夏一周年后会不会原地毕业了
+
+*****
+
+####  天青月白  
+##### 1744#       发表于 2022-9-14 12:42
+
+ 本帖最后由 天青月白 于 2022-9-14 13:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57473851&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-13 23:28</a>
+鸭鸭还挺努力的吧，经常下播后还继续练舞。还不如说最近厂子都在摆烂，我都怀疑九夏一周年后会不会原地毕 ...</blockquote>
+nb厂可能跟大火绝缘了，有时候看着看着我都觉得不如这几位赶紧毕业找点正经工作。我看着别人很努力又得不到回报就会很难受，宁愿不看了。
+我看着从歌姬到现在的视频，感觉想火还是要蹭热点。
+
+*****
+
+####  MaxFOrder  
+##### 1745#       发表于 2022-9-14 21:05
+
+kino这刚回了家马上又要回家，穆小泠昨晚透露说是学业有事情要处理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这能怪别人发散吗……
+
+*****
+
+####  ladiesman802  
+##### 1746#       发表于 2022-9-14 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487134&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-14 21:05</a>
+
+kino这刚回了家马上又要回家，穆小泠昨晚透露说是学业有事情要处理这能怪别人发散吗…… ...</blockquote>
+kino都出来工作多少年了，要说学业问题是真的话，最坏情况是厂子半年内倒闭，她打算之后考研，所以先去大学面试
+
+*****
+
+####  MaxFOrder  
+##### 1747#       发表于 2022-9-14 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487204&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-14 21:10</a>
+
+kino都出来工作多少年了，要说学业问题是真的话，最坏情况是厂子半年内倒闭，她打算之后考研，所以先去大 ...</blockquote>
+关键是一提回去处理学业大家能联想到什么这不用说了吧，事到如今也只有mmr才能淡定了。究竟搞什么？
+
+*****
+
+####  ba娜娜  
+##### 1748#       发表于 2022-9-15 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+几天不看楼怎么又在焦虑了
+
+九夏最近的陪伴直播看的我好入脑，我感觉她就算出来做个人势纸片人也绝不会底的，素质在这里
+
+*****
+
+####  水松涛木  
+##### 1749#       发表于 2022-9-15 22:34
+
+不才千舰吗？怎么快进到倒闭了？
+
+*****
+
+####  天青月白  
+##### 1750#       发表于 2022-9-15 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503721&amp;ptid=1926094" target="_blank">水松涛木 发表于 2022-9-15 22:34</a>
+不才千舰吗？怎么快进到倒闭了？</blockquote>
+前几天kino和九夏都搬出了妈妈搞直播企划。这两天kino发动态因为学业原因离开休息几天。所以就有搞不下去是猜测咯。
+
+*****
+
+####  ladiesman802  
+##### 1751#       发表于 2022-9-15 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57503721&amp;ptid=1926094" target="_blank">水松涛木 发表于 2022-9-15 22:34</a>
+
+不才千舰吗？怎么快进到倒闭了？</blockquote>
+主要是最近九夏和kino都提到厂子要倒闭了这个玩笑，加上20w粉后增长速度锐减，还有厂子人手不足，确实给人快倒闭的感觉
+
+*****
+
+####  ladiesman802  
+##### 1752#       发表于 2022-9-15 23:40
+
+看了九夏暴露的搜索记录切片，居然还偷偷看栗子酱和隔壁量子少年，我不好说了
+
+*****
+
+####  一叶丈育  
+##### 1753#       发表于 2022-9-16 07:36
+
+我是mmr，听不得这些<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。
+⭐厂一定蒸蒸日上的吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  水松涛木  
+##### 1754#       发表于 2022-9-16 17:10
+
+我也希望能一直办下去
+
+*****
+
+####  喜闻乐见  
+##### 1755#         楼主| 发表于 2022-9-16 19:41
+
+舞上vmv唱芒种
+
+*****
+
+####  MaxFOrder  
+##### 1756#       发表于 2022-9-17 12:31
+
+涨粉速度已经跌至二位数好几天了，直播情况也不好，风雨飘摇，厂里再不想想办法提振一下信心估计要出大问题
+
+*****
+
+####  ladiesman802  
+##### 1757#       发表于 2022-9-17 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522136&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-17 12:31</a>
+
+涨粉速度已经跌至二位数好几天了，直播情况也不好，风雨飘摇，厂里再不想想办法提振一下信心估计要出大问题 ...</blockquote>
+感觉除了视频隔天发一个外，也不至于涨粉突然下降那么多
+
+不会20w真的是门槛吧？或者20w之前有粉丝买粉？
+
+*****
+
+####  天青月白  
+##### 1758#       发表于 2022-9-17 21:27
+
+九夏怎么哭了，刚看
+
+*****
+
+####  ladiesman802  
+##### 1759#       发表于 2022-9-17 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57528507&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-17 21:27</a>
+
+九夏怎么哭了，刚看</blockquote>
+哭了？但是现在在唱鸡你太美
+
+*****
+
+####  喜闻乐见  
+##### 1760#         楼主| 发表于 2022-9-17 21:39
+
+最近感冒间接影响按下暂停键，万能的九夏感觉到能人异士天赋选手太多，有点发散思考了
+
+*****
+
+####  甜麻卷  
+##### 1761#       发表于 2022-9-18 04:44
+
+哭着说要当海王那段笑死了，凭什么你们能当dd，我就不能当海王
+
+*****
+
+####  ladiesman802  
+##### 1762#       发表于 2022-9-19 12:48
+
+kino只剩下一周一播的电台回了。还是那句话，想让大家不担心你毕不毕业，**方方把问题讲清楚呗
+
+*****
+
+####  一叶丈育  
+##### 1763#       发表于 2022-9-19 12:48
+
+😨大吉老师……😨
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MaxFOrder  
+##### 1764#       发表于 2022-9-19 13:46
+
+行了，长期请假这话说出来八九成是出问题了。做好心理准备跳车吧，这企划估计也就走到这里了。
+
+*****
+
+####  ladiesman802  
+##### 1765#       发表于 2022-9-19 16:30
+
+今晚开播好好拷打kino
+
+*****
+
+####  ladiesman802  
+##### 1766#       发表于 2022-9-19 23:38
+
+开播了，但是对于什么时候回来都没个回应，唉
+
+*****
+
+####  MaxFOrder  
+##### 1767#       发表于 2022-9-20 00:37
+
+这几乎肯定是要走了，SC提毕业的没有一个正面回应，什么时候回厂闪烁其词，回家按摩采耳带男性朋友来家玩，自己都把自己那个什么学业的借口否定掉了，今天直播居然是挪用的明天的安排，摆明了不想多播。算了吧就这样吧，粉丝什么能做的都没有
+
+*****
+
+####  ladiesman802  
+##### 1768#       发表于 2022-9-20 00:57
+
+当初还说如果九夏走了，那kino也跟着九夏走，我是想不到kino会先走一步。你说好像歌姬那样要走一起走我还能理解，自己先润了还是觉得不可思议
+
+*****
+
+####  MaxFOrder  
+##### 1769#       发表于 2022-9-20 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57560747&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-20 00:57</a>
+
+当初还说如果九夏走了，那kino也跟着九夏走，我是想不到kino会先走一步。你说好像歌姬那样要走一起走我还能 ...</blockquote>
+别入脑，她俩说穿了无非也就同事关系，营业一下还能当真吗，现在人心生变，同事情谊能顶啥用
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 龙娘777| + 1|怎么突然急转直下千舰生日会宛如昨日.|
+
+查看全部评分
+
+*****
+
+####  MaxFOrder  
+##### 1770#       发表于 2022-9-20 01:57
+
+为什么急转直下就不好说了，9月初到现在直播、播放量和涨粉数据不好是真的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 龙娘777| + 1|是都要走还是只椰子看有人说她要跳槽.|
+
+查看全部评分
+
+
+
+*****
+
+####  天青月白  
+##### 1771#       发表于 2022-9-20 14:54
+
+kino晚上直播掉舰。
+我已经放平心态了，看她们挣扎还不如趁早不做，或者做个个人势兼职就好。正经做不值得。
+
+*****
+
+####  MaxFOrder  
+##### 1772#       发表于 2022-9-20 16:20
+
+搬点星律动贴吧mmr的典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来还是歌舞升平的好
+
+<img src="https://img.saraba1st.com/forum/202209/20/162035ro9xaax6x8bkxobm.png" referrerpolicy="no-referrer">
+
+<strong>23456236423546sdghsdt.png</strong> (21.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-20 16:20 上传
+
+*****
+
+####  ladiesman802  
+##### 1773#       发表于 2022-9-20 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568061&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-20 16:20</a>
+
+搬点星律动贴吧mmr的典看来还是歌舞升平的好</blockquote>
+上一个这样被送走的不是ruki？
+
+*****
+
+####  逸yi  
+##### 1774#       发表于 2022-9-20 16:57
+
+上个月才千舰 说不定真是跳槽吧🤔
+
+*****
+
+####  天青月白  
+##### 1775#       发表于 2022-9-20 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568061&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-20 16:20</a>
+搬点星律动贴吧mmr的典看来还是歌舞升平的好</blockquote>
+贴吧的本来就是带节奏第一名，个个都是指导民。星律动这种人气还有那么多玩贴吧的关注吗？我以为本来就是mmr为主
+
+*****
+
+####  MaxFOrder  
+##### 1776#       发表于 2022-9-20 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57569756&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-20 18:17</a>
+
+贴吧的本来就是带节奏第一名，个个都是指导民。星律动这种人气还有那么多玩贴吧的关注吗？我以为本来就是 ...</blockquote>
+贴吧还挺活跃的，比QQ群好不少，QQ群是真的mmr扎堆，贴吧好歹在这个时候不是全员都在爱信等
+
+*****
+
+####  ladiesman802  
+##### 1777#       发表于 2022-9-20 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57568575&amp;ptid=1926094" target="_blank">逸yi 发表于 2022-9-20 16:57</a>
+
+上个月才千舰 说不定真是跳槽吧🤔</blockquote>
+再往上就是乐华或者腾讯了，违约金他们愿意给？
+
+*****
+
+####  喜闻乐见  
+##### 1778#         楼主| 发表于 2022-9-20 20:08
+
+ 本帖最后由 喜闻乐见 于 2022-9-20 20:16 编辑 
+
+鸭鸭打电话给她妈说要染紫毛  她真的 哭死
+
+<strong>如果</strong>kini是结果导向的选手，那么之前的跳槽为了能3d跳舞，
+
+后面开场即是live，接着百连，千舰。这么看nb这已经最大化达成一个v的重大活动了
+
+*****
+
+####  ladiesman802  
+##### 1779#       发表于 2022-9-21 12:39
+
+不管kino走不走，nb也是肉眼可见地萎缩了，以前一天可以发3个视频，或者日更一个，现在三天才一个视频，怎么说都是很不妙吧
+
+*****
+
+####  MaxFOrder  
+##### 1780#       发表于 2022-9-21 13:05
+
+早就有人观察出来了，kino从7月初开始就没有原创视频发布，发也只是发发直播切片，九夏鸭鸭略好一点，结合同一时期的招聘公告推断应该是专门负责给kino做视频的厂工跑路了
+
+*****
+
+####  MaxFOrder  
+##### 1781#       发表于 2022-9-21 13:07
+
+现在九夏20w纪念回也近了，毫无宣发，九夏本人也称病不出，感觉真的是出大问题
+
+*****
+
+####  MaxFOrder  
+##### 1782#       发表于 2022-9-21 13:08
+
+最近3D回也是一回赛一回的拉胯，说是风雨飘摇一点也不夸张
+
+*****
+
+####  喜闻乐见  
+##### 1783#         楼主| 发表于 2022-9-21 15:37
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h6e9mq65k5j20ss1f6qv5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  竜騎士07  
+##### 1784#       发表于 2022-9-21 15:39
+
+看来kino是真跑了   不过跑之前也千舰过了 
+
+*****
+
+####  MaxFOrder  
+##### 1785#       发表于 2022-9-21 16:11
+
+九鸭俩人连续两天嗯播游戏，怕是纯杂谈害怕被弹幕拷打吧
+
+*****
+
+####  喜闻乐见  
+##### 1786#         楼主| 发表于 2022-9-21 16:50
+
+可可爱爱
+
+<img src="http://tva1.sinaimg.cn/mw690/732205bcgy1h6ebq5jolpj21hc140go8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  SpinozaHegel  
+##### 1787#       发表于 2022-9-21 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1788#       发表于 2022-9-21 20:33
+
+九夏漏底了，没五险一金，那还是跑了好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 1789#         楼主| 发表于 2022-9-21 21:09
+
+九夏： 憋关注kino了 关注我罢
+
+*****
+
+####  ladiesman802  
+##### 1790#       发表于 2022-9-21 21:24
+
+笑死，好好学习是违禁词
+
+还有保安队长真的来直播间了
+
+*****
+
+####  ladiesman802  
+##### 1791#       发表于 2022-9-21 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57585919&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-21 20:33</a>
+
+九夏漏底了，没五险一金，那还是跑了好</blockquote>
+我觉得开玩笑吧，kino妈一起签合同，没有五险一金当初就不同意了
+
+*****
+
+####  喜闻乐见  
+##### 1792#         楼主| 发表于 2022-9-21 22:48
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h6em2qbzx8j20gp08wq5b.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1793#       发表于 2022-9-22 00:06
+
+转个贴吧图，看破防了，哎，就这么走了
+[https://tieba.baidu.com/p/8033458651](https://tieba.baidu.com/p/8033458651)
+
+<img src="https://img.saraba1st.com/forum/202209/22/000628rdpl00tvy0pptvj3.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-09-22_00-05-19.png</strong> (68.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-22 00:06 上传
+
+*****
+
+####  水松涛木  
+##### 1794#       发表于 2022-9-22 09:27
+
+唉
+
+*****
+
+####  喜闻乐见  
+##### 1795#         楼主| 发表于 2022-9-22 18:46
+
+ 本帖最后由 喜闻乐见 于 2022-9-22 19:37 编辑 
+
+再次故梦<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+九夏新曲名称《失联星球》
+
+*****
+
+####  ladiesman802  
+##### 1796#       发表于 2022-9-22 19:40
+
+这下真的失联星球了
+
+*****
+
+####  ladiesman802  
+##### 1797#       发表于 2022-9-22 21:07
+
+[https://www.bilibili.com/video/BV1Q24y1d7mj?share_source=copy_web](https://www.bilibili.com/video/BV1Q24y1d7mj?share_source=copy_web)
+
+多多支持九夏的新歌！
+
+*****
+
+####  天青月白  
+##### 1798#       发表于 2022-9-23 11:40
+
+九夏声音真好听啊
+
+*****
+
+####  天青月白  
+##### 1799#       发表于 2022-9-23 12:23
+
+我感觉九夏这首歌现场版比视频版更有感情
+
+*****
+
+####  天青月白  
+##### 1800#       发表于 2022-9-23 12:23
+
+我感觉九夏这首歌现场版比视频版更有感情
+
+
+
+*****
+
+####  喜闻乐见  
+##### 1801#         楼主| 发表于 2022-9-23 12:24
+
+ 本帖最后由 喜闻乐见 于 2022-9-23 12:28 编辑 
+
+无意外还是勇攀高峰的性格和行动
+
+*****
+
+####  喜闻乐见  
+##### 1802#         楼主| 发表于 2022-9-23 12:24
+
+ 本帖最后由 喜闻乐见 于 2022-9-23 12:45 编辑 
+
+毕竟不是偶像的版本 ，
+
+三分钟一首的歌难以俘获新的订阅 
+
+nb这段时间可见的在积极探索流量钥匙
+
+一般通过看来这仨绑定挺死，  但也不是吧
+
+*****
+
+####  ladiesman802  
+##### 1803#       发表于 2022-9-23 12:25
+
+唉，终究还是要散了
+
+*****
+
+####  天青月白  
+##### 1804#       发表于 2022-9-23 12:44
+
+kino动态官宣毕业
+
+*****
+
+####  天青月白  
+##### 1805#       发表于 2022-9-23 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57609826&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-23 12:24</a>
+毕竟不是偶像的版本 ，
+
+三分钟一首的歌难以俘获新的订阅 
+
+nb这段时间可见的在积极探索流量钥匙</blockquote>
+我觉得他们应该搞点类似个人势的来探索流量密码
+
+*****
+
+####  不智法师  
+##### 1806#       发表于 2022-9-23 12:58
+
+ 本帖最后由 不智法师 于 2022-9-23 13:00 编辑 
+
+nb这几个玩snp和rsq已经跟传统v圈没区别了，尤其跟歌姬这么正经的企划比起来
+
+*****
+
+####  MaxFOrder  
+##### 1807#       发表于 2022-9-23 12:59
+
+白茫茫一片真干净
+
+*****
+
+####  喜闻乐见  
+##### 1808#         楼主| 发表于 2022-9-23 13:02
+
+nb要正经像歌姬那么搞去年就可以入土了，看看隔壁nbt 搞了个啥
+
+*****
+
+####  不智法师  
+##### 1809#       发表于 2022-9-23 13:02
+
+所以比起歌姬，nb已经在探索新路子上走得很远了
+
+*****
+
+####  超可爱的芥子  
+##### 1810#       发表于 2022-9-23 13:03
+
+别说什么传统不传统了，我对星律动的要求就是活着就行，留个希望也不错<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  佛皇  
+##### 1811#       发表于 2022-9-23 13:05
+
+偶像娱乐行业，这水不好趟
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tankai| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  MaxFOrder  
+##### 1812#       发表于 2022-9-23 13:07
+
+建议不要入脑太深，这俩人跑路是迟早的事，看看厂长21年的访谈吧，雄心勃勃的所谓音乐厂牌建起来没有？这几个人招进来的时候必然是画过大饼的，从罗兹那时候就应该看得出来，她们进来肯定得到过在歌舞方面大力运营的承诺，结果折腾下来转型热水器snp搞笑组合，经营方向都变了你这让员工怎么想？
+
+*****
+
+####  werecat  
+##### 1813#       发表于 2022-9-23 13:10
+
+有没有可能白子火线入厂？
+
+*****
+
+####  天青月白  
+##### 1814#       发表于 2022-9-23 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610314&amp;ptid=1926094" target="_blank">不智法师 发表于 2022-9-23 12:58</a>
+nb这几个玩snp和rsq已经跟传统v圈没区别了，尤其跟歌姬这么正经的企划比起来 ...</blockquote>
+但是他们搞3d成本高很多。我意思其实是应该降低成本，不需要那么多搞台本，搞视频的，2d养蛊，养出来的再上3d。不然摆脱不了干不长的诅咒。
+至于按之前歌姬那样的搞法，我觉得在现在vtuber圈子是不可能的，要搞必须拓展别的观众。
+
+*****
+
+####  喜闻乐见  
+##### 1815#         楼主| 发表于 2022-9-23 13:16
+
+合着鸭鸭唱歌前后变化当没看见，
+
+疫情没变化这么多前，nb还有两张牌，月底的nb趴体和nbf，这些依托nb的3d能带来不错的流量交换。
+
+现在各地疫情这俩都不能办，积极转变思路 难道还去抱着音乐去入土？
+
+nb做的最没错的一点就是干掉什么狗屁音乐厂牌，烧钱打水漂的东西没继续不是很好
+
+*****
+
+####  天青月白  
+##### 1816#       发表于 2022-9-23 13:18
+
+今晚新衣服回还是战姬回忆回，这下真是死去的记忆攻击我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1817#       发表于 2022-9-23 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610562&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-23 13:16</a>
+
+合着鸭鸭唱歌前后变化当没看见，
+
+疫情没变化这么多前，nb还有两张牌，月底的nb趴体和nbf，这些依托nb的3d能 ...</blockquote>
+结果招进来的中之人个个怀揣音乐梦想，咋整<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">你nb随便调整经营方向自然没问题，那跑人也是正常的了。人家是希望能在你这找到一个施展演艺才华的平台，结果你运营半天，整的那点歌舞视频播放量是高是低？就这水平还画音乐厂牌的饼骗人进来呢？
+
+*****
+
+####  ladiesman802  
+##### 1818#       发表于 2022-9-23 13:28
+
+其实先不说当v有没有前途，nb厂已经算做得不错，歌姬已经说明走传统偶像路线已经不行了，纯3d也成本高，摸索出2d加3d的结合，搞音乐吧，看看kino出道时的歌曲舞蹈播放量就知道了，最后选择走整活路线也是被迫无奈，隔壁艾露露都只发短视频了。
+
+而且企业势是众人合力的成果，单靠中之人真的能力有限，参考豆芽，鱼宝她们就知道。
+
+*****
+
+####  MaxFOrder  
+##### 1819#       发表于 2022-9-23 13:29
+
+咱也别给厂里或者中之人任何一方洗了，不到半年之内搞成这样，nb这企划也差不多到头了。坦然面对，就像坦然面对歌姬的完蛋一样
+
+*****
+
+####  天青月白  
+##### 1820#       发表于 2022-9-23 13:29
+
+这下九夏新歌不得不循环了，你的星球失联了
+
+*****
+
+####  MaxFOrder  
+##### 1821#       发表于 2022-9-23 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610740&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-23 13:29</a>
+
+这下九夏新歌不得不循环了，你的星球失联了</blockquote>
+说实话我昨天听这歌还以为kino是在配合整个大活，一度还乐观起来了，结果今天是这个结果
+
+*****
+
+####  喜闻乐见  
+##### 1822#         楼主| 发表于 2022-9-23 13:32
+
+ 本帖最后由 喜闻乐见 于 2022-9-23 13:33 编辑 
+
+k怀揣的是舞蹈梦想吧， 平台没给吗 开局上付费live 请一堆来热气氛， 厂里stf都一致不看好的舞蹈百连也给做了。这个去外面看看风评，一首几秒钟，观感实际上大打折扣，突出一个感动3d人物。 再后面助力千舰梦想。 
+
+再往前，在网易爱下面当小弟，用着惨不忍睹的3d摁打游戏，连k妈都说唱歌方面悟性不太行，这还能是骗进来音乐厂牌？
+
+连曾经的小妹都知道做正能量音乐搞mv走不长 怎么还想着什么音乐厂牌 
+
+*****
+
+####  MaxFOrder  
+##### 1823#       发表于 2022-9-23 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610790&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-23 13:32</a>
+
+k怀揣的是舞蹈梦想吧， 平台没给吗 开局上付费live 请一堆来热气氛， 厂里stf都一致不看好的舞蹈百连也给做 ...</blockquote>
+没毛病，所以我上面说的是歌舞方面的承诺。现在好了，歌没了舞更没了
+
+*****
+
+####  天青月白  
+##### 1824#       发表于 2022-9-23 13:46
+
+我现在才知道kino原来在网易国爱下面当底边的
+
+*****
+
+####  MaxFOrder  
+##### 1825#       发表于 2022-9-23 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610991&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-23 13:46</a>
+
+我现在才知道kino原来在网易国爱下面当底边的</blockquote>
+就看会不会开第三世了，哪怕开了我估计也好不到哪去，进不了3D大厂的话连舞蹈这个专长也寄了，总不能只靠杂谈和那点歌力撑着做纯纯轮椅人吧？做轮椅人又没塔菲那个职业素质，怕是走不远
+
+*****
+
+####  龙娘777  
+##### 1826#       发表于 2022-9-23 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57610468&amp;ptid=1926094" target="_blank">werecat 发表于 2022-9-23 13:10</a>
+
+有没有可能白子火线入厂？</blockquote>
+我估计时间线是这样 kino几个月前决定离职 厂子开始找人 千鸟解散毕业 双方搭上线敲定白子 开始准备模型 kino正式离职 下步应该是准备好后白子出道 
+
+*****
+
+####  MaxFOrder  
+##### 1827#       发表于 2022-9-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611084&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-9-23 13:53</a>
+
+我估计时间线是这样 kino几个月前决定离职 厂子开始找人 千鸟解散毕业 双方搭上线敲定白子 开始准备模型  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nb厂连走两个整这么难看，白子进来就抗压这真的好吗
+
+*****
+
+####  天青月白  
+##### 1828#       发表于 2022-9-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611045&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-23 13:50</a>
+就看会不会开第三世了，哪怕开了我估计也好不到哪去，进不了3D大厂的话连舞蹈这个专长也寄了，总不能只靠 ...</blockquote>
+开不开也没啥，说实话我就喜欢九夏，目前的kino和鸭鸭对我来说情感联系远不如当时战斗吧歌姬那几个，那几个我还关注着看看她们的动态，kino转生可能我不会看了。
+
+*****
+
+####  喜闻乐见  
+##### 1829#         楼主| 发表于 2022-9-23 13:55
+
+轮椅人版本的时代要啥歌舞， 抖音小曲直接全杀杀了  歌舞得配合线下live或者bls来收米涨粉，但现在连bls都没得办，原创歌舞怎么在越发强推的竖屏几秒内抓住眼球？没吸引到就直接划过去
+
+就算是兰音恐怖级涨粉也是短的不能再短的翻唱出圈。如果还抱着歌舞，那磨出来成品只会打击艺人的自信。不是歌舞不合适，是平台拉着观众不去选择歌舞了
+
+*****
+
+####  逸yi  
+##### 1830#       发表于 2022-9-23 13:55
+
+白子不是猫邮社？
+
+
+
+*****
+
+####  龙娘777  
+##### 1831#       发表于 2022-9-23 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611120&amp;ptid=1926094" target="_blank">逸yi 发表于 2022-9-23 13:55</a>
+
+白子不是猫邮社？</blockquote>
+她只是睡遍v圈妹妹而已 不过从杜松子说法看白子也去猫邮社面来着
+
+*****
+
+####  MaxFOrder  
+##### 1832#       发表于 2022-9-23 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611118&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-23 13:55</a>
+
+轮椅人版本的时代要啥歌舞， 抖音小曲直接全杀杀了  歌舞得配合线下live或者bls来收米涨粉，但现在连bls都 ...</blockquote>
+所以说nb不适合这个版本，招进来这几个中之人同样也不适合，那散伙大概也没什么可奇怪的了
+
+*****
+
+####  天青月白  
+##### 1833#       发表于 2022-9-23 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611118&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-23 13:55</a>
+轮椅人版本的时代要啥歌舞， 抖音小曲直接全杀杀了  歌舞得配合线下live或者bls来收米涨粉，但现在连bls都 ...</blockquote>
+原创歌舞我就觉得搞不起来，有空的时候我回顾歌姬的视频，结论是热度高的就是要蹭热度，藻藻唱处处吻的歌是播放量最高的几个。兰音火起来也是因为翻唱那首歌本来就火了。粉丝量没上去的时候要想让别人看见你要么就整烂活，要么就蹭热度。或者歌姬时候甚至asoul那时候的粉丝高强度自愿/非自愿的艹热度。
+
+*****
+
+####  安姆闲人  
+##### 1834#       发表于 2022-9-23 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/262.png" referrerpolicy="no-referrer">我是觉得除非正主出来说明原因不然猜来猜去都挺虚的，说因为3D做不下去2D轮椅人时代吧，那NB也有2D啊，还想做的话苟着就好了。
+歌舞理想也一样，其他3D歌舞势咋样摆在那儿了，NB虽然女铜活搞得多，歌舞支持又没落下，离了NB难道还有更好的团可以选么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MaxFOrder  
+##### 1835#       发表于 2022-9-23 14:06
+
+说到底还是厂长当初的梦想过于不切实际了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拖累所有人
+
+*****
+
+####  天青月白  
+##### 1836#       发表于 2022-9-23 14:10
+
+倒是，没什么好猜的，之前都熬过来了千舰以后再怎么说也是能看到希望了，这时候走不是什么简单的火不火决定的。
+我对nb厂也没那么悲观，只要开心消消乐还能赚钱，那些直播设备和资源总会利用起来的，不然不符合商业逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  frg  
+##### 1837#       发表于 2022-9-23 14:11
+
+……怎么又到了我第二喜欢的歌舞无用论环节。ASOUL尚且还不方便对标你河，友团倒是在使劲复刻蜜蜂少女队么
+
+*****
+
+####  ladiesman802  
+##### 1838#       发表于 2022-9-23 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611288&amp;ptid=1926094" target="_blank">安姆闲人 发表于 2022-9-23 14:06</a>
+
+我是觉得除非正主出来说明原因不然猜来猜去都挺虚的，说因为3D做不下去2D轮椅人时代吧，那NB也有2D ...</blockquote>
+当然是乐华的新团了，不过如果她真的选择那种无底线炒作的运营方式，就算转生了我也不会关注了
+
+*****
+
+####  追逐的潮汐  
+##### 1839#       发表于 2022-9-23 14:14
+
+歌舞无用的话，星瞳怎么算呢<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+当然那个投入力度不可同日而语<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不智法师  
+##### 1840#       发表于 2022-9-23 14:16
+
+<blockquote>天青月白 发表于 2022-9-23 13:12
+但是他们搞3d成本高很多。我意思其实是应该降低成本，不需要那么多搞台本，搞视频的，2d养蛊，养出来的再 ...</blockquote>
+其实就是缺一个类似破圈的机会，我认为最有可能的是罗兹，可惜跑路了，而且打死了歌姬重启的可能
+
+*****
+
+####  MaxFOrder  
+##### 1841#       发表于 2022-9-23 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611410&amp;ptid=1926094" target="_blank">追逐的潮汐 发表于 2022-9-23 14:14</a>
+
+歌舞无用的话，星瞳怎么算呢
+
+当然那个投入力度不可同日而语</blockquote>
+就说一点，你吉诺儿kino舞力有瞳子三分之一么
+
+*****
+
+####  逸yi  
+##### 1842#       发表于 2022-9-23 14:23
+
+kino主要是体力好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1843#       发表于 2022-9-23 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611407&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-23 14:14</a>
+
+当然是乐华的新团了，不过如果她真的选择那种无底线炒作的运营方式，就算转生了我也不会关注了 ...</blockquote>
+真要转生任何一个企业势我都不会再看了，同样的事情发生两次？这次更是走以前狠狠收割一波粉丝，冲千舰粉丝出多大力就不说了，这都临走了还跟没事人一样反反复复强调多么想继续下去，还给粉丝画饼新衣服新歌新装扮，末了再带前世粉丝入场别家？这中之人人品真的没问题吗？
+
+*****
+
+####  逸yi  
+##### 1844#       发表于 2022-9-23 14:26
+
+没准是真人出道还是回家做舞蹈老师吧呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1845#       发表于 2022-9-23 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611581&amp;ptid=1926094" target="_blank">逸yi 发表于 2022-9-23 14:26</a>
+
+没准是真人出道还是回家做舞蹈老师吧呃呃</blockquote>
+她亲口说她舞蹈不是专业的，换句话说也就是小时候进过儿童舞蹈队，本科没接受过真正的科班教育的水平，就这还做舞蹈老师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  追逐的潮汐  
+##### 1846#       发表于 2022-9-23 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611407&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-23 14:14</a>
+
+当然是乐华的新团了，不过如果她真的选择那种无底线炒作的运营方式，就算转生了我也不会关注了 ...</blockquote>
+乐华有啥新团吗？0 0
+
+*****
+
+####  tankai  
+##### 1847#       发表于 2022-9-23 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612020&amp;ptid=1926094" target="_blank">追逐的潮汐 发表于 2022-9-23 14:58</a>
+
+乐华有啥新团吗？0 0</blockquote>
+乐华娱乐【3D】虚拟偶像企划「PROJECT X」和EOE不是同一个.之前在招人.
+
+*****
+
+####  qw945  
+##### 1848#       发表于 2022-9-23 15:23
+
+冲完千舰毕业了，是厂的问题，人的问题，还是这个圈子有问题？
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  MaxFOrder  
+##### 1849#       发表于 2022-9-23 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57612425&amp;ptid=1926094" target="_blank">qw945 发表于 2022-9-23 15:23</a>
+
+冲完千舰毕业了，是厂的问题，人的问题，还是这个圈子有问题？
+
+—— 来自 Sony J9110, Android 11上的 S1N ...</blockquote>
+有无可能都有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awy47  
+##### 1850#       发表于 2022-9-23 15:30
+
+唉，kino居然毕业了
+
+*****
+
+####  佛皇  
+##### 1851#       发表于 2022-9-23 16:58
+
+歌舞不是无用，是体量不够之前无用或者说歌舞没到可以自造热点的程。V圈头部的企划的原创歌曲也几乎没啥好数据
+
+*****
+
+####  MaxFOrder  
+##### 1852#       发表于 2022-9-23 17:09
+
+歌舞有没有用这点还需要汴京？看看吉诺儿kino歌舞投稿什么播放量都知道了吧，于我个人我是爱看歌舞的，肯定希望主播能多发挥艺术专长，问题是这届观众买账吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不智法师  
+##### 1853#       发表于 2022-9-23 17:15
+
+点开kino和九夏视频按播放量排序就知道歌舞有没有用了
+
+*****
+
+####  水松涛木  
+##### 1854#       发表于 2022-9-23 17:18
+
+唉
+
+*****
+
+####  安姆闲人  
+##### 1855#       发表于 2022-9-23 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">何必这么极端呢，歌舞播放量低不是播放量？吸来的粉不是粉？再说了能力这个东西又不是一堆一样高的木桶你往哪儿灌水都行，歌舞无用于是星律动放弃歌舞然后呢，难道蹭热点的视频质量就会猛然上升粉丝蹭蹭涨了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kikiwalu  
+##### 1856#       发表于 2022-9-23 17:36
+
+可能我真人饭圈追久了，总觉得v圈这些歌舞都跟过家家一样，看星律动吸引我的纯粹只有贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ladiesman802  
+##### 1857#       发表于 2022-9-23 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57614289&amp;ptid=1926094" target="_blank">安姆闲人 发表于 2022-9-23 17:21</a>
+
+何必这么极端呢，歌舞播放量低不是播放量？吸来的粉不是粉？再说了能力这个东西又不是一堆一样高的 ...</blockquote>
+不是么？高考短视频，鸭鸭最近的科目三，九夏的你的背景太假了，当时可是日增1千粉的
+
+歌舞路人很少点击的，更多只是内部粉丝的回赠
+
+而且歌舞买版权估计也要花钱吧
+
+*****
+
+####  MaxFOrder  
+##### 1858#       发表于 2022-9-23 17:43
+
+贴吧切片man透露nb好久没人跟他对接工作了，估计是乐元素真的要砍了这企划，行吧，又送走一批
+
+*****
+
+####  安姆闲人  
+##### 1859#       发表于 2022-9-23 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57614480&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-23 17:37</a>
+不是么？高考短视频，鸭鸭最近的科目三，九夏的你的背景太假了，当时可是日增1千粉的
+
+歌舞路人很少点击的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不做歌舞多余的产能也没法有效加到这上面啊，热度就这么几个，没的蹭的时候还是要做别的东西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安姆闲人  
+##### 1860#       发表于 2022-9-23 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57614461&amp;ptid=1926094" target="_blank">kikiwalu 发表于 2022-9-23 17:36</a>
+可能我真人饭圈追久了，总觉得v圈这些歌舞都跟过家家一样，看星律动吸引我的纯粹只有贴贴
+
+  -- 来 ...</blockquote>
+虚拟偶像还是需要舞美和实时虚拟技术的加持的，当然这块谈何容易，A这边也是去年搞了几次后变成只有大活动时候用了，平时都是普通跳舞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  ladiesman802  
+##### 1861#       发表于 2022-9-23 19:16
+
+新衣服挺好看的，就是已经没有能穿的人了
+
+*****
+
+####  喜闻乐见  
+##### 1862#         楼主| 发表于 2022-9-23 19:44
+
+ 本帖最后由 喜闻乐见 于 2022-9-23 19:53 编辑 
+
+就这喊刀刀的
+
+所以说
+歌姬情怀粉真的是，捅刀子的是这些才是吧
+抱着歌舞去棺材好了<img src="https://s1.ax1x.com/2022/09/23/xkjiOe.jpg" referrerpolicy="no-referrer">
+
+连鸭鸭转到nb都不足以切割掉旧世代
+
+太下头辣 ，跑活人这哭丧搞得鸭鸭唱歌哭腔 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 郭楠| + 1|插眼|
+
+查看全部评分
+
+*****
+
+####  逸yi  
+##### 1863#       发表于 2022-9-23 19:46
+
+啊尸体在跳舞 太虚拟了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安姆闲人  
+##### 1864#       发表于 2022-9-23 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">又是觉得别人该变出钱来满足他们的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MaxFOrder  
+##### 1865#       发表于 2022-9-23 19:53
+
+前半段没忍心看，刚刚一点进去就是鸭鸭带着哭腔在唱歌，τmd为什么！！这一切到底为什么会发生！！
+
+*****
+
+####  frg  
+##### 1866#       发表于 2022-9-24 00:35
+
+四小时前：【【自荐】一封给星律动厂牌的简历，我想成为3D虚拟偶像！-哔哩哔哩】 https://b23.tv/bQe3w7O
+
+*****
+
+####  甜麻卷  
+##### 1867#       发表于 2022-9-24 01:51
+
+到现在也不知道为什么离开，不知道30号能不能透漏点
+
+*****
+
+####  一叶丈育  
+##### 1868#       发表于 2022-9-24 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 1869#       发表于 2022-9-24 07:58
+
+九夏直播状态挺不对劲的，鸭鸭好惨<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 1870#       发表于 2022-9-24 08:30
+
+<img src="https://p.sda1.dev/7/3ee8932bd5656a2e4a43ad9d86891031/CMP_20220924082345861.jpg" referrerpolicy="no-referrer">
+这个企划的模式注定了容易嗝屁，说真的，nb这几个能播这么久我已经很惊讶了，有得看就看，直到没得看吧，也不想发散分析。歌姬死了以后我就特别讨厌天天讨论运营天天盯数据斗虫，歌姬后期全是那样的氛围。
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MaxFOrder  
+##### 1871#       发表于 2022-9-24 11:22
+
+<img src="https://img.saraba1st.com/forum/202209/24/112040w5iezrf52e41oerd.jpg" referrerpolicy="no-referrer">
+
+<strong>d371ef11b912c8fc2d738d12b9039245d488216d.jpg</strong> (22.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-24 11:20 上传
+
+这不好说了，厂长说这话等于说是把球踢给kino中之人了，明确讲是kino忽然提出毕业，nb厂反而是计划被打乱的受害一方。目测一股血雨腥风又要掀起，节奏能不能到3那种程度就看未来kino怎么回应了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 郭楠| + 1|插眼|
+
+查看全部评分
+
+*****
+
+####  isla  
+##### 1872#       发表于 2022-9-24 11:29
+
+这新衣发布很明显是企划内部知道毕业有段时间了吧，不然为啥单独没kino的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  MaxFOrder  
+##### 1873#       发表于 2022-9-24 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57623489&amp;ptid=1926094" target="_blank">isla 发表于 2022-9-24 11:29</a>
+
+这新衣发布很明显是企划内部知道毕业有段时间了吧，不然为啥单独没kino的
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+有啊，还有舞蹈播片呢，明显是三个都做了，现在跑路之后来不及把舞蹈片里的kino撤下来
+
+*****
+
+####  ladiesman802  
+##### 1874#       发表于 2022-9-24 12:12
+
+就看30号能不能把中之人拷打出什么信息了
+
+*****
+
+####  天青月白  
+##### 1875#       发表于 2022-9-24 12:16
+
+厂子这边肯定是没预计，woth打歌服和舞都有，冰火也是3个人。
+不过也不想苛责kino啥，毕竟没前途。akb乃木坂那些严格的偶像也有成员被抓包跑路的。
+
+*****
+
+####  MaxFOrder  
+##### 1876#       发表于 2022-9-24 12:30
+
+ 本帖最后由 MaxFOrder 于 2022-9-24 12:32 编辑 
+<blockquote>天青月白 发表于 2022-9-24 12:16
+厂子这边肯定是没预计，woth打歌服和舞都有，冰火也是3个人。
+
+不过也不想苛责kino啥，毕竟没前途。akb乃木 ...</blockquote>
+我作为820上了舰又买了一大堆周边的粉丝，说实话还是觉得有点意难平。观众有所不满并不能称得上苛责。毕竟之前近乎养gachi的话术外加完全看不出要跑路的口吻，和突然毕业这一现实之间反差太大。也就在十多天前以前，她还因为千舰得意洋洋，畅想未来的新衣新歌，问观众将来还要不要找其他家人一起直播，至少从她自己态度来看上上下下看不到一点要走的征兆，如果真的是蓄谋已久，只能说太会演了。
+
+当然现在的问题是，到底这个离职决策应归咎于kino中之人还是nb厂，估计还有得拉扯。现在nb明牌了说是你kino中之人不顾厂里未来规划突然提离职，明显是准备舆论发力了，且看另一边怎么接招吧
+
+*****
+
+####  喜闻乐见  
+##### 1877#         楼主| 发表于 2022-9-24 12:48
+
+ 本帖最后由 喜闻乐见 于 2022-9-24 13:06 编辑 
+
+没必要当法官非要审判个对错吧，总想搞个对立看血流成河是吧
+就像栗子跳槽一样  当时怎么不去发小作文？
+
+管人粉还是要比管人v一点，敲打离职理由这种 是想问个观众想要的还是台本给的
+
+前面20号时候我也提到过 ，再来车轱辘一遍吧
+
+如果是结果导向选手，
+那么她走就毫无意外 
+
+来nb这目的很明确，
+当时也有讨论过鸡头凤尾的问题， 来nb是能解决能不能跳舞
+
+想要的百连，当时可是stf都不建议去搞的。
+在nb和波波派范围内甚至超一点的，大家和她还是齐力完成了千舰。
+
+再往上呢？ 
+很明显 nb也提供不了
+ a和星瞳这种自带背后大厂的话题度是乐元素比不了的 
+v圈现在版本偶像团也没的搞 不走留着。。。
+
+至于厂长出来含糊说几句，
+那我作为九夏推我也不想看她播时候全是哭丧弹幕，拿个人在其他人那里连续拷打弹幕贴吧发散，一人倒了全部倒了，别人还要不要播。
+其他人就算有离职计划，不特么都还没走，搞得乌烟瘴气 
+
+*****
+
+####  MaxFOrder  
+##### 1878#       发表于 2022-9-24 13:00
+
+对于粉丝来说，有没有必要分对错确实可以另议，我在这里无非是个人感到有一点被欺骗，无法做到不偏不倚而已，当然我的意见也无法改变任何现状。但企业遇到这种事还能不谈对错吗，倘若真的是kino中之人跑路，你猜nb厂里骂不骂她？真金白银投入的资源瞬间蒸发，现在只是暗示一下kino中之人的责任无非是保留几分体面罢了
+
+*****
+
+####  十神白夜神月  
+##### 1879#       发表于 2022-9-24 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57623489&amp;ptid=1926094" target="_blank">isla 发表于 2022-9-24 11:29</a>
+
+这新衣发布很明显是企划内部知道毕业有段时间了吧，不然为啥单独没kino的
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+你没看昨晚直播和发的视频吗，有kino的新衣服啊
+
+*****
+
+####  甜麻卷  
+##### 1880#       发表于 2022-9-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624189&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-24 12:30</a>
+
+我作为820上了舰又买了一大堆周边的粉丝，说实话还是觉得有点意难平。观众有所不满并不能称得上苛责。毕竟 ...</blockquote>
+乐元素第一次有毕业会，也算是好聚好散。
+
+不管是不是准备把锅甩给kino，还是相信厂子和kino
+
+*****
+
+####  天青月白  
+##### 1881#       发表于 2022-9-24 19:35
+
+九夏:今晚8点聊一聊。这也要cosplay是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一叶丈育  
+##### 1882#       发表于 2022-9-24 19:41
+
+管人一生必经的三件事:出道，毕业，晚八点聊天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  喜闻乐见  
+##### 1883#         楼主| 发表于 2022-9-24 20:10
+
+ 本帖最后由 喜闻乐见 于 2022-9-24 20:23 编辑 
+
+心情能理解，但跑九夏这哭丧，九夏也是个体，并不是kino的发言人 毕业回再去哭不好吗
+真的很ky 非要让其他俩一直都要看着不聊自己的哭丧弹幕到非走不可那时候吗
+
+连体人这味儿
+<img src="https://s1.ax1x.com/2022/09/24/xAhuwT.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天青月白  
+##### 1884#       发表于 2022-9-24 20:11
+
+直球了，九夏:还没想好要不要留下，想好了告诉你们
+
+*****
+
+####  天青月白  
+##### 1885#       发表于 2022-9-24 20:25
+
+有点绷不住了，但是你这时候直播肯定全是这种内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MaxFOrder  
+##### 1886#       发表于 2022-9-24 20:30
+
+ 本帖最后由 MaxFOrder 于 2022-9-24 20:32 编辑 
+
+没看直播，但在这骂连体人也有够搞笑，k9高强度营业的时候咋不说不让连体呢？吉诺儿kino这一走等于直接干碎nb观众几乎一切的期待，别忘了在外面一提你厂别人第一反应都是什么？那个女铜厂！不是说搞cp营业不行，但你也得接受搞cp带来的一切，火烧这么大还不让人在九夏直播间提吉诺儿，提了就骂人是连体人，这是一种什么样的宽容？
+
+*****
+
+####  喜闻乐见  
+##### 1887#         楼主| 发表于 2022-9-24 20:31
+
+ 本帖最后由 喜闻乐见 于 2022-9-24 20:45 编辑 
+
+那还真不懂这个nb观众几乎一切的期待，或许因为不是nb观众的原因吧。
+
+那连体人厨怎么不去再哭丧下，强调cp的同生共死，你出名都是靠cp，你cp已经毕业了 怎么不去九夏那发个怎么还不去殉葬，nb没了kino那还叫nb？ 你九夏快毕业吧
+斯人已去 还要被作幸存受害者指摘也未免太小气了点
+
+给没看今晚九夏发言人的nb台柱子厨还是repo一下吧 前半全是别死好吗和哭丧 那关直播你们直接虚空哭丧不更好，发言人直接就高声了 我还没死 一周年还没办 别催我死好吗
+
+v圈女人搞姛一抓一大把，
+
+看了下还在发别走吗的还是同一个b 开独轮车
+怎么说 又纯良又是
+
+*****
+
+####  MaxFOrder  
+##### 1888#       发表于 2022-9-24 20:47
+
+根本就搞不清好歹，谁希望九夏就这么毕业？她吉诺儿kino短短几天之内把你粉的主播干到都要考虑毕业了，还不让观众讨个说法？你喷弱智独轮车就喷，谁都支持你喷，问题是还看不出现在这当口大伙都关心什么啊？
+
+再说了吉诺儿kino这些话题难道不是九夏先提起来的，怪观众犯病？不知道的还以为是直播间开独轮车开得九夏不得不回应似的。
+
+*****
+
+####  MaxFOrder  
+##### 1889#       发表于 2022-9-24 20:48
+
+真几把想不通，你主推的主播被吉诺儿kino干成这样，结果怪粉丝炒cp，这就是毒唯吗笑了
+
+*****
+
+####  喜闻乐见  
+##### 1890#         楼主| 发表于 2022-9-24 20:48
+
+ 本帖最后由 喜闻乐见 于 2022-9-24 20:51 编辑 
+
+哟 您都可以不看直播就知道是九夏提的kino了 
+牛。
+
+您也别回我了，喷别人哭丧，到您这变成我喷炒cp  在理在理。
+
+
+
+*****
+
+####  ladiesman802  
+##### 1891#       发表于 2022-9-24 20:49
+
+坦白一点确实好一点，总比kino谜语人消失几天好
+
+*****
+
+####  MaxFOrder  
+##### 1892#       发表于 2022-9-24 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57630124&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-24 20:49</a>
+
+坦白一点确实好一点，总比kino谜语人消失几天好</blockquote>
+在您楼楼主看来九夏开直播最好不要提吉某，眼睛里揉不得沙子，毕竟提了必然要有人拐你九夏
+
+*****
+
+####  ladiesman802  
+##### 1893#       发表于 2022-9-24 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57630229&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-24 20:53</a>
+
+在您楼楼主看来九夏开直播最好不要提吉某，眼睛里揉不得沙子，毕竟提了必然要有人拐你九夏 ...</blockquote>
+唉，别吵了
+
+*****
+
+####  天青月白  
+##### 1894#       发表于 2022-9-24 20:59
+
+这又没啥，明明是和平分手，非要脑补什么谁害谁，什么博弈啥的。
+九夏：《失联星球》是合作曲，提前约好的，刚好赶上这几天是巧合
+
+*****
+
+####  MaxFOrder  
+##### 1895#       发表于 2022-9-24 21:00
+
+我把话搁这说清楚，吉某跟九夏CP营业这么长时间，你起码得意识到两个人形象和发展规划高度捆绑，你吉某一走了之九夏也过不好，事实上也确实如此，九夏直播说因为吉某毕业导致开始考虑毕业的发言即便没看直播也在到处传好伐？这时候不管是cp粉还是九夏粉丝，想讨个说法的想法再正常不过，引来独轮车小鬼也在所难免，我是没理解为啥连这都能刺激到您楼楼主，直接扣个连体人帽子瞎喷。那既然这么怕连体人，当初居然还真能容忍k9热炒cp没跑路，我也是比较佩服的。
+
+*****
+
+####  喜闻乐见  
+##### 1896#         楼主| 发表于 2022-9-24 21:08
+
+ 本帖最后由 喜闻乐见 于 2022-9-24 21:10 编辑 
+
+想讨个说法的想法再正常不过，
+
+确实是正常情绪表达，这么久来推上花的时间和精力，能希望给一个意义
+
+可不是什么事情都一定能得到某个答案，何况还有一层皮的v
+
+*****
+
+####  天青月白  
+##### 1897#       发表于 2022-9-24 21:11
+
+笑死，九夏开始打预防针，现在弹幕都是她铁定要走的范围，然后就一直澄清。颇有一种气氛都到这了，不走不行的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  追逐的潮汐  
+##### 1898#       发表于 2022-9-24 21:11
+
+额怎么说呢，学业原因我觉得是最不可能的吧
+
+*****
+
+####  不智法师  
+##### 1899#       发表于 2022-9-24 21:19
+
+也不能排除学业吧，说不定家里让出国留学呢
+
+*****
+
+####  ladiesman802  
+##### 1900#       发表于 2022-9-24 21:42
+
+九夏今晚的直播真的100分，该回应的都回应了，不做谜语人，看完真的心情舒服了很多。九夏智商未必130，但情商这一块200分！
+
+*****
+
+####  isla  
+##### 1901#       发表于 2022-9-24 21:42
+
+学业就是好聚好散的说法吧，总不能说家里安排相亲了/考上编制了/找到下家了
+
+*****
+
+####  喜闻乐见  
+##### 1902#         楼主| 发表于 2022-9-24 21:54
+
+云眠月
+檀九夏
+
+*****
+
+####  ladiesman802  
+##### 1903#       发表于 2022-9-24 22:05
+
+还有个黄图哥
+
+*****
+
+####  天青月白  
+##### 1904#       发表于 2022-9-24 23:28
+
+<img src="https://p.sda1.dev/7/a529e40ffea36e940152eba3f2565d45/CMP_20220924232843802.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 1905#       发表于 2022-9-24 23:29
+
+<img src="https://p.sda1.dev/7/a529e40ffea36e940152eba3f2565d45/CMP_20220924232843802.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainker  
+##### 1906#       发表于 2022-9-24 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57611102&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-23 13:54</a>
+nb厂连走两个整这么难看，白子进来就抗压这真的好吗</blockquote>
+白子和新科娘4代目合作发了首歌进虚研社可能更大吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xsl1099  
+##### 1907#       发表于 2022-9-25 12:54
+
+ 本帖最后由 xsl1099 于 2022-9-25 13:03 编辑 
+
+就在这里。明天晚上。一旦进入梦境，它就会一直发生——每周至少三次。看起来那件事真的又要*发生*了。她是那么的灿烂华丽，让人窒息，青春洋溢。她闻起来有k9的味道——就像每一次她暴论，大笑，又回来投降的时候一样。那是很久之前的事了……一切都结束了，波波派。是的，这是真正的黑暗。真正的爱情长着一张黑暗的脸庞，第一次死亡是在心里的，波波派。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  佛皇  
+##### 1908#       发表于 2022-9-25 15:45
+
+唉，来s1还有人发疯，也是醉了
+
+*****
+
+####  ladiesman802  
+##### 1909#       发表于 2022-9-25 19:10
+
+sc有人说还是三个人好，厂长什么时候出道？
+
+鸭鸭说不能漏了。
+
+难道有第三新人出来？
+
+*****
+
+####  天青月白  
+##### 1910#       发表于 2022-9-25 19:26
+
+有也正常吧，5套动捕，放着也不好。
+鸭鸭直播一直被弹幕逗，不过别搞过火了
+
+*****
+
+####  天青月白  
+##### 1911#       发表于 2022-9-25 19:52
+
+鸭鸭骗到一个总督了捏。
+希望这次化危机为良机，贴吧有人说趁机复活歌姬，我看行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1912#       发表于 2022-9-25 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644557&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-25 19:52</a>
+
+鸭鸭骗到一个总督了捏。
+
+希望这次化危机为良机，贴吧有人说趁机复活歌姬，我看行 ...</blockquote>
+把鱼宝拐回来是吧
+
+*****
+
+####  天青月白  
+##### 1913#       发表于 2022-9-25 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57644723&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-25 20:04</a>
+把鱼宝拐回来是吧</blockquote>
+别说，那几个人我看就鱼宝最闲，真有机会拐回来也就她了。
+
+*****
+
+####  Micron  
+##### 1914#       发表于 2022-9-25 20:27
+
+不如拐骗修白勾加入挑大梁
+
+*****
+
+####  ladiesman802  
+##### 1915#       发表于 2022-9-25 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57645155&amp;ptid=1926094" target="_blank">Micron 发表于 2022-9-25 20:27</a>
+
+不如拐骗修白勾加入挑大梁</blockquote>
+白子在很多地方都有存在感，但是粉丝数也不是很多
+
+会不会高估了她的影响力
+
+*****
+
+####  Micron  
+##### 1916#       发表于 2022-9-25 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57645595&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-25 20:49</a>
+
+白子在很多地方都有存在感，但是粉丝数也不是很多
+
+会不会高估了她的影响力 ...</blockquote>
+得看中之人的规划吧。如果想走3D的话，NB现成的动捕棚；要是只想音声热水器，NB明显不太适合
+
+*****
+
+####  喜闻乐见  
+##### 1917#         楼主| 发表于 2022-9-25 21:43
+
+卡了是吧？
+
+重听
+
+*****
+
+####  不智法师  
+##### 1918#       发表于 2022-9-25 21:46
+
+只要这个企划还能稳定一段时间，想要来的人不会少，毕竟比星律动高的平台也没几个。但首先是要给观众吃定心丸，让人相信企划还能继续下去。
+
+*****
+
+####  天青月白  
+##### 1919#       发表于 2022-9-25 21:55
+
+草了，直播看我上面发的9人版woth
+
+*****
+
+####  一叶丈育  
+##### 1920#       发表于 2022-9-25 21:55
+
+现在是什么环节<img src="https://static.saraba1st.com/image/smiley/face2017/154.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  ladiesman802  
+##### 1921#       发表于 2022-9-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57646928&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-9-25 21:55</a>
+
+现在是什么环节
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+现在是卡姐关门杀人时间
+
+*****
+
+####  天青月白  
+##### 1922#       发表于 2022-9-25 21:59
+
+这下9进2了，企划一开始的模式，搞成了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一叶丈育  
+##### 1923#       发表于 2022-9-25 22:00
+
+我害怕了，这下真的害怕了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ba娜娜  
+##### 1924#       发表于 2022-9-26 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">弹幕问九夏Kino走的时候你哭了吗，九夏说之前偷偷哭过了
+
+呜呜呜这句话让我破防了，九夏真的绝世好女人
+
+*****
+
+####  喜闻乐见  
+##### 1925#         楼主| 发表于 2022-9-26 10:56
+
+ 本帖最后由 喜闻乐见 于 2022-9-26 11:05 编辑 
+
+QA他来了
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h6jtqzwykdj20o5052tau.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h6jtr2dm4kj20mi035403.jpg" referrerpolicy="no-referrer">
+
+就是啊，你怎么不焊死中之人，之后毕业了都不方便无脑朝厂子打靶惹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1926#       发表于 2022-9-26 11:15
+
+希望能吸引更多优秀的人来nb吧
+
+*****
+
+####  不智法师  
+##### 1927#       发表于 2022-9-26 11:23
+
+把运营方向说清楚先，不然保不齐又会出现罗兹这种事情
+
+*****
+
+####  追逐的潮汐  
+##### 1928#       发表于 2022-9-26 14:21
+
+星律动没有搞清楚自己的定位，确定目标才行啊
+
+*****
+
+####  喜闻乐见  
+##### 1929#         楼主| 发表于 2022-9-26 20:28
+
+saku现场录起床音声 对味儿
+
+*****
+
+####  ladiesman802  
+##### 1930#       发表于 2022-9-26 21:23
+
+鸭鸭直播天天被钓鱼，笑死
+
+刚刚还问鸭鸭是不是要做前辈，鸭鸭说，说不定反过来呢
+
+要么有人转生去nb，最低期待是kino二代目
+
+*****
+
+####  喜闻乐见  
+##### 1931#         楼主| 发表于 2022-9-26 21:30
+
+ 本帖最后由 喜闻乐见 于 2022-9-26 21:40 编辑 
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h6kbx6pmeoj20kn05dwik.jpg" referrerpolicy="no-referrer">
+
+saku模仿卷卷笑喷
+
+*****
+
+####  ladiesman802  
+##### 1932#       发表于 2022-9-26 21:48
+
+仔细想了想，kino二代目也不太可能，不然装扮可以继续出
+
+放低期待，可能罗总出来唱一曲？或者歌姬出来演一场？
+
+*****
+
+####  MaxFOrder  
+##### 1933#       发表于 2022-9-26 22:03
+
+罗二算了吧，罗二没结下梁子就不错了还来联动
+
+*****
+
+####  不智法师  
+##### 1934#       发表于 2022-9-26 22:06
+
+罗兹二代明显不欢而散的，不如指望老歌姬来客串一把
+
+*****
+
+####  ladiesman802  
+##### 1935#       发表于 2022-9-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57662652&amp;ptid=1926094" target="_blank">不智法师 发表于 2022-9-26 22:06</a>
+
+罗兹二代明显不欢而散的，不如指望老歌姬来客串一把</blockquote>
+确实，请咩咩鱼宝上场一次，机票加起来也就1k，酒店1k，工资另算，也不是特别大的支出
+
+*****
+
+####  天青月白  
+##### 1936#       发表于 2022-9-26 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57662116&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-26 21:23</a>
+鸭鸭直播天天被钓鱼，笑死
+
+刚刚还问鸭鸭是不是要做前辈，鸭鸭说，说不定反过来呢
+
+要么有人转生去nb，最低期 ...</blockquote>
+可能是再复活一个歌姬？省模型钱
+
+*****
+
+####  MaxFOrder  
+##### 1937#       发表于 2022-9-26 22:57
+
+ 本帖最后由 MaxFOrder 于 2022-9-26 22:58 编辑 
+
+还是别沾歌姬了，费力不讨好，老战姬众被折腾这么几次心气都快没了。再说了这公司真就做慈善，对中之人倒是仁慈友善讲人道了，观众受大罪，刚刚入脑可劲儿地消费了一波，啪的一下没了，没了还不让说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1938#       发表于 2022-9-27 01:09
+
+今晚saku突击直播才想起，saku也是工作了2年才去读大学的
+
+*****
+
+####  ladiesman802  
+##### 1939#       发表于 2022-9-27 01:22
+
+我tm笑死，saku又说起鱼宝点奶茶的时候会比个数字在脸旁。然后鱼宝转发的二创就是那个姿势，真巧
+
+*****
+
+####  ladiesman802  
+##### 1940#       发表于 2022-9-27 20:14
+
+唐九夏你是不是刀拿反了
+
+*****
+
+####  xsl1099  
+##### 1941#       发表于 2022-9-27 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">九夏能处 有歌她真唱
+
+*****
+
+####  一叶丈育  
+##### 1942#       发表于 2022-9-27 20:30
+
+唐九夏你真是个坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  喜闻乐见  
+##### 1943#         楼主| 发表于 2022-9-27 20:35
+
+来了 彩云追月
+
+*****
+
+####  ladiesman802  
+##### 1944#       发表于 2022-9-27 21:08
+
+连曙光都唱了
+
+*****
+
+####  喜闻乐见  
+##### 1945#         楼主| 发表于 2022-9-27 22:17
+
+动补房进了一批新的东西  气味很重
+
+*****
+
+####  黄金鸡屁屁  
+##### 1946#       发表于 2022-9-27 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">厂子在8月初注册了一个AI SYKI的专利，看起来似乎大概是有新人
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  ladiesman802  
+##### 1947#       发表于 2022-9-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57676762&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-9-27 22:42</a>
+
+厂子在8月初注册了一个AI SYKI的专利，看起来似乎大概是有新人
+
+  -- 来自 能搜索的 Stage1官方 iOS ...</blockquote>
+九夏说是别的项目的，难道是人工ai？
+
+*****
+
+####  黄金鸡屁屁  
+##### 1948#       发表于 2022-9-28 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57677683&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-09-28 00:18:02</a>
+九夏说是别的项目的，难道是人工ai？</blockquote>那就不知道了，等厂长自己说吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  werecat  
+##### 1949#       发表于 2022-9-28 09:55
+
+一个猜想，kino会不会去完美世界当露娜，就是古堡的第五人？办公地点在上海，是大企业势，好像也不在乎盈利，最近刚招完人。
+
+*****
+
+####  ladiesman802  
+##### 1950#       发表于 2022-9-28 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680117&amp;ptid=1926094" target="_blank">werecat 发表于 2022-9-28 09:55</a>
+
+一个猜想，kino会不会去完美世界当露娜，就是古堡的第五人？办公地点在上海，是大企业势，好像也不在乎盈利 ...</blockquote>
+跳槽的话，16w波波派看看有多少极端粉天天去开独轮车
+
+
+
+*****
+
+####  ladiesman802  
+##### 1951#       发表于 2022-9-28 10:02
+
+一个猜想，卷卷毕业后nb吸纳变成新开的2d项目新人？九夏今天还点赞卷卷的动态
+
+*****
+
+####  逸yi  
+##### 1952#       发表于 2022-9-28 10:04
+
+反正毕业之后肯定会放塔号<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 1953#         楼主| 发表于 2022-9-28 12:28
+
+这脉冲星不就是udp8
+
+美术这个确实可以排第一
+
+*****
+
+####  ladiesman802  
+##### 1954#       发表于 2022-9-28 12:41
+
+所以是打算搞虚言学院那一套？
+
+*****
+
+####  天青月白  
+##### 1955#       发表于 2022-9-28 12:50
+
+ 本帖最后由 天青月白 于 2022-9-28 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57680213&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-28 10:02</a>
+一个猜想，卷卷毕业后nb吸纳变成新开的2d项目新人？九夏今天还点赞卷卷的动态 ...</blockquote>
+她不是还在日本吗？九夏点赞哪条动态啊
+
+*****
+
+####  MaxFOrder  
+##### 1956#       发表于 2022-9-28 13:07
+
+亮子那套搬来用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计3D就真只有头部才能偶尔用一用
+
+syl，这么说的话九夏鸭鸭看来也没必要再在北京租房熬着了，正好降低租房成本
+
+*****
+
+####  ladiesman802  
+##### 1957#       发表于 2022-9-28 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57682516&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-28 12:50</a>
+
+她不是还在日本吗？九夏点赞哪条动态啊</blockquote>
+今天早上好那一条
+
+*****
+
+####  ladiesman802  
+##### 1958#       发表于 2022-9-28 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57682722&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-9-28 13:07</a>
+
+亮子那套搬来用了估计3D就真只有头部才能偶尔用一用
+
+syl，这么说的话九夏鸭鸭看来也没必要再在北京 ...</blockquote>
+这么说的话，动捕房是让给别的项目组？
+
+*****
+
+####  ladiesman802  
+##### 1959#       发表于 2022-9-28 13:43
+
+<img src="https://img.saraba1st.com/forum/202209/28/134043hdvv8rgz2ih4hvcx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FA6E1F8D-45F1-4810-93EF-33AF4F3248C2.jpeg</strong> (64.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-28 13:40 上传
+
+话说动捕房还挺大的，不过感觉也没啥高科技的东西，除了租金看不出有多大开销
+
+*****
+
+####  不智法师  
+##### 1960#       发表于 2022-9-28 15:23
+
+真要走招人放养养蛊这条赛道吗？好处是可以活下来并且能活很久，万一抽到一个ssr就能盘活整个企划;坏处是这个圈子已经很固化了，要出人头地何其困难
+
+*****
+
+####  MaxFOrder  
+##### 1961#       发表于 2022-9-28 15:42
+
+ 本帖最后由 MaxFOrder 于 2022-9-28 15:44 编辑 
+<blockquote>不智法师 发表于 2022-9-28 15:23
+真要走招人放养养蛊这条赛道吗？好处是可以活下来并且能活很久，万一抽到一个ssr就能盘活整个企划;坏处是这 ...</blockquote>
+不见得是坏事，回归音乐厂牌初心，多挖掘多培养没毛病。只是从这段时间这个运营水平还是比较堪忧，你总不能招人继续搞snp热水器切片切不出来直播脚本摆烂吧，最后还不让人说
+
+*****
+
+####  不智法师  
+##### 1962#       发表于 2022-9-28 16:01
+
+<blockquote>MaxFOrder 发表于 2022-9-28 15:42
+不见得是坏事，回归音乐厂牌初心，多挖掘多培养没毛病。只是从这段时间这个运营水平还是比较堪忧，你总不 ...</blockquote>
+这下算是理解为啥鸭鸭说来的会是前辈了，可以带皮可以兼职，几个前中之人都来看起来都没问题
+
+*****
+
+####  喜闻乐见  
+##### 1963#         楼主| 发表于 2022-9-28 20:16
+
+九夏直言封笔 再无舰长头像 
+
+*****
+
+####  ladiesman802  
+##### 1964#       发表于 2022-9-28 22:35
+
+夏老大居然翻唱拖凉鞋
+
+*****
+
+####  joll9000  
+##### 1965#       发表于 2022-9-29 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57683113&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-28 13:43</a>
+
+话说动捕房还挺大的，不过感觉也没啥高科技的东西，除了租金看不出有多大开销
+
+ ...</blockquote>
+设备折旧，人员工资
+
+而且北京的租金很贵吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 1966#       发表于 2022-9-29 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57692949&amp;ptid=1926094" target="_blank">joll9000 发表于 2022-9-29 10:13</a>
+
+设备折旧，人员工资
+
+而且北京的租金很贵吧</blockquote>
+可能乐元素买了维亚大厦几层吧
+
