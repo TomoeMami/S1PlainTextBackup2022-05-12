@@ -4786,3 +4786,16 @@ ark都快2年前了记忆还那么清楚，果然还是ark直播最有东西
 
 不过情绪应该也有buff
 
+
+
+*****
+
+####  rs5621  
+##### 1969#       发表于 2022-9-30 01:15
+
+ 本帖最后由 rs5621 于 2022-9-30 01:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hh开始狂输了,一直锤桌子
+
+新手保护期以过
+
