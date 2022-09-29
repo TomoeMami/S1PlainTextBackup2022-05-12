@@ -15373,3 +15373,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 什么鬼安排。
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 2875#       发表于 2022-9-30 00:40
+
+下周三是五号开252回忆，会十二号回忆结束直接开新活动吗
+
+不会回忆结束还要长一周草再开吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

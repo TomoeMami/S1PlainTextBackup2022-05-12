@@ -3152,3 +3152,13 @@ al真不好说女主。
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  kamarus  
+##### 1783#       发表于 2022-9-30 00:38
+
+现在看起来第一季就是特意给金主献祭了。
+第二季才把好东西拿出来，继宗你好卑鄙<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
