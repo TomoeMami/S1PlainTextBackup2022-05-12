@@ -1607,3 +1607,27 @@ Fdzr1ezVIAEuh-V.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kfly  
+##### 6147#       发表于 2022-9-29 21:53
+
+官方有很多次补救的机会，但它没抓住，甚至可能都没意识到机会的存在
+
+一开始就进行铺垫是一个机会、公布新成员时机的选择是一个机会、做好动画二期是一个机会，这些它都没抓住
+
+粉丝的期待一次次落空，容忍度和耐心是在被逐渐消耗的。啥时候能真正回应粉丝的期待呢？
+
+下一个期待在3rd，希望能办好吧
+
+*****
+
+####  一个陆仁贾  
+##### 6148#       发表于 2022-9-29 21:57
+
+一直觉得到现在都没有过激粉出来刀了狗策划，LL的粉丝真是太温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

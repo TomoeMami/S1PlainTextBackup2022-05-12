@@ -8755,3 +8755,16 @@ uu加速器之类的可以么？
 
 —— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  Hemis  
+##### 835#       发表于 2022-9-29 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">我吐了，这次更新后改了AI auto逻辑
+
+原本能三回合auto棱镜boss的队伍硬生生打不完
+
+原版yuki一个breaker的大招非要放到东城后面才能放
+
