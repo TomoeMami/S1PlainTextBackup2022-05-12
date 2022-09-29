@@ -4479,3 +4479,15 @@ A团占据了八点档黄金时间，星律动的团播得提前到六点半
  ...</blockquote>
 应该是日本搬回来那套吧，相机是v16 vicon之前的顶配，一个要38个w。
 
+
+
+*****
+
+####  ladiesman802  
+##### 1988#       发表于 2022-9-30 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703568&amp;ptid=1926094" target="_blank">Ichthy 发表于 2022-9-30 00:48</a>
+
+应该是日本搬回来那套吧，相机是v16 vicon之前的顶配，一个要38个w。</blockquote>
+woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？
+
