@@ -177,12 +177,18 @@ async def UpdateThread(threaddict,semaphore):
                 f.write('1')
         elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 691200):
             thdata[threaddict['id']]['active'] = False
+            destdir = '/home/ubuntu/S1PlainTextArchive2022/'
             if(totalpage > 50):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
+                filename_des = destdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-            mkdir(rootdir+'Archived/')
-            filedir_des =rootdir+'Archived/'+thdata[threaddict['id']]['category']+'/'
+                filename_des = destdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
+            if os.path.exists(filename_des):
+                mkdir(rootdir+'Archived/')
+                filedir_des = rootdir+'Archived/'+thdata[threaddict['id']]['category']+'/'
+            else:
+                filedir_des = destdir +thdata[threaddict['id']]['category']+'/'
             mkdir(filedir_des)
             shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
