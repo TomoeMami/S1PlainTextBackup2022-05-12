@@ -90,7 +90,8 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
+        # if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or(thdata[i]['totalreply'] // 30 > high_level):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
