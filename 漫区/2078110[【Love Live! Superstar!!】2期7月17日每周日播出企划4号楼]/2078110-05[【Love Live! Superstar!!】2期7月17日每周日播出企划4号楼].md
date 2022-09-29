@@ -1415,3 +1415,47 @@ NGA那边有些人说"第九集成为全系列非事故回里面nico评分最低
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 6129#       发表于 2022-9-29 17:14
+
+我觉得和萌p的情况不能画等号，萌p是落选很久后有新的企划去再挑战，又不是这种我有个新空位可以赏给你，你舔不舔吧。
+
+不过官方这个自我感动的味道扑面而来，说不定还等着粉丝说谢谢你没让我错过二期生呢（吐舌）
+
+现在就等vn的采访再次引爆全场
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 6130#       发表于 2022-9-29 17:16
+
+真要说的话，我觉得yabu还不错，人长得比较喜庆，角色也讨喜，生放广播都蛮文静的样子，live发挥也不错。
+
+但是说好的I'm社都是精神病呢，妹子你是还没发作吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6131#       发表于 2022-9-29 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57697981&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-29 16:43</a>
+老五人确实选的好但non同学我是真没看到啥优势，大概日本人就好这口养成感？ ...</blockquote>
+肉体厨表示你们当年还在那边喊non酱小甜甜，现在又嫌弃人家不行。
+
+唱歌好看不行吗w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 6132#       发表于 2022-9-29 17:18
+
+既然都贷款吃屎了，猜一个三期生只有VN，然后动画再次上演“你们Liella冠军的实力让别人止步”，这样就不会有三期生被雪藏的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
