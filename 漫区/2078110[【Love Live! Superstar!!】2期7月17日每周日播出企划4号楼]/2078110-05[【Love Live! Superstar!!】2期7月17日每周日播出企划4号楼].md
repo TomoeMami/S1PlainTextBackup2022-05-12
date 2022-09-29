@@ -1595,3 +1595,15 @@ Fdzr1ezVIAEuh-V.jpg
 
 我觉得星二tv虽然有各种可以拿来写小作文的问题，但最大问题就是官方非要加4人但又次次要强调新4人水平不行。
 
+
+
+*****
+
+####  愛さ実  
+##### 6146#       发表于 2022-9-29 21:42
+
+真的吗，我怎么感觉动画影响很大呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然到这里再回头说也是马后炮了。
+看三巡表现吧，在我这上次发售活动二期生也就能得个及格分。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
