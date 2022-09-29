@@ -4309,3 +4309,31 @@ syl，这么说的话九夏鸭鸭看来也没必要再在北京 ...</blockquote>
 
 讲真但凡脑子还清醒点的au 把整个事串起来想想 出大事后几个月 projectX提上日程 地点杭州 小一羊驼先后出走 kino这个先放一边 答案呼之欲出了 只不过隔壁那楼只剩mmr了已经很难思考了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 1974#       发表于 2022-9-29 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57702671&amp;ptid=1926094" target="_blank">比比巴巴波 发表于 2022-9-29 23:20</a>
+
+今天是第一次看星律动的团播
+
+虽然评论有说效果不行
+
+但我觉得已经很棒了，我之前只看asoul的</blockquote>
+所以我总是说新粉旧粉观感可以完全不一样，就算做10次瑜伽回都有人觉得好看。可惜现在九夏20w涨不动，新人越来越少
+
+*****
+
+####  ladiesman802  
+##### 1975#       发表于 2022-9-29 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57702871&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-9-29 23:40</a>
+
+讲真但凡脑子还清醒点的au 把整个事串起来想想 出大事后几个月 projectX提上日程 地点杭州 小一羊驼先后出 ...</blockquote>
+所以答案是什么？我不看a手
+
+如果kino真的跳槽到乐华，那多少有点恶心
+

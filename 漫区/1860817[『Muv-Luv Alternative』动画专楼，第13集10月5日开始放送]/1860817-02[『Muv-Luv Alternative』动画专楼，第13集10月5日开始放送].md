@@ -3023,3 +3023,45 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kamarus  
+##### 1771#       发表于 2022-9-29 23:56
+
+pv的音乐是jam？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+回来了，都回来了
+
+*****
+
+####  ramiel  
+##### 1772#       发表于 2022-9-29 23:58
+
+为了避开冥场面还是等熟透了再看吧.....<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 1773#       发表于 2022-9-30 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57702616&amp;ptid=1860817" target="_blank">禦厨三九二 发表于 2022-9-29 23:15</a>
+OP2还行啊
+
+PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外的还行，游戏立绘是真的有点，完全没 ...</blockquote>
+监督偏好萝莉，结果是社霞待遇最好，小珠和美琴次之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kamarus  
+##### 1774#       发表于 2022-9-30 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703101&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-9-30 00:00</a>
+监督偏好萝莉，结果是社霞待遇最好，小珠和美琴次之
+
+—— 来自 OnePlus HD1900, Android 13上的  ...</blockquote>
+原本就是活到最后的。
+资源总不可能给那群便当的吧不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
