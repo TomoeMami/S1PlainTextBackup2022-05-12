@@ -1705,3 +1705,24 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 ソードアート・オンライン アニメ10周年Anniversary Book
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼的cos来了，亚总的
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6157#       发表于 2022-9-30 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57704470&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-9-30 07:26</a>
+ソードアート・オンライン アニメ10周年Anniversary Book
+鱼的cos来了，亚总的 ...</blockquote>
+话说这消息从哪来的，我看着sao官方卖的不是个bdbox吗
+
+*****
+
+####  player3960  
+##### 6158#       发表于 2022-9-30 07:41
+
+终于来了点老本行，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
