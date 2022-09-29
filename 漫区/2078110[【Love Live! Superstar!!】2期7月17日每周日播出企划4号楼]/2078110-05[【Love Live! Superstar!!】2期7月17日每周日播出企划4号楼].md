@@ -1640,3 +1640,12 @@ Fdzr1ezVIAEuh-V.jpg
 
 yabu目前舞台是四个人里最好的，和一期接近的水平，现在你企划告诉我剩下那仨确实不如，因为她们都是淘汰下来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">成心恶心人是吧……
 
+
+
+*****
+
+####  lj205  
+##### 6150#       发表于 2022-9-29 23:16
+
+祝打铁生日快乐
+
