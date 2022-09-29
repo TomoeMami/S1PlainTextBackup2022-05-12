@@ -3768,3 +3768,17 @@ steam dick补尾款了
 
 当伸手党求推荐替换用的硬盘和教程<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  83913536  
+##### 307#       发表于 2022-9-29 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57698394&amp;ptid=2086469" target="_blank">tasuku 发表于 2022-9-29 17:13</a>
+
+steam dick补尾款了
+
+当伸手党求推荐替换用的硬盘和教程</blockquote>
+[https://zh.ifixit.com/Guide/Stea ... %B4%E6%8F%9B/148989](https://zh.ifixit.com/Guide/Steam+Deck+SSD+%E6%9B%B4%E6%8F%9B/148989)
+
