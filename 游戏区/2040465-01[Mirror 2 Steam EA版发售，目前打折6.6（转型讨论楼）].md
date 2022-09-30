@@ -2254,3 +2254,28 @@ r16太扯淡了
 目前感觉唯一有用的技能是冰龙给的那个，而 ...</blockquote>
 1代三消真是完爆2代，具体的我也懒得分析了，这b游戏也不值得认真分析，只配吐槽下行为艺术
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 227#       发表于 2022-9-30 20:31
+
+(4,4)，是龙你给我盘着，是虎你给我卧着。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202209/30/203049ifsgp6xypgspkzuf.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220930203027.jpg</strong> (103.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/203049t7vpnossv7vhpvt0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220930203040.jpg</strong> (104.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 20:30 上传
+

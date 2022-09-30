@@ -4895,3 +4895,12 @@ kino这个2d皮看起来这么伤感的吗？？墨镜一摘这眼睛看起来�
 
 我真是服了，之前看水母，她突然消失了，上个月好不容易知道转生了，结果又毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  安姆闲人  
+##### 2033#       发表于 2022-9-30 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">共话桑麻，当初就是觉得这首歌词好才开始关注NB的
+

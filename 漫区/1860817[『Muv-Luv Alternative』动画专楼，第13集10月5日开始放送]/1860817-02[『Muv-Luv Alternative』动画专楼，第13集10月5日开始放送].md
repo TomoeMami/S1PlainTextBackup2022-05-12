@@ -3197,3 +3197,17 @@ al真不好说女主。
 
 也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  佐度岛出场的收复佐度岛退场也算合理
 
+
+
+*****
+
+####  hlazd  
+##### 1787#       发表于 2022-9-30 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712979&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-9-30 19:58</a>
+
+我记得演习beta入侵 a-01死了一个筑地多惠，还退场了一个无名氏，看pv甲21 13台不知火 大概要魔改的是这？  ...</blockquote>
+这个无名氏的补丁一直没打过，于是给了大人们见缝插针的机会
+
+其实打补丁不是不行就是有点简单粗暴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
