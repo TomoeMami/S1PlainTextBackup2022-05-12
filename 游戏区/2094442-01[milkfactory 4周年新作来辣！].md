@@ -770,3 +770,18 @@ steam上好像有一部有官中的炎孕魔法学园
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Tissuesea  
+##### 77#       发表于 2022-9-30 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57710454&amp;ptid=2094442" target="_blank">ParadiseMartyr 发表于 2022-9-30 16:19</a>
+原来不是所有的galgame都能模拟啊…难受了，捣鼓了半天，结果玩不了
+
+—— 来自 S1Fun ...</blockquote>
+当然啦，要krkr引擎的游戏，游戏文件还要打上破解补丁（patch.tjs什么的）。自己无师自通还挺烦的，懒一点的话要么去御宅同萌交钱加他们那个QQ群下现成的高压版（没加，本来想混论坛但放弃了）。要么去其他gal论坛蹭一下资源。
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
