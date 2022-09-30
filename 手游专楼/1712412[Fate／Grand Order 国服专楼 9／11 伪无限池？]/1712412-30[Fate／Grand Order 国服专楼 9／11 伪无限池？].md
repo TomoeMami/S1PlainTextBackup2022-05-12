@@ -905,3 +905,12 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 
 献祭了200多苹果换了300多各种材料
 
+
+
+*****
+
+####  失落之翼  
+##### 43602#       发表于 2022-9-30 10:01
+
+剩下石头凑凑给了魔总池，继续沉...<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

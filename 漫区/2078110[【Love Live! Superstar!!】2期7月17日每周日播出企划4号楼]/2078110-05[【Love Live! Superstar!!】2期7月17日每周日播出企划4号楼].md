@@ -1821,3 +1821,16 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 2022-9-30 09:43 上传
 
+
+
+*****
+
+####  ViyViy  
+##### 6166#       发表于 2022-9-30 09:53
+
+ 本帖最后由 ViyViy 于 2022-9-30 09:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705554&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-30 09:40</a>
+
+可可在杂志里不是经常提到设计衣服出瓶颈然后想点别的东西突然灵感闪现吗？广播小剧场还有过堇让可可给她设 ...</blockquote>
+这里更多指日常穿搭，虽说和演出服设计有区别，不过和我要吐槽这种现象的结果是趋同的，你不能为了达成“分担”的团队性、“融洽”的关系性目的，把人的特点拆东墙补西墙，像恋和芽衣一起不就很好？更别说几乎逮着一只羊薅<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">土妹子偷干净了，剩的服装再被细分，然后给个和千一起定训练单帮忙训练做“补偿”，最后留下那个基本都在无效输出的小道具制作当样板戏，挺无语的。
+
