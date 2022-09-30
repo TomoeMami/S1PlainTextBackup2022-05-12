@@ -798,3 +798,18 @@ steam上好像有一部有官中的炎孕魔法学园
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Tissuesea  
+##### 79#       发表于 2022-9-30 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57710759&amp;ptid=2094442" target="_blank">ParadiseMartyr 发表于 2022-9-30 16:41</a>
+交钱还是算了，我自己捣鼓吧。其实已经懂了，这东西还是不方便，没人制作krkr专用的补丁就玩不了…
+
+—— ...</blockquote>
+确实，还有就是我私信给你资源啦<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，我就找到这个
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
