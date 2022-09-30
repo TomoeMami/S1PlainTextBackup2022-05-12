@@ -377,3 +377,16 @@ David早期设定，拉美人特征更重</blockquote>
 
 说起来第九集最后有点没看懂，Rebecca不是都把进度条打回0了么，怎么镜头一转又义体金刚了，叛变了的kiwi也在给他们做解说
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 3033#       发表于 2022-9-30 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57711511&amp;ptid=2069884" target="_blank">聚散浮云 发表于 2022-9-30 17:38</a>
+说起来第九集最后有点没看懂，Rebecca不是都把进度条打回0了么，怎么镜头一转又义体金刚了，叛变了的kiwi也 ...</blockquote>
+那个进度条是精神崩溃条，当时字幕解说光是装上就能让人疯掉，加上那个中间人一直在故意拱火，结果打了抑制剂强行冷静装好了义体
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
