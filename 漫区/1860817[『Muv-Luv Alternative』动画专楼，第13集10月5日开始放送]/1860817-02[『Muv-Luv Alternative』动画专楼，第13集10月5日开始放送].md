@@ -3211,3 +3211,14 @@ al真不好说女主。
 
 其实打补丁不是不行就是有点简单粗暴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚尔古水手  
+##### 1788#       发表于 2022-9-30 22:53
+
+【『Muv-Luv Alternative 第二季』OP「暁を撃て」／JAM Project , 栗林みな実-哔哩哔哩】 [https://b23.tv/h7ogncC](https://b23.tv/h7ogncC)
+
+草泥马燃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
