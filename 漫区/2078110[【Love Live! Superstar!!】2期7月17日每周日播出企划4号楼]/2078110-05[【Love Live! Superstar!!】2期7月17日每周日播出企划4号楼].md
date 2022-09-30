@@ -2089,3 +2089,52 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 可可:like不能同love画等号
 
+
+
+*****
+
+####  Kfly  
+##### 6183#       发表于 2022-9-30 12:47
+
+有种“你的亚撒西是对所有人亚撒西，而不是仅对我而言”的感觉了
+
+这也确实就是“小太阳”啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（但说实话，可可对堇的态度和别人还是有所不同的，虽然这里面有不少刻意促成的因素就是了）
+
+*****
+
+####  稀勢のささ  
+##### 6184#       发表于 2022-9-30 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法 前面写的稀烂   后面又不可能再给她俩集数  
+
+堇也就差一句“心脏要跑了” 了  那地方不给回应强推全浪费了
+
+*****
+
+####  ruffian  
+##### 6185#       发表于 2022-9-30 12:49
+
+一开始可堇相比香千和红蓝已经是浓度特别低的了，但是最近堇浓度大大增加了……但是可可，就给我一种压根没开窍，说喜欢就是字面意义上的喜欢根本不会往更深方面想的印象，而且这人早期一本正经地对其他队友说跟情话似的台词已经品鉴好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 6186#       发表于 2022-9-30 12:49
+
+ 本帖最后由 ViyViy 于 2022-9-30 12:52 编辑 
+
+有个草点就是堇那个三年期限的在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一边撩完了没自觉人家死心塌地，一边看着死心塌地结果话不敢说满想留后路和事业梦想拉扯，直女卖姬。
+
+*****
+
+####  lj205  
+##### 6187#       发表于 2022-9-30 12:52
+
+毕竟中国女童
+
