@@ -4664,3 +4664,60 @@ woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？</
 
 这是录播？都不念sc
 
+
+
+*****
+
+####  lxlyandccc  
+##### 2007#       发表于 2022-9-30 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57621862&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-9-24 08:30</a>
+
+这个企划的模式注定了容易嗝屁，说真的，nb这几个能播这么久我已经很惊讶了，有得看就看，直到没得看吧， ...</blockquote>
+有限附议，“盯数据”确实是坏文明……作为观众，终究不过“喜则赞之，不喜弃之”罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  比比巴巴波  
+##### 2008#       发表于 2022-9-30 19:23
+
+ 本帖最后由 比比巴巴波 于 2022-9-30 19:24 编辑 
+
+真的是学业啊……
+
+延毕了（破防
+
+*****
+
+####  kuriboh  
+##### 2009#       发表于 2022-9-30 19:25
+
+绷
+
+*****
+
+####  黄金鸡屁屁  
+##### 2010#       发表于 2022-9-30 19:26
+
+怎么会有毕业原因是延毕的啊，草
+
+是不是一直都没在念sc
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+*****
+
+####  安姆闲人  
+##### 2011#       发表于 2022-9-30 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咦这个不能留职停薪以后回归么？反正为了忙学业去的话也没有工资吧，甚至可以请假三个月
+
+*****
+
+####  比比巴巴波  
+##### 2012#       发表于 2022-9-30 19:29
+
+“论文开题就没过”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2156,3 +2156,12 @@ r16太扯淡了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只不过是以前在Patreon上骗钱的跑到了cien和sbeam上骗钱罢了，基操勿急
 
+
+
+*****
+
+####  不应  
+##### 219#       发表于 2022-9-30 19:29
+
+6块钱反应也要这么大吗，更别说还有不少是白送的...就是fanbox骗钱还得骗500日元呢
+

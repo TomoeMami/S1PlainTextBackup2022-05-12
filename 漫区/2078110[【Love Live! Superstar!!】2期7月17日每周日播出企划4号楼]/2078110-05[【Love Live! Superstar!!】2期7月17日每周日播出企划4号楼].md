@@ -2192,3 +2192,19 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 6192#       发表于 2022-9-30 19:25
+
+<img src="https://img.saraba1st.com/forum/202209/30/192505ik6o9dczavq4vvgg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F55DBD9B-3CDC-475E-95C5-4107DDF5844F.jpeg</strong> (438.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-9-30 19:25 上传
+
