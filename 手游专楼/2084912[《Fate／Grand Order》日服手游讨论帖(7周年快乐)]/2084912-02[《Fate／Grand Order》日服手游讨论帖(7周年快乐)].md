@@ -15453,3 +15453,19 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 之前大氪了一笔的我有点像小丑...不过也省得再引继代充下一括了...希望能用到年底...
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2881#       发表于 2022-9-30 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712208&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-30 18:43</a>
+
+公告更新了充值价格表，基本上没变化，一单还是那个一单...
+
+之前大氪了一笔的我有点像小丑...不过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">之前隔壁舰B公布新价格的时候就发现了，并不是一定要涨价，而是根据苹果那边的Tier表来定价
+
+也就是说，虽然原本1W日元那个Tier涨到了12800，但有另外一个别的Tier正好涨到了1W，所以改用那个就行了，其他的有升有降也是这个道理
+

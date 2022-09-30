@@ -390,3 +390,15 @@ David早期设定，拉美人特征更重</blockquote>
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ayanamilin  
+##### 3034#       发表于 2022-9-30 18:58
+
+看完了，感觉不太行，比双城之战至少要差一档。
+米山舞的脸、扳机的打斗作画、充满沉浸感的音乐、刺激的r18场景、赛博朋克的背景设定掩盖了剧情的割裂感和人物塑造的不完整。
+
+—— 来自 Xiaomi Redmi Note 5, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
