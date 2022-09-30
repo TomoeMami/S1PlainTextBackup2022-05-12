@@ -840,3 +840,16 @@ steam上好像有一部有官中的炎孕魔法学园
 当然啦，要krkr引擎的游戏，游戏文件还要打上破解补丁（patch.tjs什么的）。自己无师自通还挺烦的，懒一 ...</blockquote>
 什么鬼，krkr2安卓版菜单里面都有补丁网址，打开链接搜关键字自己下就是了，我自己都原版游戏直接扔进去下个补丁放文件夹里完事
 
+
+
+*****
+
+####  Tissuesea  
+##### 82#       发表于 2022-9-30 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57711855&amp;ptid=2094442" target="_blank">妄想中毒 发表于 2022-9-30 18:09</a>
+什么鬼，krkr2安卓版菜单里面都有补丁网址，打开链接搜关键字自己下就是了，我自己都原版游戏直接扔进去 ...</blockquote>
+原来这么简单<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">，所以玩krkr其实没什么门槛啊
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

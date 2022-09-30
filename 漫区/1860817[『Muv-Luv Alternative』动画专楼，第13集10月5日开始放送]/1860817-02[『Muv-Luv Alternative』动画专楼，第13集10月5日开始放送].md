@@ -3171,3 +3171,18 @@ al真不好说女主。
 
 什么时候出现名场面，快点端上来吧<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1785#       发表于 2022-9-30 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703268&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-9-30 00:17</a>
+进队也不一定要当卫士吧，跟遥一起当command post不好吗</blockquote>
+遥是因为腿部半残才做command post（玩原作梗），而且后期还有专属领便当剧情
+
+这次关系户管人，在列队里站在美知留和水月中间（第十二集），制作组不开摆的话怎么着也得安排一场壮烈牺牲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
