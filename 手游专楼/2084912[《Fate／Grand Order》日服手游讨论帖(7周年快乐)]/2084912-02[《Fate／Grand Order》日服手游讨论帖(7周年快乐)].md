@@ -15487,3 +15487,12 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 这个新幕间什么鬼，真不会被喷爆吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 2884#       发表于 2022-9-30 23:26
+
+想给千利休＋1，结果连歪脚后跟和呆毛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
