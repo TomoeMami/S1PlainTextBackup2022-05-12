@@ -914,3 +914,12 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 
 剩下石头凑凑给了魔总池，继续沉...<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈露尼娅  
+##### 43603#       发表于 2022-9-30 10:17
+
+发生了甚么事？
+

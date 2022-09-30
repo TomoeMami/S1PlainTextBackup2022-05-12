@@ -1855,3 +1855,38 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 其实一期动画的时候我就觉得每个成员的团队职能分配已经基本正好了，再加人，那么为了提高团队存在感，有些有关团队的职能特点就得再分配，在端水稀烂的情况下，反而会降低某些成员的存在感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 6169#       发表于 2022-9-30 10:12
+
+虽然都说不同载体是平行世界，但是杂志什么的有时也会随动画变化，最典型的就是最早时可可被堇吃得死死的，在堇面前她才是吃瘪的那个，动画播完后在杂志里两个人的位置也渐渐互换了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  plazum  
+##### 6170#       发表于 2022-9-30 10:15
+
+小堇画服装设计图那里就是可可在当模特吧，虽然没有明示可可的贡献确实不太好
+
+*****
+
+####  lj205  
+##### 6171#       发表于 2022-9-30 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705928&amp;ptid=2078110" target="_blank">plazum 发表于 2022-9-30 10:15</a>
+
+小堇画服装设计图那里就是可可在当模特吧，虽然没有明示可可的贡献确实不太好 ...</blockquote>
+那个领子不是可可的，是香堇的衣领设计
+
+*****
+
+####  稀勢のささ  
+##### 6172#       发表于 2022-9-30 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">纯混子一个早晚把你踢了
+
