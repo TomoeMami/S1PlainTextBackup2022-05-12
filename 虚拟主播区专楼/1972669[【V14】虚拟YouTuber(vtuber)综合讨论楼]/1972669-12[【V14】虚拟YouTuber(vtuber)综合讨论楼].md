@@ -10700,3 +10700,14 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 项羽的3D真好看
 
+
+
+*****
+
+####  星野航  
+##### 17488#       发表于 2022-9-30 21:59
+
+现地民唯一不满，这谁带着起立的风潮
+前排大汉们一起立，中间看都看不见，anycolor还在用这套拍屏幕放大屏的技术，看得人真难过
+但依然抵挡不了kemt跟inui的热情<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
