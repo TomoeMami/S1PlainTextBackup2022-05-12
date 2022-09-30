@@ -2425,3 +2425,29 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 打铁大叔粉好多……………………
 
+
+
+*****
+
+####  愛さ実  
+##### 6204#       发表于 2022-9-30 23:46
+
+草，在前排看到好几个秃顶大叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说打铁这活动“birthday”简称BD好想吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 6205#       发表于 2022-9-30 23:49
+
+场子还挺大的，好像坐满是3000多，这图看的估计2000多是有了，打铁人气还是高啊
+
+*****
+
+####  lj205  
+##### 6206#       发表于 2022-9-30 23:51
+
+不知道今天8个人有没参加
+

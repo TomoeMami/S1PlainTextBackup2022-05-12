@@ -10726,3 +10726,17 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 【振替公演】にじさんじ 4th Anniversary LIVE 「FANTASIA」 Day1 - 2022_9_30(金) 17_00开始 - ニコニコ生放送
 [https://gofile.io/d/oGIl2U](https://gofile.io/d/oGIl2U)
 
+
+
+*****
+
+####  黑皇帝  
+##### 17490#       发表于 2022-9-30 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57714465&amp;ptid=1972669" target="_blank">星野航 发表于 2022-9-30 21:59</a>
+现地民唯一不满，这谁带着起立的风潮
+前排大汉们一起立，中间看都看不见，anycolor还在用这套拍屏幕放大屏 ...</blockquote>
+同现地民，我live来的少，这全场站着是传统吗，今天站了一场累死我了，之前我来的彩虹live也没这样的啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">syl，我全场视线一直被项羽吸引，动来动去各种小动作也太可爱了
+
