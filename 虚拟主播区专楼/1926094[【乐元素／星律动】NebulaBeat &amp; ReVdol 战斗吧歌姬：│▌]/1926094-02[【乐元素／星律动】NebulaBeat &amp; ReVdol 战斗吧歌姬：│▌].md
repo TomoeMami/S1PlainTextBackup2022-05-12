@@ -4868,3 +4868,30 @@ kino这个2d皮看起来这么伤感的吗？？墨镜一摘这眼睛看起来�
 
 —— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  安姆闲人  
+##### 2030#       发表于 2022-9-30 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">这旋律风格挺喜欢的
+
+*****
+
+####  黄金鸡屁屁  
+##### 2031#       发表于 2022-9-30 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这歌能不能发出来，以后没机会听现场了
+
+毕业了还有新歌，厂子仁至义尽了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  架空す英霊  
+##### 2032#       发表于 2022-9-30 20:20
+
+我真是服了，之前看水母，她突然消失了，上个月好不容易知道转生了，结果又毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
