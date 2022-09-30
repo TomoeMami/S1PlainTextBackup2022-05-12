@@ -935,3 +935,14 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 发生了甚么事？</blockquote>
 几个卡面修改了下，放出来了，<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kon-El  
+##### 43605#       发表于 2022-9-30 19:21
+
+妖高的凶骨够了，现在发现小钟缺
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

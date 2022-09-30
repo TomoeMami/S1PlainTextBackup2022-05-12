@@ -853,3 +853,18 @@ steam上好像有一部有官中的炎孕魔法学园
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 83#       发表于 2022-9-30 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712067&amp;ptid=2094442" target="_blank">Tissuesea 发表于 2022-9-30 18:27</a>
+原来这么简单，所以玩krkr其实没什么门槛啊
+
+—— 来自 HONOR CHL-AL00, Android 10上的 S1Next- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这下可以爽玩两部了，不过还没测试动态cg
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
