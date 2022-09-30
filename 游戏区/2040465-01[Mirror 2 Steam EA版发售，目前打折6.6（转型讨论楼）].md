@@ -2337,3 +2337,14 @@ r16太扯淡了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天重新下回来了，刚准备买dlc，犹豫了下，现在不用买了
 
+
+
+*****
+
+####  小零360  
+##### 233#       发表于 2022-10-1 04:11
+
+我是不懂为什么不做r18，明明就差临门那一脚，难道真就想蹭个一代名字就想上岸了，这半吊子的mmd模型，过不了脑的剧情，还有数值失衡严重的系统是哪个给他们自信
+
+—— 来自 OPPO PFZM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

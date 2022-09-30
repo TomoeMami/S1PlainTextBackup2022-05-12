@@ -10740,3 +10740,18 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">syl，我全场视线一直被项羽吸引，动来动去各种小动作也太可爱了
 
+
+
+*****
+
+####  星野航  
+##### 17491#       发表于 2022-10-1 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57715602&amp;ptid=1972669" target="_blank">黑皇帝 发表于 2022-10-1 00:40</a>
+同现地民，我live来的少，这全场站着是传统吗，今天站了一场累死我了，之前我来的彩虹live也没这样的啊
+
+ ...</blockquote>
+当然不是w之前虹live都是stand up禁止
+今天这不知道哪里来的，大概是憋了太久吧，vtl前奏一起全站起来了，把ar的屏幕挡了个死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但不得不说kemt的命ばっかり还有inui的的9东京不夜城太狠了，床民没想到床还有这手类演歌的本事
+

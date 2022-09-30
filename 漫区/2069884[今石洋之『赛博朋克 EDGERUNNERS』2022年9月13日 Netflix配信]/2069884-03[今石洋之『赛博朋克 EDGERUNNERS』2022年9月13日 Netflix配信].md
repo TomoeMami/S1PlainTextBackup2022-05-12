@@ -464,3 +464,19 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 
 2022-10-1 01:14 上传
 
+
+
+*****
+
+####  stannislas  
+##### 3040#       发表于 2022-10-1 03:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712313&amp;ptid=2069884" target="_blank">ayanamilin 发表于 2022-9-30 18:58</a>
+
+看完了，感觉不太行，比双城之战至少要差一档。
+
+米山舞的脸、扳机的打斗作画、充满沉浸感的音乐、刺激的r18 ...</blockquote>
+双城之战在我看来最大的问题是，剧情推动竟然要两次靠金克丝发疯推进，简直不可理喻
+
+边缘行者这点上至少人物和剧情逻辑能自洽
+
