@@ -197,7 +197,7 @@
     "newtitle": "[夏色（なついろ）まつり／夏色祭 祭丝日记楼]",
     "lastedit": 1659679221,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   "2078110": {
     "totalreply": 6211,
@@ -652,14 +652,6 @@
     "title": "[毛文龙的能力到底如何]",
     "newtitle": "[毛文龙的能力到底如何]",
     "lastedit": 1663847497,
-    "category": "外野",
-    "active": false
-  },
-  "2092173": {
-    "totalreply": 83,
-    "title": "[德克士新品手掌鸡排]",
-    "newtitle": "[德克士新品手掌鸡排]",
-    "lastedit": 1663365681,
     "category": "外野",
     "active": false
   },
@@ -4920,10 +4912,10 @@
     "active": true
   },
   "1988290": {
-    "totalreply": 5351,
+    "totalreply": 5352,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（全区中文）祭典结果发布]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（全区中文）Ver.1.1.2更新]",
-    "lastedit": 1664575313,
+    "lastedit": 1664576082,
     "category": "游戏区",
     "active": true
   },
@@ -5496,10 +5488,10 @@
     "active": true
   },
   "1727410": {
-    "totalreply": 6698,
+    "totalreply": 6699,
     "title": "[TV2，堂堂复活！【中二电波台真爱楼】]",
     "newtitle": "[TV2，堂堂复活！【中二电波台真爱楼】]",
-    "lastedit": 1664575332,
+    "lastedit": 1664576017,
     "category": "漫区",
     "active": true
   },
@@ -6248,10 +6240,10 @@
     "active": true
   },
   "2097491": {
-    "totalreply": 141,
+    "totalreply": 143,
     "title": "[《底线》这部剧也算创造了一个奇迹]",
     "newtitle": "[《底线》这部剧也算创造了一个奇迹]",
-    "lastedit": 1664575356,
+    "lastedit": 1664576031,
     "category": "外野",
     "active": true
   },
