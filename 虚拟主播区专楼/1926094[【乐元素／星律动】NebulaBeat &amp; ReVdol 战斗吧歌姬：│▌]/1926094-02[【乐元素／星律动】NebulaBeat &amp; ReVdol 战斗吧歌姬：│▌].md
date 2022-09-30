@@ -5036,3 +5036,24 @@ nicole和saku是可能对企划有怨言的，as出事的时候nicole毫不犹�
 
 结合她的年龄 真的就年轻的资本大有空间 
 
+
+
+*****
+
+####  ladiesman802  
+##### 2046#       发表于 2022-9-30 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57714635&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-30 22:14</a>
+
+印象中saku没特别表现出怨言这种程度吧，她毕竟是毕业留言唯一不带哭的pro含金量，当时按还记得的是大概还 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202209/30/222916gb3qrix23b9ybszy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7BF51C49-3121-49C4-BDC5-CF790E682EA8.jpeg</strong> (486.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 22:29 上传
+
+看了一下，还真是
+
