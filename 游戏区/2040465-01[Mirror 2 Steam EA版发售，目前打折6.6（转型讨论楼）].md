@@ -2147,3 +2147,12 @@ r16太扯淡了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 曾经的6元社遗产还能带来乐子 也算是发光发热了
 
+
+
+*****
+
+####  a317216007  
+##### 218#       发表于 2022-9-30 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只不过是以前在Patreon上骗钱的跑到了cien和sbeam上骗钱罢了，基操勿急
+

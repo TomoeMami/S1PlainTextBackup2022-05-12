@@ -15432,3 +15432,24 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 10月中旬新活动开21天，11月中旬2.6回忆，接着圣诞复刻+新圣诞（或者有可能直接新 ...</blockquote>
 去年圣诞都没新五星，本身就是缩水版的，应该不会复刻了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2880#       发表于 2022-9-30 18:43
+
+ 本帖最后由 Jamaisvu 于 2022-9-30 18:46 编辑 
+
+<img src="https://img.saraba1st.com/forum/202209/30/184053gztubtj6ttzwtgyu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220930_184020_com.excean.gspace.jpg</strong> (232.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 18:40 上传
+
+公告更新了充值价格表，基本上没变化，一单还是那个一单...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前大氪了一笔的我有点像小丑...不过也省得再引继代充下一括了...希望能用到年底...
+
