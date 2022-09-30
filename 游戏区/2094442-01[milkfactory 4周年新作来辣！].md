@@ -785,3 +785,16 @@ steam上好像有一部有官中的炎孕魔法学园
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 78#       发表于 2022-9-30 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57710608&amp;ptid=2094442" target="_blank">Tissuesea 发表于 2022-9-30 16:29</a>
+当然啦，要krkr引擎的游戏，游戏文件还要打上破解补丁（patch.tjs什么的）。自己无师自通还挺烦的，懒一 ...</blockquote>
+交钱还是算了，我自己捣鼓吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

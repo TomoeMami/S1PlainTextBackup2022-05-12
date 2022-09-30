@@ -4877,3 +4877,12 @@ ark都快2年前了记忆还那么清楚，果然还是ark直播最有东西
 
 <img src="https://img.saraba1st.com/forum/202209/30/161921qh4ibhlmmcbh1bmu.bmp" id="aimg_1110775" onclick="zoom(this, this.src, 0, 0, 0)" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 1976#         楼主| 发表于 2022-9-30 16:31
+
+很多擦边图实际上作者fanbox都有H差分所以实际上是本人诱导
+
