@@ -1754,3 +1754,12 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 『ソードアート・、オンライン』アニメ10周 ...</blockquote>
 行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6161#       发表于 2022-9-30 08:20
+
+鲤鱼新单那张封面照就是最新的公式照吗？实在接受不了那副橡胶手套啊…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

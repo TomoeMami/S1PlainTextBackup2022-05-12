@@ -3806,3 +3806,13 @@ steam dick补尾款了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  泰坦失足  
+##### 310#       发表于 2022-9-30 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57701018&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 21:13</a></blockquote>
+国内好便宜。看了眼Ebay美国发货的二手和标榜自己全新的价格都要70美元左右，突然间有种好像SD 512多收的那250美元算上充值卡的汇率也不是很贵的感觉了
+
