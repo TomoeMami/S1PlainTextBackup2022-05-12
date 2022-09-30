@@ -4957,3 +4957,15 @@ kino这个2d皮看起来这么伤感的吗？？墨镜一摘这眼睛看起来�
 
 最后一首霓虹泡泡拉了，狠狠滴拉
 
+
+
+*****
+
+####  天青月白  
+##### 2039#       发表于 2022-9-30 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712692&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-9-30 19:32</a>
+夏的脱凉鞋是saku御用剪辑hhh</blockquote>
+草，我完全不记得玉藻唱过这首。
+看到视频的评论，估计她是那几个人里最不喜欢那个企划的。
+
