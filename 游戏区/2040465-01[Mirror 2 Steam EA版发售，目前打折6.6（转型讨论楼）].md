@@ -2216,3 +2216,18 @@ r16太扯淡了
 8月的更新后，挑战模式变得能玩了，把技能树刷满以后，困难难度也能无脑碾压（除了某些机制怪），偶 ...</blockquote>
 我感觉单纯论三消，2也是不如1的，莫名其妙的设定太多了数值不好
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 224#       发表于 2022-9-30 20:06
+
+ 本帖最后由 哈迪斯兜帽 于 2022-9-30 20:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57713017&amp;ptid=2040465" target="_blank">酒瓶止迁 发表于 2022-9-30 20:00</a>
+
+我感觉单纯论三消，2也是不如1的，莫名其妙的设定太多了数值不好</blockquote>
+刚刚开一把S级宝石被技能变没了，这是个勾八s级宝石。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+目前感觉唯一有用的技能是冰龙给的那个，而且挺bug的，解3个宝石的异常状态。
+
