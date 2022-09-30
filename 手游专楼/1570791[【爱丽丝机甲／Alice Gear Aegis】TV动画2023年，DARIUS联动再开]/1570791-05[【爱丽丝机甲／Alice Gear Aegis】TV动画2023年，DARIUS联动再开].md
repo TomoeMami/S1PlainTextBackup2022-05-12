@@ -13582,3 +13582,25 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 边际成本快速降低。
 <img src="https://img.saraba1st.com/forum/202209/19/234552x9d07qbmg4ne3zk7.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不灭的旋律  
+##### 7331#       发表于 2022-9-30 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705789&amp;ptid=1570791" target="_blank">御神水 发表于 2022-9-30 10:04</a>
+
+穴装终于要出了。从这张来看
+
+1.穴手跟朱音一样用过几次后会爆掉？</blockquote>
+应该只是再现2周年纪念绘的pose而已，我不信现在的金字塔有这么厚道会追加爆甲机关
+
+<img src="https://img.saraba1st.com/forum/202209/30/113748feevhpswdpkekx10.jpg" referrerpolicy="no-referrer">
+
+<strong>E9yhoPKUUAISJ1W.jpg</strong> (299.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:37 上传
+
