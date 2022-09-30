@@ -3887,3 +3887,12 @@ g胖说过更新会比较快，2年可以了
 
 不如看看aya 今年发布了多少新机<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xrxtzz  
+##### 1865#       发表于 2022-9-30 08:48
+
+终于收到了，换完硬盘感觉背后盖子没合紧，但真的懒得再拆一次重装了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

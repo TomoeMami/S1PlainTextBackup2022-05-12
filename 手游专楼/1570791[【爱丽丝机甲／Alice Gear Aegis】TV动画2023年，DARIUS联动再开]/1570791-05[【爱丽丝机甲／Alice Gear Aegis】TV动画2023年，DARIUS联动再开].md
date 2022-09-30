@@ -13535,3 +13535,14 @@ AIT， 我的AIT（心）
 
 a3a4的模型码资金红水各给10w
 
+
+
+*****
+
+####  thee  
+##### 7328#       发表于 2022-9-30 08:44
+
+an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_20220930084428632.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
