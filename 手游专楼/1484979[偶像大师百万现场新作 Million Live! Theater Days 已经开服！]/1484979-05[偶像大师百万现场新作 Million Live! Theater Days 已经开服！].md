@@ -9708,3 +9708,13 @@ selection当然是自选吧</blockquote>
 
 — from OPPO CPH2173, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  花开安菲路  
+##### 7003#       发表于 2022-9-30 23:20
+
+玛德有毒吧，必须得吐槽了。
+50连了出了两一模一样的umi常驻ssr，你好歹来个new啊，新手本来就没多少ssr<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

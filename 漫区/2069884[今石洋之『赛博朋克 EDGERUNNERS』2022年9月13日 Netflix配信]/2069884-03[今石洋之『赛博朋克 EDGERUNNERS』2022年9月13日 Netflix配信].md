@@ -421,3 +421,12 @@ Rebecca跳舞
 
 [https://live.bilibili.com/24069977?spm_id_from=333.999.0.0](https://live.bilibili.com/24069977?spm_id_from=333.999.0.0)
 
+
+
+*****
+
+####  jacket  
+##### 3036#       发表于 2022-9-30 23:17
+
+重看动画的人说此刻理解了游戏里维克多在诊所反复看同一段拳赛录像的心情
+
