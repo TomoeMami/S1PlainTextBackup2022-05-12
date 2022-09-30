@@ -3833,3 +3833,14 @@ steam dick补尾款了
 
 哪个看过直播的同志告诉我这是什么黑科技啊 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫煜  
+##### 312#       发表于 2022-9-30 16:49
+
+我奥克揽件了，还不错，估计后天能到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
