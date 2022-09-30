@@ -1763,3 +1763,24 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 鲤鱼新单那张封面照就是最新的公式照吗？实在接受不了那副橡胶手套啊…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 6162#       发表于 2022-9-30 08:57
+
+<img src="https://img.saraba1st.com/forum/202209/30/081414c1do1qd8pjtk5n05.png" referrerpolicy="no-referrer">
+
+<strong>2F373F1F49433997805A5338E6326EAC.png</strong> (66.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 08:14 上传
+
+破案了，二期9人服都是这两搞子弄的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">！跟我唐可可无关！我只是做出来的！
+
+就是说啊，官方想塑造一二期关系性可以，咱能不能不要老建立在吃设定的情况下，或者说严谨点好不，可可设定里也有对时尚的部分吧，这咋就插不进脚了捏。
+
+貌似同期的另一个杂志也有这毛病，把芽衣知道四季在部室里独自跳舞给吞了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
