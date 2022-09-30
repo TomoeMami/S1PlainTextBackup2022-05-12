@@ -4936,3 +4936,24 @@ kino这个2d皮看起来这么伤感的吗？？墨镜一摘这眼睛看起来�
 问题是厂 ...</blockquote>
 如果是真的我反而觉得她太不对自己负责了，而且我个人很支持她先把学历拿到<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  安姆闲人  
+##### 2037#       发表于 2022-9-30 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57713588&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-30 20:47</a>
+
+不要高估她的学习能力，之前就是高估了自己的学习能力，所以才延毕了，厂长也心软信了她能搞掂
+
+问题是厂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">唉，那也确实先完成学业吧
+
+*****
+
+####  天青月白  
+##### 2038#       发表于 2022-9-30 21:01
+
+最后一首霓虹泡泡拉了，狠狠滴拉
+
