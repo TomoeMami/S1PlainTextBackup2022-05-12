@@ -1784,3 +1784,12 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 貌似同期的另一个杂志也有这毛病，把芽衣知道四季在部室里独自跳舞给吞了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6163#       发表于 2022-9-30 09:04
+
+然而第10集里唯独没有做衣服的镜头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
