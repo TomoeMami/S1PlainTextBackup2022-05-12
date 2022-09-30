@@ -8777,3 +8777,14 @@ uu加速器之类的可以么？
 
 这次剧情劲儿有点大，麻子写白河写上头了吧。
 
+
+
+*****
+
+####  poor  
+##### 837#       发表于 2022-9-30 15:42
+
+现在红血不会自动换后面了，刚写的红宝石本剧本发现过不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
