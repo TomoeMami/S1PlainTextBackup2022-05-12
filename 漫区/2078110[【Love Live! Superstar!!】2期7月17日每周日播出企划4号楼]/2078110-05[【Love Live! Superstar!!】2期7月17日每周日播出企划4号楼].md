@@ -1890,3 +1890,15 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">纯混子一个早晚把你踢了
 
+
+
+*****
+
+####  plazum  
+##### 6173#       发表于 2022-9-30 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705965&amp;ptid=2078110" target="_blank">lj205 发表于 2022-9-30 10:20</a>
+
+那个领子不是可可的，是香堇的衣领设计</blockquote>
+我不知道这么具体的啊，我只是说小堇画设计图的那个场景
+
