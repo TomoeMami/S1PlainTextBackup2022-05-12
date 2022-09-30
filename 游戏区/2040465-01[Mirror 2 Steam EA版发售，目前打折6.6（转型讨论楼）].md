@@ -2081,3 +2081,30 @@ Paradise Project下架了大多数游戏，这是出了什么事？会对mirror2
 
 r16太扯淡了
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 213#       发表于 2022-9-30 14:12
+
+<img src="https://img.saraba1st.com/forum/202209/30/141155dqo41ppumworomzk.png" referrerpolicy="no-referrer">
+
+<strong>)ZO5M%6TP_8X{OKLZ(3$D.png</strong> (97.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 14:11 上传
+
+内容过于离谱导致我根本不知道怎么评价了，，，，反反复复只能憋出俩字
+
+“呃呃”
+
+<img src="https://img.saraba1st.com/forum/202209/30/141241laa61ra4fa6aqr6h.jpg" referrerpolicy="no-referrer">
+
+<strong>WT6_C]S~KD}XVL(QB5]2ZY6.jpg</strong> (1.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 14:12 上传
+
