@@ -2312,3 +2312,28 @@ r16太扯淡了
 
 —— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tewaku  
+##### 231#       发表于 2022-9-30 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712655&amp;ptid=2040465" target="_blank">不应 发表于 2022-9-30 19:29</a>
+
+6块钱反应也要这么大吗，更别说还有不少是白送的...就是fanbox骗钱还得骗500日元呢 ...</blockquote>
+六块是不多，但不是制作组诈骗的理由
+
+没有一代这二代卖六块也就真喜欢玩三消和被那点擦边球骗到的人会买了，这部分人有多少大家心里有数
+
+何况这二代的三消做得怎样楼里也有人说了，就这表现要不是有前作在能有这么多人帮他免费宣传自来水洗地一年？别忘了就这还卖dlc收割韭菜呢
+
+六块钱免喷金牌被洗地狗用了一年多现在还想用属实是有点好孝了😀
+
+*****
+
+####  名守居  
+##### 232#       发表于 2022-9-30 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天重新下回来了，刚准备买dlc，犹豫了下，现在不用买了
+

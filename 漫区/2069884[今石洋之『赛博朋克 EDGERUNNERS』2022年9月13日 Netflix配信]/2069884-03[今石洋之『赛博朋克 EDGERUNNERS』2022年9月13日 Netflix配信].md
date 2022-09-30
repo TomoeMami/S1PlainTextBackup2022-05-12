@@ -402,3 +402,22 @@ David早期设定，拉美人特征更重</blockquote>
 
 —— 来自 Xiaomi Redmi Note 5, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  劳动塑造人  
+##### 3035#       发表于 2022-9-30 21:50
+
+Rebecca跳舞 
+
+<img src="https://img.saraba1st.com/forum/202209/30/214908ogoaudq4bcn9cfci.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220930214902.png</strong> (104.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 21:49 上传
+
+[https://live.bilibili.com/24069977?spm_id_from=333.999.0.0](https://live.bilibili.com/24069977?spm_id_from=333.999.0.0)
+
