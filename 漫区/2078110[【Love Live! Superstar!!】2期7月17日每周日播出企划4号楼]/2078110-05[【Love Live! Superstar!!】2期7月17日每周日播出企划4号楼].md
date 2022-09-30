@@ -2026,3 +2026,15 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 说到这个，感觉好几个月前&amp;# ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么一说83期广播突然变得很生草：“”原来可可约我出来是这个目的吗，她铁暗恋我“
 
+
+
+*****
+
+####  ruffian  
+##### 6179#       发表于 2022-9-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57706844&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-09-30 11:21:53</a>
+说到这个，感觉好几个月前&amp;# ...</blockquote>你这么一说，上期广播堇突然提可可约她逛街的事，我当时心想万一可可真就“直女无趣”了岂不是很尴尬？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
