@@ -2038,3 +2038,38 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  saya1892  
+##### 6180#       发表于 2022-9-30 12:24
+
+<img src="https://img.saraba1st.com/forum/202209/30/121824ez83sox8s839aoz8.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (163.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 12:18 上传
+
+ <blockquote>某个周四6:30AM的Liella！
+
+卡农：小堇起得真早啊。
+
+堇：毕竟是神社的女儿嘛，当然的。早上有很多事要做。
+
+卡农：要帮家里干活，还要梳洗打扮，真的很了不起。像我今早还起晚了被亚里亚骂了一顿。
+
+堇：有妹妹叫你起床很好了。像可可，今早可是一副惊人之相闯进教室的。
+
+卡农：呼呼，这是因为小堇打电话叫她起床了吧。
+
+堇：这、这是因为她一个人住我没有办法才！
+
+希奈子：这就是大人的温柔吧，堇前辈！</blockquote>
+
+以前翻的
+
+可可生日那期广播还有过大家给可可庆生晚上回去可可突发无公告直播结果堇竟然看到了的事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
