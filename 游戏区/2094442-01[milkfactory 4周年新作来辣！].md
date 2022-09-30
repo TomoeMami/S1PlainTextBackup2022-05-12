@@ -639,3 +639,24 @@ steam上好像有一部有官中的炎孕魔法学园
 
 好家伙赤木这平均值比之前还要夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  很久就在那边l  
+##### 66#       发表于 2022-9-30 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57706542&amp;ptid=2094442" target="_blank">博叔 发表于 2022-9-30 11:01</a>
+有没有精翻的入坑作名，找机会玩玩</blockquote>
+もっと！孕ませ！炎のおっぱい超エロ♡アプリ学园！
+19年的，有汉化组精翻而且制作质量进步很大
+
+*****
+
+####  平昭·南宫司卿  
+##### 67#       发表于 2022-9-30 12:09
+
+一开始其实还没有这么夸张吧，虽然越来越大之后反而怪怪的，不过之前でらうえあ颜画的真是好，真可惜
+
+这几作一直都有角色碰瓷吧，都习惯了
+
