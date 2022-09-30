@@ -829,3 +829,14 @@ steam上好像有一部有官中的炎孕魔法学园
 我那个游戏文件7个多g<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  妄想中毒  
+##### 81#       发表于 2022-9-30 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57710608&amp;ptid=2094442" target="_blank">Tissuesea 发表于 2022-9-30 16:29</a>
+当然啦，要krkr引擎的游戏，游戏文件还要打上破解补丁（patch.tjs什么的）。自己无师自通还挺烦的，懒一 ...</blockquote>
+什么鬼，krkr2安卓版菜单里面都有补丁网址，打开链接搜关键字自己下就是了，我自己都原版游戏直接扔进去下个补丁放文件夹里完事
+
