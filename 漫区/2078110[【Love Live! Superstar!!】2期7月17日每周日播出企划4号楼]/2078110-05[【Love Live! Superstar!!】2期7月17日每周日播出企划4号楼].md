@@ -1834,3 +1834,24 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 可可在杂志里不是经常提到设计衣服出瓶颈然后想点别的东西突然灵感闪现吗？广播小剧场还有过堇让可可给她设 ...</blockquote>
 这里更多指日常穿搭，虽说和演出服设计有区别，不过和我要吐槽这种现象的结果是趋同的，你不能为了达成“分担”的团队性、“融洽”的关系性目的，把人的特点拆东墙补西墙，像恋和芽衣一起不就很好？更别说几乎逮着一只羊薅<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">土妹子偷干净了，剩的服装再被细分，然后给个和千一起定训练单帮忙训练做“补偿”，最后留下那个基本都在无效输出的小道具制作当样板戏，挺无语的。
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6167#       发表于 2022-9-30 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要想后勤服装制作可以不要，直接请外包吧，反正热情还有芽衣顶呢
+
+*****
+
+####  aoaoaodedede  
+##### 6168#       发表于 2022-9-30 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705675&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-9-30 09:53</a>
+
+这里更多指日常穿搭，虽说和演出服设计有区别，不过和我要吐槽这种现象的结果是趋同的，你不能为了达成“ ...</blockquote>
+可可有些特点属于“大家都能做的”，所以写起来就很“灵活”，你也不能说有些东西别人不能做，但是一没写好，这特点就大众化了，于是越写，与特点和必要性相关的存在感就降低了。
+
+其实一期动画的时候我就觉得每个成员的团队职能分配已经基本正好了，再加人，那么为了提高团队存在感，有些有关团队的职能特点就得再分配，在端水稀烂的情况下，反而会降低某些成员的存在感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

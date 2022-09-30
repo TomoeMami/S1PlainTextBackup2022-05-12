@@ -13546,3 +13546,39 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  hypnossz86  
+##### 7329#       发表于 2022-9-30 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">终于要有新an装了，已经大半年没出了...
+阿金这下没有退路了罢（
+
+*****
+
+####  御神水  
+##### 7330#       发表于 2022-9-30 10:04
+
+ 本帖最后由 御神水 于 2022-9-30 10:08 编辑 
+
+穴装终于要出了。从这张来看
+
+<img src="https://img.saraba1st.com/forum/202209/30/100644fxctsvvgxwtqxitq.png" referrerpolicy="no-referrer">
+
+<strong>消失的翅根.png</strong> (58.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 10:06 上传
+
+1.穴手跟朱音一样用过几次后会爆掉？
+
+不管性能如何，跟原版能做出明显区分是好事。
+
+2.短剑，是你吗？
+
+边际成本快速降低。
+<img src="https://img.saraba1st.com/forum/202209/19/234552x9d07qbmg4ne3zk7.jpg" referrerpolicy="no-referrer">
+

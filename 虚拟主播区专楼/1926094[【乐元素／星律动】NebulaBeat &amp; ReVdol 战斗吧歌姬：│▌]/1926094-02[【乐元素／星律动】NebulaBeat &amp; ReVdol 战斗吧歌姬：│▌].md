@@ -4540,3 +4540,14 @@ woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？
 
 鸭鸭出道我就关注了，不过直到kino退出才认真关心这个团，平时还是主看a的，时间有限
 
+
+
+*****
+
+####  Ichthy  
+##### 1994#       发表于 2022-9-30 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703637&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-30 00:58</a>
+woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？</blockquote>
+那倒不用，虚拟相机绑定个六自由刚体就行，一般为了方便预览会弄个ipad，或者其他图传+显示器。
+
