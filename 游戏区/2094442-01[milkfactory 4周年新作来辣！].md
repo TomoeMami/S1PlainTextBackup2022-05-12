@@ -755,3 +755,18 @@ steam上好像有一部有官中的炎孕魔法学园
 
 妈妈们什么时候更新啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 76#       发表于 2022-9-30 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57708266&amp;ptid=2094442" target="_blank">Tissuesea 发表于 2022-9-30 13:12</a>
+可以是可以，kirkiroid2可以模拟，但是我手机不好，动态cg那乃子在抽搐
+
+—— 来自 HONOR CHL-AL0 ...</blockquote>
+原来不是所有的galgame都能模拟啊…难受了，捣鼓了半天，结果玩不了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
