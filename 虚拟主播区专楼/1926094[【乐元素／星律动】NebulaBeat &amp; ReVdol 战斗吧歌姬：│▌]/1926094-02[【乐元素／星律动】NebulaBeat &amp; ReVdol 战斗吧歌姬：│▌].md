@@ -4904,3 +4904,35 @@ kino这个2d皮看起来这么伤感的吗？？墨镜一摘这眼睛看起来�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">共话桑麻，当初就是觉得这首歌词好才开始关注NB的
 
+
+
+*****
+
+####  ladiesman802  
+##### 2034#       发表于 2022-9-30 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712658&amp;ptid=1926094" target="_blank">安姆闲人 发表于 2022-9-30 19:29</a>
+
+咦这个不能留职停薪以后回归么？反正为了忙学业去的话也没有工资吧，甚至可以请假三个月 ...</blockquote>
+不要高估她的学习能力，之前就是高估了自己的学习能力，所以才延毕了，厂长也心软信了她能搞掂
+
+问题是厂子一年后还在吗？家人支持吗？kino一年后心态改变了吗？
+
+*****
+
+####  MaxFOrder  
+##### 2035#       发表于 2022-9-30 20:49
+
+还不如说五月份所谓因为疫情被封其实是忙答辩去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天青月白  
+##### 2036#       发表于 2022-9-30 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57713588&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-9-30 20:47</a>
+不要高估她的学习能力，之前就是高估了自己的学习能力，所以才延毕了，厂长也心软信了她能搞掂
+
+问题是厂 ...</blockquote>
+如果是真的我反而觉得她太不对自己负责了，而且我个人很支持她先把学历拿到<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
