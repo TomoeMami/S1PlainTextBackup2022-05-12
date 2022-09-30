@@ -4785,3 +4785,35 @@ woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？</
 
 鸭鸭还是可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2021#       发表于 2022-9-30 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吧友说的挺对，可能网易和乐元素的HR都是傻子吧
+
+*****
+
+####  逸yi  
+##### 2022#       发表于 2022-9-30 19:43
+
+看罗二 可能合同的确很松吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  比比巴巴波  
+##### 2023#       发表于 2022-9-30 19:48
+
+“我想等成为更负责让大家更有光的人之后再出装扮”，看上去本意还是想回来的，但是真的没法给承诺了
+
+*****
+
+####  yingjiudangge  
+##### 2024#       发表于 2022-9-30 19:52
+
+那就是家里不让咯
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
