@@ -683,3 +683,66 @@ steam上好像有一部有官中的炎孕魔法学园
 
 看了眼推 mignon居然参与了色彩监修<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 完全看不出。。。。
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 70#       发表于 2022-9-30 13:03
+
+没玩过，在哪可以买，平台是限PC吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  纱布光环  
+##### 71#       发表于 2022-9-30 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57708166&amp;ptid=2094442" target="_blank">ParadiseMartyr 发表于 2022-9-30 13:03</a>
+
+没玩过，在哪可以买，平台是限PC吗？
+
+—— 来自 S1Fun</blockquote>
+官网：  [https://milkfactory.jp/products/hmaid/](https://milkfactory.jp/products/hmaid/)
+
+12月23日才出呢 别急
+
+*****
+
+####  黑上シグマ  
+##### 72#       发表于 2022-9-30 13:09
+
+<blockquote>引用第69楼ParadiseMartyr于2022-09-30 13:03发表的  :
+
+没玩过，在哪可以买，平台是限PC吗？—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是得从没玩过黄油才能问出这问题吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ParadiseMartyr  
+##### 73#       发表于 2022-9-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57708203&amp;ptid=2094442" target="_blank">纱布光环 发表于 2022-9-30 13:06</a>
+官网：  https://milkfactory.jp/products/hmaid/
+
+12月23日才出呢 别急</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">前作呢。能安卓吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Tissuesea  
+##### 74#       发表于 2022-9-30 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57708233&amp;ptid=2094442" target="_blank">ParadiseMartyr 发表于 2022-9-30 13:09</a>
+前作呢。能安卓吗？
+
+—— 来自 S1Fun</blockquote>
+可以是可以，kirkiroid2可以模拟，但是我手机不好，动态cg那乃子在抽搐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
