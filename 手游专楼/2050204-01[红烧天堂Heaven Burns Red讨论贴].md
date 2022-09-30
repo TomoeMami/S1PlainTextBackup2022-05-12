@@ -8788,3 +8788,21 @@ uu加速器之类的可以么？
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Hemis  
+##### 838#       发表于 2022-9-30 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57709981&amp;ptid=2050204" target="_blank">poor 发表于 2022-9-30 15:42</a>
+
+现在红血不会自动换后面了，刚写的红宝石本剧本发现过不了
+
+—— 来自 vivo V1981A, Android 12上的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">现在的auto模式看不懂
+
+buffer的位置自动换在breaker前面我认了
+
+上了个attacker结果放在buffer前面出手 
+
