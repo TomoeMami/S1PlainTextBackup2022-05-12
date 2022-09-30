@@ -660,3 +660,17 @@ steam上好像有一部有官中的炎孕魔法学园
 
 这几作一直都有角色碰瓷吧，都习惯了
 
+
+
+*****
+
+####  6030sylar  
+##### 68#       发表于 2022-9-30 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57707277&amp;ptid=2094442" target="_blank">披头破落户 发表于 2022-9-30 11:51</a>
+
+带铃铛的是盾勇的女主吧
+
+—— 来自 Xiaomi 22011211C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+小浣熊是有点像但又不那么像
+
