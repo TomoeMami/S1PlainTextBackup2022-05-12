@@ -6703,3 +6703,15 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 虽然脚部的黑色一时半会还是没习惯。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 597#         楼主| 发表于 2022-9-30 09:48
+
+<img src="https://p.sda1.dev/7/6f26bf939e28ae7f017e0ac7339a9506/3374B016BD20ACA2564000988609F3CB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/e200348ceba0a46ec2c67377c89d5537/4F9EC9DBC43BBAFFC54841F4FFBF2A30.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/5f17968c174bc466f2adf6fadab19618/95D2A7391B762994E2E7CB6F5A1041F4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/1f4d8acf71274eb353d8b5ffb267b2e4/EF99952B3E7F6EB4540BFDCC43687F28.jpg" referrerpolicy="no-referrer">
+

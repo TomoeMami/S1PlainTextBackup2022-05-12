@@ -10374,3 +10374,17 @@ DLC2有影子了么……
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  行政裁定书  
+##### 2483#       发表于 2022-9-30 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57701136&amp;ptid=2033303" target="_blank">stormquantage 发表于 2022-9-29 21:21</a>
+
+国内没有这方面的市场，经常是嚷嚷声大，实际买的没几个。有钱的看不上，想要的没钱买 ...</blockquote>
+那是很多年前了，现在随着国内品牌价值起来了，大把的人等着买呢。
+
+高合都有那么多人买，领克（极氪）、byd、蔚来出个入门级超跑肯定很多人捧场。
+

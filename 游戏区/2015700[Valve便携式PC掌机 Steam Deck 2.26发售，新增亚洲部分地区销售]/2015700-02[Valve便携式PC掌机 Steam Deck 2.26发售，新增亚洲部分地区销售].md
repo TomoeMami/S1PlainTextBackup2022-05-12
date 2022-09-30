@@ -3896,3 +3896,12 @@ g胖说过更新会比较快，2年可以了
 
 终于收到了，换完硬盘感觉背后盖子没合紧，但真的懒得再拆一次重装了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  revoer  
+##### 1866#       发表于 2022-9-30 09:47
+
+中环清关半个月了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
