@@ -2451,3 +2451,12 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 不知道今天8个人有没参加
 
+
+
+*****
+
+####  starring  
+##### 6207#       发表于 2022-9-30 23:58
+
+不愧是打铁，场子好大也爆满，写真集也发售日当天最速再版<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

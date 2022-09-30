@@ -13646,3 +13646,26 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 金字塔不摸鱼的话做完AN米亚和天狐天12月就能追上去年的女演员了，然后去年和今年的新女演员很少明年内就能做完所有AN。再加上FA其实已经实装了超过1/6，再不出个莉莉什么的后年就没货了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  御神水  
+##### 7336#       发表于 2022-9-30 23:56
+
+<img src="https://img.saraba1st.com/forum/202209/30/235442njdtpa0dpaz7ymy9.jpg" referrerpolicy="no-referrer">
+
+<strong>掰.jpg</strong> (288.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 23:54 上传
+
+穴组这掰法新鲜。
+ <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57707100&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2022-9-30 11:40</a>
+
+应该只是再现2周年纪念绘的pose而已，我不信现在的金字塔有这么厚道会追加爆甲机关</blockquote>
+我也不信，姑且期待意外惊喜。
+
+话说这手是那期活动的绿装吗？
+
