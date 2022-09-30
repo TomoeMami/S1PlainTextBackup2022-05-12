@@ -923,3 +923,15 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 
 发生了甚么事？
 
+
+
+*****
+
+####  dawning  
+##### 43604#       发表于 2022-9-30 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705947&amp;ptid=1712412" target="_blank">哈露尼娅 发表于 2022-9-30 10:17</a>
+
+发生了甚么事？</blockquote>
+几个卡面修改了下，放出来了，<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
