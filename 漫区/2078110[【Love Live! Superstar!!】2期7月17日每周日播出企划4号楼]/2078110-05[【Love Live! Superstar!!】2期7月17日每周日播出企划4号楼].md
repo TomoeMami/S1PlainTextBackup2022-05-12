@@ -1793,3 +1793,14 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 然而第10集里唯独没有做衣服的镜头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 6164#       发表于 2022-9-30 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705094&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-09-30 08:57:22</a></blockquote>可可在杂志里不是经常提到设计衣服出瓶颈然后想点别的东西突然灵感闪现吗？广播小剧场还有过堇让可可给她设计一套最华丽的衣服然后被拒绝了……这吃书也太彻底了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
