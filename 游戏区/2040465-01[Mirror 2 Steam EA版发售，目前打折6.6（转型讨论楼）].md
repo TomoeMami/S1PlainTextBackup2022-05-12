@@ -2301,3 +2301,14 @@ r16太扯淡了
 
 教程似乎完全没有教我怎么玩的样子
 
+
+
+*****
+
+####  2082082012  
+##### 230#       发表于 2022-9-30 21:29
+
+单从玩法上个人觉得二代还没有一代好玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

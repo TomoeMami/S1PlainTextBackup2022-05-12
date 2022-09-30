@@ -1,6 +1,8 @@
 
 [Errno 2] No such file or directory: './虚拟主播区专楼/1921517[A站虚拟偶像(AVUP)综合讨论楼]'
 !!error:id=1921517
+[Errno 2] No such file or directory: './外野/2001539[空间站核心舱发射成功，太阳能帆板已展开]'
+!!error:id=2001539
 [Errno 2] No such file or directory: './漫区/2095124-01[（圣斗士）加隆：老子造了什么孽啊，刚自爆就被拉起来].md'
 !!error:id=2095124
 [Errno 2] No such file or directory: './虚拟主播区专楼/1941125[夏色（なついろ）まつり／夏色祭 祭丝日记楼]'
