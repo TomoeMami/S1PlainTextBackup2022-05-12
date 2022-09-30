@@ -1918,3 +1918,24 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 感觉跟动画还是有一定差异
 
+
+
+*****
+
+####  lj205  
+##### 6175#       发表于 2022-9-30 11:43
+
+金发傲骄系搭草食活泼系是吗？
+
+*****
+
+####  沙茶酱  
+##### 6176#       发表于 2022-9-30 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705585&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-9-30 09:44</a>
+
+放过自己吧，应该承认，动画和杂志是两个世界（甚至有时候杂志和杂志也是两个世界）
+
+ ...</blockquote>
+我觉得如果单看第二期，这杂志介绍的是异世界的星团吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

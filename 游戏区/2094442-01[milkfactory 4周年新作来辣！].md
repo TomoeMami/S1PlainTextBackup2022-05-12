@@ -613,3 +613,20 @@ steam上好像有一部有官中的炎孕魔法学园
 
 衣服不一样，我感觉不是在碰原神的艾米
 
+
+
+*****
+
+####  披头破落户  
+##### 64#       发表于 2022-9-30 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57706804&amp;ptid=2094442" target="_blank">6030sylar 发表于 2022-9-30 11:18</a>
+有没有考据是碰瓷哪些，大和吃鸡都和原的莫娜缝了，有些元素改得太多不太好认
+
+大概猜一下 
+
+褐色双马 ...</blockquote>
+带铃铛的是盾勇的女主吧
+
+—— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
