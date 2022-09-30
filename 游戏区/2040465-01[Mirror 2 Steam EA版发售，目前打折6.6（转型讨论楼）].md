@@ -2197,3 +2197,22 @@ r16太扯淡了
 
 为什么mirror1是神，首先是犯下傲慢之罪的mirror2，剩下的爷忘了。
 
+
+
+*****
+
+####  终结之始  
+##### 222#       发表于 2022-9-30 19:55
+
+8月的更新后，挑战模式变得能玩了，把技能树刷满以后，困难难度也能无脑碾压（除了某些机制怪）<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">，偶尔玩上一局也是挺解压的
+
+*****
+
+####  酒瓶止迁  
+##### 223#       发表于 2022-9-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712951&amp;ptid=2040465" target="_blank">终结之始 发表于 2022-9-30 19:55</a>
+
+8月的更新后，挑战模式变得能玩了，把技能树刷满以后，困难难度也能无脑碾压（除了某些机制怪），偶 ...</blockquote>
+我感觉单纯论三消，2也是不如1的，莫名其妙的设定太多了数值不好
+

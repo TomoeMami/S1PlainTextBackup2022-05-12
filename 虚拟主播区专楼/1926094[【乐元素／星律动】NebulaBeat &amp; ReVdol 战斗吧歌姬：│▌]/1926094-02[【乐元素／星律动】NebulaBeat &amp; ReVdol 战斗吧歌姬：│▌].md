@@ -4817,3 +4817,43 @@ woc，原来这么贵。那九夏拍的男友视角也是手持这种相机？</
 
 —— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2025#       发表于 2022-9-30 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有几次问到会不会回来都打住了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  比比巴巴波  
+##### 2026#       发表于 2022-9-30 19:55
+
+ 本帖最后由 比比巴巴波 于 2022-9-30 19:56 编辑 
+
+冒着和家里决裂、拿不到毕业证学位证的风险坚持这份工
+
+现在这个时代哪怕跟男人私奔都做不到这一步了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一年之后顺利毕业如果厂还在，可能能回来，从洗脚婢做起
+
+*****
+
+####  MaxFOrder  
+##### 2027#       发表于 2022-9-30 19:56
+
+不是，说好的签合同的时候妈妈也跟着呢？！
+
+*****
+
+####  不智法师  
+##### 2028#       发表于 2022-9-30 19:58
+
+ 本帖最后由 不智法师 于 2022-9-30 19:59 编辑 
+
+这种理由说实话还是你信就信，不信还是不信
+

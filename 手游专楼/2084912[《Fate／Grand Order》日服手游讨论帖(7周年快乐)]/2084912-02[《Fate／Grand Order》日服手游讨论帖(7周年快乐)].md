@@ -15478,3 +15478,12 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 目前手头在玩的几个手游基本上都是总价不变调整有偿无偿石比例来应对，或者增设新档未保证石头单价不变。也就是月卡之类的稍稍涨了一波。只有微课党受伤的世界完成了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2883#       发表于 2022-9-30 19:54
+
+这个新幕间什么鬼，真不会被喷爆吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

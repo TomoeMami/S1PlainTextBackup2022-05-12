@@ -3186,3 +3186,14 @@ al真不好说女主。
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  jerryoq1  
+##### 1786#       发表于 2022-9-30 19:58
+
+我记得演习beta入侵 a-01死了一个筑地多惠，还退场了一个无名氏，看pv甲21 13台不知火 大概要魔改的是这？ 
+
+也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  佐度岛出场的收复佐度岛退场也算合理
+
