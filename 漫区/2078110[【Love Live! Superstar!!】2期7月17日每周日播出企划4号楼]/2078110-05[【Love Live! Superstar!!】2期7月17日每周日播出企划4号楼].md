@@ -2460,3 +2460,12 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 不愧是打铁，场子好大也爆满，写真集也发售日当天最速再版<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6208#       发表于 2022-10-1 00:06
+
+这还只是个小活动，但这个人数其实已经完全能开个唱了，还不如早点把歌手出道提上日程
+
