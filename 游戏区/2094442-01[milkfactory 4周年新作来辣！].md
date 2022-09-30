@@ -630,3 +630,12 @@ steam上好像有一部有官中的炎孕魔法学园
 
 —— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  huoguoshan23  
+##### 65#       发表于 2022-9-30 11:53
+
+好家伙赤木这平均值比之前还要夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

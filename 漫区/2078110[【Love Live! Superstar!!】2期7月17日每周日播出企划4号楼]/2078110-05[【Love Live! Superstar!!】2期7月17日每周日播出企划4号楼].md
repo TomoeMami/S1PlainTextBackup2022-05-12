@@ -1939,3 +1939,78 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
  ...</blockquote>
 我觉得如果单看第二期，这杂志介绍的是异世界的星团吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 6177#       发表于 2022-9-30 11:56
+
+[#伊达さゆり](https://twitter.com/hashtag/%E4%BC%8A%E9%81%94%E3%81%95%E3%82%86%E3%82%8A?src=hashtag_click)([@SayuriDate](https://twitter.com/SayuriDate))さん连载「[#手さぐりの旅](https://twitter.com/hashtag/%E6%89%8B%E3%81%95%E3%81%90%E3%82%8A%E3%81%AE%E6%97%85?src=hashtag_click)」第1回の公开を记念して、直笔サイン入りチェキを抽选で1名にプレゼント！ [#伊达さゆり生诞祭2022](https://twitter.com/hashtag/%E4%BC%8A%E9%81%94%E3%81%95%E3%82%86%E3%82%8A%E7%94%9F%E8%AA%95%E7%A5%AD2022?src=hashtag_click)◆応募方法1. [@WebFebri](https://twitter.com/WebFebri)
+
+ をフォロー2. 10/14(金) 23:59 までにこの投稿をRT 详细 [https://febri.jp/series_sayuridate_1-1/](https://t.co/p6xwLQYMNO)
+
+<img src="https://img.saraba1st.com/forum/202209/30/115440xi5a2tv2cxcw8a5w.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7958_.jpg</strong> (86.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115440dewchxuc4z2zpeh6.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220930115334.png</strong> (69.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115439m5853wycs5ltj585.jpg" referrerpolicy="no-referrer">
+
+<strong>FATCS0SUcAAoALh.jpg</strong> (363.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115441yqdqqp93q34pqvxr.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A3758_1280_.jpg</strong> (209.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115441je97n1npsn7qpwpv.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A3774_1280px.jpg</strong> (153.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115442nbz3bbjzf33b3834.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A4115_1280px.jpg</strong> (164.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115442v01p4i37goo04kdw.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A4123_1280px.jpg</strong> (161.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202209/30/115442pclaogysal0gakzl.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A3791_1280_.jpg</strong> (214.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-30 11:54 上传
+
