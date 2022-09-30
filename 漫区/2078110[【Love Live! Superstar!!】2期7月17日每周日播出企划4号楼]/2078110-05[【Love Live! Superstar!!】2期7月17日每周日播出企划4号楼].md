@@ -1902,3 +1902,19 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 那个领子不是可可的，是香堇的衣领设计</blockquote>
 我不知道这么具体的啊，我只是说小堇画设计图的那个场景
 
+
+
+*****
+
+####  saya1892  
+##### 6174#       发表于 2022-9-30 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57705894&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-9-30 10:12</a>
+
+虽然都说不同载体是平行世界，但是杂志什么的有时也会随动画变化，最典型的就是最早时可可被堇吃得死死的， ...</blockquote>
+说到这个，感觉好几个月前的杂志开始堇就有重女化的倾向，在别人聊天聊得好好的时候硬要强行cue一下可之类的
+
+这期G's甚至有了几分金毛傲娇败犬的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+感觉跟动画还是有一定差异
+
