@@ -2138,3 +2138,12 @@ r16太扯淡了
 
 目标巫师3是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巫师3分级是16+？
 
+
+
+*****
+
+####  F.R.ONY  
+##### 217#       发表于 2022-9-30 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 曾经的6元社遗产还能带来乐子 也算是发光发热了
+
