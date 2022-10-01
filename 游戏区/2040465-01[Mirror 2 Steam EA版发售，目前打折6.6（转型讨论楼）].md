@@ -2363,3 +2363,14 @@ r16太扯淡了
 
 哈尼炮2主要问题就是有些人设太辣眼睛，但哈尼炮2通关了，mirror2直接没买。
 
+
+
+*****
+
+####  哆哆鸡  
+##### 235#       发表于 2022-10-1 15:24
+
+如果是国外制作组我肯定和你们一起喷<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+可惜国内搞r18是真有可能被抓进去的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
