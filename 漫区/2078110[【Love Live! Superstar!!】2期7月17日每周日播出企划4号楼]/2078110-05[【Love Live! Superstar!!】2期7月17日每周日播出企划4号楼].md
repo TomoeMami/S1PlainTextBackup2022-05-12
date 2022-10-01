@@ -3119,3 +3119,15 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 曾经有过辞职的念头。。看来做立德压力不是一般大；
 
+
+
+*****
+
+####  starring  
+##### 6265#       发表于 2022-10-1 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57724576&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-1 22:42</a>
+
+草，这是鲤鱼乱入还是nako乱入啊</blockquote>
+答案是nako抱着鲤鱼一起乱入<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
