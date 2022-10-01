@@ -15590,3 +15590,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 感觉高等关卡们拔高了FGO设计的上限[f:053 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正只打一次的情况下比当初252那傻逼锁助战恶心人有趣
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2892#       发表于 2022-10-1 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722961&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-1 20:29</a>
+
+反正只打一次的情况下比当初252那傻逼锁助战恶心人有趣</blockquote>
+唉，过段时间就该重温252的傻逼助战高难了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖助战、26-2凯尼斯-锁老福助战这三个本<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

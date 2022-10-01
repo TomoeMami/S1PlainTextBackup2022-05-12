@@ -946,3 +946,20 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  gpx234mqx  
+##### 43606#       发表于 2022-10-1 20:47
+
+ 本帖最后由 gpx234mqx 于 2022-10-1 20:50 编辑 
+
+[https://tieba.baidu.com/p/8046392948](https://tieba.baidu.com/p/8046392948)
+
+贴吧有人申请行政查询了，经过查询没有对BGO改修的行政决定
+
+也就是叔叔自己改的，然后推给上面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+从来都是自己改的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
