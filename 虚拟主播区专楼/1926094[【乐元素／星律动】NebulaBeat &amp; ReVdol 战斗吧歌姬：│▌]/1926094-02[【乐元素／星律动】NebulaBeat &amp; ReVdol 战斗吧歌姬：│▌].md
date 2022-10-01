@@ -5105,3 +5105,14 @@ kino加油
 鸭鸭防盒意识还是强，假期日记点进去一看ip北京，苦了厂工过节还帮代发。虽然大伙儿早就知道是湖南 ...</blockquote>
 应该开vpn或者找厂公代发
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2052#       发表于 2022-10-2 01:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">湖南鸭，辣辣的
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
