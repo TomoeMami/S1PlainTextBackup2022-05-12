@@ -480,3 +480,19 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 
 边缘行者这点上至少人物和剧情逻辑能自洽
 
+
+
+*****
+
+####  ayanamilin  
+##### 3041#       发表于 2022-10-1 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57716612&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-10-1 03:05</a>
+双城之战在我看来最大的问题是，剧情推动竟然要两次靠金克丝发疯推进，简直不可理喻
+
+边缘行者这点上至少 ...</blockquote>
+放在别的剧里确实不合理，但是金克斯人设就是个疯子，编剧不让她疯两下说不过去呀。至于推不推动剧情，只要合乎剧本逻辑就行了。（按你的想法，边缘行者更是靠曼恩和大卫的赛博发疯才能推动剧情，曼恩不发疯大卫还一直是马仔呢）
+边缘行者的问题不是不合逻辑，而是有太多看似合理实则僵化的样板戏桥段。举个例子，露西为什么要瞒着大卫？当然我自己都能想出一套解释，但说白了编剧还是想玩英雄救美黑化的老套戏码。
+
+—— 来自 Xiaomi Redmi Note 5, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
