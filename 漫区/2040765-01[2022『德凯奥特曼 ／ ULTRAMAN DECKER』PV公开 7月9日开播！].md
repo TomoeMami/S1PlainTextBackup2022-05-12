@@ -6724,3 +6724,14 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 这AI太屑了，直接把人丢下去了
 
+
+
+*****
+
+####  真妃保护协会  
+##### 599#       发表于 2022-10-1 10:31
+
+这就暴露了，保密工作不到位啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
