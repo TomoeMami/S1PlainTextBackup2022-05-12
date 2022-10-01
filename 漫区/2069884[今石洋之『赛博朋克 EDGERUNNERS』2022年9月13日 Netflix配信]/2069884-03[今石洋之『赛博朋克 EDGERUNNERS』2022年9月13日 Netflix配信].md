@@ -505,3 +505,16 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 
 这片多加三集做成13集不知道会不会好点，看完一个感觉就是太赶，不过扳机就是这个调，我一直在想哪个环节二选一时走别的路线可以让结局好点。大卫和曼恩理由都是不降级所以发疯。假如最后用金刚的机能全力逃跑不知道生蒜多少
 
+
+
+*****
+
+####  cnwind042  
+##### 3043#       发表于 2022-10-1 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717321&amp;ptid=2069884" target="_blank">尼奥 发表于 2022-10-1 09:14</a>
+这片多加三集做成13集不知道会不会好点，看完一个感觉就是太赶，不过扳机就是这个调，我一直在想哪个环节二 ...</blockquote>
+感觉上了金刚就已经过了返回点了，还得往前找找
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

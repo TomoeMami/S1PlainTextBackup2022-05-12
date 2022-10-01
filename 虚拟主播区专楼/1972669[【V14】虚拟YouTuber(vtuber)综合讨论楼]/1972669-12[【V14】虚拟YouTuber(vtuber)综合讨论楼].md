@@ -10764,3 +10764,39 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 花大钱了，都是痛t新3d，这么多人一次性也太可惜了
 
+
+
+*****
+
+####  Porsche  
+##### 17493#       发表于 2022-10-1 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57714465&amp;ptid=1972669" target="_blank">星野航 发表于 2022-9-30 21:59</a>
+现地民唯一不满，这谁带着起立的风潮
+前排大汉们一起立，中间看都看不见，anycolor还在用这套拍屏幕放大屏 ...</blockquote>
+附议
+明明辛辛苦苦搞的AR，shader的光影都调到极致了
+结果导播经常切镜头怼着大屏的机位
+结果人物身上全是横线，画质也掉的厉害
+那还搞毛线AR啊，跟以前一样立块大屏幕得了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 17494#       发表于 2022-10-1 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57716471&amp;ptid=1972669" target="_blank">星野航 发表于 2022-10-1 02:00</a>
+当然不是w之前虹live都是stand up禁止
+今天这不知道哪里来的，大概是憋了太久吧，vtl前奏一起全站起来了 ...</blockquote>
+现场能否站肯定是明确提示过的
+本来站着应援就是传统，只不过虹赶上疫情，
+所以那几年不让站不让出声
+现在看起来允许站了依旧不能出声
+
+*****
+
+####  rzrbtk  
+##### 17495#       发表于 2022-10-1 09:59
+
+在几个fes直播间辗转，有点羡慕惹.....这么久才开成真是不容易<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
