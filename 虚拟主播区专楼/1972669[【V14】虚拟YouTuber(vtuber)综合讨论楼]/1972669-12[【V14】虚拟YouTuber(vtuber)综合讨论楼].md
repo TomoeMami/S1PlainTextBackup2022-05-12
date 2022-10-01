@@ -10884,3 +10884,23 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 小黄这肉眼可见的青春力
 
+
+
+*****
+
+####  FCCHua  
+##### 17503#       发表于 2022-10-1 17:06
+
+ 本帖最后由 FCCHua 于 2022-10-1 17:07 编辑 
+
+因为sky看了舞台剧，整体下来大家都很不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17504#       发表于 2022-10-1 17:07
+
+东堂琥珀的3D，好棒！！头发看着就有live2d的蓬松感，不错！
+
+羡慕死力<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

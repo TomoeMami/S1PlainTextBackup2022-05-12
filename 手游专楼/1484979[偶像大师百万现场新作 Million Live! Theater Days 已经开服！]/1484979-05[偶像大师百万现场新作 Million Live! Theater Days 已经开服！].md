@@ -9774,3 +9774,15 @@ selection当然是自选吧</blockquote>
 建议查下格力的星座卡或者看下4thday1，你会找到答案的</blockquote>
 啥意思？是演唱会先出的统一服装，再分开出的活动曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  枫紫  
+##### 7009#       发表于 2022-10-1 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57720794&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2022-10-1 16:33</a>
+
+就是同一张专的两首歌，同一张卡面的一套服装？</blockquote>
+这次的才是狮子座的衣服，之前的只是队服。队服原来在格力是AS组穿的，自然色调是一样的。顺便，你大概没留意过，同一个队的天秤，巨蟹，摩羯也是这个系统的颜色
+
