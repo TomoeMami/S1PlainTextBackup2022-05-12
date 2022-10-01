@@ -8689,3 +8689,14 @@ G2第一局运气太差了，那个包不掉下去估计有可能2:0<img src="ht
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  朔方原的星  
+##### 2527#         楼主| 发表于 2022-10-1 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57718087&amp;ptid=1857369" target="_blank">曼陀罗肥 发表于 2022-10-1 10:54</a>
+呼真猛阿，今晚不出意外暴打蜜蜂了，两队指挥不是一个水平的。</blockquote>
+早些时候apex和hooxi还可以皇城pk胜者为王，现在真比不了了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

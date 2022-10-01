@@ -5972,3 +5972,12 @@ fkhr弄出什么烂活我都不惊讶
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以完全不打算出风团对策角是吗
 
+
+
+*****
+
+####  usoda  
+##### 17092#       发表于 2022-10-1 12:46
+
+现在月末活动奖励里没武器了？刷了600万掉了一把..
+
