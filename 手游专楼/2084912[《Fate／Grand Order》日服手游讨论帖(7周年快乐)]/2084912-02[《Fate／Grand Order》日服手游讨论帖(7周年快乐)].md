@@ -15507,3 +15507,18 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2886#       发表于 2022-10-1 19:12
+
+ 本帖最后由 Jamaisvu 于 2022-10-1 19:19 编辑 
+
+狼人杀这个本可太秀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+小教授一技能可以给恶狼额外上debuff，有效的甄别手段<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+（其实场上有预言家的话会给恶狼加特效...可以带几个有战续的角色进去等它上场...）
+

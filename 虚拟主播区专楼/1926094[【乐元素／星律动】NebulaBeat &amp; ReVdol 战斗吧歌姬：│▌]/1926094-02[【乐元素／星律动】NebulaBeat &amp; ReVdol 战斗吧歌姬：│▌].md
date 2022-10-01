@@ -5093,3 +5093,15 @@ kino加油
 
 当时提到苏果 这种徽京限定的超市
 
+
+
+*****
+
+####  ladiesman802  
+##### 2051#       发表于 2022-10-1 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57721380&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-1 17:41</a>
+
+鸭鸭防盒意识还是强，假期日记点进去一看ip北京，苦了厂工过节还帮代发。虽然大伙儿早就知道是湖南 ...</blockquote>
+应该开vpn或者找厂公代发
+
