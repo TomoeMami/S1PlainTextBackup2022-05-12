@@ -5084,3 +5084,12 @@ kino加油
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭鸭防盒意识还是强，假期日记点进去一看ip北京，苦了厂工过节还帮代发
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2050#         楼主| 发表于 2022-10-1 19:08
+
+当时提到苏果 这种徽京限定的超市
+
