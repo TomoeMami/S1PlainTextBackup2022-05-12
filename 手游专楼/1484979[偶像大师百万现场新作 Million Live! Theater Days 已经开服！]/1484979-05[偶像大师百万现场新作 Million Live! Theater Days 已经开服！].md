@@ -9739,3 +9739,27 @@ selection当然是自选吧</blockquote>
 
 三姐妹两个在偷跑一个在吃冰淇淋
 
+
+
+*****
+
+####  枫紫  
+##### 7006#       发表于 2022-10-1 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57720394&amp;ptid=1484979" target="_blank">屈江鸟 发表于 2022-10-1 15:36</a>
+
+三姐妹两个在偷跑一个在吃冰淇淋</blockquote>
+琴叶：惠美，艾琳娜，我们天台上见
+
+*****
+
+####  枫紫  
+##### 7007#       发表于 2022-10-1 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57720236&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2022-10-1 15:12</a>
+
+怎么这么喜欢搞这个配色啊，看起来几乎一毛一样，这次的
+
+18年活动的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议查下格力的星座卡或者看下4thday1，你会找到答案的
+
