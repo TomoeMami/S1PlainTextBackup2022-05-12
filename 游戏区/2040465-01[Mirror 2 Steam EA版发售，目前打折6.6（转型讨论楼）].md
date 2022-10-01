@@ -2374,3 +2374,17 @@ r16太扯淡了
 
 可惜国内搞r18是真有可能被抓进去的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猪突猛进  
+##### 236#       发表于 2022-10-1 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712655&amp;ptid=2040465" target="_blank">不应 发表于 2022-9-30 19:29</a>
+
+6块钱反应也要这么大吗，更别说还有不少是白送的...就是fanbox骗钱还得骗500日元呢 ...</blockquote>
+我也觉得有些人反应过大。
+
+不过每个人的容忍阈值不一样，而且开发组确实有错在先，也不是不能理解。
+
