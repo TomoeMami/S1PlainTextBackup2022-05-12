@@ -15618,3 +15618,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我的血压又上来了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 2894#       发表于 2022-10-1 22:12
+
+娘的，**关卡太烦了
+
+龙牙兵也烦
+
