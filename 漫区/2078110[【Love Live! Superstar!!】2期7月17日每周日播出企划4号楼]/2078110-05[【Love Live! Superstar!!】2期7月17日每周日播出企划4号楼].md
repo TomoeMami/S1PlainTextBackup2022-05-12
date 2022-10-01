@@ -3056,3 +3056,13 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 赢个投票，就一个特写合框镜头啊
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6259#       发表于 2022-10-1 22:25
+
+<blockquote>NHK「μ's！Aqours！………そしてLiella!！」</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专业拱火是吧
+
