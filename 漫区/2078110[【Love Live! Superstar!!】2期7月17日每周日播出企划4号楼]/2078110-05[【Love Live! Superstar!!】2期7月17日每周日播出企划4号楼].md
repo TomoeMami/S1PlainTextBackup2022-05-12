@@ -2553,3 +2553,16 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 
 看了repo，不得不说sayu这生日活动的环节安排真的挺用心的了
 
+
+
+*****
+
+####  Enakina  
+##### 6217#       发表于 2022-10-1 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717312&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-1 09:11</a>
+看了repo，不得不说sayu这生日活动的环节安排真的挺用心的了</blockquote>
+abc活动做的都挺不错的，青山上次那个生日活动也挺用心的，算是把青山整活的特性给发挥到极致了
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
