@@ -15640,3 +15640,39 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 进阶？高级？
 
+
+
+*****
+
+####  alucardcz  
+##### 2896#       发表于 2022-10-2 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722544&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-10-1 19:54</a>
+
+今天的3个アドバンスドクエスト加上前2天的回忆本
+
+怎么这辣鸡游戏也开始坐牢了....我就想开开心心无脑光炮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回忆本直接不打啊 3个アドバンスドクエスト都挺简单的 第1个上面发了第2个3个附带诅咒的宝具+个单体2回合  第3个吃个毒光炮洗地结束了
+
+*****
+
+####  森兰丸  
+##### 2897#       发表于 2022-10-2 05:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57726307&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-2 02:05</a>
+
+回忆本直接不打啊 3个アドバンスドクエスト都挺简单的 第1个上面发了第2个3个附带诅咒的宝具+个单 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回忆本最后一个狗本用了令咒复活打过去了
+
+3个アドバンスドクエスト龙牙兵和狼人杀到最后也没搞清机制....xjbld就过去了
+
+龙牙兵上大英雄和哈贝喵还有一个是谁忘了....第一回合3发光炮....第二回合后备的打手和拐上来再来一发就结束了.....狼人杀就一个个单体点杀....到最后我还剩个满NP的光狐....对面还剩3个....用光炮都打死后竟然就过了
+
+第3个用光炮洗地一样是先上哈贝喵和大英雄还有C子...后备是公主和摩根
+
+第一回合2发光炮之间C子用宝具给自己回一口以至于不被毒死撑到第2回合...这样后备只会上2个
+
+公主用光炮洗地被毒死后最后摩根上场再洗1次顺利过关
+
+这辣鸡游戏我现在每天上线1次都嫌烦....这种和运营斗智斗勇的本越少越好....有活动的高难就足够了
+

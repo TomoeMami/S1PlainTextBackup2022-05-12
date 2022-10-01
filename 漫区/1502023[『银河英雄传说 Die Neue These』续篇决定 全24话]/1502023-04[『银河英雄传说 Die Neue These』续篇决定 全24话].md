@@ -9627,3 +9627,19 @@ oped不换的么
 
 坎普大将，车已经准备好了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卡罗斯  
+##### 5449#       发表于 2022-10-2 02:00
+
+坎普一个人开着要赛居然溜了这么长一段距离，但凡有驻留舰队掩护也不至于这么惨，这改编颇蠢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百里屠苏  
+##### 5450#       发表于 2022-10-2 02:12
+
+且看且珍惜，票房实在太惨了……
+

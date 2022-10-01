@@ -8750,3 +8750,163 @@ c9真是烂爆了，但液体更烂
 
 鸡和树懒这状态能稳定点就好了。osee竟然还越打越好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  keleemo123  
+##### 2533#       发表于 2022-10-2 02:37
+
+哈哈哈哈哈这豆u盘已经插好了
+
+*****
+
+####  Rainwedell  
+##### 2534#       发表于 2022-10-2 02:49
+
+图一没了，看图二吧，这g2这次还进不了决赛，今年等那两个队伍调整过来估计又没冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  keleemo123  
+##### 2535#       发表于 2022-10-2 02:56
+
+卧槽以色列狠人是真会玩啊
+
+*****
+
+####  曼陀罗肥  
+##### 2536#       发表于 2022-10-2 03:05
+
+不懂蜜蜂为什么图二不选沙2，小镇b区防守一股异味还天天选，何况呼神昨天小镇真强吧，还硬碰，没搞懂。
+
+*****
+
+####  Rainwedell  
+##### 2537#       发表于 2022-10-2 04:25
+
+熬了会dq5回来看加时了我艹。。。。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Rainwedell  
+##### 2538#       发表于 2022-10-2 04:40
+
+15比7开局被干到16比19，这也能输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  曼陀罗肥  
+##### 2539#       发表于 2022-10-2 04:40
+
+卧槽真tm牛笔，这都能翻的？！！
+
+*****
+
+####  keleemo123  
+##### 2540#       发表于 2022-10-2 04:41
+
+这白忙活也太抽象了   大赛魔咒是真的
+
+*****
+
+####  keleemo123  
+##### 2541#       发表于 2022-10-2 04:42
+
+阿杜魔男梦回巅峰 
+
+*****
+
+####  雨中曲  
+##### 2542#       发表于 2022-10-2 04:43
+
+精彩的八强，超精彩的半决赛，明天估计拉胯的决赛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Caa  
+##### 2543#       发表于 2022-10-2 04:43
+
+这都能翻，一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+不过说真的，昨天才打了NAVI，今天还用同样的进攻套路打小蜜蜂，下半场其实仔细一回想就能发现的，G2的各种套路都被读烂了，Hooxi的指挥看起来也没有如此灵活
+
+*****
+
+####  奈纪亚美  
+##### 2544#       发表于 2022-10-2 04:45
+
+这G2，看呕了
+
+*****
+
+####  CoffeeWithMilk  
+##### 2545#       发表于 2022-10-2 04:49
+
+丹麦叹息之墙啊😱
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cwlo  
+##### 2546#       发表于 2022-10-2 04:49
+
+太恐怖了，小蜜蜂的小镇，A区是魔男加阿杜，B区是SPINX加载物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 2547#       发表于 2022-10-2 04:51
+
+爽。ihoo说话
+
+*****
+
+####  烟萝  
+##### 2548#       发表于 2022-10-2 04:52
+
+太难受了啊！！
+
+*****
+
+####  Rainwedell  
+##### 2549#       发表于 2022-10-2 04:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57726653&amp;ptid=1857369" target="_blank">Caa 发表于 2022-10-2 04:43</a>
+这都能翻，一言难尽
+
+不过说真的，昨天才打了NAVI，今天还用同样的进攻套路打小蜜蜂，下半场其实仔 ...</blockquote>
+新队伍战术变化上其实没什么办法，本身g2这次前面打这么好算是吃了新指挥体系下没被研究透的红利，打到半决了这么多bo3也差不多该被读透了。只不过这次输的太乐了，就不论换多少指挥，g2总是在你觉得他巅峰时突然死去，死法又总是如此的丑陋而富有戏剧性
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  dev2ce  
+##### 2550#       发表于 2022-10-2 05:02
+
+🐝拿11分时候打了个盹，回过神来居然进加时了
+
+
+
+*****
+
+####  keleemo123  
+##### 2551#       发表于 2022-10-2 05:04
+
+哈哈呼吸发微博了 
+
+*****
+
+####  dev2ce  
+##### 2552#       发表于 2022-10-2 05:33
+
+尼还是调整调整心态吧，rmr马上就来了
+
