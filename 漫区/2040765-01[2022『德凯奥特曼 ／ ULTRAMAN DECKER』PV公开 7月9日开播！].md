@@ -6787,3 +6787,22 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 体重：3万トン
 <img src="https://p.sda1.dev/7/4138be84bef2ce774889af9e96062b04/img_neomegasu-1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 603#       发表于 2022-10-1 14:26
+
+<img src="https://img.saraba1st.com/forum/202210/01/142146dag7zjfn0aui3hak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-1 14:21 上传
+
+今天很好月亮呀。
+
+一起再次见证草台论的普适性，在哈乃的战斗记录中发现绝密文件，轻易破解后得知谁才是人间体，恐怕还不到结局整个地球都知道谁是德凯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
