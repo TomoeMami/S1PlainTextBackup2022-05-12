@@ -15604,3 +15604,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖助战、26-2凯尼斯-锁老福助战这三个本<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2893#       发表于 2022-10-1 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57723202&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-1 20:49</a>
+
+唉，过段时间就该重温252的傻逼助战高难了
+
+盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我的血压又上来了
+
