@@ -3978,3 +3978,14 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57701018&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 21:13</a></blockquote>
 标记一下备用
 
+
+
+*****
+
+####  deeplar  
+##### 324#       发表于 2022-10-1 14:15
+
+想咨询下大伙，四千多是买sd还是6800u<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

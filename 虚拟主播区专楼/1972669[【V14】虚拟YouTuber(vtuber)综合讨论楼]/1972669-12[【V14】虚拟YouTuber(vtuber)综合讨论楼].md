@@ -10857,3 +10857,15 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 现场更容易错过就是了
 今天12点jk组玩偶舞台就因为排机台错过
 
+
+
+*****
+
+####  御坂422x  
+##### 17501#       发表于 2022-10-1 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57718548&amp;ptid=1972669" target="_blank">黑皇帝 发表于 2022-10-1 11:46</a>
+
+还是不懂为什么要拿摄像机拍舞台屏幕，都能搞AR视角了直接渲染个正面视角不好吗 ...</blockquote>
+据说直拍镜头是全程AR的，所以可能是一种保值操作……
+
