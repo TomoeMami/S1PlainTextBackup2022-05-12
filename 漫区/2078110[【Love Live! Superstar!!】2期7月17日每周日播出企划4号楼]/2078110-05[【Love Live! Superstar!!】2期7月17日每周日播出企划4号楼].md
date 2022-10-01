@@ -3131,3 +3131,15 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 草，这是鲤鱼乱入还是nako乱入啊</blockquote>
 答案是nako抱着鲤鱼一起乱入<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6266#       发表于 2022-10-2 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57725097&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-1 23:36</a>
+曾经有过辞职的念头。。看来做立德压力不是一般大</blockquote>
+做什么工作都会有这种想法吧天天想辞职，月月都全勤
+更别提是这种抛头露面的工作了，得应付更多的事和人，一般人也做不来
+
