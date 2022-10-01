@@ -1,7 +1,5 @@
 
 [Errno 2] No such file or directory: './虚拟主播区专楼/1921517[A站虚拟偶像(AVUP)综合讨论楼]'
 !!error:id=1921517
-[Errno 2] No such file or directory: './外野/2095818-01[《想提拔的老秦超有干劲》].md'
-!!error:id=2095818
 [Errno 2] No such file or directory: './虚拟主播区专楼/1941125[夏色（なついろ）まつり／夏色祭 祭丝日记楼]'
 !!error:id=1941125
