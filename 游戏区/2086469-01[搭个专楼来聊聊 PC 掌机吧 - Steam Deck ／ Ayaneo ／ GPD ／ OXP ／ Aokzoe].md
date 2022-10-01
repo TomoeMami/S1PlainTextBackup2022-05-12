@@ -3968,3 +3968,13 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 奶奶的系统给我格掉了，今天又要折腾一天。
 
+
+
+*****
+
+####  yweili99  
+##### 323#       发表于 2022-10-1 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57701018&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-9-29 21:13</a></blockquote>
+标记一下备用
+
