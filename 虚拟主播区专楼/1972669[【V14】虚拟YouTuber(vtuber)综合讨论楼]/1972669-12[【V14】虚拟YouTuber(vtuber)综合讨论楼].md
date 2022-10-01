@@ -10917,3 +10917,18 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 来人帮帮忙呀，这两天的虹fes都塞不进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17506#       发表于 2022-10-1 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57721389&amp;ptid=1972669" target="_blank">free 发表于 2022-10-1 17:42</a>
+亲爱的楼友们，2楼的合集马上就要放不下了，2T都满了，谁有百度网盘会员的帮个忙联系下楼主
+
+来人帮 ...</blockquote>
+有是有，但会员说不定哪天就不续费了，开个新号是不是更稳定点，现在也是有两三t的账号售卖的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
