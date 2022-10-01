@@ -15551,3 +15551,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 小教授一技能可以给恶狼额外上debuff，有效的甄别手段</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没用 我试过战续 雪城B叔也要强制死亡下场 强制要求你跟着机制走
 
+
+
+*****
+
+####  森兰丸  
+##### 2889#       发表于 2022-10-1 19:54
+
+今天的3个アドバンスドクエスト加上前2天的回忆本
+
+怎么这辣鸡游戏也开始坐牢了....我就想开开心心无脑光炮3T过图啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
