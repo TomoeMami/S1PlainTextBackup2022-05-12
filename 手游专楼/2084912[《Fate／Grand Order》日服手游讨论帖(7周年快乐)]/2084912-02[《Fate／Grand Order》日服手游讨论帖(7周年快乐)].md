@@ -15576,3 +15576,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 感觉高等关卡们拔高了FGO设计的上限<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2891#       发表于 2022-10-1 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722762&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-1 20:13</a>
+
+这关确实有意思，强迫跳出原有框架来琢磨规则夺取胜利
+
+感觉高等关卡们拔高了FGO设计的上限[f:053 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正只打一次的情况下比当初252那傻逼锁助战恶心人有趣
+
