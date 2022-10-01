@@ -518,3 +518,12 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 
 —— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  死宅真恶心  
+##### 3044#       发表于 2022-10-1 10:01
+
+这个世界观里生产和消费是怎么保持平衡的，经济危机要怎么避免？昭和日本都知道穷人太多会导致226下克上，要么土改要么侵略…
+
