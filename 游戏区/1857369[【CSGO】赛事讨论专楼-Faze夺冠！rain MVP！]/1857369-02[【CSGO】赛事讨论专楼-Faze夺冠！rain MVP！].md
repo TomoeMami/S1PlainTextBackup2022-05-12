@@ -8700,3 +8700,12 @@ G2第一局运气太差了，那个包不掉下去估计有可能2:0<img src="ht
 呼真猛阿，今晚不出意外暴打蜜蜂了，两队指挥不是一个水平的。</blockquote>
 早些时候apex和hooxi还可以皇城pk胜者为王，现在真比不了了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niyah  
+##### 2528#       发表于 2022-10-1 13:06
+
+熬夜看得太爽了，各种要素齐全。呼神两次赛点局击杀森结束比赛也太有节目效果了
+

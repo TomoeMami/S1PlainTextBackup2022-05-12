@@ -3905,3 +3905,12 @@ g胖说过更新会比较快，2年可以了
 
 中环清关半个月了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Pettabuz  
+##### 1867#       发表于 2022-10-1 13:10
+
+话说货物已打包是什么意思，已经两天了为什么还不给我发
+
