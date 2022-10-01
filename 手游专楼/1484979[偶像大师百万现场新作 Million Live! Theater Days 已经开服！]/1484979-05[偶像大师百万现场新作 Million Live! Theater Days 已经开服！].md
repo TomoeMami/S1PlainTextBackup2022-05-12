@@ -9786,3 +9786,15 @@ selection当然是自选吧</blockquote>
 就是同一张专的两首歌，同一张卡面的一套服装？</blockquote>
 这次的才是狮子座的衣服，之前的只是队服。队服原来在格力是AS组穿的，自然色调是一样的。顺便，你大概没留意过，同一个队的天秤，巨蟹，摩羯也是这个系统的颜色
 
+
+
+*****
+
+####  花开安菲路  
+##### 7010#       发表于 2022-10-1 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57721068&amp;ptid=1484979" target="_blank">枫紫 发表于 2022-10-1 17:06</a>
+这次的才是狮子座的衣服，之前的只是队服。队服原来在格力是AS组穿的，自然色调是一样的。顺便，你大概没 ...</blockquote>
+这样的啊，感谢解答。
+这次也领完服装券，就摸了，攒体等个自推<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
