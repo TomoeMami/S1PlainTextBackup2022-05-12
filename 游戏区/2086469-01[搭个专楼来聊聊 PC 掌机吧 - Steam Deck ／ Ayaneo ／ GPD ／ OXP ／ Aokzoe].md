@@ -3908,3 +3908,15 @@ steam dick补尾款了
 
 我还在等待揽收<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">国庆回家看来是收不到了
 
+
+
+*****
+
+####  luffyzhou  
+##### 319#       发表于 2022-10-1 10:36
+
+OLED做掌机观感确实讨喜……
+5825的不是应该早发完了么？我这个5560的pro好像基本上最后一批了吧<img src="https://p.sda1.dev/7/395a0191fe435167b4178786b90a3971/CMP_20221001103526666.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
