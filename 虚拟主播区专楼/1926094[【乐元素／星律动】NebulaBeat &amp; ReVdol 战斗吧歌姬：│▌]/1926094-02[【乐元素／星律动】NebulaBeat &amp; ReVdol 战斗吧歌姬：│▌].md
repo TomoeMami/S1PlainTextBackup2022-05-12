@@ -5075,3 +5075,12 @@ kino加油
 
 哎，不管是真的是假的都结束了，未来还会不会有就随她去吧。星律动也得支棱起来了，烂活少整，多挖新人、强人，把货真价实音乐厂牌的名声做起来吧
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2049#       发表于 2022-10-1 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭鸭防盒意识还是强，假期日记点进去一看ip北京，苦了厂工过节还帮代发
+
