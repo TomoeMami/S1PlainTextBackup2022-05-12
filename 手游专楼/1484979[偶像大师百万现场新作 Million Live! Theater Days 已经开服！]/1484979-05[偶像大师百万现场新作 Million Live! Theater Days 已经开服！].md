@@ -9763,3 +9763,14 @@ selection当然是自选吧</blockquote>
 18年活动的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议查下格力的星座卡或者看下4thday1，你会找到答案的
 
+
+
+*****
+
+####  花开安菲路  
+##### 7008#       发表于 2022-10-1 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57720699&amp;ptid=1484979" target="_blank">枫紫 发表于 2022-10-1 16:20</a>
+建议查下格力的星座卡或者看下4thday1，你会找到答案的</blockquote>
+啥意思？是演唱会先出的统一服装，再分开出的活动曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
