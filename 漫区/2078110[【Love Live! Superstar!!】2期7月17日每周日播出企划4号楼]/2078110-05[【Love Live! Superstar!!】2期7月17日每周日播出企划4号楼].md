@@ -3110,3 +3110,12 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好好好
 
+
+
+*****
+
+####  csolfans  
+##### 6264#       发表于 2022-10-1 23:36
+
+曾经有过辞职的念头。。看来做立德压力不是一般大；
+

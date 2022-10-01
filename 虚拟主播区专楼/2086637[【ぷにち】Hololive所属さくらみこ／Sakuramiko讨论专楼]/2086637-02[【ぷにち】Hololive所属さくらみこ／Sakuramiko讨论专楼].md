@@ -5361,3 +5361,15 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看你们实况这么多条，应该真的很恐怖吧，我都挂着不看画面。
 
+
+
+*****
+
+####  rs5621  
+##### 2022#       发表于 2022-10-1 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57724885&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-10-1 23:14</a>
+
+看你们实况这么多条，应该真的很恐怖吧，我都挂着不看画面。</blockquote>
+只能说幸好没开全屏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
