@@ -2406,3 +2406,12 @@ r16太扯淡了
 
 这游戏唯一优点也就女体建模还行，不能涩涩那还玩个球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  232844781  
+##### 239#       发表于 2022-10-2 01:24
+
+笑死，我同学他们之前公司内部建议老板用个新ip来试水，别用mirror，老板不干要坚持梦想
+
