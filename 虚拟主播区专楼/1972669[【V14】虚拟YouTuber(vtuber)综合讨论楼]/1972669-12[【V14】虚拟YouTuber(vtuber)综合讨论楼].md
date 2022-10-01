@@ -10824,3 +10824,26 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 日本线下偶像live站是传统，不站的才是少数，我去的所有线下基本都是站的
 
+
+
+*****
+
+####  Suny08  
+##### 17498#       发表于 2022-10-1 11:45
+
+这fes 线上同接真不行吧，不过这次节目量确实有点大了，感觉完全看不过来，羡慕去现场的
+
+*****
+
+####  黑皇帝  
+##### 17499#       发表于 2022-10-1 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717611&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-10-1 09:54</a>
+
+附议
+
+明明辛辛苦苦搞的AR，shader的光影都调到极致了
+
+结果导播经常切镜头怼着大屏的机位</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> 还是不懂为什么要拿摄像机拍舞台屏幕，都能搞AR视角了直接渲染个正面视角不好吗
+

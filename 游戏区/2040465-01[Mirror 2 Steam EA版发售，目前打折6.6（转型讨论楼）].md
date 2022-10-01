@@ -2348,3 +2348,18 @@ r16太扯淡了
 
 —— 来自 OPPO PFZM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  音無麻理亜  
+##### 234#       发表于 2022-10-1 11:46
+
+乐
+
+占了哈尼炮的口碑还没哈尼炮好玩，现在又看不起哈尼炮的定位<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+第一代刚出的时候抄哈尼炮，玩的时候经常感觉哈尼炮算法舒服太多，打不过会想办法调整物品搭配，会在操作前仔细研究如何最大化，会拼手速，mirror有时候失败就会感觉“你给我这局面是不是故意的啊？？”
+
+哈尼炮2主要问题就是有些人设太辣眼睛，但哈尼炮2通关了，mirror2直接没买。
+
