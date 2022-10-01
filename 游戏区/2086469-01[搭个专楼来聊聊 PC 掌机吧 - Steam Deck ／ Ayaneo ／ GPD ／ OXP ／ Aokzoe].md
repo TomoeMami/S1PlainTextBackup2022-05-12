@@ -3892,3 +3892,19 @@ steam dick补尾款了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 317#       发表于 2022-10-1 09:45
+
+我订的洛基还是遥遥无期
+
+*****
+
+####  医生狼多  
+##### 318#       发表于 2022-10-1 09:48
+
+我还在等待揽收<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">国庆回家看来是收不到了
+
