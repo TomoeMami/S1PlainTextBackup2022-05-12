@@ -2816,3 +2816,21 @@ cd比一专便不少，希望能冲😣
 
 今晚是不是揭晓上次CP投票的结果<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 6239#       发表于 2022-10-1 19:34
+
+揭晓之前倒是有个鱼熊组合<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+-2db36217c4d9934f.jpg
+(87.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-1 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/01/193443dclssvdpbalcd0bl.jpg" referrerpolicy="no-referrer">
+
