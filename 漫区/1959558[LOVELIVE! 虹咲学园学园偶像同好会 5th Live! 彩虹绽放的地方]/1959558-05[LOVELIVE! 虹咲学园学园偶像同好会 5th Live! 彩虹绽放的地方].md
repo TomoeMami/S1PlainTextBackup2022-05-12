@@ -9179,3 +9179,15 @@ R3这团的卖点就是三语混合。我觉得纠结三语还不如让法元明
 由手机上传
 2022-10-1 11:33 上传
 
+
+
+*****
+
+####  ギナ  
+##### 6541#       发表于 2022-10-1 14:11
+
+ 本帖最后由 ギナ 于 2022-10-1 14:13 编辑 
+
+<img src="https://p.sda1.dev/7/e3a46dc206c1b0917b76046c05c2d331/CMP_20221001141242010.png" referrerpolicy="no-referrer">
+这张也太中国大妈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
