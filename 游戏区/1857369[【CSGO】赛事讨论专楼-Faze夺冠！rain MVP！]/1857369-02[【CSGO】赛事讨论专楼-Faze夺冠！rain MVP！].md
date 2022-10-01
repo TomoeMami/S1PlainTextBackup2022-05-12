@@ -8669,3 +8669,12 @@ g2则是小孩一泻千里。。
 
 呼真猛阿，今晚不出意外暴打蜜蜂了，两队指挥不是一个水平的。
 
+
+
+*****
+
+####  heseran  
+##### 2525#       发表于 2022-10-1 12:04
+
+G2第一局运气太差了，那个包不掉下去估计有可能2:0<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2674,3 +2674,17 @@ abc活动做的都挺不错的，青山上次那个生日活动也挺用心的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  名津流  
+##### 6229#       发表于 2022-10-1 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57718171&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-1 11:03</a></blockquote>
+这个海报从字体、字色、道具元素、略性感的衣着到整体的鲜亮用色，完全是欧美流行乐的风格啊
+
+把liyuu的脸换成嘎嘎、A妹、水果姐，甚至麻辣鸡都毫无违和
+
+只有曲风完全不一样
+

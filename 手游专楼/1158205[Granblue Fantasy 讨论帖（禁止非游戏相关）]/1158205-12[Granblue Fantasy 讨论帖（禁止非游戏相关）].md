@@ -5963,3 +5963,12 @@ fkhr弄出什么烂活我都不惊讶
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17091#       发表于 2022-10-1 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以完全不打算出风团对策角是吗
+

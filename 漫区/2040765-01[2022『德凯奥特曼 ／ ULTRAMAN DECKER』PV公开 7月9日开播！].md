@@ -6753,3 +6753,37 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 德凯就是奏大的降落伞包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 602#         楼主| 发表于 2022-10-1 12:06
+
+第12話 ネオメガスの逆襲
+
+残存していたネオメガスの細胞からスフィアネオメガスが誕生する。その圧倒的なパワーに、ウルトラマンデッカーとGUTS-SELECTは苦戦を強いられる。
+
+成す術ない状況に打ちひしがれるカナタたちだったが、互いに励ましあいテラフェイザーを中心とし総力を結集した反撃作戦を開始する！
+
+脚本：足木淳一郎
+
+監督：越　知靖
+<img src="https://p.sda1.dev/7/7c08f19ff0e4fd5209b6e306e4a96860/UDKep12-01H.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/9f6f570be3ffa965f727e92572617983/UDKep12-02H.jpg" referrerpolicy="no-referrer">
+
+新創合成獣
+
+スフィアネオメガス
+
+ネオメガスの細胞から誕生したスフィア合成獣。口から放つ熱線はスフィアの波動も含んでパワーUPしており、スフィアソルジャーによってその両腕を鍵爪状に変化させる事も、肥大化させて地中に根のようなものを伸ばす事も可能。
+
+スフィアネオメガスはその根を通じて地中に何らかのエネルギーを流し込んでいた。
+
+登場話：第12話
+
+身長：65m
+
+体重：3万トン
+<img src="https://p.sda1.dev/7/4138be84bef2ce774889af9e96062b04/img_neomegasu-1.jpg" referrerpolicy="no-referrer">
+
