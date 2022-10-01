@@ -2534,3 +2534,22 @@ yabu目前舞台是四个人里最好的，和一期接近的水平，现在你�
 毕竟这场效果挺好<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 [【现地repo】2022sayu庆生活动复盘](https://www.bilibili.com/read/cv18872493)
 
+
+
+*****
+
+####  adw667  
+##### 6215#       发表于 2022-10-1 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57715828&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-1 00:06</a>
+
+这还只是个小活动，但这个人数其实已经完全能开个唱了，还不如早点把歌手出道提上日程 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">嗓子啊……
+
+*****
+
+####  aoaoaodedede  
+##### 6216#       发表于 2022-10-1 09:11
+
+看了repo，不得不说sayu这生日活动的环节安排真的挺用心的了
+
