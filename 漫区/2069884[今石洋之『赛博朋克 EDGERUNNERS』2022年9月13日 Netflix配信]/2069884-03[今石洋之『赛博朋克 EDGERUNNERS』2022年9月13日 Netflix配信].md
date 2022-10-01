@@ -527,3 +527,15 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 
 这个世界观里生产和消费是怎么保持平衡的，经济危机要怎么避免？昭和日本都知道穷人太多会导致226下克上，要么土改要么侵略…
 
+
+
+*****
+
+####  asion617  
+##### 3045#       发表于 2022-10-1 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717321&amp;ptid=2069884" target="_blank">尼奥 发表于 2022-10-1 09:14</a>
+
+这片多加三集做成13集不知道会不会好点，看完一个感觉就是太赶，不过扳机就是这个调，我一直在想哪个环节二 ...</blockquote>
+扳机给我的感觉就是把握不住长的, 我头像这种光速发展的就很好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

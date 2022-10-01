@@ -6744,3 +6744,12 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 虽然用不上，但还是应该给配个降落伞包的吧
 
+
+
+*****
+
+####  奥F特  
+##### 601#       发表于 2022-10-1 10:51
+
+德凯就是奏大的降落伞包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10800,3 +10800,18 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 在几个fes直播间辗转，有点羡慕惹.....这么久才开成真是不容易<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 17496#       发表于 2022-10-1 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717625&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-10-1 10:57</a>
+现场能否站肯定是明确提示过的
+本来站着应援就是传统，只不过虹赶上疫情，
+所以那几年不让站不让出声</blockquote>
+最搞的是开幕兔头上来还说了一句∶其实大家可以不用站的
+站起来应援没问题，但这种大展示馆的改造live会场，矮个子在中间是真的啥都看不见。昨天唱到2part我都看到好几个人直接把棒子放下了，真的是影响体验
+本来音响效果跟昨天的音效光效已经很完美了
+
