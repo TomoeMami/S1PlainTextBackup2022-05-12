@@ -5373,3 +5373,20 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 看你们实况这么多条，应该真的很恐怖吧，我都挂着不看画面。</blockquote>
 只能说幸好没开全屏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2023#       发表于 2022-10-2 00:53
+
+<img src="https://img.saraba1st.com/forum/202210/02/005254t8s747mxcyq258x2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 00:52 上传
+
+哈哈哈
+
