@@ -6715,3 +6715,12 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 <img src="https://p.sda1.dev/7/5f17968c174bc466f2adf6fadab19618/95D2A7391B762994E2E7CB6F5A1041F4.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/1f4d8acf71274eb353d8b5ffb267b2e4/EF99952B3E7F6EB4540BFDCC43687F28.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeroblast  
+##### 598#       发表于 2022-10-1 08:45
+
+这AI太屑了，直接把人丢下去了
+
