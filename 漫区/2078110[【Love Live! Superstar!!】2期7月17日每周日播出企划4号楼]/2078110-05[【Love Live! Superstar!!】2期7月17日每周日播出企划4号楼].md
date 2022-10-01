@@ -2653,3 +2653,24 @@ abc活动做的都挺不错的，青山上次那个生日活动也挺用心的�
 
 后背<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 6227#       发表于 2022-10-1 11:58
+
+虽然这曲子我还是听不惯，不过新MV的造型确实很棒，动起来之后很可爱，早年那种元气女生粉色系的MV就这个样子。
+
+颜值确实很顶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 6228#       发表于 2022-10-1 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+嘿嘿鱼的美背<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
