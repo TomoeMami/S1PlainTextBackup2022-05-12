@@ -15496,3 +15496,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 想给千利休＋1，结果连歪脚后跟和呆毛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2885#       发表于 2022-10-1 17:51
+
+狼人游戏？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
