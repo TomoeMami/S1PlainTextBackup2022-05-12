@@ -3866,3 +3866,17 @@ steam dick补尾款了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  bypass  
+##### 315#         楼主| 发表于 2022-10-1 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57716815&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2022-10-1 06:35</a>
+
+我的1T版发货啦！
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+我的 512 昨天晚上也发货了 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 但是已经被我卖给坛友了。
+
