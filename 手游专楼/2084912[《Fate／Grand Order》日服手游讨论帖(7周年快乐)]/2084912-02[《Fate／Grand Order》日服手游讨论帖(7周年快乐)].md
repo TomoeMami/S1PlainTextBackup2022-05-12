@@ -15522,3 +15522,32 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 （其实场上有预言家的话会给恶狼加特效...可以带几个有战续的角色进去等它上场...）
 
+
+
+*****
+
+####  spector  
+##### 2887#       发表于 2022-10-1 19:40
+
+<img src="https://img.saraba1st.com/forum/202210/01/194023ht59zk3x9mmvt29f.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (25.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-1 19:40 上传
+
+直接照着攻略打就行……
+
+*****
+
+####  qixinno2  
+##### 2888#       发表于 2022-10-1 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722174&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-1 19:12</a>
+
+狼人杀这个本可太秀了
+
+小教授一技能可以给恶狼额外上debuff，有效的甄别手段</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没用 我试过战续 雪城B叔也要强制死亡下场 强制要求你跟着机制走
+
