@@ -8722,3 +8722,13 @@ G2第一局运气太差了，那个包不掉下去估计有可能2:0<img src="ht
 
 —— 来自 Lenovo TB-9707F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  朔方原的星  
+##### 2530#         楼主| 发表于 2022-10-2 00:43
+
+c9真是烂爆了，但液体更烂
+什么ICU大乱斗
+

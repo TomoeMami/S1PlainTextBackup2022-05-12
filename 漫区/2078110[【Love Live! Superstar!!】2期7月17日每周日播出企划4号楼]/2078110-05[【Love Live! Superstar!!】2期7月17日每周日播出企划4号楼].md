@@ -3170,3 +3170,25 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 由手机上传
 2022-10-2 00:25 上传
 
+
+
+*****
+
+####  csolfans  
+##### 6269#       发表于 2022-10-2 00:34
+
+<blockquote>优妮可 发表于 2022-10-2 00:13
+工作想辞职正常，但我们一般人也就辞了辞了。小百合这个希望企划如果看到当个人吧，3rd别整什么中间三期生 ...</blockquote>
+的确，希望策划做个人
+
+*****
+
+####  愛さ実  
+##### 6270#       发表于 2022-10-2 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57725482&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-2 00:13</a>
+工作想辞职正常，但我们一般人也就辞了辞了。小百合这个希望企划如果看到当个人吧，3rd别整什么中间三期生 ...</blockquote>
+已经见过了，三期生（其一）全程嘉宾呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
