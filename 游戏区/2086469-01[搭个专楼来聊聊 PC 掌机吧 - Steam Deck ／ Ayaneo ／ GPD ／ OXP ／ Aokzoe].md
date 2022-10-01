@@ -3920,3 +3920,38 @@ OLED做掌机观感确实讨喜……
 
 —— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bypass  
+##### 320#         楼主| 发表于 2022-10-1 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717460&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2022-10-1 09:36</a>
+
+我现在有黑爆AYA的冲动，主要是。。。我前两天听说之前推到9月15的5825版air依然没发。。。
+
+  --  ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/01/122715aau9hwavavtaq3dh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-1 12:27 上传
+
+预购的应该都已经发完了。
+
+*****
+
+####  bypass  
+##### 321#         楼主| 发表于 2022-10-1 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717941&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2022-10-1 10:36</a>
+
+OLED做掌机观感确实讨喜……
+
+5825的不是应该早发完了么？我这个5560的pro好像基本上最后一批了吧</blockquote>
+OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
+

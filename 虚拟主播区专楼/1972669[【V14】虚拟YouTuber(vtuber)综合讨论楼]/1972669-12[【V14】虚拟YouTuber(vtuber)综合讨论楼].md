@@ -10847,3 +10847,13 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 结果导播经常切镜头怼着大屏的机位</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> 还是不懂为什么要拿摄像机拍舞台屏幕，都能搞AR视角了直接渲染个正面视角不好吗
 
+
+
+*****
+
+####  星野航  
+##### 17500#       发表于 2022-10-1 12:22
+
+现场更容易错过就是了
+今天12点jk组玩偶舞台就因为排机台错过
+
