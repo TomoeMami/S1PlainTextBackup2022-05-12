@@ -5028,3 +5028,21 @@ hh新的地狱又来了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 1990#       发表于 2022-10-1 14:41
+
+<img src="https://img.saraba1st.com/forum/202210/01/143903j4vg0xof0m6jxecg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-1 14:39 上传
+
+本周八字母糖
+[推特](https://twitter.com/Fir3k0/status/1575818857851150337?s=20&amp;t=RAaN0YII158lNokLUELoZA)
+

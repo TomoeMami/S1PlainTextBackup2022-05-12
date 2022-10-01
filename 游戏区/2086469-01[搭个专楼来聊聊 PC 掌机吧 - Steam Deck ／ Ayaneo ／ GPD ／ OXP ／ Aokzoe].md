@@ -3989,3 +3989,27 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  魔法酪饼  
+##### 325#       发表于 2022-10-1 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57718978&amp;ptid=2086469" target="_blank">bypass 发表于 2022-10-1 12:27</a>
+
+预购的应该都已经发完了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那就应该是谣传了
+
+*****
+
+####  任天索尼子  
+##### 326#       发表于 2022-10-1 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57719853&amp;ptid=2086469" target="_blank">deeplar 发表于 2022-10-1 14:15</a>
+
+想咨询下大伙，四千多是买sd还是6800u
+
+—— 来自 S1Fun</blockquote>
+6800U上限比SD高很多，看你想不想开28W，SD最多只能15W 。
+

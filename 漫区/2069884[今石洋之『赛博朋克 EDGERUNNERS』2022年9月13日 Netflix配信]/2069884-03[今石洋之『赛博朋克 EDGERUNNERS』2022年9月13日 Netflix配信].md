@@ -577,3 +577,30 @@ https://twitter.com/tinnies0_0/status/1575573884371279872
 <img src="https://p.sda1.dev/7/11f834a7ed48176e41bc828f075ed6f8/007BI8Eyly1h6mo823e4hj31230qrdre.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/41a2cbf6a6a06f7a81947ecd007a2757/007BI8Eyly1h6mo833f0vj30t116gdie.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ybfelix  
+##### 3047#       发表于 2022-10-1 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57716285&amp;ptid=2069884" target="_blank">Quelaan 发表于 2022-10-1 01:14</a>
+
+终于还是对大卫妈出手了
+[https://twitter.com/tinnies0_0/status/1575573884371279872](https://twitter.com/tinnies0_0/status/1575573884371279872)</blockquote>
+像是片头名单里有的CDPR方驻日本的那位联络制片人Saya Elder小姐姐的体型...
+
+*****
+
+####  stannislas  
+##### 3048#       发表于 2022-10-1 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717074&amp;ptid=2069884" target="_blank">ayanamilin 发表于 2022-10-1 08:24</a>
+
+放在别的剧里确实不合理，但是金克斯人设就是个疯子，编剧不让她疯两下说不过去呀。至于推不推动剧情，只 ...</blockquote>
+别别别，金克丝是疯子没错，可是要说其他人都不作为让一个疯子把事情搞到不可收拾，不是弱智是啥？这就是你所谓的剧情符合逻辑？而且就我记得蔚也好 周围人都劝过她不止一回，可是她就要执意发疯，你管这个叫剧情符合逻辑？
+
+至于Lucy，我只能说你看的太浅了，当然如果你接受不了含蓄表达情感，所有问题只能美式的无脑输出出来，那也无话可说
+
+但是rebacca是发疯死掉了？这片从第7集就能看出他几乎必死了，这类角色就是一个符号，生的可笑，死的微不足道，能记住她的一小撮人最后还死了，这个基本上就是赛博朋克的宿命，你要是看不懂rebacca，说明你既没看懂赛博朋克，也没看懂这类脸谱化的标签
+
