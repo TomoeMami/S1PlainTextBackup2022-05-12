@@ -3914,3 +3914,16 @@ g胖说过更新会比较快，2年可以了
 
 话说货物已打包是什么意思，已经两天了为什么还不给我发
 
+
+
+*****
+
+####  zris  
+##### 1868#       发表于 2022-10-1 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57719345&amp;ptid=2015700" target="_blank">Pettabuz 发表于 2022-10-1 13:10</a>
+话说货物已打包是什么意思，已经两天了为什么还不给我发</blockquote>
+集中发，现在量多了，大概一周发一次，是v社拉去fedex的网店。以前量少一周可以发两次。你这两天先别急。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
