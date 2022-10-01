@@ -8678,3 +8678,14 @@ g2则是小孩一泻千里。。
 
 G2第一局运气太差了，那个包不掉下去估计有可能2:0<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rainwedell  
+##### 2526#       发表于 2022-10-1 12:42
+
+今年g2最好的机会了算是，这都还拿不到冠军估计真吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
