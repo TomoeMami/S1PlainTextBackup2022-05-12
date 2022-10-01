@@ -5094,3 +5094,43 @@ chil**rt的垃圾恐怖游戏来了
 
 这狗子画得还挺像的
 
+
+
+*****
+
+####  holoan  
+##### 1997#         楼主| 发表于 2022-10-1 20:15
+
+miko：这没门的小便池上厕所的时候屁股不会被人看见吗
+
+大概是真的不知道
+
+*****
+
+####  rs5621  
+##### 1998#       发表于 2022-10-1 20:15
+
+这游戏的人物建模好猎奇
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 1999#       发表于 2022-10-1 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722783&amp;ptid=2086637" target="_blank">holoan 发表于 2022-10-1 20:15</a>
+miko：这没门的小便池上厕所的时候屁股不会被人看见吗
+
+大概是真的不知道</blockquote>
+是真的单纯
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 2000#         楼主| 发表于 2022-10-1 20:17
+
+一直都是这个风格 很省钱
+

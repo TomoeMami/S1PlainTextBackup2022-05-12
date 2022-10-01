@@ -15562,3 +15562,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 怎么这辣鸡游戏也开始坐牢了....我就想开开心心无脑光炮3T过图啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2890#       发表于 2022-10-1 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57722452&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-1 19:43</a>
+
+没用 我试过战续 雪城B叔也要强制死亡下场 强制要求你跟着机制走</blockquote>
+这关确实有意思，强迫跳出原有框架来琢磨规则夺取胜利<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+感觉高等关卡们拔高了FGO设计的上限<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
