@@ -657,3 +657,12 @@ AI操纵基本上都在跳舞，视觉效果不错，对回避磁轨炮和导弹
 已经出正式版了吗，字体能扩大吗</blockquote>
 没出，不能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  萧观澜  
+##### 67#       发表于 2022-10-2 19:05
+
+到后面感觉每回合固定被人家搞掉两个控制点，麻中麻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

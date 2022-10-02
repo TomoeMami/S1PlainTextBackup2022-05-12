@@ -4158,3 +4158,120 @@ QQ图片20221002185755.jpg
 6360差不多得了，改个名字又来胡说是吧</blockquote>
 ？？？？难道这企划还不傻逼？
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6371#       发表于 2022-10-2 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733833&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-2 18:58</a>
+
+线上配信从14场砍到6场（对于不看动画，看live的我这才是暴击</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实还是有配信的，只不过是在线下影院，当然和我们没关系就是了
+
+*****
+
+####  starring  
+##### 6372#       发表于 2022-10-2 19:04
+
+得感谢水星魔女要两个小时开播，注意力都在那边没人骂星（又或者是连骂的价值也没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6373#       发表于 2022-10-2 19:05
+
+这集看的我精神恍惚的想反向阴谋论，负责星的是不是在故意摆大烂引起上头注意越级求救，有中层搞欺上瞒下乱搞星系列规划想让它死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 6374#       发表于 2022-10-2 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别整团歌了，整solo吧，看个锤子的3巡，等着被浓缩泥头车反复创吗
+
+*****
+
+####  saya1892  
+##### 6375#       发表于 2022-10-2 19:05
+
+所以5个人压力都很大的那段时间是因为拿到这个破剧本吧
+
+上次这么无语还是上次
+
+*****
+
+####  稀勢のささ  
+##### 6376#       发表于 2022-10-2 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果还有机场回那也不过是7个人为了个人利益阻碍香哥哥的事业发展
+
+*****
+
+####  cybernetics31  
+##### 6377#       发表于 2022-10-2 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6378#       发表于 2022-10-2 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733833&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-2 18:58</a>
+线上配信从14场砍到6场（对于不看动画，看live的我这才是暴击</blockquote>
+这是不是怕场子填不满了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  we89623  
+##### 6379#       发表于 2022-10-2 19:08
+
+大香老师和8位伴舞跟班
+
+*****
+
+####  aoaoaodedede  
+##### 6380#       发表于 2022-10-2 19:08
+
+有点不理解啊，这个线上转播为啥要减场数啊，是企划有自知之明担心现地人太少了，还是准备降低对线上市场的期望了，难道已经不准备对海外观众示好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6381#       发表于 2022-10-2 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">以前我给灰灰第二季打低评价的原因之一就是稀碎的团队感，看完这话我马上回去看了ep11（草话数也对上了）我发现我错了，至少人家在情感渲染上还是很强的，最后live看得我泪水打转。妈的拉拉怎么能做成这幅样子
+
+*****
+
+####  优妮可  
+##### 6382#       发表于 2022-10-2 19:10
+
+<blockquote>we89623 发表于 2022-10-2 19:01
+？？？？难道这企划还不傻逼？ 就星这个企划现这摆烂样你还洗个JB洗</blockquote>
+谁特么洗了，叫你别什么都带上鲤鱼。在战吧主吧看过你的nt发言，不扯鲤鱼不扯郭嘉不会说话那种。
+
+*****
+
+####  we89623  
+##### 6383#       发表于 2022-10-2 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734030&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-2 19:10</a>
+
+谁特么洗了，叫你别什么都带上鲤鱼。在战吧主吧看过你的nt发言，不扯鲤鱼不扯郭嘉不会说话那种。 ...</blockquote>
+原来又是个紫吧恨国蛆了解了啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6384#       发表于 2022-10-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734056&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-2 19:11</a>
+
+原来又是个紫吧恨国蛆了解了啧啧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差不多得了，你还有那个桥田至皮套特别爱什么事往鲤鱼身上拐，鉴定为纯纯的反串黑了
+
