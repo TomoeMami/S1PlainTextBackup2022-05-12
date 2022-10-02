@@ -6860,3 +6860,21 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 去年被扳机整得我斯迈路PTSD后，今年德凯都不敢第一口尝鲜了。刚好国庆放假剧荒，昨晚尝试性看了第一集后，一口气补了12集后，不得不说比起扳机仔的剧本不是好得一点半点，简直是薄纱！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">太爽了！各种细节诚意和玩梗，还有官方吐槽，只能说编剧是懂观众的
 
+
+
+*****
+
+####  scorbian  
+##### 610#       发表于 2022-10-2 16:37
+
+一集被哈乃催着两次变身<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  athena_1982  
+##### 611#       发表于 2022-10-2 16:40
+
+忽然感觉泰拉法萨很像钢巴斯塔啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

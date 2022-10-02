@@ -3927,3 +3927,12 @@ g胖说过更新会比较快，2年可以了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  硫黄  
+##### 1869#       发表于 2022-10-2 16:43
+
+SD桌面模式装了heroic，开个游戏要等五分钟，太神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
