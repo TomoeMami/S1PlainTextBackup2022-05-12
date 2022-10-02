@@ -5774,3 +5774,15 @@ pay的话严格来说不是地偶，偶像ING解散后，手游BATON也难产，
 官方想法是一期生音番都上多少了，肯定得推二期生啊，要我说干脆彻底一点呗，直接让二期生单独talk，虽然肯定有人不乐意，但自发组织保护的人也不会少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说的是正在直播的音乐寄啊……
 
+
+
+*****
+
+####  cat1230  
+##### 6528#       发表于 2022-10-3 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739276&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-3 00:41</a>
+
+官方想法是一期生音番都上多少了，肯定得推二期生啊，要我说干脆彻底一点呗，直接让二期生单独talk，虽然肯 ...</blockquote>
+比较真人要LIVE的，多推推二期生没错。一期几个都开始频繁个活了。
+
