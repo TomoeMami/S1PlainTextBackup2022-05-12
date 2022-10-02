@@ -3619,3 +3619,182 @@ VN和大香老师算是棋逢对手了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我日还真是啊，服了这破剧情
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6311#       发表于 2022-10-2 18:22
+
+ 本帖最后由 稀勢のささ 于 2022-10-2 18:23 编辑 
+
+我看大家各回各家吧还是 VN跟香哥哥一起走 再把SNP拉回来连冠收回伏笔 第三季也不用演了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6312#       发表于 2022-10-2 18:23
+
+？有毛病吧，真的是没活了硬整。
+
+*****
+
+####  JhIenog  
+##### 6313#       发表于 2022-10-2 18:23
+
+这下不会有第三季了是吧
+
+*****
+
+####  ads147147  
+##### 6314#       发表于 2022-10-2 18:23
+
+不如大河内jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tjshibc21  
+##### 6315#       发表于 2022-10-2 18:23
+
+还SOLO阿 真就香音传 装都不装了
+
+*****
+
+####  阿姆罗二世  
+##### 6316#       发表于 2022-10-2 18:23
+
+彻底烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 6317#       发表于 2022-10-2 18:23
+
+ 本帖最后由 iuhehc 于 2022-10-2 18:26 编辑 
+
+可可飞机回？香音飞机回！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+上海剧场版？大香老师留学剧场版！
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6318#       发表于 2022-10-2 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">笑嘻了
+
+*****
+
+####  稀勢のささ  
+##### 6319#       发表于 2022-10-2 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还不是你们这群臭鱼烂虾拖了我香哥哥后腿  不然lovelive这种玩意不是手到擒来 真看不上
+
+*****
+
+####  阿姆罗二世  
+##### 6320#       发表于 2022-10-2 18:26
+
+花田自我带入大香是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  damian-wade  
+##### 6321#       发表于 2022-10-2 18:26
+
+Vn的排面全给香音垫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么绝世天才啊，组团真是委屈你了
+
+*****
+
+####  ViyViy  
+##### 6322#       发表于 2022-10-2 18:27
+
+这下要突破黑屏集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JhIenog  
+##### 6323#       发表于 2022-10-2 18:27
+
+第一季的彻底克服不能一个人唱歌算不算为方便单飞铺垫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 6324#       发表于 2022-10-2 18:28
+
+受不了了，我要去NICO打5
+
+连56话都没能让我产生这个念头
+
+裂啦真是无愧裂啦这个名字
+
+<img src="https://img.saraba1st.com/forum/202210/02/182744drl12mszrbtwwvvs.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (118.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 18:27 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6325#       发表于 2022-10-2 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香音这么牛逼以后live其他人也不用上了呗，反正都不如香音的一根。制作组是不是搞错了什么，学院偶像和纯粹的唱歌能是一回事吗
+
+*****
+
+####  starring  
+##### 6326#       发表于 2022-10-2 18:29
+
+VN还有个姐姐和音乐世家的设定，真就r3之子，可惜是臭小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+打铁的solo ed唱得好难受真的不好听，跟后面唱的裂歌对比更加明显
+
+*****
+
+####  Erikas  
+##### 6327#       发表于 2022-10-2 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以的啊，前脚说是大家的功劳，后脚就成了香音一带八
+
+*****
+
+####  GGnob  
+##### 6328#       发表于 2022-10-2 18:31
+
+香音个人live挺好的，其他人就别拖后腿了，回咖啡厅轮流侍寝吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 6329#       发表于 2022-10-2 18:31
+
+这集直接是单看生肉都觉得离谱…………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+…………唉，走好不送<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6330#       发表于 2022-10-2 18:32
+
+香音传，已经不打算演了，宇宙第一偶像和她快乐的伴舞
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6331#       发表于 2022-10-2 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很想知道这话声优在配的时候是什么感想
+
