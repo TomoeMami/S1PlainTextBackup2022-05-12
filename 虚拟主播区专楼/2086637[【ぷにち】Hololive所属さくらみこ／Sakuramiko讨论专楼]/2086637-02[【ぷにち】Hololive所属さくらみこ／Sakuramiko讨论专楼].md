@@ -5479,3 +5479,26 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 
 今天看霍比特人.
 
+
+
+*****
+
+####  holoan  
+##### 2032#         楼主| 发表于 2022-10-2 21:15
+
+昨天就说了今晚是22点开始，而且是观众要求才改的要不就像上周一样很晚
+
+*****
+
+####  holoan  
+##### 2033#         楼主| 发表于 2022-10-2 21:16
+
+apex不玩，ow不玩，就想玩这个高达FPS也就你了
+
+*****
+
+####  rs5621  
+##### 2034#       发表于 2022-10-2 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人太喜欢夏亚了
+

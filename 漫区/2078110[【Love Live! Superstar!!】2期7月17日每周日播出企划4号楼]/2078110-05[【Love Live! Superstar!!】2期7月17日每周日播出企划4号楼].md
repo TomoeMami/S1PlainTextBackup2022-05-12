@@ -4936,3 +4936,65 @@ nico评分下周二晚上出
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6449#       发表于 2022-10-2 21:17
+
+<img src="https://img.saraba1st.com/forum/202210/02/211557v4kz2wpdbo0wblkl.jpg" referrerpolicy="no-referrer">
+
+<strong>EhgHfRr.jpg</strong> (82.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:15 上传
+
+pay发的这些感想 真是为难她了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  待宵  
+##### 6450#       发表于 2022-10-2 21:17
+
+这片怎么就能拍成这种全员迷惑的剧情来的
+
+
+
+*****
+
+####  光宗薫  
+##### 6451#       发表于 2022-10-2 21:18
+
+这几天把水团又看了一遍，现在在重看缪团
+
+越看越无法理解京极和花田到底受了什么刺激，当年不都是正常人吗，是寻思大女主时髦所以也整个吗
+
+*****
+
+####  ViyViy  
+##### 6452#       发表于 2022-10-2 21:19
+
+噢，这集还有解释VN为什么能参赛的，原因是日本和国外学期时间不同，大赛9月后，按学年，VN参赛时已经算高一这个分段了。
+
+原来，企划你知道，日本和国外有学年时间差啊？
+
+*****
+
+####  aoaoaodedede  
+##### 6453#       发表于 2022-10-2 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736250&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-2 21:19</a>
+
+噢，这集还有解释VN为什么能参赛的，原因是日本和国外学期时间不同，大赛9月后，按学年，VN参赛时已经算高 ...</blockquote>
+没看生肉，所以按这个说法是不是vn已经是高中生了？
+
+*****
+
+####  D麦林  
+##### 6454#       发表于 2022-10-2 21:24
+
+关键这两天为了SIF2企划还正要重播无印
+官方你不怕大家回顾一下一对比更绷不住了吗
+
