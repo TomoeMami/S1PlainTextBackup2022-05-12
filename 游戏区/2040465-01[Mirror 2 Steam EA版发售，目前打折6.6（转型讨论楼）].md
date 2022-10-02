@@ -2448,3 +2448,15 @@ r16太扯淡了
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  232844781  
+##### 243#       发表于 2022-10-2 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712735&amp;ptid=2040465" target="_blank">物理毒狗 发表于 2022-9-30 19:35</a>
+
+我估计不是原来的制作组了，原先的风格比较成熟了，而二代里前作的特点几乎是毫无继承的，数值一塌糊涂， ...</blockquote>
+技术还是同一拨人，我同学毕业就在公司了，一直没走，还是老板和运营的问题比较大，一直给技术团队提离谱的需求。
+
