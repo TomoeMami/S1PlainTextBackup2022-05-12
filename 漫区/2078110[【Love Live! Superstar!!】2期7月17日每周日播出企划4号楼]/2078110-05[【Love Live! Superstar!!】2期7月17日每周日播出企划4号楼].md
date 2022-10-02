@@ -3225,3 +3225,22 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  愛さ実  
+##### 6274#       发表于 2022-10-2 09:33
+
+投票的结果就是能在nhk上多露十秒脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这么想还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 6275#       发表于 2022-10-2 09:33
+
+当立德不容易。企划骚操作太多总整烂活，工作强度大，为了上台就得高强度训练，鲤鱼不也被练哭过吗。再加上今年她嗓子这个情况，压力太大，有辞职念头正常，重要的事她坚持下来了，就是成长
+
