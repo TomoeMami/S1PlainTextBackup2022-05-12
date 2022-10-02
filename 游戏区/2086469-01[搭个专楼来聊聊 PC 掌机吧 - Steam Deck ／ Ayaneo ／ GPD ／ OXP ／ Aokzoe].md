@@ -4022,3 +4022,15 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 问问ayaneo2能买吗，刚刚冲动定了. 性能看起来比sd强，不知道有什么黑点
 
+
+
+*****
+
+####  医生狼多  
+##### 328#       发表于 2022-10-2 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57727584&amp;ptid=2086469" target="_blank">roamer 发表于 2022-10-2 09:54</a>
+问问ayaneo2能买吗，刚刚冲动定了. 性能看起来比sd强，不知道有什么黑点</blockquote>
+最大黑点就是发货时间吧，现在订估计要年底发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其他方面续航跟sd估计半斤八两，屏幕性能重量体积方面都优于sd
+
