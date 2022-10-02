@@ -5177,3 +5177,43 @@ superstars?superstar!
 SN ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚刚是我看漏了，VN有学校，这个学校是国际性质，所以按9月新学年，VN已经是高一了。就是为了叠有人不满为什么初中生能参赛的甲的，毕竟按日本学期来说VN现在还是初中生
 
+
+
+*****
+
+####  星降る森  
+##### 6472#       发表于 2022-10-2 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道的人还以为香音solo夺冠了呢，其实除去缪一期果皇发烧退赛外，缪和水就没有在地区预选赛输过。突破个地区预选就被特招是否有点太看的起地区冠军的含金量了......
+
+*****
+
+####  ruffian  
+##### 6473#       发表于 2022-10-2 21:59
+
+推特被unya刷屏了，我以为日本人会比我们更了解这逼企划的，感觉我这的可推在疯了一周之后已经佛了，我开始心疼unya了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 6474#       发表于 2022-10-2 22:01
+
+<img src="https://img.saraba1st.com/forum/202210/02/220049w2o55q5u8t8usm0d.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221002220036.png</strong> (19.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 22:00 上传
+
+查了下是星的分镜
+
+*****
+
+####  aoaoaodedede  
+##### 6475#       发表于 2022-10-2 22:01
+
+希望下一集别整9人的Tiny Stars就行，其他烂活随它整吧，反正再怎么样也不太可能让哪个角色彻底退团，降低一点观望值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

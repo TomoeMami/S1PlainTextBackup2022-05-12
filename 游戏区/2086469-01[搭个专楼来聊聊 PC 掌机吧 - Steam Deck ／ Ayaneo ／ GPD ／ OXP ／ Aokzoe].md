@@ -4061,3 +4061,14 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 综合下来SD还是挺合算的 特别是价格来说无敌..
 
+
+
+*****
+
+####  cleaner  
+##### 331#       发表于 2022-10-2 21:56
+
+7800U是不是又很强，等等党永不吃亏<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
