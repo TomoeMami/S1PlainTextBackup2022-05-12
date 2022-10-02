@@ -5140,3 +5140,40 @@ superstars?superstar!
 
 うにゃ老哥在不停地找补自我安慰，感觉下一话要嗷的一声疯特了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 6469#       发表于 2022-10-2 21:48
+
+想到3rd自推出镜变少也就算了，还要跟着live回归这sb剧情，不如赶紧分小组算了，开点小场的小组live，说不定还能混个把曲子c位站站，多么卑微的想法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沙茶酱  
+##### 6470#       发表于 2022-10-2 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736671&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-2 21:44</a>
+
+うにゃ老哥在不停地找补自我安慰，感觉下一话要嗷的一声疯特了</blockquote>
+只能说，表面上乐子人很多
+
+但是真心实意爱着星团以及中之人的人肯定不在少数
+
+*****
+
+####  ViyViy  
+##### 6471#       发表于 2022-10-2 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736543&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-2 21:37</a>
+
+不是 可是这种以学校为主轴的大赛不应该以学籍为准的吗
+
+那按这说法SNP留级再参赛反倒破产了 没法这么做
+
+SN ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚刚是我看漏了，VN有学校，这个学校是国际性质，所以按9月新学年，VN已经是高一了。就是为了叠有人不满为什么初中生能参赛的甲的，毕竟按日本学期来说VN现在还是初中生
+
