@@ -710,3 +710,25 @@ lucy从人设到性格算是最近几年最喜欢的女主角了
 
 只能说曼恩的死把主角搞魔怔了...
 
+
+
+*****
+
+####  瘦猪与肥猴二号  
+##### 3058#       发表于 2022-10-2 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57716285&amp;ptid=2069884" target="_blank">Quelaan 发表于 2022-10-1 01:14</a>
+终于还是对大卫妈出手了
+
+https://twitter.com/tinnies0_0/status/1575573884371279872</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太太，你也不希望你的儿子在学校被欺负吧
+
+*****
+
+####  鱼雷鲨  
+##### 3059#       发表于 2022-10-2 14:41
+
+[https://www.pixiv.net/artworks/101529545](https://www.pixiv.net/artworks/101529545)
+
+看一眼简介和评论区，能从重锤直接变成银手
+
