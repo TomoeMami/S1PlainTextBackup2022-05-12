@@ -4402,3 +4402,36 @@ QQ图片20221002185755.jpg
 这个我感觉是不是两边live负责人员不一样 ...</blockquote>
 也说不定，虹4th是2月26,27.那个时间点它LVJ才在宣传3月初的水6th转播
 
+
+
+*****
+
+####  ads147147  
+##### 6397#       发表于 2022-10-2 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733933&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-2 19:04</a>
+
+得感谢水星魔女要两个小时开播，注意力都在那边没人骂星（又或者是连骂的价值也没有 ...</blockquote>
+早就没有提的价值了，瓶子直播随便提了些，泛式这边都懒得提了，至于台长，都是楼里的老梗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6398#       发表于 2022-10-2 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哦对，直接去推特话题下看就行了
+
+*****
+
+####  稀勢のささ  
+##### 6399#       发表于 2022-10-2 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">等香哥哥一走 就剩下一堆臭鱼烂虾你可可也只能回家大家原地解散
+
+*****
+
+####  型月重工  
+##### 6400#       发表于 2022-10-2 19:33
+
+这B动画，能让粉转黑也真的不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
