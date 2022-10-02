@@ -5453,3 +5453,12 @@ QQ图片20221002221859.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说真的我真希望企划确实很恨可香篇。因为这样它们看着这一地鸡毛的星动画有可能真就咬牙推倒重来了。
 
+
+
+*****
+
+####  笋狐  
+##### 6498#       发表于 2022-10-2 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">客观来说，现在剧情不去触碰的东西才是对它最大的温柔
+
