@@ -3798,3 +3798,149 @@ VN还有个姐姐和音乐世家的设定，真就r3之子，可惜是臭小鬼<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很想知道这话声优在配的时候是什么感想
 
+
+
+*****
+
+####  a92063256  
+##### 6332#       发表于 2022-10-2 18:34
+
+没看，但是看你们的讨论也感觉太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CharlieZ-  
+##### 6333#       发表于 2022-10-2 18:35
+
+最后几集做好点说不定还能和闪耀路标拼一枪吧，这集看完感觉没戏了，彻底被爆烂
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6334#       发表于 2022-10-2 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733454&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-2 18:35</a>
+
+最后几集做好点说不定还能和闪耀路标拼一枪吧，这集看完感觉没戏了，彻底被爆烂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">连闪耀路标的live都打不过，别说剧情了
+
+*****
+
+####  D麦林  
+##### 6335#       发表于 2022-10-2 18:35
+
+不是这下集都开始点题了
+意思是第三季和三期生都没有了？
+
+*****
+
+####  稀勢のささ  
+##### 6336#       发表于 2022-10-2 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">臭鱼烂虾们早点退团 别给我香哥哥拖后腿了真的 要不是你们四个第一季能输？
+
+*****
+
+####  沙茶酱  
+##### 6337#       发表于 2022-10-2 18:36
+
+好像说5CH有人看完这集的感想是：“酒井对不起”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 6338#       发表于 2022-10-2 18:37
+
+还好没看生肉，看坛里这讨论，估计熟肉出来还得再骂一轮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6339#       发表于 2022-10-2 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得千砂都和夏美这话要风评被害了
+
+*****
+
+####  D麦林  
+##### 6340#       发表于 2022-10-2 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733476&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-2 18:36</a>
+好像说5CH有人看完这集的感想是：“酒井对不起”</blockquote>
+早该对不起了 星一期过后我就原谅酒井了 现在我觉得是真该对不起酒井
+
+*****
+
+####  starring  
+##### 6341#       发表于 2022-10-2 18:40
+
+整集都是U咩和斯麦路，死去的A5和01的记忆正在攻击我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+Liella什么玩意连垫脚石都做不到就是绊脚石，还要浪费香哥哥三年的大好年华，建议单飞向世界出发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 6342#       发表于 2022-10-2 18:40
+
+这一话太逆天了，只能说花田已经到了八奇领域
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6343#       发表于 2022-10-2 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733454&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-2 18:35</a>
+
+最后几集做好点说不定还能和闪耀路标拼一枪吧，这集看完感觉没戏了，彻底被爆烂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6344#       发表于 2022-10-2 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们来叠一下盒子 
+
+VN能爆杀上届冠军SNP 但说到底也不过是个落榜艺术生  而香哥哥是别人直接邀请的水平
+
+这起码高了十倍甚至九倍吧
+
+而一期liella不过是被SNP按着打的水平 
+
+你们二年级四个B去年到底拖了香哥哥多大的后腿啊
+
+而一年级还被评价在这种组合里都能拖后腿
+
+真是不得不感恩戴德谢谢香哥哥带你们进决赛
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6345#       发表于 2022-10-2 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733543&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-2 18:40</a>
+
+闪第九集那几分钟不切路人视角的手绘live 你星可没有哦 比不了的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一，切了路人视角的手绘live也不一定差啊，我特别喜欢灰姑娘动画的live里舞台上的偶像和台下观众打call的互动
+
+*****
+
+####  Erikas  
+##### 6346#       发表于 2022-10-2 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733475&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-2 18:36</a>
+臭鱼烂虾们早点退团 别给我香哥哥拖后腿了真的 要不是你们四个第一季能输？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经跟不上香音的幼驯染，来野鸡学校留学的中国人跟野鸡学校的学生会长，没混出头的子役
+哦还有要报香音大腿才能当回上等人的落榜妹
+
+*****
+
+####  renkan119  
+##### 6347#       发表于 2022-10-2 18:44
+
+Vn直接变成xianyy
+
