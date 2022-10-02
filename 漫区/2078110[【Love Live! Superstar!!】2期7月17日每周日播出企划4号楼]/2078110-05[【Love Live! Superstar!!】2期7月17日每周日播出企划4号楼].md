@@ -3430,3 +3430,134 @@ VN红温了，急了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我们人多”
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6286#       发表于 2022-10-2 18:05
+
+香门：我不这么认为！
+
+*****
+
+####  稀勢のささ  
+##### 6287#       发表于 2022-10-2 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">そうかな
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6288#       发表于 2022-10-2 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733018&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-2 18:05</a>
+
+そうかな</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这句真的ptsd了
+
+*****
+
+####  稀勢のささ  
+##### 6289#       发表于 2022-10-2 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733033&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-2 18:06</a>
+
+这句真的ptsd了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">还是不一样的 改了个说法（
+
+*****
+
+####  tjshibc21  
+##### 6290#       发表于 2022-10-2 18:08
+
+我滴鬼鬼 大香老师又开始了
+
+*****
+
+####  iuhehc  
+##### 6291#       发表于 2022-10-2 18:09
+
+受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6292#       发表于 2022-10-2 18:09
+
+下一季（有的话）对手团就是VN姐姐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  还能合理加戏
+
+*****
+
+####  ViyViy  
+##### 6293#       发表于 2022-10-2 18:09
+
+我很好奇那边真的接受现在这样塑造的VN加入吗？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6294#       发表于 2022-10-2 18:09
+
+这vn越来越感觉雌小鬼臭了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我香门要狠狠惩罚你口牙！
+
+*****
+
+####  Vacuolar  
+##### 6295#       发表于 2022-10-2 18:10
+
+哈哈哈哈，第二季最后一集是这一季的正常水平发挥，提前期待打分了
+
+*****
+
+####  Kfly  
+##### 6296#       发表于 2022-10-2 18:10
+
+香音出面倒是在预料之中
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6297#       发表于 2022-10-2 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">音乐世家真的看得上lovelive大赛吗
+
+*****
+
+####  稀勢のささ  
+##### 6298#       发表于 2022-10-2 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故意的吧
+
+*****
+
+####  新HGCG  
+##### 6299#       发表于 2022-10-2 18:14
+
+可可不用回上海了
+
+香音要去维也纳了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6300#       发表于 2022-10-2 18:14
+
+反而香音先去留学了，听说可可你想要剧场版c<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tjshibc21  
+##### 6301#       发表于 2022-10-2 18:14
+
+VN和大香老师算是棋逢对手了
+
+*****
+
+####  tjshibc21  
+##### 6302#       发表于 2022-10-2 18:14
+
+VN和大香老师算是棋逢对手了
+
