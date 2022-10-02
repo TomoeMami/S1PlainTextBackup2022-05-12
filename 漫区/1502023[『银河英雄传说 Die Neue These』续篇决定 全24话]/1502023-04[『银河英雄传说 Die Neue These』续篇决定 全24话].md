@@ -9661,3 +9661,12 @@ oped不换的么
 
 话说新战舰造型出了模型了吗
 
+
+
+*****
+
+####  shimotsuki14  
+##### 5453#       发表于 2022-10-2 14:10
+
+秃鹰要塞的机动性表现得也太强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
