@@ -11081,3 +11081,14 @@ slm这紧张的
 
 <img src="http://tvax2.sinaimg.cn/large/7c16af6bly1h6r384mcnhj20xp0j278a.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 17522#       发表于 2022-10-2 17:54
+
+不得不说月之这个人，但凡大型live出场，一场比一场有发挥，水平是真的长进迅速
+
+而且今年投稿的几首，个人风格的融入是精彩的，难得啊
+
