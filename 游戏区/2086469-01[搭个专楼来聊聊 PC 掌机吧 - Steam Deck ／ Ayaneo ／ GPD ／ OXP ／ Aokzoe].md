@@ -4072,3 +4072,16 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  医生狼多  
+##### 332#       发表于 2022-10-2 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736849&amp;ptid=2086469" target="_blank">cleaner 发表于 2022-10-2 21:56</a>
+7800U是不是又很强，等等党永不吃亏
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+理论上是的，我已经在研究7800u和sd2了
+

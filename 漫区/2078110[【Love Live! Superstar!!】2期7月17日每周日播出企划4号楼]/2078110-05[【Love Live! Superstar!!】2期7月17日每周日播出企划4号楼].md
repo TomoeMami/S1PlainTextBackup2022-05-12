@@ -5305,3 +5305,59 @@ QQ图片20221002221859.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  adw667  
+##### 6484#       发表于 2022-10-2 22:24
+
+正好随机播放到这首<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/02/222412jncp77see75cbj52.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221002222322.png</strong> (116.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 22:24 上传
+
+*****
+
+####  ViyViy  
+##### 6485#       发表于 2022-10-2 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">うにゃ别12话后破防润了，这是同人产出算稳定的明牌可推了，他撤了要闹饥荒了。星二动画这稀烂的角色效应和没有个人回的debuff可可同人的产出频率已经很低了。
+
+噢对，推上可香太君还挺乐观，奶12集可香呢，可能吗，S156PLUS罢了。
+
+*****
+
+####  csolfans  
+##### 6486#       发表于 2022-10-2 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737303&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-2 22:22</a>
+
+倒是想推，加几个群鲤黑太多了，你嘴星团动画我还喜闻乐见，动不动就嘴到我推身上，上次4th还被弹幕骑脸， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5th弹幕紫吧团建
+
+*****
+
+####  Kfly  
+##### 6487#       发表于 2022-10-2 22:31
+
+这还能乐观的啊，十二集怎么想都是香音/香千回啥的，别人也就能附和几句吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6488#       发表于 2022-10-2 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737303&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-2 22:22</a>
+倒是想推，加几个群鲤黑太多了，你嘴星团动画我还喜闻乐见，动不动就嘴到我推身上，上次4th还被弹幕骑脸， ...</blockquote>
+搞星虹对立的肯定不是什么好人的，不如退群更好。
+
+不过说实话现在的大环境，真的是火才是错。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
