@@ -5992,3 +5992,19 @@ fkhr弄出什么烂活我都不惊讶
 现在月末活动奖励里没武器了？刷了600万掉了一把..</blockquote>
 武器在任务裏。
 
+
+
+*****
+
+####  phoenixxj  
+##### 17094#       发表于 2022-10-2 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57718774&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2022-10-1 12:06</a>
+
+所以完全不打算出风团对策角是吗</blockquote>
+季限（咦 怎么又是风）
+
+终突 可能不止一个 
+
+甚至过分一点1个半月后出风龙
+
