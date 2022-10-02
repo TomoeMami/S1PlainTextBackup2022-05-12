@@ -5197,3 +5197,16 @@ kino加油
 
 而且她们的团服3人区分度有点低了，色系都一样
 
+
+
+*****
+
+####  天青月白  
+##### 2061#       发表于 2022-10-2 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734152&amp;ptid=1926094" target="_blank">isla 发表于 2022-10-2 19:17</a>
+质感不一样
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+应该不是材质，看了下反馈，不止她们，其他v的也怪怪的
+

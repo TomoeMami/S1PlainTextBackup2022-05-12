@@ -4530,3 +4530,67 @@ md动画烂就烂了，反正也就是烂与更烂的区别。
 
 京极和花田 真是这次的主锅吗？ 我怎么觉得这俩也有可能是受害者啊...
 
+
+
+*****
+
+####  愛さ実  
+##### 6411#       发表于 2022-10-2 20:04
+
+md原本懒得去打分，凭他live的操作这周说什么也去nico给他个5，这么想要企划史上最低分那就满足你<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 6412#       发表于 2022-10-2 20:05
+
+ 本帖最后由 nufawneafg 于 2022-10-2 20:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734942&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-2 20:01</a>
+京极和花田 真是这次的主锅吗？ 我怎么觉得这俩也有可能是受害者啊...</blockquote>
+受害者多了，在座的你我还是受害者呢
+但是只要敢署这个名，敢在这个位置上待着，直接责任人没跑吧...
+
+*****
+
+####  ViyViy  
+##### 6413#       发表于 2022-10-2 20:06
+
+被迫挂名阴谋论是吧。这个只能等它两被爆破得再也受不了出来发声才知道了。反正这回必给它花田京极干退网咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 6414#       发表于 2022-10-2 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735012&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-2 20:05</a>
+
+受害者多了，在座的你我还是受害者呢
+
+但是只要敢署这个名，直接责任人没跑吧... ...</blockquote>
+我觉得把，这俩人能写出第一季前三集的剧情，水平应该是没问题的。
+
+*****
+
+####  iuhehc  
+##### 6415#       发表于 2022-10-2 20:07
+
+一期前三集是不是找人代写的啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 6416#       发表于 2022-10-2 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734942&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-2 20:01</a>
+
+京极和花田 真是这次的主锅吗？ 我怎么觉得这俩也有可能是受害者啊...</blockquote>
+花田：我不喜欢的剧本我可以不接。
+
+锅是躲不掉的，哪怕是上面的大人物跳出来说是自己安排的，花田也有本事别说这种装b的话啊，有本事别写啊。
+
+至于京极，整个动画他拍板，他敢不拍就不会有这事。
+

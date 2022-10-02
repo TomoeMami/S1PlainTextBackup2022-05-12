@@ -5408,3 +5408,12 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 
 高达进化启动!看看能碰到miko么
 
+
+
+*****
+
+####  rs5621  
+##### 2026#       发表于 2022-10-2 20:07
+
+草,队友都跑了3个,太惨了
+
