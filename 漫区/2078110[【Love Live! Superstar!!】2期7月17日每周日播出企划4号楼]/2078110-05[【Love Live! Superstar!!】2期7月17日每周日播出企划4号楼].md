@@ -4509,3 +4509,24 @@ md动画烂就烂了，反正也就是烂与更烂的区别。
 
 那么多巡演加回放动画，属于是精神和身体双重折磨了
 
+
+
+*****
+
+####  csolfans  
+##### 6409#       发表于 2022-10-2 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734810&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-2 19:53</a>
+
+md动画烂就烂了，反正也就是烂与更烂的区别。
+
+三巡转播这么少是什么意思？海外观众不当人是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不相信每一场都有BD
+
+*****
+
+####  we89623  
+##### 6410#       发表于 2022-10-2 20:01
+
+京极和花田 真是这次的主锅吗？ 我怎么觉得这俩也有可能是受害者啊...
+
