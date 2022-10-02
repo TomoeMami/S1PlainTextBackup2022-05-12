@@ -4435,3 +4435,51 @@ QQ图片20221002185755.jpg
 
 这B动画，能让粉转黑也真的不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 6401#       发表于 2022-10-2 19:37
+
+一个广告片能做成sancheck属于是历史性成就了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yicihanshu  
+##### 6402#       发表于 2022-10-2 19:38
+
+ 本帖最后由 yicihanshu 于 2022-10-2 19:43 编辑 
+
+不如思维开阔一些，就像一单有两个版本，动画可能也有两个if线，一条是私を叶える物语，简称香音传，一条是みんなを叶える物语。
+星团剧情完全重置指日可待。
+
+虽然我好像已经猜到下下集标题并意识到以上都是做梦了。
+哦，星12集的，那还是等死吧…
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 6403#       发表于 2022-10-2 19:39
+
+有点理解之前为啥小百合想辞职了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6404#       发表于 2022-10-2 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这话vn能小丑成这样真是打死我都想不到，有些剧情不太确定等会熟肉再看遍
+
+*****
+
+####  adw667  
+##### 6405#       发表于 2022-10-2 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734169&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-2 19:18</a>
+
+可能接下来就是打铁solo出道，土妹接过衣钵当上队长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">铃原都不够樱小路打的还接立德
+
