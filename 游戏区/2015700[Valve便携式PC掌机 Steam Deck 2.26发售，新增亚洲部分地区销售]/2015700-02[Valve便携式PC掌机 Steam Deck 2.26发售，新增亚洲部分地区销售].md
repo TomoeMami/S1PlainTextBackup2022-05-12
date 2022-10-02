@@ -3947,3 +3947,22 @@ SD桌面模式装了heroic，开个游戏要等五分钟，太神秘了<img src=
 SD桌面模式装了heroic，开个游戏要等五分钟，太神秘了</blockquote>
 用heroic装游戏，启动另外装个legendary+指令的方式，这样快一些
 
+
+
+*****
+
+####  硫黄  
+##### 1871#       发表于 2022-10-3 07:53
+
+steamdick这个os咖喱味实在太浓了
+
+有些默认全屏的游戏，打开后黑屏但有声音，按键有反应
+
+改兼容层没用，但切桌面模式就打开就变窗口化能跑了，比如数码兽赛博侦探
+
+有的切桌面模式打开还是全屏黑屏。比如回溯依存
+
+只要在电脑上在进游戏改成窗口模式，然后云存档
+
+sd上同步存档以后就能玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
