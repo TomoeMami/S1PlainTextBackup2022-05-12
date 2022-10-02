@@ -4661,3 +4661,151 @@ md原本懒得去打分，凭他live的操作这周说什么也去nico给他个5
 
 虽然就几条，但是太君估计要到极限了，企划是真觉得可推都是拆尼斯啊，24集拆不出1集讲，你好歹做做样子不说哄哄我们大陆，哄自己人这种最基本的也要做好吧？
 
+
+
+*****
+
+####  ads147147  
+##### 6424#       发表于 2022-10-2 20:33
+
+vn，落榜生，爆杀各种学园偶像，拉拉大赛是cjb
+
+香音，落榜生，爆杀各种学园偶像，还爆杀了vn，拉拉大赛的cjb
+
+8个伴舞还拖累了香音第一次爆杀，凸显了liella也是cjb，只有香音一人是圣人的本质。
+
+说到底这个世界就是绕着香音一个人转的，只有民警作为可可的卫星跑去绕着可可转了，她真的，我哭死。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|我嗑死|
+| 兔姬姬姬姬姬| + 1|我磕死|
+
+查看全部评分
+
+*****
+
+####  stygian  
+##### 6425#       发表于 2022-10-2 20:34
+
+<img src="https://img.saraba1st.com/forum/202210/02/203436riinxabor9gxb4ca.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 20:34 上传
+
+这串我真没绷住，爆笑
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6426#       发表于 2022-10-2 20:35
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-2 20:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/02/203437v22ee5www3lfes80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 20:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">5ch都能看明白的道理企划会不懂吗，至于为什么现在做成这样，嘻嘻
+
+<img src="https://img.saraba1st.com/forum/202210/02/203834lp6pnb5pnpx9pg41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 20:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 6427#       发表于 2022-10-2 20:36
+
+顺便一提今晚无印重播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 6428#       发表于 2022-10-2 20:36
+
+ 本帖最后由 Kfly 于 2022-10-2 20:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734942&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-2 20:01</a>
+
+京极和花田 真是这次的主锅吗？ 我怎么觉得这俩也有可能是受害者啊...</blockquote>
+现在还分什么锅啊，也就是锅大锅小的区别罢了，哪怕上面强行要求也不至于写到这种程度吧，这里面包含多少尊重？
+
+要我说直接把所有能直接影响内容的家伙一起打包送走得了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6429#       发表于 2022-10-2 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735040&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-2 20:06</a>
+我觉得把，这俩人能写出第一季前三集的剧情，水平应该是没问题的。</blockquote>
+我的建议是把这个亚萨西的劲儿用到和同好交流上
+这两个哪个没参与过好作品，也正是凭着之前的好发挥各方才会信任你让你把这个梁扛起来
+结果一边说我行我行大言不惭挥毫署名，一边直接不管不问拿着自己带创作者的优越感把所有人整的哭笑不得。
+以前我一直以为综合企划尤其是偶像动画的受众是很好满足的只要那几个点压中了基本上就takemymoney了，现在整的大伙站场子里听着歌都心情复杂。这还让大伙怎么评价...庙小不容大佛？可是是你自己同意过来的啊。
+
+*****
+
+####  ViyViy  
+##### 6430#       发表于 2022-10-2 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735480&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-2 20:33</a>
+
+vn，落榜生，爆杀各种学园偶像，拉拉大赛是cjb
+
+香音，落榜生，爆杀各种学园偶像，还爆杀了vn，拉拉大赛的cj ...</blockquote>
+别尬，堇也是绕香音转，上一集还在和可可抱抱哭哭，下一集就像查出轨一样问香音什么时候去北海道见“小三“呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6431#       发表于 2022-10-2 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nico评分是啥时候出来着，好急
+
+*****
+
+####  lj205  
+##### 6432#       发表于 2022-10-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735623&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-2 20:42</a>
+nico评分是啥时候出来着，好急</blockquote>
+周二
+
+*****
+
+####  iuhehc  
+##### 6433#       发表于 2022-10-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735623&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-2 20:42</a>
+nico评分是啥时候出来着，好急</blockquote>
+周二晚上吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 6434#       发表于 2022-10-2 20:43
+
+nico评分下周二晚上出
+
