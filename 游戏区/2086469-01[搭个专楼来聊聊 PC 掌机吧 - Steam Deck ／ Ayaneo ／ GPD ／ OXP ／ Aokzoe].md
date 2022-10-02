@@ -4034,3 +4034,30 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 最大黑点就是发货时间吧，现在订估计要年底发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 其他方面续航跟sd估计半斤八两，屏幕性能重量体积方面都优于sd
 
+
+
+*****
+
+####  schneehertz  
+##### 329#       发表于 2022-10-2 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57727584&amp;ptid=2086469" target="_blank">roamer 发表于 2022-10-2 09:54</a>
+问问ayaneo2能买吗，刚刚冲动定了. 性能看起来比sd强，不知道有什么黑点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我6月看了个ppt订了个plus，四个月了连ppt都没更新一页，感觉像被诈骗了一样
+
+—— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  風舞雪  
+##### 330#       发表于 2022-10-2 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57720097&amp;ptid=2086469" target="_blank">任天索尼子 发表于 2022-10-1 14:48</a>
+
+6800U上限比SD高很多，看你想不想开28W，SD最多只能15W 。</blockquote>
+10W左右 SD完胜 超过10W 6800U好
+
+但是你得思考的问题就是 你的掌机电池容量够你玩多久
+
+综合下来SD还是挺合算的 特别是价格来说无敌..
+

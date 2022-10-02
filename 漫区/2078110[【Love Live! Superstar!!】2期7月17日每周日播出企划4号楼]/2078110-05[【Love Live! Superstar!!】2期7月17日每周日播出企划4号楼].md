@@ -3360,3 +3360,12 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 2022-10-2 10:04 上传
 
+
+
+*****
+
+####  adw667  
+##### 6278#       发表于 2022-10-2 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">2.5也是属于2不是，说难听点就是和纸片人争夺大脑的控制权
+
