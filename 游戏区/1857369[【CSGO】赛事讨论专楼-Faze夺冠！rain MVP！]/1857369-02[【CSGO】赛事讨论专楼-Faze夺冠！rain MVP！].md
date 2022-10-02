@@ -8957,3 +8957,14 @@ G2的决赛不用看 一觉起来又是一次遗憾
 
 总决赛怎么还是这个人山人海的场地啊，到底谁想到去马耳他办比赛的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2558#       发表于 2022-10-2 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737910&amp;ptid=1857369" target="_blank">朔方原的星MK.2 发表于 2022-10-2 23:00</a>
+总决赛怎么还是这个人山人海的场地啊，到底谁想到去马耳他办比赛的</blockquote>
+ESL简直nt，之前下半年在丹麦办epl不都挺好的吗，结果马耳他也不找个好的场馆
+
