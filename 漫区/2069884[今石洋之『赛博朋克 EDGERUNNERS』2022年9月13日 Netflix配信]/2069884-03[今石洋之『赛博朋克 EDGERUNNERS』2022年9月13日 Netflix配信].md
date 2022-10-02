@@ -845,3 +845,14 @@ David为荒坂公司提供了宝贵的实验兵器实战数据，Lucy也为荒�
 
 贴吧的哀嚎大合唱，看见了吗
 
+
+
+*****
+
+####  Schwarzess  
+##### 3064#       发表于 2022-10-2 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57732366&amp;ptid=2069884" target="_blank">鱼雷鲨 发表于 2022-10-2 17:12</a>
+贴吧的哀嚎大合唱，看见了吗</blockquote>
+虽然但是，小作文就不用转了。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

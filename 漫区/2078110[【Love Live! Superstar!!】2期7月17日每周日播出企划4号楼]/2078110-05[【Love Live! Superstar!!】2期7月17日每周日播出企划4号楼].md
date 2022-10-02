@@ -4052,3 +4052,109 @@ yysy 香音没进结女音乐科是因为怯场一句都没唱出来啊<img src=
 
 服。。。。服。。。。。没啥能说了
 
+
+
+*****
+
+####  we89623  
+##### 6360#       发表于 2022-10-2 18:57
+
+何止可可，建议鲤鱼也辞职，这傻逼企划不干也罢
+
+
+
+*****
+
+####  lj205  
+##### 6361#       发表于 2022-10-2 18:58
+
+干脆别开什么三巡了，直接打铁solo吧，下一集宣布解散星团
+
+*****
+
+####  csolfans  
+##### 6362#       发表于 2022-10-2 18:58
+
+线上配信从14场砍到6场（对于不看动画，看live的我这才是暴击
+
+QQ图片20221002185755.jpg
+(241.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/185818wt2chcp60o2hxc8z.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6363#       发表于 2022-10-2 18:58
+
+好家伙90分钟
+<img src="https://p.sda1.dev/7/91c70c06a0411b180ee691f999171de1/CMP_20221002185819819.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CharlieZ-  
+##### 6364#       发表于 2022-10-2 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733543&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-2 18:40</a>
+
+闪第九集那几分钟不切路人视角的手绘live 你星可没有哦 比不了的</blockquote>
+目前补到第七集，感觉每个live水准都是赛马娘最后一集那个水准，给我看傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6365#       发表于 2022-10-2 18:59
+
+ 本帖最后由 优妮可 于 2022-10-2 19:00 编辑 
+
+6360差不多得了，改个名字又来胡说是吧
+
+*****
+
+####  仟音一心  
+##### 6366#       发表于 2022-10-2 18:59
+
+<img src="https://p.sda1.dev/7/97600be8d72569a8f789ec7c1bbbde7e/28p9707oxtdkjqf2460qt144d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6367#       发表于 2022-10-2 18:59
+
+<img src="https://p.sda1.dev/7/97600be8d72569a8f789ec7c1bbbde7e/28p9707oxtdkjqf2460qt144d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6368#       发表于 2022-10-2 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733729&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-2 18:51</a>
+
+要叠的话，结女更离谱吧，香音都进不了音乐科
+
+而这音乐科一年下来甚至连个像样的成绩都没拿到，你们是什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考不上？ 看不上！
+
+*****
+
+####  Kfly  
+##### 6369#       发表于 2022-10-2 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733858&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-2 18:59</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 6370#       发表于 2022-10-2 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733845&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-2 18:59</a>
+
+6360差不多得了，改个名字又来胡说是吧</blockquote>
+？？？？难道这企划还不傻逼？
+
