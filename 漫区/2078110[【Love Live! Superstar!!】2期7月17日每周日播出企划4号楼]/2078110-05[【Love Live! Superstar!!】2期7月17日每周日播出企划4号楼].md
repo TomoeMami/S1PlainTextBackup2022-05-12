@@ -4809,3 +4809,37 @@ nico评分是啥时候出来着，好急</blockquote>
 
 nico评分下周二晚上出
 
+
+
+*****
+
+####  lj205  
+##### 6435#       发表于 2022-10-2 20:47
+
+说起来还有上映会呢，害得被迫吹两次<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 6436#       发表于 2022-10-2 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">中日可推达成共识
+
+*****
+
+####  ads147147  
+##### 6437#       发表于 2022-10-2 20:51
+
+下周播完最终回还得马上生放公开处刑呢，到时候大家看弹幕不筛一遍敢看？我怕sayu再哭着对妈妈说想辞职。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 6438#       发表于 2022-10-2 20:54
+
+鲤鱼好惨，上映会安排在最后几集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
