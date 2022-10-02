@@ -4275,3 +4275,130 @@ QQ图片20221002185755.jpg
 原来又是个紫吧恨国蛆了解了啧啧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差不多得了，你还有那个桥田至皮套特别爱什么事往鲤鱼身上拐，鉴定为纯纯的反串黑了
 
+
+
+*****
+
+####  ViyViy  
+##### 6385#       发表于 2022-10-2 19:14
+
+知道自己三巡可能很不好看那一开始就要好好做动画啊？
+
+我不知道星现在到底在想什么，又要全面缩卵只给本地人服务？
+
+*****
+
+####  nufawneafg  
+##### 6386#       发表于 2022-10-2 19:15
+
+# 查询观众精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+要是个人恩怨私下对线吧，帽子大战就没意思了
+
+*****
+
+####  we89623  
+##### 6387#       发表于 2022-10-2 19:15
+
+ 本帖最后由 we89623 于 2022-10-2 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734095&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-2 19:13</a>
+
+差不多得了，你还有那个桥田至皮套特别爱什么事往鲤鱼身上拐，鉴定为纯纯的反串黑了 ...</blockquote>
+..? 什么事都往我头上安是吧。 先说明我可不是鲤鱼黑。 可能你们有些人觉得我在YYGQ..? 那可不是，我是真心希望鲤鱼脱离这个烂企划...安心搞个人活动。 当然紫吧死女马恨国蛆怎么想的就不知道了。
+
+*****
+
+####  优妮可  
+##### 6388#       发表于 2022-10-2 19:18
+
+<blockquote>we89623 发表于 2022-10-2 19:11
+原来又是个紫吧恨国蛆了解了啧啧
+
+还有星团主吧是LOVELIVE吧，萌战吧是虹咲主吧。 先搞清楚。
+</blockquote>
+笑拉了，你那贴就是我找主吧吧务删的，我又紫吧恨国蛆了？你不会以为别人忘了你说过什么吧，上次楼里硬歪nagi的也是你。
+
+*****
+
+####  lj205  
+##### 6389#       发表于 2022-10-2 19:18
+
+可能接下来就是打铁solo出道，土妹接过衣钵当上队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 6390#       发表于 2022-10-2 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734101&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-2 19:14</a>
+
+知道自己三巡可能很不好看那一开始就要好好做动画啊？
+
+我不知道星现在到底在想什么，又要全面缩卵只给本地 ...</blockquote>
+还真有点这个感觉，你看B站那个LVJ_Official，它上一个动态还是7月10号，虹的Live它也没搞付费转播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  we89623  
+##### 6391#       发表于 2022-10-2 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734156&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-2 19:18</a>
+
+笑拉了，你那贴就是我找主吧吧务删的，我又紫吧恨国蛆了？你不会以为别人忘了你说过什么吧，上次楼里硬歪 ...</blockquote>
+歪nagi...? 我还真忘了，你说说那贴的名称，这样我好想能想起来。
+
+*****
+
+####  D麦林  
+##### 6392#       发表于 2022-10-2 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734179&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-2 19:19</a>
+还真有点这个感觉，你看B站&amp; ...</blockquote>
+虹4th它就没转
+它上线至今都只转过水和星的
+这个我感觉是不是两边live负责人员不一样
+
+*****
+
+####  Enakina  
+##### 6393#       发表于 2022-10-2 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734179&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-2 19:19</a>
+还真有点这个感觉，你看B站&amp; ...</blockquote>
+可能的确是不打算搞海外（国内）市场了，那个lv试试水，发现赚不到多少钱，事还多
+
+*****
+
+####  Enakina  
+##### 6394#       发表于 2022-10-2 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734206&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-2 19:20</a>
+虹4th它就没转
+它上线至今都只转过水和星的
+这个我感觉是不是两边live负责人员不一样 ...</blockquote>
+应该不是，虹4那会这个号才刚注册
+
+*****
+
+####  ads147147  
+##### 6395#       发表于 2022-10-2 19:24
+
+经常有人说，拉拉就是京极花田的孩子，他们不会毁了他的。
+
+事实正如很多父母不会养孩子也有，京极花田一样会毁了他们的孩子<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 6396#       发表于 2022-10-2 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57734206&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-2 19:20</a>
+
+虹4th它就没转
+
+它上线至今都只转过水和星的
+
+这个我感觉是不是两边live负责人员不一样 ...</blockquote>
+也说不定，虹4th是2月26,27.那个时间点它LVJ才在宣传3月初的水6th转播
+
