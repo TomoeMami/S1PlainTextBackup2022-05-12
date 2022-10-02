@@ -747,3 +747,19 @@ https://twitter.com/tinnies0_0/status/1575573884371279872</blockquote>
 这是蠢驴那方负责沟通的人说的
 剧本里蠢驴最终出了多少力不好说
 
+
+
+*****
+
+####  潜水艇君  
+##### 3061#       发表于 2022-10-2 16:23
+
+ 本帖最后由 潜水艇君 于 2022-10-2 16:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57717656&amp;ptid=2069884" target="_blank">死宅真恶心 发表于 2022-10-1 10:01</a>
+这个世界观里生产和消费是怎么保持平衡的，经济危机要怎么避免？昭和日本都知道穷人太多会导致226下克上， ...</blockquote>
+历史中的下克上能成是因为当时人就是生产力
+赛博朋克世界观下技术完全取代了人，技术被公司垄断，人已经不再是生产力。公司生产获利的大头并不依靠底层人，因此底层人的生死也不关公司的事，失去技术的底层人更是伤不了垄断技术资源的公司的一根毫毛
+这个世界观下技术越发达，一般人的生活就越倒退
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
