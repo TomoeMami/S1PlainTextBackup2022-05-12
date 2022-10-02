@@ -9026,3 +9026,34 @@ SPINX太离谱了，下半场+加时就杀了7个<img src="https://static.saraba
 
 BO5，只能看两边谁的神仙发挥了
 
+
+
+*****
+
+####  烟萝  
+##### 2567#       发表于 2022-10-3 06:36
+
+载物太可怕了。
+从昨天开始太太多无敌一般的神仙枪了
+
+*****
+
+####  曼陀罗肥  
+##### 2568#       发表于 2022-10-3 06:37
+
+这bo5顶级折磨，看晕了，小蜜蜂虽然脑溢血，但总算拿了个冠军
+
+*****
+
+####  Caa  
+##### 2569#       发表于 2022-10-3 06:37
+
+真是拉满了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我个看比赛的都觉得被熬没了
+
+*****
+
+####  dev2ce  
+##### 2570#       发表于 2022-10-3 06:39
+
+图3 11-4之后没撑住，结果醒了发现被翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所幸还是拿下了
+
