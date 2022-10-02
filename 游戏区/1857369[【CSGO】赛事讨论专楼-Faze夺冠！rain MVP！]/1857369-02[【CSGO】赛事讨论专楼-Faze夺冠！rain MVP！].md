@@ -8928,3 +8928,14 @@ c9真是烂爆了，但液体更烂
 
 昨天没熬看完第一局就睡果然没错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Robakey  
+##### 2555#       发表于 2022-10-2 10:10
+
+G2的决赛不用看 一觉起来又是一次遗憾
+
+啊？这次是半决赛啊
+

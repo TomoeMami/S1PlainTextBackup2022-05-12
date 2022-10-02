@@ -3255,3 +3255,108 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 至于企划践踏中之人的心这种事，只能说赛博朋克就是今天。
 
+
+
+*****
+
+####  Kfly  
+##### 6277#       发表于 2022-10-2 10:04
+
+ 本帖最后由 Kfly 于 2022-10-2 10:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/02/100157pw0l780zg5ilntt5.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】官方返图.jpg</strong> (166.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100208dcn8uc6k8t34r1u1.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】sayu返图.jpg</strong> (115.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100219ce84uyficzrieiix.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】鱼（&amp;amp;nako）返图.jpg</strong> (87.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100231kzhxsmzahkjangfa.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】pay返图（1）.jpg</strong> (106.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100236uurormzpeuhbq6bh.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】pay返图（2）.jpg</strong> (108.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100310ij2241v1rjjvy022.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】nako返图.jpg</strong> (91.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:03 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100318ussnnla2szwconq5.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】nagi返图.jpg</strong> (94.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:03 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100333z1giaaok2gpiafrf.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】non返图.jpg</strong> (91.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:03 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100402nokxd2ookbxvd7vx.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】yabu返图.jpg</strong> (101.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100409oxnb7ff99bxyf9t8.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】（non帮）kuma返图.jpg</strong> (218.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100422tx778ogocmzoo77o.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】emorin返图（1）.jpg</strong> (140.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/100432snq1v2vz19rbnoz2.jpg" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】emorin返图（2）.jpg</strong> (121.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 10:04 上传
+
