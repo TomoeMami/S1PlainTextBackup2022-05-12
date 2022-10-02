@@ -36,7 +36,7 @@ def parse_html(html,threadict):
 
 if __name__ == '__main__':
     blacklist = [2056385,1842868,334540,1971007,1915305]
-    high_level = 9
+    high_level = 14
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
     with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
