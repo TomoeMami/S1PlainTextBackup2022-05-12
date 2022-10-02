@@ -3210,3 +3210,18 @@ nako这也太惨了，个活约等于0。年龄也不小了，在不开展个活
 
 每个都有不奇怪，因为节目先录好再投票的，只是不爽赢了就一个特写，好歹贴一下啊
 
+
+
+*****
+
+####  ads147147  
+##### 6273#       发表于 2022-10-2 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57725482&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-2 00:13</a>
+工作想辞职正常，但我们一般人也就辞了辞了。小百合这个希望企划如果看到当个人吧，3rd别整什么中间三期生 ...</blockquote>
+理论上说，三期生应该已经见过了，毕竟结那生日都第一时间庆祝了。今晚就能定vn啥时候赚上山。
+
+这个草台班子能靠的也就是自己了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
