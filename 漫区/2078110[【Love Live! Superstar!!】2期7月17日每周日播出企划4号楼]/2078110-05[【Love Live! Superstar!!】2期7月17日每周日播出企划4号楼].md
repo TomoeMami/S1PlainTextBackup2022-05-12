@@ -5786,3 +5786,35 @@ pay的话严格来说不是地偶，偶像ING解散后，手游BATON也难产，
 官方想法是一期生音番都上多少了，肯定得推二期生啊，要我说干脆彻底一点呗，直接让二期生单独talk，虽然肯 ...</blockquote>
 比较真人要LIVE的，多推推二期生没错。一期几个都开始频繁个活了。
 
+
+
+*****
+
+####  player3960  
+##### 6529#       发表于 2022-10-3 00:57
+
+这超次元好离谱啊，鲤鱼和彩真就一句话都没说，看看15号放完整版什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 6530#       发表于 2022-10-3 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739401&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-3 00:51</a>
+比较真人要LIVE的，多推推二期生没错。一期几个都开始频繁个活了。</blockquote>
+没错，很应该推啊，别说talk了，以后直接上二期生单独去参加一些拼盘都可以，但现在明显还不敢而已
+
+*****
+
+####  cat1230  
+##### 6531#       发表于 2022-10-3 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739473&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-3 00:57</a>
+
+这超次元好离谱啊，鲤鱼和彩真就一句话都没说，看看15号放完整版什么情况
+
+  -- 来自 能手机投票的  ...</blockquote>
+老哥有链接吗，看看
+
