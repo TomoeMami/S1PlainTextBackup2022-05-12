@@ -9686,3 +9686,35 @@ oped不换的么
 
 感觉这第一集就有点经费不足的样子。顺便之前打那么多仗，怎么没想起来配点狙击秃鹰之城推进器那段的高密度工作语音，环境氛围一下子就能上来的。
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5456#       发表于 2022-10-2 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56110297&amp;ptid=1502023" target="_blank">liu461 发表于 2022-6-3 16:01</a>
+
+这坎普动画里给人的感觉不像是最后时刻才想起来可以对撞，而是我倒是知道能对撞但我想光明正大的打下来[a:0 ...</blockquote>
+打下来当然功劳更大啊
+
+*****
+
+####  鱼雷鲨  
+##### 5457#       发表于 2022-10-2 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56111424&amp;ptid=1502023" target="_blank">storm 发表于 2022-6-3 17:58</a>
+
+这集，斯巴达尼恩上装电磁炮狙击，是原创的吧？这个战术不是田中另外一部作品，《铁达尼亚》里方修利的成名 ...</blockquote>
+是同一个世界吗？
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5458#       发表于 2022-10-2 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57728061&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-10-2 10:45</a>
+
+新版的坎普最后太光伟正了，还加了点原作没有的台词，我现在怀疑到第九卷时会不会连地理学家都有洗 ...</blockquote>
+结合电流君被枪毙要洗也是洗特留吧
+
