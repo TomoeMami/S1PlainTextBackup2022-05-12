@@ -5938,3 +5938,14 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 哈哈，看到LS坛友说的超次元了，这个15分钟是啥？在电视台放的嘛？90分钟完整版也在电视台放？
 
+
+
+*****
+
+####  lj205  
+##### 6545#       发表于 2022-10-3 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740120&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-3 03:26</a>
+哈哈，看到LS坛友说的超次元了，这个15分钟是啥？在电视台放的嘛？90分钟完整版也在电视台放？ ...</blockquote>
+好像是这样
+
