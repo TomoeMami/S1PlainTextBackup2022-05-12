@@ -4628,3 +4628,36 @@ md原本懒得去打分，凭他live的操作这周说什么也去nico给他个5
 
 留早了感觉，被后来的淹没了
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6421#       发表于 2022-10-2 20:25
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-2 20:26 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/02/202622mofilcil6rhhslv6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 20:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉うにゃ都要蚌埠住了
+
+*****
+
+####  ViyViy  
+##### 6422#       发表于 2022-10-2 20:27
+
+淦，看到个博猜下集千直接用部长之权弃权全国大赛倒逼香音留学的桥段。花田大尊师要真敢这么写那是无敌的，一己之力把所有人变小丑，小千可以接过恋的衣钵了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6423#       发表于 2022-10-2 20:30
+
+虽然就几条，但是太君估计要到极限了，企划是真觉得可推都是拆尼斯啊，24集拆不出1集讲，你好歹做做样子不说哄哄我们大陆，哄自己人这种最基本的也要做好吧？
+
