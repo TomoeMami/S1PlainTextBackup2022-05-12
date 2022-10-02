@@ -5386,3 +5386,12 @@ QQ图片20221002221859.jpg
 
 虹字幕组的群还行
 
+
+
+*****
+
+####  仟音一心  
+##### 6491#       发表于 2022-10-2 22:48
+
+鲤鱼3号群和虹咲吧群都挺好的，反正都认识我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
