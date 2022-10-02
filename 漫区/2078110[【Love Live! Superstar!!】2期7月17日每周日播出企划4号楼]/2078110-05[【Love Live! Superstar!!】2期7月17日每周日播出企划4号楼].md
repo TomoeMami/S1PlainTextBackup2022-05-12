@@ -5253,3 +5253,55 @@ SN ...</blockquote>
 原本我也是笑着看着这句话&amp;# ...</blockquote>
 这个……倒没什么，可香两颗星不就是复数吗，没必要危言耸听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 6480#       发表于 2022-10-2 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736938&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-2 22:03</a>
+
+还好推了虹(家人们，考虑下隔壁虹吧(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定是两个一起来
+
+
+
+*****
+
+####  csolfans  
+##### 6481#       发表于 2022-10-2 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736293&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-2 21:22</a>
+
+没看生肉，所以按这个说法&amp;# ...</blockquote>
+是的；高一生（不过真要VN转学不也一句话的事
+
+QQ图片20221002221859.jpg
+(104.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/221912m4t3v3tf03tat444.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 6482#       发表于 2022-10-2 22:21
+
+南万那边我很好奇现在什么状况
+
+想了想猜测有一种当年三体电影内部观影会的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 6483#       发表于 2022-10-2 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736938&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-02 22:03:08</a>
+家人们，考虑下隔壁虹吧(</blockquote>倒是想推，加几个群鲤黑太多了，你嘴星团动画我还喜闻乐见，动不动就嘴到我推身上，上次4th还被弹幕骑脸，搞人心态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
