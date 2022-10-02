@@ -732,3 +732,18 @@ https://twitter.com/tinnies0_0/status/1575573884371279872</blockquote>
 
 看一眼简介和评论区，能从重锤直接变成银手
 
+
+
+*****
+
+####  eulereld  
+##### 3060#       发表于 2022-10-2 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57729741&amp;ptid=2069884" target="_blank">199april 发表于 2022-10-2 13:40</a>
+这片的剧本不是cdpr写的吗？怎么还那么多人说扳机
+
+而且是一个标准得甚至有点老土的悲剧。所以就我而言触动 ...</blockquote>
+有说蠢驴写了个大纲给板机社，板机社原装打回重写说你懂个P的日本动画，两边就剧本拉扑扯扯了两年，Rebecca是板机社强行保留下来的，原版以中间人作主角
+这是蠢驴那方负责沟通的人说的
+剧本里蠢驴最终出了多少力不好说
+
