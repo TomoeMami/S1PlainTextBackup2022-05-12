@@ -5395,3 +5395,34 @@ QQ图片20221002221859.jpg
 
 鲤鱼3号群和虹咲吧群都挺好的，反正都认识我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6492#       发表于 2022-10-2 22:56
+
+ 本帖最后由 稀勢のささ 于 2022-10-2 22:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来堇2集前玩嘴要当跳板人还差点挨巴掌   咋回事儿呢  想了想 应该是因为没有三辞三让
+
+*****
+
+####  甘蓝巧克力  
+##### 6493#       发表于 2022-10-2 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的想法是鱼毕业后立刻远遁，从此再也不想接触到拉拉企划的任何团体
+
+*****
+
+####  Kfly  
+##### 6494#       发表于 2022-10-2 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737854&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-2 22:56</a>
+
+说起来堇2集前玩嘴要当跳板人还差点挨巴掌   咋回事儿呢</blockquote>
+人与人之间亦有差距
+
+那可是圣香音啊，哪里是具足虫比的了得
+原来如此，所以香音才告诉可可具足虫的事（没准夏美也是被香音有意告知的），目的就是降低堇的风评，这样一来被拿来批判的只有堇，没人会在意我香音啦
+

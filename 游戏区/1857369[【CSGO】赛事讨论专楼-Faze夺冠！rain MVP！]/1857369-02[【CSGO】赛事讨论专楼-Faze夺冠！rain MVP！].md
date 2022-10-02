@@ -8948,3 +8948,12 @@ G2的决赛不用看 一觉起来又是一次遗憾
 
 阿杜，老a队五个人里能不能拿第五个major全看你了
 
+
+
+*****
+
+####  朔方原的星MK.2  
+##### 2557#       发表于 2022-10-2 23:00
+
+总决赛怎么还是这个人山人海的场地啊，到底谁想到去马耳他办比赛的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
