@@ -5581,3 +5581,94 @@ QQ图片20221002221859.jpg
 但现在这个糟糕的现状，只能说凭借企划保持一个曝光度，很难再说受益了，往后几年企划会越来越淡，得到的只会更少
 而且从水那边的经验来看，最后能把多少企划粉变成自己的死忠还是看自己的本事。但哪怕是混的最好的几位，个活也有是有最大值的，到了以后基本就上不去了，也只能越来越拉了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6509#       发表于 2022-10-3 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57738941&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-3 00:12</a>
+
+这种时候就会感叹，受死的骆驼比马大，现实真TM残酷啊。
+
+2.5D或者说偶像番每季都有每年都有，其中也不乏动 ...</blockquote>
+就看这个破企划什么时候吃老本把它自己吃垮了，对老五人来说，其实肯定不能完全算是可惜了，毕竟她们受益企划都挺多的，曝光也强了不止一点，只是星这企划现在这么作，个人感觉它的上限或许会降低不少，其实现在哪怕是“未来可期”这几个字说出去都显得有点无力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6510#       发表于 2022-10-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57738941&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-3 00:12</a>
+
+这种时候就会感叹，受死的骆驼比马大，现实真TM残酷啊。
+
+2.5D或者说偶像番每季都有每年都有，其中也不乏动 ...</blockquote>
+按照以前的访谈，没选上LL角色的话nako就不当声优回老家
+
+pay的话严格来说不是地偶，偶像ING解散后，手游BATON也难产，没选上LL角色的话大概跟SMA其她人一样有别的工作保底
+
+
+
+*****
+
+####  iuhehc  
+##### 6511#       发表于 2022-10-3 00:27
+
+ 本帖最后由 iuhehc 于 2022-10-3 00:28 编辑 
+
+所以真希望她们能多接到别的活，在企划全面开摆前不用绑死在那上面，挺希望鲤鱼能接到几个国产手游配音工作的，
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  liu461  
+##### 6512#       发表于 2022-10-3 00:28
+
+圣香音和隔壁千佛颇有异曲同工之妙<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 6513#       发表于 2022-10-3 00:28
+
+有时候星的运营真的能让我惊叹，谷子摆烂贴牌就出，动画侧像坨屎，真人这边骚操作一大把，这样的决策层或者运营组是怎么找到工作的？还是说孙卖爷田不心疼，上面就任由这群废物挥霍缪斯的庞大遗产？
+
+*****
+
+####  愛さ実  
+##### 6514#       发表于 2022-10-3 00:29
+
+ 本帖最后由 愛さ実 于 2022-10-3 00:32 编辑 
+
+结果这番组就像是推介二期生<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+彩排后吃拉面这梗不是鱼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+吐槽yabu性格恶劣的也是鱼开始，结果一句话没说<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 6515#       发表于 2022-10-3 00:29
+
+看完熟肉，香音肯定是不去维也纳的，那么vn也不会放弃，那肯定是vn去结丘留在香音边上当伴读书童了。既然vn现在是一年级，那么转入后二期生就是4加1，和一期生是一样的，那么还加不加人已经无所谓了，不管是vn算三期补两人，还是vn算二期再补5人Liella变成15人，都无所谓。
+
+都是香音的配件，怎么说都没有意义。
+
+*****
+
+####  优妮可  
+##### 6516#       发表于 2022-10-3 00:31
+
+快进到明年bml九个人
+
+*****
+
+####  nufawneafg  
+##### 6517#       发表于 2022-10-3 00:32
+
+不过回回味儿，问问坛友们这算不算用后宫厕纸套路写偶像番
+如果是的话那还挺大胆的，感觉简直像把偶像厨特有逆鳞当飞镖投
+

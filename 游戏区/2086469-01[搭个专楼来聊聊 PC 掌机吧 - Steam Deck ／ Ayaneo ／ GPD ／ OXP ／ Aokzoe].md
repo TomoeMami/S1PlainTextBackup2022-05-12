@@ -4085,3 +4085,15 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 —— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
 理论上是的，我已经在研究7800u和sd2了
 
+
+
+*****
+
+####  魔法酪饼  
+##### 333#       发表于 2022-10-3 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737329&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-10-02 22:24:03</a>
+理论上是的，我已经在研究7800u和sd2了</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有准信说凤凰点就是7800u么？这不像按摩店的作风啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
