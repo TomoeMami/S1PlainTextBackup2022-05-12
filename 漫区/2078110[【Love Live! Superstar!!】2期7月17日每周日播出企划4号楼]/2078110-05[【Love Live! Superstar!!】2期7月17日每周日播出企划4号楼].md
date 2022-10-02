@@ -5217,3 +5217,39 @@ SN ...</blockquote>
 
 希望下一集别整9人的Tiny Stars就行，其他烂活随它整吧，反正再怎么样也不太可能让哪个角色彻底退团，降低一点观望值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 6476#       发表于 2022-10-2 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">家人们，考虑下隔壁虹吧(
+
+*****
+
+####  starring  
+##### 6477#       发表于 2022-10-2 22:05
+
+今天这集跟4月28日那天比哪个更能破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想了想还是4月28日宣布加人，毕竟实打实被破防然后失眠再加整天无心工作，今天这集还能当乐子笑笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 6478#       发表于 2022-10-2 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736492&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-2 21:34</a></blockquote>
+原本我也是笑着看着这句话的，直到有个老哥回了一句「Tiny Stars」是复数，顿时乐子人不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 6479#       发表于 2022-10-2 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737065&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-2 22:08</a>
+
+原本我也是笑着看着这句话&amp;# ...</blockquote>
+这个……倒没什么，可香两颗星不就是复数吗，没必要危言耸听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
