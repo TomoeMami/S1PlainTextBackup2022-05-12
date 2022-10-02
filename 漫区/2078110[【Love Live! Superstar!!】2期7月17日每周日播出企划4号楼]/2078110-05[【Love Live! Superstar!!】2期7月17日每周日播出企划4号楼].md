@@ -3561,3 +3561,61 @@ VN和大香老师算是棋逢对手了
 
 VN和大香老师算是棋逢对手了
 
+
+
+*****
+
+####  Kfly  
+##### 6303#       发表于 2022-10-2 18:16
+
+你也aao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6304#       发表于 2022-10-2 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VN怎么还在
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6305#       发表于 2022-10-2 18:19
+
+完了 可以预见到千砂都要推香音去留学了
+
+*****
+
+####  稀勢のささ  
+##### 6306#       发表于 2022-10-2 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么乱七八糟的 嗯吹
+
+*****
+
+####  tjshibc21  
+##### 6307#       发表于 2022-10-2 18:20
+
+千酱什么重女
+
+*****
+
+####  Vacuolar  
+##### 6308#       发表于 2022-10-2 18:21
+
+大家还是开心点，这破动画终于可以宣告它不存在了，挺好的
+
+*****
+
+####  Kfly  
+##### 6309#       发表于 2022-10-2 18:22
+
+为什么在天台放暖炉啊？？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6310#       发表于 2022-10-2 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我日还真是啊，服了这破剧情
+
