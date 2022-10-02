@@ -5435,3 +5435,20 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 
 这垃圾游戏怎么这么喜欢，很迷
 
+
+
+*****
+
+####  rs5621  
+##### 2029#       发表于 2022-10-2 20:50
+
+<img src="https://img.saraba1st.com/forum/202210/02/204940fpgw1guz6zghfc6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 20:49 上传
+
+还想着夏亚扎古啊,下次是要和其他成员一起玩么
+

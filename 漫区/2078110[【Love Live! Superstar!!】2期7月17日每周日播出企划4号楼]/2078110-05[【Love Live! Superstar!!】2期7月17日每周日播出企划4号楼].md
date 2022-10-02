@@ -4843,3 +4843,60 @@ nico评分下周二晚上出
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6439#       发表于 2022-10-2 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不说话呗 上次生放不也没咋聊 多大个事 
+
+*****
+
+####  stygian  
+##### 6440#       发表于 2022-10-2 20:57
+
+生放全程玩游戏算了。。。头痛
+
+*****
+
+####  Kfly  
+##### 6441#       发表于 2022-10-2 20:59
+
+不多说就是了，鱼之前也不是没经历过
+
+折磨是真的折磨………
+
+*****
+
+####  星踪幻影  
+##### 6442#       发表于 2022-10-2 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735415&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-2 20:27</a>
+
+淦，看到个博猜下集千直接用部长之权弃权全国大赛倒逼香音留学的桥段。花田大尊师要真敢这么写那是无敌的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田故意吧
+
+*****
+
+####  D麦林  
+##### 6443#       发表于 2022-10-2 21:03
+
+你们真的觉得星2失败就能在三期把花田京极的其中之一或者两个踢走吗
+
+我怎么觉得大概率真有三期的话还是这俩兄弟然后给大家整更加眼前一黑的活
+
+甚至真有三期的计划的话这会搞不好脚本已经写好了都
+
+*****
+
+####  稀勢のささ  
+##### 6444#       发表于 2022-10-2 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是看看鱼的3单tie的动画吧 
+
+草  那原作也是坨O
+
+那还是看看MV吧
+
