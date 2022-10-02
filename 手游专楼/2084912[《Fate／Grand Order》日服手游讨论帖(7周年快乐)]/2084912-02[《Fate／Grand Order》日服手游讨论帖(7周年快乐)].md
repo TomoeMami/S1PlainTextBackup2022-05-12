@@ -15676,3 +15676,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 这辣鸡游戏我现在每天上线1次都嫌烦....这种和运营斗智斗勇的本越少越好....有活动的高难就足够了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 2898#       发表于 2022-10-2 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57724518&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-10-1 22:37</a>
+
+这两个**是什么
+
+进阶？高级？</blockquote>
+毒 龙
+
