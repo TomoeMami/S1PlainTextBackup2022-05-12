@@ -5546,3 +5546,38 @@ QQ图片20221002221859.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真能跑？之后live上自我介绍要怎么说
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6505#       发表于 2022-10-3 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">3巡就是FL 没有以后辣(
+
+*****
+
+####  ViyViy  
+##### 6506#       发表于 2022-10-3 00:18
+
+之前一直有星这代是短签合同的猜想呢，没准儿是真的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6507#       发表于 2022-10-3 00:18
+
+只能说好走不送
+
+*****
+
+####  Enakina  
+##### 6508#       发表于 2022-10-3 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57738941&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-3 00:12</a>
+这种时候就会感叹，受死的骆驼比马大，现实真TM残酷啊。
+
+2.5D或者说偶像番每季都有每年都有，其中也不乏动 ...</blockquote>
+但现在这个糟糕的现状，只能说凭借企划保持一个曝光度，很难再说受益了，往后几年企划会越来越淡，得到的只会更少
+而且从水那边的经验来看，最后能把多少企划粉变成自己的死忠还是看自己的本事。但哪怕是混的最好的几位，个活也有是有最大值的，到了以后基本就上不去了，也只能越来越拉了
+

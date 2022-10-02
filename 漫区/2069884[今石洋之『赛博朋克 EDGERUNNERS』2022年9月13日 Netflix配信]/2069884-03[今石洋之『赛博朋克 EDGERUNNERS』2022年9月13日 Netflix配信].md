@@ -868,3 +868,13 @@ David为荒坂公司提供了宝贵的实验兵器实战数据，Lucy也为荒�
 虽然但是，小作文就不用转了。</blockquote>
 太乐了
 
+
+
+*****
+
+####  Labborn  
+##### 3066#       发表于 2022-10-3 00:19
+
+<img src="https://p.sda1.dev/7/e970eb8da6c5a47caed1dd36db9fc6c7/CMP_20221003001937616.jpg" referrerpolicy="no-referrer">
+😨😨😨
+
