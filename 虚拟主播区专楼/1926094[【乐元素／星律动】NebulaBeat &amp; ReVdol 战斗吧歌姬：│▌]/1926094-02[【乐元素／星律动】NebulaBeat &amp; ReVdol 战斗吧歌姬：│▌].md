@@ -5156,3 +5156,17 @@ kino加油
 
 我懂了，九夏是隐居在武夷山修仙
 
+
+
+*****
+
+####  ladiesman802  
+##### 2057#       发表于 2022-10-2 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57731086&amp;ptid=1926094" target="_blank">ba娜娜 发表于 2022-10-2 16:03</a>
+
+我草九夏居然是福建人，完全听不出来，感觉应该至少是闽北的
+
+我懂了，九夏是隐居在武夷山修仙 ...</blockquote>
+假的，今天ip是江苏，说不定明天内蒙古
+
