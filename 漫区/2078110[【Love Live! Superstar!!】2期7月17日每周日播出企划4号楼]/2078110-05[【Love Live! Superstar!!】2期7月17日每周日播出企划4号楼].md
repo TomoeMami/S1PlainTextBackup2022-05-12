@@ -4900,3 +4900,39 @@ nico评分下周二晚上出
 
 那还是看看MV吧
 
+
+
+*****
+
+####  ads147147  
+##### 6445#       发表于 2022-10-2 21:05
+
+用要说，as第二期可比这个好，隔壁楼不是还有吹第二季有栞子角色弧光，对战有趣的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+要是上一季写九人，这一季写3打9最后入队收尾，第三季12人完美连冠不好吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 6446#       发表于 2022-10-2 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">选择相信鱼的整活能力(
+
+*****
+
+####  稀勢のささ  
+##### 6447#       发表于 2022-10-2 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">战吧之前也有就爱看香音传的啊 
+
+*****
+
+####  ruffian  
+##### 6448#       发表于 2022-10-2 21:12
+
+说起贴吧有爱看香音传的……我记得一期吐槽香音传的时候有个人说他就喜欢香音传动画里香音就是受欢迎高人气不服也没用，不知道他看星二了没有，看完有何感想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

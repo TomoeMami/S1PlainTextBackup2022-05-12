@@ -5452,3 +5452,30 @@ goodend建议大家自己玩呢<img src="https://static.saraba1st.com/image/smil
 
 还想着夏亚扎古啊,下次是要和其他成员一起玩么
 
+
+
+*****
+
+####  rs5621  
+##### 2030#       发表于 2022-10-2 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57735694&amp;ptid=2086637" target="_blank">holoan 发表于 2022-10-2 20:45</a>
+
+这垃圾游戏怎么这么喜欢，很迷</blockquote>
+估计是跟风玩一波吧,这个月这么忙,看着就是没时间玩的样子
+
+*****
+
+####  rs5621  
+##### 2031#       发表于 2022-10-2 21:09
+
+<img src="https://img.saraba1st.com/forum/202210/02/210933b62jri4r4i542282.png" referrerpolicy="no-referrer">
+
+<strong>@U%MAZL96~XD8GCH{2LE(49.png</strong> (19.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:09 上传
+
+今天看霍比特人.
+
