@@ -4998,3 +4998,89 @@ pay发的这些感想 真是为难她了<img src="https://static.saraba1st.com/i
 关键这两天为了SIF2企划还正要重播无印
 官方你不怕大家回顾一下一对比更绷不住了吗
 
+
+
+*****
+
+####  ads147147  
+##### 6455#       发表于 2022-10-2 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736250&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-2 21:19</a>
+
+噢，这集还有解释VN为什么能参赛的，原因是日本和国外学期时间不同，大赛9月后，按学年，VN参赛时已经算高 ...</blockquote>
+r3之子真是怎么方便怎么来啊
+
+*****
+
+####  kata魂  
+##### 6456#       发表于 2022-10-2 21:26
+
+ 本帖最后由 kata魂 于 2022-10-2 21:30 编辑 
+
+看贴吧我才意识到可可的对立角色我不是堇，而是千砂都
+
+每次可可感慨想要大家一起，小千一定要让香音单独做什么
+
+从第一季到第二季一点都不变的啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6457#       发表于 2022-10-2 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736293&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-2 21:22</a>
+
+没看生肉，所以按这个说法&amp;# ...</blockquote>
+对，意思是这个大赛看学年，而且还能根据户籍自适应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我寻思VN貌似都没入学哪个学校呢
+
+*****
+
+####  沙茶酱  
+##### 6458#       发表于 2022-10-2 21:27
+
+因为过于气愤，所以在和其他拉拉人聊天时暴言了一句：“曾经有人认为水二期曾经是Lovelive最糟糕的动画，但是星二期的出现打了他们的脸，不会有比这个更糟糕的Lovelive动画了”。马上就有人回了我一句：“星三期？”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6459#       发表于 2022-10-2 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736374&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-10-2 21:26</a>
+
+看贴吧我才意识到可可的对立角色我觉得应该不是堇，而是千砂都
+
+每次可可感慨想要大家一起，小千一定要让香 ...</blockquote>
+这就是强搞香音传和祖传青梅的化学反应了，大香老师要是还清醒就该先扇千一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6460#       发表于 2022-10-2 21:31
+
+所以我才变成千黑的
+
+*****
+
+####  沙茶酱  
+##### 6461#       发表于 2022-10-2 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">第一季可香破产不就是从官方强行推千香开始的吗
+
+*****
+
+####  甘蓝巧克力  
+##### 6462#       发表于 2022-10-2 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真要大格局符合拉拉主旨还得看可可
+
+*****
+
+####  稀勢のささ  
+##### 6463#       发表于 2022-10-2 21:34
+
+<blockquote>「スーパースター」が复数形の「スーパースターズ」じゃない伏线回収された鸟肌立った
+
+脚本天才だろ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

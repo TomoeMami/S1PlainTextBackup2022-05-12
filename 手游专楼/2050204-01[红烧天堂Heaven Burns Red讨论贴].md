@@ -8824,3 +8824,20 @@ buffer的位置自动换在breaker前面我认了
 
 月歌看来受到的打击其实还挺大的
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 841#       发表于 2022-10-2 21:28
+
+ 本帖最后由 DRAGONBLEAPIECE 于 2022-10-2 21:30 编辑 
+
+我刚存了200抽继续存，等抽周年限定+双倍SSR率池子之类的
+
+到时候砸进去出来一波3,4破的队伍，直接能打所有难度的内容
+
+反正单机慢慢来，剧情本身更新的就慢，目前强度也够拿完每次活动的东西了，
+
+其他新加的什么+6+7饰品本根本不懂，完全没打过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
