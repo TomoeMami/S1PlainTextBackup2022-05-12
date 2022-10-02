@@ -10959,3 +10959,14 @@ hurrah真难听<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 听说今天现场出现了两个谜兔，感觉是本人在里面浑水摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 17510#       发表于 2022-10-2 09:40
+
+B级 ×
+
+机台 〇
+
