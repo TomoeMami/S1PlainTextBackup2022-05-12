@@ -5672,3 +5672,105 @@ pay的话严格来说不是地偶，偶像ING解散后，手游BATON也难产，
 不过回回味儿，问问坛友们这算不算用后宫厕纸套路写偶像番
 如果是的话那还挺大胆的，感觉简直像把偶像厨特有逆鳞当飞镖投
 
+
+
+*****
+
+####  长日留痕  
+##### 6518#       发表于 2022-10-3 00:34
+
+还没看第十一集，暂时不知道是个怎么惊天动地法。虽然大概率第十二集圆回来。
+之前十集看下来感觉还是有不少亮点的，只是因为资本加人的决策太恶臭吸引了大家的注意力，当然，可可对堇恶劣的态度和香音的人设塑造崩了这个是没法洗的。最不满意的反而是可堇回，两人告白加上那bgm太尬了，完全没磕到。
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 6519#       发表于 2022-10-3 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时候上当然是为了推二期生  老东西们给你几个画面差不多得了不要不知好歹
+
+*****
+
+####  ViyViy  
+##### 6520#       发表于 2022-10-3 00:36
+
+就现在这鸟样还不如直接模因删除整个星动画就留角色当中之人的二次元形象<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6521#       发表于 2022-10-3 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739197&amp;ptid=2078110" target="_blank">长日留痕 发表于 2022-10-3 00:34</a>
+
+还没看第十一集，暂时不知道是个怎么惊天动地法。虽然大概率第十二集圆回来。
+
+之前十集看下来感觉还是有不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过是为了吹香哥哥把其他人贬的一文不值罢了  哪有什么需要圆的
+
+*****
+
+####  iuhehc  
+##### 6522#       发表于 2022-10-3 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739120&amp;ptid=2078110" target="_blank">liu461 发表于 2022-10-3 00:28</a>
+圣香音和隔壁千佛颇有异曲同工之妙</blockquote>
+前几集就有圣观音这个叫法了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 6523#       发表于 2022-10-3 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739198&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-3 00:34</a>
+
+这时候上当然是为了推二期生  老东西们给你几个画面差不多得了不要不知好歹 ...</blockquote>
+二期生也配被推？不都是香音的限制器吗？
+
+没二期生香音早tm夺冠了。
+
+所以说为什么当年香音会失声，这才是这部剧最开始就给大家的警告，初中香音（最开始的花田京极）已经死了，接下来都是万代的大人要的
+
+*****
+
+####  cybernetics31  
+##### 6524#       发表于 2022-10-3 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这节目修音了吧喂，这non酱都感觉修出电音了
+
+*****
+
+####  稀勢のささ  
+##### 6525#       发表于 2022-10-3 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739239&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-3 00:37</a>
+
+二期生也配被推？不都是香音的限制器吗？
+
+没二期生香音早tm夺冠了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是说刚才在放的那个电视节目啦  动画归动画 真人那边还是要意思一下
+
+*****
+
+####  ads147147  
+##### 6526#       发表于 2022-10-3 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739257&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-3 00:38</a>
+
+是说刚才在放的那个电视节目啦  动画归动画 真人那边还是要意思一下 ...</blockquote>
+哦，还以为还在说动画。
+
+三次元那边，只能说三期快来了，二期要好好把握。。
+
+*****
+
+####  Enakina  
+##### 6527#       发表于 2022-10-3 00:41
+
+官方想法是一期生音番都上多少了，肯定得推二期生啊，要我说干脆彻底一点呗，直接让二期生单独talk，虽然肯定有人不乐意，但自发组织保护的人也不会少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说的是正在直播的音乐寄啊……
+
