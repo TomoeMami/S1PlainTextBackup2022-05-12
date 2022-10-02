@@ -5435,3 +5435,21 @@ QQ图片20221002221859.jpg
 
 鲤鱼有17号发新写真<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 6496#       发表于 2022-10-2 23:29
+
+<blockquote>csolfans 发表于 2022-10-2 22:19
+是的；高一生（不过真要VN转学不也一句话的事</blockquote>
+这更加意义不明了吧 为什么不直接设定成高中生而是一开始说初中生然后塞在一个正常根本发现不了的角落里说已经升到高中生…
+
+*****
+
+####  ViyViy  
+##### 6497#       发表于 2022-10-2 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说真的我真希望企划确实很恨可香篇。因为这样它们看着这一地鸡毛的星动画有可能真就咬牙推倒重来了。
+
