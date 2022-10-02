@@ -13680,3 +13680,20 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 寡妇的技能树不但弱，还突出一个不搭。所以难道阿金觉得寡妇本身很强吗
 
+
+
+*****
+
+####  cgte030629  
+##### 7338#       发表于 2022-10-3 03:57
+
+新人来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+佬佬们大流士联动有用吗要不要存票
+
+*****
+
+####  希望之花  
+##### 7339#       发表于 2022-10-3 04:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几个月玩下来顺便爬楼和看屈指可数的攻略，这游戏抽卡一般靠眼缘吧。或者抽到谁就练谁
+

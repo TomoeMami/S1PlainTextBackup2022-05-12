@@ -5880,3 +5880,61 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 …………我现在很同意星团前三集是公野樱子写的观点……………………
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 6538#       发表于 2022-10-3 02:19
+
+哇，这也太烂了吧，这么全方位摆烂的声优偶像企划我好像没经历过，这回真是开了眼了……
+
+愈发理解中之人了，我要是小偶像我也想辞职，工作累死累活，宣传物料做的和屎没区别，哭两鼻子就回来上班属于是职业度拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 6539#       发表于 2022-10-3 02:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来下一集就完结了啊，终于不用受折磨了，第三季什么的不要来啊来自: iPhone客户端
+
+*****
+
+####  lj205  
+##### 6540#       发表于 2022-10-3 02:41
+
+什么傻逼节目？有两个人一句话都没，就这还要求每个人守夜给他们转发
+
+
+
+*****
+
+####  liu461  
+##### 6541#       发表于 2022-10-3 02:54
+
+可可役真就洗脚婢抬咖位呗，错就错在第一季前三集太高光结果被人连着两季追着贬
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 6542#       发表于 2022-10-3 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57738943&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-3 00:12</a>
+这真能跑？之后live上自我介绍要怎么说，虽然我在维也纳读书，但我还是结丘学园偶像部的成员是吧[f: ...</blockquote>
+我是托儿资七班班霸黎，不，我是帝国武官黎恩舒华泽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还不如学虹咲，内部再分别组队吧
+
+*****
+
+####  CharlieZ-  
+##### 6543#       发表于 2022-10-3 03:21
+
+熟肉没看，看了几张战吧的台词截图，好奇堇是不是把花田的🐎杀了，能写出这种逆天台词还让二期生说出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 6544#       发表于 2022-10-3 03:26
+
+哈哈，看到LS坛友说的超次元了，这个15分钟是啥？在电视台放的嘛？90分钟完整版也在电视台放？
+
