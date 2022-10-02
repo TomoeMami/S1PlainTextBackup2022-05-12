@@ -4483,3 +4483,29 @@ QQ图片20221002185755.jpg
 可能接下来就是打铁solo出道，土妹接过衣钵当上队长</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">铃原都不够樱小路打的还接立德
 
+
+
+*****
+
+####  stygian  
+##### 6406#       发表于 2022-10-2 19:46
+
+车动画归车动画，能不能不要歪中之人，声优拿枪按着花田京极头让他们这么写的？
+
+*****
+
+####  愛さ実  
+##### 6407#       发表于 2022-10-2 19:53
+
+md动画烂就烂了，反正也就是烂与更烂的区别。
+三巡转播这么少是什么意思？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 6408#       发表于 2022-10-2 19:53
+
+那么多巡演加回放动画，属于是精神和身体双重折磨了
+
