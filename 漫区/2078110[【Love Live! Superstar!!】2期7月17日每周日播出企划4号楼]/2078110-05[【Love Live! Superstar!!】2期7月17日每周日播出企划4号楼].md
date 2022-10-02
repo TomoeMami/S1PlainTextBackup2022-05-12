@@ -5084,3 +5084,59 @@ r3之子真是怎么方便怎么来啊
 
 脚本天才だろ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 6464#       发表于 2022-10-2 21:37
+
+ 本帖最后由 D麦林 于 2022-10-2 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736378&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-2 21:27</a>
+
+对，意思是这个大赛看学年，而且还能根据户籍自适应我寻思VN貌似都没入学哪个学校呢 ...</blockquote>
+不是 可是这种以学校为主轴的大赛不应该以学籍为准的吗
+
+那按这说法SNP留级再参赛反倒破产了 没法这么做
+
+SNP真惨说真的这说法就完全经不起推敲
+
+那你说这是按学年算的 万一有晚入学的或者是跳级生你打算怎么算啊
+
+说真的这帮人是怎么想出来这么写剧本的
+
+一会又执着于一些无所谓的小细节的一致性
+
+一会又为了剧情的都合随意乱改设定
+
+*****
+
+####  L-JoeW  
+##### 6465#       发表于 2022-10-2 21:37
+
+superstars?superstar!
+最初的梦想，本就与你无关！
+
+*****
+
+####  ruffian  
+##### 6466#       发表于 2022-10-2 21:39
+
+突然发现，之前国内外可推脑的可可个人回剧情，比如中日学制差别，比如追飞机，比如耳刮子，比如服装设计，全都给别人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 6467#       发表于 2022-10-2 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">堇推也有指望被事务所发掘剧情的 不也给别人了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6468#       发表于 2022-10-2 21:44
+
+うにゃ老哥在不停地找补自我安慰，感觉下一话要嗷的一声疯特了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

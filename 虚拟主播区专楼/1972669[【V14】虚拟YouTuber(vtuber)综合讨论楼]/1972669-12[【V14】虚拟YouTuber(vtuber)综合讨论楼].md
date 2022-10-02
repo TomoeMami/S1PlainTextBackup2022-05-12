@@ -11101,3 +11101,47 @@ slm这紧张的
 
 大喜的日子祈祷一下口了的官司稳中向好吧！阿夏也加油！
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17524#       发表于 2022-10-2 21:30
+
+[https://youtu.be/7alvazVFzls?t=5582](https://youtu.be/7alvazVFzls?t=5582)
+
+<img src="https://img.saraba1st.com/forum/202210/02/212935c6pyzwztmqwbttwd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221002212847.png</strong> (127.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/212935b2s7s7e75crtcl5i.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221002212904.png</strong> (125.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/212934v644tvg9vigavat8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221002212910.png</strong> (126.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202210/02/212934ham0m1a85r0ak8ga.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221002212913.png</strong> (143.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-2 21:29 上传
+
+推上看到的三枝直播聊到卯月脱法ロック的repo
+[https://twitter.com/aaa76810584/ ... nmgEzrOA6vkD_ewFudQ](https://twitter.com/aaa76810584/status/1576556208273518592?s=20&amp;t=FARnmgEzrOA6vkD_ewFudQ)
+

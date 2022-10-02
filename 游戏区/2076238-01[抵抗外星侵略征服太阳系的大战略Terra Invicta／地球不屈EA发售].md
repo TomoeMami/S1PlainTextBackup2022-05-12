@@ -666,3 +666,12 @@ AI操纵基本上都在跳舞，视觉效果不错，对回避磁轨炮和导弹
 
 到后面感觉每回合固定被人家搞掉两个控制点，麻中麻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windtrack_qh  
+##### 68#       发表于 2022-10-2 21:42
+
+兔子这边人口+审查前期根本没法控，结果到了2027年左右AI开始开挂直接控，我都看愣了...
+

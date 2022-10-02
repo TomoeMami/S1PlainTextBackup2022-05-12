@@ -3936,3 +3936,14 @@ g胖说过更新会比较快，2年可以了
 
 SD桌面模式装了heroic，开个游戏要等五分钟，太神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  慕容断月  
+##### 1870#       发表于 2022-10-2 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57731885&amp;ptid=2015700" target="_blank">硫黄 发表于 2022-10-2 16:43</a>
+SD桌面模式装了heroic，开个游戏要等五分钟，太神秘了</blockquote>
+用heroic装游戏，启动另外装个legendary+指令的方式，这样快一些
+
