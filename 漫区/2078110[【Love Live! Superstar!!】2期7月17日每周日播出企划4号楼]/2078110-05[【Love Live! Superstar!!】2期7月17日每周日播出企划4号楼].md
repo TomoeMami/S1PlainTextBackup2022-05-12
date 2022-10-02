@@ -3944,3 +3944,111 @@ VN能爆杀上届冠军SNP 但说到底也不过是个落榜艺术生  而香�
 
 Vn直接变成xianyy
 
+
+
+*****
+
+####  ViyViy  
+##### 6348#       发表于 2022-10-2 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果上头真要砍能不能把这B二期也砍了？
+
+*****
+
+####  starring  
+##### 6349#       发表于 2022-10-2 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733558&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-2 18:41</a>
+我们来叠一下盒子 
+
+VN能爆杀上届冠军SNP 但说到底也不过是个落榜艺术生  而香哥哥是别人直接邀请的 ...</blockquote>
+这样更加证明VN说的lovelive大赛是野鸡比赛，连一个落榜艺考生都能随便爆杀冠军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GGnob  
+##### 6350#       发表于 2022-10-2 18:46
+
+星二现在还有什么主题吗，真就落榜音乐生香音带着越来越多的负重攻略嘴臭傲娇妹，最后成功进入艺术学院啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 6351#       发表于 2022-10-2 18:49
+
+粗扫一眼拉板至少五个开车的串<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6352#       发表于 2022-10-2 18:51
+
+突破黑屏指日可待，还能在国庆期间乐，太有意思了，我先押26%
+
+*****
+
+####  aoaoaodedede  
+##### 6353#       发表于 2022-10-2 18:51
+
+还好之前在bgm我已经把评分打到1了，这下再怎么样我也打不了更低的分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 6354#       发表于 2022-10-2 18:51
+
+ 本帖最后由 Kfly 于 2022-10-2 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733558&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-10-2 18:41</a>
+
+我们来叠一下盒子 
+
+VN能爆杀上届冠军SNP 但说到底也不过是个落榜艺术生  而香哥哥是别人直接邀请的 ...</blockquote>
+要叠的话，结女更离谱吧，香音都进不了音乐科
+
+而这音乐科一年下来甚至连个像样的成绩都没拿到，你们是什么世外高人吗，不屑于插手尘世之事？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6355#       发表于 2022-10-2 18:52
+
+我押个30%吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 6356#       发表于 2022-10-2 18:52
+
+可可还是赶紧回国高考吧，上交大给祖国贡献不比被小日本嫌弃强
+
+*****
+
+####  D麦林  
+##### 6357#       发表于 2022-10-2 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57733729&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-2 18:51</a>
+要叠的话，结女更离谱吧，香音都进不了音乐科
+
+而这音乐科一年下来甚至连个像样的成绩都没拿到，你们是什么 ...</blockquote>
+yysy 香音没进结女音乐科是因为怯场一句都没唱出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+分进了普通科 但是很强 比音乐科都强
+仔细一想这不就经典厕纸套路 音乐科高校的劣等生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CharlieZ-  
+##### 6358#       发表于 2022-10-2 18:54
+
+而且的团队成员之间关系的塑造也不怎么写，现在就感觉团队里其他八个人就围着大香老师转，其他啥也不干
+
+甚至感觉闪耀路标第一集队里三个人的关系和凝聚力都比这集的裂啦要好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ces轴承仨  
+##### 6359#       发表于 2022-10-2 18:54
+
+服。。。。服。。。。。没啥能说了
+
