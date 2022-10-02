@@ -2433,3 +2433,18 @@ r16太扯淡了
 
 一开始卖6块6的时候我就感觉不对劲
 
+
+
+*****
+
+####  afer  
+##### 242#       发表于 2022-10-2 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712655&amp;ptid=2040465" target="_blank">不应 发表于 2022-9-30 19:29</a>
+6块钱反应也要这么大吗，更别说还有不少是白送的...就是fanbox骗钱还得骗500日元呢 ...</blockquote>
+这部分玩家恐怕要比隔壁动画骗进去杀的都生气。
+
+你裤子都脱了突然16加，你来不来气。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
