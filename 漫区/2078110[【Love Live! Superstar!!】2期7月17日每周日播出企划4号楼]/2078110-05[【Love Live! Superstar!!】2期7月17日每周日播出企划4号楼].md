@@ -6601,3 +6601,12 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正牛逼已经吹出去了  下集要么是一群人为了私欲绑架香哥哥不让去  要么香哥哥大恩大德再带你们玩一年
 
+
+
+*****
+
+####  starring  
+##### 6606#       发表于 2022-10-3 17:41
+
+小千一哭二闹惹得大家痛哭一场表示香哥哥是我们的superstar，香哥哥非常感动留下来说我的U咩是唱出令大家斯麦路的歌，VN也被U咩感动转学到结女，皆大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
