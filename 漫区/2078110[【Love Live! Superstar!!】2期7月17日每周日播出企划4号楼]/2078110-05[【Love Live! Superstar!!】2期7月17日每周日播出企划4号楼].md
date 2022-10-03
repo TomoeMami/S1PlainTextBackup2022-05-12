@@ -6156,3 +6156,19 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 这下中日共识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6564#       发表于 2022-10-3 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从三次元角度看可推真全盘输麻了，到现在鱼还没有个团c，edsolo也不存在，别家崩了还能在三次元看自家推c位，可推真就除了烫谷一无所有
+
+*****
+
+####  gane1010  
+##### 6565#       发表于 2022-10-3 10:22
+
+这企划真是不忍直视
+

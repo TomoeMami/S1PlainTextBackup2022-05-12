@@ -4125,3 +4125,12 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 其实短时间内我不太相信会有显着强于sd1的掌机，包括传闻中7系的sd2
 高于15w的性能释放在掌机上都是耍流氓
 
+
+
+*****
+
+####  硫黄  
+##### 337#       发表于 2022-10-3 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sd轻量化确实有必要，该学任天堂出sdlight了
+

@@ -9073,3 +9073,12 @@ BO5，只能看两边谁的神仙发挥了
 
 载物也太狠了
 
+
+
+*****
+
+####  宝儿  
+##### 2573#       发表于 2022-10-3 10:17
+
+这载物扛着队友血c<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
