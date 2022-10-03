@@ -4339,3 +4339,21 @@ aokzoe到了，玩了一天
 6800u的性能比想象要强，20w就可以60瓦 ...</blockquote>
 感谢分享，aokzoe最低能限制多少w呢？最低的状态下续航会好些吗
 
+
+
+*****
+
+####  hurtwind  
+##### 351#       发表于 2022-10-3 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749044&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-10-3 21:40</a>
+
+感谢分享，aokzoe最低能限制多少w呢？最低的状态下续航会好些吗</blockquote>
+最低4w，这都要比手机功率低了
+
+低功率必然续航会好，但买这个大家伙不就是为了同体积的最高性能嘛
+
+反正我感觉比我ipad pro的m1性能要强，我都是开着最高功率玩的
+
+反正100瓦pd快充1个多小时就充满了，正好可以用来下载游戏
+
