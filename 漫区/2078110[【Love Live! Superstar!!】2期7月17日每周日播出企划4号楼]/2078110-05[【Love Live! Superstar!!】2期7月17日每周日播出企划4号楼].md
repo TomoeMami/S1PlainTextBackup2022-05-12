@@ -6561,3 +6561,27 @@ image.png
 草，怎么感觉推友都快蚌埠住了，搜可可ちゃん一半是在发牢骚的</blockquote>
 我更好奇为什么能忍到这时，花田京极这发病一整季了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 6602#       发表于 2022-10-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745389&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-3 17:11</a>
+
+我更好奇为什么能忍到这时，花田京极这发病一整季了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不太贴切，但这就是不见棺材不落泪吧
+
+*****
+
+####  沙茶酱  
+##### 6603#       发表于 2022-10-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744183&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-3 15:05</a>
+
+12话预告唯一能洗的，估计就是这个标题是大家念的，那就是各自实现各自的梦想好了。
+
+香音是要唱歌给全世界 ...</blockquote>
+忽然间想到星二期是不是其实和虹二期有很多对应之处，加人、直球女同、加人之后的大团建、甚至还有出国留学，等等。难道这是花田写给田中的情书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

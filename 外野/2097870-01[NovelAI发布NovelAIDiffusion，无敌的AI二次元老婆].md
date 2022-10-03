@@ -893,3 +893,15 @@ Mark
 
 不过这种ai训练素材来源不正还收费也是有点灰色地带了，等一个义士搞模型开源<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  schneehertz  
+##### 63#       发表于 2022-10-3 17:14
+
+虽然400次4美元不贵
+还是等个开源的模型我自己跑
+
+—— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
