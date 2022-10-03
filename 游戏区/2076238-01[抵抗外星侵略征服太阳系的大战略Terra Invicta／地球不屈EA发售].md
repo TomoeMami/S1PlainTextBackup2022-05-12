@@ -726,3 +726,12 @@ AI操纵基本上都在跳舞，视觉效果不错，对回避磁轨炮和导弹
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不控制一个大国都没法展开目标啊，地球上内卷太严重了…..只能先尽快控制住一个大国然后通过盟约和战争实现一个统一政权来实现目的….
 一群虫豸还天天内卷搞事<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  傲慢的空想家X  
+##### 74#       发表于 2022-10-3 20:02
+
+现在有没有主播出教程视频啊？自己摸索得太痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

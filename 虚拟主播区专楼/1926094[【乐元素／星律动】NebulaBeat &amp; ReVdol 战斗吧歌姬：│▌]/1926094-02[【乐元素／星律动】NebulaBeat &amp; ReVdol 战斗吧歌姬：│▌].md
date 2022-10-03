@@ -5237,3 +5237,19 @@ mea，绯赤艾利欧这几个日v这个团啥时候组起来的，人家这个�
 
 还是kino比较实在，家是哪的基本一点不藏
 
+
+
+*****
+
+####  isla  
+##### 2065#       发表于 2022-10-3 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744301&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-03 15:18:11</a>
+还是kino比较实在，家是哪的基本一点不藏
+
+syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？
+
+ ...</blockquote>放假结束了吧，总不能休满吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

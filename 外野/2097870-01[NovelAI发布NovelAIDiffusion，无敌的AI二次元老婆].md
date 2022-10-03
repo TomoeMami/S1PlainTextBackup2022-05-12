@@ -1085,3 +1085,33 @@ mimic:我们只是四大天王里最弱的
 
 查看全部评分
 
+
+
+*****
+
+####  pf67  
+##### 81#       发表于 2022-10-3 20:05
+
+ 本帖最后由 pf67 于 2022-10-3 20:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744580&amp;ptid=2097870" target="_blank">whzfjd 发表于 2022-10-3 15:41</a>
+
+现在的伦理问题是，作为 ai 粮仓的 booru，该不该收录 ai 产的图？</blockquote>
+这不是个伦理问题，而是个成本问题
+
+*****
+
+####  pf67  
+##### 82#       发表于 2022-10-3 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744741&amp;ptid=2097870" target="_blank">the_ripples 发表于 2022-10-3 15:58</a>
+
+ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的</blockquote>
+你去了解下原理就知道这么做毫无意义
+
+*****
+
+####  interzhang  
+##### 83#       发表于 2022-10-3 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意吃显存，显卡焦虑又要提升了
+
