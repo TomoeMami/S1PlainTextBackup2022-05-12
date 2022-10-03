@@ -6540,3 +6540,12 @@ image.png
 
 想的很好，但我觉得这和花田当时的创作状态不符<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 6600#       发表于 2022-10-3 16:05
+
+在人物三观没大偏差的情况下，让妮觉得这么恶心也本事好吧
+
