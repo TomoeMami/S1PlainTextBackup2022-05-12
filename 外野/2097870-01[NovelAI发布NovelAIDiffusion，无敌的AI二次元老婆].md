@@ -1126,3 +1126,12 @@ ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的
 这不是个伦理问题，而是个成本问题</blockquote>
 我说的是技术内的伦理，或者是理念吧，模型的产出能拿来训练模型吗？
 
+
+
+*****
+
+####  Spin-Up  
+##### 85#       发表于 2022-10-3 21:01
+
+继续公关手和脚啊，现在不画手脚ai已经爆杀一些初学者了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
