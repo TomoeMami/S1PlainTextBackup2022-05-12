@@ -1189,3 +1189,15 @@ ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的
 以下内容需要积分高于 1000 才可浏览
 [https://pan.baidu.com/share/init ... T6upIQ&amp;pwd=KKSK](https://pan.baidu.com/share/init?surl=zPqLAx7YC1EpviQkT6upIQ&amp;pwd=KKSK)
 
+
+
+*****
+
+####  Eigen  
+##### 90#       发表于 2022-10-3 21:33
+
+突然想到，对一部分水平一般的画师来说，现在岂不是这种尴尬境地：
+
+在批判AI手都画不好前
+得先想一下AI在danbooru上学了多少自己画出来的手画得不咋地的作品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

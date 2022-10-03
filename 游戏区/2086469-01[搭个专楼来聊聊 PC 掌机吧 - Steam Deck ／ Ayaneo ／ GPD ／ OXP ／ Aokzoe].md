@@ -4323,3 +4323,19 @@ aokzoe到了，玩了一天
 
 我的奥克还得等5号 然后小区又封了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fuero  
+##### 350#       发表于 2022-10-3 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746612&amp;ptid=2086469" target="_blank">hurtwind 发表于 2022-10-3 19:20</a>
+
+aokzoe到了，玩了一天
+
+简单对比了下手里的掌上设备，意外的没有很大
+
+6800u的性能比想象要强，20w就可以60瓦 ...</blockquote>
+感谢分享，aokzoe最低能限制多少w呢？最低的状态下续航会好些吗
+
