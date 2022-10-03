@@ -15690,3 +15690,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 进阶？高级？</blockquote>
 毒 龙
 
+
+
+*****
+
+####  Blackson  
+##### 2899#       发表于 2022-10-3 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57723202&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-1 20:49</a>
+ 唉，过段时间就该重温252的傻逼助战高难了  盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖 ...</blockquote>
+个人盲猜把凯妮斯换成队长战，这样更容易高血压
+
