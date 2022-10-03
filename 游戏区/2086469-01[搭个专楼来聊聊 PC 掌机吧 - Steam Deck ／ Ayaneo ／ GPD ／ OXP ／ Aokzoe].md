@@ -4242,3 +4242,14 @@ sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Miaoz  
+##### 347#       发表于 2022-10-3 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745501&amp;ptid=2086469" target="_blank">indtability 发表于 2022-10-3 17:24</a>
+收到邮件就能付全款了，付款后就会进入准备发货的状态，打包之类的，准备好之后就会正式出库，一般会花两 ...</blockquote>
+棒！！！
+
