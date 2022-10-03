@@ -6812,3 +6812,53 @@ AS2那剧情都有人真心实意喜欢的 星2有人喜欢有什么奇怪的
 
 真的有人，看手游剧情吗……？
 
+
+
+*****
+
+####  D麦林  
+##### 6625#       发表于 2022-10-3 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746794&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 19:37</a>
+真的有人，看手游剧情吗……？</blockquote>
+AS还是不少人看的啊 AS推出当时这可是唯一能看虹的故事的地方了
+SIF2就不知道还会不会被这么重视了
+但是就算真把Liella主线写好我感觉也真的挺难把整个动画留下的不好印象翻掉的
+毕竟作为载体来说动画还是最令人印象深刻的…
+
+*****
+
+####  adw667  
+##### 6626#       发表于 2022-10-3 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745438&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-3 17:17</a>
+
+忽然间想到星二期是不是其实和虹二期有很多对应之处，加人、直球女同、加人之后的大团建、甚至还有出国留 ...</blockquote>
+致敬，全是致敬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/03/194616n303ryox3qvyxa4n.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221003194433.png</strong> (20.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202210/03/194617tpauj0xnjjyknc0u.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221003194401.png</strong> (18.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:46 上传
+
+*****
+
+####  愛さ実  
+##### 6627#       发表于 2022-10-3 19:51
+
+5岁女孩：画面五颜六色的好好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好像这个姐姐要去国外好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

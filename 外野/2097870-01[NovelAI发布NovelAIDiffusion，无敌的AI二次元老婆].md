@@ -1044,3 +1044,23 @@ mimic:我们只是四大天王里最弱的
 
 细嗦毛茸茸
 
+
+
+*****
+
+####  yesicant  
+##### 78#         楼主| 发表于 2022-10-3 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746848&amp;ptid=2097870" target="_blank">格雷殿下 发表于 2022-10-3 19:41</a>
+细嗦毛茸茸</blockquote>
+就是那种专门提供给福瑞控的模型，至于为什么提供，只能说福瑞控真的很有钱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  什伐赤  
+##### 79#       发表于 2022-10-3 19:47
+
+二次元还是看真人画有意思，而且感觉离高手差太多，继续努力吧
+
