@@ -1201,3 +1201,122 @@ ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的
 在批判AI手都画不好前
 得先想一下AI在danbooru上学了多少自己画出来的手画得不咋地的作品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acejoe  
+##### 91#       发表于 2022-10-3 21:47
+
+真的不行，二次元图出来都是千篇一律了。
+
+*****
+
+####  whzfjd  
+##### 92#       发表于 2022-10-3 21:49
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu s-1580240365.png
+<img src="https://p.sda1.dev/7/7709717ff38d85588082b2a7e2bd238f/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu, open leg s-2408322030.png
+<img src="https://p.sda1.dev/7/b5ea1a483988359f3eaca811ed3bfe41/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu, open leg s-2619379861.png
+<img src="https://p.sda1.dev/7/2b03e5ad4cc45002c86b2ab9e27ee2b5/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu, open leg s-3122289868.png
+<img src="https://p.sda1.dev/7/9ea03cebb9f9f696118c32332e95da2e/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitomasatsugu, open leg, camel toe s-84476018.png
+<img src="https://p.sda1.dev/7/cc229b26efae4aba1a1a6ec1761c7cb3/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitomasatsugu, open leg, cameltoe s-3600592113.png
+<img src="https://p.sda1.dev/7/982319ec0e3028fdbc4daf5f65aa72f2/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-2906530879.png
+<img src="https://p.sda1.dev/7/ce4e0280cb0d569a490813e13ca6e8ad/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-2906530880.png
+<img src="https://p.sda1.dev/7/f81c18244223132d8acd03a9f0bd3b8e/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-2906530881.png
+<img src="https://p.sda1.dev/7/fe2726e25a4befa7a209b3e38a875952/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-503290039.png
+<img src="https://p.sda1.dev/7/77b88590b8d0005ac6afbe84a723f8c0/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-738837494.png
+<img src="https://p.sda1.dev/7/b461f209ba02e89eecd4e839953f7e38/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-738837495.png
+<img src="https://p.sda1.dev/7/b08cf2405b1487c5c510e681c9c84f36/foo.png" referrerpolicy="no-referrer">
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob, saitou masatsugu, open leg, cameltoe s-738837496.png
+<img src="https://p.sda1.dev/7/a056edbf9f753cf79cd4c7e35fc58e1d/foo.png" referrerpolicy="no-referrer">
+
+masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu s-1098509996.png
+<img src="https://p.sda1.dev/7/a940b6662542f335de2f42608046f9ec/foo.png" referrerpolicy="no-referrer">
+
+masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu s-2673697641.png
+<img src="https://p.sda1.dev/7/bbb5b690d1781b57855b8dd0a6c8704a/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, portrait, pixiv, mecha musume, large breasts, navel s-2732474550.png
+<img src="https://p.sda1.dev/7/0a1e3a2fa47ca20403940ca950890d56/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, portrait, pixiv, mecha musume, large breasts, navel s-2732474551.png
+<img src="https://p.sda1.dev/7/439563110466ae1ff04ce5df2b0af1b6/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, portrait, pixiv, mecha musume, large breasts, navel s-2732474552.png
+<img src="https://p.sda1.dev/7/88ef8b70e61f147de62a92192122e0f5/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, portrait, pixiv, mecha musume, large breasts, navel s-777536628.png
+<img src="https://p.sda1.dev/7/290c8c46599357f08f58f9fa20651872/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, portrait, pixiv, mecha musume, large breasts, navel, kotobukiya s-2807914785.png
+<img src="https://p.sda1.dev/7/246c17d01bb48ff891ed097abd9e5985/foo.png" referrerpolicy="no-referrer">
+
+masterpiece, waifu, portrait, mecha musume, medium breasts, navel, kotobukiya, gundam exia, sideboob, xenoblade s-1823232401.png
+<img src="https://p.sda1.dev/7/111c42d9c2d413f6ae3cf657caca2a91/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, sideboob,  ass grab s-2297237535.png
+<img src="https://p.sda1.dev/7/de1c5e43499eb47593a1f63d7b763bf4/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, sideboob,  ass grab, mignon s-120255902.png
+<img src="https://p.sda1.dev/7/8b55a49d2216e9c47416dc915a113ee0/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, sideboob,  ass grab, mignon s-3123356390.png
+<img src="https://p.sda1.dev/7/39d86388b316bf8cba7c0f1eda78e1f4/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, sideboob,  ass grab, saitom s-3229894533.png
+<img src="https://p.sda1.dev/7/d92abcbfc322b215ea18e6f8f42dcf0e/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, sideboob,  ass grab, saitom s-678031888.png
+<img src="https://p.sda1.dev/7/8ce8539a1f1f8dd8bbe3d6bf47fc59d2/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitomasatsugu s-3963262001.png
+<img src="https://p.sda1.dev/7/b93f7a9c8b6b0cb205279c139caa7e67/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, mecha musume, medium breasts, navel, sideboob,  ass grab, mesugaki, super bomber girl s-1713616747.png
+<img src="https://p.sda1.dev/7/948f916ac42bbaa594fd6abe2ca7dd27/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, mecha musume, medium breasts, navel, sideboob,  grab breasts by herself, green hair s-2702267512.png
+<img src="https://p.sda1.dev/7/451b0f0aaf270cbec0634f47ad22d7a1/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, mecha musume, medium breasts, navel, sideboob,  grab breasts by herself, mesugaki s-225546965.png
+<img src="https://p.sda1.dev/7/143c39aeca3663ee374913d179b396da/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, mecha musume, medium breasts, navel, sideboob,  grab breasts by herself, mesugaki s-738662628.png
+<img src="https://p.sda1.dev/7/d68dac27ed3dcd063d55179b32482f79/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, portrait, mecha musume, medium breasts, navel, kotobukiya, megami device, sideboob, nintendo s-3742237302.png
+<img src="https://p.sda1.dev/7/4ae457d9365a53796dec7c2848732377/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, portrait, mecha musume, medium breasts, navel, kotobukiya, megami device, sideboob, nintendo,  ass grab s-341936079.png
+<img src="https://p.sda1.dev/7/6af51e8cdb87085db11c8bda81c412b5/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, portrait, mecha musume, medium breasts, navel, kotobukiya, megami device, sideboob, nintendo, handjob s-2966677442.png
+<img src="https://p.sda1.dev/7/89bb0accfb2af16ab51e87cd7216780b/foo.png" referrerpolicy="no-referrer">
+
+pixiv, waifu, portrait, mecha musume, medium breasts, navel, sideboob,  breast grab s-357842466.png
+<img src="https://p.sda1.dev/7/2571253b474c096bae1165e2849ab142/foo.png" referrerpolicy="no-referrer">
+
