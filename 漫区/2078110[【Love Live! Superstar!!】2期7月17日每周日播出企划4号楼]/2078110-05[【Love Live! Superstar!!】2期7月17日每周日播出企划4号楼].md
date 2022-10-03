@@ -6023,3 +6023,26 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 都是工具人，都得围着香音传，香音的问题是最大的问题</blockquote>
 但这集最草的就是香音是没啥太大问题的，如果不谈那经典的“我觉得她一定有苦衷”以外，完全是把犯病这帽子给千了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6553#       发表于 2022-10-3 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740675&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 08:42</a>
+但这集最草的就是香音是没啥太大问题的，如果不谈那经典的“我觉得她一定有苦衷”以外，完全是把犯病这帽 ...</blockquote>
+所以我说的也是剧中“香音的问题”（倍受星团大伙关注的留学问题等等），这一集香音形象老好了，反正为了衬托香音的形象，总得写个“反派”，对着干的人出来，这种塑造人物的手法在星团这里评鉴过老多次了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 6554#       发表于 2022-10-3 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740551&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-03 08:18:41</a>
+又是被狗动画恶心醒的一天。
+
+喵的，突然想到，NMD可可会回国香音屁都不放还在那“小堇”，现在香音被倒逼留 ...</blockquote>不会正视的哦，继续骂其他角色心疼他们的宝只不过这次终于知道带上花田他们了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

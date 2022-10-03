@@ -13697,3 +13697,14 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几个月玩下来顺便爬楼和看屈指可数的攻略，这游戏抽卡一般靠眼缘吧。或者抽到谁就练谁
 
+
+
+*****
+
+####  不灭的旋律  
+##### 7340#       发表于 2022-10-3 08:42
+
+是的，抽卡唯一标准就是顺不顺眼。
+
+所以大流士不是粉或者不来电就没必要抽，强度也一般。（不过据说有加料）
+
