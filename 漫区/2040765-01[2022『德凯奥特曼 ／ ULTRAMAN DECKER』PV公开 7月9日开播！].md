@@ -6878,3 +6878,14 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 忽然感觉泰拉法萨很像钢巴斯塔啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  共和政治文彦博  
+##### 612#       发表于 2022-10-3 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好看好看好看
+
+这节奏也太快，秘密这么快就暴露了阿
+
