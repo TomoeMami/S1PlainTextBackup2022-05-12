@@ -1484,3 +1484,35 @@ pixiv, busou shinki,  blonde hair, white armor, jet engine, navel, futomomo, u
 
 一个问题，付费了3次都提示付费成功但后台需要的时间超出预期，刷新了以后账号等级也没变，是不是无缘了
 
+
+
+*****
+
+####  猫出没注意  
+##### 101#       发表于 2022-10-3 23:43
+
+ 本帖最后由 猫出没注意 于 2022-10-3 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749218&amp;ptid=2097870" target="_blank">whzfjd 发表于 2022-10-3 21:49</a>
+
+high quality, masterpiece , pixiv, waifu, maid, medium breasts, navel, underboob,  ass grab, saitoma ...</blockquote>
+草，骆驼趾居然真给画了俩骆驼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+不过看着这批作品真是能感受到AI作画进化的速度，比如线条看起来都很干净。有些能想象为啥二刺螈画师们坐不住了，学画风反倒是其次（再学学一些有独特画风的画师估计能改善不少？），主要是这发展速度超乎了许多人预料。
+
+*****
+
+####  lyz1196  
+##### 102#       发表于 2022-10-3 23:49
+
+ai作曲怎么没有这种热度啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 103#       发表于 2022-10-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749942&amp;ptid=2097870" target="_blank">gbaing 发表于 2022-10-3 22:43</a>
+
+一个问题，付费了3次都提示付费成功但后台需要的时间超出预期，刷新了以后账号等级也没变，是不是无缘了 ...</blockquote>
+我看推特说新用户暂时关闭了付费，貌似付费订单太多支付系统忙不过来了
+

@@ -703,3 +703,15 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 
 ----发送自 [Sony XQ-CT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  十个印地男孩  
+##### 70#       发表于 2022-10-3 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750339&amp;ptid=2097913" target="_blank">cynmbc 发表于 2022-10-3 23:19</a>
+
+有种东西叫做声明</blockquote>
+什么意思？求解释下。假设我把图下载下来丢进ai里，他怎么知道的？
+
