@@ -955,3 +955,12 @@ David为荒坂公司提供了宝贵的实验兵器实战数据，Lucy也为荒�
 
 I REALLY WANT TO STAY AT YOUR HOUSE油管播放量两周内从160万变成470万了，我自己都听到有点PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗杀翻看是  
+##### 3074#       发表于 2022-10-3 14:26
+
+为什么要讨论魔怔世界观的真实性啊，看的就是那个魔怔味，你看1984还去讨论真实性不成
+
