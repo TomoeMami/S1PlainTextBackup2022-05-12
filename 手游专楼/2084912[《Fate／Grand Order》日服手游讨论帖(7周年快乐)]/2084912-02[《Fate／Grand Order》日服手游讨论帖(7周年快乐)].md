@@ -15710,3 +15710,25 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 才发现茶壶的使用时间续了一波，这样看是不是等开252又能再续一次？
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2901#       发表于 2022-10-3 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57743409&amp;ptid=2084912" target="_blank">芭德薇 发表于 2022-10-3 13:28</a>
+
+才发现茶壶的使用时间续了一波，这样看是不是等开252又能再续一次？</blockquote>
+没有啊，本来就是这个数
+
+*****
+
+####  芭德薇  
+##### 2902#       发表于 2022-10-3 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57743945&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-10-3 14:38</a>
+
+没有啊，本来就是这个数</blockquote>
+是和原来一样么，那又得纠结要不要在活动里用完了
+

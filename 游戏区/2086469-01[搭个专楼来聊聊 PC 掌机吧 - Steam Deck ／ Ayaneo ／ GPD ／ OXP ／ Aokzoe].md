@@ -4192,3 +4192,18 @@ AYA NEO 2 &amp; AYA NEO GEEK &amp; STEAM DECK？
 选哪个，这是个问题。
 关键还都是期货！
 
+
+
+*****
+
+####  indtability  
+##### 343#       发表于 2022-10-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57743488&amp;ptid=2086469" target="_blank">Miaoz 发表于 2022-10-3 13:36</a>
+AYA NEO 2 &amp; AYA NEO GEEK &amp; STEAM DECK？
+选哪个，这是个问题。
+关键还都是期货！</blockquote>
+sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是运来时间长点。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
