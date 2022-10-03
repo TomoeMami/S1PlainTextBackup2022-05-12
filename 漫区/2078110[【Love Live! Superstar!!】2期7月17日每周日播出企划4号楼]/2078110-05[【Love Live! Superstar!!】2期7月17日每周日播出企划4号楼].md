@@ -6139,3 +6139,20 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 水团动画烂到底的地方也不过是演出尬和剧情无聊，最多加个后期为了反缪套路化，整得逻辑混乱，但人家核心的大家一起创造故事的主题可没变，团建虽然尬，但是团队感情还是玩的挺真的
 星是真的牛逼，这种为了捧圣人直接拍到脸上的“团队是个什么玩意”的想法，实在让人过于震撼，不过倒是符合千女士一贯作风，系列第一忠犬和第一重女应该是坐实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 6563#       发表于 2022-10-3 10:01
+
+<img src="https://img.saraba1st.com/forum/202210/03/100000vvanafnoada7afn6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221003095845.jpg</strong> (35.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 10:00 上传
+
+这下中日共识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
