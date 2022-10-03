@@ -15746,3 +15746,15 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 之前大氪了一笔的我有点像小丑...不过 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这 福袋党被背刺了  2000元现在不够15有偿了
 
+
+
+*****
+
+####  areklose  
+##### 2904#       发表于 2022-10-3 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744251&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-3 15:12</a>
+
+这 福袋党被背刺了  2000元现在不够15有偿了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等个日元再降点价。那不就弥补了吗
+

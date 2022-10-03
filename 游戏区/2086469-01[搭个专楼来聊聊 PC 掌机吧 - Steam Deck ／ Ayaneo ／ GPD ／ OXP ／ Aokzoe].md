@@ -4229,3 +4229,16 @@ sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是�
 —— 来自 Xiaomi M2012K11AC,  ...</blockquote>
 收到邮件就开始发货了？
 
+
+
+*****
+
+####  indtability  
+##### 346#       发表于 2022-10-3 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745203&amp;ptid=2086469" target="_blank">Miaoz 发表于 2022-10-3 16:52</a>
+收到邮件就开始发货了？</blockquote>
+收到邮件就能付全款了，付款后就会进入准备发货的状态，打包之类的，准备好之后就会正式出库，一般会花两三天时间，最多大约一周，效率差了点，但和期货没啥关系了。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

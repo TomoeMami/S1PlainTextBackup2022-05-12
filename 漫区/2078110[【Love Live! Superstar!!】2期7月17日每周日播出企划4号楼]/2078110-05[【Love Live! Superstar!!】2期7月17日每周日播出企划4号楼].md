@@ -6585,3 +6585,19 @@ image.png
 香音是要唱歌给全世界 ...</blockquote>
 忽然间想到星二期是不是其实和虹二期有很多对应之处，加人、直球女同、加人之后的大团建、甚至还有出国留学，等等。难道这是花田写给田中的情书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Erikas  
+##### 6604#       发表于 2022-10-3 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明白了，下一集小千追机
+
+*****
+
+####  稀勢のささ  
+##### 6605#       发表于 2022-10-3 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正牛逼已经吹出去了  下集要么是一群人为了私欲绑架香哥哥不让去  要么香哥哥大恩大德再带你们玩一年
+
