@@ -7013,3 +7013,14 @@ SIF2就不知道还会不会被这么重视了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  iuhehc  
+##### 6642#       发表于 2022-10-3 22:34
+
+我想看评分到底能不能破纪录
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

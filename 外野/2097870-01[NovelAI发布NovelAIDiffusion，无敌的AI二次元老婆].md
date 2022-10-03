@@ -1466,3 +1466,12 @@ pixiv, busou shinki,  blonde hair, white armor, jet engine, navel, futomomo, u
 pixiv, busou shinki,  blonde hair, white armor, jet engine, navel, futomomo, underboob, large breasts, 2girls, fighting, fight with each other, using sword and cannon s-52276907.png
 <img src="https://p.sda1.dev/7/ee826a4dc677781be677dffab19b0bf2/foo.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  l3r0nY@  
+##### 99#       发表于 2022-10-3 22:35
+
+已经很强了，比例和肢体缺失的问题自己简单画一下就完事
+
