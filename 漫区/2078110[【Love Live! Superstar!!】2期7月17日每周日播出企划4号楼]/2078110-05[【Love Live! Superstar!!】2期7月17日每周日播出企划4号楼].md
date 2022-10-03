@@ -6117,3 +6117,25 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 <strong>下一季不如讲香音留学和vn姐妹花的修罗场吧，比硬写lovelive有趣多了。</strong><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6561#       发表于 2022-10-3 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741048&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-10-3 09:35</a>
+鱼又删了
+
+—— 来自 Xiaomi 22081212C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">应该是不小心偷跑了，大概现在只能放那个视频
+
+*****
+
+####  saglork  
+##### 6562#       发表于 2022-10-3 09:50
+
+真的没想到这动画还能在底线上抠出一间地下室<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+水团动画烂到底的地方也不过是演出尬和剧情无聊，最多加个后期为了反缪套路化，整得逻辑混乱，但人家核心的大家一起创造故事的主题可没变，团建虽然尬，但是团队感情还是玩的挺真的
+星是真的牛逼，这种为了捧圣人直接拍到脸上的“团队是个什么玩意”的想法，实在让人过于震撼，不过倒是符合千女士一贯作风，系列第一忠犬和第一重女应该是坐实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
