@@ -4880,3 +4880,25 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 
 求求打机关少一点，前几天兴致来了打开4遇到个同时飞斧扔三个目标的机关试了几十次没成功直接删游戏。血压都上来了
 
+
+
+*****
+
+####  一个过路的  
+##### 547#       发表于 2022-10-3 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749916&amp;ptid=2025548" target="_blank">laosai13 发表于 2022-10-3 22:41</a>
+
+求求打机关少一点，前几天兴致来了打开4遇到个同时飞斧扔三个目标的机关试了几十次没成功直接删游戏。血压 ...</blockquote>
+你说的这种机关，不打可以直接走。
+
+*****
+
+####  laosai13  
+##### 548#       发表于 2022-10-3 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750326&amp;ptid=2025548" target="_blank">一个过路的 发表于 2022-10-3 23:17</a>
+
+你说的这种机关，不打可以直接走。</blockquote>
+我也知道，但是就是让人很不爽很窝火<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">无能狂怒了属于是
+

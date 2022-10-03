@@ -5267,3 +5267,19 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 至少鸭鸭休满了捏
 
+
+
+*****
+
+####  ladiesman802  
+##### 2067#       发表于 2022-10-3 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744301&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-3 15:18</a>
+
+还是kino比较实在，家是哪的基本一点不藏
+
+syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</blockquote>
+九夏之前就在老家直播过，还说直播的时候不得不把妈妈赶出去，觉得有点心酸
+
+而且面捕用iPhone就行了
+
