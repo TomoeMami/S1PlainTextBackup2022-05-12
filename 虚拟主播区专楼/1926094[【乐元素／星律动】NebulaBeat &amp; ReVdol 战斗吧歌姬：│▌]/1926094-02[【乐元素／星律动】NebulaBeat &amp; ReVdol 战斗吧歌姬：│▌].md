@@ -5253,3 +5253,17 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2066#       发表于 2022-10-3 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57747192&amp;ptid=1926094" target="_blank">isla 发表于 2022-10-3 20:05</a>
+
+放假结束了吧，总不能休满吧
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+至少鸭鸭休满了捏
+
