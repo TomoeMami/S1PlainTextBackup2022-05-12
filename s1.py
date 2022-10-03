@@ -65,12 +65,42 @@ def parse_html(html):
 #         f.seek(0, 0)
 #         f.write('> ## **本文件最后更新于'+lasttimestamp+'** \n\n'+content)
 
+def thread_dict(thdir,thdict):
+    with open(thdir,'r',encoding='UTF-8') as f:
+        lines = f.readlines()
+        a = ''
+        for line in lines:
+            a += line
+        b = a.split("*****")
+    for i in b[1::]:
+        if(re.findall(r'#####\s(\d+)#',i)[0]):
+            thdict[re.findall(r'\n#####\s(\d+)#',i)[0]] = i
+
+def thread_merge(oridir,desdir):
+    ori = {}
+    des = {}
+    thread_dict(oridir,ori)
+    thread_dict(desdir,des)
+    result = ''
+    for i in sorted(list(set(ori.keys())-set(des.keys()))):
+        result = result +  ("*****") + ori[i] 
+    with open (desdir,'a',encoding='UTF-8')as f:
+        f.write(result)
+    os.remove(oridir)
+
 def get_FileSize(filePath):
 
     fsize = os.path.getsize(filePath)
     fsize = fsize/float(1024 * 1024)
 
     return round(fsize, 2)
+
+def get_dir_files(dir_path):
+    file_list = os.listdir(dir_path)
+    result = []
+    for i in file_list:
+        result.append(os.path.join(dir_path, i))
+    return result
 
 def FormatStr(namelist, replylist,totalreply):
     nametime = []
@@ -181,17 +211,21 @@ async def UpdateThread(threaddict,semaphore):
             destdir = '/home/ubuntu/S1PlainTextArchive2022/'
             if(totalpage > 50):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
-                filename_des = destdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-                filename_des = destdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
+            filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',filedir_src)
             if os.path.exists(filename_des):
-                mkdir(rootdir+'Archived/')
-                filedir_des = rootdir+'Archived/'+thdata[threaddict['id']]['category']+'/'
+                if Path(filedir_src).is_dir():
+                    filedir_src_list = get_dir_files(filedir_src)
+                    for i in filedir_src_list:
+                        j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',i)
+                        thread_merge(i,j)
+                else:    
+                    thread_merge(filedir_src,filename_des)
             else:
                 filedir_des = destdir +thdata[threaddict['id']]['category']+'/'
-            mkdir(filedir_des)
-            shutil.move(filedir_src,filedir_des)
+                mkdir(filedir_des)
+                shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
         # else:
             if(totalpage > 50):
