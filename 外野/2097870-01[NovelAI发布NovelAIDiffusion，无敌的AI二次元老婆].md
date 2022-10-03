@@ -1475,3 +1475,12 @@ pixiv, busou shinki,  blonde hair, white armor, jet engine, navel, futomomo, u
 
 已经很强了，比例和肢体缺失的问题自己简单画一下就完事
 
+
+
+*****
+
+####  gbaing  
+##### 100#       发表于 2022-10-3 22:43
+
+一个问题，付费了3次都提示付费成功但后台需要的时间超出预期，刷新了以后账号等级也没变，是不是无缘了
+
