@@ -33,3 +33,12 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744506&amp;ptid=2094448" target="_blank">新HGCG 发表于 2022-10-3 15:35</a></blockquote>
 新王登基是吧
 
+
+
+*****
+
+####  冰冻火柴  
+##### 1497#       发表于 2022-10-3 16:23
+
+没人帮派蒙松松领子吗，都快勒窒息了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
