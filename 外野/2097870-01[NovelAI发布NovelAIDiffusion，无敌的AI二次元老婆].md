@@ -1347,3 +1347,32 @@ pixiv, waifu, portrait, mecha musume, medium breasts, navel, sideboob,  breast
 
 更新刷新文本就好
 
+
+
+*****
+
+####  acejoe  
+##### 95#       发表于 2022-10-3 22:16
+
+手和脚的问题我在想啊，训练集里面就有大量手脚画不好的，那不是永远学不会正确的手脚？
+
+*****
+
+####  浅井惠  
+##### 96#       发表于 2022-10-3 22:16
+
+期待不久后能根据每个用户的图库训练出专属ai，图片仓鼠症患者有福了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  浅井惠  
+##### 97#       发表于 2022-10-3 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749628&amp;ptid=2097870" target="_blank">acejoe 发表于 2022-10-3 22:16</a>
+手和脚的问题我在想啊，训练集里面就有大量手脚画不好的，那不是永远学不会正确的手脚？ ...</blockquote>
+这个就要看训练者想要多样性还是精确度了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
