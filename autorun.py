@@ -28,8 +28,8 @@ def parse_html(html,threadict):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                if(int(level) > 2) and ((int(time.time()) - replytime ) < 691200):
-                    # 8天之内回复过
+                if(int(level) > 2) and ((int(time.time()) - replytime ) < 259200):
+                    # 3天之内回复过
                     threadict[threadid] = {}
                     threadict[threadid]['replytime'] = replytime
                     threadict[threadid]['level'] = level
