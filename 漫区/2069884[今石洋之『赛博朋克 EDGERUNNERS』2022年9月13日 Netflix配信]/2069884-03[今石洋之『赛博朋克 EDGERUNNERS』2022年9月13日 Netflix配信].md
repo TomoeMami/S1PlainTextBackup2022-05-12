@@ -911,3 +911,28 @@ David为荒坂公司提供了宝贵的实验兵器实战数据，Lucy也为荒�
 尼云片接得我v片接不得？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让人再守一次寡？做个人吧
 
+
+
+*****
+
+####  死宅真恶心  
+##### 3070#       发表于 2022-10-3 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740784&amp;ptid=2069884" target="_blank">isowowsl 发表于 2022-10-3 08:58</a>
+啊，还在发病，突然一拍脑袋2077dlc干脆让v接盘Lucy得了
+
+尼云片接得我v片接不得？ ...</blockquote>
+我直接闪击波兰
+
+—— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  stannislas  
+##### 3071#       发表于 2022-10-3 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741063&amp;ptid=2069884" target="_blank">雪儿 发表于 2022-10-3 09:37</a>
+
+让人再守一次寡？做个人吧</blockquote>
+不是太阳结局也好离开夜之城也罢，都有删除强尼银手的的结局吗？为啥还是半年？
+

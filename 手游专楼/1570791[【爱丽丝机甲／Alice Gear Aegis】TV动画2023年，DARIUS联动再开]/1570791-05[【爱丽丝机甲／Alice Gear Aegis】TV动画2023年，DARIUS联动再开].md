@@ -13708,3 +13708,14 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 所以大流士不是粉或者不来电就没必要抽，强度也一般。（不过据说有加料）
 
+
+
+*****
+
+####  hypnossz86  
+##### 7341#       发表于 2022-10-3 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">抽卡可以找坛友灰色蔓延在阿B发的节奏榜
+
+比主楼这个一百万年不更新的详实多了
+
