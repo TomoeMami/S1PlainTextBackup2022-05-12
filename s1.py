@@ -181,7 +181,7 @@ for line in cookie_str.split(';'):
     cookies[key] = value
     # 设置请求头
 headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
-rootdir="./"
+rootdir="/home/ubuntu/S1PlainTextBackup/"
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
 
