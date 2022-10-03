@@ -6943,3 +6943,38 @@ SIF2就不知道还会不会被这么重视了
 
 现在是动画尴吹圣香音，三次元小百合现在嗓子问题……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6635#       发表于 2022-10-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748553&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-3 21:13</a>
+和小百合也没啥关系啊
+难道1st重播动画算处刑青山姐吗
+这分明是处刑观众好吧 ...</blockquote>
+那还是不一样的，毕竟一期恋的操作虽然很傻逼但大家骂完也就算了，对演出影响没多大。
+二期这个剧情，等到时候结那唱完，香哥哥跳上大荧幕怒喷你懂个屁的唱歌，然后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  不是处刑是啥啊
+
+*****
+
+####  星踪幻影  
+##### 6636#       发表于 2022-10-3 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748740&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-3 21:23</a>
+
+那还是不一样的，毕竟一期恋的操作虽然很傻逼但大家骂完也就算了，对演出影响没多大。
+
+二期这个剧情，等 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有小百合的嗓子问题
+
+*****
+
+####  稀勢のささ  
+##### 6637#       发表于 2022-10-3 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748800&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-10-3 21:27</a>
+还有小百合的嗓子问题</blockquote>
+我就是这个意思 等上面的香哥哥喷完结果拿不出东西 多少有点难顶
+
