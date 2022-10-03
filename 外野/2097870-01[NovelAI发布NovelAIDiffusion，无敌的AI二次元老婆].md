@@ -1320,3 +1320,14 @@ pixiv, waifu, portrait, mecha musume, medium breasts, navel, kotobukiya, megami 
 pixiv, waifu, portrait, mecha musume, medium breasts, navel, sideboob,  breast grab s-357842466.png
 <img src="https://p.sda1.dev/7/2571253b474c096bae1165e2849ab142/foo.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  血祠  
+##### 93#       发表于 2022-10-3 21:58
+
+有种看ai换脸av的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，画师自己看的感觉估计很微妙了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
