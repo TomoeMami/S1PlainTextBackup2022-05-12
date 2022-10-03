@@ -7001,3 +7001,15 @@ SIF2就不知道还会不会被这么重视了
 
 那基本上和把裂拉解散没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 6641#       发表于 2022-10-3 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746650&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-10-03 19:23:51</a>
+这么一说前两集的可堇也是病态奉献感，为了你好宁愿我来当坏人</blockquote>要我说论“病态的付出”那堇比千还病态，千不管是当初强行让香音一个人上台，还是让香音留学，对她自己来说倒不算奉献了什么，不如说是有种大家长的控制欲。堇那恶名留给自己，堵心留给别人，完全颠覆可可的意愿就只是为了让她留下，某种意义上挺恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
