@@ -5992,3 +5992,34 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 花田这病症真是癌细胞一样扩散了，这集除了四季，给一年级的都啥台词？唯一的好处是终于可以让一些人“正视”一下你家宝贝“被迫害”到底问题在谁身上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6550#       发表于 2022-10-3 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740551&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 08:18</a>
+又是被狗动画恶心醒的一天。
+
+喵的，突然想到，NMD可可会回国香音屁都不放还在那“小堇”，现在香音被倒逼留 ...</blockquote>
+都是工具人，都得围着香音传，香音的问题是最大的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6551#       发表于 2022-10-3 08:40
+
+<blockquote>cybernetics31 发表于 2022-10-3 01:48
+…………我现在很同意星团前三集是公野樱子写的观点……………………</blockquote>
+贴吧那个？贵物来的，去年就发过来了，后面他直接拉踩水了。
+
+*****
+
+####  ViyViy  
+##### 6552#       发表于 2022-10-3 08:42
+
+<blockquote>aoaoaodedede 发表于 2022-10-3 08:39
+都是工具人，都得围着香音传，香音的问题是最大的问题</blockquote>
+但这集最草的就是香音是没啥太大问题的，如果不谈那经典的“我觉得她一定有苦衷”以外，完全是把犯病这帽子给千了
+
