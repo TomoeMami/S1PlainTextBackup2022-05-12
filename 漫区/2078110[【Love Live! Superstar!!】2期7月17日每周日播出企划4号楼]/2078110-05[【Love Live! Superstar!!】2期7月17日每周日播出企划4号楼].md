@@ -6912,3 +6912,34 @@ SIF2就不知道还会不会被这么重视了
 
 我现在好奇之后的三次元演唱会会一直公开处刑小百合吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 6633#       发表于 2022-10-3 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57747628&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-10-3 20:23</a>
+我现在好奇之后的三次元演&amp;#x5 ...</blockquote>
+和小百合也没啥关系啊
+难道1st重播动画算处刑青山姐吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这分明是处刑观众好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6634#       发表于 2022-10-3 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748553&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-3 21:13</a>
+
+和小百合也没啥关系啊
+
+难道1st重播动画算处刑青山姐吗
+
+这分明是处刑观众好吧 ...</blockquote>
+没，这次是相反啊
+
+那时候是动画黑恋，青山个人素质硬
+
+现在是动画尴吹圣香音，三次元小百合现在嗓子问题……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
