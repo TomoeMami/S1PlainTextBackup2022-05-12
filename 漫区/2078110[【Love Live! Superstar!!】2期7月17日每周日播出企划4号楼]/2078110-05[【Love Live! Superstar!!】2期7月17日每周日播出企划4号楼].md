@@ -6297,3 +6297,69 @@ emmm，能接受，只能说这集全员的台词攻击程度都上升了。
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 不是，是个普通的铁血可香推，没想到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 6575#       发表于 2022-10-3 10:44
+
+星动画纠结台词没意思，因为这个台词或者脚本本身就有很多很掉价，或者说很低俗的东西在。明明是地点设置在涩谷区，目标也是全年龄人群，无论是基础的设定还是音乐、以至于合作宣传的选择都偏向高档、时尚，但动画却塞了这么多掉价的东西，感觉参与剧本商讨的人对企划理解本身就有很大问题。
+
+相比较而言其他媒体的发挥就无比正常，也可以说只有动画是真的拉了。就算是动画内部的比较，一期前三集整体无论是画面、bgm、还是台词都很大气、敞亮，至少氛围是做到位了的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L-JoeW  
+##### 6576#       发表于 2022-10-3 10:46
+
+由于剧情过于脑死看第一遍的时候甚至没发现这里少了一个人
+<img src="https://p.sda1.dev/7/a8bd4bce591cc005195ebc095004c1a0/CMP_20221003104607715.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6577#       发表于 2022-10-3 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">看动画这么多年能让我看到就犯恶心的主角真没几个  以前那些有争议的主角只要有点闪光点我就能无视掉黑点开心的看下去 这小小7月番居然就能出一对卧龙凤雏
+
+
+
+*****
+
+####  ViyViy  
+##### 6578#       发表于 2022-10-3 11:02
+
+这集是做到了侧写都能让人对大香那么抵触，真的也是一种文学境界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 6579#       发表于 2022-10-3 11:05
+
+去推上看了一眼，还好其实，日本人在蓝鸟上还是委婉的，甚至还有对大结局存在幻想的人在，日本人属实是被这傻缺运营驯化得彻底<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 6580#       发表于 2022-10-3 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741869&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 11:02</a>
+
+这集是做到了侧写都能让人对大香那么抵触，真的也是一种文学境界了</blockquote>
+这集其实香音的表现都在预料之中，离谱的是场外给香音加的东西
+
+什么最高学院发来邀请啊，什么让薇恩陪同啊（主要是这个），属于是吹过头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6581#       发表于 2022-10-3 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741807&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-3 10:57</a>
+
+看动画这么多年能让我看到就犯恶心的主角真没几个  以前那些有争议的主角只要有点闪光点我就能无视 ...</blockquote>
+最草就是这角色本身没什么错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
