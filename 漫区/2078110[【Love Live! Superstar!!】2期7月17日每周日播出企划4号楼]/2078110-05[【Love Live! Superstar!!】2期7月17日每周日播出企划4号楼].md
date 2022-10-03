@@ -6862,3 +6862,42 @@ SIF2就不知道还会不会被这么重视了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  adw667  
+##### 6628#       发表于 2022-10-3 19:52
+
+先骂一句维也纳不要脸吃现成的，别的想到了再说，总而言之这帮人现在只要不推主线就没什么新问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光宗薫  
+##### 6629#       发表于 2022-10-3 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746535&amp;ptid=2078110" target="_blank">saglork 发表于 2022-10-3 19:12</a>
+
+其实缪水也喜欢玩遇到事情找leader，然后leader强行解决，但果皇千歌都是能力不拔尖，单纯是热情满格活力四 ...</blockquote>
+缪且不提，水团真主力分明是三年级
+
+千帝唯一露大脸也就是MIRACLE WAVE那次，然后舞是三年级编的，而且怎么看都是果南故意把机会留给千帝的
+
+然后到了剧场版三年级一离开就拉垮，还得千里追到意大利求援才完成合校演出
+
+*****
+
+####  nufawneafg  
+##### 6630#       发表于 2022-10-3 19:53
+
+5、6岁正是从接受并反射向主动认知发展的关键阶段，可别给孩子看这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6631#       发表于 2022-10-3 19:58
+
+5 6岁小女孩：そうかな
+
