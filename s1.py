@@ -80,7 +80,8 @@ def thread_merge(oridir,desdir):
     ori = {}
     des = {}
     thread_dict(oridir,ori)
-    thread_dict(desdir,des)
+    if os.path.exists(desdir):
+        thread_dict(desdir,des)
     result = ''
     for i in sorted(list(set(ori.keys())-set(des.keys()))):
         result = result +  ("*****") + ori[i] 
@@ -208,14 +209,13 @@ async def UpdateThread(threaddict,semaphore):
         elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
             #3天过期
             thdata[threaddict['id']]['active'] = False
-            destdir = '/home/ubuntu/S1PlainTextArchive2022/'
             if(totalpage > 50):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
             filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',filedir_src)
             if os.path.exists(filename_des):
-                if Path(filedir_src).is_dir():
+                if os.path.isdir(filedir_src):
                     filedir_src_list = get_dir_files(filedir_src)
                     for i in filedir_src_list:
                         j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2022',i)
@@ -223,7 +223,7 @@ async def UpdateThread(threaddict,semaphore):
                 else:    
                     thread_merge(filedir_src,filename_des)
             else:
-                filedir_des = destdir +thdata[threaddict['id']]['category']+'/'
+                filedir_des = '/home/ubuntu/S1PlainTextArchive2022/' +thdata[threaddict['id']]['category']+'/'
                 mkdir(filedir_des)
                 shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
