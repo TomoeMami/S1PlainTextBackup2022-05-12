@@ -802,3 +802,26 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 
 这个ai绘画的势头看起来已经是势不可挡的了,ai每时每刻都在进步,现在这些画出色图的ai前几天还是只会产出克苏鲁人物的鸡肋
 
+
+
+*****
+
+####  普罗茶  
+##### 79#       发表于 2022-10-4 01:17
+
+ 本帖最后由 普罗茶 于 2022-10-4 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57751471&amp;ptid=2097913" target="_blank">LrGsite 发表于 2022-10-4 01:10</a>
+
+这个ai绘画的势头看起来已经是势不可挡的了,ai每时每刻都在进步,现在这些画出色图的ai前几天还是只会产出克 ...</blockquote>
+势不可挡：指可解释性几乎没有，也不知道为什么用了扩散模型效果就变好，而GAN在图像生成领域就没这么好。但管他呢不求甚解直接用得了呗！调个参水论文的架势势不可挡啊！
+
+*****
+
+####  wangh  
+##### 80#       发表于 2022-10-4 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57751471&amp;ptid=2097913" target="_blank">LrGsite 发表于 2022-10-4 01:10</a>
+
+这个ai绘画的势头看起来已经是势不可挡的了,ai每时每刻都在进步,现在这些画出色图的ai前几天还是只会产出克 ...</blockquote>
+更大的可能是到了一定的程度就再也没有什么进步了，AI翻译就是一个先例
+
