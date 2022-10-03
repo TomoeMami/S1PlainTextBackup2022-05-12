@@ -15732,3 +15732,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 没有啊，本来就是这个数</blockquote>
 是和原来一样么，那又得纠结要不要在活动里用完了
 
+
+
+*****
+
+####  alucardcz  
+##### 2903#       发表于 2022-10-3 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712208&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-9-30 18:43</a>
+
+公告更新了充值价格表，基本上没变化，一单还是那个一单...
+
+之前大氪了一笔的我有点像小丑...不过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这 福袋党被背刺了  2000元现在不够15有偿了
+
