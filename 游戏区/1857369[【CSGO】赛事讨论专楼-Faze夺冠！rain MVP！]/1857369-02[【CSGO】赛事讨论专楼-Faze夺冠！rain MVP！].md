@@ -9091,3 +9091,14 @@ BO5，只能看两边谁的神仙发挥了
 
 蜀黍真的扛着豆跑  值得 太值得了
 
+
+
+*****
+
+####  朔方原的星  
+##### 2575#         楼主| 发表于 2022-10-3 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57737974&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-10-2 23:05</a>
+ESL简直nt，之前下半年在丹麦办epl不都挺好的吗，结果马耳他也不找个好的场馆 ...</blockquote>
+看了一下，rmr欧洲也在马耳他，呃……
+
