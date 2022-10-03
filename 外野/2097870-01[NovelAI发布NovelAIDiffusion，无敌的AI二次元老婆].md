@@ -1516,3 +1516,16 @@ ai作曲怎么没有这种热度啊<img src="https://static.saraba1st.com/image/
 一个问题，付费了3次都提示付费成功但后台需要的时间超出预期，刷新了以后账号等级也没变，是不是无缘了 ...</blockquote>
 我看推特说新用户暂时关闭了付费，貌似付费订单太多支付系统忙不过来了
 
+
+
+*****
+
+####  血祠  
+##### 104#       发表于 2022-10-3 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750689&amp;ptid=2097870" target="_blank">lyz1196 发表于 2022-10-3 23:49</a>
+ai作曲怎么没有这种热度啊</blockquote>
+作曲和色图有可比性吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

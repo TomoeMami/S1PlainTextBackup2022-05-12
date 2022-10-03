@@ -4918,3 +4918,12 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 
 一堆人纠结游戏时长，我还以为进了NGA<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuker53  
+##### 551#       发表于 2022-10-4 00:00
+
+上一部只打主线多少小时，我印象15小时差不多?我白金是连着打了5天，应该有50到60小时
+
