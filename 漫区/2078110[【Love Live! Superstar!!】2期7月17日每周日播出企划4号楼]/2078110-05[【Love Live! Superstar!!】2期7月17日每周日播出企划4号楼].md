@@ -7109,3 +7109,15 @@ SIF2就不知道还会不会被这么重视了
 
 突然发现在加农表示不会去留学的时候，完全没有可可反应的镜头，也不知道可可是个什么态度
 
+
+
+*****
+
+####  saglork  
+##### 6652#       发表于 2022-10-4 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750376&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 23:22</a>
+为啥觉得千重得病态无出其右，其实就是千不止一次干过这种偏执的事情导致观感层层递进了。堇说白了就这一次 ...</blockquote>
+往好里说，千妈才是慢慢的通过剧情逐渐解开内核的人设，最初乍一看是成熟大方与人为善，性格情商人缘能力都无可挑剔的团队粘合剂和实力担当，随着剧情展开慢慢剥开外层伪装，才露出内里始终如一的原教旨香神主义信徒真实面目，一切为了香神，一切服务香神，其他的都不重要，这人物非常饱满而且没有崩坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+单纯就是有点可怕，让人对香老师的全知全能印象又加深了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

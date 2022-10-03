@@ -1538,3 +1538,14 @@ ai作曲怎么没有这种热度啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个能生成R18的色图吗
 
+
+
+*****
+
+####  大江户战士  
+##### 106#       发表于 2022-10-4 01:29
+
+玩了一晚上已经被这性能震惊了
+
+以后会有打着约稿旗号用ai凑数的吧
+
