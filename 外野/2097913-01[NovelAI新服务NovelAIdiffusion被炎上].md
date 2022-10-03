@@ -673,3 +673,33 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 —— 来自 Xiaomi 22041216C, Android 12上的 S1Next- ...</blockquote>
 丸山浩那个ai图，右下角明显就是一个签名的变形。
 
+
+
+*****
+
+####  acejoe  
+##### 67#       发表于 2022-10-3 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750129&amp;ptid=2097913" target="_blank">lindley 发表于 2022-10-3 23:00</a>
+这个事的悖论在于这些画师在学画画的时候，难道没有在google上找图临摹过？在创作的时候，没有在g ...</blockquote>
+问题是ai不是人啊，是工具。
+你人喂进工具的图，和人直接学习的图是两码事。
+工具没侵权，但是喂工具的人侵权了。
+
+*****
+
+####  FMIC  
+##### 68#       发表于 2022-10-3 23:38
+
+当一个资本主义版权法条里明确写了不管你愿不愿意都能用来喂ai的时候，
+他们为什么不去攻击法律而是写与法律相抵触的无效声明呢。
+
+*****
+
+####  Cray  
+##### 69#       发表于 2022-10-3 23:38
+
+以后没人创作新东西了看ai怎么拼图。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT72,Android 12](http://stage1.5j4m.com/?1.37)
+

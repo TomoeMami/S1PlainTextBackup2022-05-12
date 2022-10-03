@@ -7046,3 +7046,34 @@ SIF2就不知道还会不会被这么重视了
 
 说起来堇无论是S1E10还是S2E9，平时看着挺冷静挺明理的闹脾气的时候像个小孩要哄要抱抱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Skyline_R  
+##### 6645#       发表于 2022-10-3 23:37
+
+11话分镜 菱田正和（也是京极的师傅）
+
+<img src="https://img.saraba1st.com/forum/202210/03/233546bn39ofo9on8dxpl9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 23:35 上传
+
+*****
+
+####  csolfans  
+##### 6646#       发表于 2022-10-3 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">哎小百合才20岁，怎么遇到了这么傻逼的策划
+
+*****
+
+####  adw667  
+##### 6647#       发表于 2022-10-3 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">要真有第三季的话花田该不会想复刻AS吧
+
