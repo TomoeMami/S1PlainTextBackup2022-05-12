@@ -1115,3 +1115,14 @@ ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意吃显存，显卡焦虑又要提升了
 
+
+
+*****
+
+####  whzfjd  
+##### 84#       发表于 2022-10-3 20:42
+
+<blockquote>pf67 发表于 2022-10-3 20:05
+这不是个伦理问题，而是个成本问题</blockquote>
+我说的是技术内的伦理，或者是理念吧，模型的产出能拿来训练模型吗？
+
