@@ -6046,3 +6046,28 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 6555#       发表于 2022-10-3 08:55
+
+看sao那本书要12月发售，还以为要等到那时候才披露，没想到这么快就看到了，cos的不错哦<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6556#       发表于 2022-10-3 08:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">妆有点小浓，但个活越多越好
+
+*****
+
+####  lj205  
+##### 6557#       发表于 2022-10-3 09:01
+
+就是脸太英气了，反而很帅<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
