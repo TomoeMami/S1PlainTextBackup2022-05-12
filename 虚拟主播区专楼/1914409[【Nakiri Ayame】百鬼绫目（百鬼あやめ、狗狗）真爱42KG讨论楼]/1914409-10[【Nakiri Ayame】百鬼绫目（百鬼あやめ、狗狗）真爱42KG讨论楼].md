@@ -7795,3 +7795,12 @@ ljl赛区还是一如既往的垃……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总能直播已经很难了 
 
+
+
+*****
+
+####  stedckk  
+##### 14375#       发表于 2022-10-3 17:50
+
+快到年尾了，按照惯例又可以继续摆大烂了，事实就是绫总根本不会改。
+

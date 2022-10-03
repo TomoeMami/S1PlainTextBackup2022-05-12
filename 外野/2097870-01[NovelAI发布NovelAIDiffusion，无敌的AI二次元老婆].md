@@ -932,3 +932,14 @@ Mark
 
 看得出来手是真的难画
 
+
+
+*****
+
+####  dalarmar  
+##### 67#       发表于 2022-10-3 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745573&amp;ptid=2097870" target="_blank">吴怀在 发表于 2022-10-3 17:32</a>
+我觉得比较实用的AI应该能做到：根据3D建模或手画出来的相机视角位置、人物火柴人模型，描述背景内容和角色 ...</blockquote>
++1觉得这才是正确的方向而且也是能实现的。现在的这种特别像纯自学临摹靠练习量力大砖飞的小画家<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

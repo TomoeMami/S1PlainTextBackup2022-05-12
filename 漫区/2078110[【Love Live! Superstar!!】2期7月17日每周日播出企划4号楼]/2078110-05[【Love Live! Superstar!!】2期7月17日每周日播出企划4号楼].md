@@ -6636,3 +6636,27 @@ image.png
 香音是要唱歌给全世界 ...</blockquote>
 如果前面塑造能平均一点 还能这么理解 现在演了11集的大香音传 这说法就很难信服了
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6609#       发表于 2022-10-3 17:55
+
+<img src="https://img.saraba1st.com/forum/202210/03/175512ul844x54m10m88zx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 17:55 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这是推特上能说的话吗（
+
+*****
+
+####  liu461  
+##### 6610#       发表于 2022-10-3 17:56
+
+大香老师＞九人Liella＞vn＞snp＞五人Liella。其中八星变量为负值。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
