@@ -867,3 +867,38 @@ Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="htt
 尤其搞笑的 ...</blockquote>
 想法很好，但是做游戏的经验实在不够。他们实际上也不是Long War原班人马了，开发早期的时候我刚好在找工作、给他们投了简历，得知他们最惨的时候只剩下两个人，其他人都跑了。后面有人赞助才重新拉起人马。
 
+
+
+*****
+
+####  萼绿华  
+##### 85#         楼主| 发表于 2022-10-4 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752248&amp;ptid=2076238" target="_blank">半分宅 发表于 2022-10-4 07:11</a>
+
+想法很好，但是做游戏的经验实在不够。制作组实际上也不是Long War原班人马了，开发早期的时候我刚好在找 ...</blockquote>
+本地化其实不是他们的问题，这块应该是开发商负责的，他们摊上个不靠谱的开发商罢了。但话说回来这种刚出道的小组能有发行商愿意给他们发也都不错了。
+
+发现贵群居然还讨论Aurora，这游戏居然国内还真有人玩得下去，佩服<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萼绿华  
+##### 86#         楼主| 发表于 2022-10-4 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746666&amp;ptid=2076238" target="_blank">arrowshade 发表于 2022-10-3 19:25</a>
+
+支持率低的时候，兔子一般要说服16以上拉满资金砸才能有勉强过半的成功率，想办法雇一个本国籍带国家英雄 ...</blockquote>
+控制周边国家会有加成，天朝邻国多，也许可能是需要现在周围控一圈国家再往天朝进军，直接去占肯定是很难
+
+*****
+
+####  萼绿华  
+##### 87#         楼主| 发表于 2022-10-4 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57747133&amp;ptid=2076238" target="_blank">傲慢的空想家X 发表于 2022-10-3 20:02</a>
+
+现在有没有主播出教程视频啊？自己摸索得太痛苦了</blockquote>
+国内应该是没有（毕竟就算做全流程墙内也发不出来），只有油管上有英文的，我最开始就是看的这个：
+[https://www.youtube.com/watch?v=M1moqo_QmRY&amp;t=547s](https://www.youtube.com/watch?v=M1moqo_QmRY&amp;t=547s)
+
