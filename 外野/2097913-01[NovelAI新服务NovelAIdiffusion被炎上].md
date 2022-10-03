@@ -729,3 +729,17 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 ----发送自 Sony XQ-CT72,Android 12</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">训练集已经够了,没人再发明新汉字了,不碍着文学家疯狂输出
 
+
+
+*****
+
+####  nexus1  
+##### 72#       发表于 2022-10-4 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749906&amp;ptid=2097913" target="_blank">血祠 发表于 2022-10-3 22:40</a>
+
+是的现在比起担心ai作画画的好不好，先担心一下会不会大量泛滥比较关键，估计要不了多久网上就只能看到ai ...</blockquote>
+那帮画师完全可以嘴上不同意自己作品拿去训练私下拿自己的存货加上点大佬作品疯狂上图,时不时直播一个表示真的在画.
+
+这么演谁不会啊,整天对着画图板那么累不就图一个轻松吗
+
