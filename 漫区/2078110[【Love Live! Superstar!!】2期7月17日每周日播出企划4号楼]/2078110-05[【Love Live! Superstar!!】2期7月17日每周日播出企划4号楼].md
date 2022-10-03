@@ -6740,3 +6740,13 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么嘛  贴吧现在还是有喜欢圣香音传的  花田大老师还没有完全失败
 
+
+
+*****
+
+####  saglork  
+##### 6617#       发表于 2022-10-3 19:12
+
+其实缪水也喜欢玩遇到事情找leader，然后leader强行解决，但果皇千歌都是能力不拔尖，单纯是热情满格活力四射的傻大姐风格，所以不会给人一神拖八腿的强烈感觉，香神这个世界级天才的塑造实在让人背不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且无论是果海鸟还是千耀，关系都比香千这种病态奉献感正常太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
