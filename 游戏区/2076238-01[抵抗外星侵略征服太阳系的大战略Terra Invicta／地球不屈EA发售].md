@@ -902,3 +902,19 @@ Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="htt
 国内应该是没有（毕竟就算做全流程墙内也发不出来），只有油管上有英文的，我最开始就是看的这个：
 [https://www.youtube.com/watch?v=M1moqo_QmRY&amp;t=547s](https://www.youtube.com/watch?v=M1moqo_QmRY&amp;t=547s)
 
+
+
+*****
+
+####  Siran_China  
+##### 88#       发表于 2022-10-4 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752223&amp;ptid=2076238" target="_blank">萼绿华 发表于 2022-10-4 07:02</a>
+
+好像是说当时用流出的开发版做汉化，结果发到群里被制作组当成传播盗版直接给删了？
+
+尤其搞笑的是 ...</blockquote>
+大佬试过在dc频道发帖和给制作组写邮件，但是因为包含了泄露版的内容，然后直接被塞了/被无视了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+日文化也很乐，那个土卫六翻译成“泰坦级战舰”居然在中日翻译里都出现了就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

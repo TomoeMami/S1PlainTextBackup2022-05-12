@@ -1579,3 +1579,12 @@ ai作曲怎么没有这种热度啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AI化的fanbox在路上了
 
+
+
+*****
+
+####  3353764798  
+##### 110#       发表于 2022-10-4 07:23
+
+我感觉一半以上我都看过原图  真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 有些说不定直接都能叠上
+
