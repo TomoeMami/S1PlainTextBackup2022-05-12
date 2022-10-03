@@ -1014,3 +1014,44 @@ rebecca篇幅太短了，明明挺可爱的
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  鳄鱼頭  
+##### 3079#       发表于 2022-10-4 01:56
+
+<blockquote>JonnyGreenwood 发表于 2022-10-4 00:59
+看之前看到过一些梗，以为大致剧情是主角一伙一路顺利高歌猛进，最后突然被重锤三下五除二几分钟搞成团灭， ...</blockquote>
+Adam被喷的狠是因为观众一集内吃了Rebecca的突然死亡和Lucy在月球看到的幻影二连combo，所以才气急败坏的怒骂重锤，光就David战死那段，一般人都已经有了心理准备反而不太会破防
+
+*****
+
+####  散装星空  
+##### 3080#       发表于 2022-10-4 01:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">我还是保持原来的观点：扳机社如果能全靠自己搞得出边缘行者，它早就搞了，跟志不在此和风格突出没钩巴关系。事实就是人没那个能力把控好原创故事。
+单论动画本身到现在还揪着蠢驴没参加剧本来说事多少有点捧杀了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  鱼雷鲨  
+##### 3081#       发表于 2022-10-4 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57744091&amp;ptid=2069884" target="_blank">vipoo126 发表于 2022-10-3 14:57</a>
+
+赛博朋克的基础就是控制论和信息技术已经取得大成，资本主义不再受底层威胁，做到这一点其一就是资本主义 ...</blockquote>
+没网络或网络混乱的地方反而值钱，而且顶级黑客真的扔不出去，甚至死了威力更大……比如奥特在2045年拉了一帮野生AI进入香港无人区的服务器
+
+*****
+
+####  七堂伽蓝  
+##### 3082#       发表于 2022-10-4 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57712313&amp;ptid=2069884" target="_blank">ayanamilin 发表于 2022-9-30 18:58</a>
+看完了，感觉不太行，比双城之战至少要差一档。
+米山舞的脸、扳机的打斗作画、充满沉浸感的音乐、刺激的r18 ...</blockquote>
+攻壳机动队SAC、GIG满足了几个点？
+

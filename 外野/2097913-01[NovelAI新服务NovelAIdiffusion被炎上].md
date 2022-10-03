@@ -855,3 +855,61 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 
 希望novelAI能顶住，上次想买mimic就被冲没了，真的很烦。
 
+
+
+*****
+
+####  lanslort  
+##### 84#       发表于 2022-10-4 01:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jobtownb  
+##### 85#       发表于 2022-10-4 02:03
+
+卢德份子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  formlt  
+##### 86#       发表于 2022-10-4 02:13
+
+乐，你学画画的时候，老师不把别人的作品掏出来进行讲解？不让你学？只准你学，不准机器人学？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yang1820  
+##### 87#       发表于 2022-10-4 02:25
+
+<blockquote>nianiania 发表于 2022-10-3 06:52
+怎么又是日本人在冲，我看不少欧美画师玩的挺乐的，特别是搞影视概念的那帮人 ...</blockquote>
+“搞影视概念”
+
+因为真的是在搞概念，而不是搞绘画形式。画画只是手段之一，不是目的。
+
+*****
+
+####  nekomimimode  
+##### 88#       发表于 2022-10-4 04:21
+
+最后这就会两极分化, 如果以最终出图为目的, 要么走到人上人, 要么彻底沦为修图工, 中间那一档全是AI复制
+
+来个科幻一点的想法
+
+AI复制的全是基于以前的画师的图, 因为AI的出现, 很可能搞纯插图的人越来越少, 因为要从修图工进发到人上人的中间那一个阶层你面对的是AI大军, 很降士气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后AI作为智子的作用锁死了插图上限, 人类的插图世界停留在了过去...
+
+*****
+
+####  圈量子  
+##### 89#       发表于 2022-10-4 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750037&amp;ptid=2097913" target="_blank">nianiania 发表于 2022-10-3 22:52</a>
+怎么又是日本人在冲，我看不少欧美画师玩的挺乐的，特别是搞影视概念的那帮人 ...</blockquote>
+欧美画师又没几个玩pixiv的，他们冲的是其他ai，midjourney那些，因为训练集来源有他们用的artstation
+

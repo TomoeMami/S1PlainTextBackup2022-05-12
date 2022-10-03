@@ -4945,3 +4945,24 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 
 主线居然有20小时？超预期了，毕竟本质线性游戏，原本预期10-15小时主线的
 
+
+
+*****
+
+####  mimighost  
+##### 554#       发表于 2022-10-4 05:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57749281&amp;ptid=2025548" target="_blank">hotsmile 发表于 2022-10-3 21:53</a>
+
+纯黑战神4战神难度无伤的流程也就10小时不到啊</blockquote>
+战神4普通玩家也可以摸20-30毫无问题
+
+这个基本就是宣布和一代长度差不多吧
+
+*****
+
+####  mimighost  
+##### 555#       发表于 2022-10-4 05:35
+
+20个小时还不长啊，泥潭人都不上班么
+

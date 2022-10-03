@@ -1570,3 +1570,12 @@ ai作曲怎么没有这种热度啊</blockquote>
 
 可以啊，之前发现AI和人类最大的差别就是AI在颜色上的渐变会非常自然，人类在颜色渐变上还是比较锐利，但是看最近的AI图感觉越来越难以辨认了，只能说如果再把整图细节提高，足以打大部分商业插绘了，不过如果要求细节估计机器学习的需要的数据集会更大，运算要求更高，AI绘画，未来可期啊！（搞得我都想往AI发展了）
 
+
+
+*****
+
+####  nekomimimode  
+##### 109#       发表于 2022-10-4 04:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AI化的fanbox在路上了
+

@@ -7121,3 +7121,27 @@ SIF2就不知道还会不会被这么重视了
 往好里说，千妈才是慢慢的通过剧情逐渐解开内核的人设，最初乍一看是成熟大方与人为善，性格情商人缘能力都无可挑剔的团队粘合剂和实力担当，随着剧情展开慢慢剥开外层伪装，才露出内里始终如一的原教旨香神主义信徒真实面目，一切为了香神，一切服务香神，其他的都不重要，这人物非常饱满而且没有崩坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 单纯就是有点可怕，让人对香老师的全知全能印象又加深了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plazum  
+##### 6653#       发表于 2022-10-4 01:52
+
+握草，我突然心生一计，香音这季结尾去留学，缺席LL决赛，然后Liella没能拿到冠军，第三季，香音从维也纳携VN王者归来，最终获得LL大赛冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 6654#       发表于 2022-10-4 02:34
+
+？
+
+<img src="https://img.saraba1st.com/forum/202210/04/023442rvneuybbbyjuegbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (190.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 02:34 上传
+
