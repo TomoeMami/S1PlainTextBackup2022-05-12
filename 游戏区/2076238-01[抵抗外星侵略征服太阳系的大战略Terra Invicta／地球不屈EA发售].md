@@ -827,3 +827,43 @@ AI操纵基本上都在跳舞，视觉效果不错，对回避磁轨炮和导弹
 
 Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萼绿华  
+##### 82#         楼主| 发表于 2022-10-4 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752105&amp;ptid=2076238" target="_blank">Siran_China 发表于 2022-10-4 05:32</a>
+
+借专楼说下游戏近况吧
+
+地球不屈这游戏的ea初版汉化可以说是当成机翻都是对翻译AI的侮辱，各种如“泰坦级战 ...</blockquote>
+好像是说当时用流出的开发版做汉化，结果发到群里被制作组当成传播盗版直接给删了？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+尤其搞笑的是这游戏的本地化日文版做的比中文版还烂，这发行商真是属于人见人骗了
+
+*****
+
+####  萼绿华  
+##### 83#         楼主| 发表于 2022-10-4 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748162&amp;ptid=2076238" target="_blank">windtrack_qh 发表于 2022-10-3 20:50</a>
+
+基本上简单开局就是上来抢德法其中一个，白送一个师，然后因为自带欧盟属性，可以直接靠武力推平整合周边小 ...</blockquote>
+欧盟确实是标准开局。美国开局其实也不错，美国自己就足够强了，也不用非要合并国家。问题就是占控制力太多，拿了美国别的国家基本都要放弃。另外据说印度也挺不错的，人口多，发展潜力大，适合种田。天朝首先是一个想占都很难占得动的问题，应该是要先把周边邻国占上一圈才好下手。
+
+但无论自己要占哪个国家，其他大国也不能完全放弃，要尽量防止这些大国被敌对派系控制，就算阻止不了也尽量拦一下。
+
+*****
+
+####  半分宅  
+##### 84#       发表于 2022-10-4 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752223&amp;ptid=2076238" target="_blank">萼绿华 发表于 2022-10-3 19:02</a>
+
+好像是说当时用流出的开发版做汉化，结果发到群里被制作组当成传播盗版直接给删了？
+
+尤其搞笑的 ...</blockquote>
+想法很好，但是做游戏的经验实在不够。他们实际上也不是Long War原班人马了，开发早期的时候我刚好在找工作、给他们投了简历，得知他们最惨的时候只剩下两个人，其他人都跑了。后面有人赞助才重新拉起人马。
+
