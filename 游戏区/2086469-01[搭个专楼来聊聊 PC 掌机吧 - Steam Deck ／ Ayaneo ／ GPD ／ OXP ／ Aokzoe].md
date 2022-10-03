@@ -4150,3 +4150,25 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 而且30w性能释放一样可以调15w啊，顶多低功耗表现不如SD定制的
 
+
+
+*****
+
+####  indtability  
+##### 339#       发表于 2022-10-3 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741195&amp;ptid=2086469" target="_blank">yweili99 发表于 2022-10-3 09:52</a>
+有消息说什么时候出steam deck二代吗？</blockquote>
+valve 一直在说会有二代，但从没说过啥时候出来，从最开始宣布 sd 的时候就说这是一个多代的产品，每次 valve 强调这一点就会有媒体渲染二代要出了，但从没说过具体时间，最接近的应该是 skill up 做的采访，最后问 “…不会在 anytime soon 看到更新”，lawrence 说 i guess so 。看大家怎么理解这个 anytime soon 了，而且 sd 虽然发售半年了，但 dock 还在难产，发售区域也只扩展了东亚四个地区，但还没发货，更别提澳洲，我怎么看都不像很快有新款的样子。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  zris  
+##### 340#       发表于 2022-10-3 11:09
+
+我的估计明年下半年吧。
+
