@@ -4134,3 +4134,19 @@ OLED 观感的确很惊艳，尤其是…对比我的 Steam Deck。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sd轻量化确实有必要，该学任天堂出sdlight了
 
+
+
+*****
+
+####  83913536  
+##### 338#       发表于 2022-10-3 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741301&amp;ptid=2086469" target="_blank">古畑任三郎2015 发表于 2022-10-3 10:04</a>
+
+其实短时间内我不太相信会有显着强于sd1的掌机，包括传闻中7系的sd2
+
+高于15w的性能释放在掌机上都是耍流氓 ...</blockquote>
+有啥耍流氓的，都能压得住，至于续航，其实相当部分时间里都是接电玩的也无所谓续航了
+
+而且30w性能释放一样可以调15w啊，顶多低功耗表现不如SD定制的
+

@@ -175,7 +175,7 @@ async def UpdateThread(threaddict,semaphore):
             mkdir(filedir)
             with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                 f.write('1')
-        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 691200):
+        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 432000):
             thdata[threaddict['id']]['active'] = False
             destdir = '/home/ubuntu/S1PlainTextArchive2022/'
             if(totalpage > 50):

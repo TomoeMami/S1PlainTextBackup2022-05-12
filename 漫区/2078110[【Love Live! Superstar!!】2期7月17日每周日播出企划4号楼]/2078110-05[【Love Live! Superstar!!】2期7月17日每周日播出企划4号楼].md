@@ -6172,3 +6172,128 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 
 这企划真是不忍直视
 
+
+
+*****
+
+####  darkendless  
+##### 6566#       发表于 2022-10-3 10:31
+
+<blockquote><strong>かのん推し以外ってスパスタ见てて楽しいの？</strong>
+
+51名无しで叶える物语(茸)2022/10/02(日) 20:12:28.62ID:zS5uKJWj
+
+クゥすみ推し言うけどすみればっかで可可の掘り下げなんて何もなかったじゃん二期
+
+77名无しで叶える物语(たこやき)2022/10/02(日) 20:54:36.91ID:kPLr3+bh&gt;&gt;91
+
+1期で1期生を掘り下げきれてない(特に可可）から2期生も掘り下げが进まなかったな
+
+まぁ自分は何だかんだ楽しんでるよ
+
+ストーリーあんま気にしてないし
+
+平和な日常シーンでほのぼのしてる
+
+90名无しで叶える物语(もんじゃ)2022/10/02(日) 21:18:38.96ID:tFQDVRuR
+
+ストレス自体はヤバかったがなんだかんだ爆弾の处理は上手くやれたクゥすみだけ得してる
+
+可可はセンター曲とか欲しかったけどね
+
+91名无しで叶える物语(茸)2022/10/02(日) 21:20:04.68ID:9agVh8jb
+
+&gt;&gt;77
+
+过去作で9人は多すぎたからって5人に减らしたのにそれでも掘り下げ出来てないの本当にイミワカンナイ
+
+そんな中で加入してきた追加メンバーも当然満足に掘り下げられる訳ないし
+
+一体何にそんなに尺使ってたんだか</blockquote>
+
+可可缺乏深入挖掘看到有人提了，虽然也有人只是图一乐表示无所谓或者稍微有点表现就行，但想看角色塑造的肯定会失望。
+这动画其实是在暗示大家以后不要带脑子或者站立场看动画了，图一乐才能开心。
+
+*****
+
+####  优妮可  
+##### 6567#       发表于 2022-10-3 10:33
+
+目前没怎么崩的角色是不是只剩芽衣了
+
+*****
+
+####  ViyViy  
+##### 6568#       发表于 2022-10-3 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741568&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-3 10:33</a>
+
+目前没怎么崩的角色是不是只剩芽衣了</blockquote>
+芽衣这集也说了个很怪的台词，在理事长和香音谈完话后问：“是不是瞒着我们干坏事”……？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+当然没有前面樱夏和堇拌嘴来得逆天就是了。
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6569#       发表于 2022-10-3 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741278&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 10:01</a>
+
+这下中日共识了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到这条推了，点进去看一下这人现在绝赞崩溃中，只能说这动画逼疯了不少人
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6570#       发表于 2022-10-3 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741597&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 10:36</a>
+芽衣这集也说了个很怪的台词，在理事长和香音谈完话后问：“是不是瞒着我们干坏事”……？
+
+当然没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大概编剧也知道这事太逆天了
+
+
+
+*****
+
+####  优妮可  
+##### 6571#       发表于 2022-10-3 10:38
+
+<blockquote>ViyViy 发表于 2022-10-3 10:36
+芽衣这集也说了个很怪的台词，在理事长和香音谈完话后问：“是不是瞒着我们干坏事”……？
+
+当然没 ...</blockquote>
+emmm，能接受，只能说这集全员的台词攻击程度都上升了。
+
+*****
+
+####  ruffian  
+##### 6572#       发表于 2022-10-3 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741278&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-03 10:01:32</a></blockquote>这是谁啊？不会是unya吧？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6573#       发表于 2022-10-3 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么感觉推友都快蚌埠住了，搜可可ちゃん一半是在发牢骚的
+
+*****
+
+####  ViyViy  
+##### 6574#       发表于 2022-10-3 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741633&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-3 10:39</a>
+
+这是谁啊？不会是unya吧？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+不是，是个普通的铁血可香推，没想到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
