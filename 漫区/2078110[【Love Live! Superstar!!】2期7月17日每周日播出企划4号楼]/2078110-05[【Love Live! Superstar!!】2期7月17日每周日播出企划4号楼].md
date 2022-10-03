@@ -6750,3 +6750,42 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 其实缪水也喜欢玩遇到事情找leader，然后leader强行解决，但果皇千歌都是能力不拔尖，单纯是热情满格活力四射的傻大姐风格，所以不会给人一神拖八腿的强烈感觉，香神这个世界级天才的塑造实在让人背不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 而且无论是果海鸟还是千耀，关系都比香千这种病态奉献感正常太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 6618#       发表于 2022-10-3 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746535&amp;ptid=2078110" target="_blank">saglork 发表于 2022-10-3 19:12</a>
+其实缪水也喜欢玩遇到事情找leader，然后leader强行解决，但果皇千歌都是能力不拔尖，单纯是热情满格活力四 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一说前两集的可堇也是病态奉献感，为了你好宁愿我来当坏人
+
+*****
+
+####  D麦林  
+##### 6619#       发表于 2022-10-3 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746459&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-3 19:04</a>
+什么嘛  贴吧现在还是有喜欢圣香音传的  花田大老师还没有完全失败</blockquote>
+在互联网上任何东西只要喷的人够多就会有人跳出来给他洗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这已经是一个定律 当然反之亦然
+AS2那剧情都有人真心实意喜欢的 星2有人喜欢有什么奇怪的
+
+*****
+
+####  D麦林  
+##### 6620#       发表于 2022-10-3 19:27
+
+我在想真有星3的话要不给网飞算了
+反正我要是NHK的人我现在已经快绷不住了 给你周日黄金档然后就这
+给网飞一次性放出来 死也死个痛快省得折磨大伙整整3个月
+
+*****
+
+####  川陀  
+##### 6621#       发表于 2022-10-3 19:29
+
+要救星的剧情是不是只能等sif2或者可能有的as了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -706,3 +706,23 @@ AI操纵基本上都在跳舞，视觉效果不错，对回避磁轨炮和导弹
 
 这个机翻的问题越往后越严重。
 
+
+
+*****
+
+####  arrowshade  
+##### 72#       发表于 2022-10-3 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57736627&amp;ptid=2076238" target="_blank">windtrack_qh 发表于 2022-10-2 21:42</a>
+
+兔子这边人口+审查前期根本没法控，结果到了2027年左右AI开始开挂直接控，我都看愣了... ...</blockquote>
+支持率低的时候，兔子一般要说服16以上拉满资金砸才能有勉强过半的成功率，想办法雇一个本国籍带国家英雄特性的会轻松不少，运气好2024年就可以控制了，但是全控要差不多180掌控力，如果不是开局满世界猎杀其他势力干员抢加管理的组织，很难在2026前凑到够用点数
+
+*****
+
+####  johnkamsar  
+##### 73#       发表于 2022-10-3 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不控制一个大国都没法展开目标啊，地球上内卷太严重了…..只能先尽快控制住一个大国然后通过盟约和战争实现一个统一政权来实现目的….
+一群虫豸还天天内卷搞事<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

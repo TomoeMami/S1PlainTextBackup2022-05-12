@@ -968,3 +968,32 @@ Mark
 
 色图小画家彻底下岗
 
+
+
+*****
+
+####  yvev  
+##### 71#       发表于 2022-10-3 19:23
+
+可以，这个AI在其它风格发挥也挺稳定的
+
+<img src="https://iili.io/L4LU74.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LvrG.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4Lk1s.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LS2f.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4Lgkl.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4Lrp2.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4L6IS.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LPh7.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LiQ9.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LLBe.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LZrb.png" referrerpolicy="no-referrer">
+<img src="https://iili.io/L4LD2j.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eulereld  
+##### 72#       发表于 2022-10-3 19:29
+
+细节上差了一点，上色感觉像色块铺上去的，但小问题啦，修改一下填充细节应该能当廒成品发出去
+

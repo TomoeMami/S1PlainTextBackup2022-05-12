@@ -4253,3 +4253,64 @@ sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是�
 收到邮件就能付全款了，付款后就会进入准备发货的状态，打包之类的，准备好之后就会正式出库，一般会花两 ...</blockquote>
 棒！！！
 
+
+
+*****
+
+####  hurtwind  
+##### 348#       发表于 2022-10-3 19:20
+
+aokzoe到了，玩了一天
+
+简单对比了下手里的掌上设备，意外的没有很大
+
+6800u的性能比想象要强，20w就可以60瓦800p高画质原神了
+
+比aya创始人，甚至我5600g的itx性能都要强不少
+
+就是即使续航版也就两小时续航
+
+<img src="https://img.saraba1st.com/forum/202210/03/192015qp6ivcgicgiq8e4m.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-02_18-45-44.jpg</strong> (447.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202210/03/192023fhzl5zsntxd7npj4.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-02_18-51-03.jpg</strong> (593 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202210/03/192030ihyydqgk3gdshxlz.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-02_22-38-26.jpg</strong> (453.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202210/03/192037auapop1r1apc9uku.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-02_22-41-10.jpg</strong> (854.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 19:20 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bypass| + 1|好评加鹅|
+
+查看全部评分
+
