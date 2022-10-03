@@ -75,6 +75,7 @@ if __name__ == '__main__':
                             thdata[l]['active'] = True
                     else:
                         thdata[l]['active'] = True
+                    thdata[l]['lastedit'] = int(threadict[l]['replytime'])
                 else:
                     thdata[l] = {}
                     thdata[l]['totalreply'] =0
