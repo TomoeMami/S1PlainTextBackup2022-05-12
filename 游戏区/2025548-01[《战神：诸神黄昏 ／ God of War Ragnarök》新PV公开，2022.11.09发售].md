@@ -4902,3 +4902,19 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 你说的这种机关，不打可以直接走。</blockquote>
 我也知道，但是就是让人很不爽很窝火<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">无能狂怒了属于是
 
+
+
+*****
+
+####  manare  
+##### 549#       发表于 2022-10-3 23:27
+
+失望，给我塞爆啊！至少主线30小时，支线30小时吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 550#       发表于 2022-10-3 23:29
+
+一堆人纠结游戏时长，我还以为进了NGA<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

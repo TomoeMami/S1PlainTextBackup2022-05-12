@@ -623,3 +623,53 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  白帽子  
+##### 63#       发表于 2022-10-3 23:25
+
+我觉得这很徒劳，就跟有人学你画风画画没什么区别，就是速度是人的千百倍就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猫出没注意  
+##### 64#       发表于 2022-10-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750281&amp;ptid=2097913" target="_blank">knsugit 发表于 2022-10-3 23:13</a>
+
+那太生草了，估计以后会出现一种带水印风格的ai艺术
+
+—— 来自 Xiaomi M2012K11AC, Android 12上 ...</blockquote>
+说到这个想起一个半年前的AI作画的趣闻，在用异形和吉格尔的名字生成作品时，吉格尔的脸总是会不请自来出现在画里<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.yystv.cn/p/9040](https://www.yystv.cn/p/9040)
+
+<img src="https://img.saraba1st.com/forum/202210/03/232509bg9r654j5zv0z96r.jpg" referrerpolicy="no-referrer">
+
+<strong>abd578652604f8cd1ca2af8c9df41973.jpg</strong> (81.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 23:25 上传
+
+*****
+
+####  acejoe  
+##### 65#       发表于 2022-10-3 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750037&amp;ptid=2097913" target="_blank">nianiania 发表于 2022-10-3 22:52</a>
+怎么又是日本人在冲，我看不少欧美画师玩的挺乐的，特别是搞影视概念的那帮人 ...</blockquote>
+人家有不靠卖图生活，搞设计的本来也用贴图画法。
+
+*****
+
+####  acejoe  
+##### 66#       发表于 2022-10-3 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750239&amp;ptid=2097913" target="_blank">血祠 发表于 2022-10-3 23:09</a>
+理论上可以吧你看ai连水印文字都会模仿的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next- ...</blockquote>
+丸山浩那个ai图，右下角明显就是一个签名的变形。
+
