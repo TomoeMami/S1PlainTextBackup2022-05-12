@@ -5537,3 +5537,23 @@ apex不玩，ow不玩，就想玩这个高达FPS也就你了
 
 但是我说的话还是首先赶紧安排哈萨维的同时视听吧
 
+
+
+*****
+
+####  rs5621  
+##### 2038#       发表于 2022-10-3 12:16
+
+高达游戏昨晚我也是试着匹配了，笑死根本匹配不到，羡慕这个35p
+
+同步视听要是播动画我做梦都要笑醒了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ZQXY2002  
+##### 2039#       发表于 2022-10-3 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">最初还看过几次动画的，后面怎么就变成欧美电影鉴赏日了。去年和今年都提到的夏日看动画电影也是没影。
+

@@ -936,3 +936,22 @@ David为荒坂公司提供了宝贵的实验兵器实战数据，Lucy也为荒�
 让人再守一次寡？做个人吧</blockquote>
 不是太阳结局也好离开夜之城也罢，都有删除强尼银手的的结局吗？为啥还是半年？
 
+
+
+*****
+
+####  雪儿  
+##### 3072#       发表于 2022-10-3 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741355&amp;ptid=2069884" target="_blank">stannislas 发表于 2022-10-3 10:09</a>
+不是太阳结局也好离开夜之城也罢，都有删除强尼银手的的结局吗？为啥还是半年？ ...</blockquote>
+因为那个身体已经被芯片改造成**的形状了 你换他来可以继续正常活下去
+如果自己回魂就只能活六个月 荒坂本家的科技也救不了你
+
+*****
+
+####  heresiarch  
+##### 3073#       发表于 2022-10-3 13:20
+
+I REALLY WANT TO STAY AT YOUR HOUSE油管播放量两周内从160万变成470万了，我自己都听到有点PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

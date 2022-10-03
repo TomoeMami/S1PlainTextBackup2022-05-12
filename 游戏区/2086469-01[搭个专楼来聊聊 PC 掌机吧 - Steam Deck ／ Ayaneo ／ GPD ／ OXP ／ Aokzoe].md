@@ -4172,3 +4172,23 @@ valve 一直在说会有二代，但从没说过啥时候出来，从最开始�
 
 我的估计明年下半年吧。
 
+
+
+*****
+
+####  bypass  
+##### 341#         楼主| 发表于 2022-10-3 12:23
+
+Ayaneo 2 开始发实机视频了：
+
+[https://www.bilibili.com/video/BV1Le4y1z7tX](https://www.bilibili.com/video/BV1Le4y1z7tX)
+
+*****
+
+####  Miaoz  
+##### 342#       发表于 2022-10-3 13:36
+
+AYA NEO 2 &amp; AYA NEO GEEK &amp; STEAM DECK？
+选哪个，这是个问题。
+关键还都是期货！
+

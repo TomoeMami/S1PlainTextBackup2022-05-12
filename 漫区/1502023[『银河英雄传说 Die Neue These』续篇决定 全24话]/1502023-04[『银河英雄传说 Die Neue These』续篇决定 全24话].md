@@ -9718,3 +9718,15 @@ oped不换的么
 新版的坎普最后太光伟正了，还加了点原作没有的台词，我现在怀疑到第九卷时会不会连地理学家都有洗 ...</blockquote>
 结合电流君被枪毙要洗也是洗特留吧
 
+
+
+*****
+
+####  洛拉斯  
+##### 5459#       发表于 2022-10-3 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57731002&amp;ptid=1502023" target="_blank">hourousha 发表于 2022-10-2 15:58</a>
+
+这要塞机动力看着比战舰强，而且这还是打坏了个引擎，只有一个人操纵的前提下。 ...</blockquote>
+动画表现太差了，看上去几秒钟的画面其实起码是几小时
+

@@ -6363,3 +6363,133 @@ emmm，能接受，只能说这集全员的台词攻击程度都上升了。
 看动画这么多年能让我看到就犯恶心的主角真没几个  以前那些有争议的主角只要有点闪光点我就能无视 ...</blockquote>
 最草就是这角色本身没什么错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6582#       发表于 2022-10-3 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主角：我是被黄袍加身的
+
+*****
+
+####  梶原ひかり  
+##### 6583#       发表于 2022-10-3 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">卡农：天命所归 非吾之所愿
+
+*****
+
+####  ruffian  
+##### 6584#       发表于 2022-10-3 11:42
+
+仔细想想我应该感谢这b动画，不仅治好了我的低血压，更是为我黯淡无光的人生增添了新的色彩，让冷血麻木的我再次感受到了悲伤、无奈和愤怒。
+谢谢你，因为有你，冰冷了四季
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kbtit  
+##### 6585#       发表于 2022-10-3 11:57
+
+千万别来第三季了，弱智动画只会让人高血压
+
+*****
+
+####  D麦林  
+##### 6586#       发表于 2022-10-3 12:48
+
+如果有三期的话现在已经在筹划中 甚至三期生应该已经在待机了
+企划一旦启动要不要慢下来停下来就不是谁说了能算了的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 6587#       发表于 2022-10-3 12:52
+
+ 本帖最后由 we89623 于 2022-10-3 12:54 编辑 
+
+有本事开二单选举，不把可可推到C位说不过去。
+
+*****
+
+####  沙茶酱  
+##### 6588#       发表于 2022-10-3 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741894&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-3 11:05</a>
+
+去推上看了一眼，还好其实，日本人在蓝鸟上还是委婉的，甚至还有对大结局存在幻想的人在，日本人属实是被这 ...</blockquote>
+你得看5厕，立本人喜欢匿名才有啥说啥
+
+*****
+
+####  沙茶酱  
+##### 6589#       发表于 2022-10-3 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57742986&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-3 12:48</a>
+
+如果有三期的话现在已经在筹划中 甚至三期生应该已经在待机了
+
+企划一旦启动要不要慢下来停下来就不是谁说了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我们骂归骂但是动画再烂也不至于到让企划停下来的地步最多是成为拉拉动画史上最烂作
+
+*****
+
+####  ViyViy  
+##### 6590#       发表于 2022-10-3 13:04
+
+这都已经是偶像动画史上的最烂作了吧。。
+
+这集还背刺了S1E4一个点，既然全球闻名的顶级学院都看的上Lovelive，堇岂不是井底之蛙？
+
+虽然我们都知道，不是你lovelive让香音有含金量，是有香音让lovelive有含金量，斧高不及香毛了属于是
+
+*****
+
+####  CharlieZ-  
+##### 6591#       发表于 2022-10-3 13:11
+
+查询堇推状态，好不容易可可不嘴臭了，后辈开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 6592#       发表于 2022-10-3 13:30
+
+这集给我有种东施效颦的意味。
+LL并不像隔壁棚一样是后起之秀，LL辉煌的历史注定了你这样做必会冒犯老观众，LL何必需要劳什子维也纳加持？
+且因为人物塑造一塌糊涂，
+“当人物刻画深入人心时，你才能对人物产生的冲突与矛盾共情，否则只是生理性的厌恶与不屑罢了”
+这集将大人们自傲而不自持的样子刻画得淋漓尽致，借用爽子哥的名言：“是不是别人不发火就把别人当傻子啊”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chaos7  
+##### 6593#       发表于 2022-10-3 13:32
+
+为什么花田会写出这种剧情，
+
+难以想象staff竟然不觉得有问题。
+
+*****
+
+####  稀勢のささ  
+##### 6594#       发表于 2022-10-3 13:41
+
+<blockquote>こんな状况でウィーンの中の人が3rdライブ来るのかよ…
+
+かのんが言う伪物の歌を披露しにね</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+image.png
+(12.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202210/03/134031q7cy366qm6qabeye.png" referrerpolicy="no-referrer">
+
