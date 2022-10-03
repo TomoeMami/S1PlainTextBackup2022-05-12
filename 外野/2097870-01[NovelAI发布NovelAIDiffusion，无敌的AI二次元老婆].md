@@ -1529,3 +1529,12 @@ ai作曲怎么没有这种热度啊</blockquote>
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  妄想中毒  
+##### 105#       发表于 2022-10-4 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个能生成R18的色图吗
+

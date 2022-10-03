@@ -13730,3 +13730,12 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 我记得我上周还是上上周协力还真碰到一个AIT玩得很厉害的。
 
+
+
+*****
+
+####  madcow  
+##### 7343#       发表于 2022-10-4 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两个都有，应该可以继续攒票回血了？说起来当时抽AIT也是弹尽粮绝（
+
