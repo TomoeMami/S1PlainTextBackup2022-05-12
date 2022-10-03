@@ -6689,3 +6689,16 @@ image.png
 
 syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 6612#       发表于 2022-10-3 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745680&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-3 17:44</a>
+话说谈到海外市场，财团B还是很重视中国大陆市场的。
+
+比如高达中国计划，海外第一个1:1高达立像也在中国， ...</blockquote>
+拉连叔叔家开个官号放视频都做不到，说难听点就是根本没想着拓展国内市场了(
+
