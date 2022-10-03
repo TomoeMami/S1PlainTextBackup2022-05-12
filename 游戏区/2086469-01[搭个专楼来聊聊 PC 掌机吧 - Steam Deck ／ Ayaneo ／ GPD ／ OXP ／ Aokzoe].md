@@ -4216,3 +4216,16 @@ sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是�
 
 steam 美区都是现货了
 
+
+
+*****
+
+####  Miaoz  
+##### 345#       发表于 2022-10-3 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57743913&amp;ptid=2086469" target="_blank">indtability 发表于 2022-10-3 14:33</a>
+sd 不算期货了，现在预订今天晚上多半就能收到邮件，就是运来时间长点。
+
+—— 来自 Xiaomi M2012K11AC,  ...</blockquote>
+收到邮件就开始发货了？
+
