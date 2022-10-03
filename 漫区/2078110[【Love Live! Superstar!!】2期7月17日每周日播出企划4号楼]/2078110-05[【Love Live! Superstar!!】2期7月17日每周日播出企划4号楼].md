@@ -6721,3 +6721,22 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 拉连叔叔家开个官号放视频都做不到，说难听点就是根本没想着拓展国内市场了( ...</blockquote>
 不想就不会找鲤鱼菜宝才两次中文节目了，现在拉拉在国内有官方编制的也就手游了
 
+
+
+*****
+
+####  cybernetics31  
+##### 6615#       发表于 2022-10-3 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746155&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-3 18:35</a>
+
+不想就不会找鲤鱼菜宝播两次中文节目了，现在拉拉在国内有官方编制的也就手游了 ...</blockquote>
+割裂感不就来了嘛 你说它没意思呢 中文节目搞起来了 你说它有想法呢 反正视频是不可能传的 整天版权炮打起来（
+
+*****
+
+####  稀勢のささ  
+##### 6616#       发表于 2022-10-3 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么嘛  贴吧现在还是有喜欢圣香音传的  花田大老师还没有完全失败
+
