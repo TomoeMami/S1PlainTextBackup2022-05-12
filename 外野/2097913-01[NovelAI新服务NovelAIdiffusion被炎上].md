@@ -913,3 +913,15 @@ AI复制的全是基于以前的画师的图, 因为AI的出现, 很可能搞纯
 怎么又是日本人在冲，我看不少欧美画师玩的挺乐的，特别是搞影视概念的那帮人 ...</blockquote>
 欧美画师又没几个玩pixiv的，他们冲的是其他ai，midjourney那些，因为训练集来源有他们用的artstation
 
+
+
+*****
+
+####  wszweill  
+##### 90#       发表于 2022-10-4 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748881&amp;ptid=2097913" target="_blank">delphinian 发表于 2022-10-3 08:32</a>
+
+那么，给ai装个摄像头自己照着屏幕拍是不是可以规避版权问题呢，毕竟你的画总不能说不给人看吧 ...</blockquote>
+版权不是这么玩的，比如本来这种画自己下来用AI拉高清，然后自己打印玩没问题，但是印好了当本子卖钱就涉及版权了，和自己能不能打印没关系。把商业图用于AI训练一样是一个法律实践问题，得看法官怎么想（律师怎么吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
