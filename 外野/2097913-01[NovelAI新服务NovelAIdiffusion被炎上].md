@@ -715,3 +715,17 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 有种东西叫做声明</blockquote>
 什么意思？求解释下。假设我把图下载下来丢进ai里，他怎么知道的？
 
+
+
+*****
+
+####  nexus1  
+##### 71#       发表于 2022-10-4 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57750557&amp;ptid=2097913" target="_blank">Cray 发表于 2022-10-3 23:38</a>
+
+以后没人创作新东西了看ai怎么拼图。
+
+----发送自 Sony XQ-CT72,Android 12</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">训练集已经够了,没人再发明新汉字了,不碍着文学家疯狂输出
+
