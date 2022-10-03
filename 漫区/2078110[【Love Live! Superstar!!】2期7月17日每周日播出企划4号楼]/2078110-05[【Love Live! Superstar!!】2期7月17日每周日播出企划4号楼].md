@@ -6549,3 +6549,15 @@ image.png
 
 在人物三观没大偏差的情况下，让妮觉得这么恶心也本事好吧
 
+
+
+*****
+
+####  沙茶酱  
+##### 6601#       发表于 2022-10-3 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57741649&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-3 10:40</a>
+
+草，怎么感觉推友都快蚌埠住了，搜可可ちゃん一半是在发牢骚的</blockquote>
+我更好奇为什么能忍到这时，花田京极这发病一整季了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
