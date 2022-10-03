@@ -6789,3 +6789,26 @@ AS2那剧情都有人真心实意喜欢的 星2有人喜欢有什么奇怪的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6622#       发表于 2022-10-3 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等sif2出来早凉了。。
+
+*****
+
+####  稀勢のささ  
+##### 6623#       发表于 2022-10-3 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">楼U能RP下5岁小女孩发表下看完这玩意儿的看法吗
+
+*****
+
+####  ViyViy  
+##### 6624#       发表于 2022-10-3 19:37
+
+真的有人，看手游剧情吗……？
+

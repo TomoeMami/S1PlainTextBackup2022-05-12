@@ -997,3 +997,50 @@ Mark
 
 细节上差了一点，上色感觉像色块铺上去的，但小问题啦，修改一下填充细节应该能当廒成品发出去
 
+
+
+*****
+
+####  Porsche  
+##### 73#       发表于 2022-10-3 19:35
+
+日本已经炎上了，因为直接拿danbooru训练的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yesicant  
+##### 74#         楼主| 发表于 2022-10-3 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746760&amp;ptid=2097870" target="_blank">Porsche 发表于 2022-10-3 19:35</a>
+日本已经炎上了，因为直接&amp;#x6 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">干碎一个mimic
+
+mimic:我们只是四大天王里最弱的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  坑狗madao  
+##### 75#       发表于 2022-10-3 19:38
+
+手比之前的模型目测好一点
+
+但还是比正常的手差一点<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI AQM-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Risten  
+##### 76#       发表于 2022-10-3 19:40
+
+好顶赞<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 77#       发表于 2022-10-3 19:41
+
+细嗦毛茸茸
+
