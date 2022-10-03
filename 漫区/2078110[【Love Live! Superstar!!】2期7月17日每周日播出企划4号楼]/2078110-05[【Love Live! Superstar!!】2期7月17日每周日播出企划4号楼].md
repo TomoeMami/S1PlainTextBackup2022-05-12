@@ -6660,3 +6660,32 @@ image.png
 
 大香老师＞九人Liella＞vn＞snp＞五人Liella。其中八星变量为负值。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6611#       发表于 2022-10-3 18:05
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-3 18:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/03/180437cl5glglgiszz5jst.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (163.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 18:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">说起来也快到bd1发售了，别商业成绩也垫底了
+
+<img src="https://img.saraba1st.com/forum/202210/03/180701kxlxvhy1xtvk5tra.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-3 18:07 上传
+
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

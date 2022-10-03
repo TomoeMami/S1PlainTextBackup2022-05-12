@@ -943,3 +943,28 @@ Mark
 我觉得比较实用的AI应该能做到：根据3D建模或手画出来的相机视角位置、人物火柴人模型，描述背景内容和角色 ...</blockquote>
 +1觉得这才是正确的方向而且也是能实现的。现在的这种特别像纯自学临摹靠练习量力大砖飞的小画家<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nanrendu  
+##### 68#       发表于 2022-10-3 18:04
+
+感觉AI画，对普通人来说己经足够，也就是画师会比较纠结，毕竟有不少错误。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Nanachi  
+##### 69#       发表于 2022-10-3 18:07
+
+描ai的图会被挂吗？
+
+*****
+
+####  RinQ0326  
+##### 70#       发表于 2022-10-3 18:12
+
+色图小画家彻底下岗
+
