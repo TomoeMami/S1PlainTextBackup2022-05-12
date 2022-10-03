@@ -6702,3 +6702,22 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 比如高达中国计划，海外第一个1:1高达立像也在中国， ...</blockquote>
 拉连叔叔家开个官号放视频都做不到，说难听点就是根本没想着拓展国内市场了(
 
+
+
+*****
+
+####  ViyViy  
+##### 6613#       发表于 2022-10-3 18:35
+
+看到结娜作为嘉宾全程出席的时候还以为VN必是三期生，原来，是个陪读的书童<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 6614#       发表于 2022-10-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746035&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-3 18:21</a>
+
+拉连叔叔家开个官号放视频都做不到，说难听点就是根本没想着拓展国内市场了( ...</blockquote>
+不想就不会找鲤鱼菜宝才两次中文节目了，现在拉拉在国内有官方编制的也就手游了
+
