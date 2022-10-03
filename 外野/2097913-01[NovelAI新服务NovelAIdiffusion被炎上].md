@@ -836,3 +836,22 @@ novelai算比较靠谱开放， 产品做的比较好的一家了，希望人（
 
 热度比mimic那时候低多了
 
+
+
+*****
+
+####  LrGsite  
+##### 82#       发表于 2022-10-4 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57751527&amp;ptid=2097913" target="_blank">wangh 发表于 2022-10-4 01:19</a>
+
+更大的可能是到了一定的程度就再也没有什么进步了，AI翻译就是一个先例</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">能做到一般人给出几个提示词就能生成指定作品的程度我就很满足了,现在来看已经能够满足了,只需要再完善一下易用性我觉得就好了,就像做到天气预报app和翻译软件一样就可以了
+
+*****
+
+####  yang1820  
+##### 83#       发表于 2022-10-4 01:39
+
+希望novelAI能顶住，上次想买mimic就被冲没了，真的很烦。
+

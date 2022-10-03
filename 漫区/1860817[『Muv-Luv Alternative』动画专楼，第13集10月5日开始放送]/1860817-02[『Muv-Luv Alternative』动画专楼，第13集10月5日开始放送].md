@@ -9,3 +9,15 @@ FOD本季是主推这部吧。东京JR的车内广告每几分钟都播一次FOD
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  hacisiki  
+##### 1790#       发表于 2022-10-4 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57751506&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-10-4 01:15</a>
+
+FOD本季是主推这部吧。东京JR的车内广告每几分钟都播一次FOD的PV，夕阳背景的まりも不断出现，这是什么脱敏 ...</blockquote>
+艹，PTSD要犯了。预告里夕阳配的那段话太戳心窝子了
+
