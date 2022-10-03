@@ -1135,3 +1135,40 @@ ai能不能先生成一个人体骨架啊，感觉不然好多地方都怪怪的
 
 继续公关手和脚啊，现在不画手脚ai已经爆杀一些初学者了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 86#       发表于 2022-10-3 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57748004&amp;ptid=2097870" target="_blank">whzfjd 发表于 2022-10-3 20:42</a>
+
+我说的是技术内的伦理，或者是理念吧，模型的产出能拿来训练模型吗？</blockquote>
+是可以，不过这样只会加速进一步过拟合而已，实际中基本没有这么干的
+
+*****
+
+####  天神十三煞  
+##### 87#       发表于 2022-10-3 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745573&amp;ptid=2097870" target="_blank">吴怀在 发表于 2022-10-3 01:32</a>
+
+我觉得比较实用的AI应该能做到：根据3D建模或手画出来的相机视角位置、人物火柴人模型，描述背景内容和角色 ...</blockquote>
+我也有这想法
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+过几天我发布恋活最强整合
+
+作为二次元老婆制作收集器
+
+是时候发挥它的作用了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 88#       发表于 2022-10-3 21:09
+
+整体不错，但不小心看到缺的或者多的手指瞬间就掉san了……
+
