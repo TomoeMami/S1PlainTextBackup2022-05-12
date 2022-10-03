@@ -5960,3 +5960,35 @@ sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美�
 sma是典型旱的旱死涝的涝死，对比一下同社的楠木和井泽美香子出道至今接过点啥活，应该很明显能看出来。p ...</blockquote>
 以前也提过这个，资源倾斜是必然。没被事务所强推，大概只会有保底的工作，饿不死的程度，剩下的全看运气
 
+
+
+*****
+
+####  lj205  
+##### 6547#       发表于 2022-10-3 08:13
+
+鲤鱼这cos还可以
+
+*****
+
+####  adw667  
+##### 6548#       发表于 2022-10-3 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57739685&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-3 01:24</a>
+
+差点忘了千之前说过留学的，千就计划着支香音出国然后自己跟着去是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很难不让人想起隔壁那个也带团子的重女
+
+*****
+
+####  ViyViy  
+##### 6549#       发表于 2022-10-3 08:18
+
+又是被狗动画恶心醒的一天。
+
+喵的，突然想到，NMD可可会回国香音屁都不放还在那“小堇”，现在香音被倒逼留学可可一定会有反应就又恶心起来了。
+
+跟这两没心没肺的白眼狼青梅真别再深入了，一个帮了你一点儿反馈没有一个只开关键团对着干<img src="https://static.saraba1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">
+
+花田这病症真是癌细胞一样扩散了，这集除了四季，给一年级的都啥台词？唯一的好处是终于可以让一些人“正视”一下你家宝贝“被迫害”到底问题在谁身上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
