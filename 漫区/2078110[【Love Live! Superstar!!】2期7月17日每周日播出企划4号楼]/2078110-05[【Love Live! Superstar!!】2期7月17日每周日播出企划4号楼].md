@@ -7502,3 +7502,15 @@ SIF2就不知道还会不会被这么重视了
 8人の肩车</blockquote>
 这星策划是不是脑子多少带点大病啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 6686#       发表于 2022-10-4 13:59
+
+这就是所谓“反噬”，角色塑造烂成这样不可避免被人车。
+这只是一方面而已，等着看吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
