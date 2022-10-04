@@ -1119,3 +1119,20 @@ K最后躺在雪地里目送真正的英雄和主角携手而归那 ...</blockqu
 他的技能里有 ...</blockquote>
 礼问一下这些规则书是官方的吗？还是同人创作？
 
+
+
+*****
+
+####  ads147147  
+##### 3088#       发表于 2022-10-4 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57731950&amp;ptid=2069884" target="_blank">死宅真恶心 发表于 2022-10-2 16:47</a>
+亚当重锤：好了，你们现在可以求饶了。
+
+观众：（夜之城脏话）
+
+亚当重锤：哈哈，好一群硬汉，可以开始我为你 ...</blockquote>
+v哥救我，i am the strom~~
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

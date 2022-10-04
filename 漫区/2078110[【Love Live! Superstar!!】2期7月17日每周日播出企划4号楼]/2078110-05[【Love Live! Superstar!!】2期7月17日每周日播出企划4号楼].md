@@ -8166,3 +8166,33 @@ H83
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  优妮可  
+##### 6746#       发表于 2022-10-4 19:39
+
+感觉顶多是鲨鱼妹的水平。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6747#       发表于 2022-10-4 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">真这么牛还来拉拉？谨慎看好
+
+*****
+
+####  沙茶酱  
+##### 6748#       发表于 2022-10-4 19:42
+
+到底还有没有其他三期
+
+*****
+
+####  nufawneafg  
+##### 6749#       发表于 2022-10-4 19:42
+
+还行吧，现在多少有个期待，要不还能期待啥，动画过场么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
