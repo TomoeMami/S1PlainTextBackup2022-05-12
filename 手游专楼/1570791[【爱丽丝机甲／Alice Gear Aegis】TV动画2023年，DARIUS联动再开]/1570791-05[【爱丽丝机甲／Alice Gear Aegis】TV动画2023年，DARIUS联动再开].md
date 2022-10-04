@@ -13765,3 +13765,21 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">天赋图可以一键打通了
 这就是你复刻三连的代价吗，阿金
 
+
+
+*****
+
+####  delphinian  
+##### 7346#       发表于 2022-10-4 15:00
+
+<img src="https://img.saraba1st.com/forum/202210/04/145949ruuu9i8ub98tlyif.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221004-145844.png</strong> (168.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 14:59 上传
+
+感动，普天同庆了
+

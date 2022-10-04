@@ -1892,3 +1892,46 @@ nd的草图，用Sketch做prompt
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  yesicant  
+##### 127#         楼主| 发表于 2022-10-4 14:55
+
+img2img的效果
+
+<img src="https://img.saraba1st.com/forum/202210/04/145527t5cc45j0019cj5zj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221004-145242.jpg</strong> (263.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/145527rq1a3hfgl1usdhlz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221004-145406.jpg</strong> (163.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/145527tozi0ypy9zbixnpx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221004-145352.jpg</strong> (211.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/145527yf13jjn313311x7q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221004-145317.jpg</strong> (205.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:55 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
