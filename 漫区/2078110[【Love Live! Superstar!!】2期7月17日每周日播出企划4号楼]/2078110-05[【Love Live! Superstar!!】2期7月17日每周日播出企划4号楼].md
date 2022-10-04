@@ -7978,3 +7978,33 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ads147147  
+##### 6733#       发表于 2022-10-4 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757618&amp;ptid=2078110" target="_blank">川陀 发表于 2022-10-4 17:38</a>
+
+我一直觉得星二期就是劣化版的种命
+
+—— 来自 S1Fun</blockquote>
+我觉得花田和京极心态上都快和v高达差不多了。。
+
+*****
+
+####  ads147147  
+##### 6734#       发表于 2022-10-4 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757507&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-4 17:27</a>
+
+与其说把粉丝经济玩透了，更像是把ip玩透了
+
+只要ip摆在这，我就可劲儿试，对一个就能拿回来所有成本还有的 ...</blockquote>
+高达正统续作不是吹的。
+
+-日升代表作是什么？
+
+-lovelive
+

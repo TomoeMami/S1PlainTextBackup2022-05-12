@@ -4453,3 +4453,14 @@ deck装windows有问题么？</blockquote>
 
 至于游戏大屏模式那类我是不太在意。
 
+
+
+*****
+
+####  医生狼多  
+##### 360#       发表于 2022-10-4 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757189&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-10-4 16:57</a>
+我一直想问来着，他们吹的前端比起playnite或者体感助手之类的到底有什么优势啊，特别是一号本全家都有实 ...</blockquote>
+一号本只用热键只有两种模式，多个前端可以多级调节功耗风扇之类的
+
