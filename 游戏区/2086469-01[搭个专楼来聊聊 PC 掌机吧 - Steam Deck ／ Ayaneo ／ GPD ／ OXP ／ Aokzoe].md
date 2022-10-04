@@ -4439,3 +4439,17 @@ deck装windows有问题么？</blockquote>
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  83913536  
+##### 359#       发表于 2022-10-4 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757189&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-10-4 16:57</a>
+
+我一直想问来着，他们吹的前端比起playnite或者体感助手之类的到底有什么优势啊，特别是一号本全家都有实 ...</blockquote>
+对我来说前端最重要功能就是方便锁帧和调风扇，前者那个软件用触屏操作挺别扭的，后者没官方支持靠第三方基本没办法。
+
+至于游戏大屏模式那类我是不太在意。
+
