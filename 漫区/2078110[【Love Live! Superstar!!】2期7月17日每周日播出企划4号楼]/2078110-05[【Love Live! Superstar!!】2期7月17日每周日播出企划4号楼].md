@@ -9899,3 +9899,75 @@ emmm感觉打sif as就不错了
 ···为什么现在还有人猜星团内部感情一般？老五星那会儿就大家都觉得她们感情很好。你们不会有人觉得加了 ...</blockquote>
 所以我说歪的很怪，一个动画带来的恶果，还在扩张，现在都变成成员都是应付工作，没啥感情了？你要都这么想，我觉得真的别难为自己了，还是趁早互相放过吧……
 
+
+
+*****
+
+####  仟音一心  
+##### 6919#       发表于 2022-10-5 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762745&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-4 23:57</a>
+
+emmm感觉打sif as就不错了</blockquote>
+
+上个月广播鱼对玩美少女梦工厂讲了一堆呢。
+
+*****
+
+####  ddy2811  
+##### 6920#       发表于 2022-10-5 00:02
+
+一点点往不正式成团的同好会里加人出了问题也就是砸个口子的程度，想想办法总能补上的；往已经一起活动那么久的团里一下子加4个人那真的就是在粉丝眼前把过去的积累摔个粉碎了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6921#       发表于 2022-10-5 00:03
+
+<blockquote>仟音一心 发表于 2022-10-5 00:01
+上个月广播鱼对玩美少女梦工厂讲了一堆呢。</blockquote>
+联机游戏那种
+
+*****
+
+####  nufawneafg  
+##### 6922#       发表于 2022-10-5 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762822&amp;ptid=2078110" target="_blank">ddy2811 发表于 2022-10-5 00:02</a>
+一点点往不正式成团的同好会里加人出了问题也就是砸个口子的程度，想想办法总能补上的；往已经一起活动那么 ...</blockquote>
+所以一直说企划从根上就很傲慢，属于嘲弄市场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6923#       发表于 2022-10-5 00:05
+
+回去看了看4月28的星楼 还是有不少预言成功的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 6924#       发表于 2022-10-5 00:05
+
+谁让最近的生放广播老是在尬吹+擦屁股   可不就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 6925#       发表于 2022-10-5 00:06
+
+动画烂活不说了，我回想了一下一期去年这个时候，其实也没有那么有团队感，亲如一家的感觉真就是二十多长live加排练同甘共苦朝夕相处培育出来的，跨年开始到2nd大坂算是粉丝的甜蜜期吧，live好看歌好听，中之人互动全是糖。
+另外星一期拍了五个主要外景，前期有变形记和读卖乐园这种大型团建，liella去哪基本是工商，一巡之路和二巡之路是演唱会预热，多数都很精彩，拍摄活动也能拉近成员距离。
+二期生底子不好是一方面，另一方面也是太缺少舞台机会了，日本这个疫情啊……三巡锤炼一波，表现力和团队感都会增强的。然后就是外景拍的少，粉丝没粮吃，看不到二期生工商以外的形象，也很难产生亲近感……
+
+*****
+
+####  starring  
+##### 6926#       发表于 2022-10-5 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762836&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-5 00:03</a>
+联机游戏那种</blockquote>
+五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以外的事，pay连电脑都不会用的机械白痴
+
