@@ -1096,3 +1096,26 @@ Anime is trash嘛
 K最后躺在雪地里目送真正的英雄和主角携手而归那 ...</blockquote>
 确实是有2049相似的感觉，大概这就是赛博朋克题材的醍醐味之一吧
 
+
+
+*****
+
+####  jacket  
+##### 3086#       发表于 2022-10-4 19:00
+
+|Cyberpunk: Edgerunners | I Really Want to Stay At Your House by Rosa Walton | Netflix|
+[https://www.youtube.com/watch?v=h4VJGNNSQnw](https://www.youtube.com/watch?v=h4VJGNNSQnw)
+
+官方MV剪的可以，人性值又不稳了<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dewaydu  
+##### 3087#       发表于 2022-10-4 19:07
+
+<blockquote>砂糖天妇罗 发表于 2022-9-15 00:13
+银手有主角光环。而且他本身是个摇滚明星，比起亚当重锤和黑手，他的数据全面落后，然而…
+
+他的技能里有 ...</blockquote>
+礼问一下这些规则书是官方的吗？还是同人创作？
+

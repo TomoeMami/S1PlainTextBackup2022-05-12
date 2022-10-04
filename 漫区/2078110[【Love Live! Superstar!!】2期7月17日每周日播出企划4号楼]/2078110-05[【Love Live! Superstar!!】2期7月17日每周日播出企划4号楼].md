@@ -8053,3 +8053,28 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 我觉得花田和京极心态上都快和v高达差不多了。。</blockquote>
 更像是看了v但没看结局，被轮胎创得精神错乱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6737#       发表于 2022-10-4 19:04
+
+<img src="https://img.saraba1st.com/forum/202210/04/190418hry31o3amr2rhow3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6EAD723D-58A2-4ABA-8C86-C3C972EA6327.jpeg</strong> (379.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 19:04 上传
+
+*****
+
+####  starring  
+##### 6738#       发表于 2022-10-4 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758375&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 18:58</a>
+结那</blockquote>
+星团也终于有腿精
+
