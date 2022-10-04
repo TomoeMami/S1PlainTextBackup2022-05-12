@@ -8248,3 +8248,39 @@ nico评分几点出来啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 这可比看动画有意思。
 
+
+
+*****
+
+####  we89623  
+##### 6756#       发表于 2022-10-4 20:04
+
+星动画除非彻底推了重制，否则第三季就算在写的怎么好，第二季依然是根刺立在那里。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6757#       发表于 2022-10-4 20:07
+
+直接吃了二期书是最粗暴的方法了，保留第二年的成绩但完全洗牌人物关系。
+
+*****
+
+####  Enakina  
+##### 6758#       发表于 2022-10-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758868&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 19:40</a>
+真这么牛还来拉拉？谨慎看好</blockquote>
+真那么牛现在怎么可能混的这么一般，简历这玩意看看就好了
+
+*****
+
+####  仟音一心  
+##### 6759#       发表于 2022-10-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57759185&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-4 20:02</a>
+nico评分几点出来啊
+
+这可比看动画有意思。</blockquote>
+九点多
+

@@ -1136,3 +1136,15 @@ v哥救我，i am the strom~~
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sosgame67  
+##### 3089#       发表于 2022-10-4 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758468&amp;ptid=2069884" target="_blank">dewaydu 发表于 2022-10-4 19:07</a>
+
+礼问一下这些规则书是官方的吗？还是同人创作？</blockquote>
+银手和重锤还有摩根黑手都是trpg赛博朋克2020的背景人物，有相关数据和背景描述的
+
