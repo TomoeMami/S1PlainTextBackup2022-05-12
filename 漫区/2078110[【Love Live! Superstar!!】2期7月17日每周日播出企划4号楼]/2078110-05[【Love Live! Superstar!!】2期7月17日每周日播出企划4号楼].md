@@ -8323,3 +8323,29 @@ nico评分几点出来啊
 
 都是一期开头牛逼 后面开始拉 二期开始大拉特拉
 
+
+
+*****
+
+####  ads147147  
+##### 6762#       发表于 2022-10-4 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57759777&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-4 20:38</a>
+看你们聊这个我就不得不把我之前做的这个拿出来了
+
+水水剧场版没想好 因为种子剧场版还没出来不方便对
+
+星当 ...</blockquote>
+让我想起了自己还许愿能看到再起2，不过按代哥的习惯应该会重新安排一个主角玩网游。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ruffian  
+##### 6763#       发表于 2022-10-4 20:58
+
+如果三期只保留人物关系其他直接推翻或者覆盖，只要写得好还是会有不少人买账的，甚至三期只要发挥平庸对比就够强烈了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
