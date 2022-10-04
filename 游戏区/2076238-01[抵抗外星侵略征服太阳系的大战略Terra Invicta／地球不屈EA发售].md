@@ -918,3 +918,20 @@ Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="htt
 
 日文化也很乐，那个土卫六翻译成“泰坦级战舰”居然在中日翻译里都出现了就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萧观澜  
+##### 89#       发表于 2022-10-4 09:00
+
+今天好像翻译有改动了。
+才看到有一个科技是反攻大陆，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asuss  
+##### 90#       发表于 2022-10-4 09:01
+
+游戏的潜力好高，但是现在肯定是不值得玩的时候，开发人员有预计EA要多久么？两年？
+
