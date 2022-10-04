@@ -4393,3 +4393,15 @@ aokzoe到了，玩了一天
 
 deck装windows有问题么？
 
+
+
+*****
+
+####  83913536  
+##### 355#       发表于 2022-10-4 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752651&amp;ptid=2086469" target="_blank">asuss 发表于 2022-10-4 08:56</a>
+
+deck装windows有问题么？</blockquote>
+因为没前端，调不了风扇，体验不如国产Win掌机
+
