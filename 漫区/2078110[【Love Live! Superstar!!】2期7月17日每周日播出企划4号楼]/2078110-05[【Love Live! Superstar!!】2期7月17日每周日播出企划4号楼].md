@@ -7758,3 +7758,69 @@ SIF2就不知道还会不会被这么重视了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期第一卷初动1w4啊
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6710#       发表于 2022-10-4 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">输给虹了，5ch狂欢
+
+*****
+
+####  优妮可  
+##### 6711#       发表于 2022-10-4 16:44
+
+赢过吗？这有啥狂欢的，一期不是差的更多？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6712#       发表于 2022-10-4 16:47
+
+<img src="https://img.saraba1st.com/forum/202210/04/164725qu9ucnmghwgn11gc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 16:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看这期裂拉几会怎么吹
+
+*****
+
+####  ads147147  
+##### 6713#       发表于 2022-10-4 16:48
+
+没啊，虹2期bd1是半价才卖3k5，销量也就2w，基本上两个圈子核心人数都差不多，甚至可以说是同一批人了（可能相互有点不交集的部分，这部分虹多一点）。
+
+反正企划已经玩明白了，就和沙特王子诈骗一样，被筛选下来的人永远不可能跑的。
+
+*****
+
+####  ViyViy  
+##### 6714#       发表于 2022-10-4 16:49
+
+这初动，我很怀疑后面是不是某卷会跌破万，好像LL动画还从未初动仅四位数的吧
+
+*****
+
+####  nufawneafg  
+##### 6715#       发表于 2022-10-4 16:49
+
+ 本帖最后由 nufawneafg 于 2022-10-4 16:51 编辑 
+
+5ch也是入脑...虹那个动画素质，赢了这劳什子动画有啥可乐的
+不过可惜数据平平，要是大暴死，我也加入开香槟，这不上不下的<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6716#       发表于 2022-10-4 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757026&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 16:43</a>
+输给虹了，5ch狂欢</blockquote>
+Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在乎呢，在乎的人去玩吧，我更期待今天评分能不能创造记录呢
+
