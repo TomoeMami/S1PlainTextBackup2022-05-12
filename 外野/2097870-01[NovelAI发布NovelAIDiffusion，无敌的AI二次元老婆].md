@@ -1964,3 +1964,27 @@ img2img的效果
 
 我也希望不会画画的漫画原作者们都能用上ai辅助作画，这样才能皆大欢喜。
 
+
+
+*****
+
+####  aa01  
+##### 129#       发表于 2022-10-4 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755334&amp;ptid=2097870" target="_blank">fat 发表于 2022-10-4 13:34</a>
+
+唔日后的二次元画家都是这样的作业流程了吧，
+
+①定构图、基本特征→②喂AI出图→③挑选→④修改细节出货</blockquote>
+如果AI是可以根据基本构图或者设定草图来深入细节的话，倒是正确的方向和适合的工具。
+
+*****
+
+####  aa01  
+##### 130#       发表于 2022-10-4 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755412&amp;ptid=2097870" target="_blank">卢迪乌斯 发表于 2022-10-4 13:42</a>
+
+让一堆会讲故事不会画画的人加入进来，更卷了吧</blockquote>
+韩漫自成一体，AI漫画到时候也会自成一体。人类的审美不是靠大量管饱的AI代餐就能喂饱的
+

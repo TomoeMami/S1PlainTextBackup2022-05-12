@@ -7651,3 +7651,25 @@ SIF2就不知道还会不会被这么重视了
 
 我今天才看到有人说，是不是京极花田已经不想在干星团的工作了，所以故意搞事<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plazum  
+##### 6699#       发表于 2022-10-4 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755810&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-4 14:27</a>
+
+我对香哥哥的反感纯纯来自于官方，大香nc粉我还真没怎么看到过，可能是因为我不逛贴吧 ...</blockquote>
+即便香音塑造这么糟糕，我还是觉得香音挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 6700#       发表于 2022-10-4 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57756188&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 15:10</a>
+
+我今天才看到有人说，是不是京极花田已经不想在干星团的工作了，所以故意搞事 ...</blockquote>
+自爆不要危及粉丝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
