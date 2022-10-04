@@ -8716,3 +8716,112 @@ A5也是90多集才开始崩得一塌糊涂，LLSP是才用11集，已经尽力�
 由手机上传
 2022-10-4 21:50 上传
 
+
+
+*****
+
+####  ruffian  
+##### 6804#       发表于 2022-10-4 21:54
+
+说起来舰c2好像花田不参与了吧？舰c在反三集定律这方面倒是跟星一挺有默契<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  darkendless  
+##### 6805#       发表于 2022-10-4 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761073&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 21:51</a>
+你能再表演一下那个吗？</blockquote>
+暗示ceo的炎上商法成功了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6806#       发表于 2022-10-4 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来成神之日26.9%啊，下一集应该能赢！
+
+*****
+
+####  Erikas  
+##### 6807#       发表于 2022-10-4 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没毛病，我猜下集是香音是高飞维也纳，VN进结女，这样就还是九个人
+
+*****
+
+####  仟音一心  
+##### 6808#       发表于 2022-10-4 21:59
+
+1话 79.8 *9.1 *5.8 *3.0 *2.3
+2话 78.6 10.2 *6.3 *2.9 *2.0
+3话 76.4 10.0 *6.4 *3.4 *3.7
+4话 84.8 *7.1 *4.4 *2.3 *1.5
+5话 57.3 11.5 *8.2 12.3 10.8
+6话 47.7 12.5 12.4 14.9 12.5
+7话 66.1 11.5 10.5 *6.8 *5.1
+8话 51.5 14.2 13.5 12.7 *8.0
+9话 45.8 11.9 12.0 15.5 14.8
+10话 52.5 17.1 17.6 *6.9 *5.8
+11话 28.4 *8.9 12.4 21.1 29.2
+
+*****
+
+####  ViyViy  
+##### 6809#       发表于 2022-10-4 21:59
+
+有时候真希望这种IP新系列动画可以严重受到上一系列烂活影响被连坐。
+
+像15年育碧的ACU仅仅因为优化问题就拖累下一作枭雄导致首周暴**迫育碧彻底革新AC系列。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6810#       发表于 2022-10-4 22:00
+
+下一集会不会突破新低？下一集放完还要马上生放，这大香老师都飞去留学了，生放还是九人呀
+
+
+
+*****
+
+####  沙茶酱  
+##### 6811#       发表于 2022-10-4 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761178&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 21:57</a>
+
+原来成神之日26.9%啊，下一集应该能赢！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/04/215922d865c6ie555568l6.jpg" referrerpolicy="no-referrer">
+
+<strong>成.jpg</strong> (84.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 21:59 上传
+
+这是成神之日最后一集的NICO评分
+
+我觉得花田要超越，估计还是加把劲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不会真的超越吧
+
+*****
+
+####  稀勢のささ  
+##### 6812#       发表于 2022-10-4 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761194&amp;ptid=2078110" target="_blank">Erikas 发表于 2022-10-4 21:58</a>
+
+没毛病，我猜下集是香音是高飞维也纳，VN进结女，这样就还是九个人</blockquote>
+一年级两个B都说了 香哥哥一走其他几位一个个都靠不住 这队伍肯定得散<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6813#       发表于 2022-10-4 22:02
+
+香音肯定不会走，最后一集就是怎么让千开窍的。
+

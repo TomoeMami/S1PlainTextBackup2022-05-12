@@ -9114,3 +9114,12 @@ ESL简直nt，之前下半年在丹麦办epl不都挺好的吗，结果马耳他
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sazanka  
+##### 2577#       发表于 2022-10-4 21:52
+
+才发现GL的isak长得像年轻的电子哥哈哈
+
