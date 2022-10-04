@@ -7363,3 +7363,27 @@ SIF2就不知道还会不会被这么重视了
 
 看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星踪幻影  
+##### 6674#       发表于 2022-10-4 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754252&amp;ptid=2078110" target="_blank">liu461 发表于 2022-10-4 11:54</a>
+
+看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制</blockquote>
+说个有趣的，5厕那里因为鲤鱼对二期动画的反应，反而博得不少同情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 6675#       发表于 2022-10-4 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753736&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-04 11:08:57</a>
+你让可可回国退队再拉回来不就名正言顺的第九番了吗
+
+我还挺期待大香老师这个“我”走了之后剩下的“我们” ...</blockquote>别尬黑，现在的九番也是有主c的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

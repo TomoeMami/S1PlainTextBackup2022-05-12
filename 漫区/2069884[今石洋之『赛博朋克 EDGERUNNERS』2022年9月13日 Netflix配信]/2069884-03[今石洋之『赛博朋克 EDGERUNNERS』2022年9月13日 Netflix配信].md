@@ -1064,3 +1064,21 @@ Adam被喷的狠是因为观众一集内吃了Rebecca的突然死亡和Lucy在�
 
 话说专楼能发相关COS嘛
 
+
+
+*****
+
+####  Quiet_  
+##### 3084#       发表于 2022-10-4 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57640344&amp;ptid=2069884" target="_blank">YF30 发表于 2022-9-25 12:46</a>
+
+我发现大火的东西总得经历这么个过程：火了→吹起来→吹完起来引踩→打成一团。
+
+现在在这个阶段：   ...</blockquote>
+绝大多数tv动画是经不起婆罗门的挑剔眼光审视的。
+
+拿经典作品特别是其他领域的作品拉踩这个很正常，但这种人肯定早就没有每季度看新动画的习惯了。
+
+Anime is trash嘛
+
