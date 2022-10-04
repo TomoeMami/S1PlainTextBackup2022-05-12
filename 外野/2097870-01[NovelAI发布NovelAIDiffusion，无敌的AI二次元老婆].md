@@ -1666,3 +1666,18 @@ hakurei reimu, serval (kemono friends), holding hands under a starry sky
 
 2022-10-4 09:58 上传
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 113#       发表于 2022-10-4 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">等模型开源
+
+补个Q群，有兴趣的可以加群讨论~
+
+Stage1st AI小画家
+
+772340869
+
