@@ -1599,3 +1599,70 @@ ai作曲怎么没有这种热度啊</blockquote>
 我说的是技术内的伦理，或者是理念吧，模型的产出能拿来训练模型吗？</blockquote>
 可以，但不筛选直接上传过拟合（如奇葩的手越来越奇葩）。但是，如果有人打标签告诉ai那些是不对的，那训练出手画的越来越好。而往网站上传的都是比较正常不奇葩的，那ai也会慢慢到一个用户感知到的上限（比现在好的多，如某些一般人看不出来的结构问题是改不好了）
 
+
+
+*****
+
+####  galekkomari  
+##### 112#       发表于 2022-10-4 09:55
+
+ 本帖最后由 galekkomari 于 2022-10-4 09:58 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/04/095525z2r55gttlwca1kct.png" referrerpolicy="no-referrer">
+
+<strong>A young girl wearing futuristic armor with bright highlights, standing in a virt.png</strong> (75.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/095525a2vehnhh2ao525of.png" referrerpolicy="no-referrer">
+
+<strong>A young girl wearing futuristic armor with bright highlights, standing in a virt.png</strong> (72.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/095524hz8y8yywv8zz9z82.png" referrerpolicy="no-referrer">
+
+<strong>A young girl wearing futuristic armor with bright highlights, standing in a virt.png</strong> (54.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/095525h49yzj2hihkhjxhx.png" referrerpolicy="no-referrer">
+
+<strong>A young girl wearing futuristic armor with bright highlights, standing in a virt.png</strong> (71.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/095531s88s8wx8enw7z774.png" referrerpolicy="no-referrer">
+
+<strong>hakurei reimu, serval (kemono friends), holding hands under a starry sky s-557671312.png</strong> (93.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:55 上传
+
+的确……令人震惊。
+
+Prompts
+
+A young girl wearing futuristic armor with bright highlights, standing in a virtual vaporwave space, Shadowverse
+
+hakurei reimu, serval (kemono friends), holding hands under a starry sky
+
+注，上面那张恰好达成了我用那个图的奇诡效果所以我纯了下来，所以我再特意上一张同批次中正常的。
+
+<img src="https://img.saraba1st.com/forum/202210/04/095844ez4oh4lo4h0hz012.png" referrerpolicy="no-referrer">
+
+<strong>hakurei reimu, serval (kemono friends), holding hands under a starry sky s-557671311.png</strong> (112.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 09:58 上传
+
