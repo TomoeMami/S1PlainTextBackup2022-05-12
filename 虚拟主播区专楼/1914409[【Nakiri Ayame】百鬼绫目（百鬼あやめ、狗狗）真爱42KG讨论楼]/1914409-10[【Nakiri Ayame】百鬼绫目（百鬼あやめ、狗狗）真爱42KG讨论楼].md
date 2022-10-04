@@ -7846,3 +7846,12 @@ ljl赛区还是一如既往的垃……
 
 绫总：勿念，已经专枪女了，撸什么的不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 14380#       发表于 2022-10-4 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng打不过dfm原地解散吧。
+

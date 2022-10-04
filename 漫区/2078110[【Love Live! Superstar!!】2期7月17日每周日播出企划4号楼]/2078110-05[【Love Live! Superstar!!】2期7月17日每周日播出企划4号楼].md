@@ -8574,3 +8574,82 @@ nico评分几点出来啊
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  愛さ実  
+##### 6789#       发表于 2022-10-4 21:32
+
+5比1还多，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  言可  
+##### 6790#       发表于 2022-10-4 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57760713&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 21:29</a>
+可惜应该是超不了兽娘2了</blockquote>
+相信sunrise，相信花田大老师，下一集再创新低不是没可能
+
+*****
+
+####  稀勢のささ  
+##### 6791#       发表于 2022-10-4 21:33
+
+<img src="https://img.saraba1st.com/forum/202210/04/213321m5e60rid2jxibb6d.jpg" referrerpolicy="no-referrer">
+
+<strong>DVAfUcI.jpg</strong> (182.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 21:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 6792#       发表于 2022-10-4 21:33
+
+弹幕：5は虹信
+
+nico也已经是乐子人狂欢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 6793#       发表于 2022-10-4 21:34
+
+结那只是简历好看（实际也就和nagi差不多），搞乐队结果CD销量糊的都不好意思拿出来说，真是六边形谁来声优这行卷啊
+
+*****
+
+####  沙茶酱  
+##### 6794#       发表于 2022-10-4 21:35
+
+你看2~5的分布，你可以得出，1肯定是包括大量中间看不下去的默认好评
+
+*****
+
+####  CharlieZ-  
+##### 6795#       发表于 2022-10-4 21:36
+
+好死好死好死好死好死好死好死好死好死好死好死好死好死好死好死好死好死好死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6796#       发表于 2022-10-4 21:39
+
+下集能否继续突破还要看花田大师能否助推一波可香人和可推的怒气了，这集已经把反香派鼓动了，接下去只能鼓动角色推和CP推了。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6797#       发表于 2022-10-4 21:40
+
+2800人投票啊，居然还有800个1，惊呆了
+
