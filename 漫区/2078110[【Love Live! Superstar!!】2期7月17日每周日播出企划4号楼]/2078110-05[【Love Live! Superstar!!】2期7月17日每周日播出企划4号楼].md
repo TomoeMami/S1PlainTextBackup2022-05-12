@@ -7169,3 +7169,16 @@ SIF2就不知道还会不会被这么重视了
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6657#       发表于 2022-10-4 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752210&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-4 06:54</a>
+理事长说4月去，所以应该是参加完大赛才去，都吹到这份上了这次肯定是以冠军身份去留学的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后突然又窜出来个敌团薄纱了9人，香音库亚西库亚西，说“我本来被小千说服去留学了，但现在输了一方面很不甘心，一方面我要继续提升自己实力才能配得上你们维也纳音乐学院”，这样留学危机就搁置了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后第三年终于冠军了，维也纳那里说我们还有音乐大学你来深造吧。反正也毕业了这时候留学也没人有意见了吧，香音小千vn踏上了异国求学之旅，可可高高兴兴回上海，堇成了演艺圈大明星，恋继承了学校，毕业的时候再和剩下的四人来段感人（大嘘）的交接仪式，大家都有光明的未来，全剧完，可喜可贺。
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我居然还觉得这样的剧情很合理
+
