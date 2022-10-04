@@ -11145,3 +11145,23 @@ slm这紧张的
 推上看到的三枝直播聊到卯月脱法ロック的repo
 [https://twitter.com/aaa76810584/ ... nmgEzrOA6vkD_ewFudQ](https://twitter.com/aaa76810584/status/1576556208273518592?s=20&amp;t=FARnmgEzrOA6vkD_ewFudQ)
 
+
+
+*****
+
+####  Porsche  
+##### 17525#       发表于 2022-10-4 13:02
+
+爱你卡拉你这不对阿，越来越有钱怎么谷子越来越缩水啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+图是别人上传的，22年亚克力板子和21年板子的大小对比
+
+4140024.jpg
+(260.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 13:00 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/130059qvu6n4faxpx76ey5.jpg" referrerpolicy="no-referrer">
+

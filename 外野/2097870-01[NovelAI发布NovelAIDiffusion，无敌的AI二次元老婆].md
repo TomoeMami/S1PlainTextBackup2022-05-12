@@ -1681,3 +1681,15 @@ Stage1st AI小画家
 
 772340869
 
+
+
+*****
+
+####  stonego  
+##### 114#       发表于 2022-10-4 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57745573&amp;ptid=2097870" target="_blank">吴怀在 发表于 2022-10-3 17:32</a>
+
+我觉得比较实用的AI应该能做到：根据3D建模或手画出来的相机视角位置、人物火柴人模型，描述背景内容和角色 ...</blockquote>
+MMD里的骨骼套上Ai的皮，感觉就是下一代二刺螈工业化的方向了
+
