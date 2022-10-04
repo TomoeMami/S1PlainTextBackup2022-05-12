@@ -7302,3 +7302,31 @@ SIF2就不知道还会不会被这么重视了
 后面三次元还要上西武呢……别说，LL就是好混，一般小偶像啥销量才敢想几万人的场子，凭啥啊？ ...</blockquote>
 祖宗留下的家底呗，还足够败几年呢
 
+
+
+*****
+
+####  ViyViy  
+##### 6669#       发表于 2022-10-4 11:08
+
+你让可可回国退队再拉回来不就名正言顺的第九番了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还挺期待大香老师这个“我”走了之后剩下的“我们”一起实现的故事正式开演呢。
+
+至于大香老师，都是强推仔了那再给你单独做个外传讲留学的一年有何不可。
+
+*****
+
+####  Kfly  
+##### 6670#       发表于 2022-10-4 11:10
+
+8人の肩车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/04/110945ejozov2o2u15zafb.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-frtfK2gT3cSsg-g0.jpg</strong> (90.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 11:09 上传
+
