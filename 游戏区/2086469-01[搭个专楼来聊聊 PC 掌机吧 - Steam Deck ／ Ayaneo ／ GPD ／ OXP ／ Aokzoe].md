@@ -4414,3 +4414,15 @@ deck装windows有问题么？</blockquote>
 
 现在的win掌机或者说win系统能实现品牌掌机程度的游戏内随意待机唤醒吗
 
+
+
+*****
+
+####  魔法酪饼  
+##### 357#       发表于 2022-10-4 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755654&amp;ptid=2086469" target="_blank">Ichihatsu 发表于 2022-10-4 14:10</a>
+
+现在的win掌机或者说win系统能实现品牌掌机程度的游戏内随意待机唤醒吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">没戏，笔记本啥样这玩意就啥样
+
