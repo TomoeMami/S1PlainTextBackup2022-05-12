@@ -7435,3 +7435,35 @@ SIF2就不知道还会不会被这么重视了
 
 隔壁的菜宝也算一个例子
 
+
+
+*****
+
+####  csolfans  
+##### 6680#       发表于 2022-10-4 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754554&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-10-4 12:19</a>
+
+只要小百合的嗓子问题没解&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">我一开始以为强推铃原，结果第二季变本加厉
+
+*****
+
+####  csolfans  
+##### 6681#       发表于 2022-10-4 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754252&amp;ptid=2078110" target="_blank">liu461 发表于 2022-10-4 11:54</a>
+
+看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">大可不必，小百合又没啥错
+
+*****
+
+####  星踪幻影  
+##### 6682#       发表于 2022-10-4 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754669&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-4 12:29</a>
+
+我一开始以为强推铃原，结果第二季变本加厉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这情况加重小百合负担的编剧我也是服了
+
