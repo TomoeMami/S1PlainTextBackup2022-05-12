@@ -10231,3 +10231,23 @@ emmm感觉打sif as就不错了</blockquote>
 真能腆着脸说啊</blockquote>
 谢谢你，睡前一笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 6950#       发表于 2022-10-5 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763616&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-5 01:29</a>
+真能腆着脸说啊</blockquote>
+反向上升也是上升（
+
+*****
+
+####  iuhehc  
+##### 6951#       发表于 2022-10-5 01:40
+
+开头怎么还拿虹出来拐那么一下的，真是搞不懂啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
