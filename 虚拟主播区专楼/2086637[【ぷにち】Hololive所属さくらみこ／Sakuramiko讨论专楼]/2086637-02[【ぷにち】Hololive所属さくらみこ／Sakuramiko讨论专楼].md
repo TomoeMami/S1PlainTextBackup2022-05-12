@@ -5698,3 +5698,12 @@ apex不玩，ow不玩，就想玩这个高达FPS也就你了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2054#         楼主| 发表于 2022-10-4 17:40
+
+联动7点，反正
+
