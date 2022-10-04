@@ -7156,3 +7156,16 @@ SIF2就不知道还会不会被这么重视了
 握草，我突然心生一计，香音这季结尾去留学，缺席LL决赛，然后Liella没能拿到冠军，第三季，香音从维也纳携 ...</blockquote>
 理事长说4月去，所以应该是参加完大赛才去，都吹到这份上了这次肯定是以冠军身份去留学的
 
+
+
+*****
+
+####  ads147147  
+##### 6656#       发表于 2022-10-4 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57751836&amp;ptid=2078110" target="_blank">Alicest 发表于 2022-10-4 02:34</a>
+？</blockquote>
+前一句更逆天，炮轰了全虹咲。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
