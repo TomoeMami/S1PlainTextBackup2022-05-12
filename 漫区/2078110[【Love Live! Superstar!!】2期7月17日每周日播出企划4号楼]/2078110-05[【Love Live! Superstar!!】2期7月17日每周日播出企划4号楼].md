@@ -8134,3 +8134,35 @@ H83
 
 结那先干的是模特所以才有三维出来把，相当不错的身材了，不会也是从小练古典芭蕾的把。
 
+
+
+*****
+
+####  qty  
+##### 6743#       发表于 2022-10-4 19:24
+
+这照片明显拉伸过，看远处的墙就知道
+
+*****
+
+####  仟音一心  
+##### 6744#       发表于 2022-10-4 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758624&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-4 19:19</a>
+结那先干的是模特所以才有三维出来把，相当不错的身材了，不会也是从小练古典芭蕾的把。 ...</blockquote>
+早年玩乐队的（人声和吉他手），因为母亲是网球教练从小有练网球。
+然后就是两次世界小姐日本大赛，2020年TOP10获评审特别奖，2021年获准世界小姐。
+六边形战士。
+
+*****
+
+####  ads147147  
+##### 6745#       发表于 2022-10-4 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758696&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 19:26</a>
+早年玩乐队的（人声和吉他手），因为母亲是网球教练从小有练网球。
+然后就是两次世界小姐日本大赛，2020 ...</blockquote>
+这六边形真的厉害。越发期待到时候live现场的表现了，vn的舞不比岚珠的轻松
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
