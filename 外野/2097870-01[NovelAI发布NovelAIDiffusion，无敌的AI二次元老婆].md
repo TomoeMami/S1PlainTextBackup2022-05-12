@@ -2017,3 +2017,12 @@ img2img的效果
 
 img2img的效果还是蛮好的，自己构图能帮忙省很多时间，不过改起来还是费力，虽然目前来说最大问题还是要实用的话对自己来说开销太大了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zhongjie  
+##### 134#       发表于 2022-10-5 01:10
+
+感觉各种网文web文的人设和插图都可以用ai来搞了
+
