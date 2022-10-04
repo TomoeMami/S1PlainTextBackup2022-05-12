@@ -9971,3 +9971,112 @@ emmm感觉打sif as就不错了</blockquote>
 联机游戏那种</blockquote>
 五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以外的事，pay连电脑都不会用的机械白痴
 
+
+
+*****
+
+####  saya1892  
+##### 6927#       发表于 2022-10-5 00:13
+
+[https://fate.5ch.net/test/read.cgi/lovelive/1664800742/](https://fate.5ch.net/test/read.cgi/lovelive/1664800742/) <blockquote>11名無しで叶える物語(もんじゃ)2022/10/03(月) 21:44:14.13ID:4Uns7JBF
+
+京極「アニポケSVの監督任命されました」
+
+花田「結婚して」
+
+京極「は？」
+
+花田「天下のポケの監督様にだったら掘られてもいい」
+
+京極「&gt;&gt;14」
+
+京極「娘の名前はキョウカにしような」
+
+花田「おk」
+
+ｶﾞﾁｬ
+
+酒井「おい花田、その男誰だよ。俺という相手がいながら」
+
+花田「&gt;&gt;17」</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6928#       发表于 2022-10-5 00:14
+
+<blockquote>starring 发表于 2022-10-5 00:11
+五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以 ...</blockquote>
+确实
+
+*****
+
+####  nufawneafg  
+##### 6929#       发表于 2022-10-5 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762944&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-5 00:11</a>
+五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以 ...</blockquote>
+鲤鱼那种游戏口味基本上就是养成游戏最多加模拟经营都是孤独之星系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对抗/团建游戏也苦手的
+
+*****
+
+####  仟音一心  
+##### 6930#       发表于 2022-10-5 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762944&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-5 00:11</a>
+五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以 ...</blockquote>
+游戏这个真没必要强求，兔也是游戏黑洞，也没妨碍做立德。
+
+
+
+*****
+
+####  沙茶酱  
+##### 6931#       发表于 2022-10-5 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762864&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-5 00:05</a>
+
+回去看了看4月28的星楼 还是有不少预言成功的
+
+—— 来自 S1Fun</blockquote>
+回去翻看了一下，只能说那些预言准得有点离谱
+
+*****
+
+####  cybernetics31  
+##### 6932#       发表于 2022-10-5 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论宅是她宅
+
+*****
+
+####  yicihanshu  
+##### 6933#       发表于 2022-10-5 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762822&amp;ptid=2078110" target="_blank">ddy2811 发表于 2022-10-5 00:02</a>
+一点点往不正式成团的同好会里加人出了问题也就是砸个口子的程度，想想办法总能补上的；往已经一起活动那么 ...</blockquote>
+虹的问题也不是加人，主要是这逼雨野写的什么玩意东西，20年栞子推和雪菜推快不共戴天了，虹四格出点雪栞下面都能搁那嘲讽，好不容易能接受的接受了，接受不了的退了。然后21年更是重量级，不光新加入的人崩，带着几个老角色也写崩，每次更新剧情跟狼人杀一样，猜猜这章崩哪个角色人设。到最后大家求着赶紧让她们俩进同好会结束掉这没眼看的第二季主线吧，鬼知道雨野多写这主线一章自己推会不会遭殃。
+
+花田大概也做到了，他这剧情写的比加人本身离谱多了，大家一开始说要加人这东西不好写可以理解他，但现在这动画问题和加人也没关系，他这标题就是在骄傲的宣布，我就是特意这么写的，我这就叫点题，就是要写香音传。那加人对花田来说不就是加挂件么，花田再给你额外加vn的戏都不带费劲的，挂件嘛，好写的很。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 6934#       发表于 2022-10-5 00:21
+
+我看隔壁，今天貌似有个杂志发售，谈到一期海选完就被告知有二期生了？现在还是没看到有人搬具体翻译，这可是绝对劲爆的信息
+
+*****
+
+####  player3960  
+##### 6935#       发表于 2022-10-5 00:22
+
+与其说游戏，不如说星团老五宅浓度不够吧，都很现充的，鲤鱼已经算比较宅向了，广播访谈还能经常cue些别的动漫，聊的也蛮细的，烂铁广播歌曲推荐也全是anisong，除此之外其他人好像多是些现充话题，和宅宅有点缺乏亲近感啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
