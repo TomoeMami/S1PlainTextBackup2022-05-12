@@ -253,3 +253,14 @@ BV1BG4y1z7qo
 
 想问一下，月姬的BE算恐怖吗，恐怖的话我就按攻略只通几个结局了
 
+
+
+*****
+
+####  医生狼多  
+##### 1529#       发表于 2022-10-5 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57764401&amp;ptid=1980597" target="_blank">雪村葵 发表于 2022-10-5 07:11</a>
+想问一下，月姬的BE算恐怖吗，恐怖的话我就按攻略只通几个结局了</blockquote>
+背刺有点多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">血浆有点多
+
