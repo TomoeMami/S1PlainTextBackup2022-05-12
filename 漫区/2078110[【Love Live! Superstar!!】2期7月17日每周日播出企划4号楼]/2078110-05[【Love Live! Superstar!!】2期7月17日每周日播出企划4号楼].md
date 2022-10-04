@@ -8383,3 +8383,194 @@ nico评分几点出来啊
 
 卖盘这事妮星妮虹菜鸡互啄，就今年星虹卖唱片都干过和隔壁pjsk五五开的事
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6768#       发表于 2022-10-4 21:25
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-4 21:26 编辑 
+
+乐了 28.4%
+
+1 28.4
+
+2 8.9
+
+3 12.4
+
+4 21.1
+
+5 29.2
+
+*****
+
+####  ads147147  
+##### 6769#       发表于 2022-10-4 21:25
+
+令和名作之壁都说了是蒜了，啦啦现在放了王之力也连这种壁都碰不到的片子就别说了
+
+*****
+
+####  稀勢のささ  
+##### 6770#       发表于 2022-10-4 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">28.4 牛逼
+
+*****
+
+####  iuhehc  
+##### 6771#       发表于 2022-10-4 21:26
+
+28.4 乐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 6772#       发表于 2022-10-4 21:26
+
+ 本帖最后由 nufawneafg 于 2022-10-4 21:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">nb
+反向创造历史
+
+*****
+
+####  Enakina  
+##### 6773#       发表于 2022-10-4 21:27
+
+牛逼，我们是冠军！！！
+
+*****
+
+####  lj205  
+##### 6774#       发表于 2022-10-4 21:28
+
+好的很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6775#       发表于 2022-10-4 21:28
+
+为香音加冕！
+
+*****
+
+####  Kfly  
+##### 6776#       发表于 2022-10-4 21:28
+
+<img src="https://img.saraba1st.com/forum/202210/04/212821sg4xy2qee4z2qqx2.png" referrerpolicy="no-referrer">
+
+<strong>.png</strong> (115.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 21:28 上传
+
+*****
+
+####  沙茶酱  
+##### 6777#       发表于 2022-10-4 21:28
+
+花田突破了自己的底线！
+
+*****
+
+####  沙茶酱  
+##### 6778#       发表于 2022-10-4 21:28
+
+黑屏回都打不过这集
+
+*****
+
+####  iuhehc  
+##### 6779#       发表于 2022-10-4 21:29
+
+<img src="https://img.saraba1st.com/forum/202210/04/212857ibzb66yk5yvvx6ke.jpg" referrerpolicy="no-referrer">
+
+<strong>28.4.jpg</strong> (104.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 21:28 上传
+
+*****
+
+####  kata魂  
+##### 6780#       发表于 2022-10-4 21:29
+
+这可不是香音一个人的功劳
+
+还有伟大的千砂都
+
+啊
+
+完美的青梅竹马组合啊，一般人是干不出这事的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kfly  
+##### 6781#       发表于 2022-10-4 21:29
+
+我相信，这是一个ll史上前无古人后无来者的记录！！
+星三：你说啥？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6782#       发表于 2022-10-4 21:29
+
+可惜应该是超不了兽娘2了
+
+*****
+
+####  a92063256  
+##### 6783#       发表于 2022-10-4 21:30
+
+这下创造历史了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 6784#       发表于 2022-10-4 21:30
+
+看看下一集有多烂，会不会1开头
+
+*****
+
+####  米奥莉奈  
+##### 6785#       发表于 2022-10-4 21:30
+
+见证ll动画历史<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6786#       发表于 2022-10-4 21:31
+
+那不好说，最后一集说不定继续新仇旧恨积怨爆发<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6787#       发表于 2022-10-4 21:32
+
+最后一集在整整狠活，把怨气压缩到极致，机会还是挺大的
+
+*****
+
+####  player3960  
+##### 6788#       发表于 2022-10-4 21:32
+
+争第一还得是你大香哥哥，可堇回真比不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
