@@ -9195,3 +9195,76 @@ LL？什么东西？这是实现我香皇的故事
 毕竟最差的第4回DD组都上90了，这个是田中仁都真心写不来。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那集差归差，歌还不错，只能说田中对爱这种完全体完美人格根本不知道写什么好，他自己也说不会写；不过现在回想起来，那集的“差”是因为过于求稳，全集都是样板戏，我现在开始觉得能好好写样板戏，好好出一个好看的Live，确实值90了······
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6848#       发表于 2022-10-4 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761468&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 22:18</a>
+
+我觉得还真不一定，毕竟差评再多，也不会和人气互相抵消，人气看的还是粉丝数而不是粉丝和黑粉的综合，骂的 ...</blockquote>
+个人感觉更重要的可能要看这动画对角色负面塑造的影响吧，我是觉得香音本身这塑造虽然不咋地，但是也没整太烂的活，就像这第11集香音好像没啥问题，但是咱们大伙基本不怎么待见香音，而接受香音传或者对香音传没感觉的人不会受什么影响的
+
+而与之相对，二期动画里“被拿去唱白脸引发激烈矛盾冲突”的角色可能是最动摇粉丝根本的，像夏美第5集的剧情，二期动画里可堇相处里可可的剧情，这个很多人都不觉得是个好剧情，后面也没怎么圆回来，负面塑造就搁那里了，个人觉得这种更容易让即存粉丝跑路，除非是搞剧情切割
+
+*****
+
+####  M乔梦  
+##### 6849#       发表于 2022-10-4 22:43
+
+花田也真就是个奇葩了,上限和下限都这么离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6850#       发表于 2022-10-4 22:45
+
+偶像大师界最烂的偶像大师，花田做的。
+拉拉界最烂的lovelive，花田做的。
+
+现在还有京吹3呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  we89623  
+##### 6851#       发表于 2022-10-4 22:46
+
+别乱黑，我觉得萝卜大师就剧情来说还是不错的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6852#       发表于 2022-10-4 22:47
+
+对吹三还是很有信心的，毕竟是人家想做的题材
+
+*****
+
+####  yicihanshu  
+##### 6853#       发表于 2022-10-4 22:49
+
+1是28.4%，2是8.9%，28.4+8.9=37.3。
+还不如岸田内阁现在的支持率
+<img src="https://p.sda1.dev/7/dfa2bb2c5ee626a8beb1dbaeb130f959/286f8df3e780295e.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6854#       发表于 2022-10-4 22:50
+
+<img src="https://img.saraba1st.com/forum/202210/04/225048fuwgl5ci55kzivjg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 22:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
