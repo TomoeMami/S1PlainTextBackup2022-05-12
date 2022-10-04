@@ -8358,3 +8358,28 @@ nico评分几点出来啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想去点个5结果发现锁IP
 
+
+
+*****
+
+####  DarthAka  
+##### 6765#       发表于 2022-10-4 21:14
+
+星的盘还有个debuff的，按妮星的动员力和演出密度，几乎当天一定有现地票，不一定非要抽选
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6766#       发表于 2022-10-4 21:19
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-4 21:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">被限制地区了，本来想看弹幕热闹的，顺便5ch第11话感想楼已经开到第5串了
+
+*****
+
+####  DarthAka  
+##### 6767#       发表于 2022-10-4 21:21
+
+卖盘这事妮星妮虹菜鸡互啄，就今年星虹卖唱片都干过和隔壁pjsk五五开的事
+
