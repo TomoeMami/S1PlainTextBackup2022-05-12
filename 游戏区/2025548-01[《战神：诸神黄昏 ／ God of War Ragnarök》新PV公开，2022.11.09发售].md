@@ -4984,3 +4984,12 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 
 套一下隔壁漫区现在最大的矛盾来说，它不是战神只是个普通的3A的话20小时是很长，但是它是战神，还是新战神的续作<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yeaha123  
+##### 558#       发表于 2022-10-4 09:31
+
+希望谜题简单一点，跟xb3转珠子那么弱智就可以了
+

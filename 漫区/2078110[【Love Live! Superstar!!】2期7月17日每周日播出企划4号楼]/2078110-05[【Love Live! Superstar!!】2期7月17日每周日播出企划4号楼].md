@@ -7204,3 +7204,14 @@ SIF2就不知道还会不会被这么重视了
 这个敌团，是不是空降的VN老姐输了剧场版先想办法把可可拽回来吧，毕竟可可可从没说过东京决赛赢了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没毛病啊，高二暑假（从日本学制上来说应该是寒假）去上海把可可拉回来，无缝衔接高三内容好吧
 
+
+
+*****
+
+####  ads147147  
+##### 6660#       发表于 2022-10-4 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还想着可可回呢，中国人不要太自作多情了。
+
+人家德国贵族（洗脚婢）还没个人回呢
+

@@ -935,3 +935,12 @@ Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="htt
 
 游戏的潜力好高，但是现在肯定是不值得玩的时候，开发人员有预计EA要多久么？两年？
 
+
+
+*****
+
+####  萼绿华  
+##### 91#         楼主| 发表于 2022-10-4 09:22
+
+外星人降临后有点CNC3味，抵抗派改叫“全球防卫组织”，出走派改叫“NOD兄弟会”，成了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
