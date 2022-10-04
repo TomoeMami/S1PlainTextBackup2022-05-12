@@ -9619,3 +9619,149 @@ LL？什么东西？这是实现我香皇的故事
 
 一巡那么辛苦都熬过来了，现在加了人巡演会轻松点。至于动画，不知道她们配音的时候有没有想过会是今天这样的状况呢。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6890#       发表于 2022-10-4 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762496&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 23:37</a>
+
+现在（以及之后两三年内）除了小百合，谁有底气退出啊</blockquote>
+无论从啥角度看，小百合都更不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 6891#       发表于 2022-10-4 23:42
+
+小百合就有底气退出了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+微信问问她有没有底气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+瘦死的骆驼比马大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tjshibc21  
+##### 6892#       发表于 2022-10-4 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762456&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:34</a>
+
+别说，就这发展趋势可能真有机会见证企划第一次中之人退出</blockquote>
+有合同的 
+
+*****
+
+####  稀勢のささ  
+##### 6893#       发表于 2022-10-4 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762516&amp;ptid=2078110" target="_blank">Erikas 发表于 2022-10-4 23:38</a>
+
+就是敷衍啦，典型的把安排的活弄完就摆，对项目本身并不上心的老油条作风
+
+去留学深造这事，学生会长 ...</blockquote>
+看到大家知道大香老师要润那儿一人一句的样子我还期待可可说点啥  结果就最后跟风暴千里来了句你瞅啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6894#       发表于 2022-10-4 23:44
+
+今天开一瓶香槟下周日还要再开一瓶，无论做得好坏都会抱着报复/乐子的心态去打分只会更低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外说中之人切割退出企划宣泄一下情绪就罢，不会有人真想她们踢掉LL这个跳板吧。星做得再差，这个铁饭碗可不是谁都那么容易拿到，更何况现在五老星还没站稳脚，无论怎样都要继续做下去，反正过两三年留下来的核心粉丝自然会把动画这拖后腿的黑历史埋掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 6895#       发表于 2022-10-4 23:44
+
+md，万南滚吧
+
+*****
+
+####  shine888kire  
+##### 6896#       发表于 2022-10-4 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762520&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:39</a>
+
+主要对比隔壁虹中之人各种一家人的样子，星这边就………………</blockquote>
+虹中之人最牛的点在算是最晚加进去的妃喵都已经融得像陪了她们5年了的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 6897#       发表于 2022-10-4 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星嘛………………
+
+*****
+
+####  ViyViy  
+##### 6898#       发表于 2022-10-4 23:48
+
+<blockquote>稀勢のささ 发表于 2022-10-4 23:43
+看到大家知道大香老师要润那儿一人一句的样子我还期待可可说点啥  结果就最后跟风暴千里来了句你瞅啥呢[f ...</blockquote>
+已经司马昭之心了，就是不让可香有过多互动，第十集让你可再当次“背包”已经是施舍了
+
+*****
+
+####  CharlieZ-  
+##### 6899#       发表于 2022-10-4 23:49
+
+像我这种之前就看过一个虹团的第一部正传就看的星团感觉真的倒霉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看到现在整个团里顺眼的只剩堇和红毛了，这集看完希望堇早点单飞脱离苦海算了
+
+*****
+
+####  Enakina  
+##### 6900#       发表于 2022-10-4 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762520&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:39</a>
+主要对比隔壁虹中之人各种一家人的样子，星这边就………………</blockquote>
+打住吧，别往这边歪了，又要用镜头前不知真假的碎片加自己的猜想去揣测人家关系，已经品鉴够多了，收收吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  player3960  
+##### 6901#       发表于 2022-10-4 23:51
+
+打铁想退你看万代爸爸放不放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得鲤鱼可以先退，年纪最大，说不定哪天中日交恶，还有被遣返的可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 6902#       发表于 2022-10-4 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762629&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-4 23:49</a>
+像我这种之前就看过一个虹团的第一部正传就看的星团感觉真的倒霉被可可设定吸引来看的，前三集看完 ...</blockquote>
+那可以补虹二洗洗眼睛了
+
+*****
+
+####  starring  
+##### 6903#       发表于 2022-10-4 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762587&amp;ptid=2078110" target="_blank">shine888kire 发表于 2022-10-4 23:44</a>
+
+虹中之人最牛的点在算是最晚加进去的妃喵都已经融得像陪了她们5年了的感觉了 ...</blockquote>
+其实星第一年也有给人一家子的感觉，各种活动后五个人都积极返图，经常在广播或者生放送上爆料或者背刺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+4月27日那天还因为双N广播说谁回信息最晚，推特还有s1专楼都狂欢了一晚。最后28日零时所有人都被创得半死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6904#       发表于 2022-10-4 23:52
+
+星她们没几个喜欢打游戏的吧，就算五人聚的不多，两人或几个人一起出去玩应该不少吧
+
