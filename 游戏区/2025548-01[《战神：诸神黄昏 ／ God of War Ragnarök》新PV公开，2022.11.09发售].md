@@ -5146,3 +5146,12 @@ tlou2流程也是20H
 
 <img src="https://img.saraba1st.com/forum/202210/05/062902wqgxisrywyw7krzi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lbb3313725  
+##### 573#       发表于 2022-10-5 07:35
+
+以动作游戏来看，这时长没问题。
+

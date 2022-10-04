@@ -7855,3 +7855,12 @@ ljl赛区还是一如既往的垃……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng打不过dfm原地解散吧。
 
+
+
+*****
+
+####  Badwoman  
+##### 14381#       发表于 2022-10-5 07:31
+
+还真不好说
+

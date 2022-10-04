@@ -10651,3 +10651,23 @@ emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是
 
 他们说的虹加人是指AS加人吧，按制作时间来看，星团决定加人时候还没有虹二期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 6985#       发表于 2022-10-5 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763847&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-5 02:21</a>
+
+你能在表演一次那个吗  「一年级新生和二年级老炮们的关系以及双方实力和经验上的差距将是故事的一大看点」 ...</blockquote>
+确实这差距可太他妈好看了，好看得我都觉得二期不如就此隐退完事
+
+*****
+
+####  adw667  
+##### 6986#       发表于 2022-10-5 07:39
+
+这284动画不如送去给284废品回收得了
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fproduct.blzstatic.cn%2F%2Fdg%2F7860%2FE8607F6F41CC27B55BA62EC9F295A495E7482362.jpg&amp;refer=http%3A%2F%2Fproduct.blzstatic.cn&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=auto?sec=1667518715&amp;t=0bf31b4aab52866febb744501107e1dc" id="aimg_BLsnE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
