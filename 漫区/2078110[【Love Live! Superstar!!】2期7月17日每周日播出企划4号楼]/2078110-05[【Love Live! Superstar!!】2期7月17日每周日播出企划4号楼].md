@@ -9468,3 +9468,65 @@ LL？什么东西？这是实现我香皇的故事
 
 结果最后只是平时全肯定出事大家长。   逆天发言之类的就不说了，星2期不少人都沾点
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 6873#       发表于 2022-10-4 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762089&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-4 23:04</a>
+
+恋推感谢企划，再也没有恋恋烂活，甚至是被害者，吃谷也便宜呢
+
+—— 来自 Xiaomi 2106118C, Andr ...</blockquote>
+现在可推也要庆幸还好没给二番位啊 平安名堇或成最大赢家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 6874#       发表于 2022-10-4 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762143&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-04 23:07:16</a>
+确实这个比列不好确定，所&amp;# ...</blockquote>是啊……然后话题又回到了之前说过的，把箱推逼成单推。好消息是：核心粉丝更牢固了，坏消息：用分化粉丝群体的代价换的<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 6875#       发表于 2022-10-4 23:16
+
+<img src="https://img.saraba1st.com/forum/202210/04/231532e8ec8aa3s3sa5388.png" referrerpolicy="no-referrer">
+
+<strong>7ECCBB3E-AA32-48A6-A6EC-FF7037828F1C.png</strong> (658.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 23:15 上传
+
+刚好在刷煤炉，参考一下
+
+*****
+
+####  we89623  
+##### 6876#       发表于 2022-10-4 23:17
+
+话说角色谷子的收入其角色的中之人会有提成吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6877#       发表于 2022-10-4 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762283&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-4 23:17</a>
+话说角色谷子的收入其角色的中之人会有提成吗？</blockquote>
+当然没有
+
+*****
+
+####  stygian  
+##### 6878#       发表于 2022-10-4 23:20
+
+讲真，分不清二次元三次元区别的人我还真的不信中之人退出企划了他还能继续推下去
+
