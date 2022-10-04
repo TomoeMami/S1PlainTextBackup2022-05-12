@@ -5060,3 +5060,30 @@ tlou2流程也是20H
 
 20+20这个长度正好。在上一作基础上，战斗系统不太用担心，怪物换皮问题从PV看估计也大有改善。唯一就是剧情方面别翻大车就行
 
+
+
+*****
+
+####  mimighost  
+##### 566#       发表于 2022-10-4 14:24
+
+ 本帖最后由 mimighost 于 2022-10-4 14:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752654&amp;ptid=2025548" target="_blank">nage560 发表于 2022-10-4 08:56</a>
+
+套一下隔壁漫区现在最大的矛盾来说，它不是战神只是个普通的3A的话20小时是很长，但是它是战神，还是新战神 ...</blockquote>
+新战神不也就20多个小时么
+
+不觉得很短说实话，后面强行塞各种山怪的变种反而让我烦躁。提尔的神殿解密那里我已经不行了，幸好过了那个直接传送打boss了
+
+*****
+
+####  Geraltwang  
+##### 567#       发表于 2022-10-4 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755786&amp;ptid=2025548" target="_blank">mimighost 发表于 2022-10-4 14:24</a>
+
+新战神不也就20多个小时么
+
+不觉得很短说实话，后面强行塞各种山怪的变种反而让我烦躁。提尔的神殿解密那 ...</blockquote>
+可以想下，诸神黄昏把山怪全换成有名有姓的神，流程体验就大不一样了
+

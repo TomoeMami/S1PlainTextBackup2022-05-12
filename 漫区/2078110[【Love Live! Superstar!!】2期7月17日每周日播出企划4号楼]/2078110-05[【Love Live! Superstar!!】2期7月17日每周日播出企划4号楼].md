@@ -7569,3 +7569,12 @@ SIF2就不知道还会不会被这么重视了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 6691#       发表于 2022-10-4 14:27
+
+我对香哥哥的反感纯纯来自于官方，大香nc粉我还真没怎么看到过，可能是因为我不逛贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

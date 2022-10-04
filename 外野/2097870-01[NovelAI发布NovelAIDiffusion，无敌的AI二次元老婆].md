@@ -1795,3 +1795,100 @@ skeb不给交流的样子</blockquote>
 
 有很大进步，有特定趋向吗
 
+
+
+*****
+
+####  大天  
+##### 124#       发表于 2022-10-4 14:24
+
+什么时候能从剧本到演出全由AI完成，人工只负责部分调整。
+
+*****
+
+####  yesicant  
+##### 125#         楼主| 发表于 2022-10-4 14:26
+
+<img src="https://img.saraba1st.com/forum/202210/04/142515pj3f01mccm96y9m1.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_141929.jpg</strong> (490.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:25 上传
+
+nd的草图，用Sketch做prompt
+
+<img src="https://img.saraba1st.com/forum/202210/04/142543os44dl9j60aa3x3s.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_141007.jpg</strong> (142.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:25 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/142543ftrpujh14pngnup4.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_141202.jpg</strong> (59.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:25 上传
+
+场景效果也不错
+
+<img src="https://img.saraba1st.com/forum/202210/04/142606lis2l1ms4l3r34hl.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_140203.jpg</strong> (116.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:26 上传
+
+像素画
+
+<img src="https://img.saraba1st.com/forum/202210/04/142618ptlf8dnjr6tqfvq3.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_134759.jpg</strong> (430.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/142618jgci6pan0qjg0ntx.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_134804.jpg</strong> (551.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:26 上传
+
+初音两枚
+
+<img src="https://img.saraba1st.com/forum/202210/04/142729vrz1i676n33xnrio.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_142720.jpg</strong> (106.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:27 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/142632y5c75edjb7cjwc5l.jpg" referrerpolicy="no-referrer">
+
+<strong>20221004_135134.jpg</strong> (424.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 14:26 上传
+
+这…
+
+*****
+
+####  古畑任三郎2015  
+##### 126#       发表于 2022-10-4 14:29
+
+我觉得多少可以让fbi破门而入一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
