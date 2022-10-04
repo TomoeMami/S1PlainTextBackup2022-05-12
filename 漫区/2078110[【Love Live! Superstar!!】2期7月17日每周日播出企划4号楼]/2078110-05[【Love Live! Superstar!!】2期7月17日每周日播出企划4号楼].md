@@ -10642,3 +10642,12 @@ https://t.bilibili.com/713237336087855108</blockquote>
 
 emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是在表达什么中心思想吗，类似削发明志？
 
+
+
+*****
+
+####  沙茶酱  
+##### 6984#       发表于 2022-10-5 06:52
+
+他们说的虹加人是指AS加人吧，按制作时间来看，星团决定加人时候还没有虹二期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
