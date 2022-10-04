@@ -7354,3 +7354,12 @@ SIF2就不知道还会不会被这么重视了
 
 2022-10-4 11:22 上传
 
+
+
+*****
+
+####  liu461  
+##### 6673#       发表于 2022-10-4 11:54
+
+看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
