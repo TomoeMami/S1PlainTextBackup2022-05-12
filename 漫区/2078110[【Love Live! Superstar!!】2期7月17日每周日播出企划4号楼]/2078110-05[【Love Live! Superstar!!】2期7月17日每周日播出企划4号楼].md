@@ -7467,3 +7467,15 @@ SIF2就不知道还会不会被这么重视了
 我一开始以为强推铃原，结果第二季变本加厉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这情况加重小百合负担的编剧我也是服了
 
+
+
+*****
+
+####  星踪幻影  
+##### 6683#       发表于 2022-10-4 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754675&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-4 12:30</a>
+
+大可不必，小百合又没啥错</blockquote>
+大香老师也没什么做错啊（笑
+
