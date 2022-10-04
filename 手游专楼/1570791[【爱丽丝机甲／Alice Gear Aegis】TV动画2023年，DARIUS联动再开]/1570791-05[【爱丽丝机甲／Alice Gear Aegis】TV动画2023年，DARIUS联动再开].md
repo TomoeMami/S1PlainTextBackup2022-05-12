@@ -13755,3 +13755,13 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 对普通人来说TI2可能还强点，近战是上BUFF型好控制很多，上弹的双枪蓄力更是有无敌可以用来逃课。据闻还有蓄力放出后不继续射直接趁无敌砍几刀的无赖玩法。等大流士复刻moss佬抽到了看看到时有啥骚操作。
 
+
+
+*****
+
+####  hypnossz86  
+##### 7345#       发表于 2022-10-4 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">天赋图可以一键打通了
+这就是你复刻三连的代价吗，阿金
+

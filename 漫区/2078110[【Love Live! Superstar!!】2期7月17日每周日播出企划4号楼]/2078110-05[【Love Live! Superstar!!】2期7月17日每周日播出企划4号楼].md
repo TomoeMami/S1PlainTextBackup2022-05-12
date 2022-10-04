@@ -7514,3 +7514,40 @@ SIF2就不知道还会不会被这么重视了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 6687#       发表于 2022-10-4 14:05
+
+<img src="https://img.saraba1st.com/forum/202210/04/140518rxwwtog6hhuxmxg0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A147F826-196F-41E4-A4DA-4616E19AC540.jpeg</strong> (208.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 14:05 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ddy2811| + 2|欢乐多|
+
+查看全部评分
+
+*****
+
+####  DarthAka  
+##### 6688#       发表于 2022-10-4 14:10
+
+<blockquote>liu461 发表于 2022-10-4 11:54
+看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制</blockquote>
+大香这集实话说没啥大问题，问题是别人这反应太傻了——讨厌大香是因为大香粉NC，这说法是不是很熟悉
+
