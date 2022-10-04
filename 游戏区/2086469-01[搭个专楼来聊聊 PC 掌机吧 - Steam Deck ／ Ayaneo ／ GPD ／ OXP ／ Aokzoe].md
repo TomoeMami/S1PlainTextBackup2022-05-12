@@ -4473,3 +4473,16 @@ deck装windows有问题么？</blockquote>
 
 入了steam deck尝鲜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kirito_wst  
+##### 362#       发表于 2022-10-4 20:43
+
+奥克到手了，目前还没遇到群友那堆神必问题。
+
+感觉大还是有大的好处，重量分布不一样导致我觉得730克的奥克比我之前那台650克的ayaneo创始人轻。
+
+先用个两年再说吧，希望两年后win掌机能进化到更能让人接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
