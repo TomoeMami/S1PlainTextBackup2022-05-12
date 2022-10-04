@@ -7701,3 +7701,28 @@ SIF2就不知道还会不会被这么重视了
 
 2022-10-4 16:02 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6703#       发表于 2022-10-4 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意一卷还能卖1w2的啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6704#       发表于 2022-10-4 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好歹塞了抽选
+
+*****
+
+####  stygian  
+##### 6705#       发表于 2022-10-4 16:29
+
+放了抽选卖不到一万那就真是灾难了好吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

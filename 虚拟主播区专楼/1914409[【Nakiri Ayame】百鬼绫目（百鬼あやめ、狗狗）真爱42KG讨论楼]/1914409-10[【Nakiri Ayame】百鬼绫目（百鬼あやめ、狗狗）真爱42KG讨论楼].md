@@ -7837,3 +7837,12 @@ ljl赛区还是一如既往的垃……
 
 绫总明天是不是还要偷偷给DFM加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Map-2  
+##### 14379#       发表于 2022-10-4 16:28
+
+绫总：勿念，已经专枪女了，撸什么的不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
