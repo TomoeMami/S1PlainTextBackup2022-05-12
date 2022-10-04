@@ -1082,3 +1082,17 @@ Adam被喷的狠是因为观众一集内吃了Rebecca的突然死亡和Lucy在�
 
 Anime is trash嘛
 
+
+
+*****
+
+####  斑驳的阴影  
+##### 3085#       发表于 2022-10-4 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57478022&amp;ptid=2069884" target="_blank">refiver 发表于 2022-9-14 10:15</a>
+
+你这么一说是真的提醒我了，2049也是用这种框架去写故事
+
+K最后躺在雪地里目送真正的英雄和主角携手而归那 ...</blockquote>
+确实是有2049相似的感觉，大概这就是赛博朋克题材的醍醐味之一吧
+

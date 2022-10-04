@@ -7876,3 +7876,53 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 
 未解之谜了属于是，看哪天fl之后内部会不会有人说出来。
 
+
+
+*****
+
+####  starring  
+##### 6723#       发表于 2022-10-4 17:03
+
+还能卖得好不是挺好吗，能保证三次元方面持续输血短期内不会被掐死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+至于动画方面就交给企划筛选下来的纯粉去买单<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6724#       发表于 2022-10-4 17:03
+
+ 本帖最后由 iuhehc 于 2022-10-4 17:04 编辑 
+
+加人我更倾向与和apb有什么交易这种，毕竟这年头捧一个新人可不容易，又做不到索尼那样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 6725#       发表于 2022-10-4 17:07
+
+事已至此，我倒是倾向于万能的草台论
+我还是想开数量.jpg
+
+*****
+
+####  川陀  
+##### 6726#       发表于 2022-10-4 17:07
+
+这销量数据看着和一期右的没多少啊，说明还是那一群核心粉吧。别管动画质量怎么样，塞这么多live抽选，数据不至于太难看。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 6727#       发表于 2022-10-4 17:08
+
+ 本帖最后由 ViyViy 于 2022-10-4 17:10 编辑 
+
+不知道有多少全卷G店的，等着明年去煤和虎收G店全卷特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这特典应该是新柄吧，不会拿这次文件夹那个新看板绘糊弄吧……
+
