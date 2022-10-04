@@ -7935,3 +7935,16 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 
 这个啊，你五个人买这么多，九个人还是买这么多，你加人图啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 6729#       发表于 2022-10-4 17:27
+
+ 本帖最后由 nufawneafg 于 2022-10-4 17:30 编辑 
+
+与其说把粉丝经济玩透了，更像是把ip玩透了
+只要ip摆在这，我就可劲儿试，对一个就能拿回来所有成本还有的赚，还有固定社区保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+草，原来是高达
+
