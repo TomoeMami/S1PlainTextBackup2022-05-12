@@ -10633,3 +10633,12 @@ https://t.bilibili.com/713237336087855108</blockquote>
 
 对cast其实还好，只是不太适应后现代的讨论环境，还是求同存异吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 6983#       发表于 2022-10-5 06:20
+
+emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是在表达什么中心思想吗，类似削发明志？
+
