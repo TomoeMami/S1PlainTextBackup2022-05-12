@@ -7600,3 +7600,24 @@ SIF2就不知道还会不会被这么重视了
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 什么围魏救赵<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 6694#       发表于 2022-10-4 14:44
+
+<blockquote>player3960 发表于 2022-10-4 14:27
+我对香哥哥的反感纯纯来自于官方，大香nc粉我还真没怎么看到过，可能是因为我不逛贴吧 ...</blockquote>
+剧中不全是大香NC粉么，从维也纳到涩谷好吧，或者说动画staff全是串子
+
+*****
+
+####  player3960  
+##### 6695#       发表于 2022-10-4 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755970&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-4 14:44</a>
+
+剧中不全是大香NC粉么，从维也纳到涩谷好吧，或者说动画staff全是串子</blockquote>
+你说剧里啊，我还以为说有香哥哥nc粉洗地呢。不过我觉得剧里香哥哥本人表现也不怎么样吧，再加一帮信徒，只能说是更难看。
+
