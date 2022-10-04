@@ -2478,3 +2478,14 @@ r16太扯淡了
 
 真的花钱了，喷也就喷了呗，六块也是钱啊。再迷惑，能比得上那些因为尼尔八方在steam上定价高就把自己脑瓜儿气爆炸写大篇声讨的人吗？
 
+
+
+*****
+
+####  长日留痕  
+##### 246#       发表于 2022-10-4 23:32
+
+制作组赚的就是你们这帮“富哥”的钱。六块钱确实不算啥，却足以让人失去良心。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
