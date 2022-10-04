@@ -4464,3 +4464,12 @@ deck装windows有问题么？</blockquote>
 我一直想问来着，他们吹的前端比起playnite或者体感助手之类的到底有什么优势啊，特别是一号本全家都有实 ...</blockquote>
 一号本只用热键只有两种模式，多个前端可以多级调节功耗风扇之类的
 
+
+
+*****
+
+####  Fuero  
+##### 361#       发表于 2022-10-4 19:44
+
+入了steam deck尝鲜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

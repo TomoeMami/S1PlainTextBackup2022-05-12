@@ -976,3 +976,16 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 相对的Amplitude（做无尽系列和humankind那家）的UI设计一直是顶级水平，奈何他家的游戏就是不好玩
 
+
+
+*****
+
+####  Viteeee  
+##### 95#       发表于 2022-10-4 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753498&amp;ptid=2076238" target="_blank">arrowshade 发表于 2022-10-4 10:42</a>
+QOL的东西差得太远。。。UI简直是一坨。。。
+
+相对的Amplitude（做无尽系列和humankind那家）的UI设计一直是 ...</blockquote>
++1，无尽系列永远都是第一盘体验超好，只是一辈子也不想打开第二盘<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
