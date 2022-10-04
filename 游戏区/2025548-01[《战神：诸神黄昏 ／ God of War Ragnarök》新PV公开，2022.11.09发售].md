@@ -5029,3 +5029,25 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
  套一下隔壁漫区现在最大的矛盾来说，它不是战神只是个普通的3A的话20小时是很长，但是它是战神，还是新战神 ...</blockquote>
 战神系列不一直都挺短的吗<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hotsmile  
+##### 563#       发表于 2022-10-4 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753376&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-4 10:28</a>
+
+20h算是标准时间吧，前几年我玩tlou2的感觉就是拖的太长了。。。当然新战神毕竟还有支线可以调剂一下 ...</blockquote>
+tlou2流程也是20H
+
+*****
+
+####  nage560  
+##### 564#       发表于 2022-10-4 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753543&amp;ptid=2025548" target="_blank">夜魔侠 发表于 2022-10-4 10:47</a>
+
+战神系列不一直都挺短的吗</blockquote>
+新战神不算短了（虽然中间大部分流程都在划船走路），但作为系列收官，流程长度和新战神1一样就让人很失望。老战神2比老战神1流程长多了，老战神3换机种画面大幅提升比起新战神1到2的画面进化大多了，但流程短了当年就被玩家喷爆。
+

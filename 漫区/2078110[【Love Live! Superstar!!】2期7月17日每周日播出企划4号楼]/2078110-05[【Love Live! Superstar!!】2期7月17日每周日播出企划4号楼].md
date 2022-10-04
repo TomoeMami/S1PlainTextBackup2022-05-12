@@ -7291,3 +7291,14 @@ SIF2就不知道还会不会被这么重视了
 
 这波属于是属于是嘲弄整个市场了，该被淘汰了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6668#       发表于 2022-10-4 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753514&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-4 10:43</a>
+后面三次元还要上西武呢……别说，LL就是好混，一般小偶像啥销量才敢想几万人的场子，凭啥啊？ ...</blockquote>
+祖宗留下的家底呗，还足够败几年呢
+
