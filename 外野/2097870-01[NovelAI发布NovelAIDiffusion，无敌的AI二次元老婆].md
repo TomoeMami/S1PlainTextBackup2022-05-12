@@ -2006,3 +2006,14 @@ img2img的效果
 
 已经看到ai瑟图了(^0^)/
 
+
+
+*****
+
+####  rookie99  
+##### 133#       发表于 2022-10-5 00:49
+
+ 本帖最后由 rookie99 于 2022-10-5 00:51 编辑 
+
+img2img的效果还是蛮好的，自己构图能帮忙省很多时间，不过改起来还是费力，虽然目前来说最大问题还是要实用的话对自己来说开销太大了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
