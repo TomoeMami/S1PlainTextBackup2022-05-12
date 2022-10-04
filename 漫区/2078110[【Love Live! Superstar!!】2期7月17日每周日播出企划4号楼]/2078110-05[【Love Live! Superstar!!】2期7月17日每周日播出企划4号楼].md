@@ -8284,3 +8284,17 @@ nico评分几点出来啊
 这可比看动画有意思。</blockquote>
 九点多
 
+
+
+*****
+
+####  D麦林  
+##### 6760#       发表于 2022-10-4 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757076&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-4 16:48</a>
+没啊，虹2期bd1是半价才卖3k5，销量也就2w，基本上两个圈子核心人数都差不多，甚至可以说是同一批人了（可 ...</blockquote>
+看了眼那边的想法是
+虹是4卷 抽选的是有线上转播的小组live
+星是首卷 抽选的是无线上转播的全员live
+虽然数字差不多但你叠的buff多啊 看似差距不大其实差距不小
+

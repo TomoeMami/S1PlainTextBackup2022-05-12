@@ -5110,3 +5110,12 @@ tlou2流程也是20H
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不是不行吧，想想生化7生化8吧
 
+
+
+*****
+
+####  医生狼多  
+##### 570#       发表于 2022-10-4 20:18
+
+前几天还有个消息，mc评分和预载都是提前一周出
+
