@@ -7578,3 +7578,25 @@ SIF2就不知道还会不会被这么重视了
 
 我对香哥哥的反感纯纯来自于官方，大香nc粉我还真没怎么看到过，可能是因为我不逛贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 6692#       发表于 2022-10-4 14:35
+
+还是回头看看一期1-3集吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 6693#       发表于 2022-10-4 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755755&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 14:21</a>
+某种意义上z87确实挺真实的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+什么围魏救赵<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
