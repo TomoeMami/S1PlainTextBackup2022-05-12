@@ -13800,3 +13800,17 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  madcow  
+##### 7348#       发表于 2022-10-4 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57756099&amp;ptid=1570791" target="_blank">delphinian 发表于 2022-10-4 15:00</a>
+
+感动，普天同庆-------------------------------
+
+上当了，结果是只能选到要点的技能，然后顺便点过路的[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还挺有游戏性的，如何点最少次数打通盘子是吧
+

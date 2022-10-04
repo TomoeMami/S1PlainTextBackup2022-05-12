@@ -7824,3 +7824,55 @@ SIF2就不知道还会不会被这么重视了
 输给虹了，5ch狂欢</blockquote>
 Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在乎呢，在乎的人去玩吧，我更期待今天评分能不能创造记录呢
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6717#       发表于 2022-10-4 16:54
+
+谁又能拒绝斗虫呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6718#       发表于 2022-10-4 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757091&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-4 16:49</a>
+这初动，我很怀疑后面是不是某卷会跌破万，好像LL动画还从未初动仅四位数的吧 ...</blockquote>
+不可能，都是抽选塞满了，要塞抽选初动还不过万，我第一个开香槟
+
+*****
+
+####  player3960  
+##### 6719#       发表于 2022-10-4 16:57
+
+一般二期右个10%-20%上下算正常吧，只能说销量和质量真没关系，星的上限就这样了。
+
+但是我还是想说为什么要加人，我打包票只上老五二期应该也差不多这成绩啊，还少发四个人的工资呢？加人加了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6720#       发表于 2022-10-4 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">多四个人工资也没多少吧
+
+
+
+*****
+
+####  nufawneafg  
+##### 6721#       发表于 2022-10-4 17:00
+
+不过多了人能轮转开不那么赶着了是真的
+
+*****
+
+####  优妮可  
+##### 6722#       发表于 2022-10-4 17:00
+
+未解之谜了属于是，看哪天fl之后内部会不会有人说出来。
+

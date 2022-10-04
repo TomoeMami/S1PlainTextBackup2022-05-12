@@ -4426,3 +4426,16 @@ deck装windows有问题么？</blockquote>
 现在的win掌机或者说win系统能实现品牌掌机程度的游戏内随意待机唤醒吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">没戏，笔记本啥样这玩意就啥样
 
+
+
+*****
+
+####  rossokun  
+##### 358#       发表于 2022-10-4 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755359&amp;ptid=2086469" target="_blank">83913536 发表于 2022-10-4 13:36</a>
+因为没前端，调不了风扇，体验不如国产Win掌机</blockquote>
+我一直想问来着，他们吹的前端比起playnite或者体感助手之类的到底有什么优势啊，特别是一号本全家都有实体热键，不明白一群人追着要前端是想干啥
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
