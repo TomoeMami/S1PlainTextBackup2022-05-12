@@ -7551,3 +7551,21 @@ SIF2就不知道还会不会被这么重视了
 看多一回真的对大香老师的厌恶快蔓延到声优上了，不行，得克制</blockquote>
 大香这集实话说没啥大问题，问题是别人这反应太傻了——讨厌大香是因为大香粉NC，这说法是不是很熟悉
 
+
+
+*****
+
+####  lj205  
+##### 6689#       发表于 2022-10-4 14:20
+
+天气热，多吃点冰的别上火了
+
+*****
+
+####  ruffian  
+##### 6690#       发表于 2022-10-4 14:21
+
+某种意义上z87确实挺真实的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

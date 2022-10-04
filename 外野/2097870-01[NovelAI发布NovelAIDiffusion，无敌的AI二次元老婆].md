@@ -1775,3 +1775,23 @@ AI作画的弱项居然是机械。。。。。。</blockquote>
  ...</blockquote>
 skeb不给交流的样子
 
+
+
+*****
+
+####  yesicant  
+##### 122#         楼主| 发表于 2022-10-4 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755488&amp;ptid=2097870" target="_blank">whzfjd 发表于 2022-10-4 13:50</a>
+skeb不给交流的样子</blockquote>
+那边的传统了，画师肯帮你画已经不错了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  macos  
+##### 123#       发表于 2022-10-4 14:17
+
+有很大进步，有特定趋向吗
+
