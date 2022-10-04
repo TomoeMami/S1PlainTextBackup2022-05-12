@@ -7182,3 +7182,25 @@ SIF2就不知道还会不会被这么重视了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后第三年终于冠军了，维也纳那里说我们还有音乐大学你来深造吧。反正也毕业了这时候留学也没人有意见了吧，香音小千vn踏上了异国求学之旅，可可高高兴兴回上海，堇成了演艺圈大明星，恋继承了学校，毕业的时候再和剩下的四人来段感人（大嘘）的交接仪式，大家都有光明的未来，全剧完，可喜可贺。
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我居然还觉得这样的剧情很合理
 
+
+
+*****
+
+####  ViyViy  
+##### 6658#       发表于 2022-10-4 09:17
+
+ 本帖最后由 ViyViy 于 2022-10-4 09:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752696&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 09:01</a>
+
+然后突然又窜出来个敌团薄纱了9人，香音库亚西库亚西，说“我本来被小千说服去留学了，但现在输了 ...</blockquote>
+这个敌团，是不是空降的VN老姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">输了剧场版先想办法把可可拽回来吧，毕竟可可可从没说过东京决赛赢了就能留下来，甚至没保证过赢了能留下来。她一直说的是”姑且到大赛结束后“。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6659#       发表于 2022-10-4 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752805&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-4 09:17</a>
+这个敌团，是不是空降的VN老姐输了剧场版先想办法把可可拽回来吧，毕竟可可可从没说过东京决赛赢了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没毛病啊，高二暑假（从日本学制上来说应该是寒假）去上海把可可拉回来，无缝衔接高三内容好吧
+
