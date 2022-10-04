@@ -9051,3 +9051,147 @@ A5也是90多集才开始崩得一塌糊涂，LLSP是才用11集，已经尽力�
 
 如果不固守青梅足马的套路，其实他们还是有机会的
 
+
+
+*****
+
+####  沙茶酱  
+##### 6834#       发表于 2022-10-4 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761614&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 22:29</a>
+
+前两回没上90应该是AS版栞子岚珠的负面影响还在，之后就彻底放心了。</blockquote>
+第一集和第二集质量这么高都还没90，太多票在2那，只能说观望的人很多，毕竟那时候大家都不知道田中仁会怎么处理AS的大雷，就怕栞子转头就去抢位置、岚珠转眼就开偶像部；还好田中仁很好地排雷了
+
+*****
+
+####  ViyViy  
+##### 6835#       发表于 2022-10-4 22:33
+
+你们说，有没有一种可能，我们可以冲得花田失去京吹三这口饭，喜欢摆，一个职业操守和道德都不想遵守的人不配再继续写剧本了，小太刀那种是脑子有病莼菜，花田这是揣着明白装糊涂
+
+*****
+
+####  nufawneafg  
+##### 6836#       发表于 2022-10-4 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761683&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-4 22:33</a>
+你们说，有没有一种可能，我们可以冲得花田失去京吹三这口饭，喜欢摆，一个职业操守和道德都不想遵守的人不 ...</blockquote>
+梦里啥都有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+你以为提督就没有尝试过？
+
+*****
+
+####  沙茶酱  
+##### 6837#       发表于 2022-10-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761683&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-4 22:33</a>
+
+你们说，有没有一种可能，我们可以冲得花田失去京吹三这口饭，喜欢摆，一个职业操守和道德都不想遵守的人不 ...</blockquote>
+那不至于，花田这样子反而像是只想着京吹三那口饭，这边的随便写就交差了
+
+*****
+
+####  稀勢のささ  
+##### 6838#       发表于 2022-10-4 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想啥呢
+
+*****
+
+####  ViyViy  
+##### 6839#       发表于 2022-10-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761688&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-4 22:34</a>
+
+梦里啥都有
+
+你以为提督就没有尝试过？</blockquote>
+提督那回不都是冲田中去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 6840#       发表于 2022-10-4 22:36
+
+花老师系构的作品里，好评率最低的确实是舰C的最后一集（至少目前还是）
+
+不过一般一季都不太行的情况下，最后一集还会更低（参考水团动画；成神之日也是最后一集好评率掉了一截）
+
+星团下集除非真能整出什么神回来，否则肯定还是要降的
+
+<img src="https://img.saraba1st.com/forum/202210/04/223234qddbhehxiigisxeb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 22:32 上传
+
+
+
+*****
+
+####  saya1892  
+##### 6841#       发表于 2022-10-4 22:38
+
+事已至此我觉得12话梦结局都不算丢人
+
+当然肯定不会梦结局，到时候肯定全员欢天喜地庆祝香皇留学然后香皇说自己要留下来然后跟大家哭成一片
+
+LL？什么东西？这是实现我香皇的故事
+
+该滚的是你LL吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 6842#       发表于 2022-10-4 22:39
+
+二期生中之人也是惨，中途加入被遗老骂不说还摊上这么一个剧本。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6843#       发表于 2022-10-4 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761661&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 22:31</a>
+第一集和第二集质量这么高都还没90，太多票在2那，只能说观望的人很多，毕竟那时候大家都不知道田中仁会 ...</blockquote>
+毕竟最差的第4回DD组都上90了，这个是田中仁都真心写不来。
+
+*****
+
+####  沙茶酱  
+##### 6844#       发表于 2022-10-4 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761712&amp;ptid=2078110" target="_blank">Skyline_R 发表于 2022-10-4 22:36</a>
+
+花老师系构的作品里，好评率最低的确实是舰C的最后一集（至少目前还是）
+
+不过一般一季都不太行的情况下，最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">等等啊，要是按这个好评表，星二期整体质量甚至不如舰C
+
+*****
+
+####  灼眼的夏娜酱  
+##### 6845#       发表于 2022-10-4 22:41
+
+击穿下限<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6846#       发表于 2022-10-4 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">舰C抛开精神分裂不谈还是可以看的
+
+*****
+
+####  沙茶酱  
+##### 6847#       发表于 2022-10-4 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761759&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 22:39</a>
+
+毕竟最差的第4回DD组都上90了，这个是田中仁都真心写不来。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那集差归差，歌还不错，只能说田中对爱这种完全体完美人格根本不知道写什么好，他自己也说不会写；不过现在回想起来，那集的“差”是因为过于求稳，全集都是样板戏，我现在开始觉得能好好写样板戏，好好出一个好看的Live，确实值90了······
+
