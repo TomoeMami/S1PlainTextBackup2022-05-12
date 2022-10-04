@@ -8653,3 +8653,66 @@ nico也已经是乐子人狂欢了<img src="https://static.saraba1st.com/image/s
 
 2800人投票啊，居然还有800个1，惊呆了
 
+
+
+*****
+
+####  IMIN  
+##### 6798#       发表于 2022-10-4 21:43
+
+<blockquote>兔姬姬姬姬姬 发表于 2022-10-4 21:40
+2800人投票啊，居然还有800个1，惊呆了</blockquote>
+中途退算好评。
+
+*****
+
+####  稀勢のささ  
+##### 6799#       发表于 2022-10-4 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还有个25.5的舰C  先把这个当成小目标吧  A5和兽娘2我们第三季再来挑战
+
+*****
+
+####  沙茶酱  
+##### 6800#       发表于 2022-10-4 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57760971&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-4 21:44</a>
+
+原来还有个25.5的舰C  先把这个当成小目标吧  A5和兽娘2我们第三季再来挑战 ...</blockquote>
+其实已经超越A5<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6801#       发表于 2022-10-4 21:45
+
+ 本帖最后由 nufawneafg 于 2022-10-4 21:50 编辑 
+
+舰C是吧，嗨呀花田挑战花田了属于是
+综合企划的天王山之战
+拉拉vs.舰c
+什么梦回2015
+
+*****
+
+####  沙茶酱  
+##### 6802#       发表于 2022-10-4 21:45
+
+A5也是90多集才开始崩得一塌糊涂，LLSP是才用11集，已经尽力在崩了
+
+*****
+
+####  仟音一心  
+##### 6803#       发表于 2022-10-4 21:51
+
+你能再表演一下那个吗？
+
+<img src="https://img.saraba1st.com/forum/202210/04/215059oz9em3ha01o5la5z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E6DD589E-144A-452C-A85C-DB8FF96C0203.jpeg</strong> (92.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 21:50 上传
+
