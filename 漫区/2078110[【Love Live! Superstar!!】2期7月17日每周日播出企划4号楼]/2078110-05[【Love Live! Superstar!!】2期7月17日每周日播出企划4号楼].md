@@ -8991,3 +8991,63 @@ A5也是90多集才开始崩得一塌糊涂，LLSP是才用11集，已经尽力�
 
 めざせ花田作品最大値！
 
+
+
+*****
+
+####  沙茶酱  
+##### 6828#       发表于 2022-10-4 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761495&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 22:20</a>
+
+虹2期的数据我有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这数据有点华丽
+
+*****
+
+####  we89623  
+##### 6829#       发表于 2022-10-4 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761555&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 22:25</a>
+
+这数据有点华丽</blockquote>
+星两季只有一集上90% 那就是小星星那集，同时小星星的CD也是星团最高销量<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 6830#       发表于 2022-10-4 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761576&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-4 22:26</a>
+
+星两季只有一集上90% 那就是小星星那集，同时小星星的CD也是星团最高销量 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我知道，甚至那还是四个团里面，第一季最速上90%的，如此梦幻开局，怎么能走到今天这地步啊
+
+本以为是起点，哪知道是巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6831#       发表于 2022-10-4 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761555&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 22:25</a>
+这数据有点华丽</blockquote>
+前两回没上90应该是AS版栞子岚珠的负面影响还在，之后就彻底放心了。
+
+*****
+
+####  ruffian  
+##### 6832#       发表于 2022-10-4 22:29
+
+这企划真的是一步步把粉丝的后路堵死。一开始不少人都是箱推，然后慢慢把人逼成单推，再把人逼得切割二三次元，最后切割企划。
+问题是，可以只看三次元，但在二次元资源都不平衡的前提下，三次元就是比别人少了东西，更何况还有人对二次元也有感情，哪是那么容易割舍的？也可以切割企划，但一半中之人个人活动就还没起步，她们确实是离不开企划啊。真是折磨……<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 6833#       发表于 2022-10-4 22:29
+
+如果不固守青梅足马的套路，其实他们还是有机会的
+
