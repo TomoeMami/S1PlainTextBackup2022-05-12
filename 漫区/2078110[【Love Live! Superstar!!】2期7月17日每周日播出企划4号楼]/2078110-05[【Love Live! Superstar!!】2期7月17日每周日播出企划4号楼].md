@@ -7260,3 +7260,18 @@ SIF2就不知道还会不会被这么重视了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  星踪幻影  
+##### 6665#       发表于 2022-10-4 10:33
+
+ 本帖最后由 星踪幻影 于 2022-10-4 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753373&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 10:28</a>
+
+是时候把唐可可下调到四番甚至五番位了，企划要是后悔把唐可可设成二番可以早说早回收的
+
+  -- 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是大部分良回都是和她有关啊，二期也贡献了2.5集中的半集
+
