@@ -9378,3 +9378,93 @@ LL？什么东西？这是实现我香皇的故事
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6864#       发表于 2022-10-4 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762023&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-4 22:59</a>
+
+不是我们不待见，是人物塑造得怎么样。
+
+单主角的番多了去了，为什么被骂的偏偏是这个？是我们不接受单C？ ...</blockquote>
+我不是这个意思，我是在就着这前面讨论角色人气是否受影响的话题展开的，没说这评分的事
+
+*****
+
+####  Mc凉月奏酱  
+##### 6865#       发表于 2022-10-4 23:03
+
+看到现在窝一直在想，就是叶月恋这个角色到底有什么用
+
+然后这集窝最绷不住的就是来了一句：一定是**在天之灵起作用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6866#       发表于 2022-10-4 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">做得好正面宣传，做得差也能虐粉是吧。这下立于不败之地了
+
+*****
+
+####  ads147147  
+##### 6867#       发表于 2022-10-4 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762076&amp;ptid=2078110" target="_blank">Mc凉月奏酱 发表于 2022-10-4 23:03</a>
+看到现在窝一直在想，就是叶月恋这个角色到底有什么用
+
+然后这集窝最绷不住的就是来了一句：一定是**在天之 ...</blockquote>
+恋推感谢企划，再也没有恋恋烂活，甚至是被害者，吃谷也便宜呢<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 6868#       发表于 2022-10-4 23:04
+
+ 本帖最后由 沙茶酱 于 2022-10-4 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762029&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 22:59</a>
+
+如果人气取决于差评，可可人气早该掉到谷底了，然而现在虽然我不确定掉了多少，但从谷子调价看她的人气绝对 ...</blockquote>
+虽然毒唯不好，但是，这二期动画，除了长期老粉（但是里面极多数是Lovelive动画老粉，估计对星的贡献肯定不如专注于星的粉）以外，不是毒唯，能坚持追下去吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6869#       发表于 2022-10-4 23:06
+
+还是得三巡数据实在让人难堪才知道痛。
+
+*****
+
+####  aoaoaodedede  
+##### 6870#       发表于 2022-10-4 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762029&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 22:59</a>
+
+如果人气取决于差评，可可人气早该掉到谷底了，然而现在虽然我不确定掉了多少，但从谷子调价看她的人气绝对 ...</blockquote>
+确实这个比列不好确定，所以我只能说可这种负面影响对人气的反作用可能会更大一点，非核心粉丝，或者是之前对可有一点点好感的粉丝可能影响会大一些
+
+
+
+*****
+
+####  darkendless  
+##### 6871#       发表于 2022-10-4 23:07
+
+放下包袱，当乐子人云一下也挺快乐的，看完乐子跑路至少最后是快乐的。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6872#       发表于 2022-10-4 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761901&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 22:50</a></blockquote>
+千一期进队那会儿脑子就不太正常多少带点魔怔，但如果能把这个往CP上带我肯定就磕得开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+结果最后只是平时全肯定出事大家长。   逆天发言之类的就不说了，星2期不少人都沾点
+
