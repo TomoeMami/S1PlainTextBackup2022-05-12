@@ -9765,3 +9765,137 @@ md，万南滚吧
 
 星她们没几个喜欢打游戏的吧，就算五人聚的不多，两人或几个人一起出去玩应该不少吧
 
+
+
+*****
+
+####  Alicest  
+##### 6905#       发表于 2022-10-4 23:53
+
+希望财团b能在星三期前来个虹剧场版吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 6906#       发表于 2022-10-4 23:53
+
+动画片现在这逼样还要仲良しアピール是不是有点
+
+三巡就在眼前你猜除了个人工作其他时间是不是不上训练课而自己跑出去玩
+
+*****
+
+####  Mc凉月奏酱  
+##### 6907#       发表于 2022-10-4 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762516&amp;ptid=2078110" target="_blank">Erikas 发表于 2022-10-4 23:38</a>
+
+就是敷衍啦，典型的把安排的活弄完就摆，对项目本身并不上心的老油条作风
+
+去留学深造这事，学生会长 ...</blockquote>
+会长呢？会长起点作用啊！
+
+会长昨天通宵打游戏睡晕过去了
+
+感谢会长妈的在天之灵开通的钻粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6908#       发表于 2022-10-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762672&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-4 23:52</a>
+星她们没几个喜欢打游戏的吧，就算五人聚的不多，两人或几个人一起出去玩应该不少吧 ...</blockquote>
+动画好歹还做了个打游戏回。。。
+
+*****
+
+####  csolfans  
+##### 6909#       发表于 2022-10-4 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762611&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:47</a>
+
+虹她们都有通宵联机玩splatoon3了星嘛………………</blockquote>
+我只知道喷3首发那晚二期生通宵了
+
+*****
+
+####  ads147147  
+##### 6910#       发表于 2022-10-4 23:56
+
+星1直到那天前大家还爸爸妈妈女儿小狗的喊，一样其乐融融。现在。。
+
+*****
+
+####  yicihanshu  
+##### 6911#       发表于 2022-10-4 23:56
+
+星二甚至武士道都跑回来了继续盘拉拉ip，进动画制作委员会了，新游戏都给你安排上了，企划这种勃勃生机的景象犹在眼前，万南不得觉得优势在我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。卖不可能卖的，还得继续扩大继续加人继续开新坑。
+
+而且万南真跑ip卖谁，真假设万南会卖，手里有授权的角川和武士道怕不是最有力竞争者，这俩哪个是好玩意呢。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 6912#       发表于 2022-10-4 23:56
+
+···为什么现在还有人猜星团内部感情一般？老五星那会儿就大家都觉得她们感情很好。你们不会有人觉得加了人就会导致大家感情不好吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6913#       发表于 2022-10-4 23:57
+
+<blockquote>仟音一心 发表于 2022-10-4 23:55
+动画好歹还做了个打游戏回。。。</blockquote>
+emmm感觉打sif as就不错了
+
+*****
+
+####  nufawneafg  
+##### 6914#       发表于 2022-10-4 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762737&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2022-10-4 23:56</a>
+星二甚至武士道都跑回来了继续盘拉拉ip，进动画制作委员会了，新游戏都给你安排上了，企划这种勃勃生机的景 ...</blockquote>
+所以我说，万南跑了基本上就相当于解散了
+开个玩笑而已
+
+*****
+
+####  CharlieZ-  
+##### 6915#       发表于 2022-10-4 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762655&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 23:51</a>
+
+那可以补虹二洗洗眼睛了</blockquote>
+虹二生放每集都追，只能说星二放到虹二之后放松被彻底处刑了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6916#       发表于 2022-10-4 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762520&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:39</a>
+主要对比隔壁虹中之人各种一家人的样子，星这边就………………</blockquote>
+不至于不至于，五老星爹妈姐妹犬一家人的说法也很久了，不说别的至少一巡二巡的地狱式live是携手并肩一起扛过来的，感情肯定是深的。
+
+*****
+
+####  DarthAka  
+##### 6917#       发表于 2022-10-5 00:00
+
+中之人关系这块儿，水友嘴上一个个都说营业别当真，实际一个比一个上头，而且还都是二极管听风就是雨
+
+星的主题是自我实现，又没讲好，结果纸片人就没团魂这东西，纸片人都没有声优能咋办么
+
+*****
+
+####  Enakina  
+##### 6918#       发表于 2022-10-5 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762743&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 23:56</a>
+···为什么现在还有人猜星团内部感情一般？老五星那会儿就大家都觉得她们感情很好。你们不会有人觉得加了 ...</blockquote>
+所以我说歪的很怪，一个动画带来的恶果，还在扩张，现在都变成成员都是应付工作，没啥感情了？你要都这么想，我觉得真的别难为自己了，还是趁早互相放过吧……
+
