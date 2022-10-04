@@ -9268,3 +9268,113 @@ LL？什么东西？这是实现我香皇的故事
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 6855#       发表于 2022-10-4 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761712&amp;ptid=2078110" target="_blank">Skyline_R 发表于 2022-10-4 22:36</a>
+
+花老师系构的作品里，好评率最低的确实是舰C的最后一集（至少目前还是）
+
+不过一般一季都不太行的情况下，最 ...</blockquote>
+我算了一下平均好评，现在星二期平均好评是60.81而舰C是63.47，如果要在平均好评上超过舰C，那么星二期结局要92.8<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 6856#       发表于 2022-10-4 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761890&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2022-10-4 22:49</a>
+
+1是28.4%，2是8.9%，28.4+8.9=37.3。
+
+还不如岸田内阁现在的支持率</blockquote>
+只能说第9集时5CH拉板还有人毒奶一句“比岸田内阁支持率高”
+
+真是神一般的毒奶<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 6857#       发表于 2022-10-4 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761901&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-4 22:50</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第二期简直是角色厨噩梦
+
+*****
+
+####  仟音一心  
+##### 6858#       发表于 2022-10-4 22:58
+
+但是有句话还是要说的
+
+<img src="https://img.saraba1st.com/forum/202210/04/225858yrjafr4aqusss6es.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7166EA4C-D17D-45EE-A6D5-696DF1C8D623.jpeg</strong> (167.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 22:58 上传
+
+*****
+
+####  愛さ実  
+##### 6859#       发表于 2022-10-4 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761800&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-4 22:42</a>
+个人感觉更重要的可能要看&amp;# ...</blockquote>
+不是我们不待见，是人物塑造得怎么样。
+单主角的番多了去了，为什么被骂的偏偏是这个？是我们不接受单C？大香老师的人物在花田的笔下立起来了吗？
+这么低的评分不是一句“我们不待见香音，接受了香音传的人不受影响”能解释的，花田老师曲高和寡，高呼“错的不是我，而是这个世界”？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ruffian  
+##### 6860#       发表于 2022-10-4 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761800&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-04 22:42:48</a>
+个人感觉更重要的可能要看&amp;# ...</blockquote>如果人气取决于差评，可可人气早该掉到谷底了，然而现在虽然我不确定掉了多少，但从谷子调价看她的人气绝对是和挨过的骂不匹配的。自推戏里短暂的闪光后负面塑造就没停过，戏外千夫所指也没停过，对一部分粉丝来说反而是被虐到了，固到了。我已经在国内和推特见过不少可推发言快跟毒唯差不多了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 6861#       发表于 2022-10-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762021&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-4 22:58</a>
+但是有句话还是要说的</blockquote>
+其实销量已经证明核心人员没啥决定性变化，甚至再加人也没啥问题。
+
+只能说nico评分就是拿去宣泄情绪的，国内这些瞎逼逼的能影响得到企划做什么吗。nico都做不到。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Skyline_R  
+##### 6862#       发表于 2022-10-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761921&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-4 22:52</a>
+
+我算了一下平均好评，现在星二期平均好评是60.81而舰C是63.47，如果要在平均好评上超过舰C，那么星二期结 ...</blockquote>
+刚Bangumi上有人回了我一句：“迷家3.9分，革命还未成功”
+
+星2的好评率确实冲着《迷家》去了，《迷家》的平均好评率53%，《成神之日》的好评率也有63.4%<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 6863#       发表于 2022-10-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762029&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-04 22:59:34</a>
+如果人气取决于差评，可可人气早该掉到谷底了，然而现在虽然我不确定掉了多少，但从谷子调价看她的人气绝对 ...</blockquote>不说别人，我自己都差点毒唯了……屏蔽了几天关键词才冷静下来<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
