@@ -7224,3 +7224,39 @@ SIF2就不知道还会不会被这么重视了
 
 都说了中国人原罪，能进团就算大发慈悲了，还想要什么自行车
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6662#       发表于 2022-10-4 10:24
+
+<img src="https://img.saraba1st.com/forum/202210/04/102411uaoif0mmf699fmy9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 10:24 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">">LFlllllll
+
+*****
+
+####  aoaoaodedede  
+##### 6663#       发表于 2022-10-4 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753038&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-4 09:51</a>
+都说了中国人原罪，能进团就算大发慈悲了，还想要什么自行车</blockquote>
+是啊，早知道就不应该对日本人有一丝丝期待，刚入坑那会刷到过这个视频，现在看，真的是心情很复杂…<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1W54y1L7ru](https://www.bilibili.com/video/BV1W54y1L7ru)
+
+*****
+
+####  ruffian  
+##### 6664#       发表于 2022-10-4 10:28
+
+是时候把唐可可下调到四番甚至五番位了，企划要是后悔把唐可可设成二番可以早说早回收的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
