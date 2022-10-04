@@ -8825,3 +8825,73 @@ A5也是90多集才开始崩得一塌糊涂，LLSP是才用11集，已经尽力�
 
 香音肯定不会走，最后一集就是怎么让千开窍的。
 
+
+
+*****
+
+####  tagerto  
+##### 6814#       发表于 2022-10-4 22:03
+
+ 本帖最后由 tagerto 于 2022-10-4 22:05 编辑 
+
+说起评分，星真的是历史开局最强，四个系列动画第一季，唯一一个前三集评分就上90%好评的，没想到最后居然变成这种鬼样，唉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 6815#       发表于 2022-10-4 22:04
+
+齐聚最好最坏于一身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6816#       发表于 2022-10-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57761274&amp;ptid=2078110" target="_blank">tagerto 发表于 2022-10-4 22:03</a>
+说起评分，星真的是历史开局最强，四个系列动画第一季，唯一一个前三集就上90%评分的，没有没想到最后居然 ...</blockquote>
+过于傲慢，在偶像厨的雷区里蹦迪是这样的
+好死就完事了
+
+*****
+
+####  甘蓝巧克力  
+##### 6817#       发表于 2022-10-4 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">运营惦记着它那超新星呢，没想到炸了吧
+
+*****
+
+####  ViyViy  
+##### 6818#       发表于 2022-10-4 22:07
+
+噢对，听说历代角色人气在一期动画就会基本定格，后续不会有很大的影响。
+
+所以，花田大尊师这回没准儿真能通过后续的动画完成把TOP1拖下神坛的壮举<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tagerto  
+##### 6819#       发表于 2022-10-4 22:08
+
+有伊达大叔在，应该不会下降人气吧，毕竟小百合人气还是那么高
+
+*****
+
+####  iuhehc  
+##### 6820#       发表于 2022-10-4 22:10
+
+ 本帖最后由 iuhehc 于 2022-10-4 22:11 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/04/220955ye8bgp87ag3mpe7b.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1637.JPG</strong> (984.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 22:09 上传
+
+之前的，看看星2完结了有没人顺便把虹2星2的更新了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
