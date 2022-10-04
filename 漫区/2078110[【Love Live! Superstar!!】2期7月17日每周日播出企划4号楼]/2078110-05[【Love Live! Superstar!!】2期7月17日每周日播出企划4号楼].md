@@ -8298,3 +8298,28 @@ nico评分几点出来啊
 星是首卷 抽选的是无线上转播的全员live
 虽然数字差不多但你叠的buff多啊 看似差距不大其实差距不小
 
+
+
+*****
+
+####  D麦林  
+##### 6761#       发表于 2022-10-4 20:38
+
+<img src="https://img.saraba1st.com/forum/202210/04/203638cvsvmlh8w0lqpxwv.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ176-99h6XhZ4qT3cS13d-1gi.png</strong> (416.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 20:36 上传
+
+看你们聊这个我就不得不把我之前做的这个拿出来了
+
+水水剧场版没想好 因为种子剧场版还没出来不方便对
+
+星当时刚开播没多久所以也没放上去
+
+现在感觉拉棚铁血的名号可以安给星了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+都是一期开头牛逼 后面开始拉 二期开始大拉特拉
+
