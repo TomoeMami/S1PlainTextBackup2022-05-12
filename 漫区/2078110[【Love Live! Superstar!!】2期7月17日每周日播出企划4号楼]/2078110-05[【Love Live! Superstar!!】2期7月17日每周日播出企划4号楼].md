@@ -7621,3 +7621,33 @@ SIF2就不知道还会不会被这么重视了
 剧中不全是大香NC粉么，从维也纳到涩谷好吧，或者说动画staff全是串子</blockquote>
 你说剧里啊，我还以为说有香哥哥nc粉洗地呢。不过我觉得剧里香哥哥本人表现也不怎么样吧，再加一帮信徒，只能说是更难看。
 
+
+
+*****
+
+####  saglork  
+##### 6696#       发表于 2022-10-4 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755970&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-4 14:44</a>
+剧中不全是大香NC粉么，从维也纳到涩谷好吧，或者说动画staff全是串子</blockquote>
+唐可可本来以为自己是香粉头子，没想到前有沉重系幼驯染原教旨信徒，后有北海道纯天然抱大腿年下死忠，甚至还冒出来了奥地利幽灵陪嫁丫鬟，粉丝纯度立马就被拉下去了，忠诚不绝对等于绝对不忠诚<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 6697#       发表于 2022-10-4 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755755&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-4 14:21</a>
+
+某种意义上z87确实挺真实的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+有没有可能是这个剧本过于离谱以至于像是黑子编的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 6698#       发表于 2022-10-4 15:10
+
+我今天才看到有人说，是不是京极花田已经不想在干星团的工作了，所以故意搞事<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
