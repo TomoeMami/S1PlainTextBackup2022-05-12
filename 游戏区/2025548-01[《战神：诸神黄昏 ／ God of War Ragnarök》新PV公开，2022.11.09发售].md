@@ -5011,3 +5011,21 @@ Tom Henderson透了下流程长度为40小时左右，其中20小时主线包括
 
 剧情流程没算BOSS攻略时间对吧，又不是人人都主播级操作，平均卡个半小时一小时很正常，手残点能卡个半天
 
+
+
+*****
+
+####  leo204672099  
+##### 561#       发表于 2022-10-4 10:45
+
+讲道理，20小时主线已经很长了，真弄个四五十小时内容的线性游戏，那得水成啥样
+
+*****
+
+####  夜魔侠  
+##### 562#       发表于 2022-10-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57752654&amp;ptid=2025548" target="_blank">nage560 发表于 2022-10-4 08:56</a>
+ 套一下隔壁漫区现在最大的矛盾来说，它不是战神只是个普通的3A的话20小时是很长，但是它是战神，还是新战神 ...</blockquote>
+战神系列不一直都挺短的吗<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

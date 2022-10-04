@@ -7275,3 +7275,19 @@ SIF2就不知道还会不会被这么重视了
   -- 来自 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是大部分良回都是和她有关啊，二期也贡献了2.5集中的半集
 
+
+
+*****
+
+####  DarthAka  
+##### 6666#       发表于 2022-10-4 10:43
+
+后面三次元还要上西武呢……别说，LL就是好混，一般小偶像啥销量才敢想几万人的场子，凭啥啊？
+
+*****
+
+####  nufawneafg  
+##### 6667#       发表于 2022-10-4 10:51
+
+这波属于是属于是嘲弄整个市场了，该被淘汰了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
