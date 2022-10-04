@@ -7490,3 +7490,15 @@ SIF2就不知道还会不会被这么重视了
 
 我是真不乐意车角色，你拉中之人和角色绑定那么高车角色车到最后一定有人到中之人身上
 
+
+
+*****
+
+####  沙茶酱  
+##### 6685#       发表于 2022-10-4 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57753750&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-4 11:10</a>
+
+8人の肩车</blockquote>
+这星策划是不是脑子多少带点大病啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
