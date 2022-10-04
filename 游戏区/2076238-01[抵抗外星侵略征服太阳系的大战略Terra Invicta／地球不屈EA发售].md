@@ -944,3 +944,12 @@ Demo玩了感觉不错，就是这个价格有点令人望而却步<img src="htt
 
 外星人降临后有点CNC3味，抵抗派改叫“全球防卫组织”，出走派改叫“NOD兄弟会”，成了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 92#       发表于 2022-10-4 09:42
+
+不知道事件编辑方不方便，想复刻一个edf5的剧本
+
