@@ -10080,3 +10080,47 @@ emmm感觉打sif as就不错了</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  hijack997  
+##### 6936#       发表于 2022-10-5 00:22
+
+反正万南这几年偶像企划运营很迷惑，爱马仕那边动画不出，sidem的问题，拉拉这边主要是星团，还有几个团行程打架，还有一个电音部刚开始阵仗很大，然后就没有然后了。
+
+*****
+
+####  稀勢のささ  
+##### 6937#       发表于 2022-10-5 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">现在12期之间大概上次sayu生日yabu发的两人去吃饭已经算关系最近的了吧  还想啥团建呢
+
+大概3巡之后会好点
+
+*****
+
+####  优妮可  
+##### 6938#       发表于 2022-10-5 00:25
+
+巡演老五人不知道会不会遇到一巡那些挫折。因为这个去年没少哭，要是这次是被动画剧情或者nt企划操作弄哭的。真的想给它们一拳。
+
+*****
+
+####  cybernetics31  
+##### 6939#       发表于 2022-10-5 00:25
+
+………………中之人宅不宅倒是无所谓了，鱼忙的时候她也没时间看新番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁虹宅的比例才是可怕(
+
+*****
+
+####  starring  
+##### 6940#       发表于 2022-10-5 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763105&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-5 00:25</a>
+
+………………中之人宅不宅倒是无所谓了，鱼忙的时候她也没时间看新番隔壁虹宅的比例才是可怕( ...</blockquote>
+虹那边宅的比例和浓度都高得离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+星这边只有鲤奈佩三个宅，还都是比较隐晦很少透露（共同点大概只有都是术口力人
+
