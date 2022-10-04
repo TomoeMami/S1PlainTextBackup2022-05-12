@@ -8008,3 +8008,48 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 
 -lovelive
 
+
+
+*****
+
+####  仟音一心  
+##### 6735#       发表于 2022-10-4 18:58
+
+结那
+
+<img src="https://img.saraba1st.com/forum/202210/04/185830ahxa5z2juzlvuzje.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>51078620-4C92-4B6E-B88B-A1838F798CFC.jpeg</strong> (612.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/185830e4smiesppjssfesw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F8A8A5E1-8FA5-4D89-92C7-BFEB422C29BD.jpeg</strong> (525.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/04/185830wfzv43avfsza15h3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6D4DC6F6-BECB-4CA6-9B2B-6EE1A86FF58E.jpeg</strong> (695.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-4 18:58 上传
+
+*****
+
+####  starring  
+##### 6736#       发表于 2022-10-4 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758302&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-4 18:50</a>
+我觉得花田和京极心态上都快和v高达差不多了。。</blockquote>
+更像是看了v但没看结局，被轮胎创得精神错乱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
