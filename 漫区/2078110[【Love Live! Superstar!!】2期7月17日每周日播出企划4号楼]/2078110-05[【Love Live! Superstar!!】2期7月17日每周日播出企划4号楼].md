@@ -10310,3 +10310,326 @@ emmm感觉打sif as就不错了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6957#       发表于 2022-10-5 01:53
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 01:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763733&amp;ptid=2078110" target="_blank">爱さ実 发表于 2022-10-5 01:50</a>
+扫了一眼，跟隔壁那位说法完全相反啊，可能他看的不太认真。
+和目前已知的情报应该是一致的，铃原在公布一 ...</blockquote>
+你看最开始nako那儿的 铃原只是自以为其他人不知道
+
+*****
+
+####  永恒的王牌  
+##### 6958#       发表于 2022-10-5 01:57
+
+虹加人那是有田中仁操刀把爆弹都拆了，不然复刻AS还能让动画观众接受？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+至于星别说拆弹了还巴不得继续往里塞，故意让一期二期生分出实力差距这种操作可真是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 6959#       发表于 2022-10-5 01:59
+
+ 本帖最后由 名津流 于 2022-10-5 02:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762984&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-5 00:14</a>
+
+回去翻看了一下，只能说那些预言准得有点离谱</blockquote>
+
+大概回去看了看，才发现4.28凌晨我自己在3号楼7126楼写的段子里“nico的LL史上最低得分”的预言居然成真了！ <blockquote>哦呦，谢天谢地了，你像这样的五个人的故事本身就没打好基础，你能跟我保证写9人就能写好了吗？！我建议烂铁务实一点，把lovelive的偶像理念先搞清楚。小裂啦5人应援色连起来是五角星搞得蛮好的你把他去换成9角了干什么？到时候你在nico评分再搞个LL史上最低得分你告诉我怎么解释?脸都不要了。</blockquote>
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nufawneafg| + 1|我刚才翻也发现了|
+
+查看全部评分
+
+*****
+
+####  愛さ実  
+##### 6960#       发表于 2022-10-5 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763743&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-5 01:53</a>
+你看最开始nako那儿的 铃原只是自以为其他人不知道</blockquote>
+nako那说的是二期生的试镜合格吧，后面也说了当时听到很不安，因为一期生活动一年了二期生途中加入。
+如果那说的是一期的试镜合格的时候那不是前后文矛盾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  D麦林  
+##### 6961#       发表于 2022-10-5 02:07
+
+说个略无关的话题
+
+水剧场版那个票房真的算很差吗
+
+虽然当时都说暴死暴死的
+
+刚刚我正好 去搜了日升另一头牌的剧场版票房
+
+高达系列那么多剧场版破10e票房的加一起也就5部
+
+水这个纯粉丝向剧场版能有13e的票房真的算暴死吗
+
+虽然你和无印剧场版比确实是差了不止一点但这真的能这么比吗 无印那个属于可遇不可求的条件下完成的奇迹 总不能期待每次都发生奇迹吧（
+
+*****
+
+####  iuhehc  
+##### 6962#       发表于 2022-10-5 02:11
+
+ 本帖最后由 iuhehc 于 2022-10-5 02:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/05/021052btyy4yvs7c8ecvte.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1641.JPG</strong> (151.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 02:10 上传
+
+有可能是我的原因吧总感觉这段话有点怪怪的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 6963#       发表于 2022-10-5 02:11
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 02:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763774&amp;ptid=2078110" target="_blank">爱さ実 发表于 2022-10-5 02:02</a>
+nako那说的是二期生的试镜合格吧，后面也说了当时听到很不安，因为一期生活动一年了二期生途中加入。
+如 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">入选之后突然看见前面有个一年后不得不踩上去的雷 搁我我也不安
+
+*****
+
+####  ads147147  
+##### 6964#       发表于 2022-10-5 02:19
+
+不是，就算是虹咲加人反应好都tm是动画快完结的时候了，难道上头的人真觉得as加人加的好所以要按as的路子来？？我这准备睡了看到这个人都麻了
+
+*****
+
+####  lj205  
+##### 6965#       发表于 2022-10-5 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762629&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-4 23:49</a>
+像我这种之前就看过一个虹团的第一部正传就看的星团感觉真的倒霉被可可设定吸引来看的，前三集看完 ...</blockquote>
+真的吗？那堇和佩赶紧退出吧，可真委屈她啊，做啥都要被逼着跟可可跟鱼绑着，我做为可鱼推也是非常支持的哟
+
+*****
+
+####  nufawneafg  
+##### 6966#       发表于 2022-10-5 02:21
+
+ 本帖最后由 nufawneafg 于 2022-10-5 02:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763841&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-5 02:19</a>
+真的吗？那堇和佩赶紧退出吧，可真委屈她啊，做啥都要被逼着跟可可跟鱼绑着，我做为可鱼推也是非常支持的 ...</blockquote>
+这时候先别拐cast零和博弈上头，先把万南的脑回路搞清楚比较重要
+
+*****
+
+####  稀勢のささ  
+##### 6967#       发表于 2022-10-5 02:21
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 02:25 编辑 
+
+你能在表演一次那个吗  「一年级新生和二年级老炮们的关系以及双方实力和经验上的差距将是故事的一大看点」<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+这还必须在圣香音传的基础上搞 真是为难花田了
+
+*****
+
+####  D麦林  
+##### 6968#       发表于 2022-10-5 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763840&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-5 02:19</a>
+
+不是，就算是虹咲加人反应好都tm是动画快完结的时候了，难道上头的人真觉得as加人加的好所以要按as的路子来 ...</blockquote>
+虹咲史上最大的危机 全靠cast用心和动画staff过人的厨力才救回来
+
+现在看他们好像觉得自己做的还挺不错的
+
+我之前说的没错
+
+LL企划的运营不是什么管理科学
+
+就之前怎么干成了下次就再重复做一遍之前成功的时候做的事情
+
+说好听点是纯粹的经验科学 说难听点更接近于某种跳大神的原始祭祀活动
+
+*****
+
+####  lj205  
+##### 6969#       发表于 2022-10-5 02:29
+
+加人这事说白了就是典型的日本人傲慢和习惯性以为无论如何发展都会按自己设定的走，二期生和一期生至今割裂感严重，动画不但没有补充团队感连三次元的互动都不安排。一期生巡演前，有各种外景，还有合练，包括演唱会前一团建预热，到了二期生加入却什么都没有，就算在节目里各种说，给我们看她们彩排互动镜头还有偶尔两人外出的照片，又如何？至今就是给人在各种二期生拖后腿和差距感
+
+*****
+
+####  lj205  
+##### 6970#       发表于 2022-10-5 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763846&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-5 02:21</a>
+这时候先别拐cast零和博弈上头，先把万南的脑回路搞清楚比较重要</blockquote>
+我没想搞，这人几次说了不爽可可，那我呼应一下嘛
+
+*****
+
+####  Kfly  
+##### 6971#       发表于 2022-10-5 02:30
+
+ 本帖最后由 Kfly 于 2022-10-5 02:32 编辑 
+
+啊这，傻眼了都
+该说官方是蠢呢，还是该说官方自信过头了呢………
+我总觉着两者都有啊（不如说这两个指的是一个东西）<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 6972#       发表于 2022-10-5 02:32
+
+ 本帖最后由 nufawneafg 于 2022-10-5 02:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763872&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-5 02:29</a>
+加人这事说白了就是典型的日本人傲慢和习惯性以为无论如何发展都会按自己设定的走，二期生和一期生至今割裂 ...</blockquote>
+关于cast活动我倒认为是因为没到巡演周期就还没开始，毕竟动画周期重点还是动画，但凡动画不那么横冲直撞熬到巡演周期基本上真人活动就赶上来了
+傲慢那确实是傲慢的，平时运营就没有人哪怕对重大决策时间段内总结一下社区反应归档吗
+
+*****
+
+####  lj205  
+##### 6973#       发表于 2022-10-5 02:38
+
+做为可鲤推，我还是不支持她跟团队切割的，本来就是为了参加这个企划，在疫情下孤身一人飞去日本，而且也实实在在地给她带来红利，也给她保证了足够的曝光率。包括最近SAO的COS，都是挂着可可出演的名号，所以生气归生气，该现实点还是现实点
+
+*****
+
+####  稀勢のささ  
+##### 6974#       发表于 2022-10-5 02:38
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 02:39 编辑 
+
+都说实力经验差是看点辣
+后面还说因为新冠的事各种收录基本也是一期二期分开录  哪怕打乱了搞搞呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6975#       发表于 2022-10-5 02:41
+
+4月27那天晚上真是黑刀之夜，之后就是破碎战争了。碎星将军花田十辉
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 6976#       发表于 2022-10-5 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763906&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-5 02:38</a>
+做为可鲤推，我还是不支持她跟团队切割的，本来就是为了参加这个企划，在疫情下孤身一人飞去日本，而且也实 ...</blockquote>
+不用陷入对不可能事件的争论里，合同毁约都是有代价的，哪个能付这个代价，说退出的就是口嗨罢了
+
+*****
+
+####  断头伯爵  
+##### 6977#       发表于 2022-10-5 02:45
+
+[https://t.bilibili.com/713237336087855108](https://t.bilibili.com/713237336087855108)
+ <blockquote><strong>星无</strong>
+
+xi理性讨论。
+
+如果把香音拉人的次数减少，到3次，其他剧情不做变动。
+
+观感会不会好很多。
+
+笑你不敢上wb
+
+我一开始还挺喜欢香音的。到后面就不知道为什么不喜欢了。连我自己都不知道为啥。感觉她干的也都是正常动漫里主角会干的事，嘴炮啥的，但是就是感觉很奇怪。感觉所有摄像机都围着她转。明明自己喜欢的角色镜头变多了是好事。我也不知道为什么会这样。
+
+子夜猫子黄
+
+因为香音并不比团里的人特别多少，但所有表现机会全让给她了，我看了都有点觉得尴尬，有点像硬捧香音
+
+bad student
+
+这么说吧，第一季的香音跟第二季的香音都感觉不是同一个人。
+
+テキスト酱
+
+说句难听的，我巴不得她赶紧和那个VN滚去维也纳，剩下八个人继续做校园偶像
+
+可能没有假定
+
+重点不在是不是香音拉人，而在于拉人的过程，你拉人究竟是为何？拉的人有特殊之处吗？她们对冠军做出了什么作用？（像这些你有没有说清楚呢？还是说你觉得把她们拉入伙就算完成任务了？）还有拉人的办法——怎么拉人？拉人的过程精不精彩？能不能通过拉人促进彼此之间的关系等等问题。（例如像拉岚珠这种先攻其能力再攻其心智，促进了r3的诞生）
+
+总之，星二在这些方面感觉都是模模糊糊，浑浑噩噩的，仿佛谁都塑造了，但是谁都没有塑造好的感觉。[热]
+
+水星人好古板哦_
+
+其他动漫主角的拉人，是把该干的事都干了，然后对面心安理得的跟他走。大香老师的拉人，是队友把事都干了，他在旁边自闭摸鱼搞一些乱七八糟的事情，然后等队友把事干的差不多了突然闪现过去把人拉了，然后莫名其妙的人还“心安理得”的跟他走了[辣眼睛]
+
+多伦多典狱长
+
+她这个人的行为逻辑就很莫名其妙，本来一个啥也不想管的摆烂佬，突然变成满嘴仁义道德光伟正的圣母。干啥事都是一句话“为了结丘”，第二季这个香音纯纯唐僧一个，把大司马的头p到香音头上疯狂折磨队友我一点都不会觉得违和。做什么事都是一套圣母说教，没有半点像正常人会讲出来的话。后面薇恩更是逆天，莫名其妙被薇恩搞，莫名其妙又要说教薇恩。我寻思这没点斯德哥尔摩综合征真干不出这种事。</blockquote>
+
+*****
+
+####  nufawneafg  
+##### 6978#       发表于 2022-10-5 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763932&amp;ptid=2078110" target="_blank">断头伯爵 发表于 2022-10-5 02:45</a>
+https://t.bilibili.com/713237336087855108</blockquote>
+草，唐突搬运，难道是拉拉连夜招聘中文运营来归档来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6979#       发表于 2022-10-5 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763924&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-5 02:42</a>
+不用陷入对不可能事件的争论里，合同毁约都是有代价的，哪个能付这个代价，说退出的就是口嗨罢了 ...</blockquote>
+但是你不能排除企划让她们主动毕业<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">星团不是要搞突破创新吗？讲不定真会这么安排
+
+*****
+
+####  nufawneafg  
+##### 6980#       发表于 2022-10-5 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763944&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-5 02:50</a>
+但是你不能排除企划让她们主动毕业星团不是要搞突破创新吗？讲不定真会这么安排 ...</blockquote>
+我确实不排除这个可能，所以对我来说就是纯只看当下式的参与了。但利益相关方冷静的做出决定，和情绪鼓动下的裹挟还是不一样，而在我看来有一些言论是后者，就尽量避免正面参与
+
+*****
+
+####  lj205  
+##### 6981#       发表于 2022-10-5 03:04
+
+说白都是心疼姑娘们吧
+
+*****
+
+####  nufawneafg  
+##### 6982#       发表于 2022-10-5 03:10
+
+对cast其实还好，只是不太适应后现代的讨论环境，还是求同存异吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
