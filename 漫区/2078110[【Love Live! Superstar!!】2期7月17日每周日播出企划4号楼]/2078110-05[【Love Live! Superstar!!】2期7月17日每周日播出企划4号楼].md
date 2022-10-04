@@ -10124,3 +10124,29 @@ emmm感觉打sif as就不错了</blockquote>
 
 星这边只有鲤奈佩三个宅，还都是比较隐晦很少透露（共同点大概只有都是术口力人
 
+
+
+*****
+
+####  player3960  
+##### 6941#       发表于 2022-10-5 00:33
+
+ 本帖最后由 player3960 于 2022-10-5 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763169&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-05 00:31:19</a>
+
+虹那边宅的比例和浓度都高得离谱
+
+星这边只有鲤奈佩三个宅，还都是比较隐晦很少透露（共同点大概只有都是 ...</blockquote>
+鲤鱼对电锯人的爱倒是毫不掩饰，我看她上周又给电锯人宣传广告点了赞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 6942#       发表于 2022-10-5 00:41
+
+我还在等她的间谍过家家cos 动画播完排练三巡感觉要明年了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
