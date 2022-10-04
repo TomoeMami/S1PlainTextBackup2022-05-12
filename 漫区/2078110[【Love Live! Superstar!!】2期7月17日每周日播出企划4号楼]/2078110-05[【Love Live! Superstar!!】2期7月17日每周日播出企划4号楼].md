@@ -7948,3 +7948,21 @@ Bd就没高过虹，但说实话虹星销量上都是菜鸡互啄，不过谁在
 只要ip摆在这，我就可劲儿试，对一个就能拿回来所有成本还有的赚，还有固定社区保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 草，原来是高达
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6730#       发表于 2022-10-4 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉拉高达说之前就有楼U提过吧
+
+*****
+
+####  川陀  
+##### 6731#       发表于 2022-10-4 17:38
+
+我一直觉得星二期就是劣化版的种命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

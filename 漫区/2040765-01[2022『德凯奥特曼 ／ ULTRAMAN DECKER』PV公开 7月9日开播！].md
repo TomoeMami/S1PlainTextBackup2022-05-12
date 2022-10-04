@@ -6898,3 +6898,14 @@ TPUが開発した対怪獣用のロボット兵器。右腕に伸縮可動す�
 
 只用了一集还能拍得这么爽，越知靖确实有东西
 
+
+
+*****
+
+####  江陵哭哭死  
+##### 614#       发表于 2022-10-4 17:38
+
+这才一半就暴露身份了，剩下12集要怎么拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

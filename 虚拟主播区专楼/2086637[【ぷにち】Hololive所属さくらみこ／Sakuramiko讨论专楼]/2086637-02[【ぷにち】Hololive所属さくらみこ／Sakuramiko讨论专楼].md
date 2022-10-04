@@ -5687,3 +5687,14 @@ apex不玩，ow不玩，就想玩这个高达FPS也就你了
 
 服了这人了，看晚上播的人多就直接润了，明天的企划是有多硬核吗？不调休参加不了是吧？
 
+
+
+*****
+
+####  rs5621  
+##### 2053#       发表于 2022-10-4 17:39
+
+几点了，怎么一点消息都没有<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
