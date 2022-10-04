@@ -10150,3 +10150,41 @@ emmm感觉打sif as就不错了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  名津流  
+##### 6943#       发表于 2022-10-5 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762456&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-4 23:34</a>
+
+别说，就这发展趋势可能真有机会见证企划第一次中之人退出</blockquote>
+不...不至于吧，感觉中之人没有表现出多少不满的痕迹出来啊
+
+*****
+
+####  稀勢のささ  
+##### 6944#       发表于 2022-10-5 00:54
+
+翻了下切片收藏夹，去年差不多这时候的生放里，哪怕带个货大家都多多少少能整出点节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 最近的可能是货太难卖吹不动吧
+
+*****
+
+####  D麦林  
+##### 6945#       发表于 2022-10-5 00:57
+
+你们这发散又要发散到哪去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+揣摩中之人想法没意思的 只会造成各种误会
+
+*****
+
+####  ykyin09  
+##### 6946#       发表于 2022-10-5 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762268&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-4 23:16</a>
+
+刚好在刷煤炉，参考一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">怎么ceo的谷价成最低了？
+
