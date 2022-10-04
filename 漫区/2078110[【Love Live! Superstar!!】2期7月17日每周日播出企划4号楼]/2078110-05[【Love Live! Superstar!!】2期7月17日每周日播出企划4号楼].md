@@ -7387,3 +7387,51 @@ SIF2就不知道还会不会被这么重视了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  靡宜  
+##### 6676#       发表于 2022-10-4 12:15
+
+<blockquote>星踪幻影 发表于 2022-10-4 12:05
+说个有趣的，5厕那里因为鲤&amp; ...</blockquote>
+😢😢尴尬
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6677#       发表于 2022-10-4 12:16
+
+<img src="https://img.saraba1st.com/forum/202210/04/121631cafrw4015ra4128f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-4 12:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都在坐等评分
+
+*****
+
+####  Alicest  
+##### 6678#       发表于 2022-10-4 12:18
+
+父母将天才献给世界罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+此事平平无奇
+
+*****
+
+####  星踪幻影  
+##### 6679#       发表于 2022-10-4 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754508&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-10-4 12:15</a>
+
+😢😢尴尬</blockquote>
+只要小百合的嗓子问题没解决，强推大香老师的结果都全面负面的
+
+哪怕强推老5人其他4人甚至新4人的一人都有所期待
+
+隔壁的菜宝也算一个例子
+
