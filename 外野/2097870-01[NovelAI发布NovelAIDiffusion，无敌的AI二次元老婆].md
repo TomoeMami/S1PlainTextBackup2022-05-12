@@ -1702,3 +1702,26 @@ MMD里的骨骼套上Ai的皮，感觉就是下一代二刺螈工业化的方向
 
 AI作画的弱项居然是机械。。。。。。
 
+
+
+*****
+
+####  pgain2004  
+##### 116#       发表于 2022-10-4 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57755183&amp;ptid=2097870" target="_blank">aa01 发表于 2022-10-4 13:17</a>
+
+AI作画的弱项居然是机械。。。。。。</blockquote>
+都是训练方向的问题
+
+我真的推荐去看Two Minute Papers，很多新论文都挺震撼的
+
+*****
+
+####  fat  
+##### 117#       发表于 2022-10-4 13:28
+
+<blockquote>aa01 发表于 2022-10-4 13:17
+AI作画的弱项居然是机械。。。。。。</blockquote>
+人作画的弱项是人体，很对称了
+
