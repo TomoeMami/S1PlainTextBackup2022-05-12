@@ -11931,3 +11931,12 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 这不已经处于临界态了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 真看不起无形的大手啊
 
+
+
+*****
+
+####  沙茶酱  
+##### 7084#       发表于 2022-10-5 18:25
+
+星二期这剧情是怎么通过剧本会议的，这大概是Lovelive历史的不解之谜了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
