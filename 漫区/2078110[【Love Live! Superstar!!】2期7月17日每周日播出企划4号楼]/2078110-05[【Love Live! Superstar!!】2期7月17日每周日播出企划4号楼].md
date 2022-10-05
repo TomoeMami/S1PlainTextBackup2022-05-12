@@ -10901,3 +10901,50 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  csolfans  
+##### 7007#       发表于 2022-10-5 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57762944&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-5 00:11</a>
+
+五老星除了鲤，似乎都不太喜欢玩游戏。打铁只玩过弟弟的ns，nagi说过不喜欢玩电子游戏，nako没提过sif以 ...</blockquote>
+Pay有玩PS4
+
+*****
+
+####  starring  
+##### 7008#       发表于 2022-10-5 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765451&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-5 10:13</a>
+微妙，这广播怎么还给鱼上嘴替的，等放映会repo，不听鱼亲口说第九集的详细感想我是不会信半子的，这会喜欢 ...</blockquote>
+想偏了，即使心里一万个不喜欢，也不会在公开场合说出来，说出来不就给黑子抓把柄，更何况鲤鱼怎么想只有本人知道
+
+*****
+
+####  Kfly  
+##### 7009#       发表于 2022-10-5 10:30
+
+照着上次生放的讲不就行了，堇的部分直接嗯嗯嗯敷衍过去（
+
+不过这次没有nagi接话了
+
+<img src="https://img.saraba1st.com/forum/202210/05/102631cd9ld3l9vvovg6q9.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-10-05 102601.png</strong> (100.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 10:26 上传
+
+*****
+
+####  starring  
+##### 7010#       发表于 2022-10-5 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765531&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-5 10:21</a>
+Pay有玩PS4</blockquote>
+说过玩了project diva，还有玩过pm xy（作为术术人反而没提过半句pjsk
+
