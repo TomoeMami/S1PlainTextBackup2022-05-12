@@ -11426,3 +11426,15 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 
 这种剧情不是不能搞，如果真的能让观众感受到实力差距，那能够让很多剧情说通，观感提升，反之就是全员小丑了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7051#       发表于 2022-10-5 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57767554&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-5 13:35</a>
+
+现在差评如潮的硬捧香音环节替换成隔壁的凤傲天龙王隐藏实力的剧本观感会变好吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能 因为你知道香音一开始是什么B样
+
