@@ -11447,3 +11447,27 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是知道大香老师和小百合的怎么样的所以观感会这么微妙
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 7053#       发表于 2022-10-5 14:31
+
+好消息是这周末折磨就要结束了，马上就要开始美好的巡演期了
+
+坏消息是最后一集还不知道会有多屎，以及巡演大概率又要放大便般的切片让大伙坐牢
+
+*****
+
+####  稀勢のささ  
+##### 7054#       发表于 2022-10-5 14:38
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 14:39 编辑 
+
+闪说是凤傲天之前也就吹个比队友强很多能摸到顶级偶像的边，还只是在别人个人回范围内讲的东西，这集想拆队属于是没矛盾了就嗯造一个，人有B数的制作组还特意降低了攻击性。既然是嗯造的那第一主角受点优待加点戏也没啥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+香哥哥这边倒好，明明大家都一起在搞学园偶像，结果你全都要，到最后世界顶尖学院就偏偏看上她甚至包吃包住就差跪着求她去了，吹的B都不一样好吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">认真写这玩意儿下集不让去就是毁人前程，自己要留就是大恩大德
+
+VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻才第一次有了存在意义
+
