@@ -11023,3 +11023,82 @@ Pay有玩PS4</blockquote>
 标准起手式吧大概，十几年前也这样（当然不是指拉拉这边）现在但凡是个动画也这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 总不能明面喷吧
 
+
+
+*****
+
+####  Kfly  
+##### 7016#       发表于 2022-10-5 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765414&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-5 10:09</a>
+
+pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴剧情，孩子已经很开心，感动得不要不要了。 ...</blockquote>
+还漏了一句
+
+<img src="https://img.saraba1st.com/forum/202210/05/110043bbkk3oj3bjbxkfd3.png" referrerpolicy="no-referrer">
+
+<strong>「中字」结女课后广播电台 LieRadi! 第84期（221004）  No.10字幕组 @23-44.05 166493.png</strong> (193.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 11:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 7017#       发表于 2022-10-5 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765271&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-5 09:53</a>
+
+妮们那么喜欢心理分析，给窝分析分析，这最后一场全开西武是出于啥心理定的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">场地便宜呀...何况虹咲开的得 裂啦开不得？
+
+*****
+
+####  player3960  
+##### 7018#       发表于 2022-10-5 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765950&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 11:02</a>
+
+还漏了一句</blockquote>
+大概是shi里淘金吧，唐可可第二季也就这半集能看，就和第一季鲤鱼死抱着可香一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7019#       发表于 2022-10-5 11:07
+
+ 本帖最后由 aoaoaodedede 于 2022-10-5 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765950&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 11:02</a>
+
+还漏了一句</blockquote>
+啊对对对，这波是喜欢得忘记在SNS上发表感想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然20号还是补了几张和pay的合照，不过也没多说什么感想啥的了
+
+*****
+
+####  稀勢のささ  
+##### 7020#       发表于 2022-10-5 11:08
+
+有人帮鱼嘴替尬吹还不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 这样再怎么滑坡最多也就只能说鱼欣赏水平不行了
+
+
+
+*****
+
+####  Alicest  
+##### 7021#       发表于 2022-10-5 11:09
+
+同样是伴舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/05/110919i2e258dd51221e14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (295.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 11:09 上传
+
