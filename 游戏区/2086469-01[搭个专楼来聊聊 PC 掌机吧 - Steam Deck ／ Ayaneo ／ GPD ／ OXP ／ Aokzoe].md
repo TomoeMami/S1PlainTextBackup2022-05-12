@@ -4553,3 +4553,17 @@ steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
 
 桌面 外接4K显示器最多只能1200P分辨率 怎么才能改成4K分辨率啊
 
+
+
+*****
+
+####  传说中的天才  
+##### 369#       发表于 2022-10-5 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57416175&amp;ptid=2086469" target="_blank">那由 发表于 2022-9-9 21:06</a>
+
+Ayaneo Air到手了一个月了，硬件大致优缺点（唯一真正能算得上掌机的尺寸、完全不够用的续航、高功率散热太 ...</blockquote>
+有Aya Neo Pro，刷的Chimera OS，之前体验感觉一直不错，就是觉得有点太重了，准备搞个轻的玩玩小游戏，想请问一下Aya Neo Air现在Chimera OS v35的支持如何了？
+
+准备就玩玩灵魂摆渡人，杀戮尖塔这些游戏，感觉128GB太小，256GB和512GB的价格一比还不如直接买512GB...
+

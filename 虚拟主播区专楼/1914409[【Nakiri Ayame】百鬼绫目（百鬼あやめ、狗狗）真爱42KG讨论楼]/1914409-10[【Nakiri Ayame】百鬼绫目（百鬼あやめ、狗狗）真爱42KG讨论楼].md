@@ -7884,3 +7884,16 @@ dfm都这么努力绫总凭什么这么摆<img src="https://static.saraba1st.com
 
 绫总这是向dfm学习：电竞很努力
 
+
+
+*****
+
+####  Map-2  
+##### 14384#       发表于 2022-10-5 17:41
+
+ 本帖最后由 Map-2 于 2022-10-5 17:51 编辑 
+
+绫总在电竞这块确实是很努力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+tmd怎么开始连推都不发了，还是你楼更懂绫总啊
+
