@@ -4593,3 +4593,35 @@ Ayaneo Air到手了一个月了，硬件大致优缺点（唯一真正能算得�
 
 air可以去闲鱼蹲，出的人不少
 
+
+
+*****
+
+####  那由  
+##### 373#       发表于 2022-10-5 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57769979&amp;ptid=2086469" target="_blank">传说中的天才 发表于 2022-10-5 17:47</a>
+有Aya Neo Pro，刷的Chimera OS，之前体验感觉一直不错，就是觉得有点太重了，准备搞个轻的玩玩小游戏， ...</blockquote>
+我在用ChimeraOSv35的时候出现proton库没办法下载的问题，于是转用了HOLOISO，整套的steamdeck体验还是很爽的。（但是需要不少插件微调），目前还存在的问题有：deckui下手柄震动无效、开着游戏睡眠唤醒有机率死机。
+要不要买air其实还是要看需求。就我自己感觉的话，其实air瞄准的是轻便随手拿的场景，我可以直接把air赛进运动短裤的口袋里兜着走，这一点其他x86掌机没有敌手。如果你期望的游玩类型是独立2d游戏、renpy、krkr等文字黄油、跑模拟器3d游戏，那air其实完全可以满足性能，不用老纠结6800u，现阶段所有6800u都没有在装这种轻便模具的，只能说体验独一份，air不值官价市场也会自然调节。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  那由  
+##### 374#       发表于 2022-10-5 18:50
+
+<img src="https://img.saraba1st.com/forum/202210/05/184608ei3es8wui1811ini.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9139.jpg</strong> (264.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 18:46 上传
+
+就我个人实例来说，跑ps2和ngc的体验是可以给满分的，除了特别难模拟的比如vp2以外，基本可以通过handypt限制到10-11w拉3x打宽屏和高清材质，包爽<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+ps3的话就比较吃力了，基本也就玩玩og2
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

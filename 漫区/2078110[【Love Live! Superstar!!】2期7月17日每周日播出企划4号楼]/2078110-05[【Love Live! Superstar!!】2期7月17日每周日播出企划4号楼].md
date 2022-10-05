@@ -11940,3 +11940,48 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 星二期这剧情是怎么通过剧本会议的，这大概是Lovelive历史的不解之谜了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 7085#       发表于 2022-10-5 18:43
+
+阴阳剧本？给上面看的和正式的不是一个剧本这样？
+
+*****
+
+####  D麦林  
+##### 7086#       发表于 2022-10-5 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770656&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-5 18:43</a>
+阴阳剧本？给上面看的和正式的不是一个剧本这样？</blockquote>
+怎么可能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这么搞怎么会不被发现
+别搞阴谋论了 复习泥潭草台学说
+
+*****
+
+####  仟音一心  
+##### 7087#       发表于 2022-10-5 18:49
+
+青山姐拿出吉他就是为了拍这个
+
+<img src="https://img.saraba1st.com/forum/202210/05/184846zi1wiwfzela57fw2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>55CF5F31-270A-4429-8A9C-362A9472F1ED.jpeg</strong> (633.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-5 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202210/05/184846gl767zqtbh6t7x6o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B22E238E-B47E-474B-994C-8B1D492D1CD6.jpeg</strong> (160.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-5 18:48 上传
+
