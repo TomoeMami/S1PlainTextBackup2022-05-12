@@ -11644,3 +11644,48 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 由手机上传
 2022-10-5 14:58 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 7059#       发表于 2022-10-5 15:05
+
+<blockquote>Kfly 发表于 2022-10-5 14:55
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/05/150516lug334kk4uowwzwz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D8D8AEF7-0CAC-465A-B305-7B1369FE057A.jpeg</strong> (441.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-5 15:05 上传
+
+*****
+
+####  iuhehc  
+##### 7060#       发表于 2022-10-5 15:08
+
+那边好像有些公演开始能出声了，但是好像人少才行
+
+*****
+
+####  csolfans  
+##### 7061#       发表于 2022-10-5 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57768216&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 14:55</a>
+
+本人巡礼</blockquote>
+瞧把孩子瘦得
+
+*****
+
+####  liu461  
+##### 7062#       发表于 2022-10-5 15:11
+
+大香老师这望之不似人君的衰样就不要去碰瓷隔壁的春皇了好吧<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+春皇带底边玩了半天抛开社长一开始纯放羊，马内夹到位后四个底边都起来了，大香老师除了直球谈心战绩直球辱队友外还有啥<img src="https://static.saraba1st.com/image/smiley/animal2017/003.png" referrerpolicy="no-referrer">
+
