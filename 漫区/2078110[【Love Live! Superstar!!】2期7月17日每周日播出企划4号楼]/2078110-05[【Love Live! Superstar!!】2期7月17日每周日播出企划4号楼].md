@@ -11353,3 +11353,26 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 细写的只有这一部分，这期基本都在讲第九集，也没啥好特别写出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 [84期时间轴](https://www.bilibili.com/read/cv18928592)
 
+
+
+*****
+
+####  kata魂  
+##### 7044#       发表于 2022-10-5 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57767295&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 13:09</a>
+
+细写的只有这一部分，这期基本都在讲第九集，也没啥好特别写出来的
+
+84期时间轴
+
+ ...</blockquote>
+好的，感谢👌🏻
+
+*****
+
+####  反正我改名  
+##### 7045#       发表于 2022-10-5 13:21
+
+应该不会有续作剧场版了吧，香音都人设被抬成凤傲天圣人了，接下来岂不是要干翻滨崎步仓木麻衣宇多田光大黑摩季安室奈美惠 ，看B站的中之人自白内容挺心疼小百合的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

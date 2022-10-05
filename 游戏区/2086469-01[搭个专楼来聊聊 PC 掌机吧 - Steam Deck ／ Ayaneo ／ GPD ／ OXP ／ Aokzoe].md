@@ -4544,3 +4544,12 @@ steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  任天索尼子  
+##### 368#       发表于 2022-10-5 13:17
+
+桌面 外接4K显示器最多只能1200P分辨率 怎么才能改成4K分辨率啊
+
