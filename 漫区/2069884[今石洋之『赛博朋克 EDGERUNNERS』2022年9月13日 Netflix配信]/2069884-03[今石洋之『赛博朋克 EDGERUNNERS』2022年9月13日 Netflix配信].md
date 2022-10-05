@@ -1161,3 +1161,12 @@ TRPG赛博朋克是游戏2077的原作
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Gassnake  
+##### 3091#       发表于 2022-10-5 16:38
+
+看完了，男主这个加速+氪命的最终装备莫名像巧爷
+
