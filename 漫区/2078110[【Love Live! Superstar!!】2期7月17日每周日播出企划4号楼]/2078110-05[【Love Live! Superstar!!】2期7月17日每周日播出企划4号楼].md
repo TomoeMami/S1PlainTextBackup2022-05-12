@@ -11783,3 +11783,25 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 当年一年分两季讲，现在一年一季是闹哪样
 
+
+
+*****
+
+####  Kfly  
+##### 7070#       发表于 2022-10-5 16:14
+
+ 本帖最后由 Kfly 于 2022-10-5 16:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57768848&amp;ptid=2078110" target="_blank">1096beam 发表于 2022-10-5 16:06</a>
+
+当年一年分两季讲，现在一年一季是闹哪样</blockquote>
+这个讨论过很多次了，结论是大概率为了分期加人
+昨天的访谈也有提及差距啥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+引用一个翻译 <blockquote>“有别于以往系列作，全员几乎是一次加入，前、后辈的份际不明显，实力差距也不大”
+
+“星团是成员加入的时间不同，藉此呈现出前、后辈关係”
+
+“描写已活动了一年的2年级，跟新入学的1年级的经验、实力差距”
+
+“便是有此特点的故事”</blockquote>
+
