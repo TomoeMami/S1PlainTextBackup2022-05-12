@@ -11221,3 +11221,43 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 第9集是唯一一集和可可线粘了边的，我无视其他剧情看可堇提供素材给画师产粮还是快乐的
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ruffian  
+##### 7032#       发表于 2022-10-5 12:03
+
+同人画师脑的可可线和可堇糖不比你这逼动画香多了？我现在最怕的就是画师被干破防跑路喽，特别是可推画师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 7033#       发表于 2022-10-5 12:04
+
+ 本帖最后由 稀勢のささ 于 2022-10-5 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766525&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 11:55</a>
+
+人家闪的龙王（春）可是一直对自己的能力痛苦不已的（虽然这种话说出来有点难绷），她的梦想不是孤身一人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人制作组也知道这种剧情多少还是有点离谱 所以上门拆队从对白到BGM都有在试图营造一种欢快的气氛 还顺便点出了那几位的不足方便后面升级
+
+这边可是认认真真的吹
+
+*****
+
+####  Alicest  
+##### 7034#       发表于 2022-10-5 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766620&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-5 12:04</a>
+别人制作组也知道这种剧情多少还是有点离谱 所以上门拆队从对白到BGM都有在试图营造一种欢快的气氛 ...</blockquote>
+人樋口是什么人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和花田是不一样的啊，和花田！
+
+*****
+
+####  梶原ひかり  
+##### 7035#       发表于 2022-10-5 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最新老新闻...一期生试音被通知合格的时候 就被告知将来会增加二期成员 来源日经エンタメ 裂啦最新访谈
+
