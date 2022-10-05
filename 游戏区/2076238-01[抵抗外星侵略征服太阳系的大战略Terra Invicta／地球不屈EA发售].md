@@ -1156,3 +1156,12 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 还有为啥核裂变和太阳能都是产10电，太阳能还不需要燃料，核裂变主要是离太阳远了再用吗
 
+
+
+*****
+
+####  wwddrte  
+##### 110#       发表于 2022-10-5 20:34
+
+原来同时研发三个科技有加成，才知道，又想重新开档了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
