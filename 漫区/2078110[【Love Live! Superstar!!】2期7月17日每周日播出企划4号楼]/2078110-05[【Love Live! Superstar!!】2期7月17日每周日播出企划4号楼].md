@@ -11814,3 +11814,21 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开剧情，作为偶像番live 和歌都没印象深的还拍啥偶像番
 
+
+
+*****
+
+####  CharlieZ-  
+##### 7072#       发表于 2022-10-5 16:50
+
+反正闪那个凤傲天剧情真的乐死我了，本来以为大家都是乐色，结果你以前是冠军神选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但女主隐瞒的理由也算是为了团队，可以理解
+
+再看大香老师这边，我不好说。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llllife  
+##### 7073#       发表于 2022-10-5 16:51
+
+才发现漏油在讨论的是闪耀路标是7月新番，但是在此之前我都没听说过也没见有哪讨论过。只能说拉拉的招牌真是金字招牌，哪怕星2拍成这样也有不少人看
+
