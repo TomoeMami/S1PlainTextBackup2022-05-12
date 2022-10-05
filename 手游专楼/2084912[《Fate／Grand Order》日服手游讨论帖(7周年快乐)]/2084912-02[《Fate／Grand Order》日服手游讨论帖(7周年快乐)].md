@@ -15817,3 +15817,12 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 252的高难回忆本是11-3爱玩之兽、13-2阿芙洛狄忒、23-2[队长做御主的]凯尼斯（马修 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">记得前两个可以用打了回血和解异常刻印的C狐单挑
 
+
+
+*****
+
+####  alucardcz  
+##### 2909#       发表于 2022-10-5 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没强化本 惊喜不惊喜 意外不意外（
+

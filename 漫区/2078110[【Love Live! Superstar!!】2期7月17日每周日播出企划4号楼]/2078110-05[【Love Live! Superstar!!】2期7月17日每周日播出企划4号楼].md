@@ -11897,3 +11897,24 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 7081#       发表于 2022-10-5 18:08
+
+犬威赤彦老师的可堇本
+看了让我最绷不住的一格
+就连同人作者都知道要强调可可的服装担当
+
+*****
+
+####  D麦林  
+##### 7082#       发表于 2022-10-5 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57769534&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-5 17:14</a>
+啥偶像荣耀，还有和偶像荣耀异父异母的SELECTION PROJECT，年年都不缺的……SP听说不就吃着饭就从柯纳米扎 ...</blockquote>
+花钱浪归花钱浪 你烧钱赚不赚无所谓 能给大家带来好的享受那肯定开心
+你不能烧钱伤害大伙还叫大伙来掏钱买单啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -4567,3 +4567,29 @@ Ayaneo Air到手了一个月了，硬件大致优缺点（唯一真正能算得�
 
 准备就玩玩灵魂摆渡人，杀戮尖塔这些游戏，感觉128GB太小，256GB和512GB的价格一比还不如直接买512GB...
 
+
+
+*****
+
+####  传说中的天才  
+##### 370#       发表于 2022-10-5 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跑去问了下，现在买Aya Neo Air还得等到10月底才能发货...
+
+*****
+
+####  bypass  
+##### 371#         楼主| 发表于 2022-10-5 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770199&amp;ptid=2086469" target="_blank">传说中的天才 发表于 2022-10-5 18:04</a>
+
+跑去问了下，现在买Aya Neo Air还得等到10月底才能发货...</blockquote>
+之前我看微博说有少量现货，可以问问具体是哪款有现货，也可能是 Pro。
+
+*****
+
+####  医生狼多  
+##### 372#       发表于 2022-10-5 18:10
+
+air可以去闲鱼蹲，出的人不少
+
