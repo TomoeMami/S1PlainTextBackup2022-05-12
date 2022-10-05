@@ -11405,3 +11405,12 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 
 个人观点啊，偶像番里就不该有过度中心化的主角，要么他搞动画的真有本事就把主角和配角都写的非常饱满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7049#       发表于 2022-10-5 13:43
+
+唐可可算什么二番，哪家二番到现在还没有个个人视角c位曲，说是最佳介子推还差不多，各种割肉给别人设定，到头来骨头架子都剩不下
+
