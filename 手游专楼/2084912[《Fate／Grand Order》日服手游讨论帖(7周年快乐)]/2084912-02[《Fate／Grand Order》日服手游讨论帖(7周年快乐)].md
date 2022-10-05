@@ -15770,3 +15770,24 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 是和原来一样么，那又得纠结要不要在活动里用完了</blockquote>
 251开之前纠结过，等新活动开最高效率本的话基本得在最后一两天内刷完105个茶壶，要命<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2906#       发表于 2022-10-5 17:29
+
+ 本帖最后由 Jamaisvu 于 2022-10-5 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57723202&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-1 20:49</a>
+
+唉，过段时间就该重温252的傻逼助战高难了
+
+盲猜一下，有7-2农神-锁凯尼斯助战、21-3宙斯-锁神祖 ...</blockquote>
+全 部 猜 错 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+252的高难回忆本是11-3爱玩之兽、13-2阿芙洛狄忒、23-2[队长做御主的]凯尼斯（马修首发，助战老福）。
+
+算是规避了最糟糕的选项吧，看来策划也知道锁助战有多SB。
+
+（那为啥选23-2不选23-3呢，后者队长肉身放宝具多震撼，还不锁助战...）
+
