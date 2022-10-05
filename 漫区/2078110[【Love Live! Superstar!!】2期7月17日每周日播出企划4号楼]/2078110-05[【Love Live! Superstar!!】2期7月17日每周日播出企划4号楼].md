@@ -10703,3 +10703,41 @@ emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧个人厨厨还在洗，什么一开始故事寓意就是实现自我，无私帮助别人成就梦想啥的，难听点不就拿裂啦做跳板，要这么说裂拉连存在的必要都没有，某人这部长当的是个什么jb，看了简直想吐🤮
 
+
+
+*****
+
+####  ViyViy  
+##### 6991#       发表于 2022-10-5 07:56
+
+无私帮助别人成就梦想这也不对啊，你香圣谁拉起来的？可可但凡把你当精神病不理你你香圣就得看着小千的飞机抱憾终身了。
+
+*****
+
+####  ruffian  
+##### 6992#       发表于 2022-10-5 07:59
+
+总之有些话题冷静下吧，前几天的解散咧啦雪藏小百合，到现在的中之人不熟……你们的讨论也太滑坡了，我不理解，我大震撼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 6993#       发表于 2022-10-5 08:00
+
+感觉那边认为剧场版比起上海，是VN主场的可能性更大的人有不少啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6994#       发表于 2022-10-5 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57764562&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-5 08:00</a>
+感觉那边认为剧场版比起上海是VN主场的可能性更大的人有不少啊
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">本来就是，都给你搬出维也纳这个舞台了，没理由不写
+
