@@ -11261,3 +11261,29 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最新老新闻...一期生试音被通知合格的时候 就被告知将来会增加二期成员 来源日经エンタメ 裂啦最新访谈
 
+
+
+*****
+
+####  优妮可  
+##### 7036#       发表于 2022-10-5 12:14
+
+这个翻译对了吗？我看好像有争议什么的
+
+*****
+
+####  nufawneafg  
+##### 7037#       发表于 2022-10-5 12:19
+
+尝试关键开团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 7038#       发表于 2022-10-5 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766018&amp;ptid=2078110" target="_blank">Alicest 发表于 2022-10-5 11:09</a>
+
+同样是伴舞</blockquote>
+只能说看似形似的剧情，别人怎么处理的，京极花田是怎么处理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
