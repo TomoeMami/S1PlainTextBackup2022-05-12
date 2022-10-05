@@ -15847,3 +15847,22 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 记得前两个可以用打了回血和解异常刻印的C狐单挑</blockquote>
 现在妖高应该更适合。
 
+
+
+*****
+
+####  J-002  
+##### 2912#       发表于 2022-10-5 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57771187&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-10-5 19:29</a>
+
+现在妖高应该更适合。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">我没妖高，给c狐点技能去了
+
+*****
+
+####  angelooo  
+##### 2913#       发表于 2022-10-5 19:36
+
+2.3:现在我不是最丢人的那个了233
+

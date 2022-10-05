@@ -5945,3 +5945,28 @@ miko脑子里到底什么构造
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">收录到这么晚还没消息,今晚的直播怕不是又没了
 
+
+
+*****
+
+####  qesto  
+##### 2081#       发表于 2022-10-5 19:35
+
+ 本帖最后由 qesto 于 2022-10-5 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57763665&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-10-5 01:37</a>
+
+奇怪怎么跑别人那去了</blockquote>
+这是昨天联动里的提问啊
+
+486说在holo里是从miko赌鬼时代听来的，但好像社外也有流行
+
+金憨憨大概是看了直播，在宣告这个梗的所有权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/05/193714g44b0j6r04xjj1xd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (144.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 19:37 上传
+
