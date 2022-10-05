@@ -11438,3 +11438,12 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 现在差评如潮的硬捧香音环节替换成隔壁的凤傲天龙王隐藏实力的剧本观感会变好吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能 因为你知道香音一开始是什么B样
 
+
+
+*****
+
+####  星踪幻影  
+##### 7052#       发表于 2022-10-5 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是知道大香老师和小百合的怎么样的所以观感会这么微妙
+
