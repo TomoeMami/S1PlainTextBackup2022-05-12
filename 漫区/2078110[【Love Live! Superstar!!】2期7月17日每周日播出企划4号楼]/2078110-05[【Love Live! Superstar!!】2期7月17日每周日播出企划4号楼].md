@@ -11326,3 +11326,17 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星连女士位都没，看看人家莲女士
 
+
+
+*****
+
+####  kata魂  
+##### 7042#       发表于 2022-10-5 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765227&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 09:48</a>
+
+就只有星二像缺了根筋
+
+你tm到底是怎么理解liella的？</blockquote>
+这个文字版是在哪看的，不想看广播了
+

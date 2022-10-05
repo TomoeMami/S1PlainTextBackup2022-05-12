@@ -4522,3 +4522,14 @@ steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  紫煜  
+##### 366#       发表于 2022-10-5 12:50
+
+对了，奥克充电好像有问题，应该没100w
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
