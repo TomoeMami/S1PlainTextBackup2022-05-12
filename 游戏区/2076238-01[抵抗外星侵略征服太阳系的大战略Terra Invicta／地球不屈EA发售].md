@@ -1125,3 +1125,18 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 我现在是轨道站随便防，但是不知道怎么防轰炸...</blockquote>
 地面也是点防御阵啊，防不住的话应该要么是科技不够要么是数量不够。不过好像有个科技挺重要的，现在没开游戏不记得是哪个了，下次近游戏翻翻去
 
+
+
+*****
+
+####  萼绿华  
+##### 108#         楼主| 发表于 2022-10-5 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770622&amp;ptid=2076238" target="_blank">wwddrte 发表于 2022-10-5 18:40</a>
+
+开了几个档玩了十几个小时了，感觉蛮好玩的，就是科技实在看不懂，它这个研发机制我是明白和群星类似，但是 ...</blockquote>
+和群星不一样，科技完全不是随机出现的，要规划。看你玩哪派了，科技线也不一样。如果是玩比较常见的人类至上派或者抵抗派的话，中期以前关键是记得不要光顾着在地球上和虫豸们比烂，要积极开发太空然后备战。但是具体的科技选择是个麻烦事，现在游戏开荒阶段也没有什么特别公认的最优解，何况现在EA，数值一直在改，说不定一个补丁过后原来的套路就废了。
+
+能看英文的话红迪上倒是有大佬写了一个科技攻略了，跟着走的话应该至少不至于把科技树点歪掉：
+[https://www.reddit.com/r/TerraIn ... invasion_in_10_easy](https://www.reddit.com/r/TerraInvicta/comments/xug59w/guide_how_to_defeat_an_alien_invasion_in_10_easy)
+

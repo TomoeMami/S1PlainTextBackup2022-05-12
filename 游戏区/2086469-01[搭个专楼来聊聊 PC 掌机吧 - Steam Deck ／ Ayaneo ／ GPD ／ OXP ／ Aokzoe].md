@@ -4641,3 +4641,14 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Fuero  
+##### 376#       发表于 2022-10-5 20:13
+
+ 本帖最后由 Fuero 于 2022-10-5 20:15 编辑 
+
+时至今日才体验到GTA5的神优化，SD在6W功耗下，设置高~非常高可以稳定40帧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，5W也能稳定30+
+

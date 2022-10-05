@@ -1181,3 +1181,17 @@ TRPG赛博朋克是游戏2077的原作
 
 —— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ntrntr1  
+##### 3093#       发表于 2022-10-5 20:11
+
+<blockquote>mimighost 发表于 2022-9-26 14:36
+看完也就是一个8分作品吧
+
+讲真我有点儿get不到
+</blockquote>
+boy meets girl是日式味儿，小人物被卷到大企业发现真相然并卵才是最初的赛博朋克啊，银翼杀手那个原作小说不就这个剧情，那不就是最早的赛博朋克
+
