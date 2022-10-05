@@ -11287,3 +11287,33 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 同样是伴舞</blockquote>
 只能说看似形似的剧情，别人怎么处理的，京极花田是怎么处理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 7039#       发表于 2022-10-5 12:34
+
+lovelive superstarlight
+
+毫无疑问的女主涩谷香音
+
+天降的幼驯染岚千砂都
+
+revue的顶点唐可可
+
+朝着顶点冲击的平安名堇
+
+暗中掌控轮回的叶月恋
+
+貌合神离的同居者樱小路姬奈子
+
+*****
+
+####  aoaoaodedede  
+##### 7040#       发表于 2022-10-5 12:41
+
+ 本帖最后由 aoaoaodedede 于 2022-10-5 12:42 编辑 
+
+bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

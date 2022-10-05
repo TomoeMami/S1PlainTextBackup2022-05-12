@@ -4486,3 +4486,12 @@ deck装windows有问题么？</blockquote>
 
 先用个两年再说吧，希望两年后win掌机能进化到更能让人接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fuero  
+##### 363#       发表于 2022-10-5 12:34
+
+steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
+
