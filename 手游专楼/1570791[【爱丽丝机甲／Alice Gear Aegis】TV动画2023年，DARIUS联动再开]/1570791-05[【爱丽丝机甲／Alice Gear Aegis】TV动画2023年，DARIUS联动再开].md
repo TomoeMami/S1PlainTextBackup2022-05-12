@@ -13814,3 +13814,17 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 上当了，结果是只能选到要点的技能，然后顺便点过路的[f ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还挺有游戏性的，如何点最少次数打通盘子是吧
 
+
+
+*****
+
+####  LEOKO~  
+##### 7349#       发表于 2022-10-5 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57740673&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2022-10-3 08:42</a>
+
+是的，抽卡唯一标准就是顺不顺眼。
+
+所以大流士不是粉或者不来电就没必要抽，强度也一般。（不过据说有加料 ...</blockquote>
+双枪的上弹机制该去掉了
+
