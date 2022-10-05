@@ -12016,3 +12016,15 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 喷了，5ch第11话评分贴的都开到第三串了
 
+
+
+*****
+
+####  adw667  
+##### 7091#       发表于 2022-10-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770715&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-5 18:49</a>
+
+青山姐拿出吉他就是为了拍这个</blockquote>
+我就知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
