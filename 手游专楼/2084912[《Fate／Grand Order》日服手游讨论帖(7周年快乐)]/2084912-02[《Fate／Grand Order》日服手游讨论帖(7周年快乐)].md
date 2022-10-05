@@ -15791,3 +15791,15 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 （那为啥选23-2不选23-3呢，后者队长肉身放宝具多震撼，还不锁助战...）
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2907#       发表于 2022-10-5 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57746020&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-10-3 18:20</a>
+
+251开之前纠结过，等新活动开最高效率本的话基本得在最后一两天内刷完105个茶壶，要命 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不打茶壶本就不会有这样的烦恼
+

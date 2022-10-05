@@ -11253,3 +11253,14 @@ ethyria周年！
 
 怎么感觉reimu的图最咸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 17534#       发表于 2022-10-5 17:39
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1h6ujtpp6cuj20zk0k0goo.jpg" referrerpolicy="no-referrer">
+
+来自莎小姐的称赞
+
