@@ -1140,3 +1140,19 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 能看英文的话红迪上倒是有大佬写了一个科技攻略了，跟着走的话应该至少不至于把科技树点歪掉：
 [https://www.reddit.com/r/TerraIn ... invasion_in_10_easy](https://www.reddit.com/r/TerraInvicta/comments/xug59w/guide_how_to_defeat_an_alien_invasion_in_10_easy)
 
+
+
+*****
+
+####  wwddrte  
+##### 109#       发表于 2022-10-5 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57771825&amp;ptid=2076238" target="_blank">萼绿华 发表于 2022-10-5 20:11</a>
+
+和群星不一样，科技完全不是随机出现的，要规划。看你玩哪派了，科技线也不一样。如果是玩比较常见的人类 ...</blockquote>
+麻烦问一下，现在25年9月，月球我原本已经造了个采矿的，现在还有两块相对比较烂的的地空着，火星发射窗口是26年10月，现在射要400天才到，那我是现在就射还是先把月球的矿占了等发射窗口再射，还有到时候在火星也是先造小基地吗？
+
+还有我刚把二级空间站科研点出来，现在要升级吗？不过不太明白优势在哪，一级空间站太小位置不够的话我看地球低轨道还有好多空着的位置啊，多射点小的还能占住位置不让别人上来
+
+还有为啥核裂变和太阳能都是产10电，太阳能还不需要燃料，核裂变主要是离太阳远了再用吗
+
