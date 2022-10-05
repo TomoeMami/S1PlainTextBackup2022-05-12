@@ -5186,3 +5186,14 @@ tlou2流程也是20H
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Kazepollar  
+##### 577#       发表于 2022-10-5 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57764537&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-5 07:52</a>
+ A9转发的PS博客战神商业互吹文章疑似出现卧龙双导演其中一人的名字</blockquote>
+在哪儿看到的
+
