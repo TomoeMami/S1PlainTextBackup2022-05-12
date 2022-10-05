@@ -4533,3 +4533,14 @@ steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  任天索尼子  
+##### 367#       发表于 2022-10-5 13:03
+
+奥克的重量真的不错 拿起来一点都不重
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

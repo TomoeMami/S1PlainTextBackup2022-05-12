@@ -11340,3 +11340,16 @@ bgm上已经4.3分了<img src="https://static.saraba1st.com/image/smiley/face201
 你tm到底是怎么理解liella的？</blockquote>
 这个文字版是在哪看的，不想看广播了
 
+
+
+*****
+
+####  Kfly  
+##### 7043#       发表于 2022-10-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57767210&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-10-5 13:00</a>
+
+这个文字版是在哪看的，不想看广播了</blockquote>
+细写的只有这一部分，这期基本都在讲第九集，也没啥好特别写出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[84期时间轴](https://www.bilibili.com/read/cv18928592)
+
