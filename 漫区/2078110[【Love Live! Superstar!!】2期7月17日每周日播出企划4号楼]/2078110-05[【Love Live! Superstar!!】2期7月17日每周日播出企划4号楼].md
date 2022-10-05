@@ -11805,3 +11805,12 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 “便是有此特点的故事”</blockquote>
 
+
+
+*****
+
+####  cybernetics31  
+##### 7071#       发表于 2022-10-5 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开剧情，作为偶像番live 和歌都没印象深的还拍啥偶像番
+
