@@ -12048,3 +12048,16 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  光宗薫  
+##### 7094#       发表于 2022-10-5 21:16
+
+[https://www.bilibili.com/video/BV15B4y1j7Zs](https://www.bilibili.com/video/BV15B4y1j7Zs)
+
+这人能在星2这一坨里挖出角色逻辑链来，挺厉害的
+
+当然不妨碍一坨还是一坨，剧情怎么理都是莫名其妙
+
