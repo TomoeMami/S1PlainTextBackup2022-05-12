@@ -7875,3 +7875,12 @@ ljl赛区还是一如既往的垃……
 
 dfm都这么努力绫总凭什么这么摆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  allenz3  
+##### 14383#       发表于 2022-10-5 09:23
+
+绫总这是向dfm学习：电竞很努力
+
