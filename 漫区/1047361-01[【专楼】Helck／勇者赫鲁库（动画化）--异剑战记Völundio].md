@@ -9044,3 +9044,14 @@ tg贴纸:
 由手机上传
 2022-10-5 20:39 上传
 
+
+
+*****
+
+####  pgain2004  
+##### 1031#       发表于 2022-10-5 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57772161&amp;ptid=1047361" target="_blank">azbhg1 发表于 2022-10-5 20:28</a>
+哪里的消息</blockquote>
+最新一话的尾页汉化声明
+

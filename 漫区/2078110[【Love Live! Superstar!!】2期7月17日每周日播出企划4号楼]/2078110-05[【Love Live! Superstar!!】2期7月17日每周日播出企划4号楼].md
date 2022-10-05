@@ -12037,3 +12037,14 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可可OP趴手和脸连着的缝线给我扯断了一条草，现在一只手摇摇欲坠
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7093#       发表于 2022-10-5 20:47
+
+我看是股东意见太多，共同造就了这种粪剧本<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
