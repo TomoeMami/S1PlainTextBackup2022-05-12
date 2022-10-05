@@ -11102,3 +11102,32 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 
 2022-10-5 11:09 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7022#       发表于 2022-10-5 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766018&amp;ptid=2078110" target="_blank">Alicest 发表于 2022-10-5 11:09</a>
+
+同样是伴舞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">别人是大爹和愉快的小伙伴们
+
+这边是大爹和各怀鬼胎的魑魅魍魉
+
+*****
+
+####  Kfly  
+##### 7023#       发表于 2022-10-5 11:16
+
+倒是想听听《POP TALKING》的solo版
+
+<img src="https://img.saraba1st.com/forum/202210/05/111636iiahbf3aabaks55h.png" referrerpolicy="no-referrer">
+
+<strong>「中字」结女课后广播电台 LieRadi! 第84期（221004）  No.10字幕组 @27-50.49 166493.png</strong> (274.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 11:16 上传
+
