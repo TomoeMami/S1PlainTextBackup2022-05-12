@@ -4683,3 +4683,19 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 以及现在的充值卡也挺贵的…我买的时候 470，现在 544 了。
 
+
+
+*****
+
+####  plumlis  
+##### 379#       发表于 2022-10-5 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57773765&amp;ptid=2086469" target="_blank">bypass 发表于 2022-10-5 21:54</a>
+
+隔天可能做不到，一周以内应该问题不大。
+
+以及现在的充值卡也挺贵的…我买的时候 470，现在 544 了。</blockquote>
+所以我新注册的号可以买充值卡吗？
+
+安全性高吗？如果有红信的问题的话我还是自己用美卡算了。
+

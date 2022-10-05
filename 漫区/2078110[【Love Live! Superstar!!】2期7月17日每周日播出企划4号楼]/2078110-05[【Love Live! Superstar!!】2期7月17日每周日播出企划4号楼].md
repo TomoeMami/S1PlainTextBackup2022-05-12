@@ -12088,3 +12088,15 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 有个问题请教，看评论区他&amp;#x4 ...</blockquote>
 我猜是那种选举制吧，c位选举啥的，竞争特别激烈的那种，不过拉拉这个选举多少差点意思，当了一次c下一次都默认轮空了，火药味不太重，而且好多年没搞过了，正经日娱那一套是真的打的头破血流，经典洗脚婢啥的
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7098#       发表于 2022-10-5 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57773876&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-5 22:02</a>
+
+我猜是那种选举制吧，c位选举啥的，竞争特别激烈的那种，不过拉拉这个选举多少差点意思，当了一次c下一次 ...</blockquote>
+选举啊，不如说现在LL基本没出什么编号单曲了（最近的就星的一单吧）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
