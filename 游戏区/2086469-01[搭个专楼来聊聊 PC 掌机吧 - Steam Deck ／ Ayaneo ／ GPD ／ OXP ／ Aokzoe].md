@@ -4495,3 +4495,30 @@ deck装windows有问题么？</blockquote>
 
 steam deck在调频率的时候，gpu要动吗？还是让机器自动分配
 
+
+
+*****
+
+####  indtability  
+##### 364#       发表于 2022-10-5 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57757189&amp;ptid=2086469" target="_blank">rossokun 发表于 2022-10-4 16:57</a>
+我一直想问来着，他们吹的前端比起playnite或者体感助手之类的到底有什么优势啊，特别是一号本全家都有实 ...</blockquote>
+热键这个方案真的很丑啊，前几天看到有人嫌弃 sd bug 多，但 bug 是能修复的，热键是真的没得救…
+
+前端和实体热键不能完全对应 sd 里的东西，很多概念都混在一块了，比如 compositor 或者 compositor + window manager，负责应用和窗口的管理和显示，在 windows 里这些都是 windows 负责，只能靠热键来调用，对我来说心理上就没法接受。
+如果要说实际功能的区别，windows 里全屏下打开什么菜单肯定会有各种各样的问题，但在 sd 上可以很简单地在游戏内容之上显示菜单，还有虽然 sd 的 wm 比较简陋，但逻辑很清晰，不同应用的窗口分别处于各自应用的子菜单下，而 windows…就是典型的windows，毕竟是一个桌面系统桌面系统桌面系统；再比如说，sd 的帧率锁同样是在 compositor 里实现的，配合自定义刷新率还挺强大的，windows 我就不知道应该怎么实现类似效果了…
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫煜  
+##### 365#       发表于 2022-10-5 12:49
+
+奥克到手好几天了，玩的还是蛮爽的。。重量我觉得不算重
+
+没遇到花屏，掉wifi，坏点之类问题。。不过看aokzoe群里面似乎不少人翻车。。。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
