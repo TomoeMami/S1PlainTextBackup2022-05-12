@@ -509,3 +509,14 @@ bd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrer
 
 哦次卡累
 
+
+
+*****
+
+####  Aachen2019  
+##### 66#       发表于 2022-10-5 19:28
+
+黑幕我
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

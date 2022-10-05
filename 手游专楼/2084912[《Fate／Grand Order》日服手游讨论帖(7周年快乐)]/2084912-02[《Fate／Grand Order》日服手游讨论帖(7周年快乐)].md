@@ -15836,3 +15836,14 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 奶奶不配获得强化本，别到时候冠位神祖开了强化本就乐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 2911#       发表于 2022-10-5 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770103&amp;ptid=2084912" target="_blank">J-002 发表于 2022-10-5 17:56</a>
+记得前两个可以用打了回血和解异常刻印的C狐单挑</blockquote>
+现在妖高应该更适合。
+
