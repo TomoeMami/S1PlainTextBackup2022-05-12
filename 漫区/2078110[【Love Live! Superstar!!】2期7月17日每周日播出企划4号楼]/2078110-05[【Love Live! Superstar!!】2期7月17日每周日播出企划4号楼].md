@@ -10990,3 +10990,36 @@ Pay有玩PS4</blockquote>
 
 热泪盈眶（我怎么看了个这玩意儿啊）<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 7013#       发表于 2022-10-5 10:54
+
+这些信动不动就“热泪盈眶”，“快哭出来了”，挺……的。不过pay看的时候一直在“啊啊啊啊啊啊啊”我是信的甚至想象出了画面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沙茶酱  
+##### 7014#       发表于 2022-10-5 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765791&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-5 10:48</a>
+
+要找这么一封信也是难为官方了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就动画而言的话，找茬的不是堇吧
+
+不过堇很喜欢可可倒是看得出来，就是有点苦恋舔狗的样子
+
+*****
+
+####  nufawneafg  
+##### 7015#       发表于 2022-10-5 10:56
+
+ 本帖最后由 nufawneafg 于 2022-10-5 10:57 编辑 
+
+标准起手式吧大概，十几年前也这样（当然不是指拉拉这边）现在但凡是个动画也这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+总不能明面喷吧
+
