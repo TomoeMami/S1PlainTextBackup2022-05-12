@@ -15959,3 +15959,15 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 油管搜了下都是120级5宝的巴姐...伊利亚...狂娜这种....打个JB
 
+
+
+*****
+
+####  里村紅葉  
+##### 2921#       发表于 2022-10-5 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57771293&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-5 19:36</a>
+
+2.3:现在我不是最丢人的那个了233</blockquote>
+2.5.2：我跟2.5.1是一起的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

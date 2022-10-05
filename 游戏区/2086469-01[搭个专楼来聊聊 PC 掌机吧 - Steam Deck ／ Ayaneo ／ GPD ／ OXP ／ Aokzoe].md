@@ -4699,3 +4699,20 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 安全性高吗？如果有红信的问题的话我还是自己用美卡算了。
 
+
+
+*****
+
+####  indtability  
+##### 380#       发表于 2022-10-5 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57773521&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-5 21:42</a>
+听你们说 deck 现在隔天现货，我昨天立马去美区预定了一个。
+
+然后现在还没收到邮件。
+
+话说淘宝想去买充值卡 ...</blockquote>
+我的说法大概有误导性，现在看来也确实不太对，valve 发邮件是在固定的周一和周四，因为发言那天刚好是周一，按照过往发货速度，本周一那波应该能赶上现在的日期才对，所以我说当晚能收到邮件，现在看来我这个想法也不太对，周一那波没有赶上当前日期，而是停在9/29，我猜 valve 并非当天才截止决定发货订单，而是提前在上一个周期决定下一次发货的订单数，所以大概要等三天到一周时间。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

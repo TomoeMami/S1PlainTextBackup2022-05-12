@@ -13828,3 +13828,12 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 所以大流士不是粉或者不来电就没必要抽，强度也一般。（不过据说有加料 ...</blockquote>
 双枪的上弹机制该去掉了
 
+
+
+*****
+
+####  madcow  
+##### 7350#       发表于 2022-10-5 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">安卓这氪金调整算是涨了还是，我看就1Wyen档的没动？
+

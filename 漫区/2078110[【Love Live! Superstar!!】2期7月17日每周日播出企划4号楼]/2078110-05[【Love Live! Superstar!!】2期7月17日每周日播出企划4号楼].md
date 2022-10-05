@@ -12100,3 +12100,12 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 我猜是那种选举制吧，c位选举啥的，竞争特别激烈的那种，不过拉拉这个选举多少差点意思，当了一次c下一次 ...</blockquote>
 选举啊，不如说现在LL基本没出什么编号单曲了（最近的就星的一单吧）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7099#       发表于 2022-10-5 22:19
+
+真奇怪，鲤鱼新单的抽选码到现在都没人卖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
