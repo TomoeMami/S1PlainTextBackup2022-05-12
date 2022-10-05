@@ -10822,3 +10822,23 @@ emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是
 
 2022-10-5 09:44 上传
 
+
+
+*****
+
+####  DarthAka  
+##### 7002#       发表于 2022-10-5 09:53
+
+妮们那么喜欢心理分析，给窝分析分析，这最后一场全开西武是出于啥心理定的
+
+*****
+
+####  nufawneafg  
+##### 7003#       发表于 2022-10-5 09:55
+
+ 本帖最后由 nufawneafg 于 2022-10-5 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765271&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-5 09:53</a>
+妮们那么喜欢心理分析，给窝分析分析，这最后一场全开西武是出于啥心理定的 ...</blockquote>
+这不简单，有钱，有合作经历，觉得自己狠np还能继续np，那就撞破头也要上呗
+人家觉得这就是场moneygame，只要我随便乱砸亏不了的
+
