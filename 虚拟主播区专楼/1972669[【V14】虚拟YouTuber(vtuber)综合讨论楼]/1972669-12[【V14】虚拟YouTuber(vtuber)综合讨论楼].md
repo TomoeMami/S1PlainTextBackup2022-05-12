@@ -11264,3 +11264,17 @@ ethyria周年！
 
 来自莎小姐的称赞
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 17535#       发表于 2022-10-5 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758834&amp;ptid=1972669" target="_blank">マドマコ 发表于 2022-10-4 19:38</a>
+
+阿菜强势回归并与前世好集美巴布太郎上演姐妹情深戏码，路人纷纷婊示好美好美的姐妹情厚💅
+
+ ...</blockquote>
+这人设感觉没啥辨识度啊，V圈相似的人设有点多了
+

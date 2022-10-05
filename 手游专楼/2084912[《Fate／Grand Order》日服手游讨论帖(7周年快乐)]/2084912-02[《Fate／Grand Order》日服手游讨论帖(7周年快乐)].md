@@ -15803,3 +15803,17 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 251开之前纠结过，等新活动开最高效率本的话基本得在最后一两天内刷完105个茶壶，要命 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不打茶壶本就不会有这样的烦恼
 
+
+
+*****
+
+####  J-002  
+##### 2908#       发表于 2022-10-5 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57769706&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-5 17:29</a>
+
+全 部 猜 错 
+
+252的高难回忆本是11-3爱玩之兽、13-2阿芙洛狄忒、23-2[队长做御主的]凯尼斯（马修 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">记得前两个可以用打了回血和解异常刻印的C狐单挑
+

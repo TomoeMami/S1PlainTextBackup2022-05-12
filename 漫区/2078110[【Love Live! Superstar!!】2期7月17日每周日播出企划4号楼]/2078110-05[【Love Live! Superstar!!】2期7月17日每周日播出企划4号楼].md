@@ -11886,3 +11886,14 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 鲤鱼车祸之后瘦了超多，到现在也没圆回来
 
+
+
+*****
+
+####  ruffian  
+##### 7080#       发表于 2022-10-5 18:00
+
+鲤鱼好瘦啊(显得头更大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
