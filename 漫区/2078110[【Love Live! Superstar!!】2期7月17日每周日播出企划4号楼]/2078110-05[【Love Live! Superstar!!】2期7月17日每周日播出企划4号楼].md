@@ -11996,3 +11996,14 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 7089#       发表于 2022-10-5 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770841&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-5 19:01</a>
+说不定根本没有剧本会议呢？搞不好星二翻车成这样，花田不仅不觉得是自己摆烂，反而会觉得他曾说过的“你要 ...</blockquote>
+剧本会议还是肯定要有的，但就结果论来说，估计是没有听取（甚至可能就没有征询）各方意见，走走过场<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

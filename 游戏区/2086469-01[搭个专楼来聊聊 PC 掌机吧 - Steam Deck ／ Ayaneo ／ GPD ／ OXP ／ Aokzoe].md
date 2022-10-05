@@ -4625,3 +4625,19 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  rossokun  
+##### 375#       发表于 2022-10-5 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57767040&amp;ptid=2086469" target="_blank">indtability 发表于 2022-10-5 12:42</a>
+热键这个方案真的很丑啊，前几天看到有人嫌弃 sd bug 多，但 bug 是能修复的，热键是真的没得救…
+
+前端 ...</blockquote>
+我还以为这是国产砖楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+能做出sd这样完整的一套当然好了，问题国产这几位加一起也没有那技术力，做出来了也就调个功耗和风扇…
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

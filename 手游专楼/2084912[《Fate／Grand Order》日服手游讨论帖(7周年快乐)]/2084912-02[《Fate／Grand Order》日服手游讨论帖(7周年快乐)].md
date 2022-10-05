@@ -15826,3 +15826,13 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没强化本 惊喜不惊喜 意外不意外（
 
+
+
+*****
+
+####  exiaexa  
+##### 2910#       发表于 2022-10-5 19:09
+
+奶奶不配获得强化本，别到时候冠位神祖开了强化本就乐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
