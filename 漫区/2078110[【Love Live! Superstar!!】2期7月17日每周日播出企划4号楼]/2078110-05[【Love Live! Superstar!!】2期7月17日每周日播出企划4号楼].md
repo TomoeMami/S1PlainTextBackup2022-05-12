@@ -10759,3 +10759,32 @@ emm，我看到个奇葩推测，op里的散发千将会在这周出现，这是
 
 还是那套说词，后悔把可可这个角色造出来可以直说让我们滚的，连自己本土的粉丝都不想哄一哄了明着搞歧视，动画组是否还记得可可是混血，噢忘了日本不待见混血，那没事了，
 
+
+
+*****
+
+####  iuhehc  
+##### 6997#       发表于 2022-10-5 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57764571&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-5 08:00</a>
+本来就是，都给你搬出维也纳这个舞台了，没理由不写</blockquote>
+惯例的除了堇没有人关心可可回国问题
+「可可帰国问题触らないの？」
+剧场版没有那等到何年何月的三期，况且在香音传里要点正面的戏份还挺奢侈的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 6998#       发表于 2022-10-5 08:13
+
+这一集的千差不多又能算是为了制造矛盾冲突而献祭角色形象的例子了，你看如果只有vn说留学的事，而其他人都默认团队first的话，是不是矛盾冲突就变小了，不好展开剧情了，那就让团里也出来一个支持香音留学的人，好了，团队内部出现矛盾分歧了，是不是这样就有剧情了，反正最后结果肯定是衬托香音怎么怎么样，还管你其他的工具人角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 6999#       发表于 2022-10-5 08:18
+
+这杂志下一期还上人不？现在上个杂志人也上不齐真是蛋疼的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
