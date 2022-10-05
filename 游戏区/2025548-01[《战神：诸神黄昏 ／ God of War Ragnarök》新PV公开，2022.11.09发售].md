@@ -5173,3 +5173,16 @@ tlou2流程也是20H
 
   A9转发的PS博客战神商业互吹文章疑似出现卧龙双导演其中一人的名字
 
+
+
+*****
+
+####  名字已被吃  
+##### 576#       发表于 2022-10-5 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57764320&amp;ptid=2025548" target="_blank">hotsmile 发表于 2022-10-5 06:31</a>
+回应20小时主线的问题，直接m级回复</blockquote>
+我觉得你应该把整个时间轴截出来，更好理解，不过怎么理解我不好说<img src="https://p.sda1.dev/7/1c4ceae19fe404cfc783bf60a7b0651e/IMG_CMP_88710810.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
