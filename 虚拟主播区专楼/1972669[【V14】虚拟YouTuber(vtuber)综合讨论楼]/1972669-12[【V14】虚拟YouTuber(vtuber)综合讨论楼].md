@@ -11288,3 +11288,14 @@ ethyria周年！
 二哥一专出榜，上周收27497
 <img src="https://p.sda1.dev/7/0cc4488207a4abf10435b9970c26a79f/IMG_20221005_192544.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 17537#       发表于 2022-10-5 20:03
+
+【歌ってみた】ブランケット - 菅原圭 covered by 明透
+
+双厨狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

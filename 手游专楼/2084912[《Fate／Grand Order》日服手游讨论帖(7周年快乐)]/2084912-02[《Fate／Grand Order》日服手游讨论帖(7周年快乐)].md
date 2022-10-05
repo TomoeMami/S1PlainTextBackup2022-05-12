@@ -15887,3 +15887,43 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 打了下凯尼斯的幕间 没马修神祖捣乱这宙斯随便虐杀啊</blockquote>
 凯尼斯的幕间不只是不锁助战，体感对宝具的抗性也降低了。不用遵循机制去先打打两个零部件减抗，用仇凛直接轰本体都能3t
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2916#       发表于 2022-10-5 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57769706&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-5 17:29</a>
+
+全 部 猜 错 
+
+252的高难回忆本是11-3爱玩之兽、13-2阿芙洛狄忒、23-2[队长做御主的]凯尼斯（马修 ...</blockquote>
+推测的几个本可能是觉得之前周年的时候复刻过，这次想来点意料之外的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 2917#       发表于 2022-10-5 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57771605&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-10-5 20:00</a>
+
+凯尼斯的幕间不只是不锁助战，体感对宝具的抗性也降低了。不用遵循机制去先打打两个零部件减抗，用仇凛直 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">血条也只有一半 但其实不太重要 主要是没有那几个权能 
+
+持有技能大地之权能 A++
+
+自身防御力提升50%(3回合)&amp;被伤害减免10,000(1回合)
+
+持有技能雷之权能 A+
+
+付与敌方单体眩晕状态(1回合)&amp;带电状态&lt;回合结束时50%概率付与周围眩晕状态(1回合)&gt;(1回合)
+
+持有技能天空之权能 A++
+
+付与自身回避状态(1回合)
+
+持有技能爱之权能 A+
+
+付与敌方全体混乱状态(3回合)&lt;每回合50%概率付与技能封印状态(1回合)&gt;&amp;弱化耐性下降50%(3回合)
+
