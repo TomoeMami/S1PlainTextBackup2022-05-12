@@ -11140,3 +11140,34 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 
 鲤鱼真是好姐姐
 
+
+
+*****
+
+####  ads147147  
+##### 7025#       发表于 2022-10-5 11:48
+
+想起那个骗哥们可以的笑话。
+
+鲤鱼安慰安慰小妹妹就好了，大姐姐就是要维护后辈的脆弱内心。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 7026#       发表于 2022-10-5 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766000&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-5 11:07</a>
+啊对对对，这波是喜欢得忘 ...</blockquote>
+其实是那天那个日子不好发感想说实话，不如说其他东西也没怎么发
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 7027#       发表于 2022-10-5 11:51
+
+实际这11话把她们都干沉默了吧，昨天线上配信的工商五人都没有转发，连点赞都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
