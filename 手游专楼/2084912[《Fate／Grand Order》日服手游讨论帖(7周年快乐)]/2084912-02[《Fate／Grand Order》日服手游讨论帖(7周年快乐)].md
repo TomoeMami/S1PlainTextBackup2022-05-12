@@ -15875,3 +15875,15 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">打了下凯尼斯的幕间 没马修神祖捣乱这宙斯随便虐杀啊 
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 2915#       发表于 2022-10-5 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57771378&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-5 19:42</a>
+
+打了下凯尼斯的幕间 没马修神祖捣乱这宙斯随便虐杀啊</blockquote>
+凯尼斯的幕间不只是不锁助战，体感对宝具的抗性也降低了。不用遵循机制去先打打两个零部件减抗，用仇凛直接轰本体都能3t
+
