@@ -9065,3 +9065,19 @@ tg贴纸:
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57772381&amp;ptid=1047361" target="_blank">O三O 发表于 2022-10-5 20:39</a></blockquote>
 原来更新了
 
+
+
+*****
+
+####  小黑鱼  
+##### 1033#       发表于 2022-10-5 21:03
+
+迟早的事，还是原汉化组负责就知足了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sandro  
+##### 1034#       发表于 2022-10-5 21:04
+
+麻痹啊，逼站漫画怎么还活着，鼠鼠烧钱还没烧够吗
+
