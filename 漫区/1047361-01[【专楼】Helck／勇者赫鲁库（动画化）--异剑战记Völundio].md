@@ -9055,3 +9055,13 @@ tg贴纸:
 哪里的消息</blockquote>
 最新一话的尾页汉化声明
 
+
+
+*****
+
+####  azbhg1  
+##### 1032#       发表于 2022-10-5 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57772381&amp;ptid=1047361" target="_blank">O三O 发表于 2022-10-5 20:39</a></blockquote>
+原来更新了
+

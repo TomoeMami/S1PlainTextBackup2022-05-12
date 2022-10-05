@@ -1165,3 +1165,19 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 原来同时研发三个科技有加成，才知道，又想重新开档了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萼绿华  
+##### 111#         楼主| 发表于 2022-10-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57772139&amp;ptid=2076238" target="_blank">wwddrte 发表于 2022-10-5 20:28</a>
+
+麻烦问一下，现在25年9月，月球我原本已经造了个采矿的，现在还有两块相对比较烂的的地空着，火星发射窗 ...</blockquote>
+1. 月球的烂地占不占影响不大，就那几个有核燃料的地点还有点价值，其他的有运力就占占，没有就算了，估算一下给火星窗口留足运力就好。然后到了新的星球肯定是先抢地盘把最好的点占上再慢慢扩建啊。
+
+2. 你玩RTS会不升本吗？二级站点就是个二本基地啊。然后地球低轨道也就有点科研加成，但是重力大浪费dv啊，意义不大，dv可是太空中最宝贵的资源。
+
+3. 你说对了，水星基地的主要爽点就是太阳能特别强。
+
