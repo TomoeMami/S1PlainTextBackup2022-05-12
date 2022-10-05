@@ -4665,3 +4665,21 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 话说淘宝想去买充值卡，不过店家听说是新号都不给充了。
 
+
+
+*****
+
+####  bypass  
+##### 378#         楼主| 发表于 2022-10-5 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57773521&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-5 21:42</a>
+
+听你们说 deck 现在隔天现货，我昨天立马去美区预定了一个。
+
+然后现在还没收到邮件。
+
+话说淘宝想去买充值卡 ...</blockquote>
+隔天可能做不到，一周以内应该问题不大。
+
+以及现在的充值卡也挺贵的…我买的时候 470，现在 544 了。
+
