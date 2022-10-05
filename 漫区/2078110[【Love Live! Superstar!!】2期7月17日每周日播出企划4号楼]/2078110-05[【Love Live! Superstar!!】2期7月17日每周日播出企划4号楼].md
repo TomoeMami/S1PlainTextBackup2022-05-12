@@ -11171,3 +11171,53 @@ pay酱和鱼一起看的第九集，还聊了不少。唉，只要做点贴贴�
 
 实际这11话把她们都干沉默了吧，昨天线上配信的工商五人都没有转发，连点赞都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 7028#       发表于 2022-10-5 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766460&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-5 11:50</a>
+
+其实是那天那个日子不好发感想说实话，不如说其他东西也没怎么发
+
+—— 来自 S1Fun ...</blockquote>
+她20号才发的合影，已经回避过了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7029#       发表于 2022-10-5 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766460&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-5 11:50</a>
+
+其实是那天那个日子不好发感想说实话，不如说其他东西也没怎么发
+
+—— 来自 S1Fun ...</blockquote>
+这个我知道，不过后来不也没补啥感想，也就几张合照而已，9集那会我看到推上有人期待鲤鱼的感想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7030#       发表于 2022-10-5 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57766018&amp;ptid=2078110" target="_blank">Alicest 发表于 2022-10-5 11:09</a>
+
+同样是伴舞</blockquote>
+人家闪的龙王（春）可是一直对自己的能力痛苦不已的（虽然这种话说出来有点难绷），她的梦想不是孤身一人做偶像，而是要和同伴们一起做偶像；
+她的“伴舞”也是有想法的，有在用实际行动证明自己能跟得上春的脚步；
+
+星这边是啥呢，毫无说服力的硬吹，你大香老师就是世界的焦点，偏偏她自己还没这个自觉
+大香老师的“伴舞”个个盼着香音主持大局。伴舞就伴舞，能当大香老师的伴舞可太荣幸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7031#       发表于 2022-10-5 11:56
+
+ 本帖最后由 iuhehc 于 2022-10-5 11:58 编辑 
+
+第9集是唯一一集和可可线粘了边的，我无视其他剧情看可堇提供素材给画师产粮还是快乐的
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
