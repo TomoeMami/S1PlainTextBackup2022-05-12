@@ -11832,3 +11832,41 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 才发现漏油在讨论的是闪耀路标是7月新番，但是在此之前我都没听说过也没见有哪讨论过。只能说拉拉的招牌真是金字招牌，哪怕星2拍成这样也有不少人看
 
+
+
+*****
+
+####  lj205  
+##### 7074#       发表于 2022-10-5 17:12
+
+25岁的可可本可<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 7075#       发表于 2022-10-5 17:14
+
+啥偶像荣耀，还有和偶像荣耀异父异母的SELECTION PROJECT，年年都不缺的……SP听说不就吃着饭就从柯纳米扎出钱来搞得么，业界谁都想试试，万一火了呢？这么一说代哥今年老头环爽得一逼，花钱浪点也正常
+
+*****
+
+####  tuna  
+##### 7076#       发表于 2022-10-5 17:17
+
+<img src="https://img.saraba1st.com/forum/202210/05/171742riemjtjndw8e0z0e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 17:17 上传
+
+让我们拭目以待吧
+
+*****
+
+####  沙茶酱  
+##### 7077#       发表于 2022-10-5 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第12集还能突破记录吗
+

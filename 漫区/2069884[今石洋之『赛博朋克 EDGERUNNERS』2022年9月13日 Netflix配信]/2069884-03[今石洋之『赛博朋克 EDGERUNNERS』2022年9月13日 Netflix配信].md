@@ -1170,3 +1170,14 @@ TRPG赛博朋克是游戏2077的原作
 
 看完了，男主这个加速+氪命的最终装备莫名像巧爷
 
+
+
+*****
+
+####  codezwei  
+##### 3092#       发表于 2022-10-5 17:19
+
+有点后劲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
