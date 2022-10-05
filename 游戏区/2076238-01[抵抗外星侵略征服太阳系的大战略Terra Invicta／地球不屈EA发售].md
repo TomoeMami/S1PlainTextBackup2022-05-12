@@ -989,3 +989,36 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 相对的Amplitude（做无尽系列和humankind那家）的UI设计一直是 ...</blockquote>
 +1，无尽系列永远都是第一盘体验超好，只是一辈子也不想打开第二盘<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  setree  
+##### 96#       发表于 2022-10-5 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有没有人知道怎么合邦（泛亚联盟，重建华约之类的）
+
+点完相应计划，附庸国和宗主国政策都没有相关选项
+
+*****
+
+####  萼绿华  
+##### 97#         楼主| 发表于 2022-10-5 10:47
+
+<blockquote>setree 发表于 2022-10-5 10:45
+有没有人知道怎么合邦（泛亚联盟，重建华约之类的）
+
+点完相应计划，附庸国和宗主国政策都没有相关选 ...</blockquote>
+很多国家合并要科技，有了科技后去国家的关系栏看具体的合并条件，比如法国要合德国就点法国关系栏中的德国国旗看。注意合并是有方向的，不能反过来合。
+
+*****
+
+####  萧观澜  
+##### 98#       发表于 2022-10-5 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57765765&amp;ptid=2076238" target="_blank">setree 发表于 2022-10-5 10:45</a>
+有没有人知道怎么合邦（泛亚联盟，重建华约之类的）
+
+点完相应计划，附庸国和宗主国政策都没有相关选 ...</blockquote>
+点到国家之后，下面的选项卡好像是选中最右侧那个界面，这个界面了中下有个关系栏，里面全是各国国旗，鼠标悬停到对应国旗上，就能看到统一的条件。
+

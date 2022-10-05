@@ -10948,3 +10948,45 @@ Pay有玩PS4
 Pay有玩PS4</blockquote>
 说过玩了project diva，还有玩过pm xy（作为术术人反而没提过半句pjsk
 
+
+
+*****
+
+####  Kfly  
+##### 7011#       发表于 2022-10-5 10:48
+
+要找这么一封信也是难为官方了啊
+
+<img src="https://img.saraba1st.com/forum/202210/05/104723ss2i1db4i4m3zpvi.png" referrerpolicy="no-referrer">
+
+<strong>「中字」结女课后广播电台 LieRadi! 第84期（221004）  No.10字幕组 @21-48.55 166493.png</strong> (224.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 10:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/05/104727l1tdhhdo11ufmndz.png" referrerpolicy="no-referrer">
+
+<strong>「中字」结女课后广播电台 LieRadi! 第84期（221004）  No.10字幕组 @21-51.75 166493.png</strong> (203.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 10:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/05/104731s0hf0cffkfekwfdf.png" referrerpolicy="no-referrer">
+
+<strong>「中字」结女课后广播电台 LieRadi! 第84期（221004）  No.10字幕组 @21-56.48 166493.png</strong> (278.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 10:47 上传
+
+*****
+
+####  nufawneafg  
+##### 7012#       发表于 2022-10-5 10:49
+
+ 本帖最后由 nufawneafg 于 2022-10-5 10:51 编辑 
+
+热泪盈眶（我怎么看了个这玩意儿啊）<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
