@@ -9091,3 +9091,12 @@ https://twitter.com/revuestarlight/status/1533764318030090240
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ardito  
+##### 710#       发表于 2022-10-5 18:33
+
+妹团pv海星。倒是武器配置为了不重复只能越来越奇葩，不如放弃挣扎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
