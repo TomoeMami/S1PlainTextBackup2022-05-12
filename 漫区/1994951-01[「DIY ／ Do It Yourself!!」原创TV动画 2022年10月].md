@@ -774,3 +774,16 @@ purin可爱
 
 还有钻头烫手的细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leleq  
+##### 66#       发表于 2022-10-6 22:25
+
+这 布丁  市之濑加那 一开口就一股败犬味 不过看剧情女主还想着 大概是有惊无险把<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+女主床头的 一堆奖杯吸引我了 第一集实在看不出女主哪方面是能拿奖的 画画？
+
+明明一股萌豚百合番的感觉 却设计了个近未来的背景?有什么用意么？
+
