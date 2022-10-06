@@ -812,3 +812,29 @@ h图都能画的这么色     画手的末日来临啦
 https://1drv.ms/u ...</blockquote>
 建议更新到顶楼并放预览图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏延  
+##### 82#       发表于 2022-10-6 22:13
+
+没看到有精调的地方，出现的都是没有三点的瑟图<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adrh  
+##### 83#       发表于 2022-10-6 22:15
+
+大佬还有吗。
+
+*****
+
+####  mahoraga  
+##### 84#         楼主| 发表于 2022-10-6 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786639&amp;ptid=2098197" target="_blank">夏延 发表于 2022-10-6 22:13</a>
+
+没看到有精调的地方，出现的都是没有三点的瑟图</blockquote>
+看我最新发在回复里的这些，都是画的很逼真的
+
