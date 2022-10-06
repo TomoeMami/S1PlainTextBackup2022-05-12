@@ -4739,3 +4739,14 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 想问问有没有奥克掌机用户刷steamos玩的
 
+
+
+*****
+
+####  riin  
+##### 383#       发表于 2022-10-6 15:36
+
+steam deck这傻大黑粗，完全没有想玩的欲望
+
+买了steam deck之后，更想玩NS了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
