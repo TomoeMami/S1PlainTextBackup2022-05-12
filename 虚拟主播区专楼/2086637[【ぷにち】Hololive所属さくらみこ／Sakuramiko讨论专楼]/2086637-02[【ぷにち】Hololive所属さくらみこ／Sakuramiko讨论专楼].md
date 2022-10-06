@@ -6319,3 +6319,27 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 七字母小屋从着火开始,到着火结束.有始有终了
 
+
+
+*****
+
+####  rs5621  
+##### 2116#       发表于 2022-10-7 00:25
+
+终于结束了
+
+<img src="https://img.saraba1st.com/forum/202210/07/002526rnqfenebfffnlngn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 00:25 上传
+
+*****
+
+####  holoan  
+##### 2117#         楼主| 发表于 2022-10-7 00:26
+
+看出来了rust她只在意两个东西，直升机和raid
+
