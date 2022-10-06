@@ -12451,3 +12451,14 @@ unya怎么还在做梦 觉得可可的戏份还没结束<img src="https://static
 
 要是放完第三话的时候，有人告诉我星团后面会烂掉，我肯定会觉得这人脑子有问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 7132#       发表于 2022-10-6 16:35
+
+可能我情商比较低吧，好奇堇到底付出啥了怎么就跟人格挂上钩了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
