@@ -813,3 +813,44 @@ purin可爱
 
 然后很在意布丁还有卷毛明明是隔壁学校的到时会怎么加入，体感黄毛也是隔壁学校的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 69#       发表于 2022-10-7 01:57
+
+女主和青梅是走传统化木工vs数字化制造两条道吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2022-10-7 02:08
+
+<img src="https://p.sda1.dev/7/d71a87f15aeabe3c0b7455979cbf7812/e7cbae74gy1h6vz6gytfrj208u0l0n2q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  宝儿  
+##### 71#       发表于 2022-10-7 03:05
+
+动画腿画的太瘦了 diy可是好事儿 真有给高中生玩这个是真的好事儿
+
+*****
+
+####  子夜微雪  
+##### 72#       发表于 2022-10-7 03:07
+
+有没有人讲解一下掉链条为什么要拧螺丝<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  根正苗红  
+##### 73#       发表于 2022-10-7 04:18
+
+ 本帖最后由 根正苗红 于 2022-10-7 04:20 编辑 
+
+挂了一墙工具就一把手枪钻，连把冲击改锥都没有，拧个螺丝还得换头。接两块板不打斜孔。看到我强迫症发作了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

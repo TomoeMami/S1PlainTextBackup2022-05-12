@@ -6407,3 +6407,15 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看水星魔女了
 
+
+
+*****
+
+####  rs5621  
+##### 2126#       发表于 2022-10-7 02:54
+
+哎？不是运动会那是啥
+不过也该办了吧，怎么都没啥消息呢
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

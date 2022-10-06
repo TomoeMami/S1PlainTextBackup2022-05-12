@@ -847,3 +847,67 @@ https://1drv.ms/u ...</blockquote>
 
 那啥，现在上P站搜NovelAI已经能找到一大堆R18了，各种风格都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四宫家印  
+##### 86#       发表于 2022-10-7 01:52
+
+mark一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  meltykiss  
+##### 87#       发表于 2022-10-7 02:09
+
+onedrive是什么辣鸡玩意,网页版根本打不开
+
+*****
+
+####  四宫家印  
+##### 88#       发表于 2022-10-7 02:10
+
+来点逼真的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  悲叹的夜想曲  
+##### 89#       发表于 2022-10-7 02:22
+
+快进到cm有ai本卖
+
+*****
+
+####  玄冥忌  
+##### 90#       发表于 2022-10-7 02:26
+
+这才是未来！
+
+—— 来自 blackshark SHARK KLE-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  mimighost  
+##### 91#       发表于 2022-10-7 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786488&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-6 22:01</a>
+
+更新一组gangbang皇图，谁说人工智障处理不来多人关系（仔细看它真的处理不来）
+
+https://1drv.ms/u ...</blockquote>
+卧槽，申鹤小姨。。。
+
+*****
+
+####  RinQ0326  
+##### 92#       发表于 2022-10-7 03:01
+
+突然间觉得dmm那些黄油的立绘就是ai的杰作了，楼上发的od链接里面很多图看上去就是dmm游戏那种廉价的立绘的风格
+
