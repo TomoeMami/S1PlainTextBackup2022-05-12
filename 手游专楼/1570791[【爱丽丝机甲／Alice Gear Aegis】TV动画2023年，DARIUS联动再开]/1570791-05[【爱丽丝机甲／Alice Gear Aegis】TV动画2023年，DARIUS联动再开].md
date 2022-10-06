@@ -13887,3 +13887,16 @@ tyijiao
 那个还好按的吧，就是前几发射完以后直接往下划，不用等出提示了再拉（？ ...</blockquote>
 然后就直接变成后step了。
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 7356#       发表于 2022-10-6 12:45
+
+ 本帖最后由 拍不到脑袋 于 2022-10-6 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57779457&amp;ptid=1570791" target="_blank">yygundam 发表于 2022-10-6 11:52</a>
+
+然后就直接变成后step了。</blockquote>
+键头触发动作的逻辑和下划侧滑派生不一样的，箭头那些都可以滑动后按住不松手，判定也很松能大幅度提前输入。或者说，输入的其实是移动指令
+
