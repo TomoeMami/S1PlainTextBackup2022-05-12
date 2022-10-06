@@ -5345,3 +5345,32 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2075#       发表于 2022-10-6 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57768834&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-10-5 16:05</a>
+
+可以看得出v圈群体还是学生为主，国庆的播放量已经回到暑假的水平，涨粉速度也是 ...</blockquote>
+结果俩人此时此刻都放大假，成功错过涨粉窗口，还不如学吉某9月回家……
+
+*****
+
+####  MaxFOrder  
+##### 2076#       发表于 2022-10-6 13:54
+
+该不会觉得住在西单的都是富贵人家吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">附近老楼和脏乱差胡同四合院多的是，拆迁可能性为零
+
+*****
+
+####  ladiesman802  
+##### 2077#       发表于 2022-10-6 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57780740&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-6 13:52</a>
+
+结果俩人此时此刻都放大假，成功错过涨粉窗口，还不如学吉某9月回家…… ...</blockquote>
+直播又不涨粉，多发视频就行了。直播涨粉还得看kino
+

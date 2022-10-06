@@ -11367,3 +11367,12 @@ pokerchase这打牌手游据说不是当年虹联动拉拔就要嗝屁了（道�
 
 <img src="https://img.saraba1st.com/forum/202210/06/133106e1y6s65msrrsz5yy.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17544#       发表于 2022-10-6 13:57
+
+3D扑克，感觉会有人毛手毛脚的想出千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
