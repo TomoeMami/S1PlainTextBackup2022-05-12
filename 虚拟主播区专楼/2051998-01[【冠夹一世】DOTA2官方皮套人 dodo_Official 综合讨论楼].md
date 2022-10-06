@@ -4133,3 +4133,17 @@ do子主要是dota水平真不太行，一旦盘中开始坐牢就观感很差�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过她说暂时一周只播一次
 
+
+
+*****
+
+####  端木恋心  
+##### 531#       发表于 2022-10-6 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57785574&amp;ptid=2051998" target="_blank">lyjssj 发表于 2022-10-6 20:36</a>
+
+不过她说暂时一周只播一次</blockquote>
+不是还说这周还有突击直播的啊。
+
+syl 欧若拉好强。
+
