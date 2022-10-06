@@ -854,3 +854,19 @@ purin可爱
 
 挂了一墙工具就一把手枪钻，连把冲击改锥都没有，拧个螺丝还得换头。接两块板不打斜孔。看到我强迫症发作了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 74#       发表于 2022-10-7 06:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57782936&amp;ptid=1994951" target="_blank">Rhantolk 发表于 2022-10-6 17:01</a>
+
+话说突然好奇后期会怎么展开，这两个学校的设计就很奇特，感觉可能会有什么对抗赛之类的？主要女二位的puri ...</blockquote>
+估计会有女主的社团和布丁的某个团体对抗
+
+搞一个什么“传统手工”VS“现代科技”的情节
+
+说实话感觉有点蠢 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

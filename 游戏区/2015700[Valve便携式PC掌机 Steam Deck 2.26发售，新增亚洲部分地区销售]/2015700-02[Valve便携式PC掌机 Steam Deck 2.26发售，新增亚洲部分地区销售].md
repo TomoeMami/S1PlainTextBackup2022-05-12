@@ -43,3 +43,16 @@
 
 The shipping will be started from the end of 2022. We will make announcement as soon as the product is ready for shipment. For more information, please check the FAQ at the bottom of the reservation site.
 
+
+
+*****
+
+####  Hanzong  
+##### 1875#       发表于 2022-10-7 06:17
+
+问两个问题，翻楼翻不动了：
+
+1.想给428加汉化，应该怎么操作啊
+
+2.现在最佳的玩模拟的方法是啥
+
