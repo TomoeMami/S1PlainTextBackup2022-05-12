@@ -391,3 +391,12 @@ Steam页面：[https://store.steampowered.com/app/1938010/WILD_HEARTS/](https://
 
 这是之前吹的500w新ip吗？
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 252#       发表于 2022-10-6 10:19
+
+演示里的三号玩家用的是卜字拐有点骚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
