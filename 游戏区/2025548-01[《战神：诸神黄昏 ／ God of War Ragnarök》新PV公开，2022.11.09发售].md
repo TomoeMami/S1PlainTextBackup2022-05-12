@@ -5226,3 +5226,12 @@ CORY可能这次真不一定知道多久，但他知道的应该比所谓的insi
 
 cory可是本作的创意总监，怎么可能不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  性兽阿怪  
+##### 581#       发表于 2022-10-6 17:02
+
+Cory这么说更吓人了，MD前代还欠个DLC不说，续作就开始整活了是吧
+
