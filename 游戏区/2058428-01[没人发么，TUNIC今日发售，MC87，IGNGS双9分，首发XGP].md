@@ -803,3 +803,15 @@ boss全身模型都有物理判定而不是2d游戏标准的脚下圆圈，所�
 挺好玩的，传统萨尔达的玩法+魂味的地图设计，福瑞林可</blockquote>
 游戏氛围塑造得挺好的，就是东西和道路藏的太深，找到了就柳暗花明，没找到就和<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">一样难受。
 
+
+
+*****
+
+####  wolfwood  
+##### 85#       发表于 2022-10-6 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57783360&amp;ptid=2058428" target="_blank">莫名奇妙封ID 发表于 2022-10-6 17:34</a>
+
+游戏氛围塑造得挺好的，就是东西和道路藏的太深，找到了就柳暗花明，没找到就和一样难受。 ...</blockquote>
+打到后面实在打不过了，只能开了内置的无敌模式，专心解谜，这个小册子引导真是神来之笔，沉浸感巨强，制作者甚至还专门发明了狐狸语言，今年最牛逼独立游戏了吧
+

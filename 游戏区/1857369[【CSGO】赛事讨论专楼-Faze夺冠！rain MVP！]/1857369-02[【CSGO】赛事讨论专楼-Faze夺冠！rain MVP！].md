@@ -9152,3 +9152,22 @@ ESL简直nt，之前下半年在丹麦办epl不都挺好的吗，结果马耳他
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  曼陀罗肥  
+##### 2581#       发表于 2022-10-6 13:07
+
+g2小蜜蜂，要起飞就一起起飞，要拉跨就一起拉跨，真搞不懂这两队为什么同步性这么强。
+
+*****
+
+####  朔方原的星  
+##### 2582#         楼主| 发表于 2022-10-6 18:19
+
+A队被bne16-3爆锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，乏力哥0.16快略磨了
+好输，快点滚蛋快换血吧，这一年多a队都不知道在摆什么烂呢搁这
+
+device回去真别坐牢吧
+
