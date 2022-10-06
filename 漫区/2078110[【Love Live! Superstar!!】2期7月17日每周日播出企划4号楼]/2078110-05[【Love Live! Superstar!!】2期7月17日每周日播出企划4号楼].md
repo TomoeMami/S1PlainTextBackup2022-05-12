@@ -12273,3 +12273,33 @@ TVアニメ「ラブライブ！スーパースター!!」2期
 [https://twitter.com/KISAYU_/status/1577697590984183808](https://twitter.com/KISAYU_/status/1577697590984183808)
 <img src="https://p.sda1.dev/7/5c7bd243749240a07fa9a0728f6caa6b/20221006_105014.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 7117#       发表于 2022-10-6 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NICO把第十一集免费了
+
+*****
+
+####  ViyViy  
+##### 7118#       发表于 2022-10-6 11:47
+
+这是什么行为艺术，喊冤呢是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7119#       发表于 2022-10-6 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有点巨魔了
+
+*****
+
+####  稀勢のささ  
+##### 7120#       发表于 2022-10-6 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“可能有人好奇到底有多烂 给你们看看”
+

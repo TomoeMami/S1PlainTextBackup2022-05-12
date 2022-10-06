@@ -196,3 +196,12 @@ OP反复听了三遍，ED直接静音
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PV画面大部分是OP画面啊
 
+
+
+*****
+
+####  禦厨三九二  
+##### 1811#       发表于 2022-10-6 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实二季这个ED还行的，就是一季OP确实不太搭
+
