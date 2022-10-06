@@ -12770,3 +12770,35 @@ Screenshot_20221006_222658.jpg
 
 日本cos衣服本来就贵，好像很多人都用马爸爸买
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7155#       发表于 2022-10-6 23:14
+
+ 本帖最后由 稀勢のささ 于 2022-10-6 23:15 编辑 
+<blockquote>2期6话「実力差あったけど合宿で加入したての1年がセンターやれるレベルまでなったぞ」
+
+2期7话「実力差も夏休みで追いついたかもしれないからみんなでゲームするぞ」
+
+2期8话「1年生出てYOSAKOI踊って軽く予选突破したぞ」
+
+2期9话「1年生は足手まといだぞ」
+
+2期10话「1年生も出して楽しく胜つぞ」
+
+2期11话「胜ったけど…すまん、かのん以外雑鱼だったわ…」1年生の努力とか练习メニューとかダンスとか衣装とか谁がセンターとか歌える1人じゃないからとか全部いらなかった
+かのんが1人で歌えばそれで世界一だ</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">５厕还在车  根本停不下来
+
+*****
+
+####  Kfly  
+##### 7156#       发表于 2022-10-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57787418&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-6 23:14</a>
+
+５厕还在车  根本停不下来</blockquote>
+问题多到一定程度是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
