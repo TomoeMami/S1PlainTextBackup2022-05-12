@@ -411,3 +411,22 @@ Steam页面：[https://store.steampowered.com/app/1938010/WILD_HEARTS/](https://
 
 不过单人节奏应该是不咋地了，至少不可能和怪猎去比了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sandro  
+##### 254#       发表于 2022-10-6 11:12
+
+花里胡哨的，凭ea和无双组他们整得明白吗，不看好啊
+
+*****
+
+####  sandro  
+##### 255#       发表于 2022-10-6 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57777472&amp;ptid=2092050" target="_blank">土狼菌 发表于 2022-10-6 08:18</a>
+
+这是之前吹的500w新ip吗？</blockquote>
+500w是那个幕末吧
+

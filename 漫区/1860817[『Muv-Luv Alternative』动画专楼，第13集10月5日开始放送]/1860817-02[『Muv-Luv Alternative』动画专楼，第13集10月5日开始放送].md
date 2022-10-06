@@ -187,3 +187,12 @@ extra香月摸白银腹肌的时候，有种《你所期望的真爱》的错觉
 OP反复听了三遍，ED直接静音
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到男主两边世界被老师埋胸，突然想起来最近夏日重现男主跟武爷的事差不多，都是轮回救世主。
 
+
+
+*****
+
+####  禦厨三九二  
+##### 1810#       发表于 2022-10-6 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PV画面大部分是OP画面啊
+
