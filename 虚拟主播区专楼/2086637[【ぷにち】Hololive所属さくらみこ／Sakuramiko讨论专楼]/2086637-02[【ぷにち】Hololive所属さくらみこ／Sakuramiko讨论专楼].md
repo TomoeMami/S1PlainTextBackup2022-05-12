@@ -6209,3 +6209,14 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 またあしたな！！！！！！！！！！！（定型文）</blockquote>笑死
 
+
+
+*****
+
+####  holoan  
+##### 2106#         楼主| 发表于 2022-10-6 17:47
+
+今晚rust大概率无了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
