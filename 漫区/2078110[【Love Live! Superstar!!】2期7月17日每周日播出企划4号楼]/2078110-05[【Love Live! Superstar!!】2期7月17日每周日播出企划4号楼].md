@@ -12569,3 +12569,38 @@ https://www.lovelive-anime.jp/news/01_1159.html</blockquote>
 
 倒是还行，总比子供向天线宝宝风格要激发人的荷尔蒙8
 
+
+
+*****
+
+####  player3960  
+##### 7143#       发表于 2022-10-6 17:54
+
+谷子个个都很潮，打歌服又全是健全低幼风格，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 7144#       发表于 2022-10-6 17:55
+
+<img src="https://img.saraba1st.com/forum/202210/06/175326px6zsku4s6xzfbft.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221006175009.jpg</strong> (2.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 17:53 上传
+
+草啊啥啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">点进去发现是这集二年级怼堇那里千问可的桥段的吐槽，但就十几条也能挂在关联第二位吗
+
+*****
+
+####  ruffian  
+##### 7145#       发表于 2022-10-6 17:57
+
+反正除了四季那个，其他大胆点能直接当常服穿，没到coser穿不出去的地步
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
