@@ -11376,3 +11376,17 @@ pokerchase这打牌手游据说不是当年虹联动拉拔就要嗝屁了（道�
 
 3D扑克，感觉会有人毛手毛脚的想出千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdhai  
+##### 17545#       发表于 2022-10-6 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775246&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-10-5 23:39</a>
+
+草，这两位见面了啊
+
+小熊猫:トワ様と裸の付き合いしてきた♨️</blockquote>
+贴贴捏
+
