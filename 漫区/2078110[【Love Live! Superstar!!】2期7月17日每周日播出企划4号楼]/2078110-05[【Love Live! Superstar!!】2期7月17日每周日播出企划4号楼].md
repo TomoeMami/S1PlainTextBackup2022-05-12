@@ -12405,3 +12405,14 @@ unya怎么还在做梦 觉得可可的戏份还没结束<img src="https://static
 
 付出型人格很容易转成牺牲型，再往下角色的行为就很容易让观众产生剧烈的道德负罪感，我觉得是很危险的角色塑造法。
 
+
+
+*****
+
+####  starring  
+##### 7130#       发表于 2022-10-6 16:06
+
+ 本帖最后由 starring 于 2022-10-6 16:08 编辑 
+
+堇表现出来就是偏执和斯德哥尔摩综合征，谁还说堇是唯一正常人出来溜两圈，剧里9+1人就没有正常人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
