@@ -12462,3 +12462,13 @@ unya怎么还在做梦 觉得可可的戏份还没结束<img src="https://static
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 7133#       发表于 2022-10-6 16:46
+
+[https://www.lovelive-anime.jp/news/01_1159.html](https://www.lovelive-anime.jp/news/01_1159.html)
+<img src="https://p.sda1.dev/7/2454c39509aeafb9e5b9253f5f055cf7/メイン.jpeg" referrerpolicy="no-referrer">
+

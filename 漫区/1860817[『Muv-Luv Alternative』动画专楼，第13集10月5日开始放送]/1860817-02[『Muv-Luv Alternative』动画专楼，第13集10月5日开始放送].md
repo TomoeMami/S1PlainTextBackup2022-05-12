@@ -253,3 +253,17 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 吃设定是说OP标题那里那群鸟吧？hive周围本应寸草不生不可能有生物
 不过从OP后面的那两只鸟来看，这里出现的鸟应该都是一种抽象化的表达吧
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1817#       发表于 2022-10-6 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57782464&amp;ptid=1860817" target="_blank">hlazd 发表于 2022-10-6 16:22</a>
+
+吃设定是说OP标题那里那群鸟吧？hive周围本应寸草不生不可能有生物
+
+不过从OP后面的那两只鸟来看，这里出 ...</blockquote>
+是这个道理，包括不知火联队的高飞和俯冲
+
