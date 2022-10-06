@@ -56,3 +56,20 @@ The shipping will be started from the end of 2022. We will make announcement as 
 
 2.现在最佳的玩模拟的方法是啥
 
+
+
+*****
+
+####  nozomitech  
+##### 1876#       发表于 2022-10-7 06:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789202&amp;ptid=2015700" target="_blank">Hanzong 发表于 2022-10-6 23:17</a>
+问两个问题，翻楼翻不动了：
+
+1.想给428加汉化，应该怎么操作啊
+
+2.现在最佳的玩模拟的方法是啥3.好像看有老 ...</blockquote>
+最简单的方法就是电脑端下好游戏打好补丁，SD这里同样下好游戏未打补丁，然后用U盘把电脑上整个游戏覆盖回去。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

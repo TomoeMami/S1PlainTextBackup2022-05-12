@@ -870,3 +870,12 @@ purin可爱
 
 说实话感觉有点蠢 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  藤宮はすみ  
+##### 75#       发表于 2022-10-7 06:47
+
+前面楼里漫画的画风看起来不错，这个动画的作画看起来非常的平面
+
