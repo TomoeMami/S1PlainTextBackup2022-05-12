@@ -12822,3 +12822,50 @@ Screenshot_20221006_222658.jpg
 
 但是没三期 星的故事以这种形式结束 那更惨了啊
 
+
+
+*****
+
+####  Kfly  
+##### 7159#       发表于 2022-10-6 23:34
+
+<img src="https://img.saraba1st.com/forum/202210/06/233404smy00m4x8rq79tyy.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-7jjlK2pT1kSes-sg.jpg</strong> (101 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 23:34 上传
+
+ <blockquote>SHIBUYA SKY（「始まりは君の空」动画MV舞台原型） ​​​</blockquote>
+不过就算真是始空，也还是有出三期动画但不出三期生/出三期动画并出三期生的可能吧？
+毕竟前天的杂志访谈它们可是拿虹来参考的
+
+*****
+
+####  aoaoaodedede  
+##### 7160#       发表于 2022-10-6 23:36
+
+第一季动画5个人写不好，第二季动画9人了，写的更烂了，如果还有第三季动画，那不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人越多，剧情戏份端水就更加不易，星这动画还属于人少就端水稀烂的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正只要他们写出这个剧情，搞出这个动画的人觉得没有什么问题，那么咱们认为的那些问题恐怕难以被解决<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7161#       发表于 2022-10-6 23:40
+
+拿虹出来参考不更显得没有b数了，一切皆有可能吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">wakuwaku
+
+*****
+
+####  Kfly  
+##### 7162#       发表于 2022-10-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57787683&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-6 23:36</a>
+
+第一季动画5个人写不好，第&amp;#x ...</blockquote>
+要真有三期动画，在这两季层层“铺垫”的情况下，就别想无功无过地平安度过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

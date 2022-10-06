@@ -1277,3 +1277,17 @@ Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生
 由手机上传
 2022-10-6 19:00 上传
 
+
+
+*****
+
+####  新月祥  
+##### 3099#       发表于 2022-10-6 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57754434&amp;ptid=2069884" target="_blank">Quiet_ 发表于 2022-10-4 12:08</a>
+
+绝大多数tv动画是经不起婆罗门的挑剔眼光审视的。
+
+拿经典作品特别是其他领域的作品拉踩这个很正常，但这 ...</blockquote>
+谁把那张讨论表番和讨论里番的对比图发一下
+
