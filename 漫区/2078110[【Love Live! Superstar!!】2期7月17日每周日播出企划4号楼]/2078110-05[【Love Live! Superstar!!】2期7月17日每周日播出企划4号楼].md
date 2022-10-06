@@ -12604,3 +12604,24 @@ https://www.lovelive-anime.jp/news/01_1159.html</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 7146#       发表于 2022-10-6 18:25
+
+这套衣服好像就可可是上下衣都有不对称的要素，设计人小九九突出自己是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 7147#       发表于 2022-10-6 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57783615&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-6 17:54</a>
+
+谷子个个都很潮，打歌服又全是健全低幼风格，
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+那我宁愿打歌服潮一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
