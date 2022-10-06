@@ -12993,3 +12993,16 @@ Screenshot_20221006_222658.jpg
 
 什么社会实验动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7177#       发表于 2022-10-7 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786998&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-6 22:41</a>
+逛五厕的鱼楼看有人说鲤鱼那件亚总的cos服要28万日元，我就去那个转推鲤鱼cos的服装网址看了下，该说不愧是 ...</blockquote>
+说起来为什么cospa的香音还是裤袜版，这个企划到底能不能把人设弄清楚了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
