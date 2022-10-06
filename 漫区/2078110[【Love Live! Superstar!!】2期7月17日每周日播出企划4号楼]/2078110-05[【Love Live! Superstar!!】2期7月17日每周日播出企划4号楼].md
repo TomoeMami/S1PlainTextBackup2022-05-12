@@ -12961,3 +12961,35 @@ Screenshot_20221006_222658.jpg
 别的歌做得到吗.摊手.jpg
 后面在广播里吹一次就算了生放也没放过，真的太棒了
 
+
+
+*****
+
+####  ViyViy  
+##### 7173#       发表于 2022-10-7 00:53
+
+你有种非虚构加人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7174#       发表于 2022-10-7 00:56
+
+那不如直接9人小星星全砸了得了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7175#       发表于 2022-10-7 00:57
+
+赶紧把每个曲子都补到9人，到时候还得补到12人再卖一次呢
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 7176#       发表于 2022-10-7 00:58
+
+什么社会实验动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
