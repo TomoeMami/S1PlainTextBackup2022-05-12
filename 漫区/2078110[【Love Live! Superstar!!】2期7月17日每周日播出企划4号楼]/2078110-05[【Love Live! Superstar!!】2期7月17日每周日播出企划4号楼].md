@@ -13006,3 +13006,12 @@ Screenshot_20221006_222658.jpg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nufawneafg  
+##### 7178#       发表于 2022-10-7 01:13
+
+都说是高达了，有配件还是挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
