@@ -12231,3 +12231,45 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 打钱当小丑，是斯德哥尔摩综合症<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 7114#       发表于 2022-10-6 10:49
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+オリジナルサウンドトラック
+
+「Twinkle of the Superstar」
+
+特別パート
+
+「リエラのうた2」
+
+それぞれのジャケットが完成しました
+
+どちらも10/26(水)発売です♪
+
+店舗特典デザインも公開
+[https://www.lovelive-anime.jp/news/01_1149.html](https://www.lovelive-anime.jp/news/01_1149.html)
+<img src="https://p.sda1.dev/7/6c41ebe5e111c55e106c2a14d88f93c2/20221006_104813.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ede831f0c2ff1a98583c868b89e0e873/20221006_104815.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7115#       发表于 2022-10-6 10:50
+
+<img src="https://p.sda1.dev/7/abcddced546f0b36921c30bda872413a/yande.re 1026778 love_live!_superstar!! tagme yoneme_mei.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/412c56db5bfcb0a4b7b387ee0b1c72e6/yande.re 1026779 arashi_chisato love_live!_superstar!! seifuku shishizaru yoneme_mei.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7116#       发表于 2022-10-6 10:50
+
+[https://twitter.com/KISAYU_/status/1577697590984183808](https://twitter.com/KISAYU_/status/1577697590984183808)
+<img src="https://p.sda1.dev/7/5c7bd243749240a07fa9a0728f6caa6b/20221006_105014.jpg" referrerpolicy="no-referrer">
+
