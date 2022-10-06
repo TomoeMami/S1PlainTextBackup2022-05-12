@@ -787,3 +787,16 @@ purin可爱
 
 明明一股萌豚百合番的感觉 却设计了个近未来的背景?有什么用意么？
 
+
+
+*****
+
+####  海底铁锚  
+##### 67#       发表于 2022-10-6 23:00
+
+布丁 深夜在努力学习CAD
+小子 白天在做手艺活
+大家都有美好的未来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好像都是DIY
+
+取钻头的细节不错，好评。
+

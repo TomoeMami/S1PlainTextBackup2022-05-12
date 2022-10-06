@@ -12749,3 +12749,15 @@ Screenshot_20221006_222658.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 [露一手给薇恩看看](https://www.bilibili.com/video/BV1hT411P7NR)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7153#       发表于 2022-10-6 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786998&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-6 22:41</a>
+
+逛五厕的鱼楼看有人说鲤鱼那件亚总的cos服要28万日元，我就去那个转推鲤鱼cos的服装网址看了下，该说不愧是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">虽然知道cospa的衣服都很贵但这也太贵了
+

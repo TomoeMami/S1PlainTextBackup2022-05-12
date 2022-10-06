@@ -13920,3 +13920,15 @@ tyijiao
 
 黑皮高个子异色瞳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LEOKO~  
+##### 7359#       发表于 2022-10-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57780088&amp;ptid=1570791" target="_blank">拍不到脑袋 发表于 2022-10-6 12:45</a>
+
+键头触发动作的逻辑和下划侧滑派生不一样的，箭头那些都可以滑动后按住不松手，判定也很松能大幅度提前输 ...</blockquote>
+然后就直接变成后step了。
+
