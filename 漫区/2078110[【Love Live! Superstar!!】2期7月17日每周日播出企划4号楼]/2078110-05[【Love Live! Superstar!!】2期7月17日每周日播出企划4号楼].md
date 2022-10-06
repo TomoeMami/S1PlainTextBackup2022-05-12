@@ -13015,3 +13015,17 @@ Screenshot_20221006_222658.jpg
 
 都说是高达了，有配件还是挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 7179#       发表于 2022-10-7 01:28
+
+ 本帖最后由 iuhehc 于 2022-10-7 01:31 编辑 
+
+一期碟9人唱完、oped给安排上，始空也逃不掉吧，从fmt9个人嘟嘟嘟再到交响曲，我看他们什么都干的出来这样不算贷款吃shit了
+
+syl三巡前公式油管可能没一首二期曲到百万
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
