@@ -400,3 +400,14 @@ Steam页面：[https://store.steampowered.com/app/1938010/WILD_HEARTS/](https://
 
 演示里的三号玩家用的是卜字拐有点骚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死神香蕉  
+##### 253#       发表于 2022-10-6 10:31
+
+之所以是机关而不是道具就是为了多人玩吧。说起来演示里有个用过的竹蜻蜓飘下来的片段，不知道其他人能不能接住，感觉会挺快乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过单人节奏应该是不咋地了，至少不可能和怪猎去比了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
