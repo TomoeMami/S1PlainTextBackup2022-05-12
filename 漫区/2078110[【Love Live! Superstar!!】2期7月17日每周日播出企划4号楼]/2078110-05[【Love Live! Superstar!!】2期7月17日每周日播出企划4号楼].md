@@ -12701,3 +12701,41 @@ twi:@unyanai
 
 鲤鱼这G店预约已经是第二批次了，貌似直接连唠嗑抽选都没机会参加
 
+
+
+*****
+
+####  player3960  
+##### 7151#       发表于 2022-10-6 22:41
+
+逛五厕的鱼楼看有人说鲤鱼那件亚总的cos服要28万日元，我就去那个转推鲤鱼cos的服装网址看了下，该说不愧是官方cos，服装不能马虎。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便看了下结丘校服的价格<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+Screenshot_20221006_221753.jpg
+(344.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/223013x448kvtkd26rdk0v.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20221006_222642.jpg
+(234.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 22:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/223204q2e28hh4hhv74iv9.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20221006_222658.jpg
+(234.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 22:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/223209kuyyluyvse6lellv.jpg" referrerpolicy="no-referrer">
+
