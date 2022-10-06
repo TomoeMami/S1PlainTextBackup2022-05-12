@@ -765,3 +765,12 @@ purin可爱
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lyz1196  
+##### 65#       发表于 2022-10-6 22:11
+
+还有钻头烫手的细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
