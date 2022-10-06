@@ -800,3 +800,16 @@ purin可爱
 
 取钻头的细节不错，好评。
 
+
+
+*****
+
+####  Totokei  
+##### 68#       发表于 2022-10-6 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看完了，节奏确实有点慢有点调动不了情绪
+
+せるふ可爱，开播前以为是普通元气假小子没想到是邦邦的摩卡那种慢悠悠的性格
+
+然后很在意布丁还有卷毛明明是隔壁学校的到时会怎么加入，体感黄毛也是隔壁学校的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

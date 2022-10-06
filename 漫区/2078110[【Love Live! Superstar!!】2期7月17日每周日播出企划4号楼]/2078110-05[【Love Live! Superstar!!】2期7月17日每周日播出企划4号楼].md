@@ -12761,3 +12761,12 @@ Screenshot_20221006_222658.jpg
 逛五厕的鱼楼看有人说鲤鱼那件亚总的cos服要28万日元，我就去那个转推鲤鱼cos的服装网址看了下，该说不愧是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">虽然知道cospa的衣服都很贵但这也太贵了
 
+
+
+*****
+
+####  lj205  
+##### 7154#       发表于 2022-10-6 23:05
+
+日本cos衣服本来就贵，好像很多人都用马爸爸买
+

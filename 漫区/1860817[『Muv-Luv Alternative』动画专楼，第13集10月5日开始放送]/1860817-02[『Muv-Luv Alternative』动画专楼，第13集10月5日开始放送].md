@@ -276,3 +276,14 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 只要老年团唱起来，一切都会好起来的（元首兴奋脸）<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1819#       发表于 2022-10-6 23:08
+
+出现了原作BGM《宿命》好耶<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
