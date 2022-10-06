@@ -736,3 +736,14 @@ h图都能画的这么色     画手的末日来临啦
 
 还好我的xp更倾向于3d图，AI出产的3d图看来还不多
 
+
+
+*****
+
+####  afer  
+##### 75#       发表于 2022-10-6 10:04
+
+马克
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
