@@ -6255,3 +6255,14 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">来咯
 
+
+
+*****
+
+####  rs5621  
+##### 2110#       发表于 2022-10-6 21:18
+
+这谁的家这么多资源
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
