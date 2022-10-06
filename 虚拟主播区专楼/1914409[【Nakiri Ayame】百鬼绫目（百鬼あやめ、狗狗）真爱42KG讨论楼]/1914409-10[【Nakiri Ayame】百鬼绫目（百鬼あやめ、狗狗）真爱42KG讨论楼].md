@@ -7915,3 +7915,14 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 韭菜是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寺川愛美  
+##### 14387#       发表于 2022-10-7 00:14
+
+[https://twitter.com/takanashikiara/status/1576988528889987072](https://twitter.com/takanashikiara/status/1576988528889987072)
+
+惊了
+
