@@ -4716,3 +4716,17 @@ ps3的话就比较吃力了，基本也就玩玩og2
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  传说中的天才  
+##### 381#       发表于 2022-10-6 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57770644&amp;ptid=2086469" target="_blank">那由 发表于 2022-10-5 18:42</a>
+
+我在用ChimeraOSv35的时候出现proton库没办法下载的问题，于是转用了HOLOISO，整套的steamdeck体验还是很 ...</blockquote>
+自己的Steam Deck到了美国朋友那里一直懒得折腾，感觉Chimera OS也挺好用的...之前有问题都可以Discord和开发者直接聊，正好定了机器再等一个月应该v36也出了
+
+未来看看Steam Deck有多强再看看这些掌机的系统怎么搞。
+
