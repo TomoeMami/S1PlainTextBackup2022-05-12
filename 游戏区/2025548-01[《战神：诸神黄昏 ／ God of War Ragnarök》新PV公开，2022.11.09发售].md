@@ -5253,3 +5253,14 @@ Cory这么说更吓人了，MD前代还欠个DLC不说，续作就开始整活�
 
 主线20小时，实际上普通玩家估计要30小时才能通关吧，感觉对ACT来说可以了。
 
+
+
+*****
+
+####  adslnet0519  
+##### 584#       发表于 2022-10-6 19:12
+
+只希望是个make 老父亲 great again的故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS52, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
