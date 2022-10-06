@@ -12637,3 +12637,58 @@ https://www.lovelive-anime.jp/news/01_1159.html</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 7149#       发表于 2022-10-6 20:29
+
+“对不起，又不小心聊到学院偶像了………”
+
+“你是故意的吧？”
+
+<img src="https://img.saraba1st.com/forum/202210/06/202728j91kgcqms9osc7n2.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-jqwxZfT3cScu-11t.jpg</strong> (160.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 20:27 上传
+
+作者：北原朋萌
+
+终于、连薇恩也惨遭毒手………
+
+<img src="https://img.saraba1st.com/forum/202210/06/202805gdmpdp9f6mf99iii.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-e55aZkT3cSh7-1eq.jpg</strong> (216.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 20:28 上传
+
+twi:@co2death
+
+“别只是看着，你也来做衣服吧！”
+
+<img src="https://img.saraba1st.com/forum/202210/06/202808qsdose23esen6do2.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-67xkZdT1kSgo-nj.jpg</strong> (132.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 20:28 上传
+
+最开始：
+
+<img src="https://img.saraba1st.com/forum/202210/06/202811n2n6plpz6oe3ipph.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ183-8phsZfT1kSgo-nj.jpg</strong> (153.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 20:28 上传
+
+twi:@unyanai
+
