@@ -11299,3 +11299,42 @@ ethyria周年！
 
 双厨狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 17538#       发表于 2022-10-5 23:28
+
+整理资源的时候才发现，虹这次fes居然给每个人都设了专用机位，要专用机位还得加2000日元，真的有想法
+
+*****
+
+####  FCCHua  
+##### 17539#       发表于 2022-10-5 23:39
+
+ 本帖最后由 FCCHua 于 2022-10-5 23:41 编辑 
+
+草，这两位见面了啊
+小熊猫:トワ様と裸の付き合いしてきた♨️
+
+*****
+
+####  noHentai  
+##### 17540#       发表于 2022-10-6 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775109&amp;ptid=1972669" target="_blank">free 发表于 2022-10-5 23:28</a>
+
+整理资源的时候才发现，虹这次fes居然给每个人都设了专用机位，要专用机位还得加2000日元，真的有想法 ...</blockquote>
+之前就有了，都是别人玩剩下的
+
+*****
+
+####  星野航  
+##### 17541#       发表于 2022-10-6 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775109&amp;ptid=1972669" target="_blank">free 发表于 2022-10-6 00:28</a>
+
+整理资源的时候才发现，虹这次fes居然给每个人都设了专用机位，要专用机位还得加2000日元，真的有想法 ...</blockquote>
+不是新玩法了，但不得不说效果确实可以，至少比虹现在还在用的那套摄像机拍屏幕强出一个维度，就是视角有点近，技术还是不够娴熟
+

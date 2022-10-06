@@ -5206,3 +5206,23 @@ tlou2流程也是20H
 
 这位吧<blockquote>– 忍者组 《仁王》战斗设计师 西浩之</blockquote>
 
+
+
+*****
+
+####  clover293  
+##### 579#       发表于 2022-10-6 01:02
+
+CORY可能这次真不一定知道多久，但他知道的应该比所谓的insider多？
+
+哪个彩虹屁文章除了自己的工作室，还有消光2和我们徳田优也<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过马上一个月时间了，按理说preview应该要出了。不知道这次国内有没有去的
+
+*****
+
+####  ff2077  
+##### 580#       发表于 2022-10-6 01:18
+
+cory可是本作的创意总监，怎么可能不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

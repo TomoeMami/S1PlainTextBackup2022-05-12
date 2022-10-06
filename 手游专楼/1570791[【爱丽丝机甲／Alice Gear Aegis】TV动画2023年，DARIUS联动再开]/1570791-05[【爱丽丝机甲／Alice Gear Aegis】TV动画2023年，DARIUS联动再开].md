@@ -13837,3 +13837,29 @@ an素组<img src="https://p.sda1.dev/7/d94dd4303016032ac07f2433b3b96b3c/CMP_2022
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">安卓这氪金调整算是涨了还是，我看就1Wyen档的没动？
 
+
+
+*****
+
+####  delphinian  
+##### 7351#       发表于 2022-10-5 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57774303&amp;ptid=1570791" target="_blank">madcow 发表于 2022-10-5 22:30</a>
+
+安卓这氪金调整算是涨了还是，我看就1Wyen档的没动？</blockquote>
+单价基本没有区别，就是各个档位做了调整，主要是取消了10钻档位
+
+*****
+
+####  yygundam  
+##### 7352#       发表于 2022-10-6 00:01
+
+那个上弹我在手机上完全没按出来过，看人说似乎PC版很好按的样子，不过我玩PC版的朋友说他也按不出（
+
+*****
+
+####  江戸前ルナ  
+##### 7353#       发表于 2022-10-6 00:28
+
+tyijiao
+

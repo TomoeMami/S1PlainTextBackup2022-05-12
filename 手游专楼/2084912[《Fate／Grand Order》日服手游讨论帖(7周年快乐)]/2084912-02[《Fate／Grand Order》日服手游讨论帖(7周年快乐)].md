@@ -15971,3 +15971,34 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 2.3:现在我不是最丢人的那个了233</blockquote>
 2.5.2：我跟2.5.1是一起的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 2922#       发表于 2022-10-5 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">对我来说251起码有8分 252只有负分 这俩混在一起我是不能接受的
+
+
+
+*****
+
+####  quanlix  
+##### 2923#       发表于 2022-10-6 01:29
+
+用自家的120陈宫3T干翻了超级加倍的美神，放花真带劲
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  新吾  
+##### 2924#       发表于 2022-10-6 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">昨天心血来潮看了下两个幕间，写的啥玩意儿啊。
+
+双子座：把妹妹跟哥哥切割了，哥哥在妹妹面前是个对任何人都满怀恶意的深井冰，妹妹好歹算个正常人。
+
+罗马：樱井光后遗症（第一部第二章）今天也在发作，扯到罗马就一定会有布妈，扯到布妈就一定会有复仇，但你特么又不敢写复仇成功也不敢写放下仇恨，就空降了个同样痛恨罗马的人出来当共同敌人，然后一而再再而三强调布妈会在master面前跟罗马暂时合作，不知道的还以为是布妈幕间复刻+复刻呢，这玩意儿没九次你游剧本家也提了八次了吧。
+

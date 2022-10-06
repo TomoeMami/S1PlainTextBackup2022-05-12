@@ -12109,3 +12109,125 @@ VN的那一垫就是想告诉观众星的一切都是在垫给香哥哥那一刻
 
 真奇怪，鲤鱼新单的抽选码到现在都没人卖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 7100#       发表于 2022-10-5 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/05/224828xa889addza0d0sa9.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-10-05 224822.png</strong> (14.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 22:48 上传
+
+*****
+
+####  cybernetics31  
+##### 7101#       发表于 2022-10-5 22:52
+
+好，有鱼第二天上班都有劲头了
+
+*****
+
+####  player3960  
+##### 7102#       发表于 2022-10-5 22:53
+
+好耶，国内鲤友的专属救济粮又来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cat1230  
+##### 7103#       发表于 2022-10-5 23:13
+
+动画不行，起码还有鲤鱼唠嗑。抚慰一下被动画伤害后那颗受伤的心灵。
+
+*****
+
+####  Kfly  
+##### 7104#       发表于 2022-10-5 23:21
+
+这样一来就能连续三天见到鱼啦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+不过后两天比较坐牢
+
+*****
+
+####  优妮可  
+##### 7105#       发表于 2022-10-5 23:23
+
+又要辛苦房管了
+
+
+
+*****
+
+####  csolfans  
+##### 7106#       发表于 2022-10-5 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775056&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-5 23:23</a>
+
+又要辛苦房管了</blockquote>
+房管多半要上班（×
+
+*****
+
+####  优妮可  
+##### 7107#       发表于 2022-10-5 23:54
+
+主要是sc不能屏蔽
+
+*****
+
+####  Kfly  
+##### 7108#       发表于 2022-10-5 23:58
+
+有那种sc就当白送钱了，鱼也习惯无视了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7109#       发表于 2022-10-6 00:01
+
+反正鱼唠嗑也不会聊星动画，本质上就是大家转换心情，真有送钱的傻子我还觉得多点好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 7110#       发表于 2022-10-6 00:06
+
+花钱当小丑有啥的，人傻钱多的就多刷点
+
+
+
+*****
+
+####  cat1230  
+##### 7111#       发表于 2022-10-6 00:07
+
+最好上舰长当小丑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7112#       发表于 2022-10-6 00:07
+
+ 本帖最后由 nufawneafg 于 2022-10-6 00:09 编辑 
+
+前有财团b躺着赚钱，后有不愿意看还打钱，这边发生的事情总是很怪呢，属于是全面小康了
+
+*****
+
+####  starring  
+##### 7113#       发表于 2022-10-6 00:15
+
+打钱当小丑，是斯德哥尔摩综合症<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

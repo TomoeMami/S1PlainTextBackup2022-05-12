@@ -9141,3 +9141,14 @@ ESL简直nt，之前下半年在丹麦办epl不都挺好的吗，结果马耳他
 
 今晚g2打c9，这俩队运气是真差吧
 
+
+
+*****
+
+####  Rainwedell  
+##### 2580#       发表于 2022-10-6 00:32
+
+很难说faze究竟在折磨谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

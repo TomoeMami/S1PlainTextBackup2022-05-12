@@ -6031,3 +6031,181 @@ miko脑子里到底什么构造
 
 什么游戏
 
+
+
+*****
+
+####  rs5621  
+##### 2089#       发表于 2022-10-5 22:44
+
+<img src="https://img.saraba1st.com/forum/202210/05/224359oe5wlfzjf17zjh69.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-5 22:43 上传
+
+这个呀,不是还在做嘛
+
+*****
+
+####  rs5621  
+##### 2090#       发表于 2022-10-5 22:45
+
+这人喝醉了吧,开始进入状态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 2091#         楼主| 发表于 2022-10-5 23:06
+
+那个不是游戏，是漫画/动画的企划，外包的，跟本人没太大关系
+
+
+
+*****
+
+####  rs5621  
+##### 2092#       发表于 2022-10-6 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是这样的吗,实在猜不出来.
+
+syl这人自从玩喷喷后,就养成了一怒就锤桌子的习惯
+
+哪天锤出个洞就好玩了
+
+*****
+
+####  Map-2  
+##### 2093#       发表于 2022-10-6 00:25
+
+不是说要喷喷引退了吗
+
+*****
+
+####  rs5621  
+##### 2094#       发表于 2022-10-6 00:51
+
+ 本帖最后由 rs5621 于 2022-10-6 00:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了起码4次有多了吧,天天都在引退.
+
+开始了,哭着说今日引退喷喷!
+
+<img src="https://img.saraba1st.com/forum/202210/06/005505qeuwmer0u1wmii5p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 00:55 上传
+
+*****
+
+####  Map-2  
+##### 2095#       发表于 2022-10-6 00:56
+
+可是，姐妹们都已经有上S+了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ZQXY2002  
+##### 2096#       发表于 2022-10-6 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">以后想划水就玩喷吧，天天引退随便说脏话发泄
+
+*****
+
+####  rs5621  
+##### 2097#       发表于 2022-10-6 00:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就她的水平,不指望了.不是还有aki陪她呢么
+
+*****
+
+####  rs5621  
+##### 2098#       发表于 2022-10-6 01:03
+
+ 本帖最后由 rs5621 于 2022-10-6 01:20 编辑 
+
+还想着打rust,最后一波了.个个都这么忙下赛季怕不是没人咯.syl连体人手书,今日进度200-1
+
+<img src="https://img.saraba1st.com/forum/202210/06/011117cvpphpqqrnhrdgsk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 01:11 上传
+
+*****
+
+####  ZQXY2002  
+##### 2099#       发表于 2022-10-6 01:08
+
+摸鱼就沉迷高达ow了是吧，真是又菜又爱玩。
+
+*****
+
+####  rs5621  
+##### 2100#       发表于 2022-10-6 01:20
+
+她还氪金了,这游戏这么好玩的么
+
+
+
+*****
+
+####  ZQXY2002  
+##### 2101#       发表于 2022-10-6 01:22
+
+摸鱼2之重温火影忍者，还挺会享受休假的
+
+*****
+
+####  rs5621  
+##### 2102#       发表于 2022-10-6 01:27
+
+ 本帖最后由 rs5621 于 2022-10-6 02:41 编辑 
+
+这人爽玩3天
+
+hh,睡着了还行。还聊，都差点睡着了,还不下线？
+
+又安利观众去看火影
+
+*****
+
+####  ZQXY2002  
+##### 2103#       发表于 2022-10-6 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">很简单，一起同时视听就能安利了。然而她只选择看欧美烂片。
+
+*****
+
+####  rs5621  
+##### 2104#       发表于 2022-10-6 01:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">远古时期有安利过
+
+C894M~}VCS0TB}34%@X@ZWF.jpg
+(378.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 01:37 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/013753qurvf1vrtlfvlfzl.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 2105#       发表于 2022-10-6 01:46
+
+<blockquote>さくらみこオリ曲『ベイビーダンス』歌ったよ的Twitter
+
+すぷらとぅーん３引退です！！！！！！！！！！
+
+またあしたな！！！！！！！！！！！（定型文）</blockquote>笑死
+

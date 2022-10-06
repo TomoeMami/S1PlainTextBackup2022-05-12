@@ -5310,3 +5310,38 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 可以看得出v圈群体还是学生为主，国庆的播放量已经回到暑假的水平，涨粉速度也是
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2071#         楼主| 发表于 2022-10-5 23:24
+
+芽宝说 小时候住西单图书大厦附近  练琴空闲时期会去看会书   一看地址，西城区西长安街17号<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 2072#       发表于 2022-10-6 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775065&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-5 23:24</a>
+
+芽宝说 小时候住西单图书大厦附近  练琴空闲时期会去看会书   一看地址，西城区西长安街17号 ...</blockquote>
+这个地方有什么特别的吗？
+
+*****
+
+####  白日依山尽  
+##### 2073#       发表于 2022-10-6 07:58
+
+不是174号就好
+
+*****
+
+####  rainker  
+##### 2074#       发表于 2022-10-6 08:08
+
+不是府右街就好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
