@@ -12941,3 +12941,23 @@ Screenshot_20221006_222658.jpg
 
 如果动画里没有9人1单曲，那在Live里的可能性也不低，个人认为symphony那歌在op&amp;ed发售活动里就是充当“感动位”的，既然这发售活动已经开了个头了，那么3rd的安可也安排“感动位”就不算什么奇怪的事了
 
+
+
+*****
+
+####  starring  
+##### 7171#       发表于 2022-10-7 00:43
+
+拍手歌，day1，lapapa和这街道与你都是加人的目标，赶紧接受被创的现实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7172#       发表于 2022-10-7 00:44
+
+ 本帖最后由 稀勢のささ 于 2022-10-7 00:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实挺感动的 那b动静我现在还心有余悸
+别的歌做得到吗.摊手.jpg
+后面在广播里吹一次就算了生放也没放过，真的太棒了
+

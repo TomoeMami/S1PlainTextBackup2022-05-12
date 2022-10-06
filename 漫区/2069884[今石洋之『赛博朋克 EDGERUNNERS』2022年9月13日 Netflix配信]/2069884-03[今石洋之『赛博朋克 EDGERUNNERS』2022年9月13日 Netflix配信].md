@@ -1300,3 +1300,15 @@ Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">补完纪念，最后一集bgm响起时忍不住泪目了，不愧是年度原创啊，故事其实挺老套的但奈何演出拉满啊。角色除了露西和大卫，最让我意难平的就是蕾贝卡了，她和大卫本质是一类人，都是纯粹的活着，纯粹的顺着自己的欲望，但也愿意为了伙伴而粉身碎骨。另外夜之城这城市背景真的是不亚于战场的地狱啊，人命如草芥，走在街上随时可能死无葬生之地
 
+
+
+*****
+
+####  nagitoY  
+##### 3101#       发表于 2022-10-7 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775869&amp;ptid=2069884" target="_blank">蓝川澈 发表于 2022-10-6 00:21</a>
+
+看完最后一集回看第2集简直吐血。我有种强烈的感觉，lucy会摘下头盔拥抱太阳让自己这个美好的回忆成为永恒 ...</blockquote>
+你说的比较讽刺的小细节就是赛博朋克的味道啊。小人物拼死拼活拿到的外挂在大公司眼里就是一流水线生产的次品。
+
