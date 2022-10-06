@@ -12396,3 +12396,12 @@ unya怎么还在做梦 觉得可可的戏份还没结束<img src="https://static
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">民警也算是另外一种形式的重女吧…………
 
+
+
+*****
+
+####  ads147147  
+##### 7129#       发表于 2022-10-6 15:25
+
+付出型人格很容易转成牺牲型，再往下角色的行为就很容易让观众产生剧烈的道德负罪感，我觉得是很危险的角色塑造法。
+
