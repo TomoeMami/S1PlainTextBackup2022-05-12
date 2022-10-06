@@ -73,3 +73,15 @@ The shipping will be started from the end of 2022. We will make announcement as 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Hanzong  
+##### 1877#       发表于 2022-10-7 06:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789236&amp;ptid=2015700" target="_blank">nozomitech 发表于 2022-10-7 06:46</a>
+
+最简单的方法就是电脑端下好游戏打好补丁，SD这里同样下好游戏未打补丁，然后用U盘把电脑上整个游戏覆盖 ...</blockquote>
+这么简单，多谢
+
