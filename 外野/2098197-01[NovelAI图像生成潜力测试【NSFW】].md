@@ -776,3 +776,14 @@ h图都能画的这么色     画手的末日来临啦
 这个程度就够做人设草稿了，之后再润色一遍就行，起码不会画画的制作人就不用很痛苦的画火柴人或者是谁也看 ...</blockquote>
 是的，我打算用这个画一套塔罗牌或者做个简单卡牌游戏的卡面之类的，绰绰有余了感觉<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poplog  
+##### 79#       发表于 2022-10-6 13:19
+
+这是抓住民生主要痛点了吗
+
+— from Xiaomi M2012K11AC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
