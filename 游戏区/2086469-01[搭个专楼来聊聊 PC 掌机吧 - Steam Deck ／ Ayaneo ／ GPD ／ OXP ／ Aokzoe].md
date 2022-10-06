@@ -4750,3 +4750,21 @@ steam deck这傻大黑粗，完全没有想玩的欲望
 
 买了steam deck之后，更想玩NS了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Winder07  
+##### 384#       发表于 2022-10-6 18:44
+
+<blockquote>Ichihatsu 发表于 2022-10-4 14:10
+现在的win掌机或者说win系统能实现品牌掌机程度的游戏内随意待机唤醒吗</blockquote>
+可以，我win3，玩着法环直接按电源待机。想玩再按唤醒，基本没问题，偶尔头跳出
+
+*****
+
+####  信长的呕吐  
+##### 385#       发表于 2022-10-6 18:44
+
+看了眼奥克开始召回了？ 还好退了没买<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

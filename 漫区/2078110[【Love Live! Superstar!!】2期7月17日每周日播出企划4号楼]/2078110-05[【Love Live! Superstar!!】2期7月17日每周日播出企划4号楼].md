@@ -12625,3 +12625,15 @@ https://www.lovelive-anime.jp/news/01_1159.html</blockquote>
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 那我宁愿打歌服潮一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 7148#       发表于 2022-10-6 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57784003&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-06 18:25:34</a>
+这套衣服好像就可可是上下衣都有不对称的要素，设计人小九九突出自己是吧 ...</blockquote>你忘了始空那套她毛走了全队的蝴蝶结都挂自己身上了()
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
