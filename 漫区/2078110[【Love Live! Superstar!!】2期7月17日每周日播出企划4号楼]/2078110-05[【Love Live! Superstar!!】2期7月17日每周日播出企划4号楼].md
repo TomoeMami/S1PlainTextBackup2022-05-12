@@ -13029,3 +13029,16 @@ Screenshot_20221006_222658.jpg
 syl三巡前公式油管可能没一首二期曲到百万
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  saya1892  
+##### 7180#       发表于 2022-10-7 01:42
+
+我不想9人的还是ユニゾン，二巡这歌唱哭了肯定也有很多因素
+不过我们不想又有什么用呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+反正改9人也不过是让2期继续被1期唱功碾压罢了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
