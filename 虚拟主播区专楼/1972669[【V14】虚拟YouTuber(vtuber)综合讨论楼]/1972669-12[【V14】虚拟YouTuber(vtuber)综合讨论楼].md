@@ -11347,3 +11347,23 @@ ethyria周年！
 
 二哥这新歌原来是DYES IWASAKI写的，FAKE TYPE.这俩真是活跃啊
 
+
+
+*****
+
+####  毛头小希  
+##### 17543#       发表于 2022-10-6 13:33
+
+pokerchase这打牌手游据说不是当年虹联动拉拔就要嗝屁了（道听途说不要全信）怎么还有那么多钱搞工商还是3D工商
+
+以及跟我说这手游运营不偏爱豆猫哥我是不信的
+
+933a3ecd.jpg
+(64.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-6 13:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/133106e1y6s65msrrsz5yy.jpg" referrerpolicy="no-referrer">
+
