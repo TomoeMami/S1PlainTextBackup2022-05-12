@@ -205,3 +205,12 @@ OP反复听了三遍，ED直接静音
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实二季这个ED还行的，就是一季OP确实不太搭
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1812#       发表于 2022-10-6 11:58
+
+ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些大惊小怪了，不知道是不是我特摄看多的缘故，op为了表现力吃点设定不是很正常的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

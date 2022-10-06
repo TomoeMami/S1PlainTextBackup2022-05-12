@@ -13875,3 +13875,15 @@ tyijiao
 那个上弹我在手机上完全没按出来过，看人说似乎PC版很好按的样子，不过我玩PC版的朋友说他也按不出（ ...</blockquote>
 那个还好按的吧，就是前几发射完以后直接往下划，不用等出提示了再拉（？
 
+
+
+*****
+
+####  yygundam  
+##### 7355#       发表于 2022-10-6 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57778343&amp;ptid=1570791" target="_blank">madcow 发表于 2022-10-6 10:04</a>
+
+那个还好按的吧，就是前几发射完以后直接往下划，不用等出提示了再拉（？ ...</blockquote>
+然后就直接变成后step了。
+
