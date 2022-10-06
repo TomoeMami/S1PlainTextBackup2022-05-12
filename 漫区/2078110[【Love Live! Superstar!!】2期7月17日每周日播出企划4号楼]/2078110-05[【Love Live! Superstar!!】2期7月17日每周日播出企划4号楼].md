@@ -12472,3 +12472,35 @@ unya怎么还在做梦 觉得可可的戏份还没结束<img src="https://static
 [https://www.lovelive-anime.jp/news/01_1159.html](https://www.lovelive-anime.jp/news/01_1159.html)
 <img src="https://p.sda1.dev/7/2454c39509aeafb9e5b9253f5f055cf7/メイン.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 7134#       发表于 2022-10-6 17:21
+
+这套新柄的立牌咋这么贵，2530，好像是星同规格立牌里最贵的了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7135#       发表于 2022-10-6 17:22
+
+<img src="https://img.saraba1st.com/forum/202210/06/172212adpvsfummqqmmmm7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>628E0317-5EDD-40EE-A040-222D11846831.jpeg</strong> (155.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-6 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/172219k7wwdo2ozdkdwd2d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>789D7181-A8E3-43E9-AB9A-73D724B313F9.jpeg</strong> (92.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-6 17:22 上传
+
