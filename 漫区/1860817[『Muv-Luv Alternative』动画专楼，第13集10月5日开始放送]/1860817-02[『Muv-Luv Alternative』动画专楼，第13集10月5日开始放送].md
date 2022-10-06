@@ -225,3 +225,19 @@ op里看到战术机在天上列队飞行我直接没绷住，光线种大欢喜
 
 此外这话武把霞搬回房间之后直接是睡衣了，敢情你把人衣服给脱了是吧。
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1814#       发表于 2022-10-6 12:35
+
+op画面剪辑的挺脱力的，还是得jam带飞<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kamarus  
+##### 1815#       发表于 2022-10-6 12:37
+
+飞的只要不够高就打不到的，光线种又不能对低空<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
