@@ -9180,3 +9180,14 @@ device回去真别坐牢吧
 
 G2啊G2，这是之前虐菜虐迷失了？
 
+
+
+*****
+
+####  Rainwedell  
+##### 2584#       发表于 2022-10-6 19:29
+
+最有节目效果的是关键局是火男按死的。。。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
