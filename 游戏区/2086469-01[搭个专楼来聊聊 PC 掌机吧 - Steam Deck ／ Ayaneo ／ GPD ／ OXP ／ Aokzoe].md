@@ -4821,3 +4821,15 @@ Aokzoe 的官方通告：
 
 对不起兄弟们，我们失误了，再次感谢玩家兄弟们的支持!感谢！</blockquote>
 
+
+
+*****
+
+####  83913536  
+##### 389#       发表于 2022-10-6 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57784527&amp;ptid=2086469" target="_blank">dududa 发表于 2022-10-6 19:07</a>
+
+现阶段sd和6800u推荐哪个，我想买个玩玩，但感觉两个机器都挺卧龙凤雏的，sd玩不了xgp而且极限性能确实差一 ...</blockquote>
+SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
+
