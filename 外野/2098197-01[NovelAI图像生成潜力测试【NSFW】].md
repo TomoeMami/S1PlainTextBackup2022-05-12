@@ -787,3 +787,14 @@ h图都能画的这么色     画手的末日来临啦
 
 — from Xiaomi M2012K11AC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  mahoraga  
+##### 80#         楼主| 发表于 2022-10-6 22:01
+
+更新一组gangbang皇图，谁说人工智障处理不来多人关系<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（仔细看它真的处理不来）
+
+[https://1drv.ms/u/s!AmYxMxwMm5TIgx3I2sZjiODb8Aet?e=bfRE4N](https://1drv.ms/u/s!AmYxMxwMm5TIgx3I2sZjiODb8Aet?e=bfRE4N)
+

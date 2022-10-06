@@ -736,3 +736,32 @@ purin可爱
 话说突然好奇后期会怎么展开，这两个学校的设计就很奇特，感觉可能会有什么对抗赛之类的？主要女二位的puri ...</blockquote>
 44楼这个，最后没进才奇怪吧
 
+
+
+*****
+
+####  Rhantolk  
+##### 62#       发表于 2022-10-6 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786315&amp;ptid=1994951" target="_blank">H2Ofrozen 发表于 2022-10-6 21:46</a>
+44楼这个，最后没进才奇怪吧</blockquote>
+可能最后会进，但是前面可能很长时间不会
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  支仓爱理  
+##### 63#       发表于 2022-10-6 21:59
+
+为了再和你一起做椅子什么的 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 64#       发表于 2022-10-6 22:01
+
+这🐷每天吃饭都要迫害一下
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
