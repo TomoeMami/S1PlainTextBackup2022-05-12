@@ -12525,3 +12525,20 @@ https://www.lovelive-anime.jp/news/01_1159.html</blockquote>
 丑</blockquote>
 真的是全方位的开摆<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 7138#       发表于 2022-10-6 17:37
+
+噢对，突然想起来件事。都说这次一年级开始可能是想完整做三年三季结束，但是反过来，也有可能是为了可以应变然后看情况“腰斩”的，感觉现在星动画上面的想法更偏向于后者…
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这种推测唯一的好处就是油门不会踩到死了，以后想起来好像还没给这个冤种系列拍毕业季收纸巾可以拉起来拍一下
+
+*****
+
+####  kbtit  
+##### 7139#       发表于 2022-10-6 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼企划把一个一个人养成毒唯也是本事
+

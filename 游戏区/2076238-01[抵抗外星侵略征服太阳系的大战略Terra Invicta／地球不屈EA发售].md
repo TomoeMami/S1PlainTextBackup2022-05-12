@@ -1322,3 +1322,15 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 简单翻译了一下游戏的EA路线图，更新在主楼了。可以看出来确实是不会有什么非常大的改动了，主要还是优化、 ...</blockquote>
 感觉会不会半年内就能正式版上架
 
+
+
+*****
+
+####  windtrack_qh  
+##### 122#       发表于 2022-10-6 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57781758&amp;ptid=2076238" target="_blank">arrowshade 发表于 2022-10-6 15:24</a>
+
+学科专家加高以后给的科研提升巨大但经验需求也巨大，导致没法加属性点，目前想到的最优解是让这类人带能恶 ...</blockquote>
+目前版本优先加管理，多搞几个组织把间谍和行动堆上去，然后直接去扒对方的好组织...
+
