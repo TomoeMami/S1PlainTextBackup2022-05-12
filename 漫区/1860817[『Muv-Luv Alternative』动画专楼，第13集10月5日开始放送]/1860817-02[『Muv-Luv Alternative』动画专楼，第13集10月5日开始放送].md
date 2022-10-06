@@ -241,3 +241,15 @@ op画面剪辑的挺脱力的，还是得jam带飞<img src="https://static.sarab
 
 飞的只要不够高就打不到的，光线种又不能对低空<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hlazd  
+##### 1816#       发表于 2022-10-6 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57779525&amp;ptid=1860817" target="_blank">创始’’’天翔 发表于 2022-10-6 11:58</a>
+ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些大惊小怪了，不知道是不是我特摄看多的缘故，op为 ...</blockquote>
+吃设定是说OP标题那里那群鸟吧？hive周围本应寸草不生不可能有生物
+不过从OP后面的那两只鸟来看，这里出现的鸟应该都是一种抽象化的表达吧
+
