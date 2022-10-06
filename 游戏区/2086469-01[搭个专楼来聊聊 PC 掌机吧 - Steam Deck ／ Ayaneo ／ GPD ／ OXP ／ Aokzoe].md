@@ -4768,3 +4768,22 @@ steam deck这傻大黑粗，完全没有想玩的欲望
 
 看了眼奥克开始召回了？ 还好退了没买<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫煜  
+##### 386#       发表于 2022-10-6 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57784239&amp;ptid=2086469" target="_blank">信长的呕吐 发表于 2022-10-06 18:44:59</a>
+看了眼奥克开始召回了？ 还好退了没买</blockquote>屏幕花屏的回去烧代码，没花的不用，另外十月六日及以前发货的机子，晒单后新增五十返现以及延保半年（一年半质保）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dududa  
+##### 387#       发表于 2022-10-6 19:07
+
+现阶段sd和6800u推荐哪个，我想买个玩玩，但感觉两个机器都挺卧龙凤雏的，sd玩不了xgp而且极限性能确实差一点，6800u价格贵出一大截的同时各种软件硬件毛病不少，有没有都用过的推荐一下
+

@@ -1241,3 +1241,39 @@ boy meets girl是日式味儿，小人物被卷到大企业发现真相然并卵
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  仟音一心  
+##### 3098#       发表于 2022-10-6 19:00
+
+Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生人会梦见电子羊吗？》日版封面。
+
+<img src="https://img.saraba1st.com/forum/202210/06/190012bga1xxzgz66axl01.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9FBC457C-DDC1-475A-9A09-87A4DD0A1D91.jpeg</strong> (83.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-6 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/190011ait0jyvazyzsvztj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>533A3FB3-22F0-4AF4-BE1B-9F68EB91FF55.jpeg</strong> (155.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-6 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202210/06/190019x9sikbospoiuuuh5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>82B7F847-4FF9-41AF-B539-FF90F48275A6.jpeg</strong> (178.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-6 19:00 上传
+

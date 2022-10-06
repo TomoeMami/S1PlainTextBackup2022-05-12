@@ -16028,3 +16028,15 @@ rba还好说，蓝卡没梅莉的时候用C呆+狐狸也一样打，没感到有
 
 FGO官方漫画堂堂完结（不是
 
+
+
+*****
+
+####  里村紅葉  
+##### 2927#       发表于 2022-10-6 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57783120&amp;ptid=2084912" target="_blank">الطائر 发表于 2022-10-6 17:16</a>
+
+FGO官方漫画堂堂完结（不是</blockquote>
+结束了罪恶的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
