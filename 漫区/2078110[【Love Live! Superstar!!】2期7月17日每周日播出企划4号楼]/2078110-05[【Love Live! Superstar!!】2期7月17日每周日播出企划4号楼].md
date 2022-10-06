@@ -12925,3 +12925,19 @@ Screenshot_20221006_222658.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便出，反正最后都没卖过小星星
 
+
+
+*****
+
+####  ViyViy  
+##### 7169#       发表于 2022-10-7 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">星企划最恨的东西——关于可香的一切
+
+*****
+
+####  aoaoaodedede  
+##### 7170#       发表于 2022-10-7 00:34
+
+如果动画里没有9人1单曲，那在Live里的可能性也不低，个人认为symphony那歌在op&amp;ed发售活动里就是充当“感动位”的，既然这发售活动已经开了个头了，那么3rd的安可也安排“感动位”就不算什么奇怪的事了
+
