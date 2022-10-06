@@ -747,3 +747,32 @@ h图都能画的这么色     画手的末日来临啦
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  1412585165  
+##### 76#       发表于 2022-10-6 10:52
+
+还是差了一些，期待后面还能更加进化
+
+*****
+
+####  mahoraga  
+##### 77#         楼主| 发表于 2022-10-6 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57777959&amp;ptid=2098197" target="_blank">Rary 发表于 2022-10-6 09:27</a>
+
+感觉gpt3对prompt的理解有很大帮助，我看OpenAI自家的DALLE也是，不需要太多prompt就能生成质量比较高的图 ...</blockquote>
+嗯，也有这个可能，不过我感觉还是novelai专门挑了图片精调的效果比较大。Dalle那个时候展现出了一些逻辑推导能力，还是挺惊艳的，目前stable diffusion系的还做不太到。novelai也是，假如prompt只描述美丽的女人和丑陋的兽人，它可能给你画出丑女和英俊兽人或者干脆二合一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，必须在negative-prompt里面把丑女、英俊男人之类的选项ban掉才能比较吻合，证明它目前对prompt的语义理解还是差点火候
+
+*****
+
+####  mahoraga  
+##### 78#         楼主| 发表于 2022-10-6 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57777770&amp;ptid=2098197" target="_blank">aa01 发表于 2022-10-6 09:08</a>
+
+这个程度就够做人设草稿了，之后再润色一遍就行，起码不会画画的制作人就不用很痛苦的画火柴人或者是谁也看 ...</blockquote>
+是的，我打算用这个画一套塔罗牌或者做个简单卡牌游戏的卡面之类的，绰绰有余了感觉<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
