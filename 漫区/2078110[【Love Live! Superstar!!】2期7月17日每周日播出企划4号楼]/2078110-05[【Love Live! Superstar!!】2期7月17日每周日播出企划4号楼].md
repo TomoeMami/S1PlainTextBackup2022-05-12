@@ -12869,3 +12869,21 @@ Screenshot_20221006_222658.jpg
 第一季动画5个人写不好，第&amp;#x ...</blockquote>
 要真有三期动画，在这两季层层“铺垫”的情况下，就别想无功无过地平安度过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7163#       发表于 2022-10-6 23:45
+
+别动我的小星星，其他随便吧
+
+*****
+
+####  player3960  
+##### 7164#       发表于 2022-10-6 23:50
+
+随他们创吧，反正现在也只听水色Sunday和媳妇满天空这两首歌，没有第三季最好，这样说不定明年就能把角色solo专给我吐出来了，最好搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -838,3 +838,12 @@ https://1drv.ms/u ...</blockquote>
 没看到有精调的地方，出现的都是没有三点的瑟图</blockquote>
 看我最新发在回复里的这些，都是画的很逼真的
 
+
+
+*****
+
+####  lxlyandccc  
+##### 85#       发表于 2022-10-6 23:44
+
+那啥，现在上P站搜NovelAI已经能找到一大堆R18了，各种风格都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
