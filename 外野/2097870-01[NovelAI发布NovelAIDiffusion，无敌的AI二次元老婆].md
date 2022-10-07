@@ -2089,3 +2089,15 @@ img2img的效果还是蛮好的，自己构图能帮忙省很多时间，不过�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Issue  
+##### 140#       发表于 2022-10-8 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797088&amp;ptid=2097870" target="_blank">Lcat 发表于 2022-10-7 19:58</a>
+
+—— 来自 S1Fun</blockquote>
+怎么连正确的手都给改成错的了，7指？照着画都不会吗（指AI
+

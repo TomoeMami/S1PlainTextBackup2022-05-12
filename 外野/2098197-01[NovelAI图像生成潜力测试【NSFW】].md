@@ -2260,3 +2260,242 @@ twitter.com/MianYunYiLi/status/1536000117152546818 NSFW
 
 3.有时候ai反而能提供灵感，比如脑袋里想的只是要色，但不知道怎么色的时候，ai可以提供几个选项
 
+
+
+*****
+
+####  Issue  
+##### 195#       发表于 2022-10-8 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775760&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-6 00:13</a>
+
+上传了用danbooru nsfw关键词加入prompt以后的生成的4张图，这完全是一批直出的四张图，我没有做任何cher ...</blockquote>
+满怀期待爬梯拖下来看了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+这个逼真度感觉……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我楼上发的那个例子的水嫩效果能不能做？该画师乐意与AI合作，你可以直接用中文联系
+
+*****
+
+####  dcem  
+##### 196#       发表于 2022-10-8 01:57
+
+ 本帖最后由 dcem 于 2022-10-7 13:34 编辑 
+
+感谢楼里老哥们提供的信息。话说用automatic1111的UI，不知道为什么这些pt文件当embedded concept和当hypernetwork载入感觉效果很不一样，似乎还是当embbeded concept效果好一点。
+
+这是把泄露版的各种finetune当embedded concept（电报群下的魔改版）排列组合的结果：
+
+<img src="https://img.saraba1st.com/forum/202210/07/133131rekaeklmzryu1ouo.jpg" referrerpolicy="no-referrer">
+
+<strong>prompt_matrix-0007-28425787emb_matrix.jpg</strong> (820.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 03:31 上传
+
+同样的prompt和种子，换成hypernetwork载入anime_3.pt就变成这样了。
+
+<img src="https://img.saraba1st.com/forum/202210/07/133126me7cezkektzheopn.png" referrerpolicy="no-referrer">
+
+<strong>00490-2842578729-masterpiece, best quality, absurdres, (((2girls))), yuri, sitti.png</strong> (59.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 03:31 上传
+
+*****
+
+####  setree  
+##### 197#       发表于 2022-10-8 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真是太好玩了，只要改一下性别，画面表现完全不一样
+
+<img src="https://img.saraba1st.com/forum/202210/08/020609dr4mt4dxtgwvgmlt.jpg" referrerpolicy="no-referrer">
+
+<strong>xy_grid-0003-1536117227-1boy, deep emerald eyes, {{slit pupils}},dark emerald ha.jpg</strong> (547.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/020611ojfuie5g11r5s7fz.jpg" referrerpolicy="no-referrer">
+
+<strong>xy_grid-0004-2288367609-1girl, deep emerald eyes, {{slit pupils}},dark emerald h.jpg</strong> (532.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:06 上传
+
+*****
+
+####  大江户战士  
+##### 198#       发表于 2022-10-8 02:42
+
+ 本帖最后由 大江户战士 于 2022-10-8 02:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802359&amp;ptid=2098197" target="_blank">当光停止 发表于 2022-10-8 00:13</a>
+
+为什么o的角色的图都出的那么好，输mythra就很不对劲。</blockquote>
+一个是tag打的不到位，另一个是NAI线上线下差别还是挺大的
+
+<img src="https://img.saraba1st.com/forum/202210/08/020844tnf2dnn5mgtwsnfw.png" referrerpolicy="no-referrer">
+
+<strong>1girl, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair, hair.png</strong> (49.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/020844gs8tsyzttyda9tdt.png" referrerpolicy="no-referrer">
+
+<strong>1girl, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair, hair.png</strong> (47.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:08 上传
+
+泄露版我用相同词条出不了这效果（我也不太会用webui就是了）
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727keqo9vvsbdvezzxh.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, expressionless, long h.png</strong> (54.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727p1oy78ozqoiqqywa.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, expressionless, long h.png</strong> (54.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727x8hztce7feo9am9u.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, expressionless, long h.png</strong> (75.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727toyc944oz8oy204j.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (67.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727inm9xkx9mkykmtjt.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (80.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/021727jv32ts5o5dov9tt9.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (77.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/022843y7ke5giggn3nc5kp.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (60.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/022843jxxs1cfadaffhafs.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (57.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/022842hdl3r5bgmmijnz3l.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (86.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/022842aivudadrepbg85be.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, light smile, long hair.png</strong> (91.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/022842tf6gqgd7q7r4d6eu.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, embarrassed, alternate hair ornament, long hair,.png</strong> (65.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/023403qoc9oap3zgxqpxs3.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, embarrassed, alternate hair ornament, long hair,.png</strong> (80.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/023403xd8r5184hdjrf8ij.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, embarrassed, alternate.png</strong> (56.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/023403xit3r96g36faizt9.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, embarrassed, alternate.png</strong> (67.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/024153x9dflcwb9l9l60l0.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, embarrassed, blush, al.png</strong> (62.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:41 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/024153uwogabw6wcwo6g5w.png" referrerpolicy="no-referrer">
+
+<strong>1girl, solo, mythra, xenoblade, blonde hair, blonde eyes, embarrassed, blush, al.png</strong> (50.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 02:41 上传
+
+这些都是NAI网站生成的，我拿离线版很难复现
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| amazarashi| + 1|棒哦|
+
+查看全部评分
+

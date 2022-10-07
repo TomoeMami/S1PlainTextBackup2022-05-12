@@ -9200,3 +9200,51 @@ G2啊G2，这是之前虐菜虐迷失了？
 
 这下好玩了 小李子直接3-0 坐等明天极兔快递回家<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  曼陀罗肥  
+##### 2586#       发表于 2022-10-8 03:01
+
+寄
+
+*****
+
+####  Rainwedell  
+##### 2587#       发表于 2022-10-8 03:04
+
+顶级节目效果了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  roydimus  
+##### 2588#       发表于 2022-10-8 03:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">g2和a队一会儿机场再打一张图吧
+
+*****
+
+####  subject07  
+##### 2589#       发表于 2022-10-8 03:34
+
+hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发挥，打了小蜜蜂之后就开始软了，把把榜一大哥在对面，尤其是狙击位严重拉跨，不如换了hooxi直接学液体五枪男打补枪链得了。
+
+*****
+
+####  Cushaw  
+##### 2590#       发表于 2022-10-8 03:42
+
+没想到啊，被踢的人纷纷出狱了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  烟萝  
+##### 2591#       发表于 2022-10-8 03:58
+
+顶级折磨，今年最大节目效果。。G2你这是在搞毛啊
+

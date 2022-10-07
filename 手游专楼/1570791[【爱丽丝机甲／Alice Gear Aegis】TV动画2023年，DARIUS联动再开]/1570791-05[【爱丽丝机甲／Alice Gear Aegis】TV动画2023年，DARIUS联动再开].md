@@ -14005,3 +14005,12 @@ APP版近期将会支持手柄。
 
 这是个养老游戏啊，凑齐一队能打的人之后，就可以随缘了。
 
+
+
+*****
+
+####  希望之花  
+##### 7366#       发表于 2022-10-8 02:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是也有人权角色，三星素组妹拿专武用得比一些四星还舒服
+

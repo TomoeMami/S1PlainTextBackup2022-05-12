@@ -14414,3 +14414,14 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 这次新单也有剩，如果要的话可以等我，但是没有特典
 
+
+
+*****
+
+####  cat1230  
+##### 7304#       发表于 2022-10-8 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">叔叔家已经付款了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
