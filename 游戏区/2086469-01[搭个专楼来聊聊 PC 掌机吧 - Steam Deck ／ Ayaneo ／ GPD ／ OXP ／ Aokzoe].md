@@ -4888,3 +4888,21 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 
 你要重量显着低于sd，那就只有ayaneo air了，但性能也是显着低于的。
 
+
+
+*****
+
+####  superkin185  
+##### 395#       发表于 2022-10-7 10:33
+
+网上找的的Aokzoe拆机图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+9AE11A86-2216-48DC-9C81-793B673A14CA.jpeg
+(406.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 10:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/103220glm75shq11521mt5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
