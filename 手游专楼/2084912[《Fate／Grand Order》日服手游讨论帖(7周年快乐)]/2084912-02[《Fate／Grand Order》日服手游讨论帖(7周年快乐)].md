@@ -16040,3 +16040,14 @@ FGO官方漫画堂堂完结（不是
 FGO官方漫画堂堂完结（不是</blockquote>
 结束了罪恶的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 2928#       发表于 2022-10-7 14:50
+
+SL了一个小时加一条令咒总算打死爱神了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

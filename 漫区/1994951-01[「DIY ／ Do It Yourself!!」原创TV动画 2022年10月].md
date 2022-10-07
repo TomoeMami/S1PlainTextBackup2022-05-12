@@ -958,3 +958,29 @@ purin可爱
 
 女主怎么表现的像轻度智力障碍加多动症的样子，这样怎么看都不让人放心啊。
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 83#       发表于 2022-10-7 14:50
+
+女主不太讨喜……
+喜欢败犬<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+佐仓怎么又用这个腔调配音
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  M乔梦  
+##### 84#       发表于 2022-10-7 14:50
+
+ 本帖最后由 M乔梦 于 2022-10-7 14:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57781362&amp;ptid=1994951" target="_blank">MONSTERS 发表于 2022-10-6 14:51</a>
+[https://magazine.jp.square-enix.com/mangaup/tachiyomi_pre/diy_01/](https://magazine.jp.square-enix.com/mangaup/tachiyomi_pre/diy_01/)
+
+有漫画版啊</blockquote>
+同步连载吧
+[backcolor=rgba(255, 255, 255, 0.85)]"由[backcolor=rgba(255, 255, 255, 0.85)]こゆびた べる[backcolor=rgba(255, 255, 255, 0.85)]作画，2022年10月4日在[color=var(--color)][史克威尔艾尼克斯](https://zh.moegirl.org.cn/%E5%8F%B2%E5%85%8B%E5%A8%81%E5%B0%94%E8%89%BE%E5%B0%BC%E5%85%8B%E6%96%AF)[backcolor=rgba(255, 255, 255, 0.85)]旗下漫画连载网站“Manga UP!”上开始连载"
+
