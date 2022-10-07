@@ -1451,3 +1451,15 @@ pruned不影响质量，而且full里面也有，应该是因为有很多pt文�
 
 有个问题是，由于日本的法律规定现在网上大量的二次元黄图的关键位置是打码的……如果AI用这些图来学习，会不会始终画不出来准确的关键位置？
 
+
+
+*****
+
+####  yzhiyu_123  
+##### 143#       发表于 2022-10-7 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795668&amp;ptid=2098197" target="_blank">prattwhitney 发表于 2022-10-7 18:38</a>
+
+有个问题是，由于日本的法律规定现在网上大量的二次元黄图的关键位置是打码的……如果AI用这些图来学习，会 ...</blockquote>
+作为数据集，danbooru上有不少是从fanbox这些地方扒来的，是无码的
+

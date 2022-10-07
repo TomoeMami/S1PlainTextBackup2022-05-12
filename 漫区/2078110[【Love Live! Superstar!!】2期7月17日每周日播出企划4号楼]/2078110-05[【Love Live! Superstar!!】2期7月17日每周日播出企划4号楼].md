@@ -13815,3 +13815,27 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7253#       发表于 2022-10-7 18:46
+
+ 本帖最后由 稀勢のささ 于 2022-10-7 18:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795500&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-7 18:24</a>
+
+后知后觉，它是不是还想搞虚拟偶像来着，快快端上来罢，我可太想看看到底是什么层次上的草台 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">上来就选了个“动画配信メイン” 能好到哪儿去  我也想看看死的能有多难看　大家都是中之人跑路  就看拉拉能不能整出点别的
+
+*****
+
+####  nufawneafg  
+##### 7254#       发表于 2022-10-7 18:49
+
+ 本帖最后由 nufawneafg 于 2022-10-7 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795755&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-10-7 18:46</a>
+上来就选了个“动画配信メイン” 能好到哪儿去  我也想看看死的能有多难看　大家都是中之人跑路   ...</blockquote>
+虽然说远了，但我也是这么认为，这种决策根本就没有像好好做市场调查的样子<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+当然到现在各种方面看下来策划不正常也挺正常的就是了（我在说什么
+
