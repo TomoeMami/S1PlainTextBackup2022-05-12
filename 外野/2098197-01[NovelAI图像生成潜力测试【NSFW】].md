@@ -1463,3 +1463,60 @@ pruned不影响质量，而且full里面也有，应该是因为有很多pt文�
 有个问题是，由于日本的法律规定现在网上大量的二次元黄图的关键位置是打码的……如果AI用这些图来学习，会 ...</blockquote>
 作为数据集，danbooru上有不少是从fanbox这些地方扒来的，是无码的
 
+
+
+*****
+
+####  大江户战士  
+##### 144#       发表于 2022-10-7 18:54
+
+泄露文件的moudle下的模型也是有用的吧，还有sd prune文件夹
+
+*****
+
+####  kenqqex  
+##### 145#       发表于 2022-10-7 18:56
+
+<img src="https://img.saraba1st.com/forum/202210/07/185548zkrzeer0kejlshk7.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (471.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 18:55 上传
+
+(masterpiece:1.157625), hololive, virtual youtuber, 1girl, loli, mesugaki, fluffy, tail, detailed pupils, fluffy, eating burger, burger in hands, mouth, eating
+
+Negative prompt: nsfw, lowres, bad anatomy, bad hands, text, error, missing fingers, extra digit, fewer digits, cropped, worst quality, low quality, normal quality, jpeg artifacts, signature, watermark, username, blurry
+
+Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 158766531, Size: 512x512
+
+ 帮人转发
+
+*****
+
+####  kenqqex  
+##### 146#       发表于 2022-10-7 19:00
+
+<img src="https://img.saraba1st.com/forum/202210/07/190045arrhhr1m4h1rj4y7.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (204.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:00 上传
+
+(masterpiece:1.1025), shiny skin, school uniform, walking, town, small breasts, exposure, from side, evil smile, little girl, steam, from above, armpits
+
+Negative prompt: nsfw, lowres, bad anatomy, bad hands, text, error, missing fingers, extra digit, fewer digits, cropped, worst quality, low quality, normal quality, jpeg artifacts, signature, watermark, username, blurry
+
+Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Model hash: 925997e9
+
+现在能用的模型只有
+
+ 【animefull-final-pruned】的这个。
+
+另一个 animefull-latest 加载的时候有问题不知道怎么才能用。如果有能人的话希望请教一下
+
+还有另一个问题。就是这个【animefull-final-pruned】模型只能使用77个Token。和线上的（231个）有差距，希望有能人解析一下怎么才能变回231个。不然只能描述很少内容了
+

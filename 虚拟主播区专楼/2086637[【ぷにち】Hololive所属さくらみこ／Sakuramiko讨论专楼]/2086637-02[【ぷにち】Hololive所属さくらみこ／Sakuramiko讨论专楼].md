@@ -6597,3 +6597,14 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 所以说实际上观众是很期待的，推特上一个月前就有人在期待运动会了
 
+
+
+*****
+
+####  qesto  
+##### 2144#       发表于 2022-10-7 19:01
+
+实际怎么样还得看串里的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+holoan里对运动会有意见的也不少就是了
+
