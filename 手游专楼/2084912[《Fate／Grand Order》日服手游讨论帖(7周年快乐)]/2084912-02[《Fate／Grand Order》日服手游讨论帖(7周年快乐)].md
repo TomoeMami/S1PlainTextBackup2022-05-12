@@ -16134,3 +16134,72 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 既儿媳顶号之后又要来女儿顶号了嘛
 
+
+
+*****
+
+####  月球列车  
+##### 2938#       发表于 2022-10-7 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799118&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-7 21:38</a>
+
+太傻了，而且国服基本也保不住真名，笑死我了</blockquote>
+呼延灼也不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉莉橙  
+##### 2939#       发表于 2022-10-7 22:26
+
+一身黑、双持武器
+
+肯定是李逵！会对马斯特喊欧尼酱
+
+*****
+
+####  gpx234mqx  
+##### 2940#       发表于 2022-10-7 22:28
+
+ 本帖最后由 gpx234mqx 于 2022-10-7 22:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798300&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-10-7 20:55</a>
+
+水浒草，这个应该是最右边 ...</blockquote>
+暗杀者和女性不对啊
+
+而且呼延灼是骑兵，没有暗杀的文本啊
+
+后水浒的呼延玉英？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  月球列车  
+##### 2941#       发表于 2022-10-7 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799986&amp;ptid=2084912" target="_blank">莉莉橙 发表于 2022-10-7 22:26</a>
+
+一身黑、双持武器
+
+肯定是李逵！会对马斯特喊欧尼酱</blockquote>
+你别说如果做成拿两个斧头的李逵，搞个反差萌还真说不定意外的带感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 2942#       发表于 2022-10-7 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799969&amp;ptid=2084912" target="_blank">月球列车 发表于 2022-10-7 22:25</a>
+
+呼延灼也不行吗那一大票三国游戏怎么说</blockquote>
+如果是男的大概率能保住，女的，国服所有的中国女性从者（包括性转后的）名字全没保住，有些暴露的连卡面也没保住
+
+别的游戏，别的游戏和你bgo能比吗，bgo甚至连男人的卡面都要改233
+
+*****
+
+####  月球列车  
+##### 2943#       发表于 2022-10-7 22:32
+
+不知道他月浓度究竟怎样，如果浓度够高把呼延灼的档案再缝点说岳里的金兀术进去那将绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

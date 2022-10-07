@@ -1869,3 +1869,24 @@ AI画的？那不是更好！
 
 这样岂不是……老游戏CG直接炼丹变成新画风？
 
+
+
+*****
+
+####  mahoraga  
+##### 173#         楼主| 发表于 2022-10-7 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798910&amp;ptid=2098197" target="_blank">schneehertz 发表于 2022-10-7 21:26</a>
+
+说一下加载vae的方法
+
+更新webui后，把animevae.pt重命名为model.vae.pt，放在model.ckpt同文件夹后就可 ...</blockquote>
+加了vae和anime_3之后确实感觉和novelai差不多了，不过就是不知道为什么偶尔身体或者脸会崩，画女性的时候莫名其妙突然肌肉线条很发达，novelai上基本没有的，看看这两天社区能不能迎头赶上
+
+*****
+
+####  halfelf  
+##### 174#       发表于 2022-10-7 22:29
+
+劳资服了哈哈哈哈哈
+

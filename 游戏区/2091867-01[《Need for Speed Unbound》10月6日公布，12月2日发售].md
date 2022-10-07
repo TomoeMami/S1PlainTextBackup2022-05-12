@@ -1352,3 +1352,55 @@ Volvo Amazon P130 (1970)
 Ziimbiian泄露的选车界面，Charger R/T可改造为猎装式样。
 <img src="https://p.sda1.dev/7/88698e0238328f096b0bf2cf4fe6f333/72375a5efdcd67367dac65ebdc5698d123306014.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  proselyte  
+##### 64#         楼主| 发表于 2022-10-7 22:29
+
+探索湖岸城市
+
+在成为街头赛车手之前，你需要对这作座城市熟悉一下。你可以从这几个地方开始。
+<img src="https://p.sda1.dev/7/dd00e990dd968a7b81a8f9441abca9f0/535bc21e1bf61064fd9b8ba5792b2e0723306014.jpg" referrerpolicy="no-referrer">
+
+1.雷德尔的瑞德
+<img src="https://p.sda1.dev/7/efa6d1752ea0c76332670936fcbf5da7/a07b752f8ca3e7a889c29f34f55278de23306014.jpg" referrerpolicy="no-referrer">
+
+每个人都得从某地启程。雷德尔的瑞德会是你的第一个安全屋，你可以在热度下降时修好自己的赛车，藏好现金，躲开警察的追捕。
+
+2.风暴排水道，西里尔高地
+<img src="https://p.sda1.dev/7/983072bd6c0b1b9a6b1ec7fed92fd797/39ec64fb03c74a889f5b397a8c6f071023306014.jpg" referrerpolicy="no-referrer">
+
+你不该来这里，但你来了。赶快到风暴排水道参加你的第一次聚会，挑战湖岸最好的地下街头赛车社区。
+
+3.城市码头，安德伍德花园
+<img src="https://p.sda1.dev/7/571eaa104dde736681cb79e413e60511/a819bc01fa8bd1225b184eabf205016d23306014.jpg" referrerpolicy="no-referrer">
+
+在灯光下成为焦点。在最新潮的街头艺术和灯光中炫耀你的独特风格，用肆无忌惮的驾驶扰乱充满乐趣的游乐场。
+
+4.鲁迪格的安全屋，亚斯公园
+<img src="https://p.sda1.dev/7/7b0f67cec50fb8c6ffa5d02635190f93/5e14719e29b64f2b2742f7c26195e43c23306014.jpg" referrerpolicy="no-referrer">
+
+热度高的时候要低调点吗？安全屋遍布湖岸，当警察在亚斯公园附近追捕你时，鲁迪格的安全屋是你放松的好地方。
+
+5.汽车厂，肯尼迪测试赛道
+<img src="https://p.sda1.dev/7/c95d113fa003135cb654e782845dd96b/afc2b546ec8fc29613caae7d0510a9c023306014.jpg" referrerpolicy="no-referrer">
+
+拐过曲折的弯道、在光滑的庭院中漂移、用跳跃测试你的座驾尾翼，从而将你的定制赛车推向极限。肯尼迪测试赛道拥有一切。
+
+6.采石场圆顶，湖岸采石场
+<img src="https://p.sda1.dev/7/34a92a96c05685e6cadbb24ff4c8554b/aab5f05660640a33003779b3a78ac68123306014.jpg" referrerpolicy="no-referrer">
+
+在都市丛林中，你很容易被抓住。前往采石场，让你的轮辋变得泥泞，并在圆顶内填满层层风格化的胎烟。
+
+7.L-火车，城市
+<img src="https://p.sda1.dev/7/a98acef0a4ae421df699e5ea198de597/6eb9771c5e80cfb6b32bab2cdf34aad323306014.jpg" referrerpolicy="no-referrer">
+
+从新的角度看待这座城市。L-火车的铁轨穿过市中心，而湖岸最具有破坏性的车手可不会买票。
+
+8.山路，肯尼迪大道
+<img src="https://p.sda1.dev/7/49601a7fbe007b0fec0d61dfb5188d7d/f7f37e78a27e59dce0f1c144074113f323306014.jpg" referrerpolicy="no-referrer">
+
+湖岸是一座需要关注的城市。城市天际线就是完美的背景。快去山上来几次漂移，听听引擎的轰鸣声吧。
+
