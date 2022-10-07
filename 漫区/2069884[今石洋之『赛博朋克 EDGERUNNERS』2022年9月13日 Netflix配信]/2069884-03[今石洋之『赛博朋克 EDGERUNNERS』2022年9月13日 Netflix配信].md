@@ -1371,3 +1371,15 @@ ps 一开头还猜他爹会不会是个大人物，结果到最后都没提这�
 
 赛博朋克的世界观真的是一堆窟窿，已经很过时了，你没有大的改进，根本就不能摆脱基础设定风洞一样的漏洞。越好的赛博故事，越能放大这套世界观本身的滑稽可笑。
 
+
+
+*****
+
+####  毒菇  
+##### 3107#       发表于 2022-10-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57784429&amp;ptid=2069884" target="_blank">仟音一心 发表于 2022-10-6 19:00</a>
+
+Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生人会梦见电子羊吗？》日版封面。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为是银纹，怎么是个大菠萝啊，赛博暴白
+

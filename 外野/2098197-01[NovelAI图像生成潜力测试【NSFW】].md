@@ -1135,3 +1135,29 @@ novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mahoraga  
+##### 114#         楼主| 发表于 2022-10-7 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790931&amp;ptid=2098197" target="_blank">galekkomari 发表于 2022-10-7 11:15</a>
+
+提醒一下，Python里面这种文件是可以被埋暗桩的。
+
+在确认文件安全之前，最好不要在主要使用的电脑上调用 ...</blockquote>
+实在不行我去阿里云上开一天的gpu机器试<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  断片集  
+##### 115#       发表于 2022-10-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790931&amp;ptid=2098197" target="_blank">galekkomari 发表于 2022-10-7 11:15</a>
+
+提醒一下，Python里面这种文件是可以被埋暗桩的。
+
+在确认文件安全之前，最好不要在主要使用的电脑上调用 ...</blockquote>
+[https://rentry.org/safeunpickle](https://rentry.org/safeunpickle)
+
