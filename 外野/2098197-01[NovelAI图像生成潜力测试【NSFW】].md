@@ -2228,3 +2228,35 @@ AI：性欲原来是去是人类进步的生产力啊</blockquote>
 
 画奴道，堂堂连载（下期修刊）
 
+
+
+*****
+
+####  Issue  
+##### 193#       发表于 2022-10-8 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791769&amp;ptid=2098197" target="_blank">terminator1990 发表于 2022-10-7 12:32</a>
+
+对我这种KKP爱好者来说AI画下体现在还只是到不辣眼的程度，离逼真可用甚至有特色还是有很长的距离。看来想 ...</blockquote>
+靠img2img？真人的p不一定有画的好看，真人接受不了“割礼”，看着像烂肉……
+
+我推荐一个p和rt画的比较水嫩<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">同时又允许AI拿源图训练的画师（允许AI学的画师目前只发现一个，该画师在b站寻求AI从业者帮忙）
+twitter.com/MianYunYiLi/status/1536000117152546818 NSFW
+
+*****
+
+####  mahoraga  
+##### 194#         楼主| 发表于 2022-10-8 01:47
+
+<blockquote>mahoraga 发表于 2022-10-8 01:39
+夜露死苦，我是超级AI画师 凰图院 响子
+
+</blockquote>
+做下来的感觉是
+
+1.做连续剧情还是恋活HS这些3D游戏好用，图像生成一致性是个大问题，用成名角色估计会好一点
+
+2.但是做一次性的素材（背景图，mop大只佬）非常好用
+
+3.有时候ai反而能提供灵感，比如脑袋里想的只是要色，但不知道怎么色的时候，ai可以提供几个选项
+
