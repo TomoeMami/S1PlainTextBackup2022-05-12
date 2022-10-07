@@ -5033,3 +5033,29 @@ steam deck和国产win掌机哪个更适合作为闲暇时的玩具倒腾下呢
 基本上6800U的国产win掌机性能都比SD高不少，屏幕更是好很多，原生运行windows无学习成本，而且貌似现在新 ...</blockquote>
 对于一些用户来说Windows是必须的，比如我烂橘子里十几个游戏，epic 里几十个游戏，xgpu用户几百个游戏，deck的原生系统都不支持
 
+
+
+*****
+
+####  requiem116  
+##### 406#       发表于 2022-10-8 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801158&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-10-7 23:24</a>
+
+基本上6800U的国产win掌机性能都比SD高不少，屏幕更是好很多，原生运行windows无学习成本，而且貌似现在新 ...</blockquote>
+的确是看了隔壁那个帖子心动了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+那比如国产机没有触摸板的话，鼠标部分咋解决的
+
+*****
+
+####  requiem116  
+##### 407#       发表于 2022-10-8 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802018&amp;ptid=2086469" target="_blank">asuss 发表于 2022-10-8 00:00</a>
+
+对于一些用户来说Windows是必须的，比如我烂橘子里十几个游戏，epic 里几十个游戏，xgpu用户几百个游戏， ...</blockquote>
+我看是有那种第三方客户端可以把epic和steam弄到一起，就可以不用切windows了
+
+不过xgp好像一定得刷windows才行
+

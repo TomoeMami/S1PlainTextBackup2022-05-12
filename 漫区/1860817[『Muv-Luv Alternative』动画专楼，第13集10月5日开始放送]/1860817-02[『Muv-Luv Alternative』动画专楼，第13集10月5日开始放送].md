@@ -623,3 +623,17 @@ BETA渡海渡河靠的是下水硬走，在上岸之前都威胁不到水面上�
 
 所以麻仓本身肯定是被顶掉的无误
 
+
+
+*****
+
+####  hlazd  
+##### 1844#       发表于 2022-10-8 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802697&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-8 00:31</a>
+
+新舄那里是和原设一样2死一伤（没有麻仓）
+
+所以麻仓本身肯定是被顶掉的无误 ...</blockquote>
+这么一说想了想动画里确实各种场合都没见到麻仓露脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

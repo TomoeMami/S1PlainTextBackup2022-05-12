@@ -2033,3 +2033,55 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 雷神是masterpiece, raiden_shogun , 1girl ...</blockquote>
 我用同样的tags生成的图总会有微妙的崩感，只能归咎于随机采样的筛子运问题了...
 
+
+
+*****
+
+####  断片集  
+##### 185#       发表于 2022-10-8 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802359&amp;ptid=2098197" target="_blank">当光停止 发表于 2022-10-8 00:13</a>
+
+为什么o的角色的图都出的那么好，输mythra就很不对劲。</blockquote>
+试了一下也出了几张还行的
+
+<img src="https://img.saraba1st.com/forum/202210/08/003110h6gc0ggpcf468z3j.png" referrerpolicy="no-referrer">
+
+<strong>01136-799444286-((mythra_(xenoblade))), masterpiece, 1girl, bangs, bare shoulder.png</strong> (65.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/003120z6ijigo2xj492ogg.png" referrerpolicy="no-referrer">
+
+<strong>01139-799444289-((mythra_(xenoblade))), masterpiece, 1girl, bangs, bare shoulder.png</strong> (71.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/003409m30kqiwz68wif4gg.png" referrerpolicy="no-referrer">
+
+<strong>01157-295899171-((mythra_(xenoblade))), masterpiece, 1girl, bangs, bare shoulder.png</strong> (73.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/003421f753o5831775875k.png" referrerpolicy="no-referrer">
+
+<strong>01154-295899168-((mythra_(xenoblade))), masterpiece, 1girl, bangs, bare shoulder.png</strong> (76.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/003442dfwuimr5wulprmam.png" referrerpolicy="no-referrer">
+
+<strong>01152-295899166-((mythra_(xenoblade))), masterpiece, 1girl, bangs, bare shoulder.png</strong> (65.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:34 上传
+
