@@ -1787,3 +1787,12 @@ novelai能（被强制)开源实在是太令人感动了
 空银子恰汉堡</blockquote>
 吃汉堡也要流不明液体，ai算是把软色情整明白了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人畜无害沃特碧  
+##### 166#       发表于 2022-10-7 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有大佬知道怎么加载novel ai的pt文件，现在泄露的模型效果好像和官网在线的差很多
+

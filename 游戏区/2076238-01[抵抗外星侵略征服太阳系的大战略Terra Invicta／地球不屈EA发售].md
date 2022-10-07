@@ -1409,3 +1409,24 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windtrack_qh  
+##### 129#       发表于 2022-10-7 21:12
+
+外星太君基本上在2035年前必登陆，不管我方威胁压的多低，只要跟外星太君开战并且最后是占领方，威胁直接拉到五星
+
+不过现在发现矿场基本5个防御能抗住轨道轰炸，和外星太君对刚倒是也不怕啥了
+
+另外还有个搞笑情况，外星太君不巧登陆在黑非洲，然后被黑叔叔暴力NTR
+
+<img src="https://img.saraba1st.com/forum/202210/07/211243uiuwwzeawmmed3ho.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 21:12 上传
+

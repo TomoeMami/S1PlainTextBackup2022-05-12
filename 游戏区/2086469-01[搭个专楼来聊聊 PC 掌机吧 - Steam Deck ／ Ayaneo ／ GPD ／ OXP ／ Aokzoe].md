@@ -4970,3 +4970,15 @@ GPD有出传统掌机造型的计划吗？不知道为何对他家品牌的印�
 GPD有出传统掌机造型的计划吗？不知道为何对他家品牌的印象是很喜欢攻击竞品。。。 ...</blockquote>
 GPD Win4就是PSV Copy， 他们家宣传指定有点大病
 
+
+
+*****
+
+####  魔法酪饼  
+##### 402#       发表于 2022-10-7 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790510&amp;ptid=2086469" target="_blank">superkin185 发表于 2022-10-7 10:33</a>
+
+网上找的的Aokzoe拆机图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这啥拆机图，SSD虚空连接？
+
