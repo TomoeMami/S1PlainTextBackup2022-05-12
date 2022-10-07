@@ -13287,3 +13287,19 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 2-1で星の胜ちってとこか</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终究还是成了斗虫材料
 
+
+
+*****
+
+####  Blackson  
+##### 7205#       发表于 2022-10-7 11:43
+
+从星二和虹二动画紧接着的播放进程就免不了被一番比较和斗虫
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7206#       发表于 2022-10-7 11:45
+
+管人同接都能斗虫，这种实打实的销量当然能斗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">要大斗特斗，粉丝获得斗虫胜利带来的精神上的快感，官方收获了money，winwin啊
+
