@@ -1410,3 +1410,16 @@ pruned不影响质量，而且full里面也有，应该是因为有很多pt文�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  很久就在那边l  
+##### 139#       发表于 2022-10-7 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57792932&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 14:32</a>
+结果确实不如官网的，好多关键字识别不了，不过图的质量还可以，我到处扒prompt生成了50张，感觉不错
+
+秒传 ...</blockquote>
+输出质量和分辨率关系很大吗，我在低分辨率用同样的prompt和你的图差好多
+
