@@ -1822,3 +1822,12 @@ novelai能（被强制)开源实在是太令人感动了
 有没有大佬知道怎么加载novel ai的pt文件，现在泄露的模型效果好像和官网在线的差很多 ...</blockquote>
  看楼上
 
+
+
+*****
+
+####  Vellamo  
+##### 169#       发表于 2022-10-7 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">震撼了，这就下图包鉴定一下打码部分真不真
+

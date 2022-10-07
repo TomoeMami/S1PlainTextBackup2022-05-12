@@ -16116,3 +16116,12 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 又有人的J2没保住，芜湖<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 2936#       发表于 2022-10-7 21:38
+
+太傻了，而且国服基本也保不住真名，笑死我了
+
