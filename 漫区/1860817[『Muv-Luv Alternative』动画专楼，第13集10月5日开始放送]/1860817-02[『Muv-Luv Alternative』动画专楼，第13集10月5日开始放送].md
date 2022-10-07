@@ -430,3 +430,23 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jerryoq1  
+##### 1831#       发表于 2022-10-7 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799737&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-7 22:10</a>
+
+说起推出去想起第一季第一集了，小麻回忆杀读漫画的时候跳了，动画应该不会做这段（的吧）
+
+——  ...</blockquote>
+动画目前基本按着漫画改的吧 
+
+125那个原作没演出来但漫画有的 女武神中队牺牲的那个妹子都有做出来 
+
+十三话的12月10日也是按照漫画来改
+
+我觉得十四话可能结束在小麻咬士兵级然后十五开头在回忆吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
