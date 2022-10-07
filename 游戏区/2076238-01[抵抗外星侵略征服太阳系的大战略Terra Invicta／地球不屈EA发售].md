@@ -1377,3 +1377,17 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 2022-10-7 01:29 上传
 
+
+
+*****
+
+####  windtrack_qh  
+##### 126#       发表于 2022-10-7 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57788687&amp;ptid=2076238" target="_blank">setree 发表于 2022-10-7 01:30</a>
+
+这游戏现在后期完全是个粪game，地面上外星人直接无视防御**我也就忍了
+
+辛辛苦苦搭建的空间站，毫无提示一 ...</blockquote>
+控制力千万不能超，超1点就光速被毛
+

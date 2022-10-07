@@ -1161,3 +1161,22 @@ novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的
 在确认文件安全之前，最好不要在主要使用的电脑上调用 ...</blockquote>
 [https://rentry.org/safeunpickle](https://rentry.org/safeunpickle)
 
+
+
+*****
+
+####  lxlyandccc  
+##### 116#       发表于 2022-10-7 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790642&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 10:45</a>
+
+novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的webui加载novelai的模型本地跑，只下anime ...</blockquote>
+干得好啊，这才是正道嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cing  
+##### 117#       发表于 2022-10-7 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">赞美科技
+

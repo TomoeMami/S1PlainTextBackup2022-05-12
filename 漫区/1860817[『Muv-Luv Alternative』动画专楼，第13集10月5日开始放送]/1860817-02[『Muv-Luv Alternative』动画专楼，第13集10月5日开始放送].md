@@ -323,3 +323,15 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教官军衔怎么那么低啊
 
+
+
+*****
+
+####  yixiaqqq  
+##### 1824#       发表于 2022-10-7 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789561&amp;ptid=1860817" target="_blank">ardito 发表于 2022-10-7 08:40</a>
+
+教官军衔怎么那么低啊</blockquote>
+最后一课，让你一毕业就官大爽一爽<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
