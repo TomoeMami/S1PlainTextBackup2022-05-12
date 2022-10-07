@@ -5264,3 +5264,28 @@ Cory这么说更吓人了，MD前代还欠个DLC不说，续作就开始整活�
 
 —— 来自 Sony XQ-AS52, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Piano-Forest  
+##### 585#         楼主| 发表于 2022-10-8 00:03
+
+<img src="https://p.sda1.dev/7/b40f6a5f73577bd2e71b0999a0cfedcf/20221008_000241.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 586#       发表于 2022-10-8 00:07
+
+果然是卡点，还有一个月
+
+不过这么多工作室啊，还有蓝点？
+
+*****
+
+####  Fuero  
+##### 587#       发表于 2022-10-8 00:07
+
+不知道今年有没有纪录片看
+

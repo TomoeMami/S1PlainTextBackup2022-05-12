@@ -1430,3 +1430,14 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 2022-10-7 21:12 上传
 
+
+
+*****
+
+####  niohitan  
+##### 130#       发表于 2022-10-8 00:03
+
+看了一眼4chan的4x楼也是比较推荐毛子直接拿哈萨克斯坦开局，果然发射条件还是大头。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

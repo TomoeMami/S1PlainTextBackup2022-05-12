@@ -511,3 +511,73 @@ BETA渡海渡河靠的是下水硬走，在上岸之前都威胁不到水面上�
 
 如果管人妹子替换的是她的戏份，那就是在XM3测试战中重伤送医院（顺便另一位成员筑地是战死）
 
+
+
+*****
+
+####  小舟潮的臭袜子  
+##### 1836#       发表于 2022-10-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799313&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-7 21:49</a>
+
+好像黑之宣告的动画表现，光线级也不是百发百中
+
+而中国军队的表现，只能说是剧情需要。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一开始是优势的，结果被反扑了，之后就如同泄洪，实际上中国和苏联有着世界上最丰富的对BETA经验
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1837#       发表于 2022-10-8 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802102&amp;ptid=1860817" target="_blank">小舟潮的臭袜子 发表于 2022-10-8 00:03</a>
+
+一开始是优势的，结果被反扑了，之后就如同泄洪，实际上中国和苏联有着世界上最丰富的对BETA经验 ...</blockquote>
+我其实对歼10战术机是偏重近身战这种设定一直很迷惑）
+
+明明是最需要大量火力压制局面的战场，为什么选择近战
+
+再怎么追求机器人的魅力也不能这样吧。
+
+虽然貌似有个爆发式装甲来解围的设计
+
+*****
+
+####  jerryoq1  
+##### 1838#       发表于 2022-10-8 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800981&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 23:15</a>
+
+但是某个追加妹子把原本的一成员给踢掉了）</blockquote>
+麻仓？不清楚是不是这个名字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 翻wiki几乎找不到
+
+就当成125提早退场吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1839#       发表于 2022-10-8 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802157&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-10-8 00:05</a>
+
+麻仓？不清楚是不是这个名字 翻wiki几乎找不到
+
+就当成125提早退场吧</blockquote>
+还是期待下SF能不能复活吧）
+
+毕竟是官方开的IF
+
+什么A01包括小麻都全员生存去打樱花）
+
+*****
+
+####  小舟潮的臭袜子  
+##### 1840#       发表于 2022-10-8 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802154&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-8 00:05</a>
+
+我其实对歼10战术机是偏重近身战这种设定一直很迷惑）
+
+明明是最需要大量火力压制局面的战场，为什么选择 ...</blockquote>
+战术机都挺极端的，要么催如剥皮要么重甲，可能是想通过高防御性能缓慢突入斩杀光线级吧
+

@@ -16234,3 +16234,12 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 这次不是扈三娘就是呼延玉英顶号出来，不然就是父女一起上，已经有过1个半了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 2947#       发表于 2022-10-8 00:05
+
+要出肯定三娘好，然后针对原着强行靠魔星解决问题批判一下，做个ML从者<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
