@@ -1397,3 +1397,16 @@ nai的clip增加了token上限，waifu diffusion1.4也有样学样增加了上�
 有人认为泄露的模型差一个prune，导致结果不如官网的</blockquote>
 pruned不影响质量，而且full里面也有，应该是因为有很多pt文件还没有加载上，现在还在找方法
 
+
+
+*****
+
+####  欧尼酱  
+##### 138#       发表于 2022-10-7 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793527&amp;ptid=2098197" target="_blank">大柴爱怀旧 发表于 2022-10-7 15:29</a>
+这个是手机应用还是电脑软件啊</blockquote>
+可以买个gpu云服务器手机上操作
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
