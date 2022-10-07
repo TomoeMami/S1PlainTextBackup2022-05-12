@@ -13585,3 +13585,37 @@ rtc+1
 
 为啥日本人这么喜欢矮的。算上小百合拉榜前三都是150左右的长得普通的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 7230#       发表于 2022-10-7 15:13
+
+原来FMT集体跪下是大人们的指示啊，运营怎么不先下跪
+
+
+
+*****
+
+####  iuhehc  
+##### 7231#       发表于 2022-10-7 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793360&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-7 15:13</a>
+原来FMT集体跪下是大人们的指示啊，运营怎么不先下跪</blockquote>
+啥？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 7232#       发表于 2022-10-7 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793384&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-7 15:16</a>
+
+啥？
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就之前FMT那个感受大地的玩意儿
+
