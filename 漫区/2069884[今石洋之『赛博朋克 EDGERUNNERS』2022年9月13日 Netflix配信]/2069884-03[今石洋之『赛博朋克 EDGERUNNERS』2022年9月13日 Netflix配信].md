@@ -1340,3 +1340,16 @@ Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生
 
 要真初级的话前面普通混混都能教他做人，他不初级，但轮椅
 
+
+
+*****
+
+####  Labborn  
+##### 3104#       发表于 2022-10-7 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57788701&amp;ptid=2069884" target="_blank">鱼雷鲨 发表于 2022-10-7 01:34</a>
+重锤是骂他轮椅，他这个时停其实游戏里前五甚至前三了
+
+要真初级的话前面普通混混都能教他做人，他不初级 ...</blockquote>
+重锤这种给gm打工的玩家各种义体随便用，所以嘲讽David你这神装我早就用腻了，你还当成宝贝，直击内心的嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
