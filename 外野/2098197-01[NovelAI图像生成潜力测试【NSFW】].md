@@ -947,3 +947,23 @@ STEAM那些低劣的黄油看来就是AI量产的吧<img src="https://static.sar
 
 想整个来给自己画图，novelAI对本地自机有什么要求吗，还是直接上传构图然后填tag然后等对面服务器处理完下载就可以？
 
+
+
+*****
+
+####  红色福音  
+##### 97#       发表于 2022-10-7 10:15
+
+看来那种几个人做的小黄油再也不用担心立绘和CG的问题了
+
+*****
+
+####  hypnossz86  
+##### 98#       发表于 2022-10-7 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790042&amp;ptid=2098197" target="_blank">セト 发表于 2022-10-7 09:42</a>
+鸡和蛋搞反了
+
+是先有大量量产画风的黄图 才有喂出来的AI</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以后用ai喂ai会不会最后都变成同一张图
+
