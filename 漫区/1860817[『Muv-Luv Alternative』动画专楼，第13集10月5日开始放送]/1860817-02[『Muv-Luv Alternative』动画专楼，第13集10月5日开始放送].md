@@ -450,3 +450,19 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 我觉得十四话可能结束在小麻咬士兵级然后十五开头在回忆吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1832#       发表于 2022-10-7 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800337&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-10-7 22:46</a>
+
+动画目前基本按着漫画改的吧 
+
+125那个原作没演出来但漫画有的 女武神中队牺牲的那个妹子都有做出来 
+
+十三 ...</blockquote>
+但是某个追加妹子把原本的一成员给踢掉了）
+

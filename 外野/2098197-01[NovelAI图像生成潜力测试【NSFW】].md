@@ -1901,3 +1901,15 @@ AI画的？那不是更好！
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pigrush  
+##### 176#       发表于 2022-10-7 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800000&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-7 22:27</a>
+
+加了vae和anime_3之后确实感觉和novelai差不多了，不过就是不知道为什么偶尔身体或者脸会崩，画女性的时 ...</blockquote>
+请问anime_3怎么加载？
+

@@ -1404,3 +1404,14 @@ Ziimbiian泄露的选车界面，Charger R/T可改造为猎装式样。
 
 湖岸是一座需要关注的城市。城市天际线就是完美的背景。快去山上来几次漂移，听听引擎的轰鸣声吧。
 
+
+
+*****
+
+####  Totokei  
+##### 65#       发表于 2022-10-7 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">西瓜皮用户可以发售前白嫖10小时
+
+按照GRID LEDENGS的经验足够劝退了
+
