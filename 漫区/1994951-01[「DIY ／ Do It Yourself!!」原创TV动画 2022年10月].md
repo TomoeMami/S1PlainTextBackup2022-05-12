@@ -906,3 +906,14 @@ purin可爱
 前面楼里漫画的画风看起来不错，这个动画的作画看起来非常的平面</blockquote>
 因为没怎么画影吧
 
+
+
+*****
+
+####  细菌爆炸  
+##### 78#       发表于 2022-10-7 10:46
+
+就好美少女喝茶DIY这一口<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不过这个世界观设定也很清奇啊，两个学校连在一起还有无人机停机坪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
