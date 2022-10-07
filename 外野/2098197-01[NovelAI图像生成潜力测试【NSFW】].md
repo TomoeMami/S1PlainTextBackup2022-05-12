@@ -1994,3 +1994,19 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 说实话我还是更喜欢没加载那几个pt文件的版本……</blockquote>
 求下这两张的prompts，感觉生成图的平均质量都挺高的
 
+
+
+*****
+
+####  断片集  
+##### 182#       发表于 2022-10-7 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801648&amp;ptid=2098197" target="_blank">silist 发表于 2022-10-7 23:46</a>
+
+求下这两张的prompts，感觉生成图的平均质量都挺高的</blockquote>
+就很简单的……
+
+胡桃是masterpiece, hu_tao, 1girl.
+
+雷神是masterpiece, raiden_shogun , 1girl
+

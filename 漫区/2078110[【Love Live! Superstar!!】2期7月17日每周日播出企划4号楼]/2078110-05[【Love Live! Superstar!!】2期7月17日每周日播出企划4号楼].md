@@ -14373,3 +14373,31 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CharlieZ-  
+##### 7300#       发表于 2022-10-7 23:57
+
+snp要是能有隔壁敌团那种待遇该多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少给个live吧
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7301#       发表于 2022-10-8 00:00
+
+擦千佛，快进到千渣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7302#       发表于 2022-10-8 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801944&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-7 23:57</a>
+
+snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquote>
+一般来说身为对手团要个live应该不难，但放星这里就是那么难主要是还有薇恩作对比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（就算不计入薇恩吧，第一季也该有个live啊……）
+

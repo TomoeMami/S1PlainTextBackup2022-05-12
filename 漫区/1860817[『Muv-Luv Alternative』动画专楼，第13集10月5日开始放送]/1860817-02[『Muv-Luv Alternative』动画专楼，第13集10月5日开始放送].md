@@ -478,3 +478,36 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 但是某个追加妹子把原本的一成员给踢掉了）</blockquote>
 有名有姓的成员都在，“替换”掉的本身也是个无名氏
 
+
+
+*****
+
+####  半分宅  
+##### 1834#       发表于 2022-10-7 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799313&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-7 09:49</a>
+
+好像黑之宣告的动画表现，光线级也不是百发百中
+
+而中国军队的表现，只能说是剧情需要。</blockquote>
+按照设定，海峡还就真的很有用。欧洲陷落之后，英国也是靠海峡天险硬守下来的。
+
+BETA渡海渡河靠的是下水硬走，在上岸之前都威胁不到水面上的人类舰艇，而且光线种也会暂时废掉。只要不像日本那样倒霉遇到超大型台风，阻止BETA渡海的战术简单到整船整船深水炸弹往下倒，急了还可以倒核深弹。
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1835#       发表于 2022-10-7 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801170&amp;ptid=1860817" target="_blank">hlazd 发表于 2022-10-7 23:24</a>
+
+有名有姓的成员都在，“替换”掉的本身也是个无名氏</blockquote>
+很遗憾有名有姓，甚至有人设
+<img src="https://www9.atwiki.jp/alternative?cmd=upload&amp;act=open&amp;pageid=25&amp;file=%E9%BA%BB%E5%80%89.JPG" id="aimg_d151F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img src="https://img.atwiki.jp/wiki9_alternative/attach/41/844/%E9%BA%BB%E5%80%89_AF.JPG" id="aimg_u5cPB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+麻仓少尉，甚至其实幸存到了樱花作战之后
+
+如果管人妹子替换的是她的戏份，那就是在XM3测试战中重伤送医院（顺便另一位成员筑地是战死）
+
