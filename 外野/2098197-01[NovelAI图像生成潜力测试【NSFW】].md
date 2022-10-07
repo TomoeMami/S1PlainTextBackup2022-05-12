@@ -1796,3 +1796,29 @@ novelai能（被强制)开源实在是太令人感动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有大佬知道怎么加载novel ai的pt文件，现在泄露的模型效果好像和官网在线的差很多
 
+
+
+*****
+
+####  schneehertz  
+##### 167#       发表于 2022-10-7 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795634&amp;ptid=2098197" target="_blank">dcem 发表于 2022-10-7 18:35</a>
+
+偷跑版相关。automatic1111刚更新了个webui的版本，方便额外加载animevae.pt文件。效果应该比单单一个ckpt ...</blockquote>
+说一下加载vae的方法
+
+更新webui后，把animevae.pt重命名为model.vae.pt，放在model.ckpt同文件夹后就可以了
+
+如果model的文件名不是model.ckpt，vae的文件名也需要做相应的修改
+
+*****
+
+####  schneehertz  
+##### 168#       发表于 2022-10-7 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798724&amp;ptid=2098197" target="_blank">人畜无害沃特碧 发表于 2022-10-7 21:16</a>
+
+有没有大佬知道怎么加载novel ai的pt文件，现在泄露的模型效果好像和官网在线的差很多 ...</blockquote>
+ 看楼上
+
