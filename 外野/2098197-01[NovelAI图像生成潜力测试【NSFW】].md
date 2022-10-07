@@ -1260,3 +1260,25 @@ novelai特色是结合gpt3，单独diffusion模型有啥用</blockquote>
 
 只能说现在社区热情太高涨了，新功能新能力层出不穷，一日千里啊<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大江户战士  
+##### 125#       发表于 2022-10-7 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791737&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 12:29</a>
+
+我试了下，生成二次元图效果比隔壁hentai diffusion和waifu diffusion之类的效果好不少 ...</blockquote>
+我看了下是我误解了，其实nai也是用的clip，gpt3是他那个小说ai用的
+
+nai的clip增加了token上限，waifu diffusion1.4也有样学样增加了上限，不知道效果如何
+
+*****
+
+####  schneehertz  
+##### 126#       发表于 2022-10-7 12:49
+
+试了下泄露的novel ai的模型，感觉和sd的差距不是很大，和novel ai网页出来的效果差距明显
+这模型保真吗，还是除了模型之外novel ai还有其他花活
+
