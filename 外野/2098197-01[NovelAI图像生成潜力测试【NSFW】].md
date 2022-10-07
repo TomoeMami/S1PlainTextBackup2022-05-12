@@ -1619,3 +1619,14 @@ Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Mod
 
 AI：性欲原来是去是人类进步的生产力啊
 
+
+
+*****
+
+####  sakura79  
+##### 153#       发表于 2022-10-7 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791769&amp;ptid=2098197" target="_blank">terminator1990 发表于 2022-10-7 12:32</a>
+对我这种KKP爱好者来说AI画下体现在还只是到不辣眼的程度，离逼真可用甚至有特色还是有很长的距离。看来想 ...</blockquote>
+能不能用三次元局部图片二次元风格化后训练？
+

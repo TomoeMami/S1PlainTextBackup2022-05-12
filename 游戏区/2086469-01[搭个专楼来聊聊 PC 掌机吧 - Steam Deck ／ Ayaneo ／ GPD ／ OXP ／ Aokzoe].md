@@ -4958,3 +4958,15 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 
 GPD有出传统掌机造型的计划吗？不知道为何对他家品牌的印象是很喜欢攻击竞品。。。
 
+
+
+*****
+
+####  83913536  
+##### 401#       发表于 2022-10-7 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57796153&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-10-7 19:15</a>
+
+GPD有出传统掌机造型的计划吗？不知道为何对他家品牌的印象是很喜欢攻击竞品。。。 ...</blockquote>
+GPD Win4就是PSV Copy， 他们家宣传指定有点大病
+

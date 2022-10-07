@@ -13953,3 +13953,20 @@ tyijiao
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏没什么进度可言
 快5年了甚至没有数值膨胀，初始卡可玩全部内容
 
+
+
+*****
+
+####  不灭的旋律  
+##### 7362#       发表于 2022-10-7 20:05
+
+ 本帖最后由 不灭的旋律 于 2022-10-7 20:07 编辑 
+
+APP版近期将会支持手柄。
+
+本来伊芙丽是BURST就有的人物，当时计划出360版和PSP成对的剧情还有关联，后来360版吹了伊芙丽也没了，就CS版出现过名字。（难怪配色这么三红机）
+
+因为这次联动设定上是EX时代（大流士历1915）所以伊芙丽比原本的年龄（大流士历1906）大了10岁。另外这次明说了联动是if平行世界。
+
+今年金字塔在做AGA CS版，大流士CS CORE版，还要监修动画版，AGA本体能好好做才有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

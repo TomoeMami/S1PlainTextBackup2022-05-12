@@ -6710,3 +6710,12 @@ holoan对任何企划都有意见，那怎么办什么企划都别办了最好�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2155#         楼主| 发表于 2022-10-7 20:04
+
+你发表自己的意见可以别光说5ch怎样怎样就行
+
