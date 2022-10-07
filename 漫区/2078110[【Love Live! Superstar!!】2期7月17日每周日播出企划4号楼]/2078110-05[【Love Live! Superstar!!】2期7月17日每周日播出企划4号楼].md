@@ -13644,3 +13644,25 @@ rtc+1
 ………哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我的感想和你前面的一致
 
+
+
+*****
+
+####  iuhehc  
+##### 7235#       发表于 2022-10-7 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793494&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-7 15:26</a>
+裂广播里Nagi说在后台接到指示，要表演跪下感受大地</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最新一期吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 7236#       发表于 2022-10-7 15:50
+
+鲤鱼要算初动肯定不能刨去FC，毕竟王之力都在那边
+
+接下来看岬的初动吧
+

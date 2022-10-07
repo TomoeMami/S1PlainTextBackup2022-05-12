@@ -4927,3 +4927,14 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 网上找的的Aokzoe拆机图</blockquote>
 看来GPD那么嚣张还是有点底气
 
+
+
+*****
+
+####  Freesil  
+##### 398#       发表于 2022-10-7 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57792944&amp;ptid=2086469" target="_blank">83913536 发表于 2022-10-7 14:33</a>
+看来GPD那么嚣张还是有点底气</blockquote>
+一号本的实际做工都比这个强多了，说白了奥克就套了一个壳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

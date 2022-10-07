@@ -1385,3 +1385,15 @@ nai的clip增加了token上限，waifu diffusion1.4也有样学样增加了上�
 
 这个是手机应用还是电脑软件啊
 
+
+
+*****
+
+####  shinna  
+##### 137#       发表于 2022-10-7 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57792912&amp;ptid=2098197" target="_blank">yzhiyu_123 发表于 2022-10-7 14:30</a>
+
+有人认为泄露的模型差一个prune，导致结果不如官网的</blockquote>
+pruned不影响质量，而且full里面也有，应该是因为有很多pt文件还没有加载上，现在还在找方法
+
