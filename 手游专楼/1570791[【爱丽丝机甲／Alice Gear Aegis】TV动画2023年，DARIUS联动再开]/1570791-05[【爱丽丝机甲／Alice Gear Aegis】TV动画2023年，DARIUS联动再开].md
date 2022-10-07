@@ -13970,3 +13970,29 @@ APP版近期将会支持手柄。
 
 今年金字塔在做AGA CS版，大流士CS CORE版，还要监修动画版，AGA本体能好好做才有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LEOKO~  
+##### 7363#       发表于 2022-10-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797280&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2022-10-7 20:05</a>
+
+APP版近期将会支持手柄。
+
+本来伊芙丽是BURST就有的人物，当时计划出360版和PSP成对的剧情还有关联，后来360 ...</blockquote>
+纯种大流士人保质期那么高？（大流士世界观里地球人是大流士人分支来着）
+
+*****
+
+####  LEOKO~  
+##### 7364#       发表于 2022-10-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797280&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2022-10-7 20:05</a>
+
+APP版近期将会支持手柄。
+
+本来伊芙丽是BURST就有的人物，当时计划出360版和PSP成对的剧情还有关联，后来360 ...</blockquote>
+纯种大流士人保质期那么高？（大流士世界观里地球人是大流士人分支来着）
+

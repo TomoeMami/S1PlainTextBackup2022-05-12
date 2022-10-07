@@ -1831,3 +1831,32 @@ novelai能（被强制)开源实在是太令人感动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">震撼了，这就下图包鉴定一下打码部分真不真
 
+
+
+*****
+
+####  silist  
+##### 170#       发表于 2022-10-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798910&amp;ptid=2098197" target="_blank">schneehertz 发表于 2022-10-7 21:26</a>
+
+说一下加载vae的方法
+
+更新webui后，把animevae.pt重命名为model.vae.pt，放在model.ckpt同文件夹后就可 ...</blockquote>
+看到webui最近的commit里也一起支持了加载finetune hypernetwork，对应novelaileak/stableckpt/modules里的一系列pt，放到stable-diffusion-webui/models/hypernetworks里；之后在webui的setting里选择下即可加载。
+
+我试了下，有点效果，虽然和novelai官方出图还是有差距。
+
+*****
+
+####  楠芽吹  
+##### 171#       发表于 2022-10-7 22:00
+
+以前看真人色图会问男的女的
+
+男的？那不是更好！
+
+现在看二次元色图会问是不是AI画的
+
+AI画的？那不是更好！
+
