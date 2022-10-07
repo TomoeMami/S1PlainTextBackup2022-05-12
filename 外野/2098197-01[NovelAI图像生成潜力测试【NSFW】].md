@@ -2131,3 +2131,23 @@ AI：性欲原来是去是人类进步的生产力啊</blockquote>
 
 期待wd1.4的新CLIP模型吧
 
+
+
+*****
+
+####  yueyut  
+##### 190#       发表于 2022-10-8 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">批画的还是不够水嫩
+
+*****
+
+####  断片集  
+##### 191#       发表于 2022-10-8 01:29
+
+我在想以后要是真的形成对抗了的话，会不会出现越老的题材和角色，ai的样本越多，画师越不愿意碰
+
+然后画师们设计新角色时会有意添加很多特定的小配件小装饰或者符号啥的，让ai很难还原，进而形成新的人设风潮什么的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然我还是希望有更多画师能正视这玩意的工具属性，解放色图生产力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

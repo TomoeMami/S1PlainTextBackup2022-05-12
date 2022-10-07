@@ -14401,3 +14401,16 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 （就算不计入薇恩吧，第一季也该有个live啊……）
 
+
+
+*****
+
+####  lj205  
+##### 7303#       发表于 2022-10-8 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801308&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-7 23:30</a>
+叔叔最后的温柔，赶在国庆结束前1小时又补货了鲤鱼的写真，用了优惠劵和红包（可惜红包只剩11块8了，早上全 ...</blockquote>
+我还剩多几本可以便宜出的
+
+这次新单也有剩，如果要的话可以等我，但是没有特典
+
