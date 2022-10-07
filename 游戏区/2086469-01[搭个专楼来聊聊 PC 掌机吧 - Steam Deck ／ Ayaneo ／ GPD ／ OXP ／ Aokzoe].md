@@ -4982,3 +4982,22 @@ GPD Win4就是PSV Copy， 他们家宣传指定有点大病
 网上找的的Aokzoe拆机图</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这啥拆机图，SSD虚空连接？
 
+
+
+*****
+
+####  requiem116  
+##### 403#       发表于 2022-10-7 23:03
+
+研究了一转，steam deck 64g的加上转运，税，换ssd啥的，合计下来也要快4k了？
+
+看了下咸鱼上的奥克5100左右
+
+之前没倒腾过win掌机，不知道这些区别有多大？
+
+steam deck的主要优势是steam os吗？翻了下版里几个帖子，steam deck的触摸板作用有多大，是否是重要优势呢？
+
+从需求上来看一方面是想整个新玩具，另一方面也是不想坐在电脑前打游戏感觉有点累，要说刚需肯定是没有的
+
+steam deck和国产win掌机哪个更适合作为闲暇时的玩具倒腾下呢
+
