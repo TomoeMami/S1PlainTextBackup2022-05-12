@@ -1199,3 +1199,14 @@ novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的
 novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的webui加载novelai的模型本地跑，只下anime ...</blockquote>
 novelai特色是结合gpt3，单独diffusion模型有啥用
 
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 120#       发表于 2022-10-7 12:15
+
+是老黄指使的<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

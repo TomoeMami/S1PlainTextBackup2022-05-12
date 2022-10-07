@@ -13312,3 +13312,44 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 有点牛逼，之前小奶8k来着还是低估了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 7208#       发表于 2022-10-7 12:15
+
+咻咔 1st初动是9710，但这是出道三年后才拿到的成绩，且也傲视LL了。小百合出道一年半能拿到相媲美的成绩不可谓不恐怖。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 7209#       发表于 2022-10-7 12:15
+
+这不是香音传的坚实注脚吗w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沙茶酱  
+##### 7210#       发表于 2022-10-7 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791577&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-7 12:15</a>
+
+这不是香音传的坚实注脚吗w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+原来香音传是有一定的理论基础<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田预示了未来
+
+*****
+
+####  cat1230  
+##### 7211#       发表于 2022-10-7 12:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感受到了上位下位的人气差距和粉丝战斗力的差距，鲤鱼初动没算fc才2千，青山他们3人有数据吗？我印象里青山的2本写真集都是电子版，有实体书数据没。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
