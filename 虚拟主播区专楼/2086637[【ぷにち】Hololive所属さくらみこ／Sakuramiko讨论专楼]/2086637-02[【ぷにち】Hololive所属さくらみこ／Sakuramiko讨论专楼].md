@@ -6543,3 +6543,27 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 那不好说，反响不好的话明年就改别的了那也说不定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2139#         楼主| 发表于 2022-10-7 18:08
+
+反响好不好不知道但是每次观看量和同接都不低，要我说也是很难放下的
+
+*****
+
+####  holoan  
+##### 2140#         楼主| 发表于 2022-10-7 18:09
+
+<img src="https://img.saraba1st.com/forum/202210/07/180857kqn8wngrsccncjkf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 18:08 上传
+
+而且从去年开始staff已经正式介入协助运营了，这个车门已经焊死了我看
+
