@@ -335,3 +335,40 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 教官军衔怎么那么低啊</blockquote>
 最后一课，让你一毕业就官大爽一爽<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1825#       发表于 2022-10-7 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789561&amp;ptid=1860817" target="_blank">ardito 发表于 2022-10-7 08:40</a>
+
+教官军衔怎么那么低啊</blockquote>
+教官最高军衔就是中士还是上士来着，最后靠自己给一群毕业授衔成少尉的学员敬礼来教会他们在军队中的等级制度这一课
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1826#       发表于 2022-10-7 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57779999&amp;ptid=1860817" target="_blank">kamarus 发表于 2022-10-6 12:37</a>
+
+飞的只要不够高就打不到的，光线种又不能对低空</blockquote>
+不要因为打的少就觉得不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不然这作品70年代的天朝军也不至于输了）
+
+光线种只有不打自己人和巢穴这个限制，其他随便打，而且除非在打出去一瞬间被人推出去，否则你逃不掉的）
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1827#       发表于 2022-10-7 21:00
+
+讲真）OP歌挺好，但是剪辑的让我半夜录的时候骂娘
+
+然后看第一话，那个稀碎的节奏……
+
+真心路人看不懂原作党看不爽
+

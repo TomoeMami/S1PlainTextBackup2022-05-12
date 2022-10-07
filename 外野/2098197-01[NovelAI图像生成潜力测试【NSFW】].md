@@ -1775,3 +1775,15 @@ novelai能（被强制)开源实在是太令人感动了
 
 空银子恰汉堡<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mahoraga  
+##### 165#         楼主| 发表于 2022-10-7 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798097&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 20:44</a>
+
+空银子恰汉堡</blockquote>
+吃汉堡也要流不明液体，ai算是把软色情整明白了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
