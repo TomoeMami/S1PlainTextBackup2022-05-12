@@ -430,3 +430,20 @@ Steam页面：[https://store.steampowered.com/app/1938010/WILD_HEARTS/](https://
 这是之前吹的500w新ip吗？</blockquote>
 500w是那个幕末吧
 
+
+
+*****
+
+####  Piano-Forest  
+##### 256#         楼主| 发表于 2022-10-7 10:21
+
+<img src="https://p.sda1.dev/7/008a9ecd767c01245ab22111f6d92e65/81zk423wRoL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/83d53eca30b5149105e175b63569866c/81Y9_CMocuL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  布拉德莱恩  
+##### 257#       发表于 2022-10-7 10:24
+
+这封绘里的太刀侠是不是画反了？刀鞘在右左手拿刀，明明演示里都是刀鞘在左右手拿刀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -967,3 +967,17 @@ STEAM那些低劣的黄油看来就是AI量产的吧<img src="https://static.sar
 是先有大量量产画风的黄图 才有喂出来的AI</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以后用ai喂ai会不会最后都变成同一张图
 
+
+
+*****
+
+####  mahoraga  
+##### 99#         楼主| 发表于 2022-10-7 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790043&amp;ptid=2098197" target="_blank">新吾 发表于 2022-10-7 09:42</a>
+
+想整个来给自己画图，novelAI对本地自机有什么要求吗，还是直接上传构图然后填tag然后等对面服务器处理完下 ...</blockquote>
+对本机是没要求，只要填prompt调调参数就好了，也不一定需要上传自己的构图，可以只填一句话让它凭空捏造。
+
+不过论交互性我觉得还是stable diffusion比较好，论二次元黄图novelai暂时无敌，我昨天调了一晚上其他本地模型也出不了它的效果，我估计它是针对512*768这个比例做了专门的训练，原版stable-diffusion是在512*512格式上训练的，所以做不太好其他比例的构图
+

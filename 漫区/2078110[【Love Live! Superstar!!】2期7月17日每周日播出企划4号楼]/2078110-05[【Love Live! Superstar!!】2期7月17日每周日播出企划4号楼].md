@@ -13200,3 +13200,44 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7199#       发表于 2022-10-7 10:23
+
+仅次于sks了吧
+
+*****
+
+####  梶原ひかり  
+##### 7200#       发表于 2022-10-7 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790379&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-7 10:21</a>
+
+打铁写真在ll历代的初动里排第几？粉丝真的含金量很多啊。
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第二 不是一般的强
+
+1 斉藤朱夏 11860
+
+2 佐仓绫音 10712
+
+3 降幡爱 10099
+
+4 伊达さゆり 9322
+
+5 伊藤美来 9051
+
+6 内田真礼 7851
+
+7 逢田梨香子 7254
+
+8 小林爱香 6216
+
+9 诹访ななか 5942
+
+10 水树奈々 5664
+
