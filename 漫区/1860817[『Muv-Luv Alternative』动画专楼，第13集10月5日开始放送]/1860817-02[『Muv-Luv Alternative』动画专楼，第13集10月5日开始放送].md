@@ -296,3 +296,12 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 这话真的很棒，当初推这段的时候感觉回来了，一想到后面的内容，感觉更悲伤了
 
+
+
+*****
+
+####  piofg  
+##### 1821#       发表于 2022-10-7 08:07
+
+你看他笑得多开心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/3d81cb5117ce1bf4bc14c04a743e431e/20221006_144845.jpg" referrerpolicy="no-referrer">
+
