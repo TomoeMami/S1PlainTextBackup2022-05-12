@@ -917,3 +917,12 @@ purin可爱
 
 不过这个世界观设定也很清奇啊，两个学校连在一起还有无人机停机坪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sabbah  
+##### 79#       发表于 2022-10-7 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一话APART的bgm留白稍显过多，配合一些意义不明的镜头和台词甚至差点看出怪味来了，后面才缓过来。
+
