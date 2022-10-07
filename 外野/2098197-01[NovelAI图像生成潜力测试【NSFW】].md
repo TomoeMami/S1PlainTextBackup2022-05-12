@@ -920,3 +920,12 @@ https://1drv.ms/u ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wolfwood  
+##### 94#       发表于 2022-10-7 09:39
+
+STEAM那些低劣的黄油看来就是AI量产的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
