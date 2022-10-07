@@ -13857,3 +13857,37 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 这次居然迟到这么久
 
+
+
+*****
+
+####  ads147147  
+##### 7257#       发表于 2022-10-7 19:17
+
+还以为鲤鱼咕了今天，还好只是迟到了
+
+*****
+
+####  iuhehc  
+##### 7258#       发表于 2022-10-7 19:17
+
+鲤鱼要出蒜的cos了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 7259#       发表于 2022-10-7 19:18
+
+不要千佛不要千佛
+
+*****
+
+####  ads147147  
+##### 7260#       发表于 2022-10-7 19:21
+
+圣香音和千佛，也是cp（毕竟都是chisato
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

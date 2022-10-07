@@ -1529,3 +1529,12 @@ Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Mod
 
 现在可以加载pt文件了，效果又好了很多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愤怒的母猪  
+##### 148#       发表于 2022-10-7 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老爸老妈哥哥妹妹都可以是黄油大师，只要用AI，人人都可以满足自己的性癖！
+

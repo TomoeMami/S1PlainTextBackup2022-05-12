@@ -13943,3 +13943,13 @@ tyijiao
 
 —— 来自 OPPO PBEM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  hypnossz86  
+##### 7361#       发表于 2022-10-7 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏没什么进度可言
+快5年了甚至没有数值膨胀，初始卡可玩全部内容
+

@@ -6639,3 +6639,25 @@ holoan对任何企划都有意见，那怎么办什么企划都别办了最好�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">办都办了，看看接下来的操作吧
 
+
+
+*****
+
+####  qesto  
+##### 2148#       发表于 2022-10-7 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795932&amp;ptid=2086637" target="_blank">holoan 发表于 2022-10-7 19:01</a>
+
+holoan对任何企划都有意见，那怎么办什么企划都别办了最好？</blockquote>
+那也不至于，真有意思的企划holoan也是一片「质的大洪水」的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 2149#       发表于 2022-10-7 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57796141&amp;ptid=2086637" target="_blank">qesto 发表于 2022-10-7 19:14</a>
+
+那也不至于，真有意思的企划holoan也是一片「质的大洪水」的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近期的恐怖游戏么
+
