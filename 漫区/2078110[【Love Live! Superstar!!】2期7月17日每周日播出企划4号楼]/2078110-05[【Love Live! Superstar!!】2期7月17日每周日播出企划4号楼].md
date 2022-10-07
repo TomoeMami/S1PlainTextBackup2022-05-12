@@ -13742,3 +13742,12 @@ rtc+1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是一点都不奇怪了
 
+
+
+*****
+
+####  darkendless  
+##### 7245#       发表于 2022-10-7 17:20
+
+这烂活整的，这一系列操作和动画搞成这样也不奇怪了，后面某些人可能觉得低俗=有趣，感觉根上就有问题。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
