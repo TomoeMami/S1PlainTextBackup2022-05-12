@@ -13751,3 +13751,21 @@ rtc+1
 
 这烂活整的，这一系列操作和动画搞成这样也不奇怪了，后面某些人可能觉得低俗=有趣，感觉根上就有问题。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 7246#       发表于 2022-10-7 17:26
+
+我之前还在想是不是中国人对这个动作比较敏感，日本人觉得有趣？但我看其他几个人的反应也不是“好啊我也试试”这么爽快啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 7247#       发表于 2022-10-7 17:26
+
+傻逼企划
+

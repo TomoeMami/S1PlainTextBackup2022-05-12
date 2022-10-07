@@ -6492,3 +6492,14 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 其实去年486后程准备期间也帮了很多但是一直没进编制，今年进了应该是给到确切的分工了，要不然这么多人要协调2个人搞不定的
 
+
+
+*****
+
+####  qesto  
+##### 2134#       发表于 2022-10-7 17:27
+
+ 本帖最后由 qesto 于 2022-10-7 17:32 编辑 
+
+又开运动会？现在都没人玩MC了早就看腻了呀<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
