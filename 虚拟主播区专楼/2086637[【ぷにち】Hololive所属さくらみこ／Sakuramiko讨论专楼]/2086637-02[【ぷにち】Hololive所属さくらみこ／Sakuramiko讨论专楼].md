@@ -6503,3 +6503,27 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 又开运动会？现在都没人玩MC了早就看腻了呀<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2135#         楼主| 发表于 2022-10-7 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你以为去年这个时候MC有人播吗
+
+反正搞了就有人会看，要不然你还想继续看同接腰斩的rust？
+
+*****
+
+####  qesto  
+##### 2136#       发表于 2022-10-7 17:40
+
+这种全员大联动不太爱看了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+筹划练习又花时间
+
+去年也没啥亮点，最后还来个强行平局<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+宁愿看miko solo播点新游戏也行
+
