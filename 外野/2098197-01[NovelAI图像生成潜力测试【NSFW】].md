@@ -1210,3 +1210,25 @@ novelai特色是结合gpt3，单独diffusion模型有啥用
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  断片集  
+##### 121#       发表于 2022-10-7 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791483&amp;ptid=2098197" target="_blank">大江户战士 发表于 2022-10-7 12:07</a>
+
+novelai特色是结合gpt3，单独diffusion模型有啥用</blockquote>
+我试了下，生成二次元图效果比隔壁hentai diffusion和waifu diffusion之类的效果好不少
+
+*****
+
+####  terminator1990  
+##### 122#       发表于 2022-10-7 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57775760&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-06 00:13:52</a>
+上传了用danbooru nsfw关键词加入prompt以后的生成的4张图，这完全是一批直出的四张图，我没有做任何cher ...</blockquote>对我这种KKP爱好者来说AI画下体现在还只是到不辣眼的程度，离逼真可用甚至有特色还是有很长的距离。看来想让AI画得又涩又真实还是要多喂图，但二刺螈图很多画师自己画那儿就画得不准确，能把下面画得好的还是不多。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

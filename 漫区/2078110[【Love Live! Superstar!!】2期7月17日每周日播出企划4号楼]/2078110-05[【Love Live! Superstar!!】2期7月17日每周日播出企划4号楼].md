@@ -13353,3 +13353,29 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  nufawneafg  
+##### 7212#       发表于 2022-10-7 12:22
+
+ 本帖最后由 nufawneafg 于 2022-10-7 12:25 编辑 
+
+所以说，这要开选举不还是香音传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那你要攒人头的话就另当别论了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 7213#       发表于 2022-10-7 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">写真销量不能决定人气，如果单论人气，肯定还是鱼吧，中日鲤友数量加起来的话
+
+*****
+
+####  aoaoaodedede  
+##### 7214#       发表于 2022-10-7 12:29
+
+粉丝结构不同，消费习惯和消费意愿也不同，比来比去就是看个乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

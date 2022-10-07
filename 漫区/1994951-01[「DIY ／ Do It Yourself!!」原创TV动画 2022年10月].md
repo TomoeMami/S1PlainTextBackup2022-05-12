@@ -926,3 +926,12 @@ purin可爱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一话APART的bgm留白稍显过多，配合一些意义不明的镜头和台词甚至差点看出怪味来了，后面才缓过来。
 
+
+
+*****
+
+####  Yalbsd  
+##### 80#       发表于 2022-10-7 12:24
+
+好看，画风也好喜欢
+

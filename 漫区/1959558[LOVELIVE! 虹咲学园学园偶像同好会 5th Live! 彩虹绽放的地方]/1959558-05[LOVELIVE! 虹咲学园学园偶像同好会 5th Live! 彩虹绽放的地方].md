@@ -166,3 +166,26 @@ CelticWhite
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6553#       发表于 2022-10-7 12:23
+
+『ラブライブ！虹ヶ咲学園スクールアイドル同好会』TVアニメ2期Blu-ray第6巻のジャケットイラストを初公開
+
+第6巻にはユニットライブA・ZU・NA公演DAY.2のチケット最速先行抽選申込券など豪華特典満載
+
+詳細はこちら：[https://lovelive-anime.jp/nijigasaki/bd2.php#bd06](https://lovelive-anime.jp/nijigasaki/bd2.php#bd06)
+<img src="https://p.sda1.dev/7/f2f6c35524fba8746fb186b8dbe38ae9/20221007_122242.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/fe83cd2d33d5a411fed2c830d291cb9b/20221007_122243.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 6554#       发表于 2022-10-7 12:24
+
+[https://twitter.com/alp315_d/status/1577506138182287365](https://twitter.com/alp315_d/status/1577506138182287365)
+<img src="https://p.sda1.dev/7/3e4208b6162cb654c1447ec7043ec0b8/20221007_122255.jpg" referrerpolicy="no-referrer">
+

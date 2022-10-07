@@ -447,3 +447,12 @@ Steam页面：[https://store.steampowered.com/app/1938010/WILD_HEARTS/](https://
 
 这封绘里的太刀侠是不是画反了？刀鞘在右左手拿刀，明明演示里都是刀鞘在左右手拿刀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bad_alloc  
+##### 258#       发表于 2022-10-7 12:28
+
+看起来怪怪的，动作系统看不出什么名堂来..
+
