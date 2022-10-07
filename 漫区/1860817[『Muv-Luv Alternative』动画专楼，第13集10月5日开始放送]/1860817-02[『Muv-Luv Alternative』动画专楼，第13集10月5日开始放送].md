@@ -372,3 +372,28 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 真心路人看不懂原作党看不爽
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1828#       发表于 2022-10-7 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798384&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 20:59</a>
+不要因为打的少就觉得不行啊
+
+不然这作品70年代的天朝军也不至于输了）
+
+光线种只有不打自己人和巢 ...</blockquote>
+好像黑之宣告的动画表现，光线级也不是百发百中
+
+而中国军队的表现，只能说是剧情需要。
+
+我国即使不敌beta也不至于缩到小岛上，陆地那么大战略纵深都作没了，缩到岛上有屁用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+只不过呢，要是我国不缩到岛上，拯救世界哪有日本人什么事情，哪凉快哪待着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+作品只能反映作者的水平。好像棋魂也是，专业旗手看里面的的棋谱水平也就那样。实际上是围棋顾问水平有限导致的。
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
