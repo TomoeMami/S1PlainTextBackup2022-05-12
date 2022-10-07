@@ -1391,3 +1391,12 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 辛辛苦苦搭建的空间站，毫无提示一 ...</blockquote>
 控制力千万不能超，超1点就光速被毛
 
+
+
+*****
+
+####  wwddrte  
+##### 127#       发表于 2022-10-7 13:51
+
+我的空间站也被抢了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">明明控制力有三十几点没用
+
