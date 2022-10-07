@@ -1401,3 +1401,19 @@ Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生
 
 看完了，大卫工具人属性太强了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  取个中文名  
+##### 3110#       发表于 2022-10-7 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57523254&amp;ptid=2069884" target="_blank">Mc凉月奏酱 发表于 2022-9-17 14:06</a>
+
+但是kiwi是先跟法拉第勾搭以后赚到lucy才发现这件事的
+
+在背叛这件事上她俩半斤八两 ...</blockquote>
+我个人倾向是法拉第告知kiwi团队中已经有人背叛了而策反kiwi的。
+
+当时法拉第已经和荒坂接触了，应该是知道田中身上其实是有资料的，但法拉第被男主这边告知没有资料。所以推测lucy已经背叛过团队了，多半因此被策反了。
+

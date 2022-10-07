@@ -6527,3 +6527,19 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 宁愿看miko solo播点新游戏也行
 
+
+
+*****
+
+####  holoan  
+##### 2137#         楼主| 发表于 2022-10-7 17:41
+
+要不你说不办了？以miko的性格你觉得有可能吗，除非真的遇到很大的不可抗力
+
+*****
+
+####  qesto  
+##### 2138#       发表于 2022-10-7 17:48
+
+那不好说，反响不好的话明年就改别的了那也说不定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
