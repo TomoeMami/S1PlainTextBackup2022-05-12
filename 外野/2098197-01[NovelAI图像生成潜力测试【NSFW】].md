@@ -2085,3 +2085,22 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 
 2022-10-8 00:34 上传
 
+
+
+*****
+
+####  莫夜戎  
+##### 186#       发表于 2022-10-8 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797107&amp;ptid=2098197" target="_blank">wjr89327cs 发表于 2022-10-7 19:58</a>
+
+AI：性欲原来是去是人类进步的生产力啊</blockquote>
+然后用虚假的性欲来奴隶人类是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  coobirufas  
+##### 187#       发表于 2022-10-8 00:58
+
+新世界<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
