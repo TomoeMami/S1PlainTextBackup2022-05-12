@@ -895,3 +895,14 @@ purin可爱
 说实话感觉有点蠢 ...</blockquote>
 你这是我爱发明吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普罗茶  
+##### 77#       发表于 2022-10-7 09:10
+
+<blockquote>藤宮はすみ 发表于 2022-10-7 06:47
+前面楼里漫画的画风看起来不错，这个动画的作画看起来非常的平面</blockquote>
+因为没怎么画影吧
+
