@@ -6583,3 +6583,17 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 啊对了，今年很可能分成3队，这样的话就很难3队平分了吧
 
+
+
+*****
+
+####  holoan  
+##### 2143#         楼主| 发表于 2022-10-7 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795428&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-10-7 18:19</a>
+
+这给弄成一年一次的全员大团建了</blockquote>
+是这样的，和马车那种单项竞技大会还不太一样，加上IDEN一起参加，长时间的活动，其中的意义已经超过了运动会本身内容
+
+所以说实际上观众是很期待的，推特上一个月前就有人在期待运动会了
+

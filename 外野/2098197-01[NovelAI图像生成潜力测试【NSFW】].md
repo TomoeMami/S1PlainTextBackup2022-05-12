@@ -1423,3 +1423,15 @@ pruned不影响质量，而且full里面也有，应该是因为有很多pt文�
 秒传 ...</blockquote>
 输出质量和分辨率关系很大吗，我在低分辨率用同样的prompt和你的图差好多
 
+
+
+*****
+
+####  断片集  
+##### 140#       发表于 2022-10-7 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795414&amp;ptid=2098197" target="_blank">很久就在那边l 发表于 2022-10-7 18:17</a>
+
+输出质量和分辨率关系很大吗，我在低分辨率用同样的prompt和你的图差好多 ...</blockquote>
+和分辨率比例关系还挺大，分辨率大小感觉同比例的话差别不是很大吧
+

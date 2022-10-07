@@ -13779,3 +13779,19 @@ rtc+1
 <img src="https://p.sda1.dev/7/2c877c6bb24da6eff109c5292f54b134/CMP_20221007175220575.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/47e41b9e4a3dd698f7f3bf0a53e8827d/CMP_20221007175252379.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 7249#       发表于 2022-10-7 18:24
+
+后知后觉，它是不是还想搞虚拟偶像来着，快快端上来罢，我可太想看看到底是什么层次上的草台<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7250#       发表于 2022-10-7 18:30
+
+但是每个团都不是同一个批人运营吧，星这批运营我觉得就是菜b垃圾又不自知
+
