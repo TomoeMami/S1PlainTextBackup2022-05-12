@@ -1074,3 +1074,64 @@ novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的
 
 我赞美AI的第一原因就是没有乱七八糟的走形和人体结构畸形
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 109#       发表于 2022-10-7 11:15
+
+好开<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  galekkomari  
+##### 110#       发表于 2022-10-7 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790642&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 10:45</a>
+
+novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的webui加载novelai的模型本地跑，只下anime ...</blockquote>
+提醒一下，Python里面这种文件是可以被埋暗桩的。
+
+<img src="https://img.saraba1st.com/forum/202210/07/111528ci8c8m3lkjjmbcx5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221006231208.png</strong> (90.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 11:15 上传
+
+在确认文件安全之前，最好不要在主要使用的电脑上调用模型。
+
+*****
+
+####  扎夫特议长  
+##### 111#       发表于 2022-10-7 11:18
+
+都不好意在这里回了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  mahoraga  
+##### 112#         楼主| 发表于 2022-10-7 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790931&amp;ptid=2098197" target="_blank">galekkomari 发表于 2022-10-7 11:15</a>
+
+提醒一下，Python里面这种文件是可以被埋暗桩的。
+
+在确认文件安全之前，最好不要在主要使用的电脑上调用 ...</blockquote>
+嗯，我也在查泄漏源头的时候看到这个帖子了，不过还是先载下来再说，至少先看看他们的代码。
+
+如果没问题我相信过几天novelai的复现版模型也会出了
+
+*****
+
+####  jojog  
+##### 113#       发表于 2022-10-7 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
