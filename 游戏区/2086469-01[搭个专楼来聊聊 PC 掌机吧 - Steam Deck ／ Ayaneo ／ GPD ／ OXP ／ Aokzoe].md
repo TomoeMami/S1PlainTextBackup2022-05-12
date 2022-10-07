@@ -4906,3 +4906,12 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 
 <img src="https://img.saraba1st.com/forum/202210/07/103220glm75shq11521mt5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asuss  
+##### 396#       发表于 2022-10-7 14:22
+
+不损耗性能的前提下，能和deck比的应该只有geek了吧，就怕到时候实际价格根本不是什么4399
+
