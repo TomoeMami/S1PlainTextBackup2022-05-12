@@ -1538,3 +1538,24 @@ Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Mod
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老爸老妈哥哥妹妹都可以是黄油大师，只要用AI，人人都可以满足自己的性癖！
 
+
+
+*****
+
+####  mahoraga  
+##### 149#         楼主| 发表于 2022-10-7 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795920&amp;ptid=2098197" target="_blank">kenqqex 发表于 2022-10-7 19:00</a>
+
+(masterpiece:1.1025), shiny skin, school uniform, walking, town, small breasts, exposure, from side ...</blockquote>
+这个我昨天看过一下代码，本来以为可以配置，结果发现好像是由clip的模型决定的，我今天再看下有没有方法改
+
+*****
+
+####  mw1014  
+##### 150#       发表于 2022-10-7 19:31
+
+写网文的搞封面岂不是轻轻松松
+
+—— 来自 Xiaomi 2206123SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

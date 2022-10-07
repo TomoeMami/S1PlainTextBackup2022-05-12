@@ -6661,3 +6661,12 @@ holoan对任何企划都有意见，那怎么办什么企划都别办了最好�
 那也不至于，真有意思的企划holoan也是一片「质的大洪水」的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近期的恐怖游戏么
 
+
+
+*****
+
+####  holoan  
+##### 2150#         楼主| 发表于 2022-10-7 19:22
+
+不是，你不太了解5ch，所谓的质其实很多时候是反讽
+

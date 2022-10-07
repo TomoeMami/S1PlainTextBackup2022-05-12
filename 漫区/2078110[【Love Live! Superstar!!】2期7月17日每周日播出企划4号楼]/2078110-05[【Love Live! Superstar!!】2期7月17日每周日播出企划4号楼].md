@@ -13891,3 +13891,63 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  离心  
+##### 7261#       发表于 2022-10-7 19:27
+
+屁话还行
+
+*****
+
+####  稀勢のささ  
+##### 7262#       发表于 2022-10-7 19:27
+
+好强的攻击性
+
+*****
+
+####  kata魂  
+##### 7263#       发表于 2022-10-7 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">短发元气角色被毁的那么惨，
+
+多合适…
+
+*****
+
+####  iuhehc  
+##### 7264#       发表于 2022-10-7 19:28
+
+锐评
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 7265#       发表于 2022-10-7 19:28
+
+鲤鱼锐评石蒜
+
+*****
+
+####  ads147147  
+##### 7266#       发表于 2022-10-7 19:28
+
+鲤鱼：莉珂莉丝最后说的p话
+鲤鱼：是放p的p哦
+
+放飞了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 7267#       发表于 2022-10-7 19:32
+
+就蒜这样的都能这么强攻击性了，那星2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
