@@ -1167,3 +1167,21 @@ Do It Yourself!!
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  堆雪若叶  
+##### 96#       发表于 2022-10-8 07:16
+
+看了下漫画才反应过来青梅外号叫布丁是和打印机谐音，全名就是3D打印<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后再回头看cast表才发现这片子怎么全放的是角色外号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 97#       发表于 2022-10-8 07:18
+
+小儿佝偻病能玩电动工具吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
