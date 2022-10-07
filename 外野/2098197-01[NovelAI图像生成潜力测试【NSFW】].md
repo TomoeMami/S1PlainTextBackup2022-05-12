@@ -1559,3 +1559,54 @@ Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Mod
 
 —— 来自 Xiaomi 2206123SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  断片集  
+##### 151#       发表于 2022-10-7 19:48
+
+<img src="https://img.saraba1st.com/forum/202210/07/194716g77ycc72ccz8c728.png" referrerpolicy="no-referrer">
+
+<strong>00691-125228575-(masterpiece_1.157625), ((hu_tao)), 1girl,.png</strong> (62.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/194720bf94s4sv4r4sorms.png" referrerpolicy="no-referrer">
+
+<strong>00692-125228576-(masterpiece_1.157625), ((hu_tao)), 1girl,.png</strong> (48.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/194723n1n0o03wjnzzonmv.png" referrerpolicy="no-referrer">
+
+<strong>00693-125228577-(masterpiece_1.157625), ((hu_tao)), 1girl,.png</strong> (63.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/194729z7khs9z7sln3xtkz.png" referrerpolicy="no-referrer">
+
+<strong>00694-125228578-(masterpiece_1.157625), ((hu_tao)), 1girl,.png</strong> (44.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/194751zuuxxuxbx1q11uhq.png" referrerpolicy="no-referrer">
+
+<strong>00698-125228582-(masterpiece_1.157625), ((hu_tao)), 1girl,.png</strong> (53.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:47 上传
+
+生成了几张胡桃，感觉把手修修就能直接拿去当轻小说插画了
+
+起码就我看过的轻小说，大部分插画水平还没这个高呢
+
