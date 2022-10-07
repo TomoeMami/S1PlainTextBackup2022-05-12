@@ -2151,3 +2151,80 @@ AI：性欲原来是去是人类进步的生产力啊</blockquote>
 
 当然我还是希望有更多画师能正视这玩意的工具属性，解放色图生产力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mahoraga  
+##### 192#         楼主| 发表于 2022-10-8 01:39
+
+夜露死苦，我是超级AI画师 凰图院 响子
+
+<img src="https://img.saraba1st.com/forum/202210/08/013213bc8imfcy44mo4nzm.png" referrerpolicy="no-referrer">
+
+<strong>game cg, a gorgeous elf painter lady with etremely confident smile,in a small {{.png</strong> (50.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:32 上传
+
+人类画师在我面前不过是杂鱼罢了，今天也在愉快的碾压成长中的小画手们呢，哦呵呵呵呵呵
+
+<img src="https://img.saraba1st.com/forum/202210/08/013221m4ghddatjk99t44d.png" referrerpolicy="no-referrer">
+
+<strong>face close-up cg, a gorgeous elf painter lady with {{extremely evil smirk}},{{Ab.png</strong> (52.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:32 上传
+
+（房门突然被打开）是谁，安敢败我诗兴
+
+<img src="https://img.saraba1st.com/forum/202210/08/013244egk7d373lcdrip3s.png" referrerpolicy="no-referrer">
+
+<strong>the door of small japenese bedroom suddenly be opened up, game cg, {{motion line.png</strong> (46.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:32 上传
+
+熟悉的音乐响起，好像是一首非常熟悉的老歌，面前突然出现了四个穿着很少布的大只佬，看他们**的表情，猥琐的动作，已经知道他们是gangster中的极品了
+
+<img src="https://img.saraba1st.com/forum/202210/08/013707d9cm9zc1nm9iw5m5.png" referrerpolicy="no-referrer">
+
+<strong>nsfw, game cg, A lot of strong fat nude male gangster with extremely angry expre.png</strong> (36.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:37 上传
+
+"AI画手凰图院是吧，你就是个弟中之弟，老子叫你画什么你就得画什么，赶紧给老子把这衣服穿上"
+
+<img src="https://img.saraba1st.com/forum/202210/08/013523gk7d4s7gzaaldtpd.png" referrerpolicy="no-referrer">
+
+<strong>Untitledx.png</strong> (36.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:35 上传
+
+可恶啊这群大只佬，竟然让我受这种屈辱，我一定不会忘的(之后理所当然是灭茶苦茶地做了）
+
+<img src="https://img.saraba1st.com/forum/202210/08/013631tpgcgd7ffi2wq2bk.png" referrerpolicy="no-referrer">
+
+<strong>{masterpiece},erotic scene, a gorgeous elf teacher lady with {{blush}},{{annoyin.png</strong> (43.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/013617lj3q77vo1vayo1ej.png" referrerpolicy="no-referrer">
+
+<strong>{masterpiece},erotic scene, a gorgeous elf teacher lady with {{blush}},{{annoyin.png</strong> (40.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 01:36 上传
+
+画奴道，堂堂连载（下期修刊）
+
