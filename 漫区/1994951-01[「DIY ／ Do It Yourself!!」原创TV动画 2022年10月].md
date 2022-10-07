@@ -879,3 +879,19 @@ purin可爱
 
 前面楼里漫画的画风看起来不错，这个动画的作画看起来非常的平面
 
+
+
+*****
+
+####  hellightning  
+##### 76#       发表于 2022-10-7 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789197&amp;ptid=1994951" target="_blank">Mc凉月奏酱 发表于 2022-10-7 06:14</a>
+
+估计会有女主的社团和布丁的某个团体对抗
+
+搞一个什么“传统手工”VS“现代科技”的情节
+
+说实话感觉有点蠢 ...</blockquote>
+你这是我爱发明吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

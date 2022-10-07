@@ -13063,3 +13063,21 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 比起九人的始空，我更不想在这破动画里看到它出现，感觉剧情更配不上这歌。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7183#       发表于 2022-10-7 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789207&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-7 06:23</a>
+我的交响曲这首歌我还挺心情复杂的，本来是五人曲，是五个人的歌，五个人包括听众都可以在歌词中听到自己， ...</blockquote>
+心情差不多，曾经我以为私のsymphony这歌是五个人的共有曲，然后那个11集来了个香音solo，还好1巡没有真的搞成solo，live安排我觉得比动画好多了，不过现在看，所谓的“私”是不是就是指的香音呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 7184#       发表于 2022-10-7 08:46
+
+问个问题，为啥LL动画制作固定一个组做？现在即便是两个组整合后的情况也对现在的动画战略部署有点吃力。
+
