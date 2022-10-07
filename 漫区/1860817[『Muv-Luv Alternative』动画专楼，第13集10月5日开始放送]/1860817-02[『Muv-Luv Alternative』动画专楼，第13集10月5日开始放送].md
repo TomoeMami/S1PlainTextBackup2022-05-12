@@ -466,3 +466,15 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 十三 ...</blockquote>
 但是某个追加妹子把原本的一成员给踢掉了）
 
+
+
+*****
+
+####  hlazd  
+##### 1833#       发表于 2022-10-7 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800981&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 23:15</a>
+
+但是某个追加妹子把原本的一成员给踢掉了）</blockquote>
+有名有姓的成员都在，“替换”掉的本身也是个无名氏
+

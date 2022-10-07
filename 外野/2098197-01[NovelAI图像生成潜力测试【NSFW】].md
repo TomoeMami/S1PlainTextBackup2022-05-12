@@ -1913,3 +1913,35 @@ AI画的？那不是更好！
 加了vae和anime_3之后确实感觉和novelai差不多了，不过就是不知道为什么偶尔身体或者脸会崩，画女性的时 ...</blockquote>
 请问anime_3怎么加载？
 
+
+
+*****
+
+####  克图格亚  
+##### 177#       发表于 2022-10-7 23:29
+
+<img src="https://img.saraba1st.com/forum/202210/07/232834y45fz5kpz5cljpp5.png" referrerpolicy="no-referrer">
+
+<strong>ai作画白毛美少女20221007-01.png</strong> (111.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 23:28 上传
+
+1girl, solo, highly detailed, upper full body, cool image, white hair, long hair, slim legs,highly drawn hands,big tight breasts,white yellow coat, masterpiece, jitome, empty eyes, goddess, white cape,persona 5, partly colored, official art, red background,line art
+
+Negative prompt: multiple breasts,(mutated hands and fingers :1.5),(long body :1.3),(mutation ,poorly drawn :1.2), bad anatomy disfigured malformed mutated, anatomical nonsense, text font ui, malformed hands, long neck, missing limb,Sleeveles
+
+Steps: 70, Sampler: Euler a, CFG scale: 10, Seed: 2195173925, Face restoration: CodeFormer, Size: 768x1280, Model hash: 1d4a34af, Denoising strength: 0.7
+
+Time taken: 92.16s
+
+Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
+
+*****
+
+####  北冥有雨  
+##### 178#       发表于 2022-10-7 23:30
+
+我有一个问题，ai能画碧蓝航线那种表情差分吗，有无产品可看
+

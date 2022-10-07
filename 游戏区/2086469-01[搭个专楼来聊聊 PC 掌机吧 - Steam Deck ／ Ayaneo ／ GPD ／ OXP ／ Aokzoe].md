@@ -5001,3 +5001,24 @@ steam deck的主要优势是steam os吗？翻了下版里几个帖子，steam de
 
 steam deck和国产win掌机哪个更适合作为闲暇时的玩具倒腾下呢
 
+
+
+*****
+
+####  Fuero  
+##### 404#       发表于 2022-10-7 23:24
+
+ 本帖最后由 Fuero 于 2022-10-7 23:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800743&amp;ptid=2086469" target="_blank">requiem116 发表于 2022-10-7 23:03</a>
+
+研究了一转，steam deck 64g的加上转运，税，换ssd啥的，合计下来也要快4k了？
+
+看了下咸鱼上的奥克5100左右 ...</blockquote>
+基本上6800U的国产win掌机性能都比SD高不少，屏幕更是好很多，原生运行windows无学习成本，而且貌似现在新出的都能刷steamos；
+
+当然作为一个SD用户，SD在低功耗（指10w以下）的表现我很满意（版里另一个帖子就是我开的），而且系统好用到我不想用windows双系统；
+
+说到触控板，如果你玩的steam游戏有鼠标操作部分，那它解决了0到1的问题：你可以直接右手大拇指滑动，然后随便指定按键（比如R2）来模拟鼠标点击
+
+比如深海迷航、背包英雄
+
