@@ -1630,3 +1630,22 @@ AI：性欲原来是去是人类进步的生产力啊
 对我这种KKP爱好者来说AI画下体现在还只是到不辣眼的程度，离逼真可用甚至有特色还是有很长的距离。看来想 ...</blockquote>
 能不能用三次元局部图片二次元风格化后训练？
 
+
+
+*****
+
+####  命运の审判官  
+##### 154#       发表于 2022-10-7 20:15
+
+可以给定一个人设然后绘柄相对稳定的出图么？如果能做到这个就nb了。
+
+*****
+
+####  大江户战士  
+##### 155#       发表于 2022-10-7 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795920&amp;ptid=2098197" target="_blank">kenqqex 发表于 2022-10-7 19:00</a>
+
+(masterpiece:1.1025), shiny skin, school uniform, walking, town, small breasts, exposure, from side ...</blockquote>
+NAI的CLIP是修改过的，wd1.4也要学NAI改CLIP了，
+
