@@ -935,3 +935,17 @@ purin可爱
 
 好看，画风也好喜欢
 
+
+
+*****
+
+####  口袋九尾  
+##### 81#       发表于 2022-10-7 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57786081&amp;ptid=1994951" target="_blank">稀勢のささ 发表于 2022-10-6 21:28</a>
+
+女主这个没事就受伤的设定真的没问题吗</blockquote>
+做手工小伤满常见的，不处理大东西，小伤再多也不会断手断脚啥的
+
+瞎眼或者身上多几个孔还是很可能的……看女主从小到大运气很好没少过肉，后面可能还会有描写防护装备的吧
+
