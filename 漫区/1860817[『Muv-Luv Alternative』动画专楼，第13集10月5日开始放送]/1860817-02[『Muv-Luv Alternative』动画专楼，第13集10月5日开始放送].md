@@ -305,3 +305,21 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 你看他笑得多开心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/3d81cb5117ce1bf4bc14c04a743e431e/20221006_144845.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Toby_dak  
+##### 1822#       发表于 2022-10-7 08:39
+
+这话好慢啊，按这节奏第三话才冥场面？
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ardito  
+##### 1823#       发表于 2022-10-7 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教官军衔怎么那么低啊
+

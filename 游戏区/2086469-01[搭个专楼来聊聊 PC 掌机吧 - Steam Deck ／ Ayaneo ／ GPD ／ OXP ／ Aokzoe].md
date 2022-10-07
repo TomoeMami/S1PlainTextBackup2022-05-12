@@ -4853,3 +4853,12 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 
 看了b站上奥克的拆解，真就大号塑料垃圾，里面的布局和飞线感觉像是义乌小商品的水平，难怪好多反场，不知道真正原因是不是真的“少了一行代码”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小泉花陽  
+##### 392#       发表于 2022-10-7 08:38
+
+昨天拿到了奥克，结果我这台有wifi断连的问题，经常游戏下一半断连，用了客服给的修复驱动也没用，加了个玩家自建的售后反馈群，真的就是各种花屏闪退断wifi，这厂真就一点质检都不做的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
