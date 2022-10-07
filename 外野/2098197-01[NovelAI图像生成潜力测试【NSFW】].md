@@ -1232,3 +1232,31 @@ novelai特色是结合gpt3，单独diffusion模型有啥用</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  mahoraga  
+##### 123#         楼主| 发表于 2022-10-7 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791737&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 12:29</a>
+
+我试了下，生成二次元图效果比隔壁hentai diffusion和waifu diffusion之类的效果好不少 ...</blockquote>
+晚上载好了我也来试试，我感觉waifu diffusion主要还是我没大力调，可能需要相对复杂点的prompt或者参数，我看其他楼里waifu diffusion出的图比我自己试的要好不少，晚点再整一些新画师和关键词试试
+
+不过novelai的效果确实要比目前开源的模型好上一截，讲道理danbooru的资源其他开源模型也在用，不知道它有没有加什么其他技巧，leak有代码的话感觉可以学习一个
+
+*****
+
+####  mahoraga  
+##### 124#         楼主| 发表于 2022-10-7 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791769&amp;ptid=2098197" target="_blank">terminator1990 发表于 2022-10-7 12:32</a>
+
+对我这种KKP爱好者来说AI画下体现在还只是到不辣眼的程度，离逼真可用甚至有特色还是有很长的距离。看来想 ...</blockquote>
+目前展示的其实还是一分钟色图模式，如果愿意投入更多时间，比如自己画个简单的草图， 辅助下AI修图，或者其实更简单，从网上截一张自己喜欢的批照贴进去让AI融合<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，效果还会更好
+
+另外一种更深入的方法是现在sd提供了text inversion的功能，就是可以学习新关键词或者新概念，可以选择导入大量高清批照让模型专门学，提升就会很快。目前我已经看到有人在做手部生成的专门优化了
+
+只能说现在社区热情太高涨了，新功能新能力层出不穷，一日千里啊<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
