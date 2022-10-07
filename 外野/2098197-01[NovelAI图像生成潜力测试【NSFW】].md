@@ -1690,3 +1690,47 @@ novelai能（被强制)开源实在是太令人感动了<img src="https://static
 可以用发色发型瞳色衣服类型饰品这些角度尽可能锁定人设，画风的画prompt里写详细点应该也是比较稳定的, ...</blockquote>
 我看了一下几个相关帖子大概了解了。我最期待的是，以后画师只需要给定一个人设图，然后通过img2img技术以这个人设图为基础生成各种姿态各种角度的图片。
 
+
+
+*****
+
+####  mahoraga  
+##### 160#         楼主| 发表于 2022-10-7 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797737&amp;ptid=2098197" target="_blank">命运の审判官 发表于 2022-10-7 20:27</a>
+
+我看了一下几个相关帖子大概了解了。我最期待的是，以后画师只需要给定一个人设图，然后通过img2img技术 ...</blockquote>
+这个其实不能靠img2img，最好是画师给个三视图或者多几张姿态的图，然后用Textual inversion学习这个人设的概念，训练成功的话后面只要加入这个关键词就可以出这个人设了，就好像我昨天画申鹤皇图一样，根本没描述外貌只是用了shenhe这个关键词
+
+*****
+
+####  Rary  
+##### 161#       发表于 2022-10-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797717&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-7 20:26</a>
+
+novelai能（被强制)开源实在是太令人感动了
+
+据说黑客老哥用了一个0-day漏洞才爆了novelai的菊， ...</blockquote>
+现在泄露的据说是老版本的，泄露者说会放出新版本，但现在还没动静。
+
+*****
+
+####  四宫家印  
+##### 162#       发表于 2022-10-7 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797433&amp;ptid=2098197" target="_blank">sakura79 发表于 2022-10-7 20:12</a>
+能不能用三次元局部图片二次元风格化后训练？</blockquote>
+真人的不一定有画的好看（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  pandaman7777  
+##### 163#       发表于 2022-10-7 20:35
+
+这样太强了，叹为观止<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的只要修修手就能用了
+
