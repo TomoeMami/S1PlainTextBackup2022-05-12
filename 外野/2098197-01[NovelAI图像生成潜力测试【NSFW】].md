@@ -1180,3 +1180,22 @@ novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">赞美科技
 
+
+
+*****
+
+####  Gundamslave  
+##### 118#       发表于 2022-10-7 12:04
+
+开源万岁
+
+*****
+
+####  大江户战士  
+##### 119#       发表于 2022-10-7 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790642&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 10:45</a>
+
+novelai的模型和源码全泄漏了，有兴趣的可以用stable diffusion的webui加载novelai的模型本地跑，只下anime ...</blockquote>
+novelai特色是结合gpt3，单独diffusion模型有啥用
+
