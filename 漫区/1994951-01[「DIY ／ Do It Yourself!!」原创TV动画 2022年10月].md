@@ -1156,3 +1156,14 @@ Do It Yourself!!
 
 顺便这个青梅还挺喜欢水母的，房间墙上海报是水母，家里的机器人也是水母形。
 
+
+
+*****
+
+####  MiaoJi  
+##### 95#       发表于 2022-10-8 07:05
+
+挺适合动画的人设<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">动起来很不错
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
