@@ -13143,3 +13143,32 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 水渚鱼这俩在干嘛？一起考古么
 
+
+
+*****
+
+####  Enakina  
+##### 7193#       发表于 2022-10-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790083&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-7 09:47</a>
+水渚鱼这俩在干嘛？一起考古么</blockquote>
+推特出bug了？
+
+*****
+
+####  iuhehc  
+##### 7194#       发表于 2022-10-7 09:52
+
+伊达大叔还是厉害
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 7195#       发表于 2022-10-7 09:55
+
+<blockquote>Enakina 发表于 2022-10-7 09:52
+推特出bug了？</blockquote>
+在给之前的照片点赞，我还以为是我出了问题
+
