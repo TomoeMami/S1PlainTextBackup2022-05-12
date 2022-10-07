@@ -13303,3 +13303,12 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 管人同接都能斗虫，这种实打实的销量当然能斗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">要大斗特斗，粉丝获得斗虫胜利带来的精神上的快感，官方收获了money，winwin啊
 
+
+
+*****
+
+####  nufawneafg  
+##### 7207#       发表于 2022-10-7 11:53
+
+有点牛逼，之前小奶8k来着还是低估了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
