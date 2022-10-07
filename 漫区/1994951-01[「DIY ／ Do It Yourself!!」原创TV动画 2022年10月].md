@@ -1063,3 +1063,54 @@ Do It Yourself!!
 何卒、よろしくお願いします！
 <img src="https://p.sda1.dev/7/d66f74efdf01ba3394a9d8266d3a2b61/20221007_221236.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 89#       发表于 2022-10-8 00:22
+
+笨手笨脚的self因为成绩太差没能和教科书式的傲娇青梅步入同一校园结果意外遇上了娘化版手工耿？！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/08/000037qpv1af3f3cfaiopv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (363.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:00 上传
+
+主角这名字起的，结爱己，和odd eye异曲同工。
+
+布丁：你加入了什么社团？小己：DIY部，Do It Yourself！布丁：啥？Doi  结爱己？！😱其实我早就想。。。可恶，谁要和你doi啦！！！小己 no 八嘎！😖布丁女士有种败犬预定的感觉，坐等天降登场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/08/000850on9rtm85mu6289cu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/002141yan3k5zqk3a2h3d1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 00:21 上传
+
+做梦都在yy肌肤之亲，嗦嗦，噢，好味道💗
+
+己想做个长椅最终是为了嗦青梅布丁手指？你这心机姛！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+才发现这是原创动画，你说这是芳文轻百漫改我也信，很标准的Cute Girls Doing Cute Things，不过第一集观感意外的轻松惬意，和隔壁秋叶原一样感觉会成黑马，追了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 90#       发表于 2022-10-8 00:31
+
+真好啊，直接连看了两遍。感觉甚至连一些犄角旮旯的地方都迷之对胃口。第一集节奏很舒服，希望以后人多起来后还能保持这个感觉，不要太吵了。
+女主这个外形，正片里居然是软萌冒失娘，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
