@@ -1945,3 +1945,15 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 
 我有一个问题，ai能画碧蓝航线那种表情差分吗，有无产品可看
 
+
+
+*****
+
+####  断片集  
+##### 179#       发表于 2022-10-7 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801303&amp;ptid=2098197" target="_blank">北冥有雨 发表于 2022-10-7 23:30</a>
+
+我有一个问题，ai能画碧蓝航线那种表情差分吗，有无产品可看</blockquote>
+生成图后，用inpaint画遮罩把脸遮住，再换关键字生成新脸应该就行了
+
