@@ -13795,3 +13795,23 @@ rtc+1
 
 但是每个团都不是同一个批人运营吧，星这批运营我觉得就是菜b垃圾又不自知
 
+
+
+*****
+
+####  nufawneafg  
+##### 7251#       发表于 2022-10-7 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57795582&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-7 18:30</a>
+但是每个团都不是同一个批人运营吧，星这批运营我觉得就是菜b垃圾又不自知 ...</blockquote>
+所以我想看看是什么层次上的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7252#       发表于 2022-10-7 18:37
+
+nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
