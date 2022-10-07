@@ -929,3 +929,21 @@ https://1drv.ms/u ...</blockquote>
 
 STEAM那些低劣的黄油看来就是AI量产的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  セト  
+##### 95#       发表于 2022-10-7 09:42
+
+鸡和蛋搞反了
+
+是先有大量量产画风的黄图 才有喂出来的AI
+
+*****
+
+####  新吾  
+##### 96#       发表于 2022-10-7 09:42
+
+想整个来给自己画图，novelAI对本地自机有什么要求吗，还是直接上传构图然后填tag然后等对面服务器处理完下载就可以？
+
