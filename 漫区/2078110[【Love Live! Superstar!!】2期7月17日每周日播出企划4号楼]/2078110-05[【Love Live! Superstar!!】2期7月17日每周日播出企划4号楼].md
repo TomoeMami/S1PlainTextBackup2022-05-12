@@ -13951,3 +13951,62 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 就蒜这样的都能这么强攻击性了，那星2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7268#       发表于 2022-10-7 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57796523&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-7 19:32</a>
+就蒜这样的都能这么强攻击性了，那星2</blockquote>
+星二没看，就看了石蒜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 7269#       发表于 2022-10-7 19:34
+
+实际上是指桑骂槐
+
+一个短发阳光系，叫chisato的，两个人在动画里都再说什么屁话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  nufawneafg  
+##### 7270#       发表于 2022-10-7 19:35
+
+坛友的想象力我一向是佩服的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7271#       发表于 2022-10-7 19:35
+
+毕竟是自己的工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+刚刚弹幕“夫妇恋人作画好像不太行”
+鲤鱼：这我也不清楚呢 微笑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 7272#       发表于 2022-10-7 19:40
+
+酸菜鱼还没消息，难受了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6670,3 +6670,14 @@ holoan对任何企划都有意见，那怎么办什么企划都别办了最好�
 
 不是，你不太了解5ch，所谓的质其实很多时候是反讽
 
+
+
+*****
+
+####  qesto  
+##### 2151#       发表于 2022-10-7 19:40
+
+反讽还是真的那还是看的出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有，说质不一定是真质，但是说质なし那就是真的不质了
+
