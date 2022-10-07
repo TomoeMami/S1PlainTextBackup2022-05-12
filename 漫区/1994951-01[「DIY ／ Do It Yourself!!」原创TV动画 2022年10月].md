@@ -1004,3 +1004,62 @@ purin可爱
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 87#         楼主| 发表于 2022-10-7 22:12
+
+4卷，共12话
+
+主题歌封面（OP分镜&amp;#xB7;演出「新井阳次郎」绘），11月16日发售，
+
+OP：「どきどきアイデアをよろしく！」
+
+ED：「続く話」
+
+＼OPED発売決定！／
+
+OPテーマ｢どきどきアイデアをよろしく！｣･EDテーマ｢続く話｣フルver.を収録したCDが11/16(水)発売
+
+ジャケットはOPコンテ・演出を手掛けている #新井陽次郎 描きおろし
+
+今すぐチェック!!
+<img src="https://p.sda1.dev/7/0ebf26f45c627a94d395766e8518b7ab/20221007_221124.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 88#         楼主| 发表于 2022-10-7 22:16
+
+[https://twitter.com/Hamha_S/status/1577676317432369152](https://twitter.com/Hamha_S/status/1577676317432369152)
+<img src="https://p.sda1.dev/7/0e79a0c6504ffb361fb1947837398998/20221007_221249.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/_aniihs_/status/1577682575295844352](https://twitter.com/_aniihs_/status/1577682575295844352)
+<img src="https://p.sda1.dev/7/85cc7f97083ad1bf2958c654a1b920f7/20221007_221330.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/osakanagazoubot/status/1577747805753339904](https://twitter.com/osakanagazoubot/status/1577747805753339904)
+<img src="https://p.sda1.dev/7/8b535c8d30cc4996b9a096529615f44d/20221007_221334.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/lexisthere87/status/1577675043924246528](https://twitter.com/lexisthere87/status/1577675043924246528)
+<img src="https://p.sda1.dev/7/7c9b1494ec9094027ef6eab3f3155839/20221007_221246.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/__ria_iks/status/1577689562523967488](https://twitter.com/__ria_iks/status/1577689562523967488)
+
+DIY放送スタートしましたー！！
+
+１話はお仕事出来てませんがこれからの話数で色々やってます
+
+1クール宜しくお願いします！！
+<img src="https://p.sda1.dev/7/8290fdd68e26398c3d7d068916ce1c16/20221007_221239.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/youjohan_me/status/1577689110923210752](https://twitter.com/youjohan_me/status/1577689110923210752)
+
+Do It Yourself!!
+
+1話の原画やっております！
+
+何卒、よろしくお願いします！
+<img src="https://p.sda1.dev/7/d66f74efdf01ba3394a9d8266d3a2b61/20221007_221236.jpg" referrerpolicy="no-referrer">
+
