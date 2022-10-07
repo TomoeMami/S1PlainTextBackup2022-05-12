@@ -1957,3 +1957,40 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 我有一个问题，ai能画碧蓝航线那种表情差分吗，有无产品可看</blockquote>
 生成图后，用inpaint画遮罩把脸遮住，再换关键字生成新脸应该就行了
 
+
+
+*****
+
+####  断片集  
+##### 180#       发表于 2022-10-7 23:41
+
+<img src="https://img.saraba1st.com/forum/202210/07/234035qlc6h7gcc977j4w8.jpg" referrerpolicy="no-referrer">
+
+<strong>xy_grid-0000-2152502158-masterpiece, hu_tao, 1girl.jpg</strong> (350.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 23:40 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/234040qebxeaxl44e48bbt.jpg" referrerpolicy="no-referrer">
+
+<strong>newxy_grid-0001-1-masterpiece, raiden_shogun , 1girl.jpg</strong> (334.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 23:40 上传
+
+说实话我还是更喜欢没加载那几个pt文件的版本……
+
+
+
+*****
+
+####  silist  
+##### 181#       发表于 2022-10-7 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801550&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 23:41</a>
+
+说实话我还是更喜欢没加载那几个pt文件的版本……</blockquote>
+求下这两张的prompts，感觉生成图的平均质量都挺高的
+

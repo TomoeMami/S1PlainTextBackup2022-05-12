@@ -14360,3 +14360,16 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 
 这也千佛啊，还以为跑错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7299#       发表于 2022-10-7 23:51
+
+11集吵架了快一整周，12集还有马上接生放送，我看会腥风血雨。
+
+还有vn是不是三期生也要定下来了。代哥没把新的两首曲子放anisong列表里，真是草台。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
