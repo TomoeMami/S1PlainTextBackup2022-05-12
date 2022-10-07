@@ -4938,3 +4938,14 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 看来GPD那么嚣张还是有点底气</blockquote>
 一号本的实际做工都比这个强多了，说白了奥克就套了一个壳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫煜  
+##### 399#       发表于 2022-10-7 19:03
+
+奥克和gpd感觉都有不少屏有问题的，也不知道6800u掌机是不是和屏幕犯冲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1520,3 +1520,12 @@ Steps: 28, Sampler: Euler a, CFG scale: 11, Seed: 2002320032, Size: 512x768, Mod
 
 还有另一个问题。就是这个【animefull-final-pruned】模型只能使用77个Token。和线上的（231个）有差距，希望有能人解析一下怎么才能变回231个。不然只能描述很少内容了
 
+
+
+*****
+
+####  shinna  
+##### 147#       发表于 2022-10-7 19:04
+
+现在可以加载pt文件了，效果又好了很多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

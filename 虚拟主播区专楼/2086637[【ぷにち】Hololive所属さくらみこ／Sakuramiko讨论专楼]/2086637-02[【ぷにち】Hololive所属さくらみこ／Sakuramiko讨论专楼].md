@@ -6608,3 +6608,34 @@ C894M~}VCS0TB}34%@X@ZWF.jpg
 
 holoan里对运动会有意见的也不少就是了
 
+
+
+*****
+
+####  holoan  
+##### 2145#         楼主| 发表于 2022-10-7 19:01
+
+holoan对任何企划都有意见，那怎么办什么企划都别办了最好？
+
+*****
+
+####  holoan  
+##### 2146#         楼主| 发表于 2022-10-7 19:03
+
+就算5ch满打满算100人有意见，你跟表民的数量比个意思呢
+
+<img src="https://img.saraba1st.com/forum/202210/07/190258pc0o0bto70bcx69d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:02 上传
+
+*****
+
+####  rs5621  
+##### 2147#       发表于 2022-10-7 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">办都办了，看看接下来的操作吧
+

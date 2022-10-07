@@ -13839,3 +13839,21 @@ nagi哪怕喜欢整活也不至于这样。果然上头的大人脑子有病
 虽然说远了，但我也是这么认为，这种决策根本就没有像好好做市场调查的样子<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 当然到现在各种方面看下来策划不正常也挺正常的就是了（我在说什么
 
+
+
+*****
+
+####  player3960  
+##### 7255#       发表于 2022-10-7 19:05
+
+经典迟到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 7256#       发表于 2022-10-7 19:07
+
+这次居然迟到这么久
+

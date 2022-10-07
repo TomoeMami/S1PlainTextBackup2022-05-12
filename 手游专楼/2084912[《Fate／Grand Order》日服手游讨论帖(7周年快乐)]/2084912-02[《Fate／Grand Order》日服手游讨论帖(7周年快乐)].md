@@ -16062,3 +16062,12 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 当然，队长和沸羊羊太正直也是一个原因，从头到脚只会给自己加管血，然后及时加攻加攻加暴击，唯一会给我方的debuff就是个倍率不高的恢复量降低。也就是最后一管血的概率无敌沾点阴间要素，和前面的毛兔、希腊人形成鲜明对比。甚至一场打下来感觉对面还不如我方两个助战来的阴间。老福不打强化本也就算了，甚至都不肯交三个结晶把技能点满。什么？老福就是25仔，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 2930#       发表于 2022-10-7 19:11
+
+这次美神本最有用的插件应该就是圣诞马尔达，但是这位可以预见的又不会复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁也是现在才反应过来RTS这个又是加倍血量主线本、又是挤压复刻活动时间的企划是多么脑残了
+

@@ -13932,3 +13932,14 @@ tyijiao
 键头触发动作的逻辑和下划侧滑派生不一样的，箭头那些都可以滑动后按住不松手，判定也很松能大幅度提前输 ...</blockquote>
 然后就直接变成后step了。
 
+
+
+*****
+
+####  dookiee  
+##### 7360#       发表于 2022-10-7 19:04
+
+在ba群疯狂吃群友安利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跑来问问现在这个游戏入坑成本高不高，如果是那种追一辈子进度那就算了
+
+—— 来自 OPPO PBEM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
