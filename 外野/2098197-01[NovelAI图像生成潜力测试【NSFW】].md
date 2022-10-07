@@ -1326,3 +1326,22 @@ nai的clip增加了token上限，waifu diffusion1.4也有样学样增加了上�
 回家用我的3090试试</blockquote>
 3090有24g显存应该是没问题的，我在笔记本8G显存上测，768*512大概会用掉六千多mb的显存
 
+
+
+*****
+
+####  terminator1990  
+##### 131#       发表于 2022-10-7 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791863&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-07 12:42:04</a>
+目前展示的其实还是一分钟色图模式，如果愿意投入更多时间，比如自己画个简单的草图， 辅助下AI修图，或 ...</blockquote>可以做专项训练这是真滴不错，真是勃勃生机万物竞发啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Tr火药味  
+##### 132#       发表于 2022-10-7 13:06
+
+新的时代……
+
