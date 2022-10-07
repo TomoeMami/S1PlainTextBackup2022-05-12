@@ -397,3 +397,36 @@ ED还可以啊。不过我看羲和说op画面吃设定的问题总感觉有些�
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1829#       发表于 2022-10-7 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799313&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-7 21:49</a>
+
+好像黑之宣告的动画表现，光线级也不是百发百中
+
+而中国军队的表现，只能说是剧情需要。</blockquote>
+射出去基本是百发百中（越远越难躲）
+
+不过混战有其他beta当掩体取消光线级的射击，威胁没那么大
+
+小麻在自己第一次战斗差点死了，在对面开火的一刹那被自己队友推出去才幸免
+
+*****
+
+####  再买自检星剁手  
+##### 1830#       发表于 2022-10-7 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57799665&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 22:06</a>
+射出去基本是百发百中（越远越难躲）
+
+不过混战有其他beta当掩体取消光线级的射击，威胁没那么大
+
+小麻在自 ...</blockquote>
+说起推出去想起第一季第一集了，小麻回忆杀读漫画的时候跳了，动画应该不会做这段（的吧）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
