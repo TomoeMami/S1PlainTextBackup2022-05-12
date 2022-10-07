@@ -2064,3 +2064,28 @@ img2img的效果还是蛮好的，自己构图能帮忙省很多时间，不过�
 
 那两张初音确实可以。
 
+
+
+*****
+
+####  Lcat  
+##### 139#       发表于 2022-10-7 19:58
+
+<img src="https://img.saraba1st.com/forum/202210/07/195754lwct51kgq100z0j5.jpg" referrerpolicy="no-referrer">
+
+<strong>-7f24e09726060be2.jpg</strong> (100.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202210/07/195754x2l46549rh225uv2.jpg" referrerpolicy="no-referrer">
+
+<strong>-66947006820182d.jpg</strong> (64.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-7 19:57 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

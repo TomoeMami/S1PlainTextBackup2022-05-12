@@ -6690,3 +6690,23 @@ holoan对任何企划都有意见，那怎么办什么企划都别办了最好�
 
 这个话题打住了，且不说5ch是臭水沟何况现在holo楼在叠代好几次之后跟以前的人员构成完全不一样了，基本没有参考价值
 
+
+
+*****
+
+####  qesto  
+##### 2153#       发表于 2022-10-7 19:54
+
+ 本帖最后由 qesto 于 2022-10-7 19:57 编辑 
+
+这才注意到芙宝什么时候把楼名的anti删了，那意思是以后不准anti了呗<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 2154#       发表于 2022-10-7 19:59
+
+改楼名因为miko开始出企划了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
