@@ -13679,3 +13679,14 @@ rtc+1
 —— 来自 S1Fun</blockquote>
 对，35:50开始
 
+
+
+*****
+
+####  ruffian  
+##### 7238#       发表于 2022-10-7 16:16
+
+我日他妈血压又上来了，这逼运营怎么老是整这些拉低我素质的烂活呢？她们要真是提前说好的我就当中日差异了，但是看nagi的说法和当时其他人的反应大概率是突然心血来潮让nagi带大家感受大地的，别说鲤鱼了制造这个梗的小熊都给干懵逼了。当初还看见好几个评论说因为这事对小熊失去好感，我看这傻逼运营真该给声优和观众跪下，再给声优一人磕仨响头<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
