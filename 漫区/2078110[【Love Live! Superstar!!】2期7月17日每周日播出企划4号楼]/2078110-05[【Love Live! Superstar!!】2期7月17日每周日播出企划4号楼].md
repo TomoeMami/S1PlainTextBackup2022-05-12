@@ -13632,3 +13632,15 @@ rtc+1
 —— 来自 S1Fun</blockquote>
 裂广播里Nagi说在后台接到指示，要表演跪下感受大地
 
+
+
+*****
+
+####  Kfly  
+##### 7234#       发表于 2022-10-7 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793494&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-7 15:26</a>
+裂广播里Nagi说在后台接到指示，要表演跪下感受大地</blockquote>
+………哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我的感想和你前面的一致
+
