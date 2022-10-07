@@ -1649,3 +1649,44 @@ AI：性欲原来是去是人类进步的生产力啊
 (masterpiece:1.1025), shiny skin, school uniform, walking, town, small breasts, exposure, from side ...</blockquote>
 NAI的CLIP是修改过的，wd1.4也要学NAI改CLIP了，
 
+
+
+*****
+
+####  mahoraga  
+##### 156#         楼主| 发表于 2022-10-7 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797491&amp;ptid=2098197" target="_blank">命运の审判官 发表于 2022-10-7 20:15</a>
+
+可以给定一个人设然后绘柄相对稳定的出图么？如果能做到这个就nb了。</blockquote>
+可以用发色发型瞳色衣服类型饰品这些角度尽可能锁定人设，画风的画prompt里写详细点应该也是比较稳定的,其实比较难搞的还是构图和对象之间的关系，光靠prompt我有时候比较乏力，我试试看自己画草图行不行
+
+*****
+
+####  nekoeco  
+##### 157#       发表于 2022-10-7 20:26
+
+网文的插图终于有救了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  mahoraga  
+##### 158#         楼主| 发表于 2022-10-7 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797558&amp;ptid=2098197" target="_blank">大江户战士 发表于 2022-10-7 20:19</a>
+
+NAI的CLIP是修改过的，wd1.4也要学NAI&amp;#x ...</blockquote>
+novelai能（被强制)开源实在是太令人感动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+据说黑客老哥用了一个0-day漏洞才爆了novelai的菊，真的下血本
+
+*****
+
+####  命运の审判官  
+##### 159#       发表于 2022-10-7 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57797659&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-7 20:24</a>
+
+可以用发色发型瞳色衣服类型饰品这些角度尽可能锁定人设，画风的画prompt里写详细点应该也是比较稳定的, ...</blockquote>
+我看了一下几个相关帖子大概了解了。我最期待的是，以后画师只需要给定一个人设图，然后通过img2img技术以这个人设图为基础生成各种姿态各种角度的图片。
+
