@@ -25,3 +25,12 @@
 
 最近忙的没顾上看消息，是以前的剧情连发还是新剧情，旧的就skip了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET  
+##### 43612#       发表于 2022-10-7 09:26
+
+大概就是个总集篇吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

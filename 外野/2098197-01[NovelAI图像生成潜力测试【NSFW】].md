@@ -911,3 +911,12 @@ https://1drv.ms/u ...</blockquote>
 
 突然间觉得dmm那些黄油的立绘就是ai的杰作了，楼上发的od链接里面很多图看上去就是dmm游戏那种廉价的立绘的风格
 
+
+
+*****
+
+####  shishkebab  
+##### 93#       发表于 2022-10-7 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
