@@ -13619,3 +13619,16 @@ rtc+1
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就之前FMT那个感受大地的玩意儿
 
+
+
+*****
+
+####  starring  
+##### 7233#       发表于 2022-10-7 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57793384&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-7 15:16</a>
+啥？
+
+—— 来自 S1Fun</blockquote>
+裂广播里Nagi说在后台接到指示，要表演跪下感受大地
+

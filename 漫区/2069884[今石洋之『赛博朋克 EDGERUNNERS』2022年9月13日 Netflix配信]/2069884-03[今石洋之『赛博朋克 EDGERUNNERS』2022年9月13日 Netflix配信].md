@@ -1392,3 +1392,12 @@ Rebecca身上的纹身是 菲利普·K·迪克 的名字及其代表作《仿生
 
 后劲有点大，看完一天了都。谁有游戏的，帮我重锤亚当一百遍啊啊啊
 
+
+
+*****
+
+####  Fakerの幻影  
+##### 3109#       发表于 2022-10-7 15:23
+
+看完了，大卫工具人属性太强了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
