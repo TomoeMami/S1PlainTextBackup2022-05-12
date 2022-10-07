@@ -13538,3 +13538,21 @@ sayu好几张给我的感觉像是看到了hnk，这个刘海真是
 
 可别让b哥看到，要不打包成OVA再单独卖一波前三集<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 7226#       发表于 2022-10-7 14:38
+
+可惜拉拉声优的泳装写真屈指可数
+rtc想看点劲的啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7227#       发表于 2022-10-7 14:40
+
+rtc+1
+目前一期是没啥指望了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

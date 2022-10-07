@@ -4915,3 +4915,15 @@ SD可以装Win玩XGP，只是Win下没前端调不了风扇功耗，体验差点
 
 不损耗性能的前提下，能和deck比的应该只有geek了吧，就怕到时候实际价格根本不是什么4399
 
+
+
+*****
+
+####  83913536  
+##### 397#       发表于 2022-10-7 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57790510&amp;ptid=2086469" target="_blank">superkin185 发表于 2022-10-7 10:33</a>
+
+网上找的的Aokzoe拆机图</blockquote>
+看来GPD那么嚣张还是有点底气
+
