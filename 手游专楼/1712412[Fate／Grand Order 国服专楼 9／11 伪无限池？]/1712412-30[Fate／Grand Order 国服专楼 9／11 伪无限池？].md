@@ -45,3 +45,17 @@
 
 旧剧情9成左右吧
 
+
+
+*****
+
+####  J-002  
+##### 43614#       发表于 2022-10-7 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789757&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2022-10-7 09:08</a>
+
+最近忙的没顾上看消息，是以前的剧情连发还是新剧情，旧的就skip了</blockquote>
+咕哒把以前万圣节发生的事忘得一干二净，几个龙娘拉着几个苦労人配咕哒重温三次万圣节的故事
+
+基本就是每节开头来个引子“那时啊，发生过这个这个”“书接上回，之后又这样这样”，剩下全是老剧情剪辑版
+

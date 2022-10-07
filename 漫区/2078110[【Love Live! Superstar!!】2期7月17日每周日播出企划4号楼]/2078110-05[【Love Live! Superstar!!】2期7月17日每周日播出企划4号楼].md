@@ -13690,3 +13690,21 @@ rtc+1
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  iuhehc  
+##### 7239#       发表于 2022-10-7 16:26
+
+星这帮运营多多少少脑回路有大问题的，什么nt高血压操作啊，想跪自己出来对着摄像机对着观众跪，怎么会给出这种指示啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 7240#       发表于 2022-10-7 16:30
+
+在对运营感到失望上这点上你永运不会失望<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
