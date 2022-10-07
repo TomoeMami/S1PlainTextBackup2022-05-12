@@ -5289,3 +5289,15 @@ Cory这么说更吓人了，MD前代还欠个DLC不说，续作就开始整活�
 
 不知道今年有没有纪录片看
 
+
+
+*****
+
+####  clover293  
+##### 588#       发表于 2022-10-8 00:19
+
+居然还有个南京的工作室<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">果然国内外包的血汗
+[http://www.of3d.com/about/index.html](http://www.of3d.com/about/index.html)
+
+看这个像是做动画的
+

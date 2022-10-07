@@ -2010,3 +2010,26 @@ Torch active/reserved: 6115/8288 MiB, Sys VRAM: 10550/12288 MiB (85.86%)
 
 雷神是masterpiece, raiden_shogun , 1girl
 
+
+
+*****
+
+####  当光停止  
+##### 183#       发表于 2022-10-8 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">为什么o的角色的图都出的那么好，输mythra就很不对劲。
+
+*****
+
+####  silist  
+##### 184#       发表于 2022-10-8 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801961&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-7 23:57</a>
+
+就很简单的……
+
+胡桃是masterpiece, hu_tao, 1girl.
+
+雷神是masterpiece, raiden_shogun , 1girl ...</blockquote>
+我用同样的tags生成的图总会有微妙的崩感，只能归咎于随机采样的筛子运问题了...
+
