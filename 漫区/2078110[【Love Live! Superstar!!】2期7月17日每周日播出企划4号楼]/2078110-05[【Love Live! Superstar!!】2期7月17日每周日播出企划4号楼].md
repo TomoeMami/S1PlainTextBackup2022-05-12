@@ -13379,3 +13379,24 @@ syl三巡前公式油管可能没一首二期曲到百万
 
 粉丝结构不同，消费习惯和消费意愿也不同，比来比去就是看个乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 7215#       发表于 2022-10-7 12:54
+
+ 本帖最后由 nufawneafg 于 2022-10-7 12:57 编辑 
+
+逛了逛5ch，比起前几天的开香槟，今天闹得更像是过家家，该怎么形容...很有戏剧感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有一种童真，也是好事
+
+*****
+
+####  稀勢のささ  
+##### 7216#       发表于 2022-10-7 12:57
+
+<blockquote>でも星には伊达さゆり写真集売り上げがあるから…
+
+みたいに煽りに使われる未来しか见えない</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有画面了
+

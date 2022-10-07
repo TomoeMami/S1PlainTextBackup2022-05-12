@@ -1282,3 +1282,47 @@ nai的clip增加了token上限，waifu diffusion1.4也有样学样增加了上�
 试了下泄露的novel ai的模型，感觉和sd的差距不是很大，和novel ai网页出来的效果差距明显
 这模型保真吗，还是除了模型之外novel ai还有其他花活
 
+
+
+*****
+
+####  大江户战士  
+##### 127#       发表于 2022-10-7 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791936&amp;ptid=2098197" target="_blank">schneehertz 发表于 2022-10-7 12:49</a>
+
+试了下泄露的novel ai的模型，感觉和sd的差距不是很大，和novel ai网页出来的效果差距明显
+
+这模型保真吗， ...</blockquote>
+能出1024×1024的图吗
+
+*****
+
+####  mahoraga  
+##### 128#         楼主| 发表于 2022-10-7 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791974&amp;ptid=2098197" target="_blank">大江户战士 发表于 2022-10-7 12:52</a>
+
+能出1024×1024的图吗</blockquote>
+只要你显存够大是没问题的，也可以先512*512再上采样
+
+*****
+
+####  大江户战士  
+##### 129#       发表于 2022-10-7 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57792005&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-7 12:55</a>
+
+只要你显存够大是没问题的，也可以先512*512再上采样</blockquote>
+回家用我的3090试试
+
+*****
+
+####  mahoraga  
+##### 130#         楼主| 发表于 2022-10-7 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57792051&amp;ptid=2098197" target="_blank">大江户战士 发表于 2022-10-7 12:59</a>
+
+回家用我的3090试试</blockquote>
+3090有24g显存应该是没问题的，我在笔记本8G显存上测，768*512大概会用掉六千多mb的显存
+
