@@ -2556,3 +2556,13 @@ NAI线上线下版都试了一下离线版确实还是有点差距，不知道�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我草，P5风格的小光，牛逼
 
+
+
+*****
+
+####  silist  
+##### 204#       发表于 2022-10-8 16:02
+
+正常nai主模型+vae+适当的negative prompts效果就很不错了，hypernetworks看起来像是在某些个人风格强烈的作品上finetune出来的，稳定性会差点。
+<img src="https://p.sda1.dev/7/ca0d6ab07b1950ee9a6994ae8ba5a337/CMP_20221008155927304.png" referrerpolicy="no-referrer">
+
