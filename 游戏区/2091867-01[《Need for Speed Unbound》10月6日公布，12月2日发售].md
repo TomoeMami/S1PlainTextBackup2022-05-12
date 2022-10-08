@@ -1424,3 +1424,16 @@ Ziimbiian泄露的选车界面，Charger R/T可改造为猎装式样。
 
 steam国区已解锁，价格和epic一样
 
+
+
+*****
+
+####  真实之影  
+##### 67#       发表于 2022-10-8 11:44
+
+ 本帖最后由 真实之影 于 2022-10-8 11:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还以为会省钱了
+
+看截图吊桥的机制可能真的会有做
+
