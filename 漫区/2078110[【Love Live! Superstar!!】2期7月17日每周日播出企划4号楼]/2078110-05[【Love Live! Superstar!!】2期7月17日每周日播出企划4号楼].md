@@ -14563,3 +14563,12 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 突然想到个问题，鲤鱼叔叔家直播收入全归她自己么，感觉公司并没有干涉她直播，最多就是约法三章哪些不能说 ...</blockquote>
 公司想收多少得跟叔叔说，而且要是能收，感觉周周都可以让鲤鱼直播了。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7317#       发表于 2022-10-8 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不想看上映会，直接等repo
+
