@@ -9257,3 +9257,12 @@ hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发
 
 昨天看完大厦上半场满意德睡觉了，醒来直接给我干傻了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2593#         楼主| 发表于 2022-10-8 08:19
+
+A队G2双双滚蛋了，乐
+
