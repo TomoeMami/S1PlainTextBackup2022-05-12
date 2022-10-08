@@ -147,3 +147,12 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 
 这就是今天的内容，我们下次见！
 
+
+
+*****
+
+####  windhawind2  
+##### 1879#       发表于 2022-10-8 19:51
+
+额啊本来想买了 一看现在淘宝上美区100刀充值卡已经600多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
