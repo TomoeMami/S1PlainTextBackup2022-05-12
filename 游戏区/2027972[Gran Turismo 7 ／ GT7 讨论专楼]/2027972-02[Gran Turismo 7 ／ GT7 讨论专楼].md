@@ -114,3 +114,14 @@
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1657#       发表于 2022-10-8 19:38
+
+BV1Sd4y1v72d，附上我的录像
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

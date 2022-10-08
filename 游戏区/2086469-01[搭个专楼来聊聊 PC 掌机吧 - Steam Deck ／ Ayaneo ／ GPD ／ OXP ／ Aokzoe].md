@@ -5201,3 +5201,16 @@ Aok，确实小毛病也不算少，但我觉得团队还不错，管生也管�
 
 对了，oxp的官方群号是啥，为啥我搜b站发的找不到群
 
+
+
+*****
+
+####  kirito_wst  
+##### 420#       发表于 2022-10-8 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57815552&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-10-8 19:26</a>
+对了，oxp的官方群号是啥，为啥我搜b站发的找不到群</blockquote>
+那个群估计满了就关了搜索吧，我国庆进去的时候都快满了。不过我后面退了，不知道具体情况。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
