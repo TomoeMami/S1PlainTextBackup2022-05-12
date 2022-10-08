@@ -9449,3 +9449,22 @@ g2真得骂吧，能在游戏里面留下贴纸和奖杯的赛事就这么被自
 
 这可能就是阿杜最后一届major了吧
 
+
+
+*****
+
+####  andychen  
+##### 2613#       发表于 2022-10-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813817&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-10-8 17:44</a>
+
+我是说要一直上半场那个状态明天就一起滚蛋</blockquote>
+apex下半场太带了，不然小蜜蜂感觉早G了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 2614#       发表于 2022-10-8 18:04
+
+关键字：Mirage，T方没钱，Tec9 Rush B<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
