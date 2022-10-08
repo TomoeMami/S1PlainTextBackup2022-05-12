@@ -14841,3 +14841,27 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 鲤鱼cos死神里的，不就是那几个平板（跑
 
+
+
+*****
+
+####  cat1230  
+##### 7348#       发表于 2022-10-8 18:47
+
+烂铁终于想起来鲤鱼也是一线COSer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可喜可贺可喜可贺
+
+*****
+
+####  nufawneafg  
+##### 7349#       发表于 2022-10-8 18:51
+
+ 本帖最后由 nufawneafg 于 2022-10-8 18:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57814959&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-8 18:47</a>
+烂铁终于想起来鲤鱼也是一线COSer了
+
+可喜可贺可喜可贺</blockquote>
+不涉及实体cd和演出基本上还是和烂铁没啥关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+hori那边接的活吧
+
