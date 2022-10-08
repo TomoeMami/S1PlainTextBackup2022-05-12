@@ -46,3 +46,43 @@
 我昨儿又跑了快300公里才45银 感觉44就是极限了囧
 也才刚刚摸清tcs关掉咋跑…
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1653#       发表于 2022-10-8 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57814426&amp;ptid=2027972" target="_blank">iou90 发表于 2022-10-8 18:16</a>
+前半段有那种加速是不是得4档？
+我昨儿又跑了快300公里才45银 感觉44就是极限了囧
+也才刚刚摸清tcs关掉咋 ...</blockquote>
+外面看录像呗，一开始职业哥幽灵车发车直道拉我一段距离，看了录像才发现出弯直接4跳6，我一档一档来，5升6动力中断直接被拉开
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  扑克脸军曹  
+##### 1654#       发表于 2022-10-8 18:38
+
+ 本帖最后由 扑克脸军曹 于 2022-10-8 18:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813596&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-8 17:32</a>
+原来是职业的下场降维打击了？
+
+我最后跑得1'43.8了，有些细节还没处理好</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/08/183602t3tru7l7u8l71j82.jpg" referrerpolicy="no-referrer">
+
+<strong>183b72a4c2751-screenshotUrl.jpg</strong> (363.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 18:36 上传
+
+应该就是这位
+
+说个题外话，gt7这线上计时选材整的还行，正好这两天日本大奖赛，线上跑完接着看比赛，体验拉满
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
