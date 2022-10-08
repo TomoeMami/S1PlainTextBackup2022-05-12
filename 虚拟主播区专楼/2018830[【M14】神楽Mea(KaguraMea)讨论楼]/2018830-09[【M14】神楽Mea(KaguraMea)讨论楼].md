@@ -5490,3 +5490,15 @@ mea的歌回也太舒服了吧.mp4
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  汇聚群光  
+##### 12580#       发表于 2022-10-8 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801711&amp;ptid=2018830" target="_blank">07579394 发表于 2022-10-7 23:49</a>
+
+唱了あの子コンプレックス，之前的3D演唱会怎么不唱这首</blockquote>
+那么喜庆的live唱苦情歌不太合适吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
