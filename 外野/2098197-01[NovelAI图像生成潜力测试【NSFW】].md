@@ -2691,3 +2691,17 @@ negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, e
 有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, swea ...</blockquote>
 确实不错嗷，说起来novelai网页今天更新了之后说会默认加masterpiece了好像
 
+
+
+*****
+
+####  Issue  
+##### 213#       发表于 2022-10-9 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57819947&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-9 00:36</a>
+
+有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, swea ...</blockquote>
+不是挑刺，可第一张腰和第二张脚已经畸形明显没法看的，
+
+本地能不能像网页那样涂涂，其它不变只让ai修改错误的地方？
+
