@@ -33,3 +33,16 @@
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  iou90  
+##### 1652#       发表于 2022-10-8 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57767241&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-5 13:03</a>
+迈凯伦mp4，铃鹿1'44.147，按以往3100+排名的水平来说是我的平均水平，但是没法拿金就很无奈，看别人的幽灵 ...</blockquote>
+前半段有那种加速是不是得4档？
+我昨儿又跑了快300公里才45银 感觉44就是极限了囧
+也才刚刚摸清tcs关掉咋跑…
+

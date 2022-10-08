@@ -21,3 +21,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">感觉鬼头配的地平线不行啊
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 788#       发表于 2022-10-8 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">台服更新地平线日配了吗
+

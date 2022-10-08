@@ -14759,3 +14759,31 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 鲤鱼这是跟可口可乐勾搭上？？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7339#       发表于 2022-10-8 18:13
+
+还整个倒数卖关子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过这是怎么接到的
+
+*****
+
+####  player3960  
+##### 7340#       发表于 2022-10-8 18:13
+
+究竟是工商还是整活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tau_cross  
+##### 7341#       发表于 2022-10-8 18:18
+
+<img src="https://p.sda1.dev/7/a7970dca031cc84c7cc616d59f058233/CMP_20221008181801659.jpg" referrerpolicy="no-referrer">
+这不三组都分好了
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
