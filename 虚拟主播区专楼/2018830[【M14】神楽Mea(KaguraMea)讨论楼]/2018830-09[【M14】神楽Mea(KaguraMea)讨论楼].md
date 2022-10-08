@@ -5623,3 +5623,12 @@ woc 麻
 
 即便要使用无机制的没有灵魂的机械也要复原少女的往日之姿，这也是一种罗曼
 
+
+
+*****
+
+####  JY要塞  
+##### 12589#       发表于 2022-10-9 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">以后有ai麻图代餐了
+
