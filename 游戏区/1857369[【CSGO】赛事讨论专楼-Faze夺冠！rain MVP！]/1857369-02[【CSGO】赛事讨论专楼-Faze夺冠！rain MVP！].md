@@ -9387,3 +9387,12 @@ hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发
 集训准备blast秋季赛吧，hooxi来还是有点成绩的，蜜蜂还要打showdown，我对这个第一印象就是老a队被刚组的OG第一轮淘汰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 以及赶紧给尼公子找个心理医生，别真玉玉了
 
+
+
+*****
+
+####  KozueAkimoto  
+##### 2606#       发表于 2022-10-8 16:31
+
+g2真得骂吧，能在游戏里面留下贴纸和奖杯的赛事就这么被自己打没了。今年拿啥比赛的冠军都没用了 hooxi还能待多久不知道<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
