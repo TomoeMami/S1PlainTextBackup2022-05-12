@@ -2511,3 +2511,16 @@ twitter.com/MianYunYiLi/status/1536000117152546818 NSFW
 一个是tag打的不到位，另一个是NAI线上线下差别还是挺大的</blockquote>
 NAI线上线下版都试了一下离线版确实还是有点差距，不知道怎么描述，就是比较难控制的感觉。NAI又不知道为什么不开mask功能，有的时候想保留一部分要素都很难弄<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  silist  
+##### 200#       发表于 2022-10-8 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57803609&amp;ptid=2098197" target="_blank">dcem 发表于 2022-10-8 01:57</a>
+感谢楼里老哥们提供的信息。话说用automatic1111的UI，不知道为什么这些pt文件当embedded concept和当hyper ...</blockquote>
+这里提到的魔改版有链接吗？没加电报群<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
