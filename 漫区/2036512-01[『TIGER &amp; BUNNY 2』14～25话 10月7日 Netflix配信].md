@@ -25,3 +25,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">感觉拍个6集就差不多了，硬拍12集注水成这个样子
 
+
+
+*****
+
+####  密特里奈斯  
+##### 94#       发表于 2022-10-8 16:30
+
+等个字幕组出品
+

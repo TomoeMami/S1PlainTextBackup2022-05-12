@@ -801,3 +801,17 @@ ate里武御雷的刀不是削beta如泥<img src="https://static.saraba1st.com/i
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1855#       发表于 2022-10-8 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57812143&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-8 16:11</a>
+
+ate里武御雷的刀不是削beta如泥
+
+—— 来自 OnePlus HD1905, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+所以我说的是这种演出本身就是作为机器人作品的浪漫啦）
+
