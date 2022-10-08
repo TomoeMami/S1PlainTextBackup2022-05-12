@@ -14507,3 +14507,28 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 这周就结束了，谢天谢地</blockquote>
 宣布第三季继续折磨
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7313#       发表于 2022-10-8 13:29
+
+<img src="https://img.saraba1st.com/forum/202210/08/132846b0u0c0peazr0v77l.jpg" referrerpolicy="no-referrer">
+
+<strong>FegYNy2VUAACFTe.jpg</strong> (127.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 13:28 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/132851nixevviinfp5vv5t.jpg" referrerpolicy="no-referrer">
+
+<strong>FegYNyyUoAArCGg.jpg</strong> (130.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 13:28 上传
+
+ 昨天直播穿的就是这个吧
+

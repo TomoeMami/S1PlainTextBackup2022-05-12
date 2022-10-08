@@ -715,3 +715,23 @@ XM3操作系统：解锁鬼泣式连招
 
 玩玩baldr heart的杂兵战你可能就能明白我的意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1850#       发表于 2022-10-8 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57807382&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-8 11:27</a>
+
+不不不）
+
+刀这种装备本身作为最后护身的手段无需依赖弹药这我是理解的
+
+但是除非你要求每个卫士都有庖丁解 ...</blockquote>
+吉田数学警告
+
+作品只能反映作者的水平.jpg
+
+真需要用刀的时候，也就是只能万岁冲锋了（层主个人理解）
+
