@@ -1216,3 +1216,15 @@ Do It Yourself!!
 
 哈哈这个呆呆的女主好可爱，除了我有一种她随时就会用一堆凶狠的工具把自己拆了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  Артём  
+##### 101#       发表于 2022-10-8 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57804434&amp;ptid=1994951" target="_blank">ΣPRC 发表于 2022-10-8 08:20</a>
+
+挂个链子和扳正车把真的需要工具嘛</blockquote>
+车把最好是拧开螺丝再调的，虽然很多人直接两腿一夹就上手硬掰。女生因为没有这个蛮力反而会使用正确的方式。挂链子用工具纯属不想弄脏手了，机油可难洗了。
+
