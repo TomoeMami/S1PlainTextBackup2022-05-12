@@ -684,3 +684,12 @@ XM3操作系统：解锁鬼泣式连招
 
 后期战术机加机动也有对战术机作战的考虑（比如F-22）
 
+
+
+*****
+
+####  乙山法純  
+##### 1848#       发表于 2022-10-8 09:00
+
+然后8代机直接变00q<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
