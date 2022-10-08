@@ -9266,3 +9266,13 @@ hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发
 
 A队G2双双滚蛋了，乐
 
+
+
+*****
+
+####  saintsimpler  
+##### 2594#       发表于 2022-10-8 08:45
+
+笑嘻了，大厦碾压我就没看了，早上起来一看竟然回家了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+Niko真想拿冠军不如去学俄语加入Navi吧，也就他们缺人了
+
