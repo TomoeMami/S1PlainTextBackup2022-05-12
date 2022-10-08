@@ -1450,3 +1450,20 @@ QOL的东西差得太远。。。UI简直是一坨。。。
 
 AI偷站真是没什么办法，我一般会试着SL一两次，仍然不行的话就干脆先自己拆了也不便宜AI
 
+
+
+*****
+
+####  windtrack_qh  
+##### 132#       发表于 2022-10-8 09:20
+
+2034年欧盟已经被我调教成天堂国度，彻底消除不平等、武德充沛、人民团结
+
+<img src="https://img.saraba1st.com/forum/202210/08/092051v97iojw2wjc7uwv2.png" referrerpolicy="no-referrer">
+
+<strong>_MQ~N8VRVYM6D7VP_B.png</strong> (86.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 09:20 上传
+
