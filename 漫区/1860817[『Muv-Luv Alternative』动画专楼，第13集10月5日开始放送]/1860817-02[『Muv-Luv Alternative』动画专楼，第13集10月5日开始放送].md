@@ -693,3 +693,25 @@ XM3操作系统：解锁鬼泣式连招
 
 然后8代机直接变00q<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1849#       发表于 2022-10-8 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57804001&amp;ptid=1860817" target="_blank">半分宅 发表于 2022-10-8 05:13</a>
+
+玩过战棋版就很好理解，重视近身战不是头铁拿刀砍，是行动力更高、转身更灵活、跳跃时能采取的机动动作更 ...</blockquote>
+不不不）
+
+刀这种装备本身作为最后护身的手段无需依赖弹药这我是理解的
+
+但是除非你要求每个卫士都有庖丁解牛的水平<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+否则VS肉体组织坚韧的BETA那压根砍不了几只
+
+而且本身面对beta潮你可能刀没挥出去就被淹没了）
+
+玩玩baldr heart的杂兵战你可能就能明白我的意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

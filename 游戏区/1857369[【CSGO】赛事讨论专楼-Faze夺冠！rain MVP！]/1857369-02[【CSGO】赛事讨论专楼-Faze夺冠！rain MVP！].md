@@ -9313,3 +9313,15 @@ Niko真想拿冠军不如去学俄语加入Navi吧，也就他们缺人了
 
 话说RMR这中东队叫jijiehao是什么背景
 
+
+
+*****
+
+####  Niyah  
+##### 2599#       发表于 2022-10-8 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57806545&amp;ptid=1857369" target="_blank">闷吸 发表于 2022-10-8 10:52</a>
+
+话说RMR这中东队叫jijiehao是什么背景</blockquote>
+三以色列两俄罗斯，国内投资的吧
+
