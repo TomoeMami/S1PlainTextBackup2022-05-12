@@ -14874,3 +14874,23 @@ hori那边接的活吧
 
 鲤鱼姐接工商了，激动，哭死（不是<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 7351#       发表于 2022-10-8 19:54
+
+<blockquote>cat1230 发表于 2022-10-7 23:30
+叔叔最后的温柔，赶在国庆结束前1小时又补货了鲤鱼的写真，用了优惠劵和红包（可惜红包只剩11块8了，早上全 ...</blockquote>
+不在意特典收厨出的无特肯定最便宜，我自己出无特sayu写真包全部邮费150
+
+*****
+
+####  一个陆仁贾  
+##### 7352#       发表于 2022-10-8 19:54
+
+动画直播啥时候来着，太久不关注忘了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
