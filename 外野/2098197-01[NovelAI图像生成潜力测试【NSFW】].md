@@ -2499,3 +2499,15 @@ twitter.com/MianYunYiLi/status/1536000117152546818 NSFW
 
 查看全部评分
 
+
+
+*****
+
+####  mahoraga  
+##### 199#         楼主| 发表于 2022-10-8 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57803777&amp;ptid=2098197" target="_blank">大江户战士 发表于 2022-10-8 02:42</a>
+
+一个是tag打的不到位，另一个是NAI线上线下差别还是挺大的</blockquote>
+NAI线上线下版都试了一下离线版确实还是有点差距，不知道怎么描述，就是比较难控制的感觉。NAI又不知道为什么不开mask功能，有的时候想保留一部分要素都很难弄<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
