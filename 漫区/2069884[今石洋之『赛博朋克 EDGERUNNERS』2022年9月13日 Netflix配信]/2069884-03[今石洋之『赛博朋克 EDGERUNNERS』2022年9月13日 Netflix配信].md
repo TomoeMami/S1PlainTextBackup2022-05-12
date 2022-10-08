@@ -1532,3 +1532,16 @@ Burn this city
 这两天在游戏里圣地巡礼，发现动画给的地点提示基本都很合理。
 但鹅球读不了我的手机图库，我再研究一下怎么发图。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 3117#         楼主| 发表于 2022-10-8 22:25
+
+[https://twitter.com/Dino_illus/status/1578476982182240262](https://twitter.com/Dino_illus/status/1578476982182240262)
+<img src="https://p.sda1.dev/7/582a1e1cb8db595580e7f3612caaa828/illust_101768125_20221008_222314.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/7/d61bb10c75f1bb971b847a12a4f50ae3/illust_101696251_20221008_222307.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/557f8c94b10680e695db6b75929e87d1/illust_101696251_20221008_222308.jpg" referrerpolicy="no-referrer">
+

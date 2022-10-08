@@ -14934,3 +14934,14 @@ hori那边接的活吧
 
 草，鲤鱼昨天去问今天a店就上货了，不过也就A店上了
 
+
+
+*****
+
+####  愛さ実  
+##### 7356#       发表于 2022-10-8 22:26
+
+今天上映会没线上的吗？怎么没见人放源的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
