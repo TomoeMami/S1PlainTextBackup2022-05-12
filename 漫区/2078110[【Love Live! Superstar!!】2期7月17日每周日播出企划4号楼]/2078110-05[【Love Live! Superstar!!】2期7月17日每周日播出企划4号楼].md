@@ -14532,3 +14532,14 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
  昨天直播穿的就是这个吧
 
+
+
+*****
+
+####  仟音一心  
+##### 7314#       发表于 2022-10-8 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57809439&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-8 13:29</a>
+昨天直播穿的就是这个吧</blockquote>
+不是同一款，我特地截了图，前面写的是结丘女高<img src="https://p.sda1.dev/7/a5dc590f6046bfb3252389e4df2fe99f/CMP_20221008144705652.jpg" referrerpolicy="no-referrer">
+
