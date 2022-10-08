@@ -9405,3 +9405,29 @@ g2真得骂吧，能在游戏里面留下贴纸和奖杯的赛事就这么被自
 
 小蜜蜂小镇垃圾的一比还天天选，怕不是机场双雄羁绊触发想回家了。
 
+
+
+*****
+
+####  andychen  
+##### 2608#       发表于 2022-10-8 17:31
+
+昨天G2在mirage上半场还拿了3分呢，今天这小蜜蜂就2分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 2609#         楼主| 发表于 2022-10-8 17:31
+
+我的评价是小蜜蜂也滚蛋了乐子就大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 2610#       发表于 2022-10-8 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813571&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-10-8 17:31</a>
+
+我的评价是小蜜蜂也滚蛋了乐子就大了</blockquote>
+不至于，今天输BO3只是进不了传奇组，明天再输才会淘汰
+

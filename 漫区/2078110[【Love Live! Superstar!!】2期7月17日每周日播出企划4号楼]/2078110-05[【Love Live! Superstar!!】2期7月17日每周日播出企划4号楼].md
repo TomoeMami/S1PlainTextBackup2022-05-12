@@ -14584,3 +14584,22 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 这次先行图没有新画面</blockquote>
 抛开内容不说，这一卡的香音画得还是挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 7319#       发表于 2022-10-8 17:38
+
+意思12月直接公布三组，都不投票了……
+
+*****
+
+####  aoaoaodedede  
+##### 7320#       发表于 2022-10-8 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813722&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-8 17:38</a>
+
+意思12月直接公布三组，都不投票了……</blockquote>
+啥子消息
+

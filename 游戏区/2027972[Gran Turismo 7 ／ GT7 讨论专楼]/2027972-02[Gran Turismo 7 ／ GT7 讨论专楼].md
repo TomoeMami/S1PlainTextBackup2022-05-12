@@ -16,3 +16,20 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1651#       发表于 2022-10-8 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57809044&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-8 13:00</a>
+第一名是职业选手吧，东京高600pp那台nsx就是他的名字，不知道只是挂个名还是开发的时候找他跑的记录
+
+铃 ...</blockquote>
+原来是职业的下场降维打击了？
+
+我最后跑得1'43.8了，有些细节还没处理好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
