@@ -9276,3 +9276,15 @@ A队G2双双滚蛋了，乐
 笑嘻了，大厦碾压我就没看了，早上起来一看竟然回家了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 Niko真想拿冠军不如去学俄语加入Navi吧，也就他们缺人了
 
+
+
+*****
+
+####  rrtyui  
+##### 2595#       发表于 2022-10-8 10:04
+
+这acor是不是和老鼠的谁有仇在老鼠故意瞎打的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+顺便这A队也太搞笑了，没了彬彬结果打成这效果
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
