@@ -815,3 +815,14 @@ ate里武御雷的刀不是削beta如泥
 —— 来自 OnePlus HD1905, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 所以我说的是这种演出本身就是作为机器人作品的浪漫啦）
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1856#       发表于 2022-10-8 20:55
+
+<img src="https://p.sda1.dev/7/8505cfb5e71f0af2da9e1af937651266/CMP_20221008205449604.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

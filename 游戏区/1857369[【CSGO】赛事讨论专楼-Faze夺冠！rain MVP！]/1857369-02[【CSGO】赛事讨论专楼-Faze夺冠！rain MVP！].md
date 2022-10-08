@@ -9488,3 +9488,12 @@ apex下半场太带了，不然小蜜蜂感觉早G了<img src="https://static.sa
 阿杜现在是唯一一个major全勤的选手了
 奥拉夫和阿汤的记录在上届断了，shox和九爷的记录在这届断了
 
+
+
+*****
+
+####  朔方原的星  
+##### 2617#         楼主| 发表于 2022-10-8 20:56
+
+现在大表哥进传奇组了，小李子进传奇组了，nexa进major明天争传奇组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">场面是真的尴尬了
+
