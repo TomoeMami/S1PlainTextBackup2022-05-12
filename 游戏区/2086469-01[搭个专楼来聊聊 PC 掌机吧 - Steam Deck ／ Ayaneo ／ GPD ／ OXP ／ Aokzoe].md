@@ -5130,3 +5130,17 @@ win11对触屏的优化做的是真的好，昨天把奥克wifi断连的问题�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  李小狼  
+##### 414#       发表于 2022-10-8 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57809612&amp;ptid=2086469" target="_blank">kirito_wst 发表于 2022-10-8 13:41</a>
+它不是最合适的，而是现在唯一有货的（个人觉得gpd winmax2不算掌机）
+这个月底开始选择就多了ayaneo2，o ...</blockquote>
+多谢，那再观望下一下
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

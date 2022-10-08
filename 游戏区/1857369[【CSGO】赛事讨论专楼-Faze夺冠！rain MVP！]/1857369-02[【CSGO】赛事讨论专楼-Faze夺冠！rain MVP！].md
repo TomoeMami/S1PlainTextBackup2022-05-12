@@ -9356,3 +9356,12 @@ hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ispep  
+##### 2603#       发表于 2022-10-8 14:16
+
+打开手机一看g2a队都回家了，还以为起码可以挑战组一轮游呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
