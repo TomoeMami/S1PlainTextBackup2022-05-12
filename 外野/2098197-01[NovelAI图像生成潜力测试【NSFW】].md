@@ -2524,3 +2524,26 @@ NAI线上线下版都试了一下离线版确实还是有点差距，不知道�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dcem  
+##### 201#       发表于 2022-10-8 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57805190&amp;ptid=2098197" target="_blank">silist 发表于 2022-10-7 19:37</a>
+
+这里提到的魔改版有链接吗？没加电报群
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 S1Next ...</blockquote>
+这个链接不知道有没有用：[https://t.me/StableDiffusion_CN/10418](https://t.me/StableDiffusion_CN/10418)。文件挺大的有1个G。主要是改了data.pkl让泄露的那些pt文件能直接放到webui的embeddings文件夹里被读取。
+
+*****
+
+####  亚瑟邓特  
+##### 202#       发表于 2022-10-8 10:15
+
+画xb2的就那几个，这一眼就能看出来是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
