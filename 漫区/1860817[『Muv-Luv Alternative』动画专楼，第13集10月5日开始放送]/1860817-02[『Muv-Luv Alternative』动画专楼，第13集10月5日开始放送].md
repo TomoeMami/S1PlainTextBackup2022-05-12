@@ -751,3 +751,22 @@ beta既然能渡海到日本，那么到台湾岛也不成问题<img src="https:
 
 能抗住也就没日本人的事情了，也就是说为了让日本人出场只能这么设定<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  半分宅  
+##### 1852#       发表于 2022-10-8 15:46
+
+ 本帖最后由 半分宅 于 2022-10-8 03:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57807382&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 23:27</a>
+
+不不不）
+
+刀这种装备本身作为最后护身的手段无需依赖弹药这我是理解的
+
+但是除非你要求每个卫士都有庖丁解 ...</blockquote>
+啊对对对，战棋版里练度没上AA级的战术机部队拿刀砍就跟去送没两样，老老实实拿突击炮站撸。刀子那是老Ass近战处理大型种用的特化武器，看到一堆战车级还请老老实实用36mm扫射。
+
+另外刀子本身的强度并不差，可以直接把要击级的前肢砍飞或是给要塞级开膛破肚。
+
