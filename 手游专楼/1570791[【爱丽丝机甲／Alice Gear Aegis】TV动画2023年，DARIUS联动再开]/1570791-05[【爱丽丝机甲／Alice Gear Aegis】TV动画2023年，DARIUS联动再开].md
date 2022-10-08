@@ -14014,3 +14014,12 @@ APP版近期将会支持手柄。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是也有人权角色，三星素组妹拿专武用得比一些四星还舒服
 
+
+
+*****
+
+####  灰色蔓延  
+##### 7367#       发表于 2022-10-8 11:15
+
+大流士这售后简直亲女儿，从好玩的联机角变成了强力角。Ti2和IA手感大提升<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
