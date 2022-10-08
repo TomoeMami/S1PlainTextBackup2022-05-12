@@ -1264,3 +1264,17 @@ Do It Yourself!!
 
 古墓派傲娇了属于
 
+
+
+*****
+
+####  ΣPRC  
+##### 106#       发表于 2022-10-9 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57806743&amp;ptid=1994951" target="_blank">Артём 发表于 2022-10-8 11:01</a>
+
+车把最好是拧开螺丝再调的，虽然很多人直接两腿一夹就上手硬掰。女生因为没有这个蛮力反而会使用正确的方 ...</blockquote>
+俺寻思这都快迟到了就别纠结机油的事了……
+
+车把歪着又不是不能骑
+

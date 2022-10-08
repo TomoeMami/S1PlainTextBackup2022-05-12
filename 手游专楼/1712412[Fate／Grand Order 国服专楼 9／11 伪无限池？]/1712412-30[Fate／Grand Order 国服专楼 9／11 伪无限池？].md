@@ -130,3 +130,15 @@
 万圣总集篇已经打完了，复刻的龙娘为啥都只拿到一宝呢？</blockquote>
 剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换
 
+
+
+*****
+
+####  yweili99  
+##### 43622#       发表于 2022-10-9 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813422&amp;ptid=1712412" target="_blank">夜贼外卖 发表于 2022-10-8 17:23</a>
+
+剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换</blockquote>
+原来如此，我还以为漏了啥呢
+
