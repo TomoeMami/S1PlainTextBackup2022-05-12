@@ -14603,3 +14603,46 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 意思12月直接公布三组，都不投票了……</blockquote>
 啥子消息
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7321#       发表于 2022-10-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813748&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-8 17:40</a>
+啥子消息</blockquote>
+分组，但是没投票
+
+*****
+
+####  ViyViy  
+##### 7322#       发表于 2022-10-8 17:46
+
+啥？放映会说的？这是真准备硬刚到底了，难道真是感谢祭那个立牌的摆法？
+
+*****
+
+####  lj205  
+##### 7323#       发表于 2022-10-8 17:47
+
+热门CP直接拆
+
+*****
+
+####  Enakina  
+##### 7324#       发表于 2022-10-8 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813861&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-8 17:46</a>
+啥？放映会说的？这是真准备硬刚到底了，难道真是感谢祭那个立牌的摆法？ ...</blockquote>
+和缪水小组一起摆的，应该就那个了
+
+*****
+
+####  ads147147  
+##### 7325#       发表于 2022-10-8 17:51
+
+不投票？这么刚？上头的大人知道粉丝还不够怒，打算直接草死粉丝。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2589,3 +2589,42 @@ hypernetworks成功了，embedded concept怎么搞？
 
 还有图片的prompt可以贴一下吗。
 
+
+
+*****
+
+####  断片集  
+##### 207#       发表于 2022-10-8 17:41
+
+<img src="https://img.saraba1st.com/forum/202210/08/174016n4ni6mmqnihmnhzp.png" referrerpolicy="no-referrer">
+
+<strong>F63085EF-18F2-4F84-A7F6-6FFFD6089312.png</strong> (215.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202210/08/174047aurr7zhzhwgbxzxo.png" referrerpolicy="no-referrer">
+
+<strong>grid-0029.png</strong> (468.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 17:40 上传
+
+看到这张图感觉这种场景下可能用inpaint单纯换脸更合适，试了下效果也确实不错<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mahoraga  
+##### 208#         楼主| 发表于 2022-10-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813776&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-8 17:41</a>
+
+看到这张图感觉这种场景下可能用inpaint单纯换脸更合适，试了下效果也确实不错
+
+ ...</blockquote>
+是的，sd-webui里最好用的就是inpaint， 不知道为什么novelai没有把这个功能做进去。
+
+我感觉现在用定制女仆或者恋活做涩情CG漫画的人用上这套简直如虎添翼啊
+
