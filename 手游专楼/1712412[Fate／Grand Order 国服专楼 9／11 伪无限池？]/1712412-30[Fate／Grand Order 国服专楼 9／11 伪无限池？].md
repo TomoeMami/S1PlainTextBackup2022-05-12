@@ -118,3 +118,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这万圣总集篇活动真的不如咬打火机
 
+
+
+*****
+
+####  夜贼外卖  
+##### 43621#       发表于 2022-10-8 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57805465&amp;ptid=1712412" target="_blank">yweili99 发表于 2022-10-8 09:57</a>
+
+万圣总集篇已经打完了，复刻的龙娘为啥都只拿到一宝呢？</blockquote>
+剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换
+
