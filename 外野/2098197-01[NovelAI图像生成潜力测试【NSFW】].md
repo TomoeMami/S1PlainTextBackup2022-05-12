@@ -2547,3 +2547,12 @@ NAI线上线下版都试了一下离线版确实还是有点差距，不知道�
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  pandaman7777  
+##### 203#       发表于 2022-10-8 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我草，P5风格的小光，牛逼
+

@@ -9288,3 +9288,12 @@ Niko真想拿冠军不如去学俄语加入Navi吧，也就他们缺人了
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Niyah  
+##### 2596#       发表于 2022-10-8 10:24
+
+最折磨的就是完全感受不到能赢的势头还要熬着一局一局看下去。这A队不会真纯摆烂早点回去和设备磨合吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
