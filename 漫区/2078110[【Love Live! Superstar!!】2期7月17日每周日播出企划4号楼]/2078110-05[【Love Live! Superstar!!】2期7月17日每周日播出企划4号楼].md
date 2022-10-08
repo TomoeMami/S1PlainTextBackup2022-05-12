@@ -14865,3 +14865,12 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 不涉及实体cd和演出基本上还是和烂铁没啥关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 hori那边接的活吧
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 7350#       发表于 2022-10-8 19:23
+
+鲤鱼姐接工商了，激动，哭死（不是<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
