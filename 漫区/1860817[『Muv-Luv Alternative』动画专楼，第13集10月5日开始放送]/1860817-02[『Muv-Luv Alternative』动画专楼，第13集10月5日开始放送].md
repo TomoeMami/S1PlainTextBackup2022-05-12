@@ -661,3 +661,15 @@ BETA渡海渡河靠的是下水硬走，在上岸之前都威胁不到水面上�
 
 XM3操作系统：解锁鬼泣式连招
 
+
+
+*****
+
+####  艾特娜  
+##### 1846#       发表于 2022-10-8 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798349&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-10-7 20:57</a>
+
+教官最高军衔就是中士还是上士来着，最后靠自己给一群毕业授衔成少尉的学员敬礼来教会他们在军队中的等级 ...</blockquote>
+原来是这样的意义啊
+
