@@ -86,3 +86,31 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1655#       发表于 2022-10-8 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57814824&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-8 18:38</a>
+应该就是这位
+
+说个题外话，gt7这线上计时选材整的还行，正好这两天日本大奖赛，线上跑完接着看比赛， ...</blockquote>
+是的，为了练车我还特意把各种f1游戏的录像给看了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1656#       发表于 2022-10-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57814426&amp;ptid=2027972" target="_blank">iou90 发表于 2022-10-8 18:16</a>
+前半段有那种加速是不是得4档？
+我昨儿又跑了快300公里才45银 感觉44就是极限了囧
+也才刚刚摸清tcs关掉咋 ...</blockquote>
+两个大直道4跳6，想关tc的话某些地方重刹降到2档后要马上升3档，我最开始也是1分45秒，慢慢发现自己的不足然后有突破是很煎熬的
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
