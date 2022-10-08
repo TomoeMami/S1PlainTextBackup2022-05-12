@@ -125,3 +125,15 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  iou90  
+##### 1658#       发表于 2022-10-8 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57815415&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-8 19:17</a>
+两个大直道4跳6，想关tc的话某些地方重刹降到2档后要马上升3档，我最开始也是1分45秒，慢慢发现自己的不 ...</blockquote>
+开tc主要还是有趣吧 反正自己的速度不可能金 也不追求金
+开tc后哪些地方应该提前3到4 2的时候如何给油都挺好玩
+
