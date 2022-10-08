@@ -658,3 +658,12 @@ bd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrer
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  昊昊哥  
+##### 82#       发表于 2022-10-8 10:49
+
+支持贝报！
+

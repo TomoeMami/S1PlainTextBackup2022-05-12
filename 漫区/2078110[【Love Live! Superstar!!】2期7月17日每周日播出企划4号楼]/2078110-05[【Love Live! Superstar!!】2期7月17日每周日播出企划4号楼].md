@@ -14469,3 +14469,30 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这周就结束了，谢天谢地
 
+
+
+*****
+
+####  nufawneafg  
+##### 7309#       发表于 2022-10-8 10:46
+
+这俩只是结果，硬刚观众是过程啦，一季结束基本上也开嘲讽开完了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7310#       发表于 2022-10-8 10:48
+
+看了台长这视频，就挺乐的 [https://www.bilibili.com/video/BV1SN4y1P77f](https://www.bilibili.com/video/BV1SN4y1P77f)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7311#       发表于 2022-10-8 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57806455&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-8 10:48</a>
+
+看了台长这视频，就挺乐的 htt ...</blockquote>
+虹虹，你永远的港湾jpg。
+
