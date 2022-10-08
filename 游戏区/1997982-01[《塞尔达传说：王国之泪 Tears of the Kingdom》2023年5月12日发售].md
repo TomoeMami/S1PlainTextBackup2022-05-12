@@ -5701,3 +5701,14 @@ Nintendo Live 2022现场 林克等身大雕像，现场玩家可以合影
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  maomaoying  
+##### 618#       发表于 2022-10-8 13:13
+
+<blockquote>skicerse 发表于 2022-9-15 00:45
+原来这就是传说中的MP4嘛我看预告就觉得镜头都从塞尔达切过去了就是不给脸，中间感觉像是递交什么东 ...</blockquote>
+mp4?在哪是metroid prime4吗
+
