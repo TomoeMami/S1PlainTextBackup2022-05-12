@@ -1415,3 +1415,12 @@ Ziimbiian泄露的选车界面，Charger R/T可改造为猎装式样。
 
 按照GRID LEDENGS的经验足够劝退了
 
+
+
+*****
+
+####  proselyte  
+##### 66#         楼主| 发表于 2022-10-8 09:49
+
+steam国区已解锁，价格和epic一样
+
