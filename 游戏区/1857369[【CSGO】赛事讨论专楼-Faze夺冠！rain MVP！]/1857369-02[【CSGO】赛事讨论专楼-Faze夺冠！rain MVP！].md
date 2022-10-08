@@ -9365,3 +9365,15 @@ hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发
 
 打开手机一看g2a队都回家了，还以为起码可以挑战组一轮游呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  subject07  
+##### 2604#       发表于 2022-10-8 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57809531&amp;ptid=1857369" target="_blank">andychen 发表于 2022-10-8 13:35</a>
+
+非要说的话最后输掉的赛点局那把3v5单人守B区问题很大，但是那时候G2整队状态明显都不对了，这个指令说实 ...</blockquote>
+在那之前架枪补枪沟通就崩掉了，配合抽象的像路人局，最后那把后来也补了一个2B了，但是既不前探信息，也不交叉火力架枪，两个人全缩在三箱和死点等死。
+
