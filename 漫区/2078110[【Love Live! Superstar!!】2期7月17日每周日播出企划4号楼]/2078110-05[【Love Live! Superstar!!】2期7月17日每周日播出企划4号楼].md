@@ -14894,3 +14894,16 @@ hori那边接的活吧
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 7353#       发表于 2022-10-8 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57815952&amp;ptid=2078110" target="_blank">一个陆仁贾 发表于 2022-10-8 19:54</a>
+动画直播啥时候来着，太久不关注忘了
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+明晚六点
+
