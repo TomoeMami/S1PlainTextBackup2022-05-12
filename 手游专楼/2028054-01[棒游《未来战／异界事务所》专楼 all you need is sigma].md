@@ -12,3 +12,12 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rgauss  
+##### 787#         楼主| 发表于 2022-10-8 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">感觉鬼头配的地平线不行啊
+
