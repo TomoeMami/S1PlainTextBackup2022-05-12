@@ -826,3 +826,14 @@ ate里武御雷的刀不是削beta如泥
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kamarus  
+##### 1857#       发表于 2022-10-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816831&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-8 20:55</a>
+—— 来自 OnePlus HD1905, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+艹
+
