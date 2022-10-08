@@ -835,3 +835,14 @@ boss全身模型都有物理判定而不是2d游戏标准的脚下圆圈，所�
 
 美术和小册子真的是顶级，但是战斗实在太劝退了，打到最后一点的时候坑掉了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫名奇妙封ID  
+##### 88#       发表于 2022-10-8 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789779&amp;ptid=2058428" target="_blank">Kazepollar 发表于 2022-10-7 09:12</a>
+美术和小册子真的是顶级，但是战斗实在太劝退了，打到最后一点的时候坑掉了 ...</blockquote>
+解谜要素是挺有趣，但是偏难了，就算小册子的语言不是狐狸语，也会劝退一堆人。例如山中之门的解谜不说很难吧，但要自己琢磨的话还是很繁琐的，一次按错就功亏一篑，偏偏这还是真结局的必要条件……
+

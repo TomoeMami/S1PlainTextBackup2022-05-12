@@ -647,3 +647,14 @@ bd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrer
 
 黑幕我，please
 
+
+
+*****
+
+####  島唄  
+##### 81#       发表于 2022-10-8 10:38
+
+嗨幕我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

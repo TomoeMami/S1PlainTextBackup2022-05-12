@@ -1522,3 +1522,13 @@ Burn this city
 
 感觉结局的狠劲被蕾贝卡吸完了，最后还等着露西来个真空葬啥的
 
+
+
+*****
+
+####  Schwarzess  
+##### 3116#       发表于 2022-10-8 10:35
+
+这两天在游戏里圣地巡礼，发现动画给的地点提示基本都很合理。
+但鹅球读不了我的手机图库，我再研究一下怎么发图。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
