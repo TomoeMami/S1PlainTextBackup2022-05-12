@@ -2657,3 +2657,37 @@ negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, e
 
 我现在试下来的个人的感觉是，把这些当embeddings载入以后，把关键词放在prompt句首效果最好，当然和实际novelAI端的还有差距。目前效果最好应该是直接调用novelAI后端，有条件的可以参考这个教程，我自己没有尝试过：[https://telegra.ph/NovelAI%E5%8E ... 5%99%E7%A8%8B-10-07](https://telegra.ph/NovelAI%E5%8E%9F%E7%89%88%E9%83%A8%E7%BD%B2%E6%95%99%E7%A8%8B-10-07)
 
+
+
+*****
+
+####  断片集  
+##### 211#       发表于 2022-10-9 00:36
+
+<img src="https://img.saraba1st.com/forum/202210/09/003531t5a2n545i2db8bc3.png" referrerpolicy="no-referrer">
+
+<strong>01601-2313667260-masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt,.png</strong> (42.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/003534iawbwpbx1ogpbagk.png" referrerpolicy="no-referrer">
+
+<strong>01598-2313667257-masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt,.png</strong> (44.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 00:35 上传
+
+有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, sweat , large breasts, high_heels ,thighhighs ,full_body ,(exposed naked tits_1.21),(sultry_1.1) ,hair flower
+
+*****
+
+####  mahoraga  
+##### 212#         楼主| 发表于 2022-10-9 00:40
+
+<blockquote>断片集 发表于 2022-10-9 00:36
+有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, swea ...</blockquote>
+确实不错嗷，说起来novelai网页今天更新了之后说会默认加masterpiece了好像
+
