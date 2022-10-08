@@ -14646,3 +14646,84 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kata魂  
+##### 7326#       发表于 2022-10-8 17:53
+
+按照以往的分组两组应该是香千+可堇
+
+二期生要塞人的话第一组应该是软妹系的，加上强推铃原，那差不多就是香千希
+
+第二组应该加个帅哥或者捣蛋鬼，第二组不是可堇芽衣就是可堇夏
+
+第三组只剩下恋，如果要人气的话说不定红蓝不拆
+
+那二组有可能是可堇夏，三组是恋芽四季
+
+当然如果第三组像以往那样存在感相对较弱，那可堇芽衣或者恋夏四季也有可能
+
+*****
+
+####  稀勢のささ  
+##### 7327#       发表于 2022-10-8 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7328#       发表于 2022-10-8 17:53
+
+不用走流程，不用浪费感情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7329#       发表于 2022-10-8 17:54
+
+ 本帖最后由 iuhehc 于 2022-10-8 17:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还说单曲选举呢这么看单曲有也是直接大手决定
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 7330#       发表于 2022-10-8 17:55
+
+是分小队吗？看隔壁有说分组访谈的，哪个准？
+
+*****
+
+####  ViyViy  
+##### 7331#       发表于 2022-10-8 17:56
+
+俺也看隔壁说分组访谈，先等个切实的消息？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7332#       发表于 2022-10-8 17:57
+
+官方骚操作多了感觉哪种可能性不是没有………
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7333#       发表于 2022-10-8 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是群友听岔了，等正式消息
+
+*****
+
+####  kata魂  
+##### 7334#       发表于 2022-10-8 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如分了得了
+
+早一刀晚一刀，一起恶心也挺好
+
