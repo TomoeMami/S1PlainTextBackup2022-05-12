@@ -1185,3 +1185,16 @@ Do It Yourself!!
 
 小儿佝偻病能玩电动工具吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rhantolk  
+##### 98#       发表于 2022-10-8 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57804063&amp;ptid=1994951" target="_blank">堆雪若叶 发表于 2022-10-8 06:24</a>
+第一集手工浓度有点低叙事节奏也慢，有点不清楚是想做类型片还是讲故事，不过又是青梅又是手艺活想到烧窑做 ...</blockquote>
+水母？章鱼哔！
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
