@@ -1228,3 +1228,13 @@ Do It Yourself!!
 挂个链子和扳正车把真的需要工具嘛</blockquote>
 车把最好是拧开螺丝再调的，虽然很多人直接两腿一夹就上手硬掰。女生因为没有这个蛮力反而会使用正确的方式。挂链子用工具纯属不想弄脏手了，机油可难洗了。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 102#         楼主| 发表于 2022-10-8 13:36
+
+[https://twitter.com/_katakuri_/status/1578133068983857154](https://twitter.com/_katakuri_/status/1578133068983857154)
+<img src="https://p.sda1.dev/7/b300c50ba12a6931c05cb073785e713d/20221008_133529.jpg" referrerpolicy="no-referrer">
+

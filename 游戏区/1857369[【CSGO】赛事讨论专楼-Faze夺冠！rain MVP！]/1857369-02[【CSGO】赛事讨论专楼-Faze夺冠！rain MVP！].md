@@ -9334,3 +9334,25 @@ Niko真想拿冠军不如去学俄语加入Navi吧，也就他们缺人了
 
 今天电竞圈真是好戏连台，都快看不过来了
 
+
+
+*****
+
+####  andychen  
+##### 2601#       发表于 2022-10-8 13:32
+
+G2一个T1级别的战队好歹得有一个大哥能站出来稳定C吧，同组C9也是明星哥shiro霍比特熄火可人家有阿乐carry局势，G2整整3个明星哥一个都站不出来那不是只能G了
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  andychen  
+##### 2602#       发表于 2022-10-8 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57803884&amp;ptid=1857369" target="_blank">subject07 发表于 2022-10-8 03:34</a>
+hooxi指挥真没什么大问题吧，epl小组赛是四个枪男轮番上阵发挥，打了小蜜蜂之后就开始软了，把把榜一大哥在 ...</blockquote>
+非要说的话最后输掉的赛点局那把3v5单人守B区问题很大，但是那时候G2整队状态明显都不对了，这个指令说实话也不一定是hooxi call的..
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

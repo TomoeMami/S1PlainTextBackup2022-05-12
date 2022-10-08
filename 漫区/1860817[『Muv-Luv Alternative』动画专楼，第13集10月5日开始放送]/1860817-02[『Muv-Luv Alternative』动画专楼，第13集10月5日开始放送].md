@@ -735,3 +735,19 @@ XM3操作系统：解锁鬼泣式连招
 
 真需要用刀的时候，也就是只能万岁冲锋了（层主个人理解）
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1851#       发表于 2022-10-8 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57801865&amp;ptid=1860817" target="_blank">半分宅 发表于 2022-10-7 23:55</a>
+
+按照设定，海峡还就真的很有用。欧洲陷落之后，英国也是靠海峡天险硬守下来的。
+
+BETA渡海渡河靠的是下水 ...</blockquote>
+beta既然能渡海到日本，那么到台湾岛也不成问题<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+能抗住也就没日本人的事情了，也就是说为了让日本人出场只能这么设定<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
