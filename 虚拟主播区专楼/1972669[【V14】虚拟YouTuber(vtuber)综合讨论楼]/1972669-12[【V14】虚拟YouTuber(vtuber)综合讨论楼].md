@@ -11454,3 +11454,12 @@ pokerchase这打牌手游据说不是当年虹联动拉拔就要嗝屁了（道�
 vspoow2这阵容…noah…
 不仲的人就这么惨吗
 
+
+
+*****
+
+####  FCCHua  
+##### 17551#       发表于 2022-10-8 19:05
+
+耐久是坏文明，但是能听到困困hnn是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
