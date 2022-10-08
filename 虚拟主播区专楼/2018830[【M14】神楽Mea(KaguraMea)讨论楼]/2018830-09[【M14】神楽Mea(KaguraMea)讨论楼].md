@@ -5596,3 +5596,12 @@ woc 麻
 
 <img src="https://img.saraba1st.com/forum/202210/08/200802dky87yv7y807uwfz.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 12586#       发表于 2022-10-8 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真ai麻酱了
+
