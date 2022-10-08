@@ -156,3 +156,14 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 
 额啊本来想买了 一看现在淘宝上美区100刀充值卡已经600多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  superkin185  
+##### 1880#       发表于 2022-10-8 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57815912&amp;ptid=2015700" target="_blank">windhawind2 发表于 2022-10-8 19:51</a>
+额啊本来想买了 一看现在淘宝上美区100刀充值卡已经600多了</blockquote>
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。
+
