@@ -14572,3 +14572,15 @@ snp要是能有隔壁敌团那种待遇该多好啊至少给个live吧</blockquo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不想看上映会，直接等repo
 
+
+
+*****
+
+####  Skyline_R  
+##### 7318#       发表于 2022-10-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57804733&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-8 08:58</a>
+
+这次先行图没有新画面</blockquote>
+抛开内容不说，这一卡的香音画得还是挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

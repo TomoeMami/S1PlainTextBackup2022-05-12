@@ -2575,3 +2575,17 @@ NAI线上线下版都试了一下离线版确实还是有点差距，不知道�
 
 马克
 
+
+
+*****
+
+####  dayuii  
+##### 206#       发表于 2022-10-8 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57803609&amp;ptid=2098197" target="_blank">dcem 发表于 2022-10-8 01:57</a>
+
+感谢楼里老哥们提供的信息。话说用automatic1111的UI，不知道为什么这些pt文件当embedded concept和当hyper ...</blockquote>
+hypernetworks成功了，embedded concept怎么搞？
+
+还有图片的prompt可以贴一下吗。
+
