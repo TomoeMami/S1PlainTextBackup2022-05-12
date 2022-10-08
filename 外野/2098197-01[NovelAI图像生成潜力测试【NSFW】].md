@@ -2637,3 +2637,23 @@ hypernetworks成功了，embedded concept怎么搞？
 
 求网盘呀，onedrive上不去
 
+
+
+*****
+
+####  dcem  
+##### 210#       发表于 2022-10-8 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813149&amp;ptid=2098197" target="_blank">dayuii 发表于 2022-10-8 03:07</a>
+
+hypernetworks成功了，embedded concept怎么搞？
+
+还有图片的prompt可以贴一下吗。</blockquote>
+需要魔改版的anime.pt这些文件，见我上面那个楼层回复的链接。然后把这些pt文件放到webui根目录下的embeddings文件夹里（没有就新建一个）就行了。要用的话就直接在prompt里加对应的pt文件的文件名（aini, anime_3之类的），成功调用的话你应该能在输出里看到类似这种：Used embeddings: anime_3 [a2b1]
+
+我之前图片用的prompt: masterpiece, best quality, (((2girls))), yuri, sitting, small chest, buruma, gym uniform, thighhighs, looking at viewer, embarrassed, blush, 最后加各种embbeded concept的关键词排列组合（之前忘记存了可能稍有出入）
+
+negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, extra digit, fewer digits, cropped, worst quality, low quality, normal quality, jpeg artifacts, signature, watermark, username, blurry, bad feet（这个就是novelai的通用negative prompt）
+
+我现在试下来的个人的感觉是，把这些当embeddings载入以后，把关键词放在prompt句首效果最好，当然和实际novelAI端的还有差距。目前效果最好应该是直接调用novelAI后端，有条件的可以参考这个教程，我自己没有尝试过：[https://telegra.ph/NovelAI%E5%8E ... 5%99%E7%A8%8B-10-07](https://telegra.ph/NovelAI%E5%8E%9F%E7%89%88%E9%83%A8%E7%BD%B2%E6%95%99%E7%A8%8B-10-07)
+

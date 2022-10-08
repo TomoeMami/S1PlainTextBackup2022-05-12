@@ -14023,3 +14023,12 @@ APP版近期将会支持手柄。
 
 大流士这售后简直亲女儿，从好玩的联机角变成了强力角。Ti2和IA手感大提升<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  delphinian  
+##### 7368#       发表于 2022-10-8 23:48
+
+用了两天，TI2这个双枪分支有点搞笑，命中率好低，不管是自己侧移还是boss侧移，稍微一动就全脱靶，射程也没比平a长多少，虽然还是比原版有用就是了
+
