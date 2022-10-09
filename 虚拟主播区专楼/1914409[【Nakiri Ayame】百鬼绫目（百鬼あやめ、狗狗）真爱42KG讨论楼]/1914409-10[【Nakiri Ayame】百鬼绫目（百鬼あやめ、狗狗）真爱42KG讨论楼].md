@@ -7987,3 +7987,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 明天还有<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 14395#       发表于 2022-10-9 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷喷联动 没预告 看来是绫总起的头，开自己台
+
