@@ -16290,3 +16290,12 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 估计又是随便找个女的肉体缝男人上去吧，就算真是呼延灼他跟阿萨辛也没什么关系，就看是后代还是跟他当代的人了。当然要是没缝合本来就是女的更好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 2953#       发表于 2022-10-9 14:27
+
+看隔壁科普，这曲亭马琴写过性转版的水浒传。。。
+
