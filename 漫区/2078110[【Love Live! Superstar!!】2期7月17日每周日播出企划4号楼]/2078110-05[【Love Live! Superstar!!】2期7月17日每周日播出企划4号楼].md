@@ -15181,3 +15181,16 @@ hori那边接的活吧
 
 它们真是不嫌麻烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 7380#       发表于 2022-10-9 12:32
+
+ 本帖最后由 iuhehc 于 2022-10-9 12:35 编辑 
+
+cw曲还不够打击，等着吧我看运营什么时候搞9人小星星9人非虚构9人星光序曲<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
