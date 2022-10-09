@@ -2494,3 +2494,100 @@ unya多少还算是抱怨了那么一下下的<blockquote>私は捻くれた🍨
 
 讨厌的理由已经给的够多了 只不过我在脑内把前三集切割了
 
+
+
+*****
+
+####  ruffian  
+##### 7757#       发表于 2022-10-9 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835930&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-09 23:15:49</a>
+偶像动画里很正常啊
+不就是那句话，</blockquote>喜欢的理由当然有啊，不然当初怎么会成为箱推呢？就算是现在，烂掉的也只有动画而已。这也是我无法讨厌她们的原因。别处的她们越好，我越恨有权利把握动画方向盘的所有人
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  奥柏伦亲王  
+##### 7758#       发表于 2022-10-9 23:24
+
+没有任何超出意料的情况，就这么波澜不惊的烂完了，就连加人都没整出任何新活来，什么叫躺平摆烂，这才是躺平摆烂，但凡企划里有一个管事的能好好负起责任来都不至于摆的这么彻底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好的方面来说应该会有一年不被破动画折磨了，坏的方面是日本疫情形势这么差，我不确定live宣传期还能不能像去年一样用心
+
+*****
+
+####  Kfly  
+##### 7759#       发表于 2022-10-9 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836016&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 23:22</a>
+喜欢的理由当然有啊，不然当初怎么会成为箱推呢？就算是现在，烂掉的也只有动画而已。这也是我无法讨厌她们 ...</blockquote>
+我不也是，能坚持到现在都是在看杂志和广播的小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7760#       发表于 2022-10-9 23:24
+
+请问生肉有地方看吗？今天错过直播了，刚才找了一圈没找到生肉资源。
+
+*****
+
+####  ViyViy  
+##### 7761#       发表于 2022-10-9 23:25
+
+顺便一说，根据我天天看两三眼的粗略观察，unya已经一个星期没怎么搞可堇的图片内容了（包括转发喜欢这种），我感觉他心态变化肯定是有的。谁会没变化呢是不是。
+
+企划是真准备把所有人都当噪音过滤一意孤行，那真的建议太君们长痛不如短痛，先让三巡变成“无观众巡演”，给企划点颜色瞧瞧。<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7762#       发表于 2022-10-9 23:27
+
+ 本帖最后由 aoaoaodedede 于 2022-10-9 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836060&amp;ptid=2078110" target="_blank">灼眼的夏娜酱 发表于 2022-10-9 23:24</a>
+请问生肉有地方看吗？今天错过直播了，刚才找了一圈没找到生肉资源。</blockquote>
+有熟肉了，可以看熟肉
+[https://m.bilibili.com/dynamic/715063612030320697](https://m.bilibili.com/dynamic/715063612030320697)
+
+*****
+
+####  一个陆仁贾  
+##### 7763#       发表于 2022-10-9 23:28
+
+不是说有投票么，我怎么没看到
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  愛さ実  
+##### 7764#       发表于 2022-10-9 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836060&amp;ptid=2078110" target="_blank">灼眼的夏娜酱 发表于 2022-10-9 23:24</a>
+请问生肉有地方看吗？今天错过直播了，刚才找了一圈没找到生肉资源。</blockquote>
+说生放送？阿b搜蓝原延珠
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7765#       发表于 2022-10-9 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836099&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-9 23:27</a>
+
+有熟肉了，可以看熟肉
+
+https://m.bilibili.com/dynamic/715063612030320697</blockquote>
+多谢！
+
+*****
+
+####  离心  
+##### 7766#       发表于 2022-10-9 23:30
+
+希望花田老师好好休息吧，别写星三了。好好打磨和完善ATRI和京吹三吧。真的我不希望我心中天花板的漫改日常作品《日常》的系构变成现在这样<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
