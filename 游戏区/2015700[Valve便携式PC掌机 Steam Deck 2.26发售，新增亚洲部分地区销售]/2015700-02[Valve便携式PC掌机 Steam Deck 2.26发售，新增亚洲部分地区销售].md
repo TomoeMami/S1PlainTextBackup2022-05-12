@@ -167,3 +167,15 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 额啊本来想买了 一看现在淘宝上美区100刀充值卡已经600多了</blockquote>
 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。
 
+
+
+*****
+
+####  windhawind2  
+##### 1881#       发表于 2022-10-9 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-08 20:48:06</a>
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>莫非我搜错了..方便把店铺名私我一下吗谢谢
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
