@@ -6859,3 +6859,12 @@ yagoo来给压力了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚要玩灵魂杀手6啊，我特地去查了一下这格斗游戏好像能爆衣，这下可以看miko被电脑虐了
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2170#       发表于 2022-10-9 17:28
+
+这游戏能捏人，感觉又得捏人一小时，5分钟结束战斗。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -15339,3 +15339,27 @@ unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 7393#       发表于 2022-10-9 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57824104&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-9 11:13</a>
+维恩来了还有12人ver呢，这才哪到哪。
+
+大香老师肯定是不会去留学的，霓虹动画的中心宇宙肯定是日本，其他 ...</blockquote>
+第十一集多处暗示香音动了心思，第十二集去不去都挺小丑的
+
+*****
+
+####  ButaiKyaku  
+##### 7394#       发表于 2022-10-9 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57824104&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-9 11:13</a>
+维恩来了还有12人ver呢，这才哪到哪。
+
+大香老师肯定是不会去留学的，霓虹动画的中心宇宙肯定是日本，其他 ...</blockquote>
+第十一集多处暗示香音动了心思，第十二集去不去都挺小丑的
+
