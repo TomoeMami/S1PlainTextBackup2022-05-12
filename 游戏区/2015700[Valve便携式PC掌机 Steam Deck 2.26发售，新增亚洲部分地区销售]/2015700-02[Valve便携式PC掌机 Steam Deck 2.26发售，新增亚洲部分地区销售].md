@@ -291,3 +291,33 @@ FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
 
 *10月9号显示货物已打包
 
+
+
+*****
+
+####  superkin185  
+##### 1891#       发表于 2022-10-9 13:57
+
+ 本帖最后由 superkin185 于 2022-10-9 13:59 编辑 
+
+我用的中环转运，运了30天还没到手里<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+4FB3E6DE-6656-4D77-906D-9F58C95A0DCC.jpeg
+(281.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/135926qzq4oa7r8mzm5htn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  EEEEhentai  
+##### 1892#       发表于 2022-10-9 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57826268&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-9 13:57</a>
+
+我用的中环转运，运了30天还没到手里</blockquote>
+兄弟 太真实了，听说清关要8个工作日
+
