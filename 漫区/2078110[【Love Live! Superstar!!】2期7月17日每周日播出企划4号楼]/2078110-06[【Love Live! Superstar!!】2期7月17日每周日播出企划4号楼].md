@@ -2382,3 +2382,96 @@ LL企划唯一的优势就是选人这关运气很好。 2期暂时不好说，1
 看样子第一季主舞台就是学校啊。还是希望赶紧离开学校，进入宇宙，前往地球。学校内，在怎么激烈的权利斗争 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水星串楼了？
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 7745#       发表于 2022-10-9 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835714&amp;ptid=2078110" target="_blank">sinbad 发表于 2022-10-9 23:00</a>
+看样子第一季主舞台就是学校啊。还是希望赶紧离开学校，进入宇宙，前往地球。学校内，在怎么激烈的权利斗争 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然应该是错楼了，但理解成劝香音神前往宇宙，也不是不行，副会长的头衔还是太小了
+
+*****
+
+####  nufawneafg  
+##### 7746#       发表于 2022-10-9 23:02
+
+还真别说，这一套还真挺适合星三<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7747#       发表于 2022-10-9 23:03
+
+ 本帖最后由 iuhehc 于 2022-10-9 23:05 编辑 
+
+unya多少还算是抱怨了那么一下下的<blockquote>私は捻くれた🍨ちゃん推しだから、2期の扱いが1话から言わせる台词含めて酷いな…って思ってしまっていて、可爱い场面もたくさんあったし楽しませて贳ったけど、総合的に言ったらもっと🍨ちゃんだから出来ることがあったと思うから、上手く动かして欲しかったよ〜っていうのが今の素直な気持ちでした</blockquote>
+
+*****
+
+####  ViyViy  
+##### 7748#       发表于 2022-10-9 23:03
+
+只能说三期给了不切实际的期待，如果真的说二期就结束了我估计unya就不是现在这情况了
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这生放最无语的还是他妈的真的让鱼出来开盾说可可回国的事情已经结束了，太恶心了。
+
+*****
+
+####  稀勢のささ  
+##### 7749#       发表于 2022-10-9 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835704&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 22:59</a>
+
+何等坚强的精神力，是我小看他了，我要道歉
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote><blockquote>留学に悩むかのんちゃんに可可ちゃんがこう…もう少し、もう少し、ほんの少しだけでいいから、何か、何か、言ってあげて、欲しかったな……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再被杀一次的话估计也不行了  这一刀短期内大概只有9人小星星能给
+
+*****
+
+####  Kfly  
+##### 7750#       发表于 2022-10-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835782&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-9 23:03</a>
+
+只能说三期给了不切实际的期待，如果真的说二期就结束了我估计unya就不是现在这情况了
+
+这生放最无语 ...</blockquote>
+是真的恶心，一想到第三季可能还要背刺一波更恶心了，我真觉得它们不扯回国就不会写了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7751#       发表于 2022-10-9 23:08
+
+说实话，就算已经这样了，我对9个角色中的任何一个都讨厌不起来，哪怕我说自己已经箱推变单推了。现在回头看一单pv和前三集还是会悸动，除非把这三集和动画之前其他媒体的所有预热全部模因消失，不然我不会忘记她们本来的样子，更不会忘记糟蹋她们的罪魁祸首
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7752#       发表于 2022-10-9 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是说真的。。都三年级的难道还会有人期待回国危机吗，真做出来只会被更多人吐槽吧
+
+*****
+
+####  iuhehc  
+##### 7753#       发表于 2022-10-9 23:10
+
+警惕运营pua
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  长日留痕  
+##### 7754#       发表于 2022-10-9 23:11
+
+书都念完了回国不是很正常吗，ll史上第一个欢声笑语的飞机回（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
