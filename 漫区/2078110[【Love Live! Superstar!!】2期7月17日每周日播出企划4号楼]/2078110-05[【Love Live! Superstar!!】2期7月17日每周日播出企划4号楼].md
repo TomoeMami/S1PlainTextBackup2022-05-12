@@ -15159,3 +15159,12 @@ hori那边接的活吧
 →始まりは君の空(9人ver.) [进行中]</blockquote>
 第三季加三个人
 
+
+
+*****
+
+####  starring  
+##### 7378#       发表于 2022-10-9 11:58
+
+最好把一单剩下的dreaming energy和lapapa都改成9人ver，这样五老星真正意义上消失了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
