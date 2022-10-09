@@ -15268,3 +15268,14 @@ twi:@unyanai
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">うにゃ，我的超人
 
+
+
+*****
+
+####  ruffian  
+##### 7387#       发表于 2022-10-9 15:12
+
+unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播但我提前说了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
