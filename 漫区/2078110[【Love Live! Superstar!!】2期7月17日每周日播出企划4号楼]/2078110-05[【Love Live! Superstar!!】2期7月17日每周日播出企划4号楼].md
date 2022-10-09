@@ -15194,3 +15194,28 @@ cw曲还不够打击，等着吧我看运营什么时候搞9人小星星9人非�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kfly  
+##### 7381#       发表于 2022-10-9 12:46
+
+上映会的情报
+
+<img src="https://img.saraba1st.com/forum/202210/09/124648gltlzoro7ile45x2.png" referrerpolicy="no-referrer">
+
+<strong>Liella!10-8上映会 @44-32.30 1665290596614.png</strong> (187.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 12:46 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/124652hhiisprsiohg6eie.png" referrerpolicy="no-referrer">
+
+<strong>Liella!10-8上映会 @46-11.07 1665290619350.png</strong> (183.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 12:46 上传
+

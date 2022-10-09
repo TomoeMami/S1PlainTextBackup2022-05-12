@@ -210,3 +210,32 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
 求私信
 
+
+
+*****
+
+####  psvsd  
+##### 1885#       发表于 2022-10-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+ 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+同求个私信
+
+*****
+
+####  psvsd  
+##### 1886#       发表于 2022-10-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+ 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+同求个私信
+
+*****
+
+####  psvsd  
+##### 1887#       发表于 2022-10-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+ 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+同求个私信
+
