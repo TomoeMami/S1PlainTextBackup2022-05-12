@@ -2705,3 +2705,16 @@ negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, e
 
 本地能不能像网页那样涂涂，其它不变只让ai修改错误的地方？
 
+
+
+*****
+
+####  mahoraga  
+##### 214#         楼主| 发表于 2022-10-9 08:57
+
+<blockquote>Issue 发表于 2022-10-9 03:52
+不是挑刺，可第一张腰和第二张脚已经畸形明显没法看的，
+
+本地能不能像网页那样涂涂，其它不变只让ai修改 ...</blockquote>
+本地版是有inpaint这个功能，可以用mask控制ai修改区域的，反倒是网页版我没找到这个功能
+

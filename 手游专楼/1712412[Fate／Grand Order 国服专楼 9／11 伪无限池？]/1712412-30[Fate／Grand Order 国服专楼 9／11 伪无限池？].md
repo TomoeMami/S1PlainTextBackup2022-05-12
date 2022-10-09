@@ -154,3 +154,23 @@
 剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换</blockquote>
 我也是，以为这活动送的老从者只能拿一宝。谢谢了。
 
+
+
+*****
+
+####  星尘的记忆  
+##### 43624#       发表于 2022-10-9 09:00
+
+540石头才出梵高 zzzzzz
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星尘的记忆  
+##### 43625#       发表于 2022-10-9 09:00
+
+540石头才出梵高 zzzzzz
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

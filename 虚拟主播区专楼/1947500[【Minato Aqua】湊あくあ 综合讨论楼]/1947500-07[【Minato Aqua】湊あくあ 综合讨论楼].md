@@ -2452,3 +2452,14 @@ JIN写的这首真好听啊
 
 这个月上旬居然播了两次，其中一次还是游戏回，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 9266#       发表于 2022-10-9 08:56
+
+好起来指半月一播变一星期一播<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

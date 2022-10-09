@@ -179,3 +179,12 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  Re.Troy  
+##### 1882#       发表于 2022-10-9 08:53
+
+完了，收到货都一天了才想起自己没用充值卡直接信用卡买了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
