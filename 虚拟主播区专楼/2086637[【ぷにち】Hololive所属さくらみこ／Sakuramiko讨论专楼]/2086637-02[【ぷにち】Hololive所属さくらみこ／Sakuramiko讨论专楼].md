@@ -6901,3 +6901,14 @@ yagoo来给压力了
 
 bug窗很久没出现了，最近youtube又在搞什么奇怪的
 
+
+
+*****
+
+####  rs5621  
+##### 2174#       发表于 2022-10-9 20:07
+
+观众参加型，还放狠话了，好嚣张
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

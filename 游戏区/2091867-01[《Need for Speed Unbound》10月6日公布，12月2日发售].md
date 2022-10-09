@@ -1457,3 +1457,15 @@ steam国区已解锁，价格和epic一样
 
 然后寒霜这树是好，全局光太假了
 
+
+
+*****
+
+####  proselyte  
+##### 70#         楼主| 发表于 2022-10-9 20:01
+
+据说是新作消息的发布日期
+
+来源:[https://nfs-lane-changers.ea.com ... json?language=en-us](https://nfs-lane-changers.ea.com/_next/data/U47HH3rRRNSgjkBqaB_n-/en-us/feed.json?language=en-ushttps://nfs-lane-changers.ea.com/_next/data/U47HH3rRRNSgjkBqaB_n-/en-us/feed.json?language=en-us)
+<img src="https://p.sda1.dev/7/3f78b5612525a8c8b7d59dc88acda2d2/9fb2e86f5da2f3b39dc271c77142be8d287747229.jpg" referrerpolicy="no-referrer">
+
