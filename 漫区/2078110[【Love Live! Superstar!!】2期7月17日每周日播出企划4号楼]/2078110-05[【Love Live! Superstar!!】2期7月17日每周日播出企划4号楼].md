@@ -15540,3 +15540,266 @@ vn：你去留学的话，还能抬结丘母校一手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真去啊 牛逼 剧场版就维也纳吧
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 7418#       发表于 2022-10-9 18:12
+
+可可：香音的u咩就是大家的u咩
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7419#       发表于 2022-10-9 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">香音的梦想就是大家的梦想
+
+*****
+
+####  ButaiKyaku  
+##### 7420#       发表于 2022-10-9 18:12
+
+可可：香音的u咩就是大家的u咩
+
+*****
+
+####  starring  
+##### 7421#       发表于 2022-10-9 18:12
+
+superstar还真是指圣香音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7422#       发表于 2022-10-9 18:12
+
+香音要逃走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7423#       发表于 2022-10-9 18:12
+
+ 本帖最后由 Kfly 于 2022-10-9 18:14 编辑 
+
+重复编辑
+
+*****
+
+####  新HGCG  
+##### 7424#       发表于 2022-10-9 18:12
+
+太好了，如果星团有3，就没香音了
+
+*****
+
+####  a92063256  
+##### 7425#       发表于 2022-10-9 18:13
+
+哈哈，看着大家的讨论就感觉够乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a92063256  
+##### 7426#       发表于 2022-10-9 18:13
+
+哈哈，看着大家的讨论就感觉够乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a92063256  
+##### 7427#       发表于 2022-10-9 18:13
+
+哈哈，看着大家的讨论就感觉够乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ButaiKyaku  
+##### 7428#       发表于 2022-10-9 18:13
+
+香音：我希望我走之后你们继续搞liella
+
+*****
+
+####  ruffian  
+##### 7429#       发表于 2022-10-9 18:13
+
+今天我以母校为荣，明天母校以我为嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  a92063256  
+##### 7430#       发表于 2022-10-9 18:13
+
+哈哈，看着大家的讨论就感觉够乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ButaiKyaku  
+##### 7431#       发表于 2022-10-9 18:14
+
+小千原来打算香音走后就把liella解散了
+
+*****
+
+####  愛さ実  
+##### 7432#       发表于 2022-10-9 18:14
+
+香音的梦想就是大家的梦想？什么**台词。
+竟然真去，大香哪时退队<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愛さ実  
+##### 7433#       发表于 2022-10-9 18:14
+
+香音的梦想就是大家的梦想？什么**台词。
+竟然真去，大香哪时退队<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GGnob  
+##### 7434#       发表于 2022-10-9 18:14
+
+大家的梦、我的梦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7435#       发表于 2022-10-9 18:15
+
+什么叫魂，圣香音就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+人走了就想解散<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 7436#       发表于 2022-10-9 18:16
+
+理事长：走好
+
+*****
+
+####  wuliaozheX  
+##### 7437#       发表于 2022-10-9 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">弹幕
+
+*****
+
+####  ButaiKyaku  
+##### 7438#       发表于 2022-10-9 18:17
+
+sp前来应援
+
+*****
+
+####  starring  
+##### 7439#       发表于 2022-10-9 18:17
+
+好消息：没唱始空
+
+*****
+
+####  Kfly  
+##### 7440#       发表于 2022-10-9 18:18
+
+小千散发，op真是伏笔啊
+
+
+
+*****
+
+####  ButaiKyaku  
+##### 7441#       发表于 2022-10-9 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真夺冠了
+
+*****
+
+####  wuliaozheX  
+##### 7442#       发表于 2022-10-9 18:20
+
+虹信草
+
+*****
+
+####  starring  
+##### 7443#       发表于 2022-10-9 18:20
+
+新歌不能说不好听，只能说不如星光序曲有气氛
+
+*****
+
+####  iuhehc  
+##### 7444#       发表于 2022-10-9 18:21
+
+花田去似吧
+
+*****
+
+####  ads147147  
+##### 7445#       发表于 2022-10-9 18:21
+
+虹信来背负！
+
+虹信来承担！
+
+*****
+
+####  稀勢のささ  
+##### 7446#       发表于 2022-10-9 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不想说的太难听  大香老师带着千赶紧滚吧 剩下的人该干嘛干嘛
+
+*****
+
+####  ButaiKyaku  
+##### 7447#       发表于 2022-10-9 18:21
+
+夏美：香音前辈怎么还没走
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7448#       发表于 2022-10-9 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 7449#       发表于 2022-10-9 18:22
+
+vn入学结丘了，三期生来啦
+
+*****
+
+####  starring  
+##### 7450#       发表于 2022-10-9 18:22
+
+VN还真是三期生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuliaozheX  
+##### 7451#       发表于 2022-10-9 18:22
+
+？？？等一下
+
