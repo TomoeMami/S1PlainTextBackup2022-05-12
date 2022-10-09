@@ -15292,3 +15292,19 @@ unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播�
 
 可见1期2话可可家里的纸箱也是她一个个搬过去的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 7389#       发表于 2022-10-9 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57823706&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 10:55</a>
+
+→香音传 [达成]
+
+→系列最低分 [达成]
+
+→始まりは君の空(9人ver.) [进行中]</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有个新四人常夏
+
