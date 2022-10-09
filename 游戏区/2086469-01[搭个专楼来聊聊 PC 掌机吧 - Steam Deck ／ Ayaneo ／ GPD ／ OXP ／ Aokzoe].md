@@ -5325,3 +5325,22 @@ GPD和AYA的品控哪个更好？
 —— 来自 S1Fun</blockquote>
 开个美区小号然后在淘宝上买代充，用余额买deck，这么做安全吗？
 
+
+
+*****
+
+####  信长的呕吐  
+##### 431#       发表于 2022-10-10 07:13
+
+【国产Win掌机的下限在哪？AOKZOE掌机屏幕之外的欺瞒-哔哩哔哩】 [https://b23.tv/46hk01m](https://b23.tv/46hk01m)
+这也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫煜  
+##### 432#       发表于 2022-10-10 07:15
+
+Aokzoe玩了五六天花屏了，送回去售后添代码了，不知道几天能回来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
