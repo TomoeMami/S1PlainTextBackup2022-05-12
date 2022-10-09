@@ -5235,3 +5235,14 @@ Aok，确实小毛病也不算少，但我觉得团队还不错，管生也管�
 
 steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买……
 
+
+
+*****
+
+####  拉沃契金  
+##### 423#       发表于 2022-10-9 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57822392&amp;ptid=2086469" target="_blank">强尼玛朵 发表于 2022-10-9 09:48</a>
+steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买……</blockquote>
+同纠结，回家先转个美区账号
+
