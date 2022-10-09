@@ -2718,3 +2718,12 @@ negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, e
 本地能不能像网页那样涂涂，其它不变只让ai修改 ...</blockquote>
 本地版是有inpaint这个功能，可以用mask控制ai修改区域的，反倒是网页版我没找到这个功能
 
+
+
+*****
+
+####  丹德里恩  
+##### 215#       发表于 2022-10-9 09:28
+
+OD这玩意真是诡异，有时候完全下不动有时候就挺快
+

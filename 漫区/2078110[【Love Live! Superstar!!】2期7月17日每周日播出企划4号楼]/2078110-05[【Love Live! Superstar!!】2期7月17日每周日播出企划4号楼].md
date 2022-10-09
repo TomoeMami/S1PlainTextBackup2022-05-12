@@ -14961,3 +14961,12 @@ hori那边接的活吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有第三季呢。不过好在明年是虹四格和水3
 
+
+
+*****
+
+####  Kfly  
+##### 7359#       发表于 2022-10-9 09:31
+
+3rd的时候动画部分就不折磨吗（虽然可以选择性跳过）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
