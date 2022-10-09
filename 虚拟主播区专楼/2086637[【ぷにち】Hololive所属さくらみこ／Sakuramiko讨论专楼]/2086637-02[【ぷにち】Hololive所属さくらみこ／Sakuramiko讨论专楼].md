@@ -6868,3 +6868,20 @@ yagoo来给压力了
 
 这游戏能捏人，感觉又得捏人一小时，5分钟结束战斗。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2171#         楼主| 发表于 2022-10-9 17:34
+
+<img src="https://img.saraba1st.com/forum/202210/09/173435skbjnjc480pjmi9i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 17:34 上传
+
+还没回家呢，窗是马内甲开的？
+
