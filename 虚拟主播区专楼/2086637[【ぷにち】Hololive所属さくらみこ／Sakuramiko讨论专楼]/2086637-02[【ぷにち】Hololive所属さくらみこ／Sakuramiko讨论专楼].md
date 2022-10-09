@@ -7094,3 +7094,57 @@ PEKOMIKO民来啦啦啦啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 又是flag
 
+
+
+*****
+
+####  rs5621  
+##### 2193#       发表于 2022-10-9 21:22
+
+草，35p
+
+<img src="https://img.saraba1st.com/forum/202210/09/212235hski1u4wwnuaqs3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 21:22 上传
+
+*****
+
+####  holoan  
+##### 2194#         楼主| 发表于 2022-10-9 21:26
+
+这届35P不行，完败
+
+*****
+
+####  rs5621  
+##### 2195#       发表于 2022-10-9 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行，35p不放水，待会的同步试听就要延迟了
+
+*****
+
+####  holoan  
+##### 2196#         楼主| 发表于 2022-10-9 21:29
+
+果然是身体不好才紧急回去
+
+*****
+
+####  holoan  
+##### 2197#         楼主| 发表于 2022-10-9 21:29
+
+电影下星期再看
+
+*****
+
+####  holoan  
+##### 2198#         楼主| 发表于 2022-10-9 21:32
+
+真的有人以为明天是运动会本番，这理解能力还是别做观众了
+
+前两届都是提前一个月发表
+

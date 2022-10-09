@@ -5448,3 +5448,14 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 亮子先漏了 <img src="http://tva1.sinaimg.cn/large/732205bcgy1h6zbnqswq1j20ay0bvju6.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天青月白  
+##### 2086#       发表于 2022-10-9 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833782&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-9 20:43</a>
+亮子先漏了</blockquote>
+嗯嗯，而且小希小桃同时安排了vmv和联动，不知道是nb上vmv还是小桃来联动
+

@@ -1657,3 +1657,164 @@ Pay不出意外的绷不住了，一会鲤鱼肯定也得哭，这么一看青�
 
 高低得去打个5去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 7684#       发表于 2022-10-9 21:22
+
+<img src="https://img.saraba1st.com/forum/202210/09/212135f4gbzu668r6wbnrd.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221009212103.jpg</strong> (134.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 21:21 上传
+
+要到明年3月才会确定人选，三期应该要到24年了吧？
+
+*****
+
+####  we89623  
+##### 7685#       发表于 2022-10-9 21:23
+
+24年啥都凉了，我看大概明年7月或10月 差不多
+
+*****
+
+####  iuhehc  
+##### 7686#       发表于 2022-10-9 21:24
+
+很难不去nico打5
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ButaiKyaku  
+##### 7687#       发表于 2022-10-9 21:25
+
+泥潭鉴赏区20人一致-2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 7688#       发表于 2022-10-9 21:25
+
+VN不是打补丁变成高一了，三期VN变成高二生？
+
+*****
+
+####  nufawneafg  
+##### 7689#       发表于 2022-10-9 21:26
+
+明年10月被百万嘲讽是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7690#       发表于 2022-10-9 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834368&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 21:26</a>
+
+明年10月被百万嘲讽是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以看看百万的监督和脚本是谁……我觉得寄的可能性很大
+
+*****
+
+####  Piano-Forest  
+##### 7691#       发表于 2022-10-9 21:27
+
+TVアニメ「ラブライブ！スーパースター!!」2期
+
+10/19発売
+
+第10話挿入歌/第12話挿入歌
+
+Sing！Shine！Smile！ / 未来の音が聴こえる
+
+第12話盤ジャケ他公開
+<img src="https://p.sda1.dev/7/d89f9c3a8c310162f4063d71c047d437/20221009_212657.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ef75289fd1bd35dda3a443e2f1b7fd59/20221009_212704.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7692#       发表于 2022-10-9 21:28
+
+反正现在我已经把对星团的期待降到最低了，我只看它企划会不会突破这俩点：1.明显故意恶心国人（故意在动画之类的地方搞国人完全无法接受的恶劣烂活……）。2.可可（鲤鱼）毕业。
+
+只要它企划没突破这俩点，其他的无所谓了，有鲤鱼能看就行了，可可的待遇早就是痴心妄想了，它企划再推倒之前啥剧情，啥“絆”，也无所谓了，老歌重组也好，无所谓了……
+
+4月27号那个晚上破防之后，曾经被我拉进星动画的一个朋友（一期动画还没播完就淡坑了）对我说我是被PUA了，有点恍然大悟的感觉……，那个时候我对这个企划的热情一下子冷了大半，如今我对动画一丝丝的期待也破灭了……
+
+以后一般的破防应该不至于，不过有些要骂的可能还会骂一骂……
+
+*****
+
+####  ruffian  
+##### 7693#       发表于 2022-10-9 21:28
+
+阿b评论区居然有人说官方在削弱可可的作用，也太妄自菲薄了！可可的作用明明非常大阿——既能给动画组当角色盾，又能给观众当出气筒，还能给后辈提供兼用卡，编剧输出脏东西我来擦，队友需要高光我来垫，队友毒唯的情绪垃圾我来受，剧情逆天靠我转移观众注意力，剧情漏洞用我的脸堵，这作用还不够大吗？官方甚至不需要付出为她创作c曲和个人回的代价，就问还能有比这更不可或缺的角色吗？？？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  四宫家印  
+##### 7694#       发表于 2022-10-9 21:29
+
+你们说到时候星三和百万哪个更强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 7695#       发表于 2022-10-9 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834413&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 21:28</a>
+
+阿b评论区居然有人说官方在削弱可可的作用，也太妄自菲薄了！可可的作用明明非常大阿——既能给动画组当角 ...</blockquote>
+工具人嘛，是这样的……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7696#       发表于 2022-10-9 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834383&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-9 21:27</a>
+你可以看看百万的监督和脚本是谁……我觉得寄的可能性很大</blockquote>
+什么大回环<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7697#       发表于 2022-10-9 21:30
+
+ラブライブ！スーパースター!! 新情報
+
+TVアニメ3期 制作決定
+
+そして……
+
+#Liella 3期生キャスト1名
+
+一般公募オーディション開催決定
+
+11/1正午 受付スタート
+
+発表動画
+[https://youtu.be/ywE79v4PuMU](https://youtu.be/ywE79v4PuMU)
+
+オーディション概要
+[https://www.lovelive-anime.jp/yuigaoka/audition/](https://www.lovelive-anime.jp/yuigaoka/audition/)
+
+みんなで はじめての星空へ
+<img src="https://p.sda1.dev/7/775721189cf1dc585b5b0584442d5260/20221009_212820.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/5a9483f4b17d0edef841162d51b88eab/20221009_210407.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/d09fc2758e2217021175418a8d4080e7/20221009_210409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/83bf2e31d1dbb8dfd6a108123a84dc62/20221009_210411.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/725e9effd7fd0d6f22f825180f268f11/20221009_210413.jpg" referrerpolicy="no-referrer">
+
