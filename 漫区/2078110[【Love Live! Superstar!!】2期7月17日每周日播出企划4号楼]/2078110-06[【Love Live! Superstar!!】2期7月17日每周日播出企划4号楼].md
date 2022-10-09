@@ -734,3 +734,253 @@ BB628F4D-3700-4521-AD3F-73A01BAED9F2.jpeg
 
 怎么还招募呢
 
+
+
+*****
+
+####  iuhehc  
+##### 7584#       发表于 2022-10-9 20:23
+
+太折磨人了这个企划
+
+*****
+
+####  qty  
+##### 7585#       发表于 2022-10-9 20:23
+
+不想说啥了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7586#       发表于 2022-10-9 20:23
+
+vn：那我呢
+
+*****
+
+####  ads147147  
+##### 7587#       发表于 2022-10-9 20:23
+
+果然三期生的素人现在才选，结娜是作为事务所推荐吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 7588#       发表于 2022-10-9 20:23
+
+现在还海选啊，乐，那剩下的还有几个三期生
+
+*****
+
+####  lj205  
+##### 7589#       发表于 2022-10-9 20:23
+
+简直迫不及待
+
+*****
+
+####  离心  
+##### 7590#       发表于 2022-10-9 20:23
+
+哈哈哈哈哈
+
+
+
+*****
+
+####  starring  
+##### 7591#       发表于 2022-10-9 20:24
+
+VN和结那都是洗脚婢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7592#       发表于 2022-10-9 20:24
+
+官方………你………
+
+*****
+
+####  iuhehc  
+##### 7593#       发表于 2022-10-9 20:24
+
+ll海选给apb个小百合这样的，写真9000给赚到了想多养几个写真9000的是吧
+
+*****
+
+####  名津流  
+##### 7594#       发表于 2022-10-9 20:25
+
+12星座战神诚不欺我
+
+*****
+
+####  kata魂  
+##### 7595#       发表于 2022-10-9 20:25
+
+cnmd我不想说什么了，每年加新人什么时候人能熟络？
+
+*****
+
+####  川陀  
+##### 7596#       发表于 2022-10-9 20:25
+
+现在才选？是不是晚了点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ButaiKyaku  
+##### 7597#       发表于 2022-10-9 20:26
+
+我就想知道会不会有一期生毕业+四期生<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7598#       发表于 2022-10-9 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833515&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-9 20:24</a>
+
+ll海选给apb个小百合这样的，写真9000给赚到了想多养几个写真9000的是吧</blockquote>
+反正肥水不流外人田嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 7599#       发表于 2022-10-9 20:26
+
+3期如果招太早根不会，藏2年多太狠了。这样到还好，新招募呗
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  adw667  
+##### 7600#       发表于 2022-10-9 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在才招人是当观众不知道二期啥时候招的吗
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7601#       发表于 2022-10-9 20:28
+
+sunny pashion……我的snp
+
+*****
+
+####  稀勢のささ  
+##### 7602#       发表于 2022-10-9 20:28
+
+ 本帖最后由 稀勢のささ 于 2022-10-9 20:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在开始海选 应该出的不会那么快吧.  
+
+希望多打磨下剧本吧真的要接着搞香音传的话大家都没啥出场机会 给她堆到最后也不是不行
+
+*****
+
+####  ads147147  
+##### 7603#       发表于 2022-10-9 20:28
+
+现在的问题只有有没有毕业机制和四期生了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 7604#       发表于 2022-10-9 20:28
+
+二期生真的惨，这曝光率还没多少呢，人气还没起来呢，三期就要上了，真就快消品呗
+
+*****
+
+####  adw667  
+##### 7605#       发表于 2022-10-9 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">我现在只想把wish song和figma这两套谷收齐然后赶紧转个人推
+
+*****
+
+####  iuhehc  
+##### 7606#       发表于 2022-10-9 20:29
+
+估计三巡完了公募结果就出来了，明年就三期
+
+*****
+
+####  ButaiKyaku  
+##### 7607#       发表于 2022-10-9 20:30
+
+花田中间还要去京吹片场练手写三个年级的互动戏<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 7608#       发表于 2022-10-9 20:30
+
+烂得轰轰烈烈，不错
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 7609#       发表于 2022-10-9 20:30
+
+为了不让星二期垫底，决定出星三期
+
+*****
+
+####  iuhehc  
+##### 7610#       发表于 2022-10-9 20:30
+
+油管评论：脚本也进行一般公募吧
+
+*****
+
+####  凡人  
+##### 7611#       发表于 2022-10-9 20:31
+
+花田你TM的还有12集的时间，下一季至少得给四芽补首c位曲吧
+
+*****
+
+####  愛さ実  
+##### 7612#       发表于 2022-10-9 20:31
+
+手下败将还想当立德，乖乖当洗脚婢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过虽说きな子是二期立德，但不还是衬托我香音教祖的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7613#       发表于 2022-10-9 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">啊，鉴赏区投票开了啊
+
+*****
+
+####  nufawneafg  
+##### 7614#       发表于 2022-10-9 20:32
+
+nmd这b运营这么搞做下去要不摔疼，我当场宣布立本市场调节机制失灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7615#       发表于 2022-10-9 20:32
+
+如果现在才公募，明年动画做得完吗？还是动画已经做了，再海选个人套进去？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

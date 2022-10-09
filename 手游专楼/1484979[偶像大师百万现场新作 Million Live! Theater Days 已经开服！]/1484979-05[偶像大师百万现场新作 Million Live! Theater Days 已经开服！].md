@@ -78,3 +78,12 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 
 普通超得差不多是3个月一次
 
+
+
+*****
+
+####  THY_HABITΑΤ  
+##### 7018#       发表于 2022-10-9 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我擦，你游太恐怖了，想着メグエレ出一张就跑，结果直接井了。
+
