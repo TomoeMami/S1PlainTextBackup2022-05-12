@@ -16281,3 +16281,12 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 都缝上，一破拿双鞭二破拿双斧三破拿双刀
 
+
+
+*****
+
+####  風卷豹  
+##### 2952#       发表于 2022-10-9 12:15
+
+估计又是随便找个女的肉体缝男人上去吧，就算真是呼延灼他跟阿萨辛也没什么关系，就看是后代还是跟他当代的人了。当然要是没缝合本来就是女的更好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
