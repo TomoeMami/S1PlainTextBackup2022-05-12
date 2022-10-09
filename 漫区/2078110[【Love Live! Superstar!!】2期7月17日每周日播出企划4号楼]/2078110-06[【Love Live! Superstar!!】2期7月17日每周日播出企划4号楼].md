@@ -2808,3 +2808,21 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  damian-wade  
+##### 7790#       发表于 2022-10-10 00:22
+
+除了水的梨子，我是没看出来拉拉CV表第二位有什么特别侧重……有啥好纠结的
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 7791#       发表于 2022-10-10 00:25
+
+不是说恋回抄的小南极的一个桥段精编了吗，恋那个反对理由有圆的方法，对内对外两种说辞，对内的才是真原因这种算正常范畴，所谓“苦衷”，就是略显无语…
+
