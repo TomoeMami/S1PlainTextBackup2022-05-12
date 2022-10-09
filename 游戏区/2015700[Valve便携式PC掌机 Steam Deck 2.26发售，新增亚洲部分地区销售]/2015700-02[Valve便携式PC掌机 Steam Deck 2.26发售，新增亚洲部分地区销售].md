@@ -239,3 +239,40 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
  没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
 同求个私信
 
+
+
+*****
+
+####  superkin185  
+##### 1888#       发表于 2022-10-9 13:19
+
+这没啥好私信的，淘宝搜索steam充值卡，各个商家的价格都是在100美金510元人民币左右的水平，自己选择口碑好一点的就可以了呀，充值会比较慢，大概需要3到5天。
+
+<img src="https://img.saraba1st.com/forum/202210/09/131842p900fdzd4yodyueq.png" referrerpolicy="no-referrer">
+
+<strong>F8DFD665-94D3-4BE0-8971-62DDB375D8F0.png</strong> (663.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 13:18 上传
+
+泥潭还有个SD群，我之前都是在群里大佬的指导下买的
+
+FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
+(236.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 13:19 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/131921yeez1vpe1ke3okke.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  psvsd  
+##### 1889#       发表于 2022-10-9 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+ 没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+同求个私信
+
