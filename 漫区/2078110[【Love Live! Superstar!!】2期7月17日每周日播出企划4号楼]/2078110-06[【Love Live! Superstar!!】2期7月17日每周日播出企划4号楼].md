@@ -303,3 +303,118 @@ pay以后上场就化这个妆就行，她这种脸就适合厚底浓妆
 
 还要尬吹一小时，确实难受
 
+
+
+*****
+
+####  lj205  
+##### 7531#       发表于 2022-10-9 19:31
+
+这导播有毛病？各种漏鲤鱼镜头，刚才直接8个人
+
+*****
+
+####  stygian  
+##### 7532#       发表于 2022-10-9 19:32
+
+这妆和打光照的大熊跟畑亚贵似的
+
+*****
+
+####  稀勢のささ  
+##### 7533#       发表于 2022-10-9 19:34
+
+<blockquote>一期、二期通して可可ちゃんの帰国騒动必要だった？
+
+それ存在すら必要だったのか疑问の2期生に言える？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 7534#       发表于 2022-10-9 19:34
+
+怎么感觉小百合都没啥想说的了
+
+*****
+
+####  nufawneafg  
+##### 7535#       发表于 2022-10-9 19:36
+
+那还能说啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7536#       发表于 2022-10-9 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就没啥好说的 生放广播上映会大家都自己抄自己 一句话说三遍
+
+*****
+
+####  lj205  
+##### 7537#       发表于 2022-10-9 19:37
+
+估计一会会安排结那，到时位置怎么坐？坐中间？
+
+*****
+
+####  nufawneafg  
+##### 7538#       发表于 2022-10-9 19:37
+
+md面对这玩意还能头头是道的，我高低尊敬一声解释学家
+
+*****
+
+####  ads147147  
+##### 7539#       发表于 2022-10-9 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832721&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-9 19:31</a>
+这导播有毛病？各种漏鲤鱼镜头，刚才直接8个人</blockquote>
+不给镜头可能更好，鲤鱼感觉完全是省电模式，懒得评论的那种感觉。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 7540#       发表于 2022-10-9 19:39
+
+不会吧，要来的话会提前说明的吧
+
+*****
+
+####  ads147147  
+##### 7541#       发表于 2022-10-9 19:40
+
+12话的感想来了，第一句就是最高！
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 7542#       发表于 2022-10-9 19:41
+
+刚刚是说了一句有香音才有liella吗，我没听清
+
+*****
+
+####  稀勢のささ  
+##### 7543#       发表于 2022-10-9 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">chat栏绷不住了
+
+*****
+
+####  starring  
+##### 7544#       发表于 2022-10-9 19:42
+
+音量迷之下降，没词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 7545#       发表于 2022-10-9 19:42
+
+主要是靠双N和逢田妹那组在想办法把节奏带起来，pay适时给点助攻，其他人都有点不知道说啥
+
