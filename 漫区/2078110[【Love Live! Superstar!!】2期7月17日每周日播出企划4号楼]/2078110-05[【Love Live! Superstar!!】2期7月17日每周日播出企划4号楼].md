@@ -15279,3 +15279,16 @@ unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  saya1892  
+##### 7388#       发表于 2022-10-9 16:08
+
+拉板吐槽为什么让土妹子穿着制服拉着行李箱，应该邮寄
+
+但从后面6话看来，星的世界应该是没有邮寄的，必须人力亲自运送
+
+可见1期2话可可家里的纸箱也是她一个个搬过去的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
