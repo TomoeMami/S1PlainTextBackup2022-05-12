@@ -6850,3 +6850,12 @@ yagoo来给压力了
 
 昨天就赶火车回去了吧。性格大条忘了发推文呗。
 
+
+
+*****
+
+####  rs5621  
+##### 2169#       发表于 2022-10-9 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚要玩灵魂杀手6啊，我特地去查了一下这格斗游戏好像能爆衣，这下可以看miko被电脑虐了
+
